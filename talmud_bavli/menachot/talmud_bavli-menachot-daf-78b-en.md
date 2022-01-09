@@ -1,0 +1,75 @@
+
+### Part 1
+<strong>MISHNA:</strong> In the case of <b>one who slaughters the thanks offering</b> in its proper place <b>inside</b> the Temple courtyard, <b>and</b> at that time <b>its</b> forty <b>loaves were outside the wall, the loaves were not consecrated.</b> Likewise, <b>if he slaughtered</b> the thanks offering <b>before the surface</b> of the loaves <b>formed a crust in the oven, and even</b> if the surface of all the loaves <b>formed a crust except for one of them, the loaves were not consecrated.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara clarifies: <b>What</b> is meant by <b>outside the wall? Rabbi Yoḥanan says</b> that it means <b>outside the wall of Beit Pagei</b> in Jerusalem. <b>And Reish Lakish says</b> that it means <b>outside the wall of the</b> Temple <b>courtyard.</b>
+
+### Part 3
+The Gemara elaborates: <b>Reish Lakish says</b> that it means <b>outside the wall of the</b> Temple <b>courtyard,</b> because the verse states with regard to the loaves of the thanks offering: “Then he shall sacrifice with [<i>al</i>] the thanks offering unleavened cakes mingled with oil” (Leviticus 7:12). And <b>we require</b> that the thanks offering be slaughtered strictly <b>“with [<i>al</i>]”</b> the accompanying loaves, i.e., with the loaves <b>nearby.</b> If the loaves are outside the wall of the Temple courtyard, they are not considered nearby.
+
+### Part 4
+<b>And Rabbi Yoḥanan says:</b> If the loaves were <b>outside the wall of Beit Pagei,</b> they are not consecrated, because it is prohibited to eat the loaves outside the wall of Beit Pagei. Since if they were taken outside the wall of Beit Pagei, they would be disqualified because they were removed from their permitted area, they cannot be consecrated if they are there. <b>But</b> if they were merely <b>outside the</b> Temple <b>courtyard,</b> where they may be eaten, they are <b>consecrated. And we do not require</b> that the thanks offering be slaughtered strictly <b>“with”</b> the accompanying loaves, i.e., <b>nearby.</b>
+
+### Part 5
+The Gemara objects: Why is it necessary for Rabbi Yoḥanan and Reish Lakish to disagree with regard to a case where the loaves were situated outside the wall when the thanks offering was slaughtered? <b>But didn’t they</b> already <b>disagree with regard to this</b> matter <b>one</b> other <b>time?</b>
+
+### Part 6
+This is <b>as we learned</b> in a mishna (<i>Pesaḥim</i> 63a) with regard to the slaughtering of the Paschal offering: <b>One who slaughters the Paschal offering with leavened bread</b> still in his possession <b>transgresses a prohibition,</b> as the verse states: “You shall not sacrifice the blood of My offering with [<i>al</i>] leavened bread; neither shall the offering of the festival of Passover be left until the morning” (Exodus 34:25). <b>Rabbi Yehuda says: Even</b> one who slaughters <b>the daily</b> afternoon <b>offering</b> on Passover eve with leavened bread in his possession transgresses the prohibition. <b>And Reish Lakish says: Actually, one is not liable unless</b> the leavened bread <b>is</b> in the possession <b>of the one who slaughters</b> the offering, <b>or the one who sprinkles</b> its blood, <b>or one of the members of the group,</b> and the leavened bread is <b>with</b> that person <b>in the</b> Temple <b>courtyard. And Rabbi Yoḥanan says:</b> One is liable <b>even if</b> the leavened bread <b>is not with</b> that person <b>in the</b> Temple <b>courtyard.</b> Evidently, they already disagree with regard to the meaning of the word “<i>al.</i>”
+
+### Part 7
+The Gemara replies: It is <b>necessary</b> to state the dispute concerning both matters. <b>As, if</b> their disagreement <b>were stated</b> only <b>with regard to that</b> matter of the Paschal offering, one might think that only <b>with regard to that</b> matter <b>Rabbi Yoḥanan said</b> that one is liable even if the leavened bread is not inside the Temple courtyard, <b>since wherever there is</b> leavened bread, its owner <b>stands in</b> violation of <b>the prohibition</b> against owning leavened bread at that time. <b>But with regard to the matter of the consecration of</b> the <b>loaves</b> of the thanks offering, one could <b>say</b> that <b>he concedes to Reish Lakish that if</b> the loaves are <b>inside</b> the Temple courtyard when the thanks offering is slaughtered, they are <b>consecrated,</b> but if they are <b>outside,</b> they are <b>not consecrated.</b>
+
+### Part 8
+<b>And if</b> their disagreement <b>were stated</b> only <b>with regard to this</b> matter of the loaves of the thanks offering, one might think that only <b>with regard to this</b> matter <b>Reish Lakish says</b> that the loaves are consecrated only if they were within the walls of the Temple courtyard. <b>But with regard to that</b> matter of the Paschal offering, one could <b>say</b> that <b>he concedes to Rabbi Yoḥanan</b> that one is liable for slaughtering the Paschal offering while in possession of leavened bread even if it was not with him inside the Temple courtyard, as wherever there is leavened bread, its owner stands in violation of the prohibition against owning leavened bread at that time. Therefore, it is <b>necessary</b> to state the dispute concerning both matters.
+
+### Part 9
+The Gemara notes: <b>It is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rabbi Yoḥanan:</b> In the case of <b>one who slaughters the thanks offering inside</b> the Temple courtyard, <b>and</b> at that time <b>its loaves were outside the walls of Beit Pagei, the loaves were not consecrated.</b>
+
+### Part 10
+§ The mishna teaches: If <b>he slaughtered</b> the thanks offering <b>before the surface of the loaves formed a crust in the oven,</b> the loaves were not consecrated. The next mishna also teaches: If one slaughtered the thanks offering not for its sake, the loaves were not consecrated.
+
+### Part 11
+The Gemara seeks to clarify: <b>From where are these matters</b> derived? <b>As the Sages taught:</b> The verse states with regard to the loaves accompanying the thanks offering: <b>“With cakes of leavened bread he shall present his offering with the sacrifice</b> of his peace offerings for thanks” (Leviticus 7:13). This <b>teaches that the loaves are not consecrated unless the surface</b> of the loaves <b>formed a crust in the oven,</b> as only then can they be considered “cakes of leavened bread.” The phrase <b>“he shall present his offering with the sacrifice” teaches that the loaves are consecrated only upon the slaughtering of the offering.</b> The phrase <b>“the sacrifice</b> of his peace offerings <b>for thanks” teaches that if one slaughtered</b> the offering <b>not for its sake, the loaves were not consecrated.</b>
+
+### Part 12
+§ On a similar note, <b>the Sages taught:</b> One <b>fulfills</b> the obligation to eat <i>matza</i> on Passover <b>with half-done,</b> i.e., not fully baked, <b><i>matza</i>, and with <i>matza</i> made in a stewpot [<i>ilpas</i>]</b> rather than baked in an oven. The Gemara asks: <b>What</b> constitutes <b>half-done <i>matza</i>? Rav Yehuda says</b> that <b>Shmuel says:</b> It is <b>any</b> <i>matza</i> that is sufficiently baked such <b>that</b> if <b>one breaks it, threads</b> of dough <b>are not drawn from it.</b>
+
+### Part 13
+<b>Rava said: And so</b> this is the <i>halakha</i> <b>with regard to the matter of the loaves of the thanks offering,</b> i.e., if the loaves were already half-done at the time of the slaughter of the thanks offering, they are consecrated. The Gemara asks: Why is it necessary for Rava to state this? Isn’t it <b>obvious? Here,</b> with regard to <i>matza</i>, the term <b>“bread” is written</b> (Deuteronomy 16:3), <b>and here,</b> with regard to the loaves of the thanks offering, the term <b>“bread” is written.</b>
+
+### Part 14
+The Gemara responds: <b>Lest you say</b> that since <b>the Merciful One states</b> with regard to the loaves of the thanks offering: “And of it he shall present <b>one</b> out of each offering for a gift unto the Lord” (Leviticus 7:14), this indicates <b>that one may not take sliced</b> bread for the thanks offering, <b>and this</b> half-done bread <b>is considered like one that is sliced,</b> as it will break apart upon being lifted, and it should consequently be disqualified for the bread of the thanks offering, therefore Rava <b>teaches us</b> that once it is baked to that point, it is considered as one loaf and it is valid for the thanks offering.
+
+### Part 15
+§ It <b>was stated</b> that there is a dispute among the <i>amora’im</i> with regard to <b>a thanks offering that one slaughtered</b> accompanied <b>by eighty loaves</b> rather than the required forty. <b>Ḥizkiyya says: Forty of the eighty</b> loaves <b>are consecrated, and Rabbi Yoḥanan says: Not</b> even <b>forty of</b> the <b>eighty</b> loaves <b>are consecrated.</b>
+
+### Part 16
+With regard to this dispute, <b>Rabbi Zeira says: Everyone,</b> even Rabbi Yoḥanan, <b>concedes</b> that in a case <b>where</b> the individual bringing the offering <b>said: Let forty of</b> the <b>eighty</b> loaves <b>be consecrated, that</b> forty <b>are consecrated.</b> Likewise, everyone concedes that where he said: <b>Forty should not be consecrated unless eighty will be consecrated,</b> that <b>they were not consecrated. They disagree when</b> one brings eighty loaves <b>without specification.</b> One <b>Sage,</b> Ḥizkiyya, <b>holds: He intends</b> to consecrate only forty of them, but he brought eighty in order <b>to guarantee</b> that there will be sufficient loaves. <b>And</b> one <b>Sage,</b> Rabbi Yoḥanan, <b>holds: He intends to</b> bring <b>a large offering</b> of eighty loaves; consequently, none of the loaves are consecrated.
+
+### Part 17
+<b>Abaye</b> offered another explanation of the dispute and <b>said: Everyone</b> agrees that <b>he intends to guarantee</b> that there will be sufficient loaves, <b>and they disagree with regard to</b> whether <b>service vessels consecrate</b> the appropriate measure <b>without</b> the <b>intention</b> of the one bringing the offering. One <b>Sage,</b> Ḥizkiyya, <b>holds</b> that <b>service vessels consecrate</b> items <b>without intention.</b> Accordingly, the knife that slaughters the thanks offering and consecrates its accompanying loaves consecrates forty of the eighty. <b>And</b> one <b>Sage,</b> Rabbi Yoḥanan, <b>holds</b> that <b>service vessels do not consecrate</b> items <b>without intention.</b>
+
+### Part 18
+<b>Rav Pappa</b> offered another explanation of the dispute and <b>said: Everyone</b> agrees that <b>service vessels consecrate</b> items <b>without intention, and here they disagree with regard to</b> whether this is also the <i>halakha</i> with regard to the slaughtering <b>knife.</b> One <b>Sage,</b> Ḥizkiyya, <b>holds</b> that <b>the knife consecrates</b> items <b>as a service vessel</b> does. <b>And</b> one <b>Sage,</b> Rabbi Yoḥanan, <b>holds</b> that <b>since the knife has no inside, it does not consecrate</b> items <b>as a service vessel</b> does.
+
+### Part 19
+<b>And there are</b> those <b>who say</b> that <b>Rav Pappa said: Everyone</b> agrees that <b>service vessels consecrate</b> items <b>only with intention, and here they disagree with regard to the</b> ability of the slaughtering <b>knife</b> to consecrate without intention. One <b>Sage,</b> Ḥizkiyya, <b>holds</b> that the power of <b>the knife</b> to consecrate items <b>is stronger than</b> that of other <b>service vessels, as even though it has no inside it consecrates</b> items, and therefore it also consecrates items without intention. <b>And</b> one <b>Sage,</b> Rabbi Yoḥanan, <b>holds</b> that the power of <b>the knife</b> to consecrate items <b>is not stronger than</b> that of other <b>service vessels,</b> and like all service vessels, it does not consecrate items without intention.
+
+### Part 20
+<strong>MISHNA:</strong> If one <b>slaughtered</b> the thanks offering with the intent to partake of it or to burn the sacrificial portions <b>beyond its</b> designated <b>time or outside its</b> designated <b>area,</b> and the offering was rendered <i>piggul</i> or was disqualified, respectively, <b>the loaves were consecrated</b> and either rendered <i>piggul</i> or disqualified. If one <b>slaughtered</b> the thanks offering <b>and it was discovered</b> that it was <b>an animal with a wound that would have caused it to die within twelve months [<i>tereifa</i>], the loaves were not consecrated,</b> as the cause of the animal’s disqualification preceded its slaughter.
+
+### Part 21
+If one <b>slaughtered</b> the thanks offering <b>and it was discovered</b> that it is <b>a blemished</b> animal that may not be sacrificed <i>ab initio</i> but if it ascended the altar it may be sacrificed, <b>Rabbi Eliezer says:</b> He has <b>consecrated</b> the loaves, since if the offering ascends the altar it is sacrificed. <b>And the Rabbis say:</b> He has <b>not consecrated</b> the loaves, since it may not be sacrificed <i>ab initio</i>.
+
+### Part 22
+If one <b>slaughtered</b> the thanks offering <b>not for its sake</b> but for the sake of another offering, <b>and likewise,</b> if one slaughtered <b>the ram of inauguration</b> not for its sake, <b>and likewise,</b> if one <b>slaughtered the</b> communal peace offering of <b>two sheep</b> that accompany the two loaves on <b><i>Shavuot</i> not for their sake, the loaves were not consecrated.</b>
+
+### Part 23
+<strong>GEMARA:</strong> The mishna teaches that if one slaughtered the thanks offering with the intent to partake of it beyond its designated time or outside its designated area, the loaves become consecrated. The mishna also teaches that if the thanks offering was slaughtered and it was discovered that it was a <i>tereifa</i>, the loaves were not consecrated, but if it was discovered to have a blemish, Rabbi Eliezer says that the loaves were consecrated, and the Rabbis say that they were not. The Gemara asks: <b>Whose</b> opinion is expressed in <b>the mishna?</b> It is the opinion of <b>Rabbi Meir.</b>
+
+### Part 24
+<b>As it is taught</b> in a <i>baraita</i>: <b>This is the principle: Any</b> instance in <b>which</b> the <b>disqualification</b> of the thanks offering <b>preceded</b> its <b>slaughter, the loaves were not consecrated,</b> and any instance in which <b>its disqualification</b> came into existence <b>after</b> its <b>slaughter, the loaves were consecrated.</b> Therefore, if one <b>slaughtered</b> the thanks offering with the intent to partake of it or to burn the sacrificial portions <b>beyond its</b> designated <b>time or outside its</b> designated <b>area, the loaves were consecrated,</b> as the offering remained fit until after its slaughter. But if one <b>slaughtered</b> the thanks offering <b>and it was discovered</b> that it was <b>a <i>tereifa</i>, the loaves were not consecrated,</b> as the cause of the animal’s disqualification preceded its slaughter.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

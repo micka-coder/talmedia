@@ -1,0 +1,81 @@
+
+### Part 1
+whereas <b>the latter clause</b> uses the term: <b>His misuse, in reference to the ram</b> he brings as <b>a guilt offering.</b>
+
+### Part 2
+The Gemara answers: In <b>the first clause, where</b> he purchased two non-sacred rams with two dinars of consecrated money, the value of the <b>bigger ram is equal to the principal plus its one-fifth</b> that he is obligated to repay for that which he stole. Therefore, the mishna uses the term: <b>His misuse, in reference to</b> repayment for <b>that which he stole.</b> In <b>the latter clause, where</b> he purchased one non-sacred ram with one dinar of consecrated money, the value of the <b>bigger ram is not equal to the principal plus one-fifth.</b> Consequently, the mishna uses the term: <b>His misuse, in reference to</b> the <b>ram</b> he brings as <b>a guilt offering, and he brings</b> together <b>with it</b> payment of <b>one <i>sela</i> and its one-fifth.</b>
+
+### Part 3
+§ <b>Rav Menashya bar Gadda raises a dilemma: What is</b> the <i>halakha</i> <b>with regard to</b> one who misused consecrated property several times until the <b>accumulation of one-fifths</b> that he owes totals two <i>sela</i>: May he bring a guilt offering with that money and thereby <b>achieve atonement?</b>
+
+### Part 4
+The Gemara explains the sides of the dilemma. <b>Do we say: If you say</b> that <b>a person can achieve atonement with an enhancement of consecrated</b> property, e.g., if one initially purchased a ram worth one <i>sela</i> and then its market value increased to two <i>sela</i> while the animal was in his possession, this is <b>because he exerted</b> himself <b>with regard to</b> the animal by caring for it while it was in his possession. <b>But here, where he did not exert</b> himself, but the value accumulated on its own, <b>he cannot achieve atonement.</b>
+
+### Part 5
+<b>Or perhaps</b> we say the opposite: <b>If you say</b> that <b>a person cannot achieve atonement with an enhancement of consecrated</b> property, this is <b>because he did not designate</b> the ram as an offering when it was worth two <i>sela</i>, and its value appreciated on its own. <b>But here,</b> with regard to <b>the accumulation of one-fifths, where he designated</b> the total value as consecrated property, <b>it is</b> possible <b>to say</b> that <b>he can receive atonement</b> by bringing a guilt offering with that money. The Gemara notes <b>that</b> this <b>dilemma</b> itself <b>was raised</b> before the Sages: Can one <b>achieve atonement with an enhancement of consecrated</b> property that occurred while the animal was in his possession, <b>or not?</b>
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from the mishna: With regard to <b>one who designates two <i>sela</i></b> to purchase a ram <b>for a guilt offering and he purchased two rams for a guilt offering with</b> the two <i>sela</i>, if <b>one of them was</b> now <b>worth two <i>sela</i>, he shall sacrifice</b> it <b>for his guilt offering. And the second</b> ram that he purchased with the money that he designated does not become non-sacred. Rather, it <b>shall graze until it becomes blemished; and</b> then <b>it shall be sold, and</b> the <b>money</b> received <b>for it shall be allocated for</b> communal <b>gift</b> offerings.
+
+### Part 7
+The Gemara explains the proof: <b>What, is it not</b> that the mishna is referring to a case <b>where he bought the ram for four</b> dinars, which is equal to one <i>sela</i>, <b>and</b> its value <b>appreciated</b> while in his possession <b>until</b> it was <b>worth eight</b> dinars, or two <i>sela</i>, and the mishna rules he may bring this ram as a guilt offering? <b>And</b> if so, <b>conclude from this</b> mishna that <b>a person can achieve atonement with an enhancement of consecrated</b> property. The Gemara rejects this proof: <b>No; what are we dealing with here?</b> It is with a ram that was worth two <i>sela</i> at the time of purchase, but the <b>shepherd</b> who sold it <b>reduced</b> the price <b>for him.</b>
+
+### Part 8
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i> (<i>Tosefta</i> 4:9): With regard to one who <b>purchased a ram for one <i>sela</i> and he fattened</b> the ram <b>and</b> thereby <b>established</b> its value <b>at two</b> <i>sela</i>, it is <b>valid</b> for sacrifice as a guilt offering. <b>Conclude from this</b> <i>baraita</i> that <b>a person can achieve atonement with an enhancement of consecrated</b> property. The Gemara rejects this proof: <b>No;</b> the case of <b>one who fattened</b> an animal <b>is different, as he lost eight</b> dinars, which is two <i>sela</i>, in expenses for the animal, including the price he paid. But he cannot achieve atonement if the animal’s value appreciated on its own while in his possession.
+
+### Part 9
+The Gemara further suggests: <b>Come</b> and <b>hear</b> a proof from the continuation of the same <i>baraita</i>: If one <b>purchased a ram for one <i>sela</i> and</b> now <b>it has</b> appreciated <b>to</b> the value of <b>two</b> <i>sela</i>, <b>it is valid</b> for sacrifice as a guilt offering. The Gemara explains: <b>Here too,</b> it is referring to a case <b>where one fattened</b> the ram.
+
+### Part 10
+The Gemara raises a difficulty: <b>If so, this is</b> the same case as in <b>the first clause</b> of that <i>baraita</i> and is therefore unnecessary. The Gemara answers: <b>The first clause</b> is dealing with one <b>who purchased</b> a ram <b>for four</b> dinars <b>and he increased</b> its value <b>by</b> spending <b>another four</b> dinars to fatten the animal, which means <b>that he lost eight</b> dinars, which equal two <i>sela</i>, in total expenses on the ram. <b>The latter clause</b> is discussing a case <b>of</b> one <b>who purchased a ram for four</b> dinars <b>and he increased</b> its value <b>by</b> spending <b>another three</b> dinars to fatten it, <b>and</b> then the ram appreciated one more dinar on its own, and is now <b>worth eight</b> dinars.
+
+### Part 11
+The Gemara objects: <b>If so, say the latter clause</b> of that <i>baraita</i>: And in addition <b>he shall pay</b> one <b><i>sela</i></b> to the Temple treasury. Why is this the <i>halakha</i>? <b>Didn’t he lose seven</b> dinars in total expenses on the ram, four dinars for its purchase and three for fattening it, and therefore the ram added only one dinar of value on its own? The Gemara answers: <b>What</b> is the meaning of the statement: <b>He shall pay?</b> The <i>baraita</i> is teaching that he must <b>complete</b> the payment <b>of</b> the <b><i>sela</i>,</b> i.e., by giving one additional dinar.
+
+### Part 12
+The Gemara asks: <b>But if one maintains that a person cannot achieve atonement with an enhancement of consecrated</b> property, <b>what is</b> the significance <b>of</b> the fact <b>that he gives</b> one dinar that is the <b>completion of</b> the payment of the <b><i>sela</i>? We require</b> him to bring <b>a ram that</b> cost him <b>two <i>sela</i>, and there is no</b> such animal here. The Gemara answers: <b>Actually,</b> the <i>tanna</i> of this <i>baraita</i> in the <i>Tosefta</i> <b>holds</b> that <b>a person can achieve atonement with an enhancement of consecrated</b> property.
+
+### Part 13
+The Gemara objects: <b>If so, he</b> should <b>not give</b> the one dinar that is the <b>completion of</b> the payment of one <b><i>sela</i>,</b> as the ram is now worth two <i>sela</i>. The Gemara explains: <b>This is the reason that he must give</b> the one dinar that is <b>the completion of</b> the payment of one <b><i>sela</i>:</b> It is a rabbinic <b>decree, lest</b> people <b>say</b> that <b>a ram</b> worth <b>less than two <i>sela</i> atones</b> as a guilt offering.
+
+### Part 14
+The Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> the question of whether a person can achieve atonement with an enhancement of consecrated property? The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: With regard to a ram that was <b>worth</b> one <b><i>sela</i> at the time</b> that <b>it was designated</b> as a guilt offering, and then its value appreciated until it was <b>worth two <i>sela</i> at the time of atonement,</b> one who sacrificed it has <b>not fulfilled his obligation</b> with that ram. This demonstrates that one cannot achieve atonement with an enhancement of consecrated property.
+
+### Part 15
+<b>Rabbi Elazar,</b> who was apparently unaware of the previously cited <i>baraita</i>, <b>raised</b> the same <b>dilemma: Can a person achieve atonement with an enhancement of consecrated</b> property that occurred while the animal was in his possession, <b>or not? Rabbi Yoḥanan said,</b> in puzzlement: <b>How many years</b> has <b>this</b> Rabbi Elazar <b>grown among us</b> and learned Torah from me, <b>and</b> yet <b>he did not hear this <i>halakha</i> from me.</b>
+
+### Part 16
+The Gemara asks: Should one conclude <b>by inference</b> from this statement <b>that Rabbi Yoḥanan said</b> the <i>halakha</i> with regard to this matter? The Gemara answers: <b>Yes, and he said that</b> <i>halakha</i> <b>with regard to this</b> ruling, <b>as we learned</b> in a mishna (<i>Menaḥot</i> 79b): In the case of the <b>offspring</b> of an animal designated as <b>a thanks offering or</b> an animal that is <b>its substitute, and likewise</b> if <b>one designated</b> an animal as <b>his thanks offering and it was lost and he designated another in its stead,</b> and the first animal was then found, in all three cases, the second animal, i.e., the offspring, the substitute, or the replacement, is sacrificed, but it <b>does not require</b> the bringing of <b>loaves</b> with it.
+
+### Part 17
+<b>And</b> with regard to the offspring of a thanks offering, <b>Rabbi Ḥanina sent</b> a letter from Eretz Yisrael to the Sages in Babylonia containing the following statement <b>in the name of Rabbi Yoḥanan:</b> That mishna <b>taught that the offspring does not require loaves only</b> in a case where they were sacrificed <b>after</b> the owner achieved <b>atonement</b> by sacrificing the mother and sprinkling its blood, since he has thereby fulfilled his obligation, <b>as</b> the <b>offspring does not require</b> the bringing of <b>loaves.</b>
+
+### Part 18
+<b>But</b> if one sacrificed the offspring <b>before</b> he achieved <b>atonement</b> through sacrifice of the mother, then the offspring <b>requires</b> the bringing of <b>loaves,</b> as it is the fulfillment of his obligation to bring a thanks offering. <b>Evidently,</b> Rabbi Yoḥanan <b>holds</b> that a person <b>can achieve atonement with an enhancement of consecrated</b> property, as this offspring of a consecrated animal is considered its enhancement.
+
+### Part 19
+§ <b>Rabbi Elazar raises a dilemma:</b> If consecrated <b>living animals</b> were rendered unfit to be sacrificed, are they permanently <b>disqualified or not? Rabbi Yoḥanan said,</b> in puzzlement: <b>How many years</b> has <b>this</b> Rabbi Elazar <b>grown among us</b> and learned Torah from me, <b>and</b> yet <b>he did not hear this <i>halakha</i> from me.</b>
+
+### Part 20
+The Gemara asks: Should one conclude <b>by inference</b> from this statement <b>that Rabbi Yoḥanan said</b> the <i>halakha</i> with regard to this matter? The Gemara answers: <b>Yes, as Rabbi Yoḥanan says:</b> With regard to <b>an animal</b> that belongs <b>to two partners,</b> if one of them <b>consecrated</b> the <b>half of it</b> that belonged to him, <b>and then acquired its</b> other <b>half</b> from his partner <b>and consecrated it,</b>it is <b>consecrated but it may not be sacrificed. And it renders</b> a non-sacred animal for which it is exchanged consecrated as <b>a substitute, and its substitution is like it,</b> i.e., it too is consecrated but it may not be sacrificed.
+
+### Part 21
+One can <b>conclude from this</b> ruling of Rabbi Yoḥanan <b>three</b> <i>halakhot</i>. <b>Conclude from it</b> that <b>consecrated living animals can be</b> permanently <b>disqualified.</b> When he consecrated only half of the animal it was not fit for sacrifice, and this meant that the animal was permanently disqualified even after it became fully consecrated. <b>And conclude from it</b> that <b>sanctity</b> that inheres in an animal’s <b>value disqualifies</b> another animal, i.e., the substitute. The sanctity is considered inherent in its value because only half of the animal was initially consecrated. <b>And conclude from it</b> that <b>there is disqualification with regard to monetary</b> value, i.e., even an animal that is consecrated only for its monetary value can be disqualified from sacrifice.
+
+### Part 22
+§ <b>Rabbi Elazar raises a dilemma:</b> If the price of <b>lambs depreciated in the world</b> and one cannot find a ram valued at two <i>sela</i>, <b>what is</b> the <i>halakha</i>? The Gemara explains the sides of the dilemma: <b>Do we say</b> that <b>we require</b> an offering that fulfills the condition: <b>“Your choice vows”</b> (Deuteronomy 12:11), <b>and that</b> requirement <b>is</b> fulfilled, as he is bringing the best animal available? <b>Or perhaps we require</b> a guilt offering to be purchased in accordance with the verse: <b>“Silver by shekels”</b> (Leviticus 5:15), i.e., two <i>sela</i>, <b>and</b> that requirement <b>is not</b> fulfilled.
+
+### Part 23
+<b>Rabbi Yoḥanan said: How many years have we grown in the study hall and we have not heard this <i>halakha</i>.</b> The Gemara asks: <b>And</b> has this <i>halakha</i> <b>not</b> been heard? <b>But doesn’t Rabbi Yoḥanan say</b> that <b>Rabbi Shimon ben Yoḥai says: For what</b> reason <b>did the Torah not provide a fixed</b> value for offerings brought by <b>those lacking atonement,</b> who must bring an offering of purification for them to be permitted to eat consecrated meat, e.g., a <i>zav</i> and a leper? It is because the price of <b>lambs might depreciate</b> below the Torah’s fixed value <b>and they would have no remedy to eat sacrificial</b> food. This statement indicates that one may not bring a ram that is worth less than two <i>sela</i> for a guilt offering, as the Torah fixed its value. The Gemara answers: <b>Say</b> that Rabbi Yoḥanan said: How many years <b>have we not taught this <i>halakha</i></b> in the study hall.
+
+### Part 24
+The Gemara raises a difficulty: <b>But didn’t Rabbi Zeira bar Adda review his studies before</b> Rabbi Yoḥanan <b>every thirty days,</b> which indicates that the statements of Rabbi Yoḥanan were repeatedly studied? The Gemara answers: <b>Say</b> that Rabbi Yoḥanan said that <b>this <i>halakha</i> was not asked from us in the study hall.</b>
+
+### Part 25
+The Gemara discusses <b>the</b> matter <b>itself: Rabbi Yoḥanan says in the name of Rabbi Shimon ben Yoḥai: For what</b> reason <b>did the Torah not provide a fixed</b> value for offerings brought by <b>those lacking atonement?</b> It is because the price of <b>lambs might depreciate</b> below the Torah’s fixed value <b>and they would have no remedy to eat sacrificial</b> food.
+
+### Part 26
+<b>Abaye objects to this</b> statement: <b>If that is so, let a fixed</b> value <b>be provided for a sin offering</b> brought for eating prohibited <b>fat,</b> i.e., a regular sin offering, <b>as it is brought for atonement and it is not</b> brought <b>to permit consumption of sacrificial</b> food. Similarly, <b>Rava objects to this</b> statement: <b>If that is so, let there be a fixed</b> value in the Torah <b>for a guilt offering</b> brought by an impure <b>nazirite, as it comes for naught,</b> i.e., it does not come to permit consumption of sacrificial food, which is achieved by his purification rite of the sprinkling from the ashes of the red heifer upon him on the third and seventh days. <b>As Rabbi Yoḥanan says in the name of Rabbi Shimon ben Yoḥai: Nothing comes for naught other than the guilt offering of a nazirite alone.</b> The Gemara notes that this matter is indeed <b>difficult.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

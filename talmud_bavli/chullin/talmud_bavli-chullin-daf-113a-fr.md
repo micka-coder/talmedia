@@ -1,0 +1,63 @@
+
+### Partie 1
+La Gemara objecte : <b>Mais que</b> Rava <b>lui dise</b> la meme decision en citant plutot la declaration apparemment plus pertinente <b>de Shmuel, car Shmuel a dit : Un aliment sale</b> transmet sa saveur <b>comme un aliment bouillant</b>, <b>et un aliment marine</b> <b>est</b> aussi absorbant <b>qu'un aliment cuit</b>. En clair, la viande casher a absorbe la saveur de la viande de la <i>tereifa</i> comme elle l'aurait fait si elles avaient ete cuites ensemble.
+
+### Partie 2
+La Gemara explique : <b>Si</b> Rava avait base sa decision uniquement <b>sur la declaration de Shmuel</b>, <b>je dirais</b> en reponse : <b>Cette declaration</b> ne s'applique qu'a l'absorption du <b>sang de</b> la viande, <b>mais</b> la viande casher n'est <b>pas</b> interdite si elle absorbe seulement <b>les jus et la sauce de</b> la viande du <i>tereifa</i>. Comme dans ce cas la viande est salee dans un recipient perfore, le sang de chaque morceau s'ecoule et n'est pas absorbe par l'autre, et on pourrait penser que la viande casher reste permise. L'interpretation de Rava du verset du Levitique <b>nous apprend</b> que les jus et la sauce de la viande de la <i>tereifa</i> doivent egalement etre pris en compte.
+
+### Partie 3
+La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Un poisson casher que l'on a sale</b> en meme temps <b>qu'un poisson non casher est autorise. Quoi, ne fait-il pas</b> reference a un cas <b>ou ils ont tous deux ete sales</b> et expulsent des jus ? Cela indique que le poisson casher n'est pas interdit par les jus du poisson non casher, contrairement a ce que dit Rava. La Guemara repond : <b>Non,</b> cela fait reference a un cas <b>ou</b> le poisson <b>kasher</b> etait <b>sale et</b> le poisson <b>non-kasher</b> etait <b>non sale.</b> Comme un poisson non sale n'emet pas de jus, le poisson kasher n'absorbe pas la saveur du poisson non kasher.
+
+### Partie 4
+La Gemara conteste : <b>Mais d'apres</b> le fait <b>que la derniere clause enseigne : Mais si</b> le poisson <b>kasher</b> <b>etait sale et</b> le poisson <b>non-kasher</b> <b>non sale</b> le poisson kasher reste autorise, <b>on peut en deduire que</b> dans <b>la premiere clause, nous avons affaire</b> a un cas <b>ou ils sont tous deux sales.</b> La Gemara repond : Cette derniere clause <b>explique</b> la <i>halakha</i> de la premiere clause. La <i>baraita</i> doit etre lue comme suit : <b>Un poisson casher</b> <b>que l'on a sale</b> ensemble <b>avec un poisson non casher est autorise. Comment cela ? </b> C'est la <i>halakha</i> <b>si</b> le poisson <b>casher</b> <b>etait sale et</b> le poisson <b>non casher</b> etait <b>non sale.</b>
+
+### Partie 5
+La Gemara note : <b>Aussi, il est raisonnable</b> que ce soit le sens de la <i>baraita</i>, <b>car s'il vous vient a l'esprit</b> que <b>la premiere clause</b> fait reference a un cas ou <b>les deux sont sales,</b> on peut pretendre : <b>Maintenant</b> que le <i>baraita</i> a declare que meme si <b>les deux sont sales</b> le poisson casher est <b>permis, est-il</b> <b>necessaire</b> de declarer qu'il en est de meme dans le cas moins problematique ou le <b>casher</b> poisson etait <b>sale et</b> le <b>non casher</b> poisson etait <b>non sale ?</b>
+
+### Partie 6
+La Guemara rejette cette idee : <b>Si c'est du a cette</b> raison, <b>il n'y a pas</b> d'<b>argument concluant. </b> Il est possible que la premiere clause de la <i>baraita</i> fasse effectivement reference a un cas ou les deux poissons sont sales, et que la <i>tanna</i> de la <i>baraita</i> ait neanmoins <b>enseigne cette derniere clause pour eclairer la premiere clause,</b> afin <b>que vous</b> ne deviez <b>pas dire : La premiere clause</b> se refere uniquement a un cas ou le poisson <b>kasher</b> etait <b>sale et</b> le poisson <b>non-kasher</b> etait <b>non sale, mais</b> s'ils etaient <b>tous deux sales,</b> alors le poisson kasher est <b>interdit. </b> Pour ecarter cette hypothese, il <b>enseigne la derniere clause,</b> qui fait explicitement reference a un cas ou le poisson <b>kasher</b> etait <b>sale et</b> le poisson <b>non-kasher</b> <b>non sale, </b> ce qui <b>par inference</b> indique <b>que la premiere clause</b> fait reference a un cas ou ils sont <b>tous deux sales, et</b> enseigne que <b>meme dans ce cas</b> le poisson casher est <b>permis. </b>
+
+### Partie 7
+La Guemara suggere egalement : <b>Venez</b> et <b>entendez</b> la preuve contre la decision de Rava <b>a partir de la derniere clause de cette derniere clause,</b> c'est-a-dire la troisieme clause de cette <i>baraita</i> : <b>Mais si</b> le poisson <b>non casher</b> <b>etait sale et</b> le poisson <b>casher</b> etait <b>non sale,</b> le poisson casher est <b>interdit. </b> On peut en deduire que <b>c'est</b> seulement si le poisson <b>non cachere</b> est <b>sale et</b> le poisson <b>cachere</b> est <b>non sale que</b> le poisson cachere est <b>interdit. Mais</b> s'ils etaient <b>tous deux sales,</b> alors le poisson casher est <b>permis,</b> contrairement a la decision de Rava.
+
+### Partie 8
+La Gemara rejette cette idee : Peut-etre que la derniere section de la <i>baraita</i> utilise ce langage uniquement <b>puisque</b> elle <b>enseigne</b> dans <b>la premiere clause,</b> c'est-a-dire la deuxieme clause : Si le poisson <b>kasher</b> etait <b>sale et</b> le poisson <b>non-kasher</b> <b>non sale,</b> etc. Le <i>baraita</i> a donc <b>enseigne la derniere clause egalement</b> en utilisant un langage parallele : Si le poisson <b>non casher</b> etait <b>sale et</b> le poisson <b>casher</b> <b>non sale,</b> etc. Mais on ne peut rien en deduire en ce qui concerne le cas ou les deux poissons etaient sales.
+
+### Partie 9
+§ La Guemara fournit <b>un moyen mnemotechnique</b> pour se souvenir des trois <i>halakhot</i> enoncees par Shmuel ci-dessous : La maniere dont le sang est expulse de la <b>viande</b> ; la viande salee <b>qui est placee</b> sur un recipient ; un animal dont le cou est brise avant que son ame <b>parte.</b>
+
+### Partie 10
+<b>Shmuel dit : La viande ne peut etre debarrassee de son sang que si on la sale soigneusement et qu'on la rince abondamment</b> dans l'eau. <b>Il a ete declare : Rav Huna dit :</b> Il faut <b>saler et rincer</b> la viande dans l'eau. Et il <b>a ete enseigne dans une <i>baraita</i> :</b> On doit <b>rincer</b> la viande, <b>et la saler</b>, <b>et</b> puis la <b>rincer</b> a nouveau. La Guemara ajoute : <b>Et</b> ces deux jugements <b>ne sont pas en desaccord. Cette</b> decision de Rav Huna se refere a un cas <b>ou l'on</b> a deja <b>lave</b> la viande <b>a l'abattoir</b> avant de la saler, alors que <b>cette</b> <i>baraita</i> se refere a un cas <b>ou l'on n'a pas lave</b> la viande <b>a l'abattoir.</b> La Gemara relate : <b>Rav Dimi de Nehardeâ salait</b> la viande <b>avec du gros sel et</b> puis <b>rasait</b> le sel sur la viande.
+
+### Partie 11
+<b>Rav Mesharshiyya dit : On ne presume pas</b> qu'il y a du <b>sang dans les intestins,</b> et donc ils ne sont pas interdits s'ils n'ont pas ete sales. La Gemara commente : Les Sages ont <b>interprete</b> cette declaration comme faisant reference <b>au rectum, aux intestins et au colon spirale.</b>
+
+### Partie 12
+<b>Shmuel dit : On ne peut placer de la viande salee que sur un recipient perfore,</b> afin que le sang expulse puisse s'ecouler. Mais si le vaisseau n'est pas perfore, alors le sang s'accumulera et sera reabsorbe par la viande.
+
+### Partie 13
+La Gemara relate : <b>Le Rav Sheshet salait</b> la viande <b>un os,</b> c'est-a-dire un morceau, <b>a la fois.</b> La Gemara demande : <b>Quelle est la raison</b> pour laquelle il ne <b>pas</b> saler <b>deux</b> ensemble ? Serait-ce <b>parce que</b> le sang <b>sort de ce</b> morceau <b>et ce</b> morceau <b>l'absorbe</b> ? Si oui, en ce qui concerne <b>une</b> piece <b>aussi,</b> on pourrait pretendre que le sang <b>sort de ce cote</b> de la piece <b>et que ce cote l'absorbe</b>. <b>Au contraire,</b> il n'y a <b>pas de difference</b> entre un morceau et deux morceaux, et on peut saler meme plusieurs morceaux ensemble.
+
+### Partie 14
+<b>Shmuel dit au nom de Rabbi Hiyya : Celui qui brise le cou d'un animal</b> apres son abattage mais <b>avant le depart de son ame alourdit ainsi la viande.</b> La viande expulse le sang au moment de l'abattage, mais si l'on brise le cou de l'animal, l'exces de sang est emprisonne a l'interieur et alourdit la viande. <b>Et</b> par cette action <b>il vole les gens,</b> car <b>il fait absorber le sang dans les </b> <b>limbes de l'animal,</b> et comme il vend la viande au poids, les gens paieront plus cher pour acquerir la meme quantite de viande comestible.
+
+### Partie 15
+<b>Un dilemme a ete souleve devant</b> les Sages : Par rapport a <b>quel</b> cas <b>parle-t-il ?</b> Shmuel veut-il dire qu'il n'y a qu'un seul probleme avec cette pratique, a savoir qu'il <b>rend la viande lourde et vole les gens puisqu'il fait absorber le sang dans les <b>limbes</b> de l'animal ?</b> Si c'est le cas, on peut en deduire que si l'on souhaite garder la viande <b>pour soi,</b> on peut <b>bien</b> le faire, puisqu'il ne vole personne. <b>Ou peut-etre</b> Shmuel fait-il reference a deux interdictions, d'une part, que le sang emprisonne dans la viande la rende interdite a la consommation, et d'autre part, celle du vol. Si tel est le cas, alors meme si l'on veut garder la viande <b>pour soi,</b> elle est <b>egalement interdite.</b> La Gemara conclut : Le dilemme ne sera pas resolu.
+
+### Partie 16
+<strong>MISHNA :</strong> <b>Quelqu'un qui place</b> la viande d'<b>oiseaux avec du fromage sur la table</b> sur laquelle il mange <b>ne viole pas</b> de ce fait <b>une interdiction de la Torah.</b>
+
+### Partie 17
+<strong>GEMARA:</strong> La Gemara suggere : Puisque la mishna mentionne seulement que le fait de placer de la viande d'oiseaux et du lait sur une meme table ne viole pas un interdit de la Torah, on peut <b>en deduire</b> que si on les <b>mange</b> ensemble, on <b>viole</b> un <b>interdit de la Torah. </b> Si tel est le cas, <b>apprenez de</b> la mishna que la <b>viande d'oiseaux dans le lait</b> est interdite <b>par la loi de la Torah,</b> contrairement a l'avis de Rabbi Akiva, qui soutient qu'elle s'applique par la loi rabbinique. La Guemara repond : <b>Disons</b> que la mishna doit etre comprise comme suit : <b>Quelqu'un qui place de la viande d'oiseau avec du fromage sur la table ne</b> par la meme pas <b>en arriver a</b> violer une <b>interdiction de la Torah,</b> puisque manger les deux ensemble est une interdiction rabbinique, comme le soutient Rabbi Akiva.
+
+### Partie 18
+<strong>MISHNA :</strong> Il est <b>interdit de cuire la viande d'un animal casher dans le lait de</b> tout <b>animal casher,</b> pas seulement le lait de sa mere, <b>et</b> tirer un <b>benefice</b> de ce melange est <b>interdit. </b> Il est <b>permis de cuire la viande d'un animal casher dans le lait d'un animal non casher,</b> ou <b>la viande d'un animal non casher dans le lait d'un animal casher, et</b> tirer <b>un benefice</b> de ce melange est <b>permis. Rabbi Akiva dit :</b> Cuire la viande d'un <b>animal non domestique ou d'un oiseau</b> dans du lait n'est <b>pas</b> interdit <b>par la loi de la Torah, comme il est dit : "Tu ne feras pas cuire un chevreau dans le lait de sa mere"</b> (Exode 23:19, 34:26 ; Deuteronome 14:21) <b>trois fois.</b> La repetition du mot "chevreau" trois fois <b>exclut un animal non domestique, un oiseau et un animal non casher.</b>
+
+### Partie 19
+<b>Rabbi Yosei HaGelili dit</b> que <b>il est indique : "Tu ne mangeras pas de carcasse d'animal"</b> (Deuteronome 14:21), <b>et</b> dans le meme verset <b>il est indique : "Tu ne feras pas cuire un chevreau dans le lait de sa mere."</b> Cela indique que la viande d'un animal <b>qui</b> est sujette a etre <b>interdite en raison</b> de l'interdiction de manger <b>une carcasse non abattue</b> est <b>interdite</b> pour celui <b>qui la fait cuire dans du lait. </b> Par consequent, en ce qui concerne la viande des <b>oiseaux, qui</b> est sujette a etre <b>interdite en raison de</b> l'interdiction de manger <b>une carcasse non abattue,</b> on <b>pourrait</b> avoir pense qu'il <b>serait interdit de la cuire</b> <b>dans du lait.</b> Par consequent, <b>le verset dit : "Dans le lait de sa mere", excluant un oiseau, qui n'a pas de lait maternel.</b>
+
+### Partie 20
+<strong>GEMARA:</strong> La Gemara demande : <b>D'ou viennent ces questions</b> ? <b>Rabbi Elazar dit : Le verset dit : "Et Juda envoya le chevreau"</b> (Genèse 38:20).
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

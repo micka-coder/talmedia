@@ -1,0 +1,48 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>Five items in the burnt offering</b> and the accompanying meal offering and libation <b>join together</b> to constitute the one <i>peruta</i> measure with regard to liability for misuse, and the olive-bulk measure with regard to liability for <i>piggul</i>, <i>notar</i>, and partaking of sacrificial foods while ritually impure. They are: <b>The flesh; the fat</b> of the burnt offering that is sacrificed on the altar; <b>the fine flour</b> of the accompanying meal offering; <b>the wine</b> of the accompanying libation; <b>and the oil</b> of the accompanying meal offering. <b>And there are six</b> items <b>in the thanks offering</b> that join together: <b>The flesh, the fat, the fine flour, the wine, the oil, and the loaves</b> accompanying the thanks offering.
+
+### Part 2
+<strong>GEMARA:</strong> The mishna teaches that five items in the burnt offering [<i>ba’ola</i>] join together. <b>Rav Huna taught Rava</b> the mishna as follows: <b>Five items in the world [<i>ba’olam</i>] join together.</b> Rava <b>said to</b> Rav Huna: <b>Did you say: In the world,</b> i.e., that there are only five items in the world of offerings that join together? <b>But isn’t it taught</b> in the mishna <b>with regard to a thanks offering</b> that <b>there are six</b> items <b>in the thanks offering</b> that join together: <b>The flesh, the fat, the fine flour, the wine, the oil, and the loaves</b> accompanying the <b>thanks offering?</b> Rav Huna <b>said to</b> Rava: One should <b>teach</b> in the mishna: Five items <b>in the burnt offering [<i>ba’ola</i>]</b> join together, not: Five items in the world.
+
+### Part 3
+§ The mishna teaches that the flesh and the fat join together. The Gemara notes that <b>we</b> already <b>learned this, as the Sages taught</b> explicitly in a <i>baraita</i> (<i>Tosefta</i> 1:28): The meat of <b>burnt offerings and</b> their <b>sacrificial portions join together to</b> constitute the amount of <b>an olive-bulk</b> that renders one liable <b>for sacrificing them outside</b> the courtyard, <b>and to render</b> one <b>liable for</b> eating <b>them due to <i>piggul</i>, <i>notar</i>, and</b> partaking of them while <b>ritually impure.</b>
+
+### Part 4
+The Gemara notes that the <i>baraita</i> <b>teaches</b> that <b>with regard to a burnt offering, yes,</b> this <i>halakha</i> applies, whereas <b>with regard to a peace offering,</b> it does <b>not</b> apply. The Gemara raises a difficulty: <b>Granted, with regard to sacrificing them outside</b> the courtyard, it stands to reason that in the case of <b>a burnt offering, which is</b> entirely <b>consumed</b> upon the altar, everything <b>joins together,</b> whereas with regard to <b>peace offerings,</b> whose meat is not burned on the altar, the meat and sacrificial portions do <b>not join together. But with regard to rendering</b> one <b>liable</b> for <b><i>piggul</i>, and <i>notar</i>, and</b> partaking of <b>them</b> while <b>ritually impure,</b> in the case of <b>a peace offering</b> as well, <b>why</b> is he <b>not rendered liable?</b>
+
+### Part 5
+The Gemara elaborates: <b>But didn’t we learn</b> in the mishna below: <b>All</b> the pieces of sacrificial meat that are <b><i>piggul</i> join together with one another</b> to constitute the olive-bulk measure for liability, <b>and all</b> pieces of sacrificial meat that are <b><i>notar</i> join together with one another</b> to constitute the olive-bulk measure for liability? The mishna indicates that this is the <i>halakha</i> with regard to all types of offerings.
+
+### Part 6
+The Gemara answers: <b>Rather, say</b> that the <i>baraita</i> should read as follows: The meat of <b>a burnt offering and its sacrificial portions join together to</b> constitute <b>an olive-bulk</b> in order <b>to</b> permit one to <b>sprinkle the blood for them.</b> If the meat of the burnt offering was lost after it was slaughtered and only an olive-bulk of the meat and sacrificial portions remain, they combine to permit the sprinkling of the blood.
+
+### Part 7
+The Gemara further explains: <b>And since they join together</b> to constitute an olive-bulk <b>with regard to sprinkling the blood,</b> once that blood has been sprinkled they join together to constitute the minimum amount of an olive-bulk to render one <b>liable</b> for eating them due to <i>piggul</i>, <i>notar</i>, and partaking of them while ritually impure. By contrast, in the case of a peace offering, the meat and the sacrificial portions do not join together for sprinkling, and as the sprinkling is not valid, they do not subsequently join together to constitute an olive-bulk to render one liable for eating them due to <i>piggul</i>, <i>notar</i>, and partaking of them while ritually impure.
+
+### Part 8
+The Gemara adds: <b>And who is</b> the <i>tanna</i> <b>who teaches</b> this <i>baraita</i>? <b>It is Rabbi Yehoshua, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Yehoshua says:</b> With regard to <b>all the offerings in the Torah from which there remains an olive-bulk of meat</b> that is fit to be eaten, <b>or an olive-bulk of fat</b> that is fit to be sacrificed on the altar, <b>one sprinkles the blood.</b> If all that remains is <b>half an olive-bulk of meat and half an olive-bulk of fat, one may not sprinkle the blood.</b> Since the meat and fat serve different functions, as the fat is burned on the altar while the meat is eaten by the priests, they do not combine to form the minimum amount that must remain in order to sprinkle the blood.
+
+### Part 9
+<b>But with regard to a burnt offering, even</b> if all that was left was <b>half an olive-bulk of meat and half an olive-bulk of fat, one sprinkles the blood, because it is all consumed</b> upon the altar. Since both the meat and the fat are sacrificed on the altar, they combine. <b>And in</b> the case of <b>a meal offering, even</b> if <b>all of it remains, one may not sprinkle</b> the blood.
+
+### Part 10
+With regard to the last statement, the Gemara asks: <b>What is the relevance of a meal offering</b> to this <i>baraita</i>? A meal offering does not require blood to be sprinkled on the altar. <b>Rav Pappa said:</b> The meal offering under discussion is <b>the meal offering</b> brought with the <b>libations</b> that accompany animal offerings. The <i>baraita</i> is teaching that if none of the meat of the animal remains, even if all of the accompanying meal offering is intact, the blood of the animal may not be sprinkled.
+
+### Part 11
+<strong>MISHNA:</strong> Teruma<b>, and <i>teruma</i> of the tithe, and <i>teruma</i> of the tithe of doubtfully tithed produce [<i>demai</i>], and <i>ḥalla</i>, and first fruits</b> all <b>join together with one another</b> to constitute the requisite measure <b>to prohibit</b> a mixture with non-sacred produce, <b>and</b> to form the requisite measure of an olive-bulk that serves <b>to</b> render one <b>obligated for their</b> consumption in payment <b>of</b> an additional <b>one-fifth</b> over and above the principal. <b>All</b> the pieces of sacrificial meat that are <b><i>piggul</i> join together with one another</b> to constitute the olive-bulk measure for liability, <b>and all</b> sacrificial meat that is <b><i>notar</i> joins together with one another</b> to constitute the olive-bulk measure for liability.
+
+### Part 12
+<strong>GEMARA:</strong> The Gemara asks: <b>What is the reason</b> that all of the foods listed in the mishna join together? The Gemara answers: The reason is that <b>all of them are called <i>teruma</i></b> in the Torah. The Gemara elaborates: <b>With regard to <i>ḥalla</i> it is written: “Of the first of your dough you shall set apart <i>ḥalla</i> for a <i>teruma</i>;</b> like <i>teruma</i> of the threshing floor, so shall you set it apart” (Numbers 15:20).
+
+### Part 13
+<b>With regard to first fruits, they are also called <i>teruma</i>, as it is taught</b> in a <i>baraita</i> that discusses foods that may not be eaten outside Jerusalem: The verse states: “You cannot eat within your gates the tithe of your grain or of your wine or of your oil or the firstlings of your herd or of your flock, or any of your vows that you vow, or your freewill offerings, or the offering of your hand” (Deuteronomy 12:17). <b>“And the offering of your hand”; these are first fruits. But</b> with regard to <b>the other</b> items listed in the mishna, i.e., <i>teruma</i>, <i>teruma</i> of the tithe, and <i>teruma</i> of the tithe of <i>demai</i>, it <b>is not necessary</b> to explain why they join together or to cite a verse, as it is clear that they are called <i>teruma</i>.
+
+### Part 14
+<strong>MISHNA:</strong> <b>All animal carcasses,</b> whose consumption is prohibited and which transmit impurity through contact with them and through carrying, <b>join together with one another</b> to constitute the requisite olive-bulk measure. <b>And all repugnant creatures join together with one another</b> to constitute the requisite olive-bulk measure to render one who consumes it liable to receive lashes. The eight creeping animals enumerated in the Torah join together to constitute the measure of a lentil-bulk, which transmits impurity through contact, and to render one who consumes it liable to receive lashes.
+
+### Part 15
+<strong>GEMARA:</strong> The mishna teaches that all animal carcasses, whose consumption is prohibited and which transmit impurity through contact and through carrying, join together to constitute the requisite olive-bulk measure. <b>Rav says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

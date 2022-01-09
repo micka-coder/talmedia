@@ -1,0 +1,75 @@
+
+### Part 1
+<b>But</b> according to the opinion of Rabba bar Avuh, <b>why</b> can the seller automatically give the purchaser the fallen house or the dead slave? <b>Let him see which</b> house <b>fell,</b> or <b>which</b> slave <b>died,</b> as according to Rabba bar Avuh, the sale should apply to the house or slave that was the most valuable at the time of the sale.
+
+### Part 2
+The Gemara answers: <b>Are you saying</b> that the statement of Rabba bar Avuh applies in the case of <b>a purchaser? A purchaser is different, as</b> there is a principle in the <i>halakhot</i> of commerce that in a case involving a dispute between the seller and the purchaser, <b>the owner of the document</b> of sale, i.e., the purchaser, <b>is at a disadvantage,</b> as a document is always interpreted as narrowly as possible. Therefore, the seller can claim that he has sold the buyer the fallen house or the dead slave.
+
+### Part 3
+The Gemara adds: <b>Now that you have arrived at this</b> explanation, the objection posed earlier to the statement of Rabba bar Avuh from the statement of Ulla can be rejected easily. Ulla said that if one says to another: I am selling you a house from among my houses, since he did not specify which house he is selling, he can show him an attic [<i>aliyya</i>]. Although this was explained above as referring not to a loft but to the best [<i>me’ula</i>] of his houses, now <b>you</b> may <b>even say</b> that it is referring to <b>a loft, which is the worst</b> of his houses, due to the principle that <b>the owner of the document is at a disadvantage.</b>
+
+### Part 4
+<strong>MISHNA:</strong> One who says: <b>It</b> is incumbent <b>upon me</b> to bring <b>a burnt offering, must sacrifice it in the Temple</b> in Jerusalem. <b>And if he sacrificed it in the temple of Onias</b> in Egypt, <b>he has not fulfilled</b> his obligation. One who says: It is incumbent <b>upon me</b> to bring <b>a burnt offering that I will sacrifice in the temple of Onias, must sacrifice it in the Temple</b> in Jerusalem, <b>but if he sacrificed it in the temple of Onias, he has fulfilled</b> his obligation. <b>Rabbi Shimon says</b> that if one says: It is incumbent upon me to bring a burnt offering that I will sacrifice in the temple of Onias, <b>it is not</b> consecrated as <b>a burnt offering;</b> such a statement does not consecrate the animal at all.
+
+### Part 5
+If one says: <b>I am hereby a nazirite,</b> then when his term of naziriteship is completed <b>he must shave</b> the hair of his head and bring the requisite offerings <b>in the Temple</b> in Jerusalem; <b>and if he shaved in the temple of Onias, he has not fulfilled</b> his obligation. If one says: <b>I am hereby a nazirite</b> provided <b>that I will shave in the temple of Onias, he must shave in the Temple</b> in Jerusalem; <b>but if he shaved in the temple of Onias, he has fulfilled</b> his obligation. <b>Rabbi Shimon says</b> that one who says: I am hereby a nazirite provided that I will shave in the temple of Onias, <b>is not a nazirite</b> at all, as his vow does not take effect.
+
+### Part 6
+<strong>GEMARA:</strong> The mishna teaches that one who says: It is incumbent upon me to bring a burnt offering that I will sacrifice in the temple of Onias, and sacrifices it in the temple of Onias, has fulfilled his obligation. The Gemara asks: How has he <b>fulfilled</b> his obligation? By sacrificing it in the temple of Onias, <b>hasn’t he</b> merely <b>killed it</b> without sacrificing it properly?
+
+### Part 7
+<b>Rav Hamnuna says:</b> The mishna does not mean that he has fulfilled his vow to bring an offering. Rather, <b>he is rendered like one who says: It</b> is incumbent <b>upon me</b> to bring <b>a burnt offering on the condition that I will not be responsible for it</b> if I kill it beforehand. When the mishna says that he has fulfilled his obligation it simply means that if the animal he consecrated is no longer alive, he does not have to bring another animal in its place.
+
+### Part 8
+<b>Rava said to</b> Rav Hamnuna: <b>If that is so,</b> what about <b>the latter clause</b> of the mishna, <b>which teaches</b> that if one says: <b>I am hereby a nazirite</b> provided <b>that I will shave in the temple of Onias, he must shave in the Temple</b> in Jerusalem, <b>but if he shaved in the temple of Onias, he has fulfilled</b> his obligation? In this case do you <b>also</b> maintain <b>that he is rendered like one who says: I am hereby a nazirite on the condition that I will not be responsible for</b> bringing <b>its offerings</b> if I kill them beforehand? Such a condition cannot exempt <b>a nazirite</b> from bringing his offerings, because <b>as long as he does not bring his offerings, he is not fit</b> to conclude his term of naziriteship and is still bound by all of the restrictions of a nazirite.
+
+### Part 9
+<b>Rather, Rava said</b> there is a different explanation: The animal was never consecrated at all, as <b>this person intended</b> merely <b>to</b> bring the animal as <b>a gift [<i>doron</i>],</b> but not to consecrate it as an offering. He presumably lives closer to the temple of Onias than to the Temple in Jerusalem, and must have <b>said</b> to himself: <b>If it is sufficient</b> to sacrifice this animal <b>in the temple of Onias, I</b> am prepared to <b>exert</b> myself and bring it. But if it is necessary to do <b>more</b> than that, i.e., to bring it to Jerusalem, <b>I am not able to afflict myself.</b> The mishna teaches that although the person never intended to bring the offering to Jerusalem, ideally, he should sacrifice the animal properly, in the Temple in Jerusalem. If he did not bring it there, but sacrificed it in the temple of Onias, he has fulfilled his obligation, and is not required to bring any other offering in its place.
+
+### Part 10
+This is the explanation of the latter clause of the mishna <b>as well:</b> If one said that he would be <b>a nazirite</b> provided that he will shave in the temple of Onias, <b>this man</b> did not intend to accept upon himself the halakhic status of naziriteship. Rather, he merely <b>intends to practice abstinence</b> by not drinking wine, along with observing the other restrictions of a nazirite. Therefore, <b>he said</b> to himself: <b>If it is sufficient</b> to shave <b>in the temple of Onias, I</b> am prepared to <b>exert</b> myself and do so. But if it is necessary to do <b>more</b> than that, i.e., to go to Jerusalem to shave and bring the required offerings, <b>I am not able to afflict myself.</b> The mishna teaches that ideally, he should go to the Temple in Jerusalem to shave and bring all his offerings. If he shaved and brought his offerings in the temple of Onias, he has fulfilled his vow and has no further obligation.
+
+### Part 11
+<b>And Rav Hamnuna</b> could have <b>said to you</b> in response to Rava’s challenge: With regard to the case of one who vowed to become <b>a nazirite</b> on the condition that he would shave and bring his offerings in the temple of Onias, the interpretation of the mishna is <b>as you said.</b> But with regard to one who vows to bring <b>a burnt offering</b> in the temple of Onias, his intent is as I explained, and it is as if <b>he says:</b> It is incumbent <b>upon me</b> to bring <b>a burnt offering on the condition that I will not be responsible for it</b> if I kill it beforehand.
+
+### Part 12
+<b>And Rabbi Yoḥanan also</b> holds in accordance with <b>that which Rav Hamnuna</b> said, <b>as Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said</b> that if one says: <b>It</b> is incumbent <b>upon me</b> to bring <b>a burnt offering</b> on the condition <b>that I will sacrifice it in the temple of Onias, and he sacrificed it in Eretz Yisrael</b> but not in the Temple, <b>he has fulfilled</b> his obligation, <b>but</b> his actions <b>are</b> also <b>punishable by excision from the World-to-Come [<i>karet</i>]</b> because he sacrificed an offering outside of the Temple. This is in accordance with the opinion of Rav Hamnuna that the animal is consecrated.
+
+### Part 13
+<b>This</b> explanation of Rav Hamnuna and Rabbi Yoḥanan <b>is also taught</b> in a <i>baraita</i>: If one says: <b>It</b> is incumbent <b>upon me</b> to bring <b>a burnt offering</b> on the condition <b>that I will sacrifice it in the wilderness</b> of Sinai, thinking that the wilderness of Sinai still has sanctity since the Tabernacle had been located there, <b>and he sacrificed it on</b> the east <b>bank of the Jordan, he has fulfilled</b> his obligation, <b>but</b> his actions <b>are</b> also <b>punishable by <i>karet</i></b> because he sacrificed an offering outside of the Temple.
+
+### Part 14
+<strong>MISHNA:</strong> <b>The priests who served in the temple of Onias may not serve in the Temple in Jerusalem; and needless to say,</b> if they served <b>for something else,</b> a euphemism for idolatry, they are disqualified from service in the Temple. <b>As it is stated: “Nevertheless the priests of the private altars did not come up to the altar of the Lord in Jerusalem, but they did eat <i>matza</i> among their brethren”</b> (II Kings 23:9). The halakhic status of <b>these</b> priests is <b>like</b> that of <b>blemished</b> priests in that <b>they receive a share</b> in the distribution of the meat of the offerings <b>and partake</b> of that meat, <b>but they do not sacrifice</b> offerings or perform any of the sacrificial rites.
+
+### Part 15
+<strong>GEMARA:</strong> <b>Rav Yehuda says:</b> With regard to <b>a priest who slaughtered</b> an offering <b>for idol worship</b> and who subsequently repented and came to the Temple in Jerusalem to serve, <b>his offering is</b> acceptable and considered to be <b>an aroma pleasing</b> to the Lord.
+
+### Part 16
+<b>Rav Yitzḥak bar Avdimi says: What is the verse</b> from which it is derived? The verse states: <b>“Because they served them before their idols and became a stumbling block of iniquity unto the house of Israel, therefore I have lifted up My hand against them, says the Lord God, and they shall bear their iniquity”</b> (Ezekiel 44:12). <b>And it is written afterward: “And they shall not come near to Me, to serve Me in the priestly role”</b> (Ezekiel 44:13). This indicates that <b>if</b> a priest <b>performed a service</b> for an idol that is considered a sacrificial rite in the Temple, he <b>is</b> disqualified from serving in the Temple, but the <b>slaughter</b> of an offering <b>is not</b> considered <b>service,</b> as it is not considered a sacrificial rite in the Temple and can be performed in the Temple even by a non-priest.
+
+### Part 17
+<b>It was stated:</b> If a priest <b>unwittingly</b> performed the <b>sprinkling</b> of the blood of an idolatrous offering and then repented and came to serve in the Temple, <b>Rav Naḥman says</b> that <b>his offering</b> is accepted and <b>is an aroma pleasing</b> to the Lord. <b>Rav Sheshet says: His offering is not a pleasing aroma</b> to the Lord, as he is not fit to serve in the Temple.
+
+### Part 18
+<b>Rav Sheshet said: From where do I say</b> that if a priest sprinkled blood unwittingly for idol worship he cannot serve in the Temple? <b>As it is written: “And they became a stumbling block of iniquity unto the house of Israel.” What, is it not</b> referring to one who served in idol worship <b>either</b> as <b>a stumbling block or</b> as <b>an iniquity?</b> Accordingly, neither may perform the service in the Temple. <b>And</b> the term <b>“stumbling block”</b> is a reference to one who sins <b>unwittingly, and</b> the term <b>“iniquity”</b> is a reference to <b>an intentional</b> sinner. Therefore, even one who unwittingly served in idol worship may not subsequently serve in the Temple.
+
+### Part 19
+<b>And Rav Naḥman</b> interprets the verse to mean <b>a stumbling block of iniquity,</b> i.e., only one who serves in idol worship intentionally is disqualified from serving in the Temple, but not one who serves in idol worship unwittingly.
+
+### Part 20
+<b>Rav Naḥman said: From where do I say</b> that if a priest sprinkled the blood of an idolatrous offering unwittingly his subsequent offering in the Temple is accepted? <b>As it is taught</b> in a <i>baraita</i>: The verse states with regard to one who unwittingly committed idolatry: “And if one person sin through error, then he shall offer a she-goat in its first year for a sin offering. <b>And the priest shall effect atonement for the soul that errs unwittingly, when he sins unwittingly,</b> before the Lord, to effect atonement for him; and he shall be forgiven” (Numbers 15:27–28). The phrase: “For the soul that errs unwittingly” <b>teaches that a priest</b> who sins unwittingly <b>may receive atonement</b> by sacrificing his sin offering <b>on his own.</b>
+
+### Part 21
+Rav Naḥman clarifies: <b>In what</b> manner did this priest commit idolatry? <b>If we say</b> he sinned <b>through slaughtering</b> an idolatrous offering, <b>why</b> does the verse indicate <b>specifically</b> that a priest who slaughtered an idolatrous offering <b>unwittingly</b> can bring his own sin offering? This is obvious, as <b>even</b> one who did so <b>intentionally</b> may serve in the Temple after repentance. <b>Rather, is it not</b> referring to a priest who committed idolatry <b>by sprinkling</b> the blood of an idolatrous offering? Accordingly, if he did so unwittingly his subsequent service in the Temple is valid, but if he did so intentionally, he is disqualified from serving in the Temple.
+
+### Part 22
+<b>And</b> how does <b>Rav Sheshet</b> interpret that <i>baraita</i>? He could have <b>said to you: Actually,</b> the verse is referring to a case <b>where</b> the priest sinned <b>through slaughtering</b> an idolatrous offering. <b>And</b> although Rav Yehuda said that a priest who slaughtered an idolatrous offering may serve in the Temple after repentance, that statement applies only to one who slaughtered an idolatrous offering unwittingly. But if he did so <b>intentionally,</b> the priest is disqualified from serving in the Temple. Rav Yehuda’s reasoning is that slaughter is not a sacrificial rite in the Temple; but <b>does</b> one who slaughters an idolatrous offering intentionally <b>not become a servant of idol worship?</b>
+
+### Part 23
+<b>And</b> Rav Naḥman and Rav Sheshet <b>follow their</b> respective lines of <b>reasoning, as it was stated</b> that if a priest acted <b>intentionally in</b> the <b>slaughter</b> of an idolatrous offering and subsequently repented, <b>Rav Naḥman says</b> that <b>his offering</b> in the Temple <b>is an aroma pleasing</b> to the Lord, i.e., it is not disqualified, <b>and Rav Sheshet says</b> that <b>his offering</b> in the Temple <b>is not an aroma pleasing</b> to the Lord, i.e., it is disqualified.
+
+### Part 24
+<b>Rav Naḥman says</b> that <b>his offering is an aroma pleasing</b> to the Lord, <b>because he did not perform service</b> for an idol that is considered a sacrificial rite in the Temple. And <b>Rav Sheshet says</b> that <b>his offering is not an aroma pleasing</b> to the Lord,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

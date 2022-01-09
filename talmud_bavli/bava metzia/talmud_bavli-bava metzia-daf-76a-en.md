@@ -1,0 +1,45 @@
+
+### Part 1
+Conversely, <b>if the employer reneges, he is at a disadvantage.</b> These two rulings are in accordance with the principle that <b>whoever changes</b> the terms accepted by both parties <b>is at a disadvantage, and whoever reneges</b> on an agreement <b>is at a disadvantage.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara starts by analyzing the phrase: And they deceived one another. The Gemara comments: The <i>tanna</i> <b>does not teach: They reneged</b> on the agreement <b>with one another,</b> which would indicate that either the employer or the laborers changed their mind. <b>Rather,</b> it states that <b>they deceived one another,</b> which evidently means <b>that the laborers deceived one another.</b> The Gemara therefore inquires: <b>What are the circumstances?</b> The Gemara explains: This is referring to a case where, for example, <b>the employer said to</b> one of the laborers: <b>Go</b> and <b>hire laborers for me, and</b> that laborer <b>went and deceived</b> those other laborers.
+
+### Part 3
+The Gemara again asks: <b>What are the circumstances</b> of this deception? <b>If the employer said to him:</b> Hire for me laborers <b>at four</b> dinars, <b>and he went and told them</b> that they are hired <b>for three</b> dinars, <b>what is the relevance of</b> this <b>grievance?</b> After all, <b>they knew and accepted</b> the conditions of their hire. What grounds for complaint do they have? <b>If the employer said to him</b> to hire laborers <b>for three</b> dinars, <b>and</b> the middleman <b>went and told them</b> it was <b>for four, what are the circumstances? If</b> he <b>told them</b> at the time: The <b>monetary value</b> of your services, i.e., your wage, is incumbent <b>upon me, let</b> that middleman <b>give them</b> the difference <b>from his own</b> pocket.
+
+### Part 4
+This is <b>as it is taught</b> in a <i>baraita</i>: With regard to <b>one who hires a laborer to perform</b> work <b>in his own</b> field, <b>and</b> the employer inadvertently <b>showed</b> the laborer a field <b>belonging to another</b> in which he should work, the employer <b>must give</b> the laborer <b>his full wages; and</b> in addition, the employer <b>goes back and takes from the owner</b> of the field in which he worked the value of <b>the benefit</b> that owner <b>received from</b> the laborer. The employer is entitled to claim from the owner of the field the profit that owner gained from the work, but not the entire wages of the laborer. This indicates that one who says: Your wage is incumbent upon me, must pay the specified sum.
+
+### Part 5
+The Gemara explains: <b>No,</b> it is <b>necessary</b> to state this <i>halakha</i> <b>where</b> the middleman <b>said to them:</b> The obligation to pay <b>your wages</b> is incumbent <b>upon the employer,</b> and it subsequently became apparent that the employer was not willing to pay that much. In this case the laborers have a grievance only against the laborer who hired them.
+
+### Part 6
+The Gemara challenges: <b>But let us see how much laborers are hired for</b> in that place, and the employer should pay them in accordance with the accepted custom. The Gemara answers: <b>No,</b> it is <b>necessary</b> in a place <b>where there are</b> those <b>who hire for four</b> dinars <b>and there are</b> others <b>who hire for three.</b> The reason for their grievance is <b>that</b> the laborers can <b>say to</b> the middleman: <b>Had you not told us</b> that you were hiring us <b>for four</b> dinars, we would have <b>made an effort and</b> found another employer, <b>and we</b> would have <b>hired ourselves</b> out <b>for four</b> dinars. Consequently, you caused us a loss.
+
+### Part 7
+<b>If you wish, say</b> that the mishna is referring even to a place where there is a fixed wage for laborers. But <b>here we are dealing with a homeowner,</b> i.e., one usually not accustomed to labor, who was hired for his services. In order to supplement their earnings, such people will occasionally work for others as well. The reason for their grievance is <b>that</b> these laborers who own fields <b>say to</b> the middleman: <b>Had you not told us</b> that we are hired <b>for four, it would have been</b> too <b>demeaning for us to be hired,</b> as it is not worthwhile to work in the field of another for so little when we have our own plots of land. This is the cause of their grievance.
+
+### Part 8
+<b>If you wish, say</b> that <b>actually, we are dealing with</b> regular <b>laborers,</b> not a homeowner, and the reason for their grievance is <b>that they say to</b> the middleman: <b>Since you spoke to us of four, we made an effort to do higher-quality work for you.</b> The Gemara challenges: <b>And let us see their work.</b> If it is evident that they performed the task more effectively, they deserve to be paid more money. The Gemara responds: This is referring <b>to tilling</b> the land, where the quality of the work is not immediately apparent. The Gemara asks: With regard to <b>tilling as well,</b> doesn’t the employer <b>know</b> what they have done, as he can examine the earth they tilled? The Gemara answers: The laborers dug a ditch <b>that</b> is now <b>filled with water, and</b> therefore the employer <b>does not know</b> exactly what they have accomplished.
+
+### Part 9
+<b>If you wish, say</b> that <b>actually,</b> we are dealing with <b>an employer who said to</b> the middleman: Hire laborers <b>for four, and he went and told them</b> that they were hired <b>for three. And</b> as for <b>that which you said:</b> Why should they have a grievance against him, as <b>they knew and accepted</b> these terms? Although they agreed to those terms, they still have a grievance, <b>as they</b> can <b>say to</b> the one who came to terms with them: <b>Don’t you have</b> respect for the verse: <b>“Do not withhold good from him to whom it is due,</b> when it is in the power of your hand to do it” (Proverbs 3:27)?
+
+### Part 10
+§ After analyzing the circumstances of the case in the mishna, the Gemara observes: It is <b>obvious</b> that <b>if the employer said to</b> someone that he should hire laborers <b>for three</b> dinars, <b>and</b> that person <b>went and said to them</b> that they were hired <b>for four, and they said to him:</b> We agree to be paid <b>as the employer says,</b> in that case it is clear that <b>their minds</b> are <b>on</b> any <b>additional</b> sum the employer might have offered, and they certainly did not intend to accept less than the one with whom they spoke proposed.
+
+### Part 11
+<b>But if the employer said</b> he would hire them <b>for four</b> dinars, <b>and</b> the middleman <b>went and told them</b> that the offer was <b>for three, and they said to him:</b> We agree to be paid <b>as the employer said, what</b> is the <i>halakha</i>? Is it correct to say that the laborers <b>rely on his statement, as they are</b> effectively <b>saying to him: We trust you that the employer said that</b> which you reported in his name? <b>Or perhaps they rely on the employer’s statement,</b> and therefore they are entitled to the higher wages specified by the employer?
+
+### Part 12
+The Gemara suggests: <b>Come</b> and <b>hear</b> a resolution of this dilemma from a <i>halakha</i> concerning a bill of divorce: A woman said to her agent: <b>Bring my bill of divorce for me.</b> Knowing her husband was writing a bill of divorce, she asked the agent to collect the document and transmit it to her. According to the terms of his agency, the wife is divorced only when the document reaches her possession, as he was not appointed as an agent to receive the bill of divorce on her behalf.
+
+### Part 13
+<b>But</b> the agent went and told the husband: <b>Your wife said</b> to me: <b>Receive my bill of divorce for me.</b> This statement indicates that the wife had appointed him to receive the bill of divorce in her stead, as an agent of receipt, which would mean that she is divorced as soon as the agent is given the document. <b>And</b> the husband <b>said: Take it in the manner</b> in which my wife <b>said.</b> With regard to this case, <b>Rav Naḥman says</b> that <b>Rabba bar Avuh says</b> that <b>Rav says: Even</b> when <b>the bill of divorce reaches her possession, she is not divorced.</b>
+
+### Part 14
+One can <b>learn from this</b> that the husband <b>relies on</b> the agent’s <b>statement.</b> Since the husband was under the mistaken impression that he was interacting with an agent of receipt, he did not instruct him to deliver the document to his wife, and therefore the bill of divorce was not transmitted in the proper manner, which is why she is not divorced at all. <b>As, if it enters your mind that</b> the husband <b>relies on her statement, she should at least be divorced when the bill of divorce reaches her possession,</b> in accordance with the terms of an agent for delivery. This shows that the statement of an agent is accepted as a faithful representation of the wishes of the one who appointed him. <b>Rav Ashi said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

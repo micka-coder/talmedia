@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Aussi, s'il vous vient a l'esprit</b> que c'est interdit <b>par la loi de la Torah</b> la mishna ici serait difficile, car <b>des qu'il a abattu</b> l'animal <b>un peu,</b> au tout debut de l'acte d'abattage, <b>il a interdit</b> l'animal, en ce qui concerne le fait de tirer un benefice, comme un animal non sacre abattu dans la cour du Temple. Lorsqu'il abat <b>l'autre partie</b>, elle est deja interdite en ce qui concerne le benefice, ce qui signifie que ce n'est <b>pas</b> un animal appartenant <b>a son proprietaire</b> qu'il <b>abat.</b>
+
+### Partie 2
+<b>Rav Aha, fils de Rava, dit a</b> Rav Havivi : Il est possible d'expliquer la mishna meme selon l'opinion que les ramifications halakhiques de l'abattage sont en vigueur tout au long de l'abattage, et meme si l'on soutient qu'il est interdit par la loi de la Torah de beneficier d'un animal non sacre abattu dans le Temple. Ainsi, <b>Quand</b> le voleur <b>devient-il oblige</b> de payer le quadruple ou le quintuple paiement <b>aussi ?</b> C'est <b>lorsque</b> il effectue <b>cette</b> premiere <b>bite</b> d'abattage au debut, avant que l'animal ne devienne interdit. <b>Rav Ashi a dit a</b> Rav Huna : <b>Ne rejette pas</b> Rav Havivis suggestion avec cette explication. Le verset : "Si un homme vole un bœuf ou un mouton, <b>et l'egorge"</b> (Exode 21:37), indique que pour imposer la responsabilite de payer le quadruple ou le quintuple paiement <b>nous exigeons</b> que le voleur l'ait egorge <b>completement, et</b> apres l'avoir egorge juste un peu <b>il n'y a pas encore</b> d'egorgement complet.
+
+### Partie 3
+Rav Huna dit a Rav Ashi : <b>Mais</b> si tu as raison, la mishna <b>est difficile.</b> Rav Ashi <b>dit a</b> Rav Huna : <b>C'est ce que Rav Gamda a dit au nom de Rava : Quand</b> la mishna indique-t-elle que le voleur <b>est oblige</b> de payer le paiement quadruple ou quintuple ? C'est dans un cas <b>ou</b> le voleur a <b>abattu une partie</b> des <b><i>simanim</i> a l'exterieur</b> du Temple, <b>et a fini</b> de les abattre a l'interieur</b> du Temple. Par consequent, l'animal est devenu interdit en ce qui concerne l'obtention d'un benefice uniquement au stade final de l'abattage, concomitant a l'obligation de payer le paiement quadruple ou quintuple.
+
+### Partie 4
+<strong>MISHNA : </strong>Si l'on <b>stole</b> un bœuf ou un mouton, comme etabli <b>sur la base</b> de la deposition de <b>deux</b> temoins, <b>et qu'il</b> a ensuite <b>abattu</b> l'animal <b>ou l'a vendu</b>, egalement <b>sur la base</b> des temoignages des memes temoins, <b>et</b> ces temoins <b>ont ete reconnus</b> comme etant des temoins <b>conspirateurs</b>, ces temoins <b>paient tout,</b> c'est-a-dire. e., non seulement le montant principal mais aussi le paiement quadruple ou quintuple. Ceci est conforme au decret de la Torah concernant les temoins conspirateurs : "Tu lui feras ce qu"?il avait conspiré A faire A son frère" (Deutéromoine 19:19). Puisque ces temoins ont tente d'obliger le voleur presume a payer le paiement quadruple ou quintuple, ils doivent eux-memes payer ce montant total.
+
+### Partie 5
+En ce qui concerne celui qui a <b>vole</b> un bœuf ou un mouton, comme etabli <b>sur la base</b> du temoignage de <b>deux</b> temoins, <b>et il</b> a ensuite <b>abattu</b> l'animal <b>ou l'a vendu</b>, <b>sur la base</b> du temoignage de <b>deux autres</b> temoins, si a la fois <b>ces</b> temoins <b>et ces</b> temoins <b>sont reconnus</b> comme etant des temoins <b>conspirateurs</b>, <b>le premier</b> groupe de temoins, qui a temoigne du vol de l'animal, <b>paye</b> au pretendu voleur le <b>double paiement,</b> qui est ce qu'ils avaient conspire pour lui faire payer. <b>Et la derniere</b> serie de temoins, qui ont atteste de l'abattage ou de la vente de l'animal, <b>payent</b> au voleur presume un double paiement pour un mouton ou <b>un triple paiement</b> pour un bœuf, ce qu'ils avaient conspire pour lui faire payer en plus du double paiement.
+
+### Partie 6
+Si seulement les temoins de la <b>derniere</b> serie <b>s'averaient</b> etre des temoins <b>conspirateurs</b>, alors que le temoignage sur le vol reste intact, le voleur <b>paye</b> le <b>double paiement</b> au proprietaire de l'animal <b>et</b> la deuxieme serie de temoins <b>payent</b> au voleur presume le double ou le <b>triple paiement,</b> le montant en sus du double paiement, qui est ce qu'ils avaient conspire pour lui faire payer.
+
+### Partie 7
+Si un seul <b>un</b> individu <b>de la derniere</b> serie de temoins s'est revele etre <b>un temoin conspirateur</b>, <b>le second temoignage</b> est <b>annule,</b> car il n'a pas ete presente par deux temoins valables, alors que le premier temoignage reste intact. Si <b>un</b> individu <b>de la premiere</b> serie de temoins se revele etre <b>un temoin conspirateur</b>, <b>l'ensemble du temoignage</b> concernant le voleur est <b>annule. </b> La raison en est <b>que s'il n'y a pas de vol</b> etabli par un temoignage fiable <b>il n'y a pas</b> de responsabilite pour <b>l'abattage</b> de l'animal <b>et il n'y a pas</b> de responsabilite pour <b>la vente</b>.
+
+### Partie 8
+<strong>GEMARA:</strong> Celui qui est rendu temoin conspirateur est interdit de temoignage a l'avenir. La Guemara cite un differend fondamental a propos de cette disqualification. <b>Il a ete dit</b> concernant <b>un temoin conspirateur : Abaye dit : Il est disqualifie retroactivement,</b> a partir du moment ou il a fourni son temoignage. Tout temoignage qu'il a pu fournir apres ce moment-la est annule retroactivement. <b>Rava dit : Il est disqualifie</b> seulement <b>a partir de ce moment-la,</b> c'est-a-dire a partir du moment ou il a ete etabli qu'il etait un temoin conspirateur, mais pas retroactivement a partir du moment ou il a fourni son temoignage.
+
+### Partie 9
+La Guemara explique les raisons de ces deux avis : <b>Abaye dit qu'il est disqualifie retroactivement</b> car c'est <b>a partir du moment ou il a temoigne</b> qu'il est <b>considere</b> comme <b>un homme mechant, et la Torah a dit : "Ne mets pas</b> ta main avec <b>les mechants</b> pour etre un <b>temoin injuste"</b> (Exode 23:1), ce qui est interprete comme signifiant : Ne permets pas a un mechant de servir de temoin.
+
+### Partie 10
+<b>Rava dit</b> que <b>il est disqualifie</b> seulement <b>a partir de ce moment-la</b> car la disqualification d'un <b>temoin conspirateur est une nouveaute,</b> c'est-a-dire qu'elle ne repose pas sur la logique. La raison en est <b>qu'il s'agit ici</b> d'un cas de <b>deux</b> temoins <b>contre deux</b> autres temoins, auquel cas aucun des deux temoignages ne devrait etre accepte. <b>Qu'avez-vous vu qui</b> vous pousse <b>a <b>ecouter</b> la deuxieme serie de temoins, qui attestent que la premiere serie n'etait pas sur les lieux du pretendu evenement ? Vous pourriez plutot <b>ecouter</b> la premiere serie de temoins, qui temoigne de l'evenement, et ne pas croire la deuxieme serie. Pourtant, la Torah enseigne que la deuxieme serie de temoins est toujours jugee credible et que la premiere serie est soumise a une punition en tant que temoins conspirateurs.
+
+### Partie 11
+<b>C'est pourquoi,</b> comme la disqualification des temoins conspirateurs est une anomalie, <b>vous avez</b> le droit de les disqualifier <b>uniquement a partir du moment de la nouveaute et au-dela,</b> c'est-a-dire que cette disqualification contre-intuitive n'est pas appliquee retroactivement.
+
+### Partie 12
+<b>Il y a</b> ceux <b>qui disent</b> que <b>Rava tient aussi comme Abaye, qui dit</b> que de droit un temoin conspirateur <b>doit etre disqualifie retroactivement</b> a partir du moment ou il a fourni son temoignage, <b>et voici la raison</b> de Rava pour ne pas le disqualifier retroactivement :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

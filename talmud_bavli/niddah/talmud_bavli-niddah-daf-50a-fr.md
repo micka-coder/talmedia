@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>C'est</b> l'opinion de <b>Rabbi Meir, comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Meir dirait : Quel</b> est le sens quand <b>le verset dit : "Selon leur parole, toute dispute et toute marque lepreuse seront"</b> (Deuteronome 21:5) ? <b>Qu'est-ce que les disputes ont a voir avec les marques lepreuses ?</b> Le verset <b>juxtapose les disputes aux marques lepreuses,</b> pour enseigner que <b>tout comme les marques lepreuses</b> ne sont vues par un pretre que <b>pendant le jour, comme il est ecrit</b> a propos des marques lepreuses : <b>"Et le jour ou</b> de la chair crue <b>apparaitra en lui</b> il sera impur" (Levitique 13:14), <b>de meme, les litiges</b> ne sont juges que <b>pendant le jour.</b>
+
+### Partie 2
+<b>Et de meme que les marques lepreuses</b> sont vues par les pretres qui peuvent voir, mais <b>pas par les pretres aveugles</b>, <b>comme il est ecrit : "Dans la mesure ou cela apparait au pretre"</b> (Levitique 13:12), ce qui enseigne qu'elles doivent etre vues par des pretres qui peuvent voir des deux yeux, <b>de meme, les litiges ne sont pas</b> juges <b>par des juges aveugles,</b> meme s'ils ne sont aveugles que d'un œil. <b>Et</b> le verset <b>juxtapose les marques lepreuses aux litiges</b> pour enseigner que <b>tout comme les litiges ne peuvent pas</b> etre juges <b>par des parents</b> des plaideurs, <b>de meme, les marques lepreuses ne peuvent pas</b> etre vues <b>par</b> un pretre qui est <b>un parent</b> de la partie affligee.
+
+### Partie 3
+Le <i>baraita</i> continue : <b>Si l'on compare</b> ces deux <i>halakhot</i>, on peut aussi dire que <b>comme les litiges</b> sont juges specifiquement <b>par trois</b> juges, <b>de meme, les marques lepreuses</b> doivent etre vues <b>par trois</b> pretres. <b>Et cette</b> suggestion est soutenue par <b>une deduction logique :</b> Si une affaire qui ne concerne que <b>l'argent de quelqu'un</b> est jugee <b>par trois</b> juges, <b>a plus forte raison</b> n'est-il pas <b>evident</b> que les marques lepreuses, qui affligent la personne <b>elle-meme,</b> doivent etre vues par trois pretres ? Pour contrer cette notion, <b>le verset indique : "Et on l'amenera au pretre Aaron ou a l'un de ses fils, les pretres"</b> (Levitique 13:2). <b>Vous</b> avez <b>appris</b> a partir de cela <b>que meme un pretre peut voir les marques lepreuses.</b>
+
+### Partie 4
+La Gemara raconte : Il y avait <b>un certain aveugle qui vivait</b> dans le quartier de Rabbi Yohanan qui rendait des jugements, et</b> Rabbi Yohanan <b>ne lui disait rien.</b> La Gemara demande : <b>Comment Rabbi Yohanan <b>a pu</b> faire cela ? Mais Rabbi Yohanan</b> n'a-t-il pas lui-meme <b>savoir</b> que la <b><i>halakha</i></b> est <b>conforme</b> a la decision d'une <b>mishna non attribuee ?</b>
+
+### Partie 5
+<b>Et nous avons appris</b> dans la mishna : <b>Toute personne</b> <b>qui est apte a juger</b> une affaire et a servir de juge <b>est apte a temoigner</b> comme temoin, <b>et il y a</b> ceux qui sont <b>aptes a temoigner mais</b> ne sont <b>pas aptes a juger. Et nous avons dit : Qu'est-ce qui est ajoute</b> par cette <i>halakha</i>, <b>et Rabbi Yohanan a dit :</b> Il sert <b>a ajouter celui qui est aveugle d'un de ses yeux,</b> car il est apte a temoigner mais inapte a juger. Puisque Rabbi Yohanan soutient evidemment que celui qui est aveugle meme d'un seul de ses yeux n'est pas apte a juger, pourquoi n'a-t-il pas admoneste ce juge ?
+
+### Partie 6
+La Gemara repond : <b>Rabbi Yohanan a trouve une autre mishna</b> non attribuee qui indique une conclusion differente. <b>Comme nous l'avons appris</b> dans la mishna du tractate <i>Sanhedrin</i> (32a) : Dans les cas de <b>droit monetaire,</b> le tribunal <b>juge pendant le jour, et conclut</b> les deliberations et rend sa decision meme <b>la nuit.</b> Ce n'est pas la <i>halakha</i> en ce qui concerne les marques lepreuses, qui ne peuvent pas du tout etre vues la nuit. En consequence, on ne compare pas le jugement des cas de droit monetaire a la vision des marques lepreuses. Puisque cette comparaison a ete la source de la disqualification d'un juge aveugle, on ne peut en deduire qu'un juge aveugle est disqualifie.
+
+### Partie 7
+La Gemara demande : <b>Et</b> de quelle maniere <b>la force de cette mishna non attribuee</b> dans le tractat <i>Sanhedrin</i> est-elle plus grande <b>que</b> la force de <b>cette mishna non attribuee</b> ici ? Pourquoi Rabbi Yohanan a-t-il accepte la decision de cette mishna ? La Guemara explique : <b>Si tu veux, dis</b> qu'une <b>mishna non attribuee</b> qui enregistre l'opinion <b>de nombreux</b> Sages, comme dans <i>Sanhedrin</i>, est <b>preferable,</b> alors que la mishna ici a ete etablie comme conforme a l'opinion individuelle de Rabbi Meir. <b>Et si vous voulez, dites</b> plutot que c'est <b>parce que</b> la mishna dans <i>Sanhedrin</i> <b>enseigne cette</b> <i>halakha</i> <b>dans le contexte des <i>halakhot</i> des juges.</b> Puisque ce chapitre est la source principale pour toutes les <i>halakhot</i> des affaires judiciaires, ses decisions ont plus de poids.
+
+### Partie 8
+<strong>MISHNA :</strong> <b>Tout</b> aliment dont on est <b>oblige</b> de separer les <b>tithes devient impur avec l'impurete rituelle des aliments ; et il existe</b> un aliment <b>qui devient impur avec l'impurete rituelle des aliments mais</b> dont on n'est pas oblige de</b> separer les <b>tithes.</b>
+
+### Partie 9
+<strong>GEMARA :</strong> La Gemara demande : <b>Qu'est-ce qui est ajoute</b> par la derniere clause de cette mishna ? La Gemara repond : Cela sert <b>a ajouter la viande, le poisson et les œufs.</b> Bien qu'ils soient soumis a l'impurete rituelle des aliments, on n'est pas oblige de separer les dimes de ceux-ci.
+
+### Partie 10
+<strong>MISHNA :</strong> En ce qui concerne <b>toutes les productions</b> dont on est <b>oblige</b> de designer <b>les produits dans le coin du champ donne aux pauvres [<i>peâ</i>],</b> comme le commande la Torah (voir Levitique 19 : 9, 23:22), on est <b>oblige de</b> en separer les <b>tithes</b> ; <b>et il y a</b> des produits dont <b>on est <b>oblige de</b> separer les <b>tithes mais</b> dont on n'est pas oblige</b> de designer <b><i>peâ</i>. </b>
+
+### Partie 11
+<strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est ajoute</b> par la derniere clause de la mishna ? La Gemara repond : Elle sert <b>a ajouter les figues et les legumes,</b> pour <b>lesquels</b> on n'est <b>pas oblige</b> de designer <b><i>peâ</i>,</b> bien que l'obligation de la dime s'applique a eux. <b>Comme nous l'avons appris</b> dans une mishna (<i>Peâ</i> 1:4) : Les Sages ont <b>enonce un principe en ce qui concerne</b> les <i>halakhot</i> de <b><i>Peâ</i>:</b> En ce qui concerne <b>tout ce qui est nourriture, et qui est protege, et</b> qui <b>pousse de la terre, et qui est ramasse comme un seul,</b> c'est-a-dire, il y a un temps fixe pour le ramasser, <b>et</b> que l'on <b>apporte</b> pour le stocker <b>en vue de sa conservation,</b> son proprietaire <b>est tenu de</b> designer <b><i>peâ</i>.</b>
+
+### Partie 12
+La Guemara analyse chaque critere de la mishna. La clause : <b>Tout ce qui est nourriture,</b> sert a <b>exclure</b> le <b><i>sefihin</i>,</b> produit qui a pousse sans etre plante intentionnellement, <b>du pastel [<i>setim</i>] et du carthame [<i>vekotza</i>].</b> Ces plantes sont utilisees comme teintures plutot que comme nourriture. La clause : <b>Et est protegee,</b> sert <b>a exclure les cultures sans proprietaire</b>, que personne ne protege. La clause : <b>Et pousse de la terre,</b> sert <b>a exclure les truffes et les champignons,</b> qui ne tirent pas leur subsistance du sol. La clause : <b>Et est cueilli comme un seul,</b> sert <b>a exclure</b> l'arbre <b>fig</b>, dont la cueillette des fruits se fait sur une longue periode, car les figues ne murissent pas toutes en meme temps. Enfin, la clause : <b>Et</b> que <b>on apporte</b> au stockage <b>pour la conservation,</b> sert a <b>exclure les legumes,</b> qui ne peuvent etre stockes pendant de longues periodes.
+
+### Partie 13
+<b>Et pourtant</b> dans le cas <b>de la dime, nous avons appris</b> dans une mishna (<i>Maâsrot</i> 1:1) a propos des <i>halakhot</i> de la dime : <b>Tout ce qui est nourriture, et qui est protege, et qui pousse de la terre est obligatoire en dime. Et alors que</b> certaines des conditions se recoupent, les criteres suivants <b>ne sont pas enseignes</b> en ce qui concerne les dimes : <b>Recueillis comme un seul homme, et que l'on apporte</b> au stockage <b>pour la conservation.</b> De toute evidence, l'obligation de la dime s'applique aux figuiers et aux legumes, malgre le fait que l'obligation de <i>peâ</i> ne s'applique pas.
+
+### Partie 14
+La Guemara note que <b>si</b> ces legumes exemptes de <i>peâ</i> <b>contenaient de l'ail et des oignons,</b> qui sont conserves pendant une longue periode, alors ils sont <b>obliges</b> en <i>peâ</i> egalement. <b>Comme nous l'avons appris</b> dans une mishna (<i>Peâ</i> 3:4) : Si l'on a des <b>parcelles d'oignons qui sont entre les legumes, Rabbi Yosei dit</b> que l'on laisse une <b>peâ</i> separee de chacune</b> des parterres. <b>Et les rabbins disent</b> que l'on laisse <i>peâ</i> <b>d'un</b> lit de jardin <b>pour tous</b> d'entre eux.
+
+### Partie 15
+§ <b>Rabba bar bar Hana dit</b> que <b>Rabbi Yohanan dit :</b> Dans le cas des <b>endives qui ont ete initialement plantees</b> pour etre nourries <b>aux animaux, et</b> plus tard le proprietaire <b>reflechit a leur</b> designation et decide de les utiliser <b>pour la consommation humaine</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

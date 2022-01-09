@@ -1,0 +1,21 @@
+
+### Part 1
+§ <b>Rav Pappa raised a dilemma: Is there intimation for betrothal or not?</b> Does betrothal take effect via an incomplete statement? The Gemara asks: <b>What are the circumstances</b> of such a case? <b>If we say</b> it is a case <b>where one said to a woman: You are hereby betrothed to me, and he said to another</b> woman: <b>And you too, isn’t</b> it <b>obvious</b> that <b>this is betrothal itself,</b> and it takes effect? <b>Rather,</b> it is a case <b>where one said to a woman: You are hereby betrothed to me, and he said to another</b> woman: <b>And you. Do we say</b> that <b>he said the other</b> woman: <b>And you too</b> are betrothed, <b>and betrothal takes effect with regard to the other</b> woman, <b>or perhaps he said to the other</b> woman: <b>And you see</b> that I am betrothing this woman, <b>and betrothal does not take effect with regard to the other</b> woman?
+
+### Part 2
+The Gemara asks: <b>Did Rav Pappa raise this</b> as a <b>dilemma? But from</b> the fact <b>that Rav Pappa said to Abaye</b> in a case concerning betrothal (see <i>Kiddushin</i> 5b): <b>Does Shmuel hold that ambiguous intimations are</b> valid <b>intimations,</b> it can be proven <b>by inference that Rav Pappa holds that there is intimation for betrothal.</b> The Gemara answers: Rav Pappa <b>spoke to Abaye</b> about <b>one of</b> the opinions <b>that Shmuel held.</b> Shmuel had ruled that even an ambiguous intimation was sufficient in the case of betrothal, and Rav Pappa questioned this ruling without expressing his own opinion that even obvious intimations are not valid with regard to betrothal.
+
+### Part 3
+§ <b>Rav Pappa raised</b> another <b>dilemma: Is there intimation for <i>pe’a</i>,</b> the produce in the corner of a field that must be left for the poor, <b>or is there no intimation for <i>pe’a</i>?</b> The Gemara asks: <b>What are the circumstances</b> of the case? <b>If we say</b> it is a case <b>where one said: This furrow [<i>ugeya</i>] shall be <i>pe’a</i> and this</b> one <b>too, this is</b> a <b>full-fledged</b> declaration of <b><i>pe’a</i>.</b> The Gemara explains: <b>He raises the dilemma</b> with regard to a case <b>where he said: And this, and he did not say:</b> And this one <b>too,</b> and therefore his statement can be interpreted to mean that this other furrow should remain his and not be included in the <i>pe’a</i> (<i>Tosafot</i>). <b>What</b> is the <i>halakha</i> in this case?
+
+### Part 4
+The Gemara interrupts this train of thought and wonders: Does this prove <b>by inference that</b> in a case <b>where one said: The entire field shall be <i>pe’a</i>,</b> it would all be rendered <b><i>pe’a</i>?</b> The case must be one where the first furrow was large enough to serve as <i>pe’a</i> for the entire field, because if that were not the case, it would be clear that he meant that the second furrow should also be <i>pe’a</i>. Consequently, it is clear from Rav Pappa’s question that one can designate as <i>pe’a</i> a larger portion of the field than one is absolutely required to designate.
+
+### Part 5
+The Gemara answers: <b>Yes, and it is taught</b> in the following <i>baraita</i>: <b>From where</b> is it derived <b>that if one wants to render his entire field <i>pe’a</i>,</b> he may <b>do</b> so? <b>The verse states:</b> “You shall not wholly reap <b>the corner of your field”</b> (Leviticus 19:9). This is expounded to mean that the entirety of “your field” may be designated as the “corner” that is left for the poor.
+
+### Part 6
+The Gemara returns to its discussion of Rav Pappa’s dilemma. <b>Do we say</b> that <b>since</b> <i>pe’a</i> is <b>juxtaposed to offerings, just as offerings have intimation, so too, <i>pe’a</i> has intimation? Or perhaps when</b> <i>pe’a</i> is juxtaposed to offerings, <b>it is juxtaposed to</b> indicate only that it is subject to the prohibition: <b>You shall not delay?</b> The Gemara clarifies: <b>And where is it juxtaposed? As it is taught</b> in a <i>baraita</i>:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

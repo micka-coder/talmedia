@@ -1,0 +1,51 @@
+
+### Part 1
+<b>According to Rabbi Meir, who says that betrothal</b> to a priest <b>disqualifies</b> a woman who is unfit to marry him from partaking of <i>teruma</i> even if she is the daughter of a priest, entering the <b>wedding canopy</b> with a priest <b>also disqualifies</b> her. Conversely, <b>according to Rabbi Elazar and Rabbi Shimon, who say</b> that <b>betrothal does not disqualify</b> her, entering the <b>wedding canopy also does not disqualify</b> her.
+
+### Part 2
+The Gemara refutes this claim: <b>And from where</b> do we know that these <i>tanna’im</i> would apply their opinions with regard to betrothal to entering the wedding canopy? <b>Perhaps Rabbi Meir only stated</b> his opinion <b>there, with regard to betrothal, which acquires her. However,</b> in the case of <b>a wedding canopy, which does not acquire her, no,</b> she is not disqualified.
+
+### Part 3
+<b>Alternatively,</b> perhaps <b>Rabbi Elazar and Rabbi Shimon stated</b> their opinion <b>only there, with regard to betrothal, as it is not close to</b> an act of <b>sexual intercourse. However,</b> with regard to entering the <b>wedding canopy, which is close to</b> an act of <b>sexual intercourse,</b> as it is the place where the bride and groom are secluded together and symbolizes the woman’s entrance into her husband’s home, it is possible <b>that it also disqualifies</b> her from partaking of <i>teruma</i>.
+
+### Part 4
+<b>Rather, if it can be said</b> that this issue was already discussed by earlier Sages, it was <b>in the dispute</b> between <b>these</b> other <b><i>tanna’im</i>, as it is taught in</b> a <i>baraita</i>: If <b>they married one another,</b> i.e., either a woman who is <b>fit or</b> a woman who is <b>unfit</b> married a priest, <b>or they entered the wedding canopy and did not</b> yet <b>have intercourse</b> with him, <b>they</b> are entitled to <b>eat of his</b> food <b>and</b> to <b>partake of <i>teruma</i>.</b>
+
+### Part 5
+The Gemara interrupts its presentation of the <i>baraita</i> to examine its wording. The fact that the <i>baraita</i> mentions a case where <b>they entered</b> the wedding canopy but did not yet have intercourse proves <b>by inference that</b> the earlier case, where <b>they married,</b> is referring to <b>actual marriage.</b> However, this is difficult because if they were actually married and had engaged in intercourse, the woman who was unfit to marry a priest is certainly disqualified from partaking of <i>teruma</i> due to the prohibited act of intercourse.
+
+### Part 6
+<b>Rather, is it not</b> that the <i>baraita</i> is referring to a single case: <b>Where</b> they were married, and <b>they entered the canopy, and had not had intercourse? And it is taught</b> in the <i>baraita</i> that <b>they</b> are entitled to <b>partake of his</b> food <b>and</b> to <b>partake of <i>teruma</i>.</b> This indicates that entrance into the wedding canopy does not disqualify a woman who is unfit to marry a priest from eating <i>teruma</i>, although the act of intercourse does.
+
+### Part 7
+The <i>baraita</i> continues: Conversely, <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, says: Any</b> woman <b>whose</b> act of <b>intercourse entitles her to partake of <i>teruma</i>, her wedding canopy</b> also <b>entitles her to partake of <i>teruma</i>; and any</b> woman <b>whose</b> act of <b>intercourse does not entitle her to partake of <i>teruma</i>, her wedding canopy</b> also <b>does not entitle her to partake of <i>teruma</i>.</b> Consequently, it appears that the <i>tanna’im</i> cited in this <i>baraita</i> disagree over the very question of whether the entry of a priest and a woman unfit to marry him into the wedding canopy has legal significance.
+
+### Part 8
+The Gemara refutes this claim: <b>From where</b> do we know that this is correct? <b>Perhaps Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, holds in accordance with</b> the opinion of <b>Rabbi Meir, who said</b> that in the case of the <b>betrothal</b> of a woman unfit for a priest <b>she may not partake of</b> <i>teruma</i>?
+
+### Part 9
+The Gemara expresses surprise: According to this suggestion, <b>this</b> expression in the <i>baraita</i> is difficult: <b>Any</b> woman <b>whose</b> act of <b>intercourse does not entitle her to partake</b> of <i>teruma</i>, <b>her wedding canopy</b> also <b>does not entitle her to partake</b> of <i>teruma</i>. <b>It should have</b> said: <b>Any</b> woman <b>whose</b> act of <b>intercourse does not entitle her to partake</b> of <i>teruma</i>, <b>her</b> betrothal <b>money</b> also <b>does not entitle her to partake</b> of <i>teruma</i>, as it was the betrothal that disqualified her. The Gemara counters this argument: <b>Perhaps</b> it can be suggested that <b>since</b> the <b>first <i>tanna</i> said</b> his ruling with regard to <b>a wedding canopy,</b> Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, <b>also said</b> his ruling with regard to <b>a wedding canopy,</b> even though he holds that she was already disqualified from the time of her betrothal.
+
+### Part 10
+§ <b>Rav Amram said: This matter was said</b> to us by <b>Rav Sheshet, and he illuminated our eyes from the mishna,</b> i.e., he demonstrated that the mishna serves as the basis for his opinion. Rav Sheshet’s statement was as follows: <b>There is</b> significance <b>to</b> a priest entering the <b>wedding canopy</b> with women who are <b>unfit</b> to marry a priest. <b>And the <i>tanna</i></b> of the mishna also <b>taught</b> this <i>halakha</i> with regard to a <i>sota</i> (<i>Sota</i> 18a–b): When a <i>sota</i> is brought to the Temple to drink the bitter waters, she affirms the oath imposed on her by a priest that she has not committed adultery. The mishna explains that when she says <b>amen,</b> it is as though she herself states <b>that: I did not go astray</b> while <b>betrothed, or married,</b> or as <b>a widow waiting for her <i>yavam</i>, or</b> as a fully <b>married</b> woman.
+
+### Part 11
+The Gemara inquires: <b>This</b> case of <b>a betrothed</b> woman, <b>what are the circumstances? If we say that he was jealous of her</b> and warned her not to seclude herself with a particular man <b>when she was betrothed, and he</b> also <b>causes her to drink</b> the waters <b>when she is betrothed,</b> is <b>a betrothed</b> woman <b>fit to drink</b> the waters of a <i>sota</i>? <b>Didn’t we learn</b> in a mishna (<i>Sota</i> 23b): <b>A betrothed</b> woman <b>and a widow waiting for her <i>yavam</i> do not drink,</b> as the <i>halakha</i> of the <i>sota</i> waters applies only to married women; <b>and they do not collect their marriage contract</b> if they secluded themselves after being warned, as they have acted in a licentious fashion?
+
+### Part 12
+<b>Rather,</b> the case in the first mishna cited above is <b>that he was jealous of her</b> and warned her not to seclude herself with a particular man <b>when she was betrothed, and she secluded herself</b> with that man, <b>and</b> her husband <b>causes her to drink when she is</b> already <b>married.</b> However, in that case <b>do the waters examine her? Isn’t it taught</b> in a <i>baraita</i> with regard to the verse: <b>“And the man shall be clear from iniquity,</b> and that woman shall bear her iniquity” (Numbers 5:31), that <b>when the man is clear of iniquity the waters examine his wife,</b> but if <b>the man is not clear of iniquity the waters do not examine his wife?</b> By secluding herself with the other man when she was betrothed, the woman rendered herself forbidden to her husband. If he then married her, he cannot be described as clear of iniquity, and therefore the <i>sota</i> waters are ineffective.
+
+### Part 13
+<b>Rather,</b> it must be <b>that he was jealous of her when she was betrothed, and she secluded herself</b> with the other man anyway, <b>and she had entered the wedding canopy but did not</b> yet <b>have intercourse</b> with her husband when he brought her to the priest. Consequently, she is made to drink the <i>sota</i> waters as a married woman, and her husband has not committed a transgression, as he has not had intercourse with her. <b>Learn from this</b> that <b>there is</b> significance <b>to</b> a priest entering the <b>wedding canopy</b> with women who are <b>unfit</b> to marry a priest, as demonstrated by the fact that the <i>sota</i> waters will examine her in these circumstances.
+
+### Part 14
+<b>Rava said: Do you hold that this</b> <i>baraita</i> <b>is</b> sufficiently <b>accurate</b> to rely upon? <b>But when Rabbi Aḥa bar Ḥanina came from the South, he came with</b> this <b><i>baraita</i> in hand:</b> The verse states with regard to the oath of the <i>sota</i>: “And some man has lain with you <b>besides your husband”</b> (Numbers 5:20), which indicates that it applies only <b>when the cohabitation of the husband preceded that of the adulterer, but not when the cohabitation of the adulterer preceded that of the husband.</b> Consequently, in the case under discussion, drinking the <i>sota</i> waters would not be effective.
+
+### Part 15
+<b>Rami bar Ḥama said: You find it in</b> a case <b>such as</b> where <b>her betrothed had intercourse with her</b> licentiously when she was a betrothed woman <b>in her father’s house.</b> Since the act of intercourse was committed licentiously rather than for the purpose of consummating the marriage, the woman is still considered betrothed. Subsequently, her betrothed warned her not to seclude herself with a particular man, and she disobeyed. Then, they entered the wedding canopy together, despite the fact that they are forbidden to one another. Once they entered the wedding canopy, the woman can be made to drink the bitter waters. This proves that there is significance to entering the wedding canopy with a woman that is unfit for one to marry.
+
+### Part 16
+The Gemara asks: If so, in <b>the corresponding</b> case <b>with regard to a widow waiting for</b> her <b><i>yavam</i>,</b> in <b>which</b> the <b><i>yavam</i> had</b> licentious <b>intercourse with her in her father-in-law’s house,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Reponds a ce</b> que <b>Rava demande</b> a propos de celui qui dit : Sur mon <b>sermon je ne mangerai pas, et</b> qui ensuite <b>mange des saletes.</b> La question de Rava est : <b>Combien</b> doit-il manger <b>en</b> afin d'etre responsable ? Sur la base de la declaration des Rabbins, <b>on pourrait repondre</b> qu'il n'est pas responsable <b>a moins qu'il n'y ait une olive-bulk</b> qu'il a mangee. La Guemara rejette cette conclusion : <b>Lorsque nous disons</b> dans la mishna qu'il n'y a pas de cas ou une personne qui mange moins d'une mesure complete est responsable, <b>nous le disons</b> <b>en ce qui concerne les elements qui sont comestibles.</b>
+
+### Partie 2
+La Guemara demande : <b>Mais les <i>konamot</i></b> ne sont-elles pas un exemple de cas ou l'on est responsable pour avoir mange meme moins qu'une mesure d'olive ? La Guemara repond : <b><i>Konamot</i> sont aussi comme</b> un cas ou il <b>specifie</b> que toute quantite est interdite a la consommation.
+
+### Partie 3
+§ La mishna enseigne que Rabbi Akiva <b>a dit aux</b> rabbins : <b>Ou trouve-t-on quelqu'un qui parle et</b> est tenu d'apporter une offrande</b> pour cela, <b>comme ce</b> sermentur qui ne fait que <b>parler,</b> c'est-a-dire preter serment, <b>et apporter une offrande</b> pour cela ? La Guemara demande : <b>Et</b> on <b>ne le fait pas ? Mais un blasphemateur</b> n'est-il pas tenu d'apporter une offrande selon l'avis de Rabbi Akiva (voir <i>Karetot</i> 7a) ? La Guemara repond : <b>Nous parlons de celui qui parle et</b> en le faisant <b>genere un interdit. Et celui-ci,</b> le blasphemateur, <b>est</b> simplement celui qui <b>parle et peche</b> mais n'apporte pas d'offrande.
+
+### Partie 4
+La Gemara conteste : <b>Mais un nazirite</b> ne se rend-il pas le vin interdit par la parole, en faisant un vœu ? Et il apporte une offrande. La Guemara repond : <b>Nous parlons de celui qui apporte une offrande</b> specifiquement <b>pour sa parole, et celui-ci,</b> le nazirite, <b>apporte une offrande</b> a la fin de sa nazireite <b>afin de s'autoriser le vin.</b>
+
+### Partie 5
+La Guemara conteste : <b>Mais les biens consacres</b> ne sont-ils pas un cas ou l'on rend un objet interdit par la seule parole et ou l'on apporte une offrande pour son mauvais usage ? La Guemara repond : <b>Nous parlons de celui qui,</b> en parlant, <b>genere un interdit pour lui-meme,</b> et apporte neanmoins une offrande. <b>Et celui-la,</b> qui consacre un objet, <b>genere une interdiction pour le monde entier.</b>
+
+### Partie 6
+La Gemara conteste : <b>Ne s'agit-il pas des <i>konamot</i></b> d'un exemple de cas ou l'on rend un objet interdit a soi-meme par la seule parole et ou l'on apporte une offrande pour l'utiliser ? La Guemara repond : Rabbi Akiva <b>soutient</b> qu'il n'y a pas</b> d'interdiction de <b>mauvais usage</b> de biens consacres <b>en ce qui concerne les <i>konamot</i>.</b>
+
+### Partie 7
+§ <b>Rava dit :</b> Le <b>dispute</b> entre Rabbi Akiva et les rabbins concerne le <b>lieu</b> ou l'on a prete serment <b>sans preciser</b> qu'il est tenu de manger un montant quelconque. <b>Mais</b> dans un cas <b>ou il precise</b> que son serment s'applique a n'importe quelle quantite, <b>tout le monde est d'accord</b> qu'il est responsable <b>pour</b> manger <b>n'importe quelle quantite. Quelle est la raison</b> de cette situation ? <b>La personne qui specifie</b> ceci rend toute quantite significative <b>comme</b> une <b>entite entiere.</b>
+
+### Partie 8
+<b>Et Rava dit :</b> Le <b>dispute</b> concerne un cas <b>ou</b> on prete serment en disant : Sur mon serment <b>je ne mangerai pas, mais</b> dans un cas <b>ou</b> on dit : Sur mon serment <b>je ne gouterai pas, tous s'accordent</b> a dire qu'il est responsable <b>pour</b> gouter <b>toute quantite.</b> La Gemara demande : N'est-il pas <b>evident</b> qu'il est responsable dans ce cas ? La degustation n'a pas de mesure definie. La Gemara repond : Rava l'a neanmoins enseigne, <b>de peur que l'on dise</b> que <b>meme</b> si l'on fait un serment en disant : Je ne gouterai pas, il n'est responsable que s'il mange une olive-bulk, <b>comme on dit : Gouter,</b> comme une facon de dire : Manger. Par consequent, Rava <b>nous enseigne</b> que ce n'est pas le cas.
+
+### Partie 9
+§ <b>Rav Pappa dit :</b> Le <b>dispute</b> dans la mishna est <b>en ce qui concerne les serments, mais en ce qui concerne les <i>konamot</i>, tous sont d'accord</b> pour dire que l'on est responsable de manger <b>toute quantite. Quelle en est la raison</b> ? <b>En effet,</b> en ce qui concerne les <b><i>konamot</i>, puisque</b> dans le vœu <b>il n'a pas mentionne explicitement le fait de manger,</b> qui a une mesure definie, mais seulement que l'objet lui est interdit comme une offrande, c'est <b>comme s'il precisait</b> qu'il est responsable de manger n'importe quelle quantite.
+
+### Partie 10
+La Guemara <b>souleve une objection</b> a partir de ce qui est enseigne dans une <i>baraita</i> : les elements qui sont interdits par <b>deux <i>konamot</i> se combinent</b> pour produire une mesure complete pour laquelle on est responsable ; les elements interdits par <b>deux serments ne</b> pas ainsi <b>combines. Rabbi Meir dit :</b> Les elements interdits par <b><i>konamot</i> sont comme</b> ceux interdits par <b>des serments.</b> La Gemara explique l'objection : <b>Et s'il vous vient a l'esprit</b> qu'en ce qui concerne les articles interdits par <i>konamot</i>, on est <b>responsable de</b> manger <b>toute quantite, pourquoi ai-je</b> besoin d'eux <b>pour combiner ?</b>
+
+### Partie 11
+La Gemara repond : Ils se combinent dans un cas <b>ou il a dit : Manger de celui-ci est <i>konam</i> pour moi ; manger de celui-la est <i>konam</i> pour moi.</b> Puisqu'il mentionne explicitement le fait de manger, il n'est pas responsable a moins qu'il ne mange un paquet d'olives. La Gemara demande : <b>Si oui, pourquoi se combinent-ils pour</b> produire une mesure complete ? <b>Enfin,</b> puisqu'il a fait deux vœux distincts, <b>aller a cet</b> article et <b>il n'y a pas</b> une <b>mesure complete, et aller a cet</b> article et <b>il n'y a pas</b> une <b>mesure complete.</b> La Gemara repond : Ils se sont combines pour produire une mesure complete <b>lorsqu'il a dit : Manger de ces deux elements est <i>konam</i> pour moi.</b>
+
+### Partie 12
+La Guemara demande : <b>Dans la situation correspondante</b> <b>en ce qui concerne les serments, ou il a dit :</b> Sur mon <b>serment je ne mangerai pas des deux, pourquoi ne se combinent-ils pas ? Rav Pinehas a repondu : Les serments sont differents. Puisque</b> deux elements interdits par un meme serment <b>sont distincts en ce qui concerne les offrandes de peche,</b> en ce sens que l'on est susceptible d'apporter une offrande de peche pour avoir mange chacun d'eux, de meme le fait de manger une petite quantite de chacun <b>ne se combine pas</b> pour produire une mesure complete.
+
+### Partie 13
+La Gemara demande : <b>Si c'est le cas,</b> comment <b>Rabbi Meir a dit</b> que les elements interdits par les <b><i>konamot</i> sont comme</b> ceux interdits par les <b>mots</b> et ne se combinent pas pour produire une mesure complete ? <b>On accorde que</b> les elements interdits par <b>les serments</b> ne se combinent pas, <b>puisqu'ils sont distincts en ce qui concerne les offrandes pour le peche, mais pourquoi les elements interdits par <b><i>konamot</i> ne se</b> combinent-ils pas ? La Guemara repond : <b>Inverser</b> le langage de sorte que le <i>baraita</i> fait dire a <b>Rabbi Meir:</b> Les elements interdits par <b>les serments sont comme</b> les elements interdits par <b><i>konamot</i>.</b> Aucun ne se combine pour produire une mesure complete, <b>et</b> Rabbi Meir <b>n'accepte pas</b> la declaration <b>du Rav Pinehas</b> que les elements interdits par les serments sont differents.
+
+### Partie 14
+<b>Ravina a dit : Lorsque Rav Pappa dit</b> qu'on est responsable de manger n'importe quelle quantite d'un element interdit par <i>konamot</i>, c'est <b>en ce qui concerne la question des coups de fouet. Lorsqu'il est enseigne</b> dans le <i>baraita</i> que les elements interdits par les <i>konamot</i> se combinent pour produire une mesure complete, <b>c'est</b> en ce qui concerne la question d'une offrande</b> pour abus de biens consacres, <b>ou nous exigeons</b> que l'on tire un benefice egal a la <b>valeur d'une <i>peruta</i></b> de l'element interdit.
+
+### Partie 15
+La Guemara demande : Est-ce que c'est <b>pour dire que les Sages soutiennent</b> que les <i>halakhot</b> de <b>mauvais usage</b> des biens consacres s'etendent <b>aux</b> articles interdits par <b><i>konamot</i> ? Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Si on dit : <b>Ce pain est consacre, et</b> par la suite <b>le manger,</b> alors <b>soit lui, soit un autre</b> qui l'a mange, est responsable du <b>mauvais usage</b> d'un bien consacre ; <b>en consequence,</b> puisque le pain est consacre, <b>il est sujet a rachat.</b> Si on a dit : <b>Ce pain est</b> interdit <b>a moi</b> comme s'il etait <b>consacre,</b> c'est-a-dire, il est <i>konam</i> pour moi, puis il l'a mange, <b>il</b> est responsable du <b>mesusage</b> d'un bien consacre, mais <b>un autre</b> n'est <b>pas</b> responsable du <b>mesusage</b> d'un bien consacre ; <b>en consequence,</b> puisque le pain n'est pas entierement consacre, <b>il n'est pas sujet au rachat. </b> C'est <b>la declaration de Rabbi Meir.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

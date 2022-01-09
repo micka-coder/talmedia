@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>De meme que les jours de sa lepre confirmee</b> <b>exigent le rasage, de meme les jours de son comptage</b> exigent le rasage ; <b>et de meme que les jours de sa lepre confirmee</b> <b>ne comptent pas</b> dans le cadre <b>de son decompte</b> de nazireat, <b>de meme les jours de son comptage</b> ne doivent pas compter dans son terme de nazireat ?
+
+### Partie 2
+On <b>pourrait</b> penser que <b>meme ses jours de quarantaine</b> en tant que lepreux devraient partager la <b>meme</b> <i>halakha</i> et ne pas etre comptes. <b>Et il est logique</b> que ces jours ne soient pas non plus comptes pour lui, puisque les deux etats sont comparables : <b>Un lepreux confirme</b> <b>cede</b> des objets <b>rituellement impurs par le mensonge ou la position assise, et</b> un lepreux dans <b>les jours de sa quarantaine</b> cede egalement <b>des objets <b>impurs par le mensonge ou la position assise. </b> Par consequent, <b>si vous avez appris en ce qui concerne les jours de lepre confirmee</b> <b>qu'ils ne comptent pas</b> comme partie <b>de son decompte, de meme, les jours de quarantaine</b> ne doivent <b>pas compter</b> comme partie <b>de son decompte</b> non plus.
+
+### Partie 3
+La Guemara rejette cet argument : <b>Vous</b> pouvez <b>dire</b> en reponse : <b>Non, si tu as dit</b> cette <i>halakha</i> <b>en ce qui concerne les jours de lepre confirmee</b>, la raison en est <b>que son etat de lepre confirmee</b> <b>exige</b> qu'il se <b>rase</b> apres sa guerison <b>et</b> qu'il <b>apporte une offrande</b> avant de pouvoir commencer sa nazirite. <b>C'est pourquoi,</b> ces jours <b>ne comptent pas</b> pour son nazireat. Cependant, est-ce que <b>vous direz</b> la meme chose <b>en ce qui concerne les jours de sa quarantaine, qui ne necessitent pas de rasage et</b> pour lesquels <b>il n'apporte pas d'offrande ? Par consequent,</b> peut-etre devraient-ils <b>compter dans</b> son <b>compte.</b>
+
+### Partie 4
+<b>D'ici, ils ont declare : Les jours du</b> <b>compte d'un lepreux et les jours de sa lepre confirmee</b>, lorsqu'il est lepreux a part entiere, <b>ne comptent pas</b> dans le cadre <b>de son decompte</b> de sa duree de nazireat. <b>Cependant, les jours</b> d'impurete <b>du <i>zav</i> et du <i>zava</i> et</b> les jours <b>de quarantaine d'un lepreux comptent</b> dans le cadre de <b>son</b> decompte de son terme de nazireite.
+
+### Partie 5
+En ce qui concerne la question qui nous occupe, <b>en tout cas</b> le <i>baraita</i> <b>enseigne : Non, si tu dis</b> que c'est vrai <b>en ce qui concerne ses jours d'impurete, qui annulent les jours precedents</b>, <b>doit-on</b> egalement <b>dire</b> que c'est le cas <b>en ce qui concerne ses jours de lepre confirmee</b>, qui n'annulent pas les precedents ? La Guemara analyse cet argument : <b>A quoi</b> cette affirmation se refere-t-elle ? <b>Si l'on dit</b> qu'elle fait reference <b>a une nazireite courte</b> de trente jours, cela ne peut etre le cas, car <b>on exige une pousse des cheveux</b> de trente jours apres sa purification.
+
+### Partie 6
+<b>Au contraire, n'est-ce pas</b> le cas qu'il est fait reference <b>a une nazireite longue, et</b> neanmoins le <i>baraita</i> <b>enseigne qu'ils ne comptent pas</b> comme faisant partie <b>de son decompte. Apparemment,</b> ses jours en tant que lepreux a part entiere <b>ne comptent pas</b> dans son terme de nazireite, ce qui contredit la decision du Rav Hisda. La Guemara conclut : <b>Apprenez de ceci</b> que l'opinion de Rav Hisda doit etre rejetee.
+
+### Partie 7
+<strong>MISHNA:</strong> <b>Rabbi Eliezer a dit au nom de Rabbi Yehoshua:</b> En ce qui concerne <b>toute impurete rituelle d'un cadavre pour laquelle un nazirite doit se raser, on est responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres avoir contracte cette impurete. Si quelqu'un qui est devenu impur a partir de l'une de ces sources d'impurete entre dans le Temple, il enfreint l'interdiction faite a un individu impur d'entrer dans l'espace sacre. <b>Et</b> en ce qui concerne <b>toute impurete provenant d'un cadavre pour laquelle un nazirite ne se rase pas, on est</b> de meme <b>non responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres l'avoir contractee.
+
+### Partie 8
+<b>Rabbi Meir a dit : Cette</b> impurete d'un cadavre qui n'oblige pas un nazirite a se raser <b>ne doit pas etre plus clemente que</b> l'impurete d'un <b>animal rampant.</b> La Torah indique clairement que celui qui est rendu impur par un animal rampant est interdit d'entrer dans le Temple (voir Levitique 5:2""3).
+
+### Partie 9
+<strong>GEMARA:</strong> La Gemara demande : <b>Et</b> est-ce que <b>Rabbi Eliezer a appris</b> cette <i>halakha</i> <b>au nom de Rabbi Yehoshua</b> ben Hananya ? <b>Mais ne l'a-t-il pas appris au nom de Rabbi Yehoshua bar Memel ? Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Eliezer a dit : Lorsque je me suis rendu</b> a un endroit appele <b>Ardaskeya, j'ai trouve Rabbi Yehoshua ben Petter Rosh assis et discutant</b> le <b><i>halakha</i> suivant devant Rabbi Meir :</b> En ce qui concerne <b>toute impurete rituelle provenant d'un cadavre pour laquelle un nazirite doit se raser, on est responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres l'avoir contractee. <b>Et</b> en ce qui concerne <b>toute impurete provenant d'un cadavre pour lequel un nazirite ne se rase pas, on n'est pas responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres l'avoir contractee. Rabbi Meir lui <b>dit : Cette</b> impurete d'un cadavre qui n'oblige pas un nazirite a se raser <b>ne doit pas etre plus clemente que</b> l'impurete d'un <b>animal rampant.</b>
+
+### Partie 10
+Rabbi Eliezer poursuit : <b>J'ai dit a</b> Rabbi Meir : <b>Etes-vous familier avec Rabbi Yehoshua bar Memel ? Il m'a repondu : Oui.</b> J'ai continue : <b>Rabbi Yehoshua bar Memel m'a dit ceci au nom de Rabbi Yehoshua</b> ben Hananya : En ce qui concerne <b>toute impurete rituelle d'un cadavre pour laquelle un nazirite doit se raser, on est responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres l'avoir contractee. <b>Et</b> en ce qui concerne <b>toute impurete provenant d'un cadavre pour lequel un nazirite ne se rase pas, on n'est pas responsable en raison</b> de l'interdiction d'<b>entrer dans le Temple</b> apres l'avoir contractee. Ceci conclut la <i>baraita</i>. La Guemara commente : Ceci <b>est</b> la preuve <b>que Rabbi Eliezer <b>a appris</b> cette <i>halakha</i> <b>au nom de Rabbi Yehoshua bar Memel,</b> et non directement de Rabbi Yehoshua ben Hananya.
+
+### Partie 11
+<b>Ils ont dit : Apprenez de ce</b> cas le principe suivant : En ce qui concerne <b>tout</b> enonce de <b><i>halakha</i> qui a ete enonce</b> comme une tradition <b>de trois</b> savants, <b>on dit le premier et le dernier</b> nom de la chaine mais <b>on ne dit pas celui du milieu</b>. Par consequent, la mishna mentionne le nom de Rabbi Eliezer, le dernier maillon de la tradition, et de Rabbi Yehoshua ben Hananya, le premier erudit, mais elle omet celui de Rabbi Yehoshua bar Memel, l'erudit du milieu de la chaine.
+
+### Partie 12
+<b>Rav Nahman bar Yitzhak a dit : Nous aussi, nous apprenons</b> dans une mishna (<i>Peâ</i> 2:6) : <b>Nahum le Scribe [<i>lavlar</i>] a dit : C'est</b> la tradition que <b>j'ai recue de Rabbi Meyasha, qui l'a recue</b> <b>de pere, qui l'a recue</b> <b>des paires</b> de Sages qui ont servi durant la periode du Second Temple, <b>qui l'ont recue</b> <b>des Prophetes : </b> C'est <b>une <i>halakha</i></b> transmise <b>a Moise depuis le Sinai a l'egard de celui qui seme</b> les plantes d'<b>aneth et de moutarde en deux ou trois</b> emplacements distincts <b>dans un meme champ, <b>qu'il laisse un coin</b> aux pauvres <b>pour chacune</b> de ces parcelles a part, plutot qu'un coin pour toutes.
+
+### Partie 13
+La Guemara explique la preuve a partir de cette source : <b>Et pourtant</b> Nahum le Scribe <b>ne mentionne pas</b> les noms de <b>Joshua et Caleb,</b> malgre le fait qu'ils etaient les Anciens qui ont transmis cette <i>halakha</i> de Moise aux Prophetes. <b>Apprenez de ceci</b> que les maillons intermediaires d'une tradition ne sont pas forcement repertories.
+
+### Partie 14
+<strong>MISHNA:</strong> La mishna continue a aborder les sources d'impurete rituelle pour lesquelles un nazirite doit se raser. <b>Rabbi Akiva dit : J'ai discute</b> de cette question <b>devant Rabbi Eliezer</b> et j'ai suggere la deduction <i>a fortiori</i> suivante : <b>Si,</b> en ce qui concerne <b>un os qui est un grain d'orge</b> -</b> -bulk, qui ne rend pas une personne impure dans une tente, un nazirite doit</b> neanmoins <b>se raser pour le toucher ou le porter, </b> alors dans le cas d'un <b>quart-</b><i>log</i> <b>de sang, qui est</b> plus rigoureux en ce qu'il <b>rend une personne impure dans une tente, n'est-il pas logique qu'un nazirite doive se raser pour le toucher ou le porter ? </b>
+
+### Partie 15
+Rabbi Eliezer <b>me dit : Qu'est-ce que c'est, Akiva ? On ne peut pas argumenter au moyen d'une deduction <i>a fortiori</i> ici,</b> dans ce cas particulier. Cependant, Rabbi Eliezer n'a pas donne de raison a cette reponse. Rabbi Akiva poursuit : <b>Et lorsque je suis venu presenter</b> ces <b>matieres devant Rabbi Yehoshua, il m'a dit : Tu as bien parle,</b> c'est-a-dire que ta logique est sans faille, <b>mais ils ont effectivement dit</b> qu'il s'agit d'une <b><i>halakha</i></b> transmise a Moise depuis le Sinai, ce qui ne peut etre refute au moyen d'une deduction <i>a fortiori</i>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

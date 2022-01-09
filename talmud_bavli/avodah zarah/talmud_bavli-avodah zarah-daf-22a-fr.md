@@ -1,0 +1,30 @@
+
+### Partie 1
+La Gemara repond : <b>Rabbi Shimon ben Elazar n'accepte pas</b> le principe selon lequel un metayer travaille pour sa <b>location,</b> plutot que comme employe du juif. La Guemara demande : <b>Mais</b> si tel est le cas, en ce qui concerne <b>un Gentil, quelle est la raison</b> pour laquelle il est <b>permis</b> de le louer ? La Gemara repond <b>que nous lui disons</b> qu'il ne peut pas effectuer de travail certains jours, <b>et il s'y conforme.</b> La Gemara demande : Si c'est le cas, alors dans le cas d'un <b>Samaritain aussi, nous pouvons lui dire</b> qu'il ne peut pas effectuer de travail certains jours, <b>et il</b> s'y conformera.</b> La Gemara repond : <b>Un Samaritain</b> n'obtemperera pas, car il dit : je suis plus savant que toi,</b> et je sais qu'il est permis de travailler ces jours-la.
+
+### Partie 2
+La Guemara demande : <b>Si c'est le cas, pourquoi</b> Rabbi Chimon ben Elazar declare-t-il <b>specifiquement</b> que la raison de l'interdiction est <b>parce que</b> le champ <b>est appele par le nom du</b> proprietaire ? <b>Derivons</b> cette <i>halakha</i> <b>du fait</b> que le Samaritain, comme le Juif, a recu l'ordre de s'abstenir de travailler pendant les jours intermediaires de la Fete, et comme il travaillera ces jours-la, lui louer un champ est inclus dans l'interdiction : <b>Vous ne mettrez pas une pierre d'achoppement devant un aveugle"</b> (Levitique 19:14). La Guemara repond : Rabbi Shimon ben Elazar <b>enonce une</b> raison <b>et</b> ajoute <b>une autre : Une</b> raison est <b>celle</b> de l'interdiction : Tu ne mettras pas de pierre d'achoppement <b>devant un aveugle ; et, de plus,</b> il est interdit <b>parce que</b> le champ <b>est appele par le nom du</b> proprietaire.
+
+### Partie 3
+§ La Gemara relate qu'il y avait <b>certains cultivateurs de safran</b> qui possedaient conjointement un champ selon un arrangement selon <b>qu'un Gentil prenait possession</b> du champ et y travaillait <b>le Chabbat, et qu'un Juif</b> en prenait possession <b>le dimanche. Ils se presenterent devant Rava,</b> pour savoir s'ils pouvaient partager leurs benefices de maniere egale, et Rava <b>leur permit</b> de le faire.
+
+### Partie 4
+<b>Ravina souleve une objection a</b> la decision de <b>Rava</b> a partir d'une <i>baraita</i> : Dans le cas d'un <b>Juif et d'un Gentil qui ont recu</b> la location d'un <b>champ en partenariat,</b> etant entendu qu'ils devaient travailler le champ et recevoir une partie de ses produits en echange, <b>le Juif ne peut pas dire au Gentil : Prends ta part</b> du benefice pour ton travail <b>le Chabbat, et moi</b> je prendrai ma part pour mon travail <b>le</b> un des jours du reste de la <b>semaine. </b> La raison pour laquelle on ne peut pas le faire est qu'il s'avere que lorsque le Gentil travaillait le Chabbat, il travaillait en partie pour le compte de son partenaire juif. <b>Mais s'ils ont initialement stipule</b> lors de la conclusion de leur partenariat que le Gentil recevrait une part du benefice en echange de son travail le Chabbat, et que le Juif recevrait une part pour le travail qu'il effectue pendant l'un des jours de la semaine, c'est <b>permis.</b>
+
+### Partie 5
+<b>Et si</b> on n'a pas fait cette stipulation et qu'on en est venu plus tard a <b>calculer</b> le nombre de jours de la semaine pour lesquels le Juif doit recevoir le benefice, correspondant au nombre de <i>Chabbatot</i> que le Gentil a travaille, c'est <b>interdit,</b> car cela signifierait que lorsque le Gentil travaillait le Chabbat, il travaillait pour le compte du Juif. Rava etait <b>embarrasse</b> d'avoir statue de maniere incorrecte. <b>En fin de compte, l'affaire a ete revelee que</b> les producteurs de safran <b>avaient stipule des le depart</b> que tel etait l'arrangement, et donc meme selon la <i>baraita</i> Rava avait statue correctement.
+
+### Partie 6
+<b>Rav Geviha de Bei Ketil a dit</b> que l'incident etait en fait le suivant : Le juif et le gentil ont forme un partenariat en ce qui concerne <b>ces jeunes arbres <i>orla</i>,</b> pour les entretenir et les vendre. <b>Le Gentil</b> travaillerait et <b>profiterait</b> d'eux pendant <b>les annees <i>orla</i>,</b> les trois premieres annees apres la plantation de l'arbre ou il est interdit a un Juif de manger son fruit, <b>et le Juif</b> travaillerait et profiterait d'eux pendant <b>les annees ou</b> le fruit est <b>permis. Ils sont venus devant Rava,</b> qui les a <b>permis</b> de le faire.
+
+### Partie 7
+La Gemara demande : <b>Mais Ravina ne s'est-il pas oppose</b> a la decision rendue par <b>Rava ?</b> La Gemara repond : Non, l'intention de Ravina etait <b>de fournir un support pour</b> la decision de Rava. La Gemara demande : <b>Mais</b> Rava n'etait-il pas <b>embarrasse</b> par la declaration de Ravina ? La Guemara repond : <b>Cela n'est jamais arrive.</b>
+
+### Partie 8
+<b>Un dilemme a ete souleve devant</b> les Sages : Si les partenaires n'ont <b>pas specifie</b> que le Gentil travaillerait le Chabbat et le Juif pendant la semaine, mais qu'ils n'ont pas non plus calcule leurs benefices de maniere a les partager equitablement, <b>Quel est le <i>halakha</i> ? La Guemara tente d'apporter une reponse a partir de la <i>baraita</i> : <b>Venez</b> et <b>entendez : S'ils ont initialement stipule</b> que le Gentil recevrait une part du benefice en echange de son travail le Chabbat, tandis que le Juif recevrait une part pour le travail effectue l'un des autres jours de la semaine, c'est <b>permis.</b> Cela indique que <b>sans specification,</b> c'est <b>interdit.</b>
+
+### Partie 9
+La Guemara rejette cette preuve : <b>Dites la derniere clause : Si</b> ils sont <b>venus pour calculer</b> leurs benefices, c'est <b>interdit;</b> cela indique que <b>sans specification,</b> le faire est <b>permis.</b> La Gemara conclut : <b>Au contraire, aucune</b> deduction n'est <b>a tirer de cette</b> <i>baraita</i>, car les deductions se contredisent.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

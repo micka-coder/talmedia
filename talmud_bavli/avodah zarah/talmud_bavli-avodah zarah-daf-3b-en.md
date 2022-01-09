@@ -1,0 +1,57 @@
+
+### Part 1
+<b>when the season of Tammuz extends until the festival</b> of <i>Sukkot</i>, <b>and</b> in such years sitting in the <i>sukka</i> <b>causes them suffering.</b> The Gemara asks: <b>But doesn’t Rava say</b> that <b>one who suffers</b> in the <i>sukka</i> <b>is exempt from</b> performing <b>the</b> mitzva of <b><i>sukka</i>,</b> and under these circumstances even a Jew is permitted to leave the <i>sukka</i>? If so, why are the gentiles criticized for leaving? The Gemara answers: <b>Granted that one is exempt</b> from performing the mitzva and is permitted to leave his <i>sukka</i>, but <b>should one kick</b> it?
+
+### Part 2
+The Gemara resumes its narration: <b>Immediately, the Holy One, Blessed be He, sits and makes sport of</b> those gentiles, i.e., He laughs at them, <b>as it is stated: “He that sits in heaven makes sport,</b> the Lord has them in derision” (Psalms 2:4). With regard to this verse, <b>Rabbi Yitzḥak says: There is no making sport for the Holy One, Blessed be He, but on that day alone.</b>
+
+### Part 3
+<b>There are</b> those <b>who teach that which Rabbi Yitzḥak</b> subsequently said <b>with regard to this</b> matter, <b>as it is taught</b> in a <i>baraita</i> that <b>Rabbi Yosei says: In the future, the nations of the world</b> will <b>come and convert.</b> The Gemara asks: <b>And do we accept them</b> as converts at that time? <b>But isn’t it taught</b> in another <i>baraita</i>: The court <b>does not accept converts in the days of the Messiah; similarly, they did not accept converts either in the days of David or in the days of Solomon,</b> due to a concern that these people wanted to convert for ulterior motives, because the Jewish people were mighty and respected?
+
+### Part 4
+<b>Rather,</b> Rabbi Yosei means <b>that they become converts</b> who have <b>attached</b> themselves to the Jewish people, <b>and they don phylacteries on their heads, phylacteries on their arms,</b> place <b>ritual fringes on their garments,</b> and <b>a <i>mezuza</i> in their doorways.</b>
+
+### Part 5
+<b>When</b> these converts <b>see the war of Gog and Magog,</b> every convert of this sort will <b>say to</b> Gog and Magog: <b>For what</b> purpose <b>did you come? They</b> will <b>say to him:</b> We came to fight <b>against the Lord and against His Messiah, as it is stated: “Why are the nations in an uproar? And why do the peoples mutter in vain.</b> The kings of the earth stand up, and the rulers take counsel together, against the Lord, and against His Messiah” (Psalms 2:1–2).
+
+### Part 6
+<b>And</b> then <b>every one</b> of these converts will <b>tear loose his</b> sign of performance of <b>a mitzva and leave, as it is stated: “Let us tear their bands asunder,</b> and cast away their cords from us” (Psalms 2:3). <b>And the Holy One, Blessed be He, sits and makes sport,</b> i.e., laughs or rejoices, <b>as it is stated: “He that sits in heaven makes sport,</b> the Lord has them in derision” (Psalms 2:4). <b>Rabbi Yitzḥak says: There is no making sport for the Holy One, Blessed be He, but on that day alone.</b>
+
+### Part 7
+The Gemara asks: <b>Is that so?</b> Is there is no other making sport for the Holy One, Blessed be He? <b>But doesn’t Rav Yehuda say</b> that <b>Rav says: There are twelve hours</b> in <b>the day.</b> During <b>the first three, the Holy One, Blessed be He, sits and engages in Torah</b> study. During the <b>second</b> three hours, <b>He sits and judges the entire world. Once He sees that the world has rendered itself liable to destruction, He arises from the throne of judgment and sits on the throne of mercy,</b> and the world is not destroyed.
+
+### Part 8
+During the <b>third</b> set of three hours, the Holy One, Blessed be He, <b>sits and sustains the entire world, from the horns of wild oxen to the eggs of lice.</b> During the <b>fourth</b> three hours, <b>He sits and makes sport with the leviathan, as it is stated: “There is leviathan, whom You have formed to sport with”</b> (Psalms 104:26). Evidently, God makes sport every day, not only on that one day. <b>Rav Naḥman bar Yitzḥak says</b> in explanation: <b>He makes sport with His creations,</b> just as He sports with the leviathan; <b>He does not make sport of His creations but on that day alone.</b>
+
+### Part 9
+<b>Rav Aḥa said to Rav Naḥman bar Yitzḥak: From the day the Temple was destroyed, there is no</b> longer any <b>making sport for the Holy One, Blessed be He. And from where do we</b> derive <b>that there is no making sport? If we say</b> that it is <b>from</b> that <b>which is written: “And in that day did the Lord, the God of hosts, call to weeping, and to lamentation, and to baldness</b> and to girding with sackcloth” (Isaiah 22:12), that is inconclusive: <b>Perhaps that day</b> alone was called for weeping and lamentation, <b>and no additional</b> days.
+
+### Part 10
+<b>Rather,</b> you might suggest that the source is <b>that it is written: “If I forget you, O Jerusalem, let my right hand forget her cunning. Let my tongue cleave to the roof of my mouth, if I do not remember you”</b> (Psalms 137:5–6). This is also inconclusive, as <b>perhaps there is no forgetting</b> of Jerusalem for God, <b>but in any event there is</b> still <b>making sport. Rather,</b> it is derived <b>from this</b> verse: <b>“I have long time held My peace, I have been still, and refrained Myself;</b> now will I cry like a travailing woman, gasping and panting at once” (Isaiah 42:14).
+
+### Part 11
+The Gemara asks: If God no longer makes sport, <b>what does He</b> now <b>do during the fourth</b> three-hour period of the day? The Gemara answers: <b>He sits and teaches Torah to schoolchildren, as it is stated: “Whom shall one teach knowledge? And whom shall one make to understand the message? Them that are weaned from the milk, them that are drawn from the breasts”</b> (Isaiah 28:9). The verse is interpreted in the following manner: <b>To whom</b> does God <b>teach knowledge, and to whom does He make to understand the message? To</b> those <b>who are</b> just <b>weaned from the milk and to</b> those <b>who are drawn from the breasts,</b> i.e., children only recently weaned from nursing.
+
+### Part 12
+The Gemara asks: <b>And initially,</b> before the destruction of the Temple, <b>who would teach</b> the schoolchildren? The Gemara answers: <b>If you wish, say</b> that the angel <b>Metatron</b> would teach them, <b>and if you wish, say</b> instead that <b>He would do</b> both <b>this,</b> sport with the leviathan, <b>and that,</b> teach the schoolchildren; whereas after the destruction of the Temple in the fourth period of the day He only teaches the schoolchildren.
+
+### Part 13
+The Gemara asks: <b>And during</b> the twelve hours of <b>the night, what does</b> God <b>do?</b> The Gemara answers: <b>If you wish, say</b> that the night is <b>similar to the day,</b> i.e., God performs the same activities as in the day. <b>And if you wish, say</b> instead that He <b>rides on his light cherub and flies in eighteen thousand worlds, as it is stated: “The chariots of God are twenty thousand, even [<i>shinan</i>] thousands”</b> (Psalms 68:18). <b>Do not read</b> it as <b>even [<i>shinan</i>], rather</b> read it as: <b>That which are not [<i>she’einan</i>].</b> Since the minimum of thousands is two thousand, the phrase: That which are not thousands, indicates that two thousand are not present, i.e., the chariots of God are twenty thousand minus two thousand, which means that God rides in eighteen thousand worlds. <b>And if you wish, say</b> instead that God <b>sits and listens to the songs from the mouths of the</b> angelic <b>creatures, as it is stated: “By day the Lord will command His loving-kindness, and in the night His song shall be with me”</b> (Psalms 42:9).
+
+### Part 14
+§ <b>Rabbi Levi says: Anyone who interrupts</b> his study <b>of words of Torah to occupy</b> himself <b>with mundane matters</b> will be <b>fed with the coals of the broom tree, as it is stated: “They pluck salt-wort from wormwood, and the roots of the broom are their food”</b> (Job 30:4). <b>Reish Lakish says:</b> With regard to <b>any-one who occupies</b> himself <b>with Torah at night, the Holy One, Blessed be He, extends a thread of kindness over him by day, as it is stated: “By day, the Lord will command His kindness, and in the night His song shall be with me”</b> (Psalms 42:9). The verse is understood as follows: <b>What is the reason</b> that <b>by day, the Lord will command His kindness</b> to extend over him? It is <b>due to</b> the fact <b>that in the night His song is with me,</b> i.e., he occupies himself at night with Torah, which is referred to as a song.
+
+### Part 15
+<b>There are</b> those <b>who say</b> that this is what <b>Reish Lakish says:</b> With regard to <b>anyone who occupies</b> himself <b>with Torah in this world, which is comparable to night, the Holy One, Blessed be He, extends a thread of kindness over him in the World-to-Come, which is comparable to day, as it is stated: “By day, the Lord will command His kindness,</b> and in the night His song shall be with me.”
+
+### Part 16
+The Gemara continues discussing the importance of Torah study. <b>Rav Yehuda says</b> that <b>Shmuel says: What</b> is the meaning of that <b>which is written: “And makes people as the fish of the sea, as the creeping things, that have no ruler over them”</b> (Habakkuk 1:14)? <b>Why are people compared to the fish of the sea?</b> This serves <b>to say to you: Just as</b> with regard to <b>the fish of the sea, once they arise onto dry land they die immediately; so too,</b> with regard to <b>people, once they separate</b> themselves <b>from</b> studying <b>words of Torah and</b> performing <b>the mitzvot, they die immediately. Alternatively, just as</b> with regard to the <b>fish of the sea, once the sun is heated over them they die immediately, so too</b> with regard to <b>people, once the sun is heated over them they die immediately.</b>
+
+### Part 17
+The Gemara clarifies: <b>If you wish, say</b> that this applies <b>in this world, and if you wish, say</b> instead that it applies <b>to the World-to-Come. If you wish, say</b> that it applies <b>in this world, in accordance with</b> the opinion <b>of Rabbi Ḥanina. As Rabbi Ḥanina says: All</b> occurrences that befall man <b>are in the hands of Heaven except for colds</b> and <b>obstacles [<i>paḥim</i>],</b> from which one is able to protect himself, <b>as</b> it <b>is stated: “Colds and snares are on the path of the crooked; he who guards his soul shall keep far from them”</b> (Proverbs 22:5). This indicates that cold and, conversely, heat, are forms of harm from which one must protect himself, which teaches that being exposed to excessive heat can cause death.
+
+### Part 18
+<b>And if you wish, say</b> instead that this is referring <b>to the World-to-Come, in accordance with</b> the statement <b>of Rabbi Shimon ben Lakish. As Rabbi Shimon ben Lakish says: There is no Gehenna in the World-to-Come. Rather, the Holy One, Blessed be He,</b> will <b>remove the sun from its sheath [<i>minnarteikah</i>],</b> where it is situated during these times, <b>and heats [<i>umakdir</i>]</b> that world with it. <b>The wicked will be punished by it</b> and consumed by the heat, <b>but the righteous will be healed by it. The wicked will be punished</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

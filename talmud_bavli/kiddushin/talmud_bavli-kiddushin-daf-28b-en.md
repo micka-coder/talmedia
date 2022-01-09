@@ -1,0 +1,36 @@
+
+### Part 1
+<b>once one</b> party in the transaction <b>acquires</b> the item he is receiving, <b>this</b> party <b>is obligated</b> with regard to the item being <b>exchanged for it.</b> The novelty of the mishna is that all items, not only vessels, can be used to perform the act of acquisition of exchange. Therefore, one should not infer that the same is the <i>halakha</i> with regard to coins. The Gemara comments: The language of the mishna <b>is also precise, as it teaches</b> afterward: <b>How so?</b> If <b>one exchanges an ox for a cow, or a donkey for an ox,</b> once this party acquires the animal that he is receiving, this party is obligated with regard to the item being exchanged for it. This clause apparently explains the previous clause, and employs the example of animals, not coins. The Gemara summarizes: <b>Learn from</b> this clause that the mishna is referring to acquisition through the exchange of items, not money.
+
+### Part 2
+The Gemara asks: <b>And</b> with regard <b>to what entered our minds initially, that a coin effects</b> symbolic <b>exchange, what</b> is the meaning of the clause: <b>How so,</b> if one exchanged an ox for a cow, once this party acquires the animal that he is receiving, this party is obligated with regard to the item being exchanged for it. This example does not involve a coin. The Gemara explains that it was assumed that <b>this is what</b> the mishna <b>is saying:</b> Not only can a coin be used in for the act of acquisition of exchange, but <b>produce can also effect exchange. How so?</b> If <b>one exchanged meat of an ox for a cow, or</b> the <b>meat of a donkey for an ox, once this</b> party <b>acquires</b> the item that he is receiving, this party <b>is obligated</b> with regard to the item being <b>exchanged</b> for it.
+
+### Part 3
+The Gemara asks: <b>This works out well according to</b> the opinion of <b>Rav Sheshet, who says: Produce effects exchange,</b> i.e., the mode of acquisition of exchange applies not only to vessels but also to produce and animals. <b>But according to</b> the opinion of <b>Rav Naḥman, who says: Produce does not effect exchange, what can be said?</b>
+
+### Part 4
+The Gemara answers: According to this opinion, the mishna is dealing with money alone, and <b>this is what</b> the mishna <b>is saying: There is</b> a transaction involving <b>money that is like an exchange. How so?</b> If <b>one exchanged the monetary</b> value <b>of an ox for a cow, or the monetary</b> value <b>of a donkey for an ox,</b> the transaction is effective. In this case, one sold his ox to another for an agreed sum of money, and after the buyer acquired the ox by pulling it, he then offered to give the seller his cow in exchange for the money that he owes him. In this case the cow is acquired without the seller having to pull it. Although this acquisition initially was to be an exchange, it is ultimately a purchase for money, as the second animal is acquired as a result of the forgiving of the monetary debt.
+
+### Part 5
+<b>What is the reason</b> for this ruling in light of the <i>halakha</i> that one cannot acquire movable property by means of money alone? The Gemara explains that Rav Naḥman <b>holds in accordance with</b> the opinion of <b>Rabbi Yoḥanan, who said: By Torah law money effects acquisition,</b> i.e., when one pays money he acquires the item, even if he has not yet performed another act of acquisition. <b>And what is</b> the <b>reason</b> that the Sages <b>said</b> that <b>pulling acquires</b> an item and money does not? This is a rabbinic <b>decree lest</b> the seller <b>say to</b> the buyer after receiving the money: <b>Your wheat was burned in the loft.</b> If a fire breaks out or some other mishap occurs after a seller receives the money, he will not bother to save the goods in his house because they no longer belong to him, and the buyer may incur a loss.
+
+### Part 6
+The Sages therefore decreed that acquisition takes effect only when a buyer pulls the item. The reason that the mishna allows a transaction that indicates that one can effect acquisition using only money is because that case of the mishna as explained by Rav Naḥman is an uncommon occurrence. It is rare for one who has sold his animal in exchange for money to change his mind and request an animal from the purchaser instead. With regard to <b>a common occurrence, the Sages issued a decree,</b> whereas in the case of <b>an uncommon occurrence, the Sages did not issue a decree.</b> Consequently, the Sages did not apply their decree to this situation.
+
+### Part 7
+The Gemara asks: <b>And</b> how is the mishna explained <b>according to</b> the opinion of <b>Reish Lakish, who</b> disagrees with Rabbi Yoḥanan and <b>says</b> that <b>pulling</b> is <b>explicitly</b> stated <b>in the Torah?</b> Reish Lakish maintains that the acquisition of movable property cannot be performed with money by Torah law, and therefore there can be no distinction between common and uncommon cases. <b>This works out well if</b> Reish Lakish <b>holds in accordance with</b> the opinion of <b>Rav Sheshet, who says</b> that <b>produce effects exchange.</b> If so, he can <b>explain</b> the mishna <b>in accordance with</b> the opinion of <b>Rav Sheshet.</b>
+
+### Part 8
+<b>But if he holds in accordance with</b> the opinion of <b>Rav Naḥman, who says</b> that <b>produce does not effect exchange and a coin does not effect acquisition</b> by Torah law or by rabbinic law, <b>in what</b> manner <b>does he establish</b> the mishna? The Gemara answers: <b>Perforce</b> Reish Lakish <b>holds in accordance with</b> the opinion of <b>Rav Sheshet.</b>
+
+### Part 9
+<strong>MISHNA:</strong> <b>The authority of the Temple</b> treasury effects acquisition <b>by</b> means of <b>money</b> to the seller. <b>And the authority,</b> i.e., the mode of acquisition, <b>of a commoner</b> [<b><i>hedyot</i></b>] <b>is by possession.</b> Furthermore, <b>one’s declaration to the Most High,</b> i.e., when one consecrates an item through speech, <b>is equivalent to transferring</b> an item <b>to a common person,</b> and the item is acquired by the Temple treasury through his mere speech.
+
+### Part 10
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 1:6): <b>How does the authority of the Temple</b> treasury effect acquisition <b>by</b> means of <b>money?</b> With regard to the Temple <b>treasurer who gives coins for an animal, even</b> if the <b>animal is at the</b> other <b>end of the world, he acquires it</b> immediately. <b>And with regard to a commoner, he does not acquire</b> the animal <b>until he pulls</b> it.
+
+### Part 11
+<b>How is one’s declaration to the Most High equivalent to transferring</b> an item <b>to a common person?</b> With regard to <b>one who says: This ox is a burnt-offering,</b> or: <b>This house is consecrated</b> property, the Temple treasury <b>acquires</b> these <b>even</b> if they are <b>at the</b> other <b>end of the world.</b> There is no need for a further act of acquisition, as that statement alone is sufficient. Whereas <b>with regard to a commoner, he does not acquire</b> property in this manner
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

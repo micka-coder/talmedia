@@ -1,0 +1,27 @@
+
+### Part 1
+<b>that</b> does <b>not</b> have <b>written in it</b> the formulation: <b>We are aware of so-and-so’s duress,</b> i.e., we are aware of the nature of the coercion that forced him to enter this arrangement against his will, <b>is not</b> a valid preemptive <b>declaration.</b>
+
+### Part 2
+<b>For what</b> type of transaction is the preemptive <b>declaration</b> being stated? <b>If</b> one were to say that it is a preemptive declaration <b>for a bill of divorce or for a gift,</b> the preemptive declaration <b>is merely revealing the matter.</b> Since these actions can’t take place unless he desires it, it is sufficient that he stated that he does not desire them, and he need not specify a particular reason for nullifying them. <b>And if</b> it is <b>for a sale, but doesn’t Rava say: We do not write</b> a preemptive <b>declaration for a sale?</b>
+
+### Part 3
+The Gemara answers: <b>Actually,</b> it is referring to a preemptive declaration <b>for a sale,</b> as <b>Rava concedes</b> in a case <b>where one was compelled to act</b> due to a threat of monetary loss, <b>as with the incident of the orchard, as</b> there was <b>a certain man who mortgaged</b> his <b>orchard to another for three years. After he</b> worked and <b>profited</b> from <b>it</b> for the <b>three years</b> necessary <b>for</b> establishing the <b>presumption</b> of ownership, <b>he said: If you sell</b> the orchard <b>to me,</b> it is <b>well. And if not,</b> then <b>I will hide</b> the <b>mortgage document and I will say</b> that this land <b>is purchased</b> and that is why it is <b>in my possession,</b> and you will receive no payment for the orchard. <b>In a case like this, we write</b> a preemptive <b>declaration.</b> The declaration states that he does not actually desire to sell his property but was forced to do so.
+
+### Part 4
+§ <b>Rav Yehuda says:</b> With regard to <b>this</b> document detailing <b>a concealed gift, we do not collect with it.</b> The Gemara clarifies: <b>What are the circumstances</b> of <b>a concealed gift? Rav Yosef said:</b> It is referring to a case in <b>which</b> the giver <b>said to witnesses: Go</b> and <b>hide and write</b> a document <b>for</b> the recipient of this gift. <b>And there are</b> those <b>who say</b> that <b>Rav Yosef said:</b> It is referring to a case in <b>which</b> the giver <b>did not say to</b> witnesses: <b>Sit outdoors in the marketplace and write</b> it <b>for him.</b> The Gemara asks: <b>What is</b> the difference <b>between</b> the two versions of Rav Yosef’s statement? The Gemara answers: The difference <b>between</b> the two versions is in a case where his instructions were <b>without specification,</b> i.e., he did not tell them to write the document in private or in public.
+
+### Part 5
+<b>Rava said: But</b> a concealed gift <b>is</b> effective as a preemptive <b>declaration for another</b> gift. In other words, if he first gave an item as a concealed gift to one person, and then he gave this item as a gift to someone else, the second gift is null and void. <b>Rav Pappa said: This</b> ruling <b>of Rava was not stated explicitly; rather, it was stated by inference,</b> and he did not, in fact, hold accordingly.
+
+### Part 6
+Rav Pappa explains the inference: <b>As</b> there was <b>a certain man who went to betroth a woman. She said to him: If you write</b> a document signing over <b>all of your property to me,</b> then <b>I will be your</b> wife, <b>and if not, I will not be your</b> wife. <b>He went</b> and <b>wrote</b> a document signing over <b>all of his property to her. His eldest son came</b> and <b>said to him: And that man,</b> i.e., me, <b>what will become of him</b> if you give all of your property to this woman? The father <b>said to</b> two <b>witnesses: Go hide in Avar Yemina and write</b> a document <b>for</b> the son, giving him the father’s property as a gift. Later, the witnesses <b>came before Rava.</b> He <b>said to them:</b> This <b>Master,</b> i.e., the son, <b>did not acquire</b> the property <b>and</b> that <b>Master,</b> i.e., the wife, <b>did not acquire</b> it either. The son did not acquire the property because it was a concealed gift.
+
+### Part 7
+The Gemara explains why the wife does not acquire it as well. <b>One who observed</b> this incident <b>assumed</b> that Rava invalidated the wife’s acquisition <b>because</b> the concealed gift to his son <b>was</b> a preemptive <b>declaration to the other</b> gift, <b>but</b> that <b>is not so. There,</b> in the case of the woman and the son, <b>the matter</b> is self-<b>evident that he wrote</b> a document signing over his property <b>to her because of duress,</b> as she had told him that she would not marry him otherwise; <b>but here,</b> in a typical case of giving one person a concealed gift and then giving a public gift to another, that is not the case. It is possible that it is simply <b>amenable to him that</b> this <b>Master,</b> i.e., the one to whom he gave it publicly, <b>should acquire</b> the gift, <b>and</b> it is <b>not amenable to him that</b> this <b>Master,</b> i.e., the one to whom he gave it privately, <b>should acquire</b> the gift. Consequently, an incorrect inference was drawn concerning Rava’s opinion.
+
+### Part 8
+<b>A dilemma was raised before</b> the Sages:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

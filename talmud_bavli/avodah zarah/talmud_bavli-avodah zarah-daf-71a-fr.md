@@ -1,0 +1,24 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>Et</b> la Gemara <b>souleve une contradiction</b> a l'hypothese selon laquelle les soldats en temps de guerre n'ont pas le temps de commettre des transgressions a partir de ce qui est enseigne dans une autre mishna (<i>Ketubot</i> 27a) : En ce qui concerne <b>une ville qui a ete conquise par</b> une armee qui pose un <b>siege, toutes les femmes</b> mariees a des <b>pretres</b> situes <b>dans</b> la ville <b>sont inaptes</b> et interdites a leurs maris, en raison de la crainte qu'elles aient ete violees. <b>Rav Mari</b> a resolu la contradiction et <b>a dit : Elles n'ont pas le temps de verser</b> du vin pour les <b>liberations,</b> car leur passion pour l'idolatrie n'est pas pressante a ce moment-la, mais <b>elles ont le temps de s'engager dans des rapports sexuels,</b> car leur convoitise est grande meme en temps de guerre.
+
+### Partie 2
+<strong>MISHNA :</strong> En ce qui concerne les <b>artisans juifs a qui un Gentil a envoye un tonneau de vin</b> utilise pour <b>une libation en</b> lieu et place de <b>leur salaire,</b> il est <b>permis</b> pour eux <b>de lui dire</b> : <b>Donne-nous sa valeur monetaire</b> a la place. Mais <b>une fois qu'il est entre en leur possession,</b> il leur est <b>interdit</b> de le dire, car cela reviendrait a vendre le vin au Gentil et a en tirer un benefice.
+
+### Partie 3
+<strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Rav dit:</b> Il est <b>permis a une personne de dire a un Gentil : Va apaiser</b> les collecteurs de <b>la taxe gouvernementale</b> sur le vin <b>pour moi,</b> et je te rembourserai par la suite, meme s'il paie la taxe avec du vin utilise pour une libation.
+
+### Partie 4
+Un des Sages <b>a souleve une objection</b> d'une <i>baraita</i> : <b>Une personne ne peut pas dire a un Gentil : Va a ma place chez l'intendant [<i>laotzer</i>]</b> pour payer la taxe sur le vin a ma place, s'il la paie en vin utilise pour une libation. <b>Rav lui dit : Tu dis</b> que le cas auquel je fais reference est semblable a celui qui dit a un Gentil : <b>Allez a ma place a l'economat ?</b> Dans ce cas, puisqu'il dit : A ma place, tout ce que le Gentil donne a l'economat est considere comme si le Juif le donnait lui-meme. <b>Ce</b> cas auquel je fais reference <b>n'est comparable qu'a celui</b> qui est enseigne dans la <i>baraita</i> : <b>Mais</b> le Juif <b>peut dire a</b> un Gentil : <b>Sauve-moi de l'economat.</b>
+
+### Partie 5
+<strong>MISHNA :</strong> Dans le cas d'un Juif <b>qui vend son vin a un Gentil,</b> si <b>il a fixe</b> un prix <b>avant de mesurer</b> le vin dans le recipient du Gentil, tirer un benefice de <b>l'argent</b> paye <b>pour</b> le vin est <b>permis. </b> Cela ne revient pas a vendre du vin utilise pour une libation, car le Gentil a achete le vin avant qu'il ne devienne interdit, et l'argent appartenait deja au Juif. Mais si le Juif a <b>mesure</b> le vin dans le recipient du Gentil, le rendant ainsi interdit, <b>avant de fixer</b> un prix, <b>l'argent</b> paye <b>pour</b> le vin est <b>interdit.</b>
+
+### Partie 6
+<strong>GEMARA:</strong> <b>Ameimar dit:</b> L'acte juridique d' <b>acquerir</b> un objet <b>en le tirant</b> s'applique <b>a un Gentil. Sachez</b> qu'il en est ainsi, <b>comme ces Perses qui s'envoient des cadeaux [<i>pardashnei</i>] et ne les retractent pas,</b> ce qui montre qu'ils en acquierent un d'un autre en tirant l'objet seul, meme sans le payer. <b>Rav Ashi dit : En fait, je vous dirai</b> que le fait de <b>tirer</b> un objet <b>ne l'acquiert pas</b> dans une transaction impliquant <b>un Gentil, et</b> le fait <b>qu'ils ne retractent pas leurs</b> cadeaux n'est pas du aux <i>halakhot</i> d'acquisition mais <b>parce qu'ils sont pris de haut,</b> et qu'ils considerent comme honteux de retracter un cadeau.
+
+### Partie 7
+<b>Rav Ashi a dit : D'ou est-ce que je dis que</b> l'acquisition par tirage ne s'applique pas aux gentils ? C'est <b>a partir</b> de cela <b>que le Rav a dit a certains commercants de vin : Lorsque vous mesurez du vin pour des Gentils, prenez</b> les <b>dinars de ces derniers et mesurez</b> ensuite le vin <b>pour eux. Et s'ils n'ont pas de dinars avec eux</b> facilement disponibles, <b>pretez-leur</b> des dinars <b>et reprenez</b> ensuite ces dinars <b>de leur part, de sorte que ce soit un pret</b> accorde <b>a eux</b> qu'ils remboursent. <b>Comme si vous ne le faites pas, lorsqu'il devient du vin</b> utilise pour <b>une libation, il devient</b> ainsi <b>en votre possession, et lorsque vous prenez</b> l'argent, ce sera <b>un paiement pour le vin</b> utilise pour <b>une libation</b> que <b>vous prenez.</b> Rav Ashi conclut la preuve de son opinion : <b>Et s'il vous vient a l'esprit</b> que le fait de <b>tirer</b> un objet <b>acquiert</b> celui-ci <b>dans</b> une transaction impliquant <b>un Gentil,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

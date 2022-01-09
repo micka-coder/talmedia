@@ -1,0 +1,36 @@
+
+### Partie 1
+Et Rabbi Meir dit encore aux rabbins : <b>Et qu'en serait-il</b> si</b> il y avait l'<b>esclave d'un pretre, qui s'est enfui</b> de son maitre, <b>ou</b> la <b>femme d'un pretre qui s'est rebellee contre son mari,</b> ne sont-ils pas <b>autorises a <b>participer au <i>teruma</i>,</b> bien que ce ne soit pas le <i>teruma</i> appartenant au maitre ou au mari ? Ils sont autorises a prendre part au <i>teruma</i>. <b>Mais cet</b> esclave qui a ete emancipe <b>ne peut pas participer</b> a <i>teruma</i> du tout, meme <i>teruma</i> qui appartient a d'autres pretres. De toute evidence, l'emancipation se fait a son detriment.
+
+### Partie 2
+La Guemara demande : Si c'est le cas, alors Rabbi Meir <b>dit</b> et repond <b>bien</b> aux rabbins. Comment les rabbins repondent-ils a son affirmation ? <b>Rava dit : Voici ce que</b> ils <b>repondent</b> et lui disent <b>dans la mishna :</b> Le maitre peut disqualifier son esclave de participer au <i>teruma</i> dans tous les cas, <b>parce qu'il est son</b> maitres <b>acquisition.</b> L'implication de cette declaration est la suivante : <b>Ainsi, si</b> le maitre <b>desire</b> disqualifier son esclave de la participation a la <i>teruma</i> apres sa fuite, il peut <b>prendre quatre dinars a</b> tout <b>Israelite</b> en echange de l'esclave, <b>et il</b> le <b>disqualifie ainsi</b> de la participation a la <i>teruma</i> <b>tout endroit ou il se trouve</b>.
+
+### Partie 3
+La Gemara demande : <b>Et selon</b> l'avis de <b>Rabbi Meir,</b> son explication <b>fonctionne bien</b> en ce qui concerne l'<b>esclave d'un pretre</b> dont l'emancipation entraine la disqualification de la participation a <i>teruma</i>, et il est donc possible d'argumenter que son emancipation est a son detriment. Cependant en ce qui concerne l'<b>esclave d'un israelite, que peut-on dire ? Rabbi Shmuel bar Rav Yitzhak dit :</b> L'emancipation se fait meme au detriment de l'esclave d'un israelite, <b>parce que</b> en l'affranchissant son maitre lui <b>fait perdre</b> la possibilite <b>de</b> s'engager dans des rapports sexuels avec <b>une servante cananeenne. </b> Jusqu'a ce moment-la, il lui etait permis d'avoir des relations sexuelles avec une servante cananeenne, mais une fois qu'il est emancipe, ces femmes lui sont interdites.
+
+### Partie 4
+La Guemara souleve une difficulte : <b>Au contraire,</b> en l'emancipant, le maitre lui rend <b>permis</b> d'avoir des rapports sexuels <b>avec une femme libre.</b> La Gemara repond : Dans le cas d'un <b>esclave,</b> une vie <b>de licence est preferable pour lui.</b> Par consequent, il aurait plutot le droit d'avoir des rapports sexuels avec une servante cananeenne, car <b>elle est basse pour lui, elle est disponible pour lui, elle est sans restriction pour lui. </Aucune de ces descriptions ne s'applique a une femme juive, et il perd donc le benefice qu'il aurait pu recevoir en etant autorise a avoir des relations sexuelles avec une servante cananeenne. Par consequent, Rabbi Meir soutient que son emancipation est a son detriment.
+
+### Partie 5
+<strong>MISHNA :</strong> Dans le cas de <b>celui qui dit : Donne cet acte de divorce a ma femme,</b> ou : Donne <b>cet acte de manumission a mon esclave, et</b> ensuite il <b>mort, on ne le donne pas apres</b> sa <b>mort.</b> La raison en est que les actes de divorce et de manumission doivent etre transferes par le mari ou le maitre. Une fois qu'il est mort, le document ne peut plus etre donne, et l'agence qu'il a designee a cet effet est de meme annulee. Cependant, s'il a dit : <b>Donner cent dinars a untel, et</b> ensuite il est <b>mort, on donne</b> au beneficiaire l'argent <b>apres</b> sa <b>mort.</b>
+
+### Partie 6
+<strong>GEMARA:</strong> <b>Rav Yitzhak bar Shmuel bar Marta dit au nom du Rav : Et cette</b> decision, que l'on donne les cent dinars apres le deces du proprietaire, est la <i>halakha</i> seulement <b>lorsque</b> ces dinars <b>sont empiles et places dans un coin</b> au moment du commandement.
+
+### Partie 7
+La Gemara demande : <b>A quoi avons-nous affaire ? Si nous disons</b> que nous avons affaire <b>a une personne en bonne sante</b> qui ordonne aux autres de donner cent dinars, alors <b>quand ils sont empiles, qu'en est-il ?</b> Apres tout, le destinataire <b>n'a pas tire</b> l'argent, et il faut accomplir un acte d'acquisition pour prendre possession d'un bien meuble. <b>Disons plutot,</b> que nous avons affaire <b>a une personne <b>sur son lit de mort,</b> auquel cas des instructions verbales suffisent. Cependant, si tel est le cas, <b>pourquoi</b> cette <i>halakha</i> s'applique-t-elle <b>specifiquement</b> lorsque l'argent est <b>pile ? </b> Il devrait en etre de meme <b>lorsque</b> les pieces ne sont <b>pas empilees egalement, car nous soutenons</b> que <b>la declaration d'une personne <b>sur son lit de mort</b> qui distribue ses biens <b>est consideree comme si elle etait ecrite et remise.</b> Si tel est le cas, aucun autre acte d'acquisition ne devrait etre necessaire.
+
+### Partie 8
+<b>Rav Zevid dit : En fait,</b> la mishna traite <b>d'une personne en bonne sante, et</b> cette decision est <b>conforme</b> a ce que <b>Rav Huna</b> dit que <b>Rav dit. Comme le dit Rav Huna</b> ce <b>Rav dit :</b> En ce qui concerne celui qui dit a un autre : <b>Je</b> ai <b>cent dinars en ta possession ; donne-les a untel,</b> si cela s'est produit <b>en presence</b> des <b>trois</b> parties, cette troisieme personne l'a <b>acquis</b>. Ce type d'acquisition ne s'applique qu'a l'argent qui s'apparente a un depot, par exemple l'argent empile.
+
+### Partie 9
+<b>Rav Pappa a dit : En fait,</b> la mishna traite <b>avec</b> une personne <b>sur son lit de mort, et c'est en accord avec une autre</b> decision <b>de Rav, car Rav dit :</b> A l'egard d'une personne <b>sur son lit de mort qui a dit : Donne cent dinars a untel de mes biens,</b> la <i>halakha</i> depend de sa formulation precise. S'il a dit : Donne-lui <b>ces cent dinars,</b> ou l'argent se trouve dans un endroit precis, <b>on lui donne</b> l'argent. Par contre, s'il a simplement dit : <b>Cents dinars,</b> sans precision, on ne lui donne pas</b> l'argent.
+
+### Partie 10
+Pourquoi ne donne-t-on pas les cent dinars s'il n'a pas ajoute de specification supplementaire ? <b>Nous craignons</b> qu'il ait <b>peut-etre parle</b> d'une <b>centieme dinars enterree.</b> En d'autres termes, il aurait pu faire reference a une centaine de dinars specifique dont on ignore l'emplacement, et il n'avait pas l'intention de lui donner d'autre argent. Pour cette raison, le Rav explique que la mishna fait reference a l'argent entasse dans un endroit designe, auquel celui qui donne l'instruction se refere explicitement.
+
+### Partie 11
+La Guemara commente : <b>Et la <i>halakha</i></b> est que <b>on ne s'inquiete pas d'une somme enterree</b> de cent dinars, c'est-a-dire que la <i>halakha</i> n'est pas conforme a l'avis de Rav. La Guemara demande : <b>Quelle est la raison</b> pour laquelle <b>Rav Pappa n'a pas dit</b> une explication qui soit <b>conforme</b> a celle de <b>Rav Zevid</b> en ce qui concerne la declaration de Rav ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

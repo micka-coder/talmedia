@@ -1,0 +1,33 @@
+
+### Part 1
+It was further taught: <b>And she eats <i>teruma</i> on his account.</b> The Gemara explains: This is referring to <b><i>teruma</i></b> that applies <b>by rabbinic</b> law, not by Torah law. The Gemara attempts to offer a proof for this claim. <b>Come</b> and <b>hear</b> a <i>baraita</i>: If a non-priest <b>ate ritually impure <i>teruma</i></b> of a priest, he must <b>pay</b> him with <b>ritually pure, non-sacred</b> produce. In a case where he <b>paid</b> with <b>impure, non-sacred</b> food, <b>Sumakhos says in the name of Rabbi Meir</b> that if he did so <b>unwittingly, his payment is</b> considered <b>payment,</b> but if he acted <b>intentionally, his payment is not payment</b> at all. <b>And the Rabbis say: Both</b> in <b>this</b> case <b>and that</b> one <b>his payment is</b> a valid <b>payment,</b> and the food has the sanctity of <i>teruma</i>, although it is ritually impure, <b>and</b> he must also <b>go back and pay</b> him again with <b>pure, non-sacred</b> food.
+
+### Part 2
+<b>And we discussed</b> this <i>baraita</i> with regard to the following question: Why is it that according to the opinion of Rabbi Meir, when the non-priest pays the priest with ritually impure, ordinary food <b>intentionally, his payment</b> is <b>not</b> considered <b>payment?</b> On the contrary, the non-priest <b>should be blessed, as he ate something of his that is not fit for him</b> even <b>during</b> the priest’s <b>days of impurity,</b> as impure <i>teruma</i> must be burned, <b>and he pays</b> him with impure, ordinary food, which is <b>something that is fit for him during his days of impurity.</b> Admittedly, once he gives it to him, the produce becomes impure <i>teruma</i>, but at the time of his payment the food was available to be eaten.
+
+### Part 3
+<b>And Rava said, and some say</b> this statement <b>unattributed</b> to any particular Sage: The <i>baraita</i> <b>is incomplete, and this is</b> what it is <b>teaching:</b> If he <b>ate ritually impure <i>teruma</i>, he pays</b> with <b>anything,</b> even impure, non-sacred produce. If he <b>ate pure <i>teruma</i> he pays</b> with <b>pure, non-sacred</b> food, and if he <b>paid</b> with <b>impure, non-sacred</b> produce, the Sages disagreed about this case: <b>Sumakhos says in the name of Rabbi Meir:</b> If done <b>unwittingly, his payment is payment;</b> if <b>intentionally, his payment is not payment. And the Rabbis say: Whether unwittingly or intentionally, his payment is payment, and</b> he must <b>go back and pay</b> with <b>pure, non-sacred</b> produce.
+
+### Part 4
+The Gemara returns to the issue at hand, whether the court can stipulate to uproot something prohibited by Torah law. <b>And here</b> it is a case <b>where by Torah</b> law the produce he gave him <b>is proper payment,</b> and is fully owned by the priest, to the extent <b>that if a priest betroths a woman with them,</b> the <b>betrothal with her is valid. And</b> yet <b>the Sages said,</b> i.e., it is a rabbinic law, according to Sumakhos in the name of Rabbi Meir, that <b>his payment is not payment. And</b> this means that <b>we permit a married woman to all</b> men, as she is betrothed by Torah law but in practice she is treated as an unmarried woman. Evidently, a rabbinical prohibition overrides a betrothal that is effective by Torah law.
+
+### Part 5
+The Gemara answers: <b>What is</b> the meaning of the phrase: <b>His payment is not payment, that Rabbi Meir said?</b> It means <b>that he is required to go back and pay</b> with <b>ritually pure, non-sacred</b> produce. However, the food he initially gave is also consecrated. The Gemara asks: <b>If so,</b> the opinion of <b>Sumakhos is</b> the same as that of <b>the Rabbis.</b>
+
+### Part 6
+The Gemara answers that <b>Rav Aḥa, son of Rav Ika, said: The</b> practical difference <b>between them</b> is whether <b>they decreed</b> against <b>an unwitting</b> sinner <b>due to an intentional</b> sinner. According to Sumakhos, if he unwittingly paid with impure, non-sacred produce his payment is valid and the Sages did not penalize him with a second payment, whereas the Rabbis maintain that even if his sin was accidental he must repay the priest, as the Sages issue the decree in a case of a mistaken transgression due to the case of one who sinned intentionally.
+
+### Part 7
+The Gemara further suggests: <b>Come</b> and <b>hear</b> another proof. With regard to <b>blood that became ritually impure, and</b> a priest <b>sprinkled it</b> on the altar, the following distinction applies: If he did so <b>unwittingly,</b> the offering <b>is accepted.</b> If he sprinkled the blood <b>intentionally,</b> the offering <b>is not accepted.</b>
+
+### Part 8
+<b>And here</b> it is a case <b>where by Torah</b> law the blood <b>effects acceptance, as it is taught</b> in a <i>baraita</i>: <b>For what does the</b> High Priest’s <b>frontplate effect acceptance? For blood, for meat, and for fat that became impure, whether unwittingly or intentionally, whether by unavoidable accident or willingly, whether</b> in the case <b>of an individual</b> offering <b>or</b> an offering <b>of the community. And the Sages said</b> that if a priest sprinkled impure blood intentionally the frontplate <b>does not effect acceptance,</b> and its owner must bring another offering. The Gemara infers: Since he is not obligated to bring this extra offering by Torah law, in essence he <b>subsequently brings in a non-sacred</b> animal <b>to</b> the Temple <b>courtyard.</b>
+
+### Part 9
+<b>Rabbi Yosei bar Ḥanina said</b> that there is no proof from here, as <b>what is</b> the meaning of the phrase: <b>Does not effect acceptance, that</b> the <i>tanna</i> of the <i>baraita</i> <b>said?</b> It means that it does not effect acceptance <b>in</b> the sense that it <b>permits</b> the meat of the offering <b>to be eaten. However, the owners</b> themselves <b>attain atonement through it,</b> and they do not have to bring another offering.
+
+### Part 10
+The Gemara raises a difficulty: <b>Ultimately,</b> the Torah mitzva of <b>eating</b> the <b>meat</b> of this offering <b>is uprooted, and it is written: “And they shall eat those things with which atonement was made”</b> (Exodus 29:33). This verse <b>teaches that the priests eat</b> the offering <b>and</b> the <b>owner</b> thereby <b>gains atonement. He said to him:</b> The case of <b>sit and refrain from action [<i>shev ve’al ta’aseh</i>] is different.</b> In other words, the Sages can uproot a Torah mitzva by instructing one to sit and <b>refrain from action,</b> i.e., to remain passive and do nothing. They cannot, however, uproot a mitzva by telling him to perform an action.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+<b>This</b> is what Rav Kahana <b>is saying: Who is a pauper</b> who, due to his poverty, becomes <b>a conniving, wicked person? This is one who delays</b> the marriage of <b>his daughter</b> who is <b>a grown woman. And Rav Kahana says in the name of Rabbi Akiva: Beware of one who advises you according to his</b> own <b>interests,</b> as he is likely motivated by personal gain.
+
+### Part 2
+<b>Rav Yehuda says</b> that <b>Rav says: One who marries his daughter to an old man, and one who takes a wife for his minor son, and one who returns a lost item to a gentile</b> are all individuals who are the cause of sin. Marriage to an old man or a minor leaves the woman unsatisfied and is apt to lead to licentiousness. One who returns lost property to gentiles adds to the property that they stole from Jews. <b>With regard to</b> each of them <b>the verse states:</b> “Lest there should be among you a man or a woman…whose heart turns away this day from the Lord…saying: I will have peace, even though I walk in the stubbornness of my heart, <b>that the quenched shall be added to the thirsty. The Lord will not be willing to pardon him”</b> (Deuteronomy 29:17–19).
+
+### Part 3
+The Gemara <b>raises an objection</b> to one element of the ruling of Rav from a <i>baraita</i>: One <b>who loves his wife as</b> he loves <b>himself, and who esteems her</b> by giving her clothing and jewelry <b>more than</b> he esteems <b>himself, and</b> one <b>who instructs his sons and daughters to</b> follow <b>an upright path, and who marries them</b> to appropriate spouses <b>adjacent to their</b> reaching <b>puberty,</b> ensures that his home will be devoid of quarrel and sin. <b>Concerning him the verse states: “And you shall know that your tent is in peace; and you shall visit your habitation and shall miss nothing”</b> (Job 5:24). The <i>baraita</i> indicates that it is a mitzva to marry one’s children to appropriate spouses while they are young, contrary to the statement of Rav that one who takes a wife for his minor son causes sin. The Gemara replies: <b>Adjacent to their</b> reaching <b>puberty is different</b> from marrying her to a minor, as there is no concern that his daughter will sin during the brief period until her husband reaches puberty.
+
+### Part 4
+<b>The Sages taught: One who loves his neighbors, and one who brings his relatives close, and one who marries the daughter of his sister,</b> an example of a woman that he knows and likes before taking her as his wife, <b>and one who lends a <i>sela</i> to a poor man at his time of need,</b> when he has no alternative source of funds, <b>with regard to</b> each of them <b>the verse states:</b> “Break your bread for the hungry, and the poor that are cast out bring to your house; when you see the naked, you shall clothe him, and hide not yourself from your own flesh…<b>then shall you call, and the Lord will answer;</b> you shall cry, and He will say: Here I am” (Isaiah 58:7–9).
+
+### Part 5
+§ <b>The Sages taught</b> with regard to the verse: “And if a man takes a woman and her mother, it is lewdness; they shall be burned with fire both him and them, and there shall be no lewdness among you” (Leviticus 20:14). What is the meaning of <b>“both him and them”?</b> It means <b>him and one of them,</b> as one woman is his wife. He is liable for engaging in intercourse with the other woman; this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> It means <b>him and the two of them.</b>
+
+### Part 6
+The Gemara asks: <b>What</b> is the difference <b>between them?</b> Clearly Rabbi Akiva does not hold that his wife is punished when he engages in intercourse with her relative. <b>Abaye says:</b> The difference <b>between</b> Rabbi Akiva and Rabbi Yishmael <b>is</b> with regard to <b>the interpretation of the meaning</b> of the verse.
+
+### Part 7
+<b>Rabbi Yishmael holds</b> that the term <b>“both him and them [<i>et’hen</i>]”</b> means <b>him and one of them, as in the Greek language one calls</b> the number <b>one <i>heina</i>.</b> The prohibition in the verse is with regard to one who engages in intercourse with the mother of his wife. <b>And</b> the prohibition of engaging in intercourse with <b>the mother of his mother-in-law is derived through an interpretation</b> of the verses and is not written explicitly in the Torah. <b>Rabbi Akiva holds</b> that the term <b>“both him and them”</b> means <b>him and both of them;</b> the prohibition in the verse is with regard to one who engages in intercourse with his mother-in-law, <b>and</b> the prohibition for engaging in intercourse with <b>the mother of his mother-in-law</b> is also <b>written here</b> explicitly.
+
+### Part 8
+<b>Rava says:</b> Rabbi Yishmael and Rabbi Akiva agree that the prohibition with regard to the mother of his mother-in-law is derived through interpretation, and the difference <b>between them</b> is with regard to one who engages in intercourse with <b>his mother-in-law after</b> the <b>death</b> of his wife. <b>Rabbi Yishmael holds</b> that one who engages in intercourse with <b>his mother-in-law after</b> the <b>death</b> of his wife is executed <b>by burning.</b> The verse indicates: Both him and one of them, meaning that he is liable to be executed by burning even if only one of the pair of his wife and mother-in-law is alive, i.e., when his wife is deceased and he engages in intercourse with his mother-in-law. <b>And Rabbi Akiva maintains</b> that in that case, one violates <b>a mere prohibition</b> and is not liable to be executed.
+
+### Part 9
+mishna <b>And these are</b> the transgressors <b>who are killed</b> by decapitation in the implementation of the court-imposed death penalty: <b>The murderer; and the residents of an idolatrous city,</b> all of whom engaged in idol worship.
+
+### Part 10
+The mishna elaborates: In the case of <b>a murderer who struck another with a stone or with iron, or held him in the water or in the fire, and</b> the victim <b>could not extricate himself from there and he died,</b>the murderer is <b>liable</b> to be executed.
+
+### Part 11
+If <b>one pushed</b> another <b>into the water or into the fire and</b> that person <b>could have extricated himself from there</b> but failed to do so, <b>and he died,</b> the one who pushed him is <b>exempt</b> from punishment by a court, as he caused the death but did not actually kill the victim. For the same reason, if <b>one set a dog against</b> another and the dog killed him, or if <b>one set a snake against</b> another and the snake killed him, the one who set the dog or the snake is <b>exempt</b> from punishment. If he imbedded the snake’s fangs into another and <b>caused the snake to bite him</b> and kill him, <b>Rabbi Yehuda deems</b> him <b>liable</b> to be executed, as he is a murderer, <b>and the Rabbis exempt</b> him, as they maintain that he indirectly caused the individual’s death.
+
+### Part 12
+gemara The verses state with regard to a murderer: “And if he struck him with a stone in hand, by which a man may die…or if he struck him with an instrument of wood in hand, by which a man may die, and he died, he is a murderer; the murderer shall be put to death” (Numbers 35:17–18). The term “in hand” indicates that one is liable for murder only if he utilized a stone or a wooden instrument that was of at least a certain measure. <b>Shmuel says: For what</b> reason was the term “in <b>hand” not stated with regard to the iron</b> instrument, as it is written: “But if he struck him with an instrument of iron, so that he died” (Numbers 35:16)? The reason is <b>that an iron</b> instrument <b>of any size kills.</b>
+
+### Part 13
+<b>This is also taught</b> in a <i>baraita</i>. <b>Rabbi</b> Yehuda HaNasi <b>says: It is revealed and known before He Who spoke and the world came into being that an iron</b> instrument <b>of any size kills. Therefore, the Torah did not provide a measure for it.</b> The Gemara comments: <b>And this statement</b> applies only <b>when</b> the murderer <b>stabbed him</b> with the iron instrument. But in a case where the murderer struck another with an iron instrument, he is liable only if the instrument was at least a certain measure capable of causing death.
+
+### Part 14
+§ The mishna teaches: <b>Or held him in the water</b> and that other person <b>died,</b> the murderer is liable. The Gemara comments: <b>The first clause</b> of the mishna <b>teaches us a novel</b> element, <b>and the latter clause</b> of the mishna <b>teaches us a novel</b> element. <b>The first clause teaches us a novel</b> element: <b>Even though it was not he who pushed</b> the individual into the water, <b>since</b> he held the victim and the victim <b>could not extricate himself from there and he died,</b> the one who held him in the water is <b>liable</b> to be executed. <b>The latter clause teaches us a novel</b> element: <b>Even though he pushed</b> the individual into the water, <b>since</b> the victim <b>could have extricated himself from there</b> but failed to do so <b>and he died,</b> the one who pushed him is <b>exempt</b> from punishment.
+
+### Part 15
+The Gemara asks: <b>From where do we</b> derive that one who <b>held</b> another in the water is liable to be executed? <b>Shmuel says:</b> It is derived from a verse, <b>as the verse states: “Or in enmity</b> he struck him with his hand and he died, the assailant shall be put to death; he is a murderer” (Numbers 35:21). The phrase “or in enmity” serves <b>to include one who confines</b> another in a place where he cannot survive.
+
+### Part 16
+There was <b>a certain man who confined the animal of another</b> in a place <b>in the sun and it died</b> from exposure to the sun. <b>Ravina deemed</b> the man <b>liable</b> to recompense the owner as though his action caused the death of the animal. <b>Rav Aḥa bar Rav deemed</b> him exempt from recompensing the owner, as it was not his action that caused the death of the animal.
+
+### Part 17
+The Gemara elaborates: <b>Ravina deemed</b> him <b>liable</b> to recompense the owner, and he derived it by means of <b>an <i>a fortiori</i></b> inference: <b>Just as</b> with regard to <b>a murderer, where</b> the Torah <b>did not render</b> the legal status of one who kills <b>unwittingly,</b> who is exiled, <b>like</b> that of one who kills <b>intentionally,</b> who is executed, <b>and</b> did not render the status of one who kills <b>due to circumstances beyond his control,</b> who is exempt from punishment, <b>like</b> that of one who kills <b>with intent,</b> who is liable, nevertheless the Torah <b>rendered one who confines</b> another in a place where he cannot survive <b>liable</b> to be executed, even though he did not perform an action;
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

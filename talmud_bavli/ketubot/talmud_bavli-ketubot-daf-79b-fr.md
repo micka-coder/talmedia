@@ -1,0 +1,48 @@
+
+### Partie 1
+la <b>descendance</b> d'un <b>animal de</b> la propriete d'une femme <b>usufruit</b> <b>doit payer le paiement du double</b> du principal <b>a la femme.</b> Apparemment, cette decision est basee sur l'hypothese que la descendance n'est pas traitee comme le produit de sa propriete mais comme le principal, qui appartient a la femme.
+
+### Partie 2
+La Gemara demande : <b>Selon l'avis de qui</b> cette <i>halakha</i> a ete enoncee ? Il n'est <b>pas conforme</b> a l'avis des <b>Rabbins, et pas conforme</b> a celui de <b>Hananya.</b> La Gemara explique la dispute a laquelle il est fait allusion ici : <b>Comme il est enseigne</b> dans une <i>baraita</i> : <b>La progeniture</b> d'un <b>animal en usufruit</b> appartient <b>au mari,</b> alors que <b>l'enfant</b> d'une <b>servante en usufruit</b> appartient <b>a la femme. Et Hananya, fils du frere de Yoshiya, dit : Ils ont fait</b> le statut de l'<b>enfant</b> d'une servante en usufruit comme</b> celui de <b>la progeniture</b> d'un <b>animal en usufruit,</b> qui appartient au mari. Les deux opinions dans le <i>baraita</i> s'accordent a dire que la progeniture d'un animal en usufruit appartient au mari. Pourquoi, alors, le voleur doit-il verser le double paiement a la femme ?
+
+### Partie 3
+La Gemara repond : <b>On</b> peut <b>meme dire</b> que <b>tous sont d'accord</b> avec la decision de Rabbi Yannai, car il y a une difference entre l'usage general des biens et le double paiement. En effet, <b>les Sages ont institue pour</b> le mari la consommation du <b>produit,</b> mais <b>les Sages n'ont pas institue pour lui</b> la consommation du <b>produit du</b> <b>produit.</b> Le double paiement n'a pas le statut de la progeniture elle-meme mais de produit resultant de son vol, qui est considere comme le produit du produit et est donc donne a la femme.
+
+### Partie 4
+La Guemara demande : <b>Grace, selon Hananya,</b> qui assimile la <i>halakha</i> de l'enfant d'une servante a celle de la progeniture d'un animal, <b>c'est parce que nous ne sommes pas concernes par</b> la <b>mort</b> de la mere. Par consequent, la mere est le principal tandis que sa progeniture est consideree comme le produit.
+
+### Partie 5
+<b>Mais</b> selon <b>les rabbins, si</b> ils <b>sont concernes par</b> le <b>mort</b> de la mere, et c'est pourquoi l'enfant d'une servante appartient a l'epouse, <b>meme</b> la <b>descendance</b> d'un <b>animal usufruitier</b> ne devrait <b>pas</b> avoir le statut de produit <b>non plus. </b> Au contraire, elle devrait avoir le statut de principal, car si l'animal usufruitier meurt, la femme se retrouvera sans rien. Par consequent, la progeniture doit etre consideree comme un remplacement de sa mere. <b>Et si</b> ils <b>ne se preoccupent pas</b> du <b>deces</b> de la mere, <b>meme l'enfant d'une servante usufruitiere</b> devrait <b>aussi</b> appartenir au mari en tant que produit de sa propriete. Pourquoi, alors, font-ils une distinction entre ces deux cas ?
+
+### Partie 6
+La Gemara repond : <b>En fait,</b> les rabbins <b>s'interessent a la mort, mais</b> la <i>halakha</i> d'un <b>animal est differente, car il y a</b> encore <b>sa peau,</b> qui subsiste apres la mort. Par consequent, le principal n'est pas entierement perdu meme si l'animal meurt.
+
+### Partie 7
+<b>Rav Huna bar Hiyya a dit</b> que <b>Shmuel a dit :</b> La <b><i>halakha</i> est en accord avec</b> l'opinion de <b>Hananya</b> que l'enfant d'une servante appartient au mari. <b>Rava dit</b> que <b>Rav Nahman a dit : Bien que Shmuel ait dit</b> que la <b><i>halakha</i> est conforme</b> a l'opinion de <b>Hananya, Hananya concede que si</b> la femme <b>a ete divorcee, elle verse de l'argent et prend</b> les enfants de ses servantes, <b>parce que</b> ce sont des <b>biens de sa famille paternelle,</b> et il est inconvenant que les enfants des esclaves de sa famille appartiennent a quelqu'un d'autre.
+
+### Partie 8
+<b>Rava dit</b> que <b>Rav Nahman a dit : Si elle a apporte</b> au mariage <b>pour lui une chevre pour son lait, ou un mouton pour sa tonte, ou une poule pour ses œufs, ou un palmier pour ses produits,</b> le mari <b>continue a consommer</b> les produits <b>jusqu'a ce que le principal soit consomme,</b> et on ne craint pas que la femme reste sans rien de valeur. De meme, <b>Rav Nahman a dit :</b> Si <b>elle a apporte pour lui un manteau</b> comme bien d'usufruit, c'est <b>un produit,</b> et <b>il peut se couvrir</b> <b>avec jusqu'a</b> ce qu'il <b>soit consomme.</b>
+
+### Partie 9
+La Guemara commente : <b>Selon l'avis de qui</b> cette decision ? Elle est <b>conforme a cette <i>tanna</i>, telle qu'elle est enseignee</b> dans une <i>baraita</i> : Si les biens en usufruit d'une epouse comprennent un emplacement sur le rivage d'ou sont extraits <b>sel et sable</b>, <b>cette</b> extraction <b>est</b> reputee <b>produit. </b> Quant a <b>une carriere de soufre</b> ou <b>une mine d'alun, Rabbi Meir dit :</b> Celles-ci sont reputees <b>principales,</b> car la mine contient une quantite finie de substance, <b>et les rabbins disent :</b> Les extractions de ces endroits sont des <b>produits,</b> alors que l'emplacement de la mine est le principal. La decision du Rav Nahman selon laquelle le manteau est repute produit est conforme a l'opinion des rabbins selon laquelle les extractions sont reputees produits.
+
+#### Partie 10
+§ La mishna indique que <b>Rabbi Shimon dit :</b> Dans un <b>cas ou son droit est superieur</b> a son entree, son droit est inferieur a sa sortie s'il divorce. Inversement, dans le cas ou son droit est inferieur a son entree, son droit est superieur a sa sortie. La Guemara demande : La declaration de <b>Rabbi Shimon</b> est identique a celle de <b>la premiere <i>tanna</i>,</b> c'est-a-dire les rabbins. Pourquoi, alors, les deux sont-ils necessaires ? <b>Rava dit :</b> La difference pratique <b>entre eux</b> est le statut des produits qui etaient <b>attaches au moment</b> de son <b>depart</b> du mariage. Les rabbins, qui n'ont pas aborde directement cette question, soutiennent qu'elle lui appartient, alors que Rabbi Shimon dit qu'elle lui appartient.
+
+### Partie 11
+<strong>MISHNA :</strong> Si des <b>esclaves ages ou des servantes lui ont ete legues, ils sont vendus et une terre est acquise avec eux, et</b> le mari <b>consomme le produit</b> de la terre. <b>Rabban Shimon ben Gamliel dit : Elle</b> n'a pas besoin de <b>vendre</b> ces esclaves et servantes, <b>car ils sont des biens de sa famille paternelle,</b> et il serait honteux pour la famille qu'ils soient vendus a d'autres. De meme, si des <b>anciens oliviers</b> <b>ou des vignes lui ont ete legues, on les vend et on acquiert des terres avec eux, et il en consomme le produit. Rabbi Yehuda dit : Elle</b> n'a pas besoin <b>de les vendre</b>, <b>car ce sont des biens de sa famille paternelle.</b>
+
+### Partie 12
+<strong>GEMARA :</strong> <b>Rav Kahana dit</b> que <b>Rav a dit :</b> Ce <b>dispute</b> concernant les oliviers et les vignes fait reference a un cas <b>ou ils lui ont ete legues</b> dans son champ,</b> car ils sont des biens de sa famille paternelle, et par consequent Rabbi Yehouda regle qu'elle n'a pas besoin de les vendre. <b>Mais</b> si elle les a recus <b>dans un champ qui n'est pas le sien, tout le monde est d'accord</b> qu'elle doit les <b>vendre</b> <b>parce que</b> le <b>principal</b> sera <b>consomme.</b> Comme ces arbres ne donneront pas beaucoup de produits, ils finiront par etre deracines, et les biens transitoires ne sont pas inclus dans la categorie des biens de sa famille paternelle.
+
+### Partie 13
+<b>Rav Yosef s'oppose a cela : Mais</b> les <b>esclaves et servantes ages sont consideres comme un champ qui ne lui appartient pas,</b> car il ne restera rien du principal, <b>et</b> pourtant Rabban Shimon ben Gamliel et le premier <i>tanna</i> <b>desaccord</b> sur ce cas. La Guemara se retracte : <b>Au contraire,</b> si la declaration du Rav Kahana ci-dessus <b>a ete enoncee, elle l'a ete comme suit : Rav Kahana a dit</b> que <b>Rav a dit :</b> Ce <b>dispute</b> en ce qui concerne les oliviers et les vignes fait reference au cas ou ils se trouvent <b>dans un champ qui n'est pas le sien, mais</b> s'ils se trouvent <b>dans son champ, tout le monde est d'accord</b> pour dire que <b>elle</b> ne doit pas <b>les vendre</b>, <b>parce que</b> ce sont des <b>biens de sa famille paternelle.</b>
+
+### Partie 14
+<strong>MISHNA : </strong>En ce qui concerne <b>celui qui paie des depenses pour les biens de sa femme</b> dans le but de les ameliorer, si <b>il a paye un grand</b> montant en depenses <b>et n'a mange</b> qu'une <b>petite</b> quantite de produits avant de divorcer, ou s'il a paye <b>un petit</b> montant en depenses <b>et mange une grande</b> quantite de produits, <b>ce qu'il a depense, il l'a depense, et ce qu'il a mange, il l'a mange. </b> Par consequent, rien de tout cela n'a besoin d'etre restitue. Toutefois, s'il a <b>paye</b> des depenses pour le bien <b>et n'en a pas mange</b> une partie, <b>il prete serment</b> en ce qui concerne <b>le montant qu'il a paye et</b> ensuite <b>prend</b> ses depenses.
+
+### Partie 15
+<strong>GEMARA:</strong> La Gemara demande : <b>Et combien est</b> un <b>petit</b> montant ? <b>Rabbi Asi dit :</b> C'est <b>meme une figue seche, a condition qu'il l'ait mangee d'une maniere digne</b> du proprietaire du produit et qu'il ne l'ait pas mangee en arrachant le produit. Il a ete <b>dit</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

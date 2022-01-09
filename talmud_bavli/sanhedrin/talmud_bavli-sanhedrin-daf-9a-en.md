@@ -1,0 +1,21 @@
+
+### Part 1
+the witnesses <b>warned her</b> that she would be liable to receive <b>lashes, but</b> they <b>did not warn her</b> that she would be liable to receive the <b>death</b> penalty. In that case, the court would try her for adultery, and if found guilty she would receive lashes and not the death penalty.
+
+### Part 2
+<b>And they disagree with regard to</b> the issue that is the subject of <b>the dispute between Rabbi Yishmael and the Rabbis, as we learned</b> in the mishna: One who is accused of violating a prohibition that would render him liable to receive <b>lashes</b> must be judged <b>by three</b> judges. <b>In the name of Rabbi Yishmael</b> it <b>was stated:</b> Cases involving lashes must be adjudicated <b>by twenty-three</b> judges. Therefore, Rabbi Meir holds that the case of the defamer may be adjudicated by three judges, because he holds that a court of three may administer lashes. The dissenting opinion, which holds that lashes may be administered only by twenty-three judges, also holds that this case must be adjudicated by a court of twenty-three.
+
+### Part 3
+<b>Ravina says</b> a different explanation: The case in the mishna is discussing a situation <b>where one of the witnesses is found</b> to be a close <b>relative or a disqualified</b> witness, but two valid witnesses still remain. <b>And</b> Rabbi Meir and the Rabbis <b>disagree with regard to</b> the issue that is the subject of <b>the dispute between Rabbi Yosei and Rabbi</b> Yehuda HaNasi <b>with regard to</b> the opinion of <b>Rabbi Akiva. As we learned</b> in a mishna (<i>Makkot</i> 5b) that <b>Rabbi Akiva says:</b> When the verse states: “At the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established” (Deuteronomy 17:6), <b>the third</b> witness is mentioned <b>only to be stringent with him, to make his status like these</b> other two witnesses. If a group of three witnesses is found to be conspiring witnesses, the third one might claim that his testimony was unnecessary and therefore did no harm. The Torah nevertheless imposes upon him the same strict punishment as his peers.
+
+### Part 4
+Rabbi Akiva elaborates upon the implications of this <i>halakha</i>. <b>If so, the Torah punishes</b> the one who acts as <b>an accessory to transgressors</b> with the same punishment <b>as the</b> primary <b>transgressors. All the more so,</b> God <b>will grant the reward to</b> an individual who acts as <b>an accessory to</b> one who <b>performs a mitzva like</b> the primary <b>one who performs a mitzva,</b> for the measure of good is always greater than the measure of suffering (see <i>Sota</i> 11a).
+
+### Part 5
+Additionally, this teaches that <b>just as</b> in the case of <b>two</b> witnesses, if <b>one of them is found</b> to be a close <b>relative or a disqualified</b> witness <b>their testimony is nullified,</b> as the single remaining witness is not able to testify alone, <b>so too,</b> in the case of <b>three</b> witnesses, if <b>one of them is found</b> to be a close <b>relative or a disqualified</b> witness <b>their testimony is nullified. And from where</b> is it derived <b>that</b> this applies <b>even</b> to a group of <b>one hundred</b> witnesses? <b>The verse states: “Witnesses.”</b>
+
+### Part 6
+The <i>tanna’im</i> discussed how Rabbi Akiva’s opinion is to be understood. <b>Rabbi Yosei says: In what</b> situation <b>is this statement,</b> that if one of them is found to be a close relative or a disqualified witness their testimony is nullified, <b>said? In</b> cases of <b>capital law. But in</b> cases of <b>monetary law, the testimony</b> may be <b>upheld with the other</b> witnesses. <b>Rabbi</b> Yehuda HaNasi <b>says:</b> Rabbi Akiva’s opinion applies to <b>both</b> cases of <b>monetary law and</b> cases of <b>capital law. And when</b> is this so? <b>When</b> the relatives or disqualified witnesses also <b>warned</b> the transgressors and therefore actively included themselves in the group of witnesses; <b>but when</b> they <b>did not warn</b> the transgressors, they are not counted as witnesses at all.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

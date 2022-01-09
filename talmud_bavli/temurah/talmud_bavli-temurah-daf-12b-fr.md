@@ -1,0 +1,42 @@
+
+### Part 1
+<b>et</b> de cette maniere, les quarante <i>seâ</i> <b>sont rituellement purs.</b> La raison en est <b>que l'eau puisee</b> <b>est purifiee par une majorite</b> d'eau adaptee qui etait deja presente dans le bain rituel <b>et par</b> l'eau puisee <b>qui coule</b> dans le bain rituel. C'est le sens de la declaration de la mishna selon laquelle l'eau puisee n'invalide le bain rituel que selon le calcul : On calcule la quantite d'eau puisee qui a coule dans le bain rituel, car le bain rituel n'est invalide que si la majeure partie des quarante <i>seâ</i> est de cette eau puisee.
+
+### Partie 2
+La Guemara demande : Si tel est l'avis de Rabbi Eliezer ben Yaâkov seul, on doit conclure <b>par deduction que les rabbins soutiennent que</b> le bain rituel est <b>non</b> apte meme <b>par</b> une <b>majorite</b> d'eau apte <b>et par</b> l'<b>ecoulement</b> de l'eau puisee. <b>Mais</b> si tel est le cas, considerez <b>cette</b> que <b>Ravin</b> a dit <b>lorsque</b> il est <b>arrive</b> d'Eretz Yisrael en Babylonie, a savoir que <b>Rabbi Yohanan a dit :</b> Un bain rituel qui consiste <b>dans sa totalite</b> en eau <b>tiree</b> <b>que l'on a fait couler</b> dedans <b>est pur. </b> Conformement a l'avis de <b>qui</b> cela ? Il n'est <b>pas</b> conforme a l'avis des <b>Rabbins,</b> qui soutiennent que l'eau tiree invalide le bain rituel meme si elle y a coule, <b>et</b> il n'est <b>pas</b> conforme a l'avis de <b>Rabbi Eliezer</b> ben Yaâkov, qui soutient que l'eau tiree invalide le bain rituel si elle constitue la majorite des quarante <i>seâ</i>.
+
+### Partie 3
+<b>Rabba dit plutot :</b> La decision de la mishna, selon laquelle l'eau puisee invalide le bain rituel uniquement selon le calcul, ne fait pas reference a l'eau puisee qui a coule. Elle signifie plutot <b>selon</b> le <b>calcul du</b> nombre de <b>vases</b> desquels l'eau puisee a ete directement versee dans le bain rituel, <b>et</b> ceci <b>est</b> conforme a l'avis de <b>Yosef ben Honi.</b>
+
+### Partie 4
+<b>Comme il est enseigne</b> dans une <i>baraita</i> : Si <b>trois <i>log</i> d'eau tiree sont tombes dans l'eau</b> d'un bain rituel qui n'avait pas la mesure requise, <b>de deux ou trois recipients,</b> chacun contenant au moins un <i>log</i> d'eau tiree, <b>ou meme de quatre ou cinq recipients,</b> ou aucun <i>log</i> entier n'est tombe d'un coup, cela <b>invalide le bain rituel. Yosef ben Honi dit :</b> C'est seulement si l'eau puisee etait <b>dans deux ou trois recipients</b> que l'eau <b>invalide le bain rituel.</b> Mais si l'eau puisee etait <b>dans quatre ou cinq</b> recipients, l'eau <b>n'invalide pas le bain rituel.</b> C'est ce que veut dire la mishna.
+
+### Partie 5
+§ La mishna enseigne : <b>Et l'eau de purification</b> de la genisse rouge <b>devient une eau de purification uniquement</b> avec le placement des cendres dans l'eau, mais pas par le placement de l'eau sur les cendres. La Guemara demande : <b>Qui est le <i>tanna</i></b> dont l'opinion est refletee dans cette decision ? <b>Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit que</b> c'est <b>non conforme</b> a l'avis de <b>Rabbi Shimon.</b>
+
+### Partie 6
+<b>Comme il est enseigne</b> dans une <i>baraita</i> : Une <i>sota</i>, une femme soupconnee d'infidelite par son mari, doit boire des eaux ameres preparees dans le Temple. Le verset indique : "Le prêtre prendra de l"?eau sainte dans un vase de terre ; il prendra de la poussière qui se trouve sur le sol du Tabernacle et la mettra dans l"?eau" (Nombres 5:17). Ce verset enseigne que l'eau doit d'abord etre placee dans le recipient, et que la poussiere est placee par-dessus. Si on place la <b>poussiere</b> dans le recipient <b>avant l'eau,</b> le melange est <b>inadequat, mais Rabbi Shimon le juge</b> <b>adequat.</b>
+
+### Partie 7
+La Guemara explique : <b>Quel est le raisonnement de Rabbi Shimon ? Comme il est ecrit</b> a propos de la genisse rouge : <b>"Et pour les impurs, ils prendront de la poussiere de la brulure de la purification du peche, et placeront dessus de l'eau courante</b> dans un recipient" (Nombres 19:17). <b>Et il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Shimon a dit : Mais est-ce la poussiere [<i>afar</i>]</b> qui est prise ? <b>Ne s'agit-il pas</b> en realite de <b>coulees [<i>efer</i>] ?</b>
+
+### Partie 8
+De toute evidence, <b>le verset a modifie son</b> <b>usage standard</b> et a designe les cendres comme de la poussiere afin de <b>en tirer une analogie verbale : "La poussiere" est enoncee</b> dans le verset <b>ici, et "la poussiere" est enoncee la,</b> en ce qui concerne la <i>sota</i>. <b>De meme que la,</b> dans le cas de la <i>sota</i>, le verset enseigne que la <b>poussiere</b> doit etre placee <b>au-dessus de l'eau, de meme ici,</b> en ce qui concerne la genisse rouge, la <b>poussiere,</b> c'est-a-dire les cendres, doit etre placee <b>au-dessus de l'eau. Et</b> de meme, <b>comme ici,</b> en ce qui concerne la genisse rouge, si on place la <b>poussiere</b> dans le recipient <b>avant l'eau,</b> elle est <b>adaptee</b> apres coup, <b>de meme la,</b> dans le cas de la <i>sota</i>, si on place la <b>poussiere</b> dans le recipient <b>avant l'eau,</b> elle est <b>adaptee</b> apres coup.
+
+### Partie 9
+La Gemara demande : <b>Et ici,</b> en ce qui concerne la genisse rouge, <b>d'ou deduit-on</b> que le melange est apte meme si la poussiere est placee en premier ? <b>Deux phrases sont ecrites.</b> D'abord il est ecrit : "Ils prendront de la poussiere de la brulure de la purification du peche <b>et la placeront dessus.</b> Apparemment,</b> les <b>cendres</b> doivent etre placees dans le recipient <b>d'abord</b> et l'eau ensuite. <b>Et alors il est ecrit : "L'eau courante dans un vase,"</b> indiquant que l'eau doit etre placee dans le vase en premier, alors qu'il est encore vide. <b>Comment</b> peut-on reconcilier <b>ces textes</b> ? On peut les concilier en concluant que si <b>il desire</b> placer la <b>poussiere,</b> c'est-a-dire les cendres de la genisse rouge, <b>en dessous,</b> et mettre de l'eau par-dessus, il peut le faire ; et si <b>il desire</b> il peut placer l'eau en premier et ensuite placer la <b>poussiere au-dessus</b> de l'eau.
+
+### Partie 10
+<b>Et le <i>tanna</i> de notre</b> mishna, qui juge le melange impropre si les cendres sont placees en premier, <b>Quel est</b> son <b>raisonnement ? </b> Il pourrait <b>vous dire</b> que <b>la derniere clause du verset :</b> "De l'eau courante dans un recipient" est signifiee <b>specifiquement,</b> c'est-a-dire que l'eau doit etre placee en premier. Et lorsque le verset precise au prealable : "Ils prendront de la poussiere de la combustion de la purification du peche <b>et la placeront sur elle,</b> cela enseigne seulement qu'apres avoir place les cendres sur l'eau on est tenu <b>de melanger</b> les cendres avec l'eau, de sorte que l'eau recouvre les cendres.
+
+### Partie 11
+La Guemara objecte : Mais on pourrait tout aussi bien dire le contraire. <b>Qu'as-tu vu qui</b> t'a conduit <b>a <b>dire</b> que <b>la derniere clause du verset</b> est signifiee <b>specifiquement ? Peut-etre que la premiere clause</b> du verset est signifiee <b>specifiquement.</b> La Gemara repond : <b>Vous ne pouvez pas dire</b> ainsi, car <b>comme nous trouvons dans tous les cas</b> que l'element <b>facilitant</b> va <b>au-dessus,</b> par ex, dans le cas d'une <i>sota</i> la poussiere, qui permet d'utiliser l'eau, va au-dessus de l'eau, <b>de meme ici,</b> dans le cas de la genisse rouge, l'<b>element facilitateur</b> doit aller <b>au-dessus.</b> L'eau doit etre placee en premier, et seulement ensuite les cendres.
+
+### Partie 12
+§ La mishna enseigne en outre : <b>Et</b> un <b><i>bien que haperas</i> ne cree pas</b> un autre <b><i>bien que haperas</i>.</b> La Gemara commente : <b>La mishna n'est pas conforme</b> a l'avis de <b>Rabbi Eliezer, car nous avons appris</b> dans une mishna (<i>Oholot</i> 17:2) que <b>Rabbi Eliezer dit :</b> Un <b>bien que haperas</i> cree</b> un autre <b>bien que haperas</i>. </b> Si l'on laboure d'un <i>beit haperas</i> dans un autre champ, ce champ est egalement rituellement impur.
+
+### Partie 13
+La Gemara demande : <b>Et</b> selon <b>les rabbins,</b> qui ne sont pas d'accord avec Rabbi Eliezer, <b>jusqu'a quelle distance</b> s'etend une <i>travail haperas</i> ? <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Reish Lakish a dit</b> que <b>Rabbi Shimon bar Abba a dit:</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

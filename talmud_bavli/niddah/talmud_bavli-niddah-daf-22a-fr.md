@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Lorsqu'ils sont en desaccord,</b> c'est <b>en ce qui concerne</b> le cas du sang qui se trouve dans <b>un morceau</b> de tissu. Un <b>Sage,</b> le premier <i>tanna</i>, qui suit l'avis de Rabbi Eliezer, <b>soutient</b> que <b>c'est la maniere d'une femme de voir</b> le <b>sang menstruel dans un morceau</b> de tissu qu'elle evacue. Par consequent, le terme "dans sa chair" s'applique au sang dans les fissures. <b>Et</b> un <b>Sage,</b> c'est-a-dire les rabbins, <b>soutient</b> que <b>ce n'est pas la maniere d'une femme de voir</b> le <b>sang menstruel dans un morceau</b> de tissu qu'elle evacue. Par consequent, le sang trouve dans le morceau de tissu n'est pas considere comme du sang menstruel, et il ne rend pas la femme impure.
+
+### Partie 2
+<b>Rava dit</b> qu'il existe une autre explication a cette dispute : <b>Tout le monde,</b> tant le premier <i>tanna</i> que les rabbins, s'accordent a dire que <b>ce n'est pas la maniere d'une femme de voir</b> du <b>sang menstruel dans un morceau</b> de tissu qu'elle evacue. Par consequent, le sang qui emerge des fissures du morceau de tissu n'est pas considere comme du sang menstruel et ne rend pas la femme impure.
+
+### Partie 3
+<b>Et ici, ils sont en desaccord</b> quant a savoir <b>a</b> s'il est possible que la <b>femme</b> elle-meme soit <b>pure mais que le lieu de la source,</b> c'est-a-dire l'uterus, <b>soit impur. Comme Rabbi Eliezer soutient</b> que la <b>femme est pure,</b> c'est-a-dire qu'elle n'a pas ete rendue menstruee par l'ecoulement du sang, <b>mais le sang est impur,</b> malgre le fait qu'il soit sorti dans un morceau de tissu, <b>car il est sorti par la source,</b> qui est impure. Par consequent, lorsque le sang entre en contact avec le corps de la femme, elle contracte une impurete de premier degre, et la femme transmet ensuite l'impurete aux aliments qu'elle touche. <b>Et les rabbins soutiennent</b> que la <b>femme est</b> entierement <b>pure, et que l'emplacement de la source est</b> egalement <b>pur.</b> Par consequent, les aliments purs qu'elle touche ne sont pas rendus impurs.
+
+### Partie 4
+§ <b>Rabba a pose a Rav Huna</b> une question similaire au cas du tube : En ce qui concerne un homme <b>qui voit du sperme</b> en l'extrayant de son penis <b>avec un morceau de bois, quelle est</b> la <i>halakha</i> ? Assume-t-il le statut d'impurete de celui qui fait l'experience d'une emission seminale ? La Gemara explique cette question. Le verset dit :" Un homme d'ou emerge un flux de sperme" (Levitique 22:4). Puisque <b>Le Misericordieux declare : "De qui"</b>, en deduit-on que l'homme n'est pas impur <b>a moins que</b> le sperme <b>sorte de sa chair</b> par lui-meme, <b>et non</b> lorsqu'il est extrait <b>avec un morceau de bois ? Ou peut-etre</b> de <b>cette expression</b> : <b>Duquel,</b> on deduit simplement que l'homme n'est pas impur <b>sauf si son impurete,</b> c'est-a-dire son sperme, <b>emerge a l'exterieur</b> de son corps, <b>mais</b> il est impur <b>meme</b> si cela est realise <b>avec un bout de bois.</b>
+
+### Partie 5
+Rav Huna <b>dit a</b> Rabba : <b>Derivez</b> que l'homme est pur du fait <b>que</b> le sperme <b>devient lui-meme impur uniquement dans</b> un cas ou l'ecoulement est suffisamment important pour provoquer <b>un blocage de l'extremite du penis.</b> Puisque cette quantite ne peut etre extraite avec un eclat de bois, elle n'est pas impure.
+
+### Partie 6
+Rabba a repondu a Rav Huna : Puisqu'une mesure minimale est requise pour cette impurete, <b>cela revient-il a dire que</b> la raison pour laquelle un homme qui connait une emission seminale est impur <b>est</b> que son penis <b>touche</b> le sperme apres son emission ? S'il etait rendu impur par la seule emission du sperme, alors aucune mesure minimale ne s'appliquerait, comme l'est la <i>halakha</i> a l'egard d'une femme en periode de menstruation. Mais <b>si tel est le cas,</b> alors une emission seminale <b>ne devrait pas annuler</b> le decompte des sept jours purs <b>pour</b> un homme qui a subi une <b>decharge [<i>ziva</i>] semblable a une gonorrhee.</b> Un <i>zav</i> n'arrete pas son decompte lorsqu'il touche une source d'impurete, par exemple la carcasse d'un animal rampant.
+
+### Partie 7
+Si oui, <b>pourquoi est-ce enseigne</b> dans un <i>baraita</i> : Il decoule de la juxtaposition du verset entre un <i>zav</i> et celui qui a subi une emission seminale : <b>"C'est la loi du <i>zav</i>, et de celui d'ou sort le flux de sperme"</b> (Levitique 15:32), que <b>tout comme la <i>ziva</i></b> pendant les sept jours purs <b>neglige</b> le compte, <b>de meme, une emission seminale annule</b> le compte. Si ce n'est pas l'emission elle-meme qui rend l'homme impur mais seulement son contact avec le sperme, pourquoi l'emission annule-t-elle le compte des sept jours purs ?
+
+### Partie 8
+Rav Huna <b>dit a</b> Rabba en reponse : La <i>halakha</i> de la <b>negation</b> n'est pas difficile, car <b>c'est la raison pour laquelle</b> une emission seminale <b>neglige</b> le compte des sept jours purs : <b>Parce qu'il est impossible</b> a un <i>zav</i> de connaitre une emission seminale <b>sans</b> qu'elle contienne des <b>morceaux de [<i>tzahtzohei</i>] <i>ziva</i>.</b>
+
+### Partie 9
+Rabba a encore objecte : <b>Si c'est le cas,</b> alors une emission seminale <b>doit annuler tout le</b> compte des <b>sept</b> jours purs, tout comme une emission de <i>ziva</i>, et pas seulement le jour ou l'emission seminale a eu lieu. Mais alors <b>Pourquoi est-ce enseigne</b> dans le <i>baraita</i> : Il decoule du verset : <b>"C'est la loi du <i>zav</i>,</b> et de celui d'ou sort le flux de sperme, de sorte qu'il en est impur" (Levitique 15:32), que <b>tout comme la <i>ziva</i></b> pendant les sept jours purs <b>neglige</b> le compte, <b>de meme, une emission seminale annule</b> le compte.
+
+### Partie 10
+Le <i>baraita</i> continue : <b>Si</b> une emission seminale est comparee a la <i>ziva</i>, alors on pourrait suggerer que <b>comme la <i>ziva</i> annule la totalite</b> du compte des <b>sept</b> jours, <b>de meme, une emission seminale</b> devrait <b>aussi annuler la totalite</b> du compte des <b>sept</b> jours. Par consequent, le verset dit : "De sorte qu'il est impur par elle,"</b> pour enseigner que <b>dans</b> le cas d'une emission seminale <b>on a</b> une negation du decompte qui est equivalente <b>seulement</b> a l'impurete <b>qui est enoncee par elle,</b> c'est-a-dire l'impurete d'un jour. En consequence, une emission seminale <b>neglige</b> seulement <b>un jour</b> du compte, et non le compte entier. Cela contredit apparemment la declaration du Rav Huna selon laquelle la raison pour laquelle une emission seminale annule le compte du tout est que l'emission seminale d'un <i>zav</i> contient toujours de la <i>ziva</i>.
+
+### Partie 11
+Rav Huna <b>dit a</b> Rabba : <b>C'est un edit de la Torah</b> qu'une emission qui est <b>purement <i>ziva</i>, lorsque le sperme n'y est pas melange, annule la totalite</b> du compte de <b>sept</b> jours, alors que les <b>morceaux de <i>ziva</i> dans lesquels</b> une partie du <b>sperme est melangee n'annulent qu'un jour</b> du compte.
+
+### Partie 12
+§ <b>Rabbi Yosei, fils de Rabbi Hanina, a demande a Rabbi Elazar :</b> Si une femme decharge du <b>sang sec, quelle est</b> la <i>halakha</i> ? A-t-elle le statut d'une femme en periode de menstruation ? La Guemara explique le dilemme : Puisque <b>Le Misericordieux declare:</b> "Et <b>si</b> une femme <b>a un ecoulement de son sang</b> plusieurs jours" (Levitique 15:25), cela indique-t-il <b>que</b> la femme n'est pas impure <b>a moins que</b> le sang <b>coule,</b> c'est-a-dire, si elle est <b>mouillee, oui,</b> elle est impure, alors que si elle est <b>seche</b> elle est <b>non</b> impure ? <b>Ou peut-etre cette</b> phrase : <b>Si</b> une femme <b>a un ecoulement de son sang,</b> fait</b> simplement reference a <b>la maniere normale</b> dont le sang menstruel emerge, <b>mais en fait meme le sang sec</b> rend la femme impure.
+
+### Partie 13
+Rabbi Elazar lui <b>dit : Tu as appris</b> la solution a ton dilemme dans une mishna (54b) : <b>Le sang d'une femme en periode de menstruation et la chair d'un cadavre conferent une impurete</b> qu'ils soient <b>mouilles ou secs.</b> Rabbi Yosei, fils de Rabbi Hanina, <b>lui a dit</b> en reponse : <b>Je ne souleve pas le dilemme</b> a propos du sang qui etait <b>mouille</b> lorsqu'il est sorti <b>et</b> ensuite <b>seche,</b> car un tel sang est certainement impur. <b>Quand je souleve le dilemme,</b> c'est a propos du sang qui etait <b>seche au depart,</b> lorsqu'il est sorti.
+
+### Partie 14
+Rabbi Elazar a repondu : <b>Vous avez appris</b> la solution a <b>cette</b> dilemme <b>aussi,</b> dans la mishna ici : Dans le cas d'une femme <b>qui rejette</b> un objet <b>similaire a un coquillage,</b> ou <b>similaire a un cheveu,</b> ou <b>similaire a de la terre,</b> ou <b>similaire a des moustiques,</b> si ceux-ci sont <b>rouges, elle doit les jeter</b> dans l'eau</b> pour s'assurer de leur nature.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

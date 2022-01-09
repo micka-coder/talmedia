@@ -1,0 +1,72 @@
+
+### Partie 1
+<b>Peut-on dire conformement</b> a l'avis de <b>Rabbi Akiva, que</b> la femme <b>transmet l'impurete a l'homme avec lequel elle a eu des rapports sexuels,</b> tout comme elle transmet retroactivement l'impurete a tous les objets purs qu'elle a touches dans la periode precedente de vingt-quatre heures ? Les Sages d'Usha <b>ont dit a</b> Rabbi Eliezer, fils de Rabbi Tzadok : <b>Nous n'avons pas entendu</b> cet avis de Rabbi Akiva, c'est-a-dire que nous ne l'acceptons pas comme <i>halakha</i>, et nous voudrions donc savoir ce qu'est cette periode de : Apres le temps ecoule, est.
+
+### Partie 2
+Rabbi Eliezer, fils de Rabbi Tzadok, <b>leur dit : Voici</b> comment <b>les Sages de Yavne l'ont explique</b> : Tant que la femme <b>n'a pas attendu</b> avant de s'examiner apres un rapport sexuel une periode de temps <b>equivalente</b> au temps pendant lequel elle peut descendre du lit et se rincer le visage, ceci est</b> considere <b>dans</b> la periode de <b>temps</b> mentionnee dans la mishna comme : Apres le temps ecoule. <b>Et</b> si du sang est trouve sur le tissu qu'elle a utilise pour s'examiner pendant cette periode, ils sont tous deux <b>impurs</b> pendant sept jours <b>en raison de l'incertitude, et ils sont exemptes de</b> l'apport d'une <b>offrande de peche,</b> car cette offrande n'est apportee que pour un peche involontaire qui a ete definitivement commis. <b>Mais ils sont</b> chacun <b>obliges d'apporter</b> <b>une offrande de culpabilite provisoire.</b>
+
+### Partie 3
+Si <b>elle a attendu</b> avant de s'examiner apres le rapport sexuel un temps <b>equivalent</b> au temps en <b>qu'elle peut descendre du lit et se rincer le visage, ceci est</b> considere : <b>Apres le temps,</b> c'est-a-dire apres le laps de temps mentionne dans la mishna comme : Apres le temps ecoule.
+
+### Partie 4
+Dans ce cas, <b>et de meme</b> dans un cas <b>ou elle a attendu</b> une <b>periode de vingt-quatre heures ou d'examen en examen,</b> c'est-a-dire, elle s'est examinee avant le rapport et etait pure, puis s'est examinee dans les vingt-quatre heures apres le rapport et etait impure, <b>l'homme avec lequel elle a eu des rapports devient impur</b> jusqu'au soir <b>en raison du contact</b> avec une femme menstruee, <b>mais il ne devient pas impur</b> pendant sept jours <b>comme celui qui a eu des rapports</b> avec une femme menstruee. <b>Rabbi Akiva dit : Il devient meme impur</b> pendant sept jours <b>comme celui qui a engage des rapports</b> avec une femme menstruee. <b>Rabbi Yehuda, fils de Rabban Yohanan ben Zakkai, dit :</b> Dans un tel cas, non seulement <b>son mari</b> n'est pas impur pendant sept jours, mais il n'est meme pas juge impur jusqu'au soir par la loi rabbinique. Par consequent, s'il est pretre <b>il peut entrer dans le Sanctuaire et bruler de l'encens.</b>
+
+### Partie 5
+La Guemara explique la difficulte de l'interpretation de la mishna par Rav Ashi selon cette <i>baraita</i> : <b>Accorde, selon</b> l'avis de <b>Rav Hisda,</b> qui soutient que la periode de : Apres le temps ecoule, pendant lequel si la femme a trouve du sang sur son tissu, l'homme avec lequel elle a eu des rapports sexuels est rendu impur pendant sept jours, est equivalent au temps qu'il lui faut pour etendre la main et s'examiner, <b>C'est</b> la raison pour laquelle <b>les rabbins le jugent</b> <b>pur</b> si elle a decouvert du sang apres que cette periode soit passee.
+
+### Partie 6
+<b>Mais selon</b> l'avis de <b>Rav Ashi,</b> qui considere que si elle a un tissu a la main, alors elle rend impur l'homme avec lequel elle a eu un rapport sexuel si elle decouvre du sang dans le laps de temps qu'il lui faut pour descendre du lit et rincer ou nettoyer sa zone pubienne avec le tissu qu'elle tient a la main, <b>Pourquoi les rabbins le jugent-ils</b> <b>pur</b> si le temps qui s'est ecoule est le temps qu'il lui faut pour descendre et nettoyer son pubis ? Elle devrait quand meme le rendre impur pendant ce laps de temps.
+
+### Partie 7
+<b>Et si vous disiez</b> que le <i>baraita</i> traite d'un cas <b>ou le <b>tissu n'est pas dans sa main,</b> et que pour cette raison la periode de temps a laquelle il se refere est apres le temps qu'il faudrait a la femme pour etendre sa main et s'examiner, cela ne peut pas etre le cas, car si c'est le cas, la <i>tanna</i> du <i>baraita</i> <b>aurait du</b> enseigner deux cas : <b>Un tissu est dans sa main, et : Un tissu n'est pas dans sa main,</b> pour differencier les situations. La Gemara conclut : En effet, cette <i>baraita</i> pose <b>une difficulte</b> a l'opinion du Rav Ashi.
+
+### Partie 8
+§ La <i>baraita</i> enseigne que <b>Rabbi Yehuda, fils de Rabban Yohanan ben Zakkai, dit :</b> Si l'examen a eu lieu suite a cette periode appelee : Apres le temps ecoule, <b>son mari</b> n'est pas du tout impur rituellement, et donc s'il est pretre, il <b>peut entrer dans le Sanctuaire et bruler de l'encens.</b> La Guemara demande : <b>Et qu'il en deduise que</b> le mari est impur parce que <b>c'est celui qui a touche une femme en periode de menstruation pendant</b> la <b>periode de vingt-quatre heures</b> avant qu'elle ne decouvre le sang, car les Sages ont decrete que les objets purs touches par une femme en periode de menstruation dans les vingt-quatre heures avant qu'elle ne remarque les saignements sont impurs retroactivement.
+
+### Partie 9
+La Guemara repond que Rabbi Yehouda, fils de Rabban Yohanan ben Zakkai, <b>qui a dit</b> la decision, tient <b>comme Shammai, qui a dit</b> dans une mishna (2a) : Pour <b>toutes les femmes, leur temps est suffisant,</b> c'est-a-dire que les femmes qui discernent l'emergence du sang menstruel n'ont pas a s'inquieter du fait que l'ecoulement du sang a commence avant qu'elles ne le remarquent, et elles assument le statut d'impurete rituelle seulement a partir de ce moment.
+
+### Partie 10
+La Guemara souleve une autre difficulte avec l'opinion de Rabbi Yehuda, fils de Rabban Yohanan ben Zakkai : <b>Et qu'il derive</b> que le mari est impur <b>parce qu'il est celui qui a connu une emission seminale.</b> La Guemara repond qu'il fait reference <b>au</b> cas ou le mari <b>n'a pas acheve son</b> acte d'<b>intercours.</b>
+
+### Partie 11
+§ La mishna declare : <b>Et les rabbins concedent a Rabbi Akiva dans</b> le cas d'une femme qui <b>voit</b> une <b>tache de sang,</b> qu'elle transmet une impurete de sept jours a l'homme avec lequel elle a eu des rapports sexuels. La Guemara cite une dispute de <i>amoraim</i> a ce sujet. <b>Rav dit</b> qu'elle rend l'homme avec lequel elle a eu des rapports impurs <b>retroactivement, et</b> ceci <b>est</b> en accord avec l'opinion de <b>Rabbi Meir,</b> qui soutient qu'une femme qui voit une tache de sang rend des objets purs impurs retroactivement (voir 5a).
+
+### Partie 12
+<b>Et Shmuel dit</b> qu'elle ne le rend pas impur retroactivement, mais seulement s'il a des rapports sexuels avec elle <b>a partir de maintenant et a partir de maintenant,</b> c'est-a-dire apres qu'elle ait vu la tache de sang, <b>et</b> ceci <b>est</b> conforme a l'opinion des <b>Rabbins,</b> qui soutiennent qu'une femme qui voit une tache de sang rend les objets purs impurs seulement a partir de ce moment. La Guemara souleve une difficulte avec l'opinion de Shmuel : Pourquoi la mishna trouve-t-elle necessaire de preciser qu'elle le rend impur <b>a partir de maintenant et a partir de maintenant ?</b> N'est-ce pas <b>evident ?</b>
+
+### Partie 13
+La Guemara explique qu'il etait necessaire pour la mishna d'enoncer cette decision, <b>de peur que vous ne disiez : Puisque</b> l'impurete retroactive de la femme pour une <b>periode de vingt-quatre heures</b> est un decret qui s'applique <b>par la loi rabbinique, et</b> l'impurete des <b>taches de sang</b> s'applique egalement <b>par la loi rabbinique,</b> on pourrait pretendre ce qui suit : <b>De meme que</b> son impurete retroactive d'une <b>periode de vingt-quatre heures ne rend pas impur l'homme avec lequel elle a eu des rapports sexuels, de meme,</b> ses <b>sangs</b> ne devraient <b>pas rendre impur l'homme avec lequel elle a eu des rapports sexuels.</b> Par consequent, la mishna <b>nous enseigne</b> qu'elle le rend impur a partir de ce moment-la.
+
+### Partie 14
+La Guemara demande : <b>Mais</b> peut-etre peut-on <b>dire</b> qu'en fait,</b> elle ne lui transmet pas d'impurete ? La Gemara explique qu'il y a une difference entre les deux types d'impurete rabbinique : <b>La,</b> en ce qui concerne l'impurete retroactive, il ne s'agit <b>pas</b> d'un cas de : Le <b>bœuf abattu est devant toi,</b> c'est-a-dire que la preuve de l'impurete n'existait pas a ce moment-la, puisqu'elle n'avait pas encore connu de menstruation. Par consequent, les Sages n'ont pas applique la rigueur de l'impurete retroactive au mari. En revanche, <b>ici,</b> en ce qui concerne l'impurete des taches de sang, il <b>est</b> question de : Le <b>bœuf abattu est devant toi,</b> car le sang est apparu sur le tissu.
+
+### Partie 15
+La Gemara note : <b>Et Reish Lakish dit pareillement,</b> comme Rav, que la femme transmet l'impurete a l'homme avec lequel elle a eu des rapports <b>retroactifs, et</b> ceci <b>est</b> conforme a l'avis de <b>Rabbi Meir.</b> Mais <b>Rabbi Yohanan dit,</b> comme Shmuel : Elle le rend impur <b>a partir de maintenant et a partir de maintenant,</b> c'est-a-dire apres avoir vu la tache de sang, <b>et</b> ceci <b>est</b> conforme a l'opinion des <b>rabbins.</b>
+
+### Partie 16
+<strong>MISHNA:</strong> <b>Toutes les femmes ont le statut presume de purete pour leurs maris,</b> et par consequent, on n'est pas tenu de verifier si sa femme est rituellement pure avant d'avoir des rapports sexuels avec elle. Meme en ce qui concerne les maris <b>revenant d'un voyage,</b> si leurs femmes etaient rituellement pures lorsqu'ils sont partis, <b>leurs femmes ont le statut presume de purete pour eux.</b>
+
+### Partie 17
+<strong>GEMARA:</strong> <b>Pourquoi</b> la <i>tanna</i> de la mishna a-t-elle besoin <b>d'enseigner</b> la <i>halakha</i> des maris <b>de retour de voyage ?</b> En quoi sont-ils differents des autres maris ? La Guemara explique qu'il pourrait <b>entrer dans votre esprit de dire : Cette declaration,</b> selon laquelle les femmes ont le statut presume de purete, ne s'applique que dans un cas <b>ou</b> le mari <b>se trouve dans la ville</b> de sa residence, <b>car</b> la femme <b>prend sur elle</b> la responsabilite d'etre prete pour son mari a tout moment, <b>et</b> par consequent <b>elle s'examine</b>. <b>Mais</b> dans un cas <b>ou</b> le mari <b>n'est pas dans la ville, puisqu'elle ne prend pas sur elle</b> la responsabilite d'etre constamment prete pour lui, peut-etre ne devrait-elle <b>pas</b> avoir le statut presume de purete. Par consequent, la <i>tanna</i> de la mishna <b>nous enseigne</b> que meme dans ce cas, elle a un statut presomptif de purete.
+
+### Partie 18
+La Guemara note qu'a cet egard, <b>Reish Lakish dit au nom de Rabbi Yehuda Nesia : Et</b> cette <i>halakha</i> selon laquelle la femme d'un mari revenant d'un voyage a un statut presume de purete <b>est</b> applicable uniquement dans un cas <b>ou</b> le mari <b>est arrive et a trouve</b> que sa femme etait <b>dans les jours de sa</b> <b>periode projetee,</b> c'est-a-dire dans les trente jours de ses precedentes menstruations. Dans ce cas, il peut supposer qu'elle n'a pas encore connu de nouvelles regles, et il peut donc se fier a son statut presume de purete. Mais s'il arrive apres que trente jours se soient ecoules depuis sa derniere menstruation, on suppose qu'elle a eu ses menstruations au moment habituel et il ne lui est donc pas permis d'avoir des rapports sexuels avec elle, a moins qu'elle ne s'examine et ne se trouve pure.
+
+### Partie 19
+§ En ce qui concerne le statut presume de purete des epouses, <b>Rav Huna dit :</b> Les Sages ont <b>enseigne</b> cette <i>halakha</i> <b>uniquement</b> dans le cas d'une femme <b>qui n'a pas</b> un <b>cycle menstruel fixe. Mais</b> en ce qui concerne une femme <b>qui a</b> un <b>cycle menstruel fixe, il est interdit</b> a son mari <b>d'avoir des rapports</b> avec elle.
+
+### Partie 20
+La Gemara demande : <b>N'est-ce pas le contraire ? Au contraire ;</b> l'affirmation <b>inverse</b> <b>vaut pour la raison : </b> Si la femme <b>n'a pas</b> un <b>cycle fixe,</b> on peut <b>dire</b> que peut-etre <b>elle a vu</b> du sang, et donc qu'elle doit lui etre interdite ; alors que si <b>elle a</b> un <b>cycle fixe,</b> puisque <b>son cycle est fixe pour elle</b> elle sait quand elle deviendra impure et est presumee pure a l'avance.
+
+### Partie 21
+<b>Au contraire, si</b> Rav Huna <b>s'est differencie, </b> il <b>s'est enonce comme ceci : Rav Huna dit :</b> Les Sages <b>ont enseigne</b> cette <i>halakha</i> <b>uniquement</b> dans un cas <b>ou le <b>temps de</b> projete de la <b>periode</b> de la femme n'etait pas arrive</b> avant que son mari ne revienne de son voyage. <b>Mais</b> si <b>le</b> moment projete de ses regles etait arrive, elle lui est interdite</b>. Rav Huna <b>soutient</b> que le souci de l'impurete des femmes au moment projete de leurs <b>regles</b> s'applique <b>par la loi de la Torah,</b> car il s'agit d'une <i>halakha</i> transmise a Moise depuis le Sinai. Si une femme ne s'est pas examinee a ce moment-la, elle est presumee avoir subi un saignement, meme si elle n'a pas senti l'emission de sang, bien qu'il n'y ait pas d'obligation formelle de s'examiner a ce moment-la. Par consequent, un mari qui revient d'un voyage ne peut pas supposer que sa femme s'est examinee au moment prevu de ses regles, a moins qu'il ne puisse etablir de maniere positive qu'elle l'a fait.
+
+### Partie 22
+En revanche, <b>Rabba bar bar Hana dit : Meme</b> si <b>le</b> projete <b>temps de ses regles etait arrive, elle est autorisee</b> a son mari. Rabba bar bar Hana <b>maintient</b> que le souci d'impurete des femmes au moment projete de leurs <b>periodes</b> s'applique <b>par la loi rabbinique,</b> et qu'elle n'est donc pas consideree comme ayant eu des saignements, bien que par la loi rabbinique elle doive encore s'examiner pour s'assurer qu'elle est pure.
+
+### Partie 23
+<b>Rav Ashi enseigne</b> les avis de Rav Huna et de Rabba bar bar Hana <b>comme ceci : Rav Huna dit:</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

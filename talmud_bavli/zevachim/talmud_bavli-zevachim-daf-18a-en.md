@@ -1,0 +1,36 @@
+
+### Part 1
+<b>The verse states “statute”</b> with regard to those who drank wine, and it likewise states <b>“statute”</b> with regard to the priestly vestments (Exodus 28:43) and with regard to the washing of the hands and feet (Exodus 30:21). One therefore derives <b>by verbal analogy</b> that the <i>halakha</i> in all three cases is the same. If so, there is already a source for the <i>halakha</i> that one who lacks the requisite priestly vestments disqualifies the service.
+
+### Part 2
+The Gemara responds: <b>If</b> one derived the <i>halakha</i> only <b>from there, I would say: This matter,</b> i.e., that the rites of one who lacks the requisite vestments are disqualified, applies only to <b>a rite for which a non-priest is liable</b> to receive the punishment of <b>death</b> at the hand of Heaven, since that is the topic of the passage discussing those who drank wine. <b>But</b> with regard to <b>a rite for which a non-priest is not liable</b> to receive <b>death</b> at the hand of Heaven, <b>I will say</b> that they are <b>not</b> subject to this <i>halakha</i>. Therefore, the verse (Exodus 29:9) <b>teaches us</b> that the <i>halakha</i> applies to all rites.
+
+### Part 3
+The Gemara asks: <b>We found</b> a source for the <i>halakha</i> that <b>one lacking</b> the requisite <b>vestments</b> disqualifies all rites, even those for which a non-priest is not liable to receive the punishment of death at the hand of Heaven; <b>from where do we</b> derive that the <i>halakha</i> is the same for <b>those who drank wine,</b> as the passage in Leviticus (10:9–10) addresses only rites for which a non-priest receives the death penalty? The Gemara responds: It <b>is derived</b> by verbal analogy between the word <b>“statute”</b> used there and the word <b>“statute” from</b> the verses discussing <b>one lacking</b> the requisite <b>vestments.</b>
+
+### Part 4
+The Gemara asks: <b>But doesn’t the <i>tanna</i></b> of the aforementioned <i>baraita</i> <b>derive</b> that the rites of those who drank wine are disqualified from the verse: <b>“That you may put difference between</b> the holy and the common” (Leviticus 10:10), and not by verbal analogy to a priest lacking the requisite vestments? The Gemara responds: “That you may put difference between the holy and the common” is the source of this <i>halakha</i> only <b>before</b> the <b>verbal analogy stands.</b> Once the verbal analogy is derived, it is the source of the <i>halakha</i> with regard to those who drank wine as well.
+
+### Part 5
+The Gemara challenges: <b>But doesn’t the <i>tanna</i></b> of the <i>baraita</i> <b>derive</b> the <i>halakha</i> with regard to <b>one lacking</b> the requisite <b>vestments</b> itself <b>from</b> the case of <b>those who drank wine?</b> The Gemara responds: Actually, the disqualification of rites performed by one who drank wine is derived from the case of one lacking vestments. And <b>this</b> is what the <i>tanna</i> <b>is saying: From where</b> is it derived <b>that there is no distinction between one lacking</b> the requisite <b>vestments and those who drank wine and one whose hands and feet are not washed,</b> and that all three disqualify all rites? <b>The verses state</b> the word: <b>“Statute,” “statute,”</b> in order <b>to</b> derive <b>a verbal analogy.</b>
+
+### Part 6
+The Gemara asks: <b>But</b> if the <i>halakha</i> that one who drank wine disqualifies the service is derived from the verbal analogy, <b>why do I</b> need the verse: <b>“That you may put difference</b> between the holy and the common”? The Gemara responds: The verse is necessary <b>in accordance with</b> the custom <b>of Rav, as Rav</b> would <b>not place an interpreter before him,</b> i.e., he would not lecture in public, <b>from</b> the time that he drank wine on <b>one Festival</b> day <b>until</b> the <b>other,</b> the second Festival day, <b>due to drunkenness.</b> Rav was concerned that he would not issue a proper ruling, because it was customary to drink wine on the Festivals, and the verse states: “And that you may put difference between the holy and the common, and between the impure and the pure. And that you may teach the children of Israel all the statutes which the Lord has spoken” (Leviticus 10:10–11), indicating that one who drank wine may not issue a halakhic ruling.
+
+### Part 7
+The Gemara asks: <b>Still,</b> is the disqualification of rites performed by one lacking the requisite vestments <b>derived from here,</b> i.e., from the verse: “And you shall gird them with belts, Aaron and his sons” (Exodus 29:9)? <b>It is derived from there: “And the sons of Aaron the priest shall put</b> fire upon the altar” (Leviticus 1:7). The superfluous term “the priest” serves to indicate that he may serve only <b>in his priestly state.</b> The verse therefore <b>teaches</b> that <b>with regard to a High Priest who wore the vestments of an ordinary priest and performed</b> sacrificial <b>rites, his service is disqualified.</b>
+
+### Part 8
+The Gemara responds: <b>If</b> one derived the <i>halakha</i> only <b>from there, I would say: This matter</b> applies only to <b>service that is indispensable for</b> effecting <b>atonement. But service that is not indispensable for</b> effecting <b>atonement,</b> e.g., putting fire upon the altar, is <b>not</b> subject to the <i>halakha</i>. Therefore, the verse (Leviticus 1:7) indicates that the <i>halakha</i> applies even to rites that are not indispensable.
+
+### Part 9
+The Gemara asks: <b>But still,</b> is the <i>halakha</i> <b>derived from here,</b> i.e., from all of the previous sources? <b>It is derived from there: “And the sons of Aaron, the priests, shall lay the pieces,</b> and the head, and the fat, in order upon the wood that is on the fire, which is upon the altar” (Leviticus 1:8). The superfluous term <b>“the priests”</b> serves to indicate that the priests may serve only <b>in their priestly state. From here</b> one derives that <b>with regard to an ordinary priest who wore the vestments of</b> the <b>High Priest and performed</b> sacrificial <b>rites, his service is disqualified.</b>
+
+### Part 10
+The Gemara responds: <b>If</b> one derived the <i>halakha</i> only <b>from there, I would say: This matter</b> applies only to <b>a lack</b> of vestments, e.g., a High Priest who wore fewer than his requisite eight vestments, <b>but an excess</b> of vestments, e.g., an ordinary priest who wore more than his requisite four, is <b>not</b> subject to the <i>halakha</i>. This verse therefore <b>teaches us</b> that the <i>halakha</i> applies even to an excess of vestments.
+
+### Part 11
+§ <b>The Sages taught:</b> If the priest’s vestments <b>were dragging</b> on the ground, or <b>raised up [<i>mesulakin</i>]</b> far from the ground, or <b>frayed, and</b> the priest <b>performed</b> sacrificial <b>rites</b> while wearing them, <b>his service is valid.</b> If <b>he wore two</b> pairs of <b>trousers</b> or <b>two belts,</b> or if he was <b>lacking one</b> of his requisite vestments, or if he wore <b>one extra</b> vestment, <b>or</b> in a case <b>where</b> a priest <b>had a bandage on a wound on his body under his vestment</b> such that the bandage acted as an interposition between the vestments and his skin, <b>or</b> if he wore vestments <b>that were</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

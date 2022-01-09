@@ -1,0 +1,33 @@
+
+### Part 1
+<b>their measure</b> in order to be susceptible to ritual impurity is that they can hold <b>enough</b> oil with which <b>to anoint a small child.</b> If they cannot hold this amount, they are considered useless and are not susceptible to impurity. <b>And</b> this measure applies only to vessels that held <b>up to a <i>log</i></b> when they were whole; if they had originally held more, they must hold more when broken in order to be susceptible to impurity. <b>What, is it not</b> teaching that if it originally held exactly one <b><i>log</i></b> it is treated <b>as</b> though it had held <b>below</b> that amount? If so, the term: Up to, means up to and including. The Gemara responds: <b>No,</b> if it held exactly one <b><i>log</i></b> it is treated <b>as</b> though it held <b>above</b> that amount, and if broken it must be capable of holding a greater measure in order to be susceptible to impurity.
+
+### Part 2
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the continuation of the same mishna: If the vessel originally held <b>from a <i>log</i> up to a <i>se’a</i>,</b> its broken-off base or sides must hold <b>a quarter-<i>log</i></b> in order to be susceptible to impurity. <b>What, is it not</b> teaching that if it originally held exactly <b>a <i>se’a</i></b> it is treated <b>as</b> though it had held <b>below</b> that amount? The Gemara responds: <b>No,</b> if it held exactly <b>a <i>se’a</i></b> it is treated <b>as</b> though it had held <b>above</b> that amount, and its base or sides must hold a greater measure in order to be susceptible to impurity.
+
+### Part 3
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the continuation of the same mishna: If the vessel had originally held <b>from a <i>se’a</i>up to two <i>se’a</i>,</b> its broken-off base or sides must hold <b>half a <i>log</i></b> to be susceptible to impurity. <b>What, is it not</b> teaching that if it had originally held exactly <b>two <i>se’a</i></b> it is treated <b>as</b> if though it had held <b>below</b> that amount? The Gemara responds: <b>No,</b> if it had held exactly <b>two <i>se’a</i></b> it is treated <b>as</b> though it had held <b>above</b> that amount.
+
+### Part 4
+The Gemara asks: How can one explain the mishna in this manner? <b>But isn’t it taught</b> explicitly in a <i>baraita</i>: If the vessel had originally held exactly <b>a <i>log</i></b> it is treated <b>as</b> though it had held <b>below</b> that amount; if it had held exactly <b>a <i>se’a</i></b> it is treated <b>as</b> though it had held <b>below</b> that amount; if it had held exactly <b>two <i>se’a</i></b> it is treated <b>as</b> though it had held <b>below</b> that amount? Evidently, the term: Up to, means up to and including the given measure, in contradiction to Rav Naḥman’s opinion that it means up to and not including the measure.
+
+### Part 5
+The Gemara responds: The term: Up to, is always interpreted in the more stringent manner. Accordingly, <b>there,</b> with regard to the impurity of vessels, the term: Up to, is interpreted as up to and including in order to rule <b>stringently,</b> since the vessel is then more easily susceptible to impurity. <b>As Rabbi Abbahu says</b> that <b>Rabbi Yoḥanan says: All measures of the Sages</b> must be interpreted <b>stringently, except for</b> the measure of <b>a groat</b> as a standard <b>for stains</b> of blood found on a woman’s clothing, which is interpreted <b>leniently.</b> Even if the stain is exactly the size of a groat, the woman remains pure. Here, it is more stringent to interpret the phrase: Up to, as up to and including, because an animal is then more susceptible to being rendered a <i>tereifa</i>.
+
+### Part 6
+The Gemara notes: The language <b>is also precise,</b> i.e., it is evident that the phrase: Up to, is always interpreted stringently, as the mishna (<i>Kelim</i> 19:2) states that if a rope extending from a rope bed is of any length up to five handbreadths, it is not susceptible to ritual impurity, but if it is of any length from five up to ten handbreadths, it is susceptible. And a <i>baraita</i> <b>teaches with regard to that</b> mishna: If the rope was exactly <b>five</b> handbreadths long, it is treated <b>as</b> though its length were <b>above</b> that; if the rope was exactly <b>ten</b> handbreadths long, it is treated <b>as</b> though its length were <b>below</b> that. In both cases, the measure is interpreted stringently.
+
+### Part 7
+§ The mishna states: If <b>the spleen was removed</b> the animal remains kosher. <b>Rav Avira says in the name of Rava:</b> The Sages <b>taught</b> that it is kosher <b>only</b> when the spleen was <b>removed, but</b> if it was <b>perforated,</b> it is <b>a <i>tereifa</i>.</b>
+
+### Part 8
+<b>Rabbi Yosei bar Avin, and some say Rabbi Yosei bar Zevida, raises an objection</b> from a mishna in the next chapter (68a): If, prior to slaughtering an animal, one <b>severs</b> pieces <b>from a fetus that is in</b> the <b>womb</b> and leaves those pieces in the womb, their <b>consumption</b> is <b>permitted</b> by virtue of the slaughter of the mother animal (see 69a). By contrast, if one severs pieces <b>of the spleen or of the kidneys</b> of an animal and then slaughters it, then even if those pieces are left inside the animal their <b>consumption</b> is <b>prohibited,</b> because an organ severed from a living being is not permitted by the subsequent slaughter of the animal. One can infer from the mishna <b>that the animal itself is permitted</b> even when part of the spleen was severed. Evidently, such an animal is not a <i>tereifa</i>.
+
+### Part 9
+The Gemara responds: <b>The same is true</b> of the animal, and <b>even the animal is prohibited.</b> But <b>since</b> the mishna <b>taught</b> in <b>the first clause,</b> with regard to the parts of the fetus: Their <b>consumption is permitted, it taught</b> in <b>the last clause</b> with regard to the parts of the spleen: Their <b>consumption is prohibited,</b> to contrast between them. <b>Or, if you wish, say</b> instead that <b>a perforated</b> spleen is <b>a discrete</b> case, in which the animal is a <i>tereifa</i>, <b>and a cut</b> spleen is <b>a discrete</b> case, in which the animal is not.
+
+### Part 10
+§ The mishna states: If <b>the kidneys were removed</b> the animal remains kosher. <b>Rakhish bar Pappa said in the name of Rav:</b> If an animal was <b>diseased in</b> even <b>one kidney,</b> the animal is <b>a <i>tereifa</i>. In the West,</b> Eretz Yisrael, <b>they say: And this</b> applies only in a case <b>where the disease reached</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

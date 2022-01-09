@@ -1,0 +1,63 @@
+
+### Part 1
+<b>he sunk, he fell, he lay”</b> (Judges 5:27), which is interpreted as a reference to sexual intercourse between Sisera and Jael.
+
+### Part 2
+§ Balaam describes himself: <b>“And he knows the knowledge of the Most High”</b> (Numbers 24:16), and the Gemara asks: <b>Now,</b> if <b>the knowledge of his animal he did not know,</b> is it possible <b>that the knowledge of the Most High he knew?</b> The Gemara explains: <b>What</b> is the meaning of <b>the knowledge of his animal?</b> The princes accompanying him <b>said to him: What is the reason that you did not ride horses?</b> Balaam <b>said to them: I brought</b> the horses to graze <b>in the pasture</b> and rest there.
+
+### Part 3
+The donkey <b>said to him: “Am I not your donkey”</b> (Numbers 22:30)? Balaam said to the donkey: <b>Merely for burdens,</b> not for riding. The donkey said to him: <b>“Upon which you have ridden”</b> (Numbers 22:30). Balaam said to the donkey: That <b>was mere happenstance</b> and is not a regular occurrence. The donkey said to him: <b>“Your whole life until this day”</b> (Numbers 22:30).
+
+### Part 4
+The donkey continued: <b>Moreover, I perform a conjugal act for you</b> and we engage in bestiality <b>at night.</b> From where is this derived? <b>It is written here: “Was I ever wont [<i>hahasken hiskanti</i>]</b> to do so to you” (Numbers 22:30)? <b>And it is written there</b> with regard to Abishag the Shunammite: <b>“And let her be a companion [<i>sokhenet</i>] to him”</b> (I Kings 1:2). Just as the root <i>samekh</i>, <i>kaf</i>, <i>nun</i> indicates sexual relations in the case of Abishag, the same is true with regard to the donkey. Balaam was unable to best his donkey in a debate.
+
+### Part 5
+The Gemara asks: <b>Rather, what,</b> then, is the meaning of the phrase <b>“And he knows knowledge of the Most High”?</b> Is it possible that he knew the knowledge of the Most High? Rather, <b>he would know to determine the moment during which the Holy One, Blessed be He, is angry.</b> He would curse at that moment and the curse was effective.
+
+### Part 6
+<b>And that is what the prophet said to Israel: “My nation, remember what Balak, king of Moab, advised, and how Balaam, son of Beor, responded; from Shittim to Gilgal, so that you may know the righteous acts of the Lord”</b> (Micah 6:5). <b>What</b> is the meaning of the phrase <b>“So that you may know the righteous acts of the Lord”? The Holy One, Blessed be He, said to Israel: Know how many acts of kindness I performed on your behalf, that I did not become angry</b> during <b>all the days of Balaam the wicked, as had I become angry</b> during <b>all those days, no remnant or refugee would have remained among the enemies of Israel,</b> a euphemism for Israel itself. Instead, God restrained His anger and Balaam’s curse went unfulfilled.
+
+### Part 7
+<b>That is what Balaam said to Balak: “How can I curse, whom God has not cursed?</b> And how can I condemn, whom God has not condemned?” (Numbers 23:8). Since God did not become angry, Balaam was unable to curse the Jewish people. It is written: “And <b>God is angry every day”</b> (Psalms 7:12). <b>And how long is</b> the duration of <b>His wrath?</b> It is <b>one moment, as it is stated: “For His anger endures but a moment; His favor is for a lifetime”</b> (Psalms 30:6).
+
+### Part 8
+<b>If you wish, say</b> instead this proof from another source, as it is stated: <b>“Come, my people, enter you into your chambers, and shut your doors about you; hide yourself for a brief moment, until the anger passes”</b> (Isaiah 26:20), meaning that God’s anger passes in a mere moment. And <b>when is</b> the Holy One, Blessed be He, <b>angry?</b> It is <b>during the first three hours</b> of the day, <b>when the crest of the rooster is white</b> from the sun. The Gemara challenges: <b>Each and every hour</b> of the day the rooster’s crest <b>is also white,</b> as it does not always remain red. The Gemara explains: The difference is that during <b>each and every</b> other <b>hour</b> when the rooster stands that way, <b>there are red streaks in</b> his crest. But <b>at that moment</b> when God is angry, <b>there are no red streaks in</b> the rooster’s crest.
+
+### Part 9
+The Gemara relates: There was <b>a certain heretic who was in Rabbi Yehoshua ben Levi’s neighborhood who would upset him</b> by incessantly challenging the legitimacy of biblical verses. <b>One day,</b> Rabbi Yehoshua ben Levi <b>took a rooster and tied it by its legs and sat</b> and waited. <b>He said: When that moment</b> of God’s wrath <b>arrives, I will curse him. When that moment</b> of God’s wrath <b>arrived,</b> Rabbi Yehoshua ben Levi <b>dozed off.</b> When he awakened, <b>he said: Conclude from</b> the fact that I dozed off that it is <b>not proper conduct</b> to curse even the wicked, <b>as it is written: “Punishment, even for the righteous, is not good”</b> (Proverbs 17:26). <b>Even with regard to heretics,</b> a righteous person <b>should not state</b> a curse in order to punish them.
+
+### Part 10
+Explaining the cause of God’s anger, <b>it was taught</b> in a <i>baraita</i> <b>in the name of Rabbi Meir: When the sun rises and the kings place their crowns on their heads and bow down to the sun, the Holy One, Blessed be He, immediately grows angry.</b> Since this occurs in the early hours of every day, God becomes angry at His world at that time every day.
+
+### Part 11
+§ It is stated: <b>“And Balaam rose in the morning and saddled his donkey”</b> (Numbers 22:21). <b>It was taught</b> in a <i>baraita</i> <b>in the name of Rabbi Shimon ben Elazar: Love negates the standard</b> conduct <b>of</b> those of <b>prominence.</b> This is derived <b>from Abraham, as it is written: “And Abraham rose early in the morning</b> and saddled his donkey” (Genesis 22:3). Atypically, he saddled the donkey himself and he did not wait for his servants. Likewise, <b>hatred negates the standard</b> conduct <b>of</b> those of <b>prominence.</b> This is derived <b>from Balaam, as it is stated: “And Balaam rose early in the morning and saddled his donkey”</b> (Numbers 22:21).
+
+### Part 12
+<b>Rav Yehuda says</b> that <b>Rav says: A person should always engage in Torah</b> study <b>and</b> performance of <b>a mitzva even</b> if he does <b>not</b> do so <b>for their own sake, as through</b> engaging in them <b>not for their</b> own <b>sake,</b> he will ultimately <b>come</b> to engage in them <b>for their</b> own <b>sake.</b> Proof for this can be cited from the example of Balak, <b>as in reward for the forty-two offerings that Balak sacrificed,</b> even though he sacrificed them to facilitate the destruction of the Jewish people, <b>he was privileged and Ruth descended from him. Rabbi Yosei bar Huna says: Ruth was the daughter of Eglon, son of the son of Balak, king of Moab.</b>
+
+### Part 13
+Apropos Ruth, matriarch of the Davidic line, the Gemara cites that which <b>Rava said to Rabba bar Mari: It is written</b> that the servants of David said to David: <b>“May God make the name of Solomon better than your name and make his throne greater than your throne [<i>mikisekha</i>]”</b> (I Kings 1:47). Rava asks: <b>Is it proper conduct to speak to a king in that manner</b> and say that his son will be greater than he is? Rabba bar Mari <b>said to</b> Rava: <b>She said to him:</b> May the throne of Solomon be <b>of the nature</b> of your throne.
+
+### Part 14
+He explains: <b>As if you do not say so</b> and do not explain it in this manner, then the verse: <b>“Blessed above women Jael, wife of Heber the Kenite; blessed is she more than the women [<i>minashim</i>] in the tent”</b> (Judges 5:24), is difficult. <b>“The women in the tent,” who are they?</b> They are <b>Sarah, Rebecca, Rachel, and Leah. Is it proper conduct to speak in that manner</b> about the Matriarchs? <b>Rather, of the nature</b> of the Matriarchs is what the verse <b>says,</b> not greater. <b>So too</b> in the case of David’s servants: <b>Of the nature</b> of his throne, is what the verse <b>says.</b>
+
+### Part 15
+The Gemara notes: This explanation <b>disagrees</b> with the opinion <b>of Rav Yosei bar Ḥoni, as Rav Yosei bar Ḥoni says: A person is jealous of everyone except for his son and his student.</b> Since their success reflects well upon him, he celebrates their success. The fact that one is not jealous of <b>his son</b> is derived <b>from</b> King David’s servants telling him: May <b>Solomon</b> be greater than he is. <b>And</b> the fact that one is not jealous of <b>his student; if you wish, say</b> that it is derived from that which Elisha said to Elijah: <b>“I pray you that a double portion of your spirit be upon me”</b> (II Kings 2:9). He asked of his mentor to be greater than him, indicating that it is not an objectionable matter. <b>And if you wish, say</b> instead that it is derived from Moses: <b>“And he laid his hands upon him and commanded him”</b> (Numbers 27:23). God commanded Moses to lay only one hand upon Joshua, and instead he laid both hands upon him with all his strength.
+
+### Part 16
+§ With regard to the verse: <b>“And the Lord placed a matter in Balaam’s mouth”</b> (Numbers 23:5), <b>Rabbi Elazar says:</b> It was <b>an angel</b> that spoke from his mouth. <b>Rabbi Yonatan says:</b> It was <b>a hook</b> placed in his mouth to prevent him from saying anything else.
+
+### Part 17
+<b>Rabbi Yoḥanan says: From the blessing of that wicked person,</b> Balaam, <b>you</b> can <b>ascertain what was in his heart.</b> God transformed the curses that he planned into blessings. <b>He sought to say that they should not have synagogues and study halls,</b> and he said instead: <b>“How goodly are your tents, Jacob”</b> (Numbers 24:5), a blessing on their synagogues. He sought to say <b>that the Divine Presence [<i>shekhina</i>] will not rest upon them,</b> and he said instead: <b>“And your dwellings [<i>mishkenot</i>] Israel.”</b> He sought to say that <b>the kingdom of Israel would not continue,</b> and he said instead that it would continue: <b>“Like the winding brooks”</b> (Numbers 24:6), which flow continuously. He sought to say that <b>they would have no olive trees and vineyards,</b> and he said instead: <b>“Like gardens by the river’s side”</b> (Numbers 24:6). He sought to say that <b>their fragrance would not diffuse</b> from their fulfillment of mitzvot, and he said instead: <b>“Like aloes that the Lord has planted”</b> (Numbers 24:6).
+
+### Part 18
+He sought to say that <b>they would not have kings of stature,</b> and he said instead: <b>“Like cedar trees beside the waters”</b> (Numbers 24:6). He sought to say that <b>they will not have a king the son of a king,</b> and he said instead: <b>“Water shall flow from his branches”</b> (Numbers 24:7). He sought to say that <b>their kingdom would not rule over the nations,</b> and he said instead: <b>“And his seed shall be in many waters”</b> (Numbers 24:7). He sought to say that <b>their kingdom would not be fierce,</b> and he said instead: <b>“And his king shall be higher than Agag.”</b> He sought to say <b>that there will be no fear of their kingdom,</b> and he said instead: <b>“And his kingdom shall be exalted”</b> (Numbers 24:7).
+
+### Part 19
+<b>Rabbi Abba bar Kahana says: All of</b> the blessings ultimately <b>reverted to</b> be fulfilled as the <b>curse</b> that he originally intended, as all of those circumstances befell the Jewish people, <b>except for</b> the destruction of <b>synagogues and study halls, as it is stated: “And the Lord your God transformed the curse into a blessing for you, because the Lord your God loved you”</b> (Deuteronomy 23:6). <b>A curse</b> in the singular, <b>not curses</b> in the plural, was transformed permanently.
+
+### Part 20
+<b>Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says: What</b> is the meaning of that <b>which is written: “Faithful are the wounds of a friend; but the kisses of an enemy are importunate”</b> (Proverbs 27:6)? <b>Better is the curse that Ahijah the Shilonite cursed the Jewish people than the blessing that Balaam the wicked blessed them. Ahijah the Shilonite cursed Israel with a reed, as it is stated: “For the Lord shall smite Israel as a reed is shaken in water”</b> (I Kings 14:15). There is an aspect of blessing in that curse, as he was saying they will be <b>just like a reed</b> that <b>stands in a place</b> near <b>water,</b> as the water sustains it, <b>and its stalk</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

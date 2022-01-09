@@ -1,0 +1,90 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>There are</b> four types of meal offerings: Those <b>that require</b> both <b>oil and frankincense,</b> those that require <b>oil but not frankincense,</b> those that require <b>frankincense but not oil,</b> and those that require <b>neither frankincense nor oil.</b>
+
+### Part 2
+The mishna elaborates: <b>And these</b> are the meal offerings that <b>require</b> both <b>oil and frankincense: The fine-flour meal offering,</b> as it is stated: “And he shall pour oil upon it, and put frankincense thereon” (Leviticus 2:1); <b>the</b> meal offering prepared in <b>a pan</b> (see Leviticus 2:5–6); <b>the</b> meal offering prepared in <b>a deep pan</b> (see Leviticus 2:7–10); <b>and the</b> meal offering baked in an oven, which can be brought in the form of <b>loaves or</b> in the form of <b>wafers</b> (see Leviticus 2:4).
+
+### Part 3
+Additional meal offerings that require both oil and frankincense are <b>the meal offering of priests; the meal offering of the anointed priest,</b> i.e., the griddle-cake offering brought by the High Priest every day, half in the morning and half in the evening; <b>the meal offering of a gentile; a meal offering</b> brought <b>by women;</b> and <b>the <i>omer</i> meal offering</b> (see Leviticus 23:15).
+
+### Part 4
+<b>The meal offering</b> brought with <b>libations</b> that accompany burnt offerings and peace offerings <b>requires oil but does not require frankincense. The shewbread requires frankincense but does not require oil.</b>
+
+### Part 5
+<b>The two loaves</b> brought on the festival of <i>Shavuot</i> (see Leviticus 23:17), <b>the meal offering of a sinner, and the meal offering of jealousy</b> brought by a <i>sota</i> <b>require neither oil nor frankincense.</b> The two loaves do not require oil or frankincense because these additions are not mentioned with regard to it. The meal offering of a sinner does not require them, as it is written: “He shall not put oil upon it, neither shall he give any frankincense upon it; for it is a sin offering” (Leviticus 5:11). With regard to the meal offering brought by a <i>sota</i>, it is similarly written: “He shall pour no oil upon it, nor give frankincense upon it, for it is a meal offering of jealousy, a meal offering of memorial, bringing iniquity to remembrance” (Numbers 5:15).
+
+### Part 6
+<strong>GEMARA:</strong> <b>Rav Pappa stated</b> a principle with regard to all the <i>mishnayot</i> in tractate <i>Menaḥot</i>: <b>Anywhere that we learned</b> in a mishna that one brings a meal offering, <b>we learned</b> that one must bring <b>ten</b> items of the same type, either loaves or wafers. The Gemara explains: This statement of Rav Pappa serves <b>to exclude</b> the opinion <b>of Rabbi Shimon, who says:</b> One who takes a vow to bring a meal offering baked in an oven must bring ten items. If he wishes, he may bring ten loaves or ten wafers, and if he wishes <b>he may bring half</b> of them as <b>loaves and</b> the other <b>half</b> as <b>wafers.</b> Rav Pappa <b>teaches us</b> that the <i>tanna</i> of the mishna maintains <b>that</b> one may <b>not</b> do so; all ten must be of the same type.
+
+### Part 7
+§ The mishna teaches that the <i>omer</i> meal offering requires both oil and frankincense. With regard to this meal offering, <b>the Sages taught</b> in a <i>baraita</i>: The verse states: <b>“And you shall put oil upon it</b> and lay frankincense upon it; it is a meal offering” (Leviticus 2:15). From this it can be inferred: One must put oil specifically “upon it,” <b>but</b> one does <b>not</b> place <b>oil upon the shewbread.</b>
+
+### Part 8
+<b>As</b> one <b>might</b> have thought: Could <b>this not</b> be derived through an <i>a fortiori</i> <b>inference,</b> to conclude that the shewbread should require oil? The <i>baraita</i> explains: <b>And if the meal offering</b> brought with <b>libations</b> that accompany burnt offerings and peace offerings, <b>which does not require frankincense,</b> nevertheless <b>requires oil,</b> then with regard to <b>the shewbread,</b> for which the <i>halakha</i> is more stringent in <b>that</b> it <b>requires frankincense, is it not logical that</b> it should also <b>require oil?</b> Therefore, <b>the verse states “upon it,”</b> which indicates that one places <b>oil upon it,</b> the <i>omer</i> meal offering, <b>but</b> one does <b>not</b> place <b>oil upon the shewbread.</b>
+
+### Part 9
+Similarly, the phrase <b>“and lay frankincense upon it”</b> indicates that one must place <b>frankincense “upon it,” but</b> one does <b>not</b> place <b>frankincense upon the meal offering</b> brought with <b>libations.</b>
+
+### Part 10
+<b>As</b> one <b>might</b> have thought: Could <b>this not</b> be derived through an <i>a fortiori</i> <b>inference? And if the shewbread,</b> for <b>which</b> the <i>halakha</i> is more lenient than the meal offering brought with libations in that it <b>does not require oil,</b> nevertheless <b>requires frankincense,</b> then concerning <b>the meal offering</b> brought with <b>libations, which</b> does <b>require oil, is it not logical that</b> it should also <b>require frankincense?</b> Therefore, <b>the verse states “upon it,”</b> to indicate that one places <b>frankincense upon it,</b> the <i>omer</i> meal offering, <b>but</b> one does <b>not</b> place <b>frankincense upon the meal offering</b> brought with <b>libations.</b>
+
+### Part 11
+In the phrase “it is a meal offering,” the term <b>“meal offering”</b> serves <b>to include</b> in the obligation of frankincense the <b>meal offering of the eighth</b> day of the inauguration of the Tabernacle in the wilderness. With regard to that offering the verse states: “And a meal offering mixed with oil” (Leviticus 9:4), but it does not mention frankincense. Therefore, the term “meal offering” written in the context of the <i>omer</i> meal offering serves to apply the requirement <b>of frankincense</b> to the meal offering of the eighth day of inauguration. And the term <b>“it is”</b> in the same phrase serves <b>to exclude the two loaves</b> sacrificed on <i>Shavuot</i>, to indicate <b>that they will require neither oil nor frankincense.</b>
+
+### Part 12
+The Gemara analyzes the <i>halakhot</i> stated in the <i>baraita</i>: <b>The Master said</b> that the phrase: “And you shall put <b>oil upon it,”</b> teaches that one places oil upon the <i>omer</i> meal offering, <b>but</b> one does <b>not</b> place <b>oil on the shewbread.</b> The Gemara raises a difficulty: Why does the <i>baraita</i> conclude that this verse excludes the shewbread? One can <b>say</b> instead: <b>“Upon it”</b> you shall place <b>oil, but</b> one does <b>not</b> place <b>oil on the meal offering of priests.</b>
+
+### Part 13
+The Gemara answers: <b>It stands to reason</b> that <b>the meal offering of priests should be included</b> in the requirement of oil, <b>as</b> the meal offering of priests is similar in many ways to the <i>omer</i> meal offering that is the subject of the verse. The Gemara details the points of similarity between the two types of meal offerings: Both are prepared from <b>a tenth</b> of an ephah of flour, whereas each of the twelve loaves of the shewbread is prepared from two-tenths of an ephah. Furthermore, both are kneaded and consecrated in a service <b>vessel,</b> whereas the shewbread is not consecrated in a service vessel but rather is baked in an oven in the Temple courtyard.
+
+### Part 14
+Thirdly, both the meal offering of priests and the <i>omer</i> meal offering are sacrificed <b>outside</b> the Sanctuary on the outer altar, whereas the shewbread is placed on the Table inside the Sanctuary. <b>And</b> in both cases the <i>halakha</i> of a change in <b>form</b> applies, i.e., if they were left overnight without being sacrificed they are disqualified, whereas the shewbread is left on the Table for a week. Furthermore, in both cases there is the obligation of <b>bringing</b> the meal offering <b>near</b> to the lower part of the altar, at the southwest corner, an obligation that does not apply to the shewbread.
+
+### Part 15
+<b>And</b> finally, some portion of both the meal offering of priests and the <i>omer</i> meal offering is placed in the <b>fire,</b> as the handful of the <i>omer</i> meal offering is sacrificed, while the entire meal offering of a priest is burned on the altar. By contrast, the shewbread is not sacrificed on the altar at all. In total, there are therefore six points of similarity between the meal offering of priests and the <i>omer</i> meal offering, all of which are not shared by the shewbread. Consequently, the requirement of oil stated with regard to the <i>omer</i> meal offering should also apply to the meal offering of priests, not to the shewbread.
+
+### Part 16
+The Gemara counters: <b>On the contrary [<i>adderabba</i>],</b> it stands to reason that <b>the shewbread,</b> not the meal offering of priests, <b>should be included</b> in the requirement of oil, <b>as</b> the shewbread has points of similarity with the <i>omer</i> meal offering <b>in that</b> both the shewbread and the <i>omer</i> meal offering are <b>communal</b> meal offerings, whereas the meal offering of priests is an individual meal offering. Furthermore, they are both <b>obligatory</b> offerings, whereas the meal offering of priests is voluntary. Additionally, both can sometimes be sacrificed in a state of <b>ritual impurity,</b> as the prohibition against performing the Temple service in a state of impurity is disregarded in cases involving the public. Like the offering of an individual, the meal offering of priests is not brought in a state of impurity.
+
+### Part 17
+Also, there is the <i>halakha</i> <b>that</b> both the shewbread and the <i>omer</i> meal offering are <b>eaten</b> by priests, while the meal offering of priests is entirely burned on the altar. Furthermore, the <i>halakha</i> of <b>an offering that was sacrificed with the intent to consume it after its designated time [<i>piggul</i>]</b> applies to both the shewbread and the <i>omer</i> meal offering, but not to the meal offering of priests. And finally, both the shewbread and the <i>omer</i> meal offering are brought even <b>on Shabbat,</b> as they are communal offerings, whereas the meal offering of priests is not sacrificed on Shabbat. Accordingly, there are also six points of similarity between the shewbread and the <i>omer</i> meal offering. Why, then, isn’t the verse interpreted as including the shewbread in the requirement of oil, and excluding the meal offering of priests?
+
+### Part 18
+The Gemara answers: Even so, <b>it stands to reason</b> that one should include the meal offering of priests, as in the same passage that deals with the <i>omer</i> meal offering the verse states: “And when <b>anyone</b> brings a meal offering to the Lord, his offering shall be of fine flour” (Leviticus 2:1). This verse includes all meal offerings of individuals in the <i>halakhot</i> of meal offerings stated in this chapter, including the meal offering of priests.
+
+### Part 19
+The Gemara further analyzes the <i>baraita</i>. <b>The Master said:</b> The phrase: “And lay <b>frankincense upon it”</b> (Leviticus 2:15), teaches that one must place frankincense upon the <i>omer</i> meal offering, <b>but</b> one does <b>not</b> place <b>frankincense upon the meal offering</b> brought with <b>libations.</b> The Gemara asks: Why does the <i>baraita</i> state that this verse excludes the meal offering brought with libations? One can <b>say:</b> One places <b>frankincense upon</b> the <i>omer</i> meal offering, <b>but</b> one does <b>not</b> place <b>frankincense upon the meal offering of priests.</b>
+
+### Part 20
+The Gemara answers: <b>It stands to reason</b> that <b>the meal offering of priests should be included</b> in the requirement of frankincense, <b>as</b> the meal offering of priests is similar in many respects to the <i>omer</i> meal offering. The Gemara elaborates: Both are prepared from <b>a tenth</b> of an ephah of flour, whereas the libations that accompany meal offerings come in various amounts, depending on the type of animal offering they accompany. Furthermore, in both cases the flour is <b>mixed with a <i>log</i></b> of oil, whereas in the case of the meal offering brought with libations, the amount of oil mixed with the flour depends on the type of animal offering it accompanies.
+
+### Part 21
+Additionally, both the meal offering of priests and the <i>omer</i> meal offering are <b>brought near</b> to the altar, a ritual that is not performed with the meal offering brought with libations. And finally, both are sacrificed <b>due to themselves,</b> i.e., they do not accompany any other offering, whereas meal offerings brought with libations accompany animal offerings. There are therefore four points of similarity between the meal offering of priests and the <i>omer</i> meal offering that do not apply to the meal offering brought with libations.
+
+### Part 22
+The Gemara counters: <b>On the contrary,</b> it stands to reason that <b>the meal offering</b> brought with <b>libations</b> and not the meal offering of priests <b>should be included</b> in the requirement of frankincense. This is <b>because</b> the meal offering brought with libations is similar to the <i>omer</i> meal offering <b>in that</b> both the meal offering brought with libations and the <i>omer</i> meal offering are <b>communal</b> meal offerings, whereas the meal offering of priests is that of an individual.
+
+### Part 23
+Furthermore, both the meal offering brought with libations and the <i>omer</i> meal offering are <b>obligatory</b> offerings, while the meal offering of priests is a gift offering. <b>And</b> both may sometimes be sacrificed in a state of <b>ritual impurity,</b> as the prohibition against performing the Temple service in a state of impurity is disregarded in cases involving the public; whereas the meal offering of priests must be brought in a state of purity because it is an offering of an individual.
+
+### Part 24
+Finally, both are brought even <b>on Shabbat,</b> whereas the meal offering of priests may not be brought on Shabbat. Accordingly, as there are also four points of similarity between the meal offering brought with libations and the <i>omer</i> meal offering, one can ask why the meal offering brought with libations is not included in the requirement of frankincense. The Gemara answers: <b>It stands to reason</b> that one should include the meal offering of priests in the requirement of frankincense, as the verse states: <b>“Anyone”</b> (Leviticus 2:1), which is referring to all meal offerings of individuals.
+
+### Part 25
+The <i>baraita</i> teaches that the term: <b>“Meal offering”</b> (Leviticus 2:15), serves <b>to include</b> the <b>meal offering of the eighth</b> day of the inauguration of the Tabernacle <b>in</b> the requirement of <b>frankincense.</b> The Gemara raises a difficulty: <b>But</b> one can <b>say</b> that this term serves <b>to exclude</b> the meal offering of the eighth day from the requirement of frankincense. The Gemara is puzzled by this suggestion: <b>What is this</b> suggestion? <b>Granted, if you say</b> that the verse serves <b>to include</b> the meal offering of the eighth day of inauguration in the requirement of frankincense, it works out <b>well.</b> This is because the only reason one could know that the requirement of frankincense applies would be that the <i>halakha</i> of this meal offering, which was brought on one occasion, is derived from the <i>halakha</i> of a meal offering that is brought in all generations.
+
+### Part 26
+<b>But if you say</b> that the verse serves <b>to exclude</b> the meal offering of the eighth day of the inauguration of the Tabernacle from the requirement of frankincense, <b>why do I</b> need a verse for this purpose? There is a principle that <b>we do not learn</b> the requirements of <b>transitory</b> offerings <b>from</b> the requirement of offerings of later <b>generations.</b> In other words, even without this verse one would not have thought that the requirement of frankincense applies to the meal offering of the eighth day, so there is no need for the verse to exclude this possibility.
+
+### Part 27
+The <i>baraita</i> teaches that the term: <b>“It is”</b> (Leviticus 2:15), serves <b>to exclude the two loaves</b> sacrificed on <i>Shavuot</i>, to indicate <b>that they will require neither oil nor frankincense.</b> The Gemara raises a difficulty: <b>But</b> one can <b>say</b> that this serves <b>to exclude the meal offering of priests</b> from the requirements of oil and frankincense. The Gemara answers: <b>It stands to reason</b> that <b>the meal offering of priests should be included</b> in these requirements, while the two loaves should be excluded, <b>as</b> the meal offering of priests is similar to the <i>omer</i> meal offering in several respects that do not apply to the two loaves. The Gemara elaborates: Both are prepared from <b>a tenth</b> of an ephah of flour, unlike the two loaves, which are prepared from two-tenths.
+
+### Part 28
+Furthermore, both are consecrated in a service <b>vessel,</b> unlike the two loaves, which are consecrated by being baked in an oven. Both come as <b><i>matza</i>,</b> whereas the two loaves are leaven. <b>And</b> both come due to <b>themselves,</b> not with any other offering, whereas the two loaves come together with the lambs on <i>Shavuot</i>. With regard to both the meal offering of priests and the <i>omer</i> meal offering, there is an obligation to <b>bring</b> them <b>near</b> to the altar, which does not apply to the two loaves. <b>And</b> finally, they are both placed in the <b>fire</b> atop the altar, whereas the two loaves are not sacrificed on the altar.
+
+### Part 29
+The Gemara counters: <b>On the contrary,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

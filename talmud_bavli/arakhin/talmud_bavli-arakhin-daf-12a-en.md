@@ -1,0 +1,51 @@
+
+### Part 1
+§ <b>A dilemma was raised before</b> the Sages: With regard to <b>libations that are brought by themselves,</b> without an animal offering, <b>do they require song</b> on the part of the Levites as the libations are poured on the altar, <b>or do they not require song?</b> The Gemara explains the sides of the dilemma: Should it be assumed that <b>since Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says: From where</b> is it derived that <b>one recites a song</b> of praise in the Temple <b>only over wine,</b> it can be inferred that <b>we recite</b> songs whenever wine is poured on the altar? <b>Or perhaps we recite</b> songs only <b>upon the eating and drinking</b> of the altar, i.e., when both an animal offering is burnt and a libation is also poured upon the altar, but <b>upon the drinking</b> of the altar <b>alone, we do not recite</b> songs.
+
+### Part 2
+The Gemara seeks to resolve the dilemma through a <i>baraita</i> cited earlier. <b>Come</b> and <b>hear: Rabbi Yosei says</b> that <b>a fortunate</b> matter <b>is brought about on an auspicious day,</b> and a deleterious matter on an inauspicious day, e.g., the Ninth of Av, on which several tragedies have already occurred. As the Sages said: When the Temple was destroyed for the first time, that day was the Ninth of Av; and it was the conclusion of Shabbat; and it was the year after a Sabbatical Year; and it was the week of the priestly watch of Jehoiarib; and the priests and Levites were standing on their platform and singing the verse: “And He brought upon them their own iniquity, and He will cut them off in their own evil” (Psalms 94:23).
+
+### Part 3
+The Gemara analyzes the <i>baraita</i>: <b>This song, what was its purpose? If we say that</b> it accompanied <b>an obligatory burnt offering, was there</b> any obligatory communal burnt offering sacrificed at that time? <b>The daily offering had ceased</b> to be brought <b>on the seventeenth of Tammuz,</b> three weeks before the Ninth of Av. <b>Rather,</b> it would seem that this song accompanied <b>a voluntary burnt offering.</b> The Gemara asks: <b>But didn’t Rav Mari, son of Rav Kahana, teach that</b> a voluntary burnt offering <b>does not require</b> song? <b>Rather, is it not</b> the case <b>that</b> the song accompanied <b>libations</b> brought without an animal offering? This would prove that the Levites sing when a wine libation is brought, even without an animal offering.
+
+### Part 4
+<b>Rava said, and some say</b> it was <b>Rav Ashi</b> who said: <b>And can you understand</b> that this song was recited over any offering? <b>The song of the day</b> for Sunday, which is when the <i>baraita</i> says that the Temple was destroyed, is the psalm beginning with the verse: “A psalm of David. <b>The earth is the Lord’s, and the fullness thereof”</b> (Psalms 24:1). And yet the verse that the <i>baraita</i> says that the Levites were singing: <b>“And He brought upon them their own iniquity,” is in the song for Wednesday,</b> not the song for Sunday. <b>Rather, it was merely</b> a portentous <b>lamentation that came into their mouths,</b> not a song recited over an offering. Consequently, no proof can be offered from this <i>baraita</i>.
+
+### Part 5
+The Gemara asks: <b>But isn’t it taught</b> in the <i>baraita</i> that the Levites were <b>standing on their platform</b> near the altar, which is the place where they sing to accompany offerings? The Gemara answers: This can be explained <b>in accordance with</b> the opinion of <b>Reish Lakish. As Reish Lakish says:</b> The Levites are permitted to <b>recite a song</b> on the platform even when it is <b>not for an offering.</b> The Gemara asks: <b>If so, let</b> them <b>also recite</b> a song <b>for libations</b> that are brought without an animal offering, even if that is not required. The Gemara answers: This could <b>result in a mishap,</b> as the Levites might assume that just as singing for libations which are brought without an animal offering is optional, so too, singing for libations that accompany an animal offering is also optional.
+
+### Part 6
+§ The Gemara discusses <b>the</b> matter <b>itself</b> cited in the <i>baraita</i>. <b>Rabbi Yosei says: A fortunate</b> matter <b>is brought about on an auspicious day,</b> and a deleterious matter on an inauspicious day. As the Sages said: When the Temple was destroyed for the first time, that day was the Ninth of Av; and it was the conclusion of Shabbat; and it was the year after a Sabbatical Year.
+
+### Part 7
+The Gemara asks: <b>Can you find</b> such a possibility, that when the Temple was destroyed <b>for the first time</b> it was <b>in the year after a Sabbatical</b> Year? <b>But isn’t it written</b> in a verse that Ezekiel experienced a prophecy <b>“in the twenty-fifth year of our captivity, at the beginning of the year, on the tenth day of the month, in the fourteenth year after the city was smitten”</b> (Ezekiel 40:1)? <b>Which</b> is the <b>year when the beginning of the year is on the tenth of the month? You must say</b> that <b>this</b> is referring to <b>the Jubilee,</b> which begins on Yom Kippur, the tenth of Tishrei.
+
+### Part 8
+<b>But if it enters your mind</b> to say that the Temple was <b>destroyed in the first</b> year <b>of the Sabbatical cycle,</b> it is impossible that the Jubilee, which follows a Sabbatical Year, occurred on the fourteenth year after the destruction of the Temple: Counting <b>from the first</b> year <b>of the Sabbatical cycle to</b> the next <b>first</b> year <b>of the Sabbatical cycle,</b> one arrives at year <b>eight.</b> If one continues to count <b>to the first</b> year <b>of</b> yet <b>another Sabbatical cycle, it is the fifteenth</b> year after the year of the destruction of the Temple, not the fourteenth year.
+
+### Part 9
+The Gemara answers: <b>Ravina said:</b> The meaning of the verse is that it was <b>in the fourteenth year after the year that the city was smitten.</b> The year of the destruction is not counted as year one of the fourteen years; rather, year one was the following year. The destruction took place in the thirty-sixth year of the Jubilee cycle, and therefore the Jubilee occurred fourteen years later.
+
+### Part 10
+The Gemara objects: <b>If so,</b> when the verse states that Ezekiel’s prophecy fourteen years after the destruction of the Temple was <b>in the twenty-fifth year</b> of captivity, that is not precise; <b>it was</b> actually the <b>twenty-sixth</b> year of captivity. <b>As the Master says</b> in a <i>baraita</i>: The Jews <b>were exiled</b> first <b>in</b> Nebuchadnezzar’s <b>seventh</b> year, and <b>they were</b> also <b>exiled</b> first <b>in</b> Nebuchadnezzar’s <b>eighth</b> year. This first exile took place during Nebuchadnezzar’s eighth year counting from the beginning of his reign; it was Nebuchadnezzar’s seventh year counting from the year he subjugated Jehoiakim, king of Judah.
+
+### Part 11
+The <i>baraita</i> continues: <b>They were</b> then <b>exiled</b> a second time <b>in</b> Nebuchadnezzar’s <b>eighteenth</b> year, and <b>they were exiled in</b> Nebuchadnezzar’s <b>nineteenth</b> year, when the Temple was destroyed. This statement will be explained later.
+
+### Part 12
+The Gemara explains the objection: Now, <b>from the seventh</b> year, when the first exile occurred, <b>until the eighteenth</b> year, when the second exile occurred, in conjunction with the Temple’s destruction, is <b>eleven</b> years, not counting the year of the destruction, <b>and</b> an additional <b>fifteen</b> years, until the date mentioned in the verse in Ezekiel, <b>equals twenty-six</b> years from the first exile, not twenty-five.
+
+### Part 13
+The Gemara explains that <b>Ravina</b> could have <b>said to you: And according to you,</b> who maintains that the fourteen years mentioned in the verse include the year of the destruction of the Temple, <b>does it work out well? Now, they were also exiled in the nineteenth</b> year, and it was then that the Temple was destroyed. <b>From the seventh</b> year <b>until the nineteenth</b> year is <b>twelve</b> years, <b>and</b> an additional <b>fourteen</b> years until the date mentioned in the verse in Ezekiel <b>equals twenty-six</b> years from the first exile, not twenty-five. <b>Rather, what have you to say?</b> That the twenty-five years are counted <b>separate from the year when they were exiled</b> for the first time. <b>According to my</b> opinion <b>also,</b> I can say that the twenty-five years are <b>separate from the year when they were exiled</b> for the first time.
+
+### Part 14
+The Gemara objects: <b>In any case,</b> the assertion of the <i>baraita</i> that the destruction of the Temple occurred in the <b>nineteenth</b> year is <b>difficult for Ravina,</b> because there are eleven years from the first exile until the year of the destruction, not counting the year of the exile or the year of the destruction, and then an additional fifteen years, including the year of the destruction, until the date mentioned in the verse in Ezekiel, which is a total of twenty-six years, not twenty-five.
+
+### Part 15
+The Gemara explains: <b>Do you hold</b> that <b>there were three</b> separate <b>exiles,</b> one in the seventh or eighth year, a second one in the eighteenth year, and a third one in the nineteenth year? In truth there were only two exiles: <b>They were exiled in the seventh</b> year <b>from</b> Nebuchadnezzar’s <b>subjugation of Jehoiakim, which was the eighth</b> year <b>of Nebuchadnezzar’s</b> reign. <b>They were</b> then <b>exiled</b> a second time, when the Temple was destroyed, <b>in the eighteenth</b> year <b>from the subjugation of Jehoiakim, which was</b> actually in <b>the nineteenth</b> year <b>of Nebuchadnezzar’s</b> reign. Consequently, there were eleven years from the first exile to the destruction of the Temple, not counting the year of the exile, and another fourteen years until the verse in Ezekiel, which equals a total of twenty-five years.
+
+### Part 16
+The Gemara corroborates its interpretation of the <i>baraita</i>. <b>As the Master says: In the first year</b> of his reign, Nebuchadnezzar <b>conquered Nineveh;</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

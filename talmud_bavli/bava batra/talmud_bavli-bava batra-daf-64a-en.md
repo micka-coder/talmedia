@@ -1,0 +1,27 @@
+
+### Part 1
+<b>And if it enters your mind</b> to say that when a house is sold <b>without specification,</b> the buyer <b>acquires the depth and the height</b> of the house, then even <b>when</b> it has a parapet <b>ten handbreadths high, what of it?</b> Why shouldn’t the buyer acquire the roof? The Gemara answers: <b>Since</b> the parapet <b>is ten handbreadths high,</b> the roof <b>is significant</b> in its own right, and therefore, unless it is specifically included in the sale, the buyer does not acquire such a roof along with the house.
+
+### Part 2
+<b>Ravina said to Rav Ashi: Come</b> and <b>hear</b> another proof, <b>as Reish Lakish says: That is to say</b> that with regard to one <b>who sells a house to another and says to him:</b> I am selling you this house <b>on the condition that the upper story is mine, the upper story is his. And</b> in the Gemara’s examination of Reish Lakish’s statement, <b>we said: With regard to what <i>halakha</i></b> did Reish Lakish say this? In any case the upper story is his, as when he sold the house it was only the lower story that he sold to the buyer. <b>Rav Zevid says:</b> He said this to teach the <i>halakha</i> <b>that if</b> the seller <b>wishes to extend from</b> the upper story <b>projections</b> over the courtyard, which was included in the sale, <b>he may extend</b> them. <b>Rav Pappa says:</b> He said this to teach the <i>halakha</i> <b>that if</b> this upper story collapses and the seller <b>wishes to build an upper story on top of it</b> to replace it, <b>he may build</b> it.
+
+### Part 3
+<b>And if it enters your mind</b> to say that when a house is sold <b>without specification,</b> the buyer <b>does not acquire</b> the depth and the height of a house, Rav Pappa’s statement is puzzling. As <b>why do I</b> need the seller to stipulate that he is selling the house <b>on the condition</b> that the upper story is his when in any event the space above the house remains in the seller’s possession? The Gemara answers: Stipulating that he is selling the house <b>on the condition</b> that the upper story is his <b>benefits him</b> in <b>that if</b> the upper story <b>collapses, he</b> may <b>rebuild it.</b> Without this stipulation the seller could not rebuild it, even if the sale did not include the depth and the height of the house.
+
+### Part 4
+<strong>MISHNA:</strong> One who sells a house without specification has sold <b>neither the pit nor the cistern [<i>dut</i>], even if he writes for</b> the buyer in the bill of sale that he is selling <b>him the depth and the height</b> of the house, as anything that is not part of the house, like pits and cisterns, must be explicitly mentioned in the contract or else they remain in the seller’s possession. <b>And</b> therefore the seller <b>must purchase for himself a path</b> through the buyer’s domain to reach whatever remains his, because he has sold the area of the house along with the house itself, and he no longer has permission to walk there. This is <b>the statement of Rabbi Akiva. And the Rabbis say:</b> The seller <b>need not purchase for himself a path</b> through the buyer’s domain, as this is certainly included in what he has withheld for himself from the sale.
+
+### Part 5
+<b>And Rabbi Akiva concedes that when</b> the seller <b>says to</b> the buyer in the bill of sale: I am selling you this house <b>apart from</b> the pit and the cistern, <b>he need not purchase for himself a path</b> through the buyer’s domain. Since the seller unnecessarily emphasized that the pit and the cistern are not included in the sale, he presumably intended to reserve for himself the right of access to them.
+
+### Part 6
+If the seller kept the house, but <b>sold</b> the pit and the cistern <b>to another, Rabbi Akiva says:</b> The buyer <b>need not purchase for himself a path</b> through the seller’s domain to reach what he has bought. <b>But the Rabbis say: He must purchase for himself a path</b> through the seller’s domain.
+
+### Part 7
+<strong>GEMARA:</strong> It is related that <b>Ravina</b> once <b>sat</b> and examined the matter <b>and posed a difficulty: A pit is</b> the same as <b>a cistern.</b> Why, then, was it necessary to mention both of them? <b>Rava Tosfa’a said to Ravina: Come</b> and <b>hear</b> a solution to this question, <b>as it is taught</b> in a <i>baraita</i>: <b>Both a pit and a cistern</b> are dug out <b>in the ground;</b> the difference is <b>only</b> that <b>a pit</b> is constructed <b>through digging</b> alone, <b>while a cistern</b> is subsequently finished on the inside <b>by building</b> masonry walls. It is similarly related that <b>Rav Ashi</b> once <b>sat and posed a difficulty: A pit is</b> the same as <b>a cistern. Mar Kashisha, son of Rav Ḥisda, said to Rav Ashi: Come</b> and <b>hear</b> a solution to this question, <b>as it is taught</b> in a <i>baraita</i>: <b>Both a pit and a cistern</b> are dug <b>in the ground,</b> the difference is <b>only</b> that <b>a pit</b> is constructed <b>through digging</b> alone, <b>while a cistern</b> is subsequently finished on the inside <b>by building</b> masonry walls.
+
+### Part 8
+§ The mishna teaches: <b>And</b> the seller <b>must purchase for himself a path</b> through the buyer’s domain; this is <b>the statement of Rabbi Akiva. And the Rabbis say:</b> The seller <b>need not</b> purchase such a path. <b>What, is it not about this</b> issue, which will immediately be explained, that Rabbi Akiva and the Rabbis <b>disagree?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

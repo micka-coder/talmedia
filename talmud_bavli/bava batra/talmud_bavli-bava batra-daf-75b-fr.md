@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>et j'ai decrete la mort sur Adam le premier</b> homme, pour demontrer qu'il etait humain et non un dieu.
+
+### Partie 2
+§ La Guemara revient sur le verset susmentionne : "Et le Seigneur creera sur toute la demeure de la montagne de Sion, et sur ceux qui y sont invites, une nuee et une fumee le jour" (Isaie 4, 5). <b>Quel</b> est le sens de la phrase : <b>"Et sur ceux qui y sont invites" ? Rabba dit</b> que <b>Rabbi Yohanan dit : La Jerusalem du Monde-a-Venir n'est pas comme la Jerusalem de ce monde.</b> En ce qui concerne la <b>Jerusalem de ce monde, quiconque veut y monter</b> peut <b>monter.</b> En ce qui concerne la Jerusalem <b>du Monde-a-Venir, seuls ceux qui y sont invites</b> peuvent <b>monter.</b>
+
+### Partie 3
+<b>Et Rabba dit</b> que <b>Rabbi Yohanan dit :</b> Dans le <b>futur, les justes seront appeles par le nom du Saint, Beni soit-Il ; comme il est dit : "Tout homme qui est appelé par mon nom et que j"?ai créé pour ma gloire, je l"?ai formé, je l"?ai fait"</b> (EsaA¯e 43:7). Cela indique que celui qui a ete cree par Dieu et qui Lui procure de la gloire est appele par Son nom. <b>Et Rabbi Shmuel bar Nahmani dit</b> que <b>Rabbi Yohanan dit : Trois ont ete appeles par le nom du Saint, Beni soit-Il, et ce sont : Le juste, et le Messie, et Jerusalem.</b>
+
+### Partie 4
+En ce qui concerne <b>les justes,</b> c'est <b>comme nous</b> venons de le dire.</b> En ce qui concerne <b>le Messie,</b> c'est <b>comme il est ecrit : "Et voici son nom par lequel il sera appele : le Seigneur est notre justice"</b> (Jeremie 23, 6). En ce qui concerne <b>Jerusalem,</b> ceci est <b>comme il est ecrit : "Il y aura dix-huit mille roseaux tout autour. Et le nom de la ville, des ce jour, sera : le Seigneur est la [<i>shamma</i>]</b> (Ezechiel 48:35). <b>Ne lisez pas</b> le mot comme <b>"la" [<i>shamma</i>] ; plutot,</b> lisez-le comme : Le Seigneur est <b>son nom [<i>shemah</i>]. Rabbi Elazar dit :</b> Dans le <b>futur, les justes</b> auront le nom : <b>Holy, recite devant eux, comme on le recite devant le Saint, Beni soit-Il ; comme il est dit : "Et il arrivera que celui qui restera en Sion, et celui qui restera a Jerusalem, seront appeles saints"</b> (Isaie 4:3).
+
+### Partie 5
+<b>Et Rabba dit</b> que <b>Rabbi Yohanan dit :</b> Dans le <b>futur, le Saint, Beni soit-Il, elevera Jerusalem de trois parasangs vers le haut ; comme il est dit : "Elle sera soulevee et habitee a sa place"</b> (Zacharie 14:10). <b>Quel est le sens de l'expression <b>"a sa place"</b> Elle signifie <b>equivalent a sa place,</b> c'est-a-dire que Jerusalem sera elevee a une hauteur dont la mesure en parasangs correspond a la mesure de sa superficie en parasangs carres. La Guemara demande : <b>Et d'ou</b> provient-il <b>que la place</b> de Jerusalem <b>etait</b> une superficie de <b>trois</b> <b>parasangs carres ? Rabba dit</b> que <b>un certain ancien m'a dit : J'ai vu la Jerusalem initiale,</b> quand elle existait encore, <b>et</b> sa superficie <b>etait de trois</b> <b>parasangs carres.</b>
+
+### Partie 6
+La Guemara continue a discuter de la declaration de Rabbi Yohanan : <b>Et de peur que vous ne disiez</b> qu'il y a un inconfort a monter</b> a un endroit aussi eleve, <b>le verset indique</b> dans une prophetie decrivant le retour du peuple juif a Jerusalem : <b>Qui sont ceux qui volent comme une nuee, et comme les colombes vers leurs cotes</b> (Esaie 60:8). Cela indique qu'ils peuvent facilement s'elever vers Jerusalem, comme s'ils etaient des nuages ou des colombes. <b>Rav Pappa a dit :</b> Par ailleurs, on peut <b>apprendre de</b> cette declaration que <b>ce nuage</b> mentionne dans le verset <b>est haut de trois parasangs,</b> car il atteint Jerusalem, qui sera eleve de trois parasangs.
+
+### Partie 7
+<b>Rabbi Hanina bar Pappa dit : Le Saint, Beni soit-Il, a voulu donner</b> une <b>mesure fixe pour Jerusalem, comme il est dit</b> dans une prophetie de Zacharie : <b>J'ai leve les yeux et j'ai vu, et voici un homme avec un cordeau a mesurer dans sa main. <b>Je dis alors : Ou vas-tu ? Et il me repondit : Mesurer Jerusalem, pour voir quelle est sa largeur et quelle est sa longueur"</b> (Zacharie 2:5""6).
+
+### Partie 8
+<b>Les anges tutelaires dirent devant le Saint, beni soit-il : Maitre de l'Univers, Tu as cree dans Ton monde de nombreuses villes pour les nations du monde, et Tu n'as donne ni la mesure de leur longueur ni la mesure de leur largeur,</b> c'est-a-dire qu'elles ne sont limitees par aucune mesure fixe, mais s'etendent au fur et a mesure de leur developpement. En ce qui concerne <b>Jerusalem, qui a ton nom en elle, et ton Temple en elle, et des gens justes en elle,</b> est-ce que <b>Tu lui donneras une mesure ? Immediatement :</b> "Et voici que l'ange qui me parlait s'en alla, et un autre ange sortit a sa rencontre, <b>et lui dit : Cours, parle a ce jeune homme, en disant : Jérusalem sera habitée sans murailles, A cause de la multitude des hommes et des bêtes qui s"?y trouvent"</b> (Zacharie 2:7""8).
+
+### Partie 9
+<b>Reish Lakish dit : </b> Dans le <b>futur, le Saint, Beni soit-Il, ajoutera a Jerusalem mille</b> fois la valeur numerique de <b><i>tefaf</i></b> de <b>jardins ; mille</b> fois la valeur numerique de <b><i>kefel</i></b> de <b>tours ; mille</b> fois la valeur de <b><i>litzoy</i></b> de <b>fortifications;</b> et <b>mille deux</b> fois la valeur de <b><i>shilo</i></b> de <b>petites maisons [<i>totperaot</i>]. Et chacune</b> de ces additions <b>seront comme</b> la grande ville de <b>Tzippori dans sa prosperite.</b>
+
+### Partie 10
+La Guemara clarifie la taille de la ville de Tzippori. <b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yosei a dit : J'ai vu Tzippori dans sa prosperite, et il y avait cent quatre-vingt mille marches de vendeurs de</b> viande <b>sauces en son sein.</b> Sur cette base, on peut estimer la taille future de Jerusalem.
+
+### Partie 11
+De la meme maniere, la Gemara interprete le verset : <b>"Et les chambres laterales etaient les unes sur les autres, trois fois et trente fois"</b> (Ezechiel 41:6). <b>Quel est le sens de : <b>"Trois et trente fois" ? Rabbi Levi dit</b> que <b>Rav Pappi dit au nom de Rabbi Yehoshua de Sikhnei : Si</b> dans le futur <b>Jerusalem</b> triplera de taille, de sorte qu'elle occupera <b>trois fois</b> sa superficie anterieure, alors <b>chaque habitation</b> contiendra <b>trente etages vers le haut. Si</b> la superficie de <b>Jerusalem</b> sera multipliee par <b>trente, chaque</b> habitation <b>contiendra trois etages au-dessus</b> de chaque maison.
+
+### Partie 12
+§ La Guemara revient pour discuter de la mishna, qui traite de l'acquisition d'un navire. <b>Il a ete declare</b> qu'il y avait un differend entre les <i>amoraim</i> en ce qui concerne la maniere dont <b>un navire</b> est acquis. <b>Rav dit : Une fois</b> que l'acheteur <b>a tire</b> le navire et l'a deplace de <b>n'importe quelle quantite,</b> il l'a <b>acquis</b>. <b>Et Shmuel dit :</b> Il ne l'a <b>pas acquis</b> <b>jusqu'a ce qu'il tire l'ensemble du</b> navire dans la mesure ou l'extremite du navire a au moins atteint l'endroit precedemment occupe par son avant.
+
+### Partie 13
+La Guemara suggere : <b>Disons</b> que ce differend <b>est parallele</b> a un differend entre <b><i>tannaim</i>,</b> tel qu'il est enseigne dans une <i>baraita</i> : <b>Comment</b> un animal est-il acquis <b>par le biais du passage ? </b> Si l'acheteur <b>l'a saisi par son sabot,</b> ou <b>par son poil,</b> ou <b>par la selle qui est sur lui,</b> ou <b>par la charge qui est sur lui,</b> ou <b>par le mors [<i>perumbiyya</i>] dans sa bouche,</b> ou <b>par la clochette sur son cou,</b> il l'a <b>acquis. Comment</b> un animal est-il acquis <b>par la traction ?</b> Si <b>il l'appelle et qu'il vient, ou</b> si <b>il le frappe avec un baton et qu'il court devant lui, une fois qu'il leve une patte avant et une patte arriere</b> de la ou il se tenait, il l'a <b>acquis. Rabbi Ahai, et certains disent Rabbi Aha, dit :</b> Il ne suffit pas que l'animal souleve ses sabots. Au contraire, on ne l'acquiert <b>que lorsqu'il marche sur toute sa longueur,</b> c'est-a-dire qu'il bouge ses deux pattes anterieures et ses deux pattes posterieures.
+
+### Partie 14
+<b>Dit-on</b> que <b>Rav, qui</b> soutient que l'acheteur peut acquerir le navire meme en ne le deplacant que sur une distance minime, <b>declare</b> sa decision <b>conformement</b> a l'avis du <b>premier <i>tanna</i></b> selon lequel il suffit que l'animal leve deux pattes ; <b>Et Shmuel, qui</b> soutient que le navire entier doit etre deplace, <b>declare</b> sa decision <b>conforme</b> a l'opinion du <b>Rabbin Aha</b> que l'animal doit se deplacer sur toute sa longueur ? La Guemara rejette cette suggestion : <b>Rav</b> aurait pu vous <b>dire : J'enonce</b> ma decision <b>meme</b> conformement a l'avis du <b>Rabbi Aha,</b> puisque <b>Rabbi Aha enonce</b> son avis <b>uniquement en ce qui concerne les animaux, car bien qu'il ait leve une patte avant et une patte arriere, il se tient a sa place. Mais</b> dans le cas d'un <b>navire, des qu'un bout bouge, tout bouge,</b> et donc l'acheteur l'acquiert.
+
+### Partie 15
+<b>Et Shmuel</b> pourrait <b>dire : J'ai enonce</b> ma decision <b>meme conformement</b> a l'avis du <b>premier <i>tanna</i>. Le premier <i>tanna</i> enonce</b> son opinion <b>uniquement en ce qui concerne les animaux, car une fois</b> qu'un animal a <b>souleve une patte avant et une patte arriere, les autres</b> pattes <b>se tiennent</b> pretes <b>a etre levees. Mais</b> en ce qui concerne <b>un navire, s'il tire tout le navire</b>, <b>oui,</b> il l'acquiert, mais <b>si</b> il ne <b>pas</b> tirer tout le navire, il ne <b>pas</b> l'acquerir.
+
+### Partie 16
+La Guemara propose une autre suggestion : <b>Disons</b> que la dispute de Rav et Shmuel est <b>parallele</b> a la dispute entre <b>ces <i>tannaim</i>, telle qu'elle est enseignee</b> dans une <i>baraita</i> : <b>Un navire s'acquiert en tirant. Rabbi Natan dit : Un navire et des lettres,</b> c'est-a-dire le contenu d'un billet a ordre, <b>sont acquis en tirant</b> le document.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,15 @@
+
+### Part 1
+<b>these are</b> the <b>years of</b> the <b>generations,</b> i.e., the allotted lifespan that is preordained for each individual before birth. If <b>he is deserving,</b> God <b>completes his</b> allotted lifespan. If <b>he is not deserving,</b> God <b>reduces his</b> lifespan; this is <b>the statement of Rabbi Akiva.</b> Rabbi Akiva assumes one cannot outlive one’s preordained allotted lifespan. <b>The Rabbis say:</b> If <b>he is deserving,</b> God <b>adds</b> years <b>to his</b> lifespan. If <b>he is not deserving,</b> God <b>reduces his</b> lifespan. According to the Rabbis, Isaiah’s prophecy is referring to one who deserved to have extra years added to his allotted lifespan, and the verse in the Torah is referring to one who deserved to merely complete his lifespan.
+
+### Part 2
+The Rabbis <b>said to Rabbi Akiva:</b> How can you claim that one cannot outlive one’s allotted lifespan when <b>there is</b> a verse that <b>states</b> that Isaiah prophesied to Hezekiah as Hezekiah lay on his deathbed: <b>“And I will add unto your days fifteen years”?</b> Rabbi Akiva <b>said to them:</b> Those additional years that God <b>added to his</b> lifespan are <b>from his own</b> allotted lifespan. When Hezekiah sinned God decreed that his lifespan be shortened, but when he repented God allowed him to live out those years. <b>Know</b> that this is so, <b>as a prophet</b> during the reign of King Jeroboam <b>stood and prophesied: “Behold, a son shall be born unto the House of David, Josiah is his name”</b> (I Kings 13:2). Josiah was the grandson of Manasseh, Hezekiah’s son, and at the time Hezekiah lay on his deathbed, <b>Manasseh had not yet been born.</b> Evidently, Hezekiah’s preordained allotted lifespan had still not been completed.
+
+### Part 3
+<b>And</b> what would <b>the Rabbis</b> respond to Rabbi Akiva’s proof? They could counter: <b>Is it written</b> that Josiah was to be born specifically <b>from</b> the descendants of <b>Hezekiah? It is written</b> only that he would be born <b>“unto the House of David,”</b> so <b>he could be born either from</b> the descendants of <b>Hezekiah or from a different person</b> of the House of David. Accordingly, no proof concerning Hezekiah’s allotted lifespan can be deduced from that verse.
+
+### Part 4
+§ The mishna details the prohibition with regard to one’s wife’s sister in various cases: If a man’s <b>wife died,</b> he is permitted to her sister; if <b>his <i>yevama</i> died,</b> he is permitted to her sister. <b>Rav Yosef said: Here Rabbi</b> Yehuda HaNasi <b>taught an unnecessary mishna,</b> since the prohibition with regard to one’s wife’s sister and the fact that the prohibition exists only in the lifetime of one’s wife is stated explicitly in the Torah, and there is no additional novelty in this mishna’s ruling.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

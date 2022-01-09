@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Que meme</b> en ce qui concerne <b>sa fille, il n'y a pas d'obligation</b> de lui assurer la subsistance, cependant, <b>il y a une mitzva</b> de le faire.
+
+### Partie 2
+<b>Et si vous voulez, dites</b> que la mishna est conforme a l'opinion de <b>Rabbi Yehuda, et voici ce qu'il a dit</b> dans la mishna : <b>Un pere n'est pas oblige</b> de pourvoir a la <b>sustentation de sa fille, et a plus forte raison</b> il n'est pas tenu de pourvoir a la <b>sustentation de son fils.</b> On peut en deduire qu'il y a <b>au moins</b> une mitzva en ce qui concerne un fils, et</b> il en va de meme par <b><i>a fortiori</i></b> deduction en ce qui concerne <b>les filles. Et</b> la raison pour laquelle <b>la mishna <b>enseigne</b> le cas de <b>sa fille</b> est qu'elle <b>nous enseigne ceci : Que meme</b> en ce qui concerne <b>sa fille</b> il n'y a <b>aucune obligation,</b> malgre la mitsva de la preserver du deshonneur.
+
+### Partie 3
+<b>Et si vous voulez, dites</b> que la mishna est conforme a l'opinion de <b>Rabbi Yohanan ben Beroka, et voici ce qu'il a dit</b> dans la mishna : Un pere n'est <b>pas oblige</b> de fournir une <b>sustentation a sa fille, et il en est de meme</b> en ce qui concerne la fourniture d'une <b>sustentation a son fils. Et il en est de meme</b> en ce qui concerne une mitzva ; il n'y a <b>pas meme de mitzva</b> de nourrir ni ses fils ni ses filles, <b>mais comme</b> le <i>tanna</i> a voulu dire a propos des <b>filles</b> qu'<b>apres la mort de leur pere</b> il y a <b>une obligation</b> de les entretenir a partir de son patrimoine, il <b>a egalement enseigne</b> de maniere parallele que le pere <b>n'est pas oblige</b> de subvenir aux besoins de ses filles de son vivant. Par consequent, il est incorrect de deduire d'ici qu'il existe une mitzva de les entretenir malgre l'absence d'obligation ; la <i>tanna</i> signifie plutot qu'il n'y a pas d'obligation et meme pas de mitzva de le faire.
+
+### Partie 4
+§ <b>Rabbi Ileâ dit</b> que <b>Reish Lakish a dit au nom de Rabbi Yehuda bar Hanina : Dans Usha</b> les Sages ont <b>institue qu'un homme doit soutenir ses fils et ses filles lorsqu'ils sont mineurs. Un dilemme a ete souleve devant</b> les Sages : Est-ce que <b>le <i>halakha</i> est en accord avec son</b> avis <b>ou le <i>halakha</i> n'est pas en accord avec son</b> avis ? Un homme doit-il nourrir ses jeunes enfants en pratique ou non ? La Guemara repond : <b>Venez</b> et <b>ecoutez : Lorsqu'ils venaient devant Rav Yehuda</b> pour se plaindre d'un pere qui refusait de nourrir ses enfants, <b>il</b> leur <b>repondait : Le chacal [<i>yarod</i>] porte</b> une progeniture <b>et rejette</b> l'obligation de les nourrir <b>sur les habitants de la ville ?</b> Meme le chacal nourrit ses petits, et il est certainement convenable qu'un pere soutienne ses enfants.
+
+### Partie 5
+<b>Lorsqu'ils se presentaient devant le Rav Hisda</b> pour enregistrer une plainte similaire, <b>il</b> leur <b>disait : Retournez pour lui un mortier en public,</b> comme une plate-forme surelevee, <b>et laissez</b> ce pere <b>se lever et dire</b> a propos de lui-meme : <b>Le corbeau veut</b> prendre soin de <b>ses fils, et</b> pourtant <b>cette homme ne veut pas</b> soutenir <b>ses fils.</b> La Gemara remet en question cette affirmation : <b>Et</b> est-ce que <b>le corbeau veut</b> nourrir <b>ses fils ? Mais n'est-il pas ecrit :</b> "Il donne a la bete sa nourriture, <b>aux jeunes corbeaux qui crient"</b> (Psaumes 147:9) ? Ce verset indique que les parents des jeunes corbeaux ne les nourrissent pas. La Guemara repond : Ce n'est <b>pas difficile,</b> car dans <b>cette</b> cas, il est fait reference <b>aux blancs,</b> et dans <b>cette</b> cas, il est fait reference <b>aux noirs.</b> Il existe differents types de corbeaux, dont certains nourrissent leurs petits alors que d'autres ne le font pas.
+
+### Partie 6
+La Gemara relate en outre : <b>Lorsqu'un incident de ce genre</b> viendrait devant Rava, il</b> dirait <b>au pere</b> : Est-il <b>satisfaisant pour vous que vos fils soient soutenus par la charite ?</b> Tous ces incidents prouvent que la <i>halakha</i> n'est pas conforme au decret de Usha ; bien que ces Sages aient affirme avec force qu'il est convenable pour un pere de soutenir ses enfants, ils ne l'ont pas force a le faire par l'autorite du tribunal.
+
+### Partie 7
+La Guemara ajoute : <b>Et nous avons dit</b> cette <i>halakha</i> <b>seulement lorsqu'il n'est pas riche</b> et qu'il doit peiner dur pour fournir de la nourriture a ses enfants, <b>mais</b> s'il est <b>riche on le contraint contre sa volonte</b> a les entretenir. <b>Comme ce</b> cas <b>de Rava, qui contraignit Rav Natan bar Ami,</b> qui etait un homme riche, a faire des dons a la charite, <b>et collecta aupres de lui quatre cents dinars pour la charite.</b> Cela montre que meme en l'absence d'une obligation particuliere, le tribunal contraindra une personne a faire la charite si elle en a les moyens. Le meme raisonnement sâpplique certainement aux propres enfants dun homme.
+
+### Partie 8
+§ <b>Rabbi Ileâ dit</b> que <b>Reish Lakish a dit : In Usha</b> les Sages ont <b>institue</b> que dans le cas d'une <b>personne qui ecrit</b> un document declarant qu'elle donne <b>tous ses biens</b> en cadeau <b>a ses fils</b> de son vivant, <b>elle et sa femme sont soutenues de</b> ces biens jusqu'a leur mort.
+
+### Partie 9
+<b>Rabbi Zeira s'oppose a cela, et certains disent</b> cette objection a ete soulevee par <b>Rabbi Shmuel bar Nahmani:</b> Quelle est la signification de cette decision ? Apres tout, les Sages ont <b>dit une plus grande</b> nouveaute <b>que celle-la :</b> La <b>veuve d'un homme est soutenue par ses biens</b> meme si son domaine a ete herite par sa fille et appartient donc a son mari. Bien que ce bien soit comparable a un bien de la succession qui a ete vendu a un tiers, sur lequel une veuve n'a pas le droit de reclamer sa subsistance, dans ce cas, les Sages ont decrete qu'elle peut reclamer sa subsistance sur la succession de son defunt mari pour eviter qu'elle ne soit entierement perdante. Dans cette optique, <b>Est-il</b> <b>necessaire</b> de preciser que <b>lui et sa femme,</b> de son vivant, recoivent leur subsistance des biens qu'il a donnes en cadeau a ses fils ?
+
+### Partie 10
+La Gemara fournit le contexte de cette decision : <b>Comme Ravin l'a dit dans sa lettre</b> a Babylone : En ce qui concerne <b>celui qui est mort et a laisse une veuve et une fille, sa veuve est soutenue de ses biens,</b> car c'est une stipulation du contrat de mariage. Si <b>la fille,</b> qui est l'heritiere de son pere, <b>se marie,</b> la succession est consideree comme un bien en usufruit dont le produit appartient a son mari, mais meme ainsi <b>sa veuve est soutenue de ses biens.</b>
+
+### Partie 11
+Si <b>la fille est morte</b> et que son mari a herite d'elle, <b>Rabbi Yehuda, fils de la sœur de Rabbi Yosei bar Hanina, a dit : J'ai ete implique dans un incident</b> de ce genre lorsque cette meme question est venue devant les Sages pour une decision, <b>et ils ont dit :</b> Meme dans ce cas, <b>sa veuve est soutenue par ses biens.</b> La Guemara reitere : Tout cela etant dit, <b>Est-il</b> <b>necessaire</b> de preciser que <b>lui et sa femme</b> ont le droit de recevoir leur subsistance a partir des biens qu'il a donnes a son fils ?
+
+### Partie 12
+La Gemara repond : L'ordonnance est necessaire <b>de peur que l'on dise</b> que <b>c'est</b> dans ce cas <b>la,</b> en ce qui concerne une veuve, qu'on a institue cette <i>halakha</i>, <b>car il n'y a personne pour travailler</b> en son nom, puisqu'elle est seule, <b>mais ici,</b> ou le mari est vivant, <b>il peut travailler pour lui et pour elle,</b> c'est-a-dire sa femme. L'ordonnance d'Usha nous <b>enseigne donc</b> que le tribunal ne l'oblige pas a le faire, et elles peuvent reclamer leur subsistance sur ses anciens biens.
+
+### Partie 13
+<b>Un dilemme a ete souleve devant</b> les savants : Est-ce que <b>la <i>halakha</i> est conforme</b> a l'avis de Rabbi Ileâ, <b>ou la <i>halakha</i> n'est pas conforme a son</b> avis ? La Guemara repond : <b>Venez</b> et <b>ecoutez, alors que Rabbi Hanina et Rabbi Yonatan se tenaient</b> ensemble, et <b>un certain homme s'est approche, s'est penche et a embrasse Rabbi Yonatan sur son pied. Rabbi Hanina dit a</b> Rabbi Yonatan : <b>Qu'est-ce que c'est ?</b> Pourquoi te doit-il une telle marque de reconnaissance ? <b>Il lui a repondu : Il a ecrit</b> un document indiquant qu'il donnait <b>ses biens a ses fils,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And three rows of Torah scholars sit before</b> the judges, and <b>each and every one</b> among those sitting <b>recognizes his place,</b> i.e., they are seated in accordance with their stature. When the court <b>must ordain</b> an additional judge, e.g., if a judge dies during the proceedings or in the case of a court without a decisive majority (see 40a), the court <b>ordains</b> the greatest Torah scholar <b>from the first</b> row. As a seat in the first row is now vacant, <b>one</b> Torah scholar <b>from the second</b> row <b>comes to the first</b> row, and <b>one</b> Torah scholar <b>from the third</b> row <b>comes to the second</b> row, and the court <b>selects another</b> Torah scholar <b>from among the assembled and they seat him in the third</b> row. <b>And</b> this Torah scholar who moves from the second row to the first row <b>would not sit in the place of the first</b> Torah scholar, who joined the court, <b>rather, he</b> would <b>sit in the place appropriate for him,</b> i.e., at the end of that row, in accordance with his stature.
+
+### Part 2
+<strong>GEMARA:</strong> The mishna teaches that the Sanhedrin would sit in a semicircle. The Gemara asks: <b>From where are these matters</b> derived? <b>Rabbi Aḥa bar Ḥanina says: As the verse states: “Your navel is like a round goblet, let no mingled wine be wanting;</b> your belly is like a heap of wheat set about with lilies” (Song of Songs 7:3).
+
+### Part 3
+This verse is interpreted as referring to the members of the Sanhedrin, who sit in a semicircle. <b>“Your navel”; this</b> is an allusion to the <b>Sanhedrin. And why is it called</b> by way of allusion <b>“your navel”?</b> It is <b>because it sits in the navel of the world,</b> in the Temple. <b>“Goblet [<i>aggan</i>]”;</b> this teaches <b>that</b> the Sanhedrin <b>protects [<i>meginna</i>] the entire world</b> with its merit. <b>“Round [<i>hassahar</i>]”;</b> this teaches <b>that</b> the Sanhedrin <b>is similar to the moon [<i>sahar</i>].</b> The court sits in a semicircle, like the shape of the moon.
+
+### Part 4
+<b>“Let no mingled wine be wanting”;</b> this compares the Sanhedrin to wine mixed with water, which typically involved mixing two parts water with one part wine. This teaches <b>that if one</b> member <b>of</b> the Great Sanhedrin <b>needed to leave,</b> they <b>see: If there are</b> still present in the Chamber of Hewn Stone <b>twenty-three</b> members, i.e., a third of the judges, <b>corresponding to</b> the number of <b>a lesser Sanhedrin, he may leave, but if not, he may not leave.</b>
+
+### Part 5
+The phrase <b>“your belly is like a heap of wheat”</b> teaches that <b>just as</b> with regard to <b>a heap of wheat, all derive benefit from it, so too,</b> with regard to the <b>Sanhedrin, all derive benefit from their explanations</b> of the Torah. The phrase <b>“set about with lilies”</b> is said in praise of the Jewish people, <b>as they do not breach even a fence</b> made <b>of lilies,</b> since the Jewish people observe both Torah law as well as rabbinic ordinances and decrees.
+
+### Part 6
+<b>And this is</b> like an incident involving Rav Kahana, <b>as a certain heretic said to Rav Kahana: You say that</b> it <b>is permitted</b> for <b>a menstruating woman to seclude herself with a man,</b> i.e., her husband. Is it <b>possible</b> to set <b>fire to chips</b> of kindling <b>and not</b> have them <b>blaze</b> and burn? How can the couple be relied upon not to engage in sexual intercourse? Rav Kahana <b>said to him: The Torah testifies concerning us</b> that we are <b>“set about with lilies,” as</b> the Jewish people <b>do not breach even a fence</b> made <b>of lilies.</b>
+
+### Part 7
+<b>Reish Lakish says</b> that the source to rely on them not to transgress is <b>from here: “Your temples [<i>rakkatekh</i>] are like a pomegranate split open”</b> (Song of Songs 6:7), which teaches that <b>even the empty</b> people <b>[<i>reikanin</i>] among you are</b> as <b>full of mitzvot as the pomegranate</b> is full of seeds. <b>Rabbi Zeira says</b> that the source is <b>from here:</b> The verse states concerning the occasion when Isaac blessed Jacob: <b>“And he smelled the smell of his garments,</b> and blessed him, and said: See, the smell of my son is as the smell of a field that the Lord has blessed” (Genesis 27:27). <b>Do not read “his garments [<i>begadav</i>]”; rather,</b> read: <b>His traitors [<i>bogedav</i>],</b> meaning that even traitors and sinners among the Jewish people have qualities “as the smell of a field that the Lord has blessed.”
+
+### Part 8
+The Gemara relates: There were <b>certain hooligans [<i>biryonei</i>] who were</b> living <b>in the neighborhood of Rabbi Zeira. He brought them close,</b> i.e., treated them with friendship, <b>in order to cause them to repent</b> of their sins, <b>but the</b> other <b>Sages disapproved</b> of his actions. <b>When Rabbi Zeira died,</b> those hooligans <b>said: Until now, there was the short one with singed legs,</b> i.e., Rabbi Zeira, <b>who would pray for compassion for us. Who will pray for compassion for us now? They thought</b> about this <b>in their hearts and repented.</b> Ultimately, Rabbi Zeira’s actions were proven correct, as they repented.
+
+### Part 9
+§ The mishna teaches that there are <b>three rows</b> of Torah scholars who sit before the court, and if one of the Torah scholars from the first row is elevated to a place on the court, the Torah scholar in the first position of the second row moves to the final position of the first row. <b>Abaye says: Learn from</b> the mishna that <b>when they move,</b> i.e., when the Torah scholars need to move as a result of one of them being elevated to the court, <b>they all move.</b> The Gemara inquires: <b>But let</b> the one being moved from the first position of the second row to the last position of the first row <b>say to</b> the court: <b>Until now I was sitting at the head</b> of the row, but <b>now you are seating me at the tail,</b> i.e., the end, of a row. <b>Abaye says</b> in explanation: That is not a valid claim, <b>as</b> the court <b>can say this to him: Be a tail to the lions and do not be a head to the foxes</b> (<i>Avot</i> 4:15), meaning that it is preferable to be the least among great people than the greatest among lesser people.
+
+### Part 10
+<strong>MISHNA:</strong> <b>How does</b> the court <b>intimidate the witnesses in</b> giving <b>testimony for</b> cases of <b>capital law? They would bring</b> the witnesses <b>in and intimidate them</b> by saying to them: <b>Perhaps</b> what <b>you say</b> in your testimony is <b>based on conjecture, or</b> perhaps it is <b>based on a rumor,</b> perhaps it is <b>testimony</b> based on <b>hearsay,</b> e.g., you heard a witness testify to this in a different court, <b>or</b> perhaps it is <b>based on the statement of a trusted person. Perhaps you do not know that ultimately we examine you with inquiry and interrogation,</b> and if you are lying, your lie will be discovered.
+
+### Part 11
+The court tells them: <b>You should know that</b> cases of <b>capital law</b> are <b>not like</b> cases of <b>monetary law.</b> In cases of <b>monetary law, a person</b> who testifies falsely, causing money to be given to the wrong party, can <b>give</b> the <b>money</b> to the proper owner <b>and his</b> sin <b>is atoned</b> for. In cases of <b>capital law,</b> if one testifies falsely, <b>the blood of</b> the accused <b>and the blood of his offspring</b> that he did not merit to produce <b>are ascribed to</b> the witness’s testimony <b>until eternity.</b>
+
+### Part 12
+The proof for this is <b>as we found with Cain, who killed his brother, as it is stated</b> concerning him: “The voice of <b>your brother’s blood [<i>demei</i>] cries</b> out to Me from the ground” (Genesis 4:10). The verse <b>does not state: Your brother’s blood [<i>dam</i>],</b> in the singular, <b>but</b> rather: <b>“Your brother’s blood [<i>demei</i>],”</b> in the plural. This serves to teach that the loss of both <b>his</b> brother’s <b>blood and the blood of his</b> brother’s <b>offspring</b> are ascribed to Cain. The mishna notes: <b>Alternatively,</b> the phrase <b>“your brother’s blood [<i>demei</i>],”</b> written in the plural, teaches that <b>that his blood</b> was not gathered in one place but was <b>splattered on the trees and on the stones.</b>
+
+### Part 13
+The court tells the witnesses: <b>Therefore, Adam</b> the first man <b>was created alone, to teach you that</b> with regard to <b>anyone who destroys one soul from the Jewish people,</b> i.e., kills one Jew, <b>the verse ascribes him</b> blame <b>as if he destroyed an entire world,</b> as Adam was one person, from whom the population of an entire world came forth. <b>And</b> conversely, <b>anyone who sustains one soul from the Jewish people, the verse ascribes him</b> credit <b>as if he sustained an entire world.</b>
+
+### Part 14
+The mishna cites another reason Adam the first man was created alone: <b>And</b> this was done <b>due to</b> the importance of maintaining <b>peace among people, so</b> that one <b>person will not say to another: My father,</b> i.e., progenitor, <b>is greater than your father. And</b> it was also <b>so that the heretics</b> who believe in multiple gods <b>will not say: There are many authorities in Heaven,</b> and each created a different person.
+
+### Part 15
+<b>And</b> this serves <b>to tell of the greatness of the Holy One, Blessed be He, as</b> when <b>a person stamps several coins with one seal, they are all similar to each other. But the supreme King of kings, the Holy One, Blessed be He, stamped all people with the seal of Adam the first</b> man, as all of them are his offspring, <b>and not one of them is similar to another. Therefore,</b> since all humanity descends from one person, <b>each and every person is obligated to say: The world was created for me,</b> as one person can be the source of all humanity, and recognize the significance of his actions.
+
+### Part 16
+The court says to the witnesses: <b>And perhaps you will say:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

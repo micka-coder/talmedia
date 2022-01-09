@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Rava souleve un dilemme : quelle est la raison de Rabbi Yishmael</b> pour laquelle un hermaphrodite est definitivement souille ? Est-il <b>evident pour lui</b> qu'un animal <b>hermaphrodite</b> <b>est</b> un male qui a le statut de <b>premier-ne</b>, <b>et</b> il vient <b>avec sa tare,</b> c'est-a-dire l'organe sexuel femelle, et qu'il est donc permis de l'abattre en dehors du Temple ? <b>Ou peut-etre</b> Rabbi Yishmael <b>n'est pas certain</b> qu'un hermaphrodite soit considere comme un male ou non, <b>et il dit</b> sa decision a la maniere de : <b>Si tu dis.</b> En d'autres termes, <b>si tu dis</b> qu'un animal hermaphrodite <b>est un premier-ne,</b> il vient <b>avec sa tare,</b> et il peut etre abattu en dehors du Temple.
+
+### Partie 2
+La Gemara demande : <b>Quelle est la</b> <b>difference</b> pratique entre ces raisons ? La Guemara repond qu'il y a une difference en ce qui concerne <b>le fait d'etre fouette a cause</b> de cet animal <b>en raison</b> de la violation de l'interdiction de <b>couper et</b> d'utiliser un animal premier-ne pour <b>le travail</b> (voir Deuteronome 15:19). S'il s'agit definitivement d'un premier-ne, alors on sera fouette pour avoir viole l'interdiction. Mais si l'on n'est pas sur qu'il s'agisse d'un premier-ne, bien que l'on ne puisse pas le tondre ou effectuer un travail avec lui, on ne risque pas la flagellation pour l'avoir fait. <b>Alternativement,</b> il y a une difference en ce qui concerne <b>le fait de le donner a un pretre.</b> Si son statut est incertain, le pretre ne peut lui reclamer l'animal, en vertu du principe selon lequel la charge de la preuve incombe a celui qui reclame.
+
+### Partie 3
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une <i>baraita</i> : <b>Rabbi Ilai dit au nom de Rabbi Yishmael : Un hermaphrodite est un premier-ne, et</b> il vient <b>avec sa tare. Apprenez de</b> la <i>baraita</i> qu'il est <b>evident pour Rabbi Yishmael</b> qu'un hermaphrodite est un premier-ne. La Guemara repond : <b>Mais peut-etre a-t-il dit</b> sa decision a la maniere de : <b>Si tu dis,</b> comme explique precedemment.
+
+### Partie 4
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une autre <i>baraita</i>. Elle precise a propos d'un holocauste de betail : <b>"Un male"</b> (Levitique 1:3), d'ou l'on peut deduire : <b>Mais pas une femelle. Quand il est dit ci-dessous,</b> en ce qui concerne l'holocauste de moutons : <b>"Un male"</b> (Levitique 1:10), une deuxieme fois, il est difficile de comprendre, <b>car</b> il n'y a <b>pas</b> besoin que <b>le verset indique</b> ceci. <b>Pourquoi</b> faut-il que <b>le verset precise</b> a nouveau "un male" ? Cela sert <b>a exclure un <i>tumtum</i> et un hermaphrodite,</b> qui sont disqualifies pour etre sacrifies comme holocaustes.
+
+### Partie 5
+La Guemara analyse cette <i>baraita</i> : <b>A qui appartient cette opinion ? <b>Si nous disons</b> qu'il s'agit de l'avis du <b>premier <i>tanna</i></b> de la mishna, qui soutient qu'un <i>tumtum</i> et un hermaphrodite ne peuvent etre abattus dans le Temple ou dans le reste du pays, alors le statut d'un hermaphrodite <b>est incertain,</b> car on ne sait pas s'il est male ou femelle. <b>Mais</b> est-ce qu'un <b>verset vient exclure</b> un cas d'<b>incertitude ?</b>
+
+### Partie 6
+<b>Au contraire,</b> peut-etre que cette <i>baraita</i> est conforme a l'opinion des <b>derniers rabbins</b> de la mishna, qui considerent qu'un hermaphrodite n'est definitivement pas un homme, mais une entite distincte. Par consequent, il est necessaire qu'un verset l'exclue. Cela aussi est difficile, car selon ces rabbins, l'exclusion d'une femme, d'un <i>tumtum</i>, et d'un hermaphrodite est <b>derivee d'un seul verset</b>. La Guemara developpe : <b>Comme pour un premier-ne, c'est un seul "male" qui est ecrit,</b> d'ou les rabbins <b>excluent toutes</b> les trois categories <b>de premier-ne</b>. En revanche, le <i>baraita</i> exclut une femelle d'une mention du mot "male" et un <i>tumtum</i> et un hermaphrodite d'une autre mention du mot "male".
+
+### Partie 7
+<b>Au contraire,</b> il est <b>evident</b> que la <i>baraita</i> est conforme a l'opinion de <b>Rabbi Yishmael. Et</b> dans ce cas, <b>accorde, si vous dites</b> qu'il est <b>evident pour Rabbi Yishmael</b> qu'un hermaphrodite est un male premier ne, <b>c'est</b> pourquoi <b>un verset etait necessaire pour exclure</b> un hermaphrodite d'etre apporte en holocauste. <b>Mais si vous dites</b> que Rabbi Yishmael <b>est incertain</b> de savoir si oui ou non un hermaphrodite est considere comme un male, est-il <b>necessaire</b> que <b>le verset exclue</b> un cas d' <b>incertitude ?</b>
+
+### Partie 8
+La Gemara repond : <b>En fait,</b> la <i>baraita</i> est en accord avec l'opinion des <b>derniers rabbins,</b> qui soutiennent qu'un hermaphrodite n'est pas un male, mais une entite distincte. <b>Et</b> quant a la difficulte selon laquelle, dans le cas d'un premier-ne, ils ont exclu d'un meme verset une femelle, un <i>tumtum</i> et un hermaphrodite, il n'en est rien. <b>Pour ce qui est d'un premier-ne</b> il y a aussi <b>deux versets ecrits : "Males"</b> (Deuteronome 15:19), et : <b>C'est un male"</b> (Exode 13:12). Comme dans le cas de l'holocauste, l'un d'eux sert a exclure une femelle, tandis que l'autre sert a exclure un <i>tumtum</i> et un hermaphrodite.
+
+### Partie 9
+§ La mishna enseigne : <b>Et les rabbins disent :</b> Un hermaphrodite <b>n'a pas</b> le statut de <b>premier-ne</b> ; son statut est plutot celui d'un animal non sacre qui peut etre tondu et utilise pour le travail. <b>Rav Hisda dit :</b> Ce <b>dispute</b> s'applique <b>a un hermaphrodite,</b> dont les rabbins soutiennent qu'il est une entite distincte, car il possede a la fois des organes sexuels males et femelles, et qu'il n'a donc pas le statut de premier-ne. <b>Mais en ce qui concerne un <i>tumtum</i>,</b> dont les organes genitaux sont recouverts de peau, <b>tout le monde s'accorde</b> a dire que <b>c'est un cas incertain</b>, car il est definitivement soit un male, soit une femelle, mais il y a une incertitude quant a savoir lequel c'est. <b>Et</b> par consequent, il est <b>consacre pour cause d'incertitude,</b> et il ne peut etre abattu ni dans le Temple ni dans le reste du pays.
+
+### Partie 10
+<b>Rava dit a</b> Rav Hisda : <b>Si c'est ainsi,</b> qu'un <i>tumtum</i> est certainement soit un homme, soit une femme, <b>en ce qui concerne les evaluations,</b> lorsque quelqu'un fait vœu de donner l'evaluation d'un <i>tumtum</i>, <b>il doit etre evalue,</b> soit conformement a l'evaluation d'un homme, soit d'une femme.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+The Gemara explains: <b>There, the substance of</b> the wine <b>is a recognizable</b> component of the fish stew; <b>here, its substance is not a recognizable</b> component of the pickled vegetables.
+
+### Part 2
+§ The mishna teaches: <b>And minced <i>tarit</i></b> fish, <b>and brine that does not have</b> a <i>kilbit</i> <b>fish</b> floating in it, and <i>ḥilak</i> are all prohibited. The Gemara asks: <b>What</b> is <b><i>ḥilak</i>? Rav Naḥman bar Abba says</b> that <b>Rav says: This is <i>sultanit</i>,</b> a type of small fish that is generally caught before its scales have developed. <b>And for what</b> reason <b>is it prohibited?</b> It is <b>because its</b> size causes it to be <b>intermingled</b> with other fish, and as a result <i>sultanit</i> <b>rises</b> out of the water <b>with</b> non-kosher fish when <b>it</b> is caught.
+
+### Part 3
+<b>The Sages taught:</b> If a fish <b>does not currently possess</b> scales <b>but will grow</b> them <b>after</b> a period of <b>time, such as the <i>sultanit</i> and <i>afiyatz</i></b> fish, <b>it is permitted.</b> Likewise, if <b>it has</b> scales <b>now but will shed</b> them <b>when it</b> is caught and <b>rises from the sea, such as <i>akunas</i> and <i>afuna</i>, <i>ketasfatiyas</i> and <i>akhsaftiyas</i> and <i>otanas</i></b> fish, it is <b>permitted.</b>
+
+### Part 4
+<b>Rabbi Abbahu announced in Caesarea: Fish entrails and their eggs may be purchased from any person,</b> as <b>the presumption with regard to them</b> is that <b>they come only from Pelusium [<i>Pilusa</i>] and Spain [<i>Aspamya</i>],</b> and non-kosher fish are not found in those areas. This is <b>similar to that which Abaye says: These small fish [<i>tzaḥanta</i>] of the Bav River are permitted,</b> as non-kosher fish are not found in that river.
+
+### Part 5
+The Gemara asks: <b>What is the reason</b> that Abaye unequivocally permitted eating these fish and was not concerned about the potential presence of non-kosher fish among them? <b>If we say</b> that it is <b>due to</b> the fact <b>that</b> the <b>water flows rapidly, and these non-kosher fish, since they do not have a spinal cord, are not able to exist in a place where the water flows rapidly,</b> as the current carries the non-kosher fish out of the Bav River, and consequently all the remaining fish are kosher, that is not the case, <b>since we see that</b> non-kosher fish <b>exist</b> in rivers with strong currents.
+
+### Part 6
+<b>Rather,</b> perhaps Abaye permitted the fish <b>because</b> the <b>water is salty, and these non-kosher fish are not able to exist in a place of salty water since they do not have scales.</b> This, too, is not the case, <b>since we see that</b> non-kosher fish <b>exist</b> in salty water. <b>Rather,</b> Abaye permitted the small fish in the Bav River <b>because</b> the <b>mud</b> in that river <b>is not</b> suitable for <b>non-kosher fish</b> to <b>reproduce.</b> The conditions in the river render it an unproductive habitat for non-kosher fish. <b>Ravina says: Nowadays, as</b> the government built canals between the rivers, and the <b>Goza River and</b> the <b>Gamda River spill into</b> the Bav and carry non-kosher fish there, it is <b>prohibited</b> to eat the small fish without thorough inspection.
+
+### Part 7
+The Gemara cites several other statements of <i>amora’im</i> that concern the halakhic status of fish. <b>Abaye says: This</b> creature known as the <b>sea donkey [<i>ḥamara deyamma</i>]</b> is <b>permitted;</b> the creature known as the <b>sea ox [<i>tora deyamma</i>]</b> is <b>prohibited, and your mnemonic</b> to remember this <i>halakha</i> is: <b>Impure is pure,</b> and <b>pure is impure,</b> i.e., the name of an animal which is non-kosher on land is kosher in the sea, and that which is kosher on land is non-kosher in the sea.
+
+### Part 8
+<b>Rav Ashi said:</b> The type of fish known as <b><i>shefar nuna</i></b> is <b>permitted,</b> and the type of fish known as <b><i>kadesh nuna</i></b> is <b>prohibited, and your mnemonic</b> to remember this <i>halakha</i> is: That which is <b>holy [<i>kodesh</i>]</b> is <b>to the Lord,</b> and not for humans. And <b>some say</b> that Rav Ashi said: The type of fish known as <b><i>kevar nuna</i></b> is <b>prohibited, and your mnemonic</b> is: The grave [<i>kever</i>] is impure like the <b>graves of gentiles.</b>
+
+### Part 9
+The Gemara relates several incidents involving Sages and their rulings with regard to fish. <b>Rabbi Akiva happened</b> to come <b>to Ginzak</b> and <b>they brought before him a certain fish that was similar to a <i>ḥippusha</i>,</b> a non-kosher aquatic creature. When <b>he enclosed it in a basket he saw</b> that <b>it</b> had <b>scales</b> which it shed as it struggled to escape from the basket, <b>and he permitted it</b> on that basis. <b>Rav Ashi happened</b> to come <b>to Tamduria</b> where <b>they brought before him a certain fish that was similar to an eel [<i>tzelofḥa</i>]. He took it out</b> and held it <b>against</b> the light of <b>day</b> and <b>saw that there were thin scales on it, and he permitted it.</b>
+
+### Part 10
+<b>Rav Ashi</b> also <b>happened</b> to come <b>to a certain land</b> where <b>they brought before him a fish that was similar to a <i>shefarnuna</i>. He enclosed it in a white vessel</b> and <b>saw</b> that <b>it</b> shed dark <b>scales,</b> which he could see against the white background of the container, <b>and he permitted it. Rabba bar bar Ḥana happened</b> to come <b>to Akra DeAgma</b> and <b>they brought him</b> some <b><i>tzaḥanta</i>,</b> a dish prepared from small fish. <b>He heard a certain man calling it <i>batei</i>,</b> the name of a non-kosher sea creature.
+
+### Part 11
+Rabba bar bar Ḥana <b>said</b> to himself: <b>From</b> the fact <b>that he called it <i>batei</i>,</b> I can <b>conclude from</b> here that <b>there is a non-kosher substance in</b> the <i>tzaḥanta</i>. And <b>he did not eat from it</b> that night. <b>In the morning, he examined</b> the dish and in fact <b>found a non-kosher substance in it. He read</b> the following verse <b>about himself: “No sin shall befall the righteous”</b> (Proverbs 12:21).
+
+### Part 12
+§ The mishna teaches: <b>And a sliver of <i>ḥiltit</i></b> may not be consumed, although one may derive benefit from it. The Gemara asks: <b>What is the reason</b> that it is prohibited? It is <b>because they slice it with a knife</b> on which there is presumably non-kosher residue. And <b>even though the Master said</b> that a prohibited substance that <b>imparts flavor to</b> the <b>detriment</b> of the mixture is <b>permitted,</b> that principle does not apply in this case because <b>as a result of the sharpness of the <i>ḥiltit</i>,</b> the act of slicing it with a knife <b>sweetens,</b> i.e., enhances, the taste of <b>the</b> non-kosher <b>residue. And</b> there-fore <b>it is like</b> a prohibited substance that <b>imparts flavor to</b> the <b>enhancement</b> of the mixture, <b>and</b> it is <b>prohibited.</b>
+
+### Part 13
+The Gemara relates that the gentile <b>slave of Rabbi Levi would sell <i>ḥiltit</i>,</b> and it was permitted to purchase it from him as he was the slave of a Sage. <b>When Rabbi Levi passed away, they came before Rabbi Yoḥanan</b> and <b>said to him:</b> Now that Rabbi Levi has passed, <b>what is</b> the <i>halakha</i> with regard to whether or not it is permitted <b>to purchase</b> <i>ḥiltit</i> <b>from his</b> gentile slave? Rabbi Yoḥanan <b>said to them: The slave of a <i>ḥaver</i>,</b> one devoted to the meticulous observance of mitzvot, especially <i>halakhot</i> of ritual purity, <i>teruma</i>, and tithes, <b>is as a <i>ḥaver</i></b> himself, and therefore it is permitted to buy <i>ḥiltit</i> from him.
+
+### Part 14
+The Gemara relates another incident that involves the status of a <i>ḥaver</i> and his household. <b>Rav Huna bar Minyumi purchased sky-blue dye [<i>tekhelta</i>] from the people of the household,</b> i.e., the wife, <b>of Rav Amram the pious.</b> One may purchase sky-blue dye for ritual fringes only from a reliable individual, as it is easy to counterfeit it. Rav Huna then <b>came before Rav Yosef</b> to ask if he could rely on her assurance that it was usable for the mitzva. The answer <b>was not available to</b> Rav Yosef.
+
+### Part 15
+Later, <b>Ḥanan the tailor happened to</b> meet Rav Huna, and <b>he said to him: From where</b> could <b>poor</b> Rav <b>Yosef</b>  have known the answer to this question? Ḥanan continued: <b>There was an incident in which I</b> was involved, <b>as I purchased sky-blue dye from the people of the household,</b> i.e., the wife, <b>of Rabena’a, brother of Rabbi Ḥiyya bar Abba, and I came before Rav Mattana</b> to ask him the same question, and the answer <b>was not available to him</b> either. <b>I</b> then <b>came before Rav Yehuda of Hagronya,</b> who <b>said to me: You have fallen into</b> my <b>hand,</b> i.e., I am the only one who can answer your question. <b>This</b> is what <b>Shmuel says: The wife of a <i>ḥaver</i> is</b> herself considered <b>like a <i>ḥaver</i>,</b> and you may therefore rely on her statement.
+
+### Part 16
+The Gemara comments: <b>We learn</b> here <b>that which the Sages taught</b> explicitly in a <i>baraita</i>: <b>The wife of a <i>ḥaver</i> is like a <i>ḥaver</i>; the slave of a <i>ḥaver</i> is like a <i>ḥaver</i>.</b> Furthermore, with regard to <b>a <i>ḥaver</i> that died, his wife and children and members of his household remain in their presumptive</b> status <b>until they are suspected</b> of engaging in inappropriate deeds. <b>And similarly,</b> with regard to <b>a courtyard in which they sell sky-blue dye, it remains in its presumptive</b> status as a place in which kosher sky-blue dye is sold <b>until it is disqualified</b> due to unscrupulous behavior.
+
+### Part 17
+<b>The Sages taught: The wife of one who is not careful to keep the particulars of certain <i>halakhot</i> [<i>am ha’aretz</i>], who</b> later <b>marries a <i>ḥaver</i>, and likewise the daughter of an <i>am ha’aretz</i> who marries a <i>ḥaver</i>, and likewise the slave of an <i>am ha’aretz</i> who is sold to a <i>ḥaver</i>, must all accept</b> upon themselves the commitment to observe <b>the matters</b> associated with <b><i>ḥaver</i> status. But the wife of a <i>ḥaver</i> who</b> later <b>marries an <i>am ha’aretz</i>, and likewise the daughter of a <i>ḥaver</i> who marries an <i>am ha’aretz</i>, and likewise the slave of a <i>ḥaver</i> who was sold to an <i>am ha’aretz</i>,</b> these people <b>need not accept</b> upon themselves the commitment to observe <b>the matters</b> associated with <b><i>ḥaver</i> status <i>ab initio</i>.</b> This is <b>the statement of Rabbi Meir.</b>
+
+### Part 18
+<b>Rabbi Yehuda says: They too must accept</b> upon themselves the commitment to observe <b>the matters</b> associated with <b><i>ḥaver</i> status <i>ab initio</i>. And similarly, Rabbi Shimon ben Elazar would</b> illustrate this point and <b>say:</b> There was <b>an incident involving a certain woman who married a <i>ḥaver</i> and would tie for him phylacteries on his hand,</b> and she later <b>married a tax collector and would tie for him tax-seals on his hand,</b> which shows that her new husband had a great influence on her level of piety.
+
+### Part 19
+§ <b>Rav says:</b> The substances represented by the acronym <b><i>ḥet</i>, <i>beit</i>, <i>yod</i>, <i>tav</i> are prohibited</b> if they were deposited with a gentile while they were sealed <b>with</b> only <b>one seal.</b> Those represented by the acronym <b><i>ḥet</i>, <i>beit</i>, <i>peh</i>, <i>gimmel</i> are permitted</b> if they were deposited with a gentile while they were sealed <b>with one seal.</b> The Gemara elaborates: <b>Milk [<i>ḥalav</i>], meat [<i>basar</i>], wine [<i>yayin</i>],</b> and <b>sky-blue dye [<i>tekhelet</i>]</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

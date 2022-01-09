@@ -1,0 +1,66 @@
+
+### Part 1
+<b>Or perhaps,</b> in order to collect from liened property, it suffices that the obligation be of <b>a fixed</b> amount, <b>even if it is not written?</b>
+
+### Part 2
+The Gemara suggests: <b>Come</b> and <b>hear</b> an answer to this question from what <b>was stated,</b> that the <i>amora’im</i> disagree about the following issue: There is a case of <b>one who died and left two daughters and a son, and the first</b> daughter <b>went ahead and took one-tenth of the estate</b> as her dowry, as sons are obligated to sustain their deceased father’s daughters until they reach majority or become betrothed and to give them part of his estate as a dowry, as daughters do not inherit when there are sons; <b>but the second</b> daughter <b>did not manage to collect</b> her tenth of the estate for her dowry <b>before the son died.</b> Therefore, the entire estate fell to the two daughters, who then divide it between themselves, and there is a dispute as to how they divide the estate.
+
+### Part 3
+<b>Rabbi Yoḥanan says: The second</b> daughter <b>forfeited</b> her one-tenth of the estate, and therefore she cannot demand that she should first receive one-tenth of the estate as her dowry, as did her sister, and that only afterward they divide what remains of the estate equally between themselves. <b>And Rabbi Ḥanina said to him:</b> Did <b>they</b> not <b>say</b> even <b>more than this,</b> that if the brother sold off property belonging to his father’s estate, payment for the daughter’s <b>dowry can be appropriated</b> from the buyer, <b>but</b> payment for her <b>sustenance cannot be appropriated</b> from him? If the father’s estate is liened to his daughter’s dowry, so that she can collect her dowry even from a third party who bought the property from the son, she should be able to collect it from her father’s estate before it is divided up between the daughters. <b>And you say</b> that the <b>second</b> daughter <b>forfeited</b> her one-tenth of the estate?
+
+### Part 4
+The Gemara tries to draw a conclusion with regard to the question that was raised previously: <b>But isn’t</b> the <b>dowry</b> mentioned by Rabbi Ḥanina, i.e., the dowry to which an orphan daughter is entitled from her father’s estate, of <b>a fixed</b> amount, i.e., one-tenth of the estate, and <b>it is not written? And</b> nevertheless, according to Rabbi Ḥanina, <b>it can be appropriated</b> from liened property that has been sold to another party.
+
+### Part 5
+The Gemara rejects this argument: <b>A dowry is different, since it</b> generates <b>publicity.</b> If one dies and is survived by daughters, everyone knows that a portion of his estate is pledged for their dowries. Therefore, the obligation <b>is considered</b> to be <b>as if it were written.</b> In other situations, it might be necessary according to Rabbi Ḥanina that the obligation be both of a fixed amount and written.
+
+### Part 6
+<b>Rav Huna bar Manoaḥ raised an objection</b> from a mishna (<i>Ketubot</i> 101b) that addresses the case of a woman who was married to a man with whom she had stipulated that he would sustain her daughter from a previous marriage. After receiving a divorce from him, she married a different man with whom she made the same stipulation, so that the stepdaughter receives sustenance from the two husbands. That mishna states: If the husbands <b>died,</b> then <b>their</b> own <b>daughters,</b> even from that same woman, <b>are sustained</b> only <b>from</b> the <b>unsold property</b> in their estate. This accords with the <i>halakha</i> taught in the mishna above (48b).
+
+### Part 7
+The mishna in <i>Ketubot</i> continues: <b>But</b> the stepdaughter <b>is sustained</b> even <b>from liened property</b> that had been sold to a third party. This is <b>due to</b> the fact <b>that her</b> legal status is <b>like</b> that of <b>a creditor,</b> and therefore she has the right to collect her debt from property formerly owned by her stepfather, her debtor. This is difficult according to both opinions, as the stepdaughter’s sustenance is appropriated from liened property that has been sold to another person, despite it being neither a fixed amount nor written.
+
+### Part 8
+The Gemara answers: <b>With what are we dealing here?</b> We are dealing with a case <b>where</b> the mother <b>acquired</b> the right to the daughter’s sustenance <b>from his possession,</b> i.e., where they performed an act of acquisition confirming the stipulation. Consequently, it is considered as though the stipulation were been written and publicized, and so the property of the two husbands is liened for the stepdaughter’s sustenance.
+
+### Part 9
+The Gemara asks: <b>If that is so,</b> that mishna is referring to a case where they performed an act acquisition, then the deceased’s own <b>daughters as well</b> should be entitled to collect their sustenance from liened property that has been sold to a third party. The Gemara rejects this argument: The mishna is referring to a case <b>where</b> the mother <b>acquired</b> the right to sustenance <b>on behalf of this</b> one, the stepdaughter, <b>but did not acquire</b> the right to sustenance <b>on behalf of</b> the other daughters.
+
+### Part 10
+The Gemara asks: <b>What</b> is the reason for <b>the decision</b> of the <i>tanna</i> to record the <i>halakha</i> in a case where the mother acquired the right for this one but not for that one? The Gemara explains: With regard to <b>his wife’s daughter</b> from her previous marriage, <b>who was</b> alive <b>at the time of the</b> act of <b>acquisition,</b> i.e., when he gave the mother her marriage contract, <b>the</b> act of <b>acquisition is effective for her.</b> With regard to <b>his</b> own <b>daughter</b> from this mother, <b>who was not</b> alive <b>at the time of the</b> act of <b>acquisition, the</b> act of <b>acquisition is not effective for her.</b>
+
+### Part 11
+The Gemara raises an objection: <b>Are we not dealing</b> here even with a case <b>where both of them were</b> alive <b>at the time of the</b> act of <b>acquisition? And what are the circumstances?</b> It is a case <b>where</b> after she was married to him and had a daughter from him, <b>he divorced her and</b> later <b>remarried her,</b> at which time an act of acquisition was performed to confirm the stipulation with regard to sustenance. As his own daughter was alive at the time, why is the act of acquisition not effective for his own daughter’s sustenance as it is for that of his stepdaughter?
+
+### Part 12
+<b>Rather,</b> that the difference between them is as follows: With regard to <b>his</b> own <b>daughter, who eats,</b> i.e., is sustained, from his estate <b>based on a stipulation of the court,</b> as the daughter’s right to sustenance from her father’s estate is an inseparable part of her mother’s marriage contract, <b>the</b> act of <b>acquisition</b> that was performed <b>is not effective for her,</b> because her entitlement is derived from a different source, the stipulation of the court. With regard to <b>his wife’s daughter,</b> who eats from his estate <b>not</b> based <b>on a stipulation of the court,</b> as her entitlement is based on the explicit stipulation made between the husband and the wife, <b>the</b> act of <b>acquisition is effective for her</b> and enables her to collect her sustenance even from liened property that has been sold to a third party.
+
+### Part 13
+The Gemara challenges this explanation: <b>But is</b> a right that is rooted in two sources, both a stipulation of the court and an act of acquisition, <b>inferior</b> to a right that is rooted in an act of acquisition alone? The act of acquisition is in addition to the stipulation of the court, and should be effective for her as well. <b>Rather,</b> this is the difference between them: With regard to <b>his</b> own <b>daughter, since his daughter eats</b> from his estate <b>based on a stipulation of the court, say</b> that perhaps <b>he</b> already <b>gave her money</b> during his lifetime for her sustenance. Since there is uncertainty, she cannot recover her sustenance from liened property, even if an act of acquisition was performed to confirm the stipulation. With regard to the stepdaughter, there is no concern that perhaps he already gave her the money while he was alive. Therefore, if an act of acquisition was performed, she can collect her sustenance even from liened property that has been sold to another.
+
+### Part 14
+The Gemara continues its discussion with regard to collection from liened property that has been sold to a third party: <b>Come</b> and <b>hear</b> what <b>Rabbi Natan said: When</b> do we say that if one appropriated a field and sold it, and the buyer worked the land and enhanced it, and then the initial owner from whom the field had, been appropriated reclaimed the property the buyer can recover the increase in value of the field resulting from his enhancements only from unsold property in the robber’s possession but not from liened property that has been sold to another party? This is said <b>when the purchase of the second</b> buyer, i.e., the party who purchased the property that rightfully belonged to the robber, <b>preceded the enhancements</b> made <b>by the first</b> buyer to the appropriated property he purchased from the robber.
+
+### Part 15
+<b>But</b> if <b>the enhancements</b> made <b>by the first</b> buyer <b>preceded the acquisition of the second</b> buyer, then <b>he can collect</b> the increase in value of the field resulting from his enhancements even <b>from liened property</b> that has been sold to the second buyer. <b>Apparently,</b> he cannot collect the increase in value from liened property <b>because</b> the enhancements <b>did not precede</b> the sale of the other field, not because the increase in value is not of a fixed amount or written in a deed.
+
+### Part 16
+The Gemara answers: Proof cannot be brought one way or the other from this <i>baraita</i>, since the issue <b>is</b> the subject of a dispute between <b><i>tanna’im</i>, as it is taught</b> in another <i>baraita</i>: The court <b>does not appropriate</b> payment <b>from liened property</b> that has been sold to a third party <b>for the consumption of produce or for the enhanced value of land or for the sustenance of</b> a man’s <b>wife and daughters.</b> The reason why one cannot collect these debts from liened property is <b>for the betterment of the world, because</b> all these obligations <b>are not written</b> in any deed. If purchasers are at risk of losing the land they purchased to pay debts of the seller that had not been written, they will have no way to protect themselves, and no one will purchase land.
+
+### Part 17
+The <i>baraita</i> continues: <b>Rabbi Yosei said: And what betterment of the world is there in this,</b> in stating that the reason the land is not appropriated is only because the debt was not written? <b>But isn’t</b> the real reason that these obligations cannot be collected from liened property is that <b>they are not</b> of <b>a fixed</b> amount? No one would be willing to purchase land if the land were liened to an unlimited debt. It is clear in this <i>baraita</i> that the criteria for collection from liened property that has been sold to a third party are subject to a tannaitic dispute.
+
+### Part 18
+§ The mishna teaches: <b>And</b> it was further instituted that <b>one who finds a lost item</b> and returns it to its rightful owner is <b>not</b> required to <b>take an oath</b> that he did not keep any part of the lost item for himself. This ordinance was also instituted for the betterment of the world. <b>Rabbi Yitzḥak says:</b> If the owner of the lost item brings a claim against the finder, saying: <b>You found two</b> money <b>pouches tied</b> together that belong <b>to me, and the other</b> person <b>says: I found only one</b> pouch, then the finder <b>takes an oath,</b> similar to anyone who admits to part of a claim. If the owner claims: <b>You found two oxen tied</b> together that belong <b>to me, and the other</b> person <b>says: There was only one</b> ox, the finder is <b>not</b> required to <b>take an oath.</b>
+
+### Part 19
+The Gemara explains: <b>What is the reason</b> for the difference between the two cases? It is that <b>oxen become detached from each other.</b> Consequently, it is possible that when the oxen were lost, there had been two that were tied together, but afterward they became separated and the finder found only one. By contrast, <b>pouches do not become detached from each other.</b> Since the finder admits that he found one of them, it stands to reason that he actually found both of them.
+
+### Part 20
+Rabbi Yitzḥak also says: If the owner of the lost item says to the finder: <b>You found two tied oxen, and the other</b> person <b>says: I found</b> two oxen, <b>but I</b> already <b>returned one of them to you,</b> then the finder <b>takes an oath.</b>
+
+### Part 21
+A question may be raised against these rulings of Rabbi Yitzḥak: <b>But does Rabbi Yitzḥak not accept</b> the <i>halakha</i> stated in the mishna that <b>one who finds a lost item is not</b> required to <b>take an oath,</b> this being an enactment instituted <b>for the betterment of the world?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

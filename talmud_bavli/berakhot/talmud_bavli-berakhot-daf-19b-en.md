@@ -1,0 +1,54 @@
+
+### Part 1
+We learned in the mishna that <b>those standing in the row,</b> those in the interior row, are exempt from reciting <i>Shema</i> and the others are obligated. <b>The Sages taught</b> this more expansively in the <i>Tosefta</i>: The consolers standing in <b>a row</b> from <b>which</b> one <b>sees inside</b> the area where the mourners are passing <b>are exempt, and</b> those standing in a row from which <b>one does not see inside are obligated. And Rabbi Yehuda</b> elaborates and <b>says:</b> The consolers standing in the row <b>who come on account of the bereaved are exempt,</b> while those who come <b>on account of their own</b> curiosity <b>are obligated</b> to recite <i>Shema</i>.
+
+### Part 2
+We learned that some who come to console the bereaved are exempt from <i>Shema</i> as a means of honoring the deceased. The Gemara expands the discussion to raise the general question: To what degree does preserving human dignity takes precedence over mitzvot enumerated in the Torah? <b>Rav Yehuda said</b> that <b>Rav said: One who discovers diverse kinds [<i>kilayim</i>],</b> i.e., a prohibited mixture of wool and linen, <b>in his garment, must remove them even in the</b> public <b>marketplace.</b> He may not wait until he reaches home. <b>What is the reason</b> for this? As it is stated: <b>“There is neither wisdom, nor understanding, nor counsel against the Lord”</b> (Proverbs 21:30). From here, the general principle: <b>Anywhere that there is desecration of the Lord’s name, one does not show respect to the teacher,</b> is derived.
+
+### Part 3
+The Gemara cites several sources to challenge this principle. The Gemara <b>raised an objection</b> from a <i>baraita</i>: After <b>they buried the deceased and returned, and</b> on their way <b>there are two paths before them, one ritually pure and one ritually impure,</b> e.g., it passes through a cemetery, if the mourner <b>comes on the pure</b> path, <b>they come with him on the pure</b> path; if <b>he comes on the impure</b> path, all of the funeral participants <b>accompany</b> him <b>on the impure</b> path in order to show <b>him respect. Why</b> would they do this? <b>Let us say</b> here too that, <b>“There is neither wisdom, nor understanding…against the Lord!”</b>
+
+### Part 4
+<b>Rabbi Abba explained</b> that the <i>baraita</i> is referring to a path that passes <b>through an area where there is uncertainty with regard to the location of a grave or a corpse</b> [<b><i>beit haperas</i>].</b> For example, with regard to a field in which there is a grave that was plowed and no longer intact, the entire field is deemed impure due to concern that the plow scattered bones throughout the field. The field is impure only <b>by rabbinic law</b> but not according to Torah law. Since it is only prohibited by rabbinic law, one is permitted to walk through the field to show the mourner respect.
+
+### Part 5
+The Gemara cites proof that the legal status of a <i>beit haperas</i> is unlike the legal status of impurity by Torah law: <b>Rav Yehuda said</b> that <b>Shmuel said: One</b> who passes through <b>a <i>beit haperas</i> may blow</b> on the dust before taking each step, so that if there is a bone beneath the dust, he will expose it, avoid it, <b>and walk.</b> One may not rely on that method of examination with regard to impurity by Torah law. <b>And Rav Yehuda bar Ashi said in the name of Rav: A <i>beit haperas</i> that has been trodden</b> underfoot, creating a path, <b>is pure,</b> and one no longer need be concerned about bones. Clearly, the entire prohibition is a stringency decreed by the Sages.
+
+### Part 6
+The Gemara cites additional proof with regard to the extent to which human dignity overrides mitzvot in the Torah. <b>Come</b> and <b>hear, as Rabbi Elazar bar Tzadok</b> the priest <b>said:</b> I and my fellow priests <b>would jump over coffins of the deceased</b> in order to hurry <b>towards kings of Israel</b> to greet them. <b>And they did not say</b> this <b>only towards kings of Israel, but</b> they said this <b>even towards kings of the nations of the world, so that if one will be privileged</b> to witness the redemption of Israel, <b>he will distinguish between kings of Israel and kings of the nations of the world.</b> The priest violated the Torah prohibition to become ritually impure through contact with the dead, in order to show respect for a king. And <b>why</b> is this? <b>Let us say</b> here too: <b>“There is neither wisdom, nor understanding, nor counsel against the Lord.”</b>
+
+### Part 7
+The Gemara responds to this challenge by saying that it must be understood <b>in accordance with</b> the opinion of <b>Rava, as Rava said: By Torah law, a tent</b> over a corpse, <b>as long as there is a handbreadth of space</b> between the corpse and the tent over it, <b>constitutes a barrier before</b> the spread of <b>impurity</b> and nothing above the tent can become ritually impure due to impurity imparted by the corpse. <b>And when there is not a handbreadth of space</b> between the corpse and the tent over it, the tent <b>does not constitute a barrier before</b> the spread of <b>impurity</b> and the “pressed” ritual impurity, can reach the heavens.
+
+### Part 8
+<b>Most coffins have a handbreadth of space.</b> Consequently, their impurity does not spread above the coffin. However, the Sages <b>issued a decree regarding</b> coffins <b>in which there is</b> a handbreadth of space <b>because of</b> those coffins <b>in which there is not.</b> Nevertheless, <b>due to respect for kings,</b> the Sages <b>did not issue a decree</b> in a case involving <b>them</b> and the priests were permitted to jump over the coffins, as it is permitted by Torah law. Therefore, there is no proof from here regarding the question of whether or not human dignity overrides Torah law.
+
+### Part 9
+The Gemara cites an additional proof from a <i>baraita</i>: <b>Come and hear: Great is human dignity, as it overrides a prohibition in the Torah.</b>
+
+### Part 10
+The Gemara asks: <b>Why? Let us</b> also <b>say</b> here: <b>“There is neither wisdom, nor understanding, nor counsel against the Lord.” Rav bar Shaba interpreted this</b> prohibition, which is overridden by human dignity, <b>before Rav Kahana</b> as referring <b>to the prohibition of:</b> “According to the Torah taught to you and the ruling handed down to you, you shall do, <b>you shall not deviate</b> to the left or the right from that which they tell you” (Deuteronomy 17:11). The Yeshiva students <b>laughed at him,</b> as the <b>prohibition of “you shall not deviate” is by Torah law,</b> like all other Torah prohibitions. Why should human dignity override it any more than any other Torah prohibition?
+
+### Part 11
+<b>Rav Kahana replied</b> to them: <b>A great man has spoken, do not laugh at him.</b> The Sages <b>based all rabbinic law on the prohibition of “you shall not deviate”; however, due to</b> concern for human <b>dignity, the Sages permitted</b> suspension of rabbinic law in cases where the two collide. All rabbinic decrees are predicated on the mitzva in the Torah to heed the judges in each generation and to never stray from their words. Therefore, when the Sages suspend a decree in the interest of preserving human dignity, human dignity is overriding a Torah prohibition. In any case, it only overrides rabbinic decrees.
+
+### Part 12
+The Gemara cites an additional proof from a <i>baraita</i>: <b>Come and hear:</b> With regard to the laws of returning a lost object, it is stated: “You shall not see the ox of your brother or his sheep go astray and ignore them; return them to your brother” (Deuteronomy 22:1). The <i>baraita</i> explains that the seemingly extraneous expression <b>and disregard them</b> must be understood to give license that <b>at times you disregard</b> lost objects <b>and at times you do not disregard them.</b>
+
+### Part 13
+<b>How so? If he was a priest and</b> the lost object <b>was in the cemetery, or</b> if <b>he was an elder and it is beneath his dignity</b> to tend to a lost object of that kind, <b>or if he had more work to do than another person</b> and he does not want to set it all aside when another person is available to tend to the lost object. <b>Therefore,</b> with regard to those cases <b>it is stated: And disregard them</b> to permit one to refrain from returning the object. <b>Why? Let us say</b> here, too: Although handling the lost object would be beneath his dignity, <b>“there is neither wisdom, nor understanding, nor counsel against the Lord.”</b>
+
+### Part 14
+The Gemara answers: <b>There it is different, as it is written: “And disregard them,”</b> indicating that under certain circumstances one is permitted to disregard a lost object. In that case, there is a biblical directive that creates an exception to the prohibition: “You may not disregard” (Deuteronomy 22:3). We found a case in which human dignity overrides a Torah prohibition. The Gemara suggests: <b>Let us derive</b> a general principle that human dignity takes precedence over all mitzvot in the Torah <b>from this</b> case. This possibility is rejected: <b>We do not derive</b> <i>halakhot</i> pertaining to <b>prohibitions</b> from <b>monetary</b> laws, and the case of the lost object merely entails a monetary loss, unlike other prohibitions.
+
+### Part 15
+The Gemara cites an additional proof from a <i>baraita</i>. <b>Come</b> and <b>hear</b> what was said in the Torah with regard to the Nazirite: “He shall not become impure for his father or his mother or his brother or his sister in their death, for the crown of his God is on his head” (Numbers 6:7). Since it was already written with regard to the Nazirite: “He shall not come upon a dead body” (Numbers 6:6), why is it necessary to elaborate and specify his parents and siblings?
+
+### Part 16
+The Sages derived through halakhic midrash that each of these relationships come to teach a specific nuance of the law. They learned: To <b>what</b> purpose <b>did the verse state: And his sister?</b> To teach that one <b>who was going to slaughter his Paschal</b> lamb <b>and to circumcise his son,</b> both of which are positive mitzvot that if he fails to fulfill them, he is punished with <i>karet</i>, <b>and he heard that</b> a relative <b>of his died, I might have thought</b> that <b>he</b> should <b>return and become ritually impure</b> with the impurity imparted by a corpse. <b>You said: “He shall not become impure”;</b> the death of his relative will not override so significant a mitzva from the Torah.
+
+### Part 17
+I <b>might</b> have thought: <b>Just as he does not become impure for</b> his relatives, <b>so he does not become impure for a corpse with no one to bury it [<i>met mitzva</i>]. The verse states: “And his sister”; he may not become impure for his sister,</b> as someone else can attend to her burial,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

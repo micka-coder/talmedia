@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>a Nehardeâ,</b> ou il y a toujours un quorum de priere, <b>sauf le jour ou l'armee du roi [<i>pulmusa</i>] est venue dans la ville, et les Sages etaient preoccupes et n'ont pas prie</b> communement, <b>et j'ai prie a titre individuel, et j'etais un individu</b> qui ne priait <b>pas</b> dans un quorum de priere. </b> La conduite de Shmuel etait conforme a l'opinion de Rabbi Yehuda a ce sujet.
+
+### Partie 2
+Pourtant, cette opinion n'etait pas universellement acceptee. La Guemara relate : <b>Rabbi Hanina Kara,</b> l'expert de la Bible, <b>s'est assis devant Rabbi Yannai, et il s'est assis et a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehuda qui l'a dit</b> <b>au nom de Rabbi Elazar ben Azarya.</b> Rabbi Yannai lui <b>dit : Va lire tes versets a l'exterieur,</b> car cette <i>halakha</i> n'est pas acceptee par les Sages dans la salle d'etude, et elle appartient a l'exterieur, <b>car la <i>halakha</i> n'est pas conforme</b> a l'opinion de <b>Rabbi Yehuda qui l'a dit</b> <b>au nom de Rabbi Elazar ben Azarya.</b>
+
+### Partie 3
+<b>Rabbi Yohanan a dit : J'ai vu Rabbi Yannai, qui priait puis priait a nouveau.</b> Vraisemblablement, sa premiere priere etait la priere du matin et sa seconde etait la priere supplementaire. Apparemment, il n'est pas d'accord avec l'opinion de Rabbi Elazar ben Azarya. Au contraire, il considere que meme s'il ne fait pas partie d'un quorum de priere, un individu doit reciter la priere supplementaire. Plus tard, lorsque cette histoire fut relatee dans la salle d'etude, <b>Rabbi Yirmeya dit a</b> son professeur, <b>Rabbi Zeira:</b> Quelle preuve y a-t-il que la deuxieme priere etait la priere supplementaire ? <b>Peut-etre qu'au depart, il n'a pas focalise son esprit</b> sur sa priere <b>et qu'en fin de compte, il a focalise son esprit,</b> c'est-a-dire qu'il a repete la priere du matin afin de la faire avec la concentration adequate. Rabbi Zeira <b>lui a dit : Regarde qui est ce grand homme qui temoigne de lui.</b> Rabbi Yohanan a certainement observe attentivement avant de relater ce dont il a ete temoin.
+
+### Partie 4
+Concernant les prieres des Sages, la Guemara relate encore que, <b>bien qu'il y ait treize synagogues a Tiberiade, Rabbi Ami et Rabbi Asi ne priaient qu'entre les colonnes ou ils etudiaient,</b> car la priere est aimee aux yeux de Dieu, specifiquement dans un lieu de Torah.
+
+### Partie 5
+<b>Il a ete declare : Rav Yitzhak bar Avdimi au nom de Rabbeinou,</b> Rav, <b>a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehuda qui l'a dit</b> <b>au nom de Rabbi Elazar ben Azarya.</b> La Guemara relate : <b>Rabbi Hiyya bar Abba a prie et</b> puis <b>a prie a nouveau. Rav Zeira lui dit : Pourquoi le Maitre a-t-il fait cela ? Si vous dites parce que le Maitre n'a pas concentre son esprit</b> la premiere fois, <b>N'est-ce pas Rabbi Eliezer qui a dit : Il faut toujours s'evaluer</b> avant de prier ? <b>S'il est capable de concentrer son cœur</b> sur la priere, <b>il doit prier, mais sinon,</b> s'il en est incapable, <b>il ne doit pas prier.</b> Apparemment, ce n'etait pas la raison pour laquelle il a prie deux fois. <b>Plutot,</b> parce que <b>mon Maitre n'a pas mentionne la Nouvelle Lune</b> dans sa priere, alors il a prie a nouveau.
+
+### Partie 6
+La Gemara demande : <b>N'a-t-on pas enseigne</b> dans une <i>baraita</i> : <b>Celui qui s'est trompe et n'a pas mentionne la Nouvelle Lune dans la priere du soir, nous ne lui demandons pas de revenir</b> au debut de la priere et de la repeter, <b>car il peut la reciter dans la priere du matin.</b> Celui qui s'est trompe et n'a pas mentionne la Nouvelle Lune <b>dans la priere du matin, nous ne lui demandons pas de revenir</b> au debut de la priere et de la repeter, <b>car il peut la reciter dans la priere supplementaire. </b> Celui qui s'est trompe et n'a pas mentionne la Nouvelle Lune <b>dans la priere additionnelle, on ne lui demande pas de revenir</b> au debut de la priere et de la repeter, <b>puisqu'il peut la reciter dans la priere de l'apres-midi ?</b> Omettre la mention de la Nouvelle Lune n'oblige pas a repeter la priere <i>Amida</i>. Par consequent, ce n'est pas la raison pour laquelle Rabbi Hiyya bar Abba a prie une seconde fois.
+
+### Partie 7
+Rabbi Hiyya bar Abba <b>lui dit : N'a-t-il pas ete dit a propos de cette</b> <i>baraita</i> que <b>Rabbi Yohanan a dit : Ils ont enseigne</b> cette <i>baraita</i> specifiquement en ce qui concerne la priere <b>dans un cadre communautaire</b> ? Cependant, un individu qui omet de mentionner la Nouvelle Lune est tenu de prier a nouveau ? C'est pourquoi Rabbi Hiyya bar Abba a prie deux fois.
+
+#### Partie 8
+Decoulant de la discussion sur les individus qui recitent deux prieres consecutivement, la Guemara demande : <b>Combien de temps doit-on attendre entre</b> la premiere <b>priere et</b> la seconde <b>priere ? Rav Huna et Rav Hisda</b> etaient d'accord sur ce point en principe, mais ils ont formule leurs opinions differemment (Rachi). <b>L'un a dit</b> qu'un individu doit attendre suffisamment longtemps <b>pour que son esprit soit en mode de plaidoirie</b> <b>[<i>tithonen</i>],</b> ce qui lui permet de reciter la deuxieme priere comme une plaidoirie. <b>L'un</b> d'entre eux <b>dit : </b> Assez longtemps <b>pour que son esprit soit dans un mode de supplication</b> <b>[<i>titholel</i>,</b> lui permettant d'implorer Dieu dans sa deuxieme priere.
+
+### Partie 9
+La Guemara souligne que Rav Huna et Rav Hisda ont tous deux fonde leurs positions sur les prieres de Moise. <b>Celui qui a dit : Pour que son esprit soit en mode plaidoyer</b> <b>[<i>tithonen</i>], comme il est ecrit : "Et j'ai plaide [<i>vaethanan</i>] devant le Seigneur"</b> (Deuteronome 3:23). <b>Et celui qui a dit : Pour que son esprit soit dans un mode de supplication</b> <b>[<i>titholel</i>] comme il est ecrit : "Et Moise implora [<i>vayehal</i>] le Seigneur"</b> (Exode 32:11).
+
+### Partie 10
+La Guemara reprend la discussion ci-dessus concernant l'omission de la mention de la Nouvelle Lune dans la priere <i>Amida</i>. <b>Rav Anan a dit</b> que <b>Rav a dit : Celui qui s'est trompe et n'a pas mentionne la Nouvelle Lune dans la priere du soir, nous n'exigeons pas qu'il retourne</b> au debut de la priere et la repete, <b>parce que le tribunal ne sanctifie le nouveau mois que le jour,</b> et la priere de la Nouvelle Lune, qui est parallele a la sanctification du nouveau mois par le tribunal, appartient a la priere du jour.
+
+### Partie 11
+<b>Ameimar a dit : La declaration du Rav est raisonnable dans un mois complet,</b> c'est-a-dire un mois dans lequel il y a deux jours potentiels de la Nouvelle Lune, le trentieme jour du mois precedent et le premier jour du nouveau mois. Si l'on a neglige de mentionner la Nouvelle Lune la nuit du trentieme, on n'exige pas qu'il revienne au debut de la priere et qu'il la repete, car il peut la mentionner la nuit suivante, c'est-a-dire la nuit du premier du nouveau mois, qui est le jour primaire de la Nouvelle Lune. <b>Mais dans un mois court</b> de vingt-neuf jours, suivi d'un jour de la Nouvelle Lune, <b>on lui impose de revenir</b> au debut de la priere et de la repeter, meme dans la priere du soir.
+
+### Partie 12
+<b>Rav Ashi a dit a Ameimar : Puisque Rav enonce une raison</b> pour sa declaration, <b>quelle</b> difference <b>y a-t-il <b>pour moi</b> si le mois est <b>court, et quelle</b> difference <b>y a-t-il <b>pour moi</b> s'il est <b>complet ? Au contraire, il n'y a pas de difference.</b> Le Rav fonde son opinion sur le parallele etabli entre la sanctification du mois et la mention de la Nouvelle Lune dans la priere <i>Amida</i> ; la sanctification du mois n'est pas pertinente la nuit.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

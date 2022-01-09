@@ -1,0 +1,66 @@
+
+### Part 1
+As for <b>a widow from marriage, everyone agrees that this does not exempt</b> the rival wife, <b>as a positive mitzva does not override a prohibition and a positive mitzva</b> together. <b>When they disagree,</b> it <b>is in</b> the case of <b>a widow from betrothal. The one who said that it exempts</b> the rival wife holds that <b>the positive mitzva</b> of levirate marriage <b>comes and overrides</b> the <b>prohibition</b> against a High Priest marrying a widow. <b>And the one who said that it does not exempt</b> the rival wife held that <b>a positive mitzva does not come and override a prohibition, since it is possible</b> to perform <b><i>ḥalitza</i>.</b>
+
+### Part 2
+The Gemara <b>raises an objection</b> to the opinion that the rival wife would not be exempt, from the previously cited <i>baraita</i>: <b>If</b> one of those <i>yevamin</i> <b>engaged in intercourse, he acquired</b> her as a wife. This shows that the act of levirate marriage is valid, even when prohibited. If so, in the case of the High Priest and a widow as well, her rival wife should be exempt. <b>This is a conclusive refutation,</b> and that opinion is rejected.
+
+### Part 3
+The Gemara asks: <b>Shall we say that</b> this is <b>also a conclusive refutation</b> of the opinion of <b>Reish Lakish</b> and therefore reject his principle? The Gemara answers: <b>Reish Lakish</b> could have <b>said to you: When I say</b> that in every place that you find a positive mitzva and a prohibition applying to the same matter, if you can fulfill both of them together without transgressing the prohibition, this is best, and the positive mitzva does not override the prohibition, this is applicable only <b>when the mitzva is fulfilled</b> properly; <b>but here, <i>ḥalitza</i> in place of levirate marriage is not</b> considered a proper fulfillment of the <b>mitzva.</b>
+
+### Part 4
+§ <b>Rava said: Where</b> is the prohibition against <b>secondary</b> forbidden <b>relationships hinted at in the Torah? As it is stated</b> at the end of the portion discussing forbidden incestuous relations: <b>“For all these abominations have the men of the land done”</b> (Leviticus 18:27). <b>“These”</b> must be understood to mean <b>the harsh ones,</b> i.e., the severe transgressions. This proves <b>by inference that there are</b> also lesser transgressions that are, as it were, <b>soft ones. And what are those</b> soft ones? They are <b>secondary</b> forbidden <b>relationships.</b>
+
+### Part 5
+The Gemara asks: <b>From where</b> may it <b>be inferred</b> that the word <b>“these” [<i>ha’el</i>] is an expression</b> meaning <b>harsh? As it is written: “And the mighty [<i>eilei</i>] of the land he took away”</b> (Ezekiel 17:13). The similarity of these words implies that “these” also has connotations of mighty or harsh.
+
+### Part 6
+The Gemara asks: <b>Shall we say</b> that this statement <b>contradicts</b> the opinion of <b>Rabbi Levi? As Rabbi Levi said: The harshness of the punishment for</b> using dishonest <b>measures is more than the punishment for</b> transgressing the prohibition of <b>forbidden relationships, as</b> with regard to <b>this,</b> forbidden relations, it <b>is stated</b> only: <b>“These [<i>el</i>],” whereas</b> with regard to <b>that,</b> dishonest measures, it <b>is stated: “These [<i>eleh</i>]”</b> with an additional letter <i>heh</i> as a suffix: “For all that do these [<i>eleh</i>] things, even all that do unrighteously, are an abomination unto the Lord your God” (Deuteronomy 25:16). This implies that the word <i>eleh</i> indicates harshness and not the word <i>el</i>. The Gemara answers: This does not contradict his opinion. The word <b><i>el</i></b> has the connotation of <b>harsh, but <i>eleh</i></b> has the connotation of even <b>harsher than <i>el</i>.</b>
+
+### Part 7
+The Gemara asks: <b>With regard to forbidden relationships</b> the word <b><i>eleh</i> is also written:</b> “For whosoever shall do any of these [<i>eleh</i>] abominations, even the souls that do them shall be cut off from among their people” (Leviticus 18:29). If so, why is the punishment for using dishonest measures considered harsher? The Gemara answers: <b>That</b> expression meaning these [<i>eleh</i>] in the context of forbidden relations does not emphasize their severity; rather, it comes <b>to exclude</b> one who uses deception in <b>measures from</b> the penalty of <b><i>karet</i>.</b>
+
+### Part 8
+The Gemara asks: <b>Rather,</b> in <b>what</b> way is deception in measurements more <b>severe</b> than forbidden relations? The Gemara answers: <b>Those</b> who engage in forbidden relations have the <b>possibility of repentance.</b> If one engaged in relations with a forbidden relative he can rectify the sin through repentance. In the case of <b>those</b> who deceive the public with dishonest measures, <b>it is not possible to repent</b> fully because, having deceived the general public, they have no way of returning the money. Whereas generally a thief can return stolen property to its rightful owner, one who used dishonest measures with multiple customers has no way to track them all down in order to return the money.
+
+### Part 9
+<b>Rav Yehuda said</b> that the prohibition of secondary forbidden relationships is learned <b>from here:</b> As it says with regard to King Solomon: <b>“He weighed [<i>izzen</i>] and sought out, and set in order many proverbs”</b> (Ecclesiastes 12:9), <b>and Ulla said</b> that <b>Rabbi Elazar said: Before Solomon came, the Torah was like a basket [<i>kefifa</i>] without handles [<i>oznayim</i>], until Solomon came and made handles for it.</b> By means of his explanation and proverbs he enabled each person to understand and take hold of the Torah, fulfill its mitzvot, and distance himself from transgressions.
+
+### Part 10
+<b>Rabbi Oshaya said</b> that the prohibition of secondary forbidden relationships is learned <b>from here: “Avoid it, pass not by it; turn from it, and pass on”</b> (Proverbs 4:15). One must distance oneself from any prohibited act and not pass near a place of forbidden objects or situations.
+
+### Part 11
+<b>Rav Ashi said a parable: To what is this matter,</b> the opinion <b>of Rabbi Oshaya, comparable?</b> It is comparable <b>to a man guarding an orchard;</b> if he <b>guards it from the outside, all of it is guarded.</b> But if <b>he guards it from the inside,</b> only <b>that which is in front of him</b> that he can see <b>is guarded,</b> while <b>that which is behind him is unguarded.</b> The Gemara comments: <b>And this</b> parable <b>of Rav Ashi is a mistake [<i>beduta</i>]</b> and is not accurate. <b>There,</b> in his metaphor, <b>that which is in front of him at least is guarded; here,</b> in the case of forbidden relationships, <b>were it not for</b> the rabbinic decree against <b>secondary</b> forbidden <b>relationships one would</b> eventually <b>encounter</b> and transgress <b>the</b> biblically <b>forbidden relationship itself.</b> Guarding from the outside is not only preferable, it is essential.
+
+### Part 12
+<b>Rav Kahana said</b> that the prohibition of secondary forbidden relationships is alluded to <b>from here,</b> in the verse stated at the conclusion of the verses discussing the <i>halakhot</i> of forbidden relationships: <b>“Therefore shall you protect [<i>ushmartem</i>] My prized possession [<i>mishmarti</i>],</b> that you do not any of these abominable customs” (Leviticus 18:30). This means: <b>Establish a safeguard [<i>mishmeret</i>] for My prized possession.</b>
+
+### Part 13
+<b>Abaye said to Rav Yosef:</b> If the prohibition against secondary forbidden relationships is learned from here <b>then it would be by Torah</b> law, yet the prohibition against secondary forbidden relationships is by rabbinic law. He answered him: The requirement to add an additional safeguard itself is in fact <b>by Torah</b> law, <b>and the Sages interpreted</b> and defined where and when to apply this law. Abaye objected: But isn’t <b>all of the Torah also interpreted by the Sages</b> and yet has the force of Torah law? In that case, why are these laws considered to be rabbinic? <b>Rather,</b> the prohibition of secondary forbidden relationships was decreed <b>by rabbinic</b> law, <b>and the verse is a mere support</b> but does not indicate a Torah law.
+
+### Part 14
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>What are the secondary</b> forbidden <b>relationships</b> that were prohibited? <b>His mother’s mother, and his father’s mother, and his father’s father’s wife, and his mother’s father’s wife, and the wife of his father’s maternal</b> half <b>brother, and the wife of his mother’s paternal</b> half <b>brother, and his son’s daughter-in-law, and his daughter’s daughter-in-law. A man is permitted to take his father-in-law’s</b> former <b>wife,</b> provided she is not the mother of his wife, <b>and his stepson’s wife,</b> if the stepson died or divorced her. <b>And he is prohibited from</b> marrying <b>the daughter of his stepson. And it is permitted for one’s stepson</b> to marry the stepfather’s <b>wife or daughter.</b>
+
+### Part 15
+Due to these rabbinic decrees concerning stepsons, unusual situations might arise. For example: <b>And his stepson’s wife says to</b> him, i.e., her husband’s stepfather, <b>I am permitted to you, but my daughter is forbidden to you,</b> since she is your stepson’s daughter.
+
+### Part 16
+The Gemara challenges that which is stated in the <i>baraita</i>: <b>His stepson’s daughter</b> is not a secondary relation by rabbinic law. <b>She is</b> forbidden <b>by Torah</b> law, since the daughter of his stepson is the daughter of his wife’s son, <b>as it is written:</b> “You shall not take <b>her son’s daughter or her daughter’s daughter”</b> (Leviticus 18:17). The Gemara answers: This case was included <b>because</b> the <i>baraita</i> <b>wanted to teach the latter clause,</b> which states: <b>His stepson’s wife says to him: I am permitted to you, but my daughter is forbidden to you. And although my daughter is forbidden to you by Torah</b> law, nevertheless <b>the Sages did not issue a decree</b> forbidding <b>me.</b> Therefore, the case of <b>his stepson’s daughter was also taught in the first clause,</b> even though she is forbidden by Torah law and is not a secondary relation.
+
+### Part 17
+The Gemara raises an objection: <b>If so,</b> that the <i>baraita</i> wished to teach this peculiarity, then why did it not teach: <b>His father-in-law’s wife also says: I am permitted to you and my daughter is forbidden to you, as she is his wife’s sister.</b> The Gemara answers: <b>This</b> matter <b>is conclusive for him.</b> In other words, his stepson’s wife is forever permitted and his stepson’s daughter is always forbidden to him. But as for the matter of his father-in-law’s wife’s daughter, <b>this is not conclusive for him.</b> This ruling is not final and might change, since if his wife dies her sister is permitted to him.
+
+### Part 18
+<b>Rav said</b> that he received a tradition with regard to secondary forbidden relationships that <b>four women have a conclusion;</b> i.e., the prohibition does not continue to later generations but applies only to those women who were mentioned explicitly. <b>Rav held three</b> of them <b>in his hand;</b> he knew with certainty three of the four categories. They were: <b>The wife of his mother’s paternal</b> half <b>brother, and the wife of his father’s maternal</b> half <b>brother, and his daughter-in-law. And Ze’eiri adds: Also the wife of his mother’s father. Rav Naḥman bar Yitzḥak said: And your mnemonic</b> for remembering who said what is as follows: Ze’eiri adds an extra generation <b>on top</b> of the prohibitions <b>of Rav,</b> i.e., the wife of his mother’s father, which Rav did not mention.
+
+### Part 19
+The Gemara asks: <b>And what is the reason</b> that <b>Rav did not reckon this</b> category mentioned by Ze’eiri to be among those who have a conclusion? The Gemara answers: In his opinion, this category might be mistakenly <b>switched with</b> the category of <b>the wife of his father’s father,</b> which does not have a conclusion. With regard to the wife of his father, the prohibition applies equally to the wife of all ancestors in the father’s line. Therefore, according to Rav, the Sages also included the ancestors of the mother’s father’s wife as secondary forbidden relationships.
+
+### Part 20
+The Gemara asks: <b>And</b> why is <b>Ze’eiri</b> not concerned that the two categories will become confused? The Gemara answers: <b>He is</b> often <b>found there,</b> in his father’s father’s home, <b>and goes</b> there frequently, but <b>here,</b> to his mother’s household, <b>he is not commonly found to go.</b> Since he goes to his father’s home frequently, he knows that his father’s relatives are forbidden to him, and he will not confuse them with his mother’s relatives.
+
+### Part 21
+Among the women enumerated by Rav is <b>his daughter-in-law.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

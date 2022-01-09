@@ -1,0 +1,15 @@
+
+### Partie 1
+<b>Des exclusions sont ecrites</b> dans ces deux cas, qui indiquent que cette <i>halakha</i> s'applique a eux seuls. <b>Ici,</b> en ce qui concerne l'enlevement des cendres, <b>il est ecrit : "Et il la mettra"</b> (Levitique 6:3), indiquant que cette <i>halakha</i> s'applique a "elle", et a rien d'autre. <b>La,</b> en ce qui concerne la genisse dont le cou est brise, <b>il est ecrit : "Dont le cou a été brisé"</b> (Deutéromoine 21:6). Cette description superflue enseigne que la <i>halakha</i> selon laquelle l'interdiction du mauvais usage des biens consacres est en vigueur meme apres l'accomplissement d'une mitzva s'applique uniquement a ce cas et ne doit pas etre etendue a d'autres.
+
+### Partie 2
+La Guemara revient sur les trois phrases de Levitique 17:11 citees ci-dessus comme enseignant que le sang des offrandes n'est pas soumis a l'interdiction d'abuser des biens consacres : <b>Et pourquoi ai-je</b> besoin de ces <b>trois versets</b> enonces <b>en ce qui concerne le sang ?</b>
+
+### Partie 3
+La Gemara repond : <b>Un</b> terme sert a <b>exclure</b> le sang <b>de l'interdiction du <b>notar</b>.</b> Si quelqu'un a consomme le sang d'une telle offrande, il n'est pas responsable de la consommation du <i>notar</i> comme le serait celui qui a consomme la chair. Au contraire, il est responsable d'avoir viole uniquement l'interdiction de consommer du sang. <b>Et un</b> terme sert <b>a exclure</b> le sang <b>de</b> l'interdiction de <b>mauvais usage</b> des biens consacres, <b>et un</b> autre terme sert <b>a l'exclure</b> de</b> l'interdiction de consommer des offrandes en etat d'impurete <b>rituelle. </b> Si quelqu'un a consomme ce sang en etat d'impurete rituelle, il n'est responsable que de la consommation de sang, mais pas de la consommation d'aliments consacres en etat d'impurete rituelle.
+
+### Partie 4
+<b>Mais aucun verset n'est necessaire</b> pour exclure ce sang <b>de</b> la <i>halakha</i> de <b><i>piggul</i>,</b> une offrande sacrifiee avec l'intention de la consommer au-dela de son temps designe, dont la consommation est punie par <i>karet</i>, car cette exception provient deja d'une autre source. <b>Comme nous l'avons appris</b> dans une mishna (<i>Zevahim</i> 43a) : Concernant <b>toute chose</b> qui a des facteurs de permission, soit en ce qui concerne</b> la consommation par <b>une personne, soit en ce qui concerne</b> la combustion sur <b>l'autel, on est responsable de</b> la manger <b>en raison</b> de la violation de l'interdiction de <b><i>piggul</i>. Mais</b> le facteur de permission lui-meme n'est pas soumis a <i>piggul</i>, et le <b>sang</b> d'une offrande <b>est lui-meme un facteur de permission,</b> car la consommation de l'offrande par une personne ou par l'autel n'est permise qu'apres que le sang ait ete asperge sur l'autel. Par consequent, le sang n'est pas soumis a l'interdiction du <i>piggul</i>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

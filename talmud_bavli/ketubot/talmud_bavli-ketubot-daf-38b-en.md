@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Say</b> to the contrary; the term <b>“virgin,”</b> written with regard to both rape and seduction, is <b>to</b> derive <b>a verbal analogy,</b> and not to exclude a non-virgin, <b>and</b> the phrase <b>“Who was not betrothed”</b> will be interpreted as Rabbi Yosei HaGelili interpreted it, to <b>exclude a young woman who was betrothed and divorced.</b>
+
+### Part 2
+The Gemara answers: <b>It stands to reason</b> that the phrase <b>“Who was not betrothed”</b> is utilized <b>to</b> derive <b>a verbal analogy,</b> and not to exclude one who was betrothed and divorced, <b>as</b> even after the divorce <b>I can</b> still <b>read</b> the phrase <b>“A young woman who is a virgin”</b> as applying <b>to her.</b> The Gemara asks: <b>On the contrary,</b> utilize the term <b>virgin to</b> derive <b>a verbal analogy, as</b> even if she is not a virgin, <b>I can</b> still <b>read</b> the phrase <b>“Who was not betrothed”</b> as applying <b>to her.</b> The Gemara answers: <b>It stands to reason</b> that the term “virgin” excludes a non-virgin, and the phrase “Who was not betrothed” is utilized to derive a verbal analogy, as <b>this</b> woman who engaged in relations, <b>her body changed, and that</b> woman who was betrothed and divorced, <b>her body did not change,</b> and therefore her status with regard to the fine should similarly not change.
+
+### Part 3
+The Gemara asks: <b>And from where</b> does <b>Rabbi Yosei HaGelili</b> derive <b>this conclusion</b> with regard to the amount of the payment for seduction and the type of money used in the payment for rape? The Gemara responds: <b>He derives it from that which was taught</b> in a <i>baraita</i> that it is written with regard to seduction: <b>“He shall weigh money like the dowry of the virgins”</b> (Exodus 22:16), from which it is derived <b>that this</b> fine for seduction <b>will be like the dowry</b> paid <b>to the virgins</b> elsewhere for rape, fifty silver coins, <b>and the dowry</b> paid <b>to the virgins</b> for rape <b>will be like this</b> fine for seduction in shekels.
+
+### Part 4
+§ The Gemara comments: It is <b>difficult</b> as there is a contradiction between one statement <b>of Rabbi Akiva</b> and another statement <b>of Rabbi Akiva.</b> In the mishna he ruled that the fine for the rape of a young woman who was betrothed and divorced is paid to the woman, and in the <i>baraita</i> he ruled that it is paid to her father. The Gemara answers: These are conflicting traditions of <b>two <i>tanna’im</i> in accordance with</b> the opinion of <b>Rabbi Akiva.</b>
+
+### Part 5
+The Gemara observes: <b>Granted,</b> the statement of <b>Rabbi Akiva of the mishna</b> is reasonable, as <b>a verbal analogy does not come and divert the verse from its plain meaning entirely.</b> The plain meaning of the phrase: “Who was not betrothed” is that there is a difference between a young woman who was betrothed, who receives payment of the fine, and one who was not, whose father receives payment of the fine. <b>However,</b> according <b>to Rabbi Akiva of the <i>baraita</i>,</b> does <b>a verbal analogy come and divert the verse from its plain meaning entirely,</b> and teach that there is no difference at all between a young woman who was betrothed and one who was not?
+
+### Part 6
+<b>Rav Naḥman bar Yitzḥak said: Interpret the verse</b> as: <b>Who is not betrothed.</b> It does not mean that the young woman was not betrothed in the past, rather, that she is not currently betrothed. The Gemara asks: There is no need for a verse to derive that the rapist is exempt from paying a fine if the young woman is betrothed, as the rape of <b>a betrothed</b> young woman <b>is</b> punishable <b>by stoning,</b> and the rapist is certainly exempt from paying the fine. The Gemara answers: As <b>it might enter your mind to say: Since it is a novel element that the Torah introduced with regard to</b> the payment of <b>a fine, even though he is killed he pays</b> the fine. Therefore, the verse <b>teaches us</b> that one who is executed is exempt from payment of the fine.
+
+### Part 7
+The Gemara asks: <b>And according to Rabba, who said</b> that this is indeed the <i>halakha</i>: Since <b>it is a novel element that the Torah introduced with regard to</b> the payment of <b>a fine, even though he is killed he pays</b> the fine, <b>what is there to say?</b> What is derived from the verse that says that there is no fine if the young woman is betrothed? The Gemara answers: Rabba <b>holds in accordance with</b> the opinion of <b>Rabbi Akiva of the mishna,</b> who interpreted the verse as it is written, meaning that it is referring to one who was betrothed and divorced.
+
+### Part 8
+<b>The Sages taught:</b> With regard to a young woman who was raped, <b>to whom</b> is <b>her fine</b> paid? It is paid <b>to her father; and some say:</b> It is paid <b>to her.</b> The Gemara asks: <b>To her? Why?</b> The verse explicitly states that the fine is paid to her father. <b>Rav Ḥisda said: Here we are dealing with a young woman who was betrothed and divorced, and</b> these <i>tanna’im</i> in the <i>baraita</i> <b>disagree in the dispute between Rabbi Akiva of the mishna and Rabbi Akiva of the <i>baraita</i>,</b> with regard to whom the rapist pays the fine in that case.
+
+### Part 9
+§ <b>Abaye said:</b> If <b>one had intercourse with</b> a young woman, <b>and she died</b> before he was sentenced, he is <b>exempt</b> from paying the fine, <b>as it is stated: “And</b> the man who lay with her <b>shall give to the father of the young woman”</b> (Deuteronomy 22:29), from which it is inferred, <b>and not to the father of a dead</b> girl. The Gemara comments: This <b>matter that</b> was <b>obvious to Abaye</b> was <b>raised as a dilemma to Rava.</b>
+
+### Part 10
+<b>As Rava raised a dilemma: Is there</b> achievement of <b>grown-woman status in the grave or is there not</b> achievement of <b>grown-woman status in the grave?</b> The <i>halakha</i> is that if a young woman is raped and the rapist did not pay the fine until she became a grown woman, the rapist pays the fine to her and not to her father. Rava’s dilemma is in a case where a young woman dies and her rapist was convicted only after the time elapsed that were she alive she would have reached grown-woman status. <b>Is there</b> achievement of <b>grown-woman status in the grave, and</b> therefore she is entitled to the fine and <b>it is</b> the property of <b>her son</b> as his mother’s heir? <b>Or perhaps there is no</b> achievement of <b>grown-woman status in the grave, and the fine is</b> the property of <b>her father,</b> as she was a young woman when she died.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Part 1
+<strong>GEMARA:</strong> The Gemara analyzes the terms in the mishna: <b>What</b> is the meaning of <b><i>itzterubalin</i>?</b> This is the plant known as <b><i>torenita</i>. And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i>: The Sages <b>added to</b> the list of plants whose use is prohibited during the Sabbatical Year: <b><i>Alekesin</i> and <i>itzterubalin</i>, <i>mukhsasin</i>, and <i>benot shuaḥ</i>. And if it would enter your mind</b> to say that <b><i>itzterubalin</i></b> is <b><i>torenita</i>, is there <i>torenita</i></b> that is subject to the <i>halakhot</i> <b>of the Sabbatical</b> Year?
+
+### Part 2
+The Gemara explains: <b>But didn’t we learn</b> in a <i>baraita</i> that <b>this is the principle: Anything that has a root</b> and grows <b>is subject to</b> the <i>halakhot</i> of <b>the Sabbatical</b> Year, <b>and</b> anything <b>that does not have a root is not subject to</b> the <i>halakhot</i> of <b>the Sabbatical</b> Year? If so, <i>torenita</i>, which has no roots, is not subject to the <i>halakhot</i> of the Sabbatical Year, and therefore it cannot be identified as <i>itzterubalin</i>. <b>Rather, Rav Safra says:</b> What is <i>itzterubalin</i>? It is <b>the fruit of the cedar</b> tree. <b>And similarly, when Ravin came</b> from Eretz Yisrael, he said that <b>Rabbi Elazar says:</b> <i>Itzterubalin</i> is <b>the fruit of the cedar</b> tree.
+
+### Part 3
+The mishna includes <b><i>benot shuaḥ</i></b> among the items one may not sell to a gentile. <b>Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> These are <b>white figs.</b> The mishna states: <b>And <i>petotarot</i>. Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> This is not another type of fruit; rather, the mishna here <b>taught</b> that the sale of the various fruits listed in the mishna is prohibited only when they are sold <b>with their stems,</b> not if they have been pruned.
+
+### Part 4
+The mishna taught that selling <b>frankincense</b> to gentiles is prohibited. <b>Rabbi Yitzḥak says</b> that <b>Rabbi Shimon ben Lakish says:</b> The mishna is referring specifically to <b>pure frankincense,</b> which is used as incense for objects of idol worship. A Sage <b>taught: And with regard to all</b> of these items whose sale is prohibited, <b>one may sell to</b> gentiles a large <b>bundle</b> of merchandise, as it is clear that the gentile intends to sell the merchandise rather than sacrifice it to his object of idol worship. <b>And how much</b> does such <b>a bundle</b> weigh? <b>Rabbi Yehuda ben Beteira explained:</b> For the purposes of this <i>halakha</i>, <b>no bundle is less than</b> the weight of <b>three hundred dinars.</b>
+
+### Part 5
+The Gemara raises a difficulty: <b>But let us be concerned lest</b> the buyer <b>go and sell</b> these items <b>to another</b> gentile, <b>and they sacrifice</b> them. <b>Abaye said</b> in response: This scenario is certainly possible, but <b>we are commanded</b> only not <b>to</b> “place a stumbling block <b>before</b> the blind” (Leviticus 19:14), i.e., one may not be the direct cause of a gentile’s idol worship. <b>We are not commanded</b> not <b>to</b> place a stumbling block <b>before</b> one who may subsequently place it <b>before</b> the blind.
+
+### Part 6
+§ The mishna teaches: <b>And</b> it is prohibited to sell <b>a white rooster</b> to a gentile. <b>Rabbi Yona says</b> that <b>Rabbi Zeira says</b> that <b>Rav Zevid says</b> the following ruling; <b>and there are</b> those <b>who teach</b> merely that <b>Rabbi Yona says</b> that <b>Rabbi Zeira says</b> it. If a gentile says: <b>Who has a rooster,</b> without specifying any particular type, it is <b>permitted to sell him a white rooster.</b> But if he says: <b>Who has a white rooster,</b> it is <b>prohibited to sell him a white rooster.</b>
+
+### Part 7
+The Gemara raises an objection to this opinion. <b>We learned</b> in the mishna that <b>Rabbi Yehuda says: He may sell a white rooster to</b> a gentile, provided that it is sold <b>along with</b> other types of <b>roosters. What are the circumstances? If we say that</b> the gentile <b>says: Who has a white rooster, who has a white rooster;</b> in that case one may <b>not</b> provide him a white rooster <b>even</b> if it is sold <b>along</b> with other <b>roosters,</b> as the gentile specified that he wants a white rooster.
+
+### Part 8
+<b>Rather, is it not</b> referring to a case <b>where</b> the gentile <b>says: Who has a rooster, who has a rooster;</b> without mentioning a white rooster, <b>and even so, according to Rabbi Yehuda</b> if he sells him a white rooster <b>along with</b> other <b>roosters</b> then <b>yes,</b> it is permitted, but selling only a white rooster <b>by itself</b> is <b>not</b> permitted? <b>And</b> one can infer that <b>according to the first <i>tanna</i>,</b> who prohibits the sale of a white rooster, one may <b>not</b> sell him a white rooster <b>even</b> if it is sold <b>along with</b> other <b>roosters.</b> This does not accord with the statement of Rabbi Yona, who rules that if the gentile says: Who has a rooster, without specifying any particular type, it is permitted to sell him even a white rooster.
+
+### Part 9
+<b>Rav Naḥman bar Yitzḥak said:</b> The mishna is not discussing the case of a gentile who asks for a rooster without specifying its color, as everyone agrees that in such a situation it is permitted to sell him a white rooster. Rather, <b>here we are dealing with</b> a case <b>where</b> the Jew had several different roosters, and the gentile <b>says,</b> pointing to different roosters: Sell me <b>this</b> one <b>and that</b> one, and one of the roosters he chose was white.
+
+### Part 10
+The Gemara notes that <b>this</b> explanation <b>is also taught</b> in a <i>baraita</i>. <b>Rabbi Yehuda said: When</b> is selling a white rooster prohibited? It is prohibited <b>when</b> the gentile <b>said:</b> Sell me <b>this white rooster. But if he said:</b> Sell me <b>this</b> one <b>and that</b> one, it is <b>permitted. And even</b> if <b>he said:</b> Sell me <b>this rooster,</b> and he pointed to a white rooster, in the case of <b>a gentile who is preparing a feast for his son or who has a sick person in his house, it is permitted</b> to sell it to him, as it is clear that he wants it for the celebration for his son or for the sick person, not for idol worship.
+
+### Part 11
+The Gemara asks: <b>But isn’t it taught</b> in a mishna (8a): In the case of <b>a gentile who made a feast for his son,</b> engaging in business <b>is prohibited only</b> on <b>that day, and</b> with <b>that man alone?</b> This indicates that <b>in any event,</b> conducting business on <b>that day and</b> with <b>that man is prohibited. Rav Yitzḥak bar Rav Mesharshiyya said:</b> The <i>baraita</i> is speaking <b>about a picnic [<i>betavuzig</i>],</b> i.e., a social gathering rather than a wedding feast. A mere social gathering does not include the sacrifice of offerings to idolatry.
+
+### Part 12
+§ <b>We learned</b> in the mishna: <b>And</b> with regard to <b>all remaining items, without specification</b> it is <b>permitted</b> to sell them, <b>but</b> with <b>specification</b> it is <b>prohibited</b> to sell them. The Gemara asks: <b>What</b> is the meaning of: <b>Without specification, and what</b> is meant by: With <b>specification? If we say</b> that <b>without specification is</b> referring to a case <b>when</b> the gentile <b>says</b> that he wants <b>white wheat</b> without stating the reason he wants it, and with <b>specification is</b> referring to a case <b>when he says</b> that he will use the wheat <b>for idol worship,</b> why is it necessary for the mishna to teach this <i>halakha</i>?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

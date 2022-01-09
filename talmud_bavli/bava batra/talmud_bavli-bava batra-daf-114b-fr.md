@@ -1,0 +1,15 @@
+
+### Partie 1
+<b>de passer</b> de la discussion de cette <b>matiere pour</b> discuter d'une autre <b>matiere,</b> afin qu'il ne puisse plus revenir sur sa decision. <b>Aussi,</b> selon Rabba, on peut expliquer que Rav Yehouda faisait reference a un cas <b>ou ils se sont leves puis se sont assis</b> a nouveau. Bien qu'aucun appui a l'opinion de Rav Yosef n'ait ete tire de la decision de Rav Yehuda, la Gemara precise neanmoins : <b>Et la <i>halakha</i></b> est <b>conforme</b> a l'avis <b>de Rav Yosef dans</b> les litiges concernant le partage d'un <b>champ,</b> discute ci-dessus (12b), le reniement alors qu'ils discutent de la meme <b>matiere,</b> discutee ici, <b>et la moitie</b> de ses biens, discutee ci-dessous (143a).
+
+### Partie 2
+§ La mishna enseigne que <b>une femme</b> legue a <b>son fils,</b> son mari et ses oncles maternels, mais elle n'herite pas d'eux. La Gemara demande : <b>Pourquoi ai-je</b> besoin de <b>cela aussi ? Mais c'est</b> deja <b>enseigne</b> dans <b>la clause precedente : Un homme</b> herite de <b>sa mere et un homme</b> herite de <b>sa femme.</b> La <i>halakha</i> enoncee dans cette clause semble etre la meme que celle de l'autre clause.
+
+### Partie 3
+La Gemara repond : <b>Cela nous apprend que</b> la <i>halakha</i> de <b>une femme</b> qui legue a <b>son fils</b> est <b>similaire a celle</b> de <b>une femme</b> qui legue a <b>son mari : De meme</b> qu'en ce qui concerne <b>une femme</b> qui legue a <b>son mari, le mari n'herite pas</b> des biens par <b>sa femme</b> tant qu'il est <b>dans la tombe,</b> c'est-a-dire, si un mari decede avant sa femme, alors ses proches, tels que les enfants d'un autre mariage, n'heritent pas des biens de la femme a travers lui mais plutot les propres proches de la femme heritent de ses biens, <b>ainsi, </b> la meme <i>halakha</i> s'applique en ce qui concerne <b>une femme</b> qui legue a <b>son fils,</b> que <b>le fils n'herite pas</b> des biens par <b>sa mere</b> alors qu'il est <b>dans la tombe</b> afin <b>de leguer a ses freres paternels. </b> Dans les deux cas, ce sont les propres parents de la femme qui heritent de ses biens.
+
+### Partie 4
+§ Concernant la <i>halakha</i> qu'une mere herite de son fils, la Guemara note que <b>Rabbi Yohanan dit au nom de Rabbi Yehuda ben Rabbi Shimon : Par la loi de la Torah, un pere herite</b> de <b>son fils, et une femme herite</b> de <b>son fils</b> si le pere n'est plus en vie, <b>comme il est dit</b> a propos d'une femme recevant un heritage :" Et toute fille qui possède un héritage des <b>tribus</b> des enfants d'IsraA "l" (Nombres 36:8). Comme le terme pluriel "tribus" comprend a la fois la tribu de son pere et celle de sa mere, le verset <b>juxtapose</b> la <b>tribu de la mere a la tribu du pere, </b> en ce que <b>comme</b> en ce qui concerne <b>la tribu du pere, un pere herite</b> de <b>son fils, de meme,</b> en ce qui concerne <b>la tribu de la mere, une femme herite</b> de <b>son fils</b> si le pere est decede.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

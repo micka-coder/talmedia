@@ -1,0 +1,39 @@
+
+### Part 1
+<b>and will say to him: You are my slave,</b> because he was designated to be used as repayment for the debt, and lest the future children of this emancipated slave acquire the reputation of being disqualified, the court <b>forces his second master,</b> i.e., the creditor, <b>and</b> he <b>makes him a freeman, and the slave writes</b> a promissory <b>note for his value,</b> that he owes his own value to the creditor. <b>Rabban Shimon ben Gamliel says: The slave does not write</b> a promissory note for his value. <b>Rather,</b> his first master, <b>who emancipated</b> him, <b>writes</b> a promissory note, and then pays the value of the slave to the creditor, as the master designated the slave to be used for repayment.
+
+### Part 2
+The Gemara explains: <b>With regard to what</b> <i>halakha</i> <b>do they disagree? They disagree with regard to</b> the <i>halakha</i> in the case of <b>one who causes damage</b> to <b>his friend’s lien, as</b> one <b>Sage,</b> Rabban Shimon ben Gamliel, <b>holds</b> that one who causes damage to his friend’s lien is <b>liable</b> to pay for the damage, although the liened object itself does not belong to his friend. Therefore, in the case of the mishna, the one who emancipated the slave is required to write a promissory note for his value. <b>And</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that he is <b>exempt.</b> Consequently, it is the slave who is required to write a promissory note for his value.
+
+### Part 3
+<b>It was also stated</b> that Rabban Shimon ben Gamliel and the Rabbis disagree with regard to that issue: When discussing <b>one who causes damage</b> to <b>his friend’s lien, we have arrived at the dispute</b> between <b>Rabban Shimon ben Gamliel and the Rabbis,</b> which supports the above analysis.
+
+### Part 4
+<b>Ulla said</b> another explanation of the dispute in the mishna: <b>Who emancipated him? His second master,</b> for whom he served as a lien for his debt. The mishna should be explained as follows: <b>According to the letter of the law, the slave is not at all obligated in mitzvot</b> as a result of this emancipation, because the creditor did not have the authority to emancipate him. <b>However, for the betterment of the world, since a rumor has spread about him</b> that he is <b>a freeman</b> as a result of the emancipation, <b>his first master is forced to make him a freeman, and</b> the slave <b>writes</b> a promissory <b>note for his value</b> to be paid to his original master, who was forced to emancipate his slave without receiving compensation. <b>Rabban Shimon ben Gamliel says:</b> The slave <b>does not write</b> a promissory note for his value. <b>Rather, the one who emancipates,</b> the creditor, <b>writes</b> a promissory note and pays the original master.
+
+### Part 5
+The Gemara explains: <b>With regard to what</b> principle <b>do they disagree? They disagree with regard to damage that is not evident,</b> i.e., a case where the value of an item was lowered due to a change that occurred that is not noticeable in the physical properties of that item. One <b>Sage,</b> Rabban Shimon ben Gamliel, <b>holds</b> that damage that is not evident <b>is termed damage.</b> Consequently, since the master is forced to emancipate his slave as a result of the action of the creditor, it is viewed as if the creditor has damaged the item of the master. <b>And</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that damage that is not evident <b>is not termed damage,</b> and the creditor is not liable to pay.
+
+### Part 6
+The Gemara asks: <b>What is the reason</b> that <b>Ulla did not say</b> an explanation <b>in accordance with</b> the explanation of <b>Rav</b> with regard to the proper understanding of the mishna? The Gemara answers: Ulla could have <b>said to you:</b> Do <b>you call the second</b> person: <b>His master,</b> which is the term employed in the mishna to describe the one who emancipated the slave? The creditor never was in fact the master of the slave, as the slave was only liened to him.
+
+### Part 7
+The Gemara asks: <b>And what is the reason</b> that <b>Rav did not say in accordance with</b> the explanation of <b>Ulla</b> with regard to the proper understanding of the mishna? The Gemara answers: Rav could have <b>said to you:</b> Do <b>you call the second</b> person: <b>One who emancipates,</b> which is the term employed in the mishna to describe the action taken? The action he performed is not emancipation, as he does not have the authority to emancipate a slave that does not belong to him.
+
+### Part 8
+§ <b>It was stated</b> that the Sages disagreed with regard to a similar question: In the case of <b>one who sets aside his field as designated repayment for others</b> to whom he owes a debt, <b>and a river flooded</b> the field in a way that caused permanent damage, the Sage known as <b>Ami Shappir Na’e,</b> literally meaning Ami the Beautiful, says that <b>Rabbi Yoḥanan says:</b> The creditor <b>does not collect from other property,</b> and because this field was ruined the creditor incurs a loss. <b>And Shmuel’s father said: He collects from other property.</b>
+
+### Part 9
+<b>Rav Naḥman bar Yitzḥak said: Because Ami is beautiful [<i>shappir na’e</i>],</b> does <b>he say <i>halakhot</i> that are not beautiful</b> and correct? Why should the creditor not be able to collect his debt from other property? <b>Interpret his <i>halakha</i></b> as referring to a case <b>where</b> the debtor <b>said</b> explicitly <b>to</b> the creditor: Not only is this field liened property, but <b>you will have payment only from this</b> field. In such a case, Ami Shappir Na’e ruled that if that field is destroyed, the creditor has no recourse.
+
+### Part 10
+<b>This is also taught</b> in a <i>baraita</i>: In the case of <b>one who sets aside his field as designated repayment for another</b> to whom he owes a debt, <b>and a river flooded</b> the field, the creditor <b>collects from other property. But if</b> the debtor <b>said to</b> the creditor: <b>You will have payment only from this</b> field, then <b>he does not collect from other property.</b>
+
+### Part 11
+It <b>is taught</b> in <b>another</b> <i>baraita</i> (<i>Tosefta</i>, <i>Ketubot</i> 12:3): In the case of one <b>who sets aside his field as designated repayment to a creditor or for a woman’s marriage contract,</b> and he later sells that field, the creditor or the woman <b>collects</b> only <b>from other property</b> but not from the field that was sold. <b>Rabban Shimon ben Gamliel says: A creditor collects</b> only <b>from other property,</b> but <b>a woman does not</b> need to <b>collect from other property.</b> She may seize the field that had been designated. What is the reason for the distinction? <b>Since it is not the way of a woman to go to court,</b> it is assumed that that particular field was designated to pay her marriage contract in any event, to avoid the need for her to enter into litigation to claim her due.
+
+### Part 12
+<strong>MISHNA:</strong> In the case of <b>one who is a half-slave half-freeman</b> because only one of his two owners emancipated him, <b>he serves his master one day and</b> serves <b>himself one day;</b> this is <b>the statement of Beit Hillel. Beit Shammai say:</b> Through such an arrangement <b>you have remedied his master,</b> as his master loses nothing through this. However, <b>you have not remedied</b> the slave <b>himself,</b> as the slave himself remains in an unsustainable situation. <b>It is not possible</b> for him <b>to marry a maidservant</b> because <b>he is already a half-freeman,</b> as it is prohibited for a freeman to marry a maidservant.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

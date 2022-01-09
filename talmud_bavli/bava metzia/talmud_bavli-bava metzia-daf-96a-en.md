@@ -1,0 +1,75 @@
+
+### Part 1
+By contrast, <b>Rava holds in accordance with</b> the opinion of <b>Rabbi Yonatan, and he explains the verses in accordance with</b> the opinion of <b>Rabbi Yonatan,</b> thereby arriving at the conclusion of the <i>baraita</i>, <b>as it is taught</b> in a <i>baraita</i>: <b>“If its owner is with him, he does not pay” teaches</b> about the case in <b>which</b> the owner <b>was</b> working for the borrower <b>at both</b> points in time, <b>and it also teaches</b> about the case in <b>which</b> he <b>was</b> working for him <b>at one</b> of those times <b>but not at</b> the other <b>one;</b> in both cases the borrower is <b>exempt.</b>
+
+### Part 2
+The Gemara raises an objection: <b>But it is</b> also <b>written: “If its owner is not with him, he shall pay.”</b> The verse <b>teaches</b> about the case in <b>which</b> the owner <b>was not</b> working for the borrower <b>at either</b> point in time, <b>and it also teaches</b> about the case in <b>which he was</b> working for him <b>at one</b> of those times <b>but not at</b> the other <b>one;</b> in both cases the borrower is <b>liable.</b>
+
+### Part 3
+To reconcile the verses, one must say that the phrase “if its owner is with him” serves <b>to tell you</b> that if the owner <b>was with</b> the borrower, i.e., working for him, <b>at</b> the <b>time of borrowing,</b> then <b>he does not need to be with him at</b> the <b>time when</b> the animal is <b>injured or dies</b> for the exemption from liability to apply; but if he <b>was with him at</b> the <b>time when</b> the animal is <b>injured or dies, he</b> does <b>need to have been with him at</b> the <b>time of borrowing</b> for the exemption to apply.
+
+### Part 4
+The Gemara raises a difficulty: <b>I could reverse</b> the conclusion and say that the borrower’s exemption from liability is dependent upon the time when the animal was injured or died. The Gemara explains: <b>It is reasonable</b> that the exemption from liability should be dependent on the time of the borrowing because the <b>borrowing is</b> of <b>greater</b> significance, <b>as</b> with it the borrower <b>brings</b> the animal <b>into his domain.</b>
+
+### Part 5
+The Gemara retorts: <b>On the contrary,</b> the time when the animal is <b>injured or dies is</b> of <b>greater</b> significance, because <b>that</b> point marks <b>when</b> the borrower <b>is</b> actually <b>liable</b> to pay <b>for</b> any <b>accidents</b> that occurred.
+
+### Part 6
+The Gemara responds: No, the borrowing is more significant. <b>Were it not for</b> the initial <b>borrowing, what</b> liability could be <b>caused</b> by the fact that the animal is <b>injured or dies?</b> The Gemara argues: <b>But</b> by the same logic, <b>were it not for</b> the fact that the animal is <b>injured or dies, what</b> liability could be <b>caused</b> by the act of <b>borrowing?</b> The Gemara concludes: <b>Even so,</b> the <b>borrowing is</b> of <b>greater</b> significance, <b>as</b> with it the borrower <b>is obligated to</b> provide the animal’s <b>sustenance</b> as long as it is entrusted with him.
+
+### Part 7
+<b>Rav Ashi said</b> that the <i>halakha</i> that the borrower’s exemption from liability is dependent upon the time of the borrowing can be derived from the verse itself: <b>The verse states: “And when a man borrows from another…</b>he shall pay” (Exodus 22:13). The precise formulation of the verse indicates that he borrowed an item from another, <b>but</b> that <b>other</b> person <b>was not with him,</b> i.e., working for him, at the time. It is only in such a case that that verse concludes: <b>“He shall pay.”</b> By inference, when the <b>other person</b> is working <b>with him,</b> the borrower is <b>exempt.</b> Accordingly, it is clear that the critical moment is the time of the borrowing.
+
+### Part 8
+The Gemara asks: <b>If so, why do I</b> need the continuation of that verse: <b>“Its owner is not with him,” and</b> the next verse: <b>“If its owner is with him”?</b> According to Rav Ashi, the circumstances of the borrower’s liability and exemption can be derived from the beginning of the first verse. The Gemara explains: <b>If it were not for these</b> additional clauses, <b>I would say</b> that <b>this</b> phrase “from another” <b>is</b> simply <b>the</b> usual <b>manner of the verse,</b> and is not to be expounded to teach an exemption. Since the continuation of the verse and the next verse teach the actual exemption from liability, and the apparent contradiction between them raises the question of when the critical moment is, it is apparent that the beginning of the verse was written in order to be expounded, as Rav Ashi did.
+
+### Part 9
+§ <b>Rami bar Ḥama raises a dilemma:</b> If one <b>borrowed</b> an animal in order <b>to engage in bestiality with it,</b> a severe transgression (see Leviticus 18:23), <b>what is</b> the <i>halakha</i>; is the borrower liable for mishaps? The crux of the dilemma is: In order for him to be liable, <b>do we require</b> that the borrowing be for a purpose <b>similar to that</b> for <b>which people</b> typically <b>borrow</b> animals, <b>and</b> since <b>people do not</b> typically <b>borrow</b> animals <b>for this</b> purpose, the borrower is exempt? <b>Or perhaps, what is the reason</b> that a borrower is liable? It is <b>due to</b> the <b>benefit</b> he derives from the animal, <b>and</b> as <b>this</b> borrower, <b>too, has benefit</b> from the animal, he is liable for mishaps.
+
+### Part 10
+A similar question: If <b>one borrowed</b> an item, not to use it but <b>to be seen with it,</b> so that people will assume that he is wealthy, <b>what is</b> the <i>halakha</i>? In order for him to be liable, <b>do we require</b> that he borrow an item <b>of monetary worth, and</b> that exists in this case? <b>Or, perhaps we require</b> that he borrow an item <b>of monetary worth from which he</b> also <b>derives</b> tangible <b>benefit, and</b> that does not exist in this case.
+
+### Part 11
+Another question: If <b>one borrowed</b> an item <b>to perform</b> work <b>with it</b> that is worth <b>less than</b> the value of <b>one <i>peruta</i>, what is</b> the <i>halakha</i>? <b>Do we require</b> only that he borrow an item <b>of monetary worth, and</b> that exists in this case? <b>Or, perhaps any</b> benefit derived that is worth <b>less than one <i>peruta</i> is nothing,</b> i.e., it is legally considered to be of no monetary worth, and he is therefore exempt.
+
+### Part 12
+Another question: If <b>one borrowed two cows to perform</b> work <b>with them</b> that will be worth the value of <b>one <i>peruta</i></b> in total, <b>what is</b> the <i>halakha</i>? When appraising the value of the benefit derived, to see if it has monetary worth of one <i>peruta</i>, <b>do we say: Follow</b> the <b>borrower and lender,</b> i.e., appraise how much benefit the borrower received from the lender, <b>and</b> in this case <b>there is</b> benefit of the value of one <i>peruta</i>. <b>Or, perhaps we follow</b> the <b>cows, and</b> in this case, <b>each one</b> of the cows <b>does not</b> provide the borrower with <b>monetary worth</b> of one <i>peruta</i>.
+
+### Part 13
+Another question: If <b>one borrowed</b> an item <b>from</b> two <b>partners, and</b> the services of <b>one of those</b> partners <b>were</b> also <b>borrowed by him, what is</b> the <i>halakha</i>? Does the exemption of borrowing an item together with its owner apply in this case? For the exemption to apply, <b>do we require all of</b> the item’s <b>owners</b> to be working for the borrower, <b>and</b> that does not exist in this case? <b>Or, perhaps</b> there is no such condition, but <b>in any event,</b> the borrower <b>should</b> at least <b>be exempt</b> from liability <b>for that half</b> of the item owned by the partner who is working for him.
+
+### Part 14
+Another question: In the case of <b>partners who borrowed</b> an item <b>and</b> its owner’s services <b>were</b> also <b>borrowed by one of them, what is</b> the <i>halakha</i>? For the exemption to apply, <b>do we require</b> that the owner be working for <b>all the borrowers, and</b> that does not exist in this case? <b>Or, perhaps</b> there is no such condition, but <b>in any event,</b> the partner who borrowed only the item <b>should</b> at least <b>be exempt</b> from liability <b>for the half</b> of the animal <b>that</b> the partner, whom the owner worked for, <b>had borrowed.</b>
+
+### Part 15
+Another question: If <b>one borrowed</b> an item <b>from a woman, and</b> the services of <b>her husband were</b> also <b>borrowed</b> by him, or where <b>a woman borrowed</b> an item <b>and</b> its owner’s services <b>were</b> also <b>borrowed by</b> her <b>husband, what is</b> the <i>halakha</i>? A husband has the right to use his wife’s property. These questions are dependent on whether <b>ownership of</b> the right to use an item and the <b>profits</b> it engenders <b>is tantamount to ownership of the</b> item <b>itself or not.</b>
+
+### Part 16
+<b>Ravina said to Rav Ashi:</b> In the case of <b>one who says to his agent: Go and lend your</b> services to somebody <b>on my behalf</b> together <b>with</b> lending <b>my cow</b> to that person, <b>what is</b> the <i>halakha</i>? For the exemption to apply, do <b>I require</b> that the cow’s <b>actual owner</b> work for the borrower, <b>and</b> in this case that does not exist? <b>Or perhaps,</b> since the legal status of <b>a person’s agent is like</b> that of <b>himself,</b> it is sufficient if his agent works for the borrower, <b>and</b> accordingly, the necessary conditions exist.
+
+### Part 17
+<b>Rav Aḥa, son of Rav Avya, said to Rav Ashi:</b> This question concerning <b>a husband</b> is subject to <b>a dispute between Rabbi Yoḥanan and Reish Lakish.</b> And the question concerning <b>an agent</b> is subject to <b>a dispute between Rabbi Yonatan and Rabbi Yoshiya.</b>
+
+### Part 18
+The Gemara clarifies: The question concerning <b>a husband</b> is subject to <b>a dispute between Rabbi Yoḥanan and Reish Lakish</b> pertaining to the requirement to bring the first fruits of one’s field to the Temple and recite the accompanying declaration (see Deuteronomy, chapter 26): <b>As it was stated:</b> With regard to <b>one who sells his field to another,</b> not outright but <b>for its produce, Rabbi Yoḥanan says:</b> The buyer <b>brings</b> the first fruits <b>and recites</b> the declaration, whereas <b>Reish Lakish says:</b> The buyer <b>brings</b> the first fruits <b>but does not recite</b> the declaration.
+
+### Part 19
+The Gemara explains: They disagree about whether it is justifiable for the buyer to recite the declaration, since in that declaration he refers to the land as: “The land which You, the Lord, have given me” (Deuteronomy 26:10), i.e., he states that the land belongs to him. <b>Rabbi Yoḥanan says</b> that the buyer <b>brings</b> the first fruits <b>and recites</b> the declaration, because he holds that <b>ownership</b> of the right to use land and <b>its produce is tantamount to ownership of the</b> land <b>itself.</b> Accordingly, the buyer is considered to be the owner of the land and he may consequently recite the declaration. <b>And Reish Lakish says</b> that the buyer <b>brings</b> the first fruits <b>but does not recite</b> the declaration, because he holds that <b>ownership of</b> the right to use land and <b>its produce is not tantamount to ownership of the</b> land <b>itself.</b> Accordingly, the buyer is not considered to be the owner of the land and is consequently unable to recite the declaration.
+
+### Part 20
+The Gemara clarifies the second disagreement: The question concerning <b>an agent</b> is subject to <b>a dispute between Rabbi Yonatan and Rabbi Yoshiya, as it is taught</b> in a <i>baraita</i>: If there is <b>one who says to a steward</b> appointed to take care of his household: <b>All vows that my wife will vow from now until I come</b> back <b>from such and such a place,</b> you should <b>nullify</b> them <b>for her</b> in my stead, <b>and</b> the steward <b>annulled</b> them <b>for her,</b> one <b>might</b> have thought that <b>they would be nullified.</b> To dispel this notion, <b>the verse states</b> with regard to a vow taken by a wife: <b>“Her husband sustains it and her husband nullifies it”</b> (Numbers 30:14), which indicates that only her husband is able to do so, and no one else; this is <b>the statement of Rabbi Yoshiya. Rabbi Yonatan says: We have found everywhere</b> in <i>halakha</i> that the legal status of <b>a person’s agent is like</b> that of <b>himself.</b> Since the steward was the agent of the husband, his nullification of the vows is effective.
+
+### Part 21
+Another question: <b>Rav Ilish said to Rava:</b> In the case of <b>one who says to his</b> Canaanite <b>slave: Go and lend your</b> services to another together <b>with</b> lending <b>my cow</b> to that person, <b>what is</b> the <i>halakha</i>? <b>Let the dilemma be raised according to the one who says</b> that the legal status of <b>a person’s agent is like</b> that of <b>himself,</b> and <b>let the dilemma be raised according to the one who says</b> that the legal status of <b>a person’s agent is not like</b> that of <b>himself.</b>
+
+### Part 22
+The Gemara elaborates: <b>Let the dilemma be raised according to the one who says</b> that the legal status of <b>a person’s agent is like</b> that of <b>himself,</b> as follows: Does <b>this matter</b> apply only to <b>an agent,</b> who <b>is obligated in mitzvot,</b> just like the one who appointed him; <b>but</b> for <b>a slave, who is not</b> fully <b>obligated in mitzvot,</b> the principle does <b>not</b> apply? <b>Or perhaps, even according to the one who says</b> that the legal status of <b>a person’s agent is not like</b> that of <b>himself,</b> maybe <b>that matter</b> applies to <b>an agent,</b> who is a free, independent person. <b>But</b> in the case of <b>a slave,</b> since he has no independence from his master, as the <b>possession of a slave is like</b> the <b>possession of his master,</b> i.e., anything that the slave acquires is automatically acquired by his master, perhaps if the slave’s services are borrowed it is the same as if the master himself had been borrowed.
+
+### Part 23
+Rava <b>said to</b> Rav Ilish: <b>It stands to reason</b> that since the <b>possession of a slave is like</b> the <b>possession of his master,</b> then one who borrows both another’s item and the services of his slave is exempt from liability.
+
+### Part 24
+§ <b>Rami bar Ḥama raises a dilemma:</b> What level of liability does <b>a husband</b> bear <b>with regard to his wife’s</b> usufruct <b>property?</b> This is property belonging to the wife that the husband has the right to use and to enjoy its profits while they are married, but that is returned to her upon termination of the marriage.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

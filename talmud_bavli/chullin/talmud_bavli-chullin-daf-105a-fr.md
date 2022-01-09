@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>Si nous disons</b> que <b>Beit Shammai disent</b> que l'on <b>essuie</b> sa bouche avec des aliments solides <b>et n'a pas besoin</b> de <b>se rincer</b> la bouche a l'eau, puisqu'ils soutiennent que l'essuyage est plus efficace que le rincage, <b>et Beit Hillel disent</b> qu'il <b>rince</b> sa bouche a l'eau <b>et n'a pas besoin</b> de <b>essuyer</b> sa bouche, car le rincage est plus efficace, on peut repondre : <b>Mais</b> quant a <b>ce que Rabbi Zeira a dit : L'essuyage de</b> la <b>bouche</b> ne peut etre effectue <b>qu'avec du pain, selon l'avis de qui</b> ? C'est apparemment <b>conformement</b> a l'avis du <b>Beit Shammai,</b> puisque le Beit Hillel n'exige pas l'essuyage. Pourtant, il est peu probable que Rabbi Zeira statue conformement a l'opinion de Beit Shammai plutot que Beit Hillel.
+
+### Partie 2
+<b>Au contraire,</b> il faut expliquer le differend comme suit : <b>Beit Shammai dit</b> que l'on <b>s'essuie</b> la bouche apres avoir mange de la viande <b>et n'a pas besoin</b> de <b>se rincer</b> egalement la bouche, <b>et Beit Hillel dit</b> qu'en plus de s'essuyer on doit <b>se rincer egalement. </b> Cette interpretation est egalement difficile, car si c'est le cas, cela <b>constitue</b> une <b>des disputes</b> entre eux qui impliquent des <b>lenibilites de Beit Shammai et des rigueurs de Beit Hillel, et</b> par consequent, <b>laissons</b> la <i>tanna</i> du tractat <i>Eduyyot</i> <b>l'enseigner a cote</b> des autres differends qui y sont enumeres et qui impliquent <b>des complaisances de Beit Shammai et des rigueurs de Beit Hillel. </b>
+
+### Partie 3
+<b>Au contraire,</b> il faut interpreter leurs declarations comme suit : <b>Beit Shammai disent</b> que l'on <b>s'essuie</b> la bouche apres avoir mange de la viande, <b>et il en est de meme pour le rincage,</b> c'est-a-dire que l'on doit egalement se rincer la bouche. <b>Et Beit Hillel dit</b> que l'on <b>rince</b> sa bouche, <b>et il en est de meme pour l'essuyage.</b> Et <b>un Sage a dit une</b> declaration <b>et un Sage a dit une autre</b> declaration, <b>et ils ne sont pas en desaccord.</b>
+
+### Partie 4
+§ Apres avoir cite tangentiellement la declaration de Rabbi Zeira, la Guemara discute de <b>la</b> question <b>meme. Rabbi Zeira dit : L'essuyage de la bouche</b> ne peut etre effectue <b>qu'avec du pain.</b> La Guemara explique : <b>Et cette affirmation</b> s'applique uniquement <b>au</b> pain prepare <b>a partir de farine de ble</b>. <b>Mais en ce qui concerne</b> le pain prepare <b>a partir de farine d'orge</b>, on ne peut <b>pas</b> l'utiliser pour s'essuyer, car le pain d'orge s'effrite dans la bouche et n'essuie pas completement.
+
+### Partie 5
+La Gemara ajoute : <b>Et meme</b> dans le cas du pain prepare <b>a partir de farine de ble</b>, <b>on a dit</b> la <i>halakha</i> <b>seulement en ce qui concerne le pain froid</b>, <b>mais</b> quant au <b>pain chaud</b>, il est inefficace pour essuyer meme s'il est fait de ble, car il ramollit et <b>se colle</b> au palais, et il n'essuie pas la bouche correctement. <b>Et</b> en outre, meme si le pain est froid, <b>cette affirmation</b> ne s'applique que <b>par rapport au pain mou</b>, <b>mais</b> on ne peut <b>pas</b> s'essuyer <b>avec du pain dur</b>, car il ne nettoie pas non plus efficacement. La Guemara conclut : <b>Et la <i>halakha</i> est</b> que l'utilisation <b>de tous les elements constitue</b> un <b>essuyage efficace, a l'exception de la farine, des dattes et des legumes.</b>
+
+### Partie 6
+§ <b>Rav Asi a pose un dilemme a Rabbi Yohanan : Combien</b> de temps <b>doit-on attendre entre</b> manger de la <b>viande et</b> manger du <b>fromage ?</b> Rabbi Yohanan <b>lui a repondu : Pas</b> de temps <b>du tout.</b> La Gemara demande : <b>Est-ce le cas ? Mais Rav Hisda ne dit-il pas :</b> Si quelqu'un <b>mange de la viande,</b> il lui est <b>interdit</b> de manger du fromage</b> immediatement, mais s'il a mange du <b>fromage</b> il lui est <b>permis</b> de manger de la viande</b> sans delai ? <b>Au contraire,</b> Rav Asi a en fait pose a Rabbi Yohanan la question suivante : <b>Combien</b> de temps <b>doit-on attendre entre</b> manger du <b>fromage et</b> manger de la <b>viande ?</b> En reponse a cette question, Rabbi Yohanan <b>lui a dit : Pas</b> temps <b>du tout.</b>
+
+### Partie 7
+Apres avoir cite tangentiellement une declaration du Rav Hisda, la Guemara discute de <b>la</b> question <b>meme. Rav Hisda dit :</b> Si quelqu'un <b>mange de la viande,</b> il lui est <b>interdit</b> de <b>manger du fromage</b> immediatement, car la viande contient des substances grasses qui collent a la bouche et preservent la saveur de la viande. Mais s'il a mange du <b>fromage</b>, il est <b>permis</b> pour lui de <b>manger de la viande</b> sans delai. <b>Rav Aha bar Yosef dit a Rav Hisda :</b> Dans le cas de <b>la viande qui se trouve entre les dents, quelle est</b> la <i>halakha</i> ? Ces restes sont-ils consideres comme de la viande au point qu'on ne peut pas manger de fromage tant qu'ils sont dans la bouche ?
+
+### Partie 8
+En reponse, Rav Hisda <b>lit sur lui</b> le verset suivant : <b>"Alors que la viande etait encore entre leurs dents"</b> (Nombres 11:33). Ce verset indique que meme lorsque la viande est entre les dents, elle est toujours consideree comme de la viande, et que l'on ne peut donc pas prendre de fromage tant que cette viande n'a pas ete enlevee.
+
+### Partie 9
+<b>Mar Ukva a dit : Je suis, par rapport a cette question,</b> comme <b>le vinaigre, fils du vin, par rapport a Pere,</b> c'est-a-dire que ma pratique est inferieure a celle de mon pere. <b>Comme Pere, s'il devait manger de la viande a cette heure, ne mangerait du fromage que demain a cette heure. Mais quant a moi,</b> seulement <b>a ce repas,</b> pendant lequel j'ai mange de la viande, <b>je ne mange pas</b> de fromage ; <b>a un autre repas</b> le meme jour <b>je</b> vais <b>manger</b> du fromage.
+
+### Partie 10
+De meme, <b>Shmuel a dit : Je suis, par rapport a cette</b> autre <b>matiere,</b> comme <b>le vinaigre, fils du vin, par rapport a Pere. Comme Pere patrouillerait sa propriete</b> pour l'examiner <b>deux fois par jour, mais moi je ne patrouille</b> qu'une <b>fois</b> par jour. La Guemara note : A cet egard, <b>Shmuel</b> se conforme <b>a sa ligne de <b>raisonnement</b>, car Shmuel a dit : Celui qui patrouille chaque jour dans sa propriete trouvera une <i>asteira</i></b> piece de monnaie.
+
+### Partie 11
+La Gemara relate que <b>Abaye patrouillait chaque jour sa propriete. Un jour, il rencontra son metayer transportant une charge de bois</b> que le metayer avait l'intention de prendre pour lui-meme. Abaye lui dit : Vers ou</b> emmenes-tu <b>ces buches de bois</b> ? Le metayer <b>lui repondit : A la maison du Maitre.</b> Abaye, qui savait que le metayer avait l'intention de prendre le bois pour lui-meme, <b>lui dit : Les Sages t'ont deja devance</b> lorsqu'ils ont dit qu'il fallait patrouiller regulierement dans sa propriete, et ils t'ont ainsi empeche de voler le bois.
+
+### Partie 12
+La Gemara relate de meme que <b>Rav Asi patrouillait chaque jour dans sa propriete. Il disait : Ou sont toutes ces <i>asteira</i></b> pieces mentionnees <b>par Mar Shmuel ?</b> Cette patrouille ne me rapporte aucun benefice. <b>Un jour, il vit</b> un <b>canal d'eau qui debordait,</b> provoquant une inondation de l'eau <b>sur ses terres. Il enleva sa cape, l'enveloppa et la placa a l'interieur</b> du tuyau pour bloquer l'ecoulement de l'eau. <b>Il</b> a alors <b>eleve</b> sa <b>voix,</b> et des <b>personnes sont venues</b> et ont <b>scelle</b> le trou. Il a dit : <b>Je viens</b> de <b>trouver toutes les pieces de <i>asteira</i></b> mentionnees <b>par Mar Shmuel,</b> car j'aurais subi une grande perte si je n'avais pas patrouille mes champs.
+
+### Partie 13
+§ Apres avoir evoque la maniere de se laver les mains pendant un repas, la Guemara aborde une autre question concernant le lavage des mains. <b>Rav Idi bar Avin dit</b> que <b>Rav Yitzhak bar Ashyan dit :</b> Les <b>premieres eaux,</b> c'est-a-dire le lavage des mains avant de manger du pain, sont <b>une mitzva</b> par la loi rabbinique, <b>mais</b> les <b>dernieres eaux</b>, le lavage des mains a la fin du repas et avant de reciter la Grace apres les repas, sont <b>une obligation,</b> une exigence plus stricte.
+
+### Partie 14
+La Guemara <b>souleve une objection</b> a cette decision issue d'une <i>baraita</i> : les <b>premieres eaux et</b> les <b>finales</b> sont <b>une obligation,</b> alors que les <b>moyennes</b> eaux, entre les plats pendant le repas, sont <b>optionnelles.</b> Apparemment, les premieres eaux sont aussi une obligation, pas une mitzva. La Guemara repond : Bien que les premieres eaux soient en fait une mitzva, la <i>tanna</i> <b>appelle une mitzva une obligation</b> lorsqu'elle est <b>comparee a une exigence facultative</b>.
+
+### Partie 15
+La Guemara analyse <b>la</b> question <b>meme.</b> Le texte integral de la <i>baraita</i> est le suivant : <b>Les premieres eaux et les eaux finales</b> sont <b>une obligation,</b> alors que les <b>eaux intermediaires</b> sont <b>optionnelles.</b> Pour les <b>premieres</b> eaux, <b>on peut se laver soit</b> en versant l'eau <b>dans un recipient ou sur le sol.</b> Mais pour les <b>eaux finales</b>, <b>on se lave uniquement</b> en versant l'eau <b>dans un recipient. Et certains disent</b> une version legerement differente de la <i>baraita</i> : Pour les eaux finales, <b>on ne peut pas se laver</b> en versant l'eau <b>sur le sol.</b>
+
+### Partie 16
+La Guemara intervient : <b>Quelle est</b> la difference <b>entre</b> ces deux versions ? La Gemara repond : <b>Il y a</b> une difference pratique <b>entre elles</b> en ce qui concerne le fait de verser l'eau sur de minces <b>eclats</b> de bois sur le sol. Selon la premiere version, qui exige que l'eau soit versee dans un recipient, on ne peut pas utiliser de telles lamelles a cette fin, alors que selon la deuxieme version, qui interdit simplement de verser l'eau sur le sol, on peut utiliser des lamelles de bois.
+
+### Partie 17
+Le <i>baraita</i> poursuit : En ce qui concerne les <b>premieres eaux, on peut se laver soit avec de l'eau chaude</b> <b>soit avec de l'eau froide</b>. Mais pour les <b>eaux finales</b>, <b>on ne peut se laver qu'avec de l'eau froide</b>, <b>car l'eau chaude</b> <b>adoucit les mains et n'enleve pas la salete</b> de celles-ci. La Guemara analyse la declaration selon laquelle pour les <b>premieres eaux on peut se laver soit avec de l'eau chaude</b> <b>soit avec de l'eau froide</b> : <b>Rav Yitzhak bar Yosef dit</b> que <b>Rabbi Yannai dit : Ils ont enseigne</b> cette <i>halakha</i> <b>seulement</b> dans un cas <b>ou la main ne</b> pas.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Part 1
+§ <b>It was stated</b> that the <i>amora’im</i> disagreed with regard to a deed pertaining to the <b>gift of a person on his deathbed in which</b> it <b>is written</b> that an act of <b>acquisition</b> was also performed. In <b>the study hall of Rav they say in the name of Rav:</b> The person on his deathbed <b>caused</b> the recipient <b>to mount two steeds,</b> i.e., he strengthened the validity of his gift in two different ways. <b>And Shmuel said: I do not know what I should rule with regard to this</b> gift, as it may not be a valid gift.
+
+### Part 2
+The Gemara explains: In <b>the study hall of Rav they say in the name of Rav</b> that <b>he caused him to mount two steeds.</b> On the one hand, <b>it is like</b> the <b>gift of a healthy person,</b> but on the other hand, <b>it is like</b> the <b>gift of a person on his deathbed. It is like</b> the <b>gift of a healthy person, as, if he recovers he cannot retract</b> the gift, because an act of acquisition was performed. <b>It is like</b> the <b>gift of a person on his deathbed, as, if he said</b> that the <b>loan</b> owed to <b>him</b> should be given <b>to so-and-so,</b> the <b>loan</b> owed to <b>him</b> is acquired <b>by so-and-so,</b> whereas a healthy person cannot transfer his right to collect a debt except in the presence of all three parties.
+
+### Part 3
+<b>And Shmuel said: I do not know what I should rule with regard to this</b> gift. <b>Perhaps</b> the fact that an act of acquisition was performed indicates that <b>he resolved to transfer it</b> to him <b>only with a deed.</b> The gift of a person on his deathbed takes effect only after he dies, <b>and a deed is not</b> effective if it is delivered <b>after</b> the <b>death</b> of the owner.
+
+### Part 4
+The Gemara <b>raises a contradiction between</b> this statement <b>of Rav and</b> another statement <b>of Rav, and between</b> this statement <b>of Shmuel and</b> another statement <b>of Shmuel.</b> This is <b>as Ravin sent in the name of Rabbi Abbahu: You should know that Rabbi Elazar sent</b> a ruling <b>to the Diaspora,</b> i.e., Babylonia, <b>in the name of our teacher,</b> Rav: With regard to <b>a person on his deathbed who says: Write</b> a deed <b>and give</b> with it <b>one hundred dinars to so-and-so, and</b> he <b>died</b> before the deed was written, <b>it is not written and given</b> to that person. The reason for this is that <b>perhaps he resolved to transfer</b> the gift to him <b>only with</b> the <b>deed, and a deed is not</b> effective if it is delivered <b>after</b> the <b>death</b> of the owner. <b>And Rav Yehuda says</b> that <b>Shmuel says: The <i>halakha</i></b> is that the deed <b>is written and given</b> to the recipient.
+
+### Part 5
+The Gemara concludes: The first statement <b>of Rav is difficult,</b> as it is apparently contradicted <b>by</b> the other statement <b>of Rav,</b> and the first statement <b>of Shmuel is difficult,</b> as it is apparently contradicted <b>by</b> the other statement <b>of Shmuel.</b>
+
+### Part 6
+The Gemara replies: The apparent contradiction <b>between</b> the first statement <b>of Rav</b> and the other statement <b>of Rav</b> is <b>not difficult. This</b> statement, that the gift is valid, is referring to a case <b>where</b> the gift <b>was acquired from</b> the person on his deathbed by means of an act of acquisition. <b>That</b> other statement is referring to a case <b>where</b> the gift <b>was not acquired from him</b> by means of an act of acquisition, but only by verbal instruction, and therefore the deed is not written after his death. The apparent contradiction <b>between</b> the first statement <b>of Shmuel</b> and the other statement <b>of Shmuel</b> is <b>not difficult,</b> as Shmuel’s statement that the deed is written after his death is referring to a case <b>where</b> the giver was clearly <b>enhancing the</b> legal <b>power</b> of the recipient by providing him with a deed, and he was not making the gift contingent upon the delivery of a deed.
+
+### Part 7
+<b>Rav Naḥman bar Yitzḥak was sitting behind Rava, and Rava was sitting before Rav Naḥman,</b> and Rava <b>asked</b> Rav Naḥman: <b>Did Shmuel</b> actually <b>say</b> that <b>perhaps</b> the fact that an act of acquisition was performed indicates that the person on his deathbed <b>resolved to transfer</b> ownership of the gift <b>only with</b> the <b>deed, and</b> therefore the gift is invalid, as <b>a deed is not</b> effective if it is delivered <b>after</b> the <b>death</b> of the owner? <b>But doesn’t Rav Yehuda say</b> that <b>Shmuel says:</b> With regard to <b>a person on his deathbed who wrote</b> a deed granting <b>all of his property to others, even though</b> they <b>performed an act of acquisition,</b> if <b>he recovers he can retract</b> his gift?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

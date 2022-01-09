@@ -1,0 +1,51 @@
+
+### Part 1
+Conversely, if two people engaged in <b>two joint ventures and</b> recorded both in <b>one document,</b> this will be to <b>the detriment of the borrower.</b> They calculate the profits and losses of the two transactions together, and therefore as long as the profits of one joint venture are greater than the losses of the other, the investor will not have to suffer a loss.
+
+### Part 2
+<b>And Rava says: This one, who receives</b> merchandise for <b>a joint venture from another, and lost</b> money in the process, and then <b>made the effort</b> to <b>replace</b> the loss <b>but did not inform</b> the investor that he had done so, he <b>may not</b> later <b>say to</b> the investor: <b>Bear this</b> original <b>loss together with me.</b> This is <b>because</b> the investor can <b>say to him:</b> It is <b>for this</b> reason <b>that you made the effort to replace</b> the loss, <b>so that you should not be called a loser of ventures.</b> You wanted to preserve your reputation in order to improve your future business prospects but did not intend to be reimbursed.
+
+### Part 3
+<b>And Rava said:</b> With regard to <b>these two</b> managers <b>who engaged</b> in <b>a joint venture together,</b> i.e., they both received merchandise together from an investor, <b>and profited</b> from it, <b>and one</b> of them <b>said to the other: Come, let</b> us <b>divide</b> the profits and terminate the venture, the <i>halakha</i> is as follows: <b>If the other said to him: Let</b> us wait and <b>profit more, the <i>halakha</i> is that</b> the second manager indeed <b>prevents</b> the first from executing his request. <b>And if,</b> instead of requesting the final division of the profits and the termination of the venture, one <b>said to</b> the other: At least <b>give me half the profits,</b> the latter can <b>say to him: The profit</b> is <b>liened to the principal,</b> meaning that the profits and the principal are considered a single unit, and we can earn much more if we do not set aside the profits.
+
+### Part 4
+Rava continues: <b>And if</b> one <b>says to</b> the other: <b>Give me half the profits and half the principal,</b> the latter can <b>say to him: The</b> merchandise for <b>the joint venture</b> is <b>liened to both</b> of us. As we are equal partners in this venture, you cannot force me to divide it. <b>And if</b> one <b>says to</b> the other: <b>Let us divide the profits and divide the principal, and if you suffer a loss</b> as a result, <b>I will bear</b> the loss <b>with you,</b> his partner can <b>say to him: No,</b> I do not desire to do that, since <b>the luck of two</b> people is <b>better.</b> Consequently, I want to continue working together. In all these cases, the claims of the second manager are accepted.
+
+### Part 5
+<strong>MISHNA:</strong> With regard to <b>one who received a field from another</b> to cultivate <b>and did not want to weed</b> it, <b>and</b> he then <b>said to</b> the owner: <b>What do you care</b> if I neglect the land? You will not suffer a loss <b>since I</b> will <b>give you</b> the amount of produce I owe you for <b>your</b> granting me <b>tenancy,</b> regardless of the state of the field. Nevertheless, <b>they do not listen to him.</b> The reason is <b>because</b> the owner of the land <b>can say to him: Tomorrow you</b> will <b>depart from</b> the field, <b>and it</b> will <b>grow weeds for me,</b> which will remain there and disrupt the yield of the field for years to come.
+
+### Part 6
+<strong>GEMARA:</strong> <b>If</b> the cultivator <b>said to</b> the owner: <b>Afterward,</b> when I have reaped the field, <b>I will plow</b> it and remove the weeds, the owner can <b>say to him: I want superior wheat,</b> not wheat that sprouted among weeds. <b>And if he says to</b> the owner: <b>I will buy</b> good <b>wheat for you from the market,</b> the owner can <b>say to him: I want wheat from my land. And if he says to</b> the owner: <b>I will weed for you</b> according to the <b>measure of your portion,</b> but no more, the owner can <b>say to him: You are giving a bad name to my land,</b> as everyone will see that it is full of weeds.
+
+### Part 7
+The Gemara asks: <b>But didn’t we learn</b> in the mishna that the reason they do not listen to him is: <b>Because it will grow weeds for me,</b> indicating that these other claims are not accepted? <b>Rather,</b> the explanation must be <b>because</b> the owner can <b>say to him: The seed that fell has fallen.</b> In other words, even if the cultivator later plows the land and uproots all of the weeds, their seeds remain in the ground and will sprout in the following years.
+
+### Part 8
+<strong>MISHNA:</strong> With regard to <b>one who receives a field from another</b> to cultivate <b>and it did not produce</b> a sufficient crop to cover the expenses of its upkeep, <b>if it has</b> enough produce <b>to form a pile</b> he is <b>obligated to take care of it</b> and give the owner his share. <b>Rabbi Yehuda says: What fixed</b> measure is <b>a pile?</b> There is no inherent measure of produce that is considered significant, as it all depends on the size of the plot of land in question. <b>Rather,</b> the relevant issue is <b>whether it has</b> a crop <b>equivalent to</b> the measure of seeds for <b>dropping</b> in a field in order to sow it.
+
+### Part 9
+<strong>GEMARA:</strong> <b>The Sages taught:</b> With regard to <b>one who receives a field from another</b> to cultivate <b>and it did not produce</b> a sufficient crop, <b>if it has</b> enough produce <b>to form a pile</b> he is <b>obligated to take care of it</b> and provide the owner with his share. This is <b>because this</b> is what <b>he writes to him</b> in the cultivator’s contract: <b>I will stand and plow and plant and reap and bind and thresh and winnow and establish a pile before you, and you will come and take half, and I, for my work and expenses,</b> will take the other <b>half.</b> Based on this contract, if there is sufficient produce to form a pile, the cultivator must fulfill the terms of the agreement.
+
+### Part 10
+The Gemara asks: <b>And how much</b> is the amount of: Enough <b>to form a pile?</b> How large must the pile be? <b>Rabbi Yosei, son of Rabbi Ḥanina, said:</b> Enough <b>for the winnowing shovel to stand in it.</b> If the pile is big enough that the shovel can be placed there and stand independently without falling, it is considered a sufficiently large pile. <b>A dilemma was raised before</b> the Sages: With regard to <b>a winnowing shovel that protrudes from this side to that side,</b> i.e., whose edges extend beyond the pile, <b>what</b> is the <i>halakha</i>? Is this considered a pile in which a winnowing shovel can stand or not?
+
+### Part 11
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from that which <b>Rabbi Abbahu said:</b> This <b>was explained to me by Rabbi Yosei, son of Rabbi Ḥanina: Any</b> pile in <b>which the blade of</b> the winnowing shovel <b>cannot see the face of the sun</b> because it is covered by the pile is considered a significant one. It <b>was stated</b> that the <i>amora’im</i> engaged in a dispute concerning this issue: <b>Levi says:</b> This pile must be <b>three <i>se’a</i></b> in size, while the Sages <b>of the school of Rabbi Yannai say: Two <i>se’a</i>. Reish Lakish says: The two <i>se’a</i></b> of <b>which they spoke</b> is <b>without</b> deducting <b>the expenses.</b> Consequently, if he has paid the expenses and a profit of two <i>se’a</i> remains, in that case alone it is considered worthwhile to work the field. But if it cannot produce this amount, the cultivator may neglect the land if he so chooses.
+
+### Part 12
+The Gemara cites a dispute from a different area of <i>halakha</i> that discusses a similar measurement: <b>We learned</b> in a mishna <b>there</b> (<i>Okatzin</i> 3:6) concerning the <i>halakhot</i> of food impurities: With regard to <b>unruly olives and grapes, Beit Shammai</b> hold that they become <b>susceptible to ritual impurity,</b> as they are considered food, <b>and Beit Hillel</b> hold that they do <b>not</b> become <b>susceptible to ritual impurity</b> because they are of inferior quality and are unfit for consumption.
+
+### Part 13
+The Gemara asks: <b>What</b> is the meaning of <b>unruly [<i>peritzei</i>] olives? Rav Huna said: Wicked olives,</b> i.e., olives that barely produce any oil. <b>Rav Yosef said: And what is the verse</b> from which it is derived? <b>“Also the children of the wicked [<i>peritzei</i>] among your people shall raise themselves up to establish the vision but they shall stumble”</b> (Daniel 11:14). This verse indicates that the word <i>peritzei</i> means wicked. <b>Rav Naḥman bar Yitzḥak said</b> that the meaning of this word can be derived <b>from here: “If he beget a son that is a robber [<i>paritz</i>], a shedder of blood”</b> (Ezekiel 18:10).
+
+### Part 14
+The Gemara asks: <b>And how much</b> is the amount of <b>unruly olives?</b> When are olives classified as unruly? <b>Rabbi Elazar says:</b> They are classified as such if it is possible to extract only <b>four <i>kav</i></b> of oil <b>from</b> one press of the <b>beam</b> when the fruits are brought in together to the olive press. <b>The</b> Sages of the <b>school of Rabbi Yannai say:</b> They are classified as such if it is possible to extract only <b>two <i>se’a</i></b> of oil <b>from</b> one press of the <b>beam.</b>
+
+### Part 15
+The Gemara comments: <b>And</b> these Sages <b>do not disagree</b> with regard to the <i>halakha</i> itself, as the difference between their rulings stems from divergent local practices. <b>This</b> statement of Rabbi Elazar is referring <b>to a place where</b> one <b><i>kor</i></b> is <b>brought into the press,</b> from which he must be able to extract four <i>kav</i>, whereas <b>that</b> <i>halakha</i> of the school of Rabbi Yannai is referring <b>to a place where three <i>kor</i></b> are <b>brought into the baskets of the</b> oil <b>press.</b> Since they bring in three times the amount of fruit, it must produce exactly three times as much oil.
+
+### Part 16
+<b>The Sages taught:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

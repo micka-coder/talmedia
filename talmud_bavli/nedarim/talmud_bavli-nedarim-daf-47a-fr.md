@@ -1,0 +1,15 @@
+
+### Partie 1
+§ La mishna enseigne : En ce qui concerne celui <b>qui dit a un autre :</b> Entrer dans ta maison est <i>konam</i> pour moi, et que le proprietaire meurt ou vend la maison, l'interdiction est levee. Mais s'il dit : Entrer dans cette maison est <i>konam</i> pour moi, il reste interdit d'entrer dans la maison meme apres que le proprietaire decede ou vende la maison. <b>Avimi souleve un dilemme :</b> Si le proprietaire d'une maison a dit : <b>Entrer dans cette maison est <i>konam</i> pour toi,</b> puis <b>il est mort ou l'a vendue a un autre, quel est</b> le <i>halakha</i> ? Disons-nous qu'une <b>personne</b> peut <b>rendre un objet en sa possession interdit</b> meme <b>pendant</b> un temps <b>apres qu'il aura quitte sa possession, ou non ?</b>
+
+### Partie 2
+<b>Rava a dit : Venez</b> et <b>entendez</b> une preuve tiree d'une mishna (<i>Bava Kamma</i> 108b""109a) : Si <b>quelqu'un dit a son fils : Beneficier de moi est <i>konam</i> pour toi, et meurt,</b> le fils herite encore <b>de <b>lui.</b> Si, cependant, le pere declare explicitement que le benefice est interdit a la fois <b>de son vivant et apres sa mort, et meurt,</b> le fils <b>n'herite pas</b> de <b>lui.</b> Rava suggere : <b>Conclure de</b> la mishna qu'une <b>personne</b> peut <b>rendre interdit</b> un objet en sa possession meme <b>pendant</b> un temps <b>apres qu'il aura quitte sa possession.</b> La Gemara note : <b>Conclure de</b> la mishna qu'il en est ainsi.
+
+### Partie 3
+§ <b>On a appris</b> dans une mishna <b>la</b> (57a) : Si l'on dit : <b>Ce produit est <i>konam</i> sur moi,</b> ou : <b>C'est <i>konam</i> sur ma bouche,</b> ou : <b>C'est <i>konam</i> pour ma bouche,</b> il lui est <b>interdit</b> de manger meme <b>ses remplacements,</b> s'ils sont negocies ou echanges, <b>et</b> tout ce qui en <b>genere</b> s'il est replante.
+
+### Partie 4
+<b>Rami bar Hama souleve un dilemme :</b> Si l'on <b>dit : Ce produit est <i>konam</i> pour untel et untel, quelle est</b> la <i>halakha</i> <b>en ce qui concerne leurs remplacements ? Dit-on : En ce qui le concerne, puisqu'une personne peut rendre le produit d'un autre interdit pour elle-meme,</b> bien qu'il ne soit pas actuellement en sa possession, de meme, <b>une personne peut rendre interdite pour elle-meme une entite qui n'est pas</b> encore <b>venue au monde ?</b> Est-ce pour cela que le produit de remplacement et tout ce qui en provient lui est interdit, meme s'il n'existait pas encore lorsqu'il a prononce le vœu ? Si oui, <b>Par rapport a autrui, puisqu'une personne ne peut rendre le produit d'autrui interdit a autrui,</b> c'est-a-dire a ce proprietaire lui-meme, de meme <b>on ne peut rendre interdite a autrui une entite qui n'est pas</b> encore <b>venue au monde.</b> Les produits de remplacement lui seraient donc permis.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

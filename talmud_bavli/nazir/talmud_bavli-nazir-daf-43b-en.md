@@ -1,0 +1,27 @@
+
+### Part 1
+§ <b>Rav Ḥisda said</b> that <b>Rav said:</b> If <b>the head of his father,</b> or any other relative for whom a priest becomes impure, <b>was severed, he may not become impure to</b> bury <b>him. What is the reason</b> for this? <b>The verse states:</b> “None shall become impure for the dead among his people, except…<b>for his father”</b> (Leviticus 21:1–2), which indicates that this applies <b>when</b> his father <b>is whole, and not when he is lacking. Rav Hamnuna said to</b> Rav Ḥisda: <b>If that is so,</b> then in a case where one <b>was walking in the valley [<i>pakta</i>] of Aravot,</b> a place frequented by bandits, <b>and robbers severed his head,</b> will you <b>also</b> say that his son the priest <b>does not become impure to</b> bury <b>him</b> because he is not whole?
+
+### Part 2
+Rav Ḥisda <b>said to him:</b> Do <b>you speak</b> of <b>a corpse with no one to bury it [<i>met mitzva</i>]?</b> This <i>halakha</i> certainly does not apply to a case of this kind. For <b>now</b> consider, if <b>one can say</b> that <b>to</b> bury <b>others,</b> i.e., non-relatives, <b>he is obligated</b> to become ritually impure, as even priests and nazirites must become impure to bury an unattended corpse, then <b>with regard to</b> a <i>met mitzva</i> who is <b>his father</b> is it <b>not all the more so</b> the case that he must become impure to bury him even if his head is severed?
+
+### Part 3
+The Gemara asks: <b>And is this a <i>met mitzva</i>? But isn’t it taught</b> in a <i>baraita</i>: <b>Which is a <i>met mitzva</i></b> for whom a priest must become impure? It is <b>anyone who does not have</b> people <b>to bury him</b> apart from this priest. If the corpse is in a place where if <b>he</b> would <b>call, others would answer him, that is not</b> considered <b>a <i>met mitzva</i>. And</b> if this dead father <b>has a son</b> who was with him, it means the father is not classified as a <i>met mitzva</i>, and therefore his son the priest must ensure that others tend to his burial, without doing so himself. The Gemara answers: <b>Since</b> he was <b>walking along the way, he is considered like one who does not have</b> people <b>to bury</b> him.
+
+### Part 4
+The Gemara <b>raises an objection</b> against Rav Ḥisda’s opinion. The superfluous term “for her” in the verse “And for his sister a virgin who is near to him, who has no husband, <b>for her he becomes impure”</b> (Leviticus 21:3) teaches that it is <b>to</b> bury <b>her</b> in her whole state that <b>he becomes impure, but he does not become impure to</b> bury <b>her limbs.</b> If a limb was severed from her during her lifetime he does not tend to it, <b>because he may not become impure to</b> bury <b>a limb</b> severed <b>from</b> one of his <b>living</b> relatives, including <b>that of</b> his <b>father. However, he may search for a bone that is a barley-grain-bulk.</b> If he was already impure from his father’s body, he may search for and bury a bone that was detached from the corpse, even if it is large enough to impart impurity itself.
+
+### Part 5
+The Gemara asks: <b>What is</b> the meaning of: <b>He may search for a bone that is a barley-grain-bulk? Isn’t this to say that if</b> the deceased father <b>is lacking a small</b> part, i.e., a single bone, his son the priest becomes impure to bury him? This would contradict Rav Ḥisda’s statement in the name of Rav that he becomes impure to bury his father only if he is whole.
+
+### Part 6
+The Gemara answers: <b>No,</b> this presents no difficulty, as <b>that</b> <i>baraita</i> <b>is</b> in accordance with the opinion of <b>Rabbi Yehuda. As it is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says:</b> “For her he becomes impure” (Leviticus 21:3), this indicates that <b>to</b> bury <b>her he becomes impure but he does not become impure to</b> bury <b>her limbs, as he does not become impure to</b> bury <b>a limb</b> severed <b>from</b> one of his <b>living</b> relatives, including <b>that of</b> his <b>father. However, he does become impure to</b> bury <b>a limb from his dead father.</b> Rav Ḥisda disagrees with the opinion of Rabbi Yehuda and rules in accordance with the Rabbis, who maintain that a priest may become impure only to bury his relative’s whole body.
+
+### Part 7
+The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i> that <b>Rav Kahana, son of Rabbi Eliezer ben Ya’akov,</b> said: The words “for her he becomes impure” (Leviticus 21:3) indicate that <b>to</b> bury <b>her he becomes impure</b> when she is whole, <b>but he does not become impure to</b> bury her <b>limbs.</b> This serves to <b>exclude an olive-bulk</b> of solid material <b>from a corpse, and an olive-bulk of fluid</b> from a corpse, <b>and a full spade of dust</b> from a corpse.
+
+### Part 8
+One <b>might</b> have thought that <b>he may not become impure for a spine and a skull, or for most of the skeleton or most of the number</b> of bones from his sister’s corpse. Therefore, it is <b>written</b> at the beginning of this passage dealing with the impurity of priests: “Speak to the priests, the sons of Aaron, <b>and say to them”</b> (Leviticus 21:1). The repetition of “speak” and “say” indicates that <b>the verse added a different</b> form of <b>impurity</b> permitted to a priest.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

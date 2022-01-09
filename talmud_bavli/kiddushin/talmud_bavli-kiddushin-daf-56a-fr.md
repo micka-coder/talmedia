@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>Et si l'on a achete</b> un animal <b>intentionnellement,</b> sans se rendre compte qu'il utilisait l'argent de la seconde dime, <b>l'argent retourne a sa place,</b> ce qui signifie qu'il est considere comme une transaction erronee et est nul, car l'acheteur prefere apporter l'argent de la seconde dime a Jerusalem plutot que de se deplacer avec un animal a apporter en offrande. S'il l'a achete <b>intentionnellement,</b> l'animal <b>est eleve et mange dans</b> son <b>lieu propre,</b> c'est-a-dire a Jerusalem. <b>Rabbi Yehuda a dit : Dans quel</b> cas <b>cette declaration est-elle dite ? </b> Elle est dite <b>en ce qui concerne</b> celui qui a agi <b>avec intention, et qui a achete</b> l'animal des le depart dans le but d'un sacrifice de paix,</b> et qui, de toute facon, devait amener l'animal a Jerusalem. <b>Mais en ce qui concerne</b> celui qui a agi <b>avec intention de retirer l'argent du second-tithe</b> de son etat consacre <b>a un etat desacralise</b>, <b>que son acte ait ete <b>involontaire,</b> auquel cas il s'agit d'une transaction erronee, ou <b>intentionnel, l'argent retourne a sa place.</b>
+
+### Partie 2
+La Guemara remet en question cette affirmation : <b>Mais n'avons-nous pas appris</b> dans la mishna que <b>Rabbi Yehuda dit :</b> Si la deuxieme dime a ete utilisee <b>intentionnellement, il a fiance</b> la femme avec elle, et les fiancailles, qui sont un type d'acquisition, sont effectives ? <b>Rabbi Elazar a dit :</b> La <i>halakha</i> de la mishna est basee sur l'hypothese que <b>la femme sait que l'argent de la seconde dime n'est pas desacralise par son</b> acceptation des fiancailles, <b>et</b> c'est comme si elle avait accepte que <b>elle</b> monte et le mange a Jerusalem.</b>
+
+### Partie 3
+<b>Rabbi Yirmeya s'oppose a cela : Mais</b> il existe des cas d'<b>animal non casher, d'esclaves ou de terres,</b> a propos desquels <b>une personne sait que l'argent de second ordre n'est pas desacralise en</b> etant utilise pour les acheter, et nous avons appris</b> dans une mishna (<i>Maâser Sheni</i> 1:7) : <b>On ne peut pas acheter un animal non casher, des esclaves ou des terres avec de l'argent de second tith, meme a Jerusalem. Et si on les a achetes</b>, <b>il doit manger</b> d'autres aliments <b>correspondant a leur</b> valeur. Il doit prendre une somme d'argent equivalente et l'utiliser pour desacraliser l'argent en possession du vendeur, apres quoi il procede a l'apport de cet argent a Jerusalem et l'utilise pour acheter de la nourriture, qu'il consommera ensuite. Dans ce cas, le vendeur est aussi vraisemblablement conscient que l'argent est la seconde dime et qu'il devra lui-meme l'apporter a Jerusalem, comme cela a ete presume dans le cas de la femme fiancee, alors pourquoi le <i>halakha</i> n'est-il pas le meme ?
+
+### Partie 4
+<b>Il faut plutot penser que <b>ici,</b> dans le cas de la mishna, <b>nous avons affaire a une femme devouee a l'observance meticuleuse des mitzvot, notamment les <i>halakhot</i> de purete rituelle, <i>teruma</i>, et de la dime [<i>havera</i>], qui connait</b> les lois de la dime, et l'accepte pour les fiancailles en etant consciente qu'elle doit l'apporter a Jerusalem. Une personne ordinaire, cependant, n'est pas tres au fait de ces <i>halakhot</i>, ainsi dans le cas de l'achat d'un animal, le vendeur pense que l'argent de la seconde dime a ete desacralise par l'achat de l'animal non cachere.
+
+### Partie 5
+<b>Le Maitre a dit : Si on les a effectivement achetes</b>, <b>on doit manger</b> d'autres aliments <b>correspondant a leur</b> valeur. La Guemara demande : <b>Mais pourquoi</b> il devrait faire cela ? Pourquoi ne pas dire que <b>l'argent doit retourner a sa place,</b> tout <b>comme</b> etait la decision <b>la, </b> comme l'a dit Rabbi Yehuda a propos de celui qui a agi avec l'intention de desacraliser la deuxieme dime, ou le vendeur a ete penalise pour avoir acquiesce a la vente ?
+
+### Partie 6
+<b>Shmuel dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

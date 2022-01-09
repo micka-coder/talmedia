@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And did Rav</b> actually <b>say</b> that the legal status of a Canaanite <b>slave is like</b> that of <b>real estate? But doesn’t Rav Daniel bar Rav Ketina say</b> that <b>Rav says: One who seizes another’s</b> Canaanite <b>slave and performs labor with him is exempt</b> from paying the master for the labor of the slave? <b>And if it enters your mind</b> to say that, in Rav’s opinion, the legal status of <b>a slave is like</b> that of <b>real estate, why</b> is he <b>exempt</b> from paying? A slave, like real estate, <b>is</b> always <b>in the possession of his owner,</b> wherever he might be. Therefore, the one who seized him did not steal the slave, in which case he could simply return him. Rather, he made use of a slave belonging to another and should be liable to pay for the master’s loss of the slave’s labor.
+
+### Part 2
+The Gemara answers: <b>With what are we dealing here?</b> We are dealing with a case where the one who seized the slave forced him to perform labor when it was <b>not during</b> regular <b>working hours.</b> Consequently, he did not prevent the slave from performing labor for his master. Since the owner did not incur any loss, the one who seized the slave is not obligated to pay for the benefit that he derived from the slave. This is <b>like that</b> message <b>that Rabbi Abba sent to Mari bar Mar: Ask Rav Huna</b> concerning <b>one who resides in another’s courtyard without</b> the owner’s <b>knowledge: Does he need to pay him rent, or does he not need to pay him rent? And they sent to him</b> in response: <b>He does not need to pay him rent,</b> since the owner of the property did not incur any monetary loss.
+
+### Part 3
+The Gemara rejects this comparison: <b>How can</b> these cases <b>be compared? Granted, there,</b> in the case of a courtyard, <b>whether</b> the reasoning for that <i>halakha</i> is <b>according to the one who says: An inhabited house</b> remains <b>habitable,</b> and it is therefore <b>satisfactory for</b> the owner of the property to have someone residing in his courtyard, or <b>whether</b> the reasoning is <b>according to the one who says</b> that since the verse states: “In the city is left desolation, <b>and the gate is smitten unto ruin”</b> (Isaiah 24:12), which indicates that a desolate house will fall into ruin but an inhabited house will be maintained, either way it is satisfactory <b>for</b> the owner that one stay in his courtyard. Consequently, the one who resides there need not pay rent.
+
+### Part 4
+<b>But here,</b> in the case of a slave, <b>is it satisfactory for him that his slave be weakened</b> by performing labor for another? The Sages <b>say: Indeed, it is satisfactory for him that</b> the work habits of <b>his slave not be undone.</b>
+
+### Part 5
+The Gemara records a related incident. Members of the <b>house of Rav Yosef bar Ḥama would,</b> with his approval, <b>seize the slaves of people who owed him money, and they would work them</b> against the will of the owners. <b>Rabba, son of</b> Rav Yosef bar Ḥama, <b>said to him: What is the reason that</b> the <b>Master does this,</b> i.e., seizes and uses these slaves? Rav Yosef bar Ḥama <b>said to him: As Rav Naḥman says: A slave is not worth</b> even <b>the bread in his stomach.</b> When the slaves work for me and eat in my home, I am not causing the owners any monetary loss. Rav Yosef bar Ḥama’s son <b>said to him: I will say that Rav Naḥman said</b> this with regard to specific slaves, <b>such as his slave Daru, who</b> only <b>dances among</b> the wine <b>barrels [<i>kuvei</i>]</b> and does not perform any labor. <b>All</b> other <b>slaves perform labor,</b> and their labor is worth more than their board.
+
+### Part 6
+Rav Yosef bar Ḥama <b>said to him: I hold in accordance with</b> the opinion of <b>Rav Daniel, as Rav Daniel bar Rav Ketina says</b> that <b>Rav says: One who seizes another’s slave and performs labor with him is exempt</b> from paying the master for the labor of the slave. <b>Apparently,</b> it is <b>satisfactory for</b> the master <b>that</b> the work habits of <b>his slave not be undone.</b>
+
+### Part 7
+Rabba <b>said to him: This statement</b> of Rav Daniel applies <b>when</b> the one who seizes the slave <b>is not owed money</b> by the owner of the slave. But <b>since the Master is owed money by</b> the owner of the slave, this <b>has</b> the <b>appearance of interest, as Rav Yosef bar Minyumi says</b> that <b>Rav Naḥman says: Although</b> the Sages <b>said</b> that <b>one who resides in another’s courtyard without his knowledge does not need to pay him rent,</b> if one <b>lent</b> money to another, <b>and</b> then <b>resided in the courtyard of another,</b> i.e., that of his creditor, <b>he needs to pay him rent,</b> to avoid the appearance of interest. Rav Yosef <b>bar Ḥama said to him: I retract</b> my opinion, and will no longer seize the slaves of my debtors.
+
+### Part 8
+It <b>was stated:</b> In the case of <b>one who seizes another’s ship and performs labor with it,</b> what payment can the ship’s owner claim? <b>Rav says</b> that he may choose: If he <b>wishes,</b> he can <b>take</b> the cost of the ship’s <b>rent,</b> and if he <b>wishes,</b> he can <b>take</b> the amount by which the value of the ship was <b>diminished</b> by being used for this labor, whichever amount is larger. <b>And Shmuel says: He</b> can <b>take only</b> the amount by which the value of the ship was <b>diminished.</b>
+
+### Part 9
+<b>Rav Pappa said:</b> They <b>do not disagree.</b> They were addressing different cases: <b>This,</b> i.e., Rav’s statement, is referring to a ship <b>that is commonly</b> available <b>for rental. That,</b> i.e., Shmuel’s statement, is referring to a ship that <b>is not commonly</b> available <b>for rental. And if you wish, say</b> instead: <b>This and that</b> statement are both referring to a ship <b>that is commonly</b> available <b>for rental. This,</b> Rav’s statement, is referring to a case <b>where</b> the one who seized the ship <b>descended,</b> i.e., took possession, <b>with the intention of renting</b> the ship. He pays for the rental. <b>That,</b> Shmuel’s statement, is referring to a case <b>where</b> the one who seized the ship <b>descended with the intention of robbery,</b> to use it without paying. He is regarded as a robber and pays only the amount by which its value was diminished.
+
+### Part 10
+§ The mishna teaches: If one <b>robbed</b> another of <b>a coin and it cracked,</b> he pays the value of the coin at the time of the robbery, as he has acquired it due to its change. But if the coin was invalidated, he says: That which is yours is before you. Since this is not a significant change, he has not acquired it. The Sages disagree with regard to the explanation of this <i>halakha</i>. <b>Rav Huna says:</b> When the mishna states that the coin <b>cracked,</b> it means that it <b>actually cracked;</b> when it says that the coin was <b>invalidated,</b> it means that it was <b>invalidated by the government</b> and is therefore unfit for use.
+
+### Part 11
+<b>And Rav Yehuda says:</b> A coin <b>invalidated by the government is</b> the same as a coin that is <b>cracked,</b> because its complete loss of value is a significant change. <b>But what are the circumstances</b> of the mishna, in which a coin that was <b>invalidated</b> is not considered changed? It is a case <b>where</b> a coin <b>was invalidated</b> by the government in <b>this province,</b> and the residents there can no longer use it, <b>but</b> the coin still <b>circulates</b> and is in use <b>in another province.</b>
+
+### Part 12
+The Gemara clarifies Rav Huna’s opinion. <b>Rav Ḥisda said to Rav Huna: According to your</b> opinion, <b>that you said</b> that the term <b>invalidated</b> means that the coin was <b>invalidated</b> by the <b>government,</b> and the mishna rules that in that case the robber can return it as is, there is a difficulty. <b>But</b> what of the cases in the mishna of one who robbed another of <b>produce and it rotted</b> or one who robbed another of <b>wine and it fermented, which are similar to</b> a coin that was <b>invalidated by the government,</b> since none of these items are fit for use, <b>and</b> the mishna <b>teaches</b> that the robber <b>pays according to</b> their value at <b>the time of the robbery</b> because they underwent a change? Why would the <i>halakha</i> be different in the case of a coin that was invalidated by the government?
+
+### Part 13
+Rav Huna <b>said to him: There,</b> in the cases of produce and wine, <b>its taste and its smell changed. Here,</b> in the case of the coin that was invalidated, the coin itself <b>did not change.</b>
+
+### Part 14
+The Gemara clarifies Rav Yehuda’s opinion. <b>Rava said to Rav Yehuda: According to your</b> opinion, <b>that you said</b> that a coin that was <b>invalidated by the government is</b> the same as one that <b>cracked,</b> and the mishna rules that in that case the robber pays according to its value at the time of the robbery, there is a difficulty. <b>But</b> what of the case in the mishna of one who robbed another of <b><i>teruma</i> and it became impure, which is similar to</b> a coin that was <b>invalidated by the government, and</b> the mishna <b>teaches</b> that the robber <b>says to</b> the robbery victim: <b>That which is yours is before you.</b>
+
+### Part 15
+Rav Yehuda <b>said to him: There,</b> in the case of <i>teruma</i>, <b>the damage is not evident,</b> since it is impossible to tell the difference between pure and impure items. <b>Here,</b> in the case of the coin, <b>the damage is evident,</b> since one can tell by looking at it that it is the type of coin that was invalidated.
+
+### Part 16
+§ With regard to a coin that was invalidated, it <b>was stated</b> that there was a dispute concerning the question: In the case of <b>one who lends</b> money to <b>another on</b> the condition that he repay the loan using a particular kind of <b>coin, and that coin becomes invalidated, Rav says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

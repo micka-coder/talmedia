@@ -1,0 +1,75 @@
+
+### Partie 1
+<b>Du fait <b>qu'il a declare</b> que quatre ou cinq animaux peuvent <b>toujours</b> etre achetes, <b>concluez-en</b> que la declaration de Rabbi Yehuda <b>se refere a cette derniere clause, et</b> sa declaration est une <b>clemence.</b> La Guemara affirme : <b>Concluez-en</b> que Rabbi Yehuda a voulu que sa declaration soit une clemence.
+
+### Partie 2
+§ La mishna enseigne : <b>Et</b> de meme, on ne peut <b>pas</b> acheter du bois et des produits <b>des gardiens de produits.</b> La Guemara relate que <b>Rav a achete des branches de vigne a un metayer. Abaye lui a dit : Mais n'avons-nous pas appris</b> dans la mishna : <b>Et</b> de la meme maniere, on ne peut <b>pas</b> acheter <b>du bois et des produits a des gardiens de produits ?</b> La meme <i>halakha</i> devrait s'appliquer a l'egard d'un metayer, qui, comme un gardien, n'est pas le proprietaire du produit. Le Rav <b>lui dit : Cette declaration ne s'applique</b> qu'a l'egard d'un guetteur, car il n'a pas</b> de part <b>du tout dans la terre elle-meme. Mais</b> en ce qui concerne <b>un metayer, qui a</b> une part <b>dans celle-ci, dis : Il vend</b> des marchandises <b>de sa propre</b> part du terrain. Comme il est plausible que le metayer vende sa propre propriete, il est permis de la lui acheter.
+
+### Partie 3
+La Guemara cite une <i>baraita</i> qui discute de l'achat d'objets aupres de gardiens : <b>Les Sages ont enseigne</b> (<i>Tosefta</i> 11:8) : En ce qui concerne les <b>gardiens de produits, on peut leur acheter</b> des produits <b>quand ils sont assis et vendent</b> les produits, <b>et que les paniers sont devant eux et que les balances [<i>veturtanei</i>] sont devant eux,</b> car dans ces circonstances, il est raisonnable de supposer qu'ils ne vendent pas de la marchandise volee. <b>Mais</b> dans <b>tous</b> les cas <b>ou ils ont dit</b> a l'acheteur : <b>Cachez</b> votre achat, il est <b>interdit</b> d'acheter chez eux, car il y a de bonnes raisons de soupconner que la marchandise est volee. Le <i>baraita</i> ajoute : <b>On peut acheter aupres</b> d'un gardien <b>de l'entree du jardin, mais pas de l'arriere du jardin,</b> car si les produits sont vendus de maniere discrete, on peut craindre qu'ils aient ete voles.
+
+### Partie 4
+§ Apres avoir discute de la <i>halakha</i> relative a un vol presume, la Guemara procede a l'examen de la <i>halakha</i> relative a l'achat d'articles a un voleur connu. <b>Il a ete dit :</b> En ce qui concerne <b>un voleur, a partir de quand est-il permis d'acheter</b> des articles <b>de lui ? Le Rav dit :</b> Il est interdit <b>jusqu'a ce que la majorite</b> de ses biens proviennent <b>de ses</b> propres biens, c'est-a-dire des biens qu'il a obtenus legalement. <b>Et Shmuel dit :</b> Il est permis d'acheter des objets a un voleur connu <b>meme</b> si seulement <b>une minorite</b> de ses possessions proviennent de <b>ses</b> biens propres.
+
+### Partie 5
+La Guemara note que <b>Rav Yehuda a instruit Adda,</b> son <b>attendant, conformement a la declaration de celui qui dit :</b> Il est permis d'acheter des objets a un voleur connu <b>meme</b> si seulement <b>une minorite</b> de ses biens proviennent de <b>ses</b> propres biens, c'est-a-dire conformement a l'avis de Shmuel.
+
+### Partie 6
+En ce qui concerne la <b>propriete</b> d'un <b>informateur,</b> c'est-a-dire celui qui informe les gentils de l'endroit ou se trouve la propriete d'un autre, facilitant son vol ou son mauvais usage, il y a un differend entre <b>Rav Huna et Rav Yehuda. Le premier dit :</b> Il est <b>permis de le detruire physiquement, et le second dit :</b> Il est <b>interdit de le detruire physiquement.</b>
+
+### Partie 7
+La Guemara developpe : Le raisonnement de <b>celui qui dit</b> qu'il est <b>permis de le detruire physiquement</b> est que les <b>biens d'un informateur ne devraient pas</b> etre soumis a une <b>stringente</b> <i>halakha</i> <b>que son corps.</b> Puisqu'il est permis de blesser physiquement ou meme de tuer un informateur, il serait deraisonnable d'interdire la destruction de ses biens. <b>Et</b> le raisonnement de <b>celui qui dit</b> qu'il est <b>interdit de</b> physiquement le <b>detruire</b> est que <b>peut-etre aura-t-il de bons enfants, et il est ecrit : Les mechants peuvent le preparer, mais les justes le revetiront</b> (voir Job 27:17).
+
+### Partie 8
+La Guemara relate que <b>Rav Hisda avait un certain metayer qui pesait</b> le produit du champ <b>et donnait</b> Rav Hisda sa part, et <b>pesait</b> le produit <b>et prenait</b> sa propre part. Rav Hisda <b>demissionna,</b> et <b>lut</b> le verset suivant <b>sur lui:</b> "Un homme bon laisse un heritage aux enfants de ses enfants ; <b>et la richesse du pecheur est mise en reserve pour le juste"</b> (Proverbes 13:22).
+
+### Partie 9
+§ La Gemara examine divers versets relatifs aux voleurs. <b>Car quel est l'espoir de l'impie, meme s'il en profite, quand Dieu lui enleve son ame ?</b> (Job 27:8). Ce verset fait l'objet d'une dispute entre <b>Rav Huna et Rav Hisda. Le premier dit</b> que l'expression "Dieu enleve son ame" fait reference a <b>l'ame du vole, et le second dit</b> qu'il s'agit de l'<b>ame du vole.</b>
+
+### Partie 10
+La Guemara developpe : Le raisonnement de <b>celui qui dit</b> que le verset fait reference a <b>l'ame du brigand</b> est <b>comme il est ecrit : "Telles sont les voies de quiconque est avide de gain ; il ote la vie a son proprietaire"</b> (Proverbes 1:19), ce qui enseigne que celui qui vole a un autre son bien est considere comme celui qui lui a vole son ame. Et le raisonnement de <b>celui qui dit</b> qu'il s'agit de <b>l'ame du voleur</b> est <b>comme il est ecrit : "Ne robinez pas le faible, parce qu'il est faible, et n'ecrasez pas le pauvre a la porte ; car le Seigneur plaidera leur cause, et il depouillera de leur vie ceux qui les depouillent"</b> (Proverbes 22:22""23).
+
+### Partie 11
+La Guemara remet en question chaque opinion : <b>Et</b> selon <b>l'autre</b> avis, c'est-a-dire le dernier, <b>n'est-il pas egalement ecrit : "Il enleve la vie de son proprietaire,"</b> ce qui indique que l'ame du vole est prise ? La Guemara repond : <b>Quel</b> est le sens de l'expression <b>"son proprietaire" ? </b> Elle fait reference a <b>son proprietaire actuel,</b> c'est-a-dire le voleur, qui a acquis l'objet vole.
+
+### Partie 12
+<b>Et</b> selon <b>l'autre</b> opinion, qui a dit que la vie du vole est prise, <b>n'est-il pas aussi ecrit : "Et depouille de la vie ceux qui les depouillent,"</b> ce qui indique que l'ame du voleur est prise ? La Guemara repond que le verset <b>dit : Quelle est la raison.</b> Le verset enseigne : <b>Quelle est la raison</b> pour laquelle Dieu <b>voudra spolier</b> la vie de <b>ceux qui les spolient ?</b> C'est <b>parce qu'ils ont spolie l'ame</b> de leurs victimes.
+
+### Partie 13
+<b>Rabbi Yohanan dit : Quiconque vole a un autre</b> d'un objet <b>valeur d'une <i>peruta</i></b> est considere <b>comme s'il lui prenait son ame, comme il est dit : "Telles sont les voies de quiconque est avide de gain ; il ote la vie a son proprietaire"</b> (Proverbes 1:19). <b>Et il est dit : "Et ils consommeront ta moisson et ton pain,</b> ils consommeront <b>tes fils et tes filles"</b> (Jeremie 5:17). Puisqu"?ils consommeront la récolte et le pain, c"?est comme s"?ils consommaient aussi les enfants d"?une personne, car il n"?y aura pas de nourriture pour les nourrir.
+
+### Partie 14
+<b>Et il est dit:</b> "L'Egypte sera une desolation, et Edom sera un desert, <b>a cause de l'extorsion des enfants de Juda, parce qu'ils ont repandu le sang innocent dans leur pays"</b> (Joel 4:19). Le verset considere ici l'extorsion comme l'effusion de sang innocent. <b>Et il declare</b> a propos d'une famine : "Et le Seigneur dit : <b>C'est pour Saul et pour sa maison sanglante, parce qu'il a fait mourir les Gibeonites"</b> (IIA Samuel 21:1).
+
+### Partie 15
+La Guemara demande : Puisque le point de Rabbi Yohanan etait prouve par le premier verset, <b>Quel</b> etait le but d'ajouter chaque verset suivant en disant : <b>Et il declare ?</b> La Gemara repond : <b>Et si vous voulez dire</b> que le voleur ne prend que <b>sa,</b> c'est-a-dire la victime, <b>sa vie, mais que la vie de ses fils et de ses filles</b> n'est <b>pas prise</b>, <b>venez</b> et <b>entendez</b> le deuxieme verset, qui mentionne <b>la chair de ses fils et de ses filles.</b>
+
+### Partie 16
+<b>Et si vous voulez dire : Cette affaire ne s'applique</b> que <b>lorsque</b> le voleur <b>ne donne pas</b> a sa victime <b>une compensation</b> pour l'objet vole, <b>mais lorsqu'il a donne une compensation</b> pour l'objet vole, ce n'est <b>pas</b> comparable au meurtre, <b>venez</b> et <b>entendez</b> le verset : <b>Pour l'extorsion des enfants de Juda, parce qu'ils ont verse du sang innocent dans leur pays.</b> L'extorsion fait reference a la contrainte exercee sur quelqu'un pour qu'il vende un objet qu'il ne veut pas vendre. C'est une forme de vol, et le verset l'assimile au meurtre.
+
+### Partie 17
+<b>Et si vous dites : Cette affaire ne s'applique</b> que <b>lorsqu'il a commis</b> le vol <b>par</b> action directe, mais</b> s'il l'a commis par <b>action indirecte</b>, la transgression n'est <b>pas</b> aussi grave, <b>venez</b> et <b>entendez</b> le verset : <b>C'est pour Saul et pour sa maison sanglante, parce qu'il a fait mourir les Gibeonites.</b> Et ou avons-nous</b> jamais <b>trouve que Saul a tue les Gibeonites ? </b> Il ne l'a pas fait. <b>Au contraire, en raison</b> du fait qu'il a tue</b> les habitants de <b>Nob, la ville des pretres, qui fournissaient</b> les Gibeonites en <b>eau</b> (voir IA Samuel, chapitre 22) <b>et en nourriture, le verset lui attribue</b> le blame de leur mort <b>comme s'il</b> avait <b>tue</b> les Gibeonites lui-meme.
+
+### Partie 18
+§ La mishna enseigne : <b>Mais on peut acheter</b> des biens specifiques <b>aux femmes</b> dans certains endroits. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i> 11:5) : <b>On peut acheter aux femmes des produits en laine en Judee, et des produits en lin en Galilee, mais pas de vins, d'huiles et de farines,</b> car ceux-ci ne sont generalement pas vendus par des femmes et on craint que celles-ci ne les aient peut-etre voles a leurs maris. <b>Et aucun article</b> ne peut etre achete <b>aux esclaves, ou aux enfants. Abba Shaul dit : Une femme peut vendre</b> des articles <b>pour</b> jusqu'a <b>quatre et cinq dinars afin de fabriquer un bonnet [<i>kippa</i>] pour sa tete,</b> car on suppose que son mari lui permet de vendre ces articles afin d'acheter des vetements supplementaires. <b>Et</b> en ce qui concerne <b>tous</b> ces cas, <b>ou ils ont dit</b> a l'acheteur <b>de dissimuler</b> son achat, il est <b>interdit</b> de conclure la transaction.
+
+### Partie 19
+<b>Les collecteurs de charite peuvent prendre quelque chose</b> d'une valeur <b>petite</b> <b>des femmes, <b>mais pas quelque chose</b> d'une valeur <b>grande</b>, car il est possible qu'ils n'aient pas la permission de donner des objets couteux.
+
+### Partie 20
+<b>Et</b> en ce qui concerne les <b>pressuriers d'olives,</b> on <b>peut leur acheter des olives en</b> une <b>mesure substantielle, et de l'huile en</b> une <b>mesure substantielle,</b> car on ne craint pas qu'ils volent une si grande quantite, <b>mais pas des olives en une petite</b> quantite, <b>et</b> pas de l'<b>huile en une petite</b> quantite. <b>Rabban Shimon ben Gamliel dit : On peut acheter des olives en petites</b> quantites <b>aupres des femmes de la Haute Galilee,</b> ou les olives sont exceptionnellement cheres, <b>car parfois, une personne est genee de vendre</b> des olives <b>a l'entree de sa maison, et</b> ainsi <b>elle donne</b> quelques olives <b>a sa femme, et elle les vend</b>. Puisqu'il y a une raison de presumer que les femmes ont recu le droit de vendre les olives par leurs maris, et qu'il est peu probable que les femmes les vendent sans permission, car meme une petite quantite manquante serait remarquee en raison de leur grande valeur, on peut supposer que les olives sont vendues avec permission.
+
+### Partie 21
+La Gemara relate : Lorsque <b>Ravina arriva a Bei Mehoza, les femmes de Bei Mehoza vinrent jeter des chaines et des bracelets devant lui</b> afin qu'il distribue les bijoux par charite, et <b>il les accepta</b> <b>de leur part. Rabba Tosfaâ dit a Ravina : Mais n'est-il pas enseigne</b> dans le <i>baraita</i> : <b>Les collecteurs de charite peuvent accepter quelque chose</b> qui vaut <b>un petit</b> montant <b>de la part des femmes, <b>mais pas quelque chose</b> qui vaut <b>un grand</b> montant ? Comment pouvez-vous accepter des bijoux, qui valent une somme importante ? Ravina <b>lui a dit : Pour les habitants de Mehoza, ces</b> chaines et bracelets <b>sont</b> consideres comme <b>quelque chose de petit,</b> et il m'est donc permis de les accepter.
+
+### Partie 22
+<strong>MISHNA :</strong> <b>Les brins</b> de laine <b>que le blanchisseur retire</b> du vetement <b>lui appartiennent,</b> car on peut supposer que le client s'en desinteresse, <b>mais</b> les brins que <b>le cardeur,</b> c'est-a-dire, celui qui prepare la laine pour l'utiliser comme textile, <b>enleve appartient au client,</b> car on peut supposer que le client en veut, puisque le cardeur enleve souvent un nombre important de brins. <b>Un blanchisseur prend trois fils</b> qui etaient inseres au bord d'un vetement, <b>et ils lui appartiennent,</b> mais en ce qui concerne les <b>plus</b> fils <b>que ceux-ci, ces</b> fils supplementaires <b>appartiennent au client. Si</b> ces <b>fils etaient noirs</b> sur un vetement blanc</b>, <b>il les prend tous et ils sont a lui.</b> Comme l'elimination des fils ameliore l'aspect du vetement, le client n'en veut pas.
+
+### Partie 23
+Dans le cas d'un <b>tailleur qui a laisse</b> suffisamment de <b>fils</b> attaches a l'etoffe pour qu'il puisse etre utilise <b>afin de coudre avec elle, ou</b> s'il y avait <b>une piece</b> d'etoffe <b>qui fait trois</b> centimetres de doigt <b>par trois</b> centimetres de doigt restant de l'etoffe donnee au tailleur par le client, <b>ces</b> articles <b>appartiennent au client. Ce qu'un menuisier enleve avec une herminette lui appartient,</b> car l'herminette n'enleve que de petits copeaux de bois, dont le client se desinteresse ; <b>mais</b> ce qu'il enleve <b>avec une hache [<i>uvakashil</i>] appartient au client. Et s'il faisait</b> son travail <b>dans</b> le domaine du <b>client,</b> alors <b>meme la sciure de bois appartient au client.</b>
+
+### Partie 24
+<strong>GEMARA :</strong> <b>Les Sages ont enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i> 11:13) : <b>On peut acheter des brins</b> de laine <b>a un blanchisseur, car ils sont</b> supposes etre <b>les siens. Un blanchisseur peut prendre les deux fils superieurs</b> d'un vetement, <b>et ils sont a lui.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

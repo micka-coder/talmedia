@@ -1,0 +1,24 @@
+
+### Part 1
+<strong>MISHNA:</strong> When one brings a meal offering to the Temple, the priest removes a handful from it, places the handful into a service vessel, conveys it to the altar, and burns it. At that point, the remainder is permitted to the priests for consumption and the owner has fulfilled his obligation. In this context, the mishna teaches: <b>All the meal offerings</b> from <b>which a handful was removed not for their sake</b> but for the sake of another meal offering <b>are fit</b> for sacrifice. <b>But</b> these offerings <b>did not satisfy the obligation of the owner,</b> who must therefore bring another offering. This is the <i>halakha</i> with regard to all meal offerings <b>except for the meal offering of a sinner and the meal offering of jealousy,</b> which is brought as part of the rite of a woman suspected by her husband of having been unfaithful [<i>sota</i>]. In those cases, if the priest removed the handful not for its own sake, the offering is disqualified.
+
+### Part 2
+With regard to <b>the meal offering of a sinner and the meal offering of jealousy</b> from <b>which</b> the priest <b>removed a handful not for their sake,</b> or where <b>he placed</b> a handful from them <b>in a vessel, or conveyed</b> the handful to the altar, <b>or burned</b> the handful on the altar, <b>not for their sake, or for their sake and not for their sake, or not for their sake and for their sake,</b> they <b>are disqualified.</b>
+
+### Part 3
+The mishna elaborates: <b>How</b> are these rites performed <b>for their sake and not for their sake?</b> It is in a case where one removed the handful with two intentions: <b>For the sake of the meal offering of a sinner and for the sake of a voluntary meal offering.</b> How are these rites performed <b>not for their sake and for their sake?</b> It is in a case where one removed the handful with two intentions: <b>For the sake of a voluntary meal offering and for the sake of the meal offering of a sinner.</b>
+
+### Part 4
+<strong>GEMARA:</strong> The mishna teaches: All the meal offerings from which a handful was removed not for their sake but for the sake of another meal offering are fit for sacrifice, but these offerings did not satisfy the obligation of the owner. The Gemara asks: <b>Why do I</b> need the mishna <b>to teach: But</b> these offerings did not <b>[<i>ella</i></b> <i>shelo</i>] satisfy the obligation of the owner? <b>Let it teach</b> simply: <b>And they did not [<i>velo</i>] satisfy the obligation of the owner.</b> What does the word <i>ella</i> add?
+
+### Part 5
+The Gemara responds: By adding this word, the mishna <b>teaches us</b> that the only deficiency of these offerings is that <b>they did not satisfy the obligation of the owner; but the meal offering itself</b> is <b>valid and</b> it is still <b>prohibited to deviate</b> from the protocol of its sacrificial process. For example, if a handful was removed from a meal offering not for its own sake, it is prohibited to also burn it not for its own sake. This <i>halakha</i> is <b>in accordance with</b> the statement <b>of Rava, as Rava says:</b> With regard to <b>a burnt offering that one slaughtered not for its own sake,</b> it is still <b>prohibited to sprinkle its blood</b> on the altar <b>not for its own sake.</b>
+
+### Part 6
+The Gemara adds: <b>If you wish, propose a logical argument</b> to support this statement; <b>and if you wish, cite a verse</b> as proof. The Gemara elaborates: <b>If you wish, propose a logical argument:</b> Just <b>because one deviated</b> from protocol <b>in its</b> sacrifice once, by removing the handful, could it be that <b>he should continue to deviate</b> from protocol <b>in all</b> the rest of the sacrificial rites? One deviation does not justify additional deviations.
+
+### Part 7
+<b>And if you wish, cite a verse: “That which has gone out of your lips you shall observe and do; according to what you have vowed as a gift offering to the Lord your God,</b> that which you have promised with your mouth” (Deuteronomy 23:24). The Gemara analyzes the verse: Is it <b>a gift</b> offering? <b>It is a vow</b> offering. Why does the verse first <b>call it a vow</b> offering <b>and</b> subsequently <b>call it a gift</b> offering? <b>Rather,</b> the verse teaches that <b>if you acted in accordance with how you vowed,</b> i.e., if you sacrificed the offering for its own sake, your obligation to fulfill your <b>vow will be</b> fulfilled; <b>but if</b> you did <b>not</b> act in accordance with your vow, it does not fulfill the obligation incurred by the vow, and <b>will be</b> considered <b>a gift</b> offering.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

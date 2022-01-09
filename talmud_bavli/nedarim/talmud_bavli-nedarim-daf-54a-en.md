@@ -1,0 +1,24 @@
+
+### Part 1
+<strong>MISHNA:</strong> For <b>one who vows</b> that <b>vegetables</b> are forbidden <b>to</b> him, it <b>is permitted</b> for him <b>to</b> eat <b>gourds,</b> as people typically do not include gourds in the category of vegetables; <b>and Rabbi Akiva prohibits</b> him from eating gourds. The Rabbis <b>said to Rabbi Akiva: But doesn’t a person say to his agent: Purchase vegetables for me, and</b> the agent, after failing to find vegetables, returns with gourds and <b>says: I found only gourds?</b> This indicates that gourds are not considered vegetables.
+
+### Part 2
+Rabbi Akiva <b>said to them: The matter is so,</b> and that proves my opinion; <b>or perhaps,</b> does the agent return and <b>say: I found only legumes? Rather,</b> it is apparent <b>that gourds are included in</b> the category of <b>vegetables,</b> although they differ from other vegetables, and therefore, the agent purchases gourds and explains that he found only gourds. <b>And legumes are not included in</b> the category of <b>vegetables,</b> and that is why the agent dispatched to purchase vegetables would not purchase legumes at all. <b>And</b> for one who vows that vegetables are forbidden to him, it <b>is prohibited to</b> eat <b>the fresh cowpea</b>, which is considered a vegetable, <b>and</b> it <b>is permitted to</b> eat <b>dry</b> cowpea, which is not a vegetable.
+
+### Part 3
+<strong>GEMARA:</strong> We learned in the mishna: For <b>one who vows</b> that <b>vegetables</b> are forbidden <b>to</b> him, it is permitted to eat gourds, and Rabbi Akiva prohibits him from eating gourds. The Gemara questions Rabbi Akiva’s ruling: <b>But</b> how can his vow include gourds, which are fruits and not vegetables; <b>didn’t he vow</b> to refrain <b>from</b> eating <b>vegetables? Ulla said:</b> The mishna is referring <b>to one who said: Vegetables</b> cooked <b>in a pot</b> are forbidden <b>to me.</b> Gourds are included in the category of vegetables cooked in a pot. The Gemara asks: <b>And</b> if that is what he said, <b>perhaps he is saying: A vegetable that is eaten in a pot,</b> i.e., a vegetable that is added to flavor the food cooked in the pot, is forbidden to me? The Gemara answers: The mishna is referring <b>to one who said: A vegetable that is cooked in a pot</b> is forbidden <b>to me,</b> a statement that can include gourds.
+
+### Part 4
+The Gemara asks: <b>With regard to what</b> principle <b>do</b> Rabbi Akiva and the Rabbis <b>disagree?</b> The Gemara explains that <b>the Rabbis maintain: Any item with regard to which an agent must consult</b> the person who dispatched him before purchasing it, <b>is not</b> considered the same <b>type.</b> Since the agent must ask whether he can purchase gourds, apparently they are not a vegetable. <b>And Rabbi Akiva maintains: Any item with regard to which an agent</b> must <b>consult is</b> considered the same <b>type.</b> With regard to food of a different type, he does not consult. <b>Abaye said: Rabbi Akiva concedes with regard to lashes that</b> the one who vowed <b>is not flogged</b> if he ate gourds, as the issue of whether or not he violated his vow is not entirely clear.
+
+### Part 5
+<b>We learned</b> in a mishna <b>there</b> (<i>Me’ila</i> 20a): With regard to <b>an agent who performed his mission</b> properly, if he was tasked to use a particular item, and the one who dispatched him forgot that it was a consecrated item, <b>the employer,</b> who dispatched him, <b>misused</b> the consecrated item and is liable, as the agent acted on his behalf. However, if the agent <b>did not perform his mission</b> properly, and the <b>agent misused</b> the consecrated item, he is liable, as once the agent deviates from his mission, he ceases to be an agent and his actions are attributable to him.
+
+### Part 6
+The Gemara asks: <b>Who is</b> the <b><i>tanna</i></b> who <b>taught</b> this <i>halakha</i> in the mishna? <b>Rav Ḥisda said: The mishna</b> is <b>not in accordance with</b> the opinion of <b>Rabbi Akiva as we learned</b> in the mishna: <b>How so?</b> If the employer <b>said to</b> the agent: <b>Give meat to the guests, and he gave them liver;</b> or if he said: <b>Give</b> them <b>liver, and he gave them meat, the agent has misused</b> the consecrated item, as he deviated from his mission. <b>And if</b> this were in accordance with the opinion of <b>Rabbi Akiva, didn’t Rabbi Akiva say: Any matter with regard to which an agent must consult is</b> considered the same <b>type?</b> Since based on that criterion, liver is certainly considered meat, <b>let the employer</b> be liable <b>for misuse</b> of consecrated property <b>and let the agent not</b> be liable <b>for misuse</b> of consecrated property, as he fulfilled his mission.
+
+### Part 7
+<b>Abaye said: Even</b> if <b>you say</b> that the mishna is in accordance with the opinion of <b>Rabbi Akiva,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

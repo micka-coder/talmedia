@@ -1,0 +1,24 @@
+
+### Partie 1
+Il y avait <b>un certain homme qui avait un fils qui saisissait</b> dans le vol <b>des gerbes [<i>keifei</i>] de lin,</b> et le pere fit un vœu <b>interdisant</b> a son fils <b>de tirer un quelconque benefice</b> de ses biens. On dit</b> au pere : <b>Et si le fils de ton fils devenait un erudit de la Torah,</b> et que tu voulais qu'il puisse heriter de tes biens, <b>que ferais-tu</b> ? <b>Il leur a dit : Que ce</b> fils a moi <b>acquiere</b> les biens, <b>et</b> seulement <b>si le fils de mon fils devient un erudit de la Torah</b> alors <b>qu'il, </b> mon petit-fils, les <b>acquiere</b> de mon fils. Ils ont demande : <b>Quoi</b> est la regle ?
+
+### Partie 2
+Les Sages <b>de Pumbedita disent :</b> C'est comme s'il avait declare : <b>Acquerir</b> le bien <b>a condition de le transferer</b> a son fils. Dans ce cas, il n'a rien donne au beneficiaire, mais a simplement fait de lui un intermediaire pour transferer le bien a quelqu'un d'autre. <b>Et</b> dans <b>tous les cas</b> ou l'on dit : <b>Acquerir</b> ce bien <b>a condition que vous en transferiez</b> la propriete, le destinataire <b>n'acquiert pas</b> le bien, et la declaration n'a aucun effet.
+
+### Partie 3
+<b>Mais le Rav Nahman a dit : Il acquiert, car une</b> acquisition au moyen d'un <b>tissu est</b> un cas d'acte d'<b>acquisition</b> effectue uniquement <b>en vue de transferer</b> la propriete. Dans un tel cas, une personne donne a une autre un tissu afin de lui conferer la propriete d'un autre objet, mais le tissu lui-meme n'acquiert pas une nouvelle propriete. Il s'agit neanmoins d'un moyen d'acquisition efficace. De meme, la propriete du grand-pere peut etre effectivement conferee au petit-fils par l'intermediaire du fils, sans que le fils ne l'acquiere lui-meme.
+
+### Partie 4
+<b>Rav Ashi a dit : Et qui nous dira a propos du tissu que si</b> le destinataire du tissu le <b>saisissait</b> avec l'intention de le garder, cela ne serait <b>pas</b> une <b>saisie effective ?</b> Bien que le tissu soit techniquement transfere, le destinataire n'exerce generalement pas son droit sur lui. <b>Et en outre,</b> une acquisition au moyen d'un <b>tissu</b> est un cas ou le donneur dit : <b>Acquerir</b> seulement <b>pour transferer</b> la propriete, <b>mais acquerir a partir de maintenant.</b> Cependant, en ce qui concerne <b>ces biens de ce</b> celui qui a fait le vœu, <b>quand est-ce que</b> le fils <b>acquiert ? </b> Seulement <b>lorsque le fils de son fils devient un erudit de la Torah. Et lorsqu'il devient</b> un erudit de la Torah, <b>le tissu</b> a deja ete <b>retourne a son proprietaire,</b> c'est-a-dire que l'acte d'acquisition avait eu lieu bien avant que le petit-fils ne devienne un erudit de la Torah. Le transfert initial n'a donc aucun effet.
+
+### Partie 5
+<b>Rava dit a Rav Nahman : Mais le don du Beit Horon</b> dont il est question dans la mishna <b>est</b> un exemple d'une <b>acquisition</b> effectuee uniquement <b>dans le but de transferer</b> la propriete, <b>et</b> la <b>il ne l'a pas acquis</b> du tout.
+
+### Partie 6
+La Gemara raconte : <b>Parfois</b> lorsque Rav Nahman se voyait poser cette question <b>il lui disait :</b> C'est <b>parce que son <b>repas de mariage</b> prouve a son sujet</b> qu'il n'avait pas vraiment l'intention de donner les objets au beneficiaire, et non pas parce qu'une telle acquisition est invalide en soi. <b>Et parfois, il lui a dit</b> que dans <b>cette</b> cas, ils ont suivi l'avis rigoureux de <b>Rabbi Eliezer, qui a dit : Meme</b> des benefices negligeables ordinairement <b>abandonnes</b> sont <b>interdits a celui qui est interdit par un vœu de tirer un benefice</b> d'un autre. De meme, Rabbi Eliezer estime qu'on ne peut pas se fier a un acte d'acquisition effectue dans le seul but de transferer la propriete a un tiers.
+
+### Partie 7
+§ <b>Nous avons appris</b> dans la mishna (48a) : <b>Les Sages</b> ont donc <b>dit : Tout cadeau qui n'est pas</b> absolu au point <b>que, si</b> le destinataire <b>vous consacriez</b> le cadeau <b>il serait consacre, n'est pas un cadeau.</b> La Gemara demande : <b>Qu'est-ce qui est ajoute</b> par le mot : <b>Tout ? N'ajoute-t-on pas cette affaire de</b> celui qui <b>selectionne des gerbes</b> de lin, et de dire que le don du pere n'a aucun effet ? La Guemara repond : <b>Non,</b> l'intention est <b>d'ajouter la derniere version de la <b>declaration de Rava</b> susmentionnee, a savoir qu'un cadeau donne comme moyen de contourner un vœu n'a pas d'effet, meme lorsque le donateur ne mentionne la nature du cadeau que de maniere fortuite et ne le stipule pas comme une condition formelle.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

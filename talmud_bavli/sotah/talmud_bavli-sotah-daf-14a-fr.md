@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>La garnison [<i>gastera</i>] de Beth Peor</b> et leur dit : <b>Dis-nous ou Moise est enterre.</b> Comme les hommes <b>se tenaient en haut</b> sur la section superieure de la montagne, <b>il leur apparut</b> comme si la tombe etait <b>en bas</b> dans la section inferieure. Comme ils se tenaient <b>en bas, il leur apparaissait</b> comme etant <b>en haut</b>. Ils se diviserent en deux groupes,</b> un en haut et un en bas. Pour <b>ceux qui se tenaient en haut,</b> la tombe <b>leur apparaissait</b> comme etant <b>en bas;</b> pour ceux qui se tenaient <b>en bas,</b> la tombe <b>leur apparaissait comme etant en haut, pour accomplir ce qui est dit : "Et personne ne connait sa tombe</b> a ce jour" (Deuteronome 34:6).
+
+### Partie 2
+<b>Rabbi Hama, fils de Rabbi Hanina, dit : Meme Moise notre maitre</b> lui-meme <b>ne sait pas ou il est enterre. Il est ecrit ici : A "Et personne ne connait sa tombeA", et il est ecrit ici :" Et voici la bénédiction par laquelle MoA¯se, l'homme de Dieu, a bénié</b> les enfants d'IsraA "l avant sa mort" (Deutéronome 33:1). En d'autres termes, meme Moise, puisqu'il est designe par le terme "homme", ne connait pas le lieu de sa sepulture. <b>Et Rabbi Hama, fils de Rabbi Hanina, dit : Pour quelle</b> raison <b>Moise a-t-il ete enterre pres de Beth Peor ? Afin d'expier l'incident</b> qui a transpire a Beth <b>Peor</b> (Nombres, chapitre 25).
+
+### Partie 3
+<b>Et Rabbi Hama, fils de Rabbi Hanina, dit : Quel est</b> le sens de ce <b>qui est ecrit : <b>Apres le Seigneur ton Dieu, tu marcheras,</b> tu le craindras, tu garderas ses commandements, tu ecouteras sa voix, tu le serviras et tu t'attacheras a lui.</b> (Deuteronome 13.5) ? <b>Mais est-il</b> reellement <b>possible pour une personne de suivre la Presence Divine ? Mais n'a-t-il pas deja ete dit : A "Car le Seigneur ton Dieu est un feu devorant,</b> un Dieu jalouxA" (Deuteronome 4:24), et on ne peut pas s'approcher du feu.
+
+### Partie 4
+Il explique : <b>Au contraire,</b> le sens est <b>qu'il faut suivre les attributs du Saint, Beni soit-Il.</b> Il donne plusieurs exemples. <b>De meme qu'Il habille le nu, comme il est ecrit : "Et le Seigneur Dieu fit a Adam et a sa femme des vetements de peau, et les habilla"</b> (Genese 3:21), <b>de meme,</b> il faut <b>vetir celui qui est nu.</b> De meme que <b>le Saint, Beni soit-Il, visite les malades, comme il est ecrit</b> a propos de l'apparition de Dieu a Abraham apres sa circoncision : <b>"Et le Seigneur lui apparut pres des terebinthes de Mamre"</b> (Genese 18:1), <b>de meme,</b> vous devriez <b>visiter les malades.</b> De meme que <b>le Saint, Beni soit-Il, console les personnes en deuil, comme il est ecrit : "Et il arriva, après la mort d'Abraham, que Dieu bénéfia son fils Isaac"</b> (Genèse 25:11), <b>de même,</b> vous devez <b>consoler les personnes en deuil.</b> De même que <b>le Saint, bénéni soit-Il, a enterré les morts, comme il est écrit : "Et il a été enterré dans la vallée</b> au pays de Moab" (Deutéronome 34:6), <b>de même,</b> vous devez <b>enterrer les morts.</b>
+
+### Partie 5
+La Guemara discute le verset : "Et le Seigneur Dieu fit pour Adam et pour sa femme des <b>vetements de peau,</b> et les habilla" (Genese 3:21). <b>Rav et Shmuel</b> ne sont pas d'accord sur la signification du terme "vetements de peau".</b> <b>L'un dit</b> que ces vetements etaient faits de <b>quelque chose qui vient de la peau, et l'autre dit</b> que ces vetements etaient <b>quelque chose dont la peau beneficie.</b>
+
+### Partie 6
+<b>Rabbi Samlai a enseigne :</b> En ce qui concerne la <b>Torah, son debut est un acte de bonte et sa fin est un acte de bonte. Son debut est un acte de bonte, comme il est ecrit : "Le Seigneur Dieu fit a Adam et a sa femme des vetements de peau, et les habilla"</b> (Genese 3:21). <b>Et sa fin est un acte de bonte, comme il est ecrit : "Et il fut enterré dans la vallée</b> au pays de Moab" (Deutéroma 34:6).
+
+### Partie 7
+<b>Rabbi Samlai a enseigne : Pour quelle</b> raison <b>Moise, notre maitre</b>, avait-il un grand <b>desir d'entrer en Eretz Yisrael ? Avait-il besoin de manger de ses produits, ou avait-il besoin de se satisfaire de ses bienfaits ? Au contraire, voici ce que Moise a dit : De nombreuses mitzvot ont ete commandees</b> au <b>peuple juif, et</b> certaines d'entre elles ne peuvent etre accomplies qu'en Eretz Yisrael,</b> alors <b>je vais entrer dans le pays afin qu'elles puissent toutes etre accomplies par moi.</b>
+
+### Partie 8
+<b>Le Saint, Beni soit-Il, lui dit : Cherches-tu</b> a entrer dans le pays pour accomplir ces mitzvot <b>pour une quelconque</b> raison <b>autre que celle de recevoir une recompense ? Je t'attribuerai</b> le merite <b>comme si tu les avais accomplies</b> et tu recevras ta recompense, <b>comme il est dit : A "C'est pourquoi je lui donnerai une part parmi les grands, et il partagera le butin avec les puissants, parce qu'il a porte son ame jusqu'a la mort, et qu'il a ete compte parmi les transgresseurs ; mais il a porte le peche de plusieurs, et il a intercede pour les transgresseurs"</b> (Isaie 53:12).
+
+### Partie 9
+Rabbi Samlai procede a l'explication du verset <b>Voila pourquoi je lui donnerai une part parmi les grands"</b> pour signifier qu'il recevra une recompense. On <b>pourrait</b> avoir pense qu'il recevra une recompense <b>comme les plus tardifs et non comme les plus anciens,</b> alors <b>le verset dit : "Et il partagera le butin avec les puissants,</b> c'est-a-dire <b>comme Abraham, Isaac et Jacob, qui etaient puissants en Torah et en mitzvot. "Parce qu"?il a dépouillé son A¢me jusqu"?A la mort,"</b> c"?est-A -dire qu"?il s"?est livré A la mort</b> au nom du peuple juif, <b>comme il est dit :</b> "Maintenant, si Tu pardonnes leur péché ; <b>et sinon, efface-moi, je Te prie</b> de Ton livre que Tu as écrit" (Exode 32:32).
+
+### Partie 10
+<b>"Il fut compte parmi les transgresseurs"</b>, ce qui signifie <b>qu'il fut compte parmi ceux qui moururent dans le desert,</b> car, tout comme eux, il n'entra pas en Eretz Yisrael. <A" Pourtant, il a porté le péché de beaucoup de gens", car il a expié l'incident du veau d'or. Il a intercede [<i>yafgia</i>] pour les transgresseurs", car il a demande la misericorde pour les pecheurs d'Israel</b> afin <b>qu'ils s'engagent dans la repentance. Et</b> le mot <b><i>pegia</i></b> ne signifie <b>rien d'autre</b> que la <b>priere, comme il est dit :" Ne prie donc pas pour ce peuple, n'élève ni cri ni prière pour lui, et n'intercède pas [<i>tifga</i>] auprès de Moi ; </b> car Je ne t'exaucerai pas" (Jérémie 7:16).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

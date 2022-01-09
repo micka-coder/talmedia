@@ -1,0 +1,18 @@
+
+### Part 1
+<b>Rather,</b> it must be that Shmuel <b>actually</b> meant to say that <b>this</b> is the statement of ben Nanas, <b>but he,</b> Shmuel, <b>does not agree with him</b> that one should attend to the latter expression. In fact, he is in agreement with the Sages who maintain that two contradictory expressions create a case of uncertainty. <b>And there,</b> in the case of the rent for the intercalated month, <b>what is the reason</b> for his ruling that if the landlord came to collect the rent at the beginning of the month, the entire sum goes to the landlord, whereas if he came at the end of the month, the money goes to the tenant? <b>Because</b> the party who is awarded the money <b>was</b> seen as already being <b>in possession</b> of it, and in a case of uncertainty, money is left in the hands of the party enjoying possession.
+
+### Part 2
+<b>Here too,</b> in the case where the seller says that he is selling a <i>kor</i> of grain for thirty <i>sela</i>, each <i>se’a</i> for a <i>sela</i>, the buyer was seen as already being <b>in possession</b> of each <i>se’a</i> that was measured out to him, and therefore the seller cannot renege on the sale. It is for this reason that the buyer acquires the grain, and not because of the principle that in a case of contradictory expressions, one should attend to the latter expression.
+
+### Part 3
+On a similar topic, <b>Rav Huna says</b> that <b>they say</b> in <b>the school of Rav:</b> If the seller said to the buyer: I am selling you this item for <b>an <i>istera</i>, one hundred <i>ma’a</i>,</b> an <i>istera</i> being a silver coin equal to ninety-six copper <i>ma’a</i>, it is assumed he meant <b>one hundred <i>ma’a</i>.</b> And if the seller reversed the order and said that he was selling the item for <b>one hundred <i>ma’a</i>, an <i>istera</i>,</b> it is assumed he meant <b>an <i>istera</i>.</b>
+
+### Part 4
+The Gemara asks: <b>What</b> new <i>halakha</i> <b>is</b> Rav <b>teaching us?</b> Is it that with regard to a statement comprised of contradictory expressions <b>one should attend</b> only to <b>the last statement? Didn’t Rav</b> already <b>say this</b> on <b>another occasion? As Rav says: Had I been there</b> as a judge when the ruling was issued with regard to the rental fee for the intercalated month, <b>I would have given the entire</b> month’s rent <b>to the landlord,</b> based on the final expression in the rental agreement: One gold dinar per month.
+
+### Part 5
+The Gemara answers: Nevertheless, it was necessary to state both rulings, as the one cannot necessarily be inferred from the other. <b>If this</b> <i>halakha</i> with regard to the <i>istera</i> <b>was stated and that</b> <i>halakha</i> with regard to the intercalated month <b>was not stated, I would say</b> that when the seller uttered the second expression: One hundred <i>ma’a</i>, <b>he retracted his</b> first expression: An <i>istera</i>, as the two expressions contradict one another, and for that reason Rav said that one should attend to the final expression. <b>But here,</b> in the case of the intercalated month, <b>perhaps you</b> would <b>say</b> that when the landlord utters the second expression: One gold dinar per month, <b>he is explaining</b> the original intent of his first expression: Twelve gold dinars a year, and one should view it as a clarification. Therefore Rav comes and <b>teaches us</b> that in all cases one should attend to the final expression.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

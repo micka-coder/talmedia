@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Au contraire,</b> voici comment la question devrait etre resolue : <b>Si le pere de sa mere</b> venait <b>de la famille de <b>Joseph, la mere de sa mere</b> venait <b>de la famille de <b>Yitro,</b> et <b>si le pere de sa mere</b> venait <b>de la famille de <b>Yitro, la mere de sa mere</b> venait <b>de la famille de <b>Joseph,</b> ainsi, alors que sa mere descendait de Joseph d'un cote et de Yitro de l'autre, Pinehas etait un parent plus eloigne de Yitro que Jonathan. Sur la base de cette conclusion, le langage du verset <b>est egalement precis, puisqu'il est ecrit :</b> "Et Elazar, fils d'Aaron, prit <b>une des filles de Putiel"</b> (Exode 6:25). <b>Conclure a partir</b> de la formulation du verset que Pinehas descendait de <b>deux</b> hommes qui etaient designes comme Puti : Yitro et Joseph.
+
+### Partie 2
+<b>Rava dit : Celui qui epouse une femme doit</b> d'abord <b>examiner ses freres</b> afin de savoir a l'avance quel sera le caractere de ses enfants, <b>comme il est dit : "Et Aaron prit Elisheva, la fille d'Amminadav, la soeur de Nahshon"</b> (Exode 6:23). <b>Par deduction de ce qui est dit : A "La fille d'AmminadavA", ne sais-je pas qu'elle est la soeur de Nahshon,</b> puisque Nahshon etait le fils d'Amminadav ? <b>Quel est le sens</b> lorsque <b>le verset dit : "La soeur de Nahshon" ? De la</b> on apprend <b>que celui qui epouse une femme doit examiner ses freres.</b> La raison en est que les Sages <b>ont enseigne : La plupart des fils ressemblent aux freres de la mere.</b>
+
+### Partie 3
+En rapport avec la mention de Jonathan, qui a servi de pretre pour Michea, la Guemara cite des declarations supplementaires des Sages concernant cet episode. Decrivant le moment ou les hommes de la tribu de Dan sont passes par la maison de Michee, le verset indique : <b>"Et la, ils se detournerent et lui dirent : Qui t'a amene ici [<i>halom</i>], et qu'est-ce que [<i>ma</i>] tu fais dans ce lieu, et qu'est-ce que tu as ici [<i>po</i>] ?"</b> (Juges 18:3). Les Sages interpretent leurs multiples questions. <b>Ils lui ont dit : Ne viens-tu pas de Moise, au sujet duquel il est ecrit : "Ne t'approche pas d'ici [<i>halom</i>]"</b> (Exode 3.5) ? <b>Ne viens-tu pas de Moise, au sujet duquel il est ecrit : "Qu'est-ce [<i>ma</i>] que c'est dans ta main"</b> (Exode 4:2) ? <b>Ne viens-tu pas de Moise, au sujet duquel il est ecrit : "Mais toi, tiens-toi ici [<i>po</i>] avec moi"</b> (Deuteronome 5.27) ? <b>Vous, </b> un descendant de notre maitre Moise, <b>deviendrez un pretre pour le culte des idoles ?</b>
+
+### Partie 4
+Jonathan <b>leur repondit : Voici</b> la tradition que <b>j'ai recue de la maison de mon pere : Une personne doit toujours se louer</b> au culte des idoles et ne pas exiger</b> l'aide <b>des gens</b> en recevant la charite, et j'ai pris cette position pour ne pas avoir a prendre la charite.
+
+### Partie 5
+La Gemara commente : <b>Et lui,</b> Jonathan, <b>pensait</b> que cela faisait reference <b>a l'adoration reelle des idoles, mais</b> ce n'est pas le cas,</b> ce n'etait pas l'intention de la tradition. <b>Au contraire,</b> ici le terme <b>adoration d'idoles,</b> litteralement : Service etrange, fait reference au <b>service,</b> c'est-a-dire au travail, <b>qui</b> est <b>etrange,</b> c'est-a-dire inadapte, <b>pour lui.</b> En d'autres termes, il faut etre pret a effectuer un travail difficile et humiliant a ses yeux plutot que de devenir un beneficiaire de la charite. <b>Comme Rav a dit a Rav Kahana,</b> son eleve : <b>Separez une carcasse au marche et acceptez un paiement, mais ne dites pas : Je suis un grand homme et cette affaire est indigne de moi.</b>
+
+### Partie 6
+La Guemara poursuit sa discussion sur cet episode. Plus tard, <b>lorsque</b> le roi <b>David vit que l'argent etait excessivement precieux pour</b> Jonathan, <b>il le nomma</b> directeur <b>des tresors</b> du Temple, <b>comme il est dit : "Et Shebuel, le fils de Gershom, le fils de MoA¯se, était directeur des trésors"</b> (IA Chroniques 26:24). La Gemara demande : <b>Et son nom</b> etait-il vraiment <b>Shebuel ; mais son nom n'etait-il pas Jonathan ? Rabbi Yohanan repond :</b> On l'appelle Shebuel afin de faire allusion au fait <b>qu'il</b> s'est repenti et <b>est retourne a Dieu [<i>shav lael</i> ] de tout son cœur.</b>
+
+### Partie 7
+§ La mishna enseigne dans la liste de ceux qui heritent les uns des autres et se leguent : <b>Fils</b> a l'egard de <b>leur pere.</b> La Gemara demande : <b>D'ou tirons-nous</b> cette <i>halakha</i> que les fils heritent de la totalite de la succession et que les filles ne recoivent pas de part avec eux ? <b>Comme il est ecrit : <b>Si un homme meurt</b> et qu'il n'a pas de fils, vous transmettrez son heritage a sa fille</b> (Nombres 27:8). <b>La raison</b> pour laquelle l'heritage serait transmis a une fille est <b>qu'il n'a pas de fils, mais</b> si <b>il a un fils,</b> le <b>fils a la priorite. Rav Pappa dit a Abaye :</b> Pourquoi ne pas <b>savoir</b> ce qui suit : <b>S'il n'y a</b> que <b>un fils, que</b> le <b>fils herite</b> de la succession du pere ; si <b>il n'y a</b> que <b>une fille, que</b> la <b>fille herite</b> de la succession du pere ; et si <b>il y a</b> a la fois <b>un fils et une fille, ni celui-ci ni celle-ci ne doivent heriter.</b>
+
+### Partie 8
+Abaye a demande a Rav Pappa : <b>Et plutot,</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

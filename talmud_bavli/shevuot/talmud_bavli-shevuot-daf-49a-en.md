@@ -1,0 +1,9 @@
+
+### Part 1
+<b>Any</b> oath, including one incurred by rabbinic law, <b>may be extended</b> to render the person who takes it liable to take an additional oath, <b>except for</b> the oath of <b>a hired worker, which may not be extended,</b> since the hired worker’s oath was instituted only to alleviate the concerns of the employer. <b>Rav Ḥisda says:</b> For <b>everyone,</b> the Sages <b>are not lenient,</b> in that they extend any oath they incur to impose upon them additional oaths, <b>except for a hired worker,</b> for <b>whom they are lenient.</b> The Gemara asks: <b>What</b> is the difference <b>between</b> the rulings of Rav Huna and Rav Ḥisda? The Gemara answers: <b>There is</b> a practical difference <b>between them</b> as to whether the court <b>initiates</b> extending an oath <b>for him,</b> i.e., even when the other litigant has not suggested it, the court extends the original oath to include an oath about other claims.
+
+### Part 2
+§ The mishna teaches: <b>The Sabbatical</b> Year <b>abrogates</b> the obligation to take an oath about a debt, just like it abrogates a debt. The Gemara asks: <b>From where is this matter</b> derived? <b>Rav Giddel says</b> that <b>Rav says:</b> It is derived from the fact <b>that the verse states: “And this is the matter [<i>devar</i>] of the release:</b> Every creditor shall release that which he has lent to his neighbor; he shall not exact it of his neighbor and his brother, because the Lord’s release has been proclaimed” (Deuteronomy 15:2). Since the word <i>devar</i> also means statement, <b>this teaches that the Sabbatical Year releases,</b> i.e., abrogates, <b>even a statement,</b> i.e., an oath.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

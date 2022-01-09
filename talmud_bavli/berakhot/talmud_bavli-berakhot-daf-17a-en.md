@@ -1,0 +1,54 @@
+
+### Part 1
+<b>in the heavenly entourage [<i>pamalia</i>]</b> of angels each of whom ministers to a specific nation (see Daniel 10), and whose infighting causes war on earth; <br><b>and in the earthly entourage,</b> the Sages, <br><b>and among the disciples engaged in</b> the study of <b>Your Torah,</b> <br><b>whether they engage in its</b> study <b>for its own sake or not for its own sake.</b> <br><b>And all those engaged</b> in Torah study <b>not for its own sake,</b> <br><b>may it be</b> Your <b>will</b> that <b>they will come to engage</b> in its study <b>for its own sake.</b>
+
+### Part 2
+<b>After his prayer, Rabbi Alexandri said the following:</b> <br><b>May it be Your will, Lord our God,</b> <br><b>that You station us in a lighted corner and not in a darkened corner,</b> <br><b>and do not let our hearts become faint nor our eyes dim.</b> <br><b>Some say that this was the prayer that Rav Hamnuna would recite, and that after Rabbi Alexandri prayed, he would say the following:</b> <br><b>Master of the Universe, it is revealed and known before You</b> <br><b>that our will is to perform Your will, and what prevents us?</b> <br>On the one hand, <b>the yeast in the dough,</b> the evil inclination that is within every person; <br><b>and the subjugation to the kingdoms</b> on the other. <br><b>May it be Your will</b> <br><b>that You will deliver us from their hands,</b> of both the evil inclination and the foreign kingdoms, <br>so that <b>we may return to perform the edicts of Your will with a perfect heart.</b>
+
+### Part 3
+<b>After his prayer, Rava said the following:</b> <br><b>My God, before I was created I was worthless,</b> <br><b>and now that I have been created it is as if I had not been created,</b> I am no more significant. <br><b>I am dust in life, all the more so in my death.</b> <br><b>I am before You as a vessel filled with shame and humiliation.</b> <br>Therefore, <b>may it be Your will, Lord my God, that I will sin no more,</b> <br><b>and that those</b> transgressions <b>that I have committed,</b> <br><b>cleanse in Your abundant mercy;</b> <br><b>but</b> may this cleansing <b>not</b> be <b>by means of suffering and serious illness,</b> but rather in a manner I will be able to easily endure. <br><b>And this is the confession of Rav Hamnuna Zuti on Yom Kippur.</b>
+
+### Part 4
+<b>When Mar, son of Ravina, would conclude his prayer, he said the following:</b> <br><b>My God, guard my tongue from evil and my lips from speaking deceit.</b> <br><b>To those who curse me let my soul be silent</b> <br><b>and may my soul be like dust to all.</b> <br><b>Open my heart to Your Torah,</b> <br><b>and may my soul pursue your mitzvot.</b> <br><b>And save me from a bad mishap, from the evil inclination,</b> <br><b>from a bad woman, and from all evils that suddenly come upon the world.</b> <br><b>And all who plan evil against me,</b> <br><b>swiftly thwart their counsel, and frustrate their plans.</b> <br><b>May the words of my mouth and the meditation of my heart find favor before You,</b> <br><b>Lord, my Rock and my Redeemer.</b>
+
+### Part 5
+The Gemara recounts that <b>when Rav Sheshet would sit in</b> observance of <b>a fast, after he prayed he said as follows:</b> <br><b>Master of the Universe, it is revealed before You</b> <br>that <b>when the Temple is standing, one sins and offers a sacrifice.</b> <br><b>And</b> although <b>only its fat and blood were offered from</b> that sacrifice on the altar, his transgression <b>is atoned for him.</b> <br><b>And now, I sat in</b> observance of <b>a fast and my fat and blood diminished.</b> <br><b>May it be Your will that my fat and blood that diminished be</b> considered as if <b>I offered</b> a sacrifice <b>before You on the altar,</b> <br><b>and may I find favor in Your eyes.</b><br>Having cited statements that various Sages would recite after their prayers, the Gemara cites additional passages recited by the Sages on different occasions.
+
+### Part 6
+<b>When Rabbi Yoḥanan would conclude</b> study of <b>the book of Job, he said the following:</b> <br><b>A person will ultimately die and an animal will ultimately be slaughtered, and all are destined for death.</b> Therefore, death itself is not a cause for great anguish. <br>Rather, <b>happy is he who grew up in Torah, whose labor is in Torah,</b> <br><b>who gives pleasure to his Creator,</b> <br><b>who grew up with a good name and who took leave of the world with a good name.</b> <br>Such a person lived his life fully, <b>and about him, Solomon said:</b> <br><b>“A good name is better than fine oil, and the day of death than the day of one’s birth”</b> (Ecclesiastes 7:1); one who was faultless in life reaches the day of his death on a higher level than he was at the outset.
+
+### Part 7
+<b>Rabbi Meir was wont to say</b> the following idiom: <br><b>Study with all your heart and with all your soul to know My ways</b> <br><b>and to be diligent at the doors of My Torah.</b> <br><b>Keep My Torah in your heart,</b> <br><b>and fear of Me should be before your eyes.</b> <br><b>Guard your mouth from all transgression,</b> <br><b>and purify and sanctify yourself from all fault and iniquity.</b> <br><b>And</b> if you do so, <b>I,</b> God, <b>will be with you everywhere.</b>
+
+### Part 8
+<b>The Sages in Yavne were wont to say:</b> <br><b>I</b> who learn Torah <b>am</b> God’s <b>creature and my counterpart</b> who engages in other labor <b>is</b> God’s <b>creature.</b> <br><b>My work is in the city and his work is in the field.</b> <br><b>I rise early for my work and he rises early for his work.</b> <br><b>And just as he does not presume to</b> perform <b>my work, so I do not presume to</b> perform <b>his work.</b> <br><b>Lest you say: I</b> engage in Torah study <b>a lot, while he</b> only engages in Torah study <b>a little,</b> so I am better than he, <br><b>it has</b> already <b>been taught:</b> <br><b>One who brings a substantial</b> sacrifice <b>and one who brings a meager</b> sacrifice have equal merit, <br><b>as long as he directs his heart towards Heaven</b> (Rav Hai Gaon, <i>Arukh</i>).
+
+### Part 9
+<b>Abaye was wont to say:</b> <br><b>One must always be shrewd</b> and utilize every strategy <b>in</b> order to achieve <b>fear</b> of Heaven and performance of mitzvot. <br>One must fulfill the verse: <b>“A soft answer turns away wrath”</b> (Proverbs 15:1) <br>and take steps to <b>increase peace with one’s brethren and with one’s relatives,</b> <br><b>and with all people, even with a non-Jew in the marketplace,</b> despite the fact that he is of no importance to him and does not know him at all (<i>Me’iri</i>), <br><b>so that he will be loved above</b> in God’s eyes, <br><b>pleasant below</b> in the eyes of the people, <br><b>and acceptable to all</b> of God’s <b>creatures.</b>
+
+### Part 10
+Tangentially, the Gemara mentions that <b>they said about Rabban Yoḥanan ben Zakkai that no one ever preceded him in</b> issuing a <b>greeting, not even a non-Jew in the marketplace,</b> as Rabban Yoḥanan would always greet him first.
+
+### Part 11
+<b>Rava was wont to say:</b> <br><b>The objective of</b> Torah <b>wisdom</b> is to achieve <b>repentance and good deeds;</b> <br><b>that one should not read</b> the Torah <b>and study</b> mishna and become arrogant <br><b>and spurn his father and his mother and his teacher</b> <br><b>and one who is greater than he in wisdom or in</b> the <b>number</b> of students who study before him, <br><b>as it is stated: “The beginning of wisdom is fear of the Lord, a good understanding have all who fulfill them”</b> (Psalms 111:10). <br><b>It is not stated</b> simply: <b>All who fulfill, but rather: All who fulfill them,</b> those who perform these actions as they ought to be performed, meaning <b>those who do</b> such deeds <b>for their own sake,</b> for the sake of the deeds themselves, <b>not those who do them not for their own sake.</b> <br>Rava continued: <b>One who does them not for their own sake,</b> it would have been <b>preferable for him had he not been created.</b>
+
+### Part 12
+<b>Rav was wont to say:</b> <br><b>The World-to-Come is not like this world.</b> <br><b>In the World-to-Come there is no eating, no drinking,</b> <br><b>no procreation, no</b> business <b>negotiations,</b> <br><b>no jealousy, no hatred, and no competition.</b> <br><b>Rather, the righteous sit with their crowns upon their heads, enjoying the splendor of the Divine Presence, as it is stated:</b> <br><b>“And they beheld God, and they ate and drank”</b> (Exodus 24:11), meaning that beholding God’s countenance is tantamount to eating and drinking.
+
+### Part 13
+The Gemara states: <b>Greater is the promise</b> for the future <b>made by the Holy One, Blessed be He, to women than to men, as it is stated: “Rise up, women at ease; hear My voice, confident daughters, listen to what I say”</b> (Isaiah 32:9). This promise of ease and confidence is not given to men.
+
+### Part 14
+<b>Rav said to Rabbi Ḥiyya:</b> By <b>what</b> virtue <b>do women merit</b> to receive this reward? Rabbi Ḥiyya answered: They merit this reward <b>for bringing their children to read</b> the Torah <b>in the synagogue, and for sending their husbands to study</b> mishna <b>in the study hall, and for waiting for their husbands until they return from the study hall.</b>
+
+### Part 15
+<b>When the Sages</b> who had been studying there <b>took leave of the study hall of Rabbi Ami, and some say</b> it was <b>the study hall of Rabbi Ḥanina, they would say to him the following</b> blessing: <br><b>May you see your world,</b> may you benefit from all of the good in the world, <b>in your lifetime,</b> <br><b>and may your end be to life in the World-to-Come,</b> <br><b>and may your hope</b> be sustained <b>for many generations.</b> <br>May <b>your heart meditate understanding,</b> <br><b>your mouth speak wisdom, and your tongue whisper with praise.</b> <br>May <b>your eyelids look directly before you,</b> <br><b>your eyes shine in the light of Torah,</b> <br><b>and your face radiate like the brightness of the firmament.</b> <br>May <b>your lips express knowledge,</b> <br><b>your kidneys rejoice in the upright,</b> <br><b>and your feet run to hear the words of the Ancient of Days,</b> God (see Daniel 7).
+
+### Part 16
+<b>When the Sages took leave of the study hall of Rav Ḥisda, and some say</b> it was <b>the study hall of Rabbi Shmuel bar Naḥmani, they would say to him the following,</b> in accordance with the verse: <b>“Our leaders are laden,</b> there is no breach and no going forth and no outcry in our open places” (Psalms 144:14).
+
+### Part 17
+<b>Our leaders are laden. Rav and Shmuel, and some say Rabbi Yoḥanan and Rabbi Elazar,</b> disputed the proper understanding of this verse. <b>One said: Our leaders in Torah are laden with mitzvot. And one said: Our leaders in Torah and mitzvot are laden with suffering.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

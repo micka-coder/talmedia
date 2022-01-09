@@ -1,0 +1,51 @@
+
+### Part 1
+<b>you do not revere Shabbat</b> itself, as reverence is not mentioned in this context, but <b>rather,</b> one reveres <b>He Who warned about</b> the observance of <b>Shabbat, so too,</b> the same applies to <b>the reverence stated</b> with regard <b>to the Temple: You do not revere the Temple</b> itself <b>but He Who warned about the Temple.</b>
+
+### Part 2
+The <i>baraita</i> explains: <b>And what is the reverence of the Temple?</b> In deference to the Temple, <b>a person may not enter the Temple Mount with his staff, his shoes, his money belt [<i>punda</i>], or</b> even <b>the dust on his feet. One may not make</b> the Temple <b>a shortcut [<i>kappendarya</i>]</b> to pass through it, <b>and through an <i>a fortiori</i></b> inference, all the more so <b>one may not spit</b> on the Temple Mount, as no disrespect is meant by the other actions, whereas spitting is repulsive even in one’s own private home, and certainly on the Temple Mount.
+
+### Part 3
+<b>And I have</b> derived <b>only</b> that one is obligated to act in this manner <b>when the Temple is standing. From where</b> do I derive that the mitzva to revere the Temple is in force <b>when the Temple is not standing,</b> i.e., that it is prohibited to be disrespectful toward the place where the Temple stood? <b>The verse states: “You shall keep My <i>Shabbatot</i>, and revere My Sanctuary”</b> (Leviticus 19:30). <b>Just as the keeping stated</b> with regard <b>to Shabbat</b> applies <b>forever, so too, the reverence stated</b> with regard <b>to the Temple is forever.</b>
+
+### Part 4
+§ With regard to the issue at hand, the Gemara has not yet found an explanation as to why a specific inference was required to teach that a positive mitzva overrides a prohibition that incurs <i>karet</i>. <b>Rather,</b> it might <b>enter your mind to say</b> that this claim might <b>be derived from</b> the <i>halakha</i> of <b>kindling, as the school of Rabbi Yishmael taught</b> with regard to the verse: <b>“You shall kindle no fire throughout your habitations</b> on Shabbat day” (Exodus 35:3). <b>What</b> is the meaning when <b>the verse states</b> this, as the general prohibition against performing labor on Shabbat appears elsewhere?
+
+### Part 5
+The Gemara expresses puzzlement at this question: <b>What</b> is the meaning when <b>the verse states</b> this? What kind of question is this? <b>If</b> the <i>halakha</i> is in accordance with the opinion <b>of Rabbi Yosei,</b> the verse comes to teach <b>that</b> one who kindles fire on Shabbat merely violates a regular <b>prohibition,</b> which does not entail the penalty of stoning, unlike other prohibited labors. <b>If</b> the <i>halakha</i> is in accordance with the opinion <b>of Rabbi Natan,</b> kindling was singled out <b>to divide</b> the various prohibited labors of Shabbat and to establish liability for the separate performance of each of them.
+
+### Part 6
+<b>As it is taught</b> in a <i>baraita</i>: The prohibition against <b>kindling was</b> singled <b>out</b> from the general category of prohibited labors and written explicitly to teach that it is unlike other prohibited labors, <b>as</b> it is a regular <b>prohibition,</b> which does not entail the punishment of stoning. This is <b>the statement of Rabbi Yosei. Rabbi Natan says:</b> Kindling is like any other labor prohibited on Shabbat, and <b>it was</b> singled out <b>to divide.</b> In other words, by stating one prohibited labor separately, the Torah teaches that each labor on Shabbat constitutes its own separate prohibition. Consequently, one who unwittingly violates several categories of labor is obligated to bring as many sin-offerings as the prohibited labors he violated.
+
+### Part 7
+<b>And Rava said</b> in explanation of the question asked by the school of Rabbi Yishmael: For this <b><i>tanna</i>,</b> the term <b>“habitations”</b> poses <b>a difficulty with regard to</b> his opinion. The <i>baraita</i> should be understood as follows: <b>What</b> is the meaning when <b>the verse states “habitations”?</b> What additional inference is indicated by this term, which might lead to the erroneous conclusion that this Shabbat prohibition applies only in certain places of habitation?
+
+### Part 8
+The Gemara explains why “habitations” cannot mean that Shabbat observance applies only in certain places. <b>Since Shabbat is an obligation</b> that applies <b>to the body,</b> i.e., to the individual himself and not to an external object, <b>and</b> there is a principle that <b>obligations of the body apply both in Eretz</b> Yisrael <b>and outside</b> of <b>Eretz</b> Yisrael, then <b>why do I</b> need the term <b>“habitations” that the Merciful One writes</b> with regard <b>to Shabbat?</b>
+
+### Part 9
+<b>A student said in the name of Rabbi Yishmael</b> that <b>since it is stated: “And if a man has committed a sin worthy of death, and he is put to death”</b> (Deuteronomy 21:22), <b>I</b> would <b>derive</b> that the death penalty is administered <b>whether on a weekday</b> or <b>on a Shabbat. And how do I establish</b> the verse: “And you shall keep Shabbat, for it is sacred to you; <b>every one who profanes it shall surely be put to death”</b> (Exodus 31:14)? This verse applies <b>to other</b> prohibited <b>labors, except for court-imposed capital punishment,</b> which must be administered even on Shabbat. <b>Or</b> perhaps <b>it is only</b> the case that <b>even court-imposed capital punishment</b> is included in the list of prohibited labors on Shabbat. <b>How,</b> then, <b>do I establish</b> the verse: <b>“And he is put to death”?</b> This is referring <b>to a weekday and not to Shabbat.</b>
+
+### Part 10
+Surprisingly, the <i>tanna</i> reverts back to his earlier claim: <b>Or</b> perhaps <b>it is only</b> the case that capital punishments may be administered <b>even on Shabbat?</b> Therefore, <b>the verse states</b> by way of a verbal analogy: <b>“You shall kindle no fire throughout your habitations</b> on Shabbat day” (Exodus 35:3) <b>and below it says,</b> at the end of the chapter dealing with murderers: <b>“And these things shall be for you a statute of judgment to you throughout your generations in all your habitations”</b> (Numbers 35:29).
+
+### Part 11
+<b>Just as</b> the term <b>“habitations” stated below,</b> in Numbers, means <b>in the court,</b> where judgment is performed, <b>so too,</b> the term <b>“habitations” stated here</b> means <b>in the court,</b> i.e., in the place where judges preside. <b>And the Merciful One states</b> in the Torah: <b>“You shall kindle no</b> fire.” Since one of the court-imposed death penalties is burning, which is performed by kindling fire, then evidently, court-imposed death penalties do not override Shabbat.
+
+### Part 12
+With the above conclusion in mind, the Gemara comments: <b>What, is it not</b> the case that the opinion of the school of Rabbi Yishmael is in accordance with that of <b>Rabbi Natan, who said</b> that the prohibition against kindling fire <b>was</b> singled <b>out to divide,</b> and therefore lighting a fire is punishable by <i>karet</i> and stoning? <b>And</b> if so, <b>the reason</b> why capital punishments are not administered on Shabbat is <b>that the Merciful One writes: “You shall kindle no</b> fire,” from which it may be inferred that <b>if it were not so,</b> then court-imposed capital punishment <b>would override</b> Shabbat. In other words, the positive mitzva of legal execution would override the prohibition against lighting a fire on Shabbat, which incurs <i>karet</i>.
+
+### Part 13
+The Gemara rejects this: <b>No,</b> there is no proof from here, as it can be claimed that the opinion of the <i>tanna</i> from the school of Rabbi Yishmael is in accordance with the opinion of <b>Rabbi Yosei</b> that kindling fire is an ordinary prohibition. The Gemara retorts: <b>And let it even be</b> according to the opinion of <b>Rabbi Yosei. You</b> can <b>say that</b> when <b>Rabbi Yosei said</b> that <b>kindling was</b> singled <b>out as a prohibition,</b> he was referring to <b>kindling alone,</b> i.e., that lighting a regular fire is only a regular prohibition.
+
+### Part 14
+Conversely, the <b>kindling by the court</b> for the execution of burning <b>is</b> actually the <b>cooking of</b> a leaden <b>wick.</b> Since execution by burning involves melting, or cooking, a piece of lead, called a wick, and pouring it into the mouth of the convict, it therefore constitutes the prohibited labor of cooking, which is a different prohibition than kindling fire.
+
+### Part 15
+<b>And Rav Sheshet said</b> in this regard: <b>What</b> difference <b>is</b> there <b>to me</b> between <b>cooking a wick,</b> which is performed for court-imposed capital punishments, and <b>what</b> difference <b>is</b> there <b>to me</b> between the <b>cooking of herbs</b> used to dye curtains for the Tabernacle, from whose work the list of prohibited labors on Shabbat is derived? Since the court-imposed death penalty involves the prohibited labor of cooking, which according to all opinions incurs <i>karet</i>, this apparently indicates that without the special verse that renders this prohibited, one would have said that a positive mitzva overrides a prohibition for which one is liable to receive <i>karet</i>.
+
+### Part 16
+The Gemara rejects this argument as well. <b>Rav Shimi bar Ashi said: This <i>tanna</i></b> does <b>not</b> raise the possibility that a court-administered death penalty might override Shabbat <b>because a positive mitzva comes and overrides a prohibition. Rather,</b> he entertains this option <b>because he learns this by</b> means of <b>an <i>a fortiori</i></b> inference, <b>and this is what</b> he <b>is saying: How do I establish</b> the verse <b>“Every one who profanes it shall surely be put to death”</b> (Exodus 31:14)? This applies <b>to other</b> prohibited <b>labors, except for court-imposed capital punishment. However,</b> it could be said that <b>court-imposed capital punishment overrides Shabbat, by an <i>a fortiori</i></b> inference:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

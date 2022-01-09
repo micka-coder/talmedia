@@ -1,0 +1,48 @@
+
+### Part 1
+“And if a woman has a discharge of her <i>ziva</i> blood for many days <b>not in the time of her menstruation,</b> or if she has a discharge beyond the time of her menstruation, all the days of the issue of her <i>ziva</i> she shall be as in the days of her menstruation: She is impure” (Leviticus 15:25). This verse teaches that a woman becomes a <i>zava</i> only if she experiences bleeding <b>close to</b> her days of <b>menstruation,</b> i.e., on the day following her days of menstruation, but not during her days of menstruation.
+
+### Part 2
+The <i>baraita</i> continues: <b>And I have</b> derived <b>only</b> that she is a <i>zava</i> in a case where she experiences bleeding <b>close to</b> her time of <b>menstruation. From where</b> do I derive that if she experiences bleeding <b>one day separated from</b> her days of <b>menstruation</b> she is also a <i>zava</i>? <b>The verse states: “Or if she has a discharge</b> beyond the time of her menstruation” (Leviticus 15:25).
+
+### Part 3
+The <i>baraita</i> further states: <b>I have</b> derived <b>only</b> that she is a <i>zava</i> in a case where she experiences bleeding <b>one day</b> away from her time of menstruation. <b>From where</b> is it derived <b>to include</b> a case when she experiences bleeding <b>two, three, four, five, six, seven, eight, nine,</b> or <b>ten</b> days <b>separated from</b> her days of menstruation that she is also a <i>zava</i>? <b>From where</b> is this derived?
+
+### Part 4
+<b>You say</b> as follows: <b>Just as we find</b> with regard to a woman who experiences bleeding <b>on</b> the <b>fourth</b> day of her days of <i>ziva</i>, <b>that</b> it <b>is fit for counting,</b> i.e., if she experiences bleeding for the first time on that day she must count one clean day for the one day that she experienced bleeding, <b>and</b> it <b>is fit for <i>ziva</i>,</b> i.e., if it is the last of three consecutive days of sightings that she becomes a greater <i>zava</i>, <b>so too I will bring</b> and include <b>the tenth</b> day, <b>as</b> it <b>is fit for counting</b> if she experiences bleeding for the first time on that day, <b>and fit for <i>ziva</i></b> if she experiences bleeding for the third consecutive day on the tenth day.
+
+### Part 5
+The <i>baraita</i> continues: <b>And from where</b> is it derived <b>to include</b> a case where she experiences bleeding on the <b>eleventh</b> day after her days of menstruation? <b>The verse states: “Not in the time of her menstruation”</b> (Leviticus 15:25). One <b>might</b> have thought <b>that I include even</b> the <b>twelfth</b> day after her period of menstruation. <b>You</b> must <b>say: No,</b> as that is no longer within her days of <i>ziva</i>.
+
+### Part 6
+The <i>baraita</i> further states: <b>And what did you see to include</b> the <b>eleventh</b> day <b>and to exclude</b> the <b>twelfth</b> day? <b>I include</b> the <b>eleventh</b> day <b>as it is fit for counting</b> the seven clean days that follow sightings on three consecutive days which ended on the fourth day, as derived from the verse: <b>“Or if she has a discharge</b> beyond the time of her menstruation” (Leviticus 15:25), as explained; <b>and I exclude</b> the <b>twelfth</b> day <b>as it is not fit for counting</b> the seven clean days after the fourth day, a requirement derived from the same verse: <b>“Or if she has a discharge</b> beyond the time of her menstruation.”
+
+### Part 7
+The <i>baraita</i> continues: <b>And I have</b> derived <b>only</b> that a woman is impure as a <i>zava</i> if she experiences bleeding for <b>three</b> consecutive <b>days. From where</b> do I derive that she is impure if she experiences bleeding for <b>two</b> consecutive <b>days?</b> The continuation of <b>the verse states:</b> “All the <b>days</b> of the issue of her <i>ziva</i> she shall be as in the days of her menstruation: She is impure” (Leviticus 15:25). The plural “days” indicates two days. <b>From where</b> is it derived that she is impure if she experiences bleeding on only <b>one day? The verse states: “All the days</b> of the issue of her <i>ziva</i> she shall be as in the days of her menstruation: She is impure.”
+
+### Part 8
+The <i>baraita</i> further explains that the word <b>“impure”</b> in that verse <b>teaches that</b> a <i>zava</i> <b>renders one who engages in intercourse with her impure,</b> just <b>like a menstruating woman</b> does. The term: <b>“She</b> is impure,” indicates that <b>she,</b> a <i>zava</i>, <b>renders</b> a man <b>who engages in intercourse with her impure, but a <i>zav</i> does not render</b> a woman <b>whom he engages in intercourse</b> with <b>ritually impure.</b>
+
+### Part 9
+One might have thought that one who engages in intercourse with a <i>zav</i> has the same status as one who engages in intercourse with a <i>zava</i>. Could <b>this not</b> be derived through an <i>a fortiori</i> <b>inference? And if</b> a <i>zava</i>, <b>who does not become impure through</b> three <b>sightings like</b> she becomes impure if she experiences bleeding <b>for</b> three consecutive <b>days,</b> and yet she <b>renders</b> a man <b>who engages in intercourse with her impure,</b> then with regard to a <i>zav</i>, <b>who becomes impure through</b> three <b>sightings</b> even on a single day <b>like</b> he becomes impure by seeing a discharge for three consecutive <b>days, isn’t it logical that he</b> should <b>render</b> a women <b>whom he engages in intercourse</b> with <b>ritually impure?</b> Therefore, <b>the verse states: “She</b> shall be impure.” This teaches that a <i>zava</i> <b>renders</b> a man <b>who engages in intercourse with her impure, but a <i>zav</i> does not render</b> a woman <b>whom he engages in intercourse</b> with <b>ritually impure.</b>
+
+### Part 10
+<b>And from where</b> is it derived <b>that</b> a <i>zava</i> <b>transmits impurity</b> to items designated for <b>lying or sitting? The verse states:</b> “Every bed which she lies on all the days of her discharge shall be for her <b>like the bed of her menstruation;</b> and everything that she sits on shall be impure, as the impurity of her menstruation” (Leviticus 15:26).
+
+### Part 11
+<b>And I have</b> derived <b>only</b> that she transmits impurity to items designated for lying or sitting if she experiences bleeding for <b>three</b> consecutive <b>days</b> and is a greater <i>zava</i>. <b>From where</b> do I derive that she transmits impurity to items designated for lying or sitting if she experiences bleeding for <b>two</b> consecutive <b>days</b> and is only a lesser <i>zava</i>? <b>The verse states “days.”</b> And <b>from where</b> do I derive that she transmits impurity to items designated for lying or sitting even if she experiences bleeding on only <b>one day? The verse states: “All the days</b> of her discharge.”
+
+### Part 12
+The <i>baraita</i> continues: <b>And from where</b> is it derived <b>that she counts one</b> clean day <b>for</b> experiencing bleeding on <b>one</b> day? <b>The verse states:</b> “All the days of her discharge <b>shall be for her.”</b> One <b>might</b> have thought that she <b>must count seven</b> clean days <b>for</b> experiencing bleeding on <b>two</b> consecutive days. <b>And this is a logical inference: Just as</b> a <i>zav</i>, <b>who does not count one</b> clean day if he sees a discharge <b>on one</b> day, nevertheless <b>must count seven</b> clean days if he sees a discharge <b>on two days,</b> then with regard to a <i>zava</i>, <b>who counts one</b> clean day if she experiences bleeding <b>on one</b> day, <b>isn’t it logical that</b> she should <b>count seven</b> clean days if she experiences bleeding <b>on two</b> consecutive days? <b>The verse states:</b> “All the days of her discharge <b>shall be for her,”</b> which teaches that <b>she counts only her</b> one <b>day</b> even if she experiences bleeding for two consecutive days.
+
+### Part 13
+The Gemara explains the difficulty from this <i>baraita</i>: <b>Evidently,</b> the <i>halakhot</i> of the eleven days of <i>ziva</i> <b>are</b> derived from <b>verses</b> and are not a <i>halakha</i> transmitted to Moses from Sinai. The Gemara answers: <b>According to</b> the opinion of <b>Rabbi Akiva</b> these <i>halakhot</i> are derived from <b>verses. According to</b> the opinion of <b>Rabbi Elazar ben Azarya</b> they are <b>a <i>halakha</i></b> transmitted to Moses from Sinai.
+
+### Part 14
+With regard to the verse discussing the days of <i>ziva</i>, <b>Rav Shemaya said to Rabbi Abba:</b> But one can <b>say</b> that if she experiences bleeding <b>during the daytime she shall be a <i>zava</i>,</b> but if she experiences bleeding <b>at night she shall be a menstruating woman,</b> as the verse specifies “days.” Rabbi Abba <b>said to him: With regard to your claim, the verse states: “Beyond the time of her menstruation”</b> (Leviticus 15:25), which teaches that she becomes a <i>zava</i> if she experiences bleeding <b>close to her</b> days of <b>menstruation. When is</b> the time <b>close to her</b> days of <b>menstruation? At night. And</b> with regard to an emission during this time <b>the</b> verse <b>calls her a <i>zava</i>.</b>
+
+### Part 15
+The Gemara concludes the tractate with a general statement with regard to Torah study. <b>The school of Elijah taught: Anyone who studies <i>halakhot</i> every day is guaranteed that he is destined for the World-to-Come, as it is stated: “His ways [<i>halikhot</i>] are eternal”</b> (Habakkuk 3:6). <b>Do not read</b> the verse as <b><i>halikhot</i>; rather,</b> read it as <b><i>halakhot</i>.</b> The verse indicates that the study of <i>halakhot</i> brings one to eternal life in the future world.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

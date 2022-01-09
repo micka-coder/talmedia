@@ -1,0 +1,21 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>Partners who wished to make a partition [<i>meḥitza</i>] in</b> a jointly owned <b>courtyard build the wall</b> for the partition <b>in the middle</b> of the courtyard. What is this wall fashioned from? In <b>a place where it is customary to build</b> such a wall with <b>non-chiseled stone [<i>gevil</i>],</b> or <b>chiseled stone [<i>gazit</i>],</b> or <b>small bricks [<i>kefisin</i>],</b> or <b>large bricks [<i>leveinim</i>], they must build</b> the wall with that material. <b>Everything is in accordance with the regional custom.</b>
+
+### Part 2
+If they build the wall with <b>non-chiseled stone, this</b> partner <b>provides three handbreadths</b> of his portion of the courtyard <b>and that</b> partner <b>provides three handbreadths,</b> since the thickness of such a wall is six handbreadths. If they build the wall with <b>chiseled stone, this</b> partner <b>provides two and a half handbreadths and that</b> partner <b>provides two and a half handbreadths,</b> since such a wall is five handbreadths thick. If they build the wall <b>with small bricks, this</b> one <b>provides two handbreadths and that</b> one <b>provides two handbreadths,</b> since the thickness of such a wall is four handbreadths. If they build <b>with large bricks, this</b> one <b>provides one and a half handbreadths and that</b> one <b>provides one and a half handbreadths,</b> since the thickness of such a wall is three handbreadths. <b>Therefore, if the wall</b> later <b>falls,</b> the assumption is that <b>the space</b> where the wall stood <b>and the stones belong to both of them,</b> to be divided equally.
+
+### Part 3
+<b>And similarly with regard to a garden,</b> in <b>a place where it is customary to build a partition</b> in the middle of a garden jointly owned by two people, and one of them wishes to build such a partition, the court <b>obligates</b> his neighbor to join in building the partition. <b>But with regard to</b> an expanse of <b>fields [<i>babbika</i>],</b> in <b>a place where it is customary not to build a partition</b> between two people’s fields, and one person wishes to build a partition between his field and that of his neighbor, the court <b>does not obligate</b> his neighbor to build such a partition.
+
+### Part 4
+<b>Rather, if</b> one person <b>wishes</b> to erect a partition, <b>he must withdraw into his own</b> field <b>and build</b> the partition there. <b>And he makes</b> a border <b>mark on the outer side</b> of the barrier facing his neighbor’s property, indicating that he built the entire structure of his own materials and on his own land. <b>Therefore, if the wall</b> later <b>falls,</b> the assumption is that <b>the space</b> where the wall stood <b>and the stones</b> belong only <b>to him,</b> as is indicated by the mark on the wall.
+
+### Part 5
+Nevertheless, in a place where it is not customary to build a partition between two people’s fields, <b>if they made</b> such a partition <b>with the agreement of the two of them, they build it in the middle,</b> i.e., on the property line, <b>and make</b> a border <b>mark on the one</b> side <b>and on the other</b> side. <b>Therefore, if the wall</b> later <b>falls,</b> the assumption is that <b>the space</b> where the wall stood <b>and the stones</b> belong <b>to both of them,</b> to be divided equally.
+
+### Part 6
+<strong>GEMARA:</strong> The Sages initially <b>assumed: What</b> is the meaning of the term <b><i>meḥitza</i></b> mentioned in the mishna? It means <b>a partition, as it is taught</b> in a <i>baraita</i>: Consider the case where <b>a partition of [<i>meḥitzat</i>] a vineyard</b> which separates the vineyard from a field of grain <b>was breached,</b> resulting, if the situation is not rectified, in the grain and grapes becoming items from which deriving benefit is prohibited due to the prohibition of diverse kinds planted in a vineyard. The owner of the field of grain may <b>say to</b> the owner of the vineyard: <b>Build a partition</b> between the vineyard and the field of grain. If the owner of the vineyard did so, and the partition <b>was breached again,</b> the owner of the field of grain may <b>say to him</b> again: <b>Build a partition.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

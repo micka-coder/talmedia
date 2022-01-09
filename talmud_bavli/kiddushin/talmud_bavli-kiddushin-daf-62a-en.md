@@ -1,0 +1,45 @@
+
+### Part 1
+<b>“You shall be devoured by the sword”</b> (Isaiah 1:20)? <b>Rava says:</b> This verse should be interpreted as if it states: You shall devour the sword, i.e., you shall eat food that harms the body like a sword, e.g., <b>coarse grains [<i>gelalenita</i>] of salt, hard barley bread, and onions. As the Master said: Dried bakery [<i>purnei</i>] bread</b> eaten <b>with salt and onions harms the body like swords.</b>
+
+### Part 2
+The Gemara asks: <b>Granted, according to</b> the opinion of <b>Rabbi Ḥanina ben Gamliel, this is</b> the reason <b>that it is written</b> with regard to a <i>sota</i>: <b>“If no man has lain with you, and if you have not gone aside to uncleanness, being under your husband, you shall be free [<i>hinnaki</i>]”</b> (Numbers 5:19), without specifying the negative side of this condition. <b>But according to</b> the opinion of <b>Rabbi Meir,</b> the verse <b>should have</b> stated: And if a man has lain with you, <b>you should choke [<i>ḥinnaki</i>]</b> and die. According to the opinion of Rabbi Meir, the verse should have clarified the other side of the condition and its ensuing punishment. <b>Rabbi Tanḥum said:</b> Indeed, a truncated form of <b><i>hinnaki</i></b> without the letter <i>yod</i> <b>is written.</b> This indicates that the word should be interpreted in two ways, as both <i>hinnaki</i> and <i>ḥinnaki</i>.
+
+### Part 3
+The Gemara continues: <b>Granted, according to</b> the opinion of <b>Rabbi Meir, this is</b> the reason <b>that it is written <i>hinnaki</i></b> without the <i>yod</i>, to allude to the other side of the condition. <b>But according to</b> the opinion of <b>Rabbi Ḥanina ben Gamliel, why do I</b> need this word to be written in this way? The Gemara answers: It is <b>necessary,</b> as it might <b>enter your mind to say: If no man has lain with you, you shall be free, and if he has lain</b> with you, you should <b>neither be free nor choke; rather,</b> it is <b>merely a prohibition</b> that does not warrant a severe punishment. The unusual form of the term <i>hinnaki</i> <b>teaches us</b> that this is not the case.
+
+### Part 4
+<b>Granted, according to</b> the opinion of <b>Rabbi Meir, this is</b> the reason <b>that it is written,</b> with regard to one being purified with the water of purification from contact with a corpse: <b>“He shall purify himself with it on the third day and on the seventh day, and he shall be pure; but if he does not purify himself</b> on the third day and on the seventh day he shall not be pure” (Numbers 19:11–12). <b>But according to</b> the opinion of <b>Rabbi Ḥanina ben Gamliel, why do I</b> need this double formulation?
+
+### Part 5
+The Gemara answers: It is <b>necessary,</b> as it might <b>enter your mind to say: The mitzva of sprinkling</b> the water of purification must be performed <b>on the third and seventh</b> days <i>ab initio</i>, <b>but if he performed</b> it <b>on one of them</b> alone, the ritual is considered <b>performed</b> and he is purified after the fact. The verse therefore <b>teaches us</b> that this is not the case.
+
+### Part 6
+The Gemara asks about a later verse in the same chapter: <b>“And the pure shall sprinkle on the impure on the third day and on the seventh day”</b> (Numbers 19:19). <b>Why do I</b> need this repetition of the command? This was already stated earlier. The Gemara answers: It is <b>necessary,</b> as it might <b>enter your mind to say</b> that the <b>third</b> day <b>excludes</b> the <b>second,</b> i.e., he cannot receive the sprinkling of the water of purification before the third day, and similarly the <b>seventh excludes</b> the <b>sixth</b> day, <b>because he</b> thereby <b>decreases the days of purity</b> before the sprinkling. <b>But if he performed</b> the sprinkling <b>on the third and on the eighth</b> days, <b>in</b> which case <b>he increases</b> and adds <b>to the days of purity,</b> you might <b>say</b> that this is <b>proper.</b> The verse therefore <b>teaches us</b> that there must be a fixed interval of four days between each sprinkling ritual.
+
+### Part 7
+The Gemara further analyzes this verse: <b>Why do I</b> need the phrase: <b>“And on the seventh day he shall purify him”</b> (Numbers 19:19)? The Gemara answers: It is <b>necessary,</b> as it might <b>enter your mind to say: This matter,</b> i.e., the requirement to receive the sprinkling twice, <b>applies</b> only <b>for</b> eating and touching <b>consecrated</b> meat; <b>but for</b> partaking of <b><i>teruma</i> one</b> sprinkling is <b>also sufficient.</b> The verse therefore <b>teaches us</b> that this is not the case.
+
+### Part 8
+<strong>MISHNA:</strong> With regard to <b>one who betroths a woman and</b> later <b>says:</b> When I betrothed her <b>I thought that she was the daughter of a priest, and</b> it turned out that <b>she is the daughter of a Levite,</b> or if he claims that he thought she was <b>the daughter of a Levite and she is</b> actually <b>the daughter of a priest,</b> or if he claims that he thought she was <b>poor and she is wealthy;</b> or <b>wealthy and she is poor,</b> in all of these cases <b>she is betrothed, because she did not mislead him,</b> and no explicit condition was stated with regard to these matters.
+
+### Part 9
+With regard to <b>one who says to a woman: You are hereby betrothed to me after I convert, or: After you convert,</b> or if he was a Canaanite slave and says: <b>After I am emancipated, or</b> if she was a Canaanite maidservant and he says: <b>After you are emancipated,</b> or if he says to a married woman: <b>After your husband dies, or</b> to his wife’s sister: <b>After your sister dies,</b> or if he says to a woman awaiting levirate marriage or <i>ḥalitza</i> from a brother-in-law [<i>yavam</i>], who in the opinion of this <i>tanna</i> cannot be betrothed by another man: <b>After your <i>yavam</i> performs <i>ḥalitza</i> for you,</b> in all these cases <b>she is not betrothed.</b> Since he cannot betroth her at the present time, his attempt at betrothal is ineffective.
+
+### Part 10
+<b>And similarly,</b> with regard to <b>one who says to another: If your wife gives birth to a female</b> the child <b>is hereby betrothed to me,</b> even if she becomes pregnant, or is pregnant but her pregnancy is not known, if she gives birth to a girl, that child <b>is not betrothed</b> to him. But <b>if</b> he said this when <b>the wife of the other</b> man <b>was pregnant and her fetus was discernible</b> at the time, i.e., her pregnancy was known, <b>his statement is upheld, and</b> therefore <b>if she gives birth to a girl,</b> the child <b>is betrothed</b> to him.
+
+### Part 11
+<strong>GEMARA:</strong> <b>We learned</b> in a mishna <b>there</b> (<i>Terumot</i> 1:5): <b>One may not separate <i>teruma</i> from</b> produce that has been <b>detached</b> from the ground <b>for,</b> i.e., to render permitted, produce that is <b>attached</b> to the ground. Produce still attached to the ground is not included in the obligation of <i>teruma</i>. <b>And if he separated <i>teruma</i></b> in this manner, <b>his <i>teruma</i> is not <i>teruma</i>,</b> even after the produce has been detached from the ground.
+
+### Part 12
+<b>Rav Asi raised a dilemma before Rabbi Yoḥanan: What is</b> the <i>halakha</i> if one <b>said: The detached produce of this garden bed should be <i>teruma</i> for the attached produce of this garden bed;</b> or: <b>The attached produce of this garden bed should be <i>teruma</i> for the detached produce of this garden bed,</b> not now but <b>when they will be detached; and</b> the produce <b>was</b> subsequently <b>detached?</b> Rabbi Yoḥanan <b>said to him: Anything that is in one’s power</b> to perform <b>is not considered lacking</b> in its <b>action.</b> Since he could theoretically detach the produce at this very moment, <i>teruma</i> can be separated from it.
+
+### Part 13
+Rav Asi <b>raised an objection to</b> the opinion of Rabbi Yoḥanan from the mishna. With regard to <b>one who says to a woman: You are hereby betrothed to me after I convert,</b> or: <b>After you convert,</b> or: <b>After I am emancipated,</b> or: <b>After you are emancipated,</b> or: <b>After your husband dies,</b> or: <b>After your sister dies,</b> or: <b>After your <i>yavam</i> performs <i>ḥalitza</i> for you,</b> in all of these cases <b>she is not betrothed.</b>
+
+### Part 14
+Rav Asi explains his objection: <b>Granted,</b> in <b>all</b> of <b>these</b> cases but one <b>it is not in his power</b> to bring about the situation when he will be able to betroth her, <b>but</b> in the case of <b>a convert,</b> the matter <b>is in his power,</b> as he could convert now if he so chooses. According to the opinion of Rabbi Yoḥanan, any action that could potentially be performed is considered as though it has actually been performed. The Gemara responds: In the case of <b>a convert, it is also not in his power</b> to convert whenever he wants, <b>as Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

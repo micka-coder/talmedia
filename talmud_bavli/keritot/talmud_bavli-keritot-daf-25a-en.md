@@ -1,0 +1,66 @@
+
+### Part 1
+<b>Rabbi Yannai says: I heard</b> an answer with regard to the <b>boundary,</b> i.e., the stage, beyond which <b>it</b> is prohibited, <b>but I have forgotten</b> what it is; <b>and</b> the members of the <b>group</b> of Sages <b>were inclined to say</b> that <b>its descent to</b> the <b>rough,</b> dried-up <b>stream,</b> where its neck is broken, is the action that <b>renders it prohibited.</b>
+
+### Part 2
+<b>Rav Hamnuna said: From where do I say</b> that the prohibition takes effect when the animal is alive? I say it from that <b>which we learned</b> in a mishna (<i>Ḥullin</i> 81b): With regard to one <b>who slaughters the</b> red <b>heifer of purification, or an ox that</b> was sentenced to be <b>stoned, or a heifer whose neck is broken,</b> all of which are animals from which deriving benefit is prohibited, <b>Rabbi Shimon exempts</b> one who slaughters them from receiving lashes for violating the prohibition of the slaughter of a mother and its offspring, if the mother was slaughtered on that same day; <b>and the Rabbis deem</b> him <b>liable.</b>
+
+### Part 3
+Rav Hamnuna explains his proof: <b>Granted, according to my</b> opinion, <b>that I say</b> the prohibition takes effect <b>from</b> the time when the animal is <b>alive, Rabbi Shimon and the Rabbis disagree with regard to this</b> matter, as <b>Rabbi Shimon holds: Slaughter that does not</b> render the animal <b>fit</b> for consumption <b>is not considered slaughter.</b> The slaughter of the heifer does not render it fit for consumption, as it was already prohibited to derive benefit from the animal while it is alive. Therefore, he does not violate the prohibition against slaughtering a mother and its offspring.
+
+### Part 4
+Rav Hamnuna continues: <b>And the Rabbis say: Slaughter that does not</b> render the animal <b>fit</b> for consumption <b>is considered slaughter,</b> and therefore he is liable for the slaughter of a mother and its offspring. <b>But if you say</b> that the prohibition does not take effect until <b>after the breaking of the neck</b> of the heifer, <b>why does Rabbi Shimon exempt</b> him; <b>it is a slaughter that</b> renders the animal <b>fit</b> for consumption?
+
+### Part 5
+<b>And if you would say</b> the reason is that <b>Rabbi Shimon holds</b> that one who performs the breaking of the neck of the <b>heifer by slaughter</b> has performed the mitzva in <b>a fit</b> manner, and consequently that slaughter rendered the heifer prohibited with regard to deriving benefit from it and it is therefore unfit for consumption, that suggestion cannot be correct. <b>Didn’t we learn</b> in a mishna (<i>Ḥullin</i> 23b): That which is <b>fit in</b> a red <b>heifer</b> is <b>unfit in a heifer</b> whose neck is broken; that which is <b>fit in a heifer</b> whose neck is broken is <b>unfit in</b> a red <b>heifer.</b> How so? With regard to the red <b>heifer,</b> it is <b>fit with slaughter;</b> it is <b>unfit with breaking the neck.</b> With regard to the <b>heifer</b> whose neck is to be broken, it is <b>fit with breaking the neck;</b> it is <b>unfit with slaughter.</b>
+
+### Part 6
+Rava, who holds that the prohibition takes effect only from when the heifer’s neck is broken, <b>was silent,</b> as he had no immediate answer. <b>After</b> Rav Hamnuna <b>left</b> the study hall, Rava <b>said: What is the reason I did not say to him that Rabbi Shimon</b> disagrees with the ruling of that mishna and <b>holds</b> that a heifer whose neck is to be broken is <b>fit</b> even if it is killed <b>by slaughtering?</b>
+
+### Part 7
+The Gemara notes: <b>But</b> if Rava had given that answer, <b>Rav Hamnuna</b> could have <b>said to you</b> in response to that claim: The mishna would <b>not have left out</b> the opinion of <b>the <i>tanna</i> who teaches us</b> that <b>a heifer</b> whose neck is to be broken is <b>fit</b> if it is killed <b>by slaughtering.</b> In other words, there should be some source for this opinion, and in the absence of a source, there is no basis <b>for saying</b> that this <b>is</b> the opinion of <b>Rabbi Shimon.</b>
+
+### Part 8
+<b>Rava said: From where do I say</b> that the prohibition takes effect when the animal’s neck is broken? I say it <b>from that</b> which <b>we learned</b> in the mishna: In the case of <b>a heifer whose neck is broken,</b> that is <b>not so;</b> if the identity of the murderer is discovered <b>before</b> the heifer’s <b>neck was broken, it shall go out and graze among the flock,</b> as it is not consecrated, like all other animals. <b>And if you say</b> that the prohibition takes effect <b>from</b> the time when the animal is <b>alive, why</b> does <b>it go out and graze among the flock? Wasn’t</b> the animal <b>prohibited</b> already <b>from</b> when it was <b>alive?</b>
+
+### Part 9
+The Gemara rejects this proof: One should <b>teach</b> the mishna as follows: If the identity of the murderer is discovered <b>before</b> the heifer <b>was fit for having</b> its <b>neck broken,</b> i.e., before it descended to a rough, dried-up stream, it shall go out and graze among the flock, but after that time it is prohibited to derive benefit from the animal. Rava raises a further difficulty: <b>Say the latter clause</b> of the mishna: But if the identity of the murderer was discovered <b>after</b> the heifer’s <b>neck was broken, it shall be buried in its place.</b> This indicates that the prohibition takes effect only after the heifer’s neck is broken. The Gemara rejects this proof in a similar manner: <b>Teach</b> that the mishna says: If the identity of the murderer was discovered <b>after</b> the heifer <b>was fit for having</b> its <b>neck broken</b> it shall be buried.
+
+### Part 10
+Rava continues to ask: <b>If so, say the latter clause</b> of the mishna: The reason for this <i>halakha</i> is <b>that from the outset,</b> the heifer whose neck is broken <b>comes</b> to atone <b>for</b> a situation of <b>uncertainty.</b> If its neck was broken before the identity of the murderer was revealed, its mitzva was fulfilled, as <b>it atoned for its uncertainty and</b> that uncertainty <b>is gone. And if</b> the mishna is discussing a case <b>where</b> the animal is <b>alive,</b> the heifer <b>has still not atoned</b> for <b>its uncertainty.</b> Rather, it is clear from the last clause of the mishna that the prohibition takes effect when the heifer’s neck is broken.
+
+### Part 11
+The Gemara explains: Although it is evident that the mishna rules that the prohibition takes effect when the heifer’s neck is broken, this matter <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i> in accordance with the opinion of Rav Hamnuna: It <b>is stated</b> in the Torah that there are offerings that <b>enable</b> one to partake of sacrificial foods, e.g., the guilt offering of a leper, <b>and</b> there are offerings that <b>atone,</b> e.g., a sin offering or guilt offering, all of which are brought <b>inside</b> the Temple. <b>And</b> it <b>is</b> also <b>stated</b> in the Torah that there are offerings that <b>enable</b> one to partake of sacrificial foods, e.g., the birds of a leper’s purification ritual, <b>and</b> offerings that <b>atone,</b> e.g., the heifer whose neck is broken, that are brought <b>outside</b> the Temple.
+
+### Part 12
+The <i>baraita</i> continues: Therefore, the offerings brought outside the Temple are compared to those offered inside: <b>Just as</b> with regard to the offerings that <b>enable or atone which are stated</b> in the Torah that are sacrificed <b>inside</b> the Temple, the Torah <b>made</b> the offering that <b>enables like</b> the offering that <b>atones,</b> as even the former has portions of it that are burned on the altar, <b>so too,</b> with regard to offerings that <b>enable or atone which are stated</b> in the Torah that are sacrificed <b>outside</b> the Temple, the Torah <b>made</b> the offering that <b>enables,</b> e.g., the birds of a leper, <b>like</b> the offering that <b>atones,</b> e.g., the heifer whose neck is broken, in that one is prohibited from deriving benefit from either while they are still alive. According to this <i>baraita</i>, the heifer whose neck is broken is prohibited while it is still alive.
+
+### Part 13
+<strong>MISHNA:</strong> <b>Rabbi Eliezer says: A person may volunteer</b> to bring <b>a provisional guilt offering every day and at any time that he chooses,</b> even if there is no uncertainty as to whether he sinned, and <b>this</b> type of offering <b>was called the guilt offering of the pious,</b> as they brought it due to their constant concern that they might have sinned. <b>They said about Bava ben Buta that he would volunteer</b> to bring <b>a provisional guilt offering every day except for one day after Yom Kippur,</b> when he would not bring the offering.
+
+### Part 14
+Bava ben Buta <b>said:</b> I take an oath by <b>this abode</b> of the Divine Presence that <b>if they would have allowed me, I would have brought</b> a guilt offering even on that day. <b>But they</b> would <b>say to me: Wait until you enter into</b> a situation of potential <b>uncertainty. And the Rabbis say: One brings a provisional guilt offering only</b> in a case where there is uncertainty as to whether he performed a sin for <b>whose intentional</b> performance one is liable to receive <b><i>karet</i> and</b> for <b>whose unwitting</b> performance one is liable to bring <b>a sin offering.</b>
+
+### Part 15
+Those <b>liable</b> to bring <b>sin offerings and definite guilt offerings for whom Yom Kippur has passed are liable to bring</b> them <b>after Yom Kippur.</b>By contrast, those <b>liable</b> to bring <b>provisional guilt offerings are exempt</b> from bringing them after Yom Kippur. With regard to <b>one who encountered uncertainty</b> as to <b>whether</b> he performed <b>a sin on Yom Kippur, even if</b> it was <b>at nightfall</b> at the end of the day, he is <b>exempt, as the entire day atones</b> for uncertain sins.
+
+### Part 16
+<b>A woman upon whom</b> it is incumbent to bring <b>a bird sin offering</b> due to <b>uncertainty,</b> e.g., uncertainty with regard to whether or not her miscarriage obligated her to bring the sin offering of a woman who gave birth, <b>for whom Yom Kippur has passed, is liable to bring</b> it <b>after Yom Kippur.</b> This is <b>because</b> the offering does not come as atonement for a sin; rather, <b>it renders</b> her <b>eligible to partake</b> of the meat <b>of offerings.</b> With regard to this <b>bird sin offering that is brought due to uncertainty, if it became known</b> to her that she was exempt from bringing the offering <b>after</b> the nape of the neck of the bird <b>was pinched,</b> the bird <b>must be buried.</b>
+
+### Part 17
+<strong>GEMARA:</strong> <b>What is the reason that Rabbi Eliezer</b> holds that one may volunteer to bring a provisional guilt offering every day and at any time that he chooses? <b>If it enters your mind</b> that a provisional guilt offering <b>is obligatory,</b> then <b>why does he bring a sin offering when it becomes known to him</b> that he sinned? In that case, he has already fulfilled his obligation by sacrificing a provisional guilt offering. <b>Rather, conclude from this</b> inference that a provisional guilt offering <b>is a gift</b> offering.
+
+### Part 18
+<b>And the Rabbis</b> would respond: <b>It is a burnt offering and a peace offering that come as a vow and gift</b> offering, <b>but a sin offering and a guilt offering,</b> including a provisional guilt offering, <b>are obligatory. And</b> as for <b>a provisional guilt offering, this is the reason that he brings</b> it <b>before</b> his sin <b>is known to him:</b> It is not to achieve atonement, but <b>to protect him</b> from suffering until his sin is known to him, <b>as the Torah spared the bodies of the Jewish people</b> by commanding them to bring this offering.
+
+### Part 19
+<b>Rav Aḥa, son of Rava, said to Rav Ashi:</b> According to the opinion of the Rabbis, one can suggest that <b>perhaps a provisional guilt offering is like a burnt offering and a peace offering: Just as a burnt offering and a peace offering</b> sometimes <b>come as obligatory</b> offerings, e.g., the Festival peace offering and the burnt offering of appearance brought on the pilgrimage Festivals, <b>and they</b> sometimes <b>come as gift</b> offerings, likewise, <b>a provisional guilt offering also</b> sometimes <b>comes as an obligatory</b> offering and sometimes <b>comes as a gift</b> offering <b>as well.</b>
+
+### Part 20
+Rav Ashi <b>said to</b> Rav Aḥa, son of Rava: <b>A burnt offering and a peace offering are primarily written,</b> i.e., discussed, in the context <b>of a gift</b> offering, and they are brought as obligatory offerings only in specific cases mentioned explicitly in the Torah. By contrast, <b>a provisional guilt offering is primarily written</b> in the context <b>of an obligatory</b> offering, similar to a sin offering and a guilt offering.
+
+### Part 21
+<b>Rabbi Ḥiyya teaches before Rava:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

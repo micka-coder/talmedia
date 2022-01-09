@@ -1,0 +1,60 @@
+
+### Partie 1
+par consequent, meme <b>si elles ne sont plus</b> <b>adaptees</b> a etre sacrifiees en tant qu'holocaustes obligatoires,</b> pour lesquels elles ont ete consacrees a l'origine, ayant maintenant ete abattues non pour elles-memes <b>elles peuvent</b> encore <b>etre sacrifiees en tant qu'holocaustes volontaires,</b> sans avoir besoin de remplir les conditions supplementaires qui s'appliquaient a l'origine. <b>Mais ici,</b> en ce qui concerne l'offrande de culpabilite d'un lepreux, <b>si vous ne la maintenez pas conformement a son</b> <b>statut</b> originel et que vous exigez qu'elle soit apportee avec ses libations, elle ne peut plus du tout etre consideree comme une offrande de culpabilite, car <b>il existe une offrande de culpabilite volontaire?</b>.
+
+### Partie 2
+La Guemara note qu'il <b>est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'avis <b>de Rabbi Yohanan : </b> Dans le cas d'une <b>offrande de culpabilite d'un lepreux que l'on n'a pas egorgee pour elle-meme, ou</b> dans un cas <b>ou l'on n'a pas place</b> un peu de <b>son sang sur</b> le <b>pouce et le gros orteil droits du lepreux, cette</b> offrande de culpabilite <b>est</b> encore <b>amenee sur l'autel et necessite des libations,</b> c'est-a-dire. e., une offrande de repas et une libation de vin ; <b>mais</b> comme il a ete sacrifie de maniere incorrecte, le lepreux <b>doit</b> apporter <b>une autre offrande de culpabilite pour lui permettre</b> de participer aux offrandes.
+
+### Partie 3
+<strong>MISHNA :</strong> <b>Tous les vases a mesurer qui se trouvaient dans le Temple etaient</b> tels qu'ils contenaient le volume qu'ils mesuraient lorsque leur contenu etait <b>en tas</b> au-dessus du bord, <b>sauf pour</b> le vase a mesurer utilise pour mesurer la farine destinee a l'offrande du gateau a la plancha <b>du Grand Pretre, comme sa mesure en tas</b>, c'est-a-dire, la quantite de farine contenue dans un dixieme d'epha lorsqu'elle etait entassee, <b>etait contenue dans ses</b> parois lorsque la farine etait au niveau du bord. Cela est du au fait que le recipient de mesure pour l'offrande de gateaux a la plancha etait legerement plus grand que le dixieme de recipient de mesure d'un epha.
+
+### Partie 4
+En ce qui concerne les <b>recipients a mesurer pour les liquides, leurs debordements,</b> c'est-a-dire ce qui s'ecoule sur l'exterieur des parois du recipient, <b>sont sacres, mais</b> en ce qui concerne les <b>recipients a mesurer pour les substances seches</b>, <b>leurs debordements sont non sacres.</b>
+
+### Partie 5
+<b>Rabbi Akiva dit</b> que la raison de cette difference est que puisque les <b>recipients de mesure pour les liquides</b> sont eux-memes <b>sacres, donc leurs debordements sont sacres,</b> et que les <b>recipients de mesure pour les substances seches</b> sont <b>non sacres, donc leurs debordements sont non sacres. Rabbi Yosei dit :</b> La difference n'est <b>pas due a ce</b> facteur. <b>C'est plutot</b> parce que le debordement</b> de <b>liquide</b> se trouvait a l'origine a l'interieur du recipient, ou il est devenu consacre, et <b>a ete</b> ensuite <b>deplace,</b> alors que <b>le</b> debordement d'une <b>substance seche</b> <b>n'a pas ete deplace</b> de l'interieur du recipient, il n'etait donc pas devenu consacre.
+
+### Partie 6
+<strong>GEMARA:</strong> La mishna et la Gemara sur 87a citent un differend entre les rabbins et Rabbi Meir concernant le nombre et la nature des recipients de mesure utilises pour les substances seches. A la lumiere de ce differend, la Guemara demande : En accord avec <b>de qui</b> l'opinion est la mishna ici ? <b>Si</b> vous suggerez qu'elle est conforme a l'opinion de <b>Rabbi Meir,</b> c'est difficile : il soutient qu'il y avait deux recipients a mesurer qui contenaient un dixieme d'epha, mais seulement <b>un</b> d'entre eux <b>etait</b> tel qu'il gardait sa mesure <b>lorsqu'il etait entasse;</b> l'autre gardait sa mesure lorsqu'il etait nivele. Et <b>si</b> vous suggerez que c'est en accord avec l'opinion des <b>Rabbins,</b> c'est difficile : ils soutiennent <b>qu'il n'y avait</b> qu'un <b>un</b> recipient a mesurer qui contenait un dixieme d'epha, <b>et</b> il tenait sa mesure lorsqu'il etait <b>nivele.</b> Comment la mishna peut-elle affirmer que tous les recipients a mesurer du Temple etaient entasses ?
+
+### Partie 7
+<b>Rav Hisda a dit : En fait,</b> la mishna est en accord avec l'opinion de <b>Rabbi Meir</b> selon laquelle un seul des deux recipients a mesurer qui contenaient un dixieme d'epha etait tel qu'il gardait sa mesure lorsqu'il etait entasse. <b>Et que</b> veut dire la mishna lorsqu'elle declare : <b>Tous les vases a mesurer [<i>kol middot</i>]</b> du Temple etaient entasses ? Elle signifie que <b>toutes les mesures [<i>kol medidot</i>]</b> effectuees avec ce recipient a mesurer l'ont ete lorsque son contenu etait entasse au-dessus de son bord.
+
+### Partie 8
+§ La mishna discute du statut des debordements : Le premier <i>tanna</i> indique simplement qu'en ce qui concerne les <b>recipients a mesurer pour les liquides, leurs debordements sont sacres,</b> mais qu'en ce qui concerne les recipients a mesurer pour les substances seches, leurs debordements sont non sacres. Rabbi Akiva explique que cette distinction est fonction du fait que le recipient de mesure est lui-meme sacre. Rabbi Yosei explique qu'elle est fonction du fait que le trop-plein se trouvait initialement a l'interieur du recipient. La Guemara demande : <b>A propos de quelle</b> question <b>ces trois <i>tannaim</i> <b>sont en desaccord ?</b>
+
+### Partie 9
+La Guemara explique : <b>Le premier <i>tanna</i> soutient</b> que les recipients de <b>mesure</b> pour les elements <b>liquides</b>, par exemple le vin pour les libations et l'huile, etaient <b>designes</b> et donc consacres <b>a la fois sur</b> l'<b>interieur et sur</b> l'<b>exterieur.</b> Par consequent, le trop-plein est consacre lorsqu'il entre en contact avec l'exterieur des parois du recipient. Les recipients de <b>mesure</b> pour les articles <b>secs</b>, comme la farine pour les offrandes de farine, <b>etaient oints</b> et consacres seulement <b>sur</b> l'<b>interieur, mais n'etaient pas oints sur</b> l'<b>exterieur.</b> Par consequent, le trop-plein n'est pas consacre lorsqu'il entre en contact avec l'exterieur des parois du recipient.
+
+### Partie 10
+<b>Et Rabbi Akiva,</b> qui affirme que la difference est due au fait que le recipient est sacre ou non sacre, <b>soutient</b> que les recipients de <b>mesure</b> pour les objets <b>liquides</b> <b>ont ete oints</b> a l'<b>interieur et n'ont pas ete oints a</b> l'<b>exterieur, </b> tandis que les <b>vases de mesure</b> pour les articles <b>secs</b> <b>n'ont pas ete oints du tout,</b> et ils sont restes non sacres et n'ont donc pas pu consacrer le trop-plein.
+
+### Partie 11
+<b>Et Rabbi Yosei soutient</b> que <b>ceci et cela,</b> c'est-a-dire, les deux types de recipients de mesure, <b>etaient oints</b> seulement <b>a l'interieur mais n'etaient pas oints a l'exterieur, et</b> donc <b>ici, c'est la raison</b> qui explique si le debordement etait sacre : <b>Comme</b> le debordement <b>de liquide</b> etait a l'origine a l'interieur du recipient et <b>a ete</b> ensuite <b>deplace, et qu'il provient de l'interieur du recipient,</b> il est donc consacre. <b>Mais le</b> debordement d'une <b>substance seche</b> <b>n'etait pas</b> a l'origine a l'interieur du vase et ensuite <b>deplace,</b> il n'est donc jamais consacre.
+
+### Partie 12
+La Guemara remet en question cette explication de l'opinion de Rabbi Yosei : <b>Mais</b> meme <b>si</b> le trop-plein <b>etait</b> auparavant a l'interieur du recipient et ensuite <b>deplace, qu'en est-il ? Une personne a l'intention</b> de ne consacrer que <b>ce dont elle a besoin,</b> et donc meme si le trop-plein avait ete a l'interieur du recipient, il n'aurait pas ete consacre.
+
+### Partie 13
+<b>Rav Dimi bar Shishna a dit au nom du Rav : C'est-a-dire</b> que les <b>recipients de service consacrent</b> leur contenu meme <b>sans</b> l'<b>intention</b> de celui qui les utilise. <b>Ravina a dit : En fait, je te dirai</b> que les <b>vases de service consacrent</b> leur contenu <b>uniquement avec</b> l'<b>intention</b> de la personne qui les utilise, et par la loi de la Torah, les debordements ne sont pas sacres. <b>Mais</b> les Sages ont emis <b>un decret</b> pour les considerer comme sacres, <b>de peur</b> que les gens <b>disent</b> que <b>on peut transferer</b> une substance qui a ete consacree <b>dans un recipient de service vers un statut non sacre</b>.
+
+### Partie 14
+<b>Rabbi Zeira souleve une objection</b> a cette explication a partir d'une mishna (100a) : Chaque Chabbat, de nouveaux pains solaires et des bols d'encens etaient disposes sur la Table dans le Sanctuaire. Ils y restaient jusqu'au Chabbat suivant, moment ou l'encens etait brule, ce qui permettait de manger les pains de mie. Si le pretre <b>arrangeait le pain et les bols</b> d'encens sur la Table <b>apres Chabbat,</b> pendant la semaine, <b>et</b> ensuite <b>il brulait l'encens</b> dans les <b>bols le</b> <b>Chabbat</b> a la fin de cette semaine, le pain est <b>disqualifie,</b> car il n'avait pas ete sur la Table pendant sept jours complets d'un Chabbat a l'autre. <b>Comment</b> alors <b>doit-on proceder</b> pour eviter la disqualification ? <b>Il doit laisser</b> le pain sur la Table <b>jusqu'au Chabbat suivant, car meme s'il est reste sur la Table pendant plusieurs jours,</b> il n'y a <b>rien de mal</b> <b>a cela,</b> a condition qu'il y reste pendant au moins sept jours. L'encens peut alors etre brule et il permettra de manger le pain.
+
+### Partie 15
+Rabbi Zeira explique son objection : <b>Mais pourquoi</b> est-il permis de laisser le pain sur la Table pendant plus de sept jours ? <b>La aussi, disons</b> que les Sages ont emis <b>un decret</b> disqualifiant le pain <b>de peur</b> que les gens <b>disent</b> que <b>on peut stocker</b> des objets sacres <b>dans un recipient de service</b> pendant la nuit et que cela les empechera d'etre disqualifies. De toute evidence, les Sages n'ont pas emis de tels decrets, et il s'ensuit qu'en ce qui concerne l'utilisation des recipients de mesure, ils n'ont pas non plus emis de decret.
+
+### Partie 16
+La Guemara rejette cette affirmation : <b>Soulevez-vous une contradiction</b> entre un rite accompli <b>a l'interieur</b> du Sanctuaire, c'est-a-dire la disposition des pains de mie, <b>et</b> un rite accompli <b>a l'exterieur</b> du Sanctuaire, c'est-a-dire l'utilisation des recipients de mesure ? Puisque dans le cas d'un rite accompli <b>a l'interieur</b> du Sanctuaire <b>tout le monde n'est pas conscient</b> de ce qui se passe, il n'y a pas de crainte que les gens interpretent mal ce qui se passe et il n'est donc pas necessaire d'emettre un decret a ce sujet. Dans le cas d'un rite accompli <b>a l'exterieur</b> du Sanctuaire <b>tout le monde est conscient</b> de ce qui se passe, et il est necessaire de publier un decret pour empecher les gens de tirer des conclusions erronees.
+
+### Partie 17
+§ La Guemara continue a discuter du debordement des mesures. <b>On a appris</b> dans une mishna <b>la</b> (<i>Shekalim</i> 10b) : <b>Les libations excedentaires</b> etaient vendues et le produit de la vente servait <b>a</b> acheter des offrandes <b>supplementaires</b> <b>de l'autel [<i>keitz hamizbeâh</i>].</b>
+
+### Partie 18
+La Gemara demande : <b>Qu'est-ce</b> est la signification de : <b>Liberations excedentaires ?</b>
+
+### Partie 19
+<b>Rabbi Hiyya bar Yosef dit :</b> Cela signifie <b>les debordements des recipients de mesure. Rabbi Yohanan dit :</b> Les libations excedentaires sont <b>comme ce que nous avons appris</b> dans une autre mishna (<i>Shekalim</i> 13a) : Dans le cas de <b>celui qui accepte sur lui de fournir de la farine fine a quatre</b> <i>seâ</i> pour une <i>sela</i>, <b>et</b> son prix sur le marche <b>etait de trois</b> <i>seâ</i> pour une <i>sela</i>, il est tenu de respecter son engagement et de <b>fournir</b> de la farine fine <b>a quatre</b> <i>seâ</i> pour une <i>sela</i>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

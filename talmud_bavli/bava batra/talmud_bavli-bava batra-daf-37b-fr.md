@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Puisqu'ils causent des dommages au terrain,</b> le vendeur laisse <b>pour lui le terrain qui entoure les arbres, <b>comme si</b> il ne le laissait <b>pas</b>, <b>laissons</b> l'acheteur lui <b>dire : Deracine tes arbres et pars.</b>
+
+### Partie 2
+La Guemara traite du cas inverse : Si l'on <b>vendait</b> les <b>arbres et laissait</b> la propriete du <b>terrain pour lui-meme,</b> la <i>halakha</i> depend de <b>l'issue</b> du <b>dispute de Rabbi Akiva et des rabbins. Selon Rabbi Akiva, qui dit : Celui qui vend, vend genereusement,</b> l'acheteur <b>a</b> la propriete du terrain entourant les arbres, car la presomption est que le vendeur l'a inclus dans la vente. <b>Selon les rabbins,</b> qui disent : Celui qui vend, vend avec parcimonie, l'acheteur <b>n'a pas</b> la propriete du terrain entourant les arbres, car la presomption est que le vendeur ne l'a pas inclus dans la vente.
+
+### Partie 3
+La Gemara a indique precedemment que <b>selon</b> l'opinion de <b>Rabbi Akiva,</b> l'acheteur <b>a</b> la propriete du terrain entourant les arbres. La Gemara clarifie cette opinion : <b>Et meme selon Rav Zevid, qui a dit</b> (37a) que dans un cas ou l'un a pris possession du terrain et un autre des arbres, celui qui a pris possession des arbres <b>n'a aucune</b> part dans le terrain, <b>cette question</b> ne s'applique que <b>concernant</b> le cas de <b>deux acheteurs. Comme</b> dans ce cas, celui qui a acquis le terrain peut <b>dire a</b> l'autre : <b>De meme</b> qu'il est ainsi <b>que je n'ai pas</b> de part <b>dans</b> les <b>arbres, tu n'as pas non plus</b> de part <b>dans la terre ; mais ici,</b> ou l'on a vendu les arbres et laisse la terre pour soi, <b>celui qui vend, vend genereusement.</b> Il est donc raisonnable de supposer que la vente comprenait la terre entourant les arbres.
+
+### Partie 4
+La Guemara a indique precedemment que <b>selon</b> l'opinion des <b>Rabbins,</b> l'acheteur n'a <b>pas</b> la propriete de la terre entourant les arbres. La Guemara clarifie cette opinion : <b>Et meme selon Rav Pappa, qui dit</b> ci-dessus que dans un cas ou l'un a pris possession du terrain et un autre a pris possession des arbres que celui qui a pris possession des arbres <b>a</b> la propriete de la moitie du terrain egalement, <b>cette question</b> ne s'applique que <b>concernant</b> le cas de <b>deux acheteurs. Comme</b> dans ce cas, celui qui a acquis les arbres peut <b>dire a</b> l'autre : <b>De meme</b> qu'il en est ainsi <b>que le vendeur <b>vous a vendu genereusement,</b> puisque vous avez a la fois la terre et le droit d'en consommer le produit, il <b>m'a aussi vendu genereusement,</b> y compris la terre entourant les arbres ; <b>mais ici,</b> ou l'on a vendu les arbres et laisse la terre pour soi, <b>celui qui vend, vend avec parcimonie,</b> conservant pour soi tout ce qu'il n'a pas explicitement inclus dans la vente.
+
+### Partie 5
+§ Les Sages <b>de Nehardeâ disent :</b> Si quelqu'un <b>consomme</b> le produit d'un <b>verger surpeuple</b>, <b>il</b> ne <b>pas</b> par la meme <b>avoir la propriete presumee</b> du verger. <Rava s'oppose a cela : S'il en est ainsi, comment</b> peut-on jamais <b>acquerir ce champ de luzerne,</b> qui est plante sans espacement ? <b>Rava dit plutot :</b> Si l'on <b>vend un verger surpeuple</b>, l'acheteur n'a <b>pas</b> la propriete du <b>terrain</b> entourant les arbres. En general, si l'on achete trois arbres ou plus, on acquiert le terrain environnant, car les arbres sont consideres comme un verger. Si les arbres sont trop nombreux, ils devront bientot etre deracines, et c'est pourquoi l'acheteur n'acquiert pas le terrain qui entoure les arbres.
+
+### Partie 6
+<b>Rabbi Zeira a dit :</b> Ceci est <b>comme</b> une dispute entre <b><i>tannaim</i></b> (<i>Kilayim</i> 5:2) : En ce qui concerne <b>une vigne qui est plantee sur</b> une surface ou il y a <b>moins de quatre coudees</b> d'espace libre entre les vignes, <b>Rabbi Shimon dit :</b> Elle n'est <b>pas</b> consideree comme <b>une vigne</b> au regard de l'interdiction des sortes diverses et des autres <i>halakhot</i>, car elle est surpeuplee. <b>Et les rabbins disent : Ceci est</b> considere comme <b>un vignoble, et</b> la raison en est que <b>les vignes du milieu</b> sont <b>vues comme si</b> elles <b>n'etaient pas</b> la, et les vignes exterieures repondent aux exigences d'un vignoble. Il s'ensuit que selon l'opinion des rabbins, si l'on vendait un verger surpeuple, les arbres du milieu seraient vus comme s'ils n'etaient pas la. Par consequent, il serait considere comme un verger et l'acheteur acquerrait la terre entourant les arbres.
+
+### Partie 7
+Les Sages <b>de Nehardeâ disent : Celui-la qui vend un dattier a un autre,</b> l'acheteur <b>acquiert</b> le terrain <b>de sa base jusqu'aux profondeurs.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

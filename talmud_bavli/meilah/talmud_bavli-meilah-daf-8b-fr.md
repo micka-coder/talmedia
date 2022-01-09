@@ -1,0 +1,36 @@
+
+### Partie 1
+jusqu'au coucher du soleil, il est traite comme quelqu'un qui est impur au <b>premier</b> degre d'impurete en ce qui concerne <b>la nourriture sacrificielle</b>. En d'autres termes, un element de la nourriture sacrificielle qu'il touche prend le statut d'impurete de second degre. Un deuxieme element qui entre en contact avec le premier element de nourriture assume le troisieme degre d'impurete. Si un troisieme element entre en contact avec le deuxieme element, il acquiert le statut d'impurete de quatrieme degre, c'est-a-dire qu'il ne peut pas etre mange mais ne transmet pas d'impurete aux autres elements.
+
+### Partie 2
+<b>Rabbi Meir dit : </b> Celui qui s'est immerge ce jour-la est considere comme impur au deuxieme degre, meme en ce qui concerne la nourriture sacrificielle, et donc il <b>rend la nourriture sacrificielle</b> <b>impure et disqualifie le <i>teruma</i>. Et les rabbins disent : De meme qu'il</b> se contente de <b>disqualifier les liquides <i>teruma</i> et les <i>teruma</i> aliments,</b> sans qu'ils deviennent impurs au point de transferer leur impurete a un autre element, <b>de meme, il</b> ne fait que <b>disqualifier les liquides et les aliments sacrificiels.</b> Apparemment, la mishna est ici conforme a l'opinion des rabbins, et non a celle de Abba Chaoul et de Rabbi Meir.
+
+### Partie 3
+<b>Rava</b> rejette cette analyse et <b>dit :</b> La mishna peut etre expliquee meme en accord avec les opinions d'Abba Shaul et de Rabbi Meir, car ils pourraient etre d'accord sur le fait que par la loi de la Torah celui qui s'est immerge ce jour-la disqualifie seulement la nourriture et ne la rend pas impure. Mais <b>selon Abba Shaul,</b> les Sages ont <b>etabli un standard plus eleve en ce qui concerne les articles consacres</b>, et donc les <b>Sages ont assimile</b> celui qui s'est <b>immerge ce jour-la a</b> celui qui est impur avec une impurete rituelle de <b>premier</b> degre.
+
+### Partie 4
+Rava poursuit : <b>Selon Rabbi Meir,</b> les Sages ont assimile l'impurete de celui qui s'est immerge ce jour-la <b>a une nourriture</b> d'impurete rituelle de <b>second</b> degre, mais <b>selon</b> l'avis des <b>Rabbins</b> il n'y a pas d'impurete supplementaire selon la loi rabbinique. Leur raisonnement est que <b>puisqu'il s'est immerge,</b> bien qu'il ne soit pas completement pur, <b>son</b> niveau d'impurete rituelle est</b> relativement <b>faible.</b> Par consequent, il <b>rend</b> un sacrifice pour le peche <b>disqualifie,</b> mais il ne le <b>rend pas</b> rituellement <b>impur.</b>
+
+### Partie 5
+§ La mishna enseigne a propos d'une offrande pour le peche : Une fois que <b>son sang a ete asperge, on est responsable</b> de recevoir <i>karet</i> pour sa consommation en raison de la violation de l'interdiction de <i>piggul</i>, et de l'interdiction de <i>notar</i>, et de l'interdiction de prendre part a la viande sacrificielle tout en etant rituellement impur, mais il n'y a pas de responsabilite pour le mauvais usage d'un bien consacre. La Guemara en deduit : <b>Il n'y a pas</b> de responsabilite pour <b>mauvais usage</b> des biens consacres, <b>mais il y a une interdiction</b> d'en tirer un benefice meme apres l'aspersion du sang. <b>Mais pourquoi</b> y a-t-il une telle interdiction ? <b>La viande du sacrifice pour le peche n'est-elle pas</b> la propriete des pretres</b> apres que le sang ait ete asperge ? En consequence, il leur serait donc permis de consommer cette viande.
+
+### Partie 6
+<b>Rabbi Hanina dit</b> en explication : La mishna fait reference <b>a</b> une viande qui a ete <b>sortie</b> de l'endroit ou il est permis de la consommer. <b>Et</b> cette decision <b>est</b> conforme a l'avis de <b>Rabbi Akiva, qui a dit : L'aspersion</b> du sang <b>rend aptes ces</b> portions <b>qui ont ete retirees</b> de l'endroit ou elles peuvent etre consommees, c'est-a-dire que l'interdiction de mauvais usage ne s'applique plus a elles, mais elles sont <b>inaptes a la consommation.</b>
+
+### Partie 7
+La Guemara continue a discuter de la <i>halakha</i> d'une offrande pour le peche d'un oiseau. Apres que la nuque ait ete pincee et que le sang ait ete asperge, le cou de l'oiseau est presse sur le cote de l'autel afin que le sang soit presse et coule jusqu'a la base de l'autel. <b>Rav Huna dit</b> que <b>Rav dit :</b> Le fait de ne pas <b>exprimer</b> le sang d'une <b>offrande pour le peche d'un oiseau</b> apres l'aspersion du sang <b>n'invalide pas</b> l'offrande ni n'empeche l'expiation, <b>comme l'enseigne Rav</b> dans sa version de la mishna : Une fois que <b>son sang a ete asperge.</b>
+
+### Partie 8
+En revanche, <b>Rav Adda bar Ahava dit</b> que <b>Rav dit :</b> Le fait de ne pas <b>essorer</b> le sang d'une <b>offrande pour le peche d'un oiseau</b> apres avoir asperge le sang <b>invalide</b> l'offrande et empeche l'expiation. <b>Et le Rav enseigne</b> dans sa version de la mishna : Une fois que <b>son sang a ete presse.</b> Ce n'est qu'apres que le sang a ete presse que l'expiation est complete et que l'oiseau peut etre mange.
+
+### Partie 9
+La Guemara souleve une difficulte par rapport a la declaration de Rav Huna. <b>Venez</b> et <b>entendez</b> un verset de la Torah : "Il fera l'aspersion du sang du sacrifice pour le peche sur le cote de l'autel ; <b>et le reste du sang sera presse au pied de l'autel, c'est un sacrifice pour le peche"</b> (Levitique 5:9). <b>Accorde, selon</b> l'avis de <b>Rav Adda bar Ahava,</b> qui soutient que l'essorage du sang est essentiel, <b>c'est ainsi qu'il est ecrit : "Et le reste du sang sera essoré</b> au pied de l"?autel, c"?est un sacrifice pour le péché."</b> Cette clause indique que ce n"?est qu"?après que le sang a été essoré qu"?il est considéré comme un sacrifice valide pour le péché. <b>Mais selon</b> l'opinion de <b>Rav Huna, que</b> signifie le verset lorsqu'il dit : <b>"Le reste</b> du sang sera presse au pied de l'autel, c'est un sacrifice pour le peche" ?
+
+### Partie 10
+La Guemara repond que Rav Huna explique ce verset <b>comme il est enseigne</b> dans une <i>baraita</i> <b>de l'ecole de Rabbi Yishmael :</b> Le verset enseigne <b>que si</b> une partie du sang <b>reste</b> a l'interieur de l'oiseau, il doit etre presse, mais il n'y a pas d'obligation de s'assurer que le sang doit rester pour qu'il puisse etre presse. Par consequent, meme si l'on n'essore pas de sang du cote de l'autel, l'offrande est valable. <b>Et quel</b> est le sens de la phrase : "C'est <b>une offrande pour le peche"?</b> Cela fait reference <b>a la premiere clause</b> du verset, c'est-a-dire que c'est une offrande pour le peche valide seulement si le sang est asperge sur le cote de l'autel.
+
+### Partie 11
+<b>Rav Aha, fils de Rava, dit a Rav Ashi : Si c'est le cas,</b> considerez le fait <b>qu'il est ecrit a propos d'une offrande de repas : "Mais ce qui restera</b> de l'offrande de repas appartiendra a Aaron et a ses fils ; c'est une chose tres sainte parmi les offrandes de l'Eternel faites par le feu" (Levitique 2:3). Cela <b>aussi</b> signifie-t-il <b>que si</b> une partie de l'offrande de repas <b>reste</b> alors elle est donnee aux pretres, mais qu'il n'est pas necessaire de s'assurer qu'une partie reste <i>ab initio</i> ? <b>Et si vous disiez</b> que c'est <b>en effet</b> le cas ,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Part 1
+then with regard to the <b>Paschal offering and sacrificial</b> meat that one is obligated to eat, <b>what is there to say? Rather,</b> according to Rabbi Meir, there is no alternative to saying: <b>Where</b> it is <b>possible</b> to examine the situation it is <b>possible,</b> and the majority is not followed; <b>where</b> it is <b>not possible</b> to examine the situation it is <b>not possible,</b> and the majority is followed. If so, <b>here too,</b> according to the Rabbis, it cannot be proven from the above sources that one follows a non-quantifiable majority <i>ab initio</i>, as perhaps <b>where</b> it is <b>possible</b> to examine the situation it is <b>possible,</b> and <b>where</b> it is <b>not possible</b> to examine the situation it is <b>not possible,</b> and the majority is followed.
+
+### Part 2
+§ <b>Rav Naḥman says</b> that <b>Rav says:</b> In the case of a person who <b>saw one who slaughtered</b> an animal, <b>if</b> the person <b>saw him</b> slaughtering continuously <b>from beginning to end</b> of the act, he is <b>permitted to eat from his slaughter, and if not,</b> he is <b>prohibited from eating from his slaughter.</b>
+
+### Part 3
+The Gemara asks: <b>What are the circumstances? If</b> it is a case <b>where</b> the onlooker <b>knows that he is knowledgeable</b> in the <i>halakhot</i> of slaughter, <b>why do I</b> require that the onlooker <b>saw</b> the slaughter? Even if he did not see him slaughter, the onlooker may rely on his slaughter. <b>And if</b> the onlooker <b>knows that he is not knowledgeable</b> in the <i>halakhot</i> of slaughter, it is <b>obvious</b> that only if the person saw him slaughtering from beginning to end he is permitted to eat from his slaughter.
+
+### Part 4
+<b>Rather,</b> perhaps it is a case <b>where</b> the onlooker <b>does not know whether he is knowledgeable</b> or <b>whether he is not knowledgeable.</b> But if that is the case, <b>let us say: The majority</b> of those <b>associated with slaughter are experts</b> in the <i>halakhot</i> of slaughter, and one may rely on his slaughter.
+
+### Part 5
+<b>Isn’t it taught</b> in a <i>baraita</i>: In a case <b>where one found a slaughtered chicken in the marketplace, or where one said to his agent: Go out</b> and <b>slaughter</b> a chicken, <b>and he went and found</b> the chicken <b>slaughtered</b> and he does not know who slaughtered it, <b>its presumptive status</b> is that it was <b>slaughtered</b> properly.
+
+### Part 6
+<b>Apparently, we say: The majority</b> of those <b>associated with slaughter are experts. Here too,</b> in a case where it is unknown whether he is knowledgeable, <b>let us say: The majority</b> of those <b>associated with slaughter are experts.</b>
+
+### Part 7
+The Gemara answers: <b>Actually,</b> the reference is to a case <b>where</b> the onlooker <b>knows that</b> the one slaughtering <b>is not knowledgeable</b> in the <i>halakhot</i> of slaughter, <b>and where he slaughtered one <i>siman</i> before us properly. Lest you say: From</b> the fact <b>that this</b> <i>siman</i> was slaughtered <b>properly, that</b> <i>siman</i> was <b>also</b> slaughtered <b>properly;</b> therefore, Rav <b>teaches us</b> that this is not so. As, perhaps <b>this</b> <i>siman</i> <b>happened</b> to be slaughtered properly <b>for him,</b> but with regard to <b>the other</b> <i>siman</i>, <b>perhaps he interrupted</b> the slaughter or <b>perhaps he pressed</b> the knife, invalidating the slaughter.
+
+### Part 8
+<b>Rav Dimi bar Yosef raised a dilemma before Rav Naḥman:</b> With regard to <b>one who says to his agent: Go out and slaughter</b> a chicken, <b>and he went and found</b> the chicken <b>slaughtered, what is</b> the <i>halakha</i>? Rav Naḥman <b>said to him: Its presumptive status</b> is that it was <b>slaughtered</b> properly. And he raised another dilemma: With regard to <b>one who says to his agent: Go out and separate <i>teruma</i></b> for me, <b>and he went and found</b> that <b><i>teruma</i> was separated</b> from his produce, <b>what</b> is the <i>halakha</i>? Rav Naḥman <b>said to him: Its presumptive status</b> is <b>not</b> that <b><i>teruma</i> was separated.</b>
+
+### Part 9
+Rav Dimi bar Yosef challenged: <b>Whichever way you</b> look at it, your ruling is problematic. <b>If</b> there is <b>a presumption</b> that <b>an agent performs his</b> assigned <b>agency,</b> that should be the case <b>even</b> with regard to <b><i>teruma</i>; and if</b> there is <b>no presumption</b> that <b>an agent performs his</b> assigned <b>agency,</b> there should be <b>no</b> such presumption <b>even</b> with regard to <b>slaughter.</b>
+
+### Part 10
+Rav Naḥman <b>said to</b> Rav Dimi in jest: <b>After you eat a <i>kor</i> of salt over it,</b> and analyze the matter at length, you will be able to understand the difference. <b>Actually,</b> there is <b>no presumption</b> that <b>an agent performs his</b> assigned <b>agency, and</b> in the case of <b>slaughter, even if perhaps another person heard</b> him instruct the agent <b>and</b> that person <b>went</b> and <b>slaughtered</b> the chicken, the slaughter would be valid, because <b>the majority</b> of those <b>associated with slaughter are experts.</b> By contrast, in the case of <b><i>teruma</i>,</b> if <b>perhaps another person heard</b> him instruct the agent <b>and</b> then <b>went</b> and <b>separated</b> his <b><i>teruma</i>, he becomes</b> one who <b>designates <i>teruma</i> without</b> the <b>knowledge</b> of the owner of the produce; <b>and</b> with regard to <b>one who designates <i>teruma</i> without</b> the <b>knowledge</b> of the owner of the produce, <b>his <i>teruma</i> is not <i>teruma</i>.</b>
+
+### Part 11
+The Gemara suggests: <b>Let us say</b> that the statement: <b>The majority</b> of those <b>associated with slaughter are experts, is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: In a case <b>where one’s young goats and roosters were lost, and</b> the owner <b>went and found them slaughtered, Rabbi Yehuda deems</b> the meat <b>forbidden,</b> and <b>Rabbi Ḥanina, son of Rabbi Yosei HaGelili, deems</b> it <b>permitted. Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Yehuda appears</b> correct in a case <b>where</b> the owner <b>found</b> the slaughtered animals <b>in a scrap heap,</b> as the concern is that they were thrown away because the slaughter was not valid. <b>And the statement of Rabbi Ḥanina, son of Rabbi Yosei HaGelili,</b> appears correct in a case <b>where he found them in the house.</b>
+
+### Part 12
+<b>What, is it not with regard to this</b> matter that <b>they disagree, that</b> one <b>Sage,</b> Rabbi Ḥanina, <b>holds: We say</b> that <b>the majority</b> of those <b>associated with slaughter are experts, and</b> one <b>Sage,</b> Rabbi Yehuda, <b>holds: We do not say</b> that <b>the majority</b> of those <b>associated with slaughter are experts?</b>
+
+### Part 13
+<b>Rav Naḥman bar Yitzḥak said: No,</b> the fact is <b>that everyone agrees</b> that <b>the majority</b> of those <b>associated with slaughter are experts, and</b> if he found the slaughtered goats or roosters <b>in the house, everyone agrees that</b> it is <b>permitted</b> to eat the meat. If he found them <b>in a scrap heap that</b> is <b>in the marketplace, everyone agrees that</b> it is <b>prohibited</b> to eat the meat. <b>When they disagree</b> is in a case where he found them <b>in a scrap heap that</b> is <b>in the house.</b> One <b>Sage,</b> Rabbi Yehuda, <b>holds: A person is prone to cast his unslaughtered</b> animal <b>carcass onto a scrap heap that</b> is <b>in the house. And</b> one <b>Sage,</b> Rabbi Ḥanina, <b>holds: A person is not prone to cast his unslaughtered</b> animal <b>carcass onto a scrap heap that</b> is <b>in the house.</b>
+
+### Part 14
+<b>The Master said</b> in the <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Yehuda appears</b> correct in a case <b>where he found them in the scrap heap.</b> The Gemara asks: <b>What</b> is the term <b>scrap heap</b> referring to in this context? <b>If we say</b> the reference is to <b>a scrap heap in the marketplace, didn’t you say that everyone agrees that</b> it is <b>prohibited,</b> and it is not merely the opinion of Rabbi Yehuda? <b>Rather,</b> it is <b>obvious</b> that he found it <b>on a scrap heap that</b> is <b>in the house,</b> and it is in that case that Rabbi Yehuda HaNasi rules in accordance with the opinion of Rabbi Yehuda.
+
+### Part 15
+<b>Say the latter clause</b> of the statement of Rabbi Yehuda HaNasi: <b>And the statement of Rabbi Ḥanina, son of Rabbi Yosei HaGelili,</b> appears correct in a case <b>where he found them in the house. What</b> is the word <b>house</b> referring to in this context? <b>If we say</b> the reference is to <b>an actual house, didn’t you say that everyone agrees that it is permitted? Rather,</b> it is <b>obvious</b> that he found it <b>on a scrap heap that</b> is <b>in the house.</b> If so, it is <b>difficult,</b> as there is a contradiction between one statement <b>of Rabbi</b> Yehuda HaNasi, where he rules in accordance with the opinion of Rabbi Yehuda to prohibit the meat in a case where it is found in a scrap heap in the house, <b>and</b> another statement <b>of Rabbi</b> Yehuda HaNasi, where he rules in accordance with the opinion of Rabbi Ḥanina, son of Rabbi Yosei HaGelili, to permit the meat in that case.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Une personne doit s'associer a la congregation</b> et ne doit pas prier pour elle seule. <b>Comment doit-il le dire</b> ? <b>Que ce soit Ta volonte, Seigneur notre Dieu, que Tu nous conduises a la paix, etc,</b> au pluriel.
+
+### Partie 2
+La Guemara discute des details specifiques relatifs a cette priere. <b>Quand doit-on prier ? Rabbi Yaâkov dit</b> que <b>Rav Hisda a dit : A partir du moment ou l'on se met en route,</b> et pas avant. <b>Combien de temps</b> doit durer le voyage prevu pour que l'on soit oblige de reciter cette priere (<i>Baâl Halakhot Gedolot</i>) ? <b>Rabbi Yaâkov dit</b> que <b>Rav Hisda a dit : Au moins un parasang. Comment recite-t-il</b> cette priere ? <b>Rav Hisda a dit :</b> Seulement en se <b>dressant</b> a un endroit. <b>Rav Sheshet a dit : Meme en marchant</b> ou en s'asseyant.
+
+### Partie 3
+La Guemara relate : <b>Rav Hisda et Rav Sheshet marchaient le long du chemin, Rav Hisda se tenait debout et recitait</b> la priere du voyageur. Comme il etait aveugle et ne voyait pas son collegue, <b>Rav Sheshet demanda a son serviteur : Que fait Rav Hisda</b> maintenant ? Son serviteur lui <b>repondit : Il est debout et prie.</b> Rav Sheshet <b>a dit a</b> son serviteur : <b>Dresse-moi aussi et je vais prier.</b> Meme si Rav Sheshet soutenait qu'il n'y a pas besoin de se lever pendant cette priere, neanmoins : <b>D'etre bon, ne te fais pas traiter de mechant.</b> En d'autres termes, il faut faire mieux si on en est capable. Le Rav Sheshet a dit que l'on n'est pas oblige de s'arreter et de se tenir debout. Il n'a pas dit qu'il est preferable de marcher ou de s'asseoir. Puisque se tenir debout dans ce cas ne demandait aucun effort particulier de sa part, puisque Rav Hisda s'etait de toute facon arrete pour se tenir debout et prier, pourquoi insister pour s'asseoir ?
+
+### Partie 4
+La mishna mentionne a la fois une breve priere recitee en cas de danger et une priere abregee, a propos de laquelle il y avait un differend entre les <i>tannaim</i>. La Guemara demande : <b>Quelle est</b> la difference halakhique pratique entre la priere abregee : <b>Donne-nous la comprehension</b> et la priere breve</b> recitee en cas de danger ? La Gemara repond : Celui qui recite : <b>Donne-nous la comprehension est tenu de reciter les trois premieres</b> benedictions <b>et les trois dernieres</b> benedictions de la priere <i>Amida</i>, <b>et lorsqu'il atteint sa maison, il n'a pas besoin de prier a nouveau.</b> Celui qui recite <b>la priere breve,</b> cependant, <b>n'a besoin de reciter ni les trois premieres</b> benedictions <b>ni les trois dernieres</b> benedictions de la priere <i>Amida</i>. <b>Toutefois, lorsqu'il atteint son domicile, il doit prier a nouveau.</b> Accordez-nous la comprehension a le statut legal de la priere de <i>Amida</i>, malgre sa brievete, tandis que la priere breve est simplement recitee a la place de la priere de <i>Amida</i> dans des circonstances exigeantes.
+
+### Partie 5
+<b>La <i>halakha</i> est : Accorde-nous la comprehension,</b> comme mentionne ci-dessus, a le statut juridique de la priere <i>Amida</i>, et doit donc etre recitee en etant <b>debout. La priere breve,</b> puisqu'elle n'a pas ce statut, peut etre recitee <b>que l'on soit <b>debout</b> ou que l'on soit <b>marchant.</b>
+
+### Partie 6
+Nous avons appris dans la mishna : <b>Une personne qui etait a cheval sur un ane</b> doit descendre de cheval et prier. Ce n'est qu'en cas d'urgence qu'il peut prier en chevauchant, en concentrant son cœur vers Jerusalem et le Saint des Saints. <b>Les Sages ont enseigne</b> dans une <i>Tosefta</i> : <b>Quelqu'un qui etait a cheval sur un ane et que l'heure de la priere arrive, s'il a quelqu'un pour se tenir</b> sur <b>l'ane, il doit descendre de cheval et prier. Sinon, il doit s'asseoir a sa place</b> sur l'ane <b>et prier. Rabbi</b> Yehuda HaNasi <b>Dit : Dans tous les cas,</b> qu'il y ait ou non quelqu'un pour s'accrocher a l'ane, <b>il doit s'asseoir a sa place</b> au sommet de l'ane <b>et prier, car son esprit ne sera pas calme.</b> Comme il est presse d'arriver a sa destination, la necessite de descendre de l'ane, de se tenir en priere et de remonter sur l'ane retarderait son voyage, et ce retard est susceptible de nuire a sa concentration pendant la priere.
+
+### Partie 7
+<b>Rava, et certains disent Rabbi Yehoshua ben Levi, a dit :</b> La <b><i>halakha</i></b> ici <b>est conforme</b> a l'opinion de <b>Rabbi</b> Yehuda HaNasi.
+
+### Partie 8
+<b>Les Sages ont enseigne</b> dans une <i>Tosefta</i> : <b>L'aveugle et celui qui est incapable d'approximer les directions</b> et qui, par consequent, est incapable de faire face a Jerusalem pour prier, <b>peut concentrer son cœur vers son Pere qui est aux Cieux, comme il est dit : "Et ils prieront le Seigneur"</b> (I Rois 8:44).
+
+### Partie 9
+<b>Celui qui se tenait</b> en priere <b>dans la Diaspora, doit concentrer son cœur vers Eretz Yisrael, comme il est dit : "Et ils te prieront en passant par leur terre</b> que tu as donnee a leurs peres" (I Rois 8:48). <br><b>Celui qui se tenait en Eretz Yisrael, devait concentrer son cœur vers Jerusalem, comme il est dit : "Et ils prieront le Seigneur en passant par la ville que Tu as choisie"</b> (I Rois 8:44). <br><b>Celui qui se tenait a Jerusalem, devait concentrer son cœur vers le Temple, comme il est dit : "Et ils prieront vers cette maison"</b> (II Chroniques 6:32). <br><b>La personne qui se tenait dans le Temple, devait concentrer son cœur vers le Saint des Saints, comme il est dit : "Et ils prieront vers ce lieu"</b> (I Rois 8:35). <br><b>Celui qui se tenait dans le Saint des Saints, devait concentrer son cœur vers le siege du couvercle de l'arche [<i>kapporet</i>],</b> au sommet de l'arche, la demeure de la gloire de Dieu. <br><b>L'homme qui se tenait derriere le siege du couvercle de l'arche, doit se visualiser comme s'il se tenait devant le couvercle de l'arche</b> et se tourner vers lui.<br><b>En consequence,</b> celui qui <b>se tient</b> en priere <b>a l'Est se tourne vers l'Ouest,</b> et celui qui se tient <b>a l'Ouest, se tourne vers l'Est. </b> Celui qui se tient debout <b>au Sud, se tourne vers le Nord,</b> et celui qui se tient debout <b>au Nord, se tourne vers le Sud ; tout</b> le peuple d'<b>Israel se retrouve</b> <b>concentrer son cœur vers un seul endroit,</b> le Saint des Saints dans le Temple.
+
+### Partie 10
+On trouve une allusion a cela dans ce que <b>Rabbi Avin, et certains disent Rabbi Avina, a dit : Quel verset</b> fait allusion a <b>cela ? "Ton cou est comme la Tour de David, construite avec des tourelles [<i>talpiyyot</i>],</b> mille boucliers y sont suspendus, toute l'armure des puissants" (Cantique des Cantiques 4:4). Il interprete le mot <i>talpiyyot</i> comme la <b>colonne</b> [<b><i>tel</i>] vers laquelle toutes les bouches</b> [<b><i>piyyot</i>] se tournent,</b> c'est-a-dire le Mont du Temple.
+
+### Partie 11
+En ce qui concerne la priere en voyage, la Guemara relate : <b>Lorsque le pere de Shmuel et Levi voulaient partir en voyage</b> le matin, <b>ils priaient tot</b> avant le lever du soleil. <b>Lorsque,</b> au cours de leur voyage, <b>le moment de reciter <i>Shema</i> arrivait, ils le recitaient.</b>
+
+### Partie 12
+La Guemara demande : <b>Selon l'avis de qui</b> ont-ils fait cela ? <b>Conformement a cette <i>tanna</i>, telle qu'elle a ete enseignee</b> dans la <i>Tosefta</i> : <b>L'un qui s'est leve tot pour partir sur</b> son <b>chemin</b> avant que n'arrive l'heure de reciter le <i>Shema</i>, <b>on lui apporte un <i>shofar</i> et il le sonne</b>, si c'etait Rosh HaShana ; <b>un <i>lulav</i> et il le prend</b> le jour de <i>Soukkot</i> ; <b>une megilla,</b> le rouleau d'Esther, <b>et il le lit</b> le jour de Pourim ; <b>et quand vient le moment de reciter <i>Shema</i>, il le recite</b>. De meme, <b>celui qui s'est leve tot pour s'asseoir dans un chariot ou dans un bateau prie, et quand vient le moment de reciter <i>Shema</i>, il le recite</b>.
+
+### Partie 13
+<b>Rabbi Shimon ben Elazar, dit : Dans un cas comme dans l'autre,</b> il est preferable de <b>reciter <i>Shema</i> et</b> ensuite <b>prier</b> la priere <i>Amida</i> dans le wagon <b>afin de juxtaposer la redemption et la priere.</b>
+
+### Partie 14
+La Gemara explique : <b>A propos de quoi sont-ils en desaccord?</b> La Gemara repond : <b>Ce Sage,</b> le premier <i>tanna</i>, <b>soutient</b> que la <b>priere</b> en etant <b>debout est preferable.</b> Il faut donc prier plus tot, chez soi, en etant debout. <b>Ce Sage,</b> Rabbi Shimon ben Elazar, <b>soutient</b> que la <b>juxtaposition de la redemption et de la priere est preferable,</b> meme si, ce faisant, on est incapable de se tenir debout tout en priant.
+
+### Partie 15
+Dans le meme ordre d'idees, la Guemara cite d'autres circonstances ou les Sages ont ete contraints de prendre des dispositions exceptionnelles pour prier. <b>Mareimar et Mar Zutra reunissaient dix</b> personnes <b>le</b> <b>Chabbat de la fete et priaient, puis se mettaient en route pour donner leur conference [<i>pirka</i>].</b> En raison de la foule qui se rassemblait pour ecouter les conferences des Sages lors de la fete, ils ne pouvaient pas prier au bon moment, ils etaient donc obliges de prier plus tot.
+
+### Partie 16
+Dans des circonstances similaires, <b>Rav Ashi priait avec la congregation individuellement</b> tout en etant <b>assis,</b> afin qu'ils ne remarquent pas qu'il priait. Ensuite, <b>lorsqu'il rentrait chez lui, il priait a nouveau</b> en etant <b>debout</b> afin de prier sans distraction. <b>Les Sages lui dirent : Le Maitre devrait faire comme Mareimar et Mar Zutra</b>, c'est-a-dire reunir un quorum de priere chez lui pour prier avant le cours. <b>Il leur repondit : C'est un fardeau pour moi</b> de retarder autant le cours. Les Sages lui ont <b>dit : Le Maitre devrait faire comme le pere de Shmuel et Levi</b> et prier avant le lever du soleil. <b>Il leur repondit : Je n'ai pas vu de Sages plus ages que nous faire cela,</b> indiquant que ce n'est pas la <i>halakha</i> acceptee.
+
+### Partie 17
+<strong>MISHNA:</strong> <b>Rabbi Elazar ben Azarya dit : La priere additionnelle est seulement</b> recitee <b>dans une ville ou il y a un quorum de dix [<i>hever ir</i>]. Les rabbins disent :</b> On peut reciter la priere supplementaire <b>avec un <i>hever ir</i> ou sans un <i>hever ir.</i> Rabbi Yehuda dit</b> un autre avis <b>en son nom,</b> le nom de Rabbi Elazar ben Azarya : <b>Tout endroit ou il y a un <i>hever ir</i>, un individu est</b> completement <b>exempte de</b> reciter <b>la priere supplementaire.</b>
+
+### Partie 18
+<strong>GEMARA:</strong> Il n'y a pas de difference apparente entre l'avis de Rabbi Elazar ben Azarya et l'avis cite en son nom par Rabbi Yehuda. La Guemara demande : <b>Rabbi Yehudas</b> avis <b>est</b> identique a l'avis de Rabbi Elazar ben Azarya cite par <b>la premiere <i>tanna</i>.</b> La Gemara repond : <b>Il y a</b> une difference halakhique pratique <b>entre eux :</b> Le cas de <b>un individu qui ne se trouve pas</b> dans un endroit ou il y a <b>un <i>hever ir. </i></b> En d'autres termes, dans un lieu ou il n'y a pas un quorum de priere de dix personnes, la <b>premiere <i>tanna</i> soutient</b> que l'avis de Rabbi Elazar ben Azarya est que l'<b>individu est dispense</b> de reciter la priere supplementaire, car elle n'a ete instituee que pour etre recitee avec un quorum. <b>Et Rabbi Yehouda soutient</b> que l'avis de Rabbi Elazar ben Azarya est que l'individu est <b>oblige</b> de reciter la priere supplementaire, car il n'est exempte que dans un lieu ou il y a un quorum de priere, et, par consequent, un responsable de la priere communautaire remplit son obligation.
+
+### Partie 19
+<b>Rav Huna bar Hinnana a dit</b> que <b>Hiyya bar Rav a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehuda, qui l'a dit</b> <b>au nom de</b> son mentor, <b>Rabbi Elazar ben Azarya. Rav Hiyya bar Avin lui dit : Tu as bien parle, comme</b> le prouve ce qu'a dit <b>Shmuel : De tous mes jours, je n'ai jamais prie la priere additionnelle a titre individuel</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

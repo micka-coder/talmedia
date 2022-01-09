@@ -1,0 +1,66 @@
+
+### Part 1
+concerning <b>a conspiring witness: Abaye says: He is disqualified retroactively,</b> from when he provided his testimony. Any testimony he may have provided after that point in time is retroactively nullified. <b>And Rava says: He is disqualified</b> only <b>from that point forward,</b> i.e., from when he was established to be a conspiring witness, but not retroactively from when he provided his testimony.
+
+### Part 2
+The Gemara explains the reasons for the two opinions: <b>Abaye says he is disqualified retroactively</b> because it is <b>from that time when he testified</b> that <b>he is</b> considered <b>a wicked man. And the Torah stated: “Do not put your hand with the wicked</b> to be an unrighteous witness” (Exodus 23:1), which is interpreted to mean: <b>Do not</b> allow <b>a wicked man</b> to serve as <b>a witness.</b>
+
+### Part 3
+<b>Rava says that he is disqualified</b> only <b>from that point forward</b> because the disqualification of <b>a conspiring witness is a novelty,</b> i.e., it is not based on logic. The reason is that this is a case of two witnesses against two other witnesses, in which case the testimony of neither should be accepted. <b>What did you see that</b> causes <b>you</b> to <b>rely on</b> the second set of witnesses, who testify that the first set were not at the scene of the purported event? You could instead <b>rely upon</b> the first set of witnesses, who testify to the event, and consequently disbelieve the second set. Yet the Torah teaches that the second set of witnesses is always deemed credible and the first set is subjected to punishment as conspiring witnesses. Therefore, as the disqualification of a conspiring witness is an anomaly, <b>you have</b> the right to disqualify <b>him only from the time of its novelty and onward;</b> this counterintuitive disqualification is not applied retroactively.
+
+### Part 4
+<b>There are</b> those <b>who say</b> that <b>Rava also holds like Abaye,</b> who says that by rights a conspiring witness should be disqualified retroactively from when he provided his testimony. <b>And what is the reason</b> Rava <b>says</b> that the witness is disqualified only <b>from that point forward?</b> It is <b>due to</b> the potential monetary <b>loss for purchasers,</b> whose acquisitions had been validated by these witnesses between the time of the witnesses’ first testimony and when they were rendered conspiring witnesses. If the disqualification of the witnesses were applied retroactively, as by right it should, all these transactions would be nullified, which would cause a loss to these purchasers.
+
+### Part 5
+The Gemara asks: <b>What is</b> the practical difference <b>between</b> these two explanations of Rava’s opinion? After all, according to both explanations Rava did not apply the disqualification of conspiring witnesses retroactively. The Gemara explains that <b>there is</b> a difference <b>between them</b> in a case <b>where two</b> witnesses <b>testify about one</b> of the witnesses that he was not at the scene of the supposed event, and two other witnesses testify about the other witness in a similar manner. <b>Alternatively,</b> there is a practical difference between the two explanations in a case <b>where</b> two witnesses <b>disqualified</b> the first set of witnesses <b>by</b> testifying that the first set had once committed <b>robbery</b> and are therefore unfit to give testimony. If the reason Rava does not disqualify conspiring witnesses retroactively is that it is a novel ruling, it is limited to that case. But if it is to protect purchasers, that would apply to the disqualifications of all witnesses, not only conspiring witnesses.
+
+### Part 6
+<b>And Rav Yirmeya of Difti related: Rav Pappi</b> once <b>performed an action,</b> i.e., issued a practical ruling, <b>in accordance with</b> the opinion <b>of Rava. Mar bar Rav Ashi says: The <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Abaye.</b>
+
+### Part 7
+The Gemara comments: <b>And</b> in disputes between Abaye and Rava the <i>halakha</i> is in accordance with the opinion of Rava, except for six cases in which <b>the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Abaye.</b> They are: <b>In</b> the cases represented by the mnemonic <b><i>yod</i>, <i>ayin</i>, <i>lamed</i>, <i>kuf</i>, <i>gimmel</i>, <i>mem</i>:</b> Unknown despair [<i>ye’ush</i>]; conspiring witnesses [<i>eidim</i>] who are disqualified retroactively; a side post [<i>leḥi</i>] standing alone; betrothal [<i>kiddushin</i>] that is not given to consummation; revealing intent with a bill of divorce [<i>get</i>]; and an apostate [<i>mumar</i>] who sins rebelliously.
+
+### Part 8
+§ The Gemara cites another dispute between Abaye and Rava with regard to disqualification of a witness. Concerning <b>a transgressor</b> who <b>eats carcasses,</b> i.e., non-kosher meat, <b>due to appetite,</b> i.e., because he desires this type of meat, or because it is less expensive or otherwise more accessible, <b>everyone agrees</b> that he is <b>disqualified</b> from bearing witness; it is suspected that just as he transgresses the <i>halakhot</i> of the Torah to satisfy his appetite, so too, he is willing to testify falsely for personal benefit.
+
+### Part 9
+With regard to one who eats non-kosher meat <b>to express insolence, Abaye says</b> that he is <b>disqualified</b> from bearing witness and <b>Rava says</b> that he is <b>fit.</b>
+
+### Part 10
+<b>Abaye says</b> he is <b>disqualified because he is wicked, and the Merciful One states: Do not put the wicked</b> in a position to serve as <b>a witness. And Rava says</b> that he is <b>fit</b> because for one to be disqualified from bearing witness <b>we require</b> him to be <b>a wicked person</b> guilty <b>of</b> specifically <b>a monetary transgression</b> [<b><i>deḥamas</i></b>]<b>,</b> e.g., robbery. This is because the verse: “Do not put your hand with the wicked to be an unrighteous [<i>ḥamas</i>] witness” (Exodus 23:1) alludes to such a transgression.
+
+### Part 11
+The Gemara <b>raises an objection</b> to Rava’s opinion from a <i>baraita</i>: The verse: “Do not put your hand with the wicked to be an unrighteous [<i>ḥamas</i>] witness,” is interpreted in the following manner: <b>Do not put the wicked</b> in a position to serve as <b>a witness; do not put</b> one who is guilty of <b>a monetary transgression</b> in a position to serve as <b>a witness. These are robbers and</b> those who <b>betray oaths,</b> who are disqualified from bearing witness. The Gemara explains the objection: <b>What, doesn’t</b> the category of those who betray oaths refer to <b>both</b> one who takes <b>an oath in vain,</b> without any monetary application, <b>and</b> one who falsely takes <b>an oath</b> concerning <b>monetary matters?</b> Apparently, any transgressor is disqualified, even if he did so to express insolence and not for monetary gain.
+
+### Part 12
+The Gemara answers: <b>No,</b> both <b>this and that</b> oath included in the phrase in the <i>baraita</i>: Those who betray oaths, <b>are oaths</b> concerning <b>monetary matters. And</b> accordingly, <b>what</b> is the reason the <i>baraita</i> uses the word <b>oaths,</b> in the plural? The <i>baraita</i> is referring to <b>oaths in general,</b> not to multiple categories of oaths.
+
+### Part 13
+The Gemara <b>raises an objection</b> to Abaye’s opinion from a <i>baraita</i>: <b>Do not put the wicked</b> in a position to serve as <b>a witness; do not put</b> one who is guilty of <b>a monetary transgression</b> in a position to serve as <b>a witness. These are robbers and</b> those who <b>lend</b> money with <b>interest.</b> The fact that only monetary transgressions are mentioned does not accord with the opinion of Abaye. The Gemara concludes: <b>The refutation of</b> the opinion of <b>Abaye</b> is indeed <b>a conclusive refutation.</b>
+
+### Part 14
+The Gemara suggests: <b>Let us say</b> that this dispute <b>is parallel</b> to a dispute between <b><i>tanna’im</i>: A conspiring witness</b> is <b>disqualified</b> from bearing witness <b>about any</b> matter in <b>the entire Torah.</b> This is <b>the statement of Rabbi Meir. Rabbi Yosei says: In what</b> situation <b>is this statement said? Where he was rendered a conspiring witness with regard to</b> a case of <b>capital law;</b> since he is assumed to have testified falsely with regard to a matter of life and death, he would certainly treat less serious testimonies lightly. Therefore, he is disqualified from bearing witness about any matter. <b>But</b> if he <b>was rendered a conspiring witness with regard to</b> a case of <b>monetary law, he is fit to</b> testify about cases of <b>capital law,</b> as there is no indication that he treats this matter lightly.
+
+### Part 15
+The Gemara concludes its suggestion: <b>Let us say</b> that the opinion of <b>Abaye is in accordance with</b> the opinion of <b>Rabbi Meir, and</b> the opinion of <b>Rava is in accordance with</b> the opinion of <b>Rabbi Yosei.</b> The Gemara clarifies: The opinion of <b>Abaye is in accordance with</b> the opinion of <b>Rabbi Meir, who says</b> that <b>we say</b> that <b>from</b> being rendered a conspiring witness with regard to <b>a minor</b> issue one is disqualified from bearing witness even <b>with regard to a major</b> issue. <b>And</b> the opinion of <b>Rava is in accordance with</b> the opinion of <b>Rabbi Yosei, who says</b> that <b>we say</b> that <b>from</b> being rendered a conspiring witness with regard to a relatively <b>major</b> issue one is disqualified <b>with regard to</b> a relatively <b>minor</b> issue; but <b>we do not say</b> that <b>from</b> being rendered a conspiring witness with regard to a relatively <b>minor</b> issue one is disqualified even <b>with regard to</b> a relatively <b>major</b> issue.
+
+### Part 16
+The Gemara rejects this suggestion: <b>No. Everyone agrees</b> that <b>according to</b> the opinion <b>of Rabbi Yosei</b> one who is rendered a conspiring witness with regard to a minor issue is not suspected of lying about a major issue. <b>When</b> Abaye and Rava <b>disagree,</b> it is <b>according to</b> the opinion <b>of Rabbi Meir,</b> i.e., they disagree concerning what Rabbi Meir holds.
+
+### Part 17
+<b>Abaye</b> holds <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> and derives from his opinion that one who eats non-kosher meat to express insolence is disqualified from bearing witness. <b>And Rava</b> holds that <b>only there, with regard to a conspiring witness in a monetary</b> case, does <b>Rabbi Meir state</b> his ruling that one who is rendered a conspiring witness about a minor issue is suspected of lying with regard to major issues as well. Rabbi Meir is of the opinion <b>that</b> he is both <b>bad toward Heaven,</b> having transgressed the prohibition against bearing false witness, <b>and bad toward people,</b> having caused another to lose money unrightfully. He is therefore suspected of testifying falsely with regard to any matter. <b>But here,</b> with regard to one who eats non-kosher meat to express insolence, a person <b>who is bad toward Heaven but is not</b> proven to be <b>bad toward people,</b> he is <b>not</b> disqualified.
+
+### Part 18
+The Gemara concludes: <b>And the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Abaye.</b> The Gemara asks: <b>But wasn’t</b> his opinion <b>conclusively refuted?</b> The Gemara answers: <b>That</b> <i>baraita</i> from which Abaye’s opinion was refuted <b>is</b> in accordance with the opinion of <b>Rabbi Yosei,</b> and Abaye does not accept his opinion.
+
+### Part 19
+The Gemara asks: <b>And let it even be</b> in accordance with the opinion of <b>Rabbi Yosei.</b> According to the principles of halakhic ruling, in a dispute between <b>Rabbi Meir and Rabbi Yosei, the <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei.</b> How can his opinion be rejected?
+
+### Part 20
+The Gemara answers: <b>There it is different, as</b> the <b><i>tanna</i> taught us an unattributed</b> mishna <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> and it is a general principle that the <i>halakha</i> is in accordance with rulings found in unattributed <i>mishnayot</i>. The Gemara asks: <b>And where did</b> the <b><i>tanna</i> teach us</b> such <b>an unattributed</b> mishna?
+
+### Part 21
+The Gemara answers that this was established through a certain incident, <b>as that</b> incident occurred in <b>which</b> a man named <b>bar Ḥama killed a person. The Exilarch said to Rav Abba bar Ya’akov: Go investigate this</b> case, and <b>if he certainly killed</b> him, <b>let them put his eyes out.</b> Subsequently <b>two witnesses came</b> and <b>testified that he certainly killed</b> him. Bar Ḥama then <b>went</b> and <b>brought two</b> other <b>witnesses,</b> who <b>testified about one of those</b> first witnesses. <b>One said: He stole, in my presence, a <i>kav</i> of barley; and one said: He stole, in my presence,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,45 @@
+
+### Partie 1
+indique que pour rendre une offrande <i>piggul</i>, le pretre <b>ne melange pas d'autres</b> intentions impropres [<i>mahashavot</i>] avec</b> l'intention de <i>piggul</i>. S'il a plus d'un type d'intention impropre, l'offrande est disqualifiee, mais elle n'est pas rendue <i>piggul</i>.
+
+### Partie 2
+Lorsque le verset indique : <b>"<i>Piggul</i>, cela fait</b> reference a une offrande que l'on avait l'intention de consommer <b>en dehors de sa</b> <b>zone designee.</b>
+
+### Partie 3
+Et puisque le verset dit : <b>"Il sera",</b> et non : Ils seront, cela <b>enseigne que</b> l'intention de consommer la moitie d'une botte d'olives au-dela de son temps designe et l'intention de consommer la moitie d'une botte d'olives en dehors de sa zone designee <b>se joignent l'une a l'autre</b> pour constituer la mesure minimale requise pour disqualifier l'offrande.
+
+### Partie 4
+Enfin, lorsque le verset indique : <b>"Et l'ame qui en mangera</b> portera son iniquite", le terme "d'elle" indique que seule <b>une</b> des disqualifications ci-dessus entraine la peine de <i>karet</i>, <b>mais pas deux</b> d'entre elles. <b>Et laquelle ? </b> C'est l'intention de consommer l'offrande <b>au-dela de son</b> <b>temps designe, comme</b> on <b>derive</b> par analogie verbale entre <b>"iniquite"</b> et <b>"iniquite" de <i>notar</i></b> (Levitique 19:8), que "porter son iniquite" signifie qu'on est susceptible de recevoir <i>karet</i>. La comparaison est pertinente <b>puisque</b> <i>notar</i> <b>est similaire a</b> l'intention de consommer l'offrande au-dela de son temps designe <b>en</b> que les deux interdictions partagent les caracteristiques mentionnees ci-dessus qui forment l'acronyme : <b><i>Zayin</i>, <i>malgre</i>.</b>
+
+### Partie 5
+<b>Rav Pappa a dit a Rava : Selon ton</b> avis, de <b>quelle maniere</b> interpretes-tu</b> la reference au <b>troisieme</b> jour (Levitique 19:7) <b>dans la Torah <b>portionnee</b> qui commence : <b>Vous serez saints"?</b> Rava repond : <b>Ce verset</b> est <b>necessaire pour</b> enseigner <b>que</b> un <b>endroit</b> donne est considere comme etant en dehors de la zone designee de l'offrande uniquement s'il <b>est</b> ainsi <b>de trois manieres,</b> c'est-a-dire en dehors des limites autorisees <b>du</b> sang, de</b> la <b>viande, et des <b>portions sacrificielles.</b>
+
+### Partie 6
+La Gemara demande : Pourquoi ne pas <b>me laisser deriver</b> cette <i>halakha</i> <b>du premier verset :</b> "Et <b>si</b> une partie de la chair de ses offrandes de paix <b>est consommee</b> le troisieme jour" (Levitique 7:18), <b>puisque le Misericordieux exprime</b> ce verset egalement <b>avec le terme "troisieme" ? </b> Puisque Rava tire de ce verset la disqualification de l'intention de consommer une offrande en dehors de sa zone designee, pourquoi ne pas le laisser tirer cette <i>halakha</i> du verset egalement ?
+
+### Partie 7
+<b>Rav Ashi a dit : J'ai enonce</b> cette <b><i>halakha</i> devant Rav Mattana,</b> et <b>il m'a dit : Si</b> on devait faire deriver cette <i>halakha</i> uniquement <b>de la</b> (Levitique 7:18), <b>je dirais : </b> Le terme <b>"troisieme"</b> est <b>un detail,</b> et le terme <b>"<i>piggul</i>"</b> est <b>une generalisation, et</b> chaque fois qu'un detail est suivi d'une generalisation, <b>la generalisation devient un ajout au detail, et</b> par consequent, tous les <b>autres domaines sont inclus</b> egalement. Le verset supplementaire <b>nous enseigne</b> que la <i>halakha</i> n'inclut que les zones qui sont exterieures de trois manieres.
+
+### Partie 8
+§ <b>Les Sages ont enseigne</b> en ce qui concerne le verset : <b>"Et si une partie de la chair de ses sacrifices de paix est consommee</b> le troisieme jour, elle ne sera pas acceptee" (Levitique 7:18) : <b>Rabbi Eliezer a dit : Penchez votre oreille pour entendre</b> le vrai sens du verset : <b>Le verset parle de celui qui a l'intention de participer a son offrande le troisieme jour. Ou</b> peut-etre se refere-t-il <b>uniquement</b> a celui <b>qui</b> participe effectivement <b>a son offrande le troisieme jour,</b> selon le sens direct du verset ? Mais cela ne peut pas etre ; diriez-vous que <b>apres</b> que l'offrande <b>est convenable</b> pour les deux premiers jours, <b>elle devrait alors etre disqualifiee</b> retroactivement en etant mangee le troisieme jour ?
+
+### Partie 9
+<b>Rabbi Akiva lui a repondu : Oui,</b> il pourrait etre disqualifie retroactivement. Apres tout, <b>nous constatons a propos d'un homme qui eprouve un ecoulement de type gonorrhee [<i>zav</i>], ou d'une femme qui eprouve un ecoulement de sang uterin apres ses regles [<i>zava</i>], ou d'une femme qui observe</b> un <b>jour de purete pendant un jour</b> ou elle eprouve un ecoulement, <b>qu'ils</b> tous <b>ont le statut presume de purete</b> apres l'immersion. <b>Mais des qu'ils ont vu</b> une autre decharge le meme jour, <b>ils ont annule</b> ce statut retroactivement, et tout ce qu'ils avaient touche apres l'immersion devient impur. Par consequent, <b>Vous aussi ne devez pas vous etonner de cette</b> offrande consommee au-dela du temps prevu, <b>car meme si elle a ete rendue apte, elle peut ensuite etre disqualifiee</b> retroactivement.
+
+### Partie 10
+Rabbi Eliezer lui <b>dit : Mais</b> le meme verset <b>dit : "Celui qui l'offre</b>, indiquant que l'offrande <b>est disqualifiee au moment</b> de son <b>offrande, et qu'elle n'est pas disqualifiee le troisieme</b> jour. <b>Ou</b> peut-etre lorsque le verset <b>dit : "Celui qui l'offre</b>, <b>cela</b> fait reference <b>uniquement</b> au <b>pretre qui sacrifie</b> l'offrande, indiquant qu'il est disqualifie. Mais si tel etait le cas, il aurait suffi que le verset dise : Celui qui offre ne sera pas credite. Par consequent, <b>lorsqu'il est dit</b> a la place : "Elle ne sera pas non plus creditee a celui qui l'offre,"</b> cela indique que le verset <b>parle de l'offrande, et ne parle pas du pretre.</b>
+
+### Partie 11
+<b>Ben Azzai dit : Pourquoi</b> faut-il que <b>le verset dise : "Il"?</b> C"?est nécessaire <b>parce qu"?ailleurs <b>il est indiqué :</b> "Lorsque tu feras un voeu au Seigneur ton Dieu, <b>tu ne tarderas pas A l"?acquitter,</b> car le Seigneur ton Dieu l"?exigera de toi, et ce sera un péché en toi" (Deutéronome 23:22). On <b>pourrait</b> penser que <b>meme</b> celui qui <b>est en retard</b> dans l'accomplissement de <b>son vœu</b> est inclus <b>dans : "Il ne sera pas accepté"</b> (Levitique 7:18). Par consequent, <b>le verset dit : "Il,"</b> pour indiquer que <b>cela,</b> une offrande rendue <i>piggul</i>, <b>est</b> incluse <b>dans</b> la <i>halakha</i> de : <b>"Il ne sera pas accepte," mais</b> l'animal de <b>celui qui est en retard</b> dans l'accomplissement de <b>son vœu n'est pas</b> inclus <b>dans</b> le <i>halakha</i> de : <b>Il ne sera pas accepte.</b>
+
+### Partie 12
+<b><i>Aherim</i> disent:</b> On peut conclure que le verset (Levitique 7 : 18) fait reference a l'intention impropre plutot qu'a la consommation impropre d'apres la phrase <b>"?elle ne sera pas non plus creditee [<i>yehashev</i>],"</b> qui indique que l'offrande <b>est disqualifiee par</b> l'intention impropre [<i>mahashava</i>], et qu'elle n'est pas disqualifiee</b> par la consommation <b>le troisieme</b> jour.
+
+### Partie 13
+La Gemara demande : <b>Et ben Azzai,</b> qui interprete le terme "il" comme excluant les vœux accomplis tardivement, <b>d'ou tire-t-il</b> <b>que le verset parle de</b> l'<b>offrande et non du <b>pretre ?</b> La Gemara repond : <b>Si vous le souhaitez, dites</b> que <b>il le derive de</b> la declaration <b>de <i>Aherim</i></b> que le verset exclut la disqualification le troisieme jour lui-meme. Cela ne serait necessaire que si le verset se refere a l'offrande et non au pretre. <b>Ou, si vous le souhaitez, dites</b> a la place : <b>Du fait</b> <b>qu'il est ecrit : "Ils ne seront pas acceptes"</b> (Levitique 22:25), <b>et : "Elle ne sera pas acceptee"</b> (Levitique 7:18), il est evident que le verset <b>se refere a <b>une offrande,</b> qui peut etre acceptee ou non.
+
+### Partie 14
+La Gemara demande : <b>Et</b> en ce qui concerne l'affirmation de <b>ben Azzai</b> selon laquelle on deduit du mot "il" que <b>il,</b> c'est-a-dire <i>piggul</i>, est inclus <b>dans</b> la <i>halakha</i> de : <b>Il ne sera pas accepte,</b> mais</b> l'animal de celui qui <b>est en retard</b> dans l'accomplissement de <b>son vœu n'est pas</b> inclus <b>dans</b> la <i>halakha</i> de : <b>"Il ne sera pas accepte"</b>, cette <i>halakha</b> est-elle <b>derivee d'ici ? Il est derive de</b> l'enonce <b>de <i>Aherim</i>, tel qu'il est enseigne</b> dans un <i>baraita</i> : <b><i>Aherim</i> disent :</b> On <b>pourrait</b> avoir pense qu'un <b>animal premier-ne</b> <b>dont la premiere <b>annee s'est ecoulee,</b> pendant laquelle il aurait du etre sacrifie, <b>devrait etre</b>...
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

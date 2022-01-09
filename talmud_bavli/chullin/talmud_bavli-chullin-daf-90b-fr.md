@@ -1,0 +1,66 @@
+
+### Partie 1
+<b>Il n'etait pas necessaire</b> pour <b>le verset de les inclure</b>. <b>Quand</b> un verset <b>etait necessaire</b> c'etait <b>pour le nerf sciatique qui</b> est encore <b>attache</b> a la chair. Le terme "tout" enseigne que si le nerf sciatique est attache a la chair, il est amene a l'autel.
+
+### Partie 2
+<b>Et les rabbins</b> expliquent leur opinion en se basant sur le verset :" Et un agneau du troupeau, sur deux cents, <b>des paturages bien arroses [<i>mimashke</i>] d'Israel;</b> pour une offrande de repas, pour un holocauste et pour un sacrifice de paix, afin de faire l'expiation pour eux, dit le Seigneur Dieu" (Ezechiel 45:15). Comme le terme <i>mashke</i> signifie egalement boisson, qui est consommee, le verset est interprete comme signifiant que les offrandes peuvent etre sacrifiees uniquement <b>a partir de ce qui est permis au peuple juif</b> pour la consommation. Comme le nerf sciatique n'est pas autorise a la consommation, il ne peut etre sacrifie sur l'autel. Par consequent, le terme "tout" est compris comme incluant les tendons et les os, meme s'ils se sont detaches de la chair.
+
+### Partie 3
+<b>Et Rabbi</b> Yehuda HaNasi repondra qu'un nerf sciatique qui est attache a la chair peut etre apporte sur l'autel, <b>tout comme il est</b> permis de sacrifier sur l'autel de la <b>graisse et du sang</b> interdits, meme s'ils sont interdits a la consommation. <b>Et les rabbins</b> diraient que la graisse et le sang interdits <b>sont differents,</b> car la Torah indique explicitement que <b>leur mitsva est</b> d'etre offerts sur l'autel <b>de cette</b> maniere, alors que la Torah n'impose jamais le sacrifice du nerf sciatique sur l'autel. Selon Rav Nahman bar Yitzhak, Rabbi Hiyya bar Yosef est d'accord avec Rabbi Yehuda HaNasi que le nerf sciatique est offert sur l'autel avec le reste de l'animal, tandis que Rabbi Yohanan est d'accord avec l'opinion des rabbins que le nerf sciatique n'est pas offert sur l'autel.
+
+### Partie 4
+§ La Guemara cite une autre discussion concernant le nerf sciatique d'un holocauste. <b>Rav Huna dit : Le nerf sciatique d'un holocauste</b> n'est pas place sur l'autel avec le reste de l'animal. Au contraire, <b>on le retire</b> et on le place <b>sur le</b> <b>monticule circulaire</b> de cendres au centre de l'autel. <b>Rav Hisda a dit : Maitre de cette [<i>mari dikhi</i>]</b> decision ! <b>Est-il ecrit</b> dans la Torah : <b>C'est pourquoi l'autel ne consomme pas</b> le nerf sciatique ? Cela indiquerait qu'il est interdit de sacrifier le nerf sciatique sur l'autel. Au contraire, il <b>est ecrit :" C'est pourquoi les enfants d'IsraA "l ne mangent pas</b> le nerf sciatique" (Genèse 32:33).
+
+### Partie 5
+<b>Et Rav Huna</b> soutient que la phrase : <b>"Des paturages bien arroses d'Israel"</b> indique que les offrandes ne peuvent etre sacrifiees que <b>de ce qui est permis au peuple juif.</b> Le nerf sciatique n'etant pas autorise a la consommation, il ne peut etre sacrifie sur l'autel.
+
+### Partie 6
+La Guemara <b>souleve une objection</b> a l'opinion de Rav Huna. Elle est enseignee dans une <i>baraita</i> : Que doit-on faire avec <b>le nerf sciatique d'une offrande de paix,</b> puisque la viande de l'offrande doit etre consommee mais que le nerf sciatique est interdit ? <b>On le balaie jusqu'au</b> <b>drain de la cour du Temple. Et</b> dans le cas du nerf sciatique <b>d'un holocauste, on le fait monter</b> a l'autel. La Gemara commente : <b>Quoi, n'est-ce pas</b> que la <i>baraita</i> signifie que <b>il le fait monter</b> a l'autel <b>et le brule</b> avec le reste de l'animal, ce qui contredit la declaration de Rav Huna ?
+
+### Partie 7
+La Gemara repond : <b>Non,</b> la <i>baraita</i> signifie que <b>il l'amene</b> a l'autel <b>et l'enleve</b> de la cuisse avant de placer la cuisse sur le feu. La Guemara demande : <b>Mais puisqu'il l'enleve</b> de la cuisse, <b>pourquoi l'amene-t-il</b> a l'autel ? La Guemara repond qu'on ne peut pas faire monter la cuisse a l'autel apres l'ablation du nerf sciatique <b>parce qu'il est dit</b> a propos de celui qui sacrifie des offrandes endommagees ou inesthetiques : <b>"Presente-le maintenant a ton gouverneur;</b> sera-t-il satisfait de toi, ou acceptera-t-il ta personne ? dit le Seigneur des armees" (Malachie 1:8). Par consequent, la patte de l'animal doit etre amenee jusqu'a l'autel alors qu'elle est entiere, et le nerf sciatique doit etre retire au sommet de l'autel.
+
+### Partie 8
+Il <b>est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'avis <b>du Rav Huna : </b> En ce qui concerne le <b>nerf sciatique d'une offrande de paix, on le balaie dans le</b> <b>drain de la cour du Temple ; et</b> en ce qui concerne le nerf sciatique <b>d'un holocauste, on le retire</b> et on le place <b>sur le <b>monticule circulaire</b> de cendres au centre de l'autel.
+
+### Partie 9
+<b>On a appris</b> dans une mishna <b>la-bas</b> (<i>Tamid</i> 28b) : <b>Il y avait</b> un <b>monticule circulaire</b> de cendres <b>au centre de l'autel,</b> et <b>parfois il y avait</b> jusqu'a <b>trois cents <i>kor</i></b> de cendres <b>sur celui-ci. Rava dit :</b> Cette description est <b>une exageration [<i>guzma</i>] ; </b> le <i>tanna</i> signifie simplement qu'il y avait une quantite importante de cendres.
+
+### Partie 10
+De meme, il est enseigne dans une mishna (<i>Tamid</i> 30a) qu'avant d'abattre l'offrande quotidienne, les pretres <b>donnaient</b> a l'agneau selectionne pour <b>l'offrande quotidienne</b> de l'eau <b>a boire dans une coupe en or,</b> afin de rendre l'animal plus facile a ecorcher apres l'abattage. A propos de cette mishna, <b>Rava dit :</b> Il s'agit d'une <b>exageration,</b> car les pretres ne laissaient pas reellement l'animal boire dans un recipient en or.
+
+### Partie 11
+La Guemara fournit d'autres exemples de declarations qui ne sont pas entendues litteralement. <b>Rabbi Ami dit :</b> Dans certains cas, <b>la Torah a parle</b> en employant un langage <b>exagere [<i>havai</i>], les Prophetes ont parle</b> en employant un langage <b>exagere,</b> et <b>les Sages ont parle</b> en employant un langage <b>exagere. </b> Le fait que <b>les Sages ont parle</b> en employant un <b>langage exagere</b> est evident a partir de <b>ce que nous avons declare ci-dessus,</b> concernant le monticule de cendres et l'agneau de l'offrande quotidienne.
+
+### Partie 12
+<b>La Torah a parle</b> en employant un <b>langage exagere,</b> comme il est ecrit : A "A Ecoute, Israel : Tu passes aujourd'hui le Jourdain, pour aller deposseder des nations plus grandes et plus puissantes que toi, <b>des villes grandes et fortifiees jusqu'au ciel"/b> (Deuteronome 9, 1), alors que les fortifications ne montaient evidemment pas jusqu'au ciel. <b>Les prophetes parlaient</b> en employant un <b>langage exagere,</b> comme il est ecrit a propos du couronnement du roi Salomon : "Tout le peuple monta après lui, et le peuple joua de la flA "te, et se réjouit avec une grande joie, <b>au point que la terre se déchira au son de ces instruments"</b> (IA Rois 1:40), oA¹ le verset signifie simplement que le son était très fort.
+
+### Partie 13
+<b>Rabbi Yitzhak bar Nahmani dit</b> que <b>Shmuel dit : En trois endroits, les Sages ont parle</b> en <b>langage exagere, et ce sont</b> en ce qui concerne le <b>monticule circulaire</b> de cendres sur l'autel ; la <b>vigne ; et</b> le <b>Couverture</b> separant le Sanctuaire et le Saint des Saints. Le cas du <b>monticule circulaire</b> de cendres <b>est celui que nous avons dit.</b>
+
+### Partie 14
+Le cas de la <b>vigne</b> est <b>comme nous l'avons appris</b> dans une mishna (<i>Middot</i> 36a) : <b>Un ornement d'or</b> en forme de <b>vigne se trouvait a l'entree du Sanctuaire,</b> et il etait <b>accroche a des perches. Et quiconque faisait don</b> d'une feuille d'ornement en or, d'un <b>raisin ou d'une grappe</b> de raisin au Temple l'<b>apporterait</b> au Temple <b>et l'accrocherait</b> <b>sur la vigne. <b>Rabbi Elazar, fils de Rabbi Tzadok, a dit : Il y eut</b> une fois <b>un incident, et trois cents pretres furent enroles pour deplacer</b> la vigne a cause de son poids immense. Selon Shmuel, cette description est egalement une exageration.
+
+### Partie 15
+Le cas du <b>Couverture</b> est <b>comme nous l'avons appris</b> dans une mishna (<i>Shekalim</i> 8:2) : <b>Rabban Shimon ben Gamliel dit au nom de Rabbi Shimon, le grand pretre adjoint</b> : Le <b>Tenture</b> a l'<b>epaisseur d'un fil de main [<i>tefah</i>]. Il est tisse a partir de soixante-douze brins [<i>nirim</i>]</b> de fil, <b>et chacun de ces brins [<i>nima</i>]</b> de ces soixante-douze est fait de <b>vingt-quatre fils</b> composes de six fils chacun de laine bleu ciel, de laine pourpre, de laine ecarlate et de lin fin. <b>Sa longueur</b> est de <b>quarante coudees,</b> la hauteur du Sanctuaire, <b>et sa largeur</b> est de <b>vingt coudees,</b> la largeur de l'entree. <b>Et</b> elle <b>est faite de quatre-vingt-deux dix-mille,</b> soit 820 000 dinars. <b>Et</b> les surveillants du Temple <b>font deux</b> nouveaux Rideaux chaque <b>annee. Et</b> le Rideau etait si lourd que lorsqu'il etait immerge, <b>trois cents pretres l'immergeaient.</b>
+
+### Partie 16
+§ La mishna enseigne que l'interdiction du nerf sciatique s'applique <b>a</b> la <b>cuisse de la jambe droite</b> <b>et a</b> la <b>cuisse de la jambe gauche</b>. La Gemara dit : <b>La mishna n'est pas conforme</b> a l'avis de <b>Rabbi Yehuda, car il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit :</b> L'interdiction du nerf sciatique <b>ne s'applique qu'au</b> nerf sciatique <b>d'une</b> des cuisses de l'animal, <b>et la logique veut</b> que ce soit <b>la cuisse droite</b>.
+
+### Partie 17
+<b>Un dilemme a ete souleve devant</b> les Sages : Est-il <b>evident pour Rabbi Yehuda</b> que l'interdiction ne s'applique qu'au nerf sciatique de la cuisse droite, <b>et</b> en consequence, <b>que veut-il dire lorsqu'il dit que <b>la logique</b> l'impose ? Il veut dire <b>la logique de la Torah. Ou peut-etre est-il incertain</b> de savoir si cela s'applique uniquement a la cuisse droite ou uniquement a la gauche, <b>et</b> en consequence, <b>que veut-il dire quand il dit que <b>la logique</b> dicte ? Il veut dire que <b>la logique incline</b> a croire que l'interdiction s'applique a la cuisse droite.
+
+### Partie 18
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution basee sur la mishna suivante (<i>Pesahim</i> 83a) : <b>Les os</b> de l'offrande pascale qui contiennent de la moelle comestible mais qui ne peuvent etre manges car il est interdit de briser les os de l'offrande pascale ; <b>et les tendons ; et les restes</b> de viande <b>doivent</b> tous <b>etre brules le seize</b> de Nisan, et non le quinze, premier jour de Pessah. <b>Et nous en avons discute : Quelles sont les circonstances</b> dans lesquelles <b>ces tendons</b> doivent etre brules ? <b>Si nous disons</b> que ce sont des <b>renes de viande, qu'on les mange.</b> Pourquoi les brule-t-on ? <b>Et si</b> ce sont des tendons <b>qui ont ete laisses</b> et n'ont pas ete consommes, <b>c'est</b> le cas des <b>restants</b> de viande ; pourquoi la mishna enumere-t-elle les tendons separement ? <b>La mishna fait plutot reference aux <b>rains du cou,</b> qui sont differents des autres nerfs et sont donc mentionnes separement. Mais <b>si ce n'est pas de la viande,</b> pourquoi faut-il les bruler ? <b>Que l'on</b> se contente de les <b>jeter</b> comme les autres dechets.
+
+### Partie 19
+<b>Et Rav Hisda dit :</b> La mention dans la mishna des tendons <b>est necessaire uniquement</b> afin d'enseigner la <i>halakha</i> <b>du nerf sciatique,</b> et <b>conformement</b> a l'avis <b>de Rabbi Yehuda, qui a dit : </b> L'interdiction du nerf sciatique <b>s'applique uniquement</b> au nerf sciatique dans <b>une</b> des cuisses de l'animal, et non aux deux.
+
+### Partie 20
+La Guemara explique comment cela resout le dilemme : <b>Accorde si l'on dit</b> que Rabbi Yehuda <b>est incertain</b> quant a savoir s'il s'agit du nerf sciatique de la cuisse droite ou de la cuisse gauche, cela fonctionne <b>bien.</b> Puisqu'on est incertain de la cuisse qui peut etre consommee, on ne peut manger aucune des deux, et on doit bruler chacune d'elles le seize en raison de la possibilite qu'elle etait celle qui etait permise et qu'elle a maintenant le statut de reste de viande. <b>Mais si l'on dit</b> qu'il est <b>evident</b> pour Rabbi Yehuda que le nerf sciatique de la cuisse droite seulement est interdit, <b>qu'il mange</b> le nerf sciatique <b>de la cuisse gauche permise</b> et <b>qu'il ne jette</b> que le nerf sciatique <b>de la cuisse droite interdite</b>. Aucun des deux ne doit etre brule.
+
+### Partie 21
+La Guemara repond : <b>Rav Ika bar Hanina a dit : En fait, je</b> pourrais <b>vous dire</b> qu'il est <b>evident</b> pour Rabbi Yehouda que le nerf sciatique de la cuisse droite seulement est interdit. Neanmoins, <b>Il s'agit ici</b> d'un cas <b>ou les nerfs sciatiques <b>ont ete identifies</b> et retires, <b>mais finalement</b> les nerfs sciatiques <b>se sont entremeles</b> et on ne peut pas dire lequel provient de la cuisse droite et lequel provient de la cuisse gauche. Par consequent, il faut les laisser tous les deux jusqu'au lendemain, puis les bruler.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

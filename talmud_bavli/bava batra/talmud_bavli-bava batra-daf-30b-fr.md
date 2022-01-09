@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>que cette terre est</b> autrefois <b>mienne, et</b> que <b>vous</b> ne l'avez pas <b>achetee de moi ? Va</b> loin ; <b>Je ne suis pas legalement responsable devant toi. Rava a dit :</b> Le demandeur <b>a declare la <i>halakha</i> au</b> possesseur, car c'est une revendication legitime, et Rava a accepte sa revendication.
+
+### Partie 2
+Il y avait <b>une certaine</b> personne <b>qui disait a une autre : Que veux-tu de ce terrain</b> qui m'appartient ? Le possesseur lui <b>repondit : Je l'ai achete a untel et</b> ensuite <b>j'ai</b> travaille et <b>en ai profite</b> pendant <b>les annees</b> necessaires pour etablir la <b>presomption</b> de propriete. Le demandeur lui a <b>dit : Untel est un voleur</b> qui m'a vole le champ, et il n'avait pas le pouvoir de te le vendre.
+
+### Partie 3
+Le possesseur lui <b>dit : Mais j'ai des temoins que je suis venu</b> et que je t'ai <b>consulte, et que tu m'as dit : Va acheter</b> le terrain, indiquant que vous avez concede qu'il avait le pouvoir de le vendre. Le demandeur lui <b>a dit :</b> La raison pour laquelle je t'ai conseille de l'acheter est que <b>la deuxieme</b> personne, c'est-a-dire toi, le possesseur, <b>est a ma disposition,</b> alors que <b>la premiere,</b> c'est-a-dire le pretendu voleur, <b>est plus difficile que lui,</b> c'est-a-dire que je prefere plaider avec toi plutot qu'avec lui. <b>Rava a dit :</b> Le pretendant <b>a declare la <i>halakha</i> au</b> possesseur, car c'est une revendication legitime, et Rava a accepte sa revendication.
+
+### Partie 4
+La Gemara demande : <b>Selon l'avis de qui</b> la declaration de Rava ? Est-elle <b>conforme</b> a l'opinion de <b>Admon ? Comme nous l'avons appris</b> dans une mishna (<i>Ketubot</i> 109a) : A propos de <b>celui qui conteste</b> la propriete <b>d'un champ,</b> pretendant qu'un champ possede par quelqu'un d'autre lui appartient en realite, <b>et</b> le pretendant lui-meme <b>est signe comme temoin sur</b> l'acte de vente du champ a cette autre personne, <b>Admon dit :</b> Sa signature ne refute pas sa revendication de propriete du bien, car il est possible que le pretendant se soit dit : <b>La deuxieme</b> personne <b>me convient</b> pour traiter, car je peux raisonner avec elle, alors que <b>le premier</b> proprietaire, qui a vendu le champ au possesseur actuel, <b>est plus difficile</b> a traiter <b>que lui. Et les rabbins disent : Il a perdu son droit</b> de contester, car il a signe un acte de vente qui stipule que le champ appartient au possesseur. La decision de Rava semble etre en accord avec l'opinion individuelle de Admon, et non avec l'opinion des rabbins.
+
+### Partie 5
+La Guemara explique : <b>Vous</b> pouvez <b>meme dire</b> que la decision de Rava est <b>conforme</b> a l'avis des <b>rabbins. La,</b> dans le cas de la mishna du tractate <i>Ketubot</i>, en signant l'acte de vente le demandeur <b>a accompli une action</b> indiquant que le champ ne lui appartenait pas <b>pour</b> le benefice du possesseur du champ, <b>mais ici,</b> dans le cas de Rava, il n'y a pas eu d'action, seulement des <b>discours,</b> et <b>une personne est apte a dire par hasard</b> des declarations, et elle ne perd pas son droit en vertu de cela.
+
+### Partie 6
+Il y avait <b>une certaine</b> personne <b>qui disait a une autre : Que veux-tu de cette terre</b> de la mienne ? Le possesseur lui <b>repondit : Je l'ai achete a untel et</b> ensuite <b>j'ai</b> travaille et <b>en ai profite</b> pendant <b>les annees</b> necessaires pour etablir la <b>presomption</b> de propriete. Le demandeur lui a <b>dit : Untel est un brigand</b> qui m'a vole le champ, et il n'avait pas le pouvoir de te le vendre. Le possesseur <b>lui dit : Mais j'ai des temoins que tu es venu</b> chez moi <b>la nuit et que tu m'as dit : Vends-le moi,</b> en indiquant que ce n'est pas ta terre, car si elle t'appartenait, tu aurais exige que je la rende sans que tu la paies. Le demandeur lui <b>a dit : Je me suis dit</b> : Laisse-moi <b>acheter</b> le benefice d'eviter <b>mon litige</b> afin de recuperer mon terrain. <b>Rava dit : Une personne est apte</b> a payer de l'argent <b>pour acheter</b> le benefice d'eviter <b>son litige.</b>
+
+### Partie 7
+Il y avait <b>une certaine</b> personne <b>qui disait a une autre : Que veux-tu de ce terrain</b> qui m'appartient ? Le possesseur lui <b>repondit : Je l'ai achete a untel et</b> ensuite <b>j'ai</b> travaille et <b>en ai profite</b> pendant <b>les annees</b> necessaires pour etablir la <b>presomption</b> de propriete, en indiquant qu'il l'a possede pendant trois ans, car c'est le nombre minimum d'annees requis pour etablir la presomption de propriete. Le demandeur lui <b>a dit : Mais je detiens un document</b> indiquant <b>que je l'ai achete a</b> ce vendeur <b>quatre ans</b> auparavant. Par consequent, s'il vous a ete vendu il y a trois ans, comme vous le pretendez, il n'avait pas le pouvoir de le vendre a ce moment-la.
+
+#### Partie 8
+Le possesseur lui <b>dit : Soutenez-vous</b> que lorsque j'ai dit : J'ai profite de la terre pendant <b>les annees</b> necessaires <b>pour</b> etablir la <b>presomption</b> de propriete, que <b>je disais</b> que j'ai travaille et profite de la terre pendant precisement <b>trois ans ?</b> Ce que <b>je</b> disais en realite <b>c'est que j'ai travaille et profite de la terre pendant <b>plusieurs annees</b> et que j'ai ainsi etabli la <b>presomption</b> de propriete. Comme mon achat etait anterieur au votre, il etait effectif. <b>Rava dit :</b> Il est <b>commode</b> pour les <b>personnes de se referer a de nombreuses annees</b> comme : <b>Annees</b> necessaires pour etablir la <b>presomption</b> de propriete, et sa demande est acceptee.
+
+### Partie 9
+La Gemara commente : <b>Et cette question</b> s'applique <b>seulement</b> si <b>il a profite</b> de la terre pendant <b>sept</b> ans, de sorte <b>que la presomption</b> de propriete <b>de ce</b> possesseur <b>precede le document de ce</b> demandeur.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

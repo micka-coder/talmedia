@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>Rabba a dit : C'est-a-dire,</b> si <b>on a epouse</b> une femme <b>avec le statut presume de vierge,</b> car il y avait des temoins qu'elle n'a pas eu de rapports sexuels, <b>et il s'est avere</b> qu'elle etait <b>non vierge, elle a</b> droit a <b>un contrat de mariage de cent dinars.</b> La Gemara rejette la preuve. <b>Rav Ashi a dit : En general, en fait, je</b> vous <b>dirais</b> que dans ce cas, <b>elle ne recoit pas</b> un contrat de mariage <b>du tout,</b> car il s'agit d'une transaction erronee. <b>Mais ici c'est different,</b> et elle ne perd pas totalement son contrat de mariage, <b>car le premier</b> mari l'a <b>amene dans</b> sa maison. Par consequent, le second mari aurait du considerer qu'une femme qui est entree dans la maison de son mari n'est plus vierge.
+
+### Partie 2
+La Gemara demande : <b>Et</b> puisqu'il y a des temoins qu'elle n'a pas eu de rapports sexuels avec le premier mari, <b>soucions-nous du fait qu'elle a peut-etre commis un adultere</b> apres les fiancailles, <b>alors qu'elle se trouvait</b> sous la juridiction du second mari, et statuons qu'elle lui est interdite en raison du soupcon d'adultere et n'a pas du tout droit a un contrat de mariage. <b>Rav Sherevya a dit :</b> Le <i>baraita</i> se refere a un cas <b>ou il l'a fiancee</b> <b>et a eu des rapports sexuels immediatement.</b> Il n'y a donc pas eu d'occasion de commettre un adultere entre ses fiancailles et son mariage avec le second mari.
+
+### Partie 3
+<b>D'autres ont enseigne cette</b> declaration de Rabba <b>en ce qui concerne la mishna : </b> Concernant <b>une vierge</b> qui est <b>une veuve, une divorcee,</b> ou <b>une <i>halutza</i></b> qui a atteint ce statut <b>a partir</b> d'un etat de <b>mariage,</b> pour toutes ces femmes <b>leur contrat de mariage est de cent dinars, et elles ne sont pas sujettes</b> a <b>une revendication</b> concernant leur <b>virginite. </b> La Gemara demande : <b>Comment peut-on trouver une vierge a partir</b> d'un etat de <b>mariage ?</b> C'est dans un cas <b>ou elle est entree dans le dais nuptial et n'a pas eu de rapports sexuels.</b>
+
+### Partie 4
+<b>Rabba a dit : C'est-a-dire,</b> si <b>on a epouse</b> une femme <b>avec le statut presume de vierge et qu'elle s'est averee</b> etre <b>une non-vierge, son contrat de mariage est de cent dinars.</b> La Gemara rejette la preuve. <b>Rav Ashi a dit : En general, en fait, je</b> vous <b>dirais</b> que <b>en general, elle ne</b> recoit pas de contrat de mariage <b>du tout,</b> car c'est une transaction erronee. <b>Mais ici c'est different,</b> et elle ne perd pas totalement son contrat de mariage, <b>puisqu'elle est entree dans le dais nuptial.</b> Par consequent, le second mari aurait du considerer qu'une femme qui est entree dans la maison de son mari n'est plus vierge.
+
+### Partie 5
+La Gemara demande : <b>Et craignons que peut-etre elle ait commis l'adultere</b> apres les fiancailles, <b>alors qu'elle etait sous</b> la juridiction du second mari. <b>Rav Sherevya dit :</b> Le <i>baraita</i> fait reference a un cas <b>ou il l'a fiancee</b> <b>et a eu des rapports sexuels immediatement.</b> Par consequent, il n'y a pas eu d'occasion de commettre un adultere entre ses fiancailles et son mariage avec le second mari.
+
+### Partie 6
+La Guemara note : <b>Celui qui a enseigne</b> l'echange entre Rabba et Rav Ashi <b>en ce qui concerne la <i>baraita</i>,</b> ou il y a un temoignage explicite qu'elle n'a pas eu de rapports avec le premier mari et neanmoins aucune preuve ne peut etre apportee que s'il decouvre qu'elle n'est pas vierge elle recoit un contrat de mariage de cent dinars, <b>a plus forte raison</b> dirait-il qu'il en est de meme <b>en ce qui concerne la mishna. </b> Et <b>celui qui a enseigne</b> l'echange <b>en ce qui concerne la mishna, cependant,</b> ne <b>pas</b> dire la meme chose <b>en ce qui concerne la <i>baraita</i>, en raison</b> du fait <b>que</b> le mari pouvait <b>s'adresser a elle : Je me suis appuye sur des temoins.</b> On peut donc apporter la preuve a partir de la <i>baraita</i> que s'il a decouvert qu'elle n'est pas vierge, elle recoit un contrat de mariage de cent dinars.
+
+### Partie 7
+<strong>MISHNA : </strong>Un homme <b>qui mange chez</b> son beau-pere en Judee</b> apres les fiancailles et <b>sans temoins</b> pour attester du fait qu'il n'etait pas seul avec sa fiancee <b>ne peut pas faire de reclamation concernant la virginite</b> apres le mariage <b>parce que</b> conformement a la coutume en Judee, l'hypothese est <b>qu'il s'est retire avec elle,</b> et la preoccupation est que c'est lui qui a eu des rapports sexuels avec elle.
+
+### Partie 8
+<strong>GEMARA : </strong>La Gemara en deduit : <b>D'apres</b> le fait <b>que</b> la mishna <b>enseigne</b> la <i>halakha</i> employant la phrase : Un homme <b>qui mange, par deduction</b> on peut conclure <b>qu'il existe aussi un endroit en Judee ou</b> le fiance <b>ne mange pas</b> chez son beau-pere, et n'entre pas en reclusion avec sa fiancee. <b>Abaye dit : Concluez-en qu'en Judee aussi il y a</b> differents <b>lieux</b> avec des coutumes differentes, <b>comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yehuda a dit : En Judee, on commencait par isoler le marie et la mariee</b> ensemble <b>pendant une breve periode avant leur entree dans le dais nuptial, afin qu'il</b> s'habitue <b>a sa</b> compagnie pour attenuer la gene lorsqu'ils consommeraient le mariage. <b>Et en Galilee, ils ne le firent pas.</b>
+
+### Partie 9
+Le <i>baraita</i> poursuit . <b>En Judee, on leur designait d'abord deux garcons d'honneur [<i>shushvinin</i>], un pour lui et un pour elle, afin d'examiner le marie et la mariee au moment de leur entree dans le dais nuptial</b> et par la suite, pour s'assurer qu'aucun des deux ne se livrera a une tromperie concernant la presence ou l'absence de sang provenant de la rupture de l'hymen. <b>Et en Galilee, ils ne le feraient pas.</b> Comme la coutume de designer des garcons d'honneur ne serait pertinente que dans un cas ou le marie et la mariee n'ont pas ete ensemble en reclusion avant le mariage, il s'agit apparemment d'une coutume en Judee differente de la premiere coutume citee dans la mishna, ou ils entreraient en reclusion avant le mariage.
+
+### Partie 10
+Le <i>baraita</i> poursuit . <b>En Judee, dans un premier temps, les garcons d'honneur dormaient dans la maison ou dorment le marie et la mariee,</b> afin d'examiner le drap sur lequel le mariage a ete consomme immediatement apres le rapport sexuel. Ceci afin de s'assurer que le marie ne tenterait pas de masquer le sang de la rupture de l'hymen et de pretendre que la mariee n'etait pas vierge. <b>Et en Galilee, ils ne le feraient pas.</b>
+
+### Partie 11
+Le <i>baraita</i> conclut : <b>Et toute personne qui ne s'est pas conduite</b> <b>conformement a cette coutume ne peut faire une reclamation concernant la virginite</b> contre la mariee. La Gemara demande : <b>Concernant quel</b> cas dans le <i>baraita</i> ce principe a-t-il ete enonce ? <b>Si l'on dit</b> que c'est <b>concernant la premiere clause</b> de la <i>baraita</i>, concernant la coutume de sequestrer le couple avant le mariage, dans ce cas, la phrase : <b>Quelqu'un qui s'est conduit</b> conformement a cette coutume ne peut pas faire de reclamation concernant la virginite, est ce que <b>il fallait dire,</b> en raison de la preoccupation que peut-etre ils ont eu des relations sexuelles avant le mariage.
+
+### Partie 12
+<b>C'est plutot,</b> en ce qui concerne la derniere clause</b> de la <i>baraita</i> : Ils designeraient pour eux deux garcons d'honneur pour les examiner, que le principe a ete enonce. Dans ce cas, la phrase : <b>Quiconque n'a pas ete examine</b> par les garcons d'honneur, est ce que <b>il fallait</b> dire, car cela depend de la famille de la mariee, et non la phrase : Quiconque ne s'est pas conduit conformement a cette coutume, qui indique que cela depend de lui.
+
+### Partie 13
+<b>Abaye a dit : En fait,</b> le principe est enonce <b>concernant la premiere clause ; et</b> emendez le <i>baraita</i> <b>et enseignez : Quiconque s'est conduit</b> conformement a cette coutume. <b>Rava lui dit : Mais n'est-ce pas enseigner</b> explicitement : <b>Quiconque ne s'est pas conduit</b> conformement a cette coutume ? On ne doit pas corrompre une <i>baraita</i> en raison d'une difficulte survenue dans sa comprehension. <b>Rava a plutot dit</b> que <b>c'est ce que</b> le <i>baraita</i> <b>dit : Celui qui n'a pas pratique la coutume de la Galilee dans la Galilee, mais</b> au contraire a observe <b>la coutume de la Judee dans la Galilee, ne peut pas faire une reclamation concernant la virginite</b> contre la mariee. <b>Rav Ashi a dit : En fait,</b> ce principe pourrait etre applique <b>concernant la derniere clause, et enseigner : Quiconque n'a pas ete examine.</b> Quand il est dit dans le <i>baraita</i> : Quiconque ne s'est pas conduit conformement a cette coutume, il fait reference a la coutume d'etre examine.
+
+### Partie 14
+<strong>MISHNA:</strong> Pour <b>bien une veuve</b> qui est <b>une Israelite et une veuve</b> qui est la fille <b>des pretres, son contrat de mariage est de cent dinars. Un tribunal de pretres percevait</b> un contrat de mariage de <b>quatre cents dinars pour une vierge</b> fille de pretre, soit le double de la somme du contrat de mariage standard pour une vierge, <b>et les Sages ne les ont pas reprimandes.</b>
+
+### Partie 15
+<strong>GEMARA :</strong> Un Sage <b>enseignait</b> dans une <i>baraita</i> : <b>Et</b> pour <b>une veuve</b> qui est la fille <b>de pretres, son contrat de mariage est de deux cents</b> dinars. La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna : Pour <b>a la fois une veuve</b> qui est <b>une Israelite et une veuve</b> qui est la fille <b>de pretres, leur contrat de mariage est de cent dinars ?</b>.
+
+### Partie 16
+<b>Rav Ashi a dit : Il y avait deux ordonnances</b> instituees : <b>Initialement, la</b> cour des pretres <b>instituait pour une vierge</b> fille de pretre un contrat de mariage de <b>quatre cents dinars, et pour une veuve,</b> un contrat de mariage de <b>cent dinars.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

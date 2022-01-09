@@ -1,0 +1,30 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>One who vows</b> that <b>dates</b> are forbidden <b>to</b> him <b>is permitted to</b> eat <b>date honey.</b> One who vows that <b>late grapes</b> are forbidden <b>to</b> him <b>is permitted to</b> eat <b>vinegar of late grapes. Rabbi Yehuda ben Beteira says:</b> In the case of <b>any</b> food <b>that the name of its derivative is called after its</b> name, i.e., the liquid that emerges from it bears its name, e.g., date honey or vinegar of late grapes, <b>and one vows</b> that the item itself, e.g., the grape, is forbidden to him, he is also <b>prohibited from</b> consuming the liquid <b>that emerges from it. But the Rabbis permit</b> this.
+
+### Part 2
+<strong>GEMARA:</strong> The statement of <b>the Rabbis is</b> identical to the statement of <b>the first <i>tanna</i></b> of the mishna, who rules that one who vows that dates are forbidden to him is permitted to eat date honey. What is the difference between them?
+
+### Part 3
+The Gemara answers: <b>There is</b> a difference <b>between them</b> with regard to <b>that which is taught</b> in a <i>baraita</i>: <b>Rabbi Shimon ben Elazar said this principle:</b> With regard to <b>anything that is commonly eaten</b> in its existing form, <b>and it is</b> also <b>common to eat</b> the liquid <b>that emerges from it, for example, dates and date honey,</b> if one <b>vowed</b> that <b>it is forbidden to him,</b> he is also <b>prohibited</b> from consuming the liquid <b>that emerges from it.</b> Similarly, if <b>one vows</b> that the liquid <b>that emerges from it</b> is forbidden to him, he is also <b>prohibited from</b> partaking of <b>it.</b>
+
+### Part 4
+The <i>baraita</i> continues: Conversely, with regard to <b>anything that is not commonly eaten</b> as it is, <b>and it is common to eat</b> the liquid <b>that emerges from it,</b> if one <b>vowed</b> that he will not eat <b>from it,</b> he is <b>prohibited from</b> consuming <b>only</b> the liquid <b>that emerges from it, as this</b> person <b>intended to</b> prohibit himself from eating <b>only</b> from the liquid <b>that emerges from it.</b> The first <i>tanna</i> does not distinguish between dates, which are commonly eaten in their original state, and late grapes, which are not. In both cases, he rules that the produce itself is forbidden and the derivative is permitted. By contrast, the Rabbis agree with Rabbi Shimon ben Elazar’s ruling with regard to produce that is not commonly eaten in its original state. They permit the produce itself and prohibit that which has emerged from it. Therefore, in the last case of the mishna, they permit eating the late grapes and prohibit eating their vinegar, whereas in the first case they prohibit both dates and date honey.
+
+### Part 5
+<strong>MISHNA:</strong> <b>One who vows</b> that <b>wine</b> is forbidden <b>to</b> him <b>is permitted</b> to partake of <b>apple wine,</b> i.e., cider, as the unspecified term wine refers only to grape wine. One who vows that <b>oil is</b> forbidden <b>to</b> him is <b>permitted</b> to partake of <b>sesame oil,</b> as the unspecified term oil refers only to olive oil. One who vows that <b>honey</b> is forbidden to him is <b>permitted</b> to eat <b>date honey,</b> as the unspecified term honey refers only to bee honey.
+
+### Part 6
+One who vows that <b>vinegar</b> is forbidden to him is <b>permitted</b> to partake of <b>vinegar of late grapes,</b> as vinegar is typically made from wine. One who vows that <b>leeks</b> are forbidden to him is <b>permitted</b> to eat <b><i>kaflutot</i>,</b> a type of leek. One who vows that <b>vegetables</b> are forbidden to him is <b>permitted</b> to eat wild <b>field vegetables, as this</b> type of vegetable has <b>a modifier</b> and is not referred to by the unspecified term vegetable.
+
+### Part 7
+<strong>GEMARA:</strong> <b>It is taught</b> in a <i>baraita</i>: With regard to <b>one who vows</b> that <b>oil</b> is forbidden <b>to</b> him, if he is <b>in Eretz Yisrael</b> he is <b>permitted to</b> eat <b>sesame oil and</b> is <b>prohibited from</b> eating <b>olive oil,</b> as in Eretz Yisrael the unspecified term oil refers to olive oil. <b>And</b> if he took the vow <b>in Babylonia, sesame oil</b> is <b>forbidden</b> to him, as oil in Babylonia was generally made from sesame seeds, <b>and</b> it is <b>permitted</b> for him <b>to</b> eat <b>olive oil,</b> which was rarely used there. If he takes the vow in <b>a locale where</b> people <b>use</b> both <b>this</b> type of oil <b>and that</b> type, <b>he is prohibited from</b> eating both <b>this</b> type <b>and that.</b>
+
+### Part 8
+The Gemara asks with regard to the last statement: <b>Isn’t</b> it <b>obvious</b> that he is prohibited from eating both types of oil? The statement seems superfluous. The Gemara answers: <b>No,</b> it is not superfluous. It is <b>necessary</b> only to teach that this is the <i>halakha</i> even <b>where most</b> people <b>use</b> only <b>one</b> type of oil. <b>Lest you say: I should follow the majority</b> and permit the other kind of oil, the <i>baraita</i> <b>teaches us</b> that <b>an uncertain</b> Torah <b>prohibition</b> is treated <b>stringently.</b> Therefore, the other type is forbidden as well, as it is possibly included in the meaning of the vow, although it is used only by a minority of the residents.
+
+### Part 9
+The <i>baraita</i> continues: With regard to <b>one who vows</b> that <b>vegetables</b> are forbidden <b>to</b> him, if he takes the vow <b>during the</b> first six <b>years of the seven-year</b> Sabbatical <b>cycle,</b> he is <b>prohibited from</b> eating <b>garden vegetables and permitted to</b> eat <b>field vegetables. But</b> if he takes the vow <b>during the Sabbatical Year,</b> he is <b>prohibited from</b> eating <b>field vegetables,</b> which are commonly eaten in the Sabbatical Year, <b>and</b> he is <b>permitted to</b> eat <b>garden vegetables,</b> which are rarely consumed during that period, as it is prohibited to work the land. <b>Rabbi Abbahu said in the name of Rabbi Ḥanina ben Gamliel:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

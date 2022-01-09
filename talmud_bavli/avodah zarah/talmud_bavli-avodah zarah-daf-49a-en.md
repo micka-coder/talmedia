@@ -1,0 +1,60 @@
+
+### Part 1
+<b>that if one planted</b> an <i>orla</i> nut, <b>or sank</b> the shoot of an <i>orla</i> tree into the ground, <b>or grafted</b> an <i>orla</i> tree, that which grows as a result is <b>permitted.</b>
+
+### Part 2
+<b>And if you would say</b> that this is not difficult, as <b>Rabbi Yosei distinguishes between</b> items that are forbidden due to <b>other prohibitions and</b> items that are forbidden due to <b>idol worship, does he</b> indeed <b>distinguish</b> in this manner? <b>But isn’t it taught</b> that with regard to <b>a field that was fertilized with dung</b> that came from an animal used in <b>idol worship, and similarly,</b> with regard to <b>a cow that was fattened with vetches</b> used in <b>idol worship,</b> there are opposing opinions: <b>It is taught</b> in <b>one</b> <i>baraita</i> that the <b>field may be sown</b> in the normal manner and the <b>cow may be slaughtered</b> and eaten, <b>and it is taught</b> in <b>another</b> <i>baraita</i> that the <b>field should be left fallow, and</b> the <b>cow should be made lean,</b> until the effects of the dung or vetches have passed.
+
+### Part 3
+<b>What, is it not</b> that <b>this</b> <i>baraita</i> that rules leniently is in accordance with the opinion of <b>Rabbi Yosei,</b> who holds that when both permitted and forbidden items contribute to a result, the result is permitted, <b>and that</b> <i>baraita</i> that rules stringently is in accordance with the opinion of <b>the Rabbis?</b> If so, it is clear that Rabbi Yosei does not distinguish between other prohibitions and idol worship, as in this case of idol worship he still permits the result of permitted and forbidden causes. The Gemara answers: <b>No,</b> these <i>baraitot</i> do not reflect the opinions of Rabbi Yosei and the Rabbis. Rather, <b>this</b> <i>baraita</i> is in accordance with the opinion of <b>Rabbi Eliezer, and that</b> <i>baraita</i> is in accordance with the opinion of <b>the Rabbis,</b> who disagree with him.
+
+### Part 4
+The Gemara asks: <b>Which</b> dispute between <b>Rabbi Eliezer and the Rabbis</b> is referred to here? <b>If we say</b> that it is the dispute between <b>Rabbi Eliezer and the Rabbis with regard to leaven,</b> that dispute does not necessarily correspond to the controversy between these two <i>baraitot</i>.
+
+### Part 5
+<b>As we learned</b> in a mishna (<i>Orla</i> 2:11): In the case of <b>non-sacred leaven and <i>teruma</i></b> leaven <b>that fell into</b> a non-sacred <b>batch of dough,</b> and <b>this one</b> alone was <b>not</b> potent enough <b>to cause</b> the dough <b>to become leavened, and that one</b> alone was <b>not</b> potent enough <b>to cause</b> the dough <b>to become leavened, and they combined and caused</b> the dough <b>to become leavened,</b> there is a dispute as to whether this dough has the status of <i>teruma</i>, and is therefore forbidden to non-priests, or whether it has the status of non-sacred bread.
+
+### Part 6
+<b>Rabbi Eliezer says: I follow the final</b> element that fell into the dough. If the <i>teruma</i> fell in last, the dough is forbidden to non-priests. <b>And the Rabbis say: Whether</b> the <b>forbidden item,</b> i.e., the <i>teruma</i>, <b>fell</b> in <b>first, or whether</b> the <b>forbidden item fell</b> in <b>last,</b> the dough <b>is not forbidden unless there is enough of</b> the forbidden leaven alone <b>to cause</b> the dough <b>to become leavened.</b>
+
+### Part 7
+<b>And Abaye says:</b> Rabbi Eliezer <b>taught</b> that when the permitted leaven fell in last, the mixture is permitted <b>only</b> in a case <b>where one first removed the forbidden</b> leaven, before the permitted leaven fell into the dough and made it rise. <b>But</b> if <b>one did not first remove the forbidden</b> leaven, the dough is <b>forbidden</b> even if the permitted leaven fell in last. Apparently, Rabbi Eliezer holds that when both permitted and forbidden leaven cause dough to become leavened, the dough is forbidden.
+
+### Part 8
+The Gemara rejects this interpretation: <b>But from where</b> is it apparent <b>that the reason</b> for the opinion <b>of Rabbi Eliezer is in accordance with Abaye’s</b> explanation? <b>Perhaps the reason</b> for the opinion <b>of Rabbi Eliezer is as</b> he says explicitly: <b>I follow</b> the <b>final</b> element. <b>If</b> the dough’s leavening is <b>completed by</b> the <b>forbidden</b> item, it is <b>forbidden; and if</b> it is <b>completed by</b> the <b>permitted</b> item, it is <b>permitted.</b> And this is the <i>halakha</i> <b>whether one removed</b> the forbidden item <b>or whether one did not remove</b> the forbidden item. Accordingly, Rabbi Eliezer does not necessarily hold that when both a forbidden and a permitted item contribute to a result, the result is forbidden.
+
+### Part 9
+<b>Rather,</b> the two conflicting <i>baraitot</i> cited with regard to a field fertilized with dung used in idol worship can be attributed in accordance with the opinions of <b>Rabbi Eliezer and the Rabbis with regard to wood</b> from an <i>ashera</i> tree.
+
+### Part 10
+<b>As we learned</b> in a mishna (49b): If one <b>took wood from</b> an <i>ashera</i>, it is <b>prohibited to</b> derive <b>benefit</b> from it. In a case where one <b>kindled</b> a fire in <b>an oven with</b> the wood, if it is <b>a new</b> oven and by kindling the fire he hardened the oven and made it stronger for use in the future, then the oven <b>must be shattered.</b> Since forbidden items were used in the process of forming the oven, one may not derive benefit from the use of the forbidden items. But if it is <b>an old</b> oven <b>it may be cooled;</b> it is prohibited to use the oven only while it is still hot. If one <b>baked bread with</b> wood from the <i>ashera</i> as the fuel, it is <b>prohibited to</b> derive <b>benefit</b> from the bread.
+
+### Part 11
+If this bread <b>was intermingled with other</b> bread, it is <b>prohibited to</b> derive <b>benefit</b> from <b>all</b> the bread. <b>Rabbi Eliezer says:</b> One must take the <b>benefit</b> and <b>cast</b> it <b>into the Dead Sea.</b> In other words, one is not required to destroy the bread. Instead, one should designate money equal in value to the wood that he used from the <i>ashera</i>, and he should destroy this money to offset the benefit he derived from the forbidden wood. The Rabbis <b>said to him: There is no</b> monetary <b>redemption for</b> objects that are forbidden due to <b>idol worship.</b> Once the bread becomes forbidden, it cannot be redeemed by having the value of the forbidden wood cast into the Dead Sea. In any event, Rabbi Eliezer apparently holds that the result of both forbidden and permitted causes is forbidden, as the bread was baked with both forbidden fuel, i.e., the wood from the <i>ashera</i>, and the permitted oven.
+
+### Part 12
+The Gemara asks: If the two conflicting <i>baraitot</i> cited with regard to a field fertilized with dung used in idol worship are attributed in accordance with the opinions of Rabbi Eliezer and the Rabbis, and if this is referring to Rabbi Eliezer’s statement with regard to bread baked in an oven that was heated with fuel from an <i>ashera</i>, then <b>who are the Rabbis who disagree with Rabbi Eliezer,</b> to whom the other <i>baraita</i> is attributed?
+
+### Part 13
+<b>If we say</b> that the reference is to <b>the Rabbis</b> who disagree with Rabbi Eliezer <b>with regard to</b> bread baked with <b>wood</b> from an <i>ashera</i>, this cannot be, as they are even more <b>stringent</b> than Rabbi Eliezer with regard to this matter. Not only do they deem bread that was baked with both forbidden and permitted fuel to be forbidden, but they require that it be destroyed and not redeemed. In others words, with regard to the status of the bread there is no dispute; all agree that it is forbidden. Therefore, both opinions are in accordance with the <i>baraita</i> that prohibits the result of both forbidden and permitted causes.
+
+### Part 14
+If the reference is <b>rather</b> to <b>the Rabbis</b> who disagree with Rabbi Eliezer <b>with regard to</b> <i>teruma</i> <b>leaven</b> that mixed with non-sacred leaven, as the Rabbis permit the mixture as long as the <i>teruma</i> leaven was not potent enough to cause the dough to rise, the more lenient of the two <i>baraitot</i> cannot be attributed in accordance with this opinion either; as <b>say that you heard that</b> these <b>Rabbis are lenient with regard to</b> the case of <b>leaven;</b> does that mean that <b>they are lenient with regard to</b> cases involving items of <b>idol worship?</b>
+
+### Part 15
+As a result of this question, the Gemara retracts its suggestion that Rabbi Yosei’s opinion in the mishna is based on the opinion that a result caused by both permitted and forbidden items is forbidden. <b>Rather,</b> Rabbi Yosei holds that the result is permitted, as is evident from the case of a ground-up and dispersed object of idol worship and from the case of a planted <i>orla</i> nut. Therefore, the <i>baraitot</i> can <b>actually</b> be attributed as follows: <b>This</b> <i>baraita</i> that permits the use of the field is in accordance with the opinion of <b>Rabbi Yosei, and that</b> <i>baraita</i> that prohibits its use is in accordance with the opinion of <b>the Rabbis.</b>
+
+### Part 16
+And as for the mishna, which seems to indicate that Rabbi Yosei holds that when a result is caused by both permitted and forbidden items it is forbidden, the Gemara explains that <b>Rabbi Yosei</b> was not expressing his own opinion. Rather, when he said that one may not plant vegetables under an <i>ashera</i> even during the rainy season, he said so <b>in accordance with the statement of the Rabbis</b> that a result caused by both permitted and forbidden items is forbidden. Rabbi Yosei <b>said to them: According to my</b> own opinion, when both <b>this and that cause</b> it, i.e., when both permitted and forbidden items contribute to a result, the result is <b>permitted.</b> It is therefore permitted to plant vegetables under an <i>ashera</i> during all seasons.
+
+### Part 17
+But <b>according to your</b> opinion, <b>as you say</b> that when both <b>this and that cause</b> a result it is <b>prohibited,</b> as seen from your ruling that it is prohibited to plant under an <i>ashera</i> during the summer because of the positive effect of the <i>ashera</i> tree’s shade, you should <b>concede to me, in any event,</b> that planting the <b>vegetables even during the rainy season,</b> when there is no shade, is prohibited, because they are fertilized by the fallen foliage.
+
+### Part 18
+The Gemara asks: <b>And</b> how would <b>the Rabbis</b> reply to Rabbi Yosei’s point? The Gemara answers: They would reply <b>in accordance with</b> the aforementioned statement <b>that Rav Mari, son of Rav Kahana, says</b> (48b), that when a certain activity causes both a benefit and a greater or equal loss, it is not regarded as a benefit. Here, the positive effect on the plant from the tree’s foliage is offset by the fact that its shade prevents rainwater from reaching the plant. Therefore, since there is no overall benefit gained from the <i>ashera</i>, the Rabbis permit planting underneath it in the winter.
+
+### Part 19
+The Gemara concludes: <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>hala-kha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei.</b> The Gemara recounts an incident supporting this ruling: There was <b>a certain garden that was fertilized with dung that</b> came from an animal used in <b>idol worship. Rav Amram sent</b> a query <b>to Rav Yosef,</b> asking what the <i>halakha</i> is in such a case. Rav Yosef <b>said to him</b> that <b>this</b> is what <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei;</b> the produce of the garden is therefore permitted.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

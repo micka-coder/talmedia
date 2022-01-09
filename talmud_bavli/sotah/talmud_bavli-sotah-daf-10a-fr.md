@@ -1,0 +1,72 @@
+
+### Partie 1
+On disait aux parents de Samson que <b>le serment d'Abimelech,</b> roi des Philistins, <b>etait annule, comme il est ecrit</b> qu'Abimelech a dit a notre ancetre Abraham : "Maintenant, jure-moi donc ici par Dieu <b>que tu ne traiteras pas faussement avec moi, ni avec mon fils, ni avec le fils de mon fils;</b> mais selon la bonte que je t'ai faite, tu me feras a moi et au pays ou tu as sejourne" (Genese 21:23). Le serment des descendants d'Abraham n'etait plus contraignant puisque les Philistins ont rompu leur serment en soumettant le peuple juif.
+
+### Partie 2
+Le verset dit : La femme enfanta un fils et lui donna le nom de Samson. L'enfant grandit et le Seigneur le benit (Juges 13:24). La Gemara demande : <b>De quoi l'a-t-il beni ? Rav Yehuda dit</b> que <b>Rav dit :</b> Cela signifie <b>qu'Il l'a beni en ce qui concerne son penis,</b> que malgre sa jeunesse <b>son penis</b> devrait fonctionner <b>comme</b> celui des <b>hommes physiquement matures, et</b> que <b>sa semence</b> devrait etre <b>comme une riviere debordante.</b>
+
+### Partie 3
+Avant la mort de Samson, le verset indique : <b>"Et Samson invoqua le Seigneur, et dit : Seigneur Dieu, souviens-toi de moi, je te prie, et fortifie-moi, je te prie, seulement cette fois-ci,</b> o Dieu, <b>afin que je sois cette fois-ci venge des Philistins pour mes deux yeux"</b> (Juges 16:28). <b>Rav a dit</b> que <b>Samson a dit devant le Saint, Beni soit-il : Maitre de l'Univers, souviens-toi</b> en <b>mon</b> nom des <b>vingt-deux ans ou j'ai juge le peuple juif</b> sans recevoir aucune recompense, <b>et je n'ai meme pas</b> <b>dit a l'un d'entre eux : Deplace un baton pour moi d'un <b>lieu a</b> un autre <b>lieu.</b>
+
+### Partie 4
+Le verset dit plus haut : <b>"Et Samson alla attraper trois cents renards,</b> prit des torches, tourna queue contre queue et mit une torche au milieu entre chaque deux queues" (Juges 15:4). La Guemara demande : <b>Qu'y a-t-il de different</b> chez les <b>renards</b> par rapport a tout autre animal, pour qu'il les choisisse dans ce but ? <b>Rabbi Aivu bar Nagdi dit</b> que <b>Rabbi Hiyya bar Abba dit : Samson a dit : Que</b> l'animal <b>qui fait marche arriere</b> lorsqu'il tente de s'echapper, c'est-a-dire le renard, <b>vienne et inflige un chatiment aux Philistins, qui ont renie le serment</b> qu'Abimelech avait fait a Abraham.
+
+### Partie 5
+<b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Shimon le Pieux a dit :</b> La largeur <b>entre les epaules de Samson etait de soixante coudees, comme il est dit : "Samson resta couche jusqu'a minuit, se leva a minuit, saisit les portes de la porte de la ville et les deux poteaux, les arracha, barre et tout, les mit sur ses epaules,</b> et les porta jusqu'au sommet de la montagne qui est devant Hebron" (Juges 16:3). Le verset indique que la largeur de la porte de la ville de Gaza etait egale a la largeur des epaules de Samson, <b>et l'on apprend</b> comme une tradition <b>que les portes</b> de la porte <b>de Gaza n'avaient pas moins de soixante coudees</b> de large.
+
+### Partie 6
+En ce qui concerne la capture de Samson, le verset indique : "Les Philistins le saisirent et lui creverent les yeux ; ils le descendirent a Gaza et le lierent avec des entraves d'airain ; <b>et il broya dans la prison"</b> (Juges 16:21). <Rabbi Yohanan dit : Le broyage n'est rien d'autre</b> qu'une <b>langue d'une transgression</b> des rapports sexuels, <b>et donc</b> le verset <b>dit : "Alors que ma femme broie vers un autre homme"</b> (Job 31:10). Cela <b>enseigne que chaque</b> homme philistin <b>a amene sa femme a la prison afin qu'elle soit fecondee par</b> Samson. <b>Rav Pappa a dit : Ceci</b> est un exemple du dicton populaire <b>que les gens disent : Devant un buveur de vin,</b> apportez du <b>vin ; devant celui qui creuse dans la terre,</b> apportez des <b>figues.</b> Ainsi, Samson, qui a epouse des femmes philistines, s'est vu apporter d'autres femmes philistines pendant son sejour en prison.
+
+### Partie 7
+<b>Et Rabbi Yohanan dit :</b> En ce qui concerne <b>celui qui commet un adultere, sa femme commet un adultere contre lui, comme il est dit : "Si mon cœur a ete seduit par une femme, et que j'ai guette la porte de mon prochain"</b> (Job 31:9), <b>et il est ecrit : <b>Alors, que ma femme morde a un autre homme et que des etrangers s'agenouillent sur elle"</b> (Job 31:10). <b>Et ceci</b> explique le dicton populaire <b>qu'on dit : Il est</b> trouve <b>parmi les citrouilles [<i>karei</i>] et sa femme parmi les courgettes [<i>butzinei</i>],</b> qui sont des types de legumes similaires. En d'autres termes, elle agit de la meme maniere que lui.
+
+### Partie 8
+<b>Et Rabbi Yohanan dit : Samson a juge le peuple juif comme le fait son Pere celeste</b>, en toute justice, <b>comme il est dit : "Dan jugera son peuple, comme l'une</b> des tribus d'Israel" (Genese 49:16), ce qui est interprete comme signifiant que Samson, de la tribu de Dan, juge son peuple tout comme Dieu, qui est "Un". <b>Et Rabbi Yohanan dit : Samson [<i>Shimshon</i>] est appele par le nom du Saint, Beni soit-Il, comme il est dit : "Car le Seigneur Dieu est un soleil [<i>shemesh</i>] et un bouclier"</b> (Psaumes 84:12). La Gemara commente : <b>Si c'est le cas,</b> alors son nom <b>ne doit pas etre efface</b> tout comme les autres noms sanctifies ne sont pas effaces. <b>Au contraire,</b> il n'est pas appele par le nom de Dieu mais son nom <b>est apparente au nom du Saint, Beni soit-Il,</b> car <b>tout comme le Saint, Beni soit-Il, protege le monde entier, de meme Samson, dans sa generation, a protege tout le peuple juif.</b>
+
+### Partie 9
+<b>Et Rabbi Yohanan dit : Balaam etait boiteux d'une de ses jambes, comme il est dit</b> a son sujet : <b>"Et il partit en boitant [<i>shefi</i>]</b> (Nombres 23:3). <b>Samson etait boiteux dans</b> ses deux <b>jambes, car il est dit</b> que lorsque Jacob a mentionne la tribu de Dan dans la prophetie qui se rapportait a Samson, il l'a designe comme : "Dan sera un serpent sur le chemin, <b>un serpent cornu [<i>shefifon</i>] sur le chemin"</b> (Genese 49:17), ce qui est double <i>shefi</i>, c'est-a-dire doublement boiteux.
+
+### Partie 10
+§ <b>Les Sages enseignaient</b> dans une <i>baraita</i> : <b>Cinq</b> individus <b>ont ete crees</b> avec une caracteristique qui est <b>rapportee a une representation de l'Un</b> en <b>Haut, et ils ont tous ete frappes par cette</b> caracteristique. <b>Samson</b> a ete glorifie <b>dans sa force, Saul dans son cou</b> (voir IA Samuel 9:2), <b>Absalom dans ses cheveux, Sedecias dans ses yeux,</b> et <b>Asa dans ses pieds.</b>
+
+### Partie 11
+La Guemara clarifie : <b>Samson</b> a ete frappe <b>par sa force,</b> ce qui l'a conduit a sa perte, <b>comme il est ecrit:</b> "Et elle le fit dormir sur ses genoux ; elle appela un homme et fit raser les sept meches de sa tete ; elle commenca a l'affliger, <b>et sa force le quitta"</b> (Juges 16:19).
+
+### Partie 12
+<b>Saul</b> fut frappe <b>au cou, comme il est ecrit :</b> "Alors Saul dit a celui qui portait son armure : Tire ton epee, et transperce-moi avec, de peur que ces incirconcis ne viennent me transpercer, et ne se moquent de moi. Mais son cuirassier ne voulut pas, car il avait une grande peur. <b>C'est pourquoi Saul prit son epee et tomba dessus"</b> (IA Samuel 31:4) ; il tomba le cou sur l'epee.
+
+### Partie 13
+<b>Absalom</b> a ete frappe <b>dans ses cheveux, comme nous l'affirmerons plus tard. Sedecias</b> fut frappe <b>a ses yeux, comme il est ecrit :</b> "Et ils tuerent les fils de Sedecias sous ses yeux, <b>et creverent les yeux de Sedecias,</b> le lierent de chaines et le transporterent a Babylone" (IIA Rois 25:7).
+
+### Partie 14
+<b>Asa</b> fut frappe <b>dans ses pieds, comme il est ecrit :</b> "Or le reste de tous les actes d'Asa, et toute sa puissance, et tout ce qu'il a fait, et les villes qu'il a baties, ne sont-ils pas ecrits dans le livre des chroniques des rois de Juda ? <b>Mais au temps de sa vieillesse, il fut malade des pieds"</b> (IA Rois 15:23). <b>Et Rav Yehuda dit</b> que <b>Rav dit :</b> Cela indique <b>que la goutte [<i>padagra</i>] s'est emparee de lui. Mar Zutra, fils du Rav Nahman, dit au Rav Nahman : Quelles sont les circonstances</b> de la <b>goutte ? </b> Quelle douleur implique-t-elle ? <b>Il lui repondit : </b> On ressent <b>comme une aiguille</b> inseree <b>dans une chair vivante.</b> La Gemara demande : <b>D'ou savait-il cela ?</b> La Gemara repond : <b>Certains disent</b> qu'il a lui-meme <b>souffert de cette</b> condition, <b>et certains disent</b> qu'il l'a entendu de son professeur, et d'autres disent</b> qu'il l'a su par inspiration divine, comme il a ete dit : <b>"Le secret de l'Eternel est avec ceux qui le craignent, et son alliance, pour le leur faire connaitre"</b> (Psaumes 25:14).
+
+### Partie 15
+<b>Rava a enseigne : Pour quelle</b> raison a-t-on puni <b>Asa</b> dans ses pieds ? <b>Parce qu'il a fait executer aux erudits de la Torah des travaux forces [<i>angarya</i>], comme il est dit :" Le roi Asa fit une proclamation A tout Juda ; personne n'en fut exempté ; </b> et ils emportèrent les pierres de Rama et son bois, avec lesquels Baasa avait construit, et le roi Asa construisit avec elles Guéba de Benjamin et Mitspa" (IA Rois 15:22). L'expression superflue "a tous" indique que la proclamation a ete emise a l'intention de <b>tous, y compris</b> les erudits de la Torah. La Guemara demande : <b>Quel est le sens de la phrase suivante dans le verset : <b>"Personne n'a ete exempte [<i>ein naki</i>]" ? Rav Yehuda dit</b> que <b>Rav dit :</b> Cela inclut <b>meme un marie de sa chambre et une mariee de son dais,</b> comme le verset le dit a propos d'un marie : "Il sera libre [<i>naki</i>] pour sa maison pendant un an" (Deuteronome 24:5).
+
+### Partie 16
+§ <b>Il est ecrit</b> a propos de Samson : <b>Samson descendit a Timna,</b> et vit a Timna une femme parmi les filles des Philistins" (Juges 14:1), <b>et il est ecrit</b> dans le passage de la Torah concernant l'incident de Juda et Tamar : "Et il fut dit a Tamar, disant : <b>Voici, ton beau-pere monte a Timnah</b> pour tondre ses moutons" (Genese 38:13). Les versets contiennent une contradiction apparente quant a savoir si Timnah etait un lieu vers lequel on doit descendre ou un lieu vers lequel on doit monter. <b>Rabbi Elazar dit :</b> Ces termes ne font pas reference a la maniere de se rendre a Timnah mais sont utilises au sens figure. Concernant <b>Samson, qui a ete deshonore la-bas</b> a Timna, le terme indiquant <b>la descente est ecrit par rapport a son</b> voyage. Concernant <b>Judah, qui y fut eleve,</b> le terme indiquant <b>l'ascension est ecrit par rapport a son</b> voyage.
+
+### Partie 17
+<b>Rabbi Shmuel bar Nahmani dit</b> differemment : <b>Il y avait deux</b> villes nommees <b>Timnah, l'une</b> etait atteinte <b>par la descente</b> dans une vallee, <b>et l'autre</b> etait atteinte <b>par la montee.</b>
+
+### Partie 18
+<b>Rav Pappa a dit</b> differemment : <b>Il y avait une Timnah,</b> et elle etait situee sur le versant d'une montagne. Celui <b>qui venait de ce cote</b> l'atteignait par <b>descente, et</b> celui <b>qui venait de ce cote</b> l'atteignait par <b>ascension.</b> La Gemara presente des exemples de telles villes : <b>Par exemple : Vardonia, et Bei Varei, et le marche de Neresh.</b>
+
+### Partie 19
+Le verset dit a propos de Tamar : "Elle ota d'elle les vetements de son veuvage, se couvrit de son voile, s'enveloppa, <b>et s'assit a l'entree d'Enaim [<i>befetah einayim</i>],</b> qui est sur le chemin de Timna ; car elle vit que Shelah etait devenu grand, et qu'elle ne lui avait pas ete donnee pour femme" (Genese 38:14). Les <i>amoraim</i> contestent le sens du mot <i>einayim</i>. <b>Rabbi Alexandri dit :</b> Ceci <b>enseigne qu'elle est allee et qu'elle s'est assise a l'entree</b> de la maison <b>d'Abraham notre aieul, un lieu que tous les yeux esperent voir,</b> car elle etait certaine que Juda y passerait. <b>Rabbi Hanin</b> dit que <b>Rav dit :</b> C'est <b>un endroit appele Enaim, et de la meme maniere</b> le verset <b>declare</b> dans la liste des villes d'Eretz Yisrael dans la portion de Juda : <b>"Tappuah et Enam"</b> (Josue 15:34).
+
+### Partie 20
+<b>Rabbi Shmuel bar Nahmani dit : Elle a fourni des yeux [<i>einayim</i>] a ses declarations,</b> c'est-a-dire qu'avec ses paroles, elle a fourni une ouverture [<i>petah</i>] a Juda pour la solliciter. <b>Lorsque</b> Juda l'a <b>sollicitee</b> pour avoir des rapports sexuels avec lui, <b>il</b> a d'abord cherche a verifier son statut et lui a <b>dit :</b> Es-tu <b>peut-etre une gentille ? Elle lui a repondu : Je suis une convertie.</b> Il a demande : <b>Peut-etre etes-vous une femme mariee ? Elle lui a repondu : Je suis une femme non mariee.</b> Il a demande : <b>Peut-etre que votre pere a accepte des fiancailles pour vous</b> et que vous l'ignorez ? <b>Elle lui a dit : Je suis orpheline.</b> Il a demande : <b>Peut-etre es-tu impure ? Elle lui a repondu : Je suis pure.</b>
+
+### Partie 21
+La Guemara discute de la maison d'Abraham : Il est ecrit : <b>Puis il planta un <i>eshel</i> a Beersheba,</b> et y invoqua le nom du Seigneur, le Dieu eternel" (Genese 21:33). <b>Reish Lakish dit :</b> Ceci <b>enseigne que</b> Abraham <b>faisait un verger et y plantait toutes sortes de choses sucrees.</b>
+
+### Partie 22
+Les tannaim <b>Rabbi Yehuda et Rabbi Nehemya</b> sont en desaccord sur le sens du mot "<i>eshel</i>.<b>L'un dit</b> qu'il signifie <b>un verger [<i>pardes</i>], et l'autre dit</b> qu'il signifie <b>une auberge [<i>pundak</i>].</b> La Guemara poursuit : <b>Accorde, selon celui qui a dit</b> qu'il signifie <b>un verger, c'est ce qui est ecrit : "Et il planta,"</b> et c'est un langage approprie pour un verger. <b>Mais selon celui qui a dit</b> qu'il a ouvert <b>une auberge, quel est</b> le sens de la phrase <b>"et il a plante"?</b> La Gemara repond : <b>Comme il est ecrit : "Il plantera [<i>vayitta</i>] les tentes de son palais</b> entre les mers et la belle montagne sainte ; il arrivera a sa fin, et personne ne lui viendra en aide" (Daniel 11:45), ce qui indique que le mot vayitta, et il a plante, est egalement utilise pour indiquer le fait de planter des tentes.
+
+### Partie 23
+Le verset indique : "Et il planta un <i>eshel</i> a Beersheba, <b>et y invoqua [<i>vayyikra</i>] le nom du Seigneur, le Dieu eternel"</b> (Genese 21:33). <b>Reish Lakish dit : Ne pas lire</b> ce mot litteralement comme <b>"<i>vayyikra</i>,"</b> et il a appele,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

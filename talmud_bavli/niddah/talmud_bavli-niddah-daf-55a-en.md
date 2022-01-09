@@ -1,0 +1,54 @@
+
+### Part 1
+The Gemara raises an objection: There is a unique <i>halakha</i> with regard to the impurity of a <i>zav</i> and a menstruating woman: In a case where one of them sits on an item, including one that cannot become ritually impure, e.g., a stone, and beneath that item is a vessel, that vessel becomes impure, even if their weight has no effect on the vessel, as in the case of a very heavy stone. <b>If</b> the verse compares the status of the menstrual blood to the status of the menstruating woman, as derived above, one can infer as follows: <b>Just as</b> a menstruating woman <b>transmits impurity to</b> items that lie beneath <b>a very heavy stone, so too, her menstrual flow also transmits impurity to</b> items that lie beneath <b>a very heavy stone.</b>
+
+### Part 2
+<b>Rav Ashi said</b> in response: Items designated for lying or sitting also transmit impurity to items that lie beneath a very heavy stone. <b>The verse states</b> with regard to an item of this kind, which was rendered impure by a <i>zav</i>: “And whoever touches anything that was under him shall be impure until the evening, <b>and he that carries them</b> shall wash his clothes, and bathe himself in water, and he shall be impure until the evening” (Leviticus 15:10). The term <b>“them” is an exclusion,</b> indicating that items designated for lying or sitting transmit impurity to items that lie beneath a very heavy stone, but menstrual blood does not.
+
+### Part 3
+§ The mishna teaches: <b>And the flesh of a corpse</b> transmits impurity both when moist and when dry. The Gemara asks: <b>From where do we</b> derive this <i>halakha</i>? <b>Reish Lakish said</b> that this is as <b>the verse states:</b> “Or whoever touches any creeping thing by which he may be made impure, or a man from whom he may be made impure, <b>from any impurity that he has”</b> (Leviticus 22:5). The term “from any” is an amplification, indicating that one may become impure <b>from any impurities that come from</b> a dead person, whether they are moist or dry.
+
+### Part 4
+<b>Rabbi Yoḥanan said</b> that this <i>halakha</i> is derived from the verse: “And whoever touches in the open field one who is slain with a sword, or one who died, <b>or the bone of a man, or a grave,</b> shall be impure seven days” (Numbers 19:16). The verse indicates that the impurity of a dead <b>man</b> is <b>similar to</b> the impurity of <b>a bone: Just as a bone</b> is <b>dry, so too here,</b> with regard to the impurity of a corpse, it transmits impurity even when it is <b>dry.</b>
+
+### Part 5
+The Gemara asks: <b>What is</b> the practical difference <b>between</b> the inferences of Reish Lakish and Rabbi Yoḥanan? The Gemara answers that the practical difference <b>between them</b> is the case of a corpse which is so dry <b>that it crumbles.</b> Reish Lakish maintains it is impure, as the term “from any” indicates that a corpse transmits impurity in any form, whereas Rabbi Yoḥanan maintains it is ritually pure, as it is unlike a bone, which does not crumble.
+
+### Part 6
+The Gemara <b>raises an objection</b> to the opinion of Reish Lakish from a <i>baraita</i>: <b>The flesh of a corpse that crumbled</b> is <b>ritually pure.</b> The Gemara answers that this is not difficult, as the <i>baraita</i> <b>there</b> is referring to where the flesh is so dry <b>that it has become</b> like <b>flour and is</b> therefore classified as <b>dust.</b>
+
+### Part 7
+The Gemara <b>raises an objection</b> to the opinions of both Reish Lakish and Rabbi Yoḥanan from a mishna (<i>Oholot</i> 3:3): <b>Everything that is in a corpse transmits impurity, except for the teeth, and the hair, and the nails.</b> This is the <i>halakha</i> only when these items are separated from the body, <b>but when they are attached</b> to the corpse they are <b>all impure.</b> According to Rabbi Yoḥanan teeth should transmit impurity because they are similar to bones, while according to Reish Lakish they should be included in the term “from any.”
+
+### Part 8
+<b>Rav Adda bar Ahava said:</b> Only items that are <b>similar to a bone</b> transmit impurity: <b>Just as a bone</b> is an item <b>that was created with him</b> at the time of birth, <b>so too, all</b> items that transmit impurity are those <b>that were created with him,</b> whereas teeth are not present at the time of birth. The Gemara asks: <b>But are there not</b> the cases of <b>hair and nails, which were created with him, and</b> yet the mishna states that <b>they are ritually pure?</b>
+
+### Part 9
+<b>Rather, Rav Adda bar Ahava said</b> a different explanation: Only those items that are <b>similar to a bone</b> transmit impurity: <b>Just as a bone</b> is an item <b>that was created with him and its root does not renew</b> itself, i.e., if a bone is removed a new bone does not grow in its place, <b>so too, any item that was created with him and whose root does not renew</b> itself transmits impurity. <b>The teeth were excluded</b> from this category, <b>as they were not created with him.</b> The <b>hair and nails were excluded, as even though they were created with him</b> their <b>roots renew</b> themselves, since they grow again after they are cut off.
+
+### Part 10
+The Gemara objects: <b>But isn’t there</b> the case of <b>skin, whose root renews</b> itself, <b>and</b> this is as <b>we learned</b> in a mishna (<i>Ḥullin</i> 54a): In the case of an animal <b>whose hide was removed [<i>hageluda</i>], Rabbi Meir deems</b> it <b>kosher,</b> as the skin renews itself, <b>and the Rabbis deem</b> it an animal with a wound that will cause it to die within twelve months [<i>tereifa</i>] and <b>unfit</b> for consumption. The Gemara explains: <b>And even the Rabbis deem</b> it <b>unfit only</b> due to the fact <b>that in the meantime,</b> between the removal of the old hide and the growth of the new one, <b>the air affects it and</b> as a result <b>it</b> will <b>die, but</b> they concede that <b>actually</b> the skin’s <b>root renews</b> itself. <b>And</b> nevertheless <b>we learned</b> in a mishna (<i>Ḥullin</i> 122a): <b>These</b> are the entities <b>whose skin</b> has the same halakhic status <b>as their flesh: The skin of a</b> dead <b>person,</b> and the skin of a domesticated pig…and the skin of the hump of a young camel, etc.
+
+### Part 11
+The Gemara explains that <b>it was stated with regard to that</b> mishna that <b>Ulla said: By Torah law, the skin of</b> a dead <b>person is ritually pure. And what is the reason</b> the Sages <b>said</b> that it is <b>impure?</b> It is a rabbinic <b>decree lest a person should fashion rugs for a donkey</b> out of <b>the skins of his</b> deceased <b>father and mother.</b>
+
+### Part 12
+<b>And some say</b> a different version of the above discussion: <b>Isn’t there</b> the case of <b>skin, whose root does not renew</b> itself, <b>and</b> this is as <b>we learned</b> in a mishna (<i>Ḥullin</i> 54a): In the case of an animal whose hide was removed, Rabbi Meir deems it kosher, <b>and the Rabbis deem</b> it a <i>tereifa</i> and <b>unfit</b> for consumption, as its skin does not regrow? The Gemara explains: <b>And even Rabbi Meir deems</b> it <b>fit only because the flesh cools and</b> the animal <b>heals, but</b> he concedes that <b>actually</b> the skin’s <b>root does not renew</b> itself. Accordingly, the skin of a corpse should be impure. <b>But Ulla said: By Torah law, the skin of</b> a dead <b>person is ritually pure.</b>
+
+### Part 13
+The Gemara answers that <b>when</b> the opinion <b>of Ulla was stated, it was stated with regard to the latter clause</b> of that mishna: <b>And</b> for <b>all of</b> these skins, in a case <b>where one tanned them or where one</b> spread them on the ground and <b>trod on them</b> for the same amount of time it takes <b>for tanning,</b> they are no longer classified as flesh and <b>are ritually pure, except for the skin of</b> a dead <b>person,</b> which maintains the status of flesh. <b>And</b> with regard to this <b>Ulla said</b> that <b>by Torah law the skin of</b> a dead <b>person, when one tanned it, is ritually pure. And what is the reason</b> the Sages <b>said</b> it is <b>impure?</b> It is a rabbinic <b>decree lest a person should fashion rugs</b> out of <b>the skin of his</b> deceased <b>father and mother.</b>
+
+### Part 14
+The Gemara asks: <b>But isn’t there</b> the case of <b>flesh, whose root renews</b> itself, as when one’s flesh is cut it regrows and heals, <b>and</b> yet it is <b>impure? Mar bar Rav Ashi says: Flesh</b> does not renew itself, as although when someone is cut his flesh regrows and heals, <b>a scar is formed</b> in <b>its place.</b>
+
+### Part 15
+§ The mishna teaches: <b>But <i>ziva</i></b> transmits impurity when moist, although not when dry. The Gemara asks: <b>From where do we</b> derive that <b><i>ziva</i></b> transmits impurity? <b>As it is taught</b> in a <i>baraita</i> that discusses the verse: “When any man has an issue out of his flesh, <b>his issue,</b> it is <b>impure”</b> (Leviticus 15:2). This <b>taught with regard to <i>ziva</i> that it is impure.</b>
+
+### Part 16
+The <i>baraita</i> asks: Why is this derivation necessary? <b>Could this not</b> be derived through an <i>a fortiori</i> <b>inference?</b> Since <i>ziva</i> <b>causes impurity to others,</b> i.e., to the one who emitted the discharge, is it <b>not all the more so</b> that <i>ziva</i> <b>itself</b> is impure? The <i>baraita</i> replies that the case of the <b>scapegoat</b> brought on Yom Kippur <b>may prove</b> that this inference is not valid, <b>as it causes impurity to others,</b> i.e., the dispatcher of the scapegoat is rendered impure, <b>and</b> yet the goat <b>itself is pure. So too, you should not be surprised about this,</b> the discharge of <i>ziva</i>, <b>that even though it causes impurity to others,</b> <i>ziva</i> <b>itself is pure.</b> Therefore, <b>the verse states: “His issue,</b> it is <b>impure.”</b> This <b>taught with regard to <i>ziva</i> that it is impure.</b>
+
+### Part 17
+The Gemara objects: <b>But</b> one <b>may say</b> that <b>this statement,</b> that the discharge of <i>ziva</i> transmits impurity, applies only to transmitting impurity <b>by contact. But</b> with regard to transmitting impurity <b>by carrying</b> it does <b>not</b> transmit impurity, <b>just as it is with regard to</b> the carcass of <b>a creeping animal,</b> which transmits impurity by contact but not by carrying. <b>Rav Beivai bar Abaye said: A verse was not necessary</b> to teach that <i>ziva</i> transmits ritual impurity <b>by contact, as</b> the <i>halakha</i> with regard to <i>ziva</i> is <b>no less</b> stringent <b>than</b> with regard to <b>semen,</b> which transmits impurity by contact.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

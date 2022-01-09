@@ -1,0 +1,60 @@
+
+### Part 1
+but it <b>is not</b> subject <b>to</b> an <b>intermediate</b> stage of <b>consecration</b> resulting from redemption? Ravina <b>said to him:</b> It is <b>due to</b> the fact <b>that</b> it <b>is not</b> subject <b>to ultimate consecration.</b> A non-kosher animal does not ultimately remain consecrated, as it is used neither as an offering nor in the upkeep of the Temple. Instead, it is redeemed and its value is consecrated.
+
+### Part 2
+<b>Rav Aḥa of Difti said to Ravina:</b> It <b>is</b> subject, <b>at least, to</b> an <b>intermediate</b> stage of <b>consecration; and</b> in that case, <b>let one add one-fifth as well.</b> Ravina <b>said to him:</b> Its legal status is <b>like that of ultimate consecration: Just as one does not add one-fifth</b> with regard to a non-kosher animal in <b>ultimate consecration,</b> as that category does not exist in a non-kosher animal, <b>so too, one does not add one-fifth</b> in a case of <b>intermediate consecration.</b>
+
+### Part 3
+<b>Rav Zutra, son of Rav Mari, said to Ravina: What did you see that</b> led <b>you to liken</b> the intermediate stage of consecration <b>to ultimate consecration? Let us liken it to initial consecration.</b> Ravina <b>said to him: It stands to reason that he should liken it to ultimate consecration, as</b> he thereby derives the <i>halakha</i> of an item consecrated <b>by association with</b> the sanctity of an item consecrated <b>by association.</b> The Gemara asks: <b>On the contrary, he should have likened it to initial consecration,</b> as he thereby derives the <i>halakha</i> of <b>an item after which there is</b> another stage of <b>sanctity,</b> the intermediate stage of consecration, <b>from an item after which there is</b> another stage of <b>sanctity.</b>
+
+### Part 4
+The Gemara answers: It is <b>as Rava says: “The burnt-offering”</b> (Leviticus 6:2), employing the definite article, indicates that the reference is to the <b>first burnt-offering. So too,</b> when it is written: <b>The non-kosher</b> animal, the reference is to the <b>initial</b> consecration of the <b>non-kosher</b> animal, not the intermediate stage of consecration.
+
+### Part 5
+The Gemara comments: <b>It is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rabbi Yehoshua ben Levi:</b> If one said that <b>this cow is in place of</b> that <b>cow,</b> which <b>belongs to</b> the <b>Temple</b> treasury, or <b>this garment is in place of that garment,</b> which <b>belongs to</b> the <b>Temple</b> treasury, <b>his consecrated</b> property <b>is redeemed, and the</b> treasurer of <b>consecrated</b> property <b>is at an advantage.</b> If the replacement item is equal to or more valuable than the original item, it belongs to the treasurer, and if it is less valuable, the one who consecrated it must pay the difference.
+
+### Part 6
+If he said: <b>This cow</b> valued <b>at five <i>sela</i> is in place of this cow,</b> which <b>belongs to</b> the <b>Temple</b> treasury, or: <b>This garment</b> valued <b>at five <i>sela</i> is instead of this garment,</b> which <b>belongs to</b> the <b>Temple</b> treasury, <b>his consecrated</b> property <b>is redeemed.</b> Even if the second consecrated item is more valuable, it is not considered a consecration done in error. He will have to pay the difference. <b>He adds one-fifth</b> when redeeming the item that was the <b>initial consecration,</b> but when redeeming the item <b>for</b> which the initial consecration was redeemed, the <b>second consecration, he does not add one-fifth.</b>
+
+### Part 7
+<strong>MISHNA:</strong> <b>The</b> measure of <b>exploitation</b> is <b>four silver</b> <i>ma’a</i> from the twenty-four silver <i>ma’a</i> of a <i>sela</i>. <b>And the</b> smallest monetary <b>claim</b> in court for which a plaintiff can obligate a respondent to take an oath is <b>two silver</b> <i>ma’a</i>. <b>And the</b> smallest monetary <b>admission</b> for which that respondent takes the oath is an admission that one owes at least <b>the value of one <i>peruta</i>.</b>
+
+### Part 8
+On a related note, the <i>tanna</i> adds that <b>there are five</b> halakhic situations involving <b><i>perutot</i>: The admission</b> to part of a claim must be that one owes at least <b>the value of one <i>peruta</i>, and a woman is betrothed with the value of one <i>peruta</i>. And one who derives benefit</b> of <b>the value of one <i>peruta</i> from consecrated</b> property has <b>misused</b> consecrated property and is liable to bring an offering, <b>and one who finds</b> an item that has <b>the value of one <i>peruta</i> is obligated to proclaim</b> that he found it. <b>And</b> with regard to <b>one who robs from another</b> an item that has <b>the value of one <i>peruta</i> and took an oath to him</b> that he robbed nothing, when he repents and seeks to return the stolen item <b>he must take</b> it and <b>follow</b> its owner <b>even to Medea.</b> In that case, he may not return the item by means of a messenger; he must give it directly to its owner.
+
+### Part 9
+<strong>GEMARA:</strong> The Gemara asks: <b>We</b> already <b>learned</b> this on <b>another occasion</b> in an earlier mishna (49b): <b>The</b> measure of <b>exploitation</b> for which one can claim that he was exploited is <b>four silver</b> <i>ma’a</i> <b>from</b> the <b>twenty-four silver</b> <i>ma’a</i> <b>in a <i>sela</i>,</b> which is <b>one-sixth of the transaction.</b> The Gemara answers: It was <b>necessary for</b> the <i>tanna</i> to mention two <i>halakhot</i>: <b>The</b> smallest monetary <b>claim</b> in court for which a plaintiff can obligate a respondent to take an oath is <b>two silver</b> <i>ma’a</i>, <b>and the</b> smallest monetary <b>admission</b> for which that respondent takes the oath is an admission that one owes at least <b>the value of one <i>peruta</i>.</b> Therefore, the <i>tanna</i> cited the <i>halakha</i> of exploitation as well.
+
+### Part 10
+The Gemara asks: <b>That too we</b> already <b>learned</b> in a mishna (<i>Shevuot</i> 38b): <b>The oath</b> for admission to part of a claim imposed by <b>the judges</b> is in a case where <b>the claim</b> is <b>two silver</b> <i>ma’a</i>, and <b>the admission</b> is <b>the value of one <i>peruta</i>.</b> The Gemara answers: <b>It was necessary for</b> the <i>tanna</i> to teach <b>the latter clause</b> of the mishna, <b>as it teaches: There are five</b> halakhic situations involving <b><i>perutot</i>,</b> which is not taught elsewhere.
+
+### Part 11
+§ The mishna teaches: <b>There are five</b> halakhic situations involving <b><i>perutot</i>.</b> The Gemara asks: <b>And let</b> the <i>tanna</i> <b>also teach</b> that <b>the</b> measure of <b>exploitation</b> is <b>one <i>peruta</i>. Rav Kahana said: That is to say</b> that <b>there is no exploitation concerning <i>perutot</i>.</b> Any disparity between value and price that is less than the value of the smallest silver coin, an <i>issar</i>, which is worth eight <i>perutot</i>, is not considered exploitation.
+
+### Part 12
+<b>And Levi says: There is exploitation</b> even <b>for <i>perutot</i>. And likewise, Levi taught in his</b> version of the <b>Mishna,</b> which parallels the Mishna redacted by Rabbi Yehuda HaNasi, that <b>there are five</b> halakhic situations involving <b><i>perutot</i>: The</b> measure of <b>exploitation</b> is <b>one <i>peruta</i>, the admission</b> is the value of <b>one <i>peruta</i>, and the betrothal of a woman is with one <i>peruta</i>, and</b> the <i>halakha</i> of one who takes an oath denying <b>a robbery</b> applies <b>in</b> the case where he denies having robbed another of at least <b>one <i>peruta</i>, and the convening of judges</b> to adjudicate a case of monetary law is <b>in</b> the case where the claim is at least <b>one <i>peruta</i>.</b>
+
+### Part 13
+The Gemara asks: <b>And</b> with regard to <b>the <i>tanna</i> of our</b> mishna, <b>what is the reason</b> he <b>does not teach</b> the case of the <b>convening of judges</b> in his list of cases involving <i>perutot</i>? The Gemara answers: <b>He taught</b> the case of <b>robbery,</b> which includes all monetary claims one has against another.
+
+### Part 14
+The Gemara asks: <b>But doesn’t</b> the <i>tanna</i> <b>teach</b> the case of <b>robbery and teach</b> the case of <b>lost property?</b> Apparently, he lists monetary cases that are included under the rubric of robbery. The Gemara answers: With regard to <b>these</b> two cases, it was <b>necessary for</b> the <i>tanna</i> to teach them separately, as there is a novel element in each. The novel element in the case of <b>robbery</b> is not only that a robbery of one <i>peruta</i> is considered robbery, but also in the case of <b>one who robs</b> an item <b>from another worth</b> at least <b>one <i>peruta</i> and</b> then <b>took an oath to him</b> that he robbed nothing, <b>he must carry</b> the stolen item and <b>follow</b> its owner <b>even to Medea.</b> The novel element in the case of <b>lost property</b> is that <b>one who finds lost property the value of</b> at least <b>one <i>peruta</i> is obligated to proclaim</b> that he found it, <b>even though</b> the lost article <b>depreciated</b> and is no longer worth one <i>peruta</i>.
+
+### Part 15
+The Gemara asks: <b>And</b> as for <b>Levi, what is the reason</b> he <b>does not teach</b> that one is obligated to proclaim that he found <b>lost property</b> only if it is worth at least <b>one <i>peruta</i>?</b> The Gemara answers: <b>He taught</b> the case of <b>robbery,</b> which includes all monetary claims one has against another.
+
+### Part 16
+The Gemara asks: <b>But doesn’t he teach robbery and</b> also <b>teach the convening of judges?</b> Apparently, he lists monetary cases that are included under the rubric of robbery. The Gemara explains: With regard to <b>the convening of judges</b> it was <b>necessary for</b> the <i>tanna</i> to specify the <i>halakha</i> <b>to exclude</b> the opinion <b>of Rav Ketina, as Rav Ketina says: The court attends to</b> monetary claims of <b>even less than the value of one <i>peruta</i>.</b> Anyone wronged by another is entitled to have his case adjudicated in court.
+
+### Part 17
+The Gemara asks: <b>And</b> as for <b>Levi, what is the reason</b> he <b>does not teach</b> the <i>peruta</i> of misuse of <b>consecrated</b> property? The Gemara answers: <b>He is speaking with regard to non-sacred</b> property; <b>he is not speaking with regard to consecrated</b> property.
+
+### Part 18
+The Gemara asks: <b>But</b> in the case of <b>the <i>tanna</i> of our</b> mishna, <b>who is speaking with regard to consecrated</b> property, <b>let him teach</b> the <i>halakha</i> that second <b>tithe</b> may be redeemed only if the produce is worth at least <b>one <i>peruta</i>.</b> The Gemara answers: This <i>tanna</i> holds <b>in accordance with the one who says:</b> Second tithe is redeemed only if <b>its one-fifth,</b> which one adds when redeeming his own produce, is worth at least <b>one <i>peruta</i>.</b> In other words, second tithe is redeemed only if it is worth at least four <i>perutot</i>. The Gemara asks: <b>And let him teach</b> that second <b>tithe</b> is redeemed only if its <b>one-fifth,</b> which one adds when redeeming his own produce, is worth at least <b>one <i>peruta</i>.</b> The Gemara responds: The <i>tanna</i> <b>is speaking with regard to the principal;</b> the <i>tanna</i> <b>is not speaking with regard to</b> the <b>one-fifth.</b>
+
+### Part 19
+§ With regard to <b>the</b> matter <b>itself</b> raised in the previous discussion, the Gemara elaborates. <b>Rav Ketina says: The court attends to</b> monetary claims of <b>even less than the value of one <i>peruta</i>. Rava raises an objection</b> from a <i>baraita</i>. It is written: <b>“And he shall make restitution for that which he has done amiss in the sacred matter”</b> (Leviticus 5:16).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

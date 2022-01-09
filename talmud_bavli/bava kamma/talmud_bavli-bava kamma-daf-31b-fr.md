@@ -1,0 +1,33 @@
+
+### Partie 1
+La Gemara explique : <b>Le premier est certainement</b> considere comme <b>negligent,</b> et est donc tenu de payer pour les dommages causes a la fois par son corps et par ses biens. <b>Le second est considere comme responsable</b> de payer <b>pour</b> les dommages causes par <b>son corps, car il avait</b> la possibilite <b>de se lever</b> <b>et il ne s'est pas leve</b>. <b>Pour</b> le dommage cause par <b>son bien</b> qui se trouvait la et qui a fait trebucher et tomber la troisieme personne, il est <b>exempte, car il peut lui dire : Je n'ai pas creuse cette fosse,</b> c'est-a-dire que je n'ai pas provoque cet obstacle. Puisque c'est la premiere personne qui a trebuche et a provoque la situation ou les objets de la seconde se trouvaient sur le sol, la seconde n'est pas jugee responsable.
+
+### Partie 2
+La Guemara <b>souleve une objection</b> a la declaration de Rava d'une <i>baraita</i> qui commente ce cas : <b>Tous sont tenus</b> de payer <b>pour les dommages causes par leur corps et exemptes</b> de payer la restitution <b>pour les dommages causes par leurs biens. Quoi, cela ne</b> fait-il pas reference <b>meme</b> au <b>premier,</b> indiquant que meme lui est exempte des dommages causes par ses biens ?
+
+### Partie 3
+La Gemara repond : <b>Non,</b> il fait reference a tous <b>sauf au premier.</b> La Gemara demande : <b>Mais est-ce que</b> la <i>baraita</i> <b>enseigne</b> le terme <b>tous,</b> indiquant que le premier est egalement inclus ? <b>Rav Adda bar Ahava a dit :</b> Le terme <b>tous</b> se refere uniquement a <b>ceux qui ont subi des dommages,</b> et exclut le premier, qui n'a cause que des dommages a autrui.
+
+### Partie 4
+La Guemara remet en question cette reponse : <b>Qu'est-ce</b> que <b>cette interpretation</b> ? <b>Accorde, si on dit</b> que le terme inclut <b>meme le premier, cette</b> explication <b>est</b> coherente avec <b>ce qui est enseigne : Tous. Mais si vous dites</b> qu'il s'agit de tous <b>sauf le premier, quelle est</b> la raison pour laquelle le terme trompeur : <b>Tous</b> est utilise ? <b>Laissons</b> le <i>baraita</i> <b>enseigner</b> plus precisement que <b>ceux qui ont subi des dommages</b> sont responsables a leur tour des dommages causes par leur corps, mais sont exemptes de payer la restitution des dommages causes par leurs biens.
+
+### Partie 5
+<b>Au contraire,</b> il faut rejeter toute cette explication de la declaration de Rava, et l'expliquer comme suit : <b>Rava a dit</b> que <b>le premier</b> est <b>responsable a la fois des blessures</b> causees <b>au corps du second et des dommages</b> causes <b>a la propriete du second, et le second</b> est <b>responsable</b> de payer <b>les dommages encourus par le troisieme en ce qui concerne les blessures a son corps mais pas en ce qui concerne les dommages a sa propriete. Quelle est la raison</b> de l'exoneration dans ce dernier cas ? C'est <b>parce que</b> apres sa chute, le corps de la deuxieme personne <b>est</b> effectivement <b>une fosse, et nous ne trouvons pas que</b> dans la categorie de <b>Fosse</b> on soit <b>oblige</b> de payer la restitution <b>pour</b> les dommages causes aux <b>vaisseaux.</b>
+
+### Partie 6
+La Gemara demande : <b>Cela marche bien</b> selon <b>Shmuel, qui dit</b> que <b>tout obstacle</b> qui a ete place dans le domaine public <b>constitue une fosse,</b> c'est-a-dire que les <i>halakhot</i> d'une fosse s'y appliquent. <b>Mais</b> selon <b>le Rav, qui dit</b> que <b>si</b> celui qui l'a place la <b>renonce a la propriete</b> de l'objet dangereux, il <b>est</b> considere comme une fosse, <b>mais si</b> il ne <b>pas</b> renonce a la propriete de cet objet alors il est <b>non</b> considere comme une fosse, <b>que dire ? </b> Le second qui est tombe n'a evidemment pas renonce a la propriete de son corps, alors pourquoi est-il exonere des dommages qu'il a causes aux vaisseaux comme s'il etait une fosse ?
+
+### Partie 7
+La Guemara repond : <b>En fait,</b> la declaration de Rava doit etre expliquee <b>comme</b> on a compris qu'il avait <b>dit initialement,</b> c'est-a-dire qu'il fait la distinction entre les dommages causes par le corps d'autrui et les dommages causes par sa propriete. <b>Et quant a votre difficulte</b> de l'enonce dans le <i>baraita</i> que <b>tous sont tenus</b> de payer pour les dommages causes par leur corps mais exemptes de payer la restitution pour les dommages causes par leurs biens, incluant apparemment meme le premier, contrairement a l'opinion de Rava, <b>Rav Adda bar Minyumi l'a interprete avant Ravina</b> comme faisant reference a un cas <b>ou des vaisseaux ont ete endommages par des vaisseaux. </b> En d'autres termes, ce n'est pas le corps, mais les vaisseaux du second qui ont ete endommages par la propriete du premier, et puisque les vaisseaux brises du premier ont le statut de fosse, le proprietaire est exempt de responsabilite pour les dommages causes aux vaisseaux d'autrui.
+
+### Partie 8
+<b>Le Maitre a dit</b> ci-dessus : <b>S'ils</b> tous <b>sont tombes a cause du premier, le premier</b> est <b>responsable</b> de payer <b>les dommages de tous.</b> La Gemara demande : <b>Comment ont-ils</b> tous <b>tombe a cause du premier ? Rav Pappa repond :</b> C'est un cas <b>ou il a bloque la route comme un squelette [<i>keshilda</i>],</b> remplissant toute la largeur de la route et faisant trebucher les autres sur differentes parties de son corps. <b>Rav Zevid a dit :</b> Il est tombe en diagonale <b>comme la canne d'un aveugle,</b> et ils ont tous trebuche sur lui.
+
+### Partie 9
+<strong>MISHNA : </strong>Si <b>cette personne</b> <b>arrivait</b> dans le domaine public <b>avec son tonneau, et que</b> cette personne <b>arrivait</b> de la direction opposee <b>avec sa</b> croix <b>poutre,</b> et que <b>cette personne</b> son tonneau etait brise par cette personnes</b> croix <b>poutre, </b> celui qui porte la traverse est <b>exempte, car celui-ci avait la permission de marcher</b> dans le domaine public, <b>et celui-la</b> avait aussi <b>la permission de marcher</b> la.
+
+### Partie 10
+S'ils marchaient dans la meme direction, de sorte que <b>le proprietaire de la <b>poutre transversale</b> marchait</b> le premier,</b> devant, <b>et le proprietaire d'un tonneau le dernier,</b> derriere lui, et que <b>le tonneau a ete brise par la</b> poutre transversale, le proprietaire de la</b> poutre transversale</b> est <b>exempte,</b> puisque le proprietaire du tonneau l'a vu devant lui et aurait du faire plus attention.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

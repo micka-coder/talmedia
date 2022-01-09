@@ -1,0 +1,60 @@
+
+### Part 1
+The Gemara asks further: With regard to <b>forbidden sexual relations,</b> for which one might have thought the goat offering would atone <b>as well, what are the circumstances? If</b> you say the reference is to a case where he transgressed <b>intentionally,</b> then one can counter that <b>he is subject to the death</b> penalty and so no offering will atone for his sin. And <b>if</b> you say the reference is to a case where he transgressed <b>unwittingly,</b> then one can counter that <b>he is liable to</b> bring his own <b>sin-offering</b> for his transgression, and so the goat will not atone for him.
+
+### Part 2
+The Gemara answers: The goat offering atones in a case where he transgressed <b>intentionally but</b> witnesses <b>did not forewarn him</b> about his transgression, so he is not liable to receive the death penalty. It also atones in a case where he transgressed <b>unwittingly, but</b> by the time Yom Kippur arrived <b>he had</b> still <b>not become aware of</b> his transgression, so he was not liable to bring an offering.
+
+### Part 3
+The Gemara asks further: Concerning the <b>bloodshed</b> for which one might have thought that the goat would atone <b>as well, what are the circumstances? If</b> you say the reference is to a case where he transgressed <b>intentionally,</b> then one can counter that <b>he is subject to the death</b> penalty, so no offering will atone for his sin. And <b>if</b> you say the reference is to a case where he transgressed <b>unwittingly,</b> then one can counter that <b>he is subject to</b> go into <b>exile,</b> so the goat offering will not atone for him.
+
+### Part 4
+The Gemara answers: The goat offering atones in a case where he transgressed <b>intentionally but</b> witnesses <b>did not forewarn him</b> about his transgression, and so he is not liable to receive the death penalty. It also atones in a case where he transgressed <b>unwittingly, but</b> by the time Yom Kippur arrived <b>he had</b> still <b>not become aware of</b> his transgression, so he was not liable to bring an offering. <b>Alternatively,</b> it is referring <b>to those</b> cases for <b>which</b> the perpetrator <b>is not subject to exile,</b> e.g., where the death was caused in a way that was almost unavoidable, or where it was very close to being considered intentional.
+
+### Part 5
+§ The Gemara continues to analyze the next part of the <i>baraita</i>: <b>The Master said:</b> One <b>might</b> have thought that <b>the goat</b> offering <b>would atone for these three</b> types of <b>impurities.</b> To counter this, <b>the verse states: “From the impurities</b> of the children of Israel” (Leviticus 16:16). The restrictive term “from” indicates that it atones for some impurities <b>but not</b> for <b>all impurities. What do we find</b> is the impurity <b>that the verse differentiates from all</b> other <b>impurities?</b> We find it <b>with regard to</b> the <b>defiling of</b> the <b>Temple or its sacrificial</b> foods. It is specifically for this transgression that the Torah provides one with the means of achieving atonement, i.e., by bringing a sliding-scale offering. <b>So too here,</b> since the verse limits the atonement of the goat offering to transgressions involving impurity, it is logical that it can also atone only <b>for</b> the <b>defiling of</b> the <b>Temple or its sacrificial</b> foods. This is <b>the statement of Rabbi Yehuda.</b>
+
+### Part 6
+The Gemara asks: In <b>what</b> way does the Torah <b>differentiate</b> the impurity of this transgression from other types of transgressions? It is differentiated in <b>that one brings a sliding-scale</b> offering to atone for it. But if that is a sufficient distinction, then <b>say</b> instead that the goat offering atones for <b>idol worship, and</b> in <b>what</b> way does the Torah <b>differentiate</b> it from other types of transgressions?
+
+### Part 7
+Before answering, the Gemara interjects with <b>a mnemonic</b> that summarizes which cases it will suggest the goat offering should atone for: <b>Idol worship, a woman after childbirth, a leper, a nazirite, etc.</b>
+
+### Part 8
+The Gemara returns to answer its question: It is differentiated in <b>that he brings a she-goat</b> as a sin-offering <b>and not an ewe,</b> which is the animal brought as a sin-offering for other transgressions.
+
+### Part 9
+<b>Rav Kahana said: We said</b> that the goat offering should atone for a transgression that the Torah <b>differentiates</b> in order <b>to be lenient</b> relative to other transgressions, <b>but this</b> case of idol worship <b>is</b> one that the Torah <b>differentiates</b> in order <b>to be stringent</b> relative to other transgressions. Accordingly, the verse cannot be referring to idol worship.
+
+### Part 10
+The Gemara asks: Why not <b>say</b> instead that the goat offering atones for <b>a woman after childbirth, as</b> the Torah <b>differentiates</b> her from other people who must bring a sin-offering following a period of impurity in <b>that she brings a sliding-scale</b> offering, whereas others bring a fixed sin-offering? <b>Rav Hoshaya said:</b> The verse states: <b>“For all their sins”</b> (Leviticus 16:16), <b>and not: For all their impurities.</b> Accordingly, since the offering brought by a woman after childbirth is not to atone for a sin, but due to the fact that she went through a period of ritual impurity, the goat offering will not atone for her.
+
+### Part 11
+The Gemara asks: <b>But</b> if so, <b>according to Rabbi Shimon ben Yoḥai, who says: A woman after childbirth</b> brings an offering because <b>she is also a sinner, what is there to say?</b> Under the intense pain of childbirth a woman is apt to take an oath not to engage in intercourse in order to avoid becoming pregnant again. This is regarded as a sin because she will certainly violate that oath. The Gemara answers: <b>Rabbi Shimon</b> conforms <b>to his</b> line of <b>reasoning, as he said</b> in the <i>baraita</i>: <b>From its own place,</b> i.e., from the verse about the atonement of the goat offering itself, <b>it</b> can be <b>determined</b> what the goat offering atones for.
+
+### Part 12
+The Gemara asks: Why not <b>say</b> that the goat offering atones for <b>a leper,</b> as the Torah differentiates him from other people who must bring a fixed offering following a period of impurity in that he brings a sliding-scale offering? <b>Rav Hoshaya said:</b> The verse states: <b>“For all their sins” and not: For all their impurities.</b> Accordingly, since the offering brought by a leper is not to atone for a sin, the goat offering will not atone for him.
+
+### Part 13
+The Gemara asks: <b>But</b> if so, <b>according to Rabbi Shmuel bar Naḥmani, who says:</b> Leprous <b>marks come</b> upon a person <b>for seven matters,</b> i.e., seven different sins, <b>what is there to say?</b> The Gemara answers: <b>There,</b> it is <b>his</b> leprous <b>mark that atones for</b> his sin, <b>and</b> the <b>offering</b> is brought in order <b>to permit him to</b> reenter <b>the congregation,</b> after having been ostracized while he was a leper.
+
+### Part 14
+The Gemara asks: <b>But</b> why not <b>say</b> that the goat offering atones for <b>a nazirite</b> who became <b>ritually impure, as</b> the Torah <b>differentiates</b> him from other people who must bring an offering following a period of impurity in <b>that he brings doves or young pigeons? Rav Hoshaya said:</b> The verse states: <b>“For all their sins” and not: For all their impurities.</b> Accordingly, since the offering brought by a nazirite is not to atone for a sin, the goat offering will not atone for him.
+
+### Part 15
+The Gemara asks: <b>But</b> if so, <b>according to Rabbi Elazar HaKappar, who says: A nazirite is also a sinner</b> because he unnecessarily ab-stained from wine, <b>what is there to say?</b> The Gemara answers: <b>He holds in accordance with</b> the opinion of <b>Rabbi Shimon, who says</b> in the <i>baraita</i>: <b>From its own place,</b> i.e., from the verse about the atonement of the goat itself, <b>it</b> can be <b>determined</b> what the goat offering atones for.
+
+### Part 16
+§ The Gemara continues to clarify the next part of the <i>baraita</i>: <b>The Master said: Rabbi Shimon says:</b> It is not necessary to derive which transgressions the goat offering atones for by comparing the verse written concerning it to a different verse. Rather, <b>from its</b> own <b>place,</b> i.e., from the verse about the atonement effected by the goat itself, <b>it</b> can be <b>determined, as it states: “And he shall effect atonement upon the Sanctuary [<i>hakodesh</i>] from the impurities</b> of the children of Israel,” which should be interpreted as saying that it atones <b>for</b> the <b>defiling of</b> anything <b>sacred [<i>kodesh</i>],</b> i.e., the Temple or its sacrificial foods. The Gemara explains Rabbi Yehuda’s opinion, asking: <b>Rabbi Shimon is saying well;</b> why does Rabbi Yehuda disagree? The Gemara answers: <b>Rabbi Yehuda</b> could have <b>said to you: That</b> verse <b>is necessary</b> to teach that <b>in the same</b> manner <b>that he performs</b> the blood presentation <b>in the innermost sanctum,</b> i.e., in the Holy of Holies, <b>that is how he shall</b> later <b>perform</b> them <b>in the Sanctuary.</b>
+
+### Part 17
+The Gemara asks: <b>And</b> how does <b>Rabbi Shimon</b> derive that <i>halakha</i>? <b>That</b> <i>halakha</i> <b>is derived from</b> the continuation of the verse: <b>“And so shall he do</b> to the Tent of Meeting,” i.e., the Sanctuary. The Gemara asks: <b>And</b> what does <b>Rabbi Yehuda</b> derive from that part of the verse? The Gemara explains: He holds that <b>if</b> this <i>halakha</i> would be derived only <b>from that</b> part of the verse, <b>I would say</b> that <b>he should bring another bull and goat,</b> slaughter them, <b>and perform</b> the blood presentations in the Sanctuary with their blood. Therefore, the first part of verse: “And he shall effect atonement upon the Sanctuary,” <b>teaches us</b> that all the presentations are made with blood from the same bull and goat. The Gemara asks: <b>And</b> why does <b>Rabbi Shimon</b> not need the first part of the verse to derive this? The Gemara explains that the verse: <b>“And so shall he do to the Tent of Meeting,”</b> itself <b>indicates</b> that the blood used in the Tent of Meeting, i.e., in the Sanctuary, is <b>from</b> the same bull and goat.
+
+### Part 18
+§ The Gemara cites the next part of the <i>baraita</i>: <b>The Master said:</b> One <b>might</b> have thought that <b>this goat</b> offering <b>would atone for all</b> cases of the <b>defiling of</b> the <b>Temple,</b> even where there was awareness at the beginning and at the end. To counter this, <b>the verse states: “And from their acts of rebellion, for all their sins”</b> (Leviticus 16:16), which indicates that the goat offering atones only for transgressions with regard to which the perpetrator is not subject to bring an offering brought by an individual to atone for himself. The Gemara asks: <b>What is</b> the case for which the goat offering does not atone? Where one <b>had awareness at the beginning and had awareness at the end.</b> The Gemara objects: But the person in <b>that</b> case <b>is subject to</b> atonement through <b>an offering.</b> If so, even without this verse it would be obvious that the goat offering would not atone for him and absolve him from his obligation to bring an offering.
+
+### Part 19
+The Gemara explains: <b>No,</b> the verse is <b>necessary</b> to teach that the goat does not atone for him in a case in <b>which he became aware</b> of his transgression <b>close to sunset</b> before the onset of Yom Kippur and was unable to bring his offering before Yom Kippur. In such a case it might <b>enter your mind to say</b> that <b>until he brings</b> his sliding-scale offering the day after Yom Kippur,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

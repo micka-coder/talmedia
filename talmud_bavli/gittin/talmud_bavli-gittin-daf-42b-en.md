@@ -1,0 +1,57 @@
+
+### Part 1
+<b>and half</b> of <b>a ransom,</b> i.e., half of the value of the deceased, <b>to his heirs.</b> According to what was stated earlier, <b>why</b> is this the <i>halakha</i>? <b>So too,</b> in this case <b>let us say:</b> If the ox killed him on <b>the day of his master,</b> then the full penalty of thirty shekels is paid <b>to his master,</b> but if it killed him <b>on his</b> own <b>day,</b> then the full ransom is paid <b>to</b> the slave <b>himself,</b> i.e., his heirs. The Gemara answers: <b>This is different, for the principal is consumed.</b> Since the slave is dead, even if the goring occurred on a day that he was working for himself, there is a permanent loss to the master, who is therefore entitled to be paid half of a penalty.
+
+### Part 2
+The Gemara asks: <b>Rather, what are the circumstances when the principal is not consumed</b> and the reimbursement is paid based on the day on which the ox gored the slave? The Gemara explains: It is a case <b>where</b> an ox <b>struck him on his hand and his hand withered,</b> but <b>it will eventually return</b> and heal. In this case, there is no permanent loss.
+
+### Part 3
+The Gemara challenges: <b>This works out well</b> according <b>to</b> the opinion of <b>Abaye, who says:</b> If one injures another and the injury causes him temporary paralysis, then <b>he gives him</b> the value of the <b>major loss of livelihood,</b> i.e., the decrease in his value, as measured by his price on the slave market, due to his temporary paralysis. <b>And</b> he also give him the value of the <b>minor loss of livelihood,</b> i.e., the actual wages he lost during the time he was injured. This works out <b>well,</b> as in this case, the owner of the ox would have to pay the major loss of livelihood.
+
+### Part 4
+<b>However, according to</b> the opinion of <b>Rava, who says: He gives him only</b> the value of <b>his loss of livelihood for each and every day</b> but does not have to pay for the decrease in his value because the slave will be healed and will return to his previous value, <b>this</b> case <b>is</b> one of <b>an ox</b> that injured the half-slave half-freeman. <b>And an ox,</b> i.e., the owner of an ox, <b>pays only damage,</b> as measured by his price on the slave market, but he does not pay for loss of livelihood at all. How then does Rava explain this case?
+
+### Part 5
+The Gemara answers: <b>If you wish, say</b> that this is referring to a case <b>where</b> the slave <b>was struck by a person,</b> not an ox, so that the one who struck him must pay for the loss of livelihood. <b>And if you wish, say</b> instead: This <i>halakha</i> <b>is</b> merely <b>a statement</b> of an <i>amora</i>, <b>and Rava</b> is <b>not</b> bound to <b>hold in accordance</b> with <b>a statement</b> of an <i>amora</i>.
+
+### Part 6
+§ <b>A dilemma was raised before</b> the Sages: If a slave is <b>detained</b> in his master’s possession only due to not having received <b>a bill of manumission,</b> but he is no longer obligated to perform labor for his master, e.g., in a case where his master declared him to be ownerless, <b>does he</b> render liable one whose ox kills him to pay the <b>penalty</b> of thirty shekels to his master, <b>or does he not</b> render one liable to pay the <b>penalty?</b>
+
+### Part 7
+The Gemara analyzes this question: <b>The Merciful One states</b> in the Torah: <b>“He shall give thirty shekels of silver to his master”</b> (Exodus 21:32), <b>and this is not a master,</b> as in practice the slave has already been declared ownerless. <b>Or perhaps, since he is lacking a bill of manumission, he is</b> still <b>called a master.</b>
+
+### Part 8
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof for this based on what is taught in a <i>baraita</i>: If an ox <b>killed one who is a half-slave half-freeman,</b> then the owner of the ox <b>gives half</b> of <b>a penalty,</b> i.e., fifteen shekels, <b>to</b> the slave’s <b>master and half</b> of <b>a ransom,</b> i.e., half of the value of the deceased, <b>to his heirs. What, is</b> the <i>baraita</i> <b>not in accordance with</b> the <b>ultimate</b> version of the <b>mishna,</b> after Beit Hillel conceded to Beit Shammai that the master is forced to emancipate the half-slave half-freeman, and he is merely lacking a bill of manumission? Despite this, the <i>baraita</i> states that the master receives the money of half of a penalty.
+
+### Part 9
+The Gemara answers: <b>No,</b> this <i>baraita</i> is <b>in accordance with</b> the <b>initial</b> version of the <b>mishna</b> and in accordance with the opinion of Beit Hillel, that the slave works for his master and himself on alternating days. He is still an actual slave, and that is why the master receives the sum of half of a penalty.
+
+### Part 10
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof based on what is taught in a <i>baraita</i>: If the master <b>knocked out</b> the slave’s <b>tooth and</b> then <b>blinded his eye,</b> then the slave <b>is emancipated due to</b> the loss of <b>his tooth,</b> as the verse states: “He shall let him go free for his tooth’s sake” (Exodus 21:27). <b>And</b> his master <b>gives him</b> reimbursement for <b>the value of his eye,</b> as though he were a freeman. <b>And if you say</b> that a slave that did not yet receive a bill of manumission <b>does</b> render one whose ox kills him liable to pay the <b>penalty, and the penalty is</b> paid <b>to his master,</b> then one could ask: <b>Now</b> if <b>other</b> people <b>injure him,</b> then they <b>give</b> the payment <b>to his master;</b> if <b>his master himself injures him,</b> then <b>should he give</b> the payment for the slave’s eye <b>to him?</b>
+
+### Part 11
+The Gemara answers: <b>Perhaps</b> this <i>baraita</i> is in accordance <b>with the one who said</b> that when a slave is emancipated because his master knocked out his tooth <b>he does not need</b> a bill of manumission and is automatically emancipated the moment his tooth is knocked out, <b>as it is taught</b> in a <i>baraita</i>: <b>For all of them,</b> for all twenty-four limbs about which the Sages said that a slave is emancipated if his master damages one of them, <b>a slave is emancipated by means of them, and he requires a bill of manumission from his master;</b> this is <b>the statement of Rabbi Yishmael. Rabbi Meir says: He does not require</b> a bill of manumission. <b>Rabbi Eliezer says: He requires</b> it. <b>Rabbi Tarfon says: He does not require</b> it. <b>Rabbi Akiva says: He requires</b> it.
+
+### Part 12
+<b>Those who rule before the Sages,</b> i.e., those who attempt to rule by finding a middle ground between the different opinions, <b>say</b> as follows: <b>The statement of Rabbi Tarfon,</b> that the slave does not require a bill of manumission, <b>seems</b> correct <b>in</b> the case of <b>a tooth or an eye, since the Torah transferred</b> his freedom <b>to him</b> explicitly (Exodus 21:26–27). <b>And the statement of Rabbi Akiva,</b> that he does require a bill of manumission, <b>seems</b> correct <b>in</b> the case of <b>other limbs, since it is a rabbinic penalty</b> that he goes free.
+
+### Part 13
+The Gemara questions the wording used: Is it a rabbinic <b>penalty? Don’t we interpret verses</b> to conclude that a slave is emancipated when any of the twenty-four limbs are damaged by the master? <b>Rather, say</b> as follows: the statement of Rabbi Akiva seems correct in the case of other limbs, <b>since it is an interpretation</b> of <b>the Sages,</b> and it is not written explicitly in the Torah. This question of the Gemara remains unresolved.
+
+### Part 14
+§ <b>A</b> similar <b>dilemma was raised before</b> the Sages: If a priest’s slave was <b>detained</b> in his master’s possession only due to not having received <b>a bill of manumission,</b> may he <b>partake of <i>teruma</i>,</b> as the slave of a priest may, <b>or</b> may <b>he not partake</b> of it? The Gemara presents the sides of this dilemma: <b>The Merciful One states</b> in the Torah: “But if a priest buy any person, <b>the purchase of his money,</b> he may eat of it” (Leviticus 22:11), <b>and this</b> slave <b>is not the purchase of his money,</b> as the master cannot enslave him. <b>Or perhaps since</b> the slave <b>is</b> still <b>lacking a bill of manumission,</b> the words <b>“the purchase of his money” are said about him.</b>
+
+### Part 15
+The Gemara answers: <b>Come</b> and <b>hear</b> a solution to this question based on <b>what Rav Mesharshiyya says: With regard to a woman</b> married to <b>a priest whose offspring was mixed with her maidservant’s offspring,</b> and it is not known who is who, then <b>these</b> two children <b>may partake of <i>teruma</i>.</b> One is a priest and one is the slave of a priest, both of whom may partake of <i>teruma</i>. <b>And</b> they must <b>divide one portion of <i>teruma</i></b> together <b>at the threshing floor,</b> because the slave of a priest is not allowed to collect <i>teruma</i> at the threshing floor. And when <b>the mixed</b> children <b>have grown up, they free each other,</b> and by doing so the one who was a slave is freed. This teaches that although the son of the maidservant was not enslaved for practical purposes, since his status as a slave could not be confirmed with certainty, he could still partake of <i>teruma</i>, as he was lacking a bill of manumission.
+
+### Part 16
+The Gemara rejects this: <b>How can</b> these cases <b>be compared? There,</b> in the case of the two children, <b>if Elijah</b> the prophet <b>will come and say about one of them that he is a slave,</b> then <b>he is called “the purchase of his money,”</b> because in reality he is a full-fledged slave. <b>Here,</b> in the dilemma before the Sages, the slave <b>is not the purchase of his money at all</b> because the master declared him ownerless. This question of the Gemara remains unresolved.
+
+### Part 17
+§ The Gemara discusses the penalty paid when an ox kills a slave: <b>A dilemma was raised before</b> the Sages: If <b>a slave whose master sold him</b> to another person only <b>with regard to</b> the <b>penalty,</b> meaning that if this slave were to be killed by an ox then the penalty would be paid to the purchaser, is he <b>sold or is he not sold?</b> In other words, does this sale take effect or not?
+
+### Part 18
+The Gemara explains: <b>Raise the dilemma according to</b> the opinion of <b>Rabbi Meir,</b> who holds that one can transfer ownership of an entity that has not yet come into the world, and <b>raise the dilemma according to</b> the opinion of <b>the Rabbis,</b> who hold that one cannot. <b>Raise the dilemma according to</b> the opinion of <b>Rabbi Meir,</b> as <b>Rabbi Meir states</b> that <b>a person can transfer ownership</b> of <b>an entity that has not yet come into the world only</b> in a case <b>such as produce</b> of <b>a date palm,</b> as this is an entity <b>whose manner it is to come,</b> and since one can be assured of the dates growing, one can sell them even beforehand. <b>However, here, who will say that</b> the slave <b>will be gored? And</b> even <b>if you say that he will be gored, from where</b> do you know <b>that</b> the owner of the ox who gored him <b>will pay</b> the penalty?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

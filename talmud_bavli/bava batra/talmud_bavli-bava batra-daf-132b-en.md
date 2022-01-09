@@ -1,0 +1,30 @@
+
+### Part 1
+<b>And</b> the Sages <b>taught here</b> one <b>of the leniencies</b> that apply to <b>a marriage contract.</b> This manner in which the wife loses her right to receive payment of her marriage contract is a leniency for the husband, as an ordinary creditor does not lose money he is owed in this fashion.
+
+### Part 2
+The Gemara questions this statement: <b>We learned</b> in the same mishna that <b>Rabbi Yosei says</b> that <b>if she accepted</b> the distribution <b>upon herself, even if he did not write</b> a document granting <b>her</b> any amount of land, <b>she has lost</b> her right to receive payment of <b>her marriage contract. By inference,</b> it can be stated <b>that the first <i>tanna</i> holds</b> that both his <b>writing</b> a document granting her a piece of land <b>and</b> her <b>acceptance</b> of the distribution <b>are necessary</b> for her to lose her right, contrary to the interpretation of all three <i>amora’im</i>, i.e., Rav, Shmuel, and Rabbi Yosei, son of Rabbi Ḥanina, all of whom assumed that she need not affirmatively accept the distribution and that her silence is sufficient.
+
+### Part 3
+<b>And if you would say</b> that <b>the entire</b> mishna <b>is</b> the opinion of <b>Rabbi Yosei,</b> who holds that either the husband’s writing a deed of gift or the wife’s acceptance of the distribution is sufficient, <b>but isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda said:</b> According to the first <i>tanna</i>, <b>when</b> does she lose her right to receive payment of her marriage contract? In a case <b>where she was there</b> at the time of the distribution <b>and accepted</b> it; <b>but if she was there but did not accept</b> it, or <b>accepted</b> it <b>but was not there, she has not lost</b> her right to receive payment of <b>her marriage contract,</b> as she can claim that her acquiescence was only to please her husband and was not sincere. The Gemara concludes: The <b>refutation</b> of the opinions <b>of all</b> the interpretations of the <i>amora’im</i> <b>is</b> indeed <b>a conclusive refutation.</b>
+
+### Part 4
+<b>Rava said to Rav Naḥman: This</b> is the opinion of <b>Rav; this</b> is the opinion of <b>Shmuel;</b> and <b>this</b> is the opinion of <b>Rabbi Yosei, son of Rabbi Ḥanina. What does the Master hold</b> in this matter? Rav Naḥman <b>said to him: As I say, that once he rendered her a partner</b> in the property <b>among the sons, she lost</b> her right to receive payment of <b>her marriage contract.</b>
+
+### Part 5
+Rav Naḥman’s opinion <b>was also stated</b> as a halakhic ruling: <b>Rav Yosef bar Minyumi says</b> that <b>Rav Naḥman says</b> that <b>once he rendered her a partner</b> in the property <b>among the sons, she lost</b> her right to receive payment of <b>her marriage contract.</b>
+
+### Part 6
+<b>Rava raises a dilemma: In</b> the case of <b>a healthy person, what</b> is the <i>halakha</i>? <b>Do we say</b> that the wife loses her right to receive payment of her marriage contract only <b>in</b> the case of <b>a person on his deathbed, as she knew that he had no</b> other property <b>and</b> nevertheless <b>waived</b> payment of the marriage contract, <b>but in</b> the case of <b>a healthy person, she</b> might have <b>reasoned</b> that <b>he will then acquire</b> other property from which she will be able to collect payment of her marriage contract, and that is why she accepted the distribution of the property? If so, she did not waive her right to receive payment of her marriage contract. <b>Or perhaps,</b> should it be reasoned that since <b>in any event, now he has no</b> other property, her acceptance should be interpreted as waiving her right? The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 7
+§ There was <b>a certain</b> man on his deathbed <b>who said to</b> the people surrounding him: Give <b>one-half</b> of my estate <b>to</b> my <b>daughter, and one-half to</b> my other <b>daughter, and one-third of the produce to</b> my <b>wife. Rav Naḥman happened</b> to come <b>to Sura. He entered</b> the study hall <b>to</b> see <b>Rav Ḥisda,</b> who <b>said to him:</b> In <b>a case like this, what</b> is the <i>halakha</i>? Rav Naḥman <b>said to him</b> that <b>this</b> is what <b>Shmuel says: Even</b> if <b>he transferred to her</b> ownership <b>only one palm tree for its produce, she has lost</b> her right to receive payment of <b>her marriage contract.</b>
+
+### Part 8
+Rav Ḥisda <b>said to him: Say that Shmuel said</b> his statement that she loses her right <b>there,</b> in a case where he gave her a palm tree for its produce, <b>because he transferred</b> rights <b>in the land itself to her ownership,</b> as the palm tree is connected to the ground. But <b>here,</b> in this case, <b>it is</b> only <b>produce</b> that he gave her, without any share in the land itself. Perhaps she does not lose payment of her marriage contract. Rav Naḥman <b>said to him: You say</b> that he gave her only <b>movable property? I certainly did not</b> mean to <b>say</b> that she loses her right even if he gave her only <b>movable property</b> such as produce. Rather, she receives payment of her marriage contract.
+
+### Part 9
+There was <b>a certain</b> man on his deathbed <b>who said to</b> the people surrounding him: Give <b>one-third</b> of my property <b>to</b> my <b>daughter, and one-third to</b> my other <b>daughter, and one-third to</b> my <b>wife. One of his daughters died</b> before he did, and her portion consequently returned to his possession. <b>Rav Pappi thought to say</b> that the wife <b>takes only one-third.</b> She cannot receive payment of her marriage contract from the two-thirds bequeathed to the daughters, as by entering a partnership with the daughters in ownership of the property, she waived payment of her marriage contract.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

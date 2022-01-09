@@ -1,0 +1,18 @@
+
+### Part 1
+<strong>MISHNA:</strong> What are examples of <b>vows that are unintentional</b> that are dissolved, as taught at the beginning of the chapter? One who vows: This loaf is forbidden to me as if it were an offering [<i>konam</i>] <b>if I ate or if I drank, and</b> then <b>he remembers that he ate or drank.</b> Or, one who vows: This loaf is <i>konam</i> for me if <b>I</b> will <b>eat or</b> if <b>I</b> will <b>drink, and he</b> then <b>forgets and eats or drinks.</b> Also, <b>one</b> who <b>said: Benefiting from me is <i>konam</i> for my wife because she stole my purse or she hit my son, and</b> then <b>it became known that she had not hit him or it became known that she had not stolen.</b>
+
+### Part 2
+The mishna lists another example of an unintentional vow: <b>One</b> who <b>saw</b> people entering his courtyard and <b>eating figs, and</b> because he did not want them to do so <b>he said:</b> The figs are forbidden <b>to you</b> like <b>an offering. And</b> then <b>it was found</b> that <b>his father and brother</b> were in the group, <b>and there were others with them</b> as well, and certainly he did not intend to take a vow prohibiting his father and brother from eating the figs. In such a case, <b>Beit Shammai says: They,</b> his father and brother, <b>are permitted</b> to eat the figs, <b>and those</b> others <b>that were with them are prohibited</b> from doing so. <b>And Beit Hillel says:</b> Both <b>these and those are permitted</b> to eat the figs, as will be clarified in the Gemara.
+
+### Part 3
+<strong>GEMARA:</strong> <b>The Sages taught: Just as vows that are unintentional are dissolved, so too, oaths that are unintentional are dissolved.</b> The Gemara asks: <b>What are the circumstances</b> of <b>unintentional oaths? For example,</b> as in the incident of <b>Rav Kahana and Rav Asi,</b> who disagreed about a <i>halakha</i>. During the dispute <b>this</b> one <b>said:</b> I take <b>an oath that Rav said</b> like <b>this</b> opinion that I hold. <b>And that</b> one <b>said:</b> I take <b>an oath that Rav said</b> like <b>this</b> opinion that I hold. This is an unintentional oath, <b>as each one took an oath properly in his own mind</b> and was sure that he was saying the truth.
+
+### Part 4
+With regard to the mishna’s statement: <b>One</b> who <b>saw them eating,</b> the Gemara states that <b>we learned</b> in a mishna <b>there</b> (66a): If one vows to fast or not to eat a certain food, dissolution <b>is broached based on <i>Shabbatot</i> and based on Festivals,</b> since one certainly did not intend to include these days when taking the vow. <b>Initially, they used to say:</b> On <b>those days,</b> <i>Shabbatot</i> and Festivals, which he did not include in his vow, he is <b>permitted</b> to partake of the item, <b>and</b> on <b>all other days</b> he is <b>prohibited</b> from doing so. This was the case <b>until Rabbi Akiva came and taught: A vow that was partially dissolved is dissolved completely.</b> Therefore, one is permitted to partake on other days well.
+
+### Part 5
+<b>Rabba said: Everyone</b> in the mishna, i.e., Beit Shammai and Beit Hillel, holds that <b>wherever</b> one <b>says: Had I known that</b> my <b>father</b> was <b>among you I would have said: All of you are prohibited</b> from eating figs <b>except for father, then</b> in that case <b>all are prohibited</b> from doing so <b>and his father</b> is <b>permitted</b> to do so. <b>They disagreed only</b> in an instance <b>where one said: Had I known that</b> my <b>father</b> was <b>among you then I would have said: So-and-so and so-and-so,</b> i.e., all the others, <b>are prohibited</b> from eating figs <b>and father is permitted</b> to do so.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

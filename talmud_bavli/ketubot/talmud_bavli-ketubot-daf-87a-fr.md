@@ -1,0 +1,51 @@
+
+### Partie 1
+Il fait reference <b>a</b> une femme <b>qui est devenue intendante du vivant de son mari,</b> car il etait courant qu'un homme laisse sa femme en charge de ses biens tout en la dispensant de preter serment. <b>Rav Nahman</b> dit que <b>Rabba bar Avuh a dit :</b> Il fait reference <b>a une femme qui pretend avoir recu un paiement partiel de son contrat de mariage,</b> qui doit preter serment qu'elle n'a pas recu plus que le montant qu'elle admet. La mishna fait reference a un mari qui a exempte sa femme de ce serment.
+
+### Partie 2
+<b>Rav Mordekhai est alle</b> et <b>a dit</b> cette <b><i>halakha</i> devant Rav Ashi</b> et lui a pose la question suivante : <b>Accorde, selon celui qui dit</b> que <b>cela fait reference a une femme qui pretend avoir recu un paiement partiel de son contrat de mariage,</b> il est logique <b>qu'il entre dans son esprit</b> que cela puisse arriver, car elle pense : <b>Peut-etre aurai-je besoin d'argent, et je prendrai</b> ce dont j'ai besoin <b>de mon contrat de mariage</b> a l'avance. <b>Et elle</b> lui <b>dit donc</b> avant leur mariage : <b>Ecrivez pour moi que vous ne me ferez pas preter serment</b> lorsque je viendrai chercher le reste de mon contrat de mariage. <b>Cependant, selon celui qui dit</b> qu'il <b>se refere</b> a une femme <b>qui est devenue intendante du vivant de son mari, savait-elle</b> a l'avance <b>que</b> son mari <b>l'etablirait comme intendante,</b> pour savoir</b> lui dire : Ecris pour moi que tu ne me feras pas preter serment ?</b>
+
+### Partie 3
+Rav Ashi <b>lui a dit : Vous enseignez cette</b> <i>halakha</i> de Rav Yehuda <b>en ce qui concerne cette</b> partie de la mishna, et donc vous trouvez cela difficile. <b>Nous,</b> cependant, <b>l'enseignons par rapport a cette</b> partie de la mishna : Si <b>elle est allee de la tombe de son mari a la maison de son pere</b> sans manipuler les biens de son defunt mari, <b>ou</b> dans un cas <b>ou elle est retournee chez son beau-pere et n'est pas du tout devenue intendante</b> des biens pendant toute cette periode, alors <b>les heritiers ne peuvent pas lui faire preter serment</b> en ce qui concerne ses actions du vivant de leur pere, car le mari l'a dispensee de preter serment aux heritiers. <b>Et si elle est devenue intendante, les heritiers peuvent lui faire preter serment sur l'avenir,</b> c'est-a-dire sur tout ce qu'elle a fait avec les biens apres la mort de son mari, <b>mais ils ne peuvent lui faire preter serment sur ce qui</b> a eu lieu <b>dans le passe,</b> du vivant de son mari.
+
+### Partie 4
+C'est a propos de cette declaration que la Gemara s'est interrogee : <b>Quel est le but de</b> mentionner <b>le passe ?</b> Quel serment aurait-on voulu qu'elle fasse par rapport au passe ? Et c'est en reponse a cette question que <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> Il fait reference <b>a</b> une femme <b>qui est devenue intendante du vivant de son mari.</b>
+
+### Partie 5
+La Guemara presente une dispute sur ce qui est considere comme le passe, en poursuivant d'abord la citation de Rav Yehuda : <b>Mais ils peuvent lui faire preter serment</b> en ce qui concerne sa conduite <b>entre</b> le <b>mort de son mari et</b> son <b>sepulture. Et Rav Mattana a dit : Meme</b> concernant ses actions <b>entre</b> le <b>deces de son mari et</b> son <b>sepulture, ils ne peuvent lui faire preter serment, comme</b> le disent les Sages de <b>Nehardeâ : Pour</b> le paiement de l'<b>impot sur les tetes [<i>karga</i>], et pour</b> le paiement afin de pourvoir a la <b>sustentation des enfants, et pour l'enterrement, on vend</b> les biens herites par les orphelins <b>sans annonce.</b> Dans ces affaires urgentes, le tribunal n'est pas particulier quant a une eventuelle perte encourue par les heritiers. De meme, la une femme n'a pas besoin de preter serment en ce qui concerne la maniere dont elle a gere ses affaires pour les funerailles de son mari, car dans un tel moment de stress, elle ne peut pas gerer ses comptes de maniere precise.
+
+### Partie 6
+§ <b>Rabba a dit</b> que <b>Rabbi Hiyya a dit :</b> Si un mari ecrit : <b>Pas un vœu et pas un serment,</b> cela signifie que <b>il ne peut pas lui faire preter serment, mais</b> ses <b>heritiers peuvent lui faire preter serment.</b> S'il a ecrit : Elle est <b>claire,</b> c'est-a-dire exempte, de <b>un vœu</b> et <b>claire</b> de <b>un serment, ni lui ni</b> ses <b>heritiers ne peuvent lui faire preter serment.</b> C'est qu'en effet <b>c'est ce qu'il lui dit : Vous etes degagee</b> du <b>serment,</b> peu importe qui cherche a vous le faire preter.
+
+### Partie 7
+<b>Mais Rav Yosef</b> dit que <b>Rabbi Hiyya a dit</b> la decision inverse en ce qui concerne la deuxieme clause : S'il a ecrit : <b>Non un vœu et non un serment, il ne peut lui faire preter serment, mais</b> ses <b>heritiers peuvent lui faire preter serment.</b> S'il a ecrit : Elle est <b>claire</b> d'un <b>vœu</b> et <b>claire</b> d'un <b>serment, lui ou</b> ses <b>heritiers peuvent lui faire preter serment.</b> C'est parce qu'en effet <b>c'est ce qu'il lui dit : Lave-toi</b> de tout soupcon <b>par</b> le biais d'un <b>serment.</b>
+
+### Partie 8
+<b>Rabbi Zakkai a envoye</b> la decision suivante <b>a Mar Ukva</b> d'Eretz Yisrael : <b>Si</b> il a ecrit : <b>Pas un serment,</b> ou <b>Que</b> il ait ecrit : <b>Loin</b> de <b>un serment,</b> et <b>si</b> il a ecrit : <b>Pas un serment,</b> ou <b>si</b> il a ecrit : <b>Clear</b> de <b>un vœu,</b> s'il a ajoute la phrase : <b>Par rapport a mes biens, il ne peut lui faire preter serment, mais</b> ses <b>heritiers peuvent lui faire preter serment.</b> En revanche, s'il ajoute la phrase : <b>Par rapport a ces biens, ni lui ni ses heritiers ne peuvent lui faire preter serment.</b>
+
+### Partie 9
+<b>Rav Nahman dit</b> que <b>Shmuel a dit au nom de Abba Shaul ben Imma Miriam : Si</b> il a ecrit : <b>Pas un serment,</b> ou <b>si</b> il a ecrit : <b>Loin</b> de <b>un serment,</b> et <b>si</b> il a ecrit : <b>Pas un serment,</b> ou <b>si</b> il a ecrit : <b>Loin</b> de <b>un vœu,</b> et <b>si</b> il a ajoute : <b>De mes biens,</b> ou <b>si</b> il a ajoute : <b>De ces biens, ni lui ni ses heritiers ne peuvent lui faire preter serment</b> selon la lettre de la loi. <b>Cependant, que puis-je faire, puisque les Sages ont dit</b> que <b>celui qui vient recouvrer</b> une creance <b>sur les biens des orphelins ne peut la recouvrer</b> que par</b> le biais d'un <b>serment ?</b> Elle est donc obligee de preter serment dans tous les cas de creance sur les orphelins.
+
+### Partie 10
+<b>Et certains disent</b> cette <i>halakha</i> sous la forme d'une <b>baraita</i>,</b> et non comme une citation d'une <i>amora</i> : <b>Abba Shaul ben Imma Miriam a dit : Si</b> il a ecrit : <b>Pas un serment,</b> ou <b>si</b> il a ecrit : <b>Loin</b> de <b>un serment,</b> et <b>si</b> il a ecrit : <b>Pas un serment,</b> ou <b>si</b> il a ecrit : <b>Loin</b> de <b>un vœu,</b> et <b>si</b> il a ajoute : <b>De mes biens,</b> ou <b>si</b> il a ajoute : <b>De ces biens, ni lui ni ses heritiers ne peuvent lui faire preter serment</b> selon la lettre de la loi. <b>Cependant, que puis-je faire, puisque les Sages ont dit</b> que <b>celui qui vient recouvrer</b> une dette <b>sur les biens des orphelins ne peut la recouvrer</b> que par</b> le biais d'un <b>serment ?</b> La Gemara commente : <b>Rav Nahman dit</b> que <b>Shmuel a dit :</b> La pratique <b><i>halakha</i> est conforme</b> a l'opinion de <b>ben Imma Miriam.</b>
+
+### Partie 11
+<strong>MISHNA :</strong> Une femme <b>qui vicie son contrat de mariage</b> en reconnaissant avoir recu un paiement partiel <b>peut percevoir</b> le reste de son contrat de mariage <b>uniquement par</b> moyen d'un <b>serment.</b> De meme, si <b>un temoin atteste que</b> son contrat de mariage <b>est paye, elle peut le percevoir <b>uniquement par</b> moyen d'un <b>serment. </b> Dans tous les cas ou elle cherche a reclamer son contrat de mariage <b>sur les biens des orphelins, ou sur des biens greves de privileges</b> qui ont ete vendus a un tiers, <b>ou lorsqu'elle n'est pas en</b> <b>presence de son mari,</b> elle <b>peut le percevoir <b>uniquement au moyen</b> d'un <b>serment.</b>
+
+### Partie 12
+La mishna developpe : En ce qui concerne une femme <b>qui vicie son contrat de mariage,</b> comment cette situation se presente-t-elle ? Si <b>son contrat de mariage etait de mille dinars, et</b> son mari <b>lui a dit : Tu</b> as deja <b>recu ton contrat de mariage, et qu'elle dit : Je n'ai recu que cent dinars,</b> elle a fait un aveu partiel et <b>ne peut recuperer</b> son contrat de mariage <b>que</b> par le biais d'un <b>serment.</b>
+
+### Partie 13
+Si <b>un temoin atteste que</b> son contrat de mariage <b>est paye, comment ? </b> Si <b>son contrat de mariage etait de mille dinars, et</b> son mari lui <b>a dit : Tu</b> as deja <b>recu ton contrat de mariage, et elle dit : Je n'ai pas recu</b> le paiement, <b>et un temoin atteste au sujet</b> du contrat de mariage <b>qu'il est paye,</b> elle <b>ne peut le percevoir</b> que par</b> le biais d'un <b>serment.</b>
+
+### Partie 14
+<b>D'un bien greve, comment ? </b> Si, pendant leur mariage, le mari a <b>vendu ses biens a d'autres personnes, et qu'elle</b> vient <b>recuperer</b> son contrat de mariage <b>aupres des acheteurs, elle peut le percevoir</b> <b>uniquement au moyen</b> d'un <b>serment.</b> Elle peut saisir les biens des acheteurs parce que l'obligation de son mari prise dans le contrat de mariage est anterieure a son obligation dans l'acte de vente.
+
+### Partie 15
+<b>Sur les biens des orphelins, comment ? </b> Si le mari <b>est decede et a laisse ses biens aux orphelins, et qu'elle</b> vient <b>recevoir</b> son contrat de mariage <b>des orphelins,</b> elle <b>ne peut le percevoir</b> qu'au moyen</b> d'un <b>serment.</b>
+
+### Partie 16
+<b>Ou lorsqu'il n'est pas en sa presence, comment ? </b> Si <b>il est alle</b> dans <b>un pays d'outre-mer et</b> lui a envoye un acte de divorce, de sorte que <b>elle recueille</b> son contrat de mariage <b>lorsqu'elle n'est pas en sa presence,</b> elle <b>peut le recueillir</b> <b>uniquement au moyen</b> d'un <b>serment.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Partie 1
+les <b>filles doivent-elles prendre la totalite</b> de la succession, meme si c'est plus que ce qui est necessaire pour leur subsistance ? <b>Rava a plutot dit :</b> Le tribunal <b>s'approprie la subsistance des filles jusqu'a leur majorite, et le reste</b> est donne <b>aux fils.</b>
+
+### Partie 2
+§ La Guemara commente : Il est <b>evident</b> que si la succession etait <b>grande et est devenue petite,</b> les <b>heritiers,</b> c'est-a-dire les fils, <b>l'ont deja acquise</b> quand elle etait grande. Il reste en leur possession, et ils doivent subvenir aux besoins des filles a partir de celui-ci. La Gemara demande : Si le domaine etait <b>petit,</b> et n'a donc pas ete herite par les fils, <b>et</b> qu'ensuite il <b>devient grand, quel est le <i>halakha</i> ? Est-ce que meme une petite succession <b>reste en possession des heritiers,</b> alors que le tribunal la reserve pour la subsistance des filles, et <b>par consequent elle s'est appreciee en possession</b> des <b>heritiers</b> et ils recoivent l'appreciation de la valeur de la succession ? <b>Ou peut-etre</b> les <b>heritiers sont</b> totalement <b>enleves de</b> la possession d'un petit domaine, et la plus-value est au profit des filles qui recoivent la subsistance.
+
+### Partie 3
+La Gemara repond : <b>Venez</b> et <b>entendez</b> une preuve, <b>comme le dit Rabbi Asi</b> que <b>Rabbi Yohanan dit : </b> Dans le cas des <b>orphelins qui ont vendu de maniere preemptive</b> des terres <b>de la petite propriete</b> que leur a laissee leur pere, avant que le tribunal ne se les approprie pour la subsistance des filles, concernant <b>ce qu'ils ont vendu,</b> la <b>vente</b> est valide, meme s'ils ont agi de maniere inappropriee. On peut en deduire qu'un petit patrimoine reste en possession des heritiers meme lorsqu'ils ne sont pas autorises a en tirer profit, et donc que la plus-value de sa valeur leur appartient.
+
+### Partie 4
+§ <b>Rabbi Yirmeya etait assis devant Rabbi Abbahou et souleva</b> le <b>dilemme suivant devant lui : Quelle est</b> la <i>halakha</i> par rapport a la subsistance a laquelle a droit la <b>veuve</b> du defunt ? Est-ce qu'elle <b>reduit</b> la valeur de <b>la succession</b> lorsqu'on evalue si la succession est categorisee comme une grande succession ou une petite succession ? <b>Disons-nous</b> que <b>puisqu'elle a</b> un droit a recevoir la <b>sustentation,</b> cela <b>reduit</b> la valeur de la succession ? <b>Ou peut-etre</b> disons-nous que <b>puisqu'en se remariant elle n'a pas</b> un droit a la subsistance, <b>maintenant aussi,</b> pour determiner la valeur de la succession, elle est consideree comme si <b>elle n'a pas</b> un droit a la subsistance, et donc cela ne reduit pas la valeur de la succession.
+
+### Partie 5
+En outre, <b>si vous dites</b> que <b>puisque, si elle se remarie, elle n'a pas</b> de droit a la subsistance, <b>maintenant aussi</b> elle est consideree comme si <b>elle n'a pas</b> de droit a la subsistance, et il n'en est pas tenu compte dans l'evaluation de la succession, alors un autre dilemme peut etre souleve : <b>Quel est</b> le <i>halakha</i> par rapport a la subsistance que l'on s'est engage a donner, pendant un certain nombre d'annees, a la <b>fille de sa femme</b> d'un precedent mariage, c'est-a-dire sa belle-fille, qui est une obligation non affectee par son deces ou par son mariage ? Est-ce que cela <b>reduit</b> la valeur de <b>la succession ? Disons-nous</b> que <b>puisque, lorsqu'elle se marie, elle a aussi</b> un droit a la subsistance, cela <b>reduit</b> la valeur de la succession ? <b>Ou peut-etre</b> disons-nous que <b>puisque, si elle meurt, elle n'a pas</b> un droit a la subsistance, cela <b>ne reduit pas</b> la valeur de la succession.
+
+### Partie 6
+<b>Et si vous dites</b> que <b>puisque, si elle meurt, elle n'a pas</b> un droit a la subsistance, donc cela <b>ne reduit pas</b> la valeur de la succession, <b>qu'en est-il</b> de la <i>halakha</i> en ce qui concerne une dette due au <b>creancier du defunt ?</b> Est-ce que cela <b>reduit</b> la valeur de <b>la succession ? Dit-on</b> que <b>puisque, lorsque</b> le creancier <b>decede, il a aussi</b> un droit sur l'argent qui lui est du, et qu'il est percu par ses heritiers, donc cela <b>reduit</b> la valeur de la succession ? <b>Ou peut-etre</b> disons-nous que <b>puisqu'elle n'a pas encore ete percue,</b> elle <b>ne reduit pas</b> la valeur de la succession.
+
+### Partie 7
+<b>Et il y a</b> ceux qui disent <b>que</b> Rabbi Yirmeya <b>souleve les dilemmes en sens inverse,</b> c'est-a-dire dans l'ordre inverse : <b>Qu'est</b> la <i>halakha</i> par rapport a une dette envers <b>un creancier ?</b> Est-ce qu'elle <b>reduit</b> la valeur de <b>la succession ?</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

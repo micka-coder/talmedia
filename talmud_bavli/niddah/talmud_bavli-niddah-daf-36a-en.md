@@ -1,0 +1,54 @@
+
+### Part 1
+<b>But according to Levi, who said there are two sources, why do I</b> need this woman to wait <b>seven</b> clean days? It should be <b>enough</b> for her to wait seven days after experiencing <b>any amount</b> of cleanliness from the conclusion of her days of impurity. After all, according to Levi, once the blood ceases to flow from her days of impurity, any blood emitted thereafter is from the source of pure blood. Consequently, even if she experiences a flow of blood during the seven clean days this should not negate her count.
+
+### Part 2
+The Gemara explains that <b>this</b> is what the <i>baraita</i> <b>is saying: She requires that</b> the blood flow <b>should stop</b> for <b>any amount</b> of time after her days of impurity, so <b>that</b> she will have entered her days of purity, and consequently, the next seven days <b>will be considered for her as</b> the <b>seven clean</b> days required by a <i>zava</i>.
+
+### Part 3
+The Gemara suggests: <b>Come</b> and <b>hear</b> a <i>baraita</i>: There are certain women with regard to whom the <i>halakha</i> is that if they notice an emission of menstrual blood they are deemed impure only from when they saw the blood, and one is not concerned they might have experienced the emission from an earlier time. Two such women are one who is pregnant and one who is nursing. This applies only to a pregnant woman who has been noticeably pregnant for three periods, each thirty days in length, and has not experienced bleeding during the three periods; and to a nursing woman who has been nursing for three periods, each also thirty days in length, and did not experience bleeding during that time. With regard to this the <i>baraita</i> teaches: <b>The days of her pregnancy</b> in which she saw no blood <b>count for her toward the days of her nursing</b> in which she saw no blood, to complete three periods, <b>and</b> likewise, <b>the days of her nursing count for her toward the days of her pregnancy.</b>
+
+### Part 4
+The <i>baraita</i> elaborates: <b>How</b> so? If a woman <b>stopped</b> experiencing bleeding for <b>two</b> periods <b>during her days of pregnancy and one</b> period <b>during her days of nursing;</b> or if she did not experience bleeding for <b>two</b> periods <b>during her days of nursing and one</b> period <b>during her days of pregnancy;</b> or if she did not experience bleeding for <b>one and a half</b> periods <b>during her days of pregnancy and one and a half</b> periods <b>during her days of nursing,</b> the days <b>count for her as three periods</b> in which she did not experience bleeding, and if she experiences bleeding she is deemed impure only from the hour that she saw the blood.
+
+### Part 5
+The Gemara analyzes this <i>baraita</i>: <b>Granted,</b> the <i>baraita</i> is clear <b>according to Rav, who said there is one source,</b> as it is <b>due to that</b> reason that the woman <b>requires a cessation</b> of menstrual emissions for <b>three periods</b> in order that she may be considered a woman whose menstrual emissions have ceased. <b>But according to Levi, who said there are two sources, why do I</b> need <b>a cessation</b> of menstrual emissions for <b>three periods?</b> Provided the woman’s menstrual emissions cease for <b>any amount</b> of time at the completion of her days of impurity, it should be <b>enough,</b> as any blood she may emit thereafter is pure and should not negate her count of three periods.
+
+### Part 6
+The Gemara explains that <b>this</b> is what the <i>baraita</i> <b>is saying: She requires that</b> the blood flow <b>should stop</b> for <b>any amount</b> of time at the conclusion of her days of impurity, <b>in order that</b> her days of purity <b>will be counted for her as</b> part of the <b>three periods,</b> even if she experiences bleeding during her days of purity.
+
+### Part 7
+The Gemara suggests: <b>Come</b> and <b>hear</b> a <i>baraita</i>: <b>And</b> although Shammai and Hillel disagree with regard to all women who experience bleeding (see 2a), as Shammai maintains they are impure only from when they saw the blood while Hillel holds that they assume ritual impurity status retroactively from the last time they examined themselves and were found to be pure, <b>they agree with regard to</b> a woman who <b>sees</b> blood <b>after</b> seeing <b>blood</b> during her days <b>of purity, that it is sufficient for her</b> to be considered impure from the <b>hour</b> of <b>her</b> seeing the blood.
+
+### Part 8
+The Gemara analyzes the <i>baraita</i>: <b>Granted,</b> the <i>baraita</i> is clear <b>according to Levi, who said there are two sources,</b> as it is <b>due to that</b> reason that <b>it is sufficient for her</b> to be considered impure from the <b>hour</b> of <b>her</b> seeing the blood. In other words, although she experienced bleeding during her days of purity, until this emission she was still considered a woman whose menstrual emissions have ceased. <b>But according to Rav, who said there is one source,</b> if this woman experienced bleeding during her days of purity, she cannot be considered a woman whose menstrual emissions have ceased. If so, <b>why is it sufficient for her</b> to be considered impure from the <b>hour</b> of <b>her</b> seeing the blood? <b>She should be</b> considered <b>impure</b> retroactively <b>for</b> a twenty-four-hour <b>period,</b> like all other women.
+
+### Part 9
+The Gemara responds: The <i>baraita</i> is referring to a case <b>where there is no time</b> between the conclusion of her days of purity and the subsequent emission of blood. In such a situation, she cannot be considered impure retroactively for a twenty-four-hour period, as the previous twenty-four hours are part of her days of purity.
+
+### Part 10
+The Gemara raises a difficulty: <b>But</b> still, why is she impure only from when she sees the blood? <b>She should be</b> considered <b>impure from examination to examination,</b> i.e., from the last time she examined herself and found that she was pure. The Gemara responds: <b>Since there is no</b> possibility of her being impure retroactively <b>for</b> a twenty-four-hour <b>period,</b> with regard to impurity <b>from examination to examination as well, the Sages did not decree</b> impurity <b>with regard to her.</b>
+
+### Part 11
+The Gemara further suggests: <b>Come</b> and <b>hear</b> a <i>baraita</i>: With regard to <b>a woman who gives birth as a <i>zava</i>, who counted</b> seven clean days after the conclusion of her days of impurity <b>but did not</b> yet <b>immerse, and</b> subsequently <b>saw</b> blood, <b>Beit Shammai follow their opinion</b> with regard to any woman who gave birth and concluded her days of impurity but did not yet immerse, <b>and Beit Hillel</b> likewise <b>follow their opinion.</b> In other words, according to Beit Shammai her blood imparts impurity only while moist, whereas according to Beit Hillel it imparts impurity whether it is moist or dry.
+
+### Part 12
+The Gemara analyzes the <i>baraita</i>: <b>Granted,</b> the <i>baraita</i> is clear <b>according to Rav, who said there is one source,</b> as it is <b>due to that</b> reason Beit Hillel maintain that the blood <b>imparts impurity</b> whether it is <b>moist</b> or <b>dry.</b> In other words, as she has not yet immersed, the Torah does not deem pure her menstrual emissions. <b>But according to Levi, who said there are two sources,</b> any blood she may emit after counting seven clean days must have come from the source of pure blood. If so, <b>why does</b> it <b>impart impurity</b> whether it is <b>moist or dry?</b>
+
+### Part 13
+The Gemara explains that <b>Levi</b> could <b>say to you: I say</b> my opinion <b>in accordance with</b> the opinion of <b>the <i>tanna</i></b> of the <i>baraita</i> cited above, <b>that</b> Shammai and Hillel <b>agree</b> that with regard to a woman who experiences bleeding after experiencing bleeding during her days of purity, it is sufficient for her to be considered impure from the hour that she saw the blood. That <i>baraita</i> apparently indicates that there are in fact two sources.
+
+### Part 14
+<b>And if you wish, say</b> instead that this <i>baraita</i> is referring <b>to</b> a woman who <b>continuously discharges</b> menstrual blood from within her days of impurity into her days of purity. Accordingly, the blood she sees during her days of purity is still from the source of impure blood. The Gemara objects: <b>But</b> the <i>baraita</i> <b>teaches</b> that the woman <b>counted</b> seven clean days.
+
+### Part 15
+The Gemara explains: <b>Here we are dealing with a woman who gave birth to a female as a <i>zava</i>,</b> and therefore her days of impurity are two weeks in length. And this is a case <b>where</b> in the <b>first week</b> her menstrual emissions <b>ceased,</b> and in the <b>latter week</b> her menstrual emissions <b>did not cease,</b> and they continued until her days of purity. <b>And</b> the <i>tanna</i> of this <i>baraita</i> <b>holds: The days of her birth,</b> i.e., the days of impurity, <b>in which she does not see</b> blood, <b>count for her toward the counting of her <i>ziva</i>.</b> Accordingly, although she is considered to have counted seven clean days, the blood emitted during her days of purity is from the source of impure blood.
+
+### Part 16
+§ With regard to the dispute between Rav and Levi, <b>Ravina said to Rav Ashi: Rav Shemen from Sikhra said to us: Mar Zutra happened to</b> come to <b>our locale, and he taught</b> that <b>the <i>halakha</i> is in accordance with</b> the opinion <b>of Rav as a stringency, and the <i>halakha</i> is in accordance with</b> the opinion <b>of Levi as a stringency.</b> In other words, if a woman continuously discharges menstrual blood from within her days of purity until sometime after the conclusion of her days of purity, the blood emitted after her days of purity is impure, in accordance with the opinion of Rav. By contrast, if she continuously discharges menstrual blood from within her days of impurity into her days of purity, the blood emitted during her days of purity is impure, in accordance with the opinion of Levi.
+
+### Part 17
+<b>Rav Ashi said: The <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav, whether as a leniency or as a stringency.</b> Likewise, <b>Mareimar taught: The <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav, whether as a leniency or as a stringency.</b> The Gemara concludes: <b>And the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav, whether as a leniency or as a stringency.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

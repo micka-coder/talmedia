@@ -1,0 +1,45 @@
+
+### Part 1
+The Gemara raises a challenge: <b>And say</b> that the verse: “The daughter of your father’s wife” comes to <b>exclude</b> women who were forbidden, as they are <b>liable</b> for violating <b>prohibitions</b> but were nevertheless married to his father, such as a <i>mamzeret</i>. If so, his sister from such a union would not be considered his sister. <b>Rav Pappa said: Betrothal comes into effect with</b> women who are forbidden, and one would be <b>liable</b> for violating <b>prohibitions</b> despite the fact that union with them is forbidden, and so she is called the wife of your father.
+
+### Part 2
+This is derived from the verse in <b>which it is written: “If a man has two wives, the one beloved, and the other hated”</b> (Deuteronomy 21:15). <b>Is there one</b> who is <b>loved by the Omnipresent and one</b> who is <b>hated by the Omnipresent? Rather, “beloved”</b> means <b>her marriage is beloved,</b> as it was permitted for her to be married, in accordance with <i>halakha</i>, and <b>“hated”</b> means <b>her marriage is hated</b> because it was not permitted for her to be married, according to <i>halakha</i>. <b>And the Merciful One states: “If</b> a man <b>has</b> two wives,” meaning that both are considered to be married.
+
+### Part 3
+The Gemara asks: <b>Say</b> that this verse comes to <b>exclude</b> a union between one’s father and a woman that is forbidden to him as they are <b>liable</b> to receive <b><i>karet</i>,</b> and that since betrothal does not come into effect with her there is no marriage bond. Perhaps a sister born of such a woman would not be prohibited as the daughter of one’s father’s wife. <b>Rava said</b> that <b>the verse states: “The nakedness of your sister, the daughter of your father, or the daughter of your mother, whether born at home or born outside”</b> (Leviticus 18:9). This includes all daughters, <b>whether</b> from a woman <b>for whom</b> the Sages <b>tell your father: Maintain</b> her within your home, or <b>whether</b> the Sages <b>tell your father</b> she is a woman who is forbidden to him and therefore: <b>Send her out</b> of your home. <b>And the Merciful One states</b> that nevertheless: <b>“She is your sister.”</b> Even the daughter of a woman who was forbidden to your father such that both parties are liable to receive <i>karet</i> is called your sister.
+
+### Part 4
+The Gemara asks: <b>Say that whether</b> the Sages <b>say</b> to your <b>father: Maintain</b> her, <b>or whether</b> they <b>say</b> to your father: <b>Send her out, and the Merciful One states</b> that <b>“she is your sister,”</b> this comes <b>to include</b> the additional cases of <b>his sister from</b> a Canaanite <b>maidservant or a gentile woman.</b> The Gemara rejects this: <b>The verse states: “The daughter of your father’s wife,”</b> and this means <b>whoever can enter a marriage bond with your father.</b> This <b>excludes his sister from</b> a Canaanite <b>maidservant or gentile woman,</b> with whom no marital bond is possible.
+
+### Part 5
+The Gemara asks: Since the verse rendering his sister forbidden both includes and excludes cases, <b>what did you see</b> as a reason to include a daughter from a woman who is forbidden and both parties are liable to receive <i>karet</i>, and to exclude the daughter of a Canaanite maidservant or gentile woman? The Gemara answers: <b>It stands to reason</b> that those relationships that are forbidden because they render both parties <b>liable</b> to receive <b><i>karet</i> should be included, since in general betrothal can come into effect with them.</b> This is because although this woman is forbidden to his father, she is nevertheless permitted to other men.
+
+### Part 6
+The Gemara rejects this: <b>On the contrary, it should include</b> a Canaanite <b>maidservant or a gentile woman, as, if she converts, betrothal can come into effect with</b> the father <b>himself.</b> The Gemara answers: <b>When she converts, she is</b> considered like <b>a different body,</b> i.e., a new person, but when she was a gentile there was no possibility of marital relations with her. Therefore, the verse excludes her.
+
+### Part 7
+The Gemara asks: <b>And</b> with regard to <b>the Rabbis,</b> who infer a different matter from the verse “your father’s wife’s nakedness,” <b>from where do they</b> derive the <i>halakha</i> <b>to exclude</b> one’s sister from a Canaanite <b>maidservant or gentile woman?</b> The Gemara answers: <b>They derive it</b> from that which was said with regard to a Canaanite maidservant who was married to a Hebrew slave: <b>“The wife and her children shall be her master’s”</b> (Exodus 21:4). From here they learn that the lineage of the maidservant’s children is connected only to their mother and not at all connected to their Jewish father.
+
+### Part 8
+The Gemara asks: <b>And</b> why does <b>Rabbi Yosei, son of Rabbi Yehuda,</b> not learn this from here? The Gemara responds: <b>One</b> verse was necessary to teach the case of a Canaanite <b>maidservant, and one</b> verse was necessary to teach the case of <b>a gentile woman. And</b> both verses <b>are necessary, as, if</b> the Torah <b>taught us</b> only about a Canaanite <b>maidservant,</b> one could say she is excluded only <b>because she does not have a pedigree,</b> since the Torah ascribes no family relationships to maidservants, <b>but</b> with regard to <b>a gentile woman who does have a pedigree, say no.</b> It was therefore necessary to say that one’s daughter by a gentile woman does not have the legal status of a daughter.
+
+### Part 9
+Conversely, <b>if it would teach us</b> only the case of <b>a gentile woman,</b> one might say that this is <b>because she does not have any connection with the mitzvot</b> and therefore her children are in no way Jewish. <b>But</b> since a Canaanite <b>maidservant</b> has a <b>connection with the mitzvot,</b> as she is obligated to observe the prohibitions in the same way as a Jewish woman, <b>say no,</b> i.e., her children should be considered children of their Jewish father. Therefore, this additional proof <b>is necessary.</b>
+
+### Part 10
+The Gemara asks: <b>And</b> according to the opinion of <b>the Rabbis, we found</b> a source that the children of a Canaanite <b>maidservant</b> are not considered the children of their Jewish father, but <b>from where</b> do we derive that children born to a Jewish father by <b>a gentile woman</b> are not considered his children? <b>And if you say: Let us derive</b> it <b>from</b> the case of the Canaanite <b>maidservant,</b> it has already been shown that <b>these are</b> both <b>necessary,</b> and one cannot be derived from the other.
+
+### Part 11
+The Gemara answers: <b>Rabbi Yoḥanan said in the name of Rabbi Shimon ben Yoḥai:</b> The <b>verse states:</b> “Neither shall you make marriages with them: Your daughter you shall not give unto his son, nor his daughter shall you take unto your son, <b>for he will turn away your son from following Me”</b> (Deuteronomy 7:3–4). This teaches that <b>your son</b> born <b>from a Jewish woman is called your son, but your son</b> born <b>from a gentile woman is not called your son, but her son.</b> The verse teaches that since the son of a gentile woman is her son alone, he is not considered related at all to his Jewish father.
+
+### Part 12
+<b>Ravina said: Conclude from here</b> that <b>the son of your daughter by a gentile</b> father <b>is</b> nevertheless <b>called your son,</b> i.e., grandson. The Gemara asks: <b>Shall we say that Ravina holds that</b> if <b>a gentile or slave engaged in intercourse with a Jewish woman, the offspring is</b> of <b>unflawed</b> lineage? The Gemara answers: There is no conclusive proof from here, because <b>granted, she is not a <i>mamzer</i>,</b> but nevertheless <b>she is still not</b> of <b>unflawed</b> lineage; rather, <b>she is called a Jew who is unfit</b> to marry into the priesthood.
+
+### Part 13
+The Gemara asks with regard to Rabbi Shimon’s reasoning: Was <b>this</b> verse not <b>written in</b> relation to <b>the seven nations</b> who inhabited the land of Canaan when Joshua entered Eretz Yisrael but not with regard to other nations? The Gemara responds that the words <b>“He will turn away” comes to include all those who would turn</b> one’s grandson <b>away</b> from God, i.e., any gentile.
+
+### Part 14
+The Gemara asks: <b>This works out well for Rabbi Shimon, who interprets the rationale</b> behind the mitzva <b>in the verse</b> and draws halakhic conclusions based on that interpretation. Although the verse is stated with regard to the seven nations, the reason for the verse applies to all other gentile nations. <b>However, according to the</b> opinion of <b>the Rabbis,</b> who do not draw inferences from the rationale of the verse to apply this ruling to all other nations, <b>from where</b> do they derive <b>this</b> <i>halakha</i>? The Gemara answers: <b>Who is the <i>tanna</i> who disagrees with Rabbi Yosei, son of Rabbi Yehuda? It is Rabbi Shimon,</b> who applies the rationale of the verse to all other nations.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+The mishna teaches: If <b>a hired laborer</b> requests payment <b>at</b> the proper <b>time</b> and the employer claims he already paid him, the laborer <b>takes an oath</b> that he did not receive his wages <b>and</b> then <b>receives</b> the wages from the employer. The Gemara asks: <b>Why</b> did <b>the Sages institute</b> for <b>a hired laborer,</b> who is the plaintiff, <b>to take an oath and receive</b> his wages, in opposition to the principle that in the case of a monetary dispute between two parties, the defendant takes an oath that he is not liable and thereby exempts himself from payment?
+
+### Part 2
+<b>Rav Yehuda says</b> that <b>Shmuel says: They taught great <i>halakhot</i> here.</b> The Gemara is puzzled by this choice of words: <b>Are these <i>halakhot</i>? They are ordinances</b> designed for the proper running of business transactions, not <i>halakhot</i> that apply to everyone at all times. The Gemara emends the above statement: <b>Rather, Rav Yehuda says</b> that <b>Shmuel says: They taught great ordinances here.</b> The Gemara is still unsatisfied with the terminology: Does the word <b>great</b> indicate <b>by inference that there are minor</b> ordinances? Which ordinances are considered of minor importance?
+
+### Part 3
+<b>Rather, Rav Naḥman says</b> that <b>Shmuel says: They taught fixed ordinances here</b> that are necessary for practical life. The reason is that taking the <b>oath is</b> actually the duty <b>of the employer, but the Sages transferred the oath of the employer and imposed it upon the hired laborer due to the livelihood of the hired laborer.</b> The laborer requires his wages to survive, and therefore if the employer is allowed to exempt himself by taking an oath, the laborer will be left with nothing. The Gemara asks: <b>And</b> simply <b>due to the livelihood of the hired laborer</b> should <b>we cause the employer</b> to <b>lose out?</b> If the employer is entitled to take an oath to exempt himself, why should he suffer due to the laborer’s needs?
+
+### Part 4
+The Gemara answers: It is <b>preferable for the employer himself that the hired laborer should take an oath and receive</b> his wages <b>so that laborers will hire themselves out to him</b> with the knowledge that their wages are secure. The Gemara asks: Why not argue the reverse, that it is <b>preferable for the hired laborer himself that the employer should take an oath and be exempt so that he should be hired?</b> If the terms of labor are too imposing, people will not hire laborers. The Gemara responds: The <b>employer must perforce</b> find a laborer to <b>hire.</b> The Gemara retorts: <b>A hired laborer, too, must perforce</b> allow himself to <b>be hired out.</b>
+
+### Part 5
+The Gemara now retracts the previous explanation: <b>Rather, the employer is preoccupied with</b> many <b>laborers,</b> and it is more likely that he forgot and mistakenly believed that he already paid this laborer’s wages. The Gemara asks: <b>If so,</b> i.e., if it is reasonable that the employer forgot, we <b>should give</b> the laborer his wages <b>without</b> him taking <b>an oath,</b> as there are grounds to presume that the employer erred. The Gemara responds: The laborer takes an oath <b>in order to alleviate the concerns of the employer,</b> as, if he is not required to take an oath, the employer will feel that he has been cheated.
+
+### Part 6
+The Gemara asks: <b>But</b> why not <b>have</b> the employer instead <b>give him</b> his wages <b>in</b> the presence of <b>witnesses</b> each time, which would remove any uncertainty? The Gemara answers: <b>The matter</b> would be <b>an inconvenience to them</b> both if they needed to find witnesses before each payment. The Gemara asks: <b>But</b> why not <b>have</b> the employer <b>give him</b> the wages <b>at the outset,</b> before he starts working, when he is less preoccupied? The Gemara answers: <b>Both of them want</b> the payment to be in the form <b>of credit,</b> i.e., that the wages not be paid in advance. The employer prefers this arrangement in case he has no ready cash at his disposal, while the laborer also prefers to be paid at the end of the day so that he does not lose his money in the meantime.
+
+### Part 7
+The Gemara asks: <b>If so,</b> then <b>even</b> if the dispute between them concerns <b>a fixed</b> amount of payment <b>as well,</b> the laborer should take an oath. <b>Why did we learn</b> in a <i>baraita</i>: If <b>the craftsman says: You fixed two</b> coins <b>for me</b> as my payment, <b>and the other,</b> i.e., the employer, <b>says: I fixed only one</b> coin <b>for you,</b> then <b>the burden of proof rests upon the claimant.</b> Why is it not assumed that the employer was preoccupied and forgot, as in the previous case? The Gemara answers: <b>The fixing</b> of wages is <b>certainly</b> an event that <b>people remember,</b> and there is no concern that the employer forgot how much he stipulated.
+
+### Part 8
+The Gemara asks: <b>If so,</b> i.e., if the concern exists that the employer might have forgotten, then <b>even</b> if <b>his time had passed</b> for claiming his wages, the laborer should be entitled to take an oath and claim his wages. <b>Why did we learn</b> in the mishna: If <b>the time had passed</b> he does <b>not take an oath and receive</b> the wages? The Gemara answers: The reason in that case is that <b>a presumption</b> exists that <b>an employer does not</b> generally <b>violate</b> the prohibition <b>of delaying</b> payment of wages.
+
+### Part 9
+The Gemara asks: <b>But didn’t you say</b> that <b>the employer is preoccupied with his laborers?</b> The Gemara answers: <b>This statement</b> applies only <b>before the time of his obligation</b> to pay <b>arrives,</b> as it is possible that his preoccupation with other matters caused him to forget whether he had already paid him,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

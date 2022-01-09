@@ -1,0 +1,51 @@
+
+### Part 1
+he can <b>collect the principal,</b> i.e., what he paid for the field, <b>from</b> the robber’s <b>liened property</b> that has been sold. <b>But</b> he can collect <b>the enhanced</b> value, i.e., the value of the improvements made to the field, only <b>from unsold property.</b> Why are both of these collected from the robber? <b>Because the owner of the field came and took</b> both <b>his land and its enhanced</b> value.
+
+### Part 2
+The Gemara clarifies: <b>What, is it not</b> speaking <b>of</b> a purchaser who is <b>an ignoramus, who does not know whether property can be stolen or cannot be stolen,</b> and when he purchased stolen land from the robber, he did so unintentionally, since he was under the mistaken impression that this land belonged to the robber who sold it? <b>And even so, the owner of the land can come and take the land and its enhanced</b> value. <b>And</b> if so, one may <b>learn from</b> the <i>baraita</i> that Rabbi Meir <b>penalizes even</b> one who acquires stolen items <b>unintentionally.</b> The Sages <b>say</b> in response: <b>No,</b> it is speaking <b>of a purchaser</b> who is <b>a Torah scholar, and he knew</b> that the robber had no right to sell this land. The purchaser is therefore penalized and is required to return the enhanced value of the land as well.
+
+### Part 3
+The Gemara again tries to determine the scope of the penalty: <b>Come</b> and <b>hear</b> what was taught in a mishna (100b): If one gave wool to a dyer <b>to dye it red for him and he dyed it black,</b> or to dye it <b>black and he dyed it red, Rabbi Meir says:</b> The dyer <b>gives</b> the owner of the wool the <b>value of his wool,</b> since the dyer violated the owner’s instructions. It can be inferred from the mishna: The <b>value of his wool, yes,</b> he must give; <b>but</b> the <b>value of his wool and its enhanced</b> value, i.e., the amount by which the value of the wool increased because it was dyed, <b>no,</b> he is not required to give.
+
+### Part 4
+<b>And if it enters your mind</b> to say that Rabbi Meir <b>penalizes</b> one who acquires a stolen item <b>unintentionally as well,</b> the dyer should be <b>required to return</b> the <b>value of his wool and its enhancement to him. Rather,</b> must one <b>not conclude from</b> the mishna that if it was done <b>intentionally,</b> Rabbi Meir <b>penalizes</b> the robber, but if it was done <b>unintentionally he does not penalize</b> him? The Gemara affirms: <b>Learn from</b> the mishna that this indeed is the reasoning of Rabbi Meir.
+
+### Part 5
+§ The Gemara continues its discussion of the <i>baraita</i>. <b>Rabbi Yehuda says: A stolen item is returned as is. Rabbi Shimon says:</b> The stolen item <b>is viewed as though it had been monetarily appraised</b> at the time of the robbery. The Gemara asks: <b>What is</b> the difference <b>between them,</b> since ostensibly they agree that the robber does not return the value of the enhancement to the robbery victim?
+
+### Part 6
+<b>Rav Zevid says: They disagree with regard to enhancement that is</b> still <b>upon the stolen item.</b> The disagreement concerns a case where the enhancement occurred while the stolen item was in the possession of the robber, and when he returned the item it was still enhanced. Therefore, he did not keep any of the enhancement. <b>Rabbi Yehuda holds</b> that the enhancement <b>belongs to the one who was robbed, and Rabbi Shimon holds that it belongs to the robber.</b>
+
+### Part 7
+<b>Rav Pappa said</b> that the disagreement between Rabbi Yehuda and Rabbi Shimon can be explained differently: <b>Everyone</b> agrees that the <b>enhancement that is</b> still <b>upon the stolen item belongs to the robber, and here they disagree</b> with regard to whether the robber can keep <b>one-half,</b> or <b>one-third, or one-fourth</b> of the value of the enhancement, and the remainder is kept by the owner of the animal. <b>Rabbi Yehuda holds</b> that the <b>enhancement that is</b> still <b>upon the stolen item belongs entirely to the robber, and Rabbi Shimon holds</b> that <b>the robber takes one-half,</b> or <b>one-third, or one-fourth</b> of the value of the enhancement. In other words, he is treated as a shepherd or rancher and receives the share of the enhancement that local custom dictates be paid to that type of laborer.
+
+### Part 8
+The Gemara cites a proof for Rav Zevid’s explanation: <b>We learned</b> in the mishna (93b): If one <b>robbed</b> another of <b>a cow, and it became pregnant in his</b> possession, <b>and it</b> then <b>gave birth;</b> or if one robbed another of <b>a ewe, and it became laden</b> with wool <b>in his</b> possession, <b>and he</b> then <b>sheared it,</b> the robber <b>pays according to</b> the value of the animal at <b>the time of the robbery.</b> The Gemara infers from the mishna: If the cow <b>gave birth, yes,</b> he pays the value of the animal at the time of the theft, but if the cow <b>did not give birth</b> and is still pregnant, it is <b>returned as is.</b>
+
+### Part 9
+<b>Granted, according to</b> the explanation of <b>Rav Zevid, who says</b> that <b>according to</b> the opinion of <b>Rabbi Yehuda, enhancement that is</b> still <b>upon the stolen item belongs to the one who was robbed,</b> in accordance with <b>whose</b> opinion <b>is this</b> mishna? <b>It is</b> in accordance with the opinion of <b>Rabbi Yehuda,</b> as the pregnant cow is returned as is. <b>But according to</b> the explanation of <b>Rav Pappa, who says</b> that everyone agrees that the enhancement <b>belongs to the robber,</b> in accordance with <b>whose</b> opinion <b>is this</b> mishna? It is <b>not</b> in accordance with the opinion of <b>Rabbi Yehuda, nor</b> is it in accordance with the opinion of <b>Rabbi Shimon,</b> as the robber does not retain any of the enhanced value.
+
+### Part 10
+The Gemara responds: <b>Rav Pappa</b> could have <b>said to you</b> that the inference is incorrect: <b>The same is true</b> that <b>even if it did not give birth,</b> the robber <b>pays according to</b> the value of the animal at <b>the time of the robbery,</b> and the enhanced value due to the pregnancy is returned to him. <b>And that which the mishna teaches: It</b> then <b>gave birth,</b> cannot serve as the basis for an inference pertaining to this discussion. <b>As</b> the <i>tanna</i> needs to <b>cite</b> that <b>it gave birth</b> in <b>the first clause</b> of the mishna, since in that case he acquires the animal due to the change in its condition, therefore <b>he cites</b> that <b>it gave birth</b> in <b>the latter clause as well,</b> but it need not have given birth. It cannot be inferred from this mishna that an animal that has not given birth is returned as is.
+
+### Part 11
+The Gemara notes: <b>It is taught</b> in a <i>baraita</i> <b>in accordance with</b> the explanation <b>of Rav Pappa.</b> The <i>baraita</i> states: <b>Rabbi Shimon says:</b> The stolen item <b>is viewed as though it had been monetarily appraised</b> at the time of the theft, <b>for</b> the purpose of keeping <b>one-half,</b> or <b>one-third, or one-fourth</b> of the value of the enhancement.
+
+### Part 12
+<b>Rav Ashi said: When we were</b> studying <b>in the study hall of Rav Kahana, we were asked</b> a question: <b>According</b> to the opinion of <b>Rabbi Shimon, who says that the robber takes one-half,</b> or <b>one-third, or one-fourth</b> of the value of the enhancement; <b>when we remove</b> the robber, taking the stolen animal from him and paying him a portion of the enhanced value, do <b>we remove him</b> by paying him his share <b>with money? Or, perhaps he takes</b> his portion <b>from the meat</b> of the animal.
+
+### Part 13
+<b>And we resolved the</b> dilemma <b>from that which Rav Naḥman says</b> that <b>Shmuel says:</b> In <b>three</b> cases, the court <b>appraises the enhanced</b> value <b>for</b> the parties involved in enhancing a field, <b>and they are paid in money</b> rather than by being given a portion of the property, <b>and these are they: A firstborn</b> son who makes payment <b>to a regular</b> son. This is a case where two sons, one firstborn and the other not, inherit a field from their father. Before it is divided, they both work and enhance the field. When the time comes to divide the field, the firstborn son, who receives a double portion, must pay his brother for the enhancement that the latter contributed to the former’s portion. This payment is given in money rather than land.
+
+### Part 14
+<b>And</b> the second case is that of <b>a creditor</b> who is obligated <b>to a purchaser,</b> i.e., a creditor who collects the debt from lands that were sold by the debtor. He pays money to the purchaser for the enhancements generated by the purchaser but does not pay him in land. <b>And</b> the third case is that of <b>a creditor</b> who is obligated <b>to orphans,</b> i.e., a creditor who collects land from the orphans of his debtor. He must pay them for any enhancements done by the orphans after their father’s death. This payment is also given in money rather than land.
+
+### Part 15
+The Gemara discusses Shmuel’s statement. <b>Ravina said to Rav Ashi: Did Shmuel</b> actually <b>say</b> that <b>a creditor gives the purchaser</b> any of the <b>enhanced</b> value at all? <b>But doesn’t Shmuel say: A creditor collects</b> all of <b>the enhanced</b> value? Rav Ashi <b>said to him:</b> This is <b>not difficult. Here,</b> where Shmuel stated that a creditor does not collect the enhanced value, it was <b>with regard to</b> a case where there was <b>enhancement that reaches shoulders [<i>shevaḥ hammaggia likhtefayim</i>],</b> i.e., the produce that grew due to the improvements made by the purchaser is fully grown and ripened and can now be harvested and carried upon one’s shoulders. <b>But there,</b> where Shmuel stated that a creditor does collect the enhanced value, it was <b>with regard to</b> a case where there was <b>enhancement that does not reach shoulders,</b> i.e., its growth is not complete.
+
+### Part 16
+Ravina <b>said to him: But</b> there were <b>daily incidents</b> of this type, <b>and Shmuel would collect</b> from purchasers <b>even enhancement that reached shoulders.</b> Rav Ashi <b>said to him: This</b> is <b>not difficult.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

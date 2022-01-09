@@ -1,0 +1,60 @@
+
+### Part 1
+Moses <b>said before Him: Master of the Universe, and isn’t this</b> what <b>You said to me:</b> It is an attribute <b>even for the wicked? And that is</b> the meaning of that <b>which is written: “And now, I pray You, let the power of my Lord be great, as You have spoken, saying”</b> (Numbers 14:17). Moses was repeating God’s promise with regard to His employment of the attribute of slow to anger.
+
+### Part 2
+The Gemara relates: <b>Rabbi Ḥagga was walking up the stairs in the school of Rabba bar Sheila. He heard a certain child who said: “Your testimonies are very sure; sanctity becomes Your house, Lord, for the length of days”</b> (Psalms 93:5). The phrase “length of days” is a reference to the attribute of slow to anger. <b>And juxtaposed to it</b> is the phrase: <b>“A prayer of Moses”</b> (Psalms 90:1), indicating that this chapter was also stated by Moses our teacher. Upon hearing those verses, Rabbi Ḥagga <b>said: Conclude from it</b> that it was the attribute of <b>slow to anger</b> that Moses <b>saw.</b>
+
+### Part 3
+§ <b>Rabbi Elazar says</b> that <b>Rabbi Ḥanina says: The Holy One, Blessed be He, is destined to be a crown on the head of each and every righteous</b> person, <b>as it is stated: “In that day shall the Lord of hosts be for a crown of glory, and for a diadem of beauty, unto the remnant of His people”</b> (Isaiah 28:5). <b>What is</b> the meaning of the phrase: <b>“For a crown of glory, and for a diadem of beauty”?</b> It means: A crown <b>for those who perform His will and</b> a diadem <b>for those who await His salvation.</b> One <b>might</b> have thought that this extends <b>to everyone</b> in those categories. Therefore, <b>the verse states: “Unto the remnant of His people,”</b> meaning that God will be a crown and a diadem <b>to one who</b> humbly <b>establishes himself like a remnant,</b> and does not conduct himself with self-importance.
+
+### Part 4
+The Gemara interprets a verse in Isaiah. <b>“And for a spirit of justice to him that sits in judgment and for strength to them who retaliate in battle to the gate”</b> (Isaiah 28:6). <b>“And for a spirit of justice”; this</b> is referring to <b>one who subdues his</b> evil <b>inclination</b> and prevents himself from sinning. <b>“To him that sits in judgment”; this</b> is referring to <b>one who judges a true judgment truthfully. “And for strength”; this</b> is referring to <b>one who overcomes his</b> evil <b>inclination. “Them who retaliate in battle”; this</b> is referring to one <b>who gives and takes</b> and engages <b>in the battle,</b> i.e., in the discourse <b>of Torah. “To the gate”</b> is referring to <b>those</b> Torah scholars <b>who arrive early and remain late within</b> the gates of <b>synagogues and study halls.</b>
+
+### Part 5
+<b>The attribute of justice said before the Holy One, Blessed be He: Master of the Universe, how do these</b> people, who possess these qualities, <b>differ from those</b> who engage in Torah study but lack these qualities? God <b>said to</b> the attribute of justice that those others do not receive the crown and diadem because: <b>“These also reel through wine, and stagger through strong drink…they stumble [<i>paku</i>] in judgment [<i>peliliyya</i>]”</b> (Isaiah 28:7). <b>And <i>puka</i></b> in this context is referring to <b>nothing other than Gehenna, as it is stated: “That this shall not be a cause of stumbling [<i>puka</i>] for you”</b> (I Samuel 25:31). <b>And</b> the term of <b><i>pelila</i></b> in the verse in Isaiah is referring to <b>nothing other than judges, as it is stated: “And he shall pay as the judges [<i>biflilim</i>] determine”</b> (Exodus 21:22). Those who lack the qualities listed in the previous verses are not worthy of the aforementioned reward.
+
+### Part 6
+<strong>MISHNA:</strong> <b>The residents of an idolatrous city have no share in the World-to-Come, as it is stated: “Certain men, wicked persons, are gone out from your midst, and have subverted the inhabitants of their city, saying:</b> Let us go and let us worship other gods” (Deuteronomy 13:14). <b>And</b> idol worshippers <b>are not executed</b> as residents of an idolatrous city <b>unless its subverters are from that city and from that tribe, and unless most of</b> the inhabitants of the city <b>are subverted, and unless men subvert</b> the inhabitants of the city. If it occurs that <b>women or children subvert</b> the inhabitants of the city, <b>or that a minority of</b> the inhabitants of the city <b>were subverted, or that its subverters were from outside</b> the city and were neither residents of that city nor members of that tribe, <b>these</b> idol worshippers <b>are</b> judged <b>as individuals. And</b> to judge the inhabitants of a city <b>one requires two witnesses and forewarning for each and every one</b> who engaged in idol worship.
+
+### Part 7
+<b>This is a stringency with regard to individuals</b> who worship idols that is more stringent <b>than</b> the <i>halakha</i> <b>with regard to multitudes</b> who worship idols: <b>As the individuals</b> who worship idols are executed <b>by stoning; therefore,</b> since there is a stringency with regard to their mode of execution, <b>their property is spared</b> and is inherited by their heirs. <b>And the multitudes</b> are executed <b>by the sword;</b> therefore, since there is a leniency with regard to their mode of execution, <b>their property is eliminated.</b>
+
+### Part 8
+From the verse: <b>“You shall smite the inhabitants of that city with the edge of the sword”</b> (Deuteronomy 13:16), it is derived that <b>the caravan of donkeys and the caravan of camels that move from place to place, these</b> donkey or camel drivers <b>save</b> the city. If they were residing in the city for a period, they could join the minority of permanent residents who were not subverted to idol worship in order to create a majority and prevent the destruction of the city and its contents.
+
+### Part 9
+<b>It is stated: “Destroy it utterly, and all that is in it and its animals, with the edge of the sword”</b> (Deuteronomy 13:16). <b>From here,</b> the Sages <b>stated: The property of the righteous,</b> who did not engage in idol worship, <b>that is inside</b> the city <b>is destroyed</b> with the rest of the city and its contents; but the property of the righteous <b>that is outside</b> the city <b>is spared. And</b> the property <b>of the wicked, whether</b> it is <b>inside</b> the city <b>or whether it is outside</b> the city, <b>these</b> items <b>are destroyed.</b>
+
+### Part 10
+<b>It is stated: “And you shall gather all of its spoils into the midst of its square”</b> (Deuteronomy 13:17). <b>If</b> the city <b>has no square, one creates a square for</b> the city in order to fulfill the mitzva as it is written. <b>If there was a square outside of</b> the city, <b>they bring it inside</b> the city by expanding the city wall to include the square.
+
+### Part 11
+<b>It is stated</b> in the continuation of the verse: <b>“And you shall burn it with fire, both the city and all its spoils, entirely for the Lord your God.”</b> The mishna infers: <b>“Its spoils,” but not the spoils of Heaven. From here</b> the Sages <b>stated: The consecrated</b> property <b>in it,</b> which was no longer the property of its inhabitants, <b>must be redeemed, and <i>terumot</i></b> are neither eaten nor burned; rather <b>they must</b> be left to <b>decay.</b> And <b>second tithe and sacred scrolls</b> that were in the city <b>must be interred.</b>
+
+### Part 12
+With regard to the phrase: <b>“Entirely [<i>kalil</i>] for the Lord your God,” Rabbi Shimon says: The Holy One, Blessed be He, says: If you implement judgment on an idolatrous city, I ascribe you</b> credit <b>as though you have sacrificed an entirely [<i>kalil</i>] burnt offering before Me.</b>
+
+### Part 13
+It is written: <b>“And it shall be a heap forever”</b> (Deuteronomy 13:17), meaning: The idolatrous city <b>shall not be converted</b> even into <b>gardens and orchards;</b> this is <b>the statement of Rabbi Yosei HaGelili. Rabbi Akiva says:</b> From the end of that verse: <b>“It shall not be built again,”</b> it is derived: To restore it <b>to the way it was</b> before destruction, <b>it</b> may <b>not</b> be <b>built; but it may be converted into gardens and orchards.</b> The next verse states: <b>“And there shall cleave nothing of that which was devoted to your hand”</b> (Deuteronomy 13:18). This teaches that <b>as long as the wicked</b> exist <b>in the world,</b> there is <b>wrath in the world;</b> once <b>the wicked are eliminated from the world, wrath leaves the world.</b>
+
+### Part 14
+<strong>GEMARA:</strong> <b>The Sages taught</b> an interpretation of the verse: “Certain men, wicked persons, are gone out from your midst, and have subverted the inhabitants of their city saying: Let us go and let us worship other gods that you have not known” (Deuteronomy 13:14). From the term <b>“are gone out”</b> it is derived that these <i>halakhot</i> apply only if <b>they,</b> the subverters themselves, subverted the residents, <b>but not agents</b> whom they designated to subvert. From the term <b>“men”</b> it is derived that <b>men</b> in the plural means <b>no less than two. Alternatively,</b> it is derived: <b>Men, but not women; men, but not children.</b>
+
+### Part 15
+The phrase <b>“wicked persons [<i>benei veliyya’al</i>]”</b> is an abbreviation of <i>banim beli ol</i>, meaning: <b>Sons who have cast off the yoke of Heaven from their necks.</b> From the term <b>“from your midst”</b> it is derived that these <i>halakhot</i> apply only to a city located in the center of the country, <b>but not</b> to a city located <b>on the border.</b> From the phrase <b>“inhabitants of their city”</b> it is inferred: <b>But not inhabitants of another city.</b> The term <b>“saying”</b> alludes to the <i>halakha</i> <b>that</b> in order to convict them <b>one requires witnesses and forewarning for each and every one</b> who worshipped idols.
+
+### Part 16
+<b>It was stated</b> that there is an amoraic dispute. <b>Rabbi Yoḥanan says: One divides one city into</b> the tribal territory of <b>two tribes; and Reish Lakish says: One does not divide one city into</b> the tribal territory of <b>two tribes. Rabbi Yoḥanan raised an objection to</b> the opinion of <b>Reish Lakish</b> from the mishna, which states: <b>Unless its subverters are from that city and from that tribe; what, is it not that although its subverters are from that city, if they are from that tribe, yes,</b> they render the city an idolatrous city, and <b>if not, no,</b> they do not render the city an idolatrous city? <b>Conclude from it: One divides one city into</b> the tribal territory of <b>two tribes,</b> as otherwise, by definition, a resident of that city is a member of that tribe.
+
+### Part 17
+The Gemara rejects that proof: <b>No,</b> even if a city is not divided between two tribes, the scenario in the mishna is possible in a case <b>where</b> the property in the city <b>fell to him as an inheritance</b> from the family of his mother, who was from a different tribe. <b>Alternatively,</b> it is possible in a case <b>where they gave him</b> that property <b>as a gift.</b>
+
+### Part 18
+Rabbi Yoḥanan <b>raised an objection to</b> the opinion of Reish Lakish from a verse written with regard to the cities designated for the Levites: <b>“Nine cities from those two tribes”</b> (Joshua 21:16). <b>What, is it not</b> that those nine cities were equally divided; <b>four-and-a-half from this</b> tribe, <b>and four-and-a-half from that</b> tribe, <b>and conclude from it</b> that <b>one divides one city into</b> the tribal territory of <b>two tribes?</b> The Gemara rejects that proof: <b>No,</b> those nine cities were divided in this manner: <b>Four</b> cities <b>from this</b> tribe <b>and five</b> cities <b>from that</b> tribe.
+
+### Part 19
+The Gemara asks: <b>If so, let</b> the verse <b>state explicitly</b> from which tribe the additional city was taken.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

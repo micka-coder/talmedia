@@ -1,0 +1,51 @@
+
+### Part 1
+<b>from where</b> is it derived that the meat of a mother animal may not <b>itself</b> be cooked <b>in its</b> own <b>milk? Say an <i>a fortiori</i></b> inference: <b>Just as</b> with regard to an issue <b>where</b> the <b>fruit is not prohibited with</b> the <b>fruit,</b> i.e., <b>slaughter,</b> as it is permitted to slaughter two offspring of one mother on one day, the <b>fruit is</b> nevertheless <b>prohibited for slaughter with the mother, is it not right that</b> with regard to an issue <b>where</b> the <b>fruit is prohibited with</b> the <b>fruit,</b> i.e., <b>cooking,</b> as it is prohibited to cook a mother’s offspring with its milk, the <b>fruit,</b> i.e., the milk, <b>should be prohibited for cooking with the mother?</b> Therefore, <b>the verse states: “In its mother’s milk,”</b> to prohibit the cooking of the meat of the mother in its own milk.
+
+### Part 2
+The Gemara asks: <b>Why do I</b> need <b>a verse? It was</b> just <b>derived</b> <i>a fortiori</i>. <b>Rav Aḥadvoi bar Ami said:</b> The verse is necessary <b>because one can say</b> that the case of <b>a horse born of</b> both a stallion and <b>mare</b> but which is <b>the brother of a mule,</b> i.e., its mother also bore a mule after being impregnated by a donkey, <b>proves</b> this <i>a fortiori</i> inference invalid. <b>As</b> here the <b>fruit is prohibited with</b> the <b>fruit, but</b> the <b>fruit is permitted with the mother.</b> One may not mate a horse with a mule, but one may mate a horse with its mother.
+
+### Part 3
+The Gemara rejects this: <b>There it is the seed of the father that effects</b> the prohibition of mating the mule with the daughter horse. The two may not be paired for reasons unrelated to their status as offspring of one mother. This ruling therefore proves nothing about the hypothesis that if two fruit cannot be paired, one can learn by <i>a fortiori</i> inference that the fruit cannot be paired with the mother.
+
+### Part 4
+And this explanation must be true, <b>as</b> the case of <b>a mule born of</b> a donkey and <b>a mare</b> and which is <b>the brother of a female mule proves. As</b> here one <b>fruit is permitted with</b> the other <b>fruit,</b> i.e., one may mate the male and female mules since they are of the same species, <b>and</b> yet the <b>fruit is prohibited</b> to be mated <b>with the mother,</b> i.e., the mare. This case illustrates that the prohibition of crossbreeding is contingent on paternity, and does not rest solely on the relation between the mother and the fruit.
+
+### Part 5
+<b>Rather, Mar, son of Ravina, said:</b> The <i>a fortiori</i> inference is invalid <b>because one can say that</b> the case of a male Canaanite <b>slave born of a female slave</b> and who is <b>the brother of a female freed</b> slave <b>proves</b> it invalid. <b>As</b> here the <b>fruit is prohibited with</b> the <b>fruit,</b> i.e., the slave may not engage in sexual intercourse with his freed sister, <b>and</b> yet the <b>fruit is permitted with</b> his slave <b>mother.</b>
+
+### Part 6
+The Gemara rejects this as well: <b>There it is the bill of manumission that effects</b> the prohibition. The slave is prohibited to his sister only because she has been freed, not because they are both fruit of one mother, <b>as</b> the case of a male <b>slave, son of a female freed</b> slave, and <b>the brother of a female slave proves. As</b> here the <b>fruit is permitted with</b> the <b>fruit,</b> i.e., he is permitted to his sister, since they are both slaves, <b>and</b> yet the <b>fruit is prohibited with</b> his released <b>mother,</b> as she is now considered a full-fledged Jew. Clearly the prohibition is entirely contingent on the emancipation of one of the slaves, irrespective of their relationship.
+
+### Part 7
+<b>Rather, Rav Idi bar Avin said:</b> The <i>a fortiori</i> inference is invalid <b>because one can say</b> that the case of <b>diverse kinds of seeds proves</b> it invalid. <b>As</b> it <b>is prohibited</b> to sow <b>fruit</b> of one species <b>with fruit</b> of another species, <b>and</b> yet it is <b>permitted</b> to sow all types of <b>fruit with the mother,</b> i.e., the ground, from which all fruit grows. The Gemara rejects this as well: <b>Isn’t fruit</b> of one species <b>with fruit</b> of another species <b>prohibited only by means of the mother,</b> i.e., the ground? The prohibition of sowing diverse seeds applies only when they are both sown in the ground, <b>as wheat and barley</b> can be placed <b>in</b> a single <b>jug and they are not prohibited.</b>
+
+### Part 8
+<b>Rather, Rav Ashi said:</b> The <i>a fortiori</i> inference is invalid <b>because one can say: What</b> is unique <b>about fruit with fruit,</b> e.g., the kid and its mother’s milk, which are prohibited for cooking together? They are unique <b>in that</b> they are <b>two</b> separate <b>bodies</b> that were never unified. Must <b>you say</b> the same prohibition of pairing applies <b>to</b> the <b>fruit with the mother,</b> i.e., the mother’s meat and its milk, <b>which</b> were once <b>one body? Due to this</b> reason, <b>the</b> extra <b>verse</b> stating: “In its mother’s milk,” <b>was necessary</b> to include the meat and milk of the same animal in the prohibition.
+
+### Part 9
+§ <b>Rav Ashi says: From where</b> is it derived <b>that meat</b> cooked <b>in milk is prohibited for consumption,</b> even though the verse explicitly prohibits only cooking? It is derived from a verse, <b>as it is stated</b> elsewhere: <b>“You shall not eat any abominable thing”</b> (Deuteronomy 14:3). This verse teaches that with regard to <b>any</b> practice <b>that I have made abominable,</b> i.e., forbidden, <b>to you,</b> the product <b>is prohibited for consumption.</b>
+
+### Part 10
+<b>And I have</b> derived <b>only</b> that meat cooked in milk is prohibited <b>with regard to consumption; from where</b> do I derive that it is also prohibited <b>with regard to benefit?</b> It is derived <b>in accordance with</b> the statement <b>of Rabbi Abbahu, as Rabbi Abbahu says</b> that <b>Rabbi Elazar says: Wherever it is stated, “He shall not eat,”</b> or <b>“you,”</b> in the singular, <b>“shall not eat,”</b> or <b>“you,”</b> in the plural, <b>“shall not eat,” both a prohibition</b> against <b>eating and a prohibition</b> against deriving <b>benefit</b> are indicated. This is so <b>unless the verse specifies for you</b> that one may derive benefit, <b>in the manner that it specified for you with regard to an animal carcass,</b> from which the verse explicitly permits one to derive benefit, as it states: “You may sell it to a foreigner” (Deuteronomy 14:21). Accordingly, one may provide such meat <b>to</b> a gentile <b>resident alien</b> in Eretz Yisrael <b>by giving</b> it to him as a gift, <b>and to</b> any other <b>gentile by sale.</b>
+
+### Part 11
+<b>As it is taught</b> in a <i>baraita</i>: The verse states: <b>“You shall not eat of any unslaughtered animal carcass; you may give it to the resident alien who is within your gates, that he may eat it; or you may sell it to a foreigner;</b> for you are a sacred people to the Lord your God.” From this verse <b>I have</b> derived <b>only</b> that it is permitted to provide such meat <b>to a resident alien through giving and to a gentile through selling. From where</b> is it derived that it is permitted to transfer an unslaughtered animal <b>to a resident alien through selling</b> as well? <b>The verse states: “You may give it to the stranger…or you may sell it,”</b> indicating that one has the option to do either of these.
+
+### Part 12
+The <i>baraita</i> continues: <b>From where</b> is it derived that it is permitted <b>to a gentile through giving</b> as well? <b>The verse states: “You may give it</b>…<b>or you may sell it to a foreigner.”</b> Consequently, <b>one finds</b> that he may transfer an animal carcass to <b>both a resident alien and a gentile, both through selling or through giving.</b> This is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> These <b>matters are</b> to be understood <b>as they are written;</b> one may transfer an unslaughtered animal carcass <b>to a resident alien</b> only <b>through giving, and to a gentile</b> only <b>through selling.</b>
+
+### Part 13
+The Gemara asks: <b>What is the reason for</b> the opinion of <b>Rabbi Yehuda?</b> The Gemara responds: Rabbi Yehuda holds that <b>if it enters your mind</b> to understand the verse <b>in accordance</b> with that which <b>Rabbi Meir says,</b> then <b>let the Merciful One write: You shall not eat of any animal carcass, you may give it to the resident alien who is within your gates that he may eat it and</b> also <b>you may sell it</b> to a foreigner. <b>Why do I</b> need the word <b>“or”</b> between these two options? <b>Learn from it that it comes to</b> teach that the <b>matters are</b> to be understood <b>as they are written: To a resident alien through giving</b> alone, <b>and to</b> any other <b>gentile through selling.</b>
+
+### Part 14
+The Gemara asks: <b>And</b> how does <b>Rabbi Meir</b> explain the wording of the verse? The Gemara answers: Rabbi Meir could <b>say to you</b> that <b>this</b> word <b>“or”</b> teaches one <b>to prioritize to giving to a resident alien over selling to a gentile. And Rabbi Yehuda</b> holds that the <b>priority of giving to a resident alien over selling to a gentile does not require a verse,</b> as <b>it is</b> based on <b>logical reasoning: You are commanded</b> by the Torah <b>to sustain this</b> resident alien, <b>but you are not commanded to sustain that</b> gentile.
+
+### Part 15
+§ The Gemara provides <b>a mnemonic</b> device for the topics that will be discussed: <b>Shabbat; plows; and diverse kinds of seeds; a mother and its offspring; and sending</b> away of the mother bird from <b>the nest.</b>
+
+### Part 16
+Rav Ashi stated above that the product of any practice described in the Torah as abominable is prohibited for consumption. The Gemara asks: <b>If that is so,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

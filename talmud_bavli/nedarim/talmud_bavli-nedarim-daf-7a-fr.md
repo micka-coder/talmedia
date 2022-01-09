@@ -1,0 +1,33 @@
+
+### Partie 1
+Le verset stipule en ce qui concerne les offrandes : "Quand tu feras un voeu au Seigneur ton Dieu, tu ne tarderas pas a l'acquitter, car le Seigneur ton Dieu l'exigera surement de toi" (Deuteronome 23:22). En ce qui concerne le terme <b>"de toi"</b>, la <i>baraita</i> precise : <b>C'est</b> une reference aux <b>gemonies, aux gerbes oubliees</b>, <b>et <i>peâ</i>.</b>
+
+### Partie 2
+§ La Gemara demande : <b>Y a-t-il une intimation pour la charite ou n'y a-t-il pas d'intimation pour la charite ?</b> La Gemara clarifie la question : <b>Quelles sont les circonstances</b> d'un tel cas ? <b>Si on dit que</b> c'est un cas ou <b>on a dit : Ce dinar est pour la charite et ceci aussi, cela meme est</b> une declaration explicite de don a la <b>charite. Il s'agit plutot d'un cas <b>ou il a dit : Ceci, et n'a pas dit : Aussi. Quelle</b> est son intention ? Est-ce qu'il est compris comme <b>disant : Ceci est aussi la charite, ou peut-etre quel est le sens de : Et ceci ? </b> Il est <b>disant</b> que cette piece est <b>juste d'usage general, et il n'a pas complete sa declaration.</b>
+
+### Partie 3
+La Guemara explique les deux cotes de ce dilemme : <b>Disons-nous</b> que <b>puisque</b> la charite est <b>juxtaposee aux offrandes, comme il est ecrit</b> dans un verset qui suit l'interdiction de retarder une offrande : "Ce que tu as dit <b>de ta bouche"</b> (Deuteronome 23:24) et les Sages ont explique que <b>ceci est</b> une reference a la <b>charite,</b> donc, <b>tout comme il y a une intimation,</b> c'est-a-dire que l'intimation est effective, <b>en ce qui concerne les offrandes, de meme, il y a une intimation en ce qui concerne la charite ? Ou peut-etre</b> c'est seulement en ce qui concerne l'interdiction : <b>Tu ne tarderas pas, qu'elle est juxtaposee,</b> mais pas en ce qui concerne les autres <i>halakhot</i> ?
+
+### Partie 4
+La Guemara demande en outre : <b>Y a-t-il une intimation pour</b> rendre son bien <b>sans proprietaire, ou peut-etre n'y a-t-il pas d'intimation pour</b> rendre son bien <b>sans proprietaire.</b> Une expression incomplete employee par un proprietaire pour se dessaisir de son bien prend-elle effet ou non ? La Gemara note : <b>C'est</b> la meme chose que la question precedente concernant la <b>charite,</b> qui est comparable au fait de rendre son bien sans proprietaire au profit des pauvres.
+
+### Partie 5
+La Guemara repond : Cette question est <b>enoncee</b> dans le style de : <b>Si tu dis,</b> comme suit : <b>Si vous dites qu'il y a une intimation pour la charite, car il n'y a pas d'analogie partielle</b> basee sur la <b>juxtaposition, disons-nous</b> que rendre son bien <b>sans proprietaire est</b> la meme chose que la <b>charite ; ou peut-etre que la charite est differente, car la charite ne convient qu'aux pauvres, mais les biens sans proprietaire</b> conviennent a <b>la fois aux pauvres et aux riches,</b> et donc on ne peut pas deriver du <i>halakha</i> en ce qui concerne la charite.
+
+### Partie 6
+<b>Ravina a souleve</b> un autre <b>dilemme : Y a-t-il une intimation pour</b> designer un endroit comme <b>une salle de bain ou non ?</b> La Gemara demande : <b>Quelles sont les circonstances</b> du cas ? <b>Si nous disons que</b> c'est un cas ou <b>on a dit : Que cette structure soit une salle de bain et celle-ci</b> une <b>aussi, cette</b> seconde structure <b>est</b> certainement <b>aussi une salle de bain. Au contraire,</b> il s'agit d'un cas <b>ou il a dit : Et ceci, et il n'a pas dit : Aussi. Quelle</b> est son intention ? Est-ce que l'expression : <b>Et ceci, qu'il a dit,</b> est-elle comprise comme signifiant : <b>Et ceci</b> sera <b>aussi une salle de bain ? Ou peut-etre quel</b> est le sens de : <b>Et ceci ? Il dit</b> qu'il est designe <b>pour un usage general</b> plutot que comme une salle de bain.
+
+### Partie 7
+La Gemara commente : Peut-on en deduire <b>par inference qu'il est evident pour Ravina qu'il y a designation pour une salle de bain,</b> c'est-a-dire que si l'on designe explicitement un endroit comme salle de bain, il atteint ce statut avant meme d'etre utilise a cet effet, de sorte que l'on ne peut pas y apporter d'objets sacres ? <b>Ravina n'a-t-il pas souleve ce dilemme ? </b> Il a demande : Si l'on <b>designe</b> un endroit particulier <b>comme une salle de bain, quelle est</b> la <i>halakha</i> ? Si on le <b>designe comme un etablissement de bains, qu'est-ce que</b> le <i>halakha</i> ? En d'autres termes, <b>la designation est-elle effective</b> pour accorder a l'endroit un statut particulier, <b>ou la designation n'est-elle pas effective ?</b>
+
+### Partie 8
+La Guemara repond : <b>Ravina a souleve un dilemme a l'interieur d'un autre</b> dilemme : <b>La designation est-elle effective ou non effective ?</b> Et <b>si l'on dit qu'il y a designation,</b> c'est-a-dire que la designation est effective, <b>y a-t-il intimation ou non,</b> c'est-a-dire la designation par intimation est-elle effective ? La Guemara conclut : <b>Le dilemme reste</b> non resolu.
+
+### Partie 9
+§ Il a ete enseigne dans la mishna que si quelqu'un dit : <b>Je suis ostracise de toi,</b> Rabbi Akiva n'etait pas certain de la <i>halakha</i> mais etait enclin a statuer de maniere stricte a ce sujet. <b>Abaye dit : Rabbi Akiva concede en ce qui concerne la flagellation que l'on n'est pas flagelle</b> s'il viole un vœu qui a ete exprime de cette maniere. <b>Au cas ou,</b> si Rabbi Akiva soutenait qu'on est passible de flagellation, <b>laissons</b> la mishna <b>enseigner : Rabbi Akiva est rigoureux.</b> Le fait qu'il dise : Rabbi Akiva etait incertain mais etait enclin a statuer avec rigueur, indique que bien que Rabbi Akiva soutienne qu'on ne peut pas violer ce vœu, il concede qu'on n'est pas passible de flagellation si on viole le vœu.
+
+### Partie 10
+<b>Rav Pappa a dit : En ce qui</b> concerne un vœu que l'on a exprime avec la phrase : <b>Je suis eloigne [<i>nadeina</i>] de toi, tout le monde s'accorde a dire qu'il lui est interdit</b> de tirer profit de l'autre individu, car il s'agit la de l'intimation d'un vœu. S'il emploie l'expression : <b>Je suis excommunie [<i>meshamattena</i>] de toi tout le monde s'accorde</b> a dire qu'il est <b>permis</b> de tirer profit de l'autre personne, meme s'il a voulu s'eloigner de l'autre individu, car ce n'est pas la terminologie d'un vœu. <b>A propos de quoi sont-ils en desaccord ?</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

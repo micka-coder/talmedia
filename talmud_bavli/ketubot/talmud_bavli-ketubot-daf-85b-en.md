@@ -1,0 +1,33 @@
+
+### Part 1
+<b>of falsehood,</b> as it was written prior to the second loan, <b>we are not concerned.</b> So too here, the fact that the judges wrote the document before the event is not a matter of concern.
+
+### Part 2
+The Gemara examines cases involving disputes concerning the property of the deceased. There was <b>a certain man who deposited seven pearls [<i>marganita</i>] tied up in a sheet</b> in <b>the house of Rabbi Meyasha, son of the son of Rabbi Yehoshua ben Levi. Rabbi Meyasha passed away without instructing</b> the members of his household on his deathbed, and without explaining to whom the gems belonged. Rabbi Meyasha’s family and the depositor <b>came before Rabbi Ami</b> to discuss the ownership of the gems. <b>He said to them:</b> They belong to the claimant, <b>first</b> of all, <b>since I know about Rabbi Meyasha, son of the son of Rabbi Yehoshua ben Levi, that he is not wealthy</b> enough to be able to afford such gems. <b>And furthermore,</b> the depositor <b>has provided a distinguishing mark</b> that proves that he is the owner.
+
+### Part 3
+The Gemara comments: <b>And we said</b> that a distinguishing mark is effective <b>only</b> if the claimant <b>does not usually enter and exit there. But</b> if that person <b>usually enters and exits there,</b> one can <b>say</b> that <b>a different person</b> might have <b>deposited</b> the object, <b>and he</b> merely <b>saw</b> it there and was able to provide distinguishing marks.
+
+### Part 4
+The Gemara relates a similar incident: There was <b>a certain man who deposited a silver goblet</b> in <b>the house of</b> the Sage <b>Ḥasa. Ḥasa passed away without instructing</b> anything about the goblet. <b>They came before Rav Naḥman</b> to discuss the ownership of the goblet. <b>He said to them: I know about Ḥasa that he is not wealthy,</b> and this goblet would not have belonged to him. <b>And furthermore,</b> the depositor <b>has provided a distinguishing mark. And we said</b> so <b>only</b> if the claimant <b>does not usually enter and exit there. But</b> if that person <b>usually enters and exits there,</b> one can <b>say</b> that <b>a different person</b> might have <b>deposited</b> the object <b>and he</b> merely <b>saw</b> it there.
+
+### Part 5
+The Gemara relates another similar story: There was <b>a certain</b> man <b>who deposited silk [<i>metakesa</i>]</b> in <b>the house of Rav Dimi, brother of Rav Safra. Rav Dimi passed away without instructing</b> anything about the silk. <b>They came before Rabbi Abba</b> to discuss the ownership of the silk. He <b>said to them:</b> It belongs to the claimant, <b>first</b> of all, <b>since I know about Rav Dimi that he is not wealthy. And furthermore,</b> he <b>has provided a distinguishing mark. And we said</b> so <b>only</b> if he <b>does not usually enter and exit there. But</b> if that person <b>usually enters and exit there,</b> one can <b>say</b> that <b>a different person</b> might have <b>deposited</b> the object, <b>and he</b> merely <b>saw</b> it there.
+
+### Part 6
+The Gemara relates the story of <b>a certain</b> man <b>who said to</b> those present at his deathbed: <b>My property</b> should go <b>to Toviya.</b> He <b>passed away,</b> and <b>Toviya came</b> to claim his possessions. <b>Rabbi Yoḥanan said: Toviya has come,</b> and there is no need to be concerned that he might have meant a different Toviya.
+
+### Part 7
+The Gemara adds: If the deceased had <b>said:</b> My property should go to <b>Toviya, and Rav Toviya came</b> forward, it is assumed that this is not the person the deceased had in mind, for <b>he said:</b> My property should go <b>to Toviya. He did not say:</b> My property should go <b>to Rav Toviya. But if</b> Rav Toviya is <b>a person who is familiar with</b> the deceased, then it can be assumed that the deceased called him by his personal name and not by his title because <b>he was familiar with him.</b> If <b>two</b> men named <b>Toviya came</b> forward, and one of them was the deceased’s <b>neighbor</b> and the other <b>a Torah scholar</b> but not his neighbor, the <b>Torah scholar takes precedence.</b> Similarly, if one was <b>a relative and</b> the other <b>a Torah scholar, the Torah scholar takes precedence.</b>
+
+### Part 8
+<b>A dilemma was raised before</b> the Sages: If two men have the same name and one was <b>a neighbor and</b> the other one was <b>a relative, what</b> is the <i>halakha</i>? The Gemara answers: <b>Come</b> and <b>hear</b> the solution from the following verse: <b>“A close neighbor is better than a distant brother”</b> (Proverbs 27:10). If <b>they</b> were <b>both relatives, or both neighbors, or both scholars,</b> there is no systematic way of determining who is entitled to the property, and the decision is left to <b>the discretion of the judges.</b>
+
+### Part 9
+§ <b>Rava said to the son of Rav Ḥiyya bar Avin: Come,</b> and <b>I will tell you something excellent that your father would say</b> about <b>that which Shmuel said:</b> Shmuel said that in the case of <b>one who sells a promissory note to another, and</b> the seller <b>went back and forgave</b> the debtor his debt, <b>it is forgiven,</b> since the debtor essentially had a non-transferable obligation to the creditor alone, <b>and even</b> the creditor’s <b>heir can forgive</b> the debt. With regard to this <i>halakha</i>, Rav Ḥiyya bar Avin said: <b>Shmuel concedes with regard to</b> a woman who <b>brings in a promissory note</b> to the marriage <b>for her husband, and she went back and forgave</b> the debtor his debt, <b>that</b> the debt <b>is not forgiven.</b>Why not? <b>Because his hand is like her hand,</b> i.e., the husband shares equal rights to her property, and she cannot unilaterally forgive the debt.
+
+### Part 10
+The Gemara relates an incident: <b>A relative of Rav Naḥman sold her marriage contract for financial advantage.</b> In other words, she received a sum of money and in exchange agreed that if she were to be divorced and become entitled to her marriage contract, the money would belong to the purchaser of the rights to her marriage contract. <b>She was</b> subsequently <b>divorced</b> from her husband <b>and died,</b> leaving the right to her marriage contract to her daughter. The purchasers <b>came</b> and <b>claimed</b> the value of the marriage contract <b>from her daughter. Rav Naḥman said to</b> the people around him: Is there <b>no</b> one <b>who can give</b> the daughter <b>advice,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

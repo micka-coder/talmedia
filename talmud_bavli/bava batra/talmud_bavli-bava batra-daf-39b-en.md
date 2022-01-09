@@ -1,0 +1,24 @@
+
+### Part 1
+<b>is not subject to</b> the prohibition of <b>malicious speech,</b> as it is already public knowledge. The Gemara elaborates on the suggestion that the dispute hinges upon this point: <b>The one who says</b> that a protest can be lodged <b>in the presence of two</b> people <b>is not of</b> the opinion that the ruling is in accordance with the opinion <b>of Rabba bar Rav Huna</b> and holds that even if only two people hear of a matter it will become a matter of public knowledge. Therefore, it is sufficient to protest in the presence of two witnesses. <b>And the one who says</b> that a protest must be lodged <b>in the presence of three</b> people <b>is of</b> the opinion that the ruling is in accordance with the opinion <b>of Rabba bar Rav Huna.</b>
+
+### Part 2
+The Gemara rejects this suggestion: <b>No, everyone is of</b> the opinion that the ruling is in accordance with the opinion <b>of Rabba bar Rav Huna, and here they disagree with regard to this: The one who says</b> that a protest can be lodged <b>in the presence of two</b> people <b>holds</b> that <b>a protest that</b> is lodged <b>not in his presence is not</b> a valid <b>protest.</b> Therefore, two witnesses suffice, as they are needed to attest only to the fact that the owner protested. <b>And the one who says</b> that a protest must be lodged <b>in the presence of three</b> people <b>holds</b> that <b>a protest that</b> is lodged <b>not in his presence is</b> a valid <b>protest.</b> Since the protest can be lodged not in the possessor’s presence, three people are needed to ensure that word of the protest will reach him.
+
+### Part 3
+<b>If you wish, say</b> instead <b>that everyone</b> holds that <b>a protest that</b> is lodged <b>not in his presence is</b> a valid <b>protest, and here they disagree with regard to this: The one who says</b> that a protest can be lodged <b>in the presence of</b> only <b>two</b> people <b>holds</b> that <b>we require testimony,</b> and two are sufficient for testimony. <b>And the one who says</b> that a protest must be lodged <b>in the presence of three</b> people <b>holds</b> that <b>we require</b> that <b>the matter</b> of the protest be <b>revealed,</b> and for that purpose three people are needed.
+
+### Part 4
+§ The Gemara relates: <b>Giddel bar Minyumi had a protest to lodge</b> with regard to his property. He <b>found Rav Huna and Ḥiyya bar Rav and Rav Ḥilkiya bar Tuvi, who were sitting, and</b> he <b>protested before them. After a year,</b> he <b>came</b> to them <b>again to protest. They said to him: You do not need</b> to do so; <b>this is what Rav says: Once</b> the owner <b>protested</b> in the <b>first year, he no longer needs to protest. And there are</b> those <b>who say</b> that <b>Ḥiyya bar Rav said to him,</b> not in the name of Rav: <b>Once</b> the owner <b>protested</b> in the <b>first year,</b> he <b>no longer needs to protest.</b>
+
+### Part 5
+<b>Reish Lakish says in the name of bar Kappara: And</b> he <b>needs to protest at the end of each and every</b> period of <b>three</b> years, so that the possessor will not hold his property for three consecutive years uncontested. <b>Rabbi Yoḥanan expressed surprise at this</b> ruling of Reish Lakish and said: <b>But does a robber have</b> the ability to establish the <b>presumption</b> of ownership? Once the owner lodged one protest, he demonstrated that the possessor occupied his land unlawfully. Therefore, the possessor should never be able to establish the presumption of ownership. The Gemara clarifies: Does it <b>enter your mind</b> that the possessor is actually <b>a robber?</b> There is no evidence that he robbed, there is only a protest by the prior owner. <b>Rather,</b> emend his question as follows: Does one who is <b>akin to a robber have</b> the ability to establish the <b>presumption</b> of ownership?
+
+### Part 6
+<b>Rava says</b> that <b>the <i>halakha</i></b> is: The owner <b>needs to protest at the end of each and every</b> period of <b>three</b> years. <b>Bar Kappara teaches:</b> If the owner <b>protested, returned and protested,</b> and then <b>returned and protested, if,</b> when he <b>protested</b> the later times, his protest was <b>based on</b> the same claim as the <b>initial claim,</b> the possessor <b>has no presumptive ownership. But if</b> the later protests were <b>not</b> based on the same claim as the initial protest, the possessor <b>has presumptive ownership</b> since each time the owner advanced a new claim, he thereby nullified his earlier claims.
+
+### Part 7
+§ <b>Rava says</b> that <b>Rav Naḥman says: A protest</b> can be lodged <b>in the presence of two</b> witnesses,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

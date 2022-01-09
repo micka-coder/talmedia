@@ -1,0 +1,45 @@
+
+### Part 1
+<b>Consecration</b> of an item to the Temple, the advent of the prohibition of <b>leavened bread</b> taking effect upon a leavened food, <b>and</b> the <b>emancipation</b> of a slave <b>abrogate</b> any <b>lien</b> that exists upon them. Therefore, the emancipation of a slave resulting from the knocking out of his tooth or the blinding of his eye abrogates the lien that the husband has on the slave as usufruct property, leaving the woman as the solitary owner.
+
+### Part 2
+The Gemara questions this explanation: <b>Shall we say</b> that this statement <b>of Rava is</b> a dispute between <b><i>tanna’im</i>?</b> According to this explanation, the <i>baraita</i> that states that the slave is not emancipated when he is struck by the woman holds that the lien of the husband is not abrogated, which would run counter to the statement of Rava. The Gemara responds: <b>No;</b> it is the case <b>that everyone agrees with</b> the statement <b>of Rava</b> that a lien is abrogated, <b>and here</b> the reason why the <i>baraita</i> holds that the husband’s lien on the slave is not abrogated is that <b>the Sages strengthened the lien of a husband</b> on his wife’s property, and it is only this type of lien that is not abrogated by emancipation.
+
+### Part 3
+<b>And if you wish, say</b> instead <b>that everyone agrees</b> that <b>these <i>tanna’im</i></b> of the two <i>baraitot</i> <b>hold that there is no ordinance of Usha, and here, they disagree with regard to</b> the question whether <b>ownership of</b> the rights to use an item and to <b>its produce</b> is <b>like ownership of the item itself.</b> In this case, the husband enjoys the usage of the slave while the wife owns the slave himself. The <i>baraita</i> that rules that the slave is not emancipated when struck by the woman holds that the husband is also considered to be an owner, and the <i>baraita</i> that rules that the slave is emancipated when struck by the woman holds that the husband is not considered to be an owner.
+
+### Part 4
+<b>And</b> the dispute with regard to the question whether ownership of the rights to use an item and to its produce is like ownership of the item itself is <b>with regard to</b> the issue that is the subject of <b>the dispute between these <i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: In the case of <b>one who sells his</b> Canaanite <b>slave to another, and</b> he <b>contracted with him</b> that the sale is effected <b>on the condition that</b> the slave <b>will serve</b> the seller for <b>thirty days</b> before he is transferred to the purchaser, the outcome of this sale is that during those thirty days, the original master enjoys the usage of the slave and the purchaser is the owner of the slave.
+
+### Part 5
+As detailed in the Torah (Exodus 21:18–21), if one strikes another and the injury leads directly to the victim’s death, the one who struck him is liable to receive court-imposed capital punishment. This ruling does not apply in the case where a master strikes his Canaanite slave and the slave lingers with his injuries for more than a day or two and then dies, in which case the master is exempt from court-imposed capital punishment. The <i>baraita</i> addresses who is considered the owner of the slave with regard to this latter <i>halakha</i>. <b>Rabbi Meir says</b> that during those thirty days, only the <b>first</b> owner <b>is</b> included <b>in</b> the <b><i>halakha</i></b> of: <b>A day or two days.</b> Rabbi Meir holds that in this case, the first owner is included in this exemption, <b>because</b> the slave <b>is under his</b> authority, as he enjoys the usage of the slave, and <b>he holds</b> that <b>ownership of</b> the rights to use an item and to <b>its produce</b> is <b>like ownership of the item itself.</b> The status of the first owner as the owner also negates the possibility that the second owner would be regarded as the owner with regard to this <i>halakha</i>, and he would not be included in the exemption.
+
+### Part 6
+The <i>baraita</i> continues. <b>Rabbi Yehuda says</b> that only the <b>second</b> owner <b>is</b> included <b>in</b> the <b><i>halakha</i></b> of: <b>A day or two days, because</b> the slave <b>is his money,</b> i.e., property, but the first owner is not included in the <i>halakha</i> of: A day or two days, <b>as he holds</b> that <b>ownership of</b> the rights to use an item and to <b>its produce</b> is <b>not like ownership of the item itself.</b> Therefore, the first owner does not have the status of an owner with regard to this <i>halakha</i>.
+
+### Part 7
+The <i>baraita</i> continues. <b>Rabbi Yosei says</b> that <b>both of them are</b> included <b>in</b> the <b><i>halakha</i></b> of: <b>A day or two days. This</b> one, the first owner, is included <b>because</b> the slave <b>is under his</b> authority, <b>and that</b> one, the second owner, is included <b>because</b> the slave <b>is his money.</b> The Gemara explains the reasoning of Rabbi Yosei: <b>He is uncertain,</b> with regard to <b>ownership of</b> the rights to use an item and to <b>its produce, if</b> it is <b>like ownership of the item itself,</b> in which case only the first owner would be exempt, or <b>if</b> it is <b>not like ownership of the item itself,</b> in which case only the second owner would be exempt. <b>And</b> where there is an <b>uncertainty</b> in a case of <b>capital</b> law, the ruling is <b>to be lenient.</b> Therefore, neither of them would receive court-imposed capital punishment in this case.
+
+### Part 8
+The <i>baraita</i> continues. <b>Rabbi Eliezer says</b> that <b>both of them are not</b> included <b>in</b> the <b><i>halakha</i></b> of: <b>A day or two days,</b> and both would receive court-imposed capital punishment. <b>This</b> one, the second owner, would be liable to receive it <b>because</b> the slave <b>is not under his</b> authority, <b>and that</b> one, the first owner, would receive it <b>because</b> the slave <b>is not his money.</b> Rabbi Eliezer holds that one is required both to own the slave himself and enjoy the usage of the slave to be included in the exemption.
+
+### Part 9
+The Gemara notes that <b>Rava said: What is the reason</b> for the opinion <b>of Rabbi Eliezer?</b> The <b>verse states:</b> “Notwithstanding if he continue a day or two, he shall not be punished; <b>for he is his money”</b> (Exodus 21:21), and Rabbi Eliezer understands this to be referring to a slave that is <b>his money</b> alone, a slave <b>that is unique to him,</b> and therefore this exemption does not apply to one who does not have total ownership of the slave.
+
+### Part 10
+The Gemara asks: <b>In accordance with whose</b> opinion <b>is that which Ameimar says:</b> If there was <b>a man or a woman,</b> i.e., a husband or a wife, <b>who sold</b> the wife’s <b>usufruct property,</b> which is owned by the wife but used by the husband, <b>they did not accomplish anything,</b> as the sale does not take effect? <b>In accordance with whose</b> opinion is his statement? It is <b>in accordance with</b> the opinion of <b>Rabbi Eliezer,</b> who holds that one is considered to be an owner only if he both owns the item itself and enjoys the usage of that item.
+
+### Part 11
+The Gemara asks: <b>Who</b> is the <i>tanna</i> who <b>taught that which the Sages taught: One who is a half-slave half-freeman, and similarly, a slave belonging to two partners, are not emancipated</b> when injured by one of their owners <b>in</b> one of their <b>extremities that do not regenerate,</b> i.e., the twenty-four extremities whose injury by an owner emancipates a slave? <b>Rav Mordekhai said to Rav Ashi: This is what</b> the Sages <b>say in the name of Rava: It is</b> in accordance with the opinion of <b>Rabbi Eliezer.</b>
+
+### Part 12
+He explains: <b>Didn’t Rabbi Eliezer say</b> that the term <b>“his money”</b> indicates a slave <b>that is unique to him? Here too,</b> since the verse states with regard to the emancipation of a slave resulting from his master striking him: “And if a man smite the eye of <b>his slave”</b> (Exodus 21:26), this is referring to his slave <b>that is unique to him.</b> Therefore, this <i>halakha</i> of emancipation would not apply to a slave not fully owned by one master.
+
+### Part 13
+<strong>MISHNA:</strong> <b>One who strikes another</b> must <b>give him a <i>sela</i>. Rabbi Yehuda says in the name of Rabbi Yosei HaGelili</b> that he must give him <b>one hundred dinars.</b> If he <b>slapped</b> another on the cheek, he must <b>give him two hundred dinars.</b> If he slapped him on the cheek with <b>the back of his hand,</b> which is more degrading than a slap with the palm, he must <b>give him four hundred dinars.</b>
+
+### Part 14
+If <b>he pulled his ear,</b> or <b>pulled out his hair,</b> or <b>spat</b> at him <b>and his spittle reached him,</b> or if <b>he removed</b> the other’s <b>cloak from him,</b> or if <b>he uncovered the head of a woman in the marketplace,</b> in all of these cases, he must <b>give</b> the injured party <b>four hundred dinars.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

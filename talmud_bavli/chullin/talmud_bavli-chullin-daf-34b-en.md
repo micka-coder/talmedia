@@ -1,0 +1,33 @@
+
+### Part 1
+<b>is impurity vis-à-vis sacrificial</b> food. The Sages issued a decree that even one who is vigilant to partake of his <i>teruma</i> in a state of ritual purity is considered impure vis-à-vis one partaking of sacrificial food. Therefore, one who ate a food item that was prepared on the level of purity of <i>teruma</i> that had become impure with third-degree impurity assumes second-degree impurity, and he renders sacrificial food impure.
+
+### Part 2
+<b>Rabbi Zeira says</b> that <b>Rabbi Asi says</b> that <b>Rabbi Yoḥanan says</b> that <b>Rabbi Yannai says:</b> With regard to <b>one who eats non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of sacrificial</b> food, and these items had become impure with <b>third-degree</b> impurity, <b>his body becomes</b> impure with <b>second-degree</b> impurity <b>vis-à-vis sacrificial</b> food. He renders sacrificial food with which he comes into contact impure with third-degree impurity, and that food in turn disqualifies sacrificial food with which it comes into contact.
+
+### Part 3
+<b>Rabbi Zeira raised an objection to</b> the statement of <b>Rabbi Asi</b> from the statement of Rabbi Yehoshua: One who eats food with <b>third-degree</b> impurity assumes <b>second-degree</b> impurity <b>vis-à-vis sacrificial</b> food <b>but</b> does <b>not</b> assume <b>second-degree</b> impurity <b>vis-à-vis <i>teruma</i>.</b> This is stated <b>in</b> the case of <b>non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of <i>teruma</i>.</b> The Gemara infers: <b>Yes,</b> one is able to prepare items <b>on the</b> level of <b>purity of <i>teruma</i>,</b> but one is <b>not</b> able to prepare items <b>on the</b> level of <b>purity of sacrificial</b> food, as in the latter case the non-sacred food does not become impure at all.
+
+### Part 4
+Rabbi Asi <b>said to</b> Rabbi Zeira: That inference is incorrect, as Rabbi Yehoshua <b>is speaking</b> utilizing the style of: <b>It is not necessary.</b> It is not necessary to say that in the case of non-sacred food items that were prepared on the level of purity of sacrificial food, which is stringent, they have the capacity of assuming third-degree impurity. Rabbi Yehoshua teaches that non-sacred food items that were prepared on the level of purity of <i>teruma</i> also have the capacity of assuming third-degree impurity.
+
+### Part 5
+The Gemara objects: <b>But didn’t</b> Rabbi Yehoshua <b>say</b> to Rabbi Eliezer according to the explanation that Rabba bar bar Ḥana said that Rabbi Yoḥanan said: <b>I too stated</b> this <b>only with regard to</b> non-sacred food items that were prepared on the level of purity of <b><i>teruma</i>,</b> indicating that he was not referring to non-sacred food items that were prepared on the level of purity of sacrificial food. The Gemara explains: Rabba bar bar Ḥana and Rabbi Asi <b>are <i>amora’im</i>, and</b> disagree <b>with regard to</b> the opinion <b>of Rabbi Yoḥanan,</b> and they disagree about whether the statement of Rabbi Yehoshua was stated specifically with regard to non-sacred food items that were prepared on the level of purity of <i>teruma</i>, or whether it includes even those prepared on the level of purity of sacrificial food.
+
+### Part 6
+§ <b>Ulla says: One who eats non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of <i>teruma</i></b> and that are impure with <b>third-degree</b> impurity, <b>his body is disqualified from</b> the right <b>to partake of <i>teruma</i>.</b>
+
+### Part 7
+The Gemara asks: <b>What is</b> Ulla <b>teaching us? We</b> already <b>learn</b> in the mishna cited earlier (33b) from tractate <i>Teharot</i>: One who eats food with <b>third-degree</b> impurity assumes <b>second-degree</b> impurity <b>vis-à-vis sacrificial</b> food, <b>but</b> does <b>not</b> assume <b>second-degree</b> impurity <b>vis-à-vis <i>teruma</i>.</b> This is stated <b>in</b> the case of <b>non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of <i>teruma</i>.</b> The Gemara infers: It is <b>second-degree</b> impurity <b>that he does not assume, but third-degree</b> impurity <b>he assumes,</b> and he is therefore disqualified from partaking of <i>teruma</i>.
+
+### Part 8
+The Gemara answers: It was necessary for Ulla to teach this <i>halakha</i>, <b>as if</b> it was learned <b>from that</b> mishna, <b>I would say</b> that vis-à-vis <i>teruma</i> <b>he assumes neither second-degree nor third-degree</b> impurity, as there is no reason to deem the status of one who eats like that of the food that he ate. <b>And</b> perhaps it was only <b>since</b> Rabbi Yehoshua <b>said</b> that he assumes <b>second-degree</b> impurity <b>vis-à-vis sacrificial</b> food that he <b>also said</b> that he does <b>not</b> assume <b>second-degree</b> impurity <b>vis-à-vis <i>teruma</i>.</b> Therefore, Ulla <b>teaches us</b> that he assumes third-degree impurity and is disqualified from partaking of <i>teruma</i>.
+
+### Part 9
+<b>Rav Hamnuna raised an objection to</b> the statement of <b>Ulla</b> from a mishna (<i>Teharot</i> 2:3): <b>Non-sacred</b> food that is impure with <b>first-degree</b> impurity is <b>impure and renders</b> <i>teruma</i> <b>impure</b> in the sense that this <i>teruma</i> disqualifies other <i>teruma</i> with which it comes into contact. Non-sacred food that is impure with <b>second-degree</b> impurity <b>disqualifies</b> <i>teruma</i>, <b>but</b> it does <b>not</b> render <i>teruma</i> <b>impure,</b> meaning that it renders the <i>teruma</i> itself impure, but not to the extent that the <i>teruma</i> can render other <i>teruma</i> impure. <b>And</b> food that is impure with <b>third-degree</b> impurity may be <b>eaten</b> by a priest <b>in a stew</b> that is <b>a mixture</b> containing spices of <i>teruma</i>.
+
+### Part 10
+<b>And if you say</b> that by partaking of food that is impure with third-degree impurity <b>his body is disqualified from</b> the right <b>to partake of <i>teruma</i>,</b> do <b>we feed him a matter that invalidates his body</b> from the right to partake of <i>teruma</i>? According to this, when eating the stew that contains food that is impure with third-degree impurity, he is disqualified from partaking of the spices of <i>teruma</i> that the mishna permits him to add to the stew. Ulla <b>said to him: Leave</b> the matter of <b>stew</b> that is <b>a mixture</b> containing spices of <i>teruma</i>,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

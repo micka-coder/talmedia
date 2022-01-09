@@ -1,0 +1,60 @@
+
+### Part 1
+Immediately upon Rav Asi’s death, <b>Sheila</b> bar Avina <b>went</b> and <b>said to his wife: Prepare for me provisions [<i>zevadata</i>],</b> i.e., shrouds for my burial, as I will soon die. This is in order <b>that</b> Rav Asi <b>will not go and tell Rav matters</b> of criticism <b>about me,</b> that I did not listen to Rav Asi and that I caused his death because I took offense when he excommunicated me. His wife <b>prepared for him</b> the <b>provisions,</b> and <b>Sheila passed away.</b> The biers of Rav Asi and Sheila bar Avina were brought together for burial. Those accompanying the dead <b>saw that</b> the <b>myrtle</b> that was customarily placed on a bier was <b>flying from this bier to that bier. They said: Conclude from it</b> that <b>the Sages,</b> i.e., Rav Asi and Sheila bar Avina, <b>have made peace</b> with one another.
+
+### Part 2
+§ The mishna teaches that a woman who experiences an emission of blood due to labor pains is not rendered a <i>zava</i> if she sees the blood in days when she can become a <i>zava</i>, but rather a menstruating woman if she sees the blood on days during which she can be a menstruating woman. In this regard <b>Rava raises a dilemma:</b> In general, if a <i>zava</i> experiences an emission of blood while counting seven clean days, her count is negated and she must begin a new count of seven clean days. But <b>what is</b> the <i>halakha</i> with regard to a <i>zava</i> who experienced an emission of blood due to labor <b>pains?</b> Does this emission <b>negate</b> her count <b>with regard to <i>ziva</i>?</b>
+
+### Part 3
+Rava elaborates: Does every <b>substance that imparts impurity negate</b> the count of seven clean days? If so, as <b>this</b> emission <b>imparts impurity like</b> blood of <b>the days of menstruation,</b> it negates her count as well. <b>Or perhaps</b> only <b>a substance that causes</b> a woman to become a <i>zava</i> <b>negates</b> her count, <b>and</b> as <b>this</b> blood <b>is not</b> a substance that <b>causes</b> her to become a <i>zava</i> it does not negate her count.
+
+### Part 4
+<b>Abaye said to</b> Rava: The case of an emission <b>of <i>ziva</i></b> due to <b>circumstances beyond</b> one’s <b>control will prove</b> the <i>halakha</i> with regard to this dilemma, <b>as</b> such an emission <b>does not cause</b> one to be rendered a <i>zav</i>, <b>and</b> yet <b>it negates</b> one’s count of seven clean days.
+
+### Part 5
+Rava <b>said to him:</b> This is <b>not so [<i>la’ei</i>],</b> as <b>this</b> emission of <i>ziva</i> due to circumstances beyond one’s control <b>is also</b> a substance that <b>causes</b> one to be rendered a <i>zav</i>, <b>as we learned</b> in a mishna (<i>Zavim</i> 2:2): With regard to a man who <b>saw a first sighting</b> of <i>ziva</i>, <b>one examines him</b> to determine whether the discharge was caused by circumstances beyond his control. After the <b>second</b> sighting of <i>ziva</i> as well, <b>one examines him.</b> But after the <b>third</b> sighting <b>one does not examine him,</b> as even if the third sighting occurred due to circumstances beyond his control he is nevertheless rendered a <i>zav</i> on its account.
+
+### Part 6
+Abaye asked Rava: <b>And according to Rabbi Eliezer, who said: Even</b> after <b>the third</b> discharge <b>one examines him,</b> will you <b>indeed</b> say that <b>since</b> an emission of <i>ziva</i> due to circumstances beyond one’s control <b>does not cause</b> one to be rendered a <i>zav</i>, <b>it does not negate</b> his count? Rava <b>said to</b> Abaye: <b>According to Rabbi Eliezer,</b> this is <b>indeed</b> the case.
+
+### Part 7
+The Gemara attempts to reject Rava’s explanation of the opinion of Rabbi Eliezer: <b>Come</b> and <b>hear</b> a <i>baraita</i>: <b>Rabbi Eliezer says: Even</b> after <b>the third</b> discharge <b>one examines him</b> to establish whether he must bring an offering, but after <b>the fourth</b> discharge <b>one does not examine him. What, is it not</b> correct to say that as he was already rendered a <i>zav</i> after three discharges, an examination after the fourth discharge is <b>for</b> the matter of <b>negating</b> any clean days counted thus far? If so, Rabbi Eliezer maintains that an emission of <i>ziva</i> due to circumstances beyond one’s control negates one’s count.
+
+### Part 8
+The Gemara rejects this suggestion: <b>No,</b> it is possible that the purpose of the examination after the fourth discharge is to determine whether <b>to render impure that drop</b> of <i>ziva</i> such that it imparts impurity <b>through carrying.</b> According to Rabbi Eliezer, the discharge of a <i>zav</i> imparts impurity through carrying, even if the discharge occurred due to circumstances beyond his control.
+
+### Part 9
+The Gemara suggests: <b>Come</b> and <b>hear</b> another <i>baraita</i>: <b>With regard to the third</b> discharge, <b>Rabbi Eliezer says</b> that <b>one examines him,</b> but after <b>the fourth</b> discharge <b>one does not examine him.</b> The reason is as <b>I said,</b> that the purpose of these examinations is <b>to</b> determine liability to bring <b>an offering, and</b> they do <b>not</b> pertain <b>to</b> the matter of <b>negating</b> any clean days counted thus far. Since the fourth sighting does not affect liability to bring an offering there is no need for an examination. Evidently, Rabbi Eliezer maintains that a discharge that occurs due to circumstances beyond one’s control does negate his count.
+
+### Part 10
+The Gemara concedes: <b>Rather, according to Rabbi Eliezer,</b> one can <b>resolve</b> the dilemma and conclude <b>that</b> even <b>a substance that does not cause</b> one to be rendered a <i>zav</i> <b>negates</b> one’s count. But <b>what</b> is the <i>halakha</i> <b>according to</b> the opinion of <b>the Rabbis?</b>
+
+### Part 11
+The Gemara suggests: <b>Come</b> and <b>hear that</b> which <b>the father of Rabbi Avin teaches</b> with regard to the question of why a discharge of <i>ziva</i> causes a <i>zav</i> to negate his entire count of clean days, whereas a seminal emission negates only the day of the emission itself: <b>What</b> did <b>his <i>ziva</i> cause for him?</b> An impurity of <b>seven</b> days. <b>Therefore,</b> a discharge of <i>ziva</i> causes him to <b>negate</b> his count of <b>seven</b> clean days. By contrast, <b>what</b> did <b>his seminal emission cause for him?</b> An impurity of <b>one day</b> alone. <b>Therefore,</b> a seminal emission causes him to <b>negate</b> only <b>one day</b> of his count.
+
+### Part 12
+The Gemara analyzes this statement: <b>What</b> is the meaning of the claim that <i>ziva</i> causes an impurity of <b>seven</b> days? <b>If we say</b> it means merely <b>that</b> <i>ziva</i> <b>renders him impure</b> for <b>seven</b> days, then the father of Rabbi Avin <b>should have</b> stated: <b>Just as his <i>ziva</i></b> causes him to be impure for <b>seven</b> days, so too, it negates his count of seven clean days. <b>Rather, is it not</b> that the mention of causation indicates that this is what he is saying: <b>A substance that causes</b> one to be rendered a <i>zav</i> <b>negates</b> one’s count of seven clean days, whereas <b>a substance that does not cause</b> one to be rendered a <i>zav</i>, e.g., an emission of blood due to labor pains, <b>does not negate</b> one’s count. The Gemara concludes: Indeed, <b>conclude from it</b> that this is the opinion of the Rabbis.
+
+### Part 13
+With regard to the <i>halakha</i>, <b>Abaye said: We have a tradition</b> that blood emitted by a woman due to labor <b>pains does not negate</b> the seven clean days <b>of <i>ziva</i>,</b> in accordance with the opinion of the Rabbis. <b>And if you a find <i>tanna</i> who said</b> that it does <b>negate</b> them, the statement of <b>that</b> <i>tanna</i> <b>is</b> in accordance with the opinion of <b>Rabbi Eliezer.</b>
+
+### Part 14
+§ It <b>is taught</b> in a <i>baraita</i> that <b>Rabbi Marinus says:</b> In the case of a <i>zava</i> who gave birth in the middle of counting seven clean days, the <b>birth does not negate</b> her count of seven clean days <b>of <i>ziva</i>.</b> With regard to this statement, <b>a dilemma was raised before</b> the Sages: <b>What is</b> the <i>halakha</i> as to whether her days of impurity <b>may be counted</b> toward the seven clean days of <i>ziva</i>? <b>Abaye says:</b> The birth <b>does not negate</b> her count, <b>but it does not count</b> toward the seven clean days. <b>Rava says:</b> The birth <b>does not negate</b> her count <b>and</b> it also <b>counts</b> toward the seven days.
+
+### Part 15
+<b>Rava said: From where do I say</b> that the birth is counted toward the seven days? <b>As it is taught</b> in a <i>baraita</i>: The verse states: “But if she is purified from her <i>ziva</i> then she shall count for herself seven days, <b>and after that she shall be pure”</b> (Leviticus 15:28). The word <b>“after”</b> indicates that she shall be pure only <b>after</b> counting <b>all of them,</b> i.e., <b>that there should not be an impurity separating between</b> any of the seven clean days.
+
+### Part 16
+Rava explains: <b>Granted, if you say</b> the birth <b>counts</b> toward the seven clean days, <b>this is</b> in accordance with the requirement <b>that there should not be an impurity separating</b> between any of the seven clean days, as they remain consecutive. <b>But if you say</b> the birth <b>does not count</b> toward the seven clean days, then the <b>birth separates between</b> the seven clean days. The Gemara notes: <b>And Abaye</b> could have <b>said to you</b> that the <i>baraita</i> means <b>that there should not be an impurity of <i>ziva</i> separating between them.</b> There is no problem with a separation due to birth.
+
+### Part 17
+<b>Rava</b> further <b>said: From where do I say</b> that the birth is counted toward the seven clean days? <b>As it is taught</b> in a <i>baraita</i>: The verse states: “But if she is purified <b>from her <i>ziva</i></b> then she shall count for herself seven days” (Leviticus 15:28). This indicates that she counts seven clean days <b>from her <i>ziva</i> and not from her leprosy,</b> i.e., she begins counting seven days from the cessation of her <i>ziva</i>, even if she is a leper. Likewise, she counts seven clean days <b>from her <i>ziva</i> and not from her</b> giving <b>birth,</b> as she counts seven clean days even if they continue through her days of impurity. The Gemara notes: <b>And Abaye</b> could have <b>said to you:</b> From this verse <b>teach one</b> derivation, i.e., <b>from her <i>ziva</i> and not from her leprosy, but do not teach:</b> From her <i>ziva</i> <b>and not from her</b> giving <b>birth.</b>
+
+### Part 18
+<b>And Rava</b> would respond: <b>What is this</b> suggestion? <b>Granted, if you say</b> that the <i>tanna</i> of the <i>baraita</i> taught: <b>From her <i>ziva</i> and not from her</b> giving <b>birth,</b> one can understand why the <i>tanna</i> also teaches: From her <i>ziva</i> and not from her leprosy: <b>Since it was necessary for</b> the <i>tanna</i> to teach this <i>halakha</i> with regard to <b>birth,</b> he <b>taught</b> it with regard to <b>her leprosy, due to</b> the fact that he taught it with regard to <b>birth. But if you say</b> that the <i>tanna</i> taught only: <b>From her <i>ziva</i> and not from her leprosy,</b> then the verse is unnecessary, as <b>this</b> <i>halakha</i> <b>is</b> already <b>derived from</b> another verse: <b>“And when the <i>zav</i> is purified of his <i>ziva</i>”</b> (Leviticus 15:13), i.e., <b>from his <i>ziva</i> and not from his leprosy.</b>
+
+### Part 19
+<b>And Abaye</b> could respond: <b>One</b> verse discusses the case <b>of a <i>zav</i> and</b> the other <b>one</b> discusses the case <b>of a <i>zava</i>, and</b> both verses <b>are necessary. As, if the Merciful One had written</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

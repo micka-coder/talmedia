@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Portez ce produit</b> designe comme seconde dime <b>a Jerusalem pour moi</b> en echange <b>d'une part</b> du produit, dont vous pourrez prendre part a Jerusalem. Ceci est considere comme un paiement et equivaut a faire du commerce avec la dime. <b>Mais il peut lui dire : Apporte-le</b> a Jerusalem <b>pour le manger et le boire a Jerusalem,</b> tant qu'il ne precise pas qu'il s'agit d'un paiement ; <b>et</b> une fois a Jerusalem <b>ils peuvent se faire des cadeaux sans contrepartie.</b> Cela indique que ce qui ne peut pas etre donne comme paiement peut etre donne comme cadeau, et donc les conducteurs d'anes peuvent etre compenses avec les produits de l'annee sabbatique.
+
+### Partie 2
+<b>Et Rava dit : En fait,</b> Rabbi Yohanan veut dire <b>que</b> le produit avec lequel les conducteurs sont payes est <b>sacre avec la saintete</b> du produit de <b>l'annee sabbatique</b>, <b>Et</b> quant a <b>ce qui</b> vous pose <b>une difficulte</b> par rapport a la <i>halakha</b> du <b>travailleur</b> cite dans la mishna, qui stipule que son salaire n'est pas sacre, cette difficulte peut etre resolue de la maniere suivante : Il y a une distinction entre <b>un ouvrier, dont le salaire n'est pas grand,</b> et donc <b>les Sages ne l'ont pas penalise</b> en decretant que son salaire est sacre, et <b>les conducteurs d'anes, dont le salaire est grand,</b> et donc <b>les Sages les ont penalises. Et</b> en ce qui concerne <b>la mishna</b> qui juge interdit meme le salaire de l'ouvrier dans le cas de celui qui produit du vin destine a la libation, <b>la rigueur du vin</b> utilise pour <b>une libation est differente,</b> et il est traite plus rigoureusement que le produit de l'annee sabbatique.
+
+### Partie 3
+§ <b>Un dilemme a ete souleve devant</b> les Sages : Si un Gentil <b>embauchait</b> un Juif <b>pour</b> travailler avec lui a la production du <b>vin indigne</b> des Gentils, c'est-a-dire du vin qui n'etait pas utilise pour la libation, <b>qu'en est-il</b> de la <i>halakha</i> ? <b>Disons-nous</b> que <b>puisque l'interdiction</b> de tirer un benefice du vin indigne des gentils est <b>aussi rigoureuse que</b> l'interdiction <b>de</b> tirer un benefice du <b>vin</b> utilise pour une <b>liberation, son salaire est egalement interdit, ou peut-etre</b> faut-il raisonner que <b>puisque</b> la <i>halakha</i> en ce qui concerne <b>sa</b> capacite a transmettre l'impurete <b>rituelle</b> a celui qui entre en contact avec elle est plus <b>lenifiante</b> que la <i>halakha</i> en ce qui concerne le vin utilise pour une libation, le <i>halakha</i> par rapport a <b>son salaire</b> est <b>egalement</b> plus <b>lenifiant ? </b>
+
+### Partie 4
+<b>Venez</b> et <b>entendez</b> une resolution : On raconte <b>que</b> il y avait <b>un certain homme qui louait son navire pour</b> transporter le <b>vin indigne</b> des gentils, et les gentils lui <b>donnaient du ble en paiement. Il se presenta devant le Rav Hisda</b> pour determiner le statut du ble. Le Rav Hisda <b>lui a dit : Va le bruler et l'enterrer dans un cimetiere.</b> De toute evidence, la remuneration pour travailler avec du vin indigne de gentils est interdite.
+
+### Partie 5
+La Guemara souleve une objection a la methode d'eradication du ble dans la decision du Rav Hisda. <b>Mais qu'il dise a</b> l'armateur : <"Dispersez-le." La Gemara repond : S'il l'eparpille, les gens risquent <b>d'en subir les consequences</b> s'ils trouvent des grains du ble eparpille et les ramassent pour les manger. La Gemara conteste : <b>Mais</b> alors <b>qu'il le brule et le disperse.</b> Pourquoi devrait-il etre enterre ? La Guemara repond : <b>Peut-etre que</b> les gens vont <b>fertiliser</b> leurs champs <b>avec elle.</b>
+
+### Partie 6
+La Guemara conteste : <b>Mais qu'il enterre</b> le ble <b>dans sa forme non alteree. N'avons-nous pas appris</b> dans une <i>baraita</i> a propos des instruments utilises pour infliger la peine capitale : <b>La pierre avec laquelle</b> un condamne est <b>taille, et l'arbre sur lequel</b> son cadavre est <b>hisse</b> apres son execution, <b>et l'epee avec laquelle</b> il est <b>tue, et le foulard avec lequel</b> il est <b>etrangle, tous</b> sont enterres</b> ensemble <b>avec lui,</b> car il est interdit d'en tirer un benefice. La <i>baraita</i> n'exige pas qu'ils soient brules avant d'etre enterres.
+
+### Partie 7
+La Gemara repond : <b>Ici, puisqu'ils sont enterres dans le cimetiere du tribunal</b>, <b>la question est claire</b> pour tous <b>qu'ils ont ete executes par le tribunal,</b> donc tout le monde sait que l'utilisation des instruments d'execution est interdite. <b>Ici, la question n'est pas claire</b> pour tous, car on pourrait <b>se dire</b> a soi-meme que <b>une personne a vole</b> le ble <b>et l'a apporte</b> et l'a <b>enterre</b> ici,</b> et il pourrait ainsi en venir a l'utiliser.
+
+### Partie 8
+§ Les Sages <b>de l'ecole de Rabbi Yannai empruntaient aux pauvres des produits de l'annee sabbatique</b> et les remboursaient la huitieme</b> annee. D'autres <b>sont venus</b> et ont <b>dit</b> ceci <b>a Rabbi Yohanan,</b> par crainte qu'en agissant ainsi, ils ne violent l'interdiction de faire du commerce avec les produits de l'annee sabbatique. Rabbi Yohanan <b>leur a dit : Ils agissent correctement,</b> car cela n'est pas considere comme du commerce.
+
+### Partie 9
+<b>Et dans le cas correspondant</b> concernant le <b>paiement</b> a une prostituee pour des services rendus, il est <b>permis</b> de sacrifier un tel animal en offrande. Bien que la Torah interdise le sacrifice d'un animal utilise comme paiement a une prostituee (voir Deuteronome 23:19), dans un cas similaire a celui-ci, il est permis ; <b>comme cela est enseigne</b> dans une <i>baraita</i> : Si l'homme <b>a donne</b> a la prostituee un paiement <b>mais n'a pas eu de rapports sexuels avec elle,</b> ou si <b>il a eu des rapports sexuels avec elle mais ne lui a pas donne</b> de paiement, il est <b>permis</b> que <b>son paiement</b> serve d'offrande.
+
+### Partie 10
+La Guemara discute des difficultes liees a la formulation de la <i>baraita</i> : si <b>il lui a donne</b> un paiement <b>mais n'a pas eu de rapports sexuels avec elle,</b> n'est-il pas <b>evident</b> que cela soit permis ? <b>Puisqu'il n'a pas eu de rapports sexuels avec elle, il s'agit simplement d'un cadeau qu'il lui a fait,</b> et il n'y a aucune raison pour qu'il soit interdit. Pourquoi le <i>baraita</i> a-t-il besoin de le preciser ? <b>Et en outre,</b> en ce qui concerne le cas dans le <i>baraita</i> ou <b>il a eu des rapports sexuels avec elle mais ne lui a pas donne</b> de paiement, <b>il ne lui a rien donne, et puisqu'il ne lui a pas donne</b> de paiement, <b>quelle</b> est la signification de la declaration selon laquelle <b>son paiement</b> est <b>permis ?</b>
+
+### Partie 11
+La Gemara repond : <b>C'est plutot</b> ce que dit le <i>baraita</i> <b>d'ailleurs : </b> Si <b>il lui a donne</b> un paiement <b>et qu'ensuite,</b> apres un certain temps, <b>il a eu des rapports sexuels avec elle, ou</b> si <b>il a eu des rapports sexuels avec elle et qu'ensuite,</b> apres un certain temps, <b>il lui a donne</b> un paiement, <b>son paiement est permis,</b> car le paiement n'a pas ete donne a proximite des rapports sexuels. C'est egalement la <i>halakha</i> dans le cas de l'emprunt de produits de l'annee sabbatique, c'est-a-dire que le paiement apres un certain temps n'est pas considere comme un commerce.
+
+### Partie 12
+La Gemara demande : Si le <i>baraita</i> fait reference a un cas ou <b>il lui a donne</b> un paiement <b>et par la suite a eu des rapports sexuels avec elle,</b> alors <b>quand il a eu des rapports sexuels avec elle,</b>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

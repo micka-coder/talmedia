@@ -1,0 +1,45 @@
+
+### Part 1
+<b>Abaye says: No, actually,</b> the <i>baraita</i> is referring <b>to an unblemished</b> animal when the Temple is standing, but it is speaking <b>of a firstborn</b> offering <b>outside of Eretz</b> Yisrael, <b>and it is</b> in accordance with the opinion of <b>Rabbi Shimon, who said: If unblemished</b> firstborn offerings <b>came</b> from outside of Eretz Yisrael, <b>they may be sacrificed</b> on the altar. This language indicates that there is no obligation to sacrifice such an animal, as people did not generally bring their firstborn offerings from outside Eretz Yisrael. Therefore, a priest is able to acquire it even when it is unblemished. Firstborn offerings from Eretz Yisrael, by contrast, cannot be acquired by the priests.
+
+### Part 2
+§ The Gemara <b>raises an objection</b> from the mishna: <b>Rabbi Yoḥanan ben Nuri said to him: What</b> is this comparison <b>for me? If</b> a priest <b>does not substitute for a sin offering and a guilt offering, which</b> priests <b>do not acquire during</b> the animals’ <b>lifetimes, will you say</b> the same <b>with regard to a firstborn, which</b> priests <b>acquire during</b> the animal’s <b>lifetime? What are we dealing with</b> in the mishna? <b>If we say</b> that it is referring <b>to a blemished</b> animal, <b>isn’t</b> the mishna <b>saying</b> that the firstborn offering is <b>similar to a sin offering and a guilt offering,</b> which the priests acquire only unblemished? <b>Rather, is it not</b> referring <b>to unblemished</b> animals? <b>And it</b> nevertheless <b>teaches:</b> Which priests <b>acquire during</b> the animal’s <b>lifetime.</b>
+
+### Part 3
+<b>Ravina said: This</b> mishna <b>too</b> is referring <b>to a firstborn</b> offering <b>outside of Eretz</b> Yisrael, <b>and it is</b> in accordance with the opinion of <b>Rabbi Shimon, who said: If unblemished</b> firstborn offerings <b>came</b> from outside of Eretz Yisrael, <b>they may be sacrificed</b> on the altar. The priests do not acquire firstborn offerings from Eretz Yisrael.
+
+### Part 4
+The Gemara suggests: <b>Let us say</b> that acquisition of the firstborn offerings by the priests is <b>the subject of</b> a dispute between <b><i>tanna’im</i>.</b> The <i>baraita</i> states: In the case of <b>a firstborn</b> offering, when it is <b>in the house of</b> its <b>owner,</b> who did not yet give it to a priest, its owner <b>can render</b> another animal <b>a substitute</b> for it. Once it is <b>in the house of the priest,</b> its owner <b>cannot render a substitute</b> for it. <b>Rabbi Shimon ben Elazar says: Once it has entered the possession of the priest,</b> its owner <b>cannot render a substitute</b> for it.
+
+### Part 5
+Apparently, the opinion of Rabbi Shimon ben Elazar <b>is</b> identical to that of <b>the first <i>tanna</i>.</b> What is their dispute? <b>What, is it not</b> correct that <b>this</b> is what the first <i>tanna</i> <b>is saying:</b> Once it is <b>in the house,</b> i.e., possession, <b>of the priest,</b> the priest <b>can render a substitute</b> for it, <b>but</b> the <b>owner cannot render a substitute</b> for it, as the priest has acquired it; while Rabbi Shimon ben Elazar holds that once it enters the possession of the priest, neither of them can render a substitute with it. <b>Apparently,</b> the first <i>tanna</i> <b>holds</b> that <b>the priest has</b> the right of <b>acquisition to</b> an unblemished firstborn offering when the Temple is standing.
+
+### Part 6
+The Gemara explains: The opinion of the first <i>tanna</i> is <b>not difficult;</b> one can say that the dispute in the <i>baraita</i> concerns a firstborn offering outside of Eretz Yisrael, while those from Eretz Yisrael are not acquired by the priests. And <b>this</b> opinion of the first <i>tanna</i> accords with the opinion of <b>Rabbi Yoḥanan ben Nuri</b> in the mishna above, and <b>that</b> opinion of Rabbi Shimon ben Elazar accords with the opinion of <b>Rabbi Akiva</b> in that mishna.
+
+### Part 7
+§ The Gemara earlier (7b) cited a mishna (<i>Ma’aser Sheni</i> 1:2) which states that a firstborn offering may be sold unblemished only while it is alive. <b>Rav Ḥisda says:</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> with regard to <b>a priest</b> selling <b>to a priest, but</b> with regard to <b>a priest</b> selling it <b>to an Israelite,</b> it is <b>prohibited</b> even when the animal is alive. <b>What is the reason?</b> Since an Israelite can consume a firstborn animal only if it is blemished, there is a concern that <b>perhaps the Israelite will go and inflict a blemish on</b> the firstborn offering <b>and bring</b> it <b>to a halakhic authority</b> to attain permission to eat it, <b>and</b> he will <b>say to him: A priest gave me this firstborn</b> offering <b>when it</b> was already <b>blemished.</b>
+
+### Part 8
+The Gemara asks: <b>And may a halakhic authority permit</b> the animal in a case <b>such as this? But didn’t Rav say:</b> A halakhic authority <b>may not look at a firstborn</b> offering brought <b>by an Israelite</b> to determine if it has the type of permanent blemish allowing it to be slaughtered <b>unless a priest</b> is <b>with him,</b> out of concern that the Israelite will keep the blemished animal for himself without performing the mitzva of giving it to a priest? If so, one can demand that the priest who sold him the animal must be present, and this should prevent the Israelite from lying about the blemish.
+
+### Part 9
+<b>Rav Huna, son of Rabbi Yehoshua, said: This is the reason why</b> it is <b>prohibited</b> for a priest to sell an unblemished firstborn offering to <b>an Israelite: Because</b> this <b>looks like a priest who assists at the threshing floor</b> in order to receive <i>teruma</i> from an Israelite. Unblemished firstborn offerings have a low purchase price, as the owner must wait for it to become blemished before eating it. It might appear that the priest sold the animal to an Israelite at a discount in order to receive future firstborns from him.
+
+### Part 10
+The Gemara relates: <b>Mar Zutra arrived at the home of Rav Ashi.</b> Those present <b>said to him: Let</b> the <b>Master taste some</b> food. <b>They brought meat before him.</b> The one who placed the meat before him <b>said: Let</b> the <b>Master eat, as</b> this meat <b>is</b> particularly <b>healthful, because it is a firstborn.</b> Mar Zutra asked: <b>From where did you</b> receive <b>this</b> firstborn animal? <b>They said to him:</b> It is an animal <b>that so-and-so</b> the <b>priest sold to us.</b>
+
+### Part 11
+Mar Zutra <b>said to them: Do you not hold</b> like <b>that which Rav Huna, son of Rabbi Yehoshua, said,</b> that Israelites may not receive an unblemished firstborn offering from a priest <b>because it looks like a priest who assists at the threshing floor? They said to</b> Mar Zutra: <b>We hold</b> that this is <b>not</b> a concern, <b>as we purchased</b> it for its fair market value, and did not receive it at a discount. Therefore, there is no appearance of impropriety.
+
+### Part 12
+Mar Zutra <b>said to them: But do you not hold</b> like <b>that which we learned</b> in a mishna (<i>Bekhorot</i> 26b): <b>Until when</b> is <b>an Israelite obligated to tend to a firstborn</b> animal before giving it to the priest? In the case <b>of a small</b> animal, a sheep or goat, <b>thirty</b> days, <b>and</b> in the case <b>of a large</b> animal, one of a herd of cattle, <b>fifty days. And if</b> the priest <b>said to</b> the owner: <b>Give it to me within its period,</b> the owner <b>may not give it to him. And Rav Sheshet says: What is</b> the <b>reason</b> for this? <b>Because it looks like a priest who assists at the threshing floor,</b> as the priest is assisting the Israelite by assuming the responsibility of tending to the firstborn.
+
+### Part 13
+<b>They said to</b> Mar Zutra: <b>There</b> the circumstances of <b>the matter prove</b> that the priest accepted responsibility to care for the animal in return for some benefit, and it has the appearance of impropriety. <b>Here, we purchased it</b> for its fair market value, and there is no appearance of impropriety.
+
+### Part 14
+The Gemara presents <b>an alternative version</b> of this final response. <b>They said to</b> Mar Zutra: <b>There</b> the Israelite <b>does not give payment</b> to the priest for accepting responsibility to care for the animal. <b>Here,</b> the Israelite <b>gives payment</b> to the priest, as we purchased the animal. And <b>what</b> would <b>you say</b> to this claim? Would you say that perhaps the <b>priest lowered</b> the price of the animal <b>for</b> us, <b>as the priest thinks that when</b> we <b>have another firstborn</b> offering we <b>will give it to him,</b> and therefore it has the appearance of impropriety? This is <b>not</b> a concern, <b>as he thinks:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

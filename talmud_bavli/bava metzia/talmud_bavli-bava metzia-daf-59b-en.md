@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And this is</b> known as <b>the oven of <i>akhnai</i>.</b> The Gemara asks: <b>What</b> is the relevance of <b><i>akhnai</i>,</b> a snake, in this context? <b>Rav Yehuda said</b> that <b>Shmuel said:</b> It is characterized in that manner due to the fact <b>that</b> the Rabbis <b>surrounded</b> it <b>with</b> their <b>statements like this snake,</b> which often forms a coil when at rest, <b>and deemed it impure.</b> The Sages <b>taught: On that day,</b> when they discussed this matter, <b>Rabbi Eliezer answered all</b> possible <b>answers in the world</b> to support his opinion, <b>but</b> the Rabbis <b>did not accept</b> his explanations <b>from him.</b>
+
+### Part 2
+After failing to convince the Rabbis logically, Rabbi Eliezer <b>said to them: If</b> the <b><i>halakha</i></b> is <b>in accordance with my</b> opinion, <b>this carob</b> tree <b>will prove</b> it. The <b>carob</b> tree <b>was uprooted from its place one hundred cubits, and some say four hundred cubits.</b> The Rabbis <b>said to him: One does not cite</b> halakhic <b>proof from the carob</b> tree. Rabbi Eliezer <b>then said to them: If</b> the <b><i>halakha</i></b> is <b>in accordance with my</b> opinion, <b>the stream will prove</b> it. The water in <b>the stream turned backward</b> and began flowing in the opposite direction. <b>They said to him: One does not cite</b> halakhic <b>proof from a stream.</b>
+
+### Part 3
+Rabbi Eliezer <b>then said to them: If</b> the <b><i>halakha</i></b> is <b>in accordance with my</b> opinion, <b>the walls of the study hall will prove</b> it. <b>The walls of the study hall leaned</b> inward and began <b>to fall. Rabbi Yehoshua scolded</b> the walls and <b>said to them: If Torah scholars are contending</b> with <b>each other in</b> matters of <b><i>halakha</i>, what</b> is the <b>nature</b> of <b>your</b> involvement in this dispute? The Gemara relates: The walls <b>did not fall because of</b> the <b>deference</b> due <b>Rabbi Yehoshua, but they did not straighten because of</b> the <b>deference</b> due <b>Rabbi Eliezer, and they still remain leaning.</b>
+
+### Part 4
+Rabbi Eliezer <b>then said to them: If</b> the <b><i>halakha</i></b> is <b>in accordance with my</b> opinion, <b>Heaven will prove</b> it. <b>A Divine Voice emerged</b> from Heaven <b>and said: Why are you</b> differing <b>with Rabbi Eliezer, as</b> the <b><i>halakha</i></b> is <b>in accordance with</b> his opinion <b>in every place</b> that he expresses an opinion?
+
+### Part 5
+<b>Rabbi Yehoshua stood on his feet and said:</b> It is written: <b>“It is not in heaven”</b> (Deuteronomy 30:12). The Gemara asks: <b>What</b> is the relevance of the phrase <b>“It is not in heaven”</b> in this context? <b>Rabbi Yirmeya says:</b> Since <b>the Torah was already given at Mount Sinai, we do not regard a Divine Voice, as You already wrote at Mount Sinai, in the Torah: “After a majority to incline”</b> (Exodus 23:2). Since the majority of Rabbis disagreed with Rabbi Eliezer’s opinion, the <i>halakha</i> is not ruled in accordance with his opinion. The Gemara relates: Years after, <b>Rabbi Natan encountered Elijah</b> the prophet and <b>said to him: What did the Holy One, Blessed be He, do at that time,</b> when Rabbi Yehoshua issued his declaration? Elijah <b>said to him:</b> The Holy One, Blessed be He, <b>smiled and said: My children have triumphed over Me; My children have triumphed over Me.</b>
+
+### Part 6
+The Sages <b>said:</b> On <b>that day,</b> the Sages <b>brought all the ritually pure</b> items <b>deemed pure by</b> the ruling of <b>Rabbi Eliezer</b> with regard to the oven <b>and burned them in fire, and</b> the Sages <b>reached a consensus in his regard and ostracized him. And</b> the Sages <b>said: Who will go and inform him</b> of his ostracism? <b>Rabbi Akiva,</b> his beloved disciple, <b>said to them: I will go, lest an unseemly person go</b> and inform him in a callous and offensive manner, <b>and he would thereby destroy the entire world.</b>
+
+### Part 7
+<b>What did Rabbi Akiva do? He wore black and wrapped himself in black,</b> as an expression of mourning and pain, <b>and sat before</b> Rabbi Eliezer <b>at a distance of four cubits,</b> which is the distance that one must maintain from an ostracized individual. <b>Rabbi Eliezer said to him: Akiva, what</b> is different about <b>today from other days,</b> that you comport yourself in this manner? Rabbi Akiva <b>said to him: My teacher, it appears to me that</b> your <b>colleagues are distancing</b> themselves <b>from you.</b> He employed euphemism, as actually they distanced Rabbi Eliezer from them. Rabbi Eliezer <b>too, rent his garments and removed his shoes,</b> as is the custom of an ostracized person, <b>and he dropped</b> from his seat <b>and sat upon the ground.</b>
+
+### Part 8
+The Gemara relates: <b>His eyes shed tears,</b> and as a result <b>the</b> entire <b>world was afflicted: One-third of</b> its <b>olives</b> were afflicted, <b>and one-third of</b> its <b>wheat, and one-third of</b> its <b>barley. And some say</b> that <b>even dough</b> kneaded <b>in a woman’s hands spoiled.</b> The Sages <b>taught: There was great anger on that day, as any place that Rabbi Eliezer fixed his gaze was burned.</b>
+
+### Part 9
+<b>And even Rabban Gamliel,</b> the <i>Nasi</i> of the Sanhedrin at Yavne, the head of the Sages who were responsible for the decision to ostracize Rabbi Eliezer, <b>was coming on a boat</b> at the time, and <b>a large wave swelled over him</b> and threatened <b>to drown him.</b> Rabban Gamliel <b>said: It seems to me that this is only for the sake of Rabbi Eliezer ben Hyrcanus,</b> as God punishes those who mistreat others. Rabban Gamliel <b>stood on his feet and said: Master of the Universe, it is revealed and known before You that neither was it for my honor</b> that <b>I acted</b> when ostracizing him, <b>nor was it for the honor of the house of my father</b> that <b>I acted; rather,</b> it was <b>for Your honor, so that disputes will not proliferate in Israel.</b> In response, <b>the sea calmed from its raging.</b>
+
+### Part 10
+The Gemara further relates: <b>Imma Shalom, the wife of Rabbi Eliezer, was the sister of Rabban Gamliel. From that incident forward, she would not allow Rabbi Eliezer to lower his head</b> and recite the <i>taḥanun</i> prayer, which includes supplication and entreaties. She feared that were her husband to bemoan his fate and pray at that moment, her brother would be punished. <b>A certain day was</b> around the day of <b>the New Moon, and she</b> inadvertently <b>substituted a full</b> thirty-day month <b>for a deficient</b> twenty-nine-day month, i.e., she thought that it was the New Moon, when one does not lower his head in supplication, but it was not. <b>Some say</b> that <b>a pauper came and stood at the door,</b> and <b>she took bread out to him.</b> The result was that she left her husband momentarily unsupervised.
+
+### Part 11
+When she returned, <b>she found him</b> and saw <b>that he had lowered his head</b> in prayer. <b>She said to him: Arise, you</b> already <b>killed my brother. Meanwhile,</b> the sound of <b>a <i>shofar</i> emerged from the house of Rabban Gamliel</b> to announce <b>that</b> the <i>Nasi</i> <b>had died.</b> Rabbi Eliezer <b>said to her: From where did you know</b> that your brother would die? <b>She said to him: This is</b> the tradition that <b>I received from the house of the father of</b> my <b>father: All the gates</b> of Heaven are apt to be <b>locked, except for the gates</b> of prayer for victims <b>of</b> verbal <b>mistreatment.</b>
+
+### Part 12
+§ <b>The Sages taught: One who</b> verbally <b>mistreats the convert violates three prohibitions, and one who oppresses him</b> in other ways <b>violates two.</b>
+
+### Part 13
+The Gemara asks: <b>What is different</b> with regard to verbal <b>mistreatment, that three prohibitions are written</b> concerning it: <b>“And you shall neither mistreat a convert”</b> (Exodus 22:20); <b>“And when a convert lives in your land, you shall not mistreat him”</b> (Leviticus 19:33); <b>“And you shall not mistreat, each man his colleague”</b> (Leviticus 25:17), <b>and a convert is</b> included in the category of <b>colleague?</b> With regard to <b>one who also oppresses</b> a convert <b>as well, three</b> prohibitions <b>are written:</b> “And you shall neither mistreat a convert, <b>nor oppress him”</b> (Exodus 22:20); <b>“And you shall not oppress a convert</b> (Exodus 23:9); <b>“And you shall not be to him like a creditor”</b> (Exodus 22:24). This last prohibition is a general prohibition, <b>in which converts are included.</b> Consequently, it is not correct that one who oppresses a convert violates only two prohibitions. <b>Rather, both this</b> one, who verbally mistreats a convert, <b>and that</b> one, who oppresses him, <b>violate three prohibitions.</b>
+
+### Part 14
+<b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer the Great says: For what reason did the Torah issue warnings in thirty-six places, and some say in forty-six places, with regard to</b> causing any distress to <b>a convert?</b> It is <b>due to</b> the fact <b>that</b> a convert’s <b>inclination is evil,</b> i.e., he is prone to return to his previous way of living.
+
+### Part 15
+<b>What</b> is the meaning of that <b>which is written: “And you shall not mistreat a convert nor oppress him, because you were strangers in the land of Egypt”</b> (Exodus 22:20)? <b>We learned</b> in a <i>baraita</i> that <b>Rabbi Natan says: A defect that is in you, do not mention</b> it <b>in another.</b> Since the Jewish people were themselves strangers, they are not in a position to demean a convert because he is a stranger in their midst. <b>And this</b> explains the adage <b>that people say: One who has</b> a person <b>hanged in his family [<i>bidyotkei</i>], does not say to another</b> member of his household: <b>Hang a fish for me,</b> as the mention of hanging is demeaning for that family.
+
+### Part 16
+<strong>MISHNA:</strong> <b>One may not intermingle produce</b> bought from one supplier <b>with</b> other <b>produce, even</b> if he intermingles <b>new</b> produce <b>with</b> other <b>new</b> produce and ostensibly the buyer suffers no loss from his doing so.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

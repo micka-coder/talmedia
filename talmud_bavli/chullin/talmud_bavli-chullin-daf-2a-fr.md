@@ -1,0 +1,21 @@
+
+### Partie 1
+<strong>MISHNA:</strong> <b>Tout le monde abat</b> un animal, c'est-a-dire peut effectuer un abattage halakhiquement valable, <b>et leur abattage est valable, a l'exception d'un sourd-muet, d'un imbecile et d'un mineur, de peur qu'ils ne gachent leur abattage</b> par manque de competence. <b>Et</b> pour <b>tous ceux-la, lorsqu'ils ont abattu</b> un animal <b>et que d'autres les voient</b> et les surveillent, leur abattage est valable.</b>
+
+### Partie 2
+<strong>GEMARA:</strong> Il y a une contradiction apparente entre les deux premieres phrases de la mishna. La <i>tanna</i> commence : <b>Tout le monde abat</b> un animal, indiquant que le fait qu'ils effectuent l'abattage est permis <b><i>ab initio</i>,</b> et enseigne ensuite : <b>Et leur abattage est valide,</b> indiquant que leur abattage n'est valide qu'<b>apres coup.</b>
+
+### Partie 3
+<b>Rav Aha, fils de Rava, dit a Rav Ashi : Et</b> est-ce que <b>tout le monde</b> utilise le terme : <b>Tout le monde,</b> indique-t-elle que l'action en question est permise <b><i>ab initio</i> ? Si c'est le cas,</b> dans la mishna (<i>Temura</i> 2a), ou il est dit : <b>Tout le monde substitue</b> un animal non sacre a un animal sacrificiel, <b>aussi bien les hommes que les femmes,</b> est-ce que cela <b>aussi</b> une expression indiquant <b>que</b> cela est permis <b><i>ab initio</i> ? Mais n'est-il pas ecrit : "Il ne l'echangera ni ne le substituera, ni bon pour mauvais, ni mauvais pour bon"</b> (Levitique 27.10) ?
+
+### Partie 4
+Rav Ashi repond : <b>La, la raison</b> pour laquelle la mishna utilise le mot tout le monde est <b>qu'elle</b> immediatement <b>enseignante : </b> Ce n'est <b>pas</b> pour dire <b>qu'il est permis a une personne de substituer ; plutot,</b> cela signifie <b>que si quelqu'un substituait</b> un animal non sacre a un animal sacrificiel, <b>la substitution prend effet, et</b> celui qui a substitue l'animal non sacre <b>encoure [<i>vesofeg</i>] les quarante</b> coups de fouet qui sont la punition pour avoir viole l'interdiction "Ne le substituez pas". Mais ici, puisque la mishna ne qualifie pas de la meme maniere son affirmation, elle indique que tout le monde peut effectuer l'abattage <i>ab initio</i>.
+
+#### Partie 5
+Le Rav Aha conteste : <b>Mais</b> une mishna enseigne (<i>Arakhin</i> 2a) : <b>Tout le monde fait</b> des vœux de <b>valorisation</b> et est ainsi oblige de donner au tresor du Temple la valeur fixee par la Torah en fonction de l'age et du sexe de la personne valorisee ; <b>et</b> tout le monde <b>est valorise,</b> et donc celui qui a fait vœu de donner sa valeur fixee est oblige de payer ; tout le monde <b>fait vœu</b> de donner la valeur marchande d'une personne en tant qu'esclave au tresor du Temple et est ainsi oblige de payer ; <b>et</b> tout le monde fait l'objet d'un <b>vœu</b> si d'autres ont fait vœu de donner sa valeur marchande. Est-ce que cela <b>aussi</b> une expression indiquant <b>que</b> c'est permis <b><i>ab initio</i> ? Mais il est ecrit : "Et si vous cessez de faire des vœux, il n'y aura pas de peche en vous"</b> (Deuteronome 23:23), ce qui indique qu'il est preferable de ne pas faire de vœux.
+
+### Partie 6
+<b>Et il est ecrit : "Il vaut mieux ne pas faire de vœu, que de faire un vœu et de ne pas payer"</b> (Ecclesiaste 5:4) ; <b>et il est enseigne</b> dans une <i>baraita</i> a propos de ce verset : <b>Mieux que</b> a la fois <b>cette</b> personne, qui fait un vœu et ne paie pas, <b>et celle-la</b>, qui fait un vœu et paie, est <b>celle qui ne fait pas de vœu du tout</b> c'est <b>la declaration de Rabbi Meir. Rabbi Yehuda dit : Mieux que</b> a la fois <b>cette</b> personne, qui fait un vœu et ne paie pas, <b>et celle-la</b>, qui ne fait pas de vœu du tout, est <b>celle qui fait un vœu et paie</b> en accomplissement de ce vœu. Le Rav Aha commente : <b>Et meme Rabbi Yehouda enonce</b> son avis <b>uniquement dans</b> un cas ou l'on fait un vœu et <b>dit : Cet</b> animal <b>est</b> designe pour le sacrifice, car dans ce cas, on ne craint pas de manquer a son engagement, puisque meme si l'animal est vole ou perdu, il n'est pas tenu d'en apporter un autre a sa place.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

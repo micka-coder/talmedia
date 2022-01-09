@@ -1,0 +1,51 @@
+
+### Part 1
+<b>It is taught</b> in a <i>baraita</i> (<i>Tosefta</i> 5:2) <b>in accordance with</b> the opinion of <b>Shmuel</b> that <b>Rabbi Shimon ben Elazar says:</b> If <b>one</b> first <b>purchased</b> a field belonging to a married woman <b>from the wife,</b> so that if her husband were to predecease or divorce her, the purchaser would then own it fully, <b>and</b> afterward <b>he returned and purchased</b> the same field <b>from the husband,</b> so that he will have the right to use it in the interim, <b>his purchase stands.</b> If he first acquired the field <b>from the husband, and</b> afterward <b>he returned and purchased</b> the same field <b>from the wife, his purchase is void, unless</b> the woman <b>writes him a guarantee.</b> This supports Shmuel’s opinion that only when the prior owner writes the buyer a guarantee is it assumed that he sold him the field wholeheartedly.
+
+### Part 2
+The Gemara asks: <b>Let us say that this</b> <i>baraita</i> <b>is a conclusive refutation</b> of the opinion <b>of Rav,</b> who said that a written bill of sale suffices and a guarantee is not required. The Gemara answers: <b>Rav</b> could have <b>said to you: What</b> is the <b>guarantee</b> mentioned here? It <b>too</b> is referring to a <b>bill</b> of sale, as it suffices that she sell him the field with a bill of sale, and it is not necessary for her to write him a guarantee in addition.
+
+### Part 3
+<b>The Sages taught</b> in a <i>baraita</i>: If <b>one purchased</b> land <b>from a Sicarius and consumed its</b> produce <b>for three years in the presence of the</b> prior <b>owner, and</b> then the one who purchased it from the Sicarius <b>returned and sold it to another</b> person, <b>the</b> prior <b>owner has no</b> claim <b>against the second buyer.</b>
+
+### Part 4
+The Gemara clarifies: <b>What are the circumstances</b> of the case? <b>If</b> the second buyer <b>claims and says</b> to the prior owner: After buying the property from the Sicarius, the first buyer returned and <b>purchased it from you,</b> providing you with proper reimbursement, then <b>even the first</b> buyer should be deemed credible if he claims that he purchased the property from the prior owner. This is because he has been physically in possession of the property for three years, and this can serve as proof that he is in fact the legal owner. And <b>if</b> the second buyer <b>does not claim and say</b> to the prior owner: <b>He purchased</b> the property <b>from you,</b> then <b>even the second</b> buyer should <b>also not</b> retain possession of the property. This is in accordance with the principle that physical possession of property that is not accompanied by a claim that the property was legally acquired cannot serve as proof of ownership.
+
+### Part 5
+<b>Rav Sheshet says: Actually,</b> it is referring to a case <b>where</b> the second buyer <b>does not claim</b> that the first buyer purchased the property from the prior owner. <b>And</b> although in general, physical possession of property that is not accompanied by a claim that the property was legally acquired cannot serve as proof of ownership, in a case <b>such as this</b> the court <b>makes a claim on behalf of an heir and</b> the court <b>makes a claim on behalf of a buyer.</b> Since heirs and buyers are generally unaware of the circumstances in which their predecessor obtained possession of the property, the court advances the claim on their behalf that it had been acquired legally.
+
+### Part 6
+And as to <b>the other</b> party, the first buyer, <b>if</b> he <b>claims</b> that he purchased the property from the prior owner, <b>yes,</b> he retains possession of the property, as his physical possession of the property is accompanied by a proper claim. <b>But if he does not make</b> such <b>a claim,</b> he does <b>not</b> retain possession, because the court does not make the claim on his behalf.
+
+### Part 7
+§ <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 5:2): If property comes into one’s possession <b>due to</b> payment <b>of a debt or due to unjust seizure [<i>anparot</i>]</b> of the land by a gentile, the previously mentioned laws of <b>Sicarii do not</b> apply. <b>And</b> the <b>unjustly seized land itself must remain</b> in the possession of the gentile who seized it <b>for</b> at least <b>twelve months</b> before another buyer can take possession of it.
+
+### Part 8
+The Gemara raises an objection based on the fact that the twelve-month waiting period is relevant to the laws of Sicarii: <b>But didn’t you say</b> that <b>the laws of Sicarii do not apply</b> in this case? The Gemara answers: <b>This is what</b> the <i>baraita</i> <b>is saying:</b> Property purchased from <b>the Sicarius himself must remain</b> in his possession for at least <b>twelve months.</b>
+
+### Part 9
+<b>Rav Yosef says</b> that <b>we have a tradition</b> that <b>there is no unjust seizure of land in Babylonia.</b> The Gemara objects: <b>But don’t we see that there is</b> unjust seizure of land in Babylonia? <b>Rather, say</b> that <b>there is no law of unjust seizure in Babylonia,</b> meaning that this law is not applied in Babylonia. <b>What is the reason</b> for this? <b>Since there is a regional seat of government [<i>bei davar</i>], and</b> yet the owner <b>does not go and complain</b> before it that his property had been seized, <b>say that he waived</b> his rights to the property and consequently is unable to bring a claim about it.
+
+### Part 10
+It is related that <b>Giddel bar Re’ilai received land from the residents of</b> a certain <b>valley</b> in exchange <b>for</b> payment of the <b>land tax [<i>taska</i>].</b> All of the residents of the valley would jointly pay the land tax. After some of the residents had gone away, those who remained authorized Giddel bar Re’ilai to use the land of the absentee owners, on condition that Giddel would pay the land tax on their behalf. Giddel <b>gave the money for three years in advance,</b> although the tax was ordinarily paid annually. <b>Eventually,</b> after the first year, <b>the prior owners came and said to</b> Giddel: With regard to <b>the first year for which you paid</b> the tax, <b>you have</b> already <b>consumed</b> the produce. <b>Now we will pay</b> the taxes and <b>we will consume</b> the produce, and you shall have no further rights to it.
+
+### Part 11
+The parties <b>came before Rav Pappa</b> to decide the case. At first he <b>thought</b> of <b>writing for</b> Giddel a document of <b>authorization to repossess</b> the property <b>against the residents of the valley [<i>baga</i>],</b> allowing Giddel to hold the land for two more years in compensation for the money that he had advanced for the taxes. <b>Rav Huna, son of Rav Yehoshua, said to Rav Pappa: If so, you made</b> this law like that applying to <b>a Sicarius,</b> and it has already been established that the law of Sicarii does not apply in Babylonia. <b>Rather, Rav Huna, son of Rav Yehoshua, said:</b> In this case Giddel <b>placed his money on the horn of a deer,</b> meaning that he himself put his money in jeopardy. The money he had advanced is regarded as a gift, and he has no right to demand that he be reimbursed.
+
+### Part 12
+§ The mishna teaches: <b>This is the initial</b> version of the <b>mishna.</b> Later, <b>the court of those</b> who came <b>after</b> the Sages who composed that mishna <b>said:</b> With regard to <b>one who purchased</b> a field <b>from a Sicarius, he must give the</b> prior <b>owner one-fourth</b> of the field’s value. <b>Rav says:</b> He gives him <b>one-fourth</b> of what he paid by giving him a portion <b>of</b> the <b>land, or</b> else <b>one-fourth in money,</b> whichever he prefers. <b>And Shmuel says:</b> He gives him <b>one-fourth of</b> the <b>land, which is one-third of the money</b> that he paid.
+
+### Part 13
+The Gemara explains: <b>With regard to what do</b> these <i>amora’im</i> <b>disagree?</b> One <b>Sage,</b> Shmuel, <b>holds</b> that the Sicarius <b>sold</b> the field to the buyer <b>for one-fourth less</b> than its actual value. Consequently, the buyer must return to the prior owner the amount by which he profited when he bought the property from the Sicarius, which is one-third of the money that he actually paid. <b>And</b> one <b>Sage,</b> Rav, <b>holds</b> that the Sicarius <b>sold</b> the field to the buyer <b>for one-fifth less</b> than its actual value. Consequently, the buyer is required to return to the prior owner only one-fifth of the actual value, which is one-fourth of what he actually paid.
+
+### Part 14
+The Gemara <b>raises an objection</b> from what is taught in a <i>baraita</i>: <b>This is the initial</b> version of the <b>mishna.</b> Later, <b>the court of those</b> who came <b>after</b> the Sages who composed that mishna <b>said:</b> With regard to <b>one who purchased</b> a field <b>from a Sicarius, he must give the</b> prior <b>owner one-fourth</b> of the field’s value, <b>and the</b> prior <b>owner has the advantage.</b> If <b>he wants land, he takes</b> what is due him in land, and if <b>he wants money, he takes</b> what is due him in money. <b>When</b> does this apply? <b>At a time when</b> the prior owner <b>is unable to purchase</b> the field himself; <b>but if he is able to purchase</b> it himself, <b>he precedes anyone</b> else.
+
+### Part 15
+<b>Rabbi</b> Yehuda HaNasi later <b>convened a court, and they counted</b> their votes and determined <b>that if</b> the field <b>remained before,</b> i.e., in the possession of, <b>the Sicarius</b> for <b>twelve months, whoever first purchases</b> the field <b>acquires possession</b> of it, <b>but he must give the</b> prior <b>owner one-fourth</b> of its value by giving him a portion <b>of</b> the <b>land or one-fourth in money.</b> This is in accordance with the statement of Rav, but it is difficult for Shmuel.
+
+### Part 16
+<b>Rav Ashi said: When that</b> <i>baraita</i> <b>is taught,</b> it is referring to one-fourth of the total amount <b>after the money reached</b> the prior owner’s <b>possession.</b> In other words, it does not refer to one-fourth of the money that the buyer paid the Sicarius, but one-fourth of the field’s actual value, which is one-third of what the buyer paid the Sicarius. <b>Rav says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

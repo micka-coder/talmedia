@@ -1,0 +1,27 @@
+
+### Partie 1
+La Guemara revient sur la declaration d'Ulla au nom de Reish Lakish (32b) selon laquelle un individu impur qui a insere sa main dans la cour du Temple est fouette, car une entree partielle est consideree comme une entree. Une objection a alors ete soulevee a partir du cas du lepreux, ou il n'est pas susceptible d'etre puni de <i>karet</i> pour une entree partielle, et Ulla a propose une reponse. <b>Ravina dit</b> qu'il existe une autre reponse : Il <b>a ete enonce</b> uniquement <b>en ce qui concerne les coups de fouet,</b> enseignant que l'on est fouette pour etre entre partiellement dans la cour alors que l'on est rituellement impur. Le Reish Lakish est d'accord pour dire qu'il n'y a pas de punition de <i>karet</i> pour une entree partielle comme il y en a pour une entree complete.
+
+### Partie 2
+<b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Abbahu dit</b> que la declaration de Reish Lakish concernant ce verset <b>a ete enoncee a propos d'un individu rituellement impur</b> <b>qui a touche de la nourriture sacrificielle</b> et non a propos d'une entree partielle dans la cour, comme Ulla l'avait dit.
+
+### Partie 3
+C'est <b>comme il a ete dit :</b> Il y a un differend amoraique en ce qui concerne <b>une personne impure qui a touche de la nourriture sacrificielle</b>. <b>Reish Lakish dit :</b> Il est <b>flagelle. Rabbi Yohanan dit : Il n'est pas flagelle.</b> La Gemara developpe. <b>Reish Lakish dit : </b> Il est <b>flagelle,</b> comme il est ecrit : <b>"Tout objet consacre, elle ne le touchera pas"</b> (Levitique 12:4). <b>Et Rabbi Yohanan dit : Il n'est pas flagelle,</b> car <b>ce verset</b> <b>est ecrit a propos de</b> toucher <b>la portion du produit designe pour le pretre [<i>teruma</i>].</b>
+
+### Partie 4
+La Guemara demande : <b>Mais</b> est-ce que <b>Reish Lakish</b> soutient effectivement que <b>ce verset vient</b> enseigner <b>cette</b> <i>halakha</i> ? <b>Il exige que ce</b> verset vienne enseigner <b>une interdiction pour</b> une personne rituellement impure <b>qui mange de la viande sacrificielle. Comme il a ete dit : D'ou</b> provient <b>l'interdiction pour</b> une personne rituellement impure <b>qui mange de la viande sacrificielle</b> ? <b>Reish Lakish dit</b> qu'elle est derivee du verset : <b>"Tout objet consacre, elle ne le touchera pas"</b>, dont la Gemara expliquera qu'il fait reference a la consommation.
+
+### Partie 5
+<b>Rabbi Yohanan dit :</b> Le Sage <b>Bardela enseigne</b> que cette interdiction est <b>derivee</b> d'une analogie verbale du terme <b>"son impu-rite [<i>tumato</i>]"</b> ecrit a propos de celui qui mange de la viande sacrificielle alors qu'il est impur (Levitique 7 : 20), et le terme <b>"son impurete [<i>tumato</i>]"</b> ecrit a l'egard de celui qui <b>entre</b> dans le <b>Temple</b> alors qu'il est impur (Nombres 19 : 13). <b>De meme que la,</b> en ce qui concerne l'entree dans le Temple alors qu'il est impur, la Torah <b>prescrivait</b> la <b>punition</b> de <i>karet</i> <b>et</b> aussi explicitement <b>interdit</b> de le faire, <b>Aussi ici,</b> en ce qui concerne la consommation de viande sacrificielle alors qu'elle est impure, la Torah <b>prescrit</b> la <b>punition</b> de <i>karet</i> <b>et</b> aussi explicitement <b>interdit</b> de le faire. De toute evidence, Reish Lakish a compris que ce verset faisait reference a la consommation de la viande sacrificielle, et non au simple fait de la toucher.
+
+### Partie 6
+La Guemara repond : Reish Lakish soutient que les deux peuvent etre derives de Levitique 12:4. L'interdiction concernant <b>un individu rituellement impur</b> <b>qui a touche la nourriture sacrificielle</b> est derivee <b>du fait <b>que le Misericordieux a exprime</b> cette interdiction <b>avec un terme de toucher, </b> tandis que <b>l'interdiction concernant celui qui mange</b> une nourriture sacrificielle alors qu'il est impur provient <b>du fait <b>que</b> la Torah a <b>juxtapose</b> l'interdiction de manger <b>une nourriture sacrificielle</b> alors qu'il est impur <b>a</b> l'interdiction d'entrer dans le <b>Temple</b> alors qu'il est impur dans le verset : "Tout objet consacré, elle ne le touchera pas, et au Temple, elle n"?entrera pas" (Lévitique 12:4).
+
+### Partie 7
+La Guemara commente : <b>C'est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'opinion <b>de Reish Lakish.</b> Il est ecrit : <b>"Tout objet consacre, elle ne le touchera pas";</b> il s'agit d'une <b>interdiction pour</b> une personne impure qui <b>consomme</b> une nourriture sacrificielle. <b>Vous dites</b> que c'est <b>une interdiction pour</b> une personne impure qui <b>mange</b> une nourriture sacrificielle, <b>ou</b> peut-etre que <b>c'est seulement</b> une interdiction <b>pour</b> une personne impure qui <b>touche</b> une nourriture sacrificielle ?
+
+### Partie 8
+<b>Le verset dit : "Tout objet consacre, elle ne le touchera pas, et au Temple, elle ne viendra pas"</b> (Levitique 12:4). Le verset <b>juxtapose</b> la question relative a la nourriture <b>sacrificielle</b> <b>a</b> la question de l'entree dans le <b>Temple</b> en etant rituellement impur. <b>Tout comme</b> entrer dans le <b>Temple</b> est <b>une affaire</b> qui entraine une punition <b>qui implique</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

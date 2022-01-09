@@ -1,0 +1,63 @@
+
+### Partie 1
+<b>sali ou dechire, et il a effectue</b> <b>des sacrifices, son service est disqualifie.</b>
+
+### Partie 2
+<b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> Si les vetements sont <b>dragues</b> sur le sol, <b>ils sont aptes,</b> mais s'ils sont <b>eleves</b> au-dessus du sol, <b>ils sont inaptes.</b> La Gemara demande : <b>Mais n'est-il pas enseigne</b> dans la <i>baraita</i> ci-dessus que meme si les vetements etaient <b>releves, ils sont aptes ? Rami bar Hama repond :</b> Ceci n'est <b>pas difficile. Ici,</b> la <i>baraita</i> les juge aptes dans un cas <b>ou</b> le pretre les <b>releve par</b> sa <b>ceinture,</b> bien qu'ils soient initialement a la bonne longueur ; <b>la,</b> Shmuel les juge impropres dans un cas ou <b>ils ne couvrent pas initialement</b> les pieds du pretre <b>du tout.</b>
+
+### Partie 3
+<b>Rav dit :</b> Dans <b>cette affaire</b> <b>et cette affaire</b> , qu'elles aient ete trainees ou relevees, <b>elles sont impropres.</b>
+
+### Partie 4
+La Guemara raconte : <b>Rav Huna</b> se trouvait arriver <b>a Argiza. Le fils de son aubergiste [<i>oshpizekhaneih</i>] souleva une contradiction</b> devant <b>lui : Shmuel</b> a-t-il effectivement <b>dit</b> que si les vetements sont <b>dragues</b> sur le sol, <b>ils sont aptes, mais</b> s'ils sont <b>releves</b> au-dessus du sol, <b>ils sont inaptes ? Mais n'est-il pas enseigne</b> dans le <i>baraita</i> que meme si les vetements sont <b>releves, ils sont aptes ? </b> Rav Huna lui <b>dit : </b> Soulevez une contradiction de n'importe quelle source <b>en dehors de ce</b> <i>baraita</i>, <b>car Rami bar Hama</b> a deja <b>repondu</b> que <b>cela</b> ne contredit pas la declaration de Shmuel, car elle ne s'applique qu'aux vetements qui etaient initialement de la bonne longueur.
+
+### Partie 5
+La Guemara demande : <b>Mais</b> la <i>baraita</i> ne pose-t-elle pas <b>une difficulte pour Rav,</b> qui juge les vetements impropres meme s'ils trainaient ? <b>Et si vous disiez : Quel</b> est le sens du mot : <b>Trainer,</b> dans le <i>baraita</i> ? Cela signifie qu'ils traineraient initialement mais ont ete <b>releves par une ceinture</b> a la bonne longueur, <b>et</b> ils sont en forme puisque la <b>ceinture</b> les <b>trims</b> effectivement, <b>mais</b> alors le terme : <b>Releve,</b> dans le <i>baraita</i> pose <b>une difficulte.</b> Pourquoi le <i>baraita</i> devrait-il juger les vetements releves aptes ? Si le <i>baraita</i> fait reference a des vetements qui etaient initialement de la bonne longueur et qui ont ensuite ete releves par une ceinture, alors ne devraient-ils pas etre juges impropres puisque la ceinture les taille ?
+
+### Partie 6
+<b>Rabbi Zeira dit : Rav a enseigne</b> la <i>baraita</i> non pas comme se referant separement aux vetements trainants et releves, mais comme <b>une</b> declaration se referant aux vetements qui sont simultanement trainants et releves, c'est-a-dire , <b>Les vetements trainants</b> <b>que</b> le pretre a <b>releve par</b> sa <b>ceinture</b> a la hauteur appropriee <b>sont aptes.</b> Mais s'ils etaient au-dessus ou au-dessous de leur hauteur appropriee pour une raison quelconque, ils sont inaptes.
+
+### Partie 7
+§ <b>Rabbi Yirmeya de Difti dit :</b> Le cas des vetements <b>dragues</b> que le pretre <b>n'a pas releves est</b> le sujet d'une dispute entre <b><i>tannaim</i>. Comme il est enseigne</b> dans un <i>baraita</i> : Le verset stipule : <b>"Aux quatre coins de ton vetement"</b> (Deuteronome 22:12), d'ou l'on peut deduire : <b>Quatre, mais pas trois,</b> c'est-a-dire qu'un vetement a trois coins est exempte de l'obligation des franges rituelles. On peut se demander : <b>Ou</b> peut-etre que <b>il s'agit seulement</b> de specifier <b>quatre, mais pas cinq ? Quand il est dit</b> dans le meme verset : <b>"Avec lequel vous vous couvrez"</b>, un vetement <b>de cinq</b> coins <b>est mentionne</b> comme obligatoire. Si tel est le cas, <b>comment puis-je realiser</b> le sens de : <b>"Quatre</b> coins" ? Cela signifie <b>quatre, mais pas trois. Et qu'avez-vous vu</b> qui vous a conduit <b>a inclure</b> un vetement <b>de cinq</b> coins <b>et a exclure</b> un vetement <b>de trois</b> coins ? <b>J'inclus</b> un vetement <b>de cinq</b> coins <b>comme quatre est inclus dans cinq, et j'exclus</b> un vetement <b>de trois</b> coins <b>comme quatre n'est pas inclus dans trois.</b>
+
+### Partie 8
+<b>Et il est enseigne</b> dans <b>un autre</b> <i>baraita</i> que le verset dit : <b>"Aux quatre coins de ton vetement"</b>, d'ou l'on peut deduire : <b>Quatre, mais pas trois,</b> et aussi <b>quatre, mais pas cinq,</b> c'est-a-dire que seul un vetement a quatre coins est obligatoire dans la mitsva des franges rituelles. Rabbi Yirmeya poursuit : <b>Quoi, n'est-ce pas</b> que ces <i>tannaim</i> <b>sont en desaccord par rapport a cela : Que</b> un <b>Sage,</b> qui juge exempt un vetement a cinq coins, <b>tient</b> que <b>un element supplementaire</b> <b>est considere comme s'il existait</b> et ne peut etre ignore, <b>et</b> un <b>Sage,</b> qui le juge obligatoire, <b>tient</b> qu'il <b>est considere comme s'il n'existait pas</b> et que le vetement n'a que quatre coins ? En consequence, le premier Sage juge impropre un vetement sacerdotal trainant, puisqu'on ne peut ignorer le tissu supplementaire, tandis que le second Sage le juge convenable puisque le tissu supplementaire est traite comme immateriel.
+
+### Partie 9
+La Guemara repond : <b>Non, tout le monde</b> s'accorde a dire qu'une piece supplementaire d'un vetement <b>est consideree comme si elle existait,</b> et donc que les vetements trainants sont impropres. <b>Et</b> selon le <i>tanna</i> de la deuxieme <i>baraita</i>, il <b>est different ici,</b> en ce qui concerne les franges rituelles, <b>car le Misericordieux amplifie</b> la <i>halakha</i> pour obliger meme les vetements a cinq coins avec les mots <b>"avec lesquels tu te couvres".</b>
+
+### Partie 10
+La Guemara demande : <b>Et l'autre</b> Sage, qui juge exempts les vetements a cinq coins, <b>que fait-il de ce</b> verset : <b>"Avec lesquels tu te couvres"?</b> La Gemara repond : <b>Il l'exige pour ce qui est enseigne</b> dans une <i>baraita</i> : Le verset dit : "Et elle vous servira de frange, <b>afin que vous puissiez la regarder"</b> (Nombres 15:39). La phrase :" Pour que vous puissiez la regarder" sert A <b>exclure un vêtement de nuit</b> de l'obligation des franges rituelles, car les franges d'un tel vêtement ne peuvent être vues. On peut se demander : <b>Ou est-ce seulement</b> pour <b>exclure le vetement d'un aveugle,</b> qui ne peut pas voir les franges rituelles ? <b>Lorsqu'il est dit</b> dans le verset : <b>"Avec lequel tu te couvres"</b> (Deuteronome 22:12), l'obligation des franges rituelles pour <b>le vetement d'un aveugle est mentionnee.</b> Si c'est le cas, <b>comment puis-je realiser</b> le sens de la phrase : <b>"Pour que vous puissiez le regarder"</b> Elle sert a <b>exclure un vetement de nuit.</b>
+
+### Partie 11
+Le <i>baraita</i> poursuit : <b>Et qu'as-tu vu</b> qui t'a conduit <b>a inclure le vetement d'un aveugle et a exclure un vetement de nuit</b> et non l'inverse ? <b>J'inclus le vetement d'un aveugle parce qu'il est</b> au moins <b>visible pour les autres, et j'exclus un vetement de nuit parce qu'il n'est pas visible,</b> meme <b>pour les autres.</b>
+
+### Partie 12
+La Gemara demande : <b>Et l'autre</b> Sage, qui deduit qu'un vetement a cinq coins necessite des franges rituelles de la phrase :" Avec lequel tu te couvres", d'ou deduit-il que le vetement d'un aveugle necessite des franges rituelles ? La Guemara repond : <b>Il le deduit</b> du mot <b>"qui"</b> dans la phrase, car ce terme lui-meme connote une amplification de la <i>halakha</i>. La Guemara demande : <b>Et</b> que fait <b>l'autre</b> Sage avec ce mot ? La Guemara repond : <b>Il n'interprete pas</b> le mot <b>"qui"</b> comme une amplification.
+
+### Partie 13
+§ <b>Les Sages ont enseigne</b> a propos des vetements sacerdotaux que le terme : "Linen [<i>mauvais</i> ]" (Levitique 6:3), utilise dans le verset indique plusieurs proprietes de ces vetements : Le verset dit <b>"linen"</b> pour indiquer <b>qu'ils</b> doivent <b>etre</b> faits <b>de lin fin [<i>butz</i>] ; "linen," qu'ils</b> doivent <b>etre neufs ; "linen," que</b> leur fil doit <b>etre torsade</b> de plusieurs plis ; <b>"linen," que leur fil</b> doit <b>etre plie six</b> fois ; <b>"linen," que</b> le pretre ne peut <b>pas porter de vetements non sacres</b> avec eux. </b>
+
+### Partie 14
+<b>Abaye dit a Rav Yosef : Accorde,</b> la declaration <b>qu'ils</b> doivent <b>etre de lin fin</b> est comprise ; <b>cette exigence</b> nous <b>enseigne</b> que s'ils sont de <b>lin fin</b> ils <b>sont</b> aptes, mais s'ils sont de <b>autre chose</b> ils ne le sont <b>pas. Mais</b> en ce qui concerne l'affirmation : <b>Linen, qu'ils</b> doivent <b>etre neufs,</b> on peut en deduire que s'ils sont <b>neufs</b> ils <b>sont</b> aptes mais s'ils sont <b>dechires</b> ils ne le sont <b>pas. Mais n'est-il pas enseigne</b> dans le <i>baraita</i> (18a) que meme s'ils etaient <b>effiloches</b> ils <b>sont aptes ?</b>
+
+### Partie 15
+Rav Yosef lui <b>dit : Et selon votre raisonnement</b> selon lequel le <i>baraita</i> entend faire deriver toutes ces exigences du mot lin, de sorte que toutes ces exigences sont indispensables, comment comprendre l'exigence : <b>Lin, que leur fil</b> doit <b>etre plie six</b> fois ? Le mot <b><i>bad</i></b> lui-meme <b>signifie chacun de son cote</b> (voir Exode 30:34). <b>Voici plutot</b> ce que dit la <i>baraita</i> <b>:</b> Ces <b>vetements a propos desquels il est dit : Lin, doivent etre</b> faits <b>de lin fin,</b> et ils doivent etre <b>neufs</b> et <b>tordus,</b> et <b>leur fil</b> doit <b>etre plie six</b> fois. <b>Certaines de</b> ces exigences constituent <b>une mitzva</b> <i>ab initio</i>, et <b>certaines sont indispensables.</b>
+
+### Partie 16
+La Gemara demande : <b>D'ou sait-on</b> <b>que cette</b> matiere <b><i>mauvaise</i> est</b> produite a partir de la plante <b>du lin</b> ? <b>Rabbi Yosef, fils de Rabbi Hanina, dit :</b> Le verset fait reference a <b>un article qui pousse du sol</b> avec <b>chaque</b> tige poussant <b>sur elle-meme [<i>bad bevad</i>],</b> c'est-a-dire qu'elle ne se divise pas en plusieurs tiges. La plante de lin remplit ce critere.
+
+### Partie 17
+La Guemara demande : Pourquoi ne pas <b>dire</b> qu'il s'agit de <b>laine ?</b> La Gemara repond : Les fibres individuelles de <b>laine</b> se <b>separent</b> en fibres plus petites. La Guemara rejette cette affirmation : Mais le lin se divise aussi. La guemara repond : <b>Il se fend</b> uniquement <b>en etant frappe.</b> La laine, par contre, se fend naturellement.
+
+### Partie 18
+<b>Ravina dit</b> que l'identite de <i>bad</i> est derivee <b>d'ici :</b> Le verset indique a propos des vetements sacerdotaux : <b>"Ils auront des couronnes de lin [<i>pishtim</i>] sur la tete, et des culottes de lin sur les reins ; ils ne se ceindront pas de <i>yaza</i>"</b> (Ezechiel 44:18). Le mot <i>pishtim</i> fait clairement reference au lin.
+
+### Partie 19
+<b>Rav Ashi a dit a Ravina : Mais avant la venue d'Ezechiel, d'ou avons-nous</b> tire l'identite de <i>bad</i> ? Ravina a repondu : <b>Et selon votre raisonnement,</b> on pourrait demander la meme chose de <b>ce que Rav Hisda a dit</b> en ce qui concerne l'interdiction du service au Temple par quelqu'un qui est incirconcis ou apostat : <b>Nous n'avons pas appris cette</b> question suivante de la Torah de Moise, notre maitre ; nous l'avons</b> appris <b>des paroles d'Ezechiel, fils de Buzi : "Aucun etranger, incirconcis de cœur ou incirconcis de chair, n'entrera dans Mon Sanctuaire pour Me servir"</b> (Ezechiel 44:9). <b>Jusqu'a la venue d'Ezechiel, d'ou avons-nous</b> tire cela ? <b>Au contraire,</b> cette <i>halakha</i> <b>est apprise comme une tradition</b> et a donc ete observee pendant des generations, <b>et Ezechiel est venu et lui a donne un appui en</b> ecrivant <b>un verset. Ici aussi, elle est apprise comme une tradition,</b> et Ezechiel est venu et l'a soutenue en ecrivant un verset.
+
+### Partie 20
+La Gemara demande : <b>Quel est le sens de la phrase dans le verset : <b>"Ils ne se ceindront pas de <i>yaza</i>" ? Abaye a dit : Ils ne se ceindront pas dans un endroit</b> dans <b>lequel</b> les gens <b>sudent [<i>meziin</i>]. Comme il est enseigne</b> dans une <i>baraita</i> : <b>Lorsqu'ils se ceignent</b> de la ceinture, <b>ils ne doivent pas se ceindre</b> <b>au-dessous des reins ni au-dessus des coudes,</b> mais <b>plutot</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

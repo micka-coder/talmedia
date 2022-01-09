@@ -1,0 +1,51 @@
+
+### Partie 1
+c'est dans un cas <b>ou l'on avait</b> une personne critique <b>de facture</b> dans son foyer <b>alors qu'il faisait encore jour,</b> avant Chabbat, car il est permis d'abattre l'animal pour une telle personne meme le Chabbat. Par consequent, l'animal non abattu n'a pas ete mis de cote pour etre utilise.
+
+### Partie 2
+La Guemara demande : <b>Si c'est le cas, quelle est la raison pour laquelle Rabbi Yehuda a interdit</b> la consommation de la viande le Chabbat ? La Guemara repond : Il a emis cette decision dans un cas <b>ou l'on avait</b> une personne <b>malade</b> dans son foyer avant Chabbat <b>et</b> cette personne <b>recuperee.</b> Dans ce cas, bien que l'animal non abattu n'ait pas ete mis de cote au debut de Chabbat, il est interdit de l'abattre a Chabbat. Selon Rabbi Yehuda, s'il l'a abattu sans le vouloir, sa consommation est interdite le Chabbat.
+
+### Partie 3
+<b>Et</b> ce que le Rav a fait taire le <i>tanna</i> pour ne pas dire qu'un animal non abattu est mis a l'ecart de l'utilisation, meme lorsque le travail interdit de l'abattage a ete effectue a son insu, est <b>conforme a ce que dit le Rav Aha bar Adda</b> que <b>Rav dit, et certains disent</b> que c'est ce que dit le <b>Rabbi Yitzhak bar Adda</b> que <b>Rav dit : </b> Dans le cas de <b>celui qui abat</b> un animal <b>pour</b> nourrir <b>une personne malade</b> <b>a Shabbat,</b> il est <b>interdit a une personne saine</b> de prendre part a l'animal abattu a Shabbat. Dans le cas de <b>celui qui cuisine</b> de la nourriture <b>pour</b> nourrir <b>une personne malade</b> <b>a Shabbat,</b> il est <b>permis a une personne saine</b> de prendre part a cette nourriture.
+
+### Partie 4
+<b>Quelle est la raison</b> de cette distinction ? <b>Cet aliment</b> <b>etait propre a etre mache</b> avant d'etre cuit, et donc il n'a pas ete mis de cote au debut du Chabbat, <b>et</b> la viande de <b>cette</b> bete <b>n'etait pas propre a etre machee</b> avant que l'animal ne soit abattu, et donc elle a ete mise de cote au debut du Chabbat.
+
+### Partie 5
+<b>Rav Pappa dit : </b> Il y a des <b>moments ou l'on abat</b> pour une personne malade a Shabbat et ou il est <b>permis</b> a une personne en bonne sante de manger la viande a Shabbat, comme par exemple <b>lorsqu'il avait</b> une personne <b>malade</b> dans son foyer avant Shabbat et que l'animal a ete designe pour etre abattu <b>alors qu'il faisait encore jour,</b> avant Shabbat ; dans ce cas, il n'a pas ete mis de cote. Et il arrive que l'on <b>cuisse</b> le Chabbat pour une personne malade et qu'il soit <b>interdit</b> a une personne en bonne sante de manger cet aliment le Chabbat, comme par exemple <b>lorsqu'on coupe une courge</b> qui etait attachee au sol <b>pour</b> la personne malade le Chabbat. Parce qu'il est interdit de detacher la calebasse le Chabbat, elle est mise de cote et interdite.
+
+### Partie 6
+<b>Rav Dimi de Nehardeâ dit</b> que <b>la <i>halakha</i></b> est : Dans le cas de <b>celui qui egorge pour une personne malade</b> <b>pendant Chabbat,</b> il est <b>permis a une personne saine</b> <b>de</b> manger la <b>viande crue [<i>beumtza</i>]. Quelle est la raison</b> pour laquelle cela est permis ? <b>Puisqu'il est impossible qu'une olive-bulle de viande</b> soit permise <b>sans l'abattage</b> de l'animal entier, <b>quand il abat</b> l'animal, <b>il l'abat</b> <b>avec la personne malade</b> <b>en tete.</b> Puisque l'abattage de l'animal a ete permis, toute sa viande est permise meme pour une personne en bonne sante. Dans le cas de <b>celui qui fait la cuisine pour une personne malade</b> <b>a Shabbat,</b> il est <b>interdit a une personne saine</b> de manger cette nourriture a Shabbat. Quelle est la raison de cette interdiction ? Elle est due a un <b>decret rabbinique de peur qu'il n'augmente</b> la quantite de nourriture qu'il cuisine <b>pour le compte</b> de la personne saine.
+
+### Partie 7
+<strong>MISHNA :</strong> Dans le cas de <b>celui qui abat</b> un animal <b>avec</b> le cote lisse d'une faucille a main,</b> qui a un cote lisse et un cote dentele, ou <b>avec</b> un <b>silex aiguise, ou avec un roseau</b> coupe dans le sens de la longueur et aiguise, <b>son abattage est valable.</b>
+
+### Partie 8
+<b>Tous les abattages [<i>hakkol shohatin</i>], et on peut toujours abattre, et on peut abattre avec tout</b> objet qui coupe, <b>sauf</b> le cote dentele de <b>la faucille de recolte, une scie, les dents</b> d'un animal lorsqu'elles sont attachees a sa machoire, <b>et un ongle, car</b> ils sont denteles et <b>ils</b> par consequent <b>etranglent</b> l'animal et ne coupent pas sa trachee et son oesophage comme cela est requis.
+
+### Partie 9
+<strong>GEMARA:</strong> La Gemara note que le langage de la mishna, qui stipule : <b>Qui abat</b> un animal avec une faucille a main, avec un silex, ou avec un roseau, plutot que : On peut abattre, indique que <b>apres coup, oui,</b> l'abattage est valable, mais on ne peut <b>pas</b> abattre avec ces lames <b><i>ab initio</i>.</b> La Gemara demande : <b>Accorde,</b> on ne peut pas l'egorger <b>avec une faucille a main, de peur qu'il ne vienne a effectuer</b> l'egorgement <b>avec l'autre, </b> dentele, <b>cote ; mais</b> comme <b>un silex et un roseau</b> n'ont pas de cote dentele, est-ce qu'on peut <b>ne pas</b> egorger avec ceux-la <b><i>ab initio</i> ? Et</b> la Gemara <b>souleve une contradiction</b> a partir d'une <i>baraita</i> : <b>On peut abattre avec tout</b> objet qui coupe, <b>que ce soit avec un silex, ou avec des eclats de verre</b>, <b>ou avec la tige d'un roseau.</b>
+
+### Partie 10
+La Guemara repond : Ceci n'est <b>pas difficile. La,</b> ou la <i>baraita</i> permet l'abattage <i>ab initio</i>, elle fait reference a l'abattage avec un silex et un roseau <b>lorsque</b> ils sont <b>detaches. Ici,</b> ou la mishna dit que l'abattage n'est valable qu'apres coup, elle fait reference a l'abattage avec un silex et un roseau <b>lorsqu'ils sont <b>attaches</b> au sol, <b>comme le dit Rav Kahana : </b> Dans le cas de <b>celui qui egorge avec</b> une lame qui est <b>attachee au sol, Rabbi</b> Yehuda HaNasi <b>juge</b> l'abattage <b>non valide et Rabbi Hiyya le juge</b> <b>valide. </La Guemara en deduit : Meme <b>Rabbi Hiyya juge</b> l'abattage <b>valide seulement apres coup ; mais</b> on ne peut <b>pas</b> le faire <b><i>ab initio</i>.</b>
+
+### Partie 11
+<b>Selon quelle</b> opinion <b>vous avez interprete</b> la mishna ? Est-ce <b>conformement</b> a l'opinion de <b>Rabbi Hiyya, et</b> l'abattage est valable <b>apres coup ? Mais</b> si oui, en ce qui concerne <b>ce qui est enseigne</b> dans une <i>baraita</i> : <b>On peut abattre avec tout</b> objet qui coupe, <b>que ce soit avec</b> une lame qui est <b>detachee</b> du sol <b>ou avec</b> une lame qui est <b>attachee</b> au sol, <b>que le couteau soit en haut et le cou de l'animal en bas ou que le couteau soit en bas et le cou de l'animal en haut;</b> conformement a <b>quelle</b> opinion est-ce ? Il est conforme <b>ni</b> a l'avis du <b>Rabbi</b> Yehuda HaNasi <b>ni</b> a l'avis du <b>Rabbi Hiyya. Si</b> on pretendait qu'il est conforme a l'avis du <b>Rabbi Hiyya,</b> il dit : <b>Apres coup, oui,</b> l'abattage est valable, mais il n'est <b>pas</b> permis d'abattre de cette maniere <b><i>ab initio</i>. Si</b> on pretendait que c'est conforme a l'avis du <b>Rabbi</b> Yehuda HaNasi, il dit : <b>Meme apres coup,</b> l'abattage n'est <b>pas</b> valide.
+
+### Partie 12
+La Guemara repond : <b>En fait,</b> la <i>baraita</i> est conforme a l'avis du <b>Rabbi Hiyya, et</b> il autorise l'abattage avec ces lames <b>meme <i>ab initio</i>. Et</b> le fait <b>que</b> les avis de Rabbi Yehuda HaNasi et de Rabbi Hiyya ont ete formules de telle sorte qu'ils <b>sont en desaccord</b> concernant la <i>halakha</i> <b>apres le fait</b> est <b>pour vous transmettre la portee considerable de</b> l'avis de <b>Rabbi</b> Yehuda HaNasi selon lequel l'abattage n'est pas valide meme apres le fait.
+
+### Partie 13
+<b>Mais plutot la mishna</b> ici, <b>qui enseigne :</b> En ce qui concerne <b>celui qui egorge, apres le fait, oui,</b> c'est valable, mais ce n'est <b>pas <i>ab initio</i>,</b> conformement a <b>l'opinion de qui</b> ? Elle n'est conforme <b>ni</b> a l'avis du <b>Rabbi</b> Yehuda HaNasi <b>ni</b> a l'avis du <b>Rabbi Hiyya. Si</b> on pretend que c'est conforme a l'avis du <b>Rabbi Hiyya,</b> il dit : L'abattage est permis <b>meme <i>ab initio</i>. Si</b> on pretendait que c'est conforme a l'avis du <b>Rabbi</b> Yehuda HaNasi, il dit : <b>Meme apres coup,</b> l'abattage n'est <b>pas</b> valide.
+
+### Partie 14
+La Guemara repond : <b>En fait, Rabbi Hiyya</b> soutient qu'il est permis d'egorger avec ces lames, <b>et meme <i>ab initio</i> ; et la mishna</b> ici, <b>qui enseigne : Celui qui egorge, est</b> conforme a l'opinion de <b>Rabbi</b> Yehuda HaNasi.
+
+### Partie 15
+La Gemara objecte : Ceci est <b>difficile,</b> car il y a une contradiction <b>entre</b> une declaration de <b>Rabbi</b> Yehuda HaNasi <b>et</b> une autre declaration <b>de Rabbi</b> Yehuda HaNasi, car dans son differend avec Rabbi Hiyya, il soutient que l'abattage n'est pas valide. La Guemara repond : Cette contradiction n'est <b>pas difficile. La,</b> dans sa dispute avec Rabbi Hiyya, Rabbi Yehuda HaNasi soutient que l'abattage n'est pas valide dans un cas <b>ou</b> la lame etait <b>attachee des le depart ; ici,</b> dans la mishna, Rabbi Yehuda HaNasi juge l'abattage valide apres coup dans un cas <b>ou la lame etait <b>detachee et finalement il l'a rattachee.</b>
+
+### Partie 16
+La Gemara demande : <b>Et d'ou dites-vous que</b> il y a <b>une difference pour nous entre</b> une lame qui etait <b>attachee des le depart</b> et une lame qui etait <b>attachee et finalement il l'a rattachee ? Comme il est enseigne</b> dans un <i>baraita</i> : En ce qui concerne <b>celui qui egorge avec un mecanisme [<i>bemukhni</i>]</b> d'une roue a laquelle est attache un couteau, <b>son abattage est valable ; avec</b> un objet qui est <b>attache au sol, son abattage est valable ;</b> si <b>quelqu'un a encastre un couteau dans un mur et a abattu avec, son abattage est valable. </b> S'il y avait <b>un silex emergeant d'un mur ou un roseau surgissant</b> du sol <b>par lui-meme et qu'il a abattu avec, son abattage n'est pas valide.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

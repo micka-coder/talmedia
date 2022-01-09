@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And Reish Lakish says,</b> in explanation of Rabbi Shimon’s statement: <b>Rabbi Shimon would say</b> that the red <b>heifer can be redeemed</b> with money even when it has already been slaughtered <b>upon its pyre,</b> i.e., for the sake of purification. For this reason Rabbi Shimon claimed that the meat had a time when it was fit for consumption, as it can be rendered permitted for consumption through redemption. The Gemara states its conclusion: <b>Evidently,</b> Rabbi Shimon holds that <b>any</b> animal <b>that is ready to be redeemed is considered</b> as though it has already been <b>redeemed.</b>
+
+### Part 2
+The Gemara discusses the relative merits of the answers provided by Rabbi Yoḥanan and Reish Lakish: <b>Granted, Rabbi Yoḥanan did not state</b> an answer <b>in accordance with</b> that of <b>Rabbi Shimon ben Lakish,</b> i.e., Reish Lakish, that the mishna is referring to a blemished animal, <b>because he wants to interpret the mishna</b> as dealing with all kinds of sacrificial animals, <b>even with unblemished</b> ones. <b>But what is the reason</b> that <b>Reish Lakish did not state</b> an answer <b>in accordance with</b> that of <b>Rabbi Yoḥanan?</b>
+
+### Part 3
+Reish Lakish could have <b>said to you</b> that the verse states: “If a man steals an ox or a sheep, <b>and slaughters it or sells it”</b> (Exodus 21:37). This verse compares slaughtering to selling, thereby indicating that <b>anywhere that</b> the fourfold or fivefold payment <b>is</b> applicable <b>for</b> the <b>sale</b> of a particular animal <b>it is</b> likewise applicable <b>for</b> its <b>slaughter, and anywhere that</b> the fourfold or fivefold payment <b>is not</b> applicable <b>for</b> the <b>sale</b> of an animal <b>it is not</b> applicable <b>for</b> its <b>slaughter</b> either. <b>And</b> with regard to <b>this</b> case of <b>sacrificial</b> animals, <b>since when one sells sacrificial</b> animals <b>it is not</b> a valid <b>sale,</b> and no fourfold or fivefold payment is incurred, so too, <b>there is no</b> fourfold or fivefold payment for their <b>slaughter.</b>
+
+### Part 4
+<b>And</b> these two Sages <b>follow their</b> own lines of <b>reasoning. As it was stated: According to the statement of Rabbi Shimon</b> that an act of slaughter that is not fit for accomplishing its full ritual purpose is not considered an act of slaughter at all and does not entail liability to pay the fourfold or fivefold payment, in the case of a thief who <b>sells</b> a stolen <b>animal with a wound that will cause it to die within twelve months [<i>tereifa</i>], Rabbi Yoḥanan says:</b> The thief is <b>liable</b> to pay the fourfold or fivefold payment if he sells the animal rather than slaughters it. <b>And Reish Lakish says:</b> He is <b>exempt.</b>
+
+### Part 5
+The Gemara elaborates: <b>Rabbi Yoḥanan says</b> that he is <b>liable,</b> as <b>even though</b> the fourfold or fivefold payment <b>is not</b> applicable <b>for the slaughter</b> of a <i>tereifa</i> according to the opinion of Rabbi Shimon, as its meat may not be eaten, nevertheless, <b>it is</b> applicable <b>for</b> its <b>sale. And Reish Lakish says</b> that the thief is <b>exempt,</b> as, <b>since</b> the fourfold or fivefold payment <b>is not</b> applicable <b>for</b> the <b>slaughter</b> of a <i>tereifa</i> according to Rabbi Shimon, <b>it is not</b> applicable <b>for</b> its <b>sale</b> either.
+
+### Part 6
+<b>Rabbi Yoḥanan raised an objection to</b> the opinion of <b>Rabbi Shimon ben Lakish</b> from the following <i>baraita</i>: If one <b>stole</b> an animal of <b>diverse kinds,</b> e.g., a sheep-goat hybrid, <b>and slaughtered it,</b> or if he stole <b>a <i>tereifa</i> and sold it, he pays</b> the <b>fourfold or fivefold payment. What, is it not</b> correct to say that this <i>baraita</i>, which mentions the case of selling a stolen <i>tereifa</i> but not slaughtering it, <b>is</b> in accordance with the opinion of <b>Rabbi Shimon? Apparently,</b> according to Rabbi Shimon, <b>even though</b> the fourfold or fivefold payment <b>is not</b> applicable <b>for</b> the <b>slaughter</b> of a <i>tereifa</i>, <b>it is</b> nevertheless applicable <b>for</b> its <b>sale.</b>
+
+### Part 7
+Reish Lakish <b>said to</b> Rabbi Yoḥanan in response: <b>No;</b> this <i>baraita</i> is not taught in accordance with the opinion of Rabbi Shimon. Rather, it follows the opinion of <b>the Rabbis,</b> who disagree with Rabbi Shimon and maintain that a thief is liable for the fourfold or fivefold payment for slaughtering an animal even if the act of slaughter does not render its meat fit for consumption, as in the case of a <i>tereifa</i>.
+
+### Part 8
+The Gemara asks: <b>If</b> the <i>baraita</i> reflects the opinion of <b>the Rabbis,</b> why does it mention the sale of a <i>tereifa</i> but not its slaughter? According to the opinion of the Rabbis, <b>is</b> the fourfold or fivefold payment applicable <b>for</b> the <b>sale</b> of <b>a <i>tereifa</i></b> while <b>it is not</b> applicable <b>for</b> its <b>slaughter?</b> This is certainly not the case.
+
+### Part 9
+The Gemara responds with a counter-question: <b>Rather, what</b> would you say, that the <i>baraita</i> reflects the opinion of <b>Rabbi Shimon?</b> The same difficulty could be raised in the case of <b>diverse kinds,</b> as the <i>baraita</i> mentions the animal’s slaughter but not its sale: <b>Is</b> the fourfold of fivefold payment applicable <b>for</b> the <b>slaughter</b> of an animal of diverse kinds, while <b>it is not</b> applicable <b>for</b> its <b>sale?</b> There is certainly no difference between slaughtering and selling in this case.
+
+### Part 10
+<b>Rather,</b> one cannot make such inferences from the <i>baraita</i>, as it <b>teaches</b> liability with regard to the <b>slaughter</b> of diverse kinds, <b>and the same is true</b> with regard <b>to</b> its <b>sale.</b> If so, one can <b>say</b> the same <b>for</b> the opinion of <b>the Rabbis as well:</b> The <i>baraita</i> <b>teaches</b> liability with regard to the <b>sale</b> of a <i>tereifa</i>, <b>and the same is true</b> with regard <b>to</b> its <b>slaughter.</b> Once the <i>baraita</i> is interpreted in accordance with the opinion of the Rabbis and not that of Rabbi Shimon, it has no bearing on the dispute between Rabbi Yoḥanan and Reish Lakish.
+
+### Part 11
+<b>And Rabbi Yoḥanan</b> could <b>say to you: What</b> is <b>this</b> comparison? <b>Granted, if you say</b> that the <i>baraita</i> reflects the opinion of <b>Rabbi Shimon,</b> and that is why it referred specifically to the sale of a <i>tereifa</i>, the <i>baraita</i> can be explained: <b>Since it</b> necessarily <b>taught</b> the case of <b><i>tereifa</i> in</b> only <b>one</b> manner, that of selling, it maintained the same style of presentation and <b>taught</b> the case of <b>diverse kinds in</b> only <b>one</b> manner, that of slaughtering.
+
+### Part 12
+<b>But if you say</b> that the <i>baraita</i> is in accordance with the opinion of <b>the Rabbis,</b> there is no reason for it to present just one scenario in either case. Rather, <b>let</b> the <i>baraita</i> <b>combine them and teach them</b> in a single sentence: <b>If one stole</b> an animal of <b>diverse kinds or a <i>tereifa</i></b> and then <b>slaughtered or sold</b> either one of <b>them, he pays</b> the <b>fourfold or fivefold payment.</b> The Gemara concludes: This is <b>difficult</b> according to the opinion of Reish Lakish.
+
+### Part 13
+§ The <i>baraita</i> teaches that a thief is liable to pay the fourfold or fivefold payment in the case of an animal of <b>diverse kinds.</b> The Gemara asks: It is <b>written</b> in the Torah: “If a man steals an ox or <b>a sheep [<i>seh</i>]”</b> (Exodus 21:37), <b>and Rava says,</b> concerning the verse: “These are the animals that you may eat: The ox, the <i>seh</i> of a sheep, and the <i>seh</i> of a goat” (Deuteronomy 14:4), that <b>this</b> verse <b>establishes a paradigm</b> for other cases: <b>Wherever</b> the word <b><i>seh</i> is stated</b> in the Torah, <b>it</b> serves <b>to exclude only</b> an animal of <b>diverse kinds.</b> The Hebrew word <i>seh</i> denotes either a sheep or a goat. A hybrid, which is neither a sheep nor a goat, does not qualify as a <i>seh</i>. Why, then, is the fourfold or fivefold payment applicable to one who stole this kind of animal?
+
+### Part 14
+The Gemara answers: <b>It is different here,</b> in the case of the fourfold or fivefold payment, <b>as the verse states “or”</b> (Exodus 21:37), a term that could have been avoided, as explained earlier (67b). This extra word serves <b>to include</b> an animal of <b>diverse kinds,</b> i.e., the sheep-goat hybrid.
+
+### Part 15
+The Gemara asks: <b>And</b> does <b>every</b> instance of the word <b>“or”</b> serve <b>to include</b> diverse kinds? <b>But isn’t it taught</b> in a <i>baraita</i>: It is written: “When a bull or a sheep or a goat is born, it shall be seven days under its mother and from the eighth day onward it may be accepted as a fire-offering to the Lord” (Leviticus 22:27). The phrase <b>“a bull or a sheep”</b> serves to <b>exclude diverse kinds,</b> i.e., an animal of diverse kinds may not be brought as an offering. The phrase <b>“or a goat”</b> serves to <b>exclude</b> an animal that <b>resembles</b> another, i.e., a sheep that is the offspring of two sheep but that looks like a goat, or vice versa.
+
+### Part 16
+<b>Rava said</b> in response: The derivation from the word “or” depends on the verse in question. <b>Here,</b> it is interpreted <b>based on the context of the verse, and there,</b> it is also interpreted <b>based on the context of the verse. Here, with regard to theft,</b> the reason the word “or” serves as an inclusion is <b>that it is written: “An ox or a sheep,”</b> which are two animals <b>from which you cannot produce diverse kinds,</b> as they cannot procreate together, and therefore the word <b>“or”</b> serves <b>to include</b> an animal of <b>diverse kinds.</b> By contrast, <b>with regard to sacrificial</b> animals, the reason the word “or” serves as an exclusion is <b>that it is written “sheep” and “goat,”</b> which are two animals <b>from which you can produce diverse kinds.</b> Consequently, the word <b>“or”</b> serves <b>to exclude</b> diverse kinds.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

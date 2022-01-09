@@ -1,0 +1,60 @@
+
+### Part 1
+If one vowed that it is incumbent upon him to donate <b>his width, what is</b> the <i>halakha</i>? Likewise, if one vowed to donate <b>his sitting, what is</b> the <i>halakha</i>? If he referred to <b>his thickness, what is</b> the <i>halakha</i>? Finally, if he spoke of <b>his girth, what is</b> the <i>halakha</i>? The Gemara states that these dilemmas <b>shall stand</b> unresolved.
+
+### Part 2
+§ The mishna teaches that there is a dispute between Rabbi Yehuda and Rabbi Yosei concerning one who says: It is incumbent <b>upon me</b> to donate the <b>weight of my forearm,</b> as to how he ascertains the weight of his forearm. <b>The Sages taught</b> this dispute in greater detail in a <i>baraita</i> (<i>Tosefta</i> 3:2): With regard to one who says: It is incumbent <b>upon me</b> to donate the <b>weight of my forearm, and</b> with regard to one who says: It is incumbent <b>upon me</b> to donate the <b>weight of my leg, Rabbi Yehuda says: He brings a barrel and fills</b> it with <b>water, and</b> he <b>inserts</b> his <b>forearm up to the elbow or</b> his <b>leg up to the knee,</b> into the water.
+
+### Part 3
+<b>And</b> in order to measure the displacement, <b>he weighs donkey flesh, sinews, and bones, and places</b> it <b>into the barrel until it fills,</b> and the water reaches the same level as it was when his arm or leg was inserted. <b>And even though there is no proof for the matter,</b> that donkey flesh weighs the same as human flesh, nevertheless there is <b>an allusion to the matter, as it is stated: “Whose flesh is as the flesh of donkeys”</b> (Ezekiel 23:20).
+
+### Part 4
+<b>Rabbi Yosei said to</b> Rabbi Yehuda: Displacement is according to volume, not according to weight, and <b>how</b> then <b>is it possible to match</b> the amount of the donkey <b>flesh with the flesh</b> in one’s forearm, <b>the sinews with the sinews, and the bones with the bones? Rabbi Yehuda said to him:</b> One <b>estimates. Rabbi Yosei said to him: If one estimates, let one estimate</b> the weight of <b>the forearm</b> directly. <b>And</b> how does <b>Rabbi Yehuda</b> respond to Rabbi Yosei? Rabbi Yehuda holds that <b>we do whatever is possible</b> in order to be more precise.
+
+### Part 5
+The <i>Tosefta</i> teaches with regard to one who says: It is incumbent upon me to donate the weight of my forearm [<i>yad</i>], that Rabbi Yehuda says: He brings a barrel and fills it with water and inserts his <b>forearm up to the elbow.</b> This indicates that the term <i>yad</i> denotes the forearm until the elbow. <b>And</b> the Gemara <b>raises a contradiction</b> from another <i>baraita</i> (<i>Tosefta</i>, <i>Yadayim</i> 2:1): Since it is written: “And Aaron and his sons shall wash their hands [<i>yedeihem</i>] and their feet” (Exodus 30:19), the priests are obligated to <b>sanctify</b> their <b>hands and feet in the Temple up to the wrist.</b>
+
+### Part 6
+The Gemara answers: The term <i>yad</i> written <b>in the Torah</b> indicates <b>up to the wrist,</b> but <b>with regard to vows</b> one <b>follows</b> the ordinary <b>language of people,</b> in which the word <i>yad</i> is referring to the forearm until the elbow. Consequently, the vow is interpreted in this manner. The Gemara asks: <b>And</b> does the word <i>yad</i> that is written <b>in the Torah</b> mean <b>up to the wrist? But with regard to phylacteries it is written:</b> “And it shall be for a sign to you upon <b>your hand [<i>yadkha</i>]”</b> (Exodus 13:9), <b>and the school of Menashe taught: <i>Yadkha</i>; this</b> is referring to the bulge of the <b>biceps [<i>kibborit</i>]</b> on the upper arm.
+
+### Part 7
+The Gemara answers: Generally, the term <i>yad</i> that is written <b>in the Torah</b> includes the <b>entire biceps</b> area of the upper arm. But <b>with regard to vows</b> one <b>follows</b> the ordinary <b>language of people,</b> in which the word <i>yad</i> means the forearm until the elbow; <b>and</b> with regard to <b>sanctifying the hands and feet in the Temple</b> the <b><i>halakha</i> is learned</b> as a tradition that the word <i>yad</i> is referring only to the hand up to the wrist.
+
+### Part 8
+It is further taught in the <i>Tosefta</i> cited above: His <b>leg [<i>regel</i>] until the knee,</b> which indicates that the term <i>regel</i> is defined as the foot until the knee. <b>And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i>: It is written in the Torah with regard to the obligation to ascend to Jerusalem for the pilgrimage Festivals: “Three <b>times [<i>regalim</i>]</b> you shall keep a feast for Me in the year” (Exodus 23:14). The term <i>regalim</i>, legs, serves to <b>exclude people with artificial legs [<i>ba’alei kabbayin</i>]</b> from this obligation. According to the <i>baraita</i>, one who has a stump in place of his foot is exempt from the pilgrimage. This indicates the term <i>regel</i> is referring to the foot, up to the ankle, not to the entire area below the knee.
+
+### Part 9
+The Gemara explains: The term <i>regel</i> that is written in the Torah is referring to the foot below the ankle, but <b>with regard to vows,</b> one <b>follows</b> the ordinary <b>language of people,</b> in which the word <i>regel</i> means the leg until the knee. The Gemara asks: <b>And</b> does <i>regel</i> written <b>in the Torah</b> mean the foot up to the ankle, and therefore it serves to <b>exclude people with artificial legs?</b>
+
+### Part 10
+<b>But with regard to the ritual by which the <i>yavam</i> frees the <i>yevama</i> of her levirate bonds [<i>ḥalitza</i>], it is written:</b> “Then his brother’s wife shall approach…and loose his shoe from upon <b>his foot [<i>raglo</i>]”</b> (Deuteronomy 25:9), <b>and the Sages taught</b> in a mishna (<i>Yevamot</i> 101a): In the case of a <i>yavam</i> who was missing part of his leg, if the <i>yevama</i> <b>performed the <i>ḥalitza</i></b> on any part of the leg <b>from the knee and below her <i>ḥalitza</i> is valid.</b> This indicates that the term <i>regel</i> in the Torah means the leg from the foot up to the knee.
+
+### Part 11
+The Gemara answers: The term <i>regel</i> in the Torah actually is referring to the foot, below the ankle, and it <b>is different there,</b> with regard to <i>ḥalitza</i>, <b>as the verse states: From upon his foot [<i>raglo</i>],</b> instead of simply stating: From his foot. This indicates that the area that is upon, i.e., above, the foot is also valid for the performance of <i>ḥalitza</i>. The Gemara asks: <b>If that is so,</b> then if the <i>yevama</i> performed <i>ḥalitza</i> <b>above the knee</b> it should <b>also</b> be valid. The Gemara answers that it is written: <b>From upon,</b> to include only the section directly above the foot, i.e., until the knee, <b>and</b> the area above the knee is considered <b>from upon that</b> area <b>that is from upon</b> the foot.
+
+### Part 12
+<b>Rav Pappa said: Conclude from</b> this discussion that <b>the ankle</b> bone <b>[<i>istaveira</i>] descends to the ground</b> and is not separated from the foot. The reason is <b>that if it enters your mind</b> to say it is <b>separated, then the ankle</b> bone is the section of the leg referred to by the phrase: <b>From upon</b> his foot, and the lower <b>leg,</b> i.e., the section of the leg from the ankle up to the knee, is the section of the leg that is called: <b>From upon</b> that <b>which</b> is <b>from upon</b> the foot, and would therefore be invalid for the performance of <i>ḥalitza</i>. <b>Rav Ashi says: Even</b> if <b>you say</b> the ankle is <b>separated</b> from the foot it would still not be referred to as the section that is upon the foot, as <b>anything that is adjacent to the foot is considered like the foot,</b> i.e., it is part of the same section of the leg as the foot.
+
+### Part 13
+<strong>MISHNA:</strong> If one vows: It is incumbent <b>upon me</b> to donate the <b>assessment of my forearm,</b> the court <b>appraises him</b> to determine <b>how much he is worth with a forearm and</b> how much he is worth <b>without a forearm,</b> and he pays the difference. <b>This is</b> a <i>halakha</i> that is more <b>stringent with regard to vows</b> of assessment <b>than with regard to valuations,</b> as one who says: It is incumbent upon me to donate the valuation of my forearm, is exempt from paying.
+
+### Part 14
+<strong>GEMARA:</strong> <b>How do we assess him? Rava said:</b> The court <b>assesses him</b> by means of the same process of <b>assessment</b> used with regard to the <i>halakhot</i> <b>of damages.</b> If one’s hand was severed, the court considers the injured party as though he is a slave being sold in the slave market and appraises how much he was worth before the injury and how much he is worth after the injury. The difference between these two sums is the amount that the guilty party must pay for damages.
+
+### Part 15
+<b>Abaye said to</b> Rava: <b>Are these</b> two assessments <b>comparable? There,</b> with regard to damages, <b>the person has depreciated</b> in value because his hand was severed, and therefore the decline in the assessment is greater for someone with a severed hand than for someone who merely lacks the utility of his hand. <b>Here,</b> with regard to one who vowed to donate the assessment of his forearm, <b>the person</b> himself <b>has good</b> value, as his hand is intact, and if the assessment used with regard to damages is applied to him he would be obligated to pay more than that which he vowed.
+
+### Part 16
+Rather, <b>Abaye said: One assesses how much</b> less <b>a person is willing to pay for a slave who works with one hand than for</b> a slave <b>who works with two hands.</b> The Gemara asks: <b>What is</b> the case of a slave who works with <b>one hand?</b> Isn’t this a situation where <b>the other</b> hand <b>is severed?</b> If so, then <b>this</b> assessment is identical to <b>that</b> which Rava proposed. <b>Rather,</b> one assesses how much more a person is willing to pay for a slave who belongs exclusively to him than for a case where it is <b>written</b> in his bill of sale <b>that</b> his <b>first owner</b> reserves ownership of one <b>hand</b> of the slave.
+
+### Part 17
+§ The mishna in <i>Sanhedrin</i> 2a states that the valuation of a person for the purpose of a vow must be performed by nine judges and one priest. By contrast, the valuation of someone for the purpose of damages is performed by three judges. With this in mind <b>Rava raises a dilemma:</b> If one was damaged by another and the court <b>assesses him</b> by the <b>assessment of damages,</b> i.e., with three judges, <b>and</b> then <b>he says: My assessment</b> is incumbent <b>upon me, what is</b> the <i>halakha</i>? <b>Does</b> one <b>say</b> that as his assessment was already <b>assessed one time</b> for damages, this is the amount he must donate? <b>Or perhaps an assessment</b> performed <b>by ten is different from an assessment</b> performed <b>by three,</b> and therefore it is necessary to repeat the assessment with ten judges.
+
+### Part 18
+<b>If you say an assessment</b> performed <b>by ten is different from an assessment</b> performed <b>by three,</b> then in a case where one <b>says: My assessment</b> is incumbent <b>upon me, and</b> the court <b>assessed him, and</b> then <b>he again says: My assessment</b> is incumbent <b>upon me, what is</b> the <i>halakha</i>? Does one say that <b>here he was certainly assessed by ten</b> and there is no need for another assessment, <b>or perhaps</b> there is a concern that <b>in the interim</b> there might have been <b>an enhancement</b> in his assessment?
+
+### Part 19
+Furthermore, if you say in that case there is a concern that in the interim his assessment might have increased and it is therefore necessary to assess him a second time, then with regard to one who <b>says: My assessment</b> is incumbent <b>upon me, and</b> the court <b>did not</b> yet <b>assess him, and</b> then before the court assesses him <b>he again says: My assessment</b> is incumbent <b>upon me, what is</b> the <i>halakha</i>? Do we say that <b>here certainly</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

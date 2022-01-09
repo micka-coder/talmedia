@@ -1,0 +1,33 @@
+
+### Partie 1
+<Le document de ratification est signe, et il peut etre utilise pour remplacer le document efface.
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> (<i>Tosefta</i>, <i>Bava Metzia</i> 1:16) : <b>Quel est</b> le texte du <b>document de ratification</b> <b>de</b> un document efface ? Le tribunal ecrit comme suit : <b>Nous, untel, untel et untel, siegions a trois</b> juges, et <b>untel, fils d'untel, a produit devant nous un document efface,</b> qui etait ecrit <b>a telle date, et untel et untel</b> en etaient <b>les temoins. Et s'il est ecrit dans</b> ce document de ratification aussi : <b>Nous avons engage</b> l'enquete sur <b>les temoignages des temoins et leurs temoignages se sont reveles</b> etre <b>concordants,</b> le creancier peut <b>recouvrer</b> sa dette sur la base de ce document de ratification, <b>et il n'a pas besoin d'apporter</b> d'autres <b>preuves. Mais si</b> cette formule est <b>non</b> ecrite, le creancier <b>doit apporter</b> d'autres <b>preuves</b> du pret pour le recouvrer.
+
+### Partie 3
+Le <i>baraita</i> continue avec sa discussion sur les documents endommages : Si un billet a ordre a ete <b>dechire</b> intentionnellement, il est <b>non valide,</b> mais s'il <b>est dechire</b> accidentellement, il est <b>valide.</b> Dans le cas ou il <b>a ete efface ou macule, si son empreinte est reconnaissable,</b> c'est-a-dire si les mots sont encore lisibles, bien qu'a peine, il est <b>valide.</b>
+
+### Partie 4
+La Guemara cherche a clarifier les termes de la deuxieme partie de la <i>baraita</i> : <b>Quelles sont les circonstances,</b> c'est-a-dire quelles sont les caracteristiques determinantes, d'un document qui a ete <b>dechire,</b> et <b>quelles sont les circonstances</b> d'un document qui <b>est devenu dechire ? Rav Yehuda repond :</b> Un document qui etait <b>dechire</b> signifie qu'il avait <b>une dechirure</b> creee <b>par le tribunal,</b> parce qu'ils souhaitaient le rendre non valide en raison du paiement du pret ou d'une autre circonstance. Un document qui <b>est devenu dechire</b> signifie qu'il avait <b>une dechirure qui</b> n'a <b>pas</b> ete creee <b>par le tribunal.</b>
+
+### Partie 5
+La Guemara demande des eclaircissements supplementaires : <b>Quelles sont les circonstances,</b> c'est-a-dire quels sont les signes, d'un document qui avait <b>une dechirure</b> creee <b>par le tribunal ? Rav Yehuda dit :</b> Le document a une dechirure qui ruine <b>l'emplacement des signatures des temoins</b> <b>et l'emplacement de la date et l'emplacement de la partie essentielle</b> d'un document. <b>Abaye dit :</b> Il a <b>une dechirure</b> qui va a la fois <b>dans le sens de la longueur et de la largeur.</b>
+
+### Partie 6
+§ La Gemara raconte : Il y avait autrefois <b>un certain</b> groupe d'<b>Arabes qui venaient a Pumbedita</b> et <b>qui volaient les terres des gens</b> et forcaient les victimes a remettre les actes de leur propriete pour eviter toute action judiciaire ulterieure. <b>Les proprietaires de</b> terres qui n'avaient pas encore ete victimes de ces Arabes <b>se presenterent devant Abaye</b> et lui <b>dirent : Que le Maitre regarde nos actes</b> relatifs a notre propriete <b>et qu'il nous ecrive un autre acte pour celle-ci,</b> de sorte <b>que si l'un</b> des actes <b>est vole, nous aurons</b> l'autre <b>en notre possession.</b>
+
+### Partie 7
+Abaye <b>leur a dit : Que puis-je faire pour vous ? </b> Je ne peux pas acceder a votre demande, <b>car Rav Safra dit :</b> On ne peut <b>pas rediger deux actes</b> de propriete <b>pour un champ, de peur</b> que le proprietaire de ce terrain <b>reprenne possession de la propriete</b> une fois <b>et</b> ensuite <b>revenir et la reprendre</b> une nouvelle fois. En general, chaque fois qu'un bien immobilier est vendu, une garantie est donnee a l'acheteur au cas ou le terrain serait repris par le creancier du vendeur ou par quelqu'un d'autre qui prouve que le terrain lui appartient legitimement. Si le vendeur du terrain repris n'a pas d'argent pour honorer la garantie, l'acheteur peut reprendre possession des biens d'autres personnes qui avaient achete des biens au meme vendeur apres la vente du terrain repris. Pour ce faire, il devra produire l'acte de vente prouvant qu'il a achete le bien repris. S'il possede deux actes de ce type, il pourrait percevoir le paiement deux fois. Pour eliminer cette possibilite, les actes de propriete en double ne sont pas rediges.
+
+### Partie 8
+Les proprietaires terriens <b>n'ont cesse de harceler</b> Abaye pour qu'il ecrive les documents en double, jusqu'a ce que, pour s'en debarrasser, <b>il dise a son scribe : Va ecrire</b> le document <b>pour eux,</b> mais d'abord ecrire sur un papier et ensuite l'effacer, et ensuite ecrire le document desire sur le texte efface, de sorte que le texte du document sera ecrit <b>sur une rature, et</b> les signatures de <b>ses temoins</b> seront <b>sur</b> une partie du <b>papier</b> ou l'ecriture n'avait pas ete effacee, une situation dans <b>laquelle</b> le document n'est <b>pas valide.</b>
+
+### Partie 9
+<b>Rav Aha bar Minyumi dit a Abaye : Mais peut-etre</b> la premiere ecriture sur le papier n'a pas ete effacee completement, de sorte que <b>son empreinte est reconnaissable, et il est enseigne</b> dans la <i>baraita</i> que dans un cas ou l'ecriture sur un document <b>a ete effacee ou maculee, si son empreinte est reconnaissable,</b> le document est <b>valide.</b> Abaye <b>lui dit : Ai-je dit</b> qu'il devait ecrire <b>un document correct</b> et ensuite l'effacer ? <b>J'ai dit,</b> c'est-a-dire que j'avais l'intention, qu'il devait <b>seulement</b> ecrire des lettres du <b>alphabet [<i>alef beit</i>],</b> pas des mots reels.
+
+### Partie 10
+§ <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Dans un cas ou quelqu'un <b>se presente</b> au tribunal <b>et dit : Mon billet a ordre a ete perdu, meme si des temoins ont dit : Nous avons ecrit et signe</b> un tel billet a ordre <b>et l'avons donne</b> a</b> cet homme, le tribunal ne peut <b>pas ecrire</b> un nouveau <b>document pour lui.</b> La Gemara demande : <b>Dans quel</b> cas cette declaration est-elle dite ? Dans</b> le cas de <b>documents</b> detaillant des <b>prets. Mais</b> dans un cas d'<b>actes d'achat et de vente</b> de terrain, le tribunal peut <b>rediger</b> un document de remplacement, <b>excluant la <b>garantie standard qui</b> etait <b>dans</b> le premier document, qui stipule que si le champ est repris, le vendeur indemnisera l'acheteur pour sa perte.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

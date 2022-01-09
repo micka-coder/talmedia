@@ -1,0 +1,48 @@
+
+### Part 1
+The Gemara asks: <b>And</b> what does <b>the other</b> Sage, the second <i>tanna</i>, derive from this verse? The Gemara responds: <b>That</b> verse is <b>necessary for that which is taught</b> in a <i>baraita</i>: The expression <b>“for he sets his soul upon it”</b> explains why one must be so precise when paying a laborer his wages: <b>For what</b> reason did <b>this</b> laborer <b>ascend on</b> a tall <b>ramp or suspend</b> himself <b>from a tree and risk death to himself?</b> Was it <b>not for his wages?</b> How, then, can his employer delay his payment?
+
+### Part 2
+<b>Alternatively,</b> the words <b>“for he sets his soul upon it”</b> teach that concerning <b>one who withholds the wages of a hired laborer,</b> it is <b>as though he takes his soul from him. Rav Huna and Rav Ḥisda</b> disagreed over the meaning of this statement. <b>One says</b> it is referring to <b>the soul of the robber,</b> meaning that one who steals from a hired laborer by delaying payment of his wages causes Heaven to remove his own soul, <b>and one says</b> that he takes <b>the soul of the robbery victim,</b> meaning that one who steals from a hired worker causes the death of the worker.
+
+### Part 3
+The Gemara cites proof for these two opinions. <b>The one who says</b> it is referring to <b>the soul of the robber</b> bases his opinion on a verse, <b>as it is written: “Do not rob from the weak because he is weak, nor crush the poor in the gate”</b> (Proverbs 22:22), <b>and</b> it <b>is written</b> immediately afterward: <b>“For the Lord will plead their cause, and spoil the soul of those who spoil them”</b> (Proverbs 22:23). This indicates that God will take the soul of one who steals from a poor person. <b>And the one who says</b> it is referring to <b>the soul of the robbery victim</b> bases his opinion on a verse, <b>as it is written: “So are the ways of everyone who is greedy for gain; it takes away the life of its owners”</b> (Proverbs 1:19). A robber is considered as if he removed the very soul of his victim.
+
+### Part 4
+The Gemara asks: <b>And</b> according to <b>the other</b> Sage <b>too, isn’t it written: “It takes away the life of its owners”?</b> How does he interpret this verse? The Gemara answers: This is referring to <b>its current owner,</b> i.e., the robber, who took the money and now owns it. The Gemara asks: <b>And</b> according to <b>the other</b> Sage <b>too, isn’t it written: “And spoil the soul of those who spoil them”?</b> How does he interpret this verse? The Gemara answers: This verse employs the style know as: <b>What is the reason,</b> as follows: <b>What is the reason</b> that God will <b>spoil those who spoil them? Because they took</b> someone’s <b>soul,</b> for which He will exact retribution.
+
+### Part 5
+§ The mishna teaches: <b>When</b> does he transgress these prohibitions? He transgresses them <b>when</b> the one owed the money <b>claimed</b> the payment from <b>him.</b> If he <b>did not claim</b> his payment from <b>him,</b> the other <b>does not transgress</b> the prohibitions. <b>The Sages taught:</b> With regard to the verse: <b>“The wages of a hired laborer shall not remain</b> with you all night until the morning” (Leviticus 19:13), one <b>might</b> have thought that he should be liable <b>even</b> if the laborer <b>did not claim</b> his wages from <b>him. The verse states “with you,”</b> meaning the prohibition is not transgressed unless it is <b>with your knowledge</b> and consent that you have not paid him. But if he did not even request his wages yet, the prohibition has not been violated.
+
+### Part 6
+Furthermore, one <b>might</b> have thought that the employer is liable <b>even</b> if he <b>does not have</b> the money to pay him. Therefore, <b>the verse states “with you,”</b> indicating <b>that there is</b> money <b>with you.</b> One <b>might</b> have thought that <b>even</b> if the employer <b>transferred</b> his payment <b>to a storekeeper or to a money changer,</b> he still violates the prohibition of delaying payment of wages. Therefore, <b>the verse states “with you,”</b> indicating that it applies only if the payment is your obligation, <b>but not if</b> he <b>transferred it to a storekeeper or to a money changer,</b> as then the payment of the laborer’s wages is no longer his responsibility.
+
+### Part 7
+§ The mishna teaches: <b>If</b> the one who owes the money <b>transferred his</b> payment by leaving instructions <b>with a storekeeper or with a money changer</b> to pay him, <b>he does not transgress</b> the prohibitions. <b>A dilemma was raised before</b> the Sages: If the storekeeper or money changer neglected to pay the wages, may the laborer <b>return</b> to the employer and claim his money from him, <b>or</b> may he <b>not return,</b> as the storekeeper or money changer is now his exclusive address for complaints? <b>Rav Sheshet says he may not return, and Rabba says he may return.</b>
+
+### Part 8
+<b>Rabba said: From where do I state</b> my opinion? <b>From</b> the fact <b>that</b> the mishna <b>teaches: He does not transgress</b> the prohibition, from which it may be inferred: <b>He does not transgress</b> the prohibition, <b>but</b> the laborer <b>may</b> still <b>return</b> to him to collect his wages. <b>And Rav Sheshet said: What</b> is the meaning of the ruling that he does <b>not transgress</b> the prohibition? It means that he <b>is not</b> included <b>in the category of transgressing,</b> as his transfer of the payment exempts him from all responsibility.
+
+### Part 9
+The Sages <b>inquired of Rav Sheshet:</b> If the laborer worked as <b>a contractor,</b> who is paid for a completed job rather than by the hour, does the employer <b>violate</b> the prohibition <b>of delaying</b> payment of wages <b>or</b> does he <b>not violate</b> the prohibition <b>of delaying</b> payment of wages?
+
+### Part 10
+The resolution to this inquiry depends on how a craftsman’s wages are classified. Does <b>a craftsman,</b> who is a type of contractor, <b>acquire</b> ownership rights <b>through enhancement of the vessel?</b> This would mean that the craftsman is considered to have acquired the vessel through his work, which enhances its value, and it remains in his possession until he returns it to the owners, who are then considered to have purchased the enhanced item from him. <b>And</b> accordingly, his payment <b>is</b> akin to <b>a loan</b> in that it will not be subject to the prohibition of delaying the payment of wages. <b>Or</b> perhaps <b>a craftsman does not acquire</b> ownership rights <b>through enhancement of the vessel,and</b> the obligation of the owner to pay him is similar to the obligation to pay wages to any laborer, in which case the money <b>is</b> classified as <b>a wage,</b> and is subject to the prohibition of delaying wages.
+
+### Part 11
+<b>Rav Sheshet said to them:</b> He does <b>violate</b> the prohibition. They asked Rav Sheshet: <b>But isn’t it taught</b> in a <i>baraita</i> that a contractor <b>does not violate</b> the prohibition? Rav Sheshet replied: <b>There</b> it is referring to a case <b>where</b> he <b>transferred</b> the wages <b>to a storekeeper or to a money changer.</b>
+
+### Part 12
+The Gemara suggests: <b>Let us say</b> that the following <i>baraita</i> <b>supports</b> the opinion of Rav Sheshet: With regard to <b>one who gave his garment to a craftsman,</b> and the craftsman <b>concluded</b> the work <b>and notified</b> the owner that the work was complete, <b>even</b> if the owner delays paying the craftsman <b>from now until ten days</b> henceforth, <b>he does not violate</b> the <b>prohibition of delaying</b> the payment of wages. If the craftsman <b>gave</b> the garment <b>to him at midday,</b> then <b>once the sun has set</b> and the <b>owner</b> has not paid him, the owner <b>does violate</b> the <b>prohibition of delaying</b> the payment of wages.
+
+### Part 13
+The Gemara concludes: <b>And if it enters your mind</b> to say that <b>a craftsman acquires</b> ownership rights <b>through</b> the <b>enhancement of the vessel, why does</b> the owner <b>violate</b> the prohibition of delaying the payment of wages? It is as if the craftsman acquired the garment, and the payment is considered to be a purchase of the garment by the owner, rather than a wage.
+
+### Part 14
+<b>Rav Mari, son of Rav Kahana, said:</b> There is no proof from here, as the <i>baraita</i> is stating the <i>halakha</i> <b>with regard to the laundering of a thick garment, where there is no enhancement</b> of the garment. Therefore, the craftsman does not acquire it. The Gemara asks: Ultimately, <b>to what</b> end <b>did</b> the owner of the garment <b>give it to</b> the craftsman? He gave it to him in order <b>to soften</b> it. Once he has softened it, <b>that is its enhancement,</b> and the craftsman has therefore acquired it.
+
+### Part 15
+The Gemara responds: <b>No,</b> it is <b>necessary</b> to teach this <i>halakha</i> in a case <b>where</b> the owner <b>hired</b> the craftsman <b>for treading,</b> i.e., to forcefully tread on the garment in water until it softens, with the owner paying the craftsman <b>a <i>ma’a</i></b> coin <b>for each tread.</b> Accordingly, this is considered hired labor, where the craftsman is paid based on the amount of times he performed an action, and not contractual labor, where he is paid based on the outcome, in this case, a softened garment, and the prohibition of delaying payment of wages does apply to this case.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+<b>like</b> thorns <b>for palm trees,</b> as the thorns prevent people and animals from touching and ruining the dates. The fever is advantageous if its incidence is <b>once in thirty days, and it is like an antidote [<i>tiraiki</i>] for</b> poison in <b>the body. Rav Naḥman bar Yitzḥak said:</b> It is preferable for one to have <b>neither</b> fever <b>nor</b> the benefits of <b>its</b> capacity to serve as an <b>antidote.</b>
+
+### Part 2
+<b>Rabba bar Yonatan said</b> that <b>Rav Yeḥiel said: <i>Arsan</i> is beneficial for the sick person for his cure.</b> The Gemara asks: <b>What is <i>arsan</i>? Rabbi Yonatan said:</b> It is <b>old hulled barley from the beginning of</b> the <b>sifting</b> process. <b>Abaye said: And</b> that barley <b>requires</b> extensive <b>cooking like the meat of a bull. Rav Yosef said:</b> <i>Arsan</i> <b>is fine flour [<i>semida</i>]</b> ground <b>from old barley from the beginning of</b> the <b>sifting</b> process. <b>Abaye said: And</b> that flour <b>requires</b> extensive <b>cooking like the meat of a bull.</b>
+
+### Part 3
+<b>Rabbi Yoḥanan said: One does not visit</b> a person suffering from <b><i>buredam</i>,</b> an intestinal illness, <b>nor is the name</b> of that illness <b>mentioned,</b> because it is embarrassing for the one suffering from the illness. The Gemara asks: <b>What is the reason</b> that one does not visit him? <b>Rabbi Elazar said:</b> It is due to the fact <b>that he is like a flowing spring,</b> as the symptom of the illness is severe diarrhea. <b>And Rabbi Elazar said: Why is</b> the illness <b>called <i>buredam</i>?</b> It is due to the fact <b>that</b> the one suffering from the illness <b>is like a flowing spring,</b> a bottomless pit [<i>bor</i>] of blood [<i>dam</i>].
+
+### Part 4
+§ We learned in the mishna that if one is prohibited by a vow from deriving benefit from another, that other person <b>heals him</b> with <b>a cure of the <i>nefesh</i></b> but not a cure of property [<i>mamon</i>]. The Gemara asks: <b>How is</b> the mishna <b>taught? If we say that cure of the <i>nefesh</i></b> means that he cures him <b>for free and cure of <i>mamon</i></b> means that he cures him <b>for a fee,</b> then <b>let</b> the mishna <b>teach this: He cures him for free but not for a fee. Rather, cure of the <i>nefesh</i></b> means that he cures <b>his body, and cure of <i>mamon</i></b> means that he cures <b>his animal. Rabbi Zutra bar Toviya said</b> that <b>Rav said:</b> It is prohibited to cure the animal. <b>However, he says to him: Such and such medicine is beneficial</b> for the animal, <b>and such and such medicine is harmful</b> for the animal. Advice, as opposed to treatment, is not considered benefit.
+
+### Part 5
+<strong>MISHNA:</strong> <b>And</b> with regard to another person who is prohibited from deriving benefit from him, <b>one may bathe with him in a large bath [<i>ambati</i>],</b> in which his presence does not affect the other person. <b>However,</b> he may <b>not</b> bathe with him <b>in a small</b> bath, as his presence moderates the temperature of water if it is too hot or too cold, thereby benefiting the other person. <b>And he may sleep with him in</b> one <b>bed.</b>
+
+### Part 6
+<b>Rabbi Yehuda says:</b> That is permitted <b>during the days of summer, but</b> he may <b>not</b> sleep with him in one bed <b>during the rainy season,</b> i.e., the winter, <b>because he benefits him</b> by warming the bed. <b>And he may recline with him on a divan</b> even during the rainy season, as no benefit is involved. <b>And he may eat with him at</b> the same <b>table, but not from</b> a common <b>platter</b> from which several people eat, as if one leaves food on the platter, the other derives benefit from him. <b>However, he may eat with him from a platter that returns</b> to the host, as everyone takes a small portion and leaves food on the platter. No benefit is derived. Since there is enough food for everyone, none of the diners receives part of another’s portion.
+
+### Part 7
+<strong>GEMARA:</strong> <b>It is taught</b> in a <i>baraita</i>: <b>One may neither bathe with him in a bath nor sleep with him in a bed,</b> and there is no difference <b>whether</b> it is a <b>large</b> bed or <b>whether</b> it is a <b>small</b> bed; this is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> It is <b>permitted</b> for him to sleep with him in a <b>large</b> bed <b>during the rainy season and a small</b> bed <b>during the days of summer,</b> as no benefit is derived. <b>He may bathe with him in a large bath and sweat with him in a small one,</b> as his presence provides no benefit for the other. However, <b>he may recline with him on a divan, and he may eat with him at</b> the same <b>table but not from a</b> common <b>platter. However, he may eat with him from a platter that returns. Rabbi Yosei bar Ḥanina said:</b> That means <b>a platter that returns to the host.</b>
+
+### Part 8
+<strong>MISHNA:</strong> <b>One may neither eat with him from the large vessel</b> of food placed <b>before the laborers, nor may he work with him in</b> the same <b>row in a vineyard;</b> this is <b>the statement of Rabbi Meir. And the Rabbis say: He may work</b> in the same row with him provided that <b>he is at a distance from him.</b> If he is close, the other would derive forbidden benefit from him.
+
+### Part 9
+<strong>GEMARA:</strong> In a case <b>where</b> one is <b>proximate</b> to the other, the <i>tanna’im</i> <b>do not disagree that it is prohibited</b> for them to work together. <b>When they disagree,</b> it is in a case <b>where</b> one is <b>distant</b> from the other. <b>Rabbi Meir holds: We issue a decree</b> prohibiting their working together when one is <b>distant</b> from the other, <b>due to</b> the prohibition against their working together when one is <b>proximate</b> to the other, <b>as he loosens for him the earth before him. And the Rabbis hold: We do not issue a decree.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

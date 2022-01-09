@@ -1,0 +1,24 @@
+
+### Part 1
+<b>Rav Huna, son of Rav Naḥman, happened</b> to come <b>to Meḥoza. Rava said to his attendant, Rav Elyakim: Close, close the gates,</b> so <b>that people who</b> might <b>disturb</b> us <b>should not come,</b> and we may focus on clarifying the matter.
+
+### Part 2
+Rav Huna, son of Rav Naḥman, <b>entered into</b> Rava’s presence. Rav Huna, son of Rav Naḥman, <b>said to</b> Rava: <b>What</b> is the <i>halakha</i> in <b>a case like this</b> where a gentile stirred the wine without intending to offer it as an idolatrous libation? Rava <b>said to</b> Rav Huna, son of Rav Naḥman: It is <b>prohibited even to</b> derive <b>benefit</b> from it. Rav Huna, son of Rav Naḥman, asked him: <b>But wasn’t it</b> you, <b>Master, who said:</b> If a gentile <b>stirs</b> the wine, he does <b>not</b> thereby <b>render</b> it <b>wine</b> used for <b>a libation,</b> as Rava permitted the sale of the wine in the barrel to gentiles? Rava answered: <b>Say that I said</b> that it is permitted to sell the wine that was in the barrel and benefit from all the proceeds <b>except for the monetary</b> value <b>of that</b> prohibited <b>wine</b> that was poured into the barrel of wine. <b>Did I say</b> that it is permitted to derive benefit from <b>the monetary</b> value <b>of that</b> prohibited <b>wine?</b>
+
+### Part 3
+<b>Rava said: When I arrived at Pumbedita, Naḥmani,</b> i.e., Abaye, <b>surrounded us</b> with amoraic <b>traditions and</b> with tannaitic sources cited in <b>a <i>baraita</i></b> that indicate <b>that</b> in the case of wine that was stirred by a gentile it is <b>prohibited</b> even to derive benefit from the wine.
+
+### Part 4
+Rava explains: Abaye cited amoraic <b>traditions, as there was a certain incident in Neharde’a</b> in which a gentile stirred the wine, <b>and Shmuel deemed</b> the wine <b>prohibited,</b> and there was a similar incident <b>in Tiberias and Rabbi Yoḥanan deemed</b> the wine <b>prohibited.</b> Rava recounts his reply: <b>And I said to</b> Abaye: Shmuel and Rabbi Yoḥanan deemed the wine prohibited only <b>because</b> the people in those towns were <b>not people</b> well-versed in <b>Torah,</b> and it was necessary to distance them from transgression. <b>And</b> Abaye <b>said to me:</b> Are you saying that the people of <b>Tiberias and Neharde’a</b> are <b>not people</b> well-versed in <b>Torah</b> whereas the people <b>of Meḥoza</b> are <b>people</b> well-versed in <b>Torah?</b> This is obviously not the case, and therefore you should not have permitted the sale of the wine in Meḥoza, even according to your reasoning.
+
+### Part 5
+Abaye cited <b>a <i>baraita</i></b> that teaches as follows: In the case <b>of a gentile market inspector [<i>de’agardamim</i>]</b> who was in charge of measures and prices in the marketplace, <b>who drilled</b> a hole in a barrel <b>with a tube and drew</b> wine from the barrel through the tube in order to taste it, <b>or who tasted</b> the wine <b>from the cup</b> that was poured for him <b>and</b> then <b>returned</b> the residue <b>to the barrel,</b> what is the <i>halakha</i>? <b>This was an incident</b> that occurred, <b>and</b> the Sages <b>prohibited</b> the wine. Abaye said: <b>What</b> does this mean? <b>Is</b> the <i>baraita</i> <b>not</b> prohibiting one <b>from</b> deriving <b>benefit</b> from the wine? Rava replied: <b>No,</b> it is prohibiting one only <b>from drinking</b> it.
+
+### Part 6
+Abaye said: <b>If so, let</b> the <i>baraita</i> <b>teach</b> that the wine <b>may be sold, as the latter clause</b> of the <i>baraita</i> <b>teaches:</b> In the case of <b>a gentile confiscator who extended his hand into a barrel</b> of wine, <b>thinking it was</b> a barrel <b>of oil, and it was found</b> to be a barrel <b>of wine,</b> what is the <i>halakha</i>? <b>This was an incident</b> that occurred, <b>and</b> the Sages <b>said: It may be sold,</b> as the gentile had no intention of touching wine. The Gemara concludes: <b>The refutation of</b> the opinion of <b>Rava</b> is indeed <b>a conclusive refutation.</b>
+
+### Part 7
+§ The Gemara relates: <b>Rabbi Yoḥanan ben Arza and Rabbi Yosei ben Nehorai were sitting and drinking wine. A certain man came</b> and <b>they said to him: Come, serve us drinks. After he poured</b> the wine <b>into the cup, it was revealed that</b> the person <b>was a gentile. One</b> of those Sages <b>prohibited</b> one from <b>even</b> deriving <b>benefit</b> from the wine, <b>and one</b> of them <b>permitted</b> the wine <b>even for drinking. Rabbi Yehoshua ben Levi said: The one who prohibited</b> the wine <b>properly</b> deemed it <b>prohibited, and the one who permitted</b> it <b>properly</b> deemed it <b>permitted,</b> as both opinions are viable. <b>The one who prohibited</b> the wine holds that
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

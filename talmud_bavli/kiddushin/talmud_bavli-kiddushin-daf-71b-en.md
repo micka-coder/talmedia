@@ -1,0 +1,51 @@
+
+### Part 1
+<b>Here,</b> in the final clause, it is referring <b>to marrying</b> a woman to <b>him,</b> and the <i>halakha</i> is that a family with no presumptive status requires investigation before one of them marries. <b>There,</b> in the penultimate clause, it is referring <b>to</b> the court <b>removing a woman from him.</b> The husband is not forced to divorce her unless it has been proven that they may not remain married.
+
+### Part 2
+<b>Rav Yosef says: Anyone whose speech is Babylonian,</b> i.e., anyone who speaks the Babylonian language with a Babylonian accent, <b>is</b> allowed <b>to marry a woman</b> without having his lineage examined. The presumption is that he is Babylonian, and the lineage of Babylonian families is unflawed. The Gemara comments: <b>But nowadays, when there are swindlers</b> who may speak with Babylonian accents in order to avoid scrutiny, <b>we are concerned</b> even about those who speak like Babylonians.
+
+### Part 3
+The Gemara relates: The Sage <b>Ze’eiri,</b> a Babylonian, <b>was avoiding Rabbi Yoḥanan,</b> who was from Eretz Yisrael, <b>since</b> the latter kept <b>saying to him: Marry my daughter. One day,</b> when <b>they were walking along the way, they arrived at</b> a large <b>puddle of water.</b> Ze’eiri <b>lifted Rabbi Yoḥanan upon his shoulders and carried him over</b> the puddle out of respect. Rabbi Yoḥanan <b>said to him: Our Torah is fit</b> and worthy of honor in your eyes, and yet <b>our daughters are not fit? What is your reason</b> for not wanting to marry my daughter?
+
+### Part 4
+Rabbi Yoḥanan continued: <b>If we say a reason</b> not to marry my daughter is <b>from that which we learned</b> in a mishna (69a): There were <b>ten</b> categories of <b>lineage</b> among the Jews who <b>ascended from Babylonia: Priests, Levites,</b> Israelites, as well as many of flawed lineage, and you are concerned about the <i>mamzerim</i> among those who live in Eretz Yisrael, <b>is that to say</b> that <b>all of the priests, Levites, and Israelites ascended</b> to Eretz Yisrael? Certainly, Jews of unflawed lineage remained in Babylonia. <b>Just as there remained from these</b> unflawed categories in Babylonia, <b>there also remained</b> individuals <b>from these,</b> the flawed categories. Therefore, marrying only Babylonians will not alleviate your concern. The Gemara comments: In fact, <b>this statement of Rabbi Elazar escaped</b> Rabbi Yoḥanan: <b>Ezra did not ascend from Babylonia until he made it like fine flour, and</b> then <b>he ascended.</b> Accordingly, the people who remained in Babylonia were all of unflawed lineage.
+
+### Part 5
+The Gemara relates another incident: <b>Ulla arrived in Pumbedita to the house of Rav Yehuda. He observed that Rav Yitzḥak, son of Rav Yehuda, was grown up and was unmarried.</b> Ulla <b>said to</b> Rav Yehuda: <b>What is the reason</b> that <b>the Master does not marry a woman to his son?</b> Rav Yehuda <b>said to him: Do I know from where I</b> can find a woman <b>to marry</b> him? I am concerned about flawed lineage. Ulla <b>said to him: Is that to say that we know where we come from?</b> Can we be sure that our lineage is unflawed? <b>Perhaps</b> we are <b>from those</b> about <b>whom it is written: “They have ravished the women in Zion, the maidens in the cities of Judah”</b> (Lamentations 5:11). Perhaps we are descended from women ravished by gentiles.
+
+### Part 6
+<b>And if you would say</b> that you are not concerned about that possibility, since you maintain that in the case of <b>a gentile or a slave who engaged in sexual intercourse with a Jewish woman,</b> the lineage of <b>the offspring is unflawed, perhaps</b> we come <b>from those about whom it is written: “That lie upon beds of ivory, and stretch themselves upon their couches”</b> (Amos 6:4), <b>and Rabbi Yosei, son of Rabbi Ḥanina, says</b> in explanation of this verse: <b>These are people who urinate naked before their couches.</b>
+
+### Part 7
+<b>And Rabbi Abbahu ridiculed this</b> interpretation and said: <b>If so,</b> if this was their sin, <b>is this what is written: “Therefore now shall they go captive at the head of them that go captive”</b> (Amos 6:7)? Could it be that <b>because they urinated naked before their couches</b> that <b>they go captive at the head of them that go captive?</b> That act is admittedly distasteful, but it is not so severe a transgression to warrant such a punishment.
+
+### Part 8
+<b>Rather, Rabbi Abbahu says: These are people who eat and drink together, and attach their beds together, and exchange their wives with each other, and befoul their couches with semen that is not theirs.</b> The Jewish people include the descendants of such people, who are full-fledged <i>mamzerim</i>.
+
+### Part 9
+<b>Rav Yehuda said to</b> Ulla: If so, <b>what shall we do?</b> How can we clarify which families are of unflawed lineage? Ulla <b>said to him: Go after the silence, like the way the people of the West,</b> Eretz Yisrael, <b>examine: When two</b> people <b>quarrel with each other, they observe which of them becomes silent first.</b> Then <b>they say: This</b> silent party <b>is of finer lineage.</b>
+
+### Part 10
+<b>Rav says: The silence of Babylonia is its lineage.</b> In other words, this is an effective method of examining a person’s lineage in Babylonia as well. The Gemara asks: <b>Is that so? But Rav arrived at the house of the son of a vinegar strainer and examined them. What, is it not</b> that he conducted an examination <b>into</b> their <b>lineage?</b> The Gemara answers: <b>No,</b> he conducted an examination <b>into their silence. This is</b> what Rav <b>said to</b> those conducting the examination: <b>Examine whether they become silent</b> when they quarrel <b>or</b> whether <b>they do not become silent.</b>
+
+### Part 11
+<b>Rav Yehuda says</b> that <b>Rav says: If you see two people feuding with each other, there is a trace of unfitness in one of them.</b> In other words, there are grounds to suspect that the lineage of one of them is flawed. Consequently, that one <b>is prevented</b> by Heaven <b>from joining the other</b> through marriage, and that leads them to feud with each other. <b>Rabbi Yehoshua ben Levi says: If you see two families feuding with each other, there is a trace of unfitness in one of them, and</b> that family <b>is prevented</b> by Heaven <b>from joining the other.</b>
+
+### Part 12
+<b>Rav Pappa the Elder says in the name of Rav: Babylonia</b> is <b>healthy</b> with regard to lineage and clear of suspicion. <b>Mishon</b> is <b>dead,</b> meaning that all its inhabitants have flawed lineage. <b>Media</b> is <b>sick,</b> and <b>Eilam</b> is <b>moribund.</b> The Gemara clarifies: <b>And what</b> is the difference <b>between sick and moribund? Most sick</b> people recover <b>to</b> a healthy <b>life,</b> whereas <b>most</b> of those who are <b>moribund</b> are destined <b>for death.</b> Likewise, the majority of the residents of Media had unflawed lineage, while the majority of those living in Eilam had flawed lineage.
+
+### Part 13
+After having determined that those from Babylonia are presumed to have unflawed lineage, the Gemara clarifies what the borders of Babylonia are with regard to this issue. <b>Until where does</b> the width of <b>Babylonia</b> extend? <b>Rav said: Until the River Azak,</b> which empties into the Euphrates. <b>And Shmuel said: Until the River Yo’ani,</b> which also empties into the Euphrates. The Gemara asks: <b>Until where does</b> the border extend <b>upward,</b> meaning northward, <b>on the Tigris? Rav said: Until</b> the places called <b>Bagda and Avna. And Shmuel said: Until Mushekanei.</b> The Gemara asks: <b>But</b> according to Shmuel, <b>isn’t Mushekanei included</b> in Babylonia? <b>But didn’t Rabbi Ḥiyya bar Abba say</b> that <b>Shmuel says: Mushekanei is like the exile,</b> meaning it is like Pumbedita in central Babylonia, <b>with regard to lineage? Rather,</b> Shmuel meant: <b>Until and including Mushekanei.</b>
+
+### Part 14
+The Gemara asks: <b>How far does</b> the border extend <b>downward,</b> meaning southward, <b>on the Tigris? Rav Shmuel said: Until</b> the city of <b>Lower Appamya.</b> The Gemara comments: <b>There are two</b> cities called <b>Appamya, the upper one and the lower one.</b> In terms of the lineage of their residents, <b>one is unflawed and the other is flawed, and they are separated by</b> a distance of <b>a parasang [<i>parsa</i>]. And they are particular with regard to one another.</b> The residents of the two cities avoid each other to the extent that <b>they do not even loan each other fire,</b> to prevent them from developing a closeness with each other. <b>And your mnemonic</b> to remember which is which is that <b>the unfit one</b> is <b>that</b> one <b>that speaks the Mishon dialect.</b> As stated above, Mishon is considered dead with regard to lineage.
+
+### Part 15
+The Gemara further clarifies: <b>How far does</b> the border extend <b>upward,</b> meaning northward, <b>on the Euphrates? Rav said: Until the fortress</b> of <b>Tulbaknei. And Shmuel said: Until the bridge over the Euphrates. And Rabbi Yoḥanan said: Until the crossing at Gizma.</b> The Gemara relates: <b>Abaye would curse, and some say</b> it was <b>Rav Yosef</b> that would curse, <b>one</b> who ruled in accordance with the opinion <b>of Rav,</b> as he held that Rav extended the border too far north.
+
+### Part 16
+The Gemara is puzzled by this statement: Why did he <b>curse one</b> who ruled in accordance with the opinion <b>of Rav,</b> but he <b>did not curse one</b> who ruled in accordance with the opinion <b>of Shmuel?</b> But the bridge over the Euphrates is further north than the fortress of Tulbaknei. <b>Rather,</b> he <b>would curse one</b> who ruled in accordance with the opinion <b>of Rav, and all the more so one</b> who ruled in accordance with the opinion <b>of Shmuel. And if you wish, say: In fact, he cursed one</b> who ruled in accordance with the opinion <b>of Rav,</b> but <b>he did not curse one</b> who ruled in accordance with the opinion <b>of Shmuel, and the bridge over the Euphrates</b> actually <b>stood lower down,</b> i.e., farther south. In their times the bridge was to the south of Tulbaknei, and Abaye agreed that it was in Babylonia.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

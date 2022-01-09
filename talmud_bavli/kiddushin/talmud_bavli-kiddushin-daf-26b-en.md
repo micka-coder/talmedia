@@ -1,0 +1,36 @@
+
+### Part 1
+<b>and</b> if the debtor possesses land of any area the creditor <b>can write a document that prevents the Sabbatical Year from abrogating an outstanding debt [<i>prosbol</i>] for it</b> so that his loans will not be canceled in the seventh year, <b>and</b> he <b>can acquire property that does not serve as a guarantee</b> along <b>with it. And if you say</b> that <b>we require</b> the movable property to be <b>piled</b> on the land, <b>for what is</b> land <b>of any size fit?</b> What can be piled on a tiny spot of land?
+
+### Part 2
+<b>Rav Shmuel bar Bisna interpreted it before Rav Yosef</b> as follows: <b>For example, if one stuck a needle</b> into a tiny patch of land, which he sold by means of the land, the needle is acquired. <b>Rav Yosef said to him: You disgust me [<i>kevastan</i>]. Did the <i>tanna</i> go to all that trouble just to teach us</b> that <b>a needle</b> can be acquired by means of land? <b>Rav Ashi said: Who shall say to us</b> that <b>he did not hang a pearl worth one thousand dinars on</b> the needle? One can acquire an item of high value through land of this size. In any event, the question of whether or not the movable property must be piled onto the land has not been resolved.
+
+### Part 3
+<b>Come</b> and <b>hear,</b> as <b>Rabbi Elazar said:</b> There was <b>an incident involving a certain Madonite</b> [<b><i>Madoni</i>] who was in Jerusalem, as he had a great deal</b> of <b>movable property and wished to give it as a gift.</b> He was ill and did not have time for the recipient to acquire the property by pulling. The Sages <b>said to him:</b> One in this situation <b>has no remedy but to transfer them by means of land. What did he do? He went and acquired a <i>beit sela</i>,</b> apparently meaning land the size of a <i>sela</i> coin, <b>near Jerusalem and said: This northern</b> portion of the <i>beit sela</i> is given <b>to so-and-so, and with it one hundred sheep and one hundred barrels. And</b> the Madonite <b>died, and</b> the Sages <b>fulfilled his statement</b> and gave the gifts.
+
+### Part 4
+<b>And if you say</b> that to acquire movable property by way of land <b>we require</b> that the property be actually <b>piled upon it, for what is a <i>beit sela</i> fit?</b> It is impossible to pile one hundred sheep and one hundred barrels on top of such a small plot of land. The Gemara rejects this argument: <b>Do you maintain</b> that <b>a <i>beit sela</i></b> is referring to a place that is <b>actually</b> the size of <b>a <i>sela</i></b> coin? No; rather <b>what</b> is the meaning of the term <b><i>sela</i>?</b> It is referring to a place <b>that</b> is <b>very large</b> and that could hold the many gifts. If that is true, <b>why did they call it <i>sela</i>?</b> This name indicates <b>that</b> it was <b>hard as rock [<i>sela</i>].</b>
+
+### Part 5
+<b>Come</b> and <b>hear</b> a proof from a different source, <b>as Rav Yehuda says</b> that <b>Rav says:</b> There was <b>an incident involving a certain person who became sick in Jerusalem,</b> and the assumption that he became sick is <b>in accordance with</b> the opinion of <b>Rabbi Eliezer,</b> who says that a person on his deathbed can transfer property only by means of an accepted standard act of acquisition. <b>And some say he was healthy,</b> and that assumption is <b>in accordance with</b> the opinion of <b>the Rabbis</b> that a person on his deathbed can transfer property by means of speech alone, whereas a healthy person requires an accepted act of acquisition.
+
+### Part 6
+The incident happened as follows: This man <b>had a great deal</b> of <b>movable property and he wished to give it</b> away <b>as a gift.</b> The Sages <b>said to him:</b> In this situation one <b>has no remedy but to transfer</b> movable property <b>by means of land. What did he do? He went and acquired</b> land the size of <b>a <i>beit rova</i> near Jerusalem and said: This square handbreadth</b> is given <b>to so-and-so, and with it one hundred sheep and one hundred barrels. And he died, and the Sages fulfilled his statement. And if you say</b> that <b>we require</b> that the property be <b>piled</b> on the land, <b>for what is a square handbreadth fit?</b> Is it possible to place all of these items in such a limited space?
+
+### Part 7
+The Gemara rejects this: <b>With what are we dealing here?</b> It is <b>with money,</b> i.e., he sought to give the value of the barrels and sheep, and money of this amount can be placed on a small plot of land. The Gemara comments: <b>So too, it is reasonable</b> that this incident involved money. <b>As, if it enters your mind</b> to say that it involved <b>an actual</b> group of <b>one hundred sheep and one hundred barrels, let him transfer them to</b> the recipient <b>through</b> an act of symbolic <b>exchange.</b> If the incident involved money, which cannot be transferred by symbolic exchange, he had no recourse but to acquire the land.
+
+### Part 8
+The Gemara raises a difficulty against this argument: <b>Rather, what</b> will you say, that this is referring <b>to money,</b> which cannot be acquired through symbolic exchange? Even so, he still could have acted differently: <b>Let him transfer it</b> to the recipient <b>through pulling. Rather,</b> you are forced to say <b>that the recipient of this gift was not</b> present, and the man wanted to grant him possession of it without the recipient having to perform a physical act of acquisition. <b>So too,</b> it is possible <b>that the recipient of the gift was not</b> present, and he was unable to transfer it to him through symbolic exchange. Consequently, there is no proof that the incident involved money.
+
+### Part 9
+The Gemara asks: Is there no other way to perform this acquisition? <b>But let him transfer it to him by means of another</b> person, i.e., another can pull the property on behalf of the recipient. The Gemara answers: The giver <b>did not rely</b> on that option, as he <b>feared</b> that the third party might <b>seize it and consume it</b> or use the property in some other manner. The giver wanted to be sure that the acquisition would be completed in full.
+
+### Part 10
+<b>Rather, what</b> then is the meaning of the statement: <b>He has no remedy?</b> Even if he did not want to use the option of a third party, it was certainly available to him. The Gemara explains that <b>this is what</b> Rav was <b>saying</b> and meant in his description of this incident: In accordance <b>with</b> his decision <b>that he does not rely</b> on another person and does not want to transfer property by means of anyone else, in this situation one <b>has no remedy but to transfer</b> movable property <b>by means of land.</b> In summary, no decisive proof has been cited as to whether or not it is possible to acquire movable property by means of land when the items are not piled upon the land.
+
+### Part 11
+<b>Come</b> and <b>hear</b> a proof from the following mishna (<i>Ma’aser Sheni</i> 5:9): There was <b>an incident involving Rabban Gamliel and</b> other <b>Elders who were traveling on a ship. Rabban Gamliel said to the Elders: One-tenth</b> of produce <b>that I will measure out</b> and separate <b>in the future</b> from the produce of my fields
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

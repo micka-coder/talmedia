@@ -1,0 +1,66 @@
+
+### Part 1
+<b>Granted, according to Rabbi Yonatan</b> it is clear the punishment for adultery is strangulation, <b>in the manner that Rabbi</b> Yehuda HaNasi <b>explains the reason</b> for his opinion. <b>But according to Rabbi Yoshiya, from where</b> is it derived <b>that there is</b> a punishment of execution by <b>strangulation in the world,</b> i.e., in <i>halakha</i>, at all? Since this type of capital punishment is not mentioned in the Torah explicitly, <b>say</b> that decapitation by the <b>sword</b> is the least severe type, as it is mentioned in the Torah.
+
+### Part 2
+<b>Rava said:</b> The <b>four</b> types of the <b>death</b> penalty <b>are learned as a tradition.</b> There is no question as to the types of capital punishment that exist in <i>halakha</i>. Rather, the question is which type of execution is meted out as punishment for which sins.
+
+### Part 3
+The Gemara asks: <b>What</b> is meant by Rabbi Yonatan’s statement: <b>It is not because</b> strangulation <b>is</b> the most <b>lenient</b> type of capital punishment? The Gemara answers: At the root of the matter, Rabbi Yonatan and Rabbi Yoshiya <b>disagree with regard to</b> the issue that is the subject of <b>the dispute between Rabbi Shimon and the Rabbis,</b> i.e., whether strangulation or decapitation is the least severe type of execution. Consequently, Rabbi Yonatan does not employ the reasoning that strangulation is the least severe.
+
+### Part 4
+§ <b>Rabbi Zeira said to Abaye:</b> With regard to <b>the rest of those</b> transgressors, other than necromancers and sorcerers, <b>who are stoned</b> to death, <b>with regard to whom stoning is not</b> explicitly <b>written</b> in the Torah <b>because</b> their punishment is <b>derived</b> via a verbal analogy <b>from</b> that of <b>a necromancer and a sorcerer,</b> about which the verse states: “They shall be put to death, they shall stone them with stones, their blood shall be upon them” (Leviticus 20:27); <b>through what</b> verbal analogy <b>is</b> their punishment <b>derived? Is it derived from</b> the phrase <b>“they shall be put to death,” or is it derived from</b> the phrase <b>“their blood shall be upon them”?</b>
+
+### Part 5
+Abaye <b>said to him: It is derived from</b> a verbal analogy between <b>“their blood”</b> and <b>“their blood shall be upon them.” As, if it is derived from “they shall be put to death,” why do I</b> need the verbal analogy between <b>“their blood”</b> and <b>“their blood”?</b> Why does this term need to be written with regard to the various <i>halakhot</i>?
+
+### Part 6
+The Gemara asks: <b>Rather, what</b> is more reasonable? If <b>it is derived from</b> the verbal analogy between <b>“their blood”</b> and <b>“their blood,”</b> the same problem arises: <b>Why do I</b> need the phrase <b>“they shall be put to death”?</b>
+
+### Part 7
+The Gemara answers: This expression is necessary, as another <i>halakha</i> is derived from it. <b>As it is taught</b> in a <i>baraita</i>: The verse with regard to a murderer states: <b>“He that smote him shall be put to death, for he is a murderer”</b> (Numbers 35:21). <b>I have</b> derived <b>only</b> that the murderer is put to death <b>with the</b> mode of <b>execution written concerning him,</b> i.e., by decapitation. <b>From where</b> do I derive <b>that if you cannot put him to death with the</b> mode of <b>execution written concerning him,</b> e.g., if the condemned man will escape if one does not kill him, <b>that you put him to death with any</b> mode of <b>execution with which you can put him to death? The verse states: “He that smote him shall be put to death [<i>mot yumat</i>],”</b> the doubled verb teaching that he is put to death <b>in any case,</b> i.e., by any mode of execution.
+
+### Part 8
+This exchange between Rabbi Zeira and Abaye was subsequently discussed by later <i>amora’im</i>. <b>Rav Aḥa of Difti said to Ravina: And if</b> the <i>halakha</i> that there are transgressors other than necromancers and sorcerers who are punished by stoning <b>is derived from “they shall be put to death,” what is difficult according to</b> Rabbi Zeira? It appears from Rabbi Zeira’s question that he was troubled by the possibility that this halakha is derived from the phrase “they shall be put to death.”
+
+### Part 9
+<b>If we say</b> that the case of adultery of <b>a married woman</b> would pose <b>a difficulty according to</b> Rabbi Zeira, as it is stated: “The adulterer and the adulteress shall be put to death” (Leviticus 20:10), and therefore perhaps <b>we should derive and learn from</b> the phrase “they <b>shall be put to death”</b> stated with regard to <b>a necromancer and a sorcerer</b> that <b>just as there,</b> with regard to a necromancer and a sorcerer, they are executed <b>by stoning, so too here,</b> with regard to adultery, the transgressors should be executed <b>by stoning,</b> this does not pose a difficulty.
+
+### Part 10
+Rav Aḥa of Difti explains why it does not pose a difficulty: <b>From</b> the fact <b>that the Merciful One states</b> that <b>a betrothed woman</b> who committed adultery is executed <b>by stoning, by inference</b> we learn <b>that a married woman</b> who committed adultery <b>is not</b> executed <b>by stoning,</b> but rather she is executed by a less severe type of execution. Therefore, it could not have been derived from the case of a necromancer and a sorcerer that the punishment for the adultery of a married woman is execution by stoning.
+
+### Part 11
+<b>And</b> if it is <b>rather</b> the case of <b>one who wounds his father or his mother</b> that poses <b>a difficulty according to</b> Rabbi Zeira, as it is stated: “And he who smites his father or his mother shall be put to death” (Exodus 21:15), and therefore perhaps <b>we should derive and learn from</b> the punishment of <b>a necromancer and a sorcerer</b> that one who wounds his father or his mother should be executed by stoning, this too does not pose a difficulty.
+
+### Part 12
+Rav Aḥa of Difti explains why it does not pose a difficulty: <b>Rather than deriving</b> the punishment of one who wounds his father or his mother <b>from a necromancer and a sorcerer, let us derive</b> it <b>from</b> adultery with <b>a married woman,</b> as <b>everywhere that</b> the <b>death</b> penalty <b>is stated in the Torah without specification you may not take it to be more stringent with regard to it,</b> i.e., to mean that the sinner should be sentenced to <b>a severe</b> type of execution; <b>rather,</b> you must take it <b>to be more lenient with regard to it,</b> i.e., that a lenient type of execution should be applied. Since in both the case of adultery and the case of one who wounds his parent the type of execution is evidently not stoning, why was Rabbi Zeira troubled by the possibility that the source for execution by stoning in cases other than a necromancer and a sorcerer is derived from the phrase: “They shall be put to death”?
+
+### Part 13
+Ravina <b>said to</b> Rav Aḥa of Difti: It is the <i>halakha</i> concerning <b>the rest of those who are stoned, themselves,</b> which poses <b>a difficulty</b> according <b>to</b> Rabbi Zeira. This is <b>because if</b> their punishment <b>is derived from</b> the phrase <b>“they shall be put to death,”</b> then <b>rather than deriving from</b> the case of <b>a necromancer and a sorcerer</b> that these transgressors are executed by the severe method of stoning, <b>let us derive from</b> the case of one who commits adultery with <b>a married woman,</b> with regard to whom “they shall be put to death” is also stated, that they should be executed by strangulation, the less severe method. He therefore verified that it is derived from the phrase “their blood shall be upon them,” that they are executed by stoning.
+
+### Part 14
+<strong>MISHNA:</strong> <b>These</b> transgressors <b>are those who are stoned</b> to death: <b>One who engages in intercourse with</b> his <b>mother; or with</b> his <b>father’s wife,</b> even if she is not his mother; <b>or with</b> his <b>daughter-in-law; or with a male; or with an animal; and a woman who engages in intercourse with an animal. And one who blasphemes, and one who engages in idol worship. And one who gives of his offspring to Molekh, and a necromancer, and a sorcerer. And one who desecrates Shabbat, and one who curses his father or his mother, and one who engages in intercourse with a betrothed young woman, and an inciter</b> who incites individuals to idol worship, <b>and a subverter</b> who incites an entire city to idol worship, <b>and a warlock, and a stubborn and rebellious son.</b>
+
+### Part 15
+The mishna elaborates: <b>One who</b> unwittingly <b>engages in intercourse with</b> his <b>mother</b> who is also his father’s wife is <b>liable</b> to bring two sin-offerings <b>for</b> his intercourse with <b>her:</b> One <b>due to</b> the prohibition against engaging in intercourse with one’s <b>mother and</b> one <b>due to</b> the prohibition against engaging in intercourse with one’s <b>father’s wife. Rabbi Yehuda says: He is liable</b> to bring <b>only</b> one sin-offering, <b>due to</b> the prohibition against engaging in intercourse with one’s <b>mother.</b>
+
+### Part 16
+<b>One who</b> unwittingly <b>engages in intercourse with</b> his <b>father’s wife</b> while his father is married to her is <b>liable</b> to bring two sin-offerings: One <b>due to</b> the prohibition against engaging in intercourse with one’s <b>father’s wife and</b> one <b>due to</b> the prohibition against engaging in intercourse with <b>a married woman.</b> He is liable due to the former prohibition <b>both during his father’s lifetime and after his father’s death,</b> and <b>whether</b> the relationship between the woman and his father is one <b>of betrothal or</b> one <b>of marriage.</b>
+
+### Part 17
+Likewise, <b>one who</b> unwittingly <b>engages in intercourse with his daughter-in-law</b> during his son’s lifetime is <b>liable</b> to bring two sin-offerings <b>for</b> his intercourse with <b>her:</b> One <b>due to</b> the prohibition against engaging in intercourse with one’s <b>daughter-in-law, and</b> one <b>due to</b> the prohibition against engaging in intercourse with <b>a married woman.</b> The former liability applies <b>both during his son’s lifetime</b> and <b>after his son’s death,</b> and <b>whether</b> the relationship between the woman and his son is one <b>of betrothal or</b> one <b>of marriage.</b>
+
+### Part 18
+<strong>GEMARA:</strong> With regard to one who engages in intercourse with his mother, <b>it is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says: If his mother was not suitable for his father,</b> as their marriage was forbidden, <b>he is liable only due to the</b> prohibition against engaging in intercourse with one’s <b>mother,</b> and not due to the prohibition against engaging in intercourse with one’s father’s wife.
+
+### Part 19
+This is clarified: <b>What</b> does it mean that she <b>is not suitable for him? If we say</b> that the mother and father were <b>liable to</b> receive the punishment of <b>excision from the World-to-Come [<i>karet</i>], or liable to</b> receive a <b>court</b>-imposed <b>death</b> penalty for their intercourse, in which case their marriage did not take effect and therefore Rabbi Yehuda holds that in this case there is no prohibition against engaging in intercourse with one’s father’s wife, this poses a difficulty. As accordingly, <b>by inference,</b> in may be understood <b>that the Rabbis hold</b> that there is such a prohibition <b>even if she is not suitable for him. Doesn’t</b> everyone agree that in such a case the father <b>has no</b> capability of <b>betrothal with regard to her?</b> Even if they cohabit, she is not considered his wife.
+
+### Part 20
+<b>Rather,</b> it is clear that Rabbi Yehuda is referring to a case where the father and mother are <b>liable for</b> violating <b>a prohibition</b> for their intercourse, but they are not liable to receive <i>karet</i> or capital punishment. <b>And Rabbi Yehuda</b> in this matter <b>holds in accordance with</b> the opinion of <b>Rabbi Akiva, who says</b> that <b>betrothal does not take effect with</b> those women with regard to whom one <b>is liable</b> for violating <b>a prohibition</b> if one engages in intercourse with them. The Rabbis disagree with this; in their opinion, betrothal does take effect in such cases, although a prohibition is involved. Therefore, the mother is considered the father’s wife, and the son is liable for engaging in intercourse with his father’s wife as well as for engaging in intercourse with his mother.
+
+### Part 21
+<b>Rav Oshaya raises an objection</b> to this explanation, as it is stated in a mishna in tractate <i>Yevamot</i> (20a): If a <i>yevama</i> is forbidden to her <i>yavam</i> by <b>a prohibition</b> resulting from <b>a mitzva or</b> by <b>a prohibition</b> stemming from <b>sanctity,</b> then since in these cases the levirate bond is not fundamentally nullified, <b>she performs <i>ḥalitza</i></b> in order to become free of the levirate bond, <b>and</b> due to the prohibition <b>she does not enter into levirate marriage.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

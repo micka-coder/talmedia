@@ -1,0 +1,54 @@
+
+### Part 1
+Why should the flesh be impure? Since the source of its impurity is the limb, and the location of the contact between the limb and the flesh is hidden and not visible, <b>it</b> constitutes contact with a source of <b>impurity</b> in <b>a concealed part</b> of the body, <b>and</b> the principle is that contact with a source of <b>impurity</b> in <b>a concealed part</b> of the body <b>does not render</b> an item <b>impure.</b>
+
+### Part 2
+Rabbi Zeira <b>said to</b> Rabbi Asi: This matter is <b>difficult for me as well, and I asked Rabbi Abba bar Memel, and he said to me:</b> In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i>? <b>It is</b> in accordance with the opinion of <b>Rabbi Meir, who said</b> that contact with a source of <b>impurity</b> in <b>a concealed part</b> of the body <b>renders</b> an item <b>impure.</b>
+
+### Part 3
+Rabbi Asi <b>said to</b> Rabbi Zeira: <b>But hasn’t</b> Rabbi Abba bar Memel <b>said</b> this answer <b>in my presence many times? And I said to him</b> that this answer does not explain the ruling of the <i>baraita</i>. The reason is that with regard to a concealed part of the body imparting impurity, <b>Rabbi Meir differentiates between</b> a type of <b>impurity that requires</b> an item to be <b>rendered susceptible</b> in order to take effect <b>and</b> a type of <b>impurity that does not require</b> an item to be <b>rendered susceptible.</b> The case in the <i>baraita</i> is one where the flesh was not yet rendered susceptible to impurity when it was severed from the limb, and Rabbi Meir concedes that in such a case impurity should not apply to a concealed part of the body.
+
+### Part 4
+<b>Rava</b> was surprised by Rabbi Asi’s statement and <b>said: But what is the difficulty? Perhaps</b> the <i>baraita</i> is discussing a case <b>where</b> the flesh <b>was rendered</b> susceptible to impurity before it was severed from the limb.
+
+### Part 5
+<b>Rabba bar Rav Ḥanan said to Rava: Why do I</b> need the flesh severed from the limb to be <b>rendered susceptible</b> to impurity? Flesh that is upon a limb from a living animal <b>imparts a severe</b> form of <b>impurity due to its original</b> limb, as it is considered part of the limb that was severed from a living animal, which imparts the impurity of a carcass, a severe form of impurity that is transmitted even to people and vessels. Therefore, it is not necessary to render this flesh susceptible to impurity after its separation from the limb, because the <i>halakha</i> is that any food item that will eventually impart a severe form of impurity does not require contact with liquid in order to be rendered susceptible to imparting a lesser form of impurity.
+
+### Part 6
+Rava <b>said to</b> Rabba bar Rav Ḥanan: This principle applies only when the more severe and more lenient forms of impurity are both impurities of food. But in the case of the <i>baraita</i>, the flesh needs to be rendered susceptible to impurity after it is severed from the limb, because <b>when it</b> initially <b>served</b> as part of the limb, <b>it performed the role of wood,</b> i.e., it had the status of flesh of the limb, which is necessary to give the limb the status of a limb severed from the living (see 128b), but it was not impure due to its status as food.
+
+### Part 7
+§Rava said that if a food item serves a function other than food, the principle that if it will eventually contract a severe form of impurity it does not require contact with liquid in order to be rendered susceptible to a lesser form of impurity does not apply. The Gemara now relates a number of matters that are explained with the same reasoning. <b>Abaye said:</b> The Sages <b>said</b> in a <i>baraita</i>: <b>A mass of</b> hardened <b>leaven that one designated for</b> the purpose of <b>sitting</b> upon it, not for consumption, <b>is nullified.</b> The item is no longer considered food and one may possess it in his house during Passover. But the item is now considered a chair, and it is subject to ritual impurity imparted by treading. It therefore is rendered impure if a <i>zav</i> sits on it.
+
+### Part 8
+Abaye explained: <b>Its impurity</b> in such a case is clearly <b>not by Torah law</b> but by rabbinic law; <b>as if it enters your mind</b> that it is impure <b>by Torah law,</b> then <b>we have found</b> that <b>food can become susceptible to a severe</b> type of <b>impurity.</b> This cannot be true, because the category of food that requires contact with liquid to be susceptible to impurity is food that will not eventually impart a more severe type of impurity. Based on Rava’s reasoning, the Gemara responds: The seat imparts impurity by Torah law. <b>When</b> the leaven <b>served</b> as a chair it was not considered food, as <b>it performed the role of wood.</b>
+
+### Part 9
+Similarly, <b>Abaye said:</b> The Sages <b>said</b> in a <i>baraita</i>: <b>An idolatrous offering of food imparts impurity in a tent.</b> Abaye explained: <b>Its impurity is not by Torah law</b> but by rabbinic law; <b>as if it enters your mind</b> that it is impure <b>by Torah law,</b> then <b>we have found</b> that <b>food can become susceptible to a severe</b> type of <b>impurity.</b> The Gemara responds: The idolatrous offering imparts impurity by Torah law. <b>When</b> the food <b>served</b> as an idolatrous offering it was not considered food, as <b>it performed the role of wood.</b>
+
+### Part 10
+Similarly, <b>Abaye said:</b> The Sages <b>said</b> in a <i>baraita</i>: <b>Foods that are connected</b> to vessels are considered <b>like the vessels.</b> For example, if dough is attached to a kneading bowl and the owner wishes for the dough to remain there, the dough is considered part of the bowl. Therefore, if an olive-bulk of a corpse touches that dough, it becomes impure with the more severe impurity of a vessel, which imparts impurity to people and other vessels. Abaye explained: <b>Their impurity is not by Torah law</b> but by rabbinic law; <b>as if it enters your mind</b> that it is impure <b>by Torah law,</b> then <b>we have found</b> that <b>food can become susceptible to a severe</b> type of <b>impurity.</b> The Gemara responds: Food connected to vessels imparts impurity by Torah law. <b>When</b> the food <b>served</b> as a connection to the vessel it was not considered food, as <b>it performed the role of wood.</b>
+
+### Part 11
+Similarly, <b>Rav Pappa said to Rava</b> in explanation of <b>that which is taught</b> in a mishna (<i>Okatzin</i> 3:3): <b>Fat</b> forbidden in consumption for a Jew from <b>an animal carcass in the villages, requires designation</b> as food in order for it to become susceptible to contract impurity as food, <b>and</b> it must be <b>rendered susceptible</b> via contact with liquid. Rav Pappa explained: Although the forbidden fat that covers the kidney of a carcass imparts the impurity of a carcass, <b>its impurity due to</b> the impurity of the <b>kidney is not by Torah law</b> but by rabbinic law. <b>As if it enters your mind</b> that it is impure <b>by Torah law,</b> then <b>we have found</b> that <b>food can impart a severe</b> type of <b>impurity</b> and subsequently become susceptible to impurity as food.
+
+### Part 12
+The Gemara responds: The fat of a carcass imparts impurity by Torah law. <b>When</b> the fat <b>served</b> the kidney as protection and imparted the impurity of a carcass it did not serve as food, as <b>it performed the role of wood.</b>
+
+### Part 13
+Similarly, <b>Rav Mattana said:</b> The Sages <b>said</b> in a <i>baraita</i>: With regard to <b>a house that one roofed with seeds,</b> i.e., vegetation, if those seeds were impure, they are rendered <b>pure</b> when they are used as the roof of the house. The seeds are no longer considered food but rather part of the house. Therefore, if the house becomes leprous, the entire house becomes impure. Rav Mattana explained: <b>Its impurity is not by Torah law</b> but by rabbinic law; <b>as if it enters your mind</b> that it is impure <b>by Torah law,</b> then <b>we have found</b> that <b>seeds can become susceptible to a severe</b> type of <b>impurity.</b> The Gemara responds: The seeds used for the roof of the house impart impurity by Torah law. <b>When</b> the seeds <b>served</b> as the roof of the house they were not considered food, but rather <b>performed the role of wood.</b>
+
+### Part 14
+§The mishna teaches with regard to a hanging limb or flesh of a living animal that if the animal died, the hanging flesh needs to be rendered susceptible to impurity, as its halakhic status is that of flesh severed from a living animal, which is ritually pure. Rabbi Meir then states that the hanging limb imparts impurity as a limb severed from a living animal, but not as an unslaughtered carcass. And <b>Rabbi Shimon deems</b> the limb <b>pure.</b>
+
+### Part 15
+The Gemara asks: <b>Whichever</b> way <b>you</b> look at it, the ruling of Rabbi Shimon is difficult. <b>If death renders</b> a hanging limb one that has <b>fallen off,</b> i.e., if when the animal died of its own accord the hanging limb is considered to have fallen off its body beforehand, the limb <b>should become impure as a limb from a living</b> animal. <b>If death does not render</b> a hanging limb one that has <b>fallen off,</b> the limb <b>should become impure as a limb from a carcass.</b> How is it possible for Rabbi Shimon to deem the limb pure?
+
+### Part 16
+The Gemara answers: Rabbi Shimon is not responding to Rabbi Meir’s statement in the final clause of the mishna. Rather, <b>Rabbi Shimon is referring to the first clause</b> of the mishna, which teaches: <b>The limb and the flesh</b> of an animal that were partially severed and remain <b>hanging from the animal impart impurity as food</b> although they remain <b>in their place</b> attached to the animal. <b>But</b> in order for them to become impure, <b>they need</b> to be <b>rendered susceptible</b> through contact with a liquid. <b>And Rabbi Shimon deems</b> them <b>not susceptible to impurity</b> at all.
+
+### Part 17
+<b>Rabbi Asi said</b> that <b>Rabbi Yoḥanan said: What is the reason</b> for the opinion <b>of Rabbi Shimon? The verse states</b> with regard to impurity as food: <b>“From all food which may be eaten,</b> that on which water comes shall be impure” (Leviticus 11:34). The repetitive phrase “food which may be eaten” indicates that only <b>food that you are able to feed to others,</b> including gentiles, <b>is called food</b> with regard to being susceptible to impurity as food, but <b>food that you are not able to feed</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

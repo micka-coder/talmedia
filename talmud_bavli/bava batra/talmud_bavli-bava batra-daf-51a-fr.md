@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>mais les juges de</b> l'<b>exil ont dit</b> que <b>on peut etablir</b> la <b>presomption</b> de propriete. <b>Rav dit :</b> La <b><i>halakha</i> est conforme</b> a l'avis des <b>juges de</b> l'<b>exil. Rav Kahana et Rav Asi ont dit au Rav :</b> Le <b>Maitre s'est-il retracte de sa <i>halakha</i></b> selon laquelle on ne peut etablir la presomption de propriete en ce qui concerne les biens d'une femme mariee ? Rav <b>leur a dit : J'ai dit</b> que l'opinion des juges de l'exil <b>est raisonnable,</b> car la presomption de propriete peut etre etablie a l'egard des biens d'une femme mariee dans certaines circonstances. La Gemara commente : Ceci est <b>comme</b> cette decision <b>de Rav Yosef</b> a l'egard de celui qui possede la terre pendant trois ans apres le deces du mari.
+
+### Partie 2
+§ La mishna enseigne : <b>Et une femme n'a pas</b> la capacite d'etablir la presomption de propriete <b>en ce qui concerne les biens de son mari.</b> La Gemara demande : N'est-ce pas <b>evident ? Puisqu'elle a</b> le droit a la <b>sustentation</b> des biens de son mari, <b>elle jouit</b> des benefices en paiement de sa <b>sustentation,</b> donc son utilisation des biens n'etablit pas la presomption de propriete. La Gemara repond : <b>Non,</b> il est <b>necessaire</b> d'enoncer cette <i>halakha</i> dans le cas ou <b>il a designe une autre</b> parcelle de <b>terre pour sa subsistance.</b> La mishna enseigne que meme si elle jouit des benefices d'un second champ pendant trois ans, elle n'etablit pas la presomption de propriete de ce champ.
+
+### Partie 3
+La Gemara demande : Par deduction, la femme <b>a</b> la capacite d'apporter une <b>preuve</b> de sa propriete et de prendre possession du champ de son mari. Pourquoi cette preuve est-elle valable ? <b>Laissons</b> lui <b>dire qu'il desire exposer</b> son <b>argent cache.</b> S'il lui propose de vendre le champ et qu'elle accepte, on decouvrira qu'elle possede de l'argent dont il n'avait pas conscience. Son intention n'a jamais ete de vendre le bien, mais de reclamer l'argent auquel il a droit.
+
+### Partie 4
+Peut-on <b>conclure de cette mishna</b> que dans le cas de <b>celui qui vend un champ a sa femme, elle l'a acquis</b>, <b>et on ne dit pas</b> que <b>il desire exposer</b> son <b>argent cache ?</b> La Gemara repond : <b>Non,</b> car on peut <b>dire</b> que la deduction de la mishna <b>que</b> si elle <b>a une preuve</b> alors elle a des droits de propriete est la <i>halakha</i> seulement <b>en ce qui concerne un acte de donation,</b> car, si son mari lui a donne le champ en cadeau, il ne peut pas pretendre qu'il l'a fait dans le but d'exposer son argent cache.
+
+### Partie 5
+La Gemara relate : <b>Rav Nahman dit a Rav Huna :</b> Le <b>Maitre n'etait pas avec nous le soir</b> dans la salle d'etude qui se trouve <b>dans les limites</b> de la ville, <b>ou nous avons dit une affaire superieure.</b> Rav Huna <b>lui dit : Quelle question superieure as-tu dit ? </b> Rav Nahman a repondu : Dans le cas de <b>celui qui vend un champ a sa femme, elle l'a acquis</b>, <b>et nous ne disons pas</b> que <b>il desire exposer</b> son <b>argent dissimule.</b>
+
+### Partie 6
+Rav Huna lui <b>dit :</b> C'est <b>evident ; enlevez</b> l'<b>argent d'ici et elle acquerra</b> le bien <b>par le biais de l'acte de vente</b>, car, meme si elle ne lui a pas encore donne l'argent, elle acquiert le terrain par le biais de l'acte de vente. <b>N'a-t-on pas appris</b> dans une mishna (<i>Kiddushin</i> 26a) : <b>Les biens qui servent de garantie,</b> c'est-a-dire les terrains, <b>peuvent etre acquis par</b> moyen de donner <b>de l'argent, par</b> moyen de donner <b>un document, ou par</b> moyen de <b>prendre possession</b> de celui-ci ?
+
+### Partie 7
+Rav Nahman <b>lui a dit : Mais n'a-t-il pas ete precise a ce sujet</b> que <b>Shmuel dit : Ils ont enseigne</b> que le document seul suffit <b>seulement</b> si la transaction est <b>avec un acte de donation, mais</b> si la transaction est <b>avec un acte de vente,</b> l'acheteur <b>n'acquiert pas</b> le bien <b>jusqu'a ce qu'il lui remette son argent ?</b> Rav Huna repondit : <b>Mais Rav Hamnuna n'a-t-il pas souleve une objection</b> a cela, en se basant sur cette <i>baraita</i> suivante : <b>Comment</b> l'acquisition <b>par</b> moyen de donner <b>un document</b> est-elle realisee ? S'il l'a <b>ecrit</b> pour lui sur du papier ou de la faience,</b> alors <b>meme si</b> le papier ou la faience <b>ne vaut pas</b> meme <b>une <i>peruta</i>,</b> s'il ecrit : <b>Mon champ vous est vendu,</b> ou : <b>Mon champ est acquis par vous</b> a titre de don, <b>il est ainsi vendu ou donne.</b> Cela indique qu'un document suffit a completer une acquisition tant dans le cas d'une vente que dans celui d'un don.
+
+### Partie 8
+Rav Nahman a repondu : <b>Mais n'est-ce pas</b> ainsi que <b>il,</b> Rav Hamnuna, <b>souleve l'objection et il</b> lui-meme <b>la resout ?</b> Le <i>baraita</i> enonce sa decision <b>par rapport a</b> celui qui <b>vend son champ en raison de sa mauvaise</b> qualite. Le vendeur veut se debarrasser de son champ en raison de sa faible valeur, et souhaite en transferer la propriete le plus rapidement possible. Dans ce cas, la redaction d'un document suffit a realiser l'acquisition. En revanche, dans les cas classiques, ce n'est pas le cas. Puisque l'acquisition d'un champ necessite un paiement monetaire en plus d'un acte de vente, la declaration du Rav Nahman, selon laquelle si l'on vend un champ a sa femme, la vente est valide et nous ne disons pas qu'il desire exposer son argent dissimule, est une nouveaute.
+
+### Partie 9
+La Guemara note qu'en interpretant cette <i>baraita</i>, <b>Rav Beivai</b> conclurait au nom de Rav Nahman, ou,</b> selon une autre version, <b>Rav Ashi dit :</b> Pourquoi un document suffit-il pour qu'il puisse acquerir le terrain ? C'est parce que l'on suppose qu'il <b>voulait lui en faire cadeau. Et pourquoi a-t-il redige</b> le document <b>pour lui</b> en employant la <b>terminologie de la vente ?</b> C'etait <b>afin de renforcer</b> le <b>pouvoir</b> de celui qui acquiert le terrain, car en ce qui concerne la garantie de propriete, c'est-a-dire un document qui stipule que si le bien est saisi par le creancier du vendeur, ce dernier remboursera a l'acheteur sa perte, un acte de vente est superieur a un acte de donation.
+
+### Partie 10
+La Guemara <b>souleve une objection</b> a la decision du Rav Nahman, selon laquelle on ne dit pas qu'il desire exposer son argent dissimule, a partir d'une <i>baraita</i> : Si quelqu'un a <b>emprunte</b> de l'argent <b>a son propre <b>esclave et</b> l'a ensuite <b>libere,</b> ou si quelqu'un a emprunte de l'argent <b>a sa femme et</b> l'a ensuite <b>divorcee, ils n'ont aucun</b> droit <b>sur lui,</b> et il n'a pas a les rembourser. <b>Quelle est la raison</b> de ceci ? N'est-ce pas parce que nous disons</b> que <b>il desire exposer</b> leur <b>argent cache,</b> et que sa prise de pret n'etait qu'un artifice pour reclamer de l'argent auquel il avait droit ?
+
+### Partie 11
+La Gemara repond : C'est <b>different ici,</b> car il y a une raison supplementaire de penser qu'il s'agissait d'un artifice, <b>car</b> il est <b>inconfortable pour lui de rendre</b> applicable a <b>lui-meme</b> le verset : "Le riche domine le pauvre, et <b>l'emprunteur est le serviteur du prêteur"</b> (Proverbes 22:7). Il est donc raisonnable de supposer que son intention n'etait pas d'emprunter de l'argent, mais de reveler l'argent cache qui etait en possession de son esclave ou de sa femme. Cette preoccupation ne s'applique pas a celui qui vend un bien a sa femme, et la vente est donc valide.
+
+### Partie 12
+La Gemara relate que <b>Rav Huna bar Avin</b> a envoye une decision aux personnes presentes dans la salle d'etude : Dans le cas de <b>celui qui vend un champ a sa femme, elle l'a acquis</b>,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

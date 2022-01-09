@@ -1,0 +1,57 @@
+
+### Part 1
+§ The opinion that a man may marry a woman raped or seduced by his father can lead to the existence of an unusual family relationship. A woman says: I have a half <b>brother from</b> my <b>father and not from</b> my <b>mother, and</b> my half brother <b>is the husband of</b> my <b>mother, and I am the daughter of his wife. Rami bar Ḥama said:</b> This state of affairs is <b>not</b> legitimate <b>according to</b> the opinion of <b>Rabbi Yehuda in the mishna,</b> who holds that a man may not marry a woman with whom his father engaged in intercourse, even if they were not married. However, according to the Rabbis, a woman whose father was not married to her mother can legitimately have a paternal half brother who is married to her mother.
+
+### Part 2
+The Gemara cites another riddle about a bizarre family relationship. A woman says: <b>He is</b> my <b>brother and he is my son; I am the sister of this one, whom I carry on my shoulders.</b> What is the solution? <b>You find it in</b> the case of <b>a gentile who engaged in intercourse with his daughter,</b> and she bore him a son, who is therefore both her brother and her son. The Gemara is referring to a gentile because it does not wish to entertain the idea that a Jew would act in such a manner.
+
+### Part 3
+The Gemara cites another riddle: <b>Peace upon you, my son; I am the daughter of your sister. You find</b> the solution <b>in</b> the case of <b>a gentile who engaged in intercourse with the daughter of his daughter,</b> who bore him a son. This son’s mother is related to him from her mother’s side as well, as she is his sister’s daughter.
+
+### Part 4
+The Gemara cites another riddle: <b>Water drawers, who draw</b> water <b>in buckets</b> to irrigate fields, <b>let</b> this <b>cryptic</b> riddle <b>fall among you: This</b> boy <b>whom I carry is</b> my <b>son, and I am the daughter of his brother. You find</b> the solution <b>in</b> the case of <b>a gentile who engaged in intercourse with the daughter of his son,</b> as their son is also her uncle.
+
+### Part 5
+The Gemara cites another riddle: <b>Woe, woe [<i>baya</i>, <i>baya</i>] for</b> my <b>brother, who is</b> my <b>father, and who is</b> my <b>husband, and who is the son of</b> my <b>husband, and who is the husband of</b> my <b>mother, and I am the daughter of his wife; and he does not provide bread for his brothers, who are orphans, the sons of</b> me, <b>his daughter. You find</b> the solution <b>in</b> the case of <b>a gentile who engaged in intercourse with his mother, and she bore him a daughter.</b> This daughter is both his sister and his daughter. <b>And he engaged in intercourse with that daughter. And then</b> the <b>old man,</b> his father, <b>engaged in intercourse with her, and she bore him sons.</b> This woman is therefore the wife of her father-brother, and he is also the son of her husband, the old man. Her father’s brothers, i.e., the sons she had with the old man, are his daughter’s sons.
+
+### Part 6
+The Gemara cites another riddle: <b>You and I are siblings; your father and I are siblings; your mother and I are siblings. You find</b> the solution <b>in</b> the case of <b>a gentile who engaged in intercourse with his mother, and she bore him two daughters, and he then engaged in intercourse with one of them, and she bore him a son. And the sister of</b> the son’s <b>mother calls him and says this</b> statement <b>to him,</b> as she is his sister from his father’s side and his father’s sister from their mother’s side, and she is his mother’s sister from both sides.
+
+### Part 7
+The Gemara cites another riddle: <b>You and I are cousins; your father and I are cousins; your mother and I are cousins. You find</b> the solution to <b>this</b> riddle <b>in a permitted</b> manner <b>as well. For example, Reuven, who has two daughters, and</b> his brother <b>Shimon came and married one of them, and the son of Levi,</b> the third brother, <b>came and married</b> the other <b>one of them. And the son of Shimon says</b> this statement <b>to the grandson of Levi.</b> They are cousins from their mothers’ sides, Shimon’s son and Levi’s son are cousins from their fathers’ sides, and Shimon’s son and the mother of Levi’s grandson are cousins from their fathers’ sides.
+
+### Part 8
+<strong>MISHNA:</strong> With regard to <b>a female convert whose sons converted with her, they do not perform <i>ḥalitza</i></b> for each other’s wives, <b>and they do not perform levirate marriage</b> with them, as their conversions are considered rebirth, and they are considered unrelated. This is so <b>even</b> if <b>the conception of the first</b> son <b>was not in</b> the <b>sanctity</b> of Israel, i.e., the mother had not yet converted when she conceived of him, <b>but his birth was in</b> the <b>sanctity</b> of Israel, as his mother had converted by the time she gave birth to him, <b>whereas the second</b> son was both <b>conceived and born in sanctity.</b> The first son is considered a convert, who is unrelated to his brother. <b>And</b> this <i>halakha</i> <b>similarly</b> applies to <b>a maidservant whose sons were freed with her,</b> as they too are not considered relatives.
+
+### Part 9
+<strong>GEMARA:</strong> <b>The sons of Yudan the maidservant were freed. Rav Aḥa bar Ya’akov allowed them to marry each other’s wives</b> after divorce. <b>Rava said to him: Didn’t Rav Sheshet prohibit</b> marriage in that case? Rav Aḥa bar Ya’akov <b>said to him: He prohibited</b> it <b>and I permit</b> it. I disagree with his ruling.
+
+### Part 10
+The Gemara explains: If the two freed slaves or converts are half brothers <b>from</b> their <b>father’s</b> side <b>and not from</b> their <b>mother’s</b> side, <b>everyone agrees that</b> the marriage <b>is permitted,</b> as even a gentile and certainly a convert are considered unrelated to their father’s family. If they are half brothers <b>from</b> their <b>mother and not from</b> their <b>father, everyone agrees that it is prohibited.</b>
+
+### Part 11
+<b>When they disagree,</b> it <b>is</b> a case where they are brothers both <b>from</b> their <b>father and from</b> their <b>mother. The one who permits</b> the marriage claims that <b>we trace</b> them <b>after</b> their <b>father.</b> Their paternal lineage is followed, <b>since they are called the sons of so-and-so,</b> their father. Since they are recognized by their paternal lineage, it is well known that they are considered unrelated, and there is no concern that people will infer that a man may marry his sister-in-law. <b>And Rav Sheshet</b> maintains that <b>they are also called the sons of so-and-so,</b> their mother. Therefore, this concern does exist, as it is not common knowledge that a convert is considered reborn and unrelated to his mother’s family.
+
+### Part 12
+<b>And some say</b> a different version of this dispute: <b>Rav Aḥa bar Ya’akov disagrees</b> with Rav Sheshet, <b>even with regard to maternal</b> half <b>brothers. And what is the reasoning</b> behind this opinion? The legal status of <b>a convert who</b> just <b>converted</b> is <b>like</b> that of <b>a child</b> just <b>born,</b> and all his previous family relationships are disregarded, whether from his father’s side or from his mother’s side.
+
+### Part 13
+<b>We learned</b> in the mishna: With regard to <b>a female convert whose sons converted with her, they do not perform <i>ḥalitza</i></b> with each other’s wives, <b>and they do not perform levirate marriage</b> with them. <b>What is the reason</b> that they may not perform levirate marriage? Is it <b>not because they are prohibited</b> from marrying them, contrary to Rav Aḥa bar Ya’akov’s opinion? The Gemara answers: <b>No,</b> the mishna means <b>that</b> these wives are <b>not</b> included <b>in the law of <i>ḥalitza</i> and levirate marriage,</b> as they are considered unrelated, <b>and</b> each wife <b>is</b> therefore <b>permitted to</b> marry <b>anyone. And they, too, are permitted</b> to marry her.
+
+### Part 14
+The Gemara asks: <b>But doesn’t</b> the mishna <b>teach</b> that this is so <b>even</b> if the mother converted while pregnant with the first son, and the second converted independently? <b>Granted, if you say</b> that <b>they are prohibited</b> from marrying each other’s wives, <b>this</b> explanation <b>is</b> consistent with <b>that which is taught: Even</b> so they are prohibited from marriage. <b>Although the first</b> son <b>was not conceived in sanctity and</b> only <b>his birth was in sanctity, whereas the second</b> was both <b>conceived and born in sanctity, and</b> therefore <b>they are like</b> the sons of <b>two</b> different <b>mothers, even so they are prohibited</b> from performing levirate marriage with their sisters-in-law. <b>But if you say they are permitted</b> to marry each other’s wives, <b>what is</b> the meaning of the word <b>even?</b>
+
+### Part 15
+The Gemara answers: The mishna means <b>that although both of them were born in sanctity, and</b> people might <b>come to confuse them with Jews</b> from birth, who may not marry their sisters-in-law, <b>nevertheless they are permitted</b> to marry each other’s wives.
+
+### Part 16
+<b>There are</b> those <b>who say</b> a different version of this inference: <b>So too, it is reasonable that they are permitted</b> to marry their sisters-in-law, <b>as</b> the mishna <b>teaches: Even</b> if the mother converted while pregnant. <b>Granted, if you say</b> that <b>they are permitted, this</b> explanation <b>is</b> consistent with <b>that which is taught: Even</b> so they are permitted. <b>Although both of them were born in sanctity, and</b> people might <b>come to confuse them with Jews</b> from birth, <b>nevertheless, they are permitted. But if you say</b> that <b>they are prohibited, what is</b> the meaning of the word <b>even?</b>
+
+### Part 17
+The Gemara answers: The mishna means <b>that although the first</b> son <b>was not conceived in sanctity and</b> only <b>his birth was in sanctity, whereas the second</b> was both <b>conceived and born in sanctity,</b> so <b>that</b> they are <b>like</b> the sons of <b>two mothers, nevertheless, they are prohibited</b> from marrying each other’s wives.
+
+### Part 18
+The Gemara cites another proof. <b>Come</b> and <b>hear: Two twin brothers</b> who are <b>converts, and similarly</b> twin brothers who are <b>freed</b> slaves, <b>do not perform <i>ḥalitza</i></b> for each other’s wives, <b>and they do not perform levirate marriage</b> with them, <b>and</b> if they engage in intercourse with them <b>they are not liable</b> to receive <i>karet</i> <b>for</b> engaging in <b>intercourse with a brother’s wife.</b> If <b>they were not conceived in sanctity and</b> only <b>their birth was in sanctity, they do not perform <i>ḥalitza</i> or levirate marriage, but they are liable for</b> engaging in <b>intercourse with a brother’s wife.</b> If <b>they were conceived and born in sanctity, they are like Jews</b> from birth <b>in all of their matters. In any event,</b> the <i>baraita</i> <b>is teaching</b> that regular converts <b>are not liable for</b> engaging in <b>intercourse with a brother’s wife.</b> It can be inferred that while there <b>is no liability</b> by Torah law,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

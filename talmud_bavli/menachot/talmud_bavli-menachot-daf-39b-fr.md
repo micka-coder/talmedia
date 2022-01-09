@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>et</b> les franges rituelles etaient composees <b>entierement</b> d'<b>enroulements,</b> sans qu'aucune partie des cordes ne pende. <b>Rav a dit : Le manteau est beau, mais les</b> cordes blanches et <b>bleues ciel</b> ne sont <b>pas belles. Rabba bar bar Hana a dit : La cape est belle, et les</b> cordes blanches et <b>bleues ciel</b> sont aussi <b>belles.</b>
+
+### Partie 2
+La Gemara demande : <b>A propos de quel</b> principe <b>ils sont en desaccord ?</b> La Gemara repond : <b>Rabba bar bar Hana soutient</b> que puisque <b>il est ecrit</b> dans un verset : "Tu te prepareras des <b>cordes torsadees"</b> (Deuteronome 22:12), <b>et</b> dans un autre <b>il est ecrit :</b> "Et on mettra sur la frange du coin un <b>fil bleu ciel"</b> (Nombres 15:38), cela enseigne que les franges rituelles peuvent etre composees entierement de <b>soit de cordes torsadees,</b> c'est-a-dire, les enroulements, <b>ou</b> des fils laches ou <b>des cordes.</b>
+
+### Partie 3
+<b>Et le Rav soutient</b> qu'en <b>realite, nous</b> avons egalement <b>besoin</b> de <b>cordes</b> laches en plus des enroulements, <b>et</b> lorsque <b>cette expression</b> <b>"cordes torsadees"</b> apparait dans le verset, <b>elle vient dans le but</b> d'enseigner le <b>nombre</b> de cordes qui sont requises. Si le verset avait employe le terme singulier <b>cordelette torsadee,</b> il indiquerait encore que <b>deux</b> cordes sont necessaires, car torsadee signifie que deux cordes sont enroulees l'une autour de l'autre. Lorsque le verset utilise le terme pluriel <b>Cordons tordus,</b> il indique ainsi que <b>quatre</b> cordes sont necessaires. En utilisant les termes "cordes torsadees" et "fil", les versets indiquent : <b>Former des cordes torsadees</b> avec les quatre cordes que l'on attache a chaque coin, <b>et laisser</b> les cordes <b>se detacher d'elles.</b>
+
+### Partie 4
+§ <b>Shmuel dit au nom de Levi : Les cordes de laine exemptent</b> un vetement fait <b>de lin,</b> c'est-a-dire que l'on accomplit la mitsva en apposant des cordes de laine sur un vetement de lin.
+
+### Partie 5
+<b>Un dilemme a ete souleve devant</b> les Sages : <b>Quel est</b> la <i>halakha</i> concernant le fait que des ficelles faites <b>de lin exemptent</b> un vetement fait <b>de laine ? </b> On peut dire que <b>c'est</b> seulement les cordes de laine</b> <b>qui exemptent</b> un vetement <b>de lin, car puisque la corde bleu ciel</b>, qui doit etre de la laine, <b>exempte</b> un vetement de lin, les cordes <b>blanches</b> de laine <b>exemptent aussi</b> le vetement. <b>Mais</b> si l'on appose des cordes de <b>lin</b> sur un vetement de laine</b>, il ne <b>pas</b> remplir son obligation.
+
+### Partie 6
+<b>Ou peut-etre, puisqu'il est ecrit :" Tu ne porteras pas de vetements de nature diverse, laine et lin ensemble. Tu te prepareras des cordes torsadees</b> aux quatre coins de ta couverture" (Deuteronome 22 : 11""12), qui indique que l'on peut porter de la laine et du lin ensemble afin d'accomplir la mitsva des franges rituelles, il n'y a <b>aucune difference</b> si l'on appose des cordes de <b>laine</b> a</b> un vetement de <b>lin, et</b> il n'y a <b>aucune difference</b> si l'on appose des cordes de <b>lin</b> <b>a</b> un vetement de <b>laine. </b>
+
+### Partie 7
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution de ce dilemme, <b>comme le dit Rahava</b> que <b>Rav Yehuda dit : Les cordes de laine exemptent</b> un vetement fait <b>de lin,</b> les cordes <b>de lin exemptent</b> un vetement fait <b>de laine,</b> et <b>les cordes de laine et de lin exemptent</b> un vetement <b>dans tous les cas,</b> c'est-a-dire tous les vetements, <b>et meme</b> les vetements faits <b>de soie [<i>beshirain</i>].</b>
+
+### Partie 8
+La Gemara note : <b>Et</b> ce dernier point <b>est en desaccord</b> avec une decision <b>de Rav Nahman, car Rav Nahman dit : <i>Les Shirain</i> sont</b> entierement <b>exemptes de</b> l'obligation des <b>franges rituelles. Rava souleve une objection a</b> l'opinion de <b>Rav Nahman</b> a partir de la <i>baraita</i> suivante : Les vetements fabriques a partir de types de soies connus sous le nom de <b><i>shirain</i>, <i>kalakh</i>, et <i>serikin</i> necessitent tous des franges rituelles.</b> La Gemara repond : La <i>baraita</i> signifie qu'il y a une obligation <b>par la loi rabbinique,</b> alors que Rav Nahman voulait dire qu'ils sont exemptes par la loi de la Torah.
+
+### Partie 9
+La Guemara conteste cette suggestion : <b>Si c'est le cas,</b> alors <b>disons la derniere clause</b> de la <i>baraita</i> : <b>Et</b> en ce qui concerne <b>tous ces vetements</b>, des cordes de <b>laine et de lin les exemptent.</b> Cela indique que l'on peut apposer des cordes de laine bleu ciel et des cordes de lin blanc. <b>Accorde, si vous dites</b> que l'obligation des franges rituelles pour les vetements de soie est <b>par la loi de la Torah, c'est</b> pourquoi <b>diverses sortes sont permises pour eux. Mais si l'on dit</b> que l'obligation est <b>par la loi rabbinique, comment diverses sortes pourraient-elles etre permises pour eux ? </b> La Gemara repond : <b>Dites</b> plutot : <b>Les cordes de laine ou de lin</b> exemptent les vetements de soie, mais on ne peut pas apposer a la fois des cordes de laine et de lin sur le meme vetement de soie.
+
+### Partie 10
+La Guemara commente : <b>Aussi, il est raisonnable</b> de supposer que c'est l'interpretation correcte du <i>baraita</i>, <b>comme</b> le <i>baraita</i> <b>enseigne</b> dans <b>la derniere clause : </b> Les cordes faites de <b>ces</b> tissus de soie <b>exemptent</b> un vetement <b>de leur type</b> mais <b>n'exemptent pas</b> un vetement <b>qui n'est pas de leur type. Certes, si vous dites</b> que l'obligation d'attacher des franges rituelles a ces vetements est <b>par la loi rabbinique, c'est</b> pourquoi <b>ils sont exemptes</b> si on y appose des cordes <b>de leur type. Mais si l'on dit</b> que l'obligation est <b>par la loi de la Torah,</b> alors <b>il</b> ne devrait y avoir que de la <b>laine ou du lin qui exemptent</b> ces vetements.
+
+### Partie 11
+La Guemara rejette cette idee : <b>Si</b> c'est <b>pour cette raison</b>, <b>il n'y a pas</b> d'argument concluant,</b> car on peut soutenir que d'autres tissus remplissent egalement l'obligation des franges rituelles par la loi de la Torah, <b>conformement</b> a l'avis <b>de Rava. Car Rava souleve une contradiction : Il est ecrit</b> dans un seul verset : "Et ils mettront sur la frange du coin un fil bleu ciel" (Nombres 15:38). Le terme <b>"le coin"</b> indique que la frange doit etre du meme <b>type</b> de tissu que le <b>coin. Et</b> pourtant <b>il est ecrit : "Laine et lin"</b> (Deuteronome 22:11), immediatement avant que le verset indique : "Tu te prepareras des cordes torsadees aux quatre coins de ta couverture" (Deuteronome 22:12), ce qui indique que les franges rituelles doivent etre en laine ou en lin.
+
+### Partie 12
+<b>Comment cela ? </b> Les cordes faites de <b>laine ou de lin exemptent</b> tout vetement, <b>que le vetement soit fait <b>de leur type</b> de tissu, ou <b>que ce soit</b> il n'est <b>pas de leur type</b> de tissu. Les cordes faites de tous les <b>autres types</b> de tissu <b>exonerent</b> les vetements faits <b>de leur type</b> de tissu, par exemple, les cordes en soie exonerent un vetement en soie, mais <b>elles n'exonerent pas</b> un vetement fait d'un tissu <b>qui n'est pas leur type,</b> c'est-a-dire un vetement fait d'un tissu different.
+
+### Partie 13
+La Guemara note : <b>Et Rav Nahman,</b> qui considere que les vetements en soie ne necessitent pas de franges rituelles selon la loi de la Torah, considere <b>conformement</b> a la decision enoncee par <b>un <i>tanna</i> de l'ecole de Rabbi Yishmael.</b>
+
+### Partie 14
+<b>Comme</b> un <i>tanna</i> <b>de l'ecole de Rabbi Yishmael a enseigne : Puisque</b> le mot <b>vetements</b> est generalement <b>enonce dans la Torah sans specification</b> quant a la matiere dont sont faits les vetements, <b>et le verset a specifie dans une de</b> ses references aux vetements qu'il se refere aux vetements faits de <b>laine ou de lin,</b> comme il le dit : "Et le vetement dans lequel il y aura la marque de la lepre, que ce soit un vetement de laine ou un vetement de lin" (Levitique 13:47), on peut en deduire que <b>aussi, tous</b> les vetements mentionnes dans la Torah sont ceux faits de <b>laine ou de lin.</b> Les autres tissus ne sont pas classes comme des vetements par la loi de la Torah. Par consequent, lorsque la Torah exige des ficelles aux coins des vetements (voir Nombres 15:38), elle se refere specifiquement aux vetements faits de laine ou de lin.
+
+### Partie 15
+<b>Abaye a dit : Cette</b> declaration de <b>un <i>tanna</i> de l'ecole de Rabbi Yishmael diverge d'une autre</b> declaration de <b>un <i>tanna</i> de l'ecole de Rabbi Yishmael,</b> qui soutient que tous les tissus sont consideres comme des vetements. <b>Comme</b> un <i>tanna</i> <b>de l'ecole de Rabbi Yishmael a enseigne :</b> Du fait que le verset dit : "Un <b>vetement de laine"</b> (Levitique 13:47), <b>J'ai</b> deduit <b>seulement</b> que <b>un vetement de laine</b> peut devenir rituellement impur. <b>D'ou</b> est-il derive que les vetements faits de <b>poils de chameau, de laine de lapin, de poils de chevre, ou</b> les types de soie <b><i>kalakh</i>, <i>serikin</i>, et <i>shirayin</i>,</b> sont egalement <b>inclus</b> dans cette <i>halakha</i> ? <b>La</b> meme <b>verse indique : "Or</b> un <b>vetement en lin."</b> Le mot "ou" sert d'amplification pour inclure tous les types de tissus.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

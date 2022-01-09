@@ -1,0 +1,30 @@
+
+### Part 1
+<b>for had he known that he would die</b> within a year <b>he would have immediately finalized</b> his decision <b>and given</b> her <b>the bill of divorce.</b> Since he gave it to her initially so that she not require levirate marriage, it is assumed that his intent was to deliver it even in this case. By contrast, in the case where one stipulated about his rights, which he certainly did not intend to forfeit, it is assumed that he would not have wanted his statement to take effect in this situation.
+
+### Part 2
+The Gemara continues to question Rava: In <b>what</b> way <b>is</b> it <b>different from</b> the following case: There was <b>a certain</b> man <b>who said to</b> the agents with whom he entrusted a bill of divorce: <b>If I do not return from now until thirty days</b> have passed, <b>let</b> this <b>be a bill of divorce. He came</b> on the thirtieth day <b>but was prevented</b> from crossing the river <b>by the ferry</b> that was located on the other side of the river, so he did not arrive within the designated time. <b>He said to the</b> people across the river: <b>See that I have arrived, see that I have arrived. And Shmuel said:</b> It <b>is not considered</b> to be <b>an arrival,</b> and the condition is considered to have been fulfilled. The Gemara asks: <b>Why</b> is it not considered an arrival; <b>but he was impeded by circumstances beyond</b> his <b>control?</b>
+
+### Part 3
+The Gemara responds: <b>Perhaps</b> the case of <b>circumstances beyond</b> one’s <b>control that are apparent</b> to everyone and could have been anticipated ahead of time <b>is different, and a ferry is</b> considered <b>an apparent</b> type of <b>circumstance beyond</b> one’s <b>control,</b> which he should have considered and stipulated explicitly. Since he did not do so, it is not considered a circumstance beyond one’s control.
+
+### Part 4
+The Gemara asks: <b>And according to Rav Huna,</b> who said that his documents for a favorable verdict are rendered void if he does not return by the set time, it is difficult to understand why the stipulation is valid. <b>After all, it is a transaction with inconclusive consent [<i>asmakhta</i>],</b> since he certainly assumed that he would return and intended to actually give away his documents, <b>and an <i>asmakhta</i> does not effect acquisition.</b> Even if a person performs an act of acquisition to that effect, he does not have the intention to actually follow through. The Gemara responds: <b>Here</b> it is <b>different because his</b> documents for <b>a favorable verdict are being held</b> by the court, so he certainly did intend to give them up in the event that he not return on time.
+
+### Part 5
+The Gemara asks: <b>And</b> in a case <b>where</b> his rights <b>are held</b> by another party, <b>is it not</b> considered <b>an <i>asmakhta</i>? But didn’t we learn</b> in a mishna (<i>Bava Batra</i> 168a): In the case of <b>one who repaid part of his debt, and deposited his</b> loan <b>document with a third</b> party for purposes of security, <b>and said: If I do not give him</b> the remainder of the debt <b>from now until thirty days, give him his</b> loan <b>document</b> and he can collect the entire amount.
+
+### Part 6
+If <b>the time arrived and he did not give</b> the remainder of the debt to the creditor, <b>Rabbi Yosei says:</b> The third party <b>should give</b> the document to the debtor. <b>And Rabbi Yehuda says: He should not give</b> it. <b>And Rav Naḥman said</b> that <b>Rabba bar Avuh said</b> that <b>Rav said: The <i>halakha</i> is not in accordance with</b> the opinion of <b>Rabbi Yosei, who said that an <i>asmakhta</i> effects acquisition.</b> The reason for this is that the one who deposited the document believes he will return in time and never intended to give over the document. It can be seen in the mishna that even in a case where the document was held by a third party, it is still considered an <i>asmakhta</i> and is not valid.
+
+### Part 7
+The Gemara responds: <b>It is different here because</b> the one who deposited his documents with the court explicitly <b>said that</b> documents for <b>a favorable verdict should be void,</b> which demonstrates that he intended to uphold his stipulation.
+
+### Part 8
+The Gemara concludes: <b>And the <i>halakha</i></b> in these cases is as follows: <b>An <i>asmakhta</i> effects acquisition</b> even if it is dependent on a condition that may not be fulfilled, <b>but this is</b> true only <b>if</b> the one who had stated the obligation dependent upon the <i>asmakhta</i> <b>was not impeded</b> by circumstances beyond his control that prevented him from doing so, and instead deliberately chose not to fulfill the stipulation. In addition, <b>this is</b> the <i>halakha</i> only <b>if he effected an acquisition from</b> the other party for this <i>asmakhta</i> <b>in an eminent court,</b> but not for an agreement that takes place not in an eminent court.
+
+### Part 9
+<strong>MISHNA:</strong> <b>One may take a vow to murderers,</b> i.e., people suspected of killing others over monetary matters; <b>or to robbers [<i>ḥaramin</i>]; or to tax collectors</b> who wish to collect tax, <b>that</b> the produce in his possession <b>is <i>teruma</i> although it is not <i>teruma</i>.</b> One may also take a vow to them <b>that</b> the produce in his possession <b>belongs to the house of the king, although it does not belong to the house of the king.</b> One may take a false vow to save himself or his possessions, as a statement of this sort does not have the status of a vow. <b>Beit Shammai say: One may vow</b> in such a case, although he has no intention that his words be true, <b>using every</b> means of taking a vow or making a prohibition in order to mislead those people,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Part 1
+the reference is not to a situation where a father demanded that his child perform prohibited labor on Shabbat that entails <i>karet</i>. Rather, he instructed him to transgress the <b>prohibition against driving</b> a laden <b>animal.</b> Although it is prohibited to cause animals to work on Shabbat, this does not entail the penalty of <i>karet</i>, as it has the status of a regular prohibition. <b>And</b> this shows that if one’s father told him to desecrate Shabbat by driving a donkey, <b>even so,</b> the positive mitzva to honor one’s parents does <b>not override</b> the prohibition against driving a laden animal.
+
+### Part 2
+§ The Gemara asks: If so, <b>rather</b> than that principle in <b>which we maintain that a positive mitzva comes and overrides a prohibition, let us derive from here that it does not override</b> even a regular prohibition. Just as it was inferred above from the case of ritual fringes, in which the positive mitzva overrides the prohibition against diverse kinds, that all other positive mitzvot similarly override any prohibition, perhaps one should infer from the case of honoring one’s parents that positive mitzvot do not override prohibitions at all.
+
+### Part 3
+<b>And if you say</b> that one should not infer this from here, as the <b>prohibitions of Shabbat are different</b> in <b>that they are</b> more <b>serious,</b> and for this reason the mitzva to honor one’s parents does not override these prohibitions, this cannot be the case, <b>as the <i>tanna</i> speaks generally</b> of a father who instructs a son to perform a regular prohibition, not to desecrate Shabbat, <b>and he does not raise any difficulty</b> of this kind.
+
+### Part 4
+<b>As it is taught</b> in a different <i>baraita</i>: One <b>might</b> have thought <b>that if one’s father said to</b> his son, who is a priest or nazirite: <b>Be rendered ritually impure</b> with impurity imparted by a corpse, so as to bring me an item from a ritually impure place, <b>or if he said to him: Do not return</b> this lost item, it <b>might</b> have been supposed that his son <b>should obey him.</b> Therefore, <b>the verse states: “You shall fear every man his mother and his father and you shall keep My <i>Shabbatot</i>,</b> I am the Lord your God” (Leviticus 19:3). This verse teaches: <b>All of you are obligated in My honor.</b> This proves that the <i>tanna</i> does not differentiate between desecrating Shabbat, which is a severe prohibition, and a priest becoming ritually impure with impurity imparted by a corpse, which is a lighter prohibition.
+
+### Part 5
+§ <b>Rather,</b> the Gemara rejects this line of reasoning and accepts the claim that the <i>baraita</i> does not speak of one whose father asked him to desecrate Shabbat by performing a prohibited labor that entails <i>karet</i>, but of a father who instructed his son to drive a laden animal. As for the difficulty that this apparently indicates that a positive mitzva does not override any type of prohibition, the reason that this is not the case is <b>because there is room to refute</b> this argument.
+
+### Part 6
+The Gemara explains how the previous claim can be countered: <b>What</b> about the fact <b>that these</b> instructions of a father are different, <b>as</b> when one drives an animal on Shabbat in honor of his parents this is merely <b>preparation for the mitzva</b> of honoring one’s parents, since the son is not actually feeding or clothing his father at the time. Consequently, this is not a proper fulfillment of a positive mitzva, and therefore the case of a father who instructs his son to drive an animal cannot be used as a source with regard to other instances.
+
+### Part 7
+<b>Rather,</b> it could <b>enter your mind to say:</b> The principle that a positive mitzva overrides even a prohibition that entails <i>karet</i> is <b>derived from the building of the Temple. As it is taught</b> in a <i>baraita</i>: One <b>might</b> have thought that <b>the building of the Temple should override Shabbat;</b> therefore, <b>the verse states: “You shall keep My <i>Shabbatot</i> and revere My Sanctuary,</b> I am the Lord” (Leviticus 19:30), which means that <b>all of you are obligated in My honor.</b> God is honored when Shabbat is observed, and He demands the observance of Shabbat even when the Temple is being built.
+
+### Part 8
+The Gemara analyzes this <i>baraita</i>: <b>What, is it not</b> referring <b>to</b> building the Temple by performing prohibited labors on Shabbat whose violation entails <i>karet</i>, such as <b>building and demolishing? And the reason</b> the building of Temple does not override Shabbat is that <b>the Merciful One</b> specifically <b>writes: “Keep My <i>Shabbatot</i>,”</b> from which it may be inferred that <b>if that were not so,</b> the positive mitzva <b>would override</b> Shabbat. It is therefore possible to deduce from here that in general, positive mitzvot override even prohibitions that entail <i>karet</i>.
+
+### Part 9
+The Gemara responds: <b>No,</b> here too the reference is to the <b>prohibition against driving</b> a laden <b>animal, and even so</b> the positive mitzva to build the Temple does <b>not override</b> the prohibition against driving a laden animal on Shabbat. The Gemara asks again, as before: If so, <b>rather</b> than that principle in <b>which we maintain that a positive mitzva comes and overrides a prohibition, let us derive from here that it does not override</b> even a regular prohibition.
+
+### Part 10
+<b>And if you say that prohibitions of Shabbat are different</b> in <b>that they are</b> more <b>severe,</b> this cannot be the case, <b>as the <i>tanna</i> speaks generally and he does not raise any difficulty</b> of this kind <b>as it is taught</b> in the aforementioned <i>baraita</i>: One <b>might</b> have thought <b>that if one’s father said to</b> his son who is a priest or nazirite: <b>Be rendered ritually impure, or if he said to him: Do not return</b> this lost item, it <b>might</b> have been supposed that his son <b>should obey him.</b> Therefore, <b>the verse states: “You shall fear every man his mother and his father</b> and you shall keep My <i>Shabbatot</i>, I am the Lord your God” (Leviticus 19:3), which means: <b>All of you are obligated in My honor.</b>
+
+### Part 11
+<b>Rather,</b> there is no proof from here with regard to all Torah prohibitions, <b>because there is room to refute</b> that argument as follows: <b>What</b> about the fact <b>that these</b> instances of driving an animal on Shabbat are merely <b>a preparation for</b> the <b>mitzva</b> of building the Temple, and is not a mitzva in itself? The Gemara raises a difficulty: <b>Let</b> the <i>halakha</i> that <b>preparation for a mitzva</b> does not override a prohibition <b>be derived from there,</b> the case of honoring one’s parents, as stated previously. Why repeat this matter with regard to the building of the Temple?
+
+### Part 12
+The Gemara responds: <b>Yes, it is indeed so.</b> And <b>why do I</b> need the verse: <b>“You shall keep My <i>Shabbatot</i>, and revere My Sanctuary”</b> (Leviticus 19:30)? After all, the <i>halakha</i> that the building of the Temple does not override the prohibition against driving an animal on Shabbat is derived from the case of honoring one’s parents. The Gemara answers: <b>It is necessary to</b> derive <b>that which is taught</b> in a <i>baraita</i>: One <b>might</b> have thought that <b>a person should be in reverence of the Temple</b> and turn the Temple itself into an object of worship. Therefore, <b>the verse states: “You shall keep My <i>Shabbatot</i>, and revere My Sanctuary.”</b> The term <b>keeping is stated</b> with regard <b>to Shabbat, and</b> the term <b>reverence is stated</b> with regard <b>to the Temple. Just as</b> in the case of <b>keeping stated</b> with regard <b>to Shabbat,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

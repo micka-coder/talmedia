@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Comme il est enseigne</b> dans une <i>baraita</i> a propos de l'interdiction de manger de la viande sacrificielle en etat d'impurete rituelle : "Mais l'ame qui mange de la viande du sacrifice d'actions de graces, qui appartient au Seigneur, ayant son impurete sur elle, cette ame sera retranchee de son peuple" (Levitique 7:20). L'expression <b>"qui appartiennent au Seigneur"</b> sert <b>a inclure</b> dans l'interdiction faite a une personne impure de consommer la nourriture sacrificielle <b>les portions sacrificielles,</b> qui sont destinees a etre sacrifiees sur l'autel et non consommees par d'autres personnes. Celui qui mange cette viande alors qu'il est impur est susceptible de recevoir <i>karet</i>.
+
+### Partie 2
+La Guemara explique la preuve a partir de cette <i>baraita</i> : Dans le cas des <b>portions sacrificielles, l'interdiction des</b> elements qui sont censes <b>s'elever</b> sur l'autel <b>s'y applique, et</b> en ce qui concerne les parties des portions sacrificielles qui sont interdites <b>de graisse, l'interdiction</b> de manger de la graisse interdite, qui est passible de <b><i>karet</i>, s'y applique. Et</b> neanmoins <b>l'interdiction de</b> manger des aliments sacrificiels en etat d' <b>impurete vient et s'applique</b> en plus de cette interdiction. Cela indique qu'en ce qui concerne specifiquement la viande sacrificielle, une interdiction prend effet la ou une autre interdiction existe deja.
+
+### Partie 3
+La Guemara ajoute : <b>Sachez qu'il en est ainsi, car Rabbi</b> Yehuda HaNasi <b>soutient</b> en general qu'une <b>interdiction prend effet la ou</b> une autre <b>interdiction</b> existe deja, <b>mais cette affirmation</b> ne s'applique qu'en ce qui concerne une interdiction relativement <b>severe</b> prenant effet <b>la ou</b> une interdiction relativement <b>longue</b> existe deja. <b>Mais</b> dans le cas d'une <b>interdiction indulgente prenant effet la ou</b> il existe deja une <b>interdiction existante, et que</b> l'<b>interdiction originelle est</b> plus <b>severe</b> que la seconde, <b>non,</b> Rabbi Yehuda HaNasi ne considere pas que la seconde interdiction prend effet. <b>Et</b> pourtant <b>en ce qui concerne la viande sacrificielle</b>, <b>on a entendu dire que</b> Rabbi Yehuda HaNasi <b>dit</b> que <b>meme une interdiction clemente prend effet lorsqu'une interdiction severe</b> existe deja.
+
+### Partie 4
+La Guemara cite la source de cette affirmation : <b>Comme l'interdiction d'abuser</b> des biens consacres <b>est</b> une interdiction relativement <b>lenifiante</b>, puisque selon Rabbi Yehuda HaNasi elle est punie par la <b>mort</b> de la main du Ciel, <b>et l'interdiction</b> de manger de la viande <b>sacrificielle</b> <b>est une interdiction severe, </b> puisqu'elle est punie par <b><i>karet</i>,et</b> pourtant la <b>interdiction</b> punie par <b>mort vient et prend effet la ou</b> il y a deja une <b>interdiction</b> existante punie par <b><i>karet</i>. </b>
+
+### Partie 5
+<b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Il est dit a propos des offrandes de paix, qui sont des offrandes de moindre saintete : "Le sacrificateur les fera fumer sur l'autel ; c'est l'aliment de l'offrande consumee par le feu, pour un parfum agreable ; <b>Toute la graisse est a l'Eternel"</b> (Levitique 3:16). Ce verset sert <b>a inclure les portions sacrificielles des offrandes de moindre saintete dans</b> la <i>halakha</i> de <b>mauvais usage</b> des biens consacres.
+
+### Partie 6
+La Gemara commente : <b>Et l'abus</b> de biens consacres, selon Rabbi Yehuda HaNasi, <b>est une interdiction</b> punie par la <b>mort</b> de la main du Ciel, <b>et</b> pourtant <b>elle prend effet la ou</b> il existe deja une <b>interdiction</b> de <b>graisse interdite, qui est une interdiction</b> punie par <b><i>karet</i>. Concluez de</b> cette <i>baraita</i> que <b>en ce qui concerne les aliments sacrificiels</b>, <b>Le Misericordieux a revele</b> qu'une interdiction prend effet la ou une autre interdiction existe deja. Comme indique plus haut, c'est pour cette raison que Rabbi Chimon declare dans la mishna que l'on est tenu d'apporter deux offrandes de peche pour avoir mange de la graisse interdite qui est <i>notar</i>.
+
+### Partie 7
+La Gemara objecte : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit : </b> L'interdiction de manger <b>une offrande qui a ete sacrifiee avec l'intention de la consommer apres le temps prevu [<i>piggul</i>] ne</b> s'applique pas <b>aux</b> elements qui sont censes <b>monter</b> sur l'autel, <b>et</b> de meme, l'interdiction de manger <b><i>notar</i> ne</b> s'applique pas <b>aux</b> elements qui sont censes <b>monter</b> sur l'autel ? Cela indique que meme en ce qui concerne la viande sacrificielle, une interdiction ne prend pas effet lorsqu'une autre interdiction existe deja.
+
+### Partie 8
+La Gemara suggere : <b>Plutot,</b> cette question <b>est</b> un differend entre <b><i>tannaim</i> en ce qui concerne</b> l'avis <b>de Rabbi Shimon, car certains disent</b> que Rabbi Shimon soutient que <b>en ce qui concerne la viande sacrificielle</b> <b>une interdiction prend effet la ou</b> une autre <b>interdiction</b> existe deja, comme indique dans la mishna. <b>Et certains disent</b> que <b>meme en ce qui concerne la viande sacrificielle</b>, Rabbi Shimon tient que <b>une interdiction ne prend pas effet la ou</b> une autre <b>interdiction</b> existe deja.
+
+### Partie 9
+La Guemara conteste : <b>Et selon celui qui dit</b> que <b>meme en ce qui concerne la viande sacrificielle</b> <b>un interdit ne prend pas effet la ou</b> un autre <b>interdit</b> existe deja, <b>que fait-il du</b> verset : <b>"Toute la graisse est a l'Eternel"</b> (Levitique 3:16), duquel il a ete deduit plus haut que les parties sacrificielles des offrandes de moindre saintete sont incluses dans l'interdiction d'abuser des biens consacres ?
+
+### Partie 10
+La Guemara repond qu' <b>il l'interprete</b> comme faisant reference <b>a</b> la <b>descendance des animaux sacrifies</b>, <b>car il soutient</b> que la <b>descendance des animaux sacrifies</b> devient <b>sanctifiee lorsqu'elle</b> commence a <b>exister,</b> c'est-a-dire lorsqu'elle nait. Comme l'interdiction de la graisse interdite prend egalement effet a ce moment-la, <b>les deux,</b> c'est-a-dire les interdictions de la graisse interdite et de l'abus des biens consacres, <b>entrent</b> en vigueur <b>simultanement.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Evidemment,</b> les membres du corps sont formes avant les nerfs et les tendons, et donc l'<b>interdiction de</b> manger des <b>animaux sacrificiels</b> <b>precede</b> l'interdiction de manger le nerf sciatique.
+
+### Partie 2
+La Gemara repond : <b>Meme si l'interdiction de</b> manger des animaux <b>sacrificiels</b> <b>precede</b> l'interdiction de manger le nerf sciatique, l'interdiction de</b> manger le <b>nerf sciatique vient et prend effet sur</b> la progeniture des animaux consacres, <b>parce que</b> l'<b>interdiction</b> de manger le nerf sciatique ajoute une rigueur supplementaire en ce qu'elle <b>s'applique</b> egalement <b>aux descendants de Noe. </b> L'interdiction de manger le nerf sciatique etait en vigueur a partir du moment ou Jacob luttait avec l'ange (voir Genese 32:25""33), avant que la Torah ne soit donnee. A cette epoque, Jacob et ses fils avaient le statut de descendants de Noe, c'est-a-dire de gentils. Par consequent, l'interdiction de manger le nerf sciatique est plus large que l'interdiction de manger la viande des animaux sacrifies, qui n'a pris effet que lorsque la Torah a ete donnee.
+
+### Partie 3
+La Guemara conteste cette reponse : <b>Qui as-tu entendu</b> tient en accord avec <b>ce raisonnement ?</b> C'est <b>Rabbi Yehuda,</b> cite dans une mishna ulterieure (100b). <b>Mais la mishna</b> ici <b>n'est pas conforme</b> a l'avis de <b>Rabbi Yehuda, car elle enseigne</b> que l'interdiction de manger le nerf sciatique <b>s'applique aux animaux domestiques et aux animaux non domestiques, a</b> la <b>cuisse de la jambe droite</b> <b>et a</b> la <b>cuisse de la jambe gauche</b>. En revanche, Rabbi Yehuda considere que l'interdiction ne s'applique qu'a l'egard du nerf sciatique de la cuisse d'une jambe (voir 90b).
+
+### Partie 4
+La Guemara explique : La <b><i>tanna</i></b> de <b>cette</b> mishna <b>tient conformement</b> a l'opinion de Rabbi Yehuda <b>en ce qui concerne une</b> <i>halakha</i>, c'est-a-dire, que l'interdiction de manger le nerf sciatique s'applique aux descendants de Noe, <b>et est en desaccord avec son</b> avis <b>en ce qui concerne un</b> <i>halakha</i> et considere que l'interdiction s'applique aux nerfs sciatiques des deux jambes.
+
+### Partie 5
+La Gemara conteste : <b>Dites que vous avez entendu que Rabbi Yehuda</b> statue que l'interdiction de manger le nerf sciatique prend effet en plus de l'interdiction <b>en ce qui concerne un animal non casher</b>, <b>qui est une interdiction</b> punie par des coups de fouet. Comme l'interdiction du nerf sciatique est plus large dans la mesure ou elle s'applique aux descendants de Noe, elle prend effet meme si l'animal est deja interdit comme non cachere. Mais dans le cas des <b>animaux sacrificiels</b>, <b>dont</b> la consommation par une personne impure est <b>une interdiction</b> punissable par <b><i>karet</i>, avez-vous entendu</b> que Rabbi Yehuda considere l'interdiction de manger le nerf sciatique plus stricte, de sorte qu'elle prend effet meme si l'animal est deja interdit ? Par consequent, cette reponse est rejetee.
+
+### Partie 6
+La Guemara propose une reponse alternative : <b>Au contraire, ici</b> dans la mishna <b>nous avons affaire</b> a un animal non sacre <b>mettant au monde</b> son <b>premier-ne, qui</b> devient <b>sanctifie</b> en sortant du <b>sacre. </b> La mishna enseigne que si l'interdiction de manger le nerf sciatique ne s'applique pas a la progeniture des animaux sacrifies, car leur statut sacrificiel les rend interdits a la consommation avant que l'interdiction du nerf sciatique ne prenne effet, ce n'est pas le cas en ce qui concerne un premier-ne. Le statut sanctifie d'un premier-ne ne prend effet que lorsqu'il quitte le ventre de sa mere, c'est-a-dire apres que l'interdiction du nerf sciatique ait pris effet.
+
+### Partie 7
+<b>Et si vous voulez, dites</b> plutot que la mishna traite de la <b>descendance</b> de tous les <b>animaux sacrificiels</b>, et cette <i>tanna</i> soutient que ces animaux <b>sont sanctifies</b> seulement <b>lorsqu'ils prennent naissance</b> en tant que creatures independantes, c'est-a-dire a la naissance. Par consequent, l'interdiction du nerf sciatique prend effet avant que l'animal ne devienne interdit au moment de sa naissance ; ou, selon l'opinion selon laquelle le nerf sciatique est autorise chez le fœtus, les deux interdictions prennent effet simultanement.
+
+### Partie 8
+§ Ayant aborde la necessite pour la mishna de preciser que l'interdiction de manger le nerf sciatique s'applique a l'egard des animaux sacrifies, la Guemara discute des types d'animaux sacrifies qui sont inclus dans cette interdiction. <b>Rabbi Hiyya bar Yosef dit :</b> Les Sages <b>ont enseigne</b> que l'interdiction du nerf sciatique s'applique <b>uniquement</b> en ce qui concerne les <b>animaux sacrificiels</b> <b>qui sont manges,</b> par ex, les offrandes de peche, les offrandes de culpabilite et les offrandes de paix ; <b>mais</b> en ce qui concerne les <b>animaux sacrificiels</b> <b>qui ne sont pas manges,</b> par exemple, les holocaustes, <b>l'interdiction</b> du nerf sciatique ne s'applique pas. Et Rabbi Yohanan dit : L'interdiction</b> du <b>nerf sciatique s'applique a la fois</b> a l'egard des <b>animaux sacrificiels</b> <b>qui sont manges et</b> a l'egard des <b>animaux sacrificiels</b> <b>qui ne sont pas manges.</b>
+
+### Partie 9
+<b>Rav Pappa a dit :</b> Rabbi Hiyya bar Yosef et Rabbi Yohanan <b>ne sont pas en desaccord;</b> ils se referent simplement a des cas differents. <b>Ici,</b> Rabbi Yohanan dit que l'interdiction du nerf sciatique s'applique <b>en ce qui concerne la flagellation</b> de celui qui en mange. <b>La,</b> Rabbi Hiyya bar Yosef dit que l'interdiction du nerf sciatique ne s'applique pas <b>en ce qui concerne le fait de faire monter</b> la viande de l'animal <b>vers l'autel, c'est-a-dire que les offrandes qui sont brulees sur l'autel sont montees avec le nerf sciatique. Bruler le nerf sciatique sur l'autel n'est pas comparable a le manger et n'est pas interdit.
+
+### Partie 10
+<b>Il y a</b> ceux <b>qui disent</b> que <b>Rav Pappa a dit</b> comme suit : Rabbi Hiyya bar Yosef et Rabbi Yohanan <b>ne sont pas en desaccord;</b> ils se referent simplement a des cas differents. <b>Ici,</b> Rabbi Hiyya bar Yosef dit que l'interdiction du nerf sciatique ne s'applique pas aux holocaustes, en ce sens qu'on n'est pas tenu <b>de l'enlever</b> avant de bruler l'offrande sur l'autel. <b>Dans ce cas,</b> Rabbi Yohanan dit que l'interdiction s'applique, en ce sens que si l'on a retire le nerf sciatique, il est interdit <b>de le faire remonter</b> sur l'autel de maniere independante.
+
+### Partie 11
+<b>Rav Nahman bar Yitzhak</b> n'est pas d'accord avec Rav Pappa et <b>dit :</b> Rabbi Hiyya bar Yosef et Rabbi Yohanan <b>ne sont pas d'accord</b> quant a savoir s'il est permis <b>de faire remonter</b> le nerf sciatique sur l'autel meme s'il reste dans la cuisse. <b>Comme il est enseigne</b> dans un <i>baraita</i> : Dans le verset : <b>"Et le pretre fera fumer tout cela sur l'autel"</b> (Levitique 1:9), le terme "tout cela" sert <b>a inclure les os, les tendons, les cornes et les sabots</b> parmi les objets brules sur l'autel.
+
+### Partie 12
+On <b>pourrait</b> avoir pense que <b>meme</b> si <b>ils se sont detaches</b> de la chair de l'holocauste, ils sont brules sur l'autel. Par consequent, <b>le verset dit : "Et tu offriras tes holocaustes, la chair et le sang,</b> sur l'autel de l'Eternel, ton Dieu" (Deuteronome 12:27), indiquant que seuls la chair et le sang sont offerts sur l'autel.
+
+### Partie 13
+La <i>baraita</i> continue : <b>Si</b> c'est seulement <b>la chair et le sang</b> qui sont offerts sur l'autel, on <b>pourrait</b> avoir pense que le pretre doit d'abord <b>enlever les tendons et les os</b> d'une offrande <b>et</b> alors seulement il peut <b>amener la chair</b> pour etre brulee <b>sur l'autel.</b> Par consequent, <b>le verset indique : "Et le pretre fera fumer tout cela sur l'autel,"</b> y compris les tendons et les os. <b>Comment</b> peut-on reconcilier <b>ces textes</b> ? Si les tendons et les os sont <b>attaches</b> a la chair, <b>ils monteront.</b> S'ils se sont <b>detaches</b> de la chair, alors <b>meme</b> s'ils sont deja <b>au sommet de l'autel, ils descendront.</b>
+
+### Partie 14
+La Guemara commente : <b>Et qui est le <i>tanna</i> que tu as entendu, qui a dit</b> que si <b>ils se detachaient</b> de la chair, <b>ils descendront ? C'est Rabbi</b> Yehuda HaNasi, <b>comme il est enseigne</b> dans une <i>baraita</i> : Dans le verset qui dit : <b>"Et le pretre fera fumer tout cela</b> sur l'autel", le terme "tout cela" sert a <b>inclure les os, les tendons, les cornes et les sabots</b> parmi les objets brules sur l'autel, <b>et</b> c'est la <i>halakha</b> <b>meme</b> si <b>ils se sont detaches</b> de la chair de l'offrande.
+
+### Partie 15
+Le <i>baraita</i> continue : <b>Mais</b> si c'est le cas, <b>comment puis-je realiser</b> le sens du verset : <b>Vous offrirez vos holocaustes, la chair et le sang,</b> sur l'autel du Seigneur votre Dieu" (Deuteronome 12.27), qui indique que seuls la chair et le sang d'une offrande sont offerts sur l'autel ? Il fait reference <b>aux</b> parties de l'offrande qui se sont <b>deposees</b> a cause du feu. <b>Comment ? </b> Si la chair partiellement <b>consommee</b> d'un holocauste est delogee de l'autel, <b>on la retourne</b> au feu, <b>mais on ne retourne pas</b> les tendons et les os</b> partiellement consommes qui se delogent.
+
+### Partie 16
+Le <i>baraita</i> continue : <b>Rabbi</b> Yehuda HaNasi <b>dit</b> que <b>un verset dit : "Et le pretre fera fumer tout cela</b> sur l'autel," ce qui <b>incluait</b> les tendons et les os. <b>Et un verset stipule : "Et tu offriras tes holocaustes, la chair et le sang,"</b> ce qui <b>excluait</b> toute partie autre que la chair et le sang. <b>Comment</b> peut-on reconcilier <b>ces textes</b> ? Si les tendons et les os etaient <b>attaches</b> a la chair, <b>ils monteront.</b> S'ils <b>se sont detaches</b> de la chair, alors <b>meme</b> s'ils sont deja <b>au sommet de l'autel, ils descendront.</b>
+
+### Partie 17
+La Guemara explique leur differend : <b>Et les rabbins</b> soutiennent qu'en ce qui concerne les tendons et les os qui <b>sont attaches</b> a la chair, il <b>n'etait pas necessaire</b> qu'un verset inclue</b> l'obligation de les faire monter sur l'autel. Il est clair qu'ils doivent etre montes, <b>tout comme c'est</b> la <i>halakha</i> que <b>la tete d'un holocauste,</b> qui contient beaucoup d'os, soit montee, comme le dit explicitement le verset : "Et les fils d'Aaron, les pretres, poseront les morceaux, la tete et la graisse, en ordre, sur le bois qui est sur le feu qui est sur l'autel" (Levitique 1:8). <b>Quand un verset etait necessaire</b> c'etait <b>pour</b> le cas ou les tendons et les os <b>se detachaient</b> de la chair. Par consequent, lorsque le verset utilise l'expression inclusive "tout cela", c'est pour inclure les tendons et les os qui se sont detaches.
+
+### Partie 18
+<b>Mais Rabbi</b> Yehuda HaNasi soutient qu'en ce qui concerne les tendons et les os qui sont <b>attaches</b> a la chair et <b>qui sont autorises</b> a etre manges,
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

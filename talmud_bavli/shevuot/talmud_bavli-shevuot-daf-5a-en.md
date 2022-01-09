@@ -1,0 +1,63 @@
+
+### Part 1
+using the method of <b>amplifications and restrictions.</b>
+
+### Part 2
+Ameimar answers: <b>Yes, generally</b> Rabbi Yehuda HaNasi <b>ex-pounds</b> verses using the method of <b>generalizations and details, but here,</b> with regard to the redemption of the firstborn, <b>this is the reason</b> that he expounds the verses using the method of amplifications and restrictions: He holds <b>in accordance with that which the school of Rabbi Yishmael taught.</b>
+
+### Part 3
+<b>As the school of Rabbi Yishmael taught:</b> When defining which fish it is permitted to eat, the verse states: “This you may eat, from whatever is in the water, anything that has fins and scales in the water, in the seas and in the streams” (Leviticus 11:9). The verse first states the general term: <b>“In the water,” “in the water,”</b> mentioning it <b>twice,</b> and only afterward mentions the details, i.e., “in the seas and in the streams.” When the general and detailed phrases are ordered in this way, they <b>are not</b> expounded as <b>a generalization and a detail,</b> but <b>rather</b> as <b>an amplification and a restriction.</b> Similarly, although Rabbi Yehuda HaNasi generally expounds verses using the method of generalizations and details, with regard to the redemption of the firstborn, since the verse mentions the two general terms first and mentions the specific detail only afterward, he expounds it using the method of amplifications and restrictions.
+
+### Part 4
+The Gemara asks: <b>And the Rabbis,</b> why do they expound the verse about the redemption of a firstborn as a generalization and a detail? <b>Ravina said: Like they say in the West,</b> Eretz Yisrael: <b>Wherever you find two generalizations juxtaposed to each other,</b> followed by a specific detail, <b>place</b> the <b>detail between</b> the two generalizations <b>and</b> thereby <b>expound them as a generalization and a detail</b> followed by another generalization.
+
+### Part 5
+The Gemara concludes the question it asked earlier: <b>Now that you said</b> that <b>Rabbi</b> Yehuda HaNasi <b>expounds</b> verses using the method of <b>generalizations and details, perforce</b> the mishna’s ruling in the case of <b>oaths</b> is <b>difficult,</b> as it is derived by expounding the verse as an amplification and a restriction, and Rabbi Yehuda HaNasi does not generally expound verses in that manner. This contradicts Rav Kahana’s explanation that the mishna expresses Rabbi Yehuda HaNasi’s own opinion. <b>Rather,</b> one must say that <b>with regard to oaths,</b> Rabbi Yehuda HaNasi <b>formulated</b> the mishna <b>in accordance with</b> the opinion <b>of Rabbi Akiva, but he himself does not hold accordingly.</b>
+
+### Part 6
+§ Above (4a), the Gemara cited a <i>baraita</i>. Now the Gemara analyzes <b>the</b> matter <b>itself.</b> The <i>baraita</i> states: <b>From where</b> is it derived <b>that one is liable</b> to bring a sliding-scale offering <b>only for</b> cases <b>in which</b> he <b>had awareness at the beginning and awareness at the end, but</b> had <b>a lapse of awareness in between,</b> when he actually transgressed? <b>The verse states</b> with regard to a person’s awareness of the fact that he was impure: <b>“And it was concealed,” “and it was concealed,”</b> mentioning it <b>twice</b> (Leviticus 5:2–3). The first mention teaches that one is liable only if during the transgression he was unaware of his status, and the second mention teaches that one is liable only if he had awareness of his status before the transgression. This is <b>the statement of Rabbi Akiva.</b>
+
+### Part 7
+The <i>baraita</i> continues: <b>Rabbi</b> Yehuda HaNasi <b>says:</b> This proof <b>is not necessary,</b> as <b>it states</b> in the same verse: <b>“And it was concealed,”</b> which indicates, <b>by inference, that</b> initially <b>he had been aware;</b> and nevertheless the verse continues to state: <b>“And he was aware.”</b> It emerges, then, that the verse refers <b>here</b> to <b>two</b> different periods of <b>awareness,</b> one before the transgression and one afterward. But <b>if so, why</b> must <b>the verse state: “And it was concealed,”</b> a second time? It is in order <b>to render one liable</b> both <b>for</b> a violation due to <b>a lapse of awareness of</b> the fact that he was <b>ritually impure and for</b> a violation due to <b>a lapse of awareness of</b> the fact that the place he entered was actually the <b>Temple.</b>
+
+### Part 8
+<b>The Master said</b> in that <i>baraita</i>: The verse states: <b>“And it was concealed,”</b> which indicates, <b>by inference, that</b> initially <b>he had been aware.</b> The Gemara asks: <b>From where</b> is this <b>inferred? Rava said: From</b> the fact <b>that it is not written: And it is concealed from him,</b> which would have been the appropriate formulation had he never been aware of the matter at all. Accordingly, the phrase “and it was concealed” is to be understood as referring to a case in which he had been initially aware.
+
+### Part 9
+<b>Abaye said to him: If that is so,</b> then you should also make a similar inference <b>with regard to a suspected adulteress [<i>sota</i>], as it is written</b> that she is liable to undergo the ordeal of drinking the bitter waters when “a man lay with her carnally, <b>and it was concealed from the eyes of her husband”</b> (Numbers 5:13). This would indicate, <b>by inference, that initially he had been aware</b> of the fact that his wife committed adultery. Abaye explains the difficulty: <b>If he was</b> actually <b>aware</b> that his wife had committed adultery, <b>would the</b> bitter <b>waters</b> have the power to <b>examine her?</b>
+
+### Part 10
+<b>But isn’t it taught</b> in a <i>baraita</i>: The verse states with regard to a case in which she is found guilty: <b>“And the husband will be free of sin and the wife shall bear her sin”</b> (Numbers 5:31). This verse teaches that only <b>when the husband is free of sin, the water examines his wife,</b> but if <b>the husband is not free of sin, the water does not examine his wife.</b> If the husband had been aware that his wife had committed adultery, then she is forbidden to him and he is required to divorce her. The fact he did not divorce her is considered a sin; consequently, the waters cannot examine his wife.
+
+### Part 11
+Abaye presents another difficulty to Rava: <b>And furthermore,</b> according to your understanding, you should also make a similar inference <b>with regard to Torah, as it is written: “And it was concealed from the eyes of all living creatures, and from those that soar in the heavens it was hidden”</b> (Job 28:21), which would indicate, <b>by inference, that</b> initially <b>there was</b> someone <b>who was aware of</b> the Torah. <b>But isn’t it written: “No man knew its value,</b> and it is not known in the land of the living” (Job 28:13)?
+
+### Part 12
+<b>Rather, Abaye said:</b> The formulation of the verse does not indicate that he actually realized he was impure; it indicates only that he was initially aware of the fact that he had come into contact with a source of impurity, but he failed to reach the obvious conclusion that he was thereby rendered impure. And <b>Rabbi</b> Yehuda HaNasi <b>holds</b> that the elementary <b>knowledge</b> of the <i>halakhot</i> of ritual impurity that a person gained in his childhood <b>from his school is</b> sufficient, in light of his awareness of the fact he came into contact with a source of impurity, to be <b>considered awareness</b> of the fact that he was impure, and thereby render him liable to bring a sliding-scale offering.
+
+### Part 13
+<b>Rav Pappa said to Abaye: But</b> how can you explain the <i>halakha</i> <b>that is taught</b> in the mishna: For cases in which <b>he did not have awareness at the beginning but had awareness at the end?</b> According to your explanation, <b>is there</b> anyone <b>who does not have</b> the elementary <b>knowledge</b> of the <i>halakhot</i> of ritual impurity that he gained <b>from his school?</b> Abaye <b>said to him: Yes, you find it in</b> the case of <b>a child who was taken captive among gentiles,</b> who never received even the most elementary level of knowledge.
+
+### Part 14
+§ The mishna states (2a): With regard to acts of <b>carrying out</b> that are prohibited <b>on Shabbat,</b> there are <b>two</b> types <b>that are four. We learned</b> in a mishna <b>there</b> (<i>Shabbat</i> 2a): With regard to acts of <b>carrying out</b> that are prohibited <b>on Shabbat,</b> there are primarily <b>two</b> basic actions <b>that are four</b> cases with regard to transferring an item <b>inside,</b> to a private domain; <b>and two</b> basic actions <b>that are four</b> cases with regard to transferring an item <b>outside,</b> to a public domain. The Gemara asks: <b>What is different here that</b> the mishna <b>teaches:</b> There are <b>two</b> types <b>that are four, and nothing more; and what is different there,</b> in tractate <i>Shabbat</i>, <b>that</b> the mishna <b>teaches:</b> There are <b>two</b> actions <b>that are four</b> cases with regard to transferring an item <b>inside,</b> to a private domain, <b>and two</b> actions <b>that are four</b> cases with regard to transferring an item <b>outside,</b> to a public domain?
+
+### Part 15
+The Gemara answers: <b>There,</b> in tractate <i>Shabbat</i>, <b>which is</b> where <b>the main</b> discussion of the <i>halakhot</i> <b>of Shabbat</b> is found, the mishna <b>teaches</b> both the <b>primary categories and</b> the <b>subcategories</b> of labor prohibited on Shabbat. But <b>here,</b> in tractate <i>Shevuot</i>, <b>which</b> does <b>not</b> contain <b>the main</b> discussion of the <i>halakhot</i> <b>of Shabbat,</b> the mishna <b>teaches the primary categories</b> of labor prohibited on Shabbat <b>but does not teach the subcategories</b> of labor.
+
+### Part 16
+The Gemara asks: <b>What are the primary categories</b> of transferring an item on Shabbat? They are acts of <b>carrying out</b> from the private domain to the public domain. The Gemara objects: But the acts of <b>carrying out are</b> only <b>two</b> in number, i.e., where the carrying out is done by someone standing in the private domain and when it is done by someone in the public domain. Why then does the mishna state that there are four cases?
+
+### Part 17
+<b>And if you would say</b> that the mishna enumerates four types of carrying out, <b>among them</b> those <b>for</b> which there is <b>liability and among them</b> those <b>for</b> which there is <b>exemption,</b> that is not feasible, as <b>doesn’t</b> the mishna <b>teach</b> this case as <b>similar to</b> the different <b>shades of</b> leprous <b>marks?</b> This would indicate that <b>just as there, all</b> four <b>of them</b> are types <b>for</b> which there is <b>liability, so too here,</b> with regard to carrying out on Shabbat, <b>all</b> four <b>of them</b> are types <b>for</b> which there is <b>liability.</b>
+
+### Part 18
+<b>Rather, Rav Pappa said</b> that the difference between the manner in which the <i>halakha</i> is cited in tractates <i>Shevuot</i> and <i>Shabbat</i> must be understood as follows: <b>There,</b> in tractate <i>Shabbat</i>, <b>which</b> contains <b>the main</b> discussion of the <i>halakhot</i> <b>of Shabbat,</b> the mishna <b>teaches</b> both cases of <b>liability and</b> cases of <b>exemption.</b> But <b>here,</b> in tractate <i>Shevuot</i>, which does not contain the main discussion of the <i>halakhot</i> of Shabbat, the mishna <b>teaches</b> only cases of <b>liability but does not teach</b> cases of <b>exemption.</b>
+
+### Part 19
+The Gemara asks: <b>What are</b> the cases of <b>liability?</b> They are acts of <b>carrying out</b> from the private domain to the public domain. The Gemara objects: But the acts of <b>carrying out are</b> only <b>two</b> in number. Why then does the mishna state that there are four cases? The Gemara explains: There are <b>two</b> cases <b>of carrying out</b> an item from a private domain to a public domain <b>and two</b> more cases <b>of bringing in</b> an item from a public domain to a private domain.
+
+### Part 20
+The Gemara objects: <b>But</b> the mishna <b>teaches:</b> Acts of <b>carrying out.</b> It does not appear to mention acts of bringing in at all. <b>Rav Ashi said: The <i>tanna</i> also refers to</b> an act of <b>bringing in</b> an item <b>as</b> an act of <b>carrying out</b> an item. The Gemara asks: <b>From where</b> do we know this?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

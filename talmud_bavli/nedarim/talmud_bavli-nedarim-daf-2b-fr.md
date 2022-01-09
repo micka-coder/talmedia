@@ -1,0 +1,45 @@
+
+### Partie 1
+<strong>GEMARA:</strong> Il a ete enseigne dans la mishna que <b>tous les substituts</b> de la langue <b>des vœux sont comme des vœux,</b> les substituts de la langue des dedicaces sont comme des dedicaces, les substituts de la langue des serments sont comme des serments, et les substituts de la langue des vœux nazirites sont comme des vœux nazirites. La Gemara demande : <b>Qu'est-ce qui est different par rapport</b> a la premiere mishna du tractate <b><i>Nazir</i> qu'elle ne les enseigne pas tous,</b> c'est-a-dire, tous les cas enumeres ci-dessus en plus des vœux nazirites, <b>et qu'est-ce qui est different en ce qui concerne</b> la premiere mishna du tractat <b><i>Nedarim</i> qu'elle les enseigne tous</b> et pas seulement le cas des vœux, qui est le sujet directement pertinent a ce tractat ?
+
+### Partie 2
+La Guemara repond que <b>en raison</b> du fait que <b>les vœux et les serments sont ecrits l'un a cote de l'autre</b> dans la Torah dans le verset : "Quand un homme fait un voeu A l'Eternel, ou fait un serment" (Nombres 30:3), la mishna <b>enseigne</b> ces <b>deux</b> cas, c'est-A -dire substitue le langage des voeux et des serments. <b>Et puisqu'elle a enseigne deux</b> des cas, <b>elle les a tous enseignes.</b>
+
+### Partie 3
+La Gemara demande : Si c'est le cas, <b>laissons</b> la mishna <b>enseigner</b> la <i>halakha</i> en ce qui concerne les <b>substituts</b> de la langue <b>des serments</b> immediatement <b>apres</b> le cas des substituts de la langue des <b>vœux.</b> La Gemara repond : <b>Puisqu'elle a enseigne</b> le cas des <b>vœux, par lesquels un objet devient interdit a quelqu'un,</b> elle <b>a egalement enseigne</b> le cas des <b>dedicaces, par lesquelles un objet devient interdit a quelqu'un. </b> Ceci est <b>a l'exclusion du serment,</b> par lequel <b>on s'interdit</b> de faire usage d'un <b>objet.</b> Dans le cas du serment, contrairement au vœu ou a la dedicace, on s'interdit d'accomplir une action particuliere plutot que de declarer un objet interdit.
+
+### Partie 4
+§ La Guemara pose une question par rapport au style de la mishna : La mishna <b>a commence par</b> le cas des <b>substituts</b> en declarant : <b>Tous les substituts</b> de la langue <b>des vœux</b> sont comme des vœux, <b>et</b> elle <b>explique ensuite immediatement</b> la <i>halakha</i> en ce qui concerne les <b>intimations</b> des vœux, puisque la ligne suivante aborde un cas de <b>qui dit a son compagnon : Je suis avoue de toi. Et par ailleurs,</b> le <i>tanna</i> <b>a-t-il oublie</b> de mentionner les <b>intimations</b> des vœux ? Pourquoi la mishna ne precise-t-elle pas que les intimations de vœux sont considerees comme des vœux avant de donner des exemples d'intimations ?
+
+### Partie 5
+La Guemara repond : La mishna <b>traite d'eux,</b> c'est-a-dire des intimations de vœux, <b>et</b> le texte de la mishna <b>est incomplet et enseigne ce qui suit : Tous les substituts</b> du langage <b>des vœux sont comme des vœux, et les intimations de vœux sont comme des vœux.</b> La mishna poursuit ensuite en donnant des exemples d'intimations de vœux.
+
+### Partie 6
+La Gemara demande : <b>Laissons</b> le mishna <b>expliquer</b> le cas des <b>substituts</b> de la langue des vœux <b>en premier,</b> c'est-a-dire avant de donner des exemples d'intimations, tout comme la <i>halakha</i> de base des substituts de la langue des vœux a ete mentionnee en premier. En effet, ce n'est que plus tard (10a) que la mishna donne des exemples de substituts a la langue des vœux.
+
+### Partie 7
+La Guemara repond : Le style general de la mishna est que <b>le</b> sujet <b>avec lequel elle conclut est celui qu'elle explique en premier, comme</b> dans ce que <b>nous avons appris</b> dans une mishna (<i>Shabbat</i> 20b) : <b>Avec quoi peut-on allumer</b> la lampe du Shabbat <b>et avec quoi ne peut-on pas l'allumer</b> ? <b>On ne peut pas l'allumer</b> avec du liber de cedre, <b>etc.</b> La mishna donne des exemples d'objets qu'on ne peut pas utiliser pour allumer la lampe de Chabbat, ce qui etait la phrase de conclusion de la question introductive de la mishna, plutot que de commencer par des exemples de ce qu'on peut utiliser pour allumer la lampe de Chabbat.
+
+### Partie 8
+De meme, une autre mishna (<i>Chabbat</i> 47b) indique : <b>En quoi peut-on isoler</b> un pot de nourriture cuite la veille de Chabbat, <b>et en quoi ne peut-on pas l'isoler</b> ? <b>On ne peut pas l'isoler</b>, <b>etc.</b> Un troisieme exemple de ce style se trouve dans la mishna suivante (<i>Shabbat</i> 57a) : <b>Avec quels</b> objets <b>une femme peut-elle sortir</b> dans le domaine public le Chabbat <b>et avec quels</b> objets <b>ne peut-elle pas sortir ? Une femme ne peut sortir</b> avec des cordes de laine et autres parures qu'elle peut enlever et porter.
+
+### Partie 9
+La Guemara conteste cette explication : <b>Et</b> est-il vrai que <b>ou qu'elle commence,</b> c'est-a-dire quel que soit le sujet que la mishna mentionne en premier, <b>elle n'explique pas en premier ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Bava Batra</i> 108a) : <b>Il y a</b> des parents qui <b>heritent et leguent,</b> par exemple, un pere et un fils, qui heritent des biens l'un de l'autre, et il y a ceux qui <b>heritent mais ne leguent pas,</b> par exemple, un fils et sa mere ; <b>et ceux-la</b> sont ceux qui <b>heritent et leguent,</b> etc. Cette mishna donne des exemples de la ligne d'ouverture de l'expose introductif avant de donner des exemples de la ligne de conclusion de l'expose introductif.
+
+### Partie 10
+De meme, une autre mishna (<i>Yevamot</i> 84a) indique : <b>Il y a</b> certaines femmes qui sont <b>permises a leurs maris et interdites a leurs <i>yevamin</i>,</b> c'est-a-dire les freres de leur mari si celui-ci meurt sans enfant. Parmi ces cas, il y en a un ou le <i>yavam</i> est le grand pretre, a qui il est interdit d'epouser une veuve. Il existe d'autres femmes qui sont <b>permises a leur <i>yevamin</i></b> si leurs maris meurent sans enfant <b>mais interdites a leurs maris,</b> par exemple, si un Grand Pretre a fiance une veuve et que son frere est un pretre commun. La mishna fournit immediatement les details du premier principe : <b>Et ce sont</b> les femmes qui sont <b>permises a leurs maris et interdites a leurs <i>yevamin</i>.</b>
+
+### Partie 11
+De meme, une autre mishna (<i>Menahot</i> 59a) precise a propos des offrandes de repas : <b>Il y a</b> certaines offrandes de repas qui <b>necessitent de l'huile et de l'encens</b> et d'autres qui necessitent <b>de l'huile mais pas d'encens.</b> La mishna poursuit : <b>Et celles-ci</b> sont celles qui <b>necessitent de l'huile et de l'encens.</b> Une autre mishna encore (<i>Menahot</i> 60a) declare : <b>Il y a</b> des offrandes de repas qui <b>exigent d'etre approchees,</b> un rituel ou les pretres devaient porter l'offrande dans leurs mains et l'approcher de l'autel, <b>et</b> elles <b>ne necessitent pas d'agiter;</b> d'autres offrandes de repas necessitent <b>d'agiter mais pas d'approcher. Et voici</b> les offrandes de repas qui <b>exigent qu'on les approche.</b>
+
+### Partie 12
+Une autre mishna (<i>Bekhorot</i> 46a) declare : <b>Il y a</b> certains qui sont consideres comme un <b>premier-ne en ce qui concerne</b> la reception d'une double portion d'<b>heritage,</b> car ils sont les premiers-nes de leurs peres, <b>et</b> ils ne sont <b>pas</b> consideres comme un <b>premier-ne en ce qui concerne un pretre,</b> c'est-a-dire en ce qui concerne la mitzva de rachat du premier-ne, qui ne s'applique qu'au fils premier-ne d'une femme. Il y a d'autres personnes qui sont considerees comme un <b>premier ne par rapport a un pretre et qui ne sont pas</b> considerees comme un <b>premier ne par rapport a l'heritage. Et qui est</b> considere comme un <b>premier-ne en ce qui concerne l'heritage</b> qui n'est <b>pas un premier-ne en ce qui concerne un pretre ?</b> Dans chacun de ces cinq cas, la mishna explique d'abord la partie d'ouverture de sa declaration introductive et seulement ensuite explique la deuxieme partie de sa declaration introductive.
+
+### Partie 13
+La Guemara explique : Dans <b>ces</b> cas, <b>parce qu'il y a de nombreuses [<i>avshu</i>]</b> categories, la mishna <b>explique</b> l'enonce avec <b>lequel elle a commence en premier.</b> Cependant, lorsqu'il n'y a que deux categories, la mishna fournit d'abord des details pour la derniere partie de son enonce d'introduction.
+
+### Partie 14
+La Gemara demande : <b>Ne dit-on pas</b> le mishna (<i>Shabbat</i> 51b) : <b>Avec quoi un animal peut-il sortir</b> dans le domaine public le Chabbat <b>et avec quoi ne peut-il pas sortir ?</b> C'est un cas <b>qui ne comporte pas beaucoup</b> de categories, <b>et</b> pourtant la mishna <b>enseigne : Un chameau peut sortir</b> le Chabbat avec un <i>afsar</i>, etc. ce qui clarifie la partie initiale de la declaration liminaire de la mishna.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

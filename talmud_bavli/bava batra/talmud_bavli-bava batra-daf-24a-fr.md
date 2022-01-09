@@ -1,0 +1,45 @@
+
+### Partie 1
+Nous avons affaire <b>a un chemin qui</b> passe entre des <b>vignobles,</b> et ces deux pigeonniers y sont situes. <b>Aussi, s'il en est ainsi</b> vous pretendez que le poussin <b>est venu de</b> n'importe ou ailleurs dans <b>le monde, puisqu'il</b> ne fait que <b>bouger, il n'a pas pu</b> venir la. La raison en est <b>que tout</b> oiseau <b>qui sautille et tourne</b> et <b>voit son nid</b> continuera <b>a sautiller ; mais s'il ne</b> voit pas son nid parce qu'il est alle trop loin, <b>il ne sautillera pas</b> plus loin. Par consequent, ce poussin trouve qui sautille doit provenir de l'un de ces deux pigeonniers.
+
+### Partie 2
+<b>Abaye a dit : On apprend</b> dans une mishna (<i>Nidda</i> 17b) <b>aussi</b> que l'on suit la majorite plutot que la proximite : En ce qui concerne <b>le sang qui se trouve dans le couloir [<i>baperozdor</i>],</b> c'est-a-dire, le canal cervical, et dont <b>on ne sait pas</b> s'il s'agit ou non de sang menstruel, il est <b>rituellement impur</b> en tant que sang menstruel, <b>car</b> il y a <b>une presomption</b> que <b>il</b> provient <b>de l'uterus, qui est <b>la source</b> du sang menstruel. <b>Et</b> c'est le <i>halakha</i> <b>meme s'il existe une chambre superieure,</b> qui se deverse dans le canal, <b>qui est plus proche.</b>
+
+### Partie 3
+<b>Rava dit a</b> Abaye, en reponse a cette affirmation : <b>Vous enoncez</b> une preuve a partir d'un cas ou les facteurs de <b>majorite et de frequence</b> sont tous deux presents. Lorsqu'il y a <b>majorite et frequence, il n'y a personne qui dit</b> qu'on ignore la majorite et qu'on suit la proximite. Ici, non seulement le sang de l'uterus est plus important en quantite, mais il passe aussi plus frequemment dans le canal, le sang ne provenant generalement pas de la chambre haute.
+
+### Partie 4
+Rava cite une preuve de son affirmation. <b>Comme l'enseigne Rabbi Hiyya : Le sang qui se trouve dans le couloir</b> est considere comme du sang menstruel certain, et par consequent, si elle a des rapports sexuels, elle et son partenaire seraient <b>responsables en consequence</b> de recevoir du <i>karet</i> <b>pour etre entre dans le Temple</b> intentionnellement alors qu'il est rituellement impur ou d'apporter une offrande pour y etre entre involontairement. <b>Et on brule <i>teruma</i> a cause de cela,</b> si la femme touche un tel produit. De toute evidence, le statut de ce sang n'est pas considere comme incertain.
+
+### Partie 5
+<b>Et Rava dit : Apprenez de</b> ce que <b>Rabbi Hiyya</b> a dit <b>trois</b> conclusions : <b>Apprenez de</b> sa declaration que lorsque les facteurs pertinents sont <b>la majorite et la proximite, suivez la majorite ; et apprendre de</b> sa declaration que la <i>halakha</i> selon laquelle on suit <b>la majorite</b> s'applique <b>par la loi de la Torah,</b> car le <i>teruma</i> est brule dans ce cas a cause du sang et elle est susceptible de recevoir <i>karet</i> si elle entre dans le Temple dans cet etat ; <b>et apprendre de</b> sa declaration qu' <b>il existe</b> une source <b>pour</b> ce <b>que Rabbi Zeira</b> a dit.
+
+### Partie 6
+Cette declaration de Rabbi Zeira a ete emise en reference a un cas discute dans le tractate <i>Ketubot</i> (15a). S'il y a dix magasins dans une ville, dont neuf vendent de la viande cachere et un autre de la viande non cachere, et que l'on trouve de la viande a l'exterieur des magasins et que l'on ne sait pas de quel magasin elle provient, on suit la majorite. La Guemara suggere que l'on ne suit peut-etre la majorite que dans le cas ou les portes de la ville sont deverrouillees, lorsque la viande aurait pu provenir de la majorite de la viande cachere a l'exterieur de la ville, dans une circonstance ou la majorite de la viande vendue dans les environs etait cachere. Dans ce cas, il y a deux majorites, la majorite des magasins de viande casher a l'interieur de la ville, et la majorite de l'exterieur. La Guemara explique que Rabbi Zeira dit</b> que <b>meme si les portes de la ville sont fermees</b> on suit la majorite, et la viande est cachere, car il n'y a pas besoin d'une double majorite.
+
+### Partie 7
+La Guemara developpe : Les deux cas sont analogues, <b>car la femme</b> ici <b>est consideree comme les portes verrouillees de la ville,</b> c'est-a-dire qu'il n'y a qu'une seule majorite, <b>et meme ainsi on suit la majorite.</b>
+
+### Partie 8
+La Gemara demande : <b>Mais c'est Rava qui dit</b> en ce qui concerne le cas du sang que lorsqu'il y a <b>majorite et frequence, il n'y a personne</b> <b>qui dise</b> que l'on ignore la majorite et que l'on suit la proximite. En d'autres termes, Rava a rejete ce cas comme preuve du principe selon lequel on suit la majorite meme si elle n'est pas frequente. Ici, en revanche, Rava pretend que l'on peut apprendre du jugement de Rabbi Hiyya que l'on suit la majorite par la loi de la Torah. La Guemara repond : <b>Rava a retracte cette</b> affirmation en faveur de l'opinion selon laquelle on suit la majorite dans tous les cas.
+
+### Partie 9
+§ <b>Il a ete dit :</b> Dans le cas d'un <b>tonneau</b> de vin <b>qui</b> a ete trouve <b>fluant dans une riviere,</b> et le statut du vin etait inconnu, <b>Rav dit :</b> S'il a ete <b>trouve en face d'une ville dont la majorite</b> des residents <b>sont juifs,</b> le vin est <b>permis,</b> car on peut supposer que le vin appartient a un juif. S'il a ete <b>trouve en face d'une ville dont la majorite est composee de Gentils, il est interdit,</b> car on peut supposer qu'il appartient a un Gentil. <b>Et Shmuel dit : Il est interdit meme</b> s'il a ete <b>trouve en face d'une ville dont la majorite est juive.</b> Pourquoi ? Independamment de l'endroit ou il a ete trouve, on peut <b>dire</b> que <b>il provient de ce</b> lieu appele <b>Dekira,</b> ou la majorite des gens sont des gentils. En d'autres termes, il est tout a fait possible qu'un tonneau flottant vienne de tres loin.
+
+### Partie 10
+La Gemara suggere : <b>Devons-nous dire que</b> Rav et Shmuel <b>sont en desaccord par rapport</b> a la declaration <b>de Rabbi Hanina,</b> en <b>ce que</b> un <b>Sage,</b> Shmuel, <b>est d'avis</b> que la decision est conforme a l'opinion <b>de Rabbi Hanina, </b> et il statue sur la base de la majorite, qui dans ce cas inclut meme des localites eloignees, <b>et</b> un <b>Sage,</b> Rav, <b>est d'avis</b> que la decision est <b>non</b> conforme a l'avis <b>de Rabbi Hanina,</b> c'est pourquoi il statue sur la base de la proximite.
+
+### Partie 11
+La Guemara rejette cette suggestion : <b>Non ; tout le monde est d'accord avec</b> l'opinion <b>de Rabbi Hanina, et ici ils ne sont pas d'accord a ce sujet : Car</b> un <b>Sage,</b> Rav, <b>soutient</b> que <b>si c'est le cas, que</b> le tonneau <b>provenait de ce</b> lieu appele <b>Dekira,</b> cela ne peut etre, car <b>les courants et les baies</b> du fleuve, ou le debit du fleuve est faible, <b>l'auraient coule.</b> Il est donc logique que le tonneau provienne d'une ville voisine. <b>Et</b> un <b>Sage,</b> Shmuel, <b>soutient</b> que peut-etre <b>la force du fleuve a attrape</b> le tonneau <b>et l'a amene,</b> car il est evident que le debit d'un fleuve peut amener des objets de loin.
+
+### Partie 12
+La Guemara relate que <b>Ravina</b> a juge <b>permis un certain tonneau de vin qui a ete trouve</b> cache <b>dans un vignoble</b> ou il y avait des raisins <b><i>orla</i></b>, et il n'etait pas inquiet que le vin puisse provenir des raisins de ce vignoble. La Gemara demande : <b>Devons-nous dire</b> que c'est <b>parce qu'il tient</b> conformement a l'opinion <b>de Rabbi Hanina</b> qu'on suit la majorite des vignobles, qui ne sont pas <i>orla</i>, plutot que la proximite ?
+
+#### Partie 13
+La Gemara repond : C'est <b>different la, car, si</b> des voleurs <b>avaient vole</b> le tonneau <b>de</b> ce meme vignoble <b>ils ne l'auraient pas cache la.</b> Puisque le tonneau a ete cache la, il est raisonnable de supposer qu'il a ete vole ailleurs. La Guemara commente : <b>Et cette question,</b> que les voleurs ne cacheraient pas un tonneau vole dans le meme vignoble d'ou ils l'ont vole, <b>ne s'applique</b> qu'au vin ; mais ils</b> y <b>cacheraient des raisins</b>, car les raisins ne sont pas facilement identifiables par le proprietaire. Par consequent, on peut craindre que les raisins trouves caches la puissent provenir de ce meme vignoble.
+
+### Partie 14
+La Guemara relate encore que <b>Il y avait ces cruches de vin qui ont ete trouvees entre les vignes [<i>bei kofaei</i>]</b> d'un Juif. <b>Rava</b> jugea le contenu <b>permis</b> et ne se preoccupa pas du fait qu'il puisse s'agir de vin appartenant a un Gentil. La Gemara demande : <b>Devons-nous dire</b> que Rava <b>ne se conforme pas</b> a l'avis du <b>Rabbi Hanina,</b> qui dit qu'il faut suivre la majorite, en l'occurrence les gentils ? La Gemara repond : <b>C'est different ici, car la majorite</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

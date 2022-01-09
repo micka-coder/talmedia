@@ -1,0 +1,57 @@
+
+### Part 1
+<b>but</b> the gentiles <b>cannot acquire</b> one <b>of you,</b> as they do not have the ability to acquire a Jew as a slave, <b>and they cannot acquire each other</b> as slaves. The Gemara begins to introduce a question: One <b>might</b> have thought that <b>they shall not</b> be able to <b>acquire each other.</b> The Gemara immediately clarifies its question: Can it be that one <b>might</b> have thought that <b>they shall not</b> be able to <b>acquire each other;</b> but <b>didn’t you</b> already <b>say</b> that <b>they cannot acquire each other?</b> Rather, <b>this is what he said:</b> Gentiles <b>cannot acquire each other with regard to</b> the slave <b>himself.</b>
+
+### Part 2
+The Gemara now restates the question: One <b>might</b> have thought that <b>they shall not</b> be able to <b>acquire each other</b> as slaves even <b>for</b> the rights to <b>his labor.</b> The Gemara answers: <b>You can say an <i>a fortiori</i></b> inference: If <b>a gentile</b> can <b>acquire a Jew</b> for the rights to his labor, as stated explicitly in the Torah (Leviticus 25:47), <b>all the more so</b> is it <b>not</b> clear that <b>a gentile</b> can acquire <b>a gentile?</b>
+
+### Part 3
+The Gemara challenges: <b>But I</b> could <b>say</b> that <b>this</b> <i>halakha</i>, that a gentile can acquire a gentile as a slave for the rights to his labor, <b>applies</b> only to acquisition <b>via money. However, via</b> an act of <b>possession,</b> by taking him captive, he does <b>not</b> acquire him. <b>Rav Pappa says</b> in response: The land of <b>Ammon and Moab became purified through</b> the conquest of <b>Sihon.</b> After the conquest of Sihon, the land that had belonged to Ammon and Moab was considered the property of Sihon, and it was permitted for the Jewish people to conquer it although they had not been permitted to conquer the land of Ammon and Moab. In the same manner, a gentile can acquire a slave by taking possession of him as a captive.
+
+### Part 4
+The Gemara asks: <b>We found</b> a source for <b>a gentile</b> acquiring <b>a gentile</b> through conquest, which is an act of taking possession; <b>from where do we</b> derive that <b>a gentile</b> can also acquire <b>a Jew</b> through the act of possession such as conquest? The Gemara answers: <b>As it is written:</b> “And the Canaanites, who dwelt in the South, heard tell that Israel came by the way of Atharim; and he fought against Israel, <b>and took of them captive”</b> (Numbers 21:1). This indicates that even a Jew is acquired by a gentile through the act of possession, in this case, conquest in war.
+
+### Part 5
+§ <b>Rav Shemen bar Abba says</b> that <b>Rabbi Yoḥanan says: A slave who escaped from prison is emancipated.</b> He is no longer subjugated to his owner, as it is assumed that his owner has despaired of retrieving him. <b>And moreover, his master is forced to write him a bill of manumission</b> so that he can marry a Jewish woman.
+
+### Part 6
+<b>We learned</b> in the mishna that <b>Rabban Shimon ben Gamliel says</b> with regard to a slave who was redeemed from captivity: <b>Both in this</b> case <b>and in that</b> case <b>he will be a slave. And Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: Every place where Rabban Shimon ben Gamliel taught</b> a ruling <b>in our mishna, the <i>halakha</i> is in accordance with his</b> opinion, <b>except for</b> the following three cases: The responsibility of the <b>guarantor, and</b> the incident that occurred in the city of <b>Tzaidan, and</b> the dispute with regard to <b>evidence</b> in the <b>final</b> disagreement. Therefore, according to Rabbi Yoḥanan, the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel in the mishna here, as it is not one of those three cases. This contradicts the ruling of Rabbi Yoḥanan cited above concerning a slave who escapes prison.
+
+### Part 7
+The Gemara clarifies: <b>Granted, according to</b> the opinion of <b>Abaye, he establishes</b> the mishna as referring to a slave who is redeemed <b>before</b> the owner’s <b>despair.</b> For this reason, Rabban Shimon ben Gamliel rules that the redeemed slave is not emancipated, and the <i>halakha</i> is in accordance with his ruling. <b>And this</b> statement of Rabbi Yoḥanan, that a slave who escapes from prison goes free, applies <b>after</b> the owner’s <b>despair.</b> Therefore, there is no contradiction between the two statements of Rabbi Yoḥanan.
+
+### Part 8
+<b>However, according to</b> the opinion of <b>Rava, who said</b> that the mishna here is referring to a slave who is redeemed <b>after</b> the <b>despair</b> of the owner, there is <b>a difficulty.</b> The difficulty is due to the contradiction between the statement <b>of Rabbi Yoḥanan</b> in which he rules against the opinion of Rabban Shimon ben Gamliel, as he holds that a slave who escapes prison is emancipated, <b>and</b> the statement <b>of Rabbi Yoḥanan</b> in which he rules that the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel.
+
+### Part 9
+The Gemara answers: <b>Rava</b> could have <b>said to you: What is the reason</b> that a slave who was redeemed is not emancipated? It is <b>because of</b> the concern expressed by <b>Ḥizkiyya,</b> that perhaps slaves would allow themselves to be captured by foreign troops in the hope that they would be redeemed and consequently emancipated. However, the case of one who <b>escapes</b> from prison <b>is different,</b> as the concern raised by Ḥizkiyya is not applicable. If <b>now</b> it is apparent that he is willing <b>to give himself over to death</b> to escape captivity, as he would be put to death for attempting to escape prison, is there a concern that <b>he will throw himself</b> willingly <b>into</b> captivity by allowing himself to be captured by foreign <b>troops?</b>
+
+### Part 10
+The Gemara relates: <b>The maidservant of Master Shmuel was taken captive.</b> Some people <b>redeemed her to be a maidservant and sent her to him. They sent him</b> the following message: <b>We hold in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel,</b> and therefore we hold that in any case she remains your maidservant. <b>Even if you hold in accordance with</b> the opinion of <b>the Rabbis</b> in the mishna, then you should know that <b>we redeemed her to be a maidservant,</b> and even the Rabbis would agree that she remains your maidservant.
+
+### Part 11
+The Gemara adds: <b>And they thought</b> that this <b>was before</b> his <b>despair, but</b> that <b>is not so. It was after</b> his <b>despair, and</b> when <b>Shmuel</b> received the maidservant, <b>it is not necessary</b> to say <b>that he did not enslave her. But also, he did not require her</b> to receive <b>a bill of manumission,</b> as he held that she was a free woman in every respect.
+
+### Part 12
+The Gemara comments: In this matter, <b>Shmuel</b> conforms <b>to his</b> standard line of <b>reasoning, as Shmuel says:</b> With regard to one <b>who renounces ownership of his slave,</b> the slave <b>is emancipated, and he does not</b> even <b>require a bill of manumission.</b> Shmuel cited a proof from that <b>which is stated: “But every slave man that is bought for money”</b> (Exodus 12:44). Does this apply only to <b>a slave</b> who is <b>a man, and not to a woman slave? Rather,</b> it means: The slave of a man, i.e., <b>a slave whose master has authority</b> and control <b>over him, is called a slave,</b> since he is the slave of a particular man. However, with regard to a slave <b>whose master does not have authority over him,</b> such as one who has been declared ownerless, he <b>is not called a slave</b> but a freeman. Therefore, once Shmuel despaired of retrieving his maidservant, she was no longer under his control and did not require a bill of manumission.
+
+### Part 13
+The Gemara relates: <b>The maidservant of Rabbi Abba bar Zutra was taken captive. A certain</b> gentile <b><i>tarmoda’a</i> redeemed her to be</b> his <b>wife.</b> The Sages <b>sent</b> a message <b>to</b> Rabbi Abba bar Zutra: <b>If you</b> wish to <b>act correctly, send her a bill of manumission.</b>
+
+### Part 14
+The Gemara asks: <b>What are the circumstances? If</b> this is a situation <b>where</b> the Jews <b>are able to redeem her, why do I</b> need <b>a bill of manumission?</b> They should redeem her to be a maidservant. <b>If</b> this is a situation <b>where they are unable to redeem her, when he sends her a bill of manumission, what of it?</b> What effect will it have, as she is currently under the control of this gentile?
+
+### Part 15
+The Gemara answers: <b>Actually,</b> it is referring to a situation <b>where they are able to redeem her</b> but are not doing so. <b>And since he sends her a bill of manumission,</b> the residents of the city <b>will join together and redeem her,</b> as she is now a full-fledged Jew, whereas they would not have redeemed her to be a maidservant. <b>And if you wish, say</b> instead: <b>Actually,</b> it is referring to a case <b>where they are unable to redeem her,</b> as the ransom was too expensive. <b>And once he sends her a bill of manumission, she will be disrespected in the eyes</b> of the gentile who redeemed her to marry her, as he will find out that she is a maidservant of a Jew, <b>and he will allow her to be redeemed.</b>
+
+### Part 16
+The Gemara challenges this statement: Would it be easier to redeem the maidservant once the gentile discovered that she is the maidservant of a Jew? <b>But didn’t the Master say: The animals of Jews are more beloved</b> to gentiles <b>than their</b> own <b>wives?</b> Apparently, the gentiles held the Jews in high regard, and the fact that she was a Jewish maidservant would not lower her in the gentile’s estimation. The Gemara answers: <b>This statement applies</b> only concerning matters that take place <b>in private; however, in public, the matter is disrespected,</b> and a gentile would not marry the maidservant of a Jew.
+
+### Part 17
+§ The Gemara relates: There was an incident involving <b>a certain maidservant in Pumbedita with whom people were performing prohibited</b> sexual <b>acts,</b> and her master was unable to prevent this. <b>Abaye said: If not</b> for the fact <b>that Rav Yehuda says</b> that <b>Shmuel says</b> that <b>anyone who emancipates his slave violates a positive</b> mitzva, as it is written in the Torah: “Of them may you take your bondmen forever” (Leviticus 25:46), <b>I would force her master, and he would write</b> and give <b>her a bill of manumission,</b> enabling her to marry a Jew, which would ensure that she would cease her promiscuous behavior. <b>Ravina said:</b> In a case <b>like that, Rav Yehuda concedes</b> that it is permitted to emancipate her, <b>due to the prohibited matter</b> that others are violating.
+
+### Part 18
+The Gemara asks: <b>And</b> does <b>Abaye</b> hold that one <b>cannot</b> emancipate a slave even <b>due to a prohibition</b> that is being violated? <b>Didn’t Rav Ḥanina bar Rav Ketina say</b> that <b>Rav Yitzḥak says:</b> There was <b>an incident involving a woman</b> who was <b>a half-maidservant half-free woman,</b> as she had belonged to two masters and was emancipated by one of them,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

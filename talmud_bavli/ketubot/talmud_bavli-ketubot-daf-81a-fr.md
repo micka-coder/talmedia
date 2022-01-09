@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Ses heritiers,</b> c'est-a-dire <b>les heritiers de son contrat de mariage, sont obliges dans son enterrement.</b> Cela indique que les heritiers de son mari, qui heritent de son contrat de mariage, doivent assister a son enterrement. <b>Abaye a dit : Nous apprenons aussi</b> dans une mishna (95b) : <b>Une veuve est entretenue par les biens des orphelins, et ses gains sont les leurs, et</b> ils <b>ne sont pas obliges dans son enterrement.</b> Au contraire, <b>ses heritiers, les heritiers de son contrat de mariage, sont obliges dans son enterrement. Et qui est la veuve qui a deux</b> ensembles d'<b>heritiers,</b> ce qui necessite la decision que seuls les heritiers de son contrat de mariage sont obliges dans son enterrement ? <b>Vous devez dire</b> que <b>cette</b> est <b>une veuve qui attend son <i>yavam</i>,</b> car le <i>yavam</i> herite de son contrat de mariage.
+
+### Partie 2
+<b>Rava dit : Mais que</b> le <i>yavam</i> <b>dit : J'herite</b> de mon <b>frere,</b> et j'ai donc droit a ce contrat de mariage en tant qu'heritier de mon frere, tandis que <b>sa femme, je</b> ne suis <b>pas</b> oblige de <b>fiducier,</b> car je n'ai aucun lien avec elle. <b>Abaye lui dit :</b> Cette revendication n'est pas valable <b>parce qu'ils viennent sur lui de deux cotes,</b> par la force de deux revendications complementaires : <b>S'il herite de son frere</b> il doit heriter de ses devoirs ainsi que de ses droits, et <b>il doit enterrer sa femme. S'il n'enterre pas sa femme,</b> comme il ne veut pas prendre la place de son frere, <b>il doit lui donner son contrat de mariage</b>.
+
+### Partie 3
+Rava <b>lui a dit : Je dis comme suit :</b> Le <i>yavam</i> pretend que <b>j'herite</b> de mon <b>frere,</b> et <b>sa femme je</b> ne l'enterrerai <b>pas,</b> car cela ne releve pas de ma responsabilite. <b>Et si</b> le frere devait etre responsable <b>en raison</b> de son <b>contrat de mariage, un contrat de mariage ne peut etre recueilli pendant</b> la <b>vie du mari</b> mais seulement apres sa mort. Le <i>yavam</i> est le remplacant du premier mari, car il est pret a faire un levirat avec la femme, et donc elle n'a pas droit a son contrat de mariage, ce qui signifie qu'il n'est pas non plus oblige de l'enterrer. Cette hypothese selon laquelle un contrat de mariage ne peut etre reclame du vivant du mari decoule d'une lecture attentive de la formulation du contrat de mariage, qui stipule : Lorsque tu pourras en epouser un autre, tu pourras reclamer ce contrat de mariage, ce qui indique que si la femme ne peut pas epouser un autre homme parce que son mari est encore en vie, elle n'a pas droit a son contrat de mariage.
+
+### Partie 4
+La Gemara demande : <b>Qui as-tu entendu qui est de</b> l'avis que <b>on expose le contrat de mariage</b> et deduit les <i>halakhot</i> de son langage exact, comme les exposes de la Torah ? C'est l'avis de <b>Beit Shammai, et</b> pourtant <b>on a entendu dire que Beit Shammai dit qu'un document pret a etre collecte est considere comme collecte.</b> Ici aussi, il faut considerer qu'elle a deja reclame son contrat de mariage, et il ne peut pretendre agir en tant qu'heritier de son frere.
+
+### Partie 5
+La preuve en est <b>comme nous l'avons appris</b> dans une mishna (<i>Sota</i> 24a) : <b>Si les maris</b> de femmes soupconnees d'etre infideles <b>sont morts avant</b> que leurs epouses <b>ne boivent</b> des eaux ameres conformement a la <i>halakha</i> d'une <i>sota</i>, et qu'il n'a jamais ete etabli s'ils avaient eu des relations avec un autre homme, <b>Beit Shammai dit : Ils prennent le contrat de mariage et ne boivent pas, et Beit Hillel disent : Soit ils boivent, soit ils ne prennent pas le contrat de mariage.</b>
+
+### Partie 6
+La Guemara fait une digression pour exprimer sa perplexite face a la formulation de cette mishna : <b>Soit ils boivent ?</b> Comment peuvent-ils boire les eaux ameres ? <b>Le Misericordieux declare : "Alors l'homme amenera sa femme au pretre"</b> (Nombres 5:15), <b>et il n'y a aucun</b> moyen d'accomplir ce verset apres la mort du mari. <b>Au contraire,</b> la decision de Beit Hillel doit etre comprise comme suit : <b>Puisqu'elles ne boivent pas,</b> puisqu'elles n'ont pas de mari qui puisse les contraindre a boire les eaux, <b>elles ne prennent pas le contrat de mariage,</b> au cas ou elles auraient ete en fait infideles.
+
+### Partie 7
+Cette mishna a declare que <b>Beit Shammai dit : Ils prennent le contrat de mariage et ne boivent pas. Mais pourquoi</b> recueillent-ils le contrat de mariage ? <b>C'est un</b> cas d'<b>incertitude : Peut-etre qu'elle a commis l'adultere ; peut-etre qu'elle n'a pas commis l'adultere.</b> Si elle a ete infidele, elle n'a pas droit au contrat de mariage, <b>et</b> pourtant, bien que sa position ne puisse etre verifiee, Beit Shammai soutiennent que sa pretention <b>incertaine</b> <b>vient et supplantent</b> la pretention <b>certaine</b> des heritiers, car ils sont certainement les heritiers legitimes de leur pere.
+
+### Partie 8
+Il faut donc conclure que <b>Beit Shammai maintient : Un document pret a etre collecte est considere comme collecte.</b> Par consequent, la somme du contrat de mariage est deja consideree comme etant en possession de la femme, ce qui signifie que lorsque les heritiers ne veulent pas payer la somme du contrat de mariage, ils essaient en fait de reclamer de l'argent en raison d'une incertitude.
+
+### Partie 9
+La Guemara remet en question l'affirmation precedente selon laquelle le contrat de mariage ne peut etre percu du vivant du mari en raison de l'exposition de la langue du document : <b>Mais</b> meme si la langue du contrat de mariage n'est pas exposee, le simple sens de ses mots indique qu'elle ne peut le reclamer du vivant du <i>yavam</i>, car <b>on exige</b> l'accomplissement de la clause : <b>Lorsque tu</b> peux <b>marie a un autre, tu</b> peux <b>prendre ce qui t'est ecrit, et ce n'est pas</b> le cas ici, car la <i>yevama</i> ne peut epouser personne d'autre avant de prendre part a la <i>halitza</i>. Comment, des lors, les deux demandes peuvent-elles lui tomber dessus, comme le suggere Abaye ?
+
+### Partie 10
+<b>Rav Ashi a dit :</b> La <b><i>yavam</i> est egalement consideree comme un autre</b> homme, et c'est comme si elle etait sur le point d'en epouser un autre. Par consequent, elle a droit au contrat de mariage.
+
+### Partie 11
+La discussion ci-dessus a eu lieu lorsque Abaye et Rava apprenaient ensemble cette <i>halakha</i>. Quelque temps plus tard, <b>Rava envoya a Abaye</b> la difficulte connexe suivante <b>par l'intermediaire de Rav Shemaya bar Zeira : Et peut-on</b> le <b>contrat de mariage</b> d'un <i>yevama</i> <b>etre recueilli durant</b> sa <b>vie ?</b>.
+
+### Partie 12
+<b>Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : <b>Rabbi Abba dit : J'ai demande a Sumakhos :</b> En ce qui concerne un <i>yavam</i> <b>qui veut vendre les biens de son frere</b> mais ne peut le faire parce que tous les biens de son frere sont hypotheques au <i>yevama</i>, <b>comment peut-il proceder ?</b> Il a repondu : <b>Si c'est un pretre,</b> a qui il est interdit de se remarier avec sa femme divorcee, <b>il doit preparer un festin</b> pour sa femme apres que le <i>yibbum</i> a ete effectue, <b>et</b> au cours du festin, il doit <b>la persuader</b> de lui permettre de vendre les biens du frere defunt. <b>S'il est un</b> israelite regulier,</b> qui peut se remarier avec sa femme divorcee, il peut <b>divorcer</b> elle <b>avec un acte de divorce,</b> auquel cas il n'est tenu de lui payer que la somme de son contrat de mariage, et le reste des biens n'est alors plus hypotheque pour elle. Pendant qu'ils sont divorces, il peut vendre la propriete <b>et</b> par la suite <b>se remarier</b> avec elle.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

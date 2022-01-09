@@ -1,0 +1,75 @@
+
+### Part 1
+<b>with rigor [<i>befarekh</i>]”</b> (Exodus 1:13). <b>Rabbi Elazar says:</b> The word <i>befarekh</i> is a conjugation of the words: <b>With a soft mouth [<i>bifeh rakh</i>],</b> as the Egyptians enticed the Jewish people into slavery, gradually subjugating them until they had lost their freedom completely. <b>Rabbi Shmuel bar Naḥmani says:</b> The word <i>befarekh</i> should be understood as: <b>With crushing [<i>bifrikha</i>],</b> as the Egyptians subjugated Israel with backbreaking labor.
+
+### Part 2
+The next verse states: <b>“And they made their lives bitter through hard service, with mortar and brick,</b> and with every laborious service in the field” (Exodus 1:14). <b>Rava says:</b> The verse mentions specifically mortar and brick and then all forms of labor, as <b>initially</b> the Egyptians had them work <b>with mortar and bricks, and ultimately</b> they subjugated them <b>“and with every laborious service in the field.”</b>
+
+### Part 3
+The verse concludes: <b>“In all their service, wherein they made them serve with rigor”</b> (Exodus 1:14). <b>Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says:</b> The meaning of <i>befarekh</i> is that the Egyptians <b>would exchange</b> the responsibilities of men and women, giving <b>men’s work to women and women’s work to men,</b> requiring everyone to do work to which they were unaccustomed. <b>And even according to the one who says</b> that <b>there,</b> in the previous verse, <i>bifarekh</i> indicates that the Egyptians enslaved the Jews <b>with a soft mouth, here,</b> in this verse, which describes the physical hardship of the labor, the word befarekh <b>certainly</b> means <b>with crushing</b> labor.
+
+### Part 4
+§ <b>Rav Avira taught: In the merit of</b> the <b>righteous women that were in that generation, the Jewish people were redeemed from Egypt.</b> He tells of their righteous actions: <b>At the time</b> when these women <b>would go</b> to the river <b>to draw water, the Holy One, Blessed be He, would materialize for them small fish</b> that would enter <b>into their pitchers, and they would</b> therefore <b>draw</b> pitchers that were <b>half</b> filled with <b>water and half</b> filled with <b>fish. And they would</b> then <b>come and place two pots on the fire, one</b> pot <b>of hot</b> water for washing their husbands <b>and one</b> pot <b>of fish</b> with which to feed them.
+
+### Part 5
+<b>And they would</b> then <b>take</b> what they prepared <b>to their husbands, to the field, and would bathe</b> their husbands <b>and anoint them</b> with oil <b>and feed them</b> the fish <b>and give them to drink and bond with them</b> in sexual intercourse <b>between the sheepfolds,</b> i.e., between the borders and fences of the fields, <b>as it is stated: “When you lie among the sheepfolds,</b> the wings of the dove are covered with silver, and her pinions with the shimmer of gold” (Psalms 68:14), which is interpreted to mean that <b>as a reward</b> for “when you <b>lie among the sheepfolds,” the Jewish people merited to</b> receive <b>the plunder of Egypt, as it is stated</b> in the continuation of the verse, as a reference to the Jewish people: <b>“The wings of the dove are covered with silver, and her pinions with the shimmer of gold”</b> (Psalms 68:14).
+
+### Part 6
+<b>And when</b> these women would <b>become pregnant, they would come</b> back <b>to their homes, and when the time for them to give birth</b> would arrive <b>they would go and give birth in the field under the apple tree, as it is stated: “Under the apple tree I awakened you;</b> there your mother was in travail with you; there was she in travail and brought you forth” (Song of Songs 8:5).
+
+### Part 7
+<b>And the Holy One, Blessed be He, would send from the heavens above</b> an angel <b>who would clean and prepare</b> the newborns, <b>just as a midwife prepares the newborn, as it is stated: “And as for your birth, on the day you were born, your navel was not cut nor were you washed with water for cleansing;</b> you were not salted at all, nor swaddled at all” (Ezekiel 16:4). This indicates that there were no midwives to take care of the Jews born in Egypt. <b>And</b> then, the angel <b>would gather for them two round</b> stones from the field and the babies would nurse from that which would flow out of them. <b>One of</b> the stones flowed with <b>oil and one of</b> the stones flowed with <b>honey, as it is stated: “And He would suckle them with honey from a crag and oil</b> from a flinty rock” (Deuteronomy 32:13).
+
+### Part 8
+<b>And once the Egyptians would notice them,</b> realizing that they were Jewish babies, <b>they would come to kill them. But a miracle would occur for them and they would be absorbed by the earth. And</b> the Egyptians <b>would</b> then <b>bring oxen and would plow upon them, as it is stated: “The plowers plowed upon my back;</b> they made long their furrows” (Psalms 129:3). <b>After</b> the Egyptians <b>would leave,</b> the babies <b>would emerge and exit</b> the ground <b>like grass of the field, as it is stated: “I caused you to increase even as the growth of the field”</b> (Ezekiel 16:7).
+
+### Part 9
+<b>And once</b> the babies <b>would grow, they would come like many flocks</b> of sheep <b>to their homes, as it is stated</b> in the continuation of the verse: <b>“And you did increase and grow up and you came with excellent beauty [<i>ba’adi adayim</i>]”</b> (Ezekiel 16:7). <b>Do not read</b> the verse as: <b>“<i>Ba’adi adayim</i>,”</b> “with excellent beauty.” <b>Rather,</b> read it as: <b><i>Be’edrei adarim</i>,</b> meaning: As many flocks.
+
+### Part 10
+<b>And when the Holy One, Blessed be He, revealed Himself at the</b> Red <b>Sea,</b> these children <b>recognized Him first, as it is stated: “This is my God, and I will glorify Him”</b> (Exodus 15:2). They recognized Him from the previous time that He revealed Himself to them in their infancy, enabling them to say: “This is my God.”
+
+### Part 11
+§ The verse states: <b>“And the king of Egypt spoke to the Hebrew midwives,</b> of whom the name of the one was Shiphrah, and the name of the other Puah” (Exodus 1:15). <b>Rav and Shmuel</b> disagree as to the proper interpretation of this verse. <b>One says</b> that these midwives were <b>a woman and her daughter, and one says</b> that they were <b>a daughter-in-law and her mother-in-law.</b> According to the <b>one who says</b> that they were <b>a woman and her daughter,</b> the women were <b>Jochebed,</b> the mother of Moses and Aaron, <b>and</b> her daughter, <b>Miriam. And</b> according to the <b>one who says</b> that they were <b>a daughter-in-law and her mother-in-law,</b> the verse is referring to <b>Jochebed and</b> her daughter-in-law <b>Elisheba,</b> the wife of Aaron.
+
+### Part 12
+It <b>is taught</b> in a <i>baraita</i> <b>according to the one who says</b> that they were <b>a woman and her daughter, because it</b> is <b>taught</b> in a <i>baraita</i>: With regard to <b>Shiphrah,</b> who is referred to in the verse, <b>this</b> is really a reference to <b>Jochebed. And why was she called Shiphrah? Because she would prepare [<i>mishapperet</i>] the newborn. Alternatively,</b> she is referred to as <b>Shiphrah because the Jewish people increased and multiplied [<i>shepparu verabbu</i>] in her days,</b> due to her assistance.
+
+### Part 13
+The <i>baraita</i> continues: With regard to <b>Puah,</b> who is referred to in the verse, <b>this</b> is really a reference to <b>Miriam. And why was she called Puah? Because she would make a comforting sound [<i>po’a</i>] as she would remove the child</b> from the womb of the mother. <b>Alternatively,</b> the word <b>Puah</b> is related to one of the verbs that describe speaking, <b>as she would speak [<i>po’a</i>] through divine inspiration and say: In the future, my mother will give birth to a son who will save the Jewish people.</b>
+
+### Part 14
+The next verse relates the instructions of Pharaoh to the midwives: <b>“And he said: When you deliver the Hebrew women,</b> and you look upon the stones [<i>ovnayim</i>], if it be a son, then you shall kill him; but if it be a daughter, then she shall live” (Exodus 1:16). The Gemara asks: <b>What</b> is the meaning of <b>“stones”? Rabbi Ḥanan says:</b> Pharaoh <b>transmitted a great sign to them. He said to them: At the time</b> when a woman <b>crouches to give birth, her thighs become as cold as stones,</b> and, therefore, this shall be for you a sign that the woman is about to give birth.
+
+### Part 15
+<b>And there are those who say</b> an alternative explanation for <i>ovnayim</i>: <b>As it is written: “So I went down to the potter’s shop, and behold, he was at his work on the wheels [<i>ovnayim</i>]”</b> (Jeremiah 18:3). <b>Just as this potter</b> sits so that one <b>thigh</b> is <b>here and</b> one <b>thigh</b> is <b>there and the block</b> upon which he works <b>is in the middle, so too, a woman</b> giving birth also has one <b>thigh here and</b> one <b>thigh there and the newborn is in the middle.</b>
+
+### Part 16
+The verse continues: <b>“If it be a son, then you shall kill him;</b> but if it be a daughter, then she shall live” (Exodus 1:16). <b>Rabbi Ḥanina says:</b> Pharaoh <b>transmitted to them a great sign</b> to enable them to know the gender of the infant from the beginning of the birth process: <b>A boy</b> is born with <b>his face downward; a girl</b> is born with <b>her face upward.</b> Pharaoh provided them with this sign so that they could kill the boys secretly even before the mother realized what was happening.
+
+### Part 17
+The next verse states: <b>“But the midwives feared God, and did not as the king of Egypt spoke about them [<i>aleihen</i>],</b> but they kept the male children alive” (Exodus 1:17). The Gemara comments: <b>It should have</b> stated: “Spoke <b>to them [<i>lahen</i>].” Rabbi Yosei, son of Rabbi Ḥanina, says:</b> This <b>teaches that</b> Pharaoh <b>proposed to them to</b> engage in <b>a sinful act,</b> i.e., sexual intercourse, with him, <b>but they did not accept</b> his overtures. The word <i>aleihen</i> is often used in reference to sexual intercourse, for example: “And brought her to him; and he consorted with her [<i>eileha</i>]” (Genesis 29:23), and that is its connotation here as well.
+
+### Part 18
+The verse concludes: <b>“But they kept the male children alive”</b> (Exodus 1:17). A Sage <b>teaches:</b> It is <b>not only that they did not kill</b> the children as Pharaoh had commanded them, <b>but that they would</b> even <b>provide for them water and food,</b> as the phrase “But they kept the male children alive” indicates.
+
+### Part 19
+After being questioned by Pharaoh concerning their failure to obey his command, the midwives responded, as it is written: <b>“And the midwives said to Pharaoh: Because</b> the Hebrew women <b>are not as the</b> Egyptian <b>women,</b> for they are lively [<i>ḥayot</i>], and are delivered before the midwife comes to them” (Exodus 1:19). The Gemara asks: <b>What</b> is the meaning of <b>“<i>ḥayot</i>”? If we say</b> that the Hebrew women are like <i>ḥayot</i>, meaning <b>actual midwives</b> for themselves, and therefore they do not need assistance from others, <b>is that to say</b> that <b>a midwife does not need</b> the assistance of <b>another midwife</b> in order <b>to help her give birth?</b>
+
+### Part 20
+<b>Rather,</b> the midwives <b>said to</b> Pharaoh: <b>This nation is compared to an animal [<i>ḥayya</i>],</b> and animals give birth without a midwife. For example, with regard to <b>Judah</b> it is written: “Judah is <b>a lion’s whelp”</b> (Genesis 49:9); with regard to <b>Dan</b> it is written: <b>“Dan shall be a serpent</b> in the way” (Genesis 49:17); with regard to <b>Naphtali</b> it is written: <b>“A hind let loose”</b> (Genesis 49:21); with regard to <b>Issachar</b> it is written: <b>“A large-boned donkey”</b> (Genesis 49:14); with regard to <b>Joseph</b> it is written: “His <b>first bullock”</b> (Deuteronomy 33:17); with regard to <b>Benjamin</b> it is written: <b>“A ravenous wolf”</b> (Genesis 49:27).
+
+### Part 21
+The Gemara comments: Concerning those individuals <b>where</b> a comparison to an animal <b>is written with regard to him,</b> it <b>is</b> already <b>written with regard to him. And</b> concerning those <b>where no</b> specific metaphor comparing them to an animal is <b>written with regard to him</b> explicitly, in any case a general comparison <b>is written about</b> the Jewish people: <b>“How your mother was a lioness; among lions she crouched,</b> in the midst of the young lions she reared her whelps” (Ezekiel 19:2), indicating that all the Jewish people are compared to animals.
+
+### Part 22
+The verse relates the midwives’ reward: <b>“And it came to pass, because the midwives feared God, that He made them houses”</b> (Exodus 1:21). <b>Rav and Shmuel</b> disagree as to the precise interpretation of these houses: <b>One says</b> that God made <b>the houses of</b> the <b>priesthood and</b> the <b>Levites</b> descend from the midwives, <b>and one says</b> that God made the <b>houses of royalty</b> descend from them. <b>The one who says</b> that it is referring to the <b>houses of</b> the <b>priesthood and</b> the <b>Levites</b> is referring to <b>Aaron and Moses,</b> who were sons of Jochebed. <b>And the one who says</b> that it is referring to <b>houses of royalty</b> is referring to <b>David,</b> who <b>also comes from Miriam, as it is written: “And Azubah,” the wife of Caleb, “died, and Caleb took to him Ephrath, who bore him Hur”</b> (I Chronicles 2:19) and, as will be explained further, Ephrath is Miriam. <b>And it is written: “David was the son of that Ephrathite</b> of Bethlehem in Judah” (I Samuel 17:12). Therefore, he was a descendant of Miriam.
+
+### Part 23
+The Gemara discusses the family of Caleb: In Chronicles it says: <b>“And Caleb, the son of Hezron, begot children of Azubah his wife, and of Jerioth, and these were her sons: Jesher, and Shobab, and Ardon”</b> (I Chronicles 2:18). The Gemara asks: Was Caleb actually the <b>son of Hezron? Wasn’t he</b> the <b>son of Jephunneh,</b> as the verse states in Numbers 13:6? The Gemara answers: He was the son of Hezron, but he is called “son of Jephunneh” as an appellation indicating that he was <b>a son who turned away [<i>sheppana</i>] from the counsel of the spies.</b>
+
+### Part 24
+The Gemara asks: <b>But</b> it is <b>still</b> difficult. Hezron could not be his father, as Caleb <b>was</b> the <b>son of Kenaz, as it is written: “And Othniel, the son of Kenaz, Caleb’s</b> younger <b>brother, took it”</b> (Judges 1:13). This would mean that Caleb was also a son of Kenaz. <b>Rava said:</b> Caleb <b>was the stepson of Kenaz,</b> as he and Othniel shared a mother but had different fathers.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

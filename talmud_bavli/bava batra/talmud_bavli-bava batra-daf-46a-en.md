@@ -1,0 +1,30 @@
+
+### Part 1
+<b>Rather, is it not</b> referring to a case <b>where there are no witnesses</b> to the transfer, <b>and</b> it <b>teaches</b> that the <b>craftsman</b> is <b>deemed credible? Since if he had wanted</b> to he could have <b>said to him: It is purchased</b> and that is why it is <b>in my possession,</b> he is <b>deemed credible with regard to</b> his claim <b>about his fee as well.</b> This supports the ruling of Rabba that if there are no witnesses, the craftsman is deemed credible if he says that the item belongs to him.
+
+### Part 2
+The Gemara rejects this proof: <b>No, actually,</b> perhaps the <i>baraita</i> is referring to a case <b>where there are no witnesses</b> to the transfer, <b>but</b> it is specifically referring to a case <b>where</b> the owner <b>did not see</b> the cloak in the possession of the craftsman, who could consequently deny ever having received it from the owner. Therefore, it is not a proof in support of the ruling of Rabba that the craftsman would be deemed credible even if there are witnesses that it is currently in his possession.
+
+### Part 3
+<b>Rav Naḥman bar Yitzḥak raises an objection</b> to Rabba’s ruling from Shmuel’s paraphrase of the mishna: <b>A craftsman does not have</b> the ability to establish the <b>presumption</b> of ownership of property in his possession. This indicates that <b>it is</b> specifically <b>a craftsman who does not have</b> the ability to establish the <b>presumption</b> of ownership, <b>but another</b> person in similar circumstances <b>has</b> the ability to establish the <b>presumption</b> of ownership.
+
+### Part 4
+<b>What are the circumstances</b> in which this would apply? <b>If</b> it is referring to a case <b>where there are witnesses</b> that the person in question received the item from another, <b>why</b> is it that <b>another</b> person <b>has</b> the ability to establish the <b>presumption</b> of ownership, when there are witnesses that he received this item as a deposit? <b>Rather, is it not</b> referring to a case <b>where there are no witnesses, and</b> yet, the mishna <b>teaches: A craftsman does not have</b> the ability to establish the <b>presumption</b> of ownership. This indicates that a craftsman does not establish the presumption of ownership under any circumstances, contrary to the ruling of Rabba. The Gemara concludes: <b>The refutation of</b> the opinion of <b>Rabba</b> is indeed <b>a conclusive refutation,</b> and his ruling is rejected.
+
+### Part 5
+§ The Gemara discusses another <i>halakha</i> pertaining to the giving of an item to a craftsman. <b>The Sages taught:</b> If one’s <b>utensils were</b> mistakenly <b>switched with</b> another’s <b>utensils in the house of a craftsman, this</b> one who received the wrong utensils <b>may use them until</b> the time <b>when that</b> one, whose utensils he received, <b>comes and takes his.</b> But if his utensils and another’s utensils were mistakenly switched <b>in a house of mourning or in a house of</b> a wedding <b>feast, this</b> one who took the wrong utensils <b>may not use them</b> in the interim, i.e., <b>until</b> the time <b>when that</b> one, whose utensils he took, <b>comes and takes his.</b> The Gemara asks: <b>What is different</b> in <b>the first clause</b> where he may use the utensils, <b>and what is different</b> in <b>the latter clause</b> where he may not?
+
+### Part 6
+<b>Rav said: I was sitting before my uncle,</b> Rav Ḥiyya, <b>and he said</b> the explanation <b>to me: And is a person not likely to say to the craftsman: Sell my cloak for me</b> after you finish repairing it? It is possible that the craftsman mistakenly sold the utensils of another client instead, and gave to that other client the utensils that should have been sold. Since the owner of these utensils received the money from the sale of the other client’s utensils, the craftsman has a right to give the remaining utensils to the other client in the interim. This reasoning does not apply in the case of the house of mourning or a wedding feast, where one simply took utensils belonging to another.
+
+### Part 7
+<b>Rav Ḥiyya, son of Rav Naḥman, said: They taught</b> that it is permitted to use the utensils <b>only</b> if the craftsman <b>himself</b> gave them to his customer, as in that case, the above reasoning applies. <b>But if</b> the craftsman’s <b>wife or children</b> gave them to him, the customer may <b>not</b> use the utensils, as it is likely that they were given to him in error. <b>And even</b> if the craftsman himself gave the utensils to his customer, <b>we said</b> that it is permitted for him to use them <b>only</b> in a case <b>where</b> the craftsman <b>said</b> to him, for example: I am returning <b>a cloak, without specification. But</b> if the craftsman said to him: I am returning <b>your cloak,</b> then he may <b>not</b> use it, as <b>this is not his cloak,</b> and clearly it was given to him in error.
+
+### Part 8
+§ The Gemara presents another statement with regard to craftsmen. <b>Abaye said to Rava: Come</b> and <b>I will show you what the swindlers of Pumbedita do.</b> There was a case where the owner of an item <b>said to</b> a craftsman: <b>Give me</b> back <b>my cloak [<i>sarbelai</i>]</b> that I gave you to repair, and the craftsman replied: <b>These matters never occurred.</b> The owner responded: <b>But I have witnesses who saw it in your</b> possession. The craftsman <b>said to</b> the owner: <b>That was a different</b> cloak that they saw. The witnesses are uncertain as to whether it was really his cloak. The owner then said: <b>Bring it out and we will see it,</b> so as to determine whose it is. The craftsman <b>said to</b> the owner: <b>In truth, I will not bring it out,</b> as you have no valid claim to the cloak and I am not willing to show you another’s property. This is the trickery to which Abaye referred, as it is not a sincere response, and the craftsman merely wishes to keep the cloak.
+
+### Part 9
+<b>Rava said</b> to Abaye: The craftsman <b>is saying well to</b> the owner, and his claim will be accepted,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

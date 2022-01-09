@@ -1,0 +1,30 @@
+
+### Partie 1
+Il <b>est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>"Ainsi, aucun heritage ne sera transfere d'une tribu a une autre tribu"</b> (Nombres 36:9) ; <b>le verset parle</b> du <b>transfert</b> de l'heritage <b>par le biais du mari.</b> La Torah interdit a la femme d'epouser un homme d'une tribu differente puisque son mari heritera d'elle, transferant ainsi son heritage loin de sa tribu d'origine.
+
+### Partie 2
+<b>Dites-vous</b> que c'est <b>en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du mari, ou est-ce seulement en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du fils ? Quand il est dit : "Ainsi, aucun heritage des enfants d'Israel ne passera de tribu a tribu"</b> (Nombres 36:7), le verset parle <b>en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du fils. Comment realiser</b> le sens du verset : <b>"Ainsi, aucun heritage ne sera transfere d'une tribu a une autre tribu"</b> (Nombres 36:9) ? Ce <b>verset parle</b> du <b>transfert</b> de l'heritage <b>par le biais du mari.</b>
+
+### Partie 3
+La Gemara commente : <b>En tout etat de cause,</b> selon <b>tous,</b> c'est-a-dire selon les deux <i>baraitot</i>, la phrase dans <b>le verset "d'une tribu a une autre tribu" parle</b> du <b>transfert</b> de l'heritage <b>par le biais du mari.</b> La Gemara demande : <b>D'ou vient ce <b>transfert</b> ? La Gemara fournit <b>un moyen mnemotechnique. Rabba bar Rav Sheila a dit</b> que la derniere partie du <b>verset dit :</b> "Ainsi, aucun heritage ne sera transfere d'une tribu a une autre tribu ; car les tribus des enfants d'Israel s'attacheront <b>chacune [<i>ish</i>]</b> a son propre heritage", faisant allusion au transfert par le biais du mari, car le mot "<i>ish</i>" signifie mari, dans le contexte de : "Elimelech le mari [<i>ish</i>] de Naomi" (Ruth 1:3). La Guemara demande : Mais le mot <b>"<i>ish</i>" est ecrit dans les deux</b> versets. Par consequent, les deux versets doivent etre interpretes en ce qui concerne le transfert de l'heritage par le biais du mari.
+
+### Partie 4
+<b>Au contraire, Rav Nahman bar Yitzhak dit</b> une explication differente. Le <b>verset dit :" Il s'attachera" et ce terme fait allusion au mariage, comme dans le contexte de : "Et il s"?attachera A sa femme" (Genèse 2:24). La Guemara souleve une difficulte : Mais le terme <b>"s'attachera" est ecrit dans les deux</b> versets. Par consequent, les deux versets doivent etre interpretes en ce qui concerne le transfert de l'heritage par le biais du mari.
+
+### Partie 5
+<b>Au contraire, Rava a dit</b> une explication differente : Le <b>verset dit : "Les tribus</b> des enfants d'IsraA "l <b>s'attacheront,"</b> et les tribus s'attachent les unes aux autres par le mariage. <b>Rav Ashi a dit</b> une autre explication : Le <b>verset dit : "D'une tribu A une autre tribu," et un fils n'est pas</b> considéré comme <b>une autre,"</b> car il est une extension de sa mère.
+
+### Partie 6
+§ <b>Rabbi Abbahu dit</b> que <b>Rabbi Yohanan dit</b> que <b>Rabbi Yannai dit</b> que <b>Rabbi</b> Yehuda HaNasi <b>dit, et</b> certains <b>determinent qu'il</b> etait <b>au nom de Rabbi Yehoshua ben Korha : D'ou</b> provient-il <b>que le mari</b> qui herite de sa femme ne <b>prend pas en</b> heritage les biens <b>duits</b> a la defunte <b>comme</b> il le fait pour les biens qu'elle <b>possedait ?</b> Au lieu que le mari herite des biens qui lui etaient dus, ces biens sont herites par ses autres parents, comme son fils, ou d'autres parents de son pere. <b>Comme il est dit : "Et Segouv engendra Yair, qui eut vingt-trois villes dans le pays de Galaad"</b> (IA Chroniques 2:22). La Guemara demande : <b>D'ou vient</b> que <b>Yair a eu</b> des terres <b>que son pere, <b>Segouv, n'a pas eues ? Plutot,</b> ceci <b>enseigne que Seguv a epouse une femme et qu'elle est decedee du vivant de ses</b> <b>legataires potentiels, et ses legataires</b> sont alors <b>decedes, et Yair,</b> son fils, et non Seguv, son mari, <b>a herite</b> de ces heritages de <b>elle.</b>
+
+### Partie 7
+<b>Et il est dit : "Elazar, fils d'Aaron, mourut ; et on l'enterra</b> dans la colline de Pinehas, son fils" (Josue 24:33). <b>D'ou vient</b> que <b>Pinehas a eu</b> une terre <b>que</b> son pere, <b>Elazar, n'a pas eue ? </b> Cela <b>enseigne plutot qu'Elazar a epouse une femme et qu'elle est morte du vivant de ses</b> <b>legataires potentiels, et que ses legataires</b> sont alors <b>morts, et que Pinehas</b> son fils, et non Elazar son mari, <b>a herite</b> des biens de <b>celle-ci.</b>
+
+### Partie 8
+<b>Et quel</b> est le sens de : <b>Et il est dit ?</b> Pourquoi est-il necessaire d'apporter une preuve supplementaire au-dela du premier verset ? La Gemara explique . <b>Et si l'on disait :</b> Dans le verset concernant Segouv et Yair, c'est <b>Yair,</b> non Segouv, <b>qui a epouse une femme et elle est morte et il a herite</b> de <b>elle,</b> et il n'a pas herite de sa mere, <b>le verset dit :" Et Elazar, fils d'Aaron, mourut</b> et on l'enterra dans la colline de Pinehas, son fils" (Josue 24:33), ce qui enseigne que Pinehas a herite de la terre de ceux dont sa mere a herite, et Elazar non. <b>Et si vous voulez dire que</b> cette terre <b>est entree</b> en possession de Pinehas <b>comme champ consacre,</b> puisqu'il etait pretre, et qu'il ne l'a pas herite de sa mere, <b>le verset dit : "Son fils,"</b> indiquant qu'il s'agissait d'un <b>heritage qui lui convenait,</b> c'est-a-dire Elazar, si sa femme n'etait pas decedee avant ses legataires, <b>et son fils en a herite.</b>
+
+### Partie 9
+§ La mishna enseigne : <b>Et les fils de sœurs,</b> c'est-a-dire les neveux nes des sœurs du defunt, heritent de leurs oncles maternels mais ne leur leguent pas. <b>Il est enseigne</b> dans un <i>baraita</i> : Cette <i>halakha</i> s'applique aux <b>fils de sœurs mais pas</b> aux <b>filles de sœurs.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

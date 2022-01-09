@@ -1,0 +1,42 @@
+
+### Part 1
+<b>I heard two</b> <i>halakhot</i> <b>from Master Shmuel,</b> one <i>halakha</i> with regard to one <b>who sits</b> in a riding position on an animal, <b>and</b> the other <i>halakha</i> with regard to one <b>who leads</b> an animal. With regard to <b>one</b> case I heard that <b>he</b> thereby <b>acquires</b> the animal, <b>and</b> with regard to the other <b>one</b> I heard that <b>he does not acquire</b> the animal. <b>But I do not know</b> which <i>halakha</i> applies to <b>which of them.</b>
+
+### Part 2
+The Gemara asks: <b>What are the circumstances? If we say</b> that this is referring to one <b>who sits</b> in a riding position <b>alone and</b> to one who <b>leads alone, is there anyone who says that</b> one <b>who leads</b> an animal <b>alone does not acquire</b> it? Pulling an item, or leading an animal, is a classic mode of acquisition (see <i>Kiddushin</i> 25b). <b>Rather, if</b> there is a case where <b>it could be said that</b> one <b>does not acquire</b> the animal, <b>it is</b> obviously in the case of one who <b>sits</b> in a riding position <b>that it could be said.</b> Therefore, why was Rav Yehuda uncertain?
+
+### Part 3
+The Gemara answers: <b>Rather, his dilemma</b> was with regard to a case where one <b>sits</b> in a riding position on the animal <b>while</b> another <b>leads</b> it. <b>What</b> is the <i>halakha</i>? Which of them acquires the animal? Does the one <b>sitting</b> in a riding position on the animal <b>take precedence, as</b> the animal <b>is in his grasp,</b> since his legs are grasping the sides of the animal, <b>or perhaps</b> the one <b>leading</b> the animal <b>takes precedence, as it walks because of him?</b>
+
+### Part 4
+<b>Rav Yosef said: Rav Yehuda said to me:</b> Although I do not remember what Shmuel said, <b>let us see</b> if we can analyze this <b>ourselves, as we learned</b> in a mishna concerning the prohibition against leading animals of diverse kinds (<i>Kilayim</i> 8:3): If two animals of diverse kinds, e.g., a horse and a donkey, are harnessed to the same wagon, <b>the one leading</b> the animals <b>incurs the forty</b> lashes for transgressing the Torah prohibition: “You shall not plow with an ox and a donkey together” (Deuteronomy 22:10), <b>and the one sitting in the wagon [<i>bakaron</i>]</b> also <b>incurs the forty</b> lashes. <b>Rabbi Meir deems the one sitting in the wagon exempt,</b> as he did not perform any action.
+
+### Part 5
+<b>And from</b> the fact <b>that</b> in his version of the mishna <b>Shmuel reversed</b> the opinions <b>and taught: And the Rabbis deem the one sitting in the wagon exempt,</b> it can be inferred that he agrees with this opinion that the one sitting in the wagon is considered to have not performed any action, as the <i>halakha</i> is in accordance with the opinion of the Rabbis in their disputes with Rabbi Meir. <b>Conclude from it</b> that one who <b>sits</b> on an animal <b>alone does not acquire</b> it, as sitting on an animal is not considered a significant action, <b>and all the more so</b> one who <b>sits</b> on an animal <b>while</b> another <b>leads</b> the animal does not acquire the animal.
+
+### Part 6
+<b>Abaye said to Rav Yosef: Didn’t you say to us many times</b> with regard to this <i>halakha</i>: <b>Let us see</b> if we can analyze this <b>ourselves,</b> followed by the proof from the aforementioned mishna? <b>And you did not say to us</b> that this statement was <b>in the name of Rav Yehuda.</b> Rav Yosef had an illness that caused him memory loss. Consequently, some of his later statements of <i>halakha</i> were inaccurate, and Abaye suspected that he attributed this statement to Rav Yehuda erroneously.
+
+### Part 7
+Rav Yosef <b>said to him: Indeed [<i>ivra</i>],</b> I remember that Rav Yehuda stated this proof, <b>and I also remember that I said to him</b> in response: <b>How can the Master resolve</b> the case of one who <b>sits</b> on an animal via proof <b>from</b> the case of one who <b>sits</b> in the wagon? One who <b>sits</b> in the wagon <b>does not hold the reins,</b> whereas one who <b>sits</b> on the animal <b>holds the reins. And</b> Rav Yehuda <b>said to me</b> in response: <b>Rav and Shmuel both say</b> that holding the <b>reins</b> of an ownerless animal <b>does not effect acquisition</b> of it. Consequently, there is no difference between sitting on an animal and sitting in a wagon drawn by an animal.
+
+### Part 8
+<b>There are</b> those <b>who say</b> that the exchange between Abaye and Rav Yosef was as follows: <b>Abaye said to Rav Yosef: How can the Master resolve</b> the case of one who <b>sits</b> on an animal via proof <b>from</b> the case of one who <b>sits</b> in the wagon? One who <b>sits</b> in the wagon <b>does not hold the reins,</b> whereas one who <b>sits</b> on the animal <b>holds the reins.</b> Rav Yosef <b>said to him: Idi taught</b> in a <i>baraita</i> <b>like this:</b> Holding the <b>reins</b> of an ownerless animal <b>does not effect acquisition</b> of it.
+
+### Part 9
+It <b>was also stated</b> that <b>Rabbi Ḥelbo says</b> that <b>Rav Huna says:</b> With regard to holding the <b>reins</b> of an animal in order to acquire it, if he is attempting to acquire it <b>from another</b> person, he <b>acquires</b> the animal. But <b>with regard to</b> acquisition of <b>a found</b> animal, <b>or with regard to</b> acquisition of an animal that was <b>the property of a convert</b> who died without heirs, leaving his property ownerless, it <b>does not effect acquisition.</b>
+
+### Part 10
+The Gemara explains: <b>What</b> is the meaning of <b>the term reins [<i>moseira</i>]? Rava said: Idi explained to me</b> that they are used <b>like a person who transmits [<i>moser</i>] an item to another,</b> i.e., they are used to transfer the ownership of the animal. <b>Granted,</b> in a case where one takes the reins <b>from another,</b> this <b>effects acquisition</b> of the animal, <b>as the other</b> person <b>hands</b> them <b>to him. But</b> in a case <b>of a found</b> animal <b>or of</b> one that was <b>the property of a convert, who is handing him</b> the reins, enabling him <b>to acquire</b> the ownerless animal? Since there was no transaction, one cannot acquire the animal by merely holding the reins.
+
+### Part 11
+The Gemara <b>raises an objection</b> from the mishna: If <b>two</b> people <b>were sitting</b> in a riding position <b>on an animal,</b> or if one was sitting on it in a riding position and the other was leading it, they divide it after taking an oath. In accordance with <b>whose</b> opinion is this mishna? <b>If we say</b> that it is in accordance with the opinion of <b>Rabbi Meir, now,</b> in his opinion, even one who <b>sits</b> in a wagon <b>acquires</b> the animal that is pulling the wagon. <b>Is it necessary</b> to state that one who <b>sits</b> in a riding position on an animal acquires it? <b>Rather, is it not</b> the opinion of <b>the Rabbis? And learn from it</b> that one who <b>sits</b> in a riding position on an animal <b>acquires</b> it.
+
+### Part 12
+The Gemara answers: <b>With what are we dealing here?</b> We are dealing with a case <b>where</b> the one sitting on the animal also <b>leads,</b> i.e., drives it by squeezing or kicking it <b>with his legs.</b> The Gemara asks: <b>If so, this is</b> the same as <b>leading</b> the animal by pulling the reins, as the essential factor in both is that one causes the animal to move, so why does the mishna need to mention it? The Gemara answers: The <i>tanna</i> teaches <b>two types of leading,</b> both pulling the animal by the reins and driving it while sitting on it. <b>Lest you say</b> that one who <b>is sitting</b> in a riding position on the animal <b>takes precedence, as he is</b> both <b>leading</b> the animal <b>and</b> also <b>holding it</b> by the reins, the <i>tanna</i> <b>teaches us</b> that the claim of the one sitting in a riding position on the animal is not stronger than the claim of the one leading it by the reins.
+
+### Part 13
+<b>Come</b> and <b>hear</b> a different proof from a <i>baraita</i>: With regard to <b>two</b> people <b>who were pulling a camel or driving a donkey</b> together, <b>or one who was pulling</b> it <b>and one</b> who was <b>driving</b> it,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

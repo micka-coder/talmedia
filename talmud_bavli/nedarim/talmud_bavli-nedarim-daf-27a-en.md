@@ -1,0 +1,30 @@
+
+### Part 1
+<b>and there were <i>benot shuaḥ</i> in it, and he said: Had I known that there were <i>benot shuaḥ</i> in it I would not have taken a vow, the basket</b> and the remaining figs inside <b>are forbidden,</b> while <b>the <i>benot shuaḥ</i> are permitted.</b> This was the accepted ruling <b>until Rabbi Akiva came and taught: A vow which is dissolved partially is dissolved completely.</b> Therefore, all of the produce is permitted. <b>What, is it not</b> referring to a case where one said: <b>Had I known that <i>benot shuaḥ</i> were inside it, I would have said</b> that <b>black and white figs are forbidden,</b> and <b><i>benot shuaḥ</i> are permitted, and this is</b> the opinion of <b>Rabbi Akiva, and the Rabbis disagree</b> with him? But according to Rava everyone agrees that all the produce is permitted in a case like this.
+
+### Part 2
+The Gemara responds: <b>No,</b> it is possible to say that it is speaking of a case <b>where he says: Had I known that there were <i>benot shuaḥ</i> in it I would have said</b> that <b>the entire basket is forbidden and</b> the <b><i>benot shuaḥ</i> are permitted,</b> which is the opinion of Rabbi Akiva according to Rava.
+
+### Part 3
+The Gemara asks: <b>Who</b> is the <i>tanna</i> who <b>taught that which the Sages taught:</b> With regard to one who <b>took a vow, in one</b> utterance, prohibiting himself from deriving benefit <b>from five people,</b> if the vow <b>is dissolved for one of them,</b> then the vow concerning <b>all of them is dissolved;</b> but if he retracted and said: I am prohibited to derive benefit from all of these individuals <b>except for one of them,</b> then <b>he,</b> i.e., that individual who was excluded, <b>is permitted and they,</b> the others, <b>are forbidden?</b>
+
+### Part 4
+The Gemara explains two possibilities: <b>If</b> one says that it is in accordance <b>with</b> the explanation of <b>Rabba,</b> then <b>the first clause</b> is referring to a case where after having taken a vow prohibiting himself from deriving benefit from all five people, he retracted and said: Benefit from this one and from that one are forbidden but benefit from one is permitted, and it is in accordance with the opinion of <b>Rabbi Akiva,</b> that a vow which is dissolved partially is dissolved completely. <b>And the latter clause</b> is where he adds to the initial vow by stating: Except for one of them, and <b>everyone agrees</b> that only that one is permitted. <b>If</b> one says that it is in accordance <b>with</b> the explanation of <b>Rava, the latter clause</b> is in accordance with the opinion of the <b>Rabbis, and everyone agrees</b> with the ruling of <b>the first clause.</b>
+
+### Part 5
+<strong>MISHNA:</strong> What are examples of <b>vows</b> impeded by <b>circumstances beyond</b> one’s <b>control?</b> If <b>one’s friend took a vow with regard to him that he should eat with him, and he became sick, or his son became sick, or a river</b> that he was unable to cross <b>barred him</b> from coming, <b>these are</b> examples of <b>vows</b> whose fulfillment are impeded by <b>circumstances beyond</b> one’s <b>control.</b> They are not binding and do not require dissolution.
+
+### Part 6
+<strong>GEMARA:</strong> The Gemara relates that there was <b>a certain man who</b> had a dispute in court with another individual and wanted to postpone the trial to a later time in order to search for more evidence. Meanwhile, he <b>deposited</b> his documents for <b>a favorable</b> verdict, i.e., that supported his claim, <b>in court, and</b> since the other litigant did not believe that he would return, the man <b>said: If I do not come</b> back <b>within thirty days, these</b> documents for <b>a favorable verdict will be void. He was impeded</b> by circumstances beyond his control <b>and did not come</b> back. <b>Rav Huna said: His</b> documents for <b>a favorable verdict are void</b> since he did not return by the specified time.
+
+### Part 7
+<b>Rava said to him: He is a victim of circumstances beyond</b> his <b>control and</b> the <i>halakha</i> is that <b>the Merciful One exempted a victim of circumstances beyond</b> his <b>control</b> from responsibility for his actions, <b>as it is written</b> concerning a young woman who was raped: <b>“But unto the damsel you shall do nothing;</b> there is in the damsel no sin worthy of death” (Deuteronomy 22:26).
+
+### Part 8
+<b>And if you would say</b> that with regard to the penalty of <b>death,</b> which is extremely severe, the <i>halakha</i> is <b>different,</b> and she is treated leniently and not executed, but with regard to other transgressions one’s actions are treated as deliberate, <b>but didn’t we learn</b> in the mishna here: What are examples of <b>vows</b> whose fulfillment are impeded by <b>circumstances beyond</b> one’s <b>control?</b> If <b>one’s friend took a vow with regard to him that he should eat with him, and he became sick, or his son became sick, or a river</b> that he was unable to cross <b>barred him</b> from coming, <b>these are</b> examples of <b>vows</b> whose fulfillment are impeded by <b>circumstances beyond</b> one’s <b>control;</b> they are not binding and do not require dissolution. This demonstrates that even here the exemption due to circumstances beyond one’s control should apply.
+
+### Part 9
+The Gemara asks: <b>And according to Rava,</b> in <b>what</b> way <b>is</b> it <b>different from</b> that <b>which we learned</b> in a mishna (<i>Gittin</i> 76b): If a man says to his wife: <b>This is your bill of divorce from now if I do not arrive from now until</b> the conclusion of <b>twelve months, and he died within</b> those <b>twelve months, this</b> document <b>is</b> a valid <b>bill of divorce</b> from the time of his declaration. <b>Why? But he was a victim of circumstances beyond</b> his <b>control,</b> as death is the ultimate example of this? The Gemara answers: <b>Say</b> that <b>perhaps</b> it is <b>different there,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

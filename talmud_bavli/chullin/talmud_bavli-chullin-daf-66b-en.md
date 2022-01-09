@@ -1,0 +1,39 @@
+
+### Part 1
+the <b><i>akunas</i>, and</b> the <b><i>afunas</i>,</b> and the <b><i>kesaftiyas</i>, and</b> the <b><i>akhsaftiyas</i>, and</b> the <b><i>atunas</i>, it is permitted.</b>
+
+### Part 2
+<b>We learned</b> in a mishna <b>elsewhere</b> (<i>Nidda</i> 51b): <b>Any</b> fish <b>that has scales</b> certainly <b>has fins, but there are</b> fish <b>that have fins and do not have scales.</b> Any fish that <b>has scales and fins</b> is <b>a kosher fish.</b> If <b>it has fins but no scales,</b> it is <b>a non-kosher fish.</b>
+
+### Part 3
+The Gemara asks: <b>Now,</b> since <b>we rely</b> only <b>on scales</b> to deem a fish kosher, presuming that if it has scales it must have fins as well, <b>let the Merciful One write</b> only <b>“scales”</b> as the sign of a kosher fish <b>and let</b> Him <b>not write “fins”</b> at all. The Gemara responds: <b>If the Merciful One had written: Scales [<i>kaskeset</i>], and had not written: Fins [<i>senappir</i>], I would say: What</b> is <b><i>kaskeset</i>?</b> It is <b>fins. And</b> I would thereby come to permit <b>even non-kosher fish.</b> Therefore, <b>the Merciful One stated: “<i>Senappir</i> and <i>kaskeset</i>,”</b> to leave no room for error.
+
+### Part 4
+The Gemara asks: <b>But now that the Merciful One has written: “<i>Senappir</i> and <i>kaskeset</i>,” from where</b> is it derived that <b><i>kaskeset</i></b> denotes <b>clothing,</b> i.e., scales, rather than fins? <b>As it is written: “And he was clad with a coat of scale armor [<i>kaskasim</i>]”</b> (I Samuel 17:5). And if it is certain that <i>kaskeset</i> refers to scales, the question resurfaces: <b>Let the Merciful One write</b> only <b>“<i>kaskeset</i>,” and let</b> Him <b>not write “<i>senappir</i>.”</b>
+
+### Part 5
+<b>Rabbi Abbahu said, and so the <i>tanna</i> of the school of Rabbi Yishmael</b> taught: The Holy One, Blessed be He, wished to bestow good upon the Jewish people. Therefore, He made their Torah abundant, as it is written: “The Lord was pleased, for His righteousness’ sake, <b>to make Torah great and glorious”</b> (Isaiah 42:21). He consequently expanded some aspects of the Torah more than strictly necessary.
+
+### Part 6
+§ <b>The Sages taught</b> in a <i>baraita</i>: The Torah states the prohibition of non-kosher fish both positively and negatively: “These may you eat of all that are in the waters: Whatever has fins and scales…them you may eat. And all that have not fins and scales…they are a detestable thing unto you” (Leviticus 11:9–10). <b>From the implication</b> of <b>that</b> which <b>is stated: Eat</b> fish <b>that have</b> these signs, <b>I</b> would <b>derive</b> the inverse: <b>Do not eat</b> fish <b>that do not have</b> them. <b>And from the implication</b> of <b>that</b> which <b>is stated: Do not eat</b> fish <b>that do not have</b> them, <b>I</b> would <b>derive</b> the inverse: <b>Eat</b> fish <b>that have</b> them. If so, <b>why</b> did the Torah <b>teach</b> both of <b>them?</b> It is in order <b>to</b> indicate that one who eats non-kosher fish <b>transgresses, on its account,</b> both <b>a positive mitzva and a prohibition.</b>
+
+### Part 7
+Given that the verse states: “Whatever has fins and scales…them may you eat,” <b>what</b> is the meaning when <b>the verse states:</b> “These <b>may you eat of all that are in the waters?”</b> Why is this necessary? It is necessary, <b>as</b> without this verse one <b>might</b> have thought: <b>Since</b> the Torah <b>permitted</b> creeping creatures of the water without fins and scales <b>explicitly and</b> also <b>permitted</b> them <b>implicitly,</b> one can infer: <b>Just as when</b> the Torah <b>permitted</b> such creatures <b>explicitly, it permitted</b> them <b>only</b> when <b>in vessels, so too, when it permitted</b> them <b>implicitly, it permitted</b> them <b>only in vessels. From where</b> is it derived <b>to include</b> as kosher even those in <b>pits, ditches, and caves, that</b> one may <b>dig</b> them <b>and drink from them and</b> need <b>not refrain</b> from drinking the creeping creatures in them? <b>The verse states:</b> “These <b>may you eat of all that are in the waters,”</b> to indicate that this is permitted.
+
+### Part 8
+The Gemara elaborates: <b>Where did</b> the Torah <b>permit</b> them <b>in vessels?</b> It did so in the following verse, <b>as it is written: “These may you eat of all that are in the waters:</b> Whatever has fins and scales in the waters, in the seas, and in the rivers, them may you eat.” It would have been sufficient to write simply: “In the waters.” The addition of “in the seas and in the rivers” indicates that <b>it is</b> only <b>in the seas and in the rivers that when it has</b> fins and scales you may <b>eat</b> it, and that <b>you</b> may <b>not eat</b> one <b>that does not have</b> them. <b>But</b> with regard to a creeping creature found <b>in vessels, even if it does not have</b> fins and scales you may <b>eat</b> it.
+
+### Part 9
+The Gemara objects: One could just as easily <b>say</b> the opposite: You may eat a fish that has these signs only when it is found in seas and rivers, but <b>in vessels, even if it has</b> fins and scales, <b>you</b> may <b>not eat</b> it. The Gemara responds: This should <b>not enter your mind, as it is written: “And all that have not fins and scales in the seas, and in the rivers, of all that swarm in the waters, and of all the living creatures that are in the waters,</b> they are a detestable thing to you.” The verse indicates that it is only <b>in the seas and in the rivers that you</b> may <b>not eat</b> a fish <b>that does not have</b> fins and scales. <b>But</b> you may <b>eat</b> a creeping creature found <b>in vessels, even if it does not have</b> fins and scales.
+
+### Part 10
+The Gemara objects: <b>But</b> one can prove whether it is permitted to drink from pits, ditches, and caves differently. <b>Say</b> instead that the phrase “whatever has fins and scales <b>in the waters”</b> is <b>a generalization,</b> and the phrase <b>“in the seas and in the rivers”</b> is <b>a detail.</b> In any instance of <b>a generalization and a detail, the generalization only includes that which is</b> spelled out <b>in the detail.</b> Therefore, in the <b>seas and rivers, yes,</b> one may eat only fish with fins and scales, but in <b>water channels and trenches,</b> as well as pits, ditches, and caves, this restriction does <b>not</b> apply. Consequently, the clause “These may you eat of all that are in the waters” is unnecessary.
+
+### Part 11
+The Gemara responds: This deduction is not sound. The term <b>“in the waters”</b> appears twice in the verse. When the verse repeated it, <b>it then generalized</b> again. Consequently, there are two generalizations and one detail in the verse, making it an instance of a generalization, a detail, and a generalization, which includes all cases similar to the detail, including pits, ditches, and caves, indicating that the restriction applies to them as well. Therefore, the clause “These may you eat of all that are in the waters” is necessary to teach that all fish in pits, ditches, and caves are permitted.
+
+### Part 12
+The Gemara asks: How can this verse be an instance of a generalization, a detail, and a generalization? <b>These are two generalizations that are adjacent to each other.</b> Both instances of the term “in the waters” precede the detail, such that the verse is actually a generalization, a generalization, and a detail. <b>Ravina said: As they say in the West,</b> Eretz Yisrael: <b>Wherever you find two generalizations juxtaposed one with the other,</b> followed by a specific detail,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

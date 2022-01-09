@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Dans</b> un cas ou il a vendu une vache ou un manteau <b>sans specification, ou il n'est pas lie au</b> creancier. <b>Quelle est la raison</b> de cette situation ? C'est parce que ces objets <b>sont des biens meubles, et les biens meubles ne sont pas greves d'un creancier. Et meme si</b> il en est ainsi <b>que</b> le debiteur <b>a ecrit au creancier</b> qu'il peut recouvrer la dette meme <b>a partir</b> du <b>cloak qui est sur ses epaules, cette question</b> ne s'applique que <b>lorsqu'il est tel quel</b> et en possession du debiteur, <b>mais</b> si <b>il n'est pas tel quel,</b> puisqu'il est en possession de l'acheteur, alors <b>non,</b> le creancier ne peut pas percevoir sur les biens meubles. Par consequent, le debiteur peut temoigner au nom de l'acheteur.
+
+### Partie 2
+La Gemara poursuit : <b>Mais meme</b> dans un cas ou il a <b>mis</b> la vache ou le manteau <b>a l'ecart</b> en tant que <b>remboursement designe [<i>apoteiki</i>],</b> le creancier <b>ne peut pas</b> percevoir dessus. <b>Quel est le raisonnement ?</b> Il est <b>conforme</b> a la declaration <b>de Rava, car Rava dit :</b> Si un maitre <b>met de cote son esclave</b> comme <b>remboursement designe</b> d'une dette <b>et</b> qu'il l'a ensuite <b>vendu, </b> le <b>creancier du maitre percoit</b> la dette <b>a partir</b> du produit de la vente de l'esclave. Mais si l'on a mis de cote <b>son bœuf ou son ane</b> comme <b>remboursement designe et</b> qu'on l'a ensuite <b>vendu,</b> le <b>creancier ne percoit pas</b> la dette <b>par rapport</b> au produit de la vente du bœuf ou de l'ane.
+
+### Partie 3
+<b>Quelle est la raison</b> de cette distinction ? <b>Cette</b> mise en reserve de l'esclave comme remboursement designe genere de la <b>publicite, et cette</b> mise en reserve du bœuf ou de l'ane comme remboursement designe ne <b>pas</b> genere de la <b>publicite.</b> Par consequent, lorsque l'esclave avait ete mis en reserve comme remboursement designe, l'acheteur l'aurait su. Comme il a achete l'esclave en ayant cette connaissance, l'esclave peut lui etre saisi par le creancier du vendeur. En revanche, l'acheteur de la vache ou du manteau n'aurait pas su qu'il avait ete mis de cote comme remboursement designe, de sorte que le creancier du vendeur ne peut pas le saisir.
+
+### Partie 4
+La Gemara demande : <b>Mais qu'on s'inquiete</b> du fait que <b>peut-etre</b> le debiteur a <b>transfere</b> le <b>bien meuble au</b> creancier, non pas pour qu'il soit proprietaire, mais pour qu'il ait un privilege sur le bien meuble, <b>par le biais,</b> c'est-a-dire en meme temps qu'une acquisition de <b>terrain, comme Rabba l'a dit : Si</b> le debiteur a <b>transfere un bien meuble au</b> creancier comme bien greve <b>par le biais</b> d'une acquisition de <b>terrain,</b> le creancier <b>acquiert le terrain</b> et <b>acquiert</b> le <b>bien meuble,</b> c'est-a-dire qu'un privilege est cree a l'egard des deux. <b>Et Rav Hisda a dit : Et c'est</b> la <i>halakha</i> uniquement <b>lorsque</b> le debiteur <b>a ecrit au</b> creancier : Ce privilege n'est <b>pas comme une transaction avec consentement non concluant [<i>keâsmakhta</i>],</b> qui n'effectue pas d'acquisition, <b>et pas comme le modele [<i>ketofesa</i>] de documents,</b> qui ne sont pas reellement utilises pour recouvrer des dettes. Il s'agit plutot d'un document juridiquement contraignant.
+
+### Partie 5
+La Gemara repond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire a un cas <b>ou</b> le debiteur avait <b>achete</b> le bien meuble <b>et l'avait immediatement vendu</b>, et il n'avait aucune possibilite de le faire devenir un privilege pour un creancier. Il n'y a donc aucune possibilite qu'il soit biaise dans son temoignage en raison d'un desir de rembourser sa dette.
+
+### Partie 6
+La Gemara demande : <b>Mais laissons</b> une inquietude</b> que <b>peut-etre s'agit-il</b> d'un cas dans lequel le debiteur a ecrit au creancier : Je vous rembourserai meme de <b>cette</b> que <b>je vais acquerir</b> dans le futur, ce qui signifierait vraisemblablement que le creancier peut percevoir de l'acheteur meme si le debiteur a achete l'objet apres avoir contracte le pret. Du fait que cela ne pose pas de probleme, en tirez-vous <b>une lecon</b> que meme si le debiteur a ecrit : je vous rembourserai meme de ce que <b>je vais acquerir</b> dans le futur, et qu'il a ensuite <b>achete et vendu</b> un bien ou <b>achete et legue</b>, ce qu'il achete n'est <b>pas greve</b> a son creancier ? Cela semble regler ce qui est par ailleurs suppose etre une question non resolue.
+
+### Partie 7
+La Gemara rejette cette preuve : <b>Non,</b> il n'est pas necessaire d'arriver a cette conclusion, car il est <b>necessaire</b> d'enseigner la <i>halakha</i> dans un cas <b>ou les temoins disent : Nous savons de ce</b> qui a vendu ces objets <b>qu'il n'a jamais eu</b> de <b>terrain.</b> Par consequent, il ne peut etre question que le creancier ait acquis un privilege sur le bien meuble par le biais d'une acquisition de terrain.
+
+### Partie 8
+La Gemara demande : <b>Mais Rav Pappa ne dit-il pas</b> que <b>meme si les Sages ont dit :</b> Dans le cas de <b>quelqu'un qui vend un champ a un autre sans garantie, et qu'un creancier est venu le reprendre,</b> l'acheteur <b>ne peut pas retourner vers</b> le vendeur, c'est-a-dire. c'est-a-dire le debiteur, qui lui a vendu le champ, pour en demander le remboursement ; mais s'il est <b>trouve</b> que le champ <b>n'appartenait pas</b> au vendeur en premier lieu, l'acheteur peut <b>revenir au vendeur</b> pour en demander le remboursement. Dans ce cas, si le demandeur etablit que la vache ou la cape est la sienne et netait pas celle du vendeur, lâcheteur pourra demander le remboursement. Le vendeur est donc biaise dans son temoignage, et ne devrait pas pouvoir temoigner en faveur de l'acheteur.
+
+### Partie 9
+La Guemara repond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire <b>a un cas ou l'acheteur admet qu'il <b>reconnait que ceci</b> est la <b>descendance de</b> l'ane <b>du vendeur,</b> et ne pretendra pas devant le tribunal que le vendeur n'avait pas le droit de le vendre.
+
+### Partie 10
+La Guemara revient sur la declaration de Rav Pappa et commente : <b>Mais</b> contrairement a l'avis du Rav Pappa, <b>Rav Zevid dit : Meme</b> s'il est <b>trouve que</b> le champ <b>n'etait pas</b> celui du vendeur, l'acheteur <b>ne peut pas retourner vers</b> le vendeur pour demander le remboursement, <b>comme</b> le vendeur peut <b>dire a</b> l'acheteur : C'est <b>pour cette</b> raison que <b>je vous l'ai vendu sans garantie,</b> c'est-a-dire pour que, si on vous le prend, je n'en porte pas la responsabilite.
+
+### Partie 11
+§ La Guemara revient sur la declaration de Shmuel, afin d'examiner <b>la</b> question <b>meme. Ravin bar Shmuel dit au nom de Shmuel : Celui qui vend un champ a un autre</b> meme <b>sans garantie</b> que si le champ sera repris, le vendeur indemnisera l'acheteur pour sa perte <b>ne peut pas temoigner en ce qui concerne</b> la propriete de ce champ <b>au nom</b> de l'acheteur, <b>parce que</b> il <b>etablit</b> le champ <b>devant son creancier.</b> La Gemara demande : <b>Quelles sont les circonstances</b> de cette <i>halakha</i> ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

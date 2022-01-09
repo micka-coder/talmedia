@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>comme il est ecrit</b> dans la Torah, c'est-a-dire le Tetragramme, <b>et dans le pays</b> on utilise <b>son nom de substitution</b> de Seigneurie. <b>Dans le pays, les pretres levent leurs mains</b> pour qu'elles soient <b>alignees avec leurs epaules</b> pendant la benediction. <b>Et dans le Temple</b> ils les levent <b>au-dessus de leur tete, a l'exception du Grand Pretre, qui ne leve pas ses mains au-dessus du plastron.</b> Le Tetragramme etant inscrit dessus, il est inapproprie pour lui de lever ses mains au-dessus. <Rabbi Yehuda dit : Meme le Grand Pretre leve ses mains au-dessus du plastron, comme il est dit : "Et Aaron leva les mains vers le peuple et le benit"</b> (Levitique 9:22).
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne:</b> La mitsva donnee aux pretres : <b>C'est ainsi que vous benirez</b> les enfants d'Israel" (Nombres 6:23), est qu'ils les benissent <b>dans la langue sacree,</b> l'hebreu. Est-ce que <b>vous dites</b> que la benediction doit etre recitee <b>dans la langue sacree, ou</b> peut-etre qu'elle peut etre recitee <b>dans n'importe quelle langue ?</b> Le <i>baraita</i> repond : <b>Il est dit ici,</b> a propos de la benediction sacree : <b>C'est ainsi que vous benirez,</b> et il est dit ici,</b> en ce qui concerne les benedictions et les maledictions : <b>"Ceux-ci se tiendront</b> sur le mont Gerizim <b>pour benir le peuple"</b> (Deuteronome 27, 12). Il y a une analogie verbale entre ces deux usages du mot" benir" : <b>De meme que la-bas,</b> les benedictions et les maledictions etaient recitees <b>dans la langue sacree,</b> comme indique ci-dessus (33a), <b>de meme ici,</b> la Benediction sacerdotale est recitee <b>dans la langue sacree.</b>
+
+### Partie 3
+<b>Rabbi Yehuda dit : Il n'est pas necessaire</b> de deduire cela d'une analogie verbale, comme <b>il est dit</b> a propos de la Benediction sacree : <b>"Ainsi,</b> ce qui signifie qu'elle n'est pas recitee correctement <b>a moins qu'ils ne la recitent dans cette</b> <b>langue exacte,</b> comme il est ecrit dans la Torah.
+
+### Partie 4
+<b>Il est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>"Ainsi tu beniras,</b> signifie <b>en etant debout.</b> Est-ce que <b>vous dites</b> que la benediction doit etre recitee <b>en etant debout, ou</b> peut-etre qu'elle peut <b>meme</b> etre recitee <b>en etant assis ? Il est dit ici : A "Ainsi tu benirasA", et il est dit la,</b> en ce qui concerne les benedictions et les maledictions : <b>Ceux-ci se tiendront</b> sur le mont Gerizim <b>pour benir.</b> De meme que la-bas,</b> la benediction etait recitee <b>en etant debout, de meme ici,</b> les pretres doivent reciter la Benediction sacerdotale <b>en etant debout.</b>
+
+### Partie 5
+<b>Rabbi Natan dit : Il n'est pas necessaire</b> de deriver cela d'une analogie verbale, car <b>il est dit</b> dans le verset : "A cette époque, le Seigneur sépara la tribu de Lévi pour porter l'Arche de l'Alliance du Seigneur, pour se tenir devant le Seigneur <b>pour le servir et bénir en Son nom"</b> (Deutéronome 10:8). <b>De meme que</b> le pretre <b>exerce le <b>service</b> du Temple en se tenant debout, de meme, il benit en se tenant debout.</b> La Gemara demande : <b>Et d'ou deduit-on</b> qu'il <b>execute le service lui-meme</b> en etant debout ? <b>Comme il est ecrit :" Se tenir debout pour faire le service</b> au nom du Seigneur" (Deuteronome 18:5).
+
+### Partie 6
+<b>C'est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>So you shall bless"</b> signifie <b>avec les mains levees.</b> Est-ce que <b>vous dites</b> que les pretres doivent reciter la benediction <b>avec les mains levees, ou</b> peut-etre peuvent-ils la reciter <b>sans les mains levees ? Il est dit ici : A "Ainsi vous benirezA", et il est dit la,</b> a propos de la dedicace du Tabernacle : <b>"Et Aaron leva les mains vers le peuple et le benit"</b> (Levitique 9:22). <b>De meme que la,</b> Aaron benissait la nation <b>avec les mains levees, de meme ici,</b> la Benediction sacerdotale est recitee <b>avec les mains levees.</b>
+
+### Partie 7
+Cette <i>halakha</i> etait <b>difficile a comprendre pour Rabbi Yonatan : Si</b> cette <i>halakha</i> est derivee de la dedicace du Tabernacle, alors pourquoi ne pas dire aussi : <b>De meme que la-bas,</b> le <b>Haut Pretre</b> etait celui qui recitait la benediction, <b>et</b> c'etait la <b>Nouvelle Lune, et</b> les offrandes qui etaient apportees constituaient <b>un service communautaire, de meme ici,</b> la Benediction sacerdotale ne doit etre recitee que par le <b>Haut Pretre, et</b> a la <b>Nouvelle Lune, et</b> lors de l'accomplissement <b>d'un service communautaire ?</b>
+
+### Partie 8
+<b>Rabbi Natan dit : Il n'est pas necessaire</b> de deduire d'une analogie verbale que la Benediction sacerdotale est recitee avec les mains levees, comme <b>il est dit</b> a propos d'Aaron : "Se tenir debout pour exercer un ministere au nom du Seigneur, <b>lui et ses fils pour toujours"</b> (Deuteronome 18:5). Dans ce verset, <b>ses fils sont juxtaposes a lui. Tout comme</b> Aaron a recite la benediction sacerdotale <b>avec les mains levees, de meme, ses fils</b> recitent la benediction <b>avec les mains levees. Et</b> de plus, <b>il est ecrit "pour toujours",</b> ce qui indique qu'il ne s'agit pas seulement d'occasions speciales. <b>Et</b> bien que le verset ne se refere pas a la benediction sacerdotale, la <b>benediction est juxtaposee</b> au <b>service</b> du Temple dans un autre verset : "Pour le servir et le bénir en son nom" (Deutéromoine 10:8).
+
+### Partie 9
+<b>Et il est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>"Ainsi tu beniras les enfants d'Israel"</b> signifie que la benediction doit etre recitee <b>avec le nom ineffable.</b> <b>Vous dites</b> que la benediction sacerdotale doit etre recitee <b>avec le nom ineffable, ou</b> peut-etre <b>elle est</b> recitee <b>avec seulement le nom de substitution,</b> <i>Adonai</i> ? <b>Le verset dit : "C'est ainsi qu'ils mettront Mon nom"</b> (Nombres 6:27), ce qui signifie <b>Mon nom qui m'est propre.</b>
+
+### Partie 10
+On <b>pourrait</b> avoir pense que <b>meme dans les zones peripheriques,</b> en dehors du Temple, <b>ce nom</b> ineffable est utilise. <b>Il est enonce ici,</b> a propos de la benediction sacerdotale : <b>C'est ainsi qu'on mettra mon nom,</b> et il est precise ici,</b> a propos du lieu ou l'on doit sacrifier les offrandes : <b>Le lieu que le Seigneur ton Dieu a choisi parmi toutes tes tribus <b>pour y mettre son nom"</b> (Deuteronome 12:5). L'analogie verbale enseigne que <b>tout comme la,</b> l'expression "pour y mettre Son nom" se refere au <b>Temple, de meme ici,</b> la mitzva de "ainsi mettront-ils Mon nom" s'applique <b>au Temple</b> et pas ailleurs.
+
+### Partie 11
+<b>Rabbi Yoshiya dit : Il n'est pas necessaire</b> de deriver cette <i>halakha</i> de l'analogie verbale, car elle peut etre derivee d'un verset. <b>Il est dit</b> dans le verset : <b>Dans tous les lieux ou je ferai mentionner mon nom, je viendrai a toi</b> et je te benirai (Exode 20:20). Est-ce qu'il <b>entrerait dans votre esprit</b> que ce verset signifie litteralement que la Presence Divine sera revelee <b>partout</b> ? Au contraire, ce verset</b> doit etre interprete par <b>transposition.</b> Il doit etre reordonne et lu comme suit : <b>En tout lieu ou je viendrai vers vous et vous benirai, la je ferai en sorte que mon nom soit mentionne.</b> Rabbi Yoshiya explique que Dieu declare : <b>Et ou viendrai-je a vous et vous benirai-je ? Dans le Temple.</b> Par consequent, il en deduit : <b>La, dans le Temple, Je ferai en sorte que Mon nom soit mentionne,</b> mais le nom ineffable n'est pas mentionne ailleurs.
+
+### Partie 12
+<b>Il est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>C'est ainsi que tu beniras les fils d'Israel"</b> (Nombres 6:23). <b>J'ai</b> derive <b>seulement</b> la <i>halakha</i> de benir <b>les fils d'Israel. D'ou</b> je tire la <i>halakha</i> de benir les <b>convertis, les femmes et les esclaves emancipes ? Le verset precise</b> immediatement apres : <b>Vous leur direz,</b> c'est-a-dire <b>a l'ensemble</b> du peuple juif.
+
+### Partie 13
+<b>Il est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>"Ainsi vous benirez"</b> signifie que les pretres doivent reciter la benediction sacerdotale <b>face a face</b> avec l'assemblee. Est-ce que <b>vous dites</b> que la Benediction doit etre recitee <b>face-a-face, ou</b> peut-etre <b>elle n'est que</b> recitee avec les <b>faces</b> des pretres <b>face a la nuque</b> de l'assemblee ? <b>Le verset dit : <b>Vous leur direz</b> face a face, <b>comme une personne qui parle a une autre.</b>
+
+### Partie 14
+<b>C'est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>Vous benirez ainsi"/b> signifie que la benediction doit etre recitee <b>a haute voix. Ou, </b> peut-etre, <b>est-elle</b> recitee <b>seulement a voix basse ? Le verset dit :" Tu leur diras", comme une personne qui parle a une autre.</b>
+
+### Partie 15
+<b>Abaye a dit : Nous avons une tradition</b> concernant l'animateur de la priere qui appelle les pretres a reciter la benediction sacerdotale : Quand il y a <b>deux</b> pretres, <b>il appelle : Pretres, mais</b> quand il y a <b>un</b> pretre <b>il n'appelle pas : Pretre, comme il est dit : "Tu leur diras,"</b> au pluriel, c'est-a-dire <b>a</b> un minimum de <b>deux</b> pretres. <b>Et Rav Hisda dit : Nous avons une tradition</b> selon laquelle <b>un pretre appelle : Pretres, mais un israelite n'appelle pas : Pretres, comme il est dit : <b>Vous leur direz,</b> ce qui signifie que le <b>dit</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

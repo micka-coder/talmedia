@@ -1,0 +1,60 @@
+
+### Part 1
+<b>What, is</b> the <i>baraita</i> <b>not</b> referring <b>to the animal</b> when it prohibits giving it in receivership? If so, the <i>baraita</i> prohibits giving it to the gentile in exchange for half the rights to future fetuses, and certainly giving the gentile rights to all the future fetuses would be forbidden. The Gemara responds: <b>No,</b> it is referring <b>to</b> a case of an existing <b>fetus,</b> as the animal is pregnant, and therefore it is prohibited to sell it. It is permitted to sell to a gentile an animal that is not yet pregnant, for the rights to the fetuses alone.
+
+### Part 2
+The Gemara comments: The language of the <i>baraita</i> <b>is also precise, as</b> it <b>teaches:</b> The Sages penalize him up to ten times <b>its value [<i>damav</i>],</b> in masculine form, indicating that it is referring to the fetus and not the mother. The Gemara affirms: <b>Learn from it</b> that this is correct, and it cannot be proven from the <i>baraita</i> that it is forbidden to sell rights to a future fetus to a gentile.
+
+### Part 3
+The Gemara comments that the language of the <i>baraita</i>: The Sages penalize him up to ten times its value, <b>supports</b> the opinion of <b>Reish Lakish, as Reish Lakish says:</b> In the case of <b>one who sells large livestock to a gentile,</b> the Sages <b>penalize him,</b> requiring him to repurchase it from the gentile for <b>up to ten times its value.</b>
+
+### Part 4
+The Gemara asks: Does the phrase: For up to ten times its value, mean <b>specifically</b> this amount and no more, <b>or</b> does it <b>not</b> mean <b>specifically</b> this amount? The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from that <b>which Rabbi Yehoshua ben Levi says:</b> In the case of <b>one who sells his</b> Canaanite <b>slave to a gentile,</b> the Sages <b>penalize him,</b> requiring him to repurchase the slave from the gentile for <b>up to one hundred times its value.</b> It is therefore evident that the phrase: For up to ten times its value, is not precise. The Gemara responds: <b>A slave is different, as each day</b> that he works for the gentile, the gentile <b>restricts him from</b> performing <b>mitzvot.</b> Therefore, one who sells a slave is penalized more severely than one who sells his animal to a gentile.
+
+### Part 5
+<b>And there are</b> those <b>who say</b> that there is another version of the previous discussion: <b>Reish Lakish says</b> that in the case of <b>one who sells large livestock to a gentile,</b> the Sages <b>penalize him,</b> requiring him to repurchase it from the gentile for <b>up to one hundred times its value. We learned</b> in a <i>baraita</i>: <b>And</b> in the case of <b>one who gives</b> the gentile an animal <b>in receivership even though he is not permitted</b> to do so, the Sages <b>penalize him</b> by requiring that he purchase the gentile’s portion of the animal for <b>up to ten</b> times <b>its value.</b> This contradicts the statement of Reish Lakish.
+
+### Part 6
+The Gemara responds: The penalties in these two cases are not the same, as in a case of <b>a sale,</b> the animal is entirely <b>separated from</b> the Jew, while in the case of <b>receivership,</b> it is <b>not</b> entirely <b>separated from him,</b> as the animal still belongs to the Jew. Therefore, the penalty in this case is not as severe.
+
+### Part 7
+The Gemara asks: Does the amount of one hundred times its value stated by Reish Lakish mean <b>specifically</b> this amount and no more, <b>or</b> does it <b>not</b> mean <b>specifically</b> this amount? The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from that <b>which Rabbi Yehoshua ben Levi says:</b> In the case of <b>one who sells his</b> Canaanite <b>slave to a gentile,</b> the Sages <b>penalize him,</b> requiring him to repurchase the slave from the gentile for <b>up to ten times its value.</b> Apparently, the number one hundred is not meant literally. The Gemara responds: <b>A slave is different, since</b> the Sages already penalized the owner in that the slave <b>does not return to him.</b> Since the slave will be emancipated once the master redeems him, it may be that the Sages would not penalize him to such a great extent.
+
+### Part 8
+The Gemara challenges: Rather, <b>what is the reason</b> that he is penalized in the case of an <b>animal</b> more so than in the case of a slave? Is it <b>because</b> of the fact <b>that it returns to him?</b> If so, <b>he should be penalized</b> only <b>one additional</b> amount. If the difference is that an animal returns to its owners and a slave does not, then the difference in penalties should be reflective of this, and he should have to purchase the animal for no more than eleven times its value. <b>Rather,</b> the Gemara offers a different distinction: The sale of <b>a slave</b> is <b>an uncommon matter, and the Sages did not issue a decree with regard to an uncommon matter.</b> Therefore, one cannot compare the penalty in the case of selling a slave to the penalty in the case of selling an animal.
+
+### Part 9
+§ A previously cited <i>baraita</i> (2b) states that if one receives an animal from a gentile to care for and receives a portion of the offspring in exchange, Rabbi Yehuda holds that the Jew’s portion is sanctified with firstborn status. <b>And the Rabbis say</b> that <b>as long as the ownership of the gentile</b> is involved, i.e., he owns a portion of the firstborn animal, it does not have firstborn status. <b>Rabbi Yehoshua said: And both of them interpreted</b> the same <b>one verse</b> in accordance with their opinions. The verse states: “Sanctify to Me <b>all the firstborn,</b> whatever opens the womb, among the children of Israel” (Exodus 13:2).
+
+### Part 10
+<b>The Rabbis hold</b> that the words <b>“the firstborn,</b> whatever opens the womb, among the children of Israel” <b>indicate</b> that even when a Jew owns <b>part of the firstborn,</b> it is subject to the obligations of firstborn status. Therefore, <b>the Merciful One wrote: “All</b> the firstborn,” which teaches that it is not subject to the obligations of firstborn status <b>unless the entire</b> animal is owned by a Jew. <b>And Rabbi Yehuda holds</b> that the words <b>“the firstborn,</b> whatever opens the womb, among the children of Israel” <b>indicate</b> that only if <b>the entire firstborn</b> is owned by a Jew would it be subject to the obligations of firstborn status. Therefore, <b>the Merciful One wrote</b> the word <b>“all”</b> to demonstrate <b>that even</b> if <b>any amount</b> of the animal belongs to a Jew, it has firstborn status.
+
+### Part 11
+<b>If you wish, say</b> instead <b>that everyone</b> agrees that the words <b>“the firstborn,</b> whatever opens the womb, among the children of Israel” <b>indicate</b> that if the <b>majority</b> of the animal belongs to the Jew, it is subject to the obligations of firstborn status. One <b>Sage,</b> i.e., the Rabbis, <b>holds</b> that the word <b>“all” indicates</b> that it <b>comes to fill</b> the Jewish portion of ownership, meaning that it has firstborn status only if the entire animal belongs to a Jew. <b>And</b> one <b>Sage,</b> i.e., Rabbi Yehuda, <b>holds</b> that the word “all” <b>comes to detract</b> from the necessary Jewish ownership, indicating that the animal has firstborn status even if it is partially owned by a Jew.
+
+### Part 12
+§ The Gemara asks: <b>And</b> according to the Rabbis, <b>how much should the gentile’s partnership</b> in the animal <b>be</b> in order for it <b>to be exempt from</b> being counted <b>a firstborn? Rav Huna says:</b> It is sufficient <b>even</b> if the gentile owns only <b>its ear. Rav Naḥman objects to this:</b> Let the animal have firstborn status, <b>and let</b> the priest <b>say to</b> the gentile: <b>Take your ear and go,</b> as a blemished firstborn animal belongs to the priesthood.
+
+### Part 13
+It <b>was stated</b> that the <i>amora’im</i> engaged in a dispute concerning this question: <b>Rav Ḥisda says</b> that if the gentile is a partner in <b>an item,</b> i.e., a part of the body, <b>that renders</b> the animal <b>a carcass,</b> meaning if that limb were removed the animal would die immediately, the animal is exempt from the obligations of firstborn status. <b>And Rava says</b> it is exempt if the gentile is a partner in <b>an item that</b> if removed <b>renders</b> the animal <b>a <i>tereifa</i>,</b> meaning the animal will die but not immediately.
+
+### Part 14
+The Gemara asks: <b>With regard to what</b> principle <b>do</b> they <b>disagree?</b> The Gemara answers that they disagree <b>about</b> whether <b>a <i>tereifa</i></b> can <b>live</b> for an extended period of time. <b>According to the one who says</b> that a gentile’s partnership in <b>an item that renders</b> the animal <b>a <i>tereifa</i></b> exempts him from the obligations of firstborn status, it is because <b>he holds</b> that <b>a <i>tereifa</i> cannot live,</b> and therefore the gentile owns an essential portion of the animal. <b>And according to the one who says</b> that the gentile must be a partner in <b>an item that renders</b> the animal <b>a carcass,</b> this is because he holds that it cannot live without this part, <b>but a <i>tereifa</i> can live</b> for an extended period of time without those missing limbs.
+
+### Part 15
+<b>The Sages said before Rav Pappa: That which Rav Huna</b> said, that even if the gentile’s share of the animal is only its ear it does not have firstborn status, <b>and</b> that which <b>Rav Ḥisda and Rava</b> said, that the animal does not have firstborn status only if the gentile is a partner in the primary limbs of the body on which its life is dependent, <b>do not disagree. This</b> ruling of Rav Huna is referring <b>to it,</b> i.e., the fetus, while <b>that</b> ruling of Rav Ḥisda and Rava is referring <b>to its mother.</b>
+
+### Part 16
+<b>Rav Pappa said to them: What is different</b> about the case of the fetus, where owning a portion of its ear exempts the Jew from the obligations of firstborn status? It is <b>because we require</b> the fulfillment of the verse <b>“all the firstborn,”</b> i.e., that all of it be owned by the Jew, <b>and</b> that <b>is not</b> the case. If so, with regard to <b>its mother as well we require</b> the fulfillment of the verse: <b>“From all your livestock you shall take the males”</b> (Exodus 34:19), which also indicates that all the livestock, including the mother, must belong to the Jew, <b>and</b> this <b>is not</b> the case. <b>Rather,</b> there <b>is no difference,</b> and they disagree both in the case of the fetus and in that of the mother.
+
+### Part 17
+<b>Mar bar Rav Ashi objects to this:</b> Why does gentile partnership in an essential limb of the fetus exempt the Jew from the obligations of firstborn status? In <b>what</b> way <b>is</b> this animal <b>different from non-viable newborns, which are sacred even though they are not viable? As the Master said</b> in reference to the verse: “Every <b>firstborn</b> that <b>emerges from [<i>sheger</i>] an animal”</b> (Exodus 13:12), any fetus <b>that dwells [<i>shegar</i>] inside an animal,</b> i.e., inside the mother’s womb, even one that is non-viable, is also sanctified as a firstborn.
+
+### Part 18
+The Gemara responds: <b>There,</b> in the case of non-viable newborns, <b>since there is no non-sacred</b> element <b>mixed in with them, we apply to the animal</b> the phrase <b>“all the firstborn.”</b> But <b>here,</b> in the case where a gentile owns a portion of the fetuses, <b>since a non-sacred</b> element <b>is mixed in with them, we do not apply to them</b> the phrase: <b>“all the firstborn.”</b>
+
+### Part 19
+The Gemara relates that one day <b>Rabbi Elazar did not enter the study hall.</b> Rabbi Elazar then <b>found Rabbi Asi,</b> and <b>said to him: What did the Sages say</b> in <b>the study hall?</b> Rabbi Asi <b>said to him:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

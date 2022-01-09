@@ -1,0 +1,57 @@
+
+### Part 1
+the <b>young men of the priesthood [<i>pirḥei khehunna</i>]?</b> Is there a distinction between these different terms? The Sages <b>say: Yes,</b> there is a distinction. <b>There,</b> with regard to the priests who keep watch in the Chamber of Avtinas and in the Chamber of the Spark, the mishna is referring to priests <b>who have not reached</b> the age at which they are eligible <b>to perform</b> the Temple <b>service,</b> and therefore the <i>tanna</i> <b>calls them young</b> priests. The older priests would not keep watch, as they preferred to perform the Temple service. <b>Here,</b> with regard to the priests who sleep in the Chamber of the Hearth in order to be ready to perform the morning rites, the mishna is referring to priests <b>who have reached</b> the age at which <b>they</b> are eligible <b>to perform</b> the Temple <b>service,</b> and consequently the <i>tanna</i> <b>calls them</b> the <b>young men</b> of the priesthood.
+
+### Part 2
+§ <b>We learned</b> in a mishna <b>elsewhere</b> (<i>Middot</i> 1:1): <b>The priests</b> would <b>keep watch in three places in the Temple</b> courtyard: <b>In the Chamber of Avtinas, and in the Chamber of the Spark, and in the Chamber of the Hearth.</b>
+
+### Part 3
+<b>And the Levites</b> would keep watch <b>in twenty-one places,</b> as follows: <b>Five upon</b> the <b>five gates of the Temple Mount; four upon</b> the <b>four corners of</b> the Temple Mount, <b>within</b> the wall surrounding the Temple Mount; <b>five upon</b> the <b>five gates of</b> the Temple <b>courtyard, and four upon</b> the <b>four corners of</b> the Temple courtyard <b>outside</b> the courtyard wall, surrounding the Temple courtyard. <b>One</b> watch is observed <b>in the Chamber of the Offering,</b> where animals that had been checked for blemishes were held in readiness for sacrifice; <b>one</b> watch is kept <b>in the Chamber of the Curtain,</b> where the Curtain separating the Sanctuary and the Holy of Holies was woven; <b>and</b> finally, <b>one</b> watch is kept <b>behind the Chamber of the Ark Cover,</b> in the area between the Holy of Holies and the western wall of the Temple Mount.
+
+### Part 4
+With regard to these twenty-one places where the Levites keep watch, the Gemara asks: <b>From where are these matters</b> derived? <b>Rav Yehuda of Sura said, and some say</b> that <b>it was taught in a <i>baraita</i>:</b> This is derived <b>as it is written</b> with regard to the Levites assigned by David to serve as gatekeepers upon the future construction of the Temple: <b>Eastward were six Levites, northward four Levites, southward four Levites, and for the <i>Asuppim</i> two and two. For the <i>Parbar</i> westward, four at the causeway, and two at the <i>Parbar</i></b> (see I Chronicles 26:17–18).
+
+### Part 5
+The Sages <b>say</b> that if these verses are the source for the twenty-one places in which the Levites keep watch, that is difficult, as <b>these</b> watches enumerated in the verse <b>are twenty-four</b> in total. <b>Abaye said: This</b> is what the verse <b>is saying: “For the <i>Asuppim</i></b> two,” and they are always only <b>two.</b> It is not uncommon for a verse to repeat a word for emphasis in this manner, especially at the end of a verse.
+
+### Part 6
+The Gemara objects: Even if two locations are removed from the list, according to the verse <b>there are still twenty-two</b> watches, rather than twenty-one. The Gemara explains: <b>That</b> watch, <b>which</b> was situated at the <b><i>Parbar</i>, was</b> composed of only <b>one</b> watchman, <b>and</b> as for <b>the other</b> Levite mentioned in the verse, <b>it was</b> merely to serve <b>as company that he went and sat with</b> the watchman, <b>due to</b> the fact <b>that</b> the <i>Parbar</i> <b>was situated on the outer</b> side and was isolated from the other watches.
+
+### Part 7
+The Gemara asks: <b>What</b> is the meaning of the term <b>“at the <i>Parbar</i> [<i>laParbar</i>]”</b> (I Chronicles 26:18)? <b>Rabba bar Rav Sheila said:</b> This term is a contraction of two Aramaic words, and it is <b>like one who says: Toward the outside [<i>kelapei bar</i>].</b>
+
+### Part 8
+The Gemara presents an alternative answer to the question with regard to the verse: <b>And if you wish, say</b> instead that <b>actually</b> there are <b>twenty-four</b> watches, and the verse may be interpreted literally <b>as it is written. Three of them</b> are the watches kept <b>by</b> the <b>priests, and</b> the remaining <b>twenty-one</b> are the watches kept <b>by</b> the <b>Levites.</b>
+
+### Part 9
+The Gemara asks: <b>But isn’t it written here</b> in the verse that all twenty-four watches are kept by the <b>Levites?</b> The Gemara answers: This interpretation is <b>in accordance with</b> the opinion of <b>Rabbi Yehoshua ben Levi, as Rabbi Yehoshua ben Levi said: In twenty-four places</b> in the Bible the <b>priests are called Levites, and this is one of them: “But the priests the Levites, the sons of Zadok,</b> that kept the charge of My Sanctuary when the children of Israel went astray from Me, they shall come near to Me to serve Me” (Ezekiel 44:15).
+
+### Part 10
+The mishna (<i>Middot</i> 1:1) teaches that <b>five</b> watches are kept <b>upon</b> the <b>five gates of the Temple Mount, and four</b> watches are kept <b>upon</b> the <b>four corners of</b> the Temple Mount <b>within</b> the Temple Mount wall. <b>Five</b> watches are kept <b>upon</b> the <b>five gates of</b> the Temple <b>courtyard, and four</b> are kept <b>upon</b> the <b>four corners of</b> the Temple courtyard <b>outside</b> the courtyard wall, on the Temple Mount. The Gemara asks: <b>What is different</b> with regard to <b>the Temple Mount that we perform</b> the watch <b>within</b> the walls, <b>and what is different</b> with regard to the Temple <b>courtyard that we perform</b> the watch <b>outside</b> its walls?
+
+### Part 11
+The Sages <b>say:</b> With regard to the watches on <b>the Temple Mount, if</b> the watchman <b>tires and wants</b> to <b>sit</b> down, <b>he may sit</b> down, as it is permitted to sit on the Temple Mount. Therefore, <b>we say</b> that the watch is kept <b>within</b> the Temple Mount. By contrast, if a watch is observed in the Temple <b>courtyard,</b> even <b>if</b> the watchman <b>tires and wants to sit</b> down, <b>he may not sit</b> down, <b>as the Master said: Sitting in the</b> Temple <b>courtyard</b> is <b>permitted only for kings of the house of David.</b> Therefore, <b>we say</b> that the watch is kept <b>outside</b> the walls of the Temple courtyard, so that the watchman may sit down if he wishes.
+
+### Part 12
+<b>The Master said</b> above that <b>five</b> watches are kept <b>upon</b> the <b>five gates of</b> the Temple <b>courtyard.</b> The Gemara asks: <b>But was it</b> only <b>five gates that were</b> constructed <b>in the</b> walls of <b>the</b> Temple <b>courtyard? And</b> the Gemara <b>raises a contradiction</b> from a mishna (<i>Middot</i> 1:4): <b>There were seven gates in the</b> Temple <b>courtyard: Three in the north, and three in the south, and one in the east.</b>
+
+### Part 13
+<b>Abaye said:</b> Although there were seven gates, <b>two of them,</b> the gate to the Chamber of the Spark and the gate to the Chamber of the Hearth, <b>did not require a watch</b> of the Levites, as the priests kept watch there. <b>Rava said:</b> The number of gates <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: <b>There must be no fewer than thirteen treasurers and seven trustees</b> appointed over the Temple administration. <b>Rabbi Natan says: There must be no fewer than thirteen treasurers, corresponding to</b> the <b>thirteen gates. Remove</b> from the total of thirteen gates the <b>five</b> gates <b>of the Temple Mount,</b> and <b>there remain eight</b> gates <b>to the</b> Temple <b>courtyard. Evidently, there is a <i>tanna</i> who said</b> that <b>there were eight</b> gates, <b>and there is a <i>tanna</i> who said</b> that there were <b>seven</b> gates, <b>and there is</b> also <b>a <i>tanna</i> who said</b> that <b>there were five</b> gates.
+
+### Part 14
+§ The mishna (25b) teaches that the priests <b>would not sleep</b> dressed <b>in the sacred vestments;</b> rather, they would remove them and place them beneath their heads. The Gemara infers from here that <b>it is</b> only <b>sleep that is not</b> permitted while a priest is dressed in the sacred vestments, lest he pass wind during his sleep. <b>But</b> with regard to wearing such vestments while the priests are awake and engaged in various activities, e.g., <b>walking, they may walk</b> about dressed in the vestments, even when they do not need to wear them for the Temple service. <b>You may</b> therefore <b>conclude from</b> the mishna that <b>it is permitted to derive benefit from priestly vestments.</b>
+
+### Part 15
+The Sages <b>say</b> that this inference is incorrect. <b>The same is true</b> of walking, <b>as even walking</b> while wearing the vestments <b>is not</b> permitted, <b>and</b> the reason <b>that</b> the <i>tanna</i> <b>teaches</b> specifically that the priests <b>would not sleep</b> dressed in the vestments is <b>due to</b> the fact <b>that</b> the <i>tanna</i> <b>wanted to teach the latter clause: Rather, they</b> would <b>remove</b> them <b>and fold</b> them, <b>and</b> then <b>they</b> would <b>place them beneath their heads.</b> Since the latter clause is referring specifically to sleeping, the <i>tanna</i> <b>teaches</b> in <b>the former clause as well</b> that the priests <b>would not sleep</b> dressed in the vestments.
+
+### Part 16
+The Gemara objects: <b>But</b> according to this interpretation, the mishna <b>itself is difficult,</b> as the mishna states: <b>And they</b> would <b>place</b> the priestly vestments <b>beneath their heads,</b> as a cushion. One may <b>conclude from</b> this statement that <b>it is permitted to derive benefit from priestly vestments.</b> The Gemara rejects this interpretation: <b>Say</b> that the mishna means that they would place the vestments <b>next to their heads,</b> not literally beneath them.
+
+### Part 17
+<b>Rav Pappa said:</b> One may <b>conclude from</b> this interpretation of the mishna that if one places <b>phylacteries by the side</b> of his head while he sleeps, <b>they are</b> in <b>a permitted</b> place. <b>And we are not concerned</b> that <b>perhaps he will roll over</b> in his sleep <b>and fall upon them,</b> which would degrade the phylacteries.
+
+### Part 18
+The Gemara comments: <b>So too, it is reasonable</b> to say <b>that</b> the mishna permits the vestments to be placed only <b>next to their heads. As, if you say</b> that the mishna permits the vestments to be placed literally <b>beneath their heads,</b> this is difficult. <b>Granted that it is permitted to derive benefit from them,</b> but one <b>could derive</b> that it is prohibited to sleep upon them <b>due to the prohibition of diverse kinds</b> of wool and linen. The priestly vestments contain both wool and linen, which is a prohibited mixture in every other context. The Torah specifically permits the priests to wear them while they are performing the Temple service, but this does not extend to using the vestments as a cushion while sleeping.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

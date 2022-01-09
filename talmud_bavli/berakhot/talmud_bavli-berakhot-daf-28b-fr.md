@@ -1,0 +1,75 @@
+
+### Partie 1
+Apres avoir mentionne jusqu'a quand la priere supplementaire peut etre recitee, la Guemara relate : <b>Rav Avya etait malade et n'est pas venu au cours de Rav Yosef le Chabbat. Lorsque</b> Rav Avya <b>se presenta le jour suivant, Abaye chercha a apaiser Rav Yosef,</b> et, par une serie de questions et de reponses, chercha a lui faire comprendre que le fait que Rav Avya n'ait pas assiste a la conference n'etait pas une manifestation de mepris envers Rav Yosef. <br>A cette fin, il lui a demande : <b>Pourquoi le Maitre n'a-t-il pas assiste a la conference de Chabbat ?</b> <br>Rav Avya <b>lui a repondu : Parce que mon cœur etait defaillant et que je n'ai pas pu</b> y assister. <br>Abaye <b>lui a dit : Pourquoi n'as-tu pas mange quelque chose et n'es-tu pas venu ? </b> <b>Rav Avya <b>lui a dit : </b> Est-ce que <b>le Maitre ne tient pas</b> conformement a <b>cette</b> declaration <b>de Rav Huna ? Comme l'a dit Rav Huna : Une personne ne peut rien gouter avant de reciter la priere supplementaire.</b> <b>Abaye <b>lui a dit : Mon Maitre aurait du reciter la priere additionnelle individuellement, manger quelque chose, et</b> ensuite <b>venir</b> a la conference. <br>Rav Avya <b>lui dit :</b> Est-ce que <b>mon Maitre ne tient pas</b> conformement a <b>cette</b> declaration <b>de Rabbi Yohanan : Une personne ne peut pas reciter sa</b> <b>priere individuelle avant la priere commune ? </b> <br>Abaye <b>lui a dit : </b> N'etait-il pas precise a propos de cette</b> <i>halakha</i>, <b>Rabbi Abba a dit : Ils ont enseigne</b> ceci <b>dans un cadre communautaire</b> ? <br>En d'autres termes, seul celui qui fait partie d'une congregation a l'interdiction de prier seul avant la priere de la congregation. Meme si Rav Avya s'est trompe, la raison pour laquelle il n'a pas assiste a la conference a ete clarifiee par cette discussion.
+
+### Partie 2
+<b>Et</b> la Guemara resume : <b>La <i>halakha</i> n'est ni en accord</b> avec la declaration du <b>Rav Huna ni en accord</b> avec la declaration du <b>Rabbi Yehoshua ben Levi.</b> La Gemara explique : Il n'est pas <b>conforme</b> a la declaration de <b>Rav Huna, comme nous l'avons dit</b> ci-dessus a propos de l'interdiction de manger avant la priere supplementaire. Elle n'est pas <b>en accord</b> avec la declaration de <b>Rabbi Yehoshua ben Levi, comme l'a dit Rabbi Yehoshua ben Levi : Une fois que le moment</b> de reciter <b>la priere de l'apres-midi est arrive, une personne ne peut rien gouter avant de reciter la priere de l'apres-midi.</b>
+
+### Partie 3
+<strong>MISHNA :</strong> En plus des <i>halakhot</i> relatives aux prieres fixes, la Gemara relate : <b>Rabbi Nehunya ben Hakana recitait une breve priere a son entree dans la salle d'etude et a sa sortie. Ils lui dirent : <b>La salle d'etude n'est pas un endroit dangereux qui justifierait une priere a l'entree et a la sortie, alors <b>qu'elle est la place pour cette priere ? Il leur a repondu : A mon entree, je prie pour qu'aucun malheur ne transpire</b> cause <b>par moi</b> dans la salle d'etude. <b>Et a ma sortie, je rends grace pour ma part.</b>
+
+### Partie 4
+<strong>GEMARA :</strong> <b>Les Sages ont enseigne</b> dans une <i>baraita</i> la formule complete de la priere de Rabbi Nehunya ben Hakana : <b>A son entree, que dit-il ? Que ce soit Votre volonte, Seigneur mon Dieu, qu'aucune mesaventure</b> dans la determination de la <i>halakha</i> <b>transpire</b> causee <b>par moi, et que je n'echoue dans aucune affaire de <i>halakha</i>, et que mes collegues,</b> qui s'engagent avec moi dans la clarification de la <i>halakha,</i> <b>se rejouissent en moi.</b> Il precise : <b>Et que je ne declarerai pas pur ce qui est impur, ni</b> declarer <b>impur ce qui est pur et que mes collegues ne failliront a aucune affaire de <i>halakha</i>, et que je me rejouirai en eux.</b>
+
+### Partie 5
+<b>A sa sortie, qu'a-t-il dit ? Je rends grace devant Toi, Seigneur mon Dieu, de ce que Tu as place mon sort parmi ceux qui sont assis dans la salle d'etude, et que Tu ne m'as pas donne ma part parmi ceux qui sont assis</b> oisivement <b>sur les</b> coins de rue. Je me leve tot, et ils se levent tot. Je me leve tot pour</b> poursuivre <b>des affaires de Torah, et ils se levent tot pour</b> poursuivre <b>des affaires frivoles. Je travaille dur et ils travaillent dur. Je peigne et recois une recompense, et ils peignent et ne recoivent pas de recompense. Je cours et ils courent. Je cours vers la vie du monde a venir et ils courent vers la fosse de la destruction.</b>
+
+### Partie 6
+Dans le meme ordre d'idees, la Guemara relate des histoires connexes avec des approches differentes. <b>Les Sages ont enseigne : Lorsque Rabbi Eliezer tomba malade, ses eleves entrerent pour lui rendre visite. Ils lui dirent : Enseigne-nous des chemins de vie,</b> des lignes directrices par lesquelles vivre, <b>et nous meriterons ainsi la vie du Monde-a-Venir.</b>
+
+### Partie 7
+<b>Il leur dit : Soyez vigilants dans l'honneur de vos homologues, et prevenez vos enfants de la logique</b> lors de l'etude de versets qui tendent a l'heresie (<i>ge</i><i>onim</i>), <b>et placez</b> vos enfants, tant qu'ils sont encore jeunes, <b>entre les genoux des erudits de la Torah, et lorsque vous priez, sachez devant Qui vous vous trouvez. Car</b> en faisant <b>cela, vous meriterez la vie du Monde-a-Venir.</b>
+
+### Partie 8
+Une histoire similaire est racontee a propos du mentor de Rabbi Eliezer, Rabban Yohanan ben Zakkai : Lorsque <b>Rabbi Yohanan ben Zakkai tomba malade, ses etudiants entrerent pour lui rendre visite. Lorsqu'il les a vus, il s'est mis a pleurer. Ses etudiants lui ont dit : Lampe d'Israel, le pilier droit, le puissant marteau,</b> l'homme dont l'œuvre de sa vie est le fondement de l'avenir du peuple juif, <b>pour quelle</b> raison <b>tu pleures ?</b> Avec une vie aussi complete que la tienne, qu'est-ce qui te contrarie ?
+
+### Partie 9
+<b>Il leur a dit :</b> Je pleure par crainte du jugement celeste, car le jugement du tribunal celeste n'a rien a voir avec le jugement de l'homme. <b>Si on me conduisait devant un roi de chair et de sang</b> dont la vie est temporelle, <b>qui est ici aujourd'hui et</b> mort <b>dans la tombe demain ; s'il est en colere contre moi, sa colere n'est pas eternelle</b> et, par consequent, son chatiment n'est pas eternel ; <b>s'il m'incarcere, son incarceration n'est pas une incarceration eternelle,</b> car je pourrais conserver l'espoir d'etre finalement libere. <b>S'il me tue, son meurtre n'est pas eternel,</b> car il y a une vie apres toute mort qu'il pourrait decreter. De plus, <b>Je suis capable de l'apaiser avec des mots et</b> meme de le <b>corrompre avec de l'argent,</b> et <b>malgre cela, je pleurerais</b> quand je me tiendrai devant le jugement royal. <b>Maintenant qu'ils me conduisent devant le Roi supreme des Rois, le Saint, Beni soit-Il, qui vit et dure pour toujours et tous les temps ; s'Il est en colere contre moi, Sa colere est eternelle ; s'Il m'incarcere, Son incarceration est une incarceration eternelle ; et s'Il me tue, Son meurtre est pour l'eternite. Je suis incapable de l'apaiser avec des mots et de le corrompre avec de l'argent. De plus, mais j'ai devant moi deux chemins, celui du jardin d'Eden et celui de la Gehenne, et je ne sais pas sur lequel ils me conduisent ; et ne vais-je pas pleurer ? </b>.
+
+### Partie 10
+Ses eleves <b>lui ont dit : Notre maitre, benis-nous. Il leur a repondu : Qu'il soit</b> Sa <b>volonte que la crainte du Ciel soit sur vous comme la crainte de la chair et du sang. Ses eleves</b> furent perplexes <b>et dirent : Jusqu'a ce point</b> et pas au-dela ? Ne faut-il pas craindre Dieu davantage ? <b>Il leur repondit : Serait-ce</b> qu'une personne atteigne ce niveau de crainte. <b>Sachez que lorsque quelqu'un commet une transgression, il se dit</b> : J'espere <b>que personne ne me verra.</b> Si l'on est aussi soucieux d'eviter la honte devant Dieu que devant les hommes, on ne pechera jamais.
+
+### Partie 11
+La Guemara relate que <b>au moment de sa mort,</b> immediatement avant, <b>il leur dit : Retirez les recipients</b> de la maison et portez-les a l'exterieur <b>en raison de l'impurete rituelle</b> qui sera communiquee par mon cadavre, qu'ils contracteraient autrement. <b>Et preparez une chaise pour Ezechias, le roi de Judee, qui vient</b> du monde superieur pour m'accompagner.
+
+### Partie 12
+<strong>MISHNA :</strong> La mishna cite un differend concernant l'obligation de reciter la priere de <i>Amida</i>, egalement connue sous le nom de <i>Shemoneh Esreh</i>, la priere des dix-huit benedictions, ou simplement sous le nom de <i>tefilla</i>, priere. <b>Rabban Gamliel dit : Chaque jour, une personne recite la</b> priere des <b>dix-huit benedictions. Rabbi Yehoshua dit :</b> Une courte priere suffit, et on ne recite qu'une version abregee</b> de la priere des <b>dix-huit benedictions. Rabbi Akiva dit</b> un avis intermediaire : <b>S'il a de l'aisance dans sa priere, il recite la</b> priere des <b>dix-huit benedictions, et sinon,</b> il n'a qu'a reciter <b>une version abregee</b> de la priere des <b>dix-huit benedictions.</b>
+
+### Partie 13
+<b>Rabbi Eliezer dit : Celui dont la priere est fixee, sa priere n'est pas une supplication</b> et est viciee. La Guemara precisera les implications halakhiques de ce defaut.
+
+### Partie 14
+<Rabbi Yehoshua dit : Celui qui</b> ne peut pas reciter une priere complete parce qu'il <b>marche dans un lieu de danger, recite une breve priere et dit : Rachete, Seigneur, Ton peuple, le reste d'Israel, a chaque transition [<i>parashat haibur</i>],</b> dont le sens sera discute dans la Guemara. <b>Que leurs besoins soient devant Toi. Beni sois-Tu, Seigneur, qui ecoute la priere.</b>
+
+### Partie 15
+Pendant la priere, il faut faire face a la direction du Saint Temple. <b>La personne qui etait montee sur un ane doit descendre de cheval et prier</b> calmement. <b>S'il n'est pas en mesure de descendre de cheval, il doit tourner son visage</b> vers la direction du Temple. <b>S'il ne peut pas tourner son visage,</b> il suffit qu'il <b>concentre son cœur a l'oppose du Saint des Saints.</b> De meme, <b>celui qui voyageait dans un bateau ou sur un radeau [<i>asda</i>]</b> et qui ne peut pas se tourner et faire face en direction de Jerusalem, <b>doit concentrer son cœur a l'oppose du Saint des Saints.</b>
+
+### Partie 16
+<strong>GEMARA :</strong> Puisque la mishna traite de l'obligation fondamentale de reciter la priere de <i>Amida</i>, la Gemara cherche a resoudre des problemes fondamentaux relatifs a cette priere. <b>Correspondant a quoi ont ete instituees ces dix-huit</b> benedictions ? Lorsque le <i>Shemoneh Esreh</i> a ete institue par les Sages, sur quoi ont-ils base le nombre de benedictions ?
+
+### Partie 17
+<b>Rabbi Hillel, fils de Rabbi Shmuel bar Nahmani, a dit : Correspondant aux dix-huit mentions du nom de Dieu</b> que le roi <b>David a dit</b> dans le psaume : <b>"Donnez au Seigneur, o vous, fils de la force"</b> (Psaumes 29). <b>Rav Yosef a dit : Correspondant aux dix-huit mentions du nom de Dieu dans <i>Shema</i>. Rabbi Tanhum a dit</b> que <b>Rabbi Yehoshua ben Levi a dit : Correspondant aux dix-huit vertebres de la colonne vertebrale</b> sous les cotes.
+
+### Partie 18
+Puisque l'opinion de Rabbi Yehoshua ben Levi fonde la priere de <i>Amida</i> sur les vertebres de la colonne vertebrale, la Guemara cite une autre de ses declarations qui relie les deux : <b>Rabbi Tanhum dit</b> que <b>Rabbi Yehoshua ben Levi a dit :</b> Dans ces benedictions ou l'on doit s'incliner, <b>celui qui prie doit s'incliner jusqu'a ce que toutes les vertebres de la colonne vertebrale depassent.</b>
+
+### Partie 19
+Etablissant un indicateur different pour determiner quand il s'est suffisamment incline, <b>Ulla dit :</b> Jusqu'a ce que <b>il puisse voir une petite piece de monnaie [<i>issar</i>],</b> sur le sol devant lui <b>en face de son cœur</b> (Rav Hai Gaon). <b>Rabbi Hanina a dit : </b> Il y a place pour l'indulgence ; <b>des qu'il avance sa tete</b>, <b>il n'a pas besoin</b> de s'incliner davantage. <b>Rava dit : Mais cela</b> ne s'applique que si <b>il fait des efforts</b> en le faisant, <b>et qu'il apparait comme quelqu'un qui s'incline.</b> Cependant, s'il en est capable, il doit s'incliner davantage.
+
+### Partie 20
+Jusqu'a present, la priere des dix-huit benedictions a ete discutee comme si elle etait axiomatique. La Guemara s'interroge : <b>Ces dix-huit</b> benedictions sont-elles des benedictions ? <b>Elles sont dix-neuf.</b>
+
+### Partie 21
+<b>Rabbi Levi a dit : La benediction des heretiques,</b> qui maudit les delateurs, <b>a ete instituee a Yavne</b> et n'est pas incluse dans le decompte original des benedictions. Neanmoins, comme le nombre de benedictions correspond a diverses allusions, la Guemara tente d'apporter une clarification : <b>Correspondant a quoi a ete</b> cette dix-neuvieme benediction <b>instituee ?</b>
+
+### Partie 22
+<b>Rabbi Levi a dit : Selon Rabbi Hillel, fils de Rabbi Shmuel bar Nahmani,</b> qui a dit que les dix-huit benedictions correspondent aux dix-huit mentions du nom de Dieu que le roi David a dit dans le psaume, la dix-neuvieme benediction <b>correspond a</b> une reference a Dieu dans ce psaume, ou un autre nom que le tetragramme a ete utilise : <b>"Le Dieu de gloire tonne" (</b>Psaumes 29:3). <b>Selon le Rav Yosef,</b> qui a dit que les dix-huit benedictions correspondent aux dix-huit mentions du nom de Dieu dans <i>Shema</i>, la benediction supplementaire <b>correspond</b> au mot <b>un qui se trouve dans <i>Shema</i>.</b> Bien qu'il ne s'agisse pas du tetragramme, il exprime l'essence de la foi en Dieu. <b>Selon</b> ce que <b>Rabbi Tanhum</b> a dit que <b>Rabbi Yehoshua ben Levi,</b> les dix-huit benedictions correspondent aux dix-huit vertebres de la colonne vertebrale, la benediction supplementaire <b>correspond a la petite vertebre qui se trouve</b> au bas <b>de la colonne vertebrale.</b>
+
+### Partie 23
+A la lumiere de la mention precedente de la benediction des heretiques, la Guemara explique comment cette benediction a ete instituee : <b>Les Sages ont enseigne : Shimon HaPakuli a arrange</b> les <b>dix-huit benedictions,</b> deja existantes pendant la periode de la Grande Assemblee, <b>devant Rabban Gamliel,</b> le <i>Nasi</i> du Sanhedrin, <b>en ordre a Yavne.</b> En raison des circonstances qui prevalaient, il etait necessaire d'instituer une nouvelle benediction dirigee contre les heretiques. <b>Rabban Gamliel dit aux Sages : Y a-t-il une personne qui sache instituer la benediction des heretiques,</b> une benediction dirigee contre les sadduceens ? <b>Shmuel HaKatan,</b> qui etait l'un des hommes les plus pieux de cette generation, <b>se leva et l'institua.</b>
+
+### Partie 24
+La Gemara raconte : <b>L'annee suivante,</b> lorsque Shmuel HaKatan servit comme chef de la priere, <b>il oublia</b> cette benediction,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Part 1
+<b>Rabbi Eliezer ben Ya’akov says</b> that <b><i>she’era</i></b> and <b><i>kesuta</i></b> should be interpreted as follows: <b>In accordance with her flesh [<i>she’era</i>],</b> i.e., her age, <b>give her clothing [<i>kesuta</i>].</b> This means <b>that he should not give</b> the garments <b>of a young girl to an elderly woman, nor those of an elderly woman to a young girl.</b> Similarly, <b><i>kesuta</i> and <i>onata</i></b> are linked: <b>In accordance with the time</b> of year <b>[<i>onata</i>], give her clothing [<i>kesuta</i>],</b> meaning <b>that he should not give new,</b> heavy clothes <b>in the summer, nor worn-out</b> garments <b>in the rainy season,</b> i.e., the winter, when she requires heavier, warmer clothes. The entire phrase, therefore, refers only to a husband’s obligation to provide clothing for his wife.
+
+### Part 2
+<b>Rav Yosef taught</b> the following <i>baraita</i>: <b>“<i>She’era</i>,” this</b> is referring to <b>closeness of flesh</b> during intercourse, which teaches <b>that he should not treat her in the manner of Persians, who have conjugal relations in their clothes.</b> The Gemara comments: This <i>baraita</i> <b>supports</b> the opinion of <b>Rav Huna, as Rav Huna said:</b> With regard to <b>one who says: I do not want</b> to have intercourse with my wife <b>unless I am in my clothes and she is in her clothes, he must divorce</b> his wife <b>and give</b> her the payment for her <b>marriage contract.</b> This is in keeping with the opinion of the <i>tanna</i> of the <i>baraita</i> that the Torah mandates the intimacy of flesh during sexual relations.
+
+### Part 3
+§ The mishna teaches that <b>Rabbi Yehuda says: Even the poorest</b> man <b>of the Jewish people</b> may not provide fewer than two flutes and a lamenting woman for his wife’s funeral. The Gemara infers: This proves <b>by inference that the first,</b> anonymous <b><i>tanna</i></b> cited in the mishna <b>holds</b> that <b>these</b> are <b>not</b> part of a husband’s obligations. The Gemara asks: <b>What are the circumstances? If</b> this <b>is</b> the <b>common</b> custom in <b>her</b> family at funerals, <b>what is the reason for</b> the opinion of <b>the first <i>tanna</i> who said</b> that he does <b>not</b> have to do so? If he neglected to provide these items he would be treating her with disrespect. <b>And if</b> this <b>is not</b> the <b>common</b> custom in <b>her</b> family, <b>what is the reason for</b> the opinion of <b>Rabbi Yehuda?</b>
+
+### Part 4
+The Gemara answers: <b>No,</b> it is <b>necessary</b> to state their dispute in a case <b>where</b> it is the <b>common</b> custom for <b>his</b> family according to its social status, <b>but</b> it is <b>not common</b> for <b>her</b> family according to its social status. <b>The first <i>tanna</i> holds: When we say</b> that a woman who marries a man <b>ascends with him,</b> i.e., she must be treated as equal in status to her husband if his social status is higher than hers, <b>and does not descend with him</b> if he is from a lower social status, <b>this applies only</b> when they are <b>alive, but after death</b> the Sages did <b>not</b> enforce this rule.
+
+### Part 5
+<b>And Rabbi Yehuda maintains: Even after death</b> she must be treated in accordance with his status, which means that if those in his family are mourned with flutes and lamenting women, he must provide the same for her funeral. <b>Rav Ḥisda said</b> that <b>Mar Ukva said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yehuda.</b>
+
+### Part 6
+Apropos this ruling, the Gemara cites another statement that <b>Rav Ḥisda said</b> that <b>Mar Ukva said:</b> With regard to <b>one who became insane,</b> the <b>court enters his property and feeds and provides a livelihood for his wife, his sons, and his daughters, and</b> it also gives <b>something else,</b> as will be explained. <b>Ravina said to Rav Ashi:</b> In <b>what</b> way <b>is</b> this case <b>different from that which is taught</b> in a <i>baraita</i>: In the case of <b>one who went overseas and his wife claims sustenance,</b> the <b>court descends to his property and feeds and provides a livelihood for his wife, but not</b> for <b>his sons and daughters and</b> does <b>not</b> give <b>something else.</b> If a father is not obligated to sustain his children in his absence, what is different about a situation where he is mad?
+
+### Part 7
+Rav Ashi <b>said to</b> Ravina: <b>Is there no difference for you between</b> a man who <b>leaves</b> his responsibilities <b>knowingly and one who leaves</b> them <b>unknowingly?</b> A father who lost his sanity did not do so by his own choice, and therefore it can be assumed that he would want to provide for his children from his possessions, despite the fact that he is not obligated to do so. By contrast, if he went overseas he freely decided to depart, and one would think that he would leave enough for his sons and daughters. If he failed to do so, he has demonstrated that he does not want to provide for them.
+
+### Part 8
+The Gemara asks: <b>What is</b> this <b>something else</b> mentioned in the <i>baraita</i>? <b>Rav Ḥisda said: This is</b> a wife’s <b>ornaments,</b> to which she is entitled in addition to her sustenance. <b>Rav Yosef said:</b> It is money for <b>charity.</b> The Gemara comments: According to <b>the one who says</b> that the court does not pay for a woman’s <b>ornaments</b> from her husband’s property if he has gone overseas, <b>all the more so</b> he maintains that the husband’s property is not taken for <b>charity.</b> Conversely, <b>the one who says</b> that the court does not give money for <b>charity</b> holds that this applies only to charity, <b>but it does give her ornaments,</b> as it is assumed <b>that it is not satisfactory for him</b> that his wife <b>be demeaned</b> by a lack of jewelry.
+
+### Part 9
+<b>Rav Ḥiyya bar Avin said</b> that <b>Rav Huna said:</b> In the case of <b>one who went overseas and his wife died,</b> the <b>court enters his property and buries her in accordance with his dignity.</b> The Gemara asks: Does the court act <b>in accordance with his dignity and not in accordance with her dignity?</b> What if she came from a more dignified family than her husband?
+
+### Part 10
+The Gemara answers: <b>Say</b> that Rav Ḥiyya bar Avin meant: <b>Even in accordance with his dignity,</b> i.e., if his family was more distinguished than hers, he must bury her in accordance with the dignity of his family. The Gemara adds: <b>This</b> comes to <b>teach us</b> that <b>she ascends with him</b> to his social status <b>and does not descend with him, and</b> this principle applies <b>even after</b> her <b>death,</b> in accordance with Rabbi Yehuda’s opinion in the mishna.
+
+### Part 11
+<b>Rav Mattana said:</b> In the case of <b>one who says</b> that <b>if</b> his wife <b>dies,</b> they should <b>not bury her</b> using funds <b>from his property,</b> the court <b>listens to him.</b> The Gemara asks: <b>What is different</b> about the case <b>when</b> he <b>says</b> this command that induces the court to comply with his wishes? It is due to the fact <b>that the property has come before the orphans</b> as an inheritance, while the obligation to bury her is not incumbent upon them but is a duty of the inheritors of her marriage contract. However, <b>even if he did not state</b> the above preference, <b>the property is cast before the orphans</b> and it belongs to them. What does it matter whether or not the husband issued a command to this effect?
+
+### Part 12
+<b>Rather,</b> the Gemara amends Rav Mattana’s statement: With regard to <b>one who says</b> that <b>if he</b> himself <b>dies,</b> they should <b>not bury him</b> using funds <b>from his property, one does not listen to him,</b> but the court spends his money without resorting to charity. The reason for this is that it is <b>not in his power to enrich his sons</b> by saving them this expense <b>and to cast himself</b> as a burden <b>on the community.</b>
+
+### Part 13
+<strong>MISHNA:</strong> Even after she is betrothed, a daughter <b>is always under her father’s authority until she enters</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

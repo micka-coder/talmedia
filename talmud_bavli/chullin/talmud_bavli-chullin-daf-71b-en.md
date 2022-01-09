@@ -1,0 +1,45 @@
+
+### Part 1
+Then with regard to <b>a person, who does shield</b> the <b>impurity</b> of a piece of a corpse <b>contained within him from imparting impurity</b> to other items in the same tent, as the Gemara derived above, <b>is it not logical that he shields a pure</b> item <b>contained within him from being rendered impure?</b>
+
+### Part 2
+The Gemara challenges the inference: <b>What</b> is notable <b>about an earthenware vessel?</b> It is notable <b>in that it cannot become impure through</b> a source of impurity coming in contact with <b>its exterior. Can you say,</b> then, that it is comparable <b>to a person, who can become impure through</b> a source of impurity coming in contact with <b>his exterior?</b> Since here the <i>halakhot</i> concerning impurity of a person are more stringent than those concerning an earthenware vessel, one cannot apply to a person a leniency with regard to an earthenware vessel.
+
+### Part 3
+The Gemara responds: <b>Is that to say we are speaking of</b> rendering an item impure through a source of impurity coming in contact with <b>its exterior? We are</b> in fact <b>speaking of</b> where the impurity comes in contact with <b>its interior.</b> For such cases, it is reasonable to compare the case of a person with an earthenware vessel.
+
+### Part 4
+The Gemara adds: <b>On the contrary,</b> the contraction of impurity by <b>an earthenware vessel is more stringent</b> than that of a person, <b>as</b> it <b>becomes impure through</b> the presence of a source of impurity in <b>its airspace,</b> even if the source does not touch the vessel itself. By contrast, a person is rendered impure from a source of impurity in his airspace, e.g., in his mouth, only if it actually touches him, and the <i>a fortiori</i> inference remains valid.
+
+### Part 5
+The Gemara asks: <b>We found</b> a source for the <i>halakha</i> that an impure item <b>encapsulated</b> in a body that entered it <b>from above,</b> i.e., through the mouth, does not impart impurity. <b>From where do we</b> derive that an impure item <b>encapsulated</b> in a body that entered it <b>from below,</b> i.e., through the rectum, also does not impart impurity? The Gemara answers: It is derived through <b>an <i>a fortiori</i></b> inference: <b>And if,</b> when the impure item enters <b>from above,</b> through the mouth, <b>which</b> is a place that <b>does not digest</b> the food, the body nevertheless <b>shields</b> the impure item from imparting impurity, then <b>with regard to</b> a case where the impure item enters <b>from below, which</b> is a place that <b>does digest</b> food, <b>is it not logical that</b> the body should <b>shield</b> it from imparting impurity?
+
+### Part 6
+The Gemara challenges the basis of the inference: <b>Isn’t digestion performed below only by means of</b> the chewing and digestive functions of the body <b>above?</b> The Gemara explains: <b>Even so,</b> the <b>digestion</b> performed <b>below is greater</b> than that performed above.
+
+### Part 7
+The Gemara asks: <b>We found</b> a source for the <i>halakha</i> that an impure item <b>encapsulated</b> in the body <b>of a person</b> does not impart impurity; <b>from where do we</b> derive that an impure item <b>encapsulated</b> in the body <b>of an animal</b> does not impart impurity? The Gemara answers: It is derived through <b>an <i>a fortiori</i></b> inference: <b>If</b> the body of <b>a person, who can impart impurity</b> even <b>while he is</b> still <b>alive,</b> e.g., if he is a leper or a <i>zav</i>, nevertheless <b>shields</b> the impure item <b>encapsulated</b> inside him from imparting impurity, then with regard to <b>an animal, which does not impart impurity while it is alive, is it not logical that it should shield</b> an impure item <b>encapsulated</b> inside it from imparting impurity?
+
+### Part 8
+The Gemara challenges the inference: <b>What</b> is notable <b>about</b> the impurity of <b>a person?</b> It is notable <b>in that</b> if he entered a leprous house, in order for his garment to be rendered impure <b>he needs to remain in</b> the <b>leprous house</b> for a minimal period of time (see Leviticus 14:33–53). <b>Can you say,</b> then, that it is comparable <b>to an animal, which does not need to remain in a leprous house</b> for a minimal period of time? Rather, any utensils placed upon it are rendered impure immediately upon its entry. Since here the <i>halakhot</i> concerning impurity of an animal are more stringent than those concerning a person, one cannot necessarily apply to an animal a leniency with regard to a person.
+
+### Part 9
+The Gemara responds: When it is stated about <b>an animal that it does not need to remain in a leprous house</b> for a minimal period of time, <b>with regard to what <i>halakha</i></b> was that said? A living animal itself cannot be impure. Perforce, the statement is referring <b>to utensils that are</b> placed <b>upon its back,</b> and they are rendered impure immediately upon entry. But in this regard there is no difference between animals and people: <b>A person as well does not need</b> to remain in the leprous house for a minimal period of time in order to render impure any utensils placed on his back. Rather, they are rendered impure immediately upon entry.
+
+### Part 10
+This is <b>as we learned</b> in a mishna (<i>Nega’im</i> 13:9): With regard to <b>one who enters a leprous house with his clothes</b> resting <b>on his shoulders</b> but who is not wearing them in the normal manner, <b>and his sandals and his rings</b> are <b>in his hands,</b> both <b>he and they,</b> the clothes, sandals, and rings, are rendered <b>ritually impure immediately.</b> If <b>he was dressed in his clothes, and his sandals</b> were <b>on his feet and his rings</b> were <b>on his fingers, he</b> is rendered <b>impure immediately</b> upon entering the house, <b>but they,</b> the clothes, sandals, and rings, remain <b>pure until he remains</b> in the house <b>for</b> the time it takes <b>to eat a half-loaf</b> of bread. This calculation is made with <b>wheat bread and not</b> with <b>barley bread,</b> which takes more time to eat than wheat bread. In addition, the calculation is made with regard to one who is <b>reclining, and eating</b> the bread together <b>with a relish</b> usually consumed with bread, which hastens the eating.
+
+### Part 11
+§ Rabba stated above that an encapsulated impure item cannot impart impurity and that an item that is ritually pure that is encapsulated within another body cannot be rendered impure. <b>Rava said:</b> Why is this statement necessary? <b>We learn both</b> <i>halakhot</i> in a mishna: <b>We learn</b> about <b>an encapsulated impure</b> item, and <b>we learn</b> about <b>an encapsulated pure</b> item.
+
+### Part 12
+Rava elaborates: With regard to <b>an encapsulated impure</b> item, the <i>halakha</i> is <b>as we learned</b> (<i>Mikvaot</i> 10:8): If someone <b>swallowed a ring</b> that was <b>impure</b> due to having been in contact with a corpse, he is thereby rendered impure. To render himself pure <b>he immerses and</b> then <b>he may partake of his <i>teruma</i>,</b> despite the fact that the impure ring is still inside him. The reason this is permitted is that since the ring in encapsulated inside the person’s body it cannot impart impurity. If <b>he vomited</b> out this ring it remains <b>impure,</b> as it was not purified by his immersion, <b>and</b> therefore <b>it renders him impure</b> upon its exit from his body.
+
+### Part 13
+Likewise, <b>we learn</b> the <i>halakha</i> that <b>an encapsulated pure</b> item cannot be rendered impure, <b>as we learn</b> in the same mishna (<i>Mikvaot</i> 10:8): If one <b>swallowed a ritually pure ring and</b> then <b>entered a tent containing a corpse,</b> thereby contracting impurity, <b>and</b> then in order to render him pure someone <b>sprinkled</b> upon him the water that is mixed with the ashes of the red heifer, once on the third day <b>and again</b> on the seventh day as required, <b>and</b> then <b>he immersed,</b> thereby completing the purification process; <b>and</b> then <b>he vomited</b> out the ring, the ring <b>is</b> pure <b>as it</b> always <b>was,</b> i.e., it was not rendered impure from the corpse.
+
+### Part 14
+The Gemara answers: The cases in the mishna concern the possibility of imparting impurity from the ring to the body within which it is contained and vice versa. But <b>when Rabba was speaking</b> he was referring to imparting impurity from one item to another where both are contained together inside a body, <b>such as where</b> a person <b>swallowed two rings, one impure and one pure,</b> and they came in direct contact with one another. Rabba taught that even in this case the <b>impure</b> ring <b>does not render the pure</b> ring <b>impure.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

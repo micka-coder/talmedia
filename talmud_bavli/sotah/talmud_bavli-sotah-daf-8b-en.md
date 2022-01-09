@@ -1,0 +1,57 @@
+
+### Part 1
+The contradiction between one ruling <b>of the Rabbis and</b> the other ruling <b>of the Rabbis</b> is <b>not difficult as well. Here,</b> with regard to a <i>sota</i>, <b>what is the reason</b> that her hair and body are uncovered? <b>Because</b> of what is stated in the verse, that other women should be warned: “Thus will I cause lewdness to cease out of the land, <b>that all women may be chastened</b> not to do after your lewdness” (Ezekiel 23:48). <b>There,</b> with regard to stoning, <b>you have no greater chastening than</b> seeing <b>this</b> stoning itself.
+
+### Part 2
+<b>And if you would say that two</b> forms of chastening, both stoning and humiliation, <b>should be done with her, Rav Naḥman said</b> that <b>Rabba bar Avuh said:</b> The <b>verse states: “You shall love your neighbor as yourself”</b> (Leviticus 19:18), teaching that even with regard to a condemned prisoner, <b>select a good,</b> i.e., a compassionate, <b>death for him.</b> Therefore, when putting a woman to death by stoning, she should not be humiliated in the process.
+
+### Part 3
+The Gemara suggests: <b>Let us say that</b> the statement <b>of Rav Naḥman is</b> a dispute between <b><i>tanna’im</i>,</b> and according to Rabbi Yehuda there is no mitzva to select a compassionate death. The Gemara refutes this: <b>No,</b> it may be <b>that everyone agrees with</b> the opinion of <b>Rav Naḥman, and here they disagree about this:</b> One <b>Sage,</b> i.e., the Rabbis, <b>holds:</b> Minimizing <b>one’s degradation is preferable to him than</b> minimizing <b>his physical pain.</b> Therefore, the Rabbis view the more compassionate death as one without degradation, even if wearing clothes will increase the pain of the one being executed, as the clothes will absorb the blow and prolong death. <b>And</b> one <b>Sage,</b> Rabbi Yehuda, <b>holds that</b> minimizing <b>physical pain is preferable to a person than</b> minimizing <b>his degradation,</b> and therefore the one being executed prefers to be stoned unclothed, without any chance of the clothing prolonging the death, although this adds to the degradation.
+
+### Part 4
+§ The mishna teaches: If <b>she was dressed in white</b> garments, he would cover her with black garments. A Sage <b>taught: If black</b> garments <b>are becoming to her,</b> then <b>she is covered in unsightly garments.</b>
+
+### Part 5
+The mishna teaches: If <b>she was wearing gold adornments</b> or other jewelry, they are removed from her. The Gemara asks: <b>Isn’t</b> this <b>obvious? Now</b> that the priest <b>renders her unattractive</b> by uncovering her and dressing her in unsightly garments, <b>is it necessary</b> to teach that they remove <b>these</b> adornments from her? The Gemara answers: <b>Lest you say</b> that <b>with these</b> adornments on her, <b>she has more degradation, as people say</b> in a known aphorism: <b>Undressed, naked, and wearing shoes.</b> This means that a naked person who wears shoes emphasizes the fact that he is naked. Perhaps one would think that by a <i>sota</i> wearing jewelry, her nakedness is emphasized and her degradation is amplified. Therefore, the mishna <b>teaches us</b> that this is not so.
+
+### Part 6
+The mishna continues: <b>And afterward</b> the priest <b>would bring</b> an Egyptian <b>rope,</b> and he would tie it above her breasts. <b>Rabbi Abba raised a dilemma before Rav Huna: What is</b> the <i>halakha</i> as to whether the lack of <b>an Egyptian rope will preclude</b> the performance of the rite <b>with regard to a <i>sota</i>?</b> Does any means of tying suffice? Perhaps the primary function of the rope <b>is so that her clothes will not fall off her, and</b> therefore even <b>a small ribbon [<i>tziltzul</i>] would also suffice. Or, perhaps</b> the rope is used <b>because</b> of what <b>the Master said: She girded</b> herself <b>with</b> a comely <b>ribbon</b> when she committed her transgression, and <b>therefore the priest brings</b> specifically <b>an Egyptian rope,</b> which is coarse, <b>and ties it above her breasts.</b> If that is the case, then the Egyptian rope should be <b>indispensable.</b>
+
+### Part 7
+Rav Huna <b>said to him: You learned</b> the answer to this dilemma in a <i>baraita</i> that teaches: <b>And afterward</b> the priest <b>would bring an Egyptian rope</b> and he would tie it above her breasts, <b>so that her clothes would not fall off her.</b> The <i>baraita</i> states that the use of an Egyptian rope is primarily for holding up her clothing, and therefore use of specifically Egyptian rope is not essential.
+
+### Part 8
+§ The mishna teaches: <b>And anyone who desires to watch her may watch,</b> except for her slaves and maidservants, who are not permitted to watch because her heart is emboldened by them. And all of the women are permitted to watch her. The Gemara comments: <b>This</b> matter <b>is itself difficult,</b> as there is an internal contradiction in the mishna. First <b>you say: And anyone who desires to watch her may watch. Apparently,</b> there <b>is no difference</b> whether the onlookers are <b>men and</b> there <b>is no difference</b> whether they are <b>women;</b> all are permitted to observe the rite. <b>And then</b> the mishna <b>teaches: And all of the women are permitted to watch her,</b> which indicates <b>women, yes,</b> they may watch her, but <b>men, no,</b> they may not.
+
+### Part 9
+<b>Abaye said: Interpret</b> the first statement, which permits all people to observe the <i>sota</i>, as pertaining <b>to women,</b> but men may not be onlookers. <b>Rava said to him: But</b> it <b>teaches</b> in that first statement that <b>anyone who desires to watch her may watch,</b> and one cannot limit this to women.
+
+### Part 10
+<b>Rather, Rava said: Anyone who desires to watch her may watch,</b> there <b>is no difference</b> whether the onlookers are <b>men</b> and there <b>is no difference</b> whether they are <b>women. And</b> the next clause of the mishna teaches that <b>women are obligated to watch her, as is stated:</b> “Thus will I cause lewdness to cease out of the land, <b>that all women may be chastened not to do after your lewdness”</b> (Ezekiel 23:48).
+
+### Part 11
+<strong>MISHNA:</strong> The mishna teaches lessons that can be derived from the actions and treatment of a <i>sota</i>. <b>With the measure that a person measures, he is measured with it.</b> For example, <b>she,</b> the <i>sota</i>, <b>adorned herself to</b> violate <b>a transgression, the Omnipresent</b> therefore decreed that <b>she</b> be <b>rendered unattractive; she exposed herself for</b> the purpose of violating <b>a transgression,</b> as she stood in places where she would be noticed by potential adulterers, so <b>the Omnipresent</b> therefore decreed that <b>her</b> body be <b>exposed</b> publicly; <b>she began her transgression with</b> her <b>thigh and afterward with</b> her <b>stomach, therefore the thigh is smitten first and then the stomach, and the rest of all</b> her <b>body</b> does <b>not escape</b> punishment.
+
+### Part 12
+<strong>GEMARA:</strong> <b>Rav Yosef says: Although the measure</b> with regard to court-imposed capital punishment <b>has ceased,</b> as there is no court today empowered to adjudicate and apply corporal punishment, punishment that is suitable to be applied <b>with a measure</b> by God <b>has not ceased,</b> as a person is punished by Heaven in accordance with his sin.
+
+### Part 13
+<b>As Rav Yosef says, and Rabbi Ḥiyya similarly teaches: From the day that the Temple was destroyed, although the Sanhedrin ceased,</b> the <b>four</b> types of court-imposed <b>capital punishment have not ceased.</b> The Gemara asks: <b>But they have ceased;</b> court-imposed capital punishment is no longer given. <b>Rather,</b> the intention is: <b>The law of</b> the <b>four</b> types of court-imposed <b>capital punishment has not ceased.</b>
+
+### Part 14
+The Gemara explains: How so? <b>One who is liable</b> to be executed by <b>stoning either falls from a roof or an animal mauls him</b> and breaks his bones. This death is similar to the experience of stoning, in which the one liable to be executed is pushed from a platform and his bones break from the impact of the fall. <b>One who is liable</b> to be executed by <b>burning either falls into a fire</b> and is burned <b>or a snake bites him,</b> as a snakebite causes a burning sensation. <b>One who is liable to</b> be executed by <b>slaying</b> of the sword <b>either is turned over to the authorities</b> and they execute him with a sword, <b>or robbers come upon him</b> and murder him. <b>One who is liable</b> to be executed by <b>strangling either drowns in a river</b> and is choked by the water <b>or dies of diphtheria [<i>seronekhi</i>],</b> which causes his throat to become clogged, and he dies.
+
+### Part 15
+<b>It is taught</b> in a baraita in the <i>Tosefta</i> (3:1–5) that <b>Rabbi</b> Yehuda HaNasi <b>would say: From where</b> is it derived <b>that with the measure that a person measures, he is measured with it? As it is stated: “In full measure [<i>besase’a</i>], when you send her away, you contend with her”</b> (Isaiah 27:8). In other words, in the measure, <i>bese’a</i>, that one used in one’s sin, God will contend with, i.e., punish, him.
+
+### Part 16
+The <i>baraita</i> continues: <b>I have</b> derived <b>only</b> the relatively large measurement of <b>a <i>se’a</i>,</b> which alludes to a significant sin. <b>From where</b> do I know <b>to include</b> even lesser sins that are comparable to smaller measurements, e.g., <b>a half-<i>se’a</i> [<i>tarkav</i>] and a half-<i>tarkav</i>; a <i>kav</i> and a half-<i>kav</i>; a quarter-<i>kav</i> and half of a quarter-<i>kav</i>; an eighth-<i>kav</i> [<i>toman</i>] and an <i>ukla</i>,</b> which is one-thirty-second of a <i>kav</i>. <b>From where</b> is it derived that all these lesser sins are also dealt with in accordance with the measure of the sin? <b>The verse states: “For every boot [<i>sa’on</i>] stamped with fierceness,</b> and every cloak rolled in blood, shall even be for burning, for fuel of fire” (Isaiah 9:4), indicating that every <i>sa’on</i>, which <b>Rabbi</b> Yehuda HaNasi interprets as a small <i>se’a</i>, is “stamped with fierceness” and doesn’t go unpunished.
+
+### Part 17
+<b>And from where</b> is it derived <b>that each and every <i>peruta</i> combine</b> to add up <b>to a great sum,</b> alluding to the notion that even if one is not immediately punished for a small transgression, in the final accounting all misdeeds will combine together and be addressed by the imposition of a large punishment? <b>The verse states:</b> “Behold, this have I found, says Koheleth, <b>adding one thing to another, to find out the account”</b> (Ecclesiastes 7:27).
+
+### Part 18
+The <i>baraita</i> continues: <b>And we found this with regard to a <i>sota</i>, that with the measure with which she measured, she is measured with it: She stood by the opening of her house to exhibit herself to</b> her paramour, <b>therefore a priest has her stand at the Gate of Nicanor and exhibits her disgrace to all; she spread beautiful shawls [<i>sudarin</i>] on her head for</b> her paramour, <b>therefore a priest removes</b> her <b>kerchief from her head and places it under her feet; she adorned her face for</b> her paramour, <b>therefore</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+One who owes a debt <b>may not send money</b> with another to the creditor <b>on the basis of a figure [<i>deyokani</i>]</b> or sign used in place of a signature that is associated with the creditor. The possession of this sign on the part of the other is not sufficient proof that he has been appointed as an agent. <b>And</b> this is the <i>halakha</i> <b>even if witnesses</b> verifying that this is the creditor’s sign <b>are signed on it. And Rabbi Yoḥanan says: If</b> there are <b>witnesses signed on it, one may send</b> the money with the other.
+
+### Part 2
+The Sages <b>say: According to Shmuel, what is the rectification,</b> i.e., what recourse is available to one who wishes to collect a debt without traveling to the debtor’s location? The Gemara answers: One may act <b>like that</b> course of action <b>of Rabbi Abba,</b> who <b>was owed money by Rav Yosef bar Ḥama.</b> Rabbi Abba <b>said to Rav Safra: When you come</b> back from Rabbi Yosef bar Ḥama’s locale, <b>bring</b> my money <b>to me. When</b> Rav Safra <b>went there, Rava,</b> Rav Yosef bar Ḥama’s <b>son, said to him: Did</b> Rabbi Abba <b>write you</b> a document stating: <b>I have received</b> payment, so that my father will have proof that he has absolved himself of the debt? Rav Safra <b>said to him: No.</b> Rava responded: <b>If so, first go</b> to him <b>and let him write you</b> a document stating: <b>I have received</b> payment, and then my father will pay you.
+
+### Part 3
+<b>Ultimately,</b> Rava <b>said to him: Even if he writes you</b> a document stating: <b>I have received</b> payment, <b>it is nothing,</b> since <b>perhaps by</b> the time <b>you arrive</b> back here, <b>Rabbi Abba will have died and the money will fall before</b> his <b>orphans</b> as an inheritance, <b>and</b> the document stating: <b>I have received</b> payment, that was written <b>by Rabbi Abba, will be nothing,</b> as the debt is no longer owed to him, but rather, to his heirs. Rav Safra <b>said to him: Rather, what is the rectification?</b> Rava replied: <b>Go,</b> and Rabbi Abba will <b>transfer to you</b> the rights to the money owed to him <b>by means of</b> acquisition of <b>land</b> from him, <b>and</b> then <b>you</b> should <b>come</b> and <b>write for us</b> a document stating: <b>I have received</b> payment. Then, we will pay you.
+
+### Part 4
+The Gemara notes: And this is <b>like that</b> course of action <b>of Rav Pappa,</b> who <b>was owed twelve thousand dinars</b> by a resident of <b>Bei Ḥozai,</b> and <b>he transferred</b> his claim to the money <b>to Rav Shmuel bar Abba by means of</b> the acquisition of <b>the threshold of his house. When</b> Rav Shmuel bar Abba <b>came</b> from Bei Ḥozai with the money in hand, Rav Pappa <b>went out as far as Tavakh toward him</b> in his excitement to receive the money.
+
+### Part 5
+§ The mishna teaches that if the robber <b>gave</b> the robbery victim <b>the principal</b> value of the stolen item, but did not give him the additional one-fifth payment required of a robber, he is not required to pursue the robbery victim in order to return the additional one-fifth payment. The Gemara comments: <b>Apparently,</b> the additional <b>one-fifth</b> payment <b>is</b> considered <b>monetary restitution</b> rather than a fine. <b>And</b> accordingly, <b>if</b> the robber <b>died,</b> the <b>heirs</b> of the robber must <b>pay it</b> to the robbery victim.
+
+### Part 6
+<b>And we also learned</b> in the mishna that if the robber <b>gave</b> the robbery victim <b>the principal and takes</b> a false <b>oath</b> to him <b>concerning the</b> additional <b>one-fifth</b> payment, asserting that he had already paid it, the robber <b>adds</b> an additional <b>one-fifth</b> payment <b>apart from</b> the additional <b>one-fifth</b> payment about which he had taken a false oath. <b>Apparently,</b> the additional <b>one-fifth</b> payment <b>is monetary restitution,</b> as one is obligated to pay an additional one-fifth for taking a false oath only with regard to monetary restitution, not with regard to fines.
+
+### Part 7
+<b>And this is also taught</b> in a <i>baraita</i>: With regard to <b>one who robs another and takes</b> a false <b>oath to him</b> that he did not rob him, <b>and</b> then <b>dies,</b> his <b>heirs pay the principal and</b> additional <b>one-fifth</b> payments to the robbery victim, <b>but are exempt from</b> the obligation to bring <b>the guilt-offering.</b>
+
+### Part 8
+The Gemara asks: <b>But</b> are <b>heirs obligated</b> to <b>pay the</b> additional <b>one-fifth</b> payment <b>of their father,</b> indicating that <b>apparently</b> the additional <b>one-fifth</b> payment <b>is monetary restitution, and</b> therefore the <b>heirs must pay</b> it? <b>But</b> one could <b>raise a contradiction</b> from a <i>baraita</i>. After having stated that one is required to add the additional one-fifth payment only for a robbery he commits himself, and not for a robbery committed by his father, the <i>baraita</i> states: <b>I</b> would <b>still say</b> that <b>when does</b> an heir <b>not pay</b> the additional <b>one-fifth</b> payment <b>for his father’s robbery?</b> It is only <b>when neither he nor his father took</b> a false <b>oath.</b>
+
+### Part 9
+But if <b>he</b> took a false oath, <b>but not his father;</b> or if <b>his father</b> took a false oath, <b>but not he;</b> or if <b>he and his father</b> both took false oaths; <b>from where</b> is the heir’s exemption derived? <b>The verse states:</b> “He shall restore the item <b>that he robbed,” and</b> “the item <b>that he has acquired through exploitation”</b> (Leviticus 5:23), <b>and</b> in this case the heir <b>did not rob and did not exploit.</b> Since the verse states the obligation to pay the additional one-fifth payment when discussing one who robbed or exploited another, and the heir has done neither, he is exempt from payment. This <i>baraita</i> states that heirs are not obligated to pay the additional one-fifth payment.
+
+### Part 10
+The Gemara answers: <b>Rav Naḥman said</b> that it is <b>not difficult. Here,</b> in the mishna and the first <i>baraita</i>, they discuss a case <b>where</b> the robber <b>admitted</b> his obligation and therefore was required to pay the additional one-fifth payment, and this obligation is transferred to his heir; <b>there,</b> in the latter <i>baraita</i>, it discusses a case <b>where he did not admit</b> his obligation and was never required to pay the additional one-fifth payment.
+
+### Part 11
+The Gemara rejects this answer: <b>If</b> the latter <i>baraita</i> discusses a case where <b>he did not admit</b> his obligation, then the <i>halakha</i> would be that the heir <b>would not pay even the principal,</b> as the obligation is not known by anyone. <b>And if you would say</b> that <b>indeed</b> it is so <b>that he does not pay</b> the principal, <b>but</b> isn’t it understood <b>from</b> the fact that the <i>tanna</i> <b>searches for</b> a source to teach the heir’s exemption from only the additional <b>one-fifth</b> payment, <b>that</b> it means <b>to say that he does pay the principal.</b>
+
+### Part 12
+The Gemara also proves that the heir must pay the principal from the continuation of the same <i>baraita</i>. <b>And further,</b> it <b>is taught</b> in that <i>baraita</i>: <b>And I</b> would <b>still say: When does</b> the heir <b>pay the principal for his father’s robbery?</b> It is only <b>when he and his father</b> both <b>took</b> false <b>oaths.</b> But if <b>his father</b> took a false oath, <b>and not he;</b> or if <b>he</b> took a false oath, <b>but not his father;</b> or if <b>neither he nor his father</b> took false oaths; <b>from where</b> is the heir’s obligation to pay the principal derived? <b>The verse states</b> the following terms: <b>“Robbery,” and “exploitation,” “lost item,” and “deposit”</b> (Leviticus 5:23); and <b>there is a derivation [<i>yesh talmud</i>]</b> here to derive that the heir is obligated to pay the principal in all of these cases.
+
+### Part 13
+The Gemara clarifies: <b>And Rav Huna sat and stated this <i>halakha</i>,</b> and <b>Rabba, his son, said to him:</b> Was <b>the Master saying</b> that <b>there is a derivation [<i>yesh talmud</i>], or</b> was <b>the Master saying</b> that <b>they will be paid [<i>yishtalmu</i>]?</b> Rav Huna <b>said to him: I am saying: There is a derivation, and</b> it is <b>from the additional</b> expressions in the <b>verses</b> that <b>I say</b> it can be derived. It is apparent that an heir is obligated to pay the principal, and this refutes Rav Naḥman’s attempted resolution.
+
+### Part 14
+<b>Rather, what</b> did Rav Naḥman mean when he suggested that the second <i>baraita</i> is referring to a case where <b>he did not admit</b> his obligation and exempts his heir from paying the additional one-fifth but obligates him to pay the principal? The <i>baraita</i> is referring to a case where the <b>father did not admit, but his son did admit,</b> and therefore he is obligated to pay the principal.
+
+### Part 15
+The Gemara asks: <b>And</b> let <b>his son be liable</b> to pay the additional <b>one-fifth</b> payment <b>for his own</b> false <b>oath.</b> The Sages <b>say: In</b> the case of the <i>baraita</i>, it is <b>where</b> the <b>stolen item is no</b> longer <b>extant.</b> Although the false oath was taken, it is not the type of obligation for which one must pay an additional one-fifth payment. The Gemara asks: <b>If in</b> the case of the <i>baraita</i> it is <b>where</b> the <b>stolen item is no</b> longer <b>extant,</b> the <i>halakha</i> should be that the heir <b>does not pay even</b> the <b>principal,</b> as the <i>halakha</i> is that while heirs must return an item stolen by their father, they are not obligated to compensate the owner if the item is no longer extant. The Gemara answers: <b>No,</b> the ruling <b>is necessary</b> in a case <b>where there is guaranteed</b> property, i.e., land, which the heirs inherited from the robber. Heirs are obligated to compensate the owner of a stolen item with inherited land, even if the stolen item itself is no longer extant.
+
+### Part 16
+The Gemara asks: <b>And</b> even <b>when there is guaranteed property,</b> i.e., land, <b>what of it?</b> After all, such a debt <b>is</b> legally considered <b>a loan by oral</b> agreement, <b>and</b> the creditor of <b>a loan by oral</b> agreement <b>cannot collect from the heirs</b> of the debtor, <b>nor</b> can he collect <b>from those who purchased</b> land from the debtor.
+
+### Part 17
+The Sages <b>say</b> in response:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

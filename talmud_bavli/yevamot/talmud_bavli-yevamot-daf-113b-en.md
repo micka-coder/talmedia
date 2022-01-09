@@ -1,0 +1,51 @@
+
+### Part 1
+<b>Or</b> perhaps <b>his mind is not clear,</b> i.e., he cannot achieve full and clear understanding, <b>and</b> yet <b>he is always of one mind.</b> In other words, a deaf-mute functions at the same level of intellectual capacity every day. Rav Ashi explains the other possibility: <b>Or perhaps</b> it <b>is obvious to</b> Rabbi Elazar <b>that the mind</b> of a deaf-mute <b>is weak and</b> his <b>mind is unclear, but</b> in this case <b>here, this is</b> Rabbi Elazar’s <b>reasoning: Since he is at times competent and at times imbecilic,</b> without clarity of mind, i.e., he does not function at the same level of understanding every day, therefore the <i>teruma</i> of a deaf-mute is considered <i>teruma</i> that is of doubtful legal status.
+
+### Part 2
+The Gemara asks: <b>What is the practical difference</b> how one defines the intellectual capacity of a deaf-mute? The Gemara answers: It makes a difference with respect <b>to divorcing his wife with a bill of divorce. If you say</b> that a deaf-mute <b>has one</b> consistent <b>mind, his divorce is</b> equivalent in status <b>to his betrothal.</b> Since he had a weak mind at the time of his betrothal, he has the same level of competence at his divorce and therefore he may divorce his wife.
+
+### Part 3
+<b>But if you say</b> that <b>he is at times competent and at times imbecilic, he may betroth</b> a woman, as the Sages are stringent and assume that he was healthy and of clear mind at the time; however <b>he cannot divorce her,</b> due to a concern that he was competent when he betrothed her but he is incompetent now. If so, <b>what</b> is Rabbi Elazar’s reasoning? No solution is found, and therefore the Gemara states that the dilemma <b>shall stand</b> unresolved.
+
+### Part 4
+§ The mishna taught that one whose wife <b>became imbecilic</b> may not divorce her. <b>Rabbi Yitzḥak said: By Torah law, an imbecilic woman may be divorced, just as it is</b> in the analogous case of <b>a</b> halakhically <b>competent woman</b> who was divorced <b>against her will.</b> Since there is no need for a woman to agree to receive a bill of divorce, an imbecile’s lack of sound mind does not prevent her from being divorced. <b>And</b> if so, <b>what is</b> the <b>reason</b> that the Sages <b>said</b> that an imbecilic woman <b>may not be divorced?</b> The reason is so <b>that</b> people <b>should not treat her in the manner of ownerless</b> property. Since she is not of sound mind and has no husband to protect her, there is a concern that people might treat her in a disrespectful fashion.
+
+### Part 5
+The Gemara inquires: <b>What are the</b> precise <b>circumstances</b> of this case? <b>If we say</b> that this woman <b>knows how to guard her bill of divorce,</b> i.e., she understands the concept of a bill of divorce, <b>and</b> she also <b>knows how to take care of herself, would</b> people <b>treat her in the manner of ownerless</b> property? She is capable of protecting herself. <b>Rather,</b> the mishna is evidently referring <b>to a woman who does not know how to guard her bill of divorce, nor</b> does she know how to take care of <b>herself.</b>
+
+### Part 6
+The Gemara asks: Is it correct that <b>by Torah law an imbecilic woman may be divorced? But</b> didn’t a Sage of <b>the school of Rabbi Yannai say,</b> with regard to the verse: “He shall write her a bill of divorce <b>and give it into her hand”</b> (Deuteronomy 24:3), that this refers only <b>to</b> a woman <b>who has a hand,</b> i.e., she has enough intellectual capacity <b>to</b> accept a bill of <b>divorce</b> for <b>herself.</b> This serves <b>to exclude this</b> imbecilic woman, <b>who does not have a hand to</b> accept her <b>divorce</b> for <b>herself.</b>
+
+### Part 7
+<b>And the school of Rabbi Yishmael taught</b> this slightly differently. The verse continues: <b>“And send her out of his house”</b> (Deuteronomy 24:3); this indicates that one may divorce only the type of woman <b>whom he will send away and she will not return.</b> It serves <b>to exclude this</b> imbecilic woman, as <b>he will send her away and she will return,</b> as she does not understand the concept of divorce.
+
+### Part 8
+The Gemara explains: <b>No,</b> Rabbi Yitzḥak’s <i>halakha</i> is <b>necessary</b> in the case <b>of</b> a woman <b>who knows how to guard her bill of divorce but does not know how to take care of herself. By Torah law</b> this <b>imbecilic woman may be divorced, as she knows how to safeguard her bill of divorce, and</b> yet <b>the Sages said</b> that her husband should <b>not divorce</b> her, so <b>that</b> people <b>should not treat her in the manner of ownerless</b> property, because she does not know how to take care of herself.
+
+### Part 9
+<b>Abaye said:</b> The language of the mishna <b>is also precise</b> in this case, <b>as it teaches with regard to this</b> woman that if <b>she became an imbecile he may not divorce</b> her; <b>and</b> yet, <b>with regard to</b> the husband, the mishna states that if he became an imbecile <b>he may never divorce</b> her. <b>What is different here, that</b> the mishna <b>teaches</b> using the word: <b>Never, and what is different there, that</b> it <b>does not teach: Never? Rather,</b> one can <b>learn from here that this</b> <i>halakha</i>, that an imbecilic man may not give a divorce, applies <b>by Torah</b> law, and <b>this</b> one, that a man may not divorce an imbecilic woman, applies by <b>rabbinic</b> law, and therefore the mishna does not add the phrase: Never.
+
+### Part 10
+§ The mishna taught that <b>Rabbi Yoḥanan ben Nuri said:</b> What is the reason that the husband of a woman who became a deaf-mute may divorce her, whereas a man who becomes a deaf-mute may not divorce his wife? <b>A dilemma was raised before</b> the scholars with regard to the opinion of <b>Rabbi Yoḥanan ben Nuri:</b> Is it <b>obvious to him</b> that a deaf-mute <b>man</b> may not divorce his wife, <b>and he raised</b> his <b>dilemma</b> with regard to <b>a woman,</b> i.e., why she may be divorced if she is a deaf-mute? <b>Or perhaps,</b> it is <b>obvious to him</b> why one may divorce a deaf-mute <b>woman, and he raised</b> his <b>dilemma</b> with regard to a deaf-mute <b>man,</b> i.e., why he may not divorce his wife.
+
+### Part 11
+The Gemara cites a proof: <b>Come</b> and <b>hear from what</b> the Rabbis <b>said</b> in response <b>to</b> Rabbi Yoḥanan ben Nuri: <b>The man who divorces</b> his wife <b>is not similar to the woman who is divorced, as the woman is divorced</b> whether <b>she is willing or unwilling, and the man divorces</b> his wife only <b>willingly. Learn from here</b> that Rabbi Yoḥanan ben Nuri <b>raised</b> his <b>dilemma</b> with regard to a deaf-mute <b>man,</b> not a woman, as the reply of the Rabbis is referring to the man, not the woman. The Gemara rejects this proof: <b>On the contrary, from</b> the fact <b>that the Rabbis said to him: This</b> woman, <b>too, has a similar</b> status, one can <b>learn from here</b> that he <b>raised</b> his <b>dilemma</b> with regard to a deaf-mute <b>woman.</b>
+
+### Part 12
+<b>Rather, Rabbi Yoḥanan ben Nuri spoke to</b> the Rabbis <b>in accordance with their statement,</b> i.e., he formulated his statement so as best to argue with their opinion, as follows: <b>According to my</b> opinion, <b>just as</b> a deaf-mute <b>man cannot divorce</b> his wife, <b>so too</b> a deaf-mute <b>woman cannot be divorced. However, according to your</b> opinion, <b>what is the difference</b> between the case of a deaf-mute <b>woman and</b> the case of a deaf-mute <b>man? They said to him: The man who divorces</b> his wife <b>is not similar to the woman who is divorced.</b>
+
+### Part 13
+The mishna taught: <b>Rabbi Yoḥanan</b> ben Gudgada <b>testified</b> that in the case of a deaf-mute minor whose father married her off, which is a marriage that is valid by Torah law, she may nevertheless be divorced once she matures. <b>Rava said: From the testimony of Rabbi Yoḥanan ben Gudgada</b> one may learn that if a husband <b>said to witnesses: See this bill of divorce that I am giving</b> my wife, <b>and</b> yet <b>he said to her: Take this promissory note, she is divorced,</b> despite the fact when he gave his wife the bill of divorce she did not know what it was.
+
+### Part 14
+This <i>halakha</i> is derived from Rabbi Yoḥanan ben Gudgada’s statement in the following manner: <b>Didn’t Rabbi Yoḥanan ben Gudgada say</b> that <b>we do not require her consent,</b> as there is no need for the woman to understand that she is receiving a bill of divorce? <b>Here, too, we do not require her consent,</b> and even if she believes that she is receiving a bill of debt, she is divorced. The Gemara asks: <b>Isn’t</b> it <b>obvious</b> that there is no need for the woman’s consent? What is the novel element in Rava’s statement?
+
+### Part 15
+The Gemara answers that Rava’s statement is necessary, <b>lest you say: From</b> the fact <b>that</b> the husband <b>said to her: Take this promissory note, he has</b> thereby <b>nullified the bill of divorce.</b> Rava therefore <b>teaches us</b> that this is not the case, for <b>if it is</b> so, that he nullified the bill of divorce, <b>he would have said</b> so <b>to the witnesses. And from</b> the fact <b>that he did not say</b> this <b>to the witnesses, he</b> evidently <b>did not nullify</b> the bill of divorce <b>at all. And</b> the reason <b>that</b> the husband <b>said this,</b> i.e., that she should take this bill of debt, <b>it was due to shame that he said this to her,</b> as he meant to divorce her all along, but he did not want her to know at the time what he was doing.
+
+### Part 16
+The Gemara relates a story: <b>Rav Yitzḥak bar Bisna lost the keys to the study hall,</b> and therefore they could not come <b>into</b> the study hall from <b>the public domain on Shabbat.</b> It was impossible to open the synagogue, as they could not bring the key because it is prohibited to carry in the public domain. <b>He came before Rabbi Pedat</b> to ask what to do. Rabbi Pedat <b>said to him: Go</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

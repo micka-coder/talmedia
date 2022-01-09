@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>C'est le principe</b> concernant une fille mineure qui a refuse son mari et qui s'est ensuite mariee plusieurs fois : <b>Si l'acte de divorce a suivi le refus</b> et qu'elle s'est remariee, <b>il lui est interdit de revenir vers lui. Si le refus a suivi l'acte de divorce, il lui est permis de revenir vers lui.</b> Puisque le refus a suivi l'acte de divorce, il est clair qu'elle etait mineure et que ni le mariage ni le divorce n'etaient valables selon la loi de la Torah. Cependant, lorsque la separation finale se fait par le biais d'un acte de divorce, rien n'indique qu'elle etait mineure a ce moment-la et il y a un risque de confusion avec une divorcee adulte.
+
+### Partie 2
+Si une jeune fille mineure <b>refuse</b> un <b>homme et en epouse un autre, et qu'il la divorce,</b> puis qu'elle epouse <b>un autre</b> homme <b>et le refuse, et</b> qu'ensuite elle epouse <b>un autre</b> homme <b>et qu'il la divorce, tel est le principe</b> de ce cas : A l'egard de <b>toute personne qu'elle quitte par acte de divorce, il lui est interdit de revenir a lui.</b> A l'egard de toute personne qu'elle quitte <b>par refus, il lui est permis de revenir a lui.</b>
+
+### Partie 3
+<strong>GEMARA :</strong> Il a ete enseigne dans la mishna que si l'homme a donne a sa femme mineure un acte de divorce mais qu'il s'est ensuite remarie avec elle et qu'elle l'a refuse, puis qu'elle a epouse quelqu'un d'autre, il lui est permis de se remarier avec le premier mari lorsque son mariage avec le second est conclu. <b>Apparemment, le refus vient annuler l'acte de divorce.</b>
+
+### Partie 4
+La Gemara <b>souleve une contradiction</b> de la fin de la mishna : Si une jeune fille mineure <b>refuse</b> un <b>homme et en epouse un autre, et qu'il divorce d'avec elle,</b> puis qu'elle epouse <b>un autre</b> homme <b>et le refuse, et</b> qu'ensuite elle epouse <b>un autre</b> homme <b>et qu'il divorce d'avec elle, voici le principe :</b> A l'egard de <b>toute personne qu'elle quitte par acte de divorce, il lui est interdit de revenir vers elle. </b> A l'egard de quiconque elle quitte <b>par le biais d'un refus, il lui est permis de revenir vers lui. Apparemment, le refus d'un autre homme ne vient pas annuler sons</b> propre <b>acte de divorce.</b> Si le refus annulait completement le mariage avec le second mari, il n'y aurait aucun obstacle a ce qu'elle se remarie avec son premier mari, car une ex-epouse qui n'a pas epouse un autre homme est autorisee a se remarier avec son premier mari. Cependant, le divorce, combine au second mariage, genere une interdiction, et il lui est interdit de se remarier dans ce cas.
+
+### Partie 5
+<b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Cette mishna est <b>disjointe,</b> et <b>celui qui a enseigne cette</b> <i>halakha</i>, qu'elle peut se remarier avec son premier mari si elle l'a refuse apres qu'il l'ait divorcee, <b>n'a pas enseigne cette</b> <i>halakha</i>, que son refus d'un autre homme ne la rend pas permise a son mari divorce.
+
+### Partie 6
+<b>Rava dit : Quelle est la difficulte</b> ici ? <b>Peut-etre</b> que son <b>refus de lui annule son acte de divorce, alors que</b> son <b>refus de l'autre homme n'annule pas</b> l'acte de divorce du mari initial.</b> La Gemara demande : En <b>quelle</b> maniere <b>son <b>refus de l'autre homme est-il different, qu'il n'annule pas son acte de divorce ?</b> N'est-ce pas que <b>parce qu'elle est familiere avec les intimations et les gestes [<i>keritzotav</i>]</b> de son premier mari, <b>il l'egarera et la ramenera</b> a lui, en l'amenant a refuser son nouveau mari puis a revenir a lui ? Par consequent, il a ete decrete qu'elle ne peut revenir a son premier mari en refusant le second. Mais pour cette meme raison, <b>le refus contre</b> le premier mari <b>lui-meme ne doit pas non plus annuler son</b> propre <b>acte de divorce, car, comme elle est familiere avec ses intimations et ses gestes, il l'egarera et la ramenera</b> a lui apres qu'elle ait epouse un autre homme.
+
+### Partie 7
+La Gemara repond : La Gemara repond : <b>Mais il a deja essaye</b> de l'egarer et elle n'a pas ete</b> egaree.</b> En d'autres termes, il s'est deja remarie avec elle apres le divorce et elle l'a encore refuse, ce qui prouve qu'il n'a pas assez d'influence pour l'egarer.
+
+### Partie 8
+<b>Mais s'il y a une difficulte, c'est</b> la contradiction <b>entre</b> une <i>halakha</i> impliquant un <b>autre homme et</b> une <i>halakha</i> differente impliquant <b>un autre homme</b> qui <b>est difficile,</b> comme le precise la mishna : <b>Si elle l'a refuse et qu'il</b> par la suite <b>se remarie avec elle, et</b> cette fois-ci <b>il lui a donne un acte de divorce et elle a epouse un autre</b> homme, <b>et elle etait veuve ou divorcee, il lui est interdit de retourner vers</b> son mari initial. <b>La raison est</b> specifiquement <b>qu'elle etait veuve ou divorcee</b> par l'autre homme. <b>Mais si elle avait refuse</b> le second mari, <b>il lui serait permis de retourner vers</b> le premier mari. <b>Apparemment, un refus de l'autre homme</b> serait <b>venu et aurait annule son acte de divorce,</b> lui permettant de se remarier avec le premier mari, malgre son mariage anterieur avec l'autre homme.
+
+### Partie 9
+Ceci <b>souleve une contradiction,</b> comme il est enseigne plus tard : Si une fille mineure <b>refuse</b> un <b>homme et en epouse un autre et qu'il la repudie, et</b> qu'ensuite elle en epouse <b>un autre et le refuse, voici le principe :</b> A l'egard de <b>toute personne qu'elle quitte par acte de divorce, il lui est interdit de revenir a lui.</b> A l'egard de toute personne qu'elle quitte <b>par refus, il lui est permis de revenir a lui. Apparemment, le refus de l'autre homme ne peut venir annuler son propre acte de divorce.</b>
+
+### Partie 10
+<b>Rabbi Elazar a dit :</b> Cette mishna est <b>disjointe,</b> et celui <b>qui a enseigne cette</b> <i>halakha</i> <b>n'a pas enseigne cette</b> <i>halakha</i>. <b>Ulla a dit :</b> La derniere clause, dans laquelle il est dit que son refus n'annule pas l'acte de divorce, fait reference a un cas <b>ou elle a ete divorcee trois fois. Puisque</b> elle a divorce trois fois, <b>elle apparait comme une adulte,</b> et donc les Sages n'ont pas permis que son refus annule l'effet du divorce.
+
+### Partie 11
+§ La Guemara demande : Selon Rabbi Elazar, qui soutient que la mishna est disjointe, <b>qui</b> est la <i>tanna</i> qui a <b>enseigne</b> qu'une mineure peut toujours se remarier avec un mari qu'elle a refuse mais pas avec celui qui l'a divorcee ? <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> On peut le determiner en se basant sur l'incident suivant. <b>Quel est</b> le sens de ce <b>qui est ecrit : "Nous avons bu notre eau pour de l'argent ; notre bois nous vient a prix"</b> (Lamentations 5:4), impliquant que la Torah, qui est analogue a l'eau, peut etre achetee avec de l'argent. La Gemara explique : <b>Pendant la periode de danger,</b> c'est-a-dire de persecution religieuse par les Romains, <b>cette decision halakhique a ete demandee : Si elle,</b> une mineure, <b>a quitte son premier mari par un acte de divorce et son second par un refus, quelle est</b> la <i>halakha</i> <b>en ce qui concerne son retour aupres du premier ?</b>
+
+### Partie 12
+Les interesses ont <b>engage une personne pour quatre cents dinars</b> pour la mission dangereuse <b>et ont demande a Rabbi Akiva,</b> qui a ete incarcere <b>en prison</b> par les Romains pour avoir enseigne la Torah, <b>et</b> il a juge que c'est <b>interdit. Ils ont demande a Rabbi Yehuda ben Beteira a Netzivin,</b> en Babylonie, <b>et</b> il l'a egalement juge <b>interdit.</b>
+
+### Partie 13
+<b>Rabbi Yishmael, fils de Rabbi Yosei, a dit : Cette</b> question n'etait pas ce qu'ils ont demande, car elle <b>etait inutile : Si vous</b> avez rendu <b>permis un interdit</b> pour la violation duquel on est susceptible de recevoir une <b>excision du Monde-a-Venir [<i>karet</i>],</b> c'est-a-dire, si l'interdiction d'avoir des rapports sexuels avec une femme mariee est dissoute par le refus, le mariage etant annule retroactivement, alors n'est-il <b>pas</b> clair <b>d'autant plus</b> qu'apres un refus, <b>l'interdiction</b> reguliere <b>de se remarier avec son ex-epouse apres qu'elle ait ete mariee a un autre devrait etre permise ? L'opinion de la mishna selon laquelle le refus n'annule pas l'effet du divorce est conforme a celle de Rabbi Akiva et Rabbi Yehuda ben Beteira, tandis que l'opinion selon laquelle il lui est permis de retourner aupres de son premier mari apres avoir refuse le second est conforme a l'opinion de Rabbi Yishmael, fils de Rabbi Yosei.
+
+### Partie 14
+Rabbi Yishmael, fils de Rabbi Yosei, poursuit : <b>Au contraire, voici</b> ce qu'ils ont <b>demande : Si</b> la mineure <b>etait la femme du frere de la mere de quelqu'un, un parent secondaire</b> interdit, c'est-a-dire un parent interdit <b>a lui</b> par la loi rabbinique, <b>et</b> par la suite, <b>son frere paternel l'a epousee et est decede,</b> de sorte qu'elle lui est devenue eligible au mariage levirat, <b>qu'elle est</b> la <i>halakha</i> par rapport a ce qui suit : <b>Est-ce qu'elle peut refuser maintenant et deraciner le premier mariage</b> avec le frere de la mere, de sorte qu'elle ne sera plus une parente interdite, et de meme sa femme rivale ne sera pas la femme rivale d'une parente interdite, <b>afin que sa femme rivale puisse contracter un mariage levirien ? </b> En d'autres termes, <b>dans un cas</b> ou il y a <b>une mitsva</b> de mariage levirat, <b>le refus apres</b> le <b>deces du mari est-il valable ou non ?</b>
+
+### Partie 15
+Les personnes concernees <b>ont engage deux personnes pour quatre cents dinars, et elles sont venues demander a Rabbi Akiva en prison et il</b> a juge cela <b>interdit.</b> Elles ont demande a <b>Rabbi Yehuda ben Beteira a Netzivin et il</b> a juge cela <b>interdit.</b>
+
+### Partie 16
+<b>Rav Yitzhak bar Ashyan a dit : Rav concede qu'elle est permise au frere de l'homme a qui elle est interdite.</b> Rav Yitzhak fait reference au cas d'une mineure qui a refuse son mari, s'est remariee avec le meme homme, et a ensuite divorce, puis a epouse un autre homme et l'a refuse. Bien qu'elle ne puisse pas se remarier avec son premier mari, elle peut epouser son frere, malgre le fait qu'on ne peut pas, en regle generale, epouser la divorcee de son frere.
+
+### Partie 17
+La Guemara demande : C'est <b>evident.</b> C'est <b>lui,</b> son ancien mari, <b>dont elle reconnait les allusions et les gestes, mais pas</b> ceux de <b>son frere,</b> de sorte que l'on ne craint pas que le frere la persuade de refuser son mari. La Gemara explique : Rav Yitzhak bar Ashyan a juge bon de le preciser, <b>de peur que l'on dise : Publier un decret</b> rendant interdit pour elle d'epouser <b>cette</b> frere <b>en raison</b> du risque qu'un tel mariage conduise les gens a penser qu'il lui est permis d'epouser <b>cette</b> frere, son mari d'origine. Par consequent, <b>il nous enseigne</b> qu'un tel decret n'a pas ete institue.
+
+### Partie 18
+<b>Et il y a</b> ceux <b>qui disent</b> une version differente de la discussion : <b>Rav Yitzhak bar Ashyan a dit : De meme qu'elle est interdite a lui,</b> a l'homme qui a divorce d'elle, <b>elle est interdite a ses freres.</b> La Gemara demande : <b>Mais elle n'est pas familiere avec leurs intimites et leurs gestes.</b> Pourquoi lui est-il interdit de les epouser ? La Guemara repond : <b>C'est un</b> <b>decret rabbinique concernant les <b>freres de l'ex-mari</b> qui lui sont dus,</b> l'ex-mari. Si elle etait autorisee aux freres de son ex-mari, les gens pourraient penser a tort qu'elle est meme autorisee a se remarier avec l'ex-mari lui-meme.
+
+### Partie 19
+<strong>MISHNA :</strong> En ce qui concerne <b>celui qui divorce d'une femme et se remarie avec elle</b> puis meurt sans enfant, sa femme <b>est autorisee</b> a contracter un levirat avec son <b><i>yavam</i>,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

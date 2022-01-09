@@ -1,0 +1,75 @@
+
+### Partie 1
+<b>Et la raison</b> que le developpement de deux cheveux le rend adulte est <b>que</b> le debut de <b>sa matiere,</b> c'est-a-dire, son atteinte de la puberte, <b>a ete acheve pour lui apres</b> le <b>temps ?</b> Rav Hamnuna en deduit que si l'enfant a developpe deux cheveux <b>pendant</b> le <b>temps,</b> il est considere <b>comme avant</b> le <b>temps,</b> et il n'est pas classe comme adulte.
+
+### Partie 2
+<b>Et en outre, Rabbi Zeira souleve une objection</b> a l'opinion selon laquelle le developpement des signes indiquant la puberte pendant le temps est equivalent a leur developpement apres le temps. Elle est enseignee dans une <i>baraita</i> qui traite du verset : A "Parlez aux enfants d'Israel et dites-leur : <b>Quand</b> l'un ou l'autre <b>homme</b> ou une femme <b>doit clairement prononcer un vœu"</b> (Nombres 6:2). <b>Quel est le sens</b> lorsque <b>le verset dit "homme,</b> apres avoir deja dit "les enfants d'Israel" ? Cela sert a <b>inclure</b> toute personne agee de <b>treize ans et un jour, que meme si elle ne sait pas</b> comment <b>pour prononcer clairement</b> et articuler le sens de ses declarations, <b>ses vœux sont en vigueur.</b>
+
+### Partie 3
+Rabbi Zeira analyse cette <i>baraita</i>. <b>Quelles sont les circonstances ? Si</b> elle fait reference a un cas <b>ou</b> le garcon <b>n'a pas</b> encore <b>developpe deux</b> poils pubiens,</b> alors <b>il est mineur,</b> et la <i>halakha</i> a son egard ne peut etre derivee du mot "homme". <b>Ne s'agit-il pas plutot</b> d'un cas <b>ou</b> le garcon <b>a developpe deux</b> poils pubiens ? Et</b> par deduction, <b>la raison pour laquelle il est</b> considere comme <b>un homme</b> en raison de son developpement de poils pubiens <b>est qu'il a treize ans et un jour, mais</b> si le garcon a developpe deux poils <b>pendant</b> le <b>temps,</b> il est considere <b>comme avant</b> le <b>temps.</b> La Gemara conclut : Il s'agit bien d'une <b>refutation concluante</b> de l'opinion de Rabbi Yohanan et de Rabbi Yehoshua ben Levi selon laquelle le developpement des poils pubiens pendant le temps est equivalent au developpement des poils apres le temps.
+
+### Partie 4
+<b>Rav Nahman a dit</b> que la <i>baraita</i> n'est pas une refutation de l'avis de Rabbi Yohanan et de Rabbi Yehoshua ben Levi, car cette question fait <b>l'objet</b> d'une dispute entre <b><i>tannaim</i>,</b> puisqu'il existe une autre <i>baraita</i> qui enseigne ce qui suit : Tout le monde est d'accord en ce qui concerne <b>un garcon de neuf ans</b> <b>qui a developpe deux poils</b> que cela n'est pas considere comme un signe de puberte, car ils sont traites comme des poils qui poussent sur <b>un grain de beaute. De neuf</b> ans <b>jusqu'a</b> l'age de <b>douze ans et un jour,</b> meme si les poils ne sont pas tombes, cela est toujours considere comme <b>un grain de beaute. Rabbi Yosei, fils de Rabbi Yehuda, dit :</b> A ce stade, c'est <b>un signe</b> indiquant la puberte. S'il a <b>treize ans et un jour</b> et que deux poils ont pousse, <b>tous sont d'accord</b> pour dire que c'est <b>un signe</b> indiquant la puberte.
+
+### Partie 5
+Le Rav Nahman analyse la <i>baraita</i>. <b>Cette</b> <i>baraita</b> <b>elle-meme</b> est <b>difficile,</b> car <b>vous</b> avez initialement <b>dit</b> que <b>de neuf</b> ans <b>jusqu'a</b> l'age de <b>douze ans et un jour</b> c'est <b>un grain de beaute, </b> d'ou l'on peut deduire que s'il a developpe deux poils pubiens dans <b>la treizieme annee meme,</b> c'est <b>un signe</b> indiquant la puberte. <b>Et alors</b> le <i>baraita</i> <b>enseigne</b> que s'il a <b>treize ans et un jour</b> et que deux poils ont pousse, c'est <b>un signe</b> indiquant la puberte, ce qui indique que s'il a developpe les poils dans <b>la treizieme annee elle-meme,</b> c'est <b>un grain de beaute.</b>
+
+### Partie 6
+Le Rav Nahman conclut : <b>Quoi, n'est-il pas</b> exact de dire qu'il <b>y a</b> un differend entre <b><i>tannaim</i>, car</b> un <b>Sage,</b> le <i>tanna</i> qui enonce la premiere ligne du <i>baraita</i>, <b>tient</b> que <b>pendant</b> ce <b>temps</b> est considere <b>comme apres</b> le <b>temps, et</b> un <b>Sage,</b> le <i>tanna</i> de la derniere ligne du <i>baraita</i>, <b>tient</b> que <b>pendant</b> ce <b>temps</b> est considere <b>comme avant</b> le <b>temps ? </b> Si c'est le cas, l'opinion de Rabbi Yohanan et de Rabbi Yehoshua ben Levi est un cote d'une dispute entre <i>tannaim</i>.
+
+### Partie 7
+La Guemara rejette cette suggestion : <b>Non, tout le monde,</b> c'est-a-dire les <i>tannaim</i> des deux clauses de la <i>baraita</i>, s'accorde a dire que <b>pendant</b> ce <b>temps</b> est considere <b>comme avant</b> le <b>temps, et cette</b> clause <b>et cette</b> clause de la <i>baraita</i> font toutes deux reference <b>a une jeune fille. Et</b> la difference entre eux est que <b>la premiere clause</b> de la <i>baraita</i> est en accord avec l'opinion de <b>Rabbi</b> Yehuda HaNasi, qui soutient que la treizieme annee pour une femme est consideree apres le temps, et donc le developpement de deux poils pubiens a ce stade est un signe de maturation ; <b>et la derniere clause</b> est conforme a l'opinion de <b>Rabbi Shimon ben Elazar,</b> qui soutient que la treizieme annee pour une femme est consideree comme avant le temps.
+
+### Partie 8
+<b>Et si tu veux, dis</b> que <b>cette</b> clause <b>et cette</b> clause traitent toutes deux <b>d'un jeune garcon, et la premiere clause</b> est conforme a l'avis de <b>Rabbi Shimon ben Elazar et la derniere clause</b> est conforme a l'avis de <b>Rabbi</b> Yehuda HaNasi, qui soutient que la treizieme annee pour un garcon est consideree avant le temps.
+
+### Partie 9
+<b>Et si vous le souhaitez, dites</b> que les deux <b>cette</b> clause <b>et cette</b> clause sont conformes a l'opinion de <b>Rabbi</b> Yehuda HaNasi, et que la difference entre elles est que <b>cette</b> derniere clause de la <i>baraita</i> se refere <b>a un jeune garcon,</b> alors que <b>cette</b> premiere clause se refere <b>a une jeune fille. Et si tu veux, dis</b> que les deux <b>cette</b> clause <b>et cette</b> clause sont conformes a l'opinion de <b>Rabbi Shimon ben Elazar,</b> et <b>cette</b> premiere clause de la <i>baraita</i> fait reference <b>a un jeune garcon,</b> alors que <b>cette</b> derniere clause fait reference <b>a une jeune fille.</b>
+
+### Partie 10
+La <i>baraita</i> enseigne en outre que <b>Rabbi Yosei, fils de Rabbi Yehuda, dit</b> a propos des poils de l'age de neuf ans jusqu'a l'age de douze ans et un jour, qu'il s'agit d'un <b>signe</b> indiquant la puberte. En explication de cette opinion, <b>Rabbi Keruspedai, fils de Rabbi Shabbtai, dit : Et</b> ceci <b>est</b> la <i>halakha</i> seulement <b>lorsque</b> les poils <b>sont encore sur lui,</b> c'est-a-dire qu'ils n'etaient pas tombes lorsqu'il a atteint l'age de la puberte, car sinon ils sont consideres comme un grain de beaute.
+
+### Partie 11
+La Guemara note que <b>cette</b> opinion <b>est egalement enseignee</b> dans une <i>baraita</i> : En ce qui concerne un garcon <b>de neuf ans et un jour qui a developpe deux poils,</b> cela est considere comme <b>un grain de beaute.</b> Si le garcon est <b>de neuf</b> ans <b>jusqu'a</b> l'age de <b>douze ans et un jour, et</b> les poils <b>sont encore sur lui,</b> cela est toujours considere comme <b>un grain de beaute. Rabbi Yosei, fils de Rabbi Yehuda, dit :</b> C'est <b>un signe</b> indiquant la puberte.
+
+### Partie 12
+§ En resume des jugements cites ci-dessus, <b>Rava dit : La <i>halakha</i></b> est que le developpement de deux poils <b>pendant</b> le <b>temps</b> est considere <b>comme avant</b> le <b>temps,</b> et il ne rend pas adulte. <b>Rav Shmuel bar Zutra enseigne cette <i>halakha</i> de Rava dans cette formulation : Rava dit :</b> S'agissant d'une <b>fille mineure</b> dont le pere est decede et dont la mere ou les freres ont accepte des fiancailles en son nom, forme de fiancailles instituee par les Sages, tout au long de sa <b>vingtieme annee, elle</b> a le droit <b>continu</b> d'<b>exercer un refus a l'egard</b> de ce mariage et ainsi de l'annuler. <b>A partir de ce</b> point, </b> lorsqu'elle est deja majeure, <b>elle ne peut plus</b> <b>executer de refus, et elle ne peut pas executer <i>halitza</i></b> avec le frere de son mari, s'il est mort sans enfants.
+
+### Partie 13
+La Guemara demande : <b>Cette</b> affirmation de Rava <b>lui-meme</b> est <b>difficile : Vous</b> avez d'abord <b>dit</b> qu'une fois qu'elle a douze ans <b>elle ne peut plus accomplir de refus. A l'evidence, c'est une femme adulte.</b> Mais <b>si c'est une femme adulte, qu'elle execute <i>halitza</i>,</b> comme toute autre femme adulte.
+
+### Partie 14
+<b>Et si vous disiez</b> que Rava <b>n'est pas sur</b> si une fille de douze ans est presumee avoir developpe deux cheveux et est donc adulte, ou si on presume qu'elle n'a pas encore developpe deux cheveux et reste mineure, et par consequent il est rigoureux sur les deux points, qu'elle ne peut pas accomplir le refus, comme un adulte, mais elle ne peut pas non plus accomplir <i>halitza</i>, comme un mineur, cette suggestion est problematique, car <b>Rava est-il</b> effectivement <b>incertain</b> a cet egard ? <b>Mais Rava ne dit-il pas : Une fille mineure qui a atteint son age complet</b> de maturite, c'est-a-dire douze ans et un jour, <b>n'a pas besoin d'etre examinee</b> pour determiner si deux cheveux lui ont pousse, car il y a <b>une presomption</b> qu'elle a developpe des signes</b> indiquant la puberte.
+
+### Partie 15
+La Guemara repond que <b>cette affirmation,</b> selon laquelle on presume qu'une fille de douze ans a developpe deux cheveux, ne s'applique que <b>dans une situation ordinaire</b>. <b>Mais ici</b> Rava fait reference a un cas <b>ou on l'a examinee</b> <b>et n'a pas trouve</b> de cheveux. Dans un tel cas, Rava n'a <b>pas</b> dit que la presomption est en vigueur.
+
+### Partie 16
+La Gemara demande : <b>Si tel est le cas,</b> qu'elle a effectivement ete examinee, elle devrait etre consideree comme une mineure a tous egards et <b>elle devrait</b> pouvoir <b>executer un refus.</b> La Gemara repond : <b>Nous sommes preoccupes</b> par le fait que <b>peut-etre</b> la fille avait deja developpe des poils pubiens mais <b>ils sont tombes.</b> Par consequent, bien que la fille ne soit pas traitee avec la presomption qu'elle est adulte, elle n'a pas non plus le statut certain de mineure et ne peut pas effectuer de refus.
+
+### Partie 17
+La Gemara objecte : <b>Cela marche bien selon celui qui dit</b> que <b>nous sommes concernes</b> par la chute des poils pubiens. <b>Mais selon celui qui dit</b> que <b>nous ne sommes pas inquiets</b> qu'ils soient tombes, <b>qu'y a-t-il a dire ? Comme il a ete dit</b> que les <i>amoraim</i> n'etaient pas d'accord en ce qui concerne cette question. <b>Rav Pappa dit : Nous ne sommes pas concernes</b> que <b>peut-etre</b> les poils pubiens <b>sont tombes ; Rav Pappi dit : Nous sommes concernes</b> qu'ils aient pu tomber. La Guemara repond que <b>cette declaration</b> de Rav Pappa, selon laquelle on ne s'inquiete pas que peut-etre les poils pubiens soient tombes, ne s'applique que <b>en ce qui concerne la <i>halitza</i>, mais en ce qui concerne le refus</b> tout le monde s'accorde a dire que <b>on s'inquiete</b> qu'ils aient pu tomber.
+
+### Partie 18
+La Gemara demande : <b>Par deduction, celui qui dit</b> que <b>nous sommes preoccupes</b> par le fait que peut-etre les poils sont tombes maintient-il que cet enfant de douze ans <b>execute la <i>halitza</i> ? Mais</b> cela ne peut etre correct, car <b>il dit</b> que <b>nous sommes simplement preoccupes</b> par le fait que les cheveux auraient pu tomber, et non que c'est certainement le cas. Comment, alors, peut-elle executer <i>halitza</i> comme une adulte ?
+
+### Partie 19
+<b>Plutot,</b> Rava fait <b>actuellement</b> reference a un cas <b>ou l'on n'a pas examine</b> la jeune fille, <b>et en ce qui concerne la <i>halitza</i> nous sommes preoccupes</b> par le fait qu'elle pourrait ne pas avoir developpe de poils et etre encore mineure. <b>Et lorsque Rava a dit</b> qu'il y a <b>une presomption</b> qu'une personne de douze ans a developpe des signes indiquant la puberte, il faisait reference <b>au refus, mais en ce qui concerne <i>halitza</i> elle necessite un examen.</b>
+
+### Partie 20
+En ce qui concerne la question de savoir si l'on craint que des cheveux soient tombes, <b>Rav Dimi de Nehardeâ dit : La <i>halakha</i></b> est que si une fille atteint l'age de douze ans et qu'elle a ete examinee et que les signes de puberte n'ont pas ete trouves, <b>on s'inquiete</b> que <b>peut-etre</b> les poils pubiens <b>soient tombes.</b> Par consequent, si sa mere ou ses freres avaient accepte des fiancailles pour elle lorsqu'elle etait mineure, elle ne peut pas effectuer de refus a ce stade.
+
+### Partie 21
+La Guemara ajoute : <b>Et cette declaration</b> ne s'applique que dans un cas <b>ou</b> son mari l'a <b>fiancee pendant</b> le <b>temps,</b> avant qu'elle n'atteigne l'age de douze ans et un jour, <b>et a engage des rapports</b> avec elle <b>apres</b> le <b>temps,</b> alors qu'elle avait deja douze ans et un jour. C'est une situation <b>ou il y a une incertitude</b> par rapport a la <b>Loi de la Torah,</b> puisque si elle avait developpe deux cheveux et qu'elle est adulte, le mariage s'applique par la loi de la Torah, en raison du rapport sexuel. <b>Mais</b> s'il a engage des rapports sexuels avec elle seulement <b>au debut,</b> avant qu'elle ait douze ans, il n'y a <b>aucun souci</b> que peut-etre elle ait developpe des poils pubiens et qu'ils soient tombes, car ce mariage s'applique par la loi rabbinique.
+
+### Partie 22
+§ En ce qui concerne un mineur qui a fait un vœu, <b>Rav Huna dit :</b> Si le mineur est conscient de la signification de son vœu et au nom de Qui il a fait un vœu, et si l'age du mineur est pendant la periode, c'est-a-dire, la douzieme annee pour une fille ou la treizieme annee pour un garcon, et qu'il <b>consacre</b> un aliment <b>et</b> par la suite le <b>manger</b>, <b>il est fouette,</b> ce qui est la punition pour celui qui mange un aliment consacre.
+
+### Partie 23
+Rav Huna explique : <b>Comme il est dit : "Quand</b> soit <b>un homme</b> ou une femme <b>doit prononcer clairement un vœu"</b> (Nombres 6:2), d'ou il decoule que si quelqu'un a l'aube de l'age adulte est capable d'articuler que son vœu est au nom de Dieu, ses vœux sont valides. <b>Et</b> un autre verset stipule : <b>"Il ne profanera pas sa parole"</b> (Nombres 30:3). Cela indique que <b>Toute personne</b> <b>qui est</b> incluse <b>dans l'explicitation</b> de l'intention <b>est</b> egalement incluse <b>dans</b> l'interdiction : <b>"Il ne profanera pas</b> sa parole,<b>et toute personne qui n'est pas</b> incluse <b>dans l'explicitation</b> de l'intention <b>n'est pas</b> incluse <b>dans</b> l'interdiction : <b>"Il ne profanera pas</b> sa parole".
+
+### Partie 24
+<b>Rav Huna bar Yehuda souleve une objection</b> a Rava, <b>a l'appui</b> de l'opinion <b>du Rav Huna :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

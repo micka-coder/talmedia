@@ -1,0 +1,51 @@
+
+### Part 1
+<b>Does a cat</b> render an animal a <i>tereifa</i> through <b>clawing, or does a cat not</b> render it a <i>tereifa</i> through <b>clawing?</b> Rav <b>said to him: Even a weasel,</b> which is smaller than a cat, <b>does</b> render an animal a <i>tereifa</i> through <b>clawing.</b> Rav Kahana also asked him: <b>Does a weasel</b> render an animal a <i>tereifa</i> through <b>clawing, or does a weasel not</b> render it a <i>tereifa</i> through <b>clawing?</b> Rav <b>said to him: Even a cat does not</b> render an animal a <i>tereifa</i> through <b>clawing.</b>
+
+### Part 2
+Rav Kahana also asked him: With regard <b>to a cat and a weasel, do they</b> render an animal a <i>tereifa</i> through <b>clawing, or do they not</b> render it a <i>tereifa</i> through <b>clawing?</b> Rav <b>said to him: A cat does</b> render an animal a <i>tereifa</i> through <b>clawing,</b> but <b>a weasel does not</b> render it a <i>tereifa</i> through <b>clawing.</b>
+
+### Part 3
+The Gemara clarifies: <b>And</b> the apparent contradiction between these responses is <b>not difficult. That which</b> Rav <b>said to him: Even a weasel does</b> render an animal a <i>tereifa</i> through <b>clawing,</b> was stated <b>about</b> a case of clawed <b>birds. That which he said to him: Even a cat does not</b> render an animal a <i>tereifa</i> through <b>clawing,</b> was stated <b>about</b> a case of <b>adult sheep. That which</b> Rav <b>said to him: A cat does</b> render an animal a <i>tereifa</i> through <b>clawing,</b> but <b>a weasel does not</b> render it a <i>tereifa</i> through <b>clawing,</b> was stated <b>about</b> a case of <b>kids and lambs.</b>
+
+### Part 4
+§ The mishna states that a small bird clawed by a hawk is a <i>tereifa</i>. <b>Rav Ashi raises a dilemma:</b> With regard to <b>other non-kosher birds</b> beside a hawk, <b>do they</b> render a bird a <i>tereifa</i> through <b>clawing, or do they not</b> render it a <i>tereifa</i> through <b>clawing? Rav Hillel said to Rav Ashi: When we were in the study hall of Rav Kahana, he said: Other non-kosher birds do</b> render a bird a <i>tereifa</i> through <b>clawing.</b>
+
+### Part 5
+The Gemara asks: <b>But didn’t we learn</b> in the mishna: <b>Or</b> if it was <b>clawed by a hawk in</b> the case of <b>a small bird,</b> it is a <i>tereifa</i>? Apparently, only a hawk renders a small bird a <i>tereifa</i> through clawing. The Gemara responds: The mishna means that a small bird <b>clawed by a hawk</b> is rendered a <i>tereifa</i> even <b>in</b> a case <b>where</b> it is as large <b>as</b> the hawk. <b>But these</b> other non-kosher birds can render a small bird a <i>tereifa</i> only <b>in</b> a case <b>where</b> it is <b>smaller than them. And there are</b> those <b>who say:</b> A small bird <b>clawed by a hawk</b> is rendered a <i>tereifa</i> even <b>in</b> a case <b>where</b> it is <b>larger than</b> the hawk. <b>But these</b> other non-kosher birds can render a small bird a <i>tereifa</i> only <b>in</b> a case <b>where</b> it is, at most, as large <b>as them.</b>
+
+### Part 6
+§ <b>Rav Kahana said in the name of Rav Shimi bar Ashi: A fox does not</b> render an animal a <i>tereifa</i> through <b>clawing.</b> The Gemara asks: <b>Is that so? But when Rav Dimi came</b> from Eretz Yisrael to Babylonia <b>he said:</b> There was <b>an incident</b> in which <b>a fox clawed a ewe in the bathhouse of Beit Hini, and the incident came before the Sages, and they said:</b> This <b>is</b> a case of <b>clawing. Rav Safra said</b> in response: In <b>that</b> case the predator <b>was a cat,</b> not a fox.
+
+### Part 7
+<b>There are</b> those <b>who say</b> the above exchange differently: <b>Rav Kahana said in the name of Rav Shimi bar Ashi: A fox does</b> render an animal a <i>tereifa</i> through <b>clawing.</b> The Gemara asks: <b>Is that so? But when Rav Dimi came</b> from Eretz Yisrael to Babylonia <b>he said:</b> There was <b>an incident</b> in which <b>a fox clawed a ewe in the bathhouse of Beit Hini, and the incident came before the Sages, and they said:</b> This is <b>not</b> a case of <b>clawing. Rav Safra said</b> in response: In <b>that</b> case the predator <b>was a dog,</b> not a fox. And <b>Rav Yosef said: We have a tradition</b> that <b>a dog does not</b> render an animal a <i>tereifa</i> through <b>clawing.</b>
+
+### Part 8
+§ With regard to the definition of clawing that renders an animal a <i>tereifa</i>, <b>Abaye said: We have a tradition: Clawing is only with the foreleg, to the exclusion of</b> clawing with the <b>hind leg, which does not</b> render the animal a <i>tereifa</i>. Additionally, <b>clawing is only with the claw, to the exclusion of</b> savaging with the <b>tooth, which does not</b> render the animal a <i>tereifa</i>, because the teeth contain no venom. And <b>clawing is only through an intentional</b> act, <b>to the exclusion of an unintentional</b> act, <b>which does not</b> render the animal a <i>tereifa</i>, e.g., if the predator accidentally fell on the prey with its claws outstretched. And <b>clawing is only while</b> the predator is <b>alive, to the exclusion of</b> a case where it clawed an animal <b>after death, which does not</b> render the animal a <i>tereifa</i>.
+
+### Part 9
+The Sages <b>say: Now</b> that <b>you said</b> that <b>an unintentional</b> act of clawing does <b>not</b> render an animal a <i>tereifa</i>, <b>is</b> it <b>necessary</b> to say that clawing <b>after death</b> is ineffective? The Gemara responds: <b>No,</b> it is <b>necessary</b> to teach this <i>halakha</i> for a case <b>where</b> the predator <b>clawed</b> while still alive, <b>and they cut off its hand</b> with its claws still inside the prey’s flesh. <b>Lest you say: It injects its venom while it claws,</b> Abaye <b>teaches us</b> that <b>it injects its venom while it withdraws</b> its claws. Accordingly, where the venom has yet to be injected before its death, i.e., before its hand is severed, the animal is kosher.
+
+### Part 10
+§ <b>Rabba bar Rav Huna says</b> that <b>Rav says:</b> If <b>a lion entered among the oxen, and</b> afterward <b>a claw was found</b> stuck <b>in the back of one of</b> the oxen, <b>one</b> need <b>not be concerned</b> that <b>perhaps</b> the <b>lion clawed it. What is the reason</b> for this? Even though <b>a majority of lions claw</b> their prey <b>and</b> only <b>a minority of them do not claw,</b> still, it is known with regard to <b>any</b> lion <b>that claws</b> that <b>its claw is not ripped out</b> in the process. <b>And</b> therefore, with regard to <b>this</b> ox, <b>since a claw sits in its back, say</b> that <b>it rubbed against a wall</b> that had a claw embedded in it.
+
+### Part 11
+The Gemara objects: <b>On the contrary,</b> say that even though <b>a majority of oxen rub</b> against the wall <b>and</b> only <b>a minority do not rub,</b> still, it is known with regard to <b>any</b> ox <b>that rubs</b> that <b>a claw does not sit in its back. And</b> therefore, with regard to <b>this</b> ox, <b>since a claw sits in its back, say</b> that the <b>lion clawed it.</b>
+
+### Part 12
+The Gemara responds: <b>One can say this, and one can say that.</b> Therefore, <b>establish the matter</b> according to <b>its presumptive status,</b> in which case the ox is not a <i>tereifa</i>. Accordingly, the ox is permitted because <b>this</b> case <b>is</b> one of <b>uncertainty</b> as to whether the animal was <b>clawed, and Rav</b> conforms <b>to his</b> standard line of <b>reasoning, as he says: One</b> need <b>not be concerned</b> in a case of <b>uncertainty</b> as to whether an animal was <b>clawed.</b>
+
+### Part 13
+<b>Abaye said: We said</b> that one need not be concerned that the lion clawed the ox <b>only</b> when the <b>claw</b> was found in its back, since it is known that a claw is not ripped out during clawing. <b>But</b> if only <b>the spot of a claw</b> was found, i.e., a perforation, <b>one must be concerned. And even</b> if the <b>claw</b> was found in its back, <b>we said</b> that one need not be concerned <b>only</b> when it was <b>moist,</b> since this indicates it was well connected to the flesh. Accordingly, if the lion had clawed the ox, this claw would not have been ripped out. <b>But</b> if the claw was <b>dry,</b> one must be concerned, because <b>it happens that</b> such a claw <b>is ripped out</b> during clawing.
+
+### Part 14
+<b>And</b> with regard to <b>a moist</b> claw <b>as well, we said</b> that one need not be concerned <b>only</b> when <b>one</b> claw was found in its back. <b>But</b> if there were <b>two or three</b> claws embedded in its back, <b>we must be concerned,</b> because multiple claws were not likely to be embedded in the wall. <b>And this is</b> the <i>halakha</i> only <b>where they are situated in a row as</b> they are in the <b>paw of</b> a lion.
+
+### Part 15
+§ It <b>was stated: Rav says: One</b> need <b>not be concerned</b> in a case of <b>uncertainty</b> as to whether an animal was <b>clawed. And Shmuel says: One must be concerned</b> in a case of <b>uncertainty</b> as to whether an animal was <b>clawed,</b> and the animal must be inspected.
+
+### Part 16
+The Gemara explains: <b>Everyone</b> agrees that in a case where it is <b>uncertain</b> whether a predator <b>entered</b> the pen or coop and <b>uncertain</b> whether it <b>did not enter, I will say</b> that <b>it did not enter.</b> Furthermore, if it is known that an animal entered but it is <b>uncertain</b> whether it was <b>a dog</b> and <b>uncertain</b> whether it was <b>a cat, I will say</b> that it was <b>a dog,</b> which cannot render an animal a <i>tereifa</i> through clawing. And even if a predator <b>entered,</b> but it <b>was quiet and sat among</b> the animals, <b>I will say it made peace</b> with them, as though it were tame, and did not claw them. And if it <b>decapitated one of them,</b> I will say that its <b>anger subsided</b> afterward, and it did not claw other animals. And if <b>it was roaring and they were clucking,</b> I will say that <b>they are</b> only <b>frightening</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

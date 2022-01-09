@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>De peur</b> que les <b>jeunes pretres [<i>pirhei khehuna</i>]</b> presents <b>ne soient excites par elle</b> lorsqu'elle decouvre ses cheveux en leur presence. Un des autres Sages a dit a Rabbi Shimon Shezuri : <b>Selon votre affirmation,</b> le cas d'une <b>sota</i> prouvera</b> que ce n'est pas un souci, <b>car il est ecrit a son sujet : "Et il la placera devant le Seigneur"</b> (Nombres 5:16), <b>et</b> pourtant <b>nous ne sommes pas inquiets</b> que <b>peut-etre</b> les <b>jeunes pretres seront excites par elle</b> lorsque ses cheveux seront decouverts.
+
+### Partie 2
+Rabbi Shimon Shezuri <b>leur dit :</b> Il y a une difference entre une femme nazirite et une <i>sota</i>. <b>Celle-ci</b>, la nazirite, <b>peint</b> ses yeux <b>bleus [<i>kohelet</i>] et applique du fard [<i>fokeset</i>]</b> sur son visage, et on craint donc que les jeunes pretres soient excites par son apparence. En revanche, <b>cette</b>-la, la <i>sota</i>, <b>ne met pas de fard a paupieres bleu</b> <b>et</b> n'applique pas de <b>fard a joues.</b> Puisqu'une <i>sota</i> n'est pas embellie, mais qu'on la fait paraitre miserable et qu'elle a l'air echevelee, on ne craint pas qu'elle puisse exciter les hommes.
+
+### Partie 3
+<strong>MISHNA :</strong> Apres que le nazirite se soit rase les cheveux, <b>il prenait les cheveux de sa tete consacree et les jetait</b> <b>sous le pot</b> dans lequel etait cuit le sacrifice de paix, ou ils brulaient. <b>Et si</b> le nazirite <b>se rasait dans</b> le reste du pays,</b> c'est-a-dire en dehors du Temple, <b>il ne jetterait pas</b> les cheveux <b>sous le pot. Dans quel</b> cas <b>cette affirmation est-elle dite ? </b> Elle est dite <b>en ce qui concerne le rasage de la purete. Cependant, en ce qui concerne le rasage d'impurete,</b> c'est-a-dire le rasage qui accompagnait son offrande de culpabilite et son offrande de peche d'oiseaux apres que son terme de nazireat ait ete interrompu par l'impurete, <b>il ne jetterait pas</b> ses cheveux <b>sous le pot</b> dans lequel ses offrandes etaient cuites, car la Torah a enonce cette exigence uniquement pour un nazireat pur.
+
+### Partie 4
+<b>Rabbi Meir dit : Tout le monde jette</b> ses cheveux <b>sous la marmite,</b> y compris un nazirite pur qui s'est rase a l'exterieur du Temple et un nazirite impur, <b>a l'exception d'un nazirite impur</b> <b>qui s'est rase dans le</b> reste du pays.</b> Dans ce cas <b>seul</b> il s'abstient de jeter ses cheveux pour etre brules sous son offrande.
+
+### Partie 5
+<strong>GEMARA : </strong>La mishna precise qu'il <b>prendrait les cheveux de sa tete consacree. Les Sages ont enseigne : Et ensuite,</b> apres avoir cuit l'offrande de paix, il <b>prend la sauce [<i>rotev</i>]</b> dans laquelle l'offrande avait ete cuite, <b>le place</b> sur les <b>cheveux rases de sa tete consacree, et jette</b> les cheveux <b>sous le pot de</b> son <b>offrande de paix. Et s'il a jete</b> ses cheveux <b>sous le pot de</b> l'<b>offrande de peche ou</b> l'<b>offrande de culpabilite, il a rempli</b> son obligation apres coup. La Guemara exprime sa surprise face a cette affirmation : <b>Y a-t-il un sacrifice de culpabilite</b> apporte <b>par un nazirite pur ?</b> Seul un nazirite impur apporte un sacrifice de culpabilite. <b>Rava a dit</b> que <b>c'est ce que</b> le <i>tanna</i> <b>a dit,</b> c'est-a-dire qu'il a voulu dire : <b>Et si un nazirite impur a jete</b> ses cheveux <b>sous le pot de</b> l'<b>offrande de culpabilite, il a rempli</b> son obligation.
+
+### Partie 6
+La Gemara demande : <b>D'ou proviennent ces questions</b>, qu'il doit verser la sauce de l'offrande sur ses cheveux ? <b>Rava dit</b> que comme <b>le verset dit :</b> "Il prendra les cheveux de sa tete consacree et les mettra sur le feu <b>qui est sous le sacrifice de l'offrande de paix"/b> (Nombres 6:18), cela indique qu'une partie <b>de son sacrifice doit etre sous</b> les cheveux.
+
+### Partie 7
+En ce qui concerne la declaration de la <i>baraita</i> : <b>Et s'il a jete</b> ses cheveux <b>sous le pot de</b> l'<b>offrande de peche, il a rempli</b> son obligation, la Gemara demande : <b>Quelle est la raison</b> pour cela ? La Guemara repond que <b>Le verset dit:</b> "Le <b>sacrifice</b> du sacrifice de paix," alors qu'il aurait pu simplement dire : Le sacrifice de paix. Cela sert <b>a inclure le sacrifice pour le peche et</b> le <b>sacrifice de culpabilite,</b> qui sont egalement des sacrifices. La Gemara demande : <b>Mais vous avez</b> deja <b>derive</b> de <b>ce terme</b> <b>Sacrifice"</b> qu'il doit verser une partie <b>de la sauce</b> du sacrifice de paix sur ses cheveux. La Guemara repond : <b>Si oui, que le verset dise</b> explicitement : <b>De la sauce du sacrifice de paix. Pourquoi</b> est-il dit : <b>"Sacrifice" ? Apprenez d'ici</b> que cela sert <b>a inclure le sacrifice pour le peche et</b> le <b>sacrifice de culpabilite.</b>
+
+### Partie 8
+La Guemara remet en cause cette affirmation sous un angle different : <b>Et</b> on peut <b>dire</b> que ce verset <b>arrive entierement</b> pour enseigner <b>le sacrifice pour le peche et le sacrifice de culpabilite,</b> et qu'il ne fait pas du tout reference a la sauce. La Guemara repond : <b>Si c'est le cas, qu'elle dise : Le sacrifice de paix et un sacrifice;</b> pour <b>quelle</b> raison ecrit-on : <b>"Le sacrifice de l'offrande de paix" ? Concluez deux</b> conclusions <b>a partir</b> du verset.
+
+### Partie 9
+§ <b>Les Sages ont enseigne</b> (<i>Tosefta</i> 4:6) : <b>Tous</b> les nazirites <b>jetaient</b> leurs cheveux <b>sous la marmite, a l'exception d'un nazirite impur</b> <b>qui se rasait dans</b> le reste du pays, parce que</b> que l'on <b>s'enterre les cheveux.</b> C'est <b>la declaration de Rabbi Meir. Rabbi Yehuda dit : Les nazirites purs</b>, qu'ils soient <b>ici ou la,</b> a l'interieur ou a l'exterieur du Temple, <b>jetteraient</b> leurs cheveux sous le pot ; les <b>impurs</b> nazirites, qu'ils soient <b>ici ou la, ne les jetteraient pas</b>. <b>Et les rabbins disent : Personne ne jetterait</b> ses cheveux <b>sous le pot, sauf un nazirite pur</b> <b>dans le Temple, car</b> c'est seulement dans ce cas que la mitsva <b>est executee correctement,</b> comme le commande la Torah.
+
+### Partie 10
+<strong>MISHNA :</strong> Le nazirite <b>cuit le sacrifice de paix ou le fait trop cuire,</b> c'est-a-dire qu'il le cuit a cœur. <b>Le pretre prend la patte avant cuite du belier, et un pain sans levain du panier, et une galette sans levain, et les place</b> <b>sur les paumes du nazirite et les agite,</b> comme decrit dans la Torah (Nombres 6:19""20). <b>Et apres cela, le nazirite est autorise a boire du vin et a contracter l'impurete rituelle</b> communiquee <b>par un cadavre.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

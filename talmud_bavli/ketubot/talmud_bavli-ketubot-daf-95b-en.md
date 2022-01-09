@@ -1,0 +1,42 @@
+
+### Part 1
+<b>But it is a daily occurrence</b> that courts permit creditors to collect from liened property in cases where the unsold property became ruined, <b>as</b> in the case of <b>a certain man who mortgaged his orchard [<i>pardeisa</i>] to another</b> person <b>for ten years,</b> thereby allowing the latter to consume the produce as payment of the loan that the owner of the orchard owed him. After <b>five years</b> the orchard <b>grew old</b> and no longer produced as it once did. The creditor <b>came before the Sages</b> to argue his claim, <b>and they wrote him</b> a document of <b>authorization to repossess</b> liened property from those who purchased land from the debtor after the giving of the loan. This proves that if unsold property becomes unproductive, a creditor may collect his debt from liened property.
+
+### Part 2
+The Gemara answers: <b>There too, it was they,</b> the purchasers, <b>who brought this loss upon themselves since they know that an orchard tends to age.</b> Therefore, <b>they should not have purchased</b> the land from the debtor because they should have realized that there was a chance that he would be unable to pay off his debt with the fruits of the orchard, and the creditor would repossess the land they were purchasing.
+
+### Part 3
+The Gemara concludes: <b>And the <i>halakha</i></b> is that if <b>unsold</b> property <b>became blighted,</b> the creditor <b>may repossess liened</b> property that has been sold to a third party.
+
+### Part 4
+<b>Abaye said:</b> If a man said to an unmarried woman: <b>My property</b> is hereby bequeathed <b>to you, and after you</b> die it will pass <b>to so-and-so, and</b> the woman <b>went and married</b> someone and then died, <b>her husband</b> takes possession of the property and <b>is</b> considered <b>a purchaser,</b> i.e., it is as if the woman sold him the property. <b>And</b> the individual that the man had designated to receive the property <b>after you,</b> i.e., after the woman, receives <b>nothing</b> in a case <b>where there is a husband.</b> This is because during the time that the property belongs to the woman it is hers completely, and all transactions she performs are considered valid. Consequently, her husband, who is considered a purchaser, may keep the property after her death.
+
+### Part 5
+The Gemara asks: <b>In accordance with whose</b> opinion did Abaye rule? The Gemara answers: <b>In accordance with</b> the opinion of <b>this <i>tanna</i>, as it is taught</b> in a <i>baraita</i> that if one says: <b>My property</b> is hereby bequeathed <b>to you, and after you</b> die it will pass <b>to so-and-so,</b> and <b>the first</b> beneficiary <b>entered,</b> i.e., took possession of the field, <b>and sold</b> it, <b>the second</b> beneficiary has the right to <b>repossess</b> that property <b>from the purchasers</b> upon the death of the first beneficiary. This is <b>the statement of Rabbi</b> Yehuda HaNasi, who holds that the first beneficiary had the right to use the property, but not to permanently transfer it to someone else. <b>Rabban Shimon ben Gamliel says: The second</b> beneficiary <b>has</b> a claim <b>only</b> to <b>that which the first</b> beneficiary <b>left</b> in his possession and did not transfer to anyone else. Abaye ruled in accordance with the opinion of Rabban Shimon ben Gamliel.
+
+### Part 6
+The Gemara asks: <b>And did Abaye</b> actually <b>say so? Didn’t Abaye</b> himself <b>say: Who is a wily, wicked person? One who gives</b> his fellow <b>advice to sell</b> his <b>property in accordance with</b> the ruling of <b>Rabban Shimon ben Gamliel</b> in order to prevent the second beneficiary from taking possession of the property.
+
+### Part 7
+The Gemara answers: <b>Did he say</b> that the woman <b>should</b> be advised to <b>marry</b> in order to deprive the second beneficiary? <b>He said</b> his ruling with regard to a case where the woman <b>married</b> because it is the way of the world that a woman gets married. She did not do this in order to deprive the second heir of his property; it is merely a consequence of the fact that she did get married that her properties ended up in her husband’s possession.
+
+### Part 8
+The Gemara presents another statement of Abaye with regard to this subject: <b>And Abaye said:</b> If one says to a married woman: <b>My property</b> is hereby bequeathed <b>to you, and after you</b> die it will pass <b>to so-and-so, and she sold</b> the property <b>and</b> subsequently <b>died, the husband</b> can <b>repossess</b> the property <b>from the purchasers.</b> Because he himself is considered a purchaser, he is the first purchaser in line, and is therefore entitled to repossess property from other purchasers. <b>And</b> the individual originally designated to receive the property <b>after you,</b> i.e., after the woman, can repossess the property <b>from the possession</b> of <b>the husband</b> since he had the right to receive the property after the woman. <b>And</b> then <b>the purchaser may repossess</b> it <b>from the possession of</b> the individual designated to receive it <b>after you,</b> since he purchased it from the first beneficiary, i.e., the woman. Finally, <b>the property is established in the possession of the purchaser.</b>
+
+### Part 9
+The Gemara asks: In <b>what</b> way <b>is</b> this case <b>different from that which we learned</b> in <b>the mishna:</b> They <b>continue</b> to do so according to this <b>cycle until they</b> agree on a <b>compromise between them?</b> The Gemara answers: <b>There,</b> in the case of the mishna, <b>they all</b> stand to <b>incur a loss,</b> as the purchasers paid money for their property and the woman has a monetary claim to collect her marriage settlement. <b>Here, it is</b> only the <b>purchaser who</b> stands to <b>incur a loss,</b> as he paid for the property, while the others received it as a gift.
+
+### Part 10
+<b>Rafram went and stated this <i>halakha</i> before Rav Ashi</b> and then asked him: <b>Did Abaye</b> actually <b>say this? Didn’t Abaye say:</b> If a man said to a woman: <b>My property</b> is hereby bequeathed <b>to you, and after you</b> die it will pass <b>to so-and-so,</b> and the woman <b>went and married</b> someone, <b>her husband is</b> considered <b>a purchaser, and</b> the individual that the man had designated to receive the property <b>after you,</b> i.e., after the woman, receives <b>nothing</b> in a case <b>where there is a husband.</b> If the husband is considered to be a purchaser, why, according to Abaye’s second ruling, does the later purchaser receive the property?
+
+### Part 11
+Rav Ashi <b>said to him: There,</b> in the case where the husband acquires exclusive rights to the property, it is <b>where</b> the original owner <b>spoke to</b> the woman <b>while she was</b> still <b>unmarried,</b> while <b>here,</b> in the latter case, <b>he spoke to her when she was</b> already <b>married. What he is saying to her</b> by making this statement even though she is already married and her husband is her heir, is that the individual designated to receive the property <b>after you shall acquire</b> the property, and your <b>husband shall not acquire</b> it. Consequently, the husband does not attain rights to this property.
+
+### Part 12
+§ The mishna taught: <b>And so too,</b> with regard to <b>a creditor,</b> and so too, with regard to a female creditor. The Gemara explains this phrase based upon what was <b>taught</b> in a <i>baraita</i>: <b>And so too,</b> in a case where one owes one hundred dinars to <b>a creditor</b> and he sells property worth fifty dinars each to <b>two purchasers.</b> If the creditor waives his right to repossess the property from the second purchaser, he can still repossess the property from the first purchaser. The first purchaser can then repossess from the second purchaser, the creditor can repossess that property from the first purchaser, and the second purchaser can reclaim it from the creditor. This cycle continues until they reach a compromise.
+
+### Part 13
+<b>And so too,</b> in the case of <b>a female creditor,</b> i.e., a woman who seeks to collect her marriage contract from her husband’s estate, <b>and two purchasers</b> who purchased his property from him.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

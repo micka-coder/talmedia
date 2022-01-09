@@ -1,0 +1,57 @@
+
+### Partie 1
+alors si les juges <b>sont d'accord, ils ne devraient pas</b> avoir besoin de <b>payer</b> la partie qu'ils ont lesee, car ils peuvent pretendre qu'ils ont ete empeches d'examiner les temoins de maniere efficace. La Gemara repond : Si cela devait etre la <i>halakha</i>, <b>d'autant plus que</b> cela <b>fermerait la porte au nez</b> des <b>emprunteurs potentiels.</b> Si les gens savent que les tribunaux ne sont pas responsables d'une erreur de jugement, ils ne seront pas disposes a preter de l'argent.
+
+### Partie 2
+<b>Rava dit :</b> La decision de <b>la mishna ici,</b> selon laquelle les cas de droit monetaire necessitent une enquete et un interrogatoire, est enoncee <b>en ce qui concerne les lois sur les amendes,</b> et non les cas standards de droit monetaire. <b>Et les autres</b> sources, c'est-a-dire la mishna dans le tractate <i>Sheviit</i> et le <i>baraita</i>, qui n'exigent pas d'enquete et d'interrogation, sont enoncees <b>en ce qui concerne</b> les cas d' <b>admissions et de prets,</b> dans lesquels il y a lieu d'assouplir les procedures de deliberation, comme explique.
+
+### Partie 3
+<b>Rav Pappa dit : Ceci et cela,</b> c'est-a-dire, a la fois la mishna ici et les autres sources, sont enonces <b>en ce qui concerne</b> les cas d' <b>une admission et d'un pret.</b> La distinction entre eux est que la mishna <b>ici,</b> qui regle que les cas de droit monetaire necessitent une enquete et un interrogatoire, est enoncee <b>en ce qui concerne</b> un possible <b>proces frauduleux,</b> ou le tribunal soupconne qu'une partie tente de frauder l'autre partie et d'avoir des temoins qui offrent un faux temoignage en son propre nom. <b>La,</b> dans le <i>baraita</i> et dans la mishna du tractate <i>Sheviit</i>, qui ne necessitent pas d'enquete et d'interrogatoire, la decision est enoncee <b>en ce qui concerne un proces qui</b> ne semble <b>pas</b> <b>frauduleux.</b>
+
+### Partie 4
+Cette distinction est <b>conforme</b> a la declaration <b>de Reish Lakish, car Reish Lakish souleve une contradiction</b> entre deux versets : Il <b>est ecrit</b> dans un verset : <b>"En justice tu jugeras ton prochain"</b> (Levitique 19:15), <b>et</b> il <b>est ecrit</b> dans un autre verset : <b>"Justice, justice, tu suivras"</b> (Deuteronome 16:21), la repetition indiquant qu'il ne suffit pas de juger avec justice. Il poursuit : <b>Comment</b> peut-on reconcilier <b>ces textes</b> ? <b>Ici,</b> ce dernier verset est enonce <b>en ce qui concerne</b> un proces eventuellement <b>frauduleux,</b> ou le tribunal doit prendre un soin supplementaire pour juger avec justice ; et <b>la,</b> ce premier verset est enonce <b>en ce qui concerne un proces qui</b> ne semble <b>pas</b> frauduleux.</b>
+
+### Partie 5
+<b>Rav Ashi dit :</b> La decision de <b>la mishna ici,</b> que les cas de droit monetaire necessitent une enquete et un interrogatoire, est <b>comme nous l'avons repondu,</b> c'est-a-dire en accord avec l'une ou l'autre des reponses proposees par les autres <i>amoraim</i>. Et ces <b>verses</b> n'ont pas ete enoncees en ce qui concerne les proces frauduleux ; plutot, <b>une</b> est enoncee <b>en ce qui concerne le jugement,</b> dans lequel le tribunal doit poursuivre la justice de maniere extensive, <b>et une</b> est enoncee <b>en ce qui concerne le compromis.</b>
+
+### Partie 6
+<b>Comme il est enseigne</b> dans un <i>baraita</i> : Lorsque le verset indique : <b>Justice, justice, suivrez-vous ?</b>, une</b> mention de "justice" est enoncee <b>en ce qui concerne le jugement et une</b> est enoncee <b>en ce qui concerne le compromis. Comment cela ? </b> Lorsqu'il y a <b>deux bateaux qui voyagent sur la riviere et qu'ils se rencontrent, si les deux</b> tentent de <b>passer, les deux coulent,</b> car la riviere n'est pas assez large pour que les deux passent. S'ils passent <b>l'un apres l'autre, les deux passent. Et de meme,</b> lorsqu'il y a <b>deux chameaux qui montaient la montee de Beit Horon,</b> ou il y a un chemin etroit et escarpe, <b>et qu'ils se rencontrent, si les deux</b> tentent de <b>monter, les deux tombent.</b> S'ils montent <b>un apres l'autre, les deux montent.</b>
+
+### Partie 7
+<b>Comment</b> decide-t-on lequel d'entre eux doit partir en premier ? S'il y a un bateau qui est <b>charge et</b> un bateau <b>qui n'est pas charge,</b> les besoins de celui <b>qui n'est pas charge doivent etre supplantes en raison</b> des besoins de celui <b>qui est charge. </b> S'il y a un bateau qui est <b>proche</b> de sa destination <b>et</b> un bateau <b>qui n'est pas proche</b> de sa destination, les besoins de celui qui est <b>proche doivent etre supplantes en raison</b> des besoins de celui <b>qui n'est pas proche. </b> Si <b>les deux etaient proches</b> de leurs destinations, ou <b>les deux etaient eloignes</b> de leurs destinations, <b>imposer un compromis entre eux</b> pour decider lequel part en premier, <b>et</b> les proprietaires des bateaux <b>paient une redevance a l'autre,</b> c'est-a-dire, les proprietaires du premier bateau dedommagent le proprietaire du bateau qui attend, pour toute perte subie.
+
+### Partie 8
+§ <b>Les Sages ont enseigne:</b> Le verset stipule : <b>"Justice, justice, tu suivras.</b> Cela enseigne qu'il faut <b>suivre le meilleur,</b> le plus prestigieux, <b>le tribunal</b> de la generation. Par exemple, suivre <b>apres Rabbi Eliezer a Lod, apres Rabban Yohanan ben Zakkai a Beror Hayil.</b>
+
+### Partie 9
+Les Sages <b>enseignent :</b> Lorsque les autorites paiennes ont emis des decrets interdisant l'observation des mitzvot, les membres des communautes juives ont imagine des moyens clandestins pour indiquer l'observation des mitzvot les uns aux autres. Par exemple : Si l'on produit <b>le son d'une meule dans</b> la ville appelee <b>Burni,</b> cela equivaut a annoncer : <b>Semaine du fils, semaine du fils,</b> c'est-a-dire qu'il y aura une circoncision. Si on affiche la <b>lumiere d'une lampe dans</b> la ville appelee <b>Beror Hayil,</b> cela equivaut a annoncer : Il y a une <b>fete de mariage la,</b> il y a une <b>fete de mariage la.</b>
+
+### Partie 10
+<b>Les Sages ont enseigne :</b> Le verset dit : <b>"Justice, justice, tu suivras.</b> Cela enseigne qu'il faut <b>suivre les Sages a l'academie</b> ou ils se trouvent. Par exemple, suivre <b>apres Rabbi Eliezer a Lod, apres Rabban Yohanan ben Zakkai a Beror Hayil, apres Rabbi Yehoshua a Pekiin, apres Rabban Gamliel a Yavne, apres Rabbi Akiva a Bnei Brak, apres Rabbi Matya a Rome [<i>Romi</i>], apres Rabbi Hananya ben Teradyon a Sikhnei, apres Rabbi Yosei a Tzippori, apres Rabbi Yehuda ben Beteira a Netzivin, apres Rabbi Yehoshua a l'exil [<i>gola</i>],</b> c'est-a-dire. e., Babylonie, <b>apres Rabbi</b> Yehuda HaNasi <b>a Beit Sheârim,</b> et <b>apres les Sages</b> a l'epoque du Temple <b>a la Chambre de la pierre taillee.</b>
+
+### Partie 11
+§ La mishna enseigne que dans les cas de <b>droit monetaire,</b> le tribunal <b>ouvre</b> les deliberations soit avec une demande d'exemption de l'accuse, soit avec une demande de le declarer responsable. Dans les cas de droit capital, le tribunal ouvre les deliberations avec une demande d'acquittement de l'accuse, mais n'ouvre pas les deliberations avec une demande de reconnaissance de sa responsabilite. La Gemara demande : <b>Comment dit-on</b> cette etape d'ouverture des deliberations ? En d'autres termes, avec quelle pretention le tribunal commence-t-il a deliberer ? <b>Rav Yehuda dit : Nous disons ceci aux</b> temoins : <b>Qui dit</b> que l'evenement s'est produit <b>comme vous l'avez dit?</b> Peut-etre avez-vous commis une erreur ?
+
+### Partie 12
+<b>Ulla lui dit : Mais</b> en confrontant les temoins de cette maniere, <b>on les reduit au silence.</b> Les temoins penseront que le tribunal les soupconne de mentir, et ils ne temoigneront pas. Rav Yehuda lui a repondu : <b>Et qu'ils soient reduits au silence. N'est-ce pas enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i> 9:1) : <b>Rabbi Shimon ben Eliezer dit :</b> Dans les cas de loi capitale, le tribunal <b>amene les temoins d</b> un <b>lieu a</b> un autre <b>lieu afin de les confondre pour qu'ils retractent</b> leur temoignage s'ils mentent.
+
+### Partie 13
+La Guemara rejette cet argument : <b>Est-ce que</b> les <i>halakhot</i> <b>sont comparables ? La-bas,</b> ou Rabbi Shimon ben Eliezer dit d'amener les temoins de lieu en lieu, les temoins <b>sont reprimes par eux-memes,</b> alors que <b>ici, on les reprime par</b> <b>action directe,</b> et que le tribunal ne doit pas faire.
+
+### Partie 14
+<b>Au contraire, Ulla dit : Nous disons ceci</b> a l'accuse : <b>Avez-vous des temoins pour determiner</b> que les temoins qui ont temoigne contre vous sont des <b>temoins conspirateurs ? Rabba lui dit : Mais ouvrons-nous</b> les deliberations <b>avec</b> une pretention a <b>acquitter</b> l'accuse <b>c'est-a-dire</b> a <b>la responsabilite de celui-ci</b>, c'est-a-dire des temoins ? Cette pretention peut conduire les temoins a engager leur responsabilite pour leur temoignage.
+
+### Partie 15
+La Guemara remet en question l'hypothese de Rabba : <b>Mais est-ce</b> a <b>la responsabilite</b> des temoins ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Makkot</i> 5b) : <b>Les temoins conspirateurs ne sont pas tues</b> pour leur temoignage <b>jusqu'a ce que le verdict</b> de celui au sujet duquel ils ont temoigne <b>soit rendu ?</b> Par consequent, s'il sera demontre qu'ils sont des temoins conspirateurs a ce stade precoce de la procedure, ils ne seront pas responsables.
+
+### Partie 16
+La Guemara reprend l'objection de Rabba : <b>Voici</b> ce que <b>je dis : Si</b> l'accuse <b>se tait jusqu'a l'emission de son verdict et</b> qu'ensuite il <b>apporte des temoins et</b> que le tribunal <b>determine qu'ils</b> sont des temoins <b>conspirateurs</b>, on trouvera que la declaration du tribunal <b>est</b> a <b>la responsabilite de celui-ci</b>, c'est-a-dire des temoins. <b>Au contraire, Rabba dit : Nous disons a</b> l'accuse : <b>Avez-vous des temoins pour les contredire ?</b> Si les premiers temoins sont contredits quant aux faits de l'affaire, personne n'est responsable.
+
+### Partie 17
+<b>Rav Kahana a dit :</b> On dit aux temoins : <b>Sur la base de vos declarations, untel est acquitte.</b> Le tribunal emet une declaration <i>pro forma</i> selon laquelle il est possible de trouver une raison d'acquitter sur la base des temoignages des temoins, puis ils commencent les deliberations. <b>Abaye et Rava disent tous les deux : On dit a</b> l'accuse : Par exemple, <b>si vous n'avez tue</b> personne, <b>ne craignez pas</b> les consequences de cette procedure, car vous serez acquitte. <b>Rav Ashi dit :</b> Le tribunal annonce : <b>Quiconque connait</b> une raison <b>d'acquitter</b> l'accuse <b>doit venir et enseigner</b> cette raison <b>le concernant.</b>
+
+### Partie 18
+La Guemara commente : <b>Il est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'explication <b>de Abaye et de Rava. Rabbi</b> Yehuda HaNasi <b>Dit :</b> Le pretre qui administre le rite de la <i>sota</i> a la <i>sota</i> lui dit : <b>Si aucun homme n'a couche avec toi et si tu ne t'es pas egaree</b> vers l'impurete alors que tu etais sous la coupe de ton mari, tu seras liberee de cette eau d'amertume qui provoque la malediction. Mais si tu t'es egaree sous ton mari"¦" (Nombres 5:19""20). Le pretre enonce d'abord le scenario dans lequel la femme est innocente d'adultere.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

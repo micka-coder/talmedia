@@ -1,0 +1,30 @@
+
+### Partie 1
+<strong>MISHNA : </strong>En ce qui concerne <b>une veuve qui attend son <i>yavam</i></b> pour celebrer le mariage levirat, <b>si</b> elle attend <b>un <i>yavam</i>, </b> si son defunt mari n'avait qu'un seul frere, ou <b>si</b> elle attend <b>deux</b> ou plus <b><i>yevamin</i>,</b> s'il avait plusieurs freres, <b>Rabbi Eliezer dit : </b> Une <i>yavam</i> <b>peut annuler</b> ses vœux. <b>Rabbi Yehoshua dit :</b> Si elle attend <b>un</b> <i>yavam</i>, il peut annuler ses vœux, <b>mais pas</b> si elle attend <b>deux. Rabbi Akiva dit :</b> Une <i>yavam</i> <b>ne peut pas</b> annuler ses vœux, qu'elle attende <b>un</b> <i>yavam</i> <b>ou deux</b> ou plus.
+
+### Partie 2
+La mishna developpe ensuite : <b>Rabbi Eliezer a dit : De meme que</b> en ce qui concerne <b>une femme qu'il s'est acquise</b> par fiancailles, <b>il annule ses vœux,</b> de meme en ce qui concerne <b>une femme qui lui a ete acquise du Ciel,</b> c'est-a-dire la <i>yevama</i>, <b>n'est-il pas logique qu'il puisse</b> <b>annuler ses vœux ?</b>
+
+### Partie 3
+<b>Rabbi Akiva lui dit : Non, si tu dis</b> qu'un mari peut annuler les vœux d'une <b>femme qu'il s'est acquise, sur laquelle d'autres n'ont pas d'autorite, dois-tu</b> egalement <b>dire</b> que c'est le cas en ce qui concerne <b>une femme acquise pour lui du Ciel, sur laquelle d'autres ont de l'autorite ?</b> S'il y a deux <i>yevamin</i>, chaque <i>yavam</i> a une autorite egale en ce qui concerne ses vœux.
+
+### Partie 4
+<b>Rabbi Yehoshua lui dit : Akiva, ta declaration s'applique</b> dans une situation <b>avec deux <i>yevamin</i>,</b> mais <b>comment reponds-tu</b> a Rabbi Eliezer <b>dans</b> le cas d'une <b>seule <i>yavam</i>?</b> Rabbi Akiva <b>lui repondit : Une <i>yevama</i> n'est pas la femme a part entiere</b> du <i>yavam</i> de la maniere dont une femme fiancee</b> est <b>sa femme a part entiere</b>, et le <i>yavam</i> n'est pas du tout habilite a annuler les vœux.
+
+### Partie 5
+<strong>GEMARA:</strong> Les deux dernieres opinions de la mishna <b>sont logiques : Rabbi Akiva soutient</b> que le <b>lien levirat n'est pas substantiel.</b> Puisque l'obligation du levirat ne cree pas un lien semblable au mariage entre le <i>yavam</i> et la <i>yevama</i>, un <i>yavam</i> ne peut pas annuler les vœux de la <i>yevama</i>. <b>Et Rabbi Yehoshua soutient</b> que le <b>lien de levirat est substantiel,</b> de sorte que s'il n'y a qu'un seul <i>yavam</i>, la <i>yevama</i> est consideree comme son epouse, ce qui lui permet d'annuler ses vœux. <b>Cependant,</b> en ce qui concerne <b>Rabbi Eliezer, quelle est sa raison ? </b> Meme <b>si</b> il considere que le <b>lien leviratoire est substantiel, il n'y a, </b> neanmoins, <b>aucune</b> <b>designation retroactive.</b> Puisqu'il n'a pas encore ete etabli lequel d'entre eux sera son mari, comment l'un ou l'autre peut-il annuler ses vœux ?
+
+### Partie 6
+<b>Rav Ami a dit :</b> Il s'agit d'un cas <b>ou</b> un <i>yavam</i> a deja <b>effectue des fiancailles leviriennes avec elle.</b> Selon Beit Hillel, les fiancailles leviriennes n'ont pas toute la force de fiancailles ordinaires, <b>mais Rabbi Eliezer tient comme Beit Shammai, qui disent : Les fiancailles leviriennes effectuent une acquisition a part entiere</b> tout comme les fiancailles ordinaires.
+
+### Partie 7
+<b>Mais Rabbi Yehoshua</b> vous <b>dira, </b> Rabbi Eliezer, en reponse : <b>Cette</b> affirmation, selon laquelle les fiancailles de <b>levirate</b> effectuent une acquisition a part entiere, <b>ne s'applique</b> qu'a un cas <b>avec un <i>yavam</i>, mais avec deux <i>yevamin</i></b> il n'en est <b>pas</b> ainsi. La Guemara explique pourquoi il ne peut s'agir d'une acquisition a part entiere lorsqu'il y a plus d'un <i>yavam</i> : <b>Est-ce qu'il y a quelque chose</b> comme cette sorte de fiancailles qui font que <b>lorsque son frere vient,</b> il <b>peut rendre</b> la femme fiancee <b>interdite</b> a celui qui a effectue des fiancailles leviriennes <b>en</b> ayant des <b>rapports sexuels</b> avec le <i>yevama</i>, realisant ainsi un mariage levirien, <b>ou en</b> lui donnant <b>un acte de divorce,</b> la disqualifiant ainsi du mariage levirien, <b>et</b> neanmoins le fiance <b>peut</b> encore <b>annuler</b> ses vœux ? Puisque ces fiancailles peuvent par essence etre annulees, elles ne peuvent etre considerees comme des fiancailles au regard de l'annulation des vœux. Rabbi Ami complete son analyse : <b>Et Rabbi Akiva soutient</b> que le <b>lien levirat n'est pas du tout substantiel</b> et qu'il n'y a pas de lien conjugal entre une <i>yevama</i> et son <i>yavam</i> tant que le mariage levirat n'est pas consomme.
+
+### Partie 8
+La Guemara conteste l'interpretation que Rabbi Ami fait de ce differend : <b>Et selon</b> le <i>amora</i> <b>Rabbi Elazar, qui a dit</b> que <b>les fiancailles leviratoires, selon Beit Shammai, n'effectuent pas</b> une <b>acquisition a part entiere sauf</b> en ce qu'elles <b>enlevent a une epouse rivale</b> d'etre consideree comme substantiellement liee au <i>yavam</i> tant qu'elle est une <i>yevama</i>, <b>que peut-on dire ? </b> Seuls les parents de la <i>yevama</i> fiancee sont alors interdits au <i>yavam</i>.
+
+### Partie 9
+La Guemara repond : <b>Il s'agit ici</b> d'un cas <b>ou</b> le <i>yavam</i> <b>se tenait</b> au tribunal <b>en jugement</b> apres que la femme ait exige qu'il l'epouse <b>et qu'il ait ete oblige</b> par le tribunal de fournir <b>sa subsistance. Et</b> ceci est <b>conforme</b> a ce que <b>Rav Pinehas</b> a declare <b>au nom de Rava, qui a dit : Toute</b> femme <b>qui fait des vœux,</b> ce qu'elle <b>fait</b> est subordonne <b>au consentement de son mari.</b> Puisque dans ces circonstances le <i>yavam</i> doit subvenir aux besoins de la <i>yevama</i> qu'il a fiancee, il est autorise a annuler ses vœux.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

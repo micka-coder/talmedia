@@ -1,0 +1,66 @@
+
+### Part 1
+It can be inferred that if the internal gums <b>were extracted</b> then <b>yes,</b> one may slaughter the firstborn, but if they <b>were</b> merely <b>damaged or</b> they <b>were scratched,</b> one may <b>not,</b> since it is a hidden blemish. The Gemara answers: <b>I require</b> that it be <b>an “ill blemish,”</b> which must be exposed and degrading, <b>and</b> a hidden blemish <b>is not</b> considered such an “ill blemish.” The Gemara asks: <b>If so,</b> that all blemishes are included by the words: “Any ill blemish,” aside from hidden blemishes, <b>a temporary blemish</b> should <b>also</b> render it permitted for the firstborn to be slaughtered. <b>Why</b> then <b>did we learn</b> in the mishna: If the firstborn’s ear was damaged and lacking from the cartilage it may be slaughtered, <b>but not</b> if it is damaged and lacking <b>from the skin,</b> since it is a temporary blemish?
+
+### Part 2
+The Gemara answers: <b>A temporary blemish</b> is not excluded by the exegesis but <b>is</b> based on <b>logical reasoning: Now,</b> if <b>we do not</b> even <b>redeem</b> an offering <b>due to</b> a temporary blemish, <b>will we slaughter</b> a firstborn outside the Temple, for which redemption is not performed, <b>due to</b> a temporary blemish? The Gemara explains the source for this assertion that an offering is not redeemed because of a temporary blemish. <b>As it is taught</b> in a <i>baraita</i>: <b>“And if it be any impure animal, of which they may not bring an offering to the Lord”</b> (Leviticus 27:11). <b>The verse is speaking of</b> ritually pure animals with <b>blemishes.</b>
+
+### Part 3
+The <i>baraita</i> continues: <b>Do you say that the verse is speaking of</b> animals with <b>blemishes that were redeemed, or</b> is it referring <b>only</b> to <b>an actual impure animal,</b> such as a donkey or a horse that was consecrated; but with regard to a kosher animal, perhaps its consecrated status cannot be removed by redemption even if it was blemished? <b>When</b> the verse <b>states: “And if it be of an impure animal”</b> (Leviticus 27:27), <b>a non-kosher animal is mentioned. So how do I realize</b> the meaning of: <b>“Of which they may not bring an offering”? You must say</b> that <b>this</b> is referring to <b>blemished</b> animals <b>that were redeemed,</b> indicating that redemption is permitted.
+
+### Part 4
+The <i>baraita</i> concludes: One <b>might</b> have thought that offerings <b>may be redeemed due to a temporary blemish</b> that they sustained. Therefore, <b>the verse states: “Of which they may not bring an offering to the Lord”</b> (Leviticus 27:11). This teaches that an animal <b>that is not sacrificed at all</b> is redeemed, which <b>excludes this</b> animal that has a temporary blemish, <b>which is not sacrificed today,</b> but <b>rather</b> may be sacrificed <b>tomorrow.</b>
+
+### Part 5
+The Gemara comments: <b>If you wish, say</b> a different explanation as to why a temporary blemish is not included in the amplification of the verse: “Any ill blemish”: <b>If so,</b> that even a temporary blemish permits its slaughter, <b>why do I</b> need the verse to mention <b>a lame</b> animal <b>and a blind</b> animal? It would have sufficed to state: “Any ill blemish.” Rather, the verse excludes a temporary blemish that is unlike these two blemishes, which are permanent.
+
+### Part 6
+§ The mishna teaches: If the ear of the firstborn animal <b>was split, although it is not lacking,</b> one may slaughter the animal outside the Temple. With regard to this, <b>the Sages taught</b> in a <i>baraita</i>: <b>The split</b> that permits the animal to be slaughtered is one of <b>any size.</b> With regard to <b>the damage, whether</b> it was done <b>by the hand of a person or by the hand of God,</b> it may be slaughtered. The Gemara asks: Should it be derived <b>by inference that</b> with regard to <b>a split,</b> if it was caused <b>by the hand of God</b> it is <b>not</b> considered a blemish? That also should be considered an obvious blemish and render the animal permitted for slaughter.
+
+### Part 7
+The Gemara answers: <b>Rather,</b> the <i>baraita</i> should be interpreted as follows: The animal may be slaughtered for a split of any size, and with regard to <b>a split and damage, whether</b> it was done <b>by the hand of God or by the hand of a person,</b> the animal may be slaughtered. <b>And what is the measure of the damage</b> that is considered a blemish? It must be large enough <b>that a fingernail will be retained [<i>shetaḥgor</i>] on it,</b> i.e., if one passes his fingernail over the ear of the animal it can enter the area of the damage.
+
+### Part 8
+§ The mishna stated that if the ear of a firstborn animal <b>was pierced</b> with a hole <b>the size of</b> a bitter vetch, the animal is slaughtered because of it. With regard to this, <b>the Sages taught</b> in a <i>baraita</i>: <b>How large</b> must <b>the piercing of the ear</b> be? It must be <b>the size of a <i>karshina</i>. Rabbi Yosei, son of Rabbi Yehuda, says: Like</b> the size of <b>a lentil,</b> which is slightly smaller. <b>And what is a desiccated</b> ear that is considered a blemish? It is an ear <b>that if it is pierced, it does not discharge a drop of blood. Rabbi Yosei ben HaMeshullam says: Desiccated</b> means that the ear is <b>so</b> dry <b>that it will crumble</b> if one touches it.
+
+### Part 9
+A Sage <b>taught: Their statements are close to being identical</b> in practice. The Gemara asks: <b>The statements of whom</b> are close to being identical? <b>If we say</b> that he is referring to the statements <b>of the first <i>tanna</i> and Rabbi Yosei ben HaMeshullam</b> with regard to a desiccated ear, <b>there is a significant</b> difference between these two opinions. One says it is determined by whether blood emerges, while the other holds it is based on whether it crumbles. <b>Rather,</b> he is referring to the statement <b>of the first <i>tanna</i> and</b> the statement of <b>Rabbi Yosei, son of Rabbi Yehuda,</b> as a <i>karshina</i> and a lentil are almost identical in size.
+
+### Part 10
+The Gemara asks with regard to the statement of Rabbi Yosei, son of Rabbi Yehuda: If the ear was pierced with a hole <b>like</b> the size of <b>a lentil,</b> then <b>yes,</b> it is considered a blemish, but if it was pierced with a hole <b>less than</b> the size <b>of a lentil,</b> then is it <b>not</b> considered a blemish? <b>And</b> one can <b>raise a contradiction</b> from a <i>baraita</i>: The Torah provides a description of the process by which a Hebrew slave who has already completed his six years of servitude may continue on as a slave of his master: “And you shall take the <b>awl</b> and put it through his ear and in the door” (Deuteronomy 15:17). From this verse, <b>I have</b> derived <b>only</b> that <b>an awl</b> can be used. <b>From where</b> do I know <b>to include the palm thorn [<i>hassol</i>], a thorn, a needle, and a gimlet, and a stylus</b> for writing on wax as valid tools for piercing his ear?
+
+### Part 11
+Therefore, <b>the verse states: “And you shall take,”</b> which indicates that <b>anything that can be taken by hand</b> is a valid tool. This is <b>the statement of Rabbi Yosei, son of Rabbi Yehuda. Rabbi</b> Yehuda HaNasi <b>says:</b> Not all these items can be used. Rather, since the verse specifies <b>an “awl,”</b> only items similar to an awl can be used; <b>just as an awl is distinct</b> in that it is fashioned <b>of metal, so too, anything</b> fashioned <b>of metal</b> can be used.
+
+### Part 12
+<b>And the latter clause</b> of the <i>baraita</i> <b>teaches: Rabbi</b> Elazar <b>said that Yudan the Distinguished would teach</b> as follows: <b>When they pierce</b> the ear of the slave, <b>they pierce only in the earlobe.</b>
+
+### Part 13
+<b>And the Rabbis say:</b> The piercing is not performed on that part of the ear, since there is a tradition that the ear of <b>a Hebrew slave</b> who is <b>a priest is not pierced, because</b> the piercing <b>renders him blemished</b> and unfit to serve in the Temple. <b>And if you say</b> that <b>they pierced</b> the slave <b>in the earlobe, how does a Hebrew slave</b> who is <b>a priest become blemished</b> through piercing? A wound on this part of the ear heals. <b>This</b> indicates that <b>they pierce only on the upper part of the ear,</b> through the cartilage.
+
+### Part 14
+In any event, it is clear from the statement of Rabbi Yosei, son of Rabbi Yehuda, that the piercing of a needle is considered a blemish, despite the fact that it is definitely smaller than the size of a lentil. The Gemara answers: <b>Rav Ḥana bar Ketina said:</b> It is <b>not difficult,</b> as <b>here,</b> Rabbi Yosei, son of Rabbi Yehuda, said that the hole must be the size of a lentil <b>with regard to slaughtering</b> an animal outside the Temple due to the blemish. <b>There, with regard to disqualifying</b> the animal from being sacrificed, even a tiny hole is considered a blemish, just as it renders the priest blemished.
+
+### Part 15
+§ According to the first opinion cited in the <i>baraita</i>, the size of the hole that is considered a blemish in the ear of the firstborn animal is like that of a <i>karshina</i>. The Gemara asks: <b>What is a <i>karshina</i>? Rav Sherevya says:</b> It is a bitter vetch, called <b><i>hinda</i></b> in Aramaic.
+
+### Part 16
+With regard to this <i>halakha</i>, <b>Rav Hoshaya asked Rav Huna the Great:</b> Is this measure referring to <b>a bitter vetch that</b> can <b>enter and exit</b> the hole in the ear, which means that the hole is slightly larger than the bitter vetch? <b>Or</b> is it referring to <b>a bitter vetch that is stationary</b> in the hole, meaning that the hole is precisely the size of a bitter vetch? Rav Huna the Great <b>said to him: I did not hear this</b> <i>halakha</i> specifically, but <b>I heard a similar</b> <i>halakha</i> <b>to it,</b> that the expression: The size of a bitter vetch [<i>melo karshina</i>], means that the bitter vetch can enter and exit the hole.
+
+### Part 17
+<b>As we learned</b> in a mishna (<i>Oholot</i> 2:3): <b>The spine and the skull</b> of a corpse <b>that</b> are <b>incomplete</b> do not impart ritual impurity in a tent. This <i>halakha</i> was unanimously accepted, but the details were subject to dispute: <b>How much</b> is considered <b>a deficiency in the spine so that it will not impart impurity in a tent? Beit Shammai say:</b> If it is missing <b>two vertebrae, and Beit Hillel say:</b> Even if it is missing only <b>one vertebra,</b> it will not impart impurity. <b>And</b> likewise, they disagree concerning the deficiency <b>in the skull: Beit Shammai say</b> that it must be missing a piece <b>like the size of a drilled hole, and Beit Hillel say:</b> It must be missing <b>an amount that if removed from a living</b> person, <b>he would die.</b>
+
+### Part 18
+The Gemara relates: <b>And Rav Ḥisda was sitting, and he raised a dilemma:</b> That which was stated: <b>An amount that if removed from a living</b> person, <b>how much</b> is that? <b>Rav Taḥlifa bar Avudimi said to him: This is what Shmuel says:</b> It is <b>like</b> the size of <b>a <i>sela</i></b> coin.
+
+### Part 19
+The Gemara notes: <b>And it was stated</b> that the <i>amora’im</i> disagreed with regard to whom Rabbi Taḥlifa cited when relating this <i>halakha</i> to Rav Ḥisda. <b>Rav Safra says</b> that <b>he told him a <i>halakha</i></b> of the <i>amora’im</i> citing Shmuel. <b>And Rav Shmuel bar Yehuda says</b> that <b>he told him a <i>baraita</i></b> that stipulated that the measure is like the size of a <i>sela</i> coin. <b>And your mnemonic</b> to remember what each one said is the common talmudic phrase: <b>Rav Shmuel bar Yehuda teaches [<i>tanei</i>],</b> generally indicating a source from a <i>tanna</i>, which hints that according to Rav Shmuel bar Yehuda, Rav Taḥlifa cited a <i>baraita</i> to Rav Ḥisda, while according to Rav Safra, he related a tradition from Shmuel.
+
+### Part 20
+<b>And</b> Rav Ḥisda <b>said to</b> Rav Taḥlifa: <b>If so,</b> that the measure of the deficiency according to the opinion of Beit Hillel is the size of a <i>sela</i> coin, <b>you have made the statement of Beit Shammai and the statement of Beit Hillel one</b> and the same, since the size of a <i>sela</i> coin and a drilled hole is identical. <b>As we learned</b> in a mishna (<i>Kelim</i> 17:12): With regard to <b>a window that was not fashioned by the hands of a person,</b> such as where a stone fell out of the wall by itself, <b>its measure</b> for which ritual impurity is transmitted from room to room is like <b>the size of a large fist. And this is</b> the size of <b>the fist of Ben Avatiaḥ,</b> who was known to be an exceptionally large man. <b>Rabbi Yosei said: And</b> the size of this fist <b>is like</b> the size of <b>a large human head.</b>
+
+### Part 21
+The mishna continues: But if the window <b>was made by the hand of a person, its measure</b> for which ritual impurity is transmitted is <b>like the size of the drilled hole</b> of the <b>large</b> drill <b>of the chamber</b> in the Temple, <b>which is like</b> the size of <b>the Italian <i>pundeyon</i> and like</b> the size of <b>a <i>sela</i> of</b> the emperor <b>Nero. And its</b> size <b>is</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

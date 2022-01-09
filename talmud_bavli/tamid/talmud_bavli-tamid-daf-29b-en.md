@@ -1,0 +1,33 @@
+
+### Part 1
+<b>or grape, or cluster</b> of grapes, would <b>bring</b> it to the Temple <b>and</b> a priest would <b>hang it on</b> the vine. <b>Rabbi Elazar, son of Rabbi Tzadok, said: There was</b> once <b>an incident and three hundred priests were enlisted to</b> lift the vine in order <b>to move it,</b> due to its immense weight. This description is an exaggeration, as although the vine was extremely heavy, it did not require three hundred priests to lift it.
+
+### Part 2
+With regard to Shmuel’s statement that the Sages exaggerated with regard to the weight of the <b>Curtain,</b> it is <b>as we learned</b> in a mishna (<i>Shekalim</i> 21b) that <b>Rabban Shimon ben Gamliel says in the name of Rabbi Shimon the deputy</b> High Priest: With regard to the <b>Curtain, its thickness is</b> one <b>handbreadth. It is woven from seventy-two strands</b> of yarn, <b>and each and every strand</b> of those seventy-two strands is made <b>from twenty-four threads.</b> The Curtain is fashioned from four materials: Sky-blue wool, purple wool, scarlet wool, and fine linen, and every strand comprises six threads of each material.
+
+### Part 3
+<b>Its length</b> is <b>forty cubits,</b> corresponding to the height of the entrance to the Sanctuary, <b>and its width</b> is <b>twenty cubits,</b> matching the width of the entrance. <b>And it is made</b> at the cost <b>of eighty-two ten-thousands,</b> i.e., 820,000, gold dinars,<b>and two</b> new Curtains <b>are made in each and every year. And</b> the Curtain was so heavy that when it was immersed <b>three hundred priests</b> would <b>immerse it.</b>
+
+### Part 4
+§ The mishna teaches: The priests <b>began raising logs</b> onto the altar <b>to assemble the arrangement</b> of wood. Wood from all the trees is fit for the arrangement, <b>except for</b> wood <b>from</b> the <b>olive</b> tree <b>and from</b> the <b>vine.</b> The Gemara asks: <b>What is the reason</b> that wood from <b>these</b> trees is not fit for the arrangement? <b>Rav Pappa said:</b> It is <b>due to</b> the fact <b>that they have</b> thick <b>knots</b> in their branches, which cause the wood to burn poorly and produce excessive smoke. <b>Rav Aḥa bar Ya’akov said:</b> Although these trees are unfit for the arrangement primarily because they burn poorly, there is an additional reason: They are not used <b>because</b> using them would deplete the olive trees and grapevines, which would be detrimental to the <b>settlement of Eretz Yisrael.</b>
+
+### Part 5
+The Gemara <b>raises an objection</b> to the explanation of Rav Aḥa bar Ya’akov from a <i>baraita</i>: The verse states with regard to the wood of the arrangement: “And the sons of Aaron the priest shall put fire upon the altar, and lay wood in order upon the fire. And Aaron’s sons, the priests, shall lay the pieces, and the head, and the fat, in order <b>upon the wood that is on the fire</b> which is upon the altar” (Leviticus 1:7–8). The verse indicates that the arrangement must be composed of <b>wood that burns completely, until</b> it <b>becomes</b> like the <b>fire</b> itself. <b>And what is that</b> type of wood? This is referring to <b>branches</b> that are as smooth as <b>a skewer [<i>shipud</i>], which do not become knotted from within.</b> Evidently, the primary qualification of the wood is that it does not have knots.
+
+### Part 6
+The Gemara continues: <b>And is</b> wood from <b>all the trees fit for the arrangement?</b> The <i>baraita</i> explains: Wood from <b>all the trees is fit for the arrangement, except for olive</b> wood <b>and</b> wood from the <b>vine, but</b> the priests <b>were accustomed</b> to assemble the arrangement <b>with</b> wood from <b>these</b> trees: <b>With young branches of</b> the <b>fig</b> tree, <b>of</b> the <b>nut</b> tree, <b>and of pinewood. Rabbi Eliezer adds</b> that the following types of wood are <b>also</b> unfit: The wood <b>of</b> the <b>hackberry tree, of</b> the <b>oak, of</b> the <b>palm</b> tree, <b>of</b> the <b>carob</b> tree, <b>and of</b> the <b>sycamore.</b>
+
+### Part 7
+The Gemara explains the difficulty: <b>Granted, according to the one who said</b> that the wood of the olive and of the vine are not used <b>because they have knots,</b> one can explain that the first <i>tanna</i> of the <i>baraita</i> and Rabbi Eliezer <b>disagree with regard to this</b> matter: One <b>Sage,</b> Rabbi Eliezer, <b>holds</b> that <b>although</b> the wood of the trees that he deems unfit for the arrangement, e.g., the hackberry tree and the oak, <b>are not knotted from within, since they are knotted on the outside, we do not bring</b> wood from these trees for the arrangement. <b>And</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that <b>since</b> these <b>are not knotted from within, even though they are knotted on the outside, we do bring</b> wood from these trees for the arrangment.
+
+### Part 8
+<b>But according to the one who said</b> that the wood of the olive and of the vine are not used <b>because</b> it would be detrimental to the <b>settlement of Eretz Yisrael,</b> the <b>palm</b> tree should also be unfit for the arrangement. <b>Isn’t it</b> also <b>subject to</b> the consideration that cutting it down would be detrimental to the <b>settlement of Eretz Yisrael?</b> It is also one of the species about which Eretz Yisrael is praised. If so, why does the first <i>tanna</i> deem the palm tree fit for the arrangement?
+
+### Part 9
+The Gemara explains that Rav Aḥa bar Ya’akov could <b>say to you:</b> It is unnecessary to cite the <i>baraita</i> in order to raise this difficulty, as the mishna itself states that the fig tree is a preferred source of firewood. <b>And according to your reasoning, isn’t</b> the <b>fig</b> tree <b>subject to</b> the consideration that cutting it down would be detrimental to the <b>settlement of Eretz Yisrael?</b> It is also one of the species about which Eretz Yisrael is praised. <b>Rather, what have you to say?</b> One must say that the mishna is referring <b>to a fig</b> tree <b>that does not bear fruit.</b> With regard to the <b>palm</b> tree <b>as well,</b> the <i>baraita</i> is referring <b>to</b> a variety <b>that does not bear fruit.</b>
+
+### Part 10
+The Gemara asks: <b>But is there a fig</b> tree <b>that does not bear fruit?</b> The Gemara answers: <b>Yes,</b> there are fig trees that do not bear fruit, and this is <b>in accordance with</b> a statement <b>of Raḥava</b> with regard to a method of cultivating fig trees, <b>as Raḥava said:</b> The growers <b>bring</b> saplings of <b>white figs,</b> which are an inferior variety,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

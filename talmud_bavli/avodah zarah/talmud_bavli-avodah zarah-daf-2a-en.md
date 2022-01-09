@@ -1,0 +1,27 @@
+
+### Part 1
+<strong>MISHNA:</strong> On the <b>three days before the festivals of gentiles</b> the following actions are prohibited, as they would bring joy to the gentile, who would subsequently give thanks to his object of idol worship on his festival: It is <b>prohibited to engage in business with them; to lend</b> items <b>to them or to borrow</b> items <b>from them; to lend</b> money <b>to them or to borrow</b> money <b>from them;</b> and <b>to repay</b> debts owed to <b>them or to collect repayment</b> of debts <b>from them. Rabbi Yehuda says: One may collect repayment</b> of debts <b>from them because this causes</b> the gentile <b>distress.</b> The Rabbis <b>said to</b> Rabbi Yehuda: <b>Even though he is distressed now,</b> when he repays the money, <b>he is happy afterward</b> that he is relieved of the debt, and therefore there is concern that he will give thanks to his object of idol worship on his festival.
+
+### Part 2
+<strong>GEMARA:</strong> <b>Rav and Shmuel</b> disagree with regard to the correct version of the text of the mishna. <b>One teaches</b> the term meaning: Their festivals, as <b><i>eideihen</i>,</b> spelled with an <i>alef</i> as the first letter, <b>and one teaches <i>eideihen</i></b> with an <i>ayin</i> as the first letter. The Gemara comments: <b>The one who teaches <i>eideihen</i></b> with an <i>alef</i> <b>is not mistaken, and the one who teaches <i>eideihen</i></b> with an <i>ayin</i> <b>is not mistaken,</b> as there is support for each version of the term.
+
+### Part 3
+The Gemara elaborates: <b>The one who teaches <i>eideihen</i></b> with an <i>alef</i> <b>is not mistaken, as it is written: “For the day of their calamity [<i>eidam</i>] is at hand”</b> (Deuteronomy 32:35), and the future downfall mentioned in the verse is partly due to the festivals of idol worshippers. The term there is spelled with an <i>alef</i>. <b>And</b> likewise, <b>the one who teaches <i>eideihen</i></b> with an <i>ayin</i> <b>is not mistaken, as it is written: “Let them bring their witnesses [<i>eideihem</i>], that they may be justified”</b> (Isaiah 43:9), i.e., the festivals will serve as witnesses against gentile sinners, proving that they engaged in idol worship. The term there is spelled with an <i>ayin</i>.
+
+### Part 4
+The Gemara asks: <b>And</b> according to <b>the one who teaches <i>eideihen</i></b> with an <i>alef</i>, <b>what is the reason</b> that <b>he did not teach <i>eideihen</i></b> with an <i>ayin</i>? The Gemara answers: He could have <b>said to you</b> that a term that refers to <b>a calamity is preferable.</b> The Gemara asks: <b>And the one who teaches <i>eideihen</i></b> with an <i>ayin</i>, <b>what is the reason</b> that <b>he did not teach <i>eideihen</i></b> with an <i>alef</i>? The Gemara answers: He could have <b>said to you: What causes</b> this <b>calamity</b> to happen to <b>them?</b> It is <b>the testimony that they testified against themselves. Therefore,</b> a term that references <b>testimony is preferable.</b>
+
+### Part 5
+The Gemara asks: <b>But is this</b> verse: <b>“Let them bring their witnesses that they may be justified,” written with regard to the nations of the world? Isn’t it written with regard to the Jewish people? As Rabbi Yehoshua ben Levi says: All the mitzvot that the Jews perform in this world</b> will <b>come and bear witness for them in the World-to-Come, as it is stated: “Let them bring their witnesses that they may be justified.” These are the Jews,</b> as their good deeds bear witness for them and demonstrate their righteousness. When the verse states: <b>“And let them hear, and say: It is truth”</b> (Isaiah 43:9), <b>these are the nations of the world,</b> who will admit to the righteousness of the Jews.
+
+### Part 6
+<b>Rather, Rav Huna, son of Rav Yehoshua, said: The one who says</b> that the correct word is <b><i>eideihen</i></b> with an <i>ayin</i> derived this use of the term <b>from here: “They that fashion a graven image are all of them vanity, and their delectable things shall not profit; and their own witnesses [<i>eideihem</i>]</b> see not, nor know” (Isaiah 44:9). This demonstrates that the objects of idol worship will serve as witnesses against their worshippers.
+
+### Part 7
+§ The Gemara cites homiletic interpretations of the verse that was discussed earlier: “All the nations are gathered together, and let the peoples be assembled; who among them can declare this, and announce to us former matters? Let them bring their witnesses, that they may be justified; and let them hear, and say: It is truth” (Isaiah 43:9). <b>Rabbi Ḥanina bar Pappa taught, and some say</b> that it was <b>Rabbi Simlai</b> who taught: <b>In the future, the Holy One, Blessed be He,</b> will <b>bring a Torah scroll and place it in His lap and say:</b> Anyone <b>who engaged in its</b> study <b>should come and take his reward.</b>
+
+### Part 8
+<b>Immediately, the nations of the world</b> will <b>gather</b> together <b>and come intermingled</b> with each other, <b>as it is stated: “All the nations are gathered together</b> and let the peoples be assembled.” <b>The Holy One, Blessed be He,</b> will <b>say to them: Do not enter before Me intermingled; rather, let each and every nation enter</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

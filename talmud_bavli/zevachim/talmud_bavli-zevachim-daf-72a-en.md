@@ -1,0 +1,15 @@
+
+### Part 1
+The Gemara explains that both the mishna here and the mishna in <i>Avoda Zara</i> <b>are necessary, as, if</b> this <i>halakha</i> had been learned only <b>from there,</b> the mishna in <i>Avoda Zara</i>, <b>I would say</b> that this applies only if the prohibited animal is intermingled with a non-sacred animal and thereby becomes prohibited <b>to an ordinary</b> person. <b>But</b> if it is intermingled with offerings that are designated <b>to the Most High</b> so a loss to the Temple would ensue, one might <b>say</b> that <b>we</b> should <b>not lose all</b> the valid offerings, and therefore the prohibited animal should be nullified in a simple majority. Accordingly, the ruling of the mishna here was necessary, to teach that the same applies to a mixture involving offerings.
+
+### Part 2
+The Gemara continues: <b>And</b> conversely, <b>if</b> this <i>halakha</i> were learned only <b>from here I would say</b> that <b>this statement,</b> that the entire mixture is prohibited, applies specifically to <b>sacrificial</b> animals, <b>as</b> it is <b>repulsive</b> to sacrifice to God an animal from a mixture that includes a prohibited animal. <b>But</b> with regard to deriving benefit from <b>a non-sacred</b> animal from this mixture, <b>which is not a repulsive</b> act, one might <b>say: Let</b> the <b>items from which</b> deriving <b>benefit is prohibited be nullified in a majority.</b> Therefore, the mishna in <i>Avoda Zara</i> is also <b>necessary.</b>
+
+### Part 3
+The Gemara questions the ruling of the mishna: <b>But let</b> the prohibited animals <b>be nullified in a majority,</b> as is the <i>halakha</i> concerning other matters, in which the minority items assume the status of the majority. <b>And if you would say</b> in response that animals <b>are significant,</b> as they are counted individually <b>and</b> therefore <b>they are not nullified</b> in a majority, this answer is unsatisfactory. The Gemara elaborates: <b>This</b> suggested answer <b>works out well according to the one who says</b> that <b>we learned</b> in the mishna discussing nullification in a majority (see <i>Orla</i> 3:6–7): <b>Any</b> item <b>whose manner is</b> also <b>to be counted,</b> i.e., that are sometimes sold by unit rather than weight or volume, is considered significant. This definition includes animals, as they are sometimes sold as individual animals, and therefore they would be considered significant.
+
+### Part 4
+<b>But according to the one who says</b> that <b>we learned</b> in that mishna: An item <b>whose manner is</b> exclusively <b>to be counted,</b> i.e., one that is always sold by unit, is considered significant, <b>what can be said?</b> Although animals are often sold by unit, they are occasionally sold as part of a herd, and would therefore not be considered significant. The Gemara cites the mishna in which this dispute appears. <b>As we learned</b> (<i>Orla</i> 3:6–7): With regard to <b>one who had bundles of fenugreek,</b> a type of legume, that were <b>diverse kinds</b> planted <b>in a vineyard,</b> from which it is prohibited to derive benefit,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

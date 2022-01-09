@@ -1,0 +1,21 @@
+
+### Part 1
+<strong>MISHNA:</strong> In the case of <b>one for whom benefit from another is forbidden, before,</b> i.e., a year other than <b>the Sabbatical Year, he may neither enter the field</b> of that other person, <b>nor eat from</b> the produce that leans out of the field, even if he does not enter the field. <b>And during the Sabbatical Year,</b> when the produce of the trees is ownerless, <b>he may not enter his field; however, he may eat from the growths that lean</b> out of the field, as the produce does not belong to the other person. If <b>one vowed before the Sabbatical Year</b> that benefit <b>from</b> another’s <b>food</b> is forbidden for him, <b>he may enter his field; however, he may not eat of the produce. And during the Sabbatical Year, he may enter</b> the field <b>and may eat</b> the produce.
+
+### Part 2
+<strong>GEMARA:</strong> It is <b>Rav and Shmuel who both say</b> that if one vowed <b>before the Sabbatical Year:</b> Benefit from <b>this property</b> is forbidden <b>to you,</b> the other <b>may neither enter his field, nor eat from</b> the produce <b>that leans</b> out of the field, <b>even though the Sabbatical Year arrived</b> in the interim, because the prohibition of the produce took effect before the Sabbatical Year and remained in effect after the Sabbatical Year began. <b>And if he vowed during the Sabbatical Year, he may not enter a field</b> that is included in that property; <b>however, he may eat from</b> the produce that leans out of the field, because the produce was ownerless when he vowed.
+
+### Part 3
+<b>And</b> it is <b>Rabbi Yoḥanan and Reish Lakish who both say</b> that if one vowed <b>before the Sabbatical Year:</b> Benefit from <b>my property</b> is forbidden <b>to you,</b> the other <b>may neither enter his field nor eat from</b> the produce that leans out of the field. When <b>the Sabbatical Year arrives, he may not enter his field; however, he may eat from</b> the produce that leans out of the field, because the produce is ownerless.
+
+### Part 4
+The Gemara suggests: <b>Let us say that they disagree about this, that Rav and Shmuel hold: A person</b> can <b>render an item in his possession forbidden,</b> and the prohibition remains in effect <b>even when it leaves his possession.</b> Since he rendered the produce forbidden before the Sabbatical Year, the prohibition remains in effect after the produce becomes ownerless during the Sabbatical Year. <b>And Rabbi Yoḥanan and Reish Lakish hold: A person cannot render an item in his possession forbidden</b> and have the prohibition remain in effect <b>when it leaves his possession.</b> Therefore, it is permitted to eat the produce during the Sabbatical Year.
+
+### Part 5
+The Gemara asks: <b>And</b> how can <b>you understand</b> it in that manner? <b>Is there anyone who says</b> that <b>a person cannot render an item in his possession forbidden</b> and have the prohibition remain in effect <b>when it leaves his possession? If so,</b> if Rabbi Yoḥanan and Reish Lakish hold that one cannot do so, <b>let them disagree in</b> the case of one who said: Benefit from <b>this property</b> is forbidden to you, <b>and</b> that would be true <b>all the more so</b> if he said: Benefit from <b>my property</b> is forbidden to you. In the latter case, it is clear that the prohibition remains in effect only as long as the item remains in his possession.
+
+### Part 6
+<b>And furthermore, didn’t we learn</b> in a mishna (<i>Bava Kamma</i> 108b) <b>that a person</b> can <b>render an item in his possession forbidden</b> and the prohibition remains in effect <b>when it leaves his possession?</b> This is <b>as we learned</b> in a mishna, that with regard to <b>one who says to his son: Benefit from my</b> property is <b><i>konam</i> for you,</b> if the father <b>dies,</b> the son <b>will inherit him.</b> He is not deriving benefit from his father’s property, as after death it is no longer his. If the father vowed to render benefit from his property forbidden to his son <b>during his lifetime and upon his death,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

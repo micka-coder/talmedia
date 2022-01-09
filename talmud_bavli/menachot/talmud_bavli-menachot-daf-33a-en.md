@@ -1,0 +1,33 @@
+
+### Part 1
+<b>in the handbreadth adjacent to the public domain,</b> perhaps <b>the further</b> the <i>mezuza</i> is from the inside of the house the <b>better,</b> and one may affix it even fully outside the airspace of the entrance. To counter this, Shmuel <b>teaches us</b> that the <i>mezuza</i> must be within the airspace of the entrance itself.
+
+### Part 2
+<b>And Rav Yehuda says</b> that <b>Shmuel says:</b> If one <b>wrote</b> a <i>mezuza</i> <b>on two sheets</b> it is <b>unfit.</b> The Gemara <b>raises an objection</b> from a <i>baraita</i> that teaches: If one <b>wrote</b> a <i>mezuza</i> <b>on two sheets and placed it on</b> the <b>two doorposts</b> of the entrance, it is <b>unfit.</b> The Gemara states the objection: By inference, if the <i>mezuza</i> was affixed <b>on one doorpost,</b> it is <b>fit,</b> despite the fact that it is written on two sheets. The Gemara answers: The <i>baraita</i> is not referring to a case where one affixed the <i>mezuza</i> on two doorposts. Rather, the <i>baraita</i> <b>is saying</b> that if it was written on two sheets in such a manner that it is <b>fit to</b> be affixed to <b>two doorposts,</b> i.e., there is a space between the writing of the first and second passages, so that one can separate the two sheets for different doorposts, it is unfit. This is in accordance with the statement of Rav Yehuda, citing Shmuel.
+
+### Part 3
+<b>And Rav Yehuda says</b> that <b>Shmuel says:</b> The <i>halakha</i> is that a <i>mezuza</i> must be affixed to the doorpost on its right side, and the right side is determined by the direction from which one enters the room. <b>With regard to a <i>mezuza</i>,</b> when deciding which side is the right side, one should <b>follow the indication of</b> the <b>hinge.</b> The The Gemara asks: <b>What</b> is <b>the indication of</b> the <b>hinge? Rav Adda said: The socket</b> into which the hinge is inserted. The room with the socket is considered the inside room, and the <i>mezuza</i> is affixed to the side which is on one’s right when entering that room. The Gemara asks: <b>What are the circumstances,</b> i.e., in what kind of case was this guideline to follow the indication of the hinge necessary? The Gemara answers: This indication is necessary in a case <b>where</b> there is <b>an entrance that is between two houses,</b> e.g., <b>between a room for men and a room for women,</b> as in such a situation the direction of the entrance is unclear.
+
+### Part 4
+The Gemara relates: <b>The Exilarch built</b> a new <b>house. He said to Rav Naḥman: Affix <i>mezuzot</i> for me</b> in the house. <b>Rav Naḥman said: First erect the doors,</b> so that I can affix the <i>mezuzot</i> in the appropriate places, according to the placement of the hinges.
+
+### Part 5
+<b>Rav Yehuda says</b> that <b>Rav says:</b> If one <b>fashioned</b> a <i>mezuza</i> <b>like a bolt,</b> i.e., he wedged it into a hole in the doorpost of a gate, or affixed it to the doorpost horizontally, it is <b>unfit.</b> The Gemara raises a difficulty: <b>Is that so? But when Rav Yitzḥak bar Yosef came</b> from Eretz Yisrael to Babylonia, <b>he said: All the <i>mezuzot</i> in the house of Rabbi</b> Yehuda HaNasi <b>were fashioned like a bolt, and</b> he also said: <b>That entrance by which Rabbi</b> Yehuda HaNasi <b>entered the study hall did not have a <i>mezuza</i>.</b> The Gemara answers: This is <b>not difficult. This</b> ruling, that it is unfit, is referring to a case <b>where it is prepared like a peg,</b> i.e., he inserted it deep into the doorpost while it was lying horizontally. <b>That</b> ruling, that it is fit, is referring to a case <b>where it is prepared like an ankle [<i>ke’istevira</i>],</b> i.e., it is vertical.
+
+### Part 6
+With regard to the second element of Rav Yitzḥak bar Yosef’s statement, that the entrance by which Rabbi Yehuda HaNasi entered the study hall did not have a <i>mezuza</i>, the Gemara asks: <b>Is that so? But</b> what of <b>that entrance by which Rav Huna would enter the study hall, which had a <i>mezuza</i>?</b> The Gemara answers: <b>That</b> entrance <b>was</b> the one through which all were <b>accustomed</b> to enter the study hall. By contrast, the entrance that Rabbi Yehuda HaNasi used was a side entrance, which was designated for him alone. Consequently, it was exempt from the obligation to affix a <i>mezuza</i>, <b>as Rav Yehuda says</b> that <b>Rav says: With regard to a <i>mezuza</i>, follow the</b> entrance that people are <b>accustomed</b> to using.
+
+### Part 7
+§ <b>Rabbi Zeira says</b> that <b>Rav Mattana says</b> that <b>Shmuel says:</b> It is <b>a mitzva to place</b> the <i>mezuza</i> <b>at the beginning of the upper third</b> of the doorpost. <b>And Rav Huna says:</b> One <b>raises</b> the <i>mezuza</i> <b>a handbreadth from the ground, or</b> one <b>distances</b> it <b>from the</b> cross <b>beam,</b> i.e., the lintel, <b>a handbreadth, and the entire entrance</b> between those two handbreadths is <b>fit for</b> the placement of the <b><i>mezuza</i>.</b>
+
+### Part 8
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: One <b>raises</b> the <i>mezuza</i> <b>a handbreadth from the ground, or</b> one <b>distances</b> it <b>from the</b> cross <b>beam a handbreadth, and the entire entrance</b> between those two handbreadths is <b>fit for</b> the placement of the <b><i>mezuza</i>;</b> this is <b>the statement of Rabbi Yehuda. Rabbi Yosei says:</b> The verse states: <b>“And you shall bind them</b> for a sign upon your arm” (Deuteronomy 6:8), and then it states: <b>“And you shall write them</b> upon the doorposts of your house” (Deuteronomy 6:9). <b>Just as</b> the <b>binding</b> of the phylacteries is performed <b>on</b> the <b>upper</b> part of the arm, <b>so too,</b> the <b>writing,</b> i.e., the placement, of a <i>mezuza</i> must be specifically <b>on</b> the <b>upper</b> part of the entrance.
+
+### Part 9
+The Gemara explains the objection: <b>Granted, according to Rav Huna, he states</b> his ruling <b>in accordance with</b> the opinion of <b>Rabbi Yehuda; but according to Shmuel, in accordance with whose</b> opinion <b>does he state</b> his ruling? It is <b>not in accordance with</b> the opinion of <b>Rabbi Yehuda, and</b> it is <b>not in accordance with</b> the opinion of <b>Rabbi Yosei.</b>
+
+### Part 10
+<b>Rav Huna, son of Rav Natan, said: Actually,</b> Shmuel’s ruling is <b>in accordance with</b> the opinion of <b>Rabbi Yosei,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

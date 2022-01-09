@@ -1,0 +1,51 @@
+
+### Partie 1
+<strong>MISHNA :</strong> Si l'on <b>a pris du bois dans</b> une <i>ashera</i>, il est <b>interdit d'en tirer</b> un <b>benefice</b>. Dans le cas ou l'on a <b>allume</b> un feu dans <b>un four avec</b> le bois, <b>si</b> il s'agit d'un <b>nouveau</b> four et qu'en allumant le feu, il a durci le four et l'a rendu plus solide pour etre utilise dans le futur, alors le four <b>doit etre brise.</b> Puisque des objets interdits ont ete utilises dans le processus de formation du four, il est interdit de tirer un benefice de l'utilisation des objets interdits. <b>Mais si</b> c'est <b>un vieux</b> four <b>il peut etre refroidi;</b> il est interdit d'utiliser le four uniquement lorsqu'il est encore chaud. Si l'on <b>cuit du pain avec</b> du bois de la <i>ashera</i> comme combustible, il est <b>interdit de</b> tirer un <b>benefice</b> du pain.
+
+### Partie 2
+Si ce pain <b>etait mele a d'autres</b> pains, il est <b>interdit de</b> tirer un <b>benefice</b> de <b>tout</b> le pain. <b>Rabbi Eliezer dit :</b> On doit prendre le <b>benefice</b> et le <b>jeter</b> <b>dans la mer Morte.</b> En d'autres termes, on n'est pas tenu de detruire tous les pains. Au lieu de cela, on doit designer une somme d'argent egale en valeur au bois qu'on a utilise de la <i>ashera</i>, et on doit detruire cette somme pour compenser le benefice qu'on a tire du bois interdit. Les rabbins lui <b>ont dit : Il n'y a pas</b> de rachat monetaire pour les <b>objets interdits en raison du <b>servage d'un idole.</b> Une fois que le pain devient interdit, il ne peut etre rachete en faisant jeter la valeur du bois interdit dans la mer Morte.
+
+### Partie 3
+Si l'on <b>prend</b> du bois <b>de</b> un <i>ashera</i> pour l'utiliser comme <b>navette de tissage [<i>karkor</i>],</b> il est <b>interdit d'en tirer un <b>benefice</b>. Si l'on <b>a tisse un vetement avec elle,</b> il est <b>interdit de</b> tirer un <b>benefice</b> du vetement. Si le vetement <b>etait mele a d'autres</b> vetements, <b>et</b> ces <b>autres</b> vetements etaient meles <b>a d'autres,</b> il est <b>interdit de</b> tirer <b>un benefice</b> de <b>tous ces vetements. Rabbi Eliezer dit :</b> Il faut prendre le <b>benefice</b> et le <b>jeter</b> dans la mer morte.</b> Les rabbins lui <b>ont dit : Il n'y a pas</b> de rachat monetaire pour</b> les objets interdits en raison du culte des idoles.</b>
+
+### Partie 4
+<strong>GEMARA :</strong> La mishna presente deux cas ou Rabbi Eliezer et les rabbins sont en desaccord. La Guemara explique : <b>Et</b> les deux sont <b>necessaires ; car si</b> la mishna <b>nous avait enseigne</b> seulement <b>le premier</b> cas, concernant le pain interdit, on aurait pu penser que c'est seulement <b>dans ce</b> cas que <b>Rabbi Eliezer dit</b> que le pain est permis apres avoir jete la valeur acquise du bois interdit dans la mer morte, <b>car au moment ou le pain a fini</b> de cuire, le <b>bois interdit</b> <b>a brule</b>. <b>Mais</b> dans le cas de la <b>navette, ou</b> le morceau de bois original <b>interdit</b> <b>est</b> encore <b>extant,</b> peut-etre dira-t-on</b> qu'il <b>cede aux rabbins</b> que le vetement interdit ne peut etre rachete.
+
+### Partie 5
+<b>Et si</b> la mishna <b>nous avait enseigne</b> uniquement le cas de la <b>navette,</b> on aurait pu penser que c'est uniquement <b>dans ce</b> cas que <b>les rabbins disent</b> que le vetement interdit ne peut etre rachete, car la piece de bois interdite d'origine existe toujours. <b>Mais</b> dans le cas du <b>pain,</b> ou le bois interdit etait deja brule au moment ou le pain a fini de cuire, peut-etre dira-t-on <b>que <b>ils concedent a Rabbi Eliezer</b> que le pain peut etre rachete. Par consequent, les deux cas sont <b>necessaires.</b>
+
+### Partie 6
+<b>Rav Hiyya, fils de Rabba bar Nahmani, dit</b> que <b>Rav Hisda dit</b> que <b>Zeeiri dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> a l'avis de <b>Rabbi Eliezer. Il y a</b> ceux <b>qui disent</b> qu'il existe une version differente de cette decision : <b>Rav Hisda dit : Abba bar Rav Hisda m'a dit</b> que <b>ceci</b> est ce que <b>Zeeiri dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> a l'avis de <b>Rabbi Eliezer.</b>
+
+### Partie 7
+<b>Rav Adda bar Ahava dit : Ils ont enseigne</b> que la <i>halakha</i> est conforme a l'avis de Rabbi Eliezer <b>uniquement</b> dans le cas du <b>pain interdit. Mais</b> en ce qui concerne le cas d'un <b>tonneau</b> de vin utilise pour une libation idolatre, qui a ete mele a des tonneaux de vin autorises, le <i>halakha</i> n'est <b>pas</b> conforme a l'avis de Rabbi Eliezer. <b>Et Rav Hisda dit : Meme</b> dans le cas d'un <b>tonneau</b> de vin de libation, le vin des autres tonneaux est <b>permis</b> une fois que la valeur du tonneau interdit a ete jetee dans la mer Morte.
+
+### Partie 8
+La Gemara raconte : Il y avait <b>un certain homme,</b> et il arriva <b>qu'un tonneau de vin</b> utilise pour <b>une libation se mela a son vin. Il se presenta devant le Rav Hisda</b> pour lui demander ce qu'il devait faire. Rav Hisda <b>lui dit</b> : <b>Prenez quatre dinars et jetez</b> les <b>dans la riviere, et</b> le reste du vin <b>vous sera permis.</b>
+
+### Partie 9
+<strong>MISHNA :</strong> <b>Comment revoque-t-on</b> le statut idolatre d'un <i>ashera</i> ? Si un Gentil <b>taillait</b> du bois sec <b>ou elaguait</b> du bois vert de l'arbre pour son propre benefice, ou s'il <b>enlevait de celui-ci un baton, ou une tige,</b> ou <b>meme une feuille, il a</b> ainsi <b>revoque</b> son statut idolatre, car il a prouve qu'il ne l'adorait plus. Si un Gentil <b>a rase</b> l'arbre <b>pour son</b> propre <b>service,</b> pour ameliorer son apparence, il reste <b>interdit</b> d'en tirer un benefice. S'il l'a rase <b>non pas pour son</b> <b>propre interet,</b> il est <b>permis.</b>
+
+### Partie 10
+<strong>GEMARA : </strong>En ce qui concerne <b>ces copeaux</b> qui ont ete rases pour l'amour de la <i>ashera</i>, <b>que doit-on</b> faire <b>avec eux ? Rav Huna et Rabbi Hiyya bar Rav sont en desaccord a ce sujet ; l'un dit</b> les copeaux <b>sont interdits et l'autre dit qu'ils sont permis.</b>
+
+### Partie 11
+<b>Il est enseigne</b> dans un <i>baraita</i> <b>conformement a celui qui dit</b> que les copeaux <b>sont permis, comme il est enseigne</b> dans un <i>baraita</i> : Dans le cas d'un <b>gentil qui a rase</b> un objet d'adoration <b>idolique pour son</b> propre <b>sake,</b> car il souhaitait utiliser les copeaux, l'arbre <b>et ses copeaux sont autorises. </b> Le statut idolatre a ete revoque a la fois de l'objet et de ses copeaux. S'il l'a rase <b>pour son,</b> c'est-a-dire pour le propre <b>service de l'idole, il</b> reste <b>interdit, mais ses copeaux sont permis. Et</b> dans le cas d'un <b>Juif qui a rase</b> un objet d'adoration d'une <b>idole, que ce soit pour elle ou pour son</b> propre <b>service,</b> l'objet <b>et ses copeaux</b> restent <b>interdits,</b> car un Juif ne peut pas revoquer le statut idolatre d'un objet.
+
+### Partie 12
+<b>Il a ete dit :</b> A propos d'un objet d'adoration d'un <b>idole qui s'est brise, Rav dit : Il est necessaire de revoquer</b> le statut idolatre de <b>chaque eclat</b>. Et Shmuel dit :</b> Un objet d'<b>adoration d'idole</b> peut voir son statut <b>annule seulement</b> si une partie se brise au cours de <b>son</b> <b>mode naturel de croissance.</b>
+
+### Partie 13
+La Guemara s'interroge sur la decision de Shmuel : <b>Au contraire, un objet peut-il</b> eventuellement voir son statut idolatre <b>annule</b> en se brisant au cours de <b>son</b> <b>maniere naturelle de croitre ? </b> La Gemara repond : <b>Voici plutot</b> ce que Shmuel <b>dit :</b> Si un objet d'<b>adoration d'idole</b> se brise, son statut idolatre est automatiquement annule, car l'adorateur de l'idole verra qu'il s'est brise et ne lui attribuera plus aucun pouvoir. Elle <b>necessite</b> que son statut idolatre soit activement <b>revoque uniquement</b> dans un cas ou elle s'est rompue au cours de <b>sa</b> <b>mode de croissance naturelle.</b> Par exemple, si des feuilles tombent d'un arbre adore, l'arbre et les feuilles conservent leur statut idolatre. Dans ce cas, l'adorateur de l'idole n'attribuera pas la chute des feuilles a un manque de puissance de l'arbre.
+
+### Partie 14
+La Guemara suggere : <b>Disons que</b> Rav et Shmuel <b>sont en desaccord a ce sujet :</b> Un <b>Sage,</b> Rav, <b>soutient</b> que les gens <b>adorent</b> meme des <b>fragments</b> d'idoles. Par consequent, le fait qu'une idole se soit brisee n'entraine pas l'annulation de son statut idolatre. <b>Et</b> un <b>Sage,</b> Shmuel, <b>soutient</b> que les gens <b>n'adorent pas des fragments</b> d'idoles.
+
+### Partie 15
+La Guemara rejette cette suggestion : <b>Non, tout le monde</b> s'accorde a dire que les gens <b>adorent des fragments</b> d'idoles. <b>Et ici,</b> c'est <b>en ce qui concerne les fragments de fragments</b> qu'ils <b>sont en desaccord.</b> Un <b>Sage,</b> Rav, <b>soutient</b> que <b>les fragments de fragments sont interdits ; et</b> un <b>Sage,</b> Shmuel, <b>soutient</b> que <b>les fragments de fragments sont autorises.</b>
+
+### Partie 16
+<b>Et si tu le souhaites, dis</b> plutot <b>que tout le monde</b> est d'accord pour dire que <b>les fragments de fragments sont autorises, et qu'ici ils ne sont pas d'accord en ce qui concerne</b> les objets du <b>service des idoles</b> qui sont composes <b>de segments</b> qui se detachent <b>et qu'un profane peut reassembler. </b> Un <b>Sage,</b> Rav, <b>soutient</b> que <b>puisqu'un profane peut le reassembler,</b> son statut idolatre n'est <b>pas annule. Et</b> un <b>Sage,</b> Shmuel, <b>soutient</b> qu'un objet d'<b>adoration d'idole</b> doit voir son statut <b>revoque uniquement</b> lorsqu'il se brise au cours de <b>son</b> <b>mode de croissance naturel, car c'est son</b> <b>mode typique. Ce</b> cas, ou l'idole est desassemblee, <b>n'est pas</b> lie a <b>sa</b> <b>croissance naturelle et</b> donc il <b>ne necessite aucun</b> acte supplementaire <b>pour revoquer</b> son statut idolatre.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

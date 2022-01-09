@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>D'ou vient</b> le fait qu'en ce qui concerne <b>ceux qui agissent a l'insu</b> dans le cas <b>d'objets consacres</b>, c'est-a-dire si l'on egorge une offrande sans avoir l'intention d'accomplir l'acte d'egorgement du tout, mais plutot comme quelqu'un qui est occupe par d'autres choses, <b>que</b> l'offrande <b>est disqualifiee ?</b> Rav Huna a dit a Shmuel : C'est derive d'un verset, <b>comme il est dit : "Et il egorgera le jeune taureau devant l'Eternel"</b> (Levitique 1:5), enseignant que la mitsva n'est pas accomplie correctement <b>sauf si l'egorgement est pour l'amour d'un jeune taureau,</b> c'est-a-dire en sachant qu'il accomplit un acte d'egorgement.
+
+### Partie 2
+Shmuel <b>a dit a</b> Rav Huna : <b>Nous avons deja ceci</b> comme une <i>halakha</i> etablie, que c'est une mitsva d'abattre l'offrande pour l'amour d'un taureau, mais <b>d'ou</b> vient que cette exigence est <b>indispensable ?</b> Rav Huna <b>lui repondit</b> que le verset dit : <b>"Avec ta volonte tu l'egorgeras"</b> (Levitique 19:5), c'est-a-dire, <b>avec ta</b> pleine <b>conscience tu l'egorgeras</b>, sous la forme d'une action volontaire.
+
+### Partie 3
+§ La mishna enseigne : <b>Parce que l'intention ne suit que celui qui accomplit le</b> <b>sacrifice.</b> La Gemara commente : <b>La mishna n'est pas conforme</b> a l'avis de <b>cette <i>tanna</i>, car il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Elazar, fils de Rabbi Yosei, dit : J'ai entendu dire que</b> meme <b>le proprietaire</b> d'une offrande <b>peut la rendre <i>piggul</i></b> par une intention inappropriee. <b>Rava dit : Quelle est la raison de Rabbi Elazar, fils de Rabbi Yosei ? Comme le dit le verset : A "Alors celui qui sacrifie sacrifiera</b> son offrande au SeigneurA" (Nombres 15:4). Le terme A "celui qui sacrifieA" fait référence au propriétaire ; puisque le propriétaire est considéré comme celui qui sacrifie, il peut lui aussi rendre son offrande <i>piggul</i> avec une intention inappropriée.
+
+### Partie 4
+<b>Abaye dit : Rabbi Elazar, fils de Rabbi Yosei, et Rabbi Eliezer, et Rabbi Shimon ben Elazar soutiennent tous</b> que meme dans un cas impliquant deux personnes, ou <b>celle-ci a l'intention et celle-la accomplit le service, c'est</b> l'<b>intention</b> qui est pertinente, c'est-a-dire que c'est comme si celui qui accomplit le service avait l'intention. La Gemara explique : La declaration de <b>Rabbi Elazar, fils de Rabbi Yosei,</b> est <b>ce que nous</b> venons de <b>dire,</b> a savoir que le proprietaire peut rendre son offrande <i>piggul</i> par une intention inappropriee malgre le fait que ce soit le pretre qui effectue le service.
+
+### Partie 5
+La declaration de <b>Rabbi Eliezer</b> est <b>comme nous l'avons appris</b> dans une mishna (<i>Hullin</i> 38b) : En ce qui concerne <b>celui qui abat</b> un animal pour le compte <b>d'un Gentil, son abattage est valide</b> et un Juif peut manger la viande de cet animal. <b>Mais Rabbi Eliezer le juge impropre,</b> car l'intention du Gentil, qui est vraisemblablement d'utiliser l'animal pour le culte des idoles, invalide l'acte d'abattage effectue par le Juif.
+
+### Partie 6
+La declaration de <b>Rabbi Shimon ben Elazar</b> est <b>comme nous l'avons appris</b> dans une <i>baraita</i> : <b>Rabbi Shimon ben Elazar a enonce un principe : </b> Dans le cas de <b>tout</b> objet <b>qui n'est pas apte a etre stocke, et</b> donc les gens ne font <b>pas</b> typiquement <b>stocker</b> des objets <b>comparables,</b> mais <b>il a ete juge apte</b> a etre stocke <b>par cette</b> personne <b>et il l'a stocke, et une autre</b> personne <b>est venue et a sorti</b> le Chabbat l'objet qui etait stocke, <b>cette</b> personne qui l'a sorti <b>est rendue responsable par la pensee de cette</b> personne qui l'a stocke.
+
+### Partie 7
+La Gemara note : <b>Ces deux</b> Sages, Rabbi Eliezer et Rabbi Shimon ben Elazar, bien que leurs decisions soient enoncees dans le contexte de questions entierement differentes, <b>acceptent</b> comme <i>halakha</i> la decision <b>de Rabbi Elazar, fils de Rabbi Yosei.</b> La Guemara explique : <b>Maintenant</b> que concernant les questions <b>de l'exterieur</b> du Temple, c'est-a-dire l'abattage non sacre et le port du Chabbat, a propos desquels la Torah ne fait pas reference a l'intention, <b>nous disons</b> que l'intention d'une personne est effective pour l'action d'une autre, <b>est-il</b> necessaire</b> d'affirmer que la meme <i>halakha</i> s'applique aux questions <b>de l'interieur</b> du Temple, c'est-a-dire, les offrandes, a l'egard desquelles il est explicitement dit que l'intention est effective, comme l'indique le verset : "Avec ta volonté, tu l'abattras" (Lévitique 19:5) ?
+
+### Partie 8
+Mais <b>Rabbi Elazar, fils de Rabbi Yosei, ne</b> pas necessairement <b>accepter</b> comme <i>halakha</i> les jugements de <b>ces deux</b> Sages, Rabbi Eliezer et Rabbi Shimon ben Elazar. La Guemara explique : <b>Peut-etre</b> que c'est seulement concernant <b>l'interieur</b> du Temple <b>que nous disons</b> que l'intention d'une personne est effective pour l'action d'une autre, alors que concernant <b>l'exterieur</b> du Temple, <b>nous ne disons pas</b> cela.
+
+### Partie 9
+La Guemara differencie encore les opinions de ces deux Sages eux-memes. <b>Rabbi Shimon ben Elazar accepte</b> comme <i>halakha</i> la decision <b>de Rabbi Eliezer : Maintenant</b> que <b>en ce qui concerne le Chabbat nous disons</b> que l'intention d'une personne est effective pour l'action d'une autre, <b>est-il</b> <b>necessaire</b> de dire qu'il en est de meme <b>en ce qui concerne le culte des idoles,</b> ou les actions sont quelque peu similaires a celles effectuees dans le Temple ?
+
+### Partie 10
+Mais <b>Rabbi Eliezer ne</b> pas necessairement <b>accepter</b> comme <i>halakha</i> la decision <b>de Rabbi Shimon ben Elazar : C'est peut-etre</b> seulement <b>en ce qui concerne le culte des idoles que vous dites</b> que l'intention d'une personne est effective pour l'action d'une autre, car le culte des idoles est quelque peu <b>similaire</b> au service effectue <b>a l'interieur</b> du Temple. Par consequent, il est raisonnable que l'intention d'une personne soit effective pour l'action d'une autre dans le cas de l'idolatrie, comme c'est le cas pour les offrandes. <b>Mais</b> en ce qui concerne le <b>Shabbat, la Torah n'a interdit</b> que le <b>travail planifie,</b> constructif, c'est-a-dire qu'on n'est responsable que d'une action qui comporte l'intention creatrice de celui qui la fait, et ici celui qui a sorti l'objet n'avait pas l'intention d'accomplir un travail.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

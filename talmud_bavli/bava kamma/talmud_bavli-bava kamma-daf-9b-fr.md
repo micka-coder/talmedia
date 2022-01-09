@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Si l'on dit</b> que cela signifie que l'on doit depenser jusqu'a <b>un tiers de son patrimoine</b> pour accomplir une mitzva, <b>mais si c'est le cas,</b> et <b>s'il lui arrivait</b> de s'obliger dans <b>trois mitzvot</b> en meme temps, <b>doit-il donner tout son patrimoine</b> pour accomplir ces mitzvot ? On n'est certainement pas oblige de le faire.
+
+### Partie 2
+<b>Au contraire,</b> ce que <b>Rabbi Zeira a dit</b> est que <b>pour</b> l'embellissement</b> de l'accomplissement <b>d'une mitzva,</b> par exemple, pour acheter un objet plus beau utilise dans l'accomplissement d'une mitzva, on doit depenser <b>jusqu'a un tiers</b> de plus que le cout <b>de</b> l'objet standard utilise pour accomplir <b>la mitzva.</b>
+
+### Partie 3
+<b>Rav Ashi souleve un dilemme :</b> Comment ce tiers est-il calcule ? Est-ce <b>un tiers de l'interieur,</b> c'est-a-dire qu'il calcule le cout d'un article standard, ajoute un tiers de cette valeur et depense le total pour acheter un article plus beau ; <b>ou</b> est-ce <b>un tiers de l'exterieur,</b> c'est-a-dire qu'un tiers de la somme qu'il depense finalement doit etre la somme supplementaire ajoutee afin d'acheter un article plus beau ? La Guemara conclut : Le dilemme <b>sera maintenu</b> sans etre resolu.
+
+### Partie 4
+<b>En Occident,</b> Eretz Yisrael, <b>on dit au nom de Rabbi Zeira : </b> De l'argent que l'on depense pour l'achat d'un objet plus beau pour accomplir une mitzva, <b>jusqu'a un tiers</b> de plus que le cout d'un objet standard provient <b>de ses propres finances</b> mais <b>a partir de ce</b> point, toute somme supplementaire depensee pour l'achat d'un objet plus beau provient <b>de la largesse du <b>Saint, Beni soit-Il,</b> c'est a dire. e., Dieu lui remboursera la depense de cette somme supplementaire.
+
+### Partie 5
+<strong>MISHNA :</strong> En ce qui concerne <b>tout ce</b> pour lequel je suis devenu responsable de sa sauvegarde</b> pour eviter qu'il ne cause des dommages, s'il cause effectivement des dommages, on considere que <b>je</b> ai activement <b>facilite ces dommages,</b> et en consequence je dois en payer le prix. Dans tous les cas ou <b>J'ai facilite une partie du dommage qu'il</b> a cause, <b>Je suis responsable des paiements</b> de restitution <b>pour le dommage qu'il</b> a cause, <b>comme</b> si j'etais la <b>personne qui a facilite la totalite du dommage qu'il</b> a cause.
+
+### Partie 6
+On n'est responsable qu'a l'egard des dommages causes a des <b>biens</b> pour lesquels,</b> s'il les utilisait dans un but non sacre, il <b>ne serait pas</b> responsable <b>pour</b> le <b>mauvais usage</b> d'un bien consacre ; a l'egard des dommages causes a des <b>biens appartenant aux membres de l'alliance,</b> c'est-a-dire, Juifs ; et en ce qui concerne les <b>biens attribues,</b> dont la Gemara expliquera le sens.
+
+### Partie 7
+<b>Et</b> on est responsable des dommages causes <b>en tout lieu sauf dans un domaine designe</b> exclusivement <b>pour</b> l'usage de <b>celui qui est responsable du dommage.</b>
+
+### Partie 8
+<b>Et</b> on est responsable des dommages causes dans <b>un domaine</b> designe pour l'usage conjoint <b>de la partie lesee</b> <b>et du responsable du dommage.</b>
+
+### Partie 9
+<b>Lorsqu'un animal ou un objet que l'on est tenu de sauvegarder <b>cause un dommage, celui qui est responsable du dommage</b> cause par une sauvegarde insuffisante <b>est tenu de verser des paiements</b> de restitution <b>pour le dommage avec</b> son <b>terrain de meilleure qualite.</b>
+
+### Partie 10
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> une <i>baraita</i> qui elucide la decision de la mishna : En ce qui concerne <b>Toute chose</b> pour <b>laquelle je suis devenu responsable de sa sauvegarde</b> afin d'eviter qu'elle ne cause des dommages, si elle cause effectivement des dommages, on considere que <b>Je</b> ai activement <b>facilite ces dommages</b> et en consequence je dois en payer le prix. <b>Comment cela ? </b> Dans le cas d'un <b>bœuf ou d'une fosse qu'on a transfere a</b> la garde d'un <b>sourd-muet, d'un imbecile ou d'un mineur,</b> dont les capacites intellectuelles presumees limitees font qu'ils sont juges incapables de les preserver suffisamment de causer des dommages, <b>et</b> le bœuf ou la fosse <b>a cause des dommages,</b> la <i>halakha</i> est que puisque le proprietaire du bœuf ou de la fosse n'a pas rempli son devoir de les sauvegarder, il est <b>responsable de payer</b> pour les dommages, <b>ce qui n'est pas le cas dans</b> un cas correspondant ou les dommages sont causes par <b>un incendie. </b>
+
+### Partie 11
+La Gemara elucide : <b>A quoi avons-nous affaire ? Si l'on dit</b> que la <i>baraita</i> traite d'un <b>bœuf attache ou d'une fosse couverte,</b> qui ne peuvent pas causer de dommages de la maniere dont le proprietaire les a laisses, alors le cas <b>dans la situation correspondante</b> <b>d'un incendie,</b> ou il n'est pas responsable, est celui ou l'on a transfere <b>une braise</b> a une personne de competence halakhique limitee, qui, si elle avait ete laissee seule, n'aurait pas eclate en feu et cause des dommages. Cela ne peut etre correct, car si c'est le cas, <b>qu'est-ce qui est different ici</b> dans le cas d'un bœuf et d'une fosse, ou l'on est responsable, <b>et qu'est-ce qui est different la</b> dans le cas de l'incendie, qui l'exempte de responsabilite ? Il ne semble pas y avoir de raison de les differencier.
+
+### Partie 12
+<b>Au contraire,</b> le <i>baraita</i> doit avoir affaire a <b>un bœuf non attache ou une fosse exposee,</b> qui peuvent causer des dommages de la maniere dont le proprietaire les a laisses. Si c'est le cas, alors le cas <b>dans la situation correspondante</b> <b>du feu,</b> ou il n'est pas responsable, est celui ou l'on a transfere <b>une flamme</b> a une personne de competence halakhique limitee, qui peut egalement causer des dommages sous cette forme. La Guemara rejette cette suggestion : Mais si c'est le cas, pourquoi la <i>baraita</i> declare-t-elle : <b>Ce qui n'est pas le cas</b> dans le cas de dommages causes <b>par un incendie, car on est exempte</b> de payer des dommages et interets ? <b>Mais</b> ceci est intenable, car <b>Rish Lakish n'a pas dit au nom de Hizkiyya : Ils ont enseigne</b> qu'on est exempte des dommages causes par un feu <b>seulement</b> dans le cas ou <b>il a transfere une braise a</b> une personne de competence halakhique limitee <b>qui</b> l'a ensuite <b>eventee</b> en flamme. <b>Mais</b> s'il lui a transfere <b>une flamme</b>, celui qui lui a transfere la flamme <b>est responsable</b> de tout dommage cause. <b>Pour quelle raison ? </b> Il est responsable <b>parce que la</b> capacite pour elle de causer un <b>dommage est certaine.</b>
+
+### Partie 13
+La Guemara revient a sa suggestion initiale : <b>En fait,</b> la decision de la <i>baraita</i> est enoncee <b>en ce qui concerne un bœuf attache ou une fosse couverte, et</b> le cas <b>dans la situation correspondante</b> <b>du feu,</b> ou il n'est pas responsable, est celui ou l'on a transfere <b>une braise</b> a une personne de competence halakhique limitee. <b>Et</b> en ce qui concerne <b>cette</b> que <b>vous avez dit</b> pour rejeter ceci : <b>Qu'est-ce qui est different ici</b> dans le cas d'un bœuf et d'une fosse qui fait qu'il est responsable <b>et qu'est-ce qui est different la</b> dans le cas du feu, qui le dispense de responsabilite ? Apparemment, dans tous ces cas, l'objet n'etait pas en mesure de causer des dommages dans sa forme actuelle, donc il est exonere de responsabilite.
+
+### Partie 14
+La Gemara explique : On pourrait repondre comme suit : La <b>maniere typique d'un bœuf est de se liberer</b> d'etre attache et la <b>maniere typique d'une fosse est</b> que son couvercle <b>se deloge.</b> Par consequent, comme il est negligent de transferer un bœuf ou une fosse a quelqu'un qui est incapable de les proteger suffisamment, celui qui lui a transfere le bœuf ou la flamme est responsable. En revanche, en ce qui concerne <b>une braise, tant qu'il la laisse</b> seule <b>elle s'attenue progressivement,</b> et la seule facon dont elle causera des dommages est si quelqu'un d'autre l'attise activement en une flamme ; par consequent, il n'est pas responsable.
+
+### Partie 15
+La Guemara demande : <b>Et selon Rabbi Yohanan, qui dit : Meme</b> si la <i>halakha</i> est que si <b>on a transfere une flamme a</b> une personne de competence halakhique limitee, il <b>est exempt,</b> il est possible de dire que le cas <b>dans la situation correspondante</b> <b>ici</b> dans la premiere clause de la <i>baraita</i> est enonce <b>en ce qui concerne un bœuf non attache ou une fosse exposee.</b> La Gemara demande : Mais si tel est le cas, <b>Qu'est-ce qui est different ici</b> dans le cas d'un bœuf et d'une fosse qui fait qu'il est responsable <b>et qu'est-ce qui est different la</b> dans le cas du feu qui l'exempte de responsabilite ? Il semble que dans tous ces cas, l'objet qui a ete transfere est capable de causer des dommages dans sa forme actuelle, donc on s'attendrait a ce qu'il soit responsable.
+
+### Partie 16
+La Gemara explique : <b>Il y a,</b> dans le cas du feu, en definitive <b>la manipulation [<i>tzevata</i>]</b> de la flamme par le sourd-muet <b>causse</b> le dommage, car s'il n'avait pas deplace la flamme, aucun dommage n'aurait ete cause. <b>Ici,</b> dans le cas du bœuf et de la fosse, <b>la manipulation par le sourd-muet</b> de ceux-ci <b>ne cause pas</b> le dommage. Au contraire, le dommage a ete cause meme s'ils sont restes exactement dans le meme etat dangereux dans lequel l'a fait celui qui les avait transferes au sourd-muet. Par consequent, le dommage est le resultat de la negligence de cette personne, et elle est responsable.
+
+### Partie 17
+§ <b>Les Sages ont enseigne :</b> Il y a <b>une rigueur qui s'applique a</b> la categorie de <b>Ox par opposition a</b> la categorie de <b>Pit,</b> et inversement, il y a <b>une rigueur qui s'applique a Pit par opposition a Ox.</b>
+
+### Partie 18
+Le <i>baraita</i> elucide : La <b>striction qui s'applique au Bœuf par opposition au Puits</b> est <b>que</b> si <b>le bœuf</b> tue un juif, le proprietaire est tenu de <b>payer une rancon</b> aux heritiers de la victime. <b>Et pour</b> avoir tue <b>un esclave</b> le proprietaire du bœuf <b>est tenu</b> de payer <b>trente</b> <i>sela</i> au maitre de l'esclave. En outre, dans un tel cas, une fois que le tribunal entend les preuves et que le <b>verdict du</b> bœuf <b>est complet</b> et que le tribunal decide que le bœuf doit etre tue, il est <b>interdit de tirer</b> tout <b>benefice</b> du bœuf. <b>Et</b> a partir de la, on considere que <b>le</b> <b>maniere typique</b> du bœuf est <b>de proceder et de causer des dommages.</b> Tout <b>cela n'est pas le cas</b> dans le cas d'une <b>fosse</b> qui a cause des dommages. Et la <b>striction,</b> c'est-a-dire la raison d'etre rigoureuse, <b>qui s'applique a la Fosse par opposition au Bœuf</b> est <b>que</b> en ce qui concerne <b>la</b> categorie primaire de la <b>Fosse, sa formation initiale,</b> par exemple, son creusement, <b>se fait</b> d'une maniere qui peut <b>entrainer des dommages, et</b> celui qui en est responsable <b>est</b> considere comme <b>prevenu des son origine. Il n'en est pas de meme pour Ox.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

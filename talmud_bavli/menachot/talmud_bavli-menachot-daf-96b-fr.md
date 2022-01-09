@@ -1,0 +1,42 @@
+
+### Partie 1
+La Gemara demande : <b>Mais n'y a-t-il pas</b> le <b>cadre decore de la Table,</b> qui faisait le tour de son perimetre et avait une largeur d'un palier, comme le dit le verset : "Et tu lui feras un cadre d"?un largeur de main" (Exode 25:25) ? Puisque les arrangements sont places sur le cadre de la table, ils s'elevent d'un centimetre supplementaire au-dessus de la table.
+
+### Partie 2
+La Guemara repond : La declaration de Rabbi Yohanan est <b>conforme a l'opinion</b> de celui qui a dit</b> que le <b>cadre de la Table</b> n'etait pas au-dessus de la surface de la Table mais <b>en dessous</b>, et qu'il n'ajoutait donc aucune hauteur aux arrangements sur la Table. <b>Et</b> en outre, meme <b>selon celui qui a dit</b> que le <b>cadre de la Table etait au-dessus</b> de la surface de la Table, il n'a pas ajoute a la hauteur des arrangements. C'est parce que le cadre <b>etait incline</b> vers l'exterieur, <b>mais</b> le <b>pain etait place dans</b> la zone <b>de</b> la <b>Tables</b> surface.
+
+### Partie 3
+La Guemara cite le differend relatif a l'emplacement du cadre : <b>Comme il est enseigne</b> dans un <i>baraita</i> : <b>Rabbi Yosei dit : Il n'y avait pas du tout de panneaux a cet endroit</b>, car ils n'etaient pas necessaires pour supporter les pains. <b>Au contraire, le cadre de la Table soutenait le pain,</b> car le cadre etait au-dessus de la surface de la Table. Les rabbins ont <b>dit a</b> Rabbi Yosei : le <b>cadre de la Table etait en dessous</b> de la surface de la Table, et donc les panneaux etaient necessaires pour soutenir les pains.
+
+### Partie 4
+§ <b>Rabbi Yohanan dit : Selon la declaration de celui qui dit</b> que le <b>cadre de la Table etait en dessous</b> de la surface de la Table, la surface etait simplement un panneau plat. C'est un principe halakhique concernant les ustensiles en bois que seuls les ustensiles arrondis sont susceptibles d'etre impurs rituellement, mais pas les ustensiles plats. Il est connu que la table de pain d'agneau etait susceptible d'etre impure. On peut donc en deduire qu'une <b>Table plate est susceptible d'impurete,</b> a condition <b>qu'elle <b>puisse etre retournee</b> et utilisee des deux cotes. En effet, la large surface de la planche la rend fonctionnellement similaire a un receptacle concave.
+
+### Partie 5
+Le rabbin Yohanan poursuit : <b>Selon l'affirmation de celui qui dit</b> que le <b>cadre de la Table etait au-dessus</b> de sa surface, la Table servait de receptacle. On ne peut donc pas deduire la <i>halakha</i> a l'egard d'un <b>tableau plat que l'on peut retourner</b> du cas de la Table, et <b>vous devez</b> encore <b>soulever le dilemme</b> de savoir s'il est susceptible d'impurete rituelle.
+
+### Partie 6
+La Guemara demande : On peut conclure <b>par deduction</b> de la declaration de Rabbi Yohanan <b>que</b> la <b>Table est susceptible d'impurete rituelle.</b> Mais <b>c'est un recipient en bois designe pour reposer</b> dans un endroit fixe, <b>et tout recipient en bois</b> qui est <b>designe pour reposer</b> dans un endroit fixe <b>n'est pas susceptible d'impurete.</b>
+
+### Partie 7
+La Gemara explique : <b>Quelle est la raison</b> de cette <i>halakha</i> ? Le verset indique a propos des objets rendus impurs par les carcasses d'animaux rampants : "Tout ce sur quoi tombera l'un d'eux apres sa mort sera impur, qu'il s'agisse d'un vase de bois, d'etoffe, de cuir ou de sac" (Levitique 11:32). Le verset juxtapose les recipients en bois aux sacs, indiquant que <b>nous exigeons</b> qu'un recipient en bois soit <b>similaire a un sac</b> pour etre susceptible d'impurete rituelle. <b>De meme qu'un sac est porte</b> a la fois quand il est <b>plein et</b> quand il est <b>vide, de meme, tout</b> recipient en bois qui est <b>porte</b> a la fois <b>plein et vide</b> est susceptible d'etre impur. Puisque la Table est designee pour reposer dans un endroit fixe et non pour etre transportee, elle ne devrait pas etre susceptible d'impurete.
+
+### Partie 8
+La Guemara repond : La <b>Table est egalement portee</b> a la fois <b>pleine et vide,</b> c'est-a-dire meme lorsque les pains de mie sont sur elle, <b>conformement</b> a la declaration <b>de Reish Lakish.</b> C'est <b>comme l'a dit Reish Lakish : Quel</b> est le sens de ce <b>qui est ecrit :</b> "Et vous les disposerez en deux arrangements, six par arrangement, <b>sur la Table pure</b> devant l'Eternel" (Levitique 24:6) ? L'expression "la Table <b>pure</b>" enseigne <b>par deduction qu'il existe</b> un cas ou la Table devient <b>impure,</b> et donc la Torah declare que la Table doit etre pure lorsque les pains de mie y sont deposes. Cette conclusion est difficile, car le principe selon lequel un recipient en bois destine a reposer dans un endroit fixe n'est pas susceptible d'etre impur indique que la Table ne devrait pas etre susceptible d'etre impure.
+
+### Partie 9
+<b>Au contraire,</b> le verset <b>enseigne que</b> les pretres <b>souleveraient</b> la Table avec ses pains de mie <b>pour exposer les pains de mie aux pelerins</b> qui se tiennent dans la cour du Temple, <b>et</b> un pretre leur <b>dit : Voyez</b> comme vous etes <b>aimes</b> <b>devant,</b> c'est-a-dire aux yeux de, <b>l'Omnipresent,</b> qui accomplit constamment un miracle en ce qui concerne les pains de mie. Pour cette raison, la Table est susceptible de subir une impurete rituelle.
+
+### Partie 10
+Ceci est <b>conforme a la declaration de Rabbi Yehoshua ben Levi, car Rabbi Yehoshua ben Levi a dit : Un grand miracle a ete accompli avec les pains de proposition :</b> Son etat au moment de <b>son retrait</b> de la Table, apres y avoir ete laisse pendant une semaine, etait <b>comme</b> son etat au moment de <b>sa disposition</b> sur la Table ; <b>comme il est dit :" Placer du pain chaud le jour ou il a ete enleve"</b> (IA Samuel 21:7), ce qui indique qu'il etait aussi chaud le jour de son enlevement que le jour ou il a ete place sur la Table.
+
+### Partie 11
+La Gemara demande : <b>Mais</b> pourquoi est-il necessaire de deduire que la Table est susceptible d'etre impure du fait qu'elle n'est pas designee pour reposer dans un endroit fixe ? <b>Je peux deduire</b> qu'elle est susceptible d'impurete <b>en raison</b> de sa <b>couverture en or. N'avons-nous pas appris</b> dans une mishna (<i>Kelim</i> 22:1) : Considerons le cas de <b>la table et du <i>dulbeki</i>,</b> une petite table sur laquelle on pose les aliments et les boissons avant de les servir a la table a manger, <b>qui ont ete</b> partiellement <b>brises, ou celui recouvert de marbre</b> pierre, qui n'est pas susceptible d'impurete. Si <b>une zone de leur</b> surface suffisamment grande pour y <b>placer des tasses</b> <b>a ete laissee</b> non brisee ou recouverte de marbre, elles restent <b>susceptibles d'impurete. Rabbi Yehuda dit:</b> La surface restante <b>surface</b> doit etre assez grande pour <b>placer des morceaux</b> de viande et de pain egalement.
+
+### Partie 12
+On peut deduire de la mishna que si on <b>laisse</b> une partie de la surface de la table sans la recouvrir de marbre, <b>oui,</b> elle reste susceptible d'etre impure. Mais si <b>il n'a pas laisse</b> une partie de la table sans la recouvrir de marbre, elle est <b>non</b> susceptible d'impurete. De toute evidence, le statut d'un recipient est determine en fonction de la matiere de son revetement exterieur et non en fonction de sa matiere principale. Par consequent, puisque la table des pains de mie etait recouverte d'or, elle devrait avoir le statut d'un recipient metallique, qui est susceptible d'impurete rituelle meme s'il est destine a reposer dans un endroit fixe.
+
+### Partie 13
+<b>Et si vous disiez</b> le cas de la Table des pains de messe est different, car <b>ici,</b> en ce qui concerne la table recouverte de marbre, la mishna fait reference <b>a une couverture permanente</b> qui est fixee a la table avec des clous, alors que <b>la,</b> dans le cas de la table de pain de mie, la discussion fait reference <b>a un revetement qui n'est pas permanent,</b> puisque l'or n'etait pas fixe a la table de pain de mie avec des clous, cette explication est difficile. <b>Mais Reish Lakish n'a-t-il pas souleve un dilemme a Rabbi Yohanan :</b> La mishna qui discute de la table recouverte de marbre se refere-t-elle uniquement <b>a une couverture permanente, ou</b> meme <b>a une couverture qui n'est pas permanente ?</b> Se refere-t-elle uniquement a un cas <b>ou l'on <b>couvre</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

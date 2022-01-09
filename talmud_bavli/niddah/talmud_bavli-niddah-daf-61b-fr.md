@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Il l'examine section par section,</b> car en examinant chaque partie du vetement separement, il decouvrira toute tache de sang restante.
+
+### Partie 2
+Dans le cas d'un vetement <b>dans lequel une emission seminale,</b> qui est aussi rituellement impure, <b>a ete perdue,</b> c'est-a-dire qu'on ne sait pas ou se trouve le sperme sur le vetement, si le vetement est <b>neuf, on l'examine en</b> enfoncant <b>une aiguille</b> dans chaque partie du vetement. De cette maniere, il sentira si le sperme est dans le vetement. Si le vetement est <b>use, on l'examine en</b> le tenant devant <b>le soleil,</b> car les rayons du soleil ne passeront pas a travers la partie tachee du vetement. Il a ete <b>enseigne</b> dans une <i>baraita</i> : La <b>section</b> mentionnee ne doit <b>pas</b> etre <b>inferieure a trois</b> centimetres de doigt par trois <b>centimetres de doigt</b> de surface.
+
+### Partie 3
+La Guemara cite un autre cas de vetement dans lequel quelque chose a ete perdu. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : En ce qui concerne <b>un vetement dans lequel des sortes diverses,</b> un melange interdit de laine et de lin, <b>se sont perdues,</b> c'est-a-dire, il s'agit d'un vetement de laine dans lequel un fil de lin a ete cousu ou vice versa et on ne sait pas ou sur le vetement se trouve le fil, <b>on ne peut pas le vendre a un Gentil et on ne peut pas</b> meme <b>le faconner</b> pour en faire <b>un tapis de selle pour un ane.</b> Cela est interdit de peur que l'on enleve un morceau du vetement et qu'on le coud sur ses propres vetements. <b>Mais on peut le faconner</b> en <b>un linceul pour un cadavre,</b> car on ne craint pas de le retirer du mort. <b>Rav Yosef a dit : C'est-a-dire</b> que les <b>mitzvot seront annulees dans le futur.</b> Si ce n'etait pas le cas, alors lorsque les morts seront ressuscites, ils tireront un benefice du vetement de diverses sortes dans lequel ils ont ete enterres.
+
+### Partie 4
+<b>Abaye a dit a</b> Rav Yosef, <b>et certains disent</b> que <b>Rav Dimi</b> a dit a Rav Yosef : <b>Mais Rabbi Mani n'a-t-il pas dit</b> que <b>Rabbi Yannai a dit : Ils ont enseigne</b> qu'il est permis de placer un cadavre dans un linceul de diverses sortes <b>uniquement</b> afin de <b>l'ereinter, mais qu'il est interdit de l'enterrer</b> dans un linceul de diverses sortes ? Rav Yosef <b>lui a dit : N'a-t-on pas dit a propos de cette</b> question que <b>Rabbi Yohanan dit :</b> Il est <b>meme</b> permis <b>de l'enterrer</b> dans un linceul de diverses sortes ?
+
+### Partie 5
+<b>Et Rabbi Yohanan</b> se conforme <b>a son</b> ligne standard de <b>raisonnement</b> a cet egard, <b>comme Rabbi Yohanan a dit : Quel</b> est le sens de ce <b>qui est ecrit : "Separer [<i>hofshi</i>] parmi les morts,</b> comme les morts qui reposent dans la tombe, dont Tu ne te souviens plus" (Psaumes 88:6) ? <b>Une fois qu'une personne meurt, elle devient libre [<i>hofshi</i>] des mitzvot.</b>
+
+### Partie 6
+§ <b>Rafram bar Pappa dit</b> que <b>Rav Hisda dit :</b> En ce qui concerne <b>un vetement dans lequel diverses sortes ont ete perdues, on peut le teindre, et il est permis</b> de porter le vetement, car la laine et le lin absorbent la teinture differemment, et il sera donc facile de remarquer l'emplacement de l'autre sorte de fil et de l'enlever. <b>Rava dit a Rafram bar Pappa : D'ou l'Ancien,</b> c'est-a-dire Rav Hisda, tire-t-il <b>cette</b> <i>halakha</i> ?
+
+### Partie 7
+Rafram bar Pappa <b>lui dit : C'est</b> derive de <b>la mishna, comme nous l'avons appris :</b> En ce qui concerne un tas de pierres dont on savait qu'il contenait un objet d'impurete rituelle enterre sous lui, on continue a <b>faire des recherches</b> sous chacun de ces tas <b>jusqu'a ce qu'on atteigne la roche-mere. Et si</b> l'objet impur <b>n'y est pas</b>, c'est-a-dire s'il n'a rien trouve, on peut <b>dire</b> que <b>un corbeau</b> ou quelque autre animal <b>l'a pris. De meme</b> ici, <b>la laine et le lin,</b> c'est-a-dire le lin, <b>n'absorbent pas</b> la teinture <b>de la meme</b> maniere. <b>Et comme</b> il a teint le vetement et <b>qu'il ne connait pas</b> de melange de lin et de laine en son sein, comme tout le vetement a absorbe la teinture de la meme maniere, on doit <b>dire que</b> ce fil <b>est tombe,</b> et donc il est permis de porter le vetement.
+
+### Partie 8
+<b>Rav Aha, fils de Rav Yeiva, a dit au nom de Mar Zutra :</b> Dans le cas de <b>celui qui a mis un fil de lin dans un manteau de laine et qu'il est tombe, mais il ne sait pas s'il</b> est tout <b>tombe ou</b> s'il <b>n'est pas</b> tout <b>tombe,</b> il est <b>permis</b> de porter le manteau.
+
+### Partie 9
+La Gemara demande : <b>Quelle est la raison</b> pour laquelle le <i>halakha</i> est indulgent dans ce cas d'incertitude ? <b>Selon la loi de la Torah,</b> il <b>est ecrit : "Diverses sortes [<i>shaâtnez</i>]"</b> (Deuteronome 22 : 11), et cela est interprete comme un acronyme indiquant que la <i>halakha</i> des diverses sortes ne s'applique pas <b>a moins que</b> l'article <b>soit</b> peigne <b>lisse [<i>shua</i>], file [<i>tavui</i>]</b> comme un fil, <b>et tisse [<i>nuz</i>]. </b> Sans ces caracteristiques, la combinaison n'est pas consideree comme des sortes diverses par la loi de la Torah. <b>Et ce sont les Sages qui ont decrete</b> que les sortes diverses qui sont simplement attachees les unes aux autres sont interdites, malgre le fait qu'elles ne sont pas peignees et filees ensemble. <b>Et</b> dans ce cas, <b>puisqu'il ne sait pas si tout cela</b> <b>est tombe</b> il est <b>permis,</b> car le <i>halakha</i> est indulgent a l'egard des incertitudes impliquant des interdictions qui relevent de la loi rabbinique.
+
+### Partie 10
+<b>Rav Ashi s'oppose a cette</b> indulgence. On peut <b>dire</b> que par la loi de la Torah, il est interdit si le lin et la laine sont <b>soit peignes, soit files, soit tisses.</b> Peut-etre que le mot <i>shaâtnez</i> ne limite pas l'interdiction a une combinaison de ces trois activites, mais a l'une d'entre elles. La Guemara conclut : <b>Et la <i>halakha</i></b> est <b>conforme</b> a l'avis de <b>Mar Zutra, a partir du fait <b>que le Misericordieux exprime</b> l'interdiction dans la Torah <b>en un seul mot,</b> <i>shaâtnez</i>. Par consequent, ce terme signifie les trois caracteristiques ensemble.
+
+### Partie 11
+§ <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Un vetement de couleur rend</b> une femme <b>impure a cause</b> de <b>taches de sang</b> si elle y voit une tache de sang. <Rabbi Natan bar Yosef dit : </b> Si elle voit une tache de sang sur le vetement colore <b>elle n'est pas impure a cause</b> d'une <b>tache de sang, car</b> les Sages ont <b>decrete</b> que les <b>femmes</b> portent des <b>vetements colores,</b> et ce decret a ete fait <b>uniquement</b> afin <b>d'etre indulgent a l'egard de leurs</b> <b>taches de sang,</b> c'est-a-dire. e., afin qu'ils ne deviennent pas impurs.
+
+### Partie 12
+La Guemara remet en question l'utilisation par Rabbi Natan bar Yosef du mot : "promulgue". Les Sages ont promulgue ? Quelle a ete leur promulgation ? Plutot,</b> Rabbi Natan bar Yosef dit que la raison pour laquelle <b>les Sages</b> <b>permettaient les vetements de couleur aux femmes</b> etait <b>uniquement</b> afin <b>d'etre indulgent a l'egard de ses</b> <b>taches de sang.</b> La Guemara souleve une objection : De la declaration selon laquelle les Sages ont <b>permis</b> les vetements de couleur, on peut conclure <b>par deduction qu'ils etaient</b> auparavant <b>interdits.</b> Mais y a-t-il eu une epoque ou il n'etait pas permis aux femmes de porter des vetements de couleur ?
+
+### Partie 13
+La Guemara repond : <b>Oui, comme nous l'avons appris</b> dans une mishna (<i>Sota</i> 49a) : <b>Dans la guerre [<i>bapulmus</i>] de Vespasien, ils ont decrete sur les couronnes des maries,</b> c'est-a-dire que les maries ne peuvent plus porter de couronnes, <b>et sur le tambour [<i>hairus</i>],</b> c'est-a-dire qu'ils ont egalement interdit de jouer du tambour. <b>Ils</b> ont egalement <b>voulu decreter en ce qui concerne les vetements de couleur,</b> c'est-a-dire que les femmes ne peuvent pas porter de tels vetements, mais <b>ils ont dit : Ceci est preferable,</b> que les femmes portent des vetements de couleur, <b>afin d'etre indulgentes a l'egard de leurs</b> <b>taches de sang,</b> car une tache de sang trouvee sur un vetement de couleur ne rend pas la femme rituellement impure.
+
+### Partie 14
+<strong>MISHNA:</strong> Il existe <b>sept substances</b> que <b>l'on applique sur la tache</b> d'un vetement pour verifier s'il s'agit d'une tache de sang ou d'une teinture, car ces sept substances eliminent le sang. Ce sont : <b>Salive sans gout, et liquide de haricots fendus, et urine, et natron, et <i>borit</i>,</b>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

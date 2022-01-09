@@ -1,0 +1,42 @@
+
+### Part 1
+<b>There is</b> one <i>tanna</i> <b>who derives it,</b> the <i>halakha</i> that only males of priestly families may eat of the communal peace offering, <b>from here,</b> i.e., the precedent mentioned explicitly with regard to the meal offering; <b>and there is</b> one <i>tanna</i> <b>who derives it from there,</b> i.e., the amplification of the verse stated with regard to meal offerings, sin offerings, and guilt offerings.
+
+### Part 2
+The Gemara continues expounding the verse: “This is the law of the burnt offering, of the meal offering, and of the sin offering, and of the guilt offering, and of the inauguration offering, and of the sacrifice of peace offerings.” <b>“Sin offering”</b> teaches: <b>Just as</b> with regard to <b>a sin offering,</b> whatever it touches <b>is sanctified through</b> the substance that becomes <b>absorbed, so too</b> for <b>all</b> offerings mentioned in this verse, whatever they touch <b>is sanctified through</b> the <b>absorbed</b> portions.
+
+### Part 3
+<b>“Guilt offering”</b> teaches: <b>Just as</b> with regard to <b>a guilt offering, a fetal sac and a placenta are not sacred within it,</b> because a guilt offering is always male and as such never holds a fetal sac or a placenta, <b>so too</b> for <b>any</b> of the offerings mentioned in the verse, <b>a fetal sac and a placenta are not sacred</b> if found <b>within it.</b> The Gemara notes: Evidently, this <i>tanna</i> <b>holds</b> that with regard to the <b>offspring of sacrificial</b> animals, <b>they are sanctified</b> only <b>as they are</b> from the moments of their births, but not in utero. <b>And</b> he also holds that <b>one derives</b> the <b>possible from</b> the <b>impossible,</b> so that the <i>halakha</i> of a fetal sac and of a placenta concerning female animals may be derived from the <i>halakha</i> of a male animal.
+
+### Part 4
+<b>“Inauguration offering”</b> teaches: <b>Just as</b> with regard to the <b>inauguration offering,</b> the rams and the bread of that offering, which were brought during the seven days of inauguration of the Tabernacle and which the priests ate, <b>their leftovers</b> were disposed of <b>by incineration,</b> as is stated: “And if any of the flesh of the inauguration offering, or of the bread, remain until the morning, then you shall burn the remainder with fire” (Exodus 29:34), <b>and no living animals</b> were <b>among their leftovers</b> designated for incineration; <b>so too</b> for <b>all</b> offerings mentioned, <b>their leftovers are</b> disposed of <b>by incineration, and there are no living animals</b> counted <b>among their leftovers</b> to be incinerated. Accordingly, if one sanctifies two animals so that either one may be brought if the other is lost, when one animal is sacrificed, the surviving animal is not killed and incinerated.
+
+### Part 5
+<b>“Peace offering”</b> teaches: <b>Just as</b> with regard to the <b>peace offer-ing,</b> its components can <b>render</b> an animal disqualified as <b>an offering that was sacrificed with the intent to consume it after its appointed time [<i>piggul</i>] and</b> can be <b>rendered <i>piggul</i>; so too</b> with regard to <b>all</b> offerings mentioned in this verse, their components <b>render</b> an animal disqualified as <b><i>piggul</i> and</b> can be <b>rendered <i>piggul</i>.</b>
+
+### Part 6
+§ With regard to the verse at the center of the prior exchange (Leviticus 7:37), the Gemara states: <b>It was taught in a <i>baraita</i> in the name of Rabbi Akiva:</b> From the term <b>“meal offering,”</b> it is derived: <b>Just as</b> with regard to <b>a meal offering,</b> whatever it touches <b>is sanctified through</b> the substance that becomes <b>absorbed,</b> as it is stated: “Whatever shall touch them shall be sacred” (Leviticus 6:11); <b>so too</b> for <b>all</b> offerings mentioned in this verse, whatever they touch <b>is sanctified through</b> the <b>absorbed</b> portions.
+
+### Part 7
+The Gemara notes: <b>And it was necessary to write</b> the <i>halakha</i> of absorption with regard to <b>a meal offering, and it was necessary to write</b> the <i>halakha</i> of absorption with regard to <b>a sin offering. As, had</b> the Torah <b>taught us</b> this <i>halakha</i> only with regard to <b>a meal offering,</b> I would say <b>that since it is soft, it is absorbed</b> and, therefore it sanctifies what it touches. <b>But</b> with regard to the meat of <b>a sin offering, I would say</b> that it does <b>not</b> sanctify what it touches. <b>And had it</b> had <b>taught us</b> this <i>halakha</i> only with regard to <b>a sin offering,</b> I would say that <b>because,</b> on account of its fattiness, it <b>oozes</b> into whatever it touches, it sanctifies it. <b>But</b> with regard to <b>a meal offering, I would say</b> that it does <b>not</b> sanctify what it touches. Therefore, it is <b>necessary</b> for the Torah to write both.
+
+### Part 8
+The cited <i>baraita</i> continues: <b>“Sin offering”</b> teaches: <b>Just as a sin offering is brought only from non-sacred</b> animals <b>and</b> is sacrificed specifically <b>in the daytime, and</b> its service must be performed <b>with</b> the priest’s <b>right hand; so too all</b> offerings mentioned <b>are brought only from non-sacred</b> animals, <b>and</b> are sacrificed specifically <b>in the daytime, and</b> each one’s service must be performed <b>with</b> the priest’s <b>right hand. And</b> with regard to <b>a sin offering, from where do we</b> derive that it is brought only from non-sacred animals? <b>Rav Ḥisda said: The verse states: “And Aaron shall present the bull of the sin offering, which is his”</b> (Leviticus 16:11). This teaches that the animal must come <b>from his</b> cattle, <b>and not from communal</b> property, <b>and not from</b> money upon which the second <b>tithe</b> has been redeemed.
+
+### Part 9
+The Gemara asks: Why is it necessary to derive from the <i>halakha</i> of a sin offering that an offering is sacrificed <b>in the daytime?</b> Is this principle not <b>derived from</b> the conspicuous expression: <b>“On the day of His commanding”</b> (Leviticus 7:38), which is understood to be referring to all offerings? The Gemara answers: Indeed, the <i>baraita</i> <b>cited</b> the principle from the model of a sin offering <b>for no reason [<i>kedi</i>],</b> and it was mentioned here on account of the other principles.
+
+### Part 10
+The Gemara asks: Why must the <i>baraita</i> teach that <i>halakha</i> of the sin offering teaches that the rites of an offering must be performed <b>with</b> the priest’s <b>right hand?</b> Is this not <b>derived from</b> the statement <b>of Rabba bar bar Ḥana? As Rabba bar bar Ḥana says</b> that <b>Reish Lakish says:</b> In <b>any place</b> in the Torah <b>that it is stated</b> that an action is performed with <b>a finger, or</b> that it is performed by <b>priesthood,</b> the <i>halakha</i> is that the rite is performed <b>only</b> with the <b>right</b> hand. This is derived from the Torah’s statement with regard to the leper: “And the priest shall dip his right finger” (Leviticus 14:16). The Gemara answers: The <i>baraita</i> <b>cited</b> the principle from the model of a sin offering <b>for no reason,</b> since it is actually derived from Rabba bar bar Ḥana’s statement.
+
+### Part 11
+The Gemara suggest: <b>And if you wish, say</b> that the <i>tanna</i> of the <i>baraita</i> <b>holds in accordance with</b> the opinion of <b>Rabbi Shimon, who says:</b> Where the verse mentions <b>a finger,</b> it <b>is not necessary</b> for the verse to mention <b>priesthood;</b> but where it mentions <b>priesthood,</b> it <b>is necessary</b> for the verse to mention <b>a finger,</b> in order to teach that the rite must be performed with the right hand, which is not self-evident. With regard to the assorted offerings itemized in the verse (Leviticus 7:37), the Torah does not mention a finger; therefore, they must be derived from the <i>halakha</i> of a sin offering.
+
+### Part 12
+The cited <i>baraita</i> continues: <b>“Guilt offering”</b> teaches: <b>Just as</b> with regard to <b>a guilt offering, its bones</b> have no sanctity and <b>are permitted</b> for any use, <b>so too</b> with regard to <b>any</b> mentioned offering, <b>its bones are permitted.</b>
+
+### Part 13
+§ <b>Rava said:</b> It is <b>obvious to me</b> that
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

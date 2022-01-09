@@ -1,0 +1,48 @@
+
+### Part 1
+the phrase: On the condition that my father wants this betrothal, means: <b>On the condition that</b> my <b>father will remain silent</b> and will not object when he hears of the betrothal. But if this is the case, <b>say the last clause</b> of the mishna: If <b>the son died, one instructs the father to say that he does not want</b> the betrothal. <b>Why</b> should this matter? After all, <b>he remained silent</b> when he first heard about it. Clearly his mere silence does not constitute agreement. <b>Rather,</b> one must say that the phrase: On the condition that my father wants this betrothal, means that <b>he said to her: On the condition that</b> my <b>father will not object</b> to this betrothal at any point in time.
+
+### Part 2
+The Gemara asks: Wouldn’t this mean that <b>the first clause</b> of the mishna describes <b>one reason,</b> i.e., one set of circumstances, <b>and the middle clause and last clause</b> describe <b>one</b> other <b>reason? Rabbi Yannai said: Yes,</b> this is so. <b>Reish Lakish said: Conclude from</b> his statement that <b>according to</b> the opinion <b>of Rabbi Yannai one forces a mishna</b> to be explained as <b>following two reasons, and in accordance with</b> the opinion <b>of one <i>tanna</i>, rather than establishing</b> a mishna as following the opinions of <b>two <i>tanna’im</i> and one reason.</b> In other words, an interpretation that maintains the unified attribution of one mishna is preferable, even if one is thereby forced to say that it addresses different situations.
+
+### Part 3
+<b>Rav Yosef bar Ami said: Actually,</b> the entire mishna <b>is</b> addressing <b>one reason,</b> i.e., one case, <b>and what</b> is the meaning of: <b>On the condition that</b> my <b>father wants</b> the betrothal? It means: <b>On the condition that</b> my <b>father will not object from now and until thirty days</b> have elapsed. His silence for thirty days indicates his acceptance of the betrothal.
+
+### Part 4
+<strong>MISHNA:</strong> With regard to a man who said: <b>I betrothed my</b> minor <b>daughter</b> to someone <b>but I do not know to whom I betrothed her, and one</b> man <b>came</b> forward <b>and said: I betrothed her,</b> his claim is <b>deemed credible.</b> If two men stepped forward and <b>this</b> one <b>said: I betrothed her, and that</b> one <b>said: I betrothed her,</b> they must <b>both give</b> her <b>a bill of divorce</b> to render it permitted for her to marry anyone else. <b>And if they</b> so <b>desire, one</b> of them <b>gives</b> her <b>a bill of divorce and</b> the other <b>one may marry</b> her.
+
+### Part 5
+<strong>GEMARA:</strong> <b>Rav says:</b> When the mishna states that the claim of one who says that he betrothed this girl is deemed credible, it means that he is <b>deemed credible</b> to the extent that he <b>may give</b> her <b>a bill of divorce, but</b> he is <b>not deemed credible to marry</b> her. He is <b>deemed credible to give</b> her <b>a bill of divorce,</b> as there is a presumption that <b>a person sins only for his own</b> benefit. No one is suspected of sinning when he does not stand to gain from it. Since he is not allowed to marry her himself, we do not say that he lied without purpose. <b>But he is not deemed credible to marry</b> her, as we <b>say</b> that <b>his inclination</b> might have <b>overcome him,</b> leading him to falsely claim that he is the one who betrothed her.
+
+### Part 6
+<b>Rav Asi</b> disagrees with Rav’s interpretation of the mishna and <b>says: He</b> is <b>deemed credible even to marry</b> her, as he would not dare to lie directly to the father of the girl he claims to have betrothed. <b>And Rav Asi concedes in</b> the case of a woman <b>who says: I became betrothed but I do not know to whom I became betrothed, and one</b> man <b>came and said: I betrothed her, that he is not deemed credible to marry her.</b> In this situation she might have agreed to collude with him, as the Gemara will explain.
+
+### Part 7
+The Gemara raises a difficulty: <b>We learned</b> in the mishna that if <b>they</b> so <b>desire, one</b> of them <b>gives</b> her <b>a bill of divorce and</b> the other <b>one may marry</b> her. This is apparently <b>a conclusive refutation</b> of the opinion <b>of Rav,</b> who says that he may not marry her. The Gemara answers: <b>Rav</b> could have <b>said to you: There,</b> in our mishna, <b>it is different, as, since there is another</b> person <b>with him</b> also claiming to have betrothed her, <b>he is afraid</b> to lie.
+
+### Part 8
+The Gemara comments: It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rav Asi:</b> If a man said: <b>I have betrothed my daughter</b> to someone <b>but I do not know to whom I betrothed her, and one</b> person <b>came</b> forward <b>and said: I betrothed her,</b> he is <b>deemed credible even to marry</b> her. If that person <b>married her, and another</b> man <b>came</b> forward <b>and said:</b> It was <b>I</b> who <b>betrothed her, it is not within</b> the second man’s <b>power to prohibit her to</b> her husband.
+
+### Part 9
+The <i>baraita</i> cites another case: With regard to <b>a woman who said: I became betrothed but I do not know to whom I became betrothed, and one</b> man <b>came and said: I betrothed</b> her, he is <b>not deemed credible to marry</b> her. Why not? <b>Because she is protecting him.</b> Perhaps she decided only now that she wants to marry him and is therefore identifying him as the man who betrothed her, although she knows it was someone else. The same suspicions do not arise in the case of a father, who has no inclinations in this regard.
+
+### Part 10
+§ <b>A dilemma was raised before</b> the Sages: In the case of the mishna, where the father claims to have betrothed his daughter to someone, <b>what is</b> the <i>halakha</i> <b>with regard to stoning based on</b> the father’s account? Is a father who says: I betrothed my daughter, deemed credible to the extent that she is stoned as an adulteress if she engages in sexual intercourse with someone? <b>Rav says</b> the court <b>does not stone</b> her, <b>and Rav Asi says</b> the court <b>stones</b> her.
+
+### Part 11
+The Gemara elaborates: <b>Rav said</b> that the court <b>does not stone</b> her, because <b>when the Merciful One deems the father credible</b> when he says he betrothed his daughter, this is referring only <b>to the prohibition</b> against her marrying anyone else. By contrast, <b>with regard to killing</b> her, the Torah <b>did not deem him credible. Rav Asi said:</b> The court <b>stones</b> her, as <b>the Merciful One deems the father credible with regard to all matters,</b> including the death penalty. <b>Rav Asi says: And I concede</b> in the case <b>of</b> a woman who <b>says: I became betrothed, that</b> the court <b>does not stone</b> her on the basis of her own admission.
+
+### Part 12
+<b>And Rav Asi says: These <i>halakhot</i> of mine are roof breakers,</b> i.e., they are difficult and incomprehensible. Rav Asi explains: <b>Now, in a case where</b> a father said: I have betrothed my daughter to someone but I do not know to whom, <b>where if</b> someone <b>came to marry</b> her he is deemed credible and <b>may marry</b> her, which means <b>you say</b> that the court then <b>stones</b> her on the basis of the father’s testimony if she later commits adultery, <b>is it not logical that</b> the court should <b>stone</b> her in <b>a case</b> where a woman said: I became betrothed but I do not know to whom, thereby prohibiting herself to everyone to the extent that <b>if</b> someone <b>came to marry</b> her <b>he may not marry</b> her?
+
+### Part 13
+<b>But</b> that <b>is not so,</b> i.e., Rav Asi’s rulings are in fact reasonable: <b>The Merciful One deems credible a father</b> who says that his daughter is betrothed, and therefore she can even be stoned, but the Torah <b>did not deem her,</b> i.e., the woman herself, <b>credible</b> in this regard. She does not receive a special degree of credibility, and although she can declare herself a forbidden item, i.e., she can render herself forbidden to all men, as far as punishment is concerned her claim is treated by a court in accordance with the regular rules of evidence.
+
+### Part 14
+<b>And Rav Ḥisda said: Both</b> in <b>this</b> case, when the father says: I betrothed my daughter, <b>and</b> in <b>that</b> case, when she herself says: I became betrothed, the court <b>does not stone</b> her. The Gemara comments: <b>And Rav Ḥisda follows his</b> standard line of <b>reasoning, as Rav Ḥisda says</b> that if a father declared: <b>This son of mine is nine years and one day old,</b> or: <b>This daughter of mine is three years and one day old,</b> and the son engaged in intercourse with a woman forbidden to him, or the daughter engaged in intercourse with a man forbidden to her, he is <b>deemed credible</b> concerning his children’s ages <b>with regard to</b> the requirement for the adult to bring <b>an offering</b> if they performed the act unwittingly, <b>but not with regard to</b> their receiving the punishment of <b>lashes and not with regard to</b> other <b>punishments.</b>
+
+### Part 15
+The Gemara comments: It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rav Ḥisda</b> that if one said: <b>This son of mine is thirteen years and one day old,</b> or: <b>This daughter of mine is twelve years and one day old,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

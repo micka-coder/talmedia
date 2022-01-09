@@ -1,0 +1,30 @@
+
+### Part 1
+<b>and Rabbi Yishmael holds in accordance with</b> the opinion of <b>Rabbi Akiva</b> concerning a different <i>halakha</i>. The Gemara clarifies: <b>Rabbi Elazar holds in accordance with</b> the opinion of <b>Rabbi Yishmael, who says: Samaritans are lion converts,</b> i.e., they converted out of fear of being attacked by lions for worshipping idols in Eretz Yisrael. They were never converts for the sake of Heaven, but remained gentiles according to <i>halakha</i>. <b>And Rabbi Yishmael holds in accordance with</b> the opinion of <b>Rabbi Akiva, who says:</b> In the case of <b>a gentile or</b> a Canaanite <b>slave who engaged in sexual intercourse with a Jewish woman, the offspring is a <i>mamzer</i>.</b> Since over the generations Jews assimilated with Samaritans, who have the status of gentiles, the descendants of those Jews who married Samaritans have the status of uncertain <i>mamzerim</i>.
+
+### Part 2
+The Gemara asks: <b>But does Rabbi Yishmael hold in accordance with</b> the opinion of <b>Rabbi Akiva</b> in this matter? <b>But doesn’t Rabbi Yoḥanan say in the name of Rabbi Yishmael: From where</b> is it derived with regard to <b>a gentile or</b> a Canaanite <b>slave who engaged in sexual intercourse with the daughter of a priest, or</b> with <b>the daughter of a Levite, or</b> with <b>the daughter of an Israelite, that they have disqualified her</b> from marrying a priest? It is <b>as it is stated: “But if a priest’s daughter is a widow, or divorced, and has no child,</b> and is returned to her father’s house, as in her youth, she may eat of her father’s bread” (Leviticus 22:13).
+
+### Part 3
+He explains: It is only if she was married to <b>one who has</b> the <i>halakhot</i> of <b>widowhood and divorce,</b> meaning a Jew, that she can return to her father’s house and partake of <i>teruma</i>. This serves to <b>exclude a gentile or</b> a Canaanite <b>slave, who do not have</b> the <i>halakhot</i> of <b>widowhood and divorce;</b> if the daughter of a priest engages in intercourse with such a man, she may no longer partake of <i>teruma</i>.
+
+### Part 4
+<b>And if it enters your mind</b> that Rabbi Yishmael <b>holds in accordance with</b> the opinion of <b>Rabbi Akiva</b> that the offspring of a Jewish woman and a gentile or a slave is a <i>mamzer</i>, what need is there for this proof? <b>Now</b> that he holds that the offspring from a gentile <b>is a <i>mamzer</i>, is</b> it <b>necessary</b> to state <b>that</b> the gentile or slave <b>disqualifies</b> her from marrying a priest <b>by engaging in intercourse</b> with her?
+
+### Part 5
+<b>Rather,</b> the Gemara explains as follows: <b>Rabbi Elazar holds in accordance with</b> the opinion of <b>Rabbi Yishmael, who says: Samaritans are lion converts, and</b> Rabbi Elazar himself also <b>holds in accordance with</b> the opinion of <b>Rabbi Akiva, who says:</b> If <b>a gentile or</b> a Canaanite <b>slave engaged in sexual intercourse with a Jewish woman, the offspring is a <i>mamzer</i>.</b>
+
+### Part 6
+The Gemara asks: <b>But does Rabbi Elazar hold in accordance with</b> the opinion of <b>Rabbi Akiva? But doesn’t Rabbi Elazar say: Although Beit Shammai and Beit Hillel disagreed with regard to</b> the <i>halakha</i> of <b>rival wives,</b> as to whether the rival wife of a <i>yevama</i> who is a forbidden relative of the <i>yavam</i> is obligated in or exempt from levirate marriage, they <b>concede that a <i>mamzer</i> is only</b> the offspring born <b>from one whose prohibition is a prohibition of forbidden relatives and punishable by <i>karet</i>.</b> Since engaging in intercourse with a gentile or a Canaanite slave is not punishable by <i>karet</i>, Rabbi Elazar would agree that the child of such a union is not a <i>mamzer</i>.
+
+### Part 7
+<b>Rather, when Rabin came</b> from Eretz Yisrael to Babylonia, he reported that <b>Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says, and some say</b> that it was <b>Rabbi Abba bar Zavda</b> who <b>says</b> that <b>Rabbi Ḥanina says and some say</b> it was <b>Rabbi Ya’akov bar Idi</b> who <b>says</b> that <b>Rabbi Yehoshua ben Levi says:</b> There are <b>three divisions</b> of opinions <b>with regard to the matter.</b>
+
+### Part 8
+<b>Rabbi Yishmael holds</b> that <b>Samaritans are lion converts, and the priests who assimilated among them were unfit priests, as it is stated: “And made unto them from among themselves priests of the high places”</b> (II Kings 17:32). <b>And Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> What is the meaning of “from among themselves”? <b>From the thorns that are among the</b> Jewish <b>people,</b> meaning those of flawed lineage. <b>And</b> it was <b>due to that</b> reason that the Sages <b>disqualified them,</b> not due to the Samaritans themselves, who are gentiles, but due to the Jews of flawed lineage who are assimilated among them. When a Samaritan seeks to marry another Samaritan, it is possible that one of them is a Jew of flawed lineage.
+
+### Part 9
+<b>And Rabbi Akiva holds: Samaritans are true converts, and the priests who assimilated among them were fit priests, as it is stated: “And made unto them from among themselves priests of the high places”</b> (II Kings 17:32). <b>And Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> “From among themselves” means <b>from the chosen ones,</b> the upper echelon <b>of the</b> Jewish <b>people. And for what</b> reason <b>did</b> the Sages <b>prohibit them</b> from entering into the congregation if there is no problem with regard to their conversion or with regard to the Jews who assimilated among them? It is <b>because</b> they did not act in accordance with the <i>halakha</i>, as <b>they would perform levirate marriage with betrothed women.</b> They would perform the mitzva of levirate marriage only with one who was widowed from a betrothal,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Je demande : qu'est-ce que</b> le <i>halakha</i> ? Est-ce que <b>l'homme</b> qui a fait vœu d'apporter onze <i>log</i> <b>intention</b> d'apporter une quantite de vin correspondant a celle qui est apportee en association avec une offrande <b>de deux taureaux,</b> c'est-a-dire douze <i>log</i>, <b>et tant qu'il n'a pas accumule cette</b> quantite, la libation <b>n'est pas apportee ? Ou peut-etre a-t-il l'intention</b> d'apporter une quantite egale a celle associee <b>a deux beliers et un agneau,</b> c'est-a-dire quatre pour chaque belier et trois pour l'agneau, soit un total de onze. <b>Dit-on</b> qu'il avait l'intention d'apporter <b>deux</b> libations associees <b>a un type,</b> c'est-a-dire un belier, <b>et une</b> libation associee <b>a un autre type,</b> c'est-a-dire un agneau, <b>ou non ? Quelle</b> est la <i>halakha</i> ? La Guemara conclut : Le dilemme <b>doit rester</b> non resolu.
+
+### Partie 2
+<strong>MISHNA :</strong> <b>On peut s'engager</b> a apporter des libations independantes de <b>vin, mais on ne peut s'engager a apporter de l'huile</b> seule ; c'est <b>la declaration de Rabbi Akiva. Rabbi Tarfon dit : On peut promettre de l'huile</b> aussi.
+
+### Partie 3
+<b>Rabbi Tarfon dit : De meme que nous avons trouve que le vin vient</b> comme <b>une obligation et vient</b> comme <b>une offrande cadeau</b> independante de toute offrande, <b>de meme,</b> nous trouvons <b>que l'huile vient</b> comme <b>une obligation et vient</b> comme <b>une offrande cadeau</b>. <b>Rabbi Akiva lui a dit : Non, si tu as dit</b> que cela est vrai <b>en ce qui concerne le vin, car</b> il est <b>sacrifie avec son offrande obligatoire</b> <b>par lui-meme, dois-tu</b> egalement <b>dire</b> que c'est aussi le cas <b>en ce qui concerne l'huile, qui n'est jamais sacrifiee avec son offrande obligatoire</b> <b>par elle-meme mais seulement</b> melangee a la farine ?
+
+### Partie 4
+La mishna se termine par une decision concernant une offrande volontaire de repas : <b>Deux</b> personnes <b>ne s'engagent pas</b> une offrande de repas de <b>un dixieme</b> d'un epha comme partenaires, <b>mais elles peuvent s'engager pour un holocauste et une offrande de paix. Et</b> ils peuvent s'engager a apporter meme <b>un oiseau individuel,</b> pas seulement une paire.
+
+### Partie 5
+<strong>GEMARA :</strong> A propos de la dispute entre Rabbi Tarfon et Rabbi Akiva sur la question de savoir si l'on peut engager de l'huile, <b>Rava dit : Des declarations de l'un et l'autre, nous apprenons</b> que <b>une personne peut engager une offrande de repas</b> comme celles apportees <b>avec les libations</b> qui accompagnent les offrandes d'animaux chaque jour.
+
+### Partie 6
+La Guemara demande : N'est-ce pas <b>evident ?</b> La Gemara explique : Il fallait le dire, <b>pour ne pas dire</b> que <b>le Misericordieux a revele</b> la nature d'une <b>offrande de repas volontaire</b> (voir Levitique, chapitre 2). Peut-etre que seules <b>ces cinq offrandes de repas</b> detaillees la sont <b>en effet</b> apportees comme offrandes volontaires, mais tout <b>type supplementaire</b>, tel qu'une offrande de repas apportee avec des libations, ne l'est <b>pas. </b> Rava nous <b>enseigne donc</b> que <b>ces questions</b> dans la Torah ne s'appliquent que <b>lorsque</b> son engagement d'une offrande de repas etait <b>non specifie, mais lorsqu'il a specifie</b> que l'huile et la farine sur lesquelles il fait un vœu doivent etre apportees a la maniere d'une offrande de repas avec libations, alors <b>il a specifie,</b> et le vœu prend effet.
+
+### Partie 7
+§ La mishna a declare que <b>deux</b> personnes <b>ne s'engagent pas</b> un dixieme d'epha ensemble. La Guemara demande : <b>Quelle en est la raison ? Si nous disons</b> que c'est <b>parce qu'il est ecrit :</b> "Et lorsqu'un individu <b>apporte</b> une offrande de repas" (Levitique 2:1), au singulier, cela n'est pas une preuve, car en ce qui concerne <b>l'holocauste egalement, il est ecrit</b> au singulier : "Quand n'importe lequel d'entre vous <b>apporte</b> une offrande" (Levitique 1:2). Neanmoins, deux personnes peuvent apporter un holocauste ensemble, comme l'indique la mishna.
+
+### Partie 8
+<b>Au contraire, quelle est la raison</b> pour laquelle <b>un holocauste</b> est apporte par deux personnes ? La raison est <b>qu'il est ecrit</b> a la deuxieme personne du pluriel : "Ceux-ci, vous les offrirez"¦en plus de <b>vos holocaustes [<i>leoloteikhem</i>],</b> ou de vos offrandes de repas, ou de vos offrandes de boisson, ou de vos offrandes de paix" (Nombres 29:39). La Guemara fait remarquer : En ce qui concerne <b>une offrande de repas,</b> il est <b>egalement ecrit</b> au pluriel : <b>Vos offrandes de repas [<i>leminhoteikhem</i>].</b> La raison pour laquelle on ne peut pas apporter une offrande de repas en association est <b>parce qu'il est ecrit :</b> "Et quand <b>un individu</b> apporte une offrande de repas" (Levitique 2:1), indiquant qu'un seul individu peut l'offrir, mais pas deux ensemble.
+
+### Partie 9
+<b>Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>declare</b> une explication du verset suivant :" Toute personne <b>qui apporte son offrande, qu'il s'agisse de l'un de leurs vœux ou de l'une de leurs offrandes volontaires qu'ils sacrifient au Seigneur"</b> (Levitique 22:18). Il ressort de l'emploi du pluriel dans la seconde partie du verset que <b>toute</b> offrande peut <b>etre apportee en association, et le verset n'exclut de ce principe qu'une offrande de repas</b>, <b>comme il est dit :</b> "Et lorsque <b>un individu</b> apporte une offrande de repas.
+
+### Partie 10
+La Guemara cite un autre commentaire sur le fait que la Torah introduit l'offrande de repas volontaire en soulignant qu'elle est apportee par un individu. <b>Rabbi Yitzhak dit : Pour quelle</b> raison <b>l'offrande de repas est-elle differente</b> des autres offrandes en ce <b>que</b> le terme <b>"un individu [<i>nefesh</i>" est enonce a son sujet ? Le Saint, Beni soit-Il, a dit : A qui appartient la pratique</b> d'apporter une offrande de repas ? </b> C'est celle d'un <b>pauvre</b> individu ; et <b>Je lui attribuerai</b> le merite <b>comme s'il offrait son ame [<i>nafsho</i>] devant Moi.</b>
+
+### Partie 11
+§ La Guemara cite un autre commentaire fait par Rabbi Yitzhak au sujet des offrandes de repas. <b>Rabbi Yitzhak dit : Quelle est</b> la raison pour laquelle l'<b>offrande de repas est differenciee</b> des autres offrandes en <b>ce que</b> la Torah <b>a enonce ces cinq types de preparations a l'huile</b> a son egard ? Les cinq types d'offrandes volontaires de repas sont : Une offrande de repas de farine fine, une offrande de repas dans une casserole peu profonde, une offrande de repas dans une casserole profonde, une offrande de repas de pains cuits au four, et une offrande de repas de galettes cuites au four. Toutes sont apportees avec de l'huile. Ceci s'explique par <b>la parabole d'un roi en chair et en os dont l'ami lui a prepare un repas de fete, mais</b> le roi <b>sait que</b> l'ami <b>est pauvre.</b> Le roi lui <b>dit : Fais-moi</b> des aliments <b>parmi cinq types de plats frits</b>, <b>afin que je puisse beneficier de toi.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

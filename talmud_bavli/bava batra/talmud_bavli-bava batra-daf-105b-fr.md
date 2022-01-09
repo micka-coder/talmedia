@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Au contraire,</b> il faut croire que Shmuel <b>actuellement</b> a voulu dire que <b>ceci</b> est la declaration de ben Nanas, <b>mais lui,</b> Shmuel, <b>n'est pas d'accord avec lui</b> pour qu'on s'occupe de cette derniere expression. En effet, il est d'accord avec les Sages qui soutiennent que deux expressions contradictoires creent un cas d'incertitude. <b>Et la,</b> dans le cas du loyer du mois intercalaire, <b>quelle est la raison</b> de sa decision selon laquelle si le proprietaire est venu percevoir le loyer au debut du mois, la totalite de la somme revient au proprietaire, alors que s'il est venu a la fin du mois, l'argent revient au locataire ? <b>Parce que</b> la partie qui se voit attribuer l'argent <b>etait</b> consideree comme etant deja <b>en possession</b> de celui-ci, et dans un cas d'incertitude, l'argent est laisse entre les mains de la partie jouissant de la possession.
+
+### Partie 2
+<b>Ici aussi,</b> dans le cas ou le vendeur dit qu'il vend un <i>kor</i> de grain pour trente <i>sela</i>, chaque <i>seâ</i> pour une <i>sela</i>, l'acheteur a ete considere comme etant deja <b>en possession</b> de chaque <i>seâ</i> qui lui a ete mesuree, et par consequent le vendeur ne peut pas revenir sur la vente. C'est pour cette raison que l'acheteur acquiert le grain, et non en vertu du principe selon lequel, dans un cas d'expressions contradictoires, on doit s'occuper de la derniere expression.
+
+### Partie 3
+Sur un sujet similaire, <b>Rav Huna dit</b> que <b>on dit</b> dans <b>l'ecole du Rav:</b> Si le vendeur dit a l'acheteur : Je te vends cet objet pour <b>un <i>istera</i>, cent <i>maâ</i>,</b> un <i>istera</i> etant une piece d'argent egale a quatre-vingt-seize <i>maâ</i> de cuivre, on suppose qu'il voulait dire <b>une centaine de <i>maâ</i>. </b> Et si le vendeur inversait l'ordre et disait qu'il vendait l'objet pour <b>une centaine de <i>maâ</i>, un <i>istera</i>, </b> on suppose qu'il voulait dire <b>un <i>istera</i>.</b>
+
+### Partie 4
+La Guemara demande : <b>Qu'est-ce</b> nouvelle <i>halakha</i> <b>qu'est</b> Rav <b>nous enseigne ? </b> Est-ce que c'est que par rapport a un enonce compose d'expressions contradictoires <b>on ne doit s'occuper</b> que de <b>la derniere affirmation ? Rav</b> n'a-t-il pas deja <b>dit cela</b> a <b>une autre occasion ? Comme le dit le Rav : Si j'avais ete la</b> en tant que juge lorsque la decision a ete rendue en ce qui concerne les frais de location pour le mois intercalaire, <b>j'aurais donne la totalite</b> du mois de loyer <b>au proprietaire,</b> en me basant sur l'expression finale du contrat de location : Un dinar d'or par mois.
+
+### Partie 5
+La Guemara repond : Neanmoins, il etait necessaire d'enoncer les deux jugements, car l'un ne peut pas necessairement etre deduit de l'autre. <b>Si ceci</b> <i>halakha</i> par rapport au <i>istera</i> <b>etait enonce et que</b> <i>halakha</i> par rapport au mois intercalaire <b>n'etait pas enonce, je dirais</b> que lorsque le vendeur a prononce la deuxieme expression : Cent <i>maâ</i>, <b>il a retracte sa</b> premiere expression : Un <i>istera</i>, car les deux expressions se contredisent, et c'est pour cela que le Rav a dit qu'il fallait s'occuper de l'expression finale. <b>Mais ici,</b> dans le cas du mois intercalaire, <b>peut-etre que vous</b> seriez <b>dire</b> que lorsque le proprietaire prononce la deuxieme expression : Un dinar d'or par mois, <b>il explique</b> l'intention initiale de sa premiere expression : Douze dinars d'or par an, et on doit considerer cela comme une clarification. C'est pourquoi le Rav vient et <b>nous enseigne</b> que dans tous les cas, il faut s'attacher a l'expression finale.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,21 @@
+
+### Part 1
+<strong>MISHNA:</strong> If one sells a field to another, telling him that he is selling him a field measuring a <i>beit kor</i>, <b>with its</b> particular <b>demarcations and borders</b> that the seller specifies for the buyer, the field’s measurement is not treated in as exacting a manner as in a standard sale. Therefore, if it later turns out that the field was not precisely a <i>beit kor</i>, but the difference is still <b>less than one-sixth,</b> the field <b>is</b> the buyer’s, and the sale is valid as is. But if the difference is greater, e.g., one-quarter or one-fifth, then, <b>until</b> it is calculated at <b>one-sixth,</b> the seller <b>must deduct</b> the difference from the purchase price and return money to the buyer.
+
+### Part 2
+<strong>GEMARA:</strong> <b>It was stated</b> that the <i>amora’im</i> disagreed about the following issue: <b>Rav Huna says:</b> A difference that is precisely <b>one-sixth is like</b> one that is <b>less than one-sixth,</b> and the sale is valid. <b>Rav Yehuda says:</b> A difference that is precisely <b>one-sixth is like</b> one that is <b>more than one-sixth,</b> and the difference must be deducted from the purchase price.
+
+### Part 3
+The Gemara explains the respective reasons of the two <i>amora’im</i>: <b>Rav Huna says</b> that a difference of <b>one-sixth is like</b> a difference of <b>less than one-sixth,</b> as <b>this</b> is what the mishna <b>is saying:</b> If the difference is <b>less than one-sixth, and including</b> a difference that is precisely <b>one-sixth, it is</b> the buyer’s, as the sale is valid, and if it is <b>more than one-sixth,</b> the seller <b>must deduct</b> the difference from the purchase price. <b>Rav Yehuda says</b> that a difference of <b>one-sixth is like</b> a difference of <b>more than one-sixth,</b> as <b>this</b> is what the mishna <b>is saying:</b> If the difference is <b>less than one-sixth, it is</b> the buyer’s, as the sale is valid, and if the difference is greater, <b>until</b> it is calculated at <b>one-sixth, and including</b> a difference that is precisely <b>one-sixth,</b> the seller <b>must deduct</b> the difference from the purchase price.
+
+### Part 4
+The Gemara <b>raises an objection</b> to Rav Huna’s statement from a <i>baraita</i>: If one sells a field to another, telling him that he is selling him a field measuring a <i>beit kor</i> <b>within its</b> particular <b>demarcations and borders,</b> and <b>he gave</b> him a field that is <b>one-sixth less</b> than the measure stipulated, <b>or,</b> alternatively, <b>he gave</b> him a field that is <b>one-sixth more</b> than the measure stipulated, <b>it is like</b> a sale of orphans’ property that is executed in accordance with <b>the judges’ assessment</b> of the value of that property, and therefore <b>it is</b> the buyer’s, as the sale is valid. The Gemara states the objection: <b>But</b> in the case of a sale executed in accordance with <b>the judges’ assessment,</b> an error of precisely <b>one-sixth is like</b> an error of <b>more than one-sixth,</b> and the sale is void. This contradicts Rav Huna’s opinion that an error of one-sixth is like an error of less than one-sixth.
+
+### Part 5
+The Gemara answers: <b>Rav Huna</b> could have <b>said to you</b> in reply: Even <b>according to your reasoning,</b> there is still a difficulty, since the <i>baraita</i> <b>teaches</b> that <b>it is</b> the buyer’s, i.e., the sale is final. <b>Rather,</b> the comparison drawn between this <i>halakha</i> and the judges’ assessment is not a general comparison. It is <b>like the judges’ assessment, but</b> it is <b>not</b> entirely <b>like the judges’ assessment.</b> It is <b>like the judges’ assessment</b> in that the limit is <b>one-sixth, but it is not like the judges’ assessment, as there,</b> in the case of the judges’ assessment, <b>the sale is voided, while here,</b> in the mishna, <b>it is</b> the buyer’s, and the sale is final.
+
+### Part 6
+It is related that <b>Rav Pappa bought land from a certain man,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

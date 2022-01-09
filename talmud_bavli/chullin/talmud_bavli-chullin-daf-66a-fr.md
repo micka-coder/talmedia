@@ -1,0 +1,30 @@
+
+### Partie 1
+La Gemara demande : <b>A propos de quoi les <i>tanna</i> de la salle d'etude,</b> qui ont enseigne la premiere <i>baraita</i> ci-dessus, <b>et les <i>tanna</i> de l'ecole de Rabbi Yishmael sont en desaccord ? Ils sont en desaccord en ce qui concerne</b> une sauterelle <b>dont la tete est longue.</b> Selon la <i>tanna</i> de la salle d'etude, elle est interdite, et selon la <i>tanna</i> de l'ecole de Rabbi Yishmael, elle est autorisee.
+
+### Partie 2
+La Guemara developpe : <b>La <i>tanna</i> de la salle d'etude soutient</b> que le verset precedent, autorisant toutes les especes <b>"qui ont des pattes articulees"</b> (Levitique 11:21), est <b>une generalisation. </b> Les especes <b><i>arbeh</i>, <i>solam</i>, <i>hargol</i>,</b> et <b><i>hagav</i>,</b> et l'expression <b>"uvre selon ses genres"</b> qui figure apres chacune, sont <b>un detail. </b> En regle generale, dans tout cas de <b>generalisation et de detail, la generalisation ne comprend que ce qui est</b> explicite <b>dans le detail.</b> Par consequent, seules les sauterelles <b>de la</b> meme <b>espece que</b> celles detaillees dans le verset <b>sont</b> cacheres. Les sauterelles <b>qui ne sont pas de la</b> meme <b>espece que</b> elles sont <b>non</b> cacheres. <b>Et</b> l'expression "selon ses especes" <b>amplifie</b> la <i>halakha</i> pour inclure les sauterelles <b>qui sont similaires</b> aux especes nommees <b>en deux aspects,</b> c'est-a-dire qui leur sont tres semblables. Comme toutes les especes nommees ont une tete courte, les sauterelles a tete longue sont interdites.
+
+### Partie 3
+En revanche, <b>la <i>tanna</i> de l'ecole de Rabbi Yishmael soutient</b> que la phrase <b>"qui ont des pattes articulees"</b> est <b>une generalisation. </b> Les especes <b><i>arbeh</i>, <i>solam</i>, <i>hargol</i>,</b> et <b><i>hagav</i></b> sont un <b>detail.</b> Et par la phrase <b>" apres ses genres"</b> apres chaque espece, <b>on generalise alors</b> a nouveau. Dans tous les cas ou il y a <b>une generalisation, et un detail, et une generalisation, on peut en deduire</b> que le verset se refere <b>uniquement</b> aux elements <b>similaires au detail. Et</b> le verset <b>amplifie donc</b> la <i>halakha</i> pour inclure <b>toute</b> sauterelle <b>qui est semblable</b> a l'espece nommee <b>dans</b> meme <b>un seul aspect,</b> c'est-a-dire qui presente les quatre signes enumeres dans la mishna, meme si sa tete est longue.
+
+### Partie 4
+La Guemara demande : <b>Mais</b> comment cela peut-il etre considere comme une generalisation, un detail, et une generalisation ? <b>La premiere generalisation n'est pas similaire a la derniere generalisation.</b> Dans <b>la premiere generalisation, le Misericordieux declare : "Qui ont des pattes articulees,"</b> indiquant que vous pouvez <b>manger</b> une sauterelle <b>qui a</b> des pattes articulees, mais <b>vous ne pouvez pas manger</b> une <b>qui n'a pas</b> de pattes articulees, independamment de tout autre signe. Cependant, <b>la derniere generalisation:</b> "Selon ses especes", indique qu'aucune sauterelle n'est cachere <b>a moins qu'elle ne partage</b> les <b>quatre signes</b> avec l'espece nommee.
+
+### Partie 5
+La Guemara repond : <b>La <i>tanna</i> de l'ecole de Rabbi Yishmael deduit</b> des <b>generalisations et des details comme ce cas,</b> meme si les generalisations ne sont pas similaires les unes aux autres. La Guemara note : <b>Et</b> que <b>ce que nous disons aussi de maniere generale, que la <i>tanna</i> de l'ecole de Rabbi Yishmael deduit</b> de <b>generalisations et de details comme ce cas,</b> est derive <b>d'ici.</b>
+
+### Partie 6
+La Guemara analyse la <i>baraita</i> de l'ecole de Rabbi Yishmael : <b>Le Maitre a dit : Si son nom</b> doit etre <b><i>hagav</i>,</b> on <b>pourrait</b> avoir pense que tout <i>hagav</i> est cachere, meme si <b>il ne possede pas ces</b> quatre <b>signes.</b> Par consequent, <b>le verset dit : "Apres ses genres,"</b> indiquant qu'il n'est pas cachere <b>a moins qu'il ne possede tous ces signes.</b> La Gemara demande : <b>D'ou viendrait cette affirmation,</b> qu'une sauterelle est cachere meme si <b>elle ne possede pas tous ces signes ?</b> Comment pourrait-on envisager cette possibilite ? <b><i>Arbeh</i> et <i>hargol</i> sont ecrits</b> a l'avance, indiquant que toutes les sauterelles cacheres doivent partager les signes qu'elles possedent toutes deux.
+
+### Partie 7
+La Guemara repond : <b>Si <i>solam</i> n'avait pas ete ecrit</b> egalement, ce serait <b>comme tu l'as dit.</b> Mais <b>maintenant qu'il est ecrit : "<i>Solam</i>, pour inclure les sauterelles a longue tete</b> meme si aucune des especes nommees n'a de longue tete, <b>je dirai : Incluons aussi toute</b> sauterelle qui est appelee <i>hagav</i>. Par consequent, l'expression "selon ses especes" <b>nous apprend</b> qu'il n'en est rien.
+
+#### Partie 8
+La Guemara demande : <b>Qu'est-ce qui est different la,</b> dans la <i>baraita</i> de la salle d'etude, <b>que vous dites</b> que le <b><i>solam</i> est</b> le <b><i>rashon</i>, </b> et le <b><i>hargol</i> est</b> le <b><i>nippul</i>, et ce qui est different ici,</b> dans la <i>baraita</i> de l'ecole de Rabbi Yishmael, <b>que vous dites : </b> Le <b><i>solam</i> est</b> le <b><i>nippul</i>,</b> et le <b><i>hargol</i> est</b> le <b><i>rashon</i> ? </La Guemara repond : Ce <b>Sage</b> s'y refere <b>conformement</b> a la coutume de <b>sa localite et</b> ce <b>Sage</b> s'y refere <b>conformement</b> a la coutume de <b>sa localite.</b>
+
+### Partie 9
+§ La mishna indique : <b>Et en ce qui concerne les poissons, tout</b> poisson <b>qui a une nageoire et une ecaille</b> est cachere. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Si un poisson <b>n'a pas</b> d'ecailles <b>maintenant mais en fera pousser</b> apres une periode de <b>temps, comme les poissons <i>sultanit</i> et <i>afyan</i></b>, <b>il est permis. </b> De meme, si <b>il a</b> des ecailles <b>maintenant mais qu'il les perdra lorsqu'il</b> sera peche et <b>sortira de l'eau, tel que</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

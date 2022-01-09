@@ -1,0 +1,36 @@
+
+### Part 1
+<b>with</b> a reference to <b>damage</b> caused by <b>one’s possessions,</b> as it is written: “If fire breaks out,” indicating that his responsibility for the fire is the same as his responsibility for any of his possessions that cause damage, <b>and it concludes with</b> a reference to <b>damage</b> caused by <b>one’s body,</b> as the verse refers to the person by calling him “the one who ignited the fire,” <b>telling you</b> that his liability for the damage caused by <b>his fire is due to</b> its similarity to <b>his arrows.</b>
+
+### Part 2
+<b>Rava said</b> that <b>Abaye</b> raised <b>a difficulty: According to the one who says</b> that one’s liability for the damage caused by <b>his fire is due to</b> its similarity to <b>his arrows, how can you find</b> that <b>the Merciful One exempted</b> one from liability for <b>concealed</b> items damaged by a <b>fire?</b> If one caused damage by shooting an arrow, he would be equally liable for damaging both exposed and concealed items. Consequently, if one’s liability for the damage caused by his fire is due to its similarity to his arrows, he should similarly be liable for concealed items damaged by a fire.
+
+### Part 3
+<b>And</b> it was <b>satisfactory for him,</b> i.e., Abaye resolved the difficulty. He explained that the exemption from liability for concealed items damaged by a fire applies in a case <b>where a fire broke out in that</b> same <b>courtyard, and</b> afterward the <b>fence</b> separating this courtyard from the neighbor’s courtyard <b>collapsed,</b> but <b>not due to the fire, and</b> therefore the fire <b>spread and ignited</b> items <b>and caused damage in another courtyard.</b> In such a circumstance he would be exempt <b>because there,</b> in this case, it is as if <b>his arrows were depleted,</b> i.e., he bears responsibility for the fire that he had started, which initially was confined to his courtyard alone. The fire that spread to the neighboring courtyard is not similar to his arrows, and therefore he is exempt.
+
+### Part 4
+The Gemara challenges this explanation: <b>If that is so,</b> he should be exempt not only with regard to concealed items but also <b>with regard to exposed</b> items that were damaged by the fire, as <b>his arrows are also depleted</b> when the fire spreads and causes damage. If his exemption is due to fact that the damage was caused because the wall that had separated the two courtyards had collapsed, there should be no distinction between exposed and concealed items.
+
+### Part 5
+<b>Rather,</b> it must be that <b>the one who holds</b> that one’s liability for the damage caused by his fire is <b>due to</b> its similarity to <b>his arrows also holds</b> that his liability is <b>due to</b> the fire’s similarity to <b>his property.</b> Consequently, it remains possible for a circumstance to exist in which one will be exempt from liability for damaging concealed items and yet be held liable for exposed items. <b>For example, if he had</b> the ability to repair the breach <b>and fence</b> in the courtyard again <b>but he did not fence</b> it in, he will be liable, <b>as there, it</b> is similar to a case where <b>his ox</b> was in danger of escaping from his property and <b>he did not strike</b> it <b>in its face</b> to hold it back, and therefore he is liable for any ensuing damage. In this case, however, the fire is not similar to his arrows since it was not responsible for the collapse of the fence, and therefore he is exempt from damage caused to concealed items, according to the <i>halakhot</i> of Fire.
+
+### Part 6
+The Gemara asks: <b>But</b> according to this conclusion, <b>since the one who holds</b> that one’s liability for the damage caused by his fire is <b>due to</b> its similarity to <b>his arrows also holds</b> that his liability is <b>due to</b> its similarity to <b>his property, what</b> is the difference <b>between</b> the opinions of Rabbi Yoḥanan and Reish Lakish?
+
+### Part 7
+The Gemara answers: The practical difference <b>between them</b> is with regard to <b>holding him liable</b> for the additional <b>four types of indemnity</b> in a case where the fire injured a person. In such an instance Rabbi Yoḥanan would require, in addition to the costs of the damage itself, payments for pain, medical costs, loss of livelihood, and humiliation, as in any case of personal injury, given that Rabbi Yoḥanan considers Fire to be no different than an arrow he had shot at the injured party.
+
+### Part 8
+§ The mishna teaches that he must <b>pay</b> the full cost of the damage <b>for the cake</b> the dog ate but must pay for only half the cost of the damage to the burned stack of grain. The Gemara elucidates: <b>Who</b> is the one <b>obligated</b> to pay for the cake? The <b>owner of</b> the <b>dog.</b> The Gemara challenges this: <b>But</b> why not <b>let</b> the <b>owner of</b> the <b>coal also be liable,</b> as he shares some of the responsibility, being that he did not safeguard his coal and it ultimately caused damage? The Gemara answers: The case under discussion is one <b>where</b> the owner of the coal <b>safeguarded his coal</b> properly.
+
+### Part 9
+The Gemara asks: <b>If</b> the case is one <b>where he safeguarded his coal</b> properly, <b>what does the dog want,</b> i.e., what is it doing <b>there?</b> If the dog was able to get in there, it cannot be that the owner of the coal safeguarded it properly. The Gemara answers: The case is one <b>where</b> the dog <b>burrowed</b> under the fence, entered the property, and took the cake and the coal. <b>Rav Mari, son of Rav Kahana, said: That is to say</b> that <b>ordinary doors are</b> deemed <b>vulnerable to being burrowed</b> under <b>by a dog</b> because if it would be atypical for a dog to burrow under the door, the owner of the dog would be exempt from payment. Therefore, it must be that it is typical behavior for a dog to burrow beneath a door, and therefore it was incumbent upon the owner of the door to prevent it from causing damage.
+
+### Part 10
+The Gemara asks: <b>Where did it eat</b> the cake? <b>If we say that it ate it</b> after placing it <b>on a stack</b> of grain <b>belonging to another,</b> i.e., someone other than the owner of the cake, then he should not be liable for the damage to the cake under the <i>halakhot</i> of Eating, <b>as</b> in order to hold someone liable <b>we require</b> fulfillment of scenario described in the verse: <b>“And it consumed in the field of another”</b> (Exodus 22:4), meaning that an act of damage classified as Eating must be caused on the property of the injured party, <b>and that is not</b> the case in this instance. The Gemara answers: <b>No,</b> it is <b>necessary</b> only in the case <b>where</b> the dog <b>ate</b> the cake after placing it <b>on a stack</b> of grain owned <b>by the owner of the cake,</b> and that is why the dog’s owner is liable, as it ate it while on the property of the injured party.
+
+### Part 11
+§ The Gemara suggests: From here it is possible to <b>resolve</b> a dilemma and prove <b>that</b> the <b>mouth of a cow</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

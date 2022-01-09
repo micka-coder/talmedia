@@ -1,0 +1,51 @@
+
+### Part 1
+<b><i>gulva</i>, rye</b> is <b><i>dishra</i>,</b> and <b>oats</b> are <b><i>shibbolei ta’ala</i>.</b> The Gemara infers: With regard to <b>these</b> species, <b>yes,</b> the obligation of <i>ḥalla</i> applies to them, but concerning <b>rice and millet, no,</b> the obligation of <i>ḥalla</i> does not apply to them.
+
+### Part 2
+The Gemara asks: <b>From where is this matter,</b> that only these five grains are obligated in the separations of <i>ḥalla</i>, derived? <b>Reish Lakish said:</b> This principle is <b>derived</b> by means of a verbal analogy between <b>“bread”</b> and <b>“bread” from</b> the case of <b><i>matza</i>. It is written here,</b> with regard to <i>ḥalla</i>: <b>“And it shall be that when you eat of the bread of the land,</b> you shall set apart a portion for a gift to the Lord” (Numbers 15:19), <b>and it is written there,</b> with regard to <i>matza</i>: <b>“Bread of affliction”</b> (Deuteronomy 16:3). Just as <i>matza</i> can be prepared only from one of those five grains, so too the obligation of <i>ḥalla</i> applies only to bread from one of those five grains.
+
+### Part 3
+The Gemara asks: <b>And there,</b> with regard to <i>matza</i> itself, <b>from where do we</b> derive that it must be from one of those five grains? The Gemara answers: <b>Reish Lakish said, and likewise</b> a Sage <b>of the school of Rabbi Yishmael taught, and likewise</b> a Sage <b>of the school of Rabbi Eliezer ben Ya’akov taught,</b> that <b>the verse states: “You shall eat no leavened bread with it; seven days you shall eat with it <i>matza</i>, the bread of affliction”</b> (Deuteronomy 16:3). This verse indicates that only with regard to <b>substances that will come to</b> a state of <b>leavening</b> does <b>a person fulfill his obligation</b> to eat <i>matza</i> <b>by</b> eating <b>them on Passover,</b> provided that he prevents them from becoming leavened. This serves to <b>exclude these</b> foods, i.e., rice, millet, and similar grains, <b>which,</b> even if flour is prepared from them and water is added to their flour, <b>do not come to</b> a state of <b>leavening but to</b> a state of <b>decay [<i>sirḥon</i>].</b>
+
+### Part 4
+§ The mishna teaches that each one of the five types of grain <b>joins together with the others</b> to constitute the measure that obligates one to separate <i>ḥalla</i>. It was <b>taught</b> in a <i>baraita</i>: With regard to grain from <b>produce and flours and pieces of dough,</b> each one of these <b>joins together with the others.</b> The Gemara asks: <b>With regard to what <i>halakha</i></b> was this taught?
+
+### Part 5
+<b>Rav Kahana says:</b> It was taught <b>with regard to</b> the prohibition of eating of <b>the new</b> crop prior to the sacrifice of the <i>omer</i> offering on the sixteenth of Nisan. If one ate grain, flour, and dough of the new crop that combined to equal the size of an olive-bulk, he is liable to receive lashes for transgressing a prohibition. <b>Rav Yosef says:</b> It was taught <b>with regard to</b> the prohibition of eating <b>leavened bread on Passover. Rav Pappa says:</b> It was taught <b>with regard to</b> the prohibition of eating <b>second tithe</b> outside the walls of Jerusalem. <b>As, if</b> one <b>ate</b> a combined olive-bulk’s worth of grain, flour and dough of the second tithe <b>outside the wall</b> of Jerusalem, he <b>is flogged.</b>
+
+### Part 6
+<b>Rava says:</b> The <i>baraita</i> is referring <b>to the matter of</b> the <b>ritual impurity of food; and this</b> is what <b>it teaches us: That</b> grains of barley <b>produce and flours</b> are <b>similar to pieces of dough. Just as there,</b> concerning pieces of dough, they combine to form the minimal measure of ritually impure food only if the combination of <b>food</b> is <b>as is,</b> without other additives, <b>so too here also,</b> concerning grain and flour, they combine to form the minimal measure of ritually impure food only when the mixture is <b>food as is,</b> without any shell or other additives.
+
+### Part 7
+The Gemara cites support for this opinion, as <b>it is taught</b> in a <i>baraita</i>: <b>Wheat, whether shelled or unshelled, combines</b> to form the minimal measure of food that is susceptible to ritual impurity. But as for <b>barley,</b> it <b>combines</b> only when it is <b>shelled. When</b> it is <b>not shelled,</b> it <b>does not combine</b> together, as the inedible shell interposes between the different grains. This support Rava’s interpretation of the <i>baraita</i>, that it addresses barley in the form of grain, flour, and dough.
+
+### Part 8
+The Gemara asks: <b>Is that so,</b> that the shell of barley is not considered part of the grain with regard to combining for ritual impurity? <b>But didn’t the school of Rabbi Yishmael teach</b> in a <i>baraita</i>: Before a food item comes in contact with liquid it is not susceptible to ritual impurity, as the verse states: “And if anything falls from their carcasses <b>upon any sowing seed that is sown,</b> it is pure. But if water be put upon the seed, and any of the carcass fall thereon, it is impure unto you” (Leviticus 11:37–38). The <i>baraita</i> teaches that the term “that is sown” indicates that the entire seed is susceptible to ritual impurity when it is in a state where it is <b>typical for people to take it out</b> to the field <b>for sowing.</b> This applies to <b>wheat in its shell, barley in its shell, and lentils in their shells.</b> This demonstrates that shells are considered part of the grain with regard to ritual impurity.
+
+### Part 9
+The Gemara answers: It is <b>not difficult.</b> The ruling of <b>this</b> <i>baraita</i>, which teaches that the shells of kernels are considered part of it with regard to ritual impurity, is stated <b>with regard to moist</b> kernels, whereas the ruling of <b>that</b> <i>baraita</i>, which teaches that the shells are not part of the seed, is stated <b>with regard to dry</b> kernels, in which the shells crumble and fall away.
+
+### Part 10
+§ The mishna teaches with regard to the five grains: <b>And they are forbidden</b> due to the prohibition of partaking <b>of</b> the <b>new</b> crop <b>prior to the Passover</b> festival. The Gemara asks: <b>From where is this matter</b> derived? <b>Reish Lakish said:</b> It is <b>derived</b> by means of a verbal analogy between <b>“bread”</b> written in connection with the prohibition of the new crop (see Leviticus 23:14), and <b>“bread”</b> written <b>with regard to <i>matza</i></b> (see Deuteronomy 16:3). Just as <i>matza</i> can be prepared only from one of the five grains, so too the prohibition against eating of the new crop applies only to the five grains.
+
+### Part 11
+§ The mishna further teaches with regard to the five grains: <b>And</b> it is prohibited <b>to reap</b> them <b>prior to the <i>omer</i></b> offering. The Gemara asks: <b>From where are these matters</b> derived? <b>Rabbi Yoḥanan said:</b> It is <b>derived</b> by means of a verbal analogy between <b>“the first”</b> written in conjunction with the new crop: “You shall bring the sheaf of the first fruits of your harvest to the priest” (Leviticus 23:10), <b>and “the first”</b> written <b>with regard to <i>ḥalla</i>:</b> “Of the first of your dough you shall set apart a cake for a gift” (Numbers 15:20). Just as the obligation to separate <i>ḥalla</i> applies only to bread prepared from the five grains, so too the prohibition against reaping the new crop prior to the <i>omer</i> offering applies only to crops of the five grains.
+
+### Part 12
+The Gemara asks: <b>What</b> does the mishna mean when it says: <b>Prior to the <i>omer</i>?</b> Does it mean prior to the reaping of the <i>omer</i> grain or prior to the sacrifice of the <i>omer</i> offering? <b>Rabbi Yona says:</b> It means <b>prior to the reaping of the <i>omer</i></b> grain, i.e., the new crop is permitted at daybreak on the sixteenth of Nisan. <b>Rabbi Yosei bar Zavda says: Prior to the bringing of the <i>omer</i></b> offering later that day.
+
+### Part 13
+The Gemara cites a proof from that which <b>we learned</b> in the mishna: <b>And they are forbidden</b> due to the prohibition of partaking <b>of</b> the <b>new</b> crop <b>prior to the Passover</b> Festival, <b>and</b> likewise it is prohibited <b>to reap</b> them <b>prior to</b> the sacrifice of <b>the <i>omer</i></b> offering. <b>Granted, according to the one who said</b> that the prohibition applies <b>prior to the bringing of the <i>omer</i></b> offering, <b>this is</b> the reason <b>that</b> the mishna <b>did not combine</b> the clauses together <b>and teach them</b> as one, since the time frame for each prohibition is different. The prohibition of harvesting the new crop is lifted at daybreak after the <i>omer</i> crop was harvested at night, whereas the prohibition against consuming the new crop ends only with the sacrifice of the <i>omer</i> offering later that day.
+
+### Part 14
+<b>But according to the one who said</b> that the prohibition applies <b>prior to the reaping of the <i>omer</i></b> grain, then both the consuming and the harvesting of the new crop are permitted at daybreak of the sixteenth of Nisan. If so, <b>let</b> the mishna <b>combine them and teach them</b> together, as follows: <b>And they are forbidden</b> due to the prohibition of partaking <b>of</b> the <b>new</b> crop, <b>and</b> likewise it is prohibited <b>to reap</b> them <b>prior to the Passover</b> Festival.
+
+### Part 15
+The Gemara answers: <b>Rather, if</b> a dispute <b>was stated</b> in this matter, <b>it was stated with regard to the latter clause</b> of the mishna, which teaches: <b>If</b> these grains <b>took root prior to the <i>omer</i></b> offering, <b>the <i>omer</i> permits their</b> consumption. <b>What</b> does the mishna mean when it says: <b>Prior to the <i>omer</i>? Rabbi Yona says: Prior to the bringing of the <i>omer</i></b> sacrifice. <b>Rabbi Yosei bar Zavda says: Prior to the harvesting of the <i>omer</i></b> grain.
+
+### Part 16
+<b>Rabbi Elazar said to</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,15 @@
+
+### Part 1
+when the <b>blood of a sin offering is below and</b> the <b>blood of a burnt offering is above,</b> in a case in which the blood of a burnt offering is sprayed as a second layer on top of the blood of a sin offering that has already been sprayed and absorbed into a garment, the garment <b>requires laundering.</b>
+
+### Part 2
+<b>Rava asks:</b> When the <b>blood of a burnt offering is below and</b> the <b>blood of a sin offering is above, what is</b> the <i>halakha</i>? <b>Is</b> one required to launder a garment to remove the blood of a sin offering <b>because</b> the blood <b>touches</b> his garment, <b>and</b> in this case, <b>this</b> blood <b>is touching</b> the garment? <b>Or perhaps is</b> one required to launder it <b>because of</b> the <b>absorption</b> of the blood into the garment, <b>and,</b> in this case, since the garment has already absorbed the other blood, <b>this</b> garment <b>did not absorb</b> the blood? Rava <b>then resolves</b> his dilemma, ruling <b>that</b> such garments <b>do not require laundering.</b>
+
+### Part 3
+§ In a similar manner, with regard to the immersion of a garment that has become impure, <b>Rava said:</b> It is <b>obvious to me</b> that if there is <b>blood on</b> one’s <b>garment,</b> it <b>interposes</b> between the water of immersion and the garment, such that the immersion is ineffective. <b>But if he is a butcher,</b> used to having blood on his garments, a bloodstain <b>does not interpose,</b> and the immersion is effective, since a substance is not considered an interposition if the one immersing is not particular about it. Similarly, if there is a stain of <b>fat [<i>revav</i>] on one’s garment,</b> it <b>interposes. But if he is a fat seller,</b> such a stain <b>does not interpose. Rava asks:</b> If there is both <b>blood and fat on</b> one’s <b>garment</b> when he immerses it, <b>what is</b> the <i>halakha</i>?
+
+### Part 4
+The Gemara challenges the question: <b>If he is a butcher, let me derive</b> that the stain interposes <b>due to</b> the <b>fat</b> that he is not used to having on his garments; <b>and</b> conversely, <b>if he is a fat seller, let me derive</b> that the stain interposes <b>due to</b> the stain of <b>blood</b> that he is not used to having on his garments. The Gemara explains: <b>No,</b> this question is not superfluous; it is <b>necessary</b> with regard to a person <b>who works</b> both as <b>this,</b> a butcher, <b>and</b> as <b>that,</b> a fat seller. In such a case, the question is: Is it that <b>he is not particular with regard to one</b> stain, but <b>he is particular with regard to two</b> stains, so that the immersion is ineffective? <b>Or, perhaps,</b> is it that he is <b>not particular</b> even with regard <b>to two</b> stains, as neither is unusual for him? The Gemara provides no answer, and the question <b>shall stand</b> unresolved.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

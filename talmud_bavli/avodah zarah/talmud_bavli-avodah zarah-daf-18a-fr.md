@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>prononcer le</b> <b>nom ineffable</b> de Dieu <b>avec</b> toutes <b>ses lettres,</b> c'est-a-dire tel qu'il est epele. La Guemara demande : <b>Et comment a-t-il pu faire cela ? Mais n'avons-nous pas appris</b> dans la mishna (<i>Sanhedrin</i> 90a) : <b>Ceux-la</b> sont les personnes <b>qui n'ont aucune part dans le Monde a venir : Celui qui dit</b> que <b>la Torah ne vient pas du Ciel ou</b> que <b>il n'y a pas</b> de source <b>de la Torah</b> pour <b>la resurrection des morts. Abba Shaul dit : Aussi celui qui prononce le</b> <b>nom ineffable</b> tel qu'il est ecrit, <b>avec</b> toutes <b>ses lettres,</b> n'a aucune part dans le Monde-a-Venir.
+
+### Partie 2
+La Guemara repond : Rabbi Hanina ben Teradyon <b>l'a fait pour s'instruire, comme il est enseigne</b> dans une <i>baraita</i> a propos de l'interdiction de la sorcellerie : <b>"Tu n'apprendras pas a faire"</b> (Deuteronome 18:9) ; ceci indique : <b>Mais tu pourras apprendre a comprendre et a enseigner.</b> En d'autres termes, certains interdits ne s'appliquent pas lorsqu'on agit uniquement dans le but d'acquerir des connaissances sur le sujet.
+
+### Partie 3
+La Gemara demande : <b>Au contraire, quelle est la raison</b> pour laquelle <b>il a ete puni ?</b> La Gemara repond : Il a ete puni <b>parce qu'il prononcait le</b> <b>nom ineffable</b> de Dieu <b>en public,</b> au lieu de le faire en prive. <b>Et sa femme</b> a ete condamnee <b>a l'execution</b> par decapitation <b>parce qu'elle n'a pas proteste contre le fait qu'il</b> le fasse. <b>A partir de la</b> les Sages ont <b>declare : Toute personne qui a la capacite de protester</b> effectivement la conduite pecheresse d'un autre <b>et ne proteste pas est punie pour</b> le peche de cette personne.
+
+### Partie 4
+La Gemara demande : <b>Et</b> pourquoi <b>sa fille</b> a-t-elle ete condamnee <b>a s'asseoir dans une maison close ? Comme le dit Rabbi Yohanan : Un jour, la fille de</b> Rabbi Hanina ben Teradyon <b>se promenait devant les nobles de Rome,</b> et ils <b>se disaient</b> les uns aux autres : <b>Comme ils sont agreables les pas de cette jeune femme.</b> En entendant cela, <b>elle a immediatement pris soin</b> de continuer a marcher de telle maniere que <b>ses pas</b> continuent a leur etre agreables. <b>Et ceci est</b> la meme chose que ce <b>que Rabbi Shimon ben Lakish dit : Quel</b> est le sens de ce <b>qui est ecrit : "L'iniquité de mon talon m'encercle"</b> (Psaumes 49:6) ? Cela signifie que <b>les peches qu'une personne pietine avec son talon dans ce monde,</b> c'est-a-dire qu'elle les ecarte et n'y prete aucune attention car ils semblent manquer d'importance, par exemple la facon dont on marche, viennent et <b>l'encerclent au Jour du Jugement.</b>
+
+### Partie 5
+La Gemara relate : <b>Lorsque les trois sont sortis</b> apres avoir ete condamnes, <b>ils ont accepte la</b> justice du <b>jugement de Dieu.</b> Rabbi Hanina ben Teradyon <b>a dit : <b>Le Rocher, son œuvre est parfaite;</b> car toutes ses voies sont justes.</b> (Deuteronome 32:4). <b>Et sa femme dit</b> la suite du verset : <b>Un Dieu fidele et sans iniquite.</b> Sa fille dit : <b>Grand en conseil et puissant en œuvre, dont les yeux sont ouverts sur toutes les voies</b> des fils des hommes, pour rendre a chacun selon ses voies</b> (Jeremie 32:19). <b>Rabbi</b> Yehuda HaNasi <b>a dit : Combien sont grands ces justes, que</b> ces <b>trois versets,</b> qui parlent <b>de</b> l'<b>acceptation du</b> <b>jugement de Dieu, leur sont apparus au moment d'accepter la</b> justice de Son <b>jugement.</b>
+
+### Partie 6
+§ <b>Les Sages ont enseigne : Lorsque Rabbi Yosei ben Kisma tomba malade, Rabbi Hanina ben Teradyon alla le visiter.</b> Rabbi Yosei ben Kisma <b>lui dit : Hanina mon frere, ne sais-tu pas que cette nation a recu le regne par</b> un decret du <b>Ciel ? </b> La preuve en est <b>que</b> Rome a <b>detruit</b> le <b>Temple de Dieu, et a brule Son Sanctuaire, et a tue Ses pieux, et a detruit Ses meilleurs, et elle existe toujours.</b> A l'evidence, tout cela est par decret divin. <b>Et</b> pourtant <b>J'ai entendu dire de toi que tu t'assieds et t'engages dans l'etude de la Torah</b>, <b>et que tu convoques des assemblees en public, et que tu as</b> un rouleau de Torah <b>place sur tes genoux,</b> demontrant ainsi un mepris total pour les decrets emis par les Romains.
+
+### Partie 7
+Rabbi Hanina ben Teradyon <b>lui dit : Le Ciel aura pitie</b> et me protegera. Rabbi Yosei ben Kisma <b>s'adressa a lui : Je te dis des choses raisonnables, et tu me dis : Le ciel aura de la pitie ? Je me demande si</b> les Romains <b>ne vont pas bruler</b> a la fois <b>vous et</b> votre <b>rouleau de la Torah par le feu.</b> Rabbi Hanina ben Teradyon <b>lui dit : Mon maitre, que</b> deviendrai-je ? Suis-je destine <b>a la vie dans le Monde-a-Venir ?</b>
+
+### Partie 8
+Rabbi Yosei ben Kisma lui <b>dit : Est-ce qu'un <b>incident particulier t'est arrive</b> qui pourrait servir d'indication ? Rabbi Hanina ben Teradyon <b>lui dit : J'ai confondu</b> mes propres <b>monnaies</b> dont j'avais besoin <b>pour</b> les festivites de <b>Purim avec des pieces de charite, et je les ai</b> toutes <b>distribuees aux pauvres</b> a mes propres frais. Rabbi Yosei ben Kisma lui <b>dit : Si</b> cela est <b>ainsi, que ma part soit de ta part, et que mon sort soit de ton sort.</b>
+
+### Partie 9
+Les Sages <b>ont dit : Pas</b> meme <b>quelques jours</b> se sont ecoules <b>avant que Rabbi Yosei ben Kisma ne meure</b> de sa maladie, <b>et tous les notables romains sont alles l'enterrer, et</b> ils l'ont <b>eloge</b> avec <b>un grand eloge funebre. Et a leur retour, ils trouverent Rabbi Hanina ben Teradyon, qui etait assis et se livrait a l'etude de la Torah</b> <b>et convoquait des assemblees en public, avec un rouleau de Torah pose sur ses genoux.</b>
+
+### Partie 10
+<b>On l'amena</b> pour le condamner, <b>on l'enveloppa dans le rouleau de la Torah, on l'entoura de fagots de branches et on y mit le feu. Ils apporterent des touffes de laine, les tremperent dans l'eau et les placerent sur son cœur, afin que son ame ne quitte pas</b> son corps <b>rapidement,</b> mais qu'il meure lentement et douloureusement. <b>Sa fille lui dit : Pere, dois-je te voir ainsi ? </b> Rabbi Hanina ben Teradyon <b>lui repondit : Si j'etais seul a etre brule, ce serait difficile pour moi,</b> mais <b>maintenant que je brule avec un rouleau de la Torah, Celui qui cherchera</b> a se venger de <b>l'insulte</b> accordee <b>au rouleau de la Torah cherchera aussi</b> a se venger de <b>l'insulte</b> accordee <b>a moi.</b>
+
+### Partie 11
+<b>Ses eleves lui dirent :</b> Notre <b>professeur, que vois-tu ?</b> Rabbi Hanina ben Teradyon <b>leur repondit :</b> Je vois le <b>parchemin qui brule, mais</b> ses <b>lettres s'envolent</b> vers les cieux. Ils lui dirent : <b>Toi aussi, ouvre ta bouche et le feu entrera en toi,</b> et tu mourras rapidement. Rabbi Hanina ben Teradyon <b>leur dit : Il est preferable que Celui qui m'a donne</b> mon ame <b>l'enleve, et il ne faut pas se faire du mal</b> pour accelerer sa mort.
+
+### Partie 12
+<b>Le bourreau [<i>kaltzatoniri</i>] lui dit : Mon maitre, si j'augmente la flamme et que j'enleve les touffes de laine de ton cœur,</b> afin que tu meures plus vite et que tu souffres moins, <b>m'ameneras-tu a la vie du Monde-a-Venir ?</b> Rabbi Hanina ben Teradyon <b>dit au bourreau : <b>Oui.</b> Le bourreau a dit : <b>Permets-moi de jurer,</b> que ce que tu dis est vrai. Rabbi Hanina ben Teradyon <b>a prete</b> le <b>serment pour lui,</b> et le bourreau <b>a immediatement augmente la flamme et enleve les touffes de laine de son cœur,</b> faisant que <b>son ame</b> <b>sort</b> rapidement de son corps.</b> Le bourreau <b>a lui aussi saute et est tombe dans le feu</b> et est mort.
+
+### Partie 13
+<b>Une voix divine emergea et dit : Rabbi Hanina ben Teradyon et le bourreau sont destines a la vie du Monde-a-Venir.</b> En entendant cela, <b>Rabbi</b> Yehuda HaNasi <b>a pleure et dit : Il y a</b> celui qui <b>acquiert sa</b> part dans le <b>Monde</b>-a-Venir <b>en un instant,</b> tel que le bourreau, <b>et il y a</b> celui qui <b>acquiert sa</b> part dans le <b>Monde</b>-a-Venir seulement <b>apres de nombreuses annees</b> de labeur, tel que Rabbi Hanina ben Teradyon.
+
+### Partie 14
+§ La Guemara relate : <b>Berurya, l'epouse de Rabbi Meir, etait une fille de Rabbi Hanina ben Teradyon. Elle a dit a</b> Rabbi Meir : <b>C'est un manque de respect pour moi que ma sœur soit assise dans une maison close;</b> tu dois faire quelque chose pour la sauver. Rabbi Meir <b>prit un recipient [<i>tarkeva</i>]</b> plein <b>de dinars et partit. Il se dit</b> : <b>Si aucune transgression n'a ete commise avec elle, un miracle sera accompli</b> pour elle ; <b>si elle a commis une transgression, aucun miracle ne sera accompli pour elle.</b>
+
+### Partie 15
+Rabbi Meir <b>s'est rendu et s'est habille comme</b> un <b>chevalier romain,</b> et lui a <b>dit : Accede a mes</b> desirs, c'est-a-dire engage des rapports sexuels avec moi. <b>Elle lui dit : J'ai mes regles [<i>dashtana</i>]</b> et ne peux pas. <b>Il lui dit : Je vais attendre. Elle lui dit : Il y a beaucoup</b> de femmes dans le bordel, <b>et il y a beaucoup</b> de femmes <b>ici qui sont plus belles que moi. Il se dit</b> : Je peux <b>conclure de</b> ses reponses qu'elle <b>n'a pas commis de transgression,</b> car <b>elle</b> vraisemblablement <b>dit cela a tous ceux qui viennent.</b>
+
+### Partie 16
+<b>Rabbi Meir s'est rendu aupres de son gardien,</b> et lui a <b>dit : Donne-la</b> a moi. Le garde lui <b>dit : Je crains</b> que si je le fais, je serai puni <b>par le gouvernement.</b> Rabbi Meir <b>lui dit : Prends</b> ce <b>vase</b> plein <b>de dinars ; donne la moitie</b> au gouvernement comme pot-de-vin, <b>et la moitie sera pour toi.</b> Le garde <b>lui dit : Mais quand</b> l'argent <b>est fini, que ferai-je ? </b> Rabbi Meir <b>lui dit : Dis : Dieu de Meir reponds-moi ! Et tu seras sauve.</b> Le garde <b>lui dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

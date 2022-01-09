@@ -1,0 +1,24 @@
+
+### Part 1
+<b>and Rabban Shimon Ben Gamliel holds</b> that an effective <b>challenge</b> requires <b>two</b> witnesses, one could then ask: <b>But doesn’t Rabbi Yoḥanan say: Everyone agrees</b> that <b>there is no</b> effective <b>challenge</b> with <b>fewer than two</b> witnesses?
+
+### Part 2
+<b>Rather,</b> the <b>challenge</b> was established by <b>two</b> witnesses. <b>And with what are we dealing here?</b> We are dealing with a case <b>where we presume with regard to the father of that</b> man <b>that he is a priest, and a rumor emerged about</b> the son <b>that he is the son of</b> a priest and <b>a divorced woman, or the son of</b> a priest and <b>a <i>ḥalutza</i>, and we downgraded him</b> from the presumptive status of priesthood based on that rumor, <b>and one witness came and said that</b> the man in question <b>is a priest</b> of unflawed lineage, <b>and we elevated</b> him back to the priesthood, as one witness is sufficient to negate a rumor.
+
+### Part 3
+The Gemara continues the case: <b>And</b> then <b>two</b> witnesses <b>came and said that he is the son of a divorced woman or</b> the son of <b>a <i>ḥalutza</i>, and we downgraded him</b> from the priesthood based on their testimony. Then <b>one witness came and said that he is a priest</b> of unflawed lineage, resulting in two witnesses testifying that his lineage is unflawed, and two testifying that it is flawed. <b>And everyone</b> agrees that the <b>testimony</b> of the two single witnesses <b>combine</b> to produce testimony that he is a priest of unflawed lineage, and his presumptive status of priesthood should be restored.
+
+### Part 4
+The Gemara explains the dispute: <b>And here</b> it is <b>with regard to concern about contempt of court</b> that <b>they disagree. Rabbi Elazar holds: Once we downgraded him</b> from the presumptive status of priesthood based on the testimony of two witnesses, <b>we do not</b> then <b>elevate him,</b> as <b>we are concerned about contempt of court,</b> as a reversal in the court’s decision creates the impression that the court operates indecisively. <b>And Rabban Shimon Ben Gamliel holds: We downgraded him</b> from the presumptive status of priesthood <b>and we</b> then <b>elevate him, and we are not concerned about contempt of court.</b> The primary concern is that the matter should be determined based on the relevant testimonies.
+
+### Part 5
+<b>Rav Ashi objects to</b> the analysis that they disagree with regard to concern about contempt of court: <b>If so, why specifically</b> is it necessary to establish the dispute in a case where first <b>one</b> witness testified as to his unflawed lineage, and then another testified later? <b>The same would hold true even in</b> a case where two witnesses testified together that he is unfit for the priesthood and the court downgraded him, and <b>two</b> witnesses testified together that he is fit for the priesthood and the court elevated him. The <i>tanna’im</i> would <b>also</b> disagree, as the same concern applies. <b>Rather, Rav Ashi said: Everyone</b> agrees that <b>we are not concerned about contempt of court. And here,</b> it is <b>with regard to</b> whether the court is able <b>to combine</b> the <b>testimony</b> of two single witnesses that <b>they disagree, and</b> it is <b>with regard to</b> the issue that is the subject of <b>the</b> following <b>dispute between these <i>tanna’im</i>.</b>
+
+### Part 6
+<b>As it is taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Sanhedrin</i> 5:5): The <b>testimony</b> of individual witnesses <b>never combines unless</b> it is so <b>that the two of them see</b> the incident transpire together <b>as one. Rabbi Yehoshua ben Korḥa says:</b> Their testimony combines <b>even in</b> a case where they witnessed the event <b>one after the other,</b> but <b>their testimony is established in court only</b> if it is so <b>that the two of them testify</b> together <b>as one. Rabbi Natan says:</b> They are not required to testify together. Their testimony is combined even if the court <b>hears the statement of this</b> witness <b>today and when the other</b> witness <b>arrives tomorrow</b> the court <b>hears his statement.</b> Rabbi Elazar and Rabban Shimon ben Gamliel disagree in the dispute between Rabbi Natan and the Rabbis, whether the separate testimonies can be combined.
+
+### Part 7
+§ The Gemara relates an incident where two people disputed the ownership of land. There was <b>a certain</b> person <b>who said to another: What do you want with this land</b> of mine? The possessor <b>said to him: I purchased it from you, and this</b> is <b>the bill</b> of sale.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

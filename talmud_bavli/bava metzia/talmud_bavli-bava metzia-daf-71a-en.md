@@ -1,0 +1,63 @@
+
+### Part 1
+to teach that one may lend money with interest to a <i>ger toshav</i> only <b>to the extent</b> required to provide <b>a livelihood to</b> the lender, but not to do so as a regular business.
+
+### Part 2
+<b>Ravina said: Here</b> in the mishna <b>we are dealing with Torah scholars,</b> for whom it is permitted to lend money to a gentile with interest. The Gemara explains: <b>What is the reason the Sages decreed</b> that one should not lend money to a gentile with interest? The reason is that <b>perhaps</b> the Jew <b>will learn from</b> the gentile’s <b>actions.</b> Continuous interactions with gentiles for the sake of financial dealings may have a negative influence on a Jew. <b>And since</b> in this case the lender <b>is a Torah scholar, he will not learn from</b> the gentile’s <b>actions.</b>
+
+### Part 3
+<b>There are</b> those <b>who teach that which Rav Huna</b> said in connection with <b>that which Rav Yosef taught:</b> The verse states: <b>“If you lend money to any of My people, even to the poor person who is with you”</b> (Exodus 22:24). The term “My people” teaches that if one of <b>My people,</b> i.e., a Jew, <b>and a gentile</b> both come to borrow money from you, <b>My people take precedence.</b> The term “the poor person” teaches that if <b>a poor person and a rich person</b> come to borrow money, <b>the poor person takes precedence.</b> And from the term: “Who is with you,” it is derived: If <b>your poor person,</b> meaning one of your relatives, <b>and</b> one of <b>the poor of your city</b> come to borrow money, <b>your poor person takes precedence.</b> If it is between one of <b>the poor of your city and</b> one of <b>the poor of another city, the</b> one of <b>the poor of your city takes precedence.</b>
+
+### Part 4
+<b>The Master said</b> above: If one of <b>My people and a gentile</b> come to you for a loan, <b>My people take precedence.</b> The Gemara asks: Isn’t this <b>obvious?</b> Is there any reason to think that a gentile would take precedence over a Jew? <b>Rav Naḥman said</b> that Rav <b>Huna said to me: It is necessary only</b> to teach <b>that even</b> if the choice is to lend money <b>to a gentile with interest or to a Jew for free,</b> without interest, one must still give preference to the Jew and lend the money to him, even though this will entail a lack of profit.
+
+### Part 5
+<b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Yosei says: Come and see the blindness in the eyes of those who lend</b> money <b>with interest.</b> If <b>a person calls another a wicked person</b> in public, the other becomes insulted and <b>he harasses him in</b> all aspects of <b>his life</b> because he called him by this disgraceful name. <b>But they</b> who lend with interest <b>bring witnesses and a scribe [<i>velavlar</i>] and a pen [<i>vekulmos</i>] and ink and write and sign</b> a document that testifies: <b>So-and-so denies the</b> existence of the <b>God of Israel,</b> as the very fact that he lent with interest in defiance of the Torah is tantamount to a denial of the existence of God.
+
+### Part 6
+<b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Shimon ben Elazar says:</b> Concerning <b>anyone who has money and lends it without interest, the verse says about him: “He who has not given his money with interest and who has not taken a bribe against the innocent, he who does these shall never collapse”</b> (Psalms 15:5). From this statement, the opposite can also be inferred: <b>You learn</b> from this <b>that</b> concerning <b>anyone who lends</b> his money to others <b>with interest, his property,</b> i.e., his financial standing, <b>collapses.</b> The Gemara asks: <b>But we see</b> people <b>who do not lend</b> money <b>with interest and</b> nevertheless their property <b>collapses. Rabbi Elazar says:</b> There is still a difference: <b>Those</b> who do not lend money with interest <b>collapse but</b> then ultimately <b>rise, but these,</b> who lend with interest, <b>collapse and do not rise</b> again.
+
+### Part 7
+Referring to the subject of honest people who collapse temporarily, it is said: <b>“Why do You observe the treacherous, and remain silent while the wicked swallows the one who is more righteous than he?”</b> (Habakkuk 1:13). <b>Rav Huna says</b> about this verse: <b>One who is more righteous than he, he swallows</b> for the moment, but <b>he does not swallow a completely righteous person</b> at all.
+
+### Part 8
+§ The Gemara returns to the clarification of the mishna, which mentioned the subject of a gentile who resides in Eretz Yisrael and observes the seven Noahide mitzvot [<i>ger toshav</i>]. <b>It is taught</b> in a <i>baraita</i>: <b>Rabbi</b> Yehuda HaNasi <b>says:</b> With regard to the <b>convert that is mentioned concerning the sale</b> of a Hebrew slave <b>and</b> the <b><i>ger toshav</i> that is mentioned concerning interest, I do not know what</b> the meaning of each of these references <b>is.</b>
+
+### Part 9
+The Gemara explains: <b>The convert that is mentioned concerning the sale</b> of a Hebrew slave is referring to the following, <b>as it is written: “If your brother waxes poor with you and is sold unto you”</b> (Leviticus 25:39), and it was expounded in a <i>baraita</i>: <b>And not</b> only will he be sold <b>to you,</b> a born Jew, <b>but</b> he will be sold even <b>to a convert, as it is stated:</b> “And sells himself <b>to a stranger [<i>leger</i>]”</b> (Leviticus 25:47).
+
+### Part 10
+<b>And</b> this sale to a <i>ger</i> is referring to a sale <b>not</b> only <b>to a righteous convert [<i>leger tzedek</i>], but</b> even <b>to a <i>ger toshav</i>, as it is stated:</b> “And sells himself <b>to a stranger who is a settler [<i>leger toshav</i>]”</b> (Leviticus 25:47). With regard to the continuation of the verse: “Or to an offshoot of <b>a stranger’s family,” this is</b> referring to <b>a gentile,</b> i.e., he will reach a state where he has no choice but to sell himself to a gentile. <b>When it states: “Or to an offshoot</b> of a stranger’s family,” <b>this is</b> referring to <b>one sold for idol worship itself,</b> i.e., he is forced to sell himself as a slave to work in a temple of idol worship.
+
+### Part 11
+The Gemara clarifies the <i>baraita</i>. <b>The Master said: And not</b> only will he be sold <b>to you,</b> a born Jew, <b>but</b> he will be sold even <b>to a convert, as it is stated:</b> “And sells himself <b>to a stranger.”</b> Is this <b>to say that a convert may acquire a Hebrew slave?</b> The Gemara <b>raises a contradiction</b> from a <i>baraita</i>: <b>A convert cannot be acquired as a Hebrew slave, and a woman or a convert may not acquire a Hebrew slave.</b>
+
+### Part 12
+The Gemara explains the <i>baraita</i>. <b>A convert cannot be acquired as a Hebrew slave,</b> as <b>we require</b> the fulfillment of the verse: “Then he shall go out from you, he and his children with him, <b>and shall return to his own family”</b> (Leviticus 25:41), <b>and</b> a convert <b>is not</b> able to do this, since upon conversion the convert severs his relationship with his gentile family, and he therefore has no family. The <i>baraita</i> teaches: <b>And a woman or a convert may not acquire a Hebrew slave.</b> With regard to <b>a woman,</b> the reason is that it is <b>not proper conduct,</b> since people may say that she is purchasing him to engage in sexual intercourse with him. With regard to <b>a convert as well,</b> it <b>is learned</b> as a tradition: Only one <b>who can be acquired</b> as a Hebrew slave <b>can acquire</b> a Hebrew slave, and one <b>who cannot be acquired</b> as a Hebrew slave <b>cannot acquire</b> a Hebrew slave. Since a convert cannot be acquired as a Hebrew slave, he also cannot acquire one.
+
+### Part 13
+Rabbi Yehuda HaNasi’s question was that since it has been established that a convert may not acquire a Hebrew slave, why was he mentioned in the verse? <b>Rav Naḥman bar Yitzḥak said: He cannot acquire</b> a Hebrew slave <b>and</b> have <b>his <i>halakha</i></b> be like that <b>of a Jew</b> who owns a Hebrew slave, <b>but he can acquire</b> a Hebrew slave <b>and</b> have <b>his <i>halakha</i></b> be like that <b>of a gentile</b> who owns a Hebrew slave.
+
+### Part 14
+This is <b>as it is taught</b> in a <i>baraita</i>: A Hebrew slave who <b>had his ear pierced</b> by his own request in order to remain a slave after his six-year period of servitude was over, and therefore is emancipated only during the Jubilee Year, <b>and</b> also a Hebrew slave <b>who was sold to a gentile, does not serve</b> his master’s <b>son and</b> does <b>not</b> serve his master’s <b>daughter</b> after his master’s death, but rather is emancipated. The same <i>halakha</i> would apply to a Hebrew slave sold to a convert, whose status in this respect is similar to that of a gentile.
+
+### Part 15
+<b>The Master said</b> above: <b>And a woman or a convert may not acquire a Hebrew slave.</b> The Gemara suggests: <b>Let us say that</b> this <i>baraita</i> is <b>not in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel. As it is taught</b> in a <i>baraita</i>: <b>A woman may acquire maidservants but may not acquire</b> male <b>slaves,</b> in order to preserve standards of modesty. <b>Rabban Shimon ben Gamliel says: She may also acquire</b> male <b>slaves.</b> The Gemara rejects this suggestion: <b>Even</b> if <b>you say</b> that this <i>baraita</i> is in accordance with the opinion of <b>Rabban Shimon ben Gamliel,</b> it is <b>not difficult. Here,</b> where it is prohibited, the ruling is stated <b>with regard to a Hebrew slave,</b> and <b>there,</b> where Rabban Shimon ben Gamliel renders it permitted, the ruling is stated <b>with regard to a Canaanite slave.</b>
+
+### Part 16
+The Gemara explains the difference: <b>A Hebrew slave</b> is regarded as <b>discreet in her</b> eyes, and since she trusts that a Hebrew slave will not reveal their actions to others if they engage in sexual intercourse, it is prohibited for her to acquire a male Hebrew slave. By contrast, <b>a Canaanite slave</b> is regarded as <b>indiscreet in her</b> eyes, so she will be deterred from transgressing with him.
+
+### Part 17
+The Gemara asks: <b>But</b> this seems to contradict the <i>baraita</i> <b>that Rav Yosef teaches: A widow may not raise a dog,</b> due to suspicion that she may engage in bestiality, <b>and she may not allow a student</b> of Torah to dwell <b>as a lodger</b> in her home. <b>Granted,</b> it makes sense that it is prohibited for her to have <b>a student</b> of Torah lodging in her home, as he is regarded as <b>discreet in her</b> eyes. <b>But</b> concerning <b>a dog, since it would follow her</b> around afterward if she would engage in bestiality with it, <b>she is afraid</b> to sin with it. Therefore, it should be permitted for her to raise it. The Sages <b>say</b> in response: <b>Since it will</b> also <b>follow her</b> around <b>if she throws it a piece of meat [<i>umtza</i>], people will say: It is following her due to the meat she threw to it,</b> and they will not suspect her of sinning. Consequently, she will not be deterred from transgressing.
+
+### Part 18
+The Gemara discusses Rabbi Yehuda HaNasi’s second difficulty: <b>The <i>ger toshav</i> that was mentioned concerning interest, what is it?</b> What was Rabbi Yehuda’s difficulty? <b>As it is written: “And if your brother waxes poor, and his means fail with you, then you shall strengthen him, as a stranger and a resident [<i>ger vetoshav</i>] shall he live with you. You may not take interest or increase from him, but fear your God, and your brother should live with you”</b> (Leviticus 25:35–36). This indicates that interest may not be taken from a <i>ger toshav</i>. <b>And</b> the Gemara <b>raises a contradiction</b> from the mishna: <b>One may borrow</b> money <b>from them,</b> i.e., from gentiles, <b>and lend</b> money <b>to them with interest, and similarly,</b> one may borrow money from and lend money to <b>a <i>ger toshav</i></b> with interest.
+
+### Part 19
+<b>Rav Naḥman bar Yitzḥak says: Is it written: Do not take from them?</b> No, <b>it is written:</b> “Do not take <b>from him,”</b> in the singular, and it means: Do not take interest <b>from a Jew.</b>
+
+### Part 20
+With regard to this verse <b>the Sages taught: “You may not take interest or increase from him,” but you may become a guarantor for him</b> for a transaction involving interest.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

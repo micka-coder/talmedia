@@ -1,0 +1,33 @@
+
+### Part 1
+that <b>she should go and forgive her mother’s marriage contract for her father, and she</b> will subsequently <b>inherit</b> the sum of the marriage contract <b>from him?</b> The marriage contract is a document of the debt owed by her father to her mother. The daughter, who has inherited the document from her mother, can forgo her father’s obligation, so rendering nugatory the right of the purchasers. The father then retains the amount owed to the purchasers of the marriage contract, and his daughter will inherit that amount when he dies. The daughter <b>heard</b> this, and <b>went and forgave</b> her father’s obligation in the marriage contract, as recommended by Rav Naḥman.
+
+### Part 2
+<b>Rav Naḥman</b> later <b>said</b> in regret: <b>We have made ourselves like advisors of judges.</b> We have acted like lawyers who give practical advice to litigants rather than like independent judges. The Gemara asks: <b>At the outset, what did he hold</b> when he intended the daughter to hear his advice, <b>and ultimately, what did he hold</b> that made him regret his action? The Gemara explains: <b>At the outset, he held</b> that the verse teaches: <b>“And you should not hide yourself from your own flesh”</b> (Isaiah 58:7), and therefore it is correct to give help and advice to relatives. <b>And ultimately he held that</b> in the case of <b>an important person</b> who must be very careful to avoid any impression of having favored his family in judgment, the situation <b>is different.</b>
+
+### Part 3
+Since the Gemara had previously mentioned a <i>halakha</i> stated by Shmuel, it turns its attention to <b>the</b> matter <b>itself. Shmuel said:</b> With regard to <b>one who sells a promissory note to another, and</b> the seller <b>went back and forgave</b> the debtor his debt, <b>it is forgiven,</b> since the debtor essentially had a non-transferable obligation to the creditor alone, <b>and even</b> the creditor’s <b>heir can forgive</b> the debt. <b>Rav Huna, son of Rav Yehoshua, said: And if</b> the purchaser of the document <b>is perspicacious,</b> and is wary of such a ploy, he should <b>jangle [<i>mekarkesh</i>] dinars</b> in the debtor’s ears, i.e., he should pay the debtor or promise him money, <b>and</b> the debtor will <b>write for him</b> a new promissory <b>note in</b> the purchaser’s <b>name,</b> thereby preventing the latter from losing out.
+
+### Part 4
+<b>Ameimar said: One who judges cases of liability for indirect damage</b> and maintains that someone whose actions cause damage is obligated to pay, even if he has not directly harmed another, <b>collects in this</b> case <b>the value</b> of <b>the proper document.</b> Since by forgiving the loan the creditor voided the document and caused the purchaser financial loss, he must compensate the purchaser for the amount recorded in the document. <b>One who does not judge cases of liability for indirect damage collects in this</b> case <b>only the value of the paper</b> on which the document was written.
+
+### Part 5
+The Gemara relates that <b>there was an incident</b> like this one, <b>and Rafram pressured Rav Ashi</b> by means of verbal persuasion to render an unequivocal ruling in this matter, <b>and</b> Rav Ashi <b>collected in this</b> case <b>as</b> if he damaged <b>a beam</b> used <b>for</b> crafting <b>a sculpture,</b> i.e., the full value of the debt listed in the promissory note.
+
+### Part 6
+<b>Ameimar said in the name of Rav Ḥama:</b> With regard to <b>one who has</b> incumbent <b>upon himself</b> the obligation of his <b>wife’s marriage contract and</b> also owes money to <b>a creditor, and</b> he <b>possesses land and possesses money,</b> the obligation <b>to the creditor is settled with</b> the payment of <b>money,</b> whereas the debt <b>to the woman</b> of her marriage contract <b>is settled with</b> the payment of <b>land, this one in accordance with his law, and that one in accordance with her law.</b> Since the creditor gave him money, it is fitting that he should receive ready cash in return. The woman, in contrast, did not give him anything but relied upon the lien on his land, so she is therefore given land.
+
+### Part 7
+<b>And if there is only one</b> plot of <b>land, and</b> it is <b>adequate for</b> the payment of <b>only one</b> debt, <b>we give it to the creditor,</b> and <b>we do not give it to the woman. What is the reason</b> for this? Even <b>more than a man wants to marry, a woman wants to be married.</b> Women do not get married because they wish to receive their marriage contract. It is better to give preference to the creditor so that he will not lose out, so as not to discourage people from lending money.
+
+### Part 8
+<b>Rav Pappa said to Rav Ḥama:</b> Is it <b>correct that you say in the name of Rava:</b> With regard to <b>one who owes money and has land, and the creditor comes and demands from him</b> his money, <b>and</b> the debtor <b>says to him: Go</b> and <b>take</b> the amount you are owed <b>from the land, we say to him: Go</b> and <b>sell the land yourself and give him</b> money? Rav Ḥama <b>said to him:</b> I did <b>not</b> say this in the name of Rava.
+
+### Part 9
+Rav Pappa replied: <b>Tell me the incident itself, what happened</b> and what exactly occurred that caused this opinion to be attributed to Rava. Rav Ḥama <b>said to him:</b> The debtor <b>was one who attached his money to a gentile.</b> He possessed money, but he claimed that this money belonged to a gentile and therefore could not be demanded from him. <b>This</b> man <b>acted improperly,</b> and <b>consequently,</b> the Sages <b>acted improperly with him</b> by forcing him to sell the land.
+
+### Part 10
+<b>Rav Kahana said to Rav Pappa: According to your</b> opinion, <b>that you say the repayment of a creditor</b> is <b>a mitzva,</b> if the debtor <b>said: It is not amenable to me to perform a mitzva, what</b> would be the <i>halakha</i>? If there is no obligation to repay a loan other than to perform a mitzva, then what happens if someone is not interested in performing the mitzva? <b>He said to him: We</b> already <b>learned</b> this <i>halakha</i> in a <i>baraita</i>: <b>In what</b> case <b>is this statement said,</b> that one is liable to receive forty lashes for committing a transgression? It is said <b>with regard to negative mitzvot. However, with regard to positive mitzvot, for example, if</b> the court <b>says to</b> someone: <b>Perform</b> the mitzva of the <b><i>sukka</i>, and he does not do</b> so, or: Perform the mitzva of the <b>palm branch, and he does not do</b> so,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

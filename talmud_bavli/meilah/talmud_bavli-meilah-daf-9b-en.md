@@ -1,0 +1,33 @@
+
+### Part 1
+The Gemara <b>raises an objection</b> to Rav’s explanation from a mishna (<i>Zevaḥim</i> 86a): <b>And all of</b> those unfit offerings, with regard to which it was taught that if they ascended to the altar they do not descend, in a case <b>where they were dislodged from upon the altar,</b> the priest <b>does not restore</b> them to the altar. <b>And likewise,</b> with regard to <b>an ember that was dislodged from upon the altar,</b> the priest <b>does not restore</b> it to the altar. It can be inferred from the mishna that if the ember was still <b>on the altar,</b> then the priest must <b>restore</b> it.
+
+### Part 2
+The Gemara explains the objection: <b>Granted, according to Rabbi Yoḥanan</b> this <b>works out well,</b> as he maintains that even after the shovelful of ashes has been removed, an ember on the pile of ashes still retains its sanctity. <b>But according to Rav</b> this is <b>difficult.</b> The Gemara answers that <b>Rav</b> could have <b>said to you: An ember is different, as it has substance [<i>meshasha</i>]</b> and is therefore still fit to be burned on the altar.
+
+### Part 3
+<b>There is</b> a Sage <b>who stated</b> this objection <b>in</b> the opposite <b>manner:</b> The mishna indicates that <b>the reason</b> that the priest must return it to the altar is <b>because</b> it is <b>an ember,</b> and <b>that it has substance.</b> It can be inferred <b>from this</b> that one who derives benefit <b>from ash, which does not have substance, is not</b> liable for <b>misuse</b> of consecrated property <b>even</b> when it is <b>on the top of the altar. Granted, according to Rav</b> this works out <b>well, but according to Rabbi Yoḥanan</b> it is <b>difficult.</b>
+
+### Part 4
+The Gemara answers that <b>Rabbi Yoḥanan</b> could have <b>said to you: The same is true that even ash</b> that was dislodged must be returned. <b>And this is the reason that</b> the mishna <b>teaches an ember,</b> and not ash: It <b>is coming to teach us that even</b> in the case of <b>an ember, which has substance, if it is dislodged from upon the altar</b> the priest does <b>not return</b> it.
+
+### Part 5
+§ One of the <i>halakhot</i> of misuse is that the violator must pay the value of the benefit he derived and add an extra one-fifth. It <b>was stated</b> that there is a dispute between <i>amora’im</i> with regard to this money: In the case of <b>one who derives benefit from meat of an offering of the most sacred order before the sprinkling of the blood</b> on the altar, <b>or</b> who derives benefit from <b>sacrificial portions,</b> such as the fats <b>of offerings of lesser sanctity, after the sprinkling of the blood, Rav says:</b> The value of <b>that benefit which he derived</b> is <b>allocated for</b> communal <b>gift</b> offerings, <b>and Levi says:</b> One must <b>bring an item that is entirely</b> consumed <b>on the altar,</b> e.g., incense. One does not bring a burnt offering with this money, as the hide of a burnt offering belongs to the priests.
+
+### Part 6
+It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Levi: This</b> money paid for <b>misuse</b> of consecrated items, <b>to where does it go?</b> The Rabbis who are called: <b>Those who learn before the Sages, say:</b> One must <b>bring an item that is entirely</b> consumed <b>on the altar,</b> and <b>what is that? Incense,</b> which is burned on the altar in its entirety.
+
+### Part 7
+It <b>is taught</b> in another <i>baraita</i> <b>in accordance</b> with the opinion <b>of Rav:</b> In the case of one <b>who derives benefit from money</b> set aside for the purchase of <b>a sin offering or</b> set aside <b>as money</b> set aside for the purchase of <b>a guilt offering,</b> if he pays <b>before his sin offering is sacrificed he</b> must <b>add</b> the amount of the benefit he derived and an additional fifth <b>and bring</b> with that money a more expensive animal as <b>his sin offering. And</b> likewise, if he pays <b>before his guilt offering is sacrificed, he</b> must <b>add</b> the amount of the benefit he derived and an additional fifth <b>and bring</b> with that money a more expensive animal as <b>his guilt offering.</b> If <b>his sin offering</b> has already been <b>sacrificed,</b> the money <b>is cast into the Dead Sea.</b> If <b>his guilt offering</b> has <b>already</b> been <b>sacrificed,</b> the money is <b>allocated for</b> communal <b>gift</b> offerings.
+
+### Part 8
+The <i>baraita</i> continues: <b>One who derives benefit from meat of an offering of the most sacred order before the sprinkling of the blood</b> on the altar, <b>or</b> if he derives benefit from <b>sacrificial portions,</b> such as the fats <b>of offerings of lesser sanctity, after the sprinkling of the blood,</b> the value of <b>that benefit which he derived</b> is <b>allocated for</b> communal <b>gift</b> offerings. The <i>baraita</i> summarizes: The reimbursement for misuse of <b>all offerings</b> which are sacrificed on <b>the altar</b> is used to purchase items <b>for the altar,</b> whereas the reimbursement for misuse of all <b>offerings which are consecrated for Temple maintenance</b> is donated <b>to Temple maintenance.</b> And the reimbursement for misuse of all <b>communal offerings</b> is allocated <b>for communal gift</b> offerings.
+
+### Part 9
+The Gemara notes that <b>this</b> <i>baraita</i> <b>itself</b> is <b>difficult,</b> i.e., it is apparently self-contradictory. In the first clause it teaches that if he pays <b>before his sin offering is sacrificed he</b> must <b>add</b> the amount of the benefit he derived and an additional fifth <b>and bring</b> a more expensive animal as <b>his sin offering,</b> and <b>if his sin offering</b> has already been <b>sacrificed</b> the money <b>is cast into the Dead Sea. But it is taught</b> in the latter clause of the <i>baraita</i>: The reimbursement for misuse of <b>all offerings</b> that are sacrificed <b>on the altar</b> must be used to purchase items <b>for the altar.</b> The Gemara further explains the contradiction: <b>And</b> it can be inferred from this last statement that there <b>is no difference if the owner has</b> already <b>achieved atonement</b> through his sin offering <b>and</b> there <b>is no difference if</b> the owner has <b>not</b> yet <b>achieved atonement</b> through his sin offering.
+
+### Part 10
+The Gemara answers that <b>the first clause is</b> in accordance with the opinion of <b>Rabbi Shimon, who says: Any sin offering whose owners achieved atonement</b> by means of another animal must be <b>left to die.</b> Therefore, if the owner has achieved atonement, the money for misuse must be cast into the Dead Sea.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

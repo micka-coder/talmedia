@@ -1,0 +1,54 @@
+
+### Part 1
+Although <b>your breasts began to develop, you</b> still <b>did not reform</b> your ways, and you continued to act licentiously. And furthermore, even when <b>your breasts grew fully, you also did not reform</b> your ways.
+
+### Part 2
+§ The Gemara asks: <b>In any event, everyone,</b> both Rabbi Meir and the Rabbis, agrees that <b>we rely on the lower</b> sign. <b>From where do we</b> derive that we rely exclusively on the lower sign and do not require the appearance of the upper sign as well? <b>Rav Yehuda said</b> that <b>Rav said, and likewise</b> a Sage of <b>the school of Rabbi Yishmael taught: The verse states: “A man or woman, when they commit any of the sins of men”</b> (Numbers 5:6). <b>The Torah</b> thereby <b>rendered a woman equal to a man with regard to all punishments of the Torah. Just as a man</b> is considered to have reached majority based <b>on one sign,</b> i.e., the lower sign of two pubic hairs, <b>so too, a woman</b> reaches majority based <b>on one sign,</b> the lower sign.
+
+### Part 3
+The Gemara raises a difficulty: <b>But</b> one can <b>say</b> that although a woman’s status, like that of a man, depends on one sign, in the case of a woman she reaches majority <b>either</b> through <b>this,</b> the lower sign, <b>or that,</b> the upper sign. From where is it derived that it must be specifically the lower sign? The Gemara answers: This is based on the same comparison of men and women. Her <i>halakha</i> is <b>like</b> that of <b>a man: Just as a man</b> reaches majority based on the <b>lower</b> sign <b>and not</b> the <b>upper</b> sign, as this is not applicable to him, <b>so too, a woman</b> reaches majority based on the <b>lower</b> sign <b>and not</b> the <b>upper</b> sign.
+
+### Part 4
+The Gemara notes that <b>this</b> <i>halakha</i>, that the lower sign is sufficient by itself for a woman, <b>is also taught</b> in a <i>baraita</i>. <b>Rabbi Eliezer, son of Rabbi Tzadok, said: This</b> is <b>how</b> the Sages <b>would explain it in</b> the study hall of <b>Yavne. They said: Once</b> the <b>lower</b> sign has <b>appeared, we no longer concern ourselves with</b> the appearance of the <b>upper</b> sign in order to establish a woman’s status, as she is considered to have reached her majority by virtue of the lower sign.
+
+### Part 5
+§ It <b>is taught</b> in a <i>baraita</i>, with regard to the appearance of signs indicating puberty in young women, that <b>Rabban Shimon ben Gamliel says:</b> In the case of young <b>women</b> who reside in <b>cities,</b> the <b>lower</b> sign <b>appears</b> more <b>quickly</b> than the upper sign, <b>because they frequent the bathhouses,</b> which stimulates the growth of the hair. By contrast, in the case of young <b>women</b> who reside in <b>villages,</b> the <b>upper</b> sign <b>appears</b> more <b>quickly</b> than the lower sign, <b>because they grind with mills,</b> which develops their breasts.
+
+### Part 6
+<b>Rabbi Shimon ben Elazar says:</b> There are differences in the rate of development of the breasts. In the case of <b>the daughters of the wealthy,</b> the growth of the breast on the <b>right side arrives</b> more <b>quickly</b> than that of the left side, <b>as</b> it <b>rubs against their upper body cloaks,</b> which are worn by the wealthy. By contrast, in the case of <b>the daughters of the poor,</b> the growth of the breast on the <b>left side arrives</b> more <b>quickly</b> than that of the right side, <b>because they draw jugs of water on</b> that side. <b>And if you wish, say</b> instead that the left breast develops more quickly <b>because they carry their</b> younger <b>brothers on their</b> left <b>sides.</b>
+
+### Part 7
+<b>The Sages taught</b> in a <i>baraita</i>: The growth of the breast on the <b>left side</b> arrives <b>before</b> that of the <b>right side. Rabbi Ḥanina, son of the brother of Rabbi Yehoshua, says:</b> It <b>never</b> occurred that the growth of the breast on the <b>left side</b> arrived <b>before</b> that of the <b>right side, except for</b> the case of <b>one</b> young woman <b>who was in my neighborhood, as</b> the growth of the breast on her <b>left side</b> arrived <b>before</b> that of the <b>right side, and</b> later the right breast <b>returned to its normal condition</b> and developed normally.
+
+### Part 8
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>All</b> girls who <b>are examined</b> to determine whether or not their signs indicating puberty have appeared <b>are examined based on</b> the testimony of <b>women. And likewise, Rabbi Eliezer</b> would follow this <i>halakha</i> in practice and <b>give</b> the girls <b>to his wife</b> to examine, <b>and Rabbi Yishmael</b> would similarly <b>give</b> the girls <b>to his mother</b> to examine.
+
+### Part 9
+The <i>baraita</i> continues: <b>Rabbi Yehuda says: Before the</b> minimum <b>age</b> at which pubic hair is considered a sign, i.e., eleven years and one day, when any hair that is found is considered to be merely a mole and not a sign, <b>and</b> similarly <b>after the age</b> of majority, twelve years and one day, when a female is presumed to have grown pubic hair like most girls her age, <b>women may examine them</b> and their testimony is accepted. But <b>during the time</b> between eleven years and one day and twelve years and one day, <b>women may not examine them.</b> The reason is <b>that one does not resolve</b> cases of <b>uncertainty based on</b> the testimony of <b>women. Rabbi Shimon says: Even during the time</b> between eleven years and one day and twelve years and one day, <b>women may examine them. And a woman is deemed credible,</b> and her testimony is accepted, <b>to be stringent but not to be lenient.</b>
+
+### Part 10
+The <i>baraita</i> continues: <b>How so,</b> i.e., how is a woman’s testimony accepted with regard to the girl she has examined as a stringency but not a leniency? If the woman said that the girl is <b>a female who reached majority,</b> her claim is accepted to the extent <b>that she does not perform refusal.</b> The refusal of a husband, which applies in the case of a girl whose father had died and who was married off by her mother or brother, can be performed by the girl only until she reaches majority. If the woman said that this girl is <b>a minor,</b> her testimony is accepted to the extent <b>that she does not perform <i>ḥalitza</i>.</b>
+
+### Part 11
+The <i>baraita</i> concludes: <b>But</b> the woman who examined the girl is <b>not deemed credible to say</b> that she <b>is a minor girl</b> to the extent <b>that she performs refusal. And</b> likewise, the woman is not deemed credible to say that she <b>is a female who reached majority to</b> the extent <b>that she performs <i>ḥalitza</i>.</b>
+
+### Part 12
+The Gemara analyzes the <i>baraita</i>. <b>The Master said</b> that <b>Rabbi Yehuda says: Before the</b> minimum <b>age</b> at which pubic hair is considered a sign, <b>and</b> similarly <b>after the age</b> of majority, <b>women may examine them.</b> The Gemara raises a difficulty: <b>Granted,</b> one can understand that <b>before the</b> minimum <b>age</b> there is <b>a requirement</b> for <b>examination,</b> so <b>that if</b> they <b>find</b> hair <b>after the</b> minimum <b>age</b> which they already saw before the minimum age, these hairs <b>are</b> evidently a mere <b>mole,</b> not a sign of maturity.
+
+### Part 13
+<b>But why do I</b> need a girl to undergo <b>an examination after the age</b> of majority? <b>Didn’t Rava say: A minor girl who reached her full years,</b> i.e., her age of majority, twelve years and one day, <b>does not require an examination,</b> as there is <b>a presumption</b> that <b>she has developed signs</b> indicating puberty? The Gemara explains: <b>When Rava said</b> that one relies on this <b>presumption,</b> he was referring specifically <b>to</b> her inability from now on to perform <b>refusal. But with regard to <i>ḥalitza</i>,</b> she <b>requires an examination</b> to determine that she has reached maturity.
+
+### Part 14
+The <i>baraita</i> stated that according to Rabbi Yehuda, women are deemed credible to examine girls who are either younger than eleven years and one day or older than twelve years and one day. But <b>during the time</b> between eleven years and one day and twelve years and one day, <b>women may not examine them.</b> The Gemara explains that Rabbi Yehuda <b>holds</b> that the period <b>during</b> this <b>time</b> is considered like <b>after the age</b> of majority. In other words, the signs indicating puberty that a girl develops during this time are considered to be full-fledged signs, which means that she has reached majority even before the age of twelve and one day. Accordingly, the testimony of women is not accepted for this period, as her change of status enables her to perform <i>ḥalitza</i> with her husband’s brother.
+
+### Part 15
+<b>But after the</b> minimum <b>age</b> of twelve years and one day, <b>when there is the presumption of Rava</b> that a girl has already developed signs indicating puberty, one <b>may rely on women and</b> have them <b>examine</b> the girl. <b>During</b> this <b>age,</b> between eleven and twelve, <b>when there is no presumption of Rava</b> that she has already developed signs indicating puberty, one <b>may not rely on women, and</b> therefore <b>women may not examine</b> the girl.
+
+### Part 16
+By contrast, <b>Rabbi Shimon says</b> that <b>even during</b> this <b>age,</b> between eleven years and one day and twelve years and one day, <b>women may examine</b> girls to determine if they have grown pubic hair. This is because Rabbi Shimon <b>holds</b> that the period <b>during</b> this <b>age</b> is considered <b>like before the</b> minimum <b>age,</b> which means that the girl is a minor based on her age, regardless of the results of the examination. <b>And</b> the only reason she <b>requires an examination</b> is <b>that if</b> they <b>find</b> hair <b>after the</b> minimum <b>age,</b> which they had already seen before the minimum age, these hairs <b>are</b> deemed a mere <b>mole,</b> not a sign of maturity.
+
+### Part 17
+The <i>baraita</i> further teaches: <b>And a woman is deemed credible</b> to testify <b>to be stringent</b> with regard to the girl who she examined <b>but not to be lenient.</b> The Gemara asks: <b>Who taught this</b> <i>halakha</i>? The Gemara answers: <b>If you wish, say</b> that it is in accordance with the opinion of <b>Rabbi Yehuda, and</b> it is referring to <b>during</b> the <b>age</b> between eleven years and one day and twelve and one day.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Part 1
+Both <b>this one and that one,</b> i.e., items of both forms of impurity, impart impurity <b>until</b> they are no longer fit to be eaten <b>by a dog,</b> it poses a difficulty to the opinion of Rabbi Yirmeya, as <b>this</b> mass <b>is fit for a dog.</b> The Gemara concludes: Indeed, it is <b>difficult.</b>
+
+### Part 2
+The Gemara discusses <b>the</b> matter <b>itself. Bar Padda says:</b> An item with <b>severe</b> ritual <b>impurity</b> imparts impurity to substances <b>until</b> it is no longer fit to be eaten <b>by a <i>ger</i></b> <i>toshav</i>, <b>but</b> an item with <b>light impurity</b> imparts impurity to substances <b>until</b> it is no longer fit to be eaten <b>by a dog. And Rabbi Yoḥanan says:</b> Both <b>this one and that one</b> impart impurity <b>until</b> they are no longer fit to be eaten <b>by a dog.</b> The Gemara asks: <b>What is the reason for</b> the ruling of <b>bar Padda? As it is written: “You shall not eat of any animal carcass;</b> you may give it <b>to the <i>ger</i></b> who is within your gates” (Deuteronomy 14:21). Bar Padda understands from this verse that an item which is <b>fit for a <i>ger</i></b> <i>toshav</i> <b>is called an animal carcass, and that which is not fit for a <i>ger</i></b> <i>toshav</i> <b>is not called an animal carcass.</b>
+
+### Part 3
+The Gemara asks: <b>And</b> with regard to <b>the other</b> Sage, Rabbi Yoḥanan, how does he interpret that verse? He maintains that it serves <b>to exclude</b> a carcass <b>that was decayed from the outset,</b> e.g., if the flesh started to decompose while the animal was still alive, due to severe injury. But if the carcass was initially edible and later decayed, it continues to impart ritual impurity provided it is fit for a dog. The Gemara asks: <b>And</b> with regard to <b>the other</b> Sage, bar Padda, how does he respond to this claim? <b>A verse is not necessary to exclude</b> such a case where the carcass <b>was decayed from the outset,</b> as <b>it is merely</b> like <b>dust</b> and obviously does not impart impurity.
+
+### Part 4
+<b>We learned</b> in our mishna that <b>Rabbi Eliezer ben Ya’akov says:</b> In the case of <b>a large animal that expelled a mass of</b> congealed <b>blood, that</b> mass <b>must be buried, and</b> the animal <b>is exempt from</b> having any future offspring counted a <b>firstborn. And Rabbi Ḥiyya teaches:</b> That mass of congealed blood <b>does not impart</b> ritual <b>impurity, neither through</b> physical <b>contact nor through carrying. And Rabbi Yoḥanan says:</b> It is <b>due to</b> the halakhic <b>nullification</b> of a forbidden substance <b>in a majority</b> of permitted substances that the Sages <b>touched upon it,</b> in order to exclude it from impurity through contact or carrying.
+
+### Part 5
+The Gemara asks: <b>Why</b> did Rabbi Yoḥanan say this <i>halakha</i> is <b>due specifically</b> to the <b>nullification</b> of a substance in a mixture <b>by</b> the <b>majority</b> of the mixture? Let one <b>derive</b> the <i>halakha</i> from the fact <b>that</b> the mass <b>is not fit</b> for consumption <b>at all,</b> and it never was. The Gemara explains: <b>This too</b> was <b>initially fit by virtue of its mother,</b> i.e., if one had slaughtered the mother before the embryo was discharged it would have been edible as part of the mother.
+
+### Part 6
+<b>We learned</b> in a mishna <b>elsewhere</b> (<i>Makhshirin</i> 6:3) that <b>Rabbi Eliezer ben Yaakov says: Ritually pure brine,</b> taken from an <i>am ha’aretz</i>, <b>into which any amount</b> of <b>water fell</b> is rendered <b>impure. Rav Naḥman says</b> that <b>Rabba bar Avuh says: That is to say</b> that <b><i>amei ha’aretz</i> are suspected of mixing half</b> a portion of water <b>in the brine,</b> which means that when the additional water falls in, the nullified impurity in the brine is revived by it and renders the entire mixture impure. The Gemara asks: <b>But why do I</b> need to say they are suspected of mixing precisely <b>half</b> a portion of water? <b>Even</b> if they mix in <b>less than half,</b> the brine will <b>also</b> be rendered impure upon contact with the added water, as <b>that</b> small <b>amount</b> combined with slightly less than half a portion of water <b>constitutes half</b> the mixture, <b>and half</b> a mixture <b>is not nullified</b> by the other half.
+
+### Part 7
+The Gemara answers: <b>Say</b> instead that an <i>am ha’aretz</i> is suspected of mixing in water <b>until</b> it constitutes slightly less than <b>half</b> the mixture. <b>And if you wish, say</b> instead: <b>The impurity</b> of foods belonging to an <b><i>am ha’aretz</i></b> applies <b>by rabbinic law</b> and <b>the impurity of liquids</b> also applies <b>by rabbinic law.</b> Accordingly, the impurity of the brine in this case is due to two separate rabbinic decrees. <b>Where the majority</b> is water <b>the Sages decreed</b> the brine is impure, but in a case <b>where half</b> the mixture is pure fish brine <b>and half</b> is water <b>the Sages did not decree</b> that the brine is impure.
+
+### Part 8
+<strong>MISHNA:</strong> <b>Rabban Shimon ben Gamliel says:</b> In the case of <b>one who purchases a nursing</b> female <b>animal from a gentile, he</b> does <b>not</b> need <b>to be concerned,</b> i.e., take into account the possibility, that <b>perhaps it was</b> nursing <b>the offspring of another</b> animal. Rather, the buyer may assume it had previously given birth. In the case of one who <b>enters amid his flock and sees</b> mother animals <b>that gave birth for the first time</b> that were <b>nursing, and</b> also sees mother animals <b>that gave birth not for the first time</b> that were also <b>nursing, he</b> does <b>not</b> need <b>to be concerned</b> that <b>perhaps the offspring of this</b> animal <b>came to that</b> animal to be nursed, or that <b>perhaps the offspring of that</b> animal <b>came to this</b> animal to be nursed.
+
+### Part 9
+<strong>GEMARA:</strong> <b>Rav Naḥman said in the name of Rav: The <i>halakha</i></b> is in accordance with the opinion of the anonymous <i>tanna</i> in the <i>mishnayot</i> <b>throughout the whole chapter, except</b> where there is <b>a difference</b> of opinion recorded in that mishna. <b>Rav Sheshet says: I say Rav was dozing or sleeping when he said this <i>halakha</i>.</b> After all, <b>to which</b> mishna is this referring? <b>If we say</b> it is referring <b>to the first</b> mishna in the chapter (19b) then his ruling does not apply, as <b>Rabbi Yishmael and Rabbi Akiva disagree</b> in that mishna.
+
+### Part 10
+<b>Rather,</b> you will say it is referring <b>to</b> the ruling <b>of Rabbi Eliezer ben Yaakov</b> (21b). This is also problematic, since it is already known that the <i>halakha</i> is in accordance with his opinion, as there is an established principle that <b>the teaching of Rabbi Eliezer ben Ya’akov</b> measures only <b>a <i>kav</i> but is clean</b> and accurate, and therefore the <i>halakha</i> is in accordance with his opinions.
+
+### Part 11
+<b>Rather,</b> you will say it is referring <b>to</b> the statement of <b>Rabban Shimon ben Gamliel</b> in the mishna here. That is also difficult, as there is a <i>tanna</i> who <b>disagrees, in the <i>baraita</i></b> cited on 24a. <b>Rather,</b> you will say that it is referring <b>to</b> the statement <b>of Rabbi Yosei ben HaMeshullam</b> in the next mishna (24b). But <b>didn’t Rav</b> already <b>say</b> this <b>one time? As Rav said: The <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei ben HaMeshullam. Rather,</b> you will say that it is referring to the matter <b>of the hair of a blemished</b> firstborn discussed in the mishna on 25b. But that case too is subject to a dispute, as <b>Akavya ben Mahalalel and the Rabbis disagree</b> in that mishna.
+
+### Part 12
+The Gemara answers: <b>Actually,</b> Rav’s statement is referring <b>to</b> the statement <b>of Rabban Shimon ben Gamliel</b> here, <b>and</b> Rav <b>teaches us this: That</b> if a mishna is contradicted by a dissenting opinion cited in <b>a <i>baraita</i></b> it <b>is not</b> considered <b>a dispute,</b> and the <i>halakha</i> therefore follows the opinion of Rabban Shimon ben Gamliel.
+
+### Part 13
+The Gemara asks: <b>But once Rav said the <i>halakha</i></b> is in accordance with the opinion of the anonymous <i>tanna</i> in the <i>mishnayot</i> <b>throughout the whole chapter except</b> where there is <b>a difference</b> of opinion,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Part 1
+<b>as Rabbi Yishmael states only there,</b> in the mishna, that three <i>se’a</i> of barley are reaped on Shabbat, <b>as</b> in that case <b>when</b> one <b>limits</b> the amount available <b>for eating,</b> he likewise <b>limits</b> the amount of <b>reaping. But here, when</b> one <b>limits</b> the amount <b>of eating</b> by bringing the two figs, he also <b>increases</b> the amount of <b>reaping.</b> Therefore is it <b>certain</b> that <b>we bring</b> the ill person the <b>three</b> figs attached by a single stem.
+
+### Part 2
+<strong>MISHNA:</strong> <b>The mitzva of the <i>omer</i> is to bring</b> the barley reaped for the meal offering <b>from</b> fields <b>proximate</b> to Jerusalem. If the barley <b>did not ripen</b> in <b>the</b> fields <b>proximate to Jerusalem, one brings it from any place</b> in Eretz Yisrael. There was <b>an incident where the <i>omer</i> came from Gaggot Tzerifin and</b> the wheat for <b>the two loaves</b> on <i>Shavuot</i> came <b>from the valley of Ein Sokher.</b>
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>What is the reason</b> that the barley reaped for the <i>omer</i> meal offering should ideally be brought from fields proximate to Jerusalem? The Gemara answers: <b>If you wish, say</b> that it is <b>because</b> the verse states: “And if you bring a meal offering of first fruits to the Lord, you shall bring for the meal offering of your first fruits grain in the ear parched with fire, even groats of the <b>fresh ear [<i>karmel</i>]”</b> (Leviticus 2:14). This indicates that the grain should be soft and fresh. Consequently it should be brought from close by, not from a place where it might become stale and hardened during a long journey.
+
+### Part 4
+<b>And if you wish, say</b> instead that the reason is <b>due to</b> the principle that <b>one does not postpone</b> performance of <b>the mitzvot.</b> When presented with the opportunity to perform a mitzva, one should perform it immediately. Therefore, the barley for the mitzva of the <i>omer</i> meal offering in the Temple should be brought from the first crop encountered outside of Jerusalem.
+
+### Part 5
+§ The mishna teaches: There was <b>an incident where the <i>omer</i> came from Gaggot Tzerifin</b> and the two loaves on <i>Shavuot</i> came from the valley of Ein Sokher. <b>The Sages taught</b> a <i>baraita</i> that provides the background of this event: <b>When the kings of the Hasmonean monarchy besieged each other</b> in their civil war, <b>Hyrcanus was outside of</b> Jerusalem, besieging it, <b>and Aristoblus was inside. On each and every day they would lower dinars in a box</b> from inside the city, <b>and</b> those on the outside <b>would send up</b> animals for them to bring the <b>daily offerings</b> in the Temple.
+
+### Part 6
+<b>A certain elderly man was there,</b> in Jerusalem, <b>who was familiar with Greek wisdom. He communicated to</b> those on the outside <b>by</b> using words understood only by those proficient in <b>Greek wisdom. The elderly man said to them: As long as they are engaged with the</b> Temple <b>service, they will not be delivered into your hands.</b> Upon hearing this, <b>on the following day,</b> when <b>they lowered dinars in a box, they sent up a pig to them. Once</b> the pig <b>reached halfway</b> up the <b>wall, it inserted its hooves</b> into the wall and <b>Eretz Yisrael shuddered four hundred parasangs by four hundred parasangs.</b>
+
+### Part 7
+When the Sages saw this, <b>they said</b> at <b>that time: Cursed is he who raises pigs, and cursed is he who teaches his son Greek wisdom. And</b> it is <b>with regard to that time</b> of civil war, in which the land was destroyed, that <b>we learned: An incident</b> occurred <b>in which the <i>omer</i>,</b> the measure of barley brought as a communal offering on the sixteenth of Nisan, <b>came from Gaggot Tzerifim, and the two loaves</b> offered on <i>Shavuot</i> came <b>from the valley of Ein Sokher.</b> Since no fresh barley grain was found in the fields immediately surrounding Jerusalem, it had to be brought from these outlying areas.
+
+### Part 8
+§ The Gemara relates another tradition with regard to that occasion when the <i>omer</i> came from Gaggot Tzerifin and the two loaves from the valley of Ein Sokher: <b>When it came</b> time to bring the <b><i>omer</i></b> meal offering, <b>they did not know from where</b> they could <b>bring</b> the <b><i>omer</i></b> grain, as all the surrounding fields were looted and ruined. The court publicly <b>proclaimed</b> their difficulty. <b>A certain deaf-mute [<i>ḥersha</i>] came</b> forward and <b>stretched out one hand toward a roof,</b> <i>gag</i> in Hebrew, <b>and one hand toward a hut [<i>atzerifa</i>]. Mordekhai said to</b> the Sages: <b>Is there a place that is called Gaggot Tzerifin or Tzerifin Gaggot? They checked and found</b> that there was such a place, and it contained fields of barley from which they were able to bring the <i>omer</i> meal offering.
+
+### Part 9
+A similar incident occurred <b>when they needed to bring the two loaves,</b> and <b>they did not know from where to bring</b> the grain. Again the court publicly <b>proclaimed</b> their difficulty, and <b>a certain deaf-mute came</b> forward and <b>stretched out</b> one <b>hand toward his eye [<i>a’eineih</i>] and one hand toward a door latch [<i>assikhera</i>]. Mordekhai said to</b> the Sages: <b>And is there a place that is called: Ein Sokher, or Sokher Ayin? They checked and found</b> that there was such a place, and it contained fields of wheat from which they were able to bring the two loaves.
+
+### Part 10
+The Gemara relates another story that demonstrates Mordekhai’s wisdom: Once, <b>a certain three women brought three nests</b> for their obligatory offerings of pairs of pigeons or doves (see Leviticus 15:29). <b>One</b> of them <b>said:</b> This offering is <b>for my <i>ziva</i>; and one said:</b> This if <b>for my <i>yamma</i>; and</b> the last <b>one said:</b> This is <b>for my <i>ona</i>.</b>
+
+### Part 11
+The Sages <b>understood from</b> the first woman’s statement: <b>For my <i>ziva</i>,</b> that she had experienced a discharge of uterine blood when not expecting her menstrual period, which would give her the status of <b>an actual <i>zava</i>.</b> From the second woman’s statement: <b>For my <i>yamma</i>,</b> they understood: <b>My actual <i>yamma</i>,</b> i.e., she was also a <i>ziva</i>, as <i>yam</i> can mean: Sea, or a flow of blood. From the third woman’s statement: <b>For my <i>ona</i>,</b> they came to the conclusion that she needed to bring a sacrifice <b>for her time [<i>ona</i>]</b> of completing her purification process from being a <i>zava</i>. Accordingly, they understood <b>that all</b> these women were obligated to bring <b>one sin offering and one burnt offering.</b>
+
+### Part 12
+<b>Mordekhai said to</b> the other Sages: <b>Perhaps</b> the first woman <b>was endangered</b> in the course <b>of</b> her menstrual <b>flow [<i>zov</i>].</b> Similarly, <b>perhaps</b> the second woman <b>was endangered at sea [<i>yam</i>].</b> Finally, <b>perhaps</b> the third woman <b>was endangered through her eye [<i>ayin</i>],</b> as <i>ayin</i> is phonetically similar to <i>ona</i>. According to these explanations, each woman sought to bring a voluntary offering to give thanks to God for being saved from danger. If so, the appropriate offering in each case is not a sin offering, <b>as they are all burnt offerings.</b> It <b>was checked and</b> they <b>found</b> that Mordekhai’s interpretation was in fact correct.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

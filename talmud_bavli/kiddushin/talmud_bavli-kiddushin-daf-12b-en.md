@@ -1,0 +1,42 @@
+
+### Part 1
+Rav Ḥisda explained: <b>Is this not</b> similar to the case of <b>Yehudit, wife of Rabbi Ḥiyya, who would have painful childbirths</b> and therefore wished to leave Rabbi Ḥiyya? <b>She said to</b> Rabbi Ḥiyya: <b>My mother told me: When you were young your father accepted betrothal on your behalf</b> from another man, which would render Yehudit forbidden to Rabbi Ḥiyya. <b>He said to her: It is not in your mother’s</b> power <b>to render you forbidden to me,</b> as this testimony is insufficient.
+
+### Part 2
+Returning to the incident with the blue marble stone, the Gemara relates that <b>the Sages said to Rav Ḥisda: Why</b> do you say that she is not betrothed because the item is not worth one <i>peruta</i> in the place where the betrothal occurred? After all, <b>there are witnesses in Idit who know that on that day it had the value of one <i>peruta</i>.</b> Rav Ḥisda said to them: <b>Now, in any event, they are not here,</b> and therefore their potential testimony is disregarded.
+
+### Part 3
+Rav Ḥisda cites a proof for his statement: <b>Isn’t this</b> the same as the opinion <b>of Rabbi Ḥanina?</b> In the case of a woman who appeared before the court and said that she was taken captive but remained undefiled, if there are no witnesses that she was captured, her entire claim must be accepted, and therefore she is permitted to her husband. Although there are witnesses elsewhere who can testify that she was taken captive, and consequently, the court need not rely on her statement alone, <b>as Rabbi Ḥanina says:</b> When <b>her witnesses</b> are far away <b>in the north [<i>istan</i>], will she be forbidden?</b>
+
+### Part 4
+The Gemara comments: <b>Abaye and Rava do not hold</b> in accordance <b>with this</b> statement <b>of Rav Ḥisda</b> with regard to betrothal. In their opinion one cannot learn the <i>halakha</i> here from Rabbi Ḥanina’s statement, as there is a difference between the cases: <b>If</b> in the case of Rabbi Ḥanina the Sages <b>were lenient with regard to a captive woman, who makes herself appear repulsive before her captor</b> so that he will not rape her, and it is therefore believable that she was not violated, <b>shall we be lenient with regard to</b> the serious prohibition of <b>a married woman?</b>
+
+### Part 5
+The Gemara reports: Descendants <b>of the family</b> of the woman who had been betrothed with a blue marble stone <b>remained in Sura,</b> as after Rav Ḥisda ruled that that woman’s first betrothal was invalid, she married another man and had children. <b>But the Sages avoided</b> the family and refused to marry into it due to the concern that it was founded on a possibly adulterous relationship, which would render the descendants of the family <i>mamzerim</i>. The Gemara comments: <b>And it was not because they maintained,</b> in accordance <b>with</b> the opinion of <b>Shmuel,</b> that there is a concern that any item might be worth one <i>peruta</i> somewhere else. <b>Rather,</b> it was <b>because they held</b> in accordance <b>with</b> the opinion of <b>Abaye and Rava,</b> who said: Since there are witnesses in a different place, one must take them into account.
+
+### Part 6
+§ The Gemara relates: There was <b>a certain man who betrothed</b> a woman <b>with a myrtle branch in the marketplace. Rav Aḥa bar Huna sent</b> this dilemma <b>before Rav Yosef: In a case like this, what</b> is the <i>halakha</i>? Rav Yosef <b>sent</b> a response <b>to him: Flog him, in accordance with</b> the opinion of <b>Rav, and require</b> her to receive <b>a bill of divorce, in accordance with</b> the opinion of <b>Shmuel,</b> in case the myrtle branch is worth one <i>peruta</i> somewhere else.
+
+### Part 7
+The Gemara explains <b>that Rav</b> would <b>flog</b> a man <b>for betrothing</b> a woman <b>in the marketplace,</b> because this is disrespectful and crude, <b>and for betrothing</b> a woman <b>through sexual intercourse,</b> as it is unsavory to invite witnesses to observe a man and woman enter a room to engage in intercourse. <b>And</b> he would also flog a man <b>for betrothing</b> a woman <b>without an arrangement [<i>shiddukhei</i>],</b> i.e., if he did not discuss betrothal with the woman before betrothing her. Each of these acts is considered indecent behavior.
+
+### Part 8
+<b>And</b> likewise, Rav would flog a man <b>for nullifying a bill of divorce</b> he has already sent to his wife, <b>and for issuing a declaration</b> preemptively invalidating <b>a bill of divorce.</b> The latter case is referring to one who announces before giving a bill of divorce that he is divorcing his wife against his will, thereby rendering the document ineffective. This behavior might lead to a grave sin if the wife marries another man under the mistaken impression that she is divorced. <b>And</b> similarly, Rav would flog anyone <b>for tormenting a messenger of the Sages,</b> as this indicates a lack of regard for the Sages. <b>And</b> Rav would flog <b>one who had an excommunication take effect on him for thirty days</b> and yet does not repent or appeal to the Sages to annul his censure.
+
+### Part 9
+<b>And</b> Rav would flog <b>a son-in-law who lives in his father-in-law’s house,</b> as there is a concern that he might sin with his mother-in-law. The Gemara comments: This indicates that with regard to one <b>who lives</b> in his father-in-law’s house permanently, <b>yes,</b> he is flogged, whereas with regard to one who only <b>passes by</b> his father-in-law’s house, <b>no,</b> he is not flogged. <b>But</b> there was <b>a certain son-in-law who passed by the entrance of his father-in-law’s house and Rav Sheshet flogged him</b> due to licentiousness. The Gemara explains: In <b>that</b> case, <b>there were suspicions [<i>dayma</i>] about him and his mother-in-law,</b> i.e., about rumors of intimacy between them. In walking by the house he contributed to these rumors, which is why he was flogged.
+
+### Part 10
+The Sages <b>of Neharde’a say: Rav would not flog</b> a violator <b>in all of</b> the cases listed, <b>but</b> he would in fact flog a man <b>for betrothing</b> a woman <b>through sexual intercourse without</b> a prior <b>arrangement. And there are</b> those <b>who say: Even if</b> there was <b>an arrangement beforehand,</b> he would <b>also</b> flog a man for betrothing a woman with intercourse, <b>due to licentiousness,</b> as it is indecent to have witnesses observe a man and woman enter a room to engage in intercourse.
+
+### Part 11
+§ The Gemara relates: There was <b>a certain man who betrothed</b> a woman <b>with a mat of myrtle branches.</b> People who were present <b>said to him: But it is not worth one <i>peruta</i>. He said to them:</b> If so, <b>let her be betrothed with</b> the <b>four dinars that are</b> wrapped <b>in</b> the mat. The woman <b>took</b> the mat <b>and was silent. Rava said: This is silence after</b> the <b>money is given, and any silence after</b> the <b>money is given is nothing.</b> Since it was assumed at the time that he gave her an item worth less than one <i>peruta</i>, there is no proof that she acted in accordance with his subsequent statement. It is possible that she ignored him and did not intend to become betrothed with the four dinars.
+
+### Part 12
+<b>Rava said: From where do I state</b> this opinion? <b>As it is taught</b> in a <i>baraita</i> that in a case where a man <b>said to</b> a woman: <b>Take this <i>sela</i> as a deposit, and he</b> subsequently <b>went back and said to her: Be betrothed to me with it,</b> if he said this <b>at the time</b> the <b>money</b> was <b>given, she is betrothed.</b> In a case where he said this <b>after</b> the <b>money</b> was <b>given,</b> then if <b>she wanted</b> to be betrothed in this manner, <b>she is betrothed.</b> If <b>she did not want</b> it, <b>she is not betrothed.</b>
+
+### Part 13
+The Gemara inquires: <b>What</b> is the meaning of: <b>She wanted, and what</b> is the meaning of: <b>She did not want? If we say</b> that: <b>She wanted,</b> means <b>that she said yes,</b> she wishes to be betrothed, and: <b>She did not want,</b> means that <b>she</b> explicitly <b>said no,</b> one can learn <b>by inference</b> that in <b>the first clause</b> of the <i>baraita</i>, when he spoke as he gave her the money and no difference is suggested between her wanting or not wanting,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

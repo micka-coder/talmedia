@@ -1,0 +1,24 @@
+
+### Part 1
+<b>since they are causing harm to the land,</b> the seller does <b>leave</b> the land that is surrounding the trees for himself, <b>as if</b> he did <b>not leave</b> it, <b>let</b> the buyer <b>say to him: Uproot your trees and go.</b>
+
+### Part 2
+The Gemara discusses the reverse case: If one <b>sold</b> the <b>trees and left</b> the ownership of the <b>land for himself,</b> the <i>halakha</i> depends on <b>the</b> outcome of the <b>dispute of Rabbi Akiva and the Rabbis. According to Rabbi Akiva, who says: One who sells, sells generously,</b> the buyer <b>has</b> ownership of the land surrounding the trees, as the presumption is that the seller included it in the sale. <b>According to the Rabbis,</b> who say: One who sells, sells sparingly, the buyer <b>does not have</b> ownership of the land surrounding the trees, as the presumption is that the seller did not include it in the sale.
+
+### Part 3
+The Gemara stated previously that <b>according to</b> the opinion of <b>Rabbi Akiva,</b> the buyer <b>has</b> ownership of the land surrounding the trees. The Gemara clarifies this opinion: <b>And even according to Rav Zevid, who said</b> (37a) that in a case where one took possession of the land and another took possession of the trees, the one who took possession of the trees <b>has no</b> share in the land, <b>that matter</b> applies only <b>concerning</b> the case of <b>two buyers. As</b> in that case, the one who acquired the land can <b>say to</b> the other: <b>Just as</b> it is so <b>that I have no</b> share <b>in</b> the <b>trees, you also have no</b> share <b>in the land; but here,</b> where one sold the trees and left the land for himself, <b>one who sells, sells generously.</b> Therefore, it is reasonable to assume that the sale included the land surrounding the trees.
+
+### Part 4
+The Gemara stated earlier that <b>according to</b> the opinion of <b>the Rabbis,</b> the buyer does <b>not have</b> ownership of the land surrounding the trees. The Gemara clarifies this opinion: <b>And even according to Rav Pappa, who says</b> above that in a case where one took possession of the land and another took possession of the trees that the one who took possession of the trees <b>has</b> ownership of half of the land as well, <b>that matter</b> applies only <b>concerning</b> the case of <b>two buyers. As</b> in that case, the one who acquired the trees can <b>say to</b> the other: <b>Just as</b> it is so <b>that</b> the seller <b>sold to you generously,</b> as you have both the land and the right to consume its produce, he <b>also sold to me generously,</b> including the land surrounding the trees; <b>but here,</b> where one sold the trees and left the land for himself, <b>one who sells, sells sparingly,</b> retaining for himself whatever he did not explicitly include in the sale.
+
+### Part 5
+§ The Sages <b>of Neharde’a say:</b> If one <b>consumed</b> the produce of <b>an overcrowded</b> orchard, <b>he</b> does <b>not</b> thereby <b>have presumptive ownership</b> of the orchard. <b>Rava objects to this: If that is so, how</b> does one ever <b>acquire this alfalfa field,</b> which is planted without spacing? <b>Rather, Rava said:</b> If one <b>sold an overcrowded</b> orchard, the buyer does <b>not have</b> ownership of the <b>land</b> surrounding the trees. Generally, if one purchases three or more trees, he acquires the surrounding land, as the trees are considered an orchard. If the trees are overcrowded, they will soon have to be uprooted, and that is why the buyer does not acquire the land surrounding the trees.
+
+### Part 6
+<b>Rabbi Zeira said:</b> This is <b>like</b> a dispute between <b><i>tanna’im</i></b> (<i>Kilayim</i> 5:2): With regard to <b>a vineyard that is planted on</b> an area where there is <b>less than four cubits</b> of open space between the vines, <b>Rabbi Shimon says:</b> It is <b>not</b> considered to be <b>a vineyard</b> with regard to the prohibition of diverse kinds and other <i>halakhot</i>, as it is overcrowded. <b>And the Rabbis say: This is</b> considered to be <b>a vineyard, and</b> the reason for this is that <b>the middle</b> vines are <b>viewed as if</b> they <b>are not</b> there, and the outer vines meet the requirements for a vineyard. It follows that according to the opinion of the Rabbis, if one sold an overcrowded orchard, the middle trees would be viewed as if they were not there. Therefore, it would be considered an orchard and the buyer would acquire the land surrounding the trees.
+
+### Part 7
+The Sages <b>of Neharde’a say: This one who sells a date tree to another,</b> the buyer <b>acquires</b> the land <b>from its bottom until the depths.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>mais</b> dans le cas de <b>ces deux</b> mitzvot de dechargement et de chargement, <b>lorsque son proprietaire est avec lui,</b> je pourrais <b>dire non,</b> il n'y a pas besoin de l'assister. Par consequent, il etait <b>necessaire</b> pour la Torah d'ecrire les deux.
+
+### Partie 2
+§ La Gemara a cite d'autres derivations a partir de formes verbales composees. "Or, par inimitie, il l'a frappe de sa main, et il est mort ; <b>celui qui l'a frappe sera mis a mort [<i>mot yumat</i>]</b> (Nombres 35:21). <b>J'ai</b> derive <b>seulement</b> que le meurtrier est execute <b>avec</b> la forme de <b>mort ecrite a son egard,</b> c'est-a-dire la decapitation. <b>D'ou vient</b> que si vous ne pouvez pas l'executer avec</b> la forme de <b>mort ecrite a son egard, il vous est permis de l'executer avec n'importe quelle mort</b> avec laquelle vous etes en mesure de l'executer ? Le verset dit : "<i>Mot yumat</i>,"</b> pour enseigner que vous devez l'executer <b>dans tous les cas.</b>
+
+### Partie 3
+En ce qui concerne une ville idolatre, il est ecrit : <b>""Tu frapperas [<i>hakeh takeh</i>]</b> les habitants de cette ville par l'epee, la detruisant entierement" (Deuteronome 13:16). <b>J'ai</b> derive <b>seulement</b> que les habitants de la ville idolatre sont executes <b>avec</b> la forme de <b>mort ecrite a leur egard,</b> c'est-a-dire la decapitation. <b>D'ou vient</b> que si vous n'etes pas en mesure de les executer avec</b> la forme de <b>mort ecrite a leur egard, il vous est permis de les executer avec n'importe quelle mort</b> avec laquelle vous etes en mesure de les executer ? Le verset dit : "<i>Hakeh takeh</i>,"</b> pour enseigner que vous devez l'executer <b>dans tous les cas.</b>
+
+### Partie 4
+En ce qui concerne un objet dont un pauvre a besoin, par exemple une couverture, qu'un preteur a pris en garantie en lui pretant de l'argent, il est ecrit : <b>Vous lui restituerez [<i>hashev tashiv</i>]</b> le gage au coucher du soleil, afin qu'il dorme dans son vetement et qu'il vous benisse ; ce sera pour vous une justice devant le Seigneur votre Dieu" (Deuteronome 24:13). <b>J'ai</b> derive <b>seulement</b> l'obligation de rendre son vetement chaque nuit dans un cas ou le preteur <b>a pris des garanties avec la sanction du tribunal. D'ou</b> je deduis l'obligation de rendre son vetement chaque nuit meme dans un cas ou le preteur <b>a pris des garanties sans la sanction du tribunal ? Le verset dit : "<i>Hashev tashiv</i>,"</b> pour enseigner qu'il doit le rendre <b>dans tous les cas.</b>
+
+### Partie 5
+La Gemara apporte une autre derivation d'un verbe compose ecrit a propos de la restitution d'un collateral : "Si tu <b>prends en gage [<i>havol tahbol</i>]</b> le vetement de ton prochain, tu le lui rendras jusqu'au coucher du soleil" (Exode 22:25). <b>J'ai</b> derive <b>seulement</b> l'obligation de rendre son vetement avant le coucher du soleil dans un cas ou le preteur <b>a pris des garanties avec la sanction du tribunal. D'ou</b> je deduis l'obligation de rendre son vetement chaque nuit meme dans un cas ou le preteur <b>a pris des garanties sans la sanction du tribunal ? Le verset dit : "<i>Havol tahbol</i>,"</b> pour enseigner qu'il doit le rendre <b>dans tous les cas.</b>
+
+### Partie 6
+La Guemara demande : <b>Et</b> en ce qui concerne <b>ces deux versets, pourquoi ai-je</b> besoin des deux pour enseigner la meme <i>halakha</i>, a savoir qu'on doit rendre au debiteur tout vetement dont il a besoin ? La Guemara repond : <b>L'un</b> fait reference <b>a un vetement</b> porte pendant le <b>jour, et l'autre</b> fait reference <b>a un vetement</b> porte pendant la <b>nuit</b> (voir 114b).
+
+### Partie 7
+En ce qui concerne la mitzva de faire la charite et d'accorder des prets, il est ecrit : <b>Car les pauvres ne cesseront jamais de quitter le pays ; c'est pourquoi je vous ordonne de dire : <b>Tu ouvriras [<i>patoah tiftah</i>]</b> ta main a ton frere pauvre et necessiteux dans ton pays"¯ (Deuteronome 15:11). <b>J'ai</b> deduit <b>seulement</b> l'obligation de faire la charite <b>aux pauvres</b> residents <b>de ta ville. D'ou</b> decoule l'obligation de faire la charite <b>aux pauvres</b> residents <b>d'une autre ville</b> ? <b>Le verset dit : "<i>Patoah tiftah</i>,"</b> pour enseigner que vous devez faire la charite aux pauvres <b>dans tous les cas.</b>
+
+### Partie 8
+En ce qui concerne la mitsva de faire la charite, il est ecrit : "Attention"¦et ton œil est avare contre ton frere necessiteux"¦<b>Tu lui donneras [<i>naton titten</i>]</b> et ton cœur ne sera pas afflige quand tu lui donneras" (Deuteronome 15:9""10). <b>J'ai</b> deduit <b>seulement</b> l'obligation de faire <b>un gros cadeau. D'ou</b> decoule l'obligation de donner meme <b>un petit cadeau</b> ? <b>Le verset dit : "<i>Naton titten</i>,"</b> pour enseigner qu'il faut faire des cadeaux <b>dans tous les cas,</b> qu'il s'agisse d'un grand cadeau ou d'un petit.
+
+### Partie 9
+En ce qui concerne la liberation d'un esclave hebreu, il est ecrit : <b>Vous lui fournirez [<i>haâneik taânik</i>]</b> liberalement de votre troupeau, de votre aire de battage et de votre pressoir ; de ce que le Seigneur votre Dieu vous a beni, vous lui donnerez" (Deuteronome 15:14). Sur la base de la conclusion du verset, <b>J'ai</b> deduit <b>seulement</b> que <b>lorsque la maison est benie grace a lui, on fournit</b> l'esclave en cadeaux. <b>D'ou</b> ai-je tire l'obligation de lui fournir des cadeaux meme lorsque <b>la maison n'est pas benie grace a lui ? Le verset dit : "<i>Haâneik taânik</i>,"</b> pour enseigner qu'on doit lui fournir des cadeaux <b>dans tous les cas.</b>
+
+### Partie 10
+La Guemara demande : <b>Et selon Rabbi Elazar ben Azarya, qui dit :</b> Si <b>la maison est benie grace a lui, on le meuble</b> de cadeaux, et si <b>la maison n'est pas benie grace a lui,</b> on n'a <b>pas besoin de le meubler</b> de cadeaux, <b>pourquoi ai-je</b> besoin d'un verbe compose, "<i>haâneik <b>taânik</b></i><b>"?</b> La Guemara repond : <b>La Torah parle dans le langage des gens.</b> Le verbe compose est un style conversationnel courant, et la Torah emploie le meme style. Rabbi Elazar ben Azarya soutient qu'il n'y a rien d'extraordinaire a ce sujet et que, par consequent, on ne peut rien en deduire.
+
+### Partie 11
+En ce qui concerne la mitsva de preter de l'argent aux pauvres, il est ecrit : <b>Mais tu lui ouvriras ta main, et <b>tu preteras [<i>haâvet taâvitennu</i>]</b> suffisamment pour son besoin qui lui fait defaut (Deuteronome 15:8). <b>J'ai</b> derive <b>seulement</b> que dans un cas <b>ou l'on n'a pas</b> de ressources <b>et ne veut pas etre soutenu</b> par la charite, <b>Le Misericordieux declare : Subvenez</b> a ses besoins au moyen d'un pret.</b> Dans le cas ou <b>il a</b> des ressources <b>et qu'il ne veut pas subvenir</b> a ses besoins avec ses ressources, <b>d'ou</b> decoule l'obligation de lui preter de l'argent ? <b>Le verset dit : "<i>Taâvitennu</i>,"</b> pour enseigner que vous devez lui accorder un pret <b>dans tous les cas.</b>
+
+### Partie 12
+La Guemara demande : <b>Et selon Rabbi Shimon, qui dit</b> que dans un cas ou <b>il a</b> des ressources <b>et ne veut pas subvenir</b> a ses besoins avec ses ressources <b>on n'est pas oblige de s'occuper de ses</b> besoins, <b>pourquoi ai-je</b> besoin d'un verbe double : "<i>Haâvet <b>taâvitennu</b></i><b>"?</b> La Gemara repond : <b>La Torah parle dans la langue des gens</b> et rien ne peut en etre derive.
+
+### Partie 13
+§ La mishna enseigne : Si au cours de l'entretien et de la restitution de l'objet perdu, le trouveur <b>a ete desœuvre d'un travail qui lui aurait rapporte <b>une <i>sela</i>, il ne doit pas dire a</b> son proprietaire : <b>Donnez-moi une <i>sela</i></b> pour me dedommager de mon manque a gagner. <b>Au contraire,</b> le proprietaire lui <b>donne son salaire comme</b> s'il etait <b>un ouvrier.</b> La Gemara cite que <b>nous avons appris</b> dans une <i>baraita</i> (<i>Tosefta</i> 4:11) : Le proprietaire <b>lui donne son salaire comme</b> s'il etait <b>un ouvrier oisif.</b>
+
+### Partie 14
+La Gemara demande : <b>Quoi</b> est la signification de : <b>Comme</b> s'il etait <b>un ouvrier oisif ?</b> En fait, il n'est pas oisif, mais engage dans le retour d'un objet perdu. <b>Abaye a dit :</b> Cela signifie qu'il est paye <b>comme un ouvrier</b> qui est <b>desœuvre de ce</b> <b>travail</b> typique de son <b>dont il est</b> tenu <b>desœuvre.</b> En d'autres termes, il doit recevoir la somme d'argent qu'une personne serait prete a accepter pour s'abstenir de son occupation actuelle et s'engager dans la restitution d'un objet perdu. Ce calcul tient compte a la fois du degre de difficulte de son emploi stable et du montant de sa remuneration.
+
+### Partie 15
+§ La mishna enseigne : <b>Si trois hommes</b> peuvent se reunir en tant que <b>tribunal,</b> il <b>peut stipuler devant</b> le tribunal qu'il s'engagera a restituer l'objet a condition de recevoir une compensation complete pour la perte de revenu. La Gemara relate : <b>Issur et Rav Safra ont forme une entreprise commune l'un avec l'autre. Rav Safra est alle dissoudre</b> leur partenariat <b>a l'insu d'Issur, en presence de deux</b> temoins. Rav Safra <b>se presenta devant Rabba bar Rav Huna</b> afin de ratifier la dissolution du partenariat. Rabba bar Rav Huna <b>lui dit : Va</b> et <b>amene-moi</b> le tribunal des <b>trois devant lequel tu as dissous</b> ton partenariat. <b>Alternativement,</b> vous pouvez apporter...
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

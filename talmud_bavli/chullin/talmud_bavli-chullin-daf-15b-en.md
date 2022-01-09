@@ -1,0 +1,51 @@
+
+### Part 1
+it is in a case <b>where one had</b> a critically <b>ill</b> person in his household <b>while it was still day,</b> before Shabbat, as it is permitted to slaughter the animal for such a person even on Shabbat. Therefore, the unslaughtered animal was not set aside from use.
+
+### Part 2
+The Gemara asks: <b>If so, what is the reason that Rabbi Yehuda prohibited</b> consumption of the meat on Shabbat? The Gemara answers: He issued this ruling in a case <b>where one had</b> a critically <b>ill</b> person in his household before Shabbat <b>and</b> that person <b>recovered.</b> In that case, although the unslaughtered animal was not set aside from use when Shabbat began, it is prohibited to slaughter it on Shabbat. According to Rabbi Yehuda, if he slaughtered it unwittingly, its consumption is prohibited on Shabbat.
+
+### Part 3
+<b>And</b> that which Rav silenced the <i>tanna</i> for not stating that an unslaughtered animal is set aside from use, even when the prohibited labor of slaughter was performed unwittingly, is <b>in accordance with that which Rav Aḥa bar Adda says</b> that <b>Rav says, and some say</b> it is that which <b>Rabbi Yitzḥak bar Adda says</b> that <b>Rav says:</b> In the case of <b>one who slaughters</b> an animal <b>to</b> feed <b>an ill</b> person <b>on Shabbat,</b> it is <b>prohibited for a healthy</b> person to partake of the slaughtered animal on Shabbat. In a case of <b>one who cooks</b> food <b>to</b> feed <b>an ill</b> person <b>on Shabbat,</b> it is <b>permitted for a healthy</b> person to partake of that food.
+
+### Part 4
+<b>What is the reason</b> for this distinction? <b>This</b> food <b>was fit to be chewed</b> before it was cooked, and therefore it was not set aside from use when Shabbat began, <b>and</b> the meat of <b>that</b> animal <b>was not fit to be chewed</b> before the animal was slaughtered, and therefore it was set aside from use when Shabbat began.
+
+### Part 5
+<b>Rav Pappa says:</b> There are <b>times when one slaughters</b> for an ill person on Shabbat and it is <b>permitted</b> for a healthy person to eat the meat on Shabbat, such as <b>where he had</b> a critically <b>ill</b> person in his household before Shabbat and the animal was designated for slaughter <b>while it was still day,</b> before Shabbat; in that case, it was not set aside from use. And there are times when one <b>cooks</b> on Shabbat for an ill person and it is <b>prohibited</b> for a healthy person to eat the food on Shabbat, such as <b>where one cut a gourd</b> that was attached to the ground <b>for</b> the ill person on Shabbat. Because it is prohibited to detach the gourd on Shabbat, it is set aside from use and forbidden.
+
+### Part 6
+<b>Rav Dimi of Neharde’a says</b> that <b>the <i>halakha</i></b> is: In the case of <b>one who slaughters for an ill</b> person <b>on Shabbat,</b> it is <b>permitted for a healthy</b> person <b>to</b> eat the <b>raw meat [<i>be’umtza</i>]. What is the reason</b> that it is permitted? <b>Since it is impossible for an olive-bulk of meat</b> to be permitted <b>without slaughter</b> of the entire animal, <b>when he slaughters</b> the animal, <b>he slaughters</b> it <b>with the ill</b> person <b>in mind.</b> Since slaughter of the animal was permitted, all its meat is permitted even for a healthy person. In the case of <b>one who cooks for an ill</b> person <b>on Shabbat,</b> it is <b>prohibited for a healthy</b> person to eat the food on Shabbat. What is the reason that it is prohibited? It is due to a rabbinic <b>decree lest he increase</b> the amount of food that he is cooking <b>on behalf of</b> the healthy person.
+
+### Part 7
+<strong>MISHNA:</strong> In the case of <b>one who slaughters</b> an animal <b>with</b> the smooth side of <b>a hand sickle,</b> which has both a smooth and a serrated side, or <b>with</b> a sharpened <b>flint, or with a reed</b> that was cut lengthwise and sharpened, <b>his slaughter is valid.</b>
+
+### Part 8
+<b>All slaughter [<i>hakkol shoḥatin</i>], and one may always slaughter, and one may slaughter with any</b> item that cuts, <b>except for</b> the serrated side of <b>the harvest sickle, a saw, the teeth</b> of an animal when attached to its jawbone, <b>and a fingernail, because</b> they are serrated and <b>they</b> consequently <b>strangle</b> the animal and do not cut its windpipe and gullet as required.
+
+### Part 9
+<strong>GEMARA:</strong> The Gemara notes that the language of the mishna, which states: <b>One who slaughters</b> an animal with a hand sickle, with a flint, or with a reed, rather than: One may slaughter, indicates that <b>after the fact, yes,</b> the slaughter is valid, but one may <b>not</b> slaughter with those blades <b><i>ab initio</i>.</b> The Gemara asks: <b>Granted,</b> one may not slaughter it <b>with a hand sickle, lest he come to perform</b> the slaughter <b>with the other,</b> serrated, <b>side; but</b> as <b>a flint and a reed</b> have no serrated side, is it so that one may <b>not</b> slaughter with those <b><i>ab initio</i>? And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i>: <b>One may slaughter with any</b> item that cuts, <b>whether with a flint, or with glass</b> shards, <b>or with the stalk of a reed.</b>
+
+### Part 10
+The Gemara answers: This is <b>not difficult. There,</b> where the <i>baraita</i> permits slaughter <i>ab initio</i>, it is referring to slaughter with a flint and a reed <b>when</b> they are <b>detached. Here,</b> where the mishna says that the slaughter is valid only after the fact, it is referring to slaughter with a flint and a reed <b>when</b> they are <b>attached</b> to the ground, <b>as Rav Kahana says:</b> In the case of <b>one who slaughters with</b> a blade that is <b>attached to the ground, Rabbi</b> Yehuda HaNasi <b>deems</b> the slaughter <b>not valid and Rabbi Ḥiyya deems</b> it <b>valid.</b> The Gemara infers: Even <b>Rabbi Ḥiyya deems</b> the slaughter <b>valid only after the fact; but</b> one may <b>not</b> do so <b><i>ab initio</i>.</b>
+
+### Part 11
+<b>In accordance with which</b> opinion <b>did you interpret</b> the mishna? Is it <b>in accordance with</b> the opinion of <b>Rabbi Ḥiyya, and</b> the slaughter is valid <b>after the fact? But</b> if so, with regard to <b>that which is taught</b> in a <i>baraita</i>: <b>One may slaughter with any</b> item that cuts, <b>whether with</b> a blade that is <b>detached</b> from the ground <b>or with</b> a blade that is <b>attached</b> to the ground, <b>whether the knife is above and the neck of the animal is below or the knife is below and the neck of the animal is above;</b> in accordance with <b>whose</b> opinion is it? It is in accordance <b>neither</b> with the opinion of <b>Rabbi</b> Yehuda HaNasi <b>nor</b> with the opinion of <b>Rabbi Ḥiyya. If</b> one would claim that it is in accordance with the opinion of <b>Rabbi Ḥiyya,</b> he says: <b>After the fact, yes,</b> the slaughter is valid, but it is <b>not</b> permitted to slaughter in this manner <b><i>ab initio</i>. If</b> one would claim that it is in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi, he says: <b>Even after the fact,</b> the slaughter is <b>not</b> valid.
+
+### Part 12
+The Gemara answers: <b>Actually,</b> the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Ḥiyya, and</b> he permits slaughter with these blades <b>even <i>ab initio</i>. And</b> the fact <b>that</b> the opinions of Rabbi Yehuda HaNasi and Rabbi Ḥiyya were formulated such that they <b>disagree</b> concerning the <i>halakha</i> <b>after the fact</b> is <b>to convey to you the far-reaching nature of</b> the opinion of <b>Rabbi</b> Yehuda HaNasi that the slaughter is not valid even after the fact.
+
+### Part 13
+<b>But rather, the mishna</b> here, <b>which teaches:</b> With regard to <b>one who slaughters, after the fact, yes,</b> it is valid, but it is <b>not <i>ab initio</i>,</b> in accordance with <b>whose</b> opinion is it? It is in accordance <b>neither</b> with the opinion of <b>Rabbi</b> Yehuda HaNasi <b>nor</b> with the opinion of <b>Rabbi Ḥiyya. If</b> one would claim that it is in accordance with the opinion of <b>Rabbi Ḥiyya,</b> he says: The slaughter is permitted <b>even <i>ab initio</i>. If</b> one would claim that it is in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi, he says: <b>Even after the fact,</b> the slaughter is <b>not</b> valid.
+
+### Part 14
+The Gemara answers: <b>Actually, Rabbi Ḥiyya</b> holds that it is permitted to slaughter with these blades, <b>and even <i>ab initio</i>; and the mishna</b> here, <b>which teaches: One who slaughters, is</b> in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 15
+The Gemara objects: This is <b>difficult,</b> as there is a contradiction <b>between</b> one statement of <b>Rabbi</b> Yehuda HaNasi <b>and</b> another statement <b>of Rabbi</b> Yehuda HaNasi, as in his dispute with Rabbi Ḥiyya he holds that the slaughter is not valid. The Gemara answers: This contradiction is <b>not difficult. There,</b> in his dispute with Rabbi Ḥiyya, Rabbi Yehuda HaNasi holds that slaughter is not valid in a case <b>where</b> the blade was <b>attached from the outset; here,</b> in the mishna, Rabbi Yehuda HaNasi deems the slaughter valid after the fact in a case <b>where</b> the blade was <b>detached and ultimately he reattached it.</b>
+
+### Part 16
+The Gemara asks: <b>And from where do you say that</b> there is <b>a difference for us between</b> a blade that was <b>attached from the outset</b> and a blade that was <b>detached and ultimately he reattached it? As it is taught</b> in a <i>baraita</i>: With regard to <b>one who slaughters with a mechanism [<i>bemukhni</i>]</b> of a wheel with a knife attached to it, <b>his slaughter is valid; with</b> an item that is <b>attached to the ground, his slaughter is valid;</b> if <b>one embedded a knife in a wall and slaughtered with it, his slaughter is valid.</b> If there <b>was a flint emerging from a wall or a reed arising</b> from the ground <b>on its own and he slaughtered with it, his slaughter is not valid.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

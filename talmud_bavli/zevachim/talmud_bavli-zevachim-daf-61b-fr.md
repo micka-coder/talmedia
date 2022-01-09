@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>et,</b> lorsqu'ils quittent le camp, <b>apres que les Levites aient demonte le Tabernacle</b> mais avant qu'ils n'enlevent l'autel. Comme l'autel n'a pas encore ete deplace, il est encore permis de consommer la nourriture sacrificielle.
+
+### Partie 2
+La Guemara poursuit : Il etait necessaire de preciser cette <i>halakha</i> <b>de peur que l'on dise</b> qu'une fois que les cloisons entourant la cour ont ete demontees, la nourriture sacrificielle <b>a ete disqualifiee car</b> elle est consideree comme ayant <b>sorti</b> de la cour du Tabernacle. Par consequent, la <i>baraita</i> <b>nous enseigne</b> que la nourriture est autorisee a la consommation tant que l'autel reste en place.
+
+### Partie 3
+La Gemara conteste : <b>Et dire</b> que c'est <b>en effet</b> ainsi, que l'aliment sacrificiel doit etre disqualifie parce qu'il n'est plus dans les cloisons entourant la cour. La Gemara explique : <b>Le verset dit : "Alors la Tente de la Rencontre se deplacera"</b> (Nombres 2:17). Ce verset indique que <b>meme si elle a voyage, elle est</b> toujours consideree comme <b>la Tente de la Rencontre.</b> Par consequent, la nourriture sacrificielle n'est pas consideree comme ayant quitte sa zone designee.
+
+### Partie 4
+§ La Guemara souleve une autre discussion concernant l'autel : <b>Rav Huna dit</b> que <b>Rav dit : L'autel de Silo etait</b> faconne <b>en pierres,</b> contrairement a l'autel portable construit a l'epoque de Moise, qui etait faconne en cuivre. Ceci est <b>comme il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer ben Yaakov dit : Pourquoi</b> faut-il que <b>les versets indiquent</b> que l'autel doit etre faconne a partir de <b>pierres</b> (Exode 20:22), et indiquent a nouveau que l'autel doit etre faconne a partir de <b>pierres</b> (Deuteronome 27:5), et mentionnent encore une fois le mot <b>pierres</b> (Deuteronome 27:6), en ce qui concerne l'autel, pour un total de <b>trois fois ?</b> Ils font allusion a trois autels en pierre differents : <b>Un a Silo, et un a Nov et Gibeon, et</b> un dans la <b>Maison eternelle,</b> c'est-a-dire le Temple.
+
+### Partie 5
+<b>Rav Aha bar Ami souleve une objection</b> basee sur une <i>baraita</i> : le <b>feu qui descendait du Ciel</b> sur l'autel <b>a l'epoque de Moise</b> (voir Levitique 9 : 24) <b>ne s'est eloigne du sommet de l'autel de cuivre qu'aux jours de Salomon,</b> lorsque celui-ci a remplace l'autel de cuivre par un autel de pierre, <b>et</b> le <b>feu qui descendait</b> sur l'autel <b>aux jours de Salomon ne s'est pas eloigne jusqu'a ce que Manasse vienne le supprimer</b> en detruisant l'autel. <b>Et s'il est vrai</b> que l'autel de Silo a ete faconne en pierres, <b>il</b> ressort <b>que</b> le feu <b>s'est eloigne</b> de l'autel de cuivre <b>plus tot,</b> lorsque l'autel de pierre de Silo a remplace l'autel de cuivre de Moise, bien des annees avant le roi Salomon.
+
+### Partie 6
+La Gemara explique : Rav Huna <b>declara</b> son opinion <b>conformement</b> a la declaration de <b>Rabbi Natan, comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Natan dit : L'autel de Silo etait</b> faconne <b>en cuivre;</b> il etait <b>creux et plein de pierres.</b>
+
+### Partie 7
+<b>Rav Nahman bar Yitzhak dit</b> il y a une autre reponse : <b>Quel est le sens</b> de la declaration dans le <i>baraita</i> que le feu <b>n'est pas parti</b> jusqu'a l'epoque de Salomon ? Cela signifie qu'il ne s'est pas eteint d'une maniere qui l'a annule ; il etait encore quelque peu present a Silo sur l'autel de cuivre, qui se trouvait avec l'autel de pierre. La Gemara demande : <b>Qu'est-ce que c'est,</b> c'est-a-dire qu'est-ce que cela signifie que le feu n'est pas parti d'une maniere qui l'a annule ? La Guemara repond : <b>Les rabbins disent :</b> Le feu sur l'autel de cuivre <b>emettait des etincelles</b> vers l'autel de pierre lorsque les pretres sacrifiaient des offrandes sur l'autel de pierre. <b>Rav Pappa dit :</b> Le feu <b>etait</b> comme <b>un invite ; parfois</b> il etait <b>ici,</b> sur l'autel de cuivre, <b>et parfois</b> il etait <b>la,</b> sur l'autel de pierre.
+
+### Partie 8
+§ La Gemara continue de parler de l'autel : <b>Nous avons appris</b> dans une mishna <b>la</b> (<i>Middot</i> 35b) : L'autel du premier Temple mesurait vingt-huit coudees sur vingt-huit. <b>Lorsque les membres de l'exil sont montes</b> a Jerusalem au debut de la periode du Second Temple, <b>ils y ont ajoute quatre coudees sur les cotes sud et quatre coudees sur les cotes ouest</b> de l'autel, <b>comme</b> la forme de la lettre grecque <b>gamma,</b> c'est-a-dire que les ajouts ont fait un angle droit. En consequence, l'autel du Second Temple mesurait trente-deux par trente-deux coudees. La Gemara demande : <b>Quelle etait la raison</b> de cette expansion ? <b>Rav Yosef repond : Parce que</b> la taille de l'autel du Premier Temple <b>n'etait pas suffisante.</b>
+
+### Partie 9
+<b>Abaye lui a dit : Or,</b> si a l'epoque du <b>Premier Temple</b>, <b>a propos duquel il est ecrit : "Judah et IsraA "l étaient nombreux comme le sable qui est au bord de la mer"</b> (IA Rois 4:20), l'autel <b>était suffisant,</b> comment se peut-il qu'A l'époque du Second Temple</b>, <b>sur laquelle il est écrit : "L'ensemble de la congrégation était de quarante</b> et deux <b>mille</b> trois cent soixante" (Esdras 2:64), l'autel <b>n'était pas suffisant ?</b> Rav Yosef <b>dit A</b> Abaye : <b>La,</b> dans le Premier Temple, un <b>feu celeste</b> les <b>assistait</b> et consumait les offrandes. <b>Ici,</b> dans le Second Temple, il n'y avait <b>pas de feu celeste</b> qui les <b>assisterait.</b> Par consequent, ils avaient besoin d'une plus grande surface pour bruler les offrandes.
+
+### Partie 10
+<b>Lorsque Ravin vint</b> d'Eretz Yisrael en Babylonie, il rapporta ce que <b>Rabbi Shimon ben Pazi dit au nom de Bar Kappara</b> concernant l'agrandissement de l'autel : <b>Ils ont agrandi</b> l'autel pour qu'il s'etende au-dessus des <b>cavites</b> souterraines dans lesquelles s'ecoulaient les libations. <b>Initialement,</b> a l'epoque du Premier Temple, <b>ils ont tenu</b> que lorsque le verset dit : <b>"Un autel de terre</b> tu me feras" (Exode 20:21), cela signifie <b>qu'il</b> doit etre entierement <b>rempli de terre.</b>
+
+### Partie 11
+<b>Mais finalement,</b> a l'epoque du Second Temple, <b>ils ont maintenu</b> que la <b>buvee de l'autel est comme</b> sa <b>mangeaison,</b> c'est-a-dire que de meme que les offrandes sont brulees sur l'autel, les libations doivent etre versees sur l'autel lui-meme et non sur son cote. Par consequent, ils ont elargi l'autel pour couvrir les cavites souterraines, et ont cree des trous dans l'autel afin que les libations puissent etre versees sur le dessus de l'autel et s'ecouler dans les cavites souterraines. <b>Et</b> d'apres cela, <b>quelle est la signification de la phrase <b>"un autel de terre"</b> Elle enseigne <b>que</b> l'autel doit <b>etre attache a la terre,</b> de sorte <b>qu'on ne peut pas le construire au sommet des arches</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Part 1
+<b>If you wish, say</b> instead that the mishna is referring to a case <b>where</b> the borrower <b>said to</b> the lender: If I do not repay you within three years, you will <b>acquire</b> the field <b>from now,</b> and they performed a formal act of acquisition. Since an act of acquisition was performed at the time, this is a proper sale and not an <i>asmakhta</i>.
+
+### Part 2
+<b>Mar Yanuka and Mar Kashisha,</b> the younger and elder <b>sons of Rav Ḥisda, said to Rav Ashi: This</b> is what the Sages <b>of Neharde’a say in the name of Rav Naḥman:</b> With regard to <b>this <i>asmakhta</i></b> described in the mishna, it <b>effects acquisition at its</b> proper <b>time,</b> but it <b>does not effect acquisition not at its</b> proper <b>time.</b>
+
+### Part 3
+Rav Ashi understood them to be saying that the lender acquires the field only when the loan is due, and he <b>said to them:</b> This statement seems to teach no novel ruling, as the same is true of <b>every matter:</b> It <b>effects acquisition at its</b> proper <b>time,</b> but it <b>does not effect acquisition not at its</b> proper <b>time.</b>
+
+### Part 4
+Rav Ashi suggests: <b>Perhaps you</b> meant to <b>say this:</b> If the borrower <b>encountered</b> the lender <b>within its time,</b> i.e., before the payment of the loan was due, <b>and told him</b> to <b>acquire</b> the field, the lender <b>acquires</b> the field, as it is assumed that the borrower was sincere. But if the borrower encountered the lender <b>after its time,</b> i.e., when the payment of the loan was due, <b>and told</b> the lender to <b>acquire</b> the field, he does <b>not acquire</b> it. <b>What is the reason</b> for this? The borrower <b>says</b> this <b>to</b> the lender <b>out of shame</b> with regard to his failure to pay the debt, but he did not really intend for him to acquire the field.
+
+### Part 5
+The Gemara comments: <b>But</b> this is <b>not so, as</b> the <i>halakha</i> is that the lender <b>does not acquire</b> the field <b>even</b> if the borrower stated this <b>within its time. And</b> as for the fact <b>that</b> the borrower <b>told him</b> to <b>acquire</b> it, he told him this only because <b>he thinks:</b> This will ensure that <b>when the time</b> for payment <b>arrives, he will not come and disturb me.</b> In other words, he is trying to buy time until he can repay the loan, but he was not sincere in his statement that the lender may acquire the field.
+
+### Part 6
+<b>Rav Pappa says:</b> With regard to <b>this <i>asmakhta</i>, sometimes</b> it <b>effects acquisition and sometimes</b> it <b>does not effect acquisition.</b> How so? If the lender <b>encountered</b> the borrower <b>while</b> the borrower <b>was drinking beer,</b> it <b>effects acquisition,</b> as, if the borrower agreed to transfer ownership of his field when he did not appear to be in financial stress, such as when he was enjoying a drink, he assumedly did so with full acceptance of the consequences, and therefore the transaction is valid. By contrast, if the lender encountered the borrower when he <b>was searching for money</b> with which to repay the loan, his agreement does <b>not effect acquisition,</b> as it is clear the borrower made the statement under duress.
+
+### Part 7
+<b>Rav Aḥa of Difti said to Ravina:</b> In the case where the lender encountered the borrower while he was drinking beer, <b>perhaps he was drinking to neutralize his fear,</b> and he really was under financial pressure. <b>Or,</b> perhaps <b>someone else promised him money,</b> and therefore he remains in a precarious position even though he can repay the debt, which would again mean that his promise is merely an <i>asmakhta</i>. <b>Rather, Ravina said</b> that there is a different distinction: <b>If</b> the borrower <b>is particular about</b> the <b>money,</b> i.e., if he is unwilling to sell his property at less than its market value, the lender <b>has certainly acquired</b> the field, as the borrower is clearly not in such a precarious financial position, and he is therefore assumed to have willingly stated his agreement to give the field to the lender.
+
+### Part 8
+<b>Rav Aḥa of Difti said to Ravina:</b> Even in that case, <b>perhaps</b> the borrower <b>thinks</b> that he ought to present himself as particular about the price of his property <b>in order that the</b> price <b>of his</b> other <b>lands not be lowered.</b> If people know that he is in need of money they will pressure to him to lower the price, and therefore he acts as though he is particular about the price, but in reality he did not wish to sell the property at all. <b>Rather, Rav Pappa said</b> that there is a different distinction: <b>If he is particular about</b> any other <b>land</b> he owns and does not want to sell it even at its market rate, he is clearly not suffering from financial problems, and in that case the creditor <b>certainly acquires</b> the field.
+
+### Part 9
+<b>And Rav Pappa said: Even though the Sages said</b> that <b>an <i>asmakhta</i> does not effect acquisition,</b> and therefore even if he stipulated that the lender can collect the debt by seizing land, the lender does not acquire that land, nevertheless, the land <b>is</b> considered to be set aside as <b>designated repayment [<i>apoteiki</i>] for</b> the lender <b>to collect</b> repayment <b>from it</b> up to the amount of money owed.
+
+### Part 10
+<b>Rav Huna, son of Rav Natan, said to Rav Pappa: Did</b> the borrower <b>say to</b> the lender: <b>Acquire</b> it <b>for</b> the sake of debt <b>collection?</b> Since the borrower did not specify that transferring ownership of the field was in place of the payment of the debt, his statement is considered an <i>asmakhta</i>, and the field is not set aside as designated repayment. <b>Mar Zutra, son of Rav Mari, said to Ravina: And if he</b> had <b>said to him: Acquire</b> it <b>for</b> the sake of debt <b>collection,</b> would the lender then <b>acquire</b> it? <b>Ultimately, it is an <i>asmakhta</i>,</b> and the <i>halakha</i> is that <b>an <i>asmakhta</i> does not effect acquisition.</b>
+
+### Part 11
+The Gemara poses a question: <b>But</b> in that case, <b>what is</b> the <b>designated repayment spoken</b> of by <b>Rav Pappa?</b> According to Mar Zutra’s analysis, it makes no difference whether or not he said it was set aside as designated repayment of the loan. The Gemara explains: Rav Pappa is referring to a case, for example, <b>where</b> the borrower <b>said to</b> the lender: Not only will I give you the land if I fail to repay the loan, but even if I do pay <b>you will receive payment only from this</b> land alone, as I will pay off my debt to you by giving you land from this field. In that case the <i>asmakhta</i> is negated, while the promise of repayment from the land remains intact.
+
+### Part 12
+§ The Gemara relates: There was <b>a certain man who sold land to another with</b> a property <b>guarantee,</b> meaning that in the event that land is seized by the seller’s creditors, the seller will reimburse the buyer his purchase money. The buyer <b>said to him: If</b> your creditors <b>seize</b> the land <b>from me,</b> will <b>you</b> allow <b>me to collect</b> that which is owed to me <b>from</b> the most <b>superior quality of</b> the <b>superior-quality</b> land <b>that you have?</b> The seller <b>said to him: I will not</b> allow <b>you to collect from</b> the most <b>superior quality of</b> my <b>superior-quality</b> land, <b>as I want to keep</b> those <b>before me. But I will</b> allow <b>you to collect from other superior-quality</b> land <b>I have. Ultimately,</b> creditors <b>seized</b> the field <b>from</b> the buyer, and in the meantime <b>a flood came and flooded</b> the seller’s most <b>superior quality of</b> his <b>superior-quality</b> land.
+
+### Part 13
+As his remaining superior-quality land was now the best he had, the seller was unwilling to give them to the buyer and sought to repay him with intermediate-quality land, in accordance with the standard <i>halakha</i> concerning reimbursement to a buyer. <b>Rav Pappa thought to say:</b> Since the seller <b>said to</b> the buyer that he could collect <b>from</b> his <b>superior-quality</b> land, <b>and</b> this superior-quality land is <b>intact,</b> the seller must give it to him, in accordance with his promise.
+
+### Part 14
+<b>Rav Aḥa of Difti said to Ravina: But let</b> the seller <b>say to</b> the buyer: <b>When I said to you</b> that <b>I</b> would allow <b>you to collect</b> from my superior-quality land, that was <b>when the</b> most <b>superior quality</b> of my superior-quality land was <b>intact.</b> But <b>now</b> my <b>superior-quality</b> land <b>stands</b> for me <b>in place of the</b> most <b>superior quality of</b> the <b>superior-quality</b> land I had before, and I am not obligated to give you the very best of my property.
+
+### Part 15
+The Gemara relates: <b>Rav bar Shabba owed money to Rav Kahana.</b> Rav bar Shabba <b>said to him: If I do not repay you by such and such a date,</b> you can <b>collect</b> the debt <b>from this wine. Rav Pappa thought to say: When we said</b> that <b>an <i>asmakhta</i> does not effect acquisition, this matter</b> applies only <b>to land, which does not stand to be sold,</b> i.e., which is not typically bought and sold on the market, and therefore the promise is invalid, as he did not genuinely intend to give it to him. <b>But</b> in the case of <b>wine, since it does stand to be sold, it is</b> considered <b>like money,</b> and therefore he can claim the debt from wine, as he can claim the debt from any other item with monetary worth.
+
+### Part 16
+<b>Rav Huna, son of Rav Yehoshua, said to Rav Pappa: This</b> is what <b>we say in the name of Rabba: Any</b> statement including a condition introduced with the word: <b>If,</b> does <b>not effect acquistion.</b> Any agreement that does not involve a definitive commitment but does obligate one in the event of a particular outcome has the status of an <i>asmakhta</i> and does not effect acquisition, as the one setting the condition did not really intend to fulfill the commitment.
+
+### Part 17
+§ <b>Rav Naḥman said: Now that the Sages have said</b> that <b>an <i>asmakhta</i> does not effect acquisition,</b> in a case such as that in the mishna, when one promised another land for the repayment of a debt, if the lender in fact took it, <b>the land must be returned and</b> the value of any <b>produce</b> the creditor consumed from this land <b>must</b> also <b>be returned.</b> The Gemara poses a question: Is this <b>to say that Rav Naḥman maintains that mistaken forgiveness</b> of payment <b>is not</b> valid <b>forgiveness,</b> meaning that if one forgoes repayment of a loan of a certain amount of money in error, he can change his mind? In this case, the borrower had thought that the lender had acquired the land, and he therefore allowed him to consume the produce.
+
+### Part 18
+<b>But it was stated</b> that <i>amora’im</i> disputed this very issue: <b>If one sells the fruit of a palm tree to another</b> before the fruit ripens, <b>Rav Huna says: He can retract</b> and cancel the sale <b>until</b> the fruits <b>have come into the world,</b> as the fruit is not yet in existence. But <b>once they have come into the world,</b> even if they are still unripe, <b>he cannot retract,</b> as once the fruits that are being acquired exist, the sale has gone into effect. <b>And Rav Naḥman says: He can retract even once they have come into the world,</b> as one cannot transfer ownership of an entity that has not yet come into the world, and the actual transaction was performed before the fruits existed.
+
+### Part 19
+<b>And Rav Naḥman said: I concede that if</b> the buyer <b>seized</b> the fruit <b>and consumed</b> it, <b>we do not take</b> its value <b>from him.</b> The reason is that since the seller initially accepted the transaction, although it involved a legal error, it can be assumed that he decided to waive his rights to the fruit and allowed the other to take it. Consequently, it can be demonstrated that Rav Naḥman holds that mistaken forgiveness is forgiveness. The Gemara rejects this proof: <b>There,</b> the discussion involves <b>a sale,</b> with regard to which it can be said that the seller waived his rights to the fruit. <b>Here,</b> it is referring to <b>a loan,</b> and not requiring the lender to reimburse the borrower for the produce consumed is considered a form of interest.
+
+### Part 20
+<b>Rava said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

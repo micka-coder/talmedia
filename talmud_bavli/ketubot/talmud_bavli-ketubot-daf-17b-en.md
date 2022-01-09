@@ -1,0 +1,51 @@
+
+### Part 1
+<b>However, for one who taught</b> others, there is <b>no measure for</b> the number of people attending the funeral.
+
+### Part 2
+The mishna continues: <b>And if there are witnesses that she went out</b> of her father’s house to her wedding <b>with a <i>hinnuma</i></b> her marriage contract is two hundred dinars. The Gemara asks: <b>What is</b> a <b><i>hinnuma</i>? Surḥav bar Pappa said in the name of Ze’eiri:</b> It is <b>a canopy of myrtle</b> over the bride’s head. <b>Rabbi Yoḥanan said:</b> It is <b>a veil [<i>kerita</i>]</b> covering the bride’s face <b>under which the bride dozes [<i>menamna</i>].</b>
+
+### Part 3
+The mishna continues: <b>Rabbi Yoḥanan ben Beroka says: Even</b> testimony that there was distribution of roasted grain constitutes <b>proof</b> that she is a virgin. It was <b>taught</b> with regard to the mishna: <b>In Judea,</b> that is <b>proof;</b> however, <b>what are</b> the customs at the weddings of virgins <b>in Babylonia? Rav said: Smearing</b> fragrant <b>oil on the heads of the Sages</b> was customary. <b>Rav Pappa,</b> who was unfamiliar with that practice, <b>said to Abaye: Is the Master saying oil for shampooing</b> the hair? Calling him an orphan because he was ignorant of the custom, <b>he said to him: Orphan, didn’t your mother perform for you smearing of oil on the heads of the Sages at the time of the performance</b> of your wedding ceremony? <b>As</b> this was the case <b>when one of the Sages who arranged for his son</b> to marry into <b>the family of Rabba bar Ulla</b> attended the wedding, <b>and some say that</b> it was <b>Rabba bar Ulla</b> who <b>arranged for his son</b> to marry into <b>the family of one of the Sages; and he smeared oil on the heads of the Sages at the time of the performance</b> of the wedding ceremony.
+
+### Part 4
+The Gemara asks: <b>What is the</b> custom at the wedding of <b>a widow? Rav Yosef taught: A widow does not have roasted grain [<i>kisanei</i>]</b> distributed at her wedding.
+
+### Part 5
+The mishna continues: <b>And Rabbi Yehoshua concedes in</b> a case where <b>one says to another:</b> This field belonged to your father, and I purchased it from him, that he is deemed credible. The Gemara asks: <b>And let</b> the mishna <b>teach: Rabbi Yehoshua concedes in</b> a case where <b>one says to another: This field belonged to you, and I purchased it from you.</b>
+
+### Part 6
+The Gemara answers: Although Rabbi Yehoshua concedes that his claim is accepted even in that latter case, he addressed the case where the field originally belonged to the father <b>due to</b> the fact <b>that</b> the <i>tanna</i> <b>wanted to teach</b> in <b>the latter clause that if there are witnesses that it was</b> the father’s field, <b>and he says: I purchased it from him, he is not deemed credible.</b> That is the <i>halakha</i> only with regard to a field that belonged to the father, and not to the claimant himself. Were it referring to a field that he purchased from the claimant, <b>what are the circumstances?</b>
+
+### Part 7
+<b>If</b> it is a case <b>where</b> the one in possession of the field <b>consumed</b> its produce for the three <b>years</b> necessary to establish <b>presumptive ownership, why is his</b> claim that he purchased the field <b>not deemed credible?</b> After three years of unchallenged possession, the purchaser’s claim is sufficient to establish ownership without documentation. <b>And if he did not consume</b> its produce for the three <b>years</b> necessary to establish <b>presumptive ownership,</b> it is <b>obvious that his</b> claim <b>is not deemed credible.</b> Since the distinction between a case where witnesses are present and a case where there are no witnesses present does not apply when the field in question was the property of the claimant, the <i>tanna</i> cited a case where the field belonged to the father.
+
+### Part 8
+The Gemara asks: <b>If so,</b> the same difficulty may be raised <b>with regard to</b> a field belonging to the claimant’s <b>father as well: If</b> the one in possession of the field <b>consumed</b> its produce for the three <b>years</b> necessary to establish <b>presumptive ownership, why is his</b> claim that he purchased the field <b>not deemed credible? And if he did not consume</b> its produce for the three <b>years</b> necessary to establish <b>presumptive ownership,</b> it is <b>obvious that his</b> claim <b>is not deemed credible.</b> The latter clause is no more applicable to the father’s field than it is to the claimant’s field. Why did the <i>tanna</i> prefer to cite a case where the field belonged to the claimant’s father?
+
+### Part 9
+The Gemara answers: <b>Granted, with regard to</b> the case where the field belonged to <b>his father,</b> a circumstance can <b>be found</b> where there is uncertainty with regard to the presumptive ownership of the field, <b>where</b> the one in possession of the field <b>consumed</b> its produce for <b>two</b> of the three years necessary to establish presumptive ownership <b>during the lifetime of the father</b> and <b>one</b> year <b>during the lifetime of the son</b> after the death of his father. <b>And</b> this is <b>in accordance with</b> the opinion of <b>Rav Huna, as Rav Huna said: One cannot establish presumptive ownership of the property of a minor, even</b> after <b>he reached majority.</b> This is because the minor is unaware of the property owned by his father, the fact that he did not challenge the claim of the one in possession of the field proves nothing. Therefore, only two of the three years necessary to establish presumptive ownership have passed.
+
+### Part 10
+The Gemara asks: <b>And</b> since the mishna can be explained only in the case delineated by Rav Huna, <b>did Rav Huna come to teach us a mishna?</b> There is no need for an <i>amora</i> to teach matters that appear in a mishna, as the content of <i>mishnayot</i> is known by all. The Gemara answers: <b>If you wish, say</b> that <b>Rav Huna is stating the inference from the mishna,</b> as the circumstances are not written explicitly in the mishna. <b>And if you wish, say</b> instead <b>that he is teaching us</b> that even if during the year after the father died his son was no longer a minor, one may not establish presumptive ownership of the property of a minor, <b>even</b> after <b>he reached majority.</b> From the mishna, one could learn only a case where, during the third year the son was still a minor.
+
+### Part 11
+The Gemara asks: <b>And let</b> the <i>tanna</i> <b>teach</b> the <i>halakha</i> <b>in</b> a case where the one in possession of the field says that he purchased the field from the claimant <b>himself. And let him establish</b> the mishna in a case <b>where</b> the one in possession of the field <b>consumed</b> its produce <b>in the presence</b> of the claimant, who was the original owner of the field, for <b>two</b> of the three years necessary to establish presumptive ownership, <b>and</b> consumed its produce not <b>in his presence</b> for <b>one</b> year. <b>And</b> that scenario is in a case <b>where</b> the claimant <b>fled</b> and therefore, the fact that he did not challenge the claim of the one in possession of the field proves nothing.
+
+### Part 12
+The Gemara asks: That scenario is referring to one who <b>fled due to what</b> reason? <b>If</b> it is <b>that he fled due to</b> the fact that his <b>life</b> was in jeopardy, it is <b>obvious that</b> the one claiming presumptive ownership <b>is not deemed credible, since</b> the owner of the field <b>is unable to protest,</b> as he fears for his life. <b>And if he fled due to money</b> that he owes, and that is why he does not return to protest the possessor’s occupation of the field, <b>he ought to protest</b> from afar, <b>as we maintain that a protest</b> lodged <b>not in the presence of</b> the one using the field <b>is a</b> legitimate <b>protest.</b> He could have lodged in a court in his place of exile his protest against the illegal occupation of his field.
+
+### Part 13
+This is <b>as we learned</b> in a mishna (<i>Bava Batra</i> 38a): There are <b>three</b> independent <b>lands</b> in Eretz Yisrael with regard to establishing <b>presumptive ownership: Judea, Transjordan, and the Galilee.</b> If the original owner of the field <b>was in Judea</b> and another <b>occupied</b> his field <b>in the Galilee,</b> or if he was <b>in the Galilee</b> and another <b>occupied</b> his field <b>in Judea,</b> that does <b>not</b> establish <b>presumptive ownership, until</b> the one occupying the field <b>will be with</b> the original owner <b>in the same country.</b>
+
+### Part 14
+<b>And we discussed</b> that mishna: <b>What does</b> this <i>tanna</i> <b>hold? If he holds that a protest</b> lodged <b>not in the presence of</b> the one using the field <b>is</b> a legitimate <b>protest,</b> then <b>even in</b> the case where one is in <b>Judea and</b> one is in the <b>Galilee</b> the protest should <b>also</b> be legitimate. <b>And if he holds that a protest</b> lodged <b>not in the presence of</b> the one using the field <b>is not</b> a legitimate <b>protest,</b> then <b>even</b> in the case where one is in <b>Judea and</b> the other one is in <b>Judea</b> as well, the protest should <b>also not</b> be legitimate.
+
+### Part 15
+<b>Rabbi Abba bar Memel said: Actually</b> the <i>tanna</i> <b>holds that a protest</b> lodged <b>not in the presence of</b> the one using the field <b>is</b> a legitimate <b>protest, and</b> the Sages <b>taught this mishna with regard to a crisis period,</b> when travel is perilous and information cannot be transmitted from Judea to the Galilee. Therefore, although no protest was received from the original owner, the occupier does not establish presumptive ownership of the field, because the lack of protest can be attributed to the perilous situation.
+
+### Part 16
+The Gemara asked: <b>And</b> if it is due only to the exigent circumstances that the protest is ineffective, <b>what is different</b> about <b>Judea and</b> the <b>Galilee that</b> the <i>tanna</i> <b>cited</b> specifically these two lands? Ostensibly, even within one of the three lands, if travel and communications are restricted, the same <i>halakha</i> would apply.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

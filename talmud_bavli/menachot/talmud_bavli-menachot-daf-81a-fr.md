@@ -1,0 +1,39 @@
+
+### Partie 1
+Rabbi Yehuda HaNasi explique pourquoi : <b>Et est-ce qu'on separe</b> un animal <b>comme un reste <i>ab initio</i> ? </b>
+
+### Partie 2
+La Guemara propose une autre solution : <b>Rabbi Yitzhak bar Shmuel bar Marta etait assis devant Rav Nahman, et il s'asseyait et disait : Qu'il amene</b> un autre <b>animal avec des pains et qu'il dise : Si cet</b> animal <b>qui existe est le substitut,</b> alors que <b>ceci</b> soit <b>l'offrande de remerciement et ceux-ci ses pains. Et si cet</b> animal <b>qui subsiste est l'offrande de remerciements,</b> alors que <b>ceux-ci</b> soient <b>ses pains et ceci sera un substitut,</b> car le substitut d'une offrande de remerciements n'est pas sacrifie avec des pains, et il peut etre consomme pendant la meme duree que l'offrande de remerciements elle-meme.
+
+### Partie 3
+Rav Nahman <b>lui dit : Reponds-moi, mon Maitre :</b> La <i>halakha</i> est que celui qui separe un substitut est susceptible de recevoir <b>quarante</b> coups de fouet <b>sur ses epaules, et</b> pourtant tu dis qu'il est <b>convenable</b> de separer un substitut <i>ab initio</i> ?
+
+### Partie 4
+La Guemara relate que <b>Rav Ila est tombe malade,</b> et <b>Abaye et les Sages sont alles</b> lui rendre visite, et ils etaient assis et disaient : Si</b> on <b>accepte</b> la decision <b>de Rabbi Yohanan, qui a dit :</b> Si les pains de l'offrande de remerciement etaient a l'interieur de Jerusalem, c'est-a-dire, la zone de consommation d'une offrande de remerciement et de ses pains, meme s'ils etaient <b>hors du mur de la <b>cour du Temple</b> lorsque l'offrande de remerciement a ete abattue, ils sont <b>consacres,</b> alors <b>laissons</b> le proprietaire <b>apporter des pains et les placer hors du mur de la <b>cour du Temple</b> et laissons-le dire : Si cet</b> animal <b>qui subsiste est l'offrande de remerciement,</b> alors que <b>ceux-ci</b> soient <b>ses pains, et si</b> ce n'est <b>pas le cas, qu'ils sortent</b> et soient consommes <b>comme des pains non sacres</b>.
+
+### Partie 5
+La Guemara repond : Ceci non plus n'est pas un remede valable, <b>parce qu'il y a quatre</b> pains sur les quarante qu'il faut <b>gager. Comment doit-il accomplir</b> la mitzva de les agiter ? <b>Doit-il les agiter en dehors</b> de la cour du Temple ? Il ne le peut pas, car il est ecrit <b>agiter pour une offrande d'ondoiement <b>devant l'Eternel</b> (Levitique 7:30) <b>dans le verset, et l'ondoiement effectue en dehors de la cour du Temple n'est pas considere comme "devant l'Eternel".</b> Doit-il les agiter <b>a l'interieur</b> de la cour du Temple ? <b>Il</b> aura <b>amene de la nourriture non sacree dans la</b> <b>cour du Temple. Par consequent,</b> c'est <b>non possible.</b>
+
+### Partie 6
+<b>Rav Sheisha, fils de Rav Idi, s'oppose a cela : Si</b> on <b>accepte</b> la decision <b>de Hizkiyya, qui a dit</b> a propos d'une offrande de remerciement que l'on egorgeait accompagnee de quatre-vingts pains au lieu des quarante requis : <b>Quarante des quatre-vingts</b> pains <b>sont consacres,</b> alors que le proprietaire <b>apporte un animal et qu'il apporte avec lui quatre-vingts pains et dise : Si cet</b> animal <b>qui existe est l'offrande de remerciement,</b> alors <b>cette</b> animal supplementaire <b>doit aussi etre une offrande de remerciement et ces quatre-vingts</b> pains doivent etre <b>pour tous les deux. </b> Et <b>si cet</b> animal <b>qui existe est le substitut,</b> alors que <b>cet</b> animal supplementaire soit <b>une offrande de remerciements et que ceux-ci</b> soient <b>ses pains, et que quarante des quatre-vingts soient consacres pour lui.</b>
+
+### Partie 7
+La Guemara rejette cette idee : Ce n'est pas un remede valable, <b>parce qu'il reduit</b> la <b>consommation des quarante</b> pains supplementaires, car les pretres peuvent ne pas etre en mesure de consommer les quatre pains donnes a partir des quarante supplementaires, et le proprietaire ne peut pas les consommer car ils peuvent etre la portion du pretre.
+
+### Partie 8
+<b>Rav Ashi a dit a Rav Kahana : Si</b> on <b>accepte</b> la decision <b>de Rabbi Yohanan, qui a dit : </b> Si <b>on a separe un animal gravide</b> comme <b>offrande pour le peche et qu'il a mis bas,</b> si <b>il veut il peut faire l'expiation avec lui,</b> et si <b>il veut il peut faire l'expiation avec sa progeniture;</b> alors <b>laissons</b> le proprietaire <b>apporter un animal gravide et attendre qu'il mette bas, et qu'il apporte quatre-vingts</b> pains <b>avec lui et dise : Si cet</b> animal <b>qui existe est le substitut,</b> alors <b>celui-ci</b> et sa progeniture <b>sont des offrandes de remerciement, et ces quatre-vingts</b> pains doivent etre <b>pour tous les deux. Et si cet</b> animal <b>qui subsiste est l'offrande de remerciements,</b> alors <b>cette</b> mere doit aussi etre <b>une offrande de remerciements, et ces quatre-vingts</b> pains doivent etre <b>pour eux deux, et que cette</b> progeniture <b>soit le reste de l'offrande de remerciements.</b>
+
+### Partie 9
+Rav Kahana lui <b>dit : Qui nous dira que</b> le raisonnement de <b>Rabbi Yohanan</b> est qu'il <b>a dit</b> que la progeniture est consideree comme la propriete de celui qui a consacre la mere enceinte, de sorte que <b>s'il l'a reservee</b> pour une consecration specifique, elle est consideree comme <b>reservee</b> pour cette consecration ? <b>Peut-etre</b> Rabbi Yohanan soutient que <b>s'il l'a reservee, elle n'est pas</b> consideree comme <b>reservee, et c'est la raison pour laquelle Rabbi Yohanan</b> soutient que l'on peut accomplir l'expiation avec la progeniture d'un animal gravide separe comme offrande pour le peche, <b>comme il l'a dit : Une personne accomplit l'expiation avec la mise en valeur d'un bien consacre</b>, comme la progeniture d'un animal qui a ete consacre lorsqu'il etait enceinte.
+
+### Partie 10
+<b>Ravina arriva</b> a venir <b>a Dimhorya. Rav Dimi, fils de Rav Huna de Dimhorya, dit a Ravina : Et que</b> le proprietaire <b>apporte un animal et dise : Il m'incombe</b> d'apporter un animal pour une offrande de remerciement, et qu'il separe cet animal en accomplissement de son vœu, <b>et</b> ensuite <b>qu'il apporte un autre animal, et qu'il apporte quatre-vingts</b> pains <b>avec lui et dise : Si cet</b> animal <b>qui existe est le substitut,</b> alors <b>ces deux</b> animaux supplementaires sont des <b>offrandes de remerciement et ces quatre-vingts</b> pains doivent etre <b>pour tous les deux. Et si cet</b> animal <b>qui subsiste est l'offrande de remerciement,</b> alors <b>cette derniere</b> pour <b>laquelle j'ai dit : </b> Il m'incombe</b> d'etre aussi une offrande de remerciement, et ces quatre-vingts</b> pains sont <b>pour les deux, et que l'autre</b> animal <b>soit pour une garantie,</b> pour etre sacrifie si mon offrande de remerciement se perd, et il ne necessite pas de pains.
+
+### Partie 11
+Ravina <b>s'est adresse a lui : La Torah a dit : "Mieux vaut que tu ne fasses pas de vœu, que tu fasses un vœu et que tu ne paies pas"</b> (Ecclesiaste 5:4), <b>et tu dis : Qu'il se leve et fasse un vœu <i>ab initio</i>?</b> Faire un vœu pour apporter une offrande n'est pas encourage. Tous les remedes possibles ayant ete rejetes, l'affirmation de Rabbi Hiyya, selon laquelle il n'y a pas de remede dans le cas ou une offrande de remerciement et son substitut ont ete meles et que l'un d'eux est mort, tient.
+
+### Partie 12
+<strong>MISHNA:</strong> <b>Celui qui dit : Il</b> m'incombe <b>d'apporter <b>une offrande de remerciement, doit l'apporter ainsi que ses pains a partir de l'argent non sacre</b> en sa possession et non de l'argent du second tith. Puisqu'il a dit : Cela m'incombe, apporter l'offrande est une obligation, et on ne peut pas remplir une obligation avec de l'argent de second-tithe.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

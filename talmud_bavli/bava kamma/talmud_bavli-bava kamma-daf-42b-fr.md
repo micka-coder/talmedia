@@ -1,0 +1,63 @@
+
+### Partie 1
+La Guemara demande : <b>Mais que Rabbi Akiva se dise</b> la meme objection qu'il a soulevee contre l'interpretation du verset par Rabbi Eliezer, a savoir que le proprietaire d'un bœuf inoffensif est dispense de payer la moitie d'une rancon (voir 41b) : Pourquoi est-il necessaire que le verset enseigne cela ? <b>Mais la reparation du dommage cause par un bœuf inoffensif nest-elle pas</b> payee uniquement a partir</b> de la valeur de <b>son corps ?</b> Par consequent, son proprietaire peut dire au proprietaire de lesclave : <b>Amenez-le au tribunal et vous serez paye sur lui.</b> Puisque le bœuf a ete lapide, il n'y a rien dont il puisse percevoir le paiement.
+
+### Partie 2
+<b>Rav Shmuel bar Rav Yitzhak dit :</b> L'interpretation de Rabbi Akiva est applicable dans un cas <b>ou son proprietaire l'a d'abord abattu,</b> avant qu'il ne soit condamne a la lapidation. <b>De peur que l'on dise</b> que le proprietaire de l'esclave <b>doit etre paye de</b> la valeur de la chair, le verset <b>nous apprend</b> que <b>puisque</b> le bœuf <b>etait sujet a etre tue, bien que</b> son proprietaire l'ait <b>abattu,</b> le proprietaire de l'esclave <b>ne doit pas etre paye de cette valeur.</b>
+
+### Partie 3
+La Gemara demande : <b>Si c'est le cas,</b> pourquoi Rabbi Akiva a souleve cette objection contre l'interpretation de Rabbi Eliezer ? <b>Selon Rabbi Eliezer egalement,</b> elle pourrait etre expliquee comme faisant reference a un cas <b>ou son proprietaire l'a <b>abattu en premier.</b>
+
+### Partie 4
+La Gemara repond : <b>En effet,</b> l'interpretation de Rabbi Eliezer pourrait egalement etre expliquee de cette maniere . <b>Et</b> la raison pour laquelle Rabbi Akiva a souleve cette objection etait parce que <b>il raisonne : Peut-etre</b> Rabbi Eliezer <b>a une autre explication qui est meilleure que celle-ci, et il l'enoncera.</b> Rabbi Eliezer a effectivement repondu avec une autre explication.
+
+### Partie 5
+La Guemara demande : <b>Mais que Rabbi Eliezer lui reponde aussi que</b> le proprietaire l'a <b>abattu en premier.</b> Pourquoi a-t-il propose une explication differente ? La Guemara repond que Rabbi Eliezer aurait pu <b>vous dire : Precisement la,</b> dans le cas auquel Rabbi Eliezer s'est refere dans son explication, a savoir, <b>ou</b> le bœuf <b>avait l'intention de tuer</b> un autre <b>animal mais a tue une personne</b> a la place, <b>puisque le bœuf n'etait pas du tout sujet a etre tue,</b> il pourrait <b>entrer dans ton esprit de dire</b> qu'il devrait etre tenu</b> de payer la moitie d'une rancon sur le corps du bœuf. Par consequent, <b>le verset est necessaire pour exclure</b> le proprietaire de la responsabilite de payer la moitie d'une rancon. <b>Mais ici, puisque</b> le bœuf <b>etait initialement sujet a etre tue, un verset n'est pas necessaire</b> pour enseigner que le proprietaire est exempt de payer la moitie de la rancon <b>meme s'il l'a abattu.</b>
+
+### Partie 6
+La Guemara demande : <b>Mais</b> selon <b>Rabbi Akiva aussi, il en est certainement ainsi,</b> qu'un verset n'est pas necessaire pour enseigner que si le proprietaire abat le bœuf avant son verdict, il est exempt de responsabilite.
+
+### Partie 7
+<b>Au contraire, Rav Asi dit :</b> L'explication ci-dessus de l'interpretation de Rabbi Akiva doit etre rejetee, car <b>J'ai entendu cette</b> <b>declaration suivante de la part d'un grand homme, et qui est-il ? </b> Il s'agit de <b>Rabbi Yosei, fils de Rabbi Hanina.</b> Voici ce qu'il a dit : Il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque Rabbi Akiva dit</b> dans la mishna (33a) que dans un cas ou une personne et un bœuf inoffensif se sont endommages l'un l'autre de facon concomitante, le proprietaire d'un <b>bœuf inoffensif</b> qui a blesse une personne paie egalement la totalite</b> du cout du <b>dommage en ce qui concerne la difference</b> entre les deux evaluations du dommage, comme il n'y a pas de distinction entre un bœuf inoffensif et un bœuf averti en ce qui concerne les blessures causees a une personne, <b>la compensation pour l'esclave est egalement payee a partir</b> de ses <b>biens de qualite superieure</b>, et non a partir du corps du bœuf ; tout comme dans le cas ou un bœuf prevenu tue un esclave. Par consequent, son proprietaire ne peut pas dire : Amene-le au tribunal et tu seras paye a partir de lui. Pour contrer cette possibilite, <b>le Misericordieux a ecrit : "Le proprietaire du bœuf sera clair,"</b> indiquant qu'il est exempte de cette responsabilite.
+
+### Partie 8
+<b>Rabbi Zeira a dit a Rav Asi : Mais Rabbi Akiva</b> n'a-t-il pas deja <b>brise</b> la force de <b>son poing,</b> c'est-a-dire nuance cette opinion qui est la sienne ? <b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Akiva dit :</b> On <b>pourrait</b> avoir pense que le proprietaire d'un bœuf inoffensif qui a blesse une personne <b>paye</b> une compensation <b>a partir</b> de son <b>bien de qualite superieure</b>, de la meme maniere que le proprietaire d'un bœuf averti. Par consequent, <b>le verset indique : "Selon ce jugement lui sera fait [<i>lo</i>]"</b> (Exode 21:31), indiquant que <b>il paie</b> la restitution exclusivement <b>a partir</b> du <b>corps</b> du bœuf <b>mais il ne paie pas a partir</b> de sa <b>qualite superieure</b> de propriete, comme le mot <i>lo</i> le signifie aussi : Sur lui. Ceci annule l'explication de Rav Asi de l'interpretation de Rabbi Akiva.
+
+### Partie 9
+<b>Rava a plutot dit</b> une explication differente de la declaration de Rabbi Akiva : Le verset est <b>necessaire</b> car il pourrait <b>entrer dans ton esprit de dire</b> que <b>puisque je, </b> en me referant a la Torah, <b>suis plus severe a l'egard</b> d'un bœuf averti qui tue une personne dans le cas d'un <b>esclave cananeen que</b> dans le cas d'un <b>libre homme ; comme</b> dans le cas de <b>un homme libre</b> qui valait <b>valeur</b> un <b><i>sela</i></b> le proprietaire du bœuf <b>donne</b> un <b><i>sela</i></b> en rancon, et s'il valait <b>trente</b> <i>sela</i> <b>il en donne trente ; mais</b> dans le cas d'un <b>esclave</b> cananeen, la Torah impose un montant fixe, donc meme s'il ne <b>vaut</b> qu'une <b><i>sela</i></b> le proprietaire <b>donne trente</b> <i>sela</i>, par consequent, puisque la Torah est plus stricte dans le cas d'un esclave, <b>le paiement de l'esclave devrait egalement etre paye a partir</b> des <b>biens de qualite superieure</b> du proprietaire. Pour contrer cela, <b>le Misericordieux ecrit : "Le proprietaire du bœuf sera clair,"</b> indiquant que le paiement n'est pas requis dans le cas ou un bœuf inoffensif tue un esclave.
+
+### Partie 10
+<b>Il est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'explication <b>de Rava</b> a la declaration de Rabbi Akiva. La <i>baraita</i> indique qu'en ce qui concerne le verset <b>"Le proprietaire du bœuf sera clair", Rabbi Akiva dit : </b> Il sera <b>clair du paiement pour</b> un <b>esclave cananeen.</b>
+
+### Partie 11
+Rabbi Akiva discute cette interpretation : <b>Et</b> cette <i>halakha</i> <b>ne pourrait-elle pas</b> etre derivee par <b>deduction logique,</b> sans le verset ? <b>Puisque</b> la Torah <b>le jugeait</b> <b>responsable</b> de payer <b>pour</b> le meurtre d'un <b>esclave et le jugeait</b> <b>responsable</b> du meurtre d'un <b>homme libre</b> egalement, <b>comme lorsque</b> la Torah <b>le jugeait</b> <b>responsable pour un homme libre, vous avez fait la distinction entre un boeuf inoffensif</b> et un boeuf prevenu</b>, comme on ne paie pas de rancon dans le cas d'un boeuf inoffensif, <b>de meme, lorsque</b> la Torah <b>l'a juge</b> <b>responsable d'un esclave, distinguons entre un boeuf inoffensif</b> <b>et un boeuf prevenu</b>.
+
+### Partie 12
+<b>En outre,</b> cette <i>halakha</i> pourrait etre prouvee par une <b><i>a fortiori</i></b> inference : <b>Si,</b> dans le cas d'un <b>libre homme, ou il</b> le proprietaire, <b>donne sa pleine valeur, vous distinguiez entre un bœuf inoffensif</b> <b>et un bœuf prevenu</b>, en ce qui concerne <b>un esclave, ou il ne donne que trente</b> <i>sela</i> et pas plus, meme si l'esclave valait plus, <b>n'est-il pas logique de distinguer entre un bœuf inoffensif</b> <b>et un bœuf prevenu</b>, et de l'exonerer de toute responsabilite pour un bœuf inoffensif ?
+
+### Partie 13
+Rabbi Akiva rejette cette opinion : <b>Non,</b> on pourrait ne pas etre d'accord et dire le contraire : <b>Je,</b> en me referant a la Torah, <b>suis plus rigoureux en ce qui concerne</b> le cas d'un <b>esclave que</b> celui d'un <b>libre ; car</b> pour <b>un homme libre valant</b> un <b><i>sela</i>,</b> le proprietaire du bœuf <b>donne</b> seulement un <b><i>sela</i>,</b> et s'il vaut <b>trente</b> <i>sela</i> <b>il en donne trente. Mais</b> dans le cas d'un <b>esclave,</b> meme s'il ne valait <b>qu'une seule <b><i>sela</i>, il en donne trente</b> <i>sela</i>. Par consequent, on <b>pourrait</b> penser qu'il <b>doit etre tenu</b> de payer pour un esclave tue par son inoffensif bœuf. Pour contrer cela, <b>le verset indique : "Le proprietaire du bœuf sera innocent,"</b> indiquant qu'il sera <b>indemne de</b> payer <b>une compensation pour un esclave.</b>
+
+### Partie 14
+§ <b>Les Sages ont enseigne :</b> Le verset indique a propos d'un bœuf averti : "Mais si le bœuf etait un bœuf gore dans le passe et qu'un avertissement a ete donne a son proprietaire, et qu'il ne l'a pas securise ; <b>et qu'il a tue un homme ou une femme ;</b> le bœuf sera lapide" (Exode 21:29). <b>Rabbi Akiva a dit : Et qu'est-ce que cela vient nous apprendre ? Si</b> c'est <b>pour considerer</b> le proprietaire <b>responsable</b> du meurtre d'une <b>femme</b> tout <b>comme</b> du meurtre d'un <b>homme, cela est deja enonce</b> a l'egard d'un bœuf inoffensif, ou il est dit : <b>"Quand un bœuf aura eventre un homme ou une femme,</b> et qu'ils seront morts, le bœuf sera lapide" (Exode 21:28).
+
+### Partie 15
+<b>Au contraire,</b> le verset est enonce <b>pour comparer une femme a un homme</b> en ce qui concerne une autre question : <b>De meme que</b> concernant <b>un homme,</b> le paiement de <b>ses blessures</b> est verse <b>a ses heritiers, de meme,</b> concernant <b>une femme,</b> le paiement de <b>ses blessures</b> est verse <b>a ses heritiers,</b> et non a son mari.
+
+### Partie 16
+La Guemara demande : <b>Et Rabbi Akiva soutient-il</b> que <b>un mari n'herite pas</b> de sa femme ? <b>Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : Le verset dit : <b>"Et il en heritera [<i>otah</i>]</b> (Nombres 27:11). <b>D'ici</b> on deduit <b>que le mari herite</b> de <b>sa femme,</b> car <i>otah</i> signifie aussi : Elle. C'est <b>la declaration de Rabbi Akiva.</b>
+
+### Partie 17
+<b>Reish Lakish dit : </b> Rabbi Akiva <b>dit</b> que ses heritiers et non son mari recoivent le paiement <b>seulement en ce qui concerne la rancon, car elle n'est payee qu'a titre posthume et est</b> donc <b>consideree</b> comme un bien <b>du</b> a elle ; <b>et le mari ne prend pas</b> en heritage le bien <b>du</b> a la defunte <b>comme</b> il le fait pour le bien qu'elle <b>possedait. </b> Par exemple, un heritage qui serait revenu a la femme si elle etait vivante n'est pas attribue au mari, mais plutot a ses autres heritiers.
+
+### Partie 18
+<b>Quelle est la raison</b> de l'hypothese selon laquelle meme s'il est clair que la victime est sur le point de mourir, le mari n'est pas redevable d'une rancon ? <b>Le verset dit :" S'il a tue un homme ou une femme, le bœuf sera lapide, et son proprietaire aussi sera mis a mort. Si une rancon est mise sur lui,</b> alors il donnera pour le rachat de sa vie ce qui est mis sur lui" (Exode 21:29""30), indiquant que la responsabilite du proprietaire de payer une rancon depend de la responsabilite du bœuf d'etre lapide, qui, a son tour, ne s'applique qu'apres la mort de la victime.
+
+### Partie 19
+La Gemara demande : <b>Et en ce qui concerne les dommages et interets, Rabbi Akiva n'a-t-il pas dit</b> que les dommages et interets dus a une femme sont payes a ses heritiers et non a son mari, tout comme en ce qui concerne la rancon ?
+
+### Partie 20
+<b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Si un agresseur <b>a frappe la femme et que sa progeniture a emerge</b> suite a une fausse couche, <b>il donne</b> une compensation pour le <b>dommage et la douleur a la femme et une compensation pour</b> la progeniture fausse au mari. </b> Si <b>le mari n'est pas</b> vivant, <b>il donne</b> l'indemnisation pour la progeniture <b>a ses heritiers.</b> Si <b>la femme n'est pas</b> vivante, <b>il donne</b> le paiement qui lui est du <b>a ses heritiers.</b> Si <b>elle etait</b> une <b>servante cananeenne et</b> alors <b>elle a ete emancipee,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

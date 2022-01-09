@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>La jalousie entre les enseignants augmente la sagesse.</b>
+
+### Partie 2
+<b>Rav Nahman bar Yitzhak a dit : Et Rav Huna, fils de Rav Yehoshua,</b> qui a dit que les citadins peuvent interdire les artisans qui viennent d'autres villes, <b>concede en ce qui concerne</b> les <b>vendeurs de parfum qui voyagent de</b> une <b>ville</b> a une autre <b>que</b> les citadins <b>ne peuvent pas les empecher</b> d'entrer dans leur ville. <b>Comme l'a dit le Maitre : Esdras a institue</b> une ordonnance <b>pour le peuple juif selon laquelle les <b>vendeurs de parfums</b> voyageront de ville en ville afin que les cosmetiques soient disponibles pour les femmes juives.</b> Puisque cette ordonnance a ete instituee en faveur des femmes juives, les Sages ont juge que ces colporteurs ne pouvaient pas etre empeches d'entrer dans une ville.
+
+### Partie 3
+La Gemara poursuit : <b>Et cette question</b> ne s'applique qu'a celui qui cherche <b>a voyager</b> de ville en ville en tant que vendeur. <b>Mais</b> s'il veut <b>etablir</b> une boutique, cette regle n'a <b>pas</b> ete enoncee, et les citadins peuvent l'en empecher. <b>Et s'il est un erudit de la Torah, il peut meme etablir</b> une boutique en tant que vendeur de parfums. Ceci est <b>comme cet</b> incident dans lequel Rava a permis a Rabbi Yoshiya et Rav Ovadya d'etablir</b> une boutique <b>non</b> conforme a la <b>halakha</i>. Quelle est la raison</b> de cette decision ? La raison est que <b>puisqu'ils sont rabbins, ils risquent d'etre distraits de leurs etudes</b> s'ils devaient se deplacer d'un endroit a l'autre.
+
+### Partie 4
+§ La Guemara relate : Il y avait <b>ces vendeurs de paniers qui apportaient des paniers en Babylonie. Les citadins vinrent</b> et les <b>empecherent</b> de vendre la-bas. Les deux parties <b>se presenterent devant Ravina</b> pour obtenir une decision. Ravina leur <b>dit : </b> Les vendeurs de paniers <b>sont venus de l'exterieur</b> de la ville, <b>et ils vendent a</b> ceux qui viennent de <b>l'exterieur</b> de la ville, c'est-a-dire a des hotes qui ne sont pas residents de la ville. La Gemara commente : <b>Et cette declaration</b> ne s'applique que <b>un jour de marche,</b> lorsque les gens des autres villes viennent faire leurs achats, <b>mais</b> ils ne peuvent <b>pas</b> vendre leurs marchandises <b>les jours de non-marche. Et meme en ce qui concerne les jours de marche, on dit</b> ainsi <b>seulement</b> en ce qui concerne <b>la vente au marche, mais</b> cette <i>halakha</i> ne <b>pas</b> s'applique <b>a la circulation</b> dans la ville.
+
+### Partie 5
+La Gemara relate encore : Il y avait <b>ces vendeurs de laine qui apportaient de la laine a</b> la ville de <b>Pum Nahara. Les habitants de la ville sont venus</b> et les ont <b>empeches</b> de la vendre. Les deux parties <b>se sont presentees devant le Rav Kahana</b> pour obtenir une decision. Rav Kahana leur <b>dit : La <i>halakha</i> est qu'ils peuvent vous empecher</b> de vendre vos marchandises. Les vendeurs de laine lui ont <b>dit : Nous avons des dettes</b> a recouvrer en ville, et nous devons vendre nos marchandises en attendant pour subvenir a nos besoins jusqu'a ce que nous soyons payes. Rav Kahana leur <b>dit : Allez</b> et <b>vendez la quantite</b> necessaire <b>pour subvenir a vos besoins jusqu'a ce que vous ayez recouvre vos dettes, et</b> ensuite <b>partez.</b>
+
+### Partie 6
+§ La Guemara raconte : <b>Rav Dimi de Nehardeâ apportait des figues seches sur un bateau</b> pour les vendre. <b>L'Exilarque dit a Rava : Va</b> et <b>vois ; s'il est un erudit de la Torah, reserve-lui le marche,</b> c'est-a-dire declare qu'il a l'exclusivite de la vente des figues seches. <b>Rava dit a</b> son eleve <b>Rav Adda bar Abba : Va</b> et <b>sentir sa jarre,</b> c'est-a-dire determiner si oui ou non Rav Dimi est un erudit de la Torah.
+
+### Partie 7
+Rav Adda bar Abba <b>allait</b> et <b>posait</b> une question a Rav Dimi : Concernant <b>un elephant qui a avale un panier d'osier et l'a excrete</b> intact avec <b>ses dechets, quelle est</b> la <i>halakha</i> ? Le recipient est-il encore susceptible d'impurete rituelle ou est-il considere comme digere et non susceptible d'impurete ? Une reponse <b>n'etait pas a la disposition</b> du Rav Dimi. Rav Dimi <b>dit a</b> Rav Adda bar Abba : <b>Le Maitre est-il Rava,</b> c'est-a-dire, etes-vous Rava, puisque vous m'avez pose une question aussi difficile ? Rav Adda bar Abba <b>le frappa sur sa chaussure</b> d'une maniere desobligeante et lui <b>dit : Il y a une grande</b> difference <b>entre moi et Rava ; mais je suis par force ton maitre, et Rava est le maitre de ton maitre.</b>
+
+### Partie 8
+Sur la base de cet echange, Rav Adda bar Abba decida que Rav Dimi n'etait pas un grand erudit de la Torah, et donc <b>il ne lui reserva pas le marche, et</b> Rav Dimi <b>perdit ses figues seches,</b> car elles pourrissaient. Rav Dimi <b>se presenta devant Rav Yosef</b> pour se plaindre, et lui <b>dit : Le Maitre</b> devrait <b>voir ce qu'ils m'ont fait.</b> Rav Yosef <b>lui a repondu : Celui qui n'a pas retarde</b> la retribution pour <b>l'humiliation du roi d'Edom ne devrait pas retarder</b> Sa reponse a <b>votre humiliation,</b> mais devrait punir celui qui vous a afflige, <b>comme il est ecrit :" Ainsi parle le Seigneur : Pour trois transgressions de Moab, voire pour quatre, je ne reculerai pas pour lui, parce qu'il a brule les os du roi d'Edom pour en faire de la chaux"</b> (Amos 2:1).
+
+### Partie 9
+La Guemara rapporte que <b>Rav Adda bar Abba est decede. Rav Yosef a dit : Je l'ai puni,</b> c'est-a-dire que je suis responsable de sa mort, <b>car je l'ai maudit. Rav Dimi de Nehardeâ dit : Je l'ai puni, car il a provoque ma perte de figues seches. Abaye a dit : Je l'ai puni,</b> c'est-a-dire qu'il a ete puni sur mon compte car il n'a pas fait preuve du respect approprie a mon egard. <b>Comme</b> Rav Adda bar Abba <b>a dit aux Sages : Au lieu de ronger les os a l'ecole d'Abaye, vous</b> feriez <b>mieux</b> de <b>manger de la viande grasse a l'ecole de Rava,</b> c'est-a-dire qu'il est preferable d'etudier avec Rava qu'avec Abaye. <b>Et Rava dit : Je l'ai puni, comme lorsqu'il allait chez le boucher pour acheter un morceau de viande, il disait aux bouchers : Je vais prendre de la viande avant le serviteur de Rava, car je suis plus grand que lui.</b>
+
+### Partie 10
+<b>Rav Nahman bar Yitzhak a dit : Je l'ai puni,</b> c'est-a-dire qu'il a ete puni a cause de moi, <b>car Rav Nahman bar Yitzhak etait le chef des <i>kalla</i></b> conferences, les rassemblements pour l'etude de la Torah pendant Elul et Adar. Le Rav Nahman bar Yitzhak enseignait aux eleves immediatement apres la lecon donnee par le chef de l'academie. <b>Chaque jour, avant d'entrer pour le cours de <i>kalla</i></b>, <b>il revisait son cours avec Rav Adda bar Abba, puis il entrait</b> dans la salle d'etude <b>pour le cours de <i>kalla</i></b>.
+
+### Partie 11
+Ce <b>jour-la, Rav Pappa et Rav Huna, fils de Rav Yehoshua, saisirent Rav Adda bar Abba, car ils n'avaient pas ete presents a la conclusion</b> de la conference de Rava. <b>Ils lui dirent : Dis-nous comment Rava a enonce ces <i>halakhot</i> de la dime animale.</b> Rav Adda bar Abba <b>leur a repondu : Rava a dit ceci et Rava a dit cela. Pendant ce temps, il se faisait tard pour Rav Nahman bar Yitzhak, et Rav Adda bar Abba</b> n'etait <b>pas encore</b> <b>arrive.</b>
+
+### Partie 12
+<b>Les Sages dirent a Rav Nahman bar Yitzhak : Leve-toi</b> et enseigne-nous, <b>car il est tard pour nous. Pourquoi le Maitre s'assoit-il et attend-il ? Rav Nahman bar Yitzhak <b>leur dit : Je suis assis et j'attends le brancard de Rav Adda bar Abba,</b> qui est vraisemblablement decede. <b>Pendant ce temps, une rumeur emergea selon laquelle Rav Adda bar Abba avait</b> effectivement <b>decede.</b> La Gemara commente : <b>Et donc, il est raisonnable</b> de conclure que <b>Rav Nahman bar Yitzhak l'a puni,</b> c'est-a-dire qu'il est mort suite a la declaration de Rav Nahman bar Yitzhaks, car le malheureux evenement s'est produit au moment ou il annoncait que le cercueil de Rav Adda bar Abba etait en route.
+
+### Partie 13
+<strong>MISHNA:</strong> <b>Quelqu'un dont le mur etait proche du mur d'un autre ne peut</b> construire <b>un autre mur proche</b> du mur du voisin <b>a moins qu'il ne l'eloigne de quatre coudees</b> du mur du voisin. Et celui qui desire construire un mur en face des <b>fenetres</b> de la maison du voisin doit eloigner le mur de <b>quatre coudees</b> des fenetres, <b>que ce soit au-dessus, au-dessous ou en face.</b>
+
+### Partie 14
+<strong>GEMARA:</strong> La Gemara commente : Avant d'aborder la construction du second mur, on pourrait se demander : <b>Et</b> en ce qui concerne le <b>premier</b> homme, <b>comment a-t-il place</b> son mur <b>proche</b> du mur du voisin en premier lieu ? <b>Rav Yehuda dit</b> que <b>c'est ce que</b> le <i>tanna</i> <b>dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

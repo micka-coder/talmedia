@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Un œuf</b> qui contient <b>un poussin,</b> car le poussin confere une saveur a l'aliment dans lequel l'œuf est cuit. <b>Mais</b> en ce qui concerne un œuf qui ne contient pas de poussin mais provient d'un <b>oiseau non casher</b>, il ne <b>pas</b> confere de saveur a l'aliment avec lequel il est cuit.
+
+### Partie 2
+Le Rav Idi bar Avin <b>souleve une objection a</b> cette reponse en se basant sur une <i>baraita</i> (<i>Tosefta</i>, <i>Terumot</i> 9:5) : En ce qui concerne les <b>œufs casher que l'on a fait bouillir avec des œufs non casher, s'ils ont</b> un rapport qui permet aux œufs non casher de <b>imposer une saveur</b> aux œufs casher, <b>ils sont tous interdits.</b> Cela indique que les œufs d'oiseaux non casher ont une saveur. Abaye a repondu : <b>Il s'agit la aussi</b> d'une reference <b>a un œuf</b> d'un oiseau casher qui contient <b>un poussin. Et pourquoi</b> le <i>baraita</i> <b>appelle-t-il cela un œuf non casher</b>, indiquant qu'il s'agit d'un œuf d'une espece non casher ? <b>Puisqu'il y a un poussin a l'interieur,</b> ce qui fait que l'œuf est interdit, le <i>baraita</i> <b>l'appelle non casher.</b>
+
+### Partie 3
+La Gemara objecte : <b>Mais du fait</b> <b>que la derniere clause enseigne :</b> En ce qui concerne les <b>œufs que l'on a fait bouillir et dans lesquels on a trouve un poussin, s'ils ont</b> un rapport qui permet au poussin de leur <b>imposer une saveur, ils sont tous interdits, on peut en deduire que</b> dans <b>la premiere clause, on a affaire</b> a un œuf <b>qui n'a pas de poussin a l'interieur.</b>
+
+### Partie 4
+La Guemara explique que cette deduction est incorrecte, car la derniere clause <b>explique</b> la premiere clause, de sorte que la <i>baraita</i> doit etre lue comme suit : En ce qui concerne les <b>œufs casher que l'on a fait bouillir avec des œufs non casher, s'ils ont</b> un rapport qui permet aux œufs non casher de <b>imposer une saveur</b> aux œufs casher, <b>ils sont tous interdits. Comment</b> ainsi ? Cela peut faire reference a un cas <b>ou on les a fait bouillir et ou on a trouve un poussin dans l'un d'eux.</b>
+
+### Partie 5
+La Guemara ajoute : <b>Aussi est-il raisonnable</b> d'expliquer la <i>baraita</i> de cette maniere, <b>comme si</b> il vous <b>entrait dans la tete</b> de dire que <b>la premiere clause</b> fait reference a un cas <b>ou il n'y a pas de poussin dans</b> l'œuf, la derniere clause est redondante : <b>Maintenant</b> que le <i>tanna</i> a enseigne que dans un cas <b>ou il n'y a pas de poussin a l'interieur,</b> l'œuf non casher communique une saveur aux œufs casher et les rend <b>interdits, est-il</b> necessaire</b> pour le <i>tanna</i> d'enseigner qu'un œuf <b>qui a un poussin a l'interieur</b> communique une saveur aux œufs casher ?
+
+### Partie 6
+La Guemara rejette cet argument : <b>Si c'est du a cette</b> raison, <b>il n'y a pas</b> d'<b>argument concluant,</b> c'est-a-dire que la preuve de l'argument n'est pas concluante. La raison est que l'on peut dire que le <i>tanna</i> <b>a enseigne la derniere clause pour reveler</b> le sens de <b>la premiere clause. </b> Cette derniere clause a ete enoncee pour <b>que l'on ne puisse pas</b> par erreur <b>dire</b> que <b>la premiere clause</b> se refere uniquement a un cas <b>ou</b> l'œuf <b>a un poussin a l'interieur, mais</b> si <b>il n'y a pas de poussin a l'interieur</b> les œufs casher seraient <b>permis. </b> Par consequent, la <i>tanna</i> <b>enseigne la derniere clause</b> et precise <b>que</b> elle fait reference a un œuf <b>qui a un poussin a l'interieur. Par deduction, la premiere clause</b> fait reference a un cas d'œuf <b>qui n'a pas de poussin a l'interieur, et meme ainsi, elle</b> rend tous les autres œufs <b>interdits.</b>
+
+### Partie 7
+§ La Guemara continue de discuter de l'annulation des aliments interdits. Il y eut un jour <b>une certaine olive-bulk</b> de <b>graisse interdite qui tomba dans une marmite de</b> <b>viande casher. Rav Asi pensa a mesurer</b> le volume de la viande casher avec <b>ce que la marmite avait absorbe. Les rabbins dirent a Rav Ashi : Est-ce a dire que</b> la marmite <b>a absorbe</b> la viande <b>permise</b> mais <b>n'a pas absorbe</b> la graisse <b>interdite</b> ?
+
+### Partie 8
+La Gemara relate un incident similaire : Il y avait une fois <b>une certaine demi-boule d'olive de</b> <b>graisse interdite qui tomba dans une marmite de</b> <b>viande casher. Mar bar Rav Ashi pensa mesurer</b> la quantite de viande casher necessaire pour annuler la graisse interdite comme <b>trente demi-bulles d'olives,</b> plutot que soixante. <b>Son pere,</b> Rav Ashi, <b>lui dit : Ne t'ai-je pas dit : Ne</b> traite pas les <b>mesures a la legere</b> meme en ce qui concerne les interdits <b>rabbiniques</b> ? <b>Et de plus, Rabbi Yohanan n'a-t-il pas dit : Une demi-mesure</b> est <b>interdite par la loi de la Torah</b> ? Par consequent, la demi-portion de graisse interdite n'est annulee que dans soixante fois son volume de viande permise.
+
+### Partie 9
+§ La Guemara poursuit sa discussion sur l'annulation des aliments interdits. <b>Rav Shemen bar Abba dit</b> que <b>Rav Idi bar Idi bar Gershom dit</b> que <b>Levi bar Perata dit</b> que <b>Rabbi Nahum dit</b> que <b>Rabbi Biryam dit au nom d'un certain ancien, et son nom etait Rabbi Yaâkov,</b> que les Sages <b>dans la maison du <i>Nasi</i> ont dit : </b> Si un <b>œuf non casher</b> est melange <b>avec</b> des œufs casher, s'il y a <b>soixante</b> œufs, ils sont tous <b>interdits,</b> mais s'il y a <b>sixante et un</b> œufs, ils <b>sont</b> tous <b>permis. </b>
+
+### Partie 10
+<b>Rabbi Zeira dit a Rav Shemen bar Abba : Voyez,</b> on peut deduire de vos paroles <b>que vous fixez une limite</b> pour <b>permettre</b> les œufs s'il y a un total de soixante et un œufs, y compris l'œuf non casher. Ceci est une revelation, <b>parce que les deux</b> plus <b>eminents</b> Sages <b>de la generation n'ont pas clarifie cette question. </b> Ces deux Sages eminents etaient <b>Rabbi Yaâkov bar Idi et Rabbi Shmuel bar Nahmani,</b> et <b>tous deux ont dit au nom de Rabbi Yehoshua ben Levi : </b> Dans un cas ou un <b>œuf non casher</b> est melange <b>avec</b> des œufs casher, s'il y a <b>six</b> œufs, ils sont tous <b>interdits,</b> mais s'il y a <b>six-et-un</b> œufs, ils <b>sont</b> tous <b>permis. </b>
+
+### Partie 11
+<b>Et un dilemme a ete souleve devant</b> ces Sages : Lorsque Rabbi Yehoshua ben Levi a dit qu'ils sont permis s'il y a <b>six cent un</b> œufs, cela signifie-t-il qu'il y a <b>six cent un</b> œufs en tout, <b>avec l'œuf non casher</b>, <b>ou</b> cela signifie-t-il <b>peut-etre</b> qu'il doit y avoir soixante et un œufs casher <b>en dehors</b> de l'œuf non casher ? <b>Et</b> ils n'ont <b>pas resolu</b> ce dilemme. <b>Et</b> pourtant, il semble que <b>le Maitre,</b> Rav Shemen, ait <b>resolu</b> le dilemme, car vous avez laisse entendre que le melange est cachere s'il y a un total de soixante et un œufs y compris l'œuf non cachere.
+
+### Partie 12
+La Guemara continue : Il <b>a ete dit</b> que <b>Rabbi Helbo dit</b> que <b>Rav Huna dit :</b> Si un <b>œuf</b> non casher se retrouve melange <b>avec</b> des œufs casher, s'il y a <b>sixante</b> œufs casher en plus de <b>cette œuf</b> non casher, tout le melange est <b>interdit. </b> Mais s'il y a <b>sixante et un</b> œufs casher en plus de <b>cette</b> œuf non casher, le melange est <b>permis.</b>
+
+### Partie 13
+§ Il y avait <b>une certaine</b> personne <b>qui s'est presentee devant Rabban Gamliel bar Rabbi</b> Yehuda HaNasi avec une demi-boule d'olives de nourriture non cachere qui avait ete melangee avec une plus grande quantite de nourriture cachere. Rabban Gamliel lui <b>dit : </b> Un cas similaire est arrive devant mon <b>pere,</b> et meme s'il n'a pas <b>mesure</b> la nourriture cachere comme etant soixante fois le volume de la nourriture non cachere, il a neanmoins permis le melange en raison du fait qu'il y avait <b>quarante-sept</b> fois plus de nourriture cachere que de nourriture non cachere. <b>Et</b> de meme, <b>Je vais</b> permettre le melange parce que je <b>mesure</b> que la nourriture cachere est <b>quarante-cinq</b> fois le volume de la nourriture non cachere.
+
+### Partie 14
+De meme, il y avait <b>une certaine</b> personne <b>qui s'est presentee devant Rabbi Shimon bar Rabbi</b> Yehuda HaNasi avec un melange de nourriture cachere et non cachere. Rabbi Shimon lui <b>dit : </b> Un cas similaire est venu devant mon <b>pere,</b> et meme s'il n'a pas <b>mesure</b> la nourriture cachere comme etant soixante fois le volume de la nourriture non cachere, il a neanmoins permis le melange en raison du fait qu'il y avait <b>quarante-cinq</b> fois plus de nourriture cachere que de nourriture non cachere. <b>Et</b> de meme, <b>Je vais</b> autoriser le melange parce que je <b>mesure</b> que la nourriture cachere est <b>quarante-trois</b> fois le volume de la nourriture non cachere.
+
+### Partie 15
+Il y avait <b>un certain</b> homme <b>qui se presenta devant Rabbi Hiyya</b> avec un melange de nourriture cachere et non cachere. Rabbi Hiyya <b>lui dit : Y a-t-il</b> meme <b>trente</b> fois le volume de nourriture permise que de nourriture interdite ? De toute evidence, le melange est interdit.
+
+### Partie 16
+La Guemara cherche a preciser : Cela indique que <b>la raison</b> pour laquelle il a interdit le melange est <b>qu'il n'y avait pas trente</b> fois plus de nourriture cachere que de nourriture non cachere. <b>Mais</b> on peut alors en deduire que si <b>il y a trente</b> fois plus de nourriture cachere que de nourriture non cachere, on peut <b>evaluer,</b> c'est-a-dire autoriser, le melange. Et ceci contredit la <i>halakha</i> selon laquelle les aliments non cachers ne sont annules que dans un melange contenant soixante fois plus d'aliments cachers que d'aliments non cachers. <b>Rabbi Hanina dit :</b> Rabbi Hiyya n'a pas fait cette declaration pour fixer un principe halakhique, mais simplement comme <b>une exageration.</b> Il n'y avait meme pas trente fois le volume de nourriture cachere, il etait donc evident que le melange etait interdit.
+
+### Partie 17
+§ <b>Rabbi Hiyya bar Abba dit</b> que <b>Rabbi Yehoshua ben Levi dit au nom de bar Kappara : Tous</b> les <b>interdits</b> aliments <b>dans la Torah</b> sont annules lorsqu'ils sont melanges <b>avec des aliments casher qui sont <b>six fois</b> leur volume. <b>Rabbi Shmuel bar Rav Yitzhak a dit avant</b> Rabbi Hiyya bar Abba : <b>Mon maitre, tu dis cela</b> en citant Rabbi Yehoshua ben Levi, qui a dit que bar Kappara l'a dit. Mais <b>C'est ce que dit Rav Asi</b> que <b>Rabbi Yehoshua ben Levi dit au nom de bar Kappara : Tous</b> les <b>interdits</b> aliments <b>dans la Torah</b> sont annules lorsqu'ils sont melanges <b>avec un aliment casher qui est <b>cent fois</b> leur volume.
+
+### Partie 18
+La Guemara ajoute : <b>Et tous deux ont appris</b> leurs principes d'annulation <b>uniquement</b> a partir du terme : <b>"Patte avant cuite", comme il est ecrit</b> en ce qui concerne le belier du nazireen : <b>"Et le pretre prendra la patte anterieure cuite</b> du belier" (Nombres 6:19). <b>Et il est enseigne</b> dans une <i>baraita</i> : Le verset indique : <b>"Cuit">, </b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

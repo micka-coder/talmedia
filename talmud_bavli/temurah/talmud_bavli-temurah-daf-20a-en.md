@@ -1,0 +1,60 @@
+
+### Part 1
+<b>or for his Paschal offering or for his guilt offering,</b> although these offerings are brought only from male animals, it is still consecrated with inherent sanctity. Therefore, if one exchanges for it a non-sacred animal, he <b>renders</b> that animal <b>a substitute,</b> which is consecrated with the same sanctity as the original animal.
+
+### Part 2
+<b>Rabbi Shimon</b> disagrees with the Sages and <b>says:</b> The <i>halakha</i> is not the same in all these cases. Granted, if he consecrates a female animal <b>for his burnt offering, it renders</b> the non-sacred animal that is exchanged for it <b>a substitute,</b> as there is burnt offering status for female birds. For this reason it is consecrated with inherent sanctity and can be sold only after it has become blemished. But if he consecrates a female animal <b>for his Paschal offering or for his guilt offering</b> it is not consecrated with inherent sanctity, and it may be sold even without a blemish. Therefore, <b>it does not render</b> the non-sacred animal that is exchanged for it <b>a substitute.</b>
+
+### Part 3
+This ruling is based upon the principle that <b>no</b> animal <b>renders</b> the non-sacred animal that is exchanged for it <b>a substitute except</b> for an animal that has inherent sanctity, which means that even if it may not be sacrificed, it must still be left to <b>graze</b> in order <b>to become blemished,</b> after which it is sold, and the proceeds from the sale are used to purchase a fit offering.
+
+### Part 4
+<b>Rabbi</b> Yehuda HaNasi <b>says,</b> with regard to this dispute between Rabbi Shimon and the first <i>tanna</i>: <b>I do not agree with the statement of Rabbi Shimon with</b> regard to the <b>Paschal offering,</b> that a non-sacred animal exchanged for a female which was designated for a Paschal offering does not become consecrated as a substitute. I disagree, <b>since a leftover Paschal</b> offering <b>is sacrificed</b> after Passover as <b>a peace offering,</b> and a peace offering is brought even from female animals. Therefore, a female animal that was designated for a Paschal offering should be consecrated with inherent sanctity, as there is peace offering status for female animals. It should not be sold unless it has a blemish, and it should render a non-sacred animal that is exchanged for it a substitute.
+
+### Part 5
+The Gemara clarifies the opinion of Rabbi Yehuda HaNasi: <b>And let him</b> also <b>say: I do not agree with the statement of Rabbi Shimon</b> with regard <b>to a guilt offering,</b> for the same reason that Rabbi Yehuda HaNasi disagrees with regard to the Paschal offering, <b>since a leftover guilt offering is sacrificed as a burnt offering,</b> and a bird burnt offering is brought even from female animals. Therefore, a female animal designated as a guilt offering should be consecrated with inherent sanctity, and it should render a non-sacred animal that is exchanged for it a substitute. The Gemara explains: <b>Rabbi</b> Yehuda HaNasi <b>holds in accordance with</b> the opinion <b>of the Rabbis, who say: Leftover</b> guilt offerings <b>are used for communal gift offerings,</b> i.e., they are sold and the money is used to purchase communal gift offerings, <b>and a substitute cannot</b> be designated <b>for a communal</b> offering.
+
+### Part 6
+§ The Gemara analyzes the opinion of Rabbi Shimon in the <i>baraita</i>: It might <b>enter your mind</b> to say that <b>this is the reason for</b> the ruling of <b>Rabbi Shimon with regard to</b> one who <b>designates a female</b> animal <b>for his burnt offering:</b> One <b>renders</b> a non-sacred animal that is exchanged for it <b>a substitute due to that</b> reason, <b>that it has burnt offering status</b> because of the case <b>of a bird burnt offering,</b> which may be brought as a female.
+
+### Part 7
+But <b>if that is so,</b> in the case <b>of a High Priest who designated a female cow</b> instead <b>of his</b> male <b>bull</b> that he is obligated to bring as a sin offering on Yom Kippur, <b>it should be sanctified</b> with regard to rendering a non-sacred animal that is exchanged for it a substitute. Here too, the status of a sin offering <b>is</b> upon it, as <b>the</b> red <b>heifer of purification</b> is similar to a sin offering and is female. The Gemara answers: The red heifer is not consecrated with inherent sanctity, as it is not sacrificed upon the altar; rather, <b>it is consecrated</b> for <b>Temple maintenance, and</b> items <b>consecrated</b> for <b>Temple maintenance do not render</b> a non-sacred animal that is exchanged for them <b>a substitute.</b>
+
+### Part 8
+The Gemara objects: According to Rabbi Shimon, if <b>an individual, who</b> is obligated to bring a female animal as a sin offering, <b>designated</b> a male <b>goat</b> instead <b>of his female goat, it should be sanctified</b> with inherent sanctity with regard to rendering a substitute, <b>as it has</b> sin offering status, due to the case of the male <b>goat</b> brought as a sin offering by <b>the king. Alternatively,</b> if <b>a king, who</b> is obligated to bring a male animal as a sin offering, <b>designated a female goat</b> instead of <b>his</b> male <b>goat, it should be sanctified</b> with inherent sanctity with regard to rendering a substitute, since here too it has sin offering status, <b>as an individual designates a female goat</b> as a sin offering. Therefore, Rabbi Shimon should have stated that these animals render non-sacred animals exchanged for them consecrated as substitutes.
+
+### Part 9
+The Gemara explains: Neither a female goat brought as a sin offering by a king nor a male goat brought as a sin offering by an individual are considered to have sin offering status. The reason is that <b>these,</b> the king and an individual, <b>are two</b> distinct <b>bodies,</b> and the status of an offering can be conferred only when such an offering is brought by people of the same status.
+
+### Part 10
+The Gemara objects: If so, then in a case where an individual <b>sinned</b> and is obligated to bring a female goat as a sin offering <b>prior to being appointed</b> as king, and he did not designate an animal as his offering before his appointment, <b>if he designates</b> a male <b>goat</b> instead <b>of</b> his <b>female goat</b> following his appointment, <b>it should be sanctified</b> with inherent sanctity with regard to substitution. In this situation, it should have sin offering status, <b>as, if he sinned now, he is obligated to bring</b> a male <b>goat.</b> The Gemara explains: This is not correct, <b>as</b> he <b>did not sin</b> when he was a king, and therefore <b>was not</b> actually <b>obligated to</b> bring a male <b>goat,</b> but a female goat.
+
+### Part 11
+The Gemara asks: <b>If so,</b> that the individual’s appointment as king does not give sin offering status to the male goat designated as a sin offering for a sin committed prior to his appointment, <b>here too,</b> one should say that a female animal designated for a burnt offering does not have burnt offering status, as the person is not a poor leper, and therefore he <b>does not bring a bird burnt offering.</b> Why, then, does Rabbi Shimon maintain that such an animal renders a non-sacred animal that is exchanged for it a substitute?
+
+### Part 12
+The Gemara explains: The <i>baraita</i> is not referring to an obligatory burnt offering but rather to a voluntary burnt offering, and <b>Rabbi Shimon holds in accordance with</b> the opinion of <b>Rabbi Elazar ben Azarya,</b> who says that anyone, even a wealthy man, can bring a bird if he vows to bring a burnt offering. <b>As we learned</b> in a mishna (<i>Menaḥot</i> 107a) that one who says: <b>It</b> is incumbent <b>upon me</b> to bring <b>a burnt offering,</b> without specifying which animal, <b>brings a lamb,</b> which is the smallest animal that a wealthy man can bring as a burnt offering. <b>Rabbi Elazar ben Azarya says:</b> He may even bring <b>a dove or pigeons</b> as a bird burnt offering.
+
+### Part 13
+§ The Gemara continues to discuss Rabbi Shimon’s opinion in the <i>baraita</i>: <b>We learned</b> in a mishna <b>elsewhere</b> (<i>Shekalim</i> 4:7): In the case of <b>one who consecrates</b> all <b>his possessions</b> without specifying for what purpose, <b>and among them there is an animal that is suitable</b> to be sacrificed <b>on the altar,</b> or multiple such animals that are <b>males and females,</b> what should be done with them?
+
+### Part 14
+<b>Rabbi Eliezer says:</b> Since he did not specify otherwise, everything is consecrated for Temple maintenance. Therefore, any <b>males</b> should <b>be sold for the needs of burnt offerings,</b> i.e., to individuals who will sacrifice them as burnt offerings. <b>And</b> any <b>females,</b> as they cannot be brought as burnt offerings, should <b>be sold for the needs of peace offerings,</b> i.e., to individuals who will sacrifice them as such. <b>And their monetary value</b> that is received from their sale is <b>allocated with the rest of his property for Temple maintenance.</b>
+
+### Part 15
+<b>Rabbi Yehoshua says:</b> Although he did not specify for what purpose he consecrated his possessions, it may be assumed that he intended the animals to be consecrated as burnt offerings. Therefore, any <b>males</b> should <b>themselves be sacrificed as burnt offerings, and</b> any <b>females,</b> since they cannot be brought as burnt offerings, should <b>be sold for the needs of peace offerings,</b> i.e., to individuals who will sacrifice them as such, <b>and their monetary value</b> that is received from their sale should be used to purchase and <b>bring burnt offerings. And</b> according to both opinions, <b>the rest of the property,</b> which is not suitable for sacrificial use, <b>is allocated for Temple maintenance.</b>
+
+### Part 16
+<b>Rabbi Ḥiyya bar Abba said to Rabbi Yoḥanan: According to</b> the opinion of <b>Rabbi Yehoshua, who said</b> that any <b>males</b> should <b>themselves be sacrificed as burnt offerings,</b> as that was the intention of the one who consecrated them, <b>how can</b> the buyers <b>sacrifice the females</b> as <b>peace offerings?</b> He explains the difficulty: <b>Their</b> status <b>stems from deferred sanctity,</b> as they were consecrated to be burnt offerings, and a female that was designated as a burnt offering is not sacrificed upon the altar, but instead is left to graze until it becomes blemished and is then sold.
+
+### Part 17
+The Gemara cites <b>another version of</b> this statement: <b>Rabbi Ḥiyya bar Abba said to Rabbi Yoḥanan:</b> From the fact <b>that Rabbi Yehoshua said</b> that any <b>males</b> should <b>themselves be sacrificed as burnt offerings, is this to say that he consecrated them</b> with <b>inherent sanctity? If so, why are the females sold for the needs of peace offerings?</b> Since they were consecrated as burnt offerings, it is <b>required</b> that they be left to <b>graze</b> until they become blemished.
+
+### Part 18
+Rabbi Yoḥanan <b>said to</b> Rabbi Ḥiyya bar Abba: <b>Rabbi Yehoshua holds in accordance with</b> the opinion of <b>Rabbi Shimon, who said</b> with regard to <b>anything that is not fit</b> to be sacrificed <b>itself</b> upon the altar that <b>inherent sanctity does not descend upon it. As we learned</b> in the mishna that <b>Rabbi Shimon says:</b> If one designated a female for a guilt offering, for which one must bring a male, <b>it may be sold without a blemish,</b> and a guilt offering is purchased with the money received for its sale. <b>And we say that the reason of Rabbi Shimon</b> is that <b>as a female</b> animal <b>is not fit</b> to be sacrificed <b>as a guilt offering, inherent sanctity does not descend upon it.</b>
+
+### Part 19
+Rabbi Ḥiyya bar Abba objected to Rabbi Yoḥanan: You can <b>say that Rabbi Shimon</b> expressed his opinion specifically <b>with regard to</b> one who consecrates <b>a female for a guilt offering,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

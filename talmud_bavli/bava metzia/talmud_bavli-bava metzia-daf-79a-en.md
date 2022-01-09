@@ -1,0 +1,51 @@
+
+### Part 1
+This is <b>the statement of Rabbi Shimon ben Elazar, as Rabbi Shimon ben Elazar would say: If</b> the animal <b>was seized</b> and then taken in the direction in <b>which it</b> was <b>walking,</b> the owner can <b>say to</b> the renter: <b>That which is yours is before you, but if not,</b> the owner is <b>obligated to provide</b> the renter with another <b>donkey.</b>
+
+### Part 2
+The Gemara asks: <b>And can you establish</b> this entire <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rabbi Shimon ben Elazar? But the first clause teaches:</b> With regard to <b>one who rents a donkey and it became ill or went mad,</b> the owner can <b>say to</b> the renter: <b>That which is yours is before you. And yet Rabbi Shimon ben Elazar said</b> in a different <i>baraita</i>: With regard to <b>one who rents a donkey to ride on it, and it becomes ill or goes mad,</b> the owner is <b>obligated to provide</b> the renter with another <b>donkey.</b>
+
+### Part 3
+<b>Rabba bar Rav Huna said</b> that this is not a contradiction. The case of one who takes a donkey <b>to ride on is different,</b> as he requires a donkey that walks steadily. A sick donkey is no better than a dead one for this purpose. <b>Rav Pappa said: And</b> acquiring a donkey so that it should carry <b>glass vessels is considered</b> to be <b>like riding on it,</b> as glass vessels also require steady walking to prevent the load from falling.
+
+### Part 4
+<b>Rabba bar Rav Huna says</b> that <b>Rav says:</b> In the case of <b>one who rents a donkey to ride on it and it died halfway through the journey,</b> the renter <b>gives</b> the owner <b>his fee for half of the journey, but</b> the renter <b>has nothing but a grievance against</b> the owner. He has no legal claim against the owner over the fact that he now has to go to great trouble to find another donkey.
+
+### Part 5
+The Gemara asks: <b>What are the circumstances? If</b> this is referring to a place <b>where</b> donkeys <b>are available for rent, what</b> is the <b>purpose of</b> this <b>grievance?</b> He does not have any cause for grievance in this case, as he can simply rent another donkey and has not lost anything. <b>If</b> it is a place <b>where</b> donkeys <b>are not available for rent,</b> should he be <b>required to give</b> the owner <b>his fee?</b> After all, the donkey failed to perform the task for which it was rented.
+
+### Part 6
+The Gemara explains: <b>Actually,</b> it is referring to a place <b>where</b> donkeys <b>are not available for rent, and</b> the renter must pay the owner <b>due to</b> the fact <b>that</b> the owner of the donkey can <b>say to him: Had you wanted to come to here,</b> i.e., halfway through the journey, <b>wouldn’t you have had to pay a fee?</b> Therefore, pay me for the distance that my donkey carried you.
+
+### Part 7
+The Gemara further inquires: <b>What are the circumstances? If</b> this is referring to a case <b>where</b> the owner <b>said to him:</b> I am renting you <b>an unspecified donkey,</b> the owner is <b>obligated to provide him with another donkey.</b> Since the owner promised him a donkey, if the first donkey is no longer available, he must give him another one. <b>If</b> it is referring to a case <b>where he said to him:</b> I am renting you <b>this</b> particular <b>donkey,</b> then <b>if there is</b> enough <b>money</b> to be gained from selling <b>its</b> carcass <b>to purchase</b> another donkey, <b>let</b> the renter <b>purchase</b> another one.
+
+### Part 8
+The Gemara responds: <b>No,</b> it is <b>necessary</b> to state this <i>halakha</i> only in a case <b>where there is not</b> enough <b>money</b> to be gained <b>from</b> the sale of its carcass <b>to purchase</b> another donkey. The Gemara asks: Even so, <b>if there is</b> enough <b>money</b> to be gained <b>from</b> the sale of its carcass <b>to hire</b> another donkey, <b>let him rent</b> another donkey and continue along his way. What grounds are there for grievance? The Gemara explains that <b>Rav</b> conforms <b>to his</b> standard line of <b>reasoning, as Rav said: One may not fully deplete the principal</b> in order to pay rental fees. Consequently, the renter has no right to sell the carcass, so as not to deplete the entire monetary value of the donkey.
+
+### Part 9
+This is <b>as it was stated</b> in a dispute between <i>amora’im</i> on this issue: With regard to <b>one who rents a donkey and it died halfway through the journey, Rav says: If there is</b> enough <b>money</b> to be gained <b>from</b> the sale of its carcass <b>to purchase</b> another donkey, the renter <b>may purchase</b> one, but if there is enough money only <b>to rent</b> another donkey, <b>he may not rent</b> one. <b>Shmuel says: Even</b> if <b>there is</b> enough money to be gained from the sale of its carcass only <b>to rent</b> another donkey, <b>he may rent</b> one.
+
+### Part 10
+The Gemara asks: <b>With regard to what do they disagree?</b> The Gemara answers: <b>Rav holds</b> that <b>one may not fully deplete the principal,</b> and as the carcass now constitutes the principal value of the donkey, one may not use the proceeds of its sale to pay rental fees, as nothing will be left to return to the owner. <b>And Shmuel holds</b> that <b>one may fully deplete the principal.</b>
+
+### Part 11
+The Gemara <b>raises an objection</b> to Rav’s opinion from a <i>baraita</i> (<i>Tosefta</i>, <i>Arakhin</i> 5:1), which discusses the case of a borrower who gives his lender a tree as a security for a loan so that the lender may eat an amount of its fruit up to the value of the loan. If <b>the tree dried up or was cut down, it is prohibited for both</b> the borrower and lender to use the body of the tree. <b>What should be done? Land should be purchased with</b> the proceeds from the sale of what is left of the tree, <b>and</b> the lender <b>enjoys the profits</b> of that land. The Gemara explains the objection: <b>And</b> yet <b>here, once</b> the <b>Jubilee</b> Year <b>arrives,</b> that purchased <b>land will return to its</b> original <b>owner.</b> It will not remain with the borrower after the loan has been repaid. <b>And</b> it will turn out that <b>the principal is fully depleted,</b> as the borrower will be left with nothing.
+
+### Part 12
+The Gemara responds: <b>With what are we dealing here?</b> We are dealing with a case <b>where he purchased</b> the field <b>for sixty years. As Rav Ḥisda says</b> that <b>Rav Ketina says: From where</b> is it derived with regard <b>to one who sells his field for sixty years</b> or any fixed length of time, <b>that it does not return</b> to its original owner <b>in</b> the <b>Jubilee</b> Year? <b>As it is stated: “And the land shall not be sold in perpetuity”</b> (Leviticus 25:23). This prohibition applies to land <b>which,</b> if <b>there</b> were <b>no Jubilee</b> Year, <b>would be</b> sold <b>in perpetuity,</b> but as <b>there is a Jubilee</b> Year it <b>is not</b> sold <b>in perpetuity.</b> That <b>excludes this</b> case, where the field is sold for a fixed length of time, <b>as even though there is no Jubilee</b> Year <b>it is not</b> sold <b>in perpetuity.</b>
+
+### Part 13
+The Gemara raises a difficulty: <b>Ultimately, when</b> the end of those <b>sixty years arrives, the land will return to its owner, and</b> at that point <b>the principal will be fully depleted.</b> The Gemara answers: <b>Rather, with what are we dealing here?</b> We are dealing <b>with</b> a period <b>when</b> the <i>halakhot</i> of <b>the Jubilee</b> Year <b>are not in effect,</b> as one can purchase land in perpetuity when the Jubilee Year is not observed. The Gemara adds support for this explanation: <b>This too stands to reason, as, if it enters your mind</b> that this <i>halakha</i> is referring to a period <b>when</b> the <i>halakhot</i> of <b>the Jubilee</b> Year <b>are in effect and</b> the ruling is that <b>the principal may be fully depleted,</b> why undertake a complicated transaction? <b>Let</b> the lender simply <b>cut</b> the tree <b>into branches</b> for kindling, <b>and take it</b> and sell it right away.
+
+### Part 14
+The Gemara responds: <b>If</b> the challenge to Rav’s opinion is <b>due to that</b> <i>baraita</i>, it is <b>not difficult.</b> There may be <b>times that the years</b> during which the lender is entitled <b>to the collateral are completed before</b> the arrival of the <b>Jubilee</b> Year, in which case the land would revert to the borrower for a certain amount of time, and therefore the principal is not necessarily fully depleted. <b>Alternatively,</b> it is possible <b>that money comes into</b> the borrower’s possession <b>and he redeems</b> the field <b>four</b> or <b>five years before</b> the arrival of the <b>Jubilee</b> Year. In this case the principal will not be fully depleted, as he repays the loan before the land is returned.
+
+### Part 15
+§ <b>The Sages taught:</b> With regard to <b>one who rents a boat, and it sunk halfway through the journey, Rabbi Natan says: If</b> the renter already <b>gave</b> money for the boat, <b>he does not receive</b> a refund, <b>but if he has not</b> yet <b>given</b> money <b>he does not give</b> it after the boat has sunk.
+
+### Part 16
+The Gemara asks: <b>What are the circumstances</b> of this contract? <b>If we say</b> that the owner stated he was renting him <b>this</b> particular <b>boat and</b> the renter said that he was transporting <b>unspecified wine,</b> then even <b>if he gave</b> money, <b>why should he not receive</b> a refund? <b>Let him say to</b> the owner: <b>Give me the boat</b> so <b>that I can transport wine,</b> and if you cannot do so, refund the rental fee so that I can rent another boat. <b>Rather,</b> one could say that this is referring to a situation where the owner said he would rent him <b>an unspecified boat, and</b> the renter said that he would transport <b>this</b> particular <b>wine.</b> But in that case, even <b>if he did not give</b> money, <b>why should he not give</b> the owner the rental fee?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

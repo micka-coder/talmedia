@@ -1,0 +1,9 @@
+
+### Part 1
+<b>And</b> Rabbi Oshaya <b>said to</b> Rabbi Yoḥanan: <b>Rabbi Yosei holds in accordance with your</b> opinion, <b>as he</b> too <b>says</b> that in this case one <b>becomes impure from now and onward,</b> and any impurity after the start of the seventh day does not cause him to forfeit the previous clean days. The Gemara analyzes Rabbi Oshaya’s statement: <b>But didn’t Rabbi Yosei say</b> that the impurity is <b>retroactive,</b> as stated above? Rather, Rabbi Oshaya must certainly hold as follows: <b>What is</b> the meaning of Rabbi Yosei’s ruling that he is impure <b>retroactively?</b> It means that he is rendered impure only <b>by rabbinic law,</b> but not by Torah law.
+
+### Part 2
+The Gemara poses a question with regard to Rabbi Yosei’s statement: <b>And</b> as to <b>Rabbi Yosei, now, he holds</b> that the status of <b>part of the day is like</b> that <b>of an entire</b> day. <b>How can you find a full-fledged <i>zava</i> who brings an offering? Since she sees</b> a discharge <b>at the midpoint of the day, the other half of the day counts for her</b> as a full day of <b>observing,</b> as part of the day is considered to be like all of a day. The Gemara answers: <b>If you wish, say that</b> she <b>continuously discharges</b> blood for <b>three days consecutively. And if you wish, say that she saw</b> a discharge on <b>three</b> consecutive <b>days close to sunset.</b> In that case she is impure on each occasion at the end of one day and the beginning of the next, so that <b>there was not</b> any <b>time</b> to become pure on the following day so as <b>to be included for her counting</b> of a clean day corresponding to an impure one.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

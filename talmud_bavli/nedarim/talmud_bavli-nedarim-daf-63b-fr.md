@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Et,</b> ainsi, <b>il est enseigne</b> dans un <i>baraita</i> : Si l'on fait un vœu <b>jusqu'a la Nouvelle Lune d'Adar,</b> le vœu reste en vigueur <b>jusqu'a la Nouvelle Lune du premier Adar,</b> et <b>si c'etait une annee bissextile,</b> il reste en vigueur <b>jusqu'a la Nouvelle Lune du deuxieme Adar.</b>
+
+### Partie 2
+La Guemara analyse cette <i>baraita</i> : Cette derniere clause prouve-t-elle <b>par deduction</b> que dans <b>la premiere clause, nous n'avons pas affaire a une annee bissextile</b> ? Dans une annee reguliere, il n'y a qu'un seul mois de Adar, il est donc impossible de parler d'un premier ou d'un deuxieme Adar. Il faut plutot <b>en deduire</b> que <b>cette derniere clause se refere a un cas <b>ou</b> il <b>est evident pour lui que l'annee a ete prolongee,</b> et donc lorsqu'il se refere au mois d'Adar, il designe le deuxieme Adar, alors que <b>cette</b> premiere clause se refere a un cas <b>ou</b> il <b>ne savait pas</b> que c'etait une annee bissextile, auquel cas il designe le premier Adar.
+
+### Partie 3
+<strong>MISHNA :</strong> <b>Rabbi Yehuda dit :</b> Dans le cas de celui qui dit : <b>Le vin est <i>konam</i></b> pour moi, et pour <b>cette</b> raison, <b>je n'y gouterai pas</b> <b>jusqu'a ce que ce soit Pessah,</b> il est entendu que <b>cette</b> personne <b>avait l'intention</b> que son vœu ne s'applique <b>que jusqu'a la nuit de Pessah,</b> c'est-a-dire , <b>jusqu'au moment ou il est d'usage de boire du vin</b> afin d'accomplir la mitsva de boire les quatre coupes, mais il n'avait pas l'intention de s'empecher de pouvoir accomplir cette mitsva.
+
+### Partie 4
+De meme, s'il a dit : <b>La viande est <i>konam</i></b> pour moi, et pour <b>cette</b> raison, <b>je n'y gouterai pas</b> <b>jusqu'a ce que ce soit le jeune</b> de Yom Kippour, <b>il lui est interdit</b> de manger de la viande <b>seulement jusqu'a la veille de [<i>leilei</i>] le jeune. </b> Ceci est <b>parce que</b> il est entendu que <b>cette</b> personne a <b>intentionne</b> que son vœu s'applique <b>uniquement jusqu'au moment ou il est d'usage de manger de la viande</b> lors du repas de fete precedant le jeune, et qu'elle n'a pas eu l'intention de s'empecher de pouvoir participer a ce repas. <b>Rabbi Yosei, son fils, dit :</b> Celui qui fait le vœu : <b>L'ail est <i>konam</i></b> pour moi, et pour <b>cette</b> raison <b>je</b> ne le <b>gouterai</b> <b>que lorsque ce sera Chabbat, il lui est interdit</b> de manger de l'ail <b>seulement jusqu'a la veille de Chabbat, car</b> il est entendu que <b>cette personne</b> <b>a voulu</b> que son vœu s'applique <b>uniquement jusqu'au moment ou il est d'usage de manger de l'ail. </b>
+
+### Partie 5
+Dans le cas de <b>quelqu'un qui dit a un autre : Tirer profit de toi est <i>konam</i> pour moi,</b> c'est-a-dire , Il m'est interdit de tirer un benefice de toi, <b>si tu ne viens pas prendre pour ton fils un <i>kor</i> de ble et deux tonneaux de vin</b> en cadeau, <b>cette</b> autre individu <b>peut dissoudre son vœu sans</b> le <b>consentement</b> d'une <b>autorite halakhique. </b> Ceci parce que <b>il</b> peut lui <b>dire : </b> As-tu <b>dit</b> ton vœu pour <b>une quelconque</b> raison <b>autre qu'en raison de mon honneur,</b> afin de me convaincre d'accepter un cadeau pour mon fils ? <b>C'est mon honneur,</b> que je m'abstienne d'accepter le cadeau, et par consequent le vœu est annule.
+
+### Partie 6
+<b>Et, de meme,</b> dans le cas de <b>celui qui dit a un autre : Beneficier de moi est <i>konam</i> pour toi,</b> c'est-a-dire qu'il t'est interdit de tirer un benefice de moi, <b>si tu ne viens pas donner a mon fils un <i>kor</i> de ble et deux tonneaux de vin, Rabbi Meir dit :</b> Il est <b>interdit</b> a l'autre individu de beneficier de l'orateur <b>jusqu'a ce qu'il donne</b> les cadeaux a son fils. Cependant, <b>les rabbins disent : Meme cet</b> individu qui a fait le vœu <b>peut dissoudre son</b> propre <b>vœu sans</b> le <b>consentement d'une autorite halakhique.</b> Ceci parce que <b>il</b> peut lui <b>dire : Par la presente</b> je le considere <b>comme si j'avais recu</b> le cadeau.
+
+### Partie 7
+Si un individu <b>faisait pression</b> sur un autre <b>pour qu'il epouse la fille de sa sœur, et</b> afin de detourner la pression, l'autre homme <b>a dit : Le benefice de moi est <i>konam</i> pour elle pour toujours,</b> c'est-a-dire qu'il lui est interdit de tirer un quelconque benefice de moi pour toujours, <b>et, de meme,</b> s'il y a <b>quelqu'un qui divorce de sa femme</b> et <b>dit : Le benefice de moi est <i>konam</i></b> pour <b>ma femme a jamais, ces</b> femmes <b>sont autorisees a</b> tirer un <b>benefice de lui, car cet</b> homme <b>a eu l'intention</b> de faire ce vœu <b>uniquement dans le but</b> d'interdire le <b>mariage</b> entre eux, mais pas pour interdire toute forme de benefice.
+
+### Partie 8
+De meme, si l'un <b>exhortait un autre</b> a <b>manger avec lui,</b> et que ce dernier <b>repondait : Entrer dans ta maison</b> est <b><i>konam</i></b> pour <b>moi,</b> tout comme <b>gouter</b> meme <b>une goutte de liquide froid de toi,</b> l'individu qui a fait le vœu est neanmoins <b>permis d'entrer chez lui et de boire une boisson froide</b> <b>de lui. </b> Ceci est <b>parce que cet</b> individu <b>avait l'intention</b> de faire ce vœu <b>uniquement dans le but de manger et de boire</b> un repas, mais pas pour s'interdire d'entrer entierement dans la maison ou de boire en petite quantite (Commentaire sur <i>Nedarim</i>).
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

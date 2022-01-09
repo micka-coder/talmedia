@@ -1,0 +1,36 @@
+
+### Partie 1
+La Guemara demande : En ce qui concerne la <b>preuve</b> que les destinataires doivent apporter, <b>de quelle maniere</b> est-elle apportee ? <b>Rav Huna dit :</b> La <b>preuve</b> est presentee <b>en amenant des <b>temoins</b> qui attestent que le donateur etait en bonne sante. <b>Rav Hisda et Rabba bar Rav Huna disent :</b> La <b>preuve</b> est presentee <b>par</b> la <b>ratification de l'acte,</b> c'est-a-dire que les destinataires sont seulement tenus de s'assurer que les signatures des temoins sur l'acte sont authentiques afin de prouver qu'il n'est pas faux.
+
+### Partie 2
+La Gemara explique : <b>Rav Huna dit</b> que la <b>preuve</b> est presentee <b>en apportant</b> des <b>temoins.</b> Il soutient que Rabbi Meir et les rabbins <b>sont en desaccord par rapport</b> a la question qui fait l'objet de <b>la dispute de Rabbi Yaâkov et Rabbi Natan</b> dans le <i>baraita</i> (153b).
+
+### Partie 3
+La Guemara note <b>un moyen mnemotechnique</b> qui indique quelles opinions tannaitiques sont correlees : <b><i>Manniah</i>,</b> qui represente les lettres <i>mem</i>, <i>nun</i>, <i>yod</i>, <i>het</i>, signifie Meir, Natan, Yaâkov, et les Rabbins [<i>hakhamim</i>]. Cela indique que <b>Rabbi Meir,</b> qui dit que le donateur doit apporter la preuve qu'il etait sur son lit de mort, tient <b>conforme</b> a l'opinion de <b>Rabbi Natan,</b> qui soutient que l'on presume que la situation actuelle reflete la situation au moment ou le cadeau a ete accorde. <b>Et les rabbins,</b> qui disent que les beneficiaires doivent apporter la preuve que le donateur etait en bonne sante, tiennent <b>conformement</b> a l'avis de <b>Rabbi Yaâkov.</b>
+
+### Partie 4
+<b>Rav Hisda et Rabba bar Rav Huna disent</b> que la <b>preuve</b> est presentee <b>par</b> la <b>ratification de l'acte.</b> La Gemara explique : Rav Hisda et Rabba bar Rav Huna soutiennent que Rabbi Meir et les rabbins <b>sont en desaccord en ce qui concerne</b> le fait de savoir si lorsqu'il y a un debiteur <b>qui admet avoir ecrit</b> un <b>billet a ordre,</b> le creancier <b>doit le ratifier</b> au tribunal afin de percevoir le paiement. La meme decision s'appliquerait a un cas ou la personne sur son lit de mort admet avoir ecrit l'acte accordant le don. Ils expliquent <b>que Rabbi Meir considere</b> que lorsqu'il y a un debiteur <b>qui admet avoir ecrit</b> un <b>billet a ordre,</b> le creancier <b>n'a pas besoin de le ratifier</b> au tribunal pour percevoir le paiement, et dans ce cas le donateur ne peut pas invalider l'acte en pretendant qu'il etait sur son lit de mort. <b>Mais les rabbins soutiennent</b> que meme lorsqu'il y a un debiteur <b>qui admet avoir ecrit</b> un <b>billet a ordre,</b> le creancier <b>doit le ratifier</b> au tribunal afin de percevoir le paiement.
+
+### Partie 5
+La Gemara demande : <b>Mais n'ont-ils pas</b> deja <b>desaccorde a propos de cette</b> question <b>une fois ? Comme il est enseigne</b> dans une <i>baraita</i> : En ce qui concerne les temoins qui ont ratifie leur signature mais ont affirme qu'au moment ou ils ont signe le document, ils n'etaient pas aptes a temoigner, leur temoignage n'est <b>pas juge credible pour invalider</b> le document ; c'est <b>la declaration de Rabbi Meir. Et les rabbins disent :</b> Leur temoignage est <b>repute credible.</b>
+
+### Partie 6
+La Guemara repond : Il <b>est necessaire</b> d'enoncer les deux cas, <b>car si</b> seul <b>cette</b> cas concernant les temoins qui ont disqualifie leur temoignage <b>a ete enonce,</b> on pourrait penser que <b>les Sages disent</b> que leur temoignage n'est accepte que <b>dans ce</b> cas, <b>en raison</b> du fait <b>que</b> le temoignage des <b>temoins est puissant et qu'ils peuvent alterer</b> la validite du <b>document, mais ici,</b> en ce qui concerne <b>lui,</b> le donneur, <b>qui</b> a admis qu'il a ecrit l'acte mais qu'il <b>n'a pas le pouvoir</b> de porter atteinte a la validite de l'acte, <b>je dirais</b> que sa demande est <b>non</b> acceptee.
+
+### Partie 7
+<b>Et si</b> seul <b>ce cas</b>, a l'egard d'un debiteur qui admet avoir ecrit un billet a ordre, <b>etait enonce,</b> on pourrait penser que <b>Rabbi Meir dit</b> que le donneur ne peut pas invalider l'acte seulement <b>a l'egard de ce</b> cas, <b>mais en ce qui concerne ce</b> cas, ou les temoins ont ratifie leurs signatures, <b>je dirais</b> que Rabbi Meir <b>concede aux rabbins</b> que les temoins peuvent invalider l'acte. Par consequent, il <b>est necessaire</b> d'enoncer le differend dans les deux cas.
+
+### Partie 8
+<b>Et Rabba dit aussi :</b> En ce qui concerne la <b>preuve</b> que doivent presenter les beneficiaires, elle est presentee <b>en amenant</b> des <b>temoins</b> qui attestent que le donateur etait en bonne sante. <b>Abaye lui dit : Quelle est la raison</b> de cela ? <b>Si nous disons</b> que <b>en raison</b> du fait <b>que dans tous</b> les actes de don la formulation suivante <b>est ecrite : Quand il marchait sur ses pieds sur la place du marche,</b> ce qui indique que le don etait le don d'une personne en bonne sante, <b>et dans cet</b> acte ceci <b>n'etait pas ecrit,</b> donc on peut <b>conclure de</b> l'acte que le donateur <b>etait sur son lit de mort,</b> ce n'est pas correct. <b>Au contraire,</b> on pourrait dire que <b>en raison</b> du fait <b>que dans tous</b> les actes concernant les dons d'une personne sur son lit de mort, ce qui suit <b>est ecrit : Lorsqu'il etait malade et couche dans son lit, et que dans cet</b> acte ceci <b>n'etait pas ecrit,</b> on peut donc <b>conclure de</b> l'acte que le donateur <b>etait en bonne sante.</b>
+
+### Partie 9
+Rabba a repondu : Puisqu'on <b>peut dire ceci et</b> on <b>peut dire cela,</b> on ne peut rien conclure de la formulation de l'acte. Par consequent, en raison de l'incertitude, <b>etablissez le bien en la possession de son</b> dernier <b>proprietaire connu.</b>
+
+### Partie 10
+<b>Et</b> ce differend relatif a la declaration des rabbins fait egalement l'objet <b>d'un differend</b> entre d'autres <i>amoraim</i>, <b>comme le dit Rabbi Yohanan : </b> La <b>preuve</b> est presentee <b>en apportant des <b>temoins, et Rabbi Shimon ben Lakish dit : </b> La <b>preuve</b> est presentee <b>par</b> la <b>ratification de l'acte. </b>
+
+### Partie 11
+<b>Rabbi Yohanan a souleve une objection a Rabbi Shimon ben Lakish</b> a partir d'une <i>baraita</i> : Il y avait <b>un incident a Bnei Brak impliquant quelqu'un qui a vendu</b> certains <b>des biens de son pere</b> dont il avait herite, <b>et il est mort, et</b> les <b>membres de</b> sa <b>famille sont venus et ont conteste</b> la vente, <b>en disant : Il etait mineur au moment de</b> sa <b>mort,</b> et donc la vente n'etait pas valable. <b>Et ils vinrent demander a Rabbi Akiva : Quelle est</b> la <i>halakha</i> ? Est-il permis d'exhumer le cadavre pour <b>l'examiner</b> et verifier si l'heritier etait mineur ou non au moment de son deces ? Rabbi Akiva <b>leur a dit :</b> Il n'est <b>pas permis</b> que <b>vous le deshonoriez</b> au nom d'une revendication pecuniaire. <b>Et de plus, les signes</b> indiquant la puberte <b>sont susceptibles de changer apres la mort,</b> et donc rien ne peut etre prouve en exhumant le corps.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

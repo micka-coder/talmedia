@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>La plante se multiplie</b>, comme si elle etait coupee une autre pousse, <b>et ses racines sont nombreuses. Et meme si tous les vents qui sont dans le monde viennent et soufflent contre elle, ils ne la deplacent pas de sa place</b> et ne la deracinent pas. <b>Au contraire, elle va et vient avec</b> les vents. Et <b>lorsque les vents se calment, le roseau reste a sa place.</b>
+
+### Partie 2
+<b>Mais Balaam le mechant les a benis avec un cedre.</b> Il y a un aspect de malediction dans cette benediction, car il disait qu'ils seront <b>juste comme un cedre</b> qui <b>ne se tient pas dans un endroit</b> pres de <b>l'eau, et ses racines sont peu</b> par rapport a sa hauteur, <b>et son tronc ne se reconstitue pas</b> lui-meme, comme si on le coupe il ne repousse pas. Et <b>meme</b> si <b>tous les vents qui sont dans le monde viennent et soufflent en rafale contre lui, ils ne le deplacent pas de sa place</b> et ne le deracinent pas ; mais <b>lorsqu'un vent du sud souffle en rafale, il deracine aussitot</b> le cedre <b>et le renverse sur sa face. De plus,</b> c'est <b>le roseau qui avait le privilege</b> d'avoir <b>une plume [<i>kulmos</i>] prise sur lui pour ecrire des rouleaux de Torah, de Prophetes et d'Ecrits.</b> Par consequent, la malediction d'Ahijah est meilleure que la benediction de Balaam.
+
+### Partie 3
+§ Il est dit a propos de Balaam : <b>"Et il regarda le Kenite et il reprit sa parabole</b> et dit : Quoique ferme soit ta demeure, et quoique ton nid soit fixe dans le roc" (Nombres 24:21). <b>Balaam dit a Yitro : Kenite,</b> n'etais-tu pas en Egypte avec nous dans ce conseil</b> de noyer les males nouveau-nes d'Israel ? <b>Qui t'a place aux cotes des puissants de ce monde ?</b>
+
+### Partie 4
+La Gemara commente : <b>Et c'est ce que dit Rabbi Hiyya bar Abba</b> que <b>Rabbi Simai dit : Trois etaient</b> associes <b>a ce conseil, et ce sont : Balaam, Job, et Yitro. Balaam, qui a conseille</b> de noyer les males nouveau-nes, <b>a ete tue. Job, qui se taisait</b> et rechignait a exprimer son opinion, <b>a ete condamne a</b> subir des <b>afflictions. Et Yitro, qui s'est enfui</b> apres avoir ete en desaccord avec ce conseil et que Pharaon ait cherche a le tuer, <b>ses descendants ont eu le privilege de sieger</b> comme scribes en session avec le Sanhedrin <b>dans la Chambre de la pierre taillee, comme il est dit :" Et les familles des scribes qui habitaient a Jabez ; les Tirathites, les Shimeathites, les Sucathites. Ce sont les Kenites qui venaient de Hammath, le pere de la maison de Rechab"</b> (IA Chroniques 2:55). <b>Et il est ecrit la</b> en ce qui concerne l'identite des Kenites : <b>"Et les enfants du Kenite, Moise beau-pere, monterent de la ville des palmiers"</b> (Juges 1:16).
+
+### Partie 5
+En ce qui concerne le verset : <b>"Et il reprit sa parabole, et dit : Helas, celui qui vit de ce que Dieu lui a designe"</b> (Nombres 24:23), <b>Rabbi Shimon ben Lakish dit : Malheur a celui qui se soutient</b> de maniere indulgente <b>au nom de Dieu,</b> c'est-a-dire Balaam, dont le gagne-pain etait de parler au nom de Dieu. <b>Rabbi Yohanan dit : Malheur a la nation que l'on trouvera</b> entravant le peuple juif <b>au moment ou le Saint, Beni soit-Il, rachete Ses enfants. Qui place son vetement entre un lion male et une lionne lorsqu'ils s'accouplent ?</b> Celui qui le fait mourra certainement.
+
+### Partie 6
+En ce qui concerne le verset : <b>"Et des navires viennent de la cote de Kittim"</b> (Nombres 24:24), <b>Rav dit:</b> Il s'agit de <b>la legion romaine [<i>libbun aspir</i>]</b> qui attaquera l'Assyrie. <b>"Et ils affligeront l'Assyrie, et ils affligeront Eber"</b> (Nombres 24:24). <b>Avant</b> qu'ils n'atteignent <b>l'Assyrie, ils tueront</b> le peuple juif ; <b>a partir de ce</b> point, ils les asserviront</b> et ne les tueront pas.
+
+### Partie 7
+§ Balaam dit a Balak : <b>Voici, je vais vers mon peuple ; viens donc, et je te conseillerai ce que ce peuple fera a ton peuple"</b> (Nombres 24:14). Ostensiblement, <b>il aurait du</b> dire : Ce que <b>votre peuple</b> doit faire <b>a ce peuple. Rabbi Abba bar Kahana dit :</b> Balaam a parle <b>comme une personne qui se maudit</b> mais ne souhaite pas prononcer un sujet aussi affreux <b>et</b> au contraire <b>ecrit sa malediction pour</b> prendre effet sur <b>les autres.</b>
+
+### Partie 8
+Balaam <b>leur a dit : Le Dieu de ce</b> peuple juif <b>deteste la debauche, et ils desirent des vetements de lin,</b> car ils n'ont pas de vetements neufs ; <b>venez, et je vous donnerai un conseil. Fais-leur</b> des enceintes en utilisant des <b>murs et assieds-y des prostituees,</b> avec <b>une vieille femme a l'exterieur</b> de l'enceinte <b>et une jeune femme a l'interieur, et</b> fais en sorte que les femmes <b>leur vendent des vetements de lin.</b>
+
+### Partie 9
+Balak <b>leur a fabrique</b> des enceintes en utilisant des <b>murs suspendus a la montagne de neige,</b> l'Hermon, <b>jusqu'a Beit HaYeshimot, et il y a assis des prostituees,</b> avec <b>une vieille femme a l'exterieur et une jeune femme a l'interieur. Et au moment ou les juifs mangeaient et buvaient, se rejouissaient et sortaient se promener sur la place du marche, la vieille femme disait a</b> un juif : <b>Tu ne cherches pas des vetements de lin ?</b> Il entrerait dans l'enceinte et demanderait le prix, <b>la vieille femme lui citerait</b> un prix <b>egal</b> a sa valeur, <b>et la jeune femme lui citerait</b> un prix <b>inferieur</b> a sa valeur. Ce scenario se repeterait <b>deux ou trois fois.</b>
+
+### Partie 10
+<b>Et par la suite, elle lui disait : Tu es comme un membre de notre foyer, assieds-toi</b> et <b>choisis toi-meme</b> la marchandise que tu veux. <b>Et une cruche de vin ammonite etait placee pres d'elle, et</b> ni <b>le vin ammonite ni le vin des gentils n'avaient encore ete interdits</b> aux Juifs. <b>Elle lui dit : Est-ce que tu veux boire une coupe de vin ? Des qu'il eut bu</b> le vin, son mauvais penchant <b>brula en lui.</b>
+
+### Partie 11
+<b>Il</b> lui a alors <b>dit : Soumets-toi a moi</b> et engage des rapports sexuels avec moi. <b>Elle</b> alors <b>enleva</b> de ses genoux l'<b>idole</b> qu'elle <b>adorait et lui dit : Adore ceci. Il lui repondit : Ne suis-je pas juif ? </b> Il m'est donc interdit de me livrer au culte des idoles. <b>Elle lui a dit : Et qu'est-ce qui te preoccupe ? Nous ne te demandons rien d'autre que de defequer</b> en sa presence. <b>Mais il ne sait pas que son adoration</b> se fait <b>de cette maniere</b>. Une fois qu'il l'a fait, elle lui dit : <b>En outre, je ne te quitterai pas tant que tu ne renieras pas la Torah de Moise ton maitre, comme il est dit : "Mais lorsqu"?ils sont arrivés A Baâl-Peor, ils se sont séparés A l"?article honteux ; et ils sont devenus détestables comme ce qu"?ils aimaient"</b> (Osée 9:10). Ils se sont consacres a l'ignominie de la defecation, et ont deteste le nom de Dieu.
+
+### Partie 12
+En ce qui concerne le verset : <b>"Et Israel habita a Shittim"</b> (Nombres 25:1), <b>Rabbi Eliezer dit : Shittim</b> est <b>le nom de</b> l'endroit. <b>Rabbi Yehoshua dit :</b> C'est une allusion au fait <b>qu'ils s'occupaient de choses insensees [<i>shetut</i>],</b> c'est-a-dire la prostitution et le culte des idoles.
+
+### Partie 13
+En ce qui concerne le verset : <b>"Et ils appelerent [<i>vatikrena</i>] le peuple aux offrandes de leurs dieux"</b> (Nombres 25:2), <b>Rabbi Eliezer dit : Des femmes nues les ont rencontres. Rabbi Yehoshua dit : Ils sont tous devenus ceux qui ont connu une emission seminale [<i>kerayin</i>]</b> resultant de la luxure qu'ils ont eprouvee.
+
+### Partie 14
+A propos de l'interpretation homiletique des noms de lieux, la Gemara demande : <b>Quelle</b> est la connotation du <b>terme Rephidim</b> (voir Exode 19:2) ? <b>Rabbi Eliezer dit : Rephidim</b> est <b>le nom de</b> l'endroit. <b>Rabbi Yehoshua dit :</b> C'est une allusion au fait <b>qu'ils se sont affaiblis [<i>rippu</i>] par rapport a</b> l'engagement dans des <b>questions de Torah, comme il est dit : "Les pères ne regardent pas en arrière vers leurs enfants A cause de la faiblesse [<i>rifyon</i>] des mains"</b> (Jerémie 47:3). La aussi, la connotation de ce nom est la dereliction dans l'etude de la Torah.
+
+### Partie 15
+<b>Rabbi Yohanan dit : Partout ou il est indique : Et il habita, ce n'est rien d'autre qu'une expression de douleur,</b> d'une calamite imminente, <b>comme il est dit : "Et Israel habita a Shittim, et le peuple commenca a se prostituer avec les filles de Moab"</b> (Nombres 25, 1). Il est dit : <b>Et Jacob habita dans le pays ou son pere avait sejourne au pays de Canaan"/b> (Genese 37:1), et il est dit ensuite : <b>"Et Joseph rapporta a son pere un mauvais rapport a leur sujet"</b> (Genese 37:2), ce qui entraina la vente de Joseph. <b>Et il est precise : <b>Et Israel habita</b> au pays d'Egypte <b>au pays de Gosen"</b> (Genese 47:27), et il est dit par la suite : <b>"Et le temps approcha ou Israel devait mourir"</b> (Genese 47:29). Il est precise : <b>"Et Juda et Israel habiterent en securite, chacun sous sa vigne et sous son figuier"</b> (IA Rois 5:5), et il est dit ensuite : <b>"Et le Seigneur suscita un adversaire a Salomon, Hadad l'Edomite ; il etait de la race du roi en Edom"</b> (IA Rois 11:14).
+
+### Partie 16
+§ A propos de Balaam, il est dit : <b>"Et ils tuerent les rois de Madian, avec le reste de leurs morts"¦Et Balaam, fils de Beor, ils le tuerent par l'epee"</b> (Nombres 31, 8). La Gemara demande : <b>Balaam, que cherchait-il la-bas;</b> quel etait son role dans cette guerre ? Il vivait a Aram. <b>Rabbi Yohanan dit : Il est alle chercher le paiement de vingt-quatre mille</b> membres <b>du peuple juif, qu'il a abattus</b> par ses conseils. <b>Mar Zutra bar Toviya dit</b> que <b>Rav dit</b> que <b>ceci</b> est conforme a l'adage <b>qu'on dit : Un chameau va chercher des cornes</b> et <b>les oreilles qu'il avait lui sont coupees.</b> Non seulement Balaam n'a pas reussi a percevoir ses honoraires, mais il a aussi perdu la vie.
+
+### Partie 17
+Il est dit : <b>"Et Balaam, fils de Beor, le devin,</b> les enfants d'Israel le tuerent par l'epee parmi le reste de leurs morts" (Josue 13:22). La Gemara demande : Etait-il <b>un devin ? Il est un prophete. Rabbi Yohanan dit : Initialement</b> il etait <b>un prophete, mais finalement,</b> il a perdu sa capacite de prophetie et est reste simplement <b>un devin. Rav Pappa dit</b> que <b>ceci</b> est en accord avec l'adage <b>qu'on dit : </b> Cette femme <b>etait</b> descendante <b>de princes et de dirigeants,</b> et <b>etait licencieuse avec des charpentiers.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Partie 1
+<b>Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : <b>De meme, Rabbi Yosei a dit :</b> Il est declare a propos de ceux qui sont revenus de Babylonie a l'epoque d'Esdras : <b>"Les enfants de la captivite qui sont sortis de l'exil ont sacrifie des holocaustes</b> au Dieu d'Israel, <b>douze taureaux</b> pour tout Israel, <b>quatre-vingt-seize beliers, soixante-dix-sept agneaux, douze chevres pour le sacrifice pour le peche ; tout cela a ete un holocauste pour le Seigneur"</b> (Esdras 8:35).
+
+### Partie 2
+La Gemara analyse d'abord ce verset : <b>Mais est-il</b> possible qu'une <b>offrande pour le peche</b> soit <b>sacrifiee</b> comme <b>un holocauste ? Rava a dit :</b> Le verset signifie que tout a ete accompli a la maniere <b>d'un holocauste : De meme qu'un holocauste ne peut etre mange, de meme,</b> cette <b>offrande de peche</b> n'a <b>pas ete mangee. Comme le dirait Rabbi Yosei : Ils ont apporte ces</b> douze offrandes de peche <b>pour</b> le peche d'adoration d'un <b>idol ; et Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Elles ont ete apportees <b>pour le peche d'adoration d'un <b>idol qu'ils ont commis a l'epoque du</b> roi <b>Zedekiah.</b>
+
+### Partie 3
+La Guemara explique la difficulte a propos de laquelle elle a cite ce verset : Il pourrait <b>entrer dans notre esprit</b> de penser que <b>selon celui qui soutient</b> que <b>une offrande de peche commune dont les proprietaires ont realise l'expiation</b> avec une autre offrande de peche est laissee a <b>mourir,</b> il <b>soutient egalement</b> que <b>une offrande de peche commune dont les proprietaires sont morts</b> est laissee a <b>mourir. Mais ici,</b> en ce qui concerne les offrandes apportees par les exiles de retour, <b>c'est</b> un cas <b>de</b> une offrande de peche communautaire <b>dont les proprietaires sont morts,</b> car le peche a ete commis a l'epoque de Sedecias, a l'epoque du Premier Temple, alors que les offrandes ont ete apportees plusieurs generations plus tard par ceux qui sont revenus pour reconstruire le Second Temple. <b>Et</b> pourtant <b>elles ont ete sacrifiees.</b> Cela prouve qu'une offrande de peche communautaire dont les proprietaires ont obtenu l'expiation par une autre offrande de peche n'est pas laissee pour morte.
+
+### Partie 4
+<b>Rav Pappa a dit</b> en reponse : <b>Meme selon celui qui a dit</b> que <b>une offrande de peche communautaire dont les proprietaires ont realise l'expiation</b> avec une autre offrande de peche est laissee a <b>mourir,</b> il convient qu'une <b>offrande de peche communautaire dont les proprietaires sont morts n'est pas</b> laissee a <b>mourir.</b> Ceci est <b>parce qu'une communaute ne meurt pas.</b>
+
+### Partie 5
+La Gemara demande : <b>D'ou Rav Pappa tire-t-il cette</b> affirmation ? <b>Si nous disons</b> c'est <b>parce qu'il est ecrit : "Vos fils seront A la place de vos pères"</b> (Psaumes 45:17), c'est-A -dire qu'on considère que les pères sont vivants, <b>si c'est le cas,</b> alors cela devrait s'appliquer <b>même</b> A <b>un individu aussi.</b> En d'autres termes, les fils devraient pouvoir sacrifier les offrandes pour le péché de leurs pères décédés.
+
+### Partie 6
+<b>C'est plutot</b> le <b>raisonnement</b> de Rav Pappa pour son affirmation <b>qu'une communaute ne meurt pas.</b> Il est derive <b>de</b> la <i>halakha</i> des <b>chevres</b> sacrifiees lors des <b>fetes de pelerinage et</b> des <b>nouvelles lunes, comme le declare le Misericordieux : Apportez-les des</b> fonds de la <b>collection de la <b>chambre du tresor</b> du Temple,</b> ou l'on gardait les demi-shekels donnes chaque annee au mois d'Adar, avec lesquels on achetait les offrandes communales. La Gemara explique : <b>Mais peut-etre que les proprietaires de ces pieces</b> qui servaient a acheter ces offrandes <b>sont decedes</b> dans l'intervalle entre le mois d'Adar et le moment ou les offrandes sont sacrifiees tout au long de l'annee. Dans ce cas, comment peut-on apporter une offrande pour le peche au nom de certains de ses proprietaires qui sont deja morts ? <b>Au contraire, n'est-il pas</b> correct de <b>conclure de</b> cette <i>halakha</i> que <b>une communaute ne meurt pas ?</b>.
+
+### Partie 7
+<b>Et si vous le souhaitez, dites</b> plutot une reponse differente en reponse a la difficulte precedente : Les offrandes pour le peche d'idolatrie apportees par les exiles de retour n'etaient en fait pas sacrifiees pour des personnes qui etaient mortes. Au contraire, <b>lorsqu'ils sacrifiaient ces offrandes pour le peche</b> pour l'idolatrie commise a l'epoque de Sedecias, <b>ils les sacrifiaient pour les vivants,</b> c'est-a-dire pour les survivants qui avaient adore les idoles a l'epoque de Sedecias et qui etaient encore en vie plusieurs decennies plus tard et etaient revenus pour reconstruire le Second Temple. <b>Comme il est ecrit : "Mais beaucoup de pretres, de levites, de chefs de maisons paternelles, de vieillards qui avaient vu la premiere maison debout sur ses fondations, pleurerent a haute voix quand cette maison</b> fut devant leurs yeux ; <b>et beaucoup pousserent des cris</b> de joie" (Esdras 3:12).
+
+### Partie 8
+La Guemara objecte : <b>Mais peut-etre que ceux</b> qui sont restes et se sont souvenus du Premier Temple etaient <b>la minorite,</b> auquel cas ils auraient du apporter chacun des offrandes de peche individuelles, plutot qu'une offrande de peche commune. Le fait qu'ils aient apporte des sacrifices communautaires indique que l'offrande pour le peche n'a pas ete apportee uniquement au nom des quelques personnes qui sont restees. La Guemara explique : <b>On ne peut pas dire</b> qu'ils etaient la minorite, <b>car il est ecrit</b> dans le verset suivant : <b>Si bien que le peuple ne pouvait pas discerner le bruit du cri de joie du bruit des pleurs du peuple ;</b> car le peuple criait d'un grand cri, et le bruit etait entendu au loin" (Esdras 3:13). Ce verset montre que les gens qui ont pleure parce qu'ils se souvenaient du Premier Temple n'etaient pas une petite minorite.
+
+### Partie 9
+La Guemara demande : <b>Mais comment pouvaient-ils sacrifier</b> des offrandes de peche pour le peche d'idolatrie ? Apres tout, <b>ils etaient intentionnellement</b> des adorateurs d'idoles, et une offrande pour le peche n'est apportee que par celui qui peche involontairement. <b>Rabbi Yohanan dit</b> en reponse : <b>C'etait un edit provisoire</b> emis dans des circonstances exigeantes, selon lequel il leur etait permis d'apporter des offrandes de peche meme pour des peches intentionnels.
+
+### Partie 10
+La Guemara ajoute que <b>cela tient aussi de la raison, car, si on ne le dit pas,</b> on peut objecter comme suit : <b>Grace,</b> ils ont sacrifie douze <b>bulls et boucs,</b> puisque chaque tribu doit apporter une offrande de peche commune, comme le stipule la Torah (Nombres, chapitre 15), et ces offrandes <b>correspondent</b> aux <b>douze tribus. Mais a quoi</b> correspondent <b>les quatre-vingt-seize <b>moutons</b> ? Il faut plutot penser que <b>c'etait un edit provisoire.</b>
+
+### Partie 11
+§ Plus tot, la Guemara a mentionne la <i>halakha</i> d'une offrande de peche dont le proprietaire est decede, qui etait l'une des <i>halakhot</i> oubliees pendant la periode de deuil de Moise (voir 16a). A ce sujet, la Gemara dit que <b>on a appris</b> dans une mishna <b>la</b> (<i>Sota</i> 47a) : <b>Depuis</b> le moment <b>ou Yosef ben Yoezer de Tzereida et Yosef ben Yohanan de Jerusalem sont morts, les grappes [<i>eshkolot</i>] ont cesse,</b> c'est-a-dire qu'elles etaient les dernieres des grappes. La Gemara demande : Quelle est la signification de <i>eshkolot</i> ? Cela signifie <b>un homme qui contient tout [<i>ish shehakol bo</i>],</b> c'est-a-dire a la fois la Torah et les mitzvot.
+
+### Partie 12
+<b>Et Rav Yehuda dit</b> que <b>Shmuel dit : Tous</b> les <b>clusters qui se tenaient</b> a la tete <b>du peuple juif, depuis l'epoque de Moise jusqu'a la mort de Yosef ben Yoezer, etudieraient la Torah</b> a la maniere <b>de Moise, notre maitre. A partir de ce</b> point, <b>ils n'etudieraient plus la Torah</b> a la maniere <b>de Moise, notre maitre.</b>
+
+### Partie 13
+La Gemara objecte : <b>Mais Rav Yehuda ne dit-il pas</b> que <b>Shmuel a dit : Trois mille <i>halakhot</i> ont ete oubliees pendant les jours de deuil de Moise.</b> Cela suggere que les Sages qui sont venus immediatement apres Moise n'ont pas etudie la Torah de la meme maniere que Moise. La Guemara repond : Les <i>halakhot</i> <b>qu'ils ont oubliees, ont ete oubliees, mais</b> en ce qui concerne les <i>halakhot</i> <b>qu'ils ont etudiees, ils</b> continueraient a <b>etudier</b> a la maniere <b>de Moise, notre maitre.</b>
+
+### Partie 14
+La Gemara objecte : <b>Mais n'est-il pas enseigne</b> dans un <i>baraita</i> en ce qui concerne la resolution des questions de <i>halakha</i> : <b>Depuis</b> l'epoque <b>ou Moise est mort, si la majorite juge</b> un element <b>impur, ils</b> l'ont etabli comme <b>impur,</b> et <b>si la majorite juge</b> un element <b>pur, ils</b> l'ont etabli comme <b>pur. </b> Si tel est le cas, alors la maniere d'etudier la Torah apres la mort de Moise est basee sur une majorite, alors que lorsque Moise etait vivant, il n'y avait pas de contestation en matiere de <i>halakha</i>.
+
+### Partie 15
+La Guemara explique que cette <i>baraita</i> fait reference specifiquement aux <i>halakhot</i> qui ont ete oubliees pendant la periode de deuil apres la mort de Moise. Comme la comprehension du <b>cœur etait limitee [<i>libba deimeit</i>],</b> les Sages n'ont pas pu parvenir a une decision claire sur ces questions. Par consequent, ils ont du suivre la majorite. Mais en ce qui concerne toutes les autres <i>halakhot</i> <b>qu'ils etudiaient, ils les etudiaient</b> a la maniere <b>de Moise, notre maitre.</b>
+
+### Partie 16
+<b>On l'enseignait dans une <i>baraita</i> : Tous</b> les <b>clusters qui se sont tenus</b> a la tete <b>du peuple juif depuis l'epoque de Moise jusqu'a la mort de Yosef ben Yoezer n'avaient aucun defaut en eux. A partir de ce</b> point, <b>a partir de maintenant</b> les clusters, c'est-a-dire la direction du peuple juif, <b>avaient des defauts en eux.</b>
+
+### Partie 17
+La Guemara souleve une difficulte : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant un certain homme pieux qui gemissait,</b> c'est-a-dire souffrait, <b>en raison</b> d'une douleur dans <b>son cœur. Et ils demanderent aux medecins</b> ce qu'il fallait faire pour lui, <b>et ils dirent : Il n'y a pas d'autre remede pour lui que de lui faire teter du lait chaud</b> chaque <b>matin. Et ils lui apporterent</b> <b>une chevre et l'attacherent au pied du lit pour lui, et il en tetait le lait.</b>
+
+### Partie 18
+<b>Le lendemain, ses amis entrerent pour lui rendre visite. Lorsqu'ils virent la chevre</b> attachee au pied du lit <b>ils dirent :</b> Il y a <b>un bandit arme dans la </b> maison de cet </b> homme, et nous entrons pour lui rendre visite ? </b> Ils designerent la chevre de cette maniere car les petits animaux ont l'habitude de brouter la vegetation des voisins, volant leurs recoltes. Les Sages <b>s'assirent et examinerent</b> le comportement de cet homme pieux, <b>et ils ne purent trouver</b> aucune <b>transgression</b> qui lui soit imputable autre que</b> le peche <b>de</b> garder <b>cette chevre</b> dans sa maison <b>seule.</b>
+
+### Partie 19
+<b>Et cet</b> homme lui-meme <b>a egalement dit au moment de sa mort : Je sais</b> pour sur <b>en ce qui me concerne que je n'ai aucune transgression</b> attribuable <b>a moi mais</b> le peche <b>de</b> garder <b>ce bouc</b> dans ma maison <b>seule, comme j'ai transgresse la declaration de mes collegues,</b> les Sages. <b>Comme le disent les Sages</b> dans une mishna (<i>Bava Kamma</i> 79b) : <b>On ne peut pas elever de petits animaux domestiques,</b> c'est-a-dire des moutons et des chevres, <b>dans les zones habitees de <b>Eretz Yisrael,</b> car ils broutent les cultures des gens.
+
+### Partie 20
+<b>Et nous soutenons</b> que <b>partout ou il est dit : </b> Il y eut <b>un incident impliquant un certain homme pieux</b>, l'homme en question est <b>soit Rabbi Yehuda ben Bava, soit Rabbi Yehuda bar Ilai. Et</b> ces <b>Sages</b> ont vecu <b>de nombreuses generations apres Yosef ben Yoezer de Tzereida.</b> Si c'est le cas, alors meme dans les generations ulterieures il y avait des Sages sans defaut.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

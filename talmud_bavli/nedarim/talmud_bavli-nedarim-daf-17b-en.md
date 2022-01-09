@@ -1,0 +1,27 @@
+
+### Part 1
+in this case <b>there is no vow within a vow.</b> The Gemara concludes: This question is <b>difficult,</b> although it is not a conclusive refutation.
+
+### Part 2
+The Gemara raises several problems with the opinion of Rav Huna. <b>We learned</b> in the mishna: <b>There is a vow within a vow, but there is no oath within an oath. What are the circumstances? If we say</b> that the case of a vow within a vow is <b>where</b> one <b>said: I am hereby a nazirite today, I am a hereby a nazirite tomorrow,</b> that <b>in the corresponding</b> situation <b>with regard to an oath</b> within an oath, which will not take effect, is where one said: I hereby take an oath <b>that I will not eat figs, and he then said:</b> I hereby take <b>an oath that I will not eat grapes,</b> i.e., he took two separate oaths; if so, <b>why does an</b> additional <b>oath not take effect</b> where <b>an oath</b> was already made? It ought to take effect, as the second oath is not connected to the first one.
+
+### Part 3
+<b>Rather, what are the circumstances in which</b> a second <b>oath does not take effect</b> after <b>an oath</b> was already made? <b>For example, where</b> one <b>said:</b> I hereby take <b>an oath that I will not eat figs, and he again said:</b> I hereby take <b>an oath that I will not eat figs. In the corresponding</b> situation <b>with regard to naziriteship, what are the circumstances?</b> It must be a case <b>where</b> one <b>said: I am hereby a nazirite today, I am a hereby a nazirite today; and</b> the mishna <b>teaches</b> that in this case <b>there is a vow within a vow.</b> This poses <b>a difficulty to</b> the opinion of <b>Rav Huna,</b> who holds that in this case the second vow does not take effect.
+
+### Part 4
+The Gemara answers that <b>Rav Huna</b> could have <b>said to you</b> that <b>the mishna</b> is referring to a case <b>where</b> one <b>said: I am hereby a nazirite today, I am hereby a nazirite tomorrow;</b> that <b>in the corresponding</b> situation <b>with regard to an oath</b> is <b>where</b> one <b>said:</b> I hereby take an oath <b>that I will not eat figs, and then said:</b> I hereby take <b>an oath that I will not eat figs and grapes,</b> the second oath <b>does not take effect,</b> as he had already taken an oath with regard to part of its content.
+
+### Part 5
+The Gemara asks: <b>But didn’t Rabba say</b> that if one said: I hereby take <b>an oath that I will not eat figs, and then said:</b> I hereby take <b>an oath that I will not eat figs and grapes, and he</b> subsequently <b>ate figs,</b> violating the oath, <b>and he</b> then <b>set aside an offering</b> for the violation of an oath on a statement, <b>and he then ate grapes,</b> in this case the <b>grapes</b> that he ate <b>are</b> only <b>a half-measure</b> of the second oath. The inclusion of both figs and grapes in the oath indicates that his intention was to prohibit himself from eating both. Since he already set aside an offering for eating the figs, he is now considered as having eaten only grapes and as having violated only half of the oath. <b>And</b> therefore he is not liable to bring an offering for violating the second oath, as <b>one does not bring an offering for a half-measure.</b>
+
+### Part 6
+The fact that he is exempt from bringing an offering merely because he ate a half-measure indicates that the second oath took effect. <b>Apparently, where</b> one <b>said:</b> I hereby take <b>an oath that I will not eat figs, and then said:</b> I hereby take <b>an oath that I will not eat figs and grapes, since the</b> second <b>oath</b> can <b>take effect with regard to grapes,</b> as grapes were not included in the first oath, <b>it takes effect with regard to figs as well.</b> This poses a problem according to the opinion of Rav Huna, who would explain the mishna as teaching that the second oath in this case does not take effect at all. The Gemara answers: This is not a problem. <b>Rav Huna does not hold in accordance with</b> the opinion of <b>Rabba,</b> as Rabba was an <i>amora</i> and Rav Huna’s student.
+
+### Part 7
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: In the case of <b>one who took two</b> vows of <b>naziriteship, counted the</b> thirty days of the <b>first</b> term of naziriteship <b>and set aside an offering</b> at the end of its term, <b>and</b> then <b>requested</b> from a halakhic authority <b>for</b> dissolution of the vow before the offering was sacrificed, thereby rendering the offering unnecessary, <b>the second</b> term of naziriteship <b>is counted for him instead of the first.</b> He is considered as having fulfilled the second term of naziriteship during the period in which he observed the first one. Therefore, the offering that he set aside counts for the second term of naziriteship.
+
+### Part 8
+<b>What are the circumstances? If we say that</b> it is a case where <b>he said: I am hereby a nazirite today, I am hereby a nazirite tomorrow, why is the second</b> term of <b>naziriteship counted for him instead of the first? Isn’t there an additional day</b> in the second term of naziriteship that he has not yet observed, as the second thirty day term commences the day after the first thirty day period had commenced? How, then, is it possible that the second obligation was fulfilled through his observance of the first one? <b>Rather,</b> it <b>is obvious that</b> it is a case where <b>he said: I am hereby a nazirite today, I am hereby a nazirite today,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,36 @@
+
+### Part 1
+Rav Kahana <b>came before Rav Yehuda.</b> Rav Kahana’s neighbor <b>went</b> and <b>brought two witnesses. One said:</b> Rav Kahana <b>entered two rows</b> into his neighbor’s land, <b>and one said:</b> Rav Kahana <b>entered three rows</b> into his neighbor’s land. Rav Yehuda <b>said to</b> Rav Kahana: <b>Go</b> and <b>pay two out of</b> the <b>three</b> that your neighbor is claiming by moving the wall two rows into your property.
+
+### Part 2
+Rav Kahana <b>said to</b> Rav Yehuda: <b>In accordance with whose</b> opinion are you ruling that the testimony of witnesses who contradict each other is valid? Is it <b>in accordance with</b> the opinion of <b>Rabbi Shimon ben Elazar? As it is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon ben Elazar said: Beit Shammai and Beit Hillel did not disagree with regard to two sets of witnesses, where one</b> set <b>says</b> that a litigant owes <b>one hundred dinars and one</b> set <b>says</b> that he owes <b>two hundred.</b> In such a case, everyone agrees <b>that</b> two hundred <b>includes one hundred,</b> and he is liable to pay one hundred.
+
+### Part 3
+<b>With regard to what did</b> Beit Shammai and Beit Hillel <b>disagree?</b> They disagree <b>with regard to one set</b> of witnesses, <b>where one</b> witness <b>says</b> that a litigant owes <b>one hundred dinars and one</b> witness <b>says</b> that he owes <b>two hundred; as</b> in such a case, <b>Beit Shammai say</b> that <b>their testimony is divided,</b> and they do not combine to form a set of witnesses, <b>and Beit Hillel say</b> that <b>two hundred includes one hundred,</b> and they combine to form a set of witnesses. Rav Kahana assumed that Rav Yehuda based his ruling on Rabbi Shimon ben Elazar’s interpretation of the opinion of Beit Hillel.
+
+### Part 4
+Rav Kahana then <b>said to</b> Rav Yehuda: How can you rely on this opinion? <b>But I can bring you a letter from the West,</b> Eretz Yisrael, stating <b>that</b> the <b><i>halakha</i> is not in accordance with</b> the opinion of <b>Rabbi Shimon ben Elazar,</b> and that in fact Beit Hillel also disqualify two witnesses in such a case. Rav Yehuda <b>said to</b> Rav Kahana: I will accept that ruling <b>when you will bring</b> such a letter. Until then, I stand by my ruling.
+
+### Part 5
+§ The Gemara relates: There was <b>a certain man who resided in a loft in Kashta</b> for <b>four years.</b> At the end of that period, the prior <b>owner of the house came</b> and <b>found him</b> there. The prior owner <b>said to him: What do you want with this house</b> of mine? The possessor <b>said to</b> him: <b>I purchased it from so-and-so, who purchased it from you.</b> The possessor <b>came before Rabbi Ḥiyya,</b> who <b>said to him: If you have witnesses</b> who will testify <b>that he, from whom you purchased</b> the house, <b>resided in it, even</b> if there is testimony that he resided in it for only <b>one day, I will establish it in your possession, but if</b> there is <b>no</b> testimony to his having resided there then I will <b>not</b> establish it in your possession, and it will revert back to its prior owner.
+
+### Part 6
+<b>Rav said: I was sitting before my uncle [<i>deḥavivi</i>],</b> Rabbi Ḥiyya, <b>and I said to him: But isn’t it common</b> for <b>a person to purchase</b> a house <b>and sell</b> it immediately <b>during the</b> same <b>night?</b> It is possible that the seller purchased and sold the house without witnesses who saw him residing in it. <b>And I saw that</b> Rabbi Ḥiyya’s <b>opinion</b> was that <b>if</b> the possessor <b>said to</b> the claimant: The one who sold it to me <b>purchased it from you in my presence,</b> this claim is <b>deemed credible, since if</b> the possessor <b>wanted</b> to, he could have <b>said to</b> the prior owner of the house: <b>I purchased it from you.</b>
+
+### Part 7
+<b>Rava said:</b> It <b>stands to reason</b> that the <i>halakha</i> is <b>in accordance with</b> the opinion <b>of Rabbi Ḥiyya, as</b> the mishna (41a) <b>teaches:</b> In the case of land <b>that comes as an inheritance, one is not required to make a claim</b> as to how the land came into his benefactor’s possession when one’s ownership of the land is challenged. This indicates that <b>it is a claim that</b> he <b>does not need, but</b> he <b>does need proof</b> that it had been in the possession of his ancestors.
+
+### Part 8
+The Gemara rejects the inference from the mishna: <b>But perhaps</b> he <b>does not need proof and does not need a claim.</b> The only reason that the mishna mentions that he does not need a claim is to clarify that this does not fall into the category of a possession that is not accompanied by a claim. Therefore, one cannot infer from the ruling of that mishna what the <i>halakha</i> should be in this case. <b>And if you wish, say</b> instead that although the inference from the mishna is correct, it is not relevant to this case, as the case of <b>a buyer is different, since</b> he would <b>not throw money</b> away <b>for nothing.</b> The fact that he purchased the house indicates that he must have ascertained that the seller had a right to it.
+
+### Part 9
+<b>A dilemma was raised before</b> the Sages: If the seller <b>was seen in</b> the house, <b>what</b> is the <i>halakha</i>? Is this sufficient proof that he had purchased the house? <b>Abaye said: It is identical</b> to testimony that he had resided there. <b>Rava said:</b> This does not constitute proof, as <b>a person is apt to survey [<i>desayyar</i>] land and</b> ultimately <b>not purchase</b> it.
+
+### Part 10
+§ The Gemara issues a ruling concerning the establishment of the presumption of ownership. <b>Three buyers combine</b> to establish the presumption of ownership. If one purchased a field and sold it to another, who then sold it to a third party, and in total, the three of them worked and profited from the field for three years, the third one has established the presumption of ownership. <b>Rav says: And</b> this is the <i>halakha</i> only if they <b>all</b> purchased the land <b>with a bill</b> of sale. As a result of the bill of sale, the prior owner will know that it is not the case that each of them worked and profited from the field for only one year and abandoned it, which would explain why he did not bother to lodge a protest.
+
+### Part 11
+The Gemara asks: <b>Is this to say that Rav holds</b> that <b>a bill</b> of sale generates <b>publicity, but witnesses do not</b> generate <b>publicity? But doesn’t Rav say</b> that with regard to <b>one who sells a field in</b> the presence of <b>witnesses,</b> and that field is later seized by the creditors of the seller, the buyer <b>collects from</b> the <b>liened property</b> that the seller had sold to others, to be reimbursed for his seized field? If not for the fact that the sale in the presence of witnesses generates publicity, those who later purchased land from the seller would not have been aware that the property they are purchasing is liened to the first buyer. The Gemara answers: <b>There,</b> with regard to <b>buyers,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

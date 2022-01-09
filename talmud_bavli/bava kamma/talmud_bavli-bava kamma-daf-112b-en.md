@@ -1,0 +1,60 @@
+
+### Part 1
+who testify <b>in the absence of a litigant?</b> Since the defendant is a minor his presence is not legally recognized, and the court does not accept testimony against him. Rabbi Yirmeya questioned this assertion: <b>And</b> is it so that the court does <b>not</b> accept such testimony? <b>But isn’t it taught</b> that if a robber leaves stolen goods to his children, <b>whether they are adults or minors, they are obligated</b> to pay the owner? If the court obligates minors to pay, it must accept testimony about them. Rabbi Avin <b>said to</b> Rabbi Yirmeya: <b>Sumakhos’s dispute is at your side,</b> i.e., Sumakhos disagrees with this ruling and holds that the minors are exempt from paying. Rabbi Yirmeya <b>said</b> to him: <b>Did the whole world go to the effort to hold in accordance with</b> the opinion of <b>Sumakhos</b> in order <b>to seize what is mine?</b>
+
+### Part 2
+<b>In the meantime, the matter circulated and</b> eventually <b>came before Rabbi Abbahu,</b> who <b>said: Did you not hear that which Rav Yosef bar Ḥama says</b> that <b>Rabbi Oshaya</b> says? <b>As Rav Yosef bar Ḥama says</b> that <b>Rabbi Oshaya says:</b> With regard to <b>a child who took his slaves and descended into the field of another and said: It is mine,</b> the court <b>does not say: Let us wait until he matures</b> before we assess his claims. <b>Rather,</b> the court <b>removes it from his possession immediately, and when he matures he may bring witnesses</b> to attest to his claim <b>and we will see</b> how to judge the case. Similarly, Rabbi Yirmeya should be awarded the disputed property until his minor brother-in-law may litigate in court.
+
+### Part 3
+The Gemara rejects Rabbi Abbahu’s assertion: <b>Is</b> the case that Rav Yosef bar Ḥama discusses <b>comparable</b> to the case of Rabbi Yirmeya? <b>It is there,</b> in Rav Yosef bar Ḥama’s case, <b>that we seize</b> the property <b>from him, because there is no presumption</b> of ownership <b>from his father; but where he does have a presumption</b> of ownership <b>from his father, no,</b> we do not seize his property. Since Rabbi Yirmeya’s brother-in-law has a presumption of ownership due to the fact that the property belonged to his father, he retains control of the property.
+
+### Part 4
+§ Having mentioned the issue of testimony in the absence of a litigant, the Gemara discusses this matter in greater detail. <b>Rav Ashi said</b> that <b>Rabbi Shabbtai says:</b> The court <b>accepts witnesses</b> even <b>in the absence of a litigant. Rabbi Yoḥanan wondered at this</b> statement of Rav Ashi, and said: <b>Does</b> the court in fact <b>accept witnesses in the absence of a litigant?</b>
+
+### Part 5
+<b>Rabbi Yosei bar Ḥanina received</b> the following guideline <b>from</b> Rabbi Yoḥanan: The court accepts testimony in the absence of the defendant only in a case <b>where</b> the plaintiff <b>was ill, or his witnesses were ill, or his witnesses wished to travel overseas and</b> the judges <b>sent</b> for the defendant <b>and he did not come.</b> Since there is a concern that the plaintiff will not be able to present his claims at a later date, the testimony is accepted even in the absence of the defendant.
+
+### Part 6
+<b>Rav Yehuda says</b> that <b>Shmuel says:</b> The court <b>accepts witnesses in the absence of a litigant. Mar Ukva said:</b> This statement <b>was explained to me</b> personally <b>by Shmuel himself,</b> and he said that it applies in a case <b>where</b> the court <b>opened his case and sent for him, but he did not appear. But</b> if it <b>did not</b> yet <b>open the case for him, he may say to</b> the plaintiff: <b>I am going to the High Court</b> to resolve this case and will not appear in the local court.
+
+### Part 7
+The Gemara asks: <b>If so,</b> then even <b>when</b> the court already <b>opened</b> the case <b>for him, he</b> should <b>also</b> be <b>able</b> to <b>say to them: I am going to the High Court</b> to resolve this case. The Gemara answers that <b>Ravina said:</b> The defendant may not defer an opened case to the High Court if, <b>for example,</b> the local court <b>obtained a license from the High Court</b> authorizing it to adjudicate the case.
+
+### Part 8
+§ Having discussed testimony in the absence of a litigant, the Gemara addresses a similar matter. <b>Rav says:</b> The court <b>ratifies a document in the absence of a litigant. And Rabbi Yoḥanan says:</b> The court <b>does not ratify a document in the absence of a litigant. Rav Sheshet said to Rabbi Yosei bar Abbahu: I will explain Rabbi Yoḥanan’s reasoning to you. The verse states</b> with regard to an ox that gored: <b>“And warning has been given to its owner and he has not secured it”</b> (Exodus 21:29). <b>The Torah</b> means to <b>say:</b> Let <b>the owner of the ox come and stand by his ox</b> when the testimony about the ox is provided. Similarly, a document may be ratified only in the presence of the individual it implicates.
+
+### Part 9
+<b>Rava said:</b> The <b><i>halakha</i></b> is that the court <b>ratifies a document in the absence of a litigant, and</b> this is the case <b>even</b> if the other litigant <b>stands and screams</b> in protest that the document is a forgery. <b>And if he said: Give me time until I bring witnesses and disqualify the document, we give him</b> time before forcing him to pay. <b>If he has come</b> with witnesses within the time allotted to him, <b>he has come,</b> and the court reviews the case accordingly. <b>If he does not come</b> within the time allotted to him, <b>we give him</b> an additional three days on which to bring witnesses, when the court is in session: <b>Monday, Thursday, and Monday.</b>
+
+### Part 10
+<b>If he</b> still <b>has not come, we write a document of ostracism against him</b> for <b>ninety days.</b> During <b>the first thirty</b> days <b>we do not descend to his property</b> to collect his debt, <b>as</b> the court <b>says:</b> Perhaps <b>he is occupied</b> with <b>borrowing money</b> to pay his debt. During <b>the middle</b> period of thirty days <b>as well, we do not descend to his property, as</b> the court <b>says: Perhaps he did not find</b> someone <b>to borrow</b> from and <b>he is</b> now <b>occupied with selling</b> his property in order to pay his debt. During the <b>final</b> thirty days <b>as well, we do not descend to his property, as</b> the court <b>says:</b> Perhaps the debtor has found a purchaser and <b>the purchaser himself is occupied with</b> obtaining the <b>money</b> so that he can pay the debtor for the sale, and the debtor will then pay his debt.
+
+### Part 11
+If the debtor still <b>did not come</b> to pay his debt after ninety days, <b>we write</b> a document of <b>authorization [<i>adrakhta</i>]</b> allowing the creditor to collect his due from any <b>property</b> belonging to the debtor. <b>And this statement</b> applies only in a case <b>where</b> the debtor <b>said: I am coming</b> to pay and then he does not actually make an appearance. <b>But</b> if <b>he said: I am not coming, we immediately write</b> a document of authorization without waiting for ninety days to pass.
+
+### Part 12
+Furthermore, <b>this matter</b> of a ninety-day waiting period applies only <b>with regard to a loan,</b> as the debtor requires time in order to obtain the money to pay it back. <b>But with regard to a deposit</b> that the owner demands back from a bailee, <b>we write</b> a document of authorization <b>immediately.</b> Since a bailee should have immediate access to the deposit, there is no reason to grant him an extension.
+
+### Part 13
+The Gemara adds: <b>When we write</b> a document of authorization, the document applies only <b>to</b> the borrower’s <b>land, but</b> with regard <b>to movable property,</b> the court does <b>not</b> draft such a document. The reason for this is that <b>perhaps the creditor will seize and consume</b> the borrower’s <b>movable property, and when the borrower</b> later <b>comes and brings witnesses and</b> thereby <b>invalidates the</b> creditor’s <b>document, he will not find anything to collect</b> in order to retrieve his money.
+
+### Part 14
+<b>And if the creditor</b> owns <b>land, we write</b> a document authorizing the creditor to collect from any property that belongs to the borrower, including movable property. Since the creditor owns land, there is no concern that if the borrower manages to overturn the ruling he will have nothing from which to collect. The Gemara comments: <b>And</b> that <b>is not so.</b> The court <b>does not draft</b> a document of <b>authorization with regard to movable property even if</b> the creditor <b>has land.</b> This is because <b>we are concerned lest</b> the creditor’s land <b>depreciate</b> in value and the borrower will be unable to retrieve his money.
+
+### Part 15
+The Gemara teaches another <i>halakha</i> with regard to this matter: <b>When we write</b> the document of <b>authorization, we inform</b> the party that is liable to pay, as a final warning before authorizing a creditor to locate and take possession of his property in repayment of the debt. <b>And this matter</b> applies only <b>when he is nearby, but</b> if he is <b>distant,</b> the court does <b>not</b> notify him before authorizing the creditor.
+
+### Part 16
+<b>And if he is distant but there are relatives</b> of his nearby, <b>or</b> if <b>there are caravans that go</b> to the borrower’s current location <b>and return, we delay</b> issuing <b>his</b> document of authorization for the <b>twelve months</b> of <b>the year, until the caravan goes and returns,</b> so that if he wishes to make a claim, he can do so. This is <b>like that</b> incident <b>where Ravina delayed</b> for the <b>twelve months</b> of <b>the year</b> before issuing a document of authorization <b>for Mar Aḥa, until a caravan went</b> to <b>and returned from Bei Ḥozai.</b>
+
+### Part 17
+The Gemara comments: <b>And</b> that <b>is not so. There,</b> Ravina delayed issuing the document because the creditor <b>was a violent man,</b> and <b>if</b> a document of <b>authorization would come into his possession, it would not be possible to take it from him</b> if the borrower would prove that the original document was invalid. <b>But here,</b> i.e., in general, <b>we wait for</b> the defendant to be informed <b>only</b> if he is close enough to be informed within a day. Consequently, if the court decided the issue on Monday, <b>a messenger</b> would <b>go</b> inform the defendant <b>on Tuesday, and he</b> could <b>come</b> from his location to the court <b>on Wednesday and stand trial on Thursday.</b> If a debtor is more than a day’s travel away, however, the court does not trouble itself to notify him.
+
+### Part 18
+§ Apropos the Gemara’s discussion of summoning an individual to court by means of a messenger, the Gemara discusses this issue in a more general manner. <b>Ravina said: We deem the agent of the Rabbis,</b> who was sent to summon an individual to court, as <b>credible as two</b> witnesses if he says that the defendant refuses to come to court. <b>And this matter</b> applies only with regard <b>to excommunication, but</b> with regard <b>to</b> issuing <b>a document of ostracism, since it causes</b> the defendant <b>loss of money, as he must give money to the scribe</b> for drafting the document, <b>no,</b> the agent is not deemed credible.
+
+### Part 19
+Additionally, <b>Ravina said: We may give</b> a defendant a particular <b>time</b> to appear in court by informing him of the trial <b>by</b> word of <b>mouth from a woman or from his neighbors,</b> as these people are trusted to notify the defendant of the court’s summons. The Gemara comments: <b>And we said</b> this <b>only when</b> the defendant is <b>not in the city.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

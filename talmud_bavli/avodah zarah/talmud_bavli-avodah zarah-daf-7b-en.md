@@ -1,0 +1,57 @@
+
+### Part 1
+But if they performed their sins <b>in public,</b> society <b>does not accept them. Rabbi Shimon and Rabbi Yehoshua ben Korḥa say: Both</b> in <b>this</b> case, where they sinned in private, <b>and</b> in <b>that</b> case, where they sinned in public, society <b>accepts</b> them, <b>as it is stated: “Return, you backsliding children,</b> I will heal your backslidings” (Jeremiah 3:22). <b>Rabbi Yitzḥak of the village of Akko says</b> that <b>Rabbi Yoḥanan says: The <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>that pair,</b> Rabbi Shimon and Rabbi Yehoshua ben Korḥa, i.e., penitents are accepted, regardless of whether they sinned in public or in private.
+
+### Part 2
+<strong>MISHNA:</strong> <b>Rabbi Yishmael says:</b> On <b>the three</b> days <b>before</b> the festivals of gentiles <b>and</b> on <b>the three</b> days <b>after them,</b> it is <b>prohibited</b> to engage in business with those gentiles. <b>And the Rabbis say:</b> It is <b>prohibited</b> to engage in business with them <b>before their festivals,</b> but it is <b>permitted</b> to engage in business with them <b>after their festivals.</b>
+
+### Part 3
+<strong>GEMARA:</strong> <b>Rav Taḥlifa bar Avdimi says</b> that <b>Shmuel says:</b> With regard to <b>a Christian, according to the statement of Rabbi Yishmael it is always prohibited</b> for a Jew to engage in business with him. Since his festival takes place every Sunday and the three days before and after Sunday constitute the entire week, one cannot engage in business with a Christian on any day of the week.
+
+### Part 4
+The mishna teaches: <b>And the Rabbis say:</b> It is <b>prohibited</b> to engage in business with them <b>before their festivals,</b> but it is <b>permitted</b> to engage in business with them <b>after their festivals.</b> The Gemara raises a difficulty: The statement of <b>the Rabbis is</b> identical to the statement of <b>the first <i>tanna</i></b> in the mishna on 2a, who said that it is prohibited to engage in business with gentiles during the three days before their festival. The Gemara answers: The difference <b>between them</b> is with regard to the question of whether the three days includes only <b>them,</b> i.e., the three days, <b>without their festival,</b> or if the festival is counted as one of the three days. <b>The first <i>tanna</i> holds</b> that the three days is referring to <b>them,</b> the days preceding the festival, <b>without their festivals, and the later Rabbis</b> cited in this mishna <b>hold</b> that the three days include <b>them and their festivals.</b>
+
+### Part 5
+<b>If you wish, say</b> that the difference <b>between</b> the Rabbis and the first <i>tanna</i> is with regard to one who ignored this injunction and <b>engaged in business</b> with gentiles before their festival. <b>The first <i>tanna</i> holds</b> that if one <b>engaged in business,</b> it is <b>permitted</b> to derive benefit from the profits, <b>and the later Rabbis hold</b> that if one <b>engaged in business,</b> it is <b>prohibited</b> to derive benefit from the profits.
+
+### Part 6
+<b>And if you wish, say</b> that the difference <b>between</b> the Rabbis and the first <i>tanna</i> is with regard to the statement <b>of Shmuel. As Shmuel says: In the Diaspora</b> it is <b>prohibited</b> to engage in business with gentiles <b>only</b> on <b>their festival day</b> itself. <b>The first <i>tanna</i> is of</b> the opinion that the <i>halakha</i> is in accordance with the opinion <b>of Shmuel, and the later Rabbis are not of</b> the opinion that the <i>halakha</i> is in accordance with the opinion <b>of Shmuel.</b>
+
+### Part 7
+<b>If you wish, say</b> that the difference <b>between</b> the Rabbis and the first <i>tanna</i> is with regard to a statement <b>of Naḥum the Mede. As it is taught</b> in a <i>baraita</i> that <b>Naḥum the Mede says:</b> It is <b>prohibited</b> to engage in business with gentiles <b>only</b> on <b>the day before their festival. The first <i>tanna</i> is not of</b> the opinion that the <i>halakha</i> is in accordance with the opinion <b>of Naḥum the Mede,</b> and <b>the later Rabbis are of</b> the opinion that the <i>halakha</i> is in accordance with the opinion <b>of Naḥum the Mede,</b> as they do not mention how many days before the festival are included in the prohibition.
+
+### Part 8
+Having mentioned Naḥum the Mede’s opinion, the Gemara discusses <b>the</b> matter <b>itself. Naḥum the Mede says:</b> It is <b>prohibited only</b> on <b>the day before their festival.</b> The other Sages <b>said to him:</b> It would be best if this <b>matter were lost and not stated,</b> as it is not the <i>halakha</i>. The Gemara asks: <b>But aren’t there the later Rabbis, who hold in accordance with his</b> opinion? The Gemara answers: <b>Who are</b> these <b>Rabbis?</b> This <b>is</b> referring to <b>Naḥum the Mede</b> himself, but the other Sages disagree.
+
+### Part 9
+§ The Gemara cites additional statements of Naḥum the Mede. It <b>is taught</b> in <b>another</b> <i>baraita</i> that <b>Naḥum the Mede says:</b> Although it is prohibited to sell large livestock to gentiles, <b>one may sell a male and elderly horse to them during a war,</b> as it cannot be used for battle. The Sages <b>said to him:</b> It would be best if this <b>matter were lost and not stated,</b> as it is not the <i>halakha</i>.
+
+### Part 10
+The Gemara asks: <b>But isn’t there ben Beteira, who holds in accordance with his</b> opinion? <b>As we learned</b> in a mishna (14b): <b>Ben Beteira permits</b> selling <b>a horse</b> to gentiles. The Gemara answers: <b>Since ben Beteira does not differentiate between male and female</b> horses, and Naḥum the Mede <b>does differentiate between male and female</b> horses, it is clear that Naḥum the Mede <b>holds in accordance with</b> the opinion of <b>the Rabbis,</b> that one is generally not permitted to sell a horse to a gentile, only he permits it in this specific circumstance. <b>And according to</b> the opinion of <b>the Rabbis,</b> it would be best if this <b>matter were lost and not stated.</b>
+
+### Part 11
+The Gemara cites a similar dispute. It <b>is taught</b> in a <i>baraita</i> that <b>Naḥum the Mede says: The dill</b> plant <b>is subject to tithes,</b> whether it is used as <b>a seed, or a vegetable, or a pod.</b> The Sages <b>said to him:</b> It would be best if this <b>matter were lost and not stated,</b> as it is not the <i>halakha</i>. The Gemara asks: <b>But isn’t there Rabbi Eliezer, who holds in accordance with his</b> opinion? <b>As we learned</b> in a mishna (<i>Ma’asrot</i> 4:5) that <b>Rabbi Eliezer says: The dill</b> plant <b>is subject to tithes</b> whether it is used as <b>a seed, or a vegetable, or a pod.</b> The Gemara answers: <b>There,</b> Rabbi Eliezer is referring <b>to the garden</b> variety of dill, which is of such a high quality that its seeds, vegetable, and pods are eaten. By contrast, in the case of wild dill, only its seeds and vegetable are eaten, not the pods.
+
+### Part 12
+Apropos the discussion between Naḥum the Mede and the other Sages, <b>Rav Aḥa bar Minyumi said to Abaye: A great man came from our place,</b> i.e., from Media, and in response to <b>every matter that he said,</b> the Sages <b>said to him</b> that it would be best if this <b>matter were lost and not stated.</b> Do they wish to erase all the <i>halakhot</i> taught by the Sages of Media? Abaye <b>said: There is one</b> instance in <b>which we act in accordance with his</b> opinion, <b>as it is taught</b> in a <i>baraita</i> that <b>Naḥum the Mede says:</b> During the <i>Amida</i> prayer <b>a person may request his</b> personal <b>needs</b> that are not included in the standard formulation of the <i>Amida</i> prayer, <b>in</b> the blessing that ends: <b>Who listens to prayer.</b>
+
+### Part 13
+Rav Aḥa bar Minyumi <b>said</b> to Abaye: <b>Apart from this</b> <i>halakha</i>, i.e., this does not serve as proof that a statement of Naḥum the Mede was ever accepted by the other Sages, <b>as</b> this <i>halakha</i> <b>is dependent on</b> the dispute between <b>great trees,</b> i.e., great authorities, who expressed their opinions with regard to the <i>halakha</i> before Naḥum the Mede.
+
+### Part 14
+Rav Aḥa bar Minyumi elaborates: <b>As it is taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer says: A person should request his own needs</b> first <b>and afterward recite</b> the <i>Amida</i> <b>prayer, as it is stated: “A prayer of the afflicted, when he is faint and pours out <i>siḥo</i> before the Lord.</b> O Lord, hear my prayer” (Psalms 102:1–2). These verses indicate that one first requests help concerning his afflictions and pains, and only afterward pours forth his <i>siḥa</i>. And <b><i>siḥa</i></b> means <b>nothing other than prayer, as it is stated: “And Isaac went out to meditate [<i>lasuaḥ</i>] in the field”</b> (Genesis 24:63).
+
+### Part 15
+<b>Rabbi Yehoshua says:</b> One <b>should pray</b> first <b>and afterward request his own needs, as it is stated: “I pour out <i>siḥi</i> before Him, I declare before Him my trouble”</b> (Psalms 142:3), which teaches that first one pours forth his <i>siḥa</i>, and only afterward speaks of his own troubles.
+
+### Part 16
+The Gemara asks: <b>And</b> according to <b>Rabbi Eliezer as well, isn’t it written: “I pour out <i>siḥi</i> before Him,</b> I declare before Him my trouble”? The Gemara answers: According to Rabbi Eliezer, <b>this</b> is what the verse <b>is saying: I pour out my <i>siḥa</i> before Him when I</b> have already <b>declared before Him my trouble.</b> The Gemara asks with regard to Rabbi Yehoshua’s opinion: <b>And</b> according to <b>Rabbi Yehoshua as well, isn’t it written: “A prayer of the afflicted, when he is faint</b> and pours out <i>siḥo</i> before the Lord”? The Gemara answers: According to Rabbi Yehoshua, <b>this</b> is what the verse <b>is saying: When is there a prayer of the afflicted? When</b> he has already <b>poured out <i>siḥo</i> before the Lord,</b> and now requests his own needs.
+
+### Part 17
+The Gemara notes: <b>Now</b> it is clear that <b>the verses</b> themselves <b>do not fit precisely in accordance with</b> the opinion of <b>this Sage and do not fit precisely in accordance with</b> the opinion of <b>that Sage,</b> as one verse indicates that prayer is recited before stating personal requests, while the other suggests that first one states personal requests and then prays. Evidently, the dispute between Rabbi Eliezer and Rabbi Yehoshua is not based on the verses, but depends on some other issue. Therefore, the Gemara asks: <b>With regard to what</b> principle <b>do they disagree?</b>
+
+### Part 18
+They disagree <b>with regard to that which Rabbi Simlai taught. As Rabbi Simlai taught: A person should always set forth praise of God and</b> only <b>then pray</b> for his own needs. <b>From where do we</b> derive this? We derive it <b>from Moses our teacher, as it is written: “O Lord God, You have begun to show Your servant</b> Your greatness, and Your strong hand; for what god is there in heaven or on earth, that can do according to Your works, and according to Your mighty acts?” (Deuteronomy 3:24). Here Moses praises God, <b>and it is written afterward,</b> in the following verse, that then Moses requested from God: <b>“Let me go over, I pray You, and see the good land”</b> (Deuteronomy 3:25).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

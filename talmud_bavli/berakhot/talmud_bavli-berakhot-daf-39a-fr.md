@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Il lui manque la</b> <b>mesure requise?</b> La plus petite quantite d'aliment que l'on considere comme mangeable est de la taille d'une olive, et une olive sans son noyau est plus petite que cela.
+
+### Partie 2
+<b>Il lui dit : Tiens-tu que nous exigeons une grande olive</b> comme mesure de nourriture necessaire pour reciter une benediction apres avoir mange ? <b>Nous exigeons une olive de taille moyenne et cette</b> olive <b>etait</b> de cette taille, car l'olive <b>qu'ils ont apportee devant Rabbi Yohanan etait une grosse olive. Meme s'ils ont enleve son noyau, la <b>mesure requise est restee.</b>
+
+### Partie 3
+La Guemara cite une preuve que la mesure halakhique d'une olive n'est pas basee sur une grande olive <b>comme nous l'avons appris</b> dans une mishna : <b>L'olive dont</b> les Sages <b>parlent</b> a propos des mesures halakhiques n'est <b>ni petite ni grande, mais moyenne, et cette</b> olive <b>est</b> appelee <b><i>aguri</i>. Et Rabbi Abbahou dit : Le nom</b> de ce genre d'olives <b>n'est pas <i>aguri</i>, mais son nom est <i>avruti</i>, et certains disent</b> que <b>son nom est <i>samrusi</i>. Et pourquoi,</b> alors, <b>on l'appelle <i>aguri</i> ? Parce que son huile est accumulee [<i>agur</i>] en son sein.</b>
+
+### Partie 4
+En ce qui concerne la benediction appropriee sur les legumes bouillis : <b>Disons</b> que cette dispute <b>est parallele</b> a une dispute entre les <b><i>tannaim</i>,</b> comme le relate la Gemara : <b>Deux etudiants etaient assis devant le bar Kappara lorsque</b> du <b>chou cuit,</b> des <b>plumes damascenes cuites et des poulettes furent posees devant lui. Le bar Kappara donna a l'un</b> des etudiants <b>la permission de reciter une benediction. Il se precipita et recita une benediction sur les poulettes</b> et <b>son homologue le ridiculisa</b> pour avoir gloutonnement recite la benediction qui aurait du etre recitee plus tard, en premier. <b>Bar Kappara se mit en colere</b> avec les deux, <b>il dit : Je ne suis pas en colere contre celui qui a recite la benediction, mais contre celui qui l'a ridiculise</b>. <b>Si ton homologue est comme celui qui n'a jamais goute a la saveur de la viande</b> et a donc eu un faible pour la poulette, et s'est empresse de la manger, <b>pourquoi l'as-tu ridiculise ?</b> Bar Kappara <b>continua et dit</b> au deuxieme etudiant : <b>Je ne suis pas fache contre celui qui l'a ridiculise</b>, <b>plutot</b> c'est <b>avec celui qui a recite la benediction que je suis fache. Et il a dit : S'il n'y a pas de sagesse ici, n'y a-t-il pas d'aine ici ? </b> Si vous ne savez pas quelle benediction reciter en premier, n'auriez-vous pas pu me demander, puisque je suis un aine ?
+
+### Partie 5
+La Guemara conclut que <b>C'etait enseigne : Et tous deux n'ont pas</b> vecu <b>son annee.</b> A cause de la colere de bar Kappara, ils ont ete punis, et sont morts tous deux dans l'annee.
+
+### Partie 6
+La Guemara tente de deduire de cette histoire le sujet qui nous occupe : <b>Quoi ? N'est-ce pas qu'ils etaient en desaccord sur ce qui suit ? </b> Celui qui a recite la benediction</b> sur la poulette a d'abord <b>soutenu</b> que la benediction a reciter sur les deux <b>legumes bouillis et la poulette</b> est : <b>Par la parole de qui tout a ete cree, et, par consequent,</b> ce qu'il <b>prefere</b> prend <b>la preseance</b> et est mange en premier. Le <b>qui le ridiculisait</b> <b>soutenait</b> que sur les <b>legumes bouillis</b> on recite : <b>Qui cree les fruits de la terre,</b> et sur le <b>pulverin</b> on recite : <b>Par la parole de qui tout a ete cree,</b> et que, par consequent, le fruit</b> prend <b>la preseance,</b> car sa benediction est plus specifique et donc plus significative.
+
+### Partie 7
+La Gemara rejette cette explication : <b>Non, tout le monde est d'accord</b> que sur les <b>legumes bouillis et la poulette</b> on recite : <b>Par la parole de qui tout a ete cree, et ici on se dispute a ce sujet :</b> Ce <b>Sage,</b> qui a recite la benediction, <b>a soutenu que</b> l'aliment qui est <b>prefere a la priorite</b> et on recite une benediction sur lui en premier, <b>et le Sage</b> qui l'a ridiculise <b>a soutenu : Le chou a la preseance, car il nourrit.</b>
+
+### Partie 8
+<b>Rabbi Zeira a dit : Lorsque nous etions dans la salle d'etude de Rav Huna, il nous a dit : Ces tetes de navets,</b> si <b>on les coupe</b> en <b>grandes</b> tranches, on recite dessus : <b>Qui cree des fruits du sol,</b> car en faisant cela, il ne les a pas modifies de maniere significative. S'il les <b>coupe</b> en <b>petits</b> morceaux, il recite sur eux : <b>Par la parole de qui toutes choses ont ete creees. Et lorsque nous sommes arrives dans la salle d'etude du Rav Yehuda, il nous a dit :</b> Sur ces <b>grandes tranches</b> et ces <b>petits morceaux</b>, on recite : <b>Qui cree des fruits du sol, et le fait qu'il les coupe largement etait pour en adoucir la saveur.</b>
+
+### Partie 9
+Dans le meme ordre d'idees, <b>Rav Ashi a dit : Lorsque nous etions dans la salle d'etude du Rav Kahana, il nous a dit :</b> Au-dessus d'un <b>plat cuit de betteraves auquel ils,</b> typiquement, <b>n'ajoutent pas</b> une <b>significative</b> quantite de <b>farine,</b> on recite : <b>Qui cree les fruits de la terre.</b> Au-dessus d'un <b>plat cuit de navets auquel ils</b> typiquement, <b>ajoutent</b> une <b>quantite plus significative</b> de <b>farine,</b> on recite : <b>Qui cree les differents types d'aliments. Et</b> Rav Kahana <b>reflechit</b> a sa declaration precedente et dit : Sur les deux <b>celles-ci,</b> betteraves, <b>et celles-la,</b> navets, on recite : <b>Qui cree le fruit du sol, et le fait qu'ils aient jete de la farine supplementaire</b> avec les navets, <b>ils l'ont fait simplement</b> pour que les composants du plat cuisine <b>collent ensemble.</b> L'ingredient principal du plat reste les navets, pas la farine.
+
+### Partie 10
+Tangentiellement a cette mention d'un plat de navets, <b>Rav Hisda</b> ajoute, <b>et dit : Un plat cuit de betteraves est benefique pour le cœur, bon pour les yeux et a fortiori, pour les intestins. Abaye a dit : C'est-a-dire</b> specifiquement lorsque le plat <b>se trouve sur le poele et emet un son <i>tukh tukh</i></b>, c'est-a-dire qu'il bout.
+
+### Partie 11
+<b>Rav Pappa a dit : Il est clair pour moi</b> que l'<b>eau de betterave,</b> l'eau dans laquelle on a fait bouillir des betteraves, <b>a</b> le meme statut <b>que les betteraves, et l'eau de navet a</b> le meme statut <b>de navet, et l'eau</b> dans laquelle on a fait bouillir <b>tous les legumes bouillis</b> <b>a</b> le meme statut <b>que tous les legumes bouillis. </b> Cependant, <b>Rav Pappa a souleve un dilemme : Quel</b> est le statut de l'<b>eau</b> dans laquelle <b>l'aneth</b> a ete bouilli ? <b>Est-ce qu'on utilise</b> l'aneth <b>pour adoucir le gout, ou est-ce qu'on l'utilise pour enlever</b> les <b>filtres residuels ?</b> Si l'aneth a ete ajoute pour parfumer l'aliment, alors l'eau dans laquelle il a ete bouilli doit etre traitee comme l'eau dans laquelle tout autre legume a ete bouilli. En revanche, si l'aneth a ete ajoute simplement pour absorber les residus de la soupe, alors il n'y a jamais eu d'intention de parfumer le plat et on ne doit pas reciter de benediction a son sujet.
+
+### Partie 12
+<b>Venez entendre</b> une resolution de ce dilemme a partir de ce que nous avons appris dans une mishna du tractate <i>Okatzin</i> : <b>L'aneth, une fois qu'il a</b> deja <b>donne</b> sa <b>saveur dans la marmite,</b> n'a plus aucune valeur et <b>n'est plus</b> <b>soumis</b> aux <i>halakhot</i> de <b><i>teruma</i> et</b> puisqu'il n'est plus considere comme un aliment, <b>il ne peut plus</b> devenir impur avec <b>l'impurete rituelle des aliments. Apprenez de ceci</b> qu'ils ont <b>utilise</b> de l'aneth <b>pour en adoucir le gout.</b> La Gemara conclut : En effet, <b>Apprenez de ceci.</b>
+
+### Partie 13
+<b>Rav Hiyya bar Ashi a dit : Sur du pain sec</b> qui a ete place <b>dans un bol</b> pour tremper, <b>on recite : Qui fait sortir</b> le pain de la terre, meme s'il y a un autre pain devant lui, car il est considere comme du pain a tous egards. Cette <i>halakha</i> <b>est en desaccord</b> avec l'avis de <b>Rabbi Hiyya, car Rabbi Hiyya a dit : La benediction doit se conclure par</b> le debut de la rupture de <b>la miche de <b>pain.</b> Le pain sec avait deja ete tranche et separe de la miche.
+
+### Partie 14
+<b>Rava s'oppose fortement a cette</b> hypothese : <b>Qu'y a-t-il de different dans le pain sec, que</b> l'on ne <b>pas</b> recite : Qui fait sortir le pain de la terre, sur lui, <b>parce que lorsque la benediction se termine, elle se termine sur une tranche ?</b> Dans le cas ou il recite une benediction <b>sur</b> une miche de <b>pain egalement, lorsqu'il termine</b> la benediction, <b>il la termine sur une tranche,</b> car on coupe le pain avant la benediction.
+
+>Credit : Edition William Davidson
+>License : CC-BY-NC

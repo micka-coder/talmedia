@@ -1,0 +1,27 @@
+
+### Part 1
+Rabbi Yoḥanan continues: <b>And I say</b> that misappropriation by a paid bailee <b>is not different.</b>
+
+### Part 2
+The Gemara elaborates: <b>And what</b> is meant by: Misappropriation that is stated with regard to a paid bailee is <b>different</b> from misappropriation that is stated with regard to an unpaid bailee? As one could claim: Let <b>misappropriation not be stated with regard to a paid bailee, and derive it from</b> misappropriation with regard to <b>an unpaid bailee</b> by means of an <i>a fortiori</i> inference: <b>And if an unpaid bailee, who is exempt in</b> cases where he claims <b>theft and loss, misappropriated</b> the deposit, he is <b>liable</b> to pay, then <b>a paid bailee, who is liable in</b> cases where he claims <b>theft and loss, all the more so</b> is it <b>not</b> clear that he is liable if he misappropriated the deposit? <b>With regard to what <i>halakha</i> did the Merciful One write</b> misappropriation in the case of a paid bailee? It is <b>to say to you: Misappropriation does not require loss;</b> intent to misappropriate is enough to render him liable to pay.
+
+### Part 3
+Rabbi Yoḥanan stated: <b>And I say</b> that it is <b>not different, in accordance with</b> the opinion of <b>Rabbi Elazar, who says: This</b> case <b>and that</b> case <b>are one.</b> The Gemara elaborates: <b>What</b> is the meaning of: <b>This and that</b> are <b>one?</b> It means that it was necessary to teach misappropriation in both cases <b>due to</b> the fact <b>that</b> it <b>can be refuted</b> by an <i>a fortiori</i> inference: <b>What</b> is notable <b>about an unpaid bailee?</b> He is notable <b>in that he pays</b> the <b>double payment when he</b> falsely <b>states the claim</b> that <b>a thief</b> stole the deposit. A paid bailee reimburses the owner only for the cost of the deposit in that case. The legal status of the paid bailee is not consistently more stringent than that of an unpaid bailee, and therefore no <i>a fortiori</i> inference is possible.
+
+### Part 4
+The Gemara comments: <b>And the one who does not refute</b> the <i>a fortiori</i> inference <b>holds:</b> The absolute requirement to pay <b>the principal</b> even <b>without</b> having taken a false <b>oath is more</b> stringent <b>than</b> the requirement to pay <b>the double payment</b> that is effected only <b>with</b> the bailee taking a false <b>oath.</b> In his opinion, the legal status of the paid bailee is consistently more stringent than that of an unpaid bailee, and therefore an <i>a fortiori</i> inference is possible.
+
+### Part 5
+<b>Rava says:</b> The verse should <b>not state misappropriation, neither with regard to an unpaid bailee nor with regard to a paid bailee, and</b> one can <b>derive it</b> by means of an <i>a fortiori</i> inference <b>from</b> misappropriation with regard to <b>a borrower: And if a borrower, who</b> utilizes the deposit <b>with the knowledge of the owner, misappropriated</b> the deposit, he is <b>liable</b> to pay, then with regard to <b>an unpaid bailee and a paid bailee,</b> who may not utilize the deposit at all, <b>all the more so</b> is it <b>not</b> clear that they are liable to pay if they misappropriate the deposit?
+
+### Part 6
+<b>Why,</b> then, <b>is</b> the <i>halakha</i> of misappropriation <b>stated</b> in the cases of the unpaid and paid bailees? <b>One</b> mention is <b>to say to you: Misappropriation does not require loss. And the other</b> mention is <b>so that you will not say:</b> With regard to this <i>a fortiori</i> inference, there is principle: It is <b>sufficient for the conclusion inferred from</b> an <i>a fortiori</i> <b>inference to be like the source</b> of the inference, and thereby conclude: <b>Just as a borrower</b> who is in partnership <b>with the owner</b> is <b>exempt, so too, an unpaid bailee and a paid bailee</b> who are in partnership <b>with the owner</b> are <b>exempt.</b> Consequently, it was necessary for the verse to mention the <i>halakha</i> of misappropriation with regard to both the paid and unpaid bailee.
+
+### Part 7
+The Gemara asks: <b>And according to the one who says: Misappropriation requires a loss, why do I</b> need <b>these two</b> mentions of <b>misappropriation?</b> The Gemara explains: <b>One</b> mention is <b>so that you will not say</b> with regard to this <i>a fortiori</i> inference the principle: <b>It is sufficient for the</b> conclusion that <b>emerges from</b> an <i>a fortiori</i> <b>inference to be like</b> its <b>source.</b>
+
+### Part 8
+<b>And the other</b> mention is <b>for that which is taught</b> in a <i>baraita</i>. It is written: <b>“And the master of the house shall approach the judges</b> to determine whether he misappropriated his neighbor’s goods” (Exodus 22:7). This is stated with regard <b>to an oath.</b> Do <b>you say</b> that it is stated with regard <b>to an oath, or</b> is it stated <b>only</b> with regard <b>to judgment? Misappropriation is stated below,</b> in a later verse in the chapter: “Whether he misappropriated his neighbor’s goods” (Exodus 22:10), <b>and misappropriation is stated above,</b> in an earlier verse in the chapter: “Whether he misappropriated his neighbor’s goods” (Exodus 22:7). <b>Just as below</b> it is stated explicitly with regard <b>to an oath:</b> “The oath of the Lord shall be between them both to determine whether he misappropriated his neighbor’s goods” (Exodus 22:10), <b>so too here,</b> it is stated with regard <b>to an oath</b> and not merely for judgment.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

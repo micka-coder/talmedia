@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Et</b> tant <b>ceci que cela</b> se referent <b>a</b> l'endroit ou il est tombe dans <b>la fosse</b> elle-meme, mais neanmoins s'il est tombe en arriere, il est exempt.
+
+### Partie 2
+La Guemara note : <b>Rav</b> se conforme <b>a son</b> ligne de <b>raisonnement, car Rav dit : </b> Les dommages classes comme <b>Fosse pour laquelle la Torah l'oblige</b> a payer font reference specifiquement <b>aux</b> dommages causes par les <b>fumees mortelles de la fosse,</b> comme si un animal suffoque a l'interieur, <b>mais pas aux</b> dommages causes par le <b>impact</b> de la chute sur le sol, pour lesquels il est exempte de payer une compensation. Puisque le bœuf dans ce cas est tombe en arriere sur le dos, le proprietaire de la fosse est exempte de payer une compensation, car le bœuf nâ pas ete tue par les fumees mortelles de la fosse, mais par limpact de la chute.
+
+### Partie 3
+<b>Et Shmuel dit :</b> Si le bœuf est tombe <b>dans la fosse, qu'il soit</b> tombe <b>en avant</b> ou <b>qu'il soit</b> tombe <b>en arriere,</b> il est <b>responsable.</b>
+
+### Partie 4
+La Guemara note : <b>Shmuel</b> se conforme <b>a sa ligne de <b>raisonnement</b>, car</b> Shmuel <b>dit :</b> En ce qui concerne les dommages classes comme Pit, la Torah tient pour responsable les dommages causes <b>par ses <b>fumees mortelles, et a plus forte raison les</b> dommages resultant de l'<b>impact</b> de la chute. La Gemara demande : <b>Mais</b> selon Shmuel, <b>quelles sont les circonstances</b> a propos desquelles la mishna a declare que si le bœuf est tombe <b>en arriere</b> dans la fosse <b>en raison du bruit du creusement que</b> l'on est <b>exempte ?</b> La Gemara repond : Ceci s'applique, <b>par exemple, lorsque</b> le bœuf <b>trebuche sur la fosse, et</b> ensuite <b>tombe derriere la fosse</b> et est blesse <b>a l'exterieur de la fosse.</b>
+
+### Partie 5
+Les Sages <b>souleverent une objection a</b> l'opinion du Rav a partir d'une <i>baraita</i> : A l'egard <b>de</b> un animal qui est tombe dans <b>une fosse, qu'il soit</b> tombe en <b>avant</b> ou <b>en <b>arriere,</b> il est <b>responsable.</b> Ceci constitue <b>une refutation concluante de Rav.</b>
+
+### Partie 6
+<b>Rav Hisda a dit</b> en expliquant comment l'opinion de Rav pouvait s'accorder avec la <i>baraita</i> : <b>Rav concede</b> dans le cas <b>d'une fosse sur sa</b> propre <b>propriete qu'</b> une personne est <b>responsable</b> meme si l'animal est tombe en arriere, <b>parce que</b> le proprietaire de l'animal peut <b>dire au</b> proprietaire de la fosse : <b>De quelque facon que vous</b> le regardiez, vous etes responsable. <b>Si</b> mon animal <b>est mort</b> a cause <b>des <b>fumees mortelles</b>, ce <b>sont vos</b> <b>fumees mortelles. Si</b> elle <b>mort</b> en raison <b>de l'impact,</b> il s'agit de l'impact</b> de <b>votre</b> terrain, et non de l'impact d'un terrain du domaine public, ce qui est le cas typique de Pit.
+
+### Partie 7
+<b>Rabba dit</b> que c'est ainsi que la <i>baraita</i> doit etre expliquee selon le Rav : <b>Il s'agit ici de l'endroit</b> ou l'animal a <b>trebuche,</b> c'est-a-dire, <b>ou</b> il a commence a <b>tomber sur le visage, et</b> par la suite <b>tomber et</b> a continue a <b>tomber sur le dos.</b> Dans ce cas, il est responsable <b>parce que les <b>fumees mortelles</b>, qui ont ete efficaces</b> pour blesser l'animal, <b>etaient</b> egalement <b>efficaces</b> pour le tuer.</b>
+
+### Partie 8
+<b>Rav Yosef a dit : Ici,</b> dans cette <i>baraita</i>, <b>nous traitons des dommages</b> a <b>la fosse</b> qui sont causes <b>par le bœuf.</b> Et <b>qu'est-ce que</b> le dommage ? Le dommage est <b>qu'il a contamine l'eau</b> de la fosse, auquel cas la <i>baraita</i> precise <b>que</b> cela ne fait <b>aucune difference</b> si l'animal est tombe <b>en avant et</b> cela ne fait <b>aucune difference</b> s'il est tombe <b>en arriere,</b> puisqu'il <b>est responsable</b> dans les deux cas.
+
+### Partie 9
+<b>Rav Hananya a enseigne</b> une <i>baraita</i> <b>a l'appui</b> de l'opinion de <b>Rav:</b> Le verset dit a propos des dommages causes par une fosse a un animal : <b>"Et</b> un bœuf ou un ane <b>chute</b> dedans" (Exode 21:33), ce qui est interprete comme signifiant qu'on n'est pas responsable <b>sauf si</b> l'animal <b>chute</b> dans la <b>maniere habituelle de tomber. A partir de la</b> les Sages ont <b>etabli</b> que si elle <b>tombait en avant a cause du bruit du creusement,</b> il est <b>responsable,</b> mais si elle tombait <b>en arriere a cause du bruit du creusement,</b> il est <b>exempte, et</b> ce <b>cas</b> et ce</b> cas font reference aux dommages <b>par une fosse.</b>
+
+### Partie 10
+§ <b>Le Maitre a dit</b> dans la mishna : S'il <b>est tombe en avant a cause du bruit du creusement,</b> il est <b>responsable.</b> La Gemara demande : <b>Mais pourquoi</b> il en est ainsi ? <b>Disons</b> que c'est le bruit de <b>la pelleteuse</b> qui a <b>cause</b> la chute de l'animal, et non la fosse elle-meme. La Guemara repond que <b>Rav Shimi bar Ashi a dit :</b> Conformement a <b>l'avis de qui</b> <b>c'est ? </b> C'est <b>selon l'avis de <b>Rabbi Natan, qui dit : Le proprietaire</b> de <b>la fosse cause le dommage</b> par son creusement, <b>et partout ou</b> il n'est <b>pas possible de percevoir</b> le paiement <b>de celui</b> qui a cause la chute, c'est-a-dire le creuseur, le paiement est <b>collecte aupres de celui-la</b>, c'est-a-dire le proprietaire de la fosse. En effet, c'est lui qui, en tout etat de cause, porte la responsabilite du danger qu'il a cree.
+
+### Partie 11
+<b>Comme il est enseigne</b> dans un <i>baraita</i> : En ce qui concerne <b>un bœuf qui a pousse un autre</b> bœuf <b>dans une fosse, le proprietaire du</b> premier <b>bœuf</b> est <b>responsable,</b> et <b>le proprietaire de la fosse</b> est <b>exempte. Rabbi Natan dit : Le proprietaire du</b> premier <b>boeuf paie la moitie</b> du montant, <b>et le proprietaire de la fosse paie la moitie</b> du montant.
+
+### Partie 12
+La Guemara clarifie l'opinion de Rabbi Natan : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> que <b>Rabbi Natan dit :</b> Si un bœuf a pousse un autre bœuf dans une fosse, <b>le proprietaire de la fosse paie les trois quarts, et le proprietaire du</b> premier <b>bœuf</b> paie <b>un quart ?</b> La Gemara resout la contradiction : Ce n'est <b>pas difficile,</b> car <b>cette</b> deuxieme <i>baraita</i> fait reference <b>a un bœuf inoffensif</b> qui a pousse le deuxieme bœuf. Par consequent, le proprietaire du bœuf qui a cause le dommage ne paie que le quart du cout du dommage, soit la moitie de la moitie dont il est responsable. En revanche, <b>cette</b> autre <i>baraita</i> fait reference <b>a un bœuf prevenu</b> qui a pousse un deuxieme bœuf. Par consequent, le proprietaire du bœuf prevenu paie la totalite du montant dont il est responsable, c'est-a-dire la moitie de la valeur du dommage total.
+
+### Partie 13
+La Gemara demande : <b>Et</b> en ce qui concerne <b>un bœuf inoffensif</b>, <b>qu'est-ce que</b> Rabbi Natan <b>tient</b> quant a savoir pourquoi cette personne paie un quart et le proprietaire de la fosse paie trois quarts ? <b>S'il soutient</b> que <b>cette</b> personne, c'est-a-dire le bœuf, a <b>effectue tous les degats et que l'autre,</b> c'est-a-dire la fosse, a <b>effectue</b> tous les degats, alors il aurait du decider que <b>cette</b> personne <b>paye la moitie et que</b> celle-la <b>paye la moitie,</b> puisqu'elles sont toutes deux entierement responsables. Meme si le bœuf etait inoffensif, le proprietaire est quand meme tenu de payer la moitie du cout du dommage, car c'est la responsabilite encourue pour un acte de dommage par un bœuf inoffensif.
+
+### Partie 14
+<b>Et si</b> Rabbi Natan <b>soutient</b> que <b>celui-ci</b>, c'est-a-dire le proprietaire du bœuf, <b>a effectue la moitie du dommage, et que</b> celui-la, c'est-a-dire le proprietaire de la fosse, <b>a effectue la moitie du dommage,</b> alors <b>le proprietaire de la fosse</b> doit <b>payer la moitie</b> du montant dont il est responsable, c'est-a-dire, la moitie du cout du dommage, <b>et le proprietaire de l'inoffensif <b>boeuf</b> ne devrait payer que <b>un quart,</b> soit la moitie du montant dont il est responsable. Quant a <b>l'autre</b> quart restant, </b> la partie lesee n'a aucun recours pour le reclamer, et le <b>perd</b>. Pourquoi, alors, Rabbi Natan considere-t-il que le proprietaire de la fosse paie les trois quarts du dommage ?
+
+### Partie 15
+<b>Rava dit : Rabbi Natan est un juge et</b> a <b>plonge dans toutes les profondeurs de la <i>halakha</i>. En fait, il soutient</b> que <b>cette</b> personne <b>a realise tous les degats et que</b> cette personne <b>a realise tous les degats. Et quant</b> a <b>votre difficulte,</b> que <b>cette</b> un <b>doit payer la moitie et que</b> un doit payer <b>la moitie,</b> ce n'est pas difficile. Le proprietaire du bœuf ne paie qu'un quart, <b>parce que le proprietaire du bœuf</b> peut <b>dire au proprietaire de la fosse : Comment</b> mon partenariat</b> avec toi dans cette situation m'a-t-il <b>aide ? </b> Meme si mon bœuf a cause tout le dommage et qu'aucun dommage n'a ete cause par la fosse, je ne serais tenu de payer que la moitie du cout du dommage. Par consequent, comme nous sommes partenaires dans cette situation, je devrais payer la moitie de ce que j'aurais du payer, c'est-a-dire un quart. Vous devriez payer l'autre moitie de ce que j'aurais du payer, en plus de votre part, puisque vous auriez du payer la totalite des dommages.
+
+### Partie 16
+La Gemara ajoute : <b>Si vous le souhaitez, dites</b> a la place une explication differente : <b>En fait,</b> Rabbi Natan <b>soutient</b> que <b>cette</b>-la a <b>realise la moitie des dommages et que</b>-la a <b>realise la moitie des dommages. Quant</b> a <b>votre difficulte</b> avec le fait que le <b>proprietaire de la fosse</b> doit <b>payer la moitie et le proprietaire du bœuf</b> doit <b>payer un quart, et</b> la partie lesee <b>perd l'autre</b> <b>quart restant,</b> ce n'est pas difficile. Ceci est <b>parce que le proprietaire du</b> <b>bœuf tue</b> peut <b>dire au proprietaire de la fosse : J'ai trouve mon bœuf dans ta fosse.</b> Par consequent, je suppose que <b>tu l'as tue.</b> Donc, concernant <b>cette</b> partie du paiement <b>que je peux recevoir de l'autre,</b> c'est-a-dire du proprietaire du bœuf endommage, <b>je la recevrai</b>. En ce qui concerne <b>cette</b> partie <b>que je ne peux pas recevoir de l'autre</b> individu, <b>je la recevrai de toi.</b>
+
+### Partie 17
+Sur le meme sujet, <b>Rava dit :</b> Si quelqu'un <b>a laisse une pierre a l'ouverture d'une fosse</b> appartenant a une autre personne, <b>et qu'un bœuf est venu, a trebuche dessus et est tombe dans la fosse, nous sommes arrives a la dispute</b> entre <b>Rabbi Natan et les rabbins</b> concernant le partage des responsabilites entre eux. La Guemara demande : N'est-ce pas <b>evident,</b> puisque quelle difference y a-t-il entre le fait que le bœuf soit tombe dans la fosse a cause d'un autre bœuf qui l'a pousse ou a cause de la pierre ?
+
+### Partie 18
+La Guemara repond : Cette decision devait etre enoncee explicitement, <b>de peur que l'on dise</b> que seulement <b>la, le proprietaire de la fosse</b> peut <b>dire au proprietaire du bœuf</b> qui etait responsable du dommage : <b>Sans</b> ma fosse, ton bœuf aurait de toute facon tue</b> le deuxieme bœuf, auquel cas ma fosse n'etait pas la cause du dommage, <b>mais ici, le proprietaire de la pierre peut dire au proprietaire de la fosse : Si ce n'etait</b> de <b>votre fosse, qu'aurait fait ma pierre ? Si</b> le bœuf <b>aurait trebuche dessus,</b> il <b>aurait</b> simplement <b>tombe et se serait releve,</b> et je devrais etre exempte. Par consequent, Rava <b>nous enseigne</b> que cette pretention n'est pas valable, <b>parce que</b> le proprietaire de la fosse peut <b>dire</b> en reponse <b>au</b> proprietaire de la pierre : <b>Sans</b> votre <b>pierre,</b> le bœuf <b>ne serait pas tombe dans la fosse</b> en premier lieu.
+
+### Partie 19
+§ Il <b>a ete declare :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

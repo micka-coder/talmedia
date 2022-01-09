@@ -1,0 +1,30 @@
+
+### Part 1
+<b>And the latter clause</b> of the <i>baraita</i> is in accordance with the opinion of <b>the Rabbis,</b> who maintain that a sin offering that became lost is left to die only if it was found after its replacement had already been sacrificed. <b>Rav Geviha of Bei Katil</b> likewise <b>said to Rav Ashi</b> that <b>this</b> is what <b>Abaye said: The first clause</b> of that <i>baraita</i> is in accordance with the opinion of <b>Rabbi Shimon and the latter clause</b> is in accordance with the opinion of <b>the Rabbis.</b>
+
+### Part 2
+§ <b>Rava says:</b> With regard to the dispute between Rav and Rabbi Yoḥanan, <b>everyone concedes that if one derived benefit from meat of an offering of the most sacred order that</b> had become <b>ritually impure before the sprinkling</b> of the blood on the altar, <b>or</b> from the <b>sacrificial portions,</b> such as the fats <b>of offerings of lesser sanctity, after they have been brought up</b> to the altar, <b>that</b> he is not liable for misuse of consecrated property, and is <b>exempt</b> from repayment or bringing an offering. The reason is that although in both cases the meat must be burned, this burning is not considered part of the Temple service.
+
+### Part 3
+The Gemara asks: Isn’t this ruling <b>obvious? What loss</b> did the one who derived benefit cause to Temple property? The impure meat of an offering of the most sacred order is unfit for the altar and may not be eaten by the priests, and once the portions of offerings of lesser sanctity have been placed on the altar no further service is performed with them.
+
+### Part 4
+The Gemara answers that Rava’s statement is necessary, <b>lest you say</b> with regard to <b>meat of an offering of the most sacred order that</b> had become <b>ritually impure: There is a mitzva for the priests</b> to <b>burn</b> it; and lest you say with regard to the <b>sacrificial portions</b> from the fats <b>of offerings of lesser sanctity: There is a mitzva to turn them with a fork [<i>betzinnora</i>]</b> while they are on the altar, so that they will burn more evenly and quickly. Consequently, one who derives benefit from them should be liable for misuse. Rava therefore <b>teaches us that</b> there is <b>no</b> liability for misuse, as the mitzva to burn them or turn them is not considered part of the sacrificial rite.
+
+### Part 5
+<b>Rava said,</b> in explanation of the above <i>baraita</i>: <b>This</b> <i>halakha</i> <b>that you say,</b> that if <b>his sin offering</b> has <b>already</b> been <b>sacrificed,</b> then the money <b>is cast into the Dead Sea, this statement</b> applies only <b>if</b> his prohibited benefit <b>was made known to him before</b> the <b>atonement,</b> i.e., before the sacrifice of the animal. In such a case, he could have added his money to the value and purchased a better animal for his offering. <b>But</b> if it became known to him only <b>after</b> the <b>atonement,</b> i.e., the sacrifice of the animal, the money is not cast into the Dead Sea. Instead, it is <b>allocated for</b> communal <b>gift</b> offerings. <b>What is the reason?</b> There is a principle that one does <b>not separate</b> money or an offering <b>from the outset</b> in order <b>for</b> it <b>to be lost</b> or destroyed by being cast into the Dead Sea.
+
+### Part 6
+<strong>MISHNA:</strong> The mishna lists sacrificial items that are consumed in their entirety on the altar and of which the priests have no share. <b>One is</b> liable for <b>misuse of the handful</b> taken from the meal offering, <b>and the frankincense</b> burned with the handful on the altar, <b>and the incense</b> burned each day on the golden altar in the Sanctuary, <b>and the meal offering of priests,</b> from which a handful is not taken but which is burned in its entirety, <b>and the meal offering of the anointed priest,</b> i.e., the High Priest, <b>and the meal offering</b> sacrificed with the <b>libations</b> that accompany offerings. In all these cases, one is liable for misuse <b>from</b> the moment <b>that they were consecrated</b> through declaration.
+
+### Part 7
+Once <b>one consecrated them</b> by placing them <b>in</b> the appropriate service <b>vessel,</b> each <b>was rendered susceptible to disqualification</b> for sacrifice <b>through</b> contact with <b>one who immersed</b> in a ritual bath <b>that day, and through</b> contact with <b>one who has not yet</b> brought <b>an atonement</b> offering, <b>and through</b> its blood being <b>left overnight, and one is liable</b> to receive <i>karet</i> <b>for</b> eating <b>it, due to</b> violation of the prohibition of <b><i>notar</i>, and due to</b> the prohibition of partaking of it while <b>ritually impure; but there is no</b> liability for <b><i>piggul</i> in</b> each of these cases.
+
+### Part 8
+<b>This is the principle</b> that applies to <i>piggul</i>: With regard to <b>any</b> consecrated item <b>that has permitting factors,</b> i.e., there is another item whose sacrifice renders it permitted for consumption by the altar or by an individual, <b>one is not liable due to</b> violation of the prohibition of <b><i>piggul</i>, and</b> the prohibition of <b><i>notar</i>, and</b> the prohibition of partaking of it while <b>ritually impure, until they sacrifice</b> the <b>permitting factors.</b>
+
+### Part 9
+<b>And</b> with regard to <b>any</b> item <b>that does not have permitting factors,</b> e.g., the handful and the frankincense, as they render other items permitted whereas no other items are needed to render them permitted, <b>once one sanctified</b> them <b>in the</b> appropriate service <b>vessel, one is liable</b> to receive <i>karet</i> <b>for</b> eating <b>it, due to</b> violation of the prohibition of <b><i>notar</i>, and</b> the prohibition of partaking of it while <b>ritually impure; but there is no</b> liability for <b><i>piggul</i> in</b> those cases.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

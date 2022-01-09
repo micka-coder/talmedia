@@ -1,0 +1,42 @@
+
+### Part 1
+One can infer: <b>But</b> if were <b>not</b> for <b>this</b> decree, the beam would have to be <b>returned</b> to the owner <b>as is,</b> notwithstanding its change in name. <b>Rav Yosef said:</b> This is not a genuine change in name, as <b>a beam retains its name</b> even after it is inserted into a building. <b>As it is taught</b> in a <i>baraita</i> with regard to two obscure terms: The verse states: “And there were narrow windows and palm trees on the one side and on the other side, on the sides of the porch; there were also the <i>tzalot</i> of the house, and the <i>ubbim</i>” (Ezekiel 41:26). <b>“<i>Tzalot</i> of the house”; these are the casings [<i>hamaltetin</i>]. “And the <i>ubbim</i>”; these are the beams [<i>hamerishot</i>].</b> This shows that a beam can retain its name even after it has been built into a house.
+
+### Part 2
+<b>Rabbi Zeira said</b> a different answer: With regard to <b>a change in name, a change</b> in which the item <b>can revert to its original state is not</b> considered enough of <b>a change</b> for the thief to acquire the stolen item. Since the joist can be removed and revert to being called a beam, it is not considered a true change of name.
+
+### Part 3
+The Gemara asks: <b>And is a change in name</b> in <b>which</b> the item <b>does not revert to its original state</b> really considered <b>a change? But there is</b> the case of a water <b>duct, where</b> it was <b>initially</b> called <b>a log [<i>ketzitzta</i>] and now</b> it is called <b>a duct, and it is taught</b> in a <i>baraita</i>: <b>A duct that one hollowed out and afterward attached</b> to the ground or to a building <b>invalidates a ritual bath</b> through the water it channels to the bath. The water in a ritual bath must be gathered directly from rain or a stream, not drawn with vessels. If one hollowed out a log and used it to channel water into the bath, this is considered drawn water, as he used a vessel.
+
+### Part 4
+By contrast, if <b>one attached it</b> first <b>and afterward hollowed it out, it does not invalidate the ritual bath.</b> Before the log was hollowed out, it was already attached to and considered part of the ground, and therefore the act of hollowing it out does not turn it into a vessel.
+
+### Part 5
+The Gemara states its question: <b>And if you say that a change in name is</b> considered <b>a matter</b> of significance, i.e., it is considered a real change in the item, then <b>even if one attached</b> the log first <b>and afterward hollowed it out,</b> the ritual bath <b>should also be invalid.</b> Since hollowing out the log leads to a change in name, it should be considered a new vessel at that point.
+
+### Part 6
+The Gemara answers: The <i>halakha</i> that <b>drawn</b> water may not be used for a ritual bath <b>is different, as it</b> applies <b>by rabbinic law,</b> and consequently the Sages were lenient in this case. The Gemara asks: <b>If so,</b> then <b>even in the first clause,</b> where the log was hollowed out before being attached, it should be permitted <b>as well.</b> The Gemara answers: There is a difference between the two cases. <b>There,</b> in the first clause, the log <b>had the status of a vessel while</b> it was still <b>detached. Here,</b> in the second case, it did <b>not have the status of a vessel while</b> it was <b>detached,</b> but only after it became attached to the ground, and therefore the Sages were lenient.
+
+### Part 7
+The Gemara <b>raises an objection</b> against Rav Yosef’s opinion that the owner’s despair that he will recover his stolen items does not effect acquisition for the thief, from a <i>baraita</i>: With regard to <b>a thief, a robber, and one who forces</b> people to sell him items against their will, <b>their consecration</b> of the items they obtained in these manners is a valid <b>consecration; and the <i>teruma</i> that they separate</b> from the produce they obtained in these manners is valid <b><i>teruma</i>; and the tithes that they separate</b> from those foods are valid <b>tithes.</b> Consecrations, <i>terumot</i>, and tithes must be performed by the owner of the item in question. Since there was no physical change in these items, this shows that the thief is considered the new owner merely by virtue of the owner’s despair of recovery.
+
+### Part 8
+The Sages <b>say,</b> in answer to this question: <b>There,</b> in those cases involving consecrations, <i>terumot</i>, and tithes, <b>there is a change in name</b> of the stolen item, <b>as initially</b> the stolen food was called <b>untithed produce,</b> i.e., produce from which <i>teruma</i> and tithes have not been separated, <b>and now</b> it is called <b><i>teruma</i></b> or tithe. With regard to <b>consecration,</b> it was <b>initially</b> called <b>non-sacred</b> property, <b>and now</b> it is called <b>consecrated</b> property.
+
+### Part 9
+<b>Rav Ḥisda says</b> that <b>Rabbi Yonatan says: From where</b> is it derived <b>that a change</b> in a stolen item causes the thief to <b>acquire</b> it? <b>As it is stated: “And he shall return the stolen item that he took by robbery”</b> (Leviticus 5:23). <b>What</b> is the meaning when <b>the verse states</b> the seemingly superfluous phrase <b>“that he took by robbery”?</b> It teaches that only <b>if</b> the item is in the same state <b>as when he took it by robbery</b> it <b>he must return</b> it. <b>But if not, he is required to pay only money;</b> the stolen item remains his to keep.
+
+### Part 10
+The Gemara asks with regard to this derivation: <b>But this</b> phrase: <b>“That he took by robbery,” is required to exclude</b> the case of an item <b>stolen by one’s father,</b> i.e., <b>that</b> when a son returns an item or money that his father had stolen, <b>he does not add one-fifth to</b> the principal amount of that which <b>his father stole.</b> The passage in question addresses one who stole and took a false oath. This individual is obligated to add one-fifth to the amount he stole (see Leviticus 5:21–24). The apparently redundant phrase “that he took by robbery,” teaches that the requirement to add one-fifth applies only to the sinner himself, not to his heirs (see 104b).
+
+### Part 11
+The Gemara answers: <b>If so,</b> if the verse teaches only that <i>halakha</i>, <b>let the Merciful One write</b> merely: <b>And he shall return his stolen item,</b> as from that phrase alone it could be derived that an heir does not have to add one-fifth. <b>Why do I</b> need the Torah <b>to write</b> the expression <b>“that he took by robbery”?</b> One may therefore <b>conclude two</b> conclusions <b>from</b> this verse: A son need not add one-fifth, and a change in a stolen item effects acquisition for the thief.
+
+### Part 12
+<b>And there are</b> those <b>who say</b> a different version of the above statement: <b>Rav Ḥisda says</b> that <b>Rabbi Yonatan says: From where</b> is it derived that <b>a change</b> in a stolen item <b>does not</b> cause the thief to <b>acquire</b> it? <b>As it is stated: “And he shall return the stolen item that he took by robbery”</b> (Leviticus 5:23), from which it may be inferred that he must return it <b>in any case,</b> even if it has undergone a change. The Gemara asks: <b>But it is written “that he took by robbery,”</b> which indicates that, on the contrary, the item need be returned only if it is in a similar state to when it was stolen. The Gemara answers: <b>That</b> phrase <b>is required</b> to teach another <i>halakha</i>: <b>One adds one-fifth upon</b> returning <b>his own stolen</b> item concerning which he had taken a false oath, <b>but he does not add one-fifth upon</b> returning something <b>stolen by his father.</b>
+
+### Part 13
+<b>Ulla says: From where</b> is it derived <b>that</b> the owner’s <b>despair</b> of recovering his stolen item <b>does not</b> cause the thief to <b>acquire</b> it? <b>As it is stated</b> in the criticism of the Jewish people for bringing inferior animals as offerings: <b>“And you have brought that which is stolen, and the lame, and the sick”</b> (Malachi 1:13). From the juxtaposition of these cases it may be derived that <b>a stolen</b> animal <b>is similar to a lame</b> animal: <b>Just as a lame</b> animal <b>has no rectification at all</b> with regard to its disqualification as an offering,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

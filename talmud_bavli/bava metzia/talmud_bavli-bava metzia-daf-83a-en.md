@@ -1,0 +1,33 @@
+
+### Part 1
+<b>And even on an inclined plane,</b> this <b>works out well where there is no evidence,</b> i.e., in a case without witnesses. <b>But where there is evidence, let him bring evidence and be exempt.</b> Why then is he forced to take an oath? <b>As it is taught</b> in a <i>baraita</i>: <b>Isi ben Yehuda says,</b> with regard to the verse: “And it died or was hurt or driven away <b>without an eyewitness, an oath of the Lord shall be between them”</b> (Exodus 22:9–10), that one can infer from here that if <b>there is an eyewitness,</b> let <b>him bring evidence and be exempt.</b>
+
+### Part 2
+The Gemara previously cited Rabbi Elazar’s answer to the apparent contradiction between the statements of Rabbi Meir, which was followed by an analysis of the various opinions of the <i>tanna’im</i>. The Gemara presents a different interpretation. <b>And Rabbi Ḥiyya bar Abba</b> says that <b>Rabbi Yoḥanan says:</b> There is no difficulty with the oath proposed by Rabbi Meir, as <b>this oath is a decree of the Sages</b> for the betterment of the world. The reason for this oath is <b>that if you do not say so,</b> that an unpaid bailee who broke the barrel in transport can exempt himself by means of an oath, <b>you will have no person who will</b> be willing to <b>transport a barrel for another from one place to another,</b> due to the fear that it might break and he will have to pay.
+
+### Part 3
+The Gemara asks: <b>How</b> exactly <b>does he take an oath? Rava said</b> that the phrasing is: I take <b>an oath that I broke it unintentionally. And Rabbi Yehuda came to say: An unpaid bailee takes an oath,</b> while <b>a paid bailee pays, this one in accordance with his law and that one in accordance with his law. And Rabbi Elazar came to say: Yes,</b> there is <b>a tradition in accordance with</b> the opinion of <b>Rabbi Meir. But I wonder whether</b> both <b>this</b> one <b>and that</b> one <b>can take an oath.</b>
+
+### Part 4
+<b>Granted, an unpaid bailee takes an oath that he was not negligent with regard to</b> the barrel, <b>but why does a paid bailee take an oath?</b> Even <b>if he was not negligent, he is still required to pay. And even</b> with regard to <b>an unpaid bailee, this works out well</b> if the barrel was broken <b>on an inclined plane,</b> but if it broke <b>not on an inclined plane</b> but under different circumstances, <b>how can he take an oath</b> that <b>he was not negligent with it?</b>
+
+### Part 5
+<b>And even on an inclined plane, this works out well where there is no evidence. But where there is evidence, let him bring evidence and be exempt. As it is taught</b> in a <i>baraita</i>: <b>Isi ben Yehuda says,</b> with regard to the verse: “And it died or was hurt or driven away <b>without an eyewitness, an oath of the Lord shall be between them”</b> (Exodus 22:9–10), that one can infer from here that if <b>there is an eyewitness,</b> let <b>him bring evidence and be exempt.</b>
+
+### Part 6
+The Gemara relates: There was <b>a certain man who transported a barrel of wine in the market [<i>beristeka</i>] of Meḥoza and broke it on one of the protrusions</b> of a wall <b>in Meḥoza.</b> The case <b>came before Rava,</b> who <b>said to him:</b> With regard to <b>the market of Meḥoza, people are generally found there. Go</b> and <b>bring evidence</b> in your favor <b>and</b> you will <b>be exempt. Rav Yosef,</b> Rava’s <b>son, said to him: In accordance with whose</b> opinion did you issue this ruling? <b>In accordance with</b> the opinion of <b>Isi</b> ben Yehuda? Rava <b>said to him: Yes,</b> I ruled <b>in accordance with</b> the ruling of <b>Isi, and we hold in accordance with his</b> opinion.
+
+### Part 7
+The Gemara relates a similar incident. There was <b>a certain man who said to another: Go</b> and <b>buy for me four hundred pitchers of wine.</b> The second man <b>went and bought</b> them <b>for him. Ultimately, he came before</b> the first man <b>and said to him: I bought four hundred pitchers of wine for you, but they fermented.</b>
+
+### Part 8
+The case <b>came before Rava,</b> who <b>said to</b> the second man: If <b>four hundred pitchers of wine</b> had <b>fermented, this matter</b> would generate <b>publicity,</b> i.e., people would have heard of this occurrence. Consequently, <b>go</b> and <b>bring proof that initially, when you purchased</b> the pitchers, <b>the wine was good, and you will be exempt. Rav Yosef,</b> Rava’s <b>son, said to him: In accordance with whose</b> opinion did you issue this ruling? <b>According to</b> that of <b>Isi</b> ben Yehuda? Rava <b>said to him: Yes,</b> I ruled <b>in accordance with</b> the ruling of <b>Isi, and we hold in accordance with his</b> opinion.
+
+### Part 9
+The Gemara relates: <b>Rav Ḥiyya bar Yosef issued a decree in</b> the city of <b>Sikhra,</b> where he was the presiding Sage: With regard to <b>those who carry</b> loads <b>on a pole [<i>be’agra</i>] and</b> the item <b>breaks, they must pay half. What is the reason?</b> Such a pole is used to carry loads that are too <b>much for one</b> individual to carry <b>and</b> too <b>little for two.</b> Consequently, this breakage is <b>close to an accident and</b> equally <b>close to negligence,</b> and therefore they compromise with a payment of half liability. If he carried it <b>with a <i>digla</i>,</b> a wooden tool designed for double loads, <b>he pays in full,</b> as the use of such a tool indicates that he was carrying a load beyond the capacity of a single individual to bear and therefore acted negligently.
+
+### Part 10
+The Gemara relates an incident involving <b>Rabba bar bar Ḥanan: Certain porters broke his barrel of wine</b> after he had hired them to transport the barrels. <b>He took their cloaks</b> as payment for the lost wine. <b>They came and told Rav.</b> Rav <b>said</b> to Rabba bar bar Ḥanan: <b>Give them their cloaks.</b> Rabba bar bar Ḥanan <b>said to him:</b> Is <b>this the <i>halakha</i>?</b> Rav <b>said to him: Yes,</b> as it is written: <b>“That you may walk in the way of good men”</b> (Proverbs 2:20). Rabba bar bar Ḥanan <b>gave them their cloaks.</b> The porters <b>said to</b> Rav: <b>We are poor people and we toiled all day and we are hungry and we have nothing.</b> Rav <b>said to</b> Rabba bar bar Ḥanan: <b>Go</b> and <b>give</b> them <b>their wages.</b> Rabba bar bar Ḥanan <b>said to him:</b> Is <b>this the <i>halakha</i>?</b> Rav <b>said to him: Yes,</b> as it is written: <b>“And keep the paths of the righteous”</b> (Proverbs 2:20).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Partie 1
+Dormir aujourd'hui ne lui est pas interdit. Au contraire, cela entraine l'interdiction de dormir pour lui demain, car <b>lorsque</b> on <b>n'est pas prudent,</b> c'est seulement <b>en ce qui concerne une condition.</b> Dans le premier cas, dormir le deuxieme jour ne fait que remplir la condition sur laquelle l'interdiction etait basee, ce qui fait qu'elle prend effet retroactivement. Par consequent, on peut craindre qu'il ne soit pas prudent et qu'il provoque retroactivement une violation. <b>Cependant,</b> on <b>est prudent par rapport a une interdiction.</b> Dans ce dernier cas, dormir le deuxieme jour est directement interdit. Par consequent, on ne craint pas qu'il enfreigne l'interdiction.
+
+### Partie 2
+La Guemara souleve une difficulte par rapport a l'avis du Rav Yehuda : <b>Nous avons appris</b> dans la mishna que celui qui dit : <b>Dormir est <i>konam</i> pour moi,</b> ou : <b>marcher est</b> <i>konam</i> <b>pour moi,</b> ou : <b>Parler est</b> <i>konam</i> <b>pour moi,</b> ne peut violer son vœu. <b>Quelles sont les circonstances ? Si nous disons</b> que la formulation du vœu est precisement <b>comme</b> la mishna <b>l'enseigne, est</b> le vœu : <b>Dormir est</b> <i>konam</i> <b>pour moi,</b> un <b>vœu valide ? Mais n'avons-nous pas appris</b> dans un <i>baraita</i> : Il y a <b>striction a l'egard des serments</b> vis-A -vis des vœux, en <b>ce que les serments s'appliquent a quelque chose qui a une substance</b> reelle <b>et a quelque chose qui n'a pas de substance</b> reelle, <b>ce qui n'est pas le cas pour les vœux. Et le sommeil est quelque chose qui n'a pas de substance effective</b>, alors comment un vœu peut-il s'appliquer au sommeil ? <b>Au contraire,</b> le mishna doit se referer a un cas <b>ou il a dit : Dormir est <i>konam</i> pour mes yeux.</b>
+
+### Partie 3
+La Guemara remet en question cette interpretation : <b>Et s'il n'a pas donne de mesure</b> a l'interdiction creee par le vœu, mais s'est plutot interdit de dormir pendant une periode illimitee, <b>doit-on le laisser</b> etre <b>jusqu'a ce qu'il</b> transgresse inevitablement l'interdiction : Il ne doit pas profaner,</b> en s'endormant ? <b>Mais Rabbi Yohanan n'a-t-il pas dit</b> que si quelqu'un dit : Je fais par la presente <b>un serment que je ne dormirai pas pendant trois jours,</b> le tribunal le <b>flogue</b> pour avoir fait un serment en vain, <b>et il peut dormir immediatement,</b> car il est incapable d'accomplir son serment. La aussi, si l'interdiction n'a pas de delai, le vœu ne doit pas prendre effet.
+
+### Partie 4
+<b>La mishna doit plutot faire reference a un cas <b>ou</b> on <b>dit : Dormir est <i>konam</i> pour mes yeux demain si je dors aujourd'hui.</b> Le mishna juge qu'il ne peut pas dormir aujourd'hui, de peur de transgresser l'interdiction de : Il ne doit pas profaner, en dormant demain. Cependant, <b>N'avez-vous pas dit</b> qu'en ce qui concerne ce vœu, il est convenu qu'il peut dormir aujourd'hui, car on <b>fait attention a toute</b> <b>interdiction</b> directe et on ne transgressera pas le vœu demain ? Si oui, pourquoi lui est-il interdit de dormir aujourd'hui ?
+
+### Partie 5
+<b>Au contraire,</b> il <b>est evident</b> que la mishna fait reference a un cas <b>ou</b> on <b>dit : Dormir est <i>konam</i> pour mes yeux aujourd'hui si je dors demain.</b> La Gemara demande : <b>Et s'il ne dort pas aujourd'hui, quand il dormira demain, quelle</b> transgression de : <b>Il ne profanera pas sa parole, y a-t-il ? Ne s'agit-il pas plutot par rapport</b> a un cas <b>ou il a dormi</b> le premier jour, et donc la mishna l'avertit de ne pas dormir le deuxieme jour de peur qu'il ne transgresse l'interdit retroactivement ? <b>Apparemment, il existe</b> une situation <b>dans laquelle il dort</b> le premier jour. <b>Et</b> il s'agit la d'une <b>refutation</b> de l'avis <b>du Rav Yehuda</b> selon lequel il ne peut pas dormir aujourd'hui de peur de dormir demain egalement, transgressant ainsi l'interdit.
+
+### Partie 6
+La Gemara repond : <b>Lorsque</b> la mishna <b>enseigne</b> qu'il ne doit pas dormir demain, cela ne signifie pas qu'aujourd'hui il peut dormir <i>ab initio</i>. Cela signifie plutot <b>que s'il a dormi</b> aujourd'hui, il doit faire attention a ne pas dormir demain.
+
+### Partie 7
+<b>Ravina a dit</b> une reponse differente : <b>En fait,</b> la mishna peut etre interpretee <b>comme elle l'enseigne,</b> c'est-a-dire que dormir est <i>konam</i> pour moi. Le vœu ne prend pas effet, car le sommeil n'a pas de substance reelle. <b>Et</b> si tel est le cas, <b>quelle est la raison pour laquelle la mishna precise que s'il dort, il enfreint l'interdiction : <b>Il ne profanera pas ?</b> Il transgresse l'interdiction <b>par la loi rabbinique.</b> Bien que le vœu ne prenne pas effet par la loi de la Torah, les Sages lui ont interdit de manquer a sa parole.
+
+### Partie 8
+La Gemara demande : <b>Mais y a-t-il une</b> interdiction de : <b>Il ne doit pas profaner, par la loi rabbinique ?</b> La Gemara repond : <b>Oui, et c'est enseigne</b> dans une <i>baraita</i> : En ce qui concerne les <b>matieres qui sont permises, mais d'autres ont l'habitude d'observer une interdiction a leur egard, vous ne pouvez pas permettre</b> ces matieres <b>devant</b> ces personnes, <b>comme il est dit : "Il ne profanera pas sa parole"</b> (Nombres 30:3). S'ils contreviennent a leur coutume, ils enfreignent l'interdiction : Il ne profanera pas sa parole, selon la loi rabbinique, car cela s'apparente a la violation d'un vœu.
+
+### Partie 9
+La Guemara tente a nouveau de soulever une difficulte par rapport a l'avis du Rav Yehuda. <b>Nous avons appris</b> dans une mishna (57a) que si un homme dit a sa femme : <b>Tirer profit de moi jusqu'a Pessah</b> est <i>konam</i> <b>pour toi si tu vas chez ton pere jusqu'a la</b> <b>fete</b> suivante de <i>Soukkot</i>, alors, si <b>elle est allee</b> chez son pere <b>avant Pessah, il lui est interdit de tirer profit de lui jusqu'a Pessah,</b> car elle a viole la condition, permettant ainsi au vœu de prendre effet.
+
+### Partie 10
+La Guemara en deduit : Ce n'est que si <b>elle est partie avant Pessah</b> qu'il est <b>interdit pour elle</b> de tirer profit de lui. En revanche, si <b>elle n'y est pas allee,</b> il ne lui est <b>pas</b> interdit de tirer profit de lui. Apparemment, meme si elle peut transgresser la condition retroactivement jusqu'a <i>Sukkot</i> en allant chez son pere, il n'y a pas de crainte qu'elle le fasse. Ceci est difficile selon le Rav Yehouda, qui interdit la transgression d'un vœu conditionnel qui peut prendre effet retroactivement.
+
+### Partie 11
+<b>Rabbi Abba dit</b> que la <i>baraita</i> peut etre interpretee comme suit : Si <b>elle est allee avant Pessah, il lui</b> est <b>interdit de</b> tirer un benefice de lui, <b>et</b> si elle le fait <b>elle est fouettee.</b> Si <b>elle n'est pas allee</b> avant Pessah, il lui est <b>seulement interdit</b> de tirer un benefice de lui, de peur qu'elle ne viole la condition et que le vœu prenne effet retroactivement. Cependant, elle ne risque pas d'etre fouettee pour cela, car le vœu n'a pas encore pris effet.
+
+### Partie 12
+La Gemara riposte : <b>Disons la derniere clause</b> de cette mishna, qui stipule que si elle se rend chez son pere <b>apres Pessah</b>, elle est <b>en</b> violation de : <b>Il ne doit pas profaner sa parole. Et si</b> la mishna fait reference a un cas <b>ou elle n'a pas tire de benefice</b> de lui <b>avant Pessah, y a-t-il</b> une transgression de : <b>Il ne profanera pas ?</b> Clairement, le vœu n'a pas ete viole. <b>Au contraire,</b> il <b>est evident qu'elle a tire un benefice</b> de lui avant Pessah, et donc si elle va chez son pere entre Pessah et <i>Sukkot</i> elle viole le vœu retroactivement. <b>Apparemment, elle peut tirer un benefice</b> de lui, meme si elle peut ulterieurement violer le vœu en transgressant la condition.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

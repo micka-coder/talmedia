@@ -1,0 +1,39 @@
+
+### Partie 1
+Par consequent, <b>meme</b> si le recipient en terre cuite etait <b>plein</b> d'objets aussi petits que des graines de <b>moutarde</b>, dont quelques-uns seulement ont touche les parois du recipient ou l'objet impur qui s'y trouvait, tous les objets contenus dans le recipient sont rendus rituellement impurs. De meme, en ce qui concerne la neige qui traverse l'espace aerien du recipient, elle devient toute impure.
+
+### Partie 2
+<strong>MISHNA:</strong> Les organes reproducteurs d'une femme sont composes de differentes parties, et le statut halakhique du sang qui emerge d'une partie differe du statut halakhique du sang qui emerge d'une autre partie. <b>Les Sages ont enonce une parabole concernant</b> la structure des organes sexuels de <b>une femme,</b> en se basant sur la structure d'une maison : <b>La</b> <b>chambre interieure</b> represente l'uterus, <b>et le couloir [<i>perozdor</i>]</b> menant a la chambre interieure represente le canal vaginal, <b>et l'etage superieur</b> represente la vessie.
+
+### Partie 3
+<b>Le sang</b> provenant de <b>la <b>salle interieure</b> est rituellement impur. Le sang</b> provenant de <b>l'etage superieur est rituellement pur.</b> Si du sang <b>a ete trouve dans le couloir,</b> on ne sait pas s'il provient de l'uterus et est impur, ou de la vessie et est pur. Malgre <b>son</b> etat d'<b>incertitude,</b> il est juge definitivement <b>impur, en raison</b> du fait <b>que son statut presume</b> est celui d'un sang qui est venu <b>de la source,</b> c'est-a-dire de l'uterus, et non de la vessie.
+
+### Partie 4
+<strong>GEMARA:</strong> <b>Rami bar Shmuel et Rav Yitzhak, fils de Rav Yehuda, apprenaient</b> le tractate <b><i>Nidda</i></b> dans <b>la salle d'etude de Rav Huna. Rabba bar Rav Huna les trouva assis et disant</b> une interpretation de cette mishna : <b>La chambre,</b> c'est-a-dire l'uterus, est la partie <b>interieure</b> des organes reproducteurs, <b>et le couloir</b> est la partie <b>exterieure</b>. <b>Et l'etage superieur,</b> la vessie, <b>est construite,</b> c'est-a-dire trouvee, <b>au-dessus des deux. Et</b> il y a <b>un vestibule ouvert entre</b> l'<b>etage superieur et le couloir.</b>
+
+### Partie 5
+Ils poursuivent : Si du sang est <b>trouve a partir</b> de l'ouverture de ce <b>vestibule et vers l'interieur</b> vers l'uterus, c'est-a-dire , a l'interieur du vagin, il y a incertitude quant a savoir s'il provient de l'uterus et est impur, ou de la vessie et est pur, mais <b>son</b> etat d'<b>incertitude</b> le rend definitivement <b>impur. </b> S'il est trouve dans la zone <b>de l'ouverture de ce <b>vestibule et vers l'exterieur,</b> sur la surface externe de la vulve, le sang est plus probablement venu de la vessie, par l'uretre, et donc <b>son</b> etat d'<b>incertitude</b> le rend <b>pur.</b>
+
+### Partie 6
+Rabba <b>vint et dit a son pere,</b> Rav Huna : A propos de la <i>halakha</i> de sang que l'on trouve a partir du vestibule et vers l'interieur, <b>Le Maitre nous a-t-il dit</b> que <b>son</b> etat d'<b>incertitude</b> le rend <b>impur,</b> comme je l'ai entendu dans la salle d'etude, d'ou l'on peut deduire qu'il s'agit d'un cas d'impurete incertaine ? <b>Mais n'avons-nous pas appris</b> dans la mishna : Le sang est impur <b>en raison</b> du fait <b>que son statut presume</b> est celui d'un sang qui est venu <b>de la source,</b> c'est-a-dire de l'uterus ? Cela indique qu'il s'agit d'un cas d'impurete certain. Si c'est le cas, la mishna ne peut faire reference ni au sang trouve a partir du vestibule et vers l'interieur, ni a partir du vestibule et vers l'exterieur.
+
+### Partie 7
+Rav Huna <b>dit a</b> son fils Rabba : <b>Voici ce que j'ai dit :</b> Si le sang a ete trouve <b>du vestibule vers l'interieur</b> il est <b>definitivement impur,</b> car il est presume provenir de l'uterus. C'est le cas mentionne dans la mishna. Si le sang a ete trouve <b>du vestibule vers l'exterieur son</b> etat d'<b>incertitude</b> le rend <b>impur.</b> Bien que l'on puisse pretendre que si c'etait du sang de l'uterus il n'aurait pas ete trouve dans cette zone, il est possible que lorsque la femme s'est penchee, le sang soit passe de l'uterus dans cette zone. Par consequent, elle est impure en raison de l'incertitude.
+
+### Partie 8
+<b>Abaye dit : Qu'y a-t-il de different</b> dans une situation ou le sang a ete trouve <b>du vestibule vers l'exterieur, ou son</b> etat d'<b>incertitude</b> le rend <b>impur ? </b> La raison de cette <i>halakha</i> est <b>que peut-etre</b> la femme <b>s'est penchee</b> et s'est penchee en avant, <b>et</b> le sang <b>est venu de la piece,</b> c'est-a-dire de l'uterus. Si tel est le cas, dans le cas ou le sang a ete trouve <b>du vestibule vers l'interieur,</b> a propos duquel vous avez juge qu'elle est definitivement impure, vous pouvez <b>aussi dire</b> qu'il est possible que la femme ait <b>trebuche</b> en arriere <b>et</b> en consequence le sang <b>est venu de</b> l'etage superieur</b> au fond du canal. En consequence, elle devrait etre impure par simple incertitude.
+
+### Partie 9
+<b>Abaye dit plutot : Si vous suivez la preoccupation,</b> c'est-a-dire si votre decision de <i>halakha</i> est basee sur une preoccupation que le sang aurait pu se deplacer en raison de la femme se penchant en avant ou en arriere, alors dans <b>ce</b> cas <b>et celui-la,</b> que le sang soit trouve dans la section interieure ou exterieure du canal, la source du sang <b>est incertaine. Et si l'on suit</b> la <b>presomption</b> basee sur la provenance habituelle du sang trouve dans un endroit particulier, alors le sang trouve <b>du vestibule vers l'interieur est definitivement impur,</b> alors que le sang trouve <b>du vestibule vers l'exterieur est definitivement pur.</b>
+
+### Partie 10
+<b>Rabbi Hiyya enseigne : Le sang que l'on trouve dans le couloir</b> est considere comme du sang menstruel certain, et par consequent, si elle a des rapports sexuels, elle et son partenaire seraient <b>responsables, en raison de</b> ce sang, de recevoir du <i>karet</i> <b>pour etre entre dans le Temple</b> intentionnellement alors qu'il est rituellement impur, ou d'apporter une offrande pour y etre entre involontairement. <b>Et on brule <i>teruma</i> a cause de cela,</b> si la femme touche un tel produit. <b>Et Rav Ketina dit :</b> Il est impur simplement par incertitude ; par consequent, la femme <b>n'est pas obligee, a cause</b> de ce sang, d'apporter une offrande <b>pour entrer dans le Temple</b> lorsqu'elle est rituellement impure, <b>et on ne brule pas le <i>teruma</i> pour son compte.</b>
+
+### Partie 11
+La Guemara discute de la relation entre ce differend et les declarations precedentes des <i>amoraim</i>. <b>Selon cette formulation,</b> c'est-a-dire cette option, <b>cette declaration d'Abaye : Si l'on suit le souci</b> que le sang ait pu se deplacer en raison du fait que la femme s'est penchee en avant ou en arriere, il y a une incertitude quant au fait que le sang ait ete trouve dans la section interieure ou exterieure du canal, ceci <b>appuie</b> l'opinion <b>du Rav Ketina,</b> qui de meme juge impur le sang trouve dans le canal en raison de l'incertitude. <b>Et</b> cette option suggeree par Abaye <b>contredit</b> l'opinion <b>de Rabbi Hiyya,</b> qui juge le sang definitivement impur.
+
+### Partie 12
+<b>Selon cette formulation que Abaye a enoncee : Si vous suivez</b> la <b>presomption</b> que le sang trouve dans la section interieure est definitivement impur, tandis que le sang trouve dans la section exterieure est definitivement pur, cela <b>appuie</b> l'opinion du <b>Rabbi Hiyya,</b> dont la decision selon laquelle le sang est definitivement impur est comprise comme se referant au sang trouve dans la section interieure.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

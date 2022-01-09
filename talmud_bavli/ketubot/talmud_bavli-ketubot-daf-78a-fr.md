@@ -1,0 +1,27 @@
+
+### Partie 1
+<strong>MISHNA :</strong> En ce qui concerne une <b>femme a qui un bien a ete legue avant qu'elle ne soit fiancee,</b> et qu'elle a ensuite ete fiancee, <b>Beit Shammai et Beit Hillel sont d'accord pour dire qu'elle peut vendre ou donner</b> le bien en cadeau, <b>et</b> la transaction <b>est valide.</b> Cependant, si le bien <b>lui a ete legue apres qu'elle ait ete fiancee, Beit Shammai dit : Elle peut le vendre</b> tant qu'elle est fiancee, <b>et Beit Hillel disent : Elle ne peut pas le vendre</b>. Tant <b>ceux-la,</b> Beit Shammai, <b>que ceux-la,</b> Beit Hillel, <b>sont d'accord que si elle l'a vendu</b> <b>ou l'a donne</b> en cadeau, la transaction est <b>valide.</b>
+
+### Partie 2
+<b>Rabbi Yehuda a dit</b> que <b>les Sages ont dit avant Rabban Gamliel : Puisqu'il a acquis la femme</b> elle-meme par fiancailles, ne va-t-il pas <b>acquerir la propriete</b> des le moment de leurs fiancailles ? Pourquoi, alors, sa transaction est-elle valide ? Rabban Gamliel <b>leur a dit : En ce qui concerne le nouveau</b> bien dont elle a herite apres le mariage, <b>nous avons honte,</b> car on ne voit pas pourquoi elle ne peut pas le vendre, puisqu'il lui appartient ; <b>et vous</b> cherchez aussi a <b>nous imposer</b> une interdiction en ce qui concerne <b>l'ancien</b> bien qu'elle possedait auparavant ?
+
+### Partie 3
+Si le bien <b>lui a ete legue apres son mariage,</b> tant <b>ceux-la,</b> Beit Shammai, <b>que ceux-la,</b> Beit Hillel, <b>sont d'accord pour dire que si elle a vendu</b> le bien <b>ou l'a donne</b>, <b>le mari peut en reprendre possession</b> aupres des acheteurs. </b> Si elle a herite du bien <b>avant de se marier et</b> ensuite <b>se marier, Rabban Gamliel dit : si elle a vendu ou donne</b> le bien, la transaction est <b>valide. Rabbi Hanina ben Akavya a dit</b> que les Sages <b>ont dit devant Rabban Gamliel : Puisqu'il a acquis la femme</b> par le mariage, n'aura-t-il pas <b>pas acquis le bien ?</b> Rabban Gamliel leur <b>a repondu : A l'egard de la nouvelle</b> propriete <b>nous avons honte, et vous</b> cherchez aussi a <b>imposer sur nous</b> une interdiction a l'egard de <b>l'ancienne</b> propriete ?
+
+### Partie 4
+<b>Rabbi Shimon fait une distinction entre</b> un type de <b>biens et</b> un autre type de <b>biens : Les biens connus du mari qu'elle ne peut vendre</b> une fois mariee, <b>et si elle les vend</b> <b>ou les donne</b>, la transaction est <b>vide.</b> Les biens <b>inconnus du mari qu'elle ne peut vendre, mais si elle les vend</b> <b>ou les donne</b>, la transaction est <b>valide.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est different</b> dans la <b>premiere clause</b> de la mishna, lorsqu'elle a herite d'un bien avant ses fiancailles, de telle <b>que</b> Beit Shammai et Beit Hillel <b>ne sont pas en desaccord, et qu'est-ce qui est different</b> dans <b>la derniere clause,</b> lorsqu'elle a herite d'un bien apres les fiancailles, de telle <b>qu'ils sont en desaccord ? </b> Si le differend porte sur le droit a sa propriete apres ses fiancailles, quelle difference cela fait-il que sa propriete ait commence avant ou apres les fiancailles ?
+
+### Partie 6
+La Guemara repond que les Sages <b>de l'ecole de Rabbi Yannai disent : Dans la premiere clause,</b> lorsqu'elle a herite du bien avant ses fiancailles, l'heritage <b>lui a ete legue</b> pendant une periode ou <b>elle</b> avait <b>des droits</b> sur son bien, alors que <b>dans la derniere clause,</b> l'heritage <b>lui a ete legue</b> pendant une periode ou <b>il</b> avait <b>des droits</b> sur son bien.
+
+### Partie 7
+La Gemara souleve une difficulte : <b>Si,</b> dans cette derniere clause, le bien <b>etait legue</b> a elle lorsque <b>il</b> avait <b>des droits</b> sur ce bien, <b>pourquoi</b> la transaction est-elle <b>valide lorsqu'elle l'a vendu</b> <b>ou donne</b> ? <b>Au contraire,</b> dans <b>la premiere clause,</b> ou elle a herite du bien avant ses fiancailles, il a <b>certainement ete legue</b> a elle quand <b>elle</b> avait des <b>droits</b> dessus et il lui appartient donc pleinement. Cependant, dans <b>la derniere clause,</b> ou elle en a herite apres ses fiancailles, on peut <b>dire</b> que peut-etre pendant ce temps <b>elle a des droits</b> sur ce bien, ou <b>dire</b> que peut-etre pendant ce temps <b>il a des droits</b> sur ce bien. Comme la propriete du bien est une question d'incertitude, le Beit Hillel statue que <b>elle ne peut pas vendre <i>ab initio</i>,</b> mais <b>si elle l'a vendu</b> <b>ou donne</b>, la transaction est <b>valide.</b>
+
+### Partie 8
+§ La mishna indique que <b>Rabbi Yehuda a dit</b> que les Sages ont <b>dit devant Rabban Gamliel :</b> Puisqu'il a acquis la femme elle-meme par fiancailles, ne va-t-il pas acquerir la propriete des le moment de leurs fiancailles ? <b>Un dilemme a ete souleve devant</b> les Sages : Lorsque <b>Rabbi Yehuda</b> a cite cette question des Sages, faisait-il reference <b>a</b> sa vente de la propriete <b><i>ab initio</i>,</b> ce qui est permis uniquement selon Beit Shammai, <b>ou</b> faisait-il reference <b>a</b> la vente <b>apres coup,</b> ce qui est valable meme selon Beit Hillel ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+He means that it is <b>a mitzva to say to them: Do you want</b> a strict <b>judgment,</b> or <b>do you want a compromise?</b> The Gemara objects: Since this opinion <b>is</b> the same as that of <b>the first <i>tanna</i>,</b> who also allows compromise, it is redundant to teach it. The Gemara answers: There is a difference <b>between</b> them with regard to the question of whether it is <b>a mitzva</b> to arrange a compromise. <b>Rabbi Yehoshua ben Korḥa holds</b> that it is <b>a mitzva</b> to offer them the option of compromise, and <b>the first <i>tanna</i> holds</b> that it is merely <b>permitted.</b>
+
+### Part 2
+The Gemara objects: If so, the opinion of the first <i>tanna</i> <b>is</b> the same as that <b>of Rabbi Shimon ben Menasya.</b> The Gemara answers that there is a difference <b>between them</b> with regard to the principle: <b>After you hear their statements and you know where the judgment is leaning,</b> it <b>is not permitted</b> for <b>you to say to them: Go out and mediate.</b> In that instance, the first <i>tanna</i> holds that it is still not too late to suggest mediation.
+
+### Part 3
+§ <b>And</b> the various Sages who offered interpretations of the verse: “And the covetous blesses himself, though he despises the Lord” (Psalms 10:3), <b>disagree with</b> the explanation <b>of Rabbi Tanḥum bar Ḥanilai. As Rabbi Tanḥum bar Ḥanilai says: This verse was stated only with regard to the incident of the</b> Golden <b>Calf, as it is stated: “And Aaron saw this, and he built [<i>vayyiven</i>] an altar [<i>mizbe’aḥ</i>] before it…</b>and said: Tomorrow shall be a feast to the Lord” (Exodus 32:5). <b>What</b> did Aaron <b>see? Rabbi Binyamin bar Yefet says</b> that <b>Rabbi Elazar says: He saw Hur, who</b> had been appointed together with Aaron by Moses to lead the people during Moses’ absence (see Exodus 24:14), <b>slaughtered before him,</b> as he had protested the plan to fashion a calf and had been murdered by the people as a result. The verse is therefore interpreted not as: Aaron built an altar before the calf, but rather: He understood [<i>vayyaven</i>] from the slaughter [<i>mizavuaḥ</i>] before his own eyes; and he then called for a feast.
+
+### Part 4
+Aaron <b>said</b> to himself: <b>If I do not listen to them now, they will do to me as they did to Hur,</b> and the verse: <b>“Shall the priest and the prophet be slain in the sanctuary of the Lord?”</b> (Lamentations 2:20), <b>will be fulfilled through me, and they will never have a remedy</b> for such a sin. It is <b>better</b> for them <b>to worship the calf,</b> as it is <b>possible they will have a remedy through repentance.</b> Nevertheless, according to Rabbi Tanḥum bar Ḥanilai, whoever praises Aaron for this compromise is provoking God.
+
+### Part 5
+<b>And</b> with regard to <b>those <i>tanna’im</i></b> who did not interpret the verse: <b>“The beginning of strife is as when one releases water”</b> (Proverbs 17:14), with regard to compromise, <b>what do they derive from</b> this verse? They understand the verse <b>in accordance with</b> the opinion <b>of Rav Hamnuna, as Rav Hamnuna says: The beginning of a person’s judgment</b> after he dies is that he is <b>judged only concerning matters of Torah, as it is stated: “The beginning of strife is as when one releases water.”</b> Based on this verse, <b>Rav Huna says: This quarrel</b> between people is <b>comparable to</b> a split in <b>a hose</b> caused by <b>a burst of water,</b> emptying into a field; <b>once</b> the split in the hose <b>widens, it widens</b> even more and can no longer be repaired. To save the field, the hose must be repaired as soon as it splits. The same is true with regard to a quarrel; it must be stopped as soon as it begins.
+
+### Part 6
+<b>Abaye the Elder</b> makes a similar point with a different metaphor, and <b>says:</b> A quarrel is <b>comparable to a board in</b> a wooden <b>bridge. Once</b> it <b>has stood</b> in its place and been stabilized, it continues to <b>stand</b> and becomes ever more rigid and stable. Consequently, the best time to address and end the dispute is at the very beginning.
+
+### Part 7
+§ Apropos the previous discussion, the Gemara recounts several incidents in which passersby recited popular proverbs. <b><i>Shimi ushti</i>, <i>sheva zemirot hu</i></b> is <b>a mnemonic</b> device for these incidents.
+
+### Part 8
+There was <b>a certain</b> man <b>who was saying as he walked: It is good</b> for a person <b>who hears</b> statements said against him <b>and</b> yet <b>remains silent,</b> as <b>a hundred misfortunes pass him by</b> as a result. Upon hearing this, <b>Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> that conveys the message of this aphorism: <b>“The beginning of strife is as when one releases water”</b> (Proverbs 17:14). The words “beginning [<i>poter</i>] of strife [<i>reishit madon</i>]” allude to: <b>The beginning of one hundred litigations [<i>reish me’a dinei</i>].</b> Troubles are avoided if one overlooks and excuses [<i>poter</i>] an offense.
+
+### Part 9
+There was <b>a certain</b> man <b>who was saying as he walked</b> by: <b>For</b> only <b>two</b> or <b>three</b> thefts, <b>the thief</b> is <b>not executed</b> by the heavenly court. <b>Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> that conveys the message of this aphorism: <b>“So says the Lord: For three transgressions of Israel, or for four, I will not repay it”</b> (Amos 2:6). Shmuel interprets the verse rhetorically, as if saying: Will I not repay the fourth offense? Accordingly, before the fourth offense, it is still possible to rectify the sins.
+
+### Part 10
+There was <b>a certain</b> man <b>who was saying as he walked: Seven pits</b> are dug <b>for the man of peace,</b> and he escapes all of them, <b>and one</b> pit is dug <b>for the evildoer,</b> and he cannot escape it. <b>Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> that conveys the message of this aphorism: <b>“For a righteous man falls seven times, and rises up again, but the wicked shall fall at once”</b> (see Proverbs 24:16, 28:18).
+
+### Part 11
+There was <b>a certain</b> man <b>who was saying as he walked:</b> With regard to one <b>who goes from the court,</b> and his <b>cloak</b> has been <b>taken</b> from him in the course of the proceedings, i.e., he lost all his money due to a ruling against him, <b>let him sing a song and go</b> happily <b>on the way.</b> Although he lost the case, he has benefited from justice being served. <b>Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> with regard to Yitro’s advice for judiciary reforms that conveys the message of this aphorism: <b>“And all these people shall also go to their place in peace”</b> (Exodus 18:23). If justice is served, all the litigants, not only those who emerge victorious, can leave in peace.
+
+### Part 12
+There was <b>a certain</b> man <b>who was saying as he walked:</b> If a woman is carrying a basket on her head, when <b>she is dozing the reed basket falls. Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> that conveys the message of this aphorism: <b>“By laziness the rafters sink in;</b> and through idleness of the hands the house leaks” (Ecclesiastes 10:18).
+
+### Part 13
+There was <b>a certain</b> man <b>who was saying as he walked: The man upon whom I relied</b> has <b>lifted his fist [<i>ligzizeih</i>] and stood</b> against me. <b>Shmuel said to Rav Yehuda: A verse</b> is <b>written</b> that conveys the message of this aphorism: <b>“Indeed, my own familiar friend, in whom I trusted,</b> who did eat of my bread, has lifted up his heel against me” (Psalms 41:10).
+
+### Part 14
+There was <b>a certain</b> man <b>who was saying</b> about his marriage <b>as he walked: When our love was strong, we</b> could have <b>slept on</b> a bed that was <b>the width of a sword. Now that our love is not strong, a bed of sixty cubits</b> is <b>not sufficient for us. Rav Huna said: Verses</b> are <b>written</b> that convey these sentiments. <b>Initially, it was written: “I will meet with you there and I will speak with you from above the Ark Cover”</b> (Exodus 25:22), <b>and it is taught</b> in a <i>baraita</i>: The <b>Ark</b> of the Covenant was itself <b>nine</b> handbreadths high, <b>and</b> the <b>Ark Cover</b> was one <b>handbreadth</b> thick. <b>There</b> is a total height of <b>ten</b> handbreadths <b>here.</b> At first, when God had great affection for Israel, the Divine Presence was revealed within the confines of this limited space.
+
+### Part 15
+<b>And it is written: “And the house that King Solomon built for the Lord, its length was sixty cubits, and its breadth twenty cubits, and its height thirty cubits”</b> (I Kings 6:2). <b>And at the end,</b> when Israel sinned, the whole of the space of the Temple was not expansive enough for the Divine Presence to rest within it, as <b>it is written: “Thus says the Lord: The heaven is My throne, and the earth is My footstool; where is the house that you may build for Me?</b> And where is the place that may be My resting place?” (Isaiah 66:1). In times of discord, the Temple is an insufficient resting place for the Divine Presence.
+
+### Part 16
+The Gemara returns to analyzing the <i>Tosefta</i>. <b>From where may</b> it <b>be inferred that this</b> expression: <b>“You shall not be afraid [<i>taguru</i>]”</b> (Deuteronomy 1:17), <b>is a term for gathering in,</b> so that the term may be interpreted to mean that a judge may not keep his ruling to himself? <b>Rav Naḥman said: The verse states:</b> “You shalt plant vineyards and dress them, <b>but you shall neither drink of the wine, nor gather [<i>te’egor</i>]”</b> (Deuteronomy 28:39). <b>Rav Aḥa bar Ya’akov says</b> it is derived <b>from here: “She provides her bread in the summer, and gathers [<i>agra</i>] her food in the harvest”</b> (Proverbs 6:8). <b>Rav Aḥa, son of Rav Ika, says</b> it is derived <b>from here: “A wise son gathers [<i>oger</i>] in the summer”</b> (Proverbs 10:5).
+
+### Part 17
+§ The Gemara provides <b>a mnemonic</b> device indicating the following series of statements about judges and their functions: <b><i>Emet mamon yireh</i>. Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says: Any judge who judges a judgment</b> according to <b>absolute truth</b> [<i>emet</i>] <b>causes the Divine Presence to rest among Israel, as it is stated: “God stands in the congregation of God; in the midst of the judges He judges”</b> (Psalms 82:1), indicating that the Divine Presence is in the midst of the court. <b>And every judge who does not judge a judgment</b> according to <b>absolute truth causes the Divine Presence to withdraw from Israel, as it is stated: “For the oppression of the poor, for the sighing of the needy, now will I arise, says the Lord”</b> (Psalms 12:6). God will arise and leave the people as a result of oppression.
+
+### Part 18
+<b>And Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says:</b> With regard to <b>any judge who takes</b> disputed property or money [<i>mamon</i>] <b>from this</b> litigant <b>and gives</b> it <b>to that</b> other litigant <b>unlawfully, the Holy One, Blessed be He, takes his soul from him</b> as punishment for his corruption, <b>as it is stated: “Rob not the weak, because he is weak, neither crush the poor in the gate; for the Lord will plead their cause and despoil of life those who despoil them”</b> (Proverbs 22:22–23). God cautions that He will take the life of one who steals from the poor at the gate, meaning in the courtroom, as the city gate was the traditional site of the community’s court.
+
+### Part 19
+<b>And Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Yonatan says: A judge should always view</b> [<i>yireh</i>] <b>himself as if a sword is placed between his thighs,</b> so that if he leans to the right or to the left he will be injured, <b>and</b> as if <b>Gehenna is opened up beneath him,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

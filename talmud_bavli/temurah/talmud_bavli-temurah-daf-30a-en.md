@@ -1,0 +1,45 @@
+
+### Part 1
+<b>It is</b> in accordance with the opinion of <b>Rabbi Elazar, who says:</b> With regard to <b>an unmarried man who engaged in intercourse with an unmarried woman not for the purpose of marriage, he has</b> thereby <b>caused her to become a prostitute.</b> It is for this reason that her payment is prohibited to be sacrificed on the altar. By contrast, Abaye holds in accordance with the opinion of the Rabbis, who disagree with Rabbi Elazar. The Gemara asks: <b>If</b> the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Elazar, why</b> mention <b>specifically</b> the prohibition of <b>a widow</b> who is paid for engaging in intercourse with a High Priest? <b>Let</b> it <b>teach</b> that payment is prohibited even in the case of an unmarried man who engaged in intercourse with <b>an unmarried woman.</b>
+
+### Part 2
+The Gemara answers that it <b>was necessary</b> for the <i>tanna</i> to cite the example of <b>a widow</b> who is paid for engaging in intercourse with a High Priest, as it might <b>enter your mind to say: Since</b> the case of an unmarried man who engaged in intercourse with an unmarried woman, which is not a forbidden relationship by Torah law, <b>is</b> the <b>paradigm</b> example of prohibited payment to a prostitute, perhaps in a situation where the relationship is forbidden by Torah law, the payment should <b>not be prohibited.</b> Therefore, the <i>baraita</i> <b>teaches us</b> that payment to a prostitute is prohibited to be sacrificed on the altar even when the relationship is forbidden by Torah law, as in the case of a widow who is paid for engaging in intercourse with a High Priest.
+
+### Part 3
+§ The mishna teaches: With regard to <b>one who says to another: Here is this lamb</b> and in return your maidservant will lie with my slave and engage in intercourse with him, Rabbi Meir, or according to a different version of the text, Rabbi Yehuda HaNasi, says: The lamb’s halakhic status is not that of payment to a prostitute, and the Rabbis say: Its halakhic status is that of payment to a prostitute. The Gemara raises an objection with regard to the opinion of the Rabbis: <b>But a maidservant is permitted to</b> a Canaanite <b>slave.</b> Since this is not an act of prostitution, why should the payment be prohibited? <b>Rav Huna said:</b> He means to <b>say</b> that the lamb is given for the maidservant to lie <b>with him,</b> the master, not the slave. <b>And as</b> for <b>that which it teaches:</b> Lie with my <b>slave, he employs a euphemism.</b>
+
+### Part 4
+The Gemara asks: <b>If that is so, what is the reason for</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, who maintains that this payment is not prohibited? <b>Shmuel bar Rav Yitzḥak said: Actually,</b> the mishna is not employing a euphemism, and the master meant: <b>My slave. And</b> as for the difficulty that a maidservant is permitted to a slave, <b>when</b> the mishna <b>teaches</b> this case it is referring <b>to a Hebrew slave,</b> which is why Rabbi Yehuda HaNasi rules that the payment is permitted.
+
+### Part 5
+The Gemara asks: <b>If so, what is the reason for</b> the ruling of <b>the Rabbis?</b> After all, <b>a maidservant is permitted to a Hebrew slave.</b> The Gemara answers: <b>Here we are dealing with</b> a case <b>where</b> the Hebrew slave <b>does not have a wife and children,</b> and in that situation the Canaanite maidservant is not permitted to the Hebrew slave. <b>As it is taught</b> in a <i>baraita</i>: If a Hebrew servant <b>does not have a wife and children</b> when he is enslaved, <b>his master may not give him a Canaanite maidservant. If he has a wife and children, his master may give him a Canaanite maidservant.</b> By contrast, Rabbi Yehuda HaNasi maintains that the master may give a Canaanite maidservant to his Hebrew slave even if the slave does not have a wife and children, and therefore the relationship is not considered an act of prostitution.
+
+### Part 6
+<strong>MISHNA:</strong> <b>And which</b> is the case where an animal has the halakhic status of <b>the price of a dog,</b> and it is therefore prohibited to sacrifice the animal on the altar? It is the case of <b>one who says to another: Here is this lamb in place of a dog.</b>
+
+### Part 7
+<b>And likewise,</b> this prohibition applies in the case of <b>two partners who divided</b> their common property, which included nineteen lambs and one dog, and <b>one took ten</b> lambs <b>and</b> the other <b>one took nine</b> lambs <b>and a dog.</b> Sacrifice of the ten lambs taken by the partner <b>in exchange for</b> the nine lambs and <b>the dog is prohibited, and</b> sacrifice of the nine lambs <b>that</b> were taken by the partner <b>with the dog is permitted.</b>
+
+### Part 8
+With regard to lambs given as <b>payment</b> to another for engaging in intercourse with his <b>dog, or</b> as <b>the price of a prostitute</b> to purchase her as his maidservant, <b>their</b> sacrifice <b>is permitted, as it is stated:</b> “As both of them are an abomination to the Lord your God” (Deuteronomy 23:19), from which it is inferred: <b>Two</b> are prohibited, payment to a prostitute and the price of a dog, <b>and not four,</b> i.e., the additional two cases of payment for intercourse with a dog and the price of a prostitute, which are permitted. Furthermore, with regard to the two prohibited cases of payment to a prostitute and the price of a dog, sacrifice of <b>their offspring is permitted,</b> as it is stated <b>“them,” and not their offspring.</b>
+
+### Part 9
+<strong>GEMARA:</strong> With regard to the definition of the price of a dog, <b>the Sages taught: “The price of a dog”</b> (Deuteronomy 23:19), <b>this is</b> referring to an animal given in <b>exchange for a dog.</b> In this context the word “price” means an item given in exchange for another item, not money. <b>And likewise</b> the verse <b>states: “You sell Your people without wealth, and have not set their prices high”</b> (Psalms 44:13). The phrase “without wealth” indicates that the term “their prices” means an item given in exchange, rather than money.
+
+### Part 10
+The Gemara objects: You can <b>say</b> instead that the verse: “Price of a dog,” is referring to <b>payment to a prostitute,</b> payment for intercourse with a dog, as well as the price of a dog. The Gemara explains that one cannot explain the verse in this manner, as <b>if so, there are three</b> categories of items that may <b>not be sacrificed</b> to the altar, whereas the verse states: <b>“Both of them,”</b> indicating that there are two categories, <b>and not three.</b>
+
+### Part 11
+The Gemara rephrases its objection: <b>Did we say</b> that <b>payment</b> to a prostitute, payment for intercourse with a dog, <b>and</b> the <b>price</b> of a dog should all be prohibited? <b>We said</b> that perhaps the phrase: The price of a dog, means <b>the payment</b> for intercourse with a dog, <b>and not</b> the <b>price,</b> i.e., the animal given in exchange for a dog. According to this suggestion, the verse indeed mentions only two categories: Payment given to a prostitute for services rendered, and payment for intercourse with a dog.
+
+### Part 12
+The Gemara responds: <b>If that is so, let the verse state: You shall not bring the payment to a prostitute or a dog,</b> as in this formulation the word “payment” refers both to the prostitute and the dog. <b>From</b> the fact <b>that it is written: “The payment of a harlot or the price of a dog,”</b> one can <b>learn from</b> here that the verse is referring to two different matters: Payment to a prostitute, and an animal exchanged for a dog.
+
+### Part 13
+§ The mishna teaches: With regard to <b>two partners who divided</b> their common property, and <b>one took</b> ten lambs and the other one took nine lambs and a dog, sacrifice of the ten lambs taken by the partner in exchange for nine lambs and a dog is prohibited. The Gemara asks: Why should all ten lambs be prohibited? <b>Let us remove one</b> of the lambs <b>corresponding to the dog, and all</b> the rest of <b>these</b> lambs will <b>be permitted.</b> The Gemara answers: <b>Here we are dealing with</b> a case <b>where the value of the dog is</b> worth <b>more than</b> each <b>one of</b> the ten lambs seperately. Therefore, one cannot set aside one of the lambs in exchange for the dog. <b>And</b> consequently, one <b>casts this addition of</b> the value of <b>the dog</b> between <b>all of</b> the lambs. As a result, all ten lambs are prohibited, since the price of the dog is included in each of them.
+
+### Part 14
+§ The mishna further teaches with regard to animals given as <b>payment</b> to another for engaging in intercourse with <b>a dog, or</b> as <b>the price of a prostitute</b> to purchase her as his maidservant, that their sacrifice <b>is permitted. Rava from Parzakya said to Rav Ashi:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

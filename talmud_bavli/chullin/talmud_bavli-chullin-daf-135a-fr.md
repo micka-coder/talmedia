@@ -1,0 +1,78 @@
+
+### Partie 1
+<strong>MISHNA :</strong> La mitzva de <b>la premiere laine tondue</b> que tout juif doit donner au pretre, comme le stipule le verset : "Et la premiere laine tondue de ton troupeau [<i>tzonekha</i>] tu lui donneras" (Deuteronome 18:4), <b>s'applique</b> aussi bien <b>en Eretz</b> Yisrael <b>qu'en dehors d'Eretz</b> Yisrael, <b>en presence du Temple et hors de la presence du Temple,</b> et <b>en ce qui concerne les animaux non sacres</b>. <b>Mais</b> il ne s'applique <b>pas</b> aux animaux sacrifies</b>.
+
+### Partie 2
+Il y a plus d'elements <b>strictifs</b> dans la mitsva de <b>la patte avant, la machoire et la gueule</b> (voir 130a) <b>que</b> dans la <i>halakha</i> de <b>la premiere laine tondue</b> en <b>ce que</b> la mitsva de <b>la patte avant, la machoire et la gueule s'applique aux bovins et aux ovins,</b> comme il est ecrit : "Que ce soit un bœuf ou un mouton, il donnera au pretre la patte anterieure, la machoire et la gueule" (Deuteronome 18:3) ; et elle s'applique <b>a de nombreux</b> animaux <b>et a peu d'animaux</b>. <b>Mais</b> en revanche, la mitsva de <b>la premiere laine tondue ne s'applique qu'aux moutons</b> et non aux chevres et aux bovins, <b>et ne s'applique qu'a de nombreux</b> animaux.
+
+### Partie 3
+<b>Et combien sont nombreux ? Beit Shammai dit :</b> C'est au moins <b>deux moutons, comme il est dit : "L'homme elevera une jeune vache et deux moutons [<i>tzon</i>]"</b> (Isaie 7:21), ce qui indique que deux moutons sont caracterises comme <i>tzon</i> ; et la mitzva de la premiere laine tondue est ecrite en utilisant le terme "votre troupeau [<i>tzonekha</i>].<b>Et Beit Hillel disent:</b> C'est au moins <b>cinq</b> moutons, <b>comme il est dit : "Et cinq moutons [<i>tzon</i>] ont fait"</b> (IA Samuel 25:18).
+
+### Partie 4
+<b>Rabbi Dosa ben Harkinas dit :</b> Lors de la tonte de <b>cinq moutons,</b> la <b>laine tondue</b> de chaque mouton pesant <b>cent dinars</b> chacun <b>et la moitie [<i>peras</i>]</b> de cent dinars chacun, c'est-a-dire, cent cinquante dinars chacun, <b>sont</b> soumis a l'<b>obligation de la premiere laine tondue,</b> c'est-a-dire qu'ils rendent le proprietaire oblige de donner la premiere laine tondue aux pretres. <b>Et les rabbins disent :</b> Tout <b>cinq moutons,</b> chacun desquels la laine <b>traitee</b> pese <b>une quantite quelconque,</b> rend le proprietaire oblige dans la mitsva.
+
+### Partie 5
+<b>Et quelle quantite</b> de la laine tondue <b>on donne au</b> pretre ? On lui donne de la laine tondue du <b>poids</b> de <b>cinq <i>sela</i> en Judee, qui sont</b> l'equivalent de <b>dix <i>sela</i> en Galilee,</b> car le poids de la <i>sela</i> galileenne est la moitie de celui de la <i>sela</i> judeenne. En outre, bien que l'on puisse donner la laine au pretre sans la blanchir, il doit s'agir du poids de la laine une fois <b>blanchie et non</b> lorsqu'elle est <b>salie,</b> comme cela est caracteristique de la laine lorsqu'elle est tondue. La mesure qui doit etre donnee au pretre est <b>suffisante pour en faconner un petit vetement, comme il est dit : "Tu lui donneras"</b> (Deuteronome 18:4), indiquant <b>que</b> la laine tondue <b>doit contenir assez pour</b> un <b>cadeau approprie.</b>
+
+### Partie 6
+Si le proprietaire de la tonte <b>n'a pas reussi a la donner au</b> pretre <b>avant qu'il ne la teigne,</b> le proprietaire est <b>exempte</b> de la mitsva de la premiere laine tondue, car cela constitue une modification de la laine par laquelle il en acquiert la propriete. S'il l'a <b>blanchie mais ne l'a pas teinte,</b> il est <b>oblige</b> de donner la premiere laine tondue, car le blanchiment ne constitue pas un changement dans la laine.
+
+### Partie 7
+<b>La personne qui achete la toison du mouton d'un Gentil</b> est <b>exemptee de</b> l'obligation de donner <b>la premiere laine tondue</b> au pretre. En ce qui concerne <b>celui qui achete la toison du mouton d'un autre</b> juif, <b>si</b> le vendeur <b>conserve</b> une partie de la laine, alors <b>le vendeur est oblige</b> de donner la premiere laine tondue au pretre. Si le vendeur <b>n'a pas garde</b> une partie de la laine, <b>l'acheteur est oblige</b> de la donner. Si le vendeur <b>avait deux types</b> de moutons, <b>gris et blancs,</b> et qu'il <b>vendait</b> a l'acheteur la toison <b>grise</b> <b>mais pas</b> la toison <b>blanche</b>, ou s'il vendait la toison du <b>male</b> mouton <b>mais pas</b> de la <b>femelle</b>, alors <b>celui-ci</b>, le vendeur, <b>donne</b> la premiere laine tondue <b>pour lui-meme</b> au pretre de la laine qu'il a gardee, <b>et celui-la</b>, l'acheteur, <b>donne</b> la premiere laine tondue <b>pour lui-meme</b> au pretre de la laine qu'il a achetee.
+
+### Partie 8
+<strong>GEMARA : </strong>La mishna affirme que la mitsva de la premiere laine tondue ne s'applique pas <b>aux animaux sacrificiels</b>. La Guemara demande : <b>Quelle est la raison</b> pour laquelle elle ne s'applique <b>pas</b> ? La Guemara repond que le <b>verset dit : "Ton troupeau"</b> (Deuteronome 18:4), indiquant que la mitsva s'applique aux animaux non sacres, qui appartiennent a un particulier, <b>et non</b> a <b>un troupeau</b> qui est une propriete <b>consacree</b>.
+
+### Partie 9
+La Gemara conteste : <b>La raison</b> de l'exemption des animaux sacrifies</b> est que le Misericordieux ecrit "ton troupeau",</b> d'ou l'on peut deduire que <b>si ce n'etait pas</b> le cas <b>je dirais</b> que meme en ce qui concerne les animaux <b>sacrificiels</b> on est <b>oblige dans</b> la mitsva de <b>la premiere laine tondue. Mais</b> cette suggestion est impossible, car <b>ils ne sont pas aptes a la tonte, comme il est ecrit</b> a propos des animaux premiers-nes, qui sont consacres : <b>"Et tu ne tondras pas les premiers-nes de ton troupeau"/b> (Deuteronome 15:19).
+
+### Partie 10
+La Guemara explique : <b>Si</b> la mishna faisait reference aux moutons <b>consacres</b> pour le <b>altar, en effet</b> il n'y aurait pas besoin de deriver leur exemption du verset. Mais <b>ici, nous avons affaire</b> a des moutons <b>consacres</b> au tresor pour l'entretien du <b>Temple,</b> qu'il est permis de tondre, et le verset enseigne que meme a l'egard de ceux-ci on est exempte de la mitsva de la premiere laine tondue.
+
+### Partie 11
+La Gemara demande : <b>Mais Rabbi Elazar n'a-t-il pas dit</b> a propos des animaux <b>consacres</b> pour <b>l'entretien du Temple</b> qu'il est <b>interdit de les tondre</b> <b>ou</b> de les <b>travailler</b> ? La Gemara repond : L'interdiction concernant les animaux consacres a l'entretien du Temple s'applique <b>par la loi rabbinique</b> et non par la loi de la Torah. Par consequent, il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque par la loi de la Torah</b> <b>ils</b> sont <b>adaptes a la tonte,</b> dans un cas <b>ou</b> on a transgresse l'interdiction rabbinique et <b>tondre</b> le mouton consacre, il <b>doit donner</b> la premiere laine tondue <b>au</b> pretre. Par consequent, le verset enseigne qu'il est exempte de la mitsva de la premiere laine tondue.
+
+### Partie 12
+La Gemara objecte : <b>Mais</b> puisqu'il a <b>consacre</b> la laine, il s'agit d'un bien consacre, et donc en pratique il ne peut pas etre donne a un pretre. Par consequent, il n'est pas necessaire de deduire leur exemption du verset. La Gemara explique : Il pourrait <b>entrer dans votre esprit de dire</b> que le proprietaire est tenu <b>de racheter</b> la laine en donnant sa valeur au tresor du Temple <b>et</b> ensuite <b>la donner</b> <b>au pretre.
+
+### Partie 13
+La Gemara objecte : <b>Mais</b> lorsqu'un animal est rachete, il <b>faut se tenir debout et l'evaluer,</b> comme il est ecrit : "Il fera tenir l'animal devant le prêtre, et le prêtre l'évaluera, qu'il soit bon ou mauvais ; il en sera ainsi selon l'évaluation du prêtre" (Levitique 27:11""12). Une fois que la laine a ete tondue, ce processus ne peut pas etre effectue, ce qui signifie que la laine ne peut pas etre rachetee. La Guemara commente : <b>Cela marche bien selon celui qui a dit</b> que les animaux <b>consacres</b> pour <b>l'entretien du Temple n'etaient pas inclus dans</b> la condition <b>de standing et d'evaluation. Mais selon celui qui a dit</b> qu'ils <b>etaient</b> inclus dans cette exigence, <b>que peut-on dire ?</b>.
+
+### Partie 14
+<b>Rabbi Mani bar Pattish a dit au nom de Rabbi Yannai :</b> La declaration <b>ici</b> dans la mishna fait reference <b>a</b> un cas ou quelqu'un a <b>consacre</b> le reste de <b>son animal pour l'entretien du Temple, a l'exception de sa toison,</b> qu'il s'est reservee. Comme le proprietaire n'a pas consacre la laine, il pourrait <b>entrer dans votre esprit de dire : Qu'il tonde</b> le mouton <b>et</b> soit oblige de <b>donner</b> la laine au pretre. Par consequent, le <b>verset dit : "Ton troupeau,"</b> indiquant que la mitsva s'applique aux animaux non sacres, qui appartiennent a un individu, <b>et non</b> aux <b>moutons qui sont des biens consacres</b>.
+
+### Partie 15
+La Guemara souleve une difficulte : <b>Si donc,</b> que la mishna discute d'un cas ou l'on consacre un animal a l'exception de sa toison, on pourrait dire qu'elle fait <b>egalement</b> reference aux animaux <b>consacres</b> pour l'<b>altar.</b> La Gemara repond : La mishna ne peut pas parler des animaux consacres pour l'autel, car il est interdit de les tondre meme si leur toison n'etait pas consacree. La raison en est que cela provoque un <b>affaiblissement de l'animal,</b> ce qui entraine une perte des biens consacres.
+
+### Partie 16
+La Gemara objecte : Mais les animaux <b>consacres</b> pour l'entretien du <b>Temple</b> sont <b>egalement affaiblis</b> par la tonte, et il devrait donc etre interdit de les tondre egalement. La Guemara explique : La mishna fait reference a un cas <b>ou</b> on <b>dit</b> qu'on consacre son animal pour l'entretien du Temple <b>sauf pour</b> a la fois sa <b>toile et</b> son <b>affaiblissement,</b> c'est-a-dire la perte de force causee par la tonte.
+
+### Partie 17
+La Gemara objecte encore : La mishna pourrait <b>aussi</b> faire reference aux animaux <b>consacres</b> pour l' <b>altar</b> dans un cas <b>ou</b> on <b>dit</b> qu'on consacre l'animal <b>sauf</b> a la fois sa <b>troupe et</b> son <b>affaiblissement,</b> c'est-a-dire la perte de force causee par la tonte. La Gemara explique : En ce qui concerne les animaux consacres pour l'autel, cette stipulation est sans effet, car <b>meme ainsi,</b> c'est-a-dire malgre sa declaration, la <b>saintete s'etend a l'animal entier</b>, et il est donc interdit de le tondre.
+
+### Partie 18
+La Gemara explique : <b>Et d'ou dites-vous</b> que si l'on consacre un animal pour l'autel, la saintete s'etend a l'animal entier ? C'est <b>comme l'a dit Rabbi Yosei : N'est-ce pas</b> la <i>halakha</i> <b>en ce qui concerne les animaux sacrifies</b> que si <b>on dit : La patte de cet</b> animal est consacree comme <b>un holocauste,</b> alors l'<b>entiere</b> bete est <b>un holocauste,</b> car le caractere sacre de la patte se repand dans tout le corps de l'animal ? <b>Et meme selon</b> l'opinion de <b>Rabbi Meir</b> que <b>ce n'est pas entierement un holocauste, cette declaration</b> de Rabbi Meir ne s'applique que <b>lorsqu'il a consacre</b> sa patte, qui n'est <b>pas une matiere,</b> c'est-a-dire un membre, <b>dont depend</b> la <b>vie de l'animal.</b> Il est possible qu'un animal survive a l'ablation d'une patte. <b>Mais</b> si <b>on consacre une matiere dont</b> l'animals'est <b>vecu,</b> tout le monde est d'accord pour dire que tout cela <b>est consacre.</b>
+
+### Partie 19
+§ <b>Rava dit</b> qu'il n'est pas necessaire d'interpreter la mishna comme discutant d'un cas ou l'on consacre un animal entier en dehors de sa toison et de la perte causee par la tonte. La mishna fait plutot reference <b>a</b> celui qui <b>consacre la toison elle-meme</b> au tresor pour l'entretien du Temple, mais pas le mouton. Il pourrait <b>entrer dans votre esprit de dire : Qu'il tonde</b> le mouton <b>et rachete</b> la laine en donnant sa valeur au tresor du Temple, <b>et</b> qu'il soit ensuite tenu de <b>donner</b> la laine <b>au pretre.
+
+### Partie 20
+Par consequent, le <b>verset indique :</b> "La premiere laine tondue <b>de ton troupeau, tu lui donneras"</b> (Deuteronome 18:4), ce qui indique qu'il ne doit y avoir aucune action supplementaire entre la tonte et le don de la premiere laine tondue au pretre. En d'autres termes, la mitsva de la premiere laine tondue s'applique a un mouton <b>qui ne manque que la tonte et le don,</b> ce qui <b>exclut ce</b> mouton <b>qui manque la tonte, le rachat et le don.</b>
+
+### Partie 21
+La Gemara demande : <b>Mais</b> si ce verset est la source de l'exemption des animaux consacres, alors <b>pour quel but</b> vient le terme <b>votre troupeau</b> Ce terme indique egalement que certains moutons sont exclus de la mitsva. La Guemara repond qu'il est necessaire <b>pour ce qui est enseigne</b> dans une <i>baraita</i> : <b>Un animal</b> appartenant a deux <b>partenaires est oblige,</b> c'est-a-dire rend ses proprietaires obliges, <b>dans la mitzva</b> de la <b>premiere laine tondue</b>, <b>mais Rabbi Ilai les exempte</b>. <b>Quelle est la raison de</b> la decision <b>de Rabbi Ilai ?</b> La raison est que le <b>verset indique "votre troupeau,</b> en utilisant le pronom singulier, indiquant que la mitsva s'applique aux animaux appartenant a un individu, <b>mais pas</b> aux moutons qui sont possedes <b>en association.</b>
+
+### Partie 22
+La Gemara demande : <b>Mais</b> selon <b>les rabbins,</b> qui soutiennent que les coproprietaires de moutons sont obliges dans la mitzva de la premiere laine tondue, qu'est-ce qui est exclu par le terme "votre troupeau" ? La Guemara repond que cela sert <b>a exclure</b> un animal possede en <b>partenariat</b> avec <b>un Gentil.</b> La Guemara demande : <b>Et d'ou Rabbi Ilai</b> deduit-il qu'un animal possede en <b>partenariat</b> avec <b>un Gentil</b> rend son proprietaire juif exempt de la mitsva ?
+
+### Partie 23
+La Gemara repond : Il <b>le deduit du debut</b> de ce <b>verset,</b> qui stipule a propos de <i>teruma</i> : <b>Les premices de ton grain,</b> de ton vin et de ton huile" (Deuteronome 18:4), en utilisant le pronom singulier. Cela indique que ce n'est que dans le cas des produits appartenant a un Juif que l'on est oblige de separer le <i>teruma</i>, <b>mais pas</b> en ce qui concerne ce qui est possede <b>en partenariat</b> avec <b>un gentil.</b>
+
+### Partie 24
+La Gemara demande : <b>Et</b> pourquoi les <b>Rabbis,</b> qui deduisent l'exemption des moutons possedes en partenariat avec un Gentil du terme "ton troupeau", ne la deduisent pas du terme "ton grain" ? La Guemara repond que la repetition du terme "le premier" en ce qui concerne la premiere laine tondue : "Les premices de ton grain, de ton vin, de ton huile, et <b>la premiere laine tondue</b> de ton troupeau, tu lui donneras" (Deuteronome 18:4), est une indication que le verset <b>conclut</b> la discussion de <b>la</b> <b>matiere precedente.</b> La mention superflue de "premier" signale que les deux questions abordees dans ce verset, qui sont les premices, a savoir, <i>teruma</i>, et la premiere laine tondue, sont deux matieres distinctes. Par consequent, on ne peut pas deriver les <i>halakhot</i> de l'une a partir de l'autre.
+
+### Partie 25
+La Guemara demande : <b>Et</b> comment <b>Rabbi Ilai</b> repond-il a la demande des rabbins ? La Guemara repond : Rabbi Ilai soutient que lorsque le verset dit : "Et le premier tondit la laine", la conjonction <b>"et" revient en arrière et combine</b> les deux sujets ensemble.
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

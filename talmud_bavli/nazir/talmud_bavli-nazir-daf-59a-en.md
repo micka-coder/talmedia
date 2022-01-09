@@ -1,0 +1,24 @@
+
+### Part 1
+<b>Some say</b> a different version of this statement: <b>Rabbi Ḥiyya bar Abba said</b> that <b>Rabbi Yoḥanan said:</b> A man <b>who removes</b> the hair <b>of the armpit or the pubic</b> hair <b>is flogged, due to</b> the prohibition: <b>“A man shall not put on a woman’s garment”</b> (Deuteronomy 22:5). The Gemara <b>raises an objection</b> from a <i>baraita</i>: <b>The removal of hair is not</b> prohibited <b>by Torah law but by rabbinic law.</b> How then does Rabbi Yoḥanan say that he is flogged, which by definition is a punishment for individuals who have transgressed a Torah law? The Gemara answers: It was <b>he who said</b> this <i>halakha</i> <b>in accordance with</b> the opinion of <b>that <i>tanna</i>, as it is taught</b> in a <i>baraita</i>: A man <b>who removes</b> the hair <b>of the armpit or the pubic</b> hair <b>violates</b> the prohibition <b>of: “A man shall not put on a woman’s garment.”</b>
+
+### Part 2
+The Gemara asks: <b>And what</b> does <b>the first <i>tanna</i>,</b> who holds that the prohibition is by rabbinic law, <b>learn from this</b> verse: <b>“A man shall not put on</b> a woman’s garment”? The Gemara answers: <b>He requires it for that which is taught</b> in the <i>baraita</i>, where it states: <b>“A woman shall not wear that which pertains to a man,</b> and a man shall not put on a woman’s garment, for whoever does these things is an abomination to the Lord your God” (Deuteronomy 22:5). <b>What</b> is the meaning when <b>the verse states</b> this? <b>If</b> it teaches only <b>that a man may not put on a woman’s garment, and a woman</b> may not wear <b>a man’s garment, it is already stated</b> in explanation of this prohibition that <b>“it is an abomination</b> to the Lord your God,” <b>and there is no abomination here</b> in the mere act of wearing a garment.
+
+### Part 3
+<b>Rather,</b> it means <b>that a man may not wear a woman’s garment</b> and thereby go <b>and sit among the women; and a woman</b> may not wear <b>a man’s garment and sit among the men. Rabbi Eliezer ben Ya’akov says: From where</b> is it derived <b>that a woman may not go out with weapons to war? The verse states: “A woman shall not wear that which pertains to a man, and a man shall not put on a woman’s garment,”</b> which indicates <b>that a man may not adorn himself with the cosmetics</b> and ornaments <b>of a woman,</b> and similarly a woman may not go out with weapons to war, as those are for the use of males. Rabbi Yoḥanan’s ruling follows this opinion.
+
+### Part 4
+§ <b>Rav Naḥman said: For a nazirite,</b> it is <b>permitted</b> to shave armpit hair. The Gemara comments: <b>And the <i>halakha</i> is not in accordance with his</b> opinion. The Gemara reports that <b>the Sages said to Rabbi Shimon bar Abba: We</b> have <b>observed that Rabbi Yoḥanan does not have</b> armpit hairs, despite his own ruling that it is prohibited to shave them. <b>He said to them: They fell out due to old age.</b>
+
+### Part 5
+The Gemara relates: There was <b>a certain</b> person who committed a transgression and <b>was</b> found <b>liable to receive lashes before Rabbi Ami.</b> When they removed his clothes to flog him, his <b>armpit was exposed,</b> and Rabbi Ami <b>saw that he had not shaved</b> his armpit hair. <b>Rabbi Ami said to</b> his attendants: <b>Leave him; this is one of those who are meticulous in observance of mitzvot.</b> We can see this is so, as he is particular about prohibitions that ordinary people do not observe.
+
+### Part 6
+<b>Rav raised a dilemma before Rabbi Ḥiyya: What is</b> the <i>halakha</i> with regard <b>to shaving</b> armpit hair? <b>He said to him:</b> It is <b>prohibited.</b> Rav <b>said to him: But it grows</b> and is uncomfortable. Rabbi Ḥiyya <b>said to him: Son of nobles [<i>bar paḥtei</i>],</b> this hair <b>has a</b> limited <b>time. Whenever</b> a hair <b>grows</b> too long <b>it falls out,</b> and therefore there is no concern that one’s armpit hair will become too long.
+
+### Part 7
+<b>Rav raised</b> another <b>dilemma before Rabbi Ḥiyya: What is</b> the <i>halakha</i> with regard <b>to rubbing</b> armpit hair and thereby removing it manually? Rabbi Ḥiyya <b>said to him:</b> It is <b>prohibited.</b> Rav continued to ask: <b>What is</b> the <i>halakha</i> with regard to rubbing armpit hair indirectly <b>with one’s garment?</b> Rabbi Ḥiyya <b>said to him:</b> It is <b>permitted. Some say</b> that this was not Rav’s question; rather, <b>he raised</b> the following <b>dilemma before him: What</b> is the <i>halakha</i> with regard to rubbing the armpit with <b>one’s garment during prayer?</b> Rabbi Ḥiyya <b>said to him:</b> It is <b>prohibited.</b> The Gemara comments: <b>And the <i>halakha</i> is not in accordance with his</b> opinion in this case.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

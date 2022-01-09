@@ -1,0 +1,45 @@
+
+### Part 1
+The owner of the lower story <b>said to him: I will dismantle</b> the structure <b>and rebuild it.</b> The owner of the upper story <b>said:</b> But then <b>I</b> will <b>have no place to live</b> while you are renovating. The owner of the lower story <b>said to him: I will rent a place for you</b> to live for the duration. The owner of the upper story <b>said to him: I do not</b> want <b>to bother</b> with moving. The owner of the lower story said to him: But <b>I cannot live</b> in my apartment in this condition, as the walls have sunk into the ground. The owner of the upper story said to him: That is not my problem. <b>Crawl on your stomach to go in, and crawl on your stomach to go out.</b>
+
+### Part 2
+<b>Rav Ḥama said: By law,</b> the owner of the upper story <b>can prevent</b> his downstairs neighbor from rebuilding. The Gemara comments: <b>And this statement</b> applies <b>only when the beams</b> supporting the second story <b>have not reached lower than ten</b> handbreadths from the ground. <b>But if</b> those <b>beams have reached lower than ten</b> handbreadths from the ground, the owner of the lower story <b>can say to</b> the owner of the upper story: <b>Below ten</b> handbreadths <b>is my domain and</b> my domain <b>is not bound to you</b> to support your residence.
+
+### Part 3
+The Gemara further comments: <b>And this statement,</b> that the owner of the upper story can prevent his downstairs neighbor from rebuilding, applies <b>only</b> when <b>they did not stipulate with each other</b> that if the house sinks they will rebuild the house anew. <b>But if they made</b> such <b>a stipulation with each other, they must dismantle</b> the house <b>and rebuild it.</b>
+
+### Part 4
+The Gemara asks: <b>And if they made</b> such <b>a stipulation with each other, to what extent</b> must the ceiling of the lower story drop before they implement the stipulation? <b>The Sages said before Rabba in the name of Mar Zutra, son of Rav Naḥman, who said in the name of Rav Naḥman: Like that which we learned</b> in a mishna (98b): If one takes upon himself to build a house for another person, without stipulating its dimensions, <b>its height</b> must be equal to the sum of <b>half its length and half its width. Rabba said to them: Did I not tell you not to hang empty pitchers on Rav Naḥman,</b> meaning not to attribute foolish opinions to him? Rather, <b>this is what Rav Naḥman said: As people normally live,</b> and no more. <b>And how much</b> space is that? <b>Rav Huna, son of Rav Yehoshua, said:</b> The ceiling of the lower story must be high enough <b>so that one could bring in bundles</b> of reeds <b>of</b> the type made in <b>Meḥoza and</b> be able to <b>turn around.</b>
+
+### Part 5
+It is further related that <b>a certain man built a wall outside the windows of his neighbor.</b> The neighbor <b>said to him: You are</b> blocking the light with your wall and <b>darkening my</b> house. The one who built the wall <b>said to him: I will seal</b> your windows <b>here and make</b> new <b>windows for you</b> in your wall <b>above the wall</b> that I am building. The neighbor <b>said to him:</b> By doing so <b>you will damage my wall.</b> The one who built the wall <b>said to him: I will demolish your wall until the level of the windows and rebuild it, and</b> then <b>I will make windows for you in</b> the new part of <b>the building above my wall.</b> The neighbor <b>said to him: A wall that is old at the bottom and new at the top will not endure.</b>
+
+### Part 6
+The one who built the wall <b>said to him: I will demolish</b> the wall <b>until the ground and</b> entirely <b>rebuild it, and</b> then <b>I will make windows for you in it</b> above my wall. The neighbor <b>said to him: One new wall in an old house will not endure.</b> The one who built the wall <b>said to him: I will demolish your entire house and put windows in the</b> new <b>building</b> that I will erect in its place. The neighbor <b>said to him:</b> But in the meantime <b>I will have no place to live.</b> The one who built the wall <b>said to him: I will rent a place for you</b> to live. The neighbor <b>said to him: I do not</b> want <b>to bother</b> with moving. <b>Rav Ḥama said: By law,</b> the neighbor <b>can prevent</b> him from building the wall.
+
+### Part 7
+The Gemara asks: <b>This</b> case <b>is</b> identical to <b>that</b> case; this case is very similar to the previous case of the owner of the upper story who can prevent the owner of the lower story from rebuilding. <b>Why do I</b> need <b>this additional</b> case? The Gemara answers: <b>This teaches us that even if he uses</b> the house <b>only for</b> storing <b>straw and wood,</b> he can still maintain that blocking the light causes him damage and can prevent the neighbor from erecting the wall.
+
+### Part 8
+The Gemara further relates: <b>There were two brothers who divided</b> their father’s estate <b>between them. One received a hall [<i>aspelida</i>]</b> in his share <b>and one received a garden. The one who received the garden went and built a wall in front of the opening of the hall.</b> His brother <b>said to him: You are</b> blocking the light with your wall and <b>darkening my</b> house. The one who received the garden <b>said to him: I am building on my</b> property. <b>Rav Ḥama said: By right he said</b> that <b>to him,</b> as it is permitted for him to build there.
+
+### Part 9
+<b>Ravina said to Rav Ashi:</b> In <b>what</b> way <b>is</b> this <b>different from that which is taught</b> in a <i>baraita</i>: If <b>two brothers divided</b> their father’s estate between them, <b>one of them taking a vineyard and</b> the other <b>one taking a grain field, the owner of the vineyard has</b> the right to an area <b>four cubits</b> wide <b>in the grain field</b> for the purpose of working the vineyard, <b>since it was on that condition</b> that <b>they divided</b> the estate. Why in this case does the owner of the hall not have the right to make use of the light coming in from the garden?
+
+### Part 10
+Rav Ashi <b>said to him: There,</b> the reason is that <b>they made an assessment with each other</b> with regard to the value of the fields, arranging for compensation if one received more than the other, and they took the work area into account. Ravina asked: <b>But what</b> did they do <b>here? Did they not make an assessment with each other? Are we dealing with fools, that this one took the</b> valuable <b>hall and the</b> other <b>one took</b> the much less valuable <b>garden without making an assessment with each other? Rav Ashi said to him: Although they assessed with each other the value of the bricks, the beams, and the boards, they did not assess with each other the value of the airspace.</b> With regard to that, each one retained full rights to his respective airspace.
+
+### Part 11
+The Gemara says: <b>And let</b> the one who received the hall <b>say to</b> the other: <b>Initially, you gave me</b> a well-lit <b>hall; now you are making it</b> into <b>a small</b> dark <b>room [<i>idrona</i>]. Rav Shimi bar Ashi said: He gave him only</b> a place that is called a hall <b>by name,</b> that is, a place that is called a hall even though it is no longer used that way.
+
+### Part 12
+Rav Ashi continues: <b>Isn’t it taught</b> in a <i>baraita</i>: In the case of <b>one who says</b> to another: <b>I am selling you a <i>beit kor</i> of dirt, it becomes his even if it is only a <i>letekh</i>,</b> i.e., a half-<i>kor</i>, and the sale is not void, <b>because he sold him only</b> a place that is called a <i>beit kor</i> <b>by name.</b> The Gemara comments: <b>And this</b> ruling applies only as long as the land he is selling him <b>is</b> actually <b>called a <i>beit kor</i>.</b> Similarly, if he says to him: <b>I am selling you an orchard, it becomes his even if it lacks pomegranates, because he sold him only</b> a place that is called an orchard <b>by name.</b> The Gemara comments: <b>And this</b> applies only as long as the land he is selling <b>is</b> actually <b>called an orchard.</b> And similarly, if he says to him: <b>I am selling you a vineyard, it becomes his even if it lacks grapevines, because he sold him only</b> a place that is called a vineyard <b>by name.</b> The Gemara comments: <b>And this</b> applies only as long as the land he is selling <b>is</b> actually <b>called a vineyard.</b>
+
+### Part 13
+The Gemara rejects this argument: <b>Are these</b> cases <b>comparable? There, the seller can say to the buyer: I sold you</b> only a place that is called that <b>by name; here,</b> the one who received the hall <b>can say to</b> his brother: <b>I took</b> this portion <b>as my share on condition that I would live there the way our fathers lived</b> there, and that you would not change that by blocking the light entering through the windows.
+
+### Part 14
+With regard to Rav Ḥama’s ruling that it is permitted for the brother who received the garden to build a wall in front of the hall, <b>they said to him,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

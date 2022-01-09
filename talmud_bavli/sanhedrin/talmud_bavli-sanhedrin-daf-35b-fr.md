@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Et il a entendu dire que</b> un de ses parents <b>est mort,</b> on <b>pourrait</b> avoir pense qu'il <b>devait</b> revenir et <b>devenir rituellement impur</b> avec l'impurete transmise par un cadavre pour enterrer son parent. <b>Vous avez dit : <b>Il ne se rendra pas impur</b> ; la mort de son parent ne l'emportera pas sur une mitzva aussi importante de la Torah.
+
+### Partie 2
+On <b>pourrait</b> avoir pense : <b>De meme qu'il ne peut devenir impur pour</b> enterrer <b>sa sœur, il ne peut devenir impur pour</b> enterrer <b>une <i>mitsva</i>.</b> Par consequent, <b>le verset indique</b> specifiquement : <b>"Ou pour sa sœur"</b> ; ce qui enseigne que <b>il ne peut devenir impur</b> uniquement <b>pour</b> enterrer <b>sa sœur,</b> car d'autres peuvent assister a son enterrement, <b>mais il peut devenir impur pour</b> enterrer <b>une <i>mitsva</i>.</b>
+
+### Partie 3
+Apres avoir cite la <i>baraita</i> prouvant que l'enterrement d'une <i>met mitzva</i> prime sur le service du Temple, Reish Lakish poursuit sa suggestion : En ce qui concerne le <b>Shabbat, qui est supprime en raison</b> du <b>service du Temple, n'est-il pas logique que l'enterrement d'une <i>met mitzva</i> le supplante ?</b>
+
+### Partie 4
+Rabbi Yohanan <b>lui dit :</b> La <i>halakha</i> du <b>meurtre,</b> c'est-a-dire l'obligation de tuer une personne jugee susceptible de recevoir la peine capitale imposee par la justice, <b>prouve</b> que ce n'est pas le cas, <b>car</b> elle <b>passe</b> le <b>service du Temple,</b> par ex, si le seul pretre present est susceptible de recevoir la peine capitale imposee par le tribunal, on le prend pour le tuer malgre le fait que cela entraine la negation du service du Temple, <b>mais cela n'annule pas le Shabbat.</b>
+
+### Partie 5
+La Gemara demande : <b>Le meurtre lui-meme devrait annuler Shabbat sur la base</b> de cette <b><i>a fortiori</i></b> deduction : <b>Tout comme</b> en ce qui concerne le <b>service du Temple, qui prevaut sur le Shabbat,</b> neanmoins <b>le meurtre prevaut sur lui,</b> et la source de ceci est <b>comme il est dit : </b> "Et si un homme vient presomptueusement sur son prochain, pour le tuer avec ruse ; <b>tu l'enleveras de mon autel, pour qu'il meure"</b> (Exode 21:14) ; alors en ce qui concerne <b>le Shabbat, qui est surpasse en raison</b> du <b>service du Temple, n'est-il pas logique que le meurtre le surpasse ? </b>
+
+### Partie 6
+<b>Rava dit</b> en reponse : <b>Cela a deja ete statue par une <i>tanna</i> de l'ecole de Rabbi Yishmael, comme l'a enseigne l'ecole de Rabbi Yishmael : Quel</b> est le sens quand <b>le verset dit : "Vous n"?allumerez pas de feu</b> dans vos habitations le jour du Shabbat" (Exode 35:3) ? Tout travail est interdit le jour du Shabbat, selon le verset :" Tu ne feras aucune sorte de travail" (Exode 20:10). Pourquoi l'allumage du feu est-il mis a part ?
+
+### Partie 7
+La Guemara intervient : <b>Quel est le sens</b> quand <b>le verset dit</b> ceci ? <b>Si</b> cette question est <b>conforme</b> a l'opinion de <b>Rabbi Yosei,</b> cette transgression <b>a ete distinguee pour</b> enseigner que celui qui allume un feu le Chabbat viole une <b>interdiction ordinaire,</b> par opposition a l'execution d'autres types de travaux le Chabbat, pour lesquels on est susceptible de recevoir une peine capitale imposee par le tribunal. <b>Si cette question est <b>conforme</b> a l'opinion de <b>Rabbi Natan,</b> cette transgression <b>a ete distinguee pour diviser</b> les differents travaux et etablir la responsabilite de recevoir la peine capitale imposee par le tribunal pour l'execution de l'un d'entre eux. La Gemara explique : <b>Comme il est enseigne</b> dans un <i>baraita</i> : <b>L'allumage du feu a ete distingue pour</b> enseigner que celui qui allume un feu le Chabbat viole une <b>interdiction ordinaire,</b> c'est <b>la declaration de Rabbi Yosei. Rabbi Natan dit : On l'a distingue pour diviser</b> les differents travaux. Dans tous les cas, le sens du verset est clair.
+
+### Partie 8
+La Guemara clarifie : <b>Rava dit plutot :</b> Le terme <b>"habitations"</b> dans le verset pose une <b>difficulte pour</b> le <b><i>tanna</i> : Quel</b> est le sens lorsque <b>le verset dit :</b> "Tu n'allumeras pas de feu dans toutes tes <b>habitations</b> le jour du Shabbat" ? <b>Apres tout, le Shabbat est une obligation pour la</b> personne <b>elle-meme,</b> pas une obligation liee a un lieu specifique. <b>Et</b> la <i>halakha</i> est que <b>une obligation sur la</b> personne <b>meme est pratiquee que ce soit en Eretz</b> Yisrael <b>ou en dehors d'Eretz</b> Yisrael. <b>Pourquoi ai-je</b> besoin du terme <b>"habitations" que le Misericordieux ecrit</b> dans la Torah ?
+
+### Partie 9
+Rava poursuit : <b>Un etudiant a dit au nom de Rabbi Yishmael</b> que <b>puisqu'il est dit :</b> "Et <b>si un homme a commis un peche meritant la mort et qu'on le met a mort</b> (Deuteronome 21:22), <b>Je</b> deduirais</b> que le tribunal administre la peine capitale <b>aussi bien en semaine que le Chabbat. Et</b> en consequence, <b>comment je realise</b> le sens de ce que dit le verset concernant Shabbat : <b>"Quiconque le profane sera mis a mort"</b> (Exode 31:14) ? Une possibilite est que le terme : Profanation du Shabbat, s'applique uniquement <b>aux autres</b> cas ou le <b>travail</b> est effectue, et <b>exclut</b> les cas de <b>mort</b> administree par <b>un tribunal,</b> ce qui n'est pas une profanation du Shabbat. <b>Ou plutot,</b> en deduire que <b>meme la peine de mort</b> administree par <b>un tribunal</b> est interdite comme profanation du Shabbat. <b>Et comment je realise</b> le sens de : <b>"Et il est mis a mort"</b> Une possibilite est que la mitzva d'executer les transgresseurs s'applique <b>en semaine, mais pas le Chabbat. Ou plutot,</b> l'autre possibilite est qu'elle s'applique <b>meme le Chabbat.</b>
+
+### Partie 10
+Comme ces versets peuvent etre interpretes de l'une ou l'autre maniere, <b>le verset dit : "Vous n'allumerez pas de feu dans l'ensemble de vos habitations</b> le jour du Shabbat,</b> et la, </b> en ce qui concerne la punition administree a un meurtrier, le verset <b>dit : "Et ce sera pour vous une loi de jugement a travers vos generations dans toutes vos habitations"</b> (Nombres 35:29). <b>De meme que</b> le terme <b>"habitations" qui est enonce la</b> fait reference a l'acte d'un <b>tribunal, de meme</b> le terme <b>"habitations" qui est enonce ici</b> concernant le Shabbat fait reference a l'acte d'un <b>tribunal. Et le Misericordieux declare : "Vous n'allumerez pas de feu dans vos habitations."</b> Cela enseigne que le tribunal n'administre pas la peine capitale le Shabbat.
+
+### Partie 11
+<b>Abaye dit : Maintenant que tu as dit</b> que le <b>meurtre</b> d'un condamne par le tribunal <b>n'annule pas le Shabbat,</b> on devrait dire que le <b>meurtre n'annule pas non plus</b> l'accomplissement du <b>service</b> du Temple, <b>sur la base d'une deduction <i>a fortiori</i></b> : <b>Et de meme que</b> en ce qui concerne le <b>Shabbat, qui est surpasse pour</b> l'accomplissement du <b>service</b> du Temple, le meurtre ne le surpasse pas,</b> alors en ce qui concerne l'accomplissement du <b>service du Temple, qui surpasse le Shabbat, n'est-il pas logique que le meurtre ne le surpasse pas ?</b>
+
+### Partie 12
+La Guemara remet en question cette deduction : <b>Mais</b> si tel est le cas, comment expliquerait-on <b>ce qui est ecrit</b> dans le verset concernant celui qui est susceptible de recevoir la peine capitale imposee par le tribunal : <b>Vous l'enleverez de mon autel, pour qu'il meure</b> (Exode 21.14) ? Ce verset indique que le tribunal qui administre la peine capitale passe outre l'accomplissement du service du Temple. La Gemara explique : <b>Ce verset</b> sert a enseigner la <i>halakha</i> <b>concernant l'offrande d'un individu, qui ne prevaut pas sur le Chabbat.</b> Le verset enseigne que le tribunal prend le pretre pour l'executer meme si cela aura pour consequence que l'offrande d'un individu ne sera pas sacrifiee.
+
+### Partie 13
+<b>Rava dit : Si c'est le cas,</b> on devrait dire que le <b>meurtre ne devrait pas outrepasser</b> meme <b>l'offrande d'un individu sur la base d'une deduction <i>a fortiori</i></b> :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

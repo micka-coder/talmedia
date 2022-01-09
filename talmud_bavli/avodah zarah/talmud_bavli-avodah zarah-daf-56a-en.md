@@ -1,0 +1,24 @@
+
+### Part 1
+<b>And</b> one <b>may not harvest</b> grapes together <b>with a Jew who produces</b> wine from <b>his fruit in</b> a state of <b>ritual impurity,</b> as he is thereby causing the produce to be rendered impure. <b>And all the more so may</b> one <b>not tread</b> on the grapes with him, as he is assisting the Jew who is rendering the wine impure by treading on the grapes. <b>But</b> one <b>may harvest</b> grapes <b>into the winepress</b> together <b>with the gentile, as it is permitted to impart impurity to non-sacred</b> produce <b>that is in Eretz Yisrael.</b>
+
+### Part 2
+§ The mishna teaches: <b>And</b> the gentile’s touch <b>does not render</b> the juice of the grapes into <b>wine</b> used for <b>a libation until it descends into the</b> collection <b>vat,</b> because until then it does not have the status of wine. The Gemara asks: <b>But isn’t it taught</b> in a mishna (<i>Ma’asrot</i> 1:7) with regard to the stage when the work of producing the wine is considered complete and one is obligated to separate tithes from the wine: With regard to <b>wine,</b> one is obligated to separate tithes <b>from</b> the time <b>that</b> the solid residue <b>floats [<i>misheyikpe</i>]</b> on top of the wine.
+
+### Part 3
+<b>Rava said:</b> It is <b>not difficult. That</b> mishna is in accordance with the opinion of <b>Rabbi Akiva,</b> whereas <b>this</b> mishna is in accordance with the opinion of <b>the Rabbis.</b> This is <b>as we learned</b> in a <i>baraita</i>: With regard to <b>wine,</b> one is obligated to separate tithes <b>from</b> the time <b>that</b> the wine <b>descends into the</b> collection <b>vat. Rabbi Akiva says:</b> One is obligated to separate tithes only <b>from</b> the time <b>that</b> the solid residue <b>floats</b> on top of the wine.
+
+### Part 4
+<b>A dilemma was raised before</b> the Sages: Is Rabbi Akiva referring to the <b>floating</b> of the seeds on top of the wine <b>in the</b> collection <b>vat or</b> to the <b>floating</b> of the yeast on top of the wine <b>in</b> the <b>barrel?</b>
+
+### Part 5
+The Gemara suggests: <b>Come</b> and <b>hear</b> a resolution of this issue, <b>as it is taught</b> in that mishna: With regard to <b>wine,</b> one is obligated to separate tithes <b>from</b> the time <b>that</b> the solid residue <b>floats</b> on top of the wine. Subsequently, <b>even though</b> the residue <b>has floated,</b> one <b>may collect</b> wine <b>from the upper winepress and from the pipe</b> that connects the upper winepress to the vat, <b>and</b> one <b>may drink</b> it without separating tithes. <b>Conclude from</b> the mishna that <b>we are speaking</b> about the <b>floating</b> of the seeds on top of the wine <b>in</b> the collection <b>vat.</b> The Gemara affirms: <b>Conclude from it</b> that it is so.
+
+### Part 6
+The Gemara asks: <b>But didn’t Rav Zevid teach</b> a different version of the aforementioned dispute <b>in</b> a <i>baraita</i> <b>of the school of Rabbi Oshaya:</b> With regard to <b>wine,</b> one is obligated to separate tithes <b>from</b> the time <b>that</b> the wine <b>descends into the</b> collection <b>vat and</b> the seeds <b>float</b> on top. <b>Rabbi Akiva says:</b> One is obligated to separate tithes only <b>from</b> the time <b>that</b> one <b>siphons</b> the wine from the vat <b>into barrels.</b> The Gemara replies that one can resolve the contradiction: <b>Explain that first</b> <i>baraita</i> in <b>this</b> manner <b>as well:</b> With regard to <b>wine,</b> one is obligated to separate tithes <b>from</b> the time <b>that</b> the wine <b>descends into the</b> collection <b>vat and</b> the seeds <b>float</b> on top. <b>Rabbi Akiva says:</b> One is obligated to separate tithes only <b>from</b> the time <b>that</b> one <b>siphons</b> the wine from the vat <b>into barrels.</b>
+
+### Part 7
+The Gemara asks: <b>But</b> whose opinion is expressed in <b>the mishna that teaches:</b> The gentile <b>does not render</b> the juice of the grapes into <b>wine</b> used for <b>a libation until it descends into the</b> collection <b>vat? Shall we say</b> that the stage when the work of producing the wine is considered complete <b>is</b> subject to a dispute between <b>three <i>tanna’im</i>?</b> The Gemara replies: <b>No,</b> the prohibition of <b>wine</b> used for <b>a libation is different, as the Sages were stringent concerning it</b> and render the wine forbidden even before the seeds float. By contrast, with regard to tithes, the <i>tanna</i> of this mishna holds in accordance with the opinion of either Rabbi Akiva or the Rabbis.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

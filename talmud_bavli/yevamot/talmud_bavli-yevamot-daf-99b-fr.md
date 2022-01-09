@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Et ils ne peuvent devenir rituellement impurs</b> avec l'impurete communiquee <b>par un cadavre,</b> comme chacun d'eux pourrait etre un pretre. <b>Et ils ne peuvent pas epouser des femmes, qu'il s'agisse de femmes indemnes</b>, qui ne peuvent pas epouser un esclave, <b>ou</b> de femmes <b>inaptes</b> a se marier au sacerdoce, car en ce qui concerne chacun d'eux, on ne sait pas s'il est pretre ou esclave. Si <b>les fils mixtes</b> ont <b>muri et se sont affranchis mutuellement, ils peuvent epouser des femmes aptes</b> a se marier au sacerdoce,</b> comme un esclave affranchi peut epouser de telles femmes. Cependant, ni l'un ni l'autre ne peut epouser une femme inapte au sacerdoce, au cas ou il serait pretre.
+
+### Partie 2
+<b>Et ils ne peuvent devenir rituellement impurs</b> avec l'impurete communiquee <b>par un cadavre,</b> puisqu'ils sont des pretres incertains. <b>Cependant, s'ils devenaient impurs, ils ne recoivent pas les quarante</b> coups de fouet, car chacun d'eux pourrait ne pas etre pretre. <b>Et ils ne peuvent participer au <i>teruma</i>,</b> car l'un d'eux n'est pas pretre. <b>Cependant, s'ils ont mange</b> <i>le <i>teruma</i> involontairement, <b>ils ne paient pas</b> le <b>principal et le</b> <b>cinquieme supplementaire,</b> car chacun d'eux pourrait etre pretre. <b>Et ils ne recoivent pas une part</b> de <i>teruma</i> <b>dans le grenier,</b> car aucun ne peut prouver qu'il est pretre. <b>Cependant, ils peuvent vendre le <i>teruma</i></b> qu'ils retirent de leur propre production, <b>et</b> bien qu'ils ne puissent pas le manger, <b>l'argent leur appartient.</b> Puisqu'il ne peut etre prouve a l'egard de l'un ou l'autre qu'il n'est pas pretre, le <i>teruma</i> ne peut pas leur etre approprie.
+
+### Partie 3
+<b>Et ils ne recoivent pas de part des offrandes consacrees</b> <b>du Temple,</b> car chacun d'eux pourrait ne pas etre pretre. <b>Et on ne peut pas leur donner des offrandes consacrees</b> pour les sacrifier pour la meme raison. <b>Cependant,</b> les peaux de <b>leurs propres</b> offrandes <b>ne peuvent etre appropriees de leur possession,</b> car il ne peut etre prouve a l'egard de l'un d'eux qu'il n'est pas pretre.
+
+### Partie 4
+<b>Et ils sont dispenses</b> de donner a un pretre <b>la patte avant, et de</b> lui donner <b>la machoire, et de</b> lui donner <b>la gueule</b> de leurs animaux casher non consacres. <b>Et</b> en ce qui concerne l'un ou l'autre, le <b>premier-ne de son</b> animal casher <b>doit paitre jusqu'a ce qu'il devienne impropre</b> a etre sacrifie, c'est-a-dire jusqu'a ce qu'il ait un defaut. Il est contre son interet de sacrifier l'animal avant qu'il n'ait un defaut, le laissant ainsi etre mange par les pretres. Une fois qu'il a un defaut, il ne peut plus se l'approprier. Comme il est peut-etre un pretre, il peut pretendre que l'animal est la propriete d'un pretre. L'animal devient alors sa propriete privee, et il peut le manger s'il le souhaite. <b>Et</b> en general, <b>on lui impose</b> a la fois <b>les contraintes des pretres et les contraintes des Israelites.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> Il est indique dans la mishna que si <b>les</b> fils d'une certaine lignee, <b>infecteuse</b> etaient les <b>personnes qui sont mortes,</b> les fils mixtes accomplissent <i>halitza</i> avec les veuves des fils de la femme ainee, mais pas le mariage levirat. La Guemara demande : Cela indique-t-il que <b>parce que ces</b> fils <b>ont ete melanges, ils sont</b> rendus <b>inaptes ?</b> Le fait que leur lignee ne soit pas claire ne devrait pas les rendre inaptes. <b>Rava Pappa a dit : Dis</b> que la formulation correcte est : <b>Et si les certains</b> fils etaient ceux qui sont <b>morts.</b>
+
+### Partie 6
+Il est indique dans la mishna que <b>avec</b> les veuves des <b>certains</b> fils de la belle-fille, l'un</b> des fils mixtes <b>realise <i>halitza</i></b> et l'autre realise le mariage levirat. La Gemara commente que <b><i><i>halitza</i> est specifiquement accomplie</b> d'abord, <b>et ensuite le mariage levirat. Cependant, le mariage levirat n'est pas</b> effectue <b>en premier lieu, car</b> si elle n'est pas sa propre <i>yevama</i> mais plutot la belle-fille de son frere, ce faisant, on <b>brise</b> l'interdiction faite a <b>un <i>yevama</i></b> d'avoir des relations sexuelles <b>avec</b> un membre du <b>public.</b>
+
+### Partie 7
+§ Il est indique dans la mishna que dans le cas d'une <b>pretresse</b> dont la progeniture <b>etait melangee</b> avec celle de sa servante, elles recoivent une part de <i>teruma</i> dans le grenier. La Gemara demande : <b>N'est-il pas</b> <b>evident</b> qu'ils recoivent <b>une part</b> et pas plus ? Il faut plutot <b>dire</b> qu'ils recoivent <b>une part comme un seul homme,</b> c'est-a-dire qu'ils ne recoivent une part au grenier que s'ils se reunissent.
+
+### Partie 8
+La Guemara commente : Selon cette modification, <b>nous</b> avons <b>appris</b> dans la mishna un jugement qui est <b>conforme a celui qui a dit</b> que <b>on peut distribuer le <i>teruma</i> a un esclave seulement si son maitre est avec lui, comme il est enseigne</b> dans une <i>baraita</i> : <b>On peut distribuer du <i>teruma</i> a l'esclave</b> d'un pretre qui est eventuellement pretre lui-meme <b>uniquement si son maitre est avec lui;</b> c'est <b>la declaration de Rabbi Yehuda. Rabbi Yosei dit</b> que le <i>teruma</i> lui est distribue a lui seul, meme sans l'accompagnement de son maitre, car <b>il peut dire : Si je suis pretre, donnez-moi</b> <i>teruma</i> <b>du fait de mon</b> propre sacerdoce, <b>et si je suis l'esclave d'un pretre, donnez-moi le du a mon maitre.</b>
+
+### Partie 9
+La Guemara explique le contexte de cette dispute : <b>A la place de Rabbi Yehuda, on elevait</b> une personne <b>au</b> statut presume de pretrise a des fins de <b>lignage sur</b> la base de sa reception de <b><i>teruma</i>.</b> S'ils voyaient une personne recevoir <i>teruma</i>, ils supposaient qu'elle est pretre et temoignaient a cet effet. Par consequent, le <i>teruma</i> n'etait pas distribue a quelqu'un qui pourrait etre un esclave, a moins qu'il ne soit accompagne de son maitre, de peur que l'esclave ne soit suppose etre lui-meme un pretre. Inversement, <b>a la place de Rabbi Yosei, on n'eleverait pas</b> une personne <b>au</b> statut presume de la <b>lignee sacerdotale</b> sur la base du fait qu'elle ait recu <b><i>teruma</i>.</b> Par consequent, il lui etait permis de recevoir <i>teruma</i> independamment.
+
+### Partie 10
+<b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Elazar bar Tzadok a dit : Dans</b> tous <b>mes jours, je n'ai jamais</b> eu l'occasion de <b>temoigner</b> devant un tribunal, <b>a part un temoignage, et ils ont promu un esclave au</b> statut presume de <b>pretrise sur</b> la base de <b>ma parole.</b> Bien qu'ils aient vraisemblablement examine la question attentivement, une erreur s'est produite.
+
+### Partie 11
+La Gemara demande : Peut-il <b>entrer dans votre esprit</b> que <b>ils</b> l'ont effectivement <b>promu</b> ? <b>Maintenant</b> considerez : Si, meme <b>par le biais des animaux des justes, le Saint, Beni soit-Il, n'apporte pas</b> une pierre d'achoppement,</b> alors par le biais <b>des justes eux-memes, a plus forte raison</b> est-il <b>non</b> pour qu'Il n'apporte pas de pierres d'achoppement ?
+
+### Partie 12
+<b>Disons plutot</b> que c'est ce que Rabbi Elazar bar Tzadok a voulu dire : <b>Ils ont cherche a promouvoir un esclave au</b> statut presume de <b>pretrise sur</b> la base de <b>ma parole.</b> Comment cela s'est-il produit ? Rabbi Elazar bar Tzadok <b>a vu</b> un homme recevoir le <i>teruma</i> <b>dans le local de Rabbi Yosei et est alle temoigner dans le local de Rabbi Yehuda</b> de ce qu'il a vu, sans se rendre compte que ce temoignage serait un motif suffisant pour supposer que l'homme est un pretre. Comme le <i>teruma</i> n'y est distribue qu'aux pretres, l'esclave a presque ete promu au statut presume de pretre a tort.
+
+### Partie 13
+§ <b>Les Sages ont enseigne :</b> Il existe <b>dix</b> types de pretres <b>auxquels on ne peut pas distribuer de <i>teruma</i> dans le grenier, et ce sont : Un sourd-muet, un imbecile, et un mineur, une personne dont les organes sexuels sont dissimules [<i>tumtum</i>], et un hermaphrodite, et un esclave, et une femme, et un homme non circoncis, et un homme rituellement impur, et</b> celui qui <b>se marie avec une femme</b> qui est <b>inapte pour lui,</b> c'est-a-dire qui est inapte a epouser un pretre. <b>Et</b> en ce qui concerne <b>tous ceux-la, on peut leur envoyer</b> <i>teruma</i> <b>a eux, a leur domicile, a l'exception d'un homme rituellement impur et</b> celui qui <b>se marie avec une femme</b> qui est <b>inapte pour lui.</b>
+
+### Partie 14
+La Guemara demande : <b>Donne,</b> <i>teruma</i> ne peut etre distribue a <b>un sourd-muet, un imbecile et un mineur,</b> car <b>ils ne sont pas competents,</b> et il est inconvenant de leur donner <i>teruma</i> en public. Il est <b>egalement</b> inopportun de distribuer du <i>teruma</i> a <b>un <i>tumtum</i> et a un hermaphrodite,</b>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

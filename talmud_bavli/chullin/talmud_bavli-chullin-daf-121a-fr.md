@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Et ensuite, il derive</b> le <i>halakha</i> <b>du</b> liquide qui emerge de <b><i>l'orla</i> des premices</b> via une analogie verbale entre une instance du mot <b>fruit</b> et une autre instance du mot <b>fruit.</b> En ce qui concerne l'<i>orla</i> le verset stipule : "Et tu compteras son fruit comme interdit" (Levitique 19:23), et en ce qui concerne les premices, le verset dit : "Tu prendras le premier de tous les fruits du sol" (Deuteronome 26:2). Par consequent, de meme qu'en ce qui concerne les premiers fruits, le statut du liquide qui emerge du produit n'est semblable a celui du produit qu'en ce qui concerne les raisins et les olives, de meme en ce qui concerne la <i>orla</i> on ne recoit des coups de fouet que pour avoir bu le liquide des raisins et des olives, mais pas pour avoir bu le liquide des autres types de produits.
+
+### Partie 2
+§La mishna enseigne que <b>le <i>alal</i></b> s'associe a la chair pour constituer la masse d'œufs requise pour conferer l'impurete d'un aliment, bien qu'il ne soit pas considere comme un aliment lui-meme. La Gemara demande : A <b>quoi</b> le terme <b><i>al</i></b> fait-il reference ? <b>Rabbi Yohanan dit :</b> Il fait reference au <b>ligament nucal [<i>marteka</i>]. Et Reish Lakish dit :</b> Il fait reference au <b>residu de viande</b> <b>qui</b> est attache a la peau apres que <b>le couteau ait ecorche</b> la chair.
+
+### Partie 3
+La Gemara <b>souleve une objection</b> a l'explication de Reish Lakish a partir de ce qui est ecrit : <b>"Mais vous etes des platriers du mensonge, vous etes tous des medecins sans valeur [<i>elil</i>]</b> (Job 13:4). Le terme" sans valeur [<i>elil</i>]A" provient de la même racine linguistique que le mot <i>alal</i>. <b>D'apres celui qui dit</b> que le mot <i>alal</i> fait reference au <b>Ligament nucal</b>, c'est-a-dire Rabbi Yohanan, <b>c'est</b> pourquoi Job a accuse ses compagnons de donner des conseils sans valeur en faisant une analogie avec un medecin qui tente de guerir le ligament nucal, <b>qui ne peut etre gueri. Mais selon celui qui dit</b> que le mot <i>alal</i> fait reference au <b>residu de viande</b> <b>qui</b> est attache a la peau apres que <b>le couteau ait ecorche</b> la chair, c'est-a-dire Reish Lakish, la chair qui pend de la peau <b>peut etre guerie.</b>
+
+### Partie 4
+La Gemara repond : <b>A propos</b> du terme <b><i>elil</i> dans le verset, tout le monde s'accorde</b> a dire qu'il s'agit du ligament nucal. <b>Quand</b> Rabbi Yohanan et Reish Lakish <b>sont en desaccord,</b> c'est <b>en ce qui concerne</b> la definition du terme <b><i>alal</i></b> employe par les Sages <b>dans la mishna.</b>
+
+### Partie 5
+<b>Venez</b> et <b>entendez</b> une resolution a partir de ce qui est enseigne dans la mishna : <b>Rabbi Yehouda dit :</b> En ce qui concerne <b>le <i>alal</i> qui</b> a ete <b>collecte, s'il y a une olive-bulk</b> de celui-ci <b>dans un endroit</b> il transmet l'impurete des carcasses d'animaux. Par consequent, celui qui la mange ou la touche et qui ensuite mange des aliments consacres ou entre dans le Temple <b>est susceptible</b> de recevoir <i>karet</i> <b>pour cela. Et Rav Huna dit :</b> Cette <i>halakha</i> <b>est</b> applicable uniquement <b>lorsqu'une personne halakhiquement competente <b>collecte</b> le <i>alal</i> en un seul endroit, mais pas si le <i>alal</i> a ete collecte par un enfant ou sans intervention humaine. En le recueillant en un seul endroit, la personne indique qu'elle le considere comme un aliment.
+
+### Partie 6
+<b>Accorde, selon celui qui dit</b> que le mot <i>alal</i> fait reference au <b>residu de viande</b> <b>qui</b> est attache a la peau apres que <b>le couteau ait ecorche</b> la chair, c'est-a-dire, Reish Lakish, <b>c'est</b> pourquoi Rabbi Yehuda dit <b>que l'on est rendu responsable lorsqu'il y a une olive-bulk</b> de <i>alal</i> collectee en un seul endroit, car la personne qui l'a collectee la considere comme de la nourriture. <b>Mais selon celui qui dit</b> que le mot <i>alal</i> fait reference au <b>ligament nucal,</b> c'est-a-dire Rabbi Yohanan, meme dans un cas <b>ou il y a une olive-bulk</b> de <i>al</i> recueillie en un seul endroit, <b>qu'en est-il ? Ce n'est que du bois,</b> c'est-a-dire qu'il est impropre a la consommation.
+
+### Partie 7
+La Guemara repond : <b>Selon</b> l'avis <b>de Rabbi Yehouda,</b> Rabbi Yohanan et Reish Lakish <b>ne sont pas en desaccord;</b> ils sont d'accord pour dire que le terme <i>al</i> fait reference au residu de viande attache a la peau apres que le couteau ait ecorche la chair. <b>Lorsqu'ils sont en desaccord,</b> c'est par rapport a la definition du mot alal selon l'avis des rabbins. Rabbi Yohanan dit : Les rabbins soutiennent que le ligament nucal s'unit egalement a la viande pour constituer la mesure requise d'un œuf-boulot pour conferer l'impurete de l'aliment. Et Reish Lakish dit : Les rabbins soutiennent que <b>specifiquement</b> le residu de <b>viande</b> <b>qui</b> est attache a la peau apres que <b>le couteau ait ecorche</b> la viande se joint a la chair, <b>mais le ligament nucal ne se joint pas.</b>
+
+### Partie 8
+<b>Quelles sont les circonstances</b> de <b>cette</b> qui est enseignee dans la mishna, a savoir que le residu de <b>viande</b> <b>qui</b> est attache a la peau apres que <b>le couteau a ecorche</b> la chair se joint a la viande pour constituer la mesure d'un œuf-bulk necessaire pour conferer l'impurete de la nourriture ? <b>Si</b> c'est un cas <b>ou l'on a l'intention</b> de manger ce residu de viande, alors il <b>peut devenir impur</b> non seulement en se joignant a la viande, mais <b>meme par lui-meme,</b> comme tout autre aliment. <b>Et si</b> c'est un cas <b>ou on n'a pas l'intention</b> de manger ce residu de viande, pourquoi serait-il susceptible d'etre impur du tout ? On a completement <b>nullifie</b> son statut d'aliment.
+
+### Partie 9
+<b>Rabbi Avin et Rabbi Meyasha</b> ont repondu a ce dilemme. <b>On dit :</b> Il s'agit d'un cas ou <b>on a l'intention</b> de manger <b>une partie</b> du residu de viande, mais on ne sait pas quelle partie. Par consequent, le residu de viande n'est pas susceptible d'impurete par lui-meme, car il n'est pas entierement considere comme un aliment, mais la partie qu'il a l'intention de manger se joint a la viande pour constituer la mesure d'un paquet d'œufs.
+
+### Partie 10
+<b>Et l'on dit :</b> C'est un cas ou l'on n'a pas l'intention de manger une partie du residu de viande. Au contraire, <b>un animal a sectionne une partie</b> du residu de viande attache a la peau, et par consequent cette partie du residu de viande conserve son statut de nourriture. <b>Et</b> le <b>couteau a sectionne une partie</b> du residu de viande, et on a donc annule son statut de nourriture en ce qui concerne cette partie. Comme on ne sait pas quelle partie a ete sectionnee par un couteau et quelle partie a ete sectionnee par un animal, le residu de viande lui-meme n'est pas susceptible d'etre impur, mais la partie qui a ete sectionnee par un animal se joint a la viande pour constituer la mesure d'un paquet d'œufs.
+
+### Partie 11
+§La mishna a declare que les cornes se joignent a la chair pour constituer la mesure d'une poule d'œufs requise pour conferer l'impurete de la nourriture. La Guemara commente que <b>on a appris</b> dans une mishna <b>ailleurs</b> (<i>Teharot</i> 1:2) : <b>Le bec et les serres</b> d'un oiseau qui entrent en contact avec un animal rampant peuvent <b>devenir impurs, et transmettre l'impurete</b> a la nourriture, <b>et se joindre</b> a la chair attachee pour constituer la mesure requise pour transmettre l'impurete. La Gemara demande : Pourquoi <b>un bec</b> se joint-il a la chair pour transmettre l'impurete ? <b>C'est simplement du bois,</b> c'est-a-dire qu'il est impropre a la consommation.
+
+### Partie 12
+<b>Rabbi Elazar dit :</b> La mishna est enoncee <b>en ce qui concerne la moitie inferieure</b> du <b>bec,</b> c'est-a-dire la mandibule inferieure. La Gemara objecte : <b>La mandibule inferieure</b> <b>est aussi simplement du bois. Rav Pappa dit :</b> La mishna parle de <b>la section inferieure</b> <b>de la mandibule superieure</b> et fait reference a la membrane a l'interieur de la bouche qui est attachee au bec.
+
+### Partie 13
+De meme, en ce qui concerne les <b>talons</b> mentionnes dans cette mishna, <b>Rabbi Elazar dit :</b> Cette mishna ne discute pas des talons eux-memes, mais plutot de <b>l'endroit</b> a la base du talon <b>qui est subsume dans la chair.</b>
+
+### Partie 14
+De meme, en ce qui concerne les <b>cornes</b> mentionnees dans la mishna, <b>Rav Pappa dit :</b> La mishna ne discute pas de la substance dure de la corne, mais se refere plutot <b>a l'endroit</b> a la base des cornes <b>ou l'on separe</b> les cornes <b>et ou le sang coule.</b>
+
+### Partie 15
+§La mishna enseigne : <b>De meme,</b> dans le cas de <b>celui qui abat</b> un <b>animal</b> non casher pour un Gentil et que l'animal est encore convulsif et entre en contact avec une source d'impurete, il transmet l'impurete de la nourriture, mais ne transmet pas l'impurete d'une carcasse d'animal.
+
+### Partie 16
+<b>Rabbi Asi dit : </b> Certains Sages <b>enseignent</b> que lorsqu'un <b>Juif</b> abat un <b>animal non casher</b> <b>ou un Gentil</b> abat un <b>animal casher</b>, pour qu'il soit susceptible d'impurete alimentaire, il est <b>necessaire</b> que l'<b>intention</b> de celui qui effectue l'abattage soit que la chair soit designee comme aliment alors qu'elle est encore convulsive. <b>Et</b> en outre, pour que l'animal soit <b>rendu susceptible</b> d'impurete, il faut qu'il soit en contact avec de l'<b>eau</b> ou un autre liquide rendant les aliments susceptibles d'etre impurs et provenant <b>d'un autre endroit.</b> Le sang de cet abattage n'est pas considere comme un liquide rendant les aliments susceptibles d'etre impurs car il a coule d'un abattage valide.
+
+### Partie 17
+La Gemara demande : <b>Pourquoi ai-je</b> besoin que l'animal entre en contact avec un liquide pour qu'il soit <b>rendu susceptible</b> d'impurete alimentaire ? La chair de l'animal <b>devra eventuellement devenir impure</b> avec un niveau d'<b>impurete</b> plus severe lorsqu'il mourra, c'est-a-dire l'impurete d'une carcasse animale. <b>Et tout</b> aliment <b>qui deviendra eventuellement impur</b> avec un niveau plus <b>severe</b> d'<b>impurete ne necessite pas</b> un contact avec un liquide pour etre <b>rendu sensible</b> a l'impurete des aliments.
+
+### Partie 18
+La Guemara explique maintenant la source de ce principe. <b>Comme l'enseigne l'ecole de Rabbi Yishmael :</b> En ce qui concerne le fait de rendre un aliment susceptible d'etre impur par contact avec un liquide, le verset indique : <b>Mais si l'on met de l'eau sur la graine,</b> et qu'une partie de la carcasse tombe dessus, elle est impure pour vous" (Levitique 11:38). <b>De meme que les graines, qui ne contracteront jamais</b> un niveau plus <b>severe</b> d'<b>impurete,</b> car aucune forme d'impurete severe ne s'applique aux aliments autres que la viande, <b>necessitent</b> un contact avec un liquide pour <b>les rendre</b> <b>susceptibles</b> a leur niveau d'impurete moins severe, <b>De meme, tout</b> aliment <b>qui ne contractera jamais</b> un niveau d'impurete plus <b>severe</b> necessite</b> un contact avec un liquide pour etre <b>rendu sensible</b> a l'impurete des aliments. En revanche, tout aliment qui deviendra impur avec un niveau d'impurete plus severe ne necessite pas de contact avec un liquide pour etre rendu sensible a l'impurete des aliments.
+
+### Partie 19
+<b>Et</b> de meme, <b>il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Pour quelle</b> raison <b>les Sages ont-ils <b>dit</b> que pour que <b>la carcasse d'un oiseau casher</b> devienne susceptible d'impurete, il <b>exige</b> que l'<b>intention</b> de celui qui effectue l'abattage soit de designer l'animal comme nourriture, <b>mais il n'est pas exige</b> que l'oiseau soit <b>rendu susceptible</b> d'impurete par contact avec un liquide ? La raison en est <b>parce que</b> .
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

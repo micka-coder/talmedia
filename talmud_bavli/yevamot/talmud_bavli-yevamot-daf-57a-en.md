@@ -1,0 +1,48 @@
+
+### Part 1
+<b>this one may also partake</b> of <i>teruma</i> until that time. The Gemara refutes this argument: <b>From where</b> do we know that this is correct? <b>Perhaps Rabbi Elazar and Rabbi Shimon stated</b> their opinion <b>there only</b> with regard to a priest <b>whose</b> status <b>can entitle her to partake</b> of <i>teruma</i> <b>in another case, but here,</b> in the case of a priest with crushed testicles, <b>whose</b> status <b>cannot entitle her to partake</b> of <i>teruma</i> <b>in another case,</b> as it is forbidden for him to marry a woman who was born Jewish, <b>no,</b> they did not state their opinion.
+
+### Part 2
+<b>And if you say</b> that <b>here too, his</b> status <b>can</b> at least <b>entitle</b> his wife <b>to partake</b> of <i>teruma</i> if he marries <b>the daughter of converts, wasn’t it</b> already <b>raised as a dilemma</b> by <b>Rabbi Yoḥanan before Rabbi Oshaya</b> whether the daughter of converts who married a priest with crushed testicles may partake of <i>teruma</i>, <b>and he was unable to resolve it</b> for <b>him?</b> Therefore, there is a difference between a priest with crushed testicles and other priests who betroth women who are disqualified by their intercourse.
+
+### Part 3
+<b>It was stated</b> that <b>Abaye said:</b> Women betrothed to a priest with crushed testicles may eat <i>teruma</i> <b>since his</b> status <b>entitles</b> his wife <b>to partake</b> of <i>teruma</i> <b>in</b> a case where <b>he has not known her.</b> If a priest was properly married and then his testicles became crushed, as long as he has not known his wife, i.e., engaged in intercourse with her, after that point in time, she may continue partaking of <i>teruma</i> as his wife.
+
+### Part 4
+<b>Rava said</b> she may continue to partake of <i>teruma</i> for a different reason: She may eat <i>teruma</i> <b>since</b> the status of this priest <b>entitles his Canaanite slaves and maidservants to partake</b> of <i>teruma</i>. Because he has the power to enable others to partake of <i>teruma</i>, the case of a woman betrothed to a priest with crushed testicles is comparable to the cases in the mishna, and Rabbi Elazar and Rabbi Shimon would permit the woman to partake of <i>teruma</i>.
+
+### Part 5
+The Gemara clarifies the two opinions. <b>Abaye did not say in accordance with</b> the opinion of <b>Rava</b> because he claims that <b>we derive</b> the <i>halakhot</i> related to <b>the acquisition of marriage from the acquisition of marriage, and we do not derive</b> the <i>halakhot</i> related to <b>the acquisition of marriage from the acquisition of slaves.</b>
+
+### Part 6
+<b>And Rava did not state</b> his opinion <b>in accordance with</b> the opinion of <b>Abaye,</b> as he maintains that <b>it is different there, as she had already partaken of</b> <i>teruma</i> before her husband’s testicles were crushed and therefore she may continue to partake of it. <b>And Abaye</b> would respond that <b>we do not say</b> that the case is different because <b>she had already partaken of</b> <i>teruma</i>, <b>as, if you do not say so,</b> the <b>daughter of an Israelite who</b> was <b>married to a priest who died</b> childless <b>should</b> be allowed to <b>partake</b> of <i>teruma</i>, <b>as she had already partaken of</b> <i>teruma</i> while her husband was alive. <b>And Rava</b> replies that there is no comparison between the two cases: <b>There, his acquisition lapses</b> upon his death; <b>here, his acquisition does not lapse,</b> as she is still his wife.
+
+### Part 7
+§ The Gemara earlier mentioned a question that Rabbi Yoḥanan posed to Rabbi Oshaya, and it now turns its attention to that matter <b>itself. Rabbi Yoḥanan raised a dilemma before Rabbi Oshaya:</b> With regard to <b>a priest</b> with <b>crushed testicles</b> or with other wounds to his genitals <b>who married the daughter of converts, what is</b> the <i>halakha</i> concerning whether <b>his</b> status <b>entitles her to partake of <i>teruma</i>?</b> Rabbi Oshaya <b>was silent and said nothing to him. Eventually another great man came and raised a different dilemma before</b> Rabbi Oshaya, <b>and he resolved his</b> question. <b>And who was</b> this great man? <b>Reish Lakish. Rabbi Yehuda Nesia said to Rabbi Oshaya: Is Rabbi Yoḥanan not a great man?</b> Why didn’t you address his dilemma? Rabbi Oshaya <b>said to him:</b> I did not respond <b>because he raised a dilemma before me that has no resolution.</b>
+
+### Part 8
+The Gemara explains: <b>According to whom</b> did he raise his dilemma? <b>If</b> it was <b>in accordance with</b> the opinion of <b>Rabbi Yehuda,</b> then, <b>whether</b> the priest with crushed testicles <b>retains his</b> priestly <b>sanctity or whether he does not retain his</b> priestly <b>sanctity</b> and may marry women forbidden to priests, she <b>may not partake</b> of <i>teruma</i>. The reasoning is as follows: <b>If he retains his</b> priestly <b>sanctity she may not partake</b> of <i>teruma</i>, <b>as the Master said:</b> The status of the <b>daughter of a male convert</b> is <b>like</b> that of the <b>daughter of a male <i>ḥalal</i>.</b> They are both prohibited from marrying a priest, and therefore even if they marry a priest, it is prohibited for them to eat <i>teruma</i>.
+
+### Part 9
+Even <b>if he does not retain his</b> priestly <b>sanctity she may not eat, as we say</b> that according to Rabbi Yehuda, <b>the congregation of converts is called</b> the <b>congregation</b> of the Lord. Therefore, when the Torah renders it prohibited for a man with crushed testicles to marry into the congregation of the Lord (see Deuteronomy 23:2), it renders it prohibited for him to marry converts.
+
+### Part 10
+<b>And if</b> he raised his dilemma <b>in accordance with</b> the opinion of <b>Rabbi Yosei,</b> then, <b>whether he retains his</b> priestly <b>sanctity</b> or <b>whether he does not retain his</b> priestly <b>sanctity, she</b> may <b>partake</b> of <i>teruma</i>. If <b>he retains his sanctity</b> she <b>may partake, as</b> Rabbi Yosei <b>said: Even</b> if a <b>convert married a convert, his daughter is fit for</b> marrying into <b>the priesthood. If he does not retain his sanctity</b> she <b>may partake, as</b> Rabbi Yosei <b>said:</b> The <b>congregation of converts is not called</b> the <b>congregation</b> of the Lord, and therefore even those forbidden from entering the congregation may marry converts. Consequently, it is certainly permitted for the priest with crushed testicles to marry the daughter of converts.
+
+### Part 11
+<b>Rather,</b> Rabbi Yoḥanan raised his dilemma <b>in accordance with</b> the opinion of <b>this <i>tanna</i>, as we learned</b> in a mishna (<i>Bikkurim</i> 1:5) that <b>Rabbi Eliezer ben Ya’akov says: A woman</b> who is <b>the daughter of converts may not marry into the priesthood unless her mother was Jewish</b> from birth.
+
+### Part 12
+<b>And his dilemma was as follows:</b> Is the reason she may marry a priest if her mother was Jewish from birth that <b>fitness</b> to marry a priest <b>has been added to her,</b> but she is not considered a member of the congregation of the Lord and may therefore marry a man with crushed testicles? If so, since she may marry a priest, <b>she</b> may <b>partake</b> of <i>teruma</i> once she does so. <b>Or perhaps sanctity has been added to her</b> and she is considered a member of the congregation of the Lord. Consequently, she may not marry a man with crushed testicles, and if she does, <b>she may not partake</b> of <i>teruma</i> even if he is a priest.
+
+### Part 13
+The Gemara suggests an answer to this dilemma. <b>Come</b> and <b>hear: When Rabbi Aḥa bar Ḥinnana came from the south, he came and brought</b> this <b><i>baraita</i> in hand: From where</b> is it derived that <b>a priest with crushed testicles</b> or with other wounds to his genitals <b>who married the daughter of converts entitles her to partake of <i>teruma</i>? As it is stated: “But if a priest buys any soul, the purchase of his money,</b> he <b>may eat of it”</b> (Leviticus 22:11). In this context, a wife is also considered his monetary acquisition, and therefore she may partake of <i>teruma</i>.
+
+### Part 14
+The Gemara analyzes this source: <b>According to whom</b> is this <i>baraita</i> stated? <b>If we say</b> it is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda, didn’t he say</b> that <b>whether</b> this priest <b>retains his sanctity</b> or <b>whether he does not retain his sanctity,</b> she <b>may not partake</b> of <i>teruma</i>? <b>And if</b> it is <b>in accordance with</b> the opinion of <b>Rabbi Yosei, why do I</b> need a special <b>verse</b> to teach this <i>halakha</i>? <b>Didn’t he say</b> that <b>whether</b> he <b>retains his sanctity</b> or <b>whether he does not retain his sanctity, she</b> may <b>partake</b> of <i>teruma</i>? <b>Rather, is it not in accordance with</b> the opinion of <b>Rabbi Eliezer ben Ya’akov? And</b> you can <b>learn from this</b> <i>baraita</i> that <b>fitness was added to her, and</b> therefore <b>she</b> may <b>partake</b> of <i>teruma</i>. The Gemara concludes: Indeed, <b>learn from this</b> that it is so.
+
+### Part 15
+§ The Gemara cites a dispute with regard to an issue related to the previous discussion. <b>It was stated</b> that the <i>amora’im</i> disagreed about the following question. <b>Rav said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

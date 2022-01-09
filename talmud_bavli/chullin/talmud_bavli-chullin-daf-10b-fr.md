@@ -1,0 +1,48 @@
+
+### Partie 1
+La Gemara demande : <b>Et</b> en <b>quelle maniere l'incertitude de savoir s'il a interrompu l'abattage ou presse le couteau est-elle <b>differente</b> de l'incertitude de savoir si le couteau s'est entaille avant ou apres l'abattage ? La Gemara repond : <b>Il y a,</b> dans le cas de l'incertitude concernant l'interruption ou la pression, <b>le defaut s'est developpe dans l'animal,</b> et l'abattage n'est pas valide. <b>Ici,</b> dans le cas d'une incertitude quant a savoir si le couteau s'est entaille avant ou apres l'abattage, <b>un defaut s'est developpe dans le couteau</b> mais <b>un defaut ne s'est pas developpe dans l'animal,</b> et l'abattage est valide.
+
+### Partie 2
+<b>Et la <i>halakha</i></b> est <b>conforme</b> a l'avis <b>du Rav Huna</b> selon lequel l'abattage n'est pas valide dans un cas <b>ou il n'a pas brise un os avec</b> le couteau. <b>Et la <i>halakha</i> est conforme</b> a l'avis <b>du Rav Hisda</b> que l'abattage est valable dans un cas <b>ou il a casse un os avec</b> le couteau. Apprenez <b>par deduction que Rav Hisda</b> juge que l'abattage est valide <b>meme s'il n'a pas brise un os avec</b> le couteau. La Guemara demande : <b>Mais</b> s'il n'a pas brise d'os, <b>sur quoi etait</b> le couteau <b>encoche ?</b> Ce devait etre sur la peau. Pourquoi, alors, l'abattage est-il valide ? La Gemara repond : <b>Dire</b> qu'il <b>a ete entaille sur l'os du cou</b> apres avoir concouru a l'abattage de l'animal.
+
+### Partie 3
+La Gemara relate : <b>Il y eut un incident, et Rav Yosef jugea jusqu'a treize animaux <i>tereifot</i></b> lorsqu'il decouvrit que le couteau etait entaille apres avoir abattu le dernier animal. La Guemara demande : <b>Selon l'avis de qui</b> Rav Yosef a rendu sa decision ? Est-ce <b>conformement</b> a l'avis de <b>Rav Huna,</b> qui estime que le souci est que le couteau a ete entaille par la peau de l'animal, <b>et</b> il a juge que <b>meme le premier</b> animal est interdit ? La Gemara repond : <b>Non,</b> peut-etre est-ce <b>conformement</b> a l'avis du <b>Rav Hisda,</b> qui estime que l'entaille est attribuee a l'os du cou, <b>et</b> ils sont tous interdits <b>sauf le premier</b> animal.
+
+### Partie 4
+<b>Et si vous le souhaitez, dites</b> plutot : <b>En fait,</b> c'est <b>conforme</b> a l'avis de <b>Rav Huna, comme, si</b> c'etait <b>conforme</b> a l'avis de <b>Rav Hisda, puisque nous attribuons</b> l'encoche a l'os du cou par indulgence, <b>d'ou</b> est-il etabli <b>que</b> c'est <b>sur l'os du cou du premier</b> animal qu'il a ete <b>encoche ? Peut-etre</b> que c'est <b>sur l'os du cou du dernier</b> animal qu'il <b>a ete entaille,</b> et tous les animaux sont autorises.
+
+### Partie 5
+<b>Rav Aha, fils de Rava, dit a Rav Ashi : Rav Kahana exige un examen</b> du couteau <b>entre chaque acte</b> d'abattage. La Guemara demande : <b>Selon l'avis de qui</b> Rav Kahana a-t-il emis sa decision ? Est-ce <b>conformement</b> a l'avis de <b>Rav Huna, et</b> il a enonce la <i>halakha</i> <b>pour invalider</b> l'abattage du <b>premier</b> animal qu'il a abattu s'il decouvre une entaille dans le couteau ? La Gemara repond : <b>Non,</b> peut-etre est-ce <b>conformement</b> a l'avis du <b>Rav Hisda,</b> selon la premiere des deux explications du jugement du Rav Yossef, qui considere que si une entaille est decouverte, elle est attribuee a l'os du cou, <b>et</b> l'examen du couteau est requis <b>pour valider</b> l'abattage de <b>l'animal suivant</b>.
+
+### Partie 6
+La Guemara souleve une objection : <b>Si c'est le cas,</b> et que l'on fait reference a l'examen avant l'abattage, le couteau <b>devrait necessiter l'examen d'un</b> <b>specialiste de la Torah</b> qui etait exige par les Sages. La Guemara explique : Il n'est pas necessaire qu'un Sage examine le couteau, en se basant sur le principe : Le temoignage d'<b>un seul temoin,</b> en l'occurrence l'abatteur, <b>est juge credible en ce qui concerne les questions rituelles.</b> La Gemara conteste : <b>Si tel est le cas, meme des le depart,</b> l'examen du couteau par un erudit de la Torah ne devrait <b>pas non plus</b> etre exige. La Guemara explique : <b>Rabbi Yohanan n'a-t-il pas dit</b> que les Sages ont <b>dit de montrer</b> le <b>couteau a un</b> erudit de la Torah <b>uniquement en raison</b> de l'obligation de montrer de la <b>deference au Sage ?</b> Une fois que la deference a ete montree avant l'abattage initial, il n'est plus necessaire de le faire.
+
+### Partie 7
+§ A propos de la declaration de Rav Huna selon laquelle un animal, de son vivant, existe avec le statut presume d'interdiction, et que par consequent, en cas d'incertitude quant a savoir si l'animal a ete correctement abattu, on statue avec rigueur et il est interdit de manger sa chair, la Guemara demande : <b>D'ou vient cette question que les Sages ont dit : Etablir</b> le statut de <b>la matiere sur</b> la base de <b>son statut presume,</b> derive ?
+
+### Partie 8
+<b>Rabbi Shmuel bar Nahmani a dit</b> que <b>Rabbi Yonatan a dit</b> que <b>le verset stipule</b> a propos de la lepre des maisons qu'apres qu'un pretre ait vu une marque lepreuse : <b>"Le pretre sortira de la maison jusqu'a l'entree de la maison, et mettra la maison en quarantaine pendant sept jours"</b> (Levitique 14:38). La Guemara demande : Comment le pretre peut-il mettre la maison en quarantaine en se basant sur le fait qu'il a vu la marque lepreuse ? <b>Peut-etre que lorsqu'il sortait et sortait</b> de la maison, la taille de la marque lepreuse a diminue et <b>elle n'a pas</b> la <b>mesure</b> requise pour la lepre. <b>Au contraire, n'est-ce pas du</b> au fait <b>que nous disons : Etablir</b> le statut de <b>la matiere sur</b> la base de <b>son statut presume ?</b>
+
+### Partie 9
+<b>Rav Aha bar Yaâkov s'oppose</b> a cette preuve : <b>Et peut-etre</b> le verset fait-il reference a un cas <b>ou</b> le pretre <b>sort a reculons, car</b> dans ce cas, le pretre <b>voit</b> la marque lepreuse <b>au moment ou il sort.</b>
+
+### Partie 10
+<b>Abaye lui dit</b> qu'il y a <b>deux refutations de</b> cette <b>affirmation. L'une</b> est <b>que sortir a reculons ne s'appelle pas sortir,</b> et que le pretre n'accomplirait pas le verset "Et le pretre sortira de la maison" en agissant ainsi. <b>Et de plus,</b> dans un cas ou la marque lepreuse est <b>derriere la porte, qu'y a-t-il a dire ? </b> Meme marcher a reculons ne permettrait pas au pretre de la voir. <b>Et si vous disiez que</b> le pretre peut <b>ouvrir une fenetre dans</b> le mur pour lui permettre de voir la marque lepreuse, <b>mais n'avons-nous pas appris</b> dans une mishna (<i>Negaim</i> 2:3) : <b>Dans une maison sombre, on ne peut pas ouvrir les fenetres</b> pour lui permettre de <b>voir sa marque lepreuse ?</b>
+
+### Partie 11
+<b>Rava dit a</b> Abaye : En ce qui concerne <b>ce que tu dis : Sortir a reculons ne s'appelle pas sortir,</b> le cas du <b>Haut Pretre a Yom Kippour prouvera</b> qu'il n'en est rien, <b>car sortir est ecrit a son</b> egard (voir Levitique 16:18), <b>et nous avons appris</b> dans une mishna (<i>Yoma</i> 52b) : Le Grand Pretre <b>sort et sort</b> a reculons selon le <b>maniere de son entree,</b> face a l'Arche dans le Saint des Saints. <b>Et</b> en ce qui concerne <b>ce que vous dites : Dans une maison obscure, on ne peut pas ouvrir les fenetres</b> pour lui permettre de <b>voir sa marque lepreuse, cette affirmation</b> ne s'applique que dans un cas <b>ou</b> l'existence d'une marque lepreuse dans la maison <b>n'etait pas</b> encore <b>etablie;</b> mais dans un cas <b>ou</b> l'existence d'une marque lepreuse dans la maison <b>etait</b> deja <b>etablie, elle etait etablie,</b> et le pretre peut ouvrir une fenetre pour la voir.
+
+### Partie 12
+<b>Il est enseigne</b> dans une <i>baraita</i> <b>non conforme</b> a l'avis du <b>Rav Aha bar Yaâkov,</b> qui a suggere que le verset se refere a un cas ou le pretre est sorti de la maison a reculons et qu'il n'y a donc pas de preuve que l'on laisse l'affaire dans son etat presume. Il est ecrit : <b>"Et le pretre sortira de la maison</b> a l'entree de la maison et mettra la maison en quarantaine.</b> On <b>pourrait</b> avoir pense qu'il <b>peut entrer dans sa</b> propre <b>maison et mettre la maison en quarantaine</b> a partir de la ; par consequent, <b>le verset dit : "A l'entree de la maison,"</b> en faisant reference a la maison qui est mise en quarantaine.
+
+### Partie 13
+<b>Si</b> il doit sortir vers <b>l'entree de la maison,</b> on <b>pourrait</b> avoir pense qu'il <b>peut se tenir sous le linteau et mettre en quarantaine</b> la maison ; par consequent, <b>le verset dit : "De la maison,"</b> indiquant qu'il ne met pas la maison en quarantaine <b>jusqu'a ce qu'il sorte de la maison dans sa totalite. Comment cela ? Il se tient a cote du linteau et met</b> la maison en quarantaine.
+
+### Partie 14
+Le <i>baraita</i> conclut : <b>Et d'ou vient</b> <b>que s'il est entre dans sa</b> propre <b>maison et a mis en quarantaine</b> la maison lepreuse, <b>ou que</b> si <b>il s'est tenu a l'interieur de la</b> <b>maison lepreuse et l'a mise en quarantaine</b>, <b>que sa quarantaine est</b> une <b>quarantaine valide?</b> Elle vient de ce que <b>le verset dit : "Et mettez la maison en quarantaine,"</b> ce qui signifie <b>dans tous les cas.</b> Apparemment, la quarantaine est valable meme s'il est incapable de voir la marque lepreuse, car la marque reste dans son etat de presomption anterieur.
+
+### Partie 15
+<b>Et Rav Aha bar Yaâkov</b> interprete la <i>baraita</i> conformement a son avis.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

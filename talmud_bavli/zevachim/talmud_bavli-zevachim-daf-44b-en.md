@@ -1,0 +1,54 @@
+
+### Part 1
+But there is the case of the <b><i>log</i> of oil that is brought by itself,</b> i.e., where the leper brings it after he has sacrificed his offerings. There <b>everyone</b> agrees that <b>its placements render</b> the remainder of the oil <b>permitted to</b> the priests, <b>and</b> yet <b>they do not render</b> the oil <b><i>piggul</i>, as it is taught</b> in a <i>baraita</i>: With regard to the <b><i>log</i> of oil of a leper, one is liable for</b> consuming <b>it due to</b> violation of the prohibition of <b><i>piggul</i>, as</b> the <b>blood</b> of the offering <b>renders it permitted to</b> be placed on <b>the thumb and big toe</b> of the leper. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 2
+The Rabbis <b>said to Rabbi Meir: But a person</b> may <b>bring his guilt offering today and</b> the accompanying <b><i>log</i></b> of oil <b>from now until</b> even <b>ten days</b> later. Rabbi Meir <b>said to them: I too spoke only about</b> a <i>log</i> of oil that <b>comes with the guilt offering.</b> This indicates that even according to the opinion of Rabbi Meir, it is the blood of the offering that renders the oil <i>piggul</i>.
+
+### Part 3
+<b>Rather, Rabbi Yirmeya says: Actually,</b> the aforementioned <i>baraita</i> <b>is</b> in accordance with the opinion of <b>Rabbi Meir, and omit</b> the case of the meal offering brought with the <b>libations</b> that accompany animal offerings <b>from</b> the list of items that are not subject to the <i>halakha</i> of <i>piggul</i>. <b>Abaye says: Actually, do not omit</b> this item from the list, and the <i>baraita</i> can be explained in accordance with the opinion of Rabbi Meir as follows: The <i>tanna</i> first <b>taught</b> the <i>halakha</i> with regard to the <b><i>log</i></b> of oil <b>that comes with the</b> leper’s <b>guilt offering, and the same is true of libations that come with</b> an animal <b>offering,</b> as according to Rabbi Meir <i>piggul</i> status applies to both of these. <b>And then</b> the <i>tanna</i> <b>taught</b> that <i>piggul</i> does not apply to <b>libations that come by themselves, and the same is true of a <i>log</i></b> of oil <b>that comes by itself.</b>
+
+### Part 4
+§ The mishna teaches: With regard to <b>the bird burnt offering, its blood renders its meat</b> and its skin <b>permitted to</b> be eaten by <b>the priests.</b> The Gemara asks: <b>From where is this matter,</b> that the meat of a bird burnt offering is eaten by the priests, derived? The Gemara cites a <i>baraita</i> <b>that Levi teaches,</b> with regard to a verse that discusses the gifts that are to be presented to the priests: “This shall be yours of the most sacred items, from the fire: Every offering of theirs, every meal offering of theirs, and every sin offering of theirs, and every guilt offering of theirs, which they shall render to Me, shall be most sacred for you and for your sons” (Numbers 18:9).
+
+### Part 5
+The <i>baraita</i> clarifies what is included by the term “every” in each of these clauses. The verse states: <b>“Every offering of theirs,”</b> which serves <b>to include</b> the <b><i>log</i> of oil of a leper;</b> it too is given to the priests. The Gemara explains why it is necessary to derive from the verse that the oil is a gift to the priesthood: It might <b>enter your mind to say</b> that the oil should not be included, as <b>the Merciful One writes</b> in this same verse: <b>“From the fire,” and this</b> <i>log</i> of oil, notwithstanding its status as an offering, <b>is not reserved from the fire.</b> Only an item concerning which part of it is brought to the altar can be said to be reserved from the fire, and none of the oil is brought to the altar. Therefore, the verse <b>teaches us</b> by the phrase: “Every offering of theirs,” that the oil goes to the priests.
+
+### Part 6
+The phrase: <b>“Every meal offering of theirs,”</b> serves <b>to include</b> the <b><i>omer</i> meal offering,</b> brought as a communal offering on the sixteenth of Nisan, <b>and the meal offering of jealousy,</b> brought by a <i>sota</i>. The Gemara elaborates: It might <b>enter your mind to say</b> that as the verse states with regard to the consumption of sacrificial food by the priests: <b>“And they shall eat those items with which atonement is achieved”</b> (Exodus 29:33), only those foods that facilitate atonement are given to the priests. <b>And</b> this would exclude the <i>omer</i> meal offering and the meal offering of jealousy, as <b>the <i>omer</i> meal offering comes to permit</b> the consumption of the new crop, <b>and the meal offering of jealousy comes to clarify</b> the <b>transgression</b> of the <i>sota</i>, as part of the ordeal undergone by the woman. Therefore, the verse <b>teaches us</b> by the phrase: “Every meal offering of theirs,” that even these meal offerings are eaten by the priests.
+
+### Part 7
+The phrase: <b>“And every sin offering of theirs,”</b> serves <b>to include the bird sin offering;</b> its meat too is given to the priests. The Gemara explains: It might <b>enter your mind to say</b> that this meat should not be eaten at all, as <b>it is</b> an unslaughtered <b>animal carcass,</b> since the bird is killed by pinching its nape (see Leviticus 5:8) rather than by slaughtering, which is the manner of ritual slaughter of non-sacred birds. Therefore, the phrase: “And every sin offering of theirs,” teaches that the bird sin offering is eaten by the priests.
+
+### Part 8
+The phrase: <b>“Every guilt offering of theirs,”</b> serves <b>to include the guilt offering of a nazirite</b> who contracted ritual impurity, <b>and the guilt offering of a leper.</b> The Gemara elaborates: It might <b>enter your mind to say</b> that these should not be given to the priests to eat, as <b>they come to qualify</b> these individuals, rather than to atone. The guilt offering of a nazirite renders him fit to restart his term of naziriteship, and the guilt offering of a leper qualifies him to eat sacrificial food, whereas the verse states: “And they shall eat those items with which atonement is achieved” (Exodus 29:33). Therefore, the verse <b>teaches us</b> by the phrase: “Every guilt offering of theirs,” that these offerings as well are eaten by the priests.
+
+### Part 9
+The Gemara challenges: <b>It is explicitly written with regard to the guilt offering of a leper</b> that it is consumed by the priests: “For as the sin offering is the priest’s, so is the guilt offering” (Leviticus 14:13). Why, then, is this derivation necessary? <b>Rather,</b> the <i>baraita</i> means to say that the phrase: “Every guilt offering of theirs,” serves <b>to include the guilt offering of a nazirite,</b> teaching that it is <b>like the guilt offering of a leper,</b> in that both are eaten by the priests.
+
+### Part 10
+The <i>baraita</i> continues: With regard to the phrase <b>“which they shall render</b> to Me,” <b>this is</b> referring to an item <b>stolen</b> from <b>a convert.</b> One who robs a convert who then dies with no heirs must give the stolen item and an additional one-fifth to the priests. Finally, the term <b>“for you”</b> teaches that <b>it shall be yours, even to betroth a woman with it,</b> i.e., these gifts are considered the priest’s property in all regards.
+
+### Part 11
+§ According to the first <i>tanna</i> of the mishna, the bulls that are burned and the goats that are burned, the blood of which is presented on the inner altar, are subject to <i>piggul</i>, whereas Rabbi Shimon rules that they are not subject to <i>piggul</i>. <b>It is taught</b> in a <i>baraita</i> that there is a third opinion concerning the matter: <b>Rabbi Elazar says in the name of Rabbi Yosei HaGelili:</b> If in his service of the bulls that are burned or the goats that are burned the priest had an intention that can <b>render</b> the offering <b><i>piggul</i> with regard to a matter that is performed outside</b> the Sanctuary, i.e., in the Temple courtyard, <b>he has rendered</b> the offering <b><i>piggul</i>.</b> If his intention was <b>with regard to a matter that is performed inside</b> the Sanctuary or the Holy of Holies, <b>he has not rendered</b> the offering <b><i>piggul</i>.</b>
+
+### Part 12
+The <i>baraita</i> elaborates: <b>How so?</b> If <b>he was standing outside</b> when slaughtering the animal, <b>and said: I hereby slaughter</b> the animal with the intention of <b>sprinkling its blood tomorrow</b> inside the Sanctuary, <b>he has not rendered</b> the offering <b><i>piggul</i>.</b> The reason is <b>that</b> in the case of <b>an intention outside with regard to a matter that is performed inside, one has not rendered</b> the offering <b><i>piggul</i>.</b> Likewise, if he <b>was standing inside</b> when sprinkling, <b>and said: I hereby sprinkle</b> the blood of the sin offering <b>in order to burn</b> its <b>sacrificial portions</b> on the external altar <b>and to pour out</b> its <b>remainder</b> on the base of the altar <b>tomorrow, he has not rendered</b> the offering <b><i>piggul</i>, as</b> this is <b>an intention inside with regard to a matter that is performed outside.</b>
+
+### Part 13
+<b>But</b> if <b>he was standing outside, and said: I hereby slaughter</b> the animal with the intention of <b>pouring out</b> the <b>remainder</b> of its blood <b>tomorrow, or to burn</b> its <b>sacrificial portions tomorrow, he has rendered</b> the offering <b><i>piggul</i>, as</b> this is <b>an intention outside with regard to a matter that is performed outside.</b>
+
+### Part 14
+<b>Rabbi Yehoshua ben Levi says: What is the verse</b> from which this is derived? The verse states with regard to the sacrificial portions of a bull for an unwitting sin of the anointed priest, which is one of the bulls that are burned: <b>“As it is taken off from the bull of the peace offering”</b> (Leviticus 4:10). <b>But what, then, do we learn from the bull of a peace offering?</b> Everything that is specified with regard to a peace offering is stated with regard to this bull as well.
+
+### Part 15
+<b>Rather,</b> the verse <b>juxtaposes the bull</b> for an unwitting sin <b>of</b> the <b>anointed priest with the bull of the peace offering: Just as the bull of the peace offering</b> is not rendered <i>piggul</i> <b>unless</b> the priest’s <b>actions and intentions</b> relate to the service performed <b>on the external altar,</b> as that is where it is offered, <b>so too, the bull</b> for an unwitting sin <b>of</b> the <b>anointed priest</b> is not rendered <i>piggul</i> <b>unless</b> the priest’s <b>intentions and actions</b> relate to the service performed <b>on the external altar.</b>
+
+### Part 16
+<b>Rav Naḥman says</b> that <b>Rabba bar Avuh says</b> that <b>Rav says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Elazar, who says</b> his ruling <b>in the name of Rabbi Yosei.</b>
+
+### Part 17
+<b>Rava said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

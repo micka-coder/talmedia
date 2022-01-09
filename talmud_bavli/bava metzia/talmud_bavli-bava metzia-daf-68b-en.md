@@ -1,0 +1,48 @@
+
+### Part 1
+<b>Abaye says:</b> It means that he is paid <b>as a laborer</b> who is <b>idle from that</b> typical <b>labor</b> of his <b>from which he is</b> kept <b>idle.</b> In other words, he must receive the amount of money that an individual would be willing to accept to refrain from his current occupation and engage in an easier task.
+
+### Part 2
+The Gemara comments: <b>And</b> it is <b>necessary</b> for the <i>tanna</i> to teach us both <i>halakhot</i>, that of a storekeeper who was given produce to sell as well as one who was given money to buy the produce. <b>As had he taught</b> only the <i>halakha</i> of <b>a storekeeper</b> who receives produce to sell, I would say that <b>it is</b> specifically <b>a storekeeper for whom it is enough</b> to receive his wages <b>as an idle laborer, because his toil is not great,</b> as the produce is already prepared and he merely has to sell it. <b>But</b> in the case of one who was given <b>money with which to acquire produce, whose toil is great,</b> as he must find the produce in the market and bring it back to his store, <b>I might say</b> that it is <b>not sufficient for him</b> to be paid <b>as an idle laborer.</b>
+
+### Part 3
+<b>And</b> conversely, <b>had</b> the <i>tanna</i> <b>taught</b> only the <i>halakha</i> of one who receives <b>money with which to acquire produce, I would say</b> it is in the case <b>there that he requires</b> payment <b>as an idle laborer, because his toil is great, but</b> with regard to <b>a storekeeper, whose toil is not great, I would say</b> that <b>any amount is enough for him; that,</b> for example, <b>even if</b> the one providing the produce <b>only immersed</b> his bread <b>in brine with</b> the storekeeper, <b>or only ate one dried fig with him, this is</b> sufficient to count as <b>his wages,</b> i.e., providing the bit of brine or a fig is sufficient to account for the storekeeper’s labor. It was therefore <b>necessary</b> for this <i>halakha</i> to be stated with regard to both cases.
+
+### Part 4
+§ Parenthetically, the Gemara lists the terms: <b>How many goats, and chickens, we add;</b> this constitutes <b>a mnemonic</b> device for the following discussions.
+
+### Part 5
+The mishna teaches that one may not enter into a joint venture with a storekeeper unless he gives him his wages. <b>The Sages taught</b> in a <i>baraita</i>: <b>How much is his wage?</b> What is the minimum amount he must be paid to avoid the prohibition of interest? It is permitted <b>whether</b> it is <b>a lot or a little,</b> in accordance with the agreement between them; this is <b>the statement of Rabbi Meir. Rabbi Yehuda says: Even if he only immersed</b> his bread <b>in brine with him, or only ate one dried fig with him, this is</b> sufficient for <b>his wage. Rabbi Shimon ben Yoḥai says:</b> He must <b>give him his full wage,</b> i.e., as a laborer.
+
+### Part 6
+<b>The Sages taught: One may not appraise</b> animals, i.e., one may not give his animals to someone else to raise after appraising their worth, in exchange <b>for half</b> the profits, <b>neither goats, nor sheep, nor anything</b> else <b>that does not produce</b> revenue <b>while it eats.</b> In other words, one may not enter into an agreement that any increase in value over and above the original appraisal of the animals will be shared between the owner and the one raising the animals. Since the animals do not produce revenue for the one raising them, his caring for the animal on behalf of the owner is tantamount to paying interest, as in the mishna.
+
+### Part 7
+<b>Rabbi Yosei, son of Rabbi Yehuda, says: One may appraise goats</b> for another to raise in this manner, <b>because they produce milk, and</b> one may appraise <b>sheep</b> for another to raise in this manner, <b>because they are shorn</b> for their wool, <b>and they</b> also have their wool removed when they are <b>washed</b> in water, <b>and they are plucked</b> of their wool by means of thorns, and the one who raises them can collect this wool. Consequently, the milk and wool generate revenue for the one raising them, and this can serve as a wage to avoid the prohibition of interest. <b>And</b> the same applies to <b>a chicken, because it produces</b> eggs <b>while it eats.</b>
+
+### Part 8
+The Gemara asks a question: <b>And</b> as for <b>the first <i>tanna</i>,</b> how does he respond to this claim? Does he claim that <b>shearing and milk do not provide</b> the payment <b>of the wage for his toil and</b> for the animal’s <b>food?</b> The Gemara answers: If the arrangement allows him to keep <b>the sheared</b> wool <b>and milk, everyone agrees</b> that this is sufficient to avoid the prohibition of interest. <b>When they disagree,</b> it is <b>with regard to</b> a case when he receives only the <b>whey [<i>benasyovi</i>],</b> i.e., the water left from the milk, <b>and the pluckings [<i>vetoteri</i>]</b> from the goats.
+
+### Part 9
+The Gemara clarifies the dispute: <b>The first <i>tanna</i> holds in accordance with</b> the opinion of <b>Rabbi Shimon ben Yoḥai, who says</b> that <b>he gives him his full wage.</b> Since the value of the whey and pluckings is less than a full wage, his receiving them does not suffice to replace his wage. <b>Rabbi Yosei, son of Rabbi Yehuda, holds in accordance with</b> the opinion of <b>his father, who says</b> that <b>even if he only immersed</b> his bread <b>in brine with him, or only ate one dried fig with him, this is his wage,</b> as there is no demand that his wages be commensurate with his toil.
+
+### Part 10
+<b>The Sages taught: A woman may rent</b> out <b>to another</b> woman <b>a chicken</b> to sit on the eggs belonging to the renter in exchange <b>for two</b> of the <b>chicks</b> hatched from the eggs. But with regard to <b>a woman who said to another:</b> The <b>chicken is mine and the eggs are yours, and you and I shall share the chicks,</b> i.e., my chicken will sit on your eggs until they hatch, <b>Rabbi Yehuda permits</b> this practice, and <b>Rabbi Shimon prohibits</b> it. He holds that since the owner of the chicken is responsible for half of the loss to the eggs, therefore part of this venture is a loan. As she is not being paid for her efforts, it is considered interest.
+
+### Part 11
+The Gemara asks: <b>And</b> as for <b>Rabbi Yehuda,</b> does he <b>not require</b> one to pay at least a minimal amount of <b>the wage for the toil of</b> the one caring for the chicken <b>and</b> the chicken’s <b>food?</b> The Gemara answers: <b>There are unfertilized eggs,</b> from which no chicks will hatch. Such eggs are retained by the owner of the chicken, and therefore she does receive some benefit.
+
+### Part 12
+<b>The Sages taught:</b> In <b>a place where</b> people <b>are accustomed to add the wages</b> of <b>a porter</b> for carrying a young <b>animal</b> on his shoulders <b>to the money</b> paid, the owner of the animal <b>must add</b> it to the overall sum, <b>and one may not deviate from the regional custom. Rabban Shimon ben Gamliel says: One may appraise a calf</b> that grows up <b>with its mother</b> for another to raise, <b>and a foal</b> that grows up <b>with its mother</b> for another to raise, as part of a single venture and split the profits, but one does not add to the wages for his toil, <b>and</b> this applies <b>even in a place where they have the custom to add the wages</b> of <b>a porter to the money</b> paid.
+
+### Part 13
+The Gemara asks: <b>But</b> as for <b>Rabban Shimon ben Gamliel,</b> does he <b>not require</b> that one pay at least a minimal amount for <b>the wage for the toil of</b> the one caring for the animals <b>and</b> the animals’ <b>food?</b> The Gemara answers: <b>There is the</b> animals’ <b>dung,</b> which is of some benefit to the one who raises the animals. The Gemara asks: <b>And</b> how does <b>the other</b> Sage respond to this claim? The Gemara replies: He maintains that <b>he declares the dung ownerless,</b> as he does not consider this important enough to retain. Consequently, this does not qualify as compensation paid to the one raising the young animal.
+
+### Part 14
+<b>Rav Naḥman said:</b> With regard to these joint ventures involving animals, the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda; and</b> the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei, son of Rabbi Yehuda; and</b> the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel.</b>
+
+### Part 15
+The Gemara relates: A business <b>document emerged concerning the sons of Rav Ilish,</b> as it was a venture entered into by their late father, <b>in which it was written</b> that Rav Ilish and his partner will share <b>one-half of the profit and one-half of the loss. Rava said: Rav Ilish was a great man, and</b> therefore <b>he would not feed people with</b> something <b>forbidden.</b> In other words, he certainly would not have involved himself in a joint venture through which someone would have earned money by means of interest, and an arrangement of this kind appears to constitute interest. Consequently, <b>no matter what,</b> there must have been some mistake with regard to this document. <b>If</b> the actual condition stated that one party would receive <b>one-half of the profit,</b> the other party must have agreed to accept upon himself <b>two-thirds of the loss,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

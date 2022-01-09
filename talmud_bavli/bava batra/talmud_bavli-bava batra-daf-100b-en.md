@@ -1,0 +1,33 @@
+
+### Part 1
+The standard width of <b>a public thoroughfare</b> is <b>sixteen cubits. A road</b> leading to one of the <b>cities of refuge</b> must be at least <b>thirty-two cubits</b> wide. <b>Rav Huna said: What is the verse</b> from which this is derived? <b>As it is written</b> with regard to the cities of refuge: <b>“You shall prepare for yourself the way,</b> and divide the borders of your land that the Lord, your God, caused you to inherit, into three parts, so that every manslayer may flee there” (Deuteronomy 19:3). Instead of simply stating: <b>A way,</b> the verse states: <b>“The way,”</b> to indicate that the road must be twice as wide as a standard public thoroughfare.
+
+### Part 2
+The mishna teaches: <b>A king’s thoroughfare has no</b> maximum <b>measure.</b> The Gemara explains: This is <b>because</b> the <i>halakha</i> is <b>that a king may breach</b> the <b>fence</b> of an individual <b>in order to create a thoroughfare for himself, and none</b> may <b>protest his</b> actions.
+
+### Part 3
+The mishna teaches: The <b>path for</b> those accompanying a deceased person to <b>a grave has no</b> maximum <b>measure.</b> The Gemara explains: This is <b>due to the honor of the deceased.</b>
+
+### Part 4
+§ The mishna teaches: With regard to the practice of <b>standing</b> and comforting the mourners following a funeral, <b>the judges of Tzippori said</b> that the standard requisite size is the <b>area required for sowing four <i>kav</i> of seed. The Sages taught</b> in a <i>baraita</i>: With regard to a family burial plot, even if <b>one</b> of the family <b>sells</b> the land designated for <b>his</b> own <b>grave</b> to another, or sells <b>the path</b> that will be used by the burial procession <b>to his grave,</b> or sells <b>the place</b> that will be used <b>for standing</b> and comforting <b>his</b> mourners, <b>or</b> sells the <b>site</b> that will be used <b>for his eulogy,</b> his <b>family members may come and bury him</b> in his grave <b>even against the will of</b> the buyer, <b>due to</b> the need to avoid <b>a family flaw,</b> i.e., harm to the family name that would arise if one of the family members was not buried with the rest of his family.
+
+### Part 5
+<b>The Sages taught</b> in a <i>baraita</i>: On their return from the burial, the mourners would stop after traveling a short distance and would sit to bewail the loss of the deceased. They would then stand and continue journeying for a short while and then repeat the procedure. The mourners perform <b>no fewer than seven standings and sittings</b> in honor <b>of the deceased.</b> These seven <b>correspond</b> to the seven references to “vanity” in the verse: <b>“Vanity of vanities, says Kohelet; vanity of vanities, all is vanity”</b> (Ecclesiastes 1:2), counting the plural term “vanities” as two references.
+
+### Part 6
+<b>Rav Aḥa, son of Rava, said to Rav Ashi: How do they perform</b> this ceremony? Rav Ashi <b>said to him</b> that it is done <b>as it is taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda said</b> that <b>in Judea, initially they would</b> perform <b>no fewer than seven standings and sittings</b> in honor <b>of the deceased.</b> One of the procession would make a statement <b>such as: Stand, dear</b> friends, <b>stand,</b> after which the mourners would continue on their journey to their home, and then he would say: <b>Sit down, dear</b> friends, <b>sit down,</b> at which point they would sit. The Rabbis <b>said to him: If so,</b> that this is all that the practice entails, then it should be <b>permitted to do so even on Shabbat,</b> since there is no explicit eulogy or mourning, whereas the custom is not to do so.
+
+### Part 7
+The Gemara relates: <b>The sister of Rami bar Pappa was married to Rav Avya.</b> When <b>she died</b> Rav Avya <b>performed</b> the practice of <b>standing and sitting for her. Rav Yosef said: He erred in two</b> matters. <b>He erred,</b> as the ceremony is to be <b>performed only with</b> the participation of <b>close</b> family members, <b>and he performed</b> it <b>even with a distant</b> relative. <b>And</b> he <b>erred</b> again, <b>as</b> mourners should <b>perform this</b> ceremony <b>only on the first day</b> of mourning, the day of the burial, <b>and he performed it on the second day.</b>
+
+### Part 8
+<b>Abaye said: He also erred in this, as</b> mourners should <b>perform</b> the ceremony <b>only in</b> the <b>cemetery, but he performed it in the city. Rava said: He also erred in this, as</b> mourners should <b>perform it only in a locale where</b> people <b>are accustomed do so, but there,</b> where he performed it, <b>it was not the custom</b> to do so.
+
+### Part 9
+The Gemara <b>raises an objection</b> to the claims of Rav Yosef and Abaye from the <i>baraita</i> cited above: The Rabbis <b>said to him: If so,</b> that this is all that the practice entails, then it should be <b>permitted to do so even on Shabbat.</b> The Gemara explains the objection: <b>And if you say,</b> as Abaye did, that the ceremony should be performed only <b>in</b> the <b>cemetery, or,</b> as Rav Yosef did, <b>on the first day,</b> then how could it occur that the ceremony would be performed on Shabbat; <b>what would</b> anyone <b>want</b> to be doing <b>in a cemetery on Shabbat,</b> when it is prohibited to perform a burial? The Gemara explains: It could happen <b>in a city that is close to the cemetery,</b> and this is a case <b>where they brought</b> the deceased <b>for burial at twilight</b> just before Shabbat began, so that the return journey took place on Shabbat itself.
+
+### Part 10
+<strong>MISHNA:</strong> There is the case of <b>one who sells a plot</b> of land <b>to another</b> in order for him <b>to construct for himself</b> an underground <b>catacomb, and similarly</b> the case of a contractor <b>who receives a plot</b> of land <b>from another</b> under a commission <b>to construct for him a catacomb.</b> If the size of the catacomb was not specified, then <b>he should make the inside of</b> each burial <b>chamber four cubits</b> wide <b>by six</b> cubits long <b>and open up into</b> the chamber, by digging into its walls, <b>eight</b> burial <b>niches [<i>kukhin</i>]</b> in which the coffins will rest. <b>Three</b> niches should be opened up <b>from</b> the wall <b>here,</b> along the length of the chamber, <b>and three from there,</b> along the other side, <b>and two</b> niches <b>from</b> the wall <b>facing</b> the entrance. <b>And</b> these <b>niches</b> should be formed so that <b>their length</b> is <b>four cubits and their height</b> is <b>seven</b> handbreadths,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

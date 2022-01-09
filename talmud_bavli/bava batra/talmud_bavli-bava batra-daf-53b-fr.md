@@ -1,0 +1,33 @@
+
+### Partie 1
+Si son intention etait <b>de l'acquerir et</b> egalement d'acquerir <b>l'autre</b> champ, il a <b>acquis</b> le premier champ, mais n'a <b>pas acquis l'autre</b> champ, puisque les champs sont separes par une limite. S'il a pris possession d'un champ pour <b>acquerir</b> seulement <b>l'autre</b> champ, <b>il n'a pas acquis meme ce</b> champ dont il a pris possession, puisque son intention, lors de la prise de possession, etait d'acquerir l'autre champ, et qu'on n'acquiert pas un objet sans en avoir l'intention.
+
+### Partie 2
+<b>Rabbi Zeira souleve un dilemme : Quelle est</b> la <i>halakha</i> si l'on <b>a pris possession d'un des</b> champs pour <b>l'acquerir, ainsi que la limite, et l'autre</b> champ, tous ensemble ? <b>Disons-nous</b> que la <b>limite du terrain est une seule,</b> c'est-a-dire que ces deux champs sont reunis par leur limite commune, <b>et</b> par consequent il les a <b>acquis</b> tous ensemble ? <b>Ou peut-etre que ce</b> champ <b>est seul et que ce</b> champ <b>est seul.</b> La Guemara note que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 3
+<b>Rabbi Elazar souleve un dilemme : quelle est</b> la <i>halakha</i> si l'on <b>prend possession de la limite</b> entre les deux champs afin <b>d'acquerir les deux</b> champs ? <b>Disons-nous</b> que le statut juridique de <b>cette limite</b> est celui de <b>le licou du terrain et qu'il acquiert</b> les champs, tout comme on acquiert un animal par l'acquisition de son licou ? <b>Ou peut-etre</b> ce champ <b>se tient seul et ce</b> champ <b>se tient seul,</b> car la limite n'est pas reliee au champ de la meme maniere qu'un licol est relie a un animal. La Guemara note que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 4
+De meme, <b>Rav Nahman dit</b> que <b>Rabba bar Avuh dit :</b> S'il y avait <b>deux maisons</b> dans une cour, <b>celle-ci</b> situee <b>a l'interieur</b> de la cour par rapport <b>a celle-la</b>, et que l'on <b>prenne possession de la maison exterieure</b> dans le but <b>de l'acquerir, il l'a acquise. </b> Si son intention etait <b>de l'acquerir et</b> egalement d'acquerir <b>la maison interieure</b>, <b>il a acquis la maison exterieure</b>, mais n'a <b>pas acquis la maison interieure</b>. S'il a pris possession de la maison exterieure pour <b>acquerir la maison interieure</b> seule, il <b>n'a meme pas acquis la maison exterieure</b>.
+
+### Partie 5
+S'il <b>a pris possession de la maison interieure</b> afin <b>de l'acquerir,</b> il <b>l'a acquise.</b> Si son intention etait <b>de l'acquerir et</b> egalement d'acquerir <b>la maison exterieure,</b> il <b>a acquis les deux.</b> Puisque les residents de la maison interieure possedent le droit de passer par la maison exterieure pour entrer et sortir de la cour, la maison exterieure est consideree comme une extension de la maison interieure. S'il a pris possession de la maison interieure pour <b>acquerir</b> seulement <b>la maison exterieure</b>, il n'a <b>pas meme acquis la maison interieure</b>, puisqu'il n'a pas pris possession du bien qu'il voulait acquerir.
+
+### Partie 6
+§ La Gemara poursuit sa discussion sur la prise de possession d'un bien sans proprietaire. <b>Rav Nahman dit</b> que <b>Rabba bar Avuh dit :</b> En ce qui concerne <b>celui qui construit de grands palais [<i>palterin</i>] sur la propriete d'un converti</b> qui est mort sans heritiers, <b>et un autre est venu et a place des portes</b> sur <b>elles,</b> ce dernier <b>a acquis</b> la propriete. La Gemara explique : <b>Quelle est la raison</b> de ceci ? <b>Le premier,</b> c'est-a-dire celui qui a construit les palais, <b>n'a fait que retourner des briques,</b> c'est-a-dire que construire une maison incomplete n'est pas suffisant pour prendre possession de la propriete.
+
+### Partie 7
+<b>Rav Dimi bar Yosef dit</b> que <b>Rabbi Elazar dit : Celui qui trouve des palais</b> construits <b>sur la propriete d'un converti</b> qui est mort sans heritiers <b>et les a platres</b> avec <b>une</b> application de <b>platre ou</b> les a carreles avec <b>une tuile, les a acquis.</b> La Gemara demande : <b>Et combien,</b> c'est-a-dire quelle est la surface minimale qui doit etre platree ou carrelee ? <b>Rav Yosef a repondu :</b> Un <b>cubit carre. Rav Hisda a dit : Et</b> il ne l'acquiert de cette maniere que si elle a ete platree ou carrelee <b>en face de l'entree,</b> ou elle peut etre facilement vue.
+
+### Partie 8
+<b>Rav Amram a dit : Rav Sheshet nous a dit cette declaration, et il a eclaire nos yeux a partir d'une <i>baraita</i></b> qui fait allusion a la meme question. Il a dit : <b>Quelqu'un qui etend</b> des <b>matelas sur la propriete d'un converti</b> qui est mort sans heritiers <b>l'a acquis</b>. <b>Et</b> ce que j'ai dit, a savoir que <b>il a eclaire nos yeux a partir d'une <i>baraita</i>, qu'est-ce que c'est ? Comme il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Kiddushin</i> 1:5) : <b>Comment</b> acquiert-on un esclave cananeen <b>par la prise de possession ? </b> Si l'esclave <b>placait</b> la <b>chaussure d'un individu pour lui, ou deliait</b> sa <b>chaussure pour lui, ou</b> s'il arrivait <b>qu'il porte ses vetements apres lui au bain, ou qu'il le deshabille, ou qu'il le baigne,</b> ou qu'il le <b>anime,</b> ou qu'il <b>recure</b> l'huile sur <b>lui, ou qu'il l'habille, ou qu'il lui mette ses chaussures, ou qu'il le souleve,</b> on <b>acquiert</b> l'esclave. <b>Rabbi Shimon a dit :</b> L'acquisition generee par la prise de <b>possession ne doit pas etre</b> consideree comme <b>plus grande que</b> l'acquisition generee par le <b>levage, car le levage acquiert</b> des biens <b>dans n'importe quelle situation.</b>
+
+### Partie 9
+En ce qui concerne cette derniere affirmation, la Guemara demande : <b>Qu'est-ce que</b> Rabbi Shimon <b>dit</b> ici, puisque la premiere <i>tanna</i> a egalement dit qu'un esclave peut etre acquis par soulevement ? La Guemara explique : <b>Voici</b> ce qu'il <b>dit :</b> Le premier <i>tanna</i> considere que si <b>il a souleve son maitre,</b> le maitre <b>l'acquiert,</b> car il effectue un travail pour le maitre, mais si <b>son maitre l'a souleve,</b> le maitre <b>ne l'acquiert pas,</b> car l'esclave n'a pas effectue de travail pour lui. A propos de cette <i>halakha</i>, <b>Rabbi Shimon a dit :</b> L'acquisition generee par la prise de <b>possession ne doit pas etre superieure a</b> l'acquisition generee par le <b>levage, car le levage acquiert</b> des biens <b>dans n'importe quelle situation.</b> Par consequent, on peut acquerir un esclave meme en le levant.
+
+### Partie 10
+<b>Rav Yirmeya Biraâ dit</b> que <b>Rav Yehuda dit :</b> En ce qui concerne <b>cette derniere</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

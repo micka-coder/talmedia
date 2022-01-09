@@ -1,0 +1,63 @@
+
+### Partie 1
+de meme, en ce qui concerne <b>l'holocauste d'un oiseau selon</b> l'opinion de <b>Rabbi Elazar, fils de Rabbi Shimon,</b> qui estime qu'on est tenu de pincer simplement une majorite de deux <i>simanim</i> dans la nuque pour le preparer au sacrifice, <b>Qu'il decrete</b> contre le pincement de la majorite de deux <i>simanim</i> <b>de peur qu'on en vienne a ne pas effectuer</b> le pincement sur <b>la majorite de deux</b> <i>simanim</i>, mais plutot sur seulement la moitie d'entre eux.
+
+### Partie 2
+<b>Rav Yosef</b> a repondu aux deux refutations de Rabba et lui a <b>dit : </b> En ce qui concerne <b>ce que tu as dit,</b> a savoir qu'un <b>decret</b> rabbinique est necessaire meme en ce qui concerne un vetement qui a ete immerge ce jour-la <b>de peur</b> que les badauds <b>disent</b> que l'<b>immersion</b> d'un vetement <b>ce meme</b> jour est suffisante,</b> il n'y a aucune raison d'une telle preoccupation. Ceci parce que <b>sa dechirure prouve</b> que le vetement est pur du fait de la dechirure, et non parce qu'il est permis de porter un vetement immerge en mangeant une nourriture pure avant le coucher du soleil.
+
+### Partie 3
+<b>Et</b> en ce qui concerne <b>ce que tu as dit,</b> a savoir qu'en ce qui concerne <b>un holocauste d'oiseau selon</b> l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon, qu'il decrete</b> de ne pas pincer la majorite des <i>simanim</i> de peur que l'on ne manque de pincer la majorite, en fait il n'y a pas de raison d'avoir une telle preoccupation. Rav Yosef explique : La raison pour laquelle il n'y a aucune inquietude est que le pincement est effectue par <b>les pretres,</b> qui <b>sont vigilants</b> en ce qui concerne les mitzvot.
+
+### Partie 4
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une refutation de l'explication de Rabba bar Avuh de la mishna dans le tractate <i>Kelim</i> a partir de la mishna ici : Dans le cas de <b>celui qui ecorche un animal domestique ou un animal non domestique, un animal rituellement impur</b> <b>ou un animal rituellement pur</b>, <b>un petit</b> animal <b>ou un grand</b>, s'il ecorche l'animal <b>pour</b> le but d'utiliser la peau comme <b>un tapis,</b> le statut halakhique de la peau reste celui de la chair jusqu'a ce qu'il ait ecorche <b>la mesure de prehension</b> de la peau.
+
+### Partie 5
+La Gemara en deduit : <b>Mais</b> apres avoir ecorche <b>plus qu'une mesure de saisie</b> de la peau, la peau est <b>pure. Pourquoi</b> il en est ainsi ? <b>Laissons</b> les Sages <b>decreter</b> que meme une peau qui a ete ecorchee plus que la mesure de saisie est susceptible d'impurete <b>de peur que</b> celui qui a l'intention d'ecorcher plus qu'une mesure de saisie <b>n'arrive a achever qu'une mesure de saisie, et il</b> touche ainsi <b>a une source d'impurete, et nous</b> pourrions a tort <b>le considerer comme pur.</b>
+
+### Partie 6
+La Guemara repond : <b>Si</b> la mishna discutait de l'<b>impurete par la loi de la Torah, en effet</b> les Sages auraient emis un tel decret. Mais <b>ici, nous traitons de l'impurete par la loi rabbinique,</b> et donc les Sages n'ont pas emis un tel decret.
+
+### Partie 7
+La Gemara objecte : Selon cette reponse, le cas dans la mishna d'une <b>personne impure</b> qui ecorche <b>un animal pur</b> <b>se passe bien.</b> Cela pourrait faire reference a un cas d'impurete par la loi rabbinique. Mais dans chaque cas d'une personne <b>pure</b> qui ecorche <b>un animal impur</b>, c'est-a-dire une carcasse d'animal non abattu, l'<b>impurete</b> de l'animal <b>est de par la loi de la Torah.</b> Par consequent, dans un tel cas, les Sages auraient du emettre un decret. La Guemara explique : Le cas enseigne dans la mishna d'une personne qui ecorche un animal impur fait reference <b>a</b> un animal pur qui a ete abattu correctement, mais apres l'abattage, on a decouvert que l'animal avait une blessure qui l'aurait fait mourir dans les douze mois, le rendant ainsi <b>un <i>tereifa</i>.</b> Un tel animal transmet l'impurete par la loi rabbinique.
+
+### Partie 8
+La Gemara demande : <b>Est-ce qu'un animal pur qui se trouve etre <b>un <i>tereifa</i> est capable de transmettre l'impurete ?</b> La Gemara repond : <b>Oui, conformement</b> a l'avis <b>de Shmuels pere, car Shmuels pere a dit : Une <i>tereifa</i> que l'on egorge impure</b> par la loi rabbinique <b>si</b> c'est <b>un animal sacrificiel</b>. Par consequent, la mishna fait reference au cas d'un animal sacrificiel qui s'est avere etre une <i>tereifa</i>.
+
+### Partie 9
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une refutation de l'explication de la mishna par Rabba bar Avuh dans le tractate <i>Kelim</i> a partir d'une <i>baraita</i> (<i>Tosefta</i> 8:19) : <b>Rabbi Dostai ben Yehuda dit au nom de Rabbi Shimon:</b> En ce qui concerne <b>celui qui ecorche les animaux rampants,</b> sa peau est consideree comme ayant <b>un lien</b> avec la chair, et il transmet l'impurete d'un animal rampant <b>jusqu'a ce qu'il ecorche</b> l'animal dans <b>son integralite.</b>
+
+### Partie 10
+La Guemara en deduit : Cette <i>halakha</i> ne s'applique qu'en ce qui concerne les animaux rampants, <b>mais en ce qui concerne un chameau</b> ou d'autres animaux non cachers, lorsque la peau est ecorchee plus qu'une mesure de prehension, elle <b>n'est pas</b> consideree comme ayant <b>un lien</b> avec la chair et est pure, meme si lorsque la mesure de prehension est ecorchee, elle est impure. Apparemment, il n'y a pas de decret rabbinique selon lequel meme une peau qui a ete ecorchee plus que la mesure de prehension transmet l'impurete, de peur que celui qui a l'intention d'ecorcher plus qu'une mesure de prehension ne vienne a ecorcher qu'une mesure de prehension, contrairement a l'opinion de Rabba bar Avuh.
+
+### Partie 11
+La Guemara rejette cette preuve : <b>Ne dites pas</b> que <b>cette declaration</b> indique que <b>en ce qui concerne le chameau,</b> lorsque la peau est ecorchee plus qu'une mesure de saisie, elle <b>n'est pas</b> consideree comme ayant <b>un lien</b> avec la chair. <b>Disons plutot</b> que cette declaration indique que c'est seulement a l'egard d'un animal rampant que la peau est consideree comme ayant un lien avec la chair jusqu'a ce que l'on ecorche l'animal dans sa totalite. Mais <b>en ce qui concerne</b> une carcasse de chameau et d'autres animaux non cacheres, dans le cas ou l'on cherche a faconner une cruche et que l'on commence a ecorcher a partir des pattes, si l'on a enleve toute la peau sauf <b>la peau au-dessus du cou, elle n'est pas</b> consideree comme ayant <b>un lien</b> avec la chair, <b>et</b> cette declaration <b>est</b> conforme a l'opinion du <b>Rabbin Yohanan ben Nuri</b> enoncee dans la mishna.
+
+### Partie 12
+§La Guemara revient pour discuter, et limiter la portee, de la mishna precedemment citee (<i>Kelim</i> 28:8) : Dans le cas d'un vetement rituellement impur que l'on a commence a dechirer, une fois que la majorite du vetement est dechiree, les deux sections ne sont plus considerees comme ayant un lien, et le vetement est pur. <b>Rav Huna dit au nom de Rabbi Shimon, fils de Rabbi Yosei :</b> La mishna <b>enseigne</b> qu'un vetement impur, dont la majorite a ete dechiree, n'est plus impur <b>que si l'on n'a pas laisse</b> non dechiree une partie du vetement qui est <b>la mesure d'un foulard. Mais</b> si <b>il a laisse</b> un morceau non dechire qui est <b>la mesure d'un foulard, il est</b> considere comme ayant <b>un lien,</b> et le vetement reste rituellement impur.
+
+### Partie 13
+<b>Reish Lakish a dit :</b> La mishna <b>enseigne seulement</b> en ce qui concerne un <b>vetement impur,</b> dont la plus grande partie a ete dechiree, qu'il n'est plus impur, <b>mais</b> une <b>peau</b> impure qui a ete dechiree de cette maniere reste impure car elle est <b>reparable. Et Rabbi Yohanan a dit : Meme une peau</b> qui a ete dechiree de cette maniere n'est plus impure car elle <b>n'est pas reparable.</b>
+
+### Partie 14
+<b>Rabbi Yohanan a souleve une objection a</b> l'opinion de <b>Reish Lakish</b> a partir d'une mishna (<i>Kelim</i> 26:9) : Dans le cas d'une <b>cachette</b> qui est <b>impure</b> avec l'impurete impartie par le <b>trainage,</b> si le proprietaire <b>a eu l'intention en ce qui concerne</b> la cachette d'en faire des <b>sangles et des sandales, lorsqu'il applique un scalpel [<i>izmel</i>] sur</b> la cachette, celle-ci devient <b>pure;</b> telle est <b>la declaration de Rabbi Yehuda. Et les rabbins disent :</b> La peau ne devient pas pure <b>jusqu'a ce qu'il reduise</b> la taille de la peau a une mesure de moins de <b>cinq pouces carres. En tout etat de cause, lorsqu'il reduit</b> la peau a une mesure inferieure a cinq handbreadths, tout le monde s'accorde a dire qu'elle devient <b>pure. Pourquoi</b> il en est ainsi ? <b>Disons</b> selon l'avis de Reish Lakish que la peau ne doit pas devenir pure, car elle est <b>reparable.</b>
+
+### Partie 15
+Reish Lakish a repondu a Rabbi Yohanan : <b>Lorsque j'ai dit que</b> une peau dechiree est <b>reparable,</b> je faisais reference a un cas <b>ou l'on coupe</b> la peau en une ligne <b>droite</b>. En revanche, <b>ici, nous avons affaire</b> a un cas <b>ou l'on coupe</b> la peau <b>de maniere circulaire.</b> Dans ce cas, la peau n'est pas reparable.
+
+### Partie 16
+<b>Rabbi Yirmeya souleve une objection</b> a l'opinion de Reish Lakish a partir de la mishna : Dans le cas de <b>celui qui ecorche</b> soit <b>un animal domestique ou un animal non domestique, un animal rituellement pur</b> <b>ou un animal rituellement impur</b>, <b>un petit</b> animal <b>ou un grand</b> animal, s'il ecorche l'animal <b>pour</b> le but d'utiliser la peau comme <b>un tapis,</b> le statut halakhique de la peau reste celui de la chair jusqu'a ce qu'il ait ecorche <b>la mesure de prehension. </b> Rabbi Yirmeya en deduit : <b>Mais</b> une fois que l'on a ecorche <b>plus que la mesure de saisie,</b> la peau est <b>pure. Mais</b> selon le Reish Lakish, <b>pourquoi</b> en est-il ainsi ? <b>Disons</b> que la peau est <b>reparable,</b> c'est-a-dire qu'elle peut etre recousue. <b>Rabbi Avin interprete</b> la mishna et explique que <b>un</b> morceau apres <b>un</b> morceau, c'est-a-dire que chaque morceau ecorche est <b>dechu</b> et deconnecte de la chair, car il ne sera jamais rattache a la chair, contrairement au cas d'une peau dechiree, qui peut etre recousue.
+
+### Partie 17
+<b>Rav Yosef souleve une objection</b> a l'opinion de Reish Lakish a partir d'une autre decision de la mishna : En ce qui concerne <b>la peau sur le cou, Rabbi Yohanan ben Nuri dit : Elle n'est pas</b> consideree comme ayant <b>un lien</b> avec la chair, car la peau est simplement reliee de maniere lache au cou lui-meme, et elle est pure. Selon le Reish Lakish, <b>pourquoi</b> en est-il ainsi ? <b>N'existe-t-il pas</b> la peau <b>existante</b> dans son etat <b>repare</b>, c'est-a-dire qu'elle n'est pas encore reliee au cou lui-meme ? Si une peau impure qui a ete dechiree et qui peut etre reparee reste impure, cela devrait certainement etre le <i>halakha</i> en ce qui concerne la peau qui n'a jamais ete deplacee de son etat initial.
+
+### Partie 18
+<b>Abaye dit a</b> Rav Yosef : Au lieu de s'opposer a l'avis de Reish Lakish en raison de la declaration de Rabbi Yohanan ben Nuri, <b>dit la derniere clause</b> de la mishna : <b>Et les rabbins disent:</b> La peau couvrant le cou est consideree comme ayant <b>un lien</b> avec la chair, une declaration qui soutient l'opinion de Reish Lakish selon votre raisonnement.
+
+### Partie 19
+<b>Abaye a plutot dit :</b> La dispute entre Reish Lakish et Rabbi Yohanan est sans rapport avec la dispute dans la mishna entre Rabbi Yohanan ben Nuri et les rabbins. Dans la mishna, <b>ils sont en desaccord en ce qui concerne</b> la question de savoir si un appendice, tel que la peau du cou, qui <b>protege</b> la chair mais qui est <b>tendance a se detacher par lui-meme</b> est considere comme une protection. Un <b>Sage,</b> c'est-a-dire les rabbins, <b>soutient</b> que <b>c'est</b> considere comme une <b>protection, et</b> un <b>Sage,</b> Rabbi Yohanan ben Nuri, <b>soutient</b> que <b>c'est pas</b> considere comme une <b>protection.</b>
+
+### Partie 20
+<b>Rabbi Yirmeya souleve une objection</b> a l'opinion de Reish Lakish a partir d'une mishna (<i>Kelim</i> 5:7) : En ce qui concerne <b>un four qui est devenu impur, comment le purifie-t-on ? On divise</b> le four <b>en trois</b> parties <b>et on gratte la</b> couche de <b>platre</b> qui entoure le four....
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

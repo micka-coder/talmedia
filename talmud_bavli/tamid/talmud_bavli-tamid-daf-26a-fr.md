@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>par le passage detourne qui s'etendait sous le Temple,</b> car il ne pouvait pas passer par la cour du Temple, a cause de son impurete. <b>Et</b> il y avait des <b>lampes qui brulaient de ce</b> cote <b>et de ce</b> cote du passage. Il traversait le passage <b>jusqu'a ce qu'il atteigne la chambre d'immersion. Et il y avait un feu</b> brulant <b>la</b> pour rechauffer les pretres apres leur immersion, <b>et</b> aussi <b>une salle de bain d'honneur,</b> pour que les pretres puissent uriner avant l'immersion. <b>C'etait</b> la manifestation de <b>son honneur:</b> Si on <b>trouvait</b> la porte <b>fermee,</b> on <b>savait qu'il y avait une personne a cet endroit,</b> et on attendait qu'elle sorte pour entrer. Si l'on trouvait la porte <b>ouverte, on savait qu'il n'y avait pas de personne,</b> et on pouvait entrer. De cette maniere, celui qui l'utilisait beneficiait d'une certaine intimite.
+
+### Partie 2
+Apres que le pretre soit <b>descendu et immerge</b> dans le bain rituel, il <b>sort et se seche</b> avec une serviette, <b>et se rechauffe face au feu. Il</b> ensuite <b>revenait</b> dans la Chambre du Foyer <b>et s'asseyait avec ses freres les pretres jusqu'a</b> l'aube, lorsque les <b>portes</b> de la cour du Temple <b>s'ouvraient.</b> Il <b>sortait alors</b> du Temple <b>et poursuivait son</b> chemin. Comme le processus de purification de celui qui s'immerge n'est pas termine avant le coucher du soleil, selon la loi rabbinique, il ne pouvait pas rester dans le Temple pendant la journee.
+
+### Partie 3
+La mishna decrit le debut de l'office quotidien dans le Temple : Parmi les membres de la famille sacerdotale qui doivent servir dans le Temple ce jour-la, <b>celui qui veut enlever</b> les cendres <b>de l'autel se leve tot et s'immerge</b> dans un bain rituel, comme cela est exige de toute personne qui entre dans la cour du Temple. Il doit s'immerger <b>avant que le pretre designe</b> <b>arrive,</b> car le pretre designe supervise la loterie qui determine quels pretres accomplissent les differents rites du service du Temple, et la premiere de ces loteries determine qui sera charge d'enlever les cendres. <b>Et a quelle heure le pretre designe</b> <b>arrive-t-il ? Les heures</b> de son arrivee <b>ne sont pas toutes les memes.</b> Il y a <b>des moments ou il vient a l'appel du coq [<i>hagever</i>], ou</b> il pourrait venir a <b>un moment adjacent</b>, soit <b>avant</b> l'appel du coq <b>ou apres celui-ci.</b>
+
+### Partie 4
+<b>Le pretre designe</b> <b>arrivait</b> a la Chambre du Foyer, ou etaient rassembles les pretres de la famille patrilineaire, <b>et il frappait</b> a la porte <b>pour</b> alerter <b>ceux-ci</b> afin qu'ils lui ouvrent la porte. <b>Et</b> quand <b>ils ont ouvert</b> la porte <b>pour lui, il leur a dit : Celui qui s'est immerge</b> dans le bain rituel <b>peut venir et participer a la loterie. Ils</b> ont alors <b>conduit la loterie,</b> et <b>celui qui a gagne</b> cette loterie <b>a gagne</b> le privilege d'accomplir le rite de l'enlevement des cendres.
+
+### Partie 5
+<strong>GEMARA : </strong>La mishna enseigne que les pretres veillaient en trois endroits du Temple. La Guemara demande : <b>D'ou proviennent ces questions</b> ? <b>Abaye dit</b> qu'elles sont derivees d'un verset, car <b>le verset dit : "Et ceux qui devaient camper devant le Tabernacle a l'est, devant la Tente de la Rencontre vers le lever du soleil, etaient Moise, Aaron et ses fils, assurant la garde du Sanctuaire, pour la garde des enfants d'Israel,</b> et le non-pretre qui s'approchait devait etre mis a mort" (Nombres 3:38).
+
+### Partie 6
+Les Sages <b>Disent</b> en reponse : <b>Oui, nous avons trouve</b> dans ce verset <b>qu'en general</b> la Torah <b>exige une veille</b> a garder. De plus, le verset indique que ce sont les <b>pretres et les levites</b> qui sont tenus d'effectuer la <b>veille,</b> car il enonce le precedent de Moise, qui etait un levite, et d'Aaron, qui etait un pretre. <b>Mais la mishna</b> (<i>Middot</i> 1:1) <b>enseigne : Les pretres</b> devaient <b>veiller a trois endroits dans la cour du Temple</b> <b>et les Levites a vingt et un endroits.</b> Selon la mishna, les pretres et les Levites veillaient a des endroits differents, <b>alors que</b> dans le <b>verset</b> les <b>pretres et</b> les <b>Levites sont ecrits ensemble,</b> indiquant qu'ils veillaient aux memes endroits.
+
+### Partie 7
+Les Sages <b>disent</b> que <b>ceci</b> est ce que le verset <b>dit : "Et ceux qui devaient camper devant le Tabernacle a l'est, devant la Tente de la Rencontre vers le lever du soleil, c'etait Moise,"</b> indiquant que les Levites montent la garde. <b>Et ensuite</b> le verset precise a propos de la veille separee des pretres : <b>Aaron et ses fils, veillant sur le Sanctuaire.</b> En outre, le verset indique que <b>Aaron</b> veille <b>en un lieu, et ses fils</b> veillent <b>en deux</b> autres <b>lieux,</b> d'ou il decoule que les pretres veillent en trois lieux differents.
+
+### Partie 8
+La Gemara demande : <b>D'ou provient-il</b> que le verset doit etre interprete de cette maniere ? Cela est derive <b>du</b> fait <b>qu'il est ecrit : "Et ceux qui devaient</b> camper"¦etaient Moise," <b>et il est ecrit</b> separement : "Aaron et ses fils, <b>veillant."</b> Cela indique que ceux <b>qui</b> devaient <b>camper</b> et donc veiller <b>sont discrets, et</b> ceux <b>qui veillent sont discrets,</b> c'est-a-dire qu'ils effectuent des veilles differentes dans des lieux distincts.
+
+### Partie 9
+La Gemara objecte : On peut <b>dire</b> que <b>tous</b> les pretres veillent <b>dans un endroit</b> qui est <b>discret</b> des veilles des Levites, mais pas dans trois endroits distincts. La Gemara explique : Cette possibilite ne doit <b>pas entrer dans votre esprit,</b> car le verset juxtapose les veilles de Moise et d'Aaron. Cela indique que <b>tout comme Moise</b> veille <b>dans un endroit discret, de meme, Aaron et ses fils</b> veillent chacun <b>dans un endroit discret,</b> et ils ne veillent pas ensemble.
+
+### Partie 10
+<b>Rav Ashi dit</b> que la <i>halakha</i> que les pretres veillent en trois endroits est derivee <b>de la fin du verset,</b> qui dit : "Moses, Aaron et ses fils, <b>veillant [<i>shomerim</i>] a la garde [<i>mishmeret</i>]</b> du Sanctuaire, <b>pour la garde [<i>lemishmeret</i>]</b> des enfants d'Israel. Le verset utilise trois termes de la racine <i>shin</i>, <i>mem</i>, <i>reish</i>, qui signifie veiller, indiquant qu'il devrait y avoir trois veilles distinctes.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

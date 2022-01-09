@@ -1,0 +1,57 @@
+
+### Partie 1
+"Et maintenant, n'y a-t-il pas Boaz, notre parent, dont tu etais avec les jeunes filles ? <b>Voici, il vanne l'orge cette nuit dans l'aire</b> <b>et quand il se couchera, tu marqueras l'endroit ou il se couchera" (Ruth 3, 2""3). Cela enseigne que la raison pour laquelle Boaz n'est pas rentre de l'aire de battage est qu'un erudit de la Torah ne doit pas sortir seul la nuit.
+
+### Partie 2
+<b>Rabbi Abbahou dit</b> que la source est <b>de la : "Abraham se leva de bon matin, sella</b> son ane, prit avec lui deux de ses jeunes gens et son fils Isaac, fendit le bois pour l'holocauste, se leva et alla au lieu que Dieu lui avait indique" (Genese 22:3). Le fait qu'Abraham ait attendu le matin et qu'il ne soit pas parti de nuit, meme si d'autres personnes voyageaient avec lui, indique qu'un erudit de la Torah ne devrait pas du tout sortir la nuit, et certainement pas seul.
+
+### Partie 3
+<b>Et les rabbins disent</b> que la source est <b>de la,</b> le verset qui decrit lorsque Jacob envoya Joseph a ses freres : "Et il lui dit : <b>Allez maintenant voir si tout va bien avec vos freres et bien</b> avec le troupeau ; et rapportez-moi des nouvelles. Il l'envoya donc hors de la vallée d'Hébron, et il arriva A Sichem" (Genèse 37:14). Le verset indique que Jacob a envoye Joseph a un moment ou il pouvait voir ses freres, c'est-a-dire pendant la journee. Cela montre qu'un erudit de la Torah ne doit pas sortir seul la nuit.
+
+### Partie 4
+<b>Rav a dit</b> que la source est <b>de la : "Et le soleil se leva pour lui</b> alors qu'il passait sur Peniel, et il boitait sur sa cuisse" (Genese 32:32). Cela indique que Jacob est resté lA oA¹ il était toute la nuit et qu'il est sorti au matin, car un érudit de la Torah ne doit pas sortir seul la nuit.
+
+### Partie 5
+La Guemara cite un incident impliquant le dernier verset cite ci-dessus. <b>Rabbi Akiva dit : J'ai pose</b> la question suivante a <b>Rabban Gamliel et Rabbi Yehoshua sur le marche aux viandes [<i>beitliz</i>] de</b> la ville <b>Emmaus, ou ils sont alles acheter un animal pour le</b> mariage du fils de Rabban Gamliel : Il est ecrit</b> dans le verset : <b>"Et le soleil brilla pour lui</b> quand il passa Peniel, et il boitait sur sa cuisse" (Genese 32:32). <b>Mais le soleil n'a-t-il brille que pour lui ? Ne brillait-il pas pour le monde entier ?</b>
+
+### Partie 6
+<b>Rabbi Yitzhak dit :</b> Le verset signifie que <b>le soleil, qui s'est couche</b> tot exclusivement <b>pour lui,</b> a egalement <b>brille</b> tot exclusivement <b>pour lui</b> afin de rectifier la disparite creee par le coucher premature du soleil. La Guemara explique quand le soleil s'est couche tot pour lui : <b>Comme il est ecrit :" Et Jacob sortit de Beersheba et se dirigea vers Haran"</b> (Genese 28:10). <b>Et il est ecrit</b> par la suite : <b>"Et il rencontra le lieu,</b> et il y dormit, car le soleil s'etait couche" (Genese 28:11). <b>Quand</b> Jacob <b>arrivait a Haran, il disait : </b> Est-il <b>possible</b> que <b>je sois passe devant un lieu ou mes peres ont prie et que je n'y ai pas prie</b> ? <b>Quand il s'est mis en tete de revenir, la terre s'est contractee pour lui. Immediatement</b> le verset indique : <b>"Et il rencontra le lieu"</b>, indiquant qu'il y arriva miraculeusement.
+
+### Partie 7
+<b>Quand il</b> eut fini de <b>prier</b> et <b>qu'il voulut retourner</b> a Haran, <b>le Saint, Beni soit-Il, dit : Ce juste est venu dans mon lieu d'hebergement et il va repartir sans passer la nuit ? Aussitot, le soleil se coucha</b> avant l'heure prevue afin que Jacob passe la nuit en ce lieu.
+
+### Partie 8
+La Guemara cite un autre expose de Rabbi Yitzhak pour expliquer une contradiction apparente entre deux versets relatifs a cet incident. <b>Il est ecrit : <b>Et il prit des pierres de l'endroit,</b> les placa sous sa tete, et se coucha dans cet endroit pour dormir.</b> (Genese 28:11). <b>Et il est ecrit :</b> "Et Jacob se leva de bon matin, <b>et il prit la pierre</b> qu'il avait placee sous sa tete, la dressa comme colonne, et versa de l'huile sur son sommet" (Genese 28:18). Le premier verset indique que Jacob prit plusieurs pierres, alors que le second verset indique qu'il ne prit qu'une seule pierre. <b>Rabbi Yitzhak dit :</b> Cela <b>enseigne que toutes ces pierres se sont rassemblees en un seul endroit et chacune a dit :</b> Que <b>ce juste pose sa tete sur moi.</b> Et cela a ete <b>enseigne : Et toutes furent absorbees en une</b> grande pierre.
+
+### Partie 9
+La Guemara expose d'autres versets se rapportant au meme incident. Le verset dit : <b>"Il reva, et voici une echelle dressee sur la terre,</b> et dont le sommet atteignait le ciel ; et voici les anges de Dieu qui montaient et descendaient dessus" (Genese 28:12). Il a ete <b>appris : Quelle etait la largeur de l'echelle ? </b> Elle etait de <b>huit mille parasangs [<i>parsaot</i>], comme il est ecrit : "Et voici les anges de Dieu qui montent et descendent dessus."</b> Le terme <b>"ascendant [<i>olim</i>],"</b> ecrit au pluriel, indique qu'il y avait <b>deux</b> anges qui montaient simultanement. De meme, le terme <b>"et descendant [<i>veyordim</i>],"</b> egalement au pluriel, indique que <b>deux</b> anges descendaient simultanement. <b>Et lorsqu'ils se rencontraient, ils etaient</b> au total <b>quatre</b> en un seul endroit, l'echelle devait donc etre assez large pour accueillir quatre anges.
+
+### Partie 10
+<b>Et il est ecrit</b> dans un verset <b>a propos d'un ange : "Son corps etait semblable a Tarsis"</b> (Daniel 10:6). <b>Et</b> il <b>est appris</b> comme une tradition <b>que</b> la ville de <b>Tarsis etait de deux mille parasangs.</b> Par consequent, pour accueillir quatre anges, l'echelle devait avoir une largeur de huit mille parasangs.
+
+### Partie 11
+On <b>a appris</b> que les anges etaient <b>en train de monter et de contempler l'image de [<i>bidyokeno</i>]</b> Jacob <b>en haut,</b> gravee sur le Trone de Gloire, <b>et de descendre et de contempler son image en bas.</b> Les anges devinrent par la suite jaloux de Jacob, et <b>voulurent mettre en danger</b> sa vie. <b>Immediatement</b> Jacob recut la protection divine, comme le precise le verset : <b>"Et voici que le Seigneur se tenait au-dessus de lui"</b> (Genese 28:13). <b>Rabbi Shimon ben Lakish dit : S'il n'etait pas ecrit</b> dans un <b>verset, il serait impossible de le prononcer,</b> par deference envers Dieu, puisqu'il decrit Dieu comme se tenant au-dessus de Jacob pour le proteger des anges <b>comme un homme qui agite</b> un eventail <b>sur son fils</b> pour le rafraichir.
+
+### Partie 12
+La Gemara explique un autre verset du reve de Jacob. "Et voici que le Seigneur se tenait au-dessus de lui et disait : Je suis le Seigneur, le Dieu d'Abraham ton pere et le Dieu d'Isaac. <b>La terre sur laquelle tu es couche,</b> je te la donnerai, a toi et a ta posterite (Genese 28:13). La Gemara demande : <b>Quelle est la grandeur</b> de cette promesse, c'est-a-dire, pourquoi est-elle exprimee de cette maniere malgre le fait qu'au sens litteral, Jacob etait couche sur une tres petite superficie de terre ? <b>Rabbi Yitzhak dit :</b> Ceci <b>enseigne que le Saint, Beni soit-Il, a replie</b> l'integralite d'Eretz Yisrael et l'a placee sous Jacob, notre patriarche, afin qu'il soit facile pour ses enfants de la conquerir.</b>
+
+### Partie 13
+La Guemara revient sur les versets qui decrivent la lutte de Jacob avec l'ange. <b>"Et il dit : Laisse-moi partir, car l'aube s'est levee.</b> Et il repondit : Je ne te laisserai pas partir tant que tu ne m'auras pas beni" (Genese 32:27). Jacob <b>dit a</b> l'ange : <b>Est-ce que tu es un voleur, ou un joueur [<i>kuveyustus</i>], qui a peur de l'aube ?</b> L'ange <b>lui repondit : Je suis un ange, et depuis le jour ou j'ai ete cree, mon temps pour reciter un chant</b> devant Dieu <b>n'est pas arrive, jusqu'a maintenant.</b> Maintenant je dois monter pour pouvoir chanter des chants de louange a Dieu.
+
+### Partie 14
+La Guemara commente : Ceci <b>appuie</b> l'opinion <b>du Rav Hananel</b> lorsqu'il a relate ce que <b>Rav a dit. Comme Rav Hananel a dit</b> que <b>Rav a dit : Trois groupes d'anges tutelaires recitent chaque jour</b> un chant a partir du verset "Holy, holy, holy is the Lord" ; <b>un dit : "Holy," et</b> un autre <b>dit : "Holy," et</b> un autre <b>qui dit : "Holy is the Lord of hosts;</b> toute la terre est remplie de sa gloire" (Isaie 6:3).
+
+### Partie 15
+La Gemara <b>souleve une objection</b> a partir de la <i>baraita</i> suivante : <b>Le peuple juif est plus cher au Saint, Beni soit-Il, que les anges tutelaires, car le peuple juif</b> peut <b>reciter un chant</b> de louange a Dieu <b>a tout moment, mais les anges tutelaires ne recitent un chant</b> de louange <b>qu'une fois par jour. Et certains disent</b> que les anges ministres recitent un chant de louange <b>une fois par semaine. Et certains disent</b> qu'ils recitent un chant de louange <b>une fois par mois. Et certains disent</b> qu'ils recitent un chant de louange <b>une fois par an. Et certains disent</b> qu'ils recitent un chant de louange <b>une fois en</b> tous les <b>sept ans. Et certains disent</b> qu'ils recitent un chant de louange <b>une fois par Jubile. Et certains disent</b> qu'ils recitent un chant de louange <b>une fois dans</b> toute l'histoire du <b>monde.</b>
+
+### Partie 16
+<b>Et</b> en outre, <b>le peuple juif mentionne le nom</b> de Dieu <b>apres deux mots, comme il est dit : A "A Ecoute, Israel : Le Seigneur</b> notre Dieu, le Seigneur est unique" (Deuteronome 6:4). <b>Mais les anges tutelaires ne mentionnent le nom</b> de Dieu <b>qu'apres trois mots, comme il est ecrit :</b> "Et l'un appela l'autre, et dit : <b>Holy, holy, holy is the Lord of hosts;</b> toute la terre est remplie de sa gloire" (Esaie 6:3).
+
+### Partie 17
+<b>Et les anges tutelaires ne recitent</b> leur <b>chanson en haut que lorsque le peuple juif recite</b> son chant <b>en bas,</b> sur la terre, <b>comme il est dit : "Lorsque les etoiles du matin chantaient ensemble"</b> (Job 38, 7), en se referant au peuple juif, qui est compare aux etoiles ; <b>et</b> seulement <b>alors</b>, le verset indique : <b>"Et tous les fils de Dieu pousserent des cris de joie"</b>, ce qui est une reference aux anges. Cette <i>baraita</i> enseigne que les anges ne mentionnent le nom de Dieu qu'apres trois mots, c'est-a-dire apres avoir dit trois fois le mot "saint", alors que selon ce qu'a declare le Rav Hananel, le troisieme groupe d'anges dit une fois le mot "saint" puis mentionne immediatement le nom de Dieu.
+
+### Partie 18
+La Guemara emend Rav Hanels declaration en citant Rav : <b>Au contraire,</b> Rav dit que <b>un</b> groupe d'anges tutelaires <b>dit : "Holy," et</b> un autre <b>un groupe dit : "Holy, saint," et</b> un autre <b>un autre dit : "Holy, holy, holy is the Lord of hosts."</b> La Gemara conteste l'affirmation de la <i>baraita</i> selon laquelle les anges ne mentionnent le nom de Dieu qu'apres trois mots : <b>Mais il y a</b> le verset : "Alors un esprit me souleva, et j"?entendis derrière moi la voix d"?un grand cri : <b>Bienheureuse soit</b> la gloire du Seigneur depuis Son lieu" (Ezékiel 3:12). Dans cette louange," bénéfice de la gloire du Seigneur", le mot" Seigneur" apparaA®t comme le troisième mot hébreu, apparemment prononcé par les anges tutrices.
+
+>Credit : Edition William Davidson
+>License : CC-BY-NC

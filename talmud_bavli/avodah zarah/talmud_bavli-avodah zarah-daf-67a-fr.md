@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Tout le monde est d'accord</b> pour dire que c'est <b>interdit,</b> car le pain a certainement absorbe l'odeur du vin ? Par ailleurs, <b>dans</b> le cas d'une miche de <b>pain fraiche</b> et d'un tonneau bouche, tout le monde est d'accord</b> pour dire que c'est <b>permis. Ils ne sont en desaccord qu'en ce qui concerne</b> le cas d'un <b>morceau de pain chaud</b> et d'un tonneau bouche,</b> ou <b>dans</b> le cas d'un <b>morceau de pain frais</b> et d'un tonneau ouvert. Et ce</b> cas <b>de moi,</b> c'est-a-dire le cas de la bonde, <b>est egalement comparable</b> au cas <b>d'un pain chaud</b> et d'un tonneau ouvert,</b> dans lequel tout le monde est d'accord pour dire que le pain est interdit.
+
+### Partie 2
+§ Il est indique dans la mishna : <b>Voici le principe : Tout ce qui beneficie</b> d'un element interdit lui <b>conferant une saveur</b>, c'est-a-dire que l'element interdit lui apporte un gout positif, est interdit, et tout ce qui ne beneficie pas d'un element interdit lui conferant une saveur est permis, par exemple, le vinaigre interdit qui est tombe sur des haricots fendus, car la saveur conferee par le vinaigre ne renforce pas le gout des haricots. <b>Rav Yehuda dit</b> que <b>Shmuel dit : C'est la <i>halakha</i>.</b>
+
+### Partie 3
+<b>Et Rav Yehuda dit</b> que <b>Shmuel dit :</b> Les Sages <b>ont enseigne</b> ceci <b>uniquement</b> par rapport a un cas <b>ou</b> le vinaigre <b>tombe dans des haricots casses chauds,</b> leur conferant une saveur a leur detriment. <b>Mais</b> si le vinaigre <b>est tombe dans des haricots fendus froids,</b> le vinaigre en rehausse la saveur, <b>et</b> si <b>on</b> les <b>rechauffe ensuite, cela devient comme</b> un plat <b>dont un ingredient ajoute a d'abord <b>renforce</b> la saveur <b>pour finalement la diminuer</b>, <b>et</b> il est rendu <b>interdit,</b> car la saveur initiale qui a ete transmise etait benefique.
+
+### Partie 4
+<b>Et de meme, lorsque Ravin vint</b> d'Eretz Yisrael en Babylonie, il rapporta que <b>Rabba bar bar Hana dit</b> que <b>Rabbi Yohanan dit :</b> Les Sages <b>ont enseigne</b> ceci <b>seulement</b> en ce qui concerne le cas <b>ou</b> le vinaigre <b>est tombe dans des haricots fendus chauds. Mais</b> si le vinaigre <b>est tombe dans des haricots fendus froids et que l'on</b> par la suite <b>chauffe</b> le melange, <b>cela devient comme</b> un plat <b>dont un ingredient ajoute a d'abord <b>augmente</b> sa saveur <b>pour finalement la deprecier</b>, <b>et</b> il est rendu <b>interdit. Et de meme, lorsque Rav Dimi est venu,</b> il a egalement rapporte cela au nom de Rabbi Yohanan et a ajoute : <b>Et ils preparaient ce</b> plat de haricots casses et de vinaigre <b>les veilles de Chabbat a Tzippori, et ils l'appelaient plat de cresson.</b>
+
+### Partie 5
+§ <b>Reish Lakish dit :</b> En ce qui concerne le principe <b>que</b> les Sages ont <b>dit,</b> que si un aliment interdit <b>impose de la saveur</b> a un aliment permis <b>au <b>detriment</b> du melange, il reste permis, le critere est <b>non pas que</b> les gens <b>disent : Ce plat manque de sel</b> ou <b>est surabondant en sel, manque d'epices</b> ou <b>est surabondant en epices,</b> et c'est pourquoi sa saveur a ete detournee par l'aliment interdit. <b>Au contraire,</b> il s'agit de <b>tout plat</b> qui ne manque de rien, mais qui ne sera pas mange</b> uniquement <b>a cause de cette</b> substance interdite qui y est tombee.
+
+### Partie 6
+<b>Et il y a</b> ceux <b>qui disent</b> que <b>Reish Lakish enonce</b> une interpretation indulgente du principe : En ce qui concerne ce <b>qui</b> les Sages ont <b>dit</b> que si un aliment interdit <b>impose de la saveur</b> a un aliment permis <b>au <b>detriment</b> du melange, il reste permis, <b>on ne dit pas</b> qu'un certain aliment est interdit parce que sa saveur n'a pas ete reellement detournee par la substance interdite, comme <b>ce plat manque de sel</b> ou <b>est surabondant en sel, manque d'epices</b> ou <b>est surabondant en epices,</b> et c'est pour cette raison que la substance interdite a nui a sa saveur. <b>Au contraire,</b> puisque <b>maintenant, dans tous les cas,</b> la substance interdite a <b>detourne</b> sa saveur, elle est permise.
+
+### Partie 7
+§ En outre, en ce qui concerne un aliment interdit qui s'est melange a un aliment permis, <b>Rabbi Abbahou dit</b> que <b>Rabbi Yohanan dit :</b> Dans <b>tout</b> cas <b>ou la saveur et la substance de</b> l'aliment interdit sont perceptibles dans le melange, le melange est <b>interdit,</b> et <b>on est fouette pour</b> l'avoir consomme. Et</b> il est de tradition que <b>ce soit</b> la mesure pour un tel cas : Celui qui mange <b>une olive-bulk</b> de l'element interdit dans le melange <b>dans</b> le temps qu'il faut <b>pour manger un demi-pain</b> est responsable de la consommation de l'aliment interdit.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

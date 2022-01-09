@@ -1,0 +1,63 @@
+
+### Part 1
+<b>But</b> the <b>second</b> set of witnesses still <b>stands</b> available to testify, so what loss did the first set cause the plaintiff when they denied knowledge of the matter?
+
+### Part 2
+<b>Ravina said: What are we dealing with here?</b> We are dealing with a case <b>where</b> the two witnesses in the <b>second</b> set <b>were relatives through their wives at the time of the denial of the first</b> set of witnesses. The two witnesses in the second set were married to two sisters, and brothers-in-law are unfit to serve as witnesses together. Therefore, the claim of the plaintiff is entirely dependent upon the testimony of the first set of witnesses. <b>And</b> the sisters who were <b>wives</b> of the witnesses in the second set <b>were moribund. Lest you say</b> that since, presumably, the <b>majority</b> of individuals who are <b>moribund will</b> actually <b>die</b> very soon, and therefore these two witnesses are fit to testify together, therefore, the <i>tanna</i> <b>teaches us</b> that since <b>now in any event,</b> the wives <b>had not</b> yet <b>died,</b> their husbands remain unfit to testify together.
+
+### Part 3
+<strong>MISHNA:</strong> In a case where the plaintiff said to the witnesses: <b>I administer an oath to you</b> concerning your refusal to testify <b>if you do not come and testify on my behalf that I have in the possession of so-and-so a deposit, and</b> an outstanding <b>loan, and a stolen item, and a lost item,</b> and they lied in reply: On our <b>oath we do not know</b> any <b>testimony on your behalf, they are liable</b> for taking <b>only one</b> false oath of testimony.
+
+### Part 4
+But if they lied in reply: On our <b>oath we do not know that you have in the possession of so-and-so a deposit, and</b> an outstanding <b>loan, and a stolen item, and a lost item, they are liable for each and every one</b> of the components of the claim. It is as though they took a separate oath with regard to each of the details of the claim.
+
+### Part 5
+In a case where the plaintiff said to the witnesses: <b>I administer an oath to you</b> concerning your refusal to testify <b>if you do not come and testify that I have in the possession of so-and-so a deposit of wheat, and barley, and spelt,</b> and they lied in reply: On our <b>oath we do not know</b> any <b>testimony on your</b> behalf, <b>they are liable</b> for taking <b>only one</b> false oath of testimony.
+
+### Part 6
+But if they lied in reply: On our <b>oath we do not know</b> any <b>testimony on your</b> behalf <b>that you have in the possession of so-and-so wheat, and barley, and spelt, they are liable for each and every one</b> of the components of the claim.
+
+### Part 7
+In a case where the plaintiff said to the witnesses: <b>I administer an oath to you</b> concerning your refusal to testify <b>if you do not come and testify on my behalf that I have in the possession of so-and-so</b> an outstanding payment for <b>damage; or</b> an outstanding payment for <b>half the damage,</b> which the owner pays for damage caused by his innocuous ox goring another animal; <b>or</b> with regard to an outstanding <b>payment of double</b> the principal that a thief must pay the owner of the stolen item; <b>or</b> with regard to an outstanding <b>payment of four or five</b> times the principal that a thief pays when he stole a sheep or an ox, respectively, and then slaughtered or sold it; <b>or</b> in a case where the plaintiff said: I administer an oath to you concerning your refusal to testify if you do not come and testify <b>that so-and-so raped my daughter; or, he seduced my daughter; or, that my son struck me; or, that another injured me; or, that he set my stack of grain on fire on Yom Kippur;</b> if in any of these cases the witnesses took an oath falsely denying any knowledge of the matter on behalf of the plaintiff, <b>these</b> witnesses <b>are liable</b> for taking a false oath of testimony.
+
+### Part 8
+<strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages: In a case where <b>one administers an oath to witnesses concerning a fine</b> if they do not come and testify that one performed an action that renders him liable to pay a sum fixed by the Torah as penalty for that action, <b>what is</b> the <i>halakha</i>? Is it like any other case of an oath administered to witnesses in monetary matters or not?
+
+### Part 9
+The Gemara refines the dilemma: <b>According to</b> the opinion <b>of Rabbi Elazar, son of Rabbi Shimon, do not raise the dilemma, as he says</b> in a case where one performed an action in the presence of witnesses for which he is liable to pay a fine, and before the witnesses testified, he admitted his liability, even though the principle is: One who admits that he is liable to pay a fine is exempt from paying the fine, <b>the witnesses shall come and testify</b> and render the one who performed the action liable to pay the fine. In his opinion, payment of the fine is dependent upon their testimony, and therefore if they lie, they are liable for taking a false oath of testimony.
+
+### Part 10
+<b>When should you raise the dilemma?</b> Raise it <b>according to</b> the opinion of <b>the Rabbis</b> who disagree with Rabbi Elazar, son of Rabbi Shimon, <b>as they say:</b> One who <b>admits</b> he is liable <b>to</b> pay <b>a fine is exempt,</b> even if <b>afterward witnesses came</b> and testified to his liability. The case in the mishna is one where the plaintiff demanded that the witnesses testify on his behalf before the defendant admitted knowledge of the fine.
+
+### Part 11
+The Gemara seeks to clarify: <b>And the Rabbis,</b> who expressed their opinion <b>there</b> that one who admits he is liable to pay a fine is exempt, even if afterward witnesses come, <b>in accordance with whose</b> opinion <b>do they hold? If we say</b> that they hold <b>in accordance with</b> the opinion of <b>Rabbi Elazar, son of Rabbi Shimon,</b> cited <b>here</b> (32a), <b>doesn’t he say: A matter that causes financial</b> loss <b>is considered</b> to have <b>monetary</b> value with regard to the oath of testimony? Witnesses who testify concerning a fine also cause financial loss, as, if the individual does not admit his liability, he will be liable to pay the fine based on their testimony.
+
+### Part 12
+<b>Rather,</b> apparently, the Rabbis there hold <b>in accordance with</b> the opinion of <b>the Rabbis here, who say: A matter that causes financial</b> loss <b>is not considered</b> to have <b>monetary</b> value. It is according to that opinion that the dilemma is raised: <b>What</b> is the <i>halakha</i> in the case of witnesses to a fine? Does one say: <b>Since if the</b> one liable to pay the fine <b>admits</b> his liability, <b>he is exempt</b> from paying the fine, the witness taking the oath denying knowledge of the matter <b>is not denying a monetary</b> claim, and therefore, he is not liable for taking a false oath of testimony? <b>Or perhaps</b> since <b>now, in any event, he has not</b> yet <b>admitted</b> liability, payment of the fine is dependent upon the testimony of these witnesses and it is considered a monetary matter for which they are liable for taking a false oath of testimony.
+
+### Part 13
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the mishna to resolve the dilemma: <b>I administer an oath to you</b> concerning your refusal to testify <b>if you do not come and testify on my behalf that I have in the possession of so-and-so</b> an unpaid payment for <b>damage; and</b> likewise, an unpaid payment for <b>half the damage.</b> In those cases the witnesses can be held liable for the oath of testimony. <b>But isn’t</b> payment for <b>half the damage</b> payment of <b>a fine?</b> The Gemara rejects this proof: This mishna is <b>in accordance with</b> the opinion of <b>the one who says</b> that payment of <b>half the damage is monetary restitution</b> and not a fine.
+
+### Part 14
+The Gemara asks: <b>This works out well according to the one who says</b> that payment of <b>half the damage is monetary restitution. But according to the one who says</b> that payment of half the damage is payment of <b>a fine, what can be said?</b> The Gemara answers: In his opinion, the mishna is referring to a case where the plaintiff demands that the witnesses testify <b>with regard to</b> liability to pay for <b>half the damage</b> caused by <b>pebbles</b> inadvertently propelled by the foot of a walking animal, <b>as they learned this <i>halakha</i> through tradition</b> transmitted to Moses from Sinai <b>that</b> payment of half the damage in that case <b>is monetary restitution,</b> not a fine. Therefore, no proof may be cited from the mishna with regard to liability for taking a false oath of testimony concerning a fine.
+
+### Part 15
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the mishna to resolve the dilemma: I administer an oath to you concerning your refusal to testify if you do not come and testify that I have in the possession of so-and-so an unpaid <b>payment of double</b> the principal, for which the witnesses are also liable for taking a false oath of testimony. But isn’t that payment of a fine? The Gemara responds: The liability for taking a false oath of testimony in that case is not due to their denial of knowledge of the matter with regard to the fine; rather, the liability is <b>due to</b> their denial of knowledge of the matter with regard to <b>the principal,</b> which is a full-fledged monetary payment.
+
+### Part 16
+The Gemara cites another proof from the mishna: I administer an oath to you concerning your refusal to testify if you do not come and testify that I have in the possession of so-and-so <b>payment of four or five</b> times the principal, which is a fine. The Gemara answers: There too, the liability is <b>due to</b> their denial of knowledge of the matter with regard to <b>the principal,</b> not due to the fine.
+
+### Part 17
+The Gemara cites another proof from the continuation of the mishna: I administer an oath to you concerning your refusal to testify if you do not come and testify <b>that so-and-so raped my daughter; or, he seduced my daughter.</b> Isn’t the payment for rape and seduction a fine of 50 <i>sela</i>? The Gemara rejects this: There, the liability of the witnesses is <b>due to</b> their denial of knowledge of the matter with regard to payment for <b>humiliation and</b> compensation for <b>degradation</b> of the value of the young woman resulting from the rape or the seduction. Those are categorized as monetary restitution, not as fines.
+
+### Part 18
+The Gemara asks: According to this understanding, <b>what is</b> the <i>tanna</i> <b>teaching us</b> with the multiplicity of cases in the mishna? <b>All</b> the cases in the mishna are of <b>monetary restitution.</b> The Gemara answers: In <b>the first clause,</b> the <i>tanna</i> <b>teaches us one</b> novel element, and in <b>the latter clause,</b> the <i>tanna</i> <b>teaches us one</b> novel element. In <b>the first clause,</b> the <i>tanna</i> <b>teaches us one</b> novel element, <b>that</b> liability to pay for <b>half the damage</b> caused by <b>pebbles is monetary restitution,</b> not a fine.
+
+### Part 19
+In <b>the latter clause,</b> the <i>tanna</i> <b>teaches us one</b> novel element: I administer an oath to you concerning your refusal to testify if you do not come and testify <b>that he set my stack of grain on fire on Yom Kippur. What</b> does this <i>halakha</i> serve <b>to exclude?</b> It serves <b>to exclude</b> the opinion <b>of Rabbi Neḥunya ben HaKana, as it is taught</b> in a <i>baraita</i>: <b>Rabbi Neḥunya ben HaKana would deem Yom Kippur like Shabbat with regard to payment</b> of damages. <b>Just as</b> in the case of one who intentionally desecrates <b>Shabbat,</b> he is liable to receive the death penalty and is therefore exempt from liability for payment for damage that is caused while desecrating Shabbat, so too, in the case of one who intentionally desecrates Yom Kippur, he is liable to receive the death penalty and is therefore exempt from liability for payment for damage that is caused while desecrating Yom Kippur. The <i>tanna</i> of the mishna disagrees.
+
+### Part 20
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from a <i>baraita</i> to resolve the dilemma: <b>I administer an oath to you</b> concerning your refusal to testify <b>if you do not come and testify on my</b> behalf
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

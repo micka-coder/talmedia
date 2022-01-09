@@ -1,0 +1,42 @@
+
+### Part 1
+<b>In what</b> case <b>is this statement said?</b> It is in a case where one <b>kindled a fire on his</b> premises <b>and</b> the fire <b>spread and burned</b> items <b>in</b> premises belonging to <b>another. But</b> with regard to one who <b>kindles a fire on</b> premises belonging to <b>another</b> that destroys a stack of wheat, <b>all agree</b> that <b>he pays</b> compensation for <b>everything that was inside</b> the stack.
+
+### Part 2
+<b>And Rabbi Yehuda concedes to the Rabbis that in</b> a case where one <b>lends space to another</b> in his field <b>to stack grain, and</b> this person <b>stacked</b> grain in the field <b>and concealed</b> items inside the stack, if the owner of the field causes the stack to be burned down, <b>he pays compensation for the stack alone,</b> since the other person did not have permission to conceal items inside his stack. Similarly, if one received permission <b>to stack wheat</b> in the field of another <b>and he stacked barley;</b> or conversely, if he received permission to stack <b>barley and he stacked wheat;</b> or similarly, if he stacked <b>wheat and covered</b> the stack <b>with barley,</b> or stacked <b>barley and covered</b> the stack <b>with wheat,</b> in all these cases, Rabbi Yehuda concedes <b>that he pays compensation for</b> the <b>barley alone,</b> which is less than the value of wheat.
+
+### Part 3
+§ <b>Rava says:</b> With regard to <b>one who gives a gold dinar to a woman</b> for safekeeping <b>and says to her: Be careful with this</b> dinar because <b>it is</b> made of <b>silver,</b> if <b>she</b> herself <b>damaged</b> the dinar, <b>she must pay</b> compensation for the value of <b>a gold dinar.</b> This is <b>because he</b> can <b>say to her: What</b> business <b>did you have damaging it?</b> If <b>she was negligent</b> and it was lost or stolen, <b>she pays</b> as compensation only the value of <b>a silver</b> dinar, <b>since she</b> can <b>say to him: I undertook to safeguard only a silver</b> dinar, <b>but I did not undertake to safeguard a gold</b> dinar.
+
+### Part 4
+<b>Rav Mordekhai said to Rav Ashi: You teach this</b> <i>halakha</i> as a statement <b>of Rava,</b> but for <b>us</b> this <i>halakha</i> is <b>obvious from the <i>baraita</i></b> that taught: If one stacked <b>wheat and covered</b> the stack <b>with barley,</b> or stacked <b>barley and covered</b> the stack <b>with wheat,</b> the one responsible for the fire <b>pays compensation for the barley alone. Evidently,</b> the one who kindled the fire can <b>say to</b> the owner of the stack: <b>I undertook to safeguard</b> a stack of <b>barley</b> but not a stack of wheat. <b>Here too,</b> in the case of a golden dinar presented as a silver dinar, <b>the</b> woman <b>can say to him: I did not undertake to safeguard a gold</b> dinar.
+
+### Part 5
+§ <b>Rav said: I heard</b> a halakhic <b>matter</b> in connection <b>with Rabbi Yehuda’s</b> opinion in the mishna <b>but I do not know what it is. Shmuel said: And does Abba,</b> which was Rav’s name, really <b>not know what he heard?</b> This is the statement that he heard: <b>According to</b> the opinion of <b>Rabbi Yehuda, who deems</b> one <b>liable for concealed</b> articles damaged by <b>a fire,</b> the Sages <b>applied the ordinance of a robbery victim to</b> one whose concealed items are damaged by <b>his fire.</b> Just as the Sages instituted an ordinance that a robbery victim can take an oath as to what was stolen from him and the robber must repay him accordingly, similarly, according to Rabbi Yehuda the owner of the stack can take an oath that certain items were inside the stack, and the one responsible for the fire must pay compensation for them.
+
+### Part 6
+<b>Ameimar asks:</b> Did <b>they apply</b> this <b>ordinance of a robbery victim in</b> the case of <b>an informer</b> who causes another person’s property to be confiscated by the gentile authorities, <b>or not?</b> The question is clarified: <b>According to</b> the opinion of <b>the one who says</b> that <b>we do not judge</b> cases of <b>liability</b> for damage caused by <b>indirect</b> action, <b>do not ask</b> the question, <b>as</b> according to that opinion <b>we also do not judge</b> cases <b>of</b> liability for <b>informers</b> who cause indirect damage.
+
+### Part 7
+<b>Rather, when you ask</b> this question, <b>it is in accordance with</b> the opinion of <b>the one who said</b> that <b>we judge</b> cases of <b>liability</b> for damage caused by <b>indirect</b> action, and the question is: Did the Sages <b>apply the ordinance of a robbery victim to</b> one whose items were taken due to an <b>informer,</b> meaning <b>that</b> the victim <b>can take an oath</b> to support his claim with regard to what was taken <b>and take</b> this amount in compensation, <b>or not?</b> No conclusion was reached about this, and the dilemma <b>shall stand</b> unresolved.
+
+### Part 8
+An incident was related about <b>a certain man who kicked a safe belonging to another, sending it</b> flying <b>into the river. The owner</b> of the safe <b>came</b> to court <b>and said: I had such and such inside it. Rav Ashi sat and was investigating</b> the question: <b>In a case like this, what</b> is the <i>halakha</i>? Does the court believe the claimant or not?
+
+### Part 9
+<b>Ravina said to Rav Aḥa, son of Rava, and some say</b> that <b>Rav Aḥa, son of Rava, said to Rav Ashi: Is this not</b> identical to the case of <b>the mishna, as we learned</b> in the mishna: <b>And the Rabbis concede to Rabbi Yehuda</b> that if one <b>sets fire to a building, he pays</b> compensation <b>for everything that was</b> burned <b>inside it, since it is the</b> normal <b>way of people to place</b> items <b>in houses?</b> Similarly, it is the normal way of people to place money in a safe, and the court should rely on the claim of the victim.
+
+### Part 10
+Rav Ashi <b>said to him: If</b> the claimant <b>were to claim</b> that there were <b>coins</b> in the safe, this ruling would apply <b>here also.</b> But <b>with what are we dealing here?</b> We are dealing with a case <b>where</b> the claimant <b>claims</b> that there was <b>a pearl [<i>marganita</i>]</b> in the safe. <b>What</b> is the <i>halakha</i>? <b>Do people</b> typically <b>place pearls in a safe,</b> in which case he should be believed, <b>or not?</b> The dilemma <b>shall stand</b> unresolved.
+
+### Part 11
+<b>Rav Yeimar said to Rav Ashi:</b> If the one whose home was burned by the fire were to <b>claim</b> that he had, among other items, <b>a silver goblet in the building, what</b> is the <i>halakha</i>? Is he believed or not? Rav Ashi <b>said to him: We view</b> his situation. <b>If he is a wealthy person, who</b> would typically <b>have a silver goblet, or alternatively, if he is a trustworthy person with whom people entrust</b> valuable items, he <b>can take an oath</b> that this is what he had <b>and take</b> compensation according to his claim. <b>But if</b> he is <b>not</b> such a person, it <b>is not in his</b> power to be believed in such a claim.
+
+### Part 12
+§ <b>Rav Adda, son of Rav Avya, said to Rav Ashi:</b> Concerning two terms used to describe those who take another’s property against his will, <b>a <i>gazlan</i> and a <i>ḥamsan</i>, what</b> is the difference <b>between them?</b> Rav Ashi <b>said to him: A <i>ḥamsan</i> gives money</b> for the article that he takes from its owner, albeit against the owner’s will, whereas <b>a <i>gazlan</i> does not give money.</b>
+
+### Part 13
+Rav Adda was puzzled by this response and <b>said to him: If he gives money, do you</b> still <b>call him a <i>ḥamsan</i>?</b> Since he pays money for it, he acquires it lawfully, despite the fact that its owner did not sell it voluntarily. <b>But doesn’t Rav Huna say:</b> If one was <b>strung up</b> so that another could coerce him to sell a certain item, <b>and he sold</b> it, <b>his sale is</b> a valid <b>sale.</b> This indicates that a sale under duress is considered a valid sale. Rav Ashi answered: This is <b>not difficult. This</b> case, where the sale under duress is legally considered to be a sale, is referring to a case <b>where he</b> eventually <b>says: I want</b> to sell the item, despite having been forced. By contrast, in <b>that</b> case, where the sale is invalid, <b>he did not say: I want</b> to sell the item.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

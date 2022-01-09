@@ -1,0 +1,36 @@
+
+### Part 1
+<b>And if</b> the produce <b>decreased in price due to the market</b> value, the debt <b>is not reduced for him.</b>
+
+### Part 2
+The Gemara challenges: <b>But</b> the value of the coin <b>has</b> been <b>enhanced for the purpose of</b> melting it down into <b>a bar of metal.</b> Since this coin now contains a larger quantity of metal, if it were to be melted it would be worth more than an earlier coin of the same type, so it should be considered interest. <b>Rather,</b> in this case one must act <b>in accordance with how Rav Pappa and Rav Huna, son of Rav Yehoshua,</b> acted when they <b>performed an action with the dinars of Agardamis the Arab merchant [<i>tayya’a</i>]:</b> They considered <b>up to ten</b> old coins to be the equivalent <b>of eight</b> new coins. Since ten old coins were equivalent in value to eight new coins, they paid eight new coins in exchange for ten old ones.
+
+### Part 3
+§ <b>Rabba says: One who throws another’s coin into the Great Sea is exempt</b> from liability. <b>What is the reason</b> for this? He can <b>say:</b> The coin <b>is resting before you; if you wish, take it.</b> The Gemara comments: <b>And this statement</b> applies only if the coin is <b>in translucent</b> water, <b>where</b> the owner of the coin <b>can see</b> the coin, <b>but</b> in <b>turbid</b> water, <b>where he cannot see</b> the coin, it does <b>not</b> apply, and the one that threw it will be liable to compensate the owner. <b>And this statement</b> applies only <b>when he rolled</b> the coin into the sea without picking it up, <b>but</b> if he <b>took</b> the coin <b>with his hands</b> and threw it into the sea, <b>he has robbed</b> the owner of <b>it, and</b> the robber <b>is required to perform</b> the mitzva of <b>returning</b> the coin to its owner.
+
+### Part 4
+<b>Rava raises an objection</b> to the statement of Rabba from a <i>baraita</i> (<i>Tosefta</i>, <i>Ma’aser Sheni</i> 1:6): One <b>cannot desacralize</b> second tithe by transferring its sanctity <b>onto money that is not in his possession. How so?</b> If <b>he had money in a fortress [<i>kastera</i>], or in the King’s Mountain [<i>Har HaMelekh</i>], or if his purse fell into the Great Sea,</b> one <b>may not desacralize</b> second tithe by transferring its sanctity onto that money. This indicates that money that fell into the Great Sea is considered lost. <b>Rabba said:</b> This is not difficult; it <b>is different with regard to</b> second <b>tithe, since it is necessary</b> that the money be <b>found in the hand</b> of the one who wishes to desacralize the tithe, <b>as the Merciful One states</b> in the Torah: “Then you shall turn it into money, <b>and bind up the money in your hand,</b> and shall go to the place that the Lord your God shall choose” (Deuteronomy 14:25), <b>and</b> if it is in the Great Sea, <b>it is not</b> in his hand, but nevertheless it is not considered lost.
+
+### Part 5
+<b>And Rabba</b> also <b>says: One who effaces</b> the image of <b>another’s coin is exempt</b> from paying damages, even though he caused the coin to lose value. <b>What is the reason</b> for this? <b>As he did not do anything,</b> the coin remains the same size as before. The Gemara comments: <b>And this statement</b> applies only in a case where <b>he struck it with a hammer [<i>kurnesa</i>] and flattened it; but</b> if <b>he filed it with a file [<i>shofina</i>]</b> he must pay the amount of the reduction in value, since <b>he caused it to diminish</b> in size.
+
+### Part 6
+<b>Rava raises an objection</b> to the statement of Rabba from a <i>baraita</i> (<i>Tosefta</i> 9:26): If a master <b>struck</b> his slave <b>on his eye and blinded it,</b> or <b>on his ear and deafened it, the slave is emancipated by means of these</b> injuries. If he struck the slave <b>near his eye and</b> as a result <b>he does not see,</b> or <b>near his ear and he does not hear, the slave is not emancipated by means of these</b> injuries. The first clause indicates that one is liable for damage caused even if it is not visible damage.
+
+### Part 7
+The Gemara responds: <b>Rabba</b> conforms <b>to his</b> standard line of <b>reasoning, as Rabba says: One who deafens his father is put to death,</b> even though no bruise is visible, <b>because it is impossible for deafening</b> to occur <b>without a bruise,</b> as it is certain <b>that a drop of blood fell into his ear</b> from the blow, even if it is not visible from the outside. Striking someone in the ear in a manner that causes deafness results in a significant physical change, while striking a coin with a hammer does not detract from the actual size of the coin.
+
+### Part 8
+<b>And Rabba</b> also <b>says: One who slits the ear of another’s cow is exempt</b> from paying damages, even though this cow is no longer fit to be sacrificed as an offering due to the injury. <b>What is the reason</b> for this? <b>As</b> the <b>cow was available</b> for many uses until now, so <b>it is</b> still <b>available</b> for those uses now, <b>since</b> the one who slit its ear <b>did not do anything</b> to damage the cow in a substantial way. <b>And</b> concerning the fact that it is rendered disqualified from being sacrificed as an offering, <b>not all oxen stand near the altar,</b> i.e., most animals are not sacrificed as offerings anyway, so it is not considered a loss.
+
+### Part 9
+<b>Rava raises an objection</b> from a <i>baraita</i>: <b>One who performs a task with</b> the <b>water of purification,</b> i.e., the water that is mixed with the ashes of the red heifer and sprinkled upon one who has become impure as part of the purification ritual, <b>or with</b> the red <b>heifer of purification,</b> whose ashes are mixed with springwater and sprinkled on those who have contracted impurity imparted by a corpse on the third and seventh days of their impurity, is <b>exempt according to human laws,</b> since he has not caused any discernible damage, <b>but</b> is <b>liable according to the laws of Heaven.</b> It may be inferred from here that one is exempt from liability according to human laws only if he performed <b>a task</b> with those items, <b>since the damage</b> that he caused <b>is not evident, but</b> in the case of one who <b>slits</b> the ear, <b>where the damage is evident,</b> he is <b>indeed liable according to human laws.</b>
+
+### Part 10
+The Sages <b>say</b> in response: <b>The same is true that even one who slits</b> the ear <b>is exempt</b> according to human laws, <b>and</b> the <i>baraita</i> that specified cases where the damage is not evident <b>teaches us this: That even</b> one who performs <b>a task</b> with the water of purification or the red heifer, <b>where the damage is not evident, is liable according to the laws of Heaven.</b>
+
+### Part 11
+<b>And Rabba</b> also <b>says: One who burns another’s</b> promissory <b>note is exempt, as</b> the one who burned it can <b>say to him: I have burned</b> only <b>your paper,</b> and he is not held liable for the fact that the creditor will no longer be able to prove that he had provided the loan. <b>Rami bar Ḥama objects to this: What are the circumstances?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

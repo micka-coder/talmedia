@@ -1,0 +1,12 @@
+
+### Partie 1
+La Gemara demande : <b>Si, </b> si une fille qui herite de terres de ses deux parents doit epouser un homme dont le pere est de la tribu de son pere et dont la mere est de la tribu de sa mere, <b>ce verset</b> : "Sera une femme a un membre de la famille de la tribu de son pere" (Nombres 36:8), <b>aurait du</b> dire : Sera une femme <b>a un membre de la famille de la tribu de son pere et de sa mere.</b> La Gemara repond : <b>Si</b> cela <b>etait ecrit ainsi, je dirais</b> que <b>meme le contraire</b> est permis, qu'elle peut epouser un homme dont la mere est de la tribu de son pere et dont le pere est de la tribu de sa mere. Tant qu'elle epouse quelqu'un qui est lie aux deux tribus, cela est permis. Le verset nous <b>enseigne donc</b> que le contraire n'est pas permis.
+
+### Partie 2
+La Gemara commente : Concernant le mariage d'une femme ayant herite de terres, il <b>est enseigne</b> dans une <i>baraita</i> <b>en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du fils, et</b> il <b>est enseigne</b> dans une <i>baraita</i> <b>en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du mari. </b> La Gemara presente les <i>baraitot</i> : Une <i>baraita</i> <b>est enseignee en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du fils,</b> comme suit : <b>"Ainsi, aucun heritage des enfants d'Israel ne sera transfere de tribu a tribu"</b> (Nombres 36:7) ; ce <b>verset parle de</b> le <b>transfert</b> de l'heritage <b>par le biais du fils.</b> La Torah interdit a la femme d'epouser un homme d'une tribu differente car son fils heritera d'elle et ainsi l'heritage sera transfere loin de sa tribu d'origine.
+
+### Partie 3
+<b>Dites-vous</b> que c'est <b>en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du fils, ou est-ce seulement en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du mari ? Quand il est dit : "Ainsi, aucun heritage ne sera transfere d'une tribu a une autre tribu"</b> (Nombres 36:9), le verset parle en ce qui concerne</b> le <b>transfert</b> de l'heritage <b>par le biais du mari. Comment realiser</b> le sens du verset : <b>"Ainsi, aucun heritage des enfants d'Israel ne sera transfere de tribu a tribu"</b> (Nombres 36.7) ? Ce <b>verset parle</b> du <b>transfert</b> de l'heritage <b>par le biais du fils.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Part 1
+<b>I</b> could <b>say to you</b> that <b>he holds</b> in accordance with the opinion <b>of the Rabbis</b> that the entire animal should be flayed.
+
+### Part 2
+<b>Alternatively,</b> it is possible that <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, states</b> his ruling <b>only there,</b> in the case of the Paschal offering, <b>where the requirements for the Most High,</b> i.e., the Temple service, <b>have been fulfilled, and</b> therefore there is <b>no need to desecrate the Shabbat. But here, where</b> the community must bring a select tenth of an ephah and therefore <b>the requirements for the Most High have not been fulfilled, and it is necessary to desecrate the Shabbat, say</b> that <b>he holds in accordance with</b> the opinion of <b>the Rabbis,</b> that one reaps the same amount of barley on Shabbat as during the week.
+
+### Part 3
+<b>Rather, Rabba said: Rabbi Yishmael and Rabbi Ḥanina, the deputy High Priest, said the same thing. As we learned</b> in the mishna that <b>Rabbi Ḥanina, the deputy High Priest, says: On Shabbat</b> the barley <b>was reaped by an individual with one sickle and with one basket</b> into which the barley was placed; <b>and during the week,</b> it was reaped <b>by three</b> people <b>with three baskets and with three sickles. And the Rabbis say: Both on Shabbat and</b> during the <b>week,</b> it was reaped by three people <b>with three baskets and with three sickles.</b>
+
+### Part 4
+The Gemara explains Rabba’s comparison: <b>Doesn’t Rabbi Ḥanina, the deputy High Priest, say there,</b> with regard to the process of gathering the barley, that <b>since it is possible</b> to reap by means of one person, <b>we do not exert</b> ourselves to reap it by means of three? <b>Here, too,</b> Rabbi Yishmael maintains that <b>since it is possible</b> to bring the <i>omer</i> meal offering from three <i>se’a</i> of barley, <b>we do not exert</b> ourselves on Shabbat to bring it from five <i>se’a</i>.
+
+### Part 5
+The Gemara rejects this comparison: <b>From where</b> is this conclusion reached? <b>Perhaps Rabbi Yishmael states</b> his ruling <b>only here,</b> because <b>there is no</b> greater <b>publicity</b> of the <b>event</b> achieved by using five <i>se’a</i> rather than three. <b>But there,</b> in the case of reaping the barley, where <b>there is</b> greater <b>publicity</b> of the <b>event</b> through the involvement of more people, one can <b>say that he holds in accordance with</b> the opinion of <b>the Rabbis.</b>
+
+### Part 6
+<b>Alternatively,</b> perhaps <b>Rabbi Ḥanina, the deputy High Priest, states</b> his ruling <b>only there, as whether one</b> individual <b>or three</b> people reap, the rite <b>is</b> still being <b>performed in its proper manner</b> for <b>the requirement of the Most High. But here, when</b> only three <i>se’a</i> are used, and the rite <b>is not</b> being <b>performed in its proper manner</b> for <b>the requirement of the Most High,</b> as five <i>se’a</i> are usually needed, <b>say that he holds in accordance with</b> the opinion of <b>the Rabbis</b> that on Shabbat the mitzva is performed in the same manner as on a weekday.
+
+### Part 7
+<b>Rather, Rav Ashi said: Rabbi Yishmael and Rabbi Yosei said the same thing. As we learned</b> in a mishna (<i>Rosh HaShana</i> 21b): <b>Whether</b> the new moon <b>was seen clearly [<i>ba’alil</i>]</b> by everyone <b>or whether it was not seen clearly, one may desecrate the Shabbat</b> in order to testify about its appearance. <b>Rabbi Yosei says: If</b> the moon <b>was clearly seen,</b> witnesses <b>may not desecrate the Shabbat for it,</b> as other witnesses located nearer to the court will certainly testify. If these distant witnesses go to court to testify, they will desecrate Shabbat unnecessarily.
+
+### Part 8
+The Gemara explains Rav Ashi’s comparison: <b>Didn’t Rabbi Yosei say there: Since it is possible</b> to receive testimony about the new moon without further witnesses, <b>we do not exert</b> ourselves and travel on Shabbat? <b>Here, too,</b> Rabbi Yishmael holds that <b>since it is possible</b> to bring the <i>omer</i> meal offering from three <i>se’a</i> of barley, <b>we do not exert</b> ourselves on Shabbat to bring it from five <i>se’a</i>.
+
+### Part 9
+The Gemara rejects this comparison: <b>From where</b> do you draw this conclusion? <b>Perhaps Rabbi Yishmael states only here that</b> three <i>se’a</i> are brought on Shabbat, <b>as there is no</b> concern that ultimately <b>you will cause</b> people <b>to stumble in the future</b> and refrain from bringing the <i>omer</i> offering. <b>But there,</b> in the case of witnesses testifying about the new moon, he concedes that all potential witnesses may travel on Shabbat because if not, <b>you will cause them to stumble in the future.</b> People will say: Why should we go to such trouble, as our testimony is unnecessary? Yet at some point they will be needed, and no witnesses will come to the court. Therefore, in that case one can <b>say</b> that Rabbi Yishmael agrees with this reasoning and <b>holds in accordance with</b> the opinion of <b>the Rabbis.</b>
+
+### Part 10
+<b>Alternatively,</b> it is possible that <b>Rabbi Yosei states</b> his ruling <b>only there,</b> with regard to the new moon, <b>as this is not a requirement for the Most High, and</b> therefore <b>Shabbat may not be desecrated. But here,</b> as the <i>omer</i> meal offering <b>is a requirement for the Most High, and</b> therefore <b>Shabbat may be desecrated</b> for it, <b>say</b> that Rabbi Yosei holds <b>in accordance with</b> the opinion of <b>the Rabbis</b> that on Shabbat the mitzva is performed in the same manner as on a weekday.
+
+### Part 11
+§ <b>It was stated</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Pesaḥim</i> 5:7): If one mistakenly <b>slaughtered two communal sin offerings,</b> e.g., the goat offerings of a Festival, on a Festival that occurred on Shabbat, <b>and only one was required, Rabba said, and some say</b> it was <b>Rabbi Ami</b> who said: He is <b>liable for the second,</b> superfluous communal sin offering, <b>but</b> is <b>exempt for the first. And</b> this is the <i>halakha</i> <b>even if he achieved atonement with the second</b> offering, e.g., if the blood of the first offering was spilled after the slaughter of the second. And this is the <i>halakha</i> <b>even if the first</b> offering <b>was found</b> to be <b>gaunt</b>and thereby disqualified as an offering, which meant that only the second offering was fit.
+
+### Part 12
+The Gemara asks: <b>And</b> in a case where the first animal was found to be gaunt, <b>did Rabba</b> really <b>say this? But doesn’t Rabba say</b> that if one <b>had before him two</b> communal <b>sin offerings</b> on Shabbat, <b>one choice</b> animal <b>and one gaunt,</b> and he <b>slaughtered the choice</b> one <b>and then slaughtered</b> the <b>gaunt</b> one, he is <b>liable</b> for the gaunt animal, as it should not have been slaughtered. But if he first slaughtered the <b>gaunt</b> one <b>and subsequently</b> slaughtered the <b>choice</b> animal, he is <b>exempt</b> for slaughtering the choice animal. <b>And moreover,</b> members of the court <b>say to him</b> after he slaughtered the gaunt animal: <b>Bring</b> the <b>choice</b> animal <b>and slaughter</b> it <b><i>ab initio</i>.</b> If so, in a case where the first animal was found to be gaunt, he certainly should not be liable for slaughtering the second.
+
+### Part 13
+The Gemara answers: <b>If you wish, say: Remove [<i>semei</i>]</b> the clause with regard to the <b>gaunt</b> animal <b>from the first</b> statement of Rabba. In other words, Rabba merely said that he is exempt for the slaughter of the first animal; he did not state a ruling about the second animal. <b>And if you wish, say</b> instead that the ruling <b>that</b> he is liable for the slaughter of the second animal <b>was stated</b> by <b>Rabbi Ami,</b> not Rabba.
+
+### Part 14
+<b>Ravina said to Rav Ashi:</b> If the <b>first</b> offering is <b>found</b> to <b>be gaunt,</b> i.e., weakened, <b>in its intestines</b> after it was slaughtered, <b>what is</b> the <i>halakha</i>? Do <b>we follow his intention</b> and hold him accountable, <b>and this man,</b> who was unaware at the time of its slaughter that the first animal was gaunt, <b>intended</b> to transgress the Shabbat <b>prohibition</b> by slaughtering the second offering? <b>Or perhaps we follow his actions</b> and exempt him from liability, as the first offering had been disqualified when he brought the second.
+
+### Part 15
+Rav Ashi <b>said to</b> Ravina: <b>Isn’t this</b> the same as a case subject to a disagreement between <b>Rabba and Rava,</b> and in fact both agree that in this case he is liable? <b>As it was stated:</b> If <b>one heard that a child was drowning at sea, and he spread a net to raise fish and</b> the result was that <b>he raised</b> only <b>fish,</b> he is <b>liable</b> for transgressing the Shabbat prohibition of trapping. If he intended <b>to raise fish,</b> and he <b>raised</b> both <b>fish and</b> the <b>child, Rava says:</b> He is <b>liable,</b> as his intention was to transgress a prohibition, <b>and Rabba says:</b> He is <b>exempt,</b> as his act saved a life and was therefore permitted on Shabbat.
+
+### Part 16
+The Gemara explains why everyone would agree that one is liable in the case involving two offerings. <b>And Rabba deemed</b> him <b>exempt only there, since</b> the one who spread the net <b>heard</b> that a child had fallen in, and therefore <b>we say that his intention</b> in spreading the net <b>was also to</b> save <b>the child. But</b> had he <b>not heard</b> that the child had fallen in, he would <b>not</b> be exempt. This is comparable to the case of two offerings, where he could not have known before its slaughter that the first animal had weak intestines.
+
+### Part 17
+<b>And there are</b> those <b>who say</b> that Rav Ashi <b>said to</b> Ravina conclusively: <b>This is</b> subject to the disagreement <b>between Rabba and Rava. As it was stated:</b> If <b>one heard that a child was drowning at sea, and he spread a net to raise fish and</b> the result was that <b>he raised</b> only <b>fish,</b> he is <b>liable</b> for transgressing the Shabbat prohibition of trapping. If he intended <b>to raise fish,</b> and he <b>raised</b> both <b>fish and</b> the <b>child, Rava says:</b> He is <b>liable, and Rabba says:</b> He is <b>exempt.</b> Rav Ashi adds that Rabba did not exempt him because he heard that a child was drowning. Rather, <b>Rabba says</b> that he is <b>exempt</b> because one <b>follows his actions,</b> whereas <b>Rava says</b> that he is <b>liable</b> because one <b>follows his intention.</b> Consequently, the same dispute applies to the case of two offerings.
+
+### Part 18
+§ The Gemara continues its discussion concerning performing extra prohibited labor on Shabbat in extenuating circumstances where the desecration of Shabbat is allowed. <b>Rabba says:</b> With regard to a dangerously <b>ill person</b> on Shabbat <b>whom</b> the doctors <b>evaluated</b> as needing <b>to</b> eat <b>one fig</b> to regain his health, <b>and ten men ran and</b> each cut and <b>brought ten figs simultaneously,</b> one each, <b>they are</b> all <b>exempt</b> from liability for transgressing the prohibition of reaping on Shabbat. This applies <b>even</b> in a case where the ten come <b>one after the other,</b> and <b>even</b> if the ill person <b>had already recovered his health by</b> eating <b>the first</b> fig.
+
+### Part 19
+<b>Rava raises a dilemma:</b> In the case of a dangerously <b>ill person</b> on Shabbat <b>whom</b> the doctors <b>evaluated</b> as needing <b>to</b> eat <b>two figs</b> to regain his health, <b>and there are two figs</b> attached to a tree <b>by two stems [<i>okatzin</i>] and</b> another <b>three figs</b> attached to the tree <b>by one stem, which</b> one <b>of them</b> do <b>we bring?</b> Do <b>we bring two</b> figs, <b>as</b> that is the amount that <b>is fit for him,</b> i.e., this is the number of figs the ill person needs? <b>Or perhaps we bring</b> the <b>three</b> figs, <b>as</b> although he requires only two, this serves to <b>limit</b> the labor of <b>reaping,</b> as the three figs are attached to the tree by a single stem.
+
+### Part 20
+The Gemara answers: It is <b>obvious</b> that <b>we bring</b> the <b>three</b> figs,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

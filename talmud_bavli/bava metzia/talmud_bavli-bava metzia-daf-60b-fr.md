@@ -1,0 +1,21 @@
+
+### Partie 1
+La Gemara explique : C'est du au fait qu'en baissant le prix, il facilite le taux du marche, c'est-a-dire que ses actions conduisent a l'etablissement d'un prix de marche plus bas.
+
+### Partie 2
+La mishna enseigne : <b>Et on ne peut pas tamiser les haricots moulus</b> pour enlever les dechets et facturer un prix plus eleve ; c'est <b>la declaration de Abba Shaul. Et les rabbins permettent</b> de le faire. La Guemara commente : <b>Qui</b> sont les <b>Rabbis</b> dont l'avis est cite dans la mishna ? Il s'agit de <b>Rabbi Aha, comme il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Aha permet</b> le melange, et le tamisage, et autres, dans le cas d'un <b>article</b> dans <b>lequel</b> le changement <b>est evident.</b>
+
+### Partie 3
+La mishna a enseigne : <b>On ne peut orner ni une personne,</b> ni un animal, <b>ni des recipients. Les Sages ont enseigne : On ne peut ni raidir</b> le poil d'un <b>animal</b> pour donner l'impression qu'il est plus volumineux qu'il ne l'est, <b>ni gonfler les entrailles</b> vendues comme viande pour donner l'impression qu'il s'agit d'un morceau de viande plus consistant, <b>ni tremper la viande dans l'eau</b> afin de changer sa couleur et donner l'impression qu'il s'agit d'une coupe de choix. La Gemara demande : <b>Qu'est-ce que</b> est la signification de : <b>On ne doit pas raidir</b> le poil d'un <b>animal ? Ici,</b> en Babylonie, <b>on explique</b> que cela signifie nourrir l'animal avec de l'eau <b>branchee,</b> ce qui gonfle ses intestins et fait se dresser son poil. <b>Zeeiri a dit</b> au nom de <b>Rav Kahana:</b> Cela signifie <b>frotter</b> les cheveux pour les nettoyer afin d'augmenter leur volume.
+
+### Partie 4
+La Guemara relate : <b>Shmuel a permis</b> aux vendeurs <b>de placer des franges sur un manteau ; Rav Yehuda leur a permis</b> de nettoyer</b> et d'orner des <b>vetements ornes ; Rabba leur a permis</b> <b>d'effiler des vetements en lin</b> pour les faire paraitre plus fins ; <b>Rava leur a permis</b> <b>de tirer des fleches</b> pour orner les vetements ; <b>Rav Pappa bar Shmuel leur a permis</b> <b>de tirer des paniers</b> pour l'ornementation. La Guemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna : <b>On ne peut orner ni une personne, ni un animal, ni des recipients ?</b> La Gemara repond : Ce n'est <b>pas difficile,</b> car <b>cette serie de cas</b>, ou les Sages ont permis de parer les marchandises, sont des cas de marchandises <b>neuves</b>. Elle peut etre decoree, car le faire ne fait que mettre en valeur sa beaute intrinseque. <b>Cette</b> decision de la mishna, selon laquelle la parure est interdite, se refere aux cas <b>de marchandises anciennes</b>, car la parure est destinee a dissimuler ses defauts.
+
+### Partie 5
+La Gemara demande : <b>La parure d'une personne, qu'est-ce que c'est ?</b> La Gemara relate : C'est <b>comme</b> dans <b>cet</b> incident <b>concernant un certain esclave age qui alla</b> et <b>se teindre la tete et la barbe</b> en noir pour donner une impression de jeunesse. <b>Il se presenta devant Rava</b> et lui <b>dit : Achete-moi</b> comme ton esclave. Rava <b>lui repondit</b> qu'il existe un adage rabbinique : <b>Laissez les pauvres etre membres de votre foyer.</b> Je suis leur conseil et n'ai donc pas besoin d'esclave. Si j'ai besoin d'aide, les indigents qui frequentent ma maison peuvent m'assister.
+
+### Partie 6
+L'esclave <b>se presenta devant Rav Pappa bar Shmuel,</b> qui <b>l'acheta. Un jour</b> Rav Pappa <b>dit a</b> l'esclave : <b>Donne-moi de l'eau a boire.</b> L'esclave <b>y alla et</b> retira la teinture et <b>blanchit</b> les cheveux de <b>sa tete et sa barbe.</b> L'esclave <b>dit a</b> Rav Pappa : <b>Voir que je suis plus age que ton pere,</b> et que je suis inapte a te servir. Rav Pappa <b>Lit sur lui-meme : Le juste est delivre du trouble, et un autre vient a sa place</b> (voir Proverbes 11, 8). Rav Pappa a applique ce verset a l'incident de l'esclave. La personne juste, Rava, a ete epargnee du probleme de l'esclave, tandis qu'un autre, Rav Pappa bar Shmuel, est venu a sa place.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

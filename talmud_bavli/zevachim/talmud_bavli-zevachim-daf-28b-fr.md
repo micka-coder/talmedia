@@ -1,0 +1,48 @@
+
+### Partie 1
+Par consequent, <b>si</b> le verset <b>ne se refere pas</b> a la question</b> de l'intention de consommer l'offrande <b>au-dela de son</b> <b>temps designe, applique-le a la question de</b> l'intention de la consommer <b>en dehors de sa</b> <b>zone designee. Et</b> quant a la peine de <i>karet</i>, <b>Le Misericordieux l'a limitee</b> a l'interdiction de <b><i>notar</i>,</b> c'est-a-dire de participer effectivement a l'offrande au-dela de son temps designe, comme le precise le verset : <b>"Mais celui qui en mangera portera son iniquite"</b> (Levitique 19:8). Cela indique que l'on est susceptible de recevoir <i>karet</i> pour avoir pris part au <i>notar</i>, <b>a l'exclusion</b> de l'intention de consommer l'offrande <b>en dehors de sa</b> <b>zone designee.</b>
+
+### Partie 2
+La Gemara demande : <b>Mais</b> pourquoi ne pas <b>savoir</b> plutot que lorsque le verset dit : <b>Mais celui qui en mangera portera sa faute,</b> cela fait reference a l'intention de consommer l'offrande <b>en dehors de sa</b> <b>zone designee, et</b> le verset sert <b>a exclure <i>notar</i> de</b> la peine de <b><i>karet</i> ?</b>
+
+### Partie 3
+La Gemara repond : <b>Il va de soi</b> que <b><i>notar</i> doit etre interprete comme</b> portant la peine de <b><i>karet</i>, </b> car cela permettrait de <b>deriver</b> par analogie verbale entre <b>l'iniquite</b> et <b>l'iniquite</b> enoncee en ce qui concerne <b>le cas de l'intention de consommer la viande <b>au-dela de son</b> <b>temps designe,</b> que la peine de <i>karet</i> s'applique egalement a ce dernier. L'analogie verbale serait appropriee <b>puisque</b> une interdiction <b>est similaire</b> a l'autre <b>en</b> qu'elles partagent des caracteristiques qui forment l'acronyme <b><i>zayin</i>, <i>mais</i>:</b> Toutes deux concernent le temps designe de l'offrande [<i>zeman</i>], et toutes deux sont applicables a une offrande sacrifiee sur un autel prive [<i>bama</i>].
+
+### Partie 4
+La Guemara rejette cette affirmation : <b>Au contraire,</b> l'intention de consommer l'offrande <b>en dehors de sa</b> <b>zone designee doit etre interpretee comme</b> entrainant la penalite de <b><i>karet</i>, </b> car cela permettrait de <b>deriver</b> par analogie verbale entre <b>l'iniquite</b> et <b>l'iniquite</b> enoncee a l'egard <b>du</b> cas de l'intention de consommer la viande <b>au-dela de son</b> <b>temps designe,</b> que la peine de <i>karet</i> s'applique egalement a ce dernier. L'analogie verbale serait encore pertinente <b>puisque</b> une interdiction <b>est semblable</b> a l'autre <b>en</b> ce que toutes deux partagent des caracteristiques qui forment l'acronyme <b><i>mikdash</i> : </b> Les deux concernent l'intention [<i>mahashava</i>] ; les deux disqualifient l'offrande entiere meme si l'on avait une intention concernant seulement une partie [<i>ketzat</i>] de celle-ci ; les deux se produisent pendant la collecte ou l'aspersion du sang [<i>dam</i>] de l'offrande ; et en ce qui concerne les deux, le verset contient une mention etrangere du troisieme [<i>shelishi</i>] jour.
+
+### Partie 5
+<b>Au contraire, Rabbi Yohanan dit</b> que <b>Zavdi bar Levi a enseigne : Il est derive</b> que l'interdiction de <i>notar</i> entraine la peine de <i>karet</i> par analogie verbale entre <b>Sacre</b> et <b>Sacre. <b>Il est ecrit ici :</b> "Mais quiconque en mangera portera la peine de son iniquite, car <b>il a profane l'objet sacre du Seigneur ; et</b> cette ame <b>sera retranchee</b> de son peuple" (Levitique 19:8). <b>Et il y est ecrit :</b> "Et si une partie de la chair de la consecration, ou du pain, reste jusqu'au matin, <b>alors vous brulerez le reste [<i>notar</i>] au feu ; </b> on ne le mangera pas, car il est sacre" (Exode 29:34). <b>De meme que</b> le verset <b>la</b> fait reference au <b><i>notar</i>, de meme,</b> la verset <b>la</b> fait reference au <b><i>notar</i>.</b>
+
+### Partie 6
+<b>Et</b> par consequent, lorsque <b>Le Misericordieux a restreint</b> la peine de <i>karet</i> <b>a</b> l'interdiction de manger du <b><i>notar</i>,</b> comme le dit le verset : <b>"Mais celui qui en mangera portera son iniquite,</b> cette restriction sert a <b>exclure</b> le cas de l'intention de consommer l'offrande <b>en dehors de sa</b> <b>zone designee de</b> la peine de <b><i>karet</i>.</b>
+
+### Partie 7
+La Guemara revient sur l'hypothese initiale selon laquelle la declaration de Shmuel fait reference a deux versets : <b>Et qu'as-tu vu</b> qui t'a amene a conclure <b>que le long verset</b> (Levitique 7:18) fait reference <b>a</b> l'intention de consommer l'offrande <b>au dela de son</b> temps designe, et</b> que le verset qui mentionne le <b>troisieme</b> jour (Levitique 19:7) <b>dans la Torah <b>portion</b> qui commence : <b>Vous serez saints,</b> fait reference a l'intention de le consommer <b>en dehors de sa</b> <b>zone designee ? Je</b> pourrais tout aussi bien <b>inverser</b> les deux.
+
+#### Partie 8
+La Gemara repond : <b>Il va de soi</b> que <b>le long</b> verset fait reference <b>a</b> l'intention de consommer l'offrande <b>au-dela de son</b> <b>temps designe, car</b> cela permet de <b>deriver</b> par analogie verbale entre <b>l'anciennete</b> et <b>l'anciennete</b> de <i>notar</i></b> qu'une offrande sacrifiee avec une telle intention entraine la peine de <i>karet</i>. L'analogie verbale est appropriee <b>puisque</b> une interdiction <b>est semblable</b> a l'autre <b>en</b> ce que toutes deux partagent les caracteristiques mentionnees ci-dessus qui forment l'acronyme : <b><i>Zayin</i>, <i>mais</i>.</b>
+
+### Partie 9
+La Guemara rejette cette idee : <b>Au contraire,</b> il va de soi que <b>le long</b> verset fait reference <b>a</b> l'intention de consommer l'offrande <b>en dehors de sa</b> zone designee, et</b> que le verset qui mentionne le <b>troisieme</b> jour <b>dans</b> la portion de la Torah qui commence : <b>Vous serez saints,</b> fait reference <b>a</b> l'intention de le consommer <b>au-dela de son</b> <b>temps designe.</b> Ceci est <b>du au fait <b>que</b> cette derniere intention est <b>similaire</b> <i>notar</i> en ce que les deux interdictions partagent les caracteristiques mentionnees ci-dessus qui forment l'acronyme : <i>Zayin</i>, <i>mais</i>, et il est donc raisonnable que la Torah <b>juxtapose</b> les deux dans des versets adjacents. <b>Et</b> si tel est le cas, lorsque le verset precise a propos du <i>notar</i> : "Mais celui qui en mangera portera son iniquite," ceci <b>exclut</b> l'intention de consommer l'offrande au-dela du temps prevu de la peine de <i>karet</i>.
+
+### Partie 10
+<b>Rava dit plutot :</b> Il faut accepter l'interpretation originale de la declaration de Shmuel, a savoir que <b>tous</b> ces <i>halakhot</i> concernant l'intention de consommer l'offrande au-dela de son temps designe ou en dehors de sa zone designee <b>sont derives du long verset. Comme il est ecrit :</b> "Si une partie de la chair de ses offrandes de paix est consommee le troisieme jour, elle ne sera pas acceptee, et elle ne sera pas creditee a celui qui l'offre ; elle sera <i>piggul</i>, et l'ame qui en mangera portera sa faute" (Levitique 7:18). Quand le verset dit : <b>"Soyez tous consommes [<i>heâkhol yeâkhel</i>],"</b> en utilisant un verbe double, <b>le verset parle de</b> l'intention en ce qui concerne <b>deux consommations, une consommation par une personne, et une consommation par</b> l'<b>altar,</b> c'est-a-dire le fait de bruler l'offrande. L'intention incorrecte en ce qui concerne l'un ou l'autre de ces actes rend l'offrande <i>piggul</i>.
+
+### Partie 11
+La phrase <b>Certaines des chairs de ses offrandes de paix</b> indique que <b>comme une offrande de paix</b> possede ce qui <b>rend <i>piggul</i> et</b> ce qui <b>est rendu <i>piggul</i>,</b> c'est-a-dire, le sang, qui rend l'offrande <i>piggul</i> par l'intention que l'on a a l'egard de ses rites, et la viande, qui est rendue <i>piggul</i> par cette intention, <b>aussi</b> le verset se refere a <b>toutes</b> les offrandes qui possedent ce qui <b>rend</b> une offrande <b><i>piggul</i> et</b> ce qui <b>est rendu <i>piggul</i>. </b>
+
+### Partie 12
+L'expression "le <b>troisieme</b> jour" indique que le verset se refere a l'intention de consommer l'offrande <b>au-dela de son <b>temps designe,</b> car les offrandes de paix ne peuvent etre consommees que pendant deux jours.
+
+### Partie 13
+La phrase <b>"Elle ne sera pas acceptee"</b> indique qu'une offrande est consideree comme <i>piggul</i> apres l'etape du service a laquelle elle aurait autrement effectue l'expiation. Par consequent, <b>comme l'acceptation d'une offrande convenable</b>, <b>ainsi</b> est <b>l'acceptation d'une offrande disqualifiee</b>, <b>et tout comme l'acceptation d'une offrande convenable</b> ne se produit pas <b>jusqu'a ce que l'on sacrifie tous ses facteurs de permission,</b> c'est-a-dire que l'on asperge le sang correctement, <b>de meme l'acceptation d'une offrande disqualifiee</b> ne se produit pas <b>jusqu'a ce que l'on sacrifie tous ses facteurs de permission.</b>
+
+### Partie 14
+Le terme <b>"celui qui offre"</b> indique que le <i>piggul</i> <b>est disqualifie au</b> moment de l'<b>offrande,</b> en raison d'une intention inappropriee, <b>et il n'est pas disqualifie le troisieme</b> jour litteralement. Et lorsque le verset dit <b>C'est,</b> cela indique que <b>le verset parle</b> d'une disqualification de l'<b>offrande</b> seulement, <b>mais il ne parle pas</b> du <b>pretre,</b> qui n'est pas disqualifie de la pretrise par une telle intention.
+
+### Partie 15
+La phrase <b>"?il ne sera pas non plus credite [<i>yehashev</i>]"</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

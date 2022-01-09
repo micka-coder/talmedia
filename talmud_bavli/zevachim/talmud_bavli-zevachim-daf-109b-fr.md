@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>ou</b> dont il ne reste que <b>une olive-bulk de</b> portions sacrificielles, par exemple de la <b>graisse</b> a bruler sur l'autel, on <b>repand le sang</b> de l'offrande sur l'autel et on remplit ainsi son obligation.
+
+### Partie 2
+Mais si tout ce qui reste est <b>un demi-lot d'olive de viande et un demi-lot d'olive de graisse, on ne peut pas asperger le sang,</b> car puisque la viande et les portions sacrificielles sont utilisees differemment, la premiere etant mangee et la seconde etant brulee sur l'autel, elles ne peuvent pas se combiner pour former l'exigence minimale d'un lot d'olive. Ceci ne s'applique qu'aux offrandes dont la viande est mangee. <b>Mais pour un holocauste,</b> meme si tout ce qui reste est <b>une demi-livre d'olive de chair et une demi-livre d'olive de graisse, on asperge le sang, car</b> puisque l'offrande est <b>consommee</b> sur l'autel <b>en entier,</b> toutes ses parties se combinent ensemble. <b>Et</b> en ce qui concerne <b>une offrande de repas, meme si tout</b> elle <b>existe encore, on n'asperge pas</b> le sang. Il apparait que l'avis de Rabbi Yehoshua dans cette <i>baraita</i> est celui exprime dans la <i>baraita</i>.
+
+### Partie 3
+La Guemara clarifie la clause finale de la <i>baraita</i> : <b>Quel est l'interet d'une offrande de repas</b> pour l'aspersion du sang ? Dans une offrande de repas, il n'y a pas de sang du tout. <b>Rav Pappa a repondu :</b> Le <i>baraita</i> fait reference a <b>une offrande de repas</b> apportee avec les <b>liberations qui accompagnent</b> une <b>offrande animale.</b> Si le corps entier de l'offrande a ete detruit mais que l'offrande de repas qui l'accompagnait demeure, on aurait pu penser que cela suffirait pour permettre l'aspersion du sang. Le <i>baraita</i> enseigne que cela est incorrect.
+
+### Partie 4
+mishna En ce qui concerne <b>la poignee</b> d'une offrande de repas, <b>l'encens, l'encens, l'offrande de repas des pretres, l'offrande de repas du <b>pretre oint</b> et l'offrande de repas</b> apportee avec les <b>liberations</b> qui accompagnent les offrandes d'animaux, dans un cas <b>ou l'on a sacrifie</b> meme <b>un corpus d'olives</b> de n'importe lequel <b>de ceux-ci,</b> qui doit etre sacrifie sur l'autel, <b>a l'exterieur</b> du Temple, il est <b>responsable,</b> car la combustion d'un corpus d'olives est consideree comme une combustion appropriee. <b>Rabbi Eliezer le juge</b> <b>exempt, sauf s'il sacrifie la totalite</b> d'un de ces objets a l'exterieur du Temple. <b>Mais</b> Rabbi Eliezer concede qu'en ce qui concerne <b>l'un quelconque d'entre eux que l'on a sacrifie a l'interieur</b> de la cour <b>mais dont on a laisse un corpus d'olives et</b> ensuite <b>sacrifie ce</b> corpus d'olives <b>a l'exterieur</b> de la cour, il est <b>responsable.</b>
+
+### Partie 5
+<b>Et</b> en ce qui concerne <b>toutes ces</b> offrandes <b>qui manquaient d'une certaine quantite,</b> si <b>on les sacrifie en dehors</b> de la cour, on est <b>exemptes.</b>
+
+### Partie 6
+<b>Celui qui sacrifie de la viande sacrificielle</b>, qui est consommee, <b>et des portions sacrificielles,</b> c'est-a-dire celles qui doivent etre brulees sur l'autel, <b>en dehors</b> de la cour, est <b>responsable</b> du sacrifice des portions sacrificielles. Mais il n'est pas responsable du sacrifice de la viande.
+
+### Partie 7
+Guemara <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Chaque matin et chaque apres-midi, on doit bruler un <i>peras</i>, c'est-a-dire un demi <i>maneh</i>, d'encens dans le Sanctuaire. Neanmoins, <b>celui qui ne brule</b> qu'un <b>bulk d'olive</b> d'encens <b>a l'exterieur</b> de la cour est <b>responsable.</b> Si l'on brule <b>un demi <i>peras</i> a l'interieur</b> du Temple, on est <b>exempte.</b>
+
+### Partie 8
+La Guemara aborde la derniere clause du <i>baraita</i> : <b>Il nous vient a l'esprit</b> d'expliquer : <b>Qu'est-ce que</b> on entend par : Il est <b>exempte ?</b> Cela signifie que <b>un non-pretre,</b> pour qui il est interdit d'accomplir les rites sacrificiels dans le Temple, est <b>exempte</b> s'il brule de l'encens a l'interieur du Temple. La Guemara rejette cette idee : <b>Pourquoi</b> devrait-il etre exempte ; ceci <b>est</b> un acte de <b>brulure sacrificielle ?</b> Meme s'il a brule moins d'un <i>peras</i>, il ressort de la premiere clause de la <i>baraita</i> que bruler meme une botte d'olives est considere comme un acte de brulure sacrificielle.
+
+### Partie 9
+<b>Rabbi Zeira a dit</b> que <b>Rav Hisda a dit</b> que <b>Rav Yirmeya, fils de Abba, a dit</b> que <b>Rav a dit : Que</b> signifie : Il est <b>exempte ?</b> Cela signifie que si un pretre brule la moitie d'un <i>peras</i> a l'interieur du Temple, la <b>communaute</b> est de ce fait <b>exemptee</b> de son obligation de bruler de l'encens malgre le fait que moins que la quantite requise ait ete brulee.
+
+### Partie 10
+<b>Rabbi Zeira a dit : Si</b> il y a quelque chose de <b>difficile pour moi</b> par rapport a cette <i>baraita</i>, <b>ceci</b> est <b>difficile pour moi : Ce que Rav a dit concernant</b> ce <i>baraita</i> : <b>A propos de cette</b> <i>halakha</i>, que si un pretre brule moins d'un <i>peras</i> d'encens, la communaute remplit son obligation, <b>meme Rabbi Eliezer concede.</b> Rabbi Zeira explique : Ceci est difficile pour moi <b>car Rabbi Eliezer</b> regle dans la mishna que celui qui brule une olive-bulle d'encens a l'exterieur est exempt. En effet, il <b>dit</b> que bruler moins que la quantite requise <b>n'est pas</b> un acte de <b>sacrifice.</b> Comment peut-il alors soutenir que la communaute remplit son obligation par la combustion de moins d'un <i>peras</i> ?
+
+### Partie 11
+<b>Rabba a dit : En ce qui concerne</b> la <b>combustion de l'encens</b> designe pour etre brule dans le <b>Sanctuaire</b> sur l'autel d'or, <b>tous,</b> c'est-a-dire les rabbins et Rabbi Eliezer, <b>sont d'accord</b> que la Torah ne precise pas la quantite a bruler ; l'obligation de bruler un <i>peras</i> est rabbinique. En consequence, l'obligation est remplie meme si on n'y brule qu'une botte d'olives d'encens, comme le dit la <i>baraita</i>, et celui qui brule une botte d'olives de cet encens en dehors du Temple est responsable.
+
+### Partie 12
+<b>Lorsqu'ils sont en desaccord</b> dans la mishna, c'est <b>en ce qui concerne</b> la <b>brulure d'encens</b> dans le <b>sanctuaire interieur</b>, c'est-a-dire dans le Saint des Saints, a Yom Kippour. Concernant cette obligation, le verset indique : "Il prendra"¦sa poignee d'encens doux, battu menu, et la portera a l'interieur du Rideau" (Levitique 16:12). <b>Comme</b> un <b>Sage,</b> Rabbi Eliezer, <b>soutient</b> que <b>"sa poignee"</b> indique que <b>specifiquement</b> cette mesure doit etre brulee afin d'accomplir l'obligation. En consequence, il soutient egalement que celui qui ne brule qu'une olive de cet encens a l'exterieur de la cour est exempte. <b>Et</b> l'autre <b>Sage,</b> les rabbins qui ne sont pas d'accord avec Rabbi Eliezer, <b>soutient</b> que <b>"sa poignee"</b> n'indique <b>pas</b> que <b>specifiquement</b> cette mesure doit etre brulee, et l'obligation peut etre accomplie meme avec une quantite moindre. En consequence, ils considerent egalement que celui qui brule meme une olive de cet encens en dehors de la cour est responsable.
+
+### Partie 13
+<b>Abaye dit a</b> Rabba : <b>Mais lorsque</b> le terme <b>"statut" est ecrit</b> en ce qui concerne le service du Temple de Yom Kippour (voir Levitique 16:29), <b>il est</b> egalement <b>ecrit en ce qui concerne</b> le <b>brulage d'encens</b> dans le <b>sanctuaire interieur</b>. Le terme "statut" enonce a propos d'un rite indique qu'il n'est valable que s'il est accompli precisement selon tous les details mentionnes dans la Torah le concernant. En conséquence, le terme" sa main" doit être spécifique.
+
+### Partie 14
+<b>Au contraire, Abaye a dit : En ce qui concerne</b> le <b>brulage</b> d'encens <b>dans</b> le <b>sanctuaire interieur</b>, c'est-a-dire dans le Saint des Saints, a Yom Kippour, <b>tout le monde est d'accord</b> que l'obligation n'est remplie que si une poignee d'encens est brulee. De meme, tout le monde est d'accord, en ce qui concerne la combustion d'encens dans le Sanctuaire, pour dire que l'obligation est remplie meme avec une botte d'olives, comme le dit la <i>baraita</i>, et celui qui brule une botte d'olives d'encens en dehors du Temple est responsable.
+
+### Partie 15
+<b>Lorsqu'ils sont en desaccord</b> dans la mishna, c'est <b>en ce qui concerne</b> la <b>brulure d'encens</b> du Saint des Saints <b>en dehors</b> de la cour du Temple. Un <b>Sage,</b> les rabbins, <b>soutient</b> que <b>on derive</b> la mesure de la responsabilite pour l'encens du <b>sanctuaire interieur</b> <b>de</b> l'encens du <b>sanctuaire exterieur</b>, c'est-a-dire le Sanctuaire. De meme que pour ce dernier on est redevable d'un ballot d'olives, de meme, pour le premier, on est redevable d'un ballot d'olives. <b>Et</b> l'autre <b>Sage,</b> Rabbi Eliezer, <b>soutient</b> que <b>on ne derive pas</b> l'un de l'autre. Au contraire, puisque l'obligation a l'interieur du Saint des Saints n'est remplie qu'avec une poignee d'encens, on n'est responsable de bruler cet encens a l'exterieur du Temple que si l'on brule cette quantite.
+
+### Partie 16
+<b>Rava dit</b> en rejetant la comprehension d'Abaye : <b>Maintenant,</b> si <b>les rabbins ne deduisent pas</b> la mesure de responsabilite pour l'offrande hors de la cour du Temple, en ce qui concerne les autres rites accomplis dans le <b>sanctum exterieur</b>, <b>a partir</b> de l'encens du <b>sanctuaire exterieur</b>, est-il <b>necessaire</b> de se demander s'ils deriveraient la mesure de responsabilite pour l'encens du <b>sanctuaire interieur</b> <b>a partir</b> de l'encens du <b>sanctuaire exterieur</b> ? Certainement, ils ne le feraient pas.
+
+### Partie 17
+La Gemara demande : <b>Quel est</b> le rite auquel Rava fait reference dans sa reponse a Abaye ? C'est <b>comme il est enseigne</b> dans une <i>baraita</i> : On <b>pourrait</b> avoir pense que <b>celui qui offre</b> a l'exterieur de la cour <b>moins d'une olive de</b> la <b>manche</b> prelevee sur une offrande de repas <b>ou moins d'une olive de</b> les <b>portions sacrificielles, ou qui verse en libation</b> hors de la cour <b>moins de trois <i>log</i> de vin</b> ou qui verse en libation a <i>Sukkot</i> <b>moins de trois <i>log</i> d'eau,</b> que <b>il serait responsable. </b> Pour contrer cela, <b>le verset dit :</b> "Et il ne l'apportera pas a l'entree de la Tente de la Rencontre, <b>pour la sacrifier</b>" (Levitique 17:9). L'expression "pour la sacrifier" indique que l'on est <b>responsable du sacrifice</b> d'une offrande <b>complete</b> a l'exterieur de la cour <b>mais que l'on n'est pas responsable du sacrifice</b> d'une offrande <b>incomplete</b> a l'exterieur.
+
+### Partie 18
+La Guemara explique la deduction de Rava : <b>Mais</b> le <i>baraita</i> indique que pour une libation de <b>moins de trois <i>log</i></b> a l'exterieur de la cour on est exempte malgre le fait <b>que</b> la libation contienne encore quelques olives-bulks. Et</b> il apparait donc que <b>les rabbins ne derivent pas</b> la mesure de responsabilite pour le rite de la libation qui doit etre accompli dans le <b>sanctuaire exterieur</b> <b>a partir</b> de l'encens qui doit etre brule dans le <b>sanctuaire exterieur</b>. Certainement donc, ils ne deriveraient pas la mesure de responsabilite pour l'encens du sanctuaire interieur de l'encens du sanctuaire exterieur.
+
+### Partie 19
+<b>Au contraire, Rava dit</b> pour resoudre la difficulte de Rabbi Zeira : Rabbi Eliezer et les rabbins sont d'accord en ce qui concerne l'encens du sanctuaire, sur le fait que la Torah ne specifie pas une quantite a bruler, et que la communaute remplit son obligation meme si on ne brule qu'une botte d'olives, comme cela est enseigne dans la <i>baraita</i>. Lorsqu'ils sont en desaccord dans la mishna, c'est dans un cas <b>ou, par exemple, on a designe deux portions d'encens d'une demi-<i>peras</i></b>, conformement a l'exigence rabbinique de bruler un <i>peras</i>,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

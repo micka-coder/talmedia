@@ -1,0 +1,48 @@
+
+### Part 1
+<strong>MISHNA:</strong> This mishna discusses the halakhic status of various items that belong to gentiles. <b>These are items</b> that <b>belong to gentiles</b> and <b>are prohibited</b> to Jews, <b>and their prohibition is</b> that of <b>an item from which</b> deriving <b>benefit is prohibited: Wine, and vinegar belonging to gentiles that was originally wine, and Hadrianic earthenware, and hides</b> with a tear opposite the <b>heart. Rabban Shimon ben Gamliel says:</b> A hide is <b>prohibited</b> only <b>when</b> the <b>tear</b> around its heart is <b>circular,</b> but if it is <b>elongated</b> it is <b>permitted,</b> as gentiles will sacrifice a heart only when it has been removed by a circular laceration.
+
+### Part 2
+<b>Meat that enters the</b> house of <b>idol worship</b> is <b>permitted, and</b> meat <b>that exits</b> this house is <b>prohibited, because it is</b> considered <b>as offerings to the dead,</b> i.e., to idols; this is <b>the statement of Rabbi Akiva.</b> With regard to <b>those going to a festival of idolatry [<i>tarput</i>],</b> it is <b>prohibited to engage in business with them. And</b> with regard to <b>those who are coming</b> from it, it is <b>permitted</b> to engage in business with them.
+
+### Part 3
+<b>Wineskins and jugs</b> belonging <b>to gentiles,</b> which have <b>a Jew’s wine contained in them,</b> are <b>prohibited</b> to Jews, <b>and their prohibition is</b> that of <b>an item from which</b> deriving <b>benefit is prohibited;</b> this is <b>the statement of Rabbi Meir. And the Rabbis say: Their prohibition is not</b> that of <b>an item from which</b> deriving <b>benefit is prohibited.</b> Residual grape <b>seeds and grape skins belonging to gentiles,</b> which are left behind after the grapes are crushed for wine, are <b>prohibited, and their prohibition is</b> that of <b>an item from which</b> deriving <b>benefit is prohibited;</b> this is <b>the statement of Rabbi Meir. And the Rabbis say: Moist</b> grape residues are <b>prohibited,</b> but <b>dry</b> residues are <b>permitted.</b>
+
+### Part 4
+<b>Fish stew [<i>murayes</i>] and cheese of Beit Unyaki belonging to gentiles are prohibited, and their prohibition is</b> that of <b>an item from which</b> deriving <b>benefit is prohibited.</b> This is <b>the statement of Rabbi Meir. And the Rabbis say: Their prohibition is not</b> that of <b>an item from which</b> deriving <b>benefit is prohibited.</b>
+
+### Part 5
+<b>Rabbi Yehuda said: Rabbi Yishmael asked Rabbi Yehoshua</b> a series of questions <b>while they were traveling along the road.</b> Rabbi Yishmael <b>said to him: For what</b> reason <b>did</b> the Sages <b>prohibit</b> the <b>cheeses of gentiles?</b> Rabbi Yehoshua <b>said to him: Because</b> gentiles <b>curdle</b> cheese <b>with the stomach</b> contents <b>of</b> an unslaughtered <b>animal carcass,</b> and as the carcass of an unslaughtered animal is not kosher, cheese that is curdled with it is likewise prohibited.
+
+### Part 6
+In response, Rabbi Yishmael <b>said to him: But aren’t the stomach</b> contents <b>of a burnt-offering</b> subject to a more <b>stringent</b> prohibition <b>than the stomach</b> contents <b>of</b> an unslaughtered <b>animal carcass?</b> And yet <b>they said: A priest who is open-minded [<i>shedato yafa</i>]</b> with regard to what he eats <b>may swallow [<i>shorefah</i>]</b> the stomach contents of a burnt-offering while they are <b>raw, and</b> the other Sages <b>did not agree with him. But</b> the Sages <b>said: One may not</b> derive <b>benefit</b> from the stomach contents of a burnt-offering <i>ab initio</i>, <b>and</b> if one did derive benefit from them, he is <b>not</b> liable for <b>misusing</b> consecrated property. According to both opinions, deriving benefit from the stomach contents of a burnt-offering is not prohibited by Torah law. Since the <i>halakha</i> with regard to a burnt-offering is more stringent than that of an animal carcass, why would deriving benefit from the carcass be prohibited, while deriving benefit from the burnt-offering is permitted?
+
+### Part 7
+Rabbi Yehoshua <b>said to</b> Rabbi Yishmael: The cheese of gentiles is prohibited <b>because they curdle it in the stomach</b> contents <b>of calves</b> used for <b>idol worship.</b> Since it is prohibited to derive benefit from such calves, cheese curdled in their stomach contents is also prohibited. Rabbi Yishmael <b>said to him: If</b> that is <b>so, why didn’t</b> the Sages <b>prohibit</b> deriving any <b>benefit</b> from the cheese, instead of merely prohibiting its consumption?
+
+### Part 8
+Instead of answering Rabbi Yishmael, Rabbi Yehoshua <b>diverted his</b> attention <b>to another matter</b> and <b>said to him: Yishmael, how do you read</b> the following verse in the Song of Songs (1:2)? Do you read it as: <b>For Your love [<i>dodekha</i>] is better than wine,</b> or as: <b>For your love [<i>dodayikh</i>] is better</b> than wine? The first version, which is in the masculine form, would be a reference to God, whereas the second version, in the feminine, would be a reference to the Jewish people.
+
+### Part 9
+Rabbi Yishmael <b>said to him</b> that it should be read in the feminine: <b>For your love [<i>dodayikh</i>] is better</b> than wine. Rabbi Yehoshua <b>said to him: The matter is not so, as another</b> verse <b>teaches with regard to it: “Your ointments [<i>shemanekha</i>] have a goodly fragrance”</b> (Song of Songs 1:3). This phrase, which appears in the next verse, is written in the masculine form, and therefore it is determined that the preceding verse can also be understood in the masculine form.
+
+### Part 10
+<strong>GEMARA:</strong> <b>From where do we</b> derive that <b>wine</b> belonging to gentiles is prohibited? <b>Rabba bar Avuh says</b> that <b>the verse states: “Who did eat the fat of their offerings, and drank the wine of their drink-offering”</b> (Deuteronomy 32:38). This verse juxtaposes the fat of gentile sacrifices to their wine: <b>Just as</b> deriving <b>benefit from</b> their <b>offering is prohibited, so too,</b> deriving <b>benefit from</b> their <b>wine</b> is <b>prohibited.</b>
+
+### Part 11
+The Gemara asks: <b>From where do we</b> derive the prohibition with regard to <b>an offering itself?</b> It is derived from a verse, <b>as it is written: “They joined themselves also unto Baal of Peor, and ate the offerings to the dead”</b> (Psalms 106:28). This verse teaches that <b>just as</b> deriving <b>benefit from a corpse is prohibited, so too,</b> deriving <b>benefit from an offering</b> of idolatry <b>is prohibited.</b>
+
+### Part 12
+The Gemara asks: <b>And from where do we</b> derive the prohibition of <b>a corpse itself?</b> The Gemara answers: It <b>is derived from</b> a verbal analogy between the words <b>“there”</b> and <b>“there”</b> employed <b>with regard to</b> the <b>heifer whose neck is broken</b> to absolve a city from bearing responsibility for the death of a visitor. <b>It is written here: “And Miriam died there”</b> (Numbers 20:1), <b>and it is written there:</b> “And the elders of that city shall bring down the heifer unto a rough valley, which may neither be plowed nor sown, <b>and shall break the heifer’s neck there in the valley”</b> (Deuteronomy 21:4). <b>Just as there,</b> deriving <b>benefit from</b> the heifer <b>is prohibited, so too here,</b> deriving <b>benefit from</b> a corpse is <b>prohibited.</b>
+
+### Part 13
+<b>And there, from where do we</b> learn that deriving benefit from the heifer is prohibited? The Sages <b>said in the school of Rabbi Yannai:</b> A term of <b>atonement is written with regard to</b> the heifer whose neck is broken (Deuteronomy 21:8), just <b>as</b> it is written with regard to <b>sacrificial</b> animals. This teaches that deriving benefit from the heifer is prohibited, just as deriving benefit from sacrificial animals is prohibited.
+
+### Part 14
+§ The mishna teaches: <b>And vinegar belonging to gentiles that was originally wine</b> is prohibited. The Gemara asks: Isn’t this <b>obvious?</b> Just <b>because</b> the wine has <b>soured,</b> should <b>its prohibition lapse? Rav Ashi said: This comes to teach us</b> that <b>our vinegar</b> that is <b>in a gentile’s possession does not require a seal within a seal</b> for it to remain permitted for consumption. Rather, one seal is sufficient. Rav Ashi explains the reason for this leniency: <b>If</b> the concern is <b>due to</b> idolatrous <b>libation,</b> gentiles do <b>not offer libations</b> of vinegar. <b>And if</b> it is <b>due to</b> the concern that a gentile may secretly <b>exchange</b> his prohibited vinegar with the vinegar of a Jew, <b>since there is</b> one <b>seal,</b> the gentile will <b>not exert</b> himself <b>and forge</b> a different seal in order to facilitate the exchange.
+
+### Part 15
+<b>Rabbi Ile’a says: We learned</b> that <b>cooked wine belonging to gentiles that was originally</b> uncooked <b>wine is prohibited.</b> The Gemara again asks: Isn’t this <b>obvious?</b> Just <b>because</b> the wine <b>was cooked,</b> should <b>its prohibition lapse? Rav Ashi said: This comes to teach us</b> that <b>our cooked wine</b> that is <b>in a gentile’s possession does not require a seal within a seal</b> for it to remain permitted for consumption. Rather, one seal is sufficient. Rav Ashi elaborates: <b>If</b> the concern is <b>due to</b> idolatrous <b>libation,</b> gentiles do <b>not offer libations</b> of cooked wine. <b>And if</b> it is <b>due to</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

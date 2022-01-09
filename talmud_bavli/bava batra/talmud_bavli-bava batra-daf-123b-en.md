@@ -1,0 +1,39 @@
+
+### Part 1
+“And he lifted up his eyes, and saw <b><i>et</i> Benjamin his brother, his mother’s son”</b> (Genesis 43:29), which would render the count of seventy in-correct. Rabbi Ḥiyya bar Abba <b>said:</b> There <b>was a goodly pearl [<i>margalit</i>] in my hand, and you are trying to have me lose it.</b> He continued: <b>So said Rabbi Ḥama bar Ḥanina: This</b> missing seventieth person is <b>Jochebed, whose conception was on the journey,</b> as the family of Jacob descended to Egypt, <b>and she was born within the walls,</b> i.e., in Egypt, <b>as it is stated:</b> “And the name of Amram’s wife was Jochebed, the daughter of Levi, <b>who was born to Levi in Egypt”</b> (Numbers 26:59). <b>Her birth</b> was <b>in Egypt, but her conception</b> was <b>not in Egypt.</b> Accordingly, the family had seventy persons upon arrival, but she could not have been listed as descending to Egypt.
+
+### Part 2
+§ <b>Rabbi Ḥelbo asked Rabbi Shmuel bar Naḥmani: It is written: “And it came to pass, when Rachel gave birth to Joseph,</b> that Jacob said to Laban: Send me away, that I may go to my own place, and to my country” (Genesis 30:25). <b>What was different when Joseph was born,</b> that Jacob decided only then to return home? Rabbi Shmuel bar Naḥmani <b>said to him: Jacob our patriarch saw</b> prophetically <b>that the descendants of Esau</b> will be <b>delivered only to the hand of the descendants of Joseph, as it is stated: “And the house of Jacob shall be a fire, and the house of Joseph a flame, and the house of Esau for straw,</b> and they shall kindle in them, and devour them” (Obadiah 1:18). Jacob had left Eretz Yisrael to escape Esau, but he now felt confident that he could return without endangering his family.
+
+### Part 3
+Rabbi Ḥelbo <b>raised an objection to</b> Rabbi Shmuel bar Naḥmani: Concering a battle between the Jewish people and the nation of Amalek, who descend from Esau, the verse states: <b>“And David smote them from the twilight even to the evening of the next day”</b> (I Samuel 30:17). David was from the tribe of Judah, yet he was able to defeat the descendants of Esau. Rabbi Shmuel bar Naḥmani <b>said to him: Whoever read</b> and taught <b>Prophets to you did not read</b> and teach <b>Writings to you, as it is written: “As he went to Ziklag, there fell to him of Manasseh, Adnah, and Jozabad, and Jediael, and Michael, and Jozabad, and Elihu, and Zillethai, captains of thousands that were of Manasseh,</b> and they helped David against the troop” (I Chronicles 12:21–2). The verse in Writings teaches that David’s campaign against Esau was led by Joseph’s descendants, from the family of Manasseh.
+
+### Part 4
+<b>Rav Yosef raises an objection:</b> Another verse indicates that the descendants of Simeon also have the ability to defeat the descendants of Esau: <b>“And some of them, even of the sons of Simeon, five hundred men, went to Mount Seir, having for their captains Pelatiah, and Ne’ariah, and Rephaiah, and Uzziel, the sons of Ishi. And they struck the remnant of the Amalekites that escaped, and dwelled there until this day”</b> (I Chronicles 4:42–43). <b>Rabba bar Sheila said</b> in response: <b>Ishi came from</b> the <b>children of Manasseh, as it is written: And the sons of Manasseh: Hepher and Ishi.</b>
+
+### Part 5
+§ <b>The Sages taught</b> (<i>Tosefta</i> 7:4–5): <b>The firstborn</b> priest <b>takes a double</b> portion <b>of the foreleg, and of the jaw, and of the maw,</b> which are given to a priest from all slaughtered non-sacred cattle, sheep, and goats (see Deuteronomy 18:3). <b>And</b> a firstborn, whether he is a priest or non-priest, takes a double portion <b>of</b> his father’s <b>sacrificial</b> animals <b>and of the enhancement of the property</b> that occurred <b>after the death of their father.</b>
+
+### Part 6
+The <i>baraita</i> continues: <b>How so?</b> To what type of enhancement is this referring? If <b>their father left them a cow</b> that was <b>leased or rented in the possession of others, or if it was grazing in the meadow, and it gave birth,</b> then the <b>firstborn takes a double</b> portion of the rental income or of the calf. <b>But</b> if the inheritors <b>built homes or planted vineyards</b> after their father’s death, thereby enhancing the property, the <b>firstborn does not take a double</b> portion. This is not considered enhancement of the father’s property, but profit due to their actions.
+
+### Part 7
+The Gemara analyzes the <i>baraita</i>: Concerning <b>this</b> right to collect a double portion of <b>the foreleg, and the jaw, and the maw, what are the circumstances? If</b> they <b>came into the possession of their father,</b> then it is <b>obvious</b> that the firstborn collects a double portion. <b>And if</b> they <b>did not come into the possession of their father,</b> then these items <b>are</b> merely property <b>due</b> to their father, <b>and the firstborn does not take</b> a double portion <b>of</b> property <b>due</b> to the deceased <b>as</b> he does the property his father <b>possessed.</b>
+
+### Part 8
+The Gemara answers: <b>Here, we are dealing with associates of the priesthood,</b> i.e., people who have an arrangement with a specific priest to give him their priestly gifts. <b>And</b> it was a case <b>where</b> the animal <b>was slaughtered while the father was alive, and</b> the <i>tanna</i> of this <i>baraita</i> <b>holds:</b> Priestly <b>gifts that were not</b> yet <b>separated are considered as though they</b> have already been <b>separated.</b> Therefore, even though the gifts were not yet given, they were considered in the possession of the priest before his death.
+
+### Part 9
+The Gemara continues to analyze the <i>baraita</i>: Why does the firstborn take a double portion of the father’s <b>sacrificial</b> animals? Isn’t it so that once the father consecrates them, <b>they</b> belong to Heaven and <b>are not his?</b>
+
+### Part 10
+The Gemara answers: This is stated <b>with regard to</b> a case of <b>offerings of lesser sanctity,</b> such as peace offerings, <b>and in accordance with</b> the opinion <b>of Rabbi Yosei HaGelili, who says:</b> These sacrificial animals <b>are</b> considered the <b>property of</b> their <b>owners,</b> as opposed to property of Heaven. <b>As it is taught</b> in a <i>baraita</i> that concerning one who steals another’s property and takes a false oath denying he has done so, incurring the obligation to bring a guilt-offering, the verse states: <b>“And commits a trespass against the Lord,</b> and deals falsely with his neighbor” (Leviticus 5:21). The verse serves <b>to include offerings of lesser sanctity, which are</b> the <b>property of</b> their <b>owners;</b> this is <b>the statement of Rabbi Yosei HaGelili.</b> Consequently, the firstborn collects a double portion of these as well.
+
+### Part 11
+The <i>baraita</i> states: If <b>their father left them a cow</b> that was <b>leased or rented in the possession of others, or if it was grazing in the meadow, and it gave birth,</b> then the <b>firstborn takes a double</b> portion of the rental income or calf. The Gemara asks: <b>Now</b> that in a case where the cow was <b>leased or rented</b> to others, <b>where</b> the animals <b>are not in their owner’s possession, you say</b> that the firstborn <b>takes</b> a double portion, in a case where it was <b>grazing in the meadow, is</b> it <b>necessary</b> for the <i>baraita</i> to state that he receives a double portion?
+
+### Part 12
+The Gemara answers that <b>this</b> is what the <i>baraita</i> <b>teaches us:</b> It teaches <b>that</b> a case where the animal was <b>leased or rented is similar to</b> a case where it was <b>grazing in the meadow,</b> in that <b>just as</b> in a case where it was <b>grazing in the meadow, the enhancement came by itself and</b> the brothers <b>did not lose</b> money for <b>its sustenance,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

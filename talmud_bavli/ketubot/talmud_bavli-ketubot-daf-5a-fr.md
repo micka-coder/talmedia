@@ -1,0 +1,45 @@
+
+### Partie 1
+Il est <b>du a des calculs</b> effectues le Chabbat pour preparer le mariage. Il s'engagerait ainsi dans des affaires de semaine le Chabbat.
+
+### Partie 2
+<b>Abaye lui dit : Et les calculs pour une mitzva sont-ils interdits</b> le Chabbat ? <b>Mais n'est-ce pas Rav Hisda et Rav Hamnuna qui ont tous deux dit :</b> En ce qui concerne les <b>calculs pour une mitzva,</b> il est <b>permis de les compter le Chabbat ? Et Rabbi Elazar a dit : On peut allouer la charite aux pauvres le Chabbat. Et Rabbi Yaâkov dit</b> que <b>Rabbi Yohanan a dit : On se rend dans les synagogues et les salles d'etudes pour superviser les affaires</b> touchant les <b>multitudes le Chabbat. Et Rabbi Yaâkov bar Idi a dit</b> que <b>Rabbi Yohanan a dit : On supervise les questions de sauver une vie le Chabbat.</b>
+
+### Partie 3
+<b>Et Rabbi Shmuel bar Nahmani dit</b> que <b>Rabbi Yohanan a dit : On se rend dans les theatres [<i>tartiyyaot</i>] et les cirques [<i>karkiyyaot</i>] pour superviser les affaires</b> affectant les <b>multitudes le Chabbat,</b> car le sort du peuple juif ou de juifs individuels y est souvent decide et sa presence pourrait empecher une calamite. <b>Et</b> le Sage <b>de l'ecole de Menashya a enseigne :</b> On <b>fait des rapprochements [<i>meshadkhin</i>]</b> entre les familles concernees <b>pour qu'une jeune fille soit fiancee le Chabbat, et</b> de meme on peut prendre des dispositions <b>pour un jeune garcon afin de lui enseigner la Torah et de lui apprendre un metier.</b> Apparemment, les calculs pour une mitzva peuvent etre comptabilises le Chabbat, y compris les calculs pour un mariage. Par consequent, cela ne peut pas etre la raison de l'interdiction de se marier a la fin de Chabbat.
+
+### Partie 4
+<b>Au contraire, Rabbi Zeira dit : C'est un decret de peur que l'on n'abatte une jeune volaille le</b> Chabbat, en raison de sa preoccupation pour les preparatifs de la fete de mariage de cette nuit-la. <b>Abaye lui dit : Si</b> c'est <b>ainsi, Yom Kippour qui a lieu le lundi doit etre reporte</b> lors de la fixation du calendrier, en raison d'un <b>decret qui interdit d'abattre une jeune volaille</b> le Chabbat pour le repas de la veille de Yom Kippour, qui est une mitsva. La Guemara fait une distinction entre les deux cas. <b>La,</b> en ce qui concerne la veille de Yom Kippour, lorsqu'on prepare un repas <b>pour soi, on n'est pas preoccupe,</b> et on ne negligera pas le fait que c'est Chabbat. <b>Ici,</b> dans le cas d'un mariage, on prepare un repas <b>pour les autres</b> et on est <b>preoccupe. Alternativement, la,</b> la veille de Yom Kippour, <b>il dispose d'un intervalle</b> de temps pendant lequel il peut abattre l'oiseau, car la mitsva est de consommer le repas la veille de Yom Kippour le lendemain. <b>Ici, il n'a pas d'intervalle</b> de temps, car le mariage et le festin ont lieu la nuit a la fin du Chabbat.
+
+### Partie 5
+La Gemara dit : <b>Maintenant que nous sommes arrives a cette</b> comprehension de l'interdiction de se marier a la conclusion de Chabbat, l'interdiction de ne pas avoir de rapports sexuels le <b>soir de Chabbat, aussi,</b> n'est pas due aux rapports sexuels. Il s'agit plutot d'un <b>decret de peur que l'on n'abatte une jeune volaille</b> pour la fete de mariage.
+
+### Partie 6
+§ La Gemara <b>souleve un dilemme : une vierge se marie-t-elle un mercredi et</b> a-t-elle <b>des rapports sexuels</b> ce <b>mercredi, et nous ne sommes pas concernes</b> par le fait que <b>sa resolution</b> d'emmener sa fiancee au tribunal en decouvrant qu'elle n'etait pas une vierge <b>froide</b> du jour au lendemain ? Au contraire, il ira certainement au tribunal le lendemain matin. <b>Ou peut-etre, une vierge se marie le mercredi mais s'engage dans des rapports sexuels le jeudi, car nous craignons que sa resolution se refroidisse.</b>
+
+### Partie 7
+<b>Venez et ecoutez</b> la preuve, <b>comme l'a enseigne bar Kappara : Une vierge se marie le mercredi et a des rapports sexuels le jeudi, puisque la benediction aux poissons :</b> Soyez feconds et multipliez, <b>a ete enoncee</b> le cinquieme jour de la Creation. <b>La veuve se marie le jeudi et a des rapports sexuels le vendredi, puisque la benediction</b> de la procreation <b>a ete enoncee a l'homme</b> le sixieme jour de la Creation. On peut en deduire que <b>la raison est due a la benediction, mais en ce qui concerne</b> l'eventualite que <b>sa resolution se refroidisse, nous ne sommes pas concernes.</b>
+
+### Partie 8
+La Gemara demande : <b>Si c'est le cas, une veuve doit egalement avoir des rapports sexuels le jeudi, puisque la benediction sur le poisson a ete enoncee a ce moment-la.</b> La Gemara repond : Puisqu'il existe la possibilite de reporter l'engagement de relations au jour ou <b>la benediction de l'homme</b> a ete enoncee, le faire <b>est preferable pour lui.</b>
+
+### Partie 9
+<b>Alternativement,</b> ce jour a ete etabli comme le jour ou une veuve peut s'engager dans des relations sexuelles <b>en raison</b> du fait que les Sages <b>etaient assidus</b> a veiller au bien-etre des femmes juives, <b>comme il est enseigne</b> dans une <i>baraita</i> : <b>Pourquoi les Sages ont-ils</b> dit qu'une veuve se marie le jeudi et a des rapports sexuels le vendredi ?</b> C'est <b>parce que si vous dites qu'elle doit avoir des rapports sexuels le jeudi, le lendemain</b> le marie va <b>aller exercer</b> son metier tot</b> et laisser sa femme seule. Lorsqu'un homme epouse une veuve, il n'y a pas d'observance des sept jours de rejouissance, dont le statut juridique est comme celui d'une Fete, pendant lesquels il ne va pas travailler. C'est pourquoi <b>les Sages ont veille assidument au bien-etre des femmes juives</b> et ont fait en sorte <b>que</b> le marie <b>se rejouisse avec elle</b> pendant <b>trois jours : Le jeudi,</b> le jour du mariage ; <b>la veille du Shabbat,</b> le jour ou ils ont des relations sexuelles ; <b>et le Shabbat.</b>
+
+### Partie 10
+<b>Quelle</b> difference pratique <b>y a-t-il entre</b> les deux raisons invoquees pour avoir des relations le vendredi, a savoir la <b>benediction</b> de la procreation pour l'homme <b>et</b> le fait que les Sages <b>etaient assidus ?</b> La Gemara repond : <b>Il y a</b> une difference pratique <b>entre eux</b> dans le cas d'une <b>personne oisive,</b> qui n'a pas de travail, dans ce cas la raison de la benediction s'applique et la raison que les Sages etaient assidus ne s'applique pas, car quoi qu'il arrive il n'ira pas travailler tot. <b>Alternativement,</b> il y a une difference pratique dans le cas d'une <b>Fete qui a lieu la veille de Chabbat.</b> La aussi, la raison de la benediction s'applique mais l'assiduite des Sages ne s'applique pas, car on ne travaille pas pendant une Fete.
+
+### Partie 11
+§ La Guemara cite des declarations aggadiques supplementaires de bar Kappara. <b>Bar Kappara a enseigne : L'œuvre manuelle des justes est plus grande que la creation du ciel et de la terre, car en ce qui concerne la creation du ciel et de la terre, il est ecrit : "Ma main a posé les fondements de la terre, et Ma droite a étendu les cieux"</b> (Isaie 48:13). La, la main est ecrite au singulier. <b>Tandis qu'en ce qui concerne l'œuvre manuelle des justes, il est ecrit :" Le lieu que Tu t'es fait pour y habiter, Seigneur, le Sanctuaire, Seigneur, que tes mains ont etabli" (Exode 15:17).</b> La reference est au Temple, qui est l'œuvre de l'homme, et main est ecrite au pluriel.
+
+### Partie 12
+<b>Un certain Babylonien, et son nom est Rabbi Hiyya, a repondu</b> par un defi. Il est ecrit a propos de la creation de la terre : <b>"Et Ses mains ont forme la terre seche"</b> (Psaumes 95:5). La Guemara repond : <b>"Sa main"</b> est la maniere dont il <b>est ecrit.</b> Bien que le mot soit vocalise au pluriel, il est ecrit au singulier, sans la lettre <i>yod</i>. <b>Mais n'est-il pas ecrit : "Forme,"</b> au pluriel ? Rav Nahman bar Yitzhak dit : Le pluriel fait reference a <b>Ses doigts, comme il est ecrit : <b>Lorsque je vois Tes cieux, l'œuvre de Tes doigts, la lune et les etoiles, que Tu as etablies"</b> (Psaumes 8:4).
+
+### Partie 13
+<b>La Guemara souleve une objection : "Les cieux racontent la gloire de Dieu, et le firmament proclame l'oeuvre de Ses mains"</b> (Psaumes 19:2). Les cieux ont été créés par Ses mains. La Guemara repond que <b>c'est</b> ce que le verset <b>dit : Qui atteste de l'œuvre manuelle des justes,</b> qu'ils accomplissent la volonte de Dieu ? Ce sont <b>les cieux. Et quelle est</b> l'avenue par laquelle les cieux le font ? C'est par le biais des <b>pluies</b> qui tombent grace aux prieres des justes.
+
+### Partie 14
+<b>Bar Kappara a enseigne : Quel est</b> le sens de ce qui <b>est ecrit : Et tu auras une cheville parmi tes armes [<i>azenekha</i>]"</b> (Deuteronome 23:14) ? <b>Ne le lisez pas</b> comme : <b>Vos armes [<i>azenekha</i>]. Au contraire,</b> lisez-le comme suit : <b>Sur ton oreille [<i>oznekha</i>],</b> ce qui signifie <b>que si une personne entend un propos inapproprie,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

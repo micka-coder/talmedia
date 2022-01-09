@@ -1,0 +1,54 @@
+
+### Partie 1
+<strong>MISHNA : </strong>La mitsva de donner <b>la patte avant, la machoire et la gueule</b> des animaux abattus aux pretres, connue sous le nom de dons du sacerdoce, <b>s'applique</b> a la fois <b>en Eretz</b> Yisrael <b>et en dehors d'Eretz</b> Yisrael, <b>en presence du Temple et pas en presence du Temple,</b> et il s'applique <b>aux animaux non sacres</b>, <b>mais pas aux animaux sacrifies</b>.
+
+### Partie 2
+Il est necessaire de souligner qu'elle ne s'applique pas aux animaux sacrifies, <b>comme de droit il faut</b> en deduire <i>a fortiori</i> : <b>Si les animaux non sacres</b>, <b>qui ne sont pas obliges</b> d'avoir le <b>sein et la cuisse</b> preleves sur eux et donnes au pretre, <b>sont obliges</b> d'avoir des <b>dons</b> du sacerdoce donnes sur eux, alors, en ce qui concerne les animaux <b>sacrificiels</b>, <b>qui sont obliges</b> d'avoir le <b>sein et la cuisse</b> donnes par eux, <b>n'est-il pas juste que</b> ils soient <b>obliges d'avoir</b> des <b>dons</b> du sacerdoce donnes par eux ?
+
+### Partie 3
+Ainsi, <b>le verset dit :</b> "Car la poitrine d'ondulation et la cuisse de donation, je les ai prises sur les enfants d'Israel dans le sacrifice d'actions de graces, <b>et je les ai donnees au pretre Aaron et a ses fils comme un du pour toujours</b> des enfants d'Israel" (Levitique 7:34), d'ou il decoule que le pretre <b>ne possede que ce qui est enonce a l'egard</b> de cette <b>matiere,</b> c'est-a-dire, la poitrine et la cuisse, et non la patte avant, la machoire et la gueule.
+
+### Partie 4
+<b>Tous les animaux sacrifies</b> dans <b>lesquels une tare permanente a precede leur consecration</b> ne revetent pas une saintete inherente, et seule leur valeur est consacree. <b>Et</b> une fois <b>ils ont ete rachetes,</b> ils <b>sont obliges dans</b> la mitzva d'un <b>premier-ne,</b> c'est-a-dire, leur progeniture est sujette a etre comptee comme un premier-ne, <b>et dans les dons</b> du sacerdoce, <b>et ils peuvent sortir</b> de leur statut sacre et assumer un statut <b>non sacre</b> <b>en ce qui concerne la tonte et en ce qui concerne l'utilisation pour le travail,</b> car il est interdit de tondre les animaux ayant un statut sacre ou de les utiliser pour le travail. <b>Et leur progeniture et leur lait sont autorises apres leur rachat.</b>
+
+### Partie 5
+<b>Et celui qui abat</b> ces animaux <b>en dehors</b> de la cour du Temple est <b>exempte</b> de <i>karet</i>, <b>et</b> ces animaux <b>ne rendent pas</b> un animal qui etait <b>un substitut</b> pour eux consacre. <b>Et si</b> ces animaux <b>sont morts</b> avant d'etre rachetes, <b>ils peuvent etre rachetes</b> et donnes aux chiens. Bien que, typiquement, les animaux sacrifies qui ont ete rachetes ne peuvent pas etre donnes aux chiens, dans ce cas, cela est permis. C'est la <i>halakha</i> a l'egard de tous les animaux <b>a l'exception de l'animal premier-ne</b> <b>et de l'animal <b>tithe,</b> dont la saintete est inherente, meme si une tare permanente a precede leur consecration.
+
+### Partie 6
+En ce qui concerne <b>tous</b> les animaux sacrificiels <b>dont la consecration a precede leur tare, ou</b> qui avaient <b>une tare temporaire avant leur consecration et qui, par la suite, ont developpe une tare permanente et ont ete rachetes, ils sont exemptes de la mitzva d'un premier-ne et des dons de la pretrise, et ils ne sortent pas de leur statut sacre et n'assument pas un statut non sacre en ce qui concerne la tonte et l'utilisation pour le travail. </b>
+
+### Partie 7
+<b>Et leur progeniture,</b> qui a ete concue avant la redemption, <b>ainsi que leur lait, sont interdits apres leur redemption. Et celui qui les egorge en dehors</b> de la cour du Temple est <b>oblige</b> de recevoir du <i>karet</i>, <b>et</b> ces animaux <b>remettent</b> un animal qui leur etait <b>remplacant</b> consacre. <b>Et si</b> ces animaux <b>sont morts</b> avant d'etre rachetes, ils ne peuvent pas etre rachetes et donnes aux chiens ; au contraire, <b>ils doivent etre enterres.</b>
+
+### Partie 8
+<strong>GEMARA:</strong> La mishna enseigne que le verset : "Et les ont donnes au pretre Aaron et a ses fils" (Levitique 7:34), indique que seules la poitrine et la cuisse, qui font l'objet de ce verset, sont donnees a partir des animaux sacrifies au pretre, mais les dons de la pretrise ne sont pas donnes a partir des animaux sacrifies. La Guemara en deduit : La <b>raison</b> pour laquelle les animaux sacrifies ne sont pas inclus dans la mitzva des dons du sacerdoce est due au fait <b>que le Misericordieux ecrit : "Elles,"</b> en reference a la poitrine et a la cuisse des animaux sacrifies. <b>Mais</b> si ce n'etait <b>pas</b> pour <b>ceci, je dirais</b> par <i>a fortiori</i> deduction que les <b>animaux sacrificiels</b> sont <b>obliges de</b> se faire donner des <b>dons</b> du sacerdoce par eux.
+
+### Partie 9
+La Gemara demande : Pourquoi est-il necessaire de deriver cette <i>halakha</i> d'un verset ? La deduction <i>a fortiori</i> <b>peut etre refutee</b> comme suit : <b>Qu'est-ce qui</b> est unique <b>chez les animaux non sacres</b> ? Ils sont uniques <b>en ce que</b> ils <b>sont obliges</b> dans la mitsva d'un <b>premier-ne,</b> alors que les animaux sacrifies en sont exemptes. Par consequent, la deduction <i>a fortiori</i> enoncee dans la mishna ne devrait pas s'appliquer.
+
+### Partie 10
+La Gemara repond : On pourrait <b>deduire</b> que la mitsva de donner les dons du sacerdoce s'applique aux animaux sacrifies par une <i>a fortiori</i> deduction <b>de</b> animaux non sacres <b>males</b>, qui ne donnent pas naissance a une progeniture et dont les proprietaires sont donc exemptes de compter leur progeniture comme un premier-ne, et qui sont neanmoins soumis a la remise des dons du sacerdoce. La Guemara rejette cette suggestion : <b>Qu'est-ce qui est unique <b>au sujet</b> des animaux non sacres <b>males</b> ? Ils sont uniques <b>en ce que</b> ils sont <b>obliges</b> d'avoir <b>la premiere laine tondue</b> donnee au pretre a partir d'eux.
+
+### Partie 11
+La Guemara persiste : On peut deduire que l'obligation s'applique aux animaux de sacrifice par une <i>a fortiori</i> deduction <b>des chevres males,</b> dont les proprietaires sont exemptes de compter leur progeniture comme un premier-ne ainsi que de la premiere laine tondue, et sont pourtant soumis a l'obligation de dons du sacerdoce. La Guemara rejette egalement cette affirmation : <b>Qu'est-ce qui est unique</b> aux boucs ? </b> Ils sont uniques <b>en ce qu'ils entrent dans l'enclos pour etre soumis a la dime</b> animale, alors que les animaux sacrifies ne sont pas soumis a la dime animale.
+
+### Partie 12
+La Guemara suggere en outre que l'on peut deduire l'obligation de donner la poitrine et la cuisse des animaux sacrificiels par <i>a fortiori</i> deduction <b>des vieux boucs</b>, qui sont deja entres dans l'enclos afin d'etre soumis a la dime. Par consequent, l'obligation de la dime animale, l'obligation de compter la progeniture comme un premier ne, et la premiere laine tondue ne s'appliquent pas. La Guemara rejette egalement cette suggestion : <b>Qu'est-ce qui est unique</b> aux vieux boucs ? Elles sont uniques <b>en ce qu'elles</b> ont <b>entre dans l'enclos pour etre dimees,</b> ce qui n'est pas le cas en ce qui concerne les animaux sacrificiels.
+
+### Partie 13
+La Guemara suggere a nouveau que l'on peut peut-etre deduire l'obligation de faire des dons du sacerdoce a l'egard des animaux sacrifies par une deduction <i>a fortiori</i> <b>a partir d'un animal achete</b>, auquel l'obligation de la dime animale ne s'applique jamais. <b>Ou</b> peut-etre peut-on la deduire d'un <b>animal orphelin</b>, ne apres la mort de sa mere, qui n'est pas non plus soumis a l'obligation de la dime animale. La Guemara rejette cette affirmation : <b>Qu'est-ce qui est unique</b> dans un animal achete</b> <b>ou un animal orphelin</b> ? Ils sont uniques <b>en ce que</b> bien qu'ils n'entrent pas eux-memes dans l'enclos, les animaux <b>de leur type entrent dans l'enclos pour etre soumis a la dime.</b>
+
+### Partie 14
+La Gemara repond : <b>Vous dites</b> qu'il est significatif que les animaux <b>de leur espece</b> entrent dans l'enclos ? En ce qui concerne les animaux <b>sacrificiels</b> <b>aussi,</b> les animaux non sacres <b>de leur type entrent dans l'enclos pour etre soumis a la dime.</b> En consequence, on peut pretendre <i>a fortiori</i> que la mitsva de donner les dons s'applique aux animaux sacrificiels, et que c'est seulement en raison du verset qu'ils sont exemptes.
+
+### Partie 15
+§ La Guemara conteste : <b>Et</b> maintenant qu'il a ete etabli que l'obligation des dons du sacerdoce ne s'applique pas aux animaux sacrifies, les animaux <b>non sacres</b> <b>devraient etre obliges</b> de se faire donner le <b>sein et la cuisse</b> par une <b>a fortiori</i></b> deduction : <b>Si les animaux sacrificiels</b>, <b>qui ne sont pas obliges</b> d'avoir des <b>dons</b> du sacerdoce donnes par eux, sont neanmoins <b>obliges</b> d'avoir le <b>sein et la cuisse</b> donnes par eux, alors, en ce qui concerne les animaux <b>non sacres</b>, <b>qui sont obliges</b> de se faire donner les <b>dons</b> du sacerdoce par eux, <b>n'est-il pas juste que</b> ils soient <b>obliges de</b> se faire donner le <b>sein et la cuisse</b> par eux ?
+
+### Partie 16
+La Guemara repond que le <b>verset dit : "Et voici ce que les prêtres devront</b> au peuple, A ceux qui procèdent A un abattage, qu"?il s"?agisse d"?un bA"uf ou d"?un mouton : ils donneront au prêtre la patte avant, la mA¢choire et la gueule" (Deutéromoine 18:3). Le verset indique que <b>Ceci,</b> la patte avant, la machoire et la gueule, <b>oui,</b> est donne aux pretres, mais <b>un autre element,</b> c'est-a-dire la poitrine et la cuisse, n'est <b>pas</b> donne aux pretres a partir des animaux abattus non sacres.
+
+### Partie 17
+La Gemara souleve une difficulte : <b>Mais</b> cette derivation indique que la <b>raison</b> pour laquelle le don de la poitrine et de la cuisse ne s'applique pas aux animaux non sacres est que <b>le Misericordieux ecrit "ceci,"</b> d'ou l'on peut deduire que si <b>non</b> pour <b>cela, je dirais</b> que l'on est <b>oblige de</b> donner la <b>poitrine et la cuisse</b> d'animaux <b>non sacres</b>. <b>Mais</b> la procedure de don du sein et de la cuisse <b>exige un agitation,</b> et <b>ou agiterait-on</b> le sein et la cuisse d'un animal non sacre ? <b>Si</b> on suggere de les agiter <b>a l'exterieur</b> du Temple, cela ne peut se faire, car <b>il est ecrit :</b> "Pour que la poitrine soit agitee pour une offrande d'onction <b>devant l'Eternel"</b> (Levitique 7:30), ce qui indique qu'elles doivent etre agitees a l'interieur du Temple.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

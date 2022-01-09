@@ -1,0 +1,48 @@
+
+### Part 1
+<strong>MISHNA:</strong> The court <b>would examine</b> the witnesses in capital cases <b>with seven interrogations,</b> i.e., interrogatory questions, and they are: <b>In which seven-year</b> period, that is, in which cycle of seven years within a jubilee did the event occur; <b>in which year</b> of the Sabbatical cycle did the event occur; <b>in which month</b> did the event occur; <b>on which</b> day <b>of the month</b> did the event occur; <b>on which day</b> of the week did the event occur; <b>at which hour</b> did the event occur; and <b>in what place</b> did the event occur. <b>Rabbi Yosei says:</b> The court would examine the witnesses with only three interrogations: <b>On which day</b> did the event occur, <b>at which hour,</b> and <b>in what place.</b>
+
+### Part 2
+They would also ask: <b>Do you recognize him</b> as the man who committed the transgression? <b>Did you warn him?</b> They would then ask the witnesses about the particulars of the incident. For example, in the case of <b>one who</b> is an accused <b>idol worshipper,</b> they ask the witnesses: <b>Whom,</b> i.e., which idol, <b>did he worship, and in what manner did he worship</b> it, and so on.
+
+### Part 3
+With regard to <b>all</b> judges <b>who increase</b> the number of <b>examinations,</b> i.e., who add questions about the details of the event, <b>this is praiseworthy,</b> as this may clarify that the witnesses are lying. <b>An incident</b> occurred <b>and ben Zakkai examined</b> the witnesses by questioning them <b>about</b> the color and shape of <b>the stems of figs</b> in order to unearth a contradiction between the witnesses.
+
+### Part 4
+The mishna explains: <b>What</b> is the difference <b>between interrogations and examinations?</b> With regard to <b>interrogations,</b> if <b>one</b> of the witnesses <b>says: I do not know</b> the answer, <b>their testimony is void</b> immediately. With regard to <b>examinations,</b> if <b>one says: I do not know</b> the answer, <b>and even</b> if <b>two say: We do not know</b> the answer, <b>their testimony</b> still <b>stands. Both</b> with regard to <b>interrogations and examinations, at a time when</b> the witnesses <b>contradict one another, their testimony is void.</b>
+
+### Part 5
+The mishna clarifies: If <b>one</b> witness <b>says</b> the event occurred <b>on the second of the month, and one</b> witness <b>says</b> that the event occurred <b>on the third of the month,</b> this is not regarded as a contradiction and <b>their testimony stands,</b> since it is possible to say <b>that this</b> witness <b>knows of</b> the <b>addition of</b> a day to the previous <b>month,</b> and according to his tally the event occurred on the second of the month, <b>and that</b> witness <b>does not know of</b> the <b>addition of</b> a day to the previous <b>month,</b> and according to his tally the event occurred on the third of the month. Their testimony is not considered incongruent.
+
+### Part 6
+By contrast, if <b>this</b> witness <b>says</b> the event occurred <b>on the third</b> of the month <b>and one</b> witness <b>says</b> the event occurred <b>on the fifth</b> of the month, <b>their testimony is void,</b> as this disparity cannot be attributed to a mere error. Therefore, their testimony is not congruent.
+
+### Part 7
+Similarly, if <b>one</b> witness <b>says</b> that the event occurred <b>at two hours,</b> i.e., the second hour of the day from sunrise, <b>and one</b> witness <b>says</b> that the event occurred <b>at three hours, their testimony stands,</b> as one could reasonably err this amount in estimating the hour of the day. By contrast, if <b>one says</b> that the event occurred <b>at three</b> hours, <b>and one says</b> that the event occurred <b>at five</b> hours, <b>their testimony is void.</b>
+
+### Part 8
+<b>Rabbi Yehuda says:</b> Also in this case their testimony <b>stands,</b> as one could reasonably err concerning even this length of time. Rabbi Yehuda adds: But if <b>one says</b> that the event occurred <b>at five</b> hours, <b>and one says</b> that the event occurred <b>at seven</b> hours, <b>their testimony is void.</b> Here the difference is recognizable to all, <b>since at five</b> hours <b>the sun</b> is <b>in the east and at seven the sun</b> is <b>in the west,</b> and one could not err concerning this. Therefore, their testimony is not congruent.
+
+### Part 9
+The mishna continues: <b>And afterward,</b> after the court examines the first witness, <b>they bring in the second</b> witness <b>and examine him. If the statements</b> of the witnesses <b>are found</b> to be <b>congruent,</b> the court begins to deliberate the matter. <b>They open</b> the deliberations <b>with</b> an appeal to anyone who can find a reason to <b>acquit</b> the accused. If <b>one of the witnesses said: I can teach</b> a reason to <b>acquit him, or</b> if <b>one of the students</b> sitting before the judges said: <b>I can teach</b> a reason to deem <b>him liable,</b> the judges <b>silence him,</b> i.e., both the witness and the student. The reason is that these people are not allowed to offer information such as this. But if <b>one of the students said: I can to teach</b> a reason to <b>acquit him, they raise him</b> to the seat of the court <b>and seat him among them, and he would not descend from there the entire day,</b> but would sit and participate in their deliberations.
+
+### Part 10
+<b>If the statement of</b> that student <b>has substance,</b> the court <b>listens to him. And</b> if <b>even</b> the accused <b>says: I can teach</b> a reason to <b>acquit me,</b> the court <b>listens to him</b> and considers his statement, <b>provided that his statement has substance.</b>
+
+### Part 11
+<b>And if</b> the court <b>found</b> it fit to <b>acquit him</b> during the deliberations, as all or a majority of the judges agreed to acquit him, <b>they excuse him. But if</b> a majority does <b>not</b> find it fit to acquit him, <b>they delay</b> his verdict <b>to</b> the <b>following day, and</b> they then <b>assign pairs</b> of judges to discuss the matter with each other. <b>They would minimize</b> their <b>food</b> intake <b>and they would not drink wine all day. And they</b> would <b>deliberate all night, and the following day they</b> would <b>arise early and come to court</b> and then vote again and tally the votes of the judges.
+
+### Part 12
+<b>One who</b> yesterday was of the opinion to <b>acquit</b> the defendant <b>says: I</b> said to <b>acquit, and I acquit in my place,</b> i.e., I stand by my statement to acquit. <b>And one who</b> yesterday was of the opinion to <b>deem</b> him <b>liable says: I</b> said to <b>deem</b> him <b>liable, and I deem</b> him <b>liable in my place. One who</b> yesterday <b>taught</b> a reason to deem him <b>liable may</b> then <b>teach</b> a reason to <b>acquit, but one who</b> yesterday <b>taught</b> a reason to <b>acquit may not then teach</b> a reason to deem him <b>liable.</b> If <b>they erred in the matter,</b> as one of the judges forgot what he had said the previous day, <b>two judges’ scribes,</b> who recorded the statements of the judges, <b>remind him. If</b> the court then <b>found</b> it fit to <b>acquit him</b> unanimously, <b>they excuse him, and if not</b> all of the judges determine to acquit, <b>they stand to count</b> the vote. If <b>twelve</b> judges vote to <b>acquit</b> him <b>and eleven</b> judges <b>deem</b> him <b>liable,</b> he is <b>acquitted.</b>
+
+### Part 13
+The mishna continues: In a case where <b>twelve</b> judges <b>deem</b> him <b>liable and eleven</b> judges <b>acquit; or even</b> if <b>eleven</b> judges <b>acquit and eleven deem</b> him <b>liable and one</b> judge <b>says: I do not know; or even</b> if <b>twenty-two</b> judges <b>acquit or deem</b> him <b>liable and one</b> judge <b>says: I do not know,</b> the judge who said he does not know is disregarded, and <b>the judges add</b> additional judges to the court until they reach a definitive ruling. <b>And how many</b> judges <b>do they add?</b> They add <b>pairs of two</b> judges each time they do not reach a ruling <b>until</b> there are <b>seventy-one</b> judges, but no more than that.
+
+### Part 14
+At that point, if <b>thirty-six</b> judges <b>acquit and thirty-five</b> judges <b>deem</b> him <b>liable,</b> he is <b>acquitted.</b> If <b>thirty-six</b> judges <b>deem</b> him <b>liable and thirty-five</b> judges <b>acquit, they</b> continue to <b>deliberate</b> the matter, <b>these</b> judges <b>against those</b> judges, <b>until one of those who deems</b> him <b>liable sees</b> the validity of <b>the statements of those who acquit</b> and changes his position, as the court does not condemn a defendant to death by a majority of one judge.
+
+### Part 15
+<strong>GEMARA:</strong> The Gemara asks: <b>From where are these matters</b> derived? What is the source for these seven interrogations? <b>Rav Yehuda says:</b> It is <b>as the verse states</b> with regard to an idolatrous city: <b>“And you shall inquire, and investigate, and ask diligently”</b> (Deuteronomy 13:15); <b>and</b> it <b>states</b> with regard to one who worships idols: <b>“If it be told to you and you have heard it and inquired diligently”</b> (Deuteronomy 17:4); <b>and</b> it <b>states</b> with regard to conspiring witnesses: <b>“And the judges shall inquire diligently”</b> (Deuteronomy 19:18). Taken together, there are seven interrogations alluded to in these verses by each instance of the terms inquire, investigate, and diligently.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Part 1
+the owner of the wine <b>has</b> the right to collect <b>only his wage,</b> i.e., compensation for the effort he put into salvaging the honey. He is not, however, entitled to compensation for the wine itself. <b>But if</b> the owner of the wine <b>said: I will salvage your</b> honey <b>and you will pay me the value of my</b> wine, the owner of the honey is <b>obligated to pay him</b> compensation for the wine.
+
+### Part 2
+Similarly, if <b>a river washed away his donkey and the donkey of another,</b> and <b>his</b> donkey was <b>worth one hundred dinars and</b> the donkey <b>of the other</b> was <b>worth two hundred, and</b> the individual with the less valuable donkey <b>abandoned his</b> donkey <b>and</b> instead <b>salvaged</b> the donkey <b>of the other, he has</b> the right to collect <b>only his wage,</b> i.e., compensation for the effort he put into salvaging his fellow’s donkey. <b>But if he said to</b> the owner of the more valuable donkey: <b>I will salvage your</b> donkey <b>and you will pay me the</b> monetary value <b>of mine</b> in exchange, the owner of the more valuable donkey is <b>obligated to pay</b> the rescuer compensation for his donkey.
+
+### Part 3
+<strong>GEMARA:</strong> <b>And why</b> does one who pours out wine have the right to collect only this wage? <b>Let him say to</b> the owner of the honey: <b>I have acquired</b> your honey <b>from ownerless</b> property. <b>Isn’t it taught</b> in a <i>baraita</i>: <b>One who was laden</b> with <b>jugs of wine and jugs of oil and saw that they were breaking</b> and their contents were leaking out should <b>not say: This is hereby</b> separated as <b><i>teruma</i> and tithe for</b> the <b>produce that I have in my house. And</b> even <b>if he said</b> this, it is as though <b>he did not say anything.</b> The fact that one cannot separate produce that is about to be lost as <i>teruma</i> or tithe indicates that such property is considered ownerless.
+
+### Part 4
+The Gemara answers that it is <b>as Rabbi Yirmeya says</b> in a different context, that the ruling discussed there is referring to a case <b>where the basket of the olive press</b> was <b>wrapped around it</b> so that the barrel would not break completely, and some of the contents would remain inside. <b>So too,</b> here, the mishna issued its ruling only <b>when the basket of the olive press</b> was <b>wrapped around</b> the honey barrel so that it would not break completely, and the contents are therefore not rendered ownerless.
+
+### Part 5
+The Gemara challenges the <i>baraita</i> that stated: <b>And</b> even <b>if he said</b> that the wine or oil is separated as <i>teruma</i> or tithe, it is as though <b>he did not say anything. But isn’t it taught</b> in a different <i>baraita</i>: If <b>one was traveling on the road and had money in his possession, and</b> he saw <b>a ruffian</b> moving <b>toward him,</b> he <b>should not say: The</b> second-tithe <b>produce that I have in my house is hereby desacralized onto these coins,</b> i.e., the sanctity of the produce is hereby transferred to the coins. <b>But if he said</b> so, <b>his statement stands,</b> and the produce is desacralized while the coins attain the sanctity of the second tithe.
+
+### Part 6
+The Gemara answers: <b>Here we are dealing with</b> a case <b>where he is capable of saving</b> his money from the ruffian and that is why he may transfer the sanctity of the second tithe to the coins. The Gemara asks: <b>If</b> it is a case <b>where he is capable of saving</b> the money, <b>why should he not say</b> that the produce should be desacralized <b><i>ab initio</i>?</b> The Gemara answers: It is a case <b>where he is capable of saving</b> the money only <b>with difficulty.</b> Consequently, he should not transfer the sanctity of the second tithe to the coins, as it may be lost; but if he does so, the transfer takes effect, as it is not certain that the money will be lost.
+
+### Part 7
+The Gemara asks: <b>And</b> is it so that <b>wherever there is</b> a potential <b>loss one should not say</b> that the sanctity is transferred to the money <b><i>ab initio</i>? But isn’t it taught</b> otherwise in the following <i>baraita</i>: If <b>one had ten barrels of ritually impure, untithed</b> wine, i.e., first-tithe wine from which the <i>teruma</i> of the tithe had not yet been separated, <b>and he saw that one of them had broken</b> and that its contents were leaking out, <b>or that it had been exposed</b> and is forbidden for consumption, <b>he may say: This</b> barrel <b>is hereby</b> separated as <b>the <i>teruma</i> of the tithe for the other nine</b> barrels. <b>But with regard to oil, he should not do so due to the priest’s loss.</b>
+
+### Part 8
+The Gemara answers that <b>Rabbi Yirmeya said:</b> The <i>baraita</i> issued its ruling only <b>when</b> the <b>basket of the olive press</b> was <b>wrapped around</b> the barrel so that some of its contents would remain inside. The Gemara asks: <b>Granted,</b> this rationale applies to a barrel <b>that was broken,</b> as the remaining contents are still <b>fit</b> for use, <b>but</b> with regard to a barrel that was <b>exposed, for what</b> use <b>is it fit?</b>
+
+### Part 9
+<b>And if you would say</b> that the exposed wine is <b>fit for sprinkling,</b> in order to spread its pleasant aroma, <b>isn’t it taught</b> otherwise in the following <i>baraita</i>? With regard to <b>water that was exposed, one may not pour it</b> out <b>in the public domain, nor mix clay with it, nor settle</b> dust <b>with it</b> by sprinkling it in <b>a house, nor give it to his animal to drink, nor</b> give it <b>to the animal of another.</b> This proves that exposed liquids may not be used even for sprinkling.
+
+### Part 10
+The Gemara answers: The wine is fit for use <b>because he passed it through a strainer,</b> and it is <b>in accordance with</b> the opinion of <b>Rabbi Neḥemya, as it is taught</b> in a <i>baraita</i>: A vessel covered with <b>a strainer is subject to</b> the <i>halakha</i> of <b>exposure</b> if the vessel is left unsupervised. <b>Rabbi Neḥemya said: When</b> is this so? It is so <b>when the lower vessel,</b> in which the liquid collects after passing through the strainer, <b>is exposed. But when the lower vessel is covered, even if the upper vessel is exposed, it is not subject to</b> the <i>halakha</i> of <b>exposure, because the venom of a snake is like a sponge</b> in that <b>it floats and stays in place.</b>
+
+### Part 11
+The Gemara questions this explanation: <b>Wasn’t it stated with regard to</b> Rabbi Neḥemya’s ruling that <b>Rabbi Simon says</b> that <b>Rabbi Yehoshua ben Levi says: They taught</b> Rabbi Neḥemya’s ruling <b>only where one did not mix it, but</b> if <b>one mixed</b> the wine, any venom found in it becomes capable of penetrating the strainer? Consequently, the wine remains <b>forbidden</b> even if it is passed through a strainer.
+
+### Part 12
+The Gemara answers: <b>There, too, it is possible</b> to prevent the venom from mixing with the wine <b>by placing something upon the mouth of a barrel that will filter it</b> slowly so that the venom will not penetrate the strainer, and the wine may therefore be used.
+
+### Part 13
+It has now been established that the <i>baraita</i>, which states that if one’s barrel of untithed, impure wine is breaking, he may separate it as <i>teruma</i> of the tithe for other barrels of untithed, impure wine, may be explained in accordance with the opinion of Rabbi Neḥemya. The Gemara asks: <b>And</b> according to <b>Rabbi Neḥemya, may we separate <i>teruma</i></b> from impure produce for other impure produce?
+
+### Part 14
+<b>But isn’t it taught</b> in another <i>baraita</i>: <b>One may separate <i>teruma</i> from</b> produce that is <b>impure for</b> other produce that is <b>impure, and from</b> produce that is <b>pure for</b> other produce that is <b>pure, and from</b> produce that is <b>pure for</b> produce that is <b>impure, but not from</b> produce that is <b>impure for</b> produce that is <b>pure. Rabbi Neḥemya says: Even</b> with regard to separating <b>from</b> produce that is <b>impure for</b> produce that is <b>impure,</b> the Sages <b>permitted one to separate <i>teruma</i></b> in this manner <b>only in the case of doubtfully tithed produce [<i>demai</i>].</b> Consequently, how can the aforementioned <i>baraita</i> unequivocally permit one to separate impure wine as <i>teruma</i> of the tithe for other impure wine? The Gemara answers: <b>Here too,</b> in the <i>baraita</i>, it is discussing <b>a case of <i>demai</i>.</b>
+
+### Part 15
+The Gemara discusses the continuation of the <i>baraita</i> cited previously: <b>The Master said</b> in the <i>baraita</i>: <b>But with regard to oil, he should not do so, due to the priest’s loss.</b> The Gemara asks: <b>What is different</b> about a leaking barrel of impure <b>oil,</b> which one may not separate as <i>teruma</i>, because if he does so the priest will suffer a loss? That case is different <b>because</b> the impure <i>teruma</i> oil <b>is fit</b> to be used <b>to kindle</b> a fire, and the priest will now not receive that oil. The Gemara challenges: But <b>wine is also fit</b> to be used, as the priest is able <b>to sprinkle</b> it in order to impart a pleasant aroma. Why is there is no concern that the priest will suffer a loss? <b>And if you would say</b> that <b>sprinkling is nothing,</b> i.e., it is insignificant, <b>doesn’t Shmuel say in the name of Rabbi Ḥiyya: One drinks from a <i>log</i></b> of wine worth one <b><i>sela</i>, and one sprinkles from a <i>log</i></b> of wine worth <b>two</b> <i>sela</i>, which indicates that there is greater benefit in sprinkling wine than in drinking it?
+
+### Part 16
+The Gemara answers: <b>Here we are dealing with new</b> wine that has not yet developed an aroma and is therefore not fit for sprinkling. The Gemara counters: <b>But isn’t it fit to</b> allow it to <b>age</b> so that it will become fit for sprinkling? The Gemara responds: If one waits for it to age, he might <b>come to</b> experience <b>a mishap with it,</b> as he will forget that it is impure <i>teruma</i>, which is forbidden for consumption.
+
+### Part 17
+The Gemara asks: <b>Oil</b> should <b>also</b> be subject to the concern that one might <b>come to experience a mishap with it,</b> as he might forget that it is forbidden and mistakenly drink it. The Gemara explains: The halakha is <b>that</b> the priest must <b>place</b> the oil <b>in a foul vessel,</b> and there is no concern that he will consume it, as such oil is used only for kindling. The Gemara asks: <b>Let the wine also be placed in a foul vessel,</b> in which case there would be no concern that he would drink it. The Gemara responds: <b>Now that he desires</b> to use <b>it for sprinkling, would he place it in a foul vessel?</b> This would ruin its aroma. Consequently, the wine may not be kept due to concern over a possible mishap, while the oil may be kept.
+
+### Part 18
+The Gemara notes: <b>And</b> the concern with regard to <b>a mishap itself is</b> a dispute between <b><i>tanna’im</i>. As it is taught</b> in a <i>baraita</i>: With regard to <b>a barrel of <i>teruma</i> wine that became impure</b> and is therefore forbidden for consumption, <b>Beit Shammai say:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

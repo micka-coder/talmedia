@@ -1,0 +1,18 @@
+
+### Part 1
+<b>Rather,</b> the derivation is that the entire verse beginning: “You may not eat within your gates the tithe of your grain” (Deuteronomy 12:17) <b>is a superfluous verse. After all, it is</b> already <b>written: “And there you shall bring</b> your burnt-offerings, and your sacrifices, and your tithes, and the donation of your hand, and your vows, and your gift offerings, and the firstborn of your herd and of your flock, <b>and there you shall eat before the Lord your God”</b> (Deuteronomy 12:6–7); all the items that must be eaten within the walls of Jerusalem are enumerated. <b>Let the Merciful One write</b> simply: <b>You may not eat them,</b> in general terms, which would constitute a prohibition for which one would be liable to receive lashes for each of the cases enumerated. <b>Why do I</b> need <b>the Merciful One</b> to <b>again</b> specifically <b>enumerate</b> and <b>detail</b> each of <b>them?</b>
+
+### Part 2
+<b>Rather,</b> this repetition serves <b>to designate</b> additional <b>prohibitions for each and every one</b> of the cases enumerated in the later verse (Deuteronomy 12:17). The prohibition is derived not by means of an <i>a fortiori</i> inference; rather, it is derived from the superfluous verse. Rabbi Shimon derives by means of the <i>a fortiori</i> inferences the additional prohibition that is in effect in each of these cases.
+
+### Part 3
+§ With regard to <b>the</b> matter <b>itself, Rava says:</b> With regard to <b>a non-priest who ate</b> the flesh <b>of a burnt-offering before sprinkling</b> its blood, <b>outside the walls, according to Rabbi Shimon</b> he <b>is flogged</b> with <b>five</b> sets of lashes. The Gemara suggests: <b>And let him also be flogged</b> for violating the prohibition: <b>“And a non-priest may not eat, as they are sacred”</b> (Exodus 29:33). The Gemara explains: <b>This matter</b> prohibiting a non-priest from eating consecrated food applies only in a case <b>where</b> the food <b>is fit</b> for consumption <b>by priests. Here, where</b> the food <b>is not fit</b> for consumption <b>by priests either,</b> as it is not permitted for anyone to partake of a burnt-offering, there is no specific prohibition that applies to a non-priest.
+
+### Part 4
+The Gemara suggests: <b>And let him also be flogged for</b> violating the prohibition: <b>“And any flesh torn of animals in the field you shall not eat”</b> (Exodus 22:30). From the term “in the field,” a general <i>halakha</i> is derived: <b>Once the flesh emerged outside its partition</b> and is in the field, e.g., sacrificial meat that was taken outside the Tabernacle curtains that demarcate the courtyard, there is a prohibition, and the flesh is <b>forbidden.</b> The Gemara explains: <b>This matter,</b> the prohibition against eating sacrificial flesh outside the partition of the Temple courtyard, applies only in a case <b>where</b> the flesh <b>is fit</b> for consumption <b>inside</b> the courtyard. <b>Here,</b> in the case of a burnt-offering, <b>where</b> the flesh <b>is not fit</b> for consumption <b>inside</b> the courtyard <b>either,</b> as it is not permitted for anyone to partake of a burnt-offering, there is no specific prohibition that applies to a non-priest partaking of the flesh outside the courtyard.
+
+### Part 5
+The Gemara suggests: <b>And let him also be flogged in accordance with</b> the statement <b>of Rabbi Eliezer. As Rabbi Eliezer says</b> that when it is stated with regard to leftover flesh and loaves from the inauguration offerings: <b>“It shall not be eaten because it is sacred”</b> (Exodus 29:34),
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

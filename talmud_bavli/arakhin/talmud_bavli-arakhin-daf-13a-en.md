@@ -1,0 +1,36 @@
+
+### Part 1
+<b>Harim came and</b> also <b>drew his portion and the lot of</b> five <b>other</b> watches, for a total of <b>six. And likewise Pashḥur, and likewise Immer. The prophets among them stipulated that even</b> if the descendants of <b>Jehoiarib,</b> who originally <b>headed the priestly watches, would ascend</b> to Eretz Yisrael, <b>Jedaiah would not be demoted from its place</b> as the first of the watches. <b>Rather,</b> the watch of <b>Jedaiah</b> would retain <b>precedence, and Jehoiarib</b> would be <b>subordinate to it.</b> The Gemara concludes: <b>Rather,</b> when the <i>baraita</i> equates the details pertaining to the destruction of the two Temples, it is referring <b>to other</b> details, i.e., that both were destroyed on the Ninth of Av and on a Sunday, but it is not equating them with regard to all the details.
+
+### Part 2
+The Gemara cites a third answer to its question about how the <i>baraita</i> can claim that the Second Temple was destroyed in a year following a Sabbatical Year, when a calculation of the number of years that it stood indicates that it was destroyed in a Sabbatical Year. <b>Rav Ashi said: Those six years</b> from the time the Second Temple was built <b>until Ezra ascended</b> to Eretz Yisrael <b>and sanctified</b> the land <b>are not counted,</b> as the Sabbatical cycle was not in effect during that period. Consequently, the Second Temple was destroyed in a year following a Sabbatical Year.
+
+### Part 3
+It is known that Ezra ascended to Eretz Yisrael six years after the beginning of the construction of the Second Temple, <b>as it is written: “Then ceased the work of the House of God, which is at Jerusalem;</b> and it ceased until the second year of the reign of Darius, king of Persia” (Ezra 4:24). This proves that construction on the Temple started in the second year of the reign of Darius. <b>And it is written: “And this house was finished on the third day of the month Adar, which was in the sixth year of the reign of Darius the king”</b> (Ezra 6:15), which was the fifth year from when they started building.
+
+### Part 4
+<b>And</b> the Sages <b>taught</b> in a <i>baraita</i>: <b>At that same time in the following year Ezra ascended</b> from Babylonia <b>together with his</b> company of <b>exiles, as it is written, “And he came to Jerusalem in the fifth month, which was in the seventh year of the king”</b> (Ezra 7:8). Accordingly, Ezra came to Eretz Yisrael six years after the beginning of the construction of the Temple. It was at that time that the counting of the Sabbatical and Jubilee cycles began. The counting continued for 414 years until the destruction of the Temple, which means that the Temple was destroyed in a Sabbatical Year.
+
+### Part 5
+§ The Gemara discusses <b>the</b> matter <b>itself</b> that is taught in the <i>baraita</i> cited earlier (12b): <b>The Jewish people counted seventeen Jubilees from when they entered Eretz</b> Yisrael <b>until they left</b> when the Temple was destroyed. <b>And you cannot say</b> that <b>they counted from when they entered, because if you say they counted from when they entered, the result is</b> that <b>the Temple was destroyed at the beginning of the Jubilee</b> cycle, <b>and you do not find</b> that the Jubilee Year was <b>“in the fourteenth year after the city was smitten”</b> (Ezekiel 40:1). Rather, remove from them the seven years when they conquered Eretz Yisrael and the seven years when they divided Eretz Yisrael, as the first Jubilee cycle began after the Jewish people conquered and divided Eretz Yisrael.
+
+### Part 6
+The Gemara asks: <b>From where do we</b> derive that there were <b>seven</b> years during <b>which</b> the Jewish people <b>conquered</b> Eretz Yisrael? The Gemara answers: <b>As Caleb said</b> to Joshua, when it came time to divide Eretz Yisrael at the conclusion of part of the conquest: <b>“Forty years old was I when Moses the servant of the Lord sent me from Kadesh-Barnea to spy out the land…and now,</b> behold, <b>I am this day eighty-five</b> years <b>old”</b> (Joshua 14:7, 10).
+
+### Part 7
+<b>And the Master says</b> in a <i>baraita</i>: During <b>the first year</b> after the exodus, <b>Moses constructed the Tabernacle;</b> during the <b>second</b> year, <b>the Tabernacle was erected and</b> Moses <b>sent the spies.</b> Consequently, <b>how old was Caleb when</b> the Jewish people <b>crossed the Jordan? He was eighty less two,</b> i.e., seventy-eight years <b>old. When</b> Joshua <b>was dividing</b> Eretz Yisrael into <b>inheritances,</b> Caleb <b>said</b> to him: <b>I am eighty-five years old. It is</b> therefore <b>found that they conquered</b> the land for <b>seven</b> years.
+
+### Part 8
+The Gemara asks: <b>And from where do we</b> derive that there were <b>seven</b> years during which the Jewish people <b>divided</b> up Eretz Yisrael into ancestral portions? The Gemara answers: <b>If you wish, say</b> that <b>from</b> the fact <b>that they conquered</b> the land for <b>seven</b> years, it is reasonable to assume that <b>they divided</b> the land for <b>seven</b> years. <b>And if you wish, say</b> instead: It can be derived <b>from</b> the fact <b>that you do not find</b> that <b>“the fourteenth year after the city was smitten”</b> (Ezekiel 40:1) was a Jubilee Year (see 12a) unless the Jewish people divided Eretz Yisrael for seven years.
+
+### Part 9
+<strong>MISHNA:</strong> One maintains <b>no fewer than six lambs that</b> have been <b>inspected</b> for blemishes <b>in the Chamber of the Lambs,</b> which are <b>sufficient for</b> the offerings of <b>Shabbat and for the</b> two <b>Festival days of Rosh HaShana</b> that may occur adjacent to it. <b>And one may add</b> inspected lambs <b>up to an infinite</b> number. One plays <b>no fewer than two trumpets</b> and no fewer <b>than nine harps</b> in the Temple, <b>and one may add up to an infinite</b> number. <b>And the cymbal</b> was played <b>alone,</b> and none may be added to it.
+
+### Part 10
+<strong>GEMARA:</strong> The Gemara assumes that the mishna means that there must be at least six inspected lambs in the Chamber of the Lambs, so that if Rosh HaShana occurs on the two days adjacent to Shabbat, there will be enough lambs available for all the communal offerings that are sacrificed on those days. The Gemara therefore objects: But <b>there are more</b> than six lambs which are required for the <b>daily offerings and additional offerings</b> of a Shabbat and Rosh HaShana that are adjacent to one another, as one day of Rosh HaShana alone requires sixteen lambs.
+
+### Part 11
+The Gemara explains: The <b><i>tanna</i> is referring to</b> the <b>general</b> policy for the entire year, <b>and he is referring only to</b> the number of lambs necessary for <b>the daily offerings</b> sacrificed over the course of three ordinary days. <b>And what</b> is the meaning of the phrase: <b>Sufficient for Shabbat and for the</b> two <b>Festival days of Rosh HaShana?</b> It is <b>merely a mnemonic</b> device, <b>and this</b> is what <b>he is saying:</b> One maintains <b>no fewer than six lambs</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

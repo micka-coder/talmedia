@@ -1,0 +1,54 @@
+
+### Part 1
+<b>the section</b> dealing with priests who have become <b>intoxicated with wine</b> (Leviticus 10:8–11); <b>the section of the lamps</b> (Numbers 8:1–7); <b>and the section of the red heifer</b> (Numbers, chapter 19), as all of these sections are necessary for service in the Tabernacle.
+
+### Part 2
+§ The Gemara continues its discussion concerning the writing of the Torah: <b>Rabbi Elazar says: The majority of the Torah</b> was transmitted <b>in writing, while the minority</b> was transmitted <b>orally, as it is stated: “I wrote for him the greater part of My Torah; they were reckoned a strange thing”</b> (Hosea 8:12), meaning that the majority of the Torah was transmitted in written form. <b>And Rabbi Yoḥanan says: The majority</b> of the Torah was transmitted <b>orally [<i>al peh</i>], while the minority</b> was transmitted <b>in writing, as it is stated</b> with regard to the giving of the Torah to Moses on Mount Sinai: <b>“For on the basis of [<i>al pi</i>] these matters</b> I have made a covenant with you and with Israel” (Exodus 34:27), which indicates that the greater part of the Sinaitic covenant was taught orally.
+
+### Part 3
+The Gemara asks: <b>And</b> according to <b>the other</b> Sage, Rabbi Yoḥanan, <b>as well, isn’t it written: “I wrote for him the greater part of My Torah”?</b> How does he understand this verse? The Gemara answers: <b>This</b> verse <b>is</b> not a statement, but rather a rhetorical question expressing <b>bewilderment:</b> For did <b>I write for him the greater part of My Torah?</b> In that case <b>they,</b> the Jewish people, <b>would be reckoned as strangers,</b> meaning that there would be no difference between them and the nations of the world if everything was written down. Rather, the majority of the Torah must remain an oral tradition.
+
+### Part 4
+The Gemara asks: <b>And</b> according to <b>the other</b> Sage, Rabbi Elazar, <b>as well, isn’t it written: “For on the basis of these matters</b> I have made a covenant with you and with Israel”? How does he understand this verse? The Gemara answers: <b>That</b> verse, which indicates that the covenant was based on that which was taught by oral tradition, is stated <b>due to</b> the fact that <b>it is</b> more <b>difficult to learn</b> matters transmitted orally, but not because these matters are more numerous than those committed to writing.
+
+### Part 5
+<b>Rabbi Yehuda bar Naḥmani, the disseminator for Rabbi Shimon ben Lakish, expounded</b> as follows: <b>It is written: “Write you these matters”</b> (Exodus 34:27), <b>and it is written</b> later in that same verse: <b>“For on the basis of [<i>al pi</i>] these matters.” How</b> can <b>these</b> texts be reconciled? They mean to teach: <b>Matters that were written you may not express them orally [<i>al peh</i>],</b> and <b>matters that were</b> taught <b>orally you may not express them in writing. The school of Rabbi Yishmael taught:</b> The word <b>“these”</b> in the mitzva recorded in the verse “Write you these matters” is used here in an emphatic sense: <b>These</b> matters, i.e., those recorded in the Written Law, <b>you may write, but you may not write <i>halakhot</i>,</b> i.e., the <i>mishnayot</i> and the rest of the Oral Law.
+
+### Part 6
+<b>Rabbi Yoḥanan says: The Holy One, Blessed be He, made a covenant with the Jewish people only for the sake of the matters that</b> were transmitted <b>orally [<i>be’al peh</i>], as it is stated: “For on the basis of [<i>al pi</i>] these matters I have made a covenant with you and with Israel”</b> (Exodus 34:27).
+
+### Part 7
+§ The mishna teaches that the Sages enacted that <b>a joining</b> of courtyards [<i>eiruv</i>] <b>is placed in an old house</b> where it had regularly been placed <b>on account of the ways of peace.</b> The Gemara asks: <b>What is the reason</b> for this? <b>If we say</b> that it is <b>to</b> show <b>respect</b> to the owner of that house, <b>but wasn’t</b> it related about <b>a certain charity box,</b> which was fashioned for the benefit of the community and brought honor to the person in whose house it was placed, <b>that initially it was</b> placed <b>in Rav Yehuda’s house, and afterward</b> it was moved to <b>Rabba’s house, and afterward</b> it was transferred to <b>Rav Yosef’s house, and afterward</b> it was moved to <b>Abaye’s house, and afterward</b> it was moved to <b>Rava’s house.</b> This teaches that there is no issue here of respect, and that such items would ordinarily be moved from place to place.
+
+### Part 8
+<b>Rather,</b> say instead that the Sages instituted this enactment <b>to</b> avoid arousing <b>suspicion.</b> Since the <i>eiruv</i> had regularly been placed in a particular house, were it to be moved, people might think that the residents of the alleyway suspected that the owner of the house was stealing from them, and therefore they put it somewhere else.
+
+### Part 9
+§ The mishna teaches that the Sages enacted that <b>the pit that is nearest to the irrigation channel</b> that supplies water to several pits or fields is filled first on account of the ways of peace. <b>It was stated</b> that the <i>amora’im</i> disagree about the following issue: When <b>people</b> own fields <b>along a river</b> and they irrigate their fields with water that is redirected from it, who among them enjoys first rights to irrigate his field? <b>Rav said:</b> The owners of <b>the lowermost</b> fields <b>drink the water,</b> i.e., irrigate their fields, <b>first. And Shmuel said:</b> The owners of <b>the uppermost</b> fields <b>drink the water first.</b>
+
+### Part 10
+The Gemara explains: <b>With</b> regard to a case where the water <b>flows</b> on its own, <b>everyone agrees</b> that whoever wishes to irrigate may do so as he wishes. <b>When they disagree,</b> it is <b>with</b> regard to a case <b>where they</b> need to <b>dam</b> the river <b>and irrigate</b> through channels. <b>Shmuel said:</b> The owners of <b>the uppermost</b> fields <b>drink the water first because</b> they can <b>say: We are nearer</b> to the river’s headwaters. <b>And Rav said:</b> The owners of <b>the lowermost</b> fields <b>drink the water first because</b> they can <b>say: Let the river go its</b> natural <b>way</b> and after we take what we need, dam it as you please.
+
+### Part 11
+<b>We learned</b> in the mishna that the Sages enacted that <b>the pit that is nearest to the irrigation channel</b> that supplies water to several pits or fields <b>is filled first on account of the ways of peace.</b> This teaches that the party who is nearest to the water’s source enjoys first rights, and it supports Shmuel’s opinion and is difficult for Rav. <b>Shmuel interpreted</b> the mishna <b>in accordance with</b> the opinion <b>of Rav:</b> The mishna refers here to <b>an irrigation channel that passes the mouth of the pit,</b> so that the pit fills with water on its own, even without damming.
+
+### Part 12
+The Gemara asks: <b>If so, what</b> is the purpose <b>of stating</b> this? It is obvious. The Gemara answers: <b>Lest you say</b> that the owners of the other fields <b>can say to</b> the owner of the pit: <b>Dam</b> your pit as well so that water not enter it, <b>and irrigate</b> your fields <b>in proportion [<i>hindeza</i>],</b> just like the rest of us. The mishna therefore <b>teaches us</b> that the owner of the pit is not required to do this, and consequently his pit is filled first.
+
+### Part 13
+<b>Rav Huna bar Taḥalifa said: Now that the <i>halakha</i> was stated neither in accordance with</b> the opinion of <b>this Sage,</b> Rav, <b>nor in accordance with</b> the opinion of <b>that Sage,</b> Shmuel, <b>whoever is stronger prevails.</b> Since the <i>halakha</i> has not been decided, the court refuses to judge the case and leaves the claimants to settle the matter themselves, in the hope that the rightful party will exert himself and prevail.
+
+### Part 14
+<b>Rav Shimi bar Ashi came before Abaye</b> and <b>said to him: Master, set a time for me</b> to study with you. Abaye <b>said to him: I have</b> a set <b>time for myself,</b> and I cannot devote it to you. Rav Shimi bar Ashi said to him: <b>Master, set</b> a time <b>for me at night,</b> and we can study then. Abaye <b>said to him: I have</b> to bring <b>water</b> at night with which <b>to irrigate</b> my fields. Rav Shimi bar Ashi <b>said to him: I will irrigate for Master during the day, and</b> then <b>Master can set</b> a time <b>for me at night</b> to study with him. Abaye <b>said to him: Very well;</b> this is an acceptable arrangement.
+
+### Part 15
+What did Rav Shimi bar Ashi do? <b>He</b> first <b>went to</b> the owners of <b>the uppermost</b> fields, and <b>said to them:</b> The owners of <b>the lowermost</b> fields <b>drink the water first,</b> in accordance with the opinion of Rav. <b>He</b> then <b>went to</b> the owners of <b>the lowermost</b> fields, <b>and said to them:</b> The owners of <b>the uppermost</b> fields <b>drink the water first,</b> in accordance with the opinion of Shmuel. <b>In the meantime,</b> while the owners of the upper fields and the lower fields were arguing over who has first rights to the water, Rav Shimi bar Ashi <b>dammed</b> the river <b>and irrigated</b> Abaye’s fields. <b>When he came before Abaye,</b> the latter <b>said to him: You have acted for me in accordance with two</b> opposing opinions. <b>And Abaye would not</b> even <b>taste the produce of that year</b> because he thought that the water had reached his field in an unlawful manner.
+
+### Part 16
+It is related that there were <b>certain residents</b> of a place called <b>Bei Ḥarmakh who went</b> and <b>dug</b> a channel <b>at the head of the Shanvata</b> River in order to divert the water and allow it to circle their fields, <b>and then they returned</b> the water to the river further <b>downstream.</b> Those who owned fields further <b>upstream came before Abaye,</b> and <b>said to him: This damages our river,</b> as the water is not flowing as it once had. Abaye <b>said to them: Dig a little deeper with them,</b> and that should solve the problem. <b>They said to him:</b> If we do that, <b>our pits will become dry.</b> Once Abaye heard this <b>he said to</b> the residents of Bei Ḥarmakh: <b>Go remove yourselves from there,</b> and dam the diversion that you made for the river.
+
+### Part 17
+§ The mishna teaches: Taking <b>animals, birds, or fish</b> that were caught in <b>traps</b> belonging to another person is considered robbery on account of the ways of peace. And Rabbi Yosei says that this is full-fledged robbery. The Gemara comments: <b>With regard to nets [<i>uzlei</i>] and</b> woven <b>traps [<i>oharei</i>],</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

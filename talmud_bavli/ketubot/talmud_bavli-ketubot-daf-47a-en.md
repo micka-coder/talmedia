@@ -1,0 +1,36 @@
+
+### Part 1
+The Gemara explains: The reason is <b>due to enmity,</b> so that he should not bear a grudge against her for finding articles and withholding them from him, which might lead him to become reluctant to provide her with sustenance.
+
+### Part 2
+§ The mishna further taught that a father is entitled <b>to</b> his daughter’s <b>earnings.</b> The Gemara asks: <b>From where do we</b> derive this? The Gemara answers: <b>As Rav Huna said</b> that <b>Rav said: From where</b> is it derived <b>that the earnings of a daughter</b> belong <b>to her father? As it is stated: “And if a man sell his daughter to be a maidservant”</b> (Exodus 21:7), which indicates that <b>just as</b> with regard to <b>a maidservant, her earnings</b> belong <b>to her master,</b> as she was sold for this purpose, <b>so too</b> with regard to <b>a daughter, her earnings</b> go <b>to her father.</b> The Gemara asks: <b>But</b> one can <b>say</b> that <b>this applies</b> only to <b>a minor, as</b> a father <b>can sell her</b> as a maidservant. <b>However,</b> with regard to <b>a young woman, whom he cannot sell,</b> perhaps <b>her earnings</b> should belong <b>to her.</b>
+
+### Part 3
+The Gemara responds: It <b>is reasonable</b> that her earnings should go <b>to her father, as, if it should enter your mind</b> to say that <b>her earnings</b> do <b>not</b> belong <b>to her father,</b> what about the fact <b>that the Merciful One entitles a father to bring</b> his daughter, when she is a young woman, <b>to the wedding canopy? How can he bring her</b> to the wedding canopy? <b>Doesn’t he</b> thereby <b>cause her to neglect her earnings</b> at that time, as she cannot work while getting married? If she has the rights to her own earnings, she can object on these grounds.
+
+### Part 4
+<b>Rav Aḥai refutes</b> this claim: <b>Say that</b> when he brings her to the wedding canopy, <b>he gives her the wages she neglects</b> by taking a break from her work, and therefore the above objection does not apply. <b>Alternatively,</b> it is referring to a case <b>where he brought her</b> to the wedding canopy <b>at night,</b> when she does not work. <b>Alternatively,</b> it means <b>that he brought her</b> to the wedding canopy <b>on <i>Shabbatot</i> or Festivals,</b> when it is prohibited to work.
+
+### Part 5
+<b>Rather,</b> the Gemara reverts to the original exposition based upon the case of a Hebrew maidservant, and argues that with regard to <b>a minor,</b> it <b>is not necessary</b> to derive from <b>a verse</b> that her father is entitled to her earnings, for the following reason: <b>Now,</b> if her father has the right to <b>sell her</b> as a maidservant, is it <b>necessary</b> to state that <b>her earnings</b> belong to him? <b>Rather, when the verse was necessary,</b> it was <b>to</b> teach that the earnings of <b>a young woman</b> also belong to her father.
+
+### Part 6
+§ The mishna taught that a father is entitled <b>to</b> effect <b>the nullification of</b> his daughter’s <b>vows.</b> The Gemara asks: <b>From where do we</b> derive this? The Gemara answers <b>that it is written: “Being in her youth, in her father’s house”</b> (Numbers 30:17), and the Torah proceeds to explain that during this period a father can nullify his daughter’s vows.
+
+### Part 7
+The mishna further taught: <b>And he accepts her bill of divorce</b> on her behalf. The Gemara asks: <b>From where do we</b> derive this? The Gemara answers <b>that it is written: “And she departs</b> out of his house and goes <b>and becomes</b> another man’s wife” (Deuteronomy 24:2). This verse <b>juxtaposes departing</b> a marriage <b>and becoming</b> a wife, which teaches that the <i>halakhot</i> of betrothal apply to her departing her husband’s home via a bill of divorce. Consequently, just as a father has the right to accept betrothal on his daughter’s behalf, he can also receive a bill of divorce on her behalf.
+
+### Part 8
+§ The mishna taught that a father <b>may not consume</b> the <b>produce</b> of his daughter’s property <b>during her lifetime. The Sages taught</b> in a <i>baraita</i>: <b>A father may not consume the produce</b> of his daughter’s property <b>during his daughter’s lifetime. Rabbi Yosei, son of Rabbi Yehuda, says: A father may consume</b> this <b>produce during his daughter’s lifetime.</b> The Gemara asks: <b>With regard to what</b> principle <b>do they disagree?</b> The Gemara explains that <b>the first <i>tanna</i> holds: Granted,</b> in the case of <b>a husband, the Sages decreed for him</b> that he should consume her <b>produce, as if</b> this were not <b>so, he would refrain from redeeming</b> her if she were captured. The right of a husband to consume the produce of his wife’s property was instituted in order to correspond to his obligation to redeem his wife from captivity.
+
+### Part 9
+<b>However,</b> in the case of <b>a father, what is there to say? That he will refrain from redeeming</b> her? Even <b>without this</b> right to the produce of her property <b>he will redeem her,</b> as she is his daughter and he will certainly not turn a blind eye to his own flesh and blood. <b>And Rabbi Yosei, son of Rabbi Yehuda, holds:</b> If he is deprived of the right to the produce of his daughter’s property, <b>a father will also refrain from redeeming</b> her, as he <b>will reason: A pouch</b> of money <b>is held in her</b> hand for a time of need, so <b>let her go and redeem herself.</b>
+
+### Part 10
+§ The mishna further taught that if the daughter <b>married, the husband has more</b> rights <b>than</b> her father, <b>as he consumes</b> the produce of her property. <b>The Sages taught</b> in a <i>baraita</i>: If the father <b>wrote for her</b> in her marriage contract that he was providing <b>produce, clothing, and vessels that would come with her</b> as a dowry <b>from her father’s house to her husband’s house,</b> and <b>she died</b> during the betrothal period, <b>the husband does not have the right to these objects. They said in the name of Rabbi Natan: The husband does have the right to these objects.</b>
+
+### Part 11
+The Gemara suggests: <b>Let us say that the dispute</b> of these <i>tanna’im</i> <b>is</b> parallel to <b>the dispute</b> between <b>Rabbi Elazar ben Azarya and the Rabbis. As we learned</b> in a mishna (54b): If a woman <b>was widowed or divorced, whether from marriage or from betrothal, she collects</b> the <b>entire</b> sum specified in her marriage contract, including any extra amount her husband added to the standard sum required by the Sages. <b>Rabbi Elazar ben Azarya says:</b> If she was widowed or divorced <b>from marriage, she collects</b> the <b>entire</b> amount. <b>But</b> if she was widowed or divorced <b>from betrothal,</b> she is entitled to collect only the standard minimum sum required by the Sages: If she was betrothed as <b>a virgin she collects two hundred</b> dinars, <b>and</b> if she was <b>a widow</b> she is entitled to <b>one hundred dinars.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

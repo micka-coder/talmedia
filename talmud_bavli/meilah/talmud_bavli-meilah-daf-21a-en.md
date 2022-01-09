@@ -1,0 +1,51 @@
+
+### Part 1
+Rav Sheshet adds that it is necessary for the mishna to teach this <i>halakha</i>, <b>lest you say</b> that the <b>agent has uprooted the agency of the homeowner</b> by adding to his instructions, <b>and</b> therefore the homeowner is <b>not</b> liable for the prohibition of <b>misuse</b> even for the first piece of meat. Consequently, the mishna <b>teaches us</b> that the homeowner is also liable.
+
+### Part 2
+<strong>MISHNA:</strong> If the homeowner <b>said to</b> the agent: <b>Bring me</b> this item or this money <b>from the window</b> in the wall <b>or from the chest [<i>hadeluskema</i>], and</b> the agent obeyed and <b>brought</b> it <b>to him</b> from the place that he instructed him, <b>even though the homeowner said: In my heart,</b> my desire was <b>only</b> that he should bring me the item <b>from that</b> other place, <b>and</b> as <b>he brought</b> it <b>from</b> this place he did not fulfill my instructions, nevertheless <b>the homeowner is liable for misuse</b> if the item or money is consecrated, as the agent did in fact fulfill his instructions. <b>But</b> if the homeowner <b>said to</b> the agent: <b>Bring me</b> this item or this money <b>from the window</b> in the wall, <b>and</b> the agent <b>brought</b> it <b>to him from the chest; or</b> if the homeowner said to the agent: Bring me this item or this money <b>from the chest, and</b> the agent <b>brought</b> it <b>to him from the window, the agent is liable for misuse.</b>
+
+### Part 3
+In a case where the homeowner <b>sent</b> consecrated money <b>in the hand of a deaf-mute, an imbecile, or a minor,</b> who lack halakhic competence and cannot be commissioned as agents, in order to purchase an item from a storekeeper, <b>if they performed his agency, the homeowner is liable for misuse,</b> as his instructions were fulfilled. If <b>they did not perform his agency</b> but purchased a different item from the storekeeper, <b>the storekeeper is liable for misuse.</b>
+
+### Part 4
+If the homeowner <b>sent</b> the money <b>in the hand of</b> a halakhically <b>competent</b> person <b>and</b> the homeowner <b>remembered</b> that the money was consecrated <b>before</b> the agent <b>reached the storekeeper, the storekeeper is liable for misuse when he spends</b> the money for his personal use. The homeowner is exempt from liability for misuse, because once he remembers that the money is consecrated his misuse is no longer unwitting, and one is liable to bring an offering for misuse only for unwitting misuse of consecrated property.
+
+### Part 5
+<b>What shall</b> the homeowner <b>do</b> in a case where he remembers that the money is consecrated, in order to prevent the storekeeper from liability for misuse? <b>He takes one <i>peruta</i> or a vessel and says:</b> The <b>consecrated <i>peruta</i>, wherever it may be, is desacralized with this</b> <i>peruta</i> or vessel. The <i>peruta</i> is thereby desacralized, <b>as a consecrated item is desacralized with money and with</b> an item that has <b>the equivalent</b> value of <b>money.</b> The result is that the storekeeper spends non-sacred money.
+
+### Part 6
+<strong>GEMARA:</strong> The mishna teaches that if the agent did as instructed by the homeowner, even if the homeowner claimed that he had another desire, it is the homeowner who is liable for misuse. The Gemara asks: <b>What is</b> the mishna <b>teaching us?</b> The Gemara answers: It is teaching that unspoken <b>matters that</b> remain <b>in the heart are not</b> significant <b>matters.</b> Therefore it is the homeowner who is liable, not the agent, despite the fact that the agent did not do what the homeowner desired.
+
+### Part 7
+§ The mishna teaches: In a case where the homeowner <b>sent</b> consecrated money <b>in the hand of a deaf-mute, an imbecile, or a minor,</b> who lack halakhic competence and cannot be commissioned as agents, in order to purchase an item from a storekeeper, <b>if they performed</b> his agency, the homeowner is liable for misuse, as his instructions were fulfilled. The Gemara raises a difficulty: <b>But they cannot be</b> involved in <b>agency.</b> Since these groups of people lack halakhic competence, they cannot be agents; if so, how can the homeowner be liable for misuse?
+
+### Part 8
+<b>Rabbi Elazar says</b> in explanation: The Sages <b>rendered</b> these individuals halakhically <b>like a vat [<i>kema’atan</i>] of olives</b> with regard to ritual impurity. Since it is beneficial for the homeowner when the moisture of the olives, i.e., liquid that seeps from the olives, leaks into a vat, as explained below, it is considered as though the homeowner had intent for the moisture to be there. Similarly, with regard to these categories of people, since it suits the homeowner when they do what he requested it is considered as though they acted with his intent.
+
+### Part 9
+<b>As we learned</b> in a mishna (<i>Teharot</i> 9:1): <b>When do the olives</b> become <b>susceptible to</b> ritual <b>impurity? From when they exude</b> moisture. This is referring specifically to the <b>moisture</b> that emerges into <b>the vat, but not the moisture</b> that emerges into <b>the basket.</b> The moisture that comes into the vat softens the olives and is beneficial to the olive oil production, as it renders them easier to press. For this reason it is considered as though the homeowner has intent for the moisture to be there, and that moisture therefore renders the olives it touches susceptible to ritual impurity. By contrast, moisture in the basket serves no purpose, as it trickles out through holes in the basket. Consequently, it is not there with the intent of the homeowner and does not render the olives susceptible to ritual impurity.
+
+### Part 10
+<b>Rabbi Yoḥanan says:</b> This case of a deaf-mute, imbecile or minor, is <b>like that which we learned</b> in a <i>baraita</i> with regard to placing food for a joining of Shabbat boundaries, i.e., an <i>eiruv</i>: If <b>one placed</b> the food of the <i>eiruv</i> <b>on a monkey, and</b> the monkey <b>brought it</b> to the place where he wanted the <i>eiruv</i> deposited, <b>or</b> if he placed it <b>on</b> a trained <b>elephant, and</b> the elephant <b>brought it</b> to the proper location, <b>and he told another</b> person <b>to receive it from</b> the animal, <b>it is</b> a valid <b><i>eiruv</i>. Evidently, the agency is performed</b> by the monkey or elephant, despite the fact that they are unfit to serve as agents. <b>So too,</b> in the case of the deaf-mute, imbecile, or minor, <b>the agency is performed</b> despite the fact that they cannot be involved in agency.
+
+### Part 11
+§ The mishna teaches: If the homeowner <b>sent</b> the money <b>in the hand of</b> a halakhically <b>competent</b> person and the homeowner remembered that the money was consecrated before the agent reached the storekeeper, the storekeeper is liable for misuse when he spends the money for his personal use. This indicates that the storekeeper is liable <b>even though the agent did not remember,</b> but the homeowner alone remembered. <b>And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i>: If <b>the homeowner remembered</b> that the money was consecrated, <b>but the agent did not remember, the agent is liable for misuse.</b> If <b>they both remembered</b> that the money is consecrated, the <b>storekeeper is liable for misuse.</b>
+
+### Part 12
+<b>Rav Sheshet said</b> in resolution of this contradiction: <b>The mishna</b> is <b>also</b> referring to a case <b>where both</b> the agent and the agent <b>remembered</b> that the money was consecrated, and for this reason the storekeeper alone is liable for misuse.
+
+### Part 13
+<strong>MISHNA:</strong> If the homeowner <b>gave</b> the agent <b>one</b> consecrated <b><i>peruta</i></b> and <b>said to him: Bring me lamps [<i>nerot</i>] with one-half of it and wicks with one-half of it, and</b> the agent <b>went and brought him wicks with the entire</b> <i>peruta</i>, <b>or lamps with the entire</b> <i>peruta</i>; <b>or</b> in a case <b>where</b> the homeowner <b>said to</b> the agent: <b>Bring me lamps with the entire</b> <i>peruta</i> <b>or wicks with the entire</b> <i>peruta</i>, <b>and</b> the agent <b>went and brought</b> him <b>lamps with one-half of it and wicks with one-half of it, both of them are not liable</b> for misuse of the <i>peruta</i>. In both cases, the homeowner is exempt because his instructions were fulfilled only with regard to half of a <i>peruta</i>, and the agent is exempt as he spent only half of a <i>peruta</i> on his own initiative.
+
+### Part 14
+<b>But if</b> the homeowner <b>said to</b> the agent: <b>Bring me lamps from such and such place with one-half of</b> the <i>peruta</i> <b>and wicks from such and such place with one-half of</b> the <i>peruta</i>, <b>and</b> the agent <b>went and brought him lamps from the place</b> that he designated for <b>wicks, and wicks from the place</b> that he designated for <b>lamps, the agent is liable for misuse,</b> as he deviated from the homeowner’s instructions by the sum of an entire <i>peruta</i>.
+
+### Part 15
+If the homeowner <b>gave</b> the agent <b>two</b> consecrated <b><i>perutot</i>, and said to him: Go and bring me an <i>etrog</i>, and he went and brought him an <i>etrog</i> with one</b> <i>peruta</i> <b>and a pomegranate with one</b> <i>peruta</i>, <b>both of them are liable for misuse.</b> The homeowner is liable because his agency was performed with the sum of one <i>peruta</i>, and the agent is liable because he deviated from the homeowner’s instructions with one <i>peruta</i>. <b>Rabbi Yehuda says: The homeowner is not liable for misuse, as he</b> can <b>say to</b> the agent: <b>I was seeking a large <i>etrog</i></b> worth two <i>perutot</i>, <b>and you brought me a small, inferior</b> <i>etrog</i> worth one <i>peruta</i>.
+
+### Part 16
+If the homeowner <b>gave</b> the agent a consecrated <b>gold dinar,</b> which is worth twenty-five silver dinars, as four silver dinars constitute a <i>sela</i>; <b>and said to</b> the agent: <b>Go and bring me a robe,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

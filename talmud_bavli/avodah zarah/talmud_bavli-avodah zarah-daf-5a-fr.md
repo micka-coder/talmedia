@@ -1,0 +1,69 @@
+
+### Partie 1
+Cela sert <b>a vous dire que si un individu</b> a <b>peche, on lui dit : Va chez</b> ce fameux <b>individu</b> qui a peche, le roi David, et apprends de lui qu'on peut se repentir. <b>Et si la communaute a peche, on lui dit</b> : <b>Allez voir</b> la <b>communaute</b> qui a peche, c'est-a-dire le peuple juif a l'epoque du Veau d'or.
+
+### Partie 2
+La Gemara note : <b>Et</b> il est <b>necessaire</b> d'apprendre le repentir a la fois dans le cas d'un individu et dans le cas d'une communaute. La raison en est <b>que si nous avions appris</b> cette idee uniquement en ce qui concerne <b>un individu,</b> on aurait pu penser qu'il a la possibilite de se repentir uniquement <b>parce que son peche n'est pas rendu public. Mais</b> dans le cas d'une <b>collectivite, dont le peche est rendu public,</b> on pourrait <b>dire</b> que la collectivite <b>ne peut pas</b> se repentir. <b>Et</b> de meme, <b>si l'on avait appris</b> cette idee uniquement en ce qui concerne <b>une communaute,</b> on aurait pu dire que leur repentir est accepte <b>parce que leurs prieres sont plus nombreuses</b> que celles d'un individu, et qu'elles sont entendues devant Dieu. <b>Mais</b> dans le cas d'un <b>individu, dont le merite n'est pas</b> aussi <b>fort,</b> on pourrait <b>dire</b> qu'il n'est <b>pas</b> capable de se repentir. Il est donc <b>necessaire</b> d'enseigner les deux cas.
+
+### Partie 3
+<b>Et ceci est</b> similaire a ce <b>que Rabbi Shmuel bar Nahmani</b> dit que <b>Rabbi Yonatan dit : Quel</b> est le sens de ce <b>qui est ecrit : "La parole de David, fils de Yishai, et la parole de l"?homme élevé en haut [<i>al</i>]"</b> (IIA Samuel 23:1) ? Voici le sens de ce verset : <b>La parole de David, fils de Yishai, qui a eleve</b> et allege <b>le joug [<i>ullah</i>] de la repentance,</b> car il a enseigne la puissance de la repentance par son propre exemple.
+
+### Partie 4
+<b>Et Rabbi Shmuel bar Nahmani</b> dit encore <b>que <b>Rabbi Yonatan dit :</b> En ce qui concerne <b>toute personne qui accomplit une mitzva dans ce monde,</b> la mitzva le <b>precedera et marchera devant lui dans le Monde-a-Venir, comme il est dit : "Et ta justice te precedera, la gloire du Seigneur sera ta recompense"</b> (Isaie 58, 8). <b>Et</b> en ce qui concerne <b>ceux qui commettent une seule transgression,</b> cette transgression le <b>foulera et le conduira au Jour du Jugement, comme il est dit : "Les sentiers de leur chemin font du vent,</b> ils montent dans le desert et se perdent" (Job 6:18).
+
+### Partie 5
+<b>Rabbi Elazar dit :</b> La transgression <b>est attachee a lui comme un chien</b> et ne le quitte pas, <b>comme il est dit</b> a propos de Joseph et de la femme de Potiphar : <b>"Et il ne l'ecouta pas, ne coucha pas pres d'elle et ne fut pas avec elle"</b> (Genese 39:10). Ceci enseigne que Joseph refusa <b>"de mentir pres d'elle" dans ce monde,</b> ce qui aurait signifie qu'il aurait eu <b>"a etre avec elle" dans le Monde-a-Venir.</b>
+
+### Partie 6
+§ La Guemara discute plus avant du peche du Veau d'or. <b>Reish Lakish dit : Venez et soyons reconnaissants envers nos ancetres</b> qui ont peche avec le Veau d'or, <b>car s'ils n'avaient pas peche nous</b> ne serions <b>pas venus au monde.</b> Reish Lakish explique : <b>Comme il est dit</b> a propos du peuple juif apres la revelation au Sinai : <b>J'ai dit : Vous etes des etres divins, et vous tous des fils du Tres-Haut"</b> (Psaumes 82:6), ce qui indique qu'ils etaient devenus comme des anges et n'auraient pas propage de descendance. Ensuite, Dieu declare : Apres que <b>vous ayez ruine vos actions : "Mais tu mourras comme un homme,</b> et tu tomberas comme un des princes" (Psaumes 82:7).
+
+### Partie 7
+La Guemara demande : Est-ce <b>pour dire que s'ils n'avaient pas peche</b> avec le Veau d'Or <b>ils n'auraient pas engendre</b> d'enfants ? <b>Mais n'est-il pas ecrit</b> que Noe et ses enfants ont ete instruits : <b>"Et vous, soyez feconds et multipliez"</b> (Genese 9:7) ? La Guemara repond : Cette instruction n'a ete emise que <b>jusqu'a</b> la revelation a <b>Sinai,</b> mais le peuple juif y serait devenu comme des anges, s'il n'avait pas peche. La Gemara demande : N'est-il pas <b>egalement ecrit</b> a propos du peuple juif qui etait a la revelation <b>au Sinai : "Allez leur dire : Retournez dans vos tentes"</b> (Deuteronome 5:27), ce qui signifie qu'ils ont recu l'ordre de reprendre les relations conjugales ? La Guemara repond : Ce verset fait reference <b>a la jouissance des droits conjugaux,</b> et non a la procreation.
+
+### Partie 8
+La Guemara demande en outre : <b>Mais n'est-il pas ecrit : "Pour qu'il leur soit bon, et a leurs enfants</b> pour toujours" (Deuteronome 5:26), ce qui indique qu'ils continueront a avoir des enfants ? La Guemara repond : Ce verset fait reference <b>a ces</b> enfants <b>qui se tenaient</b> avec eux <b>au Mont Sinai,</b> et non aux generations futures.
+
+### Partie 9
+La Guemara souleve une autre difficulte : <b>Mais le Reish Lakish ne dit-il pas : Quelle</b> est la signification de ce <b>qui est ecrit : "C'est le livre des generations d'Adam,</b> au jour ou Dieu crea l'homme" (Genese 5:1) ? <b>Adam le premier</b> homme <b>avait-il un livre ?</b> Au contraire, le verset <b>enseigne que le Saint, Beni soit-Il, a montre a Adam, le premier</b> homme, <b>chaque generation et ses exposants, chaque generation et ses Sages,</b> et <b>chaque generation et ses dirigeants. Lorsque</b> Adam <b>arrivait a la generation de Rabbi Akiva, il se rejouissait de sa Torah et etait attriste par sa mort,</b> car Rabbi Akiva etait torture et assassine. Adam <b>a dit : A "A Comme Tes pensées sont lourdes pour moi, O Dieu!A A A Comme leur somme est grandeA" (Psaumes 139:17). Il est evident d'ici que les Juifs etaient destines a porter les generations futures depuis le debut des temps.
+
+### Partie 10
+<b>Et</b> de meme, <b>Rabbi Yosei dit :</b> Le Messie, <b>fils de David, ne viendra pas avant que toutes les ames du corps ne soient achevees,</b> c'est-a-dire avant que toutes les ames destinees a habiter des corps physiques ne le fassent. <b>Comme il est dit :" Car je ne contesterai pas a jamais, et je ne serai pas toujours courrouce, car l'esprit qui s'enveloppe vient de Moi, et les ames que j'ai faites" (Isaie 57, 16). Selon Rabbi Yosei, pour que le Messie puisse venir a la fin des temps, il est necessaire que les generations futures naissent.
+
+### Partie 11
+La Guemara repond : <b>Ne dites pas</b> que si nos ancetres n'avaient pas peche <b>nous ne serions pas venus au monde,</b> car nous serions quand meme nes ; <b>au contraire,</b> cela aurait ete <b>comme si nous n'etions pas venus au monde.</b> Nous n'aurions eu aucune importance, en raison des generations precedentes qui auraient ete encore en vie. La Gemara demande : S'agit-il de <b>dire que si</b> le peuple juif <b>n'avait pas peche</b> avec le Veau d'Or alors <b>ils ne seraient pas morts ? Mais le chapitre</b> qui traite des <b>veuves dont les maris meurent sans enfant</b> (Deuteronome 25:5""10) n'est-il pas <b>ecrit</b> dans la Torah, <b>et le chapitre</b> qui traite de <b>l'heritage</b> qu'un pere decede legue a ses fils (Nombres 27:8""11) est egalement ecrit ?
+
+### Partie 12
+La Guemara repond : Ces passages ont ete ecrits <b>conditionnellement,</b> c'est-a-dire que si le peuple juif venait a pecher et ne devenait pas comme les anges, ces <i>halakhot</i> prendraient effet. La Guemara demande : <b>Et les versets sont ecrits conditionnellement</b> de cette maniere ? La Guemara repond : <b>Oui, car c'est ce que</b> dit <b>Rabbi Shimon ben Lakish : Quel</b> est le sens de ce <b>qui est ecrit : "Et il y eut un soir et il y eut un matin, le sixième jour"</b> (Genèse 1:31) ? Ceci <b>enseigne que le Saint, Beni soit-Il, a etabli une condition avec les actes de la Creation, et Il a dit : Si le peuple juif accepte la Torah</b> lors de la revelation au Sinai, tout est <b>bien</b> et le monde continuera d'exister. <b>Mais si</b> ils ne l'acceptent <b>pas</b>, <b>Je vous ramenerai</b> a l'etat primordial de <b>chaos et de desordre.</b>
+
+### Partie 13
+La Guemara <b>souleve une objection</b> d'une <i>baraita</i> a la nouvelle formulation de la declaration de Reish Lakish, selon laquelle le peuple juif serait devenu immortel s'il n'avait pas peche avec le Veau d'Or. Le verset dit a propos du peuple juif apres la revelation au Sinai : <b>Qui donnerait qu'ils aient toujours un cœur tel que celui-ci,</b> pour me craindre et garder tous mes commandements, afin qu'il soit bon pour eux et pour leurs enfants a jamais"¯ (Deuteronome 5:26). Le <i>baraita</i> precise que bien qu'ils aient atteint un tel etat eleve, il <b>n'etait pas possible d'annuler</b> le pouvoir de <b>l'Ange de la Mort sur eux, car le decret</b> de la mort <b>etait deja emis</b> depuis la creation.
+
+### Partie 14
+Au contraire, le <i>baraita</i> explique que <b>le peuple juif n'a accepte la Torah que pour qu'aucune nation ou langue ne regne sur lui, comme il est dit</b> dans le meme verset : <b>Afin qu'il soit bon pour eux, et pour leurs enfants a jamais.</b> Cela indique que si le peuple juif n'avait pas peche, il n'aurait pas atteint l'immortalite, ce qui contredit la declaration de Reish Lakish.
+
+### Partie 15
+La Guemara repond : Reish Lakish <b>a dit</b> sa declaration <b>conformement</b> a l'opinion de <b>cette <i>tanna</i>. Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Le peuple juif n'a accepte la Torah que pour que l'ange de la mort ne regne pas sur lui, comme il est dit :" J'ai dit : Vous etes des etres divins, et vous tous des fils du Tres-Haut"</b> (Psaumes 82, 6), c'est-a-dire qu'ils etaient devenus immortels comme les anges. Ensuite, Dieu declare : Après que <b>vous ayez ruiné vos actions, "mais vous mourrez comme un homme,</b> et vous tomberez comme un des princes" (Psaumes 82:7).
+
+### Partie 16
+La Gemara demande : <b>Et aussi,</b> selon <b>Rabbi Yosei, n'est-il pas ecrit : "Afin qu'il soit bon pour eux et pour leurs enfants a jamais,</b> d'ou l'on peut deduire que meme si <b>il</b> sera <b>bon</b> pour eux s'ils restent dans cet etat eleve, <b>il y aura quand meme <b>la mort ?</b> La Gemara repond : <b>Rabbi Yosei</b> aurait pu <b>vous dire : Puisqu'il n'y a pas de mort, il n'y a pas de plus grand bien que cela,</b> c'est-a-dire que la promesse du verset est l'immortalite.
+
+### Partie 17
+La Gemara demande : <b>Et</b> selon <b>la premiere <i>tanna</i> egalement, n'est-il pas ecrit : "Mais tu mourras comme un homme,"</b> ce qui indique que leur mortalite a ete decretee uniquement a cause du peche du Veau d'Or ? La Guemara repond : <b>Qu'est-ce que</b> signifie <b>la mort ?</b> Cela signifie <b>la pauvrete. Comme l'a dit le Maitre : Quatre personnes sont considerees comme</b> si elles etaient <b>mortes : Ce sont un indigent, un aveugle, un lepreux et celui qui n'a pas d'enfants.</b>
+
+### Partie 18
+<b>Un indigent</b> est considere comme s'il etait mort, <b>car il est ecrit</b> que Dieu a dit a Moise : "Allez, retourne en Egypte ; <b>car tous les hommes</b> qui cherchaient ta vie <b>sont morts"</b> (Exode 4:19). <b>Et qui etaient ces</b> hommes ? C'etaient <b>Dathan et Abiram. Mais sont-ils</b> vraiment <b>morts ? Ils etaient</b> encore en vie, puisqu'ils ont participe a la rebellion de Kore, qui a eu lieu des annees plus tard. <b>Au contraire,</b> le verset ne signifie pas qu'ils etaient morts, mais <b>qu'ils avaient perdu leurs biens</b> et s'etaient appauvris. Cela demontre qu'un indigent est considere comme s'il etait mort.
+
+### Partie 19
+<b>Un aveugle</b> est considere comme s'il etait mort, <b>comme il est ecrit : "Il m'a fait habiter dans des lieux obscurs, comme ceux qui sont morts depuis longtemps"</b> (Lamentations 3:6). <b>Un lepreux</b> est considere comme s'il etait mort, <b>comme il est ecrit</b> qu'Aaron dit a Moise lorsque Miriam fut frappee de la lepre : <b>"Laissez-la, je vous en prie, ne pas etre comme un mort"</b> (Nombres 12:12). <b>Et celui qui n'a pas d'enfants</b> est considere comme s'il etait mort, <b>comme il est ecrit</b> que Rachel dit a Jacob : <b>"Donne-moi des enfants, sinon je suis morte"</b> (Genese 30:1).
+
+### Partie 20
+<b>Les Sages ont enseigne</b> en ce qui concerne le verset : <b>Si vous marchez dans mes statuts"</b> (Levitique 26:3) : Dans ce contexte, <b>"si"</b> est <b>un terme</b> qui ne signifie <b>rien d'autre qu'une supplication,</b> c'est-a-dire que Dieu espere que le peuple juif observera la Torah. <b>Et de la meme maniere, il est dit : <b>Oh, si mon peuple m'ecoutait,</b> si Israel marchait dans mes voies, <b>je soumettrais bientot ses ennemis"</b> (Psaumes 81:14""15). <b>Et il est dit :" Si vous écoutiez mes commandements ! Alors ta paix serait comme un fleuve,</b> et ta justice comme les vagues de la mer. <b>Ta semence aussi serait comme le sable, et la progéniture de ton corps</b> comme ses grains" (Isaie 48:18""19).
+
+### Partie 21
+§ La Guemara revient sur un verset cite plus haut. <b>Les Sages ont enseigne</b> a propos de ce verset : <b>Qui donnerait qu'ils aient toujours un tel cœur</b> pour me craindre et observer tous mes commandements, afin qu'il soit bon pour eux, et pour leurs enfants a jamais" (Deuteronome 5:26). Plus tard, <b>Moses a dit au peuple juif : Ingrats, enfants d'ingrats ! Lorsque le Saint, beni soit-Il, dit au peuple juif :" Qui donnerait qu'ils aient toujours un tel cœur", ils auraient du dire : Tu devrais nous donner</b> un coeur pour Te craindre.
+
+### Partie 22
+La Guemara explique que Moise qualifie le peuple juif d' <b>ingredients, car il est ecrit</b> que le peuple juif parlait de maniere desobligeante de la manne : <b>"Et notre ame a horreur</b>".
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

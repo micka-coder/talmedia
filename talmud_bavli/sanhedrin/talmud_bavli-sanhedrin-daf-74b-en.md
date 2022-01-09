@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Even to change the strap of a sandal.</b> There was a Jewish custom with regard to sandal straps. If the gentile authorities were to decree that Jews must change their practice and wear sandal straps like those worn by the gentiles, one would be obligated to give up his life rather than veer from the accepted custom.
+
+### Part 2
+The Gemara asks: <b>And</b> the presence of <b>how many</b> people is required so that it should be deemed <b>a public</b> act? <b>Rabbi Ya’akov says</b> that <b>Rabbi Yoḥanan says:</b> An action is <b>not</b> considered <b>a public</b> act if it is performed in the presence of <b>fewer than ten people.</b> The Gemara clarifies this point: It is <b>obvious</b> that <b>we require</b> that these ten people be <b>Jews, as it is written</b> in the verse from which we derive the requirement of ten for the sanctification of God’s name: <b>“And I shall be sanctified among the children of Israel”</b> (Leviticus 22:32). <b>Rabbi Yirmeya asks: What is</b> the <i>halakha</i> if there were <b>nine Jews and one gentile</b> present?
+
+### Part 3
+The Gemara answers: <b>Come</b> and <b>hear</b> an answer from what <b>Rav Yannai, the brother of Rabbi Ḥiyya bar Abba, teaches</b> in a <i>baraita</i>: This is <b>derived</b> by means of a verbal analogy between the word <b>“among”</b> written with regard to the sanctification of God’s name, and the word <b>“among”</b> written with regard to Korah and his assembly. <b>Here,</b> with regard to the sanctification of God’s name, <b>it is written: “And I shall be sanctified among the children of Israel,” and there,</b> with regard to Korah, <b>it is written: “Separate yourselves from among this congregation”</b> (Numbers 16:21). The meaning of the word “congregation” written with regard to Korah is derived by means of a verbal analogy to the word “congregation” written with regard to the spies sent out by Moses to scout the land: “How long shall I bear with this evil congregation” (Numbers 14:27). <b>Just as there,</b> the congregation of spies numbered <b>ten, and all</b> were <b>Jews, so too here,</b> concerning the sanctification of God, there must be <b>ten, all of them</b> being <b>Jews.</b>
+
+### Part 4
+The Gemara raises a difficulty: <b>But wasn’t</b> the incident involving <b>Esther,</b> i.e., her cohabitation with Ahasuerus, <b>a public</b> sin? Why then did Esther not surrender her life rather than engage in intercourse? The Gemara answers: <b>Abaye says: Esther was</b> merely like <b>natural ground,</b> i.e., she was a passive participant. The obligation to surrender one’s life rather than engage in forbidden sexual intercourse applies only to a man who transgresses the prohibition in an active manner. A woman who is passive and merely submits is not required to give up her life so that she not sin.
+
+### Part 5
+<b>Rava says</b> that there is another justification for Esther’s behavior: When gentiles order the transgression of a prohibition not in order to persecute the Jews or to make them abandon their religion, but for <b>their</b> own <b>personal pleasure,</b> it <b>is different.</b> In such a situation there is no obligation to sacrifice one’s life, even when the sin is committed in public.
+
+### Part 6
+Rava explains: <b>As if you do not say so,</b> then <b>how do we give them coal shovels [<i>kevakei vedimonikei</i>]?</b> The Persian priests would take coal shovels from every house, fill them with coals, and use them to heat their temples on their festival days. Although this involved assisting idol worship in public, Jews would not sacrifice their lives in order not to do so. <b>Rather,</b> the reason they cooperated is certainly that a measure enacted for the gentiles’ <b>personal pleasure is different. Here too,</b> concerning Esther, Ahasuerus engaged in intercourse with her for his personal pleasure, and a measure enacted for a gentile’s <b>personal pleasure is different,</b> and there is no obligation to sacrifice one’s life to avoid it.
+
+### Part 7
+The Gemara comments: <b>And Rava follows his</b> own line of <b>reasoning, as Rava says: If a gentile said to a certain Jew: Cut grass [<i>aspasta</i>] on Shabbat and throw it before the cattle, and if</b> you <b>do not</b> do this <b>I will kill you, he should cut</b> the grass <b>and not be killed.</b> But if the gentile said to him: Cut the grass and <b>throw it into the river, he should be killed and not cut</b> the grass. <b>What is the reason</b> for the latter ruling? Because it is clear that the gentile is not seeking his own personal pleasure, but rather <b>he wants</b> to force the Jew <b>to violate</b> his <b>religion.</b>
+
+### Part 8
+§ The Sages <b>raised a dilemma before Rabbi Ami:</b> Is <b>a descendant of Noah,</b> who is commanded to refrain from idol worship, also <b>commanded about the sanctification of God’s name, or is he not commanded about the sanctification of God’s name?</b>
+
+### Part 9
+<b>Abaye says: Come</b> and <b>hear</b> an answer to this question from a <i>baraita</i> in which it was taught: <b>Descendants of Noah were commanded</b> to observe <b>seven mitzvot:</b> To establish courts of law, to refrain from cursing God, idol worship, adultery, bloodshed, robbery, and from eating the limb of a living animal. <b>And if it is so</b> that they are commanded about the sanctification of God’s name, then <b>there would be eight</b> mitzvot in which they are commanded. <b>Rava said to him:</b> There is no proof from here, as when the <i>baraita</i> speaks of seven mitzvot it means the seven mitzvot <b>themselves with all their associated [<i>avzaraihu</i>]</b> obligations. The mitzva to sanctify God’s name can be understood as a detail of the prohibition of idolatry.
+
+### Part 10
+The Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? <b>Rav Adda bar Ahava says</b> that <b>they say</b> in <b>the school of Rav: It is written</b> that Naaman, commander of the army of the king of Aram, said to the prophet Elisha: <b>“For this matter may the Lord pardon your servant, that when my master goes into the house of Rimmon to bow down there and he leans on my hand, and I bow myself down</b> in the house of Rimmon” (II Kings 5:18). That is, he was forced to bow down before an idol out of fear of his master, the king of Aram. <b>And it is written</b> in the following verse: <b>“And he said to him: Go in peace,”</b> indicating that Elisha did not criticize him for acting in this manner.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

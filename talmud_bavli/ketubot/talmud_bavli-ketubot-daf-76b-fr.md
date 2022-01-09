@@ -1,0 +1,39 @@
+
+### Partie 1
+que sa preuve provient du <i>halakha</i> a l'egard d'une <b>epouse</b> qui est encore <b>dans la maison de son pere,</b> alors que la charge de la preuve incombe au pere, <b>est-ce <b>comparable ? La, le pere apporte la preuve et retire</b> l'argent au mari, alors que <b>ici, le proprietaire de l'ane apporte la preuve et conserve</b> la possession de la vache. Par consequent, peut-etre que ce cas est different, et qu'il ne devrait pas etre oblige d'apporter une preuve.
+
+### Partie 2
+<b>Rabbi Abba dit :</b> La preuve provient du cas de <b>une mariee dans la maison de son beau-pere,</b> c'est-a-dire celle qui est entree dans le domaine de son mari. La Guemara souleve une difficulte : <b>Et</b> pourtant les cas <b>ne sont toujours pas comparables : La, le mari apporte une preuve et ebranle la presomption</b> qui etait en faveur <b>du pere,</b> c'est-a-dire le statut presume du corps de la fille, alors que <b>ici, le proprietaire de l'ane apporte une preuve et</b> maintient ainsi le statut presume</b> du corps de l'ane et par consequent maintient la vache <b>en sa possession.</b> Peut-etre, par consequent, ne devrait-il pas avoir a apporter de preuve.
+
+### Partie 3
+<b>Rav Nahman bar Yitzhak dit :</b> La preuve de Shmuel provient de la <i>halakha</i> de <b>une mariee dans la maison de son pere, mais en ce qui concerne</b> l'argent utilise pour la <b>bebauche,</b> pas pour le contrat de mariage. Le pere doit apporter une preuve pour pouvoir conserver l'argent des fiancailles.
+
+### Partie 4
+Rav Nahman bar Yitzhak explique : <b>Et ne dites pas</b> que c'est uniquement <b>selon celui qui dit</b> en general que l'argent des fiancailles <b>n'a pas ete donne</b> avec la comprehension qu'il est <b>a perdre,</b> c'est-a-dire que l'argent a ete remis uniquement dans le but des fiancailles et qu'il doit etre rendu si les fiancailles sont annulees. <b>Au contraire,</b> disons que c'est <b>meme selon celui qui dit</b> que dans le cas de l'argent des <b>fiancailles</b> qui <b>a ete donne pour etre perdu, cela ne s'applique que</b> a <b>des fiancailles</b> dont le statut est <b>certain.</b> Selon cet avis, si le mari divorce plus tard de sa femme ou decede, elle n'a pas a restituer l'argent des fiancailles. <b>Mais</b> en ce qui concerne une <b>fiancailles oubliees, si</b> le pere <b>apporte une preuve</b> alors <b>oui,</b> il peut garder l'argent ; <b>si</b> il n'apporte <b>pas</b> de preuve, il ne peut <b>pas</b> conserver la propriete de l'argent des fiancailles. Cela confirme l'opinion de Shmuel selon laquelle, dans un cas incertain, celui qui est en possession de l'argent doit apporter une preuve afin de conserver sa propriete.
+
+### Partie 5
+La Guemara <b>souleve une objection</b> a l'opinion de Shmuel en ce qui concerne les presomptions issues d'une <i>baraita</i> sur une question differente : Dans un cas de <b>aiguille trouvee dans la paroi epaisse</b> du <b>second estomac d'un animal abattu,</b> si elle a perce l'estomac <b>de</b> seulement <b>un cote,</b> l'animal est <b>cacher. </b> Si l'estomac est perce <b>des deux cotes,</b> c'est-a-dire que l'aiguille a perce un trou completement a travers la paroi de l'estomac, il a le statut d'un <b>animal dont la condition le fera mourir dans les douze mois</b> [<b><i>tereifa</i></b>], et il est par consequent interdit d'en manger. En outre, si <b>une goutte de <b>sang congele</b> se trouve sur le dessus</b> de l'aiguille, <b>il est certain</b> que la perforation a ete creee <b>avant</b> l'<b>abattage</b> de l'animal, et il s'agit donc d'une <i>tereifa</i>. Si <b>aucune goutte de sang ne s'y trouve, il est certain qu'elle</b> s'est produite <b>apres</b> l'<b>abattage,</b> ce qui signifie que l'animal est cachere.
+
+### Partie 6
+Si <b>une croute est apparue sur la plaie</b> a cet endroit, <b>il est certain</b> que l'incident s'est produit <b>trois jours avant</b> l'<b>abattage.</b> La signification de ce fait est que si l'animal a ete vendu a un boucher apres ce moment, celui-ci peut pretendre que la transaction a ete effectuee par erreur, car il n'avait pas l'intention d'acheter un animal <i>tereifa</i>. Si <b>une croute n'est pas apparue sur la blessure,</b> et que le vendeur pretend que l'animal a ete blesse alors qu'il etait en possession du boucher qui l'a achete, alors que le boucher pretend qu'il etait blesse lorsqu'il l'a achete, <b>la charge de la preuve incombe au demandeur. Et</b> donc, <b>si</b> le <b>boucher avait</b> deja <b>donne l'argent, il doit apporter la preuve et</b> alors il peut <b>reprendre</b> son argent au vendeur.
+
+### Partie 7
+La Guemara revient sur l'opinion de Shmuel : <b>Mais pourquoi</b> ce devrait etre la <i>halakha</i> ? <b>Laissons</b> le <b>proprietaire de l'animal,</b> c'est-a-dire le vendeur, <b>apporter des preuves et etablir</b> la validite de la vente, tout comme le proprietaire de l'ane doit apporter des preuves afin de conserver la possession de la vache. Pourquoi la charge de la preuve incombe-t-elle au boucher ?
+
+### Partie 8
+La Gemara repond : Cette <i>baraita</i> fait reference a un cas <b>ou le boucher n'avait pas</b> encore <b>donne</b> l'<b>argent,</b> mais allait payer plus tard. Par consequent, le vendeur est celui qui reclame de l'argent au boucher, et il doit offrir une preuve pour que la transaction soit maintenue. La Gemara pose une question : <b>Pourquoi</b> cela a-t-il ete enonce <b>sans reserve ?</b> La formulation de la <i>baraita</i> implique que l'une ou l'autre partie doit apporter une preuve. Cette <i>baraita</i> semble refuter l'opinion de Shmuel.
+
+### Partie 9
+<b>Au contraire, lorsque Rami bar Yehezkel est venu, il a dit : Ne prete pas attention a ces regles formulees par mon frere Yehouda au nom de Shmuel.</b> En realite, <b>c'est</b> ce que <b>Shmuel a dit :</b> Dans <b>le domaine de qui que ce soit, l'incertitude est nee, la charge de la preuve lui incombe.</b> Dans le cas de l'echange de la vache contre l'ane, c'est le proprietaire de la vache qui doit apporter la preuve. <b>Et le <i>tanna</i></b> de la mishna a egalement <b>enseigne</b> dans le meme sens en ce qui concerne <b>une fiancee.</b> Si la fiancee etait dans le domaine de son pere, il doit fournir la preuve ; si elle vivait avec son mari, la charge de la preuve lui incombe.
+
+### Partie 10
+La Guemara <b>souleve une objection : Une aiguille qui se trouve dans la paroi epaisse du</b> <b>second estomac d'un animal"¦</b> la charge de la preuve incombe au demandeur. <b>Et si</b> le <b>boucher n'avait pas</b> deja <b>donne l'argent,</b> le <b>proprietaire de l'animal doit apporter la preuve, et</b> alors seulement il pourra <b>prendre</b> son argent. La Gemara demande : <b>Mais pourquoi ? L'incertitude s'est formee dans</b> la possession du <b>boucher.</b> Selon l'avis de Rami Bar Yehezkel, il devrait incomber au boucher de fournir une preuve.
+
+#### Partie 11
+La Guemara repond : Cette <i>baraita</i> fait reference a un cas <b>ou le boucher avait</b> deja <b>donne l'argent.</b> Puisque le boucher est celui qui demande de l'argent au vendeur, il doit fournir une preuve. La Guemara pose une question : <b>Mais pourquoi</b> cela a-t-il ete enonce <b>sans qualification ?</b> Comment sait-on que le <i>tanna</i> faisait reference a ce cas particulier ? La Guemara repond : <b>La situation ordinaire</b> est que <b>tant qu'une personne n'a pas donne d'argent,</b> l'autre <b>personne ne lui donnera pas</b> <b>l'animal.</b> On peut donc supposer que le boucher a paye l'animal avant d'etre autorise a l'abattre, ce qui signifie que c'est lui qui reclame la restitution de l'argent.
+
+### Partie 12
+§ La mishna enseigne : <b>Et les rabbins disent : Dans quel</b> cas <b>cette declaration est-elle dite ? A l'egard des tares cachees.</b> Mais il ne peut pretendre avoir ignore les tares visibles. <b>Rav Nahman a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

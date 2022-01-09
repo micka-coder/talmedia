@@ -1,0 +1,57 @@
+
+### Part 1
+<b>a hunt of the leviathan, as it is stated: “Can you draw out leviathan with a fish hook? Or press down his tongue with a cord?”</b> (Job 40:25). <b>And were the Holy One, Blessed be He, not assisting</b> Gabriel, <b>he would not be able to</b> hunt <b>it, as it is stated: “Only He Who made him can use His sword to approach him”</b> (Job 40:19).
+
+### Part 2
+<b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, he said that <b>Rabbi Yoḥanan said: When</b> the <b>leviathan is hungry, he produces breath from his mouth and</b> thereby <b>boils all of the waters in the depths</b> of the sea. <b>As it is stated: “He makes the deep boil like a pot”</b> (Job 41:23). <b>And if</b> the leviathan <b>did not place its head in the Garden of Eden, no creature could withstand his</b> foul <b>smell, as it is stated: “He makes the sea like a seething mixture [<i>merkaḥa</i>]”</b> (Job 41:23), and the term <i>merkaḥa</i> is also used to describe something with a smell (see Exodus 30:25).
+
+### Part 3
+<b>And when he is thirsty, he makes many furrows in the sea, as it is stated: “He makes a path to shine after him”</b> (Job 41:24). <b>Rav Aḥa bar Yaakov says:</b> After the leviathan drinks from the sea, <b>the depth</b> of the sea does <b>not return to its normal condition until seventy years</b> have passed, <b>as it is stated: “One would think the deep to be hoary”</b> (Job 41:24), <b>and hoary</b> indicates a person who is <b>no less than seventy</b> years old.
+
+### Part 4
+<b>Rabba says</b> that <b>Rabbi Yoḥanan says:</b> In the <b>future, the Holy One, Blessed be He, will make a feast for the righteous from the flesh of the leviathan, as it is stated: “The <i>ḥabbarim</i> will make a feast [<i>yikhru</i>] of him”</b> (Job 40:30). <b>And <i>kera</i></b> means <b>nothing other than a feast, as it is stated: “And he prepared [<i>va’yikhreh</i>] for them a great feast [<i>kera</i>]; and they ate and drank”</b> (II Kings 6:23). <b>And <i>ḥabbarim</i></b> means <b>nothing other than Torah scholars, as it is stated: “You that dwell in the gardens, the companions [<i>ḥaverim</i>] hearken for your voice: Cause me to hear it”</b> (Song of Songs 8:13). This verse is interpreted as referring to Torah scholars, who listen to God’s voice.
+
+### Part 5
+<b>And</b> with regard to <b>the remainder</b> of the leviathan, they will <b>divide it and use it for commerce in the markets of Jerusalem, as it is stated: “They will part him among the <i>kena’anim</i>”</b> (Job 40:30). <b>And <i>kena’anim</i></b> means <b>nothing other than merchants, as it is stated: “As for the merchant [<i>kena’an</i>], the balances of deceit are in his hand. He loves to oppress”</b> (Hosea 12:8). <b>And if you wish, say</b> that the proof is <b>from here: “Whose merchants are princes, whose traffickers [<i>kinaneha</i>] are the honorable of the earth”</b> (Isaiah 23:8).
+
+### Part 6
+<b>And Rabba says</b> that <b>Rabbi Yoḥanan says:</b> In the <b>future, the Holy One, Blessed be He, will prepare a <i>sukka</i> for the righteous from the skin of</b> the <b>leviathan, as it is stated: “Can you fill his skin with barbed irons [<i>besukkot</i>]”</b> (Job 40:31). If one <b>is deserving</b> of being called righteous, an entire <b><i>sukka</i> is prepared for him</b> from the skin of the leviathan; if one is <b>not deserving</b> of this honor, <b>a covering is prepared for his</b> head, <b>as it is stated: “Or his head with fish-spears”</b> (Job 40:31).
+
+### Part 7
+If one is <b>deserving</b> at least of this reward, <b>a covering is prepared for him,</b> and if one is <b>not deserving, a necklace is prepared for him, as it is stated: “And necklaces about your neck”</b> (Proverbs 1:9). If one is somewhat <b>deserving, a necklace is prepared for him,</b> and if one is <b>not deserving</b> even of this, only <b>an amu-let is prepared for him</b> from the skin of the leviathan, <b>as it is stated: “Or will you bind him for your maidens”</b> (Job 40:29), i.e., a small amulet is prepared for him, like the amulets tied on children’s necks.
+
+### Part 8
+<b>And</b> with regard to <b>the remaining</b> part of the skin of the leviathan, <b>the Holy One, Blessed be He, spreads it on the walls of Jerusalem, and its glory radiates from</b> one <b>end of the world until the</b> other <b>end. As it is stated: “And nations shall walk in your light, and kings at the brightness of your rising”</b> (Isaiah 60:3).
+
+### Part 9
+§ With regard to the future glory of Jerusalem, the Gemara interprets the verse: <b>“And I will make your pinnacles of <i>kadkhod</i>”</b> (Isaiah 54:12). <b>Rabbi Shmuel bar Naḥmani said: Two angels in heaven, Gabriel and Michael, disagree</b> with regard to the material that will be used to form the walls of Jerusalem. <b>And some say</b> that this dispute is between <b>two <i>amora’im</i> in the West,</b> i.e., Eretz Yisrael. <b>And who are they?</b> They are <b>Yehuda and Ḥizkiyya, the sons of Rabbi Ḥiyya. One said</b> they will be made of <b>onyx, and one said</b> of <b>jasper. The Holy One, Blessed be He, said to them: Let it be like this [<i>kedein</i>] and like that [<i>ukhedein</i>],</b> i.e., let them be formed from both together. This compromise is indicated by the word <i>kadkhod</i>, a combination of this [<i>kedein</i>] and that [<i>ukhedein</i>].
+
+### Part 10
+The Gemara analyzes the rest of that verse: <b>“And your gates of precious stones”</b> (Isaiah 54:12). This should be understood <b>in</b> light of <b>that</b> incident <b>where Rabbi Yoḥanan sat and taught:</b> In the <b>future, the Holy One, Blessed be He, will bring precious stones and pearls that are thirty by thirty</b> cubits, <b>and He will hollow out in them</b> a hole of <b>ten by twenty</b> cubits <b>and set them in the gates of Jerusalem. A certain</b> unnamed <b>student sneered at him,</b> saying: <b>Now we do not find</b> precious stones even <b>of</b> the size of <b>an egg of a dove,</b> and yet <b>all of this we will find?</b>
+
+### Part 11
+<b>After</b> a period of <b>time</b> that student’s <b>ship went to sea,</b> where <b>he saw ministering angels sitting and sawing precious stones and pearls that were thirty by thirty</b> cubits, <b>and hollowed out in them</b> were holes of <b>ten by twenty</b> cubits. <b>He said to</b> the angels: <b>For whom are these? They said to him that</b> in the <b>future, the Holy One, Blessed be He, will place them in the gates of Jerusalem.</b> Later, the student <b>came before Rabbi Yoḥanan</b> and <b>said to him:</b> Continue to <b>interpret, my teacher, it is fitting for you to interpret,</b> as <b>I saw</b> just <b>as you said.</b> Rabbi Yoḥanan <b>said to him: Worthless</b> man, <b>if you had not seen, you would not have believed;</b> clearly, <b>you are mocking the statement of the Sages.</b> Rabbi Yoḥanan <b>set his eyes upon him, and</b> the student was instantly killed <b>and turned into a pile of bones.</b>
+
+### Part 12
+The Gemara <b>raises an objection</b> against Rabbi Yoḥanan’s statement, based on a <i>baraita</i>. The verse states: <b>“And I will make you go upright [<i>komemiyyut</i>]”</b> (Leviticus 26:13). <b>Rabbi Meir says:</b> In the future, the Jewish people will have the stature of <b>two hundred cubits, equivalent to two</b> times the <b>height [<i>komot</i>] of Adam the first</b> man, whose height was one hundred cubits. Rabbi Meir interprets the word <i>komemiyyut</i> as two <i>komot</i>.
+
+### Part 13
+<b>Rabbi Yehuda says:</b> They will have the stature of <b>one hundred cubits, corresponding to the Sanctuary and its walls, as it is stated: “We whose sons are as plants grown up in their youth; whose daughters are as corner-pillars carved after the fashion of the Sanctuary”</b> (Psalms 144:12). But if they are each one hundred cubits tall, how could the Jews enter the gates of Jerusalem, whose entrance gate will be ten by twenty cubits, as claimed by Rabbi Yoḥanan? The Gemara answers: <b>When Rabbi Yoḥanan stated</b> that idea, he was not referring to the gates themselves but <b>to</b> the <b>windows that</b> allow <b>wind</b> to enter.
+
+### Part 14
+§ <b>And Rabba says</b> that <b>Rabbi Yoḥanan says:</b> In the <b>future, the Holy One, Blessed be He, will fashion seven canopies for each and every righteous</b> individual, <b>as it is stated: “And the Lord will create over the whole habitation of Mount Zion, and over those who are invited to it, a cloud and smoke by day, and the shining of a flaming fire by night; for over all the glory shall be a canopy”</b> (Isaiah 4:5). This <b>teaches that</b> for <b>each and every</b> righteous individual, <b>the Holy One, Blessed be He, fashions for him a canopy</b> seven times over, <b>in accordance with his honor,</b> i.e., greater individuals receive grander and larger canopies.
+
+### Part 15
+The Gemara asks a question with regard to the above verse: <b>Why</b> should there be <b>smoke in a canopy? Rabbi Ḥanina said:</b> It is <b>because anyone whose eyes are narrow,</b> i.e., is stingy, <b>toward Torah scholars in this world, his eyes fill with smoke in the World-to-Come. And why</b> should there be <b>fire in a canopy? Rabbi Ḥanina said:</b> This <b>teaches that each and every one is burned from</b> embarrassment at the size of <b>the canopy of the other,</b> and says: <b>Woe for this embarrassment, woe for this disgrace,</b> that I did not merit a canopy as large as his.
+
+### Part 16
+<b>In a similar manner, you</b> can <b>say</b> that God said to Moses about Joshua: <b>“And you shall put of your honor upon him”</b> (Numbers 27:20), which indicates that you should put some of your honor, <b>but not all of your honor. The elders of that generation said: The face of Moses</b> was as bright <b>as the face of the sun; the face of Joshua</b> was <b>like the face of the moon. Woe for this embarrassment, woe for this disgrace,</b> that we did not merit another leader of the stature of Moses.
+
+### Part 17
+<b>Rabbi Ḥama bar Ḥanina says: The Holy One, Blessed be He, fashioned ten canopies for Adam the first</b> man, <b>in the Garden of Eden; as it is stated</b> to Hiram, king of Tyre: <b>“You were in Eden the garden of God; every precious stone</b> was your covering, the carnelian, the topaz, and the emerald, the beryl, the onyx, and the jasper, the sapphire, the carbuncle, and the smaragd, and gold; the workmanship of your drums and of your holes was in you; they were prepared on the day that you were created” (Ezekiel 28:13). This verse mentions ten items, from carnelian to gold. <b>Mar Zutra said:</b> There were <b>eleven</b> canopies, <b>as it states: “Every precious stone,”</b> which is also part of the tally. <b>Rabbi Yoḥanan said: And the worst of all of them</b> was <b>gold, as it is counted last,</b> which indicates that the other items are more valuable.
+
+### Part 18
+The Gemara asks: <b>What</b> is the meaning of the phrase: <b>“The workmanship of your drums and of your holes [<i>nekavekha</i>]”</b> (Ezekiel 28:13)? <b>Rav Yehuda says</b> that <b>Rav says: The Holy One, Blessed be He, said to Hiram, king of Tyre:</b> Were you in the Garden of Eden when I created all of this for you? <b>I looked at you,</b> saw that you would one day claim divinity for yourself, <b>and created many orifices [<i>nekavim</i>] in man,</b> i.e., the excretory system, so that you would know that you are human and not a god. <b>And there are</b> those <b>who say</b> that <b>this</b> is what God <b>said</b> to Hiram: <b>I looked at you</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

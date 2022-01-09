@@ -1,0 +1,99 @@
+
+### Part 1
+Accordingly, <b>he is forbidden</b> to engage in relations <b>with her mother, and with her mother’s mother, and with her father’s mother, and with her daughter, and with her daughter’s daughter, and with her son’s daughter, and with her sister while</b> his <i>yevama</i> <b>is</b> still <b>alive.</b> However, <b>the</b> other <b>brothers</b> who did not perform <i>ḥalitza</i> <b>are permitted</b> to her relatives.
+
+### Part 2
+<b>And she is forbidden</b> to engage in relations <b>with his father, and with his father’s father, and with his son, and with his son’s son, and with his brother, and with his brother’s son.</b>
+
+### Part 3
+The mishna states an additional principle: <b>A man is permitted</b> to engage in relations <b>with a relative of a rival wife of his <i>ḥalutza</i>,</b> i.e., his <i>yevama</i> with whom he performed <i>ḥalitza</i>. Since he did not perform <i>ḥalitza</i> with her, she is not regarded as though she had actually been married to him. However, <b>he is forbidden</b> to engage in relations <b>with a rival wife of a relative of his <i>ḥalutza</i>,</b> i.e., in addition to being forbidden to the relatives of his <i>ḥalutza</i>, he is also forbidden to their rival wives.
+
+### Part 4
+<strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages: In addition to the Torah prohibition against engaging in relations with one’s wife’s close relatives, the Sages decreed that it is also prohibited to engage in relations with one’s wife’s secondary relatives, i.e., those who are less closely related and so are permitted by Torah law. Since the Sages decreed that a <i>ḥalutza</i> is to be regarded as though she had actually been married to the one who performed <i>ḥalitza</i>, such that her close relatives are forbidden to him, did <b>they</b> also <b>decree</b> that the prohibition of <b>secondary</b> forbidden <b>relationships</b> should also apply <b>in</b> the case of <b>a <i>ḥalutza</i>, or not?</b>
+
+### Part 5
+The Gemara presents the sides of the dilemma: Did <b>the Sages decree</b> that the prohibition of <b>secondary</b> forbidden <b>relationships</b> applies only <b>in</b> a case where there is a relative with whom <b>relations</b> are <b>forbidden by Torah</b> law, but <b>in</b> the case of a <b><i>ḥalutza</i>,</b> whose relatives are forbidden only by rabbinic decree, <b>they did not decree</b> that there should be a prohibition of <b>secondary</b> forbidden <b>relationships? Or perhaps</b> the case of a <b><i>ḥalutza</i> is no different,</b> and since the basis of the rabbinic prohibition applying to her relatives is that it is considered as though she had actually been married to her <i>yavam</i>, the prohibition should extend to her secondary relatives as well?
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from the mishna: A <i>yavam</i> <b>is prohibited</b> from engaging in relations <b>with</b> the <b>mother of</b> his <i>ḥalutza</i> <b>and with her mother’s mother. However,</b> the mishna <b>does not teach</b> that it is prohibited to engage in relations with <b>her mother’s mother’s mother,</b> which is one of the secondary relationships. This would suggest that the prohibition of secondary relationships does not apply in this case.
+
+### Part 7
+The Gemara rejects the proof: <b>Perhaps this is the reason that</b> the mishna <b>does not teach</b> that case, <b>because it needs to teach in the latter clause:</b> However, <b>the</b> other <b>brothers</b> who did not perform <i>ḥalitza</i> <b>are permitted</b> to her relatives. <b>And if it</b> had <b>taught</b> the prohibition of <b>her mother’s mother’s mother</b> in the first clause, <b>I would</b> mistakenly <b>say</b> that <b>the brothers are permitted specifically to her mother’s mother’s mother, but not to her mother’s mother.</b> Therefore, no proof can be adduced from that case of the mishna.
+
+### Part 8
+The Gemara objects: <b>But</b> if he is forbidden to the great-grandmother, then <b>let it teach: Her mother’s mother’s mother</b> in the first clause, <b>and</b> then <b>let it teach: The brothers are permitted to all of them,</b> in the latter clause. This would avoid the concern stated above. The fact that the mishna did not do so would suggest that he is not forbidden to the great-grandmother, or any other secondary relatives. The Gemara concludes: Indeed, this is <b>difficult,</b> but still inconclusive.
+
+### Part 9
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof from the mishna: <b>She is prohibited</b> from engaging in relations <b>with his father, and with his father’s father.</b> The Gemara explains the proof: <b>In any case,</b> the mishna <b>teaches</b> that she is forbidden to <b>his father’s father. What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, and therefore she is forbidden to the grandfather because <b>she is considered to be</b> the grandfather’s <b>son’s daughter-in-law,</b> i.e., the wife of one of the grandfather’s grandsons, which is a secondary relationship? If so, the mishna explicitly demonstrates that the prohibition of secondary relationships also applies in the case of a <i>ḥalutza</i>.
+
+### Part 10
+The Gemara rejects the proof: <b>No,</b> she is forbidden to his grandfather <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and it is due to that relationship <b>that she is considered</b> the grandfather’s <b>son’s daughter-in-law.</b> Therefore, no proof can be adduced from that case of the mishna.
+
+### Part 11
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof from the mishna: <b>And</b> she is prohibited from engaging in relations <b>with his son’s son.</b> The Gemara explains the proof: <b>What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, and <b>she is</b> therefore forbidden to his grandson because <b>she is considered to be the wife</b> of that grandson’s <b>father’s father,</b> which is a secondary relationship? If so, the mishna explicitly demonstrates that the prohibition of secondary relationships also applies in the case of a <i>ḥalutza</i>.
+
+### Part 12
+The Gemara rejects the proof: <b>No,</b> she is forbidden to his grandson <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and it is due to that relationship that <b>she is considered to be the wife of a brother of</b> that grandson’s <b>father’s father,</b> which is also a forbidden secondary relationship. Therefore, no proof can be adduced from that case of the mishna.
+
+### Part 13
+The Gemara asks: <b>But Ameimar rules permissible</b> the marriage of a man <b>to the wife of a brother of</b> that man’s <b>father’s father.</b> Accordingly, the prohibition in the mishna cannot be due to that relationship.
+
+### Part 14
+The Gemara explains: <b>Ameimar</b> would <b>establish</b> the mishna’s case of: His son’s son, as referring to engaging in relations <b>with a son of a son of the grandfather.</b> The mishna states that she is forbidden to his father, to his father’s father, to his son, and to his son’s son. The Gemara assumed that antecedent of the pronoun: His, in the phrase: To his son and to his son’s son, is the one who performed <i>ḥalitza</i>. As such, the mishna teaches that she is forbidden to the son and grandson of the one who performed <i>ḥalitza</i> with her, which are secondary relationships. Ameimar, however, would claim the antecedent of this pronoun is the father’s father, which immediately precedes it in the mishna. As such, the mishna is teaching that she is forbidden to the grandfather of the one who performed <i>ḥalitza</i> with her, to that grandfather’s sons, i.e., the brothers of the deceased, and to the grandfather’s sons’ sons, i.e., the nephews of the deceased. The <i>yevama</i> is forbidden to these relatives by Torah law. Therefore, no proof can be derived from that case of the mishna.
+
+### Part 15
+The Gemara challenges this understanding of: His son and his son’s son: But <b>if so, these</b> relatives <b>are</b> none other than <b>his brother and the son of his brother,</b> who are already explicitly mentioned in the mishna. The Gemara explains: This is not a case of unnecessary repetition because the mishna first <b>teaches</b> that she is forbidden to <b>his paternal</b> half <b>brother and</b> then <b>teaches</b> that she is forbidden to <b>his maternal</b> half <b>brother</b> as well.
+
+### Part 16
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i> <b>that Rabbi Ḥiyya taught:</b> Of the relatives who are forbidden to a <i>ḥalutza</i>, <b>four</b> are forbidden <b>by Torah law and four by rabbinic law,</b> as follows: <b>The father</b> of the deceased husband, <b>and his son, his brother, and his brother’s son</b> are forbidden <b>by Torah law; his father’s father, and his mother’s father, his son’s son, and his daughter’s son</b> are forbidden <b>by rabbinic law.</b>
+
+### Part 17
+<b>In any case,</b> the <i>baraita</i> <b>teaches</b> that she is forbidden to <b>his father’s father. What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, and therefore she is forbidden to the grandfather because <b>she is considered to be</b> the grandfather’s <b>son’s daughter-in-law,</b> which is a secondary forbidden relationship? This would prove that the prohibition of secondary relationships applies in the case of a <i>ḥalutza</i>.
+
+### Part 18
+The Gemara rejects the proof: <b>No,</b> she is forbidden <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and it is due to that relationship that <b>she is considered</b> the grandfather’s <b>son’s daughter-in-law.</b> Therefore, no proof can be adduced from that case of the <i>baraita</i>.
+
+### Part 19
+The Gemara proceeds to consider whether proof may be adduced from each of the other secondary relationships listed in the <i>baraita</i>: <b>Come</b> and <b>hear</b> a proof from that which the <i>baraita</i> teaches: She is forbidden to <b>his mother’s father.</b> The Gemara explains the proof: <b>What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, and therefore she is forbidden to the grandfather because <b>she is considered to be</b> the grandfather’s <b>daughter’s daughter-in-law,</b> which is a secondary relationship? This would prove that the prohibition of secondary relationships applies in the case of a <i>ḥalutza</i>.
+
+### Part 20
+The Gemara rejects the proof: <b>No,</b> she is forbidden <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and it is due to that relationship that <b>she is considered</b> the grandfather’s <b>daughter’s daughter-in-law.</b> Therefore, no proof can be adduced from that case of the <i>baraita</i>.
+
+### Part 21
+<b>Come</b> and <b>hear</b> a proof from that which the <i>baraita</i> teaches: <b>And</b> she is forbidden to <b>his son’s son.</b> The Gemara explains the proof: <b>What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, and so she is forbidden to his grandson because <b>she is considered to be the wife</b> of that grandson’s <b>father’s father,</b> which is a secondary relationship? If so, the <i>baraita</i> explicitly demonstrates that the prohibition of secondary relationships applies in the case of a <i>ḥalutza</i>.
+
+### Part 22
+The Gemara rejects the proof: <b>No,</b> she is forbidden to his grandson <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and due to that relationship <b>she is considered to be the wife of a brother of</b> that grandson’s <b>father’s father,</b> which is also a forbidden secondary relationship. Therefore, no proof can be adduced from that case of the <i>baraita</i>.
+
+### Part 23
+The Gemara asks: <b>But didn’t Ameimar rule permissible</b> the marriage of a man <b>with the wife of a brother of his father’s father?</b> Accordingly, the prohibition in the mishna cannot be due to that relationship. The Gemara concedes: <b>Ameimar</b> would <b>establish</b> the mishna’s case of: His son’s son, <b>as</b> being <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, <b>and</b> as such it is evident that <b>he holds</b> that the Sages <b>decreed</b> that the prohibition of <b>secondary</b> forbidden <b>relationships</b> should apply <b>in</b> the case of <b>a <i>ḥalutza</i>.</b>
+
+### Part 24
+The Gemara continues to seek proof for those who disagree with Ameimar: <b>Come</b> and <b>hear</b> a proof from that which the <i>baraita</i> teaches: <b>And</b> she is forbidden to <b>his daughter’s son.</b> The Gemara explains the proof: <b>What, is it not</b> that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to the <b>one who performed <i>ḥalitza</i></b> with her, and so <b>she is</b> forbidden to his grandson because <b>she is considered to be the wife</b> of that grandson’s <b>mother’s father,</b> which is a secondary relationship? If so, the <i>baraita</i> explicitly demonstrates that the prohibition of secondary relationships applies in the case of a <i>ḥalutza</i>.
+
+### Part 25
+The Gemara rejects the proof: <b>No,</b> she is forbidden to his grandson <b>due to</b> her previous marriage with <b>the deceased,</b> whose relatives are forbidden to her by Torah law, and due to that relationship <b>she is considered to be the wife of a brother of</b> the grandson’s <b>mother’s father.</b> The Gemara challenges this: <b>But</b> the Sages did <b>not decree</b> that such a person is included <b>among</b> those relatives who are forbidden as <b>secondary</b> forbidden <b>relationships.</b>
+
+### Part 26
+<b>Rather, is it not,</b> as the Gemara initially assumed, that she is forbidden to him <b>due to</b> the rabbinic decree that it is considered as though she had actually been married to <b>the one who performed <i>ḥalitza</i></b> with her, <b>and</b> therefore must one not <b>conclude from</b> this case that the Sages <b>decreed</b> that the prohibition of <b>secondary</b> forbidden <b>relationships</b> should apply <b>in</b> the case of <b>a <i>ḥalutza</i>?</b> The Gemara confirms: One should indeed <b>conclude from it</b> that this is so.
+
+### Part 27
+§ The mishna states: <b>A man is permitted</b> to engage in relations with a relative of a rival wife of his <i>ḥalutza</i>; however, he is prohibited from engaging in relations with a rival wife of a relative of his <i>ḥalutza</i>. The Gemara cites a ruling: <b>Rav Tovi bar Kisna said</b> that <b>Shmuel said:</b> With regard to <b>one who engages in intercourse with a rival wife of</b> his <b><i>ḥalutza</i>, the offspring</b> of that union <b>is a <i>mamzer</i>. What is the reason</b> for this ruling? It is that <b>she remains in her</b> original <b>prohibition.</b> <br>Normally, it is prohibited to engage in relations with one’s brother’s wife. However, when there is a mitzva to consummate levirate marriage, that prohibition does not apply, due to the levirate bond between the <i>yavam</i> and <i>yevama</i>. Although following <i>ḥalitza</i> the levirate bond is dissolved, the woman’s status as a <i>ḥalutza</i> means that only the lesser prohibition against marrying a <i>ḥalutza</i> applies to her, and she does not return to her original forbidden status. Shmuel claims that the rival wives of the <i>ḥalutza</i> are not considered to be represented in her act of <i>ḥalitza</i>; consequently, they are not afforded a status similar to that of the <i>ḥalutza</i> herself. Therefore, he assumes that following <i>ḥalitza</i> the rival wives once again become subject to the original prohibition against marrying a brother’s wife. Since that prohibition entails <i>karet</i>, any offspring born from such a union is a <i>mamzer</i>.
+
+### Part 28
+<b>Rav Yosef said: We, too, learned</b> this though an inference from the mishna: <b>A man is permitted</b> to engage in relations <b>with a relative of a rival wife of his <i>ḥalutza</i>.</b> Rav Yosef explains the inference: <b>Granted, if you say</b> that <b>a rival wife is outside,</b> i.e., she is not represented in the <i>ḥalitza</i> of the <i>ḥalutza</i> and so she is not afforded a status similar to that of the <i>ḥalutza</i> herself, then it is <b>due to that</b> reason that <b>he is permitted</b> to engage in relations <b>with her sister</b> and other relatives, because since they are not the relatives of his <i>ḥalutza</i>, there is no reason for them to be forbidden.
+
+### Part 29
+<b>However, if you say</b> that <b>a rival wife is</b> afforded a status <b>similar to</b> that of <b>the <i>ḥalutza</i></b> herself, <b>why is he permitted</b> to her relatives? Rather, from the fact that the relatives of the rival wives are permitted, it is apparent that the rival wives are not represented in the <i>ḥalitza</i>. As such, it follows that they should return to their original forbidden status of a brother’s wives, as Shmuel claims.
+
+### Part 30
+The Gemara suggests: <b>Shall we say,</b> then, that this mishna <b>is a conclusive refutation of</b> the opinion of <b>Rabbi Yoḥanan? As</b> Rabbi Yoḥanan <b>said: Neither he</b> who performed the <i>ḥalitza</i> <b>nor his brothers are liable to</b> receive <b><i>karet</i>;</b> they are <b>neither</b> liable to receive <b><i>karet</i> on account of</b> engaging in relations with <b>the <i>ḥalutza</i>, nor</b> are they liable to receive <b><i>karet</i> on account of</b> engaging in relations with <b>her rival wife.</b>
+
+### Part 31
+The Gemara responds: <b>Rabbi Yoḥanan</b> could have <b>said to you: But</b> how can <b>you understand</b> it that way? Why do you assume that if the rival wives are considered to be represented in the <i>ḥalitza</i> that perforce means that their relatives should be forbidden to the <i>yavam</i>? Is <b>a sister of</b> one’s <b><i>ḥalutza</i></b> forbidden <b>by Torah</b> law<b>? Didn’t Reish Lakish say</b> with regard to another mishna (41a): <b>Here, Rabbi</b> Yehuda HaNasi <b>taught:</b> Engaging in relations with <b>a sister of</b> one’s <b>divorcée</b> is forbidden <b>by Torah law,</b> whereas engaging in relations with <b>a sister of</b> one’s <b><i>ḥalutza</i> is</b> forbidden <b>by rabbinic law.</b> Since the prohibition with regard to the relatives of one’s <i>ḥalutza</i> is rabbinic, it is reasonable to assume that it was applied to only the wife who actually performed <i>ḥalitza</i> and not extended to her rival wives, even if they are considered to be represented in her <i>ḥalitza</i> to the extent that they do not return to their original forbidden status.
+
+### Part 32
+§ The Gemara questions the distinction indicated by the mishna: <b>What is different</b> about <b>this</b> woman, the relative of a rival wife of one’s <i>ḥalutza</i>, that she is permitted, <b>and what is different</b> about <b>that</b> woman, the rival wife of a relative of one’s <i>ḥalutza</i>, that she is forbidden?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+It <b>is taught</b> in <b>another</b> <i>baraita</i>: <b>“So shall no inheritance transfer from one tribe to another tribe”</b> (Numbers 36:9); <b>the verse speaks of</b> the <b>transfer</b> of the inheritance <b>by means of the husband.</b> The Torah prohibits the woman from marrying a man from a different tribe since her husband will inherit from her, thereby transferring her inheritance away from its original tribe.
+
+### Part 2
+<b>Do you say</b> that this is <b>with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the husband, or is it only with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the son? When it says: “So shall no inheritance of the children of Israel transfer from tribe to tribe”</b> (Numbers 36:7), the verse is <b>speaking with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the son. How do I realize</b> the meaning of the verse: <b>“So shall no inheritance transfer from one tribe to another tribe”</b> (Numbers 36:9)? That <b>verse speaks of</b> the <b>transfer</b> of the inheritance <b>by means of the husband.</b>
+
+### Part 3
+The Gemara comments: <b>In any event,</b> according to <b>everyone,</b> i.e., according to both <i>baraitot</i>, the phrase in <b>the verse “from one tribe to another tribe” speaks of</b> the <b>transfer</b> of the inheritance <b>by means of the husband.</b> The Gemara asks: <b>From where</b> is this <b>inferred?</b> The Gemara supplies <b>a mnemonic. Rabba bar Rav Sheila said</b> that the latter part of <b>the verse states:</b> “So shall no inheritance transfer from one tribe to another tribe; for the tribes of the children of Israel shall cleave <b>each one [<i>ish</i>]</b> to its own inheritance,” alluding to the transfer by means of the husband, as the word “<i>ish</i>” means husband, in the context of: “Elimelech the husband [<i>ish</i>] of Naomi” (Ruth 1:3). The Gemara asks: But the word <b>“<i>ish</i>” is written in both of</b> the verses. Therefore, both verses should be interpreted with regard to the transfer of the inheritance by means of the husband.
+
+### Part 4
+<b>Rather, Rav Naḥman bar Yitzḥak said</b> a different explanation. The <b>verse states: “Shall cleave,”</b> and this term alludes to marriage, as in the context of: “And he shall cleave to his wife” (Genesis 2:24). The Gemara raises a difficulty: But the term <b>“shall cleave” is written in both of</b> the verses. Therefore, both verses should be interpreted with regard to the transfer of the inheritance by means of the husband.
+
+### Part 5
+<b>Rather, Rava said</b> a different explanation: The <b>verse states: “The tribes</b> of the children of Israel <b>shall cleave,”</b> and tribes cleave to one another through marriage. <b>Rav Ashi said</b> another explanation: The <b>verse states: “From one tribe to another tribe,” and a son is not</b> considered <b>“another,”</b> as he is an extension of his mother.
+
+### Part 6
+§ <b>Rabbi Abbahu says</b> that <b>Rabbi Yoḥanan says</b> that <b>Rabbi Yannai says</b> that <b>Rabbi</b> Yehuda HaNasi <b>says, and</b> some <b>determined it</b> was <b>in the name of Rabbi Yehoshua ben Korḥa: From where</b> is it derived <b>that a husband</b> who inherits from his wife does not <b>take in</b> inheritance the property <b>due</b> to the deceased <b>as</b> he does the property she <b>possessed?</b> Instead of the husband inheriting the property that was due to her, that property is inherited by her other relatives, such as her son, or other relatives of her father. <b>As it is stated: “And Seguv begot Yair, who had twenty three cities in the land of Gilead”</b> (I Chronicles 2:22). The Gemara asks: <b>From where</b> did <b>Yair have</b> land <b>that</b> his father, <b>Seguv, did not have? Rather,</b> this <b>teaches that Seguv married a woman and she died in the lifetime of her</b> potential <b>legators, and her legators</b> then <b>died, and Yair,</b> her son, not Seguv, her husband, <b>inherited</b> these inheritances from <b>her.</b>
+
+### Part 7
+<b>And it is stated: “And Elazar, the son of Aaron, died; and they buried</b> him in the Hill of Pinehas his son” (Joshua 24:33). <b>From where</b> did <b>Pinehas have</b> land <b>that</b> his father, <b>Elazar, did not have?</b> Rather, this <b>teaches that Elazar married a woman and she died in the lifetime of her</b> potential <b>legators, and her legators</b> then <b>died, and Pinehas</b> her son, not Elazar her husband, <b>inherited</b> the property from <b>her.</b>
+
+### Part 8
+<b>And what</b> is the meaning of: <b>And it is stated?</b> Why is it necessary to provide an additional proof beyond the first verse? The Gemara explains. <b>And if you would say:</b> In the verse concerning Seguv and Yair, it is <b>Yair,</b> not Seguv, <b>who married a woman and she died and he inherited</b> from <b>her,</b> and he did not inherit from his mother, <b>the verse states: “And Elazar, the son of Aaron, died;</b> and they buried him in the Hill of Pinehas his son” (Joshua 24:33), teaching that Pinehas inherited the land of those from whom his mother inherited, and Elazar did not. <b>And if you would say that</b> this land <b>came into</b> the possession of Pinehas <b>as a dedicated field,</b> as he was a priest, and he did not inherit it from his mother, <b>the verse states: “His son,”</b> indicating that it was <b>an inheritance that was fitting for him,</b> i.e., Elazar, had his wife not predeceased her legators, <b>and his son inherited it.</b>
+
+### Part 9
+§ The mishna teaches: <b>And sons of sisters,</b> i.e., nephews born to the sisters of the deceased, inherit from their maternal uncles but do not bequeath to them. <b>It is taught</b> in a <i>baraita</i>: This <i>halakha</i> applies to <b>sons of sisters but not</b> to <b>daughters of sisters.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

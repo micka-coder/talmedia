@@ -1,0 +1,63 @@
+
+### Part 1
+is <b>liable to</b> pay <b>all of</b> the five types of indemnity.
+
+### Part 2
+The Gemara explains: In <b>this</b> case of one who injured his parent but <b>did not bruise him, what are the circumstances?</b> Is it <b>not</b> a case <b>where he struck him on his hand, and it will eventually return</b> to its original health? <b>And</b> with regard to this case that mishna <b>teaches:</b> He is <b>liable</b> to pay <b>all of</b> the five types of indemnity. If so, this resolves Rabba’s dilemma.
+
+### Part 3
+The Sages object and <b>say: Here we are dealing with</b> a case <b>where he deafened</b> his parent by striking him, <b>but did not bruise him.</b> Since his father’s hearing loss is permanent, he is liable to pay all five types of indemnity, and this is not relevant to Rabba’s dilemma. The Gemara objects: <b>But doesn’t Rabba</b> himself <b>say: One who deafens his father is executed,</b> even though no bruise is visible, <b>because it is impossible for deafening</b> to occur <b>without a bruise?</b> It is certain that <b>a drop of blood fell into his ear</b> from the blow, even if it is not visible from the outside.
+
+### Part 4
+<b>Rather,</b> it must be that <b>here we are dealing with</b> a case <b>where he shaved his</b> father’s hair without causing a bruise. In a case where <b>he shaved him,</b> his hair <b>will return, and this is</b> an example of <b>our dilemma,</b> i.e., of an injury to a limb that will return to its original health. If so, this resolves Rabba’s dilemma.
+
+### Part 5
+The Sages object and <b>say:</b> It is possible that <b>here we are dealing with</b> a case <b>where he smeared</b> his father with a <b>depilatory</b> agent <b>[<i>nasha</i>]</b> that caused his hair to fall out, so <b>that</b> his hair <b>will not return.</b>
+
+### Part 6
+The Gemara explains how one could be liable for each of the five types of indemnity by smearing a depilatory agent: The father experiences <b>pain</b> in a case <b>where he has fissures on his head and has pain from those fissures.</b> He incurs <b>medical costs because he requires healing</b> for the fissures. He incurs <b>loss of livelihood</b> in a case <b>where he would dance in taverns</b> to earn money, <b>which requires</b> him to <b>make various gestures with his head</b> and his hair while dancing; <b>and</b> now <b>he cannot gesture</b> because <b>of those fissures</b> on his head. He experiences <b>humiliation,</b> because <b>there is no humiliation greater than</b> losing one’s hair.
+
+### Part 7
+The Gemara comments: <b>And the matter that is a dilemma for Rabba is obvious to Abaye on this side</b> of the dilemma, <b>and to Rava on that side</b> of the dilemma; they each resolved the dilemma but with opposing conclusions. <b>As it was stated:</b> If one <b>struck</b> another <b>on his hand and</b> the hand was <b>weakened, but it will ultimately return</b> to its original health, <b>Abaye says: He gives him</b> compensation for his <b>major loss of livelihood,</b> i.e., the decrease in his value, due to his temporary paralysis, as measured by his price on the slave market; <b>and</b> his <b>minor loss of livelihood,</b> i.e., the money he would have earned while idle during his recovery. <b>And Rava says: He gives him only the value of his loss of livelihood for each and every day,</b> and he does not give him the full value of his hand.
+
+### Part 8
+§ The Gemara presents another dispute between Abaye and Rava. It <b>was stated:</b> With regard to <b>one who severs the hand of a Hebrew slave</b> who <b>belongs to another, Abaye says: He gives</b> compensation for the <b>major loss of livelihood to the slave, and</b> compensation for the <b>minor loss of livelihood to the master. Rava says: All</b> the compensation <b>shall be given to the slave, and land shall be purchased with</b> the money; <b>and the master garners the profits</b> from the land for the duration of the slave’s term of slavery.
+
+### Part 9
+The Gemara comments: It is <b>obvious</b> that if one injured a slave and thereby <b>reduced</b> the slave’s value <b>for</b> the slave <b>himself, but he did not reduce</b> the slave’s value <b>for his master;</b> the Gemara interjects: <b>What are the circumstances</b> where this is possible? This is possible in a case <b>where he split the tip of his ear or the tip of his nostril,</b> which does not impact the slave’s ability to perform labor. The Gemara returns to continue the statement: In such a case, <b>all</b> of the compensation goes <b>to</b> the slave <b>himself.</b> If the injury <b>reduced</b> the slave’s value <b>for his master,</b> then this is the case of <b>the dispute of Abaye and Rava.</b>
+
+### Part 10
+§ The mishna teaches: How is payment for <b>humiliation</b> assessed? <b>It all depends on</b> the stature of <b>the one who humiliates</b> the other <b>and the one who is humiliated.</b> The Gemara asks: <b>Whose</b> opinion is expressed in <b>the mishna?</b> It is <b>not</b> the opinion of <b>Rabbi Meir, and</b> it is <b>not</b> the opinion of <b>Rabbi Yehuda. Rather, it is</b> the opinion of <b>Rabbi Shimon.</b>
+
+### Part 11
+These opinions are <b>as we learned</b> in a <i>baraita</i>: <b>And</b> in <b>all of those</b> cases of Jews who were humiliated, regardless of their individual stature, <b>they are viewed as though they were freemen who lost their property</b> and were impoverished, and their humiliation is calculated according to this status, <b>as they are the sons of Abraham, Isaac, and Jacob,</b> and are all of prominent lineage. Humiliation is assessed according to a standard formula, regardless of who was humiliated. This is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> The court views each person according to his stature, <b>the great</b> person <b>according to his greatness, and the small</b> person <b>according to his smallness. Rabbi Shimon says:</b> In a case of <b>wealthy</b> people, the court <b>views them as though they were freemen who lost their property;</b> in a case of <b>poor</b> people, the court views them <b>as the least among</b> the poor. This lessens the payment of compensation for the one who caused humiliation.
+
+### Part 12
+The Gemara explains: <b>Whose</b> opinion is expressed in the mishna? <b>Now, if</b> it is the opinion of <b>Rabbi Meir, the mishna teaches: It all depends on</b> the stature of <b>the one who humiliates</b> the other <b>and the one who is humiliated, and Rabbi Meir</b> holds in the <i>baraita</i> that <b>all of those</b> who were humiliated <b>are</b> considered alike to <b>one another. And if</b> it is the opinion of <b>Rabbi Yehuda, a mishna teaches</b> (86b): <b>One who humiliates a blind person is liable, whereas Rabbi Yehuda says</b> in a <i>baraita</i>: <b>A blind person does not have humiliation. Rather, is</b> the opinion expressed in the mishna <b>not</b> that of <b>Rabbi Shimon?</b>
+
+### Part 13
+The Gemara rejects this conclusion: <b>You</b> can <b>even say</b> that the mishna expresses the opinion of <b>Rabbi Yehuda. When Rabbi Yehuda said</b> that <b>a blind person does not have humiliation,</b> he meant <b>with regard to</b> another <b>taking</b> compensation for humiliation <b>from him.</b> A blind person is not fully aware of what he does, and one can be rendered liable for causing humiliation only if he intended to humiliate the other. <b>But with regard to giving him</b> compensation for humiliation, <b>he is given</b> compensation.
+
+### Part 14
+The Gemara challenges this explanation of the opinion of Rabbi Yehuda: <b>But from the fact that</b> the <b>latter clause</b> of that mishna <b>teaches</b> that <b>one who humiliates a sleeping person</b> is <b>liable but a sleeping person who humiliates</b> another is <b>exempt, and does not teach</b> that <b>a blind person who humiliates</b> another is <b>exempt, by inference,</b> the mishna teaches that there is <b>no difference this</b> way, <b>and no difference that</b> way; whether a blind person humiliates another or is humiliated, the one who causes humiliation is liable to pay compensation. <b>Rather, it is clear</b> that <b>the mishna is</b> in accordance with the opinion of <b>Rabbi Shimon.</b>
+
+### Part 15
+§ The Gemara analyzes a related <i>baraita</i> in light of the three opinions cited earlier. <b>Who</b> is the <i>tanna</i> who <b>taught this</b> <i>baraita</i>, <b>as the Sages taught:</b> If one <b>intended to humiliate a small</b> man <b>[<i>katan</i>] and</b> instead <b>humiliated a great</b> man <b>[<i>gadol</i>]</b>, <b>he gives the money</b> he would have owed <b>for the small</b> man’s <b>humiliation to the great</b> man. If one <b>intended to humiliate a slave and</b> instead <b>humiliated a freeman, he gives the money</b> he would have owed <b>for the slave’s humiliation to the freeman. Whose</b> opinion is this? It is <b>not</b> the opinion of <b>Rabbi Meir, and not</b> the opinion of <b>Rabbi Yehuda, and not</b> the opinion of <b>Rabbi Shimon.</b>
+
+### Part 16
+The Gemara explains why this is not in accordance with the opinion of any of these <i>tanna’im</i>: It <b>enters your mind</b> to say that when the <i>baraita</i> is referring to <b>a <i>katan</i>,</b> it means that he is <b>small in</b> terms of his <b>property,</b> i.e., he is poor; and when the <i>baraita</i> is referring to <b>a <i>gadol</i>,</b> it means that he is <b>great in</b> terms of his <b>property,</b> i.e., he is wealthy. <b>If</b> this <i>baraita</i> is stating the opinion of <b>Rabbi Meir, doesn’t he say</b> in the <i>baraita</i> that <b>all of those</b> who were humiliated <b>are</b> considered similar to <b>one another? And if</b> it is stating the opinion of <b>Rabbi Yehuda, doesn’t he say: Slaves have no humiliation;</b> whereas the <i>baraita</i> discusses the compensation owed to a slave. <b>And if</b> it is stating the opinion of <b>Rabbi Shimon, doesn’t he say:</b> If one <b>intended to humiliate this</b> one, <b>and</b> instead <b>humiliated that</b> one, he is <b>exempt?</b>
+
+### Part 17
+The Gemara explains Rabbi Shimon’s statement: <b>What is the reason</b> for exempting one who humiliated a person whom he did not intend to humiliate? The <i>halakha</i> of humiliation is <b>like</b> the <i>halakha</i> of <b>killing. Just as</b> in a case of <b>killing,</b> the murderer is not executed <b>unless he intended</b> to kill the victim specifically, <b>as it is written: “And he lies in wait for him, and rises up against him”</b> (Deuteronomy 19:11), which means he is not liable <b>unless</b> he <b>intended</b> to kill <b>him</b> specifically, so <b>too,</b> in a case of <b>humiliation,</b> the one who humiliated is not liable <b>unless</b> he <b>intended</b> to humiliate <b>him</b> specifically, <b>as it is written: “And she put forth her hand, and took him by his genitals”</b> (Deuteronomy 25:11); this teaches that one is not liable for humiliation <b>unless</b> he <b>intended</b> to humiliate <b>him</b> specifically.
+
+### Part 18
+The Gemara returns to analyzing the <i>baraita</i>: <b>Actually,</b> the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Yehuda, and when Rabbi Yehuda said: Slaves have no humiliation,</b> he meant that one would not be liable <b>to give them</b> compensation for humiliation; <b>but</b> if the court needs <b>to appraise</b> compensation for the humiliation of others <b>according to their</b> humiliation, and thereby determine the compensation one owes to a freeman when he intended to humiliate a slave, then <b>we do appraise according to their</b> humiliation.
+
+### Part 19
+The Gemara presents an alternative explanation of the <i>baraita</i>: <b>And if you wish, say</b> instead: <b>You</b> can <b>even say</b> that the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Meir. Do you maintain</b> that when the <i>baraita</i> is referring to <b>a <i>gadol</i>,</b> it means he is <b>great in</b> terms of his <b>property,</b> and when the <i>baraita</i> is referring to <b>a <i>katan</i>,</b> it means he is <b>small in</b> terms of his <b>property? No,</b> rather, when the <i>baraita</i> is referring to <b>a <i>gadol</i>,</b> it means <b>an actual adult [<i>gadol</i>]; and</b> when the <i>baraita</i> is referring to <b>a <i>katan</i>,</b> it means <b>an actual minor [<i>katan</i>].</b>
+
+### Part 20
+The Gemara asks: <b>But is a minor subject to humiliation?</b> The Gemara answers: <b>Yes, as Rav Pappa said</b> with regard to another <i>halakha</i>: The case involves a minor <b>who</b> has reached a stage in which when <b>others humiliate him he feels humiliation; here, too,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

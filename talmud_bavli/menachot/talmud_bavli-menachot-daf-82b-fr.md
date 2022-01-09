@@ -1,0 +1,45 @@
+
+### Partie 1
+Pouvez-vous <b>dire</b> la meme chose <b>en ce qui concerne</b> l'offrande pascale</b> des <b>generations, qui exige</b> le <b>placement du sang</b> sur l'autel <b>et</b> que les <b>parties sacrificielles</b> soient consommees <b>par l'autel ?</b>
+
+### Partie 2
+Rabbi Eliezer <b>lui repondit :</b> Les offrandes pascales doivent etre comparees, <b>comme le</b> verset <b>declare</b> a propos de l'offrande pascale des generations : "Et lorsque l'Eternel vous fera entrer dans le pays des Cananeens, des Hittites, des Amorites, des Hivvites et des Jebusites, qu'il a jure a vos peres de vous donner, un pays ruisselant de lait et de miel, <b>vous accomplirez ce service en ce mois"</b> (Exode 13, 5). Cela indique <b>que tous les services de ce mois</b> pour les generations <b>seront comme ceci,</b> l'offrande pascale d'Egypte.
+
+### Partie 3
+La Guemara discute de l'opinion de Rabbi Akiva : Dans un premier temps, Rabbi Akiva rejette la declaration de Rabbi Eliezer en se basant sur l'affirmation selon laquelle on ne peut pas deriver le possible de l'impossible. Il rejette ensuite la declaration de Rabbi Eliezer sur un point technique, a savoir que les deux offrandes pascales ont des exigences sacrificielles differentes. La Guemara conteste donc : <b>Et</b> quant a <b>Rabbi Akiva, s'il soutient qu'on ne derive pas</b> le <b>possible de</b> l'<b>impossible,</b> alors <b>qu'il s'en tienne a sa declaration.</b>
+
+### Partie 4
+Et <b>s'il s'est retracte</b> et a concede que l'on derive le possible de l'impossible, <b>et</b> le fait <b>qu'il n'a pas derive</b> la <i>halakha</i> en ce qui concerne l'offrande pascale des generations <b>de</b> la <i>halakha</i> de <b>l'offrande pascale</b> en <b>Egypte est du a cette refutation</b> qu'il a proposee, c'est-a-dire, que les offrandes pascales sont differentes, alors <b>l'offrande pascale</b> qui a ete sacrifiee la deuxieme annee dans <b>le desert prouvera</b> que cette refutation est incorrecte. Cette offrande necessitait de placer le sang et les portions sacrificielles sur l'autel, mais elle etait apportee uniquement avec de l'argent non sacre, car il n'y avait pas de dimes dans le desert.
+
+### Partie 5
+La Guemara explique : Rabbi Akiva <b>a enonce</b> cette objection <b>conformement a la declaration de Rabbi Eliezer.</b> Il voulait dire comme suit : <b>Selon mon</b> avis, <b>on ne derive pas</b> le <b>possible de</b> l'<b>impossible,</b> et c'est une raison suffisante pour laquelle on ne peut pas deriver la <i>halakha</i> en ce qui concerne l'offrande pascale des generations de la <i>halakha</i> de l'offrande pascale en Egypte. Et meme <b>selon votre</b> opinion, dans laquelle vous avez dit</b> que <b>on derive</b> le <b>possible de</b> l'<b>impossible,</b> cette comparaison peut etre refutee : <b>Qu'est-ce qui</b> est remarquable <b>de l'offrande pascale</b> sacrifiee en <b>Egypte ?</b> Il est remarquable en <b>ce que</b> il <b>n'exigeait pas</b> le <b>placement du sang</b> sur l'autel ni que les <b>parties sacrificielles</b> soient consommees <b>par l'autel. </b> Pouvez-vous <b>en dire autant</b> en ce qui concerne l'offrande pascale</b> des <b>generations, qui exige</b> le <b>placement du sang</b> sur l'autel <b>et</b> que les <b>portions sacrificielles</b> soient consommees <b>par l'autel ?</b>
+
+### Partie 6
+<b>Et</b> en reponse a cela, <b>Rabbi Eliezer lui dit</b> que la <i>halakha</i> par rapport a l'offrande pascale des generations doit etre derivee de la <i>halakha</i> de l'offrande pascale en Egypte, puisque le verset dit par rapport a l'offrande pascale des generations : <b>"Que vous gardiez</b> ce service en ce mois".
+
+### Partie 7
+La Guemara demande : <b>Mais</b> pourquoi <b>Rabbi Eliezer</b> doit-il citer ce verset ? <b>Qu'il dise a</b> Rabbi Akiva : <b>L'offrande pascale</b> apportee dans <b>le desert prouvera</b> que cette refutation est incorrecte, puisqu'elle necessitait bien le placement du sang et la consommation des portions sacrificielles sur l'autel, or elle n'a ete apportee que de l'argent non sacre.
+
+### Partie 8
+La Guemara repond : Rabbi Eliezer <b>declara</b> son opinion <b>conforme a la declaration de Rabbi Akiva.</b> Il voulait dire comme suit : <b>A mon</b> avis, <b>on derive</b> le <b>possible de</b> l'<b>impossible. Et quant</b> a <b>cette refutation</b> que vous avez soulevee, a savoir que l'offrande pascale en Egypte et l'offrande pascale des generations ont des exigences sacrificielles differentes, <b>l'offrande pascale</b> du <b>sauvage prouvera</b> que ce n'est pas une refutation valable. <b>Selon votre</b> avis, dans lequel vous avez dit</b> que <b>on ne derive pas</b> le <b>possible de</b> l'<b>impossible,</b> le verset dit : <b>Ce que vous garderez</b> ce service en ce mois,</b> indiquant que l'offrande pascale des generations est comparee a l'offrande pascale en Egypte.
+
+### Partie 9
+La Gemara conteste : <b>Mais meme maintenant, que</b> Rabbi Akiva <b>refute</b> cette comparaison par la meme affirmation selon laquelle on ne peut deriver le possible de l'impossible. <b>Rav Sheshet dit : C'est-a-dire</b> que <b>on ne peut refuter une juxtaposition,</b> c'est-a-dire qu'on ne peut refuter une telle derivation basee sur un raisonnement.
+
+### Partie 10
+<b>Et dans la salle d'etude [<i>uvetarbitza</i>]</b> ils ont discute de la declaration de la mishna selon laquelle la <i>halakha</i> selon laquelle toutes les offrandes obligatoires doivent etre apportees a partir de biens non sacres est derivee de l'offrande pascale des generations, et <b>ils ont dit : Mais une matiere derivee par juxtaposition,</b> c'est-a-dire l'offrande pascale des generations, dont la <i>halakha</i> est derivee par juxtaposition de l'offrande pascale en Egypte, peut-elle <b>encore enseigner une matiere par</b> une autre <b>juxtaposition ?</b> La Gemara repond : Ceci n'est pas considere comme un cas ou une matiere derivee par juxtaposition enseigne une matiere derivee par une autre juxtaposition. Au contraire, la declaration de la mishna selon laquelle toutes les offrandes sont juxtaposees a l'offrande pascale <b>a ete enoncee de maniere generale</b>, puisque <b>l'ensemble de l'offrande pascale est une seule matiere.</b> L'offrande pascale en Egypte et l'offrande pascale des generations sont toutes deux designees comme une offrande pascale.
+
+### Partie 11
+La Gemara demande : <b>Et</b> quant a <b>Rabbi Akiva,</b> qui rejette les preuves de Rabbi Eliezer, <b>d'ou tire-t-il</b> <b>que l'offrande pascale ne provient que de l'argent non sacre</b> ? La Guemara repond : Rabbi Akiva <b>le deduit de ce que Shmuel a dit au nom de Rabbi Eliezer :</b> Il est dit : <b>Voici la loi de l'holocauste, de l'offrande de repas, de l'offrande pour le peche, de l'offrande de culpabilite, de l'offrande d'inauguration et du sacrifice de paix"</b> (Levitique 7:37). Ce verset relie toutes les offrandes specifiees, de sorte que les aspects individuels de chaque offrande sont applicables a toutes les offrandes.
+
+### Partie 12
+La Guemara detaille ces aspects. Le verset indique : "De l"?holocauste,"</b> pour enseigner que toutes les offrandes sont comme un holocauste en ce que <b>tout comme un holocauste requiert un ustensile</b> dans sa preparation, <b>de meme toutes</b> les offrandes animales <b>requierent un ustensile. Quel est cet ustensile ? Si l'on dit</b> que c'est <b>un bol,</b> un ustensile utilise pour recueillir le sang, comme on l'apprend des holocaustes qui ont ete sacrifies au Mont Sinai, cela ne peut etre correct, car un ustensile pour recueillir le sang n'a pas besoin d'etre appris d'un holocauste. <b>En ce qui concerne les offrandes de paix communautaires, il est egalement ecrit :</b> "Et ils offraient des holocaustes, et ils sacrifiaient des offrandes de paix"¦<b>Et Moise prit la moitie du sang et le mit dans des bassins"</b> (Exode 24:5""6).
+
+### Partie 13
+<b>Le terme ustensile doit plutot faire reference a <b>un couteau,</b> car l'abattage ne peut etre effectue qu'avec un couteau et non avec une pierre ou un roseau tranchant. La Gemara demande : <b>Et</b> en ce qui concerne <b>l'holocauste lui-meme, d'ou deduit-on</b> qu'il doit etre egorge avec un couteau ? Cela s'apprend de <b>ce qui est ecrit : "Abraham etendit la main et prit le couteau pour egorger son fils"</b> (Genese 22, 10) ; <b>et la,</b> Abraham sacrifiait <b>un holocauste, comme il est ecrit : "Il l'offrit en holocauste A la place de son fils"</b> (Genèse 22:13).
+
+### Partie 14
+La Guemara continue d'expliquer le verset susmentionne (Levitique 7:37). Lorsque le verset mentionne <b>une offrande de repas,</b> il enseigne que <b>tout comme une offrande de repas n'est mangee que par les males de</b> la <b>pretrise</b> (voir Levitique 6:9""11), <b>de meme toutes</b> les offrandes mentionnees dans ce verset <b>ne sont mangees que par les males de</b> la <b>pretrise.</b> La Gemara demande : Par rapport a <b>quelle</b> offrande <b>est-ce</b> que cette <i>halakha</i> doit etre derivee ? <b>Si</b> on suggere que c'est par rapport a l'<b>offrande de peche et</b> l'<b>offrande de culpabilite,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

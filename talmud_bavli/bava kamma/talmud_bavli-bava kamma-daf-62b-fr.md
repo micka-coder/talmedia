@@ -1,0 +1,18 @@
+
+### Partie 1
+<strong>MISHNA :</strong> Dans le cas d'une <b>etincelle qui a emerge de sous le marteau</b> d'un forgeron et a declenche un incendie, <b>causant des dommages,</b> le forgeron est <b>responsable</b> des dommages causes.
+
+### Partie 2
+Dans le cas d'un <b>chameau charge de lin qui traversait le domaine public, et dont le lin s'etendait dans un magasin et</b> le lin <b>a pris feu a partir d'une lampe</b> dans le magasin <b>appartenant au commercant, et</b> suite a la combustion du lin, le chameau <b>a mis le feu au batiment</b> ainsi qu'a tout son contenu, <b>le proprietaire du chameau</b> est <b>responsable. </b> Mais si <b>le commercant a place sa lampe a l'exterieur,</b> provoquant ainsi l'embrasement du lin sur le chameau, et par consequent l'incendie du batiment, <b>le commercant</b> est <b>responsable. Rabbi Yehuda dit : Dans</b> un cas ou la lampe placee a l'exterieur etait <b>une lampe de Hanoucca,</b> le commercant est <b>exempte,</b> car c'est une mitsva pour une lampe de Hanoucca d'etre placee a l'exterieur.
+
+### Partie 3
+<strong>GEMARA:</strong> <b>Ravina a dit au nom de Rava : Concluez de Rabbi Yehudas</b> que <b>la mitsva est de placer la lampe de Hanouka dans</b> une hauteur de <b>dix</b> handbreadths du sol <b>comme, s'il vous vient a l'esprit</b> de dire que la mitsva peut aussi etre accomplie en la placant <b>au-dessus de dix metres carres, pourquoi Rabbi Yehouda a-t-il dit que</b> dans le cas d'une <b>lampe de Hanouka</b> placee a l'exterieur, le commercant est <b>exempte ? Que</b> le proprietaire du chameau <b>dit au</b> commercant : <b>Vous auriez du placer</b> la lampe <b>au-dessus de la hauteur</b> <b>d'un chameau et de son cavalier</b> afin que le lin ne prenne pas feu. <b>Au contraire,</b> ne faut-il pas <b>en conclure</b> ici que l'avis de Rabbi Yehuda est que <b>la mitsva est de la placer a moins de dix brins de main</b> du sol et pas plus haut ?
+
+### Partie 4
+Les Sages <b>disent</b> en reponse : <b>Non,</b> il n'y a pas de preuve d'ici. <b>En fait, je</b> pourrais <b>vous dire</b> qu'on peut placer une lampe de Hanouka <b>meme au-dessus</b> d'une hauteur de <b>dix</b> milliemes de pouce, et quant a <b>ce que vous avez dit,</b> que le proprietaire du chameau peut pretendre : <b>Vous auriez du placer</b> la lampe <b>au-dessus</b> de la hauteur <b>d'un chameau et de son cavalier,</b> en reponse a cela on peut dire : <b>Puisque</b> le proprietaire du magasin <b>accompli une mitsva</b> en placant sa lampe de Hanoucca a l'exterieur, <b>les Sages ne l'ont pas trouble a ce point</b> pour qu'il place sa lampe a une hauteur qu'il lui serait peu commode d'atteindre.
+
+### Partie 5
+Plus loin sur le sujet de la hauteur d'une lampe de Hanouka, <b>Rav Kahana dit</b> que <b>Rav Natan bar Minyumi a enseigne au nom de Rabbi Tanhum : Une lampe de Hanouka placee a plus de vingt coudees</b> du sol est <b>inapte</b> a etre utilisee pour la mitsva, car les gens ne levent generalement pas les yeux a une telle hauteur, et le but principal de la lampe de Hanouka est qu'elle soit vue par les autres. A cet egard, la <i>halakha</i> de la hauteur d'une lampe de Hanouka est <b>comme</b> la <i>halakha</i> de la hauteur d'une <b>sukka</i> et</b> la <i>halakha</i> de la hauteur d'une poutre transversale a l'entree d'une <b>ruelle,</b> qui sont impropres a leurs usages respectifs si elles sont superieures a vingt coudees.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

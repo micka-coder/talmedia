@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>dont l'impurete de troisieme</b> degre <b>est venue du</b> contact avec un element d'impurete de <b>second</b> degre, dans <b>lequel</b> cas l'element d'impurete de <b>second</b> degre <b>est lui-meme interdit,</b> c'est-a-dire impur. c'est-a-dire impur, meme s'il s'agit d'un aliment <b>non sacre</b>, <b>n'est-il pas logique</b> d'en deduire <b>qu'il devrait</b> pouvoir <b>imposer une impurete de quatrieme</b> degre <b>sur un aliment sacrificiel</b> ?
+
+### Partie 2
+<b>Et si vous disiez</b> que la raison pour laquelle Rabbi Yosei n'a pas employe cette deduction <i>a fortiori</i> est <b>parce qu'elle peut etre refutee</b> comme suit : <b>Ce qui</b> est unique <b>chez celui qui s'est immerge ce jour-la, c'est que</b> avant son immersion, il etait <b>une source primaire d'impurete,</b> cela ne peut etre, car Rabbi Yosei <b>a apporte</b> la preuve de l'existence d'un quatrieme degre d'impurete <b>a partir</b> du cas de <b>celui qui n'a pas encore</b> apporte une offrande de <b>atonement</b>, qui etait egalement une source primaire d'impurete avant son immersion, <b>et</b> Rabbi Yosei n'a clairement <b>pas refute</b> la preuve en raison de ce facteur. Par consequent, la raison pour laquelle Rabbi Yosei n'a pas employe une deduction <i>a fortiori</i> du cas de la nourriture qui a contracte l'impurete de celui qui s'est immerge ce jour-la est clairement qu'il n'est pas d'accord avec l'opinion de Abba Shaul. Par consequent, Rabbi Yohanan conclut qu'il ne peut pas comprendre le raisonnement de Rabbi Yosei.
+
+### Partie 3
+§ <b>Rabbi Asi a dit</b> que <b>Rav a dit, et certains disent que Rabba ben Isi a dit</b> que <b>Rav a dit : Rabbi Meir, et Rabbi Yosei, et Rabbi Yehoshua, et Rabbi Elazar, et Rabbi Eliezer soutiennent tous que</b> un article de statut d'impurete rituelle de deuxieme degre <b>ne peut pas conferer</b> le statut d'impurete rituelle de troisieme degre <b>a des articles non sacres.</b> Rav procede a la preuve de ceci en attribuant le soutien des decisions de chacun de ces <i>tannaim</i>.
+
+### Partie 4
+<b>Rabbi Meir</b> est de cet avis, <b>comme nous l'avons appris</b> dans une mishna (<i>Para</i> 11:5) : <b>Tout ce qui necessite une immersion dans l'eau selon la loi rabbinique rend la nourriture sacrificielle</b> <b>impure</b> a son contact, avec une impurete de second degre, <b>et disqualifie le <i>teruma</i>,</b> c'est-a-dire qu'il rend le <i>teruma</i> lui-meme impur, mais pas dans la mesure ou le <i>teruma</i> peut rendre d'autres <i>teruma</i> impurs. <b>Et</b> tout ce qui necessite une immersion dans l'eau selon la loi rabbinique <b>est permis pour les aliments non sacres</b> <b>et pour</b> le second <b>tithe,</b> c'est-a-dire qu'il ne rend pas ces articles impurs. C'est la declaration de Rabbi Meir. Mais les rabbins interdisent</b> a celui qui a ce degre d'impurete de participer a la seconde <b>tithe.</b> Du fait que Rabbi Meir lui permet de participer a la seconde dime, on en deduit qu'il soutient qu'un element de second degre d'impurete ne peut pas communiquer une impurete de troisieme degre a des elements non sacres.
+
+### Partie 5
+Il est evident que <b>Rabbi Yosei</b> est de cet avis a partir de <b>ce que nous avons enonce</b> ci-dessus, qu'il deduit que la nourriture sacrificielle peut contracter une impurete de quatrieme degre, <b>car s'il soutient</b> que les articles non sacres peuvent contracter une impurete de troisieme degre, <b>il aurait du deduire</b> par sa deduction <i>a fortiori</i> qu'il existe une impurete de <b>quatrieme degre</b> <b>vis-a-vis de <i>teruma</i> et de cinquieme</b> degre <b>vis-a-vis de la nourriture sacrificielle</b>, puisque chacune de ces categories a un niveau d'impurete unique.
+
+### Partie 6
+<b>Rabbi Yehoshua</b> est de cet avis, <b>comme nous l'avons appris</b> dans une mishna (<i>Teharot</i> 2:2) : <b>Rabbi Eliezer dit : Celui qui mange un aliment</b> avec une impurete de <b>premier</b> degre assume une impurete de <b>premier</b> degre. Celui qui mange de la nourriture avec une impurete du <b>second</b> degre assume une impurete du <b>second</b> degre. Celui qui mange des aliments avec une impurete du <b>troisieme</b> degre assume une impurete du <b>troisieme</b> degre. <Rabbi Yehoshua dit : Celui qui mange de la nourriture</b> avec une impurete du <b>premier</b> degre <b>ou</b> de la nourriture avec une impurete du <b>second</b> degre assume une impurete du <b>second</b> degre. Celui qui mange de la nourriture avec une impurete du <b>troisieme</b> degre assume l'impurete du <b>second</b> degre <b>vis-a-vis de la nourriture sacrificielle</b>, <b>et</b> il n'assume pas l'impurete du <b>second</b> degre <b>vis-a-vis du <i>teruma</i>.</b>
+
+### Partie 7
+Manger un article presentant une impurete de troisieme degre n'est possible que dans le cas d'articles non sacres, car manger un <i>teruma</i> impur ou une nourriture sacrificielle est interdit. Cependant, les aliments generiques non sacres ne peuvent absolument pas contracter une impurete de troisieme degre. Par consequent, le cas de celui qui mange des aliments impurs au troisieme degre se refere specifiquement <b>aux aliments non sacres</b> <b>qui ont ete prepares</b> comme si leur niveau de purete etait <b>au niveau</b> de la <b>purete du <i>teruma</i>.</b> Au moyen d'un vœu, on peut etablir le statut de purete des aliments non sacres a traiter au niveau de purete necessaire au <i>teruma</i>.
+
+### Partie 8
+La Guemara deduit de la declaration de Rabbi Yehoshua que <b>oui,</b> on peut preparer des articles comme si leur niveau de purete etait <b>au niveau</b> de la <b>purete du <i>teruma</i>;</b> mais on ne peut <b>pas</b> preparer des articles comme si leur niveau de purete etait <b>au niveau</b> de la <b>purete de la nourriture sacrificielle</b>, et ces articles ne contracteraient pas d'impurete du troisieme degre.
+
+### Partie 9
+La Gemara conclut : <b>Apparemment,</b> Rabbi Yehoshua <b>soutient</b> qu'un article de second degre d'impurete <b>ne peut pas transmettre</b> une impurete de troisieme degre <b>sur</b> des articles ordinaires <b>non sacres</b> qui n'ont pas ete prepares au niveau de la purete du <i>teruma</i>.
+
+### Partie 10
+<b>Rabbi Elazar</b> est de cet avis, <b>comme cela est enseigne</b> dans une mishna (<i>Teharot</i> 2:7) : <b>Rabbi Elazar dit :</b> Les <b>trois d'entre eux</b> sont <b>egaux</b> dans leur capacite a transmettre l'impurete rituelle a d'autres objets : Un article de <b>premier</b> degre d'impurete, qu'il s'agisse d'un article <b>de nourriture sacrificielle</b>, <b>ou de nourriture non sacree</b>, <b>ou de <i>teruma</i>.</b>
+
+### Partie 11
+<b>En ce qui concerne la nourriture sacrificielle</b>, un tel objet <b>rend impur deux</b> niveaux supplementaires de contact, permettant aux objets qui ont contracte l'impurete rituelle a partir de lui de transferer cette impurete aux objets qu'ils touchent a leur tour par la suite. <b>Et</b> il <b>disqualifie un</b> niveau par la suite, communiquant a l'aliment une impurete de quatrieme degre, qui ne peut communiquer l'impurete a un cinquieme element.
+
+### Partie 12
+<b>En ce qui concerne le <i>teruma</i>,</b> un article d'impurete de premier degre <b>devient impur un</b> niveau supplementaire de contact, c'est-a-dire, il communique une impurete de deuxieme degre a la nourriture <i>teruma</i> avec laquelle il entre en contact, <b>et</b> cet article a son tour <b>se disqualifie d'un</b> niveau supplementaire par la suite, car cette nourriture <i>teruma</i> communique une impurete de troisieme degre a <i>teruma</i>.
+
+### Partie 13
+<b>Et en ce qui concerne les aliments non sacres</b>, un element d'impurete de premier degre ne fait que <b>dequalifier un</b> niveau supplementaire d'aliments non sacres. De toute evidence, les articles non sacres ne peuvent pas aller au-dela d'un second degre d'impurete.
+
+### Partie 14
+<b>Rabbi Eliezer</b> est egalement d'accord avec ce principe, <b>comme nous l'avons appris</b> dans une mishna (<i>Halla</i> 2:8) : <b>Rabbi Eliezer dit : <i>Halla</i> peut etre prelevee sur une pate rituellement pure</b> <b>sur</b> le compte d'une pate <b>rituellement impure</b>. <b>Comment cela ? </b> S'il y a <b>deux lots de pate, dont un</b> est <b>pur et un</b> est <b>impur, </b> on <b>prend</b> la <b>quantite requise de</b> pate pour separer <b><i>halla</i></b> pour les deux lots <b>de la <b>pure pate lorsque sa <i>halla</i> n'a pas</b> encore <b>ete separee</b> pour elle-meme, <b>et</b> ensuite <b>placer moins d'un œuf-bulk</b> de pate, qui n'est pas susceptible de devenir rituellement impure en raison de sa taille, <b>au milieu,</b> entre la pate impure et la pate pure mise de cote pour etre utilisee comme la <i>halla</i> separee. Cela joint toutes les pates ensemble, <b>afin que</b> l'on puisse remplir l'exigence <b>de prendre</b> la pate pour la separation de la <i>halla</i> <b>de la pate <b>qui est situee pres</b> de la pate qu'elle vient exempter.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

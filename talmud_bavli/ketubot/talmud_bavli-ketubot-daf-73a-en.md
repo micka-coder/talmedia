@@ -1,0 +1,21 @@
+
+### Part 1
+<b>Do not say</b> that <b>Rav’s reason</b> for requiring a bill of divorce is that <b>since he married her without specification,</b> this indicates that <b>he waived his condition</b> entirely, and therefore he must give her the payment of her marriage contract if he divorces her. <b>Rather, Rav’s reason</b> is <b>because a person does not</b> intentionally <b>engage in licentious sexual intercourse.</b> He is aware that the initial betrothal may possibly be nullified, rendering sexual intercourse licentious. Therefore, when he marries her, he does so with the intention that the consummation of the marriage serves as unconditional betrothal. However, as he does not entirely waive his condition, if it becomes clear that the condition was not fulfilled, she may be divorced without receiving payment of her marriage contract.
+
+### Part 2
+The Gemara asks: <b>But they</b> already <b>disagree about this</b> fundamental issue of whether it may be assumed that a person does not intentionally engage in licentious sexual intercourse <b>one</b> other <b>time. As it is stated:</b> With regard to <b>a minor girl</b> whose mother or brother married her off, and <b>who did not refuse</b> her husband, despite having the right to do so, <b>and</b> when <b>she became an adult she arose and married</b> someone else, <b>Rav said: She does not require a bill of divorce from the second one.</b> Since she did not refuse the first husband while still a minor, and presumably he later engaged in sexual intercourse with her when she became an adult, and since the assumption is that he does not intentionally engage in licentious relations, the first marriage is binding and the second is meaningless.
+
+### Part 3
+<b>And Shmuel said: She requires a bill of divorce from the second one.</b> Her first husband did not engage in sexual intercourse with the intention that it serve as a new betrothal, rather he intended to continue the relationship established between them when she was a minor. Therefore, she is not considered to be his wife and the second marriage is binding.
+
+### Part 4
+The Gemara explains: It is <b>necessary</b> to state the dispute in both instances. <b>For if it was stated</b> only <b>in that</b> case of the minor who did not refuse, one could say that <b>in that</b> case <b>Rav stated</b> his opinion <b>because there is no condition</b> attached to the betrothal. Consequently, when she becomes an adult, he engages in sexual intercourse with intent to betroth her, as he recognizes that the initial betrothal was ineffective. <b>But in this</b> case, <b>where there is a condition</b> and it is unfulfilled, one could <b>say that he concedes to Shmuel</b> that he did not intend to betroth her through intercourse, and she does not require a bill of divorce.
+
+### Part 5
+<b>And</b> conversely, <b>if it was stated</b> only <b>in this</b> case concerning betrothal, it could be argued that <b>in this</b> case <b>Shmuel said</b> that the betrothal is not valid when he engages in sexual intercourse with her, since she violated a condition, <b>but in that</b> case of the minor who did not refuse, one could <b>say</b> that <b>he concedes to Rav.</b> Therefore, it is <b>necessary</b> to state the argument explicitly in both cases.
+
+### Part 6
+The Gemara discusses proofs for both sides of this dispute: <b>We learned</b> in the mishna: If <b>he married her without specification, and it was discovered that vows were incumbent upon her, she</b> may be <b>divorced without</b> receiving payment of her <b>marriage contract.</b> The Gemara infers: <b>She does not require</b> or receive payment of her <b>marriage contract, but she does require a bill of divorce. What, is it not</b> speaking about the case discussed in the first clause, namely that <b>he betrothed her conditionally and</b> then <b>married her without specification?</b> If so, the mishna is <b>a conclusive refutation of Shmuel’s</b> opinion.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

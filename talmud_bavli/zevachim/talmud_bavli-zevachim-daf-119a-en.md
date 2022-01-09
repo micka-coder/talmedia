@@ -1,0 +1,42 @@
+
+### Part 1
+<b>As it is written: “And the days that David reigned over Israel were forty years: Seven years he reigned in Hebron,</b> and thirty-three years he reigned in Jerusalem” (I Kings 2:11). In the first year that David reigned in Jerusalem he brought the Ark there from Kiriath Jearim. The Ark was therefore in Kiriath Jearim for twenty years. When the thirty-three years of David’s reign in Jerusalem are added to these, there are a total of fifty-three years from the destruction of Shiloh. During all of these years, and at the beginning of Solomon’s reign, the Tabernacle was in Nov and Gibeon (see I Kings 3:4).
+
+### Part 2
+<b>And with regard to</b> the construction of the Temple in the time of <b>Solomon, it is written: “And he began to build it</b> in the second day of the second month, <b>in the fourth year of his reign”</b> (II Chronicles 3:2), which was the 480th year following the Exodus (see I Kings 6:1). When the forty years in the wilderness, the fourteen years that the Tabernacle stood in Gilgal, and the fifty-seven years that the Tabernacle stood in Nov and Gibeon, which totals 111 years, are subtracted from the 480, there <b>remain for Shiloh 370 less one</b> years in which the Tabernacle stood there.
+
+### Part 3
+§ The mishna teaches that when Shiloh was destroyed and they <b>arrived at Nov and Gibeon,</b> private altars were permitted and offerings of lesser sanctity could be eaten in any city in Eretz Yisrael. The Gemara asks: <b>From where are these matters</b> derived? they are derived <b>as the Sages taught:</b> The Jewish people were told that when they enter Eretz Yisrael they would be permitted to sacrifice on private altars, <b>“for you have not as yet come to the rest and to the inheritance”</b> (Deuteronomy 12:9), during which time those altars would be prohibited.
+
+### Part 4
+The Gemara interprets the verse: <b>“To the rest”; this</b> is a reference to <b>Shiloh.</b> “The <b>inheritance”; this</b> is a reference to <b>Jerusalem.</b> One may ask: <b>Why</b> does the verse <b>divide them</b> into two terms, i.e., “rest” and “inheritance”? It is <b>in order to give permission</b> to sacrifice on private altars during the period <b>between this</b> one <b>and that</b> one. Therefore, it was permitted to sacrifice on private altars during the period of Nov and Gibeon.
+
+### Part 5
+<b>Reish Lakish said to Rabbi Yoḥanan: Let</b> the <i>tanna</i> of the mishna <b>teach</b> the <i>halakha</i> with regard to <b>second tithe as well.</b> Rabbi Yoḥanan <b>said to him:</b> Second <b>tithe is derived from</b> what was written with regard to <b>the Ark,</b> by means of the verbal analogy between <b>“there”</b> and <b>“there.”</b> With regard to second tithe, the verse states: “And there you shall eat before the Lord your God” (Deuteronomy 12:7), while with regard to the Ark, the verse states: “There you shall place the Ark of the Testimony” (Exodus 40:3). Due to the analogy between second tithe and the Ark, one can infer that <b>since there was no Ark</b> in Nov and Gibeon, as at that time it was in Kiriath Jearim, <b>there was also no</b> second <b>tithe</b> eaten there.
+
+### Part 6
+Reish Lakish asked: <b>If</b> it is <b>so</b> that this is the source, then with regard to the <b>Paschal offering and</b> other <b>sacrificial</b> animals, which everyone agrees were consumed in Nov and Gibeon, it can <b>also</b> be said <b>that they are derived from the Ark</b> by means of the verbal analogy between <b>“there”</b> and <b>“there,”</b> and <b>since the Ark was not</b> in Nov and Gibeon <b>they too were not</b> there.
+
+### Part 7
+Rabbi Yoḥanan <b>said to him:</b> With regard to the one <b>who said this to you,</b> i.e., the <i>tanna</i> of the mishna, from which you inferred that second tithe was not eaten in Nov and Gibeon, in accordance with <b>whose</b> opinion <b>is this</b> statement of his? <b>It is</b> the opinion of <b>Rabbi Shimon, who says: Even</b> the <b>public sacrificed</b> upon a great public altar, e.g., in Nov and Gibeon, <b>only Paschal offerings and compulsory public offerings that have a set time. But compulsory</b> offerings <b>that do not have a set time were not sacrificed here or there,</b> i.e., on a great public altar or on a small private altar. This includes <b>an animal tithe</b> offering, which <b>is a compulsory offering that has no set time, and grain tithe is juxtaposed to animal tithe.</b> Since animal tithe offerings were not brought at that time, second tithe was not eaten there either.
+
+### Part 8
+The Gemara asks: Based on this, may it be concluded <b>by inference that according to</b> the opinion of <b>Rabbi Yehuda</b> that compulsory offerings for which there is no set time were sacrificed upon a great public altar, second tithe was eaten there and animal tithe offerings were <b>sacrificed?</b> The Gemara responds: <b>Yes, as Rav Adda bar Mattana says: Second tithe and animal tithe</b> offerings <b>were consumed in Nov and Gibeon according to the statement of Rabbi Yehuda.</b> The Gemara challenges: <b>But</b> these <b>require</b> the <b>Temple,</b> not a tent, to which people will come to eat tithes. The Gemara responds: <b>But didn’t Rav Yosef teach</b> a <i>baraita</i> that states: <b>There</b> were <b>three temples: Shiloh, Nov and Gibeon, and the Eternal House. He teaches it and he says it:</b> This is referring <b>to consuming second tithe, and</b> is <b>in accordance with</b> the opinion <b>of Rabbi Yehuda.</b>
+
+### Part 9
+§ The mishna teaches that when they <b>arrived at Jerusalem,</b> private altars were prohibited and there was no subsequent period in which they were permitted. And the Temple in Jerusalem was characterized as “inheritance.” With regard to this, <b>the Sages taught</b> in a <i>baraita</i>: The verse that discusses the permissibility of private altars states: <b>“For you have not as yet come to the rest and to the inheritance”</b> (Deuteronomy 12:9). The Gemara interprets: With regard to <b>“rest,” this</b> is a reference to <b>Shiloh,</b> and with regard to <b>“inheritance,” this</b> is a reference to <b>Jerusalem.</b>
+
+### Part 10
+<b>And</b> similarly, the verse that relates a prophecy with regard to Jerusalem <b>states:</b> “I have forsaken My house, I have cast off My inheritance…<b>My inheritance has become to Me as a lion in the forest”</b> (Jeremiah 12:7–8). <b>And</b> additionally, in that same prophecy the verse <b>states: “Is My inheritance to Me as a speckled bird of prey? Are the birds of prey against her round about?”</b> (Jeremiah 12:9). This is <b>the statement of Rabbi Yehuda.</b>
+
+### Part 11
+By contrast, <b>Rabbi Shimon says:</b> With regard to <b>“rest,” this</b> is a reference to <b>Jerusalem,</b> and with regard to <b>“inheritance,” this</b> is a reference to <b>Shiloh. And</b> this is evident from the verse that <b>says: “This is My resting place forever; here will I dwell, for I have desired it”</b> (Psalms 132:14). <b>And it states</b> in the previous verse: <b>“For the Lord has chosen Zion; He has desired it for His habitation”</b> (Psalms 132:13), which indicates that the verses are referring to Jerusalem.
+
+### Part 12
+The Gemara challenges: <b>Granted, according to the one who says</b> that with regard to <b>“rest,” this</b> is a reference to <b>Shiloh; that is, as it is written: “To the rest and to the inheritance,”</b> in chronological order, as the period of Shiloh preceded that of Jerusalem. <b>But according to the one who says</b> that with regard to <b>“rest,” this</b> is a reference to <b>Jerusalem,</b> and with regard to <b>“inheritance,” this</b> is a reference to <b>Shiloh,</b> the verse <b>should have stated: To the inheritance and to the rest.</b> The Gemara explains: <b>This</b> is what the verse <b>is saying:</b> When you enter Eretz Yisrael private altars will be permitted, and <b>it is not necessary</b> to say <b>that you have not arrived at</b> the <b>“rest,”</b> i.e., the Temple in Jerusalem, <b>but you have not even arrived at</b> the <b>“inheritance,”</b> i.e., the Tabernacle in Shiloh.
+
+### Part 13
+§ With regard to the words “rest” and “inheritance” in the aforementioned verse, <b>the school of Rabbi Yishmael taught</b> that <b>this and that,</b> i.e., both terms, are a reference to <b>Shiloh. Rabbi Shimon ben Yoḥai says: This and that</b> are a reference to <b>Jerusalem.</b> The Gemara asks: <b>Granted, according to the one who says</b> that with regard to <b>“rest,” this</b> is
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+<b>that this</b> offspring born to the ewe <b>that had not</b> previously <b>given birth is superior.</b> The Gemara concludes: Consequently, it was <b>necessary</b> to teach each case.
+
+### Part 2
+<strong>MISHNA:</strong> With regard to an animal <b>born by caesarean section and</b> the offspring <b>that follows it,</b> since there is uncertainty whether each is a firstborn, neither is given to the priest. <b>Rabbi Tarfon says: Both of them must graze until they become unfit, and they may be eaten in their blemished</b> state <b>by their owner. Rabbi Akiva says: Neither of them is firstborn; the first because it is not</b> the one <b>that opens the womb</b> (see Exodus 13:12), as this animal did not itself open the womb, <b>and the second because</b> the <b>other</b> one <b>preceded it.</b>
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>With regard to what do</b> Rabbi Akiva and Rabbi Tarfon <b>disagree? Rabbi Tarfon is uncertain</b> with regard to an animal that is <b>a firstborn in one aspect,</b> e.g., first to be born or first to open the womb, <b>whether it is</b> considered a <b>firstborn or whether it is not</b> considered <b>a firstborn. And</b> conversely, it is <b>obvious to Rabbi Akiva</b> that an animal which is <b>a firstborn in</b> only <b>one aspect is not</b> considered <b>a firstborn.</b>
+
+### Part 4
+With regard to the definition of a firstborn, <b>the Sages taught</b> in a <i>baraita</i>: This <i>halakha</i> can be derived by means of the form of exegesis known as: <b>From a generalization that requires a detail, and from a detail that requires a generalization. How so?</b> The verse states: “Sanctify to Me all the firstborn, that which opens any womb among the children of Israel, both of man and of animal, it is Mine” (Exodus 13:2). Had the verse written only the generalization: <b>“Sanctify to Me all the firstborn,”</b> one <b>might</b> have thought that <b>even a female</b> animal <b>is included</b> in the category of a firstborn. Therefore, <b>the verse states</b> the detail: “Every firstborn <b>male</b>…you shall sanctify to the Lord” (Deuteronomy 15:19).
+
+### Part 5
+And <b>had</b> the verse stated only: “Every firstborn <b>male,”</b> one <b>might</b> have thought that the first male offspring of an animal has firstborn status, <b>even</b> in a case where <b>a female emerged</b> from the womb <b>before it.</b> Therefore, <b>the verse states: “That which opens</b> any <b>womb,”</b> to teach that only an animal that itself opens its mother’s womb can be a firstborn. And <b>had</b> the verse stated only: <b>“That which opens</b> any <b>womb,”</b> one <b>might</b> have thought that <b>even</b> an animal that <b>emerged</b> from the womb <b>after</b> its older sibling was <b>born by caesarean section</b> is considered firstborn. Therefore, <b>the verse states:</b> “All the <b>firstborn,”</b> to teach that only the first offspring can be considered a firstborn.
+
+### Part 6
+The Gemara analyzes the <i>baraita</i>. <b>Rav Sherevya said to Abaye:</b> In <b>the first clause, the <i>baraita</i> does not cite</b> proof from the word <b>“firstborn”</b> that a male born after a female is not considered a firstborn. <b>Apparently,</b> an animal that is <b>a firstborn in one aspect is</b> called <b>a firstborn,</b> otherwise the <i>baraita</i> would not have had to derive the exclusion of a male born after a female from the phrase “that which opens any womb”; it could have cited the word “firstborn.” And in <b>the last clause, the <i>baraita</i> does cite</b> proof from the word <b>“firstborn”</b> that an animal whose older sibling was born by caesarean section is not considered a firstborn, despite the fact that it is a firstborn in one aspect. <b>Apparently, a firstborn in one aspect is not</b> called <b>a firstborn.</b> If so, the <i>baraita</i> is self-contradictory.
+
+### Part 7
+Abaye <b>said to</b> Rav Sherevya: <b>Actually, a firstborn in one aspect is not</b> called <b>a firstborn, and this</b> is what <b>the first clause is saying: Had</b> the verse stated only: “Every firstborn <b>male,”</b> one <b>might</b> have thought that <b>even</b> an animal <b>born by caesarean section</b> is itself considered a firstborn. Therefore, <b>the verse states: “That which opens</b> any <b>womb,”</b> to teach that an animal must itself open the womb to be considered a firstborn. The word “firstborn” cannot be cited as proof that an animal born by caesarean section is not a firstborn, as such an animal was in fact born first. Therefore, the <i>tanna</i> cites the phrase “that which opens any womb.” Once this phrase is cited, then a male born after a female is excluded as well, despite the fact that this <i>halakha</i> could have been derived from the word “firstborn.”
+
+### Part 8
+<b>Ravina said</b> that there is a different explanation: <b>Actually, a firstborn in one aspect is</b> called <b>a firstborn,</b> and the <i>halakha</i> is not derived from the meaning of the word “firstborn” itself, but from the fact that it is superfluous. <b>And this</b> is what <b>the last clause is saying: If it enters your mind</b> that an animal which <b>emerged</b> from the womb <b>after</b> its older sibling was <b>born by caesarean section is sanctified, why do I</b> need the word <b>“firstborn” that the Merciful One wrote?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+<b>as Rava says:</b> One who approaches another and says: <b>I</b> have <b>one hundred dinars in your possession, and the other says: You have in my possession only fifty</b> dinars that I am sure about, <b>and</b> as for <b>the rest, I do not know.</b> As one who admitted to part of a claim, he is liable, by Torah law, to take an oath that he does not owe the other fifty dinars. <b>Since he cannot take an oath</b> to that effect, as he is unsure if he owes it, <b>he must pay.</b>
+
+### Part 2
+The Gemara explains how the mishna can be interpreted as referring to a case in which the defendant makes a partial admission, thereby requiring him to take an oath: <b>You find it</b> in <b>the first clause,</b> i.e., in the first two cases of the mishna, in a situation <b>where</b> he took hold of <b>two</b> cows, <b>and</b> in <b>the latter clause,</b> i.e., in the third case, in a situation <b>where</b> he took hold of <b>three</b> cows.
+
+### Part 3
+The Gemara explains: One can interpret <b>the first clause</b> to be referring to a case <b>where</b> one took hold of <b>two</b> cows, as follows: The case is <b>that</b> the owner <b>said to</b> the bailee: <b>I delivered two cows to you</b> under the agreement that one <b>half</b> of the <b>day</b> you would have them <b>through borrowing and</b> the other <b>half</b> of the <b>day through renting,</b> or, <b>alternatively, one day through borrowing and one day through renting. And</b> I claim that <b>both died during a period of borrowing,</b> so you are liable to pay for both of them.
+
+### Part 4
+<b>And the borrower said to him:</b> With regard to <b>one</b> of them, <b>yes,</b> I admit that <b>it died during a period of borrowing.</b> But with regard to the <b>other one, I do not know whether it died during a period of borrowing or if it died during a period of renting.</b> Because he admits to part of the claim, he is required to take an oath in order to be exempt from the rest of the claim. As he concedes that he does not know what happened, he is unable to take such an oath. The <i>halakha</i> is that <b>since he is unable to take an oath, he must pay</b> for both cows.
+
+### Part 5
+<b>And</b> one can interpret <b>the latter clause</b> to be referring to a case <b>where</b> he took hold of <b>three</b> cows, as follows: The case is <b>that</b> the owner <b>said to</b> the bailee: <b>I gave three cows to you; two through borrowing and one through renting. And</b> I claim that <b>those two that</b> were being <b>borrowed</b> were the ones that <b>died. And the borrower said to him: Yes,</b> I admit that <b>one</b> of the cows <b>that</b> was <b>borrowed died.</b> But with regard to <b>the other</b> one that died, <b>I do not know if</b> it was the other cow that was being <b>borrowed</b> that <b>died, and</b> so the cow <b>that is</b> still <b>alive is</b> the one <b>that</b> was being <b>rented, or</b> if the one <b>that</b> was being <b>rented died, and this</b> one <b>that is</b> still <b>alive is</b> the one <b>that</b> was being <b>borrowed.</b> Because he admits to part of the claim, in order to be exempt from the rest of the claim he is required to take an oath. As he concedes that he does not know what happened, he is unable to take such an oath. And the <i>halakha</i> is that <b>since he is unable to take an oath, he must pay</b> for both cows.
+
+### Part 6
+The Gemara explains how the mishna can be interpreted even according to the unique opinion of Rami bar Ḥama: <b>And</b> the mishna can be interpreted <b>in accordance with</b> the opinion of <b>Rami bar Ḥama, who says:</b> In order for any of the <b>four</b> types of <b>bailees</b> to be required to take an oath, <b>they need</b> to make both <b>a denial of part</b> of the owner’s claim <b>and an admission of</b> another <b>part</b> of his claim. According to his opinion, <b>you find</b> the bailee is liable to take an oath in <b>the first clause,</b> i.e., in the first two cases of the mishna, in a situation <b>where</b> he took hold of <b>three</b> cows, <b>and</b> in <b>the latter clause,</b> i.e., in the third case, in a situation <b>where</b> he took hold of <b>four</b> cows.
+
+### Part 7
+The Gemara elaborates: One can interpret <b>the first clause</b> to be referring to a case <b>where</b> he took hold of <b>three</b> cows, as follows: The case is <b>that</b> the owner <b>said to</b> the bailee: <b>I gave three cows to you</b> under the agreement that one <b>half of the day</b> you would have them <b>through borrowing and</b> the other <b>half of the day through renting,</b> or, <b>alternatively, one day through borrowing and one day through renting. And</b> I claim that <b>all three of them died during a period of borrowing,</b> and so you are liable to pay for all of them.
+
+### Part 8
+<b>And the borrower said to him:</b> With regard to <b>one</b> of them, this <b>matter never occurred,</b> as I took only two cows from you. <b>And,</b> as for the two cows I did take, with regard to <b>one</b> of them, <b>yes,</b> I admit that <b>it died during a period of borrowing.</b> But with regard to the <b>other one, I do not know whether it died during a period of borrowing or if it died during a period of renting.</b> Because the bailee admits to part of the claim and denies another part of the claim, he is required to take an oath in order to be exempt from the rest of the claim. As he concedes that he does not know what happened, he is unable to take such an oath. The <i>halakha</i> is that <b>since he is unable to take an oath, he must pay</b> for all three cows.
+
+### Part 9
+One can interpret <b>the latter clause</b> to be referring to a case <b>where</b> he took hold of <b>four</b> cows, as follows: The case is <b>that</b> the owner <b>said to</b> the bailee: <b>I gave four cows to you, three through borrowing</b> and <b>one through renting. And</b> I claim that <b>those three that</b> were being <b>borrowed</b> were the ones that <b>died. And</b> he <b>said to him,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

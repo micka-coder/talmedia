@@ -3,13 +3,15 @@ import fs from "fs";
 import shell from "shelljs";
 
 // options is optional
-glob("./talmud bavli/**", null, function (er, files) {
+glob("../talmud_bavli_2/**", null, function (er, files) {
     //console.log("files ===>", files);
     files.forEach((file) => {
         let path = file.split('/');
         let partialPath = [...path];
         let filename = partialPath.pop();
         if(!filename.includes('.md')) return;
+        //if(filename.trim() === "talmud_bavli_2") return;
+        //if(filename.toLowerCase() === filename) return;
         //transform filename
         //filename = filename.toLowerCase() + "FGT";
         filename = filename.replace("FGT","");

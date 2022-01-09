@@ -1,0 +1,51 @@
+
+### Partie 1
+La Guemara demande : <b>Mais</b> pourquoi ne pas le <b>laisser dire</b> son conseil <b>explicitement ?</b> Pourquoi Rabbi Yehouda HaNasi a-t-il repondu de maniere aussi circonspecte, ce qui aurait pu etre interprete de maniere incorrecte ? La Guemara repond : Rabbi Yehuda HaNasi <b>s'est dit</b> a lui-meme : Si je reponds ouvertement, <b>les Romains importants</b> pourraient <b>m'entendre et me feront</b> <b>sangloter.</b> La Guemara demande : <b>Mais</b> pourquoi ne pas le <b>laisser dire</b> son conseil <b>tranquillement ?</b> La Gemara explique : Rabbi Yehuda HaNasi craignait encore qu'ils puissent entendre ce qu'il avait dit, <b>car il est ecrit :</b> "Ne maudis pas le roi, non, pas dans ta pensee, et ne maudis pas le riche dans ta chambre a coucher, <b>car un oiseau du ciel portera la voix"</b> (Ecclesiaste 10:20).
+
+### Partie 2
+La Gemara raconte : Antonin <b>avait une certaine fille dont le nom etait Gira,</b> qui <b>a accompli une action interdite,</b> c'est-a-dire qu'elle s'est engagee dans des rapports sexuels de promiscuite. Antonin <b>envoya une plante fusee [<i>gargira</i>] a</b> Rabbi Yehuda HaNasi, pour faire allusion au fait que Gira avait eu des actes de promiscuite [<i>gar</i>]. Rabbi Yehuda HaNasi <b>lui envoya de la coriandre [<i>kusbarta</i>],</b> ce qu'Antonin comprit comme un message pour tuer [<i>kos</i>] sa fille [<i>barta</i>], car elle etait susceptible de recevoir la peine de mort pour ses actions. Antonin lui <b>envoie des poireaux [<i>karti</i>]</b> pour lui dire : Je serai retranche [<i>karet</i>] si j'agis ainsi. Rabbi Yehuda HaNasi lui <b>envoie alors de la laitue [<i>hasa</i>],</b> c'est-a-dire qu'Antonin doit avoir pitie [<i>has</i>] d'elle.
+
+#### Partie 3
+La Gemara raconte : <b>Chaque jour</b> Antoninus <b>envoyait a</b> Rabbi Yehuda HaNasi <b>de l'or concasse dans de grands sacs, avec du ble dans l'ouverture des</b> sacs. <b>Il</b> <b>dit a</b> ses serviteurs : <b>Apportez</b> ce <b>ble a Rabbi</b> Yehuda HaNasi, et ils ne realisaient pas que les sacs contenaient en realite de l'or. <b>Rabbi</b> Yehuda HaNasi <b>a dit a</b> Antonin : <b>Je n'ai pas besoin</b> d'or, car <b>j'en ai en abondance.</b> Antoninus <b>a dit :</b> L'or <b>doit etre pour ceux qui viendront apres toi, qui le donneront aux derniers qui viendront apres toi. Et ceux qui descendront d'eux rapporteront</b> l'or que je te donne maintenant, et pourront payer les impots aux Romains avec cet argent.
+
+### Partie 4
+La Gemara relate une autre anecdote impliquant Antoninus. Antoninus <b>avait une certaine</b> <b>cave</b> souterraine d'ou partait un tunnel <b>qui allait de sa maison a la maison de Rabbi</b> Yehuda HaNasi. <b>Chaque jour, il faisait venir deux serviteurs</b> pour le servir. <b>Il en tuait un a l'entree de la maison de Rabbi</b> Yehuda HaNasi, <b>et tuait</b> l'autre <b>a l'entree de sa maison,</b> afin qu'aucune personne vivante ne sache qu'il avait rendu visite a Rabbi Yehuda HaNasi. <b>Il dit a</b> Rabbi Yehuda HaNasi : <b>Quand je viendrai</b> te rendre visite, <b>ne trouve aucun homme devant toi.</b>
+
+### Partie 5
+<b>Un jour,</b> Antonin <b>trouva que Rabbi Hanina bar Hama etait assis</b> la. <b>Il dit : Ne t'ai-je pas dit</b> que <b>lorsque je viens</b> te rendre visite, <b>ne trouve aucun homme devant toi ?</b> Rabbi Yehuda HaNasi <b>lui a dit : Ce n'est pas un etre humain;</b> il est comme un ange, et tu n'as rien a craindre de lui. Antonin <b>Dit a</b> Rabbi Hanina bar Hama : <b>Dis a ce serviteur qui dort a l'entree qu'il se leve et vienne.</b>
+
+### Partie 6
+<b>Rabbi Hanina bar Hama alla</b> et <b>trouva que</b> le serviteur dont parlait Antonin <b>avait ete tue. Il se dit : <b>Comment dois-je agir ? Si je vais dire</b> a Antoninus <b>qu'il a ete tue,</b> cela pose probleme, car il ne faut <b>pas rapporter une nouvelle affligeante</b>. Si <b>Je le laisse et je pars,</b> alors je serais <b>traiter le roi avec irrespect. Il pria</b> Dieu d'avoir <b>la clemence et ranima</b> le serviteur, <b>et il l'envoya</b> a Antoninus. Antoninus <b>a dit : Je sais</b> que meme <b>le plus petit d'entre vous</b> peut <b>ressusciter les morts ; mais quand je viendrai</b> visiter <b>ne trouve aucun homme devant toi,</b> meme un aussi grand que Rabbi Hanina bar Hama.
+
+### Partie 7
+La Guemara raconte : <b>Chaque jour</b> Antonin <b>assistait Rabbi</b> Yehuda HaNasi ; <b>il le nourrissait</b> et <b>le donnait a boire. Lorsque Rabbi</b> Yehuda HaNasi <b>voulait monter sur son lit,</b> Antonin <b>se penchait devant le lit</b> et <b>lui disait : Monte sur moi jusqu'a ton lit.</b> Rabbi Yehuda HaNasi <b>a dit</b> en reponse : Ce n'est pas une bonne conduite de traiter le roi avec un tel manque de respect. Antonin a dit : Oh, si je pouvais etre place comme un matelas sous toi dans le monde a venir!</b>
+
+### Partie 8
+A une autre occasion, Antoninus <b>a dit a</b> Rabbi Yehuda HaNasi : Est-ce que <b>je vais entrer dans le Monde-a-Venir ?</b> Rabbi Yehuda HaNasi <b>lui a repondu : Oui.</b> Antonin <b>lui a dit : Mais n'est-il pas ecrit : "Et il ne restera plus rien de la maison d'Esau"</b> (Abdias 1:18) ? Rabbi Yehuda HaNasi repondit : Le verset est enonce <b>a l'egard</b> de ceux qui <b>realisent des actions</b> similaires a celles <b>de</b> l'impie <b>Esau,</b> et non a l'egard de personnes comme vous.
+
+### Partie 9
+<b>Cela est egalement enseigne</b> dans un <i>baraita</i> : Du verset : <b>"Et il ne restera plus rien de la maison d'Esau,</b> on <b>pourrait</b> avoir pense que cela s'applique <b>a toute personne</b> descendant d'Esau, independamment des actions d'un individu. Par consequent, <b>le verset dit : "De la maison d'Esau,"</b> pour indiquer que le verset est enonce uniquement <b>en ce qui concerne</b> ceux qui continuent dans la voie d'Esau, et <b>realisent des actions</b> similaires a celles <b>d'Esau.</b>
+
+### Partie 10
+Antonin a <b>dit a</b> Rabbi Yehuda HaNasi : <b>Mais n'est-il pas ecrit</b> dans la description du monde souterrain : <b>Voila Edom, ses rois et tous ses chefs"</b> (Ezechiel 32:29) ? Rabbi Yehuda HaNasi <b>lui repondit :</b> Le verset dit : <b>"Ses rois", mais pas : Tous ses rois,</b> et de meme il est dit : <b>Tous ses dirigeants,</b> mais pas : Tous ses officiers.</b> Certains d'entre eux meriteront le Monde-a-Venir.
+
+### Partie 11
+<b>Cela est egalement enseigne</b> dans un <i>baraita</i> : Le verset indique : <b>"Ses rois", mais pas : Tous ses rois,</b> et : <b>"Tous ses officiers"</b>, mais pas : Tous ses officiers.</b> La deduction tiree de la formulation du verset : <b>Ses rois,</b> mais pas : Tous ses rois,</b> sert <b>a exclure Antoninus le fils d'Asveirus;</b> et la deduction tiree de la formulation : <b>Tous ses chefs,</b> mais pas : Tous ses officiers,</b> sert <b>a exclure</b> l'officier romain <b>Ketia, fils de Shalom.</b>
+
+### Partie 12
+La Gemara demande : <b>Qu'est-ce qui s'est passe</b> impliquant <b>Ketia, fils de Shalom ? Comme il y avait un certain</b> empereur romain <b>qui detestait les Juifs. Il dit aux membres importants</b> <b>du royaume :</b> Si <b>quelqu'un avait une plaie ulcereuse [<i>nima</i>] qui montait sur son pied, devait-il la couper et vivre, ou la laisser et souffrir ? Ils lui repondirent : Il faut qu'il la coupe et qu'il vive.</b> L'ulcere etait une metaphore du peuple juif, que l'empereur cherchait a eliminer comme cause du mal de l'Empire romain.
+
+### Partie 13
+<b>Ketia, fils de Shalom, leur dit :</b> Il n'est pas sage d'agir ainsi, pour deux raisons. <b>L'une</b> est <b>que vous ne pouvez pas</b> les detruire <b>tous, comme il est ecrit : "Car je vous ai dispersés comme les quatre vents du ciel,</b> dit le Seigneur" (Zacharie 2:10). Il a clarifie : <b>Qu'est-ce que ca veut dire ? Devons-nous dire que</b> le verset signifie que Dieu les a <b>separes aux quatre vents</b> du monde ? Si oui, <b>cette phrase</b> : <b>Comme les quatre vents,</b> est inexacte, car <b>il aurait fallu</b> dire : <b>Aux quatre vents.</b> Au contraire,</b> voici ce que dit le verset : <b>De meme que le monde ne peut</b> exister <b>sans les vents, de meme, le monde ne peut</b> exister <b>sans le peuple juif,</b> et il ne sera jamais detruit. <b>Et en outre,</b> si vous tentez de realiser la destruction des Juifs, <b>ils vous appelleront le royaume coupe,</b> car l'Empire romain serait depourvu de Juifs, mais les Juifs existeraient dans d'autres endroits.
+
+### Partie 14
+L'empereur <b>dit a</b> Ketia : <b>Tu as bien parle</b> et ta declaration est correcte ; <b>mais ils jettent quiconque vainc le roi</b> dans une dispute <b>dans une maison pleine de cendres [<i>lekamonya halila</i>],</b> ou il mourrait. <b>Alors qu'ils s'emparaient</b> de Ketia <b>et allaient</b> le conduire a la mort, <b>une certaine matrone [<i>matronita</i>] lui dit : Malheur au navire qui part sans</b> payer la <b>taxe.</b> Ketia <b>se penche sur son prepuce, le sectionne,</b> et <b>dit : J'ai donne mon impot ; je</b> vais <b>passer et entrer. Quand on le jeta</b> dans la maison de cendres, <b>il dit : Tous mes biens</b> sont donnes <b>a Rabbi Akiva et a ses collegues.</b> Comment cet heritage devait-il etre partage ? La Guemara relate : <b>Rabbi Akiva sortit et enseigna</b> que le verset : <b>"Et ce sera pour Aaron et ses fils"</b> (Exode 29:28), signifie <b>une moitie pour Aaron et une moitie pour ses fils.</b> Ici aussi, comme Rabbi Akiva est mentionne separement, il doit recevoir la moitie, tandis que ses collegues recoivent l'autre moitie.
+
+### Partie 15
+La Guemara revient sur l'histoire de Ketia. <b>Une voix divine emergea et dit : Ketia, fils de Shalom, est destine a la vie dans le Monde-a-Venir.</b> Lorsque <b>Rabbi</b> Yehuda HaNasi entendit cela, <b>il pleura en disant : Il y a</b> celui qui <b>acquiert sa</b> part dans le <b>Monde</b>-a-Venir <b>en un instant, et il y a</b> celui qui <b>acquiert sa</b> part dans le <b>Monde</b>-a-Venir seulement <b>apres de nombreuses annees</b> de labeur.
+
+### Partie 16
+La Gemara raconte : <b>Antoninus s'occupait de Rabbi</b> Yehuda HaNasi, et de meme le roi perse <b>Adrakan s'occupait de Rav. Quand Antoninus mourut, Rabbi</b> Yehuda HaNasi <b>a dit : Le baluchon est separe. A la mort d'Adrakan, Rav</b> de meme <b>a dit : </b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

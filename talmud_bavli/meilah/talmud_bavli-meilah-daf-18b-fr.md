@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>leurs pères, et ils se sont égarés après</b> les dieux des peuples du pays, que Dieu a détruits devant eux" (IA Chroniques 5:25). De même, celui qui fait un mauvais usage d'un bien consacré s'écarte du but pour lequel cet objet particulier était destiné A être utilisé.
+
+### Partie 2
+Le <i>baraita</i> continue : On <b>pourrait</b> avoir pense que la comparaison entre l'usage abusif et le culte des idoles enseigne que l'on est responsable de l'usage abusif meme si l'on a <b>endommage</b> l'objet consacre <b>mais que l'on n'en a pas tire de benefice</b>, car c'est le <i>halakha</i> en ce qui concerne le culte des idoles, ou l'on change le culte de Dieu en culte des idoles sans en tirer de benefice. <b>Ou,</b> a la lumiere de la comparaison entre l'abus et l'adultere presume, on aurait pu penser que l'on serait responsable de l'abus si <b>il tirait un benefice</b> de l'objet consacre <b>mais ne l'endommageait pas</b>, tout comme la femme adultere tire un benefice de l'acte illicite du rapport sexuel sans subir de dommage physique.
+
+### Partie 3
+<b>Et</b> peut-etre faut-il etre responsable du mauvais usage <b>de</b> un objet <b>attache au sol. Et dans</b> le cas d'un <b>agent qui</b> a commis un abus alors qu'il <b>executait son <b>agence</b> assignee, </b> on pourrait penser que l'agent lui-meme, plutot que celui qui l'a nomme, devrait etre responsable de l'abus.
+
+### Partie 4
+La <i>halakha</i> dans ces cas provient du fait que <b>le verset stipule :</b> "Si quelqu'un commet un mauvais usage, <b>et peche</b> par erreur, dans les objets sacres du Seigneur" (Levitique 5:15). Le mot <b>"peche" est enonce a propos de <i>teruma</i>,</b> dans le verset : "Et tu ne porteras pas de peche a cause d'elle, car tu lui as reserve ce qu'elle a de meilleur" (Nombres 18:32) ; <b>et le mot <b>"peche"</b> est egalement <b>enonce a propos de l'abus</b> des biens consacres. Plusieurs <i>halakhot</i> sont derivees de cette analogie verbale.
+
+### Partie 5
+Le <i>baraita</i> developpe : <b>Tout comme</b> en ce qui concerne le mot <b>"sin" enonce a propos du <i>teruma</i>,</b> lorsque quelqu'un peche en prenant part au <i>teruma</i> interdit, c'est une circonstance dans laquelle on <b>dommage et tire un benefice, et</b> la <b>personne qui a endommage</b> le <i>teruma</i> est la meme personne qui <b>en a tire un benefice ; et</b> en ce qui concerne le <i>teruma</i>, on n'est responsable que si <b>on tire un benefice du meme objet qu'on endommage ; et</b> il n'est responsable en matiere de <i>teruma</i> que si <b>son dommage et son benefice</b> se produisent <b>simultanement ; et</b> le statut de <i>teruma</i> ne s'applique qu'<b>a</b> un element <b>detache du sol ; et</b> le statut de <i>teruma</i> prend effet <b>dans</b> le cas d'un <b>agent qui a rempli son</b> <b>agence</b> assignee en designant un article <i>teruma</i>, il en va de meme pour l'usage abusif.
+
+### Partie 6
+Le <i>baraita</i> explique encore : <b>De meme,</b> le mot <b>"sin" enonce a propos de l'usage abusif</b> s'applique specifiquement lorsque l'individu a la fois <b>endommage et tire un benefice</b> des objets consacres ; <b>et</b> lorsque celui <b>qui a endommage</b> en a egalement <b>tire un benefice</b> lui-meme ; <b>et il tire un benefice du</b> meme <b>objet qu'il endommage ; et son dommage et le fait qu'il en tire un avantage</b> se produisent <b>simultanement ; et</b> l'abus ne s'applique qu'a <b>un objet <b>detache du sol ; et</b> l'abus est commis par celui qui designe le mandataire <b>dans</b> le cas d'un <b>mandataire qui a execute son</b> mandat confie. </b>
+
+### Partie 7
+Le <i>baraita</i> continue : De l'analogie verbale <b>J'ai</b> deduit <b>seulement</b> que l'on est responsable d'un mauvais usage si <b>il mange</b> des objets consacres alors qu'il n'est pas autorise a le faire, de facon similaire au cas du <i>teruma</i>. <b>Mais</b> en ce qui concerne celui qui <b>derive le benefice d'un objet qui n'a pas</b> le potentiel d'etre <b>degrade, d'ou</b> je deduis que cela constitue egalement un mauvais usage ?
+
+#### Partie 8
+De meme, si l'on mange d'un objet consacre et que l'on donne a manger a une autre personne, ou il y a <b>sa consommation et la consommation d'une autre personne</b> ou si l'on tire un benefice et que l'on donne a une autre personne pour qu'elle en tire un benefice, ou il y a <b>sa</b> tirant <b>un benefice et une autre personne</b> tirant <b>un benefice</b> et de meme <b>sa</b> tirant <b>un benefice et la consommation d'une autre personne ; </b> et <b>sa consommation et celle d'un autre</b> tirant un <b>benefice;</b> le <i>halakha</i> est <b>que</b> dans tous ces cas, le benefice et la consommation <b>se combinent l'un a l'autre, meme</b> sur <b>une longue</b> periode de <b>temps</b> le meme jour, pour atteindre la valeur d'un <i>peruta</i> qui entraine la responsabilite pour abus. <b>D'ou</b> provient cette <i>halakha</i> ?
+
+### Partie 9
+<b>Le verset dit :</b> "Si quelqu'un <b>commet un usage abusif.</b> Cette clause generale et inclusive enseigne que quelqu'un est responsable de l'usage abusif d'une <i>peruta</i> de valeur d'un bien consacre <b>dans tous les cas,</b> c'est-a-dire meme s'il l'a donne a un autre et que l'un d'eux a mange tandis que l'autre en a tire un benefice, et meme s'il a fallu un certain temps ce jour-la pour utiliser la valeur d'une <i>peruta</i>.
+
+### Partie 10
+Le <i>baraita</i> precise en outre : <b>Si</b> il y a une comparaison entre le <i>teruma</i> et le mauvais usage, on peut pretendre comme suit : <b>Comme</b> dans le cas du mot <b>"sin" qui est enonce a propos de <i>teruma</i>,</b> la Torah ne <b>combine pas deux</b> actes distincts de <b>consommation en un</b> acte interdit, <b>De meme,</b> peut-etre en ce qui concerne le mot <b>"sin" qui est enonce a propos du mauvais usage,</b> la Torah ne <b>combine pas deux</b> actes de <b>consommation en un seul. D'ou vient</b> que si l'on <b>mange</b> la moitie de la quantite minimale d'un paquet d'olives <b>aujourd'hui et que l'on mange</b> une autre moitie <b>demain, meme si beaucoup de temps</b> s'est ecoule, les actes distincts de mesusage se combinent et sont consideres comme un seul acte, ce qui signifie que celui qui a fait cela est responsable de mesusage ? <b>Le verset dit :</b> "Si quelqu'un <b>commet un abus.</b> Le langage inclusif du verset enseigne qu'il est responsable <b>dans tous les cas.</b>
+
+### Partie 11
+Le <i>baraita</i> continue : <b>Si</b> il y a une comparaison entre le <i>teruma</i> et le mauvais usage, on peut pretendre comme suit : <b>De meme que</b> dans le cas du mot <b>"sin" qui est enonce a propos du <i>teruma</i>,</b> le <b>dommage au <i>teruma</i> <b>et</b> le fait que l'individu <b>derive un benefice</b> du <i>teruma</i> se produisent <b>simultanement,</b> il devrait en etre de meme pour le mauvais usage des objets consacres. <b>D'ou vient</b> qu'on est responsable de l'abus <b>pour sa consommation et la consommation d'un autre, </b> lorsque chaque personne seule a consomme moins que la valeur d'une <i>peruta</i>, <b>et meme</b> si les deux actes de consommation sont separes dans le temps <b>de maintenant jusqu'a trois ans</b> plus tard ; <b>d'ou vient</b> que les cas d'abus se combinent ? <b>Le verset dit :</b> "Si quelqu'un <b>commet un abus.</b> Le langage inclusif du verset enseigne qu'il est responsable <b>dans tous les cas.</b>
+
+### Partie 12
+Le <i>baraita</i> poursuit : <b>Si</b> on deduit de l'analogie verbale qu'il existe plusieurs <i>halakhot</i> communes a la fois au <i>teruma</i> et au fait de commettre un mauvais usage, on peut pretendre ce qui suit : <b>Comme</b> dans le cas du mot <b>"sin" qui est enonce a propos de <i>teruma</i>,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

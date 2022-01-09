@@ -1,0 +1,51 @@
+
+### Part 1
+<b>From whose</b> funds must one give his father food and drink? <b>Rav Yehuda says: From</b> the money <b>of the son. Rav Natan bar Oshaya said: From</b> the money <b>of the father. The Sages gave</b> this following <b>ruling to Rav Yirmeya, and some say</b> they gave this following ruling <b>to the son of Rav Yirmeya:</b> The <i>halakha</i> is <b>like the one who says</b> it must be paid <b>from</b> the money <b>of the father.</b>
+
+### Part 2
+<b>The Gemara raises an objection</b> from the following <i>baraita</i>: <b>It is stated: “Honor your father and your mother”</b> (Exodus 20:11), <b>and it is stated: “Honor the Lord with your wealth”</b> (Proverbs 3:9), which teaches the following verbal analogy: <b>Just as there</b> one honors God “with your wealth,” i.e., <b>through monetary loss, so too here</b> one must honor his father <b>through monetary loss. And if you say</b> that one honors him <b>from</b> the money of <b>the father, what difference</b> does it make <b>to</b> the son, i.e., what monetary loss does he suffer? The Gemara answers: It makes a difference to him with regard <b>to</b> the <b>neglect of</b> his <b>work.</b> Although he is not required to spend his own money, the son must leave aside his work to honor his father, which will cause him some financial loss.
+
+### Part 3
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: <b>Two brothers,</b> or <b>two partners</b> in the ownership of produce, or <b>a father and son,</b> or <b>a rabbi and his student, may redeem</b> the <b>second tithe for each other</b> without adding one-fifth, as one who redeems the tithe of another, including these individuals, is not required to add one-fifth. <b>And they may feed each other</b> the <b>poor man’s tithe.</b> If one of them is poor, the other may give him the poor man’s tithe that he separated from his produce, and it is not considered as though the pauper ate the poor man’s tithe from his own produce.
+
+### Part 4
+The Gemara explains the proof from this <i>baraita</i>. <b>And if you say</b> that the obligation to honor one’s father is <b>from</b> the money <b>of the son,</b> one <b>finds</b> that <b>this</b> son <b>repays his obligation from</b> the produce <b>of the poor,</b> as he is taking care of his father with produce that should go to the poor. The Gemara rejects this proof: <b>No,</b> it is <b>necessary to</b> state this <i>halakha</i> in a case where he has covered all of his father’s basic needs with his own money. At this stage, if his father needs <b>surplus</b> money, he may give it to him from the poor man’s tithe.
+
+### Part 5
+The Gemara asks: <b>If so,</b> consider <b>that which is taught with regard to</b> this <i>baraita</i>. <b>Rabbi Yehuda says: May a curse come upon one who feeds his father</b> the <b>poor man’s tithe. And if</b> this <i>halakha</i>, that one may feed his father the poor man’s tithe, was said <b>with regard to a surplus, what difference is there?</b> Since the son has fulfilled his obligation and simply adds something so that his father will have more, why is this person cursed? The Gemara answers: <b>Even so, it is a disrespectful matter</b> for one to feed his father with money that has been designated as charity for the poor.
+
+### Part 6
+The Gemara further suggests: <b>Come</b> and <b>hear: They asked Rabbi Eliezer how far</b> one must go in <b>honoring</b> his <b>father and mother.</b> Rabbi Eliezer <b>said to them: Such that</b> the father <b>takes a purse and throw it into the sea in front of</b> his son, <b>and</b> the son <b>does not embarrass him. And if you say</b> that the son honors him <b>from</b> the money <b>of the father, what difference</b> does it make <b>to</b> the son? Why would the son care if his father throws away his own purse? The Gemara answers: This is referring <b>to</b> a son who is <b>fit to inherit</b> from <b>him.</b> Since the son thinks that the money will eventually belong to him, he has cause for anger.
+
+### Part 7
+<b>And this is as</b> reflected in an incident involving <b>Rabba bar Rav Huna, when Rav Huna tore silk garments in front of his son Rabba.</b> Rav Huna had <b>said</b> to himself: <b>I will go</b> and <b>see if he becomes angry or does not become angry,</b> i.e., he wanted to test him and see whether his son Rabba would honor him. The Gemara asks: <b>But perhaps</b> his son <b>would become angry</b> and Rav Huna would thereby <b>violate</b> the prohibition of: <b>“Nor put a stumbling block before the blind”</b> (Leviticus 19:14), as by testing his son Rav Huna would have caused him to sin. The Gemara answers: It was a case <b>where</b> the father had <b>forgone his honor</b> from the outset. Consequently, even if the son grew angry with him, he would not have violated the mitzva.
+
+### Part 8
+The Gemara asks: <b>But</b> by tearing his clothes, <b>he violates the prohibition: Do not destroy</b> (see Deuteronomy 20:19). The Gemara answers <b>that</b> Rav Huna <b>made</b> a tear <b>at the seam,</b> so that the garment could be repaired. The Gemara asks: <b>Perhaps</b> it was <b>due to that</b> reason that <b>the son did not become angry,</b> because he saw that his father caused no actual damage? The Gemara answers: <b>He did this when</b> the son was already <b>angry</b> for some other reason, so that he would not notice this detail.
+
+### Part 9
+The Gemara cites another story involving the mitzva of honoring one’s father and mother. <b>Rav Yeḥezkel taught his son Rami:</b> If people sentenced to be <b>burned</b> became mingled <b>with</b> those sentenced to be <b>stoned Rabbi Shimon says:</b> All of them <b>are judged with</b> the punishment of <b>stoning, as the</b> punishment of <b>burning is more severe.</b> Since the death penalty of each is uncertain, all of them are treated leniently.
+
+### Part 10
+<b>Rav Yehuda,</b> who was also Rav Yeḥezkel’s <b>son, said to him: Father, do not teach</b> the mishna <b>this way,</b> as, according to this version, <b>why</b> is this the <i>halakha</i> <b>specifically</b> because <b>burning is more severe</b> than stoning? <b>Let him derive</b> it from the fact <b>that the majority are</b> sentenced to be <b>stoned.</b> The wording of the <i>baraita</i>, which states that those who were supposed to be burned became mixed up with those who were to be stoned, indicates that the people sentenced to stoning are the majority. If so, one should simply follow the majority. <b>Rather, I will teach it this</b> way: If those <b>who are</b> sentenced to be <b>stoned</b> became mixed up <b>with</b> those <b>who are</b> sentenced to be <b>burned,</b> they are all judged with the punishment of stoning even though this is the minority, as they are all treated leniently.
+
+### Part 11
+Rav Yeḥezkel <b>said to him: If so, say the latter clause</b> of the mishna: <b>And the Rabbis say</b> that <b>they should be judged with</b> the punishment of <b>burning, as the</b> punishment of <b>stoning is more severe.</b> According to your version, <b>why</b> is this the <i>halakha</i> <b>specifically</b> because <b>stoning is more severe? Let him derive</b> it due to the fact <b>that the majority</b> of people <b>are</b> sentenced to be <b>burned,</b> and one follows the majority.
+
+### Part 12
+His son Rav Yehuda <b>said to him:</b> The statement of the Rabbis is not difficult, as <b>there the Rabbis are saying to Rabbi Shimon</b> as follows: <b>That which you said,</b> that <b>burning is more severe,</b> is <b>not</b> the case; rather, <b>stoning is more severe.</b> In other words, the Rabbis were specifically responding to Rabbi Shimon’s reasoning, and therefore they stated the opposite claim and ignored the issue of which group is in the majority.
+
+### Part 13
+Later, <b>Shmuel said to Rav Yehuda: Big-toothed</b> one, <b>do not speak to your father like that,</b> as it is disrespectful. <b>As it is taught</b> in a <i>baraita</i>: If <b>one’s father was transgressing a Torah matter, he should not say to him</b> explicitly: <b>Father, you transgressed a Torah matter. Rather, he should say to him: Father, so it is written in the Torah.</b> The Gemara asks: If he says to him directly: <b>This is</b> what is <b>written in the Torah, he will cause him suffering. Rather,</b> he should <b>say to him: Father, this verse is written in the Torah,</b> and he should proceed to quote the verse, from which his father will understand on his own that he has acted improperly.
+
+### Part 14
+§ <b>Elazar ben Matya says:</b> If my <b>father says: Give me water, and</b> there is <b>a mitzva</b> for me <b>to perform</b> at the same time, <b>I set aside the honor of my father and perform the mitzva, as my father and I are</b> both <b>obligated in the mitzva. Isi ben Yehuda says: If it is possible for</b> this <b>mitzva to be performed by others, let it be performed by others, and he should go</b> and attend <b>to the honor</b> due to <b>his father,</b> as the honor of his father is his obligation alone. <b>Rav Mattana says:</b> The <b><i>halakha</i></b> with regard to this matter <b>is in accordance with</b> the opinion of <b>Isi bar Yehuda.</b>
+
+### Part 15
+<b>Rav Yitzḥak bar Sheila says</b> that <b>Rav Mattana says</b> that <b>Rav Ḥisda says:</b> With regard to <b>a father who forgoes his honor, his honor is forgone,</b> and his son does not transgress if he does not treat him in the proper manner. By contrast, with regard to <b>a rabbi who forgoes his honor, his honor is not forgone.</b>
+
+### Part 16
+<b>And Rav Yosef says: Even</b> with regard to <b>a rabbi who forgoes his honor, his honor is forgone, as it is stated: “And the Lord went before them by day”</b> (Exodus 13:21). God Himself, the Teacher of the Jewish people, had forgone the honor due Him and took the trouble to guide the people. <b>Rava said: How can</b> these cases <b>be compared? There,</b> with regard to <b>the Holy One, Blessed be He, the world is His and the Torah is His,</b> and therefore He can <b>forgo His honor.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

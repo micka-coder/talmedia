@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>Sur tout"</b> a servi <b>a exclure</b> de contracter l'impurete pour enterrer des <b>personnes eloignees</b>, pour lesquelles un grand pretre ne peut pas devenir impur ; <b>"morts"</b> vient <b>exclure les parents ; "Corps"</b> vient <b>exclure un quart-</b><i>log</i> <b>de sang qui sort de deux cadavres, car il rend</b> les personnes et les objets <b>impurs dans une tente, comme il est dit : "Il n"?entrera pas non plus dans un corps mort"</b> (Levitique 21:11). Le pluriel" corps" enseigne que le sang de deux personnes se combine pour former la quantité minimale d'impureté rituelle.
+
+### Partie 2
+<strong>MISHNA:</strong> <b>Un nazirite se rase pour</b> etre devenu impur a partir de <b>ces</b> sources d'impurete rituelle suivantes : Pour</b> etre devenu impur par l'impurete communiquee par <b>un cadavre ; et pour</b> l'impurete communiquee par <b>une olive-bulle d'un cadavre ; et pour</b> l'impurete communiquee par <b>une olive-bulle de fluide [<i>netzel</i>]</b> d'un cadavre ; <b>et pour</b> l'impurete communiquee par <b>une pleine louche [<i>tarvad</i>] de poussiere</b> d'un cadavre ; et <b>pour</b> l'impurete communiquee par <b>la colonne vertebrale ; et pour</b> l'impurete communiquee par <b>le crane ; et pour</b> l'impurete communiquee par <b>un membre d'un cadavre ou pour</b> l'impurete communiquee par <b>un membre</b> sectionne <b>d'une personne vivante</b>, <b>sur</b> l'un ou l'autre de <b>ceux-ci il y a une quantite convenable</b> de <b>chair ; et pour</b> l'impurete communiquee par <b>un demi-<i>kav</i> d'os</b> d'un cadavre ; <b>et pour</b> l'impurete communiquee par <b>un demi-<i>log</i></b> de <b>sang. </b>
+
+### Partie 3
+<b>Et</b> un nazirite se rase dans chacun de ces cas pour s'etre rendu impur <b>en entrant en contact avec elles ; et pour</b> s'etre rendu impur en les <b>transportant ; et pour</b> s'etre rendu impur par <b>leur tente,</b> c'est-a-dire s'il etait positionne comme une tente au-dessus d'elles, ou s'il entrait dans une tente qui les contient, ou si elles servaient de tente au-dessus de lui. <b>Et</b> quant a <b>un os qui est un grain d'orge-boulot,</b> il se rase <b>pour</b> etre devenu impur en <b>entrant en contact avec lui et en le portant.</b> Toutefois, il n'est pas rendu impur par l'impurete communiquee dans une tente, c'est-a-dire en etant sous le meme toit que l'os.
+
+### Partie 4
+<b>Pour</b> l'ensemble de <b>ces</b> occurrences, <b>un nazirite se rase, et</b> un pretre <b>sprinkle</b> sur lui les cendres de la genisse rouge <b>au troisieme et au septieme</b> jours pour le purifier de l'impurete impartie par un cadavre. <b>Et il annule</b> tous <b>les jours precedents</b> qu'il a comptes pour sa nazireite, <b>et il recommence a compter</b> son terme de nazireite <b>seulement apres etre devenu pur et avoir apporte ses offrandes.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne : Apres la mort de Rabbi Meir, Rabbi Yehouda a dit a ses etudiants : Ne laissez pas les eleves de Rabbi Meir entrer ici,</b> dans la maison d'etude, <b>car ils sont vexatoires et ne viennent pas etudier la Torah, mais ils viennent m'accabler de</b> leurs <b><i>halakhot</i>.</b> Neanmoins, <b>Sumakhos,</b> un eleve de Rabbi Meir, <b>forca son chemin et entra</b> dans la maison d'etude.
+
+### Partie 6
+Lorsqu'ils arriverent au sujet de la mishna, Sumakhos <b>leur dit : Rabbi Meir m'a enseigne comme ceci : Un nazirite se rase pour</b> devenir impur de <b>ces</b> sources suivantes d'impurete <b>rituelle : Pour</b> l'impurete communiquee par <b>un cadavre et pour</b> l'impurete communiquee par <b>un corpus d'olives provenant d'un cadavre. Rabbi Yehuda se mit en colere et dit a</b> ses disciples : <b>Ne vous ai-je pas dit ainsi : Ne laissez pas entrer ici les eleves de Rabbi Meir car ils sont vexatoires ?</b> Il expliqua son agacement. La clause : Pour un cadavre, n'est pas necessaire, car, si un nazirite <b>doit se raser pour</b> l'impurete communiquee par <b>un corpuscule d'olive d'un cadavre,</b> n'est-ce pas <b>a plus forte raison</b> qu'il doit se raser <b>pour</b> l'impurete communiquee par un <b>corpse entier ?</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,21 @@
+
+### Part 1
+<b>one</b> presumption <b>opposed by two</b> others. <b>And we do not say</b> that <b>one</b> presumption is decisive when it is <b>opposed by two.</b> However, if the husband brings proof that that she was blemished <b>before she was betrothed, we cannot say: Establish the</b> state of the woman’s <b>body</b> according <b>to its presumptive status,</b> since it has been established that the blemishes existed prior to the betrothal. <b>What</b> claim <b>is there</b> in the woman’s favor? Only the <b>presumption that a person does not drink from a cup unless he</b> first <b>examines it, and this</b> man <b>has</b> undoubtedly <b>seen</b> her blemishes <b>and been appeased.</b> The Gemara responds: <b>On the contrary,</b> there is a <b>presumption</b> that <b>a person does not become appeased with regard to blemishes, and</b> therefore the <b>money is established</b> according <b>to its presumptive status</b> and do not obligate the husband to pay for the marriage contract.
+
+### Part 2
+<b>Rav Ashi said</b> that the contradiction between the first and last clauses of the mishna can be resolved in the following manner: The <b>first clause</b> is similar to a claim made by one who says: My <b>father has one hundred dinars in your possession.</b> When the blemishes were discovered he had not yet married her, and therefore the payment for the marriage contract would go to the woman’s father, and not to her. <b>And the latter clause</b> is referring to a married woman who claims the marriage contract for herself, and it is therefore as though she says: <b>I have one hundred dinars in your possession.</b> The presumptive status of her body enables her to claim money only for herself, not on behalf of someone else, including her father.
+
+### Part 3
+<b>Rav Aḥa, son of Rav Avya, raised an objection to Rav Ashi’s</b> opinion from a <i>baraita</i>: <b>Rabbi Meir concedes with regard to blemishes that naturally come with her from her father’s house,</b> and which did not develop after the marriage, <b>that the father must bring proof</b> that she did not have them before the betrothal, even if she was already married when they were discovered. <b>But why</b> does Rabbi Meir agree in that case? <b>It is</b> similar to the case where someone says: <b>I have one hundred dinars in your possession,</b> along with the presumptive status of her body; therefore, the burden of proof should be upon the husband.
+
+### Part 4
+The Gemara answers: <b>With what are we dealing here? With</b> a case of a woman who has <b>an additional</b> toe. She was obviously born with that blemish. The Gemara is puzzled by this response: If the <i>baraita</i> is speaking about <b>an additional</b> toe, <b>what proof</b> could the father possibly <b>bring</b> to argue that the toe grew after the marriage? The Gemara answers: He can provide <b>proof that</b> the husband <b>saw</b> the extra toe before the betrothal <b>and he became appeased</b> about it.
+
+### Part 5
+§ <b>Rav Yehuda said</b> that <b>Shmuel said:</b> With regard to one <b>who exchanges a cow for a donkey,</b> where the two animals involved in this transaction are not in the same location, one of the parties acquires one of the animals by means of pulling it, which transfers the other animal to the other party through acquisition by means of the exchange. <b>And</b> in this case <b>the owner of the donkey pulled the cow, but before the owner of the cow could pull the donkey</b> in turn, <b>the donkey died.</b> The owner of the cow claimed that the donkey died before the other one pulled the cow, which means the exchange transaction never took effect. In that case, <b>the owner of the donkey must bring proof that his donkey was alive at the time when the cow was pulled.</b> If he is unable to bring proof to this effect, the owner of the cow retains his animal.
+
+### Part 6
+Rav Yehuda adds: <b>And the <i>tanna</i></b> of the mishna also <b>taught</b> along similar lines with regard to <b>a bride.</b> Shmuel learned this <i>halakha</i> concerning an acquisition by means of barter from the case of a bride. The Gemara inquires: <b>Which</b> <i>halakha</i> involving <b>a bride</b> serves as the basis for the <i>halakha</i> that Shmuel taught? <b>If we say</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

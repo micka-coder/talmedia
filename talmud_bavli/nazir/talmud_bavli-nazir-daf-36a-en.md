@@ -1,0 +1,18 @@
+
+### Part 1
+<b>Ze’eiri says:</b> Permitted and forbidden substances combine with regard to <b>the prohibition against offering leaven</b> on the altar, <b>as well,</b> as it states: “For any [<i>kol</i>] leaven and any [<i>kol</i>] honey shall be offered as a burnt-offering before the Lord” (Leviticus 2:11). This indicates that one is also liable for sacrificing leaven in a mixture in addition to the liability for sacrificing pure leaven. The Gemara asks: <b>In accordance with whose</b> opinion did Ze’eiri issue his ruling? It is <b>in accordance with</b> the opinion of <b>Rabbi Eliezer, who derives</b> from the term <b><i>kol</i></b> in the verse “You shall eat nothing [<i>kol</i>] leavened” (Exodus 12:20) that a mixture with part leaven is forbidden on Passover.
+
+### Part 2
+The Gemara raises a difficulty: <b>If so,</b> then with regard <b>to the matter of leavened bread</b> on Passover, one should <b>also</b> be liable for eating leaven combined with a permitted substance, e.g., less than an olive-bulk of bread soaked in wine, so that the volume is now an olive-bulk. The Gemara answers: <b>Yes, indeed it is so. Rather,</b> when Ze’eiri specifies that the prohibition applies with regard to sacrificing leaven in offerings, he meant <b>to exclude</b> the statement <b>of Abaye, who says: There is</b> significance to <b>sacrificing less than an olive-bulk</b> of leaven on the altar, i.e., one is flogged for sacrificing an offering of that kind. By noting that one is liable due to the fact that permitted substances combine with forbidden substances, Ze’eiri <b>teaches us</b> that <b>there is no</b> significance to <b>sacrificing less than an olive-bulk,</b> and therefore this is not punishable by lashes.
+
+### Part 3
+§ <b>Rav Dimi sat and stated this <i>halakha</i></b> of Rabbi Yoḥanan that a permitted substance does not combine with a forbidden substance except in the case of a nazirite. <b>Abaye raised an objection to his</b> opinion from a mishna (<i>Tevul Yom</i> 2:3): In a case where <b>the thick soup</b> was made with produce that had the status <b>of <i>teruma</i> but the garlic and oil</b> therein were <b>of non-sacred</b> produce, <b>and one</b> who was ritually impure <b>who immersed that day</b> and is waiting for nightfall for the purification process to be completed <b>touched some of</b> the contents, <b>he</b> has <b>disqualified all</b> the contents of the pot from being eaten, as it all is considered <i>teruma</i> soup. However, if <b>the thick soup</b> was made with <b>produce of non-sacred</b> status <b>but the garlic and the oil</b> had the status <b>of <i>teruma</i></b> produce, <b>and one who immersed himself that day touched some of them, he</b> has <b>disqualified only</b> the contents in the <b>place that he touched.</b>
+
+### Part 4
+Abaye continues: <b>And we discussed</b> this issue: <b>Why</b> are the contents in the <b>place that he touched disqualified?</b> Since the primary ingredients of the dish are of non-sacred produce, it should not be disqualified by contact with one who immersed himself that day. <b>And Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: What is the reason</b> that the contents become disqualified? It is <b>due to</b> the fact that <b>a non-priest is flogged for</b> eating <b>an olive-bulk</b> of the soup, as anything into which <i>teruma</i> is mixed is considered <i>teruma</i> by Torah law.
+
+### Part 5
+Abaye concludes his question: <b>What is</b> Rabbi Yoḥanan’s <b>reason</b> that one is flogged for eating this mixture?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

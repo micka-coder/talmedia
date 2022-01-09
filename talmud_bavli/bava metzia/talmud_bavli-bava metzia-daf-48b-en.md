@@ -1,0 +1,36 @@
+
+### Part 1
+<b>But</b> this <i>baraita</i> is <b>difficult according to Reish Lakish.</b> The Gemara answers: <b>Reish Lakish</b> could have <b>said to you:</b> In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i>? <b>It is</b> in accordance with the opinion of <b>Rabbi Shimon,</b> not that of the Rabbis.
+
+### Part 2
+§ The mishna teaches with regard to one who reneges on a transaction after the money was paid: <b>But</b> the Sages <b>said: He Who exacted payment</b> from the people of the generation of the flood, and from the generation of the dispersion, will in the future exact payment from whoever does not stand by his statement. <b>It was stated</b> that there is an amoraic dispute. <b>Abaye said</b> that <b>we inform</b> one who seeks to renege on a transaction: Be aware that this is the punishment of one who does not stand by his statement. <b>Rava said</b> that <b>we curse him</b> with that statement.
+
+### Part 3
+The Gemara elaborates: <b>Abaye said</b> that <b>we inform him, as it is written: “Nor curse a ruler among your people”</b> (Exodus 22:27), from which it is derived that it is prohibited to curse a ruler or any other member of the Jewish people. <b>Rava said</b> that <b>we curse him,</b> and the prohibition against cursing is not a concern, <b>as it is written: “Among your people,”</b> from which it is derived that the prohibition applies only <b>with regard to one who performs an action</b> befitting <b>your people,</b> not one who reneges on a transaction after the money is paid.
+
+### Part 4
+<b>Rava said: From where do I say</b> this <i>halakha</i>? I learned it from the incident <b>where</b> buyers <b>gave Rabbi Ḥiyya bar Yosef money to</b> purchase <b>salt</b> from him. <b>Ultimately</b> the price of <b>salt increased,</b> and Rabbi Ḥiyya bar Yosef sought to renege on the deal. <b>He came before Rabbi Yoḥanan</b> to ask his opinion. Rabbi Yoḥanan <b>said to him: Go</b> and <b>give them</b> the salt, <b>and if not, accept upon yourself: He Who exacted payment. And if you say we</b> merely <b>inform him</b> of this punishment, is <b>Rabbi Ḥiyya bar Yosef one who</b> must be <b>informed?</b> He knows the <i>halakha</i>. The Gemara rejects this proof: <b>Rather, what</b> is the alternative, that <b>we curse him?</b> Would <b>Rabbi Ḥiyya bar Yosef come to accept upon himself a curse of the Sages?</b>
+
+### Part 5
+<b>Rather,</b> the details of the incident were different. <b>It is a down payment that</b> buyers <b>gave Rabbi Ḥiyya bar Yosef.</b> The money was paid merely to bolster the commitment to complete the transaction. Rabbi Ḥiyya bar Yosef <b>held</b> that the down payment <b>effects acquisition</b> of salt <b>commensurate with its</b> value, and therefore he wanted to give them only that portion of the salt. <b>And Rabbi Yoḥanan said to him:</b> The down payment <b>effects acquisition</b> of salt <b>commensurate with</b> the <b>entire</b> amount of the transaction.
+
+### Part 6
+§ <b>It was stated</b> that there is an amoraic dispute with regard to <b>a down payment. Rav says:</b> A down payment <b>effects acquisition</b> of merchandise <b>commensurate with its</b> value. <b>And Rabbi Yoḥanan said: It effects acquisition</b> of merchandise <b>commensurate with</b> the <b>entire</b> amount of the transaction.
+
+### Part 7
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: With regard to <b>one who gives a down payment to another, and says to him: If I renege, my down payment is forfeited to you, and the other</b> person <b>says to him: If I renege, I will double your down payment for you, the conditions are in effect;</b> this is <b>the statement of Rabbi Yosei.</b> The Gemara comments: <b>Rabbi Yosei</b> conforms <b>to his</b> standard line of <b>reasoning, as he says: A transaction with inconclusive consent [<i>asmakhta</i>] effects acquisition.</b> Even though it is a commitment that he undertook based on his certainty that he would never be forced to fulfill the condition, it is considered a full-fledged commitment.
+
+### Part 8
+The <i>baraita</i> continues: <b>Rabbi Yehuda says: It is sufficient that</b> the down payment <b>effects acquisition</b> of merchandise <b>commensurate with</b> the amount of <b>his down payment. Rabban Shimon ben Gamliel said: In what</b> case <b>is this statement said?</b> It is <b>when</b> the buyer <b>said to</b> the seller: <b>My down payment will effect acquisition</b> of the merchandise. <b>But</b> if <b>one sold</b> another <b>a house or a field for one thousand dinars, and</b> the buyer <b>paid him five hundred dinars of</b> that sum, he has <b>acquired</b> the entire house, <b>and he returns the rest</b> of the money to the seller <b>even after several years</b> have passed. The Gemara asks: <b>What, is it not</b> that <b>the same is true</b> with regard <b>to movable property</b> as well, and <b>in</b> a case <b>where</b> the agreement is <b>unspecified,</b> the buyer <b>acquires the entire</b> item, not merely commensurate with the down payment?
+
+### Part 9
+The Gemara rejects that comparison: <b>No,</b> with regard to <b>movable property in</b> a case <b>where</b> the agreement is <b>unspecified,</b> the buyer <b>does not acquire</b> the entire item. The Gemara asks: <b>And</b> in <b>what</b> way <b>is</b> movable property <b>different</b> from land? The Gemara explains: In the case of <b>land, which with</b> the payment of <b>money one genuinely acquires it</b> in a legal sense, the buyer <b>acquires the entire</b> tract of land with a down payment. In the case of <b>movable property, which with</b> the payment of money <b>one acquires it only</b> in the sense that if he reneges he will have <b>to receive</b> the curse: <b>He Who exacted payment,</b> the buyer <b>does not acquire the entire</b> item with a down payment.
+
+### Part 10
+The Gemara suggests: <b>Let us say</b> that this amoraic dispute between Rav and Rabbi Yoḥanan <b>is parallel to</b> a dispute between <b><i>tanna’im</i>.</b> As it is taught in a <i>baraita</i>: With regard to <b>one who lends</b> money <b>to another on</b> the basis of <b>collateral, and the Sabbatical</b> Year <b>commenced, even if</b> the collateral <b>is worth only half</b> the sum of the loan, the Sabbatical Year <b>does not abrogate</b> the loan; this is <b>the statement of Rabban Shimon ben Gamliel. Rabbi Yehuda HaNasi says: If</b> the value of the <b>collateral was commensurate with the</b> sum of <b>his loan,</b> the Sabbatical Year <b>does not abrogate</b> the loan, <b>but if</b> it was <b>not</b> commensurate with the sum of his loan, the Sabbatical Year <b>abrogates</b> the loan.
+
+### Part 11
+The Gemara asks: <b>What</b> is the meaning of the statement: The Sabbatical Year <b>does not abrogate</b> the loan, <b>that Rabban Shimon ben Gamliel is saying? If we say</b> it means that the Sabbatical Year does not cancel that part of the loan <b>commensurate with</b> the collateral, but it does cancel the rest, this indicates <b>by inference that Rabbi Yehuda HaNasi holds</b> that the Sabbatical Year <b>also abrogates that half as well.</b> That is difficult, as is there not collateral commensurate with that half?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

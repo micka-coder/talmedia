@@ -1,0 +1,48 @@
+
+### Part 1
+<b>we had the opportunity to speak with Rav Huna, and we asked him</b> about this matter, <b>and he said to us: A dislocated femur in a bird is kosher.</b>
+
+### Part 2
+<b>And I also found Rabbi Yirmeya bar Abba sitting and inspecting</b> birds <b>at the convergence of sinews</b> in the thigh. <b>And I</b> posed <b>a difficulty to him: Doesn’t Master maintain</b> in accordance with <b>this</b> statement <b>that Rav Huna says</b> that <b>Rav says: A dislocated femur in a bird is kosher?</b> Rabbi Yirmeya bar Abba <b>said to me: I know the mishna</b> (76a): With regard to <b>an animal whose hind legs were severed,</b> if they were severed <b>from the leg joint and below,</b> it is <b>kosher; from the leg joint and above,</b> it is a <i>tereifa</i> and <b>unfit</b> for consumption. <b>And likewise</b> an animal whose <b>convergence of sinews</b> in the thigh <b>was removed</b> is a <i>tereifa</i>. <b>And Rav said about this: And likewise with regard to a bird.</b>
+
+### Part 3
+<b>And I said to him: If so,</b> this statement <b>of Rav</b> poses <b>a difficulty for</b> that statement <b>of Rav.</b> Rabbi Yirmeya bar Abba <b>was silent. And I challenged him: But perhaps there is a difference for Rav between a dislocated</b> femur <b>and a severed</b> one. <b>And he said to me: And are you interpreting Rav’s <i>halakha</i></b> based on your own reasoning? <b>Rav said explicitly: A dislocated</b> femur <b>is kosher,</b> while <b>a severed</b> femur renders the animal <b>unfit</b> for consumption.
+
+### Part 4
+Rabbi Abba then asked Rabbi Zeira: <b>And</b> as for <b>you, what is in your hand?</b> What have you heard with regard to this <i>halakha</i>? Rabbi Zeira <b>said to him: This</b> is what <b>Rav Ḥiyya bar Ashi says</b> that <b>Rav says: A dislocated femur in a bird</b> renders it <b>a <i>tereifa</i>. And so said Rabbi Ya’akov bar Idi</b> that <b>Rabbi Yoḥanan said: A dislocated femur in a bird</b> renders it <b>a <i>tereifa</i>.</b>
+
+### Part 5
+<b>And</b> with regard to this, <b>Rabbi Ya’akov bar Idi said: If Rabbi Yoḥanan had been in the place where the assembly ruled to permit</b> such a bird, he would <b>not</b> have <b>stirred.</b> In other words, he would not have contested their ruling, because they were the greatest Sages of the previous generation. <b>As Rabbi Ḥanina says</b> that <b>Rabbi</b> Yehuda HaNasi <b>says: A dislocated femur in a bird is kosher. And Rabbi Ḥanina had a hen whose femur was dislocated, and he brought it before Rabbi</b> Yehuda HaNasi, <b>and</b> Rabbi Yehuda HaNasi <b>permitted it to him, and Rabbi Ḥanina salted</b> the hen to preserve it. <b>And he would teach the students the <i>halakha</i> with it,</b> as he would show them the preserved body of the hen and say: <b>Rabbi</b> Yehuda HaNasi <b>permitted this to me, Rabbi</b> Yehuda HaNasi <b>permitted this to me.</b>
+
+### Part 6
+The Gemara concludes: <b>But the <i>halakha</i></b> is <b>not in accordance with any of these statements. Rather,</b> it is <b>in accordance with that which Rabbi Yosei ben Nehorai asked Rabbi Yehoshua ben Levi: In what amount</b> must <b>a windpipe</b> be <b>punctured</b> to render the animal a <i>tereifa</i>? Rabbi Yehoshua ben Levi <b>said to him: We learned a full mishna</b> (54a): <b>Until</b> the perforation is the same size <b>as the Italian <i>issar</i>.</b> Rabbi Yosei ben Nehorai <b>said to him: But wasn’t there a certain ewe in our neighborhood whose windpipe was punctured</b> in a greater amount, <b>and they made</b> a seal <b>for</b> the windpipe out of <b>the shell of a reed and it lived?</b>
+
+### Part 7
+Rabbi Yehoshua ben Levi <b>said to him: And do you rely on this</b> incident as evidence? <b>But isn’t it a widespread <i>halakha</i> among the Jewish people</b> that <b>a dislocated femur in a bird</b> renders it <b>a <i>tereifa</i>? And</b> still, <b>Rabbi Shimon ben Ḥalafta had a hen whose femur was dislocated, and they made it</b> a support out of the <b>tube of a reed and it lived. Rather, what have you to say</b> about this case? It must have <b>occurred within twelve months</b> of the dislocation, and afterward the hen died, since no <i>tereifa</i> can live more than twelve months. <b>Here, too,</b> in the case of the punctured windpipe, the episode <b>occurred within twelve months</b> of the injury and the ewe later died.
+
+### Part 8
+§ <b>They said about Rabbi Shimon ben Ḥalafta that he was a researcher of</b> various <b>matters, and he would act to counter the opinion of Rabbi Yehuda, as Rabbi Yehuda would say: If the down</b> covering a bird’s body <b>was removed,</b> it is a <i>tereifa</i> and <b>unfit</b> for consumption, as stated in the mishna. <b>And Rabbi Shimon ben Ḥalafta had a hen whose down was removed, and he placed it in an oven,</b> a warm place, <b>and he covered it with a bronzers’ [<i>tarsiyyim</i>] apron, and its new,</b> i.e., rehabilitated, <b>wings grew</b> even <b>more</b> feathers <b>than the original</b> wings.
+
+### Part 9
+The Gemara asks: <b>But</b> how does this counter Rabbi Yehuda’s opinion? <b>Perhaps Rabbi Yehuda holds</b> that <b>a <i>tereifa</i></b> can live and that its health can even <b>improve</b> beyond its previous state. The Gemara responds: Even <b>if</b> this is <b>so,</b> would Rabbi Yehuda say so <b>with regard to the</b> very <b>thing</b> with <b>which it was rendered a <i>tereifa</i>,</b> as is the case here, where <b>it grew new wings</b> with <b>more</b> feathers <b>than the original</b> wings?
+
+### Part 10
+The Gemara asks: From <b>what</b> episode did Rabbi Shimon ben Ḥalafta earn the title: <b>Researcher of matters? Rav Mesharshiyya said:</b> He saw <b>that it is written: “Go to the ant, you sluggard; consider her ways, and be wise; which having no chief, overseer, or ruler, provides her bread in the summer”</b> (Proverbs 6:6–8). Rabbi Shimon ben Ḥalafta <b>said: I will go and see if it is correct that they have no king.</b>
+
+### Part 11
+<b>He went in the season of Tammuz,</b> i.e., summer. Knowing that ants avoid intense heat, <b>he spread his cloak over an ant hole</b> to provide shade. <b>One of</b> the ants <b>came out</b> and saw the shade. Rabbi Shimon <b>placed a distinguishing mark on</b> the ant. <b>It went into</b> the hole and <b>said to</b> the other ants: <b>Shade has fallen. They</b> all <b>came out</b> to work. Rabbi Shimon <b>lifted up his cloak,</b> and <b>the sun fell</b> on them. They all <b>fell upon</b> the first ant <b>and killed it. He said:</b> One may <b>learn from</b> their actions that <b>they have no king; as, if they had a king, would they not need the king’s edict [<i>harmana</i>]</b> to execute their fellow ant?
+
+### Part 12
+<b>Rav Aḥa, son of Rava, said to Rav Ashi: But perhaps the king was with them</b> at the time and gave them permission. <b>Or</b> perhaps <b>they</b> already <b>possessed the king’s edict</b> giving them license to kill the ant. <b>Or</b> perhaps it <b>was</b> an interregnum <b>between kings, as it is written: “In those days there was no king in Israel; every man did that which was right in his own eyes”</b> (Judges 17:6). <b>Rather, rely on the credibility of Solomon,</b> the author of Proverbs, that ants have no king.
+
+### Part 13
+§ <b>Rav Huna says: The sign of a <i>tereifa</i></b> is <b>twelve months.</b> If it is uncertain whether an animal is a <i>tereifa</i>, one may wait twelve months; if the animal survives, it is kosher. The Gemara <b>raises an objection</b> from a <i>baraita</i>: <b>The sign of a <i>tereifa</i></b> is <b>any</b> animal <b>that cannot give birth. Rabban Shimon ben Gamliel says:</b> If its health <b>improves continuously, it is certainly kosher;</b> if its health <b>deteriorates continuously, it is certainly a <i>tereifa</i>. Rabbi</b> Yehuda HaNasi <b>says: The sign of a <i>tereifa</i></b> is any animal that does not survive <b>thirty days.</b> The Sages <b>said to him: But don’t many</b> animals that are certainly <i>tereifot</i> <b>survive two</b> or <b>three years?</b> None of the opinions cited in the <i>baraita</i> accord with Rav Huna’s statement.
+
+### Part 14
+The Gemara responds: The matter <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: <b>And in a skull that contains one long hole,</b> or <b>even</b> if it has <b>many holes,</b> the areas of the holes <b>join together to</b> constitute the <b>size of a drill hole,</b> and they render the animal a <i>tereifa</i>. <b>Rabbi Yosei ben HaMeshullam said:</b> There was <b>an incident in</b> a place called <b>Inbul involving one whose skull was missing</b> a piece, <b>and they made for him</b> a patch out of <b>the shell of a gourd, and he survived.</b> Therefore, an animal with a missing piece of skull cannot be a <i>tereifa</i>. <b>Rabbi Shimon ben Elazar said to him:</b> Can you bring <b>proof from there? It was summer</b> then, <b>and once winter came upon him he died immediately.</b> Rabbi Shimon ben Elazar holds that an animal is a <i>tereifa</i> if it does not survive through summer and winter, i.e., one year. Rav Huna’s statement accords with this opinion.
+
+### Part 15
+<b>Rav Aḥa bar Ya’akov says:</b> The <b><i>halakha</i></b> is that <b>a <i>tereifa</i> can give birth and</b> its health can even <b>improve.</b> If the animal appears to recover or gives birth, this does not prove it is not a <i>tereifa</i>. <b>Ameimar says:</b> With regard to <b>these eggs of a <i>tereifa</i></b> bird,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

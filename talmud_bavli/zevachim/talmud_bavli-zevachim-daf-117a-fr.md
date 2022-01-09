@@ -1,0 +1,33 @@
+
+### Partie 1
+il serait par consequent <b>trouve</b> que tant les <b><i>zavim</i> que</b> ceux qui sont <b>rituellement impurs</b> de l'impurete communiquee par <b>un cadavre sont envoyes hors d'un camp,</b> c'est-a-dire le camp de la Presence Divine, et les deux sont autorises dans le camp israelite. <b>Mais la Torah dit</b> en ce qui concerne l'envoi des impurs rituels hors du camp : A "A Hors du camp, tu les mettras ; <b>afin qu'ils ne souillent pas leurs camps"</b> (Nombres 5:3).
+
+### Partie 2
+L"?utilisation du pluriel" camps" indique : <b>Donner</b> un <b>camp specifique a ce</b> groupe, c'est-a-dire ceux qui sont rituellement impurs a cause de l'impurete transmise par un cadavre, qui peuvent entrer dans le camp des Levites mais sont interdits d'entrer dans le camp de la Presence Divine, <b>et</b> donner un <b>camp specifique a ce</b> groupe, c'est-a-dire, ceux qui sont <i>zavim</i>, qui peuvent entrer dans le camp israelite mais qui sont interdits d'entrer dans le camp de la presence divine ou dans le camp levite. S'il n'y avait pas de camp levite a Silo, il s'ensuivrait que tant un <i>zavim</i> que celui qui est rituellement impur a cause de l'impurete communiquee par un cadavre sont envoyes hors d'un seul camp, et qu'il n'y a pas de distinction entre eux.
+
+### Partie 3
+<b>Rava lui dit : Au contraire, que</b> dirais-tu a la place ? Dirais-tu que <b>le camp israelite n'etait pas</b> present a Silo ? Si tel etait le cas, on <b>trouverait</b> que les <b><i>zavim</i> et les lepreux sont</b> tous deux <b>envoyes a un seul endroit,</b> c'est-a-dire en dehors du camp levite. <b>Mais la Torah dit</b> en ce qui concerne le lepreux : <b>Il habitera seul;</b> hors du camp sera sa demeure" (Levitique 13:46). Le mot "seul" enseigne que <b>une autre personne rituellement impure ne doit pas habiter avec lui.</b>
+
+### Partie 4
+<b>Au contraire,</b> il faut que <b>en fait, les trois</b> camps <b>etaient</b> presents a Silo, <b>et quel</b> est le sens de ce qui a ete enseigne par rapport a Silo : <b>Il n'y avait que deux camps ?</b> C'est <b>en ce qui concerne</b> le fait que le camp des Levites ne fournissait pas de <b>refuge</b> a celui qui en tuait un autre involontairement. La Gemara demande : <b>Par deduction,</b> cela signifie-t-il <b>que dans le desert, le camp levite offrait un refuge</b> a celui qui en tuait un autre sans le vouloir ?
+
+### Partie 5
+La Gemara repond : <b>Oui, et c'est ainsi qu'il est enseigne</b> dans un <i>baraita</i> a propos du verset concernant les villes de refuge. Le verset stipule : "Et celui qui ne s'est pas mis a l'affut"¦<b>et je te designerai un lieu</b> ou il pourra s'enfuir" (Exode 21, 13). L'expression "Je te designerai" enseigne que Dieu a dit a Moise : Il y aura un lieu qui servira de refuge aux meurtriers involontaires meme <b>pendant ta vie.</b> Le terme <b>"un lieu"</b> signifie que ce sera a partir de <b>votre lieu,</b> ce qui signifie que le camp des Levites servait de lieu de refuge dans le desert. <b>"La ou il peut fuir" enseigne que</b> les Juifs <b>exileraient</b> les meurtriers involontaires <b>dans le desert</b> egalement, avant d'entrer dans le pays. <b>Ou ont-ils exile</b> les meurtriers involontaires lorsqu'ils etaient dans le desert ? Ils les exilaient <b>vers le camp des levites,</b> qui leur servait de refuge.
+
+### Partie 6
+<b>D'ici</b> les Sages ont <b>dit : Un Levite qui a tue</b> involontairement <b>est exile</b> d'une <b>cite levite a</b> une autre <b>cite levite. Et s'il a ete exile dans</b> une autre region a l'interieur de <b>sa ville, il est admis dans sa ville,</b> c'est-a-dire qu'elle lui offre un refuge.
+
+### Partie 7
+La Gemara demande : <b>Quel est le verset</b> duquel decoule le principe selon lequel celui qui etait deja exile dans une ville de refuge et qui a ensuite tue une autre personne est exile dans une autre zone de cette meme ville ? <b>Rav Aha, fils du Rav Ika, dit</b> que le verset : <b>"Parce que dans sa ville de refuge il habitera"</b> (Nombres 35:28), indique qu'il peut etre exile dans <b>une ville dans laquelle il etait deja admis,</b> car le verset la designe comme sa ville, et il continuera a y resider.
+
+### Partie 8
+§ La mishna enseigne que lorsque le peuple juif <b>arrivait a Gilgal</b> les autels prives etaient autorises. La Guemara developpe : <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Toute offrande</b> apportee en raison d'un <b>vœu, ou contribuee</b> volontairement, <b>etait sacrifiee sur</b> un <b>autel prive;</b> et <b>toute offrande</b> <b>qui n'est ni</b> apportee en raison d'un <b>vœu ni contribuee</b> volontairement, mais qui est plutot obligatoire, n'etait <b>pas sacrifiee sur</b> un <b>autel prive. </b> Par consequent, <b>une offrande de repas,</b> qui est generalement apportee volontairement, <b>et</b> les offrandes d'un <b>nazirite,</b> qui ont le statut d'offrandes de vœu car personne n'est oblige de devenir nazirite, etaient <b>sacrifiees sur</b> un <b>altar prive.</b> Telle est <b>la declaration de Rabbi Meir. Et les rabbins disent : Seuls les holocaustes et les offrandes de paix etaient sacrifies</b> sur <b>un autel prive</b>, pas les offrandes de repas ou les offrandes d'un nazirite.
+
+### Partie 9
+<Rabbi Yehuda dit : Toute</b> offrande <b>que le public ou un individu</b> pouvait <b>sacrifier dans la Tente de la Rencontre dans le desert</b> pouvait egalement etre <b>sacrifiee dans la Tente de la Rencontre a Gilgal. Quelle est donc la difference <b>entre la Tente d'assignation dans le desert et la Tente d'assignation a Gilgal ?</b> Pendant la periode de <b>la Tente d'assignation dans le desert</b> les <b>altars prives n'etaient pas autorises</b> et les offrandes ne pouvaient etre sacrifiees que dans le Tabernacle, alors que pendant la periode de <b>la Tente d'assignation a Gilgal</b> les <b>altars prives etaient autorises. Mais</b> meme si quelqu'un desirait sacrifier une offrande sur <b>son</b> <b>altar prive sur son toit,</b> il ne pouvait toujours <b>sacrifier sur celui-ci que des holocaustes et des offrandes de paix.</b>
+
+### Partie 10
+<b>Et les rabbins disent : Toute</b> offrande <b>que le public</b> pouvait <b>sacrifier dans la Tente de la Rencontre dans le desert</b> pouvait aussi etre <b>sacrifiee dans la Tente de la Rencontre a Gilgal, et ici,</b> dans le Tabernacle a Gilgal, <b>et la,</b> sur des autels prives, <b>seulement des holocaustes et des offrandes de paix etaient sacrifies</b> pour <b>un individu. Rabbi Shimon dit : Meme</b> le <b>public</b> ne sacrifiait pas tous les types d'offrandes dans la Tente de la Rencontre a Gilgal ; ils <b>sacrifiaient uniquement des offrandes pascales</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

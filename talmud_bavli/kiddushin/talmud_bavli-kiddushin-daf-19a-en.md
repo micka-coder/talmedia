@@ -1,0 +1,48 @@
+
+### Part 1
+<b>is</b> the matter <b>different?</b> In both cases she is fully released from her father’s authority by Torah law, and therefore he should not be able to sell her again afterward.
+
+### Part 2
+The Gemara asks: <b>And according to</b> the explanation of <b>Rav Naḥman bar Yitzḥak, who says</b> that <b>even</b> according <b>to Rabbi Yosei, son of Rabbi Yehuda, the original money</b> of the sale of the maidservant <b>was given for</b> the purpose of <b>betrothal, in accordance with whose</b> opinion does <b>he establish</b> the <i>baraita</i> that permits a father to sell his widowed daughter? After giving her in marriage a father may no longer sell his daughter into slavery. The Gemara explains: <b>He establishes it in accordance with</b> the opinion of <b>Rabbi Eliezer, who says: It is for slavery after slavery that he is not able to sell her, but he is able to sell her into slavery after marriage.</b>
+
+### Part 3
+§ <b>Reish Lakish raises a dilemma:</b> With regard to the possibility <b>that a person can designate</b> a Hebrew maidservant <b>for his minor son, what is</b> the <i>halakha</i>? The Gemara clarifies the sides of this dilemma. Does one learn from the verse: “And if he designates her for <b>his son”</b> (Exodus 21:9), that <b>the Merciful One states</b> that this applies to <b>any son,</b> even if he is too young to be married? <b>Or perhaps</b> it means <b>his son</b> who is <b>similar to him: Just as he is an adult man, so too, his son</b> must be <b>an adult man.</b>
+
+### Part 4
+<b>Rabbi Zeira said: Come</b> and <b>hear</b> a solution to this dilemma from the verse: “And the man who commits adultery with the wife of another man, even he that commits adultery with his neighbor’s wife, both the adulterer and the adulteress shall surely be put to death” (Leviticus 20:10). The Sages expounded that the term <b>“man”</b> serves <b>to exclude a minor</b> who commits adultery. The phrase <b>“who commits adultery with the wife of another man”</b> serves <b>to exclude the wife of a minor,</b> as the marriage of a minor is invalid. <b>And if you say</b> that a father can <b>designate</b> a wife for his minor son, and designation effects betrothal or marriage, <b>we find</b> that there is <b>marriage for a minor.</b>
+
+### Part 5
+The Gemara challenges this proof: <b>But rather, what</b> will you say, that a master <b>cannot designate</b> a maidservant for his son who is a minor? If so, <b>why does the verse exclude him?</b> If the marriage of a minor is never valid, why is it necessary for the verse to exclude him? On the contrary, <b>resolve from here that one can designate</b> for his minor son. <b>Rav Ashi said:</b> One could say that <b>here,</b> when this verse excludes the wife of a minor, <b>we are dealing with a <i>yavam</i></b> who is <b>nine years and one day old who engaged in sexual intercourse with his <i>yevama</i>,</b> and his intercourse is considered valid.
+
+### Part 6
+The unique feature of this case is <b>that by Torah law</b> she <b>is fit for him.</b> The <i>halakhot</i> of levirate marriage do not stipulate the minimum age of the <i>yavam</i>. Sexual intercourse with a boy aged nine years and one day is legally considered intercourse, and therefore this verse is necessary, <b>lest you say: Since by Torah law she is fit for him, and his sexual intercourse</b> is considered proper <b>intercourse;</b> therefore, he acquires her and she is his wife in all regards. Consequently, <b>one who engages in intercourse with her becomes liable for</b> violating the prohibition against engaging in intercourse with <b>a married woman.</b> Therefore, the verse <b>teaches us</b> that despite this consideration, she is not considered a full-fledged married woman.
+
+### Part 7
+The Gemara asks: Ultimately, <b>what</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter of designation for a minor son? <b>Come</b> and <b>hear,</b> as <b>Rabbi Aivu says</b> that <b>Rabbi Yannai says: Designation applies only to an adult man,</b> and <b>designation applies only with consent.</b> The Gemara asks: Why is it necessary to teach these <b>two</b> <i>halakhot</i> with regard to this matter? It can be derived from the statement that designation requires consent that it applies only to an adult, as a minor is legally incapable of consent. The Gemara answers: Rabbi Yannai <b>is saying: What is the reason,</b> i.e., <b>what is the reason</b> that <b>designation applies only to an adult man?</b> It is <b>because designation applies only with consent.</b>
+
+### Part 8
+<b>And if you wish, say</b> an alternative explanation. <b>What</b> is the meaning of the term: <b>With consent?</b> It means <b>with her consent. As Abaye, son of Rabbi Abbahu, taught:</b> The verse <b>“who did not designate her [<i>ye’adah</i>]”</b> (Exodus 21:8), <b>teaches that he is required to inform her [<i>ya’adah</i>].</b>
+
+### Part 9
+<b>He teaches it and he says it:</b> This is referring <b>to betrothal through designation, and</b> it is <b>in accordance with</b> the opinion of <b>Rabbi Yosei, son of Rabbi Yehuda, who said: The original money</b> of the sale of the maidservant <b>was not given for</b> the purpose of <b>betrothal.</b> For this reason, an additional act of betrothal must be performed with her consent. <b>Rav Naḥman bar Yitzḥak said: Even</b> if <b>you say</b> that the original money <b>was given for betrothal, it is different here, as the Merciful One states “designate her [<i>ye’adah</i>].”</b> This unusual expression alludes to the <i>halakha</i> that this act must be performed with her consent.
+
+### Part 10
+After mentioning the opinion of Rabbi Yosei, son of Rabbi Yehuda, several times, the Gemara asks: <b>What</b> is the source in which the opinion of <b>Rabbi Yosei, son of Rabbi Yehuda,</b> is stated? The Gemara answers: <b>As it is taught</b> in a <i>baraita</i> with regard to the verse: “Who did not <b>designate her, then he shall let her be redeemed”</b> (Exodus 21:8). This juxtaposition indicates that designation applies only when she can be redeemed. Consequently, if she is at the end of her service <b>it is necessary that</b> when he designates her <b>there must be enough time</b> remaining <b>in the day for redemption.</b> There must be sufficient time for her to be redeemed, and if only a short amount of time remains, during which she would be unable to perform work worth one <i>peruta</i>, the master does not have the option of redeeming her.
+
+### Part 11
+<b>From here Rabbi Yosei, son of Rabbi Yehuda, says: If there is enough time</b> left <b>in the day for her to perform</b> work that is <b>worth one <i>peruta</i> for him, she is betrothed,</b> as he betroths her with the amount she owes him for her work, which is the value of one <i>peruta</i>. <b>And if not, she is not betrothed. Apparently, he maintains</b> that <b>the original money</b> of the sale of the maidservant <b>was not given for</b> the purpose of <b>betrothal.</b>
+
+### Part 12
+<b>Rav Naḥman bar Yitzḥak said: Even</b> if <b>you say</b> that the original money <b>was given for betrothal,</b> one can explain this <i>halakha</i> as follows: <b>It is different here, as the Merciful One states</b> by means of the juxtaposition: “Who did not designate her, <b>then he shall let her be redeemed,”</b> that by a Torah edict the designation must be performed at a stage when she can still be redeemed.
+
+### Part 13
+§ <b>Rava says</b> that <b>Rav Naḥman says: A person</b> may <b>say to his minor daughter: Go out and accept your betrothal,</b> and when she accepts the betrothal it is as though she were appointed the father’s agent for her betrothal, despite the fact she is not halakhically competent. From where is this derived? It is derived <b>from that</b> which <b>Rabbi Yosei, son of Rabbi Yehuda</b> said.
+
+### Part 14
+The Gemara elaborates: <b>Didn’t Rabbi Yosei, son of Rabbi Yehuda, say that the original money</b> of the sale of the maidservant <b>was not given for</b> the purpose of <b>betrothal, and if</b> enough time for <b>her</b> to perform work <b>worth one <i>peruta</i> remains, it is a betrothal?</b> This indicates that when the father sells his daughter he effectively appoints her as her own agent to receive her betrothal, if the master wishes to designate her for himself. At the time of the designation the father receives nothing, while the daughter accepts the value of one <i>peruta</i> for her work as betrothal. <b>Here too, it is no different,</b> and therefore a minor can accept her betrothal with the consent of her father.
+
+### Part 15
+<b>And Rava says</b> that <b>Rav Naḥman says:</b> With regard to <b>one who betroths</b> a woman <b>with a loan for which there is collateral,</b> i.e., he relinquishes his claim to a loan that she owes him and he returns the collateral she gave him, <b>she is betrothed.</b> This is derived <b>from that</b> which <b>Rabbi Yosei, son of Rabbi Yehuda,</b> said. <b>Didn’t Rabbi Yosei, son of Rabbi Yehuda, say that the original money</b> of the sale of the maidservant <b>was not given for</b> the purpose of <b>betrothal?</b> If so, <b>this</b> daughter’s requirement to serve <b>is</b> similar to <b>a loan,</b> as there is no actual money but only an obligation, <b>and she herself is the collateral.</b> In other words, her body is the security that the loan will be repaid.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

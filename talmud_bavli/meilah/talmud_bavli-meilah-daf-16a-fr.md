@@ -1,0 +1,24 @@
+
+### Partie 1
+La mishna <b>enseigne</b> que toutes les carcasses se rejoignent, ce qui indique que les carcasses d'animaux non casher se rejoignent avec les carcasses d'animaux casher, <b>uniquement en ce qui concerne l'impurete rituelle. Mais en ce qui concerne</b> l'interdiction de <b>manger</b> des carcasses d'animaux, les carcasses d'animaux <b>kasher</b> sont <b>distinctes,</b> c'est-a-dire qu'elles ne se joignent qu'a d'autres animaux kasher, <b>et les carcasses d'animaux non kasher</b> sont de meme <b>distinctes. Et Levi dit : Meme en ce qui concerne</b> l'interdiction de <b>manger</b> des carcasses d'animaux, les carcasses casher et non casher <b>se rejoignent.</b>
+
+### Partie 2
+<b>Et Rav Asi dit : Les carcasses d'animaux cacheres</b> sont <b>distinctes, et les carcasses d'animaux non cacheres</b> sont <b>distinctes.</b> Comme Rav Asi n'a pas precise s'il se refere uniquement a la consommation ou egalement a l'impurete rituelle, <b>il y a</b> ceux <b>qui disent</b> que Rav Asi <b>est en desaccord</b> avec l'opinion <b>du Rav,</b> c'est-a-dire, il interprete la mishna comme se referant a toutes les carcasses de meme nature, c'est-a-dire provenant d'animaux cachers d'une part, et d'animaux non cachers d'autre part. <b>Et il y a</b> ceux <b>qui disent</b> que Rav Asi <b>n'est pas en desaccord</b> avec l'opinion de Rav, et concede que les carcasses d'animaux casher et non casher se rejoignent en ce qui concerne l'impurete rituelle.
+
+### Partie 3
+La Guemara <b>souleve une objection</b> contre la premiere explication de l'avis du Rav Asi a partir d'une <i>baraita</i> : En ce qui concerne une demi-bulle d'olive provenant de la carcasse d'une <b>vache morte et</b> une demi-bulle d'olive provenant de la chair d'un <b>chameau vivant,</b> elles <b>ne se joignent pas l'une a l'autre. </b> On peut en deduire que si <b>les deux</b> sont <b>morts, ils</b> s'unissent</b> Le Rav peut expliquer cette <i>baraita</i> comme faisant reference a l'impurete rituelle, <b>mais</b> cela pose <b>une difficulte au Rav Asi.</b>
+
+### Partie 4
+La Gemara repond : Il faut <b>dire</b> que la deduction correcte de la <i>baraita</i> n'est pas que si les deux, la vache et le chameau, sont morts, alors ils s'unissent. Il faut plutot deduire que si <b>les deux</b> sont <b>vivants, ils s'unissent. Et qui est</b> la <i>tanna</i> de la <i>baraita</i> ? C'est <b>Rabbi Yehuda, qui a dit :</b> L'interdiction de manger <b>un membre d'un animal vivant</b> <b>s'applique</b> meme <b>au</b> membre d'un <b>animal non casher</b>.
+
+### Partie 5
+La Guemara souleve une difficulte avec cette reponse. <b>Mais</b> dans ce cas, <b>qu'est-ce que</b> la <i>halakha</i> si <b>les deux, </b> la vache et le chameau, <b>sont morts ?</b> Ne se rejoignent-ils <b>pas ? Si c'est le cas, pourquoi</b> la <i>tanna</i> <b>se dirige-t-elle specifiquement</b> vers un cas extreme <b>et enseigne :</b> un demi-bulot d'olives de la carcasse d'une <b>vache morte et</b> un demi-bulot d'olives de la chair d'un <b>chameau vivant ?</b> Apres tout, <b>meme</b> si <b>les deux</b> sont <b>morts, ils</b> ne <b>s'unissent pas.</b>
+
+### Partie 6
+<b>Et en outre, il est enseigne</b> dans une <i>baraita</i> : <b>Une demi-bulle d'olive</b> de la chair d'une <b>vache lorsqu'elle est vivante et une demi-bulle d'olive</b> de la carcasse d'un <b>chameau lorsqu'il est mort ne s'assemblent pas ; mais une demi-bulle d'olive d'une vache et une demi-bulle d'olive d'un chameau, qu'il soit vivant ou mort, s'assemblent. La premiere clause</b> de la <i>baraita</i> est <b>difficile</b> car elle est apparemment contredite <b>par la derniere clause. Plutot, n'est-il pas</b> correct de <b>conclure a partir</b> du <i>baraita</i> que s'il y a une demi-bulle d'olive de chacun des <b>deux</b> lorsqu'ils sont <b>morts,</b> ils <b>se rejoignent ?</b>
+
+### Partie 7
+La Gemara repond : <b>Rav Asi</b> aurait pu <b>vous dire</b> que <b>cette <i>tanna</i> soutient</b> qu'une <b>interdiction prend effet</b> meme lorsqu'une autre <b>interdiction</b> existe deja. Il soutient que l'interdiction de manger une carcasse d'animal prend effet meme a l'egard de la chair d'un animal non cachere, qui est deja interdite, et pour cette raison, les deux demi-bulles d'olive se rejoignent, car la meme interdiction de manger une carcasse d'animal s'applique aux deux. En revanche, le Rav Asi lui-meme soutient qu'une interdiction ne prend pas effet la ou une autre interdiction existe deja, et donc cette <i>baraita</i> ne pose pas de difficulte a son opinion selon laquelle les deux ne se reunissent pas.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Qu'est-ce que</b> la <i>halakha</i> ? La Guemara clarifie le dilemme : <b>Suivons-nous</b> le temps du <b>mariage,</b> a partir duquel elle etait inapte pour lui selon la plupart des <i>tannaim</i>, qui considerent qu'un Grand Pretre ne peut pas epouser une femme adulte, car elle n'est plus appelee "une femme dans sa virginite" (Levitique 21:13) ? <b>Ou devons-nous suivre</b> le moment de la <b>bebauche,</b> a partir duquel elle avait l'age requis ?
+
+### Partie 2
+Shmuel <b>lui a dit : Tu l'as appris</b> dans la mishna : Si <b>ils etaient veufs ou divorces du mariage, ils sont disqualifies</b> de participer a <i>teruma</i>, mais s'ils etaient veufs ou divorces <b>des fiancailles, ils sont aptes</b> a participer a <i>teruma</i>. Cela indique que les disqualifications des privileges de la pretrise sont determinees en fonction du mariage plutot que des fiancailles.
+
+#### Partie 3
+Rabbi Hiyya bar Yosef <b>a dit a</b> Shmuel : En ce qui concerne le fait de <b>l'amener</b> a devenir <b>une <i>Halala</i>, je n'ai pas souleve de dilemme, car</b> il est clair <b>que c'est le rapport sexuel qui l'amene</b> a devenir <b>une <i>Halala</i>. Quand j'ai souleve un dilemme,</b> c'etait a propos du verset relatif a un grand pretre : <b>"Et il prendra une femme dans sa virginite"</b> (Levitique 21:13). <b>Qu'est-ce que</b> signifie "prendre" dans ce verset ? <b>Nous exigeons</b> que seule la <b>prise de fiancailles</b> ait lieu lorsqu'elle est dans sa virginite, c'est-a-dire lorsqu'elle est mineure ou jeune femme, <b>ou</b> peut-etre meme que <b>nous exigeons</b> que la <b>prise de mariage</b> soit effectuee lorsqu'elle est mineure ou jeune femme ?
+
+### Partie 4
+Shmuel <b>lui dit : Ceci aussi, tu l'as appris</b> dans une mishna (61a) : Si <b>il a fiance une veuve et qu'il a ete</b> par la suite <b>nomme Grand Pretre, il peut l'epouser</b> malgre le fait qu'il est interdit a un Grand Pretre d'epouser une veuve. Cela indique que la permission qu'elle lui accorde est determinee en fonction du moment des fiancailles plutot que du moment du mariage. La Guemara refute cette preuve : <b>Il en est autrement, puisqu'il est ecrit : "Il prendra pour femme"</b> (Levitique 21:14). L'expression superflue "pour une femme" indique qu'il lui est permis d'epouser la veuve dans ce cas.
+
+### Partie 5
+La Guemara objecte : <b>Ici aussi,</b> a propos d'une femme qui a muri apres les fiancailles, <b>il est ecrit :</b> "Et il prendra <b>une femme</b> dans sa virginite" et cela devrait indiquer qu'il peut epouser la femme adulte dans ce cas. La Guemara repond que le terme "epouse" permet d'inclure <b>un</b> cas <b>mais pas deux.</b> Par consequent, puisqu'un Grand Pretre peut epouser une veuve qu'il avait fiancee avant d'etre nomme Grand Pretre, on ne peut pas egalement en deduire qu'il peut epouser une femme adulte qu'il avait fiancee avant qu'elle ne devienne adulte.
+
+### Partie 6
+La Guemara demande : <b>Et qu'avez-vous vu</b> qui vous a conduit a inclure le cas d'une veuve et a exclure celui d'une femme adulte ? La Gemara repond : Dans <b>cette</b> cas, de la femme adulte, <b>son corps a change,</b> et donc elle lui est interdite meme si elle a ete fiancee avant sa maturite. Dans <b>ce</b> cas, de la veuve, <b>son corps n'a pas change.</b> C'est le statut personnel du pretre qui a change, et donc elle reste autorisee.
+
+### Partie 7
+<strong>MISHNA :</strong> <b>Un grand pretre ne peut epouser une veuve, qu'elle soit</b> <b>veuve de fiancailles ou veuve de mariage. Et il ne peut pas epouser une femme adulte.</b> Il ne peut epouser qu'une mineure ou une jeune femme. <b>Rabbi Elazar et Rabbi Shimon declarent une femme adulte apte</b> a epouser un grand pretre. <b>Et il ne peut pas epouser une femme dont l'hymen a ete dechire accidentellement.</b>
+
+### Partie 8
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne:</b> Le verset dit a propos d'un Grand Pretre : <b>"Une veuve"¦il ne prendra pas"</b> (Levitique 21:14), ce qui lui interdit d'epouser toute veuve, <b>qu'elle soit <b>veuve de fiancailles ou veuve de mariage</b> La Guemara s'etonne de cette affirmation : C'est <b>evident,</b> puisque le verset fait reference a une veuve sans autre precision. La Gemara repond : C'est necessaire ; <b>De peur que l'on dise qu'il faut deriver</b> une analogie verbale entre les mots <b>"veuve"</b> et <b>"veuf"</b> en se basant sur l'usage de ce terme dans un verset concernant <b>Tamar,</b> la belle-fille de Juda (Genese 38:11), comme suit : <b>De meme que la,</b> Tamar etait une veuve <b>depuis le mariage, de meme ici</b> le verset se refere uniquement a une veuve <b>depuis le mariage.</b> Le <i>tanna</i> nous <b>enseigne donc</b> que ce n'est pas le cas.
+
+### Partie 9
+La Gemara demande : <b>Et dis</b> que <b>c'est effectivement le cas,</b> que l'analogie verbale suggeree est correcte. La Guemara repond : C'est <b>similaire</b> au cas d'un <b>divorce : De meme qu'une divorcee</b> est interdite a un pretre <b>qu'elle ait ete divorcee</b> du mariage ou des fiancailles, de meme une veuve</b> est interdite a un Grand Pretre <b>qu'elle soit veuve</b> du mariage ou des fiancailles.</b>
+
+### Partie 10
+§ Il a ete enseigne dans la mishna : <b>Et</b> un grand pretre <b>ne peut pas epouser une femme adulte. Les Sages ont enseigne</b> que le verset : <b>"Et il prendra une femme dans sa virginite"</b> (Levitique 21:13) <b>exclut une femme adulte, dont l'hymen s'est use,</b> c'est-a-dire qu'il n'est plus aussi complet que celui d'une mineure ou d'une jeune femme ; c'est <b>l'affirmation de Rabbi Meir. Rabbi Elazar et Rabbi Shimon declarent une femme adulte apte</b> a epouser un grand pretre.
+
+### Partie 11
+La Guemara demande : <b>A propos de quoi sont-ils en desaccord?</b> La Guemara explique : <b>Rabbi Meir soutient</b> que si le verset faisait simplement reference a <b>une vierge</b>, il aurait <b>indique</b> que <b>meme</b> une femme presentant des signes <b>partiels</b> de <b>virginite,</b> c'est-a-dire une femme adulte, est autorisee. Puisque le verset mentionne <b>"sa virginite,"</b> cela signifie qu'elle est apte a epouser un Grand Pretre seulement <b>si tous</b> les signes de <b>sa virginite sont</b> intacts, ce qui exclut une femme adulte. L'expression complete <b>"dans sa virginite"</b> indique que si elle a fait l'experience d'un rapport sexuel de <b>une maniere typique</b>, qui a lieu dans la zone de sa virginite, c'est-a-dire son hymen, <b>oui,</b> elle est disqualifiee pour epouser un Grand Pretre ; mais si elle a fait l'experience d'un rapport sexuel de <b>une maniere atypique</b>, c'est-a-dire un rapport anal, <b>non,</b> elle n'est pas disqualifiee.
+
+### Partie 12
+<b>Et Rabbi Elazar et Rabbi Shimon soutiennent</b> que si le verset faisait simplement reference a <b>une vierge,</b> il aurait <b>indique</b> que seule <b>une vierge complete</b> est apte a epouser un Grand Pretre, mais pas une femme adulte. Lorsqu'il est dit <b>"sa virginite,</b> il indique que <b>meme</b> une femme presentant des signes <b>partiels</b> de <b>virginite,</b> c'est-a-dire une femme adulte, est apte a epouser le Grand Pretre. L'expression complete <b>"dans sa virginite"</b> indique qu'elle n'est pas apte a epouser un Grand Pretre <b>sauf si toute sa virginite est intacte,</b> c'est-a-dire qu'elle n'a pas eu de rapports sexuels d'aucune sorte, <b>qu'il s'agisse de rapports sexuels typiques</b> <b>ou atypiques</b>.
+
+### Partie 13
+<b>Rav Yehuda dit</b> que <b>Rav a dit : </b> Si <b>elle a eu des rapports sexuels atypiques, elle est disqualifiee de</b> la Haute <b>Pretrise,</b> c'est-a-dire d'epouser le Grand Pretre. <b>Rava souleve une objection</b> basee sur une <i>baraita</i> : Le verset stipule a propos du viol : <b>"Et elle sera sa femme"</b> (Deuteronome 22:19), et les Sages ont explique que cela se refere uniquement <b>a une femme qui lui convient, excluant une veuve pour un Grand Pretre</b> et <b>une divorcee ou une <i>halutza</i> pour un pretre commun.</b> Dans ces cas, le violeur n'est pas autorise a epouser sa victime.
+
+#### Partie 14
+La Guemara clarifie : <b>Quelles sont les circonstances</b> de cette <i>halakha</i> ? <b>Si nous disons</b> que le Grand Pretre l'a violee en se livrant a des <b>rapports sexuels typiques</b>, <b>pourquoi</b> la <i>baraita</i> <b>specifique</b> declare-t-elle qu'elle lui est interdite <b>parce que</b> elle est <b>veuve ? Qu'il derive</b> cette <i>halakha</i> <b>du</b> fait <b>qu'elle est</b> maintenant <b>une non-vierge. Plutot,</b> n'est-ce pas <b>n'est-ce pas</b> qu'il a eu des rapports <b>atypiques</b> avec elle, <b>et du fait</b> qu'elle est <b>veuve, oui,</b> c'est la raison pour laquelle elle est interdite, mais <b>du fait</b> qu'elle est <b>non vierge, non,</b> ce n'est pas la raison pour laquelle elle est interdite ? Cela indique qu'une femme qui a eu des rapports sexuels d'une maniere atypique n'est pas consideree comme non vierge et n'est pas disqualifiee pour epouser un Grand Pretre.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

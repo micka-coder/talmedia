@@ -1,0 +1,18 @@
+
+### Part 1
+<b>And if it is so</b> that a descendant of Noah is commanded about the sanctification of God’s name, <b>he should not have said to him:</b> “Go in peace.” The Gemara answers: <b>This</b> situation, where Elisha permitted Naaman’s conduct, happened <b>in private.</b> When Naaman bowed down in the house of Rimmon, he did not do so in the presence of ten Jews. Whereas <b>that</b> question that was raised is whether or not a descendant of Noah must sanctify God’s name <b>in public,</b> in the presence of ten Jews. Consequently, the question remains without a solution.
+
+### Part 2
+§ Apropos the discussion of the obligation to allow oneself to be killed rather than engage in forbidden sexual intercourse, the Gemara notes that <b>Rav Yehuda says</b> that <b>Rav says:</b> There was <b>an incident involving a certain man who set his eyes upon a certain woman and passion rose in his heart,</b> to the point that he became deathly ill. <b>And they came and asked doctors</b> what was to be done with him. <b>And</b> the doctors <b>said: He will have no cure until she engages in sexual intercourse</b> with him. <b>The Sages said: Let him die, and she may not engage in sexual intercourse with him.</b> The doctors said: <b>She should</b> at least <b>stand naked before him.</b> The Sages said: <b>Let him die, and she may not stand naked before him.</b> The doctors suggested: The woman <b>should</b> at least <b>converse with him behind a fence</b> in a secluded area, so that he should derive a small amount of pleasure from the encounter. The Sages insisted: <b>Let him die, and she may not converse with him behind a fence.</b>
+
+### Part 3
+The Gemara comments: <b>Rabbi Ya’akov bar Idi and Rabbi Shmuel bar Naḥmani disagree about</b> this issue. <b>One</b> of them <b>says:</b> The woman in question <b>was a married woman, and</b> the other <b>one says: She was unmarried.</b> The Gemara tries to clarify the issue: <b>Granted, according to the one who says</b> that <b>she was a married woman,</b> the matter is <b>properly</b> understood. Since the case involved a severely prohibited forbidden relationship, the Sages did not allow any activity hinting at intimacy. <b>But according to the one who says</b> that <b>she was unmarried, what is</b> the reason for <b>all this</b> opposition? Why did the Sages say that the man must be allowed to die, rather than have the woman do as was requested?
+
+### Part 4
+<b>Rav Pappa says:</b> This is <b>due to</b> the potential <b>family flaw,</b> i.e., harm to the family name, as it is not permitted to bring disgrace to the entire family in order to save the lovesick man. <b>Rav Aḥa, son of Rav Ika, says:</b> This is <b>so that the daughters of Israel should not be promiscuous with regard to forbidden sexual relations.</b> Were they to listen to the doctors’ recommendations, Jewish women might lose moral restraint.
+
+### Part 5
+The Gemara asks: <b>But</b> if the woman was unmarried, <b>let</b> the man <b>marry her.</b> The Gemara answers: <b>His mind would not have been eased</b> by marriage, <b>in accordance with</b> the statement <b>of Rabbi Yitzḥak. As Rabbi Yitzḥak says: Since the day the Temple was destroyed, sexual pleasure was taken away</b> from those who engage in permitted intercourse <b>and given to transgressors, as it is stated: “Stolen waters are sweet, and bread eaten in secret is pleasant”</b> (Proverbs 9:17). Therefore, the man could have been cured only by engaging in illicit sexual interaction.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

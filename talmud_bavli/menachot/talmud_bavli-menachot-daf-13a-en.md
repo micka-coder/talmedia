@@ -1,0 +1,18 @@
+
+### Part 1
+According to Abaye, <b>why do I also</b> need <b>this</b> mishna here? <b>If</b> you will suggest that this mishna is necessary, as one can infer from it that if one intended <b>to partake</b> of half an olive-bulk the next day <b>and</b> then intended <b>to partake of</b> another half an olive-bulk the next day, both from <b>an item whose</b> typical <b>manner</b> is such that one <b>partakes</b> of it, the mishna <b>teaches us that</b> they <b>join together</b> in order to render the offering <i>piggul</i>, this suggestion can be rejected: But <b>you</b> already <b>learn</b> the <i>halakha</i> in this case <b>from the first clause of the latter clause</b> of the previous mishna, <b>as it teaches: Half an olive-bulk outside and half an olive-bulk the next day,</b> the offering is <b>unfit.</b> One can infer from this <b>that</b> if his intent was to consume <b>half an olive-bulk the next day and half an olive-bulk the next day,</b> it is <b><i>piggul</i>.</b>
+
+### Part 2
+<b>If</b> you suggest that the mishna is necessary for a case where one intended <b>to consume and to burn,</b> i.e., <b>that</b> the mishna <b>teaches us the</b> matter <b>itself,</b> that intent to consume does not join together with intent to burn, this too cannot be. The reason is that <b>from the inference of the first clause</b> of the mishna <b>you</b> can already <b>learn</b> the <i>halakha</i> in this case, as it teaches: If one intended to partake of an item whose typical manner is such that one partakes of it, the offering is rendered <i>piggul</i>. This indicates that if his intent was to consume an item whose typical manner is such that one does not consume it, the offering is not rendered <i>piggul</i>.
+
+### Part 3
+The Gemara explains how the <i>halakha</i> <b>that</b> intent to consume and burn do not combine can be inferred from the mishna: <b>Now</b> consider, <b>if</b> when one intended <b>to partake</b> of an item whose typical manner is such that one partakes of it <b>and to partake of an item whose</b> typical <b>manner is</b> such that one does <b>not partake of</b> it, <b>you say</b> that his intentions <b>do not join together,</b> despite the fact that both of his intentions referred to consumption, <b>is it necessary</b> for the mishna to teach that intentions <b>to consume and to burn</b> do not join together?
+
+### Part 4
+The Gemara responds: <b>Yes;</b> although the mishna teaches the <i>halakha</i> of a case where one intended to consume an item typically consumed and to consume an item typically not consumed, <b>it was necessary for</b> the mishna to teach the <i>halakha</i> of a case where one intended <b>to eat and to burn.</b> As it might <b>enter your mind to say</b> that <b>there,</b> where one’s intentions referred solely to consumption, the <i>halakha</i> <b>is</b> that his intentions do not join together, <b>as he intended</b> to act <b>not in accordance with its</b> typical <b>manner,</b> since he intended to consume that which is not meant to be consumed.
+
+### Part 5
+The Gemara continues: <b>But here,</b> where his intent was to consume half an olive-bulk and to burn half an olive-bulk, <b>where with regard to this</b> half <b>he intends</b> in <b>accordance with its</b> typical <b>manner, and with regard to this</b> half <b>he intends in accordance with its</b> typical <b>manner,</b> one might <b>say</b> that <b>they should join together,</b> despite the fact that each intention concerns only half an olive-bulk. Therefore, the mishna <b>teaches us</b> that such intentions do not join together, and the mishna can be explained even in accordance with the opinion of the Rabbis.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

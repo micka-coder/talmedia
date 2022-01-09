@@ -1,0 +1,24 @@
+
+### Partie 1
+<strong>GEMARA :</strong> <b>Shmuels pere et Levi ont enseigne : Un associe n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete des biens en sa possession, <b>et, a plus forte raison,</b> cette incapacite s'applique egalement a <b>un artisan</b>. Mais <b>Shmuel enseigne : Un artisan n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete des biens en sa possession, <b>mais un associe</b> a <b>la capacite</b> d'etablir la <b>presomption</b> de propriete. La Gemara commente : <b>Et Shmuel suit sa</b> ligne de <b>raisonnement, car Shmuel dit : Les partenaires etablissent</b> la <b>presomption</b> de propriete en ce qui concerne les biens de <b>l'un et l'autre, et</b> ils <b>testent l'un pour l'autre et deviennent des baillis payes</b> de leurs biens communs en ce qui concerne <b>l'un et l'autre.</b> En ce qui concerne ces questions, Shmuel considere les partenaires comme des parties independantes.
+
+### Partie 2
+<b>Rabbi Abba souleve une contradiction avec Rav Yehuda dans la grotte de la maison de Rav Zakkai : Shmuel</b> a-t-il effectivement <b>dit</b> que <b>un partenaire a</b> la capacite d'etablir la <b>presomption</b> de propriete ? <b>Mais Shmuel ne dit-il pas : Un partenaire est</b> considere <b>comme</b> celui qui <b>entre</b> dans le champ <b>avec la permission,</b> tel qu'un metayer ? <b>Ce n'est pas dire qu'un associe n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete ? La Gemara repond : Ce n'est <b>pas difficile. Ceci</b> se refere a <b>l'endroit</b> ou il <b>entoure tout</b> le champ, et <b>cela</b> se refere a <b>l'endroit</b> ou il <b>entoure la moitie</b> du champ.
+
+### Partie 3
+La Gemara explique : <b>Certains le disent de cette maniere et d'autres de cette maniere.</b> D'une part, il est possible d'expliquer que s'il est entre dans la moitie du champ, il etablit la presomption de propriete en ce qui concerne cette moitie, mais s'il est entre dans tout le champ, il agit simplement en tant que partenaire. D'autre part, on peut expliquer que le fait d'entrer dans la moitie du champ n'etablit pas du tout la presomption de propriete, alors que le fait d'entrer dans la totalite du champ l'etablit.
+
+### Partie 4
+<b>Ravina a enonce</b> une resolution differente de la contradiction : <b>Tout ceci et tout cela</b> se referent a un cas <b>ou</b> il <b>entre dans le champ entier</b>, <b>et</b> ce n'est <b>pas difficile. Ceci</b> fait reference a un cas <b>ou le champ <b>est d'une</b> surface suffisante pour etre soumis a la <b><i>halakha</i> de division.</b> Dans ce cas, le fait qu'il soit egalement en possession de l'autre moitie du champ, qui appartenait a son partenaire, etablit la presomption de propriete. <b>Ceci</b> fait reference a un cas <b>ou</b> le champ <b>n'est pas de</b> surface suffisante pour etre soumis a la <b><i>halakha</i> de partage.</b> Puisque le bien ne sera pas divise mais restera en copropriete, il ne fait que le posseder en tant qu'associe et n'etablit pas la presomption de propriete.
+
+### Partie 5
+§ La Gemara aborde <b>la</b> question <b>meme. Shmuel dit : Un associe est</b> considere <b>comme</b> celui qui <b>entre</b> dans le champ <b>avec autorisation. Qu'est-ce que</b> cela <b>nous apprend, </b> qu'il n'y a pas</b> la <b>presomption</b> de propriete dans le cadre du <b>partenariat ? </b> Si c'est le cas, <b>laissons-le</b> <b>dire</b> explicitement : <b>Un partenaire n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete des biens en sa possession.
+
+### Partie 6
+<b>Rav Nahman dit</b> que <b>Rabba bar Avuh dit :</b> L'intention de Shmuel etait <b>d'enoncer que</b> un partenaire qui travaille de maniere proactive a l'amelioration de leur propriete mutuelle <b>collecte</b> la <b>valorisation qui atteint les epaules,</b> c'est-a-dire lorsque le produit qui a pousse grace aux efforts du partenaire a atteint sa pleine maturite et peut etre recolte et porte sur ses epaules. Il n'est pas considere comme celui qui est entre dans le champ d'un autre sans autorisation et l'a ameliore, qui ne percoit que pour ses depenses. C'est la <i>halakha</i> s'il a plante des arbres <b>dans un champ qui n'est pas couramment utilise pour planter</b> des arbres, <b>comme</b> c'est le cas s'il a plante <b>dans un champ couramment utilise pour planter</b> des arbres.
+
+### Partie 7
+La Guemara poursuit sa discussion sur la déclaration de Shmuel : <b>Et temoigner l'un pour l'autre.</b> Un partenaire peut se joindre a un autre temoin pour temoigner du fait que son partenaire possede une part de leur champ afin de contrer la pretention de celui qui revendique la propriete du champ, et son temoignage n'est pas disqualifie pour cause de partialite.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

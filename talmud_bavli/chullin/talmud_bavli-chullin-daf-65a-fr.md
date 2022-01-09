@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>En deux mots, en conclure</b> qu'il s'agit de <b>deux noms,</b> interdisant l'œuf egalement.
+
+### Partie 2
+La Gemara demande : <b>Si c'est le cas,</b> qu'en est-il du nom : <b>Chedorlaomer"</b> (Genese 14:4), <b>que le scribe separe en deux</b> pour qu'il apparaisse comme : Chedor Laomer ? Est-il <b>aussi</b> vrai la <b>qu'il s'agit de deux noms ?</b> Le verset fait clairement reference a une seule personne. <b>Ils disent</b> en reponse : <b>La,</b> en ce qui concerne le Chedor Laomer, le scribe <b>divise</b> le nom <b>en deux mots,</b> mais il <b>ne peut pas le diviser en deux lignes</b> si la premiere moitie approche de la fin d'une ligne. <b>Mais ici, il peut scinder</b> le nom <i>bat yaâna</i> <b>meme en deux lignes,</b> indiquant qu'ils sont completement separes.
+
+### Partie 3
+§ La mishna declare : <b>Mais les Sages ont declare</b> que <b>tout oiseau</b> qui griffe sa proie et la mange est non cachere. <b>C'est enseigne</b> dans une <i>baraita</i> : <b>Rabban Gamliel dit :</b> Un oiseau qui <b>griffe</b> sa proie <b>et la mange</b> <b>est certainement non cachere.</b> Si <b>il a un doigt supplementaire et un jabot, et que son gesier peut etre epluche, il est certainement cachere. Rabbi Elazar, fils de Rabbi Tzadok, dit : On tend une ligne,</b> et l'oiseau s'y perche. <b>S'il fend ses pattes</b> sur la ligne, avec <b>deux</b> chiffres <b>ici et deux la,</b> il est <b>non cachere.</b> S'il place <b>trois</b> chiffres <b>ici et un la,</b> il est peut-etre <b>cachere. Rabbi Shimon ben Elazar dit : Tout oiseau qui attrape</b> de la nourriture <b>en l'air est non cachere.</b>
+
+### Partie 4
+La Guemara interjette : Mais la <b><i>tziparta</i> attrape aussi</b> de la nourriture en l'air, et elle est cachere. <b>Abaye a dit : Nous disons</b> ceci uniquement pour un oiseau qui a la fois <b>attrape et mange</b> sa nourriture dans l'air. Le <i>tziparta</i> se pose avant de manger ce qu'il a attrape.
+
+### Partie 5
+Le <i>baraita</i> conclut : <b>D'autres disent:</b> Si un oiseau <b>habite avec des oiseaux non casher</b>, il est <b>non casher;</b> s'il habite <b>avec des oiseaux casher</b>, il est <b>casher.</b>
+
+### Partie 6
+La Guemara demande : <b>Selon l'avis de qui</b> cette derniere affirmation ? Peut-etre est-ce <b>conformement</b> a l'opinion de <b>Rabbi Eliezer, comme il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer dit :</b> Ce n'est <b>pas pour rien</b> que le <b><i>zarzir</i> est alle</b> habiter <b>avec le corbeau, mais parce qu'il est</b> de la meme <b>espece.</b> La Gemara rejette cet avis : <b>Vous</b> pouvez <b>meme dire</b> que l'opinion introduite par les mots : D'autres disent, est comme celle des <b>Rabbins,</b> qui ne sont pas d'accord avec Rabbi Eliezer et jugent le <i>zarzir</i> cachere. La declaration introduite par les mots : D'autres disent, se comprend comme suit : <b>Nous disons</b> qu'un oiseau est non cachere des lors qu'il <b>s'accorde</b> a la fois avec un oiseau non cachere <b>et lui ressemble</b>. Le <i>zarzir</i>, cependant, ne ressemble pas au corbeau.
+
+### Partie 7
+§ La mishna declare : <b>Et en ce qui concerne les sauterelles, toute</b> sauterelle <b>qui a</b> quatre pattes, et quatre ailes, et deux pattes sautantes supplementaires, et dont les ailes couvrent la majeure partie du corps, est cachere. La Gemara demande : <b>Quoi</b> est considere comme <b>la plus grande partie de son</b> corps ? <b>Rav Yehuda dit</b> que <b>Rav a dit : La plus grande partie de sa longueur. Et certains disent</b> qu'il a dit : <b>La plus grande partie de sa circonference. Rav Pappa a dit : </b> On doit donc satisfaire les deux versions de l'enonce. <b>Nous exigeons</b> que les ailes couvrent <b>la plus grande partie de sa longueur, et nous</b> exigeons egalement <b>qu'elles couvrent <b>la plus grande partie de sa circonference.</b>
+
+### Partie 8
+<b>Les Sages ont enseigne</b> dans un <i>baraita</i> : Une sauterelle qui <b>n'a pas</b> d'ailes <b>maintenant mais qui en fera pousser</b> <b>apres un certain temps, par exemple le <i>zahal</i>, est autorisee. Rabbi Elazar, fils de Rabbi Yosei, dit:</b> Le verset dit : "Cependant, vous pouvez manger de tous les animaux ailes qui marchent a quatre pattes, <b>qui ont [<i>lo</i>] des pattes articulees</b> au-dessus de leurs pieds, avec lesquelles ils peuvent sauter sur la terre" (Levitique 11:21). Le mot <i>lo</i> est ecrit avec la lettre <i>alef</i>, qui signifie pas, de sorte qu'il peut etre compris comme : Ne pas avoir de jambes articulees. Cela enseigne que <b>meme s'il n'a pas</b> de pattes articulees <b>maintenant mais qu'il en poussera</b> <b>apres un certain temps,</b> il est toujours cachere. La Gemara demande : <b>Qu'est ce que le <b><i>zahal</i> ? Abaye repond : <b>Il est appele <b><i>askarin</i></b> en arameen.
+
+### Partie 9
+<b>Les Sages ont enseigne</b> dans une <i>baraita</i> que le verset dit : <b>Ceux-la, vous pouvez les manger : Le <i>arbeh</i></b> selon ses especes, et le <i>solam</i> selon ses especes, et le <i>hargol</i> selon ses especes, et le <i>hagav</i> selon ses especes" (Levitique 11:22). Le <b><i>arbeh</i> est</b> l'insecte connu sous le nom de <b><i>govai</i>.</b> Le <b><i>solam</i> est</b> le <b><i>rashon</i>. </b> Le <b><i>hargol</i> est</b> le <b><i>nippul</i>.</b> Le <b><i>hagav</i> est</b> le <b><i>gadyan</i>. Pourquoi le verset doit-il dire.. : "Apres ses genres", "apres ses genres", "apres ses genres", </b> et <b>"apres ses genres", quatre fois ? C'est pour inclure</b> quatre especes similaires : L'<b>oiseau de vigne, et</b> le <b>Jerusalem <i>yohana</i>, et le <i>artzuveya</i>, et le <i>razbanit</i>,</b> qui sont egalement casher.
+
+### Partie 10
+<b>L'ecole de Rabbi Yishmael a enseigne : Ces</b> apparitions de l'expression "selon ses especes" dans le verset <b>sont des generalisations, et ces</b> especes mentionnees explicitement <b>sont des details.</b> Le verset doit etre compris a la lumiere du verset precedent, qui offre des signes generaux d'une sauterelle cachere. Les deux versets reunis sont une generalisation, et un detail, et une generalisation, de la maniere suivante : Le premier verset est une generalisation, <b><i>arbeh</i> est</b> un detail se referant a l'espece <b><i>govai</i>,</b> et la phrase <b>"?selon ses especes"</b> est une autre generalisation. Selon les principes hermeneutiques de Rabbi Yishmael, la deuxieme generalisation sert a inclure un cas similaire au detail. Dans ce cas, l'expression "apres ses genres" sert a <b>inclure</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

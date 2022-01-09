@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>sont de plus en plus reduits, et personne ne demande et personne ne cherche. Sur qui peut-on compter ? </b> Seulement sur notre Pere qui est dans les cieux. </b>
+
+### Partie 2
+Il a egalement dit : <b>Dans les</b> temps de l'<b>approche du Messie, l'impudence augmentera et les couts eleves s'accumuleront.</b> Bien que <b>la vigne produise son fruit, le vin</b> sera neanmoins <b>couteux. Et</b> la <b>monarchie se tournera vers l'heresie, et</b> il n'y aura <b>pas</b> personne pour donner <b>une preuve</b> a ce sujet. <b>Le lieu de rencontre</b> des Sages <b>deviendra</b> un lieu de <b>promiscuite, et la Galilee sera detruite, et le Gavlan sera desole, et les hommes de la frontiere feront le tour de ville en ville</b> pour demander la charite, <b>mais ils ne trouveront aucune pitie.</b>
+
+### Partie 3
+<b>Et la sagesse des scribes se putrefiera, et les gens qui craignent le peche seront tenus en degout, et la verite sera absente. Les jeunes feront honte au visage des aines, les aines se tiendront devant les mineurs.</b> Les relations familiales normales seront ruinees : <b>Un fils deshonorera un pere ; une fille s'elevera contre sa mere, une belle-fille contre sa belle-mere. Les ennemis d'un homme</b> seront <b>les membres de sa famille. Le visage de la generation</b> sera <b>comme le visage d'un chien ; un fils n'aura plus</b> <b>de honte devant son pere. Et sur quoi pouvons-nous compter ? </b> Seulement <b>sur notre Pere qui est dans les cieux.</b>
+
+### Partie 4
+§ <b>Rav dit</b> a propos du decret interdisant le port de couronnes que <b>ils ont enseigne</b> cette <i>halakha</i> <b>uniquement</b> en ce qui concerne les couronnes <b>de sel et de soufre, mais</b> celles <b>de myrte et de rose sont autorisees. Et Shmuel dit</b> que <b>meme</b> les couronnes <b>de myrte et de rose sont interdites,</b> mais celles faites <b>de roseaux et de joncs sont permises. Et Levi dit : Meme les couronnes de roseaux et de joncs sont interdites. Et de meme Levi enseigne dans sa <i>baraita</i> : Meme</b> celles <b>de roseaux et de joncs sont interdites.</b>
+
+### Partie 5
+La mishna a enseigne que les Sages ont decrete contre le port de couronnes pour les maries <b>et sur les tambours.</b> La Gemara pose une question : <b>Qu'est-ce que</b> ce <b>tambour [<i>irus</i>] ? Rabbi Elazar repond : Un tambour avec une seule bouche.</b> La Guemara relate une histoire impliquant cet instrument : <b>Rabba bar Rav Huna a fabrique un tambourin pour son fils. Son pere,</b> Rav Huna, <b>arrivait</b> et le <b>brisait. Il lui dit :</b> Cet instrument sera <b>confondu pour un tambour a une bouche,</b> et les gens supposeront qu'un tambour a une bouche est permis. A la place, <b>Allez lui fabriquer</b> un petit tambour <b>sur l'embouchure d'une cruche en terre [<i>hatzava</i>], ou sur l'embouchure</b> d'un recipient servant a mesurer <b>une <i>kefiza</i>,</b> une petite mesure, qui ne posait pas le souci d'etre confondu avec un tambour a une bouche.
+
+### Partie 6
+Ils ont en outre enseigne que <b>lors de la guerre de Titus</b> les Sages <b>decretaient sur les couronnes des mariees.</b> La Gemara precise : <b>Qu'est-ce que</b> les <b>couronnes de mariees ? Rabba bar bar Hana dit</b> que <b>Rabbi Yohanan dit : Une ville d'or,</b> une couronne d'or gravee du dessin d'une ville, portee par les femmes comme ornement. <b>Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>Quelles sont</b> les <b>couronnes de mariees</b> qui ont ete interdites ? La couronne d'une mariee est <b>une cite d'or. Cependant, on peut en faire un bonnet de laine fine [<i>meilat</i>].</b>
+
+### Partie 7
+Le Sage <b>enseigne :</b> Les Sages <b>meme decretes sur le dais des maries.</b> La Gemara demande : <b>Quel est</b> le type de <b>capote des maries</b> qui etait interdit, car ils n'ont certainement pas interdit la capote de mariage. La Gemara repond : Il s'agit des <b>vetements dores cramoisis [<i>zehorit</i>]</b>, teints en rouge et cramoisi et decores d'or, qu'ils accrochaient a un dais de mariage. <b>Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>Ce sont les dais des maries</b> ont interdit les Sages : <b>Les vetements dores cramoisis</b>. <b>Mais il peut faire une construction en papyrus [<i>papirit</i>]</b> <b>et y accrocher ce qu'il veut,</b> meme des ornements en or.
+
+### Partie 8
+§ La mishna a enseigne que pendant la guerre de Titus, les Sages ont decrete <b>qu'une personne ne devait pas enseigner le grec a son fils. Les Sages ont enseigne</b> que ce decret est survenu a la suite de l'incident suivant : <b>Lorsque les rois de la monarchie hasmoneenne s'assiegeaient mutuellement</b> dans leur guerre civile, <b>Hyrcanus etait a l'exterieur de</b> Jerusalem, l'assiegeant, <b>et Aristoblus etait a l'interieur. Chaque jour, ils descendaient des dinars dans une boite</b> de l'interieur de la ville, <b>et</b> ceux de l'exterieur <b>envoyaient</b> des animaux pour qu'ils apportent les <b>offrandes quotidiennes</b> dans le Temple.
+
+### Partie 9
+<b>Un certain ancien etait la,</b> a Jerusalem, <b>qui connaissait la sagesse grecque. Il communiquait avec</b> ceux de l'exterieur <b>par</b> le moyen de la <b>sagesse grecque,</b> en utilisant des mots compris seulement par ceux qui maitrisaient la sagesse grecque. <b>Il leur a dit : Tant qu'ils sont engages dans le</b> service du Temple, ils ne seront pas livres entre vos mains.</b> En entendant cela, <b>le jour suivant,</b> quand <b>ils abaisserent des dinars dans une boite, ils leur envoyerent un cochon. Une fois</b> le cochon <b>arrive a mi-hauteur</b> du <b>mur, il insera ses sabots</b> dans le mur et <b>Eretz Yisrael frissonna de quatre cents parasangs.</b>
+
+### Partie 10
+Lorsque les Sages ont vu cela, <b>ils ont dit</b> a <b>ce moment-la : Maudit soit celui qui eleve des porcs, et maudit soit celui qui enseigne a son fils la sagesse grecque. Et en ce qui concerne cette annee</b> de guerre civile, au cours de laquelle la terre a ete detruite, <b>on a appris</b> (<i>Menahot</i> 64b) : <b>Un incident</b> s'est produit <b>dans lequel le <i>omer</i>,</b> la mesure d'orge apportee en offrande communale le seize de Nisan, <b>provenait de Gaggot Tzerifim, et les deux pains</b> offerts le <i>Shavouot</i> provenaient <b>de la vallee d'Ein Sokher.</b>
+
+### Partie 11
+On comprend de la mishna et du <i>baraita</i> qu'il est interdit d'apprendre le grec. La Guemara souleve une question : <b>Est-ce le cas ? Mais Rabbi</b> Yehuda HaNasi n'a-t-il pas <b>dit : En Eretz Yisrael, pourquoi</b> les gens devraient-ils parler <b>la langue du syriaque [<i>Sursi</i>],</b> l'arameen couramment parle en Eretz Yisrael ? <b>Au contraire,</b> ils devraient parler <b>soit</b> dans <b>la langue sacree,</b> l'hebreu, <b>ou</b> dans <b>la</b> belle <b>langue du grec. Et Rav Yosef</b> a pareillement <b>dit : En Babylonie, pourquoi</b> parleraient-ils dans <b>la <b>langue vernaculaire</b> de l'arameen ? Au contraire,</b> ils devraient parler <b>soit</b> dans <b>la langue sacree,</b> l'hebreu, <b>ou</b> dans <b>la langue du persan,</b> utilisee par les autorites.
+
+### Partie 12
+La Gemara repond qu'il y a une difference : La <b>langue grecque est discrete et la sagesse grecque est discrete,</b> et les Sages ont interdit cette derniere mais pas la premiere.
+
+### Partie 13
+La Guemara pose une question : <b>Et la sagesse grecque est-elle interdite ? Mais Rav Yehuda n'a-t-il pas dit</b> que <b>Shmuel a dit au nom de Rabban Shimon ben Gamliel : Quel est</b> le sens de ce <b>qui est ecrit : "Mon œil a affecte mon ame, a cause de toutes les filles de ma ville"</b> (Lamentations 3:51) ? <b>Il y avait mille enfants dans</b> la maison de mon <b>pere,</b> la maison des princes. <b>Cinq cents</b> d'entre eux ont <b>appris la Torah, et</b> les autres <b>cinq cents ont appris la sagesse grecque, et il n'en est reste que</b> apres la revolte de bar Kokheva, <b>moi, ici</b> en Eretz Yisrael, <b>et le fils de</b> le frere de mon <b>pere,</b> qui vit <b>en Asie Mineure [<i>Asya</i>]. </b> Le fait que Rabban Gamliel ait permis a la moitie de sa famille d'etudier la sagesse grecque indique que cela est permis.
+
+### Partie 14
+La Guemara repond : Les membres <b>de la maison de Rabban Gamliel sont differents,</b> car <b>ils etaient proches de la monarchie,</b> et devaient donc apprendre la sagesse grecque afin de converser avec les personnes d'autorite. <b>Comme il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Shabbat</i> 7:1) : Celui qui <b>coupe</b> ses cheveux dans le style <b><i>komi</i></b>, qui etait la mode gentille de couper et de porter les cheveux, <b>est</b> considere comme agissant dans les <b>voies des Amorites,</b> et il est interdit d'agir a leur maniere. Cependant, <b>ils ont permis a Avtolos ben Reuven de couper</b> ses cheveux dans le style <b><i>komi</i></b>, <b>car il est proche de la monarchie,</b> et de meme <b>ils ont permis a la maison de Rabban Gamliel</b> d'etudier la <b>sagesse grecque, car ils sont proches de la monarchie.</b>
+
+### Partie 15
+§ La mishna a enseigne : <b>Lors de la derniere guerre</b> les Sages ont <b>decrete qu'une mariee ne peut sortir en palanquin</b> a l'interieur de la ville, mais les Sages ulterieurs l'ont autorise. La Gemara explique : <b>Quelle est la raison</b> pour laquelle ils ont permis cette pratique ? <b>Par pudeur,</b> afin que les mariees n'aient pas a sortir dans la rue et etre vues de tous.
+
+### Partie 16
+La mishna a enseigne que <b>Depuis</b> le moment <b>ou Rabban Yohanan</b> ben Zakkai <b>est mort, la sagesse a cesse. Les Sages ont enseigne : Depuis</b> le moment <b>ou Rabban Eliezer est mort,</b> c'etait comme si <b>le rouleau de la Torah avait ete enterre,</b> car il avait memorise de nombreux secrets de la Torah. <b>Depuis</b> le moment <b>ou Rabbi Yehoshua est mort, le conseil et</b> la <b>pensee deliberee ont cesse,</b> car il avait l'esprit le plus aiguise d'Israel. <b>Depuis</b> le moment ou Rabbi Akiva est mort, le</b> puissant <b>bras de la Torah,</b> c'est-a-dire l'exposition de tous les details des ecritures de la Torah, <b>a cesse, et les sources de la sagesse ont ete scellees.</b>
+
+### Partie 17
+<b>Depuis</b> le moment <b>ou Rabbi Elazar ben Azarya est mort, les couronnes de sagesse ont cesse, car "la couronne des sages est leur richesse"</b> (Proverbes 14:24), et il etait a la fois un grand erudit de la Torah et un homme tres riche. <b>Depuis</b> le moment <b>ou Rabbi Hanina ben Dosa est mort, les hommes de</b> <b>miracle ont cesse. A partir</b> du moment <b>ou Abba Yosei ben Katonta est mort, les hommes pieux ont cesse. Et pourquoi l'appelait-on Abba Yosei ben Katonta ? Parce qu'il etait parmi les diminues [<i>miktanei</i>] des gens pieux,</b> c'est-a-dire qu'il vivait a une epoque ou les pieux etaient devenus peu nombreux.
+
+### Partie 18
+<b>Depuis</b> le temps <b>ou ben Azzai est mort, les diligents ont cesse ; depuis</b> le temps <b>ou ben Zoma est mort, les exegetes ont cesse. A partir</b> du moment <b>ou Rabban Shimon ben Gamliel est mort, les sauterelles sont montees</b> sur la terre <b>et les troubles ont prolifere. A partir de</b> l'epoque <b>ou Rabbi</b> Yehuda HaNasi <b>mort,</b> les <b>troubles se sont multiplies.</b>
+
+### Partie 19
+La derniere ligne de la mishna indique que <b>a partir de</b> l'epoque <b>ou Rabbi</b> Yehuda HaNasi <b>est mort, l'humilite et la peur du peche ont cesse. Rav Yosef dit au <i>tanna</i></b> qui a revise la mishna : <b>Ne pas enseigner</b> que l'<b>humilite</b> a cesse, <b>car il y a</b> toujours quelqu'un qui est humble, a savoir <b>moi. Rav Nahman</b> a pareillement <b>dit au <i>tanna</i></b> qui revisait la mishna : <b>Ne pas enseigner</b> que la <b>crainte du peche</b> a cesse, <b>car il y a</b> encore quelqu'un qui craint le peche, a savoir <b>moi.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Partie 1
+il soutient qu'elle ne recoit pas d'argent de sa propriete pour la <b>charite,</b> car le tribunal ne prend pas de dons de charite de la propriete d'un individu a son insu. A l'inverse, <b>celui qui a dit</b> que le tribunal ne donne pas d'argent pour la <b>charite</b> soutiendra : <b>Cependant, on lui donne des ornements,</b> car on suppose <b>qu'il n'est pas satisfaisant pour lui</b> que sa femme <b>soit degradee</b> par un manque de bijoux.
+
+### Partie 2
+La Guemara suggere en outre : <b>Venez</b> et <b>entendez : </b> En ce qui concerne <b>une <i>yevama</i>,</b> une femme dont le mari est mort sans enfant et qui a un frere [<i>yavam</i>], et qui attend soit de contracter un mariage levirat avec le <i>yavam</i>, soit d'accomplir la <i>halitza</i>, pendant les <b>trois premiers mois</b> apres le deces de son mari, <b>elle est soutenue par</b> les biens de <b>son mari. </b>
+
+### Partie 3
+<b>A partir de ce moment,</b> tant qu'elle n'a pas contracte de levirat, <b>elle n'est pas entretenue, ni a partir</b> des biens de <b>son mari, ni a partir</b> de ceux du <b><i>yavam</i>. </b> Si le <i>yavam</i> <b>est passe en jugement</b> et que le tribunal a decide qu'il devait contracter un mariage levirat, <b>et qu'il s'est enfui, elle est soutenue a partir</b> des biens du <b><i>yavam</i>. </b> Ceci contredit apparemment la decision de Shmuel, car ici la femme est nourrie a partir des biens du <i>yavam</i> en son absence, malgre le fait que son obligation envers elle soit moindre que celle d'un mari.
+
+### Partie 4
+La Guemara repond que <b>Shmuel</b> aurait pu <b>vous dire : A l'egard de quoi</b> devons-nous <b>nous preoccuper</b> dans <b>cette affaire</b> ? <b>Si</b> l'inquietude est <b>du fait</b> de la possibilite qu'il lui ait donne <b>une liasse</b> d'argent avant son depart, <b>l'esprit du</b> <i>yavam</i> <b>n'est pas</b> si <b>proche</b> de cette femme qu'il lui laisserait de l'argent ; <b>si</b> l'inquietude est <b>du fait de ses gains,</b> c'est-a-dire qu'il lui a dit : Depense tes gains pour te faire vivre, <b>elle n'est pas</b> encore <b>obligee de</b> lui donner <b>ses gains</b>.
+
+### Partie 5
+<b>Venez</b> et <b>entendez :</b> En ce qui concerne <b>une femme qui est partie avec son mari a l'etranger, et elle est</b> revenue <b>en disant : Mon mari est mort,</b> si <b>elle le souhaite elle est soutenue</b> de ses biens, et si <b>elle le souhaite elle percoit</b> le paiement de <b>son contrat de mariage.</b> Si elle a dit : <b>Mon mari m'a divorcee,</b> mais qu'elle ne presente pas d'acte de divorce, <b>elle est continuellement soutenue</b> sur ses biens <b>jusqu'a concurrence du montant de son contrat de mariage.</b> La raison est qu'elle peut percevoir cet argent que sa demande soit crue ou non : Si elle est encore mariee, elle a droit a sa subsistance, et si elle est divorcee, elle recoit le contrat de mariage. Ceci presente une fois de plus une difficulte pour l'opinion de Shmuel, car elle percoit de l'argent de la succession de son mari en son absence.
+
+### Partie 6
+La Guemara repond : <b>Ici aussi,</b> il est question d'un cas ou <b>ils ont entendu parler</b> du mari <b>qu'il est mort.</b> La Gemara demande : <b>Et qu'est-ce qui est different</b> de la somme <b>jusqu'au montant de son contrat de mariage;</b> pourquoi ne lui donne-t-on pas plus que cela ? S'il est mort, elle devrait etre autorisee a subvenir a ses besoins avec tous ses biens jusqu'a ce qu'elle en epouse un autre. La Guemara repond : La raison est <b>que c'est elle</b> qui a <b>cause</b> la <b>perte pour elle-meme.</b> En pretendant qu'elle a divorce, elle perd son droit a plus de subsistance.
+
+### Partie 7
+La Guemara suggere egalement : <b>Venez</b> et <b>entendez : Comment,</b> c'est-a-dire dans quel cas, <b>les Sages ont-ils <b>dit</b> qu'une mineure qui <b>refuse</b> son mari <b>ne recoit pas</b> de <b>sustentation ? On ne peut pas dire</b> que cette <i>halakha</i> s'applique <b>a</b> une jeune fille <b>qui vit sous</b> l'autorite de <b>son mari, car son mari est oblige dans sa subsistance. Elle s'applique plutot a un cas ou son mari est parti a l'etranger et ou elle a emprunte de l'argent pour subvenir a ses besoins pendant un certain temps, puis elle s'est levee et l'a refuse. La Guemara en deduit : La <b>raison</b> est <b>qu'elle a refuse</b> lui, ce qui indique que si <b>elle n'a pas refuse</b> son mari, le tribunal <b>donne</b> sa subsistance. Cela montre apparemment qu'une femme est soutenue par les biens de son mari lorsqu'il part a l'etranger.
+
+### Partie 8
+La Guemara repond que <b>Shmuel</b> aurait pu <b>vous dire : A l'egard de quoi</b> devons-nous <b>nous preoccuper ici ? Si</b> le souci est <b>du a</b> la possibilite qu'il lui ait laisse <b>une liasse</b> d'argent avant son depart, <b>on ne donne pas une liasse</b> d'argent <b>a un mineur. Si</b> le souci est <b>du a</b> la possibilite qu'il l'ait chargee de subsister avec <b>ses gains,</b> les gains d'une <b>mineure</b> ne sont <b>pas suffisants</b> pour couvrir les depenses de sa subsistance. En resume, aucune resolution n'a ete trouvee pour le differend entre Rav et Shmuel, malgre les nombreuses sources citees par la Gemara.
+
+### Partie 9
+La Gemara demande : <b>Quelle est</b> la conclusion a laquelle on est parvenu <b>au sujet de ce</b> differend ? Comment doit-on traiter ce cas dans la pratique ? <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael, <b>il a dit : Un incident</b> de ce genre est <b>arrive devant Rabbi</b> Yehuda HaNasi <b>a Beit Sheârim, et il a reparti la subsistance pour elle.</b> Cependant, un incident similaire est arrive <b>devant Rabbi Yishmael a Tzippori, et il n'a pas reparti la subsistance pour elle. Rabbi Yohanan s'est interroge sur cette</b> decision : <b>Et qu'a vu Rabbi Yishmael</b> tel <b>qu'il n'a pas reparti la subsistance pour elle ? </b> Apres tout, <b>les fils de grands pretres et Hanan ont ete en desaccord</b> dans la mishna <b>seulement en ce qui concerne</b> le fait de savoir si elle est obligee de faire <b>un serment, mais</b> en ce qui concerne la <b>sustentation</b>, ils sont d'accord pour que le tribunal <b>lui donne.</b>
+
+### Partie 10
+<b>Rav Shemen bar Abba dit a</b> Rabbi Yohanan : <b>Notre rabbin en Babylonie, Shmuel, l'a deja interprete</b> comme faisant reference a un cas ou <b>ils ont appris concernant</b> le mari <b>qu'il est mort.</b> Rabbi Yohanan <b>lui a dit</b> avec etonnement : <b>Avez-vous ete si loin</b> dans votre analyse de ce cas que vous avez pu resoudre ce probleme ?
+
+### Partie 11
+<b>Lorsque Ravin est venu</b> d'Eretz Yisrael, <b>il a dit</b> une version differente de cette discussion : <b>Un incident est arrive devant Rabbi</b> Yehuda HaNasi <b>a Beit Sheârim, et il n'a pas reparti de subsistance pour elle;</b> un incident est arrive <b>devant Rabbi Yishmael a Tzippori, et il a reparti de la subsistance pour elle. Rabbi Yohanan dit : Et qu'est-ce que Rabbi</b> Yehuda HaNasi <b>a vu</b> de tel <b>qu'il n'a pas reparti de subsistance pour elle ? Comme, les fils de grands pretres et les Hanan n'etaient en desaccord que par rapport a un serment, mais</b> quand il s'agit de <b>sustenance,</b> le tribunal <b>lui donne. Rav Shemen bar Abba a dit a</b> Rabbi Yohanan : <b>Shmuel en Babylonie l'a deja interprete</b> comme faisant reference a un cas ou <b>ils ont entendu parler de lui qu'il est mort.</b> Rabbi Yohanan <b>lui a dit</b> avec etonnement : <b>Avez-vous ete aussi loin</b> dans votre analyse de ce cas ?
+
+### Partie 12
+La Gemara conclut : <b>Et la <i>halakha</i> est conforme</b> a l'avis de <b>Rav, et</b> donc <b>on repartit la subsistance pour une femme mariee</b> dont le mari est parti a l'etranger. Au passage, la Guemara mentionne d'autres decisions de <i>halakha</i>. <b>Et la <i>halakha</i> est conforme</b> a ce que <b>Rav Huna</b> a dit que <b>Rav a dit. Comme Rav Huna a dit</b> ce <b>Rav a dit : Une femme peut dire a son mari : Je ne serai pas soutenue</b> par toi <b>et</b> en retour <b>je ne travaillerai pas,</b> c'est-a-dire que tu ne garderas pas mes gains. La raison en est que cet arrangement a ete edicte par les Sages au profit de l'epouse. Par consequent, elle peut renoncer a ses droits sur sa subsistance de cette maniere.
+
+### Partie 13
+<b>Et la <i>halakha</i> est conforme</b> a l'avis de <b>Rav Zevid en ce qui concerne les recipients vitres [<i>kunya</i>]</b>. <b>Comme l'a dit Rav Zevid :</b> En ce qui concerne <b>ces recipients emailles [<i>manei dekunya</i>],</b> c'est-a-dire les recipients en faience qui sont emailles, les <b>blancs et les noirs sont autorises</b> apres avoir ete laves, car l'email empeche les recipients d'absorber les aliments places a l'interieur. Certains recipients en terre absorbent les aliments et les boissons qui y sont cuits et sont donc rendus interdits si, a un moment donne, ils ont contenu des aliments interdits, par exemple du vin verse en libation ou du levain a Pessah. Les recipients blancs et noirs ne sont pas consideres comme des recipients en terre ordinaire, qui sont interdits en permanence.
+
+### Partie 14
+A l'inverse, les <b>verts</b> <b>sont interdits,</b> car ils absorbent des substances placees a l'interieur. <b>Et nous avons dit</b> que les blancs et les noirs sont permis <b>seulement s'ils n'ont pas de fissures ; par contre, s'ils ont des fissures, ils sont interdits,</b> car la nourriture interdite est absorbee par la faience a travers les fissures.
+
+### Partie 15
+<strong>MISHNA :</strong> Dans le cas d'un mari <b>qui est parti a l'etranger, et quelqu'un s'est leve et a entretenu sa femme</b> en son absence, et au retour du mari, le prestataire lui reclame l'argent qu'il a depense pour sa femme, <b>Hanan dit :</b> Il a <b>perdu son argent,</b> c'est-a-dire que le mari n'est pas oblige de le rembourser, car le prestataire a agi de son plein gre et n'a pas recu d'instructions du mari.
+
+### Partie 16
+<b>Les fils de grands pretres n'etaient pas d'accord</b> avec l'avis d'Hanan et ont dit :</b> L'homme <b>pense combien il a depense</b> pour le compte de la femme, <b>et il prend</b> cette somme au mari. <b>Rabbi Dosa ben Harkinas a dit</b> que la <i>halakha</i> est <b>conforme a leur declaration. Rabbi Yohanan ben Zakkai dit : Hanan a bien parle</b> dans ce cas, car cet homme est comme celui qui a <b>place son argent sur la corne d'un cerf</b> en plein vol, c'est-a-dire qu'il n'a aucune attente raisonnable de remboursement.
+
+### Partie 17
+<strong>GEMARA:</strong> <b>On a appris</b> dans une mishna <b>la</b> (<i>Nedarim</i> 33a) : En ce qui concerne <b>quelqu'un</b> qui est <b>interdit par un vœu</b> de <b>recevoir un benefice d'un autre,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

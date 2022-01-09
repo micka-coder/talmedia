@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>et c'etait bon a ses yeux"/b> (Levitique 10:20). <b>Moses n'etait pas embarrasse</b> et n'a pas tente de se justifier <b>en disant : Je n'ai pas entendu</b> cette <i>halakha</i> jusqu'a maintenant. <b>Au contraire,</b> il a dit : <b>J'ai entendu</b> cela, <b>et je l'ai oublie</b>.
+
+### Partie 2
+La Gemara demande : Selon cette opinion, pourquoi a-t-on brule le sacrifice pour le peche ? <b>Ils auraient du retarder sa</b> consommation <b>et la consommer</b> cette <b>nuit.</b> La Gemara repond : <b>L'impurete rituelle est venue</b> sur cette offrande pour le peche <b>en raison de circonstances qui echappent</b> au controle des pretres,</b> et ils ont ete obliges de la bruler.
+
+### Partie 3
+La Gemara demande : <b>Accorde, selon les rabbins,</b> c'est-a-dire Rabbi Yehouda et Rabbi Shimon, <b>c'est comme il est ecrit:</b> "Et si j'avais consomme l'offrande pour le peche <b>aujourd'hui,</b> cela aurait-il ete bon aux yeux du Seigneur" ? Le verset indique qu'Aaron aurait pu la consommer la nuit. <b>Mais selon Rabbi Nehemya,</b> qui soutient qu'Aaron faisait une distinction entre les offrandes de cette epoque particuliere et les offrandes de toutes les generations ulterieures, <b>Que</b> Aaron voulait-il dire par le mot <b>"aujourd'hui"</b> La Guemara repond : Il voulait dire : Et si j'avais mange l'offrande pour le peche de la Nouvelle Lune, qui est <b>l'obligation d'aujourd'hui,</b> cela aurait-il ete bon aux yeux du Seigneur ?
+
+### Partie 4
+La Guemara demande : <b>Grace, selon Rabbi Nehemya, c'est comme il est ecrit : <b>Voici, aujourd'hui</b> ils ont sacrifie leur offrande pour le peche et leur holocauste devant le Seigneur, c'est-a-dire qu'ils l'ont offert comme l'obligation du jour. <b>Mais selon les rabbins,</b> c'est-a-dire Rabbi Yehuda et Rabbi Shimon, <b>qu'est-ce que</b> Aaron a voulu dire par la phrase "Voici [<i>hen</i>], aujourd'hui" ?</b> La Guemara repond : <b>C'est ce qu'Aaron dit : Ont-ils [<i>hen</i>],</b> mes fils, <b>sacrifier</b> l'offrande aujourd'hui, ce qui leur aurait ete interdit dans un deuil aigu ? Non, <b>J'ai sacrifie</b> l'offrande, et en tant que Grand Pretre, je peux accomplir le service en deuil aigu.
+
+### Partie 5
+§ La Guemara poursuit l'analyse de la <i>baraita</i>. <b>Le Maitre dit :</b> Si l'offrande pour le peche a ete brulee en raison d'un deuil aigu, alors les pretres <b>auraient du bruler</b> les <b>trois des</b> offrandes pour le peche offertes ce jour-la. La Guemara demande : <b>Qu'est ce que l'on entend par : Les <b>trois des</b> offrandes pour le peche ?
+
+### Partie 6
+La Guemara repond : <b>Comme il est enseigne</b> dans une <i>baraita</i> : Le verset dit : <b>Et Moise s'enquit du bouc du sacrifice pour le peche,</b> et voici qu'il fut brule" (Levitique 10:16). Quand le verset dit :" Le bouc", cela</b> fait reference au bouc de Nahshon,</b> fils d'Amminadav, prince de la tribu de Juda, qui a apporte l'offrande le premier jour de l'inauguration du Tabernacle (voir Nombres 7:12). Lorsque le verset indique : <b>L'offrande de peche,</b> cela fait reference a l'<b>offrande de peche</b> que le peuple apportait le <b>huit</b> jour de l'inauguration (voir Levitique 9:13). Le terme <b>"sacrifie"</b> fait reference au <b>bouclier</b> sacrifie a chaque <b>nouvelle lune</b> (voir Nombres 28:15). Le Tabernacle a ete erige le jour de la Nouvelle Lune de Nisan (voir Exode 40:17). Ce sont les trois boucs qui ont ete sacrifies ce jour-la.
+
+### Partie 7
+On <b>pourrait</b> penser que tous les <b>trois ont ete brules.</b> Par consequent, <b>le verset dit:</b> "Et Moise s'enquit diligemment du bouc du sacrifice pour le peche, <b>et voici qu'il fut brule,</b> pour enseigner que <b>une</b> des offrandes <b>a ete brulee, mais pas</b> toutes les <b>trois ont ete brulees.</b> Le verset dit : "Et Moise <b>s'est enquis avec diligence [<i>darosh darash</i>].</b> Pourquoi</b> y avait-il <b>deux enquetes ? </b> Moise <b>leur a dit : Pour quelle</b> raison <b>cette offrande pour le peche est-elle brulee, et</b> deuxiemement, pour quelle raison <b>celles qui restent</b> non brulees ? Le <i>baraita</i> commente : Pourtant, <b>Je ne sais pas lequel d'entre eux</b> a ete brule. <b>Lorsqu'il est dit</b> a propos de la chevre brulee : <b>"Et Il te l'a donne pour porter l'iniquite de l'assemblee"</b> (Levitique 10:17), <b>il faut dire : C'est le bouc de la Nouvelle Lune,</b> qui expie l'impurete dans le Temple.
+
+### Partie 8
+La Guemara commente : Rabbi Yehuda et Rabbi Shimon <b>Disent bien</b> Rabbi Nehemya ; si l'offrande pour le peche a ete brulee en raison d'un deuil aigu, alors les trois boucs auraient du etre brules. Comment Rabbi Nehemya aurait-il repondu ? La Guemara explique : <b>Rabbi Nehemya</b> se conforme <b>a sa ligne de <b>raisonnement</b>, car il dit : Le deuil aigu ne disqualifie pas les offrandes d</b> un <b>temps particulier.</b> Par consequent, ils ne brulaient que l'offrande pour le peche de la Nouvelle Lune, ce qui s'applique egalement aux generations futures.
+
+### Partie 9
+<b>Le Maitre dit</b> dans le <i>baraita</i> : Si l'offrande pour le peche a ete brulee en raison d'un deuil aigu, pourquoi l'a-t-on brulee tout court ? <b>Il aurait du la manger le soir.</b> La Guemara commente : Rabbi Yehouda et Rabbi Chimon <b>sont bienveillants envers</b> Rabbi Nehemya en posant cette difficulte. Comment repondrait-il ? La Guemara explique : Il <b>soutient</b> que le <b>deuil aigu du soir</b> est <b>par la loi de la Torah,</b> et que par consequent les pretres n'avaient pas le droit d'en manger meme a ce moment-la.
+
+### Partie 10
+Rabbi Yehuda et Rabbi Shimon ont egalement declare : <b>Alternativement, Pinehas,</b> fils d'Elazar le pretre, n'etait-il pas <b>avec eux ?</b> Il n'etait pas un pleureur aigu. La Guemara commente : Rabbi Yehouda et Rabbi Shimon <b>saluent bien</b> Rabbi Nehemya. La Guemara explique : <b>Il tient conformement</b> a l'opinion de <b>Rabbi Elazar. Comme Rabbi Elazar dit</b> que <b>Rabbi Hanina dit : Pinehas n'est pas devenu pretre avant d'avoir tue Zimri,</b> qui avait eu des rapports avec une femme madianite (voir Nombres 25:6""8). <b>Comme il est ecrit</b> seulement apres cet incident concernant Pinehas : <b>"Et ce sera pour lui et pour sa posterite apres lui l'alliance d'un sacerdoce eternel"</b> (Nombres 25:13). Avant cet incident, au moment de l'inauguration du Tabernacle, les seuls pretres etaient Aaron et ses fils.
+
+### Partie 11
+<b>Rav Ashi a dit :</b> Pinehas n'est pas devenu pretre <b>jusqu'a ce qu'il fasse la paix entre les tribus</b> au moment de la conquete d'Eretz Yisrael, lorsque les tribus a l'est du Jourdain ont construit leur propre autel et ont failli provoquer une guerre civile. Avant cela, Pinehas etait toujours designe comme : Fils d'Elazar le pretre, mais lors de cet incident, il est lui-meme designe comme pretre pour la premiere fois, <b>comme il est indique : "Et Pinehas, le prêtre, et les chefs de l'assemblée, et les chefs des milliers d'IsraA "l</b> qui étaient avec lui, <b>entendirent</b> les paroles que prononcèrent les fils de Ruben, les fils de Gad et les fils de Manasseh, et cela leur plut" (Josue 22:30).
+
+### Partie 12
+La Gemara demande : <b>Et</b> pour <b>l'autre Sage</b>, Rav Ashi, <b>aussi, n'est-il pas ecrit : "Et ce sera pour lui, et pour sa descendance apres lui,</b> l'alliance d'un sacerdoce eternel" ? Apparemment, Pinehas est devenu pretre apres avoir tue Zimri. La Gemara repond : <b>Lorsque ce</b> verset <b>est ecrit,</b> c'est <b>en ce qui concerne</b> la <b>benediction qu'il est ecrit,</b> que ses descendants seraient toujours pretres. Cela n'indique pas que Pinehas est devenu pretre immediatement.
+
+### Partie 13
+La Gemara demande : <b>Et</b> pour <b>les autres</b> Sages <b>aussi,</b> qui soutiennent que Pinehas est devenu pretre immediatement apres avoir tue Zimri, <b>n'est-il pas ecrit : "Et Pinehas le pretre"¦ entendit"?</b> Apparemment, il ne devint pretre qu'apres la conquete d'Eretz Yisrael. La Guemara repond : <b>Ce verset</b> sert <b>a donner un droit a ses descendants apres lui,</b> qu'ils continueraient a etre Grands Pretres par son merite.
+
+### Partie 14
+§ <b>Rav dit : Moise, notre maitre,</b> etait <b>un Grand Pretre et recevrait une part des offrandes</b> consacrees <b>au Ciel, comme il est dit :</b> "Et Moise prit la poitrine, et l'agita pour une offrande ondulee devant l'Eternel ; <b>c'etait la part de Moise du belier d'inauguration,</b> comme l'Eternel l'avait ordonne a Moise" (Levitique 8:29).
+
+### Partie 15
+La Guemara <b>souleve une objection:</b> Dans la <i>baraita</i>, Rabbi Yehuda et Rabbi Shimon affirment que le deuil aigu n'etait pas la raison pour laquelle l'offrande pour le peche etait brulee en demandant : <b>Pinehas n'etait-il pas avec eux ? Et si c'est ainsi</b> que Moise pouvait participer a la viande sacrificielle, <b>qu'ils disent : Moise, notre maitre, n'etait-il pas avec eux ? </b> La Gemara repond : <b>Peut-etre que Moise est different, puisque</b> en tant que prophete, <b>il etait preoccupe par la Presence Divine,</b> et n'etait pas disponible. <b>Comme le dit le Maitre : Moise monta</b> le mont Sinai <b>tot le matin, et</b> il <b>descendit tot le matin.</b>
+
+### Partie 16
+La Guemara <b>souleve une objection</b> a la declaration du Rav a partir d'une autre <i>baraita</i> : Le verset stipule a propos d'un pretre souille : <b>Il peut manger le pain de son Dieu, tant du plus sacre que du sacre"</b> (Levitique 21:22). <b>Si les offrandes de l'ordre le plus sacre sont enoncees,</b> qu'un pretre souille peut les manger, alors <b>pourquoi</b> les <b>offrandes de moindre saintete</b> sont-elles egalement <b>enoncees ? Et si les offrandes de moindre saintete sont enoncees, pourquoi</b> les <b>offrandes de l'ordre le plus sacre</b> sont-elles enoncees ?
+
+### Partie 17
+Le <i>baraita</i> repond : <b>Si les offrandes de moindre saintete n'avaient pas ete enoncees, j'aurais dit : C'est</b> seulement des <b>offrandes de l'ordre le plus sacre qu'un pretre souille <b>peut manger, car elles etaient permises</b> tant <b>a un non-pretre qu'aux</b> pretres, mais un pretre souille <b>ne peut pas manger des offrandes de moindre saintete,</b> qui n'etaient pas permises aux non-pretres. <b>Et si les offrandes de l'ordre le plus sacre n'avaient pas ete mentionnees, j'aurais dit :</b> Un pretre souille <b>peut manger des offrandes de moindre saintete, car elles sont de moindre saintete,</b> mais <b>il ne peut pas manger des offrandes de l'ordre le plus sacre,</b> car elles sont de plus grande saintete. <b>C'est pourquoi les offrandes de l'ordre le plus sacre sont enoncees, et par consequent, les offrandes de moindre saintete</b> sont <b>enoncees.</b>
+
+### Partie 18
+La Guemara explique l'objection : <b>En tout cas,</b> le <i>baraita</i> <b>enseigne : Comme il etait permis</b> a la fois <b>a un non-pretre et</b> aux pretres. Quel non-pretre est autorise a manger des offrandes de l'ordre le plus sacre ? Est-ce que cela ne fait <b>pas</b> reference a <b>Moise ?</b> Cela indique que Moise n'etait pas considere comme un grand pretre, contrairement a la declaration du Rav. <b>Rav Sheshet a dit : Non,</b> cela fait reference <b>a un non-pretre</b> sacrifiant <b>sur</b> un <b>autel prive.</b> Une fois que le peuple juif est entre en Eretz Yisrael, il a ete permis pendant un certain temps de construire des autels prives, sur lesquels meme les non-pretres pouvaient servir. <b>Et</b> bien que seules les offrandes de moindre saintete etaient offertes sur les autels prives, cette <i>baraita</i> est <b>conforme a la declaration du</b> Sage qui <b>dit : Il existe une offrande de repas</b> qui peut etre offerte <b>sur</b> un <b>autel prive.</b> Les offrandes de repas sont de l'ordre le plus sacre.
+
+### Partie 19
+La Guemara <b>souleve une objection</b> a la declaration de Rav : Lorsque <b>Miriam</b> est devenue lepreuse (voir Nombres 12:10), <b>qui</b> l'a diagnostiquee et <b>quarantinee ? Si vous dites</b> que <b>Moses l'a mise en quarantaine,</b> c'est difficile, car <b>Moses</b> etait <b>un non-pretre,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

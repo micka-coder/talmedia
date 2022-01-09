@@ -1,0 +1,81 @@
+
+### Part 1
+a reference to <b>Shiloh,</b> and with regard to <b>“inheritance,” this</b> is a reference to <b>Jerusalem, or the reverse,</b> i.e., that “rest” is a reference to Jerusalem and “inheritance” is a reference to Shiloh, <b>this is as it is written: “To the rest and to the inheritance [<i>el hamenuḥa ve’el hanaḥala</i>],”</b> utilizing two different phrases. <b>But according to the one,</b> i.e., the school of Rabbi Yishmael, <b>who says</b> that <b>this and that</b> are both references to <b>Shiloh, or</b> according to the opinion of Rabbi Shimon ben Yoḥai that both <b>this and that</b> are references to <b>Jerusalem,</b> the verse <b>should have</b> stated: For you have not as yet come to the <b>rest</b> and <b>inheritance [<i>menuḥa naḥala</i>].</b> The Gemara concedes that this is <b>difficult.</b>
+
+### Part 2
+The Gemara comments: <b>Granted, according to the one,</b> i.e., Rabbi Shimon ben Yoḥai, <b>who says this and that</b> are references to <b>Shiloh,</b> each of the designations may be explained: It is called <b>“rest” because</b> during the period of Shiloh they <b>rested from</b> the <b>conquest</b> in the time of Joshua, and it is called <b>“inheritance” because</b> they <b>divided</b> the <b>portions</b> of land among the tribes <b>there, as it is written: “And Joshua divided</b> the land <b>for them, and he cast a lot for them in Shiloh according to the Lord”</b> (Joshua 18:10).
+
+### Part 3
+<b>But according to the one,</b> i.e., the school of Rabbi Yishmael, <b>who says this and that</b> are references to <b>Jerusalem, granted</b> that <b>“inheritance”</b> is a reference to Jerusalem, since it is <b>an eternal inheritance. But</b> with regard to <b>“rest,” what rest</b> was there in the Temple in Jerusalem? The Gemara answers: <b>The rest of</b> the <b>Ark, as it is written: And when the ark rested.</b> In other words, verses occasionally refer to the Temple in Jerusalem as the resting place of the Ark.
+
+### Part 4
+The Gemara comments: <b>Granted, according to the one,</b> i.e., Rabbi Shimon ben Yoḥai, <b>who says</b> that <b>this and that</b> are references to <b>Jerusalem,</b> and consequently private altars were forbidden only following the establishment of the Temple in Jerusalem, <b>but</b> during the period of the Tabernacle in <b>Shiloh</b> private <b>altars were permitted, this is as it is written: “So Manoah took the kid with the meal offering, and offered them upon the rock to the Lord”</b> (Judges 13:19), i.e., he sacrificed them upon a private altar and not in Shiloh.
+
+### Part 5
+<b>But according to the one,</b> i.e., the school of Rabbi Yishmael, <b>who says</b> that <b>this and that</b> are references to <b>Shiloh, and</b> private <b>altars were forbidden</b> during this period, <b>what</b> is the meaning of: <b>“So Manoah took,”</b> as it was forbidden to sacrifice offerings outside the Temple? The Gemara answers: Permitting this sacrifice <b>was a provisional edict</b> issued in exigent circumstances.
+
+### Part 6
+The Gemara notes that with regard to the disagreement between the <i>tanna’im</i> over the interpretation of the words “rest” and “inheritance,” there is another version of that which <b>the school of Rabbi Yishmael taught,</b> which is <b>in accordance with</b> the opinion of <b>Rabbi Shimon ben Yoḥai, who says</b> that <b>this and that</b> are references to <b>Jerusalem. And your mnemonic</b> to remember this is: <b>The man pulled the men,</b> meaning: Rabbi Shimon ben Yoḥai, who is an individual, pulled, i.e., convinced, the members of the school of Rabbi Yishmael to adopt his opinion.
+
+### Part 7
+§ The mishna teaches that with regard to <b>all offerings</b> that one consecrated during a period of the permitting of private altars and sacrificed outside their designated area during a period of prohibition of private altars, one is in violation of a positive mitzva and a prohibition, but he is not liable to receive <i>karet</i> for sacrificing them. With regard to this, <b>Rav Kahana says: They taught</b> that <b>only with regard to slaughter</b> of these animals outside the designated area is one not liable to receive <i>karet</i>. <b>But with regard to offering up,</b> one would <b>also</b> be <b>liable</b> to receive <b><i>karet</i>.</b>
+
+### Part 8
+<b>What is the reason</b> for this? It is <b>that</b> immediately following the Torah’s description of an offering that was consecrated during a period of the permitting of private altars <b>the verse states</b> the penalty for sacrificing outside the designated area: <b>“And to them [<i>va’alehem</i>] you shall say”</b> (Leviticus 17:8). The term “<i>alehem</i>,” to them, the first letter of which is the letter <i>aleph</i>, is phonetically similar to the term: <i>Alehem</i>, about them, the first letter of which is the letter <i>ayin</i>. Therefore, the verse can be understood to mean: <b>About that which is</b> written in the <b>adjacent</b> passage <b>you shall say.</b> The preceding passage discusses offerings that were slaughtered outside the Temple, so although there is no penalty of <i>karet</i> for their slaughter, one is liable for <i>karet</i> for sacrificing them upon a private altar.
+
+### Part 9
+<b>Rabba objects to this: Is it written: And about them you shall say? “To them” is written, and we read</b> it as <b>“to them.”</b> The verse means that the command should be relayed to Aaron, his sons, and the Jewish people, who are mentioned in the beginning of the passage.
+
+### Part 10
+<b>And additionally, it is taught</b> in a <i>baraita</i>: <b>Rabbi Shimon would say four principles with regard to sacrificial</b> animals: With regard to offerings that one <b>consecrated during a period of prohibition of</b> private <b>altars, and slaughtered and offered up outside</b> their designated area <b>during a period of prohibition of</b> private <b>altars,</b> for <b>these</b> one is <b>in</b> violation of <b>a positive mitzva and a prohibition, and they carry</b> the punishment of <b><i>karet</i>.</b> With regard to one who <b>consecrated them during a period of</b> the <b>permitting of</b> private <b>altars, and slaughtered and offered</b> them <b>up during a period of prohibition of</b> private <b>altars,</b> for <b>these</b> one is <b>in</b> violation of <b>a positive mitzva and a prohibition, but they do not carry</b> the punishment of <b><i>karet</i>.</b>
+
+### Part 11
+With regard to one who <b>consecrated them during a period of prohibition of</b> private <b>altars, and slaughtered and offered</b> them <b>up outside</b> their designated area <b>during a period of</b> the <b>permitting of</b> private <b>altars,</b> for <b>these</b> one is <b>in</b> violation of <b>a positive mitzva, but</b> one has <b>not</b> violated <b>a prohibition with regard to them.</b>
+
+### Part 12
+With regard to one who <b>consecrated them during a period of</b> the <b>permitting of</b> private <b>altars, and slaughtered and offered</b> them <b>up during a period of</b> the <b>permitting of</b> private <b>altars,</b> he is <b>exempt from all</b> violations. The <i>baraita</i> states explicitly that there is no distinction between slaughtering and offering up on a private altar: In both cases, one who consecrated the offering during a period of the permitting of private altars and slaughtered or offered it up during a period of prohibition of private altars is exempt from the punishment of <i>karet</i>. The Gemara concludes: <b>The refutation of</b> the opinion of <b>Rav Kahana,</b> who distinguished between slaughter and offering up, is <b>a conclusive refutation.</b>
+
+### Part 13
+§ The mishna teaches: <b>And these are the consecrated</b> items, and lists components of the sacrificial service that were performed only on a great public altar, i.e., in the Tabernacle, and not on a private altar. The Gemara clarifies the source of each ritual on the list: The source for the <i>halakha</i> concerning <b>placing hands</b> on the head of an offering is <b>as it is written:</b> “If his offering be a burnt offering…he shall bring it to the entrance of the Tent of Meeting, that he may be accepted <b>before the Lord. And he shall lay</b> his hand upon the head of the burnt offering” (Leviticus 1:3–4).
+
+### Part 14
+The source for the <i>halakha</i> concerning <b>slaughtering</b> offerings of the most sacred order in the <b>north</b> is <b>as it is written:</b> “And he shall slaughter it on the side of the altar <b>northward before the Lord”</b> (Leviticus 1:11). The source for the <i>halakha</i> concerning <b>placement</b> of the blood of a burnt offering <b>around,</b> i.e., on all four sides of, the altar, is <b>as it is written: “And</b> Aaron’s sons, the priests, <b>shall…sprinkle</b> the blood <b>roundabout against the altar</b> that is at the entrance of the Tent of Meeting” (Leviticus 1:5).
+
+### Part 15
+The source for the <i>halakha</i> concerning <b>waving</b> of those offerings that require waving is <b>as it is written: “And the priest</b> shall take one of the lambs, and offer it for a guilt offering, and the <i>log</i> of oil, and <b>wave</b> them for a wave offering <b>before the Lord”</b> (Leviticus 14:12). The source for the <i>halakha</i> concerning <b>bringing</b> meal offerings to the corner of the altar before the removal of the handful is <b>as it is written: “And he shall bring it to the altar”</b> (Leviticus 2:8). The definite article before the word “altar” indicates that this applies only to the altar in the Tabernacle, and not on a private altar.
+
+### Part 16
+§ With regard to the question of whether a meal offering was sacrificed upon an altar outside the Temple, the mishna teaches that <b>Rabbi Yehuda says: There is no meal offering</b> sacrificed <b>on an altar</b> outside the Temple, even a great public altar, e.g., the Tabernacle in Gilgal, Nov, and Gibeon. <b>Rav Sheshet says: According to the statement</b> of <b>the one who says there is a meal offering</b> sacrificed <b>on an altar</b> outside the Temple, <b>there are</b> also <b>bird</b> offerings sacrificed <b>on an altar</b> outside the Temple. <b>According to the statement of the one who says there is no meal offering</b> sacrificed <b>on an altar</b> outside the Temple, <b>there are</b> also <b>no bird</b> offerings sacrificed <b>on an altar</b> outside the Temple.
+
+### Part 17
+The reason for this is that the Torah is referring to offerings that were sacrificed during the period of the permitting of private altars as: Slaughtered offerings [<i>zevaḥim</i>], in the verse: “And sacrifice them for sacrifices of [<i>vezaveḥu zivḥei</i>] peace offerings” (Leviticus 17:5), from which it may be inferred: <b>Slaughtered offerings but not meal offerings; slaughtered offerings but not bird</b> offerings, i.e., neither meal offerings nor bird offerings were sacrificed on an altar outside the Temple, including a great public altar.
+
+### Part 18
+The Gemara continues detailing the distinctions between great public altars and small private altars: <b>And a priest</b> is required only at a public altar, <b>as it is written: “And the priest shall sprinkle</b> the blood against the altar of the Lord at the entrance of the Tent of Meeting” (Leviticus 17:6). Priestly <b>service vestments</b> are required only at a public altar, as it is written: “And they shall be upon Aaron, and upon his sons when they go into the Tent of Meeting or when they come near to the altar <b>to minister in the sacred place”</b> (Exodus 28:43).
+
+### Part 19
+<b>And</b> with regard to <b>service vessels,</b> it is written: “And they shall take all the service vessels <b>wherewith they serve in the sacred place”</b> (Numbers 4:12). With regard <b>to a pleasing aroma,</b> i.e., that limbs that had previously been roasted off the altar should not be placed upon the altar, it is required only on a public altar, <b>as it is written:</b> “And the priest shall sprinkle the blood against the altar of the Lord at the entrance of the Tent of Meeting, and the priest shall make the fat smoke <b>for an aroma pleasing to the Lord”</b> (Leviticus 17:6).
+
+### Part 20
+<b>A partition for</b> the <b>blood,</b> i.e., the red line that divides the altar, as the blood of some offerings, e.g., a sin offering, was sprinkled above the line, and the blood of other offerings, e.g., a burnt offering, was sprinkled below the line, was required only on a public altar, <b>as it is written: “And the net may reach halfway up the altar”</b> (Exodus 27:5). The definite article before the word “altar” indicates that this applied only to the altar in the Tabernacle. With regard to the requirement for <b>washing of hands</b> and feet before the service, it is required only on a public altar, <b>as it is written:</b> “When they went into the Tent of Meeting <b>and when they came near to the altar, they shall wash”</b> (Exodus 40:32).
+
+### Part 21
+§ Concerning the <i>halakha</i> requiring a partition for the blood, and other <i>halakhot</i> that did not apply to a private altar but did apply to a great public altar, <b>Rami bar Ḥama said:</b> The Sages <b>taught</b> that there is no requirement for a partition <b>only with regard to</b> consecrated <b>sacrificial</b> items to be used on <b>a small</b> private <b>altar, and which</b> one <b>sacrificed upon a small</b> private <b>altar. But in</b> the case of consecrated <b>sacrificial</b> items to be used on <b>a small</b> private <b>altar that were sacrificed upon a great</b> public <b>altar, there is a partition.</b>
+
+### Part 22
+<b>Rabba raised an objection</b> from a <i>baraita</i>: The <i>halakha</i> of waving the <b>breast and</b> the <b>thigh</b> of a peace offering and <b>the <i>teruma</i> of the loaves of a thanks offering applies with regard to sacrificial</b> items <b>of a great</b> public <b>altar and does not apply with regard to sacrificial</b> items <b>of a small</b> private <b>altar,</b> even if they were sacrificed upon a great public altar. The Gemara responds: <b>Say</b> that the text of the <i>baraita</i> should be the following: The <i>halakha</i> of waving the breast and thigh and the <i>teruma</i> of the loaves of a thanks offering <b>applies to a great</b> public <b>altar,</b> even with regard to a sacrificial item of a small private altar, <b>but does not apply to a small</b> private <b>altar.</b>
+
+### Part 23
+<b>Some say</b> that <b>Rami bar Ḥama said:</b> The Sages <b>taught</b> that there is a requirement for a partition <b>only with regard to sacrificial</b> items of <b>a great</b> public <b>altar</b> that <b>were sacrificed upon a great</b> public <b>altar. But in</b> the case of <b>sacrificial</b> items of <b>a small</b> private <b>altar, even though they were sacrificed upon a great</b> public <b>altar, there is no partition.</b>
+
+### Part 24
+The Gemara suggests: <b>Let us say</b> that the following <i>baraita</i> <b>supports</b> the opinion <b>of</b> Rami bar Ḥama: Waving of the <b>breast and thigh</b> of a peace offering <b>and the <i>teruma</i> of the loaves of a thanks offering applies to sacrificial</b> items <b>of a great</b> public <b>altar, and does not apply to sacrificial</b> items <b>of a small</b> private <b>altar.</b>
+
+### Part 25
+The Gemara responds: No proof may be brought from here, as <b>I will say</b> that it means the <i>halakha</i> of waving the breast and thigh and the <i>teruma</i> of the loaves of a thanks offering <b>applies to a great</b> public <b>altar,</b> even with regard to the sacrificial items of a private altar, <b>and does not apply to a small</b> private <b>altar.</b> The Gemara notes: <b>And</b> this latter version of Rami bar Ḥama’s statement <b>disagrees with</b> the opinion of <b>Rabbi Elazar, as Rabbi Elazar says: A burnt offering of a private altar that one brought inside,</b> i.e., into the area of a great public altar, is <b>absorbed,</b> i.e., sanctified, by the <b>partitions for all matters.</b>
+
+### Part 26
+With regard to the previous matter, <b>Rabbi Zeira raises a dilemma:</b> With regard to <b>a burnt offering of a private altar</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

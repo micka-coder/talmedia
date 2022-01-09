@@ -1,0 +1,27 @@
+
+### Part 1
+If she derived benefit from him before Passover and went to visit her father <b>after Passover,</b> she is liable <b>for</b> violating the prohibition of: <b>He shall not profane</b> his word (Numbers 30:3), as the condition was fulfilled and she violated the vow retroactively. If the husband vowed: <b>Benefit from me</b> is <i>konam</i> <b>for you until the Festival if you go to your father’s house</b> from now <b>until Passover,</b> then if <b>she went</b> to his house <b>before Passover,</b> it <b>is prohibited</b> for her to <b>derive benefit</b> from <b>him until the Festival, and</b> it <b>is permitted</b> for her <b>to go</b> to her father’s house <b>after Passover,</b> as that time period is not included in his stipulation.
+
+### Part 2
+<strong>GEMARA:</strong> We learned in the mishna: For <b>one who says to his wife: Your handicraft is <i>konam</i> upon me,</b> or <b>it is <i>konam</i> upon my mouth,</b> or <b>it is <i>konam</i> to my mouth,</b> it is prohibited to benefit from her handicraft. <b>Yishmael, a man of Kefar Yamma, and some say, a man of Kefar Dima, raised</b> a dilemma with regard to <b>an onion that one uprooted during</b> the <b>Sabbatical Year,</b> which was therefore sanctified with the sanctity of the Sabbatical Year, <b>and</b> he then <b>planted it during the eighth</b> year, <b>and its growths</b> that developed in the eighth year <b>exceeded its principal</b> original Sabbatical-Year onion. <b>And this is the dilemma that he raised: Its</b> eighth-year <b>growth is permitted, and its</b> Sabbatical-Year <b>principal</b> is <b>prohibited. Since its growth exceeded its principal,</b> do <b>those permitted growths neutralize the prohibition</b> of the onion, <b>or</b> do they <b>not?</b> Yishmael <b>came</b> and raised the dilemma <b>before Rabbi Ami, and he did not have</b> an answer readily <b>available.</b>
+
+### Part 3
+Yishmael <b>came</b> and raised the dilemma <b>before Rabbi Yitzḥak Nappaḥa,</b> who <b>resolved</b> it <b>for him from</b> that <b>which Rabbi Ḥanina Terita’a said</b> that <b>Rabbi Yannai said:</b> With regard to <b>an onion of <i>teruma</i> that one planted,</b> if <b>its growths exceeded its principal,</b> it <b>is permitted.</b> Here too, the eighth-year growth should neutralize the prohibition of the Sabbatical-Year onion. <b>Rabbi Yirmeya said, and some say</b> it was <b>Rabbi Zerika</b> who said to Rabbi Yitzḥak Nappaḥa: <b>Did the Master abandon</b> the opinion of <b>two</b> Sages <b>and conduct</b> himself <b>in accordance with</b> the opinion of <b>one</b> Sage?
+
+### Part 4
+The Gemara asks: <b>Who are they,</b> the <b>two</b> Sages who disagree with his opinion? The Gemara answers: It is <b>as Rabbi Abbahu said</b> that <b>Rabbi Yoḥanan said:</b> With regard to <b>a young</b> vine within three years of its planting, whose fruits are <i>orla</i> and forbidden, <b>that one grafted onto an old,</b> permitted vine, <b>and there were fruits on</b> the younger vine, <b>even though</b> the younger vine <b>added two hundred</b> times the number of fruits that were there when it was grafted, and those additional fruits are permitted because they draw their nourishment from the older vine, the fruit that was on the younger vine before it was grafted is <b>forbidden.</b> Although, in principle, when the permitted part of the mixture is two hundred times the forbidden <i>orla</i>, the prohibition is neutralized, in this case, the prohibition is not neutralized, as the forbidden fruit was there from the outset.
+
+### Part 5
+<b>And Rabbi Shmuel bar Rabbi Naḥmani said</b> that <b>Rabbi Yonatan said:</b> With regard to <b>an onion that one planted in a vineyard,</b> creating a forbidden mixture of food crops in a vineyard, <b>and</b> then <b>the vineyard was uprooted,</b> and most of the onion grew in a permitted manner, it is <b>forbidden.</b> Apparently, both Rabbi Yoḥanan and Rabbi Yonatan disagree with the opinion of Rabbi Yannai, and therefore, there is no clear resolution to the dilemma.
+
+### Part 6
+Yishmael <b>then came</b> and raised the dilemma <b>before Rabbi Ami, who resolved</b> it <b>for him from</b> that <b>which Rabbi Yitzḥak said</b> that <b>Rabbi Yoḥanan said:</b> With regard to <b>a <i>litra</i> of onions that one tithed, and</b> then he <b>sowed</b> a field with the entire <i>litra</i> of onions, when the field yields the crop, <b>it is tithed according to the entire</b> crop. Although some of the onions that he sowed were already tithed, he is obligated to tithe them because the volume of the growths exceeds the volume of the original onions and the entire crop has untithed status. <b>Apparently, those growths neutralize the</b> prohibition of the <b>primary,</b> original, tithed onions.
+
+### Part 7
+The Gemara rejects that resolution: There is no proof from the ruling in the case of the <i>litra</i> of onions, as <b>perhaps</b> it <b>is different</b> when the ruling <b>is a stringency.</b> Perhaps, due to the concern that the growths neutralize the prohibition of the original, the ruling is that he must tithe the entire crop. However, there is no proof that the same would be true in cases where the ruling is a leniency, e.g., to neutralize the prohibition of the Sabbatical Year or <i>teruma</i>.
+
+### Part 8
+<b>Rather,</b> proof may be cited from <b>this</b> source; <b>as it is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

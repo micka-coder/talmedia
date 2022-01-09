@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Et</b> il en va de meme pour la nuit qui suit le jour de l'enterrement, meme si le deuil aigu de ce jour-la est lui-meme de droit rabbinique, car <b>les Sages ont renforce leurs prises de position avec une plus grande</b> severite <b>que la loi de la Torah</b>.
+
+### Partie 2
+§ <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Le huitieme jour de l'inauguration du Tabernacle, au cours duquel deux des fils d'Aaron sont morts, Moise a parle a Aaron et a ses fils en utilisant trois formes differentes du mot commandement : <b>"Car c'est ainsi qu'on m'ordonne [<i>tzuveiti</i>]"</b> (Levitique 10:13), <b>"Comme j'ai ordonne [<i>tziveiti</i>]"</b> (Levitique 10:18), et <b>"Comme le Seigneur a ordonne [<i>tziva</i>]"</b> (Levitique 10:15). Moise dit a Aaron : " Et tu en mangeras"¦<b>car c'est ainsi qu'on me l'a ordonne,</b> pour enseigner qu'Aaron et ses autres fils <b>doivent participer</b> aux offrandes meme <b>en cas de deuil aigu.</b> La declaration : "Vous auriez certainement du en manger"¦<b>comme je l'ai ordonne,"</b> Moise <b>leur a dit au moment</b> de l'<b>incident,</b> quand Aaron et ses fils ont brule l'offrande pour le peche pour la Nouvelle Lune. Moise a dit : <b>Comme le Seigneur l'a ordonne,</b> pour souligner que ce n'est <b>pas de ma propre</b> initiative que <b>je dis</b> cela, mais cela vient de la parole de Dieu.
+
+### Partie 3
+<b>Et</b> les Sages <b>soulevent une contradiction</b> d'une autre <i>baraita</i> : l'offrande pour le peche <b>a ete brulee en raison</b> du <b>deuil aigu</b> d'Aaron et de ses fils, car ils sentaient qu'ils ne pouvaient pas y prendre part. <b>C'est pourquoi,</b> il est dit</b> dans l'explication d'Aaron : "Il m"?est arrivé de telles choses <b>que celles-ci;</b> et si j"?avais consommé le sacrifice pour le péché aujourd"?hui, cela aurait-il été bon aux yeux de l" ? Moise conceda a Aaron qu'il avait raison (voir Levitique 10:20), indiquant qu'il n'etait pas permis a Aaron de participer au sacrifice pour le peche en cas de deuil aigu.
+
+### Partie 4
+<b>Shmuel a dit :</b> Ceci n'est <b>pas difficile. Cette</b> premiere <i>baraita</i>, selon laquelle Moise a ordonne a Aaron et a ses fils de consommer la viande sacrificielle en cas de deuil aigu, est conforme a l'opinion de <b>Rabbi Yehuda;</b> et <b>cette</b> <i>baraita</i>, selon laquelle ils ont agi correctement en s'abstenant de la consommer, est conforme a l'opinion de <b>Rabbi Nehemya.</b>
+
+### Partie 5
+Ceci est <b>comme il est enseigne</b> dans une <i>baraita</i> : Aaron et ses fils ont <b>brule</b> l'offrande pour le peche <b>en raison</b> de leur <b>deuil aigu. C'est pourquoi, il est dit : "Comme ceux-ci";</b> c'est <b>la declaration de Rabbi Nehemya. Rabbi Yehuda et Rabbi Shimon disent :</b> L'offrande pour le peche <b>a ete brulee a cause de l'impurete rituelle. Comme, si l'on dit</b> qu'elle <b>a ete brulee en raison d'un deuil aigu,</b> ils <b>auraient du bruler</b> les <b>trois des offrandes pour le peche offertes ce jour-la. <b>Alternativement,</b> si elle a ete brulee en raison d'un deuil aigu, <b>ils auraient ete aptes a participer</b> aux offrandes pour le peche <b>le soir,</b> et il n'aurait pas ete necessaire de les bruler. <b>Alternativement,</b> s'ils ont ete brules a cause d'un deuil aigu, <b>Pinehas,</b> fils d'Elazar le pretre, n'etait-il pas <b>avec eux ?</b> Il n'etait pas en deuil, et il aurait pu participer au sacrifice pour le peche.
+
+### Partie 6
+<b>Rava dit :</b> Tant <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> sont conformes a l'opinion du <b>Rabbi Nehemya,</b> qui soutient que l'offrande pour le peche a ete brulee en raison d'un deuil aigu. <b>Et</b> ceci n'est <b>pas difficile. Ici,</b> la <i>baraita</i> selon laquelle Moise a ordonne qu'Aaron et ses fils participent a l'offrande en tant que personnes en deuil aigu se refere <b>aux offrandes d'un</b> moment particulier,</b> c'est-a-dire l'offrande de repas, qui etait unique a la ceremonie d'inauguration. <b>La,</b> la <i>baraita</i> selon laquelle on brulait a juste titre l'offrande pour le peche, en raison d'un deuil aigu, se refere <b>aux offrandes de</b> toutes les <b>generations futures.</b> Cette offrande pour le peche etait apportee pour la Nouvelle Lune de Nisan, et une telle offrande serait apportee a chaque Nouvelle Lune a partir de ce jour. Moise conceda que de telles offrandes ne devaient pas etre consommees par les personnes en deuil aigu.
+
+### Partie 7
+La Gemara demande : <b>Comment</b> <b>Rabbi Nehemya concilierait-il ces</b> <b>versets</b> apparemment contradictoires sur l'offrande pour le peche, <b>et comment</b> <b>les Sages concilieraient-ils ces versets</b> (voir Levitique 10:17""20) ?
+
+### Partie 8
+<b>Rabbi Nehemya</b> les <b>reconcilierait ainsi :</b> Lorsque Moise a demande : <b>Pourquoi n'as-tu pas mange</b> l'offrande pour le peche ? " (Levitique 10:17), voici ce que <b>Moise a dit a Aaron : Peut-etre que le sang de</b> cette offrande pour le peche <b>a penetre dans le sanctuaire le plus intime,</b> la disqualifiant ainsi (voir Levitique 6:23). Est-ce pour cela que tu l'as brulee ? Aaron lui a dit :" Voici, son sang n'a pas été introduit dans le sanctuaire intérieur" (Levitique 10:18). Moise demanda alors : <b>Peut-etre qu'il est sorti de sa cloison,</b> c'est-a-dire qu'il est sorti de la cour du Tabernacle, et qu'il a ainsi ete disqualifie ? Aaron <b>lui repondit : Il etait a l'interieur de la zone sacree</b> a tout moment.
+
+### Partie 9
+Moise a alors suggere : <b>Mais peut-etre l'avez-vous sacrifie en deuil aigu,</b> ce qui est interdit aux pretres ordinaires, <b>et l'avez-vous disqualifie.</b> Aaron <b>lui a dit : Moise, est-ce eux,</b> c'est-a-dire mes fils, <b>qui ont sacrifie</b> l'offrande ? <b>J'ai sacrifie</b> l'offrande, et en tant que Grand Pretre, je peux servir meme comme un pleureur aigu (voir Levitique 21:10""12). <b>Et</b> Moise lui <b>dit : <b>Voici, son sang n'a pas ete apporte</b> dans le Sanctuaire a l'interieur,</b> alors qu'il se trouvait a l'interieur de l'aire sacree</b> en tout temps ; donc : <b>Vous auriez certainement du le consommer</b> dans l'aire sacree, <b>comme je l'ai ordonne</b> (Levitique 10:18), c'est-a-dire tout comme j'ai ordonne que les pretres <b>consomment</b> l'offrande de repas d'aujourd'hui <b>dans un deuil aigu.</b>
+
+### Partie 10
+Aaron <b>lui dit :</b> "Voici, aujourd'hui ils ont sacrifie leur offrande pour le peche et leur holocauste devant l'Eternel, <b>et il m'est arrive de telles choses ; et si j'avais consomme aujourd'hui l'offrande pour le peche, cela aurait-il ete bon aux yeux de l'Eternel ?</b> (Levitique 10:19). <b>Peut-etre avez-vous entendu</b> le commandement de consommer l'offrande <b>uniquement par rapport aux offrandes de</b> un <b>temps particulier,</b> c'est-a-dire l'offrande de repas, qui etait unique a ce jour.
+
+### Partie 11
+<b>Comme, si</b> vous pretendez que cela s'applique egalement <b>aux offrandes de</b> toutes les <b>generations,</b> alors on peut prouver qu'il n'en est rien via <b>une deduction <i>a fortiori</i></b> <b>de</b> la seconde <b>tithe,</b> pour <b>laquelle</b> la <i>halakha</i> <b>est</b> plus <b>longue</b> que pour la viande sacrificielle : <b>Tout comme</b> en ce qui concerne le second <b>tithe,</b> pour <b>lequel</b> le <i>halakha</b> <b>est</b> plus <b>libre, la Torah a declare : "Je n'en ai pas mangé dans mon deuil [<i>veoni</i>]"</b> (Deutéromoine 26:14), enseignant qu'il est interdit A un endeuillé aigu [<i>onen</i>] d'y prendre part, <b>d'autant plus</b> n'est-il pas <b>clair que <b>en ce qui concerne les offrandes de</b> toutes les <b>générations,</b> il est interdit A un endeuillé aigu d'y prendre part ?
+
+### Partie 12
+Moise <b>a immediatement cede</b> a Aaron, comme le precise le verset : <b>"Et Moise entendit, et ce fut bon a ses yeux"</b> (Levitique 10:20). <b>Et Moise ne fut pas embarrasse</b> et ne tenta pas de se justifier <b>en disant : Je n'ai pas entendu</b> de cette <i>halakha</i> jusqu'a maintenant. <b>Au contraire, il a dit : J'en ai entendu</b> parler, <b>et je l'ai oublie</b>, comme l'indique le verset en precisant :" Moise a entendu".
+
+### Partie 13
+La Guemara poursuit : <b>Et comment</b> <b>Rabbi Yehuda et Rabbi Shimon,</b> qui soutiennent que l'offrande pour le peche a ete brulee en raison de l'impurete rituelle, <b>reconcilient ces</b> versets ? <b>Ils</b> les <b>reconcilieraient ainsi :</b> Lorsque Moise dit a Aaron et a ses fils : <b>Pourquoi n'avez-vous pas mange le sacrifice pour le peche dans le lieu du Sanctuaire ?</b> (Levitique 10:17), il voulait dire : <b>Peut-etre que son sang est entre dans le sanctuaire le plus interieur,</b> disqualifiant l'offrande. Aaron lui <b>dit</b> en reponse : <b>Voici, son sang n'a pas ete introduit dans le sanctuaire interieur</b> (Levitique 10:18).
+
+### Partie 14
+Moise a alors demande : <b>Peut-il sortir de sa cloison,</b> c'est-a-dire de la cour du Tabernacle, et etre ainsi disqualifie ? Aaron <b>lui repondit : Il etait a l'interieur de la zone sacree</b> a tout moment. Moise demanda alors : <b>Mais peut-etre l'as-tu sacrifie dans un deuil aigu et l'as-tu disqualifie ?</b> Aaron <b>lui a dit : Moise,</b> est-ce mes fils qui ont <b>sacrifie</b> l'offrande, <b>pour que</b> leur <b>deuil aigu</b> puisse <b>disqualifier</b> l'offrande ? <b>Je,</b> le Grand Pretre, <b>sacrifie</b> l'offrande, et je peux servir meme dans un deuil aigu.
+
+### Partie 15
+Moise demande alors : <b>Ou peut-etre qu'a cause de ton amertume</b> dans le deuil, <b>tu as neglige</b> l'offrande <b>et elle est devenue impure ?</b> Aaron <b>lui a dit : Moise, suis-je a tes yeux une telle</b> personne, <b>que je</b> traiterais</b> une offrande <b>consacree au Ciel avec mepris ? "Il m"?est arrivé de telles choses"</b> (Levitique 10:19), c"?est-A -dire que <b>même</b> si <b>ces</b> tragédies <b>et</b> d"?autres <b>comme elles</b> devaient m"?arriver, <b>je</b> ne traiterais pas</b> une offrande <b>consacrée au Ciel avec mépris.</b>
+
+### Partie 16
+Moise <b>lui dit :</b> En ce cas, <b>et si,</b> comme tu le dis : <b>Voici, son sang n'a pas ete apporte</b> dans le Sanctuaire a l'interieur,</b> <b>et</b> il <b>etait a l'interieur de la zone sacree</b> a tout moment, alors : <b>Vous auriez certainement du le manger dans l'aire sacree, comme je l'ai ordonne,</b> c'est-a-dire comme j'ai ordonne que les pretres <b>consomment</b> l'offrande de repas meme <b>en cas de deuil aigu.</b>
+
+### Partie 17
+Aaron <b>lui dit : Peut-etre as-tu entendu</b> le commandement de consommer l'offrande <b>uniquement en ce qui concerne la nuit</b> suivant le jour de deuil aigu, mais pendant le jour meme, l'interdiction demeure. <b>Comme, si</b> vous pretendez qu'elle peut etre consommee <b>pendant le jour</b> lui-meme, je peux prouver que ce n'est pas le cas via <b>une <i>a fortiori</i></b> deduction <b>de</b> la seconde <b>tithe,</b> pour <b>laquelle</b> la <i>halakha</i> <b>est</b> plus <b>louable</b> que pour la viande sacrificielle : <b>Comme</b> en ce qui concerne le second <b>tithe,</b> pour <b>lequel</b> le <i>halakha</b> <b>est</b> plus <b>libre, la Torah a declare : Je n'en ai pas mange dans mon deuil, d'autant plus</b> n'est-il pas <b>clair</b> que dans le cas <b>stringent</b> de la viande <b>sacrificielle</b>, il est interdit a un endeuille aigu d'y prendre part ?
+
+### Partie 18
+Moise <b>immediatement</b> a concede a Aaron, comme le precise le verset : <b>"Et Moise entendit,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

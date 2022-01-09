@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Granted, a court</b> can write a new document, because the court <b>has the power to confiscate money.</b> A creditor has the right to seize any property that the debtor had owned on the day the promissory note was written, even if that property was subsequently sold to others; the earlier the date on the note, the more properties it applies to. By dating the new document on the date of the original document the creditor is once again given the right to seize properties from those who had purchased land from the debtor in between the date of the original loan and the date the new promissory note is actually written. The court has such confiscatory power. <b>But</b> with regard to <b>witnesses, who</b> already <b>performed their agency,</b> i.e., fulfilled their assigned role, the first time they wrote the promissory note, can <b>they return and perform their agency</b> again by writing a second promissory note?
+
+### Part 2
+The Gemara asks: <b>And</b> is it so that witnesses are <b>not</b> empowered to do so? <b>But doesn’t Rav Yehuda say</b> that <b>Rav says: Witnesses</b> who were commissioned to write a deed for the transfer of property <b>may write even ten deeds for one field?</b> If the original deed is lost or destroyed, the witnesses may write a replacement deed for the purchaser, even if the deed is lost many times.
+
+### Part 3
+<b>Rav Yosef says</b> an answer to this question: Rav Yehuda’s statement was concerning <b>a deed of gift,</b> not a bill of sale. A gift of land has no guarantee; if it is repossessed from the recipient by the giver’s creditor to repay the giver’s debt, the recipient has no recourse and cannot collect any money from anyone. Therefore, in this case no one is jeopardized by the writing of many replacement deeds, which are intended only to serve as a proof that the recipient is actually entitled to the land.
+
+### Part 4
+<b>And Rabba says:</b> It is possible to say that Rav Yehuda’s statement applied even <b>with regard to a bill</b> of sale <b>that does not have a guarantee in it.</b> In that case as well, there is no potential loss to any purchasers of land. By contrast, in the case of a promissory note, which can be used to repossess property from those who have purchased land from the debtor, witnesses do not have the authority to predate a document and thereby subject more purchasers to possible land seizures due to the predating of the document.
+
+### Part 5
+The Gemara cited an excerpt from a <i>baraita</i> earlier. It now cites it in full: <b>What</b> is the full text of the <b><i>baraita</i>? As it is taught:</b> If <b>one thousand dinars are owed by</b> a debtor, and the debt is recorded in a promissory note, <b>and</b> the debtor <b>repaid five hundred dinars out of</b> the total, the <b>witnesses tear the</b> original promissory <b>note and write another</b> promissory <b>note for him,</b> dated <b>from</b> the <b>time of</b> the <b>first</b> note. This is <b>the statement of Rabbi Yehuda. Rabbi Yosei says: This</b> original promissory <b>note shall remain in its place,</b> in the custody of the creditor, <b>and</b> witnesses <b>write a receipt</b> for the five hundred dinars that were repaid. This receipt is given to the debtor to protect himself against a possible attempt by the creditor to use the promissory note to collect the entire one thousand dinars.
+
+### Part 6
+Rabbi Yosei continues: <b>And</b> there are <b>two reasons why</b> the Sages <b>said</b> that <b>they write a receipt,</b> as opposed to writing a new promissory note: <b>One</b> reason is <b>so that</b> the creditor <b>can coerce</b> the debtor <b>to repay him,</b> i.e., the psychological pressure for the debtor of knowing that the creditor has a promissory note with a larger amount listed than what he owes him will induce the debtor to repay the remainder promptly. <b>And</b> the other <b>one</b> is <b>so that he,</b> the creditor, <b>should</b> be able to <b>collect</b> liened property <b>from</b> the <b>first date,</b> that of the original document.
+
+### Part 7
+The Gemara asks with regard to Rabbi Yosei’s second reason: <b>But doesn’t Rabbi Yehuda also say</b> that the new document must be dated <b>from</b> the <b>time of</b> the <b>first</b> document? The Gemara answers: Rabbi Yosei did not hear a full explanation of Rabbi Yehuda’s opinion; he heard only that Rabbi Yehuda prescribed writing a new promissory note recording the new balance. And <b>this</b> is what <b>Rabbi Yosei is saying to Rabbi Yehuda: If you</b> mean to <b>say</b> that the new promissory note is dated <b>from</b> the <b>time of</b> the <b>first</b> document, <b>I disagree with you on one</b> count, as I hold a receipt should be written to pressure the debtor. <b>If</b> you mean to say that the second promissory note is dated <b>from</b> the <b>second date,</b> i.e., from when the second promissory note was written, <b>I disagree with you on two</b> counts.
+
+### Part 8
+§ The Gemara discusses a related <i>halakha</i>. <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Makkot</i> 1:3): If there is a promissory <b>note whose date is written as a Shabbat or as the tenth of Tishrei,</b> i.e., Yom Kippur, it <b>is</b> assumed to be <b>a postdated</b> promissory <b>note,</b> as writing is forbidden on Shabbat and Yom Kippur, <b>and it is</b> therefore <b>valid.</b> This is <b>the statement of Rabbi Yehuda. Rabbi Yosei deems</b> the promissory note <b>invalid. Rabbi Yehuda said to</b> Rabbi Yosei: <b>But didn’t</b> such <b>an incident come before you in Tzippori, and you</b> yourself <b>deemed</b> the promissory note <b>valid?</b> Rabbi Yosei <b>said to him: When I deemed</b> the promissory note <b>valid,</b> it was <b>in</b> a case like <b>this,</b> where the date was a Shabbat or Yom Kippur, that <b>I deemed</b> it <b>valid.</b>
+
+### Part 9
+The Gemara is puzzled by Rabbi Yosei’s response at the end of the <i>baraita</i>: <b>But Rabbi Yehuda was also speaking in</b> a case like <b>this,</b> where the date was a Shabbat or Yom Kippur, and yet Rabbi Yosei’s opinion was that the promissory note is invalid.
+
+### Part 10
+<b>Rabbi Pedat says: All</b> parties to this dispute <b>agree that if we engaged in</b> an investigation of <b>the date of the document, and its date was found to be exactly on Shabbat or on the tenth of Tishrei,</b> that it is self-evident <b>that it is a postdated</b> promissory <b>note and is valid.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

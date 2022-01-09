@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Comme le dit Rabbi Yohanan au nom de Rabbi Shimon ben Yehotzadak : L'eau qui appartient</b> au <b>public</b> n'est <b>pas rendue interdite.</b> La Guemara en deduit que puisque l'eau qui appartient au public est permise, <b>par consequent,</b> dans un cas ou les gentils s'inclinent devant une eau qui appartient <b>a un individu</b> elle est <b>rendue interdite.</b>
+
+### Partie 2
+La Gemara conteste : <b>Mais</b> Rabbi Yohanan pourrait <b>deriver</b> que meme l'eau appartenant a un individu est permise, <b>car</b> l'eau <b>est reliee</b> au sol, et le fait d'adorer un objet qui est relie au sol ne le rend pas interdit. La Guemara explique : <b>Non,</b> il est <b>necessaire</b> de deriver cette <i>halakha</i> du fait que l'eau appartient au public dans un cas <b>ou une vague</b> a souleve l'eau et l'a <b>detachee</b> du sol. Dans ce cas, l'adoration d'une eau appartenant a un individu la rendrait interdite.
+
+### Partie 3
+La Gemara conteste : Neanmoins, l'eau <b>enfin</b> entre dans la categorie des objets qui se sont detaches sans l'intervention de l'homme, comme les <b>blocs d'une montagne qui se sont deloges</b> d'eux-memes. La Guemara (46a) cite un differend entre Rabbi Yohanan et les fils de Rabbi Hiyya au sujet de blocs rocheux qui se sont deloges sans intervention humaine et ont ensuite ete adores, et ne conclut pas qui juge les blocs rocheux permis et qui les juge interdits. <b>Peut-on conclure</b> de la declaration de Rabbi Yohanan que</b> c'est <b>Rabbi Yohanan qui dit</b> que les rochers <b>sont interdits ?</b>
+
+#### Partie 4
+La Guemara repond : <b>Non,</b> meme si Rabbi Yohanan juge les blocs rocheux permis, sa decision concernant l'eau est <b>necessaire</b> dans un cas <b>ou</b> on <b>frappe</b> l'eau <b>avec sa main</b> et la detache ainsi. Puisqu'elle s'est detachee a cause de l'intervention humaine, si l'eau appartenait a un individu, elle est interdite.
+
+### Partie 5
+§ <b>Rabbi Hiyya bar Abba est arrive</b> a venir <b>a Gavla. Il y vit des femmes juives</b> qui etaient fecondees par des gentils qui</b> etaient en voie de conversion et qui <b>etaient circoncis mais n'avaient pas</b> encore <b>impregnes</b> dans un bain rituel. <b>Il</b> a egalement <b>vu du vin que des Gentils diluaient</b> avec de l'eau <b>et des Juifs</b> buvaient ensuite <b>le vin</b>. <b>Il</b> a aussi <b>vu des lupins que les gentils cuisinaient et que les juifs mangeaient. Et</b> malgre qu'il ait vu tout cela, <b>il ne leur a rien dit</b> pour corriger leurs actions.
+
+### Partie 6
+Plus tard, <b>il se presenta devant Rabbi Yohanan</b> et lui raconta ce qu'il avait vu. Rabbi Yohanan <b>lui dit : Va et declare a propos de leurs enfants qu'ils</b> ont le statut d'<b>enfants nes d'une relation incestueuse ou adultere [<i>mamzerim</i>]. Et</b> decrete <b>en ce qui concerne leur vin</b> qu'il est interdit <b>comme</b> une extension de l'interdiction du <b>vin</b> utilise pour <b>une libation. Et en ce qui concerne leurs lupins</b>, il faut declarer qu'ils sont interdits <b>en raison</b> de l'interdiction des <b>aliments cuisines par les gentils, car ce ne sont pas des gens</b> tres au fait de la <b>Torah,</b> et toute indulgence serait mal comprise et appliquee de maniere trop extensive.
+
+### Partie 7
+La Guemara explique qu'en ce qui concerne le fait de declarer <b>a propos de leurs enfants qu'ils</b> ont le statut de <b>mamzerim</i>, Rabbi Yohanan</b> se conforme <b>a sa ligne standard de <b>raisonnement</b> concernant deux <i>halakhot</i>. Le premier est <b>comme le dit Rabbi Yohanan :</b> On <b>n'est jamais</b> considere comme <b>converti tant qu'il n'a pas ete circoncis et qu'il n'a pas ete immerge. Et puisque</b> le pere <b>n'a pas immerge, il est</b> toujours considere comme <b>un gentil. Et</b> la deuxieme <i>halakha</i> est comme <b>Rabba bar bar Hana dit</b> que <b>Rabbi Yohanan dit :</b> Dans le cas d'un <b>gentil ou</b> d'un <b>esclave cananeen qui s'est engage dans un rapport sexuel avec une femme juive, la progeniture est un <i>mamzer</i>.</b>
+
+### Partie 8
+La Guemara poursuit en expliquant la deuxieme instruction de Rabbi Yohanan a Rabbi Hiyya bar Abba : <b>Et decrete a l'egard de leur vin</b> qu'il est interdit <b>comme</b> une extension de l'interdiction du <b>vin</b> utilise pour <b>une libation. </b> Bien que le Gentil n'ait pas touche le vin lorsqu'il l'a dilue, il est interdit <b>en raison</b> de la maxime : <b>Allez, allez, disons-nous</b> a <b>un nazirite ; faites le tour</b> et <b>faites le tour,</b> mais <b>ne vous approchez pas de la vigne.</b>
+
+### Partie 9
+Enfin, Rabbi Yohanan a donne l'ordre a Rabbi Hiyya bar Abba de decreter <b>en ce qui concerne leurs lupins</b> qu'ils sont interdits <b>en raison</b> de l'interdiction des <b>aliments cuisines par les Gentils, car ce ne sont pas des personnes</b> versees dans la <b>Torah.</b> La Guemara demande : <b>La raison</b> pour laquelle les lupins sont reputes interdits est <b>parce que ce ne sont pas des gens</b> verses dans la <b>Torah ; mais</b> dans le cas de <b>gens</b> verses dans la <b>Torah,</b> on peut en deduire que les lupins <b>sont permis. Mais le Rav Shmuel bar Rav Yitzhak ne dit-il pas</b> que <b>Rav dit : Tout ce qui est consomme cru n'est pas soumis</b> a l'interdiction des <b>aliments cuisines par les gentils,</b> meme lorsqu'ils sont cuisines par eux ? Les lupins ne se mangent pas crus en raison de leur amertume, ils sont donc soumis a l'interdiction des aliments cuits par les Gentils.
+
+### Partie 10
+La Gemara repond : <b>Rabbi Yohanan tient conformement a cette</b> autre <b>version</b> de Rav Shmuel bar Rav Yitzhaks declaration, <b>comme Rav Shmuel bar Rav Yitzhak dit</b> que <b>Rav dit : Tout ce qui</b> manque d'importance et donc <b>ne figure pas sur la table des rois</b> pour <b>etre mange avec du pain n'est pas soumis</b> a l'interdiction des <b>aliments cuisines par des Gentils.</b> Les lupins ne sont pas suffisamment importants pour etre servis sur la table des rois, et donc ils sont permis meme s'ils sont cuisines par des Gentils. Par consequent, <b>la raison</b> d'interdire aux habitants de Gavla de les manger est <b>parce qu'ils ne sont pas des gens</b> bien informes de la <b>Torah. Mais</b> dans le cas de <b>personnes</b> versees dans la <b>Torah,</b> les lupins <b>sont autorises.</b>
+
+### Partie 11
+§ Les Sages <b>demandent a Rav Kahana :</b> En ce qui concerne <b>un Gentil, quelle est</b> la <i>halakha</i> concernant la question suivante : <b>Peut-il apporter des raisins au pressoir</b> sans rien leur faire d'autre ? Rav Kahana <b>leur a repondu :</b> C'est <b>interdit</b> par decret rabbinique <b>en raison</b> de la maxime : <b>Allez, allez, on dit</b> a <b>un nazirite ; faites le tour</b> et <b>faites le tour,</b> mais <b>ne vous approchez pas de la vigne. Rav Yeimar a souleve une objection a Rav Kahana</b> a partir d'une <i>baraita</i> : En ce qui concerne <b>un Gentil qui apportait des raisins au pressoir dans des paniers</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

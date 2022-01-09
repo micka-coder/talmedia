@@ -1,0 +1,72 @@
+
+### Part 1
+<b>so too,</b> an item with an item <b>worth money</b> must be <b>set,</b> i.e., it must have a clearly defined value.
+
+### Part 2
+<b>Rav Yosef said: From where do I say</b> this opinion? <b>As it is taught</b> in a <i>baraita</i> with regard to redeeming a Hebrew slave: “He shall give back the price of his redemption <b>out of the money that he was bought for”</b> (Leviticus 25:51), which indicates: <b>He is acquired</b> specifically <b>through money and he is not acquired through grain or vessels.</b>
+
+### Part 3
+Rav Yosef explains: <b>What are the circumstances</b> of <b>these grains and vessels? If we say that</b> a Hebrew slave <b>cannot be acquired through them at all,</b> as money alone may be used, <b>the Merciful One states: “He shall give back the price of his redemption,”</b> which serves <b>to include</b> all modes of repayment as valid equivalents of money, i.e., an item <b>worth money</b> is the same <b>as money.</b> There is no requirement to use money in particular; it is also possible to use items with monetary value.
+
+### Part 4
+<b>And if</b> you say <b>that they do not have the value of one <i>peruta</i>, why</b> mention <b>specifically grain and vessels? Even money</b> that is not worth one <i>peruta</i> cannot be used for acquiring a slave. <b>Rather, is it not</b> speaking here about a case <b>where</b> the grain and vessels <b>do have the value of one <i>peruta</i>, but since they lack a set</b> value, <b>no,</b> a Hebrew slave cannot be redeemed with them? The comparison with money teaches that a Hebrew slave can be redeemed only with an item that has a clearly defined value, like money.
+
+### Part 5
+<b>And the other</b> Sage, Rabba, who maintains that appraisal is not necessary, would respond: The <i>tanna</i> is referring to an item worth one <i>peruta</i>, but he is not teaching that one cannot redeem a slave with items whose value is not set. Rather, <b>this is what he is saying:</b> A Hebrew slave <b>is acquired through the mode of money, and he is not acquired through the mode of grain or vessels. And what is this</b> mode particular to the acquisition of grain and vessels? This is referring to symbolic <b>exchange.</b> A slave cannot be acquired through the mode of acquisition of symbolic exchange.
+
+### Part 6
+The Gemara notes: This explanation is valid only according to those who say that grain can be acquired through the mode of exchange; <b>but according to</b> the opinion of <b>Rav Naḥman, who said</b> that <b>produce cannot effect</b> symbolic <b>exchange,</b> as this mode of acquisition applies only to vessels, <b>what can be said?</b> Why does the <i>tanna</i> mention grain if grain cannot be used in symbolic exchange? <b>Rather,</b> the Gemara rejects this explanation in favor of the following: <b>Actually,</b> this is referring to a case where the grain and utensils <b>do not have the value of one <i>peruta</i>. And as for that which you said: Why</b> mention <b>specifically grain and vessels; even money</b> that is not worth one <i>peruta</i> cannot acquire <b>either,</b> one could say that the <i>tanna</i> <b>is speaking</b> utilizing the style of: <b>It is not necessary.</b>
+
+### Part 7
+The Gemara elaborates: <b>It is not necessary</b> to state with regard to <b>money that if it has the value of one <i>peruta</i>, yes,</b> one effects acquisition with it, and <b>if not,</b> then <b>no,</b> one cannot effect acquisition with it. <b>But</b> with regard to <b>grain and vessels,</b> one might <b>say that</b> as <b>their benefit is</b> readily <b>available,</b> i.e., one can enjoy them immediately in their current state, perhaps the slave <b>decides and transfers</b> ownership of <b>himself</b> to the master by even less than the worth of one <i>peruta</i>. Therefore, the <i>tanna</i> <b>teaches us</b> that an article less than the value of one <i>peruta</i> cannot effect acquisition notwithstanding the above reasoning.
+
+### Part 8
+<b>Rav Yosef said: From where do I say</b> that betrothal can be effected only with an item with a clearly defined value? <b>As it is taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Bekhorot</i> 6:4), that if one says to a priest: <b>This calf</b> should be <b>for the redemption of my</b> firstborn <b>son,</b> or: <b>This cloak</b> should be <b>for the redemption of my</b> firstborn <b>son,</b> then <b>he has said nothing.</b> But if he said: <b>This calf</b> worth the value <b>of five <i>sela</i></b> should be <b>for the redemption of my</b> firstborn <b>son,</b> or: <b>This cloak</b> worth the value <b>of five <i>sela</i></b> should be <b>for the redemption of my</b> firstborn <b>son,</b> then <b>his son is redeemed.</b>
+
+### Part 9
+The Gemara clarifies: <b>What are the circumstances</b> with regard to <b>this redemption</b> with a calf or a cloak that has no clearly defined value? <b>If we say that they are not worth</b> five <i>sela</i>, <b>is it in his</b> power to give a priest less than the established amount? Why would it even be considered that perhaps the son is redeemed? <b>Rather, is it not</b> referring to a case where <b>even though they are worth</b> this amount, one <b>may not</b> redeem with them in the case of the first clause <b>since their value is not set?</b> This shows that there is a difference between an item that has a set value and one that does not.
+
+### Part 10
+The Gemara rejects this suggestion: <b>No; actually,</b> this is referring to a case <b>where</b> the calf or cloak <b>is not worth</b> five <i>sela</i>, <b>and</b> the latter clause is referring to a case <b>where the priest accepted upon himself</b> to value the items as though they were worth this amount, which is why the son is redeemed. <b>This is like this</b> incident in <b>which Rav Kahana,</b> who was a priest, <b>took a cloth [<i>sudara</i>] from the house</b> of a man obligated to perform <b>the redemption of</b> his firstborn <b>son.</b> Rav Kahana <b>said to</b> the man: <b>For me, I view</b> this cloth as though it were worth <b>five <i>sela</i>.</b>
+
+### Part 11
+<b>Rav Ashi said: We said</b> that it is possible to redeem one’s son in this manner <b>only</b> when the priest is an individual <b>such as Rav Kahana, who is a great man and is required</b> to wear <b>a cloth on his head.</b> It was common practice for important people to wear a scarf on their heads. <b>But</b> with regard to <b>everyone</b> else, i.e., those who do not wear these cloths and cannot say it is worth that amount to them, <b>no,</b> they may not perform the redemption of the firstborn son in this manner. The Gemara cites a proof that a distinguished individual who needs a cloth will pay a large amount for one. <b>This is like this</b> incident in <b>which Mar bar Rav Ashi bought a cloth from Rabba’s mother from Kovei for thirteen</b> dinars, despite the fact that it was <b>worth ten,</b> because he needed a cloth.
+
+### Part 12
+§ <b>Rabbi Elazar says:</b> If a man said to a woman: <b>Be betrothed to me with one hundred dinars, and he gave her</b> one <b>dinar</b> out of the one hundred, <b>she is betrothed</b> immediately <b>and he must</b> subsequently <b>complete</b> the payment of the remainder of the amount he promised her. <b>What is the reason</b> for this? <b>Since he said to her:</b> Be betrothed to me with <b>one hundred dinars, and</b> yet <b>he gave her</b> only one <b>dinar, he is like one who said to her:</b> Be betrothed to me <b>on the condition</b> that I will give you one hundred dinars. In other words, he betroths her now with one dinar on the condition he will pay the remaining ninety-nine in the future. The betrothal therefore takes effect immediately, and he owes her the rest of the one hundred dinars.
+
+### Part 13
+The Gemara adds: <b>And</b> this is in accordance with the opinion that <b>Rav Huna says</b> that <b>Rav says:</b> With regard to <b>anyone who states</b> a provision employing the phrase: <b>On the condition, it is</b> tantamount to his <b>stipulating</b> that the agreement take effect retroactively <b>from now.</b> An agreement stipulated by means of the phrase: On the condition, takes effect immediately. This is not like an ordinary agreement, which takes effect only after the condition has been fulfilled.
+
+### Part 14
+The Gemara <b>raises an objection</b> from a <i>baraita</i> (<i>Tosefta</i> 2:10). If a man says to a woman: <b>Be betrothed to me with one hundred dinars, and</b> while <b>he was counting</b> the money, <b>one of them wanted to retract</b> the betrothal, <b>it is in the power</b> of either of them to do so <b>even when</b> only <b>the last</b> dinar remains to be given. This indicates that the betrothal does not take effect until the entire one hundred dinars has been paid.
+
+### Part 15
+The Gemara answers: <b>With what are we dealing here?</b> This is a case <b>where he says</b> to the woman: Be betrothed to me <b>with this one hundred dinars.</b> In this case the entire one hundred dinars, not just the first dinar, constitutes the betrothal money. The Gemara raises a difficulty with this answer: <b>From</b> the fact that <b>the latter clause</b> of the <i>baraita</i> uses the expression: <b>With this one hundred dinars,</b> it can be inferred that <b>the first clause</b> is dealing with <b>an unspecified one hundred dinars.</b>
+
+### Part 16
+<b>As it is taught in the latter clause</b> of that <i>baraita</i>, if <b>he said</b> to a woman: <b>Be betrothed to me with this one hundred dinars, and it was found to be one hundred dinars less a dinar, or</b> if it included <b>a dinar of copper</b> instead of silver, <b>she is not betrothed.</b> If one of the dinars was found to be <b>a flawed dinar,</b> i.e., it was a silver dinar but it was so worn that it would not be universally accepted, <b>she is betrothed, and he must exchange</b> that dinar for a different one. Since the latter clause of the <i>baraita</i> emphasizes the term: This one hundred dinars, evidently the first clause of the <i>baraita</i> must be referring to an unspecified one hundred dinars.
+
+### Part 17
+The Gemara rejects this opinion: <b>No;</b> one can say that the <b>first clause and the latter clause</b> are both referring to a case <b>where he said: With this one hundred dinars, and</b> the latter clause <b>is explaining</b> the first clause, as follows: If <b>one of them wishes to retract the</b> betrothal, <b>it is in the power</b> of either of them to do so <b>even when</b> only <b>the last</b> dinar remains to be given. <b>How so?</b> This is referring to a case <b>where he said to her: With this one hundred dinars.</b>
+
+### Part 18
+The Gemara comments: <b>And so too, it is reasonable</b> to explain the <i>baraita</i> this way, <b>as, if it enters your mind</b> that <b>the first clause</b> is referring <b>to an unspecified one hundred dinars,</b> consider the following: <b>Now</b> if <b>it is not a betrothal in</b> a case involving <b>an unspecified one hundred dinars,</b> and she can retract her agreement to the betrothal, <b>is</b> it <b>necessary</b> to say that she can retract it when he says: <b>With this one hundred dinars?</b> If that were the correct interpretation of the first clause, the ruling in the last clause would be unnecessary.
+
+### Part 19
+The Gemara rejects this proof: <b>If it is due to that</b> reason, <b>there is no</b> conclusive <b>argument,</b> i.e., the proof of the argument is inconclusive. The reason is that one could say that the <i>tanna</i> <b>taught the latter clause to reveal</b> the meaning of <b>the first clause.</b> The function of the latter clause is not to teach a novel <i>halakha</i>, but to preempt a mistaken reading of the first clause. The latter clause was stated so <b>that you should not</b> mistakenly <b>say that the first clause</b> is referring only to a situation when he said: <b>With this one hundred dinars, but in</b> a case of <b>an unspecified one hundred dinars, it</b> would be <b>a betrothal.</b> Therefore, the <i>tanna</i> <b>taught</b> in <b>the latter clause: With this one hundred dinars,</b> which teaches <b>by inference that the first clause</b> is referring <b>to an unspecified one hundred dinars, and even so it is not a betrothal.</b> Although this proof is rejected, the Gemara remains with its explanation that the first clause is referring to a case where he said to her: With this one hundred dinars.
+
+### Part 20
+<b>Rav Ashi said:</b> It is unnecessary to explain that the first clause of the <i>baraita</i> is referring to a case where he said: With this one hundred dinars, as a situation where he <b>was counting</b> the money <b>is different.</b> The reason is <b>that she has the entirety</b> of the one hundred dinars <b>in mind,</b> and therefore she will not be content with some of the money. His continuous action indicates that they both expect that he will give her the entire one hundred dinars, and consequently both parties can retract their agreement until he finishes counting.
+
+### Part 21
+The Gemara further analyzes the <i>baraita</i>: <b>What are the circumstances of this copper dinar</b> mentioned here? <b>If she knows that it</b> is a copper dinar, <b>she knew and accepted</b> this coin as a dinar. If so, she cannot later retract her betrothal. The Gemara answers: <b>No;</b> it is <b>necessary</b> in a case <b>where he gave her</b> this dinar <b>at night</b> and at the time she did not see that it was copper. <b>Alternatively, it was found among</b> the other <b>dinars,</b> and she did not notice that one of them one was copper.
+
+### Part 22
+The Gemara further asks: <b>What are the circumstances of this flawed dinar,</b> also mentioned in the <i>baraita</i>? <b>If it cannot be spent,</b> i.e., it cannot pass as a silver dinar, <b>this is</b> exactly like <b>a copper dinar,</b> as it too is not worth a full dinar. <b>Rav Pappa said:</b> This is referring to a case <b>where</b> the dinar <b>can be spent with difficulty,</b> i.e., it is difficult, but not impossible, to find someone who will accept it.
+
+### Part 23
+§ <b>Rava says</b> that <b>Rav Naḥman says:</b> If <b>one said to</b> a woman: <b>Be betrothed to me with one hundred dinars, and</b> instead of giving it to her <b>he gave her collateral for</b> the money, <b>she is not betrothed.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

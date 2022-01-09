@@ -1,0 +1,21 @@
+
+### Part 1
+The Gemara asks: <b>Why</b> are they liable as paid bailees? Isn’t <b>it</b> a case of <b>safeguarding accompanied by</b> employment of the <b>owner?</b> Since both partners are safeguarding each other’s property, they are both employed by each other, and they should therefore be exempt from the obligations of safeguarding. <b>Rav Pappa said:</b> Shmuel is referring to a case <b>where he says to</b> his partner: <b>Safeguard for me today, and I will safeguard for you tomorrow.</b> In this circumstance, they are each the sole bailee at any given moment, and they do not receive the exemption from bailee payments for being employed by the owner.
+
+### Part 2
+§ <b>The Sages taught:</b> If one <b>sold a house to</b> another, or if he <b>sold a field to him,</b> he <b>cannot testify about it for</b> the buyer against a claimant <b>because</b> the financial <b>responsibility</b> to compensate the buyer <b>for it</b> is <b>upon him,</b> and his testimony is biased. By contrast, if he <b>sold a cow to him,</b> or if he <b>sold a cloak to him,</b> he <b>can testify about it for</b> the buyer <b>because</b> the financial <b>responsibility</b> to compensate the buyer <b>for it</b> is <b>not upon him.</b> The Gemara asks: <b>What is different</b> in <b>the first clause</b> that he cannot testify <b>and what is different</b> in <b>the latter clause</b> that he can? Why would one assume that in the first case he does bear responsibility, but not in the second?
+
+### Part 3
+<b>Rav Sheshet said: The first clause</b> is stated <b>with regard to</b> the case of <b>Reuven, who robbed Shimon of a field and sold it to Levi, and</b> then <b>Yehuda comes and contests</b> Levi’s ownership, stating that it was actually his. The <i>baraita</i> teaches <b>that Shimon cannot go</b> to court <b>to testify for Levi, because</b> it is <b>preferable for</b> Shimon <b>that</b> the field be <b>returned</b> to Levi, so that he can later collect it from him.
+
+### Part 4
+The Gemara asks: <b>But once</b> he <b>testified that</b> the field <b>is Levi’s, how is he able to</b> later <b>remove it from his</b> possession? The Gemara answers: This is referring to a case <b>where</b> Shimon <b>says</b> in his testimony: <b>I know that this land is not Yehuda’s,</b> but he did not explicitly testify that it belonged to Levi. He is therefore able to later claim it is his and not Levi’s. The Gemara asks: <b>But</b> why should he testify that it does not belong to Yehuda? <b>With that</b> same <b>right</b> by which he <b>removes</b> the land <b>from</b> the possession of <b>Levi, let him remove it from</b> the possession of <b>Yehuda.</b> It is not to his advantage to lie in order to establish it in the possession of Levi, and his testimony should not be considered biased.
+
+### Part 5
+The Gemara answers: <b>Because</b> Shimon <b>says</b> to himself: <b>The second</b> person <b>is amenable to me,</b> while <b>the first</b> is <b>more difficult than he</b> is, i.e., I prefer to litigate with Levi rather than with Yehuda.
+
+### Part 6
+<b>And if you wish, say</b> instead: It is referring to a case <b>where</b> this <b>Master,</b> Shimon, <b>has witnesses</b> attesting to his ownership, <b>and</b> that <b>Master,</b> Yehuda, also <b>has witnesses</b> attesting to his ownership, <b>and the Sages said</b> that under such circumstances <b>the land should remain where it is.</b> That is to say, it should remain with the one currently in possession. If Yehuda were to be awarded the land, Shimon would not be able to remove the land from his possession despite having witnesses to support his claim, as Yehuda also has witnesses supporting his claim and would be in possession of the land. As a result of Shimon’s testimony, the land will be awarded to Levi, who has possession as a result of his purchase from Reuven. Then Shimon will be able to remove the land from Levi’s possession by proving that Reuven stole it from him. Therefore, Shimon’s testimony is biased.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

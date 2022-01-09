@@ -1,0 +1,48 @@
+
+### Part 1
+The Gemara discusses the basis for Rav’s explanation. <b>Know</b> that the mishna is referring to claims of monetary value, <b>as it teaches</b> in <b>the latter clause</b> that if the claimant said: <b>I have a gold dinar in your possession,</b> and the defendant responded: <b>You have only a silver dinar, or a <i>tereisit</i>, or a <i>pundeyon</i>, or a <i>peruta</i> in my possession,</b> he is <b>liable</b> to take an oath, <b>as they are all</b> of <b>one type;</b> they are all <b>coins. Granted, if you say</b> that the claim was for the <b>value</b> of a gold dinar, it is <b>due to that</b> reason that he is <b>liable</b> to take an oath, as he admitted to a part of the claim. <b>But if you say</b> that the claim was <b>specifically</b> for a dinar of gold, <b>why</b> is he <b>liable?</b> The claim was for gold, and he admitted to owing silver or copper.
+
+### Part 2
+The Gemara rejects this proof: <b>Rabbi Elazar says:</b> This mishna is referring <b>to</b> a case <b>where</b> one <b>claimed</b> that the defendant owes <b>him a dinar of coins,</b> i.e., coins worth a dinar. The claim was for specific coins, and not a monetary value. Since the claim concerned coins and not a specific weight of metal, and all coins are used for commercial transactions, all types of coins are considered of the same type. <b>And</b> it <b>teaches us that a <i>peruta</i> is included in</b> the category of <b>a coin.</b> According to this explanation, the language of the mishna <b>is also precise, as it teaches:</b> The defendant is liable to take an oath, <b>as</b> they are <b>all</b> of <b>one type [<i>min</i>];</b> they are all <b>coins.</b> In other words, even a <i>peruta</i> is a type of coin.
+
+### Part 3
+The Gemara asks: <b>And</b> how would <b>Rav,</b> who holds that the claim in this case was for the value of a dinar, explain the fact that the mishna states: As they are all of one type; they are all coins? Why does it matter that they are all of one type? The Gemara answers that according to Rav, the reason the defendant is liable to take an oath is that <b>because</b> the claim is for the value of a dinar, <b>all</b> descriptions of monetary value based on different coins have <b>one</b> status under <b><i>halakha</i> [<i>din</i>];</b> they are all <b>coins,</b> and it is of no significance that they are made of different materials.
+
+### Part 4
+The Gemara asks: <b>And</b> concerning the opinion of <b>Rabbi Elazar, shall we say</b> that <b>since he explains the latter clause</b> in the mishna as referring to a specific item and not a value, <b>in accordance with</b> the opinion of <b>Shmuel,</b> then <b>also</b> with regard to <b>the former clause,</b> that states the claim must be for two silver <i>ma’a</i>, <b>he</b> apparently <b>holds in accordance with</b> the opinion of <b>Shmuel,</b> i.e., that it is referring to two actual <i>ma’a</i>, and not the value of two <i>ma’a</i>?
+
+### Part 5
+The Gemara rejects this suggestion: <b>No,</b> Rabbi Elazar explains that <b>the latter clause</b> of the mishna is referring <b>specifically</b> to actual items in accordance with the opinion of Shmuel, <b>as it teaches</b> explicitly: <b>As</b> they are <b>all</b> of <b>one type;</b> they are all <b>coins. But the former clause</b> can be interpreted either <b>in accordance with</b> the opinion of <b>Rav or in accordance with</b> the opinion of <b>Shmuel.</b>
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof that a claim for a coin is referring to its value: It is taught in a <i>baraita</i> that if the claimant said: <b>I have a coined gold dinar in your possession,</b> and the defendant responded: <b>You have only a silver dinar in my possession,</b> he is <b>liable</b> to take an oath, as the claim and the admission are both referring to a coin. The Gemara infers: <b>The reason</b> this claim is referring specifically to a coin is <b>that</b> the claimant <b>says to him:</b> You owe me <b>a coined gold</b> dinar; <b>but</b> if the claim was for <b>an unspecified</b> gold dinar, i.e., without specifying that it was coined, the claimant <b>is saying to him</b> that he owes him an item with the <b>value</b> of a dinar, not necessarily a coin, in accordance with the opinion of Rav.
+
+### Part 7
+<b>Rav Ashi said</b> in response that according to the opinion of Shmuel, <b>this</b> is what the <i>baraita</i> <b>is saying: Anyone who says: A gold dinar, is</b> considered <b>like one who says: A coined gold dinar;</b> i.e., he is referring to the coin and not to its value.
+
+### Part 8
+<b>Rabbi Ḥiyya teaches</b> a <i>baraita</i> <b>in support of</b> the opinion of <b>Rav:</b> If the claimant said: <b>I have a <i>sela</i> in your possession,</b> and the defendant responded: <b>You have only a <i>sela</i> minus two silver</b> <i>ma’a</i> <b>in my possession,</b> he is <b>liable</b> to take an oath. If the defendant responded: I owe you only a <i>sela</i> <b>minus one</b> silver <b><i>ma’a</i>,</b> he is <b>exempt.</b> Clearly, the reason is that he denied less than two <i>ma’a</i> of the claim, in accordance with the opinion of Rav.
+
+### Part 9
+§ <b>Rav Naḥman bar Yitzḥak says</b> that <b>Shmuel says:</b> The requirement that the claim be at least the value of two silver <i>ma’a</i> to render the defendant liable to take an oath was <b>taught only with regard to</b> a case where the oath is due to the <b>claim of</b> the <b>creditor and</b> the partial <b>admission of</b> the <b>debtor. But</b> in a case where the defendant’s liability to take an oath is due to the <b>claim of</b> the <b>creditor and</b> the <b>testimony of one witness</b> in support of the claim, <b>even</b> if the claimant <b>claimed from him only one <i>peruta</i>,</b> the defendant is <b>liable</b> to take an oath.
+
+### Part 10
+<b>What is the reason</b> for this distinction? <b>As it is written: “One witness shall not rise up against a man for any iniquity, or for any sin”</b> (Deuteronomy 19:15). It is inferred from here that <b>it is for any iniquity or for any sin that he may not rise up,</b> as the testimony of one witness is not enough for this purpose, <b>but he may rise up to</b> render one liable to take <b>an oath. And it is taught</b> in a <i>baraita</i>: In <b>any place where two</b> witnesses <b>render</b> a defendant <b>liable</b> to pay <b>money,</b> the testimony of <b>one witness renders him liable</b> to take <b>an oath.</b> Therefore, since two witnesses render the defendant liable to pay if the claim is worth at least one <i>peruta</i>, so too, one witness renders him liable to take an oath with regard to a claim of this value.
+
+### Part 11
+§ <b>And Rav Naḥman says</b> that <b>Shmuel says:</b> If one <b>claimed</b> that another owed <b>him wheat and barley, and</b> the defendant <b>admitted to</b> owing <b>him one of</b> these types, he is <b>liable</b> to take an oath, as he admitted to part of a claim.
+
+### Part 12
+<b>Rabbi Yitzḥak said to him:</b> You have spoken <b>well, and so</b> also <b>said Rabbi Yoḥanan.</b> The Gemara asks: <b>By inference,</b> does this mean <b>that Reish Lakish disagrees with</b> Rabbi Yoḥanan with regard to this matter, since Rabbi Yitzḥak mentioned that Rabbi Yoḥanan agreed, and did not reference Reish Lakish, who often engages in disputes with Rabbi Yoḥanan? The Gemara answers: There is no record of Reish Lakish expressing his opinion at that time. <b>There are</b> those <b>who say</b> that this is because <b>he was tarrying and remaining silent,</b> waiting for Rabbi Yoḥanan to finish his statement, and Rabbi Yitzḥak did not find out whether or not he subsequently disagreed with him, and <b>there are</b> those <b>who say</b> that Reish Lakish <b>was drinking</b> at the time, <b>and he</b> therefore <b>remained silent</b> and did not respond to Rabbi Yoḥanan’s statement.
+
+### Part 13
+<b>Let us say</b> that the wording of the mishna <b>supports</b> Shmuel’s opinion: If one <b>claimed</b> that another owes <b>him wheat, and</b> the defendant <b>admitted to</b> owing <b>him barley,</b> he is <b>exempt; and Rabban Gamliel deems</b> him <b>liable</b> to take an oath. The Gemara infers: <b>The reason</b> he is exempt according to the first <i>tanna</i> <b>is that he claimed</b> that he owes <b>him wheat and</b> the defendant <b>admitted to</b> owing <b>him barley; but</b> if the claim was for both <b>wheat and barley, and</b> the defendant <b>admitted to</b> owing <b>him one of them,</b> it can be inferred he is <b>liable</b> to take an oath.
+
+### Part 14
+The Gemara rejects this proof: <b>No,</b> it is possible that <b>the same is true,</b> i.e., <b>that even</b> if the claim was for both <b>wheat and barley</b> the defendant is <b>exempt. And</b> the fact <b>that</b> the mishna states <b>that</b> the first <i>tanna</i> and Rabban Gamliel <b>disagree with regard to</b> a case where the claim was specifically for <b>wheat</b> and the defendant admitted to owing him barley is in order <b>to convey to you the far-reaching nature of</b> the opinion of <b>Rabban Gamliel,</b> that the defendant is liable to take an oath even if his admission is not at all of the same type as the claim.
+
+### Part 15
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof from the mishna: If one <b>claimed</b> that another owes <b>him vessels and land,</b> and the defendant <b>admitted to</b> owing him <b>vessels but denied</b> the claim of <b>land,</b> or conversely, if he admitted <b>to</b> owing him <b>land but denied</b> the claim of <b>vessels,</b> he is <b>exempt</b> from taking an oath.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

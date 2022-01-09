@@ -1,0 +1,63 @@
+
+### Part 1
+<b>There were ten holes in it</b> and <b>each and every one</b> would <b>emit ten types of tone. It</b> therefore <b>emerges</b> that the <b>entire</b> instrument <b>emitted one hundred types of tone. It was taught in a <i>baraita</i>:</b> The <i>magreifa</i> was <b>one cubit</b> wide <b>and one cubit tall, and a handle protruded from it.</b> It was hollow <b>and there were ten holes in it</b> and <b>each one</b> would <b>produce one hundred types of tone. It</b> therefore <b>emerges</b> that that the <b>entire</b> instrument <b>emitted one thousand types of tone. Rav Naḥman bar Yitzḥak said: And your mnemonic</b> to remember which of these two statements was said by Shmuel and which was taught in a <i>baraita</i> is that the <b><i>baraita</i></b> expresses itself with <b>exaggeration,</b> as it is common for <i>baraitot</i> to exaggerate numbers.
+
+### Part 2
+§ The mishna teaches that the Temple musicians <b>were slaves of priests</b> according to Rabbi Meir, whereas according to Rabbi Yosei they were Israelites of pure lineage, and according to Rabbi Ḥanina ben Antigonus they were Levites. The Gemara suggests: <b>Let us say</b> that <b>they disagree about this; that the one who says they were slaves holds</b> that the <b>primary component</b> of <b>song</b> in the Temple service is singing <b>with the mouth, and</b> the <b>instrumental</b> music <b>was performed</b> merely <b>to sweeten the sound</b> of the singing. Since the instrumental music is mere accompaniment, it could be performed by slaves. <b>And the one who says that</b> the musicians <b>were Levites holds</b> that the <b>primary component</b> of <b>song</b> in the Temple service is the music played <b>with instruments.</b> Therefore, the musicians had to be Levites, who were tasked with the song that was part of the Temple service.
+
+### Part 3
+The Gemara responds: <b>And can you understand</b> the disagreement in this manner? According to this suggestion, <b>what does Rabbi Yosei,</b> who says that the musicians were Israelites of pure lineage, <b>hold? If he holds</b> that the <b>primary component</b> of <b>song</b> in the Temple service is singing <b>with the mouth,</b> then it should be <b>sufficient</b> if <b>slaves</b> play the instruments. Why would he require Israelites of pure lineage? And <b>if he holds</b> that the <b>primary component</b> of <b>song</b> in the Temple service is the music played <b>with instruments, we</b> should <b>require Levites</b> to play the instruments.
+
+### Part 4
+The Gemara responds: <b>Actually,</b> Rabbi Yosei <b>holds</b> that the <b>primary component</b> of <b>song</b> in the Temple service is singing <b>with the mouth. And here,</b> the <i>tanna’im</i> <b>disagree about</b> whether the musicians in the Temple may be <b>elevated from the</b> musical <b>platform to</b> the presumptive status of pure <b>lineage</b> with regard to marriage <b>and</b> eligibility <b>to</b> receive Levitical <b>tithes.</b>
+
+### Part 5
+<b>The one who says</b> that the musicians <b>were slaves holds</b> that people <b>cannot be elevated from the</b> Temple musical <b>platform to</b> the presumptive status of pure <b>lineage</b> with regard to marriage <b>and</b> eligibility <b>to</b> receive <b>tithes. The one who says that</b> the musicians <b>were Levites holds</b> that <b>one elevates from the platform both to</b> the presumptive status of pure <b>lineage and</b> eligibility <b>to</b> receive <b>tithes. And according to the one who says</b> that the musicians <b>were Israelites,</b> he <b>holds</b> that <b>one elevates from the platform to</b> the presumptive status of pure <b>lineage but not</b> with regard to the eligibility <b>to</b> receive <b>tithes.</b>
+
+### Part 6
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>The song</b> that the Levites sing while a communal offering is being sacrificed <b>is an indispensable</b> component of <b>the offering,</b> which means that if the Levites did not sing, the offering is invalid. This is <b>the statement of Rabbi Meir. And the Rabbis say: It is not indispensable.</b>
+
+### Part 7
+The Gemara asks: <b>What is the reasoning of Rabbi Meir,</b> i.e., from where does he derive his opinion? The Gemara answers: It is <b>as the verse states: “And I have given the Levites, they are given to Aaron and to his sons from among the children of Israel,</b> to do the service of the children of Israel in the Tent of Meeting, <b>and to make atonement for the children of Israel”</b> (Numbers 8:19). The verse compares the atonement for the Jewish people, which is caused by the sprinkling of the blood of offerings on the altar, to the service of the Levites, which is their singing. This teaches that <b>just as the atonement</b> caused by the sprinkling of the blood <b>is an indispensable</b> component of the offering, <b>so too</b> the <b>song</b> of the Levites <b>is indispensable.</b>
+
+### Part 8
+The Gemara asks: <b>And</b> what do <b>the Rabbis</b> derive from the comparison in this verse? The Gemara answers: <b>That</b> comparison serves <b>to</b> teach <b>another</b> <i>halakha</i>, which was stated <b>by Rabbi Elazar, as Rabbi Elazar says: Just as</b> the <b>atonement</b> achieved by the sprinkling of the blood must take place <b>during the day, so too</b> the <b>song</b> must be sung <b>during the day.</b>
+
+### Part 9
+<b>Rav Yehuda said</b> that <b>Shmuel said: From where</b> is it derived that the <b>basic</b> requirement to accompany communal offerings with <b>song</b> applies <b>by Torah law? As it is stated</b> with regard to a Levite who serves in the Temple: <b>“Then he shall serve with the name of the Lord his God”</b> (Deuteronomy 18:7). <b>What is</b> this <b>service</b> that is performed <b>with the name</b> of God? <b>You must say</b> that <b>this is</b> the <b>song,</b> in which the Levites mention and praise the name of God.
+
+### Part 10
+The Gemara objects: <b>But</b> you can <b>say</b> that this service with the name of God is referring to the <b>lifting of the hands</b> for the Priestly Benediction, which also includes the mention of the name of God. If so, the verse is referring to priests, not ordinary Levites. The Gemara responds: <b>From the fact that it is written:</b> “At that time the Lord separated the tribe of Levi…<b>to serve Him, and to bless in His name”</b> (Deuteronomy 10:8), it can be derived <b>by inference that the Priestly Benediction is not</b> considered <b>service,</b> as the verse mentions service and the Priestly Benediction as distinct rituals.
+
+### Part 11
+<b>Rav Mattana said</b> that the source for the requirement to accompany the Temple offerings with song is derived <b>from here: “Because you did not serve the Lord your God with joyfulness, and with goodness of heart”</b> (Deuteronomy 28:47). <b>What is</b> this <b>service</b> of God <b>that is</b> performed <b>with joyfulness and with goodness of heart? You must say</b> that <b>this is song.</b> The Gemara objects: <b>But</b> you can <b>say</b> that this service is studying the <b>words of Torah, as it is written: “The precepts of the Lord are upright, rejoicing the heart”</b> (Psalms 19:9). The Gemara explains: Torah <b>is</b> indeed <b>called</b> a matter that <b>rejoices the heart,</b> but <b>it is not called “goodness.”</b>
+
+### Part 12
+The Gemara objects: <b>But</b> you can <b>say</b> that the joyful service of God referred to above is the bringing of the <b>first fruits, as it is written</b> in that context: <b>“And you shall rejoice in all the goodness</b> that the Lord your God has given you” (Deuteronomy 26:11). The Gemara answers: Bringing the first fruits <b>is</b> indeed <b>called goodness,</b> but <b>it is not called</b> something that involves <b>goodness of heart.</b>
+
+### Part 13
+The Gemara discusses a related matter. <b>Rav Mattana says: From where</b> is it derived <b>that</b> bringing the <b>first fruits</b> to the Temple <b>requires</b> the accompaniment of <b>song?</b> The Gemara answers: It is <b>derived from here,</b> i.e., from the requirement to accompany communal offerings with song, by means of a verbal analogy of the word <b>goodness</b> in the verse “And with goodness of heart” and the word <b>goodness</b> in the verse “You shall rejoice in all the goodness.”
+
+### Part 14
+The Gemara asks: <b>Is that so? But doesn’t Rabbi Shmuel bar Naḥmani say</b> that <b>Rabbi Yonatan said: From where</b> is it derived that <b>songs</b> of praise in the Temple <b>are recited only over</b> the <b>wine</b> libation accompanying the sacrifice? <b>As it is stated: “And the vine replied: Should I leave my wine, which gladdens God and man,</b> and go and wave above the trees” (Judges 9:13). <b>If</b> it is clear that wine <b>gladdens people, in what</b> way <b>does it gladden God?</b> Rather, derive <b>from here that songs</b> of praise in the Temple <b>are recited only over</b> the <b>wine</b> of libation, and it is this song that gladdens God. This is difficult, as since there is no wine libation associated with the bringing of first fruits, how can it be accompanied by song?
+
+### Part 15
+The Gemara answers: <b>You can find</b> cases where the first fruits are brought in the form of wine, <b>as Rabbi Yosei teaches:</b> The verse states with regard to the first fruits: “You shall take of the first of all the fruit of the ground, which you shall bring in from your land” (Deuteronomy 26:2). Since the verse mentions “fruit,” <b>you</b> must <b>bring</b> the actual <b>fruit</b> as your first fruits offering, <b>and you may not bring</b> it in the form of <b>beverages.</b> If one <b>brought grapes and</b> he had already <b>pressed them</b> into wine, <b>from where</b> is it derived that he has fulfilled his obligation of offering his first fruits? <b>The verse states: “You shall bring in</b> from your land.” This apparently superfluous phrase comes to teach that if one brings wine for the mitzva of first fruits, he has fulfilled his obligation.
+
+### Part 16
+The Gemara presents another source for the requirement that the song of the Levites must accompany the sacrificial service in the Temple. <b>Ḥizkiyya says</b> that this obligation is derived <b>from here: “And Chenaniah, chief of the Levites…he was master of lifting, because he was skillful”</b> (I Chronicles 15:22). <b>Do not read</b> it as <b>“he was master [<i>yasor</i>]</b> of lifting,” <b>but</b> as: <b>He shall sing [<i>yashir</i>]</b> with the lifting of his voice.
+
+### Part 17
+The Sage named <b>Balvatei</b> said that <b>Rabbi Yoḥanan said</b> that the requirement for the Levites to accompany the Temple offerings with song is derived <b>from here:</b> The verse states with regard to the Levites: “Every one that entered in <b>to do the work of service”</b> (Numbers 4:47). <b>What is work that must</b> be performed in conjunction with another <b>service? You must say</b> that <b>this is song.</b>
+
+### Part 18
+<b>Rabbi Yitzḥak says</b> that the requirement to accompany the Temple offerings with song is derived <b>from here:</b> “Sing aloud to God…<b>Take up the melody, and sound the timbrel, the sweet harp with the lyre”</b> (Psalms 81:2–3). <b>Rav Naḥman bar Yitzḥak said</b> that the obligation is derived <b>from here: “Those yonder lift up their voice, they sing for joy; for the majesty of the Lord they shout from the sea”</b> (Isaiah 24:14).
+
+### Part 19
+<b>And a <i>tanna</i> cites</b> a derivation for the requirement for the Levites to accompany the Temple offerings with song <b>from here: “But unto the sons of Kohath he gave none, because the service of the holy things belonged to them: They bore them [<i>yisa’u</i>] upon their shoulders”</b> (Numbers 7:9). <b>By inference from that</b> which <b>is stated, “upon their shoulders,” don’t I know that they bore them? Why</b> must <b>the verse state “<i>yisa’u</i></b>”<b>?</b> The term “<b><i>yisa’u</i></b>” <b>is not</b> stated here in its meaning of “they bore them,” but <b>rather</b> as <b>an expression</b> of <b>song. And similarly,</b> the verse <b>states: “Take up [<i>se’u</i>] the melody, and sound the timbrel,” and</b> another verse <b>states: “They lift up [<i>yisu</i>] their voice, they sing for joy.”</b>
+
+### Part 20
+<b>Ḥananya, son of Rabbi Yehoshua’s brother, says</b> that the requirement for the Levites to sing in the Temple is derived <b>from here: “Moses spoke, and God answered him with a voice”</b> (Exodus 19:19).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

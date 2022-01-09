@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Granted, with regard to the <i>tanna</i> of our</b> mishna, one can say <b>that</b> the cases of <i>tereifot</i> that <b>he taught</b> explicitly in the mishna, <b>he taught, and</b> that any case <b>that</b> he <b>omitted comes</b> under the general statement beginning: <b>This is the principle. But with regard to the <i>tanna</i> of the school of Rabbi Yishmael,</b> who <b>said: Eighteen <i>tereifot</i>,</b> one must ask: <b>And are there no more</b> cases of <i>tereifot</i>? <b>But aren’t there</b> the four cases represented by the mnemonic <i>beit</i>, <i>samekh</i>, <i>gimmel</i>, <i>reish</i>, the first of which is taught in a mishna (76a): <b>An animal whose hind legs were severed from the leg joint and above</b> is <b>a <i>tereifa</i>?</b> The Gemara responds: The <i>tanna</i> of the school of Rabbi Yishmael <b>holds in accordance with</b> the opinion of <b>Rabbi Shimon ben Elazar, who says:</b> The severed leg <b>can be cauterized and</b> the animal will <b>live.</b> Therefore, such a wound does not render the animal a <i>tereifa</i>.
+
+### Part 2
+The Gemara objects: But <b>even</b> if one holds <b>that</b> the severed leg <b>can be cauterized and</b> the animal will <b>live,</b> this does not mean that the animal is not a <i>tereifa</i>. <b>According to whom is</b> the question: But aren’t there the cases of <i>beit</i>, <i>samekh</i>, <i>gimmel</i>, <i>reish</i>, <b>stated?</b> It is stated <b>according to</b> the <b><i>tanna</i> of the school of Rabbi Yishmael,</b> who holds that there are only eighteen <i>tereifot</i>. But <b>the <i>tanna</i> of the school of Rabbi Yishmael maintains</b> that <b>a <i>tereifa</i> can live.</b> If so, the fact that the animal can live if the stump of its severed limb is cauterized is immaterial to whether it is a <i>tereifa</i>. <b>Rather,</b> say that the <i>tanna</i> <b>holds in accordance with</b> the opinion of <b>Rabbi Shimon ben Elazar</b> insofar <b>as he says</b> that an animal with a severed leg <b>is kosher.</b> Yet, he disagrees with the claim that the reason is because the animal can survive.
+
+### Part 3
+The Gemara objects: <b>But isn’t there</b> the case of <b>a deficiency in the spine? As we learned</b> in a mishna (<i>Oholot</i> 2:3): <b>How much</b> is considered <b>a deficiency in the spine</b> of a corpse so that it will not be considered a full corpse to impart impurity in a tent? <b>Beit Shammai say: Two</b> missing <b>vertebrae, and Beit Hillel say: One vertebra. And Rav Yehuda says</b> that <b>Shmuel says:</b> Just as Beit Shammai and Beit Hillel disagree with regard to ritual impurity, <b>so too</b> they disagree <b>with regard to a <i>tereifa</i>,</b> i.e., according to Beit Hillel an animal missing only one vertebra is a <i>tereifa</i>. This is not included in the count of Rabbi Yishmael.
+
+### Part 4
+The Gemara responds: The <b>omasum or the reticulum</b> that were perforated on their outer walls, <b>which you count as two</b> separate cases, <b>should be counted as one</b> case. Accordingly, <b>one</b> case has been <b>removed</b> from the count of eighteen <i>tereifot</i> <b>and one</b> case has been <b>inserted,</b> i.e., the case of a deficiency in the spine, and there are still only eighteen cases.
+
+### Part 5
+The Gemara asks: <b>But isn’t there</b> the case of the <i>tereifa</i> mentioned in the mishna on 54a of an animal <b>whose hide was removed?</b> The Gemara responds: The <i>tanna</i> of the school of Rabbi Yishmael <b>holds in accordance with</b> the opinion of <b>Rabbi Meir, who deems</b> such an animal <b>kosher.</b>
+
+### Part 6
+The Gemara asks: <b>But isn’t there</b> also the case of an animal that is a <i>tereifa</i> because of <b>a shriveled</b> lung? The Gemara responds: The mishna states that a perforated <b>gallbladder</b> renders the animal a <i>tereifa</i>; but <b>who teaches this? Rabbi Yosei, son of Rabbi Yehuda,</b> teaches this. Therefore, the <i>tanna</i> <b>removed</b> the <b>gallbladder</b> from the list, since it is only the opinion of an individual, <b>and inserted a shriveled</b> lung.
+
+### Part 7
+The Gemara asks: <b>But aren’t there</b> the <b>seven</b> additional <b><i>halakhot</i>,</b> i.e., cases of <i>tereifot</i>, taught by <i>amora’im</i>? The Gemara enumerates the seven <i>halakhot</i>: <b>As Rav Mattana says: This head of the femur that was</b> completely <b>dislocated</b> renders the animal <b>a <i>tereifa</i>. And Rakhish bar Pappa says in the name of Rav:</b> If the animal <b>was diseased</b> even <b>in one kidney,</b> it is <b>a <i>tereifa</i>. And we learned</b> in a mishna (54a) that if <b>the spleen was removed</b> the animal is <b>kosher, and</b> with regard to this mishna, <b>Rav Avira says in the name of Rava: They taught</b> this <b>only</b> when the spleen was <b>removed; but</b> if it was <b>perforated,</b> the animal is <b>a <i>tereifa</i>.</b>
+
+### Part 8
+The Gemara continues: <b>And Rabba bar bar Ḥana says</b> that <b>Shmuel says:</b> If the <b>two organs that must be severed in ritual slaughter [<i>simanim</i>],</b> i.e., the windpipe and the gullet, <b>were mostly detached,</b> the animal is <b>a <i>tereifa</i>. And Rabba bar Rav Sheila says</b> that <b>Rav Mattana says</b> that <b>Shmuel says:</b> If <b>a rib was torn out from its root,</b> along with half of the attached vertebra, the animal is <b>a <i>tereifa</i>; and a skull that was mostly crushed,</b> even if the membranes are intact, renders the animal a <i>tereifa</i>; <b>and</b> if <b>a majority of</b> the <b>flesh that envelops the majority of the rumen</b> was torn, the animal is <b>a <i>tereifa</i></b>.
+
+### Part 9
+The Gemara responds: <b>There are eight</b> cases of <b>perforated</b> organs mentioned in the mishna that render an animal a <i>tereifa</i>. The <i>tanna</i> of the school of Rabbi Yishmael <b>counts them</b> all <b>as one</b> case. Accordingly, <b>he removed seven</b> cases from the count of eighteen <b>and inserted</b> these <b>seven</b> <i>halakhot</i>.
+
+### Part 10
+The Gemara challenges: <b>If so,</b> since <b>there are also two</b> cases of <b>cut</b> organs in the mishna, the spinal cord and the windpipe, let the <i>tanna</i> <b>count them as one.</b> The count of <i>tereifot</i> then falls <b>one short</b> of eighteen. <b>And furthermore,</b> if all the cases of perforated organs are counted as one, then one cannot insert the case taught by <b>Rav Avira in the name of Rava,</b> i.e., that of a perforated spleen, since it <b>is also</b> a case of <b>a perforated</b> organ. If so, the count falls two short of eighteen.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

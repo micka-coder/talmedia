@@ -1,0 +1,45 @@
+
+### Partie 1
+l'abatteur <b>serait-il passible</b> de recevoir des coups de fouet ?
+
+### Partie 2
+<b>Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b> On <b>pourrait</b> avoir pense qu'en ce qui concerne <b>une offrande pour le peche que l'on egorge dans le sud, il serait responsable</b> de celle-ci. Par consequent, <b>le verset dit : "Tu ne sacrifieras pas au Seigneur ton Dieu un bœuf ou un mouton,</b> qui a un defaut, meme <b>une chose mauvaise"</b> (Deuteronome 17:1), pour enseigner que <b>pour</b> l'abattage d'une <b>chose mauvaise,</b> telle qu'une offrande tachee, <b>vous le jugez responsable</b> de recevoir des coups de fouet, <b>mais vous ne le jugez pas responsable d'une offrande de peche qu'il a abattue dans le sud. </b> La Gemara repond : Ici aussi, il y a <b>deux <i>tannaim</i>,</b> et ils ne sont pas d'accord <b>en ce qui concerne</b> l'avis <b>de Rabbi Yehuda.</b>
+
+### Partie 3
+§ <b>Rabbi Abba dit :</b> Bien que Rabbi Yehuda dise qu'une offrande est rendue non valide si elle a ete abattue avec l'intention de laisser son sang jusqu'au lendemain, <b>Rabbi Yehuda concede que</b> si le pretre a ensuite recueilli, transporte ou presente le sang avec l'intention de sacrifier ou de prendre part a l'offrande au-dela du temps prevu, <b>il etablit alors</b> l'offrande <b>comme <i>piggul</i>. </b> L'intention de la laisser pendant la nuit ne l'empeche pas d'etre rendue <i>piggul</i>, contrairement a l'intention de la sacrifier ou d'y prendre part en dehors de sa zone designee, ou d'accomplir un rite sacrificiel de l'offrande pascale ou d'une offrande pour le peche non pour elle-meme, qui empechent l'offrande d'etre ensuite rendue <i>piggul</i> (voir 29b).
+
+### Partie 4
+<b>Rava dit : Sachez</b> qu'il en est ainsi, <b>car</b> l'intention d'asperger le sang le lendemain, qui rend une offrande <b><i>piggul</i></b> et qui inclut intrinsequement l'intention de laisser le sang jusqu'au lendemain pour qu'il puisse ensuite l'asperger, <b>n'est rien avant</b> l'<b>aspersion</b> du sang. Et son intention pendant l'abattage d'asperger le sang le lendemain ne rend pas l'offrande <i>piggul</i> jusqu'a ce que le sang soit asperge, <b>et</b> alors l'<b>aspersion</b> du sang <b>arrive et etablit</b> l'offrande <b>comme <i>piggul</i>.</b> En clair, l'intention de laisser le sang jusqu'au lendemain n'empeche pas l'offrande d'etre ulterieurement rendue <i>piggul</i>.
+
+### Partie 5
+La Guemara rejette la preuve de Rava : <b>Mais il n'en est rien</b> c'est une preuve valable, car <b>la,</b> en ce qui concerne l'intention standard <i>piggul</i>, <b>c'est une intention</b> qui est etablie avec l'aspersion du sang. En revanche, <b>ici,</b> ou il avait initialement l'intention de laisser le sang jusqu'au lendemain et avait ensuite l'intention de l'asperger au-dela du temps prevu, il y a <b>deux</b> <b>intentions distinctes.</b> Par consequent, puisqu'une intention impropre existe deja, l'offrande ne peut par la suite etre rendue <i>piggul</i>.
+
+### Partie 6
+<b>Rav Huna souleve une objection a Rabbi Abba</b> a partir d'une <i>baraita</i> : Si quelqu'un a egorge une offrande avec l'intention de <b>placer</b> le sang <b>qui doit etre</b> place au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge, ou de placer le sang qui doit etre place <b>en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, et qu'il avait l'intention de le faire <b>immediatement,</b> c'est a dire. e., le meme jour, alors elle est <b>valide,</b> car une telle intention ne disqualifie pas l'offrande. Si <b>il avait alors l'intention</b> de sacrifier l'offrande <b>en dehors de sa</b> <b>zone designee,</b> elle est <b>disqualifiee, mais il n'y a pas</b> d'obligation de recevoir <b><i>karet</i> pour elle. </b> S'il avait l'intention de le sacrifier <b>au-dela de son <b>temps</b> designe, alors il est rendu <b><i>piggul</i>, et on est redevable</b> de recevoir <b><i>karet</i> pour lui.</b>
+
+### Partie 7
+Le <i>baraita</i> continue : Si l'on avait l'intention de placer le sang qui doit etre place au-dessus de la ligne rouge au-dessous de la ligne rouge ou vice versa <b>le lendemain,</b> alors il est <b>disqualifie,</b> en raison de son intention de le laisser pendant la nuit, conformement a la declaration de Rabbi Yehuda. Dans ce cas, si <b>il avait alors l'intention</b> de sacrifier la meme offrande <b>soit au-dela de son</b> <b>heure designee ou en dehors de sa</b> <b>zone designee,</b> elle est <b>disqualifiee, et il n'y a pas</b> d'obligation de recevoir <b><i>karet</i> pour elle.</b> De toute evidence, l'intention de la laisser pendant la nuit empeche l'offrande d'etre ulterieurement rendue <i>piggul</i>. La Guemara conclut : <b>La refutation de</b> l'opinion de <b>Rabbi Abba</b> est en effet <b>une refutation concluante.</b>
+
+### Partie 8
+§ <b>Rav Hisda dit</b> que <b>Ravina bar Sila dit :</b> Si l'on a abattu une offrande avec <b>l'intention que des individus impurs</b> <b>mangent</b> la viande de l'offrande <b>le lendemain,</b> on est <b>libre</b> de recevoir <i>karet</i> en raison de l'interdiction de <i>piggul</i>. Bien que les individus impurs ne soient pas aptes a consommer la viande, cela est neanmoins considere comme une intention d'en consommer au-dela du moment prevu. <b>Rava dit : Sachez</b> qu'il en est ainsi, <b>car la viande avant</b> le <b>sprinkling</b> du sang est <b>inapte</b> a etre mangee, <b>et quand</b> on <b>a</b> une <b>intention impropre a son egard,</b> elle est <b>disqualifiee.</b> Il est clair que l'intention de participer a un article interdit au-dela de son temps designe rend l'offrande <i>piggul</i>.
+
+### Partie 9
+La Guemara rejette la preuve de Rava : <b>Mais il n'en est rien,</b> car <b>la, </b> en ce qui concerne l'intention standard <i>piggul</i>, <b>il asperge</b> le sang, <b>et</b> la viande <b>est rendue apte</b> a etre consommee le lendemain. En revanche, <b>ici,</b> elle n'est <b>pas rendue propre</b> a etre consommee par des individus impurs <b>du tout.</b> Par consequent, une telle intention n'est pas consideree comme une intention significative de consommer la viande apres le moment prevu.
+
+### Partie 10
+<b>Rav Hisda dit</b> que <b>Rav Dimi bar Hinnana avait coutume de dire</b> la <i>halakha</i> suivante : En ce qui concerne <b>la viande d'une offrande pascale qui n'a pas ete rotie, et les pains d'une offrande de remerciement</b> dont <b>la portion des pretres</b> n'a pas ete separee,</b> bien qu'il soit interdit de les manger, neanmoins <b>on est susceptible</b> de recevoir du <i>karet</i> <b>pour avoir</b> viole l'interdiction de les manger <b>en etat d' <b>impurete.</b>
+
+### Partie 11
+<b>Rava dit : Sachez</b> qu'il en est ainsi, <b>comme il est enseigne</b> dans une <i>baraita</i> : Le verset dit : "Mais l'ame qui mange de la chair du sacrifice d'actions de grA¢ce qui appartient au Seigneur, ayant sur elle son impureté, cette ame sera retranchée de son peuple" (Léviticus 7:20). Les mots ajoutes <b>"qui appartiennent au Seigneur"</b> servent <b>a inclure les portions sacrificielles des offrandes de moindre saintete en ce qui concerne l'impurete,</b> enseignant que celui qui en prend part alors qu'il est impur est susceptible de recevoir <i>karet</i>.
+
+### Partie 12
+<b>Apparemment, meme s'ils ne sont pas propres a la consommation, on est susceptible</b> de recevoir du <i>karet</i> <b>en raison</b> de la violation de l'interdiction de les consommer dans l'impurete <b>rituelle. Ici aussi,</b> en ce qui concerne la viande d'une offrande pascale qui n'a pas ete rotie, et les pains d'une offrande de remerciement dont la portion des pretres n'a pas ete separee, <b>meme s'ils ne sont pas propres a la consommation, on est susceptible</b> de recevoir <i>karet</i> <b>pour avoir viole l'interdiction de les manger <b>en <b>impurete.</b>
+
+### Partie 13
+La Guemara rejette la preuve de Rava : <b>Mais ce n'est pas le cas,</b> car <b>la, les portions sacrificielles des offrandes de moindre saintete</b> qui sont brulees sur l'autel sont au moins <b>adaptees</b> au <b>Super Haut,</b> c'est-a-dire a la consommation de l'autel, et on est donc susceptible de recevoir <i>karet</i> pour les avoir mangees en etant rituellement impur. Ceci <b>a l'exclusion de la viande d'une offrande pascale qui n'a pas ete rotie et</b> des <b>pains d'une offrande de remerciement</b> dont <b>la portion des pretres</b> n'a pas ete separee, qui ne sont pas du tout propres</b>, <b>pas pour</b> le <b>Saint-Haut, et pas pour une personne ordinaire</b>.
+
+### Partie 14
+La Gemara presente <b>une autre version</b> de la preuve et son rejet : <b>Mais</b> les <b>portions sacrificielles</b> sont <b>non conformes,</b> et pourtant on est responsable si on les consomme en etant impur. La Guemara repond : <b>Mais il n'en est rien,</b> puisque <b>ces portions sacrificielles sont <b>adaptees a leurs matieres, et celles-ci,</b> c'est-a-dire la viande d'une offrande pascale qui n'a pas ete rotie et les pains d'une offrande de remerciement dont la portion des pretres n'a pas ete separee, <b>ne sont pas du tout adaptees.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

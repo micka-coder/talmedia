@@ -1,0 +1,54 @@
+
+### Part 1
+<b>the taking of a life,</b> i.e., <i>karet</i>, <b>so too,</b> the <b>matter</b> pertaining to <b>sacrificial</b> food entails a punishment <b>that involves the taking of a life.</b> The Gemara explains: <b>And if</b> the prohibition is <b>with regard to touching</b> sacrificial food, <b>is there</b> a punishment that entails <b>the taking of a life? Rather,</b> the prohibition is <b>with regard to eating.</b>
+
+### Part 2
+The Gemara asks: <b>But</b> this verse is <b>still necessary for</b> Reish Lakish to teach the <i>halakha</i> of <b>a ritually impure</b> person <b>who ate sacrificial meat before</b> the <b>sprinkling</b> of the blood of the offering on the altar, when the meat is not yet permitted. <b>As it was stated:</b> With regard to <b>an impure</b> individual <b>who ate sacrificial meat before</b> the <b>sprinkling</b> of the blood, <b>Reish Lakish says:</b> He is <b>flogged</b> for doing so, <b>and Rabbi Yoḥanan says: He is not flogged.</b>
+
+### Part 3
+<b>Reish Lakish says:</b> He is <b>flogged,</b> as it is written: <b>“Every consecrated item she shall not touch,”</b> without limiting the prohibition to a specific time, indicating that it <b>is no different</b> if one eats the sacrificial meat <b>prior to sprinkling</b> the blood, <b>and</b> it <b>is no different</b> if one does so <b>after sprinkling</b> the blood. <b>Rabbi Yoḥanan says: He is not flogged, as</b> the Sage <b>Bardela teaches</b> that the prohibition <b>is derived</b> by means of the verbal analogy cited before, as the verse states <b>“his impurity”</b> with regard to an impure person who eats sacrificial food, and states <b>“his impurity”</b> with regard to an impure person entering the Temple. <b>And when</b> “his impurity” <b>is written,</b> it is with regard to partaking of sacrificial meat <b>after</b> the <b>sprinkling</b> of the blood (see Leviticus 7:20).
+
+### Part 4
+The Gemara answers for Reish Lakish: <b>If so,</b> that the verse was referring only to partaking of sacrificial meat after the sprinkling of the blood, <b>let the verse say: A consecrated item</b> she shall not touch. <b>What</b> is the reason for using the phrase <b>“every consecrated item”? Conclude two</b> conclusions <b>from it,</b> i.e., it also includes not eating sacrificial meat before the sprinkling of the blood.
+
+### Part 5
+§ The Gemara discusses <b>the</b> matter <b>itself:</b> With regard to <b>an impure</b> individual <b>who ate sacrificial meat before</b> the <b>sprinkling</b> of the blood, <b>Reish Lakish says:</b> He is <b>flogged</b> for doing so, <b>and Rabbi Yoḥanan says: He is not flogged. Abaye says:</b> This <b>dispute</b> applies <b>with regard to</b> a case of <b>impurity of the body</b> of the one who eats the meat, <b>but with regard to impurity of the flesh</b> itself, i.e., if the sacrificial meat was ritually impure, <b>all agree</b> that he is <b>flogged.</b>
+
+### Part 6
+This is <b>as the verse states:</b> “And the flesh that touches any impure item shall not be eaten; it shall be burned with fire; and the flesh, every one that is pure may eat the flesh” (Leviticus 7:19). The Sages derived that the extra term <b>“and the flesh”</b> serves <b>to include wood and frankincense, which are not fit for consumption, and even so the verse included them</b> as being susceptible to impurity, and one who eats them while he is impure is flogged. Therefore, sacrificial meat before the sprinkling of the blood, which is fit for consumption, is certainly included in the prohibition.
+
+### Part 7
+<b>And Rava says:</b> This <b>dispute</b> applies <b>with regard to</b> a case of <b>impurity of the body, but with regard to impurity of the meat all agree</b> that <b>he is not flogged. What is the reason? Since</b> one <b>does not apply to</b> meat before the sprinkling of the blood the verse: “But the soul that eats of the flesh of the sacrifice of peace offerings of the Lord, <b>having his impurity upon him,</b> that soul <b>shall be cut off</b> from his people” (Leviticus 7:20), which is referring to meat after the sprinkling of the blood, so too, one <b>does not apply to it</b> the prohibition: <b>“And the flesh that touches any impure item shall not be eaten”</b> (Leviticus 7:19).
+
+### Part 8
+The Gemara challenges the statement of Rava: <b>But doesn’t the Master say</b> that the term <b>“and the flesh”</b> serves <b>to include wood and frankincense</b> that became impure as items that are forbidden to be eaten, despite the fact that they are not fit for consumption? Certainly, then, sacrificial flesh before the sprinkling of the blood should also be included in the category of items forbidden to be eaten.
+
+### Part 9
+The Gemara answers: <b>What are we dealing with here,</b> that one would be liable for eating wood and frankincense that are impure? It is a case <b>where</b> the wood and frankincense <b>were sanctified in a vessel,</b> and the reason for the liability is <b>that</b> they are then <b>considered like</b> an item for <b>which all of its permitting factors were sacrificed,</b> such as flesh after the sprinkling of the blood, and only then is one liable for eating it while impure.
+
+### Part 10
+This is <b>as we learned</b> in a mishna (<i>Me’ila</i> 10a): With regard to <b>anything that has permitting factors,</b> i.e., rites that must be performed or items that must be sacrificed before the meat of the offering may be eaten, such as the meat of an offering that is permitted to be eaten by the sprinkling of the blood; one is liable for eating it while impure <b>from</b> the time <b>that its permitting factors were sacrificed.</b> With regard to <b>anything that does not have permitting factors,</b> such as the handful removed from a meal offering and the frankincense, which themselves render the rest of the meal offering permitted for consumption, one is liable for eating it while impure <b>from</b> the time <b>it is sanctified in a vessel.</b>
+
+### Part 11
+§ <b>It was stated:</b> In the case of <b>one who offers up the limbs of a non-kosher animal upon the altar, Reish Lakish says:</b> He is <b>flogged</b> for doing so, while <b>Rabbi Yoḥanan says: He is not flogged.</b> The Gemara explains the logic for each opinion: <b>Reish Lakish says</b> that he is <b>flogged,</b> because there is a positive mitzva to sacrifice an offering from the herd and the flock (see Leviticus 1:2), which are kosher animals. Therefore, it can be inferred that <b>a kosher</b> animal, <b>yes,</b> one may sacrifice, but <b>a non-kosher</b> animal one may <b>not</b> sacrifice, <b>and</b> one who transgresses <b>a prohibition that stems from a positive mitzva</b> is <b>flogged for it. And Rabbi Yoḥanan says:</b> One is <b>not flogged for it,</b> as one who transgresses <b>a prohibition that stems from a positive mitzva</b> is <b>not flogged for it.</b>
+
+### Part 12
+<b>Rabbi Yirmeya raises an objection</b> to the opinion of Reish Lakish from a <i>baraita</i> cited in <i>Torat Kohanim</i>: “Whatsoever parts the hoof, and is wholly cloven-footed, and chews the cud, among the beasts, <b>that may you eat”</b> (Leviticus 11:3). One can infer: <b>But</b> you may <b>not</b> eat <b>a non-kosher animal; and a prohibition that stems from a positive mitzva</b> has the status of <b>a positive mitzva.</b>
+
+### Part 13
+<b>Rabbi Ya’akov said to Rabbi Yirmeya bar Taḥlifa: I will explain</b> it <b>to you: With regard to</b> one who sacrifices the <b>limbs of a non-kosher animal</b> upon the altar, <b>everyone agrees</b> that he is not flogged, as he violates only a positive mitzva. <b>When they disagree,</b> it is <b>with regard to</b> one who sacrifices a kosher <b>undomesticated animal</b> on the altar, <b>and it was stated like this: Rabbi Yoḥanan says: He transgresses a positive mitzva. Reish Lakish says: He does not transgress anything.</b>
+
+### Part 14
+The Gemara explains their reasoning: <b>Rabbi Yoḥanan says: He transgresses a positive mitzva,</b> since the Torah commanded that <b>a domesticated animal, yes,</b> should be sacrificed, from which it can be inferred that <b>an undomesticated animal</b> may <b>not</b> be sacrificed, and a prohibition that stems from a positive mitzva has the status of a positive mitzva. <b>Reish Lakish says: He does not transgress anything,</b> since <b>that</b> verse which instructs one to sacrifice offerings from the herd and the flock is referring <b>to</b> the optimal manner of fulfilling the <b>mitzva,</b> but if he sacrificed an undomesticated animal, he has not transgressed the mitzva.
+
+### Part 15
+<b>Rava raised an objection</b> from a <i>baraita</i>: <b>Had</b> the verse (Leviticus 1:2) <b>stated</b> only: When any man of you brings <b>an offering to the Lord, animals [<i>behema</i>]</b>, <b>I would say</b> that even <b>an undomesticated animal</b> is included <b>in the category of an animal [<i>behema</i>], like that</b> which <b>is stated: “These are the animals [<i>behema</i>] that you may eat: The ox, the sheep, and the goat, the deer, and the gazelle,</b> and the fallow deer, and the wild goat, and the oryx, and the aurochs, and the mountain sheep” (Deuteronomy 14:4–5), and, for example, the deer and gazelle are undomesticated animals. Therefore, <b>the verse states:</b> “From animals, from the <b>cattle and</b> from the <b>flock”</b> (Leviticus 1:2), which indicates that God says: <b>I have told you</b> to bring offerings from the <b>cattle and</b> the <b>flock, but not an undomesticated animal.</b>
+
+### Part 16
+One <b>might</b> have thought that one should <b>not bring</b> an undomesticated animal <i>ab initio</i>, <b>but if</b> one <b>did bring</b> it, it is <b>valid,</b> and <b>to what is this comparable? To a student whose teacher says to him: Bring me wheat, and</b> the student <b>brought him wheat and barley.</b> In this case, <b>it is not as</b> though the student is <b>disobeying the statement of</b> the teacher; <b>rather,</b> he is merely <b>adding to his statement, and</b> that should be <b>valid.</b>
+
+### Part 17
+Therefore, <b>the verse states</b> again: “From the <b>cattle”</b> (Leviticus 1:3), <b>and:</b> “From the <b>flock”</b> (Leviticus 1:10), to reiterate that God says: <b>I have told you</b> to bring offerings from the <b>cattle and</b> the <b>flock, but not an undomesticated animal. To what is this comparable? To a student whose teacher told him: Bring me only wheat, and</b> the student <b>brought him wheat and barley. It is not as</b> though the student is <b>adding to the statement of</b> the teacher; <b>rather, it is as</b> though <b>he is disobeying his statement,</b> since his teacher instructed him to bring only wheat. Consequently, one who sacrifices an undomesticated animal does not merely add to a mitzva of the Torah, but also violates a prohibition,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

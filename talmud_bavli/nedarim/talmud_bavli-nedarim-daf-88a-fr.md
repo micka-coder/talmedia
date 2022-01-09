@@ -1,0 +1,15 @@
+
+### Partie 1
+<b>Rava a dit :</b> Il n'y a pas de contradiction ici, car le differend concernant un meurtre involontaire est base sur des interpretations divergentes du verset. <b>Ici,</b> la decision decoule <b>du contexte du verset, et la,</b> la decision decoule <b>du contexte du verset. Rabbi Yehuda soutient</b> que <b>en ce qui concerne</b> l'exil d'un <b>tueur involontaire</b> il est ecrit : "Et un homme qui va dans la forêt avec son voisin</b> pour couper du bois" (Deuteronome 19:5), ce qui sert A inclure <b>toute personne</b> qui <b>est capable d'entrer dans une foret, et un aveugle est aussi capable d'entrer dans une foret. Et si vous dites</b> que l'expression <b>"sans voir"</b> sert a <b>inclure un aveugle,</b> celui-ci <b>est</b> deja <b>derive du</b> mot <b>"foret"</b> car lui aussi peut entrer dans une foret. <b>Apprenez-en plutot</b> que l'expression <b>"sans voir"</b> sert <b>a exclure un aveugle</b> de la categorie des tueurs involontaires qui sont exiles dans une ville de refuge.
+
+### Partie 2
+En revanche, <b>Rabbi Meir soutient : Il est ecrit</b> dans cette meme section :" Celui qui frappe son prochain <b>sans le savoir"</b> (Deuteronome 19:4), ce qui indique que la <i>halakha</i> s'applique a <b>toute personne capable de connaitre</b> l'emplacement precis des personnes qui se tiennent autour d'elle, <b>mais un aveugle n'est pas capable de savoir</b> cela. <b>Et si vous dites</b> que l'expression <b>"sans voir"</b> sert <b>a exclure un aveugle,</b> ceci <b>est</b> deja <b>derive des mots <b>"sans connaissance"</b> Apprenez plutot</b> que l'expression <b>"sans voir"</b> sert <b>a inclure un aveugle</b> dans la <i>halakha</i> de l'exil, et non a l'exclure.
+
+### Partie 3
+<strong>MISHNA :</strong> En ce qui concerne <b>celui qui fait vœu</b> que le <b>benefice</b> de lui soit interdit <b>a son gendre, mais il</b> souhaite neanmoins <b>donner a sa fille,</b> c'est-a-dire a la femme de ce meme gendre, <b>de l'argent,</b> alors, bien qu'il ne puisse pas le faire directement, car tout ce qui est acquis par une femme appartient a son mari, <b>il</b> doit <b>s'adresser a elle : Cet argent t'est par la presente donne en cadeau, a condition que ton mari n'ait aucun droit sur lui,</b> mais le cadeau ne comprend <b>que ce que tu ramasses et mets dans ta bouche.</b>
+
+### Partie 4
+<strong>GEMARA:</strong> <b>Rav a dit</b> que <b>ils ont enseigne</b> cette <i>halakha</i> <b>uniquement</b> dans un cas <b>ou il</b> lui a effectivement <b>dit : Ce que tu ramasses et mets dans ta bouche</b> est a toi. <b>Mais</b> si <b>il lui a dit : Fais ce que tu veux</b> avec l'argent, sa stipulation est sans effet, et <b>le mari acquiert</b> l'argent. <b>Et Shmuel dit</b> que <b>meme</b> si <b>il a dit : Fais ce que tu veux</b> avec l'argent, <b>le mari ne l'acquiert pas. Rabbi Zeira s'oppose a cette</b> declaration de Rav :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

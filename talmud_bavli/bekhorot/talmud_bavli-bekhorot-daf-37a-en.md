@@ -1,0 +1,42 @@
+
+### Part 1
+is <b>to the exclusion of</b> the opinion <b>of Rabbi Yosei</b> in the mishna, who prohibits any number of laymen to deem a firstborn animal permitted. The ruling that a group of <b>three</b> laymen may <b>dissolve a vow in a place where there is no Sage</b> is <b>to the exclusion of</b> the opinion <b>of Rabbi Yehuda, as it is taught</b> in a <i>baraita</i>: <b>Dissolution of vows</b> requires a court of <b>three. Rabbi Yehuda says:</b> This is the <i>halakha</i> only if at least <b>one of them</b> is <b>a Sage.</b> If no Sage is available, laymen may not dissolve a vow.
+
+### Part 2
+Rav Ḥiyya bar Amram stated above that a group of three may dissolve a vow <b>in a place where there is no Sage.</b> This indicates that if there is a Sage, he alone may dissolve a vow. The Gemara asks: <b>Who, for example,</b> is considered such a Sage? <b>Rav Naḥman said: For example,</b> one such as <b>me.</b> The <i>baraita</i> further stated that <b>Rabbi Yehuda says:</b> At least <b>one of</b> the three laymen must be <b>a Sage.</b> The Gemara asks: Should one conclude <b>by inference that those</b> other two members can be <b>anyone,</b> even complete ignoramuses? <b>Ravina said</b> in explanation: Each member of the group must be one <b>to whom</b> the <i>halakhot</i> of vows <b>is explained and he</b> is able to <b>comprehend</b> them.
+
+### Part 3
+§ The mishna teaches that <b>Rabbi Yosei says: Even if there is</b> a court of <b>twenty-three</b> Sages <b>there,</b> it may be slaughtered only on the basis of the ruling of an expert. <b>Rav Ḥananel says</b> that <b>Rav says:</b> The <b><i>halakha</i></b> is <b>not in accordance with</b> the opinion of <b>Rabbi Yosei.</b> The Gemara challenges: This is <b>obvious,</b> as there is a principle that in a dispute between <b>an individual</b> Sage <b>and many</b> Sages, the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of the <b>many</b> Sages. The Gemara answers: Rav’s statement is necessary, <b>lest you say</b> that Rabbi Yosei is an exception to the principle, as <b>his reasoning [<i>nimmuko</i>] is with him,</b> i.e., his logic is sound. Rav Ḥananel therefore <b>teaches us</b> that this is not so, and the <i>halakha</i> does not follow his opinion.
+
+### Part 4
+Earlier (36b), the Gemara cited a ruling, which was issued either by Rav or Shmuel, that three regular Jews may deem a firstborn animal permitted in a place where there is no expert, in contrast to the opinion of Rabbi Yosei. The Gemara suggests: <b>Resolve</b> that dilemma <b>from this</b> statement in the name of Rav, that the <i>halakha</i> is not in accordance with the opinion of Rabbi Yosei. It can be inferred from here <b>that that first,</b> uncertain ruling <b>was stated in the name of Shmuel. As, if</b> it was stated <b>in the name of Rav, why do I</b> need <b>two</b> identical rulings?
+
+### Part 5
+The Gemara answers: This is insufficient proof, as it is possible that Rav did not issue two identical rulings. Rather, <b>one</b> ruling <b>was stated from the other, by inference.</b> Rav issued only one of these statements explicitly; the other was reported by his students in his name based on an inference from what he had said.
+
+### Part 6
+<strong>MISHNA:</strong> In the case of <b>one who slaughters a firstborn</b> animal and sells its meat, <b>and it was discovered that he did not</b> initially <b>show it</b> to one of the Sages, the <i>halakha</i> is that it was actually prohibited to derive any benefit from the meat. In that case, <b>what</b> the buyers <b>ate, they ate, and</b> the Sages penalized the seller in that <b>he must return the money to them,</b> which they paid for the meat that they ate. <b>And</b> with regard to <b>that which they did not eat,</b> that <b>meat must be buried, and he must return the money</b> that they paid for the meat that they did not eat.
+
+### Part 7
+<b>And likewise,</b> in the case of <b>one who slaughters a cow and sells it, and it was discovered that it is a <i>tereifa</i>, what</b> the buyers <b>ate, they ate, and what they did not eat, they must return the meat to</b> the seller, who may sell it to a gentile or feed it to the dogs, <b>and he must return the money to</b> the buyers. If the buyers <b>sold it to gentiles or cast it to the dogs, they pay</b> the seller <b>the value of a <i>tereifa</i>,</b> which is less than the value of kosher meat, and the seller refunds the balance to the buyers.
+
+### Part 8
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i>: In a case where <b>one sells meat to another and it was discovered</b> that it is the <b>meat</b> of <b>a firstborn</b> animal, which was not deemed permitted for consumption by an expert, or if one sells <b>produce</b> to another <b>and it was discovered</b> that it is <b>untithed produce,</b> or if one sells <b>wine</b> to another <b>and it turns out</b> that it is <b>wine</b> that was used for <b>a libation</b> in idol worship, the <i>halakha</i> is that <b>what</b> the purchasers <b>ate, they ate, and</b> the seller <b>reimburses them</b> all their <b>money.</b>
+
+### Part 9
+<b>Rabbi Shimon ben Elazar says,</b> qualifying this ruling: If he sold them <b>items from which one is</b> generally <b>repulsed, he must reimburse them</b> all their <b>money,</b> as they are presumed to not have derived benefit from the consumption of such items. <b>But</b> if he sold them <b>items from which one is not</b> generally <b>repulsed, he deducts for them the value</b> of the benefit from those items and reimburses them the balance. <b>And the following are items from which one is</b> generally <b>repulsed: Carcasses and <i>tereifot</i>, repugnant creatures, and creeping animals. And the following are items from which one is</b> generally <b>not repulsed: Firstborn</b> animals, <b>untithed produce, and wine</b> used for <b>a libation</b> in idol worship.
+
+### Part 10
+The Gemara asks: Why does the seller deduct the value of the meat of <b>a firstborn</b> animal eaten by the purchaser and reimburse him the difference? <b>Let</b> the purchaser <b>say to</b> the seller: <b>What loss have I caused you</b> by eating the meat? Had you not sold it to me, you would have had no rights to partake of it, as this is an unblemished firstborn animal from which deriving benefit is prohibited.
+
+### Part 11
+The Gemara answers: <b>No,</b> this ruling is <b>necessary</b> in a case <b>where he sold him</b> a cut of meat <b>from an area</b> on the animal that contained <b>a blemish,</b> but the seller had not yet brought the animal to be examined and deemed permitted by a Sage. In <b>that</b> instance, the seller can <b>say to</b> the purchaser: <b>Had you not eaten</b> the meat, <b>I would have shown</b> the animal to a Sage <b>and he</b> would have <b>deemed it permitted</b> to me. The Gemara notes that this is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda</b> (28a), who permits a firstborn animal to be examined and deemed permitted even after it has been slaughtered.
+
+### Part 12
+The Gemara adds that with regard to <b>untithed produce,</b> although one could claim that the purchaser did not cause a loss to the seller, as untithed produce is prohibited for consumption, the seller can say to the purchaser: Had you not eaten my produce, <b>I would have remedied it,</b> i.e., separated its tithes, <b>and eaten it.</b> Similarly, with regard to <b>wine</b> used for <b>a libation</b> in idol worship, which is also prohibited to be consumed, this is referring to a seller who sold it <b>in a mixture</b> of permitted wine. In this case, had the purchaser not consumed the wine mixture, the seller could have derived benefit from it, <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel.</b>
+
+### Part 13
+<b>As we learned</b> in a mishna (<i>Avoda Zara</i> 74a): In the case of <b>wine</b> used for <b>a libation</b> in idol worship <b>that fell into</b> a wine <b>cistern,</b> it is <b>prohibited</b> to <b>derive benefit</b> from <b>all</b> the wine in the cistern, even if the volume of the wine used for a libation was small in comparison to the volume of the rest of the wine in the cistern. <b>Rabban Shimon ben Gamliel says: All of the</b> wine in the cistern <b>may be sold to a gentile,</b> and the money paid for it is permitted, <b>except for the value of the wine</b> used for <b>a libation</b> that is <b>in it.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

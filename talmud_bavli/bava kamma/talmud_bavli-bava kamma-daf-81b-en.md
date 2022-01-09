@@ -1,0 +1,75 @@
+
+### Part 1
+<b>but not from a place that faces the sun,</b> where the fruits grow copiously, <b>as it is stated: “And for the precious things of the fruits of the sun”</b> (Deuteronomy 33:14).
+
+### Part 2
+The <i>baraita</i> further states: <b>And the people of the city</b> shall have the right to <b>take supplies</b> of water from a spring on private property, even <b>from a spring that emerges for the first time. Rabba bar Rav Huna says: And</b> although one may draw water from that spring, <b>he</b> must <b>give money to</b> reimburse the owner of the property. The Gemara concludes: <b>But the <i>halakha</i> is not in accordance with his</b> opinion, as the water may be taken without payment.
+
+### Part 3
+The next of Joshua’s conditions is: <b>And</b> that <b>they</b> shall have the right to <b>fish in the Sea of Tiberias, provided that</b> the fisherman <b>does not build an</b> underwater <b>fence</b> to catch fish, thereby <b>causing an impediment to boats.</b> The Gemara comments: <b>But one may fish with nets and with traps. The Sages taught</b> in a <i>baraita</i>: <b>Initially, the tribes stipulated with each other that one may not build</b> an underwater <b>fence</b> to catch fish, thereby <b>causing an impediment to boats, but one may fish with nets and with traps.</b>
+
+### Part 4
+<b>The Sages taught</b> in a <i>baraita</i>: <b>The Sea of Tiberias was</b> located <b>in the portion of</b> the tribe of <b>Naphtali. Moreover,</b> the tribe of Naphtali <b>received</b> in addition a small stretch of land equal to <b>the full</b> length of the <b>rope of</b> a fish <b>trap.</b> This stretch of land was located <b>to the south</b> of the sea, where the members of this tribe could spread out their fishing nets, <b>to fulfill that which is stated:</b> “And of Naphtali he said: O Naphtali, satisfied with favor, and full with the blessing of the Lord; <b>possess the sea and the south”</b> (Deuteronomy 33:23).
+
+### Part 5
+<b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Shimon ben Elazar says: Detached</b> items <b>that are</b> found <b>in the mountains</b> at the time of conquest <b>are</b> considered to be <b>in the possession of all the tribes</b> equally, as spoils of war; <b>but</b> that which is <b>attached,</b> e.g., trees, <b>are</b> considered to be <b>in the</b> sole <b>possession of that tribe</b> that would receive the land where the tree was found.
+
+### Part 6
+The <i>baraita</i> adds: <b>And you do not have a single tribe of Israel that did not have</b> in its portion at least some land <b>in the mountains, and</b> some <b>in the lowland, and</b> some <b>in the countryside, and</b> some <b>in the valley, as it is stated: “Turn and take your journey, and go to the hill-country of the Amorites and to all their neighbors, in the Arabah, in the hill-country, and in the lowland, and in the countryside, and by the seashore”</b> (Deuteronomy 1:7). <b>And you find similarly with regard to the Canaanites and Perizzites and Amorites who</b> inhabited the land <b>before</b> the Jews, <b>as it stated</b> in the above verse: “The Amorites <b>and to all their neighbors.” Apparently,</b> the Amorites and <b>their neighbors</b> all <b>had this</b> variety of types of land in their respective territories.
+
+### Part 7
+§ The Gemara discusses the next of Joshua’s conditions: <b>And</b> people shall have the right to <b>relieve themselves</b> outdoors <b>behind a fence, even in a field</b> that is <b>full of saffron. Rav Aḥa bar Ya’akov said:</b> It goes without saying that one may relieve himself when necessary; this stipulation <b>is necessary only</b> to permit the one relieving himself <b>to take a stone out of</b> a wall in the field with which to clean himself. <b>Rav Ḥisda said: And</b> it is permitted to remove a stone from a wall for this purpose <b>even on Shabbat. Mar Zutra the Pious would take</b> a stone in this manner on Shabbat <b>and replace</b> it in the wall, <b>and say to his attendant</b> after Shabbat: <b>Go and plaster it over,</b> so that it would fit securely back in the wall.
+
+### Part 8
+The <i>baraita</i> further states: <b>And they</b> shall have the right to <b>walk in permitted paths,</b> i.e., those paths that cut through a private field, throughout the summer <b>until the second rainfall,</b> when crops begin to sprout. <b>Rav Pappa said: And</b> with regard to <b>these</b> fields that we have in Babylonia, <b>even dew</b> that settled the previous night <b>is bad for them.</b> Even after a night of dew, the field is sufficiently moistened that trampling on it will cause damage, and therefore this condition does not apply if there was dew the previous night.
+
+### Part 9
+The next item on the list of conditions is: <b>And they</b> shall have the right to <b>veer off to the sides of the roads</b> onto private property <b>because of hard protrusions of the road.</b> The Gemara relates: <b>Shmuel and Rav Yehuda,</b> who lived in Babylonia, <b>were</b> once <b>walking along the road,</b> and <b>Shmuel veered off to the sides of the road</b> onto private property. <b>Rav Yehuda said to him:</b> Do the <b>conditions that Joshua stipulated</b> apply <b>even in Babylonia?</b> Shmuel <b>said to him:</b> Indeed so, <b>as I say</b> that they apply <b>even outside of Eretz</b> Yisrael.
+
+### Part 10
+<b>Rabbi</b> Yehuda HaNasi <b>and Rabbi Ḥiyya were</b> once <b>walking along the road,</b> and <b>they veered off to the sides of the road. Rabbi Yehuda ben Kanosa was taking broad steps</b> on the road, to avoid the protrusions without going off to the side of the road, <b>while walking in front of them. Rabbi</b> Yehuda HaNasi <b>said to Rabbi Ḥiyya: Who is this</b> man <b>who is showing off</b> his supposed <b>greatness in our presence?</b> By acting more stringently than required by <i>halakha</i>, he is displaying insolence.
+
+### Part 11
+<b>Rabbi Ḥiyya said to</b> Rabbi Yehuda HaNasi: <b>Perhaps it is my student Rabbi Yehuda ben Kanosa. And</b> if so, <b>all of his actions are</b> undertaken <b>for the sake of Heaven;</b> he is not acting out of haughtiness. <b>When they reached him</b> and Rabbi Yehuda HaNasi <b>saw him, he said to him: If you were not Yehuda ben Kanosa I would have cut off your legs with iron shears,</b> i.e., I would have excommunicated you for your impudence.
+
+### Part 12
+The <i>baraita</i> further teaches: <b>And one who becomes lost among the vineyards</b> shall have the right to <b>cut down [<i>mefaseig</i>] branches and enter</b> an area of the vineyard, or <b>cut down branches and exit</b> an area of the vineyard, until he finds his way back to the road. <b>The Sages taught</b> in a <i>baraita</i> that this stipulation extends further: With regard to <b>one who sees another</b> person <b>lost among the vineyards, he may cut down branches and enter</b> an area of the vineyard, or <b>cut down branches and exit</b> an area of the vineyard <b>until he</b> reaches him and <b>brings him</b> back <b>up to the city or to the road. And similarly,</b> if <b>he</b> himself is the one <b>who is lost among the vineyards, he may cut down branches and enter</b> an area of the vineyard, or <b>cut down branches and exit</b> an area of the vineyard <b>until he comes</b> back <b>up to the city or to the road.</b>
+
+### Part 13
+The Gemara asks a question with regard to this <i>baraita</i>: <b>What</b> is the point of the clause that begins with: <b>And similarly?</b> It is obvious that a lost individual himself has the same right to cut down branches as one who assists him to find his way out. The Gemara answers: That is taught <b>lest you say</b> that it is only <b>another</b> person who is permitted to cut down branches, <b>as,</b> having seen the lost party, <b>he knows</b> exactly <b>where he is going</b> to rescue the other and help him leave the vineyard, and <b>that</b> is why <b>he may cut down branches; but</b> with regard to the lost person himself, <b>who does not know where he is going,</b> one might have said that <b>he may not cut down branches</b> but must <b>go</b> all the way <b>back to the boundary</b> of the vineyard. The <i>baraita</i> therefore <b>teaches us</b> that one who is lost may cut down branches in his quest to find his own way to the nearby town or road.
+
+### Part 14
+The Gemara asks a further question: Why was it necessary for Joshua to stipulate that one may find his way out in this manner? After all, <b>this</b> <i>halakha</i> applies <b>by Torah law.</b> When one is lost, whoever can assist in helping him find his way must do so by Torah law, <b>as it is taught</b> in a <i>baraita</i>: There is a mitzva to return lost items to their owner. <b>From where</b> is it derived that the requirement applies even to <b>returning his body,</b> i.e., helping a lost person find his way? <b>The verse states: “And you shall restore it</b> to him” (Deuteronomy 22:2), which can also be translated as: And you shall restore himself to him. If this is required by Torah law, why did Joshua stipulate a condition to this effect?
+
+### Part 15
+The Gemara answers: <b>By Torah law</b> one is required only to walk in a roundabout path <b>along the boundaries,</b> without damaging another’s vines by cutting off branches. Joshua <b>came and instituted</b> the stipulation <b>that one may</b> go even further and <b>cut off branches and ascend</b> or <b>cut off branches and descend,</b> thereby leaving through the most direct route.
+
+### Part 16
+The Gemara addresses the last stipulation in the <i>baraita</i>: <b>And</b> that <b>a corpse with no one to bury it [<i>met mitzva</i>] acquires its place</b> and is buried where it was found. The Gemara <b>raises a contradiction</b> from a <i>baraita</i>: <b>One who finds a corpse laid out on a main street [<i>isratya</i>] evacuates it</b> for burial either <b>to the right of the street or to the left of the street,</b> but it may not be buried under the main street itself. If one can move the corpse either to <b>a fallow field or</b> to <b>a plowed field, he evacuates it to the fallow field.</b>
+
+### Part 17
+If the choice is between <b>a plowed field and a sown field, he evacuates it to the plowed field.</b> If <b>both</b> fields <b>were fallow,</b> or if <b>both</b> were <b>plowed,</b> or if <b>both</b> were <b>sown, he evacuates it to any side where he wishes</b> to move it. According to this <i>baraita</i>, a <i>met mitzva</i> is not necessarily buried where it is found. It may be moved elsewhere.
+
+### Part 18
+<b>Rav Beivai said:</b> The ruling of this <i>baraita</i> is stated <b>with regard to</b> a corpse <b>laid out on the pathway.</b> Were the corpse buried there, it would prohibit passage by priests. <b>Since permission was</b> already <b>granted to evacuate it</b> from there, <b>one may evacuate it to any place he wishes.</b> If, however, the corpse was in a field, it would be prohibited to move it.
+
+### Part 19
+§ The Gemara returns to the opening statement of the <i>baraita</i>, that Joshua stipulated ten conditions. The Gemara <b>says:</b> Are there really only <b>ten? These</b> conditions enumerated in the <i>baraita</i> <b>are</b> actually <b>eleven.</b> The Gemara answers: The condition that <b>one may walk in permitted paths</b> that cut through a private field in the summer was not instituted by Joshua; rather, King <b>Solomon said it.</b>
+
+### Part 20
+<b>As it is taught</b> in a <i>baraita</i>: If <b>one’s produce was completely</b> harvested <b>from the field, but he does not allow people to enter into his field</b> to shorten their route, <b>what do people say about him?</b> They say: <b>What benefit does so-and-so have</b> by denying entry into his field? <b>And what harm are people causing him</b> by traversing his field? <b>Concerning him, the verse says: Do not be called wicked</b> by refraining <b>from being good.</b> The Gemara asks: <b>Is it</b> really <b>written: Do not be called wicked</b> by refraining <b>from being good?</b> There is no such verse in the Bible. The Gemara answers: <b>Yes,</b> an idea <b>like this</b> is found in the Bible, albeit in a slightly different form, as <b>it is written like this: “Withhold not good from him to whom it is due, when it is in the power of your hand to do it”</b> (Proverbs 3:27).
+
+### Part 21
+The Gemara further questions the statement of the <i>baraita</i> that Joshua instituted ten stipulations: <b>And is there nothing more</b> that Joshua instituted? <b>But there is</b> also the stipulation mentioned <b>by Rabbi Yehuda. As it is taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda says: During the time of manure removal, a person may remove his manure</b> from his property <b>into the public thoroughfare and pile it up</b> there for <b>a full thirty</b> days, <b>so that it should be trodden by the feet of people and by the feet of animals,</b> thereby improving its quality, as it was <b>on this condition</b> that <b>Joshua apportioned Eretz</b> Yisrael <b>to the Jewish people.</b>
+
+### Part 22
+The Gemara continues this line of questioning: <b>And</b> furthermore, <b>there are</b> the stipulations mentioned <b>by Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, as it is taught</b> in a <i>baraita</i>: <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, says: It is a stipulation of the court,</b> i.e., it is an automatic right even when not explicitly granted, <b>that this</b> owner of a bee colony <b>may enter the field of another and chop off the other’s branch</b> in order <b>to save his</b> bee <b>colony, and</b> afterward <b>he gives him</b> the <b>value of the other’s</b> severed <b>branch.</b> That is, if a beekeeper finds that one of his colonies has relocated to a tree in a neighboring field, he may bring it back to his own property together with the branch, provided that he later reimburses the owner of the tree.
+
+### Part 23
+The <i>baraita</i> continues: <b>And it is</b> also <b>a stipulation of the court that this</b> bearer of wine <b>pours out his wine</b> from his barrel <b>and</b> uses the barrel <b>to save another’s</b> spilling <b>honey,</b> which is more valuable than the wine, <b>and</b> then <b>he takes</b> the <b>value of his wine from the</b> saved <b>honey of the other,</b> as reimbursement. <b>And it is</b> likewise <b>a stipulation of the court that this</b> owner of wood <b>unloads his wood</b> from his donkey <b>and loads another’s flax,</b> which is more valuable than wood, if the load of flax is stranded on the road due to a mishap, <b>and</b> later <b>he takes</b> the <b>value of his wood from the</b> saved <b>flax of that other</b> individual. Once again, the reason is that it was <b>on this condition</b> that <b>Joshua apportioned Eretz</b> Yisrael <b>to the Jewish people.</b>
+
+### Part 24
+The Gemara explains why the stipulations mentioned by Rabbi Yehuda and Rabbi Yishmael are omitted by the earlier <i>baraita</i>: In the <i>baraita</i>, <b>we are not speaking of individual</b> opinions, but only of those that are accepted by all the Sages.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

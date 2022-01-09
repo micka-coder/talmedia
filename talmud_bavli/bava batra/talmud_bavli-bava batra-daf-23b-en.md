@@ -1,0 +1,27 @@
+
+### Part 1
+<strong>MISHNA:</strong> With regard to a dove <b>chick [<i>nippul</i>] that was found within fifty cubits</b> of a dovecote, <b>it belongs to the owner of the dovecote.</b> If it was found <b>beyond fifty cubits</b> from a dovecote, <b>it belongs to its finder.</b> In a case where it <b>was found between two dovecotes,</b> if it was <b>close to this one,</b> it belongs <b>to</b> the owner of this dovecote; if it was <b>close to that one,</b> it belongs <b>to</b> the owner of that dovecote. If it was <b>half and half,</b> i.e., equidistant from the two dovecotes, <b>the two</b> owners <b>divide</b> the value of the chick.
+
+### Part 2
+<strong>GEMARA:</strong> <b>Rabbi Ḥanina says:</b> When resolving an uncertainty with regard to the halakhic status of an item, e.g., a found item, if the status of the <b>majority</b> of like items indicates that it has one status <b>but</b> the item in question is <b>proximate</b> to a source that indicates otherwise, one <b>follows the majority. And even though</b> the <i>halakha</i> of <b>majority</b> applies <b>by Torah law and</b> the <i>halakha</i> <b>of proximity</b> also applies <b>by Torah law, even so the majority is preferable.</b>
+
+### Part 3
+<b>Rabbi Zeira raises an objection</b> from the Torah’s statement with regard to a murder victim where the identity of the murderer is unknown. In a case of this kind, the court measures the distances between the corpse and the nearby towns, in order to determine which town is closest and must consequently perform the rite of the heifer whose neck is broken. The verse states: <b>“And it shall be, that the city that is nearest to the slain man,</b> the Elders of that city shall take a heifer of the herd…and shall break the heifer’s neck” (Deuteronomy 21:3–4). <b>And</b> this town is chosen <b>even though there</b> might <b>be another</b> town <b>that is larger</b> in population <b>than it.</b> According to Rabbi Ḥanina, in a case of this kind one should follow the majority.
+
+### Part 4
+The Gemara answers: This verse is referring to a situation <b>where there is no</b> other town that is larger than that one. The Gemara asks: <b>And</b> still, if one follows the majority, why should the court follow the closest city? <b>Let us follow the majority of the world,</b> as most people are found elsewhere. The Gemara answers: This is referring <b>to</b> a case where the city <b>sits</b> in isolation <b>between mountains,</b> and therefore it is unlikely that the murderer arrived from elsewhere.
+
+### Part 5
+The Gemara continues to discuss the issue of majority as opposed to proximity. <b>We learned</b> in the mishna: With regard to a dove <b>chick that was found within fifty cubits</b> of a dovecote, <b>it belongs to the owner of the dovecote. And</b> as the mishna does not make a distinction between different cases, it indicates that this is the <i>halakha</i> <b>even though there is another</b> dovecote <b>that is larger than</b> the proximate one in terms of number of birds. This shows that closeness, not majority, is the determining factor. The Gemara answers: This is referring to a case <b>where there is no</b> other dovecote in the area.
+
+### Part 6
+The Gemara asks: <b>If so, say the latter clause</b> of the mishna: If it was found <b>beyond fifty cubits</b> from a dovecote, <b>it belongs to its finder. And if there is no</b> other dovecote in the area, it <b>certainly fell from that</b> dovecote. How, then, can it be given to the finder? The Gemara answers: <b>With what are we dealing here?</b> We are dealing <b>with</b> a chick that <b>hops</b> from place to place but does not yet fly. <b>As Rav Ukva bar Ḥama says:</b> With regard to <b>any</b> creature <b>that hops,</b> it <b>does not hop more than fifty</b> cubits. Consequently, any bird found within fifty cubits of a dovecote is assumed to have come from there. If it is farther away than that, it likely came from elsewhere or was dropped by travelers.
+
+### Part 7
+<b>Rabbi Yirmeya raises a dilemma:</b> If <b>one leg</b> of the chick was <b>within fifty cubits</b> of the dovecote, <b>and one leg</b> was <b>beyond fifty cubits, what is</b> the <i>halakha</i>? The Gemara comments: <b>And it was for</b> his question about <b>this</b> far-fetched scenario <b>that they removed Rabbi Yirmeya from the study hall,</b> as he was apparently wasting the Sages’ time.
+
+### Part 8
+The Gemara further suggests: <b>Come</b> and <b>hear</b> the mishna: In a case where it <b>was found between two dovecotes,</b> if it was <b>close to this one,</b> it belongs <b>to</b> the owner of this dovecote; if it was <b>close to that one,</b> it belongs <b>to</b> the owner of that dovecote. The Gemara comments: <b>And</b> this is the <i>halakha</i> <b>even though one of them is greater</b> in number of birds <b>than the other one.</b> Apparently, one rules based on proximity, not majority. The Gemara explains: <b>With what are we dealing here?</b> We are dealing with a situation <b>where the two</b> dovecotes <b>are equal</b> in size. The Gemara asks: <b>But</b> even so, why should one follow the closer dovecote? <b>Let us follow the majority of the world,</b> as there are many other dovecotes besides these, and the number of doves they contain is greater. The Gemara responds: <b>With what are we dealing here?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Les Sages ont enseigne : Quel</b> est le sens lorsque <b>le verset dit</b> apres le sacrifice de l'offrande : <b>"Et il lui fera boire</b> l'eau" (Nombres 5:27) ? <b>Mais n'est-il pas deja precise : <b>Et il fera</b> la femme <b>boire</b> l'eau d'amertume qui provoque la malediction" (Nombres 5:24) ? Le <i>baraita</i> repond : La repetition enseigne <b>que si le rouleau etait</b> deja <b>efface et</b> qu'ensuite la femme <b>dit : je ne boirai pas, elle est forcee [<i>meârerin</i>] de boire contre sa volonte.</b> C'est <b>la declaration de Rabbi Akiva.</b>
+
+### Partie 2
+<b>Rabbi Shimon dit : Quel</b> est le sens lorsque <b>le verset dit :</b> "Et le pretre prendra une poignee de l'offrande, comme partie commemorative, et la brulera sur l'autel, <b>et ensuite il fera</b> la femme <b>boire</b> l'eau" (Nombres 5:26) ? <b>Mais n'est-il pas deja dit</b> precedemment : <b>"Et il fera</b> la femme <b>boire</b> (Nombres 5:24) ? <b>Au contraire,</b> ce verset indique que la <i>sota</i> ne recoit l'eau amere a boire qu'<b>apres avoir accompli toutes les actions enoncees ci-dessus</b>, c'est-a-dire effacer le parchemin, sacrifier l'offrande et faire le serment. Par consequent, ce verset <b>enseigne</b> que <b>trois choses l'empechent</b> de boire : Elle ne boit pas <b>jusqu'a ce que la poignee soit sacrifiee, et jusqu'a ce que le parchemin soit efface, et jusqu'a ce qu'elle accepte le serment sur elle-meme.</b>
+
+### Partie 3
+La Guemara developpe : Elle ne boit pas <b>jusqu'a ce que la poignee soit sacrifiee. Rabbi Shimon</b> se conforme <b>a son</b> raisonnement</b> enonce precedemment, <b>puisqu'il dit</b> que le pretre <b>sacrifie son offrande et la force ensuite a boire.</b>
+
+### Partie 4
+La Guemara s'interroge sur la deuxieme condition : Elle ne boit pas <b>jusqu'a ce que le rouleau soit efface.</b> Pourquoi la <i>baraita</i> doit-elle le preciser ? <b>Mais qu'est-ce</b> qu'il pourrait <b>lui donner a boire</b> si le parchemin n'etait pas encore efface dans l'eau ? <b>Rav Ashi dit : Non,</b> cette <i>halakha</i> <b>est necessaire pour</b> un cas <b>ou</b> le parchemin a ete efface, mais <b>l'impression</b> de l'encre <b>est</b> encore <b>discernable</b> sur le parchemin. La femme ne boit pas avant que le parchemin ne soit totalement efface.
+
+### Partie 5
+La Guemara discute de la troisieme condition : Elle ne boit pas <b>jusqu'a ce qu'elle accepte le serment sur elle-meme.</b> On pourrait deduire de cette declaration que <b>c'est</b> seulement <b>que</b> elle <b>ne boit pas</b> avant d'accepter le serment ; <b>mais,</b> le parchemin <b>est ecrit pour elle</b> avant qu'elle accepte le serment. <b>Mais Rava n'a-t-il pas dit :</b> En ce qui concerne <b>le parchemin d'une <i>sota</i> qui a ete ecrit avant qu'elle n'accepte le serment sur elle-meme,</b> celui qui l'a ecrit <b>n'a rien fait,</b> et le parchemin est rendu invalide. La Guemara repond : <b>Cela a ete cite sans raison,</b> car en fait le parchemin n'est meme pas ecrit avant qu'elle accepte le serment sur elle-meme, et rien ne doit etre deduit.
+
+### Partie 6
+La Gemara demande : <b>Par rapport a quoi</b> les rabbins et Rabbi Shimon <b>sont-ils en desaccord</b> dans la mishna ? La Guemara repond : <b>Trois versets sont ecrits</b> qui ont trait a la consommation de l'eau amere : <b>La premiere</b> occurrence du terme est dans le verset : <b>Et il fera</b> la femme <b>boire"</b> (Nombres 5:24) ; la deuxieme : <b>Et ensuite il fera</b> la femme <b>boire</b> l'eau" (Nombres 5:26) ; et <b>la derniere</b> occurrence du terme est dans le verset : <b>"Et il la fera boire"</b> (Nombres 5:27).
+
+### Partie 7
+<b>Les rabbins soutiennent</b> que <b>la premiere</b> occurrence du terme : <b>"Et il fera</b> la femme <b>boire,"</b> est ecrite <b>pour</b> enseigner le <i>halakha</i> <b>lui-meme,</b> c'est-a-dire <b>que</b> le pretre la <b>forcera d'abord a boire et ensuite sacrifiera son offrande.</b> La deuxieme occurrence : <b>"Et ensuite il fera</b> la femme <b>boire,</b> est necessaire</b> pour enseigner <b>que</b> tant que <b>l'impression</b> de l'ecriture <b>est</b> encore <b>discernable,</b> la <i>sota</i> ne recoit pas l'eau amere a boire. Le troisieme verset, <b>la derniere</b> occurrence du terme : <b>"Et il la fera boire"</b>, enseigne <b>que si le parchemin a ete efface et</b> alors la femme <b>dit : je ne boirai pas, elle est forcee de boire contre sa volonte.</b>
+
+### Partie 8
+<b>Et Rabbi Shimon soutient</b> que le second verset : <b>"Et ensuite il fera</b> la femme <b>boire</b> l'eau" (Nombres 5:26), est ecrit <b>pour</b> enseigner le <i>halakha</i> <b>lui-meme,</b> c'est-a-dire <b>que le pretre commence par <b>sacrifier son offrande de repas et ensuite la force a boire. La premiere</b> occurrence de ce terme : <b>"Et il fera</b> la femme <b>boire,"</b> enseigne <b>que s'il l'a forcee a boire et</b> seulement <b>ensuite sacrifie son offrande de repas,</b> l'offrande <b>est</b> neanmoins <b>valide. La derniere</b> occurrence du terme : <b>"Et il la fera boire,</b> enseigne <b>que si</b> le <b>scroll a ete efface et</b> alors <b>elle a dit : Je ne boirai pas, elle est obligee de boire contre sa volonte.</b>
+
+### Partie 9
+La Guemara explique l'avis des rabbins : <b>Et les rabbins</b> repondraient a Rabbi Shimon que le <b>verset ne commence pas</b> la discussion <b>avec</b> une <i>halakha</i> qui n'est applicable qu'<b>apres coup,</b> et donc la mention initiale de la boisson fait reference au moment opportun pour le rituel.
+
+### Partie 10
+La Guemara demande : <b>Mais Rabbi Akiva</b> soutient-il en fait <b>que la femme est <b>forcee de boire contre sa volonte ? Mais n'est-il pas enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i> 2:3) que <b>Rabbi Yehuda dit : Un crochet [<i>kelabus</i>]</b> fait <b>de fer est</b> place de force <b>dans sa bouche,</b> de sorte <b>que si le parchemin etait efface et qu'elle disait : Je ne boirai pas, elle est forcee de boire contre sa volonte. Rabbi Akiva dit :</b> Il n'est pas necessaire de la forcer a boire. <b>Ne faut-il pas</b> la forcer a boire l'eau <b>seulement</b> afin <b>d'evaluer sa</b> fidelite ? <b>Et n'est-elle pas etablie comme</b> ayant ete <b>evaluee</b> lorsqu'elle refuse de boire, puisqu'elle admet essentiellement sa culpabilite ? <b>Au contraire,</b> la declaration de Rabbi Akiva doit etre comprise comme suit : <b>Jusqu'a ce que la poignee soit sacrifiee, elle peut revenir</b> sur sa decision de boire l'eau amere ; cependant, <b>une fois la poignee sacrifiee, elle ne peut pas revenir</b> sur sa decision de boire.
+
+### Partie 11
+La Gemara demande : <b>Mais selon votre raisonnement</b> en explication de la declaration de Rabbi Akiva, <b>cette</b> explication <b>elle-meme devrait vous poser une difficulte.</b> Pourquoi <b>ne peut-elle pas se retracter</b> de sa decision <b>une fois la poignee sacrifiee ? Et n'est-elle pas etablie comme</b> ayant ete <b>evaluee</b> lorsqu'elle refuse de boire ?
+
+### Partie 12
+La Guemara repond : Ce n'est <b>pas difficile ; ce</b> cas, ou elle est forcee de boire, fait reference a une situation <b>ou elle se retracte</b> sa decision de boire <b>par peur,</b> car son refus n'est pas considere comme un aveu de culpabilite, et il est possible que si elle boit, elle soit trouvee non souillee. <b>Et ce</b> cas, ou elle ne boit pas, se refere a une situation <b>ou elle se retracte</b> sa decision <b>dans un etat de</b> bonne <b>sante.</b> Comme elle ne semble pas avoir peur, son refus est considere comme un aveu de culpabilite.
+
+### Partie 13
+<b>Et voici ce que</b> Rabbi Akiva <b>dit : </b> Dans <b>tous les cas</b> ou elle revient sur sa decision de boire <b>dans un etat de</b> bonne <b>sante, elle ne boit pas du tout. </b> En ce qui concerne une <i>sota</i> qui se retracte de sa decision <b>en raison de la peur,</b> si elle se retracte <b>avant que la poignee soit sacrifiee, alors que le parchemin n'a pas encore ete efface ; ou</b> meme si le <b>parchemin etait</b> deja <b>efface,</b> puisque <b>les pretres ont agi incorrectement en l'effacant</b> auparavant ; <b>elle peut se retracter</b> sa decision. <b>Une fois la poignee sacrifiee, auquel cas</b> les <b>pretres ont agi correctement lorsqu'ils ont efface</b> le parchemin, <b>elle ne peut plus revenir</b> sur sa decision, et elle est contrainte de boire contre sa volonte.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

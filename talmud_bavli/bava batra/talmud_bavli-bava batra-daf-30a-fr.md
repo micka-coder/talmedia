@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>qui a dit a un autre : Je</b> vous <b>vends par la presente tout</b> des <b>biens</b> que je possede <b>de la maison de bar Sisin. Il y avait une certaine</b> parcelle de <b>terrain qui s'appelait : De la maison de bar Sisin.</b> Le vendeur <b>dit a</b> l'acheteur : <b>Cette</b> parcelle de terre que je possede n'est <b>pas</b> reellement <b>de la maison de bar Sisin, et elle est</b> simplement <b>appelee : De la maison de bar Sisin,</b> et elle n'est pas incluse dans la vente. <b>Ils sont venus devant Rav Nahman</b> pour un jugement, et <b>il a etabli</b> le terrain <b>en possession de l'acheteur. Rava dit a</b> Rav Nahman : Est-ce la la <i>halakha</i> ? </b> La <i>halakha</i> n'est-elle pas que <b>la charge de la preuve repose sur le demandeur,</b> et que le terrain doit rester en possession du vendeur ?
+
+### Partie 2
+La Gemara poursuit : Il y a <b>une difficulte</b> d'une declaration <b>de Rava a</b> une autre declaration <b>de Rava,</b> et il y a egalement <b>une difficulte</b> d'une declaration <b>de Rav Nahman a</b> une autre declaration <b>de Rav Nahman,</b> car dans le premier cas, ou le demandeur declare avoir ete dans un endroit eloigne, Rav Nahman a statue en faveur du demandeur, et Rava a statue en faveur du possesseur ; tandis que dans le second cas, celui de la propriete de bar Sisin, leurs avis sont inverses.
+
+### Partie 3
+La Gemara repond : La contradiction entre une declaration <b>de Rava et</b> une autre declaration <b>de Rava</b> n'est <b>pas difficile,</b> car <b>la,</b> dans le cas de la propriete de bar Sisin, le <b>vendeur</b> avait ete <b>etabli</b> comme ayant le terrain <b>dans sa propriete,</b> c'est pourquoi Rava statue en sa faveur. Mais <b>ici,</b> dans le cas ou le demandeur declare avoir ete dans un endroit eloigne, l'<b>acheteur</b> est <b>etabli</b> comme ayant la maison <b>dans sa propriete.</b>
+
+### Partie 4
+La contradiction entre une declaration <b>du Rav Nahman et</b> l'autre declaration <b>du Rav Nahman</b> n'est <b>pas difficile non plus,</b> car la, <b>puisque</b> le vendeur lui a <b>dit :</b> Je te vends par la presente tous les biens que je possede <b>de la maison de bar Sisin, et</b> cette parcelle de terre est <b>appelee : De la maison de bar Sisin,</b> il lui <b>appartient de reveler que</b> la parcelle litigieuse n'est <b>pas de la maison de bar Sisin. Mais ici,</b> dans le cas ou le demandeur declare s'etre rendu dans un endroit eloigne, il ne devrait pas y avoir</b> de <b>difference</b> avec un cas <b>ou</b> le possesseur est <b>detenteur d'un document</b> comme preuve qu'il a achete la maison. <b>Ne pourrions-nous pas</b> alors lui <b>dire :</b> D'abord <b>ratifier votre document, et</b> seulement ensuite etre <b>etabli dans</b> la <b>propriete ?</b> Dans ce cas egalement, puisque sa propriete presumee est a la place d'un document, il doit clarifier la question par le biais de temoins.
+
+### Partie 5
+Il y avait <b>une certaine</b> personne <b>qui disait a une autre : Que veux-tu de cette maison</b> de moi ? Le possesseur lui <b>a dit : Je te l'ai achetee et j'ai</b> travaille et <b>profite d'elle</b> pendant <b>les annees</b> necessaires pour etablir la <b>presomption</b> de propriete. Le demandeur lui a <b>dit</b> : <b>J'etais dans</b> les <b>marches exterieurs,</b> et j'ignorais que vous residiez dans ma maison, et je n'ai donc pas formule de protestation, de sorte que votre profit n'etablit pas la presomption de propriete. Le possesseur lui <b>dit : Mais j'ai des temoins que chaque annee vous veniez</b> ici pendant <b>trente jours</b> et que vous aviez l'occasion de savoir que je residais dans votre maison et de deposer une protestation. Le demandeur lui <b>a dit : J'etais occupe a</b> mes affaires dans les <b>marches</b> pendant ces <b>trente jours. Rava dit : Une personne est apte</b> a etre <b>occupee</b> par des affaires <b>sur la place du marche pendant la totalite</b> de <b>trente jours,</b> et accepta sa demande.
+
+### Partie 6
+Il y avait <b>une certaine</b> personne <b>qui disait a une autre : Que veux-tu de cette terre</b> de la mienne ? Le possesseur lui <b>repondit : Je l'ai achete a untel, qui m'a dit qu'il l'avait achete a toi.</b> Le demandeur lui <b>dit : Ne concedez vous pas</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

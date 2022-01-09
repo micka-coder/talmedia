@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>enseigner</b> la meme phrase : <b>Un qui a prete a un autre</b> sur la base <b>de la garantie,</b> ce qui indique que la garantie a ete donnee au moment du pret ? <b>Au contraire,</b> la Gemara propose une resolution differente : Ce n'est <b>pas difficile. Ici,</b> la <i>baraita</i> fait reference a un cas <b>ou il lui a prete de l'argent,</b> alors que <b>la,</b> la mishna fait reference a une situation <b>ou il lui a prete des produits.</b> Comme les produits vont se gater, le preteur beneficie de l'accord, car il recevra des produits plus frais en retour. Par consequent, il est considere comme un depositaire remunere pour la garantie.
+
+### Partie 2
+La Gemara souleve une difficulte : <b>Mais du fait</b> que la derniere clause</b> de la mishna <b>enseigne</b> que <b>Rabbi Yehuda dit : Celui qui a prete</b> un autre <b>argent</b> est <b>un depositaire non paye,</b> alors que <b>celui qui a prete</b> un autre <b>produit</b> est <b>un depositaire paye, par deduction</b> on peut conclure que selon <b>la premiere <i>tanna</i> il n'y a pas de difference</b> entre celui qui prete de l'argent et celui qui prete des produits. Si tel est le cas, la resolution proposee ne correspond pas au texte.
+
+### Partie 3
+La Gemara repond : <b>L'ensemble</b> de la mishna <b>est</b> conforme a l'avis de <b>Rabbi Yehuda, et</b> la mishna <b>est incomplete et voici ce qu'elle enseigne : Celui qui a prete a</b> un autre sur la base <b>d'une garantie est un depositaire remunere. Dans quel</b> cas cette declaration est-elle dite ? Lorsqu'il lui a prete des produits. Mais</b> si <b>il lui a prete de l'argent,</b> il est <b>un depositaire non paye. Comme le dit Rabbi Yehuda : Celui qui a prete</b> un autre <b>argent</b> est <b>un depositaire non paye</b> en ce qui concerne la garantie, alors que <b>celui qui a prete des produits</b> est <b>un depositaire paye.</b>
+
+### Partie 4
+La Gemara souleve une difficulte : <b>Si c'est le cas,</b> il s'avere que <b>la mishna est etablie non pas conformement</b> a l'opinion de <b>Rabbi Akiva.</b> Ceci est problematique, car la plupart des Sages de la mishna etaient les eleves de Rabbi Akiva, et les <i>mishnayot</i> anonymes sont generalement presumees suivre ses decisions. <b>Il est plutot clair</b> que <b>la mishna n'est pas en accord</b> avec l'opinion de <b>Rabbi Eliezer.</b>
+
+### Partie 5
+La Gemara suggere : <b>Disons</b> que le differend entre Rabbi Akiva et Rabbi Eliezer ne s'applique que <b>dans</b> un cas <b>ou</b> la <b>garantie n'est pas egale</b> a <b>la valeur monetaire</b> du pret, <b>et ils sont en desaccord par rapport</b> a une declaration <b>de Shmuel. Comme le dit Shmuel :</b> En ce qui concerne <b>celui qui prete mille dinars a un autre et</b> l'emprunteur <b>met devant</b> le preteur comme garantie <b>pour</b> le pret <b>le manche d'une faucille,</b> qui ne vaut qu'une petite fraction du pret, neanmoins, si <b>la faucille est perdue, les mille dinars sont perdus. </b> La Guemara suggere que Rabbi Akiva serait d'accord avec cette decision, alors que Rabbi Eliezer serait en desaccord avec elle.
+
+### Partie 6
+La Guemara rejette cette suggestion : <b>Si</b> le cas est un cas <b>ou</b> le <b>collateral n'est pas egal</b> a <b>la somme d'argent</b> constituant le pret, <b>tout le monde soutient</b> que la <i>halakha</i> est <b>non</b> conforme a l'avis <b>de Shmuel. Mais ici</b> la dispute se refere <b>a</b> une situation <b>ou</b> la garantie est <b>egale au montant de l'argent</b> constituant le pret, <b>et ils sont en desaccord par rapport</b> a une declaration <b>de Rabbi Yitzhak.</b>
+
+### Partie 7
+<b>Comme le dit Rabbi Yitzhak : D'ou</b> provient-il <b>qu'un creancier acquiert une garantie</b> qui lui a ete donnee et est considere comme son proprietaire tant que l'objet est en sa possession ? Cela provient d'un verset, <b>comme il est dit :</b> "Tu lui rendras le gage au coucher du soleil pour qu'il dorme dans son vetement et te benisse ; <b>et ce sera une justice pour toi</b> devant le Seigneur ton Dieu" (Exode 24:13). Rabbi Yitzhak en deduit : <b>Si</b> le creancier <b>n'acquiert pas la garantie,</b> alors <b>d'ou vient la droiture</b> impliquee dans sa restitution ? Dans ce cas, le creancier ne cederait rien de ce qui lui appartient. <b>D'ici</b> on deduit <b>que le creancier acquiert le bien en garantie.</b>
+
+### Partie 8
+La Gemara rejette cette suggestion : <b>Et</b> pouvez-vous <b>le comprendre</b> de cette facon ? On peut <b>dire que Rabbi Yitzhak a enonce</b> cette <i>halakha</i> dans un cas <b>ou</b> il <b>a pris sa garantie non pas au moment de son pret</b> mais ulterieurement, afin de recouvrer sa dette. <b>Mais est-ce que</b> Rabbi Yitzhak <b>a dit</b> cette decision dans une situation ou il <b>a pris sa garantie au moment de son pret ?</b>
+
+### Partie 9
+<b>Au contraire,</b> si <b>il a pris sa garantie pas au moment de son pret, tout le monde tient</b> conformement a l'avis <b>de Rabbi Yitzhak. Et ici</b> il est question d'un cas <b>ou il a pris sa garantie au moment de son pret, et</b> Rabbi Eliezer et Rabbi Akiva <b>sont en desaccord en ce qui concerne</b> le cas d'un <b>bailleur d'un objet perdu. Comme il a ete dit</b> que les <i>amoraim</i> etaient en desaccord concernant la responsabilite du <b>bailli d'un objet perdu.</b> Si quelqu'un a trouve un objet perdu et qu'il est par la suite perdu ou vole chez lui, quelle responsabilite porte-t-il envers le proprietaire ? <b>Rabba a dit :</b> On considere que cet individu est <b>comme un bailli non remunere. Rav Yosef a dit : </b> Il est <b>comme un depositaire remunere.</b>
+
+### Partie 10
+La Guemara suggere : <b>Disons</b> que l'avis <b>du Rav Yossef est</b> l'objet d'un differend entre <b><i>tannaim</i>.</b> Il ne fait aucun doute que l'avis de Rabba fait l'objet d'un differend entre <i>tannaim</i>, car l'avis de Rabbi Akiva ne peut etre concilie avec sa decision : Si celui qui prend une garantie pour son pret est considere comme un bailli paye, il en va certainement de meme pour celui qui fait des pieds et des mains pour sauvegarder un objet perdu. La Guemara demande s'il existe un moyen d'expliquer la decision de Rav Yosef en accord avec les opinions des deux <i>tannaim</i>, ou s'il doit accepter que Rabbi Eliezer conteste son opinion. La Guemara repond : <b>Non,</b> il est possible <b>en ce qui concerne un depositaire pour un objet perdu</b> que <b>tout le monde tienne</b> conformement a l'avis <b>de Rav Yosef,</b> meme Rabbi Eliezer. <b>Et ici,</b> dans le <i>baraita</i>,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

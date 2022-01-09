@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Rabbi Ila a dit : Et quelle</b> est la <i>halakha</i> <b>si</b> une personne <b>dit a une autre</b> avant de lui vendre un champ : <b>Ce champ que je te vends</b> maintenant, <b>lorsque je le racheterai</b> <b>a toi, qu'il soit consacre ? Est-ce que</b> le champ <b>n'est pas consacre</b> lorsqu'il est rachete ? De la meme maniere, une femme peut consacrer son futur ouvrage, meme si la saintete ne peut pas actuellement prendre effet.
+
+### Partie 2
+<b>Rabbi Yirmeya s'oppose a cette</b> comparaison : <b>Est-ce que</b> les deux cas sont <b>comparables ?</b> Quand une personne dit : Que <b>ce champ que je te vends</b> soit maintenant consacre lorsque je te le rachete, <b>maintenant</b> au moins le champ <b>est</b> encore <b>en sa possession,</b> et il peut donc le consacrer maintenant, en stipulant que la consecration ne doit prendre effet que lorsqu'il redeviendra sa propriete. Quant a la <b>femme,</b> en revanche, est-il actuellement <b>en son pouvoir de consacrer son ouvrage ?</b> Actuellement, il ne lui appartient pas. <b>Ce</b> cas <b>n'est comparable qu'a</b> celui de <b>quelqu'un qui dit a un autre :</b> En ce qui concerne <b>ce champ que je t'ai vendu</b> dans le passe, <b>lorsque je le racheterai</b> <b>a toi, qu'il soit consacre.</b> Dans ce cas, <b>le champ est-il</b> consacre <b>lorsqu'il est rachete ?
+
+### Partie 3
+<b>Rav Pappa s'oppose a cette</b> comparaison : <b>Est-ce que</b> les cas sont <b>comparables ? Dans</b> le cas de <b>la vente</b> d'un champ, <b>la question est tranchee,</b> c'est-a-dire qu'il est evident que le champ appartient absolument a son nouveau proprietaire, l'acheteur. En revanche, <b>dans</b> le cas d'une <b>femme, la question est-elle claire et nette ?</b> Meme si le mari a des droits sur le travail manuel de sa femme, il ne possede pas son corps. Par consequent, <b>cette</b> cas de la femme <b>n'est comparable qu'a</b> celui d'une personne <b>qui dit a une autre :</b> En ce qui concerne <b>ce champ que je t'ai donne en gage, quand je le racheterai</b> de toi, qu'il soit consacre.</b> Ici, le proprietaire conserve la possession du champ lui-meme, mais une autre personne jouit du droit sur ses fruits. Dans ce cas, <b>le champ n'est-il pas consacre</b> lorsqu'il est rachete ? Ici aussi, la femme conserve la propriete de son corps et elle peut consacrer son ouvrage, en stipulant que la consecration ne doit prendre effet qu'apres son divorce.
+
+### Partie 4
+<b>Rav Sheisha, fils de Rav Idi, s'oppose a cette</b> comparaison : <b>Est-ce que</b> les cas sont <b>comparables ?</b> Dans le cas d'un <b>champ, il est dans</b> le <b>pouvoir du proprietaire de le racheter</b> immediatement en remboursant sa dette. Mais en ce qui concerne <b>une femme,</b> est-il <b>en son pouvoir de divorcer</b> quand elle le souhaite ? Par consequent, <b>ce cas</b> n'est comparable qu'a</b> celui de <b>quelqu'un qui a dit a un autre :</b> En ce qui concerne <b>ce champ que je t'ai promis pour dix ans, quand je te le racheterai, qu'il soit consacre.</b> Dans ce cas, meme si le proprietaire ne peut pas racheter le champ pendant dix ans, <b>n'est-il pas consacre</b> une fois rachete ?
+
+### Partie 5
+<b>Rav Ashi s'oppose a cette</b> comparaison : <b>Les cas sont-ils</b> <b>comparables ? La,</b> dans le cas d'un champ, il y a un delai <b>fixe</b> de dix ans. Mais dans le cas d'une <b>femme, y a-t-il un delai fixe</b>, pour qu'elle puisse savoir a l'avance quand elle sera divorcee et liberee de la juridiction de son mari ?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

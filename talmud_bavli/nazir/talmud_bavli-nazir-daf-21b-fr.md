@@ -1,0 +1,77 @@
+
+### Partie 1
+<b>Et</b> la Gemara <b>souleve une contradiction</b> contre cela. Si l'on dit : <b>Ma main est une nazirite, et</b> de meme, s'il a dit : <b>Mon pied est nazirite, il n'a rien dit</b> de consequent. En revanche, s'il a dit : <b>Ma tete est une nazirite,</b> ou : <b>Mon foie est un nazirite, il est un nazirite. Voici le principe :</b> Si quelqu'un a accepte la nazireite par le biais d'une <b>entite dont depend la vie,</b> c'est-a-dire un membre ou une partie du corps sans laquelle il ne peut pas survivre, <b>il est nazirite.</b> A l'inverse, s'il a mentionne une partie du corps qui n'est pas essentielle a la vie, il n'est pas nazirite. Dans ce cas, comme il a fait reference a ses cheveux, qui ne sont certainement pas une partie vitale pour lui, il ne devrait pas etre un nazirite.
+
+### Partie 2
+<b>Rav Yehuda dit</b> que cela signifie <b>qu'il a dit comme ceci;</b> c'est ce qu'il a voulu dire : <b>Que ma bouche soit comme sa bouche</b> en ce qui concerne l'abstention <b>de vin, et mes cheveux</b> soient <b>comme ses cheveux</b> en ce qui concerne l'abstention <b>de les couper</b>.
+
+### Partie 3
+§ La mishna a enseigne que si une femme dit : <b>Je suis par la presente une nazirite, et que son mari a entendu et dit : Et moi, il ne peut pas annuler</b> son vœu. <b>Un dilemme a ete souleve devant</b> les Sages : Lorsque <b>un mari</b> annule le vœu de sa femme, est-ce qu'il <b>uprovoque</b> le vœu de sa femme, faisant comme si elle n'avait jamais fait de vœu, <b>ou peut-etre</b> qu'il ne fait que <b>severser</b> son vœu a partir de ce moment-la, mais son vœu etait toujours en vigueur jusqu'a ce qu'il l'annule ? La Guemara demande : <b>Quelle difference y a-t-il</b> resultant de ce dilemme ?
+
+### Partie 4
+La Guemara explique que la difference se situe <b>par rapport a une femme qui a fait le vœu d'etre nazirite, et une autre</b> femme <b>entend et dit : Et moi, et le mari de la premiere</b> femme <b>ont entendu et annule son</b> vœu. <b>Si tu dis</b> que le mari <b>releve</b> entierement le vœu, le vœu de <b>cette</b> deuxieme femme doit <b>egalement etre dissous,</b> car elle s'est associee a un vœu inexistant. <b>Et si vous dites</b> qu'il le <b>selectionne</b> a partir de ce point, le vœu de sa femme <b>est dissous,</b> mais la <b>autre</b> femme reste <b>liee</b> par son vœu, car le premier vœu etait intact lorsqu'elle s'y est associee. <b>Quelle est, alors, la reponse a ce dilemme ?
+
+### Partie 5
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> la declaration de la mishna : Si elle a dit : <b>Je suis par la presente une nazirite, et que son mari a entendu et dit : Et moi, il ne peut annuler</b> son voeu. <b>Et s'il vous vient a l'esprit</b> que le <b>mari rompt</b> le vœu a partir de ce moment, <b>qu'il annule</b> le vœu <b>pour sa femme et il</b> restera <b>lie</b> par son vœu, puisque si le vœu n'est pas annule retroactivement, son vœu etait intact lorsqu'il s'y est associe. <b>Au contraire,</b> ne doit-on pas <b>conclure de</b> la mishna que <b>le mari deracine</b> entierement le vœu, ce qui signifie qu'il deracinerait egalement son propre vœu en annulant le sien, et c'est pourquoi il ne peut le faire ?
+
+### Partie 6
+La Gemara refute cet argument : <b>Non ; en fait,</b> on peut dire que le mari <b>sevit</b> le vœu a partir de ce moment-la. <b>Et</b> s'il n'y avait pas d'autres points a considerer, <b>a juste titre</b> la mishna aurait du enseigner <b>qu'il peut annuler</b> son vœu <b>pour elle ; et c'est la raison pour laquelle il ne peut pas l'annuler</b> : <b>Puisqu'il lui a dit : Et moi,</b> il est <b>considere comme celui qui a dit : Elle est maintenue pour toi,</b> et une fois que le mari a maintenu le vœu de sa femme, il ne peut plus l'annuler. Par consequent, <b>s'il a demande</b> de faire dissoudre <b>son maintien</b> par un Sage, <b>il peut annuler</b> son vœu, <b>et sinon, il ne peut pas l'annuler</b>. Par consequent, la decision de la mishna ne resout pas le dilemme.
+
+### Partie 7
+La Gemara cite une autre mishna (24a) : <b>Venez</b> et <b>entendez :</b> En ce qui concerne <b>une femme qui a fait le vœu d'etre nazirite et a separe son animal</b> a cet effet (voir Nombres 6 : 13""14), <b>et par la suite son mari a annule son</b> vœu, ce qui signifie qu'elle n'est plus obligee d'apporter une offrande, <b>si l'animal etait le sien,</b> qu'il lui avait donne, c'est comme s'il n'avait jamais ete consacre du tout, et <b>il sortira et paitra parmi</b> le <b>block</b> comme un animal ordinaire, non consacre, jusqu'a ce qu'il devienne tache. <b>Et si l'animal etait a elle,</b> et qu'il etait designe pour <b>un sacrifice pour le peche, il doit</b> etre place en isolement pour qu'il <b>merite,</b> conformement a la <i>halakha</i> generale selon laquelle on doit laisser mourir un sacrifice pour le peche qui ne peut etre sacrifie.
+
+### Partie 8
+La Guemara explique la difficulte a partir de cette mishna : <b>Et s'il vous vient a l'esprit</b> que <b>le mari deracine</b> le vœu, l'offrande pour le peche devra <b>etre liberee comme un animal non sacre</b>, conformement a la <i>halakha</i> d'une offrande pour le peche d'un nazirite dont le vœu a ete annule (31a). <b>Au contraire,</b> faut-il <b>ne pas conclure de</b> la mishna que <b>le mari</b> ne fait que <b>annuler</b> le vœu, ce qui signifie qu'elle etait nazirite lorsqu'elle a separe l'animal, et qu'il est donc consacre ?
+
+### Partie 9
+La Gemara rejette cette preuve : <b>En fait, je</b> pourrais <b>vous dire</b> que le <b>mari deracine</b> le vœu, <b>et c'est la raison</b> de la decision ci-dessus : <b>Puisqu'elle ne necessite pas d'expiation,</b> puisque le vœu n'est plus en vigueur, cet animal <b>est</b> traite <b>comme une offrande pour le peche dont les proprietaires sont morts, et</b> il <b>est appris</b> comme une tradition <b>qu'une offrande pour le peche dont les proprietaires sont morts doit</b> etre laissee a <b>mourir.</b>
+
+### Partie 10
+La Guemara continue de citer des sources pertinentes. <b>Venez</b> et <b>entendez</b> la mishna suivante (23a) : En ce qui concerne <b>une femme qui a fait vœu d'etre nazirite et</b> neanmoins <b>buvait du vin et se rendait rituellement impure</b> par contact <b>avec les morts, elle encourt les quarante</b> coups de fouet pour avoir viole un interdit de la Torah. La Guemara analyse cette mishna : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si l'on dit que</b> son <b>mari n'a pas annule son</b> vœu, <b>necessite-t-on de dire</b> qu'elle est passible de recevoir des fouets ? Apres tout, tout nazirite qui transgresse son vœu encourt des coups de fouet.
+
+### Partie 11
+<b>Au contraire,</b> il <b>est evident</b> que le <b>mari a annule son</b> vœu. <b>Et s'il vous vient a l'esprit</b> que le <b>mari deracine</b> le vœu de sa femme, <b>pourquoi</b> encourt-elle les quarante</b> coups de fouet ? C'est comme si elle n'avait jamais fait de vœu du tout. <b>Au contraire,</b> faut-il <b>ne pas conclure de</b> la mishna que le <b>mari rompt</b> le vœu, et donc qu'elle est responsable de sa transgression anterieure ?
+
+### Partie 12
+La Gemara refute cet argument : <b>En fait, je</b> pourrais <b>vous dire</b> que le <b>mari deracine</b> le vœu, <b>et</b> la raison pour laquelle la mishna enseigne de cette maniere est <b>due</b> au fait <b>que</b> le <i>tanna</i> <b>enseigne</b> dans <b>la derniere clause</b> de la mishna : Si le <b>mari a annule son</b> vœu <b>et qu'elle ne le savait pas, et qu'elle buvait du vin et se rendait rituellement impure</b> par contact <b>avec les morts, elle n'encourt pas les quarante</b> coups de fouet, malgre son intention de pecher, car elle n'a pas commis de transgression en pratique.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC
+### Partie 1
+<b>Et</b> la Gemara <b>souleve une contradiction</b> contre cela. Si l'on dit : <b>Ma main est une nazirite, et</b> de meme, s'il a dit : <b>Mon pied est nazirite, il n'a rien dit</b> de consequent. En revanche, s'il a dit : <b>Ma tete est une nazirite,</b> ou : <b>Mon foie est un nazirite, il est un nazirite. Voici le principe :</b> Si quelqu'un a accepte la nazireite par le biais d'une <b>entite dont depend la vie,</b> c'est-a-dire un membre ou une partie du corps sans laquelle il ne peut pas survivre, <b>il est nazirite.</b> A l'inverse, s'il a mentionne une partie du corps qui n'est pas essentielle a la vie, il n'est pas nazirite. Dans ce cas, comme il a fait reference a ses cheveux, qui ne sont certainement pas une partie vitale pour lui, il ne devrait pas etre un nazirite.
+
+### Partie 2
+<b>Rav Yehuda dit</b> que cela signifie <b>qu'il a dit comme ceci;</b> c'est ce qu'il a voulu dire : <b>Que ma bouche soit comme sa bouche</b> en ce qui concerne l'abstention <b>de vin, et que mes cheveux</b> soient <b>comme ses cheveux</b> en ce qui concerne l'abstention <b>de les couper</b>.
+
+### Partie 3
+§ La mishna a enseigne que si une femme dit : <b>Je suis par la presente une nazirite, et que son mari a entendu et dit : Et moi, il ne peut pas annuler</b> son vœu. <b>Un dilemme a ete souleve devant</b> les Sages : Lorsque <b>un mari</b> annule le vœu de sa femme, est-ce qu'il <b>uprovoque</b> le vœu de sa femme, faisant comme si elle n'avait jamais fait de vœu, <b>ou peut-etre</b> qu'il ne fait que <b>severser</b> son vœu a partir de ce moment-la, mais son vœu etait toujours en vigueur jusqu'a ce qu'il l'annule ? La Guemara demande : <b>Quelle difference y a-t-il</b> resultant de ce dilemme ?
+
+### Partie 4
+La Guemara explique que la difference se situe <b>en ce qui concerne une femme qui a fait le vœu d'etre nazirite, et une autre</b> femme <b>a entendu et dit : Et moi, et le mari de la premiere</b> femme <b>ont entendu et annule son</b> vœu. <b>Si tu dis</b> que le mari <b>releve</b> entierement le vœu, le vœu de <b>cette</b> deuxieme femme doit <b>egalement etre dissous,</b> car elle s'est associee a un vœu inexistant. <b>Et si vous dites</b> qu'il le <b>selectionne</b> a partir de ce point, le vœu de sa femme <b>est dissous,</b> mais la <b>autre</b> femme reste <b>liee</b> par son vœu, car le premier vœu etait intact lorsqu'elle s'y est associee. <b>Quelle est, alors, la reponse a ce dilemme ?
+
+### Partie 5
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> la declaration de la mishna : Si elle a dit : <b>Je suis par la presente une nazirite, et que son mari a entendu et dit : Et moi, il ne peut annuler</b> son voeu. <b>Et s'il vous vient a l'esprit</b> que le <b>mari rompt</b> le vœu a partir de ce moment, <b>qu'il annule</b> le vœu <b>pour sa femme et il</b> restera <b>lie</b> par son vœu, puisque si le vœu n'est pas annule retroactivement, son vœu etait intact lorsqu'il s'y est associe. <b>Au contraire,</b> ne doit-on pas <b>conclure de</b> la mishna que <b>le mari deracine</b> entierement le vœu, ce qui signifie qu'il deracinerait egalement son propre vœu en annulant le sien, et c'est pourquoi il ne peut le faire ?
+
+### Partie 6
+La Gemara refute cet argument : <b>Non ; en fait,</b> on peut dire que le mari <b>sevit</b> le vœu a partir de ce moment-la. <b>Et</b> s'il n'y avait pas d'autres points a considerer, <b>a juste titre</b> la mishna aurait du enseigner <b>qu'il peut annuler</b> son vœu <b>pour elle ; et c'est la raison pour laquelle il ne peut pas l'annuler</b> : <b>Puisqu'il lui a dit : Et moi,</b> il est <b>considere comme celui qui a dit : Elle est maintenue pour toi,</b> et une fois que le mari a maintenu le vœu de sa femme, il ne peut plus l'annuler. Par consequent, <b>s'il a demande</b> de faire dissoudre <b>son maintien</b> par un Sage, <b>il peut annuler</b> son vœu, <b>et sinon, il ne peut pas l'annuler</b>. Par consequent, la decision de la mishna ne resout pas le dilemme.
+
+### Partie 7
+La Gemara cite une autre mishna (24a) : <b>Venez</b> et <b>entendez :</b> En ce qui concerne <b>une femme qui a fait le vœu d'etre nazirite et a separe son animal</b> a cet effet (voir Nombres 6 : 13""14), <b>et par la suite son mari a annule son</b> vœu, ce qui signifie qu'elle n'est plus obligee d'apporter une offrande, <b>si l'animal etait le sien,</b> qu'il lui avait donne, c'est comme s'il n'avait jamais ete consacre du tout, et <b>il sortira et paitra parmi</b> le <b>block</b> comme un animal ordinaire, non consacre, jusqu'a ce qu'il devienne tache. <b>Et si l'animal etait a elle,</b> et qu'il etait designe pour <b>un sacrifice pour le peche, il doit</b> etre place en isolement pour qu'il <b>merite,</b> conformement a la <i>halakha</i> generale selon laquelle on doit laisser mourir un sacrifice pour le peche qui ne peut etre sacrifie.
+
+### Partie 8
+La Guemara explique la difficulte a partir de cette mishna : <b>Et s'il vous vient a l'esprit</b> que <b>le mari deracine</b> le vœu, l'offrande pour le peche devra <b>etre liberee comme un animal non sacre</b>, conformement a la <i>halakha</i> d'une offrande pour le peche d'un nazirite dont le vœu a ete annule (31a). <b>Au contraire,</b> faut-il <b>ne pas conclure de</b> la mishna que <b>le mari</b> ne fait que <b>annuler</b> le vœu, ce qui signifie qu'elle etait nazirite lorsqu'elle a separe l'animal, et qu'il est donc consacre ?
+
+### Partie 9
+La Gemara rejette cette preuve : <b>En fait, je</b> pourrais <b>vous dire</b> que le <b>mari deracine</b> le vœu, <b>et c'est la raison</b> de la decision ci-dessus : <b>Puisqu'elle ne necessite pas d'expiation,</b> puisque le vœu n'est plus en vigueur, cet animal <b>est</b> traite <b>comme une offrande pour le peche dont les proprietaires sont morts, et</b> il <b>est appris</b> comme une tradition <b>qu'une offrande pour le peche dont les proprietaires sont morts doit</b> etre laissee a <b>mourir.</b>
+
+### Partie 10
+La Guemara continue de citer des sources pertinentes. <b>Venez</b> et <b>entendez</b> la mishna suivante (23a) : En ce qui concerne <b>une femme qui a fait vœu d'etre nazirite et</b> neanmoins <b>buvait du vin et se rendait rituellement impure</b> par contact <b>avec les morts, elle encourt les quarante</b> coups de fouet pour avoir viole un interdit de la Torah. La Guemara analyse cette mishna : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si l'on dit que</b> son <b>mari n'a pas annule son</b> vœu, <b>necessite-t-on de dire</b> qu'elle est passible de recevoir des fouets ? Apres tout, tout nazirite qui transgresse son vœu encourt des coups de fouet.
+
+### Partie 11
+<b>Au contraire,</b> il <b>est evident</b> que le <b>mari a annule son</b> vœu. <b>Et s'il vous vient a l'esprit</b> que le <b>mari deracine</b> le vœu de sa femme, <b>pourquoi</b> encourt-elle les quarante</b> coups de fouet ? C'est comme si elle n'avait jamais fait de vœu du tout. <b>Au contraire,</b> faut-il <b>ne pas conclure de</b> la mishna que le <b>mari rompt</b> le vœu, et donc qu'elle est responsable de sa transgression anterieure ?
+
+### Partie 12
+La Gemara refute cet argument : <b>En fait, je</b> pourrais <b>vous dire</b> que le <b>mari deracine</b> le vœu, <b>et</b> la raison pour laquelle la mishna enseigne de cette maniere est <b>due</b> au fait <b>que</b> le <i>tanna</i> <b>enseigne</b> dans <b>la derniere clause</b> de la mishna : Si le <b>mari a annule son</b> vœu <b>et qu'elle ne le savait pas, et qu'elle buvait du vin et se rendait rituellement impure</b> par contact <b>avec les morts, elle n'encourt pas les quarante</b> coups de fouet, malgre son intention de pecher, car elle n'a pas commis de transgression en pratique.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

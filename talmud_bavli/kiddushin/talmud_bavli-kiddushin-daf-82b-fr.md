@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>La couture pour la broderie</b> est un metier propre et facile.
+
+### Partie 2
+<b>Il est enseigne</b> dans la <i>Tosefta</i> (5:12) : <b>Rabbi</b> Yehuda HaNasi <b>dit : Il n'y a pas de metier qui disparaisse du monde,</b> puisque toutes les occupations sont necessaires, mais <b>malheur a celui qui voit ses parents dans un metier eleve ; malheur a celui qui voit ses parents dans un metier bas</b> et les suit dans leur metier. De meme, <b>il est impossible que le monde</b> continue <b>sans parfumeur et sans tanneur. Heureux celui dont le metier est</b> comme <b>un parfumeur, et malheur a celui dont le metier est</b> comme <b>un tanneur,</b> qui travaille avec des materiaux qui ont une odeur nauseabonde. De meme, <b>il est impossible que le monde</b> existe <b>sans males et sans femelles,</b> pourtant <b>malheur a celui dont les enfants sont des males, et malheur a celui dont les enfants sont des femelles.</b>
+
+### Partie 3
+<b>Rabbi Meir dit : Une personne doit toujours enseigner a son fils un metier propre et facile, et il doit demander la compassion de Celui a qui appartiennent la richesse et les biens, car la pauvrete</b> ne vient <b>pas</b> d'un metier, ni</b> la <b>richesse</b> ne vient <b>d'un metier ; au contraire,</b> elles viennent <b>de Celui a qui appartient la richesse, comme il est dit : "L'argent est A moi, et l'or A moi, dit le Seigneur des Armées"</b> (Aggee 2:8).
+
+### Partie 4
+La mishna a enseigne que <b>Rabbi Shimon ben Elazar dit : Avez-vous jamais vu</b> une bete ou un oiseau qui a un metier ? <b>C'est enseigne</b> dans la <i>Tosefta</i> (5:13) : <b>Rabbi Shimon ben Elazar dit : Je n'ai jamais vu un cerf</b> travailler comme celui qui <b>seche les figues, ni un lion</b> travailler comme <b>un porteur, ni un renard</b> travailler comme <b>un magasinier. Et</b> pourtant <b>ils gagnent leur vie sans angoisse. Mais</b> tous ceux-la <b>n'ont ete crees que pour me servir, et moi,</b> un etre humain, <b>j'ai ete cree pour servir</b> Celui qui m'a <b>forme. Si ceux-ci, qui ont ete crees uniquement pour me servir, gagnent leur vie sans angoisse,</b> alors <b>n'est-il pas juste que moi, qui ai ete cree pour servir</b> Celui qui m'a <b>forme, je gagne ma vie sans angoisse ? Mais moi,</b> c'est-a-dire l'humanite, <b>j'ai</b> commis des <b>actions mauvaises et j'ai perdu mon gagne-pain, comme il est dit : "Vos iniquites ont detourne</b> ces choses, et vos peches ont retenu le bien de vous" (Jeremie 5:25).
+
+### Partie 5
+La mishna a enseigne que <b>Rabbi Nehorai dit : je mets de cote tous les metiers</b> et je n'enseigne a mon fils que la Torah. Il <b>est enseigne</b> dans la <i>Tosefta</i> (5:14) : <b>Rabbi Nehorai dit : J'ai mis de cote tous les metiers du monde et je n'enseigne a mon fils que la Torah, car tous les autres metiers ne servent a quelqu'un que dans les jours de sa jeunesse,</b> quand il a assez de force pour travailler, <b>mais dans les jours de sa vieillesse, voici qu'il</b> est laisse a <b>aller dans la faim. Mais la Torah n'est pas comme cela : Elle sert une personne au temps de sa jeunesse et lui fournit un avenir et un espoir au temps de sa vieillesse. En ce qui concerne le temps de sa jeunesse, que dit-on</b> sur un erudit de la Torah ? <b>"Mais ceux qui attendent le Seigneur renouvelleront leur force"</b> (Isaie 40:31). <b>Pour ce qui est</b> du temps de <b>sa vieillesse, que dit-on ? "Ils porteront encore du fruit dans la vieillesse, ils seront pleins de seve et de richesse"</b> (Psaumes 92, 15).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

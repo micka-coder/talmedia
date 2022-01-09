@@ -1,0 +1,24 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>One who buys the produce of a dovecote from another,</b> i.e., the doves that will hatch over the course of the year in a dovecote, <b>must leave [<i>mafriaḥ</i>]</b> the <b>first</b> pair of doves from the <b>brood</b> for the seller. If one buys <b>the produce of a beehive,</b> i.e., all the bees produced from a beehive over the course of the year, the buyer <b>takes three swarms and</b> then the seller <b>renders</b> the bees <b>impotent,</b> so that they will stop producing offspring and instead produce only honey. One who buys <b>honeycombs must leave two combs.</b> If one buys <b>olive</b> trees <b>for felling, he must leave two shoots</b> for the seller.
+
+### Part 2
+<strong>GEMARA:</strong> The mishna teaches that one who buys the brood of a dovecote must leave the first pair of the brood for the seller. The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i> that one must leave the <b>first and</b> the <b>second</b> pairs of <b>a brood</b> for the seller? <b>Rav Kahana said:</b> This is <b>not difficult. This</b> statement in the mishna is referring to the pair left <b>for</b> the first pair of the brood <b>itself,</b> i.e., an extra pair of doves must be left behind to ensure that the first brood will not fly away. <b>That</b> statement of the <i>baraita</i> is referring to a pair left <b>for the mother</b> of the pair discussed in the mishna. In other words, the <i>baraita</i> is saying that one must leave a pair of doves for the mother, and later a second pair from the brood of her children, which is the pair mentioned by the mishna.
+
+### Part 3
+The Gemara asks: <b>What is different</b> about <b>the mother</b> that there is no concern that she will escape from the dovecote? If the reason is <b>that she is attached to her daughter and the mate which one leaves for her,</b> this should also be true with regard to the daughter, i.e., <b>she too will become attached to her mother and the mate which one leaves for her.</b> Why, then, is it necessary to leave behind a pair of the daughter’s own brood to ensure that the daughter will not leave? The Gemara answers: <b>A mother is attached to her daughter,</b> whereas <b>a daughter is not attached to her mother.</b> Therefore, in order for the daughter to remain in the dovecote it is necessary to leave the daughter’s brood with her.
+
+### Part 4
+§ The mishna teaches that one who buys the <b>produce of a beehive takes three swarms and</b> then the seller <b>renders</b> the bees <b>impotent [<i>mesares</i>].</b> The Gemara asks: <b>By what</b> means <b>does he render them impotent? Rav Yehuda said</b> that <b>Shmuel said:</b> He renders them impotent <b>by</b> feeding them <b>mustard. They say in the West,</b> Eretz Yisrael, <b>in the name of Rabbi Yosei bar Ḥanina:</b> It is <b>not</b> the <b>mustard</b> itself that <b>renders them impotent. Rather, since their mouths sting</b> from the bitterness of the mustard, <b>they return and eat their own honey.</b> Due to their excessive eating of honey, they cease to form new swarms and instead produce honey for the seller.
+
+### Part 5
+<b>Rabbi Yoḥanan says:</b> This is not the meaning of <i>mesares</i>. Rather, the mishna should be understood as follows: One <b>takes three swarms by skipping [<i>beseirus</i>]</b> every other swarm, so that the buyer receives the first, third, and fifth swarms, while the others remain with the seller. <b>It is taught in a <i>baraita</i>:</b> The buyer <b>takes</b> the first <b>three swarms one after the other,</b> and <b>from this</b> point <b>forward he takes one and leaves one.</b>
+
+### Part 6
+§ The mishna teaches that one who buys <b>honeycombs must leave two combs</b> and one who buys olive trees for felling must leave two shoots. <b>Rav Kahana says:</b> As long as <b>honey</b> remains <b>in the beehive it never leaves</b> its status as <b>food,</b> i.e., it is always considered fit for human consumption. The Gemara notes: <b>Apparently,</b> Rav Kahana <b>holds</b> that honey <b>does not require</b> that one have <b>intention</b> to eat it for it to be susceptible to ritual impurity.
+
+### Part 7
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: <b>Honey in a beehive is not</b> considered to have the status of <b>either food or liquid</b> with regard to ritual impurity. <b>Abaye said:</b> This <i>halakha</i>, that honey is considered neither food nor liquid, <b>is necessary only with</b> regard to <b>those two combs</b> mentioned in the mishna, which are designated for the sustenance of the bees and are not for human consumption. <b>Rava said:</b> The <i>baraita</i> <b>is</b> in accordance with the opinion <b>of Rabbi Eliezer.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

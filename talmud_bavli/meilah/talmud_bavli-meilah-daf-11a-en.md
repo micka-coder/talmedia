@@ -1,0 +1,54 @@
+
+### Part 1
+<b>And if</b> the animal whose year passed was found <b>before the owner achieved atonement,</b> the found animal <b>shall graze until it becomes blemished [<i>shetista’ev</i>],</b> at which point it may not be sacrificed; <b>and it shall be sold and</b> the owner <b>shall purchase another</b> animal <b>with</b> the <b>money</b> received from <b>its</b> sale. The animal that was found blemished may be sold immediately, and the owner shall purchase another animal with the money received from its sale. In both cases, the animal <b>renders</b> a non-sacred animal exchanged for it <b>a substitute,</b> and one who derives benefit from it is liable for <b>misusing it.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The mishna first groups together three cases of sin offerings that are left to die, after which it discusses the other two as another group. The Gemara asks: <b>What is different about</b> the three cases in <b>the first clause that</b> the mishna <b>does not distinguish</b> between whether or not the owner has achieved atonement, <b>and what is different about the latter clause that</b> the mishna <b>does distinguish</b> between cases where the owner has and has not achieved atonement?
+
+### Part 3
+The Gemara answers: The three cases of sin offerings discussed in <b>the first clause are absolute,</b> i.e., the <i>halakha</i> is the same whether or not the owner has achieved atonement. By contrast, the cases of the other two sin offerings discussed in <b>the latter clause are not absolute,</b> as their status depends on whether or not their owner achieved atonement by means of another offering.
+
+### Part 4
+The Gemara asks: <b>Didn’t</b> the Mishna <b>teach</b> this same <i>halakha</i> verbatim <b>in connection with</b> the topic of <b>substitution,</b> in tractate <i>Temura</i> (21b)? Why is it repeated here? The Gemara answers: It is <b>taught there,</b> in <i>Temura</i>, <b>because</b> it discusses the <i>halakhot</i> of <b>substitution,</b> and it is <b>taught</b> again <b>here</b> in tractate <i>Me’ila</i> <b>because</b> it discusses the <i>halakhot</i> of <b>misuse.</b>
+
+### Part 5
+<strong>MISHNA:</strong> In the case of a nazirite <b>who designated money for</b> the three offerings he is obligated to bring upon completion of <b>his naziriteship,</b> a sin offering, a burnt offering, and a peace offering, but he did not specify which money was designated for which offering, since it is not clear what the money is intended for, one <b>may not derive benefit</b> from the money <i>ab initio</i>, <b>but</b> if he derived benefit from the money he is <b>not</b> liable for its <b>misuse.</b> This is <b>due to</b> the fact <b>that all</b> the money <b>is fit</b> for purchase of the <b>peace offering,</b> for which one is liable for misuse only after its blood is sprinkled, and therefore there is no liability for its misuse.
+
+### Part 6
+If the nazirite <b>died and he had undesignated funds,</b> meaning he did not specify which money was for each of the three offerings, all the money <b>will be allocated for</b> purchase of communal <b>gift</b> offerings. If the nazirite died and he had <b>specified money,</b> the <b>money</b> specified for purchase <b>of</b> the <b>sin offering shall go to the Dead Sea</b> for disposal, because one <b>may not derive benefit</b> <i>ab initio</i> from the money of a sin offering whose owner has died. But if it was not disposed of, <b>and</b> one derived benefit from the money, he is <b>not</b> liable for its <b>misuse.</b>
+
+### Part 7
+With the <b>money</b> specified for purchase <b>of</b> the <b>burnt offering, one shall bring</b> a gift <b>burnt offering, and one is liable for misusing</b> the funds. With the <b>money</b> specified for purchase <b>of</b> the <b>peace offering, one shall bring</b> a gift <b>peace offering.</b> Although it is a gift offering, the restrictions of the peace offering of the naziriteship apply, <b>and</b> therefore it is <b>eaten for one day</b> and that same night, not the standard two days and one night of a regular peace offering. <b>And</b> nevertheless the peace offering <b>does not require</b> the bringing of the <b>loaves</b> that accompany the peace offering of naziriteship, as it is written with regard to the loaves: “And shall place them on the hands of the nazirite” (Numbers 6:19), and in this case the nazirite is dead.
+
+### Part 8
+<strong>GEMARA:</strong> The mishna teaches that if a nazirite designated money for the three offerings that he is obligated to bring upon completion of his naziriteship but did not specify which money was designated for which offering, one who derived benefit from the money is not liable for its misuse, as all the money is fit for purchase of the peace offering. <b>Reish Lakish objects to this: And let</b> the <i>tanna</i> of the mishna <b>also teach</b> a similar <i>halakha</i> with regard to <b>one who</b> was obligated to bring a pair of birds as an offering in a purification ritual, e.g., for a leper or a woman who gave birth, and he <b>designated money for</b> those <b>nests,</b> i.e., the bird offerings, but did not specify which money was for the burnt offering and which was for the sin offering.
+
+### Part 9
+Reish Lakish elaborates: Here too, the <i>tanna</i> could have stated that one <b>may not derive benefit</b> from the money <i>ab initio</i>, <b>but</b> if he derived benefit from it he is <b>not</b> liable for its <b>misuse.</b> This is <b>due to</b> the fact that <b>that</b> all the money <b>is fit</b> for purchase of <b>doves whose time</b> of fitness for sacrifice <b>has not</b> yet <b>arrived,</b> as they are fit for sacrifice only when they are older; or <b>pigeons whose time</b> of fitness <b>has passed,</b> which are fit only when they are young. Since these are not fit to be sacrificed, one is not liable for misuse.
+
+### Part 10
+<b>Rava says</b> in response: This <i>halakha</i> is not included in the mishna because the two cases are not comparable: <b>In</b> the case of the <b>undesignated money,</b> the <b>Torah said</b> to <b>bring a peace offering</b> as one of the obligatory offerings of a nazirite. Since any part of the money may be used to purchase the peace offering, there is no liability for its misuse. By contrast, in the case of one who designated money for bird offerings, did the <b>Torah say to</b> use this money to <b>bring</b> specifically <b>doves whose time</b> of fitness <b>has not arrived?</b> Such birds <b>are not fit to</b> be sacrificed on <b>the altar.</b> Therefore, it cannot be said this money is intended for a purpose that does not entail liability for misuse.
+
+### Part 11
+<strong>MISHNA:</strong> <b>Rabbi Shimon says:</b> With regard to misuse of <b>the blood</b> of offerings that is to be sprinkled on the altar, the <i>halakha</i> is <b>lenient</b> with regard to the status of the blood <b>at the outset and stringent at its conclusion.</b> With regard to misuse of the wine of the <b>libations</b> that accompany the offerings, the <i>halakha</i> is <b>stringent</b> with regard to the status of the wine <b>at their outset and lenient at their conclusion.</b>
+
+### Part 12
+The mishna explains: With regard to <b>blood, at its outset,</b> before it is sprinkled on the altar, <b>one is not liable for misusing</b> it; but once its remainder has been poured on the base of the altar and it <b>emerges</b> via the canal that runs through the Temple <b>to the Kidron Valley</b> at the foot of the Temple Mount, <b>one is liable for misusing it.</b> With regard to <b>libations, at their outset,</b> from the moment they were consecrated, <b>one</b> is liable for <b>misusing them,</b> but once <b>they</b> have <b>descended to the drainpipes</b> built into the altar and which extend beneath it, through which the libations flowed out of the Temple, <b>one is no</b> longer liable for <b>misusing them,</b> as their mitzva was fulfilled and therefore their sanctity has ceased.
+
+### Part 13
+<strong>GEMARA:</strong> The Gemara cites a <i>baraita</i> relating to the mishna’s ruling that once the remainder of the blood emerged via the canal that runs through the Temple one is liable for its misuse. <b>The Sages taught</b> in a <i>baraita</i>: <b>One</b> is liable for <b>misusing</b> the <b>blood</b> of the offerings after it has emerged via the canal that runs through the Temple to the Kidron Valley. This is <b>the statement of Rabbi Meir and Rabbi Shimon. And the Rabbis say: One is not</b> liable for <b>misusing</b> the blood.
+
+### Part 14
+The Gemara asks: <b>What is the reason of the one who says</b> that <b>one is not</b> liable for <b>misusing</b> the blood, despite the fact that it comes from a consecrated offering? <b>Ulla said</b> that blood is not consecrated, because <b>the verse states:</b> “For the life of the flesh is in the blood, <b>and I have given it to you</b> upon the altar to atone for your souls” (Leviticus 17:11). “To you” indicates that <b>it shall be yours,</b> and it is not the property of the Temple. A Sage <b>of the school</b> of <b>Rabbi Yishmael</b> likewise <b>taught</b> that the term <b>“to atone”</b> teaches that God says: <b>I gave it for atonement, and not for</b> the prohibition against <b>misuse</b> of consecrated property.
+
+### Part 15
+<b>Rabbi Yoḥanan says</b> this <i>halakha</i> is derived from a different phrase, as <b>the verse states:</b> “For <b>it is the blood that atones by</b> reason of the <b>life”</b> (Leviticus 17:11). The word “is” teaches that the blood remains as it <b>is,</b> retaining the same status <b>before atonement as after atonement: Just as after atonement</b> it is <b>not subject to</b> the prohibition against <b>misuse</b> of consecrated property, as the mitzva has been performed, <b>so too, before atonement it is not subject to misuse</b> of consecrated property.
+
+### Part 16
+The Gemara asks: <b>But</b> if the basis for this <i>halakha</i> is that the status of blood remains the same before and after atonement, one can <b>say</b> the opposite, that its status after atonement should be like its status before atonement: <b>Just as before atonement it is subject to misuse</b> of consecrated property, <b>so too, after atonement it is subject to misuse</b> of consecrated property.
+
+### Part 17
+The Gemara rejects this contention with a rhetorical question: <b>Is there anything whose mitzva has been performed and it is</b> still <b>subject to misuse</b> of consecrated property? The Gemara challenges this assumption: <b>Why not?</b> Why not say this; is there really no precedent for such a suggestion?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

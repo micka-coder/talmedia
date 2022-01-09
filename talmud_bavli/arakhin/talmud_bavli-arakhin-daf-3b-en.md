@@ -1,0 +1,54 @@
+
+### Part 1
+The Gemara answers: The mishna teaches this clause <b>to add slaves.</b> If a slave wishes to ascend to Eretz Yisrael, he can force his master to either ascend with him, or to sell him to someone who will ascend, or to free him. The Gemara asks: <b>And according to the one who teaches slaves explicitly</b> in the mishna, <b>what</b> does this phrase serve <b>to add?</b> The Gemara answers that it serves <b>to add</b> the case of one who wishes to compel his family to move <b>from a pleasant residence</b> outside of Eretz Yisrael <b>to a noxious residence</b> in Eretz Yisrael.
+
+### Part 2
+The Gemara adds that when that same mishna teaches, in its continuation: <b>But all may not remove</b> others from Eretz Yisrael, this serves <b>to add</b> the case of <b>a slave who fled from outside of Eretz</b> Yisrael <b>to Eretz</b> Yisrael. The master may not bring him back to outside of Eretz Yisrael.
+
+### Part 3
+The Gemara discusses another statement of that same mishna: <b>All</b> can force their family <b>to ascend to Jerusalem.</b> This serves <b>to add</b> the <i>halakha</i> that one may compel his family to move <b>from a pleasant residence</b> outside of Jerusalem <b>to a noxious residence</b> in Jerusalem. The Gemara asks: <b>What is added</b> by the next clause of that mishna: <b>And none can remove</b> them from Jerusalem? The Gemara explains that this serves <b>to add</b> that one cannot compel his family to leave Jerusalem, even <b>from a noxious residence</b> in Jerusalem <b>to a pleasant residence</b> elsewhere in Eretz Yisrael.
+
+### Part 4
+§ The Gemara discusses several other cases where a mishna or <i>baraita</i> states that everyone is obligated in a particular mitzva. A <i>baraita</i> teaches: <b>Everyone is obligated in</b> the mitzva of <b><i>sukka</i>,</b> including <b>priests, Levites, and Israelites.</b> The Gemara asks: Isn’t that <b>obvious? If these</b> people <b>are not obligated</b> to perform the mitzva, then <b>who is obligated</b> to perform it?
+
+### Part 5
+The Gemara answers: <b>It was necessary for</b> the <i>halakha</i> to mention that <b>priests</b> are obligated to fulfill this mitzva, as it might <b>enter your mind to say</b> that <b>since it is written: “In <i>sukkot</i> shall you reside</b> seven days” (Leviticus 23:42), one can argue as follows: <b>The Master said</b> that this teaches: <b>Reside seven days as you dwell</b> in your permanent home: <b>Just as</b> in the case of <b>dwelling,</b> a <b>man and his wife</b> typically reside together, <b>so too,</b> the mitzva of <b><i>sukka</i></b> must be performed by <b>a man and his wife</b> residing together. <b>And</b> with regard to <b>these priests, since they are</b> occupied <b>with</b> the Temple <b>service</b> during the Festival and are not free to dwell in the <i>sukka</i> together with their wives, perhaps they <b>should not be obligated</b> in the mitzva of <i>sukka</i>.
+
+### Part 6
+Therefore, the <i>baraita</i> <b>teaches us</b> that this is not so, as <b>although</b> priests are <b>exempt at the time of</b> the Temple <b>service, when it is not the time of</b> Temple <b>service they are obligated, just as is</b> the <i>halakha</i> <b>with regard to travelers. As the Master said</b> in a <i>baraita</i>: <b>Travelers</b> who are on the move <b>during the day are exempt from</b> the mitzva of <b><i>sukka</i> during the day but are obligated at night,</b> as they are not traveling at that time.
+
+### Part 7
+§ The Gemara cites a similar <i>baraita</i>: <b>Everyone is obligated in</b> the mitzva of <b>ritual fringes,</b> including <b>priests, Levites, and Israelites.</b> The Gemara asks again: Isn’t that <b>obvious?</b>
+
+### Part 8
+The Gemara answers: <b>It was necessary for</b> the <i>baraita</i> to mention that <b>priests</b> are obligated to fulfill this mitzva, as <b>it may enter your mind to say</b> as follows: <b>Since it is written: “You shall not wear diverse kinds,</b> wool and linen together. <b>You shall prepare yourself twisted cords</b> upon the four corners of your covering” (Deuteronomy 22:11–12), <b>it is</b> only <b>one who is not permitted to wear diverse kinds who is obligated in the mitzva of ritual fringes. But</b> with regard to <b>these priests, since diverse kinds are permitted for them</b> when they perform the Temple service, as the belt of the priestly vestments contains diverse kinds, <b>they should not be obligated</b> in the mitzva of ritual fringes.
+
+### Part 9
+Therefore, the <i>baraita</i> <b>teaches us</b> that <b>although</b> priests are <b>permitted</b> to wear diverse kinds <b>at the time</b> when they perform the Temple <b>service, when</b> it is <b>not the time of</b> the Temple <b>service</b> they are <b>not permitted</b> to wear diverse kinds. Consequently, they are obligated in ritual fringes, as they do not have an absolute dispensation from the prohibition of diverse kinds.
+
+### Part 10
+§ The Gemara cites another <i>baraita</i>: <b>Everyone is obligated in</b> the mitzva of <b>phylacteries,</b> including <b>priests, Levites, and Israelites.</b> The Gemara again asks: Isn’t that <b>obvious?</b> The Gemara answers that <b>it was necessary</b> to say that <b>priests</b> are obligated to fulfill this mitzva, as it might <b>enter your mind to say</b> that <b>since it is written: “And you shall bind them for a sign upon your hand, and they shall be for frontlets between your eyes”</b> (Deuteronomy 6:8), perhaps this juxtaposition teaches that <b>anyone included in</b> the <b>mitzva of</b> the phylacteries of the <b>arm</b> is also <b>included in</b> the <b>mitzva of</b> the phylacteries of the <b>head.</b>
+
+### Part 11
+<b>And</b> in the case of <b>these priests, since they are not included in</b> the <b>mitzva of</b> the phylacteries of the <b>arm, as it is written</b> with regard to the priestly vestments: <b>“He shall put upon his flesh”</b> (Leviticus 6:3), which teaches <b>that nothing may interpose between</b> the priestly vestments <b>and his flesh,</b> and therefore he may not wear the phylacteries of the arm, which would interpose, perhaps one would <b>say</b> that priests <b>should also not be obligated in</b> the <b>mitzva of</b> the phylacteries of the <b>head.</b>
+
+### Part 12
+Therefore, the <i>baraita</i> <b>teaches us that</b> the absence of one of the two types of phylacteries <b>do not prevent</b> fulfillment of the mitzva with <b>the other. As we learned</b> in a mishna (<i>Menaḥot</i> 38a): Absence of the <b>phylacteries of</b> the <b>arm does not prevent fulfillment</b> of the mitzva of the phylacteries <b>of the head, and</b> likewise the absence of the phylacteries <b>of</b> the <b>head does not prevent fulfillment</b> of the mitzva of the phylacteries <b>of</b> the <b>arm.</b> If one has only one type, he dons it without the other. Consequently, the priests are obligated in the mitzva of phylacteries of the head during the time of their Temple service.
+
+### Part 13
+The Gemara asks: <b>And what is different</b> about the phylacteries <b>of the arm?</b> You claim that priests are exempt from this obligation, <b>as it is written</b> with regard to the priestly vestments: <b>“He shall put upon his flesh.”</b> If so, they should <b>also</b> be exempt from donning the phylacteries of the <b>head,</b> as <b>it is written</b> with regard to the High Priest: <b>“And you shall set the mitre upon his head”</b> (Exodus 29:6). Since the phylacteries of the head would interpose between his head and the mitre, he should be exempt from the mitzva of the phylacteries of the head.
+
+### Part 14
+The Gemara answers by citing a <i>halakha</i> that the Sages <b>taught:</b> The <b>hair of</b> the High Priest <b>was visible between the frontplate and the mitre.</b> The frontplate was set on the forehead, below the hairline, while the mitre was set above it. In <b>that</b> space <b>there</b> the High Priest <b>would don</b> his <b>phylacteries.</b> Consequently, the phylacteries did not interpose between the mitre and the High Priest’s head.
+
+### Part 15
+§ The Gemara cites yet another <i>baraita</i>: <b>Everyone is obligated to sound the shofar,</b> including <b>priests, Levites, and Israelites.</b> The Gemara once again asks: Isn’t that <b>obvious?</b> The Gemara answers: <b>It was necessary for</b> the <i>halakha</i> to mention that <b>priests</b> are obligated to fulfill this mitzva, as it might <b>enter your mind to say</b> as follows: <b>Since it is written:</b> “And in the seventh month, on the first day of the month…<b>it shall be a day of sounding for you”</b> (Numbers 29:1), you might have said that <b>one who is</b> obligated <b>to sound on only one day is obligated</b> to sound the shofar on Rosh HaShana.
+
+### Part 16
+<b>But</b> with regard to <b>these priests</b> it is different, <b>since they are obligated to sound all year</b> long, as they sound trumpets when they sacrifice the offerings in the Temple on other Festivals, <b>as it is written: “And you shall sound the trumpets over your burnt offerings,</b> and over the sacrifices of your peace offerings” (Numbers 10:10), you might therefore <b>say</b> that <b>they should not be obligated</b> to sound the shofar on Rosh HaShana. Therefore, the <i>baraita</i> teaches that even priests are obligated to fulfill this mitzva. The Gemara questions this comparison: <b>Are</b> these cases <b>comparable? There,</b> on the other special occasions throughout the year, the priests sound <b>trumpets,</b> whereas <b>here,</b> on Rosh HaShana, the issue is blowing the <b>shofar.</b>
+
+### Part 17
+Rather, <b>it was necessary</b> to say that priests are obligated to fulfill this mitzva for a different reason. It might <b>enter your mind to say</b> as follows: <b>Since we learned</b> in a mishna (<i>Rosh HaShana</i> 26b): Yom Kippur of <b>the Jubilee</b> Year <b>is the same as Rosh HaShana,</b> with respect <b>to</b> both <b>the</b> shofar <b>blasts and to the</b> three additional <b>blessings</b> that are recited in the <i>Amida</i> prayer, I might have said <b>that one who is</b> fully included <b>in the mitzva of the Jubilee</b> Year <b>is</b> also included <b>in the mitzva of Rosh HaShana,</b> and <b>that one who is not</b> included <b>in the mitzva of the Jubilee</b> Year <b>is</b> likewise <b>not</b> included <b>in the mitzva of Rosh HaShana. But</b> with regard to <b>these priests, since they are not</b> fully included <b>in the mitzva of the Jubilee</b> Year, <b>as we learned</b> in a mishna (see 26b): <b>Priests and Levites</b> may <b>sell</b> their fields <b>at any time,</b> even in the Jubilee Year,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

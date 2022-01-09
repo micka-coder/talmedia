@@ -1,0 +1,48 @@
+
+### Part 1
+Rava <b>said to</b> Rav Adda bar Ahava: <b>When the Merciful One juxtaposes</b> kosher and non-kosher animals to creeping animals, this is referring <b>to</b> the prohibition of: “You shall <b>not make</b> your souls <b>detestable”</b> (Leviticus 20:25), teaching that they are all included in that prohibition. <b>But with regard to measures</b> the Torah does <b>not</b> juxtapose those animals to creeping animals. For this reason there is no difference between the measure of impurity of carcasses of kosher animals and non-kosher animals.
+
+### Part 2
+<strong>MISHNA:</strong> <b>The blood of</b> one of <b>the</b> eight <b>creeping animals</b> listed in the Torah <b>and</b> their <b>flesh join together</b> to constitute the lentil-bulk measure to impart impurity. <b>Rabbi Yehoshua stated a principle:</b> With regard to <b>any</b> items <b>whose impurity,</b> in terms of degree and duration, <b>and measure</b> to impart impurity, <b>are equal,</b> e.g., two halves of an olive-bulk from two corpses or two animal carcasses or two halves of a lentil-bulk from two creeping animals, <b>they join together</b> to constitute the requisite measure.
+
+### Part 3
+Rabbi Yehoshua continued: By contrast, with regard to items whose <b>impurity</b> is equal <b>but</b> their <b>measure</b> is <b>not</b> equal, e.g., a creeping animal and an animal carcass, each of which renders one impure until the evening, but the measure of a creeping animal is a lentil-bulk, whereas that of an animal carcass is an olive-bulk; or items whose <b>measure</b> is equal <b>but whose impurity</b> is <b>not</b> equal, e.g., a corpse and an animal carcass, with regard to which the measure of each is an olive-bulk, but the duration of the impurity imparted by a corpse is one week and the duration of the impurity imparted by an animal carcass is until the evening; or items that are equal <b>neither in</b> terms of <b>their impurity</b> nor in terms of <b>their measure, they do not join together</b> to constitute the requisite measure.
+
+### Part 4
+<strong>GEMARA:</strong> The mishna teaches that the blood of one of the eight creeping animals listed in the Torah and the flesh of those animals join together to constitute the lentil-bulk measure required to impart impurity. <b>Rav Ḥanin says</b> that <b>Rav Zeira says:</b> The blood and flesh join together only if the blood is from the same animal as the flesh, but not if it is from a different animal.
+
+### Part 5
+<b>And similarly, Rabbi Yosei bar Rabbi Ḥanina says,</b> in rejection of Rav Zeira’s statement: It is taught in a <i>baraita</i>: The verse states: “These are <b>the impure [<i>hateme’in</i>]</b> to you among all that creep; whoever touches them when they are dead, shall be impure until the evening” (Leviticus 11:31). This plural form of “<i>hateme’in</i>” <b>teaches that they join together</b> to impart ritual impurity. <b>And</b> this applies <b>even</b> to the flesh of <b>a creeping animal and</b> the flesh of another <b>creeping animal,</b> or the flesh of <b>a creeping animal and</b> the <b>blood</b> of another creeping animal, <b>whether</b> they are <b>from one category,</b> i.e., one type of creeping animal, <b>or from two categories</b> of creeping animal.
+
+### Part 6
+<b>Rav Yosef says:</b> This is <b>not difficult. Here,</b> the <i>baraita</i> is referring to a case where the half-measure of flesh and the half-measure of blood both came <b>from an entire</b> animal, and therefore the two half-measures combine, due to the significance of an entire animal. <b>There,</b> in the statement of Rav Zeira, he is speaking of a case where the half-measure of flesh and the half-measure of blood each come <b>from part of</b> an animal.
+
+### Part 7
+<b>And from where do you say</b> that there is a distinction between a case where the flesh and blood come from an entire animal and a case where they come from part of an animal? <b>From that which is taught</b> in a <i>baraita</i>: In a case where one quarter-<i>log</i> of blood from a corpse was <b>spilled on the floor, and its place was a slope [<i>ketafres</i>],</b> so that the blood trickles down, and someone leaned over so that he <b>covered part of it,</b> he remains <b>ritually pure.</b> If he <b>covered all of it,</b> he is rendered <b>impure.</b>
+
+### Part 8
+The Gemara clarifies the <i>halakha</i>: <b>What</b> does the phrase: <b>Part of it,</b> mean in this context? <b>If we say</b> that it is referring to <b>part of</b> the one quarter-<i>log</i> of <b>blood,</b> whereas if it is a full quarter-<i>log</i> then he is impure, that is difficult: <b>But doesn’t Rabbi Ḥanina say</b> that <b>Rabbi</b> Yehuda HaNasi <b>says:</b> If there was exactly <b>one quarter-</b><i>log</i> of <b>blood</b> in a pot <b>that one stirred</b> without touching the blood, he remains <b>pure,</b> despite the fact that his body must have overshadowed all the blood at the time, and would therefore have had the status of a tent over it. The reason is that some of the blood must have been absorbed into the spoon with which he stirred, and therefore there no longer remains an entire connected quarter-<i>log</i>. This shows that the entire quarter-<i>log</i> must be together, as one unit, in order to impart impurity.
+
+### Part 9
+<b>Rather, isn’t it</b> correct to <b>conclude from</b> this <i>baraita</i> that there is a distinction between a case where the blood came from an entire corpse, and where it came from part of a corpse? In other words, if the blood came from one body it need not be together as a single unit, whereas if it came from more than one body, it must all be joined together, as in the case mentioned by Rabbi Yehuda HaNasi. Similarly, with regard to the statements of Rav Zeira and the <i>baraita</i>, <b>here</b> the <i>baraita</i> is referring to a situation where the half-measure of flesh and the half-measure of blood came <b>from an entire</b> animal, and due to the significance of an entire animal the two half-measures combine. <b>There,</b> Rav Zeira is referring to a case where the half-measure of flesh and the half-measure of blood come <b>from part of</b> the animal. The Gemara notes that one should indeed <b>conclude from it</b> that this is the correct distinction.
+
+### Part 10
+§ The Gemara relates that <b>Rabbi Matya ben Ḥarash asked Rabbi Shimon ben Yoḥai in the city of Rome: From where</b> is it derived <b>with regard to</b> the <b>blood of creeping animals that it is impure?</b> Rabbi Shimon ben Yoḥai <b>said to him:</b> It is derived from the fact <b>that the verse states: “And these are they that are impure</b> for you among the creeping animals” (Leviticus 11:29). Since a similar phrase already appears in Leviticus 11:31, it is derived from here that the blood of creeping animals is impure.
+
+### Part 11
+Rabbi Matya ben Ḥarash’s <b>students said to him</b> in amazement: How <b>wise is</b> Rabbi Shimon <b>ben Yoḥai!</b> Rabbi Matya ben Ḥarash <b>said to them:</b> This source is not his own, as it is <b>a set tradition in the mouth of Rabbi Elazar bar Rabbi Yosei,</b> and Rabbi Shimon ben Yoḥai learned it from him. Rabbi Matya ben Ḥarash provided the background for this claim. <b>As, on one occasion the</b> gentile <b>monarchy issued a decree that</b> the Jewish people <b>may not observe Shabbat, and that they may not circumcise their sons, and that they must engage in intercourse with</b> their wives when they are <b>menstruating.</b>
+
+### Part 12
+<b>Rabbi Reuven ben Isterobeli went and cut</b> his hair in <b>a <i>komei</i></b> hairstyle,which was common only among the gentiles, <b>and he went and sat with</b> the gentiles when they were discussing these three decrees. <b>He said to them: One who has an enemy,</b> does he want his enemy <b>to become poor or to become rich? They said to him:</b> He wants his enemy <b>to become poor.</b> Rabbi Reuven ben Isterobeli <b>said to them: If so,</b> with regard to the Jewish people as well, isn’t it better that <b>they will not perform labor on Shabbat in order that they will become poor?</b> The gentiles <b>said:</b> That is <b>a good</b> claim that <b>he said; let us nullify</b> our decree. <b>And they</b> indeed <b>nullified it.</b>
+
+### Part 13
+<b>Again</b> Rabbi Reuven ben Isterobeli <b>spoke to them</b> and said: <b>One who has an enemy,</b> does he want his enemy <b>to become weak or to become healthy? They said to him:</b> He wants his enemy <b>to become weak.</b> Rabbi Reuven ben Isterobeli <b>said to them: If so,</b> with regard to the Jewish people as well, isn’t it better that <b>they circumcise their sons after eight days and</b> thereby cause them to <b>become weak?</b> The gentiles <b>said:</b> That is <b>a good</b> claim that <b>he said, and they nullified</b> their decree.
+
+### Part 14
+Once <b>again</b> Rabbi Reuven ben Isterobeli <b>spoke to them</b> and said: <b>One who has an enemy,</b> does he want his enemy <b>to multiply or to decrease? They said to him:</b> He wants his enemy <b>to decrease.</b> Rabbi Reuven ben Isterobeli <b>said to them: If so,</b> with regard to the Jewish people as well, isn’t it better that they <b>do not engage in intercourse with</b> their wives when they are <b>menstruating?</b> The gentiles <b>said:</b> That is <b>a good</b> claim that <b>he said, and they nullified</b> their decree.
+
+### Part 15
+A short time later <b>they recognized that</b> Rabbi Reuven ben Isterobeli <b>was a Jew,</b> and they realized that he had fooled them to the advantage of the Jewish people. They therefore arose and <b>reinstated</b> all of their decrees. The Sages then <b>said: Who will go and nullify</b> these <b>decrees?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+The Gemara asks: <b>If so,</b> then <b><i>ḥalla</i></b> should be subject to the same rabbinic decree <b>as well,</b> to prevent someone from circumventing their obligation to separate <i>ḥalla</i> by temporarily selling their dough to a gentile who will knead it and return it to them. Why then does the <i>baraita</i> teach that dough kneaded by a gentile owner is exempt? The Gemara answers: There is no need for a decree in this case, since if one wanted to circumvent his obligation to separate <i>ḥalla</i> from his dough, an easier method is available: It is <b>possible</b> for him <b>to bake</b> using <b>less than five-fourths</b> of a <i>kav</i> of <b>flour and</b> a bit <b>more,</b> the minimum amount necessitating the separation of <i>ḥalla</i>.
+
+### Part 2
+The Gemara asks: If so, why is there a need for a rabbinic decree with regard to <i>teruma</i> and tithes? The obligation to separate <b><i>teruma</i></b> and tithes can <b>also</b> be easily circumvented <b>by acting</b> in accordance with <b>that which Rabbi Oshaya</b> suggested, <b>as Rabbi Oshaya says: A person can employ artifice</b> to circumvent obligations incumbent upon him in dealing <b>with his grain, and</b> exempt himself by <b>bringing it into</b> his courtyard <b>in its chaff so that his animal may eat</b> from it. <b>And</b> this grain is <b>exempt from</b> <i>teruma</i> and <b>tithes.</b> Although the obligation to separate <i>teruma</i> from and to tithe produce that has been fully processed applies even to animal fodder, it is permitted to feed one’s animal untithed produce that has not been fully processed. <b>Alternatively,</b> another option of avoiding the obligation of <i>teruma</i> and tithes is <b>to bring in</b> the produce to his house by <b>way</b> of <b>roofs or</b> by <b>way</b> of <b>enclosures [<i>karpeifot</i>].</b> The obligation of <i>teruma</i> and tithes applies only to produce that passes through the entrance of the house.
+
+### Part 3
+The Gemara answers: <b>There,</b> in the case of <i>teruma</i> and tithes, the two options of bringing in the grain in its chaff or by way of roofs are performed <b>in public [<i>befarhesya</i>],</b> and <b>it is degrading for one</b> to be seen circumventing his obligation. Consequently, one who wishes to avoid the obligation would prefer the option of transferring ownership to a gentile, which the Sages prevent with their decree. <b>Here,</b> in the case of <i>ḥalla</i>, the option of baking with less than the minimum quantity of flour to avoid being obligated to separate <i>ḥalla</i> from the dough is performed <b>in private,</b> and <b>it is not degrading for him,</b> and he would sooner take advantage of that option than go through the process of transferring the dough to a gentile. Therefore, the Sages did not apply their decree in this case.
+
+### Part 4
+<strong>MISHNA:</strong> After daybreak, the priest sacrificing the <i>omer</i> <b>came to the</b> sifted <b>tenth</b> of an ephah, <b>placed in</b> the vessel in his hand some of <b>its</b> <i>log</i> of <b>oil, and</b> placed <b>its frankincense</b> on the side of the vessel. He then <b>poured</b> some more oil from the <i>log</i> onto the high-quality flour <b>and mixed</b> them together, <b>waved and brought</b> the meal offering to the corner of the altar, and <b>removed the handful and burned</b> it on the altar. <b>And the rest</b> of the meal offering <b>is eaten by the priests.</b>
+
+### Part 5
+<b>Once the <i>omer</i> was sacrificed</b> people would <b>emerge and find the marketplace of Jerusalem full of the flour</b> from the <b>parched grain</b> of the new crop that was permitted by the waving and the sacrifice of the <i>omer</i> offering. That filling of the marketplace with the new crop was performed <b>not with the approval of the Sages;</b> this is <b>the statement of Rabbi Meir. Rabbi Yehuda says: They would do</b> so <b>with the approval of the Sages.</b>
+
+### Part 6
+<strong>GEMARA:</strong> The mishna teaches that the marketplaces of Jerusalem would be filled with flour of parched grain even before the sacrificing of the <i>omer</i> offering, and Rabbi Yehuda holds that the Sages approved of this practice. The Gemara asks: <b>And doesn’t Rabbi Yehuda</b> agree that the Sages <b>issued a decree</b> against filling of the marketplaces with grain that is prohibited in consumption at the time? Wasn’t he concerned that <b>perhaps someone</b> might <b>come to eat from it?</b>
+
+### Part 7
+<b>And</b> the Gemara <b>raises a contradiction</b> from a mishna (<i>Pesaḥim</i> 10b): <b>Rabbi Yehuda says</b> that <b>one searches</b> for leaven <b>on the evening of the fourteenth</b> of Nisan, <b>and on the fourteenth</b> in <b>the morning, and at the time of</b> the <b>eradication</b> of leaven. <b>And the Rabbis say:</b> That is not the <i>halakha</i>; rather, if <b>one did not search</b> on the evening of the fourteenth he should search on the fourteenth during the day, and if he did not search on the fourteenth, he should search during the festival of Passover. Since Rabbi Yehuda does not allow a search on Passover itself, he is evidently concerned that one who finds prohibited food might come to eat it. The same reasoning should apply in the case of the new crop.
+
+### Part 8
+<b>Rabba says</b> that the prohibition of <b>new</b> grain <b>is different,</b> for the following reason:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

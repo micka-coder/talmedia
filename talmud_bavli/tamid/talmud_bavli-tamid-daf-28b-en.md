@@ -1,0 +1,21 @@
+
+### Part 1
+<b>nor could they hear the sound of his</b> steps. They were therefore unaware of his progress <b>until they heard</b> the <b>sound of the wood that ben Katin crafted</b> into <b>a mechanism [<i>mukhani</i>]</b> of pulleys that was used <b>to</b> sink <b>the Basin</b> into flowing water during the night, so that its water would not be disqualified by remaining overnight. When the priests heard the sound of the pulleys raising the Basin from the water, <b>they said</b> to each other: <b>The time</b> for sanctifying hands and feet <b>has come.</b> The priest <b>sanctified his hands and his feet</b> with water <b>from the Basin</b> after he raised it. <b>He</b> then <b>took the silver coal pan</b> from the corner between the ramp and the altar, <b>and ascended to the top of the altar.</b>
+
+### Part 2
+The priest <b>cleared the</b> upper layer of <b>coals to this side</b> and to that side and <b>scooped</b> into the coal pan <b>the inner</b> coals that were completely <b>consumed.</b> He then <b>descended</b> the ramp. When <b>he reached the floor,</b> in the southeast of the Temple courtyard, <b>he turned his face toward the north. He</b> would <b>walk along the east</b> side <b>of the ramp</b> toward the south side of the altar, walking a distance of <b>about ten cubits</b> from the bottom of the ramp, which was twenty cubits from the altar. <b>He</b> then <b>heaped the coals upon the floor</b> in a location <b>three handbreadths distant from the ramp,</b> in the <b>place where</b> the priests would <b>place the crop of the bird</b> burnt offering, <b>the ashes</b> removed <b>from the inner,</b> golden <b>altar, and the ashes</b> removed <b>from the Candelabrum.</b>
+
+### Part 3
+<strong>GEMARA:</strong> The mishna teaches that the priests would walk along the portico surrounding the Temple courtyard. Since porticoes were usually made of wood, the Gemara asks: <b>And were there porticoes in the courtyard? But isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer ben Ya’akov says: From where</b> is it derived <b>that one may not build</b> wooden <b>porticoes in the</b> Temple <b>courtyard? The verse states: “You shall not plant for yourself an <i>ashera</i> of any kind of tree beside the altar of the Lord your God”</b> (Deuteronomy 16:21).
+
+### Part 4
+The Gemara explains that <b>this</b> is what the verse <b>is saying: You shall not plant for yourself an <i>ashera</i>,</b> i.e., a tree used as part of idolatrous rites. Moreover, <b>you shall not plant</b> or otherwise place <b>for yourself any kind of tree</b> or wood <b>beside the altar of the Lord your God. Rav Ḥisda says:</b> The mishna is referring <b>to porticoes</b> made <b>of building</b> materials, i.e., stone, whereas the prohibition of erecting porticoes in the Temple courtyard applies only to porticoes of wood.
+
+### Part 5
+§ The mishna teaches: Both groups <b>would continue inspecting</b> the vessels until they reached the place where the Chamber of the Preparer of the Griddle-Cake Offering was located. They would then set the preparer of the Griddle-Cake Offering to prepare the griddle-cake offering. The Gemara asks: Is this <b>to say that</b> the <b>griddle-cake</b> offering <b>was</b> sacrificed <b>before</b> the other rites of the Temple service were performed?
+
+### Part 6
+<b>But isn’t it taught</b> in a <i>baraita</i>: <b>From where</b> is it derived <b>that there is nothing</b> that is sacrificed on the altar <b>prior to the daily morning offering? The verse states:</b> “And the fire on the altar shall be kept burning on it, it shall not be extinguished; and the priest shall kindle wood upon it every morning, <b>and he shall prepare the burnt offering upon it</b> and shall cause the fats of the peace offerings to go up in smoke upon it” (Leviticus 6:5). <b>And Rabba says</b> that the term: <b>The burnt offering,</b> with the definite article, indicates that the <b>burnt offering</b> is important and is the <b>first</b> offering sacrificed each day. <b>Rav Yehuda says:</b> The griddle-cake offering was not burned on the altar at that early hour. Rather, it was necessary to set the preparers of the griddle-cake offering <b>to heat hot water for</b> preparing <b>the parboiled</b> griddle cakes.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

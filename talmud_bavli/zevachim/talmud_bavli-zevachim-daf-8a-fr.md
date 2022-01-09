@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>"Et le pretre prendra du sang du sacrifice pour le peche"</b> (Levitique 4:25), ce qui enseigne <b>que</b> la <b>collecte</b> du sang <b>doit etre</b> effectuee <b>en vue d'un sacrifice pour le peche.</b>
+
+### Partie 2
+La Guemara demande : <b>Et nous avons trouve</b> une source pour la <i>halakha</i> selon laquelle l'<b>abattage et la collecte</b> doivent etre effectues en vue d'une offrande pour le peche. <b>D'ou tirons-nous</b> cette <i>halakha</i> en ce qui concerne le <b>sprinkling</b> du sang ? La Gemara repond : Elle est derivee d'un verset, <b>comme le dit le verset : "Et le pretre fera pour lui l'expiation de son peche"</b> (Levitique 4:26), ce qui enseigne <b>que</b> l'expiation doit etre</b> effectuee <b>a cause d'une offrande pour le peche,</b> car l'expiation est effectuee par l'aspersion du sang.
+
+### Partie 3
+La Gemara demande : <b>Nous avons trouve</b> une source pour l'interdiction de <b>deviation</b> du type d'<b>offrande. D'ou tirons-nous</b> l'interdiction de <b>deviation</b> par rapport au <b>proprietaire ?</b> La Gemara repond : Le <b>verset susmentionne stipule : </b> "Et le pretre fera l'expiation <b>pour lui,</b> indiquant que l'intention doit etre <b>pour lui, et non pour un autre.</b>
+
+### Partie 4
+La Guemara demande : <b>Nous avons trouve</b> une source <b>pour</b> la <b>mitzva</b> d'asperger le sang pour le bien du proprietaire <i>ab initio</i>. <b>D'ou deduit-on</b> que cela est <b>indispensable</b> et disqualifie l'offrande si elle n'est pas accomplie ? La Guemara repond : C'est <b>comme le dit Rav Huna, fils de Rav Yehoshua</b> a propos de l'offrande pour le peche d'un nazirite : Puisque le verset aurait pu simplement dire : <b>offrande pour le peche,</b> mais au lieu de cela, il a dit : <b>Son offrande pour le peche"</b> (Nombres 6:16), on en deduit que l'offrande doit etre sacrifiee pour lui, le proprietaire. <b>Ici aussi,</b> puisque le verset aurait pu simplement dire <b>"peche",</b> mais qu'il dit <b>"son peche",</b> on en deduit que si le sang de l'offrande pour le peche n'est pas asperge pour l'amour de son proprietaire, elle est disqualifiee.
+
+### Partie 5
+La Gemara demande : <b>Nous avons trouve</b> une source pour la <b>mitzva de</b> sacrifier une offrande pour le peche sans <b>deviation</b> du type d'<b>offrande</b> <i>ab initio</i>, <b>et</b> en ce qui concerne <b>l'aspersion</b> de son sang sans <b>deviation</b> par rapport au <b>proprietaire</b> concernant <b>a la fois</b> sa <b>mitzva</b> <i>ab initio</i> <b>et</b> son <b>indispensabilite. D'ou vient que l'accomplissement de <b>tous</b> les <b>rites sacrificiels</b> sans <b>deviation</b> du type d'offrande est une exigence indispensable</b>, <b>et</b> que l'accomplissement de <b>tous les autres rites,</b> en plus de l'aspersion du sang, sans <b>deviation</b> par rapport au <b>proprietaire est a la fois une mitzva</b> <i>ab initio</i> <b>et indispensable ?</b>
+
+### Partie 6
+<b>Rabbi Yona dit : Elle est derivee de</b> la <i>halakha</i> concernant <b>l'offrande pour le peche d'un nazirite ; comme il est ecrit</b> concernant un nazirite : <b>"Le pretre les amenera devant l'Eternel, et offrira [<i>veâsa</i>] son offrande pour le peche et son holocauste"</b> (Nombres 6:16). Le verset enseigne <b>que toutes ses</b> <b>actions sacrificielles [<i>asiyyotav</i>] doivent etre</b> effectuees <b>en vue d'un sacrifice pour le peche.</b>
+
+### Partie 7
+La Guemara demande : <b>Nous avons trouve</b> une source pour la <i>halakha</i> selon laquelle une offrande pour le peche doit etre sacrifiee sans <b>deviation</b> du type d'<b>offrande,</b> et que cette exigence est indispensable. <b>D'ou derive-t-on</b> que le sacrifier sans <b>deviation</b> par rapport au <b>proprietaire</b> est egalement indispensable, meme dans des rites autres que l'aspersion du sang ?
+
+### Partie 8
+<b>Rav Huna, fils de Rav Yehoshua, dit :</b> Puisque le verset concernant un nazirite aurait pu simplement dire : <b>Offrande de peche,</b> mais au lieu de cela, il est dit : <b>Son offrande pour le peche,</b> on en deduit que l'offrande doit etre sacrifiee pour le bien du proprietaire.
+
+### Partie 9
+<b>Ravina s'oppose a cela : Si c'est le cas, qu'interpretez-vous</b> du fait que le meme verset aurait pu dire : <b>Offrande brulee,</b> mais au lieu de cela, il dit : <b>"Son holocauste"</b>.
+
+### Partie 10
+La Gemara demande : <b>Et selon Ravina, qu'interpretez-vous</b> du verset suivant : "Le prêtre offrira aussi son offrande de repas et sa libation" (Nombres 6:17) ? Pourquoi Ravina ne mentionne-t-il pas que ce verset aurait pu dire : <b>Offrande de repas,</b> mais qu'au lieu de cela, il indique : <b>Son offrande de repas,</b> et qu'il aurait pu dire : <b>Liberation,</b> mais qu'il indique plutot : <b>"Sa libation"</b>.
+
+### Partie 11
+La Gemara repond : <b>Cette</b> langue <b>est necessaire;</b> c'est comme la phrase : <b>"Leur offrande de repas et leurs libations"</b>, qui est mentionnee a de nombreuses reprises dans la partie des offrandes de la Fete (par exemple, Nombres 29:37). Elle enseigne que les offrandes de repas et les libations qui sont apportees avec les offrandes supplementaires d'animaux des Fetes peuvent etre sacrifiees meme <b>la nuit</b> apres l'apport de l'offrande. La phrase : <b>"Leur offrande de repas et leurs libations"</b> enseigne egalement qu'elles peuvent etre apportees <b>meme le jour suivant.</b> De meme ici, lorsqu'elle est enoncee a l'egard d'un nazirite, la phrase enseigne qu'elles peuvent etre apportees la nuit ou le jour suivant l'offrande sacrifiee. <b>Mais</b> il reste une difficulte : <b>Que faut-il interpreter</b> du fait que le verset aurait pu dire : <b>L'holocauste,</b> mais qu'au lieu de cela, il dit : <b>Son holocauste"?</b>
+
+### Partie 12
+La Guemara souleve une objection supplementaire a la derivation de l'offrande pour le peche d'un nazirite : <b>Et en outre, les <i>halakhot</b> d'une offrande de peche standard et d'une offrande de peche de nazirite peuvent-elles <b>etre derivees l'une de l'autre ?</b> Les <i>halakhot</b> d'une offrande de peche</b> apportee pour une transgression, par ex, manger de la <b>graisse interdite, ne peut etre derive de</b> les <i>halakhot</i> de <b>l'offrande pour le peche d'un nazirite,</b> en raison de l'element unique de rigueur de cette derniere, <b>puisqu'il y a d'autre sang,</b> c'est-a-dire, d'autres offrandes sont apportees, <b>avec lui. </b> De meme, les <i>halakhot</i> de <b>l'offrande pour le peche d'un nazirite ne peuvent etre derivees de</b> les <i>halakhot</i> d'une <b>offrande pour le peche</b> apportee pour avoir mange de la <b>graisse interdite, </b> en raison de l'element unique de rigueur de cette derniere, <b>puisqu'elle expie une transgression punie par <b>l'exclusion du Monde-a-Venir [<i>karet</i>]. </b>
+
+### Partie 13
+<b>Rava dit plutot :</b> Ces <i>halakhot</i> sont <b>derivees</b> de la <i>halakha</i> de <b>l'offrande pour le peche d'un lepreux ; comme il est ecrit : "Et le pretre offrira [<i>veâsa</i>] le sacrifice pour le peche"</b> (Levitique 14:19), ce qui enseigne <b>que toutes</b> les <b>actions sacrificielles de [<i>asiyyotav</i>]</b> un sacrifice pour le peche <b>doivent etre</b> accomplies <b>en vue d'un sacrifice pour le peche.</b>
+
+### Partie 14
+<b>Et nous avons trouve</b> une source pour la <i>halakha</i> qu'une offrande pour le peche doit etre sacrifiee sans <b>deviation</b> du type d'<b>offrande,</b> et que cela est indispensable. <b>D'ou deduit-on</b> que sacrifier une offrande pour le peche sans <b>deviation</b> par rapport au <b>proprietaire</b> est egalement indispensable ? <b>Le verset dit : "Et fais l'expiation pour celui qui doit etre purifie</b> de son impurete" (Levitique 14:19), indiquant que l'offrande pour le peche doit etre sacrifiee <b>pour</b> l'amour de <b>cette</b> personne <b>qui est purifiee, et non pour une autre</b> personne <b>qui doit etre purifiee.</b>
+
+### Partie 15
+La Gemara demande : <b>Mais encore, les <i>halakhot</b> d'une offrande de peche standard et d'une offrande de peche de lepreux peuvent-elles <b>etre derivees les unes des autres ?</b> Cette comparaison est egalement problematique. Les <i>halakhot</i> d'une <b>offrande pour le peche</b> apportee pour avoir mange de la <b>graisse interdite ne peuvent pas etre derivees de</b> la <i>halakhot</i> d'une <b>offrande pour le peche d'un lepreux, puisqu'il y a d'autres sangs</b> qui sont apportes <b>avec</b> cette derniere, c'est-a-dire, un holocauste et une offrande de culpabilite ; et les <i>halakhot</i> d'une <b>offrande pour le peche d'un lepreux ne peuvent etre derivees de</b> la <i>halakhot</i> d'une <b>offrande pour le peche</b> apportee pour avoir mange de la <b>graisse interdite, puisque</b> cette derniere expie une transgression punissable par <b><i>karet</i>.</b>
+
+### Partie 16
+La Gemara repond : En effet, les <i>halakhot</i> d'une offrande pour le peche <b>ne peuvent pas etre derivees</b> des <i>halakhot</i> de <b>un</b> autre type d'offrande pour le peche uniquement. Mais on peut <b>deriver</b> les <i>halakhot</i> de <b>un</b> type d'offrande pour le peche <b>a partir</b> des <i>halakhot</i> des <b>deux autres.</b> Les versets concernant une offrande pour le peche standard, celle d'un lepreux et celle d'un nazireen contiennent tous des elements qui indiquent que l'offrande doit etre sacrifiee pour elle-meme. Deux d'entre eux reunis suffisent a enseigner que cette <i>halakha</i> s'applique au troisieme cas. Le troisieme cas est donc apparemment etranger, et il est compris comme enseignant qu'une intention appropriee a cet egard est indispensable pour tous les rites de l'offrande.
+
+### Partie 17
+La Guemara demande : <b>Pour quel</b> type d'offrande pour le peche <b>la Torah <b>ne devrait-elle pas avoir ecrit</b> cette <i>halakha</i>, c'est-a-dire lequel des trois cas doit etre considere comme le cas etranger ? Si vous dites : <b>Le Misericordieux n'a pas ecrit</b> cela <b>en ce qui concerne une offrande de peche</b> apportee pour avoir mange de la <b>graisse interdite, et</b> on peut <b>deriver</b> cela <b>de ces</b> autres offrandes de peche, c'est-a-dire celles d'un nazirite et d'un lepreux, cela peut etre refute : <b>Qu'est-ce qui est notable</b> dans ces</b> autres offrandes pour le peche ? Elles sont remarquables <b>en ce qu'il y a d'autres sangs</b> apportes <b>avec elles.</b> Par consequent, la <i>halakha</i> ne devrait s'appliquer qu'aux offrandes de peches similaires.
+
+### Partie 18
+Si vous dites : <b>Que le Misericordieux ne l'ecrive pas</b> <b>en ce qui concerne l'offrande pour le peche d'un nazirite, et</b> on peut <b>le deduire</b> <b>de ces</b> autres offrandes pour le peche, celles d'un lepreux et d'un pecheur, cela peut aussi etre refute : <b>Qu'est-ce qui</b> est notable <b>dans ces</b> autres offrandes pour le peche ? Elles sont remarquables <b>en ce que</b> l'on n'a pas <b>la possibilite</b> d'obtenir une exemption par le biais d'une <b>demande</b> a une autorite halakhique. Un nazirite, en revanche, peut demander a une autorite halakhique de dissoudre son vœu de nazirisme, annulant ainsi son obligation.
+
+### Partie 19
+Si vous dites : <b>Que le Misericordieux ne l'ecrive pas</b> <b>en ce qui concerne l'offrande pour le peche d'un lepreux, et</b> on peut le <b>deriver</b> <b>de ces</b> autres offrandes pour le peche, celles d'un nazirite et d'un pecheur, cela peut aussi etre refute : <b>Qu'est-ce qui</b> est notable <b>dans ces</b> autres offrandes pour le peche ? Elles sont notables <b>en ce qu'elles ne peuvent etre apportees</b> de colombes au lieu de moutons si le proprietaire est <b>pauvre,</b> contrairement a l'offrande pour le peche du lepreux (voir Levitique 14:21). Par consequent, les <i>halakhot</i> de ces differentes offrandes pour le peche ne peuvent etre derivees les unes des autres.
+
+### Partie 20
+<b>Au contraire,</b> la <i>halakha</i> est derivee de ce que <b>le verset enonce : "C'est la loi de l'holocauste, de l'offrande de repas,</b> de l'offrande pour le peche, de l'offrande de culpabilite, de l'offrande de consecration et du sacrifice de paix" (Levitique 7:37). <b>Le verset juxtapose</b> une offrande pour le peche <b>avec une offrande de paix,</b> indiquant que <b>comme</b> pour <b>une offrande de paix nous exigeons</b> l'intention <b>pour son bien, comme une mitzva</b> <i>ab initio</i>, <b>a la fois</b> concernant la <b>deviation</b> du type d'<b>offrande et</b> concernant la <b>deviation</b> par rapport au <b>proprietaire, de meme, </b> pour <b>une offrande pour le peche nous exigeons</b> l'intention <b>pour son bien comme une mitzva, a la fois</b> concernant la <b>deviation</b> du type d'<b>offrande et</b> concernant la <b>deviation</b> par rapport au <b>proprietaire. </b>
+
+### Partie 21
+<b>C'est pourquoi,</b> la <b>mitzva</b> <i>ab initio</i> est derivee <b>de</b> la <i>halakha</i> d'une <b>offrande de paix ; et ces versets</b> mentionnes plus haut, desquels cette exigence est derivee en ce qui concerne chaque type d'offrande de peche separement, repetent la <i>halakha</i> <b>pour</b> enseigner qu'elle est <b>indispensable.</b>
+
+### Partie 22
+La Guemara demande : <b>Et nous avons trouve</b> une source pour ces <i>halakhot</i> en ce qui concerne <b>une offrande pour le peche</b> apportee pour avoir mange de la <b>graisse interdite, car il est ecrit a son sujet :</b> "Et l'abattre <b>pour une offrande pour le peche"</b> (Levitique 4:33), indiquant qu'il doit etre abattu en vue d'une offrande pour le peche. De meme, les sources de cette <i>halakha</i> en ce qui concerne les offrandes pour le peche d'un nazirite et d'un lepreux ont egalement ete citees.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

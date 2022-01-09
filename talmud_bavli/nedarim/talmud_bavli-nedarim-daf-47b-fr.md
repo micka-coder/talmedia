@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Ou peut-etre</b> l'interdiction des produits de remplacement dans la mishna est <b>due</b> au fait <b>que les remplacements</b> des produits sont consideres comme etant <b>comme ce qui pousse</b> a partir d'eux ? Ils sont tous deux interdits parce qu'ils derivent du produit interdit. Si c'est le cas, il n'y a pas de difference entre <b>Il et </b> il n'y a pas de difference entre <b>Un autre.</b> Aucun des deux ne peut tirer un benefice des produits de remplacement.
+
+### Partie 2
+<b>Rav Aha bar Minyumi a dit : Venez</b> et <b>entendre</b> une preuve de la part d'un <i>baraita</i> : En ce qui concerne <b>celui qui dit a sa femme : Beneficier de moi est <i>konam</i> pour toi, elle peut</b> neanmoins <b>emprunter</b> de l'argent pour subvenir a ses besoins, <b>et les creanciers peuvent venir recouvrer</b> ses dettes aupres de son mari. <b>Quelle est la raison</b> pour laquelle <b>les creanciers peuvent recouvrer</b> aupres du mari ? <b>N'est-ce pas parce que</b> elle n'en beneficie qu'indirectement, et qu'il faut que <b>les remplacements,</b> c'est-a-dire l'argent des creanciers, <b>ne ressemblent pas a ce qui pousse</b> a partir de l'element initial ?
+
+### Partie 3
+<b>Rava dit :</b> Ce n'est pas une preuve : <b>Peut-etre est-ce</b> le cas <b>qu'on ne doit pas</b> beneficier de remplacements <b><i>ab initio</i>, mais si on le faisait</b>, c'est <b>fait</b> apres coup. Comme l'epouse n'a pas d'autres moyens de subvenir a ses besoins, on considere que le cas est posterieur au fait, et il lui est permis d'en beneficier indirectement. Toujours est-il que les remplacements d'un objet sont consideres comme ce qui en decoule <i>ab initio</i>.
+
+### Partie 4
+<b>Venez plutot</b> et <b>entendre</b> une preuve issue d'une autre mishna (<i>Kiddushin</i> 56b) : En ce qui concerne <b>celui qui fiance</b> une femme <b>avec</b> des fruits de <b><i>orla</i>,</b> c'est-a-dire des fruits des trois premieres annees de croissance d'un arbre, dont il est interdit de profiter, <b>elle n'est pas fiancee</b> car ces fruits n'ont aucune valeur. Les fiancailles ne peuvent etre effectuees qu'avec un objet valant au moins une <i>peruta</i>. Mais si <b>il les a vendus et l'a fiancee avec l'argent</b> qu'il a recu, <b>elle est fiancee.</b> De toute evidence, le remplacement d'un objet interdit est autorise. La Guemara repond : <b>Ici aussi, on ne doit pas</b> beneficier des articles de remplacement donnes en echange de la <i>orla <b>ab initio</b></i><b>, mais si on l'a</b> fait, c'est <b>fait</b> apres coup. Les remplacements d'un element peuvent encore etre consideres comme semblables a ce qui en decoule <i>ab initio</i>.
+
+### Partie 5
+<strong>MISHNA:</strong> Si quelqu'un dit a un autre : <b>Je suis par la presente</b> interdit <b>a toi</b> comme un objet <b>dedie</b> au Temple, alors <b>celui qui est interdit par</b> le <b>vœu est interdit</b> de beneficier des biens de celui qui a fait le vœu. Si quelqu'un dit : <b>Tu es par la presente</b> interdit <b>a moi</b> comme un objet <b>dedie</b> au Temple, alors <b>celui qui a fait le vœu est interdit</b> de beneficier des possessions de l'autre. S'il dit : <b>Je suis par la presente</b> interdit <b>a toi et tu es</b> par la presente interdit <b>a moi</b> comme un objet dedie au Temple, <b>les deux sont interdits</b> de beneficier des biens de l'autre. <b>Mais</b> il est <b>permis a l'un et a l'autre</b> de profiter <b>des</b> <b>objets appartenant a ceux qui sont montes de Babylone,</b> c'est-a-dire des biens communs de la nation dans son ensemble, qui ne sont pas consideres comme la propriete d'un individu.
+
+>Credit : Edition William Davidson
+>License : CC-BY-NC

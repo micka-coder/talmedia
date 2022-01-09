@@ -1,0 +1,42 @@
+
+### Part 1
+<b>And it is written: “And Rizpah, daughter of Aiah, took sackcloth and spread it for her upon the rock, from the beginning of harvest</b> until water was poured upon them from heaven; and she suffered neither the birds of the air to rest on them by day, nor the beasts of the field by night” (II Samuel 21:10). It is clear from this verse that the bodies of the children of Saul remained exposed outdoors; presumably, they were hung.
+
+### Part 2
+The Gemara discusses the incident of the Israelites who worshipped the idol of Peor in the wilderness. <b>And it is written: “And the Lord said unto Moses: Take all the chiefs of the people,</b> and hang them unto the Lord facing the sun, that the fierce anger of the Lord may turn away from Israel” (Numbers 25:4). The Gemara asks: <b>If the nation transgressed,</b> in <b>what</b> manner did <b>the chiefs of the people transgress?</b> The verse does not record a transgression of the chiefs, so why were they punished?
+
+### Part 3
+<b>Rav Yehuda says</b> that <b>Rav says:</b> The reason for selecting the chiefs of the tribes was not to punish them. Rather, <b>the Holy One, Blessed be He, said to Moses: Apportion courts for</b> the chiefs of the tribes, and each court will judge and punish the transgressors of its tribe. The Gemara asks: <b>What is the reason</b> that multiple courts were needed for this? <b>If we say</b> that it is <b>due to</b> the principle <b>that</b> a court <b>does not judge two</b> cases of capital law <b>in one day,</b> and there were many cases to be judged, that cannot be the reason. <b>But doesn’t Rav Ḥisda say:</b> This principle was <b>taught only with regard to two</b> different <b>types of death</b> imposed by a court, as each case needs sufficient time to be fully investigated on its own merits. <b>But</b> the court <b>does judge</b> multiple cases <b>of one type of death,</b> i.e., one transgression, on the same day.
+
+### Part 4
+The Gemara explains: <b>Rather,</b> the reason for the appointment of multiple courts was <b>in order that the fierce anger</b> of the Lord <b>may turn away from Israel.</b> The fierce anger of God would remain until those who engaged in idol worship were punished. Therefore, it was necessary to try them in due haste.
+
+### Part 5
+§ The mishna teaches: In cases of <b>monetary law,</b> the court may <b>conclude</b> the deliberations and issue the ruling even <b>on that same day,</b> whether to exempt the accused or to find him liable. In cases of capital law, the court may conclude the deliberations and issue the ruling even on that same day to acquit the accused, but must wait until the following day to find him liable. The Gemara asks: <b>From where are these matters</b> derived?
+
+### Part 6
+<b>Rabbi Ḥanina said: The verse states</b> prophetically concerning Jerusalem after the destruction of the First Temple: <b>“She that was full of justice, righteousness lodged in her, but now murderers”</b> (Isaiah 1:21). The verse associates lodging, or waiting overnight, with justice. <b>And Rava says</b> that these matters are derived <b>from here:</b> “Learn to do well; seek judgment, <b>relieve [<i>ashru</i>] the oppressed [<i>ḥamotz</i>]”</b> (Isaiah 1:17). This is interpreted: <b>Praise [<i>ashru</i>]</b> the <b>judge who delays [<i>meḥametz</i>] his verdict</b> before he pronounces it.
+
+### Part 7
+<b>And the other</b> <i>amora</i>, Rabbi Ḥanina, who did not derive this <i>halakha</i> from this verse, interprets it as meaning: <b>Relieve the robbery victim [<i>ḥamotz</i>], but not the robber [<i>ḥometz</i>],</b> as do the wicked judges. The Gemara asks: <b>And the other</b> <i>amora</i>, Rava, <b>what does he do with this</b> verse: <b>“She that was full of justice,</b> righteousness lodged in her, but now murderers”?
+
+### Part 8
+The Gemara answers: Rava interprets it <b>in accordance with</b> the statement <b>that Rabbi Elazar</b> says that <b>Rabbi Yitzḥak says, as Rabbi Elazar says</b> that <b>Rabbi Yitzḥak says: Every fast</b> day <b>on which the</b> distribution of <b>charity [<i>tzedaka</i>] is left overnight,</b> this is considered <b>as if</b> one <b>spilled</b> the <b>blood</b> of the poor people, as they fasted all day in the expectation that they would receive charity before the day was over in order to purchase food with which to break their fasts. <b>As it is stated: “She that was full of justice [<i>tzedek</i>],</b> righteousness lodged in her, but now murderers.” The Gemara clarifies: <b>And this statement</b> applies <b>with regard to</b> the delaying of the distribution of <b>bread and dates,</b> which are ready to be consumed; <b>but with regard to</b> the delaying of the distribution of <b>money, wheat, and barley, we have no</b> problem <b>with it.</b>
+
+### Part 9
+§ After teaching that in cases of capital law, the verdict may not be issued on the same day as the deliberations, the mishna states: <b>Therefore,</b> the court <b>does not judge</b> cases of capital law on certain days, neither on the eve of Shabbat nor on the eve of a Festival. The Gemara asks: <b>What is the reason</b> for this? What does the <i>halakha</i> that the verdict may not be issued on the same day as the deliberations have to do with not judging cases on those days?
+
+### Part 10
+The Gemara explains: It is <b>because</b> it is <b>not possible</b> to conduct the trial on the eve of Shabbat or the eve of a Festival. As, <b>how should we act?</b> If we say that <b>we</b> should <b>judge him on Shabbat eve and conclude his verdict on Shabbat eve, perhaps we would see a reason to find</b> the accused <b>liable, and</b> in this situation the court is <b>required to perform a suspension of the trial</b> until the following day, as the court may not issue a verdict in cases of capital law on the same day as the deliberations. If we say: <b>We</b> should <b>judge him on Shabbat eve and conclude</b> the verdict <b>on Shabbat, and,</b> if he is found liable, <b>kill him on Shabbat,</b> that cannot be done, as the <b>murder</b> of one liable to receive court-imposed capital punishment <b>does not override Shabbat. And</b> if we say: <b>We</b> should <b>kill him at night,</b> after the conclusion of Shabbat, that cannot be done, as <b>we require</b> that the capital punishment be administered <b>facing the sun,</b> during the daytime.
+
+### Part 11
+<b>And</b> if we say: <b>We</b> should judge him on Shabbat eve, <b>conclude his verdict on Shabbat, and kill him on Sunday, you are found to have caused a delay in his verdict,</b> as the accused will have to wait overnight knowing he is condemned to death. And if we say: <b>We</b> should <b>judge him on Shabbat eve and conclude</b> his verdict <b>on Sunday,</b> the judges will <b>forget their reasons</b> for their positions in the interim. <b>And even though two judges’ scribes are standing before them, and they write the statements of those who acquit</b> the accused <b>and the statements of those who find</b> him <b>liable,</b> and <b>they write that which</b> emerged from <b>the mouths</b> of the judges, i.e., their tentative verdict, <b>the hearts of people [<i>enashei</i>] are forgetful [<i>inshei</i>], and they will forget the reasons. Therefore,</b> it is <b>not possible</b> to begin deliberations in cases of capital law on a Shabbat eve or a Festival eve.
+
+### Part 12
+§ The Gemara discusses a related matter: <b>Reish Lakish said to Rabbi Yoḥanan: And the burial of a corpse with no one to bury it [<i>met mitzva</i>] should override Shabbat by</b> means of <b>an <i>a fortiori</i></b> inference: <b>If</b> with regard to the Temple <b>service, which overrides Shabbat,</b> yet <b>the burial of a <i>met mitzva</i> overrides it, based on</b> the interpretation of the term written with regard to a nazirite: <b>“Or for his sister”</b> (Numbers 6:7); the Gemara pauses its recounting of the question of Reish Lakish and cites a <i>baraita</i> that teaches this <i>halakha</i>.
+
+### Part 13
+<b>As it is taught</b> in a <i>baraita</i>: The verses state with regard to a nazirite: “All the days that he consecrates himself unto the Lord he shall not come near to a dead body. He shall not make himself impure <b>for his father, or for his mother, for his brother, or for his sister,</b> when they die” (Numbers 6:6–7). <b>Why</b> must <b>the verse state</b> all of these relatives? It teaches that if a nazirite <b>was going to slaughter his Paschal offering or to circumcise his son</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,9 @@
+
+### Part 1
+to bring <b>five provisional guilt offerings, when he brings one</b> offering <b>is he exempt</b> from bringing the rest? <b>But isn’t it taught</b> in a <i>baraita</i> that <b>this is the principle:</b> In <b>any</b> case <b>where</b> one’s transgressions <b>are divided with regard to sin offerings,</b> i.e., where one must bring a separate sin offering for each act when he becomes aware that he has sinned, they are likewise <b>divided with regard to</b> provisional <b>guilt offerings,</b> when there is uncertainty as to whether or not he sinned?
+
+### Part 2
+<b>Rather, everyone</b> agrees that <b>we compare</b> the sin offerings of a woman after childbirth and a <i>zava</i> <b>to immersions,</b> and therefore by Torah law it is sufficient for her to say: I am bringing it for one of them. <b>And they disagree with regard to</b> whether <b>we are concerned for</b> her <b>negligence. Rabbi Yoḥanan ben Nuri maintains we are concerned for</b> her <b>negligence.</b> In other words, if she says: I am bringing it for one of my obligations, if she gives birth in the following years she might think that she does not need to bring an offering for each birth, and she will neglect to bring an offering. By requiring her to declare: I am bringing the offering for the last definite obligation, the Sages thereby remind her that all her births require offerings. <b>And Rabbi Akiva maintains we are not concerned for</b> her <b>negligence,</b> and therefore it is sufficient for her to say: I am bringing the offering for one of them.<br/>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

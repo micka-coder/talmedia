@@ -1,0 +1,60 @@
+
+### Part 1
+equivalent to the weight <b>of sixty</b> <i>sela</i>, as stated by Rav Dimi. The Gemara asks: <b>But</b> does <b>a <i>tanna</i> teach</b> that <b>a <i>maneh</i> is of forty <i>sela</i>?</b> The Gemara answers: <b>Yes; and we learned</b> in the <i>Tosefta</i> (<i>Kelim</i>, <i>Bava Metzia</i> 6:2): With regard to <b>a new</b> leather <b>flask</b> that is not yet completely sewn together, <b>even though it can contain pomegranates,</b> nevertheless, because it cannot contain liquids it is considered unfinished and is <b>not susceptible to ritual impurity.</b>
+
+### Part 2
+If one <b>sewed</b> the flask together <b>and it tore,</b> the <b>measure</b> of the tear that renders the flask no longer susceptible to impurity is a hole large enough <b>to enable pomegranates to go out,</b> as then it ceases to serve as a vessel. <b>Rabbi Eliezer ben Ya’akov says:</b> The tear must be <b>like</b> the measure of <b>balls of a warp,</b> the weight of each of which is <b>one-quarter of a <i>maneh</i> of forty <i>sela</i>.</b> This <i>tanna</i> explicitly mentions a <i>maneh</i> of forty <i>sela</i>.
+
+### Part 3
+§ The mishna states: <b>And how much</b> of the sheared wool <b>does one give to</b> the priest? One gives him the weight of five <i>sela</i> in Judea, which are ten <i>sela</i> in the Galilee, once laundered and not when sullied. The Sages <b>taught:</b> The mishna does <b>not</b> mean <b>that one</b> must <b>launder</b> the wool <b>and</b> then <b>give it to</b> the priest; <b>rather,</b> the meaning is <b>that</b> one must give him enough wool for the <b>priest to launder it and it will amount to five <i>sela</i>.</b>
+
+### Part 4
+The mishna states: The measure that must be given to the priest is <b>enough to fashion a small garment</b> from it. The Gemara asks: <b>From where are these matters</b> derived? <b>Rabbi Yehoshua ben Levi said:</b> The <b>verse</b> that follows the mention of the first sheared wool <b>states:</b> “For the Lord your God has chosen him out of all your tribes, <b>to stand to serve</b> in the name of the Lord, he and his sons forever” (Deuteronomy 18:5). The term “to serve” indicates that the first sheared wool given to the priest must be <b>a matter that is fitting for service</b> in the Temple, i.e., an amount of wool sufficient to fashion one of the priestly garments. <b>What is</b> the garment in question? It is the <b>belt,</b> which is made from wool weighing five <i>sela</i>.
+
+### Part 5
+The Gemara asks: Is the garment in question necessarily the belt? <b>Say</b> that it is the <b>robe,</b> which is fashioned from a far greater amount of wool. The Gemara answers: This inference is based on the principle that if <b>you grasped a lot you did not grasp</b> anything; if <b>you grasped a little, you grasped</b> something. Since a belt meets the condition of “to serve,” as it is one of the priestly vestments, one cannot say that the obligation is any greater than the amount of wool needed to fashion a belt.
+
+### Part 6
+<b>But say</b> that the garment in question is the <b>cap of wool</b> that the High Priest wears, which is smaller than the belt. <b>As it is taught</b> in a <i>baraita</i>: <b>A cap of wool was placed on the High Priest’s head, and</b> the <b>frontplate was placed upon it, to fulfill that which is stated</b> with regard to the frontplate: <b>“And you shall put it on a thread of sky blue,</b> and it shall be upon the mitre; upon the forefront of the mitre it shall be” (Exodus 28:37). The term “thread of sky blue” is referring to the cap of sky-blue wool.
+
+### Part 7
+The Gemara answers that the <b>verse states:</b> “To stand to serve in the name of the Lord, <b>he and his sons”</b> (Deuteronomy 18:5), which indicates that the verse is referring to <b>a matter,</b> i.e., a garment, <b>that is equal for Aaron and for his sons.</b> The wool given to the priest must be of sufficient size for fashioning a garment worn both by the High Priest and by common priests, whereas the woolen cap is worn only by the High Priest.
+
+### Part 8
+The Gemara objects: But the <b>belt is also not equal</b> for all priests. The Gemara elaborates: <b>This works out well according to the one who said</b> that the linen <b>belt of</b> the <b>High Priest</b> worn on Yom Kippur <b>is not</b> the same as <b>the belt of an ordinary priest.</b> According to this opinion, both the belt of common priests and the belt worn by the High Priest during the rest of the year were fashioned from a mixture of wool and linen. This belt is therefore equal for all priests, and it works out <b>well.</b>
+
+### Part 9
+<b>But according to the one who said</b> that the linen belt worn by the High Priest on Yom Kippur <b>is</b> the same as the <b>belt of an ordinary priest, what can be said?</b> According to this opinion, the belt fashioned from wool and linen is worn only by the High Priest during the rest of the year. The Gemara answers: Although the belts are different, the <b>term belt in general</b> applies to all priests, whereas no type of cap is worn by common priests.
+
+### Part 10
+§ The mishna states: If the owner of the shearing <b>did not manage to give it</b> to the priest until he dyed it, he is exempt from the obligation of giving the first sheared wool. The mishna further teaches that one who purchases the fleece of the sheep of a gentile is exempt from the obligation of the first sheared wool. It <b>was stated</b> that <i>amora’im</i> disagreed with regard to one who owned five sheep and he <b>sheared and sold the first</b> sheep before shearing the second, and in this manner sold each sheep after shearing it. When he finished shearing he owned the requisite five fleeces, to which the obligation of the first sheared wool applies, but he no longer owned the sheep. <b>Rav Ḥisda says:</b> He is <b>obligated</b> in the mitzva of the first sheared wool; and <b>Rabbi Natan bar Hoshaya says:</b> He is <b>exempt</b> from the mitzva of the first sheared wool.
+
+### Part 11
+The Gemara clarifies the two opinions. <b>Rav Ḥisda says</b> that he is <b>obligated, as</b> he <b>sheared</b> five sheep that he owned at the time of shearing, and therefore the term: “Your flock” (Deuteronomy 18:4), applies to this case. <b>Rabbi Natan bar Hoshaya says</b> that he is <b>exempt,</b> as <b>at the time that the measure</b> of five fleeces <b>is completed, we require</b> the term <b>“your flock”</b> to apply, since the obligation takes effect at that stage, <b>and</b> in this case it does <b>not</b> apply.
+
+### Part 12
+The Gemara raises a challenge: <b>We learned</b> in the mishna (135a): <b>One who purchases the fleece of the sheep of a gentile is exempt from</b> the obligation of <b>the first sheared wool,</b> as he purchased only the fleece but not the sheep. One can infer from here that if he purchased the gentile’s <b>sheep</b> themselves in order <b>to shear</b> them and then return them to the gentile, he is <b>obligated,</b> because the sheep belonged to him at the time of shearing. But <b>why</b> is he obligated, according to the opinion of Rabbi Natan bar Hoshaya? <b>Each and every one</b> of the sheep, <b>after</b> the <b>shearing</b> is completed, <b>leaves his possession,</b> and when he has sheared five sheep, the term “your flock” no longer applies to them.
+
+### Part 13
+<b>Rav Ḥisda interpreted</b> the mishna <b>according to</b> the opinion <b>of Rabbi Natan bar Hoshaya:</b> The mishna is referring to a case <b>where</b> the gentile <b>transferred ownership to him</b> for the <b>entire</b> period of <b>thirty days</b> during which the Jew sheared the sheep. Therefore, he retained ownership after he completed shearing, and the term “your flock” does apply to the sheep at the time when the obligation of the first sheared wool took effect.
+
+### Part 14
+§ The mishna teaches: With regard to <b>one who purchases the fleece of the sheep of another</b> Jew, if the seller kept some of the wool, then he is obligated to give the first sheared wool to the priest. If the seller did not keep any of the wool, the buyer is obligated to give it. The Gemara asks: <b>Who</b> is the <i>tanna</i> who <b>taught that</b> in a case <b>where there is residual</b> wool <b>in</b> the possession of the <b>seller, we follow the seller</b> in determining who is obligated in the mitzva of first sheared wool?
+
+### Part 15
+<b>Rav Ḥisda said:</b> The <i>tanna</i> who taught the mishna <b>is Rabbi Yehuda, as we learned</b> in a mishna (<i>Pe’a</i> 3:5): With regard to <b>one who sells</b> a few fruit-bearing <b>tree stalks within his field,</b> without selling the field itself, for the buyer to uproot them and plant them in his own field, the buyer <b>gives</b> separate <b><i>pe’a</i> for each and every one</b> of the trees. The field does not combine the trees into a single unit for <i>pe’a</i>, as the land is not owned by the buyer.
+
+### Part 16
+<b>Rabbi Yehuda said: When</b> is it the buyer’s obligation to give <i>pe’a</i>? It is <b>when the owner of the field did not leave</b> any of the trees in his possession. <b>But</b> if <b>the owner of the field left</b> some of the trees in his possession, the owner <b>gives <i>pe’a</i> for all</b> the trees. Just as in the case of <i>pe’a</i>, if the seller left trees for himself then the obligation applies to him, so too, with regard to the first sheared wool, if the seller left some of the wool for himself, the obligation applies to him.
+
+### Part 17
+<b>Rava said to</b> Rav Ḥisda: <b>But wasn’t it</b> you, <b>Master, who said</b> with regard to Rabbi Yehuda’s ruling that the owner gives <i>pe’a</i> for all the trees: <b>This is</b> the <i>halakha</i> only <b>when the owner of the field began to harvest</b> the fruit before he sold the trees, as the obligation to give <i>pe’a</i> had already applied to him. By contrast, with regard to the first sheared wool, the obligation came into effect only after he sold his sheep.
+
+### Part 18
+<b>And if you would say</b> that <b>so too,</b> with regard to the first sheared wool, <b>this</b> <i>halakha</i> that the seller gives the first sheared wool applies only <b>if</b> the seller <b>began to shear</b> the sheep before he sold them, that explanation is difficult. The Gemara elaborates: <b>Granted, there,</b> with regard to <i>pe’a</i>, it <b>is written: “And when you reap the harvest of your land”</b> (Leviticus 19:9), which indicates that <b>from the time that he began to harvest he is obligated</b> in the mitzva of <i>pe’a</i> <b>with regard to the entire field. But here,</b> in the case of the first sheared wool, <b>he is not obligated with regard to the entire flock from the time that he began to shear</b> his sheep. Therefore, even if he began shearing before he sold the sheep, the obligation to give the first sheared wool should not apply to the seller.
+
+### Part 19
+<b>Rather, Rava said: It is this <i>tanna</i></b> who taught the mishna, <b>as we learned</b> in a different mishna (132a): If one <b>said to</b> a butcher: <b>Sell me the innards of this cow, and there were gifts</b> of the priesthood included <b>in them,</b> i.e., the maw, the purchaser <b>must give them to the priest, and</b> he <b>may not deduct</b> the value of the gifts <b>from the money</b> that he pays the butcher, as it is assumed that the gifts were not included in the sale. If <b>he purchased</b> the innards <b>from</b> the butcher <b>by weight,</b> the buyer <b>must give</b> the gifts <b>to a priest and</b> he <b>may deduct</b> the value of the gifts <b>from the money</b> that he pays the butcher. If the priestly gifts have not yet been separated from the animal, the price by weight includes the price of these gifts. But since the priests had the right to their gifts from the time of the slaughter, the buyer does not need to pay for them and may therefore deduct their value from his payment.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

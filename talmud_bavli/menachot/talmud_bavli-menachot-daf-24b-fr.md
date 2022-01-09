@@ -1,0 +1,51 @@
+
+### Partie 1
+communiquee par <b>le pietinement,</b> par exemple, si un homme qui eprouve un ecoulement semblable a la gonorrhee [<i>zav</i>] s'est couche sur elle et lui a transfere cette impurete grave, <b>et</b> par la suite, <b>on en a fait un rideau [<i>villon</i>],</b> elle est <b>pure</b> en ce qui concerne l'impurete rituelle <b>imputee par le pietinement,</b> car elle n'est plus apte a etre assise ou couchee. <b>Mais</b> il est <b>impur</b> du fait d'avoir ete en <b>contact</b> avec un objet devenu rituellement impur avec l'impurete impartie par <b>le pietinement,</b> car il est considere comme ayant ete en contact avec lui-meme, et il peut donc impartir l'impurete aux aliments et aux boissons.
+
+### Partie 2
+La mishna poursuit : <b>Rabbi Yosei a dit : Quelle</b> source d'impurete communiquee par la <b>marche a ce</b> rideau <b>touche ? Au contraire,</b> la <i>halakha</i> est <b>que si un <i>zav</i> a touche</b> le drap lui-meme avant qu'il ne soit transforme en rideau, et ne s'est pas seulement allonge dessus sans le toucher directement, alors bien que le rideau soit pur en ce qui concerne l'impurete rituelle impartie par le pietinement, il est neanmoins <b>impur</b> en raison du <b>contact</b> avec <b>un <i>zav</i>. </b> Ceci est du au fait que l'impurete transmise par le contact avec un <i>zav</i> s'applique dans le cas d'un rideau, qui n'est pas le <i>halakha</i> en ce qui concerne l'impurete transmise par le pietinement.
+
+### Partie 3
+Abaye commente : <b>Lorsqu'un <i>zav</i> touchait</b> le drap, <b>dans tous les cas</b> il etait rendu <b>impur, meme</b> s'il le touchait <b>apres</b> s'etre couche sur le drap, le rendant ainsi impur avec l'impurete communiquee par le pietinement. De cette maniere, il a ete rendu impur avec l'impurete <b>rituelle</b> impartie par le <b>marcheur, et apres</b> il a ete a nouveau rendu impur en raison du <b>contact</b> avec <b>un <i>zav</i>.</b> Selon la declaration de Rava, <b>pourquoi</b> cela serait-il la <i>halakha</i> ? <b>Disons</b> que l'objet est deja <b>sature d'impurete</b> et ne peut etre rendu impur une seconde fois.
+
+### Partie 4
+Rava <b>lui dit</b> en reponse : <b>Et d'ou</b> savez-vous <b>que cette</b> declaration de Rabbi Yosei : <b>Que si un <i>zav</i> a touche</b> le drap, il est neanmoins impur en raison du contact avec un <i>zav</i>, fait reference <b>au</b> cas ou un <i>zav</i> a touche le drap <b>apres</b> qu'il ait ete rendu impur par l'impurete rituelle communiquee par <b>la lecture ? Peut-etre</b> faisait-il reference a un cas ou un <i>zav</i> a touche le drap, le rendant impur en raison du contact avec un <i>zav</i>, <b>avant</b> qu'il ne s'allonge dessus et ne le rende impur avec l'impurete rituelle impartie par <b>le foulage. </b> Dans ce cas, la forme <b>severe</b> d'<b>impurete</b> rituelle impartie par le pietinement du <i>zav</i>, qui est une source primaire d'impurete rituelle qui impartit l'impurete a toutes les personnes et a tous les objets, <b>prend effet en plus</b> de la forme <b>moins importante</b> d'<b>impurete</b> communiquee par le contact avec un <i>zav</i>, qui ne communique l'impurete qu'aux aliments et aux boissons.
+
+### Partie 5
+<b>Mais ici,</b> dans le cas d'une partie d'une offrande de repas qui a ete touchee par celui qui s'est immerge ce jour-la apres etre deja devenue impure par le contact de celui qui s'est immerge ce jour-la, <b>ou</b> a la fois <b>ceci et cela</b> sont des formes <b>inferieures</b> d'<b>impurete,</b> peut-etre l'impurete ne prend-elle <b>pas</b> effet une seconde fois, puisqu'elle est deja impure.
+
+### Partie 6
+La Gemara suggere : <b>Au contraire,</b> la preuve contre l'existence d'un principe selon lequel un objet peut etre sature d'impurete et non susceptible de devenir impur une seconde fois provient <b>de la derniere clause</b> d'une <i>baraita</i> qui correspond a la mishna : <b>Rabbi Yosei concede que dans</b> un cas de <b>deux feuilles pliees et placees sur</b> l'une sur l'autre, et qu'un <i>zav</i> s'est assis dessus, la feuille superieure</b> est rendue impure avec l'<b>impurete rituelle</b> communiquee par <b>le pietinement, et le drap inferieur</b> est rendu impur avec l'impurete <b>rituelle</b> impartie par le <b>travail et</b> en raison du <b>contact</b> avec le drap superieur qui est devenu rituellement impur avec l'impurete impartie par le <b>travail. </b> La Gemara explique : <b>Mais</b> selon l'opinion avancee dans le dilemme de Rava, <b>pourquoi</b> ce serait le cas ? <b>Disons</b> que la feuille inferieure est deja <b>saturee d'impurete</b> et ne peut etre rendue impure une seconde fois.
+
+### Partie 7
+La Guemara rejette cette preuve : <b>Ici,</b> en ce qui concerne le drap de fond, les deux types d'impurete prennent effet <b>simultanement,</b> alors que <b>ici,</b> en ce qui concerne l'offrande de repas impur, les deux formes d'impurete prennent effet <b>une apres l'autre.</b> Ce n'est que dans ce dernier cas que Rava suggere que le deuxieme type d'impurete ne prend pas effet. Par consequent, il n'y a pas de preuve concluante, et la question soulevee par Rava reste non resolue.
+
+### Partie 8
+§ <b>Rava dit : </b> Dans le cas ou l'on <b>divise un dixieme</b> d'un epha d'une offrande de repas en deux moities, <b>et une</b> moitie a ete <b>perdue et il a separe une autre</b> moitie <b>a sa place, et</b> par la suite <b>la premiere</b> moitie perdue <b>a ete retrouvee, et les trois sont placees dans un receptacle</b> ensemble, si celle qui avait ete <b>perdue est devenue impure, le</b> demi-dizieme d'epha <b>perdu precedemment</b> et</b> le <b>premier</b> demi-dizieme d'epha <b>se rejoignent</b> et deviennent impurs, conformement a la mishna citee plus haut (<i>Hagiga</i> 20b) selon laquelle un recipient reunit les deux au regard de l'impurete rituelle. Mais le demi-dixieme d'un epha qui a ete <b>separe</b> pour remplacer le demi-dixieme perdu <b>ne se joint pas</b> aux autres demi-dixiemes, et il reste pur.
+
+### Partie 9
+Si celui qui avait ete <b>separe</b> pour remplacer le demi-dixieme perdu <b>est devenu impur,</b> alors le demi-dixieme <b>separe</b> <b>et</b> le <b>premier</b> demi-dixieme <b>se reunissent</b> et deviennent impurs, puisque le premier a ete separe pour completer le dixieme avec le premier demi-dixieme, tandis que le demi-dixieme precedemment <b>perdu</b> <b>ne se reunit pas</b> avec eux. Si le <b>premier</b> demi-decalage <b>est devenu impur,</b> alors <b>les deux</b> demi-decalage precedemment perdu ainsi que le demi-decalage qui a ete separe pour le remplacer <b>se joignent ensemble</b> et deviennent rituellement impurs, car chacun d'eux avait a un moment donne fait partie du meme dixieme que le premier demi-decalage.
+
+### Partie 10
+<b>Abaye dit : Meme si</b> n'importe quel <b>un des demi-dixiemes</b> est devenu impur, les deux</b> demi-dixiemes restants <b>s'unissent</b> et deviennent impurs eux aussi. <b>Quelle en est la raison ? Ils sont tous residents d'une meme cabane,</b> c'est-a-dire qu'ils etaient destines a faire partie de la meme offrande de repas.
+
+### Partie 11
+<b>Et de meme,</b> selon Rava, <b>en ce qui concerne le retrait de la poignee,</b> si on <b>retire la poignee de</b> la moitie du dixieme precedemment <b>perdue</b>, <b>son reste et</b> le reste du <b>premier</b> demi-decalage d'un epha <b>sont manges</b> par les pretres, tandis que le demi-decalage d'un epha qui a ete <b>separe</b> a sa place <b>n'est pas mange. </b> Puisqu'il n'etait pas destine a s'unir a cet autre demi-dixieme, l'enlevement de la poignee ne permet pas sa consommation. Si l'on <b>enleve la poignee de</b> celle qui avait ete <b>separee</b> a la place du demi-dixieme perdu, alors <b>son reste et</b> le <b>premier</b> demi-dixieme d'un epha <b>sont consommes,</b> tandis que le demi-dixieme precedemment <b>perdu</b> <b>n'est pas consomme.</b>
+
+### Partie 12
+Si l'on <b>enleve la poignee de</b> la <b>premiere</b> moitie de dixieme, alors <b>les deux</b> la moitie de dixieme precedemment perdue ainsi que la moitie de dixieme qui avait ete separee a sa place <b>ne sont pas mangees.</b> Ceci parce que l'enlevement de la poignee permet de manger le reste d'un dixieme seulement, et on ne sait pas si la consommation de la moitie de dixieme precedemment perdue ou de la moitie de dixieme de remplacement a maintenant ete autorisee.
+
+### Partie 13
+<b>Abaye dit : Meme si</b> on <b>enleve la poignee de</b> l'un ou l'autre <b>des deux, les deux</b> demi-dixiemes restants <b>ne sont pas consommes. Quelle en est la raison ? Ils sont tous residents d'une meme cabane,</b> et il n'est pas possible de savoir si la consommation de l'un ou de l'autre a ete autorisee.
+
+### Partie 14
+<b>Rav Pappa s'oppose a cette</b> decision de Abaye : <b>Et</b> cela revient-il a dire que <b>dans tous les cas</b> le <b>reste de</b> la demi-douzaine elle-meme dont la poignee a ete prelevee <b>est consommee ? Mais un sixieme [<i>danka</i>] de</b> la <b>manche</b> qui a ete prelevee <b>n'a pas ete sacrifie</b> pour permettre ce reste. La poignee a ete enlevee pour permettre la consommation des restes des trois demi-dixiemes d'un epha dans le receptacle. Puisque la poignee comprenait un tiers qui a ete enleve pour tenir compte du demi dixieme qui n'est pas necessaire, il s'avere que chacun des deux demi dixiemes reels aurait du avoir un sixieme supplementaire enleve pour les rendre permis.
+
+### Partie 15
+<b>Rav Yitzhak, fils de Rav Mesharshiyya,</b> s'oppose egalement a cette</b> decision de Abaye : <b>Et</b> en ce qui concerne <b>la poignee elle-meme, comment peut-elle etre sacrifiee ? Mais un tiers</b> de celle-ci, c'est-a-dire la portion separee pour permettre le demi-dixieme d'un epha etranger, <b>est non sacree.</b>
+
+### Partie 16
+<b>Rav Ashi a dit :</b> Ces questions ne presentent aucune difficulte, car en ce qui concerne le retrait de la <b>manche, la question depend de l'intention</b> du <b>pretre. Et lorsque</b> le <b>pretre enleve la poignee, il l'enleve pour</b> permettre le reste du <b>dixieme</b> d'un epha, et non le reste du demi-dixieme etranger. Pourtant, les deux autres moities ne peuvent etre consommees car il n'est pas possible de savoir si la consommation de l'une ou de l'autre a ete autorisee.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,36 @@
+
+### Part 1
+there is the case of <b>a convert who married a <i>mamzeret</i>, where there is</b> a valid <b>betrothal and there is no transgression,</b> as they are permitted to marry each other, and yet <b>the offspring follows the flawed</b> lineage and is a <i>mamzer</i>. <b>As it is taught</b> in a <i>baraita</i>: With regard to <b>a convert who married a <i>mamzeret</i>, the offspring is a <i>mamzer</i>.</b> This is <b>the statement of Rabbi Yosei.</b> Rabbi Yoḥanan <b>said to</b> Rabbi Shimon: <b>Do you maintain</b> that <b>the mishna is</b> in accordance with the opinion of <b>Rabbi Yosei?</b> Not so; <b>the mishna is</b> in accordance with the opinion of <b>Rabbi Yehuda, who says: A convert may not marry a <i>mamzeret</i>, and</b> therefore in this case <b>there is betrothal and there is a transgression,</b> which is why <b>the offspring follows the flawed</b> lineage.
+
+### Part 2
+The Gemara asks: <b>But</b> if so, <b>let</b> the mishna <b>teach</b> this case as one of its examples. The Gemara answers: The mishna <b>taught</b> the principle: <b>Any case</b> where there is betrothal and a transgression, <b>in the latter clause,</b> precisely <b>to include</b> this kind of case. There is a guiding principle of the Gemara’s interpretation of the Mishna that a mishna does not include extraneous phrases. Every apparently superfluous phrase in the context of a principle serves to include or exclude a certain case from that principle. This is the basis of the discussion of the Gemara here and below.
+
+### Part 3
+<b>And if you wish, say</b> a different answer: <b>Actually,</b> the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Yosei, and</b> it <b>taught</b> the phrase: In <b>which</b> case <b>is this</b> applicable, <b>to exclude</b> cases of betrothal without a transgression other than those listed in the mishna. The offspring follows the lineage of the father only in those cases specified by the mishna.
+
+### Part 4
+The Gemara asks: <b>But</b> does the list that follows the phrase: In <b>which</b> case <b>is this</b> applicable, include all applicable cases? <b>And</b> are there <b>no more? But</b> there is the example of <b>a <i>ḥalal</i> who married an Israelite woman, where</b> there <b>is betrothal and there is no transgression,</b> and yet <b>the offspring follows the male,</b> as he too is a <i>ḥalal</i>. The Gemara rejects this claim: <b>This</b> is <b>not difficult,</b> as one can say that the <i>tanna</i> of the mishna <b>holds in accordance with</b> the opinion of <b>Rabbi Dostai ben Rabbi Yehuda,</b> who maintains that the offspring of this union is entirely fit.
+
+### Part 5
+The Gemara asks: <b>But</b> there is the case of <b>an Israelite who married a <i>ḥalala</i>, where there is betrothal and there is no transgression,</b> and <b>the offspring follows the male,</b> and yet this case is not mentioned in the mishna. The Gemara responds: The mishna <b>taught</b> the principle: <b>Any case</b> where there is betrothal and no transgression, <b>in the first clause, to include</b> this situation.
+
+### Part 6
+The Gemara asks: <b>But let</b> the <i>tanna</i> of the mishna <b>teach explicitly</b> this example of an Israelite who married a <i>ḥalala</i>. The Gemara answers: He did not do so <b>because he cannot teach it,</b> i.e., the <i>tanna</i> cannot mention this <i>halakha</i> in brief as part of the list. The Gemara clarifies its answer: <b>How can</b> the <i>tanna</i> <b>teach</b> it? He cannot state: <b>A daughter of a priest; and a daughter of a Levite; and a daughter of an Israelite; and a <i>ḥalala</i>, who married a priest, a Levite, or an Israelite,</b> as, <b>is a <i>ḥalala</i> fit for a priest?</b> This marriage involves a transgression. Consequently, the sentence of the mishna cannot be constructed so as to include a <i>ḥalala</i>.
+
+### Part 7
+The Gemara asks: <b>But there is</b> also the <i>halakha</i> <b>of Rabba bar bar Ḥana, as Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> With regard to <b>a second-generation Egyptian man,</b> i.e., the son of an Egyptian convert, <b>who married a first-generation Egyptian woman,</b> a woman who herself converted, <b>her son is</b> considered <b>a third-generation</b> Egyptian who may marry a Jew of unflawed lineage. This is an example of a betrothal without a transgression where the offspring follows the father.
+
+### Part 8
+The Gemara answers: The mishna <b>taught</b> the principle: <b>Any case</b> where there is betrothal and no transgression, <b>in the first clause, to include</b> this example. The Gemara adds: <b>And</b> according <b>to</b> the opinion of <b>Rav Dimi, who said</b> that this son <b>is a second-generation</b> Egyptian, the mishna <b>taught:</b> In <b>which</b> case <b>is this</b> applicable, at its beginning, with regard to betrothal that does not involve a transgression, <b>to exclude</b> this case. Rav Dimi maintains that this son may not marry a Jew of unflawed lineage.
+
+### Part 9
+The Gemara asks: <b>But there is</b> the following case, which apparently contradicts the principle of the mishna: <b>As when Ravin came</b> from Eretz Yisrael <b>he</b> said that <b>Rabbi Yoḥanan says: With regard to the nations,</b> i.e., if members of two different nations married when they were gentiles, <b>follow the male</b> to determine the status of their child. This is the case whether he is a regular gentile, who may marry a Jew of unflawed lineage as soon as he converts, or whether he is an Ammonite or an Egyptian, who may not marry a Jewish woman of unflawed lineage. In either case the child’s status follows that of the father.
+
+### Part 10
+If these members of two different nations <b>converted, follow the flawed</b> lineage <b>of the two.</b> These converts are permitted to marry one another and their betrothal is effective. If either the father or mother is Egyptian, the child follows the parent with the flawed lineage and would be Egyptian, whereas according to the principle stated in the mishna, one should follow the male. The Gemara answers: The mishna <b>taught:</b> In <b>which</b> case <b>is this</b> applicable, in the first clause, <b>to exclude</b> this case.
+
+### Part 11
+The Gemara returns to an earlier point: <b>What is this</b> claim, that the mishna is in accordance with the opinion of Rabbi Yosei? <b>Granted, if you say that the mishna is</b> in accordance with the opinion of <b>Rabbi Yehuda,</b> one can explain that the phrase: <b>Any case, of the first clause,</b> serves <b>to include an Israelite who married a <i>ḥalala</i>,</b> as the child follows the father in that case too, <b>and</b> also to include the ruling of <b>Rabba bar bar Ḥana</b> that the son of a second-generation Egyptian who married a first-generation Egyptian woman is a third-generation Egyptian. Furthermore, the expression: In <b>which</b> case <b>is this</b> applicable, serves <b>to exclude</b> the ruling of <b>Rav Dimi</b> that her son is a second-generation Egyptian, <b>and</b> the statement of <b>Ravin</b> citing Rabbi Yoḥanan.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

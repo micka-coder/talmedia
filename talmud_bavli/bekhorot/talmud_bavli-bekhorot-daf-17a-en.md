@@ -1,0 +1,69 @@
+
+### Part 1
+<b>this is what Rabban Shimon ben Gamliel said to him: Even until ten generations,</b> the offspring <b>are exempt. But according to Rav Huna, who says</b> that <b>the first <i>tanna</i> did not descend to</b> any <b>generational</b> levels, <b>what</b> is the meaning of the phrase: <b>Even until ten generations?</b> The Gemara responds: <b>Rav Huna</b> could have <b>said to you</b> that the statement of <b>Rabban Shimon ben Gamliel is referring to</b> the second case of the mishna, where the Jew <b>established</b> the offspring in place of the mothers, <b>as</b> in that case the first <i>tanna</i> also <b>descends to generational</b> levels.
+
+### Part 2
+The Gemara comments: <b>Come</b> and <b>hear</b> an objection to the opinion of Rav Yehuda from the mishna: With regard to <b>one who accepts</b> animals as part of <b>a guaranteed investment from a gentile, the</b> direct <b>offspring are exempt, and the offspring of the</b> direct <b>offspring</b> are <b>not</b> exempt. This is apparently <b>a conclusive refutation</b> of the opinion <b>of Rav Yehuda,</b> who said that the offspring of the direct offspring are also exempt. The Gemara explains that <b>Rav Yehuda</b> could have <b>said to you: I will say</b> that the mishna means that <b>they,</b> the direct offspring, <b>and their offspring</b> are exempt. When the mishna said: The offspring are exempt, it was referring not to the offspring of the original animals given to the Jew, but to the offspring of those offspring.
+
+### Part 3
+The Gemara notes that <b>there are</b> those <b>who say</b> that there is a different version of this exchange: The mishna is actually written as: <b>They,</b> the direct offspring, <b>and their offspring are exempt,</b> which is apparently <b>a conclusive refutation</b> of the opinion <b>of Rav Huna.</b> The Gemara explains that <b>Rav Huna</b> could have <b>said to you:</b> One can <b>say</b> that the mishna means that <b>they,</b> i.e., the original animals given to the Jew, <b>and</b> their <b>offspring are exempt. But the offspring of their</b> direct <b>offspring</b> are <b>obligated.</b>
+
+### Part 4
+§ The mishna teaches: <b>A ewe that gave birth to a goat of sorts</b> and a goat that gave birth to a ewe of sorts are not subject to the obligation of a firstborn. <b>Rav Oshaya came from Neharde’a and brought a <i>baraita</i> in his hand:</b> With regard to an animal that has the appearance of <b>a ewe</b> and that was <b>born to a goat, or a goat</b> that was <b>born to a ewe, Rabbi Meir deems</b> it <b>obligated, and the Rabbis deem</b> it <b>exempt.</b>
+
+### Part 5
+<b>Rav Hoshaya said to Rabba: When you go before Rav Huna, ask him:</b> With regard <b>to what</b> does <b>Rabbi Meir deem</b> it <b>obligated? If we say</b> that it is <b>with regard to</b> the mitzva of <b>a firstborn,</b> that is difficult: <b>But doesn’t Rabbi Meir</b> agree that the verse: <b>“But the firstborn of an ox”</b> (Numbers 18:17), teaches that an animal is included in the mitzva of a firstborn <b>only if it is an ox and its firstborn is an ox?</b> In other words, the mitzva of the firstborn applies only if the offspring has the appearance of its mother.
+
+### Part 6
+<b>Rather,</b> Rabbi Meir’s ruling was <b>with regard to</b> the obligation of giving <b>the first</b> shearing <b>of wool</b> to the priest. The Gemara asks: <b>But</b> if so, <b>doesn’t</b> Rabbi Meir agree with <b>that which the school of Rabbi Yishmael taught: Lambs whose fleece is tough are exempt from,</b> i.e., not subject to giving, <b>the first</b> shearing <b>of wool</b> to the priest, <b>as it is stated: “And</b> if he were not <b>warmed with the fleece of my sheep”</b> (Job 31:20)? It is derived from this verse that only a fleece which is fit to warm a person, i.e., fleece that is soft, is classified as wool that must be given to the priest. Since the fleece of the goat-like offspring of a ewe is tough, it should be excluded from the mitzva of the first shearing.
+
+### Part 7
+Rabba <b>said to</b> Rav Hoshaya: <b>Let us see; what are we dealing with here?</b> We are dealing <b>with a ewe that gave birth to a goat of sorts and its father</b> was <b>a goat. And they disagree</b> as to whether or not <b>one</b> needs <b>to be concerned with</b> the offspring’s <b>paternity</b> in terms of <b>the matter of</b> the prohibition against slaughtering <b>itself and its offspring</b> on the same day. <b>As Rabbi Meir holds</b> that <b>one</b> needs <b>to be concerned with its paternity,</b> and therefore one is liable for slaughtering the male goat and its goat-like offspring in a single day, <b>and the Rabbis hold</b> that <b>one</b> need <b>not be concerned with its paternity.</b>
+
+### Part 8
+The Gemara objects: But <b>if that is so,</b> then let us say that <b>they disagree</b> on whether or not <b>one</b> needs <b>to be concerned with</b> the offspring’s <b>paternity in general,</b> i.e., with regard to the prohibition against slaughtering an animal and its offspring on the same day, which is the subject <b>of the dispute of Ḥananya and the Rabbis</b> (see <i>Ḥullin</i> 78b). Instead of citing a dispute in the unusual case of a ewe that gave birth to a goat of sorts, the <i>baraita</i> should have simply stated that Rabbi Meir agrees with the opinion of Ḥananya that the prohibition against slaughtering an animal and its offspring applies even to a father and its offspring.
+
+### Part 9
+<b>Rather,</b> Rabbi Meir’s ruling is <b>actually with regard to</b> the obligation of <b>a firstborn, and here we are dealing with a ewe born to a ewe born to a goat,</b> which means that the offspring is similar in appearance to its mother, but not to its grandmother. One <b>Sage,</b> Rabbi Meir, <b>holds: Follow</b> the appearance of an offspring’s <b>mother</b> to determine whether or not the mitzva of a firstborn applies, <b>and</b> as <b>this</b> offspring has the appearance of its mother, <b>it</b> does <b>not</b> have the status of an animal that <b>resembles</b> a different species. Accordingly, the mitzva of firstborn applies.
+
+### Part 10
+<b>And</b> one <b>Sage,</b> the Rabbis, <b>holds: Follow</b> the appearance of the <b>mother of its mother</b> to determine whether or not the mitzva of firstborn applies, <b>and</b> as <b>this</b> offspring does not have the appearance of its mother’s mother, <b>it</b> does have the status of an animal that <b>resembles</b> a different species. Consequently, the mitzva of firstborn does not apply.
+
+### Part 11
+<b>And if you wish, say</b> instead that we are dealing <b>with a ewe born to a goat born to a ewe.</b> One <b>Sage,</b> Rabbi Meir, <b>holds: Its ovine nature was restored to its</b> original <b>state.</b> That is, since the offspring resembles its older progenitor, the mitzva of firstborn applies. <b>And</b> one <b>Sage,</b> the Rabbis, <b>holds: Its ovine nature was not restored to its</b> original <b>state,</b> and in any case where the offspring is not like its mother, it is exempt from the mitzva of firstborn.
+
+### Part 12
+The Gemara cites another interpretation of the <i>baraita</i>. <b>Rav Ashi says:</b> The <i>baraita</i> is referring to a case <b>where</b> the offspring <b>has some of the characteristics</b> of its mother, and the opinion of Rabbi Meir is that of the mishna here, which rules that the mitzva of firstborn applies to an offspring that has some of its mother’s characteristics. <b>And who are the Rabbis</b> who disagree with Rabbi Meir? It is <b>Rabbi Shimon, who says:</b> The offspring does not have firstborn status <b>unless its head and the majority of</b> its body <b>are similar to</b> the appearance of <b>its mother.</b>
+
+### Part 13
+According to the second explanation of the <i>baraita</i>, Rabbi Meir maintains that a ewe born to a goat born to a ewe is counted a firstborn despite the fact that it does not resemble its mother. <b>Rabbi Yoḥanan says:</b> Nevertheless, <b>Rabbi Meir concedes with regard to the goat of the New Moon</b> offering <b>that we require</b> the <b>son of a female goat. What is the reason?</b> With regard to the New Moon offering <b>the verse states:</b> “And <b>one</b> male goat for a sin offering unto the Lord” (Numbers 28:15). The superfluous word “one” teaches that the offering must be <b>particularly</b> a goat, as it <b>has been since the six days of Creation.</b>
+
+### Part 14
+The Gemara asks: <b>But</b> is <b>this derived from here?</b> Isn’t it <b>derived from there:</b> “When a bull, or a sheep, or a goat, is brought forth” (Leviticus 22:27), as the phrase <b>“a bull, or a sheep”</b> serves <b>to exclude diverse kinds,</b> i.e., an animal born from two different species of animals, while the phrase <b>“or a goat”</b> serves <b>to exclude</b> an animal that <b>resembles</b> a different species?
+
+### Part 15
+The Gemara answers that both verses are <b>necessary, as, had</b> the <i>halakha</i> been derived only <b>from there,</b> the verse in Leviticus, <b>I would say: That statement</b> applies only <b>where</b> the resemblance to another species does <b>not trace back to</b> earlier <b>generations,</b> i.e., the animal does not resemble any of its progenitors, <b>but</b> in a case <b>where it does trace back,</b> I would <b>say: No,</b> the animal is fit for sacrifice. Therefore, it is derived from the verse in Numbers that the animal must be as it has been since the six days of Creation. <b>And had</b> it been derived only <b>from here,</b> the verse in Numbers, <b>I would say: That statement</b> applies only <b>with regard to an obligatory offering,</b> which is the subject of that verse, <b>but</b> in the case of <b>a gift</b> offering, the animal does <b>not</b> need to resemble its mother. Therefore, both verses are <b>necessary.</b>
+
+### Part 16
+The Gemara cites a series of statements discussing an animal that resembles another species. <b>Rabbi Aḥa bar Yaakov says: Everyone concedes that one is not flogged due to</b> the prohibition of <b>diverse kinds for</b> wearing <b>its wool</b> together with linen, <b>as it is stated: “You shall not wear diverse kinds,</b> wool and linen together” (Deuteronomy 22:11). <b>Just as linen</b> is a material <b>that has not changed, so too,</b> one is liable only for wearing <b>wool</b> from an animal <b>that has not changed,</b> i.e., an animal whose appearance does not differ from that of its progenitors.
+
+### Part 17
+<b>Rav Pappa</b> similarly <b>says: Everyone concedes that</b> the <b>wool</b> of an animal that resembles another species <b>is unfit to</b> be used as the <b>sky-blue wool</b> of ritual fringes, <b>as it is stated: “You shall not wear diverse kinds…you shall make yourself twisted cords”</b> (Deuteronomy 22:11–12). <b>Just as linen</b> is a material <b>that has not changed, so too,</b> only <b>wool</b> from an animal <b>that has not changed</b> may be used as the sky-blue wool.
+
+### Part 18
+<b>Rav Naḥman bar Yitzḥak</b> likewise <b>says: Everyone concedes that its wool does not become ritually impure with</b> leprous <b>marks, as it is stated:</b> “And when the mark of leprosy is <b>in</b> a garment, whether it be <b>a woolen garment, or a linen garment”</b> (Leviticus 13:47). <b>Just as</b> the <b>linen</b> of a garment <b>has not changed, so too,</b> only a garment made of <b>wool</b> from an animal <b>that has not changed</b> can become impure with leprous marks.
+
+### Part 19
+<b>Rav Ashi says:</b> Along these lines, <b>we can say also</b> that if <b>one trellised a grapevine over a fig</b> tree, <b>its wine is unfit</b> to be used <b>for libations. What is the reason?</b> The verse states: <b>“An offering, and libations”</b> (Leviticus 23:37). <b>Just as an offering</b> must be an animal <b>that has not changed, so too, libations</b> must come from wine produced by vines <b>that were not changed.</b>
+
+### Part 20
+<b>Ravina objects to this</b> suggestion: By that reasoning, if <b>one trellised flax over a shrub,</b> it should <b>also</b> be considered <b>a changed</b> product. But <b>if so, you cannot say</b> what Rabbi Aḥa bar Yaakov said in his earlier statement: <b>Just as linen</b> is a material <b>that has not changed, as linen also changes</b> according to Rav Ashi’s reasoning. Rav Ashi <b>said to</b> Ravina: With regard to <b>this</b> wine, <b>its scent has changed, but</b> with regard to <b>that</b> flax, <b>its scent has not changed,</b> and therefore its alteration is considered inconsequential.
+
+### Part 21
+<strong>MISHNA:</strong> In the case of <b>a ewe that had not</b> previously <b>given birth, and it gave birth to two males and both their heads emerged as one, Rabbi Yosei HaGelili says: Both of them</b> are given <b>to the priest, as it is stated</b> in the plural: “Every firstborn that you have of animals, <b>the males shall be to the Lord”</b> (Exodus 13:12). <b>And the Rabbis say:</b> It is <b>impossible</b> for two events <b>to coincide precisely,</b> i.e., their births were not at precisely the same time. <b>Rather,</b> one preceded the other, and therefore <b>one</b> of the males is given <b>to</b> the owner <b>and one to the priest.</b>
+
+### Part 22
+<b>Rabbi Tarfon says: The priest chooses the better</b> of the two. <b>Rabbi Akiva says: They assess</b> the value of the lambs <b>between them</b> and the priest takes the leaner of the two, as will be explained in the Gemara. <b>And</b> with regard to <b>the second</b> lamb that remains in the possession of the owner, since he may not partake of it due to its uncertain status as a firstborn, it <b>must graze until it becomes blemished,</b> at which point he may slaughter and eat it.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Partie 1
+<strong>MISHNA:</strong> La mishna precedente enseignait que la nazireite des femmes comprend une rigueur qui ne s'applique pas aux esclaves. Cette mishna ajoute : Il y a une plus grande <b>striction dans</b> le cas des <b>esclaves que dans</b> le cas des <b>femmes, car</b> un homme <b>peut annuler les vœux de sa femme mais il ne peut annuler les vœux de son esclave,</b> malgre le fait qu'il puisse l'empecher de les accomplir en pratique. De meme, si <b>il a annule</b> la nazireite <b>de sa femme, elle est definitivement annulee,</b> et elle reste annulee meme si elle est ulterieurement divorcee ou veuve. Inversement, si <b>il a annule</b> la nazireite <b>de son esclave</b> en le forcant a violer les termes de son vœu de nazireite, lorsque l'esclave <b>est emancipe, il complete sa nazireite.</b>
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> (<i>Tosefta</i> 6:4) : A l'egard de <b>de quelle matiere</b> peut <b>son maitre forcer</b> un esclave ? <b>A l'egard de la nazireite. Cependant,</b> il <b>ne peut pas</b> forcer son esclave dans le cas <b>des</b> autres <b>vœux et valorisations.</b> Ce <i>baraita</i> dit apparemment qu'un maitre ne peut pas empecher son esclave d'accomplir les termes d'un vœu.
+
+### Partie 3
+La Gemara demande : <b>Qu'est-ce qui est different en ce qui concerne un nazirite</b> qu'un maitre puisse forcer son esclave a transgresser sa nazireite, <b>comme le dit le Misericordieux : "Fixer son ame par un lien"</b> (Nombres 30:3), d'ou l'on deduit que la Torah se refere uniquement <b>a celui dont l'ame est en sa possession,</b> c'est-a-dire qui n'est pas possede par un autre ; ce qui <b>exclut un esclave, dont l'ame n'est pas en sa possession</b> car il est sous le controle de son maitre. <b>Si c'est le cas,</b> alors <b>meme en ce qui concerne les vœux</b> cette meme <i>halakha</i> devrait s'appliquer <b>aussi,</b> car ce verset est ecrit dans le contexte des vœux en general, et non specifiquement des vœux de nazireite. Pourquoi un maitre ne peut-il pas contraindre son esclave a rompre un vœu ?
+
+### Partie 4
+<b>Rav Sheshet a dit : De quoi s'agit-il ici ? </b> D'un cas <b>ou une grappe de raisin a ete placee devant</b> l'esclave et ou il a fait le vœu de ne pas en tirer profit. <b>En ce qui concerne les vœux, quand</b> il <b>est interdit de</b> manger <b>cette</b> grappe, il <b>n'est pas rendu interdit de</b> manger <b>les autres;</b> par consequent, le maitre <b>ne peut pas le forcer</b> a la manger, car il n'a aucune raison d'insister pour que l'esclave consomme cette grappe de raisin particuliere.
+
+### Partie 5
+En revanche, <b>en ce qui concerne la nazireite, lorsque</b> il <b>est interdit de</b> manger <b>cette grappe</b> il <b>est rendu interdit de</b> consommer <b>tous les autres;</b> par consequent, le maitre <b>peut le forcer</b> a manger. En effet, le manque de nourriture affaiblit l'esclave, qui est la propriete de son maitre. La Gemara demande : <b>Et en ce qui concerne les vœux, n'avons-nous pas affaire</b> meme a une situation <b>ou il n'a que cette grappe</b> devant lui et qu'il fait le vœu de ne pas la manger, dans <b>quelle</b> cas <b>s'il ne la mange pas il est affaibli ?</b> Pourquoi le maitre ne peut-il pas l'obliger a manger les raisins dans ce cas ?
+
+### Partie 6
+<b>Rava a plutot dit</b> que la difference entre les vœux de nazireite et les autres vœux concerne un cas <b>ou il y avait un pepin de raisin,</b> qui ne fournit qu'une nourriture negligeable, qui a ete <b>place devant</b> l'esclave, et il a fait le vœu de ne pas le manger. <b>En ce qui concerne les vœux,</b> au sujet desquels il est interdit de</b> manger seulement <b>cette</b> graine, le maitre <b>ne peut pas le forcer</b> a la manger, car s'abstenir de manger un pepin de raisin ne l'affaiblirait pas. <b>En ce qui concerne un nazirite, a qui il est interdit</b> de consommer <b>d'autres produits de raisin <b>aussi,</b> le maitre <b>peut le forcer.</b>
+
+### Partie 7
+La Guemara demande a nouveau : <b>Et en ce qui concerne les vœux, n'avons-nous pas affaire</b> meme a une situation <b>ou il n'a que ce grain de raisin</b> devant lui, dans <b>lequel</b> cas <b>s'il ne le mange pas il serait affaibli ?</b> Pourquoi, alors, le maitre peut-il l'obliger a violer seulement son vœu de nazireat mais pas un vœu regulier ?
+
+### Partie 8
+<b>Abaye dit plutot</b> que le <i>baraita</i> n'enumere pas en fait les cas dans lesquels un maitre peut contraindre son esclave a violer son vœu, mais signifie plutot ce qui suit : <b>Par rapport a quelle</b> situation <b>un maitre</b> qui veut nier le vœu de son esclave est-il <b>oblige de forcer</b> son esclave a violer son vœu en declarant explicitement qu'il ne veut pas qu'il l'accomplisse ? C'est le cas <b>de</b> un vœu de <b>nazirite. Mais il n'est pas tenu de le forcer dans</b> le cas d'autres <b>vœux et il n'est pas tenu de le forcer dans</b> le cas d'un <b>serment,</b> car ceux-ci ne prennent pas du tout effet.
+
+### Partie 9
+<b>Quelle est la raison</b> de cette situation ? C'est <b>comme le dit le verset</b> a propos des serments :" Si quelqu'un jure clairement de ses levres <b>de faire le mal ou de faire le bien"</b> (Levitique 5:4). <b>De meme que</b> le <b>bien</b> mentionne dans ce verset se refere a <b>une action volontaire</b>, <b>de meme</b> le <b>malheur</b> est <b>volontaire,</b> par exemple, s'il fait le serment de ne pas tirer profit d'un objet. Cela <b>exclut</b> un esclave, dont le serment ou le vœu <b>pourrait causer du mal a autrui, car il n'est pas en son pouvoir</b> d'affecter son maitre de maniere negative. Par consequent, sa declaration n'est pas valable. Ici aussi, comme le proprietaire souffrira si le regime alimentaire de son esclave est restreint, un esclave ne peut accepter un vœu ou un serment sur lui-meme.
+
+### Partie 10
+<strong>MISHNA:</strong> Dans un cas ou un esclave a fait un vœu de nazireat, mais a ete empeche par son maitre d'accomplir les termes de son vœu, les Sages ont engage une dispute sur ce que serait la <i>halakha</i> s'il quittait definitivement la <b>presence</b> de son maitre,</b> c'est-a-dire qu'il s'enfuyait sans etre affranchi. <b>Rabbi Meir dit : Il ne doit pas boire</b> du vin. Puisque l'esclave est libre en pratique, son vœu entre en vigueur. <b>Et Rabbi Yosei dit : Il peut boire</b> du vin, puisqu'il n'est pas emancipe.
+
+### Partie 11
+<strong>GEMARA:</strong> La Gemara suggere : <b>Devons-nous dire</b> que Rabbi Meir et Rabbi Yosei <b>sont en desaccord par rapport</b> a la declaration suivante <b>de Shmuel ? Car Shmuel a dit :</b> A l'egard de celui <b>qui renonce a la propriete de son esclave,</b> l'esclave <b>est emancipe, et il n'a pas besoin d'un acte de manumission.</b> Cette <i>halakha</i> indique que si un esclave est libre en pratique, il n'a plus besoin d'un acte de manumission mais est automatiquement considere comme un homme libre.
+
+### Partie 12
+La Guemara demande : Si c'est le cas, doit-on dire que <b>Rabbi Meir est d'avis</b> que la decision est conforme a l'opinion <b>de Shmuel,</b> et donc que l'esclave est oblige en nazireat des qu'il s'enfuit, comme tout autre esclave affranchi, et <b>Rabbi Yosei est d'avis</b> que la decision n'est <b>pas</b> conforme a l'opinion <b>de Shmuel ?</b>
+
+### Partie 13
+La Gemara rejette cette suggestion : <b>Non,</b> il est possible <b>que tout le monde soit de</b> l'avis que la decision est conforme a l'avis <b>de Shmuel. Au contraire,</b> la mishna fait reference a un cas ou le maitre a refuse de declarer le fugitif sans proprietaire, et avait l'intention de le recuperer. Par consequent, l'esclave n'est en fait pas du tout un homme libre, et les <i>tannaim</i> sont en desaccord sur ce qui suit : Rabbi Yosei, <b>celui qui dit</b> qu'il <b>peut boire</b> du vin, <b>soutient</b> que l'esclave <b>finira par retourner et revenir a</b> son maitre, et qu'il est donc preferable qu'il <b>buve du vin afin qu'il ne soit pas affaibli</b> au moment de son retour. <b>Et selon</b> Rabbi Meir, <b>celui qui dit</b> que <b>il ne peut pas boire</b> du vin, il <b>soutient</b> qu'il vaut mieux que l'esclave <b>souffre</b> en etant prive de vin, <b>pour qu'il revienne vers</b> son maitre, car le desir de boire du vin l'incitera a revenir.
+
+>Credit : Edition William Davidson
+>License : CC-BY-NC

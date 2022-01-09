@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>qu'une mitsva positive ne vienne pas annuler une interdiction et une mitsva positive, qu'il deduise de</b> le fait qu'un <b>pretre lepreux</b> doit se raser <b>que</b> cette mitsva <b>annule</b> une interdiction et une autre mitsva positive.
+
+### Partie 2
+<b>Au contraire,</b> il expliquerait que <b>nous ne deduisons pas</b> d'autres cas de la Torah <b>de</b> la <i>halakha</i> d'un <b>pretre,</b> pour la raison suivante : <b>Ce qui</b> est different de l'interdiction <b>d'un pretre est que</b> c'est <b>une interdiction qui n'est pas egalement</b> applicable <b>a tous,</b> c'est-a-dire que les interdictions d'un pretre ne s'appliquent pas aux Israelites. Pour la meme raison, le cas du <b>nazirite ne peut pas non plus etre derive de</b> celui du <b>pretre, car</b> l'interdiction du pretre est <b>une interdiction qui n'est pas egalement</b> applicable <b>a tous,</b> contrairement a celle du nazirite. Par conséquent, la dérivation de" sa tête" est nécessaire pour enseigner que le rasage d'un lépreux outrepasse l'interdiction énoncée A l'égard d'un naziréen.
+
+### Partie 3
+La Guemara porte son attention sur l'autre opinion : <b>Et</b> selon <b>celui qui etablit ce</b> verset : "Il rasera tous ses cheveux ; <b>sa tete</b> et sa barbe" (Levitique 14:9), comme se referant <b>a un nazirite,</b> c'est-a-dire qu'il deduit de ce verset le principe que dans certains cas, dont celui d'un pretre lepreux, une mitzva positive l'emporte sur une interdiction et une mitzva positive, <b>pourquoi ai-je</b> besoin du terme <b>"sa barbe"</b>.
+
+### Partie 4
+La Guemara repond : <b>Il l'exige pour ce qui est enseigne</b> dans une <i>baraita</i> concernant le rasage d'un lepreux, qui doit etre effectue avec un rasoir : <b>Pourquoi</b> faut-il que <b>le verset indique : "Sa barbe,"</b> puisqu'il est deja precise qu'il rase tous ses cheveux ? <b>Puisqu'il est precise : "Ils ne raseront pas non plus les coins de leur barbe"</b> (Levitique 21:5), on <b>pourrait</b> penser que <b>meme un pretre</b> qui est <b>lepreux est inclus</b> dans l'interdiction de se raser. <b>Le verset</b> dit donc : "Sa barbe,"</b> pour enseigner qu'un pretre lepreux doit egalement raser sa barbe.
+
+### Partie 5
+<b>Et d'ou tirons-nous</b> qu'un lepreux doit se raser <b>avec un rasoir ? Comme il est enseigne</b> dans une <i>baraita</i> : <b>"Ils ne raseront pas non plus les coins de leur barbe"</b> (Levitique 21:5). On <b>pourrait</b> penser que les pretres <b>seraient responsables meme s'ils rasaient</b> leur barbe <b>avec des ciseaux. Le verset dit : "Et tu ne detruiras pas</b> les coins de ta barbe" (Levitique 19:27), ce qui enseigne que l'interdiction ne s'applique qu'a la destruction de la barbe a partir de ses racines. <b>Si</b> le seul critere est l'expression <b>Vous ne detruirez pas,</b> on <b>pourrait</b> penser que <b>s'il extrayait</b> ses cheveux <b>avec une pince a epiler ou</b> s'epilait <b>avec</b> un <b>arbre de charpentier, il devrait</b> de meme <b>etre responsable</b> en raison de l'interdiction de detruire ses cheveux.
+
+### Partie 6
+<b>Le verset</b> s'enonce donc comme suit : "Ils ne raseront pas non plus les coins de leur barbe."</b> L'ensemble de ces deux versets conduit a la conclusion suivante : <b>Quel</b> est le type de <b>rasage [<i>giluah</i>] qui implique la destruction [<i>hashhata</i>] ? Tu dois dire que c'est un rasoir.</b> Le fait qu'il ait ete necessaire pour la Torah de permettre a un lepreux de se raser la barbe avec un rasoir, nonobstant l'interdiction d'utiliser cet instrument, prouve que la mitzva positive l'emporte sur cette interdiction, telle qu'elle decoule du terme " sa barbe ".
+
+### Partie 7
+La Guemara poursuit son interrogation : <b>Et</b> selon <b>celui qui derive de</b> l'expression <b>"sa tete"</b> le principe <b>que</b> une mitzva positive l'emporte sur <b>seulement une interdiction, pourquoi ai-je</b> besoin du verset <b>pour ecrire : A "Sa teteA", et pourquoi ai-je</b> egalement besoin du meme verset <b>pour ecrire : "Sa barbe"?</b> Une fois que l'on deduit de l'expression "sa barbe" qu'une mitzva positive l'emporte sur une mitzva positive et une interdiction, il devrait certainement en etre de meme pour une interdiction par elle-meme.
+
+### Partie 8
+La Guemara repond : Tant le terme "sa tete" que le terme "sa barbe" pourraient venir <b>enseigner le depassement d'une interdiction seulement, et</b> ils pourraient egalement <b>enseigner le depassement d'une interdiction et d'une mitzva positive.</b> Puisque le verset est formule en termes generaux, il inclut un pretre ou un nazirite. <b>C'est pourquoi,</b> comme on ne peut determiner a quel cas la Torah se refere, <b>elle est paire,</b> c'est-a-dire egalement equilibree, <b>et</b> par consequent <b>laissons les deux</b> termes <b>venir</b> et enseignons ce principe, l'un a l'egard d'un nazirite, l'autre a l'egard d'un pretre.
+
+### Partie 9
+La Guemara ajoute que les deux termes sont necessaires, car la <i>halakha</i> d'un <b>pretre ne peut etre derivee de</b> celle d'un <b>nazirite, car</b> le cas d'un nazirite est clement dans la mesure ou <b>il est</b> possible de dissoudre la nazireite <b>par demande</b> d'une autorite halakhique. De meme, la <i>halakha</i> d'un <b>nazirite ne peut etre derivee de</b> celle d'un <b>pretre, car</b> le cas d'un pretre implique <b>une interdiction qui n'est pas egalement</b> applicable <b>a tous.</b> La Gemara commente : <b>Et generalement,</b> en ce qui concerne les autres <i>halakhot</i>, <b>on ne peut pas deduire de</b> ces deux cas qu'une mitsva positive prime sur une interdiction et une mitsva positive, <b>en raison</b> du fait que cet argument <b>peut etre refute comme nous l'avons dit</b> ici.
+
+### Partie 10
+§ <b>Rav a dit : Une personne</b> qui n'est pas nazirite <b>peut alleger</b> son fardeau en enlevant <b>tous</b> les poils de <b>son corps avec un rasoir.</b> Celui qui estime avoir trop de poils peut les raser tous avec un rasoir, a l'exception de sa barbe et des coins de sa tete. La Guemara <b>souleve une objection</b> contre cela a partir d'une <i>baraita</i> : Un homme <b>qui s'epile</b> les poils <b>de l'aisselle ou du pubis</b> <b>est fouette</b> pour avoir transgresse l'interdiction : A "Un homme ne revetira pas un vetement de femmeA" (Deuteronome 22:5), car ce comportement est la maniere des femmes.
+
+### Partie 11
+La Guemara repond : Dans <b>cette</b> affaire, il est flagelle parce qu'il s'est rase <b>avec un rasoir,</b> alors que dans <b>cette</b> affaire, Rav a dit que c'est permis parce qu'il faisait reference a celui qui enleve les poils <b>avec des ciseaux,</b> un acte qui n'est pas considere comme une interdiction. La Guemara souleve une difficulte : <b>Mais Rav a dit</b> que c'est permis <b>avec un rasoir egalement.</b> La Gemara repond : Il ne voulait pas parler d'un veritable rasoir ; il a plutot dit que l'on peut utiliser un instrument <b>similaire a un rasoir,</b> c'est-a-dire des ciseaux qui coupent tres pres de la peau, a la maniere d'un rasoir.
+
+### Partie 12
+<b>Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit :</b> Un homme <b>qui enleve</b> le poil <b>de l'aisselle ou du pubis</b> <b>est fouette.</b> La Gemara <b>souleve une objection</b> contre cette decision : <b>L'epilation n'est pas</b> interdite <b>par la loi de la Torah mais par la loi rabbinique.</b> Pourquoi, alors, est-il passible de recevoir des coups de fouet ? La Gemara explique : <b>Que signifie <b>que</b> Rabbi Yohanan <b>dit</b> qu'il <b>est fouette ?</b> Cela signifie qu'il est fouette <b>par la loi rabbinique,</b> une punition connue sous le nom de coups de fouet pour rebellion, pour avoir desobei a un decret rabbinique.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

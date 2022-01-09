@@ -1,0 +1,27 @@
+
+### Partie 1
+La Gemara <b>souleve une objection a</b> Rava. Si une autre personne lui <b>dit : Prete-moi ta vache,</b> et que le proprietaire repond et lui <b>dit : </b> Chaque <b>vache que j'ai achetee</b> autre que celle-ci, dont j'ai besoin, <b>est <i>konam</i> pour toi;</b> ou s'il dit : <b>Ma propriete</b> t'est interdite <b>si j'ai une autre vache que celle-ci,</b> et qu'en fait, il possede d'autres vaches ; ou si un autre lui disait : <b>Prete-moi ta beche,</b> et le proprietaire de la beche lui <b>dit :</b> Chaque <b>beche que je possede et que j'ai achetee est <i>konam</i> pour toi;</b> ou s'il dit : <b>Mon bien</b> m'est interdit <b>si j'ai une autre pique que celle-ci, et qu'on decouvre qu'il a</b> une autre pique et que le <i>konam</i> prend effet, alors <b>pendant la vie</b> de celui qui a fait le vœu, la vache ou la pique est <b>interdite</b> au sujet du vœu. Si celui qui a fait le vœu <b>decede ou</b> si la vache ou la beche <b>a ete donnee</b> au sujet du vœu <b>comme un cadeau, c'est permis.</b> Apparemment, le <i>konam</i> n'est en vigueur que tant que le bien est en sa possession.
+
+### Partie 2
+<b>Rav Aha, fils de Rav Ika, a dit :</b> Il fait reference a un cas ou il <b>a ete donne</b> au sujet du vœu <b>par une autre</b> personne. Celui qui a fait le vœu ne lui a pas donne le cadeau directement. Il a vendu ou transfere l'objet a un tiers, qui l'a donne au sujet du vœu comme cadeau. Puisque le bien a quitte la possession de son proprietaire avant d'etre donne au sujet du vœu, l'interdiction ne prend pas effet sur lui.
+
+### Partie 3
+La Guemara indique que <b>Rav Ashi a dit :</b> La langue <b>est egalement precise, comme elle l'enseigne : Cela lui a ete donne, et il n'est pas enseigne : Qu'il lui a donne.</b> Cela indique que cette <i>halakha</i> s'applique specifiquement a un cadeau qui lui a ete donne par un tiers, mais pas par celui qui a fait le vœu.
+
+### Partie 4
+§ <b>Rava a souleve un dilemme devant Rav Nahman : Existe-t-il</b> une responsabilite pour <b>un mauvais usage des biens consacres dans</b> les cas de <b><i>konamot</i> ou non ? </b> Puisque le statut juridique d'un objet qui a ete rendu <i>konam</i> est comme celui d'un bien consacre en ce qu'il est interdit a celui qu'on a voue, est-il comme un bien consacre dans tous les sens, y compris la responsabilite pour l'usage abusif d'un bien consacre ?
+
+### Partie 5
+Rav Nahman <b>lui dit</b> : <b>Vous avez appris</b> cette <i>halakha</i> d'une mishna (33a) : Dans <b>un lieu ou l'on recoit un paiement</b> pour rendre un objet perdu, ce <b>benefice</b> qu'il recoit pour rendre l'objet <b>doit entrer</b> dans la categorie des <b>biens consacres</b> du Temple. C'est <b>a dire,</b> qu'un objet interdit par un <i>konam</i> est comme un <b>bien consacre</b>. De meme que</b> en ce qui concerne les <b>biens consacres, il y a</b> responsabilite pour <b>abus, de meme</b> en ce qui concerne les <b><i>konamot</i> il y a</b> responsabilite pour <b>abus.</b>
+
+### Partie 6
+La Guemara commente ce point. Ce dilemme est <b>comme</b> un differend entre <b><i>tannaim</i>.</b> Si l'un dit : <b>Ce pain est <i>konam</i></b> pour tous comme un <b>bien consacre, et qu'il l'a mange,</b> alors, <b>qu'il</b> l'ait mange <b>ou qu'un autre</b> l'ait mange, celui qui l'a mange <b>a commis un abus de bien consacre. Par consequent,</b> puisque son statut est celui d'un bien consacre, <b>il a</b> la possibilite d'etre desacralise par <b>la redemption.</b> Si on disait : <b>Ce pain est <i>konam</i> pour moi</b> comme un <b>bien consacre et qu'il le mange, il a abuse du bien consacre.</b> Si <b>un autre</b> le mange, <b>il n'a pas abuse du bien consacre,</b> car il a dit : A moi. <b>Donc, il n'a pas</b> la possibilite de se desacraliser par la <b>redemption,</b> puisque son statut n'est pas celui d'un bien consacre a part entiere. Telle est <b>la declaration de Rabbi Meir.</b>
+
+### Partie 7
+<b>Et les rabbins disent : </b> Dans le cas des <b>tous</b> vœux pris de <b>cette maniere et</b> des vœux pris <b>de cette maniere, personne</b> n'a <b>mis en cause les biens consacres car il n'y a pas</b> de responsabilite pour <b>mauvais usage</b> des objets consacres <b>dans</b> les cas de <b><i>konamot</i>. </b> Rabbi Meir n'est pas d'accord et considere qu'il y a une responsabilite pour mauvais usage dans les <i>konamot</i>.
+
+### Partie 8
+<b>Rav Aha, fils de Rav Avya, a dit a Rav Ashi :</b> Si quelqu'un dit a un autre : <b>Mon pain est</b> <i>konam</i> <b>pour toi, et qu'il</b> l'a ensuite <b>donne en cadeau, lequel</b> d'entre eux <b>a commis un abus de biens consacres ?</b> Si tu dis : <b>Que celui qui donne</b> le pain soit responsable de <b>l'abus,</b> pourquoi serait-il responsable ; le pain <b>ne lui est pas interdit ?</b> Si vous dites : <b>Que celui qui recoit</b> le pain soit responsable de <b>l'abus, il peut dire : Je voulais</b> recevoir <b>un objet permis</b> ; <b>Je ne voulais pas</b> recevoir <b>un objet interdit</b>. Puisque le pain est interdit, si je l'ai accepte de vous, ce n'etait pas mon intention de le faire. Rav Ashi lui a <b>dit : Celui qui recoit</b> le pain est responsable d'un <b>abus lorsqu'il utilise</b> le pain, car le principe en matiere d'abus est <b>que quiconque utilise de l'argent consacre a des fins non sacrees</b>, <b>alors qu'il a l'impression qu'il n'est pas sacre, abuse d'un bien consacre. Cette</b> personne qui a recu le pain <b>fait egalement un mauvais usage des biens consacres.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

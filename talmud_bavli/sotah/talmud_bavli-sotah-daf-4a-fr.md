@@ -1,0 +1,66 @@
+
+### Partie 1
+Le <i>baraita</i> clarifie : <b>Et quelle est la mesure de l'isolement,</b> c'est-a-dire comment est defini l'isolement d'un <i>sota</i> ? La mesure de l'isolement est <b>equivalente</b> au temps necessaire a la <b>defiliation,</b> qui est <b>equivalente</b> au temps necessaire a l'accomplissement du <b>rapport sexuel,</b> qui est <b>equivalente</b> au temps necessaire a l'accomplissement de la <b>etape initiale du rapport sexuel.</b>
+
+### Partie 2
+Le <i>baraita</i> cite plusieurs exemples pratiques de cette periode de temps. C'est <b>equivalent</b> au temps necessaire pour <b>faire le tour d'un palmier</b> ; c'est <b>la declaration de Rabbi Yishmael. Rabbi Eliezer dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour melanger une coupe</b> de vin avec de l'eau, dont le volume total est d'un quart de<i>log</i>. <b>Rabbi Yehoshua dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour boire</b> cette coupe de vin.
+
+### Partie 3
+Le <i>baraita</i> cite plusieurs autres exemples. <b>Ben Azzai dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour rotir un œuf. Rabbi Akiva dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour l'avaler. Rabbi Yehuda ben Beteira dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour avaler trois œufs l'un apres l'autre. Rabbi Elazar ben Yirmeya dit :</b> C'est <b>equivalent</b> au temps necessaire a <b>un tisserand [<i>gardi</i>] pour nouer une corde [<i>nima</i>].</b>
+
+### Partie 4
+<b>Hanin ben Pinehas dit :</b> C'est <b>equivalent</b> au temps <b>que</b> une femme <b>peut</b> avoir besoin d'<b>allonger sa main dans sa bouche pour retirer un eclat de bois</b> d'entre ses dents. Le Sage <b>Peleimu dit :</b> C'est <b>equivalent</b> au temps <b>qu'elle peut</b> avoir besoin de <b>allonger sa main dans un panier</b> pour <b>prendre une miche</b> de pain. Il ajoute : <b>Bien qu'il n'y ait pas</b> de <b>preuve</b> explicite a partir d'un verset <b>pour la question,</b> il y a <b>une allusion a la question</b> a partir du verset : <b>Car a cause d'une prostituee, un homme est reduit a une miche de pain"</b> (Proverbes 6:26).
+
+### Partie 5
+La <i>baraita</i> affirme que la mesure de la reclusion est equivalente au temps necessaire a la souillure, qui est equivalent au temps necessaire a l'accomplissement du rapport sexuel, qui est equivalent au temps necessaire a l'accomplissement de l'etape initiale du rapport, et elle ajoute neuf exemples pratiques de cette duree. La Guemara demande : <b>Et pourquoi ai-je</b> besoin de <b>toutes ces</b> fois alors qu'une seule aurait du suffire ?
+
+### Partie 6
+La Guemara repond : Les trois <b>sont necessaires, comme si</b> le <i>baraita</i> <b>enseignait</b> seulement : <b>Equivalente</b> au temps necessaire pour <b>la souillure, je dirais</b> que la mesure est <b>equivalente</b> au temps pour <b>sa souillure et son apaisement,</b> c'est-a-dire le temps necessaire pour la convaincre d'avoir des rapports sexuels. Par consequent, le <i>baraita</i> <b>nous enseigne</b> que la mesure est <b>equivalente</b> au temps necessaire pour effectuer un <b>rapport sexuel</b> seul.
+
+### Partie 7
+<b>Et si</b> le <i>baraita</i> <b>n'enseignait</b> que : La mesure de la reclusion est <b>equivalente</b> au temps necessaire a l'accomplissement du <b>rapport sexuel, je dirais</b> que la mesure est <b>equivalente</b> au temps necessaire a l'<b>accomplissement</b> de l'acte du <b>rapport. </b> Par consequent, le <i>baraita</i> <b>nous enseigne</b> que la mesure est <b>equivalente</b> au temps necessaire pour accomplir la <b>etape initiale du rapport sexuel.</b>
+
+### Partie 8
+<b>Et si</b> le <i>baraita</i> <b>enseignait</b> seulement : La mesure de la reclusion est <b>equivalente</b> au temps necessaire pour accomplir la <b>etape initiale du rapport sexuel, je dirais</b> que la mesure est <b>equivalente</b> au temps necessaire pour accomplir la <b>etape initiale du rapport sexuel et son apaisement. </b> Par consequent, le <i>baraita</i> <b>nous enseigne</b> que la mesure est <b>equivalente</b> au temps necessaire a la <b>defiliation,</b> qui ne comprend pas l'apaisement. Le <i>baraita</i> conclut en proposant une mesure pratique : <b>Et quelle est la mesure</b> du temps <b>equivalent</b> necessaire pour accomplir la <b>etape initiale du rapport sexuel ?</b> Elle est <b>equivalente</b> au temps necessaire pour <b>circuler autour d'un palmier</b>. D'autres Sages ont ensuite propose leurs propres exemples pratiques.
+
+### Partie 9
+<b>Et</b> la Guemara <b>souleve une contradiction</b> d'une autre <i>baraita</i> (<i>Tosefta</i> 1:2) : Le verset dit : <b>"Et elle fut</b> souillee <b>secretement"</b> (Nombres 5:13), <b>et nous n'avons pas entendu quelle est la mesure</b> de <b>l'exclusion. Quand il est dit</b> dans ce verset : <b>"Et elle fut souillee</b> secretement,</b> <b>vous devez dire</b> que la mesure de l'isolement est <b>equivalente</b> au temps necessaire a la <b>souillure,</b> qui est <b>equivalent</b> au temps necessaire a l'accomplissement du <b>rapport sexuel, </b> qui est <b>equivalent</b> au temps necessaire pour effectuer la <b>etape initiale du rapport sexuel,</b> qui est <b>equivalent</b> au temps necessaire pour le <b>retour d'un palmier</b> ; c'est <b>la declaration de Rabbi Eliezer. </b>
+
+### Partie 10
+La <i>baraita</i> continue : <b>Rabbi Yehoshua dit :</b> C'est <b>equivalent</b> au temps necessaire pour <b>melanger une coupe</b> de vin avec de l'eau, dont le volume total est d'un quart de<i>log</i>. <b>Ben Azzai dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour boire</b> cette coupe de vin. <b>Rabbi Akiva dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour rotir un œuf. Rabbi Yehuda ben Beteira dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour l'avaler.</b>
+
+### Partie 11
+La Guemara aborde maintenant plusieurs contradictions entre cette <i>baraita</i> et celle citee precedemment. La Guemara commente d'abord : Il pourrait <b>entrer dans notre esprit</b> de dire que <b>circuler autour d'un palmier est</b> la meme chose que le <b>retour d'un palmier</b>. La Gemara demande : <b>La,</b> dans la premiere <i>baraita</i>, <b>Rabbi Yishmael dit</b> que c'est <b>equivalent</b> au temps necessaire pour <b>circuler un palmier</b> <b>et Rabbi Eliezer n'etait pas d'accord avec lui, </b> alors que <b>ici,</b> dans la deuxieme <i>baraita</i>, <b>Rabbi Eliezer</b> lui-meme <b>dit</b> que c'est <b>equivalent</b> au temps necessaire pour le <b>retour d'un palmier</b> ; cela ne contredit-il pas ce qu'il a declare dans la <i>baraita</i> precedente ?
+
+### Partie 12
+Pour resoudre cette contradiction, <b>Abaye dit :</b> Ces mesures ne sont pas les memes, car <b>circler</b> se refere au temps qu'il faut pour faire le tour d'un palmier <b>a pied,</b> et <b>retourner</b> se refere au temps qu'il faut pour qu'une branche de palmier soufflee <b>par le vent</b> revienne a sa position anterieure.
+
+### Partie 13
+<b>Rav Ashi demande :</b> Ce <b>retour</b> de la branche de palmier <b>par le vent,</b> est-ce le temps seulement <b>pour qu'elle avance</b> avec le vent <b>et revienne</b> a sa place une fois, sans compter le temps ou elle continue a aller et venir a cause du vent ? <b>Ou peut-etre</b> c'est le temps <b>de sorte qu'elle va</b> en avant avec le vent <b>et revient et revient</b> jusqu'a ce qu'elle <b>se fixe a sa place.</b> La Gemara declare : La question <b>doit rester</b> non resolue.
+
+### Partie 14
+La Gemara presente une autre contradiction. <b>Ici,</b> dans la premiere <i>baraita</i>, <b>Rabbi Eliezer dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour verser une coupe</b> de vin. <b>Ici,</b> dans la deuxieme <i>baraita</i>, il dit : C'est <b>equivalent</b> au temps necessaire pour le <b>retour d'un palmier</b>. La Guemara repond : <b>Cela et cela sont un,</b> c'est-a-dire la meme <b>mesure.</b>
+
+### Partie 15
+La Guemara presente une autre contradiction. <b>Ici,</b> dans la premiere <i>baraita</i>, <b>Rabbi Yehoshua dit :</b> Ceci est <b>equivalent</b> au temps necessaire pour <b>boire</b> une coupe de vin. <b>Ici,</b> dans la deuxieme <i>baraita</i>, <b>il dit :</b> C'est <b>equivalent</b> au temps necessaire pour <b>melanger une tasse</b> de vin. La Gemara repond : <b>Disons</b> qu'il exige les deux ensemble, c'est-a-dire qu'il exige une quantite de temps <b>equivalente</b> au temps necessaire <b>pour</b> a la fois <b>melanger et boire</b> une tasse de vin. La Guemara demande : Au lieu de combiner les mesures, pourquoi ne pas <b>dire</b> que <b>ceci et ca sont une seule mesure ?</b> La Gemara repond : <b>Si c'est le cas, c'est</b> la meme chose que l'opinion de <b>Rabbi Eliezer</b> dans la premiere <i>baraita</i>, avec laquelle Rabbi Yehoshua est en desaccord.
+
+### Partie 16
+La Guemara presente une autre contradiction. <b>Ici,</b> dans la premiere <i>baraita</i>, <b>ben Azzai dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour rotir un œuf. Ici,</b> dans la deuxieme <i>baraita</i>, <b>il dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour boire</b> une tasse de vin. La Guemara repond : <b>Ceci et cela sont une seule mesure.</b>
+
+### Partie 17
+La Guemara presente une autre contradiction. <b>Ici,</b> dans la premiere <i>baraita</i>, <b>Rabbi Akiva dit :</b> Ceci est <b>equivalent</b> au temps necessaire <b>pour avaler</b> un œuf. <b>Ici,</b> dans la deuxieme <i>baraita</i>, <b>il dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour rotir un œuf.</b> La Gemara repond : <b>Disons</b> qu'il exige les deux ensemble, c'est-a-dire qu'il exige une quantite de temps <b>equivalente</b> au temps necessaire <b>pour rotir un œuf et pour l'avaler.</b> La Gemara demande : Au lieu de combiner les mesures, pourquoi ne pas <b>dire</b> que <b>ceci et ca sont une seule mesure ?</b> La Gemara repond : <b>Si c'est le cas, c'est</b> la meme chose que l'opinion de <b>ben Azzai</b> dans la premiere <i>baraita</i>, avec laquelle Rabbi Akiva est en desaccord.
+
+### Partie 18
+La Guemara presente une autre contradiction. <b>Ici,</b> dans la premiere <i>baraita</i>, <b>Rabbi Yehuda ben Beteira dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour avaler trois œufs l'un apres l'autre. Ici,</b> dans la deuxieme <i>baraita</i>, <b>il dit :</b> C'est <b>equivalent</b> au temps necessaire <b>pour avaler</b> un œuf, c'est-a-dire un œuf. La Guemara repond : Dans la premiere <i>baraita</i>, il n'a pas enonce son propre avis, mais <b>enonce</b> son avis <b>conformement a la declaration de Rabbi Akiva, qui a declare</b> qu'on <b>mesure</b> selon le temps necessaire <b>pour rotir et avaler.</b> Rabbi Yehoshua repond : <b>Dit</b> plutot la <b>mesure</b> du temps necessaire pour <b>avaler seul,</b> c'est-a-dire une quantite de temps <b>equivalente</b> au temps necessaire pour <b>avaler trois œufs l'un apres l'autre, ce qui est</b> egal a la quantite de temps necessaire pour <b>rotir et avaler,</b> et donc Rabbi Akiva n'aurait pas besoin d'inclure le rotissage dans la mesure.
+
+### Partie 19
+La Guemara discute un avis cite dans la premiere <i>baraita</i>. <b>Rabbi Elazar ben Yirmeya dit :</b> C'est <b>equivalent</b> au temps necessaire a <b>un tisserand pour attacher une corde. Rav Ashi demande :</b> Est-ce que cela parle de <b>l'endroit ou</b> les extremites de la corde a nouer <b>sont eloignees</b> les unes des autres, <b>ou</b> est-ce que cela parle de <b>l'endroit ou</b> elles <b>sont proches</b> les unes des autres ? La Gemara dit : La question <b>doit rester</b> non resolue.
+
+### Partie 20
+La Guemara discute d'un autre avis cite dans le premier <i>baraita</i>. <b>A¸¤anin ben Pinehas dit :</b> C'est <b>equivalent</b> au temps <b>que</b> une femme <b>peut</b> avoir besoin de <b>tendre sa main dans sa bouche pour retirer un eclat de bois</b> d'entre ses dents. <b>Rav Ashi demande :</b> Est-ce que cela parle d'un cas <b>ou</b> le morceau de bois <b>est coince</b> entre ses dents, <b>ou</b> est-ce que cela parle d'un cas <b>ou</b> il <b>n'est pas coince ?</b> La Gemara declare : La question doit rester non resolue.
+
+### Partie 21
+La Guemara discute un autre avis cite dans la premiere <i>baraita</i>. <b>Peleimu dit :</b> C'est <b>equivalent</b> au temps <b>que</b> une femme <b>peut</b> avoir besoin de <b>tendre la main dans un panier</b> pour <b>prendre une miche</b> de pain. <b>Rav Ashi demande :</b> Est-ce que cela parle d'une occasion <b>ou</b> le pain <b>adhere</b> au panier, <b>ou</b> est-ce que cela parle d'un cas <b>ou</b> il <b>n'adhere pas ? </b> S'agit-il d'un cas <b>ou</b> le panier est <b>neuf,</b> par lequel les pointes des pousses formant le panier pourraient retenir le pain, <b>ou</b> s'agit-il d'un cas <b>ou</b> le panier est <b>ancien</b> et lisse, permettant un retrait facile ? Est-ce que cela parle d'un cas <b>ou</b> le pain est <b>chaud</b> et donc plus mou et peut adherer au panier, <b>ou</b> est-ce que cela parle d'un cas <b>ou</b> le pain est <b>froid</b> et facile a enlever ?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

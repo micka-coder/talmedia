@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Ici aussi,</b> en ce qui concerne le tresor du Temple, appliquer le meme principe et dire : <b>Une personne est encline</b> a faire de fausses declarations afin de <b>ne pas se faire</b> paraitre <b>satisfaite.</b> Il est donc possible que l'argent ne soit pas du, et le paiement ne doit pas etre fait a partir des biens consacres.
+
+### Partie 2
+La Gemara repond : <b>Quand</b> le <b>Rav Huna dit</b> que le paiement doit etre effectue <b>la,</b> dans le cas d'une personne sur son lit de mort qui a consacre tous ses biens ? Dans un cas <b>ou</b> le creancier, a qui le defunt a reconnu devoir de l'argent, <b>detient</b> un <b>billet a ordre</b> corroborant l'aveu du defunt.
+
+### Partie 3
+La Guemara commente : <b>Par deduction,</b> la declaration <b>de Rav et Shmuel,</b> ou l'argent n'est pas remis au creancier a moins que la personne sur son lit de mort ne demande explicitement qu'il soit remis, est applicable dans un cas <b>ou</b> le creancier <b>ne detient pas</b> un <b>billet a ordre</b> corroborant l'aveu. La Gemara demande : Si oui, comment se peut-il que si le defunt dit : Donne</b> lui l'argent, les enfants le <b>donnent</b> a celui-ci, c'est-a-dire qu'il est percu sur la succession laissee aux heritiers, car <b>il s'agit d'un pret par contrat oral</b>, <b>et comme le disent Rav et Shmuel : On ne percoit pas un pret par contrat oral</b> <b>des heritiers ni des acheteurs</b> qui ont achete une terre au debiteur apres que le pret ait ete accorde ?
+
+### Partie 4
+La Gemara donne une reponse differente a cette question. <b>Au contraire, Rav Nahman dit :</b> Tant <b>cette</b> affaire <b>que cette</b> affaire discutent <b>du cas ou</b> le creancier <b>detient</b> un <b>billet a ordre</b> corroborant l'aveu du defunt. <b>Et</b> pourtant ce n'est <b>pas difficile.</b> Dans <b>cette</b> decision de Rav Huna, le cas est <b>ou</b> le billet a ordre du creancier a ete <b>ratifie</b> par le tribunal, et dans <b>cette</b> decision de Rav et Shmuel, le cas est <b>ou</b> le billet a ordre du creancier a <b>non</b> ete <b>ratifie</b> par le tribunal. Par consequent, dans ce dernier cas, si la personne sur son lit de mort <b>dit : Donne</b> lui l'argent, elle <b>a</b> en effet <b>ratifie</b> le <b>billet a ordre du creancier,</b> et si elle n'a <b>pas dit : Donne</b> lui l'argent, il n'a <b>pas ratifie</b> le <b>billet a ordre du creancier.</b>
+
+### Partie 5
+§ <b>Rabba dit</b> que dans le cas de <b>une personne sur son lit de mort qui dit : Untel a cent dinars en ma possession, et les orphelins</b> qui ont herite de ses biens par la suite <b>disent : Nous avons rembourse</b> la dette, <b>ils sont reputes credibles.</b> Mais si le pere a dit : <b>Donnez cent dinars a untel,</b> car je lui dois, <b>et</b> par la suite <b>les orphelins ont dit : Nous lui avons rembourse</b> l'argent, <b>ils ne sont pas juges credibles.</b>
+
+### Partie 6
+La Gemara objecte : <b>Ce n'est pas le contraire [<i>kelappei layya</i>] ? Le contraire est</b> plus <b>raisonnable.</b> Si le pere <b>dit : Donne cent dinars</b> a untel, <b>puisque leur pere a enonce la chose de maniere affirmative,</b> puisqu'il a donne une directive explicite, <b>on pourrait dire que</b> les heritiers ont <b>repaye</b> l'argent. Mais s'il a dit : <b>Untel a cent dinars en ma possession, puisque</b> les orphelins <b>le pere n'a pas enonce la chose de facon affirmative, on pourrait dire que</b> les heritiers <b>n'ont pas rembourse</b> le creancier.
+
+### Partie 7
+La Guemara reformule la declaration de Rabba : <b>Au contraire, si</b> la declaration de Rabba <b>a ete enoncee, elle a ete enoncee comme suit :</b> Dans le cas d'une <b>personne sur son lit de mort qui dit : Untel a cent dinars en ma possession, et les orphelins</b> ont par la suite <b>dit :</b> Apres son aveu, <b>le pere s'est retracte</b> ses paroles <b>et nous a dit : J'ai rembourse</b> la dette, <b>ils sont juges credibles. Quelle est la raison</b> pour cela ? Au debut, le pere avait oublie, mais par la suite <b>il s'est souvenu</b> du remboursement de la dette. Mais si le pere dit de maniere affirmative : <b>Donner cent dinars a untel et a untel, et les orphelins</b> ont par la suite <b>dit :</b> Par la suite, <b>le pere s'est retracte</b> de ses paroles <b>et a dit : J'ai rembourse</b> la dette, <b>ils ne sont pas juges credibles.</b> La raison en est <b>que s'il est vrai que</b> le pere a <b>rembourse</b> la dette ou qu'il etait incertain a ce sujet, <b>il ne dirait pas</b> avec autant d'assurance : <b>Donnez</b> l'argent a ce dernier.
+
+### Partie 8
+§ <b>Rava souleve un dilemme :</b> En ce qui concerne <b>une personne sur son lit de mort qui,</b> en entendant la reclamation monetaire de quelqu'un contre elle, <b>a reconnu</b> lui devoir de l'argent, <b>qu'elle est</b> la <i>halakha</i> ? Est-il <b>oblige</b> pour lui de <b>dire</b> a deux personnes : <b>Vous etes mes temoins,</b> comme cela est generalement necessaire pour prouver qu'un aveu est enonce serieusement et non par plaisanterie ? <b>Ou</b> est-il peut-etre <b>non requis</b> pour lui de <b>dire : Vous etes mes temoins,</b> puisqu'il s'agit d'une personne sur son lit de mort, dont les instructions sont generalement contraignantes ? Est-il <b>exige qu'il dise</b> a deux personnes : <b>Ecrire</b> mon aveu dans un document, comme cela est habituellement requis, <b>ou</b> est-il <b>non requis</b> qu'il <b>dise : Ecrire</b> mon aveu dans un document ? La question qui se pose ici est la suivante : Est-ce que <b>une personne</b> fait parfois <b>des plaisanteries au moment de la mort,</b> c'est-a-dire sur son lit de mort, <b>ou</b> peut-on supposer que <b>une personne</b> ne <b>pas faire de plaisanteries au moment de la mort ?</b>
+
+### Partie 9
+<b>Apres que</b> Rava <b>soule le dilemme, il l'a ensuite resolu,</b> et a statue : <b>Une personne</b> ne fait <b>pas de plaisanterie au moment de la mort, et</b> donc <b>les declarations d'une personne sur son lit de mort sont considerees comme</b> si elles ont ete <b>ecrites</b> dans un document <b>et transmises</b> a la partie concernee.
+
+### Partie 10
+<strong>MISHNA :</strong> <b>Celui qui prete</b> de l'argent <b>a un autre au moyen</b> d'un billet a ordre peut recouvrer</b> la dette <b>sur des biens greves</b> qui avaient ete vendus a d'autres par le debiteur apres l'octroi du pret. Celui qui prete de l'argent <b>au moyen de temoins,</b> sans enregistrer le pret dans un billet a ordre, <b>ne peut recouvrer</b> la dette que <b>sur des biens non vendus.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Qui</b> alors <b>devra heriter ? Est-ce a dire que le dirigeant de la ville devrait heriter ? </b> Rav Pappa lui a repondu : <b>Voici ce que je</b> voulais <b>dire :</b> Si <b>il y a un fils et une fille, celui-ci</b> ne doit pas heriter de toute</b> la succession, <b>et celle-la</b> ne doit pas heriter de toute</b> la succession, <b>mais ils doivent en heriter</b> en <b>parties egales</b> l'un par rapport a l'autre.</b>
+
+### Partie 2
+<b>Abaye lui dit : Mais ce verset est-il necessaire</b> pour <b>nous apprendre que lorsqu'il n'a qu'un seul enfant,</b> cet enfant <b>doit heriter de tous ses biens ?</b> Si tu dis que le droit du fils et de la fille a l'heritage est egal, alors le verset : "Si un homme meurt et n'a pas de fils" (Nombres 27:8), qui enseigne que lorsqu'il n'y a pas de fils, sa fille herite, est superflu. Rav Pappa a repondu : <b>Et peut-etre que ce</b> verset <b>nous enseigne ceci : Qu'une fille est aussi sujette a</b> recevoir un <b>heritage.</b> La Guemara repond : Non, le verset n'a pas besoin de nous l'apprendre, puisque <b>cette</b> <i>halakha</i> <b>est derivee</b> du verset : <b>"Et toute fille qui possede un heritage"</b> (Nombres 36:8), qui indique clairement qu'une fille est sujette a recevoir un heritage.
+
+### Partie 3
+<b>Rav Aha bar Yaâkov a dit :</b> La <i>halakha</i> selon laquelle un fils herite des biens de son pere et precede une fille est derivee <b>de la,</b> dans le passage de la Torah ou les filles de Zelophehad demandent l'heritage de leur pere en Eretz Yisrael. Elles ont dit a Moise : <b>Pourquoi le nom de notre pere devrait-il etre supprime au sein de sa famille, parce qu'il n'a pas de fils ?</b> (Nombres 27:4). Rabbi Aha ben Yaâkov en deduit : <b>La raison</b> pour laquelle ils ont demande l'heritage est <b>que,</b> comme ils l'ont dit : Il <b>n'a pas de fils.</b> On peut en deduire : <b>Mais</b> si <b>il a un fils,</b> le <b>fils a la priorite</b> et les filles n'auraient pas demande d'heritage.
+
+### Partie 4
+La Gemara souleve une difficulte : <b>Mais peut-etre</b> ce sont <b>les filles de Zelophehad qui ont dit cela,</b> c'est-a-dire qu'elles avaient droit a un heritage uniquement parce que leur pere n'avait pas de fils. Elles pensaient que c'etait la <i>halakha</i> basee sur la coutume de l'epoque, mais apres que Dieu ait parle a Moise, la <b>Torah a ete donnee et une <i>halakha</i> a ete initiee</b> selon laquelle le droit d'une fille a heriter est egal a celui du fils. La Guemara accepte cette difficulte et declare : <b>Au contraire, il est clair</b> que la source de cette <i>halakha</i> est <b>comme nous l'avons repondu initialement,</b> c'est-a-dire comme Abaya derivee du verset de : "Si un homme meurt et qu'il n'a pas de fils, tu transmettras son heritage a sa fille" (Nombres 27:8).
+
+### Partie 5
+<b>Ravina a dit :</b> La source de la <i>halakha</i> qu'un fils precede une fille est <b>de la : "Qui est a cote de lui [<i>hakkarov elav</i>]"</b> (Nombres 27:11), enseignant que le <b>plus proche [<i>karov</i>]</b> est du defunt, le <b>plus ancien</b> est dans l'ordre d'heritage, et un fils du defunt est considere comme un parent plus proche du defunt que la fille.
+
+### Partie 6
+La Gemara demande : <b>Et qu'est-ce qui</b> demontre la <b>proximite d'un fils plus</b> que celle d'une <b>fille ? Qu'un fils se substitue a son pere pour designer</b> une servante hebraique comme epouse pour lui-meme <b>et par rapport a un champ ancestral.</b> La Guemara rejette cette affirmation : Ce n'est pas une preuve valable, car la <b>designation</b> ne peut pas demontrer qu'un fils est un parent plus proche ; <b>une fille n'est pas soumise a la designation,</b> car elle ne peut evidemment pas epouser la servante hebraique. En ce qui concerne <b>un champ ancestral egalement, le <i>tanna</i> etablit sa</b> decision qu'un fils est un parent plus proche que les autres <b>a partir de cette</b> meme <b>refutation : Existe-t-il un mariage levirat sauf dans le cas ou il n'y a pas de fils ? </b> Et ceci s'applique egalement lorsqu'il n'y a pas de fille. <b>Il est plutot clair</b> que la source de cette <i>halakha</i> est <b>ce que nous avons repondu initialement.</b>
+
+### Partie 7
+<b>Et si vous voulez, dites</b> plutot que la <i>halakha</i> qu'un fils precede une fille est derivee <b>de la,</b> dans le passage de la Torah traitant de l'heritage des esclaves, qui stipule : <b>"Et tu pourras en faire un heritage pour tes fils [<i>livneikhem</i>] apres toi"</b> (Levitique 25:46). On peut en deduire : <b>Vos fils, mais pas vos filles.</b> La Gemara demande : <b>Si c'est le cas,</b> alors quand le verset dit : <b>Afin que tes jours soient multiplies, et les jours de tes fils [<i>beneikhem</i>]</b> (Deuteronome 11:21), doit-on en deduire que <b>cela aussi</b> signifie : <b>Vos fils,</b> mais pas vos filles ?</b> N'est-il pas evident que les filles sont egalement dignes de recevoir la benediction de longevite ?
+
+### Partie 8
+La Guemara repond : <b>Une benediction est differente.</b> Dans un verset qui parle de benedictions, le terme <i>beneikhem</i> doit etre compris dans son sens large, comme "tes enfants".Dans un verset qui parle d'une <i>halakha</i>, il doit etre compris dans le sens plus etroit de "tes fils".
+
+### Partie 9
+§ La mishna enseigne : <b>Et les freres paternels heritent</b> les uns des autres <b>et se leguent</b> les uns aux autres. <b>D'ou tirons-nous</b> cette <i>halakha</i> ? <b>Rabba a dit :</b> Il <b>est derive de</b> une analogie verbale entre le mot : <b>Freres,</b> enonce a propos de l'heritage, et le mot : <b>Freres,</b> que l'on trouve dans les versets concernant <b>les fils de Jacob.</b> Lorsque les fils de Jacob parlent a Joseph, ils declarent : "Nous, tes serviteurs, sommes douze freres, fils d'un seul homme au pays de Canaan" (Genese 42:13), et dans le passage traitant de l'heritage, le verset indique : "Et s"?il n"?a pas de frères, vous donnerez son héritage aux frères de son père" (Nombres 27:10). <b>De meme que la,</b> dans le verset concernant les fils de Jacob, le mot freres fait reference aux freres <b>paternels</b> <b>et non maternels</b>, car les douze d'entre eux ne partageaient qu'un meme pere, <b>de meme ici,</b> ou ce terme est utilise en matiere d'heritage, le verset fait reference aux freres <b>paternels</b> <b>et non maternels</b>.
+
+### Partie 10
+La Gemara demande : <b>Mais pourquoi ai-je</b> besoin de cette preuve du verset concernant les fils de Jacob ? <b>Il est ecrit</b> dans le passage concernant l'heritage : "Puis tu donneras son heritage a son parent qui est a cote de lui <b>de sa famille, et il en heritera"</b> (Nombres 27:11). Lorsque le terme "famille" est utilise dans la Bible, la famille de son <b>pere est appelee</b> sa <b>famille,</b> tandis que la famille de sa <b>mere n'est pas appelee</b> sa <b>famille,</b> de sorte que dans toutes les questions d'heritage, ce sont les parents patrilineaires qui sont pris en compte.
+
+### Partie 11
+La Guemara repond : <b>Oui, il en est effectivement ainsi</b> que l'analogie verbale n'est pas necessaire pour enseigner la <i>halakha</i> de l'heritage, <b>et lorsque Rabbas</b> a enonce l'explication <b>elle a ete enoncee,</b> elle <b>a ete enoncee en ce qui concerne la question du mariage levirat,</b> enseignant que le mariage levirat est effectue uniquement par un frere paternel mais pas par un frere maternel.
+
+### Partie 12
+§ La mishna enseigne : <b>Et un homme</b> a l'egard de <b>sa mere</b> herite de ses proches mais ne lui legue pas. La Guemara demande : <b>D'ou proviennent ces questions</b> ? La Gemara repond : <b>Comme l'ont enseigne les Sages :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

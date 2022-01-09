@@ -1,0 +1,39 @@
+
+### Part 1
+§ The mishna taught that one of the sources of ritual impurity for which a nazirite must shave is a full ladle of dust from a corpse. <b>The Sages taught</b> (<i>Tosefta</i>, <i>Oholot</i> 2:3): <b>Which is a corpse that has</b> the <i>halakha</i> of <b>dust,</b> i.e., whose dust imparts impurity? <b>A corpse that was buried naked in a marble coffin or on a stone floor; this is a corpse that has</b> the <i>halakha</i> of <b>dust</b> that imparts impurity. Any dust found there must have come from the corpse. However, if it was <b>buried in its cloak,</b> or <b>in a wooden coffin, or on a brick floor, this is a corpse that does not have</b> the <i>halakha</i> of <b>dust</b> that imparts impurity. In the latter cases it is assumed that the dust from the corpse includes particles from the clothes, wood, or bricks that disintegrated, and there is a tradition that the impurity of dust applies only to dust that comes solely from the corpse, not to a mixture from different sources.
+
+### Part 2
+With regard to the same issue, <b>Ulla said: Dust is only that which comes from the flesh and from the sinews and from the bones</b> of the corpse together, but not if it came from one of these alone. <b>Rava raised an objection to Ulla</b> from the following <i>baraita</i>: <b>Dust that comes from the flesh is pure.</b> It can be inferred from here that if it comes <b>from the bone it is impure, even though there is no</b> dust of <b>flesh</b> mixed with it. Ulla replied: You <b>should say</b> and infer <b>like this: Dust that comes from the flesh is pure, unless there is bone in the flesh.</b>
+
+### Part 3
+Rava continued to question Ulla’s opinion: Even if one interprets the <i>baraita</i> in this manner, <b>there is no</b> mention of <b>sinews</b> here at all, and Ulla maintains that sinews must also contribute to the makeup of part of the dust. Ulla replied that there is no need to mention sinews explicitly, as <b>it is impossible for</b> there to be <b>flesh and bones without sinews.</b> Once it is established that the dust is from bones and flesh, it necessarily includes sinews as well.
+
+### Part 4
+§ The Gemara continues to discuss the dust of a corpse. <b>Rav Shmuel bar Abba said</b> that <b>Rabbi Yoḥanan said: Two corpses that were buried with one another become a mixture [<i>galgallin</i>] with one another.</b> Their dust is considered mixed together and does not impart the impurity of the dust from a single corpse. <b>Rav Natan raises an objection</b> to this opinion: But it is taught that <b>dust that comes from two corpses is impure.</b>
+
+### Part 5
+<b>Rava said:</b> That <i>baraita</i> is referring to a case <b>where they buried this</b> corpse <b>by itself and that</b> corpse <b>by itself, and they decayed</b> separately, <b>and they</b> both <b>stood at,</b> i.e., yielded the amount of, <b>a full ladle of dust.</b> In this situation, the dust imparts impurity despite the fact that it is not from a single corpse, as the status of dust from a corpse initially applied to each corpse. However, if the corpses decayed together they are considered to be mixed together, which means that their dust does not impart impurity.
+
+### Part 6
+The Gemara cites a further statement with regard to dust of a corpse. <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said:</b> If one <b>cut the hair</b> of a corpse <b>and buried</b> the hair <b>with it,</b> the hair <b>becomes</b> part of the <b>mixture for</b> the dust, and it does not impart impurity. In relation to the above, the Gemara states: <b>We learned</b> in a mishna <b>there</b> (<i>Oholot</i> 3:3): <b>Everything that is in a corpse</b> is <b>impure, except for the teeth, the hair, and the nails,</b> which do not impart impurity as part of the body. <b>But when they are attached</b> to the corpse, <b>they are all impure.</b>
+
+### Part 7
+With regard to this <i>halakha</i>, <b>Ḥizkiyya raised a dilemma:</b> If <b>hair</b> of a corpse <b>is ready to be shaved,</b> or its <b>nail is ready to be cut, what</b> is the <i>halakha</i>? <b>Do we say</b> that <b>anything that is ready to be cut is considered cut,</b> and therefore these are considered detached from the body and do not impart impurity? <b>Or, perhaps now, in any event, they are attached,</b> and therefore they should impart impurity?
+
+### Part 8
+The Gemara asks: <b>And let</b> Ḥizkiyya <b>resolve</b> this dilemma <b>from</b> the aforementioned statement of <b>Rabba bar bar Ḥana,</b> that hair buried with a corpse forms a mixture with the corpse. The inference is as follows: <b>The reason</b> that it forms a mixture is <b>because he cut</b> the hair, from which it may be inferred if he did <b>not cut</b> the hair it would <b>not</b> form a mixture, even if it was ready to be cut. The Gemara rejects this argument: One can respond that <b>this is what</b> Rabba bar bar Ḥana <b>is saying:</b> If he <b>cut</b> it, <b>it</b> definitely forms <b>a mixture;</b> if he did <b>not cut</b> it, Rabba bar bar Ḥana is unsure as to the <i>halakha</i> and <b>he raises</b> this case as <b>a dilemma.</b>
+
+### Part 9
+§ <b>Rabbi Yirmeya raised</b> another <b>dilemma</b> concerning the dust of a corpse: With regard to <b>dust that comes from the heel, what is</b> the <i>halakha</i>? The Gemara explains the two sides of the dilemma: Do we say that <b>when we learn</b> this <i>halakha</i> through tradition, is it only in reference to <b>dust that comes from all</b> of <b>a corpse, but</b> with regard to dust <b>that comes from</b> its <b>heel, no,</b> this <i>halakha</i> does not apply; <b>or perhaps</b> it <b>is no different?</b>
+
+### Part 10
+The Gemara suggests a resolution of this dilemma: <b>Come</b> and <b>hear, as Rabbi Natan, son of Rabbi Oshaya, taught: Dust that comes from two corpses</b> is <b>impure. And if it enters your mind</b> that dust <b>that comes from the heel</b> does <b>not</b> impart impurity, <b>go here</b> and consider that <b>perhaps</b> the dust <b>came from the heel, and</b> go <b>here</b> too and consider that <b>perhaps</b> it <b>came from the heel.</b> The fact that the dust is considered definitely impure shows that dust from the heel imparts impurity as well.
+
+### Part 11
+The Gemara rejects this argument: <b>If the entire corpse decayed and</b> the dust <b>came from the heel, so too,</b> it is all impure, as the dust of the heel is not considered to be a foreign substance. <b>Rather, here</b> Rabbi Natan is referring to a case <b>where one limb decayed and</b> the dust <b>came from</b> the <b>heel.</b> It was with regard to this situation that Rabbi Yirmeya asked: <b>What</b> is its <i>halakha</i>? Does this dust impart impurity or not? No answer was found, and therefore the Gemara states that the dilemma <b>shall stand</b> unresolved.
+
+### Part 12
+§ <b>Rabbi Yirmeya raised</b> yet another <b>dilemma: Does</b> a dead <b>fetus in its</b> dead <b>mother’s womb</b> form <b>a mixture</b> with regard to her, so that the bodies are considered like two corpses buried together, <b>or not?</b> The Gemara explains the two sides of the dilemma: Do we say that <b>since the Master said</b> that <b>a fetus is</b> considered as <b>the thigh of its mother, it is therefore</b> like <b>her body and it</b> does <b>not</b> form <b>a mixture</b> with it? <b>Or perhaps</b> one should maintain: <b>Since</b> in most cases a fetus <b>will ultimately emerge</b> from the womb at birth, it is already considered <b>separated from her,</b> and it is like any other corpse buried with the woman. <b>And if you say</b> that <b>a fetus, which will ultimately emerge,</b> is considered <b>separated from her</b> and is not part of her body, one must still ask this question
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

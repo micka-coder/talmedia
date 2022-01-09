@@ -1,0 +1,39 @@
+
+### Partie 1
+<strong>GEMARA :</strong> <b>Shmuel dit :</b> Lorsque la mishna indique que l'offrande est <b>disqualifiee,</b> cela signifie que la <b>viande</b> est impropre a la consommation. <b>Mais</b> le <b>proprietaire</b> de l'offrande a <b>atteint l'expiation</b> a travers elle. <b>Quelle est la raison</b> de cette situation ? C'est <b>comme le dit le verset</b> a propos du sang : <b>"Et je vous l'ai donne sur l'autel pour expier</b> vos ames" (Levitique 17:11), d'ou il decoule que <b>lorsque le sang atteint</b> n'importe quel endroit sur <b>l'autel,</b> le <b>proprietaire</b> de l'offrande a <b>atteint l'expiation.</b>
+
+### Partie 2
+La Gemara conteste : <b>Si c'est le cas,</b> la <b>viande</b> devrait etre propre a la consommation <b>aussi.</b> Le Gemara repond : <Le verset dit "pour expier", soulignant que "je te l'ai donne" pour l'expiation et pour rien d'autre, par exemple, la consommation de la viande.
+
+### Partie 3
+La Gemara note : <b>Apparemment,</b> Shmuel <b>soutient</b> que le sang asperge <b>non dans son</b> lieu propre est considere comme</b> s'il etait asperge dans <b>son</b> lieu propre.</b> Mais <b>on a appris</b> dans une mishna <b>dans un autre chapitre</b> (32a) : Si une personne inapte <b>a place</b> le sang <b>sur la rampe,</b> ou sur le mur de l'autel <b>qui</b> n'est <b>pas oppose a la base</b> de l'autel ; ou si <b>il a place</b> le sang <b>qui doit etre <b>place en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, <b>ou</b> s'il a place le sang <b>qui doit etre <b>place au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge ; <b>ou</b> s'il a place le sang <b>qui est</b> pour etre <b>place a l'interieur</b> du Sanctuaire <b>a l'exterieur</b> du Sanctuaire <b>ou</b> le sang <b>qui est</b> pour etre <b>place a l'exterieur</b> du Sanctuaire <b>a l'interieur</b> du Sanctuaire, alors <b>si du sang de l'ame</b> reste dans l'animal, <b>le</b> pretre <b>adapte</b> au service du Temple <b>devra recueillir</b> le sang <b>encore une fois</b> et l'asperger sur l'autel.
+
+### Partie 4
+La Guemara poursuit : <b>Et si</b> il te viendrait a l'esprit</b> de dire <b>que</b> le sang asperge <b>non a sa</b> place</b> est considere <b>comme</b> s'il etait asperge a sa <b>place, pourquoi ai-je</b> besoin du pretre apte</b> a <b>recuperer</b> le sang <b>encore</b> et a l'asperger ? <b>Et si vous voulez dire</b> que bien que la premiere aspersion ait deja effectue l'expiation, la seconde aspersion est necessaire <b>pour permettre la viande</b> de l'offrande <b>pour la consommation, existe-t-il</b> un tel concept comme <b>une aspersion qui n'effectue pas</b> elle-meme <b>l'expiation et</b> pourtant <b>permet</b> la <b>viande pour la consommation ? </b> On doit plutot conclure que la premiere aspersion n'a pas du tout effectue l'expiation, puisqu'elle n'a pas ete aspergee a l'endroit approprie.
+
+### Partie 5
+La Guemara repond : <b>Si un pretre apte</b> <b>avait</b> initialement <b>place</b> le sang de maniere inappropriee, l'aspersion aurait <b>en effet</b> effectue l'expiation apres coup et il n'y aurait pas d'autre aspersion. Mais <b>ici, nous avons affaire</b> a un cas <b>ou une personne inapte</b> <b>a place</b> le sang, de sorte qu'il n'a pas du tout effectue l'expiation.
+
+### Partie 6
+La Gemara demande : <b>Mais</b> si la mishna traite d'un cas ou une personne inapte a place le sang initialement, alors l'offrande <b>doit etre rejetee</b> definitivement, <b>comme nous l'avons appris</b> dans la meme mishna : <b>Et</b> en ce qui concerne <b>toutes</b> les personnes inaptes <b>qui ont recueilli</b> le sang dans l'intention de l'offrir <b>au-dela de son</b> <b>temps designe ou en dehors de sa</b> <b>zone designee, s'il reste du sang de l'ame</b> dans l'animal, <b>le</b> pretre <b>apte</b> au service du Temple <b>devra recueillir</b> le sang <b>a nouveau</b> et l'asperger sur l'autel. Puisque la mishna enonce cette <i>halakha</i> uniquement en ce qui concerne la collecte du sang, on peut en deduire que specifiquement si une personne inapte <b>collectait</b> le sang avec une intention inappropriee, un pretre apte peut <b>en effet</b> collecter le sang a nouveau, mais si elle <b>aspergeait</b> le sang avec une intention inappropriee, il <b>ne peut pas. Quelle est la raison</b> pour cela ? N'est-ce pas parce que</b> l'offrande <b>est rejetee</b> definitivement lorsqu'une personne inapte en asperge le sang ?
+
+### Partie 7
+La Guemara repond : <b>Non,</b> l'offrande est rejetee <b>parce qu'elle est disqualifiee par</b> l'<b>intention</b> inappropriee de la personne qui asperge le sang, et non parce que cette personne est inapte.
+
+### Partie 8
+La Gemara conteste : <b>Si c'est le cas,</b> alors l'intention impropre en ce qui concerne la <b>collecte</b> du sang devrait disqualifier l'offrande <b>aussi. Et en outre, l'intention disqualifie-t-elle</b> les offrandes dans de tels cas ? <b>Mais Rava ne dit-il pas : L'intention est efficace</b> pour disqualifier une offrande <b>seulement</b> lorsqu'elle est exprimee <b>par quelqu'un qui est apte au</b> Temple <b>service, et par rapport a un objet qui est apte au</b> Temple <b>service, et dans un lieu qui est apte au</b> Temple <b>service ?</b> Ici, celui qui recueille le sang est inapte.
+
+### Partie 9
+La Gemara repond : <b>Ne dites pas</b> que l'on deduit de la mishna que si une personne inapte <b>sprinkle</b> le sang avec une intention inappropriee, un pretre apte <b>ne peut</b> le collecter a nouveau. <b>Disons plutot</b> que l'on en deduit que si une personne inapte <b>a abattu</b> l'offrande avec une intention inappropriee, l'erreur <b>ne peut</b> etre rectifiee. L'abattage est valide s'il est effectue par une personne inapte au service du Temple, et donc l'intention impropre d'une personne inapte est efficace pour disqualifier l'offrande. En revanche, la collecte et l'aspersion du sang doivent etre effectuees par un pretre apte. Par consequent, l'intention d'une personne inapte a l'egard de ces rites ne disqualifie pas l'offrande.
+
+### Partie 10
+La Gemara demande : Selon cette interpretation, <b>Qu'est-ce que</b> la mishna <b>nous apprend ? </b> Peut-elle vouloir enseigner seulement <b>que</b> l'<b>intention</b> inappropriee d'une personne inapte pendant l'abattage <b>disqualifie</b> l'offrande ? <b>Nous</b> l'avons deja <b>appris</b> dans la meme mishna (31b), qui precise : En ce qui concerne tous ceux qui sont inaptes au service du Temple qui ont abattu une offrande, leur abattage est valide, et <b>par consequent, ces</b> personnes inaptes <b>disqualifient</b> l'offrande <b>avec</b> une <b>intention impropre.</b>
+
+### Partie 11
+La Gemara repond : <b>C'est</b> ce que la mishna <b>nous apprend : Que</b> celui qui est inapte ne peut disqualifier l'offrande que pendant son abattage, mais <b>depuis</b> le rite de <b>collecte</b> du sang <b>jusqu'a</b> l'<b>intention</b> d'une personne inapte <b>ne disqualifie pas</b> l'offrande. <b>Quelle est la raison</b> de cette situation ? C'est <b>comme ce que dit Rava</b> : L'intention n'est efficace pour disqualifier une offrande que lorsqu'elle est exprimee par une personne apte au service en question.
+
+### Partie 12
+La Gemara <b>souleve une objection</b> a partir d'un <i>baraita</i> : Si quelqu'un a abattu une offrande et <b>avait l'intention de placer</b> le sang <b>qui doit etre</b> place au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge, ou de placer le sang qui doit etre place <b>en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, et qu'il avait l'intention de le faire <b>immediatement,</b> c'est a dire. e., le meme jour, l'offrande reste <b>adequate.</b> Par consequent, si <b>il avait ensuite l'intention</b> lors de l'accomplissement des autres rites...
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

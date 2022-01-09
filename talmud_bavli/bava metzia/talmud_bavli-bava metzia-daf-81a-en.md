@@ -1,0 +1,51 @@
+
+### Part 1
+This indicates that if the skilled laborer said only: <b>I completed</b> the work with <b>it,</b> he is considered <b>a paid bailee,</b> i.e., even after he completes the work the item remains within his responsibility. The Gemara rejects this line of reasoning: <b>No,</b> this is not what should be deduced from the mishna. Rather, the correct deduction is that one who says: <b>Give money</b> first <b>and</b> then <b>take</b> what is <b>yours,</b> is <b>a paid bailee.</b>
+
+### Part 2
+The Gemara asks: <b>But</b> if that is the case, when one says only: <b>I completed</b> the work with <b>it, what</b> is the <i>halakha</i>? Is he considered <b>an unpaid bailee? If so, rather than teaching</b> a new <i>halakha</i> in the mishna: <b>And all those who say: Take</b> what is <b>yours and bring money,</b> each of them is considered <b>an unpaid bailee, let it teach us</b> instead the <i>halakha</i> of one who says: <b>I completed</b> the work with <b>it, and</b> it can be deduced that <b>all the more so</b> is this the <i>halakha</i> if he says to him: <b>Take</b> what is <b>yours.</b>
+
+### Part 3
+The Gemara rejects this line of reasoning: The case of <b>take</b> what is <b>yours must</b> be taught explicitly. Otherwise, it might <b>enter your mind to say</b> that once he issues this statement, <b>he is not</b> considered <b>even an unpaid bailee</b> and retains no responsibility whatsoever for the item. Therefore, the mishna <b>teaches us</b> that even in this case he is still considered an unpaid bailee and continues to bear certain responsibilities.
+
+### Part 4
+<b>There are</b> those <b>who say</b> that there is a different version of this discussion. Rather than challenging that Rav Ḥisda’s opinion is opposed by the ruling of the mishna, <b>Rav Naḥman bar Pappa said: We, too, learn</b> a proof for Rav Ḥisda’s statement from the mishna: <b>And all those who say: Take</b> what is <b>yours and bring money,</b> each of them is considered <b>an unpaid bailee. What, is it not</b> correct to say that <b>the same is true</b> when he says: <b>I have completed</b> the work with <b>it?</b> The Gemara rejects this claim. <b>No,</b> the case of one who says <b>take</b> what is <b>yours is different,</b> as stated above, as one might think that this statement frees the laborer of all responsibility.
+
+### Part 5
+The Gemara cites a third version of this discussion. <b>Huna Mar bar Mareimar raised a contradiction between the <i>mishnayot</i> before Ravina and resolved</b> it himself. <b>We learned</b> in the mishna: <b>And all those who say: Take</b> what is <b>yours and bring money,</b> each of them is considered <b>an unpaid bailee. And</b> apparently <b>the same is true for</b> one who said: <b>I completed</b> the work with <b>it. And</b> Huna Mar bar Mareimar <b>raises a contradiction</b> from the aforementioned mishna: If the <b>borrower said to</b> the lender: <b>Send</b> the animal to me, <b>and he sent it</b> to him <b>and it died</b> on the way, the borrower is <b>liable, and similarly when he returns it. And</b> he <b>resolves this</b> contradiction in accordance with that which <b>Rafram bar Pappa said</b> that <b>Rav Ḥisda said: They taught</b> this <i>halakha</i> <b>only when he returned it during the period of its loan. But</b> if he returned it <b>after the period of its loan, he is exempt.</b>
+
+### Part 6
+§ <b>A dilemma was raised before</b> the Sages: When Rav Ḥisda said that a borrower who returned the item after the period of the loan is exempt, is he <b>exempt</b> only <b>from</b> the strict obligations of <b>a borrower, but</b> he remains <b>liable as a paid bailee, or perhaps he is also not</b> liable as <b>a paid bailee? Ameimar said: It stands to reason</b> that he is <b>exempt as a borrower but</b> is still <b>liable as a paid bailee.</b> Ameimar’s reasoning is that <b>since</b> he previously <b>had benefit, he</b> must <b>provide benefit</b> in return, by safeguarding the item as a paid bailee until the item reaches the owner’s possession.
+
+### Part 7
+<b>It is taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Bava Batra</i> 6:5) <b>in accordance with</b> the opinion of <b>Ameimar:</b> With regard to <b>one who takes vessels from an artisan’s house to send them</b> as a gift <b>to his father-in-law’s house, and</b> he <b>said to</b> the artisan: <b>If they accept them from me</b> as a gift <b>I will give you the money for them, and if not,</b> i.e., if they return the gift, <b>I will give you</b> money <b>in accordance with the financial advantage</b> I received <b>from them,</b> i.e., I will pay you the benefit that I accrued through their knowledge that I tried to send them a gift; <b>and an accident happened</b> to the vessels and they were broken, if this incident occurred <b>on their way</b> to the recipient the customer is <b>liable.</b>
+
+### Part 8
+If they broke <b>on the way back</b> he is <b>exempt, because he is like a paid bailee,</b> who is not liable for accidents. If this individual, who pays for the financial advantage he received, is considered a paid bailee, all the more so should this apply to a borrower who returned the item after the period of the loan, in accordance with the opinion of Ameimar, as he did not offer to pay anything.
+
+### Part 9
+The Gemara relates: There was <b>a certain man who sold a donkey to another.</b> The buyer <b>said to him: I will bring it to such and such a place; if it is sold,</b> well and <b>good; and if not, I will return it to you. He went and it was not sold, and on his way</b> back the donkey was injured in <b>an accident.</b> The case <b>came before Rav Naḥman,</b> who <b>deemed</b> the buyer <b>liable</b> to pay.
+
+### Part 10
+<b>Rabba raised an objection to Rav Naḥman</b> from the <i>baraita</i>: If <b>an accident happened to</b> the vessels <b>on their way</b> to the recipient, the customer is <b>liable;</b> if they broke <b>on the way back</b> he is <b>exempt, because he is like a paid bailee.</b> If so, why did you deem this buyer liable, when the accident occurred on his return?
+
+### Part 11
+Rav Naḥman <b>said to</b> Rabba that there is a difference between the cases, as <b>the way back of this</b> one <b>is</b> considered <b>like the way</b> to the recipient. <b>What is the reason</b> for this? It <b>is</b> based on <b>logical reasoning:</b> Even <b>on his way back, if he found</b> an opportunity <b>to sell</b> the donkey, <b>wouldn’t he have sold it?</b> Therefore, as he was in possession of the animal the entire time, the <i>halakha</i> treats his going and returning equally, and he retains the responsibility of a borrower until he actually returns the animal to its owner.
+
+### Part 12
+§ The mishna teaches: With regard to one who says to another: <b>Safeguard</b> my property <b>for me and I will safeguard</b> your property <b>for you,</b> each of them is a <b>paid bailee.</b> The Gemara asks: <b>But why</b> is this the <i>halakha</i>? <b>It is</b> a case of <b>safeguarding with the owners.</b> There is a principle that a bailee is exempt from paying for the damage if the owner of the item is present with the bailee or in his employ when he is safeguarding the item. <b>Rav Pappa said:</b> The mishna means that <b>he said to him: Safeguard</b> my property <b>for me today and I will safeguard</b> your property <b>for you tomorrow.</b> At the time of his safeguarding, the owner was not in the bailee’s employ.
+
+### Part 13
+<b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 7:10): If one said: <b>Safeguard</b> my property <b>for me and I will safeguard</b> your property <b>for you,</b> or: <b>Lend</b> money <b>to me and I will lend</b> money <b>to you,</b> or: <b>Safeguard</b> my property <b>for me and I will lend</b> money <b>to you,</b> or: <b>Lend</b> money <b>to me and I will safeguard</b> your property <b>for you, they all become paid bailees for each other.</b> The Gemara asks: <b>Why</b> are they liable as paid bailees? <b>Is</b> this not a situation of <b>safeguarding with the owners? Rav Pappa</b> again <b>said:</b> This is referring to a case <b>where he said to him: Safeguard</b> my property <b>for me today and I will safeguard</b> your property <b>for you tomorrow.</b>
+
+### Part 14
+The Gemara relates: There were <b>certain ice plant dealers [<i>ahaluyei</i>],</b> and <b>every day one</b> of them <b>would</b> have a turn to <b>bake</b> for the group. <b>One day</b> the others <b>said to one of them: Go</b> and <b>bake for us. He said to them: Safeguard my cloak for me. Before he came</b> back <b>they were negligent with it and it was stolen. They came</b> for judgment <b>before Rav Pappa,</b> and he <b>deemed them liable</b> to pay for the cloak.
+
+### Part 15
+<b>The Rabbis said to Rav Pappa: Why</b> did you deem them liable to pay? <b>This is</b> akin to a case of <b>negligence</b> by a bailee while he is <b>with the owners,</b> as the owner of the cloak was baking for them at the time the cloak was stolen due to their negligence. Rav Pappa <b>was embarrassed</b> over his apparent mistake. <b>Ultimately, it was discovered that at that time,</b> when the cloak was stolen, the cloak owner <b>was drinking beer</b> and not baking. Since he was not doing work for them, this was not a case of safeguarding with the owner, and therefore Rav Pappa’s ruling was vindicated.
+
+### Part 16
+The Gemara comments: <b>This works out well according to the one who says</b> that in a case of <b>negligence</b> by a bailee while he is <b>with the owners</b> he is <b>exempt; due to that</b> reason Rav Pappa <b>was embarrassed. But according to the one who says</b> that in a case of negligence he is <b>liable</b> even while he is with the owners, <b>why was</b> Rav Pappa <b>embarrassed? Rather,</b> this is what actually happened: <b>That day was not his</b> turn to bake, <b>and they said to him: You go</b> and <b>bake for us, and he said to them: As payment for baking for you</b> when it is not my turn, <b>safeguard my cloak.</b> In other words, they were paid bailees.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

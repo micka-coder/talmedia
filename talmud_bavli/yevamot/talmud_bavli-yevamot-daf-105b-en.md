@@ -1,0 +1,51 @@
+
+### Part 1
+<b>Rav Yehuda said</b> that <b>Rav said: This</b> teaching of the mishna with regard to a minor is <b>the statement of Rabbi Meir,</b> who maintains that such a <i>ḥalitza</i> has significance in that it disqualifies a subsequent levirate marriage, but it is insufficient to permit the woman to marry a stranger. <b>But the Rabbis say: The <i>ḥalitza</i> of a male minor isn’t</b> significant of <b>anything,</b> as she is permitted to one of the brothers in levirate marriage as one who no <i>ḥalitza</i> was performed at all.
+
+### Part 2
+§ It was taught in the mishna: <b>If a female minor performed <i>ḥalitza</i>,</b> she must perform <i>ḥalitza</i> a second time once she becomes an adult, and if she does not, her first <i>ḥalitza</i> is invalid. <b>Rav Yehuda said</b> that <b>Rav said: This is the statement of Rabbi Meir, who said: “Man” is written in the</b> Torah <b>portion</b> about <i>ḥalitza</i>: “And if the man does not wish” (Deuteronomy 25:7), implying an adult must perform <i>ḥalitza</i>, <b>and we juxtapose</b> and compare <b>a woman with a man,</b> indicating that the woman must also be an adult at the time of <i>ḥalitza</i>.
+
+### Part 3
+<b>But the Rabbis say: “Man” is written in this</b> Torah <b>portion,</b> which indicates that an adult male must perform <i>ḥalitza</i>, but with respect to the <b>woman</b> who removes the shoe, since the term woman is not used to describe her, but rather the more general term <i>yevama</i> is written, as the continuation of the above-mentioned verse says: “To take his <i>yevama</i>” (Deuteronomy 25:9), <b>she may be either an adult or a female minor.</b>
+
+### Part 4
+The Gemara asks: <b>Who are these Rabbis</b> who disagree with Rabbi Meir? The Gemara answers: <b>It is Rabbi Yosei,</b> as it seems from this incident: <b>As, Rabbi Ḥiyya and Rabbi Shimon bar Rabbi</b> Yehuda HaNasi <b>were sitting</b> outside the house of study, immersed in Torah learning. <b>One of them began and said: One who prays must direct his gaze downward</b> while praying, <b>as it is stated</b> by God with regard to the Holy Temple: <b>“And My eyes and My heart shall be there perpetually”</b> (I Kings 9:3), meaning: The Divine Presence rests in the Eretz Yisrael, and one must direct his gaze to the sacred land when praying.
+
+### Part 5
+<b>And one of them said</b> he must direct <b>his eyes upward, because it is stated: “Let us lift our hearts with our hands</b> toward God in Heaven” (Lamentations 3:41). <b>In the meantime, Rabbi Yishmael, son of Rabbi Yosei, came beside them. He said to them: What are you dealing with? They said</b> to him: <b>With prayer,</b> as we are debating the proper posture for prayer. <b>He said to them: My father,</b> Rabbi Yosei, <b>said as follows: One who prays must direct his eyes downward and his heart upward, in order to fulfill both of these verses.</b>
+
+### Part 6
+<b>In the meantime,</b> while they were talking, <b>Rabbi</b> Yehuda HaNasi <b>came to the house of study</b> and everyone quickly went to sit in their assigned places. <b>Those who were light-footed</b> hurried and <b>sat in their places. Rabbi Yishmael, son of Rabbi Yosei, due to his being very heavy, was stepping and walking</b> slowly, as everyone was already sitting in his place on the ground, requiring him to pass over their heads in order to get to his place.
+
+### Part 7
+<b>Abdon,</b> the shortened form of the name of Rabbi Yehuda HaNasi’s student and attendant, Abba Yudan, <b>said to him: Who is that individual stepping over the heads of a sacred people,</b> for it appeared to him as an act of disrespect to those sitting that Rabbi Yishmael stepped over their heads. <b>He said to him: I am Yishmael, son of Rabbi Yosei, who came to learn Torah from Rabbi</b> Yehuda HaNasi. Abdon <b>said to him: But are you fit to learn Torah from Rabbi</b> Yehuda HaNasi, for it seems that you are showing disrespect to others in order to accomplish it?
+
+### Part 8
+He <b>said to him: Was Moses fit to learn Torah from the mouth of the Almighty?</b> Rather, it is not necessary that the student be as dignified as his teacher. He <b>said to him: And are you Moses?</b> Rabbi Yishmael <b>said to him: And is your teacher God? Rav Yosef said</b> about this part of the story: Here <b>Rabbi</b> Yehuda HaNasi <b>received his retribution</b> [<b><i>mittarpesei</i></b>] for remaining silent during this discussion and not reprimanding his student for humiliating Rabbi Yishmael. And what is his retribution? <b>When</b> Rabbi Yishmael spoke to Abdon, <b>he said your teacher, and not my teacher,</b> implying that he did not accept Rabbi Yehuda HaNasi’s authority upon himself.
+
+### Part 9
+<b>In the meantime, a <i>yevama</i> came before Rabbi,</b> and she was a minor close to the age of maturity who had performed <i>ḥalitza</i>, but it was not clear whether she had already reached the age of maturity necessary to validate her <i>ḥalitza</i>. <b>Rabbi</b> Yehuda HaNasi <b>said to Abdon: Go and check</b> to see if she has already reached maturity. <b>After</b> Abdon <b>left, Rabbi Yishmael said to</b> Rabbi Yehuda HaNasi<b>: My father,</b> Rabbi Yosei, <b>said as follows: “Man” is written in the</b> Torah <b>portion</b> of <i>ḥalitza</i>, <b>but</b> the <b>woman may be either an adult woman or a female minor.</b>
+
+### Part 10
+<b>Rabbi</b> Yehuda HaNasi <b>said to</b> Abdon<b>: Come</b> back. <b>You do not need</b> to check, as <b>the Elder,</b> Rabbi Yosei, <b>has already ruled</b> that a minor can perform <i>ḥalitza</i>, and therefore no further examination is required. <b>Abdon was stepping and coming</b> over the heads of the others in order to return to his place. <b>Rabbi Yishmael, son of Rabbi Yosei, said to him: One upon whom a holy people depends may step over the heads of a holy people. But one upon whom a holy people does not depend,</b> as there is no longer a need for Abdon to examination the woman, <b>how can he step over the heads of a holy people?</b>
+
+### Part 11
+<b>Rabbi</b> Yehuda HaNasi <b>said to Abdon: Stand in your place</b> and do not go any further. <b>It was taught: At that moment Abdon was afflicted with leprosy</b> as a punishment for insulting Rabbi Yishmael, son of Rabbi Yosei, and <b>two of his sons</b> who were recently married <b>drowned, and his two daughters-in-law,</b> who were minors married to those sons, <b>made declarations of refusal</b> and annulled their marriages. <b>Rav Naḥman bar Yitzḥak said: Blessed is the Merciful One, Who shames Abdon in this world,</b> for this prevents him from being punished further in the World-to-Come, as all his iniquities have been forgiven through this suffering.
+
+### Part 12
+<b>Rabbi Ami said: From the words of the great man,</b> Rabbi Yosei, <b>let us learn: A female minor performs <i>ḥalitza</i></b> even <b>as a young child,</b> at age six or seven. <b>Rava said:</b> She may not perform <i>ḥalitza</i> <b>until she reaches the age of vows</b> as an eleven-year-old, when she has enough intellectual capacity to understand the meaning of a vow. However, the Gemara concludes: <b>And the <i>halakha</i> is:</b> She may not perform <i>ḥalitza</i> <b>until she has two</b> pubic <b>hairs.</b>
+
+### Part 13
+It was taught in the mishna: <b>If she performed <i>ḥalitza</i> before two</b> or three people, and one of them is found to be disqualified to serve as a judge, Rabbi Shimon and Rabbi Yoḥanan the Cobbler validate it. <b>Rav Yosef bar Minyumi said</b> that <b>Rav Naḥman said: The <i>halakha</i> does not follow this pair</b> who validate such a case. The Gemara asks: <b>But didn’t Rav Naḥman</b> already <b>say this</b> same ruling <b>one time</b> before? <b>As Rav Yosef bar Minyumi said</b> that <b>Rav Naḥman said: <i>Ḥalitza</i> must be</b> conducted <b>before three</b> people, indicating that there must be no fewer than three valid judges.
+
+### Part 14
+The Gemara answers: Both <b>are necessary, for if only the</b> first one, stating that <i>ḥalitza</i> must be before three judges, <b>were stated, I would say: This applies <i>ab initio</i>, but after the fact even two</b> is acceptable. Therefore, <b>he teaches us that the <i>halakha</i> does not follow this pair</b> of Sages, and her <i>ḥalitza</i> before two people is invalid even after the fact. And vice versa: <b>If he would have told us only that the <i>halakha</i> does not follow this pair, but rather the first <i>tanna</i>, I would say</b> that it is valid if performed before three people only <b>after the fact, but they must require five</b> people <b><i>ab initio</i>,</b> in accordance with Rabbi Yehuda’s opinion. Therefore <b>it is necessary</b> to say both of these statements.
+
+### Part 15
+§ <b>A story is told</b> in the mishna about <b>an incident</b> in which a couple <b>once performed <i>ḥalitza</i></b> between themselves in private while alone in prison, and the case later came before Rabbi Akiva and he validated it. The Gemara asks: <b>How can we know what happened between him and her?</b> There was no testimony to confirm it, and how can we be certain that the <i>ḥalitza</i> was done properly to validate it? <b>Rav Yehuda said</b> that <b>Shmuel said: And</b> the <i>ḥalitza</i> was validated because <b>there were witnesses who saw them from outside</b> the prison, who testified that the <i>ḥalitza</i> was performed properly.
+
+### Part 16
+<b>A dilemma was raised before</b> the students in the house of study with regard to the incident recorded in the mishna in which a private <i>ḥalitza</i> performed in a prison was validated: <b>Did the incident in which they performed <i>ḥalitza</i> between him and her</b> privately actually <b>take place outside</b> in a different locale, <b>and</b> the reference to prison is that <b>the case came before Rabbi Akiva</b> when he was confined <b>in prison? Or, perhaps the incident when they performed <i>ḥalitza</i> between him and her took place in prison,</b> and then this case came before Rabbi Akiva? <b>Rav Yehuda said</b> that <b>Rav said: The</b> <i>ḥalitza</i> <b>incident took place in prison, and</b> also <b>the case came</b> to Rabbi Akiva when he was <b>in prison.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

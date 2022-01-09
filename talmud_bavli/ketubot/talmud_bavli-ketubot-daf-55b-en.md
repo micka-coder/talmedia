@@ -1,0 +1,18 @@
+
+### Part 1
+<b>And</b> the <i>halakha</i> is also in accordance with his opinion <b>with regard to the <i>teruma</i> of the tithe from doubtfully tithed produce [<i>demai</i>].</b> Produce purchased from a common, uneducated person [<i>am ha’aretz</i>] is considered <i>demai</i> and by rabbinic law it is regarded as uncertain whether the seller separated tithes and <i>teruma</i> of the tithe from it. Rabbi Natan rules in accordance with Rabbi Shimon Shezuri’s opinion in a case where, after one bought <i>demai</i> and separated <i>teruma</i> of the tithe, this <i>teruma</i> becomes mingled with the produce from which it was separated. If all of the produce were treated as actual <i>teruma</i>, the only solution would be to sell all of the produce to a priest at low cost, as he is the only one who may use it. Rabbi Shimon Shezuri, however, rules that in the case of <i>demai</i>, the owner may ask the fruit seller if he properly separated the tithes. If the seller responds that he did, the owner may rely on that, despite the fact that the seller is an <i>am ha’aretz</i>, as the Sages do not apply their decree in a case where it would cause significant financial loss.
+
+### Part 2
+Having established that Rabbi Natan follows the principle of assessment, the Gemara asks: <b>And does Rav not follow</b> this principle of <b>assessing</b> intention? <b>But it was stated</b> that Rav and Shmuel disagreed about a specific case with regard to the <b>gift</b> of a person <b>on his deathbed, in which</b> it was also <b>written</b> that the gift was given with an act of <b>acquisition.</b> There is a rabbinic ordinance that one on his deathbed can effect the transfer of property without the ordinarily required act of acquisition, but in this case such an act was performed anyway. <b>In the school of Rav, they say in the name of Rav: He had him ride on two horses,</b> meaning that he gave him a gift with a document strengthened in two different ways. <b>And Shmuel said: I do not know what to decide about it.</b>
+
+### Part 3
+The Gemara explains the two opinions: <b>In the school of Rav, they say in the name of Rav: He had him ride on two horses,</b> meaning that he performed the transfer in a manner that took advantage of two separate <i>halakhot</i> to strengthen its validity. In one aspect, <b>it is similar to</b> the <b>gift of a healthy</b> person, <b>and</b> in a different way <b>it is similar to</b> the <b>gift</b> of a person <b>on his deathbed.</b> Both of these aspects act to strengthen the transfer.
+
+### Part 4
+On the one hand, <b>it is similar to</b> the <b>gift of a healthy</b> person in <b>that if he arose</b> from the bed and recovered <b>he cannot retract it,</b> since he performed a proper act of acquisition. On the other hand, <b>it is like</b> the <b>gift</b> of a person <b>on his deathbed</b> in <b>that if he said: My loan,</b> i.e., money owed to me, is transferred <b>to so-and-so</b> as a gift, <b>his loan</b> is in fact transferred <b>to so-and-so.</b> Although ordinarily ownership of a debt cannot be transferred without a formal transference of the promissory note, the verbal statement is sufficient to effect the transfer since this is a gift of a person on his deathbed.
+
+### Part 5
+<b>And Shmuel said: I do not know what to decide about it. Perhaps</b> his performance of an act of acquisition indicates that <b>he resolved to transfer it</b> to him <b>only with a bill</b> of sale. <b>And</b> since his intention is that the sale not take effect until he also gives a bill of sale, the transfer does not take effect, as a <b>bill</b> of sale is not effective <b>after the death</b> of the owner.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

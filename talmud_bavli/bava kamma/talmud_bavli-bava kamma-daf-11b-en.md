@@ -1,0 +1,45 @@
+
+### Part 1
+<b>that there is</b> a possibility that <b>part of the afterbirth</b> will emerge <b>without</b> part of <b>the fetus</b> inside, and the reason that the Sages forbid eating the afterbirth is due to a rabbinic <b>decree</b> prohibiting a case where <b>part of</b> an afterbirth emerges from the womb and part of it remains inside, <b>due to</b> the possibility that one may confuse it with a case where <b>all of</b> the afterbirth emerges. Therefore, Ulla <b>teaches us</b> that, in fact, part of the afterbirth does not emerge without part of the fetus inside.
+
+### Part 2
+The Gemara cites another <i>halakha</i> taught by Ulla, citing Rabbi Elazar: <b>And Ulla says</b> that <b>Rabbi Elazar says:</b> With regard to a male <b>firstborn</b> child <b>who was mauled</b> by an animal <b>within thirty days</b> of his birth and died, one is <b>not required to redeem him,</b> as the requirement to do so, by paying five <i>sela</i> to a priest, applies only once the child is thirty days old (see Numbers 18:15–16).
+
+### Part 3
+<b>And</b> similarly, <b>Rami bar Ḥama taught</b> a <i>baraita</i>: <b>Since it is stated:</b> “Yet <b>you shall redeem”</b> (Numbers 18:15), one <b>might</b> have thought that <b>even</b> if a male firstborn child was <b>mauled</b> by an animal <b>within thirty days</b> of his birth one should redeem him. Therefore, <b>the verse states “yet</b> you shall redeem”; the addition of the word “yet” serves to <b>differentiate</b> and limit the requirement to redeem the firstborn male.
+
+### Part 4
+The Gemara cites another <i>halakha</i> taught by Ulla, citing Rabbi Elazar: <b>And Ulla says</b> that <b>Rabbi Elazar says: A large animal,</b> such as a cow or a horse, <b>is acquired by</b> the buyer <b>pulling</b> the animal.
+
+### Part 5
+The Gemara asks: <b>But didn’t we learn</b> in a mishna (<i>Kiddushin</i> 25b): A large animal is acquired <b>by passing</b> the reins of the animal to the buyer? The Gemara explains: Rabbi Elazar <b>states</b> his opinion <b>in accordance with</b> the opinion of <b>that <i>tanna</i>,</b> i.e., the Rabbis, <b>as it is taught</b> in a <i>baraita</i>: <b>And the Rabbis say: This and that,</b> i.e., both large and small animals, are acquired <b>through</b> the buyer <b>pulling</b> the animal. <b>Rabbi Shimon says: This and that</b> are acquired <b>through</b> the buyer <b>lifting</b> the animal.
+
+### Part 6
+The Gemara cites another <i>halakha</i> taught by Ulla, citing Rabbi Elazar: <b>And Ulla says</b> that <b>Rabbi Elazar says:</b> With regard to <b>brothers who divide</b> the estate they inherited, the court <b>appraises whatever</b> clothes are <b>upon them</b> if those clothes came from, or if they were purchased with money from, the deceased’s estate, and that sum is considered part of the portion they receive. But the court does <b>not appraise whatever is upon their sons and daughters.</b> In order to save the children from the humiliation of having to appear in court, the brothers waive their rights to the clothes the children are wearing.
+
+### Part 7
+<b>Rav Pappa said: Sometimes, it does not even appraise what-ever is upon</b> the brothers. <b>You find such</b> a case <b>with</b> the <b>eldest brother</b> where the other brothers waive their rights to the value of his clothes, <b>as it is beneficial for them</b> to have the eldest brother appear well dressed in order <b>that</b> when he represents their interests in dealings with others, <b>his words will be listened to</b> and respected.
+
+### Part 8
+The Gemara cites another <i>halakha</i> taught by Ulla, citing Rabbi Elazar: <b>And Ulla says</b> that <b>Rabbi Elazar says:</b> In the case of <b>a bailee who conveyed</b> a deposit that was entrusted to him <b>to</b> another <b>bailee,</b> the first bailee is <b>exempt</b> for any occurrence for which he would have been exempt had he kept the deposit with him. The Gemara adds: <b>And it is not necessary</b> to state this in the case of <b>an unpaid bailee who conveyed</b> a deposit <b>to a paid bailee, thereby increasing</b> the level of <b>its safeguarding,</b> since the paid bailee has a greater level of accountability than an unpaid bailee. <b>Rather,</b> this is the <i>halakha</i> <b>even</b> in a case of <b>a paid bailee who conveyed</b> a deposit <b>to an unpaid bailee, thereby decreasing</b> the level of <b>its safeguarding.</b> In this case, the first bailee is <b>exempt</b> for any occurrence for which he would have been exempt had he kept the deposit with him, <b>because he conveyed</b> it <b>to a mentally competent person</b> and thereby fulfilled his responsibility to ensure the deposit is safeguarded.
+
+### Part 9
+<b>Rava said:</b> With regard to <b>a bailee who conveyed</b> a deposit <b>to</b> another <b>bailee,</b> the first bailee becomes <b>liable</b> to pay for any loss to the item, even for mishaps for which he would not have been liable had he kept the deposit with him. The Gemara adds: <b>And it is not necessary</b> to state this in a case of <b>a paid bailee who conveyed</b> a deposit <b>to an unpaid bailee, thereby decreasing</b> the level of <b>its safeguarding. Rather,</b> this is the <i>halakha</i> <b>even</b> in the case of <b>an unpaid bailee who conveyed</b> a deposit <b>to a paid bailee,</b> thereby increasing the level of its safeguarding; he is <b>liable.</b>
+
+### Part 10
+The reason he is liable is <b>that</b> the owner of the deposit <b>can say to him: You are credible to me with regard to</b> taking <b>an oath,</b> but <b>this</b> other bailee, to whom you conveyed my item, <b>is not credible to me with regard to</b> taking <b>an oath.</b> If an occurrence for which a bailee does not carry liability occurs, damaging the deposit, in order to release himself from an obligation to pay the bailee must take an oath to the item’s owner that none of the types of occurrences for which he bears liability occurred. Rava rules that the owner is required to accept an oath only from the bailee with whom he entrusted his item, but not from anyone else. Accordingly, since the first bailee was not present when the event occurred, he is unable to attest to what happened, and even if the second bailee takes an oath to that effect, the owner is not expected to accept his oath. Consequently, the first bailee bears full liability for any loss.
+
+### Part 11
+The Gemara cites another <i>halakha</i> taught by Ulla, citing Rabbi Elazar: <b>And Ulla says</b> that <b>Rabbi Elazar says: The <i>halakha</i></b> is that <b>one can collect from</b> the debtor <b>the slaves</b> that he owns as payment for a debt.
+
+### Part 12
+<b>Rav Naḥman said to Ulla:</b> Did <b>Rabbi Elazar say</b> that this <i>halakha</i> applies <b>even</b> when collecting <b>from</b> a debtor’s <b>orphans?</b> A creditor can collect the debt from orphans only by taking the land the debtor bequeathed to his children. Rav Naḥman asked whether this also extends to collecting any slaves the children inherited. Ulla replied: <b>No,</b> a creditor collects a debt by taking slaves only when he collects directly <b>from</b> the debtor himself. Rav Naḥman challenges this: But when the creditor collects <b>from him,</b> he can collect the debt <b>even from the cloak that is upon his shoulders,</b> and therefore he can certainly also collect the debt by taking his slaves, so what is the novelty of this ruling?
+
+### Part 13
+Ulla explains: <b>With what are we dealing here?</b> We are dealing with a case in <b>which</b> the debtor <b>set aside</b> his slave <b>as designated repayment [<i>appoteiki</i>].</b> Consequently, if the slave was subsequently sold to a third party and the debtor was later unable to repay the debt, the creditor can seize the slave from the third party as payment of the debt. Even though generally only land can be seized from a buyer as payment for the seller’s debt, a slave is considered to have similar status to land in this regard. This is <b>in accordance with</b> the opinion <b>of Rava, as Rava says:</b> If a master <b>set aside his slave</b> as <b>designated repayment</b> of a debt <b>and</b> then <b>sold him,</b> the master’s <b>creditor collects</b> the debt <b>by</b> taking the slave; but if one set aside <b>his ox</b> as <b>designated repayment and</b> then <b>sold it,</b> the <b>creditor does not collect</b> the debt <b>by</b> taking the ox.
+
+### Part 14
+The Gemara asks: <b>What is the reason</b> for this difference? The Gemara explains: The designation of <b>this</b> slave generates <b>publicity,</b> since a slave is significant and identifiable, therefore any prospective buyer is assumed to have been aware of the status of the slave and accepted the consequences of purchasing him. <b>But</b> the designation of <b>this</b> ox <b>does not</b> generate <b>publicity,</b> since one ox is not easily distinguishable from another, and a buyer cannot be assumed to be aware that the ox was set aside as designated repayment. Therefore it is unfair that one who purchases such an ox should have it seized from him. Therefore, the Sages enacted that a creditor cannot do so.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

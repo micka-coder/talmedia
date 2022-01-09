@@ -1,0 +1,45 @@
+
+### Partie 1
+La distance <b>des cieux a la terre est-elle plus grande, ou</b> la distance <b>de l'est a l'ouest</b> est-elle plus grande ? <b>Ils lui dirent : De l'est a l'ouest</b> est une distance plus grande. <b>Sachez</b> qu'il en est ainsi, <b>comme</b> lorsque le <b>soleil est a l'est, tout le monde le regarde</b> sans se faire mal aux yeux, et lorsque le <b>soleil est a l'ouest, tout le monde le regarde</b> sans se faire mal aux yeux. En revanche, lorsque le <b>soleil est dans</b> le <b>milieu</b> de la <b>soleil, personne ne le regarde,</b> car cela leur ferait mal aux yeux. Cela montre que la place du soleil au milieu du ciel n'est pas aussi eloignee de la terre que ses positions eloignees a l'extreme est et ouest.
+
+### Partie 2
+<b>Mais les Sages disent : Cette</b> distance <b>et cette</b> distance <b>sont egales, comme il est dit : <b>Car autant le ciel est eleve au-dessus de la terre,</b> autant Sa bonte est grande envers ceux qui le craignent. <Autant l'est est eloigne de l'ouest, autant Il a eloigne de nous nos transgressions" (Psaumes 103:11""12). Ces versets comparent l'etendue de la bonte de Dieu et son eloignement des transgressions a de vastes etendues. <b>Et si l'une des</b> distances <b>est plus grande</b> que l'autre, <b>laissons</b> le verset <b>ecrire</b> que <b>les deux</b> attributs enumeres de Dieu sont <b>comme</b> la mesure <b>qui est plus grande. Mais</b> si tel est le cas, en ce qui concerne le <b>soleil dans</b> le <b>milieu</b> du <b>soleil, quelle est la raison</b> pour laquelle <b>personne ne le regarde ?</b> C'est <b>parce qu'il se tient expose et que rien ne le recouvre,</b> alors qu'il est partiellement masque quand il est a l'est ou a l'ouest.
+
+### Partie 3
+Alexandre continua a poser des questions aux anciens du Neguev. <b>Il leur dit :</b> Les <b>cieux ont-ils ete crees en premier ou</b> la <b>terre</b> a-t-elle ete creee en premier ? <b>Ils ont repondu :</b> Les <b>cieux ont ete crees en premier, comme il est dit : "Au commencement, Dieu crea le ciel et la terre"</b> (Genese 1:1).
+
+### Partie 4
+<b>Il leur dit :</b> La <b>lumiere a-t-elle ete creee la premiere, ou</b> l'<b>obscurite</b> a-t-elle ete creee la premiere ? <b>Ils lui repondirent : Cette question n'a pas de solution,</b> car les versets n'indiquent pas de reponse. La Guemara demande : <b>Mais qu'ils lui disent</b> que les <b>obscurites ont ete creees en premier, comme il est ecrit : "La terre etait informe et vide, et les tenebres</b> etaient sur la face de l'abime" (Genese 1:2), <b>et</b> seulement <b>ensuite</b> il est dit : <b>Et Dieu dit : Que la lumiere soit. Et il y eut de la lumiere"</b> (Genese 1:3). Pourquoi n'a-t-on pas dit que les tenebres avaient ete creees en premier ?
+
+### Partie 5
+La Guemara repond que les Sages <b>soutenaient :</b> Nous ne devons pas repondre a cette question, <b>de peur</b> qu'il ne <b>vienne a poser</b> des questions sur la Creation qui ne peuvent etre discutees, c'est-a-dire , <b>ce qui</b> est <b>au-dessus</b> du firmament <b>et ce qui est en dessous</b> de la terre, <b>ce qui etait avant</b> la Creation, <b>et ce qui</b> sera <b>apres</b> la fin du monde (voir <i>Hagiga</i> 11b).
+
+### Partie 6
+La Gemara demande : <b>Si c'est le cas,</b> si les Sages etaient preoccupes par ces questions proscrites, alors en ce qui concerne la creation du <b>ciel aussi, ils n'auraient pas du</b> <b>dire</b> quoi que ce soit <b>a lui.</b> Pourquoi ont-ils repondu a la question sur le ciel, mais pas a celle sur les tenebres ? La Guemara repond que <b>initialement</b> ils ont <b>suppose :</b> C'est <b>par pure coincidence</b> qu'il <b>demande</b> la creation de l'univers, et donc il n'y a pas lieu de faire attention. Mais <b>quand ils ont vu qu'il demandait a nouveau</b> sur la meme question generale, <b>ils ont soutenu : Ne lui disons pas</b> une reponse, <b>de peur</b> qu'il ne vienne a demander : Qu'est-ce</b> qui est <b>au-dessus</b> du firmament et <b>qu'est-ce qui est au-dessous</b> de la terre, <b>qu'est-ce qui etait avant</b> la creation, <b>et qu'est-ce qui</b> sera <b>apres</b> la fin du monde ?
+
+### Partie 7
+Alexandre <b>dit aux</b> anciens : <b>Qui est</b> vraiment digne d'etre <b>appele sage ? Ils lui dirent,</b> citant une tradition (voir <i>Avot</i> 2:9) : <b>Qui est</b> la personne <b>sage</b> ? <b>Celui qui voit</b> et anticipe <b>les consequences</b> de son comportement. <b>Il leur dit : Qui est</b> vraiment digne d'etre <b>appele puissant ? Ils lui dirent,</b> citant a nouveau une tradition (voir <i>Avot</i> 4:1) : <b>Qui est</b> la personne <b>puissante</b> ? <b>Celui qui maitrise son desir. Il leur dit : Qui est</b> digne d'etre <b>appele riche</b> ? Ils lui dirent : Qui est</b> la personne <b>riche</b> ? <b>Celui qui est satisfait de sa</b> propre <b>portion</b> (voir <i>Avot</i> 4:1).
+
+### Partie 8
+<b>Il leur dit : Que doit faire un homme et</b> s'assurer ainsi qu'il <b>vivra ? Ils lui repondirent :</b> Un tel homme <b>doit</b> figurativement <b>se tuer,</b> en vivant moderement. Alexandre demanda encore : <b>Qu'est-ce qu'un homme doit faire et</b> s'assurer de <b>mourir ? Ils lui dirent :</b> Un tel homme <b>doit se maintenir en vie,</b> c'est-a-dire mener une vie extravagante et indulgente. <b>Il leur dit : Que doit faire un homme et</b> s'assurer qu'il <b>serait accepte par les gens ? Ils ont dit</b> a Alexandre : <b>Il doit detester le roi et les autorites</b> et eviter de devenir trop proche des personnes au pouvoir. Alexandre rejeta leur reponse et <b>leur dit : Mon</b> conseil pour gagner la faveur des gens <b>est meilleur que le votre.</b> Celui qui veut etre accepte <b>doit aimer le roi et les autorites, mais il doit</b> utiliser ses relations pour <b>realiser des actes benefiques</b> pour les gens.</b>
+
+### Partie 9
+<b>Il leur dit :</b> Est-il <b>meilleur</b> pour une personne <b>de vivre en mer, ou</b> est-il <b>meilleur de vivre sur la terre ferme ? Ils lui repondirent :</b> Il est <b>meilleur de vivre sur la terre ferme, car tous les marins, leur esprit est</b> constamment <b>derange jusqu'a ce qu'ils atteignent la terre ferme.</b>
+
+### Partie 10
+<b>Il leur dit : Qui parmi vous est plus sage</b> que les autres ? <b>Ils lui repondirent : Nous sommes tous egaux</b> en sagesse, <b>car chaque affaire que tu nous dis, nous la resolvons pour toi a l'unanimite. Il leur dit : Quelle est</b> la substance de <b>cette prise de position, par laquelle <b>vous,</b> le peuple juif, <b>me propose ? </b> Puisque vous etes mes sujets, et que mon peuple constitue la majorite, vous devriez conceder que notre mode de vie est superieur. <b>Ils lui ont repondu :</b> Votre domination est sans consequence, car parfois meme <b>le Satan est victorieux,</b> en convainquant les gens d'agir d'une maniere qui est clairement incorrecte.
+
+### Partie 11
+<b>Il leur dit : En consequence,</b> a cause de votre insolence, <b>je vous execute par l'edit des rois. Ils lui dirent :</b> Certes, l'<b>autorite est dans la main du roi</b> d'executer ce que tu veux ; <b>mais le mensonge est indigne du roi,</b> et vous vous etes engages a ne pas nous nuire. <b>Immediatement,</b> Alexandre <b>les habilla de vetements de pourpre et placa des chaines d'or [<i>menaykha</i>] sur leurs cous.</b>
+
+### Partie 12
+Lorsqu'Alexandre s'appretait a se separer des anciens du Neguev, <b>il leur dit : Je veux aller</b> faire la guerre contre <b>le pays d'Afrique [<i>Afriki</i>];</b> que me conseillez-vous ? <b>Ils lui ont repondu : Vous ne pourrez pas vous rendre</b> la-bas, <b>car les montagnes des tenebres bloquent</b> les cols. <b>Il leur repondit :</b> Il n'est <b>pas possible que je n'y aille pas;</b> et c'est <b>en raison</b> de <b>cette</b> raison que <b>je vous demande</b> de me conseiller. <b>Plutot</b> que de m'abstenir de ma campagne, <b>que</b> pourrais-je <b>faire</b> pour traverser les Montagnes des Tenebres ?
+
+### Partie 13
+<b>Ils lui dirent : Amene des anes libyens qui marchent</b> meme <b>dans les tenebres [<i>behavra</i>],</b> et ces animaux te guideront dans ces cols. <b>Et apportez des bobines de corde, et attachez</b> une extremite de corde <b>sur ce</b> proche <b>cote</b> des montagnes, alors que vous etes sur le point d'y entrer, <b>afin que lorsque vous viendrez</b> pour revenir <b>par</b> le meme chemin, <b>vous puissiez saisir</b> les cordes laissees par votre marche initiale, <b>et,</b> en les suivant, <b>vous reviendrez a votre place.</b>
+
+### Partie 14
+Alexandre <b>fit cela et partit</b> en campagne. <b>Il arriva dans une certaine ville dont toute</b> la population etait constituee de <b>femmes,</b> et <b>il voulut livrer bataille contre elles.</b> Les femmes <b>lui dirent :</b> Il n'est pas dans ton interet de nous combattre. <b>Si tu nous tues,</b> les gens <b>pourront dire :</b> Alexandre <b>tue les femmes;</b> et <b>si nous te tuons,</b> les gens <b>pourront dire :</b> Alexandre est le <b>roi que les femmes ont tue</b> dans la bataille. Au lieu de les combattre, Alexandre <b>leur a dit : Apportez-moi du pain. Elles lui apporterent du pain d'or, sur une table d'or.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

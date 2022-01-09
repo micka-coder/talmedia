@@ -1,0 +1,60 @@
+
+### Partie 1
+Dans le meme ordre d'idees, la Guemara relate que l'<b>empereur romain dit a Rabbi Yehoshua, fils de Rabbi Hananya : Vous</b> Juifs <b>dites que vous etes extremement sages.</b> S'il en est ainsi, <b>dites-moi ce que je verrai en reve.</b> Rabbi Yehoshua <b>lui repondit : Tu verras les Perses te capturer, te reduire en esclavage et te forcer a rassembler des animaux impurs avec un baton d'or. Il a pense toute la journee</b> aux images que lui decrivait Rabbi Yehoshua <b>et cette nuit-la, il l'a vu</b> dans son reve. <b>Le roi Shapur</b> de Perse <b>dit a Shmuel : Vous</b> Juifs <b>dites que vous etes extremement sages.</b> S'il en est ainsi, <b>dis-moi ce que je verrai en reve. Shmuel lui dit : Tu verras les Romains venir te prendre en captivite</b> et te forcer a <b>moudre des noyaux de dattes dans des moulins d'or. Il pensa toute la journee</b> aux images que lui decrivait Shmuel, <b>et cette nuit-la, il le vit</b> dans son reve.
+
+### Partie 2
+La Gemara relate : <b>Bar Haddaya etait un interprete de reves.</b> Pour <b>celui qui lui donnait des honoraires, il interpretait</b> le reve <b>favorablement, et</b> pour <b>celui qui ne lui donnait pas d'honoraires, il interpretait</b> le reve <b>defavorablement.</b> La Gemara relate : Il y eut un incident au cours duquel <b>Abaye et Rava virent tous deux un <b>reve</b> identique et ils demanderent a bar Haddaya de l'interpreter. <b>Abaye lui a donne de l'argent</b> et a paye ses honoraires, <b>alors que Rava ne lui a pas donne</b> d'argent. <b>Ils lui ont dit :</b> Le verset : <b>Votre bœuf sera egorge sous vos yeux</b> et vous n'en mangerez pas.</b> (Deuteronome 28:31) <b>On nous l'a lu dans notre reve. Il</b> a interprete leur reve et <b>a Rava il a dit : Vos affaires seront perdues et vous ne tirerez aucun plaisir a manger a cause de l'extreme <b>maladie de votre cœur</b>. A Abaye il a dit : Ton affaire sera profitable et tu ne pourras pas manger a cause de la joie de ton coeur.</b>
+
+### Partie 3
+<b>Ils lui dirent :</b> Le verset, <b>Vous engendrerez des fils et des filles, mais ils ne seront pas a vous, car ils iront en captivite</b> (Deuteronome 28:41), <b>nous a ete lu</b> dans notre reve. Il a interprete leurs reves, et <b>a Rava il a dit son</b> sens litteral, <b>adversaire</b>. <b>Abaye, il a dit : Vos fils et vos filles seront nombreux, et vos filles seront mariees a des etrangers et il vous semblera qu'elles ont ete emmenees en captivite.</b>
+
+### Partie 4
+Ils lui ont dit : <b>Le verset : "Vos fils et vos filles seront donnes a un autre peuple"</b> (Deuteronome 28:32), <b>nous a ete lu</b> dans notre reve. <b>Abaye, il a dit : Tes fils et tes filles seront nombreux. Tu dis,</b> qu'ils doivent epouser <b>tous tes parents et</b> ta femme <b>dit</b> qu'ils doivent epouser <b>ses parents et elle t'imposera</b> sa volonte <b>et ils seront donnes</b> en mariage <b>a ses parents, ce qui est comme une autre nation</b> en ce qui te concerne. <b>Au Rava, il dit : Ta femme mourra et tes fils et tes filles tomberont entre les mains d'une autre femme. Comme Rava a dit</b> que <b>Rabbi Yirmeya bar Abba a dit</b> que <b>Rav a dit : Quel est</b> le sens de <b>ce qui est ecrit</b> dans le verset : <b>Vos fils et vos filles seront donnes a un autre peuple</b>. Cela</b> fait reference a <b>la femme du pere,</b> la belle-mere.
+
+### Partie 5
+Ils lui dirent : Le verset : <b>Va ton chemin, mange ton pain avec joie,</b> et bois ton vin d'un cœur joyeux" (Ecclesiaste 9:7) <b>nous a ete lu dans notre reve. A Abaye, il dit : Tes affaires seront profitables et tu mangeras et boiras et liras le verset de la joie de ton cœur. A Rava, il a dit : Tes affaires seront perdues, tu abattras mais ne mangeras pas, tu boiras</b> du vin et <b>lire</b> des passages de la Bible afin <b>d'apaiser tes craintes.</b>
+
+### Partie 6
+Ils lui dirent : Le verset : <b>Vous porterez beaucoup de graines dans les champs,</b> et vous en recueillerez peu, car la sauterelle les consumera.</b> (Deuteronome 28:38), <b>nous a ete lu</b> dans notre reve. <b>A Abaye, il a dit des le debut</b> du verset, qu'il beneficiera d'une recolte abondante. <b>A Rava, il a dit des la fin</b> du verset, que sa recolte sera detruite.
+
+### Partie 7
+Ils lui ont dit : Le verset : <b>Vous aurez des oliviers dans tout votre territoire,</b> mais vous ne vous oindrez pas d'huile, car vos olives tomberont.</b> (Deuteronome 28:40), <b>nous a ete lu</b> dans notre reve. Et encore, <b>a Abaye il a dit des le debut</b> du verset. <A Rava, il a dit a partir de la fin du verset.
+
+### Partie 8
+Ils lui ont dit : Le verset : <b>"Tous les peuples de la terre verront</b> que le nom de l'Eternel est invoque sur toi, et ils auront peur de toi" (Deuteronome 28:10), <b>nous a ete lu</b> dans notre reve. <b>A Abaye, il a dit : Ton nom deviendra celebre en tant que chef de la yeshiva, et tu seras craint de tous. A Rava, il a dit : Le tresor du roi a ete cambriole</b> <b>et tu seras apprehende comme un voleur, et tout le monde tirera de toi une <i>deduction a fortiori</i> : </b> Si Rava qui est riche et de lignee distinguee peut etre arrete pour vol, qu'adviendra-t-il du reste d'entre nous ? En effet, <b>le lendemain, le tresor du roi a ete cambriole, et on est venu apprehender Rava.</b>
+
+### Partie 9
+Abaye et Rava <b>s'adresserent a lui : Nous avons vu de la laitue sur la bouche des tonneaux. A Abaye, il dit : Tes affaires vont doubler comme la laitue</b> dont les feuilles sont larges et ridees. <b>A Rava il a dit : Ton travail sera amer comme</b> une <b>tige de laitue</b>.
+
+### Partie 10
+<b>Ils lui ont dit : Nous avons vu de la viande sur la bouche des tonneaux. A Abaye, il dit : Ton vin sera doux et tout le monde viendra t'acheter de la viande et du vin. A Rava, il dit : Ton vin se gatera, et tout le monde ira acheter de la viande pour manger avec,</b> pour tremper la viande dans ton vinaigre.
+
+### Partie 11
+<b>Ils lui dirent : Nous avons vu un tonneau suspendu a un palmier. A Abaye, il dit : Ton entreprise s'elevera comme un palmier. A Rava, il a dit : Ton travail sera doux comme les dattes</b> qui sont tres bon marche en Babylonie, indiquant que tu seras oblige de vendre ta marchandise a bas prix.
+
+### Partie 12
+<b>Ils lui dirent : Nous avons vu une grenade prendre racine sur la bouche des tonneaux. A Abaye, il dit : Votre entreprise augmentera en valeur comme une grenade. A Rava il a dit : Ton travail va s'aigrir comme une grenade.</b>
+
+### Partie 13
+<b>Ils lui ont dit : Nous avons vu un tonneau tomber dans une fosse. A Abaye, il dit : Ta marchandise sera en demande comme</b> l'adage <b>dit : Le pain tombe dans une fosse et n'est pas trouve.</b> En d'autres termes, tout le monde cherchera vos marchandises et ils ne les trouveront pas en raison d'une demande accrue. <b>A Rava, il dit : Ta marchandise sera ruinee et tu la jetteras</b> <b>dans une fosse.</b>
+
+### Partie 14
+<b>Ils lui dirent : Nous avons vu un ane-foal se tenir pres de nos tetes et braire. A Abaye, il dit : Tu seras un roi,</b> c'est-a-dire, <b>chef de la yeshiva, et un interprete se tiendra pres de toi</b> pour repeter a haute voix tes enseignements aux masses. <b>A Rava, il dit :</b> Je vois les mots <b><i>peter hamor</i>, ane premier-ne, effaces de vos phylacteres.</b> Rava lui <b>dit : Je l'ai vu moi-meme et il est la.</b> Bar Haddaya <b>lui a dit :</b> La lettre <b><i>vav</i> de</b> le mot <b><i>peter hamor</i> est certainement effacee de vos phylacteres.</b>
+
+### Partie 15
+<b>Enfin, Rava s'est rendu</b> bar Haddaya <b>seul.</b> Rava <b>lui a dit : J'ai vu la porte exterieure de ma maison tomber.</b> Bar Haddaya <b>lui a dit : Ta femme va mourir,</b> car c'est elle qui protege la maison. Rava <b>lui dit : J'ai vu mes dents de devant et de derriere tomber. Il lui dit : Tes fils et tes filles vont mourir.</b> Rava <b>lui dit : J'ai vu deux colombes qui volaient. Il lui dit : Tu divorceras de deux femmes.</b> Rava <b>lui a dit : J'ai vu deux tetes de navet [<i>gargelidei</i>]. Il lui dit : Tu recevras deux coups de massue</b> en forme de navet. <b>Ce meme jour, Rava alla s'asseoir dans la salle d'etude toute la journee. Il decouvrit ces deux aveugles qui se battaient l'un contre l'autre. Rava est alle les separer et ils ont assene deux</b> coups a Rava. Quand <b>ils leverent</b> leurs batons <b>pour lui porter un coup supplementaire, il dit :</b> C'est <b>suffisant pour moi, je</b> n'en ai <b>vu que deux.</b>
+
+### Partie 16
+<b>Enfin, Rava est venu et lui a donne,</b> bar Haddaya, <b>un cachet. Et</b> alors Rava, <b>lui dit : J'ai vu mon mur tomber.</b> Bar Haddaya <b>lui dit : Tu vas acquerir des biens sans limites.</b> Rava <b>lui dit : J'ai vu la maison d'Abaye [<i>appadna</i>] tomber et sa poussiere m'a recouvert.</b> Bar Haddaya <b>lui a dit : Abaye va mourir et sa yeshiva viendra a toi.</b> Rava <b>lui a dit : J'ai vu ma maison s'ecrouler, et tout le monde est venu prendre les briques. Il lui dit : Tes enseignements seront diffuses dans le monde entier.</b> Rava <b>lui a dit : J'ai vu que ma tete s'est fendue et que mon cerveau est tombe. Il lui a dit : Une plume tombera de l'oreiller</b> pres de ta tete. Rava <b>lui dit : Le <i>hallel</i> egyptien,</b> le <i>hallel</i> qui celebre l'Exode, <b>m'a ete lu en reve. Il lui a dit : Des miracles seront accomplis pour toi.</b>
+
+### Partie 17
+Bar Haddaya <b>allait avec</b> Rava <b>sur un bateau;</b> bar Haddaya <b>dit : Pourquoi est-ce que je</b> vais <b>avec une personne pour laquelle des miracles seront accomplis,</b> de peur que le miracle soit que le navire coule et que lui seul soit sauve. <b>Alors que</b> bar Haddaya <b>s'elevait</b> sur le navire <b>un livre lui est tombe dessus. Rava le trouva</b> <b>et vit : Tous les reves suivent la bouche, qui y est ecrit. Il dit</b> a Bar Haddaya : <b>Celerat. Elle dependait</b> <b>de toi, et tu m'as cause tant de souffrances. Je te pardonne tout, sauf pour la fille</b> de <b>Rav Hisda,</b> l'epouse de Rava, dont bar Haddaya avait predit la mort. <b>Que ce soit</b> Votre <b>volonte que cet homme soit livre aux mains d'un royaume qui n'a aucune compassion pour lui.</b>
+
+### Partie 18
+Bar Haddaya <b>se dit</b> a lui-meme : <b>Que vais-je faire ? Nous avons appris</b> par la tradition <b>que la malediction d'un Sage,</b> meme si elle est <b>infondable, se realise</b> ? <b>Et d'autant plus</b> dans le cas de <b>Rava, qu'il m'a maudit</b> <b>justifiablement. Il s'est dit</b> a lui-meme : <b>Je vais me lever et partir en exil,</b> comme l'a dit <b>le Maitre : L'exil expie la transgression.</b>
+
+### Partie 19
+<b>Il se leva et s'exila au siege du gouvernement romain</b>. <b>Il alla s'asseoir pres de l'entree,</b> ou se tenait le <b>gardien de l'armoire du roi</b>. <b>Le gardien de l'armoire a fait un reve.</b> Il <b>dit a</b> bar Haddaya : <b>J'ai vu en reve qu'une aiguille me transpercait le doigt.</b> Bar Haddaya <b>lui dit : Donne-moi un <i>zuz</i>. Il ne lui a pas donne</b> la piece <b>donc</b> bar Haddaya <b>ne lui a rien dit.</b> A nouveau, le garde <b>lui a dit : J'ai vu un ver qui est tombe</b> entre <b>mes deux doigts,</b> les manger. Bar Haddaya <b>lui dit : Donne-moi un <i>zuz</i>. Il ne lui a pas donne</b> la piece, <b>donc</b> bar Haddaya <b>ne lui a rien dit.</b> A nouveau, le garde <b>lui a dit : J'ai vu qu'un ver est tombe</b> sur <b>ma main entiere,</b> la devorer. Bar Haddaya <b>lui dit : Un ver est tombe</b> sur et a mange <b>tous les vetements de soie</b>. <b>Ils en ont entendu parler</b> dans le palais du roi et ils ont amene le gardien de l'armoire et etaient</b> en train de l'<b>executer. Il leur dit : Pourquoi moi ? Amenez celui qui savait et qui n'a pas dit</b> l'information qu'il savait. <b>Ils amenerent</b> bar Haddaya <b>et lui dirent : A cause de ton <i>zuz</i>, la ruine</b> est arrivee sur...
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+La Gemara raconte : Il y avait <b>un certain document qui portait les signatures de deux</b> individus <b>sur celui-ci. L'un</b> des temoins signataires <b>deceda,</b> et lorsque le tribunal chercha a ratifier le document, ce qui exige soit que les temoins attestent personnellement de la validite de leurs signatures, soit que deux autres temoins attestent de la validite des signatures, <b>le frere du</b> temoin <b>qui restait</b> vivant <b>et un autre</b> individu</b> vinrent temoigner de la signature de l'autre</b> temoin decede, tandis que le temoin vivant attestait de sa propre signature.
+
+### Partie 2
+<b>Ravina a pense dire</b> que ce cas <b>est</b> le meme que la <i>halakha</i> dans <b>la mishna,</b> qui stipule que si le temoignage a ete donne par <b>trois freres,</b> chacun d'entre eux temoignant au sujet d'une annee, <b>et qu'un autre,</b> individu non apparente <b>se joint a</b> chacun des freres en tant que second temoin, ceux-ci sont consideres comme trois temoignages distincts. De meme, dans ce cas, un frere atteste de sa propre signature, tandis que l'autre frere atteste de la signature du temoin decede.
+
+### Partie 3
+<b>Rav Ashi lui a dit : Est-ce que</b> ces cas sont <b>comparables ? La, le bien moins un quart,</b> c'est-a-dire les trois quarts du bien en question, <b>n'est pas retire</b> de la possession du proprietaire anterieur sur la base de <b>la bouche,</b> c'est-a-dire le temoignage, <b>des freres.</b> Chaque frere ne fournit que la moitie du temoignage pour chaque annee au sujet de laquelle il temoigne. <b>Ici, le bien moins un quart est retire</b> de la possession du debiteur detaille dans le document base <b>sur la bouche des freres.</b> Un frere atteste de sa propre signature, ce qui constitue la moitie du temoignage, tandis que l'autre signature est authentifiee par le temoignage de l'autre frere et d'un autre individu. Il s'ensuit que les trois quarts du temoignage sont donnes par des freres, et qu'il est donc invalide.
+
+### Partie 4
+<strong>MISHNA :</strong> <b>Voici</b> des utilisations de biens <b>qui ont</b> les moyens d'etablir la <b>presomption</b> de propriete, <b>et voici</b> des utilisations de biens <b>qui n'ont pas</b> les moyens d'etablir la <b>presomption</b> de propriete : Si l'on <b>ferme un animal dans une cour;</b> ou si l'on y place <b>un four, une meule ou un poele</b> ; <b>ou</b> si l'on <b>eleve des poulets</b> dans une cour, <b>ou place son engrais dans une cour,</b> ces actions <b>ne sont pas</b> suffisantes pour etablir la <b>presomption</b> de propriete. <b>Mais</b> si quelqu'un <b>construit une cloison de dix handbreadths de haut pour</b> contenir <b>son animal, et de meme</b> s'il construit une cloison <b>pour</b> son <b>four, et de meme</b> s'il construit une cloison <b>pour</b> son <b>poele, et de meme</b> s'il construit une cloison <b>pour</b> sa <b>moulure ; </b> ou si l'on <b>amene des poulets dans la maison, ou</b> si l'on <b>fabrique un endroit</b> dans le sol <b>pour son engrais</b> qui soit <b>trois</b> handbreadths <b>de profondeur ou trois</b> handbreadths <b>high,</b> ces actions <b>sont</b> suffisantes pour etablir la <b>presomption</b> de propriete.
+
+### Partie 5
+<strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est different</b> dans <b>la premiere clause,</b> ou le fait qu'un animal se tienne dans une cour est insuffisant pour etablir la presomption de propriete, <b>et qu'est-ce qui est different</b> dans <b>la derniere clause,</b> ou la construction d'une cloison est suffisante pour etablir la presomption de propriete ?
+
+### Partie 6
+<b>Ulla dit : </b> En ce qui concerne <b>tout</b> acte <b>qui, si</b> un <b>s'executait <b>sur</b> un bien sans proprietaire tel que le <b>bien d'un converti</b> qui meurt sans heritiers, il <b>acquiert</b> ce bien, ce meme acte lui suffit pour <b>acquerir le bien d'autrui</b> s'il l'execute pendant trois ans, a condition qu'il soit accompagne de l'affirmation que le bien a ete achete. A l'inverse, <b>tout</b> acte <b>que si</b> un <b>s'executait <b>sur</b> la <b>propriete d'un converti</b> decede sans heritiers il n'aurait <b>pas acquis</b> cette propriete, ce meme acte lui suffit pour <b>acquerir la propriete d'un autre. </b> La prise de possession d'un bien sans proprietaire exige qu'un acte soit accompli a l'egard du bien lui-meme, comme la construction d'une cloison, mais le simple fait qu'un animal se tienne la n'est pas suffisant. Par consequent, cela ne permet pas d'etablir la presomption de propriete.
+
+### Partie 7
+<b>Rav Sheshet s'oppose a cette</b> explication : <b>Et est-ce</b> un <b>principe etabli ? Mais il y a le labourage, qui,</b> s'il est effectue <b>sur</b> la <b>propriete d'un converti</b> qui est mort sans heritiers on l'<b>acquiert</b>, mais s'il est effectue <b>sur</b> la <b>propriete d'un autre</b> on ne l'<b>acquiert</b> pas. <b>Et</b> en outre, <b>il y a consommation de produits</b> pour une duree de trois ans, <b>qui,</b> si elle est effectuee <b>sur</b> la <b>propriete d'un autre</b> on <b>l'acquiert</b> en etablissant la presomption de propriete, mais si elle est effectuee <b>sur</b> la <b>propriete d'un converti</b> mort sans heritiers on <b>ne l'acquiert pas</b>. Ces cas contredisent l'affirmation de Ulla selon laquelle les modes d'acquisition sont analogues.
+
+### Partie 8
+<b>Au contraire, Rav Nahman dit</b> que <b>Rabba bar Avuh a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

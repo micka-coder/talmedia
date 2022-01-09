@@ -1,0 +1,21 @@
+
+### Part 1
+<b>a mentally ill person [<i>shiamum</i>],</b> whom the court warns on behalf of the husband. The Gemara asks: <b>And</b> according to <b>Rabbi Yoshiya, what does he do with this</b> term <b>“while under her husband”?</b> The Gemara answers: Rabbi Yoshiya <b>requires it</b> in order <b>to compare a man to a woman and a woman to a man,</b> as explained later (27a).
+
+### Part 2
+The Gemara asks: <b>But</b> according to both opinions, <b>the reason</b> for the exclusion of a betrothed woman is <b>that these verses are written;</b> if it <b>were not so, I would say</b> that <b>a betrothed woman drinks. But when Rabbi Aḥa bar Ḥanina came from the South, he came and brought</b> the following <b><i>baraita</i> with him:</b> The verse states: “But if you have gone astray while under your husband, and if you are defiled, and some man has lain with you <b>besides your husband”</b> (Numbers 5:20). This indicates that the <i>halakhot</i> of a <i>sota</i> apply only <b>when sexual intercourse with the husband preceded</b> sexual intercourse with <b>the paramour, and not</b> in a case <b>when sexual intercourse with the paramour preceded</b> intercourse with <b>the husband.</b> In the case of a betrothed woman who committed adultery, intercourse with the paramour preceded intercourse with the betrothed, and this verse excludes her from drinking the bitter water of the <i>sota</i>.
+
+### Part 3
+<b>Rami bar Ḥama said: You find</b> the necessity for an additional exclusion in a case <b>where</b> her <b>betrothed engaged in sexual intercourse with her in her father’s house,</b> i.e., before they were married, and before the sexual intercourse with the paramour.
+
+### Part 4
+The Gemara questions this explanation: <b>In the corresponding</b> situation <b>with regard to a widow awaiting her <i>yavam</i>,</b> whom Rabbi Yonatan excludes from the <i>sota</i> ritual due to the exclusion from the phrase “while under your husband,” is the necessity for this exclusion due to a case <b>where</b> the <b><i>yavam</i> engaged in sexual intercourse with her in her father-in-law’s house</b> before the levirate marriage took place? <b>But do you call that</b> woman <b>a widow awaiting her <i>yavam</i>? She is his full-fledged wife, as didn’t Rav say:</b> If a widow awaiting her <i>yavam</i> engaged in sexual intercourse with her <i>yavam</i>, even without the intention of implementing a levirate marriage, he <b>has acquired</b> her as his wife with respect <b>to all</b> aspects of marriage, including the <i>halakhot</i> of a <i>sota</i>.
+
+### Part 5
+The Gemara answers: Rabbi Yonatan’s opinion is <b>in accordance with</b> the opinion of <b>Shmuel, as</b> Shmuel <b>says:</b> A <i>yavam</i> who engages in sexual intercourse with his <i>yevama</i> without intending to consummate the levirate marriage <b>does not acquire</b> her as his wife <b>except with regard to</b> those <b>matters that are stated in the passage</b> in the Torah that deals with levirate marriage, i.e., that he inherits his brother’s estate, and he can free the widow with a bill of divorce without <i>ḥalitza</i> (see <i>Yevamot</i> 56a). He is not considered fully married to the woman, and, according to Rabbi Yonatan, the <i>halakhot</i> of a <i>sota</i> do not apply to her.
+
+### Part 6
+The Gemara asks: <b>If so, let us say</b> that <b>Rav stated</b> his opinion <b>in accordance with</b> the opinion of <b>Rabbi Yoshiya, and Shmuel stated</b> his opinion <b>in accordance with</b> the opinion of <b>Rabbi Yonatan.</b> The Gemara rejects this interpretation: <b>Rav</b> could have <b>said to you: I state</b> my opinion <b>even according to</b> the opinion of <b>Rabbi Yonatan. Since</b> it <b>was necessary</b> for <b>the verse to exclude</b> a <i>yevama</i> who engaged in sexual intercourse with her <i>yavam</i> from the <i>sota</i> ritual, <b>by inference</b> one may derive <b>that she is his full-fledged wife</b> with regard to all other matters.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

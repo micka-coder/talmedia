@@ -1,0 +1,48 @@
+
+### Partie 1
+La <b>courroie d'une personne est incluse</b> comme moyen d'acquisition valable <b>du fait</b> qu'elle agit comme sa <b>main ; mais elle n'est pas moins</b> efficace <b>que l'agence. </b> Ainsi, <b>en ce qui concerne un acte de divorce, qui est</b> considere comme <b>prejudiciable a</b> l'epouse, on ne peut le lui transferer en le placant dans sa cour en son absence, car <b>on ne peut agir contre les interets d'une personne que si</b> elle est <b>en sa presence. </b> En revanche, <b>en ce qui concerne un cadeau, qui est benefique pour</b> le beneficiaire, on peut le lui donner en le placant dans sa cour en l'absence du beneficiaire, car <b>on peut agir dans l'interet d'une personne en son absence.</b>
+
+### Partie 2
+§ La Guemara revient pour discuter de <b>la</b> question <b>meme.</b> La mishna enseigne : Si quelqu'un <b>voyait</b> des gens <b>courir apres un animal trouve</b> sans proprietaire, et disait : Mon champ a effectue l'acquisition de cet animal pour moi, il en a effectue l'acquisition pour lui. <b>Rabbi Yirmeya dit</b> que <b>Rabbi Yohanan dit : Et</b> cette <i>halakha</i> <b>n'est</b> vraie que dans un cas <b>ou il</b> serait capable de <b>courir apres eux et de les attraper. Rabbi Yirmeya souleve un dilemme : Est-ce que</b> l'on acquiert des animaux qui lui sont donnes <b>en cadeau</b> dans un tel scenario ? <b>Rabbi Abba bar Kahana a accepte</b> la premisse du dilemme <b>de</b> Rabbi Yirmeya, et a statue que dans le cas d'un don, on acquiert les animaux <b>meme s'il</b> ne serait <b>pas en mesure</b> de <b>courir apres eux et de les attraper.</b>
+
+### Partie 3
+<b>Rava souleve un dilemme :</b> Si l'on <b>lance une bourse par cette entree</b> d'une maison et qu'elle traverse la maison <b>et sort par une autre entree, quelle est</b> la <i>halakha</i> ? Le proprietaire de la maison acquiert-il le sac a main au cours de son vol ? Le dilemme est le suivant : Un objet dans l'<b>espace aerien [<i>avir</i>]</b> d'une cour <b>qui ne finira pas par s'immobiliser</b> dans la cour elle-meme est-il considere <b>comme s'il s'etait immobilise, ou</b> est-il <b>non</b> considere comme s'il s'etait immobilise ?
+
+### Partie 4
+<b>Rav Pappa a dit a Rava, et certains disent</b> que c'est <b>Rav Adda bar Mattana</b> qui a dit cela <b>a Rava, et certains disent</b> que c'est <b>Ravina</b> qui a dit cela <b>a Rava : N'est-ce pas</b> la meme chose que la <i>halakha</i> dans <b>la mishna ?</b> Comme il est dit : Si quelqu'un <b>voyait</b> des gens <b>courir apres un animal trouve</b> sans proprietaire, et disait : Mon champ a effectue l'acquisition de cet animal pour moi, il en a effectue l'acquisition pour lui. <b>Et Rabbi Yirmeya dit</b> que <b>Rabbi Yohanan dit : Et</b> cette <i>halakha</i> <b>n'est</b> vraie que dans un cas <b>ou il</b> serait capable de <b>courir apres eux et de les attraper. Rabbi Yirmeya souleve un dilemme : Est-ce que</b> l'on acquiert des animaux qui lui sont donnes <b>en cadeau</b> dans un tel scenario ? <b>Rabbi Abba bar Kahana a accepte</b> la premisse du dilemme <b>de</b> Rabbi Yirmeya, et a statue que dans le cas d'un don, on acquiert les animaux <b>meme s'il</b> ne serait <b>pas en mesure</b> de <b>courir apres eux et de les attraper.</b>
+
+### Partie 5
+Rava <b>lui a dit : Veux-tu dire</b> qu'un sac a main qui vole dans les airs est comparable a un objet qui <b>roule,</b> c'est-a-dire qui se deplace sur le sol ? <b>Un objet qui roule</b> <b>est different, car il est</b> considere <b>comme s'il s'etait immobilise.</b> A tout instant, tout au long de son mouvement, l'objet repose sur le sol. Par consequent, le dilemme ne peut etre resolu a partir de la mishna.
+
+### Partie 6
+<strong>MISHNA :</strong> En ce qui concerne <b>l'objet trouve</b> d'un <b>fils ou d'une fille mineurs,</b> c'est-a-dire, un objet sans proprietaire qu'ils ont trouve ; <b>l'objet trouve de son esclave ou de sa servante cananeenne ;</b> et <b>l'objet trouve de sa femme, ils lui appartiennent. </b> En revanche, en ce qui concerne <b>l'objet trouve de</b> son <b>fils ou sa fille adulte ; l'objet trouve de son esclave ou de sa servante hebraique ;</b> et <b>l'objet trouve de son</b> ex-<b>epouse, dont il a divorce, meme s'il ne lui a</b> pas encore <b>donne</b> le paiement du <b>contrat de mariage</b> qu'il lui doit, <b>ils sont a eux.</b>
+
+### Partie 7
+<strong>GEMARA:</strong> <b>Shmuel dit : Pour quelle</b> raison <b>les Sages ont-ils <b>dit</b> que <b>l'objet trouve de</b> son <b>mineur</b> de fils ou de fille appartient <b>a son pere ?</b> C'est parce que le mineur n'a pas l'intention de l'acquerir pour lui-meme, <b>car lorsqu'il le trouve, il court avec lui vers son pere et ne le conserve pas</b> <b>en sa possession.</b>
+
+### Partie 8
+La Gemara demande : Est-ce pour <b>dire que Shmuel soutient</b> que <b>un mineur n'a pas</b> la capacite d'<b>acquerir</b> des biens <b>pour lui-meme par la loi de la Torah ? Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui engage</b> un <b>laborateur</b> salarie pour recolter son champ, <b>le fils de</b> l'ouvrier <b>peut glaner</b> les tiges tombees de <b>derriere</b> l'ouvrier comme tous les pauvres qui ont droit aux tiges laissees dans le champ. Mais si l'on engage un ouvrier comme metayer, que l'ouvrier recoive <b>la moitie, le tiers ou le quart</b> du produit, <b>son fils ne peut pas glaner</b> les tiges <b>apres lui,</b> car l'ouvrier lui-meme est considere comme un proprietaire partiel du champ et n'est par consequent pas considere comme pauvre. <b>Rabbi Yosei dit :</b> Dans <b>cette affaire</b> <b>et cette affaire</b> l'ouvrier <b>son et sa femme peuvent glaner apres lui. Et Shmuel dit</b> que la <b><i>halakha</i></b> est <b>conforme</b> a l'opinion de <b>Rabbi Yosei.</b>
+
+### Partie 9
+<b>Accorde, si vous dites</b> que <b>un mineur a</b> la capacite d'<b>acquerir</b> des biens <b>pour lui-meme,</b> l'avis de Shmuel est compris, comme <b>quand</b> le fils <b>glander</b> des tiges, <b>il les glane</b> <b>pour lui-meme</b> et les acquiert, <b>et son pere</b> les <b>acquiert</b> par la suite <b>de lui</b> comme un cadeau. Comme le mineur n'a pas de biens propres, son statut est celui d'un pauvre et il lui est permis de glaner des tiges. <b>Mais si on dit</b> que <b>un mineur n'a pas</b> la capacite d'<b>acquerir</b> des biens <b>pour lui-meme,</b> alors <b>quand il glane</b> les tiges, <b>il les glane</b> <b>pour son pere. </b> Puisque <b>son pere est</b> considere comme <b>riche</b> et qu'il n'a pas droit aux glanages parce qu'il possede une partie du produit, <b>pourquoi sa femme et son fils peuvent-ils glaner</b> les tiges <b>apres lui ?</b>.
+
+### Partie 10
+La Guemara repond : Dans l'explication de Shmuel, <b>Shmuel enonce la raison du <i>tanna</i> de notre</b> mishna, <b>mais lui-meme ne tient pas en consequence.</b> Plutot, Shmuel tient conformement a l'opinion de Rabbi Yosei qu'un mineur peut acquerir des biens pour lui-meme.
+
+### Partie 11
+La Guemara demande : <b>Et Rabbi Yosei soutient-il</b> que <b>un mineur a</b> la capacite d'<b>acquerir</b> des biens <b>par la loi de la Torah</b> ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Gittin</i> 59b) : En ce qui concerne les <b>objets trouves d'un sourd-muet, d'un imbecile ou d'un mineur,</b> c'est-a-dire les objets perdus qu'ils ont trouves, bien qu'ils ne soient pas consideres comme competents du point de vue halakhique et qu'ils ne puissent pas acquerir des objets trouves selon la loi de la Torah, leur prendre ces objets <b>est considere comme un vol,</b> selon la loi rabbinique, <b>au nom des voies de la paix. Rabbi Yosei dit :</b> Il s'agit d'un vol a part entiere.</b>
+
+### Partie 12
+<b>Et Rav Hisda dit</b> que Rabbi Yosei veut dire que c'est <b>un vol a part entiere selon la loi rabbinique</b>. Et <b>la</b> <b>difference</b> pratique entre l'opinion du premier <i>tanna</i> et celle de Rabbi Yosei est que selon Rabbi Yosei, si le voleur refuse de rendre l'objet vole, <b>il est approprie par les juges</b> et rendu a son proprietaire. Quoi qu'il en soit, il est evident d'ici que Rabbi Yosei considere egalement qu'un mineur ne peut pas acquerir de biens pour lui-meme par la loi de la Torah.
+
+### Partie 13
+<b>Abaye</b> a plutot rejete l'explication ci-dessus de l'opinion de Rabbi Yosei dans la <i>baraita</i> en ce qui concerne le glanage, et <b>a dit :</b> La raison pour laquelle, selon Rabbi Yosei, le fils d'un metayer peut glaner apres lui malgre le fait qu'il n'acquiert pas de propriete par la loi de la Torah, est que dans un tel cas, les Sages ont <b>rendu</b> le champ <b>comme celui a travers lequel les derniers glaneurs ont marche. </b> Une fois que les pauvres ont fini de glaner les tiges d'un champ, meme les personnes riches sont autorisees a ramasser ce qui reste. Dans ce cas, <b>puisque</b> le fils du metayer marche derriere lui, les <b>pauvres</b> <b>eux-memes ecartent</b> la notion de glanage dans ce champ <b>de leur esprit ; ils supposent</b> que <b>le fils de ce</b> metayer <b>glane pour lui</b> et qu'ils ne trouveront donc pas de glanage dans ce champ. Puisque les pauvres ont eux-memes fini de prendre des tiges dans le champ, le fils du metayer peut glaner pour son pere.
+
+### Partie 14
+<b>Rav Adda bar Mattana dit a Abaye : Mais</b> comment est-il permis a une personne de permettre a son fils de le suivre dans le champ, provoquant ainsi le depart de tous les pauvres ? <b>Est-il permis a une personne de faire accroupir un lion dans son champ afin que les pauvres</b> gens <b>le voient</b> <b>et s'enfuient ?</b>
+
+### Partie 15
+<b>Rava a plutot enonce</b> une explication alternative :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

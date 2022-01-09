@@ -1,0 +1,63 @@
+
+### Part 1
+The Gemara asks: <b>But</b> with regard to <b>dill,</b> from <b>which</b> one is <b>obligated to</b> designate <b><i>pe’a</i>,</b> as stated in the mishna, one must also <b>be obligated to</b> separate <b>tithe,</b> since if the obligation of <i>pe’a</i> applies then the obligation of tithes likewise applies. <b>As we learned</b> in the mishna (50a): With regard to <b>any</b> produce from <b>which</b> one is <b>obligated to</b> designate <b><i>pe’a</i>,</b> one is likewise <b>obligated to</b> separate <b>tithe.</b>
+
+### Part 2
+<b>And from</b> the fact that with regard to dill one is <b>obligated to</b> separate <b>tithe,</b> it follows that it <b>becomes impure with the ritual impurity of food.</b> As the mishna on 50a states: Any food that is obligated in tithes becomes impure with the ritual impurity of food. <b>Apparently, any item that is prepared</b> in order <b>to</b> add <b>taste</b> to food, such as dill, <b>becomes impure with the ritual impurity of food, as this dill is prepared</b> in order <b>to</b> add <b>taste</b> to food.
+
+### Part 3
+<b>And</b> the Gemara <b>raises a contradiction</b> to this conclusion from a mishna (<i>Okatzin</i> 3:5), which deals with the ritual impurity of food: With regard to spices such as <b>costus, amomum, chief spices, root of crowfoot, asafoetida, peppers, and a cake of safflower,</b> although their function is merely to add taste to food, they are considered food for the purposes of the following <i>halakha</i>: They <b>may be bought with</b> second-<b>tithe money,</b> which must be taken to Jerusalem and used to purchase food. <b>But</b> they are not considered food insofar as <b>they do not become impure with the ritual impurity of food.</b> This is <b>the statement of Rabbi Akiva.</b>
+
+### Part 4
+<b>Rabbi Yoḥanan ben Nuri said to</b> Rabbi Akiva: <b>If</b> they are considered food to the extent that <b>they may be bought with</b> second-<b>tithe money, for what</b> reason are <b>they not</b> considered food in terms of <b>becoming impure with the ritual impurity of food? And if they do not become impure</b> with the ritual impurity of food because they are not considered food, then <b>they should also not be bought with</b> second-<b>tithe money.</b>
+
+### Part 5
+<b>And Rabbi Yoḥanan ben Nuri said</b> with regard to this <i>halakha</i>: <b>They counted</b> the opinions of the Sages, <b>and they concluded that</b> these spices <b>may not be bought with</b> second-<b>tithe money, and</b> they do <b>not become impure</b> with the ritual <b>impurity of food.</b> This apparently contradicts the previous claim that dill, which is a spice, becomes impure with the ritual impurity of food.
+
+### Part 6
+<b>Rav Ḥisda says</b> the following resolution of the difficulty: <b>When that</b> <i>baraita</i>, which indicates that dill is considered food and can contract the impurity of food, <b>is taught,</b> it is referring <b>to dill that is prepared for a spice dish [<i>likhmakh</i>],</b> i.e., to be ground and placed in a Babylonian spice, <i>kutaḥ</i>, which is used as a dip.
+
+### Part 7
+<b>Rav Ashi said: I said this <i>halakha</i> of</b> Rav Ḥisda’s <b>before Rav Kahana,</b> and he commented: <b>Do not say</b> that the <i>baraita</i> is referring specifically to a case <b>where</b> the <b>dill</b> was prepared <b>for a spice dish</b> from the outset, which would indicate that if dill is <b>undesignated</b> then it is intended to be an ingredient <b>in a pot</b> of food. <b>Rather, undesignated dill</b> is also <b>prepared for a spice dish. As we learned</b> in a mishna (<i>Okatzin</i> 3:4): With regard to <i>teruma</i> <b>dill, once it imparted flavor in a pot</b> of food and was removed from the pot, it <b>is no</b> longer <b>subject to</b> the prohibition of a non-priest partaking of <b><i>teruma</i>, and it can no</b> longer <b>become impure with the ritual impurity of food.</b>
+
+### Part 8
+Rav Kahana explains the proof: It can be inferred from this mishna that <b>until</b> the dill has <b>imparted flavor in a pot</b> of food it <b>is subject to</b> the prohibition of a non-priest partaking of <b><i>teruma</i>, and it can become impure with the ritual impurity of food. And if</b> it <b>enters your mind</b> that <b>undesignated</b> dill is intended as an ingredient <b>in a pot</b> of food, then <b>even when</b> one did <b>not place</b> the dill in a pot, the same <i>halakha</i> with respect to <i>teruma</i> and impurity should apply, as when it is <b>undesignated</b> the dill is intended as an ingredient <b>in a pot</b> of food. <b>Rather,</b> must one <b>not conclude from</b> the mishna that <b>undesignated</b> dill is <b>prepared for a spice dish?</b> The Gemara concludes: <b>Learn from</b> the mishna that this is the case.
+
+### Part 9
+<strong>MISHNA:</strong> With regard to <b>any</b> animal, i.e., sheep and rams, from <b>which one is obligated</b> by Torah law (see Deuteronomy 18:4) <b>to</b> give <b>the first shearing</b> of its wool to a priest, he <b>is obligated to</b> have <b>gifts</b> of the priesthood, i.e., the foreleg, the jaw, and the maw, which must be removed from slaughtered animals, taken from it (see Deuteronomy 18:3). <b>And there are</b> animals from <b>which one is obligated to</b> have <b>gifts</b> of the priesthood taken from them, e.g., cattle and goats, <b>but</b> from which <b>he is not obligated to</b> give <b>the first shearing.</b>
+
+### Part 10
+The mishna teaches a similar principle: For <b>all</b> Sabbatical-Year produce <b>to which there</b> applies the obligation of <b>eradication</b> from the house when it ceases to be available to the animals in the field, <b>there is</b> the sanctity of <b>Sabbatical-</b>Year produce upon <b>it,</b> i.e., it may not be used for commerce and is ownerless while it is attached to the ground. <b>And there</b> is produce <b>for which there is</b> the sanctity of <b>Sabbatical-</b>Year produce, <b>but for</b> which <b>there is no</b> obligation of <b>eradication</b> from the house, e.g., produce that is preserved in the ground and does not cease to be available in the field.
+
+### Part 11
+<strong>GEMARA:</strong> The mishna teaches that the sanctity of Sabbatical-Year produce applies to any produce upon which there is an obligation of eradication, but the converse is not necessarily the case. The Gemara cites an example of plants whose various parts illustrate these <i>halakhot</i>: Plants <b>such as the wild arum leaf and the ceterach,</b> which cease to be available in the field during the rainy season, are subject to eradication and to the sanctity of the Sabbatical Year. Examples of the second <i>halakha</i> of the mishna, that <b>there is</b> produce <b>for which there is</b> the sanctity of <b>Sabbatical-</b>Year produce <b>but</b> for which <b>there is no</b> obligation of <b>eradication</b> from the house, include the <b>root of the wild arum and the root of the ceterach.</b>
+
+### Part 12
+The Gemara explains <b>that it is written</b> in connection to the Sabbatical Year: <b>“And for the cattle and the beasts that are in your land, all its produce may be eaten”</b> (Leviticus 25:7), from which it is derived: <b>As long as the undomesticated animals eat</b> a type of produce <b>from the field, you may feed</b> that type of produce <b>to your domesticated animal in the house,</b> as it still remains in the field. But if that type of produce <b>has ceased for the undomesticated animals in the field, you must cease</b> feeding it <b>to your domesticated animal in the house.</b> This is the obligation of eradication. <b>And these,</b> the root of the wild arum and the ceterach, <b>have not ceased for undomesticated animals</b> in the field, and therefore there is no obligation of eradication.
+
+### Part 13
+<strong>MISHNA:</strong> It is written: “Whatever has fins and scales in the waters, in the seas, and in the rivers, you may eat them” (Leviticus 11:9). There is a principle with regard to the signs indicating that fish are kosher: <b>Any</b> fish <b>that has scales has fins; and there are</b> fish <b>that have fins but do not have scales.</b> Similarly, with regard to kosher animals it is written: “Whatever parts the hoof, and is wholly cloven-footed, and chews the cud, among the beasts, that you may eat” (Leviticus 11:3). <b>Any</b> animal <b>that has horns has hooves; and there are</b> animals <b>that have hooves but do not have horns.</b>
+
+### Part 14
+<strong>GEMARA:</strong> The mishna teaches that <b>any</b> fish <b>that has scales</b> also has fins and therefore is <b>a kosher fish.</b> The mishna also stated that <b>there are</b> fish <b>that have fins but do not have scales.</b> Such a fish is <b>a non-kosher fish.</b> The Gemara asks: <b>Since we rely</b> exclusively <b>upon</b> the sign of the <b>scales,</b> as a fish that has scales necessarily has fins as well, <b>why do I</b> need the sign of <b>fins that the Merciful One writes</b> in the Torah as one of the criteria of kosher fish?
+
+### Part 15
+The Gemara answers: <b>If the Merciful One</b> had <b>not</b> also <b>written</b> the sign of <b>fins</b> in the Torah, <b>I would say: What</b> does the word <b><i>kaskeset</i>,</b> scales, <b>that is written</b> in the Torah mean? It does not mean scales, but <b>fins. And</b> I would therefore say that <b>even a non-kosher fish,</b> which has fins but no scales, is permitted. Therefore, <b>the Merciful One writes</b> both signs, <b>fins and scales.</b>
+
+### Part 16
+The Gemara further asks: <b>But now that the Merciful One wrote</b> in the Torah <b>fins and <i>kaskeset</i>, from where do we</b> derive that <b><i>kaskeset</i></b> denotes <b>clothing,</b> i.e., scales, rather than fins? The Gemara answers: We derive it from a verse, <b>as it is written</b> about Goliath the Philistine: <b>“And he was clad with a coat of mail [<i>kaskasim</i>]”</b> (I Samuel 17:5).
+
+### Part 17
+The Gemara asks: <b>But</b> if there is proof that <i>kaskeset</i> means scales, the question returns: <b>Let the Merciful One write</b> only <b>“scales” and</b> then there would be <b>no need</b> to write <b>“fins.” Rabbi Abbahu says, and likewise</b> a Sage of <b>the school of Rabbi Yishmael taught,</b> that this is in accordance with the verse: “The Lord was pleased, for His righteousness’ sake, <b>to make Torah great and glorious”</b> (Isaiah 42:21).In this context, this means that it is fitting for the Torah to state all the characteristics of a kosher animal rather than merely state that which is absolutely necessary.
+
+### Part 18
+<strong>MISHNA:</strong> This mishna teaches a generalization that is similar to the previous ones: <b>Anything that requires a blessing after</b> one partakes of <b>it requires a blessing beforehand. And there exist</b> items <b>that require a blessing before but</b> do <b>not require a blessing thereafter.</b>
+
+### Part 19
+<strong>GEMARA:</strong> The mishna teaches that there are items that require a blessing before but not after. The Gemara inquires: <b>What</b> case does this <i>halakha</i> in the mishna <b>add?</b> The Gemara answers: It serves <b>to add</b> the case of <b>vegetables,</b> as one recites a blessing before eating them but not afterward. The Gemara asks: <b>And according to</b> the opinion of <b>Rabbi Yitzḥak, who</b> maintains that one <b>recites a blessing on vegetables</b> after eating them, <b>what</b> case does this <i>halakha</i> in the mishna <b>add?</b> The Gemara answers: It serves <b>to add</b> the case of <b>water,</b> as one recites a blessing before drinking it but not afterward.
+
+### Part 20
+The Gemara further asks: <b>And according to</b> the opinion of <b>Rav Pappa, who</b> rules that <b>one recites a blessing on water</b> after drinking it, <b>what</b> case does this <i>halakha</i> in the mishna serve <b>to add?</b> The Gemara answers that the mishna, which does not explicitly mention food, serves <b>to add mitzvot.</b> In other words, one recites a blessing before performing a mitzva, e.g., wearing ritual fringes or taking the <i>lulav</i> and the like, but one does not recite a blessing after its fulfillment. The Gemara asks: <b>And according to</b> the <b>residents of the West,</b> Eretz Yisrael, <b>who recite</b> the following <b>blessing after they remove their phylacteries: Who sanctified us with His mitzvot and commanded us to keep His laws, what</b> does this <i>halakha</i> in the mishna <b>come to add?</b> The Gemara answers: It serves <b>to add</b> the case of
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

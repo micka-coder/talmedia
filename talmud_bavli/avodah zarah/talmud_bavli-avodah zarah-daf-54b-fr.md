@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>Mais plutot,</b> elle est derivee <b>du cas des <b>vases</b> du Temple qu'Achaz utilisait pour le culte des idoles, <b>comme il est ecrit : "Et tous les vases que le roi Achaz, sous son regne, a jetes lorsqu'il a agi par traitrise, nous les avons prepares et sanctifies,</b> et voici qu'ils sont devant l'autel du Seigneur" (IIA Chroniques 29:19). <b>Et le Maitre dit : "Nous avons préparé"</b> signifie <b>que nous les avons enterrés ; "et sanctifié"</b> signifie <b>que nous avons sanctifié d'autres</b> vases <b>a leur place,</b> car les vases d'origine étaient interdits. <b>Mais</b> comment Ahaz pouvait-il rendre les vases du Temple interdits, car <b>une personne ne rend pas interdit un objet qui ne lui appartient pas ?</b>.
+
+### Partie 2
+<b>Au contraire, puisque</b> Achaz <b>executait</b> un <b>sacrifice sur eux</b> dans le cadre d'un culte idolatre, les vases <b>etaient interdits. Ici aussi, lorsque</b> quelqu'un <b>a accompli</b> un <b>sacrifice sur</b> l'animal d'une autre personne en l'abattant dans un culte idolatre, <b>il l'a rendu interdit.</b>
+
+### Partie 3
+§ <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yohanan dit : Meme si</b> les Sages ont <b>dit</b> que <b>celui qui s'incline devant le sol ne le rend pas interdit,</b> si l'on y <b>creuse des fosses, des fosses et des grottes, il le rend interdit. Lorsque Rav Shmuel bar Yehuda est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yohanan dit : Meme si</b> les Sages ont <b>dit</b> que <b>celui qui s'incline devant les animaux ne les rend pas interdits,</b> si on leur <b>cede</b> un objet d' <b>echange contre</b> un objet d'adoration <b>idolique,</b> en echangeant l'animal contre un objet d'adoration idolique, <b>il les rend interdits.</b>
+
+### Partie 4
+<b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il <b>a dit : Rabbi Yishmael bar Rabbi Yosei et les rabbins ne sont pas d'accord en ce qui concerne</b> la <i>halakha</i> concernant un objet echange contre un objet de culte idolatre. <b>L'un dit</b> que l'objet de l'<b>echange</b> est <b>interdit,</b> mais si l'on a ensuite acquis un autre objet en echange de l'objet de cet echange, l'<b>echange de</b> l'<b>echange</b> est <b>permis. Et on dit</b> que <b>meme</b> l'<b>echange de</b> l'<b>echange</b> est <b>egalement interdit.</b>
+
+### Partie 5
+La Gemara demande : <b>Quelle est la raison de celui qui dit</b> que l'<b>echange de</b> l'<b>echange</b> est <b>interdit ? Le verset dit :</b> "Et tu n'introduiras pas d'abomination dans ta maison, <b>pour que tu deviennes maudit comme elle ;</b> tu la detesteras absolument"¦ car elle est maudite" (Deuteronome 7:26). Non seulement vous devenez maudit, mais <b>tout ce que vous faites devenir</b> votre <b>a partir</b> de l'echange d'un objet de culte idolatre <b>est</b> maudit <b>comme lui,</b> c'est-a-dire interdit comme l'objet de culte idolatre lui-meme. <b>Et</b> quant a <b>l'autre</b> <i>tanna</i>, d'ou tire-t-il que l'echange de l'echange est permis ? <b>Le verset dit :</b> "Car <b>elle</b> est maudite.</b> Il en deduit que <b>la chose,</b> l'objet du culte des idoles, est interdite, <b>mais pas</b> l'<b>echange de</b> l'<b>echange.</b>
+
+### Partie 6
+La Gemara demande : <b>Et</b> quant a <b>l'autre</b> <i>tanna</i>, comment interprete-t-il le terme "il" ? La Guemara repond : <b>Il exige ce</b> terme <b>pour exclure</b> un objet acquis en echange de <b><i>orla</i> ou</b> de <b>diverses sortes</b> de recoltes qui ont pousse <b>dans un vignoble. </b> Le verset indique <b>que si</b> on <b>vendait</b> <i>orla</i> ou diverses sortes qui ont pousse dans un vignoble <b>et qu'on fiancait</b> une femme <b>avec</b> l'<b>argent</b> de la vente, elle est <b>fiancee.</b>
+
+### Partie 7
+La Guemara demande : <b>Et</b> d'ou <b>l'autre</b> <i>tanna</i> tire-t-elle cette <i>halakha</i> ? Il soutient que les <b><i>orla</b> et les sortes diverses</b> qui ont pousse <b>dans une vigne ne necessitent pas d'exclusion.</b> Ceci est <b>parce que le culte des idoles et</b> l'annee <b>sabbatique</b> <b>sont deux versets qui ne font qu'un,</b> c'est-a-dire, tous deux enseignent le meme principe, a savoir qu'un objet acquis en echange d'un objet interdit est interdit, <b>et deux versets qui ne font qu'un n'enseignent pas</b> leur <i>halakha</i> commune a d'autres cas.
+
+### Partie 8
+La Guemara explique : La source de cette <i>halakha</i> en ce qui concerne le <b>culte des idoles</b> est <b>cette</b> decision <b>que nous avons dite</b> precedemment. En ce qui concerne l'<b>Annee sabbatique</b>, la source est <b>comme il est ecrit : "Car c'est une annee jubilaire ; elle sera sacree pour vous"</b> (Levitique 25, 12). Le verset juxtapose l'annee jubilaire, dont les produits ont le meme statut que ceux de l'annee sabbatique, et les objets sacres. On en deduit que <b>de meme que</b> lorsqu'on achete un <b>bien consacre</b> il <b>transfere</b> son caractere sacre a la <b>monnaie</b> avec laquelle <b>il</b> est rachete <b>et</b> la monnaie est <b>interdite, de meme,</b> le produit de l'annee <b>sabbatique</b> <b>transfere</b> sa saintete a la <b>monnaie</b> avec laquelle <b>elle</b> est rachetee <b>et</b> la monnaie est <b>interdite. </b>
+
+### Partie 9
+La Guemara demande : <b>Si</b> ainsi, on pourrait dire que <b>tout comme un bien consacre</b> <b>transfere</b> son caractere sacre a l'<b>argent</b> avec lequel <b>il</b> est rachete <b>et passe au statut non sacre</b>, <b>De meme,</b> le produit de l'annee <b>sabbatique</b> <b>transfere</b> sa saintete a l'<b>argent</b> avec lequel <b>il</b> est rachete <b>et est transfere au statut non sacre</b>. Par consequent, <b>le verset dit : "Il sera</b> sacre pour vous," indiquant que le produit <b>doit</b> toujours <b>etre tel qu'il est,</b> et qu'il n'est pas desacralise.
+
+### Partie 10
+La Guemara explique : <b>Comment cela ? </b> Si l'on <b>achetait de la viande avec des produits</b> de l'annee <b>sabbatique</b>, tant <b>ceux-ci que ceux-la,</b> c'est-a-dire la viande et les produits, <b>sont eradiques dans l'annee sabbatique</b>. Le caractere sacre de l'annee sabbatique prend effet en ce qui concerne la viande egalement. Elle est traitee comme les produits et doit etre eliminee lorsque l'obligation d'eradiquer les produits de l'annee sabbatique prend effet. S'il achete ensuite du <b>poisson</b> avec cette <b>viande,</b> la <b>viande perd</b> son etat consacre, et le <b>poisson assume</b> l'etat consacre. S'il achete ensuite du <b>vin avec</b> ces <b>poissons,</b> les <b>poissons perdent</b> leur statut consacre et le <b>vin assume</b> l'etat consacre. S'il achete ensuite de l'<b>huile avec</b> le <b>vin,</b> le <b>vin perd</b> son statut consacre et l'<b>huile assume</b> l'etat consacre. <b>Comment ? Le dernier</b> article achete voit le caractere sacre de l'<b>Annee sabbatique</b> <b>transfere sur lui, et le</b> <b>produit de l'Annee sabbatique lui-meme</b> reste <b>interdit.</b>
+
+### Partie 11
+La Guemara demande : <b>Et</b> quant a <b>l'autre</b> <i>tanna</i>, qui soutient que le terme "il" exclut un objet echange contre <i>orla</i> ou contre des sortes diverses qui ont pousse dans une vigne, que repond-il a cela ? La Guemara repond : <b>Il soutient</b> que <b>deux versets qui ne font qu'un,</b> c'est-a-dire qui enseignent le meme principe, <b>enseignent</b> leur <i>halakha</i> commune a d'autres cas, et on aurait pu deduire l'interdiction des cas du culte des idoles et de l'annee sabbatique. Par consequent, le terme <b>"il" etait necessaire</b> pour <b>exclure</b> de l'interdiction un objet echange contre <i>orla</i> ou contre des sortes diverses qui poussaient dans un vignoble.
+
+### Partie 12
+<strong>MISHNA :</strong> Les Gentils <b>demanderent aux</b> <b>Sages</b> juifs qui etaient <b>a Rome : Si ce n'est pas</b> la <b>volonte</b> de Dieu que les gens s'adonnent <b>au culte des idoles, pourquoi ne l'elimine-t-Il pas ?</b> Les Sages leur <b>repondirent : Si</b> les gens <b>n'adoraient</b> que des <b>objets dont le monde n'a pas besoin, Il les eliminerait.</b> Mais <b>ils adorent le soleil et la lune</b> et <b>les etoiles et les constellations. Devrait-Il detruire Son monde a cause de ces insenses ?</b>
+
+### Partie 13
+Les Gentils <b>ont dit aux Sages</b> : <b>Si oui, qu'Il detruise</b> ces <b>objets</b> d'idolatrie <b>pour lesquels le monde n'a aucun besoin et laisse</b> ces <b>objets pour lesquels le monde</b> a <b>un besoin. </b> Les Sages leur ont <b>dit : </b> Si cela devait arriver, <b>nous</b> soutiendrions ainsi les adorateurs de ces</b> objets dont le monde a besoin, <b>comme ils</b> le diraient : Sachez que ceux-ci sont</b> veritablement des <b>dieux, car ils n'ont pas ete elimines</b> du monde, alors que les autres l'ont ete.
+
+### Partie 14
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne :</b> Certains <b>philosophes [<i>filosofin</i>] ont demande aux</b> <b>Sages</b> juifs qui etaient <b>a Rome : Si ce n'est pas la volonte de votre Dieu</b> que les gens se livrent <b>au culte des idoles, pour quelle</b> raison <b>Il ne l'elimine pas ?</b> Les Sages leur <b>ont repondu : Si</b> les gens <b>n'adoraient</b> que des <b>objets dont le monde n'a pas besoin, Il les eliminerait.</b> Mais <b>ils adorent le soleil et la lune</b> et <b>les etoiles et les constellations. Devrait-Il detruire</b> le <b>monde a cause des fous ? Au contraire, le monde suit son cours, et</b> les <b>insenses qui ont peche seront tenus au jugement dans le futur</b> pour leurs transgressions.
+
+### Partie 15
+Le <i>baraita</i> presente <b>une autre affaire</b> qui illustre le meme concept : Considerons le cas de celui <b>qui a vole une <i>seâ</i> de ble et est alle la planter en terre.</b> Par <b>droit, elle ne devrait pas pousser. Mais le monde va de l'avant et suit son cours et</b> les <b>fous qui ont peche seront tenus au jugement dans le futur</b> pour leurs transgressions.
+
+### Partie 16
+Le <i>baraita</i> presente <b>une autre affaire</b> qui illustre le meme concept : Considerons le cas de celui qui <b>a eu des rapports sexuels avec la femme d'un autre.</b> Par <b>droit, elle ne devrait pas tomber enceinte. Mais le monde va de l'avant et suit son cours et</b> les <b>fous qui ont peche seront tenus au jugement dans le futur</b> pour leurs transgressions.
+
+### Partie 17
+La Gemara commente : <b>Et c'est ce que dit Reish Lakish : Le Saint, beni soit-Il, a dit : N'est-ce pas assez pour les mechants qu'ils traitent Ma</b> mort pour <b>une <i>sela</i></b> piece de monnaie comme si elle etait <b>sans proprietaire [<i>pumbi</i>],</b> l'utilisant sans Ma permission et contre Ma volonte, comme ils fecondent les femmes adulteres ? <b>Mais</b> en outre, ils Me <b>troublent et Me font signer</b> le resultat de leurs actions <b>contre Ma volonte,</b> comme Je forme le fœtus et lui donne la vie, meme lorsque sa creation est le resultat de rapports sexuels interdits.
+
+### Partie 18
+<b>Un certain philosophe a demande a Rabban Gamliel : Il est ecrit dans votre Torah</b> a propos de l'interdiction du culte des idoles : <b>Car le Seigneur ton Dieu est un feu devorant, un Dieu jaloux</b> (Deuteronome 4:24). <b>Pour quelle</b> raison est-il <b>jaloux</b> et se venge-t-il <b>des <b>adorateurs</b> de l'idole, mais</b> il n'est <b>pas jaloux</b> de l'idole <b>elle-meme</b> et ne la detruit pas ?
+
+### Partie 19
+Rabban Gamliel <b>dit au</b> philosophe : <b>Je vais te raconter une parabole. A quoi est comparable cette affaire ? </b> Elle peut etre comparee <b>a un roi de chair et de sang qui avait un fils, et ce fils elevait un chien. Et</b> le fils <b>donna</b> au chien <b>un nom,</b> le nommant <b>d'apres son pere. Quand</b> le fils <b>prenait un serment,</b> il <b>disait:</b> je jure <b>par la vie de</b> le <b>chien, mon pere. Quand le roi entendit</b> cela, <b>Avec qui</b> le roi etait-il <b>en colere ? Est-il en colere contre le fils ou est-il en colere contre le chien ? Tu dois dire</b> qu'il <b>est en colere contre le fils.</b> De meme, Dieu est en colere contre les adorateurs qui attribuent la divinite aux objets du culte des idoles et non contre les objets du culte des idoles eux-memes.
+
+### Partie 20
+Le philosophe <b>dit a</b> Rabban Gamliel : <b>Tu appelles</b> l'idole <b>un chien ? Mais</b> l'idole <b>existe veritablement,</b> c'est-a-dire qu'elle a du pouvoir. Rabban Gamliel <b>dit au</b> philosophe : <b>Et qu'as-tu vu</b> qui t'a fait croire que les idoles ont un pouvoir ? Le philosophe <b>dit a</b> Rabban Gamliel : <b>Une fois, un incendie s'est declare dans notre ville, et la ville entiere a ete brulee, mais ce temple d'adoration des idoles n'a pas ete brule.</b>
+
+### Partie 21
+Rabban Gamliel <b>Dit au</b> philosophe <b>Je vais te raconter une parabole. A quoi cette affaire est-elle comparable ? </b> Elle peut etre comparee <b>a un roi de chair et de sang dont la province a peche contre lui. Quand il fait la guerre, fait-il</b> la guerre <b>contre les vivants ou fait-il</b> la guerre <b>contre les morts ? Tu dois dire</b> qu' <b>il fait</b> la guerre <b>contre les vivants.</b> Dieu punit les adorateurs vivants et non l'idole, qui n'est pas vivante.
+
+### Partie 22
+Le philosophe <b>dit a</b> Rabban Gamliel : <b>Vous appelez</b> l'idole <b>un chien ; vous appelez</b> l'idole <b>morte. Si</b> c'est <b>ainsi, que</b> Dieu <b>l'enleve du monde.</b> Rabban Gamliel <b>dit au</b> philosophe : <b>Si les gens <b>n'adoraient</b> que des <b>objets dont le monde n'a pas besoin, Il les eliminerait.</b> Mais <b>ils adorent le soleil et la lune, les etoiles et les constellations,</b> et <b>les ruisseaux et les vallees. Devrait-Il detruire Son monde a cause d'insenses ? Et ainsi</b> le verset <b>declare :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

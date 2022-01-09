@@ -1,0 +1,12 @@
+
+### Partie 1
+<b>Plutot,</b> neanmoins, <b>inverser</b> l'attribution des avis dans la mishna et dire que Rabbi Meir juge le temoin exempt de responsabilite pour un serment de temoignage, car <b>meme en matiere rituelle,</b> Rabbi Meir <b>n'accepte pas</b> le principe : D'une declaration negative on peut deduire une declaration positive.
+
+### Partie 2
+<b>Ravina s'oppose a ce principe : Et en matiere de rituel,</b> Rabbi Meir <b>n'accepte-t-il pas</b> le principe ? <b>Mais s'il en est ainsi,</b> en ce qui concerne la <i>halakha</i> que les pretres qui accomplissent le service du Temple alors qu'ils sont <b>enivres de vin, et</b> les pretres qui accomplissent le service du Temple avec des cheveux <b>depasses</b> sur leur <b>tete, qui,</b> sur la base de ce principe, sont susceptibles de recevoir la <b>mort</b> de la main du Ciel, <b>aussi Rabbi Meir n'accepte-t-il pas</b> ce principe ? <b>Mais n'avons-nous pas appris</b> dans une <i>baraita</i> : <b>Et ceux-la</b> sont ceux <b>qui sont susceptibles <b>de</b> recevoir la <b>mort</b> de la main du Ciel : Les pretres qui accomplissent le service du Temple alors qu'ils sont <b>enivres de vin</b> et les pretres qui accomplissent le service du Temple avec des cheveux <b>croissants</b> sur leur <b>tete,</b> et Rabbi Meir n'est pas en desaccord avec cette decision ?
+
+### Partie 3
+<b>Par contre, en fait, inverser</b> l'attribution des avis dans la mishna et dire que Rabbi Meir juge le temoin exempt de responsabilite pour un serment de temoignage. <b>Quand</b> Rabbi Meir <b>n'accepte pas</b> ce principe, c'est uniquement <b>dans</b> les cas impliquant des <b>questions monetaires ; mais dans</b> les cas impliquant des <b>questions rituelles, il accepte</b> le principe. C'est la raison pour laquelle il ne conteste pas la <i>halakha</i> dans le <i>baraita</i> a l'egard d'un pretre enivre de vin ou ayant des cheveux envahissants sur la tete. <b>Et</b> la raison pour laquelle il n'accepte pas le principe : D'une affirmation negative on peut deduire une affirmation positive, dans le cas de la <i>sota</i> c'est que <b><i>sota</i> est differente parce que c'est une question rituelle dans laquelle il y a</b> des ramifications impliquant des <b>questions monetaires,</b> c'est-a-dire le paiement du contrat de mariage. Il en va de meme pour le serment de temoignage dans la mishna ; bien qu'il s'agisse d'une question rituelle, il s'agit d'une question rituelle avec des ramifications impliquant des questions monetaires.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

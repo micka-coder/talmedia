@@ -1,0 +1,57 @@
+
+### Part 1
+<b>Rav Pappa said</b> a different answer: <b>When the Sages instituted</b> an ordinance that one’s <b>four</b> square <b>cubits</b> effect acquisition of property <b>for him,</b> that was <b>in the world,</b> i.e., on public land. But <b>the Sages did not institute</b> this mode of acquisition <b>for him in a field belonging to an owner. And even though the Merciful One accorded</b> a poor person certain <b>rights in</b> a landowner’s field during the distribution of <i>pe’a</i>, this mode of acquisition is not included in those rights; <b>when the Merciful One accorded him rights</b> it was specifically <b>to walk in</b> the field <b>and to collect <i>pe’a</i>,</b> but <b>the Merciful One did not accord him the right</b> that the field <b>be considered his courtyard</b> with regard to acquiring <i>pe’a</i>. Therefore, the mishna in tractate <i>Pe’a</i> does not contradict the statement of Reish Lakish.
+
+### Part 2
+As mentioned previously, <b>Rava said</b> that <b>Rabbi Ya’akov bar Idi raises an objection</b> to this from a mishna in <b><i>Nezikin</i>.</b> The Gemara elaborates: The mishna here states that if one <b>saw a found item and fell upon it, and another came and seized it, the one who seized it acquired it. And if you say</b> that <b>a person’s four</b> square <b>cubits effect acquisition</b> of property <b>for him everywhere, let his four</b> square <b>cubits effect acquisition</b> of the found item <b>for him.</b>
+
+### Part 3
+The Gemara answers: <b>Here we are dealing with</b> a case <b>where he did not say: I will acquire</b> it. The Gemara asks: <b>But if the Sages instituted</b> an ordinance that one’s four square cubits effect acquisition of property for him, then even in a case <b>when he did not say:</b> I will acquire the item, <b>what of it?</b> The item should still be his. The Gemara answers: <b>Since he fell upon it, he revealed his intention that it is satisfactory for him to acquire</b> the item <b>by falling</b> on it, and <b>it is not satisfactory for him to acquire</b> the item <b>through</b> the ordinance concerning his <b>four</b> square <b>cubits.</b> Since he decided to forgo the mode of acquisition instituted by the Sages, he does not acquire the found item.
+
+### Part 4
+<b>Rav Sheshet said</b> a different answer: <b>When the Sages instituted</b> that one’s four square cubits effect acquisition of property for him, that was <b>in</b> a place like <b>an alleyway, where the multitudes do not crowd,</b> so the four square cubits surrounding a person can temporarily be considered his property and enable him to acquire an item; but <b>the Sages did not institute</b> this mode of acquisition <b>in the public domain, where the multitudes crowd.</b>
+
+### Part 5
+The Gemara asks: <b>But</b> doesn’t the wording of Reish Lakish’s statement indicate that there is no such limitation, as <b>he says</b> that the area of four square cubits surrounding a person effects acquisition of property for him <b>everywhere?</b> The indication is that this is true even in the public domain.
+
+### Part 6
+The Gemara answers: The word <b>everywhere</b> is not to be taken literally; it was stated <b>to include</b> even <b>the sides of the public domain,</b> areas that are adjacent to the public domain but not actually part of it. Since the multitudes do not crowd there, one who is standing there acquires an item that is in his four square cubits.
+
+### Part 7
+§ <b>And Reish Lakish says</b> another <i>halakha</i> <b>in the name of Abba Kohen Bardela: A minor girl does not have</b> the ability to acquire property by means of her <b>courtyard, and she does not have</b> the ability to acquire property by means of her <b>four</b> square <b>cubits. And Rabbi Yoḥanan says in the name of Rabbi Yannai</b> that <b>she has</b> the ability to acquire property by means of her <b>courtyard, and she has</b> the ability to acquire property by means of her <b>four</b> square <b>cubits.</b>
+
+### Part 8
+The Gemara asks: <b>With regard to what do they disagree?</b> The Gemara explains: One <b>Sage,</b> Rabbi Yannai, <b>holds</b> that placing an item in <b>a courtyard is included</b> as a valid means of acquisition <b>due to</b> the fact that it acts as <b>her hand. Just as</b> a minor girl <b>has</b> the ability to acquire property with her <b>hand, she also has</b> the ability to acquire property by means of her <b>courtyard. And</b> one <b>Sage,</b> Abba Kohen Bardela, <b>holds</b> that placing an item in <b>a courtyard is included</b> as a valid means of acquisition <b>due to</b> the option of acquiring property via <b>agency; and just as</b> a minor girl <b>has no</b> power of <b>agency,</b> as a minor cannot appoint an agent, <b>she does not have</b> the ability to acquire property by means of her <b>courtyard either.</b>
+
+### Part 9
+The Gemara asks: <b>Is there anyone who says</b> that <b>a courtyard is included</b> as a valid means of acquisition <b>due to</b> the option of acquiring property via <b>agency? But isn’t it taught</b> in a <i>baraita</i>: The verse states: “If the theft shall be found in his possession alive, whether it is an ox, or a donkey, or a sheep, he shall pay double” (Exodus 22:3)” From the term <b>“in his possession [<i>beyado</i>],” I have</b> derived <b>only</b> a case where the stolen item is found in <b>his hand [<i>yado</i>]. From where</b> do I derive that the same <i>halakha</i> applies if it is found on <b>his roof,</b> in <b>his yard, or</b> in <b>his enclosure? The verse states</b> the repetitive phrase <b>“if</b> the theft <b>shall be found [<i>himmatze timmatze</i>],”</b> to indicate that the same <i>halakha</i> applies <b>in any case,</b> i.e., in any location that the stolen item is found.
+
+### Part 10
+The Gemara explains: <b>And if it enters your mind</b> that <b>a courtyard is included</b> as a valid means of acquisition <b>due to agency, if so, we have found</b> a case where there is <b>agency for a transgression,</b> i.e., theft. <b>But we maintain</b> that <b>there is no agency for transgression.</b> If one sends an agent to violate a transgression on his behalf, the agent is liable for the transgression and is not considered to be acting on behalf of the one who sent him.
+
+### Part 11
+<b>Ravina said:</b> That <i>baraita</i> poses no problem, as <b>where do we say that there is no agency for transgression?</b> It is <b>where</b> the <b>agent</b> himself <b>is subject to liability</b> for transgression. Consequently, the agent is liable, not the one who sent him. <b>But in</b> the case of <b>a courtyard, which is not subject to liability, its sender,</b> i.e., its owner, <b>is liable.</b>
+
+### Part 12
+The Gemara asks: <b>If that is so,</b> then in a case of <b>one who says to a woman or a slave: Go out and steal for me, is the one who sent them indeed liable, since they are not subject to liability?</b> Married women and slaves have no property of their own from which one could collect payment.
+
+### Part 13
+The Gemara answers: <b>You can say</b> in response: <b>A woman and a slave</b> are not comparable to a courtyard, as <b>they are subject to liability</b> if they steal; <b>and</b> only <b>now, in any event, they do not have</b> the means <b>to pay.</b> This is <b>as we learned</b> in a mishna (<i>Bava Kamma</i> 87a) concerning a married woman or Canaanite slave who injured another person: If <b>the woman becomes divorced</b> or <b>the slave becomes emancipated,</b> and they then have their own money, <b>they are liable to pay</b> for the damage they inflicted. Evidently, although it is not possible to collect payment from them, they are liable for their actions.
+
+### Part 14
+<b>Rav Samma stated</b> a different resolution to the difficulty based on the <i>baraita</i>: <b>Where do we say</b> that <b>there is no agency for transgression?</b> It is specifically in a case <b>where if</b> the agent <b>wants</b> to execute his assignment <b>he can do</b> so, <b>and if he wants</b> to refrain from executing it <b>he can</b> also opt to <b>not do</b> it. <b>But</b> in the case of <b>a courtyard, where</b> one <b>places</b> items <b>without its consent, its sender,</b> i.e., its owner, <b>is liable.</b>
+
+### Part 15
+The Gemara asks: <b>What is</b> the practical difference <b>between</b> the answers of Ravina and Rav Samma? The practical difference <b>between them</b> is in the case of <b>a priest who said to an Israelite: Go out and betroth a divorced woman for me.</b> It is prohibited for a priest to betroth a divorcée, while it is permitted for an Israelite to do so. <b>Alternatively,</b> the difference is in the case of <b>a man who said to a woman: Round</b> the corners of the head of <b>a minor boy for me.</b> Rounding the corners of a man’s head, and a man having the corners of his head rounded, are prohibited in the verse: “You shall not round the corners of your head” (Leviticus 19:27), but they are prohibited only for men and not for women.
+
+### Part 16
+The Gemara explains: <b>According to the formulation in which</b> it was <b>said</b> that <b>anywhere that if</b> the agent <b>wants</b> to execute his assignment <b>he can do</b> so and <b>if he wants</b> to refrain from executing it <b>he can</b> opt to <b>not do</b> it <b>the one who sent him is not liable</b> for the transgression but rather the agent is liable, in <b>these</b> cases <b>too,</b> since <b>if</b> the agent <b>wants</b> to execute his assignment <b>he can do</b> so, and <b>if he wants</b> to refrain from executing it <b>he can</b> opt to <b>not do</b> it, <b>the one who sent them is not liable.</b> But <b>according to the formulation in which</b> it was <b>said</b> that <b>wherever an agent is not subject to liability the one who sent him is liable,</b> in <b>these</b> cases <b>too, since</b> the agents <b>are not subject to liability, the one who sent them is liable.</b>
+
+### Part 17
+The Gemara asks about the explanation of the opinion of Abba Kohen Bardela: <b>But is there anyone who says</b> that placing an item in <b>a courtyard is not included</b> as a valid means of acquisition <b>due to</b> the fact that it acts as <b>her hand? But isn’t it taught</b> in a <i>baraita</i>: From the verse: “And he writes her a scroll of severance, and he gives it <b>in her hand”</b> (Deuteronomy 24:1), <b>I have</b> derived <b>only</b> that a woman is divorced if her husband places the bill of divorce in <b>her hand. From where</b> is it derived that even if he places it on <b>her roof,</b> in <b>her courtyard, or in her enclosure,</b> she is divorced? <b>The verse states: “And he gives,”</b> indicating that she is divorced <b>in any case.</b> Apparently one’s courtyard is considered an extension of his hand with regard to acquiring property, in this case, the bill of divorce.
+
+### Part 18
+The Gemara answers: <b>With regard to a bill of divorce everyone agrees that</b> placing an item in <b>a courtyard is included</b> as a valid means of acquisition <b>due to</b> the fact that it acts as <b>her hand. When they disagree,</b> it is <b>with regard to</b> acquiring <b>a found item</b> that was discovered in her courtyard. One <b>Sage,</b> Rabbi Yannai, <b>holds</b> that
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

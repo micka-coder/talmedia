@@ -1,0 +1,45 @@
+
+### Part 1
+<b>Granted,</b> with regard to <b>an animal that</b> actively <b>copulated with a person or an animal that was the object of bestiality, you find</b> circumstances in which the exemption for one who slaughters it outside the Temple courtyard cannot be based on the fact that it is not fit to be brought to the entrance of the Tent of Meeting, e.g., a case <b>where one initially consecrated it,</b> at which point it was fit to be brought to the Temple courtyard, <b>and then engaged in bestiality with it.</b> Since it was initially fit to be brought to the Temple courtyard, another verse is needed to exclude it.
+
+### Part 2
+<b>But</b> with regard to an animal that was <b>set aside</b> for idol worship <b>or</b> one that was <b>worshipped,</b> this explanation is not tenable, since an animal that was already consecrated would not become disqualified because <b>a person does not render forbidden an item that is not his.</b> The Gemara responds that it is possible to disqualify a consecrated item <b>in</b> the case of <b>offerings of lesser sanctity,</b> such as a peace offering, <b>and in accordance with</b> the opinion <b>of Rabbi Yosei HaGelili, who says: An offering of lesser sanctity is the property of the owner.</b>
+
+### Part 3
+This is <b>as it is taught</b> in a <i>baraita</i> that the verse states with regard to the obligation to bring a guilt offering for robbery for taking a false oath concerning unlawful possession of the property of another: “If anyone sin, <b>and commit a trespass against the Lord,</b> and deal falsely with his neighbor in a matter of deposit, or of pledge, or of robbery, or have oppressed his neighbor” (Leviticus 5:21). The term “against the Lord” serves <b>to include</b> one who takes an oath with regard to another’s <b>offerings of lesser sanctity, since they</b> are <b>the property of</b> their owner. This is <b>the statement of Rabbi Yosei HaGelili.</b>
+
+### Part 4
+The Gemara summarizes: <b>Therefore,</b> all of the cases listed in the mishna are cases in which the animal was initially fit to be brought to the entrance of the Tent of Meeting but was subsequently disqualified as an offering. <b>An animal that</b> actively <b>copulated with a person and an animal that was the object of bestiality</b> are disqualified after having been consecrated, due to <b>a matter of forbidden sexual intercourse.</b> An animal that was <b>set aside</b> for idol worship <b>or</b> one that <b>was worshipped</b> as an object of <b>idol worship</b> becomes forbidden after it was consecrated in the case <b>of an offering of lesser sanctity,</b> which according to Rabbi Yosei HaGelili is the property of its owner.
+
+### Part 5
+In the case of an animal that was given as <b>payment</b> to a prostitute <b>or</b> as the <b>price</b> of a dog, or an animal born of a mixture of <b>diverse kinds,</b> or an animal <b>born by caesarean section,</b> none of which could have occured at a time that the animal was fit to be sacrificed, the mishna is referring <b>to the offspring of sacrificial</b> animals that were given as payment to a prostitute or as the price of a dog while in utero. These animals were fit to be brought as a sacrifice while they were still part of a consecrated animal, and only following birth are they considered to be unfit for sacrifice.
+
+### Part 6
+Although these offspring are still part of a consecrated animal while in utero, and as such one might say that the status of payment to a prostitute or the price of a dog should not take effect with rgeard to them, the <i>tanna</i> of the mishna <b>holds</b> that with regard to <b>the offspring of sacrificial</b> animals, <b>they are sanctified</b> only <b>as they are</b> from the time of birth, but not in utero. Therefore, they can be disqualified by serving as payment to a prostitute or as the price of a dog.
+
+### Part 7
+§ The mishna cites a disagreement between the Rabbis and Rabbi Shimon with regard to temporarily <b>blemished</b> animals: Rabbi Shimon holds that one who sacrifices them outside the Temple courtyard violates a prohibition, as they will be fit for sacrifice after the passage of time, whereas the Rabbis hold that one is exempt. The mishna cites two similar disagreements: With regard to doves whose time of fitness has not yet arrived that are slaughtered outside the Temple courtyard, and with regard to one who slaughters an animal <b>itself and its offspring</b> on one day, where the latter, which is not fit for being sacrificed until the next day, is slaughtered outside the Temple courtyard.
+
+### Part 8
+The Gemara comments: <b>And</b> all of these cases <b>are necessary. As, if</b> the mishna had <b>taught</b> the disagreement only in the case of temporarily <b>blemished</b> animals, one would think that the Rabbis deem exempt one who sacrifices outside the Temple courtyard only in that case, <b>because they are repulsive; but</b> with regard to <b>doves</b> whose time of fitness has not yet arrived, <b>which are not repulsive</b> and which will be fit when their time arrives, <b>I will say</b> that this is <b>not</b> the <i>halakha</i>, and <b>that</b> the Rabbis <b>concede to Rabbi Shimon</b> that one does violate a prohibition.
+
+### Part 9
+<b>And if</b> the mishna had <b>taught</b> the disagreement only in the case of <b>doves</b> whose time of fitness has not yet arrived, one could say that it is only in this case that Rabbi Shimon holds that one who sacrifices them outside violates a prohibition, <b>because they are not</b> defined as: <b>Fit</b> for sacrifice <b>and rejected;</b> their time of fitness simply has not arrived. <b>But</b> with regard to temporarily <b>blemished</b> animals, <b>which were fit</b> for sacrifice <b>and</b> then <b>disqualified, I will say</b> that this is <b>not</b> the <i>halakha</i>, <b>as Rabbi Shimon concedes to the Rabbis</b> that one who sacrifices them outside the Temple courtyard does not violate a prohibition, since they are not fit to be sacrificed as offerings.
+
+### Part 10
+<b>And if</b> the mishna had <b>taught</b> only <b>these two</b> cases, i.e., temporarily blemished animals and doves whose time of fitness has not yet arrived, I would say that the Rabbis hold that one who slaughters them outside the Temple courtyard is not liable <b>because their disqualification</b> is <b>inherent. But</b> in the case of the animal <b>itself and its offspring,</b> where <b>the disqualification comes to</b> the offspring <b>from an external</b> factor, i.e., that its parent was slaughtered that day, <b>I will say</b> that <b>the Rabbis concede to Rabbi Shimon</b> that one who slaughters an animal and its offspring outside the Temple courtyard does violate the prohibition. Therefore, it is <b>necessary</b> for the mishna to teach the disagreement in each case.
+
+### Part 11
+§ The mishna teaches <b>that Rabbi Shimon says:</b> In the case of any sacrificial animal that is fit to be sacrificed after the passage of time, if one sacrificed it outside the courtyard, he is in violation of a prohibition but there is no liability for <i>karet</i>. Rabbi Shimon did not specify what prohibition is violated. The Gemara therefore asks: <b>What is the reasoning of Rabbi Shimon?</b>
+
+### Part 12
+<b>Rabbi Ile’a says</b> that <b>Reish Lakish says that the verse states: “You shall not do all that we do here this day,</b> every man whatsoever is right in his own eyes. For you have not as yet come to the rest and to the inheritance, which the Lord your God gives you” (Deuteronomy 12:8–9). <b>Moses said</b> the following <b>to the Jewish people: When you enter Eretz</b> Yisrael, <b>upright</b> offerings, i.e., offerings that one believes are proper to bring due to one’s own generosity, such as vow offerings and gift offerings, <b>you may sacrifice,</b> but <b>obligatory</b> offerings <b>you may not sacrifice,</b> even in the Tabernacle in Gilgal, until you arrive at “the rest,” i.e., Shiloh, at which point you may sacrifice them.
+
+### Part 13
+<b>And</b> since obligatory offerings during the period of <b>Gilgal, in relation to</b> the period of <b>Shiloh,</b> are considered offerings <b>whose time has not yet</b> arrived, <b>and Moses said to</b> the Jewish people concerning them: <b>“You shall not do,”</b> during that period, it follows that one who sacrifices an offering whose time has not yet arrived is in violation of the prohibition: “You shall not do.”
+
+### Part 14
+<b>Rabbi Yirmeya said to Rabbi Zeira:</b> Therefore, it is prohibited to sacrifice offerings whose time has not yet arrived, even if they are sacrificed in the Tabernacle as was the case in Gilgal. <b>If so,</b> anyone who sacrifices an offering whose time has not yet arrived, even if he sacrifices it inside the Temple courtyard,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

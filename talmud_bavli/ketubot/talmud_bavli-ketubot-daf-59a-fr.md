@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>sustentation en echange de ses gains, et</b> la <b>monnaie d'argent <i>maâ</i></b> qu'il doit lui donner <b>en echange du surplus</b> qu'elle continue a faire au-dela de son quota. <b>Et comme il ne lui donne pas de <i>maâ</i> d'argent, le surplus lui revient,</b> a moins qu'il n'en reste une partie apres sa mort, auquel cas le mari en herite. <b>Rav Adda bar Ahava soutient</b> que <b>ils ont etabli la subsistance en echange du surplus, et une <i>maâ</i> d'argent en echange de ses gains. Et puisqu'il lui fournit la subsistance, le surplus est a lui,</b> et donc la saintete prend effet sur lui des qu'elle produit le surplus.
+
+### Partie 2
+La Gemara demande : <b>A propos de quoi sont-ils en desaccord ?</b> La Gemara explique : Un <b>Sage,</b> c'est-a-dire Rav et Shmuel, <b>soutient que</b> ils ont etabli <b>quelque chose de commun</b> en echange <b>de quelque chose de commun.</b> Par consequent, ils ont etabli la subsistance, qui est commune, en echange de gains, qui sont egalement communs. <b>Et</b> un <b>Sage,</b> Rav Adda bar Ahava, <b>soutient que</b> ils ont etabli <b>quelque chose</b> avec <b>un montant fixe</b> en echange <b>de quelque chose</b> avec un <b>montant fixe.</b> Par consequent, puisqu'une <i>maâ</i> en argent est un montant fixe et que le quota des gains d'une femme est egalement fixe, ils ont etabli l'un en echange de l'autre.
+
+### Partie 3
+La Guemara <b>souleve une objection</b> a l'avis de Rav Adda bar Ahava a partir d'une <i>baraita</i> : <b>Ils ont etabli la subsistance en echange de ses gains.</b> Apparemment, la subsistance n'est pas en echange du surplus. La Guemara repond en emendant le texte de la <i>baraita</i> : <b>Dites :</b> Ils ont etabli la subsistance <b>en echange de l'excedent de ses gains.</b>
+
+### Partie 4
+La Guemara tente une autre preuve a partir d'une mishna (64b) : <b>Venez</b> et <b>entendez : S'il ne lui donne pas une <i>maâ</i> d'argent pour ses besoins, ses gains</b> lui appartiennent <b>a elle.</b> Cela indique que les gains ont ete etablis en echange de la <i>maâ</i> d'argent, comme le soutenait Rav Adda bar Ahava. La Guemara rejette cela en emendant le texte de la mishna : <b>Dit : le surplus de ses gains</b> appartient <b>a elle.</b> Le Gemara conteste l'emendation : <b>Mais il est enseigne</b> dans la suite <b>de cette</b> mishna : <b>Quel</b> est le montant fixe que <b>elle</b> doit <b>gagner pour lui ?</b> Elle doit filer le <b>poids</b> de <b>cinq <i>sela</i></b> de fils de la <b>chaine en Judee,</b> ce qui equivaut a dix <i>sela</i> selon les mesures de la Galilee. Cette clause implique que la mishna ne discute pas de l'excedent mais plutot du quota de ses gains requis.
+
+### Partie 5
+La Gemara repond : <b>C'est ce qu'elle dit : Quel est</b> le montant requis de <b>ses gains,</b> afin <b>que</b> l'on <b>puisse savoir quelle part</b> de ce qu'elle produit constitue <b>le surplus,</b> et a cela la mishna repond : <b>Le poids</b> de <b>cinq <i>sela</i></b> de fils de la <b>chaine en Judee, ce qui est</b> l'equivalent de <b>dix <i>sela</i></b> selon les mesures de <b>la Galilee.</b>
+
+### Partie 6
+§ <b>Shmuel dit :</b> La <b><i>halakha</i> est conforme</b> a l'avis du <b>Rabbin Yohanan le Cordonnier.</b> Un mari ne peut absolument pas consacrer les gains de sa femme, car ils n'ont pas encore vu le jour.
+
+### Partie 7
+La Guemara demande : <b>Et Shmuel</b> a-t-il reellement <b>dit cela ?</b> Mais <b>n'avons-nous pas appris</b> dans une mishna (<i>Nedarim</i> 85a) : Si une femme dit : <b>Ce que je fais pour te nourrir,</b> c'est-a-dire ce que je gagne pour toi, <b>est</b> interdit <b>comme une offrande</b> [<b><i>konam</i></b>], le mari <b>n'a pas besoin d'annuler</b> ce vœu. Elle a une obligation prealable de travailler pour lui, et donc le <i>konam</i> ne peut pas prendre effet sur quelque chose qui ne lui appartient pas. <b>Rabbi Akiva dit :</b> Meme ainsi, le mari <b>doit annuler</b> le vœu, <b>de peur qu'elle ne produise plus</b> de gains <b>que ce qui lui convient,</b> et le <i>konam</i> prendra alors effet sur le montant excedentaire. <b>Rabbi Yohanan ben Nuri a dit : Il doit annuler</b> le vœu pour une autre raison, <b>de peur qu'il ne divorce d'elle.</b> Puisqu'elle lui a rendu ses gains interdits, <b>elle sera interdite de se remarier</b> avec lui apres son divorce, car il lui sera alors impossible d'eviter de beneficier des gains de sa femme.
+
+### Partie 8
+<b>Et Shmuel dit :</b> La <b><i>halakha</i> est conforme</b> a l'opinion de <b>Rabbi Yohanan ben Nuri,</b> qui soutient que la femme peut rendre ses gains futurs interdits a son mari avant que ces gains n'aient vu le jour, l'interdiction devant entrer en vigueur apres son divorce. Cela impliquerait que Shmuel soutient qu'il est possible de consacrer un objet qui n'est pas encore venu au monde, contrairement a ce qu'a dit Rabbi Yohanan le Cordonnier. La Guemara repond : <b>Lorsque Shmuel a dit</b> que la <b><i>halakha</i> est conforme</b> a l'opinion de <b>Rabbi Yohanan ben Nuri,</b> il ne faisait reference qu'au <b>surplus.</b>
+
+### Partie 9
+La Gemara demande : Si c'est le cas, <b>qu'il dise</b> explicitement que la <b><i>halakha</i> est conforme</b> a l'avis du <b>Rabbin Yohanan ben Nuri en ce qui concerne le surplus,</b> ou <b>alternativement,</b> qu'il dise que la <b><i>halakha</i> n'est pas conforme a la premiere <i>tanna</i>,</b> ou <b>alternativement,</b> qu'il dise simplement : La <b><i>halakha</i> est conforme a Rabbi Akiva,</b> qui se preoccupe du surplus.
+
+### Partie 10
+<b>Au contraire,</b> l'expliquer differemment, comme <b>Rav Yosef a dit : As-tu parle</b> de <b><i>konamot</i></b> pour prouver ta these selon laquelle on peut consacrer des objets qui ne sont pas encore venus au monde ? <b><i>Konamot</i> sont differentes,</b> car elles ont un statut special, <b>puisqu'une personne peut s'interdire le produit d'un autre.</b> Si quelqu'un dit a un autre : Ton produit est <i>konam</i> pour moi, il lui est interdit de manger ce produit, bien qu'il ne lui appartienne pas et que l'interdiction ne s'appliquera a lui que lorsqu'il atteindra son domaine. Ceci indique qu'un <i>konam</i> possede un pouvoir unique qui permet a <b>une personne</b> de <b>consacrer un objet qui n'est pas</b> encore <b>venu au monde,</b> ce qui, selon Rabbi Yohanan le Cordonnier, constitue une exception au principe. Par consequent, la decision de Shmuel conformement a Rabbi Yohanan ben Nuri en ce qui concerne les <i>konamot</i> n'est pas pertinente pour son opinion sur la question des gains d'une epouse.
+
+### Partie 11
+<b>Abaye lui dit :</b> Cette analogie ne peut servir de preuve. <b>D'accord, une personne peut interdire a elle-meme le produit d'autrui,</b> mais cela est possible <b>parce qu'une personne peut interdire a autrui son propre produit.</b> Dans les deux cas, il y a au moins un aspect de l'interdiction qui est de son domaine, soit lorsqu'elle interdit a elle-meme le produit d'autrui, soit lorsqu'elle interdit a autrui le produit en sa propre possession. Cependant, on ne peut pas <b>interdire a autrui un objet qui n'est pas</b> encore venu au monde, puisqu'une personne ne peut pas interdire le produit d'autrui a autrui.</b> Tout comme il ne peut pas faire un <i>konam</i> et rendre interdit a autrui un produit qui n'est pas en sa possession, il ne peut pas non plus rendre interdit a autrui un produit qui n'est pas encore venu au monde. Dans ce cas, comment une femme peut-elle rendre ses gains interdits a son mari par un <i>konam</i> si ces gains ne sont pas encore venus au monde ?
+
+### Partie 12
+<b>Au contraire,</b> la Guemara rejette cette explication et explique plutot comme <b>Rav Huna, fils de Rav Yehoshua, a dit :</b> La mishna ne fait pas reference a un cas ou elle a dit : Mes gains sont <i>konam</i> a toi, mais plutot a un <b>cas ou elle dit : Mes mains sont consacrees a Celui qui les a faites,</b> et ce <i>konam</i> peut prendre effet <b>parce que les mains</b> n'existent <b>pas dans le monde.</b>
+
+### Partie 13
+La Guemara demande : <b>Lorsqu'elle dit cela</b> en ces termes <b>cela devient-il consacre ? Elle est assujettie a</b> son mari en ce qui concerne ses gains, alors comment peut-elle consacrer ce qui ne lui appartient pas ? La Gemara repond : <b>Elle dit</b> que la consecration prendra effet <b>lorsqu'elle divorcera</b> de son mari.
+
+### Partie 14
+La Guemara demande : <b>Y a-t-il quelque chose</b> que l'on ferait <b>de sorte que si</b> on le fait <b>au present,</b> la <b>consecration</b> pourrait <b>ne pas</b> prendre effet <b>et dans le futur</b> la <b>consecration</b> pourrait prendre effet ? <b>Rabbi Elai a dit : Pourquoi pas ? Si l'un disait a un autre : Ce champ que je te vends sera consacre lorsque je te le racheterai</b>, ce champ ne <b>devient-il pas consacre</b> lorsqu'il le rachete ? Il semble que l'on puisse faire en sorte qu'un objet devienne consacre dans le futur bien qu'a present il ne puisse pas le consacrer.
+
+### Partie 15
+<b>Rabbi Yirmeya s'oppose a cela : Est-ce que</b> ces cas sont <b>comparables ? La,</b> en ce qui concerne un champ, puisque le champ qu'il vend lui appartient au moment de la vente, <b>il est en son pouvoir de le consacrer</b> maintenant. Par consequent, il peut effectuer la saintete sur lui a un moment ulterieur egalement. Mais <b>ici, il n'est pas en son pouvoir de se divorcer.</b> Par consequent, l'analogie n'est pas valable. Au contraire, <b>cette situation n'est comparable qu'a</b> un cas different, lorsque <b>quelqu'un dit a un autre : Ce champ que je</b> t'ai deja <b>vendu sera consacre lorsque je te le racheterai</b>.</b> Dans ce cas, le champ <b>n'est pas consacre,</b> car, lorsqu'il a dit cela, le champ n'etait pas en sa possession, et on ne peut pas consacrer un objet qui n'est pas encore venu au monde.
+
+### Partie 16
+<b>Rav Pappa s'oppose a cela : L'analogie de Rav Yirmeya est-elle</b> <b>comparable ? La-bas,</b> le champ <b>en soi et</b> son <b>produit</b> sont <b>en possession de l'acheteur,</b> et donc le vendeur ne peut les consacrer. <b>Ici, son corps est en sa possession,</b> comme elle possede ses mains. Au contraire, <b>cette situation n'est comparable qu'a</b> un cas ou <b>quelqu'un dit a un autre:</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

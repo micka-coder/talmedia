@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Cependant,</b> si <b>elle est soupconnee</b> d'avoir eu des rapports <b>avec lui, meme si elle est</b> egalement soupconnee</b> d'avoir eu des rapports <b>avec d'autres, nous jetons</b> l'enfant <b>apres lui.</b>
+
+### Partie 2
+<b>Rava dit : D'ou est-ce que je dis cela ? </b> Ma source est la mishna qui <b>enseigne</b> que si un pretre a eu des rapports extraconjugaux avec une femme israelite et que celle-ci <b>a accouche, elle peut participer</b> au <i>teruma</i> du a son enfant. <b>Quelles sont les circonstances ? Si l'on dit qu'il y a rumeur</b> qu'elle a eu des rapports sexuels <b>avec lui et qu'il n'y a pas rumeur</b> qu'elle a eu des rapports sexuels <b>avec d'autres, faut-il dire qu'elle peut participer</b> au <i>teruma</i> ? On peut facilement supposer que le pretre est le pere. <b>Au contraire, n'est-ce pas</b> un cas <b>ou l'on dit qu'elle a eu des rapports <b>avec d'autres personnes egalement ?</b>
+
+### Partie 3
+<b>Et si la, ou</b> pour elle <b>de s'engager dans des rapports avec <b>ce pretre</b> est une violation de <b>une interdiction et de</b> s'engager dans des rapports avec <b>ce non-pretre</b> est une violation de <b>une interdiction</b> du meme degre, et qu'elle a, selon la rumeur, des rapports avec les deux, neanmoins, <b>on jette</b> l'enfant <b>apres</b> le pretre, alors <b>ici, ou</b> pour elle <b>d'avoir des rapports avec <b>cette</b> homme qui n'est pas son fiance est une violation d'une <b>interdiction de la Torah et d'avoir</b> des rapports avec <b>cette homme</b>, son fiance, <b>est autorise</b> par la loi de la Torah, n'est-ce pas <b>d'autant plus</b> qu'il doit etre considere comme le pere ?
+
+### Partie 4
+<b>Abaye lui a dit : En fait, je</b> pourrais <b>vous dire</b> que <b>a chaque fois qu'il y a rumeur</b> qu'elle a eu des rapports <b>avec d'autres personnes, meme si elle est</b> aussi <b>rumeur</b> d'avoir eu des rapports <b>avec lui, le Rav dit</b> que <b>la progeniture est un <i>mamzer</i>. Et la mishna,</b> que vous avez citee a l'appui de votre affirmation, fait reference a une situation <b>ou il n'y a pas de rumeur</b> qu'elle ait eu des rapports avec quelqu'un <b>du tout.</b> Par consequent, s'ils sont tous deux d'accord pour dire qu'il est le pere, l'enfant est considere comme le sien.
+
+### Partie 5
+§ Il est indique dans la mishna que <b>un esclave disqualifie</b> une femme de participer a la <i>teruma</i> <b>en raison</b> du fait qu'il a eu des <b>rapports</b> avec elle, mais pas parce qu'il est sa progeniture. La Gemara demande : <b>Quelle est la raison</b> pour laquelle il ne disqualifie pas une femme dont il est la progeniture ? <b>Le verset stipule</b> a propos d'une servante mariee a un esclave hebreu, que lorsqu'il est libere, <b>"la femme et ses enfants seront</b> a son maitre" (Exode 21:4). Cela indique que les enfants de la servante sont consideres comme les siens et ne sont pas du tout consideres comme la progeniture de leur pere. Par consequent, l'enfant d'une servante n'empeche pas sa grand-mere paternelle de participer a la <i>teruma</i>.
+
+### Partie 6
+§ Il est dit dans la mishna que <b>un <i>mamzer</i> disqualifie</b> une femme de prendre part au <i>teruma</i>, <b>et il</b> aussi <b>permet</b> a une femme <b>de prendre part</b> au <i>teruma</i>. <b>Les Sages ont enseigne :</b> La Torah stipule : "Mais si la fille d'un pretre est veuve, ou divorcee, <b>et n'a pas d'enfant</b>, elle peut manger le pain de son pere" (Levitique 22:13). <b>J'ai</b> deduit <b>seulement</b> que <b>sa</b> propre <b>enfant</b> la disqualifie de la participation au <i>teruma</i> ; <b>d'ou</b> deduis-je que <b>l'enfant de son enfant</b> la disqualifie egalement ? <b>Le verset indique : "Et elle n'a pas d'enfant [<i>zera</i>]" du tout,</b> ce qui indique que meme son petit-enfant la disqualifie, car <i>zera</i> signifie progeniture.
+
+### Partie 7
+<b>J'ai</b> deduit <b>seulement</b> que <b>un enfant sans defaut</b> la disqualifie ; <b>d'ou</b> deduis-je que <b>un enfant impropre</b> la disqualifie egalement ? <b>Le verset stipule : "Et elle n'a pas [<i>ein la</i>] d'enfant,"</b> ce qui peut etre interprete homiletiquement comme <b>examinez-la [<i>ayyein ala</i>]</b> pour verifier si elle a une descendance, apte ou inapte.
+
+### Partie 8
+La Guemara demande : <b>Mais n'avez-vous pas</b> deja <b>deduit</b> de cette phrase <b>que l'enfant de son enfant</b> la disqualifie ? La Guemara repond : Pour deduire la <i>halakha</i> en ce qui concerne <b>l'enfant de son enfant, aucun verset n'etait necessaire,</b> car <b>les enfants des enfants sont</b> consideres <b>comme des enfants. Le verset etait</b> donc <b>necessaire pour</b> deriver la <i>halakha</i> d'un <b>enfant inapte.</b>
+
+### Partie 9
+<b>Reish Lakish dit a Rabbi Yohanan : Conformement a l'avis de qui</b> l'hypothese de la mishna selon laquelle l'enfant d'une juive et d'un esclave ou d'un gentil est un <i>mamzer</i> ? Est-elle <b>conforme</b> seulement <b>a l'opinion de <b>Rabbi Akiva, qui a dit</b> que la progeniture de relations <b>pour lesquelles</b> on <b>est responsable</b> de la violation d'un <b>interdit est un <i>mamzer</i>?</b> La Gemara repond : <b>Vous</b> pouvez <b>meme dire</b> que c'est en accord avec <b>les Rabbins,</b> qui considerent que la progeniture est un <i>mamzer</i> seulement si les parents sont susceptibles de recevoir <i>karet</i>. Ceci parce que <b>ils concedent en ce qui concerne un esclave et un gentil, comme lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yitzhak bar Avdimi a dit au nom de Rabbi</b> Yehuda HaNasi : En ce qui concerne <b>un gentil ou un esclave qui s'est engage dans des rapports sexuels avec une femme juive, la progeniture est un <i>mamzer</i>.</b>
+
+### Partie 10
+§ Il a ete enseigne dans la mishna que meme <b>un grand pretre disqualifie parfois</b> sa grand-mere de participer a la <i>teruma</i>. <b>Les Sages ont enseigne</b> qu'elle peut dire en signe de desapprobation : <b>Je fais ici l'expiation pour le fils de ma fille, la petite cruche [<i>kuza</i>],</b> c'est-a-dire le <i>mamzer</i>. Il m'est cher et je suis pret a souffrir pour l'expier, <b>car il</b> est ma progeniture d'un pretre et me <b>permet donc de participer au <i>teruma</i>. Cependant, je ne suis pas</b> dispose a etre <b>reparateur pour le fils de ma fille, la grande cruche [<i>kada</i>],</b> le grand pretre, <b>car il</b> est ma progeniture d'un Israelite et donc <b>disqualifie de</b> participer a <b><i>teruma</i>.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

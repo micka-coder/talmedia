@@ -1,0 +1,48 @@
+
+### Part 1
+<b>as one does not derive</b> a <i>halakha</i> in <b>a lenient</b> case <b>from</b> the <i>halakha</i> in a more <b>stringent</b> one in a manner that would cause one <b>to be stringent</b> in the more lenient case. Since the case of a leper is more stringent than that of a nazirite, as a leper must shave his entire body, one cannot derive from the <i>halakhot</i> of a leper that a stringent <i>halakha</i> applies to a nazirite. It is therefore necessary for the verse to specify that a nazirite’s final shaving must be performed with a razor.
+
+### Part 2
+<b>Rabbi</b> Yehuda HaNasi <b>says</b> that the term “razor” itself <b>is not necessary</b> to teach that a nazirite’s final shaving must be performed with a razor, <b>as</b> the verse <b>states: “A razor shall not come upon his head until the completion</b> of the days that he vowed naziriteship to God” (Numbers 6:5). This full sentence indicates that <b>the Torah said: After the completion</b> of his term <b>the shaving must be</b> performed <b>only with a razor.</b>
+
+### Part 3
+The Gemara comments: Rabbi Yehuda HaNasi claims that the term “razor” indicates that shaving, in this case that of a nazirite after the completion of his term, may be performed only with a razor. If so, the verse should be understood in the same manner with regard to the prohibition of shaving. <b>But</b> if one examines the first part of the verse by itself, <b>isn’t it written: “A razor shall not come upon his head”</b> (Numbers 6:5), and the first <i>tanna</i>, whose opinion Rabbi Yehuda HaNasi does not dispute, derives from this verse that he is prohibited from shaving by other means as well, notwithstanding the explicit mention of a razor.
+
+### Part 4
+The Gemara explains that the phrase “shall not come upon his head” teaches that a nazirite may not remove his hair in any manner. As for the mention of razor in this context, it serves to teach <b>that he will violate two prohibitions for this</b> action of using a razor, one for removing his hair and one for doing so with a razor.
+
+### Part 5
+§ Concerning a nazirite who shaves his hair, <b>Rav Ḥisda says:</b> With regard <b>to flogging,</b> a nazirite who shaved his hair is flogged <b>for</b> shaving even <b>one</b> hair; with regard <b>to invalidation,</b> i.e., the ritual shaving of his hair at the end of his naziriteship, the shaving is <b>invalidated</b> if he failed <b>to</b> remove <b>two</b> hairs; and as <b>for negating</b> his naziriteship, shaving during his term <b>negates</b> it <b>only if</b> he shaved <b>most of his head. And</b> this applies only if he removed his hair <b>with a razor.</b>
+
+### Part 6
+The Gemara asks: This indicates that according to the opinion of Rav Ḥisda, a nazirite who shaved <b>with a razor, yes,</b> he negates thirty days, whereas if he did so <b>with anything else, no,</b> he does not negate days. <b>But isn’t it taught: From where</b> is it derived <b>to include all</b> implements <b>that remove</b> hair, i.e., that a nazirite is liable if he uses any of them? The verse states: “Shall not come upon his head,” meaning in any manner. This indicates that a nazirite must add days to his term of naziriteship even if he shaved with an implement other than a razor. <b>Rather, say</b> that Rav Ḥisda meant: <b>In the manner of a razor.</b> That is, the nazirite negates his naziriteship only if he removes his hair as one does with a razor, without leaving any part of it.
+
+### Part 7
+<b>This</b> opinion <b>is also taught</b> in a <i>baraita</i> (<i>Tosefta</i> 4:3): With regard to <b>a nazirite who tore out, uprooted,</b> or <b>pulled out any amount</b> of hair, this <b>negates</b> days of his naziriteship <b>only if</b> he shaved <b>most of his head, and</b> only if he did so <b>in</b> the manner of <b>a razor. Rabbi Shimon ben Yehuda says in the name of Rabbi Shimon: Just as</b> leaving <b>two hairs invalidates his</b> shaving of ritual purity at the end of his term, and the act is considered incomplete, <b>so too,</b> leaving a mere <b>two hairs negates</b> days of <b>his</b> naziriteship, if he shaved during his term.
+
+### Part 8
+§ <b>We learned</b> in a mishna <b>there</b> (<i>Nega’im</i> 14:4): <b>Three</b> types of people must <b>shave</b> their hair, <b>and their shaving</b> is <b>a mitzva: A nazirite; and a leper,</b> as it is stated: “And he who is to be cleansed shall wash his clothes, and shave off all his hair” (Leviticus 14:8–9). <b>And</b> the third category is <b>Levites,</b> when they were first sanctified for their service, as it is stated: “And this you shall do to them to cleanse them: Sprinkle the water of purification upon them, and let them cause a razor to pass over all their flesh” (Numbers 8:7). <b>And</b> with regard to <b>all of them, if they shaved with</b> an implement <b>other than a razor, or if they left two hairs</b> uncut, <b>they have done nothing,</b> i.e., they have not fulfilled their obligation.
+
+### Part 9
+The Gemara analyzes this mishna. <b>The Master said</b> there: <b>Three</b> types of people must <b>shave</b> and cut their hair, <b>and their shaving</b> is <b>a mitzva.</b> The Gemara asks: This <b>is obvious;</b> after all, doesn’t the Torah command all three to shave? The Gemara answers: The statement of the mishna is necessary, <b>lest you say</b> that the mitzva <b>is due to</b> and aimed at the <b>removal of hair, and</b> therefore <b>even one who applied a depilatory [<i>nasha</i>]</b> to remove his hair has fulfilled his obligation. The mishna therefore <b>teaches us that</b> this is <b>not</b> so, as the mitzva must be performed by shaving.
+
+### Part 10
+The mishna further <b>teaches: And</b> with regard to <b>all of them, if they shaved with</b> an implement <b>other than a razor,</b> they have done nothing. The Gemara asks: <b>Granted, with regard to a nazirite</b> the source of this <i>halakha</i> is clear, as <b>it is written: “A razor shall not come upon his head”</b> (Numbers 6:5), which indicates that when he does shave he must do so with a razor. <b>And</b> similarly, <b>with regard to</b> the <b>Levites it is written: “And let them cause a razor to pass over all their flesh”</b> (Numbers 8:7). <b>However, from where do we</b> derive that <b>a leper</b> must be shaved <b>with a razor</b> for his ritual purification?
+
+### Part 11
+<b>And if you would say</b> that this <i>halakha</i> <b>is derived from</b> the case of the <b>Levites,</b> as, <b>just as Levites require shaving and their shaving is only with a razor, so too, I will bring</b> the case of <b>a leper, who requires shaving and</b> say that <b>his shaving</b> can likewise be performed <b>only with a razor,</b> then this comparison <b>can be refuted. What</b> is unique <b>about Levites</b> is <b>that</b> they have an extra stringency, in that <b>they require waving of their bodies,</b> i.e., Aaron was required to pick up and wave the bodies of the Levites as part of the ritual of their sanctification (see Numbers 8:11). Will <b>you say</b> the same <b>with regard to a leper, who</b> does <b>not</b> require waving?
+
+### Part 12
+<b>Rather,</b> the <i>halakha</i> that a leper must use a razor is <b>derived from</b> the case of <b>a nazirite,</b> who does not require waving either. However, this comparison can also be refuted: <b>What</b> is unique <b>about the nazirite</b> is <b>that his offering requires bread. Will you say</b> the same <b>with regard to a leper,</b> who does <b>not</b> require bread as part of his purification process? <b>Rather,</b> clearly the <i>halakha</i> of a leper is <b>not derived</b> from either <b>one</b> of the above cases, that of the Levites or the nazirite. Therefore, <b>let it be derived from the two of them.</b>
+
+### Part 13
+The Gemara elaborates: As stated previously, <b>from which</b> single case <b>can it be derived?</b> If you say it <b>can be derived from</b> the <b>Levites, what</b> is unique <b>about Levites</b> is <b>that they require waving of their bodies.</b> This suggestion can be countered by saying that the case of <b>a nazirite proves</b> that this stringency is not the decisive factor leading to the requirement of a razor, as a nazirite is not waved and yet he must be shaved with a razor. And if you respond: <b>What</b> is unique <b>about the nazirite</b> is <b>that his offering requires bread,</b> one can similarly argue that the <b>Levites prove</b> that this stringency does not lead to the <i>halakha</i> of shaving with a razor, as the offering of the Levites does not require bread and nevertheless they must be shaved with a razor.
+
+### Part 14
+<b>And</b> in this manner <b>the derivation has reverted</b> to its starting point. However, at this stage the <i>halakha</i> is derived from a combination of the two sources: <b>The aspect of this</b> case <b>is not like the aspect of that</b> case, <b>and the aspect of that is not like the aspect of this;</b> each case has its own special features. <b>The common denominator is that they require shaving and their shaving is with a razor.</b> Therefore, <b>I will also bring</b> the case of <b>the leper, who requires shaving, and</b> say that <b>his shaving</b> must be <b>with a razor.</b>
+
+### Part 15
+<b>Rava of Barnish said to Rav Ashi: And let us refute</b> this deriva-tion in the following manner: <b>What</b> is the common denominator between the Levites and the nazirite? <b>Their common denominator is that</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+of <b>gallnuts [<i>aftzei</i>] that were</b> worth <b>six</b> dinars for <b>each</b> <i>kav</i> at the time? The creditor <b>said to him: Weren’t they</b> worth <b>four</b> dinars for <b>each</b> <i>kav</i> at the time? <b>Two witnesses came and said: Yes, they were</b> worth <b>four</b> dinars per <i>kav</i>. <b>Rava said</b> that the debtor <b>assumes the presumptive status of one who</b> falsely <b>denies</b> his debts. <b>Rami bar Ḥama said: But didn’t you say</b> that <b>anything that is not incumbent upon a person is not on his mind?</b> Perhaps he merely forgot what the price of gallnuts was at the time that he paid. <b>Rava said to him: People remember the</b> standard, <b>set</b> market <b>price.</b>
+
+### Part 2
+The Gemara relates: There was <b>a certain</b> person <b>who said to another: Give me</b> the <b>hundred dinars that I claim from you, and this is the</b> promissory <b>note</b> attesting to the debt. The latter <b>said to him: I</b> already <b>repaid you.</b> The creditor <b>said to him: That</b> money you gave me <b>was</b> for <b>a different</b> debt. <b>Rav Naḥman said</b> that <b>the</b> promissory <b>note is undermined</b> by the fact that the creditor admits that he received payment equal to the amount specified in the note, and his claim that there was an additional debt is unsubstantiated. <b>Rav Pappa said</b> that <b>the</b> promissory <b>note is not undermined.</b>
+
+### Part 3
+The Gemara asks: <b>But according to Rav Pappa,</b> in <b>what</b> way <b>is</b> this case <b>different from</b> the incident where <b>a certain</b> person <b>said to another: Give me</b> the <b>hundred dinars that I claim from you, and this is the</b> promissory <b>note.</b> The latter <b>said to him: Didn’t you give me</b> that money as an investment to be used <b>for</b> buying <b>oxen</b> to be slaughtered? <b>And you came and sat in the slaughterhouse and received your money,</b> including your share of the profits, from the sale of the slaughtered oxen. <b>And</b> the creditor <b>said to him: That</b> money you gave me <b>was</b> for <b>a different</b> debt. <b>And Rav Pappa said</b> that in that case <b>the</b> promissory <b>note is undermined.</b>
+
+### Part 4
+The Gemara answers: <b>There, since</b> the debtor <b>said: You gave me</b> the money <b>for oxen and you took</b> payment <b>from oxen,</b> and the creditor admitted that this had happened, <b>the</b> promissory <b>note is undermined</b> because there is no support for his claim that there was another debt in addition to the acknowledged transaction for the oxen. <b>Here, say</b> that the payment <b>was</b> in fact for <b>a different</b> debt.
+
+### Part 5
+<b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? <b>Rav Pappi said: The</b> promissory <b>note is not undermined,</b> and <b>Rav Sheshet, son of Rav Idi, said: The</b> promissory <b>note is undermined. And the <i>halakha</i></b> is that <b>the</b> promissory <b>note is undermined.</b>
+
+### Part 6
+<b>And this statement</b> applies in a case <b>where he repaid him in the presence of witnesses and did not mention the</b> promissory <b>note to</b> the creditor; <b>but</b> in a case where <b>he repaid him</b> privately, <b>between the two of them,</b> in the absence of witnesses, <b>since [<i>miggo</i>]</b> the creditor <b>can say to him:</b> This <b>matter never happened,</b> i.e., he could deny that he received any payment, <b>he can also say</b> that <b>this</b> money was for <b>a different</b> debt. <b>And</b> this is <b>like</b> the case involving <b>Avimi, son of Rabbi Abbahu,</b> who repaid a debt in the absence of witnesses, and the creditor then claimed that the payment was for another debt (see <i>Ketubot</i> 85a).
+
+### Part 7
+The Gemara relates: There was <b>a certain</b> person <b>who said to another</b> who had lent him money: <b>I deem you credible whenever you say to me</b> that <b>I did not repay</b> the debt. He then <b>went</b> and <b>repaid</b> the debt <b>in the presence of witnesses,</b> and the creditor later denied that he had been repaid. <b>Abaye and Rava both say</b> that the witnesses are not deemed credible and the creditor can collect payment, as the debtor <b>deemed him credible</b> at the outset. <b>Rav Pappa objects to this</b> and says: <b>Although he deemed him more credible than himself</b> concerning the possibility that the debtor would claim that he repaid the debt and the creditor would deny having been repaid, <b>did he deem him more credible than witnesses?</b> Therefore, he is exempt.
+
+### Part 8
+The Gemara relates: There was <b>a certain</b> person <b>who said to another</b> who had lent him money: <b>I deem you credible like two</b> witnesses <b>whenever you say</b> that <b>I did not repay</b> the debt. <b>He went</b> and <b>repaid</b> the debt <b>in the presence of three</b> witnesses. <b>Rav Pappa said</b> that the creditor cannot deny the testimony of three witnesses, as the debtor <b>deemed him credible like two</b> witnesses; <b>he did not deem him credible like three</b> witnesses.
+
+### Part 9
+<b>Rav Huna, son of Rav Yehoshua, said to Rav Pappa: Say</b> that although <b>the Sages say that we follow the majority of opinions,</b> and the opinion of three people is therefore accepted against the opinion of two, <b>this statement</b> applies <b>with regard to assessing</b> value, <b>as the more</b> people there are, <b>the more knowledgeable they are. But with regard to testimony, one hundred</b> witnesses <b>are like two, and two are like one hundred.</b> Therefore, in this case there is no distinction between two witnesses and three witnesses.
+
+### Part 10
+The Gemara presents <b>another version</b> of the incident: <b>A certain</b> person <b>said to another</b> who had lent him money: <b>I deem you credible like two</b> witnesses <b>whenever you say</b> that <b>I did not repay. He went and repaid</b> the debt <b>in the presence of three</b> witnesses. <b>Rav Pappa said</b> that the creditor cannot deny their testimony, as the debtor <b>deemed him credible like two</b> witnesses; <b>he did not deem him credible like three</b> witnesses.
+
+### Part 11
+<b>Rav Huna, son of Rav Yehoshua, objects to this: Two</b> witnesses <b>are like one hundred, and one hundred are like two. But if</b> the debtor <b>said to</b> the creditor that he deems him credible <b>like three</b> witnesses, <b>and</b> then <b>went</b> and <b>repaid him in the presence of four,</b> then <b>once he entered,</b> by mentioning a larger number than what is necessary for testimony, the realm of <b>opinions,</b> in which three people carry greater weight than two, <b>he has entered</b> the realm of <b>opinions,</b> and four witnesses are deemed more credible than three. Therefore, the creditor is not deemed credible against them.
+
+### Part 12
+§ The mishna teaches: <b>One does not take an oath concerning the claim of a deaf-mute, an imbecile, or a minor, and</b> the court <b>does not administer an oath to a minor.</b> The Gemara asks: <b>What is the reason?</b> The Gemara answers that in the passage from which the <i>halakhot</i> of admission to part of a claim are derived, <b>the verse states: “If a man delivers to his neighbor silver or vessels to safeguard”</b> (Exodus 22:6). The word “man” indicates that the reference is only to adults, and <b>delivery by a minor is nothing,</b> i.e., it is not recognized as a halakhically significant act, as a minor is not halakhically competent.
+
+### Part 13
+§ The mishna teaches: <b>But one does take an oath to a minor, or to</b> a representative of <b>the Temple</b> treasury with regard to consecrated property. The Gemara asks: <b>But didn’t you say</b> in <b>the first clause</b> that <b>one does not take an oath concerning the claim of</b> a deaf-mute, <b>an imbecile, or a minor?</b>
+
+### Part 14
+<b>Rav said:</b> The <i>halakha</i> that one takes an oath concerning the claim of a deaf-mute, an imbecile, or a minor is <b>with regard to</b> one who <b>comes</b> to court <b>with a claim</b> for a debt owed <b>to his</b> late <b>father, and it is</b> in accordance with the opinion of <b>Rabbi Eliezer ben Ya’akov, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer ben Ya’akov says:</b> There are <b>times when</b> although no one claimed of a person that he owes money, that <b>person takes an oath on</b> the basis of <b>his own claim. How</b> so? If one <b>said to</b> another: <b>Your father had one hundred dinars in my possession, but I provided him</b> with repayment of <b>half</b> that amount, he is liable to <b>take an oath</b> that he repaid half; <b>and that is</b> the case of one <b>who takes an oath on</b> the basis of <b>his own claim. And the Rabbis say:</b> In that case <b>he is only like one returning a lost item,</b> as the son did not claim the money at all, <b>and</b> is <b>exempt</b> from taking an oath.
+
+### Part 15
+The Gemara asks: <b>But is Rabbi Eliezer ben Ya’akov not of</b> the opinion that <b>one who returns a lost item</b> is <b>exempt</b> from taking an oath attesting to the fact that he did not take anything from it? <b>Rav said:</b> The <i>baraita</i> is referring to a case <b>where a minor advanced a claim</b> against <b>him.</b> The creditor’s minor son claimed that the debtor did not repay any part of the loan to his father. The debtor’s partial admission came in response to that claim. Therefore, his admission is not comparable to the act of returning a lost item.
+
+### Part 16
+The Gemara asks: How can the <i>baraita</i> be referring to the claim of <b>a minor? But didn’t you say</b> in the mishna that <b>one does not take an oath concerning the claim of a deaf-mute, an imbecile, or a minor?</b> The Gemara answers: <b>Actually,</b> the reference is to <b>an adult</b> son; <b>and why did</b> Rav <b>call him a minor?</b> It was due to the fact <b>that with regard to his father’s matters,</b> one <b>is</b> like <b>a minor,</b> as he is uncertain about the particulars of his father’s dealings. Here, too, Rav explains that the <i>halakha</i> in the mishna that one takes an oath to a minor is referring to an adult claiming a debt owed to his late father.
+
+### Part 17
+The Gemara asks: <b>If so,</b> if the son making the claim has already reached majority, the language of the <i>baraita</i> is imprecise. Why does the <i>tanna</i> describe the individual as one taking an oath on the basis of <b>his own claim?</b> This is not his own claim; <b>it is the claim of others.</b> The Gemara answers: The <i>baraita</i> employed that language because although it is <b>the claim of others,</b> he is taking an oath on the basis of that claim <b>and his own</b> partial <b>admission.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

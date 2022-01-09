@@ -1,0 +1,45 @@
+
+### Partie 1
+<strong>MISHNA :</strong> Il a ete enseigne dans le chapitre precedent que les offrandes de l'ordre le plus sacre doivent etre abattues dans la section nord de la cour du Temple. En ce qui concerne les <b>offrandes de l'ordre le plus sacre que l'on a abattues au sommet de l'autel, Rabbi Yosei dit :</b> Leur statut est <b>comme si elles avaient ete abattues au nord,</b> et les offrandes sont donc valides. <b>Rabbi Yosei, fils de Rabbi Yehuda, dit :</b> Le statut de la zone <b>de la moitie de l'autel et au sud</b> est <b>comme</b> celui du <b>sud,</b> et les offrandes de l'ordre le plus sacre abattues dans cette zone sont donc disqualifiees. Le statut de la zone <b>de la moitie de l'autel et vers le nord</b> est <b>comme</b> celui du <b>nord.</b>
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Rav Asi dit</b> que <b>Rabbi Yohanan dit : Rabbi Yosei avait l'habitude de dire : L'autel entier se trouve dans la section nord</b> de la cour du Temple. La Guemara demande : <b>Et quel est le sens</b> de la declaration de Rabbi Yosei selon laquelle si l'on egorge des offrandes de l'ordre le plus sacre au sommet de l'autel, c'est <b>comme si</b> elles etaient egorgees au nord, ce qui indique qu'elles n'ont pas ete reellement egorgees au nord ? La Guemara repond : Rabbi Yosei dit ceci <b>afin que l'on ne dise</b> que <b>nous exigeons</b> que l'offrande soit abattue <b>" du cote</b> de l'autel vers le nord" (Levitique 1:11), c'est-a-dire sur le sol a cote de l'autel, <b>et</b> cette exigence <b>n'est pas</b> remplie lorsqu'elle est abattue au sommet de l'autel. Par consequent, Rabbi Yosei <b>nous enseigne</b> que l'offrande est toujours valide.
+
+### Partie 3
+<b>Rabbi Zeira dit a Rav Asi:</b> Rabbi Yohanan comprend apparemment que la raison pour laquelle Rabbi Yosei soutient qu'une offrande de l'ordre le plus sacre abattue sur l'autel est valide, c'est parce que l'autel entier se trouve dans la section nord de la cour du Temple. <b>Si c'est le cas,</b> doit-on <b>aussi</b> dire <b>que selon Rabbi Yosei, fils de Rabbi Yehuda, la moitie</b> de l'autel etait situee <b>au nord</b> de la cour du Temple <b>et la moitie</b> etait situee <b>au sud?</b>.
+
+### Partie 4
+<b>Et si vous disiez</b> que <b>en effet</b> c'est le cas, <b>n'est-ce pas vous qui avez dit au nom de Rabbi Yohanan</b> que <b>Rabbi Yosei, fils de Rabbi Yehuda, concede que si on egorgeait</b> des offrandes de l'ordre le plus sacre <b>sur le sol en face</b> de la moitie nord de l'autel, l'offrande est <b>disqualifiee ? </b> En consequence, Rabbi Yosei, fils de Rabbi Yehuda, soutient apparemment que l'autel n'est pas du tout situe au nord.
+
+### Partie 5
+Rav Asi <b>a dit a</b> Rabbi Zeira : La declaration de Rabbi Yohanan concernant l'opinion de Rabbi Yosei est une declaration independante plutot qu'une deduction de la mishna. Et en ce qui concerne la dispute dans la mishna, <b>ceci</b> est ce que <b>Rabbi Yohanan dit : Tous deux ont tire</b> leurs opinions <b>d'un seul verset :</b> "Tu me feras un autel de terre, <b>et tu y immoleras tes holocaustes et tes offrandes de paix"</b> (Exode 20:21).
+
+### Partie 6
+<b>Rabbi Yosei soutient</b> que le verset enseigne que <b>tout cela,</b> c'est-a-dire l'autel entier, est apte <b>a l'abattage</b> d'un holocauste, et tout cela</b> est egalement apte <b>a l'abattage</b> d'un sacrifice de paix. Et Rabbi Yosei, fils de Rabbi Yehuda, soutient</b> que le verset enseigne que la moitie est apte a l'abattage d'un holocauste et la moitie est apte a l'abattage d'un sacrifice de paix.
+
+### Partie 7
+La Guemara explique le raisonnement de Rabbi Yosei, fils de Rabbi Yehuda : <b>Comme si</b> il <b>vous venait a l'esprit</b> que <b>tout est propre a</b> l'abattage d'un <b>holocauste, maintenant</b> que <b>tout est propre a</b> l'abattage d'un <b>holocauste, </b> qui doit etre egorgee dans la partie nord de la cour du Temple (voir 53b), <b>est-il necessaire</b> d'enseigner qu'elle est egalement apte <b>a</b> l'egorgement d'une <b>offrande de paix,</b> qui peut etre egorgee n'importe ou dans la cour du Temple (voir 55a) ? Le verset doit donc etre compris comme enseignant que la moitie de l'autel est apte a l'abattage d'holocaustes et l'autre moitie a l'abattage d'offrandes de paix.
+
+### Partie 8
+La Guemara demande : <b>Et</b> comment l'autre Sage</b>, Rabbi Yosei, repond-il a ce raisonnement ? La Guemara repond : Il <b>etait necessaire</b> que le verset mentionne les offrandes de paix. Sinon, il pourrait <b>entrer dans votre esprit de dire</b> que le verset permet d'egorger uniquement <b>un holocauste</b> au sommet de l'autel, <b>car l'endroit</b> ou <b>il</b> peut etre egorge a meme le sol est <b>etroit. Mais</b> en ce qui concerne les <b>offrandes de paix, dont l'emplacement</b> pour l'abattage sur le sol n'est <b>pas etroit, disons</b> que <b>non,</b> on ne peut les abattre au sommet de l'autel. Par consequent, le verset <b>nous enseigne</b> que les offrandes de paix aussi peuvent etre abattues au sommet de l'autel.
+
+### Partie 9
+§ La Guemara discute de <b>la</b> question <b>meme : Rav Asi dit</b> que <b>Rabbi Yohanan dit : Rabbi Yosei, fils de Rabbi Yehuda, concede que si l'on egorgeait</b> des offrandes de l'ordre le plus sacre <b>sur le sol en face</b> de la moitie nord de l'autel, l'offrande est <b>disqualifiee. Rav Aha de Difti dit a Ravina : Quel</b> est le sens de la phrase : <b>Sur le sol en face</b> de la moitie nord de l'autel ? <b>Si l'on dit</b> que cela signifie que l'offrande a ete sacrifiee sur la <b>base</b> large de l'autel ou sur le <b>cubit</b> large du <b>rebord peripherique</b> de l'autel, <b>celui-ci fait lui-meme</b> partie de l'<b>autel. Et en outre, quel</b> est le sens de la phrase : <b>Sur le sol en face</b> de la moitie nord de l'autel ? La base et le rebord ne sont pas sur le sol.
+
+### Partie 10
+<b>Et si vous disiez</b> qu'il s'agit du cas <b>ou l'on a creuse des tunnels dans le sol</b> sous l'autel, <b>et ou l'on a abattu</b> les offrandes <b>dans ces tunnels, dans un tel cas, est-ce que</b> l'<b>autel</b> lui-meme <b>serait</b> utilisable pour que, selon Rabbi Yosei, fils de Rabbi Yehuda, on puisse abattre les offrandes de l'ordre le plus sacre sur l'autel mais pas sur le sol ? <b>Mais n'est-ce pas enseigne</b> dans une <i>baraita</i> : Le verset dit : <b>"Un autel de terre tu me feras"</b> (Exode 20.21) ? Ce verset indique <b>que</b> l'autel <b>doit etre attache a la terre,</b> de sorte <b>qu'on ne peut le construire au sommet de tunnels ni au sommet d'arches.</b>
+
+### Partie 11
+La Gemara repond : <b>Non,</b> il est <b>necessaire</b> d'avoir la phrase : Sur le sol oppose a la moitie nord de l'autel, afin d'enseigner la <i>halakha</i> dans un cas <b>ou l'on minimise</b> les dimensions de l'autel et ou l'on abat les offrandes sur le sol ou se trouvait auparavant la moitie nord de l'autel.
+
+### Partie 12
+§ La Guemara revient pour discuter de la declaration de Rabbi Yohanan selon laquelle, d'apres Rabbi Yosei, l'autel entier etait situe dans la section nord de la cour du Temple. La Guemara avait mentionne que la declaration de Rabbi Yohanan est une declaration independante, non basee sur la mishna. <b>Rabbi Zeira a dit :</b> Est-il <b>possible</b> que <b>cette</b> declaration <b>de Rabbi Yohanan soit</b> correcte <b>et que nous ne l'ayons appris dans</b> aucune <b>mishna ?</b>
+
+### Partie 13
+Rabbi Zeira <b>sort, examine</b> la question, <b>et decouvre</b> une mishna qui fait allusion a la declaration de Rabbi Yohanan, <b>comme nous l'avons appris</b> dans une mishna (<i>Tamid</i> 2:5) : Les pretres <b>selectionnaient du bois fin d'un figuier dans</b> la chambre du bois de chauffage, avec lequel <b>ils disposaient un second arrangement</b> de bois sur l'autel afin que les charbons de cet arrangement puissent etre utilises <b>pour</b> bruler l'<b>encens. </b> Ce second arrangement etait situe <b>oppose</b> a l'angle <b>sud-ouest</b> de l'autel, <b>distancie de</b> l'angle <b>nord</b> de <b>quatre coudees.</b> Ils disposaient suffisamment de bois qui, une fois brule, produisait <b>environ cinq <i>seâ</i></b> de <b>charbon. Et le Chabbat,</b> il y avait assez de bois pour produire <b>environ huit <i>seâ</i></b> de <b>fers, car ils y placaient les deux bols d'encens des pains de mie.</b>
+
+### Partie 14
+La Guemara demande : <b>Et quelle est la</b> signification du fait que la mishna <b>definit</b> l'emplacement precis de l'arrangement et le fait que c'est la que l'encens est brule ? La Guemara se lance dans une longue discussion pour repondre a cette question : Cette mishna <b>est</b> conforme a l'opinion de <b>Rabbi Yosei,</b> qui soutient que cet arrangement de bois et la combustion de l'encens doivent se trouver a cet endroit precis, <b>comme cela est enseigne</b> dans une <i>baraita</i> :
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

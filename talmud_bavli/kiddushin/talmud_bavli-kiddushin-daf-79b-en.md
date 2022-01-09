@@ -1,0 +1,45 @@
+
+### Part 1
+The <i>halakha</i> is that a moribund person who transfers all of his property to others without leaving anything for himself can retract his bequest upon regaining his health. This is due to the assumption that one would give away all his possessions only if he believes he is going to die, and the bequest was therefore made in error. By contrast, if a healthy person gave all his property to others, he cannot later retract his bequest. The <i>tanna’im</i> discuss the case of one who gave away all his property and later, seeking to retrieve his property, claims that he was moribund at the time, while the recipients of the bequest maintain that he was healthy. <b>Who</b> is able to <b>remove</b> the property <b>from the possession of whom?</b>
+
+### Part 2
+<b>He</b> is able to <b>remove</b> his property held by others <b>from their possession without</b> needing to bring <b>proof</b> that he was moribund at the time, <b>and they may not remove</b> the property <b>from his possession,</b> if he still is in possession of the property, <b>without proof</b> that he was healthy. This is <b>the statement of Rabbi Ya’akov. Rabbi Natan says: If he is</b> currently <b>healthy,</b> the obligation <b>is upon him to bring proof that he was on his deathbed</b> at the time of the bequest, <b>and if he is</b> now <b>on his deathbed,</b> the obligation <b>is upon them to bring proof that he was healthy</b> at the time of the bequest.
+
+### Part 3
+The Gemara suggests: <b>Let us say</b> that <b>Rav spoke in accordance with</b> the opinion of <b>Rabbi Natan</b> that one’s current status is paramount, <b>and Shmuel spoke in accordance with</b> the opinion of <b>Rabbi Ya’akov,</b> who holds that the question of whether he was moribund remains a matter of uncertainty, and they may not claim the property from him even if he is now healthy. The Gemara rejects this: <b>Rav</b> could have <b>said to you: I spoke even in accordance with</b> the opinion of <b>Rabbi Ya’akov,</b> as <b>Rabbi Ya’akov states</b> his opinion <b>only there,</b> because <b>it can be said</b> that the principle of: <b>Leave</b> the <b>property in its</b> previous <b>status,</b> applies, so the property should remain where it is. <b>But here,</b> with regard to the question of when a young woman became a grown woman, <b>shall we say: Establish the body</b> according <b>to its previous status?</b> It is obvious that her body was due to mature.
+
+### Part 4
+<b>And Shmuel</b> could have <b>said: I spoke even in accordance with</b> the opinion of <b>Rabbi Natan,</b> since <b>Rabbi Natan states</b> his opinion that the current state is paramount <b>only there, as everyone has a presumptive status of being healthy.</b> Consequently, if <b>a person removes himself from</b> this <b>presumption</b> by claiming he was moribund, the obligation falls <b>upon him to bring proof. But here, does</b> she <b>remove herself from a presumption that was present?</b> There is no presumption that she was a grown woman in the morning.
+
+### Part 5
+The Gemara further suggests: <b>Let us say</b> that this dispute between Rav and Shmuel <b>is parallel to</b> a dispute between <b>these <i>tanna’im</i>:</b> With regard to a case where <b>her father betrothed her on the way,</b> when he was traveling, <b>and</b> in the meantime she <b>betrothed herself in the city, and she is</b> now <b>a grown woman, one</b> <i>baraita</i> <b>taught: She is a grown woman at present,</b> and her father cannot currently betroth her; therefore, his betrothal does not take effect. <b>And</b> it <b>is taught</b> in <b>another</b> <i>baraita</i>: <b>We are concerned with regard to the betrothal of both of them. What, is it not</b> the case <b>that one</b> <i>baraita</i> <b>is in accordance with</b> the opinion of <b>Rav, and one</b> <i>baraita</i> <b>is in accordance with</b> the opinion of <b>Shmuel?</b>
+
+### Part 6
+The Gemara rejects this: <b>No;</b> it is possible that both <b>this and that are in accordance with</b> the opinion of <b>Shmuel. Here,</b> in this <i>baraita</i>, it is referring to a case <b>where she denies his</b> right to betroth her, as she claims that she was a grown woman before his betrothal. <b>There,</b> it is referring to a situation <b>where she does not deny his</b> right to betroth her, and therefore it is uncertain which betrothal takes effect.
+
+### Part 7
+The Gemara asks: If so, <b>let us</b> also <b>say</b> that <b>since the <i>baraitot</i> do not disagree, the</b> opinions of the <b><i>amora’im</i>,</b> Rav and Shmuel, <b>do not disagree</b> either. One is referring to a case where she denies her father’s right to betroth her, while the other is referring to a case where she does not. The Gemara rejects this: <b>And</b> how can <b>you understand it that way? But Rav Yosef, son of Rav Menashya of Dabil, performed an action</b> in this case <b>in accordance with</b> the opinion of <b>Rav</b> and did not take the father’s betrothal into account, <b>and Shmuel took offense</b> at this <b>and said</b> sarcastically: Is wisdom <b>measured out to everyone in a small measure, and measured out to this</b> member <b>of the Sages in a large measure?</b> He was angered that Rav Yosef had the audacity to rule against him in this case. <b>Now, if it enters your mind</b> that <b>they did not disagree</b> at all, <b>why did</b> Shmuel <b>take offense?</b>
+
+### Part 8
+<b>Perhaps when</b> Rav Yosef <b>performed an action,</b> he did so in an instance <b>where she denied</b> her father’s right to betroth her, in which case even Shmuel would agree that the father’s betrothal does not take effect. Rather, it must be that Rav and Shmuel did disagree, and Rav Yosef must have ruled in the case of a woman who did not deny her father’s right to betroth her, which explains why Shmuel took exception to his ruling.
+
+### Part 9
+<b>Mar Zutra said to Rav Ashi: This is what Ameimar said: The <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Shmuel. And Rav Ashi said: The <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav.</b> The Gemara concludes: <b>And the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav.</b>
+
+### Part 10
+<strong>MISHNA:</strong> With regard to <b>one who went overseas with his wife, and returned with his wife and children, and said: This is the woman who went overseas with me and these are her children,</b> he <b>is not required to bring proof with regard to</b> the lineage of <b>the woman,</b> since her lineage was already investigated at the time of their marriage, <b>nor with regard to</b> the lineage of <b>the children.</b> If he returned without the woman and said: My wife <b>died and these are her children,</b> he must <b>bring proof that the children</b> were born to his wife, <b>but he does not</b> need to <b>bring proof with regard to</b> the lineage of <b>the woman.</b>
+
+### Part 11
+If he left when he was unmarried and said upon his return: <b>I married a woman overseas, and this is she, and these are her children,</b> he must <b>bring proof with regard to</b> the lineage of <b>the woman, but</b> he <b>is not required to bring proof with regard to</b> the lineage of <b>the children.</b> If he said: I married a woman overseas and <b>she died, and these are her children,</b> he is <b>required to bring proof with regard to</b> both the lineage of <b>the woman and the children.</b>
+
+### Part 12
+<strong>GEMARA:</strong> <b>Rabba bar Rav Huna says: And all of</b> the statements that he is not required to bring proof with regard to the lineage of the children are said <b>in</b> a case where <b>they cling to her</b> and treat the woman like their mother.
+
+### Part 13
+<b>The Sages taught</b> that if a man says: <b>I married a woman overseas,</b> he must <b>bring proof with regard to</b> the lineage of <b>the woman, but</b> he <b>is not required to bring proof with regard to</b> the lineage of <b>the children. And he</b> must <b>bring proof with regard to</b> the lineage of <b>the adult</b> children, <b>but</b> he <b>is not required to bring proof with regard to</b> the lineage of <b>the minor</b> children. Since their attachment to their mother is apparent, it can be assumed they are her offspring. <b>In what</b> case <b>is this statement said?</b> It is <b>in</b> the case of one who said he married <b>one woman, but when</b> it is the case of one who said he married <b>two women</b> overseas, he must <b>bring proof with regard to</b> the lineage of both <b>the woman and the children, with regard to the adult</b> ones <b>and with regard to the minor</b> ones. Even if they cling to the woman whose lineage has been found to be unflawed, they might be the children of the other wife and are merely being raised by this one.
+
+### Part 14
+<b>Reish Lakish said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

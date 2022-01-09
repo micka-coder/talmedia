@@ -1,0 +1,15 @@
+
+### Partie 1
+§ La mishna enseigne (146b) : Si une personne sur son lit de mort <b>reserve</b> pour elle-meme <b>une quantite quelconque de terre, son don demeure</b> meme si elle se retablit par la suite. La Guemara demande : <b>Et quelle quantite</b> est signifiee par le terme : <b>Toute quantite ? Rav Yehuda dit</b> que <b>Rav dit : </b> Il s'agit d'une <b>terre</b> qui est <b>suffisante</b> pour assurer <b>sa subsistance.</b> Puisqu'il s'est reserve cette terre, on peut supposer qu'il souhaitait de toute facon transferer le reste de ses biens. <b>Et Rav Yirmeya bar Abba dit :</b> Meme s'il s'est reserve des <b>biens meubles</b> qui sont <b>suffisants</b> pour assurer <b>sa subsistance,</b> sa donation est valable.
+
+### Partie 2
+<b>Rabbi Zeira a dit : Combien meticuleuses</b> sont <b>les declarations halakhiques des anciens</b> Rav Yehuda et Rav Yirmeya. En ce qui concerne la <b>terre, quelle</b> est la <b>raison</b> pour laquelle il doit avoir reserve suffisamment pour sa subsistance ? La raison est <b>que s'il se retablit</b> il <b>dependra de cette</b> terre pour sa subsistance. En ce qui concerne les <b>biens meubles egalement, s'il recupere</b> il <b>se reposera sur eux</b> pour sa subsistance.
+
+### Partie 3
+<b>Rav Yosef s'oppose</b> a la declaration de Rabbi Zeira : <b>Qu'y a-t-il de meticuleux</b> dans ces declarations ? La declaration de celui <b>qui dit</b> que la donation est valable meme s'il s'est reserve des <b>biens meubles</b> est difficile, car <b>nous apprenons</b> dans la mishna qu'il doit se laisser des <b>terres. </b> La declaration de celui <b>qui dit</b> qu'il doit se laisser un montant <b>suffisant</b> pour assurer <b>sa subsistance</b> est difficile, car <b>on apprend</b> dans la mishna que sa donation est valable s'il s'est reserve <b>tout montant.</b>
+
+### Partie 4
+<b>Abaye dit a</b> Rav Yosef : <b>Et partout ou</b> le terme <b>terre est enseigne,</b> cela signifie-t-il <b>specifiquement une terre ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Peâ</i> 3:8) : En ce qui concerne <b>celui qui ecrit,</b> c'est-a-dire qui donne par le biais d'un document, <b>tous ses biens a son <b>esclave cananeen,</b> l'esclave <b>a ete emancipe,</b> mais s'il <b>reserve</b> pour lui-meme <b>quelque quantite de terre,</b> alors il <b>n'a pas ete emancipe,</b> car peut-etre a-t-il reserve l'esclave pour lui-meme egalement. <b>Rabbi Shimon dit : Il devient toujours</b> <b>libre</b> quel que soit le libelle du document, meme si le proprietaire s'est reserve une terre, <b>a moins qu'il ne soit dit</b> dans le document : <b>Tout mon bien est donne a untel mon esclave, sauf un dix-millieme,</b> car dans ce cas, il est possible que le maitre ait voulu inclure l'esclave dans la partie qu'il ne donne pas. Par consequent, l'esclave n'est pas emancipe.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

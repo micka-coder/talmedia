@@ -1,0 +1,15 @@
+
+### Part 1
+<b>from</b> discussing that <b>matter to</b> discuss a different <b>matter,</b> so he can no longer renege on his decision. <b>So too,</b> according to Rabba, one can explain that Rav Yehuda was referring to a case <b>where they arose and then sat</b> down again. Although no support for Rav Yosef’s opinion was adduced from Rav Yehuda’s ruling, the Gemara nevertheless states: <b>And the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rav Yosef in</b> the disputes concerning the division of <b>a field,</b> discussed above (12b), reneging while they are discussing the same <b>matter,</b> discussed here, <b>and a half</b> of one’s property, discussed below (143a).
+
+### Part 2
+§ The mishna teaches that <b>a woman</b> bequeaths to <b>her son,</b> her husband, and her maternal uncles, but she does not inherit from them. The Gemara asks: <b>Why do I</b> need <b>this as well? But it is</b> already <b>taught</b> in <b>the former clause: A man</b> inherits from <b>his mother and a man</b> inherits from <b>his wife.</b> The <i>halakha</i> stated in this clause seems to be the same as that of the other clause.
+
+### Part 3
+The Gemara answers: <b>This teaches us that</b> the <i>halakha</i> of <b>a woman</b> who bequeaths to <b>her son</b> is <b>similar to that</b> of <b>a woman</b> who bequeaths to <b>her husband: Just as</b> with regard to <b>a woman</b> who bequeaths to <b>her husband, the husband does not inherit</b> property through <b>his wife</b> while he is <b>in the grave,</b> i.e., if a husband predeceases his wife, then his relatives, such as children from another marriage, do not inherit the wife’s property through him but rather the wife’s own relatives inherit her property, <b>so too,</b> the same <i>halakha</i> applies with regard to <b>a woman</b> who bequeaths to <b>her son,</b> that <b>the son does not inherit</b> property through <b>his mother</b> while he is <b>in the grave</b> in order <b>to bequeath to his paternal brothers.</b> In both cases, the woman’s own relatives inherit her property.
+
+### Part 4
+§ With regard to the <i>halakha</i> that a mother inherits from her son, the Gemara notes that <b>Rabbi Yoḥanan says in the name of Rabbi Yehuda ben Rabbi Shimon: By Torah law a father inherits</b> from <b>his son, and a woman inherits</b> from <b>her son</b> if the father is no longer alive, <b>as it is stated</b> with regard to a woman receiving inheritance: “And every daughter who possesses an inheritance from the <b>tribes</b> of the children of Israel” (Numbers 36:8). Since the plural term “tribes” includes both her father’s tribe and her mother’s tribe, the verse <b>juxtaposes</b> the <b>tribe of the mother to the tribe of the father,</b> in that <b>just as</b> with regard to <b>the father’s tribe a father inherits</b> from <b>his son, so too,</b> with regard to <b>the mother’s tribe, a woman inherits</b> from <b>her son</b> if the father is deceased.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

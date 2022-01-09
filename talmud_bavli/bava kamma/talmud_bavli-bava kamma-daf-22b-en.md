@@ -1,0 +1,36 @@
+
+### Part 1
+Consequently, in <b>the first clause,</b> the <b>owner of the camel</b> is <b>liable,</b> as <b>he should not have overloaded</b> the camel with flax to such a degree that it extended out so far from the sides that it could catch fire and ignite the store. But in <b>the latter clause,</b> the <b>storekeeper</b> is <b>liable, as he should not have placed</b> the <b>lamp outside.</b>
+
+### Part 2
+The Gemara attempts again to resolve the dispute: <b>Come</b> and <b>hear</b> a mishna (61b): With regard to <b>one who ignites a stack</b> of grain, <b>and there was a goat tied to</b> the stack, <b>and</b> there was also a Canaanite <b>slave adjacent to it</b> who was not tied to it, <b>and</b> both the goat and the slave <b>were burned</b> together <b>with</b> the stack of grain and killed, the one who ignited the fire is <b>liable</b> to pay compensation for both the stack and the goat, but he is exempt from paying for the slave because the slave should have run from the fire. Conversely, if the <b>slave was tied to</b> the stack <b>and</b> there was <b>a goat adjacent to it</b> that was not tied to it, <b>and</b> the slave and the goat <b>were burned</b> together <b>with</b> the stack of grain, the one who ignited the fire is completely <b>exempt</b> from payment for damage because he is liable to receive capital punishment for murder, and he is punished only for the greater transgression.
+
+### Part 3
+The Gemara clarifies: <b>Granted, according to the one who says</b> that one’s liability for the damage caused by <b>his fire is due to</b> its similarity to <b>his arrows, due to that</b> reasoning he is <b>exempt</b> for the damage to the stack of grain in the second case, because it is as if he killed the slave with his arrows and consequently became subject to receive court-imposed capital punishment, and one who is subject to the death penalty is not liable to pay monetary compensation for the same act, as he receives the greater punishment of the two. <b>But according to the one who says</b> that liability for damage caused by <b>his fire is due to</b> its similarity to <b>his property, why</b> is he <b>exempt? If his ox,</b> which is his possession, <b>were to kill a slave, would he also not be liable</b> to pay for the damage?
+
+### Part 4
+The Gemara answers: <b>Rabbi Shimon ben Lakish</b> could have <b>said to you: With what are we dealing here?</b> We are dealing with a case <b>where he lit the body of the slave on fire,</b> consequently becoming subject to the death penalty as would anyone who kills a slave, <b>and</b> therefore <b>he receives the greater</b> punishment, the death penalty, but he does not also have to pay for the damage.
+
+### Part 5
+The Gemara asks: <b>If that is so, what</b> is the purpose <b>of stating</b> this; what novel idea is it supposed to teach? One who lit a slave on fire is most certainly a murderer, and a murderer is exempt from paying for damage caused while committing the murder. The Gemara answers: <b>No,</b> it is <b>necessary</b> to state this <i>halakha</i> for the case <b>where the goat</b> belonged <b>to one</b> person <b>and the slave</b> belonged <b>to a</b> different person; in that case one might have thought that since payment is due to someone other than the owner of the murdered slave, he would be required to pay the owner of the goat, despite being subject to the death penalty for killing the slave. Therefore, this mishna teaches that since he committed one act, for which he is liable to receive the death penalty, he is exempt from paying compensation to anyone as a result of that act.
+
+### Part 6
+The Gemara attempts another resolution: <b>Come</b> and <b>hear</b> a mishna (59b): <b>One who sends a fire,</b> i.e., places a burning object, <b>in the hand of a deaf-mute, an imbecile, or a minor</b> is <b>exempt</b> for any damage later caused by the fire <b>according to human laws but liable according to the laws of Heaven,</b> meaning that he would not be held liable in court, but nevertheless he remains responsible to pay for what he has done.
+
+### Part 7
+The Gemara clarifies: <b>Granted, according to the one who says</b> that one’s liability for the damage caused by <b>his fire is due to</b> its similarity to <b>his arrows,</b> this case <b>is</b> similar to the damage caused by <b>the arrows of a deaf-mute</b> or an imbecile or a minor, and this is why the one who gave them the fire is exempt from liability. <b>But according to the one who says</b> that one’s liability for the damage caused by <b>his fire is due to</b> its similarity to <b>his property, if he were to convey his ox to a deaf-mute, an imbecile, or a minor, would he also not be liable?</b> That is impossible, as there is an explicit statement in a <i>baraita</i> (10a) saying that he would be liable.
+
+### Part 8
+The Gemara answers: But it <b>was stated</b> already <b>about this that Reish Lakish says in the name of Ḥizkiyya: They taught</b> that one is exempt from the damage caused by a fire that he had entrusted in the care of a deaf-mute, an imbecile, or a minor <b>only</b> in a case where <b>he conveyed a coal to him and</b> the deaf-mute <b>fanned</b> the coal into a flame, which then caused damage. <b>But</b> if he conveyed an open <b>flame to him</b> and it caused damage, the one who gave him the flame is <b>liable. What is the reason</b> for this? This is because the <b>damage is self-evident,</b> i.e., it is clear that damage will ensue, and it is as if he placed a goring ox under his care. Therefore, if one’s liability for damage classified as Fire is due to its similarity to damage caused by one’s property, he would be liable in this case.
+
+### Part 9
+<b>And Rabbi Yoḥanan,</b> who holds that one’s liability for damage caused by fire is due to its similarity to one’s arrows, <b>says</b> that he is <b>exempt even</b> if he conveyed an open <b>flame</b> to him, because <b>he holds</b> that <b>it is the deaf-mute’s handling</b> of the flame <b>that causes</b> the blaze, and it is therefore not similar to a case of arrows shot; the one who conveys a fire to the deaf-mute <b>does not become liable</b> for the damage <b>until he hands</b> the deaf-mute <b>chopped wood, kindling chips, and a lamp,</b> as in that case, the damage that will ensue is self-evident and it is as if he started the blaze himself.
+
+### Part 10
+<b>Rava said: A verse and a <i>baraita</i></b> both <b>support Rabbi Yoḥanan’s</b> opinion. The <b>verse</b> supporting his opinion is <b>as it is written: “If fire breaks out”</b> (Exodus 22:5), indicating that the fire <b>breaks out on its own;</b> yet the verse continues, <b>“the one who ignited the fire shall pay,”</b> indicating that the fire was ignited by a person. <b>Conclude from</b> the verse that one’s liability for the damage caused by <b>his fire is due to</b> its similarity to damage caused by <b>his arrows,</b> as the resolution of the apparent inconsistency in the verse is that it relates to the individual as if he had himself started the blaze, and that is why he is obligated to pay for the damage.
+
+### Part 11
+The <b><i>baraita</i></b> supporting his opinion is <b>as it is taught: The verse</b> concerning liability for a fire <b>opened</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

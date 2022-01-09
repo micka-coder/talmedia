@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Les petits-enfants sont</b> consideres <b>comme des enfants.</b> Cela indique que si ses enfants sont decedes, il n'a accompli la mitzva d'etre fecond et de se multiplier que s'ils ont eu des enfants a eux, car ils sont consideres comme ses propres enfants. La Guemara repond : <b>Lorsque cette</b> <i>baraita</i> <b>est enseignee</b> c'est en ce qui concerne <b>l'accomplissement</b> du nombre d'enfants requis, par exemple, s'il n'a eu qu'un fils, mais que son fils a eu une fille, il a accompli la mitzva d'etre fecond et de se multiplier.
+
+### Partie 2
+La Guemara <b>souleve une objection</b> a l'opinion du Rav Huna a partir d'une autre <i>baraita</i> : <b>Les petits-enfants sont</b> consideres <b>comme des enfants.</b> Si <b>l'un des</b> enfants d'un homme <b>est mort ou a ete decouvert</b> comme etant <b>un eunuque,</b> le pere n'a <b>pas accompli</b> la mitzva d'etre <b>fecond et de multiplier.</b> Cela contredit directement l'affirmation de Rav Huna selon laquelle on accomplit la mitzva meme si ses enfants meurent. La Guemara conclut : <b>La refutation</b> de l'opinion <b>du Rav Huna est</b> en effet <b>une refutation concluante.</b>
+
+### Partie 3
+§ Il etait enseigne dans le <i>baraita</i> que les <b>petits-enfants sont</b> consideres <b>comme des enfants. Abaye a pense dire</b> que si ses enfants meurent, il accomplit la mitsva d'etre fecond et de se multiplier par le biais de petits-enfants, a condition qu'un <b>fils</b> soit ne <b>a</b> son <b>fils et une fille a</b> sa <b>fille, et d'autant plus</b> si <b>un fils</b> est ne <b>a</b> sa <b>fille,</b> car ses petits-enfants prennent la place de ses enfants dans ces cas. <b>Cependant,</b> si <b>une fille</b> est nee <b>de</b> son <b>fils, non,</b> elle ne peut pas prendre la place de son pere. <b>Rava lui dit :</b> Nous <b>demandons</b> simplement l'accomplissement du verset : <b>"Il l'a formee pour qu'elle soit habitee"</b> et il y a</b> accomplissement dans ce cas, puisque la terre est habitee par ses descendants.
+
+### Partie 4
+La Gemara commente : <b>En tout etat de cause, tout le monde</b> s'accorde a dire que si l'on a <b>deux</b> petits-enfants <b>issus d'un</b> enfant, <b>non,</b> il n'a pas accompli la mitsva d'etre fecond et de multiplier, meme s'il a a la fois un petit-fils et une petite-fille. La Guemara demande : <b>Et</b> il n'a pas <b>accompli ? Les rabbins n'ont-ils pas dit a Rav Sheshet : Epousez une femme et ayez des fils,</b> puisque vous n'avez pas encore engendre de fils, <b>et</b> Rav Sheshet leur <b>a dit : Les fils de ma fille sont mes fils ?</b> Cela indique que l'on peut accomplir la mitsva a travers des petits-enfants meme si l'on n'a pas eu de fils et de fille a soi.
+
+### Partie 5
+La Guemara repond : <b>La,</b> Rav Sheshet <b>etait</b> simplement en train de les <b>rejeter.</b> La vraie raison pour laquelle il ne voulait pas se remarier etait <b>parce que Rav Sheshet etait devenu impuissant a cause du discours de Rav Huna.</b> Les discours de Rav Huna etaient si longs que Rav Sheshet devenait impuissant apres avoir attendu si longtemps sans se soulager.
+
+### Partie 6
+<b>Rabba dit a Rava bar Mari : D'ou provient cette affaire que les Sages ont enoncee</b>, que les <b>petits-enfants sont</b> consideres <b>comme des enfants ? Si nous disons</b> qu'elle est derivee <b>du fait <b>qu'il est ecrit</b> dans le discours de Laban a Jacob : <b>"Les filles sont mes filles et les enfants sont mes enfants"</b> (Genese 31:43), ce qui indique que les enfants de Jacob etaient aussi consideres comme les enfants de leur grand-pere Laban, <b>si</b> c'est <b>ainsi,</b> la suite de la declaration de Laban : <b>"Et les troupeaux sont mes troupeaux"</b> (Genese 31:43), indique-t-elle que <b>aussi,</b> les troupeaux de Jacob etaient consideres comme appartenant a Laban ? <b>Au contraire,</b> Laban disait <b>que toi, </b> Jacob, <b>tu les as acquis</b> <b>de moi. Ici aussi,</b> en ce qui concerne les enfants, Laban disait : <b>Tu les as acquis</b> <b>de moi,</b> c'est-a-dire que c'est uniquement grace a moi que tu as des enfants.
+
+### Partie 7
+<b>Au contraire,</b> la preuve est <b>de la : "Et apres cela, Hezron alla vers la fille de Machir, le pere de Galaad"¦ et elle lui enfanta Segub"</b> (IA Chroniques 2:21), <b>et il est ecrit : "De Machir descendirent des gouverneurs"</b> (Juges 5:14), <b>et il est ecrit : "Judah est mon gouverneur"</b> (Psaumes 60:9). Par conséquent, les gouverneurs, qui étaient de la tribu de Juda, étaient aussi appelés les fils de Machir, qui était de la tribu de Manasseh. Cela doit etre parce qu'ils etaient les enfants de la fille de Machir et de Hezron, ce qui indique que les petits-enfants sont consideres comme des enfants.
+
+### Partie 8
+§ La Guemara commente : <b>La mishna n'est pas conforme</b> a l'opinion de <b>Rabbi Yehoshua. Comme il est enseigne dans une</b> <i>baraita</i> que <b>Rabbi Yehoshua dit :</b> Si <b>un homme a epouse une femme dans sa jeunesse,</b> et qu'elle est decedee, <b>il doit epouser</b> une autre <b>femme dans sa vieillesse.</b> Si <b>il a eu des enfants dans sa jeunesse, il doit avoir</b> plus d'<b>enfants dans sa vieillesse, comme il est dit : "Le matin, seme ta graine, et le soir, ne retiens pas ta main ; car tu ne sais pas ce qui prosperera, si ceci ou cela, ou si les deux a la fois seront bons"</b> (Ecclesiaste 11:6). Ce verset indique qu'un homme doit continuer a avoir des enfants meme apres avoir accompli la mitzva d'etre fecond et de se multiplier.
+
+### Partie 9
+<b>Rabbi Akiva dit</b> que le verset doit etre compris comme suit : Si quelqu'un <b>etudiait la Torah dans sa jeunesse, il devrait etudier</b> davantage de <b>Torah dans sa vieillesse;</b> si <b>il avait des etudiants dans sa jeunesse, il devrait avoir</b> des <b>etudiants supplementaires dans sa vieillesse, comme il est dit : "Le matin, seme ta graine, etc." Ils ont dit</b> a titre d'exemple que <b>Rabbi Akiva avait douze mille paires d'etudiants</b> dans une zone de terre qui s'etendait <b>de Gevat a Antipatris</b> en Judee, <b>et ils sont tous morts dans une periode</b> de temps, <b>parce qu'ils ne se traitaient pas avec respect.</b>
+
+### Partie 10
+<b>Et le monde fut desole</b> de Torah <b>jusqu'a ce que Rabbi Akiva vienne chez nos rabbins du Sud et leur enseigna</b> sa Torah <b>.</b> Ce deuxieme groupe de disciples etait compose de <b>Rabbi Meir, Rabbi Yehuda, Rabbi Yosei, Rabbi Shimon, et Rabbi Elazar ben Shamua. Et ce sont ceux-la meme</b> qui ont <b>soutenu</b> l'etude de la <b>Torah a cette epoque.</b> Bien que les premiers eleves de Rabbi Akiva n'aient pas survecu, ses disciples ulterieurs ont pu transmettre la Torah aux generations futures.
+
+### Partie 11
+En ce qui concerne les douze mille paires d'eleves de Rabbi Akiva, la Guemara ajoute : Il est <b>enseigne</b> que <b>tous sont morts</b> dans la periode <b>de Pessah jusqu'a <i>Shavouot</i>. Rav Hama bar Abba a dit, et certains disent</b> que c'est <b>Rabbi Hiyya bar Avin : Ils sont tous morts d'une mauvaise mort.</b> La Gemara s'interroge : <b>Qu'est-ce que c'est</b> qui est appele une mauvaise mort ? <b>Rav Nahman repond : La diphterie.</b>
+
+### Partie 12
+<b>Rav Mattana a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehoshua,</b> qui a dit qu'on doit tenter d'avoir plus d'enfants meme si on a deja accompli la mitzva d'etre fecond et de se multiplier.
+
+### Partie 13
+§ A propos de la discussion concernant la mitzva d'avoir des enfants, la Gemara cite des declarations sur le mariage en general. <b>Rabbi Tanhum dit</b> que <b>Rabbi Hanilai a dit : Tout homme qui n'a pas de femme est</b> laisse <b>sans joie, sans benediction, sans bonte.</b> Il poursuit en citant des versets pour soutenir chaque partie de son affirmation. Il est <b>sans joie, comme il est ecrit : "Et tu te rejouiras, toi et ta famille"</b> (Deuteronome 14:26), ce qui indique que l'homme n'est dans un etat de joie que lorsqu'il est avec sa famille, c'est-a-dire sa femme. Il est <b>sans benediction, comme il est ecrit : "Pour faire reposer une benediction dans ta maison"</b> (Ezechiel 44:30), ce qui indique que la benediction passe par sa maison, c'est-a-dire par sa femme. Il est <b>sans bonte, comme il est ecrit : "Il n'est pas bon que l'homme soit seul"</b> (Genese 2:18), c'est-a-dire sans femme.
+
+### Partie 14
+<b>En Occident,</b> Eretz Yisrael, on <b>dit :</b> Celui qui vit sans femme est laisse <b>sans Torah,</b> et <b>sans mur</b> de protection. Il est <b>sans Torah, comme il est ecrit : "Est-ce que je n'ai pas de secours en moi, et que la saine sagesse est chassee de moi ?"</b> (Job 6:13), indiquant que celui qui n'a pas de femme manque de saine sagesse, c'est-a-dire de Torah. Il est <b>sans muraille, comme il est écrit : "Une femme entourera un homme"</b> (Jeremie 31:21), semblable a un mur de protection.
+
+### Partie 15
+<b>Rava bar Ulla a dit :</b> Celui qui n'a pas de femme est laisse <b>sans paix, comme il est ecrit : "Tu sauras que ta tente est en paix, tu visiteras ta demeure et tu ne manqueras de rien"</b> (Job 5:24). Cela indique qu'un homme n'a la paix que lorsqu'il a une tente, c'est-a-dire une femme.
+
+### Partie 16
+Sur le meme verset, <b>Rabbi Yehoshua ben Levi a dit : Celui qui sait que sa femme craint le Ciel</b> et qu'elle le desire, <b>et qu'il ne lui rend pas visite,</b> c'est-a-dire qu'il n'a pas de rapports sexuels avec elle, est <b>appele pecheur, comme il est dit : Et tu sauras que ta tente est en paix;</b> et tu visiteras ta demeure. <b>Et Rabbi Yehoshua ben Levi a dit : Un homme est tenu de rendre visite a sa femme</b> dans le but d'avoir des rapports sexuels <b>lorsqu'il</b> est sur le point de <b>depasser en voyage, comme il est dit : "Et tu sauras que ta tente est en paix, etc."</b>.
+
+### Partie 17
+La Guemara demande : Est-ce que <b>cette</b> derniere affirmation est <b>derivee d'ici ?</b> Elle est <b>derivee de la : "Et ton desir sera pour ton mari"</b> (Genese 3:16), qui <b>enseigne qu'une femme desire son mari lorsqu'il est sur le point de partir en voyage. Rav Yosef a dit:</b> La derivation supplementaire citee par Rabbi Yehoshua ben Levi <b>n'est necessaire qu'a proximite</b> du moment de <b>son schema etabli,</b> c'est-a-dire lorsqu'elle s'attend a commencer a avoir des saignements menstruels. Bien que les Sages aient generalement interdit les rapports sexuels a ce moment-la parce qu'ils craignaient que le couple ait des rapports sexuels apres le debut des saignements, s'il est sur le point de partir en voyage, il doit avoir des rapports sexuels avec elle.
+
+### Partie 18
+La Guemara demande : <b>Et combien de temps</b> avant le debut prevu des regles est considere comme proche du moment de son schema etabli ? <b>Rava dit : Un intervalle</b> de temps, c'est-a-dire la moitie d'un cycle quotidien, soit un jour ou une nuit. La Guemara commente : <b>Et cette</b> declaration selon laquelle un homme doit avoir des rapports sexuels avec sa femme avant de partir en voyage <b>ne s'applique</b> que s'il voyage <b>pour une affaire facultative, mais</b> s'il voyage afin d'assister <b>a une affaire</b> relevant d'une <b>mitzva,</b> il n'est pas tenu d'avoir des rapports sexuels avec sa femme afin de ne pas devenir <b>preoccupe</b> et negliger la mitsva.
+
+### Partie 19
+§ <b>Les Sages ont enseigne :</b> Celui <b>qui aime sa femme comme</b> il s'aime lui-meme, et qui l'honore plus que lui-meme, et qui instruit ses fils et ses filles dans une voie droite, et qui les marie vers le moment</b> ou <b>ils</b> atteignent la maturite, <b>sur lui le verset dit : Et tu sauras que ta tente est en paix.</b> En consequence de ses actes, il y aura la paix dans sa maison, car elle sera depourvue de querelles et de peches. Celui <b>qui aime ses voisins, et qui rapproche ses proches, et qui epouse la fille de sa sœur,</b> une femme qu'il connait et affectionne en tant que parent de la famille et pas seulement en tant qu'epouse,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

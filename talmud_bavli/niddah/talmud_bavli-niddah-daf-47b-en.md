@@ -1,0 +1,72 @@
+
+### Part 1
+of <b>the protuberance above the womb,</b> the mons pubis.
+
+### Part 2
+<b>And Rabbi Shimon</b> ben Yoḥai <b>would likewise say: The Sages provided three signs</b> indicating puberty <b>in a woman below,</b> i.e., near her vagina, <b>and</b> they stated three <b>corresponding</b> signs <b>above.</b> If a woman has the signs of <b>an unripe fig above, it is known that she has not grown two</b> pubic <b>hairs;</b> if she has the signs of <b>a ripening fig above, it is known that she has grown two hairs;</b> and if she has the signs of <b>a ripe fig above, it is known that the protuberance has softened.</b>
+
+### Part 3
+The Gemara asks: <b>What</b> is this <b>protuberance? Rav Huna says: There is a swollen place</b> in a woman’s body, <b>above that place,</b> a euphemism for the vagina. It is initially hard, but <b>when</b> a girl <b>grows it increasingly softens.</b> The Sages <b>asked Rabbi</b> Yehuda HaNasi: With regard to the signs of maturity in woman, <b>in accordance with whose statement is the <i>halakha</i>? He sent them</b> in response: The <i>halakha</i> <b>is stringent in accordance with all of their statements,</b> i.e., if any one of these signs mentioned by the Sages cited above appears in a girl, she must be treated as an adult with regard to all stringent aspects of this classification.
+
+### Part 4
+<b>Rav Pappa and Rav Ḥinnana, son of Rav Ika,</b> disagree about the context of this statement of Rabbi Yehuda HaNasi that the <i>halakha</i> is stringent in accordance with all of the Sages’ statements. <b>One</b> of them <b>teaches</b> it <b>with regard to this</b> matter, of a woman’s signs of puberty, <b>and</b> the other <b>one teaches</b> it <b>with regard to</b> the case of <b>a Tyrian courtyard, as we learned</b> in a mishna (<i>Ma’asrot</i> 3:5): <b>What is a Tyrian courtyard, which</b> renders food brought inside it to be <b>required to be tithed? Rabbi Shimon says: A Tyrian courtyard</b> is one <b>inside of which vessels are safe.</b>
+
+### Part 5
+The Sages discuss this mishna: <b>What</b> is the meaning of <b>a Tyrian courtyard? Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> The courtyard is called by this name <b>as</b> the custom <b>in</b> the city of <b>Tyre</b> is to <b>place a watchman at the entrance of the courtyard</b> to guard the articles inside. Consequently, any courtyard in which vessels are safe is called a Tyrian courtyard. <b>Rabbi Akiva says:</b> In <b>any</b> courtyard <b>where</b> there is no permanent watchman who locks and unlocks it, but rather <b>one</b> of its residents <b>opens</b> the courtyard <b>and</b> another <b>one locks</b> it, e.g., a courtyard shared by several partners, each of whom can do as he chooses without asking the other, the produce inside it is <b>exempt</b> from the obligation of separating tithe, as such a courtyard is not considered one in which vessels are safe.
+
+### Part 6
+<b>Rabbi Neḥemya says: Any</b> courtyard <b>which</b> is hidden from the gaze of outsiders, and therefore <b>a person is not ashamed to eat inside it,</b> that courtyard renders produce inside it <b>obligated</b> to have tithe separated from it. <b>Rabbi Yosei says: Any</b> courtyard <b>that</b> one who does not live there <b>can enter it, and</b> the residents <b>do not say to him: What do you want</b> here, produce inside such a courtyard is <b>exempt</b> from tithe.
+
+### Part 7
+<b>Rabbi Yehuda says:</b> If there are <b>two courtyards, one within the other,</b> positioned in such a manner that the residents of the inner courtyard cannot enter their houses without passing through the outer courtyard, whereas the residents of the outer courtyard do not traverse the inner one, <b>the inner</b> courtyard renders any produce located inside it <b>obligated</b> to have tithe separated from it, <b>but</b> produce located in <b>the outer</b> courtyard is <b>exempt</b> from tithe. It is not safe, as residents of a different courtyard pass freely through it.
+
+### Part 8
+According to the opinion of one of the <i>amora’im</i> mentioned above, i.e., either Rav Pappa or Rav Ḥinnana, son of Rav Ika, it was with regard to this issue that the Sages <b>asked Rabbi</b> Yehuda HaNasi: <b>In accordance with whose statement is the <i>halakha</i>? He said to them: The <i>halakha</i> is stringent in accordance with all of</b> the Sages’ <b>statements.</b> In other words, with regard to any courtyard in which produce must be tithed according to any of these opinions, the <i>halakha</i> is that tithe must be separated from this produce.
+
+### Part 9
+<strong>MISHNA:</strong> A girl twelve years and one day old who grew two pubic hairs is classified as a young woman. Six months later, she becomes a grown woman. But a woman who is <b>twenty years old who did not grow two</b> pubic <b>hairs</b> and was never classified as a young woman <b>shall bring proof that she is twenty years old, and</b> from that point forward <b>she</b> assumes the status of <b>a sexually underdeveloped woman [<i>ailonit</i>],</b> who is incapable of bearing children. If she married and her husband died childless, <b>she neither performs <i>ḥalitza</i> nor does she enter into levirate marriage,</b> as the mitzva of levirate marriage applies only to a woman capable of conceiving a child. An <i>ailonit</i> is excluded from that mitzva.
+
+### Part 10
+In the case of a man who is <b>twenty years old who did not grow two</b> pubic <b>hairs, they shall bring proof that he is twenty years old and he</b> assumes the status of <b>a sexually underdeveloped man [<i>saris</i>],</b> who is excluded from the mitzva of levirate marriage. Therefore, if his married brother dies childless, <b>he neither performs <i>ḥalitza</i> nor enters into levirate marriage</b> with his <i>yevama</i>. <b>This is the statement of Beit Hillel. Beit Shammai say:</b> For both <b>this</b> case of a woman <b>and that</b> case of a man, they shall bring proof that they are <b>eighteen years old,</b> and they assume the status of a sexually underdeveloped woman and man respectively.
+
+### Part 11
+<b>Rabbi Eliezer says:</b> The status of <b>the male</b> is determined <b>in accordance with the statement of Beit Hillel,</b> i.e., he assumes the status of a sexually underdeveloped man at the age of twenty; <b>and</b> the status of <b>the female</b> is determined <b>in accordance with the statement of Beit Shammai,</b> i.e., she assumes the status of a sexually underdeveloped woman at the age of eighteen. The reason is <b>that the woman is quick to reach</b> physical maturity, and reaches that stage <b>before the man</b> reaches physical maturity.
+
+### Part 12
+<strong>GEMARA:</strong> The mishna teaches that a sexually underdeveloped man does not enter into levirate marriage with the widow of his childless brother. <b>And</b> the Gemara <b>raises a contradiction</b> from another mishna (<i>Yevamot</i> 96b): A boy who is <b>nine years and one day old,</b> who has not developed two hairs, <b>and</b> a man who is <b>twenty years old who has not grown two hairs, are one and the same to me</b> with regard to levirate marriage, in that if they engaged in intercourse with the widow of their childless brother, this levirate marriage is partially effective, to the extent that this woman requires both a bill of divorce and <i>ḥalitza</i>.
+
+### Part 13
+<b>Rav Shmuel bar Yitzḥak says</b> that <b>Rav says</b> in explanation of the ruling of the mishna here: <b>And this</b> <i>halakha</i> applies only in a case <b>where he developed</b> physical <b>signs of a sexually underdeveloped man</b> (see <i>Yevamot</i> 80b) by the age of twenty. By contrast, the mishna in <i>Yevamot</i> is referring to one who did not develop signs of a sexually underdeveloped man. <b>Rava said:</b> The language of the mishna <b>is also precise, as it teaches: And he is a sexually underdeveloped man,</b> which indicates that he had already developed physical signs of such a condition. The Gemara concludes: <b>Conclude from it</b> that this is the correct interpretation of the mishna.
+
+### Part 14
+The Gemara asks a question with regard to the <i>halakha</i> itself: <b>And</b> in a case <b>where he does not develop the signs of a sexually underdeveloped man, until what</b> age is he considered a minor? <b>Rabbi Ḥiyya teaches: Until most of his years</b> have passed, i.e., until he reaches the age of thirty-five, halfway to seventy, which is the standard length of a person’s life.
+
+### Part 15
+The Gemara relates: <b>When</b> people <b>would come before Rabbi Ḥiyya</b> to inquire about someone who had reached the age of puberty but had not yet developed the physical signs of maturity, <b>if</b> the person in question was <b>thin, he</b> would <b>say to them: Go</b> and <b>fatten him</b> up before we decide on his status. <b>If</b> he was <b>fat,</b> Rabbi Ḥiyya would <b>say to them: Go</b> and <b>make him thin. As these signs</b> indicating puberty <b>sometimes come due to thinness</b> and <b>sometimes they come due to fatness.</b> It is therefore possible that after his bodily shape is properly adjusted this individual will develop the signs indicating puberty and will not have the status of a sexually underdeveloped man.
+
+### Part 16
+§ <b>Rav said: The <i>halakha</i> in</b> this <b>entire chapter</b> with regard to all of the places where an age is mentioned in years is that even when the phrase: And one day, is not explicitly noted, they are all calculated <b>from</b> the <b>time</b> of year of birth <b>until</b> that same <b>time</b> of year in the age specified. <b>And Ulla said:</b> With regard to cases <b>where we learned</b> in the mishna a quantity of years including the phrase: And one day, <b>we learned</b> that the reference is to full years; <b>and</b> with regard to cases <b>where we did not learn</b> this phrase, i.e., where a quantity of years is mentioned in the mishna without the phrase: And one day, <b>we did not learn</b> it, and part of the final year is equivalent to a whole year.
+
+### Part 17
+The Gemara discusses these two opinions. <b>Granted, according to Ulla, this</b> is the reason <b>that</b> the <i>tanna</i> <b>teaches there,</b> in previous <i>mishnayot</i> (44b, 45a, 45b): And <b>one day; and here,</b> in this mishna, the <i>tanna</i> <b>does not teach</b> this phrase. <b>But according to Rav, let</b> the <i>tanna</i> be consistent and <b>teach</b> this phrase in all cases, including the mishna here.
+
+### Part 18
+<b>And furthermore, it is taught</b> in a <i>baraita</i> that <b>Rabbi Yosei ben Keifar says in the name of Rabbi Eliezer</b> with regard to the <i>halakhot</i> of a sexually underdeveloped man and a sexually underdeveloped woman: <b>The twentieth year, of which thirty days have passed,</b> i.e., from the age of nineteen and thirty days, <b>is</b> considered <b>like the twentieth year in all regards; and Rabbi</b> Yehuda HaNasi <b>similarly issued</b> a practical <b>ruling</b> of <i>halakha</i> <b>in</b> the city of <b>Lod,</b> that <b>the eighteenth year of which thirty days have passed is</b> considered <b>like the eighteenth year in all regards.</b>
+
+### Part 19
+<b>Granted,</b> according to the opinion of Ulla, it is <b>not difficult that Rabbi</b> Yehuda HaNasi is referring to the eighteenth year whereas <b>Rabbi Yosei ben Keifar</b> discusses the twentieth year, as <b>this</b> statement of Rabbi Yehuda HaNasi is <b>in accordance with</b> the opinion of <b>Beit Shammai</b> with regard to the age of a sexually underdeveloped woman, and <b>that</b> statement of Rabbi Yosei ben Keifar is <b>in accordance with</b> the opinion of <b>Beit Hillel. But according to</b> the opinion of <b>Rav,</b> who maintains that full years are required for a sexually underdeveloped man or woman, this <i>baraita</i> poses <b>a difficulty.</b>
+
+### Part 20
+The Gemara answers that this matter <b>is</b> a dispute between <b><i>tanna’im</i>,</b> and Rav maintains in accordance with the opinion that full years are required. <b>As it is taught</b> in a <i>baraita</i>: Full years are required with regard to the period of one <b>year stated with regard to sacrificial</b> animals, e.g., “a lamb in its first year” (Leviticus 12:6); the one <b>year stated with regard to houses of walled cities,</b> during which one can redeem a house he has sold in a walled city (see Leviticus 25:29); and the <b>two years</b> stated <b>with regard to an ancestral field,</b> during which one cannot yet redeem an ancestral field he has sold (see Leviticus 25:15).
+
+### Part 21
+The <b>six years</b> stated <b>with regard to a Hebrew slave</b> (see Exodus 21:2) <b>and similarly</b> the years <b>of a son and of a daughter,</b> as will be explained, <b>all of</b> these are years <b>from</b> the <b>time</b> of the first year <b>until</b> that same <b>time</b> of year in the year specified, i.e., these periods are units of whole years instead of expiring on predetermined dates, as at the end of the calendar year. This supports the opinion of Rav that the years mentioned with regard to a sexually underdeveloped man or woman are full years.
+
+### Part 22
+The Gemara asks: <b>From where do we</b> derive that the one <b>year stated with regard to sacrificial</b> animals is calculated by whole years and not by calendar years? <b>Rav Aḥa bar Ya’akov said</b> that <b>the verse states: “A lamb in its first year”</b> (Leviticus 12:6). Since the verse does not state: A one-year-old lamb, it means <b>a year</b> based on calculation of <b>its</b> life, <b>and not a year of the universal count,</b> i.e., the calendar year.
+
+### Part 23
+The Gemara further asks: <b>From where do we</b> derive the <i>halakha</i> that the one <b>year stated with regard to houses of walled cities</b> is calculated by a whole year and not by calendar year? <b>The verse states:</b> “Then he may redeem it <b>within a whole year after it is sold,</b> for a full year he shall have the right of redemption” (Leviticus 25:29). The verse is referring to a year counted from the day <b>of its</b> own <b>sale, and not the year of the universal count. From where do we</b> derive that the <b>two years</b> stated <b>with regard to an ancestral field</b> are whole years? <b>The verse states:</b> “According the number of years after the Jubilee you shall buy from your neighbor, and <b>according to the number</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

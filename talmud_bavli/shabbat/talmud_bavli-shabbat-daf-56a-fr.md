@@ -33,7 +33,7 @@ En ce qui concerne ce qui est écrit : <b>"Et celui que tu as tué par l'épée 
 <b>Quelle est la raison</b> pour laquelle David n'était pas responsable de la mort d'Urie ? Parce qu'Urie <b>était un traître contre le trône. Comme il l'a dit à</b> David : <b>"Et mon seigneur Joab et les serviteurs de mon seigneur campent dans les champs ouverts"</b> (II Samuel 11:11). En présence du roi, il est interdit de désigner un autre comme son seigneur. Cela constitue une trahison.
 
 ### Partie 12
-<b>Rav a dit : Lorsque l'on analyse</b> la question de <b>David, aucun</b> péché qu'il a commis <b>ne se retrouve de son</b> vivant, <b>sauf celui</b> impliquant <b>Uriah. Comme il est écrit</b> : " Parce que David a fait ce qui est droit aux yeux de l'èternel, et qu'il ne s'est pas détourné de ce qu'Il lui avait ordonné tous les jours de sa vie, <b>sauf dans l'affaire d'Urie le Hittite"</b> (I Rois 15:5).
+<b>Rav a dit : Lorsque l'on analyse</b> la question de <b>David, aucun</b> péché qu'il a commis <b>ne se retrouve de son</b> vivant, <b>sauf celui</b> impliquant <b>Uriah. Comme il est écrit</b> : " Parce que David a fait ce qui est droit aux yeux de l'Eternel, et qu'il ne s'est pas détourné de ce qu'Il lui avait ordonné tous les jours de sa vie, <b>sauf dans l'affaire d'Urie le Hittite"</b> (I Rois 15:5).
 
 ### Partie 13
 <b>Abaye l'Ancien a soulevé une contradiction entre</b> une déclaration <b>du Rav et</b> une autre déclaration <b>du Rav : Rav</b> a-t-il réellement <b>dit cela ? Le Rav n'a-t-il pas dit : David a accepté un</b> <b>rapport calomnieux ?</b> Tout comme il est interdit de relater un rapport calomnieux, il est de même interdit de l'accepter. Cette contradiction reste non résolue, et c'est <b>difficile.</b>

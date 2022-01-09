@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Si les pigeons, qui n'etaient pas juges aptes lorsqu'ils etaient plus ages, ont ete juges aptes lorsqu'ils etaient plus jeunes,</b> puisque le terme "jeunes pigeons" indique qu'ils sont jeunes, alors en ce qui concerne les <b>colombes, qui etaient jugees aptes lorsqu'elles etaient plus agees, n'est-il pas logique qu'elles aient ete jugees aptes lorsqu'elles etaient plus jeunes ?</b> Par consequent, <b>le verset dit : "Colombes", </b> signifiant <b>plus agees et non plus jeunes.</b>
+
+### Partie 2
+Le <i>baraita</i> continue : <b>Les jeunes pigeons</b> doivent etre <b>plus jeunes et non plus vieux, comme</b> on <b>pourrait</b> le penser : <b>Et cela ne pourrait-il pas</b> etre deduit par une <b>inference <i>a fortiori</i> : Si les colombes, qui n'etaient pas jugees aptes lorsqu'elles etaient plus jeunes, etaient jugees aptes lorsqu'elles etaient plus agees,</b> alors en ce qui concerne les <b>pigeons, qui etaient juges aptes lorsqu'ils etaient plus jeunes, n'est-il pas logique qu'ils soient juges aptes lorsqu'ils sont plus ages ?</b> Par consequent, <b>le verset dit : <b>Jeunes pigeons,</b> ce qui signifie <b>jeunes et non plus ages.</b>
+
+### Partie 3
+La Guemara demande : <b>Quelle est la</b> <b>derivation biblique</b> de ces questions ? <b>Rava dit :</b> Elle decoule du fait qu'on ne trouve <b>pas</b> que <b>le verset</b> s'ecarte <b>de la norme <b>et ecrive : De jeunes colombes, ou de pigeons;</b> au contraire, la formulation de la Torah est toujours "de colombes" ou "de jeunes pigeons".A l'evidence, les colombes doivent etre plus agees et les pigeons plus jeunes.
+
+### Partie 4
+La Guemara objecte : <b>Dit</b> plutot qu'en ce qui concerne les <b>pigeons, puisque le Misericordieux ecrit : "Jeunes,"</b> cela signifie <b>des oiseaux plus jeunes</b>, <b>oui, des oiseaux plus vieux</b>, <b>non;</b> mais en ce qui concerne les <b>pigeons, si l'on veut, qu'il apporte des oiseaux plus vieux</b> et <b>si l'on veut, qu'il apporte des oiseaux plus jeunes</b>. La Gemara repond : Puisque les colombes et les pigeons sont toujours juxtaposes les uns aux autres dans la Torah, on en deduit que la <i>halakha</i> des colombes est <b>similaire</b> a la <i>halakha</i> des <b>pigeons : De meme que</b> en ce qui concerne les <b>pigeons</b> le <i>halakha</i> est <b>jeune</b> oiseaux, <b>oui, plus vieux</b> oiseaux, <b>non, de meme</b> en ce qui concerne les <b>colombes,</b> le <i>halakha</i> est <b>plus vieux</b> oiseaux, <b>oui, plus jeune</b> oiseaux, <b>non.</b>
+
+### Partie 5
+<b>Les Sages ont enseigne</b> dans un <i>baraita</i> : On <b>pourrait</b> avoir pense <b>que toutes les</b> <b>colombes plus agees ou tous les <b>pigeons</b> plus jeunes seraient aptes</b> au sacrifice ; c'est pourquoi <b>le verset dit :" De colombes", et non pas toutes les colombes ;" de jeunes pigeons", et non pas tous les jeunes pigeons.</b> Cela sert a <b>exclure</b> les oiseaux au <b>commencement du jaunissement</b> du plumage de leur cou, <b>qui sont impropres comme ceci,</b> les colombes, <b>et comme cela,</b> les pigeons. Ils sont impropres comme colombes parce qu'ils ne sont pas suffisamment ages et comme pigeons parce qu'ils ne sont plus jeunes. Le <i>tanna</i> developpe : <b>A partir de quand les colombes sont-elles aptes ?</b> C'est <b>a partir de quand</b> la couleur de leurs plumes <b>devient un or scintillant. A partir de quand les pigeons sont-ils inaptes ? </b> C'est <b>a partir de quand</b> leurs plumes <b>deviennent jaunes.</b>
+
+### Partie 6
+<b>Yaâkov Korha a enseigne</b> un <i>baraita</i> : <b>De quand datent les pigeons ?</b> C'est <b>de quand <i>yeâlu</i>. Il enseigne</b> le <i>baraita</i> <b>et il enonce son</b> explication : La reference est a ce qui est enonce : <b>"Ses oisillons suceront [<i>yeâlu</i>] le sang"</b> (Job 39:30). <b>Quand</b> c'est ? <b>Abaye a dit :</b> C'est <b>depuis</b> le stade <b>ou l'on arrache une plume et ou le sang sort.</b>
+
+### Partie 7
+§ <b>Rabbi Zeira souleve un dilemme :</b> A l'egard de <b>ceux qui disent : Il</b> m'incombe <b>d'apporter <b>un holocauste de colombes ou de pigeons, et il a apporte</b> des oiseaux au <b>debut du jaunissement</b> du plumage de leur cou <b>de ceci,</b> des colombes, <b>et de cela,</b> des pigeons, <b>qu'est-ce que</b> la <i>halakha</i> ? <b>Est-ce un cas d'<b>incertitude</b> de savoir s'il est considere comme plus vieux ou plus jeune, <b>et</b> donc lorsqu'il apporte les deux <b>il remplit</b> son obligation, car l'un des oiseaux etait propre au sacrifice ; <b>ou peut-etre</b> un oiseau au debut du jaunissement <b>est une entite</b> en soi et n'est ni plus vieux ni plus jeune, <b>et il ne remplit pas</b> son obligation ?
+
+### Partie 8
+<b>Rava dit : Venez</b> et <b>entendez</b> la preuve a partir du <i>baraita</i> ou il est enseigne que le verset : "De colombes ou de jeunes pigeons," sert a <b>exclure</b> les oiseaux au <b>debut du jaunissement</b> du plumage de leur cou <b>qui sont impropres comme ceci,</b> les colombes, <b>et comme cela,</b> les pigeons. <b>Accorde, si vous dites</b> qu'un oiseau a ce stade <b>est une entite</b> en soi, cela fonctionne <b>bien,</b> puisque le verset sert a garantir qu'un oiseau a ce stade de developpement ne sera jamais sacrifie. <b>Mais si vous dites</b> qu'il <b>est</b> un cas d'<b>incertitude, etait-il</b> <b>necessaire</b> que <b>le verset exclue</b> un cas d'<b>incertitude ?</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+<b>Perhaps</b> the expression: “And the sun sets and it is purified” refers to the very beginning of sunset, <b>the setting of</b> the sun’s <b>light.</b> According to that explanation, <b>what does</b> the expression <b>and it is purified mean?</b> It means that <b>the person will become purified.</b> After immersing, he will wait until the beginning of sunset, and only then will he be able to eat of his <i>teruma</i> (<i>Tosafot</i>).
+
+### Part 2
+<b>Rabba bar Rav Sheila said: If so,</b> that: And it is purified, means that the priest goes and purifies himself, then <b>let the verse say</b> unambiguously: <b>And he will become purified.</b> Since the Torah does not employ that language, the conclusion is: <b>What is</b> the meaning of the expression: <b>And it is purified?</b> It means <b>the day is pure,</b> no residue of day remains, <b>as people say</b> colloquially: <b>The sun has set and the day is purified.</b>
+
+### Part 3
+<b>In the West,</b> Eretz Yisrael, <b>they did not hear this</b> explanation given <b>by Rabba bar Rav Sheila. They raised the dilemma: Does the expression: And the sun sets, refer to the</b> actual <b>setting of the sun, and does: And it is purified, mean the day clears away? Or perhaps it refers to the setting of its light</b> at sunset, in which case <b>what is</b> the meaning of: <b>And it is purified?</b> It refers to <b>the purification of the person.</b> In other words, in Eretz Yisrael, they attempted to clarify the <i>halakha</i> based on the biblical passage, but were unable to do so.
+
+### Part 4
+<b>Ultimately they resolved</b> this dilemma <b>from a <i>baraita</i>. It was taught in a baraita</b> that the time for the recitation of the evening <i>Shema</i> corresponds to the time when priests are permitted to eat of their <i>teruma</i>, <b>a sign for which is the emergence of the stars.</b> Therefore, <b>derive from here</b> that “and the sun sets” refers to <b>the complete sunset, and the expression “and it is purified”</b> means <b>the day clears away,</b> as the Sages in Babylonia concluded.
+
+### Part 5
+In our mishna, <b>the Master said:</b> The beginning of the time for the recitation of the evening <i>Shema</i> is: <b>From the time when the priests enter to partake of their <i>teruma</i>.</b> The Gemara <b>raises a contradiction</b> to this opinion from a <i>baraita</i> that states that the time for the recitation of the evening <i>Shema</i> is: <b>From when a poor person enters to eat his bread with salt until he rises from his meal.</b>
+
+### Part 6
+The Gemara begins its analysis by clarifying whether there is an actual contradiction here, or whether different expressions are being employed to describe the same time. <b>The latter clause</b> of the <i>baraita</i>, which established that the time for the recitation of the evening <i>Shema</i> ends when a poor person rises from his meal, <b>certainly disagrees with our mishna.</b> Since the poor person clearly does not continue eating until the end of the first watch, this <i>baraita</i> certainly contradicts our mishna. With regard to <b>the first clause</b> of the <i>baraita</i>, however, which establishes the beginning of the time for the recitation of the evening <i>Shema</i>, <b>shall we say that it disagrees with our mishna?</b>
+
+### Part 7
+The Gemara immediately rejects this idea: <b>No,</b> the time when <b>the poor person</b> eats <b>and</b> the time when <b>the priest</b> is purified and permitted to partake of his <i>teruma</i> <b>are one</b> and the same <b>time.</b>
+
+### Part 8
+The Gemara <b>raises a contradiction</b> from the <i>Tosefta</i>: <b>From when does one begin to recite</b> <i>Shema</i> <b>in the evening? From the time when people enter to eat their bread on Shabbat eve.</b> This is <b>the statement of Rabbi Meir.</b> As they do in our mishna, <b>the Rabbis say: From the time when the priests are eligible to partake of their <i>teruma</i>, a sign for which is the emergence of the stars. And although there is no</b> explicit <b>proof</b> that the emergence of the stars is when one may begin to recite the evening <i>Shema</i>, <b>there is an allusion</b> in the book of Nehemiah to the fact that the emergence of the stars is generally considered the beginning of the night. As <b>it is stated</b> with regard to the building of the walls of Jerusalem: <b>“And we perform the work, and half of them grasp their spears from dawn until the emergence of the stars”</b> (Nehemiah 4:15). <b>And it says: “That in the night they may be a guard to us, and may labor in the day”</b> (Nehemiah 4:16). From here we ascertain that the day ends with the emergence of the stars.
+
+### Part 9
+Even before analyzing these sources, the Gemara seeks to clarify a confusing element in the <i>Tosefta</i>. In their biblical proof, the Rabbis do not suffice with one verse, but rather they say: And it says…and they cite an additional verse. <b>What</b> is added by this use of: <b>And it says?</b> It seems superfluous, as the entire proof appears in the first verse.
+
+### Part 10
+The Gemara answers that the first verse was not sufficient. <b>As, if you say that night begins when the sun sets, but</b> the workers <b>stayed late and arrived early;</b> i.e., due to the importance of their task they worked even into the night. In anticipation of this objection, the second verse was cited to teach: <b>Come and hear,</b> as it is stated: <b>“That in the night they may be a guard to us, and may labor in the day,”</b> the time between dawn and the emergence of the stars is explicitly referred to as “day,” proving that night begins with the emergence of the stars.
+
+### Part 11
+In analyzing the three opinions regarding the beginning of the period for the recitation of the evening <i>Shema</i>, the Gemara begins with the supposition: <b>It might enter your mind</b> to say that the time when the <b>poor person</b> typically eats his meal and the time when ordinary <b>people</b> eat their Shabbat evening meal <b>are one</b> and the same <b>time,</b> since in both cases those eating would seek to begin their meals as early as possible, as, for different reasons, they are unable to kindle additional lights to illuminate their meal. And, <b>if you say</b> that the time of <b>the poor person’s</b> meal <b>and</b> the time when <b>the priest</b> is purified and permitted to partake of his <i>teruma</i> <b>are one</b> and the same <b>time,</b> then the opinion of <b>the Rabbis is</b> identical to that of <b>Rabbi Meir.</b> What is their disagreement?
+
+### Part 12
+<b>Rather,</b> what we said previously must be rejected, and instead <b>learn from this</b> that there is <b>a separate time</b> for the <b>poor person and a separate time</b> for the <b>priest.</b> However, this conclusion is based on the assumption that the time of the poor person and the time of people are the same. That too can be rejected with the assertion that, <b>no,</b> the time of the <b>poor person and the priest are one</b> and the same <b>time,</b> and the time of <b>the poor person and people are not the same.</b> Accordingly, the opinion expressed by the <i>tanna</i> in our <i>baraita</i> is identical to that of the other <i>tanna’im</i>, and only Rabbi Meir disagrees with them.
+
+### Part 13
+<b>And is the time of the poor person and the priest the same?</b> The Gemara <b>raises a contradiction</b> to this approach from another <i>baraita</i>, in which other opinions regarding the time for the recitation of the evening <i>Shema</i> are cited: <b>From when does one begin to recite</b> the <b>evening</b> <i>Shema</i>? <br><b>From the time when the day becomes sanctified on the eve of Shabbat, this is the statement of Rabbi Eliezer,</b> who established an earlier time for <i>Shema</i>. <br><b>Rabbi Yehoshua,</b> like our mishna, <b>says: From the time when the priests are eligible to partake of their <i>teruma</i>.</b> <br><b>Rabbi Meir says:</b> The time for the recitation of <i>Shema</i> begins before the priests were purified, <b>from when the priests immerse themselves in order to partake of their <i>teruma</i>.</b> <br><b>Rabbi Yehuda said to</b> Rabbi Meir: How is it possible that the time for the recitation of the evening <i>Shema</i> corresponds to the time of the priests’ immersion? <b>Do the priests not immerse themselves during the day,</b> so that with nightfall and the onset of a new day they will be purified? If so, how can that time be called night? <br><b>Rabbi Ḥanina says</b> that the time for the recitation of the evening <i>Shema</i> begins <b>when the poor person enters to eat his bread with salt.</b> <br>But <b>Rabbi Aḥai, and some say Rabbi Aḥa, says: From the time when most people enter to recline</b> at their meal during the week.
+
+### Part 14
+The preceding was the text of the <i>baraita</i>. Returning to our question, <b>if you say</b> that <b>the time of the poor person and the priest are one</b> and the same <b>time,</b> then the opinion of <b>Rabbi Ḥanina is</b> identical to that of <b>Rabbi Yehoshua.</b> However, the fact that they are cited together indicates that they are not, in fact, the same.
+
+### Part 15
+<b>Rather, must</b> one <b>not conclude from this the time for</b> the <b>poor person is separate and the time for</b> the <b>priest is separate?</b> Since no objection is raised, the Gemara concedes: Indeed, <b>conclude from this.</b>
+
+### Part 16
+Having established that the time of the poor person and that of the priest are different, the Gemara seeks to determine: <b>which one is later?</b> The Gemara suggests that <b>it is reasonable</b> to conclude that <b>the</b> time of the <b>poor person is later. As if you say</b> that <b>the poor person is earlier,</b> it would be impossible to establish a time earlier than that established by Rabbi Yehoshua, unless we hold that night begins with sunset, in which case the opinion of <b>Rabbi Ḥanina is</b> identical to that of <b>Rabbi Eliezer. Rather, must</b> one <b>not conclude from this that the poor person is later?</b> The Gemara notes: Indeed, <b>conclude from this.</b>
+
+### Part 17
+We learned that <b>the Master said</b> in a <i>baraita</i> that the time for the recitation of the evening <i>Shema</i> according to Rabbi Meir begins with the time of the immersion of the priests. Regarding this, <b>Rabbi Yehuda said</b> to Rabbi Meir: <b>Do the priests not immerse themselves during the day?</b>
+
+### Part 18
+The Gemara notes: <b>What Rabbi Yehuda said to Rabbi Meir seems correct,</b> and how can Rabbi Meir respond? Rabbi Meir’s response is connected to the fundamental dispute over when night begins. After sunset, a period begins which is neither day nor night. The <i>tanna’im</i> disagree over the precise duration of this period known as twilight [<i>bein hashemashot</i>]. Rabbi Yehuda holds that twilight extends a full hour after sunset. Rabbi Neḥemya agrees in principle, though he disagrees over the specifics. Rabbi Yosei maintains that twilight is very brief, and occurs immediately before the emergence of the stars, which marks the beginning of the night. Regarding Rabbi Meir’s argument, Rabbi Yehuda asks that since the priests immerse themselves before twilight, they have a long wait until nightfall; clearly their immersion takes place while it is still day.
+
+### Part 19
+The Gemara answers that <b>Rabbi Meir said</b> to Rabbi Yehuda <b>as follows</b>: <b>Do you maintain that I am speaking of your</b> definition of <b>twilight? I am speaking of Rabbi Yosei’s</b> definition of <b>twilight, as Rabbi Yosei said: Twilight is like the blink of an eye;</b> night <b>begins and</b> day <b>ends and</b> the time between them is so brief, <b>it is impossible to quantify.</b> According to this opinion, the priests immerse themselves just before the emergence of the stars, when it is already considered night.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

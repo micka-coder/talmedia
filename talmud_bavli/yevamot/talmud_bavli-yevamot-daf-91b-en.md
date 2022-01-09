@@ -1,0 +1,42 @@
+
+### Part 1
+<b>Ravina said</b> that this <i>baraita</i> <b>is taught with regard to an offering,</b> and it should be explained as follows: If <b>the court acted</b> in accordance <b>with their</b> own <b>instruction,</b> it is <b>as though</b> this was <b>a willful</b> act <b>of a man with a woman, and she</b> therefore <b>does not bring an offering,</b> as an individual who followed the ruling of the court is exempt from bringing an offering (see <i>Horayot</i> 2a–b). If she married <b>based on</b> testimony of <b>witnesses,</b> it is considered <b>as though</b> this was <b>an unwitting</b> act <b>of a man with a woman, and</b> therefore <b>she brings an offering.</b>
+
+### Part 2
+<b>And if you wish, say</b> and refute Rav Sheshet’s difficulty in the following manner: <b>This first</b> <i>baraita</i>, which exempts forbidden women from a bill of divorce, <b>is</b> the opinion of <b>the Rabbis,</b> who prohibit a woman in this situation to her husband, even if she had married another based on witnesses. And you should <b>answer</b> the difficulty by reading the relevant clause of the <i>baraita</i> <b>as follows: Apart from a married woman</b> who married on the basis of witness testimony, <b>and</b> this includes one <b>who married by</b> permission of <b>the court,</b> as she too requires a bill of divorce.
+
+### Part 3
+§ <b>Ulla raised an objection</b> against Rav Sheshet’s reasoning: <b>Do we say</b> this justification: <b>What could she have done?</b> Is a woman considered to have acted under duress when she had no way to avoid sin? <b>But didn’t we learn</b> in a mishna (<i>Gittin</i> 79b): If a man <b>wrote</b> a bill of divorce and dated it according <b>to a kingdom that is not suitable [<i>hogenet</i>],</b> i.e., one that does not reign over their place of residence; or according <b>to the kingdom of Media</b> or according <b>to the kingdom of Greece,</b> which are no longer in existence; or if he dated it according <b>to the building of the Temple</b> or according <b>to the destruction of the Temple;</b> and similarly if the bill of divorce <b>was</b> given <b>in the east and he wrote</b> in it a place <b>in the west,</b> or <b>in the west and he wrote</b> a place <b>in the east,</b> this bill of divorce is invalid.
+
+### Part 4
+Consequently, if she married another man <b>she must leave this one and that one,</b> both the one who gave her the bill of divorce and the new husband. <b>And all these matters</b> mentioned in the mishna here, the penalties imposed on a married woman who remarried unlawfully, apply <b>to her.</b> The Gemara asks: <b>But why? Let us say: What could she have done.</b> She acted under duress, as she married again only because she thought the bill of divorce was valid. The Gemara answers: This woman did not act under duress, as <b>she should have had the bill of divorce read</b> by a scholar, who would have told her that it was invalid.
+
+### Part 5
+<b>Rav Shimi bar Ashi said: Come</b> and <b>hear</b> a different proof. With regard to <b>one who married his <i>yevama</i>, and the rival wife</b> of the <i>yevama</i> <b>went and married</b> someone else, <b>and this</b> <i>yevama</i> <b>was</b> later <b>discovered</b> to be <b>a sexually underdeveloped woman,</b> which means that she was never eligible for levirate marriage and therefore her act of intercourse did not exempt her rival wife from levirate marriage, the rival wife must <b>leave this one and that one,</b> i.e., her husband must give her a bill of divorce and she may not marry the <i>yavam</i>, <b>and all these matters</b> apply <b>to her. But why?</b> Again, <b>let us say: What could she have done.</b> The Gemara answers: This is no proof, as <b>she should have waited</b> until it was clearly established that the other wife was not a sexually underdeveloped woman.
+
+### Part 6
+<b>Abaye said: Come</b> and <b>hear:</b> With regard to <b>all those with whom relations are forbidden, with regard to</b> whom the Sages <b>said</b> that <b>they exempt their rival wives,</b> if these <b>rival wives went and married, and</b> one of <b>these</b> forbidden women was <b>discovered</b> to be <b>a sexually underdeveloped woman,</b> which means that the obligation of levirate marriage did not apply to her at all, and it was the rival wives who should have performed levirate marriage, the rival wife must <b>leave</b> both <b>this and that, and all these matters</b> apply <b>to her. But why? Let us say: What could she have done.</b> The Gemara answers as before: <b>She should have waited.</b>
+
+### Part 7
+<b>Rava said: Come</b> and <b>hear: A scribe wrote a bill of divorce for the man and a receipt for the woman,</b> so that the man should give the bill of divorce to his wife and she should give him the receipt upon his delivery of the marriage contract. <b>And</b> the scribe <b>erred and gave</b> the <b>bill of divorce to the woman and</b> the <b>receipt to the man,</b> leaving them with the mistaken impression that he had the bill of divorce and she the receipt, <b>and they gave</b> each other the documents, <b>this one to that one and that one to this one.</b>
+
+### Part 8
+<b>And after a while</b> it became clear <b>that the bill of divorce is in the man’s possession and the receipt in the woman’s possession,</b> and no act of divorce had been performed at all. If the woman had married someone else in the meantime she must <b>leave</b> both <b>this one and that one, and all these matters</b> apply <b>to her. But why? Let us say: What could she have done.</b> The Gemara answers: Here too, <b>she should have had the bill of divorce read</b> by an expert.
+
+### Part 9
+<b>Rav Ashi said: Come</b> and <b>hear:</b> If a man <b>changed his name, or</b> his wife’s <b>name,</b> or <b>the name of his city, or the name of her city,</b> and she remarried, she must <b>leave</b> both <b>this one and that one, and all these matters</b> apply <b>to her. But why? Let us say: What could she have done.</b> The Gemara answers: Once again, <b>she should have had the bill of divorce read</b> by a scholar.
+
+### Part 10
+<b>Ravina said: Come</b> and <b>hear:</b> A man <b>married</b> a woman <b>on</b> the basis that she was divorced. However, she had actually received <b>a bare bill of divorce,</b> i.e., missing a signature. This is referring to a special type of bill of divorce, one that was folded and sewn up. It requires as many witnesses as the number of lines it contains. If a bill of divorce of this kind does not have enough witnesses, it is invalid. In the case of the <i>baraita</i>, if this woman married another man after receiving this bill of divorce, she must <b>leave</b> both <b>this one and this one,</b> and all these penalties apply to her. Again, the question is: What could she have done? The Gemara answers, as before: <b>She should have had the bill of divorce read</b> by someone who could have told her it was invalid.
+
+### Part 11
+The Gemara relates: <b>Rav Pappa thought to take action</b> and permit a woman to return to her husband based on the rationale: <b>What could she have done.</b> In a case where she had no means of clarifying the matter, he ruled that she should be considered to have acted under duress. <b>Rav Huna, son of Rav Yehoshua, said to Rav Pappa: But isn’t it taught</b> repeatedly <b>in all these <i>mishnayot</i></b> that this argument is not accepted?
+
+### Part 12
+Rav Pappa <b>said to</b> Rav Huna, son of Rav Yehoshua: <b>And</b> did <b>we not resolve</b> these <i>mishnayot</i>, by explaining that in those particular cases she did have the option of clarifying the matter? <b>He said to him: And shall we stand and rely on answers?</b> Admittedly, we found some way of resolving these questions, but the accumulation of difficulties indicates that the rationale: What could she have done, is unacceptable. <b>And</b> indeed, Rav Pappa <b>ceased</b> to follow his original intention and did not issue a lenient ruling.
+
+### Part 13
+§ The Gemara discusses the case of the mishna from another perspective. <b>Rav Ashi said: And we are not concerned about a rumor.</b> In other words, if there was an unsubstantiated rumor that the husband was alive, the court takes no notice of it. The Gemara asks: <b>Which</b> kind of <b>rumor</b> does he mean? <b>If we say</b> that this is referring to <b>a rumor that</b> spread <b>after</b> the <b>marriage</b> of this woman to another man, <b>Rav Ashi has</b> already <b>said this once, as Rav Ashi said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

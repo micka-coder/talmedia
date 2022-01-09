@@ -1,0 +1,12 @@
+
+### Part 1
+Rav Pappa <b>said to him: And according to your reasoning,</b> which leads to the conclusion that all items can have the status of unallocated funds, consider <b>that which we learned</b> in a mishna (45a): <b>Rabban Shimon ben Gamliel says:</b> If one <b>brought three</b> different <b>animals</b> for his naziriteship <b>and did not specify</b> which was for which offering, <b>that which is fit for a sin-offering,</b> a ewe, <b>is sacrificed as a sin-offering;</b> the animal suitable <b>for a burnt-offering,</b> a male sheep or bull, <b>is sacrificed as a burnt-offering;</b> and the animal fit <b>for a peace-offering,</b> any other male or female, <b>is sacrificed as a peace-offering.</b> But according to your opinion, <b>why</b> is this so? <b>Didn’t you say</b> that <b>an animal is not considered as allocated,</b> but is instead like unallocated funds; how can one decide which animal to use for each offering?
+
+### Part 2
+Rav Shimi bar Ashi <b>said to him:</b> As for the case of birds, this is an exception, as there is an explicit verse to this effect <b>there:</b> It states with regard to the owner of a bird offering: <b>“And he shall take</b> one he-lamb for a guilt-offering to be waved, to make atonement for him, and one tenth part of an ephah of fine flour mingled with oil for a meal-offering, and a <i>log</i> of oil; and two turtledoves or two young pigeons, such as his means suffice for, and the one shall be a sin-offering and the other a burnt-offering” (Leviticus 14:21–22), and it later states with regard to the priest: <b>“And he shall sacrifice</b> one of the turtledoves, or of the young pigeons, such as his means suffice for; even such as his means suffice for, the one for a sin-offering, and the other for a burnt-offering” (Leviticus 14:30–31).
+
+### Part 3
+<b>The Merciful One</b> thereby <b>states</b> that the birds are allocated and designated for their offering <b>either by the acquisition of the owner,</b> by designating each bird for a particular offering upon their purchase, <b>or by the action of the priest.</b> With regard to the ruling of Rabban Shimon ben Gamliel, it presents no difficulty either, as it is a special case as well. <b>Here too,</b> when one separates these particular animals for his naziriteship offerings,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

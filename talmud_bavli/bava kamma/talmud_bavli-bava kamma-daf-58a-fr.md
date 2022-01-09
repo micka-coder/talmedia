@@ -1,0 +1,33 @@
+
+### Partie 1
+on ne peut pas faire une telle deduction a partir de la declaration du Rav. Le Rav <b>parle</b> en utilisant le style de : <b>Il n'est pas necessaire,</b> et c'est ainsi qu'il faut comprendre sa declaration : <b>Il n'est pas necessaire</b> d'affirmer que si l'animal est tombe dans le jardin et a <b>mange</b> de ses produits, <b>que</b> le proprietaire <b>paye</b> pour <b>le benefice que</b> il <b>derive. Mais</b> si le produit adoucit le coup de <b>frappe</b> du sol et que par la l'animal evite de se blesser, on pourrait <b>dire</b> que le proprietaire de l'animal ne doit pas payer, au motif que le proprietaire du jardin peut etre considere, par analogie, comme celui qui <b>refoule un lion de la propriete d'un autre</b> Dans ce cas, bien que ce dernier ait beneficie de son action, il n'est pas oblige de la payer. De meme dans ce cas, on pourrait penser que le proprietaire de l'animal ne <b>pas payer meme</b> pour <b>le benefice que</b> l'animal <b>a tire.</b> Pour cette raison, le Rav <b>nous enseigne</b> que le proprietaire de l'animal doit payer egalement pour ce benefice.
+
+### Partie 2
+La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> que <b>c'est bien</b> la <i>halakha</i>, et que le proprietaire de l'animal devrait etre exempte de payer pour le benefice de son animal qui n'a pas ete blesse ?
+
+### Partie 3
+La Gemara repond : Celui qui <b>repousse un lion de la propriete d'un autre</b> le fait <b>avec intention,</b> sachant qu'il serait ineligible au paiement. En revanche, <b>cette</b> proprietaire du jardin n'a <b>pas</b> agi <b>avec intention</b> et aurait prefere que l'incident ne se produise pas. <b>Alternativement,</b> on pourrait dire que celui qui <b>refoule un lion de la propriete d'un autre n'a pas</b> ainsi <b>une perte</b> lui-meme. En revanche, <b>cette</b> proprietaire du jardin <b>a une perte,</b> en ce que ses produits sont endommages.
+
+### Partie 4
+La Gemara demande : <b>Comment l'animal a-t-il</b> <b>chute ?</b> Dans quel cas cette <i>halakha</i> s'applique-t-elle ? <b>Rav Kahana dit : il a glisse sur sa</b> propre <b>urine. Rava dit : Un autre</b> animal appartenant au meme proprietaire l'a <b>pousse,</b> ce qui l'a fait tomber la.
+
+### Partie 5
+La Guemara explique : Rava, <b>celui qui dit que</b> la mishna se refere a un cas ou <b>un autre</b> animal l'a <b>pousse,</b> auquel cas le proprietaire ne paie que pour le benefice que l'animal en a tire et est dispense de payer pour le dommage cause, estime que <b>a plus forte raison</b> cette <i>halakha</i> s'appliquerait dans un cas <b>ou il a glisse sur son urine,</b> ce qui est hors du controle du proprietaire. <b>Mais</b> Rav Kahana, <b>celui qui dit</b> que la mishna se refere a un cas <b>ou</b> l'animal <b>glisse sur son urine,</b> soutient que si, <b>cependant, un autre</b> animal <b>le pousse,</b> cela indique que le proprietaire <b>a ete negligent</b> et aurait du empecher que cela se produise. Par consequent, dans un tel cas, le proprietaire <b>paye</b> pour <b>ce que</b> son animal a <b>endommage, puisque</b> le proprietaire du jardin <b>peut dire a</b> celui de l'animal : <b>Vous auriez du faire traverser</b> vos animaux <b>un par un,</b> afin qu'ils ne puissent pas se pousser les uns les autres.
+
+### Partie 6
+<b>Rav Kahana dit : Ils ont enseigne seulement</b> que le proprietaire paie pour le benefice qu'il tire <b>dans le meme lit de jardin</b> dans lequel il est tombe, <b>mais</b> s'il est passe <b>d'un <b>lit de jardin</b> a</b> un autre <b>lit de jardin</b> et a mange de celui-ci, le proprietaire <b>paye</b> pour <b>ce qu'il a endommage. Et Rabbi Yohanan dit : Meme</b> si l'animal va <b>d'un <b>lit de jardin</b> a un autre <b>lit de jardin</b> et mange, <b>et meme</b> si l'animal continue a aller d'un lit a l'autre et a manger pendant <b>toute la journee,</b> le proprietaire ne paie que pour le benefice que l'animal a retire et non pour ce qu'il a endommage, <b>a moins qu'il ne quitte</b> le jardin entierement <b>et revienne avec</b> la <b>connaissance du proprietaire.</b>
+
+### Partie 7
+<b>Rav Pappa dit,</b> expliquant la declaration de Rabbi Yohanans : <b>Ne dites pas</b> cela signifie : <b>Sans que</b> l'animal <b>parte avec</b> le <b>savoir du proprietaire et revienne avec</b> son <b>savoir ; plutot, une fois qu'il est sorti</b> du jardin <b>avec</b> le <b>savoir du proprietaire, meme s'il est revenu sans</b> son <b>savoir, </b> le proprietaire est tenu de payer pour ce qu'il a endommage. <b>Quelle est la raison</b> de cette situation ? C'est <b>que</b> le proprietaire du jardin peut <b>dire au</b> proprietaire de l'animal : <b>Puisque</b> l'animal <b>a</b> maintenant <b>appris</b> que le jardin est la avec de la nourriture a manger, <b>chaque fois qu'il s'egarera, il courra vers la.</b>
+
+### Partie 8
+§ La mishna enseigne : Si l'animal <b>est descendu</b> dans le jardin <b>de sa maniere habituelle et y a cause des dommages</b>, le proprietaire <b>paye</b> pour <b>ce qu'il a endommage. Rabbi Yirmeya demande :</b> Si l'animal <b>est descendu de sa maniere habituelle et</b> a donne naissance a un veau a cet endroit et a <b>degrade</b> le produit <b>avec du liquide amniotique, quelle est</b> la <i>halakha</i> ? Le proprietaire de l'animal doit-il payer pour ce dommage ?
+
+### Partie 9
+La Guemara clarifie la question de Rabbi Yirmeya : <b>Ne soulevez pas le dilemme conformement</b> a l'avis de <b>celui qui dit</b> qu'on est <b>responsable</b> dans un cas de dommage qui est <b>initialement par negligence et finalement par accident,</b> puisque dans ce cas, le proprietaire a ete negligent en permettant a l'animal d'entrer dans la cour d'une autre personne, bien que la cause reelle du dommage soit finalement un accident. <b>Quand faut-il soulever ce dilemme ?</b> Le soulever <b>conformement</b> a l'avis <b>de celui qui dit</b> qu'on est <b>exonere</b> dans un cas qui est <b>initialement par negligence et finalement par accident. Quelle</b> est la <i>halakha</i> dans ce cas ?
+
+### Partie 10
+Les deux aspects de la question sont les suivants : <b>Disons-nous</b> que, <b>puisque</b> ce cas est <b>initialement par negligence et finalement par accident,</b> il est <b>exonere</b> de responsabilite ? <b>Ou peut-etre ici,</b> dans ce cas, <b>c'est entierement</b> du a sa <b>negligence ; puisqu'il a vu que</b> l'animal <b>etait sur le point de mettre bas, il aurait du le sauvegarder</b> de maniere adequate.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

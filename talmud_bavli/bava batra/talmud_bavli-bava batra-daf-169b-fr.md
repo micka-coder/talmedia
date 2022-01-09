@@ -1,0 +1,51 @@
+
+### Partie 1
+Rav Pappa ou Rav Ashi <b>leur a dit</b> : Ne tirez pas cette conclusion. Il est possible que la <i>tanna</i> du <i>baraita</i> considere que <b>generalement</b> le tribunal <b>ecrit un recu</b> lorsqu'un creancier a perdu son billet a ordre. <b>Et ici, c'est la raison</b> pour laquelle il ne redige pas de recu : <b>Car, peut-etre que le creancier,</b> c'est-a-dire celui a qui le bien a ete vole, va <b>aller reprendre possession</b> du bien <b>aupres de l'acheteur</b> qui a achete le terrain vole, <b>et</b> l'acheteur, cherchant a se faire rembourser conformement a la garantie, va <b>aller reprendre possession</b> du bien aupres d'autres <b>acheteurs</b> qui avaient achete ulterieurement un bien au meme vendeur. <b>Et le recu</b> ne servira a rien, car il <b>ne se trouve pas chez les acheteurs</b> qui ont achete des biens au vendeur, mais est en possession du vendeur lui-meme. Les acheteurs, qui sont ceux qui souffriront de la double perception, n'ont aucune protection ; en fait, ils ne seront meme pas conscients qu'ils sont victimes d'une double perception.
+
+### Partie 2
+La Gemara demande : <b>Enfin, ces <b>acheteurs ne se retournent-ils pas</b> vers le proprietaire,</b> c'est-a-dire le vendeur, <b>du terrain</b> pour demander le remboursement ? A ce moment-la, le vendeur produira le recu, exposant la double perception, et tout le processus sera inverse, de sorte qu'en fin de compte l'acheteur qui a souffert de la perception injuste obtiendra la possession de son bien.
+
+### Partie 3
+La Gemara repond : S'il est vrai qu'en fin de compte la tromperie sera decouverte, <b>dans l'intervalle,</b> entre le moment ou la terre a ete injustement reprise a l'acheteur et le moment ou l'injustice est inversee, celui qui a repris la terre <b>s'empare</b> de la terre <b>et consomme</b> son <b>produit,</b> c'est-a-dire qu'il jouit des profits produits par la terre, et il sera difficile de recevoir le remboursement complet de ce produit vole.
+
+### Partie 4
+<b>Alternativement,</b> la raison pour laquelle l'option de rediger un recu pour le vendeur du terrain n'est pas poursuivie ici est qu'il y a une inquietude <b>a propos de celui qui achete</b> un terrain <b>sans garantie.</b> Comme un tel acheteur sait qu'il n'a aucun recours pour etre rembourse par le vendeur si le terrain qu'il a achete est repris, il ne contactera jamais le vendeur et decouvrira que le vendeur a un recu et qu'il a ete victime d'une double perception injuste.
+
+### Partie 5
+La Gemara demande : <b>Si c'est le cas,</b> le meme souci devrait etre pris en consideration dans le cas des <b>billets a ordre</b> Or, Rav Pappa, ou Rav Ashi, dit que la <i>tanna</i> de la <i>baraita</i> concede qu'un recu peut etre redige pour le debiteur afin de permettre le recouvrement d'une dette en cas de perte du billet a ordre. Pourquoi les preoccupations susmentionnees ne sont-elles pas applicables au cas du recouvrement de la dette ?
+
+### Partie 6
+La Gemara repond : <b>La, ou</b> le debiteur <b>prete de l'argent,</b> lorsque le creancier cherche a reprendre possession d'un terrain vendu, l'acheteur de ce terrain <b>se dira</b> : Il est possible que le debiteur ait <b>soumis le creancier en</b> lui versant <b>de l'argent,</b> puisque les dettes sont generalement reglees avec de l'argent. Je vais donc examiner la question avec le debiteur avant de permettre au creancier de reprendre possession de mon terrain. A ce moment-la, le recu, detenu par le debiteur, sera decouvert, et la double perception sera empechee. <b>Ici, ou il doit une terre,</b> comme il s'agit d'une creance fondee sur le remboursement d'avoir achete une terre volee, l'acheteur <b>sait que</b> il n'est <b>pas</b> courant que celui <b>qui</b> est <b>dote d'une terre</b> soit <b>appele par de l'argent</b> dans de tels cas. L'acquereur laissera donc reprendre possession de sa terre et en demandera le remboursement ulterieurement.
+
+### Partie 7
+§ La Guemara revient sur la <i>baraita</i> et analyse l'un de ses enonces. <b>Le Maitre dit</b> dans le <i>baraita</i> : En ce qui concerne les actes d'achat et de vente de terrains, le tribunal peut ecrire un document de remplacement, <b>excluant la garantie qui</b> etait <b>dans</b> le premier document que si le champ est repris, le vendeur indemnisera l'acheteur pour sa perte. <b>Comment rediger</b> un acte de vente de maniere a ce qu'il ne comporte pas cette garantie ? <b>Rav Nahman dit</b> que le cas est celui dans <b>lequel</b> le tribunal <b>ecrit comme suit : Notre acte n'est pas</b> destine a <b>permettre</b> le <b>recouvrement</b> du remboursement en cas de reprise de possession, <b>ni</b> le recouvrement <b>des biens greves</b> qui ont ete vendus <b>ni</b> le recouvrement <b>des biens non vendus</b> ; <b>au contraire,</b> il est destine simplement a assurer <b>que le terrain est etabli en la possession de l'acheteur.</b>
+
+### Partie 8
+<b>Rafram dit : Cette</b> declaration du Rav Nahman sert <b>a dire</b> que l'omission de la <b>garantie</b> de la vente dans un document <b>est une erreur scribale.</b> C'est-a-dire qu'on suppose que lorsqu'on achete un terrain, on s'attend a ce que son achat soit garanti, et que si une telle clause n'est pas mentionnee dans le document, on presume qu'il s'agit d'un simple oubli scribal, et qu'une garantie est en vigueur. Le Rav Nahman a dit, en expliquant la <i>baraita</i>, que <b>la</b> seule <b>raison</b> pour laquelle un achat de terrain n'aurait pas de garantie <b>est que</b> le scribe <b>a ecrit cela pour lui,</b> c'est-a-dire, il a ecrit qu'il n'y a pas de garantie, explicitement dans l'acte ; <b>ceci</b> indique que si le scribe <b>n'a pas ecrit cela</b> explicitement <b>pour</b> l'acheteur, mais a laisse completement de cote le sujet de la garantie, l'acheteur <b>aurait</b> neanmoins la garantie et pourrait <b>recevoir</b> le remboursement du vendeur en cas de reprise de possession.
+
+### Partie 9
+<b>Rav Ashi</b> n'est pas d'accord et <b>dit :</b> L'omission de la <b>garantie</b> de la vente dans un document <b>n'est pas une erreur de scribe.</b> Par consequent, si la mention d'une garantie est omise dans un acte de vente, il n'y a en fait pas de garantie. <b>Et que</b> signifie le <i>baraita</i> lorsqu'il dit : <b>Oublier la garantie qui</b> etait <b>dans</b> le premier document ? Cela signifie simplement <b>que</b> dans ce cas il n'y avait <b>aucune</b> clause concernant une <b>garantie ecrite dedans</b> du tout.
+
+### Partie 10
+La Gemara raconte : Il y avait <b>une certaine femme qui donna de l'argent a un certain homme pour</b> agir en tant que son agent et <b>acheter un terrain pour elle.</b> L'agent <b>alla</b> et <b>acheta</b> un terrain <b>pour elle,</b> mais il effectua l'achat de telle sorte qu'il etait <b>sans garantie.</b> La femme voulut agir contre l'agent et <b>se presenta devant Rav Nahman</b> pour demander quel recours elle avait.
+
+#### Partie 11
+Rav Nahman <b>dit a</b> l'agent : Le principe concernant un mandataire est que s'il agit au detriment de celui qui l'a nomme, ce dernier peut dire : <b>Je t'ai envoye</b> pour agir <b>a mon profit et non a mon detriment.</b> Par consequent, l'ensemble du mandat est nul et non avenu, annulant ainsi l'achat. Neanmoins, vous avez accepte d'acheter le terrain sans garantie. Par consequent, <b>Allez</b> vous-meme et <b>achetez</b> le terrain <b>de lui sans garantie, puis vendez-le a</b> cette femme <b>avec la garantie</b> que vous la rembourserez en cas de reprise du terrain.
+
+### Partie 12
+§ La <i>baraita</i> enseigne que <b>Rabban Shimon ben Gamliel dit :</b> Dans le cas de <b>quelqu'un qui fait don</b> d'une terre <b>a un autre, et</b> le beneficiaire <b>lui a rendu l'acte, son don</b> de terre <b>lui revient</b> egalement. <b>Mais les rabbins disent : Son don</b> de terre <b>reste</b> en possession du beneficiaire. La Guemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabban Chimon ben Gamliel ? Rav Asi repond : Il devient comme</b> si le donateur <b>disait au beneficiaire</b> : <b>Ce champ t'est donne</b> seulement <b>aussi longtemps que l'acte</b> reste <b>en ta possession.</b> Par consequent, en rendant l'acte au donateur, le beneficiaire annule le don.
+
+### Partie 13
+<b>Rabba s'oppose a cela : Si c'est ainsi</b> que ce sont les conditions du don, alors lorsque l'acte est <b>vole</b> a <b>ou perdu</b> par le beneficiaire, le don doit <b>egalement</b> etre annule.
+
+### Partie 14
+<b>Au contraire, Rabba a dit</b> une explication differente : Rabban Shimon ben Gamliel et les rabbins <b>sont en desaccord</b> sur la question de savoir si les <b>lettres,</b> c'est-a-dire le contenu d'un billet a ordre, <b>sont acquises par</b> le simple <b>transfert</b> du document d'un detenteur du document a un autre. <b>Rabban Shimon ben Gamliel soutient</b> que les <b>lettres sont acquises par le transfert</b> du document. Par consequent, si le destinataire rend l'acte de vente au donateur, le terrain revient egalement au donateur. <b>Et les rabbins soutiennent</b> que les <b>lettres ne sont pas acquises par le transfert</b> du document.
+
+### Partie 15
+<b>Les Sages ont enseigne</b> dans une <i>baraita</i> : En ce qui concerne <b>quelqu'un qui vient</b> au tribunal <b>pour etre juge</b> sur une revendication que la terre qui est en sa possession appartient a un autre, s'il revendique la propriete <b>sur la base d'un acte,</b> c'est-a-dire, un acte de vente, <b>et</b> pretend en outre qu'il est le proprietaire <b>sur la base de la propriete presumee</b> du terrain, car il etait en sa possession incontestee pendant trois ans, et il n'a donc pas besoin de l'acte comme preuve, sa revendication est <b>jugee sur la base</b> de l'<b>acte de propriete.</b> C'est <b>la declaration de Rabbi</b> Yehuda HaNasi. <b>Rabban Shimon ben Gamliel dit :</b> Sa revendication est jugee <b>sur la base</b> de sa <b>presomption de propriete.</b>
+
+### Partie 16
+La Guemara analyse la <i>baraita</i> : <b>A propos de quoi Rabbi Yehuda HaNasi et Rabban Shimon ben Gamliel sont-ils <b>en desaccord</b> ? Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il <b>a dit : Ils ne sont pas d'accord</b> sur le fait que l'on acquiert ou non des <b>lettres en transferant</b> le document d'un detenteur du document a un autre.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

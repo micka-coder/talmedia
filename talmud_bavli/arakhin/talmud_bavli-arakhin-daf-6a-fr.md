@@ -1,0 +1,51 @@
+
+### Partie 1
+§ La Guemara note qu'il existe une contradiction apparente en ce qui concerne la question de savoir si un Gentil peut ou non faire un don pour l'entretien du Temple. <b>Il a ete enseigne dans une</b> <i>baraita</i> : Dans le cas d'un <b>gentil qui s'est engage a faire un don pour l'entretien du Temple, on l'accepte</b> <b>de sa part. Et</b> il <b>est enseigne</b> dans <b>un autre</b> <i>baraita</i> : <b>On ne l'accepte pas</b> de lui.
+
+### Partie 2
+<b>Rabbi Ila dit</b> que <b>Rabbi Yohanan dit :</b> Ce n'est <b>pas difficile. Cette</b> <i>baraita</i>, qui enseigne que le don n'est pas accepte, est enoncee <b>en ce qui concerne le debut</b> de la construction du Temple. Le don est refuse afin que les Juifs ne se reposent pas sur les dons des Gentils. <b>Cette</b> <i>baraita</i>, qui stipule que la donation est acceptee, est enoncee <b>en ce qui concerne la fin</b> de la construction du Temple, c'est-a-dire apres qu'il soit deja construit.
+
+### Partie 3
+<b>Comme Rabbi Asi dit</b> que <b>Rabbi Yohanan dit</b> en ce qui concerne les dons des gentils pour l'entretien du Temple : <b>Pour ce qui est du debut</b> de la construction du Temple, <b>on ne peut accepter d'eux meme l'eau et le sel. En ce qui concerne la fin</b> de la construction du Temple, <b>on ne peut pas accepter un article defini,</b> c'est-a-dire s'il sera clair que cela a ete donne par un Gentil. Mais <b>on peut accepter</b> leur don d'un <b>article qui n'est pas defini.</b> La Gemara demande : <b>Qu'est-ce qui est considere</b> comme un <b>article defini ? Rav Yosef repond : Par exemple, les plaques a pointes d'une coudee</b> de large placees sur le toit du Sanctuaire, qui etaient destinees a <b>eliminer les corbeaux.</b>
+
+### Partie 4
+<b>Rav Yosef souleve une objection</b> a la decision de la <i>baraita</i> telle qu'interpretee par Rabbi Yohanan, selon laquelle en ce qui concerne le debut de la construction du Temple, rien n'est accepte des Gentils. Nehemie demande au roi de Perse : <b>"Et une lettre a Asaph, le gardien du parc du roi,</b> afin qu'il me donne du bois pour faire des poutres pour les portes du chateau qui appartient a la maison" (Nehemie 2:8). Ici, Nehemie a clairement demande des materiaux aux gentils. <b>Abaye a dit au</b> Rav Yosef : Les mesures prises par <b>le gouvernement sont differentes, car</b> le gouvernement <b>ne se retracte pas</b> ses decisions. <b>Comme le dit Shmuel : Si le gouvernement dit : je vais deraciner des montagnes, il va deraciner des montagnes et ne pas se retracter</b> ce qu'il a dit.
+
+### Partie 5
+§ <b>Rav Yehuda dit</b> que <b>Rav dit :</b> En ce qui concerne <b>un Gentil qui a separe le <i>teruma</i> de son tas</b> de grains, <b>on l'examine</b> pour determiner son intention. <b>S'il l'a separe avec</b> l'<b>intention</b> qu'il soit comme le <i>teruma</i> des <b>Juifs, il doit etre donne a un pretre. Si ce n'est pas le cas, il faut l'inhumer,</b> car <b>on craint</b> que <b>peut-etre son cœur etait</b> dirige <b>vers le Ciel,</b> c'est-a-dire que son intention etait de le consacrer au Temple et qu'il ne voulait pas qu'il soit remis a un pretre. Comme il y a une incertitude quant a son intention, on ne peut rien faire avec ce produit.
+
+### Partie 6
+La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : Dans le cas d'un <b>gentil qui a fait don d'une</b> croix <b>poutre</b> et l'a apportee a une synagogue, <b>et</b> le <b>nom</b> de Dieu <b>est ecrit dessus, on l'examine</b> pour determiner son intention. <b>S'il dit : je l'ai separe avec</b> l'<b>intention</b> qu'il soit comme les dons des <b>Juifs,</b> le nom doit etre <b>coupe [<i>yagod</i>]</b> et enterre, <b>et on utilise le reste</b> pour une synagogue. <b>Et si ce n'est pas le cas,</b> la poutre entiere <b>doit etre enterree,</b> car <b>on craint</b> que <b>peut-etre son cœur etait</b> dirige <b>vers le Ciel,</b> c'est-a-dire que son intention etait de le consacrer au Temple, et donc on ne peut pas l'utiliser.
+
+### Partie 7
+La Guemara analyse cette <i>baraita</i> : La <b>raison pour laquelle</b> la poutre <b>necessite une inhumation</b> est <b>que</b> le <b>nom</b> de Dieu <b>est ecrit dessus,</b> ce dont on peut deduire que si le <b>nom</b> de Dieu n'est <b>pas ecrit dessus,</b> elle <b>ne necessite pas d'inhumation. </b> Pourquoi, alors, Rav Yehuda a-t-il dit que si un Gentil a separe le <i>teruma</i>, il necessite une inhumation ?
+
+### Partie 8
+La Guemara repond : <b>Meme si</b> le <b>nom</b> de Dieu n'est <b>pas ecrit sur</b> la poutre, <b>la meme</b> <i>halakha</i> <b>est vraie,</b> et la poutre <b>necessite une inhumation,</b> en raison de la crainte qu'il ait pu avoir l'intention de la consacrer. <b>Et</b> quant a savoir pourquoi le <i>baraita</i> discute specifiquement du cas ou le nom de Dieu etait ecrit sur la poutre, <b>cela nous enseigne que</b> si son intention etait qu'elle soit utilisee dans une synagogue, alors <b>meme si</b> le <b>nom de Dieu est ecrit dessus,</b> neanmoins le reste de la poutre n'est pas interdit. Au contraire, le nom doit etre <b>coupe</b> et enterre, <b>et</b> on peut <b>utiliser le reste</b> pour une synagogue. La raison en est <b>que</b> si le <b>nom de Dieu</b> est ecrit sur un objet, seul l'endroit ou il est ecrit est sanctifie, mais la partie de l'objet <b>qui n'est pas a sa place n'est pas sanctifiee.</b>
+
+### Partie 9
+<b>Comme on l'a appris</b> dans un <i>baraita</i> : Si l'un des noms de Dieu <b>etait ecrit sur les anses des recipients ou sur les pieds d'un lit, on doit couper</b> le nom <b>et l'inter</b>, et le reste est permis.
+
+### Partie 10
+§ <b>Rav Nahman dit</b> que <b>Rabba bar Abbahu dit : Celui qui dit :</b> Je verse <b>cette <i>sela</i> a la charite, est autorise a en changer</b> l'objet, c'est-a-dire a utiliser lui-meme l'argent et a le remplacer plus tard. La Guemara commente : On a initialement <b>compris de cela</b> que si l'on veut changer son but <b>pour son propre</b> benefice, <b>oui,</b> cela est permis, car il avait initialement cette stipulation en tete. Mais il n'est <b>pas</b> permis de le preter <b>a un autre.</b> Pourtant, il <b>a ete dit</b> que <b>Rav Ami dit</b> que <b>Rabbi Yohanan dit :</b> Il est permis de changer sa finalite <b>que ce soit pour lui-meme ou pour un autre.</b>
+
+### Partie 11
+<b>Rabbi Zeira dit : Ils ont enseigne</b> cette <i>halakha</i>, que l'on peut changer le but de la piece de monnaie, uniquement dans un cas <b>ou il a dit : Il</b> incombe <b>a moi</b> de donner une <i>sela</i> a la charite. <b>Mais</b> s'il a <b>dit : Cette</b> <i>sela</i> <b>est</b> pour la charite, alors il est <b>oblige de donner</b> la <i>sela</i> a la charite <b>telle quelle,</b> et il ne peut l'utiliser et la remplacer.
+
+### Partie 12
+<b>Rava s'oppose a cela : Au contraire, l'inverse est</b> plus <b>raisonnable.</b> Dans un cas ou l'on <b>dit : Cette</b> <i>sela</i> est destinee a la charite, il est logique de lui permettre de l'<b>utiliser, afin qu'il porte</b> la <b>responsabilite financiere de sa</b> perte a partir de ce moment-la. <b>Mais</b> s'il disait : Il m'incombe <b>sur moi</b> de faire don d'une <i>sela</i> a une œuvre de bienfaisance, il ne devrait <b>pas</b> etre autorise a utiliser la <i>sela</i>, car il doit de toute facon faire don d'une <i>sela</i>. <b>Au contraire,</b> puisqu'il y a une raison dans l'une ou l'autre situation de permettre son utilisation, il n'y a <b>pas de difference</b> entre les cas, et dans les deux cas il peut utiliser la <i>sela</i>.
+
+### Partie 13
+La Guemara note que <b>cela est enseigne</b> dans une <i>baraita</i> <b>conforme</b> a l'avis de <b>Rava : Un vœu</b> est une <b>charite, mais un bien consacre</b> <b>n'est pas une charite.</b> La Gemara demande : <b>Qu'est-ce que</b> le <i>baraita</i> <b>dit ? </b> Apres tout, <b>ni un vœu ni un bien consacre</b> <b>ne sont de la charite.</b>
+
+### Partie 14
+<b>Au contraire,</b> n'est-il <b>pas exact</b> que <b>ceci</b> est ce que dit le <i>baraita</i> <b> : La charite</b> est comme un vœu de consacrer un bien, en ce qu'elle <b>est</b> soumise a l'interdiction <b>de : Tu ne dois pas tarder,</b> qui decoule du verset :" Lorsque tu feras un vœu au Seigneur ton Dieu, tu ne tarderas pas a l'acquitter" (Deuteronome 23, 22). <b>Mais</b> neanmoins <b>elle n'est pas comme les biens consacres</b>, <b>car</b> dans le cas des biens <b>consacres</b> il est <b>interdit de les utiliser, alors que</b> dans le cas de la <b>charite</b> il est <b>permis de les utiliser. </b> Puisqu'en ce qui concerne l'option d'utiliser l'argent, le <i>baraita</i> ne fait pas de distinction entre un cas ou l'on dit : Il m'incombe de donner une <i>sela</i> a la charite, et un cas ou l'on dit : Cette <i>sela</i> est destinee a la charite, elle soutient evidemment l'opinion de Rava.
+
+### Partie 15
+<b>Rav Kahana a dit : J'ai dit</b> cette <b><i>halakha</i></b> de Rav Nahmans, a l'egard de celui qui dit : Cette <i>sela</i> est pour la charite, ainsi que la discussion qui l'accompagne, <b>devant le Rav Zevid de Nehardeâ. Il m'a dit</b> : <b>Vous enseignez ceci</b> <i>halakha</i> <b>de cette maniere,</b> que Rav Nahman a simplement declare qu'il est permis de changer le but de la <i>sela</i>, et les Sages ont precise que cela est permis dans tous les cas. Mais <b>nous enseignons cette</b> <i>halakha</i> <b>de cette maniere,</b> que tout cela a ete enonce en citant le Rav Nahman : <b>Rav Nahman dit</b> que <b>Rabba bar Avuh dit</b> que <b>Rav dit : Celui qui a dit :</b> Je contribue <b>cette <i>sela</i> a la charite, est autorise a en changer</b> le but, <b>que ce soit pour lui ou pour un autre,</b> et <b>que ce soit</b> il a <b>dit :</b> Cela m'incombe <b>a moi,</b> ou <b>qu'il ait dit : Cette</b> <i>sela</i> <b>est</b> pour la charite.
+
+### Partie 16
+§ <b>Les Sages ont enseigne</b> une <i>baraita</i> qui traite plus avant de ces questions. Celui qui a dit : <b>Cette <i>sela</i> est destinee a la charite,</b> est <b>permis de changer</b> son but et de la remplacer, tant qu'elle n'est <b>pas</b> encore <b>entree en possession</b> des <b>collecteurs de charite.</b> Mais <b>une fois qu'elle est entree en possession</b> des <b>collecteurs de charite</b> il est <b>interdit de changer</b> son but.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

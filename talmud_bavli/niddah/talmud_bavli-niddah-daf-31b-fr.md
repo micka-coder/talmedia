@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>ils tardent</b> alors qu'ils sont <b>dans</b> leurs femmes <b>abdomen,</b> s'abstenant initialement d'emettre du sperme <b>afin que leurs femmes emettent de la semence en premier,</b> afin <b>que leurs enfants soient males, le verset leur attribue</b> du credit <b>comme s'ils avaient de nombreux fils et fils. Et cette</b> affirmation <b>est</b> la meme que celle <b>que Rav Ketina a dite : J'aurais pu faire de tous mes enfants des males,</b> en m'abstenant d'emettre de la semence jusqu'a ce que ma femme en emette la premiere. <b>Rava dit</b> une autre methode par laquelle on peut faire en sorte que ses enfants soient des males : <b>Celui qui souhaite faire de tous ses enfants des males doit s'engager dans des rapports sexuels</b> avec sa femme <b>et repeter</b> l'acte.
+
+### Partie 2
+§ <b>Et Rabbi Yitzhak dit</b> que <b>Rabbi Ami dit : Une femme ne tombe enceinte que</b> en ayant des rapports sexuels <b>proches du debut de son <b>cycle menstruel</b>, comme il est dit : "Voici, j'ai été enfantée dans l'iniquité"</b> (Psaumes 51:7). Cette iniquite fait reference aux rapports sexuels proches du cycle menstruel de la femme, lorsque les rapports sexuels sont interdits. Par conséquent, David dit que sa mère l'a vraisemblablement con§u A ce moment-lA .
+
+### Partie 3
+<b>Et Rabbi Yohanan dit :</b> Une femme ne devient enceinte qu'en ayant des rapports sexuels <b>proches</b> du moment de son <b>immersion</b> dans un bain rituel, par lequel elle est purifiee de son statut de femme en periode de menstruation, <b>comme il est dit</b> dans la suite du meme verset : <b>"Et c'est dans le peche [<i>uvhet</i>] que ma mere m'a concu"</b> (Psaumes 51:7).
+
+#### Partie 4
+La Gemara explique cette derivation : <b>D'ou peut-on</b> deduire que ce terme "<i>het</i>" est</b> une reference <b>a la purete ?</b> La Gemara repond : <b>Comme il est ecrit</b> a propos de la lepre des maisons : <b>"<i>Vehittei</i> la maison"</b> (Levitique 14:52), <b>et nous traduisons</b> le verset en arameen par : <b>Et il purifiera la maison. Et si vous voulez, dites</b> que l'interpretation est derivee <b>d'ici : "Purgez-moi [<i>tehatteeni</i>] avec de l'hysope, et je serai pur"</b> (Psaumes 51,9). De toute evidence, la racine <i>het</i>, <i>tet</i>, <i>alef</i> fait reference a la purification.
+
+### Partie 5
+§ <b>Et Rabbi Yitzhak dit</b> que <b>Rabbi Ami dit : Quand un male vient au monde,</b> c'est-a-dire quand un bebe male nait, <b>la paix vient au monde, comme il est dit : "Envoyez les agneaux [<i>khar</i>] pour le chef du pays"</b> (Isaie 16:1). Ce <i>khar</i>, ou <i>kar</i>, cadeau que l'on envoie au souverain, contribue a la stabilite du gouvernement et a la paix, et le mot <b>male [<i>zakhar</i>]</b> peut etre interprete homiletiquement comme une abreviation de : <b>C'est un <i>kar</i> [<i>zeh kar</i>].</b>
+
+### Partie 6
+<b>Et Rabbi Yitzhak de l'ecole de Rabbi Ami dit : Lorsqu'un homme vient au monde, sa miche</b> de pain, c'est-a-dire sa subsistance, <b>entrent en sa possession.</b> En d'autres termes, un homme peut subvenir a ses besoins. Ceci est base sur l'interpretation susmentionnee du mot <b>male [<i>zakhar</i>]</b> comme une abreviation de : <b>C'est un <i>kar</i> [<i>zeh kar</i>],</b> et le terme <i>kar</i> designe la subsistance, <b>comme il est ecrit : "Et il leur prepara de grandes provisions [<i>kera</i>]"</b> (IIA Rois 6:23).
+
+### Partie 7
+En revanche, <b>lorsqu'une femme vient au monde, rien,</b> c'est-a-dire aucune subsistance, ne vient <b>avec elle.</b> Cela decoule de l'interpretation homiletique du mot <b>femelle [<i>nekeva</i>]</b> comme abreviation de la phrase : <b>Elle vient propre [<i>nekiya baâ</i>],</b> c'est-a-dire vide. En outre, <b>Jusqu'a ce qu'elle dise : </b> Donne-moi <b>la subsistance,</b> le peuple <b>ne lui donne pas, comme il est ecrit</b> dans la demande de Laban a Jacob : <b>"Appelle-moi [<i>nokva</i>] ton salaire, et je le donnerai"</b> (Genese 30:28). Laban a utilise le mot <i>nokva</i>, similaire a <i>nekeva</i>, lorsqu'il a dit qu'il ne paierait Jacob que si celui-ci demandait explicitement son salaire.
+
+### Partie 8
+<b>Les etudiants de Rabbi Shimon ben Yohai lui demanderent : Pour quelle</b> raison <b>la Torah dit</b> qu'une <b>femme apres un accouchement apporte une offrande ? Il leur repondit : Au moment ou</b> une femme <b>s'accroupit pour accoucher,</b> sa douleur est si grande qu'impulsivement <b>elle fait le serment de ne plus jamais avoir de rapports sexuels avec son mari</b>, afin de ne plus jamais ressentir cette douleur. <b>C'est pourquoi la Torah dit</b> que <b>elle doit apporter une offrande</b> pour avoir viole son serment et continue a avoir des rapports sexuels avec son mari.
+
+### Partie 9
+<b>Rav Yosef s'oppose a cette</b> reponse : <b>Mais la femme n'est-elle pas</b> <b>une violatrice intentionnelle</b> de son serment ? <b>Et</b> si elle souhaite que son serment soit dissous, afin qu'elle puisse avoir des relations sexuelles avec son mari, <b>la question depend</b> de son <b>regret</b> de son serment. On est oblige d'apporter une offrande pour la violation d'un serment d'un enonce seulement si sa transgression est involontaire. <b>Et en outre,</b> si le but de l'offrande qu'une femme apporte apres l'accouchement est d'expier la violation d'un serment, alors <b>elle</b> devrait etre <b>obligee d'apporter</b> un agneau ou une chevre femelle comme <b>offrande,</b> ce qui est l'exigence de celui qui a viole <b>un serment,</b> plutot que l'offrande d'oiseau apportee par une femme apres l'accouchement.
+
+### Partie 10
+<b>Et</b> les etudiants de Rabbi Shimon ben Yohai lui demanderent en outre : <b>Pour quelle</b> raison <b>la Torah dit-elle</b> qu'une femme qui donne naissance a <b>un homme</b> est rituellement impure <b>pendant sept</b> jours, <b>mais</b> une femme qui donne naissance a <b>une femme</b> est impure <b>pendant quatorze</b> jours ? Rabbi Shimon ben Yohai leur repondit : Lorsqu'une femme donne naissance a <b>un male, ce dont tout le monde se rejouit, elle regrette</b> son serment, celui de ne plus jamais avoir de rapports avec son mari, deja <b>sept</b> jours apres l'accouchement. En revanche, apres avoir donne naissance a <b>une femme, sur laquelle tout le monde est malheureux, elle regrette</b> son serment seulement <b>quatorze</b> jours apres l'accouchement.
+
+### Partie 11
+<b>Et</b> les etudiants lui ont en outre demande : <b>Pour quelle</b> raison la Torah dit-elle</b> que la <b>circoncision</b> n'est pratiquee que <b>le huitieme</b> jour de la vie du bebe, et pas avant ? Il leur repondit : C'est <b>pour qu'il n'y ait pas</b> une situation ou <b>tout le monde</b> est <b>heureux</b> lors de la ceremonie de circoncision <b>mais le pere et la mere de</b> l'enfant <b>sont malheureux,</b> car il leur est toujours interdit d'avoir des rapports sexuels.
+
+### Partie 12
+<b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Meir dirait : Pour quelle</b> raison <b>la Torah dit</b> que <b>une femme en periode de menstruation</b> est interdite de rapports sexuels avec son mari <b>pendant sept</b> jours ? C'est <b>parce que</b> si une femme etait autorisee a avoir des rapports sexuels avec son mari tout le temps, son mari serait trop <b>habitue a elle, et</b> finirait par etre <b>repugne par elle. </b> Par consequent, <b>la Torah dit</b> qu'une femme en periode de menstruation <b>doit etre rituellement impure</b> pendant <b>sept jours,</b> durant lesquels il lui est interdit d'avoir des rapports avec son mari, <b>afin que</b> lorsqu'elle redeviendra pure <b>elle soit chere a son mari comme</b> au <b>moment ou elle est entree dans le dais nuptial</b> avec lui.
+
+### Partie 13
+§ <b>Les eleves de Rabbi Dostai, fils de Rabbi Yannai, lui demanderent : Pour quelle</b> raison est-il de regle que <b>un homme poursuive une femme</b> pour le mariage, <b>mais qu'une femme ne poursuive pas un homme ?</b> Rabbi Dostai leur repondit en citant <b>une parabole d'une personne qui a perdu un objet. Qui cherche quoi ? </b> Certes, <b>le proprietaire de l'objet perdu cherche son objet ;</b> l'objet ne cherche pas son proprietaire. Comme la premiere femme a ete creee a partir du corps du premier homme, l'homme cherche ce qu'il a perdu.
+
+### Partie 14
+<b>Et</b> les etudiants de Rabbi Dostai lui ont encore demande : <b>Pour quelle</b> raison un homme</b> s'engage-t-il dans un rapport sexuel <b>face vers le bas, et une femme</b> s'engage-t-elle dans un rapport sexuel <b>face vers le haut, vers l'homme ?</b> Rabbi Dostai leur repondit : <b>Cet</b> homme fait face a <b>l'endroit a partir duquel il a ete cree,</b> c'est-a-dire la terre, <b>et cette</b> femme fait face a <b>l'endroit a partir duquel elle a ete creee,</b> a savoir l'homme.
+
+### Partie 15
+<b>Et</b> les etudiants ont egalement demande : <b>Pour quelle</b> raison un <b>homme</b> en colere est-il susceptible d'<b>accepter l'apaisement, mais une femme</b> n'est <b>pas</b> aussi susceptible d'<b>accepter l'apaisement ?</b> Rabbi Dostai leur a repondu : C'est <b>parce que cet</b> homme se comporte comme <b>l'endroit a partir duquel il a ete cree,</b> c'est-a-dire la terre, qui cede a la pression, <b>et que</b> la femme se comporte comme <b>l'endroit a partir duquel elle a ete creee,</b> c'est-a-dire a partir de l'os, qui ne peut etre modele facilement.
+
+### Partie 16
+Les etudiants ont continue a demander a Rabbi Dostai : <b>Pour quelle</b> raison <b>la voix d'une femme est-elle agreable, mais celle d'un homme ne l'est pas ?</b> Il repondit : <b>Cet</b> homme est semblable a <b>l'endroit d'ou il a ete cree,</b> la terre, qui n'emet pas de son quand on la frappe, <b>et cette</b> femme est semblable a <b>l'endroit d'ou elle a ete creee,</b> un os, qui emet un son quand on le frappe. La preuve que la voix de la femme est agreable est <b>qu'il est dit</b> dans le Cantique des Cantiques que l'homme dit a sa bien-aimee : <b>Car ta voix est douce, et ton visage est beau"</b> (Cantique des Cantiques 2:14).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

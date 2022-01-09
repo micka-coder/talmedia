@@ -1,0 +1,27 @@
+
+### Part 1
+<b>This</b> transaction <b>is close to a gain and far from a loss</b> for the seller, as he accepts upon himself the risk that the wine may go sour. An arrangement of this sort constitutes interest by rabbinic law. Abaye <b>said to him: Since</b> the buyer <b>accepts upon himself</b> the potential loss if the price <b>depreciates, it is</b> considered a transaction that is <b>close to</b> both <b>this and that,</b> as there is the possibility of both gain and loss. The transaction is therefore permitted.
+
+### Part 2
+<strong>MISHNA:</strong> <b>One who lends another</b> money <b>may not reside in</b> the borrower’s <b>courtyard free</b> of charge, <b>nor may he rent</b> living quarters <b>from him at less</b> than the going rate, <b>because this is interest.</b> The benefit he receives from living on the borrower’s property constitutes the equivalent of an additional payment as interest on the loan.
+
+### Part 3
+<strong>GEMARA:</strong> <b>Rav Yosef bar Minyumi says</b> that <b>Rav Naḥman says: Even though</b> the Sages <b>said</b> that <b>one who resides in another’s courtyard without his knowledge does not have to pay him rent</b> if the owner of the courtyard does not suffer any loss from the arrangement, nevertheless, if <b>he lent</b> money to the owner of a courtyard <b>and</b> then <b>resides in his courtyard,</b> the lender <b>must pay him rent.</b> The Gemara poses a question: <b>What</b> is Rav Naḥman <b>teaching us</b> by this statement? <b>We learn this</b> explicitly in the mishna: <b>One who lends</b> money to <b>another may not reside in</b> the borrower’s <b>courtyard free</b> of charge, <b>nor may he rent</b> living quarters <b>from him at less</b> than the going rate, <b>because this is interest.</b>
+
+### Part 4
+The Gemara refutes this claim: <b>If</b> this <i>halakha</i> is learned <b>from the mishna</b> alone, <b>I would say</b> that <b>this matter</b> applies only <b>to</b> a situation with <b>a courtyard that stands to be rented out and a man who usually rents</b> a place of residence that would otherwise need to find a place to reside. <b>But</b> with regard to <b>a courtyard that does not stand to be rented out and a man who does not usually rent</b> a place of residence, as he has another place where he could reside, the owner of the courtyard appears to have lost nothing and the resident appears to have gained nothing, so you might <b>say</b> that he should <b>not</b> have to pay at all. Rav Naḥman therefore <b>teaches us</b> that even in that case he must pay rent in order to prevent the appearance of interest.
+
+### Part 5
+<b>There are</b> those <b>who say</b> a different version of this discussion: <b>Rav Yosef bar Minyumi says</b> that <b>Rav Naḥman says: Even though</b> the Sages <b>said</b> that <b>one who resides in another’s courtyard without his knowledge does not have to pay him rent,</b> if the courtyard owner says to another: <b>Lend me</b> money <b>and</b> you may <b>reside in my courtyard,</b> the lender <b>must pay him rent.</b>
+
+### Part 6
+The Gemara analyzes the difference between the two versions. According to <b>the one who said</b> that the lender must pay rent to the courtyard owner <b>if he lent him</b> money without the courtyard owner’s stipulating any conditions, <b>all the more so</b> would he hold that the lender must pay rent to the courtyard owner if the courtyard owner explicitly stated: <b>Lend me</b> money and you may reside in my courtyard, as this indicates a condition obligating the borrower to pay interest. <b>According to the one who said</b> that the arrangement is forbidden if he says: <b>Lend me</b> money and you may reside in my courtyard, it is forbidden only in such a case. <b>But</b> if <b>he</b> merely <b>lent him</b> money without any stipulation about the courtyard, it is <b>not</b> forbidden. <b>What is the reason</b> for the more lenient ruling? <b>Since initially he did not lend him</b> the money <b>with this intention, we have no</b> problem <b>with it,</b> as it is possible that there is no connection between the loan and his residing in the courtyard.
+
+### Part 7
+The Gemara relates: <b>Rav Yosef bar Ḥama,</b> Rava’s father, <b>would seize the slaves of people who owed him money, and he would work them</b> against the will of their owners. <b>Rava, son of</b> Rav Yosef bar Ḥama, <b>said to him: What is the reason that</b> the <b>Master does this,</b> i.e., seizes and uses these slaves? Rav Yosef bar Ḥama <b>said to him: I maintain</b> that the <i>halakha</i> is <b>in accordance with</b> the opinion of <b>Rav Naḥman, as Rav Naḥman said: A slave is not worth</b> even <b>the bread in his stomach.</b> When the slaves work for me and eat in my home, I am not causing the owners any monetary loss.
+
+### Part 8
+Rava <b>said to him: I will say that Rav Naḥman said</b> this with regard to specific slaves, <b>such as his slave Dari, who</b> only <b>dances among</b> the wine <b>barrels [<i>khuvei</i>]</b> and does not perform any labor. <b>Did he say</b> this concerning <b>other slaves?</b> All other slaves perform labor, and their labor is worth more than their board. His father <b>said to him: I maintain</b> that the <i>halakha</i> is <b>in accordance with this</b> statement said by <b>Rav Daniel bar Rav Ketina</b> that <b>Rav says, as he says: One who seizes another’s slave and has him perform labor is exempt</b> from paying the master for the labor of the slave,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,66 @@
+
+### Part 1
+<b>but</b> a worker who was <b>walking is considered like</b> one who was <b>performing</b> his <b>labor.</b> Yet, since one who was performing labor on this vine may not eat from another vine, he would not be entitled to eat while walking if not for the ordinance of the Sages.
+
+### Part 2
+§ The mishna teaches: <b>And with regard to a donkey,</b> it is permitted to eat <b>when it is being unloaded.</b> The Gemara is puzzled by this statement: <b>From where can it eat when it is being unloaded?</b> Since the load is being removed from the animal at the time, how can the donkey eat from it? Rather, you should <b>say:</b> It may eat <b>until it is unloaded.</b> As long as it is bearing its load the donkey may eat from the food on its back. The Gemara comments: <b>We learn</b> in the mishna <b>that which the Sages taught</b> explicitly in a <i>baraita</i>: <b>A donkey and a camel may eat from the load on their backs, provided that</b> the owner of the animal <b>does not take</b> some of the food <b>in his hand and feed them.</b>
+
+### Part 3
+<strong>MISHNA:</strong> <b>A laborer may eat cucumbers</b> while he works, and this is the <i>halakha</i> <b>even</b> if the amount he eats is equal in value <b>to a dinar;</b> or he may eat <b>dates, and</b> this is the <i>halakha</i> <b>even</b> if the amount he eats is equal in value <b>to a dinar. Rabbi Elazar Ḥisma says: A laborer may not eat more than</b> the value of <b>his wages, but the Rabbis permit</b> it, according to the strict letter of the law. <b>But one teaches a person not to be a glutton and thereby close the opening</b> to other job offers <b>in his face.</b> When people hear of his greed they will be reluctant to hire him.
+
+### Part 4
+<strong>GEMARA:</strong> The Gemara asks: The statement of <b>the Rabbis is</b> identical to the statement of <b>the first <i>tanna</i>.</b> A mishna would not repeat the exact same opinion. The Gemara explains: The practical difference <b>between them</b> concerns the statement: <b>But one teaches</b> a person not to be a glutton. <b>According to the first <i>tanna</i>, he does not</b> accept the notion that <b>one teaches</b> a person not to be a glutton. <b>According to the Rabbis, they do</b> accept this principle that <b>one teaches</b> a person not to be a glutton.
+
+### Part 5
+<b>If you wish, say</b> instead <b>that</b> the practical difference <b>between them</b> concerns a <i>halakha</i> taught <b>by Rav Asi. As Rav Asi says: Even if he hired him to harvest only one cluster,</b> the laborer <b>may eat. And Rav Asi</b> further <b>said: Even if he harvested only one cluster, he may eat it.</b>
+
+### Part 6
+The Gemara comments: <b>And</b> it was <b>necessary</b> for Rav Asi to state both of these <i>halakhot</i>, despite their apparent similarity. <b>As, had he taught us</b> only <b>this first one,</b> one might have thought that he may eat <b>because there is no</b> other food <b>to place in the homeowner’s vessels,</b> as he was hired to harvest only a single cluster. The Torah permits him to eat, and if he is not allowed to eat that cluster, what else is there for him to eat? <b>But if there is</b> produce left over <b>to place in the homeowner’s vessels,</b> as in the second case, one might <b>say</b> that <b>he should first place</b> some in the vessels <b>and then eat.</b>
+
+### Part 7
+<b>And had</b> Rav Asi <b>taught us</b> only <b>this</b> second case, one might have said that the reason he may eat is <b>that ultimately it is possible to fulfill</b> the requirement to place produce in the owner’s vessels, i.e., he can eat and still perform the task. <b>But</b> in a situation <b>where ultimately it is not possible to fulfill</b> his task, since if he were to eat the only cluster he was hired to harvest there would be nothing left for him to do, one might <b>say</b> that he may <b>not</b> eat. Therefore, both <i>halakhot</i> are <b>necessary.</b>
+
+### Part 8
+The Gemara returns to the dispute of the mishna: <b>If you wish, say that the</b> practical difference <b>between</b> the opinions of the first <i>tanna</i> and the Rabbis concerns a <i>halakha</i> taught <b>by Rav. As Rav says: I found a concealed scroll,</b> a document that lists <i>halakhot</i> in shortened form so that they will not be forgotten. Rav discovered this document <b>in Rabbi Ḥiyya’s house, and it was written in it: Isi ben Yehuda says</b> that with regard to the verse: <b>“When you come into your neighbor’s vineyard</b> then you may eat grapes until you have enough at your own pleasure” (Deuteronomy 23:25), <b>the verse is speaking of the entry of any person</b> who passes alongside a vineyard, not only a laborer.
+
+### Part 9
+<b>And Rav said</b> in response: <b>Isi has not left any livelihood for any entity,</b> as many people might pass by and consume all the fruit of one’s vineyard. The first <i>tanna</i> agrees with Rav, while the Rabbis accept Isi ben Yehuda’s opinion that by right even one who is not a laborer may eat.
+
+### Part 10
+<b>Rav Ashi said: I stated</b> this <b><i>halakha</i> before Rav Kahana,</b> and I suggested that <b>perhaps</b> Isi ben Yehuda was referring to laborers <b>who perform</b> labor <b>for their meal; that</b> is, <b>they</b> voluntarily enter his vineyard to <b>perform</b> labor <b>and eat.</b> In other words, Isi ben Yehuda did not mean that anyone may help themselves to produce. Rather, if one chooses to perform labor in the vineyard of another, he may eat from his grapes even if he was not hired by the owner. Rav Kahana <b>said to me: Even so, a person prefers to hire</b> laborers <b>to pluck</b> the fruit of <b>his orchard, rather than</b> have <b>everyone come and eat it,</b> as he fears that people he did not hire might not perform the work properly.
+
+### Part 11
+§ <b>A dilemma was raised before</b> the Sages: In the case of <b>a laborer</b> who eats while performing labor, does <b>he eat from his own</b> property, i.e., is the food he eats in addition to his wages and therefore considered his private property, <b>or</b> does <b>he eat from</b> the property <b>of Heaven?</b> In other words, perhaps the Torah granted him the right to eat the food with which he works as a special privilege, but it does not belong to him.
+
+### Part 12
+The Gemara asks: <b>What is the</b> practical <b>difference</b> raised by this dilemma? The Gemara answers: The difference is in a case <b>where he says:</b> I myself will not eat, but I will <b>give</b> the produce <b>to my wife and children</b> in my stead. <b>If you say</b> that <b>he eats from his own</b> property, <b>we give them</b> the food, as it belongs to him, <b>but if you say</b> that <b>he eats from</b> the property <b>of Heaven, the Merciful One entitles</b> the laborer <b>himself</b> to eat, <b>but the Merciful One does not entitle his wife and children</b> to do so. <b>What,</b> then, is the <i>halakha</i>?
+
+### Part 13
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from the mishna: <b>A laborer may eat cucumbers, and</b> this is the <i>halakha</i> <b>even</b> if the amount he eats is equal in value <b>to a dinar;</b> or he may eat <b>dates, and</b> this is the <i>halakha</i> <b>even</b> if the amount he eats is equal in value <b>to a dinar. If you say</b> that <b>he eats from his own</b> property, is it possible that <b>he was hired for one-sixth</b> of a dinar and yet <b>he may eat</b> an amount worth a whole <b>dinar?</b> Would the Torah have granted him ownership over such a large sum relative to his wages? The Gemara refutes this argument: <b>Rather, what</b> then will you say? Will you say that <b>he eats from</b> the property <b>of Heaven? Ultimately,</b> in that case too <b>he was hired for one-sixth</b> of a dinar <b>and</b> yet in practice <b>he may eat</b> an amount worth <b>a dinar. Rather, what have you to say? That the Merciful One entitles him</b> to eat more than his wages. <b>Here too,</b> one can likewise say that <b>the Merciful One entitles him</b> to possess more than his wages.
+
+### Part 14
+The Gemara offers another suggestion: <b>Come</b> and <b>hear</b> a proof from another statement from the mishna: <b>Rabbi Elazar Ḥisma says: A laborer may not eat more than</b> the value of <b>his wages, but the Rabbis permit</b> it. <b>What, is it not</b> the case that they <b>disagree with regard to this: That</b> one <b>Sage,</b> Rabbi Elazar Ḥisma, <b>holds</b> that <b>he eats from his own</b> property, and therefore he may not eat an amount worth more than he earns, <b>and</b> one <b>Sage,</b> the Rabbis, <b>holds</b> that <b>he eats from</b> the property <b>of Heaven?</b>
+
+### Part 15
+The Gemara rejects this suggestion: <b>No;</b> it is possible <b>that everyone agrees</b> that <b>he eats from his own</b> property, <b>and here they disagree with regard to</b> the meaning of a term in the verse: “When you come into your neighbor’s vineyard, then you may eat grapes until you have enough <b>at your own pleasure [<i>kenafshekha</i>]”</b> (Deuteronomy 23:25). One <b>Sage,</b> Rabbi Elazar, <b>holds that “at your own pleasure [<i>kenafshekha</i>],”</b> which literally means: In accordance with your soul, is referring <b>to a matter for which he hands over his soul,</b> i.e., the laborer acquires the fruit by virtue of the risks he accepts upon himself as part of his work.
+
+### Part 16
+<b>And</b> one <b>Sage,</b> the Rabbis, <b>holds</b> that the term <b>“<i>kenafshekha</i>”</b> means: Like your own person. <b>Just as</b> with regard to <b>your own person,</b> i.e., the owner, <b>if you muzzled</b> yourself, you are <b>exempt,</b> as you yourself do not have to eat, <b>so too,</b> with regard to <b>a laborer, if you muzzled</b> him, i.e., you did not allow him to eat, you are <b>exempt.</b> This indicates that there are cases in which a worker is not entitled to eat.
+
+### Part 17
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: If <b>a nazirite who</b> is working in a vineyard <b>says: Give</b> the grapes <b>to my wife and my children,</b> as he is prohibited from eating them himself, <b>they do not listen to him. But if you say</b> that a laborer <b>eats from his own</b> property, <b>why</b> should <b>they not listen to him?</b> The Gemara answers: <b>There,</b> the reason is different, <b>due to</b> the well-known proverb concerning a nazirite: <b>Go, go, we say to a nazirite, go round, go round; do not approach a vineyard.</b> It is prohibited for a nazirite to eat any of the products of the vine. To keep a nazirite away from temptation, the Sages attempt to deter him from accepting work in a vineyard by not allowing him to give the fruit to his family. Consequently, this <i>halakha</i> is due to the concern about a possible transgression and has nothing to do with the rights of a laborer.
+
+### Part 18
+<b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: With regard to <b>a laborer who said: Give</b> the produce <b>to my wife and my children, they do not listen to him. But if you say</b> that <b>he eats from his own</b> property, <b>why</b> should <b>they not listen to him?</b> The Gemara refutes this argument: In this particular context, <b>what</b> is the meaning of <b>a laborer?</b> It means <b>a nazirite</b> laborer. The Gemara questions this response: <b>But isn’t it taught</b> in one <i>baraita</i> concerning the case of <b>a nazirite, and isn’t it taught</b> in another <i>baraita</i> concerning the case of <b>a laborer?</b> Apparently, these are two different <i>halakhot</i>. The Gemara rejects this suggestion: <b>Were</b> these <i>baraitot</i> <b>taught alongside one another,</b> such that one can deduce a <i>halakha</i> from the change in wording? These are two separate <i>baraitot</i>, and therefore no inference can be drawn from the difference in terminology, and both may be referring to a nazirite laborer.
+
+### Part 19
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from another <i>baraita</i>: <b>From where</b> is it derived with regard <b>to a laborer who said: Give</b> the produce <b>to my wife and my children, that they do not listen to him? As it is stated: “But you shall not put any in your vessel”</b> (Deuteronomy 23:25). <b>And if you would say</b> that <b>so too,</b> this is referring to <b>a nazirite, if so,</b> the reason is not <b>due to</b> the verse: <b>“But you shall not put any in your vessel”;</b> rather, <b>it is due to</b> the principle: <b>Go, go, we say to a nazirite,</b> do not approach a vineyard.
+
+### Part 20
+The Gemara refutes this proof: <b>Yes, it is indeed so.</b> This <i>baraita</i> is discussing a nazirite, <b>and since</b> it <b>teaches</b> the <i>halakha</i> <b>by</b> utilizing the <b>language</b> of <b>a laborer,</b> without specifying that he is a nazirite, <b>it cites the verse</b> that is stated <b>with regard to a laborer.</b> In fact, the actual source for the <i>halakha</i> is a decree due to naziriteship, while the practice is permitted to any other laborer.
+
+### Part 21
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a mishna (<i>Ma’asrot</i> 2:7): With regard to <b>one who hires a laborer to prepare figs for drying,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

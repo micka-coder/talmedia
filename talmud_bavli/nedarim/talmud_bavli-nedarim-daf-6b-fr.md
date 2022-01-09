@@ -1,0 +1,21 @@
+
+### Partie 1
+§ <b>Rav Pappa a souleve un dilemme : Y a-t-il une intimation pour les fiancailles ou non ? </b> Les fiancailles prennent-elles effet via une declaration incomplete ? La Gemara demande : <b>Quelles sont les circonstances</b> d'un tel cas ? <b>Si nous disons</b> qu'il s'agit d'un cas <b>ou l'on a dit a une femme : Tu es par la presente fiancee a moi, et il a dit a une autre</b> femme : <b>Et toi aussi, n'est-il pas</b> <b>evident</b> que <b>ce sont les fiancailles elles-memes,</b> et qu'elles prennent effet ? <b>C'est plutot un cas <b>ou l'on dit a une femme : Tu es par la presente fiancee a moi, et il a dit a une autre</b> femme : <b>Et toi. Disons-nous</b> que <b>il a dit a l'autre</b> femme : <b>Et toi aussi</b> sont fiances, <b>et les fiancailles prennent effet a l'egard de l'autre</b> femme, <b>ou peut-etre a-t-il dit a l'autre</b> femme : <b>Et tu vois</b> que je fiance cette femme, <b>et les fiancailles ne prennent pas effet a l'egard de l'autre</b> femme ?
+
+### Partie 2
+La Gemara demande : <b>Rav Pappa a-t-il souleve ce</b> comme un <b>dilemme ? Mais a partir</b> du fait <b>que Rav Pappa a dit a Abaye</b> dans un cas concernant les fiancailles (voir <i>Kiddushin</i> 5b) : <b>Chmuel soutient-il que les intimations ambigues sont</b> des <b>intimations valides,</b> on peut prouver <b>par deduction que Rav Pappa soutient qu'il y a une intimation pour les fiancailles.</b> La Gemara repond : Rav Pappa <b>a parle a Abaye</b> au sujet de <b>une des opinions</b> que Shmuel detenait.</b> Shmuel avait statue que meme une intimation ambigue etait suffisante en cas de fiancailles, et Rav Pappa a remis en question cette decision sans exprimer sa propre opinion selon laquelle meme les intimations evidentes ne sont pas valables en matiere de fiancailles.
+
+### Partie 3
+§ <b>Rav Pappa souleve</b> un autre <b>dilemme : Y a-t-il une intimation pour <i>peâ</i>,</b> le produit dans le coin d'un champ qui doit etre laisse aux pauvres, <b>ou n'y a-t-il pas d'intimation pour <i>peâ</i>?</b> La Gemara demande : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si l'on dit</b> que c'est un cas <b>ou l'on a dit : Ce sillon [<i>ugeya</i>] sera <i>peâ</i> et celui-ci</b> celui-la <b>aussi, c'est</b> une declaration <b>a part entiere</b> de <b><i>peâ</i>.</b> La Gemara explique : <b>Il souleve le dilemme</b> par rapport a un cas <b>ou il a dit : Et ceci, et il n'a pas dit :</b> Et celui-la <b>aussi,</b> et donc sa declaration peut etre interpretee comme signifiant que cet autre sillon doit rester le sien et ne pas etre inclus dans la <i>peâ</i> (<i>Tosafot</i>). <b>Quel</b> est le <i>halakha</i> dans ce cas ?
+
+### Partie 4
+La Guemara interrompt ce train de pensees et s'interroge : Est-ce que cela prouve <b>par deduction que</b> dans un cas <b>ou on a dit : Le champ entier sera <i>peâ</i>,</b> il serait tout rendu <b><i>peâ</i>?</b> Le cas doit etre celui ou le premier sillon etait assez grand pour servir de <i>peâ</i> pour le champ entier, car si ce n'etait pas le cas, il serait clair qu'il voulait dire que le deuxieme sillon devait aussi etre <i>peâ</i>. Par consequent, il ressort clairement de la question du Rav Pappa que l'on peut designer comme <i>peâ</i> une portion du champ plus grande que celle que l'on doit absolument designer.
+
+### Partie 5
+La Guemara repond : <b>Oui, et c'est enseigne</b> dans la <i>baraita</i> suivante : <b>D'ou vient</b> que si on veut rendre tout son champ <i>peâ</i>,</b> on peut <b>le faire</b> ainsi ? <b>Le verset stipule :</b> "Tu ne moissonneras pas entierement <b>le coin de ton champ"</b> (Levitique 19:9). Cela est interprete comme signifiant que la totalite de "ton champ" peut etre designee comme le "coin" qui est laisse aux pauvres.
+
+### Partie 6
+La Guemara revient a sa discussion sur le dilemme de Rav Pappa. <b>Disons-nous</b> que <b>puisque</b> <i>peâ</i> est <b>juxtapose aux offrandes, de meme que les offrandes ont une intimation, de meme, <i>peâ</i> a une intimation ? Ou peut-etre que lorsque</b> <i>peâ</i> est juxtapose aux offrandes, <b>il est juxtapose pour</b> indiquer seulement qu'il est soumis a l'interdiction : <b>Vous ne devez pas tarder ?</b> La Gemara clarifie : <b>Et ou est-il juxtapose ? Comme il est enseigne</b> dans une <i>baraita</i> :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

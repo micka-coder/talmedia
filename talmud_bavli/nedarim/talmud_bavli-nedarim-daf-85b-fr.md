@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Elle peut travailler et se sustenter</b> de ses gains, car la consecration est sans effet. <b>Et</b> en ce qui concerne <b>le surplus</b> de gains, c'est-a-dire si elle a produit plus que ce dont elle a besoin pour sa subsistance, <b>Rabbi Meir dit</b> que le surplus devient un <b>bien consacre</b>, alors que <b>Rabbi Yohanan HaSandlar dit</b> qu'il est <b>non consacre. Et Shmuel dit</b> que <b>la <i>halakha</i> est conforme</b> a l'opinion du <b>Rabbi Yohanan HaSandlar. Apparemment,</b> l'avis de Shmuel est que <b>une personne ne peut pas consacrer une entite qui n'est pas</b> encore <b>venue au monde,</b> et donc un homme ne peut pas consacrer des gains que sa femme ne produira que dans le futur.
+
+### Partie 2
+<b>Et si l'on voulait dire</b> que <b>lorsque</b> Shmuel <b>dit</b> que <b>la <i>halakha</i> est conforme</b> a l'opinion de <b>Rabbi Yohanan ben Nuri, il disait</b> seulement que la <i>halakha</i> est telle <b>en ce qui concerne le surplus,</b> il y a une difficulte. On pourrait dire que, puisque Rabbi Yohanan ben Nuri n'est pas d'accord avec Rabbi Akiva, il soutient apparemment que le surplus des gains d'une femme appartient a son mari, et qu'elle ne peut donc pas le lui rendre interdit par un vœu, et que c'est seulement par rapport a ce point que Shmuel a dit que la <i>halakha</i> est conforme a l'opinion de Rabbi Yohanan ben Nuri. Si tel est le cas, il n'y a pas de contradiction entre sa decision ici et sa decision dans <i>Ketubot</i> que la <i>halakha</i> a l'egard de celui qui consacre les gains de sa femme est conforme a l'opinion de Rabbi Yohanan HaSandlar.
+
+### Partie 3
+Mais si c'est le cas, <b>laissons</b> Shmuel clairement <b>dire :</b> La <b><i>halakha</i> est conforme</b> a l'avis du <b>Rabbin Yohanan ben Nuri en ce qui concerne</b> le <b>surplus. Alternativement,</b> il aurait pu dire que la <b><i>halakha</i> est en accord avec</b> l'opinion du <b>premier <i>tanna</i>,</b> qui soutient egalement que le surplus appartient au mari. <b>Alternativement,</b> il aurait pu dire que la <b><i>halakha</i> n'est pas conforme</b> a l'opinion de <b>Rabbi Akiva,</b> qui affirme que le surplus appartient a la femme.
+
+### Partie 4
+<b>Au contraire, Rav Yosef dit</b> que la contradiction apparente entre les decisions de Shmuel peut etre resolue de la maniere suivante : Bien que l'on ne puisse pas consacrer une entite qui n'est pas encore venue au monde, les <b><i>konamot</i> sont differentes ; puisqu'une personne peut interdire a elle-meme le produit d'un autre</b> au moyen d'un <i>konam</i>, meme si l'on ne peut pas consacrer le produit d'un autre au Temple, <b>on peut aussi interdire a elle-meme une entite qui n'est pas encore venue au monde. </b> En ce qui concerne la consecration, cependant, une personne ne peut pas dedier au tresor du Temple quelque chose qui n'est pas actuellement en sa possession, et elle ne peut pas non plus consacrer une entite qui n'est pas encore entree dans le monde.
+
+### Partie 5
+<b>Abaye lui dit :</b> Ce n'est pas du tout une preuve. <b>D'accord, une personne peut interdire le produit d'un autre a elle-meme, puisqu'une personne peut interdire son</b> propre <b>produit a un autre. Mais</b> s'ensuit-il qu'il <b>peut</b> egalement <b>interdire une entite qui n'est pas</b> encore <b>venue au monde a une autre personne,</b> vu <b>qu'une personne ne peut interdire le produit d'une autre personne a</b> cette <b>autre</b> personne, puisqu'elle n'a juridiction ni sur le produit ni sur la personne a qui elle veut l'interdire ? Or, dans la mishna ici, la femme interdit ses gains futurs, qui n'existent pas encore, a une autre personne, c'est-a-dire a son mari.
+
+### Partie 6
+<b>Au contraire, Rav Huna, fils de Rav Yehoshua, dit :</b> Ici, la mishna traite <b>avec</b> une femme qui <b>dit : Mes mains sont consacrees a Celui qui les a faites.</b> Par consequent, le cas ne concerne pas la question d'une entite qui n'est pas encore venue au monde, <b>puisque</b> ses <b>mains sont</b> deja <b>dans le monde.</b>
+
+### Partie 7
+La Guemara conteste cette interpretation : <b>Et si elle a dit</b> son vœu <b>comme ca, sont-ils consacres</b> et interdits ? <b>Mais ses mains ne sont-elles pas engagees envers son mari,</b> pour faire le travail qu'elle est obligee d'accomplir pour lui ? La Guemara repond : La mishna fait reference a une femme <b>qui a dit :</b> Le vœu prendra effet <b>lorsque je serai divorcee.</b> La Gemara souleve une difficulte : <b>Elle n'est de toute facon pas divorcee maintenant, et d'ou</b> est-il appris <b>que lorsqu'elle dit</b> son vœu <b>comme cela,</b> le vœu <b>est effectif ?</b> Comment est-il appris qu'elle peut consacrer quelque chose de telle maniere qu'il ne deviendra consacre que dans le futur ?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

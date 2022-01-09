@@ -1,0 +1,39 @@
+
+### Part 1
+The Gemara relates: There was an incident involving <b>a certain</b> gentile <b>girl who was found among</b> wine <b>barrels and she was holding</b> wine <b>froth in her hand. Rava said: The wine</b> is <b>permitted,</b> as it is reasonable to <b>say</b> that <b>she took it from the outside of the barrel</b> and not from inside the barrel. <b>And even if there is no more</b> of the froth on the outside of the barrel, it is reasonable to <b>say</b> that <b>she happened upon</b> the froth while it was still there, even though it is no longer there.
+
+### Part 2
+The Gemara relates: There was an incident involving <b>a certain army [<i>pulmusa</i>] that entered Neharde’a</b> and <b>opened many barrels</b> of wine. <b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, <b>he said: There was</b> a similar <b>incident</b> that was brought <b>before Rabbi Elazar, and he deemed</b> the wine <b>permitted. But I do not know whether</b> he permitted it <b>because he holds in accordance with</b> the opinion of <b>Rabbi Eliezer, who says:</b> Concerning <b>uncertainty</b> with regard to <b>entry,</b> the person or item is <b>ritually pure,</b> or <b>whether</b> he permitted it <b>because he maintains</b> that <b>most</b> of those <b>who went with</b> that <b>army were Jews,</b> i.e., that although it was a gentile army, the ancillaries were mostly Jews.
+
+### Part 3
+The Gemara asks: <b>If that is so,</b> if he holds in accordance with the opinion of Rabbi Eliezer, why did he permit the wine? <b>Is this</b> a case of <b>uncertainty</b> with regard to <b>entry?</b> It is clear that the ancillaries came and opened the barrels, so <b>it is</b> a case of <b>uncertainty</b> with regard to <b>contact,</b> i.e., whether they touched the wine or not, and Rabbi Eliezer agrees that such a case is treated stringently. The Gemara answers: <b>Since they opened many</b> barrels, it is reasonable to <b>say</b> that <b>they opened</b> the barrels only <b>with the intention of</b> finding <b>money</b> and had no interest in the wine itself. <b>And</b> therefore it is <b>similar to</b> a case of <b>uncertainty</b> with regard to <b>entry.</b>
+
+### Part 4
+The Gemara relates: There was an incident involving <b>a certain female owner of a wine shop who transferred the key [<i>iklida</i>]</b> to the door of her wine shop <b>to a gentile woman. Rabbi Yitzḥak said</b> that <b>Rabbi Elazar said: There was</b> a similar <b>incident</b> that was brought before the Sages in <b>the study hall, and they said: She transferred to her</b> the responsibility for <b>safeguarding the key alone</b> but did not authorize her to enter the tavern, so there is no concern that she entered there.
+
+### Part 5
+<b>Abaye said: We learn</b> this <i>halakha</i> in a mishna <b>as well</b> (<i>Teharot</i> 7:1): In the case of <b>one who transferred keys to one who is unreliable with regard to ritual impurity [<i>am ha’aretz</i>],</b> even though contact with an <i>am ha’aretz</i> renders pure items impure, <b>his pure items are pure, because he transferred to</b> the <i>am ha’aretz</i> the responsibility for <b>safeguarding the key alone</b> and did not authorize him to enter. <b>Now</b> that the mishna has determined that <b>his pure items are pure, is it necessary</b> to state that this principle with regard to the <i>halakhot</i> of <b>wine</b> used for <b>a libation?</b>
+
+### Part 6
+The Gemara asks with regard to Abaye’s reasoning: <b>Is this to say that</b> the <i>halakhot</i> of <b>ritually pure items are</b> more <b>stringent than</b> those concerning <b>wine</b> used for <b>a libation?</b> The Gemara answers: <b>Indeed,</b> that is so. <b>As it was stated</b> that there was a dispute with regard to <b>a courtyard</b> whose owners <b>divided it</b> among themselves <b>with a low partition [<i>meseifas</i>]. Rav says:</b> If one’s neighbor on the other side of the partition is an <i>am ha’aretz</i>, <b>one’s pure items</b> that he leaves in the courtyard <b>are</b> rendered <b>impure, but in</b> the case of <b>a gentile</b> neighbor, this <b>does not render</b> his <b>wine</b> an idolatrous <b>libation. And Rabbi Yoḥanan says: His pure items</b> remain <b>pure as well.</b> Evidently, Rav considers the <i>halakhot</i> of purity more stringent than those of wine used for a libation.
+
+### Part 7
+The Gemara <b>raises an objection</b> to the opinion of Rav from a <i>baraita</i>: If <b>the inner</b> courtyard <b>belongs to a <i>ḥaver</i>,</b> i.e., one devoted to the meticulous observance of mitzvot, especially the <i>halakhot</i> of ritual purity, <i>teruma</i>, and tithes, <b>and the outer</b> courtyard <b>to an <i>am ha’aretz</i>, that <i>ḥaver</i> may lay out</b> his <b>produce there,</b> in the inner courtyard, <b>and place</b> his <b>vessels there,</b> without concern that the <i>am ha’aretz</i> will touch them and render them impure. <b>And</b> this applies <b>even if the hand of the <i>am ha’aretz</i> can reach there.</b> This poses <b>a difficulty to</b> the opinion of <b>Rav,</b> who holds that even in a situation where there is a partition there is concern about contact with an <i>am ha’aretz</i>.
+
+### Part 8
+The Gemara answers that <b>Rav</b> could have <b>said to you:</b> It <b>is different there, as</b> were the <i>am ha’aretz</i> to tamper with the produce, <b>he could be caught</b> and accused <b>as a thief,</b> as he has no business being in the inner courtyard. Therefore, there is no concern that he will tamper with it.
+
+### Part 9
+The Gemara suggests: <b>Come</b> and <b>hear</b> support for Rav’s opinion from a <i>baraita</i> (<i>Tosefta</i>, <i>Teharot</i> 9:11): <b>Rabban Shimon ben Gamliel says:</b> If <b>the roof of a <i>ḥaver</i> is above the roof of</b> his neighbor who is <b>an <i>am ha’aretz</i>, that <i>ḥaver</i> may lay out produce there and place vessels there, provided that the hand of the <i>am ha’aretz</i> cannot reach there;</b> but if it is within his reach, the pure items of the <i>ḥaver</i> are rendered impure. This poses <b>a difficulty to</b> the opinion of <b>Rabbi Yoḥanan,</b> who deems permitted pure items in a courtyard divided by a low partition.
+
+### Part 10
+The Gemara answers that <b>Rabbi Yoḥanan</b> could have <b>said to you:</b> It <b>is different there, as</b> were the <i>am ha’aretz</i> to be discovered reaching up to the upper roof, <b>he has</b> a way <b>to excuse</b> his behavior by <b>saying: I</b> merely <b>stretched myself;</b> I was not intending to tamper with anything.
+
+### Part 11
+<b>Come</b> and <b>hear</b> that which is taught in that same <i>baraita</i>: If <b>the roof of a <i>ḥaver</i> is beside the roof of an <i>am ha’aretz</i>, that <i>ḥaver</i> may lay out produce there and place vessels there, even if hand of the <i>am ha’aretz</i> can reach there.</b> This poses <b>a difficulty to</b> the statement of <b>Rav.</b> The Gemara answers that <b>Rav</b> could have <b>said to you: Isn’t there</b> the opinion of <b>Rabbi Shimon ben Gamliel, which stands in accordance with my</b> opinion with regard to roofs that are next to one another? What <b>I say</b> is <b>in accordance with</b> the opinion of <b>Rabbi Shimon ben Gamliel.</b>
+
+### Part 12
+<strong>MISHNA:</strong> In the case of <b>a military unit [<i>boleshet</i>] that entered a city,</b> if it entered <b>during peacetime,</b> then after the soldiers leave the <b>open barrels</b> of wine <b>are forbidden,</b> but the <b>sealed</b> barrels <b>are permitted.</b> If the unit entered <b>in wartime,</b> both <b>these</b> barrels <b>and those</b> barrels <b>are permitted, because</b> in wartime <b>there is no time to pour</b> wine for <b>libations,</b> and one can be certain that the soldiers did not do so.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

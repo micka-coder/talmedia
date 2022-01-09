@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Plutot,</b> conformement a <b>l'opinion de qui</b> <b>cette mishna</b> ? Cette mishna <b>est</b> conforme a l'opinion de <b>Rabbi Meir, qui dit : Une personne peut transferer</b> la propriete d'une <b>entite qui n'est pas</b> encore <b>venue au monde.</b> De meme, Rabbi Meir soutient que l'on peut placer un privilege sur un bien que l'emprunteur acquerra par la suite.
+
+### Partie 2
+<b>Rav Yaakov de Nehar Pekod dit au nom de Ravina : Venez</b> et <b>entendre</b> la preuve d'une mishna (<i>Sheviit</i> 10:5) : <b>Les billets a ordre qui sont antedates,</b> c'est-a-dire qui sont dates avant la date a laquelle le pret a effectivement ete accorde, <b>sont invalides.</b> Cela est du au fait que le billet a ordre place un privilege sur la propriete de l'emprunteur. En datant le document avant le pret lui-meme, le preteur semble avoir un privilege sur un bien que l'emprunteur a vendu avant de contracter le pret, ce qui lui permet de le reprendre frauduleusement a l'acheteur. <b>Mais</b> les billets a ordre <b>qui sont postdates sont valides,</b> car cela ne permet pas au preteur de frauder un acheteur.
+
+### Partie 3
+La Gemara explique : <b>Et s'il vous vient a l'esprit</b> de dire que les biens que l'emprunteur acquiert apres avoir recu le pret <b>ne sont pas greves</b> meme lorsqu'il ecrit : Les biens <b>que je vais acquerir</b> seront greves, et qu'il <b>acquiert</b> des biens <b>et les vend</b> a d'autres, ou lorsqu'il ecrit : Les biens <b>que j'acquerrai</b> seront greves, et il <b>acquiert</b> des biens <b>et les legue</b> a ses heritiers, <b>pourquoi,</b> alors, les billets a ordre postdates</b> sont-ils <b>valides ?</b> Ils devraient etre invalides, car dans certains cas, ils permettent au creancier de reprendre frauduleusement possession de biens qui ne sont pas greves, par ex, si l'emprunteur acquiert un bien apres avoir recu le pret mais avant la date figurant sur le billet a ordre, et qu'il le vend apres cette date. Ce cas <b>est</b> comparable a celui ou l'emprunteur ecrit : Le bien <b>que je vais acquerir</b> sera greve.
+
+### Partie 4
+La Gemara repond : Selon l'avis de <b>qui</b> cette mishna</b> ? Cette mishna <b>est</b> conforme a l'avis de <b>Rabbi Meir, qui dit : Une personne peut transferer</b> la propriete d'une <b>entite qui n'est pas</b> encore <b>venue au monde.</b>
+
+### Partie 5
+<b>Rav Mesharshiyya dit au nom de Rava : Venez</b> et <b>entendre</b> la preuve d'un <i>baraita</i> : En ce qui concerne le recouvrement d'une dette <b>dans</b> un cas de <b>hausse de terrain, comment</b> se fait-il que la dette ne puisse pas etre recouvree sur un bien greve qui a ete vendu ? Cette question se pose dans un cas <b>ou un debiteur <b>vend un champ a un autre et</b> l'acheteur l'a <b>ameliore, et un creancier est venu le reprendre</b> a l'acheteur. <b>Lorsque</b> l'acheteur <b>recouvre</b> la valeur du terrain aupres du vendeur, il <b>recouvre le principal</b> meme <b>sur des biens greves</b> qui ont ete vendus a d'autres, <b>mais</b> il ne recouvre la valeur de <b>l'amelioration</b> que <b>sur des biens non vendus.</b>
+
+### Partie 6
+<b>Et s'il vous vient a l'esprit</b> de dire que les biens que l'emprunteur acquiert apres avoir recu le pret <b>ne sont pas greves</b> meme lorsqu'il ecrit : Les biens <b>que je vais acquerir</b> seront greves, et qu'il <b>acquiert</b> des biens <b>et les vend</b> a d'autres, ou lorsqu'il ecrit : Le bien <b>que j'acquerrai</b> sera greve, et il <b>acquiert</b> le bien <b>et le legue</b> a ses heritiers, <b>pourquoi</b> le <b>creancier recouvre-t-il</b> sa dette en reprenant possession de la <b>valorisation</b> de l'acheteur ? Puisque le rehaussement n'existait pas au moment du pret, il n'est pas greve.
+
+### Partie 7
+La Gemara repond : Selon l'avis de <b>qui</b> cette mishna</b> ? Cette mishna <b>est</b> conforme a l'opinion de <b>Rabbi Meir, qui dit : Une personne peut transferer</b> la propriete d'une <b>entite qui n'est pas</b> encore <b>venue au monde.</b> Le dilemme de Shmuel est souleve selon l'avis des rabbins.
+
+### Partie 8
+La Guemara commente : <b>Si l'on dit</b> que lorsque l'emprunteur ecrit : Le bien <b>que je vais acquerir</b> sera greve, et qu'il <b>acquiert</b> un bien <b>et le vend</b> a d'autres, il n'est pas greve, et que lorsqu'il ecrit : Le bien <b>que je vais acquerir</b> sera greve, et qu'il <b>acquiert</b> un bien <b>et le legue</b> a ses heritiers, <b>il n'est pas greve,</b> alors <b>il n'est pas greve</b> et la question suivante ne se posera pas. <b>Si vous dites</b> que <b>il est greve, quelle est</b> la <i>halakha</i> a l'egard de celui qui a <b>emprunte</b> de l'argent a un preteur <b>et</b> ensuite <b>emprunte</b> de l'argent a un autre preteur, en declarant dans les deux cas que le bien qu'il va acquerir sera greve, <b>et</b> il <b>a ensuite acquis</b> un terrain ? Le <b>premier</b> preteur <b>a-t-il un privilege sur</b> le bien <b>ou</b> le <b>dernier</b> preteur <b>a-t-il un privilege sur</b> le bien ?
+
+### Partie 9
+<b>Rav Nahman a dit : Cette question a ete soulevee devant nous, et</b> les Sages ont <b>envoye</b> une reponse <b>de la-bas,</b> d'Eretz Yisrael : <b>Le premier</b> preteur <b>acquiert</b> la propriete, puisque son privilege est venu en premier. <b>Rav Huna dit :</b> Les preteurs <b>divisent</b> la propriete entre eux. <b>Et ainsi enseigne Rabba bar Avuh :</b> Les preteurs <b>divisent</b> la propriete entre eux. <b>Ravina dit : La premiere fois que Rav Ashi</b> a enseigne cette matiere <b>il nous a dit : Le premier</b> preteur <b>acquiert</b> la propriete. <b>La derniere fois que Rav Ashi</b> a enseigne cette matiere <b>il nous a dit : </b> Les preteurs <b>divisent</b> la propriete entre eux. <b>Et la <i>halakha</i></b> est qu'ils <b>divisent</b> la propriete entre eux.
+
+### Partie 10
+La Guemara <b>souleve une objection</b> de la <i>baraita</i> susmentionnee : En ce qui concerne le recouvrement d'une dette <b>dans</b> un cas de <b>mise en valeur d'un terrain, comment</b> se fait-il que la dette ne puisse etre recouvree sur un bien greve qui a ete vendu ? Cette question se pose dans un cas <b>ou un <b>vend un champ a un autre, et</b> l'acheteur l'a <b>ameliore, et un creancier est venu le reprendre</b> a l'acheteur. <b>Lorsque</b> l'acheteur <b>recouvre</b> la valeur du terrain aupres du vendeur, il <b>recouvre le principal</b> meme <b>sur des biens greves</b> qui ont ete vendus a d'autres, <b>mais</b> il ne recouvre la valeur de <b>la bonification</b> que <b>sur des biens non vendus. Et s'il est ainsi</b> qu'en general, le bien est divise entre les creanciers, alors, puisque le creancier et l'acheteur ont tous deux un privilege sur la mise en valeur du bien, l'acheteur <b>doit</b> ne percevoir que la <b>moitie</b> de la valeur de <b>la mise en valeur.</b>
+
+### Partie 11
+La Guemara repond : <b>Que</b> signifie le <i>baraita</i>, <b>aussi,</b> quand <b>il enseigne</b> que l'acheteur <b>collecte</b> la mise en valeur ? Le <i>baraita</i> signifie qu'il percoit <b>la moitie de</b> la valeur de <b>la mise en valeur.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

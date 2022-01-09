@@ -1,0 +1,27 @@
+
+### Partie 1
+Mais si seule <b>la saveur de</b> l'aliment interdit est reconnaissable dans le melange, <b>mais pas sa substance,</b> car il a ete completement dissous dans l'aliment permis, le melange <b>est interdit, mais on n'est pas fouette pour</b> l'avoir consomme. Et si</b> l'aliment interdit <b>amplifiait la saveur</b> de l'aliment permis <b>a son detriment,</b> il est <b>permis.</b>
+
+### Partie 2
+La Guemara demande : <b>Mais</b> alors <b>laissons</b> Rabbi Yohanan <b>dire : Si</b> l'aliment interdit <b>impose une saveur a</b> la <b>depreciation</b> du melange, il est <b>permis.</b> Pourquoi utilise-t-il le terme : Amplifie ? La Guemara repond que <b>c'est</b> ce que Rabbi Yohanan <b>nous enseigne : Que meme s'il y a d'autres substances qui ont detourne</b> de la saveur du melange <b>en meme temps</b> que l'aliment interdit, par exemple une quantite insuffisante de sel ou un assaisonnement excessif, cela n'est pas pris en consideration ; puisque l'aliment interdit a detourne de sa saveur, le melange est permis. La Gemara commente : <b>Et la <i>halakha</i></b> est <b>conforme a la derniere version</b> de la declaration <b>de Reish Lakish.</b>
+
+### Partie 3
+§ <b>Rav Kahana dit : D'apres les declarations de tous</b> les <i>amoraim</i> qui ont ete cites, a savoir Shmuel, Rabbi Yohanan, et Reish Lakish, <b>on apprend</b> que si un aliment interdit <b>impose une saveur</b> a un aliment permis <b>au</b> detriment</b> du melange, il est <b>permis. Abaye lui a repondu : D'accord, de tout</b> le reste <b>d'entre eux</b> cette conclusion <b>est tres bien ; mais</b> comment peut-on conclure cela de la declaration <b>de Reish Lakish ? Il dit</b> seulement que les Sages <b>ont dit</b> que si un aliment interdit communique une saveur a un aliment permis a son detriment, le melange est permis. Peut-etre ne fait-il que citer ce que d'autres ont dit <b>et lui-meme n'est pas de cet avis.</b>
+
+### Partie 4
+La Guemara s'interroge par rapport a la declaration de Rav Kahana : <b>Par deduction, y a-t-il quelqu'un qui dit</b> que si un aliment interdit <b>impose une saveur</b> a un aliment permis <b>jusqu'a</b> la <b>depreciation</b> du melange, il est <b>interdit ?</b>
+
+### Partie 5
+La Gemara repond : <b>Oui, et</b> cette opinion <b>est enseignee</b> dans une <i>baraita</i> : <b>Tous</b> dans un cas ou l'aliment interdit <b>impose une saveur au</b> detriment</b> de la saveur de l'aliment permis, <b>et</b> dans un cas ou il <b>impose une saveur qui rehausse</b> l'aliment permis, le melange est <b>interdit;</b> c'est <b>la declaration de Rabbi Meir. Rabbi Shimon dit :</b> S'il <b>augmente</b> la saveur, il est <b>interdit, mais</b> s'il lui cause un <b>prejudice</b> il est <b>permis.</b>
+
+### Partie 6
+La Guemara explique : <b>Quel est le raisonnement de Rabbi Meir ? Il tire</b> cette <i>halakha</i> <b>du</b> cas des recipients des <b>gentils</b> qui necessitent une <b>purgation,</b> c'est-a-dire des recipients que les gentils utilisaient pour cuisiner et que la Torah exige de purger par le feu et de purifier rituellement avant qu'ils ne puissent etre utilises par les Juifs (voir Nombres 31:22""23 et mishna sur 75b). <b>N'est-il pas</b> le cas que les recipients de <b>gentils</b> qui necessitent une <b>purification communiquent une saveur</b> aux aliments qui y sont cuits <b>a</b> leur <b>prejudice ? </b> Puisque le temps a passe depuis que les Gentils ont cuisine des aliments non cachers dans les recipients, la saveur que ces derniers transmettent aux aliments qu'un Juif y fait cuire est certainement prejudiciable, <b>et</b> pourtant <b>Le Misericordieux juge</b> leur utilisation <b>interdite</b> sans purge. <b>Aussi,</b> le cas ici <b>n'est pas different,</b> et meme si la saveur communiquee par l'aliment interdit est prejudiciable, le melange doit etre interdit.
+
+### Partie 7
+<b>Et</b> l'avis de <b>l'autre</b> <i>tanna</i>, Rabbi Shimon, qui juge le melange permis si la saveur communiquee est prejudiciable, s'explique <b>conformement</b> a l'avis <b>de Rav Huna, fils de Rav Hiyya ; car Rav Huna, fils de Rav Hiyya, dit : </b> En ce qui concerne les recipients des Gentils, <b>la Torah n'interdit qu'une marmite</b> qui a ete utilisee pour la cuisson <b>ce jour-la</b> meme, qui ne</b> communique pas encore de saveur <b>au</b> <b>detriment</b> des aliments qui y sont cuits. Au contraire, la saveur qu'elle confere n'est pas consideree comme prejudiciable. <b>Et</b> l'avis de <b>l'autre</b> <i>tanna</i>, Rabbi Meir, peut egalement etre explique conformement a cette declaration, car selon lui, <b>meme</b> dans le cas d'une marmite</b> qui a ete utilisee pour cuisiner <b>ce jour-la</b> meme, il n'est pas possible qu'elle ne porte pas atteinte</b> a la saveur des aliments qui y sont cuits par la suite, meme <b>legerement.</b>
+
+### Partie 8
+La Guemara demande : <b>Et quel est le raisonnement</b> de <b>Rabbi Shimon ?</b> C'est <b>comme il est enseigne</b> dans une <i>baraita</i> que du verset : <b>Vous ne mangerez pas de carcasse d'animal non abattu ; vous pourrez la donner a l'etranger resident [<i>lager</i>] qui se trouve dans vos portes,</b> afin qu'il la mange" (Deuteronome 14 : 21), on en deduit qu'en ce qui concerne les carcasses d'animaux, <b>tout ce qui est propre a etre consomme par un <i>ger</i> <i>toshav</i> <b>est appele carcasse non abattue</b> et est interdit,
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

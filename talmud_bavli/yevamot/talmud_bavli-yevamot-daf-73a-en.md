@@ -1,0 +1,30 @@
+
+### Part 1
+It is further stated: <b>“And the pure person shall sprinkle upon the impure”</b> (Numbers 19:19). The verse states <b>“pure”;</b> this indicates <b>by inference that he is</b> in some way <b>ritually impure.</b> In other words, the verse speaks of one who is pure only in relation to one who is impure. Were this not the case, there would have been no need at all to mention his purity, as it would have been understood that since the red heifer is called a sin-offering, with regard to which purity is paramount, the one performing the ritual must be pure. Of necessity, then, this “pure” individual is not completely pure in all regards. This <b>teaches that one who immersed himself that day is fit to</b> perform the rites connected to the red <b>heifer.</b>
+
+### Part 2
+The Gemara returns to the previous discussion. <b>They raised a dilemma before Rav Sheshet:</b> In the case of <b>an uncircumcised</b> man, <b>what is</b> the <i>halakha</i> <b>with regard to</b> his eating second <b>tithe?</b> Can one claim that <b>just as</b> the <i>halakha</i> governing the <b>Paschal lamb is derived from</b> the <i>halakha</i> governing second <b>tithe with regard to acute mourning,</b> in that an acute mourner, who may not eat second tithe, is likewise prohibited from partaking of the Paschal lamb, so <b>too,</b> the <i>halakha</i> concerning second <b>tithe is derived from</b> the <i>halakha</i> concerning the <b>Paschal lamb with regard to lack of circumcision,</b> in that an uncircumcised man, who may not partake of the Paschal lamb, is likewise prohibited from eating second tithe?
+
+### Part 3
+<b>Or perhaps</b> the <i>halakha</i> governing the <b>stringent</b> case of the Paschal lamb <b>is derived from</b> the <i>halakha</i> governing the <b>lenient</b> case of second tithe, but the <i>halakha</i> concerning the <b>lenient</b> case of second tithe <b>is not derived from</b> the <i>halakha</i> concerning the <b>stringent</b> case of the Paschal lamb, and therefore it is prohibited for an uncircumcised man to partake of the Paschal lamb, but he may eat second tithe.
+
+### Part 4
+Rav Sheshet <b>said to them: You</b> already <b>learned</b> the answer to this question in a mishna (<i>Ḥalla</i> 1:9): The following <i>halakhot</i> apply to both <b><i>teruma</i> and</b> the <b>first fruits</b> of the new harvest, which must be given to the priests: If a priest ate of them while in a state of ritual impurity, <b>he is liable</b> to the punishment of <b>death</b> at the hand of Heaven; <b>and</b> if a non-priest ate of them unintentionally, he must restore the value of the produce he ate, adding <b>one-fifth</b> of its value as a fine; <b>and they are</b> both <b>forbidden to non-priests.</b>
+
+### Part 5
+The mishna continues: <b>And they are</b> considered in all regards <b>the</b> private <b>property of the priest</b> to whom they were given; <b>and they are nullified,</b> i.e., rendered permitted for consumption by non-priests, <b>in</b> a mixture of <b>one hundred and one,</b> when there are at least one hundred parts of permitted food for each part of <i>teruma</i> or first fruits; <b>and they</b> both <b>require washing of the hands</b> before they may be eaten; <b>and</b> if a priest is ritually impure, he may not eat of <i>teruma</i> or first fruits, even after immersion, until after <b>sunset</b> on the day of his immersion. All of <b>these</b> <i>halakhot</i> apply <b>to <i>teruma</i> and first fruits, which is not</b> the case <b>with</b> regard to second <b>tithe.</b>
+
+### Part 6
+Rav Sheshet resumes his argument: <b>And if it is so</b> that one who is uncircumcised may eat second tithe, <b>let</b> the <i>tanna</i> also <b>teach: It is prohibited for an uncircumcised man</b> to eat of <i>teruma</i> and first fruits, <b>which is not</b> the case <b>with</b> regard to second <b>tithe.</b>
+
+### Part 7
+The Gemara rejects this argument: This is no proof, as the <i>tanna</i> of the mishna <b>taught</b> only some of the differences between <i>teruma</i> and first fruits on the one hand and second tithe on the other, <b>and he omitted</b> others. The Gemara asks: The mishna is sometimes not exhaustive, but it never omits only one case. <b>What</b> other difference <b>did he omit that</b> you say that <b>he</b> also <b>omitted this</b> difference?
+
+### Part 8
+The Gemara answers: <b>He omitted</b> the following, <b>as he teaches</b> in <b>the latter clause</b> of the mishna: <b>There are</b> <i>halakhot</i> that apply to second <b>tithe and first fruits, which is not</b> the case <b>with</b> regard to <b><i>teruma</i>. As</b> second <b>tithe and first fruits require</b> that they be <b>brought to</b> a particular <b>place,</b> Jerusalem, where they must be eaten, whereas <i>teruma</i> may be consumed in all places; <b>and they</b> both <b>require a declaration,</b> as a declaration must be made on the last day of Passover in the fourth and seventh years of the Sabbatical cycle, stating that one’s agricultural obligations with regard to tithes have been fulfilled properly, and so too a declaration must be made when first fruits are brought to the Temple; <b>and they are forbidden to an acute mourner; and Rabbi Shimon permits</b> an acute mourner to partake of first fruits. <b>And they</b> both <b>require eradication</b> before Passover in the fourth and seventh years of the Sabbatical cycle if one failed to bring them beforehand; <b>and Rabbi Shimon exempts</b> first fruits from the obligation of eradication.
+
+### Part 9
+<b>And yet</b> second tithe and first fruits differ from <i>teruma</i> in that <b>it is prohibited to burn</b> the former and benefit from the burning, even when the produce is <b>in</b> a state of <b>ritual impurity</b> and therefore unfit to be eaten, e.g., one may not burn impure oil for light;
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

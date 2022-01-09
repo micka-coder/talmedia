@@ -1,0 +1,57 @@
+
+### Part 1
+<b>did you hear him</b> distinguish between the different parts of the payment? There is no aspect of innocuousness in the case of pebbles.
+
+### Part 2
+<b>Rather, when Rabbi Elazar says</b> that the owner of the dog pays the <b>full</b> cost of the <b>damage</b> in a case that is similar to one of propelled pebbles, he was referring to a case <b>where</b> the owner of the animal <b>was forewarned</b> with regard to this matter. <b>And they disagree about this</b> point: One <b>Sage,</b> Rabbi Elazar, <b>holds</b> that <b>there is forewarning with regard to</b> propelling <b>pebbles;</b> therefore, if there was testimony given in court that a particular animal regularly propels pebbles in the course of its walking, the animal is deemed forewarned and its owner pays the full cost of the damage. <b>And</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that <b>there is no forewarning with regard to pebbles.</b> Apparently, payment for damage caused by pebbles is paid from the body of the animal.
+
+### Part 3
+The Gemara asks: <b>But</b> if this is the case, then <b>the dilemma raised by Rava</b> concerning whether there <b>is forewarning for</b> propelling <b>pebbles or there is no forewarning for</b> propelling <b>pebbles,</b> can be resolved from this dispute. <b>If</b> the dilemma is raised <b>according to the Rabbis,</b> i.e., the first <i>tanna</i>, <b>there is no forewarning for</b> propelling <b>pebbles. If</b> the dilemma is raised <b>according to Rabbi Elazar, there is forewarning for</b> propelling <b>pebbles.</b>
+
+### Part 4
+The Gemara answers that <b>Rava</b> could have <b>said to you: When I raise the dilemma,</b> I do so specifically <b>according to</b> the opinion <b>of the Rabbis who disagree with Sumakhos</b> and hold that one pays half the cost of the damage in the case of pebbles; <b>but here</b> in this <i>baraita</i>, <b>both the Rabbis,</b> i.e., the first <i>tanna</i>, <b>and Rabbi Elazar hold in accordance with</b> the opinion of <b>Sumakhos, who says that</b> in the case of <b>pebbles, one pays the full</b> cost of the <b>damage.</b>
+
+### Part 5
+And <b>what is the reason</b> that <b>the Rabbis say</b> that one pays <b>half</b> the cost of <b>the damage</b> in the case of pebbles? It is <b>that</b> in the case of pebbles the animal <b>acted atypically and was not forewarned. And</b> in this <i>baraita</i>, concerning the dog that lit the stack of grain, the dispute between the first <i>tanna</i> and Rabbi Elazar is <b>with regard to</b> the issue that is the subject of <b>the dispute</b> between <b>Rabbi Tarfon and the Rabbis,</b> i.e., the <i>halakha</i> in the case of damage caused by an innocuous ox on the property of the injured party.
+
+### Part 6
+The Gemara rejects the parallel between the opinion of Rabbi Elazar and the opinion of Rabbi Tarfon. <b>Say that you heard</b> that <b>according to Rabbi Tarfon</b> the owner pays the <b>full</b> cost of the <b>damage;</b> but <b>did you hear</b> that <b>according to</b> Rabbi Tarfon restitution is paid only <b>from the body</b> of the animal that caused the damage?
+
+### Part 7
+The Gemara answers: <b>Yes,</b> Rabbi Tarfon holds that restitution is paid only from the body of the animal that caused the damage. <b>From where does</b> Rabbi Tarfon <b>derive</b> the <i>halakha</i> that when damage is caused by an innocuous ox on the property of the injured party its owner is liable to pay the full cost of the damage and not merely half? He derives it via an <i>a fortiori</i> inference <b>from</b> damage categorized as <b>Goring</b> that is caused <b>in the public domain,</b> as explained in the mishna (24b).
+
+### Part 8
+His ruling is based on the principle: <b>It is sufficient for the</b> conclusion that <b>emerges from</b> an <i>a fortiori</i> <b>inference to be like</b> its <b>source,</b> i.e., a <i>halakha</i> derived from an <i>a fortiori</i> inference cannot be more stringent than the source of that derivation. Since restitution for damage categorized as Goring that is caused in the public domain is paid only from the body of the damaging animal, the same is true with regard to restitution for damage categorized as Goring that is caused on the property of the injured party.
+
+### Part 9
+The Gemara asks: <b>But isn’t</b> it clear from that mishna that <b>Rabbi Tarfon does not accept</b> the principle: <b>It is sufficient</b> for the conclusion that emerges from an <i>a fortiori</i> inference to be like its source, as, if he accepted that principle, not only would he hold that payment is only from the body of the animal, he would also require payment of half the cost of the damage.
+
+### Part 10
+The Gemara answers: He does not reject the principle. <b>When he does not accept</b> the principle: <b>It is sufficient</b> for the conclusion that emerges from an <i>a fortiori</i> inference to be like its source, it is in a case <b>where</b> the result of rejecting the principle is <b>that</b> the <b><i>a fortiori</i> inference is refuted.</b> But in a case <b>where</b> the result of rejecting the principle is <b>that</b> the <b><i>a fortiori</i> inference is not refuted,</b> but will be applied in a more limited fashion, <b>he accepts</b> the principle: <b>It is sufficient</b> for the conclusion that emerges from an <i>a fortiori</i> inference to be like its source. Therefore, in this case the payment of the full cost of the damage, which is derived by means of the <i>a fortiori</i> inference, is paid only from the body of the animal based on the principle: It is sufficient for the conclusion that emerges from an <i>a fortiori</i> inference to be like its source.
+
+### Part 11
+§ The Gemara discusses <b>the</b> matter <b>itself,</b> cited earlier. <b>Rava raises</b> a <b>dilemma: Is there forewarning for</b> propelling <b>pebbles,</b> so that the owner would pay the full cost of the damage if he had been fore-warned three times, <b>or is there no forewarning for</b> propelling <b>pebbles,</b> and he will always pay half the cost of the damage? The Gemara elaborates: <b>Do we liken</b> the case of propelled pebbles <b>to</b> damage categorized as <b>Goring?</b> Accordingly, when an innocuous ox causes damage by propelling pebbles its owner pays half the cost of the damage, and when a forewarned ox does so the owner pays the full cost of the damage. <b>Or perhaps, is it a subcategory</b> of the primary category <b>of Trampling,</b> which is deemed forewarned from the outset? Accordingly, the owner would always pay half the cost of the damage, as there is no change in status after the third warning.
+
+### Part 12
+The Gemara suggests: <b>Come</b> and <b>hear</b> the resolution of this dilemma from a <i>baraita</i>: With regard to <b>hopping,</b> a chicken <b>is not</b> deemed <b>forewarned. And some say that it is forewarned.</b> The Gemara questions the formulation of the <i>baraita</i>: Does it <b>enter your mind</b> to raise the possibility that a chicken is not forewarned with regard to <b>hopping?</b> Hopping is the typical manner of movement for chickens. <b>Rather, is it not</b> that the reference in the <i>baraita</i> is to a case where the chicken was <b>hopping and propelled</b> pebbles that caused damage?
+
+### Part 13
+<b>What, is it not</b> referring to a case <b>where</b> the chicken has <b>done</b> so <b>three times? And</b> it is <b>with regard to this</b> that <b>they disagree:</b> One <b>Sage holds: There is forewarning for</b> pebbles, <b>and</b> one <b>Sage holds: There is no forewarning for</b> pebbles. According to this analysis, Rava’s dilemma is the subject of a tannaitic dispute. The Gemara rejects this resolution: <b>No,</b> perhaps the reference in the <i>baraita</i> is to a case where the chicken hopped only <b>one time. And</b> the <i>tanna’im</i> <b>disagree with regard to</b> the issue that is the subject of <b>the dispute</b> between <b>Sumakhos and the Rabbis,</b> concerning the compensation for damage caused by pebbles.
+
+### Part 14
+The Gemara suggests: <b>Come</b> and <b>hear</b> the resolution to the dilemma from an amoraic dispute: If <b>an animal dropped excrement onto dough</b> and damaged it, <b>Rav Yehuda says:</b> The owner of the animal <b>pays the full</b> cost of the <b>damage, and Rabbi Elazar says:</b> He pays <b>half</b> the cost of <b>the damage. What, is it not</b> referring to a case <b>where</b> the animal has <b>done</b> so <b>three times? And</b> it is <b>with regard to this</b> that <b>they disagree,</b> as one <b>Sage holds: There is forewarning for</b> pebbles, <b>and</b> one <b>Sage holds: There is no forewarning for</b> pebbles.
+
+### Part 15
+The Gemara rejects this resolution: <b>No,</b> perhaps the reference in the <i>baraita</i> is to a case where the animal dropped excrement only <b>one time. And</b> the <i>tanna’im</i> <b>disagree with regard to</b> the issue that is the subject of <b>the dispute</b> between <b>Sumakhos and the Rabbis,</b> concerning compensation for damage caused by pebbles. The Gemara asks: <b>But isn’t</b> this <b>atypical</b> behavior of the animal, and since all behavior that deviates from the norm is classified within the category of Goring, the owner should be liable to pay only half the cost of the damage? The Gemara answers: The case is one <b>where</b> the animal <b>was forced</b> into a narrow place and had no alternative to relieving itself onto the dough; therefore, it does not constitute atypical behavior.
+
+### Part 16
+The Gemara asks: <b>But</b> if the amoraic dispute parallels the tannaitic dispute, <b>let Rav Yehuda say:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Sumakhos, and let Rabbi Elazar say:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>the Rabbis,</b> instead of stating their dispute in the context of the particular case of the animal and the dough. The Gemara answers: It was <b>necessary</b> for them to state their dispute in this case, as there is a novel element concerning <b>excrement. It</b> would <b>enter your mind to say: Since</b> the excrement <b>is drawn after</b> the body of the animal, its legal status is <b>like</b> that of damage caused by <b>its body,</b> not like pebbles propelled by the animal. Therefore, their stating the dispute with regard to excrement <b>teaches us</b> that its status is like that of propelling pebbles. Therefore, the dispute between Rav Yehuda and Rabbi Elazar can be explained as parallel to the dispute between Sumakhos and the Rabbis with regard to pebbles.
+
+### Part 17
+The Gemara suggests: <b>Come</b> and <b>hear</b> resolution to the dilemma from a <i>baraita</i>: <b>Rami bar Yeḥezkel taught:</b> In the case of <b>a rooster that extended its head into the airspace of a glass vessel and crowed in</b> the vessel <b>and broke it</b> with the sound waves, its owner <b>pays the full</b> cost of the <b>damage. And Rav Yosef said</b> that the Sages from <b>the school of Rav say:</b> If <b>a horse neighed or a donkey brayed and</b> the sound waves <b>broke vessels,</b> the owner <b>pays half</b> the cost of <b>the damage.</b> These are cases similar to the case of pebbles, and there is a dispute between the Sages with regard to these cases.
+
+### Part 18
+<b>What, is it not</b> referring to a case <b>where</b> the rooster or animal has <b>done</b> so <b>three times?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,66 @@
+
+### Partie 1
+<b>Lorsqu'il atteint la majorite, il peut avoir des rapports sexuels avec elle,</b> et l'acquerir ainsi comme epouse a part entiere, <b>et</b> s'il souhaitait divorcer d'elle <b>il</b> peut alors <b>lui donner un acte de divorce</b> sans avoir a accomplir la <i>halitza</i>.
+
+### Partie 2
+<strong>MISHNA :</strong> A l'egard d'une jeune fille agee de <b>sept ans et un jour, on examine ses vœux</b> pour verifier si elle est consciente de la signification de son vœu et au nom de Qui elle a fait ce vœu. Des qu'elle a <b>douze ans et un jour</b> et que deux poils pubiens ont pousse, ce qui est un signe de l'age adulte, meme sans examen <b>ses vœux sont en vigueur. Et on examine</b> ses vœux pendant toute <b>la douzieme</b> annee jusqu'a son douzieme anniversaire.
+
+### Partie 3
+En ce qui concerne un garcon qui a <b>douze ans et un jour, on examine</b> ses vœux pour verifier s'il est conscient de la signification de son vœu et au nom de Qui il a fait le vœu. Des qu'il a <b>treize ans et un jour</b> et que deux poils pubiens ont pousse, meme sans examen <b>ses vœux sont en vigueur. Et on examine</b> ses vœux pendant toute <b>la treizieme</b> annee jusqu'a son treizieme anniversaire.
+
+### Partie 4
+<b>Avant ce moment,</b> onze ans et un jour pour une fille et douze ans et un jour pour un garcon, <b>meme s'ils ont dit : Nous savons au nom de qui nous avons fait un vœu</b> et <b>au nom de qui nous avons consacre, leur vœu n'est pas</b> un <b>vœu valide et leur consecration n'est pas</b> une <b>consecration valide. Apres ce delai,</b> douze ans et un jour pour une fille et treize ans et un jour pour un garcon, <b>meme s'ils ont dit : Nous ne savons pas au nom de qui nous avons fait un vœu</b> et <b>au nom de qui nous avons consacre, leur vœu est</b> un <b>vœu valide et leur consecration est</b> une <b>consecration valide.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> La Gemara demande : <b>Mais puisque</b> la mishna <b>enseigne :</b> En ce qui concerne une fille qui a <b>sept ans et un jour ses vœux sont examines, pourquoi ai-je</b> besoin que la mishna precise encore : Une fois qu'elle a <b>douze ans et un jour, ses vœux sont en vigueur ?</b> Apres tout, a ce stade, elle est deja adulte. La Guemara repond que cette decision est necessaire, car il pourrait <b>entrer dans votre esprit de dire</b> que <b>on examine</b> ses vœux <b>pour toujours,</b> meme lorsqu'elle est adulte. Par consequent, la mishna <b>nous enseigne</b> que les vœux d'un adulte sont valables meme sans examen.
+
+### Partie 6
+La Guemara demande en outre : <b>Et puisque</b> le mishna <b>nous enseigne :</b> Des qu'elle a <b>douze ans et un jour, ses vœux sont en vigueur, pourquoi ai-je</b> besoin qu'il precise encore : <b>On examine</b> ses vœux durant toute <b>la douzieme</b> annee ? La Guemara repond que cette decision est necessaire, car il pourrait <b>entrer dans votre esprit de dire : Puisque le Maitre dit</b> que <b>trente jours dans une annee sont consideres</b> comme equivalents a <b>une annee,</b> dans un cas <b>ou on l'examine</b> pendant <b>trente</b> jours apres qu'elle ait eu onze ans <b>et qu'elle ne savait pas</b> comment <b>prononcer</b> un vœu <b>correctement,</b> c'est-a-dire, elle n'avait pas une comprehension claire de la signification du vœu, on pourrait <b>dire</b> que <b>on doit l'examiner</b> elle <b>pas plus loin</b> jusqu'a ce qu'elle atteigne l'age de douze ans. Par consequent, la mishna <b>nous apprend</b> qu'elle est examinee tout au long de sa douzieme annee.
+
+### Partie 7
+La Guemara demande : <b>Et que</b> le mishna <b>nous enseigne</b> seulement <b>ces deux clauses :</b> Une fois qu'elle a <b>douze ans et un jour, ses vœux sont en vigueur, et on examine</b> ses vœux pendant toute <b>la douzieme</b> annee. Une fois que ces deux elements ont ete enseignes, <b>pourquoi ai-je</b> besoin de la decision : A l'egard d'une fille qui a <b>sept ans et un jour, ses vœux sont examines ?</b>
+
+### Partie 8
+La Guemara repond que cette clause <b>etait necessaire,</b> car il pourrait <b>entrer dans votre esprit de dire :</b> Dans <b>un cas ordinaire</b>, une jeune fille <b>exige un examen dans</b> sa <b>douzieme</b> annee, alors que <b>dans</b> sa <b>septieme</b> annee, elle <b>n'exige pas d'examen. Mais</b> dans un cas <b>ou l'on discerne chez elle qu'elle</b> a <b>un esprit tres vif</b>, peut-etre <b>doit-on l'examiner</b> deja <b>dans</b> sa <b>septieme</b> annee. Par consequent, le <i>tanna</i> <b>nous enseigne</b> qu'elle n'est pas examinee dans sa onzieme annee, quelle que soit son intelligence, car elle est trop jeune.
+
+### Partie 9
+La Gemara demande : <b>Pourquoi ai-je</b> besoin de la mishna pour enseigner qu'<b>avant ce moment</b> leurs vœux et leur consecration ne sont toujours pas valides <b>et apres ce moment</b> ils sont toujours valides ? Ces <i>halakhot</i> peuvent etre deduites des declarations precedentes de la mishna. La Guemara repond que ces decisions sont necessaires, car il pourrait <b>entrer dans votre esprit de dire : Ces questions</b> ne s'appliquent que dans un cas <b>ou l'on ne dit pas : </b> Nous savons au nom de qui nous avons fait le vœu, lorsqu'ils sont plus jeunes que les periodes mentionnees dans la mishna, ou : Nous ne savons pas au nom de Qui nous avons fait le vœu, lorsqu'ils sont plus ages. <b>Mais</b> dans un cas <b>ou ils disent</b> de telles declarations, peut-etre <b>nous nous fions a leur</b> affirmation. Par consequent, le <i>tanna</i> <b>nous enseigne</b> que lorsqu'ils sont plus jeunes que les periodes indiquees dans la mishna, leurs vœux ne sont jamais valides, et lorsqu'ils sont plus ages, leurs vœux sont toujours valides.
+
+### Partie 10
+§ La mishna indique que le developpement intellectuel d'une fille est plus rapide que celui d'un garcon. A cet egard, <b>les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Cette</b> opinion, en ce qui concerne les periodes de vœux pour les filles et les garcons, est conforme a <b>la declaration de Rabbi</b> Yehuda HaNasi. Mais <b>Rabbi Shimon ben Elazar dit</b> le contraire, que la <b>matiere enoncee</b> ici <b>en ce qui concerne une fille est</b> en fait <b>enoncee en ce qui concerne un garcon,</b> alors que la <b>matiere enoncee en ce qui concerne un garcon est</b> en fait <b>enoncee en ce qui concerne une fille,</b> car le developpement intellectuel des males est plus rapide que celui des femelles.
+
+### Partie 11
+<b>Rav Hisda a dit : Quelle est la raison de Rabbi</b> Yehuda HaNasi ? <b>Comme il est ecrit,</b> a propos de la creation de la femme : <b>"Et la cote</b> que <b>le Seigneur Dieu</b> avait prise a l'homme, <b>Il fit [<i>vayyiven</i>]</b> une femme, et l'amena a l'homme" (Genese 2, 22). Ceci <b>enseigne que le Saint, Beni soit-Il, a accorde a la femme une plus grande comprehension [<i>bina</i>] que</b> celle <b>de l'homme.</b>
+
+### Partie 12
+La Gemara demande : <b>Et</b> que tire de ce verset <b>l'autre</b> <i>tanna</i>, Rabbi Shimon ben Elazar ? La Guemara repond : <b>Il exige ce</b> verset <b>pour ce que Reish Lakish</b> a enseigne, <b>comme Reish Lakish a dit au nom de Rabbi Shimon ben Menasya</b> a propos du verset : <b>"Et la cote que le Seigneur Dieu avait prise a l'homme, il fit une femme, et l'amena a l'homme.</b> Ceci <b>enseigne que le Saint, Beni soit-Il, tressa</b> les cheveux d'<b>Eve, et</b> ensuite <b>l'amena a Adam le premier</b> homme. <b>Comme dans les villes d'outre-mer [<i>bikhrakei hayyam</i>] on appelle tresser</b> les cheveux, <b>construire [<i>benayita</i>].</b>
+
+### Partie 13
+La Guemara demande : <b>Et Rabbi Shimon ben Elazar, quelle est la raison</b> pour laquelle il soutient que le developpement intellectuel des males est plus rapide que celui des femelles ? <b>Rav Shmuel bar Rav Yitzhak dit : Comme un garcon frequente la maison de son professeur, l'intelligence entre dans son</b> esprit <b>en premier.</b>
+
+### Partie 14
+§ La mishna enseigne qu'il y a trois periodes dans le developpement des filles et des garcons : Lors de l'examen de leurs vœux, c'est-a-dire la douzieme annee pour une fille et la treizieme annee pour un garcon, ce qui sera nomme ci-dessous : Pendant le temps ; la periode qui precede, ou leurs vœux sont entierement invalides, appelee : Avant le temps ; et apres cette periode, ou leurs vœux sont toujours valables, appelee : Apres le temps. Mais la mishna n'aborde pas la question de leur developpement physique pendant ces periodes, en ce qui concerne l'apparition de deux poils pubiens. A cet egard, <b>un dilemme a ete souleve devant</b> les Sages : Si un garcon ou une fille developpait des poils pubiens <b>pendant</b> le <b>temps,</b> cette annee est-elle consideree <b>comme</b> le developpement de signes indiquant la puberte <b>avant</b> le <b>temps</b> ou l'enfant atteint sa majorite, et donc ils ne sont pas traites comme des signes indiquant la puberte, <b>ou</b> est-elle consideree <b>comme apres</b> le <b>temps ?</b>
+
+### Partie 15
+La Gemara demande : <b>A l'egard de quelle <i>halakha</i></b> ce dilemme se pose-t-il ? <b>Si</b> c'est <b>en ce qui concerne les vœux,</b> le developpement des poils pubiens <b>n'est pas considere comme avant</b> le <b>temps, mais</b> il <b>n'est pas non plus considere comme apres</b> le <b>temps</b>. Au contraire, le statut du vœu est determine en fonction de l'examen de la comprehension de l'enfant, comme indique dans la mishna.
+
+### Partie 16
+<b>Par contre,</b> le dilemme est souleve <b>en ce qui concerne les punitions,</b> c'est-a-dire si un tel garcon ou une telle fille est puni comme un adulte pour avoir viole les interdictions de la Torah. <b>Quoi, </b> alors, est la <i>halakha</i> ? Les Sages ne sont pas d'accord. <b>Rav et Rabbi Hanina disent tous deux :</b> Le developpement des poils pubiens <b>pendant</b> ce <b>temps</b> est considere <b>comme avant</b> ce <b>temps,</b> et donc le garcon ou la fille n'est pas susceptible de recevoir une punition pour ses actions. <b>Rabbi Yohanan et Rabbi Yehoshua ben Levi disent tous deux :</b> Le developpement des poils pubiens <b>pendant</b> ce <b>temps</b> est considere <b>comme apres</b> le <b>temps,</b> et ils sont punis.
+
+### Partie 17
+<b>Rav Nahman bar Yitzhak dit : Et votre moyen mnemotechnique,</b> pour vous rappeler quels Sages ont dit quelle decision, est le verset : <b>"Now this [<i>vezot</i>] was the custom in former times in Israel"</b> (Ruth 4:7). Le Sage dont le nom a une forme feminine comme le mot <i>vezot</i>, a savoir le Rav Hanina, soutient que le developpement des poils pubiens pendant le temps est considere comme avant le temps, comme les temps anciens mentionnes dans le verset.
+
+### Partie 18
+<b>Rav Hamnuna souleve une objection</b> a l'opinion de Rabbi Yohanan et Rabbi Yehoshua ben Levi a partir de la mishna : <b>Apres ce temps,</b> douze ans et un jour pour une fille et treize ans et un jour pour un garcon, <b>meme s'ils disent : Nous ne savons pas au nom de qui nous avons fait un vœu</b> et <b>au nom de qui nous avons consacre, leur vœu est</b> un <b>vœu valide et leur consecration est</b> une <b>consecration valide.</b> Rav Hamnuna deduit de cette decision que s'ils ont emis cette declaration <b>pendant</b> le <b>temps,</b> elle est consideree <b>comme avant</b> le <b>temps,</b> meme s'ils avaient developpe deux cheveux.
+
+### Partie 19
+<b>Rava dit a</b> Rav Hamnuna, en rejetant cette preuve : <b>Dit la clause precedente</b> dans la mishna : <b>Avant cette epoque,</b> onze ans et un jour pour une fille et douze ans et un jour pour un garcon, <b>meme s'ils ont dit : Nous savons au nom de qui nous avons fait un vœu</b> et <b>au nom de qui nous avons consacre, leur vœu n'est pas</b> un <b>vœu valide et leur consecration n'est pas</b> une <b>consecration valide.</b> On peut en deduire le contraire, a savoir que s'ils ont emis cette declaration <b>pendant</b> le <b>temps,</b> elle est consideree <b>comme apres</b> le <b>temps.</b>
+
+### Partie 20
+La Gemara repond : <b>Et</b> cela <b>n'est pas le cas,</b> car <b>Rava s'est trompe. Il a pense</b> que <b>Rav Hamnuna a deduit de l'enonce superflu</b> de la <b>mishna,</b> c'est-a-dire que la clause que Rav Hamnuna cite n'est pas necessaire pour la <i>halakha</i> qu'elle enonce, c'est pourquoi Rav Hamnuna en a deduit sa conclusion. <b>Et</b> par consequent, Rava a repondu que <b>plutot que de deduire de la derniere clause</b> de la mishna que si le garcon ou la fille pretend ne pas savoir au nom de Qui il a fait le vœu pendant le temps, cela est considere comme avant le temps, <b>qu'il deduise de la premiere clause</b> que cela est considere comme apres le temps, comme Rava l'a demontre.
+
+### Partie 21
+La Guemara poursuit : <b>Mais il n'en est rien;</b> au contraire, <b>Rav Hamnuna a deduit</b> qu'il est considere comme avant le temps <b>a partir de l'enonce de <b>la mishna elle-meme,</b> sans supposer qu'il soit superflu, comme suit : Dans <b>cette</b> mention dans la mishna de : <b>Apres</b> ce <b>temps, quelles sont les circonstances ? Si</b> elle fait reference a un cas <b>ou</b> le garcon <b>n'a pas</b> encore <b>developpe deux</b> poils pubiens, il est mineur. Au contraire, n'est-ce pas</b> se referant a un cas <b>ou</b> le garcon <b>a developpe deux</b> <b>poils pubiens,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

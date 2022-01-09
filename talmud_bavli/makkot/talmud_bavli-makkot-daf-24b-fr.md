@@ -1,0 +1,15 @@
+
+### Partie 1
+<b>par le feu, et ne pleurerons-nous pas ?</b> Rabbi Akiva <b>leur a dit : C'est pour cela que je ris. Si pour ceux qui violent Sa volonte,</b> les mechants, il en est <b>ainsi</b> et qu'ils sont recompenses pour les quelques bonnes actions qu'ils ont accomplies, <b>pour ceux qui accomplissent Sa volonte, a plus forte raison</b> ils seront recompenses.
+
+### Partie 2
+La Guemara relate un autre incident impliquant ces Sages. <b>En une autre occasion, ils montaient a Jerusalem</b> apres la destruction du Temple. <b>Quand ils arriverent au Mont Scopus</b> et virent le site du Temple, <b>ils dechirerent leurs vetements</b> en signe de deuil, conformement a la pratique halakhique. <b>Quand ils arriverent sur le Mont du Temple, ils virent un renard qui emergeait de</b> l'emplacement du <b>Saint des Saints. Ils se mirent a pleurer, et Rabbi Akiva</b> etait <b>rire. Ils lui dirent : Pour quelle</b> raison <b>tu ris ?</b> Rabbi Akiva <b>leur repondit : Pour quelle</b> raison <b>vous pleurez ? Ils lui repondirent :</b> C'est le <b>lieu</b> au sujet duquel il est ecrit : "Et le non-pretre qui s'en approchera mourra"</b> (Nombres 1:51), <b>et maintenant des renards s'y promenent ; ne pleurerons-nous pas ?</b>
+
+### Partie 3
+Rabbi Akiva <b>leur dit : C'est pourquoi je ris, comme il est ecrit,</b> lorsque Dieu revela l'avenir au prophete Isaie : <b>Et je prendrai aupres de Moi des temoins fideles pour attester : Urie le pretre, et Zacharie, fils de Jeberechiah"</b> (Isaie 8, 2). <b>Mais quel est le lien entre Urie et Zacharie ?</b> Il clarifie la difficulte : <b>Urie</b> a prophetise <b>pendant la periode du Premier Temple</b>, <b>et Zacharie</b> a prophetise <b>pendant la periode du Second Temple</b>, car il etait parmi ceux qui sont revenus a Sion de Babylonie. <b>Le verset a plutot etabli que</b> l'accomplissement de <b>la prophetie de Zacharie</b> est <b>dependant de</b> l'accomplissement de <b>la prophetie d'Urie.</b>
+
+### Partie 4
+<b>Dans</b> la prophetie d' <b>Urie, il est ecrit :" C'est pourquoi, a cause de toi, Sion sera labouree comme un champ,</b> Jerusalem deviendra des decombres, et le mont du Temple comme les hauteurs d'une foret" (Michee 3, 12), ou l'on trouve des renards. Une tradition rabbinique veut que cela ait ete prophetise par Urie. <b>Dans</b> la prophetie de <b>Zacharie, il est ecrit : "Il y aura encore des vieillards et des femmes agees assis dans les rues de Jerusalem"</b> (Zacharie 8:4). <b>Jusqu'a ce que la prophetie d'Urie</b> concernant la destruction de la ville <b>se realise, je craignais que la prophetie de Zacharie ne se realise pas,</b> car les deux propheties sont liees. <b>Maintenant que la prophetie d'Urie s'est accomplie, il</b> est <b>evident que la prophetie de Zacharie</b> reste <b>valide.</b> La Gemara ajoute : Les Sages lui ont <b>dit,</b> en employant <b>cette formulation : Akiva, tu nous as reconfortes ; Akiva, tu nous as reconfortes.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

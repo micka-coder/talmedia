@@ -1,0 +1,42 @@
+
+### Part 1
+This serves <b>to say that even if they fulfill</b> the seven Noahide mitzvot <b>they do not receive a reward for their</b> fulfilment.
+
+### Part 2
+The Gemara asks: <b>And</b> are they <b>not</b> rewarded for fulfilling those mitzvot? <b>But isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Meir would say: From where</b> is it derived <b>that even a gentile who engages in Torah</b> study <b>is</b> considered <b>like a High Priest? The verse states:</b> “You shall therefore keep My statutes and My ordinances, <b>which if a person do, and shall live by them”</b> (Leviticus 18:5). It <b>is not stated: Priests, Levites, and Israelites, but rather</b> the general term <b>“person.”</b> From here <b>you learn that even a gentile who engages in</b> the study of <b>Torah is like a High Priest.</b> This demonstrates that gentiles are rewarded for fulfilling mitzvot, despite the fact that they are not commanded to do so.
+
+### Part 3
+<b>Rather,</b> the verse serves <b>to tell you that they do not receive</b> as great <b>a reward for their</b> fulfillment <b>as one who is commanded and performs</b> a mitzva. <b>Rather,</b> they receive a lesser reward, <b>like</b> that of <b>one who is not commanded and</b> still <b>performs</b> a mitzva. <b>As Rabbi Ḥanina says: Greater is one who is commanded</b> to do a mitzva <b>and performs</b> it <b>than one who is not commanded and performs</b> it.
+
+### Part 4
+The Gemara returns to the discussion between God and the nations of the world, whose claims are rejected with the rebuttal that they did not receive the Torah because they did not fulfill the seven Noahide mitzvot that were incumbent upon them. <b>Rather, this is what the gentiles say before the Holy One, Blessed be He: Master of the Universe,</b> as for <b>the Jewish people who accepted</b> the Torah, <b>where</b> is the evidence that <b>they fulfilled its</b> mitzvot?
+
+### Part 5
+<b>The Holy One, Blessed be He, says to them</b> in response: <b>I</b> will <b>testify about</b> the Jewish people <b>that they fulfilled the Torah</b> in <b>its entirety.</b> The nations <b>say before Him: Master of the Universe, is there a father who can testify about his son? As it is written: “Israel is My son, My firstborn”</b> (Exodus 4:22). Since God is considered the Father of the Jewish people, He is disqualified from testifying on their behalf. <b>The Holy One, Blessed be He, said to them: Heaven and earth will testify about them that they fulfilled the Torah</b> in <b>its entirety.</b>
+
+### Part 6
+The nations <b>say before Him: Master of the Universe,</b> in this matter the <b>testimony of heaven and earth is</b> tainted by <b>a conflict of interest, as it is stated: “If My covenant be not with day and night, I would not have appointed the ordinances of heaven and earth”</b> (Jeremiah 33:25). <b>And</b> concerning this verse, <b>Rabbi Shimon ben Lakish says: What</b> is the meaning of that <b>which is written: “And there was evening and there was morning, the sixth day”</b> (Genesis 1:31)? This <b>teaches that the Holy One, Blessed be He, established a condition with the acts of Creation, and said: If the Jewish people accept My Torah</b> at the revelation at Sinai, all is <b>well, but if</b> they do <b>not</b> accept it, <b>I will return you to</b> the primordial state of <b>chaos and disorder.</b>
+
+### Part 7
+<b>And this is</b> similar to <b>that which Ḥizkiyya says</b> with regard to a different matter: <b>What</b> is the meaning of that <b>which is written: “You caused sentence to be heard from heaven; the earth feared, and was silent”</b> (Psalms 76:9)? <b>If</b> the earth <b>feared, why was it silent, and if it was silent, why did it fear?</b> One who is afraid does not stay silent, and one who remains silent thereby demonstrates that he is not afraid. <b>Rather,</b> this is the meaning of the verse: <b>At first,</b> when God came to give the Torah to the Jewish people, the earth <b>feared</b> that they might not accept it, and it would be destroyed. This is alluded to by the phrase “You caused sentence to be heard.” <b>But ultimately,</b> when the Jews accepted the Torah, the earth <b>was silent.</b> Consequently, heaven and earth are interested parties and cannot testify about the Jewish people’s commitment to the Torah.
+
+### Part 8
+Instead, <b>the Holy One, Blessed be He, says to</b> the nations: <b>Let</b> the witnesses <b>come from among you and testify that the Jewish people fulfilled the Torah</b> in <b>its entirety. Let Nimrod come and testify about Abraham that he did not engage in idol worship. Let Laban come and testify about Jacob that he is not suspect with regard to robbery</b> (see Genesis 31:36–42). <b>Let the wife of Potiphar come and testify about Joseph that he is not suspect with regard to the sin</b> of adultery (see Genesis 39:7–12).
+
+### Part 9
+<b>Let Nebuchadnezzar come and testify about Hananiah, Mishael, and Azariah that they did not prostrate themselves before</b> a graven <b>image. Let Darius come and testify about Daniel that he did not neglect</b> his <b>prayer</b> (see Daniel 6). <b>Let Bildad the Shuhite, and Zophar the Naamathite, and Eliphaz the Temanite, and Elihu, son of Barachel, the Buzite,</b> friends of Job (see Job 2:11 and 32:2) <b>come and testify about the Jewish people that they fulfilled the Torah</b> in <b>its entirety. As it is stated:</b> “All the nations are gathered together…<b>let them bring their witnesses, that they may be justified”</b> (Isaiah 43:9), i.e., the gathered gentiles will submit testimony on behalf of the Jewish people and demonstrate the Jews’ righteousness.
+
+### Part 10
+The gentiles <b>say before Him: Master of the Universe, give us</b> the Torah <b>afresh and we will perform</b> its mitzvot. <b>The Holy One, Blessed be He, says to them</b> in response: <b>Fools of the world!</b> Do you think you can request this? <b>One who takes pains on Shabbat eve will eat on Shabbat,</b> but <b>one who did not take pains on Shabbat eve, from where will he eat on Shabbat?</b> The opportunity for performing mitzvot has already passed, and it is now too late to ask to perform them. <b>But even so, I have an easy mitzva</b> to fulfill, <b>and its name is <i>sukka</i>; go and perform it.</b>
+
+### Part 11
+The Gemara asks: <b>And how can you say so,</b> that it is possible to perform a mitzva after the end of this world? <b>But doesn’t Rabbi Yehoshua ben Levi say: What</b> is the meaning of that <b>which is written:</b> “You shall therefore keep the commandment, and the statutes, and the ordinances, <b>which I command you this day,</b> to do them” (Deuteronomy 7:11)? This verse teaches that <b>today,</b> in this world, is the time <b>to do them, but tomorrow,</b> in the World-to-Come, <b>is not</b> the time <b>to do them.</b> Furthermore, <b>today</b> is the time <b>to do them, but today is not</b> the time <b>to receive</b> one’s <b>reward,</b> which is granted in the World-to-Come.
+
+### Part 12
+The Gemara explains: <b>But</b> even so, God gave the nations an opportunity to perform a mitzva, <b>as The Holy One, Blessed be He, does not deal tyrannically [<i>beteruneya</i>] with His creations,</b> but wants them to feel that they have been judged fairly. The Gemara asks: <b>And why</b> does God <b>call</b> the mitzva of <i>sukka</i> <b>an easy mitzva</b> to fulfill? <b>Because</b> performing the mitzva <b>involves no monetary loss.</b>
+
+### Part 13
+<b>Immediately, each and every</b> gentile will <b>take</b> materials <b>and go and construct a <i>sukka</i> on top of his roof. And the Holy One, Blessed be He,</b> will <b>set upon them the heat [<i>makdir</i>] of the sun in the season of Tammuz,</b> i.e., the summer, <b>and each and every one</b> who is sitting in his <i>sukka</i> will be unable to stand the heat, and he will <b>kick his <i>sukka</i> and leave, as it is stated: “Let us break their bands asunder, and cast away their cords from us”</b> (Psalms 2:3). The Gemara asks: Why does God <b>heat</b> the sun over them? <b>But didn’t you say</b> that <b>the Holy One, Blessed be He, does not deal tyrannically with His creations?</b> The Gemara answers: This is not considered dealing tyrannically with the gentiles, <b>because for the Jewish people as well,</b> there are <b>times</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

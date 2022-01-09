@@ -1,0 +1,45 @@
+
+### Partie 1
+indique que les franges dans la mitzva enoncee dans le verset adjacent : <b>Vous vous ferez des franges"</b> (Deuteronome 22:12), peuvent etre <b>de ces derniers,</b> laine et lin. En juxtaposant la mitzva des franges rituelles a l'interdiction de diverses sortes de tissus, la Torah enseigne que la mitzva positive des franges rituelles, qui inclut la laine teinte en bleu, l'emporte sur l'interdiction de diverses sortes de tissus, c'est-a-dire que l'on peut attacher des franges rituelles en laine a un vetement en lin. On peut donc attacher des franges rituelles en laine a un vetement en lin. De la decoule le principe general selon lequel une mitzva positive l'emporte sur une interdiction.
+
+### Partie 2
+§ La Guemara revient sur la mishna qui enseigne que les nazirites, les lepreux et les levites doivent se raser les cheveux. <b>Le Maitre a dit</b> ci-dessus : <b>Et</b> en ce qui concerne <b>tous ceux-la, s'ils se sont rases avec</b> un instrument <b>autre qu'un rasoir, ou s'ils ont laisse deux poils</b> non coupes, <b>ils n'ont rien fait. Rav Aha, fils de Rav Ika, a dit : C'est a dire</b> que le principe : <b>La majorite</b> d'une entite est consideree <b>comme la totalite de celle-ci,</b> s'applique <b>par la loi de la Torah.</b>
+
+### Partie 3
+La Gemara demande : <b>D'ou vient cet enseignement</b> ? La Guemara explique : Ce principe decoule <b>du fait</b> que le Misericordieux a revele</b> dans la Torah et precise <b>a propos d'un nazirite : "Le septieme jour, il se rasera"</b> (Nombres 6:9), malgre le fait que le meme verset indiquait deja : "Et il se rasera la tete le jour de sa purification." Ceci enseigne que <b>c'est</b> seulement dans ce cas <b>la</b> qu'il n'accomplit pas la mitsva de se raser <b>jusqu'a ce qu'il y ait</b> l'enlevement <b>de la totalite,</b> c'est-a-dire que raser une partie de sa tete est insuffisant. Cela montre que <b>en general la majorite</b> d'une entite est <b>comme la totalite de celle-ci.</b>
+
+### Partie 4
+<b>Rabbi Yosei, fils de Rabbi Hanina, s'oppose a cette</b> affirmation. <b>Ce verset</b> : "Le septieme jour, il la rasera,<b>est ecrit a l'egard d'un nazirite rituellement impur,</b> et non d'un nazirite pur, alors que la <i>halakha</i> de la mishna s'applique meme a un nazirite pur. Cela montre que la deduction ci-dessus est invalide. <b>On rit</b> de cette difficulte <b>en Occident,</b> c'est-a-dire en Eretz Yisrael : <b>Apres tout, d'ou tire-t-on</b> la <i>halakha</i> que <b>un nazirite impur</b> se rase <b>avec un rasoir ?</b> Elle est <b>derivee de</b> la <i>halakha</i> d'un <b>nazirite pur. </b> Si c'est le cas, <b>laissons venir</b> le cas d'un nazirite pur et derivons</b> le <i>halakha</i> suivant <b>a partir</b> du cas d'un nazirite impur : De meme que</b> concernant <b>un nazirite impur</b>, <b>s'il laisse deux cheveux, il n'a rien fait, ici aussi,</b> si un nazirite pur <b>laisse deux cheveux, il n'a rien fait.</b>
+
+### Partie 5
+Sur le meme sujet, <b>Abaye souleve un dilemme :</b> En ce qui concerne <b>un nazirite qui s'est rase et a laisse deux cheveux,</b> ce qui n'est pas considere comme un acte de rasage, si les cheveux de <b>sa tete poussent et qu'il se rase a nouveau,</b> cette fois ces deux cheveux seuls, <b>qu'est-ce que</b> la <i>halakha</i> ? <b>Ces poils <b>invalident-ils</b> l'accomplissement de son obligation <b>ou non ?</b> A-t-il maintenant accompli son acte initial de rasage, ou le rasage de deux poils sur une tete pleine de cheveux n'a-t-il aucune signification, et doit-il maintenant raser toute sa tete ?
+
+### Partie 6
+De meme, <b>Rava a souleve un dilemme :</b> En ce qui concerne <b>un nazirite qui s'est rase et a laisse deux cheveux, et</b> par la suite <b>a rase un</b> d'entre eux, <b>et</b> l'autre <b>un est tombe</b> de lui-meme, <b>qu'elle est</b> la <i>halakha</i> ? Est-ce considere comme le fait de se raser la tete entiere ou non ? <b>Rav Aha de Difti a dit a Ravina : Rava souleve-t-il un dilemme</b> quant a savoir si on peut <b>se raser</b> la tete un <b>chef par</b> un <b>chef ?</b> En quoi ce cas differe-t-il de celui de celui qui se rase toute la tete un cheveu a la fois, ce qui constitue un accomplissement de son obligation ?
+
+### Partie 7
+<b>Disons plutot</b> que le dilemme est le suivant : Si <b>un</b> cheveu <b>est tombe et qu'il a rase</b> l'autre <b>un seul, quelle est</b> la <i>halakha</i> ? A-t-il accompli l'obligation de se raser s'il ne restait qu'un seul poil lorsqu'il est venu se raser ? Ravina <b>lui a dit :</b> Dans ce cas <b>il n'y a pas de rasage ici ; il n'y a pas de poil ici.</b> La Guemara exprime sa surprise devant cette expression : <b>S'il n'y a pas de poil ici,</b> alors <b>il y a un rasage ici,</b> car il ne reste aucun poil. La Gemara explique : <b>C'est ce qu'il a dit : Meme s'il n'y a pas de poil ici,</b> car il ne reste qu'un seul poil, neanmoins <b>il n'y a pas</b> d'accomplissement de la <b>mitzva du rasage ici,</b> car il n'a pas reussi a tout raser a la premiere tentative, et la deuxieme fois, il a rase moins que la quantite requise.
+
+### Partie 8
+mishna <b>Un nazirite peut se shampouiner [<i>hofef</i> ]</b> la tete <b>et separer [<i>mefaspes</i>]</b> ses cheveux manuellement, sans se soucier que des cheveux puissent tomber. <b>Cependant, il ne peut pas se peigner</b> ses cheveux.
+
+### Partie 9
+Gemara La Gemara clarifie : <b>Qui est</b> le <i>tanna</i> qui soutient qu'un nazirite <b>peut se shampouiner et separer</b> ses cheveux ? <b>C'est Rabbi Shimon, qui dit : Un acte non intentionnel est permis.</b> Meme si des cheveux tombent a la suite de cette action, comme il n'avait pas l'intention que cela se produise, l'action est permise. Pourtant, dans la derniere clause de la mishna, qui dit : <b>Cependant, il ne peut pas peigner</b> ses cheveux, <b>nous en sommes arrives</b> a l'opinion des <b>rabbins.</b> Bien que ce nazirite n'ait pas non plus l'intention d'arracher des cheveux lorsqu'il les peigne, cette action est neanmoins interdite.
+
+### Partie 10
+Ceci conduit a une conclusion surprenante, a savoir que <b>la premiere clause</b> represente l'opinion de <b>Rabbi Shimon et la derniere clause</b> est l'opinion de <b>les Rabbins. Rabba dit :</b> La <b>entiere</b> mishna <b>est</b> en accord avec l'opinion de <b>Rabbi Shimon,</b> car il soutient que <b>toute personne qui se peigne</b> les cheveux <b>a l'intention d'enlever les poils errants,</b> et donc ceci est considere comme un acte intentionnel.
+
+### Partie 11
+<strong>MISHNA :</strong> <b>Rabbi Yishmael dit :</b> Un nazirite <b>ne doit pas se shampouiner</b> les cheveux <b>avec de la terre car</b> cela <b>fait tomber les cheveux.</b>
+
+### Partie 12
+<strong>GEMARA:</strong> <b>Un dilemme a ete souleve devant</b> les Sages : Quelle est la formulation precise de la mishna ? Est-ce que <b>on apprend : Parce qu'elle enleve les cheveux,</b> c'est-a-dire que la terre en general enleve les cheveux, <b>ou peut-etre apprenons-nous : A cause de ce qui enleve</b> les cheveux. En d'autres termes, bien que certains types de terre n'enlevent pas les cheveux, il est interdit de les utiliser egalement, en raison des types qui enlevent les cheveux. La Gemara s'interroge : <b>Quelle</b> est la <b>difference</b> de cette question textuelle ?
+
+### Partie 13
+La Guemara explique : Il y a une difference dans un cas <b>ou il y a</b> un type de <b>corps qui n'epile pas</b> les cheveux. <b>Si on dit</b> que <b>on a appris</b> dans la mishna : <b>Parce qu'elle enleve</b> les cheveux, alors dans un cas <b>ou nous savons qu'elle n'enleve pas</b> les cheveux <b>il est bon</b> de se shampouiner avec cette substance. <b>Cependant, si vous dites</b> le texte dit : <b>En raison de ce qui enleve</b> les cheveux, cela indique que les Sages ont interdit l'utilisation de tout type de terre, en raison du type qui enleve les cheveux. Si tel est le cas, un nazirite ne peut <b>pas</b> se shampouiner la tete avec une quelconque terre <b>du tout,</b> pas meme si elle n'enleve pas les cheveux. Aucune reponse n'a ete trouvee, et la Guemara dit que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 14
+<strong>MISHNA:</strong> <b>Un nazirite qui a bu du vin toute la journee est susceptible</b> de recevoir <b>une seule</b> serie de coups de fouet. Si des personnes lui <b>disent</b> au cours de la journee : <b>Ne buvez pas, ne buvez pas, et</b> neanmoins <b>il</b> continue a <b>boire, il est responsable de chacune des</b> fois ou il a ete averti. Si un nazirite <b>a continue a se raser toute la journee, il est passible</b> de recevoir <b>une seule</b> serie de coups de fouet. Si <b>on lui a dit : Ne te rase pas, ne te rase pas, et qu'il se rase, il est passible pour chaque</b> fois qu'il a ete averti. S'il <b>s'est rendu rituellement impur a partir d'un cadavre</b> plusieurs fois <b>toute la journee, il est passible</b> de recevoir <b>une seule</b> serie de coups de fouet. Si <b>ils lui ont dit : Ne deviens pas impur, ne deviens pas impur, et qu'il</b> continue a <b>devenir impur, il est passible pour chaque</b> fois qu'il a ete averti.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

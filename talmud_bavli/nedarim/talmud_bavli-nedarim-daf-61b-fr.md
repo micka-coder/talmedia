@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>dans</b> une position d'incertitude, et Rabbi Yosei soutient</b> que <b>une personne se place effectivement dans</b> une position d'incertitude ?</b>
+
+### Partie 2
+La Guemara <b>souleve une contradiction</b> a partir de la mishna suivante (<i>Kiddushin</i> 64b) : Dans le cas de <b>celui qui a deux groupes</b> de deux <b>filles</b> qui lui sont nees <b>de deux femmes,</b> par exemple, il a deux filles de sa premiere femme, et apres le deces de sa premiere femme, il s'est remarie et a eu deux filles avec sa seconde femme, <b>et il a dit : J'ai fiance ma fille ainee</b> a quelqu'un, <b>mais je ne sais pas si</b> je voulais dire la <b>plus agee du groupe des filles ainees</b> ; ou <b>si</b> je voulais dire <b>la fille ainee</b> <b>du groupe des plus jeunes</b> ; <b>ou si</b> j'ai voulu dire la <b>fille plus jeune</b> <b>du groupe plus age</b>, <b>qui est</b> neanmoins <b>plus agee que la fille plus agee</b> <b>du groupe plus jeune</b>, alors <b>toutes</b> ces trois filles <b>sont interdites</b> d'epouser un autre homme en raison de l'incertitude, car il n'a pas precise quelle fille etait fiancee. Ceci s'applique a toutes les filles <b>sauf la plus jeune</b> fille <b>du groupe le plus jeune</b>, qui n'est certainement pas fiancee. C'est <b>la declaration de Rabbi Meir.</b>
+
+### Partie 3
+<b>Rabbi Yosei dit : Elles sont toutes autorisees</b> a se marier, <b>a l'exception de la fille la plus agee</b> <b>du groupe le plus age</b>. Ceci demontre que selon Rabbi Meir, il faut prendre en compte tous les sens possibles de l'expression imprecise : Ma fille ainee, alors que Rabbi Yosei soutient que seul le sens le plus etroit possible de l'expression est pris en compte. Cela contredit la mishna ici.
+
+### Partie 4
+En reponse a cette question, <b>Rabbi Hanina bar Avdimi dit</b> que <b>Rav a dit : L'attribution</b> des <b>opinions est inversee,</b> c'est-a-dire que les opinions enoncees dans la mishna ici doivent etre inversees afin de les concilier avec la mishna dans <i>Kiddushin</i>. <b>Et il est</b> en effet <b>enseigne</b> dans une <i>baraita</i> que <b>ceci est le principe :</b> En ce qui concerne <b>tout</b> vœu qui specifie <b>un temps fixe,</b> c'est-a-dire, un evenement qui se produit a une date particuliere, et que l'on <b>dit</b> que le vœu s'applique <b>jusqu'a avant</b> cet evenement, <b>Rabbi Meir dit</b> que le vœu s'applique <b>jusqu'a</b> l'evenement <b>fini, et Rabbi Yosei dit</b> que le vœu n'est en vigueur que <b>jusqu'a</b> l'evenement <b>arrive.</b> Ceci est une autre preuve que les opinions dans la mishna ici doivent etre inversees.
+
+### Partie 5
+<strong>MISHNA :</strong> Si quelqu'un fait le vœu qu'une chose lui soit interdite <b>jusqu'a la recolte des cereales,</b> ou <b>jusqu'a la recolte des raisins,</b> ou <b>jusqu'a la recolte des olives, elle lui est interdite</b> uniquement jusqu'a l'arrivee</b> de cette saison. <b>C'est le principe :</b> En ce qui concerne <b>toute occasion</b> <b>dont le temps est fixe, et on a dit : Jusqu'a ce qu'elle arrive,</b> il lui est <b>interdit</b> jusqu'a</b> ce que l'occasion specifiee <b>arrive.</b> S'il <b>a dit : Jusqu'a ce que ce soit,</b> il lui est <b>interdit</b> <b>jusqu'a</b> ce que l'occasion specifiee <b>se termine. Et</b> en ce qui concerne <b>toute occasion</b> <b>dont le moment n'est pas fixe,</b> c'est-a-dire qu'elle ne tombe pas a une date precise, <b>qu'il ait dit : Jusqu'a ce qu'elle soit,</b> ou : <b>Jusqu'a ce qu'elle arrive,</b> elle lui est <b>interdite</b> <b>seulement jusqu'a</b> ce que l'occasion specifiee <b>arrive.</b>
+
+### Partie 6
+S'il disait : <b>Jusqu'a l'ete [<i>kayitz</i>],</b> ou : <b>Jusqu'a ce que ce soit l'ete,</b> le vœu reste en vigueur <b>jusqu'a ce que les gens commencent a apporter</b> des fruits <b>dans</b> leurs maisons <b>dans des paniers.</b> S'il a dit : <b>Jusqu'a ce que l'ete soit passe,</b> le vœu reste en vigueur <b>jusqu'a ce que</b> le peuple <b>mette de cote [<i>yakpilu</i>] les couteaux</b> [<b><i>hamaktzuot</i></b> avec lesquels les figues sont coupees apres avoir ete recoltees, et les remette dans leur lieu de stockage.
+
+### Partie 7
+<strong>GEMARA :</strong> Le Sage <b>a enseigne :</b> Le <b>panier</b> dont <b>ils ont parle</b> dans la mishna est <b>un panier de figues, et non un panier de raisins,</b> qui sont recoltes plus tard que les figues. Il <b>est enseigne</b> dans une <i>baraita</i> : <b>Celui qui fait vœu</b> que les <b>produits de l'ete [<i>kayitz</i>]</b> lui soient interdits <b>est interdit</b> de participer <b>uniquement</b> aux <b>figues,</b> car la recolte des figues est appelee <i>kayitz</i>. <b>Rabban Shimon ben Gamliel dit : Le raisin est inclus</b> dans la categorie des produits d'ete, avec <b>les figues.</b>
+
+### Partie 8
+La Gemara demande : <b>Quelle est la raison de la premiere <i>tanna</i>?</b> La Gemara repond : Il <b>soutient</b> que puisque <b>les figues sont cueillies [<i>mikkatzetzan</i>] a la main,</b> alors que <b>les raisins ne sont pas cueillis a la main</b> mais avec des outils, ce sont uniquement les figues qui sont considerees comme des produits d'ete [<i>kayitz</i>]. A l'inverse, <b>Rabban Shimon ben Gamliel soutient</b> que les raisins aussi, lorsqu'ils sont</b> suffisamment <b>murs, sont cueillis a la main.</b> Par consequent, ils peuvent etre consideres comme des produits d'ete egalement.
+
+### Partie 9
+§ La mishna indique que si l'on dit : <b>Jusqu'a ce que l'ete soit passe,</b> alors le vœu reste en vigueur <b>jusqu'a ce que</b> les gens <b>mettent de cote les couteaux</b> utilises pour couper les figues. Il a ete <b>enseigne :</b> Cela signifie <b>jusqu'a ce que la plupart</b> des gens <b>mettent de cote</b> leurs <b>couteaux,</b> meme s'il y a encore quelques individus qui ne l'ont pas encore fait.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

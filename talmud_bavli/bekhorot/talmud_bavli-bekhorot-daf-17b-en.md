@@ -1,0 +1,27 @@
+
+### Part 1
+<b>And</b> when he slaughters the animal he is <b>obligated to</b> have <b>the gifts</b> of the priesthood taken from it, i.e., the gifts that one is required to give a priest from a non-sacred animal: The foreleg, the jaw, and the maw. <b>And Rabbi Yosei deems</b> him <b>exempt</b> from giving those gifts. If <b>one of</b> the two born together <b>died, Rabbi Tarfon says:</b> The priest and the owner <b>divide</b> the remaining lamb. <b>Rabbi Akiva says:</b> Since there is uncertainty to whom it belongs, it remains in the possession of the owner, as <b>the burden of proof rests upon the claimant.</b> If <b>a male and a female</b> offspring were born together, everyone agrees that <b>the priest has nothing here.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The mishna teaches that the Rabbis disagree with Rabbi Yosei HaGelili, maintaining that it is impossible for the time of twins’ births to coincide precisely. <b>They said in the school of Rabbi Yannai: According to Rabbi Yosei HaGelili, we heard</b> in the mishna <b>that he says:</b> It is <b>possible</b> for two events that are <b>in the hands of Heaven to coincide precisely, and all the more so</b> it is clear that it is possible for two events that are <b>in human hands</b> to coincide precisely, as they are intended to be simultaneous. <b>But</b> according to <b>the Rabbis,</b> evidently they maintain that it is <b>impossible</b> for two matters that are <b>in the hands of Heaven to coincide precisely,</b> but with regard to events that are <b>in human hands, what</b> is their opinion?
+
+### Part 3
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a mishna (<i>Middot</i> 3:1): <b>A red line encircled</b> the altar <b>in the middle, to separate between the blood</b> that must be presented on <b>the upper</b> part of the altar <b>and the blood</b> that must be presented on <b>the lower</b> section of the altar. <b>And if you say</b> that it is <b>impossible</b> for two matters that are <b>in human hands to coincide precisely,</b> i.e., that people cannot measure the precise midpoint of an area, then that line will not be precisely in the middle, which means that there will be <b>times when</b> the priest <b>puts</b> blood meant for the <b>upper</b> part of the altar upon the <b>lower</b> section, <b>and</b> blood meant for the <b>lower</b> section <b>above.</b> The Gemara rejects this proof: In <b>that</b> case, <b>one widens</b> the line <b>a little</b> so that it certainly covers the middle part of the altar.
+
+### Part 4
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof <b>from the measurements of</b> the <b>vessels</b> and <b>from the measurements of</b> the <b>altar</b> of the Temple. Since the Torah gives precise measurements for them, this indicates that it is possible to measure precisely. The Gemara rejects this proof as well: <b>It is different there, as the Merciful One says: Do</b> it, <b>and to whatever extent you can fulfill</b> His directives, this <b>finds favor</b> in His eyes, as the verse states: <b>“All this in writing, as the Lord has made me wise by His hand upon me,</b> even all the works of this pattern” (I Chronicles 28:19).
+
+### Part 5
+<b>Rav Ketina said: Come</b> and <b>hear</b> a different proof from a <i>baraita</i>: An earthenware vessel that became ritually impure can be purified only by being broken. If it is broken in two, the larger piece remains impure while the smaller piece becomes pure. If <b>one divided</b> an impure earthenware oven <b>into two</b> pieces <b>and they are equal</b> in size, <b>both are ritually impure, because</b> it is <b>impossible</b> for the two <b>to coincide precisely,</b> i.e., one cannot measure exactly. <b>Rav Kahana said,</b> in rejection of this proof: <b>An earthenware vessel is different, since it has indentations in it,</b> i.e., the place of the break is uneven and is therefore particularly difficult to measure precisely.
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof from a mishna (<i>Sota</i> 45b): With regard to a case involving the heifer whose neck is broken, if the slain person <b>was found precisely between two towns, the two</b> towns <b>bring two heifers</b> between them; this is <b>the statement of Rabbi Eliezer. What is the reason</b> that each town must bring a heifer?
+
+### Part 7
+Is it <b>not because</b> Rabbi Eliezer <b>holds:</b> With regard to matters that are <b>in human hands,</b> it is <b>possible</b> for two matters <b>to coincide precisely? And</b> Rabbi Eliezer also holds that when the verse states, in the singular: “And it shall be that the town which is <b>nearest</b> to the slain man, even the elders of that town shall take a heifer of the herd” (Deuteronomy 21:3), it is not necessarily referring to only one town, but <b>even to</b> the two <b>nearest</b> towns, if they are equidistant from the corpse. If it were impossible for both towns to be measured as precisely the same distance from the corpse, they would not bring two heifers but one in partnership, stipulating that it belongs to the town that is actually closer.
+
+### Part 8
+The Gemara rejects this: <b>No, Rabbi Eliezer</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -8,9 +8,10 @@ if (!String.prototype.replaceAll) {
     };
 }
 
-glob("./talmud bavli/**", null, function (er, files) {
+glob("../talmud_bavli/**", null, function (er, files) {
     files.forEach((file) => {
         if (!file.includes('-fr.md')) return;
+        console.log("replace in " + file);
         let texte = fs.readFileSync(file, { encoding: 'utf-8' });
         texte = replaceWord(texte);
         fs.writeFileSync(file, texte);
@@ -36,5 +37,18 @@ var list = {
     "Â\"": "\"",
     "á¸¤": "Ḥ",
     "á¸¥": "ḥ",
-    "Â§": "§"
+    "Â§": "§",
+    "Aª": "ê",
+    "a€œ": '"',
+    "a€": '"',
+    '"™a': "â",
+    ' A"': '"',
+    'a¸¥': 'h',
+    'A¸¥': 'H',
+    '"™' : '',
+    'A©': 'é',
+    'A§': '§',
+    'A?': 'è',
+    'a¸¤': 'H',
+    'èternel': 'Eternel'
 };

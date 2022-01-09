@@ -1,0 +1,36 @@
+
+### Part 1
+<b>Rava said: You</b> can <b>even say</b> that the mishna is in accordance with the opinion of <b>the Rabbis,</b> and the reason the animal loses its sanctity is that <b>even when he transfers it to her,</b> he does so <b>for a matter that is necessary for her</b> to bring, but <b>for a matter</b> that <b>is not necessary for her</b> to bring, <b>he does not transfer it to her.</b>
+
+### Part 2
+§ The mishna teaches: <b>If the animal was hers, the sin-offering must</b> be left to <b>die and the burnt-offering is sacrificed.</b> The Gemara asks: <b>She,</b> this married woman, <b>from where</b> does she have <b>her</b> own property? <b>Haven’t you said</b> as a principle that with regard to any item <b>that a woman acquires, her husband</b> automatically <b>acquires</b> it from her? <b>Rav Pappa said:</b> This is referring to a case <b>where she saved it from her dough,</b> i.e., she was able to buy the animal with the money she saved by eating less. And <b>if you wish, say</b> instead <b>that another</b> person <b>transferred</b> the property <b>to her, and</b> he <b>said to her</b> that he is doing so <b>on the condition that your husband has no rights to it.</b> In that case the wife is the exclusive owner of the animal.
+
+### Part 3
+§ The mishna taught that <b>the burnt-offering is sacrificed as a burnt-offering and the peace-offering is sacrificed</b> as a peace-offering. <b>Shmuel said to Avuh bar Ihi: You shall not sit on your feet until you say</b> and explain <b>to me this matter</b> taught in a <i>baraita</i>: <b>And these are</b> the <b>four rams</b> of the nazirite’s offering <b>that do not require bread</b> to be brought with them, in contrast to the usual practice: <b>His, hers, the one</b> brought <b>after death, and the one</b> brought <b>after</b> the nazirite has gained <b>atonement</b> by means of a different offering.
+
+### Part 4
+The Gemara clarifies this statement: <b>Hers,</b> this is <b>that</b> which <b>we</b> just <b>said,</b> the offering of a woman who separated an animal of her own before her husband proceeded to nullify her vow. <b>His, as we learned</b> in a mishna (28b): <b>A man can vow his son to</b> become <b>a nazirite,</b> i.e., he can apply a vow of naziriteship to his minor son, <b>but a woman cannot vow her son to</b> become <b>a nazirite.</b> If the son objects, either of his own initiative or at the behest of others, his father’s vow is canceled. Consequently, if the boy <b>shaved</b> his hair during the period of naziriteship, thereby demonstrating his desire not to be a nazirite, <b>or if relatives shaved him,</b> or even if the minor performed no action at all but simply <b>objected, or if</b> his <b>relatives made him object,</b> his naziriteship is canceled.
+
+### Part 5
+In that case, if <b>he had unallocated funds,</b> which had been consecrated for the child’s offerings but not designated for any particular offering, all the money <b>will be earmarked for</b> communal <b>gift offerings.</b> If he had <b>allocated funds</b> designated for a particular offering, <b>the money for a sin-offering</b> is <b>taken</b> and cast <b>into the Dead Sea; the money for a burnt-offering is brought</b> as <b>a burnt-offering, and</b> one who benefits <b>from it</b> is liable for <b>misuse</b> of consecrated property; and <b>the money for a peace-offering is brought</b> as <b>a peace-offering and it is eaten for one day and does not require bread.</b>
+
+### Part 6
+With regard to a ram <b>that is after</b> its owner’s <b>death, from where do we</b> derive that this offering requires no bread? <b>As it is taught</b> in a mishna (<i>Me’ila</i> 18a): With regard to <b>one who separates money for his naziriteship</b> without specifying an offering, he may <b>not derive benefit</b> from them, <b>but</b> one who benefits <b>from it</b> is <b>not</b> liable for <b>misuse</b> of consecrated property. Why is he not liable to bring an offering for misuse of consecrated property? It is <b>because</b> the money <b>is fit to bring peace-offerings with all of it,</b> and no misuse is effected by deriving benefit from a peace-offering until after its blood has been sprinkled.
+
+### Part 7
+The mishna continues: If the one who set aside the money <b>died and he had unallocated funds, they are</b> all <b>allocated for</b> communal <b>gift</b> offerings. If he left behind <b>allocated funds,</b> with regard to <b>the money for a sin-offering,</b> one must <b>take</b> it and cast it <b>into the Dead Sea;</b> one may <b>not derive benefit</b> from it <b>but</b> one who benefits <b>from it</b> is <b>not</b> liable for <b>misuse</b> of consecrated property. <b>The money for a burnt-offering is brought</b> as <b>a burnt-offering, and</b> one who benefits <b>from it</b> is liable for <b>misuse</b> of consecrated property. <b>The money for a peace-offering is brought</b> as <b>a peace-offering, and it is eaten for one day and does not require bread.</b> This is the case of a ram after its owner’s death that does not require bread.
+
+### Part 8
+As for the ram <b>that is after atonement,</b> whose owner has used a different offering to achieve atonement, the <i>halakha</i> that this offering does not require bread is not taught explicitly. Rather, it <b>is</b> based on <b>logical reasoning: What is the reason</b> that no bread is brought in the case of a ram <b>that is</b> sacrificed <b>after the death</b> of its owner? It is that this offering is <b>not fit for atonement,</b> as no atonement is granted to the dead through offerings. With regard to a ram <b>that is</b> sacrificed <b>after atonement too, it is no</b> longer <b>fit for atonement,</b> as the owner has already gained atonement by means of a different animal.
+
+### Part 9
+The Gemara asks: <b>And is there nothing else?</b> Are there no other instances of a peace-offering of a nazirite that does not require bread, apart from the aforementioned cases? <b>But isn’t there</b> the following <i>halakha</i>: <b>And</b> with regard to <b>all the other peace-offerings of a nazirite that were slaughtered not in accordance with their mitzva,</b> e.g., if the ram was not of the proper age, they are <b>fit</b> offerings and may be eaten, <b>but they do not count toward the owner’s obligation,</b> i.e., he must bring another offering. The <i>baraita</i> continues: <b>And</b> these offerings <b>are eaten for one day,</b> like regular peace-offerings of a nazirite, <b>and they require neither bread nor</b> the <b>foreleg,</b> unlike the peace-offering of a nazirite. This is another example of a nazirite’s peace-offering that does not require bread.
+
+### Part 10
+The Gemara answers: In the above list the <i>tanna</i> <b>includes</b> only offerings that were sacrificed <b>in accordance with their mitzva; he does not include</b> animals that were sacrificed <b>not in accordance with their mitzva.</b>
+
+### Part 11
+§ It was stated above, with regard to one who separated money for his naziriteship and then died, that if <b>he had unallocated funds, they are</b> all <b>allocated for</b> communal <b>gift</b> offerings.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

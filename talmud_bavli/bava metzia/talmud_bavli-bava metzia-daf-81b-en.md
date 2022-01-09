@@ -1,0 +1,45 @@
+
+### Part 1
+<b>Before he came</b> back <b>it was stolen. They came before Rav Pappa,</b> who <b>deemed them liable</b> to pay. <b>The Sages said to Rav Pappa: This is</b> a case of <b>safeguarding with the owners.</b> Rav Pappa <b>was embarrassed. Ultimately it was discovered that at that time</b> the cloak owner <b>was drinking beer</b> and not baking, and therefore this was not a case of safeguarding with the owners.
+
+### Part 2
+The Gemara relates: An incident occurred with <b>these two</b> people <b>who were going on the way, one</b> of whom was <b>tall and one</b> of whom was <b>short. The tall one was riding on a donkey and he had a sheet. The short one was covered with</b> a woolen <b>cloak [<i>sarbela</i>] and was walking on foot. When</b> the short one <b>reached a river, he took his cloak and placed it on the donkey</b> in order to keep the cloak dry, <b>and he took that</b> tall man’s <b>sheet and covered himself with it,</b> and <b>the water washed away his sheet.</b>
+
+### Part 3
+The tall man <b>came</b> for judgment <b>before Rava,</b> who <b>deemed</b> the short man liable to pay for the sheet. <b>The Rabbis said to Rava: Why</b> did you deem him liable to pay? <b>This is</b> a case of <b>borrowing with the owners</b> present. Rava <b>was embarrassed. Ultimately, it was discovered that</b> the short man <b>took</b> the sheet <b>without</b> the tall man’s <b>knowledge and placed it</b> back <b>without his knowledge,</b> and therefore this was not borrowing, but theft.
+
+### Part 4
+The Gemara relates that there was <b>a certain man who rented a donkey to another.</b> The owner <b>said to</b> the renter: <b>Look, do not go on the path of Nehar Pekod, where there is water</b> and the donkey is likely to drown. Instead, <b>go on the path of Neresh, where there is no water.</b> The renter <b>went on the path of Nehar Pekod and the donkey died. When he came</b> back, <b>he said: Yes, I went on the path of Nehar Pekod; but there was no water</b> there, and therefore the donkey’s death was caused by other factors.
+
+### Part 5
+<b>Rava said:</b> The renter’s claim is accepted, due to the reasoning of: <b>Why should he lie?</b> In other words, <b>if</b> this man <b>wanted</b> to lie, <b>he</b> could have <b>told</b> the donkey’s owner: <b>I went on the path of Neresh,</b> as the owner instructed. <b>Abaye said to</b> Rava: <b>We do not say</b> the principle of: <b>Why would I lie, in a place</b> where there are <b>witnesses.</b> Since witnesses can be summoned to establish conclusively whether there was water along the path of Nehar Pekod, the reasoning that the renter could have stated a different claim is not employed.
+
+### Part 6
+§ The mishna teaches that if one says to another: <b>Safeguard</b> my property <b>for me, and</b> the other <b>says to him: Place</b> it <b>before me,</b> the second individual is <b>an unpaid bailee. Rav Huna said:</b> If the second individual <b>said to him: Place</b> it down <b>before yourself, he is neither an unpaid bailee nor a paid bailee,</b> and he has no responsibility at all. <b>A dilemma was raised before</b> the Sages: If he said simply: <b>Place</b> it down, <b>without specifying</b> further, <b>what</b> is the <i>halakha</i>? The Gemara attempts to provide an answer from the mishna. <b>Come</b> and <b>hear:</b> If one says to another: <b>Safeguard</b> my property <b>for me, and</b> the other <b>says to him: Place</b> it <b>before me,</b> the second individual is <b>an unpaid bailee.</b> This indicates that <b>an unspecified</b> statement is <b>nothing.</b>
+
+### Part 7
+The Gemara rejects this inference: <b>On the contrary,</b> one can infer the opposite <b>from</b> that <b>which Rav Huna says:</b> If the second individual said to him: <b>Place</b> it down <b>in front of yourself,</b> it is in this case <b>that he is neither an unpaid bailee nor a paid bailee.</b> This indicates that if he said simply: <b>Place</b> it down, <b>without specifying</b> further, <b>he is an unpaid bailee. Rather, no</b> inference is <b>to be learned from this</b> mishna, as the inferences are contradictory concerning this <i>halakha</i>.
+
+### Part 8
+The Gemara suggests: <b>Let us say</b> that this matter <b>is the subject of</b> a dispute between <b><i>tanna’im</i>,</b> as it was taught in a mishna (<i>Bava Kamma</i> 47b): <b>If one brought</b> his items into the courtyard of another <b>with the permission of the owner of the courtyard</b> and they were damaged there, the owner of the courtyard is <b>liable. Rabbi</b> Yehuda HaNasi <b>says: In all</b> cases <b>he is liable only if the owner</b> of the courtyard explicitly <b>accepts upon himself to safeguard</b> the items. That mishna is apparently referring to one who places his items in a yard without specification, and the <i>tanna’im</i> disagreed on the question of liability; it therefore has a parallel application to the case in this mishna.
+
+### Part 9
+The Gemara refutes this claim. <b>From where</b> do you know that these cases are parallel? <b>Perhaps the Rabbis there say</b> their opinion <b>only in a courtyard,</b> which <b>can be safeguarded, and</b> therefore <b>when</b> the owner of the courtyard allowed the other to bring his items into the courtyard and <b>said to him: Place</b> them in, what he was <b>saying to him</b> was: <b>Place</b> them in so <b>that I can safeguard it for you. But here,</b> in <b>a market,</b> which is a place where goods <b>cannot be safeguarded,</b> he was actually <b>saying to him: Place</b> it down <b>and sit</b> and <b>safeguard it yourself.</b>
+
+### Part 10
+<b>Alternatively,</b> one can say the opposite: Perhaps <b>Rabbi</b> Yehuda HaNasi <b>says</b> his ruling, that the owner of the courtyard is not liable, <b>only there, in his courtyard, as he requires permission from</b> the owner of the courtyard <b>to enter, and when</b> the owner of the courtyard <b>gave him permission to enter,</b> all <b>he said to him</b> was: <b>Sit and safeguard it. But here,</b> in the market, when he said to the owner of the item: Place it down, he was <b>saying to him: Place</b> it down <b>and I will safeguard</b> it <b>for you. As if it enters your mind</b> that he was <b>saying to him: Place</b> it down <b>and sit and safeguard it</b> yourself, <b>does</b> the owner of the item really <b>require permission from him to put</b> an item <b>down</b> in a public place? In light of these suggestions, there is not necessarily a connection between the two <i>mishnayot</i>.
+
+### Part 11
+§ The mishna teaches: <b>One who lent to</b> another based <b>on collateral</b> is <b>a paid bailee</b> for the collateral. The Gemara comments: <b>Let us say that the mishna is not in accordance with</b> the opinion of <b>Rabbi Eliezer. As it is taught</b> in a <i>baraita</i>: With regard to <b>one who lends to another</b> based <b>on collateral and the collateral was lost,</b> the lender <b>take an oath</b> that he was not negligent in his safeguarding, <b>and</b> then <b>he</b> may <b>take his money</b> that he lent him. This is <b>the statement of Rabbi Eliezer,</b> who apparently maintains that the lender took the collateral as proof of the loan, and therefore he is considered an unpaid bailee, who is liable for negligence unless he takes an oath.
+
+### Part 12
+The <i>baraita</i> continues: <b>Rabbi Akiva says</b> that the borrower can <b>say to him: Didn’t you lend to me only</b> based <b>on the collateral?</b> If <b>the collateral is lost, your money is lost.</b> In other words, the collateral was taken as security for the debt. <b>But</b> if <b>he lent him one thousand dinars by means of</b> a promissory <b>note and</b> the borrower <b>left him collateral against</b> the money, <b>everyone agrees</b> that if <b>the collateral is lost, his money is lost.</b> In this case it cannot be claimed that the collateral was held as proof of the debt, as there is a document attesting to the debt. Consequently, it was evidently taken as security corresponding to the loan, which means that if the collateral is lost, the lender loses his money.
+
+### Part 13
+The Gemara refutes this suggestion: <b>Even</b> if <b>you say</b> that the mishna is in accordance with the opinion of <b>Rabbi Eliezer,</b> it is <b>not difficult. Here,</b> the <i>baraita</i> is referring to a case <b>where</b> the lender <b>took his collateral at the time of his loan,</b> and therefore the collateral served as proof of the loan, whereas <b>there,</b> the mishna is referring to a case <b>where</b> the lender <b>took his collateral</b> later, <b>not at the time of his loan,</b> to enhance his ability to collect payment. In this latter case, the collateral is clearly security for the money, and therefore he is considered a paid bailee.
+
+### Part 14
+The Gemara raises a difficulty: <b>But don’t</b> both <b>this and that,</b> the mishna and the <i>baraita</i>,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+by <b>casting it after the majority of</b> that <b>limb, and</b> the majority of <b>that</b> limb <b>did leave? Or perhaps we</b> determine its status by <b>casting it after</b> the half of <b>the animal,</b> which did not leave the courtyard. The Gemara concludes: The dilemma of Rabbi Elazar <b>shall stand</b> unresolved.
+
+### Part 2
+<b>Rabba bar Rav Huna teaches this</b> dilemma <b>with regard to people: In</b> a case where <b>five people are handling</b> an offering and carrying it out to be burned, <b>and three</b> of them <b>emerged and two of them remained</b> in the Temple courtyard, such that the animal is partly inside and partly outside, <b>what</b> is the <i>halakha</i>? Do <b>we follow the majority of the people handling</b> the offering, who have left the courtyard, <b>or</b> do <b>we follow</b> the <b>animal,</b> the majority of which did not yet leave? The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 3
+<b>Rabbi Elazar raises</b> another <b>dilemma:</b> If <b>bulls and goats that are burned left</b> the Temple courtyard <b>and returned, what is</b> the <i>halakha</i> with regard to the garments of those who carry them inside the courtyard? <b>Do we say: Once they left, they became impure? Or perhaps once they return, they return</b> and do not render garments impure?
+
+### Part 4
+<b>Rabbi Abba bar Memel says: Come</b> and <b>hear</b> the mishna: <b>They would carry</b> the bulls and the goats that are burned suspended <b>on poles.</b> When <b>the first</b> priests, carrying the front of the pole, <b>emerged beyond the wall of the</b> Temple <b>courtyard and the latter</b> ones <b>did not</b> yet <b>emerge, the first</b> ones, <b>who emerged beyond the wall of the</b> Temple <b>courtyard, render</b> their <b>garments impure, but the latter</b> ones <b>do not render</b> their <b>garments impure until they emerge.</b> Rabbi Abba bar Memel explains: <b>And if it enters your mind</b> to say that <b>once they leave, they become impure, these</b> latter ones mentioned in the mishna <b>who are</b> still <b>inside should be rendered impure,</b> since the offering itself has emerged. It follows that if the offering returns, their garments are not rendered impure.
+
+### Part 5
+<b>Ravina said: And can you understand</b> this as a proof? The reason that the latter ones’ garments are not rendered impure is that <b>I require</b> the fulfillment of the verse: “And he who burns them shall wash his garments, and bathe his flesh in water, <b>and afterward he may come into the camp”</b> (Leviticus 16:28). <b>And</b> since they have <b>not</b> yet left the camp, they cannot come into it, and therefore they do not contract the impurity described in the verse.
+
+### Part 6
+The Gemara asks: <b>But</b> if they can become impure only after they leave, <b>how did Rabbi Elazar raise this dilemma?</b> The Gemara answers: He raised the dilemma with regard to a case <b>where they take</b> the offering <b>with staffs [<i>bevakulsei</i>],</b> i.e., after the offering is returned to the Temple courtyard, other people stand outside the courtyard and bring it out again using staffs. Does the offering render these people impure, even though they are standing outside the courtyard? The dilemma of Rabbi Elazar remains unresolved.
+
+### Part 7
+§ <b>The Sages taught</b> in a <i>baraita</i>: With regard to <b>bulls</b> that are burned, <b>and</b> a red <b>heifer, and the scapegoat</b> of the Yom Kippur service, <b>the one who sends</b> them, <b>the one who burns them, and the one who takes them out</b> of the Temple courtyard <b>render</b> their <b>garments impure. And</b> the animals <b>themselves,</b> after they emerge from the Temple courtyard, <b>do not render garments</b> that they touch <b>impure, but they render food and drink</b> that they touch <b>impure.</b> This is <b>the statement of Rabbi Meir. And the Rabbis say:</b> A red <b>heifer and bulls</b> that are burned <b>render food and drink impure,</b> but <b>the scapegoat does not transmit impurity</b> at all, <b>as it is</b> still <b>alive</b> when it leaves the Temple, <b>and a living being does not render food and drink impure.</b>
+
+### Part 8
+The Gemara comments. <b>Granted, according to Rabbi Meir</b> there is no difficulty, as his opinion is <b>in accordance with</b> that <b>which the school of Rabbi Yishmael taught. As the school of Rabbi Yishmael taught</b> in a <i>baraita</i>: The verse states that seeds can contract impurity from the carcass of a creeping animal only if they first come in contact with water: “And if any part of their carcass fall <b>upon any sowing seed</b> which is to be sown, it is pure. But if water be put upon the seed, and any part of their carcass fall thereon, it is impure unto you” (Leviticus 11:37–38).
+
+### Part 9
+<b>Just as</b> is the case for <b>seeds, which,</b> like any food, <b>can never contract impurity severe</b> enough to transmit it to human beings, <b>and they need</b> exposure to liquid to be <b>rendered susceptible</b> to their less severe level of impurity, <b>so too, all</b> items <b>that can never contract impurity severe</b> enough to transmit it to human beings <b>need</b> exposure to liquid to be <b>rendered susceptible</b> to their less severe level of impurity and to transmit it. This serves to <b>exclude the carcass of a kosher bird, which can contract impurity severe</b> enough to be transmitted to a human being who swallows it, <b>and</b> therefore <b>does not need</b> to be <b>rendered susceptible</b> to ritual impurity in order to transmit ritual impurity. According to this <i>baraita</i>, bulls that are burned, a red heifer, and a scapegoat, which are all sources of impurity for human beings, are able to transmit impurity to food and drink on their own, even if they have not been exposed to liquid and have not come in contact with any source of impurity. Rabbi Meir’s opinion accords with this principle.
+
+### Part 10
+<b>But for</b> the opinion of <b>the Rabbis,</b> who disagree with Rabbi Meir and say that a scapegoat does not transmit impurity to food and drink, this is difficult. <b>If they accept</b> that <b>which the school of Rabbi Yishmael taught,</b> then <b>even the scapegoat</b> should transmit impurity to food and drink. And <b>if they do not accept</b> that statement, then <b>from where do we</b> derive that <b>even</b> a red <b>heifer and bulls</b> that are burned transmit impurity to food and drink?
+
+### Part 11
+<b>When Rav Dimi came</b> to Babylonia from Eretz Yisrael he <b>said:</b> The Sages <b>in the West,</b> Eretz Yisrael, <b>say:</b> The opinion of the Rabbis who disagree with Rabbi Meir is that bulls that are burned and a red heifer <b>need</b> to <b>contract impurity from somewhere else</b> to be able to transmit impurity to foods. Since the scapegoat cannot contract impurity, as it is alive, it cannot transmit impurity.
+
+### Part 12
+§ <b>Rabbi Elazar raises a dilemma:</b> With regard to <b>bulls and goats that are burned, what is</b> the <i>halakha</i> as to <b>whether they can transmit impurity to food and drink inside</b> the Temple courtyard, before they leave, <b>as</b> they do <b>outside</b> afterward? Is an offering <b>that has not yet left</b> the Temple <b>considered as</b> if it were an item for which a necessary <b>action has not yet</b> been performed, i.e., because it has not yet become a source of impurity to those who carry it, it also does not transmit impurity to food without being rendered susceptible by coming into contact with a liquid and then coming into contact with a source of impurity? <b>Or</b> perhaps <b>no,</b> because the offering will become a source of impurity to those who carry it once it leaves the Temple courtyard, it already transmits impurity to food without being rendered susceptible.
+
+### Part 13
+<b>After</b> Rabbi Elazar <b>raised the dilemma, he then resolved it:</b> An offering <b>that has not yet left is considered as</b> if it were an item for which a necessary <b>action has not yet</b> been performed, and it does not transmit impurity to food without being rendered susceptible.
+
+### Part 14
+§ <b>Rabbi Abba bar Shmuel posed</b> another <b>dilemma to Rabbi Ḥiyya bar Abba:</b> Food transmits impurity to other food or drink only if it is the volume of at least one egg-bulk and it is first rendered susceptible to impurity. The carcass of a kosher bird transmits impurity to a person who swallows it even if it is of the volume of at least one olive-bulk, and even if it has not been rendered susceptible to impurity. <b>According to</b> the opinion of <b>Rabbi Meir,</b> that the carcass of a kosher bird transmits impurity to other food without first being rendered susceptible to impurity, <b>what is</b> the <i>halakha</i> as to the requisite measure? Does <b>the carcass of a kosher bird transmit impurity</b> to food even if it is of the volume of <b>an olive-bulk,</b> as it would to a person?
+
+### Part 15
+The Gemara clarifies: <b>Do not raise the dilemma</b> in a case <b>where</b> the carcass <b>lies on the ground,</b> as in that case it certainly must be of the volume of an egg-bulk, like any other impure food. And <b>do not raise the dilemma</b> in a case <b>where</b> a person <b>holds</b> the bird’s flesh <b>in his mouth,</b> as it may be swallowed and transmit impurity to him even if it is of the volume of only an olive-bulk; in this case it certainly transmits impurity to food in the same measure. <b>When you raise the dilemma,</b> raise it in a case <b>where he holds</b> the bird’s flesh <b>in his hand.</b> When the flesh <b>has not yet been brought close</b> to being swallowed, is it <b>considered</b> to be <b>like</b> an item for which a necessary <b>action has not yet</b> been performed, in which case it is considered a normal food and must be of the volume of an egg-bulk, <b>or</b> perhaps <b>not?</b>
+
+### Part 16
+<b>After</b> Abba bar Shmuel <b>raised the dilemma, he then resolved it:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

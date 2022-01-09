@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Mais en ce qui concerne la progeniture du substitut d'une offrande de culpabilite, ou il n'y a pas de statut d'holocauste pour sa mere,</b> puisque l'animal auquel il a ete substitue etait une offrande de culpabilite, <b>Rabbi Elazar concede que</b> un animal achete <b>avec son argent,</b> recu de la vente de la progeniture, <b>oui,</b> il est sacrifie comme un holocauste, mais la progeniture <b>elle-meme n'est pas sacrifiee</b> comme un holocauste.
+
+### Partie 2
+<b>Abaye a souleve une objection</b> a Rava : <b>Et Rabbi Elazar exige-t-il qu'il y ait un statut d'holocauste pour sa mere,</b> pour que la progeniture soit sacrifiee comme holocauste ? <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Dans le cas de <b>celui qui designe un animal femelle</b> <b>pour son offrande pascale,</b> qui doit etre un male, on laisse l'animal paitre jusqu'a ce qu'il devienne impropre, et il est</b> alors <b>vendu et il apporte une offrande pascale avec</b> l'<b>argent</b> recu pour <b>sa</b> vente. Si l'animal femelle <b>a donne naissance</b> a un male, le rejeton ne peut pas etre sacrifie comme offrande pascale malgre le fait qu'il s'agisse d'un male. On le laisse plutot <b>paitre</b> jusqu'a ce qu'il devienne impropre, et</b> alors <b>on le vend et on apporte une offrande pascale avec</b> l'<b>argent</b> recu de <b>sa</b> vente.
+
+### Partie 3
+Si l'animal <b>est reste</b> sans defaut jusqu'a <b>apres la Paque, on le laisse</b> paitre jusqu'a ce qu'il devienne impropre, et il apporte une offrande de paix avec</b> l'<b>argent</b> recu pour <b>sa</b> vente. Si <b>elle a donne naissance</b> a un male apres Pessah, on laisse aussi la progeniture <b>paturer jusqu'a ce qu'elle devienne impropre, et</b> alors <b>on la vend, et on apporte une offrande de paix avec</b> l'<b>argent</b> recu pour <b>sa</b> vente. <b>Rabbi Elazar</b> n'est pas d'accord dans ce dernier cas et <b>dit : </b> La progeniture <b>elle-meme est sacrifiee comme une offrande de paix.</b>
+
+### Partie 4
+Abaye explique son objection : <b>Mais ici,</b> il s'agit d'un cas <b>ou il n'y a pas de statut d'offrande de paix pour sa mere,</b> car la mere a ete consacree comme offrande pascale, <b>et</b> pourtant <b>Rabbi Elazar dit</b> que la progeniture <b>est sacrifiee</b> comme <b>offrande de paix.</b> Rava <b>dit a</b> Abaye en reponse : <b>Tu dis</b> que cette declaration de <b>Rabbi Elazar</b> concernant une offrande pascale <b>apres Pessah</b> contredit mon explication ? Non ; le statut d'une offrande pascale <b>apres Pessah est different, car un reste d'offrande pascale est lui-meme sacrifie comme offrande de paix.</b> Par consequent, un animal femelle designe comme une offrande pascale a le statut d'une offrande de paix apres Pessah.
+
+### Partie 5
+Abaye a demande a Rava : <b>Si donc,</b> que la raison pour laquelle Rabbi Elazar permet que la progeniture soit sacrifiee est que la mere a egalement le statut d'offrande de paix, <b>laissons</b> Rabbi Elazar <b>etre egalement en desaccord</b> avec les Rabbins <b>dans la premiere clause</b> de la <i>baraita</i>, ou l'animal femelle designe comme offrande pascale a mis bas avant Pessah. Rabbi Elazar doit preciser que cette progeniture elle-meme peut etre apportee comme offrande de paix, car ici aussi la mere a le statut d'offrande de paix, puisqu'une offrande pascale abattue avant Pessah comme offrande de paix est valable. Rava <b>dit a</b> Abaye : <b>Oui,</b> c'est <b>en effet, et ils ne sont pas d'accord</b> dans ce cas egalement.
+
+### Partie 6
+<b>Abaye</b> a suggere une autre explication de l'avis de Rabbi Elazar et <b>a dit :</b> Dans le cas ou l'animal femelle designe comme offrande pascale a mis bas avant Pessah, il n'y a <b>personne</b> qui <b>desapprouve ;</b> au contraire, ils sont tous d'accord pour que la progeniture ne soit pas sacrifiee. <b>Aussi</b> il <b>est appris</b> comme une tradition que <b>a l'endroit ou l'offrande de restes</b> <b>allait, la progeniture allait</b> aussi. Par consequent, <b>apres Pessah, lorsque le reste</b> de l'offrande pascale <b>est sacrifie</b> comme <b>offrande de paix, la progeniture est egalement sacrifiee comme offrande de paix.</b>
+
+### Partie 7
+<b>Mais avant Pessah,</b> lorsque l'offrande pascale n'est pas encore consideree comme un reste, la progeniture est dotee de la meme saintete que la mere. De <b>quelle</b> maniere <b>la mere est-elle consacree ?</b> Elle est consacree <b>pour la valeur d'une offrande pascale,</b> c'est-a-dire pour qu'elle soit vendue et qu'une offrande pascale soit achetee avec le produit de la vente, car l'animal femelle lui-meme ne peut etre sacrifie comme offrande pascale. Si tel est le cas, <b>la progeniture aussi</b> n'est consacree que <b>pour la valeur d'une offrande pascale.</b>
+
+### Partie 8
+<b>Rav Ukva bar Hama souleve une objection</b> a cette explication de Abaye : <b>Et disons-nous</b> que Rabbi Elazar soutient <b>que comme sa mere</b> est consacree uniquement <b>pour la valeur</b> d'une offrande pascale, <b>la progeniture aussi</b> est consacree uniquement <b>pour la valeur</b> d'une offrande pascale ? <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : <b>Celui qui designe un animal femelle</b> <b>comme offrande pascale, on le laisse, ainsi que sa progeniture</b>, paitre jusqu'a ce qu'il devienne impropre, et</b> alors <b>on le vend, et il apporte une offrande pascale avec</b> l'<b>argent</b> recu pour <b>leur</b> vente. <b>Rabbi Elazar dit : </b> La progeniture <b>elle-meme est sacrifiee</b> comme <b>offrande pascale.</b>
+
+### Partie 9
+<b>Mais ici</b> il s'agit d'un cas <b>ou sa mere</b> a ete consacree <b>pour la valeur</b> d'une offrande pascale, <b>et</b> neanmoins <b>Rabbi Elazar dit</b> que la progeniture <b>est elle-meme sacrifiee comme une offrande pascale, et nous n'etablissons pas</b> le statut de la progeniture en fonction de la saintete <b>de la mere.</b>
+
+### Partie 10
+<b>Ravina dit :</b> On peut repondre qu'ici <b>on a affaire</b> a un cas de celui <b>qui designe un animal en gestation,</b> et <b>Rabbi Elazar tient conformement</b> a l'opinion de <b>Rabbi Yohanan, qui a dit</b> a propos de celui qui consacre un animal en gestation dans un but precis, que <b>s'il l'a laisse de cote,</b> c'est-a-dire, designe le fœtus comme ayant une saintete differente, il est <b>sorti</b> de la saintete de la mere et consacre conformement a la saintete designee. La raison en est <b>que le fœtus n'est pas</b> considere comme <b>la cuisse de sa mere,</b> mais que la mere et sa progeniture sont considerees comme deux animaux distincts. Ici aussi, c'est seulement <b>sa mere qui n'est pas sanctifiee avec la saintete inherente</b> d'une offrande pascale, mais seulement pour la valeur d'une offrande pascale, car elle est femelle. <b>Mais</b> la progeniture <b>est consacree</b> comme une offrande pascale.
+
+### Partie 11
+<b>Mar Zutra, fils de Rav Mari, dit a Ravina : Ceci aussi est logique, nous avons affaire</b> a un cas ou il a designe <b>un animal en gestation, a partir</b> du fait <b>que</b> la <i>baraita</i> <b>enseigne : Elle et sa progeniture.</b> Cela indique que la mere et sa progeniture existaient au moment de la consecration. La Guemara commente : <b>Concluez d'ici</b> que cette explication est correcte.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

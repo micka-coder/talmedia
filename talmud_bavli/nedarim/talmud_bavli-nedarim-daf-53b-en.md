@@ -1,0 +1,27 @@
+
+### Part 1
+<b>They taught</b> that if he takes the vow in the Sabbatical Year he is permitted to eat garden vegetables <b>only</b> if he is <b>in a place where</b> people <b>do not bring vegetables from outside</b> of <b>Eretz</b> Yisrael <b>to Eretz</b> Yisrael. <b>However, in a place where</b> people <b>bring vegetables from outside</b> of <b>Eretz</b> Yisrael, where the <i>halakhot</i> of the Sabbatical Year do not apply, <b>to Eretz</b> Yisrael, he is <b>prohibited</b> from eating garden vegetables as well, as they are widely available, and therefore included in the unspecified word vegetable.
+
+### Part 2
+The Gemara comments that this distinction is <b>like</b> a dispute between <b><i>tanna’im</i></b> cited in a <i>baraita</i>: <b>One may not bring vegetables from outside</b> of <b>Eretz</b> Yisrael <b>to Eretz</b> Yisrael. <b>Rabbi Ḥananya ben Gamliel says: One may bring vegetables from outside</b> of <b>Eretz</b> Yisrael <b>to Eretz</b> Yisrael. The Gemara asks: <b>What is the reason of the one who said</b> that <b>one may not bring</b> vegetables from outside of Eretz Yisrael? <b>Rabbi Yirmeya said:</b> It is <b>because a clod</b> of earth might be brought with the vegetables to Eretz Yisrael. Earth from outside of Eretz Yisrael is ritually impure, and bringing it to Eretz Yisrael would spread ritual impurity in the land.
+
+### Part 3
+<strong>MISHNA:</strong> One who vows that <b>cabbage</b> is forbidden <b>to</b> him <b>is prohibited from</b> eating <b><i>ispargus</i>,</b> as that is a type of cabbage. However, one who vows that <b><i>ispargus</i></b> is forbidden <b>to</b> him is <b>permitted to</b> eat <b>cabbage.</b> One who vows that <b>pounded beans</b> are forbidden <b>to</b> him <b>is prohibited from</b> eating pounded bean <b>stew [<i>mikpa</i>]. However, Rabbi Yosei</b> rules that he is <b>permitted</b> to eat it.
+
+### Part 4
+One who vows that <b>pounded beans</b> are forbidden <b>to</b> him is <b>prohibited from</b> eating pounded bean <b>stew. However, Rabbi Yosei</b> rules that he is <b>permitted</b> to eat it. One who vows that pounded bean <b>stew</b> is forbidden <b>to</b> him is <b>permitted to</b> eat <b>pounded beans</b> according to all opinions. One who vows that <b>stew</b> is forbidden <b>to</b> him <b>is prohibited from</b> eating the <b>garlic</b> of the stew. <b>However, Rabbi Yosei</b> rules that he is <b>permitted</b> to eat the garlic. One who vows that <b>garlic</b> is forbidden <b>to</b> him <b>is permitted to</b> eat <b>stew.</b>
+
+### Part 5
+One who vows that <b>lentils</b> are forbidden <b>to</b> him <b>is prohibited from</b> eating <b><i>ashishim</i>,</b> a dish made from lentils. However, <b>Rabbi Yosei permits</b> it. It is agreed by all opinions that one who vows that <b><i>ashishim</i></b> is forbidden <b>to</b> him <b>is permitted to</b> eat <b>lentils.</b>
+
+### Part 6
+If one says: <b><i>Ḥitta</i>,</b> wheat in singular form, or <b><i>ḥittim</i>,</b> wheat in plural form, are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>prohibited from</b> eating wheat, <b>whether</b> as <b>flour or bread.</b> If one says: <b>Pounded bean</b> or <b>pounded beans</b> are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>prohibited from</b> eating <b>them, whether raw or cooked. Rabbi Yehuda says</b> that if one says: <b>Pounded bean or <i>ḥitta</i> is <i>konam</i></b> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>permitted to chew</b> them <b>raw,</b> as that is not the normal way to eat them, and therefore was not included in the intention of the vow.
+
+### Part 7
+<strong>GEMARA:</strong> <b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon ben Gamliel says</b> that if one vows: <b><i>Ḥitta</i></b> is <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> it, he is <b>prohibited from</b> eating <b>baked</b> wheat, i.e., baked wheat bread, <b>but</b> he is <b>permitted to chew</b> wheat grains. If one says: <b><i>Ḥittim</i></b> are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>prohibited from chewing</b> wheat grains <b>but</b> is <b>permitted to bake</b> them, as this term is referring to grains of wheat. If one says: <b><i>Ḥitta</i></b> or <b><i>ḥittin</i></b> are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them,he is <b>prohibited both from chewing</b> wheat grains and <b>from baking</b> wheat bread.
+
+### Part 8
+Similarly, if one says: <b>Pounded bean</b> is <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> it,he is <b>prohibited from cooking</b> pounded bean, i.e., from eating a dish of cooked pounded beans, as that is what the word pounded bean commonly means, <b>but</b> he is <b>permitted to chew</b> raw pounded beans. If one says: <b>Pounded beans</b> are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>prohibited from chewing</b> pounded beans <b>but</b> is <b>permitted to cook</b> them. If one says: <b>Pounded bean</b> or <b>pounded beans</b> are <i>konam</i> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> them, he is <b>prohibited from both cooking and chewing</b> pounded beans.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

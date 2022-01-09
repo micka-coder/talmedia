@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Et Rava a dit : Tout le monde</b> soutient <b>que partout ou l'on dit : Si j'avais su que pere etait parmi vous, j'aurais dit : Untel et untel sont interdits</b> de participer <b>et pere est autorise</b> a le faire, alors <b>tous sont autorises</b> a participer. <b>Ils ne sont en desaccord que</b> dans un cas <b>ou l'on dit : Si j'avais su que pere etait parmi vous, j'aurais dit : Vous etes tous interdits</b> de participer <b>a l'exception de pere.</b>
+
+### Partie 2
+Le raisonnement de la dispute est le suivant : <b>Beit Shammai se tiennent en accord avec</b> l'opinion de <b>Rabbi Meir, qui a dit:</b> Si quelqu'un fait initialement une declaration et fait immediatement apres une declaration contradictoire, <b>tenez</b> lui responsable de la <b>premiere expression.</b> Puisqu'il a initialement dit : Vous etes tous interdits de participation, cette expression est celle qui est effective et ils sont tous interdits de participation. L'ajout des mots : Sauf le pere, est considere comme une clarification de l'expression precedente, indiquant simplement que son pere n'est pas inclus dans l'interdiction.
+
+### Partie 3
+<b>Et</b> par contre, <b>Beit Hillel tiennent conformement</b> a l'opinion de <b>Rabbi Yosei, qui a dit : Une personne est tenue responsable</b> meme <b>pour la conclusion de sa declaration,</b> et la deuxieme formulation est la principale. Par consequent, le fait que l'on ait modifie sa formulation pour exclure son pere de l'interdiction signifie que le vœu est partiellement annule, et un vœu qui est partiellement dissous est dissous completement.
+
+### Partie 4
+<b>Rav Pappa a souleve une objection a Rava</b> a partir de la mishna suivante (66a) : <b>Dans quel cas Rabbi Akiva a-t-il dit</b> que <b>un vœu qui a ete partiellement dissous est dissous completement ?</b> Par exemple, si on dit : Le bien <b>de vous tous est <i>konam</i></b> pour moi, et pour <b>cette</b> raison, <b>je n'en profiterai pas</b>, si le benefice de <b>l'un d'entre eux etait autorise</b> pour quelque raison que ce soit, le benefice de <b>tous est autorise.</b> Cependant, si l'on dit : La propriete <b>de celui-ci et de celui-la</b> est <i>konam</i> pour moi, et pour <b>cette</b> raison <b>je n'en tirerai pas profit</b>, alors si le benefice de <b>le premier</b> <b>etait permis</b> pour quelque raison que ce soit, le benefice de <b>tous</b> d'entre eux <b>est permis,</b> mais si le benefice de <b>le dernier</b> <b>etait permis,</b> le benefice de <b>le dernier</b> seul <b>est permis et</b> le benefice de <b>tous</b> les autres <b>est interdit. </b>
+
+### Partie 5
+Rav Pappa explique son objection : Rabba a declare que lorsqu'on qualifie ses paroles en disant : J'aurais dit que vous etes tous interdits de participer sauf le pere, alors tous sont d'accord pour dire que tout le monde sauf son pere est interdit de le faire, mais que lorsqu'il ajoute a ses paroles en disant : J'aurais dit qu'untel et untel sont interdits de participation et que pere est autorise a le faire, il y a un differend entre Beit Shammai et Beit Hillel. <b>Accorde, selon</b> l'avis de <b>Rabba, il etablit</b> Rabbi Akiva la <b>premiere clause,</b> ou le benefice de tous est permis, comme un cas <b>ou il</b> se retracte et <b>dit : </b> Je voulais dire que la propriete <b>de celui-ci et de celui-la,</b> mais pas celle d'untel, est <i>konam</i> pour moi, ce qui concorde avec l'opinion de Beit Hillel.
+
+### Partie 6
+<b>Et la derniere clause</b> de la mishna, dans laquelle le benefice du dernier seul est permis, mais le benefice de tous les autres reste interdit, est un cas <b>ou il</b> se retracte et <b>dit :</b> Les biens <b>de vous tous</b> sont <i>konam</i> pour moi sauf ceux de l'un d'entre vous. Selon l'avis de Rabba, Beit Shammai et Beit Hillel seraient d'accord pour dire que dans ce cas, celui qui a enonce le vœu est autorise a beneficier uniquement de celui qui est exclu du vœu.
+
+### Partie 7
+<b>Mais selon toi,</b> Rava, qui soutient que s'il a dit : J'aurais dit qu'untel et untel sont interdits de participation et que le pere est autorise a le faire, tous concedent que tout le monde est autorise a participer, et que le litige porte sur le moment ou l'on dit : J'aurais dit que vous etes tous interdits de participation sauf le pere, <b>Accorde, il etablit la premiere clause</b> de la declaration de Rabbi Akiva comme un cas <b>ou il</b> se retracte et <b>dit :</b> Les biens <b>de vous tous</b> sont <i>konam</i> pour moi sauf ceux du pere, et le benefice de tous est permis, conformement a l'opinion de Beit Hillel.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

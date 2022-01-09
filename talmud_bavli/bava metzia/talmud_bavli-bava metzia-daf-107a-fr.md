@@ -1,0 +1,48 @@
+
+### Partie 1
+est <b>lenifiant,</b> car il soutient que les donateurs ne sont pas particuliers a cet egard. Cela montre que Rabban Shimon ben Gamliel n'est pas gene par un changement d'avis si aucun prejudice n'en resulte.
+
+### Partie 2
+<b>Abaye a dit : La raison de Rabban Shimon ben Gamliel</b> est <b>telle que</b> expliquee <b>par le Maitre,</b> Abayeson maitre Rabba, <b>comme le dit le Maitre : Celui</b> pour <b>qui il est preferable de</b> faire pousser des cultures tout en faisant en sorte que <b>sa terre</b> reste aussi fertile que si elle <b>etait en jachere doit planter du ble</b> une <b>annee et de l'orge</b> la <b>annee suivante.</b> En outre, il doit planter une <b>annee dans le sens de la longueur et</b> la <b>annee suivante dans le sens de la largeur.</b> De cette maniere, il empechera le champ d'etre affaibli.
+
+### Partie 3
+La Gemara commente : <b>Et nous avons dit</b> que son utilisation de la terre sans suivre ces prescriptions l'affaiblirait <b>uniquement la ou</b> il ne <b>pas labourer et repeter</b> son labourage, c'est-a-dire, labourer le champ deux fois avant de le reensemencer, <b>mais</b> s'il <b>plante et repete</b> son labour, <b>nous n'avons aucun</b> probleme <b>avec cela.</b> Par consequent, le raisonnement de Rabban Shimon ben Gamliel est qu'un changement de cultures au mauvais moment peut affaiblir le champ.
+
+### Partie 4
+§ La mishna indique que celui qui recoit un champ pour le planter de <b>cereales ne peut pas le planter</b> de <b>legumineuses. Rav Yehuda a enseigne a Ravin</b> que la <i>halakha</i> est que celui qui recoit un champ pour le planter de <b>grains</b> peut <b>le planter</b> de <b>legumineuses.</b> Ravin lui <b>a dit : Mais n'avons-nous pas appris</b> dans la mishna que celui qui recoit un champ pour le planter en <b>grains ne peut pas le planter</b> en <b>legumineuses ? </b> Rav Yehuda lui <b>dit : </b> Ceci n'est <b>pas difficile,</b> car <b>cette</b> <i>halakha</i> <b>est pour nous, </b> les residents de Babylonie, <b>et cette</b> <i>halakha</i> <b>est pour eux, </b> les residents d'Eretz Yisrael. Puisque le type de semence a planter depend de la qualite de la terre, en Eretz Yisrael, ou la terre est faible, on craint que la terre soit affaiblie. Cette preoccupation ne s'applique pas aux champs babyloniens.
+
+### Partie 5
+<b>Rav Yehouda dit a Ravin bar Rav Nahman : Ravin mon frere, ces plants de cresson</b> qui poussent <b>au milieu du lin ne sont pas soumis</b> a l'interdiction de <b>voler,</b> car celui qui les prend desherbe effectivement le champ, et le proprietaire prefere que le cresson ne pousse pas pour ne pas affecter le lin en croissance. Mais si les plantes <b>sont a la limite</b> de l'endroit ou pousse le lin, de sorte que leur maintien a cet endroit n'aurait pas d'impact negatif sur le lin en croissance, <b>elles sont soumises</b> a l'interdiction du <b>vol,</b> car on suppose que le proprietaire a fait pousser les plantes a cet endroit intentionnellement.
+
+### Partie 6
+<b>Et si</b> les plants de cresson etaient suffisamment developpes au point d'etre <b>durcis avec des graines</b> poussant a l'interieur, c'est-a-dire qu'ils etaient pleinement developpes, alors <b>meme</b> s'ils etaient <b>parmi le lin, ils sont soumis</b> a l'interdiction du <b>vol. Quelle en est la raison ? </b> Concernant <b>ce lin <b>auquel</b> ils ont deja <b>cause une perte,</b> ils ont deja <b>cause la perte.</b> Puisque le lin a deja ete endommage, en enlevant maintenant le cresson, il ne fait rien pour ameliorer la recolte et ne fait que prendre quelque chose au proprietaire.
+
+### Partie 7
+Ravin bar Rav Nahman et Rav Yehuda possedaient des champs adjacents, et leurs arbres se penchaient sur les limites. <b>Rav Yehouda dit a Ravin bar Rav Nahman : Ravin mon frere, ceux-la</b> qui sont <b>miens sont a toi, et</b> ceux qui sont <b>tous sont a moi.</b> Ceci parce qu'il <b>est d'usage</b> a l'egard de <b>ceux</b> dont les champs <b>frontieres</b> sur le champ de leurs voisins que concernant <b>un arbre qui penche vers ici,</b> c'est-a-dire, a la propriete de l'un d'eux, son fruit appartient <b>au</b> proprietaire du champ <b>ici,</b> vers lequel il penche, <b>et</b> en ce qui concerne <b>un arbre qui penche vers la,</b> c'est-a-dire de l'autre cote, son fruit appartient <b>au</b> proprietaire du champ <b>la,</b> car les voisins ne savent pas precisement quelle partie du terrain a effectivement donne le fruit.
+
+### Partie 8
+<b>Aussi</b> un differend <b>a ete enonce</b> a ce sujet entre <i>amoraim</i> : En ce qui concerne <b>un arbre qui se trouve a la frontiere</b> entre des champs, <b>Rav dit : Celui</b> qui <b>bascule vers ici,</b> c'est-a-dire vers ce champ, son fruit appartient <b>au</b> proprietaire du champ <b>ici, et celui</b> qui <b>bascule vers la</b> appartient <b>au</b> proprietaire du champ <b>la. Et Shmuel dit :</b> Les proprietaires des deux champs <b>divisent</b> tous les fruits.
+
+### Partie 9
+La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : En ce qui concerne <b>un arbre qui se trouve a la frontiere</b> entre des champs, <b>ils divisent</b> ses fruits. Il s'agit apparemment d'une <b>refutation concluante du Rav.</b> La Gemara repond : <b>Shmuel a interprete</b> la <i>baraita</i> pour qu'elle soit <b>conforme</b> a l'avis <b>de Rav</b> comme se referant a un cas <b>ou</b> l'arbre <b>remplit toute la limite,</b> et par consequent il appartient aux deux.
+
+### Partie 10
+La Gemara demande : <b>Si oui,</b> cela est evident ; <b>Quel est le but <b>de</b> la <i>baraita</i> <b>declarant</b> sa decision ? La Guemara repond : <b>Non,</b> elle est <b>necessaire</b> dans une situation <b>ou ses branches pendent</b> plus <b>d'un cote.</b> La Gemara demande : <b>Mais quand meme, quel est le but <b>de l'enoncer</b> ? La nouveaute de cette <i>halakha</i> reste peu claire. La Guemara explique : Il est necessaire, <b>de ne pas dire que</b> le proprietaire du champ au-dessus duquel pendent les rameaux peut <b>dire au</b> proprietaire de l'autre champ : Laissez-nous <b>diviser</b> le fruit <b>de cette</b> maniere, ou chacun de nous recoit le fruit qui pousse sur son terrain. Le <i>tanna</i> nous <b>enseigne donc que</b> le proprietaire de l'autre champ peut <b>s'adresser a lui : Qu'as-tu vu</b> pour que tu preferes <b>diviser</b> le fruit <b>de cette</b> maniere, basee sur la bissection de l'arbre dans un sens ; <b>divise</b> plutot le fruit <b>de cette</b> maniere, c'est-a-dire basee sur la bissection de l'arbre dans l'autre sens, afin que nous recevions chacun une part egale.
+
+### Partie 11
+§ <b>Rav Yehouda dit a Ravin bar Rav Nahman : Ravin mon frere, n'achete pas une terre qui se trouve pres d'une ville, car Rabbi Abbahou dit</b> que <b>Rav Huna dit</b> que <b>Rav dit :</b> Il est <b>interdit a une personne de se tenir pres du champ d'un autre lorsque son grain mur est debout,</b> c'est-a-dire lorsque son produit est pret a etre recolte, car il pourrait nuire au produit avec le mauvais œil. De meme, un terrain situe a proximite d'une ville peut etre endommage par les habitants de la ville qui l'observent.
+
+### Partie 12
+La Gemara demande : <b>Est-ce le cas ? Mais lorsque Rabbi Abba rencontra des etudiants du Rav</b> il leur <b>dit : Que dit Rav en ce qui concerne</b> le sens de <b>ces versets</b> de benediction : <b>"Bienheureux serez-vous dans la ville, et bienheureux serez-vous dans les champs"</b> (Deuteronome 28:3), et : <b>"Beni serez-vous en entrant, et beni serez-vous en sortant"</b> (Deuteronome 28:6) ?
+
+### Partie 13
+<b>Et ils lui dirent : Voici</b> ce que <b>Rav a dit : "Bienheureux serez-vous dans la ville"</b> signifie <b>que votre maison doit etre adjacente a une synagogue,</b> et la phrase : <b>"Heureux serez-vous dans le champ"</b> signifie <b>que votre propriete doit etre proche de la ville. <b>"Beni sois-tu en entrant"</b> signifie <b>que tu ne trouveras pas ta femme</b> dans un etat ou il est <b>incertain</b> qu'elle ait le statut halakhique d'une <b>femme en periode de menstruation lorsque tu rentres d'un voyage,</b> ce qui la rendrait interdite pour toi. <b>"Heureux serez-vous lorsque vous sortirez"</b> signifie <b>que ceux qui emergeront de vous,</b> c'est-a-dire vos descendants, <b>devront etre comme vous.</b>
+
+### Partie 14
+<b>Et</b> Rabbi Abba <b>leur a dit : Rabbi Yohanan n'a pas dit cela, mais</b> il a interprete le verset comme suit : <b>"Heureux serez-vous dans la ville"</b> signifie <b>qu'il doit y avoir des toilettes pres de votre table, mais</b> il n'a <b>pas</b> fait reference a <b>une synagogue.</b> La Guemara ajoute : <b>Et Rabbi Yohanan</b> se conforme <b>a sa</b> ligne de <b>raisonnement</b> a cet egard, <b>car il dit : Il y a une recompense</b> pour les <b>marches</b> que l'on fait pour atteindre le lieu d'une mitzva, et celui qui vit a cote d'une synagogue n'aura pas l'occasion de gagner cette recompense.
+
+### Partie 15
+La Guemara revient sur l'expose des versets de Rabbi Yohanan : <b>"Heureux serez-vous dans le champ"</b> signifie <b>que votre propriete doit etre</b> divisee en <b>tiers : Un tiers</b> doit etre investi <b>dans les cereales, un tiers dans les olives, et un tiers dans les vignes. "Benis seras-tu quand tu entreras et benis seras-tu quand tu sortiras"</b> signifie <b>que ta sortie du monde doit etre comme ton entree dans le monde : De meme que ton entree dans le monde</b> etait <b>sans peche, de meme ta sortie du monde</b> doit etre <b>sans peche.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

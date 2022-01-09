@@ -1,0 +1,71 @@
+
+### Partie 1
+<b>Elle a merite de preceder</b> la fille cadette de <b>quatre generations a la monarchie du peuple juif.</b> Les descendants de Ruth la Moabite ont regne sur le peuple juif pendant quatre generations : Obed, Yishai, David et Salomon, avant le regne du fils de Salomon, Rehoboam, dont la mere etait Naama l'Ammonite.
+
+### Partie 2
+mishna En ce qui concerne <b>une femme qui a fait vœu d'etre nazirite et a separe ses animaux</b> pour ses offrandes de purete a la fin de son terme, <b>et par la suite son mari a annule son vœu,</b> ce qui signifie qu'elle n'est pas en fait une nazirite, que deviennent ces animaux ? <b>Si l'animal etait a lui, il sortira et paitra parmi</b> le <b>bloc</b> jusqu'a ce qu'il devienne souille, comme les animaux non consacres ordinaires.
+
+### Partie 3
+<b>Et si l'animal etait a elle,</b> des <i>halakhot</i> differentes s'appliquent aux differentes offrandes : <b>L'animal</b> qu'elle a mis de cote comme <b>offrande pour le peche doit</b> etre laisse a <b>mourir</b> en etant enferme dans un endroit clos et prive de nourriture et d'eau, comme cela sera explique dans la Guemara. <b>Et</b> l'animal separe pour <b>un holocauste est sacrifie</b> sur l'autel comme <b>un holocauste,</b> car dans tous les cas on peut apporter un holocauste volontaire. Quant a celui designe pour <b>un sacrifice de paix,</b> il est <b>sacrifie</b> comme un <b>sacrifice de paix volontaire. Et</b> ce sacrifice de paix <b>est consomme pendant</b> seulement <b>un jour,</b> conformement a la <i>halakha</i> du sacrifice de paix du nazirite, malgre le fait que les sacrifices de paix reguliers peuvent etre consommes pendant deux jours. <b>Mais</b> l'offrande <b>ne necessite pas de pain,</b> c'est-a-dire de miches et de galettes, contrairement a celle du nazirite.
+
+### Partie 4
+Si <b>elle avait des fonds non alloues,</b> c'est-a-dire qu'elle avait separe l'argent pour ses offrandes mais n'avait pas precise quelles pieces etaient designees pour quelle offrande, tout l'argent <b>sera affecte aux</b> offrandes communales <b>de dons</b>. Si elle avait <b>attribue des fonds,</b> c'est-a-dire qu'elle avait decide quelles pieces etaient destinees au paiement de chaque offrande, meme si elle n'avait pas encore achete les animaux, <b>l'argent pour le sacrifice pour le peche</b> est <b>pris</b> et jete <b>dans la mer Morte,</b> c'est-a-dire qu'il doit etre detruit, soit en etant jete dans la mer, soit par un autre moyen. On ne peut <b>pas en tirer profit</b>, car il possede une part de saintete, <b>mais</b> on ne fait pas non plus <b>un mauvais usage</b> des biens consacres au Temple <b>avec cet argent.</b> En d'autres termes, si l'on a effectivement tire un benefice de cet argent, on n'est pas tenu d'apporter une offrande pour mauvais usage des biens consacres.
+
+### Partie 5
+En ce qui concerne <b>l'argent pour l'holocauste, un holocauste est apporte</b> avec ces pieces de monnaie, <b>et</b> celui qui en tire <b>avantage</b> est responsable de <b>l'abus</b> de biens consacres, car il est sacre puisqu'il peut etre utilise pour l'achat d'une offrande. De meme, en ce qui concerne <b>l'argent pour un sacrifice de paix, un sacrifice de paix est apporte</b> avec ces pieces, <b>et</b> il <b>est consomme pendant un jour et ne necessite pas de pain.</b>
+
+### Partie 6
+Gemara La Gemara s'interroge : <b>Qui</b> est le <i>tanna</i> qui <b>a enseigne qu'un mari n'est pas redevable</b> a sa femme, c'est-a-dire qu'il n'est pas tenu de lui fournir ses offrandes obligatoires ? Il est evident que le <i>tanna</i> de la mishna soutient que c'est le cas, car il juge que l'animal ne reste pas sacre s'il a appartenu a son mari. <b>Rav Hisda dit : C'est</b> l'avis des <b>Rabbins. Comme, si cela devait vous venir a l'esprit</b> que <b>c'est</b> l'avis de <b>Rabbi Yehuda, pourquoi</b> un animal ayant appartenu au mari <b>devrait-il sortir et paitre parmi</b> le <b>block</b> jusqu'a ce qu'il se ternisse ? Apres tout, le mari est <b>debiteur</b> et tenu <b>de</b> donner a <b>la</b> les offrandes dont elle a besoin, ce qui signifie que sa consecration est valable meme si elle a utilise ses animaux.
+
+### Partie 7
+La Guemara fournit la source de l'opinion de Rabbi Yehuda : <b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : Une personne apporte l'offrande d'un homme riche</b> <b>pour le compte de sa femme.</b> Si une femme est obligee d'apporter une offrande qui est differente selon qu'elle est riche ou pauvre, par exemple l'offrande d'une femme enceinte, alors meme si elle ne possede pas elle-meme assez pour etre consideree comme riche, si son mari peut se le permettre, il doit apporter l'offrande d'une personne riche pour son compte.
+
+### Partie 8
+<b>Et de meme,</b> il apporte <b>toutes ses offrandes qu'elle est obligee</b> d'apporter, meme celles dont l'obligation a precede leur mariage. La raison en est <b>qu'il lui a ecrit</b> dans son contrat de mariage <b>comme ceci :</b> J'accepte sur moi <b>toutes</b> les revendications de <b>garantie que tu as sur moi d'avance.</b> Ces obligations comprennent ses offrandes.
+
+### Partie 9
+<b>Rava dit : On</b> peut <b>meme dire</b> que la mishna est en accord avec l'opinion de <b>Rabbi Yehuda,</b> et neanmoins le mari n'a aucune obligation s'il a annule son vœu. La raison est la suivante : <b>Quand</b> est-il <b>oblige</b> d'apporter <b>ses</b> offrandes ? C'est seulement <b>dans</b> le cas d'une <b>affaire qu'il lui est necessaire</b> d'apporter. Par contre, <b>dans</b> le cas d'une <b>objet qu'il n'est pas necessaire qu'elle</b> apporte, il n'est soumis a <b>aucune</b> telle obligation. Ici aussi, une fois qu'il a annule sa nazireite, elle n'a plus besoin de cette offrande.
+
+### Partie 10
+<b>Certains disent</b> une version differente de cette discussion : <b>Qui</b> est le <i>tanna</i> qui <b>a enseigne</b> que seul un mari qui a annule le vœu de sa femme est dispense de lui fournir ses offrandes ? <b>Rav Hisda a dit</b> que <b>c'est Rabbi Yehuda, et</b> son avis est le suivant : <b>Quand</b> est-il <b>endette</b> pour financer <b>ses</b> offrandes ? C'est <b>dans</b> le cas d'une <b>matiere qui lui est necessaire</b> d'apporter, mais <b>dans</b> le cas d'une <b>matiere qui ne lui est pas necessaire</b> d'apporter, il n'est soumis a <b>aucune</b> telle obligation. <b>Aussi,</b> si cela est conforme a l'avis des <b>rabbins, il n'est pas hypotheque envers elle</b> a cet egard <b>du tout.</b>
+
+### Partie 11
+<b>Au contraire, quelles sont les circonstances</b> dans lesquelles <b>il est oblige de</b> fournir <b>son</b> offrande, selon l'avis des rabbins ? <b>Par exemple, s'il a transfere</b> l'animal <b>en sa</b> possession. <b>Mais</b> dans ce cas, <b>puisqu'il le lui a transfere, il lui appartient,</b> ce qui signifie qu'elle a effectivement separe l'offrande de ses propres biens. La mishna ne peut pas faire reference a cette situation, car l'animal ne revient pas a un etat non sacre dans un cas de ce genre. De toute evidence, la mishna est en accord avec l'opinion de Rabbi Yehuda.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC
+### Partie 1
+<b>Elle a merite de preceder</b> la fille cadette de <b>quatre generations a la monarchie du peuple juif.</b> Les descendants de Ruth la Moabite ont regne sur le peuple juif pendant quatre generations : Obed, Yishai, David et Salomon, avant le regne du fils de Salomon, Rehoboam, dont la mere etait Naama l'Ammonite.
+
+### Partie 2
+mishna En ce qui concerne <b>une femme qui a fait vœu d'etre nazirite et a separe ses animaux</b> pour ses offrandes de purete a la fin de son terme, <b>et par la suite son mari a annule son vœu,</b> ce qui signifie qu'elle n'est pas en fait une nazirite, que deviennent ces animaux ? <b>Si l'animal etait a lui, il sortira et paitra parmi</b> le <b>bloc</b> jusqu'a ce qu'il devienne souille, comme les animaux non consacres ordinaires.
+
+### Partie 3
+<b>Et si l'animal etait a elle,</b> des <i>halakhot</i> differentes s'appliquent aux differentes offrandes : <b>L'animal</b> qu'elle a mis de cote comme <b>offrande pour le peche doit</b> etre laisse a <b>mourir</b> en etant enferme dans un endroit clos et prive de nourriture et d'eau, comme cela sera explique dans la Guemara. <b>Et</b> l'animal separe pour <b>un holocauste est sacrifie</b> sur l'autel comme <b>un holocauste,</b> car dans tous les cas on peut apporter un holocauste volontaire. Quant a celui designe pour <b>un sacrifice de paix,</b> il est <b>sacrifie</b> comme un <b>sacrifice de paix volontaire. Et</b> ce sacrifice de paix <b>est consomme pendant</b> seulement <b>un jour,</b> conformement a la <i>halakha</i> du sacrifice de paix du nazirite, malgre le fait que les sacrifices de paix reguliers peuvent etre consommes pendant deux jours. <b>Mais</b> l'offrande <b>ne necessite pas de pain,</b> c'est-a-dire de miches et de galettes, contrairement a celle du nazirite.
+
+### Partie 4
+Si <b>elle avait des fonds non alloues,</b> c'est-a-dire qu'elle avait separe l'argent pour ses offrandes mais n'avait pas precise quelles pieces etaient designees pour quelle offrande, tout l'argent <b>sera affecte aux</b> offrandes communales <b>de dons</b>. Si elle avait <b>attribue des fonds,</b> c'est-a-dire qu'elle avait decide quelles pieces etaient destinees au paiement de chaque offrande, meme si elle n'avait pas encore achete les animaux, <b>l'argent pour le sacrifice pour le peche</b> est <b>pris</b> et jete <b>dans la mer Morte,</b> c'est-a-dire qu'il doit etre detruit, soit en etant jete dans la mer, soit par un autre moyen. On ne peut <b>pas en tirer profit</b>, car il possede une part de saintete, <b>mais</b> on ne fait pas non plus <b>un mauvais usage</b> des biens consacres au Temple <b>avec cet argent.</b> En d'autres termes, si l'on a effectivement tire un benefice de cet argent, on n'est pas tenu d'apporter une offrande pour mauvais usage des biens consacres.
+
+### Partie 5
+En ce qui concerne <b>l'argent pour l'holocauste, un holocauste est apporte</b> avec ces pieces de monnaie, <b>et</b> celui qui en tire <b>avantage</b> est responsable de <b>l'abus</b> de biens consacres, car il est sacre puisqu'il peut etre utilise pour l'achat d'une offrande. De meme, en ce qui concerne <b>l'argent pour un sacrifice de paix, un sacrifice de paix est apporte</b> avec ces pieces, <b>et</b> il <b>est consomme pendant un jour et ne necessite pas de pain.</b>
+
+### Partie 6
+Gemara La Gemara s'interroge : <b>Qui</b> est le <i>tanna</i> qui <b>a enseigne qu'un mari n'est pas redevable</b> a sa femme, c'est-a-dire qu'il n'est pas tenu de lui fournir ses offrandes obligatoires ? Il est evident que le <i>tanna</i> de la mishna soutient que c'est le cas, car il juge que l'animal ne reste pas sacre s'il a appartenu a son mari. <b>Rav Hisda dit : C'est</b> l'avis des <b>Rabbins. Comme, si cela devait vous venir a l'esprit</b> que <b>c'est</b> l'avis de <b>Rabbi Yehuda, pourquoi</b> un animal ayant appartenu au mari <b>devrait-il sortir et paitre parmi</b> le <b>block</b> jusqu'a ce qu'il se ternisse ? Apres tout, le mari est <b>debiteur</b> et tenu <b>de</b> donner a <b>la</b> les offrandes dont elle a besoin, ce qui signifie que sa consecration est valable meme si elle a utilise ses animaux.
+
+### Partie 7
+La Guemara fournit la source de l'opinion de Rabbi Yehuda : <b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : Une personne apporte l'offrande d'un homme riche</b> <b>pour le compte de sa femme.</b> Si une femme est obligee d'apporter une offrande qui est differente selon qu'elle est riche ou pauvre, par exemple l'offrande d'une femme enceinte, alors meme si elle ne possede pas elle-meme assez pour etre consideree comme riche, si son mari peut se le permettre, il doit apporter l'offrande d'une personne riche pour son compte.
+
+### Partie 8
+<b>Et de meme,</b> il apporte <b>toutes ses offrandes qu'elle est obligee</b> d'apporter, meme celles dont l'obligation a precede leur mariage. La raison en est <b>qu'il lui a ecrit</b> dans son contrat de mariage <b>comme ceci :</b> J'accepte sur moi <b>toutes</b> les revendications de <b>garantie que tu as sur moi d'avance.</b> Ces obligations comprennent ses offrandes.
+
+### Partie 9
+<b>Rava dit : On</b> peut <b>meme dire</b> que la mishna est en accord avec l'opinion de <b>Rabbi Yehuda,</b> et neanmoins le mari n'a aucune obligation s'il a annule son vœu. La raison est la suivante : <b>Quand</b> est-il <b>oblige</b> d'apporter <b>ses</b> offrandes ? C'est seulement <b>dans</b> le cas d'une <b>affaire qu'il lui est necessaire</b> d'apporter. Par contre, <b>dans</b> le cas d'une <b>objet qu'il n'est pas necessaire qu'elle</b> apporte, il n'est soumis a <b>aucune</b> telle obligation. Ici aussi, une fois qu'il a annule sa nazireite, elle n'a plus besoin de cette offrande.
+
+### Partie 10
+<b>Certains disent</b> une version differente de cette discussion : <b>Qui</b> est le <i>tanna</i> qui <b>a enseigne</b> que seul un mari qui a annule le vœu de sa femme est dispense de lui fournir ses offrandes ? <b>Rav Hisda a dit</b> que <b>c'est Rabbi Yehuda, et</b> son avis est le suivant : <b>Quand</b> est-il <b>endette</b> pour financer <b>ses</b> offrandes ? C'est <b>dans</b> le cas d'une <b>matiere qui lui est necessaire</b> d'apporter, mais <b>dans</b> le cas d'une <b>matiere qui ne lui est pas necessaire</b> d'apporter, il n'est soumis a <b>aucune</b> telle obligation. <b>Aussi,</b> si cela est conforme a l'avis des <b>rabbins, il n'est pas hypotheque envers elle</b> a cet egard <b>du tout.</b>
+
+### Partie 11
+<b>Au contraire, quelles sont les circonstances</b> dans lesquelles <b>il est oblige de</b> fournir <b>son</b> offrande, selon l'avis des rabbins ? <b>Par exemple, s'il a transfere</b> l'animal <b>en sa</b> possession. <b>Mais</b> dans ce cas, <b>puisqu'il le lui a transfere, il lui appartient,</b> ce qui signifie qu'elle a effectivement separe l'offrande de ses propres biens. La mishna ne peut pas faire reference a cette situation, car l'animal ne revient pas a un etat non sacre dans un cas de ce genre. De toute evidence, la mishna est en accord avec l'opinion de Rabbi Yehuda.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

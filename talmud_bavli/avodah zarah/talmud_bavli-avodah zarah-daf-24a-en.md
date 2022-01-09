@@ -1,0 +1,63 @@
+
+### Part 1
+<b>for six hundred thousand</b> gold dinars’ <b>profit,</b> and <b>Rav Kahana teaches</b> that it was <b>eight hundred thousand</b> dinars’ profit. <b>But the keys</b> to the chest holding the jewels <b>were placed under his father’s head, and he would not disturb him.</b> It is evident from this story that the stones of the ephod may be purchased from gentiles. If so, Rabbi Eliezer’s reasoning cannot be based on Numbers 19:2, as an identical phrase appears in Exodus 25:2, and yet contributions to the Tabernacle may be accepted from gentiles.
+
+### Part 2
+The Gemara answers that the phrase <b>“onyx stones”</b> (Exodus 25:7) <b>concluded</b> discussion of that <b>matter.</b> In other words, almost all the items listed in Exodus, chapter 25, for the contributions to the Tabernacle, are joined by the conjunction “and.” Before the verse mentions the stones for the ephod, it states “onyx stones,” without the conjunction “and.” This omission serves to disconnect these stones from the earlier phrase: “That they take” (Exodus 25:2), which means that the disqualification of items purchased from gentiles for use in the Temple derived from this phrase does not apply to the items listed after that point, including the stones of the ephod. The Gemara asks: <b>But isn’t it</b> subsequently <b>written: “And stones to be set,”</b> by <b>which the verse goes back and combines</b> the list, so that the earlier verse applies once more? Accordingly, it should be prohibited to purchase any of the items listed in the verse from gentiles.
+
+### Part 3
+The Gemara adds: <b>And furthermore, the latter clause teaches: In a subsequent year, a red heifer was born in</b> Dama’s <b>herd</b> and <b>the Sages of Israel approached him,</b> seeking to purchase the heifer. Dama <b>said to them: I know concerning you that if I</b> were to <b>ask from you all the money in the world, you would give</b> it <b>to me. Now I am requesting from you only that</b> amount of <b>money which I lost by</b> refraining from waking <b>my father.</b> This latter clause explicitly states that the Sages intended to purchase a red heifer from a gentile, which contradicts the ruling of Rabbi Eliezer.
+
+### Part 4
+The Gemara answers: <b>There,</b> it was <b>through</b> the agency of <b>Jewish merchants</b> that <b>they purchased</b> the heifer. In other words, Jewish merchants purchased the heifer from Dama ben Netina, after which the Sages acquired the animal from the merchants to be used as a red heifer of purification. In this manner, the animal was purchased for the purpose of an offering from Jews.
+
+### Part 5
+According to Sheila, Rabbi Eliezer’s reason for not allowing a red heifer to be purchased from gentiles is based on a derivation from a verse rather than a concern that a person may have engaged in bestiality with it. The Gemara therefore asks: <b>And is Rabbi Eliezer not concerned about</b> the possibility that a person has engaged in <b>bestiality</b> with the animal?
+
+### Part 6
+The Gemara elaborates: <b>But isn’t it taught</b> in a <i>baraita</i> that the Rabbis who hold that the heifer may be purchased from a gentile <b>said to Rabbi Eliezer:</b> There was <b>an incident</b> in which Jews <b>purchased</b> the red heifer <b>from a gentile, and Dama was his name. And some say Remetz was his name.</b> In response to this claim, <b>Rabbi Eliezer said to them:</b> Can one bring <b>a proof from there?</b> Certainly not, as <b>Jews were safeguarding it from the time that it was born,</b> to ensure that a person did not engage in bestiality with it. Contrary to the opinion of Sheila, it is evident from here that Rabbi Eliezer was concerned about this possibility. The Gemara explains that <b>Rabbi Eliezer has two</b> requirements: The <b>purchase</b> of the red heifer must be from a Jew, <b>and he is also concerned about</b> the possibility that a person had engaged in <b>bestiality</b> with the animal.
+
+### Part 7
+The Gemara analyzes Rabbi Eliezer’s statement. <b>The Master said: Jews were safeguarding</b> the red heifer purchased from Dama ben Netina <b>from the time that it was born.</b> The Gemara asks: <b>And let us be concerned</b> that <b>perhaps</b> gentiles <b>engaged in bestiality with the mother while she was pregnant, as Rava says: The offspring of</b> an animal that <b>gored</b> and killed a Jew <b>is forbidden</b> as an offering, as it is considered as if <b>she and her offspring</b> together <b>gored.</b> And similarly, <b>the offspring of</b> an animal that was the object of <b>bestiality is forbidden</b> because it is considered as if a person <b>engaged in bestiality</b> with both <b>her and her offspring.</b> The Gemara answers: <b>Say</b> that Rabbi Eliezer meant that <b>Jews were safeguarding it from the time that it was conceived.</b>
+
+### Part 8
+The Gemara asks: <b>And let us be concerned</b> that <b>perhaps they engaged in bestiality with the mother from the outset,</b> i.e., before conception, <b>as we learned</b> in a mishna (<i>Temura</i> 30b): With regard to <b>all</b> animals <b>that are disqualified for the altar,</b> such as one that was the object of bestiality, sacrifice of <b>their offspring is permitted; and it is taught with regard to</b> this case that <b>Rabbi Eliezer prohibits</b> their offspring from being sacrificed on the altar. If this is the case, Rabbi Eliezer should agree that there is a concern that a person might have engaged in bestiality with the heifer’s mother at some point before its birth.
+
+### Part 9
+The Gemara clarifies the difficulty: Granted, <b>this works out well according to</b> the opinion of <b>Rava, as Rava says</b> that <b>Rav Naḥman says:</b> The <b>dispute</b> between the Rabbis and Rabbi Eliezer applies only <b>when</b> a person <b>engaged in bestiality</b> with the animals <b>when they were consecrated</b> and then they conceived, as Rabbi Eliezer holds that in that case the offspring are disqualified from being sacrificed as offerings; <b>but</b> if someone engaged in bestiality with the animals <b>when they were non-sacred, everyone agrees</b> that the offspring <b>are permitted.</b> Accordingly, it needs to be ascertained only that no one engaged in bestiality with the mother after she was consecrated.
+
+### Part 10
+<b>But according to</b> the opinion of <b>Rav Huna bar Ḥinnana,</b> who says that <b>Rav Naḥman says:</b> The <b>dispute</b> applies only <b>when</b> a person <b>engaged in bestiality</b> with the animals <b>when they were non-sacred, but</b> if someone engaged in bestiality with them <b>when they were consecrated, everyone agrees</b> that the offspring <b>are forbidden, what is there to say?</b> According to this opinion, Rabbi Eliezer should be concerned that a person might have engaged in bestiality with the animal prior to conception.
+
+### Part 11
+The Gemara answers: <b>Say</b> that <b>Jews were safeguarding it</b> as well, i.e., <b>the mother</b> of the red heifer, <b>from the time that it was conceived.</b> The Gemara challenges: <b>And let us be concerned</b> that <b>perhaps</b> someone <b>engaged in bestiality with the mother of the</b> heifer’s <b>mother.</b> The Gemara responds: <b>We are not concerned</b> to <b>such an extent.</b>
+
+### Part 12
+The Gemara discusses the revised version of Rabbi Eliezer’s statement. <b>The Master said</b> above: <b>Jews were safeguarding</b> the red heifer <b>from the time that it was conceived.</b> The Gemara asks: <b>From where do we know</b> that the mother would give birth to a red heifer, which would warrant safeguarding her? <b>Rav Kahana says: They would pass a red cup before her while the male mounts her,</b> an act that would cause the offspring to be red.
+
+### Part 13
+The Gemara asks: <b>If that is so,</b> and the birth of a red heifer can be induced in such a simple manner, <b>why is its price so expensive?</b> The Gemara answers: <b>Since two hairs</b> of a different color <b>render</b> the red heifer <b>unfit,</b> this method is unreliable. The Gemara asks another question: <b>And what is different</b> about <b>these</b> cows? Why did the Jews resort to purchasing the red heifer from a gentile when they could have induced its conception themselves? <b>Rav Kahana said:</b> Dama ben Netina owned a herd of cattle that <b>were known</b> to beget red heifers, and therefore they preferred to employ the aforementioned method with one of his cows.
+
+### Part 14
+§ The Gemara relates: <b>Rabbi Ami and Rabbi Yitzḥak Nappaḥa were sitting on Rabbi Yitzḥak Nappaḥa’s porch. One of them began and said</b> that the <i>baraita</i> teaches: <b>And, similarly, Rabbi Eliezer would disqualify all offerings</b> purchased from gentiles, due to the concern that a person had engaged in bestiality with the animals.
+
+### Part 15
+<b>The other</b> one <b>of them began and said: What did Rabbi Eliezer’s colleagues respond to him?</b> They quoted the verse: <b>“All flocks of Kedar shall be gathered together unto you,</b> the rams of Nebaioth shall minister unto you; they shall come up with acceptance upon My altar” (Isaiah 60:7). This verse clearly indicates that offerings will be accepted from gentiles. <b>Rabbi Eliezer said to them: In the future all</b> gentiles will <b>be calculating converts,</b> i.e., those who converted for personal gain, and as converts, they will not be suspected of engaging in bestiality.
+
+### Part 16
+<b>Rav Yosef said: What is the verse</b> from which it is derived that they will convert? The verse states: <b>“For then will I turn to the peoples a pure language,</b> that they may all call upon the name of the Lord, to serve Him with one consent” (Zephaniah 3:9). This verse indicates that all nations will worship God. <b>Abaye said to him: But perhaps it is</b> only <b>from idol worship that they</b> will <b>withdraw,</b> while they will still engage in forbidden sexual relations, including bestiality? <b>Rav Yosef said to him:</b> That cannot be, as <b>it is written</b> at the conclusion of the verse: <b>“To serve Him with one consent,”</b> which indicates that the gentiles will accept all of God’s mitzvot.
+
+### Part 17
+The Gemara comments: <b>Rav Pappa teaches</b> that discussion in <b>this</b> manner, <b>but Rav Zevid teaches</b> it in <b>this</b> manner: <b>Both</b> Rabbi Ami and Rabbi Yitzḥak Nappaḥa <b>said: And similarly, Rabbi Eliezer would disqualify all offerings</b> taken from gentiles. <b>And both said: What did Rabbi Eliezer’s colleagues respond to him?</b> They quoted the verse: <b>“All flocks of Kedar shall be gathered together unto you,</b> the rams of Nebaioth shall minister unto you; they shall come up with acceptance upon My altar.” <b>Rabbi Eliezer said</b> to them: <b>All</b> gentiles <b>will be calculating converts in the future.</b>
+
+### Part 18
+Rabbi Eliezer continues: <b>And what is the verse</b> from which it is derived that they will convert? It is from the verse: <b>“For then will I turn to the peoples a pure language, that they may all call upon the name of the Lord,</b> to serve him with one consent.” <b>Rav Yosef objects to this</b> proof: <b>But perhaps it is</b> only <b>from idol worship that they</b> will <b>withdraw? Abaye said to him:</b> That cannot be, as <b>it is written: “To serve Him with one consent.”</b>
+
+### Part 19
+§ The Gemara cites a series of verses which present difficulties with regard to the claim that animals purchased from gentiles may not be used as offerings. The Gemara <b>raises an objection</b> from the following verse: <b>“And Moses said: You must also give into our hand offerings and burnt-offerings</b> that we may sacrifice unto the Lord our God” (Exodus 10:25). Moses demanded that Pharaoh provide the Jews with offerings, despite the fact that he was a gentile. The Gemara explains: The <i>halakha</i> <b>prior to the giving of the Torah</b> was <b>different,</b> as at that time it was acceptable to use animals taken from gentiles as offerings.
+
+### Part 20
+The Gemara raises another objection: <b>Come</b> and <b>hear</b> a proof from the verse: <b>“And Yitro, Moses’ father-in-law, took a burnt-offering and offerings for God”</b> (Exodus 18:12). Yitro was not a Jew, and yet he brought offerings for God. The Gemara answers: The incident with <b>Yitro was also prior to the giving of the Torah.</b> The Gemara observes: Granted, <b>this works out well according to the one who says</b> that the incident with <b>Yitro was prior to the giving of the Torah. But according to the one who says</b> that
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

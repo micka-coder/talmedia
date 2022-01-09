@@ -1,0 +1,54 @@
+
+### Part 1
+<b>“Yet</b> the firstborn of man you shall redeem”; the addition of the word “yet” serves to <b>differentiate</b> and teach that there is a firstborn who is not redeemed, namely, one that was ravaged. A child with two heads is like one that was ravaged, as he will certainly not live. The Gemara answers: <b>Here it is different, as the Merciful One makes</b> the redemption of the firstborn <b>dependent on</b> his <b>skull,</b> as it is stated: “You shall take five shekels apiece, by the skull” (Numbers 3:47), which indicates that there is a case in which a firstborn with more than one skull must be redeemed.
+
+### Part 2
+The Gemara returns to its discussion of the <i>baraita</i>: <b>The Master says: “On your arm”; this</b> is the <b>bicep.</b> The term <i>yad</i> can mean either hand or arm. Therefore, the Gemara asks: <b>From where do we</b> derive this? <b>As the Sages taught: “On your arm [<i>yadkha</i>]”; this</b> is the <b>upper</b> part <b>of the arm. Do you say</b> that <b>this</b> is the <b>upper</b> part <b>of the arm, or</b> is it <b>only literally on your</b> actual <b>hand,</b> i.e., on the palm of the hand? <b>The Torah says: Don phylacteries on the <i>yad</i> and don phylacteries on the head; just as there,</b> with regard to the head, it means <b>on</b> the <b>upper</b> part <b>of the head,</b> as will be explained, <b>so too here,</b> it means <b>on</b> the <b>upper</b> part <b>of the arm.</b>
+
+### Part 3
+<b>Rabbi Eliezer says:</b> This proof is <b>not necessary, as</b> the verse <b>states: “And it shall be for a sign for you</b> upon your arm” (Exodus 13:9), which teaches: It shall be <b>a sign for you, but not a sign for others,</b> i.e., one must don the phylacteries of the arm in a place where they are not seen by others. This is the arm, which is usually covered, whereas the hand is usually visible. <b>Rabbi Yitzḥak says:</b> This proof is <b>not necessary, as</b> the verse <b>states: “Therefore you shall place these words in your heart</b> and in your soul, <b>and you shall bind them”</b> (Deuteronomy 11:18). This teaches <b>that placing</b> the words, i.e., donning the phylacteries, <b>shall be opposite the heart,</b> on the bicep.
+
+### Part 4
+The Gemara relates: <b>Rabbi Ḥiyya and Rav Aḥa, son of Rav Avya,</b> would <b>direct</b> the placement of his phylacteries of the arm <b>and don</b> them <b>opposite his heart. Rav Ashi was sitting before Ameimar,</b> and <b>there was a cut in</b> the sleeve covering Ameimar’s <b>arm, and</b> as a result his <b>phylacteries were visible,</b> as they were not covered by a garment. Rav Ashi <b>said to</b> Ameimar: <b>Doesn’t the Master hold</b> that the phylacteries shall be <b>a sign for you but not a sign for others?</b> Ameimar <b>said to him:</b> This does not mean that phylacteries must be hidden; rather, this <b>was stated</b> in order to teach that they must be donned <b>in a place</b> that is <b>a sign for you,</b> i.e., the bicep, which is generally not seen, but it does not matter if in practice the phylacteries are visible.
+
+### Part 5
+With regard to the statement of the <i>baraita</i> that the phylacteries of the head are donned on the <b>upper</b> part <b>of the head,</b> the Gemara asks: <b>From where do we</b> derive this? <b>As the Sages taught: “Between your eyes”</b> (Exodus 13:9); <b>this</b> is the <b>upper</b> part <b>of the head. Do you say</b> that <b>this</b> is the <b>upper</b> part <b>of the head, or is it only literally between your eyes? It is stated here: “Between your eyes,” and it is stated there:</b> “You shall not cut yourselves, <b>nor make any baldness between your eyes for the dead”</b> (Deuteronomy 14:1), <b>Just as there,</b> the phrase “between your eyes” is referring to a place <b>on</b> the <b>upper</b> part <b>of the head,</b> as that is <b>a place where</b> one can <b>render</b> himself <b>bald</b> by removing his hair, <b>so too,</b> the place where phylacteries are donned is <b>on</b> the <b>upper</b> part <b>of the head, a place where</b> one can <b>render</b> himself <b>bald.</b>
+
+### Part 6
+<b>Rabbi Yehuda says:</b> This proof is <b>not necessary,</b> as <b>the Torah says: Don phylacteries on the arm</b> and <b>don phylacteries on the head. Just as there,</b> with regard to the phylacteries of the arm, it is referring <b>to a place which is fit to become ritually impure with</b> only <b>one</b> type of leprous <b>mark,</b> that of the skin, <b>so too here,</b> with regard to the phylacteries of the head, it is referring <b>to a place which is fit to become ritually impure with</b> only <b>one</b> type of leprous <b>mark,</b> that of a place of hair (see Leviticus 13:29–37).
+
+### Part 7
+Rabbi Yehuda continues: This serves <b>to exclude</b> the area which is literally <b>“between your eyes,” as there is flesh and</b> the <b>hair</b> of the eyebrows present there, and therefore <b>there is</b> a possibility of leprosy through the growth of <b>a white hair,</b> which is impure according to the <i>halakhot</i> of leprosy of the skin (see Leviticus 13:3), <b>and there is also</b> a possibility of leprosy through the growth of <b>a yellow hair,</b> which is impure according to the <i>halakhot</i> of leprosy of the head or the beard (see Leviticus 13:30).
+
+### Part 8
+§ The mishna teaches: With regard to the <b>four ritual fringes</b> on a garment, the absence of <b>each prevents fulfillment of the mitzva with the others, as the four of them</b> constitute <b>one mitzva.</b> Rabbi Yishmael says: The four of them are four discrete mitzvot, and the absence of one does not prevent fulfillment of the rest. The Gemara asks: <b>What</b> is the difference <b>between</b> the opinions of the first <i>tanna</i> and Rabbi Yishmael? <b>Rav Yosef said:</b> The difference <b>between</b> their opinions <b>is</b> with regard to a linen <b>sheet with</b> woolen <b>ritual fringes</b> that has fewer than four ritual fringes. The first <i>tanna</i> maintains that since one is not performing a mitzva, he may not wrap himself in the sheet, due to the prohibition of diverse kinds, i.e., the prohibition against wearing clothing made from a mixture of wool and linen threads. Conversely, Rabbi Yishmael permits one to wrap himself in it, as each ritual fringe is a separate mitzva, and the mitzva of ritual fringes overrides the prohibition against wearing diverse kinds.
+
+### Part 9
+<b>Rava bar Ahina said:</b> The difference <b>between</b> their opinions <b>is</b> with regard to <b>a cloak with five</b> corners. It is derived that a cloak of this kind requires ritual fringes (see 43b), but it is unclear whether ritual fringes must be placed on each corner. If each fringe is a discrete mitzva, then the obligation applies to the fifth corner as well, but if it is one mitzva then it applies only to four of the corners of this garment.
+
+### Part 10
+<b>Ravina said:</b> The difference <b>between</b> their opinions <b>is</b> with regard to the opinion <b>of Rav Huna, as Rav Huna says: One who goes out</b> unwittingly to the public domain <b>on Shabbat with</b> a four-cornered <b>cloak that does not have</b> all of <b>the requisite ritual fringes</b> attached to its corners is <b>liable</b> to bring <b>a sin offering,</b> because the remaining fringes are not an integral part of the garment. Since they do not enable the wearer to fulfill the mitzva, they are considered a burden, which may not be carried into the public domain on Shabbat. The first <i>tanna</i> agrees with this ruling, whereas Rabbi Yishmael maintains that since each corner with ritual fringes is the fulfillment of a mitzva, one is not liable to bring a sin offering due to carrying on Shabbat for wearing it into the public domain.
+
+### Part 11
+<b>Rav Sheisha, son of Rav Idi, said: One who cuts</b> the corner of <b>his garmenthas not done anything</b> of consequence with regard to exempting the garment from the obligation of ritual fringes, as <b>he has rendered it a cloak with five</b> corners, to which the obligation of ritual fringes applies.
+
+### Part 12
+<b>Rav Mesharshiyya</b> similarly <b>says: One who ties his garment has not done anything</b> of consequence with regard to exempting the garment from the obligation of ritual fringes. <b>What is the reason? It is considered as though</b> the garment is <b>untied,</b> since the knot can be loosened at any time. <b>And we learned likewise</b> in a mishna (<i>Kelim</i> 26:4): <b>All bound</b> leather <b>jugs,</b> i.e., those whose bottoms are not sewn but tied, <b>are ritually pure,</b> i.e., they are not susceptible to ritual impurity. This is because they are not considered receptacles, as these knots will be untied, <b>except for</b> leather <b>jugs of Arabs,</b> who would tie them with a permanent knot.
+
+### Part 13
+<b>Rav Dimi of Neharde’a</b> similarly <b>says: One who sews his garment,</b> i.e., he folded over a long garment and sewed the edges together, <b>has not done anything</b> of consequence with regard to the obligation of ritual fringes, and he must place ritual fringes on the original corners. The reason is that <b>if it is so that he does not need</b> the folded part, which is why he is sewing it, <b>let him cut</b> it <b>and throw it</b> away.
+
+### Part 14
+§ The mishna teaches that <b>Rabbi Yishmael says: The four of them are four</b> discrete <b>mitzvot,</b> and the absence of one does not prevent fulfillment of the rest. <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yishmael.</b> The Gemara states: <b>But the <i>halakha</i></b> is <b>not in accordance with his</b> opinion.
+
+### Part 15
+The Gemara relates: <b>Ravina was walking behind Mar bar Rav Ashi on the Shabbat of the Festival</b> when <b>the corner</b> of Mar bar Rav Ashi’s garment <b>on</b> which <b>his ritual fringes</b> were hanging <b>tore, and</b> yet Ravina <b>did not say anything to him. When he arrived at</b> Mar bar Rav Ashi’s <b>house,</b> Ravina <b>said to him: Back there,</b> along the way, the corner <b>tore.</b> Mar bar Rav Ashi <b>said to him: If you would have told me</b> then, <b>I would have thrown off</b> the garment <b>there,</b> as once one of the ritual fringes is torn no mitzva is performed with the rest, and it is prohibited to walk in the public domain on Shabbat wearing such a garment. This is in accordance with the opinion of the first <i>tanna</i>, who disagrees with the ruling of Rabbi Yishmael.
+
+### Part 16
+The Gemara raises a difficulty: <b>But didn’t the Master say: Great is human dignity, as it overrides a prohibition in the Torah?</b> This includes the prohibition against carrying on Shabbat in the public domain. That being the case, why would he remove his garment in public?
+
+### Part 17
+The Gemara answers: <b>Rav bar Shabba interpreted</b> that statement <b>before Rav Kahana:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

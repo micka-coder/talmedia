@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>et</b> l'offrande est donc <b>disqualifiee.</b> La Gemara conclut : <b>La refutation de</b> l'opinion de <b>Reish Lakish</b> est en effet <b>une refutation concluante.</b>
+
+### Partie 2
+§ La mishna enseigne : <b>Et</b> en ce qui concerne <b>tous ceux-la,</b> dans un cas <b>ou ils ont recueilli</b> le sang avec l'intention de l'offrir au-dela de son temps designe ou en dehors de sa zone designee, s'il y a du sang de l'ame qui reste dans l'animal, le pretre apte au service du Temple doit a nouveau recueillir le sang et l'asperger sur l'autel. <b>Reish Lakish a demande a Rabbi Yohanan :</b> Si un individu <b>inapte</b> au service du Temple a presente le sang, <b>qu'elle est</b> la <i>halakha</i> par rapport au sang qui reste dans l'animal ? Est-ce que le fait qu'il ait presente une partie du sang rend le reste du sang <b>un reste</b> et n'est plus apte a etre presente, ou peut-etre que la presentation effectuee par un individu inapte n'est pas consideree comme valide, et donc un pretre apte au service du Temple peut presenter le sang a nouveau ?
+
+### Partie 3
+Rabbi Yohanan <b>lui dit :</b> Une presentation non valide <b>ne rend pas</b> le reste du sang <b>un reste a moins</b> qu'il ne s'agisse d'un cas ou un pretre apte au service du Temple a presente le sang avec l'intention de l'offrir <b>au-dela de son</b> <b>temps designe ou en dehors de sa</b> <b>zone designee, car</b> ce n'est que dans ce cas que la presentation du sang <b>effectue une acceptation,</b> c'est-a-dire, elle est consideree comme une presentation valide, <b>en ce qui concerne</b> le fait de rendre l'offrande <b><i>piggul</i>,</b> c'est-a-dire une offrande qui a ete sacrifiee avec l'intention de la consommer apres son temps designe.
+
+### Partie 4
+<b>Rav Zevid enseigne</b> la question de <b>cette</b> maniere : <b>Reish Lakish a demande a Rabbi Yohanan :</b> Concernant <b>une coupe</b> de sang <b>disqualifie</b>, par exemple celle qui a ete sortie de la cour du Temple et qui a ete ensuite neanmoins presentee sur l'autel, <b>qu'elle est</b> la <i>halakha</i> en ce qui concerne le fait qu'elle <b>rend</b> le sang restant <b>un reste</b> et impropre a etre presente ? Rabbi Yohanan <b>lui a dit : </b> Dans le cas d'un individu <b>inapte</b> qui a <b>lui-meme</b> presente le sang, <b>qu'est-ce que tu tiens</b> pour la <i>halakha</i> ? <b>Si un individu inapte</b> qui a presente le sang <b>rend</b> le sang restant <b>un reste,</b> alors <b>une coupe</b> de sang <b>disqualifie</b> devrait <b>aussi rendre</b> le sang restant <b>un reste. Si un individu inapte</b> ne rend pas</b> le sang restant <b>un reste,</b> alors <b>une coupe</b> de sang <b>disqualifie</b> ne doit <b>pas non plus rendre</b> le sang restant <b>un reste.</b>
+
+### Partie 5
+<b>Rav Yirmeya de Difti enseigne</b> la discussion <b>de cette</b> maniere : <b>Abaye a demande a Rabba :</b> Si le sang a ete recueilli dans plus d'une coupe et que la presentation du sang sur les coins de l'autel a ete effectuee avec une <b>coupe, quelle est</b> la <i>halakha</i> ? La coupe <b>rend-elle</b> le sang de <b>l'autre</b> coupe <b>rejete,</b> et il est donc verse dans le drain qui traverse la cour du Temple, <b>ou</b> le rend-il <b>un reste,</b> qui est verse sur la base de l'autel ?
+
+### Partie 6
+Rabba <b>lui dit :</b> Il s'agit d'une <b>contestation entre Rabbi Elazar, fils de Rabbi Shimon, et les rabbins. Comme il est enseigne</b> dans une <i>baraita</i> a propos du reste du sang de l'offrande externe pour le peche : Dans le verset <b>superieur,</b> traitant de l'offrande pour le peche d'un <i>Nasi</i>, <b>il est dit :</b> "Et <b>il en versera le sang</b> au pied de l'autel de l'holocauste" (Levitique 4:25). Dans le verset <b>ci-dessous,</b> traitant de l'offrande pour le peche d'un individu, <b>il est dit : "Et il en versera tout le sang</b> au pied de l'autel" (Levitique 4:30).
+
+### Partie 7
+La divergence entre le premier verset et le deuxieme verset, qui contient le terme supplementaire "tout", s'explique comme suit : <b>D'ou vient</b> <b>par rapport a une offrande pour le peche dont</b> le pretre <b>collecte son sang dans quatre coupes et place un placement</b> de sang sur l'autel <b>de cette</b> coupe, <b>et un placement</b> de sang <b>de cette</b> coupe, et de meme pour les quatre coins de l'autel, <b>que</b> le reste du sang de <b>tous</b> les gobelets <b>sont verses</b> sur la base</b> de l'autel ? <b>Le verset dit : "Et il en versera tout le sang."</b>
+
+### Partie 8
+On <b>pourrait</b> penser que si <b>il mettait quatre placements</b> du sang de l'offrande pour le peche <b>a partir d'une coupe,</b> le sang dans <b>tout</b> le reste des coupes <b>devrait etre verse sur la base</b> de l'autel. Par consequent, <b>le verset dit : "Et</b> il versera <b>son sang,"</b> et non tout son sang. <b>Comment cela ? </b> Seul <b>ce sang</b> dans la coupe dont le sang a ete correctement presente sur l'autel <b>est verse sur la base</b> de l'autel, <b>et</b> le reste des coupes de sang sont rejetees et <b>sont versees dans le</b> drain de la cour du Temple.</b>
+
+### Partie 9
+La <i>baraita</i> continue : <b>Rabbi Elazar, fils de Rabbi Shimon, dit : D'ou</b> provient-il <b>en ce qui concerne une offrande pour le peche dont</b> le pretre <b>collecte son sang dans quatre coupes et</b> ensuite <b>quatre placements a partir d'une coupe, que</b> le sang de <b>toutes</b> les coupes <b>se deverse</b> <b>sur la base</b> de l'autel ? <b>Le verset dit : "Et il en versera tout le sang."</b> La Gemara demande : <b>Mais n'est-il pas ecrit : "Et il versera son sang,"</b> ce qui indique que tout le sang n'est pas verse ? <b>Rav Ashi repond : Ce</b> verset sert a <b>exclure</b> le <b>reste qui se trouve dans la gorge de</b> l'<b>animal</b> qui n'a jamais ete recueilli dans un recipient pour etre presente, qui n'est pas verse sur la base de l'autel mais dans le drain de la cour du Temple.
+
+### Partie 10
+§ La mishna discute de trois cas similaires : Si <b>le pretre <b>apte</b> au service du Temple <b>collectait</b> le sang dans un recipient <b>et donnait</b> le recipient <b>a une personne inapte</b>, cette personne devait le rendre au pretre apte. Si le pretre a recueilli le sang dans un recipient dans sa main droite et l'a deplace dans sa main gauche, il doit le rendre a sa main droite. Si le pretre a recueilli le sang dans un recipient sacre et l'a place dans un recipient non sacre, il doit rendre le sang a un recipient sacre.
+
+### Partie 11
+La Guemara commente : <b>Et</b> il etait <b>necessaire</b> de mentionner tous ces cas, <b>comme si</b> la mishna ne nous avait <b>appris</b> que le cas ou il a donne le sang a <b>un individu inapte</b>, <b>je dirais : Que</b> fait le terme : <b>Infirme,</b> signifie ? Il signifie <b>un pretre impur</b>, qui n'est pas completement inapte, <b>car</b> il <b>est apte au service communautaire</b> dans le Temple lorsque les pretres ou toute la communaute sont impurs, et c'est pourquoi le sang n'est pas disqualifie ; <b>mais</b> si le pretre a deplace le sang sur sa <b>main gauche</b>, qui ne peut en aucun cas etre utilisee pour accomplir le rite de collecte et de transport du sang, il n'est <b>plus valide</b>.
+
+### Partie 12
+<b>Et si</b> la mishna <b>nous avait appris</b> seulement en ce qui concerne le deplacement du sang vers sa <b>main gauche</b> qu'il devait le ramener a sa main droite et le presenter, on supposerait que la raison est <b>que</b> la main gauche <b>a une validite a Yom Kippour, </b> puisque le Grand Pretre porte la cuillere d'encens avec sa main gauche, <b>mais</b> s'il a verse le sang dans <b>un recipient non sacre</b> alors il n'est <b>pas</b> valide.
+
+### Partie 13
+<b>Et si</b> la mishna <b>nous avait appris</b> uniquement en ce qui concerne <b>un recipient non sacre</b> que le sang n'est pas disqualifie, on pourrait suggerer que c'est peut-etre <b>parce que</b> les recipients <b>sont aptes a etre consacres, mais</b> en ce qui concerne <b>ceux-ci,</b> c'est-a-dire, un individu inapte et la main gauche, qui n'ont aucune possibilite de devenir aptes au service, <b>disent</b> que le sang ne <b>pas</b> reste valide. Il est donc <b>necessaire</b> que tous les cas soient mentionnes.
+
+### Partie 14
+§ La Guemara s'interroge sur la <i>halakha</i> actuelle : <b>Mais que</b> le sang <b>soit</b> considere comme <b>rejete</b> lorsqu'il est place dans la main de l'individu inapte, la main gauche, ou le recipient non sacre. <b>Ravina dit a Rav Ashi : C'est</b> ce que <b>Rav Yirmeya de Difti dit au nom de Rava :</b> Conformement a <b>l'avis de qui</b> <b>cette mishna</b> ? <b>C'est</b> conformement a l'avis de <b>Hanan l'Egyptien, qui ne</b> souscrit pas a la <i>halakha</i> du <b>rejet,</b> mais considere qu'un sacrifice rejete temporairement n'est pas rejete entierement.
+
+### Partie 15
+Ceci est <b>tel qu'il est enseigne</b> dans un <i>baraita</i> : <b>A¸¤anan l'egyptien dit : </b> Dans le cas ou le bouc emissaire de Yom Kippour a ete perdu, <b>meme</b> si le <b>sang</b> de son partenaire qui est sacrifie a Dieu a deja ete recueilli <b>dans la coupe,</b> le sang n'est pas rejete, mais plutot <b>il apporte</b> un autre bouc emissaire comme <b>son homologue, et le jumelle avec</b> le bouc qui a deja ete egorge, et le sang est asperge.
+
+### Partie 16
+<b>Rav Ashi dit</b> qu'il y a une autre explication a la mishna : <b>Tout ce qui est en son pouvoir</b> de rectifier <b>n'est pas</b> considere comme <b>rejete,</b> comme dans ces cas ou il peut simplement remettre le sang a sa place.
+
+### Partie 17
+<b>Rav Shaya a dit :</b> Il <b>est raisonnable</b> d'expliquer la mishna <b>conformement</b> a l'avis <b>du Rav Ashi,</b> car <b>qui as-tu entendu qui accepte</b> le raisonnement du <b>rejet ?</b> C'est <b>Rabbi Yehuda, comme nous l'avons appris</b> dans une mishna (<i>Yoma</i> 62a) : <b>Et en outre, Rabbi Yehuda dit :</b> Si <b>le sang</b> du bouc sacrifie a Dieu <b>s'est repandu</b> de la coupe avant qu'elle ne soit aspergee, <b>le bouc emissaire</b> est laisse a <b>mourir.</b> De meme, si <b>le bouc emissaire est mort, le sang</b> du bouc sacrifie a Dieu <b>doit etre repandu,</b> et deux autres boucs sont utilises. Par consequent, Rabbi Yehuda soutient que le bouc emissaire, ou dans le cas contraire, le sang du bouc qui sera sacrifie a Dieu, est totalement rejete.
+
+### Partie 18
+<b>Et</b> pourtant, <b>on a entendu dire que</b> Rabbi Yehouda <b>dit : Tout ce qui est en son pouvoir</b> de rectifier <b>n'est pas rejete. Comme il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b> Un pretre <b>remplissait une coupe avec le sang des</b> nombreuses offrandes pascales apportees ce jour-la qui etait maintenant <b>melange</b> ensemble sur le sol <b>et</b> puis <b>l'aspergeait</b> d'une <b>seule aspersion contre la base</b> de l'autel. <b>Conclure de</b> la <i>baraita</i> que Rabbi Yehouda considere que bien que le sang se soit repandu a l'origine de la coupe, <b>tout ce qui est en son pouvoir</b> de rectifier <b>n'est pas rejete.</b> La Guemara affirme : <b>Concluez-en</b> qu'il en est ainsi.
+
+### Partie 19
+§ La Gemara traite de <b>la</b> matiere <b>elle-meme : Elle est enseignee</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b> Un pretre <b>remplissait une coupe avec le sang mele,</b> de sorte <b>que si l'une</b> des coupes contenant le sang recueilli d'une des offrandes pascales <b>se renversait,</b> il serait <b>trouve que cette</b> coupe du sang mele qui a ete aspergee <b>rendrait</b> le sacrifice <b>valide.</b> Les rabbins <b>ont dit a Rabbi Yehuda : Mais</b> le sang melange <b>n'a pas ete recueilli dans un recipient.</b> La Guemara demande : <D'ou les rabbins savent-ils que le sang n'a pas ete recueilli dans un recipient ? Peut-etre a-t-il ete recueilli et s'est-il repandu. <b>Au contraire,</b> c'est ce qu'ils disent : <b>Peut-etre qu'il n'a pas ete recueilli dans un recipient.</b> Rabbi Yehuda <b>leur a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

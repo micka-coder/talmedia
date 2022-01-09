@@ -1,0 +1,45 @@
+
+### Partie 1
+<strong>GEMARA:</strong> La mishna cite un differend entre Rabbi Yosei et les rabbins, dans lequel Rabbi Yosei a statue que celui qui fait vœu que le lait lui soit interdit est interdit de manger du petit-lait egalement. <b>Et</b> la Guemara <b>souleve une contradiction</b> entre cette decision et l'opinion de Rabbi Yosei dans une mishna ulterieure (53b) : Celui qui jure que les <b>lentilles sont</b> interdites <b>a</b> lui <b>est interdit de</b> manger des <b><i>ashishim</i>,</b> un plat a base de lentilles. <Mais Rabbi Yosei le permet. Apparemment, Rabbi Yosei considere que si l'aliment interdit change de forme, il est permis, contrairement a son avis concernant le petit-lait.
+
+### Partie 2
+La Guemara repond : Ceci n'est <b>pas difficile.</b> L'avis de ce <b>Sage</b> est <b>conforme</b> a la coutume de <b>son lieu, et</b> l'avis de ce <b>Sage conformement</b> a la coutume de <b>son lieu. Dans la localite des rabbins, on appelle le lait, lait et le petit-lait, petit-lait,</b> alors que <b>dans la localite de Rabbi Yosei, on appelle aussi le petit-lait, lait petit-lait.</b> Dans cette derniere localite, le mot lait est utilise en reference au petit-lait, et donc celui qui y fait vœu que le lait lui soit interdit est interdit de manger du petit-lait egalement.
+
+### Partie 3
+<b>Il est enseigne</b> dans un <i>baraita</i> : <b>Quelqu'un qui fait vœu</b> que le <b>lait</b> lui est interdit <b>pour</b> lui <b>est autorise</b> a prendre du <b>petit-lait. </b> Celui qui jure que le <b>whey</b> lui est interdit, <b>est autorise a</b> prendre du <b>lait.</b> Celui qui jure que le <b>lait</b> lui est interdit, <b>est autorise a</b> manger du <b>fromage. </b> Celui qui jure que le <b>fromage</b> lui est interdit <b>est autorise a</b> prendre du <b>lait.</b> Celui qui jure que le <b>gravy</b> lui est interdit <b>est autorise a</b> manger des <b>sediments de viande bouillie. </b> Celui qui fait vœu que les <b>sediments de viande bouillie</b> lui soient interdits <b>est autorise a</b> manger du <b>gravy. Si</b> on <b>dit : Cette</b> piece de <b>viande m'est</b> par la presente interdite <b>a moi,</b> il lui est <b>interdit</b> de la manger, ainsi que de son jus et de ses sediments.</b>
+
+### Partie 4
+<b>Quelqu'un qui fait des vœux : Le vin</b> m'est interdit <b>pour</b>, <b>est autorise</b> a manger <b>un plat cuisine qui a la saveur du vin.</b> Toutefois, s'il <b>dit : Ce vin est <i>konam</i></b> pour moi, et pour <b>cette</b> raison, <b>je ne le gouterai pas</b>, <b>et</b> le vin <b>est tombe dans un plat cuisine, si</b> le plat <b>contient</b> une quantite de vin <b>qui lui donne</b> une <b>saveur, il est interdit.</b>
+
+### Partie 5
+<strong>MISHNA :</strong> <b>Celui qui fait le vœu</b> que les <b>raisins</b> lui sont interdits <b>pour</b> est <b>permis de</b> prendre du <b>vin.</b> Celui qui fait le vœu que les <b>olives</b> lui sont interdites <b>pour</b> est <b>permis de</b> prendre de l'<b>huile.</b> Toutefois, si l'on <b>dit : Les olives et les raisins sont <i>konam</i></b> pour moi, et pour <b>cette</b> raison, <b>je ne gouterai pas ces articles</b>, il est <b>interdit</b> de les gouter ainsi que</b> le vin et l'huile <b>qui en sortent.</b>
+
+### Partie 6
+<strong>GEMARA : </strong>En ce qui concerne la derniere decision de la mishna, celui qui fait le vœu : Les olives et les raisins sont <i>konam</i> pour moi, et pour cette raison je ne gouterai pas ces articles, il lui est interdit de les gouter ainsi que le vin et l'huile qui en sortent, <b>Rami bar Hama souleve un dilemme :</b> Est-ce <b>specifique</b> parce qu'il a dit <b>ceux-ci,</b> c'est-a-dire qu'il a fait reference a des olives ou des raisins specifiques, <b>ou</b> est-ce <b>specifique</b> parce qu'il a dit : Pour <b>cette</b> raison <b>je ne gouterai pas,</b> c'est-a-dire qu'il a fait reference non pas a la consommation mais a la degustation ?
+
+### Partie 7
+La Guemara demande : <b>S'il vous vient a l'esprit</b> que c'est <b>specifiquement</b> parce qu'il a dit <b>ceci, pourquoi ai-je</b> besoin de la phrase : <b>que je ne gouterai pas ?</b> La Gemara repond : <b>Cela nous enseigne que meme</b> si <b>il a dit : Que je ne gouterai pas,</b> seulement <b>si il a dit</b> le mot <b>ceux-ci lui est interdit</b> de gouter l'huile ou le vin, <b>mais si</b> il n'a <b>pas</b> dit le mot ceux-ci, il n'est <b>pas</b> interdit de le faire. Le dilemme ne peut donc pas etre resolu par deduction a partir de la formulation du vœu dans la mishna.
+
+### Partie 8
+<b>Rava dit : Venez</b> et <b>entendre</b> une resolution de ce dilemme a partir de la mishna ci-dessous (57a) : Si l'on dit : <b>Ce produit est <i>konam</i> sur moi,</b> ou : <b>C'est <i>konam</i> a ma bouche, il lui est interdit</b> de manger <b>leurs remplacements et</b> tout ce qui <b>en sort.</b> On peut en deduire que les liquides <b>qui en sortent sont permis.</b> De toute evidence, se referer a des produits specifiques ne suffit pas a rendre leur jus interdit. Plutot, l'interdiction dans la mishna est apparemment due a la phrase : Et pour cette raison, je ne gouterai pas.
+
+### Partie 9
+La Gemara refute cette preuve : <b>Le meme</b> jugement que dans la mishna ci-dessus <b>est vrai</b> en ce qui concerne les liquides <b>qui emergent</b> du produit ; ils <b>sont eux aussi interdits. Et</b> la raison pour laquelle cette decision n'est pas mentionnee ici est qu'il est preferable que</b> cette mishna <b>nous enseigne que leurs remplacements sont</b> interdits tout <b>comme ce qui en sort</b> est interdit, bien qu'ils ne contiennent aucune substance de l'element interdit.
+
+### Partie 10
+<b>Venez</b> et <b>entendez</b> une resolution de la suite de cette meme mishna : Si l'on dit : Ce produit est <i>konam</i> sur moi, et pour <b>cette</b> raison <b>je ne les mangerai pas</b>, ou : Ce produit est <i>konam</i> sur moi, et pour <b>cette</b> raison <b>je ne les gouterai pas</b>, il <b>est permis</b> de manger <b>leurs remplacants et</b> tout ce qui <b>pousse d'eux.</b> On peut en deduire que les liquides <b>qui en sortent sont interdits.</b> La Gemara rejette cet argument : <b>Puisque</b> cette mishna <b>n'a pas cite</b> les liquides <b>qui en sortent dans la premiere clause, elle n'a pas non plus cite</b> les liquides <b>qui en sortent dans la derniere clause.</b> On ne peut donc pas en deduire que les liquides qui sortent des produits sont interdits.
+
+### Partie 11
+<b>Venez</b> et <b>entendez</b> une resolution de la mishna precedente (52a) : <b>Rabbi Yehuda a dit :</b> Il y eut <b>un incident ou Rabbi Tarfon m'a interdit de</b> manger meme des <b>œufs qui etaient cuits avec</b> de la viande. Les rabbins lui ont <b>dit : En effet, </b> mais <b>quand</b> est-ce la <i>halakha</i> ? <b>Quand</b> celui qui a fait le vœu <b>a dit : Cette viande est</b> interdite <b>a moi,</b> en se referant a un morceau de viande specifique. Ceci est <b>parce que</b> dans le cas de <b>celui qui fait vœu</b> que <b>quelque chose</b> lui est interdit <b>pour</b> lui <b>et que cela se melange a un autre</b> aliment, <b>et</b> ce dernier aliment <b>contient</b> une quantite de l'aliment interdit <b>qui lui donne</b> une <b>saveur,</b> c'est-a-dire, l'aliment interdit peut etre goute dans l'aliment permis, le melange <b>est interdit.</b> Evidemment, la reference a un aliment specifique fait que ce qui en emerge est egalement interdit.
+
+### Partie 12
+La Guemara reinterprete le dilemme : <b>Nous ne soulevons pas le dilemme en ce qui concerne</b> le mot <b>ceux-ci, car</b> l'utilisation <b>specifique de ce</b> mot est certainement suffisante pour rendre interdits les liquides qui sortent du produit. <b>Lorsque nous soulevons un dilemme, c'est a propos</b> de la phrase : <b>Je n'y gouterai pas</b>. Cette phrase est-elle mentionnee par la mishna <b>specifiquement</b> pour enseigner que l'utiliser dans un vœu suffit a rendre le jus interdit, <b>ou</b> est-elle <b>non</b> mentionnee <b>specifiquement</b> dans ce but ?
+
+### Partie 13
+<b>Venez</b> et <b>entendez</b> une resolution de la mishna ci-dessus (51b) : Si l'on fait le vœu de : <b>Le poisson</b> ou les <b>poissons</b> sont <i>konam</i> pour moi, et pour <b>cette</b> raison, <b>je n'y gouterai pas</b>, <b>il est interdit a l'egard</b> de tous les <b>poissons, qu'ils soient gros</b> poissons <b>ou petits,</b> et <b>qu'ils soient crus ou cuits. Mais il lui est permis</b> de gouter des <b>sardines hachees et</b> de gouter de la <b>saumure de poisson.</b> La phrase : je ne gouterai pas, ne rend manifestement pas la saumure de poisson interdite, bien qu'elle contienne ce qui a emerge du poisson.
+
+### Partie 14
+<b>Rava a dit : Mais</b> il n'y a pas de preuve d'ici, car la saumure de poisson qui est permise par la mishna peut se referer a la saumure qui <b>deja emerge d'eux</b> avant la prise du vœu, et n'etait donc pas incluse dans les poissons qui ont ete rendus interdits par le vœu. Le dilemme n'est donc pas resolu.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

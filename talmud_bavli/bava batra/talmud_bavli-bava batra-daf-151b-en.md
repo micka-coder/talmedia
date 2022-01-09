@@ -1,0 +1,39 @@
+
+### Part 1
+<b>and when she recovered she would retract</b> her gift. On <b>one occasion she was sick. She sent</b> a message <b>to</b> Rav Dimi: <b>Come</b> and <b>acquire</b> my property. <b>He sent</b> a message back to her: <b>I do not want</b> to come. <b>She sent</b> a message <b>to him: Come</b> and <b>acquire</b> my property in <b>any manner that you want. He went and reserved</b> for her part of the orchard, <b>and</b> he <b>acquired</b> the rest of the property <b>from her</b> with an act of acquisition. <b>When she recovered she retracted</b> the gift.
+
+### Part 2
+<b>She came before Rav Naḥman</b> to reclaim it. Rav Naḥman <b>sent</b> a message <b>to</b> Rav Dimi: <b>Come</b> to court. Rav Dimi <b>did not come. He said: What</b> reason is there for <b>me to come? Didn’t</b> I <b>reserve</b> part of the property for her, <b>and</b> I <b>acquired</b> the rest of the property <b>from her</b> with an act of acquisition? Therefore, the acquisition is complete. Rav Naḥman <b>sent</b> a message <b>to</b> Rav Dimi: <b>If you do not come, I will strike you with a thorn [<i>besileva</i>] that does not draw blood,</b> i.e., I will excommunicate you.
+
+### Part 3
+Inquiring into the matter, Rav Naḥman <b>said to the witnesses: How did the act</b> of transferring the property take place? The witnesses <b>said to</b> Rav Naḥman: <b>This</b> is what <b>she said: Woe, that woman is dying!</b> Rav Naḥman <b>said to them: If so, this is</b> a case of <b>one who issues directives</b> with regard to his property <b>due to</b> his expectation of his imminent <b>death. And one who issues directives due to</b> his expectation of his imminent <b>death can retract</b> his gift even if he did not transfer all of his property, as he evidently granted the gift only because he expected to die.
+
+### Part 4
+§ <b>It was stated</b> that the <i>amora’im</i> disagreed with regard to <b>a gift of a person on his deathbed</b> that includes only <b>a part</b> of his property. <b>The Sages said</b> the following <b>before Rava in the name of Mar Zutra, son of Rav Naḥman, who said</b> it <b>in the name of Rav Naḥman: This</b> type of gift <b>is</b> in some respects <b>like the gift of a healthy person, and</b> in other respects <b>it is like</b> the <b>gift of a person on his deathbed. It is like the gift of a healthy person, as, if he recovers he cannot retract</b> it, as stated in the mishna. <b>And it is like</b> the <b>gift of a person on his deathbed, as it does not require</b> an act of <b>acquisition.</b> Rather, it is acquired by means of verbal instruction alone.
+
+### Part 5
+<b>Rava said to</b> the Sages: <b>Did I not say to you: Do not hang empty pitchers [<i>bukei</i>] upon Rav Naḥman,</b> i.e., do not attribute incorrect statements to him? <b>This is</b> what <b>Rav Naḥman says:</b> A gift of a person on his deathbed that includes only a part of his property <b>is like the gift of a healthy person and requires</b> an act of <b>acquisition.</b> If an act of acquisition is not performed, the acquisition of the gift is not effective even if the owner dies.
+
+### Part 6
+<b>Rava raised an objection to Rav Naḥman</b> from the mishna (146b): If <b>he reserved</b> for himself <b>any amount of land, his gift stands. What, is it not</b> referring even to a case <b>where</b> the gift <b>was not acquired from him</b> by means of an act of acquisition? <b>No,</b> it is referring to a case <b>where</b> the gift <b>was acquired from him</b> by means of an act of acquisition. Rava asks: <b>If that is so, say the last clause</b> of the mishna: If <b>he did not reserve</b> for himself <b>any amount of land,</b> and he recovered, <b>his gift does not stand. And if</b> the mishna is referring to a case <b>where</b> the gift <b>was acquired from him</b> by means of an act of acquisition, <b>why does his gift not stand?</b>
+
+### Part 7
+Rav Naḥman <b>said to</b> Rava: <b>This is</b> what <b>Shmuel says:</b> With regard to <b>a person on his deathbed who wrote</b> a deed granting <b>all of his property to others</b> without reserving anything for himself, <b>even though</b> the gift <b>was acquired from his possession</b> by means of an act of acquisition, if <b>he recovers, he can retract</b> his gift. The reason for this is that <b>it is known that he was issuing directives</b> with regard to his property <b>only due to</b> his expectation of his imminent <b>death.</b>
+
+### Part 8
+<b>Rav Mesharshiyya raised an objection to Rava:</b> There was <b>an incident involving the mother of the sons of Rokhel, who was sick, and she said: My brooch [<i>keveinati</i>] shall be given to my daughter, and it is</b> valued <b>at twelve hundred dinars. And</b> this woman subsequently <b>died, and</b> the Sages <b>upheld her statement</b> even though the gift included only a part of her property and an act of acquisition was not performed. Rava replied: That incident is different, as the case <b>there</b> is referring <b>to one who issues directives due to</b> his expectation of his imminent <b>death.</b>
+
+### Part 9
+<b>Ravina raised an objection to Rava</b> from a mishna (<i>Gittin</i> 13a): In the case of <b>one who says: Give this bill of divorce to my wife, or:</b> Give <b>this bill of manumission to my slave, and</b> then he <b>dies, one should not give it after</b> his <b>death.</b> But if one says: <b>Give one hundred dinars to so-and-so, and</b> then he <b>died, one does give</b> the recipient the money <b>after</b> his <b>death.</b> This indicates that a gift of a person on his deathbed that includes only a part of his property does not require an act of acquisition.
+
+### Part 10
+<b>And from where</b> can one learn <b>that</b> the money <b>was not acquired from him</b> by means of an act of acquisition? This is learned from the fact that this <i>halakha</i> was juxtaposed to the <i>halakha</i> with regard to a bill of divorce, indicating that this case is <b>similar to a bill of divorce. Just as a bill of divorce is not subject to</b> the standard <i>halakhot</i> of an act of acquisition, <b>so too,</b> in <b>this</b> case of the gift of one hundred dinars, the mishna is referring to a case <b>where</b> the money <b>was not acquired from him</b> by means of an act of acquisition. Rava replied: <b>There, too,</b> the mishna is referring <b>to one who issues directives</b> with regard to his property <b>due to</b> his imminent <b>death.</b>
+
+### Part 11
+<b>Rav Huna, son of Rav Yehoshua, said:</b> The gift of <b>one who issues directives</b> with regard to his property <b>due to</b> his expectation of his imminent <b>death generally requires</b> an act of <b>acquisition. And when it is taught</b> in <b>these <i>baraitot</i></b> that an act of acquisition is not required, the <i>baraitot</i> are referring <b>to one who divides all of his property</b> between different recipients, <b>as</b> in <b>that</b> case, the Sages <b>accorded</b> the gift the legal status of <b>a gift of a person on his deathbed.</b>
+
+### Part 12
+The Gemara concludes: <b>And the <i>halakha</i></b> is that <b>a gift of a person on his deathbed</b> that includes only <b>a part</b> of his property <b>requires</b> an act of <b>acquisition;</b> otherwise it is invalid <b>even though he</b> subsequently <b>died,</b> and the gift is inherited by his heirs instead. The gift of <b>one who issues directives</b> with regard to his property <b>due to</b> his expectation of his imminent <b>death does not require</b> an act of <b>acquisition. And this</b> applies only <b>when</b> he subsequently <b>died.</b> If he <b>recovered,</b> he can <b>retract</b> his gift <b>even though it was acquired from him</b> by means of an act of acquisition.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

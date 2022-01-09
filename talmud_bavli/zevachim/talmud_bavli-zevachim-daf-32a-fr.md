@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Et</b> en ce qui concerne <b>tous ceux-la,</b> dans un cas <b>ou ils ont recueilli le sang</b> avec l'intention de l'offrir <b>au dela de son </b> temps designe ou en dehors de sa <b>zone designee, s'il y a du sang de l'ame</b> qui reste dans l'animal, <b>le</b> pretre <b>adapte</b> au service du Temple <b>devra de nouveau recueillir</b> le sang et l'asperger sur l'autel.
+
+### Partie 2
+Si <b>le</b> pretre <b>apte</b> au service du Temple <b>collecte</b> le sang dans un recipient <b>et donne</b> le recipient <b>a une personne inapte</b>, cette personne <b>doit le rendre</b> <b>au pretre apte</b>. Si le pretre <b>collecte</b> le sang dans un recipient <b>de sa main droite</b> <b>et le deplace</b> <b>vers sa main gauche</b>, <b>il doit le rendre</b> <b>a sa main droite</b>. Si le pretre <b>recueille</b> le sang <b>dans un recipient sacre et le place dans un recipient non sacre, il doit rendre</b> le sang <b>a un recipient sacre.</b> Si le sang <b>s'est repandu du recipient sur le sol et qu'il l'a recueilli</b> sur le sol, il est <b>valide.</b>
+
+### Partie 3
+Si une personne inapte <b>a place</b> le sang <b>sur la rampe</b> ou sur le mur de l'autel <b>qui</b> n'est <b>pas oppose a la base</b> de l'autel, ou si <b>il a place</b> le sang <b>qui doit etre <b>place en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, <b>ou</b> s'il a place le sang <b>qui doit etre <b>place au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge, <b>ou</b> s'il a place le sang <b>qui est</b> a <b>placer a l'interieur</b> du Sanctuaire <b>a l'exterieur</b> du Sanctuaire <b>ou le</b> sang <b>qui est</b> a <b>placer a l'exterieur</b> du Sanctuaire <b>a l'interieur</b> du Sanctuaire, alors <b>si le sang de l'ame</b> reste dans l'animal, <b>le pretre</b> <b>adapte</b> au service du Temple <b>devra a nouveau recueillir</b> le sang et l'asperger sur l'autel.
+
+### Partie 4
+<strong>GEMARA:</strong> La Gemara deduit de l'utilisation du passe dans la mishna : En ce qui concerne tous ceux qui sont inaptes au service du Temple qui ont <b>abattu,</b> que <b>apres coup, oui,</b> l'abattage est valable. Mais <b><i>ab initio</i>, non,</b> ceux qui sont inaptes ne peuvent pas egorger une offrande.
+
+### Partie 5
+<b>Et</b> la Guemara <b>souleve une contradiction</b> de ce qui a ete enseigne dans le midrash halakhique <i>Torat Kohanim</i> : Le verset dit a propos d'un holocauste : <b>Et il egorgera</b> le taureau devant le Seigneur" (Levitique 1:5). Le fait que le verset ne stipule pas qu'un pretre doit abattre l'offrande enseigne que <b>l'abattage est valide</b> s'il est effectue <b>par un non-pretre,</b> comme le stipule la mishna : <b>Comme le</b> rite sacrificiel de l'<b>abattage est valide</b> lorsqu'il est effectue <b>par des non-pretres, par des femmes, par</b> des <b>esclaves cananeens, et par des individus rituellement impurs</b>, <b>et meme en ce qui concerne</b> les <b>offrandes de l'ordre le plus sacre. Ou</b> peut-etre que le terme "et il egorgera" dans le verset se refere <b>uniquement</b> a l'egorgement <b>par les pretres ?</b>
+
+### Partie 6
+<b>Vous</b> pouvez <b>dire</b> en reponse : <b>D'ou vous vient</b> l'idee que le verset ne fait reference qu'a un pretre ? C'est <b>a partir du fait qu'il est declare</b> a Aaron : <b>"Et toi et tes fils avec toi, vous garderez votre sacerdoce dans tout ce qui concerne l'autel"</b> (Nombres 18:7).
+
+### Partie 7
+On <b>pourrait</b> penser qu'il s'agit de la <i>halakha</i> <b>meme en ce qui concerne</b> l'abattage,</b> que seuls les pretres sont aptes a abattre une offrande. Par consequent, <b>le verset dit : "Et il egorgera le taureau devant l'Eternel, et</b> les fils d'Aaron, les pretres, <b>presenteront [<i>vehikrivu</i>]</b> le sang" (Levitique 1:5), d'ou l'on deduit que specifiquement <b>a partir</b> de la <b>collecte</b> du sang <b>et au-dela</b> c'est <b>une mitzva</b> exclusivement <b>du sacerdoce. </b> Ceci <b>enseigne sur le rite de l'abattage</b> qu'il est valide</b> <i>ab initio</i> s'il est accompli <b>par toute personne.</b> Ceci contredit la deduction de la mishna selon laquelle l'abattage d'une offrande par un non-pretre n'est valide qu'apres coup.
+
+### Partie 8
+La Gemara repond : <b>Il est vrai que meme <i>ab initio</i> aussi</b> il est permis a ceux qui sont inaptes au service du Temple d'abattre une offrande, <b>mais parce que</b> le mishna <b>veut enseigner</b> en ce qui concerne les <b>impurs rituels</b> qu'ils ne peuvent <b>pas</b> abattre une offrande <b><i>ab initio</i></b> en raison d'un <b>decret rabbinique de peur qu'ils ne touchent la chair</b> et la rendent rituellement impure, par consequent, la mishna <b>a enseigne</b> cette <i>halakha</i> avec l'expression au passe : <b>Qui a egorge,</b> c'est-a-dire apres coup.
+
+### Partie 9
+La Gemara demande : <b>Et</b> dans le cas d'un <b>individu rituellement impur</b> qui a effectue l'abattage, est-il <b>permis</b> meme <b>apres coup ? Et</b> on peut <b>soulever une contradiction</b> de ce qui est enseigne dans le midrash halakhique : La Torah enonce deux directives consecutives : <b>"Et il posera</b> sa main sur la tete de l'holocauste"¦<b>Et il egorgera</b> le taureau devant le Seigneur" (Levitique 1, 4""5). Cette juxtaposition indique que les deux directives se referent au meme individu, ce qui enseigne que <b>de meme que poser les mains</b> sur la tete d'une offrande ne peut etre accompli que <b>par des individus rituellement purs</b>, <b>de meme,</b> l'<b>abattage</b> ne peut etre accompli que <b>par des individus rituellement purs</b>. La Guemara repond : <b>Selon la loi rabbinique,</b> il est interdit a une personne impure d'abattre une offrande de peur qu'elle ne touche la chair de l'offrande, mais selon la loi de la Torah, l'abattage est valide.
+
+### Partie 10
+La Gemara demande : <b>Qu'y a-t-il de different</b> dans le fait de <b>placer les mains</b> pour qu'il ne puisse etre effectue que par ceux qui sont rituellement purs meme par la loi de la Torah ? C'est <b>qu'il est ecrit : "Devant le Seigneur,"</b> ce qui fait reference a la cour du Temple, et une personne impure ne peut pas entrer dans la cour du Temple. En ce qui concerne <b>l'homicide involontaire egalement, n'est-il pas ecrit : A "Devant le SeigneurA" (Levitique 1:5) ? Comment une personne rituellement impure peut-elle entrer dans la cour du Temple pour abattre une offrande ? La Guemara repond : C'est <b>possible,</b> dans un cas <b>ou il faconne un long couteau,</b> se tient a l'exterieur de la cour du Temple, <b>et immole</b> l'offrande qui se trouve a l'interieur de la cour.
+
+### Partie 11
+La Guemara demande : En ce qui concerne <b>le placement des mains aussi, c'est possible,</b> dans un cas <b>ou il insere ses mains</b> dans la cour du Temple <b>et les place</b> sur la tete de l'offrande. La Gemara repond : Le <i>tanna</i> <b>soutient</b> qu'une <b>entree partielle,</b> dans laquelle seule une partie du corps entre dans la cour du Temple, <b>est appelee entree.</b> Par consequent, un individu impur ne peut pas inserer meme une partie de son corps, comme ses mains, dans la cour du Temple.
+
+### Partie 12
+<b>Rav Hisda a enseigne la</b> <i>baraita</i> de la maniere <b>opposee</b> : <b>"Et il posera</b> sa main sur la tete de l'holocauste"¦<b>et il abattra</b> le taureau" (Levitique 1:4""5), enseigne que <b>tout comme l'abattage</b> ne peut etre effectue que <b>par des individus rituellement purs</b>, <b>de meme, poser les mains</b> ne peut etre effectue que <b>par des individus rituellement purs</b>. La Guemara demande : <b>Qu'y a-t-il de different</b> dans l'<b>abattage</b> pour qu'il ne puisse etre accompli que par des individus rituellement purs ? C'est <b>qu'il est ecrit</b> a son sujet : <b>Je suis devant le Seigneur,</b> ce qui fait reference a la cour du Temple, et une personne rituellement impure ne peut pas entrer dans la cour du Temple.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

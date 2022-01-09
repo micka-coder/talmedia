@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>mais n'est pas</b> apte <b>a l'entretien du Temple,</b> ou s'il est apte <b>a l'entretien du Temple mais pas au</b> sacrifice sur <b>l'autel,</b> ou apte <b>ni a l'autel ni a l'entretien du Temple,</b> neanmoins on est responsable de <b>son mauvais usage.</b> La mishna clarifie chacune de ces categories : Apte a l'entretien du Temple mais pas au sacrifice sur l'autel, <b>comment cela ? </b>
+
+### Partie 2
+Dans le cas ou <b>on a consacre une citerne pleine d'eau,</b> l'eau n'est pas propre au sacrifice sur l'autel, car seule l'eau de la piscine de Siloe est utilisee pour l'autel. Neanmoins, elle est propre a l'entretien du Temple, par exemple pour petrir de l'argile avec elle afin de renforcer les murs du Temple. Quel est le cas d'un objet qui ne convient ni a l'autel ni a l'entretien du Temple ? Si l'on consacre des <b>ordures</b> decharges <b>pleines de fumier,</b> l'endroit et son contenu ne sont propres ni a l'autel ni a l'entretien du Temple. Au contraire, ils sont vendus et l'argent recu de la vente est donne au Temple. Quel est le cas d'un objet propre a etre sacrifie sur l'autel mais impropre a l'entretien du Temple ? Si l'on consacre <b>un pigeonnier plein de pigeons,</b> les pigeons sont propres a l'autel alors que le pigeonnier n'est pas propre meme a l'entretien du Temple.
+
+### Partie 3
+Ou si on a consacre <b>un arbre plein de fruits,</b> car les fruits sont propres a l'autel alors que l'arbre n'est pas propre meme a l'entretien du Temple. Par exemple, les raisins sont aptes a l'autel comme vin, mais les vignes ne sont pas aptes a l'entretien du Temple, car elles sont trop fragiles pour la construction. Un autre cas ou l'objet consacre n'est apte ni a l'autel ni a l'entretien du Temple est <b>un champ plein d'herbe.</b>
+
+### Partie 4
+Dans tous ces cas, on est responsable du <b>mauvais usage</b> a la fois <b>de ces objets et de ce qui s'y trouve</b>, car ceux qui sont impropres a l'usage du Temple seront vendus et leur argent sera utilise pour l'autel ou pour l'entretien du Temple.
+
+### Partie 5
+<b>Mais si l'on consacre</b> une <b>citerne vide et qu'elle soit ensuite remplie d'eau,</b> ou si l'on consacre une <b>decharge d'ordures</b> vide <b>et qu'elle soit ensuite remplie de fumier,</b> ou un <b>pigeonnier vide et qu'il soit ensuite rempli de pigeons,</b> ou <b>un arbre</b> sans fruit <b>et qu'il soit ensuite rempli de fruits, ou</b> un <b>champ vide et qu'il soit ensuite rempli d'herbe ; </b> dans tous ces cas, on est responsable de leur <b>mauvais usage mais</b> on n'est <b>pas</b> responsable de <b>mauvais usage de ce qui s'y trouve</b>. Il n'y a pas de mauvais usage en ce qui concerne les ameliorations qui se sont developpees dans les biens consacres.
+
+### Partie 6
+<b>Rabbi Yosei</b> n'est pas d'accord dans deux des cas ci-dessus et <b>dit : </b> Dans le cas de <b>celui qui consacre le</b> <b>champ vide</b> dans lequel l'herbe a pousse <b>ou l'</b> <b>arbre vide</b> sur lequel les fruits ont pousse, il est responsable du <b>mauvais usage</b> a la fois de <b>ceux-ci et de leur accroissement, car ce sont des accroissements de biens consacres</b>, malgre le fait qu'ils n'y ont pousse qu'apres la consecration de ces biens.
+
+### Partie 7
+A propos des excroissances de biens consacres, la mishna declare que <b>une progeniture</b> nee <b>d'un animal dime</b> avant qu'il ne soit dime <b>ne peut pas</b> etre donnee a <b>sucer de la mere dinee</b>, car c'est un animal non sacre qui ne peut etre autorise a tirer profit des biens consacres. <b>Et</b> il y a des <b>autres</b> qui <b>stipulent</b> de <b>cette</b> maniere, c'est-a-dire que la consecration ne s'applique pas au lait. Il en est de meme pour les <b>progenitures d'animaux sacrifies</b> qui leur sont nees avant leur consecration ; elles <b>ne peuvent pas teter l'animal sacrifie</b>. <b>Et</b> dans ce cas egalement, il y a <b>d'autres</b> qui <b>stipulent</b> de <b>cette</b> maniere, c'est-a-dire pour permettre a la progeniture de teter.
+
+### Partie 8
+<b>Les ouvriers,</b> qui sont generalement autorises a manger la nourriture de leur employeur, <b>ne peuvent pas manger des figues seches consacrees,</b> s'ils travaillent avec les produits du Temple. Au contraire, ils peuvent acheter de la nourriture avec l'argent qu'ils sont payes. <b>Et de meme, une vache</b> travaillant avec des biens consacres, par exemple en battant les produits du Temple, ne peut pas manger <b>de la vesce consacree [<i>mikarshinei</i>].</b>
+
+### Partie 9
+<strong>GEMARA : </strong>La mishna <b>enseigne</b> que <b>une progeniture</b> nee <b>d'un animal dime</b> avant qu'il ne soit dime <b>ne peut pas teter de la mere dinee</b>, et il en va de meme pour la progeniture d'un animal sacrifie. La Gemara demande : <b>D'ou viennent ces questions</b> ?
+
+### Partie 10
+<b>Rav Ahadvoi bar Ami a dit : Elle est derivee</b> par une analogie verbale des expressions <b>"passer"</b> et <b>"passer", a partir</b> du cas de <b>l'offrande d'un premier-ne</b>. En ce qui concerne la dime animale, le verset indique : A "Tout ce qui passera sous la vergeA" (Levitique 27:32), et en ce qui concerne l'offrande du premier-ne, il est dit : "Tu feras passer pour l'Eternel tout ce qui ouvre le ventre de ta mere" (Exode 13:12). <b>De meme que</b> dans le cas de l'offrande du <b>premier-ne</b> on est responsable de <b>mesusage</b> de tout <b>celui-ci,</b> car c'est un male et il n'a pas de lait, <b>de meme,</b> en ce qui concerne le <b>lait d'un animal dime</b> on est responsable de <b>mesusage</b> de tout <b>celui-ci,</b> c'est-a-dire, tout est interdit, y compris son lait, puisqu'il fait partie de l'animal soumis a la dime. Par consequent, la progeniture ne peut pas teter de la mere.
+
+### Partie 11
+L'autre <i>halakha</i>, selon laquelle le <b>lait d'un animal sacrifie</b> est interdit, est <b>egalement derivee</b> par une analogie verbale, plus precisement les termes <b>Sa mere</b> et <b>Sa mere,</b> du cas de <b>l'offrande d'un premier-ne</b>. En ce qui concerne les animaux sacrifies, le verset indique : "Lorsqu'un taureau, un mouton ou une chevre naitra, il restera sept jours sous sa mere" (Levitique 22:27), et dans le cas de l'offrande d'un premier-ne, il est precise :" Il restera sept jours avec sa mère" (Exode 22:29). De même que l'on est responsable de l'utilisation abusive de la totalité de l'offrande d'un premier-né, on est également responsable de l'utilisation abusive du lait d'un animal sacrifié, c'est-A -dire que le lait est interdit, car il fait partie de l'animal sacrifié. Par consequent, sa progeniture ne peut pas teter la mere.
+
+### Partie 12
+§ La mishna enseigne que <b>les ouvriers</b> des produits du Temple <b>ne peuvent pas manger de</b> figues seches consacrees, et de meme une vache ne peut pas manger de la vesce consacree. La Guemara ne pose pas la question de la source de la <i>halakha</i> d'un ouvrier, car le verset indique clairement a cet egard : "Quand tu entres dans la vigne de ton prochain" (Deuteronome 23:25), ce qui n'inclut pas une vigne appartenant au Temple ; mais la Guemara s'interroge sur le cas de la vache : <b>Quelle est la raison</b> de la decision concernant une vache ? <b>Rav Ahadvoi bar Ami a dit : Comme le dit le verset : "Ne muselle pas le bœuf pendant qu'il le foule"</b> (Deuteronome 25:4). Le terme <b>"son foulage"</b> enseigne que cette interdiction s'applique au fait de museler un bœuf lorsqu'il foule <b>votre</b> champ non sacre, <b>et non</b> lorsqu'il <b>passe un champ consacre</b>. Puisque le produit consacre est interdit, on doit museler le bœuf.
+
+### Partie 13
+La Guemara discute d'un cas similaire : <b>Celui qui bat</b> son <b><i>kalilin</i> non sacre,</b> un type de legumineuse, <b>dans un champ consacre</b> est responsable du <b>mauvais usage</b> des objets consacres. La Guemara souleve une difficulte : <b>Mais</b> pour qu'on soit responsable de l'abus, <b>on exige</b> que l'element consacre dont on tire profit soit <b>detache</b> du sol, alors que le champ est le sol lui-meme. <b>Ravina a dit : Concluez-en</b> que la <b>poussiere du champ est benefique pour</b> <i>kalilin</i>, et donc qu'il fait un mauvais usage de la poussiere detachee du champ consacre lorsqu'il le bat.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

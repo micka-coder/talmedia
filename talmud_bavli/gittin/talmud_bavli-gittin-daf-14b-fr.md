@@ -1,0 +1,57 @@
+
+### Partie 1
+Rabbi Ahai <b>Dit a Rabbi Dostai bar Rabbi Yannai et a Rabbi Yosei bar Keifar : Quand vous viendrez</b> de Nehardeâ <b>apportez</b> le recipient <b>a moi. Ils se rendirent</b> a Nehardeâ et les gens qui etaient en possession du vaisseau <b>le leur donnerent.</b> Apres avoir remis le vaisseau, ces gens leur <b>dirent : Laissez-nous accomplir</b> un acte d'<b>acquisition avec vous,</b> de sorte que vous serez responsables du navire jusqu'a ce que vous atteigniez Rabbi Ahai. Les agents <b>leur ont dit : Non;</b> nous ne voulons pas faire cela. <b>Ils leur ont dit :</b> Si c'est le cas, <b>rendez</b> le navire <b>a nous,</b> car nous ne souhaitons pas le transferer de maniere a en conserver la responsabilite.
+
+### Partie 2
+<b>Rabbi Dostai, fils de Rabbi Yannai, leur dit : Oui,</b> je suis pret a le rendre. Cependant, <b>Rabbi Yosei bar Keifar leur dit : Non,</b> car vous n'avez pas le droit de vous retracter dans cette situation. <b>Ils ont tourmente</b> Rabbi Yosei bar Keifar pour le forcer a accepter de rendre le recipient. Rabbi Yosei bar Keifar <b>dit a</b> Rabbi Dostai : <b>Voyez,</b> mon <b>Maitre, ce que</b> ils me <b>font</b>. Rabbi Dostai <b>leur dit :</b> Vous agissez <b>bien ; frappez-le.</b>
+
+### Partie 3
+<b>Lorsque</b> ces <b>deux</b> agents <b>se sont presentes devant</b> Rabbi Ahai, Rabbi Yosei bar Keifar <b>lui a dit : Vois-tu,</b> mon <b>Maitre, non seulement</b> Rabbi Dostai <b>ne m'a pas soutenu ; au contraire, il</b> leur a meme <b>dit :</b> Vous agissez <b>bien ; frappez-le.</b> Rabbi Ahai <b>dit a</b> Rabbi Dostai : <b>Pourquoi as-tu fait ca ?</b>
+
+### Partie 4
+Rabbi Dostai <b>lui a dit : Ces gens</b> qui etaient en possession du vaisseau, <b>ils sont</b> de la taille d'une <b>coudee, et leurs chapeaux etaient d'une coudee, et ils parlaient depuis leurs points medians, et leurs noms etaient effrayants : Arda et Arta et Pili Bereish.</b> Si l'on devait <b>leur dire : Retenez</b> cette personne, <b>ils la retiendraient</b>. Si l'on devait <b>leur dire</b> : <b>Tuer</b> cette personne, <b>ils la tueraient. S'ils avaient tue Dostai,</b> c'est-a-dire moi, <b>qui donnerait a Yannai,</b> mon <b>pere,</b> un autre <b>fils comme moi ?</b>
+
+### Partie 5
+Rabbi Ahai <b>lui dit : Ces gens sont-ils proches du gouvernement ?</b> Rabbi Dostai <b>lui a dit : Oui.</b> Rabbi Ahai lui a demande : <b>Est-ce qu'ils ont des chevaux et des mules qui courent apres eux,</b> c'est-a-dire qu'ils ont des serviteurs pour executer leurs ordres ? Rabbi Dostai <b>leur a repondu : Oui.</b> Rabbi Ahai <b>lui a dit : Si oui, vous avez bien agi,</b> car la situation etait entierement hors de votre controle.
+
+### Partie 6
+La Guemara discute de la signification de l'expression : Livrer, par rapport a un cadeau. En ce qui concerne celui qui a dit a son agent : <b>Delivrer cent dinars a untel, et</b> l'agent est <b>alle et a cherche</b> cette personne <b>mais ne l'a pas trouvee,</b> car elle etait morte, il <b>est enseigne</b> dans <b>une</b> <i>baraita</i> : L'argent <b>doit etre rendu a l'expediteur. Et il est enseigne</b> dans <b>un autre</b> <i>baraita</i> : L'argent doit etre donne <b>aux heritiers de celui a qui il a ete envoye.</b>
+
+### Partie 7
+La Guemara suggere : <b>Disons qu'ils sont en desaccord a ce sujet, car</b> un <b>Sage,</b> dans la deuxieme <i>baraita</i>, <b>soutient</b> que dans le cas d'un don, dire : <b>Donner, c'est comme</b> dire : <b>Acquerir,</b> et par consequent le mandataire a pris possession de l'argent pour le compte de celui a qui il a ete envoye. Par consequent, les heritiers heritent de cet objet. <b>Et</b> un <b>Sage,</b> dans la premiere <i>baraita</i>, <b>tient</b> que dans le cas d'une donation, dire : <b>Donner, n'est pas comme</b> dire : <b>Acquerir,</b> et donc le mandataire doit rendre l'argent a l'expediteur.
+
+### Partie 8
+<b>Rabbi Abba bar Memel a dit :</b> Non ; <b>tout le monde est d'accord</b> que dans le cas d'un cadeau, dire : <b>Delivrer, n'est pas comme</b> dire : <b>Acquerir, et</b> la contradiction apparente entre les deux <i>baraitot</i> n'est <b>pas difficile : Cette</b> <i>baraita</i>, qui dit que le mandataire doit rendre l'argent a l'expediteur, traite <b>d'un cas ou le donateur etait <b>une personne saine</b> lorsqu'il a emis les instructions. Un tel don n'est acquis par le beneficiaire qu'une fois qu'il entre en sa possession, et ce beneficiaire est decede avant que le don ne lui parvienne. A l'inverse, <b>cette</b> <i>baraita</i>, qui dit qu'il doit le donner aux heritiers de celui a qui il a ete envoye, traite <b>avec</b> les instructions d'une personne <b>sur son lit de mort.</b> Puisque le cadeau d'un mourant est immediatement acquis par le destinataire, ce destinataire l'a acquis tout de suite, et donc il doit etre donne a ses heritiers.
+
+### Partie 9
+<b>Rav Zevid a dit :</b> Il est possible de dire que dire : Livrer, n'est pas comme dire : Acquerir, et que tant <b>cette</b> <i>baraita</i> <b>que cette</b> <i>baraita</i> traitent <b>d'un cas ou le donateur etait une personne <b>sur son lit de mort. </b> Au contraire, la difference entre les deux sources est que <b>cette</b> <i>baraita</i>, qui indique qu'il doit le donner aux heritiers du beneficiaire, se refere a un cas <b>ou le beneficiaire etait</b> vivant <b>au moment de la remise de l'argent.</b> Par consequent, lorsque l'expediteur remet l'argent au mandataire, le beneficiaire l'acquiert immediatement, et ses heritiers le reclament a sa place. <b>Ce</b> <i>baraita</i>, qui dit que le mandataire doit rendre l'argent a l'expediteur, se refere a un cas <b>ou le beneficiaire n'etait pas</b> vivant <b>au moment de la remise de l'argent,</b> et par consequent le mandataire ne pouvait pas acquerir l'argent en son nom.
+
+### Partie 10
+<b>Rav Pappa a dit</b> encore une autre explication de la <i>baraita</i> : <b>Ce</b> <i>baraita</i> <b>et ce</b> <i>baraita</i> traitent tous deux <b>d'une personne en bonne sante</b> qui est decedee par la suite. La difference est que <b>cette</b> <i>baraita</i>, qui disait que l'agent doit rendre l'argent a l'expediteur, traite d'un cas <b>ou le beneficiaire est decede du vivant du donateur,</b> et comme il n'a pas acquis l'argent lui-meme, ses heritiers n'en prennent pas non plus possession. En revanche, <b>cette</b> <i>baraita</i>, qui stipule que l'argent doit etre donne aux heritiers du beneficiaire, traite d'un cas <b>ou le donateur est decede du vivant du beneficiaire.</b> Une fois qu'il est decede, c'est une mitsva d'accomplir ses souhaits, et donc le beneficiaire, et ses heritiers apres lui, ont droit a l'argent.
+
+### Partie 11
+La Gemara suggere en outre : <b>Devons-nous dire</b> que la question de savoir si dire : <b>Delivrer, est comme</b> dire : <b>Acquerir, est</b> un differend entre <b><i>tannaim</i>?</b> C'est <b>comme il est enseigne</b> dans une <i>baraita</i>, que si une personne dit a une autre : <b>Delivrez cent dinars a untel, et qu'il est alle le chercher mais ne l'a pas trouve,</b> comme il etait mort, l'argent <b>doit etre rendu a l'expediteur.</b> Si <b>l'expediteur est mort, Rabbi Natan et Rabbi Yaâkov ont dit :</b> L'argent <b>doit etre rendu aux heritiers de l'expediteur. Et certains disent :</b> Il doit etre remis aux <b>heritiers de celui a qui il a ete envoye.</b>
+
+### Partie 12
+La <i>baraita</i> continue : <b>Rabbi Yehuda HaNasi a dit au nom de Rabbi Yaâkov, qui a dit</b> ceci <b>au nom de Rabbi Meir : C'est une mitsva d'accomplir la declaration du mort.</b> Par consequent, l'argent doit etre donne aux heritiers de celui a qui il a ete envoye. <b>Et les rabbins disent :</b> En raison de l'incertitude, <b>ils doivent le diviser</b>. <b>Et ici,</b> en Babylonie, <b>ils ont dit : Tout ce que l'agent souhaite faire, il peut le faire. Rabbi Shimon HaNasi a dit :</b> Lorsque <b>un incident</b> de ce genre s'est produit <b>sous ma</b> juridiction, je me suis enquis de la maniere de proceder, <b>et</b> les Sages m'ont <b>dit</b> : L'argent <b>doit etre rendu aux heritiers de l'expediteur.</b>
+
+### Partie 13
+La Gemara suggere : <b>Quoi, n'est-il pas</b> correct de dire que <b>ils sont en desaccord sur cette</b> question, <b>que la premiere <i>tanna</i> tient</b> que dire : <b>Delivrer, n'est pas comme</b> dire : <b>Acquerir,</b> et donc l'argent doit etre rendu a l'expediteur ? <b>Et Rabbi Natan et Rabbi Yaâkov soutiennent egalement</b> que dire : <b>Delivrer, n'est pas comme</b> dire : <b>Acquerir, mais</b> ils ajoutent que <b>meme si</b> l'expediteur <b>est mort, on ne dit pas : C'est une mitsva d'accomplir la declaration du mort.</b> Par consequent, l'argent est rendu aux heritiers de l'expediteur. <b>Et</b> les Sages dans la clause qui commence : <b>Certains disent,</b> pretendent que dire : <b>Delivrer, est comme</b> dire : <b>Acquerir.</b> Par consequent, le beneficiaire prend possession de l'argent immediatement, et il est donne a ses heritiers.
+
+### Partie 14
+Et <b>Rabbi Yehuda HaNasi,</b> qui <b>a dit au nom de Rabbi Yaâkov, qui a dit</b> ceci <b>au nom de Rabbi Meir,</b> soutient egalement que dire : <b>Delivrer, n'est pas comme</b> dire : <b>Acquerir. Cependant,</b> dans un cas <b>ou l'expediteur <b>est decede, nous disons</b> que <b>c'est une mitsva d'accomplir la declaration du mort.</b> Par consequent, les cent dinars doivent etre remis au destinataire ou a ses heritiers.
+
+### Partie 15
+<b>Et les rabbins disent : Ils doivent le diviser,</b> car <b>ils</b> sont <b>incertains</b> sur la <i>halakha</i> dans cette situation. <b>Et</b> les Sages dans la clause qui commence : <b>Ils ont dit,</b> soutiennent que dans ce cas, <b>la discretion [<i>shuda</i>]</b> du mandataire <b>est preferable</b> a un partage egal entre les parties. <b>Et Rabbi Shimon HaNasi</b> ne propose pas une opinion propre, mais <b>il est venu nous enseigner un incident</b> dans lequel ce cas a ete decide en pratique.
+
+### Partie 16
+La Gemara rejette cette suggestion : <b>Non;</b> il est possible que <b>dans</b> un cas ou le donateur etait <b>une personne en bonne sante</b> lorsqu'il a designe le mandataire <b>tout le monde s'accorde</b> a dire que dire : Livrer, n'est pas comme dire : Acquerir, <b>et a quoi avons-nous affaire ici ?</b> Nous avons affaire a une personne <b>sur son lit de mort</b> qui a envoye ces cent dinars, <b>et ils sont en desaccord dans la dispute entre Rabbi Elazar et les rabbins.</b>
+
+### Partie 17
+C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 156a) : En ce qui concerne <b>celui qui divise ses biens oralement, Rabbi Elazar dit : Tant</b> dans le cas d'une <b>personne en bonne sante que</b> dans celui d'une <b>personne dangereusement malade, les biens qui servent de garantie,</b> c'est-a-dire les terrains, <b>sont acquis par</b> le biais de <b>l'argent, par un document, ou par une prise de possession. Et</b> les biens <b>qui ne servent pas de garantie,</b> c'est-a-dire les biens meubles, <b>ne peuvent etre acquis que par tirage. Et les rabbins disent :</b> Si le donateur est sur son lit de mort, alors a la fois <b>cette</b> propriete <b>et cette</b> propriete <b>peuvent etre acquises par la parole,</b> et il n'y a pas besoin d'un acte d'acquisition supplementaire.
+
+### Partie 18
+<b>Ils ont dit a</b> Rabbi Elazar : Un <b>incident</b> de ce genre ne s'est-il pas produit <b>en ce qui concerne la mere</b> de la famille <b>des fils de Rokhel, qui etait malade, et elle a dit : Donne</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

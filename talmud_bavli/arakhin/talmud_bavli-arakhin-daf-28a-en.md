@@ -1,0 +1,54 @@
+
+### Part 1
+<b>What are the circumstances</b> of such an offer? It is in a case <b>where</b> the owner initially <b>said</b> he would purchase the field <b>for twenty-one</b> <i>sela</i>. In such an instance, the additional one-fifth amounts to five <i>sela</i> and one dinar, which means that the total payment of the owner is twenty-six <i>sela</i> and one dinar, greater than the offer of the other person. Accordingly, <b>the owner takes precedence,</b> and when the one-fifth is added to the twenty-six <i>sela</i> offer of the other person, the total price paid by the owner is equal to thirty-one <i>sela</i> and one dinar. <b>And if</b> the payment of the owner does <b>not</b> exceed the offer of the other person even when accounting for the additional one-fifth, then the treasurer <b>says to</b> the other person: The field <b>has come into your</b> possession.
+
+### Part 2
+<strong>MISHNA:</strong> <b>A person</b> may <b>dedicate,</b> for sacred or priestly use, some <b>of his flock and</b> some <b>of his cattle, and</b> some <b>of his Canaanite slaves and maidservants, and some of his ancestral field. But if he dedicated all</b> that he has <b>of</b> any type of property, <b>they are not dedicated,</b> i.e., the dedication does not take effect; this is <b>the statement of Rabbi Eliezer. Rabbi Elazar ben Azarya said: If for the Most High a person may not dedicate all his property,</b> it is <b>all the more so</b> the case <b>that a person should spare his property</b> and not give all of it to others.
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>From where are these matters,</b> stated in the mishna, derived? The Gemara explains that this is <b>as the Sages taught</b> in a <i>baraita</i>, with regard to the verse: “Notwithstanding, no dedicated thing that a man may dedicate to the Lord of all that he has, whether of man or animal, or of his ancestral field” (Leviticus 27:28). The verse indicates that one may dedicate <b>“of all that he has” but not all that he has;</b> likewise <b>“of man” but not every man,</b> i.e., not every slave of his; “of man <b>or animal” but not every animal</b> of his; and finally one may dedicate <b>“of</b> his <b>ancestral field” but not all of</b> his <b>ancestral field.</b>
+
+### Part 4
+It <b>might</b> have been thought that <b>one may not dedicate</b> all his properties <i>ab initio</i>, <b>but if he did dedicate</b> all of them, <b>they should be dedicated.</b> Therefore <b>the verse states: “Notwithstanding,”</b> to teach that they are not dedicated. This is <b>the statement of Rabbi Eliezer. Rabbi Elazar ben Azarya said: If for the Most High a person may not dedicate all his property,</b> it is <b>all the more so</b> the case <b>that a person should spare his property</b> and not give it all to others.
+
+### Part 5
+The Gemara notes: <b>And</b> it is <b>necessary</b> to derive this <i>halakha</i> with regard to all the categories in the verse. <b>As, if the Merciful One had written</b> only: <b>“Of all that he has,” I would say</b> that <b>one may not dedicate all that he has, but let him dedicate all of one type</b> of property. Therefore, <b>the Merciful One writes “of man,”</b> to teach that he may <b>not</b> dedicate <b>every man.</b>
+
+### Part 6
+<b>And if the Merciful One had written</b> only: <b>“of man,”</b> one might say that he may not dedicate all of his slaves, <b>as it is not possible for him</b> to be <b>without</b> a slave to perform his <b>work; but</b> with regard to <b>a field, it is possible for him</b> to maintain a livelihood <b>by sharecropping [<i>distoran</i>]. And if</b> the Torah <b>had taught</b> this <i>halakha</i> with regard to only <b>these two</b> types, i.e., ancestral fields and slaves, one might say these may not be dedicated in their entirety <b>because here</b> there is <b>livelihood and here</b> there is also <b>livelihood. But</b> in the case of <b>movable property,</b> on which maintaining a livelihood does not depend, <b>let him dedicate all of them.</b> Therefore, all of these derivations <b>are necessary.</b>
+
+### Part 7
+The Gemara further asks: <b>Why do I</b> need for the verse to state “or <b>animal”?</b> The Gemara explains it is necessary <b>for that which is taught</b> in a <i>baraita</i>: One <b>might</b> have thought <b>a person can dedicate his son or his daughter, his Hebrew slave or maidservant, or his purchased field.</b> Therefore, <b>the verse states “animal”</b> to teach that <b>just as an animal</b> is an item <b>that he has permission to sell, so too,</b> one can dedicate <b>any</b> item <b>that he has permission to sell.</b> He cannot dedicate an item that he does not have the ability to sell.
+
+### Part 8
+The <i>baraita</i> continues: <b>But</b> in the case of <b>his minor daughter, he has permission to sell her</b> as a Hebrew maidservant. If so, one <b>might</b> have thought <b>he may dedicate her.</b> Therefore, <b>the verse states “animal,”</b> indicating that <b>just as an animal</b> is an item <b>that he always has permission to sell, so too,</b> one can dedicate <b>any</b> item <b>that he always has permission to sell,</b> whereas one may not sell his daughter once she reaches majority. A field as well can be sold only until the Jubilee Year.
+
+### Part 9
+§ The mishna teaches that <b>Rabbi Elazar ben Azarya said: If for the Most High a person</b> may <b>not</b> dedicate all his property, it is all the more so the case that one should spare his property and not give it all to others. The Gemara raises a difficulty: <b>This is</b> identical to the opinion of <b>the first <i>tanna</i>,</b> i.e., Rabbi Eliezer, who prohibits the dedication of all one’s property.
+
+### Part 10
+The Gemara responds: <b>There is</b> a practical difference <b>between them</b> with regard to the statement <b>of Rabbi Ila, as Rabbi Ila said: In Usha</b> the Sages <b>instituted</b> that <b>one who dispenses</b> his money to charity <b>should not dispense more than a fifth.</b> Rabbi Eliezer, who did not state that one should spare his property, rules that one may give all his money to charity, provided he keeps a small portion for himself, whereas Rabbi Elazar ben Azarya maintains that one should not give more than a fifth.
+
+### Part 11
+The Gemara relates that there was <b>an incident involving a certain</b> individual <b>who sought to dispense more than a fifth</b> of his property as charity, <b>and his friend did not let him</b> act upon his wishes. <b>And who</b> was this friend? It was <b>Rabbi Yeshevav. And some say</b> it was <b>Rabbi Yeshevav</b> who wanted to give too much charity, <b>and his friend did not let him</b> do so. <b>And who was</b> the friend? It was <b>Rabbi Akiva.</b>
+
+### Part 12
+<strong>MISHNA:</strong> In the case of <b>one who dedicates his son or his daughter, or his Hebrew slave or maidservant, or his purchased field,</b> those items <b>are not</b> considered <b>dedicated, as a person</b> may <b>not dedicate an item that is not his. Priests and Levites may not dedicate</b> their property; this is <b>the statement of Rabbi Yehuda. Rabbi Shimon says: Priests may not dedicate</b> their property, <b>as</b> all <b>dedicated</b> property <b>is theirs;</b> it is one of the priestly gifts, as the verse states: “Everything dedicated in Israel shall be yours” (Numbers 18:14). <b>But Levites may dedicate</b> their property, <b>as dedicated</b> property <b>is not theirs.</b>
+
+### Part 13
+<b>Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Yehuda appears</b> to be correct <b>with regard to land, as it is stated</b> about the land of the Levites: “But the fields of the open land surrounding their cities may not be sold, <b>as that is their perpetual possession”</b> (Leviticus 25:34), and they cannot renounce that land. <b>And the statement of Rabbi Shimon appears</b> to be correct <b>with regard to movable property,</b> which the Levites may dedicate, <b>as dedicated</b> property <b>is not theirs.</b> It is a gift for the priests, not the Levites.
+
+### Part 14
+<strong>GEMARA:</strong> The Gemara asks: <b>And</b> as for <b>Rabbi Yehuda,</b> what is his reasoning? <b>Granted, priests may not dedicate</b> property, <b>as dedicated</b> property <b>is theirs;</b> it is one of the gifts of the priesthood. <b>But</b> why are <b>Levites</b> unable to dedicate their property? <b>Granted,</b> they may <b>not dedicate land, as it is written: “As that is their perpetual possession”</b> (Leviticus 25:34). <b>But let them dedicate movable property.</b> The Gemara explains that <b>the verse states:</b> “Notwithstanding, no dedicated thing, that a man may dedicate to the Lord <b>of all that he has,</b> whether of man or animal, <b>or of his ancestral field”</b> (Leviticus 27:28). The verse <b>juxtaposes</b> the dedication of <b>movable property to</b> that of <b>land.</b> Accordingly, as Levites cannot dedicate land, they cannot dedicate movable property either.
+
+### Part 15
+The Gemara asks: <b>And</b> with regard to <b>Rabbi Shimon,</b> what is his reasoning? <b>Granted, priests</b> may not dedicate their property, <b>as we stated</b> above, because dedicated property is theirs. <b>But</b> why may <b>Levites</b> dedicate their property? <b>Granted, let them dedicate movable property, as</b> Rabbi Shimon <b>does not juxtapose</b> movable property to land. <b>But why</b> may Levites dedicate <b>land? Isn’t it written: That is their perpetual possession?</b> The Gemara answers: <b>What</b> does Rabbi Shimon mean <b>when he says</b> Levites may dedicate property? He means they may dedicate only <b>movable property.</b>
+
+### Part 16
+The Gemara objects: <b>But from</b> the fact <b>that the latter clause</b> of the mishna <b>teaches: Rabbi</b> Yehuda HaNasi <b>said the statement of Rabbi Yehuda appears</b> to be correct <b>with regard to land, and the statement of Rabbi Shimon</b> appears to be correct <b>with regard to movable property; by inference</b> one may conclude <b>that Rabbi Shimon also says</b> Levites can dedicate their <b>land.</b> The Gemara explains that <b>this</b> is what the mishna <b>is saying: Rabbi</b> Yehuda HaNasi <b>said</b> that <b>the statement of Rabbi Yehuda appears</b> to be correct even <b>to Rabbi Shimon with regard to land</b> belonging to Levites, <b>as even Rabbi Shimon disagrees</b> with Rabbi Yehuda about the ability of Levites to dedicate property <b>only with regard to movable property. But with regard to land,</b> Rabbi Shimon <b>concedes to</b> Rabbi Yehuda that the Levites cannot dedicate it.
+
+### Part 17
+§ <b>Rabbi Ḥiyya bar Avin says:</b> One who <b>dedicated movable property may give it to any priest that he wishes, as it is stated: “Everything dedicated in Israel</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

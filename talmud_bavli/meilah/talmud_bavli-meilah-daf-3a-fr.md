@@ -1,0 +1,30 @@
+
+### Partie 1
+a <b>dire : Puisqu'une offrande de peche est apportee pour l'expiation,</b> les gens <b>ne s'en eloignent pas</b> apres sa mort, car ils se rendent compte qu'elle n'est plus apte a expier. Par consequent, afin de s'assurer que les gens ne manquent pas de respect, les Sages ont decrete que l'on est responsable de son mauvais usage. <b>Mais</b> en ce qui concerne les autres <b>animaux sacrificiels</b> de l'ordre le plus sacre, <b>puisqu'ils ne sont pas apportes pour l'expiation,</b> les gens continuent a <b>s'en eloigner</b> apres la mort des animaux, <b>et</b> on pourrait donc penser qu'il n'y a <b>pas besoin</b> de decreter qu'ils sont soumis</b> aux <i>halakhot</i> de <b>mauvais usage. </b> Par consequent, Ulla <b>nous enseigne</b> que meme les autres animaux sacrificiels qui meurent sont sujets a un mauvais usage par decret rabbinique.
+
+### Partie 2
+La Gemara demande : <b>Et une offrande pour le peche qui est morte est-elle soumise</b> aux <i>halakhot</i> de <b>mauvais usage ? Mais n'avons-nous pas appris</b> dans une <i>baraita</i> : En ce qui concerne les <b>offrandes de peche</b> qui sont laissees a <b>mourir</b> parce qu'elles ne sont plus propres a l'autel, dont il est interdit de tirer un benefice, <b>et</b> de meme <b>l'argent</b> dont il est interdit de tirer un benefice, <b>qui va a la mer Morte</b> pour etre detruit, on <b>ne peut</b> en tirer <b>un benefice</b> <i>ab initio</i>, <b>mais</b> si on en a tire un benefice, on n'est <b>pas</b> responsable de leur <b>mauvais usage ? </b>
+
+### Partie 3
+<b>On dit</b> en reponse a cette question : En ce qui concerne les <b>offrandes de peche</b> qui sont laissees a <b>mourir,</b> puisque meme <b>de leur vivant</b> les gens s'en <b>eloignent,</b> puisqu'elles ne sont plus aptes au sacrifice, il n'etait pas necessaire pour les Sages d'instituer une interdiction de mauvais usage. Ceci est <b>a l'exclusion</b> d'un sacrifice pour le peche <b>qui</b> etait apte <b>pendant sa vie, car</b> les gens <b>ne s'eloignent pas</b> <b>de lui,</b> et donc les Sages ont juge bon d'instituer une interdiction d'abus apres sa mort.
+
+### Partie 4
+§ La Guemara revient sur la dispute concernant les offrandes qui ont ete abattues au mauvais endroit et qui ont ensuite ete apportees a l'autel. Rabba soutient que de telles offrandes sont retirees de l'autel tandis que Rav Yosef regle qu'une fois qu'elles sont montees sur l'autel, elles n'en descendent pas et sont brulees. <b>Rav Yosef souleve une objection a Rabba, une</b> source <b>de</b> une autre <b>une, et</b> cette <b>une de</b> une autre <b>une,</b> c'est-a-dire que son objection est basee sur la combinaison de plusieurs sources.
+
+### Partie 5
+La Gemara developpe : La mishna sur <i>Zevahim</i> 66b, qui traite des offrandes d'oiseaux disqualifies pour avoir soit les napes de leur cou pincees, soit leur sang asperge au mauvais endroit, enseigne : <b>Et toutes</b> les offrandes mentionnees dans cette mishna ne rendent <b>pas</b> celui qui avale leur viande <b>rituellement impure</b> dans la mesure ou ses <b>vetements sont rendus impurs</b> lorsqu'elle est <b>dans la gorge. </b> Bien que l'offrande soit disqualifiee, puisque la nuque a ete pincee dans le cadre du rite on n'est pas rendu impur en avalant une olive-bulk de sa viande, comme l'est la <i>halakha</i> a l'egard d'une carcasse d'oiseau casher. <b>Et</b> celui qui tire un benefice de ces offrandes est responsable de <b>leur mauvais usage.</b>
+
+### Partie 6
+Telle est la <i>halakha</i> concernant toutes les offrandes d'oiseaux, <b>a l'exception de l'offrande pour le peche d'un oiseau que l'on a effectuee en dessous</b> de la ligne rouge, <b>selon la procedure d'une offrande pour le peche d'un oiseau,</b> et <b>en vue d'une offrande pour le peche.</b> Puisqu'elle a ete sacrifiee correctement, sa viande est permise aux pretres et n'est plus soumise aux <i>halakhot</i> de mauvais usage.
+
+### Partie 7
+<b>Et il est enseigne</b> dans une autre mishna (<i>Zevahim</i> 68b) <b>en ce qui concerne</b> les memes offrandes d'oiseaux disqualifies : Pour <b>tout</b> d'entre eux <b>dont la disqualification</b> s'est produite <b>dans la zone sacree</b>, c'est-a-dire la cour du Temple, par exemple si la nuque a ete pincee la nuit, <b>cela ne rend pas</b> les <b>vetements</b> de celui qui l'avale <b>impurs</b> lorsque la viande est <b>dans la gorge. Et</b> pour <b>toute personne</b> d'entre elles <b>dont la disqualification n'a pas</b> eu lieu <b>dans la zone sacree</b>, <b>elle rend</b> les <b>vetements</b> de celui qui l'avale <b>impurs</b> lorsque la viande est <b>dans la gorge.</b>
+
+### Partie 8
+<b>Et il est enseigne</b> dans une autre mishna encore (<i>Zevahim</i> 84a) : En ce qui concerne <b>toute offrande</b> <b>dont la disqualification</b> a eu lieu <b>dans la zone sacree</b>, la zone sacree rend l'offrande acceptable, et <b>si</b> ces offrandes <b>sont montees</b> sur l'autel, elles <b>ne descendront pas.</b> La premiere mishna etablit que les oiseaux disqualifies parce que leurs rites ont ete accomplis au mauvais endroit sont sujets aux <i>halakhot</i> de mauvais usage. La deuxieme mishna enseigne que ces memes oiseaux sont consideres comme des objets dont la disqualification s'est produite dans la zone sacree. La derniere mishna etablit que si les objets dont la disqualification s'est produite dans la zone sacree montent sur l'autel, ils n'en descendent pas. En citant toutes ces <i>mishnayot</i>, Rav Yossef demontre qu'une offrande qui est abattue au mauvais endroit n'est pas retiree de l'autel, contrairement a l'avis de Rabba. La Guemara conclut : <b>La refutation de</b> l'avis de <b>Rabba</b> est en effet <b>une refutation concluante.</b>
+
+### Partie 9
+§ La Guemara note : <b>Et cette</b> question au sujet de laquelle Rabba et Rav Yosef sont en desaccord</b> est <b>evidente pour Rabbi Elazar, car Rabbi Elazar dit :</b> Dans le cas d'un <b>holocauste</b> consacre pour etre sacrifie <b>sur un autel personnel,</b> pendant la periode ou il est permis de le faire, <b>que l'on a apporte a l'interieur</b> de la cour du Temple,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

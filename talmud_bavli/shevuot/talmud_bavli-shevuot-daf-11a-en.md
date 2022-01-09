@@ -1,0 +1,33 @@
+
+### Part 1
+<b>as it</b> has only <b>sanctity</b> that inheres in its <b>value.</b> By contrast, animal offerings have inherent sanctity, which cannot be removed.
+
+### Part 2
+Rabba challenges Rav Ḥisda’s claim about incense: <b>If that is so, it should not become disqualified through</b> contact with <b>one</b> who was ritually impure <b>who immersed that day</b> but is still not regarded as fully pure until nightfall, as only items with inherent sanctity are disqualified in such a way. <b>Why,</b> then, <b>is it taught</b> in a <i>baraita</i> with regard to the incense: Once the priest has <b>placed it in a mortar</b> to grind it, it <b>can be disqualified through</b> contact with <b>one who immersed that day?</b>
+
+### Part 3
+Rabba deflects a possible challenge: <b>And if you would say</b> to defend your opinion that <b>all</b> items that have <b>sanctity</b> that inheres in their <b>value are</b> also <b>disqualified through</b> contact with <b>one who immersed that day,</b> that is not so. He explains: <b>But didn’t we learn</b> in a mishna (<i>Me’ila</i> 9a): With regard to the ingredients of <b>the meal-offerings,</b> one is liable for <b>misusing them from when they are consecrated</b> with sanctity that inheres in their value by the owner verbally dedicating them to the Temple? Once they are further <b>consecrated</b> with inherent sanctity by being placed <b>in</b> a service <b>vessel, they become fit to be disqualified</b> both <b>through</b> contact with <b>one who immersed that day, and through</b> contact with <b>one who has not yet</b> brought <b>an atonement</b> offering to complete the purification process, <b>and through being left overnight.</b>
+
+### Part 4
+Rabba explains the proof: From this mishna it is apparent that if the ingredients of the meal-offerings <b>were consecrated</b> with inherent sanctity by being placed <b>in</b> a service <b>vessel,</b> then, <b>yes,</b> they can been disqualified through contact with one who immersed that day, but if <b>they were not consecrated</b> by being placed <b>in</b> a service <b>vessel,</b> then they will <b>not</b> be disqualified through contact with one who immersed that day, as they have only sanctity that inheres in their value.
+
+### Part 5
+Rav Ḥisda responds: <b>Rather, what</b> do you say? Do you say that the surplus incense, which was only placed in a mortar but never in a service vessel, has <b>inherent sanctity?</b> But <b>if that is so, it should be disqualified by being left overnight. Why,</b> then, <b>did we learn</b> in a mishna (<i>Me’ila</i> 10a): With regard to <b>the handful</b> of the meal-offering that the priest takes to burn on the altar, <b>the frankincense, the incense, the meal-offering of priests, the meal-offering of the anointed priest,</b> i.e., High Priest, <b>and the meal-offering of libations,</b> one is liable for <b>misusing them from when they are consecrated</b> by verbally dedicating them for their purposes. Once they are further <b>consecrated</b> with inherent sanctity by being placed <b>in</b> a service <b>vessel, they become fit to be disqualified</b> both <b>through</b> contact with <b>one who immersed that day, and through</b> contact with <b>one who has not yet</b> brought <b>an atonement</b> offering to complete the purification process, <b>and through being left overnight.</b>
+
+### Part 6
+Rav Ḥisda explains the proof: From this mishna it is apparent that if these items <b>were consecrated</b> with inherent sanctity by being placed <b>in</b> a service <b>vessel,</b> then <b>yes,</b> they can been disqualified by being left overnight, but if <b>they were not consecrated</b> by being placed <b>in</b> a service <b>vessel,</b> then they will <b>not</b> be disqualified by being left overnight, as they have only sanctity that inheres in their value. Apparently, even after the incense has been placed in the mortar, it still does not have inherent sanctity.
+
+### Part 7
+Rabba <b>said to him: Did you say</b> that you can provide a proof from the disqualification that occurs as a result of an item’s being <b>left overnight?</b> One cannot do so, as <b>incense is different,</b> because even though it has inherent sanctity, it is not disqualified by being left overnight, <b>since its form</b> remains unchanged <b>throughout the entire year,</b> and the disqualification brought about by being left overnight applies only to a substance that spoils over time.
+
+### Part 8
+The Gemara notes: <b>In any case,</b> Rav Ḥisda’s initial question is still <b>difficult: But</b> the <b>sanctity that was</b> inherent <b>in them, to where has it gone? Rabba said:</b> With regard to the consecration of items for public offerings such as the daily offerings and incense, the <b>court tacitly stipulates concerning them</b> as follows: <b>If they are</b> ultimately <b>required</b> to be used as offerings that year, then <b>they are required</b> for that, and they should be consecrated as offerings. <b>But if</b> they are <b>not</b> required that year, then <b>they are</b> only to be consecrated <b>for their value,</b> i.e., for them to be sold and then for their proceeds to be used toward the purchase of offerings.
+
+### Part 9
+<b>Abaye said to</b> Rabba: <b>But wasn’t it</b> you, <b>Master, who said:</b> If <b>one consecrated a male</b> ram <b>for its value,</b> since that ram is itself fit to be brought as an offering, it is automatically <b>consecrated</b> with <b>inherent sanctity?</b> Accordingly, to what avail is the court’s stipulation? Since the items are fit to be used as offerings, they will automatically become consecrated with inherent sanctity, even if they are consecrated only for their value. Rabba answers: This is <b>not difficult. This</b> case, where the ram is automatically consecrated with inherent sanctity, is referring to a situation <b>where</b> the donor <b>says</b> that it should be consecrated <b>for</b> the <b>value of a burnt-offering,</b> for which the ram is itself suitable, whereas <b>that</b> case, of the court’s stipulation, is analogous to a situation <b>where he says</b> that a ram should be consecrated <b>for</b> the <b>value of libations,</b> for which the ram itself is not suitable and therefore is not automatically consecrated with inherent sanctity.
+
+### Part 10
+<b>Abaye raised an objection to</b> Rabba’s suggestion from that which is taught in a <i>baraita</i>: With regard to the <b>bull and</b> the <b>goat of Yom Kippur that were lost, and one separated</b> and sacrificed <b>others in their stead,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

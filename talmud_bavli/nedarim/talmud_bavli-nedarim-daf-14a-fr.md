@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>Un enonce negatif</b> <b>vous</b> pouvez <b>inferer un enonce positif</b> ? Comment peut-on alors en deduire qu'elle doit etre comme une offrande ? <b>Et</b> si c'est <b>plutot</b> l'avis de <b>Rabbi Yehuda,</b> qui est en desaccord avec Rabbi Meir a ce sujet, la decision de la mishna est superflue, car <b>cette decision est</b> identique a celle de la mishna dans <b>la premiere clause.</b> La mishna ci-dessus (10b) etablissait deja qu'un vœu qui utilise le terme <i>lahullin</i> prend effet.
+
+#### Partie 2
+La Guemara repond : La decision est superflue. Cependant, <b>puisque</b> la mishna <b>enseigne</b> que le vœu ne prend pas effet lorsqu'il dit que la nourriture sera <b>comme de la viande de porc</b> ou <b>comme</b> un objet d'adoration d'un <b>idol, elle enseigne donc</b> accessoirement que cette regle s'applique egalement lorsqu'il dit qu'elle sera <b>non sacree.</b>
+
+### Partie 3
+<b>Ravina dit</b> que <b>c'est</b> ce que la mishna <b>enseigne : Et voici</b> les vœux qui ne prennent pas du tout effet et donc l'objet mentionne dans le vœu reste <b>permis :</b> Celui qui a dit qu'un certain objet sera <b>comme une nourriture non sacree</b>, ou <b>comme de la viande de porc,</b> ou <b>comme</b> un objet d'adoration d'un <b>idole. Et s'il n'enseignait pas</b> le cas de la nourriture <b>non sacree</b>, <b>je dirais</b> que bien que le vœu ne prenne pas effet, il necessite toujours,</b> selon la loi rabbinique, <b>une demande</b> a une autorite halakhique pour sa dissolution.
+
+### Partie 4
+La Gemara demande : <b>Mais y a-t-il</b> une raison <b>de considerer cette</b> interpretation ? <b>Mais du fait</b> <b>que cette derniere clause enseigne</b> a l'egard d'un homme <b>qui dit a sa femme : Tu es par la presente pour moi comme</b> ma <b>mere,</b> que la dissolution est <b>brisee avec lui en</b> suggerant <b>une extenuation differente, on peut en deduire que</b> le vœu de <b>la premiere clause ne necessite pas une demande</b> a une autorite halakhique. <b>Au contraire,</b> l'interpretation de Ravina doit etre rejetee, et <b>il est clair</b> que le cas de la nourriture <b>non sacree</b> <b>a ete cite tangentiellement</b> aux autres cas de la mishna.
+
+### Partie 5
+§ Concernant le principe selon lequel une interdiction ne peut etre creee en associant un element permis a un element interdit par la loi de la Torah, la Guemara demande : <b>D'ou vient cette matiere</b> ? La Guemara repond que <b>Le verset dit : "Lorsqu"?un homme fait un voeu A l"?Eternel"</b> (Nombres 30:3), ce qui indique qu"?un voeu ne prend pas effet <b>jusqu"?A ce que l"?on fasse un voeu</b> en associant le statut <b>d"?un objet qui est</b> interdit par le biais d"?un <b>vœu</b> A un autre objet. Si l'element que l'on utilise pour creer l'interdiction est interdit par la loi de la Torah, le vœu ne prend pas effet.
+
+### Partie 6
+La Guemara demande : <b>Si c'est le cas,</b> alors <b>meme</b> si l'element du vœu est associe <b>a un element interdit</b> par la loi de la Torah, le vœu doit <b>aussi</b> prendre effet, <b>comme</b> suivant cette phrase du verset <b>il est ecrit : "Pour lier son ame avec un lien [<i>issar</i>],"</b> ce qui indique que l'association peut se faire avec un objet interdit [<i>asur</i>] par la loi de la Torah. La Guemara repond : La phrase <b>"Lier son ame par un lien" est necessaire pour ce qui est enseigne</b> dans une <i>baraita</i> (12a) : <b>Quel est le lien mentionne dans la Torah.</b> La <i>baraita</i> derive de cette phrase qu'un vœu qui associe l'element concerne a un element dont l'interdiction a ete creee par un vœu preexistant prend effet, mais celui dont l'interdiction est par la loi de la Torah ne prend pas effet.
+
+### Partie 7
+§ Il est indique dans la mishna qu'en ce qui concerne un homme <b>qui dit a sa femme : Tu es par la presente</b> pour moi <b>comme</b> ma <b>mere,</b> la dissolution est abordee avec lui en suggerant une extenuation differente, c'est-a-dire que par la loi rabbinique, elle est traitee comme un vœu reel et elle necessite une dissolution par une autorite halakhique. La Gemara <b>souleve une contradiction</b> d'une <i>baraita</i> qui stipule que si un homme dit a sa femme : <b>Tu es par la presente pour moi comme la chair de</b> ma <b>mere,</b> ou <b>comme la chair de ma sœur,</b> ou <b>comme le fruit d'un arbre pendant les trois premieres annees apres sa plantation [<i>orla</i>], ou comme</b> des melanges interdits de <b>diverses sortes</b> plantes <b>dans une vigne,</b> tous les objets interdits, <b>il n'a rien dit. </b> Cela indique qu'il n'a meme pas besoin de faire une demande a une autorite halakhique.
+
+### Partie 8
+<b>Abaye a dit : Il n'a rien dit selon la loi de la Torah,</b> car le vœu ne prend pas effet. <b>Cependant, il a besoin</b> de faire <b>une demande</b> a une autorite halakhique <b>par la loi rabbinique. Rava a dit : Ce</b> <i>baraita</i> fait reference <b>aux erudits de la Torah,</b> qui sont conscients que ce vœu ne prend pas effet. <b>Cette</b> mishna, en revanche, fait reference <b>a un ignorant,</b> a l'egard duquel une ordonnance rabbinique est necessaire de peur qu'ils ne prennent les vœux a la legere.
+
+### Partie 9
+La Gemara commente : <b>Et il est enseigne</b> dans une <i>baraita</i> : <b>Celui qui fait un vœu</b> en associant un objet <b>a un rouleau de Torah</b> <b>n'a rien dit,</b> c'est-a-dire que le vœu ne prend pas effet. <b>Et Rabbi Yohanan dit : Mais</b> neanmoins, <b>il a besoin</b> de faire <b>une demande a une autorite halakhique</b> pour la dissolution du vœu. <b>Et Rav Nahman a dit : Et</b> s'il est <b>un erudit de la Torah</b> il n'a <b>pas besoin</b> de faire <b>une demande.</b> La postulation de Rava, qui stipule qu'en ce qui concerne certains vœux qui ne prennent pas effet, il est necessaire de faire une demande a une autorite halakhique seulement s'ils sont pris par un ignorant, peut etre vue d'ici .
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

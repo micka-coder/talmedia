@@ -1,0 +1,45 @@
+
+### Part 1
+<b>But</b> in the case of one who vows and <b>says: It</b> is incumbent <b>upon me</b> to bring an offering, even Rabbi Yehuda concedes that <b>no,</b> it is best not to vow at all. Likewise, it is preferable not to vow to donate a certain monetary value to the Temple treasury. Apparently, then, the statements in that mishna: Everyone takes vows of valuation, and: Everyone vows to donate the assessment of a person to the Temple treasury, do not indicate that it is permitted to do so <i>ab initio</i>.
+
+### Part 2
+Rav Ashi responded: <b>And</b> is that to say that <b>every</b> use of the term: <b>Everyone,</b> is an indication that the action in question <b>is not</b> permitted <b><i>ab initio</i>? Rather,</b> is the term: Everyone, in the <i>baraita</i> that states: <b>Everyone is obligated in</b> the mitzva of <b><i>sukka</i>,</b> and in the <i>baraita</i> that states: <b>Everyone is obligated in</b> the mitzva of <b>ritual fringes, also</b> an indication <b>that</b> they are <b>not</b> permitted <b><i>ab initio</i>?</b>
+
+### Part 3
+Rav Aḥa answered: <b>I am not speaking</b> about cases where it is stated: Everyone is <b>obligated,</b> as it goes without saying that fulfilling any obligation is permitted <i>ab initio</i>. Rav Ashi asked: <b>If that is so,</b> that which was stated: <b>Everyone</b> who brings an offering <b>places hands</b> on the animal, <b>both men and women</b> (see <i>Menaḥot</i> 93a), is that <b>also</b> an expression indicating <b>that</b> it is <b>not</b> permitted <b><i>ab initio</i>? But isn’t it written: “And he shall place his hand</b> upon the head of the burnt offering, <b>and it shall be accepted</b> for him to effect atonement for him” (Leviticus 1:4)?
+
+### Part 4
+Rav Aḥa answered: <b>Indeed, there are</b> instances where the word: <b>Everyone,</b> indicates <b><i>ab initio</i>, and there are</b> instances where the word: <b>Everyone,</b> indicates <b>after the fact. Rather,</b> concerning the term: <b>Everyone, that</b> appears <b>here</b> in the mishna, <b>from where</b> can it be determined <b>that it is</b> an expression indicating that it is permitted <b><i>ab initio</i>,</b> creating an apparent contradiction in the mishna <b>that will be difficult for you? Perhaps</b> it is an expression indicating that everyone’s slaughter is valid <b>after the fact, and</b> there will <b>not</b> be a contradiction in the mishna that <b>will be difficult for you.</b>
+
+### Part 5
+Rav Ashi <b>said to</b> Rav Aḥa: <b>I</b> find the phrase: <b>And their slaughter is valid,</b> to be <b>difficult for me. From</b> the fact <b>that</b> the <i>tanna</i> <b>teaches: And their slaughter is valid,</b> which is an expression indicating that it is valid <b>after the fact,</b> conclude <b>by inference that</b> the initial phrase in the mishna: <b>Everyone</b> slaughters, <b>is</b> an expression indicating that it is permitted <b><i>ab initio</i>. As, if</b> it indicated that it is valid <b>after the fact, why do I</b> need <b>two</b> phrases teaching that it is valid <b>after the fact?</b>
+
+### Part 6
+<b>Rabba bar Ulla said,</b> in resolution of the conflict in the mishna, that <b>this</b> is what the mishna <b>is teaching: Everyone slaughters, and even a ritually impure</b> person may slaughter <b>a non-sacred</b> animal <i>ab initio</i>. The Gemara interjects: <b>What</b> is the purpose <b>of stating</b> that <b>a ritually impure</b> person may slaughter <b>a non-sacred</b> animal <i>ab initio</i>? There is no prohibition against rendering non-sacred meat impure. The Gemara answers that the reference is <b>to non-sacred</b> animals <b>that were</b> being <b>prepared according to</b> the strictures of <b>sacrificial</b> food, <b>and</b> the <i>tanna</i> <b>holds</b> that the halakhic status of <b>non-sacred</b> foods <b>that were prepared according to</b> the strictures of <b>sacrificial</b> food is <b>like</b> that of <b>sacrificial</b> food insofar as it is prohibited to render such food impure.
+
+### Part 7
+The Gemara asks: <b>How does</b> an impure person <b>act</b> in order to ensure that he will not render the flesh of the slaughtered animal impure? The Gemara answers: <b>He brings a long knife and slaughters</b> the animal <b>with it, so that he will not come into contact with the flesh</b> of the slaughtered animal.
+
+### Part 8
+Rabba bar Ulla continues his interpretation of the mishna: <b>And</b> the reason the mishna also indicates that he may not slaughter <i>ab initio</i> is that <b>with regard to sacrificial</b> animals, <b>he may not slaughter</b> them <i>ab initio</i> even with a long knife, <b>lest he come into contact with the flesh. But if he slaughtered</b> the sacrificial animal <b>and says:</b> It is <b>clear to me that I did not come into contact</b> with the flesh, <b>his slaughter is valid</b> after the fact.
+
+### Part 9
+And it teaches: This is the <i>halakha</i> with regard to all people <b>except for a deaf-mute, an imbecile, and a minor, who, even</b> if they slaughtered <b>only non-sacred</b> animals, their slaughter is <b>not</b> valid <b>even after the fact.</b> The reason the Sages deemed such slaughter not valid is <b>lest</b> people in these categories <b>interrupt</b> the slaughter, <b>lest they press</b> the knife in the course of slaughter, <b>and lest they conceal</b> the knife beneath the windpipe or the gullet in the course of an inverted slaughter.
+
+### Part 10
+The Gemara asks: If so, with regard to the clause that follows in the mishna: <b>And any of them who slaughtered</b> an animal and others see and supervise them, their slaughter is valid, <b>to which</b> case in the mishna is it referring? <b>If we say</b> that the reference is to the case <b>of a deaf-mute, an imbecile, and a minor,</b> why was it formulated: And any of them who slaughtered? Since <b>it stands adjacent</b> to that <i>halakha</i>, the <i>tanna</i> <b>should have</b> formulated the phrase: <b>And if they slaughtered. Rather,</b> perhaps the reference is to the case <b>of a ritually impure</b> person who slaughtered <b>a non-sacred</b> animal. The Gemara rejects that possibility as well. <b>But didn’t you say</b> in that case: <b>He slaughters</b> the animal <b>even <i>ab initio</i>?</b>
+
+### Part 11
+<b>And rather,</b> perhaps the reference is to the case <b>of a ritually impure</b> person who slaughtered <b>a sacrificial</b> animal. The Gemara rejects that possibility, as <b>in</b> that case, if the ritually impure person says: It is <b>clear to me</b> that I did not come into contact with the flesh, it is <b>sufficient,</b> and there is no need for supervision. The Gemara answers: Supervision is necessary in the case of a ritually impure person who slaughtered a sacrificial animal, to account for a case <b>where</b> the ritually impure person <b>is not before us</b> so <b>that we</b> can <b>ask him</b> whether he came into contact with the flesh.
+
+### Part 12
+The Gemara asks: Is <b>this</b> <i>halakha</i> of <b>a ritually impure</b> person who slaughtered <b>a sacrificial</b> animal <b>learned from</b> an analysis of the mishna <b>here?</b> It is <b>learned</b> explicitly <b>from</b> the mishna <b>there</b> (<i>Zevaḥim</i> 31b): With regard to <b>all</b> those <b>who are unfit</b> for Temple service <b>who slaughtered</b> an offering, <b>their slaughter is valid, as the slaughter</b> of an offering <b>is valid</b> <i>ab initio</i> when performed even <b>by non-priests, by women, by</b> Canaanite <b>slaves, and by ritually impure</b> individuals. <b>And</b> this is the <i>halakha</i> <b>even with</b> regard to <b>offerings of the most sacred order, provided that the ritually impure will not touch the flesh</b> of the slaughtered animal, thereby rendering it impure.
+
+### Part 13
+The Gemara answers: The mishna <b>here</b> is the <b>primary</b> source. <b>There, since</b> the <i>tanna</i> <b>taught the rest of</b> those <b>disqualified</b> for Temple service, <b>he taught</b> the case of <b>a ritually impure</b> person who slaughtered <b>a sacrificial</b> animal <b>as well. And if you wish, say</b> instead that the mishna <b>there</b> is the <b>primary</b> source, as it <b>is standing</b> in tractate <i>Zevaḥim</i>, <b>which</b> deals <b>with sacrificial</b> animals. <b>Here, since</b> the <i>tanna</i> <b>taught</b> the case of <b>a ritually impure</b> person who slaughtered <b>a non-sacred</b> animal, <b>he also teaches</b> the case of <b>a ritually impure</b> person who slaughtered <b>a sacrificial</b> animal.
+
+### Part 14
+The Gemara asks: <b>This ritually impure</b> person mentioned in the mishna is one <b>who became impure with what</b> form of impurity? <b>If we say that he became impure with</b> impurity imparted by <b>a corpse,</b> this is difficult, as <b>the Merciful One states:</b> “And whosoever in the open field touches <b>one slain with a sword”</b> (Numbers 19:16).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

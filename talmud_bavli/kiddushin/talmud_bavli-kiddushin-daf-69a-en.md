@@ -1,0 +1,33 @@
+
+### Part 1
+With regard to <b>one who says to his</b> pregnant Canaanite <b>maidservant: You are hereby a free woman but your offspring</b> shall remain <b>a slave, the offspring is</b> emancipated <b>like her.</b> This is <b>the statement of Rabbi Yosei HaGelili. And the Rabbis say:</b> The master’s <b>statement is upheld, because it is stated: “The wife and her children shall be her master’s”</b> (Exodus 21:4).
+
+### Part 2
+The Gemara expresses surprise at this ruling: <b>What is the</b> biblical <b>derivation</b> here? How do the Rabbis learn from here that the child of an emancipated maidservant remains a slave in this case? <b>Rava said:</b> The proof from the verse beginning with: “The wife and her children,” is not the source of the opinion of the Rabbis. Rather, this is referring <b>to</b> the statement <b>of Rabbi Yosei HaGelili,</b> who claims that the children follow their mother, as indicated by this verse. Consequently, if she is emancipated, her offspring do not retain the status of slaves.
+
+### Part 3
+<strong>MISHNA:</strong> <b>Rabbi Tarfon says: <i>Mamzerim</i> can be purified,</b> so that their offspring will not be <i>mamzerim</i>. <b>How so?</b> With regard to <b>a <i>mamzer</i> who married</b> a Canaanite <b>maidservant,</b> their <b>offspring is a slave.</b> If his master subsequently <b>emancipates him,</b> that <b>son is found</b> to be <b>a freeman,</b> rather than a <i>mamzer</i>. <b>Rabbi Eliezer says:</b> This method is not effective, as <b>this</b> son <b>is a <i>mamzer</i> slave.</b>
+
+### Part 4
+<strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages: Did <b>Rabbi Tarfon state</b> his <i>halakha <b>ab initio</b></i><b>,</b> i.e., a <i>mamzer</i> is permitted to marry a maidservant, <b>or</b> did <b>he state</b> it only <b>after the fact,</b> but he does not permit a <i>mamzer</i> to marry a maidservant <i>ab initio</i>? The Gemara answers: <b>Come</b> and <b>hear</b> proof from a <i>baraita</i>: The other Sages <b>said to Rabbi Tarfon: You have</b> thereby <b>purified the male</b> offspring of a <i>mamzer</i>, <b>but you have not purified the female</b> children of <i>mamzerim</i>, as your solution does not apply to them.
+
+### Part 5
+The Gemara explains the apparent proof from this <i>baraita</i>. <b>And if you say</b> that Rabbi Tarfon <b>stated</b> his <i>halakha <b>ab initio</b></i> and permitted a <i>mamzer</i> to marry a Canaanite maidservant, <b>a <i>mamzeret</i> should also</b> be allowed to <b>marry</b> a Canaanite <b>slave</b> and her child can then be emancipated as well. The Gemara answers: <b>A slave has no lineage.</b> Even if she were to marry a slave, their child would not be considered his, but would be a Jewish <i>mamzer</i> like her. Consequently, this source provides no proof with regard to the Gemara’s question.
+
+### Part 6
+The Gemara further suggests: <b>Come</b> and <b>hear, as Rabbi Simlai’s host was a <i>mamzer</i>, and</b> Rabbi Simlai <b>said to him: Had I</b> found out about your status <b>earlier,</b> before you married and had children, <b>I would have purified your sons</b> by advising you to marry a Canaanite maidservant, as suggested by Rabbi Tarfon. The Gemara explains the proof: <b>Granted, if you say</b> that Rabbi Tarfon spoke <b><i>ab initio</i>,</b> it is <b>well</b> that Rabbi Simlai would suggest this. <b>But if you say</b> that he meant only that this method is effective <b>after the fact, what was</b> the advice that Rabbi Simlai would have given his host?
+
+### Part 7
+The Gemara answers <b>that</b> Rabbi Simlai would have <b>advised him by saying: Go steal, and be sold as a Hebrew slave,</b> which would mean you could marry a Canaanite maidservant and your offspring would be slaves. The Gemara asks: <b>But in the days of Rabbi Simlai, was</b> the <i>halakha</i> of <b>a Hebrew slave</b> observed in practice? <b>But didn’t the Master say:</b> The <i>halakha</i> of <b>a Hebrew slave is practiced only when the Jubilee</b> Year <b>is practiced,</b> and Rabbi Simlai lived many years after the observance of the Jubilee Year ceased. <b>Rather, isn’t it</b> correct to <b>conclude from</b> it that <b>Rabbi Tarfon spoke <i>ab initio</i>,</b> i.e., it is permitted for a <i>mamzer</i> to marry a Canaanite maidservant? The Gemara affirms: Indeed, <b>conclude from</b> the <i>baraita</i> that this is the case. <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Tarfon.</b>
+
+### Part 8
+§ The mishna teaches that <b>Rabbi Eliezer says: This</b> son <b>is a <i>mamzer</i> slave. Rabbi Elazar said: What is the reason of Rabbi Eliezer? As the verse states</b> with regard to a <i>mamzer</i>: “Even to the tenth generation none <b>of his</b> shall enter the assembly of the Lord” (Deuteronomy 23:3), which indicates that in the case of the child of a <i>mamzer</i> and a Canaanite maidservant, one <b>follows his</b> parent with the <b>flawed</b> lineage, and the child is a <i>mamzer</i>.
+
+### Part 9
+The Gemara asks: <b>And</b> how do <b>the Rabbis,</b> i.e., Rabbi Tarfon, respond to this claim? Rabbi Tarfon maintains <b>that</b> this verse is referring <b>to a Jew</b> of unflawed lineage <b>who married a <i>mamzeret</i>.</b> It might <b>enter your mind to say</b> that as <b>it is written: “By their families, by their fathers’ houses”</b> (Numbers 4:2), the child should follow his father’s lineage rather than that of his mother. Therefore, the term <b>“of his”</b> in the previously cited verse <b>comes to exclude him</b> from his father’s lineage, as it indicates that his lineage follows his mother when she is a <i>mamzeret</i>.
+
+### Part 10
+<b>And</b> how does <b>Rabbi Eliezer</b> respond to this claim? Is it <b>not</b> the case that <b>even though</b> the Torah <b>wrote: “By their families, by their fathers’ houses,”</b> nevertheless, the term <b>“of his” comes and excludes him? Here too, although it is written: “The wife and her children shall be her master’s”</b> (Exodus 21:4), from which it is derived that the child of a Canaanite maidservant is like her, nevertheless the term <b>“of his” comes and excludes him. And</b> how do <b>the Rabbis,</b> Rabbi Tarfon, respond to this claim? They say: <b>Any offspring in the womb of a Canaanite maidservant is considered like the offspring in an animal’s womb.</b> Consequently, her children do not inherit the father’s status, even if his is the flawed lineage.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

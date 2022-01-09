@@ -1,0 +1,57 @@
+
+### Part 1
+<b>inside</b> the Sanctuary <b>outside</b> the Sanctuary, <b>or</b> the blood <b>that is</b> to be <b>placed outside</b> the Sanctuary <b>inside</b> the Sanctuary; and likewise, if he slaughtered the animal with the intent <b>that ritually impure</b> people <b>will partake of it,</b> or <b>that ritually impure</b> people <b>will sacrifice it,</b> or <b>that uncircumcised</b> people <b>will partake of it, or that uncircumcised</b> people <b>will sacrifice it;</b> and likewise, with regard to the Paschal offering, if he had intent during the slaughter <b>to break the bones of the Paschal offering,</b> or <b>to eat from</b> the meat of the Paschal offering <b>partially roasted, or to mix the blood of</b> an offering <b>with the blood of unfit</b> offerings, in all these cases, although he intended to perform one of these prohibited acts, some of which would render the offering unfit, the offering is <b>fit.</b>
+
+### Part 2
+The reason is <b>that intent does not render</b> the offering <b>unfit except in</b> cases of intent to eat or to burn the offering <b>beyond its</b> designated <b>time and outside its</b> designated <b>area, and</b> in addition, <b>the Paschal offering and the sin offering</b> are disqualified by intent to sacrifice them <b>not for their sake.</b>
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>What is the reasoning of Rabbi Yehuda,</b> who deems the offering unfit if there was intent to leave it over until the next day or to take it out of its designated area? <b>Rabbi Elazar said:</b> There are <b>two verses</b> that <b>are written with regard to <i>notar</i>. One verse states: “You shall let nothing of it remain until the morning,</b> and that which remains of it until the morning you shall burn with fire” (Exodus 12:10), <b>and one verse states: “He shall not leave any of it until the morning”</b> (Leviticus 7:15). <b>If</b> the additional verse <b>is not</b> necessary for <b>the matter of</b> the prohibition <b>against leaving</b> it overnight, which is already mentioned by the first verse, <b>apply it to the matter of intent of leaving</b> it overnight, which would therefore be prohibited as well.
+
+### Part 4
+The Gemara asks: <b>But</b> according to the opinion of <b>Rabbi Yehuda, does this verse come to</b> teach <b>this</b> idea? <b>This</b> verse is <b>necessary for him to</b> derive <b>that which is taught</b> in a <i>baraita</i>: The verse states: “And the flesh of the sacrifice of his peace offerings for thanksgiving shall be eaten on the day of his offering; he shall not leave any of it until the morning” (Leviticus 7:15). From the words: <b>“And the flesh of the sacrifice of his peace offerings for thanksgiving,” we learned with regard to a thanks offering that it is eaten for a day and a night.</b>
+
+### Part 5
+With regard to animals <b>exchanged</b> for thanks offerings, <b>and</b> the <b>offspring</b> of thanks offerings, and the <b>substitutes</b> of thanks offerings, <b>from where</b> is it derived that they too are eaten for only a day and a night? <b>The verse states: “And the flesh [<i>uvesar</i>],”</b> and the additional “and” includes them. With regard to <b>a sin offering and a guilt offering, from where</b> is it derived that they are eaten for only a day and a night? <b>The verse states: “Sacrifice,”</b> to include other types of offerings.
+
+### Part 6
+The <i>baraita</i> continues: <b>And from where</b> is it derived <b>to include the peace offering of a nazirite,</b> i.e., the ram that a nazirite brings at the close of his term of naziriteship, <b>and the peace offering of Passover? The verse</b> therefore <b>states: “His peace offerings,”</b> in the plural. With regard to <b>the loaves of</b> the <b>thanks offering, and the loaves and wafers that</b> are part <b>of</b> the offering brought by <b>a nazirite, from where</b> is it derived that they are eaten for only a day and a night? <b>The verse states: “His offering.” With regard to all of them I</b> will <b>read</b> the phrase <b>“He shall not leave</b> any of it until the morning” as being applicable. Evidently, this verse is necessary to teach numerous <i>halakhot</i> concerning the allotted time to partake of offerings.
+
+### Part 7
+The Gemara answers: <b>If so, let the verse state: And you shall let nothing</b> of it <b>remain</b> until the morning, as stated in the other verse. <b>What</b> is indicated by the phrase <b>“He shall not leave</b> any of it”? <b>If</b> it <b>is not</b> necessary for the <b>matter of</b> the prohibition <b>against leaving</b> it overnight, <b>apply it</b> to the <b>matter of intent</b> to <b>leave</b> it overnight.
+
+### Part 8
+The Gemara now questions the source cited by Rabbi Elazar: <b>This works out well</b> to explain the opinion of Rabbi Yehuda with regard to one who had intent <b>to leave</b> the sacrificial portions overnight. But with regard to disqualifying the offering due to one who had intent <b>to remove</b> them from the Temple, <b>what can be said</b> to explain the source of Rabbi Yehuda, as it cannot be derived from these verses?
+
+### Part 9
+<b>And furthermore,</b> the statement of Rabbi Elazar can be questioned, as <b>the rationale of Rabbi Yehuda is</b> based on <b>logical reasoning</b> and is not derived from a verse. This is <b>as it is taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda said to</b> the Rabbis: <b>Do you not concede that if he left it over until the next day that it is disqualified? So too,</b> if <b>he intended to leave it over until the next day</b> it is <b>disqualified.</b> Clearly, Rabbi Yehuda bases his opinion on logical reasoning, as he equates intent with action. The Gemara asks: <b>Rather, is the rationale of Rabbi Yehuda</b> based on <b>logical reasoning</b> and not derived from the verse? <b>But</b> if so, <b>Rabbi Yehuda should also disagree with regard to all of</b> the other cases in the mishna due to the same reasoning.
+
+### Part 10
+The Gemara rejects this: <b>With regard to which</b> case <b>should</b> Rabbi Yehuda <b>disagree?</b> Should he disagree <b>with regard to one who</b> slaughters the offering with intent to <b>break the bones of the Paschal offering, or</b> with intent <b>to partake of</b> the Paschal offering while it is <b>partially roasted?</b> Even had he actually realized such intent, <b>would the offering itself</b> thereby <b>be disqualified?</b> It presumably would not, as the presenting of the blood effects acceptance.
+
+### Part 11
+Likewise, if a rite was performed <b>on the condition that ritually impure</b> individuals <b>will partake of it, or that ritually impure</b> individuals <b>will sacrifice it,</b> i.e., burn the sacrificial portions on the altar, <b>would the offering itself be disqualified</b> if such actions occurred? Likewise, if it was done with the intent <b>that uncircumcised</b> individuals <b>will partake of it, or that uncircumcised</b> individuals <b>will sacrifice it, would the offering itself be disqualified</b> if this occurred? The Gemara presents <b>another version</b> of this question: <b>Is it in his</b> power to execute these actions that are contingent upon the will of others?
+
+### Part 12
+With regard to a case where one had intent <b>to mix their blood with the blood of unfit</b> offerings, where <b>Rabbi Yehuda</b> also does not disagree with the ruling of the mishna that the offering is valid, he conforms <b>to his</b> line of <b>reasoning, as he says: Blood does not nullify blood.</b> Therefore, even if one would actually mix the two types of blood, it would not be disqualified. Likewise, in cases where one had intent <b>to place</b> the blood <b>that is</b> to be <b>placed above</b> the red line <b>below</b> the red line, or those that are to be placed <b>below</b> the red line <b>above</b> the red line, <b>Rabbi Yehuda</b> conforms <b>to his</b> line of <b>reasoning, as he says:</b> Blood <b>that</b> was <b>not</b> placed <b>in its</b> proper <b>place</b> on the altar is <b>also considered</b> to be placed in <b>its</b> proper <b>place,</b> and it effects acceptance of the offering.
+
+### Part 13
+The Gemara suggests: <b>And let him disagree with regard to</b> a case of blood that is to be <b>placed inside</b> the Sanctuary <b>that</b> was <b>placed outside, and</b> blood <b>that is</b> to be <b>placed outside</b> the Sanctuary <b>that</b> was <b>placed inside,</b> as the verse explicitly states that an external sin offering whose blood was sprinkled inside is disqualified (see Leviticus 6:23).
+
+### Part 14
+The Gemara explains: <b>Rabbi Yehuda holds</b> that in order to disqualify an offering with the intent to perform a rite outside its designated area, <b>we require that</b> the intended <b>place have threefold</b> functionality, i.e., <b>for</b> the presenting of the <b>blood, for</b> the eating of the <b>meat, and for</b> the burning of the <b>sacrificial portions</b> on the altar, which is true only of the area outside the Temple courtyard, which was valid for these three activities during an era in which it was permitted to sacrifice offerings on private altars. Therefore, intent to present the blood in the Sanctuary, which lacks these three elements, does not disqualify the offering, as the meat and sacrificial portions are never eaten or burned there.
+
+### Part 15
+The Gemara asks: <b>And does Rabbi Yehuda accept this reasoning</b> that it must be a place of threefold functionality? <b>But isn’t it taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda says</b> that the verse states: “You shall not sacrifice to the Lord your God an ox, or a sheep, that has a blemish, even any <b>evil thing”</b> (Deuteronomy 17:1). The verse <b>included here a sin offering that one slaughtered in the south</b> and not on the northern side of the Temple courtyard as required, <b>and</b> likewise <b>a sin offering whose blood entered inside,</b> i.e., it was slaughtered with the intent that its blood would be brought inside the Sanctuary, that they are <b>disqualified.</b> This indicates that an offering slaughtered with improper intent with regard to a place that lacks threefold functionality nevertheless renders the offering not valid.
+
+### Part 16
+The Gemara responds: <b>And</b> does <b>Rabbi Yehuda not accept</b> the requirement of a place of <b>three</b> functions? <b>But didn’t we learn</b> in a mishna (82a) that <b>Rabbi Yehuda said:</b> If <b>he brought</b> the blood into the Sanctuary <b>unwittingly,</b> the blood remains <b>fit</b> for presenting, from which it may be inferred: <b>But</b> if he brought it in <b>intentionally,</b> it is <b>unfit. And we maintain</b> that Rabbi Yehuda deems it unfit only <b>where</b> one actually <b>effected atonement,</b> i.e., he presented the blood on the inner altar.
+
+### Part 17
+<b>Now,</b> it stands to reason that <b>if there,</b> where one actually <b>brought</b> the blood inside, only <b>if he effected atonement, yes,</b> it is unfit, but <b>if he did not effect atonement</b> it is <b>not</b> unfit, then <b>here, where</b> he merely <b>thought</b> to bring it inside, <b>all the more so</b> is it <b>not</b> clear that it should be valid? The Gemara answers: There are <b>two <i>tanna’im</i>, and</b> they disagree <b>with regard to</b> the opinion <b>of Rabbi Yehuda</b> concerning a place with threefold functionality.
+
+### Part 18
+The Gemara asks: <b>And</b> does <b>Rabbi Yehuda hold</b> that with regard to <b>a sin offering that one slaughtered in the south,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

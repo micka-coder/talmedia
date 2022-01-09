@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>en</b> trainant <b>une paille de ble</b> sur la membrane pour voir si elle s'accroche a une perforation.
+
+### Partie 2
+<b>Rav Sheizvi a dit : Nos oies sont considerees comme des oiseaux aquatiques.</b> Si le crane d'une oie est brise, meme si la membrane n'est pas perforee, c'est une <i>tereifa</i>.
+
+### Partie 3
+§ La mishna declare : Dans le cas ou un oiseau <b>tombe dans le feu</b> et que ses entrailles ont ete roussies, si elles sont devenues vertes, l'oiseau est un <i>tereifa</i> ; si elles sont rouges, l'oiseau est casher. <b>Rabbi Yohanan dit au nom de Rabbi Yosei ben Yehoshua : La mesure de leur</b> virage <b>verdissant est comme la mesure de leur perforation. De meme que leur perforation dans n'importe quelle quantite</b> les rend <i>tereifa</i>, <b>de meme leur verdissement dans n'importe quelle quantite</b> les rend <i>tereifa</i>.
+
+### Partie 4
+<b>Rav Yosef, fils de Rabbi Yehoshua ben Levi, a demande a Rabbi Yehoshua ben Levi : Si un foie devient vert</b> du cote <b>faisant face aux intestins, quelle est</b> la <i>halakha</i> ? Rabbi Yehoshua ben Levi <b>lui a repondu :</b> L'oiseau est <b>un <i>tereifa</i>.</b> Rav Yosef <b>lui a repondu : Mais</b> cette <i>halakha</i> <b>ne doit pas etre plus</b> rigoureuse que celle d'un cas ou le foie a ete <b>enleve</b> et ou il est reste une olive-bulk (voir 54a), auquel cas l'oiseau est cachere. Par consequent, tant qu'un olive-bulk reste rouge, l'oiseau doit etre cachere. <b>Rava a dit : Puisque le foie est devenu vert face aux intestins, il est certain que</b> l'oiseau <b>est tombe dans le feu et que les intestins</b> eux-memes <b>ont ete brules, et</b> c'est pourquoi l'animal est <b>un <i>tereifa</i>,</b> pas a cause du foie en soi.
+
+### Partie 5
+La Gemara raconte : <b>Rabbi Yehoshua ben Levi avait une certaine poule</b> qui est tombee dans le feu. Apres son abattage, <b>il l'envoya devant le distingue Rabbi Elazar HaKappar et lui dit :</b> Ses entrailles <b>etaient vertes, et</b> Rabbi Elazar HaKappar <b>l'a jugee cachere.</b> Rabbi Yehoshua ben Levi demanda : <b>Mais n'avons-nous pas appris</b> dans la mishna : S'ils sont devenus <b>verts</b>, ils sont <b>inadaptes ?</b> Rabbi Elazar HaKappar lui a repondu : Les Sages ont <b>dit</b> que si elles sont devenues <b>vertes</b>, elles sont <b>infirmes seulement en ce qui concerne le gesier, le cœur et le foie,</b> qui sont naturellement rouges. Les autres entrailles d'une poule, comme les intestins, sont naturellement vertes, et une apparition de vert dans celles-ci ne rend pas la poule <i>tereifa</i>. La Guemara note : <b>Cela est egalement enseigne</b> dans une <i>baraita</i> : <b>Concernant quelles entrailles a-t-on dit</b> qu'un aspect vert rend l'oiseau un <i>tereifa</i> ? Seulement <b>concernant le gesier, le cœur et le foie.</b>
+
+### Partie 6
+La Guemara raconte : <b>Rabbi Yitzhak bar Yosef avait une certaine poule</b> qui est tombee dans le feu. Apres l'avoir abattue, <b>il l'envoya devant Rabbi Abbahou et lui dit :</b> Ses entrailles <b>etaient rouges, et</b> Rabbi Elazar HaKappar <b>l'a jugee <i>tereifa</i>.</b> Rabbi Yitzhak bar Yosef demanda : <b>Mais n'avons-nous pas appris</b> dans la mishna : S'ils sont <b>rouges,</b> l'oiseau est <b>cacher ?</b> Rabbi Elazar HaKappar <b>lui a repondu : Des entrailles rouges</b> qui sont devenues vertes et des entrailles vertes</b> qui sont devenues rouges</b> rendent l'animal <b>un <i>tereifa</i>.</b> Les Sages <b>ont dit</b> dans la mishna que les entrailles <b>rouges</b> ne sont cacheres qu'en ce qui concerne le cœur, le gesier et le foie,</b> car ces organes sont naturellement rouges. Les organes qui sont naturellement verts, cependant, rendent l'oiseau <i>tereifa</i> s'ils sont devenus rouges.
+
+### Partie 7
+<b>Rav Shmuel bar Hiyya dit</b> que <b>Rabbi Mani dit :</b> Si des organes <b>rouges</b> <b>sont devenus verts, et qu'on les fait bouillir et qu'ils redeviennent rouges, ils sont cachers. Quelle en est la raison ? </b> Cela prouve qu'ils n'ont pas ete brules ; plutot, la <b>fumee est entree en eux</b> et a change leur couleur temporairement. <b>Rav Nahman bar Yitzhak a dit : Nous aussi, nous dirons :</b> Si des organes <b>rouges</b> <b>n'ont pas vire au vert, et qu'on les a fait bouillir et qu'ils</b> alors <b>vont virer au vert,</b> l'animal est <b>un <i>tereifa</i>. Quelle en est la raison ? Leur honte a ete revelee,</b> c'est-a-dire qu'il est evident qu'ils ont ete en fait brules. <b>Rav Ashi a dit : Par consequent,</b> meme si les entrailles d'un oiseau restent rouges apres etre tombees dans un feu, <b>une personne ne peut le manger que</b> s'il est <b>bouilli,</b> pour etre certain que les entrailles ne deviendront pas vertes. La Guemara rejette cette idee : <b>Mais</b> cela <b>n'est pas ainsi,</b> car <b>on ne presume pas</b> l'existence d'un <b>defaut</b> sans preuve.
+
+### Partie 8
+§ La mishna dit : Si une personne <b>traine</b> l'oiseau, <b>ou le claque contre un mur,</b> ou si un animal l'ecrase, et que cela dure vingt-quatre heures, puis on l'abat, il est cachere. <b>Rabbi Elazar ben Antigonus dit au nom de Rabbi Elazar, fils de Rabbi Yannai : Tant ceci que cela,</b> c'est-a-dire tous les cas ci-dessus, <b>exigent une inspection</b> apres l'abattage, pour verifier qu'il n'y a pas de blessure qui rendrait elle-meme l'animal <i>tereifa</i>.
+
+### Partie 9
+<strong>MISHNA :</strong> <b>Et ceux-ci sont cacheres parmi les oiseaux :</b> Si le <b>conduit d'air d'un oiseau a ete perfore ou fendu</b> dans le sens de la longueur ; ou si <b>une belette a frappe</b> l'oiseau <b>sur la tete</b> a <b>un endroit qui ne le rend pas <i>tereifa</i> ;</b> ou si <b>le jabot a ete perfore. Rabbi</b> Yehuda HaNasi <b>dit :</b> Il est cachere <b>meme</b> si le jabot <b>a ete enleve. </b> Si les <b>intestins de l'oiseau</b> ont emerge de la paroi abdominale <b>mais n'ont pas ete perfores,</b> ou si <b>ses ailes ont ete brisees,</b> ou si <b>ses pattes ont ete brisees,</b> ou si les plumes de <b>ses ailes ont ete arrachees,</b> l'oiseau est cachere. <b>Rabbi Yehuda dit : Si le duvet</b> recouvrant son corps <b>a ete enleve,</b> c'est un <i>tereifa</i> et <b>inapte</b> a la consommation.
+
+### Partie 10
+<strong>GEMARA :</strong> <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant Rabbi Simai et Rabbi Tsadok, qui allerent intercaler l'annee a Lod, et ils passerent Chabbat dans</b> la ville de <b>Ono. Et ils ont statue a propos</b> d'un animal dont on a enleve le <b>videau</b>, <b>conformement</b> a l'avis de <b>Rabbi</b> Yehuda HaNasi dans la mishna <b>a propos de la recolte.</b>
+
+### Partie 11
+<b>Un dilemme a ete souleve devant</b> les Sages : Quelle est la signification de la <i>baraita</i> ? Se refere-t-il a deux decisions differentes, c'est-a-dire que <b>ils ont statue en ce qui concerne le ventre pour l'interdire</b> et ils ont egalement statue <b>conformement</b> a l'opinion de <b>Rabbi</b> Yehuda HaNasi <b>en ce qui concerne la culture pour la permettre</b> ? <b>Ou peut-etre</b> il ne fait reference qu'a un seul jugement, et cela signifie que <b>ils ont juge en ce qui concerne la matrice pour la permettre</b>, <b>conformement</b> a l'avis de <b>Rabbi</b> Yehuda HaNasi <b>en ce qui concerne la culture, mais ils ne tiennent pas conformement</b> a l'avis de <b>Rabbi</b> Yehuda HaNasi <b>en ce qui concerne la culture</b> elle-meme. La Gemara conclut : Le dilemme restera non resolu.
+
+### Partie 12
+<b>Rabba dit, et certains disent</b> que c'est <b>Rabbi Yehoshua ben Levi</b> qui dit : <b>Le toit de la culture est traite comme le gosier,</b> c'est-a-dire qu'il rend l'oiseau <i>tereifa</i> s'il est perfore de quelque maniere que ce soit. La Gemara demande : <b>Ou</b> est le toit de la recolte ? <b>Rav Beivai bar Abaye dit :</b> C'est <b>toute</b> partie de la culture <b>qui s'etend avec</b> le gosier.
+
+### Partie 13
+§ La mishna dit : Si les <b>intestins de l'oiseau</b> ont emerge de la paroi de l'estomac mais n'ont pas ete perfores, l'oiseau est cachere. <b>Rabbi Shmuel bar Rav Yitzhak dit :</b> Les Sages <b>ont enseigne</b> cette <i>halakha</i> <b>uniquement</b> dans un cas <b>ou on ne les a pas melanges,</b> mais ou on les a remis dans l'estomac dans leur ordre. <b>Mais</b> si <b>il les a melanges,</b> l'oiseau est <b>un <i>tereifa</i>, comme il est ecrit : "N'est-ce pas Lui qui t'a fait et t'a etabli ?</b> (Deuteronome 32:6). Le verset <b>enseigne que le Saint, Beni soit-Il, a cree des emplacements etablis</b> pour chaque organe <b>dans une personne,</b> de sorte <b>que si l'un d'entre eux est commute, il ne peut vivre.</b> Il en est de meme pour les autres creatures.
+
+### Partie 14
+<b>Il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Meir dirait</b> que le verset : <b>"Ne t'a-t-il pas fait, et etabli ?"</b> enseigne que le peuple juif est <b>une ville avec tout ce qu'elle contient. D'elle</b> sortent <b>ses pretres, d'elle</b> sortent <b>ses prophetes, d'elle</b> sortent <b>ses chefs, d'elle</b> sortent <b>ses rois, comme il est dit :" D'eux sortira la pierre angulaire, d'eux le pieu, d'eux l'arc de combat, d'eux tous les maitres ensemble" (Zacharie 10:4).
+
+### Partie 15
+La Gemara relate un incident impliquant <b>un certain Romain qui vit un certain homme tomber du toit sur le sol,</b> et <b>son estomac se rompit et ses intestins sortirent.</b> Le Romain <b>amena</b> le <b>fils de l'homme et le massacra devant</b> les yeux de son pere.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

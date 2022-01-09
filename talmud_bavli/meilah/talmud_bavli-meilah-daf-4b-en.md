@@ -1,0 +1,45 @@
+
+### Part 1
+<b>And furthermore,</b> one may cite proof for the opinion of Rav Giddel from that <i>baraita</i>, <b>as the latter clause</b> of the <i>baraita</i> <b>teaches:</b> If <b>its blood was left overnight</b> instead of being sprinkled on the altar on the day it was slaughtered, <b>even though</b> the priest <b>later sprinkled it</b> on the following day, nevertheless, one who derives benefit <b>from it</b> is liable for <b>misuse</b> of consecrated property.
+
+### Part 2
+The Gemara analyzes this statement of the <i>baraita</i>: <b>Granted, if you say</b> that the <i>baraita</i> is referring <b>to a sin offering,</b> then it is <b>well.</b> Since the blood was disqualified for sprinkling by being left overnight, it does not become permitted to the priests even after the blood is sprinkled, and is therefore subject to the <i>halakhot</i> of misuse. But if the blood had not been left overnight, the offering would not be subject to the <i>halakhot</i> of misuse, as the sprinkling would have removed the sin offering from that category due to the fact that it became permitted for the priests.
+
+### Part 3
+<b>But if you say</b> that the <i>baraita</i> is referring <b>to a burnt offering,</b> does it <b>need to be said</b> that it is still subject to the <i>halakhot</i> of misuse? A burnt offering remains subject to the <i>halakhot</i> of misuse even if the blood had not been left overnight and the sprinkling was performed properly, as it never becomes permitted to the priests.
+
+### Part 4
+The Gemara comments: <b>The latter clause</b> of the <i>baraita</i> <b>certainly supports</b> the opinion of Rav Giddel, as it clearly shows that an unfit sprinkling does not remove an offering from being subject to the <i>halakhot</i> of misuse. But with regard to <b>the first clause</b> of the <i>baraita</i>, <b>what</b> does it teach concerning the opinion of Rav Giddel? Is it reasonable to say that <b>since the latter clause</b> of the <i>baraita</i> <b>supports</b> the opinion of Rav Giddel, <b>the earlier clause,</b> which states that <i>piggul</i> is always subject to the <i>halakhot</i> of misuse, <b>also supports his</b> opinion?
+
+### Part 5
+The Gemara rejects this suggestion: It is <b>not</b> even <b>certain</b> that <b>the latter clause supports</b> Rav Giddel, as it is possible that although the sprinkling of blood that was left overnight does not remove an offering from being subject to the <i>halakhot</i> of misuse, nevertheless, sprinkling after <i>piggul</i> does achieve this. The Gemara clarifies: <b>What is the difference</b> between the two cases? The difference is with regard to <b>leaving</b> the blood <b>overnight, where it is performed in</b> relation to <b>an action,</b> i.e., the priest failed to act in the proper manner, <b>sprinkling</b> the blood <b>is not effective to remove</b> the offering from the status of being subject to the <i>halakhot</i> of <b>misuse.</b>
+
+### Part 6
+By contrast, in the case of sprinkling after <i>piggul</i>, where the disqualification is merely a function of <b>intent,</b> which <b>is not performed in</b> relation to <b>an action,</b> perhaps <b>sprinkling</b> the blood <b>is effective to remove</b> the offering from the status of being subject to the <i>halakhot</i> of <b>misuse.</b>
+
+### Part 7
+The Gemara suggests: <b>Let</b> us <b>say</b> that <b>this</b> <i>baraita</i> <b>supports</b> the opinion of Rav Giddel: With regard to <b>an offering of the most sacred order that</b> is <b><i>piggul</i>,</b> one who derives benefit <b>from it</b> is liable for <b>misuse</b> of consecrated property.Does this <b>not</b> mean that it is subject to the <i>halakhot</i> of misuse <b>even though</b> the priest <b>sprinkled</b> its blood, <b>and</b> if so this <i>baraita</i> <b>supports</b> Rav Giddel’s opinion? The Gemara rejects this suggestion: <b>No,</b> one cannot cite a proof from this <i>baraita</i>, as it is possible that it is referring to a case <b>where</b> the priest did <b>not</b> yet <b>sprinkle the blood.</b>
+
+### Part 8
+The Gemara asks: <b>But</b> if that is so, <b>what,</b> then, is the <i>halakha</i> if the priest did <b>sprinkle</b> the blood? Is the <i>halakha</i> <b>indeed that</b> one is <b>not</b> liable for <b>misusing it?</b> If so, <b>why is it taught</b> in <b>the latter clause</b> of the <i>baraita</i>: Unlike an offering of the most sacred order, <b>in</b> the case of <b>an offering of lesser sanctity,</b> one who derives benefit <b>from it</b> is <b>not</b> liable for <b>misuse</b> of consecrated property?
+
+### Part 9
+The Gemara explains the difficulty: If there is a difference between whether or not the priest sprinkled the blood, <b>let</b> the <i>baraita</i> <b>distinguish and teach</b> the distinction <b>in the first clause,</b> with regard to the case of offerings of the most sacred order itself, as follows: <b>Before</b> the <b>sprinkling</b> of the blood one is liable for <b>misusing</b> the offering, but <b>after</b> the <b>sprinkling</b> of the blood one is <b>not</b> liable for <b>misusing it.</b> It is not necessary to mention offerings of lesser sanctity at all. The Gemara concludes: <b>That</b> statement in the latter clause of the <i>baraita</i> <b>certainly supports</b> Rav Giddel’s opinion.
+
+### Part 10
+The Gemara suggests: <b>Shall</b> we <b>say</b> that <b>since the latter clause supports</b> the opinion of Rav Giddel, <b>the first clause also supports</b> his opinion? The Gemara again answers that even the latter clause does not necessarily support the opinion of Rav Giddel, as one can explain that the reason the <i>baraita</i> distinguishes between offerings of the most sacred order and offerings of lesser sanctity, rather than providing a distinction within the category of offerings of the most sacred order itself, is that the case of <b>offerings of lesser sanctity is clear-cut,</b> i.e., all cases of offerings of lesser sanctity that are <i>piggul</i> are not subject to the <i>halakhot</i> of misuse. By contrast, <b>here</b> in the case of offerings of the most sacred order, it <b>is not clear-cut,</b> as there is a difference depending on the sprinkling of the blood.
+
+### Part 11
+§ The mishna teaches that <b>Rabbi Yehoshua said a principle</b> with regard to misuse of disqualified sacrificial animals: With regard to <b>any</b> sacrificial animal <b>that had a period of fitness to the priests</b> before it was disqualified, one is <b>not</b> liable for <b>misusing it.</b> Misuse fundamentally applies to items consecrated to God, which are not permitted for human consumption at all. Once the offering was permitted for consumption by the priests, it is no longer in that category. <b>And</b> with regard to <b>any</b> sacrificial animal <b>that did not have a period of fitness for the priests</b> before it was disqualified, one is liable for <b>misusing it,</b> as it remained consecrated to God throughout.
+
+### Part 12
+The mishna clarifies: <b>Which is</b> the sacrificial animal <b>that had a period of fitness for the priests?</b> This category includes a sacrificial animal <b>whose</b> meat <b>remained overnight</b> after it was properly sacrificed, and was therefore disqualified as <i>notar</i>, <b>and</b> one <b>that</b> was disqualified when it <b>became ritually impure</b> after it was properly sacrificed, <b>and</b> one <b>that left</b> the Temple courtyard after it was properly sacrificed and was thereby disqualified. All of these disqualifications transpired after consumption of the sacrificial meat was permitted, and therefore one who derives benefit from these offerings is not liable for misuse.
+
+### Part 13
+<b>And which is</b> the sacrificial animal <b>that did not have a period of fitness for the priests?</b> It is a sacrificial animal <b>that was slaughtered</b> with the intent to partake of it or sprinkle its blood or sacrifice its sacrificial portions <b>beyond its</b> designated <b>time, or outside its</b> designated <b>area, or</b> one <b>that</b> those <b>unfit</b> for Temple service <b>collected and sprinkled its blood.</b> All of these disqualifications occurred before consumption of the sacrificial meat was permitted by means of the sprinkling of the blood. Therefore, these offerings remain consecrated to God and one is liable for misuse if one derives benefit from them.
+
+### Part 14
+With regard to this matter, the Gemara relates that <b>bar Kappara said to bar Pedat: My sister’s son, look</b> into the topic of the question <b>that you will ask me tomorrow in the study hall.</b> The question involved the interpretation of Rabbi Yehoshua’s statement: Any sacrificial animal that had a period of fitness to the priests. Was it <b>fitness</b> of <b>slaughtering</b> that <b>we learned,</b> i.e., provided that it was slaughtered properly, even if the offering was later disqualified, it is no longer subject to the <i>halakhot</i> of misuse.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

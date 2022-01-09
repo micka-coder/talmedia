@@ -1,0 +1,18 @@
+
+### Partie 1
+La Gemara repond : <b>Ceci</b> n'est <b>pas difficile. Ce</b> cas, ou le vœu ne prend pas effet, est <b>lorsqu'on a dit : Cette offrande [<i>ha korban</i>],</b> et <b>cette</b> cas, ou le vœu prend effet, est <b>la ou on a dit : L'offrande [<i>hakorban</i>]. Quelle est la raison</b> pour laquelle le vœu ne prend pas effet lorsqu'il dit cette offrande [<i>ha korban</i>] ? C'est parce que <b>il dit</b> qu'il fait un vœu par <b>la vie de</b> cette <b>offrande,</b> ce qui n'est pas une facon valide d'exprimer un vœu.
+
+### Partie 2
+La mishna <b>enseigne</b> que si l'on dit : Ce que <b>je ne mangerai pas de toi est <i>lakorban</i>,</b> ce qui indique <i>la korban</i>, ce n'est pas une offrande, <b>Rabbi Meir lui interdit</b> de manger la nourriture appartenant a l'autre individu. En effet, sa declaration indique que ce qu'il mange sera considere comme une offrande. La Gemara demande : <b>N'est-il pas vrai</b> que <b>Rabbi Meir ne tient pas que d'une declaration negative</b> <b>on</b> peut <b>inferer une declaration positive</b> ? La Gemara repond que <b>Rabbi Abba a dit : C'est comme s'il avait dit : Ce sera pour une offrande [<i>lekorban</i>],</b> et <b>c'est pourquoi je ne mangerai pas</b> ce qui est <b>a toi.</b>
+
+### Partie 3
+<strong>MISHNA:</strong> <b>Quelqu'un qui dit a un autre :</b> Il est <b><i>konam</i></b> pour moi que <b>ma bouche</b> parle avec toi,</b> ou : C'est <i>konam</i> pour moi pour <b>ma main</b> de <b>travailler avec toi,</b> ou : C'est <i>konam</i> pour moi pour <b>mon pied</b> de <b>marcher avec toi, il lui est interdit</b> de parler, de travailler ou de marcher avec l'autre individu.
+
+### Partie 4
+<strong>GEMARA:</strong> La Gemara <b>souleve une contradiction</b> a partir de la <i>baraita</i> suivante : Il existe une <b>striction</b> qui s'applique <b>aux serments au-dela</b> des strictes qui s'appliquent <b>aux vœux, et</b> il existe une stricte qui s'applique <b>aux vœux au-dela</b> des strictes qui s'appliquent <b>aux serments. La rigueur</b> qui s'applique <b>aux vœux est que les vœux prennent effet par rapport a une mitzva comme</b> ils le font <b>par rapport aux activites facultatives</b>, <b>ce qui n'est pas le cas par rapport aux serments,</b> car on ne peut pas faire un serment pour negliger une mitzva. <b>Et la rigueur</b> qui s'applique <b>aux serments est que les serments prennent effet sur une matiere qui a une substance et une matiere qui n'a pas de substance, ce qui n'est pas le cas en ce qui concerne les vœux,</b> qui ne prennent effet que sur une matiere qui a une substance. Ceci est en contradiction avec la mishna, qui indique qu'un vœu peut s'appliquer a des paroles ou a des actions, qui ne sont pas des elements physiques ayant une substance concrete.
+
+### Partie 5
+<b>Rav Yehuda a dit :</b> La mishna fait reference <b>a celui qui dit : Ma bouche sera interdite</b> en ce qui concerne <b>mon discours,</b> ou : <b>Mes mains</b> seront interdites en ce qui concerne <b>leur travail,</b> ou : <b>Mes pieds</b> devront etre interdits en ce qui concerne <b>leur marche.</b> Dans ces cas, le vœu s'applique a un membre, qui est un element concret, et donc il prend effet. La Guemara commente : Le langage de la mishna <b>est egalement precis</b> selon cette interpretation, <b>car elle enseigne :</b> Car <b>ma bouche</b> pour <b>parler avec vous, et elle n'enseigne pas : Ce que je dis avec vous.</b> Cela indique qu'il a impose le vœu a sa bouche et non a l'acte de parler.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

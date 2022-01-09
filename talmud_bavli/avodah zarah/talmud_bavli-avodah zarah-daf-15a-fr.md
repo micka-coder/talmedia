@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Et Rabbi Elazar dit : Meme dans un endroit ou l'on a interdit de laisser</b> un animal <b>en reclusion</b> avec un Gentil, il est <b>permis de le vendre</b> a un Gentil. <b>Quelle en est la raison ?</b> Une fois l'animal vendu au Gentil, il n'y a pas de crainte qu'il se livre a la bestialite. En effet, <b>un Gentil epargne son</b> propre <b>animal</b> de la bestialite, <b>car</b> il ne veut <b>pas</b> qu'il <b>devienne sterile</b> par cette pratique. En revanche, il est interdit de laisser son animal a l'ecart chez un Gentil, car il n'aurait pas ce genre de scrupule a l'egard d'un animal appartenant a autrui. La Guemara note : <b>Et meme Rav s'est retracte de son</b> avis ; <b>comme le dit Rav Tahlifa</b> que <b>Rav Sheila bar Avimi dit au nom de Rav : Un Gentil epargne son animal, car</b> il ne <b>pas</b> veut qu'il <b>devienne sterile.</b>
+
+### Partie 2
+§ La mishna enseigne : <b>Mais en tout lieu, on ne doit pas vendre</b> aux Gentils <b>le gros betail,</b> les veaux ou les poulains, que ces animaux soient entiers ou endommages. La Gemara explique : <b>Quelle en est la raison?</b> La Gemara explique : <b>Accorde, nous ne sommes pas concernes par</b> le Gentil s'engageant dans la <b>bestialite</b> avec l'animal, mais <b>nous sommes concernes</b> par le fait qu'il <b>mette</b> l'animal <b>au travail</b> le Chabbat.
+
+### Partie 3
+La Gemara exprime sa perplexite : <b>Et laisser</b> le Gentil <b>le mettre</b> <b>au travail.</b> Pourquoi s'inquieter de cette possibilite ? <b>Puisqu'il l'a achete, il l'acquiert</b> et peut le mettre au travail le Chabbat, puisqu'il n'appartient plus au Juif. La Guemara repond : Le vendre est interdit par <b>decret rabbinique en raison</b> du souci de <b>preter et en raison</b> du souci de <b>louer</b> l'animal au Gentil, car dans ces cas, l'animal effectuerait un travail le Chabbat alors qu'il appartient a un Juif.
+
+### Partie 4
+La Gemara souleve une autre difficulte : Mais pendant cette periode, l'acte d'<b>emprunter</b> l'animal fait que le Gentil l'<b>acquiert temporairement, et</b> de meme, en <b>laissant</b> l'animal, il l'<b>acquiert temporairement.</b> Pourquoi, alors, y a-t-il un probleme si le Gentil fait travailler l'animal le Chabbat ?
+
+### Partie 5
+<b>Au contraire, Rami, fils de Rav Yeiva, a dit :</b> La vente est interdite par <b>decret rabbinique en raison</b> du souci par rapport aux <b>epreuves. Comme parfois, on vend</b> un animal <b>a</b> un Gentil lorsqu'on est <b>proche du coucher du soleil de la veille de Chabbat, et</b> on lui <b>dit : Va</b> et <b>teste</b> l'animal, <b>et il entend la voix de</b> son proprietaire juif <b>et marche grace a son</b> ordre. <b>Et il est avantageux pour</b> le vendeur juif <b>que</b> l'animal <b>marche,</b> car il veut demontrer au Gentil qu'il est apte au travail. <b>Et</b> de cette maniere, <b>il est</b> considere comme <b>celui qui conduit son</b> <b>animal charge le Chabbat. Et celui qui conduit son <b>animal charge le Chabbat</b> est <b>faisable</b> d'apporter <b>un sacrifice pour le peche.</b>
+
+### Partie 6
+<b>Rav Sheisha, fils de Rav Idi, s'oppose a</b> l'hypothese de la Gemara selon laquelle la location confere la propriete. <b>Et</b> en <b>louant</b> un objet, <b>fait-on</b> reellement <b>acquerir</b> cet objet ? <b>Mais n'avons-nous pas appris</b> dans la mishna (21a) : <b>Meme dans un lieu</b> a propos duquel</b> les Sages ont <b>dit</b> qu'il est permis a un Juif <b>de louer</b> une maison a un Gentil, <b>ils n'ont pas dit</b> qu'on peut la louer <b>pour</b> l'utiliser comme <b>residence, parce que</b> les Gentils y <b>porteront des objets d'adoration <b>idolique ?</b> L'objection est la suivante : <b>Et s'il vous vient a l'esprit</b> de dire que par <b>la location</b> on <b>acquiert</b> un objet ou un bien, alors <b>lorsque ce</b> Gentil <b>apporte</b> les idoles <b>dans</b> la maison <b>il les apporte dans sa</b> propre <b>maison.</b> Pourquoi, alors, est-il interdit a un Juif de louer une residence a un Gentil ?
+
+### Partie 7
+La Gemara repond : <b>L'adoration des idoles est differente, car il s'agit</b> d'une interdiction particulierement <b>severe</b>, et donc meme un objet qui n'appartient pas entierement a un Juif est traite avec une grande rigueur. <b>Comme il est ecrit : "Et tu n'apporteras pas d'abomination dans ta maison"</b> (Deuteronome 7:26), et cette maison garde encore le nom de son proprietaire juif.
+
+### Partie 8
+<b>Rav Yitzhak, fils du Rav Mesharshiyya,</b> s'oppose egalement a</b> l'hypothese de la Gemara selon laquelle la location confere la propriete. <b>Et</b> en <b>louant</b> un objet, <b>fait-on</b> reellement <b>acquerir</b> cet objet ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Terumot</i> 11:9) : <b>Un Israelien qui a loue une vache a un pretre peut lui donner des vesces de <i>teruma</i>,</b> car l'animal appartient a un pretre ; <b>et</b> inversement, <b>un pretre qui a loue une vache a un Israelien, bien que la responsabilite de la nourrir lui incombe, il ne peut pas lui donner des vesces de <i>teruma</i>,</b> car elle ne lui appartient pas.
+
+### Partie 9
+<b>Et s'il vous vient a l'esprit</b> de dire que par <b>leasing</b> on <b>acquiert</b> l'objet, <b>pourquoi ne peut-il pas</b> le pretre <b>le nourrir</b> de vesces de <i>teruma</i> ? Apres tout, <b>c'est</b> actuellement <b>sa propre vache. Apprenez plutot</b> ici que l'on <b>n'acquiert pas</b> un objet par <b>leasing.</b> La Gemara commente : <b>Et maintenant que vous</b> avez <b>dit</b> que l'on <b>n'acquiert pas</b> un bien par <b>leasing,</b> et donc qu'un animal qui a ete loue a un Gentil appartient toujours au Juif, la proposition initiale peut etre acceptee : La raison pour laquelle on ne peut pas vendre du gros betail a des Gentils est un <b>decret rabbinique du</b> au souci de <b>louer, et un decret du</b> au souci de <b>preter</b> l'animal au Gentil, <b>et</b> egalement <b>un decret du</b> au souci de <b>tester.</b>
+
+### Partie 10
+§ La Gemara relate : <b>Rav Adda a permis</b> aux proprietaires d'un ane <b>de vendre</b> leur <b>ane</b> a des gentils <b>par le biais</b> d'un <b>mediateur juif [<i>desafseira</i>].</b> Il a raisonne comme suit : <b>Si</b> le souci est <b>du a l'epreuve,</b> dans ce cas l'animal <b>ne reconnait pas la voix de</b> l'intermediaire de sorte <b>qu'il marcherait a cause de lui. Et si</b> le souci est <b>du au pret et a la location, puisque</b> l'ane <b>n'est pas a lui,</b> cet intermediaire <b>ne le preterait ni ne le louerait</b>. <b>En outre,</b> l'intermediaire ne louerait ni ne preterait l'animal <b>parce que</b> il veut le vendre et <b>ne veut pas</b> qu'un <b>probleme s'y revele.</b>
+
+### Partie 11
+La Gemara relate : <b>Rav Huna a vendu une certaine vache a un gentil. Rav Hisda lui dit : Quelle est la raison</b> pour laquelle <b>le Maitre a agi de cette maniere ?</b> Rav Huna <b>lui a repondu :</b> Je peux <b>dire</b> qu'il l'a achetee</b> dans le but <b>de l'abattre</b> et non de l'utiliser pour le travail.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

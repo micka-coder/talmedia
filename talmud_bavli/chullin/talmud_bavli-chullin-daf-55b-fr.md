@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>L'emplacement de la crevasse. Et ou se trouve l'emplacement de la crevasse ? </b> Il s'agit d'une reference <b>a la matiere blanche</b> <b>sous les reins. Rav Nehunya a dit : J'ai demande a toutes les autorites sur les <i>tereifot</i> d'Occident, et elles m'ont dit : La <i>halakha</i></b> est <b>conforme</b> a l'avis de <b>Rakhish bar Pappa</b> au nom du Rav qu'un rein malade rend un animal <i>tereifa</i>, <b>mais la <i>halakha</i></b> n'est <b>pas conforme</b> a l'avis de <b>Rav Avira</b> qu'une rate perforee rend l'animal un <i>tereifa</i>.
+
+### Partie 2
+La Guemara ajoute : Et <b>meme</b> en ce qui concerne l'avis <b>du Rav Avira, nous avons dit</b> que la <i>halakha</i> n'est pas conforme a son avis <b>seulement</b> si la rate a ete perforee <b>dans son <b>extremite etroite,</b> inferieure, mais</b> si elle a ete perforee <b>dans son <b>extremite epaisse,</b> superieure, </b> l'animal est <b>un <i>tereifa</i>. Et</b> meme s'il a ete perfore dans son extremite epaisse, <b>si</b> il n'a pas ete perfore completement et qu'une couche de la rate <b>aussi epaisse qu'un dinar d'or</b> reste intacte, l'animal est <b>cacher.</b>
+
+### Partie 3
+§ <b>On dit en Occident,</b> Eretz Yisrael : <b>Toute</b> blessure <b>qui rend</b> un animal <b>inapte</b> a la consommation lorsqu'elle se produit <b>dans le poumon est cachere</b> lorsqu'elle se produit <b>dans le rein. </b> Par exemple, <b>une perforation</b> rend un animal <b>inapte</b> lorsqu'elle se produit <b>dans le poumon</b> (voir 42a), <b>mais</b> l'animal <b>est casher</b> si elle se produit <b>dans le rein. Et</b> il s'ensuit que <b>a plus forte raison, lorsque</b> un animal <b>est cachere</b> malgre une blessure <b>au poumon,</b> il restera <b>cachere</b> malgre une blessure similaire <b>au rein.</b>
+
+### Partie 4
+<b>Rabbi Tanhuma s'oppose a cela : Et est-ce</b> un <b>principe etabli ? Mais</b> qu'en est-il d'un cas de <b>pus, ou</b> l'animal est <b>cacher</b> s'il se produit <b>dans le poumon et impropre</b> a la consommation s'il se produit <b>dans le rein ? Et</b> qu'en est-il du <b>fluide clair, qui est cachere</b> a la fois <b>ici et la,</b> c'est-a-dire qu'il se produise dans les poumons ou dans le rein ? <b>Au contraire, Rav Ashi a dit : Etes-vous</b> vous <b>comparer les <i>tereifot</i> les uns aux autres ? On ne peut pas dire a propos de <i>tereifot</i> : C'est semblable a cela, car on coupe</b> un animal <b>par ici,</b> a un endroit, <b>et il meurt,</b> alors que <b>on le coupe par la,</b> a un autre endroit, <b>et il vit.</b> Certaines blessures peuvent compromettre le rein mais pas le poumon, ou vice versa.
+
+### Partie 5
+La Guemara note : <b>Et</b> en ce qui concerne le <b>fluide clair</b> trouve dans les poumons ou le rein, qui est <b>cacher, nous avons dit</b> ainsi <b>seulement</b> dans un cas <b>ou</b> le fluide etait <b>non trouble, mais</b> s'il etait <b>bleu,</b> l'animal est <b>un <i>tereifa</i>. Et meme lorsque</b> le fluide etait <b>non voile, nous avons dit</b> que l'animal est cachere <b>seulement</b> si le fluide <b>n'est pas fetide, mais s'il est fetide,</b> l'animal est <b>un <i>tereifa</i>.</b>
+
+### Partie 6
+La Guemara continue a discuter des cas de <i>tereifot</i> dus aux reins : En ce qui concerne <b>un rein qui a retreci, chez les petits</b> animaux, tels que les moutons, l'animal est une <i>tereifa</i> s'il a retreci <b>jusqu'a</b> la taille <b>d'un haricot ; chez les grands</b> animaux, tels que les bovins, l'animal est une <i>tereifa</i> s'il a retreci <b>jusqu'a</b> la taille <b>d'un <b>grappin</b> de taille intermediaire.</b>
+
+### Partie 7
+§ La mishna declare : Si la machoire <b>inferieure de l'animal a ete retiree,</b> elle reste cachere. A ce sujet, <b>Rabbi Zeira dit :</b> Les Sages <b>ont enseigne</b> ceci <b>uniquement lorsque</b> l'animal <b>est capable de vivre en placant</b> de la nourriture dans sa bouche <b>ou en la fourrant</b> dans sa gorge. <b>Mais</b> si <b>il ne peut pas vivre en placant ou en bourrant</b> la nourriture en lui, il est <b>un <i>tereifa</i>.</b>
+
+### Partie 8
+§ La mishna declare : Si <b>son ventre [<i>em</i>] a ete retire,</b> l'animal reste cachere. Un Sage <b>a enseigne : Le <i>em</i> est</b> synonyme du <b><i>tarpahat</i>, et il est</b> synonyme du <b><i>shalpuhit</i>.</b>
+
+### Partie 9
+§ La mishna declare : <b>Or</b> si son poumon <b>s'est ratatine [<i>haruta</i>] par la main du Ciel,</b> l'animal est <b>cacher. Les Sages ont enseigne</b> dans un <i>baraita</i> : <b>Qu'est-ce qu'un <i>haruta</i> ? </b> C'est <b>tout animal</b> <b>dont le poumon s'est ratatine.</b> Si cela s'est produit <b>par la main du Ciel,</b> par exemple, si le poumon s'est ratatine a cause de la peur du tonnerre et des eclairs, l'animal est <b>cacher.</b> Mais si cela s'est produit <b>par la main d'une personne</b> qui l'a effraye, par exemple, s'il a ete temoin de l'abattage d'un autre animal, c'est <b>un <i>tereifa</i>. Rabbi Shimon ben Elazar dit : Meme</b> si le poumon s'est ratatine <b>par les mains d'une creature quelconque,</b> par exemple, s'il a ete effraye par le rugissement d'un lion.
+
+### Partie 10
+<b>Un dilemme a ete souleve devant</b> les Sages : <b>Est-ce que</b> la declaration de <b>Rabbi Shimon ben Elazar fait reference a la premiere clause</b> de la <i>baraita</i>, auquel cas la declaration est <b>une indulgence,</b> et meme le rugissement d'un lion est considere par la main du Ciel ? <b>Ou</b> peut-etre <b>se refere-t-il a cette derniere clause, et</b> l'enonce est <b>une rigueur,</b> et un poumon ratatine par la main d'une creature quelconque rend l'animal un <i>tereifa</i> ?
+
+### Partie 11
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une preuve, <b>comme il est enseigne</b> dans la <i>baraita</i> ci-dessus : Un poumon qui a ete <b>reduit par les mains d'une personne</b> rend l'animal <b>un <i>tereifa</i>. Rabbi Shimon ben Elazar dit : Meme par les mains de n'importe quelle creature.</b> De toute evidence, Rabbi Shimon ben Elazar fait reference a cette derniere clause.
+
+### Partie 12
+La Guemara raconte : <b>Rabba bar bar Hana se promenait dans le desert,</b> et <b>il trouva certains beliers dont les poumons etaient ratatines. Il vint et demanda</b> dans <b>la salle d'etude</b> comment on peut determiner la cause de ce ratatinement. Les Sages lui <b>dirent : En ete, apportez des recipients blancs et remplissez-les d'eau froide et mettez</b> les poumons dedans <b>pendant</b> une <b>periode de vingt-quatre heures. S'ils redeviennent</b> d'apparence <b>saine,</b> c'est-a-dire s'ils se dilatent, on sait que <b>c'est par la main du Ciel et</b> les animaux sont <b>cacheres ; mais si</b> ils ne se <b>pas</b> dilatent, les animaux sont <b><i>tereifa</i>. En hiver, apportez des recipients sombres et remplissez-les d'eau tiede, et mettez</b> les poumons dedans <b>pendant</b> une <b>periode de vingt-quatre heures. Si</b> ils <b>reviennent</b> a paraitre <b>sains,</b> ils sont <b>cacheres ; mais sinon,</b> ils sont <b><i>tereifa</i>.</b>
+
+### Partie 13
+§ La mishna declare : Dans le cas d'un animal <b>dont la peau a ete enlevee,</b> Rabbi Meir le considere comme casher, et les rabbins le considerent comme un <i>tereifa</i>. A ce sujet, <b>les Sages ont enseigne :</b> Dans le cas d'un animal <b>dont la peau a ete enlevee, Rabbi Meir le juge cachere, et les rabbins le jugent</b> un <i>tereifa</i> et <b>inapte</b> a la consommation. <b>Elazar le scribe et Yohanan ben Gudgeda ont deja temoigne</b> devant les Sages <b>en ce qui concerne</b> un animal <b>dont on a enleve la peau</b> qu'il est <b>inapte</b> a la consommation. <b>Rabbi Shimon ben Elazar a dit : Rabbi Meir s'est retracte</b> sa declaration.
+
+### Partie 14
+La Guemara objecte : <b>Par deduction,</b> on peut conclure que <b>selon Rabbi Shimon ben Elazar, Rabbi Meir</b> etait initialement <b>en desaccord par rapport</b> a un animal <b>dont la peau a ete retiree. Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : <b>Rabbi Shimon ben Elazar a dit : Rabbi Meir et les Sages n'ont pas ete en desaccord en ce qui concerne</b> un animal <b>dont la peau a ete enlevee,</b> et tous sont d'accord <b>pour dire qu'il est impropre</b> a la consommation. <b>Et Rabbi Oshaya, fils de Rabbi Yehuda le marchand d'epices, a deja temoigne devant Rabbi Akiva au nom de Rabbi Tarfon a propos</b> d'un animal <b>dont la peau a ete enlevee qu'il est impropre</b> a la consommation. <b>Et si</b> un morceau de peau de la meme taille <b>qu'une <i>sela</i> est reste</b> intact, l'animal est <b>cacher.</b> La Guemara explique l'objection : La phrase : N'etait pas en desaccord, indique que Rabbi Meir n'a jamais ete en desaccord avec les Sages. <b>Rav Nahman bar Yitzhak dit : Quel</b> est le sens de la phrase : <b>N'etait pas en desaccord ?</b> Cela signifie que <b>Rabbi Meir n'est pas reste</b> ferme <b>dans son desaccord</b> et s'est retracte.
+
+### Partie 15
+La Guemara analyse la <i>baraita</i> : <b>Le Maitre a dit : Si</b> un morceau de peau de la meme taille <b>qu'une <i>sela</i> est reste</b> intact <b>dans</b> l'animal, il est <b>cacher.</b> La Gemara demande : <b>Ou</b> doit se trouver ce morceau de peau ? <b>Rav Yehuda dit</b> que <b>Shmuel a dit : </b> Le morceau de peau doit etre <b>tout le long de la colonne vertebrale.</b>
+
+### Partie 16
+<b>Un dilemme a ete souleve devant</b> les Sages : Shmuel veut-il dire <b>que</b> c'est cachere si <b>une bande de peau longue et fine</b> reste le long de la colonne vertebrale, de telle sorte que lorsque</b> on <b>combine sa surface</b>, elle <b>constituera</b> la meme taille <b>qu'une <i>sela</i> ? Ou peut-etre</b> il n'est cachere que si la peau restante a <b>la largeur d'une <i>sela</i> sur toute la colonne vertebrale ?</b> La Gemara repond : <b>Venez</b> et <b>entendez</b> la preuve de ce <b>que Rabbi Nehorai a explique au nom de Shmuel:</b> Elle doit etre <b>la largeur d'une <i>sela</i> le long de toute la colonne vertebrale.</b>
+
+### Partie 17
+<b>Rabba bar bar Hana dit :</b> Il doit y avoir un morceau de peau de la taille d'une <i>sela</i> sur <b>les extremites de</b> tous les <b>segments</b> de la colonne vertebrale et sur les extremites du femur et du tibia. <b>Rabbi Elazar ben Antigonus dit au nom de Rabbi Elazar, fils de Rabbi Yannai :</b> Le morceau de peau doit avoir la largeur d'une <i>sela</i> a <b>l'endroit de son nombril.</b>
+
+### Partie 18
+<b>Rabbi Yannai, fils de Rabbi Yishmael, souleve un dilemme : </b> Si toute la peau couvrant <b>l'endroit de la colonne vertebrale a ete enlevee, mais que toute</b> la peau restante <b>etait intacte,</b> ou si la peau couvrant <b>l'endroit de son nombril a ete enlevee mais que toute</b> la peau restante <b>etait intacte,</b> ou si la peau couvrant toutes les <b>pointes des segments a ete enlevee mais que toute</b> la peau restante <b>etait intacte, quelle</b> est la <i>halakha</i> ? La Gemara repond : Le dilemme <b>doit rester</b> non resolu.
+
+### Partie 19
+<b>Rav dit : Toute</b> partie de <b>la peau</b> qui a la taille d'une <i>sela</i> <b>sauvegarde</b> un animal <b>dont la peau a ete enlevee</b> de devenir une <i>tereifa</i>, <b>sauf la peau des sabots,</b> qui n'est pas consideree comme une peau. <b>Et Rabbi Yohanan dit : Meme la peau des sabots le sauve</b>.
+
+### Partie 20
+La Guemara raconte : <b>Rabbi Asi a demande a Rabbi Yohanan :</b> En ce qui concerne la <b>peau des sabots, quelle est</b> la <i>halakha</i> ? Est-ce qu'elle <b>sauvegarde</b> un animal <b>dont la peau a ete enlevee</b> s'il en reste un morceau de la taille d'une <i>sela</i> ? Rabbi Yohanan <b>lui a dit : Il sauve</b> l'animal. Rabbi Asi <b>lui dit :</b> Mais ne nous avez-vous pas <b>enseigne, notre maitre,</b> la mishna suivante (122a) : <b>Ceci</b> sont les entites <b>dont la peau est comme leur chair</b> en termes de statut halakhique, en ce qu'elle transmet l'impurete rituelle"¦ la peau de la tete d'un jeune veau, et <b>la peau des sabots ?</b> De toute evidence, la peau des sabots est consideree comme de la chair et non comme une veritable peau. Rabbi Yohanan <b>lui dit : Ne me trouble pas</b> en invoquant cette mishna, <b>car je l'enseigne au singulier.</b> Ce n'est que selon un Sage, Rabbi Shimon, que la peau des sabots n'est pas de la vraie peau ; selon les Rabbins, elle est consideree comme de la vraie peau.
+
+### Partie 21
+<b>Comme il est enseigne</b> dans une <i>baraita</i> : <b>Quelqu'un qui egorge un holocauste</b> avec l'intention <b>de bruler une olive-bulk de la peau sous la queue en dehors de sa</b> <b>zone designee,</b> c'est-a-dire en dehors de la cour du Temple, rend l'offrande <b>infrequentable, mais il n'y a pas</b> de responsabilite pour <b>excision du Monde-a-Venir [<i>karet</i>]</b> pour celui qui participe a l'offrande. S'il avait l'intention de la bruler <b>au-dela de son</b> <b>temps designe,</b> alors elle est rendue <b><i>piggul</i>, et on est responsable</b> de recevoir <b><i>karet</i> pour</b> en avoir pris part.</b> Cette <i>halakha</i> s'applique generalement a la chair d'une offrande mais pas a sa peau. Comme la peau sous la queue est douce, elle est traitee comme une partie de la chair. C'est l'avis des rabbins.
+
+### Partie 22
+<b>Eliezer ben Yehouda d'Evlayim a dit au nom de Rabbi Yaâkov, et ainsi dit Rabbi Shimon ben Yehouda d'Ikos au nom de Rabbi Shimon : Que ce soit la peau des sabots, ou la peau de la tete d'un jeune veau, ou la peau sous la queue, ou toute</b> peau <b>que les Sages ont enumeree en ce qui concerne l'impurete rituelle</b> sous le titre : <b>Ceci</b> sont les entites <b>dont la peau est comme leur chair</b> en termes de statut halakhique,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

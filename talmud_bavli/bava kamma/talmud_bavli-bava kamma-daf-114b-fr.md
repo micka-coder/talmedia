@@ -1,0 +1,114 @@
+
+### Partie 1
+<b>Et nous maintenons,</b> comme le conclut la Guemara ci-dessous, que Rabbi Yehuda HaNasi veut dire que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand selon</b> l'opinion de <b>Rabbi Shimon,</b> qui considere que le proprietaire desespere de recuperer son objet une fois qu'il est vole par un brigand.
+
+### Partie 2
+§ La Guemara examine <b>la</b> question <b>meme. Rabbi</b> Yehuda HaNasi <b>dit : Je dis</b> que la <i>halakha</b> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand. Un dilemme a ete souleve devant</b> les Sages : <Rabbi</b> Yehuda HaNasi <b>a-t-il dit</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand</b> selon l'opinion <b>des rabbins, </b> qui considerent que les proprietaires ne desesperent pas de recuperer leur objet, <b>et</b> un voleur n'acquiert donc <b>pas</b> les objets qu'il vole ? <b>Ou peut-etre disait-il</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un voleur</b> selon l'avis <b>de Rabbi Shimon,</b> qui soutient que les proprietaires desesperent de recuperer leur bien, <b>et</b> un voleur donc <b>acquiert</b> les objets voles.
+
+### Partie 3
+La Gemara tente de resoudre ce dilemme. <b>Venez</b> et <b>entendez</b> une preuve tiree de la mishna : Si des <b>douaniers ont pris</b> l'ane d'un individu et lui ont donne a la place un autre ane pris a un autre juif, ou si des bandits ont pris son vetement et lui ont donne a la place un autre vetement pris a un juif, ces objets lui appartiennent maintenant parce que les proprietaires ont desespere de les recuperer lorsqu'ils ont ete voles. Il apparait donc que le desespoir est presume a la fois dans le cas d'un voleur, c'est-a-dire le receveur des douanes, et dans le cas d'un voleur, c'est-a-dire les bandits.
+
+### Partie 4
+La Gemara clarifie : <b>De qui</b> l'opinion est exprimee dans cette mishna ? <b>Si</b> elle est conforme a l'opinion des <b>Rabbins,</b> qui supposent que les proprietaires desesperent uniquement dans le cas d'un voleur, cela <b>est difficile</b> car la mishna suppose que la victime d'un <b>voleur</b> desespere egalement de recuperer ses biens. Et <b>si</b> elle est conforme a l'opinion de <b>Rabbi Shimon,</b> qui suppose que les proprietaires ne desesperent que dans le cas d'un voleur, elle <b>est difficile</b> car la mishna suppose que la victime d'un <b>voleur</b> desespere aussi de recuperer ses biens.
+
+### Partie 5
+La Gemara presente la preuve : <b>Accorde, si vous dites</b> que <b>Rabbi</b> Yehuda HaNasi <b>disait</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand</b> selon l'opinion <b>de Rabbi Shimon, </b> qui considere que les proprietaires desesperent de recuperer leurs biens, <b>et</b> un voleur <b>acquiert donc</b> les objets voles, conformement a <b>l'avis de qui</b> cette <b>mishna</b> ? <b>C'est</b> conformement a l'opinion de <b>Rabbi</b> Yehuda HaNasi, et c'est <b>pour cette raison</b> que le voleur <b>acquiert</b> les objets voles.
+
+### Partie 6
+<b>Mais si vous dites</b> que <b>Rabbi</b> Yehuda HaNasi <b>disait</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un voleur</b> selon l'avis <b>des rabbins, et</b> un voleur n'acquiert donc <b>pas</b> les biens voles, conformement a <b>l'opinion de qui</b> cette <b>mishna</b> ? Puisque la mishna statue que les proprietaires ont vraisemblablement desespere a l'egard d'un voleur et d'un brigand, elle n'est <b>pas</b> conforme a l'opinion de <b>Rabbi</b> Yehuda HaNasi, <b>et elle n'est pas</b> conforme a l'opinion de <b>Rabbi Shimon, et elle n'est pas</b> conforme a l'opinion des <b>rabbebes.</b>
+
+### Partie 7
+La Guemara repond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire <b>a un bandit arme,</b> qui est considere comme un voleur parce qu'il vole en utilisant la force et l'agression, <b>et</b> la mishna <b>est</b> en accord avec l'opinion de <b>Rabbi Shimon,</b> qui soutient que le desespoir est suppose dans le cas d'un voleur. La Gemara demande : <b>Si c'est le cas, c'est</b> identique au cas d'un <b>voleur,</b> c'est-a-dire le premier cas de la mishna du collecteur de douanes, et il n'y a aucune raison pour que la mishna enseigne la meme <i>halakha</i> deux fois. La Guemara repond : La mishna souhaite enseigner la <i>halakha</i> a l'egard de <b>deux</b> <b>types</b> differents de <b>voleurs.</b>
+
+### Partie 8
+<b>Venez</b> et <b>entendez</b> une preuve differente basee sur le <i>baraita</i> precite : En ce qui concerne <b>un voleur, un brigand, et celui qui oblige</b> un autre a lui vendre quelque chose, <b>leurs objets consacres sont</b> consideres comme <b>consacres, et leur <i>teruma</i>,</b> la partie du produit designee pour le pretre, <b>est</b> consideree comme <b><i>teruma</i>, et leurs dimes sont</b> considerees comme <b>des dimes.</b>
+
+### Partie 9
+<b>A qui appartient</b> l'opinion exprimee dans ce <i>baraita</i> ? <b>Si</b> elle est conforme aux <b>Rabbins,</b> elle <b>est difficile</b> car la <i>baraita</b> suppose que la victime d'un <b>voleur</b> desespere egalement de recuperer ses biens, et donc que l'acte de consecration ou de separation des <i>teruma</i> ou dimes du voleur est valide. A l'inverse, <b>si</b> il est conforme a <b>Rabbi Shimon,</b> il <b>est difficile</b> car la <i>baraita</i> suppose que la victime d'un <b>voleur</b> desespere de recuperer son bien.
+
+### Partie 10
+<b>Accorde, si vous dites</b> que Rabbi Yehuda HaNasi <b>disait</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand</b> selon l'opinion <b>de Rabbi Shimon, </b> qui considere que le proprietaire desespere de recuperer son bien, c'est <b>pour cette raison</b> qu'un voleur <b>acquiert donc</b> les objets voles. <b>Mais si l'on dit</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un voleur</b> selon l'avis <b>des rabbins,</b> conformement a <b>quel</b> avis <b>cette <i>baraita</b> est-elle ecrite ?
+
+### Partie 11
+La Gemara repond : Lorsque le <i>baraita</i> fait reference a un voleur, il fait en realite reference <b>a un bandit arme,</b> qui est legalement considere comme un voleur, <b>et c'est</b> en accord avec l'opinion de <b>Rabbi Shimon,</b> qui considere que les victimes d'un voleur desesperent de recuperer leurs biens. La Gemara demande : <b>Si c'est le cas, cela est</b> identique au cas d'un <b>voleur</b> qui est mentionne dans le <i>baraita</i>. La Guemara repond : Le <i>baraita</i> souhaite enseigner la <i>halakha</i> par rapport a <b>deux</b> differents <b>types</b> de <b>voleurs.</b>
+
+### Partie 12
+<b>Rav Ashi a dit a Rabba : Venez</b> et <b>entendez</b> une preuve issue de la propre interpretation de Rabbi Yehuda HaNasi de la mishna (111b) qui stipule que les enfants qui heritent d'un objet vole par leur pere sont obliges de le rendre a son proprietaire s'il s'agit d'une chose qui sert de garantie legale a un pret, par exemple un terrain. <b>Rabbi</b> Yehuda HaNasi <b>enseignera a Rabbi Shimon, son fils,</b> que la mishna ne fait <b>pas</b> reference uniquement a <b>quelque chose qui peut effectivement servir</b> de <b>garantie legale,</b> c'est-a-dire la terre. <b>Au contraire,</b> il fait reference <b>meme</b> a <b>une vache</b> avec laquelle <b>il laboure,</b> ou <b>un ane</b> qu'il <b>conduit</b> en le dirigeant de <b>l'arriere,</b> et que les heritiers <b>sont obliges de rendre en raison de l'honneur de leur pere.</b>
+
+### Partie 13
+La Guemara en deduit : La <b>raison</b> pour laquelle les heritiers doivent rendre l'objet vole est <b>en raison de l'honneur de leur pere. Mais</b> si ce n'etait <b>pas</b> pour <b>l'honneur de leur pere,</b> ils ne seraient <b>pas</b> tenus de le rendre. <b>Concluez-en</b> que <b>Rabbi</b> Yehuda HaNasi <b>disait</b> que la <i>halakha</i> qui s'applique a un voleur est <b>comme</b> la <i>halakha</i> qui s'applique a <b>un brigand</b> selon l'avis <b>de Rabbi Shimon.</b> La Guemara affirme : <b>Concluez-en</b> qu'il en est ainsi.
+
+### Partie 14
+§ La mishna enseigne : <b>Et de meme,</b> en ce qui concerne <b>un essaim d'abeilles,</b> si les proprietaires ont desespere de recuperer les abeilles, elles appartiennent a celui qui les a trouvees. La Gemara s'interroge : <b>Quelle est la raison</b> pour laquelle la mishna inclut le cas des abeilles, qui commence par le terme : <b>Et ainsi de suite ?</b>
+
+### Partie 15
+La Gemara explique : <b>Voici</b> ce qu'elle dit :</b> La <i>halakha</i> enoncee par la mishna s'applique <b>meme</b> a <b>un essaim d'abeilles, qui est</b> la propriete des proprietaires via <b>une forme rabbinique</b> d'<b>acquisition</b> en raison du fait que l'on ne peut effectuer une acquisition legale des abeilles par la loi de la Torah. Il pourrait <b>entrer dans votre esprit de dire</b> que dans <b>cette affaire</b>, <b>puisqu'on acquiert</b> l'essaim d'abeilles <b>uniquement par la loi rabbinique, meme</b> lorsque la reponse des proprietaires est <b>non specifiee</b> on peut supposer qu'ils <b>desesperent</b> recuperer les abeilles, et le trouveur peut les garder. Pour contrer cela, la mishna <b>nous enseigne</b> que <b>si</b> on sait que <b>les proprietaires</b> des abeilles <b>desesperent</b> de les recuperer, <b>oui,</b> le trouveur peut garder les abeilles ; <b>si</b> ils n'ont <b>pas</b> desespere, <b>non,</b> il ne peut pas les garder.
+
+### Partie 16
+§ La mishna enseigne que <b>Rabbi Yohanan ben Beroka a dit : Une femme ou un mineur est juge credible</b> pour dire : C'est d'ici qu'est sorti cet essaim, et il appartient donc a un certain individu.
+
+### Partie 17
+La Gemara demande : <b>Une femme et un mineur sont-ils admissibles au temoignage ?</b> La <i>halakha</i> est que les femmes et les mineurs ne peuvent pas presenter de temoignage au tribunal, alors comment Rabbi Yohanan ben Beroka peut-il decider qu'ils sont juges credibles ? La Guemara explique que <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : Ici, nous avons affaire</b> a un cas <b>ou les proprietaires poursuivaient</b> les abeilles, <b>et la femme et le mineur parlaient avec desinvolture et disaient :</b> C'est <b>d'ici que cet essaim a emerge.</b> Dans ce contexte, on peut supposer que l'individu identifie comme le proprietaire est le veritable proprietaire des abeilles, meme en l'absence de temoignage formel au tribunal.
+
+### Partie 18
+Ayant evoque un cas de remarques desinvoltes, la Guemara indique que <b>Rav Ashi dit :</b> Les informations glanees aupres de <b>une personne qui parle de maniere desinvolte ne sont valables qu'en ce qui concerne le temoignage</b> permettant a <b>une femme</b> de se remarier, car les Sages ont ete indulgents et ont decrete que les remarques incidentes de certains individus qui ne peuvent pas servir de temoins peuvent etre invoquees dans un tel cas.
+
+### Partie 19
+<b>Ravina a dit a Rav Ashi : Et</b> est-ce que c'est ainsi que l'on ne <b>pas</b> se fier a des remarques desinvoltes dans d'autres situations ? <b>Mais</b> le cas dans la mishna de <b>un essaim d'abeilles</b> est un cas de <b>une personne</b> qui <b>parle avec desinvolture,</b> et la <i>halakha</i> est qu'il est juge credible. Rav Ashi a repondu : <b>Un essaim d'abeilles est different, car il est</b> la propriete de ses proprietaires via <b>une forme rabbinique</b> d'<b>acquisition.</b> Par consequent, les Sages se sont appuyes sur des remarques desinvoltes.
+
+### Partie 20
+La Gemara demande : <b>Et</b> n'y a-t-il <b>aucun</b> cas ou des remarques desinvoltes exprimees par ceux qui sont ineligibles a temoigner devant un tribunal seraient acceptees <b>par la loi de la Torah ? Mais Rav Yehuda ne dit-il pas</b> que <b>Shmuel dit :</b> Il y eut <b>un incident impliquant une certaine personne qui parlait avec desinvolture et disait : Je me souviens quand j'etais enfant et que je</b> montais encore <b>sur l'epaule de pere. Et on me retirait de l'ecole, on m'enlevait ma tunique et on m'immergeait</b> dans un bain rituel pour que je puisse <b>participer au <i>teruma</i> ce soir-la.</b>
+
+### Partie 21
+<b>Et le rabbin Hanina</b> allait <b>conclure</b> son recit de l'incident <b>comme suit :</b> Cet individu a ensuite dit : <b>Et mes amis</b> se <b>separaient</b> de moi, et ils m'appelaient : Yohanan, mangeur de <i>hallot</i>,</b> reference a la portion de pate donnee aux pretres, qui a le meme statut que le <i>teruma</i>. <b>Et</b> apres avoir entendu cette anecdote, <b>Rabbi</b> Yehuda HaNasi <b>l'a eleve au rang de pretre</b> et lui a accorde le droit de participer a la <i>teruma</i> en se basant <b>sur sa declaration. </b> Puisqu'il est interdit aux non-pretres de consommer du <i>teruma</i> par la loi de la Torah, il est evident que des remarques desinvoltes peuvent etre invoquees meme en ce qui concerne la loi de la Torah, meme dans des cas sans rapport avec le fait de permettre a une femme de se remarier.
+
+### Partie 22
+Rav Ashi repond : Rabbi Yehouda HaNasi lui a accorde le droit de participer a des produits qui sont <b><i>teruma</i></b> seulement <b>par la loi rabbinique,</b> car il soutient que l'obligation de separer <i>teruma</i> apres la destruction du Temple est par la loi rabbinique. On peut encore poser que les remarques desinvoltes faites par des personnes ineligibles a temoigner devant un tribunal ne sont pas jugees credibles au regard de la loi de la Torah.
+
+### Partie 23
+La Gemara demande : <b>Et pourtant,</b> n'y a-t-il <b>aucun</b> autre cas ou des remarques desinvoltes faites par ceux qui sont ineligibles a temoigner devant un tribunal seraient acceptees <b>par la loi de la Torah ? Mais lorsque Rav Dimi est venu</b> d'Eretz Yisrael, n'a-t-il pas <b>dit</b> que <b>Rav Hana de Carthage [Kartigna], et certains disent</b> que c'etait <b>Rav Aha de Carthage, a raconte : Un incident est arrive devant Rabbi Yehoshua ben Levi, et certains disent</b> que ce <b>incident est arrive devant Rabbi</b> Yehuda HaNasi, <b>a propos d'un certain enfant qui parlait avec desinvolture et disait : Ma mere et moi avons ete captures</b> et detenus <b>parmi les gentils.</b> Quand <b>je sortais pour puiser de l'eau, mon esprit</b> etait <b>sur ma mere,</b> et quand je sortais <b>pour ramasser du bois, mon esprit</b> etait <b>sur ma mere.</b> Comme l'enfant etait toujours conscient de sa mere, il etait conscient qu'elle n'etait pas violee par ses ravisseurs.
+
+### Partie 24
+La Guemara conclut la declaration de Rav Dimi et explique le defi : <b>Et Rabbi</b> Yehuda HaNasi <b>l'a mariee a un pretre</b> en se basant <b>sur sa declaration.</b> Puisque la loi de la Torah interdit a un pretre d'epouser une femme qui a eu des relations sexuelles avec un homme qui lui est interdit par la loi de la Torah et avec lequel elle ne peut pas etablir de lien conjugal, par exemple un Gentil, il est clair que Rabbi Yehuda HaNasi s'est appuye sur une remarque desinvolte, meme en ce qui concerne une interdiction par la loi de la Torah.
+
+### Partie 25
+La Guemara repond : Les Sages <b>ont ete indulgents a l'egard d'une femme capturee.</b> Selon la loi de la Torah, une femme faite captive peut etre presumee rester permise a un pretre, et ce sont les Sages qui ont decrete qu'elle est interdite en raison de la crainte qu'elle ait ete violee. C'est ce decret rabbinique qui peut etre ignore sur la base de remarques desinvoltes.
+
+### Partie 26
+§ La mishna enseigne : <b>Mais</b> si les abeilles se sont installees sur une branche d'arbre, <b>il ne peut pas couper</b> la <b>branche</b> de l'autre pour prendre les abeilles, meme a condition de lui donner plus tard l'argent pour cela. <b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yishmael, fils de Rabbi Yohanan ben Beroka, dit : C'est une stipulation du tribunal,</b> qui prend effet meme sans etre confirmee par les individus, <b>qu'il sera permis a quelqu'un</b> d'entrer <b>dans le champ d'un autre et de couper la branche d'un autre</b> afin de <b>sauver son</b> propre <b>swarm</b> d'abeilles. <b>Et</b> le proprietaire du champ <b>percoit alors la valeur de sa branche sur l'essaim de son congenere.</b>
+
+### Partie 27
+<b>Et c'est</b> egalement une <b>stipulation du tribunal que</b> celui qui voit le tonneau de miel d'un autre se briser <b>doit verser son</b> propre <b>vin et</b> ensuite utiliser le tonneau de vin vide pour <b>saliver le miel de l'autre,</b> qui est plus cher que le vin. <b>Et</b> le proprietaire du vin <b>percoit alors la valeur de son vin sur le miel de l'autre. Et c'est</b> egalement une <b>stipulation du tribunal que celui</b> qui voit que l'ane d'un autre est tombe <b>doit decharger son</b> propre <b>bois</b> de son propre ane <b>et charger a sa place le lin de l'autre,</b> qui est plus cher que le bois. <b>Et</b> le proprietaire du bois <b>percoit alors la valeur de son bois sur le lin de l'autre.</b> Ces stipulations prennent effet <b>car</b> c'est <b>a cette condition</b> que <b>Joshua a reparti Eretz</b> Yisrael <b>au peuple juif.</b>
+
+### Partie 28
+<strong>MISHNA :</strong> Dans le cas de <b>quelqu'un qui reconnait ses</b> <b>vaisseaux et rouleaux voles en la possession d'un autre, et qu'une rumeur s'etait repandue dans la ville</b> que le premier avait ete victime d'un <b>vol, l'acheteur,</b> c'est-a-dire, celui qui est en possession de ces objets, <b>doit preter serment a</b> la victime quant a <b>la somme d'argent</b> qu'il a depensee</b> pour l'achat, <b>et il</b> prend alors <b>cette somme d'argent en echange de la restitution des objets. <b>Et si aucune</b> telle rumeur ne s'etait repandue, <b>il n'est pas dans</b> la pretendue victime <b>du pouvoir</b> d'affirmer que les objets ont ete voles, et elle n'est pas en droit d'en exiger la restitution, <b>car je</b> pourrais <b>dire :</b> Les objets n'ont jamais ete voles ; au contraire, la pretendue victime les a <b>vendus a une autre personne, et cet</b> individu qui possede actuellement l'objet les a <b>achetes a</b> cette autre personne.
+
+### Partie 29
+<strong>GEMARA:</strong> La Gemara demande : <b>Et si une rumeur se repandait dans la ville</b> selon laquelle il aurait ete victime d'un <b>vol, qu'en est-il ? Soupconnons</b> qu'il a <b>peut-etre vendu les objets et qu'il repand lui-meme la rumeur</b> qu'ils ont ete voles afin de pouvoir les racheter.
+
+### Partie 30
+La Gemara repond que <b>Rav Yehuda a dit</b> que <b>Rav a dit:</b> La mishna discute d'un cas <b>ou des gens,</b> c'est-a-dire des invites, <b>sont entres dans sa maison, et il s'est leve la nuit et a crie [<i>vehifgin</i>], et a dit : Mes vases ont ete voles,</b> auquel cas il semble clair qu'il a ete victime d'un vol. La Guemara rejette ce raisonnement : Au contraire, le soupcon qu'il ment devrait s'appliquer <b>d'autant plus,</b> qu'il <b>a trouve un pretexte</b> pour pretendre que ses biens ont ete voles, et on devrait le soupconner de profiter malhonnetement de la situation.
+
+### Partie 31
+<b>Rav Kahana</b> conclurait cette</b> <i>halakha</i> en declarant <b>au nom du Rav:</b> La mishna discute d'un cas <b>ou</b> un groupe de personnes a passe la nuit dans sa maison. Et <b>il y avait un tunnel</b> qui avait ete <b>creuse dans sa maison, et les personnes qui ont passe la nuit</b> en tant qu'invites <b>dans sa maison sont parties avec des ballots de recipients sur leurs epaules, et chacun dit : Les vases d'untel ont ete voles.</b> Dans un tel cas, il y a une preuve evidente que le proprietaire a ete victime d'un vol.
+
+### Partie 32
+La Guemara remet en question cette explication : <b>Mais peut-etre</b> seuls les <b>vaisseaux ont ete</b> voles mais <b>les parchemins n'ont pas ete voles.</b> Pourquoi l'acheteur doit-il rendre les parchemins ainsi que les vaisseaux ? La Guemara repond que <b>Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit:</b> La mishna discute d'un cas <b>ou tout le monde <b>dit</b> que <b>les rouleaux</b> ont ete <b>aussi</b> voles.
+
+### Partie 33
+La Gemara demande : <b>Mais soupconnons</b> que <b>peut-etre</b> seuls des <b>petits</b> rouleaux ont ete pris, alors que <b>il pretend</b> que des <b>grands</b> rouleaux ont ete voles. Si tel est le cas, il revendique des rouleaux qui ne lui appartiennent pas. La Guemara repond que <b>Rabbi Yosei bar Hanina a dit :</b> La mishna discute d'un cas ou les gens <b>disent : Tel et tel parchemin et tel</b> parchemin ont ete voles, c'est-a-dire que l'on sait quels parchemins ont ete pris chez le proprietaire.
+
+### Partie 34
+La Guemara s'interroge egalement sur ce point : <b>Mais peut-etre</b> les parchemins qui ont ete voles <b>etaient anciens</b> et avaient donc perdu de leur valeur, alors que <b>il pretend</b> que des <b>nouveaux</b> parchemins ont ete pris. Si tel est le cas, il revendique des parchemins qui ne lui appartiennent pas. <b>Rav a dit :</b> La mishna discute d'un cas <b>ou les gens <b>disent</b> explicitement : <b>Ce sont les recipients d'untel</b> et <b>ce sont les parchemins d'untel.</b> Dans ce cas, on sait exactement quels objets ont ete voles.
+
+### Partie 35
+La Gemara demande : <b>Et est-ce que Rav</b> a reellement <b>dit cela ? Mais Rav</b> lui-meme ne <b>sort-il pas</b> qu'un <b>cambrioleur</b> qui est entre <b>et a pris des recipients et est parti est exempte</b> de payer pour ces objets ? <b>Quelle est la raison</b> de cette exemption ? C'est parce que <b>il les achete avec</b> son <b>sang.</b> Puisqu'un proprietaire est autorise a tuer un cambrioleur, ce dernier est exempte de rendre les objets voles, selon le principe : L'un recoit la plus grande punition. Par consequent, si le cambrioleur lui-meme est exempte, comment celui qui achete un objet au cambrioleur peut-il etre tenu de le rendre ?
+
+### Partie 36
+La Gemara explique : <b>Cette question, a savoir que</b> celui qui vole <b>acquiert</b> ce qu'il a vole, <b>ne s'applique</b> qu'au <b>cambrioleur, car il s'est initialement soumis a</b> etre <b>tue</b> lorsqu'il s'est introduit dans la maison. <b>Mais</b> concernant <b>ces voleurs, qui ont passe la nuit en tant qu'invites du proprietaire, <b>puisqu'ils n'ont pas</b> penetre par effraction dans la maison et se sont ainsi <b>soumis a</b> etre <b>tue,</b> ils ne sont <b>pas</b> exemptes de rendre l'objet vole.
+
+### Partie 37
+La Guemara note que <b>Rava dit : Nous avons enseigne</b> que toutes ces conditions doivent etre reunies pour que l'acheteur puisse etre contraint de rendre l'objet <b>uniquement</b> en ce qui concerne <b>un proprietaire qui a l'habitude de vendre ses recipients, mais</b> en ce qui concerne <b>un proprietaire qui n'a pas l'habitude de vendre ses recipients,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Partie 1
+§ La mishna enseigne que <b>la chambre d'Avtinas et la chambre de l'Etincelle</b> etaient des etages superieurs. A ce sujet, <b>un dilemme fut souleve devant</b> les Sages : <b>Ces salles etaient-elles</b> reellement des etages superieurs ? Ou peut-etre etaient-ils</b> simplement tres <b>hauts, </b> construits sur des piliers, et etaient donc <b>comme des etages superieurs.</b>
+
+### Partie 2
+La Gemara explique : <b>Venez</b> et <b>entendez</b> une resolution, <b>comme nous l'avons appris</b> dans une mishna qui traite des sept portes de la cour du Temple (<i>Middot</i> 1:5) : Il y avait trois portes <b>qui etaient au nord,</b> et la premiere d'entre elles etait la <b>Porte de l'Etoile.</b> Elle <b>etait comme un portique [<i>akhsadra</i>], et</b> il y avait <b>un etage superieur construit au-dessus,</b> ou la garde d'honneur se tenait, <b>avec les pretres qui regardaient d'en haut,</b> dans l'etage superieur ; <b>et les Levites</b> faisaient la garde <b>d'en bas. Et</b> la salle <b>avait une entree vers la zone non sacree</b> du Mont du Temple. Cette mishna indique que la Chambre de l'Etincelle etait un veritable etage superieur.
+
+### Partie 3
+La Gemara demande : <b>D'ou proviennent ces questions,</b> que les pretres et les levites surveillaient des etages differents ? Cela provient d'un verset, <b>comme l'ont enseigne les Sages</b> dans une <i>baraita</i> : Le verset stipule que Dieu a dit a Aaron : "Et tes freres aussi, la tribu de Levi, la tribu de ton pere, tu les feras venir pres de toi, <b>pour qu'ils t'accompagnent et te servent"</b> (Nombres 18:2). <b>Le verset parle</b> des levites qui accompagnent Aaron dans <b>votre,</b> c'est-a-dire celui d'Aaron, <b>service</b> de surveillance dans le Temple, qui est le seul service effectue a la fois par les pretres et les levites. Puisque le verset ne parle de la garde des levites que comme accompagnement de la garde des pretres, les levites ne veillent pas d'en haut comme les pretres, mais seulement d'en bas.
+
+### Partie 4
+Le <i>baraita</i> demande : <b>Dites-vous</b> que <b>le verset parle</b> des Levites accompagnant les pretres dans <b>votre service,</b> des pretres qui veillent, <b>ou</b> est-il <b>seulement</b> indique que les Levites doivent accompagner les pretres <b>par leur propre <b>service</b> de porter les vases sacres ? Le <i>baraita</i> explique que <b>lorsque</b> le verset <b>dit : "Et ils t"?accompagneront, et ils feront</b> la garde de la Tente de la Rencontre" (Nombres 18:4), il s"?agit de la garde <b>de tous</b> les <b>vaisseaux du Temple et de tout son service,</b> et par conséquent <b>leur</b> propre <b>service</b> de porter les vases sacrés <b>est</b> déjA énoncé. Comment, </b> alors, <b>je realise</b> le sens du verset precedent : <b>"Pour qu'ils vous accompagnent et vous servent"</b> (Nombres 18:2) ? <b>Le verset parle</b> des levites qui accompagnent les pretres dans <b>votre service,</b> des pretres qui veillent dans le Temple. <b>Comment cela ? </b> Les <b>pretres veillent d'en haut, et</b> les <b>Levites</b> les accompagnent <b>d'en bas.</b>
+
+### Partie 5
+§ En ce qui concerne le troisieme lieu dans lequel les pretres veilleraient, la mishna indique : Dans <b>la chambre du foyer</b>, le plafond etait rond comme une <b>cupola, et c'etait une grande salle.</b>
+
+### Partie 6
+La Gemara demande : <b>Mais y avait-il</b> seulement <b>un gardien dans la Chambre du Foyer ? Et</b> la Guemara <b>souleve une contradiction</b> d'une mishna (<i>Middot</i> 1:7) : <b>La Chambre du Foyer avait deux portes ; l'une,</b> du cote nord, etait <b>ouverte sur le rempart, et l'autre,</b> du cote sud, etait <b>ouverte sur la cour. Rabbi Yehouda dit : Cette</b> porte <b>ouverte sur la cour avait un petit guichet</b> dans la porte de la porte, <b>par lequel</b> les pretres <b>entraient</b> afin <b>d'examiner la cour</b> et de s'assurer que tout etait en ordre. La chambre du foyer avait deux portes, et il aurait donc du y avoir deux gardiens. <b>Abaye dit : Puisque</b> les deux portes <b>se trouvaient l'une a cote de l'autre,</b> c'est-a-dire directement opposees l'une a l'autre, il <b>etait suffisant qu'elles</b> soient surveillees <b>par un seul gardien,</b> qui pouvait <b>regarder ici et regarder la.</b>
+
+### Partie 7
+§ La mishna enseigne que la Chambre du Foyer etait <b>entouree</b> de <b>lignes de pierre</b> qui depassaient des murs et qui servaient de bancs. La Gemara demande : <b>Qu'est-ce que</b> ces <b>rangs de pierre</b> ? Ce sont des rangees de <b>pierres ciselees par lesquelles</b> les pretres <b>s'elevent vers</b> une autre rangee de <b>pierres,</b> ou ils pouvaient s'allonger. La Gemara demande : <b>Et fendraient-ils</b> les <b>pierres</b> lors de la construction du Temple ? <b>Mais n'est-il pas ecrit : "Car le Temple, lors de sa construction,</b> fut construit <b>de pierres entieres</b> preparees a la carriere ; et on n'entendit ni marteau, ni hache, ni aucun outil de fer dans le Temple, lors de sa construction" (IA Rois 6:7) ?
+
+### Partie 8
+<b>Abaye a dit :</b> Il etait interdit d'utiliser des outils en fer pour tailler les pierres uniquement a l'interieur de la zone du Temple. Dans ce cas, il etait permis d'avoir des pierres ciselees, <b>comme</b> les batisseurs <b>preparaient</b> les pierres dans un autre endroit. <b>Et</b> les batisseurs ont <b>initialement apporte des petites pierres et des grandes pierres</b> avec lesquelles ils ont construit le Temple, <b>comme il est ecrit :</b> "Et les fondations etaient faites de pierres couteuses, meme de grandes pierres, <b>des pierres de dix coudees, et des pierres de huit coudees"</b> (IA Rois 7:10). En conséquence, les plus grosses pierres étaient utilisées pour le niveau inférieur, tandis que les plus petites étaient destinées au niveau supérieur, formant des bancs en saillie sur lesquels les prêtres pouvaient dormir.
+
+### Partie 9
+La mishna enseigne que <b>les anciens de la famille patrilineaire</b> qui serviraient dans le Temple le jour suivant y <b>dormiraient,</b> sur les rangees de pierres. La Guemara demande : <b>Mais pourquoi</b> les pretres dormaient-ils sur les pierres ? <b>Qu'ils apportent des lits</b> dans la chambre du foyer. <b>Abaye a dit :</b> Il n'est <b>pas de bonne conduite d'apporter des lits dans le Temple.</b>
+
+### Partie 10
+La mishna enseigne en outre qu'en ce qui concerne les <b>jeunes hommes de la pretrise, chacun</b> d'entre eux dormait avec <b>son vetement sur le sol.</b> La Gemara demande : <b>Pourquoi</b> est-ce que <b>la,</b> dans la mishna precedente, le <i>tanna</i> <b>les appelle jeunes</b> [<b><i>rovim</i></b>] pretres, alors que <b>la,</b> le <i>tanna</i> <b>les appelle</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

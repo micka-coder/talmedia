@@ -1,0 +1,33 @@
+
+### Partie 1
+La Guemara aborde la suite du verset : <b>"Et bien que je t'aie afflige [<i>veinnitikh</i>]"</b> (Nahum 1:12). <b>Mar Zutra dit :</b> Cela signifie que <b>meme un pauvre [<i>ani</i>] qui est soutenu par la charite</b> doit aussi <b>effectuer la charite.</b> En ce qui concerne l'expression : <b>Et je ne t'affligerai plus [<i>aânekh</i>], Rav Yosef enseigne :</b> Cela signifie que s'il fait la charite aux autres, Dieu <b>ne lui montrera plus de signes de pauvrete [<i>aniyyut</i>].</b>
+
+### Partie 2
+§ La mishna enseigne que <b>Rabbi Yehuda dit : De Rekem et vers l'est</b> est considere comme un pays d'outre-mer, d'Akko et vers le nord est egalement hors d'Eretz Yisrael, et Akko lui-meme est comme le nord d'Eretz Yisrael. La Guemara demande : <b>Est-ce a dire que Akko est situe au</b> <b>nord d'Eretz Yisrael ? Et</b> la Guemara <b>souleve une contradiction</b> a partir d'une <i>baraita</i> (<i>Tosefta</i>, <i>Oholot</i> 18:14) qui indique qu'Akko n'est pas a la frontiere nord d'Eretz Yisrael : Si quelqu'un <b>se rendait d'Akko a Keziv,</b> la zone <b>a sa droite, a l'est de la route,</b> est <b>impure en raison</b> de l'impurete de <b>la terre des nations, et</b> cette zone <b>est exempte de l'obligation</b> de separer le <b>tithe</b> de ses produits <b>et de</b> les mitzvot de <b>l'annee sabbatique</b>, car elle est supposee etre hors d'Eretz Yisrael, <b>jusqu'a ce qu'il arrive a un endroit <b>ou il vous est connu qu'il est oblige. </b>
+
+### Partie 3
+La <i>baraita</i> continue : A l'inverse, le territoire <b>a sa gauche, a l'ouest de la route,</b> est <b>pur au regard</b> de l'impurete du <b>territoire des nations,</b> car il est suppose se trouver a l'interieur d'Eretz Yisrael, <b>et oblige dans la</b> mitzva de separer le <b>tithe</b> de ses produits <b>et dans</b> les mitzvot de <b>l'annee sabbatique</b>, <b>jusqu'a ce que</b> il arrive a un endroit <b>ou il vous est connu qu'il est exempt. Jusqu'ou</b> cette <i>halakha</i> s'applique-t-elle ? <b>Jusqu'a Keziv. Rabbi Yishmael, fils de Rabbi Yosei, a dit au nom de son pere : Jusqu'a</b> l'endroit connu sous le nom de <b>Lavlevu.</b> En tout cas, cela indique qu'Akko n'est pas considere comme la frontiere nord d'Eretz Yisrael, car la description dans la <i>baraita</i> indique que Keziv est plus au nord qu'Akko.
+
+### Partie 4
+<b>Abaye a dit : Une bande s'etend</b> vers le nord d'Akko, qui est toujours consideree comme faisant partie d'Eretz Yisrael, mais la frontiere generale est a la latitude d'Akko. La Guemara demande : <b>Mais</b> la <b><i>tanna</i></b> de la <i>baraita</i> <b>fournirait-elle un signe</b> de <b>cette</b> maniere pour une zone d'une bande de terre ? La Gemara repond : <b>Oui,</b> et <b>un verset fournit egalement un signe</b> de cette maniere, <b>comme il est ecrit : <b>Et ils dirent : Voici, il y a la fete du Seigneur d'annee en annee a Silo, qui est au nord de Bethel, a l'est de la route qui monte de Bethel a Sichem, et au sud de Lebonah"</b> (Juges 21:19). <b>Et Rav Pappa dit:</b> L'expression :" Du cote de l'est" doit etre comprise comme signifiant <b>a l'est de la route.</b> Ce verset demontre qu'une zone aussi etroite qu'une route peut etre utilisee comme un signe.
+
+### Partie 5
+§ La Guemara presente une contradiction entre deux <i>baraitot</i>. <b>Il a ete enseigne</b> dans <b>une</b> <i>baraita</i> : <b>Celui qui apporte un acte de divorce</b> qui a ete ecrit <b>sur un bateau</b> en Eretz Yisrael est considere comme <b>comme celui qui l'apporte</b> <b>en Eretz Yisrael,</b> et donc il n'est pas tenu de dire : Il a ete ecrit en ma presence et il a ete signe en ma presence. <b>Et il est enseigne</b> dans <b>un autre</b> <i>baraita</i> (<i>Tosefta</i> 1:1) que celui qui apporte un acte de divorce ecrit sur un bateau en Eretz Yisrael est <b>comme celui qui apporte</b> un acte de divorce <b>en dehors d'Eretz</b> Yisrael.
+
+### Partie 6
+<b>Rabbi Yirmeya dit :</b> Ceci n'est <b>pas difficile,</b> car on peut dire que <b>cette</b> <i>baraita</i> est conforme a l'avis de <b>Rabbi Yehuda,</b> et <b>cette</b> <i>baraita</i> est conforme a l'avis de <b>les rabbins. Comme nous l'avons appris</b> dans une mishna (<i>Halla</i> 2:2) : En ce qui concerne la <b>terre provenant de l'exterieur d'Eretz</b> Yisrael <b>qui est amenee sur un bateau en Eretz</b> Yisrael, tout ce qui a pousse dans cette terre <b>est obligatoire dans la dime et dans</b> les mitzvot de <b>l'annee sabbatique</b>. Selon cet avis, la terre est consideree comme faisant partie d'Eretz Yisrael une fois qu'elle y arrive, ce qui signifie que les plantes qui y poussent sont considerees comme etant en Eretz Yisrael.
+
+### Partie 7
+<Rabbi Yehuda a dit : Quand</b> les Sages ont-ils dit cette regle ? <b>Lorsque le bateau ecume [<i>gosheshet</i>]</b> le fond de la mer, car il est alourdi par l'eau. <b>Cependant,</b> lorsque <b>le bateau n'effleure pas</b> le fond de la mer, le sol est <b>exempte.</b> Le Sage qui soutient que le bateau est considere comme Eretz Yisrael en ce qui concerne un acte de divorce se tient en accord avec les rabbins de cette mishna, et celui qui soutient que le bateau n'est pas comme Eretz Yisrael aux fins d'un acte de divorce se tient en accord avec l'opinion de Rabbi Yehuda.
+
+### Partie 8
+<b>Abaye a dit :</b> Il est possible de dire que tant <b>cette</b> <i>baraita</i> <b>que cette</b> <i>baraita</i> sont conformes a l'opinion de <b>Rabbi Yehuda, et</b> ce n'est <b>pas difficile : Ici,</b> la <i>baraita</i> ou le sol est considere comme hors d'Eretz Yisrael, traite d'une situation <b>ou le bateau ne frole pas</b> le fond de la mer ; et <b>la,</b> dans la <i>baraita</i> qui stipule que le sol est considere comme etant comme Eretz Yisrael, elle fait reference a un cas <b>ou le bateau frole</b> le fond de la mer.
+
+### Partie 9
+<b>Rabbi Zeira dit :</b> Dans le cas d'un <b>pot perfore qui repose sur des chevilles,</b> si quelque chose a pousse dedans, <b>nous sommes arrives a la dispute</b> de <b>Rabbi Yehuda et des Rabbins</b> concernant le sol du bateau. Tout comme les rabbins soutiennent que le sol est considere comme attache a Eretz Yisrael meme si le bateau ne touche pas reellement le fond de la mer, il en va de meme pour un pot de fleurs perfore sur des piquets, alors que Rabbi Yehuda soutient que dans les deux cas, le sol doit reellement etre en contact avec la terre pour qu'il soit considere comme faisant partie d'Eretz Yisrael.
+
+### Partie 10
+<b>Rava dit,</b> en rejetant cette affirmation : <b>Peut-etre</b> que <b>ce n'est pas le cas,</b> car <b>Rabbi Yehuda dit</b> son avis <b>seulement la, en ce qui concerne un bateau,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

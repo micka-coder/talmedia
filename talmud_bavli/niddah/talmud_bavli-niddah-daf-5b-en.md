@@ -1,0 +1,48 @@
+
+### Part 1
+<b>is</b> it <b>necessary</b> to teach that an examination reduces the time <b>from examination to examination,</b> which is less than twenty-four hours?
+
+### Part 2
+The Gemara answers: This ruling is necessary, <b>lest you say</b> that with regard to the significant passage of a twenty-four-hour <b>period</b> the <b>Sages are</b> concerned <b>for</b> the possible <b>loss of ritually pure items, but</b> with regard to the smaller period <b>from examination to examination,</b> the Sages are <b>not</b> concerned for the loss of pure items, and therefore the use of an examination cloth should not reduce the time of possible impurity between that and her next examination. Therefore, the mishna <b>teaches us</b> that it does reduce this time.
+
+### Part 3
+§ The mishna teaches with regard to a woman who has a fixed menstrual cycle: <b>Her time is sufficient, how so?</b> If the woman was sitting in a bed and engaged in handling ritually pure items, and she left the bed and saw blood, she is impure and those items are pure. The Gemara asks: <b>Why do I</b> need the mishna <b>to teach:</b> If the woman <b>was sitting in a bed and engaged in</b> handling <b>pure items? Let</b> the mishna <b>teach</b> the same ruling without mentioning the bed: If she <b>was engaged in</b> handling <b>pure items and she left and saw</b> blood. The detail that she was sitting in a bed is apparently superfluous.
+
+### Part 4
+The Gemara answers: <b>This</b> detail <b>teaches us</b> that the <b>reason</b> why the bed is not rendered impure is <b>that her time is sufficient</b> and there is no retroactive impurity. It can be inferred that in a case where she is impure retroactively for a twenty-four-hour <b>period, her bed is also rendered impure.</b> This <b>supports</b> the opinion <b>of Ze’eiri, as Ze’eiri said:</b> The level of impurity of the retroactive twenty-four-hour <b>period of a menstruating woman renders</b> impure <b>a bed</b> upon which she lies <b>and a chair</b> upon which she sits, <b>to</b> the extent that they <b>transmit impurity to a person</b> who comes in contact with them, <b>to</b> the extent that he <b>transmits impurity to the garments</b> he is wearing.
+
+### Part 5
+This Gemara raises a difficulty: <b>Now, this bed</b> upon which she sat <b>is an entity that lacks consciousness</b> in order for it <b>to be asked,</b> and the principle with regard to <b>any entity that lacks consciousness</b> in order for it <b>to be asked</b> is that the item with <b>uncertain</b> status is deemed <b>pure.</b> The Gemara explains: <b>Ze’eiri interpreted</b> his ruling as applying specifically to a case <b>where her friends are carrying her in the bed, where</b> the bed <b>is</b> considered as the extended <b>hand of her friends.</b> In other words, it is part of an entity that has consciousness in order for it to be asked, and therefore the item with uncertain status is deemed impure.
+
+### Part 6
+The Gemara provides another answer: <b>And now that Rabbi Yoḥanan said:</b> In a case of <b>uncertain ritual impurity that comes</b> about <b>by the hand of a person,</b> i.e., through his involvement, the owner of the vessel must <b>consult</b> a Sage <b>about it,</b> i.e., it is considered an entity that has consciousness in order for it to be asked, as in such a case <b>even with regard to a vessel that is placed upon the ground,</b> which is certainly incapable of providing an answer if asked, its halakhic status is <b>like</b> that of <b>an item that has consciousness</b> in order for it <b>to be asked.</b> With this statement in mind, one can explain that according to Ze’eiri a menstruating woman transmits impurity to a bed <b>even though her friends are not carrying her in the bed.</b> Rather, as the bed’s ritual impurity was caused by the hand of a person, it has the halakhic status of an item that has consciousness in order for it to be asked.
+
+### Part 7
+§ The Gemara discusses <b>the</b> matter of Rabbi Yoḥanan’s statement <b>itself. Rabbi Yoḥanan says:</b> In a case of <b>uncertain ritual impurity</b> that <b>comes</b> about <b>by the hand of man,</b> its owner must <b>consult</b> a Sage <b>about it,</b> i.e., it is ritually impure, as in such a case <b>even with regard to a vessel that is placed upon the ground,</b> its halakhic status is <b>like</b> that of <b>an item that has consciousness</b> in order for it <b>to be asked.</b>
+
+### Part 8
+The Gemara <b>raises an objection</b> from a <i>baraita</i> (<i>Tosefta</i>, <i>Teharot</i> 4:1): If a man who contracted ritual impurity <b>was wrapping</b> himself <b>in his cloak and</b> there were <b>pure</b> items beside him; <b>or</b> if he was pure and there were <b>impure</b> items <b>beside him</b> as he was wrapping his cloak; <b>or</b> if there were <b>pure</b> items and <b>impure</b> items <b>above his head</b> at the time and there is <b>uncertainty</b> whether he <b>touched</b> the impure items with his cloak and then touched the pure items with his cloak, and <b>uncertainty</b> whether it did <b>not touch</b> them, the <i>halakha</i> is that the pure items remain <b>pure. But if</b> it is <b>impossible</b> for him to have wrapped himself <b>unless</b> his cloak had <b>touched</b> the impure items in the process, then those previously pure items become <b>impure.</b>
+
+### Part 9
+The <i>baraita</i> continues: <b>Rabban Shimon ben Gamliel says</b> that <b>we say to him: Repeat</b> your action. <b>And he repeats</b> the action of wrapping himself with his cloak, and it can then be determined whether or not the cloak and the other items came in contact with each other. The Rabbis <b>said to him: We do</b> not rely on <b>repeated</b> actions <b>with regard to</b> the determination of ritually <b>pure</b> items. Since the second action may not exactly mimic the first, it cannot be relied upon to determine ritual purity status.
+
+### Part 10
+The Gemara explains the objection: But according to the Rabbis, <b>why</b> is the <i>halakha</i> that the items in question remain pure? <b>Isn’t</b> this a case of <b>uncertain ritual impurity that comes</b> about <b>by the hand of man,</b> which, according to Rabbi Yoḥanan, is considered as having consciousness in order for it to be asked? If so, these items should be ritually impure.
+
+### Part 11
+The Gemara answers: <b>Except for that</b> one, i.e., do not raise a difficulty from that <i>baraita</i>, since it is referring to a specific case. <b>As Rav Hoshaya teaches</b> with regard to an item whose purity status is uncertain: When it is <b>in the private domain,</b> the item with <b>uncertain</b> status is deemed <b>impure;</b> when it is <b>in the public domain,</b> it is deemed <b>pure.</b> The <i>baraita</i> is referring to an item located in the public domain. Consequently, even if it is considered as having consciousness in order to be asked, nevertheless it is pure, as its uncertainty occurred in the public domain.
+
+### Part 12
+§ The Gemara analyzes <b>the</b> matter of Ze’eiri’s ruling <b>itself. Ze’eiri says:</b> The level of impurity assumed during the retroactive twenty-four-hour <b>period of a menstruating woman renders a bed</b> upon which she lies <b>and a chair</b> upon which she sits impure <b>to</b> the extent that they <b>transmit impurity to a person</b> who comes in contact with them <b>to</b> the extent that he <b>transmits impurity to the garments</b> he is wearing.
+
+### Part 13
+The Gemara asks: <b>Is that so? But when Avimi came from Bei Ḥozai, he came and brought</b> the following <b><i>baraita</i> with him:</b> The level of impurity during the retroactive twenty-four-hour <b>period of a menstruating woman</b> renders <b>her bed</b> upon which she lies <b>and her chair</b> upon which she sits impure <b>like</b> the impurity level caused by <b>her touch.</b> The Gemara explains the difficulty: <b>What, is it not</b> correct to say that this means that <b>just as</b> an item rendered impure by <b>her touch</b> does <b>not render</b> another <b>person impure, so too, her bed</b> does <b>not render</b> another <b>person impure?</b>
+
+### Part 14
+<b>Rava says: And</b> how can <b>you understand</b> it in that manner? There <b>is an <i>a fortiori</i></b> inference here: <b>And if an earthenware vessel sealed</b> with <b>a tightly bound cover, which is spared</b> from impurity when it is <b>in a tent</b> that has <b>a corpse</b> in it, is nevertheless <b>not spared</b> from impurity if the woman moved it <b>during</b> the twenty-four-hour <b>period</b> of retroactive impurity <b>of a menstruating woman</b> and is impure as though she moved it after she experienced bleeding; <b>so too,</b> with regard to <b>beds and chairs, which are not spared</b> from impurity <b>in a tent</b> that has <b>a corpse</b> in it, <b>is it not logical that they are</b> also <b>not spared</b> from impurity when used <b>during the</b> twenty-four-hour <b>period</b> of retroactive impurity <b>of a menstruating woman</b> and are impure as though she used them after she experienced bleeding?
+
+### Part 15
+The Gemara asks: <b>But Avimi from Bei Ḥozai cited a <i>baraita</i></b> that apparently does not accept Rava’s <i>a fortiori</i> inference. The Gemara answers: One can <b>say</b> that the <i>baraita</i> does not mean that her bed and chair are rendered impure with the light level of impurity caused by her touch, but rather: <b>Her bed</b> upon which she lies <b>and her chair</b> upon which she sits
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

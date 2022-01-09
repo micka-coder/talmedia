@@ -1,0 +1,75 @@
+
+### Part 1
+This would be just <b>as the Master said</b> in a <i>baraita</i> concerning a nazirite: A nazirite who completes his term of naziriteship is required to shave his hair and bring various offerings. With regard to the shaved hair, the verse states: “And he shall take the hair of his nazirite head, and put it on the fire which is under the sacrifice of peace offerings” (Numbers 6:18). The <i>baraita</i> asks: <b>From where</b> is it derived that if, instead of putting his hair on the fire under the peace offering, he puts it on the fire under his <b>sin offering or</b> under his <b>guilt offering,</b> he still fulfills the obligation? <b>The verse states:</b> “The <b>sacrifice,”</b> which serves to include these two offerings. Evidently, the term “sacrifice” refers both to a sin offering and to a guilt offering. Why does the <i>baraita</i> concerning a leper derive a guilt offering only from the word “or”?
+
+### Part 2
+The Gemara explains: <b>This matter,</b> that both a sin offering and a guilt offering can be derived from the same term, applies only <b>where they are both</b> brought <b>together,</b> for the same purpose, as in the case of a nazirite. Both offerings serve to render him fit, in the case of a pure nazirite to partake of wine and cut his hair, and in the case of an impure nazirite to begin counting his term of naziriteship again. <b>But</b> in the case of a leper, <b>where</b> his <b>guilt offering</b> serves <b>to render</b> him <b>fit</b> to return to the camp <b>and</b> his <b>sin offering</b> serves <b>to atone</b> for the sin that was the cause of his leprosy, since they come for different purposes, <b>we need two verses,</b> i.e., sources, to teach about the two of them.
+
+### Part 3
+The Gemara once again questions the derivations in the <i>baraita</i>: “The <b>sacrifice”; this</b> is referring to the <b>sin offering of a leper.</b> The Gemara asks: <b>And</b> how does the <i>baraita</i> know this? <b>I could say</b> instead that <b>this</b> is referring the <b>sin offering and guilt offering of a nazirite.</b> The sin offering is brought by a nazirite who completes his term of naziriteship, and the guilt offering is brought by a nazirite who became ritually impure. Accordingly, only those offerings of a nazirite would require libations, but not the burnt offering of a leper.
+
+### Part 4
+The Gemara rejects this possibility. This should <b>not enter your mind, as it is taught</b> in a <i>baraita</i>: In describing the offerings a nazirite brings upon the completion of his term of naziriteship, the verse states: “And he shall sacrifice his offering to the Lord, one unblemished male lamb in its year as a burnt offering, and one unblemished female lamb in its year as a sin offering, and one unblemished ram as peace offerings…<b>and their meal offering, and their libations”</b> (Numbers 6:14–15). The <i>baraita</i> explains that it is <b>with regard to his burnt offering and his peace offering,</b> mentioned earlier in that passage, <b>that the verse speaks,</b> and so it is only those nazirite offerings that require libations.
+
+### Part 5
+<b>Do you say</b> that the verse speaks <b>with regard to his burnt offering and his peace offering? Or</b> perhaps the verse speaks <b>even with regard to</b> the <b>sin offering</b> that a nazirite brings if he becomes ritually impure? To preclude the possibility of explaining the verse in that way, <b>the verse states</b> in the subsequent verses: <b>“And he shall make the ram a sacrifice of a peace offering</b> to the Lord, with the basket of unleavened bread; <b>and</b> the priest shall offer <b>its meal offering and its libations”</b> (Numbers 6:16–17).
+
+### Part 6
+Now, this <b>ram</b> offering <b>was</b> already <b>included</b> with all other peace offerings, which all require libations. <b>Why,</b> then, was it <b>singled out</b> in this verse with an independent statement teaching that it requires libations? It was in order <b>to equate</b> all other offerings <b>to it,</b> teaching that the requirement of libations applies only to offerings similar to it. <b>Just as a ram is distinct</b> in that it <b>can come in</b> fulfillment of <b>a vow or</b> as <b>a gift</b> offering, <b>so too, any</b> offering that <b>can come in</b> fulfillment of <b>a vow or</b> as <b>a gift</b> offering requires libations. This excludes the sin offering and guilt offering of a nazirite, as they cannot be brought as vow offerings or gift offerings.
+
+### Part 7
+The Gemara questions another of the derivations in the <i>baraita</i>: “The <b>burnt offering”; this</b> is referring to the <b>burnt offering of a leper.</b> The Gemara asks: <b>And</b> how does the <i>baraita</i> know this? <b>I could say</b> instead that <b>this</b> is referring the <b>burnt offering of a woman who gave birth</b> (see Leviticus 12:6), and if so, there would be no source to require libations for the burnt offering of a leper.
+
+### Part 8
+<b>Abaye said:</b> The requirement to bring libations with the <b>burnt offering of a woman who gave birth is derived from the end of</b> that <b>verse,</b> so the term “the burnt offering,” mentioned just before it, remains available to include the burnt offering of a leper in the requirement for libations.
+
+### Part 9
+This is <b>as it is taught</b> in a <i>baraita</i>: The verse states: “And wine for pouring libations, a quarter-<i>hin</i>, you shall prepare with the burnt offering or for the sacrifice, for the one lamb” (Numbers 15:5). <b>Rabbi Natan says: “For</b> the one <b>lamb”; this</b> is referring to the <b>burnt offering of a woman who gave birth</b> and includes that offering in the requirement for libations. <b>“The one”; this</b> is referring to the <b>eleventh</b> animal <b>of</b> the animal <b>tithe, which is sacrificed</b> as <b>a peace offering.</b> In order to tithe his animals, the owner counts them one by one, and every tenth animal is consecrated as an animal tithe offering. If, when counting, he accidently counts the tenth animal as the ninth and the eleventh as the tenth, both are consecrated, the former as the animal tithe and the latter as a peace offering.
+
+### Part 10
+The <i>baraita</i> comments: It is necessary to have an independent derivation to teach that the eleventh animal requires libations, <b>because we do not find</b> another <i>halakha</i> like <b>this in the entire Torah,</b> in <b>which the ancillary</b> case <b>is more stringent than the principal</b> case. In this case, the animal tithe offering itself does not require libations.
+
+### Part 11
+The Gemara presents another answer. <b>Rava says:</b> The verse is expounded to be referring to three different offerings and includes them in the requirement to bring libations. It is reasonable that these three offerings all share an association with each other. <b>What is</b> the only <b>matter</b> in which three offerings are brought <b>that</b> would <b>necessitate three inclusions</b> to teach that each of them require libations? <b>You must say</b> that <b>this</b> is the offerings of <b>a leper,</b> who brings three different offerings.
+
+### Part 12
+§ It is further stated in the passage concerning libations: “Or <b>for a ram,</b> you shall prepare a meal offering of two-tenths of an ephah of fine flour, mixed with one-third of a <i>hin</i> of oil” (Numbers 15:6–7). The details of the meal offering brought with a ram are also mentioned elsewhere: “And two-tenths of fine flour for a meal offering, mixed with oil, for the one ram” (Numbers 28:12); therefore, the Gemara asks: <b>Why do I</b> need the verse here to state this? <b>Rav Sheshet says:</b> This verse serves <b>to include</b> in the requirement for libations <b>the ram of Aaron,</b> i.e., the ram of the High Priest that he sacrifices as a burnt offering on Yom Kippur.
+
+### Part 13
+The Gemara challenges: But the requirement to bring libations with <b>the ram of Aaron</b> should be <b>derived from</b> the term: <b>“On your Festivals”</b> (Numbers 15:3), as the <i>baraita</i> derived from that term that all obligatory offerings of Festivals require libations. The Gemara resolves this challenge: It is necessary to have an independent derivation for the ram of Aaron, as it might <b>enter your mind to say</b> that <b>this matter,</b> that obligatory offerings of Festivals require libations, applies only to <b>communal</b> offerings, <b>but not</b> to offerings <b>of an individual,</b> such as the ram of Aaron.
+
+### Part 14
+The Gemara questions this: <b>But</b> why would one think that because the ram of Aaron is an offering of an individual it would not require libations? In <b>what</b> way <b>is</b> it <b>different from</b> the <b>burnt offering of a woman who gave birth,</b> which is also brought by an individual and yet it requires libations?
+
+### Part 15
+The Gemara explains: It might <b>enter your mind to say</b> that <b>this matter,</b> i.e., the conclusion drawn from the <i>halakha</i> of the burnt offering of a woman who gave birth that even offerings of an individual require libations, applies only to an offering <b>that does not have a fixed time</b> when it must be sacrificed; <b>but</b> with regard to an offering <b>that has a fixed time</b> when it must be sacrificed, <b>I</b> might <b>say</b> that it does <b>not</b> require libations. Accordingly, it is necessary to have an independent derivation that <b>teaches us</b> that the ram of Aaron requires libations.
+
+### Part 16
+The Gemara continues to expound the verse cited: <b>Why do I</b> need the word “or” in the phrase <b>“or for a ram”?</b> The Gemara explains: It serves <b>to include</b> the sacrifice of <b>a <i>palges</i></b> in the requirement to bring libations. When referring to sheep, the Torah speaks only of lambs and rams. A sheep during its first twelve months is called a lamb, and one older than thirteen months is called a ram. A <i>palges</i> is a sheep in its thirteenth month and is never explicitly mentioned by the Torah. It is therefore necessary to have an independent derivation to teach that if one is sacrificed, libations must be brought with it.
+
+### Part 17
+The Gemara raises a difficulty: <b>This works out well according to</b> the opinion of <b>Rabbi Yoḥanan, who said</b> that a <i>palges</i> <b>is</b> considered an independent <b>entity,</b> i.e., it is not regarded as a lamb or a ram, <b>as we learned</b> in a mishna (<i>Para</i> 1:3): One who is obligated to sacrifice a lamb or a ram and <b>sacrificed</b> a <i>palges</i> <b>should bring with it the libations</b> that are required when bringing <b>a ram, but</b> nevertheless its sacrifice <b>is not considered</b> a fulfillment of <b>his</b> obligation to bring <b>an offering</b> of a ram or a lamb. <b>And,</b> commenting on this mishna, <b>Rabbi Yoḥanan says</b> that the requirement to bring libations in this case is derived from the phrase <b>“or for a ram,”</b> which serves <b>to include</b> the sacrifice of <b>a <i>palges</i>.</b>
+
+### Part 18
+<b>But</b> the need for an independent derivation is difficult <b>according to</b> the opinion of <b>bar Padda; as he said</b> that in the mishna’s case, the individual <b>brings</b> the libations of a ram <b>but stipulates</b> concerning them that if a <i>palges</i> is a ram, then all of the libations should be regarded as its libations, and if a <i>palges</i> is a lamb, then the quantity of those libations required for a lamb should be regarded as its libations and the rest should be regarded as a gift offering, <b>because</b> he holds that a <i>palges</i> is either a lamb or a ram but that it <b>is uncertain</b> to us which it is. According to bar Padda, one can ask: <b>Is it necessary</b> to have <b>a verse to include an uncertain</b> case? Although it is not known how to categorize a <i>palges</i>, it is included either in the category of a sheep or a ram, and its libations are therefore detailed in the verse.
+
+### Part 19
+The Gemara concludes: <b>Certainly, according to</b> the opinion of <b>bar Padda,</b> this matter is <b>difficult.</b>
+
+### Part 20
+§ The Gemara discusses another verse in the passage about libations: <b>“So it shall be done for the one bull, or for the one ram, or for the kid of the lambs or of the goats”</b> (Numbers 15:11). Ostensibly, this verse states nothing beyond that which has already been explained in the beginning of that passage, which delineates the requirement of libations for each type of animal offering. The Gemara asks: <b>Why</b> must <b>the verse state: “For the one bull”?</b> The Gemara answers: <b>Since we have found the verse differentiates between the libations of a ram and the libations of a lamb,</b> even though they are both sheep, one <b>might</b> have thought that <b>we</b> should likewise <b>differentiate between the libations of a bull,</b> which is in its second year, <b>and the libations of a calf,</b> which is still in its first year. Therefore, <b>the verse states: “For the one bull,”</b> teaching that there is one <i>halakha</i> for all bulls, including calves, i.e., the same requirement applies to them.
+
+### Part 21
+The Gemara asks: <b>Why</b> must <b>the verse state: “For the one ram”?</b> The Gemara answers: <b>Since we have found the verse differentiates</b> with regard to sheep <b>between the libations of</b> a lamb <b>in</b> its first <b>year and the libations of</b> a ram <b>in</b> its <b>second</b> year, one <b>might</b> have thought that <b>we</b> should further <b>differentiate</b> with regard to rams themselves <b>between the libations of</b> a ram <b>in</b> its <b>second</b> year <b>and the libations of</b> a ram <b>in</b> its <b>third</b> year. Therefore, <b>the verse states: “For the one ram,”</b> teaching that there is one <i>halakha</i> for all rams.
+
+### Part 22
+The Gemara asks: <b>Why</b> must <b>the verse state: “For the kid of the lambs”?</b> The Gemara answers: <b>Since we have found that the verse differentiates</b> with regard to male sheep <b>between the libations of a male lamb and the libations of a ram,</b> one <b>might</b> have thought that <b>we</b> should further <b>differentiate between the libations of a female lamb and the libations of a ewe.</b> Therefore, <b>the verse states: “For the kid of the lambs.”</b>
+
+### Part 23
+The Gemara asks: <b>Why</b> must <b>the verse state: “Or of the goats”?</b> The Gemara answers: <b>Since we have found that the verse differentiates</b> with regard to sheep <b>between the libations of a male lamb and the libations of a ram,</b> one <b>might</b> have thought that <b>we</b> should further <b>differentiate between the libations of a kid and the libations of</b> an older <b>goat.</b> Therefore, <b>the verse states: “Or of the goats.”</b>
+
+### Part 24
+§ Having mentioned the libations of a ewe, the Gemara relates that <b>Rav Pappa said: Rava tested us</b> by asking the following question:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

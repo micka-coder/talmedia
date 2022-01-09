@@ -1,0 +1,27 @@
+
+### Part 1
+<b>only</b> in a case <b>where</b> the finder <b>used</b> the money. <b>But</b> in a case where the finder <b>did not use</b> the money, everyone agrees that <b>if</b> the money <b>is lost,</b> the finder is <b>exempt</b> from paying restitution for its loss.
+
+### Part 2
+The Gemara suggests: <b>Let us say</b> that <b>this shall be a conclusive refutation of</b> the statement of <b>Rav Yosef, as it was stated</b> that there is an amoraic dispute with regard to the legal status of <b>a bailee</b> charged with safeguarding <b>a lost item. Rabba said:</b> His legal status <b>is like</b> that of <b>an unpaid bailee,</b> who is liable to compensate the owner of the deposited item only in cases of negligence. <b>Rav Yosef said:</b> His legal status <b>is like</b> that of <b>a paid bailee,</b> who is liable to compensate the owner of the deposited item even in cases of theft or loss. When the mishna teaches that if the finder did not use the money everyone agrees that he is exempt from paying restitution for its loss, it apparently contradicts the statement of Rav Yosef.
+
+### Part 3
+The Gemara answers that <b>Rav Yosef</b> could have <b>said to you: In</b> cases of <b>theft or loss, everyone agrees that</b> a bailee charged with safeguarding a lost item is <b>liable</b> to pay restitution for it. <b>When they disagree</b> is <b>in</b> a case of damage caused by <b>circumstances beyond his control,</b> for which it is the obligation <b>of a borrower</b> to pay compensation. The Gemara elaborates: <b>Rabbi Tarfon holds: The Sages permitted him to use</b> the money, <b>and he is</b> therefore <b>a borrower with regard to it,</b> and is liable to compensate the owner even in the event of circumstances beyond his control. <b>And Rabbi Akiva holds: The Sages did not permit him to use</b> the money, and he <b>is therefore not a borrower with regard to it.</b>
+
+### Part 4
+The Gemara asks: <b>If so, why do I</b> need the statement <b>that Rabbi Akiva said:</b> He may not use the money; <b>therefore,</b> if it is lost, he is not liable to pay restitution for it? <b>Granted, if you say</b> that it is <b>in</b> cases of <b>theft or loss that they disagree,</b> I understand <b>that</b> is the reason <b>that the</b> <i>tanna</i> <b>teaches</b> in the mishna that <b>Rabbi Akiva says: He may not use</b> the money; <b>therefore, if</b> it is <b>lost, he is not liable</b> to pay <b>restitution</b> for <b>it.</b> The Gemara explains: Since <b>it enters your mind to say</b> that the legal status of the finder <b>is</b> like that of <b>a paid bailee, in accordance with</b> the opinion <b>of Rav Yosef, and</b> that <b>in</b> cases of <b>theft and loss</b> the finder is <b>liable</b> to pay restitution, Rabbi Akiva <b>teaches us: Therefore,</b> if it is lost, he is not liable to pay restitution. <b>Now that you said</b> that <b>he may not use</b> the money, <b>he is not a paid bailee and</b> is <b>not liable</b> to pay restitution <b>in</b> cases of <b>theft and loss.</b>
+
+### Part 5
+<b>But if you say</b> that <b>in</b> cases of <b>theft or loss, everyone agrees that</b> a bailee charged with safeguarding a lost item is <b>liable</b> to pay restitution for it, and <b>when they disagree</b> it is <b>in</b> cases of damage caused by <b>circumstances beyond his control</b> for which it is the obligation <b>of a borrower</b> to pay compensation, <b>what</b> is the meaning of the statement of <b>Rabbi Akiva: Therefore,</b> if it is lost, he is not liable to pay restitution for it? Rather, <b>this is what</b> the mishna <b>should have taught: Rabbi Akiva says: He may not use</b> the money; <b>and I would know that since he may not use</b> the money, <b>he is not</b> considered <b>a borrower,</b> and consequently bears no financial responsibility. <b>Why do I</b> need the statement <b>that Rabbi Akiva said: Therefore,</b> if it is lost, he is not liable to pay restitution for it?
+
+### Part 6
+The Gemara answers: The explanation appended to the statement of Rabbi Akiva is indeed extraneous. It was added in order to create a parallel between the formulation of the statement of Rabbi Akiva and the formulation of the statement of Rabbi Tarfon. The phrase: Therefore, if the money is lost, he is not liable to pay restitution for it, was appended to the statement of Rabbi Akiva <b>due to</b> the explanation: <b>Therefore,</b> if the money is lost, he is liable to pay restitution for it, stated <b>by Rabbi Tarfon.</b>
+
+### Part 7
+The Gemara asks: <b>And why do I</b> need the statement <b>that Rabbi Tarfon</b> said: <b>Therefore,</b> if the money is lost, he is liable to pay restitution for it? The Gemara answers: <b>This</b> is what the mishna <b>is saying: Since the Sages permitted him to use</b> the money, his legal status is <b>like</b> that of <b>one who</b> actually <b>used it and</b> therefore, he is <b>liable</b> to pay <b>restitution</b> for <b>it.</b>
+
+### Part 8
+The Gemara asks: How can Rav Yosef explain that the dispute in the mishna is with regard to damage caused by circumstances beyond his control? <b>But doesn’t</b> the mishna <b>teach:</b> Therefore, if the money <b>is lost?</b> The disagreement between Rabbi Tarfon and Rabbi Akiva is with regard to a case of damage due to loss, and not with regard to a case of damage caused by circumstances beyond one’s control.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

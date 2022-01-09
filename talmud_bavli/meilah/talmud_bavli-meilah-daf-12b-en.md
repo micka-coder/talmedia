@@ -1,0 +1,36 @@
+
+### Part 1
+<b>As Rav said:</b> In a case of <b>one who lets blood from</b> a live <b>sacrificial animal,</b> deriving <b>benefit</b> from that blood <b>is prohibited and</b> one is liable for <b>misusing it</b> by Torah law. Since there is a stage when there is a prohibition of misuse by Torah law, one can understand the <i>halakha</i> that one is liable by rabbinic law for misusing the blood ultimately, when it descended to the Kidron Valley. This is not comparable to doves whose time of fitness for sacrifice has not arrived, as they are initially not subject to misuse by Torah law.
+
+### Part 2
+§ The Gemara analyzes <b>the</b> matter <b>itself. Rav Huna says</b> that <b>Rav says:</b> In a case of <b>one who lets blood from a sacrificial animal, deriving benefit</b> from that blood <b>is prohibited and</b> one is liable for <b>misusing it. Rav Hamnuna raises an objection</b> to the opinion of Rav from the mishna below: With regard to <b>the milk of</b> animals <b>consecrated</b> to be sacrificed <b>and the eggs of doves</b> consecrated to be sacrificed, one <b>may not derive benefit</b> from them <i>ab initio</i>, <b>but</b> if one derived benefit from them he is <b>not</b> liable for their <b>misuse,</b> despite the fact that one is liable for misuse of the animals and doves themselves. Apparently, the products of a consecrated item do not share its status with regard to the <i>halakha</i> of misuse. Why doesn’t this principle apply to blood as well?
+
+### Part 3
+Rav <b>said to</b> Rav Hamnuna in response: <b>When we said</b> the products of a consecrated item are also subject to the <i>halakha</i> of misuse that was only <b>with regard to blood, as</b> the animal <b>cannot exist without blood</b> and therefore the blood is considered like the animal itself. <b>But</b> in the case of <b>milk, since</b> the animal can <b>exist without milk,</b> the milk is <b>not</b> considered like the animal itself.
+
+### Part 4
+<b>Rav Mesharshiyya raises an objection</b> to this suggestion from a <i>baraita</i>: One <b>may not derive benefit</b> from <b>the</b> dried <b>manure and the</b> fresh <b>dung</b> of offerings of the most sacred order found <b>in the</b> Temple <b>courtyard</b> <i>ab initio</i>, <b>but</b> if one derived benefit from them he is <b>not</b> liable for <b>misusing</b> them; <b>and</b> the <b>money</b> received from <b>their</b> sale <b>will</b> be <b>allocated for the</b> treasury <b>chamber</b> of the Temple.
+
+### Part 5
+In light of the suggested distinction between blood and milk, the Gemara asks: <b>Why</b> is the dung not subject to the <i>halakhot</i> of misuse? <b>Here too,</b> the animal <b>cannot exist without dung,</b> and therefore the dung should be subject to the <i>halakhot</i> of misuse like blood. The Sages <b>say</b> in response: <b>How</b> can you <b>compare</b> the two cases? In the case of <b>this dung that comes to</b> the animal <b>from an external</b> source, i.e., the food that it ate, <b>this</b> food <b>goes</b> out of the body in the form of dung and <b>that other</b> food <b>comes</b> into the body and takes its place. This description serves <b>to exclude blood, which is</b> part <b>of</b> the animal’s <b>body</b> and is not replaced from an external source.
+
+### Part 6
+The Gemara notes: The <i>baraita</i> <b>teaches</b> that one <b>may not derive benefit</b> from the manure and dung <i>ab initio</i>, <b>but</b> if one derived benefit from them he is <b>not</b> liable for <b>misuse, and</b> the <b>money</b> received from <b>their</b> sale <b>will</b> be <b>allocated for the</b> treasury <b>chamber</b> of the Temple. This <b>supports</b> the opinion of <b>Rabbi Elazar, as Rabbi Elazar said: Wherever the Sages said</b> an item is <b>consecrated and not consecrated,</b> as in this case where one may not derive benefit but he is not liable for misuse either, the <b>money</b> received from <b>its</b> sale is <b>allocated for the</b> treasury <b>chamber</b> of the Temple.
+
+### Part 7
+<strong>MISHNA:</strong> With regard to <b>the milk of sacrificial</b> animals <b>and the eggs of</b> sacrificial <b>doves,</b> one <b>may not derive benefit</b> from them <i>ab initio</i>, <b>but</b> if one derived benefit from them after the fact he is <b>not</b> liable for their <b>misuse.</b>
+
+### Part 8
+<b>In what</b> case <b>is this statement,</b> that if one derived benefit from the eggs or milk of sacrificial animals, he is not liable for their misuse, <b>said?</b> It is stated <b>in</b> the case of <b>sacrificial</b> animals offered on the <b>altar,</b> as their eggs and milk are not brought to the altar and therefore they are considered distinct from the offerings themselves. <b>But</b> this is not the <i>halakha</i> <b>in</b> the case of animals that are not sacrificed and are <b>consecrated</b> only <b>for Temple maintenance.</b> For example, if one <b>consecrated a hen</b> he is liable for <b>misusing it and for</b> misusing <b>its egg;</b> if one consecrated <b>a donkey</b> he is liable for <b>misusing it and for</b> misusing <b>its milk,</b> as the animal and its milk, and likewise the hen and its eggs, are both consecrated for Temple maintenance and are deemed a single unit.
+
+### Part 9
+<strong>GEMARA:</strong> The mishna teaches that if one derived benefit from the eggs or milk of consecrated animals sacrificed on the altar he is not liable for their misuse. The Gemara asks: <b>But</b> does that mean that in a case of an item that is suitable to be sacrificed <b>on the altar, if he consecrated it</b> with <b>a sanctity</b> that inheres in its <b>value,</b> i.e., to sell it and use the money to buy an offering rather than sacrifice the animal itself, then its eggs or milk are <b>not subject to</b> the <i>halakhot</i> of <b>misuse?</b> Since he does not intend to sacrifice the animal itself, why shouldn’t the prohibition of misuse apply to its milk or its eggs?
+
+### Part 10
+<b>Rav Pappa said:</b> The wording of the mishna <b>is incomplete and this</b> is what <b>it is teaching: In what</b> case <b>is this statement,</b> that the milk and eggs of a consecrated animal sacrificed on the altar are not subject to misuse, <b>said?</b> It is said <b>when he consecrated</b> the animal with <b>inherent sanctity</b> to be sacrificed <b>on the altar. But</b> if <b>he consecrated it</b> with <b>a sanctity</b> that inheres in its <b>value,</b> i.e., to sell it and use the money to buy an offering to be sacrificed <b>on the altar,</b> then <b>it is</b> considered <b>as though he consecrated it for</b> the <b>Temple maintenance</b> and it is subject to misuse. Therefore, if <b>one consecrated a hen</b> to sell it and use the money to buy an offering he is liable for <b>misusing it and for</b> misusing <b>its egg;</b> if one consecrated <b>a donkey</b> he is liable for <b>misusing it and for</b> misusing <b>its milk.</b>
+
+### Part 11
+<strong>MISHNA:</strong> With regard to <b>any</b> consecrated item <b>that is fit for</b> sacrifice on <b>the altar</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+<b>the owner gives</b> a payment of <b>twenty-six</b> dinars. Were they to enable the other person to purchase it for twenty-one dinars, the Temple treasury would incur a loss, as the principal plus one-fifth paid by the owner is greater than the payment of the other person, who must pay only the principal. Were the owner to pay only twenty for the principal and add one-fifth, the principal paid by the owner is less than the sum offered by the other person. Therefore, the owner pays the principal proposed by the other person and then adds the payment of one-fifth that he was obligated to pay based on his own offer, i.e., five dinars, for a total of twenty-six. Likewise, if the other person offers <b>twenty-two</b> dinars, <b>the owner gives twenty-seven;</b> if the other person offers <b>twenty-three, the owner gives twenty-eight;</b> if the other person offers <b>twenty-four, the owner gives twenty-nine.</b>
+
+### Part 2
+If the other person offers <b>twenty-five</b> dinars, <b>the owner gives thirty, due to</b> the fact <b>that</b> the owner <b>does not add one-fifth</b> based <b>on the raise</b> in the offer <b>of this</b> other person, but only on the principal according to his own offer. It is clear from these calculations that a principal of twenty plus an addition of one-fifth equal twenty-five dinars. <b>Learn from it</b> that <b>one-fifth</b> is calculated <b>from without,</b> meaning one-quarter of the value of the redeemed item. The Gemara affirms: <b>Learn from it</b> that this is the <i>halakha</i>.
+
+### Part 3
+The Gemara comments: The two sides of this dilemma are <b>parallel to</b> a dispute between <b><i>tanna’im</i>,</b> as it is taught in a <i>baraita</i> that it is written: <b>“And shall add unto it one-fifth part thereof”</b> (Leviticus 27:27). This means <b>that</b> the item <b>and its</b> additional <b>one-fifth</b> payment <b>will</b> total <b>five</b> parts; one-fifth is calculated from without; this is <b>the statement of Rabbi Yoshiya. Rabbi Yonatan says: Its one-fifth</b> means <b>one-fifth of the principal;</b> one-fifth is calculated from within.
+
+### Part 4
+§ <b>A dilemma was raised before</b> the Sages: Does failure to pay the additional <b>one-fifth prevent</b> consumption outside of Jerusalem of second tithe that was redeemed, <b>or does it not prevent</b> consumption? The dilemma is: Is second-tithe produce worth <b>four</b> dinars <b>redeemed with four</b> dinars, <b>and</b> the obligation to <b>add</b> the payment of <b>one-fifth</b> is an obligation incumbent <b>upon</b> the owner <b>himself?</b> In that case, <b>apparently,</b> failure to pay the additional <b>one-fifth does not prevent</b> consumption. <b>Or perhaps</b> second-tithe produce worth <b>four</b> dinars <b>is redeemed with five</b> dinars, no less, <b>and</b> failure to pay the additional <b>one-fifth prevents</b> consumption.
+
+### Part 5
+<b>Ravina said: Come</b> and <b>hear</b> a resolution to this dilemma from a mishna (<i>Demai</i> 1:2): For second tithe of <b>doubtfully tithed produce [<i>demai</i>],</b> whose status is that of untithed produce by rabbinic law, <b>there is no</b> payment of <b>one-fifth</b> if the owner redeems its second tithe, <b>and there is no</b> obligation of the <b>eradication</b> of tithes after three years, as is the case with tithes taken from untithed produce.
+
+### Part 6
+Ravina explains: <b>But</b> by inference, <b>there is</b> payment of <b>principal.</b> Although there is no obligation to add one-fifth, second tithe separated from <i>demai</i> requires redemption. <b>What is the reason</b> for this? Apparently, concerning <b>the principal,</b> about <b>which</b> failure to pay it <b>prevents</b> consumption of second tithe of untithed produce <b>by Torah law,</b> it <b>is</b> also a sum that must be paid <b>in</b> the case of <i>demai</i> <b>by rabbinic law.</b> Concerning the payment of <b>one-fifth,</b> about <b>which</b> failure to pay it <b>does not prevent</b> consumption of second tithe of untithed produce <b>by Torah law,</b> it <b>is not</b> a sum that must be paid <b>in</b> the case of <i>demai</i> <b>by rabbinic law.</b>
+
+### Part 7
+The Gemara suggests: <b>Let us say</b> that the two sides of this dilemma are <b>parallel to</b> a dispute between <b><i>tanna’im</i>,</b> as it is taught in a <i>baraita</i>: In a case where one <b>gave</b> payment to redeem <b>the principal but did not give</b> payment of <b>the</b> additional <b>one-fifth, Rabbi Eliezer says: One may eat</b> it, and <b>Rabbi Yehoshua says: One may not eat</b> it. <b>Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Eliezer appears</b> correct <b>with regard to Shabbat,</b> when the Sages deemed it permitted for one to eat without the additional payment, in deference to Shabbat, <b>and the statement of Rabbi Yehoshua</b> appears correct <b>with regard to</b> the days of <b>the week.</b>
+
+### Part 8
+The Gemara infers: <b>From</b> the fact <b>that</b> Rabbi Yehuda HaNasi <b>says: The statement of Rabbi Eliezer appears</b> correct <b>with regard to Shabbat, by inference they disagree even with regard to</b> the days of <b>the week.</b> Likewise, <b>from</b> the fact <b>that</b> Rabbi Yehuda HaNasi <b>says: The statement of Rabbi Yehoshua appears</b> correct <b>with regard to</b> the days of <b>the week, by inference they disagree even with regard to Shabbat.</b> Apparently, theirs is a fundamental dispute.
+
+### Part 9
+<b>What,</b> is it <b>not</b> that <b>they disagree with regard to this reasoning, that Rabbi Eliezer holds</b> that failure to pay the additional <b>one-fifth does not prevent</b> consumption, as redemption of the principal alone suffices; <b>and Rabbi Yehoshua holds</b> that failure to pay the additional <b>one-fifth prevents</b> consumption?
+
+### Part 10
+<b>Rav Pappa said: No,</b> perhaps the explanation is that <b>everyone agrees</b> that failure to pay the additional <b>one-fifth does not prevent</b> consumption, <b>and here</b> they <b>disagree with regard to</b> whether <b>we are concerned for</b> potential <b>negligence.</b> One <b>Sage,</b> Rabbi Yehoshua, <b>holds: We are concerned for negligence,</b> lest one fail to pay the additional one-fifth and therefore the owner may not eat the second-tithe produce until he adds the one-fifth payment. <b>And</b> one <b>Sage,</b> Rabbi Eliezer, <b>holds: We are not concerned for negligence,</b> and one will presumably add the one-fifth payment later.
+
+### Part 11
+<b>Rabbi Yoḥanan says:</b> Although the <i>tanna’im</i> disagree with regard to second tithe, <b>all concede with regard to consecrated</b> property that if the one who consecrated it paid the principal and did not add one-fifth, <b>that he</b> successfully <b>desacralized</b> the produce, <b>since</b> the Temple <b>treasurers demand</b> payment from <b>him in the marketplace,</b> preventing any potential negligence. Therefore, he may use the property immediately.
+
+### Part 12
+The Gemara asks: <b>And do they not disagree with regard to consecrated</b> property? <b>But isn’t it taught</b> in a <i>baraita</i>: In a case where one <b>gave</b> payment to redeem <b>the principal but did not give him</b> payment of <b>the</b> additional <b>one-fifth, Rabbi Eliezer says: He</b> successfully <b>desacralized</b> the produce, and <b>the Rabbis say: He</b> did <b>not desacralize</b> the produce? <b>Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Eliezer appears</b> correct <b>with regard to consecrated</b> property, <b>and the statement of the Rabbis</b> appears correct <b>with regard to</b> second <b>tithe.</b>
+
+### Part 13
+The Gemara infers: <b>From</b> the fact <b>that</b> Rabbi Yehuda HaNasi <b>says</b> that <b>the statement of Rabbi Eliezer appears</b> correct <b>with regard to consecrated</b> property, <b>by inference they disagree even with regard to</b> second <b>tithe.</b> Likewise, <b>from</b> the fact <b>that</b> Rabbi Yehuda HaNasi <b>said</b> that the statement of <b>the Rabbis appears</b> correct <b>with regard to</b> second <b>tithe, by inference they disagree even with regard to consecrated</b> property. This contradicts Rabbi Yoḥanan’s statement that there is no dispute with regard to consecrated property.
+
+### Part 14
+<b>Rather, if</b> it <b>was stated,</b> it <b>was stated like this: Rabbi Yoḥanan says: All concede</b> that <b>concerning Shabbat with regard to consecrated</b> property <b>that he</b> successfully <b>desacralized</b> the property. <b>One</b> reason for this <i>halakha</i> is <b>as it is written: “And you shall call Shabbat a delight”</b> (Isaiah 58:13). The Sages sought to facilitate that delight in Shabbat by ruling leniently. <b>And furthermore,</b> it is desacralized without payment of the additional one-fifth, <b>since</b> the Temple <b>treasurers demand</b> payment from <b>him in the marketplace.</b>
+
+### Part 15
+§ <b>Rami bar Ḥama says:</b> The Sages <b>said</b> that <b>consecrated</b> property <b>cannot be desacralized with land, as the Merciful One states</b> with regard to the redemption of a consecrated field: <b>“And he will give the money and it will be assured to him”</b> (Leviticus 27:19), indicating that redemption is accomplished with money. The question is with regard to payment of <b>its</b> additional <b>one-fifth: What is</b> the <i>halakha</i> in terms of the possibility <b>that it will be desacralized with land?</b>
+
+### Part 16
+If a non-priest unwittingly ate <b><i>teruma</i>,</b> his debt <b>can be repaid</b> to the priest <b>only with non-sacred</b> property, not with <i>teruma</i>, <b>as the Merciful One states:</b> “And if a man eats that which is sacred unwittingly…<b>and he shall give that which is sacred to a priest”</b> (Leviticus 22:14), from which it is derived that repayment must be with <b>an item fit to become sacred,</b> i.e., a non-sacred item, not <i>teruma</i>, which cannot be consecrated again. The question is with regard to payment of <b>its</b> additional <b>one-fifth: What is</b> the <i>halakha</i> in terms of the possibility <b>that it will be repaid not from non-sacred</b> items, but from <i>teruma</i>?
+
+### Part 17
+Second-<b>tithe</b> produce <b>cannot be desacralized with an unmint-ed coin, as the Merciful One states: “And you shall bind up [<i>vetzarta</i>] the money in your hand”</b> (Deuteronomy 14:25), which the Sages interpret as serving <b>to include any item that has the imprint [<i>tzura</i>]</b> of a coin <b>upon it</b> for desacralization, not an unminted coin. The question is with regard to payment of <b>its</b> additional <b>one-fifth: What is</b> the <i>halakha</i> in terms of the possibility <b>that it will be desacralized with an unminted coin?</b>
+
+### Part 18
+Rami bar Ḥama was unable to resolve this series of dilemmas, and <b>the matter proceeded and came before Rava,</b> who <b>said to</b> the people who related the dilemmas to him: <b>The verse states:</b> “And shall add <b>unto it</b> one-fifth part thereof” (Leviticus 27:27), which serves <b>to include its</b> additional <b>one-fifth</b> within the same legal status <b>as</b> that of <b>its</b> principal.
+
+### Part 19
+<b>Ravina said: We too learn</b> this in a mishna (<i>Terumot</i> 6:4): <b>One who steals <i>teruma</i> and did not partake of it pays a payment of double</b> the principal at <b>the price of</b> the <b><i>teruma</i>,</b> as a thief pays double the value of the item that he stole. Both payments are calculated based on the price of <i>teruma</i>, which is lower than the price of non-sacred food, as the demand for it is lower because it is eaten only by priests. If the thief <b>ate it</b> unwittingly, <b>he pays</b> a payment worth the value of <b>two principals and</b> adds <b>one-fifth</b> in this manner: He pays one <b>principal and one-fifth from non-sacred</b> items, like any non-priest who partakes of <i>teruma</i>, <b>and</b> with regard to <b>the</b> other <b>principal,</b> he pays it according to <b>the price of <i>teruma</i>.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

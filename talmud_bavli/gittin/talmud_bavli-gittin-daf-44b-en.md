@@ -1,0 +1,57 @@
+
+### Part 1
+<b>And if you say</b> that there is a different comparison: The <i>halakha</i> is that while there are types of labor that one is permitted to perform on the intermediate days of Passover and <i>Sukkot</i>, one may not intentionally schedule the labor to be performed at those times. One who does so is penalized and must forfeit the profits of that labor. The <i>halakha</i> is that if one <b>planned</b> to perform <b>his labor on</b> the intermediate days of <b>the Festival, and he died,</b> then <b>his child is not penalized after him, because</b> the son <b>did not perform a prohibited</b> act. <b>Here, what</b> is the <i>halakha</i>? Did <b>the Sages penalize</b> only <b>him, and he is no longer</b> alive, <b>or perhaps the Sages penalized his property,</b> by saying that he should lose it, <b>and</b> his property still <b>exists?</b>
+
+### Part 2
+Rabbi Asi <b>said to him: You</b> already <b>learned</b> in a mishna (<i>Shevi’it</i> 4:2): <b>A field whose thorns were removed during the Sabbatical</b> Year <b>may be sown after the conclusion of the Sabbatical</b> Year, since removing thorns is not full-fledged labor that renders the produce of the field prohibited. And it is taught in a <i>baraita</i> (<i>Tosefta</i>, <i>Shevi’it</i> 3:6): If <b>it had been improved</b> with fertilizer, <b>or</b> if <b>it had been populated</b> by the owner’s herd in order to fertilize the field with their manure, <b>it may not be sown after the conclusion of the Sabbatical</b> Year, for the Sages imposed a penalty to prevent one from benefiting from prohibited labor.
+
+### Part 3
+<b>And Rabbi Yosei, son of Rabbi Ḥanina, says: We have a tradition</b> that if one <b>improved</b> his field in a forbidden manner, <b>and</b> then <b>died, his son may sow it. Apparently,</b> we should infer that the general principle with regard to penalties is that <b>the Sages applied the penalty to</b> the one who committed the transgression <b>himself,</b> but <b>the Sages did not penalize his son.</b>
+
+### Part 4
+<b>Abaye said: We have a tradition</b> that if someone <b>defiled his friend’s ritually pure items,</b> thereby incurring liability to pay for the damage that he caused, <b>and died</b> before paying, the Sages <b>did not penalize his son after him</b> to pay for the damage. <b>What is the reason</b> for this? <b>Damage that is not evident,</b> i.e., that does not involve any physical change to the goods that is visible to the eye, <b>is not considered damage</b> by Torah law; <b>but</b> since the other party did suffer a loss, there <b>is a penalty of the Sages. The Sages applied the penalty</b> only <b>to</b> the one who caused the damage <b>himself,</b> but <b>the Sages did not apply the penalty to his son.</b>
+
+### Part 5
+§ The mishna taught that if one sells his slave to a gentile <b>or to</b> a Jew <b>outside of Eretz</b> Yisrael then the slave is emancipated. <b>The Sages taught</b> (<i>Tosefta</i>, <i>Avoda Zara</i> 3:18): With regard to <b>one who sells his slave to</b> a Jew <b>outside of Eretz</b> Yisrael, the slave <b>is emancipated, but</b> he nevertheless <b>requires a bill of manumission from his second master. Rabban Shimon ben Gamliel says: Sometimes he is emancipated and sometimes he is not emancipated. How so?</b> If the master <b>said: So-and-so my slave, I sold him to so-and-so of Antioch,</b> then <b>he is not emancipated,</b> because it is possible that he describes the purchaser this way because he was born in Antioch, and now he lives in Eretz Yisrael. However, if he said: I sold him <b>to</b> so-and-so <b>of Antioch who is in Antioch,</b> then <b>he is emancipated,</b> as his statement clarifies that he is selling his slave to one who lives outside of Eretz Yisrael.
+
+### Part 6
+The Gemara challenges: <b>But isn’t it taught</b> in that same <i>baraita</i>: If he said: <b>I sold him to</b> so-and-so <b>of Antioch,</b> then the slave <b>is emancipated,</b> but if he said: I sold him <b>to</b> so-and-so <b>of Antioch who dwells in Lod,</b> a city in Eretz Yisrael, then the slave <b>is not emancipated.</b> This indicates that if he states that he sold the slave to so-and-so of Antioch, without further comment, the slave is emancipated; this is not in accordance with the statement of Rabban Shimon ben Gamliel.
+
+### Part 7
+The Gemara answers: It is <b>not difficult. This</b> case, when he is not emancipated, is referring to when the purchaser from Antioch <b>has a house in Eretz Yisrael,</b> and it may be that he purchased the slave to serve in his house in Eretz Yisrael. <b>That</b> case, in which the slave is emancipated, is referring to <b>when he has</b> only <b>an inn [<i>ushpiza</i>]</b> where he is staying <b>in Eretz Yisrael,</b> and the only home belonging to the purchaser is outside of Eretz Yisrael.
+
+### Part 8
+<b>Rabbi Yirmeya raises a dilemma:</b> If there was <b>a resident of Babylonia who married a woman in Eretz Yisrael, and she brought in</b> to the marriage <b>slaves and maidservants for him, and he intends to return</b> to Babylonia, then <b>what is</b> the <i>halakha</i>? Is marrying him akin to selling the slaves to her husband? Since he plans to take them out of Eretz Yisrael, will they be emancipated?
+
+### Part 9
+<b>Let the dilemma be raised according to the one who said: The law is with her,</b> that in the event of a divorce the slaves remain in her possession, and her husband cannot pay her for them in order to maintain possession of them; and <b>let the dilemma be raised according to the one who said: The law is with him,</b> and he may pay her and retain possession of the slaves.
+
+### Part 10
+The Gemara explains: <b>Let the dilemma be raised according to the one who says</b> that <b>the law is with her,</b> and <b>since the law is with her,</b> the slaves <b>are</b> therefore <b>considered as hers.</b> It is not considered as if she sold them, and consequently they are not emancipated; <b>or perhaps since they are liened to</b> the husband <b>for</b> him to keep the <b>profits</b> of the slaves’ labor, as the profits from their labor belong to the husband like the revenue from other property that a woman brings into the marriage, the slaves <b>are considered as his,</b> and it is as though he purchased her slaves.
+
+### Part 11
+<b>And let the dilemma be raised according to the one who says: The law is with him,</b> and <b>since the law is with him,</b> the slaves <b>are</b> therefore <b>considered as his,</b> and they should be emancipated; <b>or perhaps since</b> the husband <b>did not acquire the slave himself,</b> but only the rights to his labor, the slaves <b>are considered as hers.</b> No answer was found, and the Gemara concludes that the dilemma <b>shall stand</b> unresolved.
+
+### Part 12
+<b>Rabbi Abbahu says: Rabbi Yoḥanan taught me:</b> If there was <b>a slave who</b> willingly <b>followed his master to Syria,</b> which is considered to be outside of Eretz Yisrael with regard to the sale of slaves, <b>and his master sold him there,</b> then the slave <b>is emancipated.</b> The Gemara challenges: <b>But didn’t Rabbi Ḥiyya teach:</b> If a slave left Eretz Yisrael willingly, he <b>lost his right</b> to be emancipated if he is then sold outside of Eretz Yisrael?
+
+### Part 13
+The Gemara answers: It is <b>not difficult. Here,</b> where he is emancipated, it is referring to a case <b>where his master’s intention</b> upon traveling to Syria was <b>to return,</b> and the slave followed him under that assumption. Therefore, when the master sold the slave in Syria, it is as though he sold him from Eretz Yisrael to outside of Eretz Yisrael. <b>There,</b> where he is not emancipated, is referring to a case <b>where his master does not intend to return,</b> and the slave followed him under that assumption. Since the slave willingly left Eretz Yisrael permanently, he lost his right to be emancipated if he is then sold outside of Eretz Yisrael.
+
+### Part 14
+<b>And</b> the Gemara notes that this distinction <b>is taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Avoda Zara</i> 3:18): <b>The slave follows his master to Syria.</b> The Gemara asks: Must <b>he follow</b> him? Is it <b>not possible for him not to follow</b> his master? <b>But didn’t we learn</b> in a mishna (<i>Ketubot</i> 110b): All may ascend to Eretz Yisrael, i.e., a woman or slave can say that he or she wishes to ascend, and they may do so against the wishes of their husbands or masters; <b>but all may not remove,</b> i.e., one cannot force his slave to leave Eretz Yisrael with him.
+
+### Part 15
+<b>Rather,</b> the <i>baraita</i> should be understood as speaking after the fact: If <b>a slave</b> willingly <b>followed his master to Syria, and his master sold him there,</b> then <b>if his master’s intention</b> when he traveled to Syria was <b>to return</b> to Eretz Yisrael, then <b>he is forced</b> to emancipate the slave; <b>but if his master did not intend to return</b> to Eretz Yisrael, and the slave willingly left with him, then <b>he is not forced</b> to emancipate the slave, as the slave has lost his right to be emancipated if he is then sold outside of Eretz Yisrael.
+
+### Part 16
+<b>Rav Anan said: I learned two</b> <i>halakhot</i> <b>from Mar Shmuel. One</b> was <b>this</b> <i>halakha</i>, that a slave is emancipated after being sold to someone outside of Eretz Yisrael; <b>and the other</b> <i>halakha</i> I learned is <b>as it was stated</b> that there was a dispute with regard to the following issue: Certain types of fields that were sold before the Jubilee Year are returned to their original owners in the Jubilee Year. What is the <i>halakha</i> with regard to <b>one who sells his field in the Jubilee Year itself? Rav says: It is sold</b> in principle. However, <b>it leaves</b> the possession of the purchaser immediately, and the purchaser is not refunded his money. <b>And Shmuel says: It is not sold at all.</b>
+
+### Part 17
+Rav Anan continues his statement with regard to the two <i>halakhot</i> he was taught by Mar Shmuel: <b>In one</b> of the two sales <b>the</b> money received from the <b>sale is returned, and in one</b> of the two sales <b>the</b> money received from the <b>sale is not returned,</b> and the purchaser loses his money, <b>but I do not know</b> in <b>which of</b> the cases the money is returned and in which of the cases it is not returned.
+
+### Part 18
+<b>Rav Yosef said: Let us see</b> if it could be determined which case involves which <i>halakha</i>. <b>From what is taught in the <i>baraita</i>: One who sells his slave to</b> a Jew <b>outside</b> of <b>Eretz</b> Yisrael, then <b>he is emancipated, but</b> he nevertheless <b>requires a bill of manumission from his second master. Learn from</b> the <i>baraita</i> that <b>his second master acquired him, and the</b> money of the <b>sale is not returned.</b> In other words, from the fact that there is the need for the second master to emancipate him, it is clear that the sale took effect. Therefore, it stands to reason that the purchaser is not refunded the money of the sale. <b>And</b> if so, <b>when Shmuel said there</b> that the field <b>is not sold,</b> he meant that the sale does not take effect at all <b>and the money returns</b> to the purchaser.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

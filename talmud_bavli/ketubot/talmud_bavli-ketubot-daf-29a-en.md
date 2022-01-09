@@ -1,0 +1,21 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>These</b> are the cases of <b>young women for whom there is a fine</b> paid <b>to their</b> fathers by one who rapes them: <b>One who engages in intercourse with a <i>mamzeret</i>, or with a Gibeonite woman [<i>netina</i>],</b> who are given [<i>netunim</i>] to the service of the people and the altar (see Joshua 9:27), <b>or with a Samaritan woman [<i>kutit</i>].</b> In addition, the same applies to <b>one who engages in intercourse with a female convert, or with a captive woman, or with a maidservant,</b> provided <b>that</b> the captives <b>were ransomed,</b> or <b>that</b> the converts <b>converted, or that</b> the maidservants <b>were liberated</b> when they were <b>less than three years and one day old,</b> as only in that case do they maintain the presumptive status of a virgin.
+
+### Part 2
+Similarly, <b>one who engages in intercourse with his sister,</b> i.e., he rapes her, <b>or with his father’s sister, or with his mother’s sister, or with his wife’s sister, or with his brother’s wife, or with his father’s brother’s wife</b> after they divorced, <b>or with a menstruating woman, there is a fine</b> paid. <b>Although there is <i>karet</i> for</b> engaging in relations with any of the women enumerated in this list, one is liable to pay the fine because <b>there is no court</b>-imposed <b>capital punishment.</b> In cases where there is a court-imposed death penalty, the rapist would be exempt from paying the fine.
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara wonders: Is it <b>these young women</b> with <b>flawed</b> lineage listed in the mishna, <b>for whom there is a fine</b> paid if they are raped, while for young women with <b>unflawed</b> lineage, <b>no,</b> there is no fine? The Gemara explains that <b>this</b> is what the <i>tanna</i> <b>is saying: These are</b> the <b>young women</b> with <b>flawed</b> lineage <b>for whom there is a fine</b> paid if they are raped. This is not a comprehensive list; rather, the <i>tanna</i> enumerates those young women for whom a fine is paid despite their flawed lineage: <b>One who has relations with a <i>mamzeret</i>, or with a Gibeonite woman, or with a Samaritan woman.</b>
+
+### Part 4
+The mishna teaches the <i>halakha</i> with regard to a young woman, from which the Gemara infers: With regard to <b>a young woman, yes,</b> one is liable to pay the fine if he rapes her, but with regard to <b>a minor, no,</b> one is not liable to pay the fine. <b>Who is</b> the <b><i>tanna</i></b> who maintains that one is liable for raping a young woman but not a minor?
+
+### Part 5
+<b>Rav Yehuda said</b> that <b>Rav said:</b> The <i>tanna</i> <b>is Rabbi Meir, as it is taught</b> in a <i>baraita</i>: <b>With regard to a minor from</b> the age of <b>one day old until she grows two</b> pubic <b>hairs, there is</b> the possibility of <b>sale for her,</b> as her father may sell her as a Hebrew maidservant, <b>but there is no fine</b> paid <b>for her</b> if she is raped. <b>And once she grows two</b> pubic <b>hairs,</b> from that point <b>until she matures</b> into a grown woman <b>there is a fine for her,</b> as during that period she is a young woman, with regard to whom the Torah law of a rapist and a seducer applies, <b>but there is no</b> possibility of <b>sale for her.</b> Once she grows two hairs she is no longer under her father’s control and can no longer be sold. This is <b>the statement of Rabbi Meir, as Rabbi Meir would state</b> a principle: <b>Any place where there is a sale, there is no fine; and any place where there is a fine, there is no sale.</b>
+
+### Part 6
+<b>And the Rabbis say: With regard to a minor from</b> the age of <b>three years and one day old until she matures</b> into a grown woman, <b>there is a fine for her.</b> The Gemara asks: Is that to say that a <b>fine, yes,</b> there is, but a <b>sale, no,</b> there is not? Do the Rabbis maintain that the father has no right to sell his minor daughter? The Gemara emends the text: <b>Say:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

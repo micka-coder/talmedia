@@ -1,0 +1,54 @@
+
+### Part 1
+the <i>baraita</i> is referring to a case <b>where they came into</b> the priest’s <b>possession while they</b> were still <b>untithed, and this <i>tanna</i> holds</b> that <b>gifts that have not been separated are considered as though they have been separated.</b> In such a case, the priest obtained rights to the ownerless gifts by seizing them first. Although when he seized the produce it was still untithed, the portion of the produce that is to be separated has the status of <i>teruma</i>. Accordingly, one who consumes such produce is required to pay the priest.
+
+### Part 2
+The Gemara further suggests: <b>Come</b> and <b>hear</b> another proof with regard to the statement of Rav Ḥisda from a <i>baraita</i>: In a case <b>where the household of the king seized one’s threshing floor</b> by force, <b>if</b> they took it <b>as</b> payment of <b>his debt</b> owed to the king, then <b>he is obligated to tithe</b> other grain in accordance with the amount he would have tithed before the grain was seized. Since he was already obligated to tithe the grain before it was seized, it is considered as though the grain was sold in an untithed state. <b>If they took it without reason [<i>anparot</i>],</b> then <b>he is exempt from tithing.</b> The fact that one is required to tithe grain seized as payment of a debt indicates that the tithe is considered money that has claimants, from which it follows that a priest may extract payment of the tithe from him. Again, this apparently contradicts the statement of Rav Ḥisda.
+
+### Part 3
+The Gemara rejects this proof: It <b>is different there,</b> since if one is not required to tithe grain seized as payment of a debt, this would mean <b>that</b> the seizure <b>causes benefit for him,</b> as he will be exempt from tithing grain that he was previously obligated to tithe. It is for this reason that the <i>baraita</i> rules that one must tithe other grain instead of the seized grain, not because a priest could have issued a claim against him in court.
+
+### Part 4
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a mishna (132a): If an Israelite <b>says</b> to a butcher: <b>Sell me the innards of</b> a particular <b>cow, and there were gifts of the priesthood</b> included <b>with it,</b> i.e., the maw, that were not yet given to the priest, the purchaser <b>must give them to the priest, and</b> the butcher <b>may not deduct</b> the value of the gifts <b>from the money</b> that the purchaser pays <b>him,</b> as it is assumed that the gifts were not included in the sale. If <b>he purchased</b> the innards <b>from</b> the butcher <b>by weight,</b> the purchaser <b>must give</b> the gifts <b>to the priest, and</b> the butcher <b>deducts</b> the value of the gifts <b>from the money</b> that the Israelite pays <b>him.</b>
+
+### Part 5
+The Gemara asks: <b>Why</b> must the buyer give the maw to the priest? <b>Let</b> the butcher’s sale of the maw <b>be</b> considered <b>like</b> a case where one <b>causes damage to gifts of the priesthood or consumes them,</b> with regard to which Rav Ḥisda states that one is exempt from payment. This mishna apparently contradicts Rav Ḥisda’s statement. The Gemara rejects this: It <b>is different there, as</b> the gifts <b>are intact,</b> i.e., they are distinct items in their own right. In such a case, the gifts must be given to the priest. By contrast, Rav Ḥisda is discussing cases in which the gifts are not distinguishable objects at the time.
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> another proof: <b>Nine</b> items are the <b>property of a priest: <i>Teruma</i>, <i>teruma</i> of the tithe, <i>ḥalla</i>,</b> the portion of dough given to the priest, <b>the first sheared</b> wool, <b>gifts</b> of the priesthood, <b>doubtfully tithed produce [<i>demai</i>], first fruits, the principal</b> value of the property of a convert, <b>and the</b> additional <b>one-fifth.</b> The two are paid to the priest in a case where the property of a convert was stolen and the thief took an oath that he did not steal it, and after the convert died the thief admitted to taking a false oath.
+
+### Part 7
+The Gemara explains the proof: <b>With regard to what</b> matter are these items considered the property of a priest? <b>Is it not with regard to extracting them with judges,</b> which would contradict the opinion of Rav Ḥisda? The Gemara responds: <b>No,</b> it is <b>with regard to that which we learned</b> in a mishna (<i>Bikkurim</i> 3:12): <b>To what</b> end did <b>they say</b> that these items are the <b>property of a priest?</b> It means <b>that</b> a priest may <b>purchase with them slaves and lands and a non-kosher animal; and a lender takes them</b> as payment <b>of his debt; and</b> if the <b>wife</b> of a priest is divorced from him, she takes them as payment <b>of her marriage contract; and</b> a priest may purchase <b>a Torah scroll</b> with them.
+
+### Part 8
+§ The Gemara relates: There was <b>a certain Levite who would snatch gifts</b> of the priesthood from children who were delivering them to the priests on their fathers’ behalf. <b>They came</b> and <b>told Rav</b> about this Levite. Rav <b>said to them: Is it not enough that</b> when he slaughters his own animals <b>we do not take</b> the gifts of the priesthood <b>from him, but he also snatches</b> gifts that are being delivered to priests?
+
+### Part 9
+Rav’s comment indicates that in his opinion there are grounds to take the gifts from Levites, but nevertheless they are not taken. The Gemara asks: <b>And</b> what does <b>Rav</b> maintain in this regard? <b>If</b> he maintains that Levites <b>are called</b> part of the <b>“people,”</b> then <b>let one take</b> the foreleg, the jaw, and the maw <b>from them as well,</b> as the verse states: “From the people, from them that perform a slaughter, whether it be ox or sheep, they shall give to the priest the foreleg, and the jaw, and the maw” (Deuteronomy 18:3).
+
+### Part 10
+<b>And if they are not called</b> part of the <b>people,</b> then <b>the Merciful One</b> has <b>exempted them</b> from giving those gifts, and there would be no grounds to take the gifts from them. The Gemara responds: Rav <b>is uncertain whether or not they are called</b> part of the <b>people.</b> Therefore, he exempts the Levites from giving their own gifts, in accordance with the principle that the burden of proof rests upon the claimant.
+
+### Part 11
+The Gemara relates that <b>Rav Pappa was sitting and saying this <i>halakha</i></b> in the name of Rav. <b>Rav Idi bar Avin raised an objection to Rav Pappa</b> from a <i>baraita</i>, with regard to the uncertainty of Rav: <b>Four gifts</b> are left <b>to the poor</b> from the produce <b>of a vineyard: The individual fallen</b> grapes <b>[<i>peret</i>], and the incompletely formed clusters</b> of grapes <b>[<i>olelot</i>], and the forgotten</b> clusters, <b>and <i>pe’a</i>. And three</b> gifts are left to the poor <b>from grain: The gleanings,</b> i.e., sheaves that fell during the harvest, <b>and the forgotten</b> sheaves, <b>and the <i>pe’a</i>. Two</b> gifts are left to the poor from the fruit <b>of a tree: The forgotten</b> fruits <b>and the <i>pe’a</i>.</b>
+
+### Part 12
+The <i>baraita</i> elaborates: With regard to <b>all of</b> these gifts, <b>the owner</b> of the produce <b>does not have the benefit of discretion.</b> This is the benefit accrued from giving a gift to an individual of one’s choice, e.g., giving <i>teruma</i> or tithes to whichever priest or Levite that one chooses. Instead, poor person who takes possession of these gifts becomes their rightful owner. <b>And even a poor person of Israel</b> who owns a vineyard, field, or tree must leave these gifts for all other poor people; and if he does not do so, <b>the court removes</b> them <b>from his possession.</b>
+
+### Part 13
+By contrast, with regard to the <b>poor man’s tithe, which is distributed</b> from <b>within one’s house,</b> unlike other gifts to the poor that are left in the field for them to take, <b>the owner has the benefit of discretion. And even</b> in the case of <b>a poor person in Israel,</b> if he fails to separate the poor man’s tithe from his produce, <b>the court removes it from his possession. And</b> with regard to <b>other gifts of the priesthood, such as the foreleg, and the jaw, and the maw,</b> the court <b>does not remove them, neither from a priest</b> to give <b>to</b> another <b>priest, nor from a Levite</b> to give <b>to</b> another <b>Levite.</b>
+
+### Part 14
+Before Rav Idi bar Avin explains his objection, the Gemara cites the sources for the <i>halakhot</i> of the <i>baraita</i>: The <i>baraita</i> teaches that <b>four gifts</b> are left to the poor from the produce <b>of a vineyard: The <i>peret</i>, and the <i>olelot</i>, and the forgotten</b> clusters, <b>and the <i>pe’a</i>, as it is written: “And you shall not glean [<i>te’olel</i>] your vineyard, neither shall you gather the fallen fruit [<i>peret</i>] of your vineyard;</b> you shall leave them for the poor and for the stranger” (Leviticus 19:10).
+
+### Part 15
+<b>And</b> it <b>is</b> also <b>written: “When you gather the grapes of your vineyard, you shall not glean it [<i>te’olel</i>] after you;</b> it shall be for the stranger, for the fatherless, and for the widow” (Deuteronomy 24:21). And <b>Rabbi Levi says</b> that with regard to the term <b>“after you,” this</b> is a reference to <b>forgotten</b> clusters, as the <i>halakha</i> is that clusters that were passed over by the harvester have the status of forgotten clusters, whereas those that remain in front of him do not have that status.
+
+### Part 16
+The <i>halakha</i> that the mitzva of <b><i>pe’a</i></b> applies to one’s vineyard is <b>derived</b> by a verbal analogy between the term <b>“after you”</b> in that verse and the term <b>“after you” from</b> another verse concerning <b>an olive</b> tree. <b>As it is written: “When you beat your olive tree, you shall not go over the boughs [<i>tefa’er</i>] after you;</b> it shall be for the stranger, for the fatherless, and for the widow” (Deuteronomy 24:20); <b>and the school of Rabbi Yishmael taught</b> that the term “You shall not go over the boughs” means <b>that you should not take</b> all of <b>its splendor [<i>tiferet</i>] from it;</b> rather, you should leave a portion of the olives for the poor. So too, one must leave a portion of one’s vineyard as <i>pe’a</i> for the poor.
+
+### Part 17
+The Gemara continues: The <i>baraita</i> teaches that <b>three</b> gifts are left to the poor <b>from grain: The gleanings,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

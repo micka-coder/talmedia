@@ -1,0 +1,45 @@
+
+### Part 1
+But if the garments became so dirty that they <b>reached</b> a point that laundering them would require the use of <b>natron or soap,</b> then <b>one may not launder</b> them, <b>even with water. And some say: One may not launder</b> the priestly vestments <b>at all,</b> even if laundering them with water would suffice, <b>because there is no poverty in a place of wealth,</b> i.e., only priestly vestments that were clean as new should be worn, as is befitting the Temple service, and those that were laundered should not be worn.
+
+### Part 2
+§ With regard to the priestly vestments, <b>the Sages taught</b> in a <i>baraita</i>: <b>The robe</b> of the High Priest <b>was</b> sewn <b>entirely of sky-blue wool, as it is stated: “And he made the robe of the ephod</b> of woven work, <b>all of sky-blue wool”</b> (Exodus 39:22). With regard to <b>its skirts,</b> concerning which it states: “And they made upon the skirts of the robe pomegranates of sky blue, and purple, and scarlet, twined” (Exodus 39:24), <b>how</b> were they fashioned? The tailor <b>brings sky-blue wool, and purple wool, and scarlet wool,</b> which are <b>twined</b> together, <b>and fashions them</b> to appear <b>as pomegranates that have not opened their mouths,</b> i.e., they are sewn in the appearance of pomegranates that are not yet ripe enough for the crown on top to open, <b>and as</b> the <b>cones [<i>konaot</i>] of</b> the <b>helmets [<i>kenasot</i>] that</b> are found <b>on the heads of children.</b>
+
+### Part 3
+<b>And</b> in order to fulfill that which is stated: “And they made bells of pure gold, and put the bells between the pomegranates” (Exodus 39:25), he <b>brings seventy-two bells,</b> i.e., the outer part of bells, made from gold, <b>that</b> contain <b>inside them seventy-two bell clappers, and he suspends</b> them <b>on</b> the skirts: <b>Thirty-six</b> of each, i.e., pomegranates and bells, <b>on this side</b> of the robe, <b>and thirty-six</b> of each <b>on that side,</b> as the verse states: “A bell and a pomegranate, a bell and a pomegranate, upon the skirts of the robe around it” (Exodus 39:26). <b>Rabbi Dosa says in the name of Rabbi Yehuda: There were thirty-six</b> bells suspended around the skirt, <b>eighteen from this side and eighteen from that side.</b>
+
+### Part 4
+<b>Rabbi Inini bar Sason says: Just as</b> there is <b>a disagreement here</b> between <i>tanna’im</i> with regard to the total number of bells suspended around the skirt of the robe of the High Priest, <b>so</b> is there <b>a disagreement</b> between <i>tanna’im</i> <b>with regard to</b> the total number of <b>shades of</b> leprous <b>marks. As we learned</b> in a mishna (<i>Nega’im</i> 1:4): With regard to the total number of <b>shades of</b> leprous <b>marks, Rabbi Dosa ben Harkinas says:</b> There are <b>thirty-six,</b> while <b>Akavya ben Mahalalel says:</b> There are <b>seventy-two.</b>
+
+### Part 5
+§ The Gemara cites another statement of this sage: <b>And Rabbi Inini bar Sason says: Why</b> was <b>the passage</b> in the Torah that discusses <b>offerings</b> (Leviticus, chapters 1–7) <b>juxtaposed to the passage</b> that discusses the <b>priestly vestments</b> (Leviticus, chapter 8)? It was juxtaposed <b>to tell you</b> that <b>just as offerings effect atonement, so too, priestly vestments effect atonement.</b>
+
+### Part 6
+The <b>tunic atones for bloodshed, as it is stated</b> with regard to the brothers of Joseph after they plotted to kill him: <b>“And they killed a goat, and dipped the tunic in the blood”</b> (Genesis 37:31). The <b>trousers atone for forbidden sexual relations, as it is stated</b> with regard to fashioning the priestly vestments: <b>“And you shall make them linen trousers to cover the flesh of their nakedness”</b> (Exodus 28:42). The <b>mitre atones for the arrogant. From where</b> is this derived? <b>Rabbi Ḥanina says:</b> It is logical that <b>an item</b> that is placed <b>at an elevation,</b> i.e., on the head of a priest, <b>shall come and atone for</b> the sin of <b>an elevated</b> heart.
+
+### Part 7
+Rabbi Inini bar Sason continues: The <b>belt atones for thought of the heart.</b> The Gemara elaborates: The belt atones for the sins occurring <b>where it is</b> situated, i.e., over the heart. The <b>breastplate</b> of the High Priest <b>atones for</b> improper <b>judgments, as it is stated: “And you shall make a breastplate of judgment”</b> (Exodus 28:15). The <b>ephod</b> of the High Priest <b>atones for idol worship, as it is stated:</b> “And <b>without ephod or teraphim”</b> (Hosea 3:4), meaning that when there is no ephod, the sin of teraphim, i.e., idol worship, is found. Therefore, it may be inferred that if there is an ephod, there is no sin of idol worship.
+
+### Part 8
+The <b>robe</b> of the High Priest <b>atones for malicious speech. From where</b> is this known? <b>Rabbi Ḥanina says:</b> It is logical that <b>an item that</b> produces <b>sound,</b> i.e., the robe, which has bells, <b>shall come and atone for an evil sound. And</b> the <b>frontplate</b> of the High Priest <b>atones for brazenness.</b> This is derived from the fact that <b>with regard to the frontplate it is written: “And it shall be upon Aaron’s forehead”</b> (Exodus 28:38), <b>and with regard to brazenness it is written: “And you had a harlot’s forehead”</b> (Jeremiah 3:3).
+
+### Part 9
+The Gemara asks: <b>Is that so,</b> that the priestly vestments atone for these sins? <b>But doesn’t Rabbi Yehoshua ben Levi say:</b> There are <b>two matters</b> that <b>we do not find for them an atonement with offerings, but we find for them an atonement from another place, and they are: Bloodshed and malicious speech.</b>
+
+### Part 10
+With regard to <b>bloodshed,</b> its atonement comes <b>from</b> the <b>heifer whose neck is broken.</b> This is referring to a case where a murdered body is found but the identity of the murderer is not known. In such an instance, the Torah mandates that the neck of a heifer must be broken as an atonement for the murder. <b>And</b> with regard to <b>malicious speech,</b> its atonement comes <b>from incense, as Rav Ḥananya teaches</b> in a <i>baraita</i>: <b>From where</b> is it derived that <b>the incense effects atonement? As it is stated</b> after the Israelites spoke slanderously against Moses and Aaron and a plague was sent against them: <b>“And he put on the incense, and made atonement for the people”</b> (Numbers 17:12).
+
+### Part 11
+The Gemara continues: <b>And</b> similarly, <b>the school of Rabbi Yishmael teaches: For what does incense effect atonement?</b> It effects atonement <b>for malicious speech,</b> in order that <b>an item that</b> is offered <b>in private,</b> i.e., the incense, which is offered by a priest acting alone, <b>shall come and atone for an action</b> generally occurring in <b>private,</b> i.e., malicious speech.
+
+### Part 12
+Accordingly, there is <b>a difficulty</b> between that which is stated with regard to <b>malicious speech and</b> that which is stated with regard to <b>malicious speech,</b> as according to Rabbi Inini bar Sason the robe atones for malicious speech, whereas according to the <i>baraita</i> it is only the incense that effects atonement for that transgression. Likewise, there is <b>a difficulty</b> between that which is stated with regard to <b>bloodshed and</b> that which is stated with regard to <b>bloodshed,</b> as according to Rabbi Inini bar Sason the tunic effects atonement for bloodshed, whereas according to the <i>baraita</i> only the heifer whose neck is broken effects atonement for it.
+
+### Part 13
+The Gemara answers: With regard to bloodshed, it is <b>not difficult,</b> as <b>this,</b> the tunic, effects atonement for bloodshed in an instance <b>where it is known who killed</b> the victim, and <b>this,</b> the heifer, effects atonement in an instance <b>where it is not known who killed</b> the victim. The Gemara challenges: <b>If it is known who killed</b> the victim, that man <b>is deserving of death,</b> and there is no atonement for the community otherwise, as it is stated: “And no atonement can be made for the land for the blood that is shed within it, but by the blood of him that shed it” (Numbers 35:33). The Gemara responds: It is referring to a case where he murdered <b>intentionally but</b> witnesses <b>did not forewarn him</b> of the consequences of committing murder. Therefore, the court may not execute him, as no earthly punishment may be administered without forewarning.
+
+### Part 14
+<b>And</b> with regard to the contradiction between that which is stated with regard to <b>malicious speech and</b> that which is stated with regard to <b>malicious speech,</b> it is <b>also not difficult. This,</b> the incense, effects atonement for malicious speech spoken <b>in private,</b> whereas <b>this,</b> the robe, on which the bells that produce noise are placed, effects atonement for malicious speech spoken <b>in public.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

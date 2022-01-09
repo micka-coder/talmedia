@@ -1,0 +1,51 @@
+
+### Part 1
+<b>If</b> it were <b>possible</b> to avoid selling produce to gentiles without incurring their animosity, <b>indeed</b> it would be prohibited to sell them. Since limiting sales to gentiles to such an extent would cause great harm, it is only prohibited to sell them shields.
+
+### Part 2
+<b>There are</b> those <b>who say:</b> With regard to <b>shields, this is the reason that</b> one is <b>not</b> allowed to sell them to gentiles: <b>As when their</b> use of their <b>weapon is finished</b> in battle, <b>they kill with these</b> shields. <b>And</b> accordingly, the reason that <b>some say</b> in the <i>baraita</i> that <b>one may sell shields to them</b> is because they maintain that this is not a concern, <b>as when their weapon is finished they flee,</b> rather than use their shield as a weapon. <b>Rav Naḥman says</b> that <b>Rabba bar Avuh says:</b> The <b><i>halakha</i></b> is <b>in accordance</b> with the opinion cited as: <b>Some say.</b>
+
+### Part 3
+<b>Rav Adda bar Ahava says: One may not sell blocks [<i>ashashiot</i>] of iron to</b> gentiles. <b>What is the reason?</b> It is <b>because they forge weapons from them.</b> The Gemara asks: <b>If so,</b> then <b>even hoes and axes</b> should not be sold to them, as they too can be used to forge weapons. <b>Rav Zevid said</b> in response: The ruling of Rav Adda bar Ahava was stated <b>with regard to Indian iron,</b> which is of a superior quality and used only for crafting weapons. The Gemara clarifies: <b>And</b> as for the fact <b>that nowadays we do sell</b> all weapons, <b>Rav Ashi said:</b> We sell the weapons <b>to the Persians, who protect us.</b>
+
+### Part 4
+§ The mishna teaches: One may not sell to gentiles <b>calves or foals. It is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda permits</b> the sale <b>of a damaged</b> animal <b>because it is incapable of being cured and living</b> normally. The Sages <b>said to him: But</b> if <b>one mates her, does she not bear offspring? And since one can mate her and she</b> will <b>bear offspring,</b> the gentile <b>will come to leave her</b> in his possession, and Jews who see the animal in the possession of the gentile will assume that it is permitted to sell large livestock to gentiles. Rabbi Yehuda <b>said to them</b> in response: <b>When she bears offspring,</b> I will agree to be concerned about such a possibility. The Gemara notes: <b>Apparently,</b> Rabbi Yehuda holds that a damaged animal <b>does not accept a male,</b> i.e., since its legs are broken, it cannot participate in intercourse.
+
+### Part 5
+The mishna also teaches that <b>ben Beteira permits</b> the sale <b>of a horse</b> to a gentile. The Gemara notes that <b>it is taught</b> in a <i>baraita</i>: <b>Ben Beteira permits</b> the sale <b>of a horse because</b> the gentile <b>uses it for performing an act for which one is not liable</b> to bring <b>a sin-offering,</b> as riding a horse is not prohibited by Torah law. Therefore, there is no reason to prohibit its sale due to the concern that the gentile might use it for a prohibited action. <b>And Rabbi</b> Yehuda HaNasi <b>prohibits</b> its sale <b>due to two reasons: One</b> is <b>because</b> it has the <b>status of a weapon,</b> as horses are used in battle, <b>and</b> the other <b>one</b> is <b>because</b> it has the <b>status of large livestock.</b>
+
+### Part 6
+The Gemara asks: <b>Granted, there is</b> a reason to say that a horse has the <b>status of a weapon, as</b> a horse is taught to <b>kill by striking down</b> enemy troops. <b>But what is</b> the relevance of the observation that it has <b>the status of large livestock?</b> It has already been explained that a horse is used for riding, not for performing acts that are prohibited on Shabbat. <b>Rabbi Yoḥanan says: When it becomes elderly</b> and is no longer suitable for use in battle, <b>one makes it grind with a millstone,</b> and therefore it will in fact be used to perform prohibited labor <b>on Shabbat.</b> Nevertheless, <b>Rabbi Yoḥanan says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>ben Beteira,</b> and it is permitted to sell a horse to gentiles.
+
+### Part 7
+<b>A dilemma was raised before</b> the Sages: With regard to <b>an ox of a fattener,</b> which has been fattened for slaughter, <b>what is</b> the <i>halakha</i>? <b>Let the dilemma be raised according to</b> the opinion of <b>Rabbi Yehuda,</b> who permits the sale of a damaged animal, and <b>let the dilemma be raised according to</b> the opinion of <b>the Rabbis,</b> who dispute that ruling.
+
+### Part 8
+The Gemara elaborates: <b>Let the dilemma be raised according to</b> the opinion of <b>Rabbi Yehuda,</b> as follows: Perhaps <b>Rabbi Yehuda permits only</b> the sale <b>of a damaged</b> animal, <b>which will never come to</b> be included in the <b>category</b> of an animal that is fit for <b>labor. But</b> with regard to <b>this</b> fattened ox, <b>which</b> if <b>kept</b> for a sufficient amount of time without fattening <b>will come to</b> be included in the <b>category</b> of an animal that is fit for <b>labor,</b> the sale is <b>prohibited.</b>
+
+### Part 9
+<b>Or perhaps</b> it may be claimed that <b>even</b> according <b>to the Rabbis, they prohibit</b> the sale <b>only there,</b> in the case of a damaged animal <b>that ordinarily does not stand</b> ready <b>for slaughter. But</b> in <b>this</b> case of a fattened ox, <b>which ordinarily stands</b> ready <b>for slaughter, even the Rabbis permit</b> the sale.
+
+### Part 10
+The Gemara suggests a proof: <b>Come</b> and <b>hear that</b> which <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The members <b>of</b> the <b>household of Rabbi</b> Yehuda HaNasi <b>were</b> required to <b>bring</b> as a present for the authorities <b>an ox of a fattener on their festival day. They deprived</b> themselves of <b>forty-thousand</b> dinars, i.e., they paid this sum as a bribe, to ensure <b>that they</b> would <b>not</b> have to <b>bring it</b> on <b>the</b> actual <b>day</b> of their festival, but <b>rather on the next day. They deprived</b> themselves again, i.e., they paid a further bribe, of another <b>forty-thousand</b> dinars, to ensure <b>that they</b> would <b>not</b> have to <b>bring it alive</b> but <b>rather slaughtered. They deprived</b> themselves again and paid yet another bribe of <b>forty-thousand</b> dinars to ensure <b>that they</b> would <b>not</b> have to <b>bring it at all.</b>
+
+### Part 11
+<b>What is the reason</b> that they paid a bribe to evade the responsibility of bringing a fattened ox to the authorities? <b>Is it not due to</b> the concern that <b>perhaps they will come to keep</b> the animal until it is fit for labor? The Gemara rejects this proof: <b>And according to your reasoning, what is the reason</b> that they paid a bribe to ensure <b>that they</b> would <b>not</b> have to <b>bring it</b> on <b>the day</b> of the festival, but <b>rather the next day? Rather,</b> it must be explained that <b>Rabbi</b> Yehuda HaNasi <b>wanted to abolish the matter</b> entirely, <b>and he reasoned:</b> It is best to <b>abolish</b> it <b>gradually, little</b> by <b>little,</b> and in this manner they ultimately had no obligation to bring the animal at all. Therefore, no proof can be brought from this incident with regard to the <i>halakha</i> of the sale of a fattened ox.
+
+### Part 12
+It was stated that if a fattened ox is kept for a sufficient amount of time without fattening it will come to be included in the category of an animal that is fit for labor. Concerning this, the Gemara asks: <b>But</b> even <b>when</b> a fattened ox is <b>kept</b> until it is slim, does it become <b>healthy and able to perform labor? Rav Ashi said</b> that the expert in this matter, <b>Zevida, said to me: We keep a young ox</b> that has been fattened until it is slim, <b>and it performs twice</b> the work of other oxen.
+
+### Part 13
+<strong>MISHNA:</strong> <b>One may not sell bears, or lions, or any item that can cause injury to the public, to</b> gentiles. <b>One may not build with them a basilica [<i>basileki</i>], a tribunal [<i>gardom</i>], a stadium [<i>itztadeyya</i>], or a platform. But one may build with them small platforms [<i>bimmusiot</i>] and bathhouses.</b> Even in this case, once <b>he reaches the arched chamber</b> in the bath <b>where</b> the gentiles <b>put up</b> objects of <b>idol worship, it is prohibited to build</b> it.
+
+### Part 14
+<strong>GEMARA:</strong> <b>Rav Ḥanin bar Rav Ḥisda says, and some say Rav Ḥanan bar Rava says</b> that <b>Rav says:</b> The status of <b>a large beast is like</b> that of <b>small livestock with regard to a spasm [<i>lefirkus</i>],</b> i.e., the symptoms of vitality required at the time of slaughtering. If an animal in danger of dying was slaughtered but did not display any spasmodic movement when it was slaughtered, it is not kosher. If it did spasm after being slaughtered, its meat is kosher <b>But</b> its status is <b>not</b> the same as that of small livestock <b>with regard to</b> its <b>sale.</b> Rather it is considered like large livestock, and therefore its sale to gentiles is always prohibited.
+
+### Part 15
+Rav Ḥanan bar Rava added: This is the statement of Rav, <b>but I say</b> that <b>even with regard to</b> its <b>sale</b> a large beast is akin to small livestock. Therefore, in <b>a place where</b> the people <b>were accustomed to sell</b> large beasts, <b>one may sell</b> them, and in a place <b>where</b> the people were <b>not</b> accustomed <b>to sell</b> them, <b>one may not sell</b> them.
+
+### Part 16
+The Gemara raises an objection to Rav’s statement. <b>We learned</b> in the mishna: <b>One may not sell bears, or lions, or any item that can cause injury to the public, to</b> gentiles. The Gemara analyzes the mishna: <b>The reason that</b> these beasts cannot be sold to gentiles is because <b>they can cause injury to the public.</b> It may be inferred from here that another beast, which <b>does not cause injury to the public, is permitted</b> to be sold to gentiles. <b>Rabba bar Ulla says</b> in response: This mishna does not pose a problem for Rav, as he holds that it is referring <b>to a damaged lion,</b> which is not fit for labor;
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

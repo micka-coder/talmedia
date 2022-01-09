@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>et il a eclaire nos yeux a partir de la mishna,</b> c'est-a-dire qu'il a demontre que la mishna sert de base a son opinion : En ce qui concerne <b>la femme d'un Israelite qui a ete violee, bien qu'elle soit permise a son mari, elle est disqualifiee pour le sacerdoce.</b> Par consequent, si son mari meurt, elle ne peut pas epouser un pretre. <b>Et le <i>tanna</i></b> de notre mishna a egalement <b>enseigne : Et de meme,</b> dans le cas de <b>celle qui a eu des rapports avec l'un de ceux avec qui les relations sont interdites [<i>arayot</i>]</b> par <b>la Torah ou</b> avec ceux qui sont <b>inaptes</b> a se marier avec <b>lui</b> meme s'ils ne sont pas dans la categorie des <i>arayot</i>, la femme est disqualifiee pour epouser un pretre.
+
+### Partie 2
+<b>Quel est le sens de</b> la phrase : <b>Et ainsi ? Quoi, n'est-ce pas</b> que <b>il n'y a pas de difference</b> s'ils ont des rapports sexuels <b>involontaires ou intentionnels, et il n'y a pas de difference</b> s'ils ont des rapports sexuels <b>sous la contrainte ou de plein gre ? Et il est enseigne</b> que <b>il l'a rendue disqualifiee</b> pour epouser un pretre.
+
+### Partie 3
+La Guemara refute cette preuve : <b>Non, quel</b> est le sens de la phrase : <b>Et ainsi aussi ?</b> Elle fait reference <b>a la phase initiale du rapport sexuel,</b> car cela aussi l'invalide. La Guemara demande : <b>Le stade initial du rapport sexuel de qui ? Si nous disons</b> qu'elle fait reference a <b>ceux avec qui les relations sont interdites</b> et entrainent une peine de <i>karet</i> ou de mort <b>[<i>arayot</i>], est-ce pour dire que</b> la <i>halakha</i> <b>en ce qui concerne ceux avec qui les relations sont interdites est derivee de</b> la <i>halakha</i> en ce qui concerne <b>un <i>yevama</i>,</b> comme le sous-entend la phrase : Et ainsi de suite ? <b>Au contraire, nous tirons</b> la <i>halakha</i> de <b>un <i>yevama</i> de</b> la <i>halakha</i> <b>en ce qui concerne ceux avec qui les relations sont interdites, car la principale</b> source qui indique que <b>le stade initial du rapport sexuel</b> est considere comme un rapport sexuel <b>est enoncee dans</b> le contexte de <b>ceux avec qui les relations sont interdites</b> et non dans le contexte d'une <i>yevama</i>.
+
+### Partie 4
+<b>Au contraire, quel est</b> le sens de la phrase : <b>Et ainsi aussi ?</b> Elle fait reference <b>aux rapports sexuels atypiques,</b> c'est-a-dire anaux, <b>avec ceux avec qui les relations sont interdites [<i>arayot</i>].</b> La Gemara rejette cette suggestion : <b>Au contraire, la principale</b> source selon laquelle les rapports atypiques sont consideres comme des rapports sexuels, qui se base sur le verset <b>"Les cohabitations d'une femme"</b> (Levitique 18:22) <b>est ecrite a l'egard de ceux avec qui les relations sont interdites [<i>arayot</i>].</b>
+
+### Partie 5
+<b>Au contraire, quel est</b> le sens de la phrase : <b>Et ainsi aussi ?</b> Elle fait reference <b>aux rapports atypiques</b> <b>par ceux qui sont responsables de</b> la violation d'une <b>interdiction ordinaire</b> non punissable par <i>karet</i>, a l'egard desquels l'expression : Les cohabitations d'une femme, n'apparait pas. En tout etat de cause, la preuve de Rav Sheshet a partir de la mishna n'est pas concluante.
+
+### Partie 6
+§ <b>Rava a dit :</b> En ce qui concerne <b>la femme d'un pretre qui a ete violee, son mari est fouette</b> s'il a ensuite des rapports sexuels avec <b>elle, en raison</b> du fait qu'il est interdit a un pretre d'avoir des rapports sexuels avec une <b><i>zona</i>.</b> La Guemara exprime sa surprise : <b>En raison</b> de l'interdiction proscrivant une <b><i>zona</i>, oui ; en raison de l'impurete rituelle, non ?</b> La Torah fait reference a une femme mariee qui a eu des rapports avec un autre homme comme etant rituellement impure, et elle est interdite a son mari. La Guemara emet la declaration de Rava : <b>Dit</b> qu'il est <b>egalement</b> flagelle <b>en raison</b> de l'interdiction a l'egard d'une <b><i>zona</i>.</b>
+
+### Partie 7
+<b>Rabbi Zeira a souleve une objection</b> basee sur un verset concernant une <i>sota</i> : <b>"Et elle n'a pas ete prise"/b> (Nombres 5:13) indique que <b>elle est interdite</b> a son mari parce qu'elle a volontairement commis l'adultere, <b>mais</b> si <b>elle a ete</b> prise de force,</b> c'est-a-dire violee, <b>elle est permise</b> a son mari. Le terme "Et"¦elle" indique que bien que ces principes s'appliquent dans ce cas, <b>on a un autre</b> cas de femme <b>qui</b> est <b>interdite meme si elle a ete</b> prise de force. Et de quoi s'agit-il ? C'est la femme d'un pretre.</b>
+
+### Partie 8
+<b>Et une interdiction qui decoule d'une mitzva positive,</b> par exemple, l'interdiction proscrivant la femme d'un pretre a son mari si elle a ete violee, qui decoule du fait que la Torah indique que la femme d'un israelite reste autorisee, a le statut de <b>mitzva positive,</b> et non d'interdiction. Par consequent, on ne doit pas etre fouette pour cette offense, car on ne l'est que pour avoir enfreint une interdiction.
+
+### Partie 9
+<b>Rabba a dit</b> en reponse : <b>Toutes</b> les femmes mariees qui ont eu des rapports extraconjugaux <b>etaient incluses</b> dans la categorie des <b><i>zona</i>. Lorsque le verset precise a propos de la femme d'un israelite : "Et elle n'a pas non plus ete prise,"</b> puisque c'est seulement dans ce cas qu'elle est <b>interdite,</b> il indique ainsi que si en fait <b>elle a ete</b> prise de force, </b> elle est <b>permise. Par deduction,</b> contrairement a la femme d'un israelite, <b>la femme d'un pretre reste telle qu'elle etait.</b> Puisque la Torah ne limite pas la categorie de <i>zona</i> en ce qui concerne la femme d'un pretre, elle est consideree comme une <i>zona</i> meme si elle a ete violee.
+
+### Partie 10
+<b>Et certains disent</b> une version differente de cette discussion. <b>Rabba a dit :</b> En ce qui concerne <b>la femme d'un pretre qui a ete violee, son mari est fouette pour</b> avoir des rapports sexuels avec <b>elle en raison</b> de son <b>impurete rituelle.</b> La Gemara demande : <b>En raison de l'impurete rituelle, oui ; en raison</b> de l'interdiction proscrivant une <b><i>zona</i>, non ? Apparemment, dans</b> un cas de <b>viol,</b> la victime <b>n'est pas appelee une <i>zona</i>.</b>
+
+### Partie 11
+<b>Rabbi Zeira souleve une objection</b> a partir du verset : <b>"Et elle n'a pas non plus ete prise"/b> indique que <b>elle est interdite</b> a son mari parce qu'elle a volontairement commis l'adultere, <b>mais</b> si <b>elle a ete</b> prise de force, elle est permise</b> a son mari. Le terme : "Et"¦elle,"" indique que bien que ces principes s"?appliquent dans ce cas, <b>vous avez un autre</b> cas de femme <b>qui</b> est <b>interdite meme si elle a ete</b> prise de force. Et de quoi s'agit-il ? Il s'agit de la femme d'un pretre. Et une interdiction qui decoule d'une mitzva positive</b> a le statut de <b>mitzva positive,</b> pas d'interdiction. Par consequent, on ne doit pas etre fouette pour cette offense, car on ne l'est que pour avoir enfreint une interdiction.
+
+### Partie 12
+<b>Rava dit : Tous etaient inclus</b> dans le verset "Son ancien mari, qui l'a renvoyee, ne peut la reprendre comme epouse <b>apres qu'elle ait ete rendue rituellement impure"</b> (Deuteronome 24:4). <b>Lorsque le verset precisait a propos de la femme d'un israelite : "Et elle n'a pas non plus ete prise,"</b> puisque c'est seulement dans ce cas qu'elle est <b>interdite,</b> il indique ainsi que si <b>elle a ete</b> prise de force <b>elle est <b>permise. Par deduction, la femme d'un pretre reste ce qu'elle etait,</b> et elle est interdite.
+
+### Partie 13
+<strong>MISHNA :</strong> <b>Une veuve a un grand pretre, une divorcee, ou une <i>halutza</i> a un pretre commun,</b> meme s'ils se sont seulement engages dans des <b>festations</b> et n'ont pas encore eu de rapports sexuels, <b>ne peuvent pas prendre part au <i>teruma</i>. </b> Puisqu'elles sont interdites aux hommes qui les ont fiancees, les fiancailles elles-memes les disqualifient des privileges de la pretrise, meme si elles sont les filles de pretres. <Rabbi Elazar et Rabbi Shimon les declarent aptes</b> a participer a la <i>teruma</i>. Puisque l'interdiction est violee par l'acte sexuel et non par les fiancailles, les femmes ne sont disqualifiees qu'une fois qu'elles ont des rapports sexuels.
+
+### Partie 14
+Dans le cas ou ces femmes <b>etaient veuves ou divorcees,</b> si c'etait <b>par mariage, elles sont disqualifiees</b> de la pretrise et ne peuvent pas prendre part au <i>teruma</i>. Cela est du au fait qu'une femme interdite de mariage avec un pretre qui a des rapports sexuels avec un pretre devient une <i>halala</i>, et est donc disqualifiee pour participer au <i>teruma</i>. Cependant, s'ils etaient veufs ou divorces <b>de</b> leur etat de <b>fetalite,</b> ils sont a nouveau <b>aptes</b> a participer au <i>teruma</i> selon toutes les opinions.
+
+### Partie 15
+<strong>GEMARA :</strong> <b>Il est enseigne dans une</b> <i>baraita</i> que <b>Rabbi Meir a dit :</b> Ceci est <b>une <i>a fortiori</i> deduction : Tout comme les fiancailles facultatives,</b> par exemple, dans le cas d'un Israelite qui fiance la fille d'un pretre, <b>ne lui donne pas le droit de participer</b> a la <i>teruma</i>, puisque ses fiancailles avec un non-pretre la disqualifient pour participer a la <i>teruma</i> de son pere, <b>n'est-ce pas d'autant plus</b> vrai dans un cas de <b>fiancailles</b> qui constitue <b>une transgression,</b> comme dans les cas de la mishna ?
+
+### Partie 16
+<b>Ils lui ont repondu : Non, si vous dites</b> que cela est vrai a l'egard d'un Israelite, <b>dont le statut</b> <b>ne peut lui donner le droit de participer</b> a la <i>teruma</i> <b>dans un autre cas,</b> car une fiancee a un Israelite ne peut jamais participer a la <i>teruma</i>, <b>Tu</b> egalement <b>dire</b> que c'est le cas en ce qui concerne les <b>fiancailles</b> avec un pretre qui constituent <b>une transgression, ou son</b> statut <b>lui donne le droit de participer</b> a <i>teruma</i> <b>dans un cas different,</b> comme le mariage avec un pretre donne a une femme le droit de participer a <i>teruma</i> dans un cas ou il leur est permis de se marier ?
+
+### Partie 17
+<b>Rabbi Elazar a dit</b> que <b>Rabbi Oshaya a dit :</b> Dans le cas d'un <b>pretre aux testicules ecrases</b> ou avec d'autres blessures aux parties genitales <b>qui a fiance la fille d'un Israelite,</b> ce qui est interdit par le verset : "Celui qui est ecrase ou mutile n'entrera pas dans la congregation du Seigneur" (Deuteronome 23 : 2), <b>nous sommes arrives a la dispute</b> entre <b>Rabbi Meir</b> d'une part <b>et Rabbi Elazar et Rabbi Shimon</b> d'autre part.
+
+### Partie 18
+<b>Selon Rabbi Meir, qui a dit</b> qu'une femme qui est <b>reservee pour un rapport sexuel invalide,</b> c'est-a-dire interdit, <b>par la loi de la Torah ne peut pas prendre part</b> au <i>teruma</i>, <b>celle-ci ne peut pas non plus prendre part</b> au <i>teruma</i>, car il est interdit par la loi de la Torah qu'elle ait un rapport sexuel avec un homme aux testicules ecrases. <b>Selon Rabbi Elazar et Rabbi Shimon, qui disent</b> qu'une femme qui est <b>reservee pour un rapport sexuel invalide par la loi de la Torah</b> <b>peut prendre part</b> a <i>teruma</i> jusqu'a ce qu'elle s'engage effectivement dans l'acte interdit du rapport sexuel,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

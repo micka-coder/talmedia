@@ -1,0 +1,75 @@
+
+### Partie 1
+<b>Si quelqu'un est un erudit de la Torah, il n'a pas besoin</b> de reciter <i>Shema</i> sur son lit puisqu'il est toujours engage dans l'etude de la Torah et s'endormira probablement absorbe par des questions de Torah. <b>Abaye a dit : Meme un erudit en Torah doit reciter au moins un verset de priere, tel que : "En ta main je confie mon esprit ; Tu m'as rachete, Seigneur, Dieu de verite"</b> (Psaumes 31:6).
+
+### Partie 2
+En marge du verset "Tremble et ne peche pas", la Guemara mentionne que <b>Rabbi Levi bar Hama a dit</b> que <b>Rabbi Shimon ben Lakish a dit : Il faut toujours inciter son bon penchant contre son mauvais penchant,</b> c'est-a-dire qu'il faut constamment lutter pour que son mauvais penchant ne le conduise pas a la transgression, <b>comme il est dit : "Tremble, et ne peche pas."</b><br><b>Si</b> on reussit et <b>subjugue</b> son mauvais penchant, <b>excellent,</b> mais <b>si</b> il ne <b>reussit pas</b> a le subjuguer, il doit <b>etudier la Torah,</b> comme il est fait allusion dans <b>le verset : "Dis a ton cœur."</b> <br><b>Si</b> il <b>subjugue</b> son mauvais penchant, <b>excellent ; sinon, il doit reciter <i>Shema</i>,</b> qui contient l'acceptation du joug de Dieu, et la notion de recompense et de punition, <b>comme il est dit</b> dans le verset : <b>"Sur ton lit"</b>, qui fait allusion a <i>Shema</i>, ou il est dit : "Quand tu te couches." <br><b>Si</b> il <b>subjugue</b> son mauvais penchant, <b>excellent ; sinon, il doit se rappeler le jour de la mort,</b> dont le silence est evoque dans la suite du <b>verset : "Et sois tranquille, Selah."</b>
+
+### Partie 3
+<b>Rabbi Levi bar Hama a dit</b> que <b>Rabbi Shimon ben Lakish a dit :</b> Dieu a dit a Moise : "Monte vers moi sur la montagne et sois-y, <b>et je te donnerai les tables de pierre, la Torah et la mitzva que j'ai ecrite pour que tu les enseignes"</b> (Exode 24:12), ce qui signifie que Dieu a revele a Moise non seulement la Torah ecrite, mais toute la Torah, telle qu'elle sera transmise a travers les generations. <br><b>Les "tablettes" sont les dix commandements</b> qui ont ete ecrits sur les tables de l'Alliance, <br><b>la "Torah" est les cinq livres de Moise.</b> <br><b>La "mitzva" est la Mishna,</b> qui comprend des explications pour les mitzvot et la maniere de les accomplir. <br><b>"Ce que j'ai ecrit" fait reference aux Prophetes et aux Ecrits,</b> ecrits avec une inspiration divine. <br><b>"Pour que vous les enseigniez" fait reference au Talmud,</b> qui explique la Mishna. <br>Ces explications sont le fondement des decisions de la <i>halakha</i> pratique. Ce verset <b>enseigne</b> que <b>tous</b> les aspects de la Torah <b>ont ete donnes a</b> Moise <b>depuis le Sinai.</b>
+
+### Partie 4
+La Guemara poursuit son traitement de la recitation du <i>Shema</i> sur son lit. <b>Rabbi Yitzhak a dit : Quiconque recite <i>Shema</i> sur son lit, c'est comme s'il tenait une epee a double tranchant,</b> le gardant de tout mal, <b>comme il est dit :" De hautes louanges de Dieu dans leurs bouches, et une epee a double tranchant dans leurs mains"</b> (Psaumes 149, 6). La Gemara demande : <b>D'ou deduit-on</b> que ce verset des Psaumes fait reference a la recitation du <i>Shema</i> ? <b>Mar Zutra, et certains disent Rav Ashi, ont repondu :</b> On le deduit <b>du verset precedent</b>, <b>comme il est ecrit : "Les pieux exultent dans la gloire ; qu'ils chantent joyeusement sur leurs lits."</b> La louange de Dieu depuis son lit est la recitation du <i>Shema</i>. <b>Et il est ecrit par la suite : "Les hautes louanges de Dieu dans leurs bouches, et une epee a double tranchant dans leurs mains."</b>
+
+### Partie 5
+<b>Et Rabbi Yitzhak dit : Quiconque recite <i>Shema</i> sur son lit, les demons se tiennent a l'ecart de lui.</b> On y fait allusion, <b>comme il est dit :</b> "Mais l'homme nait dans la detresse, <b>et les etincelles [<i>reshef</i> ] volent [<i>uf</i> ] vers le haut"</b> (Job 5:7). Le verset est explique : Le mot <b>mouche [<i>uf</i>]</b> signifie <b>rien d'autre que la Torah,</b> car la Torah est difficile a saisir et facile a perdre, comme quelque chose qui flotte au loin, <b>comme il est dit :" Veux-tu poser tes yeux sur elle ? Elle s'en va;</b> car les richesses se font certainement des ailes, comme l'aigle qui s'envole dans les cieux" (Proverbes 23:5). Le mot <b>"etincelles"</b> ne signifie <b>rien d'autre que les demons, comme il est dit : "La faim, la devoration des etincelles [<i>reshef</i>] et la destruction amere [<i>ketev meriri</i>],</b> et les dents des betes que j'enverrai sur eux, avec le venin des rampants de la poussiere" (Deuteronome 32:24). Nous voyons ici <i>reshef</i> liste avec <i>ketev meriri</i>, tous deux compris par les Sages comme etant des noms de demons.
+
+### Partie 6
+A propos de ce verset peu clair, <b>Rabbi Shimon ben Lakish a dit : Si quelqu'un s'engage dans l'etude de la Torah</b>, la <b>souffrance reste loin de lui, comme il est dit : "Et les étincelles s"?envolent vers le haut."</b> Et <b>mouche</b> signifie <b>rien d"?autre que la Torah, <b>comme il est dit : "Vous posez vos yeux sur elle ? Elle a disparu ;</b> et les etincelles</b> ne signifient <b>rien d'autre que la souffrance, comme il est dit : "La devoration de la faim, et la devoration des etincelles,"</b> assimilant la devoration des etincelles a la devoration de la faim, car toutes deux sont des types de souffrance. De la, nous deduisons que par la Torah, la mouche, on est capable de s'eloigner, vers le haut, de la souffrance, des etincelles.
+
+### Partie 7
+<b>Rabbi Yohanan lui dit : Meme les ecoliers,</b> qui n'apprennent que la Torah ecrite, <b>savent ce</b> concept <b>comme il est dit : <b>Et Il dit : tu ecouteras la voix du Seigneur ton Dieu, tu feras ce qui est droit a ses yeux, tu ecouteras ses mitzvot et tu garderas ses statuts ; toute maladie que j'ai mise sur l'Egypte, je ne la mettrai pas sur toi car je suis le Seigneur ton guerisseur</b> (Exode 15:26). <b>Au contraire,</b> il faut interpreter le verset : <b>Quiconque est capable de s'engager dans l'etude de la Torah</b> <b>et ne s'engage pas</b> dans cette etude, non seulement <b>le Saint, Beni soit-Il,</b> ne le protege pas, mais Il <b>invoque sur lui des afflictions hideuses,</b> qui l'embarrassent <b>et le troublent, comme il est dit : "Je suis reste muet de silence, je me suis tu du bien, et ma douleur etait forte"</b> (Psaumes 39:3). Le mot <b>bien</b> signifie <b>rien d'autre que la Torah, comme il est dit : "Car je t'ai donne une bonne part, ma Torah, ne l'abandonne pas"</b> (Proverbes 4:2). Le verset doit être compris : "Je me suis tu de l'étude de la Torah, et ma douleur était forte."
+
+### Partie 8
+En ce qui concerne le verset :" Car je t'ai donne une bonne part", <b>Rabbi Zeira, et certains disent Rabbi Hanina bar Pappa, a dit : Viens voir comment les caracteristiques du Saint, Beni soit-Il, sont differentes des caracteristiques de la chair et du sang. Il est caracteristique de la chair et du sang que lorsqu'on vend un objet a une autre</b> personne, <b>le vendeur s'afflige</b> de la perte de son bien <b>et l'acheteur se rejouit. En ce qui concerne le Saint, Beni soit-Il,</b> cependant, <b>il n'en est pas ainsi. Il a donne la Torah a Israel et s'en est rejoui, comme il est dit : "Car Je vous ai donne une bonne part, Ma Torah, ne l'abandonnez pas."</b> Une bonne part est comprise comme un bon achat ; bien que Dieu ait vendu la Torah a Israel, Il se rejouit de la vente et loue l'objet devant son nouveau proprietaire (Rabbi Yoshiyahu Pinto).
+
+### Partie 9
+Precedemment, la Guemara a discute de la souffrance qui resulte des transgressions d'une personne. La Guemara change de sujet et discute de la souffrance qui ne resulte pas des transgressions d'une personne et de la souffrance des justes. <b>Rava, et certains disent Rav Hisda, a dit : Si une personne voit que la souffrance s'est abattue sur elle, elle doit examiner ses actions.</b> Generalement, la souffrance survient en tant que punition pour les transgressions d'une personne, <b>comme il est dit : "Nous chercherons et examinerons nos voies, et nous retournerons a Dieu"</b> (Lamentations 3:40). <b>S'il a examine</b> ses voies et n'a <b>pas trouve</b> de transgression pour laquelle cette souffrance est appropriee, <b>il peut attribuer</b> sa souffrance <b>a la dereliction</b> dans l'etude <b>de la Torah.</b> Dieu punit un individu pour sa dereliction dans l'etude de la Torah afin de souligner la gravite de la question, <b>comme il est dit : "Heureux l'homme que Tu chaties, Seigneur, et que Tu instruis de Ta loi"</b> (Psaumes 94:12). Ce verset nous enseigne que sa souffrance l'amenera a revenir a Ta loi.
+
+### Partie 10
+<b>Et s'il attribuait</b> sa souffrance a une dereliction dans l'etude de la Torah, <b>et ne trouvait</b> pas que c'etait le cas, <b>il peut etre confiant que ce sont des afflictions d'amour, comme il est dit :" Car celui que l'Eternel aime, Il le reprend,A" comme le fait un père au fils dont il se réjouit" (Proverbes 3:12).
+
+### Partie 11
+De meme, <b>Rava a dit</b> que <b>Rav Sehora a dit</b> que <b>Rav Huna a dit : Toute personne en qui le Saint, Beni soit-Il, prend plaisir, Il l'oppresse par la souffrance, comme il est dit : A "A Mais celui en qui le Seigneur prend plaisir, Il l'opprime par la maladieA A "A pour voir si son ame s'offrirait en faute, afin qu'il puisse voir ses enfants, allonger ses jours, et que le desir du Seigneur prospere par sa mainA" (Isaie 53:10). Ce verset illustre le fait qu'en quiconque Dieu prend plaisir, il afflige de la maladie.
+
+### Partie 12
+J'ai <b>pourrais</b> penser que Dieu se complait en lui meme <b>s'il n'accepte pas</b> sa souffrance <b>avec amour. C'est pourquoi le verset enseigne : "Si son ame s"?offrait dans la culpabilite." De meme que le sacrifice de culpabilite est apporte en connaissance de cause,</b> comme il fait partie des sacrifices offerts volontairement, sans contrainte, <b>de meme</b> sa <b>souffrance</b> doit etre acceptee <b>en connaissance de cause.</b>
+
+### Partie 13
+<b>Et si l'on accepte</b> cette souffrance avec amour, <b>quelle est sa recompense ?</b> Comme le precise la deuxieme partie du verset : <b>Afin qu'il puisse voir ses enfants, allonger ses jours.</b> De plus,</b> en plus de ces recompenses terrestres, <b>son</b> <b>etude de la Torah perdurera</b> et son etude de la Torah sera couronnee de succes, <b>comme il est dit : "Le dessein du Seigneur,"</b> la Torah, la revelation de la volonte de Dieu, <b>pourra prosperer par sa main."</b>
+
+### Partie 14
+En ce qui concerne l'acceptation de l'affliction avec amour et ce que cela implique exactement, <b>Rabbi Yaâkov bar Idi et Rabbi Aha bar Hanina ne sont pas d'accord. L'un</b> d'entre eux <b>a dit : Les afflictions d'amour sont toutes celles qui ne provoquent pas de dereliction</b> dans l'etude <b>de la Torah,</b> c'est-a-dire toutes celles qui n'affligent pas son corps au point de l'empecher d'etudier la Torah, <b>comme il est dit : "Heureux l'homme que Tu affliges, Seigneur, et que Tu enseignes a partir de Ta Torah."</b> Les afflictions d'amour sont celles ou Tu "enseignes a partir de Ta Torah".
+
+### Partie 15
+<b>Et l'on dit : Les afflictions d'amour sont toutes celles qui ne provoquent pas de dereliction</b> dans la recitation <b>de la priere, comme il est dit : "Bienheureux Dieu qui n'a pas repousse ma priere"</b> (Psaumes 66:20). Malgre sa souffrance, l'afflige est toujours capable de prier Dieu.
+
+### Partie 16
+<b>Rabbi Abba, fils de Rabbi Hiyya bar Abba, a dit :</b> Mon pere, <b>Rabbi Hiyya bar Abba, a dit</b> que <b>Rabbi Yohanan a dit ce qui suit : Les deux,</b> meme les afflictions qui entrainent une dereliction dans l'etude de la Torah et celles qui entrainent une dereliction dans la recitation de la priere, <b>sont des afflictions d'amour,</b> car a l'egard de celui qui souffre sans transgression <b>il est dit : <b>Car celui qu'Il aime, Il le reprimande,</b> et l'incapacite d'etudier la Torah et de prier font partie de ses afflictions.
+
+### Partie 17
+<b>Quel est alors,</b> le sens lorsque <b>le verset dit : "Et enseigne-lui a partir de Ta Torah" ? Ne lisez pas et enseigne</b> pour signifier et <b>lui enseigne</b>, <b>plutot, et nous enseigne</b>. <b>Tu nous enseignes</b> la valeur de <b>cette</b> affliction <b>a partir de Ta Torah.</b>
+
+### Partie 18
+Ceci est enseigne par <b>une <i>a fortiori</i> deduction de</b> la loi concernant <b>la dent et l'œil</b> d'un esclave : <b>La dent et l'œil sont</b> chacun <b>un seul membre de la personne</b> et si son maitre endommage l'un ou l'autre, <b>l'esclave obtient ainsi sa liberte ; la souffrance qui purifie le corps entier d'une personne d'autant plus</b> qu'elle atteint la liberte, l'expiation, de ses peches.
+
+### Partie 19
+<b>Et c'est</b> l'affirmation de <b>Rabbi Shimon ben Lakish, comme Rabbi Shimon ben Lakish a dit :</b> Le mot <b>alliance est utilise par rapport au sel, et</b> le mot <b>alliance est utilise par rapport aux afflictions.</b> Le mot <b>alliance est utilise par rapport au sel, comme il est ecrit : "Le sel de l'alliance</b> avec ton Dieu <b>ne doit pas etre exclu</b> de ton offrande ; avec tous tes sacrifices, tu dois offrir du sel" (Levitique 2:13). <b>Et</b> le mot <b>alliance est utilise a propos des afflictions, comme il est ecrit : "Ce sont les paroles de l'alliance"</b> (Deuteronome 28:69). <b>De meme que,</b> dans <b>l'alliance mentionnee a propos du sel, le sel adoucit</b> le gout de <b>la viande</b> et la rend comestible, <b>de meme</b> dans <b>l'alliance mentionnee a propos de la souffrance, la souffrance nettoie les transgressions d'une personne,</b> la purifiant pour une existence plus sublime.
+
+### Partie 20
+De plus, <b>il a ete enseigne</b> dans une <i>baraita</i> en ce qui concerne l'affliction : <b>Rabbi Shimon ben Yohai dit : Le Saint, Beni soit-Il, a donne a Israel trois dons precieux, tous donnes uniquement par le biais de la souffrance,</b> qui a purifie Israel afin qu'il merite de les recevoir. Ces dons sont : <b>Torah, Eretz Yisrael, et le monde a venir.</b>
+
+### Partie 21
+<b>D'ou vient</b> le fait que la <b>Torah</b> ne s'acquiert qu'au moyen de la souffrance ? <b>Comme il est dit : "Heureux l'homme que Tu affliges, Seigneur,"</b> apres quoi il est dit : <b>Et enseigne a partir de Ta Torah.</b>
+
+### Partie 22
+<b>Eretz Yisrael, comme il est ecrit : <b>Comme un homme reprimande son fils, ainsi le Seigneur ton Dieu te reprimande"</b> (Deuteronome 8:5), <b>et il est ecrit ensuite : "Car le Seigneur ton Dieu te fera entrer dans un bon pays."</b>
+
+### Partie 23
+<b>Le monde a venir, comme il est ecrit :" Car la mitzva est une lampe, la Torah est une lumiere, et les reproches de l'instruction sont le chemin de la vie" (Proverbes 6:23). On ne peut arriver a la lampe de la mitzva et a la lumiere de la Torah qui existent dans le Monde-a-Venir qu'au moyen des reproches de l'instruction dans ce monde.
+
+### Partie 24
+<b>Un <i>tanna</i> a enseigne</b> la <i>baraita</i> suivante <b>avant Rabbi Yohanan : Si on s'engage dans la Torah et les actes de charite</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

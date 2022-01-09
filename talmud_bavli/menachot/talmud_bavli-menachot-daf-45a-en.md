@@ -1,0 +1,69 @@
+
+### Part 1
+The Gemara asks: The mishna mentioned <b>rams,</b> in plural; <b>on which</b> festival are multiple rams offered? <b>If</b> the mishna is referring to the additional offerings sacrificed <b>on those</b> days of the new moon and <i>Shavuot</i> as prescribed in the book of Numbers, these offerings include only one <b>ram</b> and not two. And <b>if</b> it is referring to the two rams <b>of <i>Shavuot</i></b> that accompany the two loaves, as prescribed <b>in Leviticus,</b> a term of <b>being is written about them</b> in the verse: “They shall be a burnt offering to the Lord” (Leviticus 23:18). This term indicates that the offerings must be sacrificed exactly as prescribed in order to be valid. Consequently, one may not sacrifice fewer than two rams.
+
+### Part 2
+The Gemara answers: <b>Actually,</b> it is referring to the two rams <b>of <i>Shavuot</i></b> that are prescribed <b>in Leviticus, and this</b> is what the mishna <b>is saying:</b> Failure to sacrifice the <b>rams</b> that accompany the two loaves, as prescribed <b>in Leviticus, does not prevent</b> the sacrifice of the <b>ram</b> of the additional offering prescribed <b>in the book of Numbers.</b> Similarly, failure to sacrifice the <b>ram</b> of the additional offering, prescribed <b>in the book of Numbers, does not prevent</b> the sacrifice of the <b>rams</b> that accompany the two loaves, as prescribed <b>in Leviticus.</b>
+
+### Part 3
+The Gemara challenges: <b>But</b> if that is the explanation, then when the mishna mentions <b>bulls</b> and sheep it means <b>that even</b> the bulls or sheep of the additional offering prescribed in the book of Numbers <b>do not prevent each other</b> from being sacrificed, i.e., the inability to sacrifice one of the bulls or sheep does not prevent one from sacrificing the rest. <b>But</b> when the mishna mentions <b>rams, it is the</b> rams mentioned <b>here</b> in Leviticus <b>that do not prevent</b> sacrifice of the rams mentioned <b>there,</b> in Numbers, and vice versa; but the failure to sacrifice one of <b>those</b> rams in Leviticus <b>does prevent</b> sacrifice of the other. Consequently, although the mishna mentions bulls, rams, and sheep together, the <i>halakha</i> is not the same with regard to these different animals.
+
+### Part 4
+The Gemara responds: The <b><i>tanna</i></b> of the mishna <b>teaches each statement</b> individually, i.e., the <i>halakha</i> applies to each of the animals listed in a different manner.
+
+### Part 5
+§ The Gemara cites a <i>baraita</i> with regard to the offerings sacrificed on the New Moon: The verse states: <b>“And on the day of the new moon, a young bull without blemish; and six lambs, and a ram; they shall be without blemish”</b> (Ezekiel 46:6) The <i>baraita</i> asks: <b>Why</b> does <b>the verse state “a bull”</b> when the verse in the Torah requires two bulls, as it is stated: “And on your New Moons you shall present a burnt offering to the Lord: Two young bulls, and one ram, seven lambs of the first year without blemish” (Numbers 28:11)?
+
+### Part 6
+The <i>baraita</i> answers: <b>Since</b> it <b>is stated in the Torah</b> with regard to the offering of the New Moon: “Two young <b>bulls,”</b> one might think that it is not acceptable to bring fewer than two bulls under any circumstances. <b>From where</b> is it derived <b>that if</b> one <b>did not find two</b> bulls, <b>he brings one?</b> Therefore, <b>the verse states:</b> “A young <b>bull,”</b> in the singular, to teach that even if one has only one bull it should be sacrificed.
+
+### Part 7
+The <i>baraita</i> discusses the continuation of the verse in Ezekiel, which mentions <b>“six lambs.” Why</b> does <b>the verse state</b> only six lambs when the verse in the Torah requires seven? The <i>baraita</i> answers: <b>Since it is stated in the Torah</b> with regard to the offering of the New Moon: <b>“Seven</b> lambs,” one might think that it is not acceptable to bring fewer than seven lambs under any circumstances. <b>From where</b> is it derived <b>that if</b> one <b>did not find seven</b> lambs, <b>he should bring six? Therefore, the verse</b> in Ezekiel <b>states: “Six</b> lambs,” to teach that in the absence of all seven lambs one should sacrifice six.
+
+### Part 8
+<b>And from where</b> is it derived <b>that if he did not find six</b> lambs, <b>he should bring five;</b> and that if he did not find <b>five</b> lambs, <b>he should bring four;</b> and that if he did not find <b>four</b> lambs, <b>he should bring three;</b> and that if he did not find <b>three</b> lambs, <b>he should bring two; and</b> that if he could not find even two lambs, he should bring <b>even one</b> lamb? Therefore, <b>the</b> next <b>verse</b> in Ezekiel <b>states: “And for the lambs as his means suffice”</b> (Ezekiel 46:7), indicating that one should bring however many lambs one is able to bring.
+
+### Part 9
+The Gemara asks: <b>But once this is written, why do I</b> need the previous verse to state <b>“six lambs,”</b> indicating that if one does not have seven lambs he should bring six? The Gemara answers: It teaches <b>that</b> although the minimal obligation is satisfied with even one lamb, nevertheless, <b>to the degree that it is possible to seek</b> more lambs, <b>we seek</b> them.
+
+### Part 10
+The Gemara presents another <i>halakha</i> derived from these verses: <b>And from where</b> is it derived <b>that</b> failure to slaughter some of the required two bulls and seven sheep of the additional offering on <i>Shavuot</i> <b>prevents</b> fulfillment of the mitzva with <b>the others?</b> The Gemara answers that <b>the verse states: “They shall be”</b> (Numbers 28:31); the term “they shall be” indicates that the offerings must be brought precisely as prescribed.
+
+### Part 11
+§ The Gemara discusses the meaning of another difficult verse in Ezekiel: <b>“So says the Lord God: In the first month, on the first day of the month, you shall take a young bull without blemish; and you shall purify [<i>veḥitteita</i>] the Sanctuary”</b> (Ezekiel 45:18). The Gemara asks: Since this verse speaks of the first of Nisan, which is a New Moon, why does it state <b>“you shall purify [<i>ḥitteita</i>],”</b> which indicates the sacrifice of a sin offering [<i>ḥatat</i>], when in fact each of the two the bulls sacrificed on the New Moon <b>is a burnt offering</b> (see Numbers 28:11)? <b>Rabbi Yoḥanan says: This passage</b> is indeed difficult, and in the <b>future Elijah</b> the prophet <b>will interpret it.</b>
+
+### Part 12
+<b>Rav Ashi says:</b> It is possible to explain that this verse is not referring to the additional offerings sacrificed on the New Moon but rather to the offerings of the <b>inauguration</b> that <b>they sacrificed</b> later <b>in the days of Ezra, similar to</b> the offerings <b>that were sacrificed</b> during the period of inauguration of the Tabernacle <b>in the days of Moses.</b> When the Temple service was restored in the Second Temple, the Jewish people observed eight days of inauguration, initiating the priests in the Temple service, from the twenty-third of Adar through the New Moon of Nisan. During these eight days, they offered a bull for a sin offering in addition to the offerings of the inauguration, just as had been done at the inauguration of the Tabernacle (see Leviticus 9:2).
+
+### Part 13
+The Gemara comments that <b>this</b> discussion with regard to the interpretation of the verse in Ezekiel <b>is also taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda says: This passage</b> is indeed difficult, but in the <b>future Elijah</b> the prophet <b>will interpret it. Rabbi Yosei said to</b> Rabbi Yehuda: This verse is referring to the offerings of the <b>inauguration</b> that <b>they sacrificed</b> later <b>in the days of Ezra, similar to</b> the offerings <b>that were sacrificed</b> during the period of inauguration <b>in the days of Moses.</b> Rabbi Yehuda <b>said to</b> Rabbi Yosei: <b>May your mind be at ease, as you have put my mind at ease</b> with this interpretation of the verse.
+
+### Part 14
+§ The Gemara discusses the meaning of another difficult verse in Ezekiel: <b>“The priests shall not eat of anything that dies of itself, or is torn, whether it be fowl or beast”</b> (Ezekiel 44:31). The Gemara asks: <b>Is it</b> only the <b>priests who may not eat</b> an unslaughtered animal carcass or an animal that was torn and now has a wound that will cause it to die within twelve months [<i>tereifa</i>], <b>but</b> an ordinary <b>Jew may eat</b> them? In fact, these items are prohibited for consumption by all. <b>Rabbi Yoḥanan says: This passage</b> is indeed difficult, but in the <b>future Elijah</b> the prophet <b>will interpret it.</b>
+
+### Part 15
+<b>Ravina said</b> that it <b>was necessary for</b> the verse to emphasize that these prohibitions apply to <b>priests</b> for the following reason: It might <b>enter your mind to say</b> that <b>since pinching is permitted with regard to</b> priests, therefore an animal <b>carcass or a <i>tereifa</i> should also be permitted</b> for them. A bird sin offering is killed by a priest pinching the nape of its neck. This is not a valid method of slaughter and would generally render a bird or animal an unslaughtered carcass, yet the priests are permitted to partake of the bird sin offering. Consequently, one might think that the prohibitions against eating an animal carcass or a <i>tereifa</i> in general do not apply to priests. Therefore, the verse <b>teaches us</b> that these prohibitions apply to priests as well.
+
+### Part 16
+§ The Gemara discusses the meaning of another difficult verse in Ezekiel: <b>“And so shall you do on the seventh of the month for every one that errs, and for him that is simple; so shall you make atonement for the house”</b> (Ezekiel 45:20). The Gemara asks: What is the meaning of the expression “on the <b>seventh</b> of the month”? There are no special offerings that are sacrificed on the seventh day of any month.
+
+### Part 17
+<b>Rabbi Yoḥanan says:</b> The verse must be reinterpreted as referring to the bull for an unwitting communal sin, which is brought when the majority of the Jewish people have sinned as a result of following a mistaken ruling of the Sanhedrin. <b>These</b> seven alluded to in the verse are <b>seven tribes who sinned.</b> In such a case, a bull for an unwitting communal sin is brought <b>even though</b> the number of individuals who sinned <b>are not the majority of the congregation.</b> Because the majority of the individuals in the majority of the tribes have sinned, it is considered a sin of the congregation and not sins of many individuals.
+
+### Part 18
+Similarly, the word <b>“month [<i>ḥodesh</i>]”</b> is to be interpreted as meaning that a bull for an unwitting communal sin is brought <b>if</b> the court <b>innovated [<i>ḥiddeshu</i>]</b> a new <i>halakha</i> contradicting the Torah, e.g., if <b>they said</b> that eating forbidden <b>fat</b> is <b>permitted.</b> The continuation of the verse: <b>“For every one that errs, and for him that is simple,” teaches that</b> the Sanhedrin is <b>liable</b> to sacrifice the bull for unwitting communal sin <b>only for a matter</b> that was <b>hidden</b> from the Sanhedrin, i.e., about which the Sanhedrin issued a mistaken ruling, and <b>accompanied by unwitting action</b> by the majority of the community, who relied on the mistaken ruling.
+
+### Part 19
+The Gemara concludes the discussion of specific difficult verses in Ezekiel with the following general statement: <b>Rav Yehuda says</b> that <b>Rav says: That man is remembered for good, and Ḥanina ben Ḥizkiyya is his name. As were it not for him, the book of Ezekiel would have been suppressed</b> and not included in the biblical canon, <b>because</b> various details of <b>its contents</b> appear to <b>contradict statements of the Torah. What did</b> Ḥanina ben Ḥizkiyya <b>do? He brought up</b> to his upper story <b>three hundred jugs [<i>garbei</i>] of oil</b> for light so that he could study even at night, <b>and he sat</b> isolated <b>in the upper story and</b> did not move from there until <b>he homiletically interpreted</b> all of those verses in the book of Ezekiel that seemed to contradict verses in the Torah.
+
+### Part 20
+§ The mishna teaches that <b>Rabbi Shimon says: If</b> the Temple treasurers <b>had</b> sufficient funds for the <b>numerous bulls</b> that are required to be sacrificed on that day but they did not also have sufficient funds for the accompanying libations, they should rather bring one bull and its libations, and they should not sacrifice all of them without libations.
+
+### Part 21
+Concerning this, <b>the Sages taught</b> in a <i>baraita</i>: The verse states: <b>“And he shall prepare a meal offering, an ephah for the bull, and an ephah for the ram, and for the lambs as his means suffice, and a <i>hin</i> of oil to an ephah”</b> (Ezekiel 46:7). <b>Rabbi Shimon says: Is the measure of</b> the meal offering accompanying <b>bulls and rams the same,</b> as stated in this verse that it is an ephah for each? In fact, this is not the <i>halakha</i>, as the meal offering accompanying a bull is three-tenths of an ephah of fine flour (see Numbers 15:9), whereas the meal offering accompanying a ram is only two-tenths of an ephah (see Numbers 15:6).
+
+### Part 22
+<b>Rather,</b> the verse teaches <b>that if</b> the Temple treasurers <b>had</b> sufficient funds for the <b>numerous bulls</b> that are required to be sacrificed on that day <b>but they did not</b> also <b>have</b> sufficient funds for the accompanying <b>libations, they should bring one bull and its libations, and they should not sacrifice all of them without libations. And</b> similarly, <b>if</b> the Temple treasurers <b>had</b> sufficient funds for
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

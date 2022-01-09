@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Jusqu'a</b> au-dessus du <b>genou. Rabbi Yannai dit : Jusqu'a ses orifices. Rabbi Yohanan dit au nom de Rabbi Yosei ben Yehoshua : Jusqu'a l'emplacement de son nombril.</b>
+
+### Partie 2
+La Guemara explique la dispute entre les <i>amoraim</i> : La difference <b>entre</b> l'opinion de <b>Rabbi Zakkai et</b> celle de <b>Rabbi Yannai</b> est de savoir si <b>un <i>tereifa</i> peut survivre</b> au-dela de douze mois. Un <b>Sage,</b> Rabbi Yannai, <b>soutient</b> que <b>une <i>Terifa</i> peut survivre</b> au-dela de douze mois. Par consequent, bien que celui dont les jambes ont ete retirees jusqu'au-dessus du genou ait le statut de <i>tereifa</i>, si une femme evacue un fœtus de cette forme, elle est impure. Ce n'est que si le fœtus est depourvu de jambes jusqu'a ses orifices que la femme est pure, car une telle personne ne peut survivre. <b>Et</b> un <b>Sage,</b> Rabbi Zakkai, <b>soutient</b> que <b>un <i>tereifa</i> ne peut survivre</b> au-dela de douze mois. Par consequent, meme si le fœtus n'est depourvu de jambes qu'au-dessus du genou et non de ses orifices, la femme n'est pas impure.
+
+### Partie 3
+La difference <b>entre</b> l'avis de <b>Rabbi Yannai et</b> l'avis de <b>Rabbi Yohanan,</b> qui s'accordent tous deux sur le fait qu'un <i>tereifa</i> peut survivre, porte sur une declaration <b>de Rabbi Elazar, car Rabbi Elazar a dit :</b> Si la <b>cuisse,</b> c'est-a-dire, la patte arriere de l'animal, <b>et son evidement ont ete retires</b> d'un animal avant l'abattage, l'animal est considere comme <b>une carcasse non abattue;</b> par consequent, il est interdit a la consommation et transmet une impurete rituelle meme s'il est encore vivant. Rabbi Yannai est d'accord avec la declaration de Rabbi Elazar, et considere en consequence que si la partie inferieure du corps d'une personne jusqu'a ses orifices est manquante ou enlevee, la personne assume immediatement le statut halakhique d'un cadavre. Rabbi Yohanan n'est pas d'accord avec Rabbi Elazar et considere que celui dont la partie inferieure du corps a ete manquee ou enlevee n'a le statut de cadavre que si elle est enlevee jusqu'au nombril.
+
+### Partie 4
+<b>Rav Pappa dit :</b> Le <b>dispute</b> entre les <i>amoraim</i> porte sur un fœtus auquel il manque une partie de son corps <b>de bas en haut</b>, c'est-a-dire, la partie inferieure de son corps ; <b>mais</b> s'il lui manque une partie de son corps <b>du haut</b> a <b>du bas, meme une quelconque quantite</b> de son crane, la femme <b>est pure. Et de meme, Rav Giddel dit</b> que <b>Rabbi Yohanan dit :</b> Dans le cas d'une femme <b>qui decharge</b> un fœtus <b>dont le crane est scelle,</b> c'est-a-dire deficient, <b>sa mere est pure.</b>
+
+### Partie 5
+La Guemara cite une autre <i>halakha</i> : <b>Et Rav Giddel dit</b> que <b>Rabbi Yohanan dit :</b> Dans le cas d'une femme <b>qui accouche</b> d'un fœtus qui ressemble <b>a</b> la partie <b>d'un palmier</b> qui <b>branche,</b> c'est-a-dire que la partie inferieure de son corps est informe tandis que la partie superieure a des bras et des jambes qui sortent de ses epaules comme des branches, <b>sa mere est pure.</b>
+
+### Partie 6
+§ Il <b>a ete dit</b> a propos d'une femme <b>qui decharge</b> un fœtus <b>dont la face est ecrasee</b> mais pas completement aplatie, que <b>Rabbi Yohanan dit que sa mere est impure,</b> et <b>Reish Lakish dit que sa mere est pure.</b>
+
+### Partie 7
+<b>Rabbi Yohanan a souleve une objection a Reish Lakish</b> a partir d'une <i>baraita</i> : Dans le cas d'une femme <b>qui decharge une main faconnee,</b> c'est-a-dire, une main dont les doigts sont discernables, <b>ou un pied forme, sa mere est impure</b> avec l'impurete d'une femme apres <b>l'accouchement,</b> car il provient certainement d'un fœtus a part entiere, <b>et nous ne sommes pas concernes</b> par le fait que <b>peut-etre il provient</b> d'un fœtus avec <b>un corps scelle,</b> c'est-a-dire deficient. Et s'il en est ainsi,</b> qu'un fœtus au visage ecrase ne rend pas sa mere impure, <b>laissons</b> le <i>baraita</i> <b>enseigner : </b> Nous ne sommes pas concernes par le fait que <b>peut-etre</b> il provient <b>d'un fœtus au <b>corps scelle ou de celui dont le visage est ecrase.</b>
+
+### Partie 8
+<b>Rav Pappi dit : Dans</b> un cas ou <b>son visage est masque, tout le monde est d'accord pour dire que</b> la femme <b>est impure. Lorsqu'ils sont en desaccord,</b> c'est <b>dans</b> un cas ou <b>son visage est</b> completement <b>plat,</b> c'est-a-dire qu'aucun de ses traits n'est discernable ; <b>et le contraire a ete enonce : Rabbi Yohanan dit</b> que <b>sa mere est pure, et Reish Lakish dit</b> que <b>sa mere est impure.</b>
+
+### Partie 9
+La Guemara souleve une difficulte : <b>Mais</b> selon cette version du litige, <b>Reish Lakish souleve une objection a</b> l'avis de <b>Rabbi Yohanan a partir de cette</b> <i>baraita</i>, a partir de laquelle Rabbi Yohanan a souleve une objection a l'avis de Reish Lakish selon la version precedente du litige : Si une femme qui evacue un fœtus dont le visage est plat est pure, la <i>baraita</i> aurait du affirmer qu'il n'y a pas lieu de s'inquieter que la main ou le pied puisse provenir d'un fœtus au corps scelle ou dont le visage est plat. La Guemara repond : Reish Lakish n'a pas souleve l'objection, <b>parce que Rabbi Yohanan</b> lui aurait <b>repondu</b> que le statut d'un <b>corps scelle est</b> le meme que celui d'un <b>corps dont le visage est plat.</b> Il n'y a aucune raison de mentionner les deux types de malformations.
+
+### Partie 10
+La Guemara relate : <b>Les fils de Rabbi Hiyya sont sortis dans les villages</b> pour inspecter les champs de leur pere. Quand <b>ils revinrent</b> a leur pere, celui-ci leur dit : </b> N'a-t-on pas <b>un incident qui t'a ete rapporte</b> pour une decision halakhique ? <b>Ils lui repondirent :</b> On nous a apporte le cas d'une femme qui a decharge un fœtus avec <b>un visage plat, et nous l'avons jugee impure</b> avec l'impurete d'une femme apres l'accouchement.
+
+### Partie 11
+Rabbi Hiyya <b>leur dit : Sortez et jugez pur ce que vous avez juge impur. Quelle a ete votre pensee</b> lorsque vous avez juge qu'elle est impure ? Avez-vous raisonne que, la question faisant l'objet d'un litige, il faut statuer <b>strictement</b> Mais votre decision <b>est une rigueur qui conduit a une indulgence, puisque vous avez accorde</b> a la femme trente-trois <b>jours de purete</b> apres la naissance d'un male, apres sa periode d'impurete, qui sont les jours minimums de purete etablis dans la Torah pour une femme qui a accouche.
+
+### Partie 12
+§ <b>Il a ete declare : </b> En ce qui concerne une femme ou un animal femelle <b>qui decharge une entite qui a deux dos et deux epines, le Rav dit</b> que <b>dans</b> le cas de la <b>femme,</b> son fœtus decharge <b>n'est pas</b> considere comme <b>une progeniture, </b> car il ne peut pas survivre, et donc la femme n'a pas l'impurete rituelle causee par l'accouchement, et <b>dans</b> le cas de l'<b>animal,</b> son fœtus <b>est interdit a la consommation. Et Shmuel dit : Dans</b> le cas d'une <b>femme,</b> le fœtus evacue est considere comme <b>une progeniture,</b> et la femme est impure, et <b>dans</b> le cas d'un <b>animal,</b> le fœtus est <b>permis a la consommation.</b>
+
+### Partie 13
+La Gemara demande : <b>A propos de quoi Rav et Shmuel sont-ils <b>en desaccord ?</b> La Gemara repond : Ils sont en desaccord concernant la declaration de Rav Hanin bar Abba, car Rav Hanin bar Abba a dit : </b> Le verset dit :" Neanmoins, ceux-ci vous ne mangerez pas de ceux qui ne font que ruminer, ni de ceux qui n'ont que le sabot fendu [<i>umimafrisei haparsa hashesua</i>] : Le chameau, et le lievre, et le blaireau de roche" (Deuteronome 14:7). Le terme apparemment superflu <b><i>hashesua</i></b> n'est pas une description redondante du sabot fendu ; il fait reference a une <b>entite distincte qui a deux dos et deux epines</b> et ressemble donc a un animal entierement fendu.
+
+### Partie 14
+C'est a propos de cet interdit que Rav et Shmuel sont en desaccord. <b>Rav dit</b> qu'il n'existe pas</b> une telle <b>entite vivante dans le monde, et lorsque le Misericordieux a enseigne</b> cet interdit <b>a Moise, il l'a enseigne</b> a</b> lui en ce qui concerne un fœtus qui a deux dos et deux epines et qui est retrouve <b>dans le ventre de sa mere</b> apres l'abattage. <b>Et Shmuel dit</b> qu'il existe <b>une telle entite dans le monde, et lorsque le Misericordieux a enseigne</b> cette interdiction <b>a Moise, il l'a enseignee</b> a lui <b>en ce qui concerne un animal vivant <b>dans le monde, mais</b> un fœtus qui a deux dos et deux epines <b>dans le ventre de sa mere est autorise</b> a la consommation.
+
+### Partie 15
+<b>Rav Shimi bar Hiyya a souleve une objection au Rav</b> d'une <i>baraita</i> : <b>Rabbi Hanina ben Antigonus dit : Tout</b> pretre <b>qui a deux dos et deux echines est disqualifie du</b> service du Temple,</b> car il est souille. <b>Evidemment,</b> une entite <b>qui</b> a deux dos et deux colonnes vertebrales <b>peut survivre, et</b> ceci est <b>difficile pour</b> l'opinion de <b>Rav.</b> Rav <b>lui a dit : Tu es</b> clairement <b>Shimi,</b> c'est-a-dire que tu as bien demande. Pourtant, la declaration de Rabbi Hanina ben Antigonus ne fait pas reference a celui qui a litteralement deux dos et deux epines, mais plutot <b>a</b> celui <b>dont l'epine dorsale est tordue</b> et qui semble donc avoir deux epines. Celui qui a reellement deux dos et deux colonnes vertebrales ne peut pas survivre.
+
+### Partie 16
+La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : Parmi les <b>fœtus animaux decharges, il y a ceux qui sont interdits</b> en consommation, car ils ont le statut halakhique de carcasses d'animaux non abattus. Plus precisement, si un fœtus animal est <b>ne</b> au <b>quatrieme</b> mois de grossesse dans le cas <b>de petits</b> animaux domestiques, ou la gestation dure normalement cinq mois, ou elle est <b>nee</b> au <b>huitieme</b> mois de grossesse dans le cas <b>de gros animaux</b> domestiques, ou la grossesse dure normalement neuf mois, ou si la fausse couche s'est produite <b>a partir de ce</b> stade de la grossesse <b>et plus tot,</b> c'est-a-dire . e., si la grossesse s'est terminee avant ce stade, l'animal est <b>interdit.</b> Cela <b>exclut celui qui a deux dos et deux epines.</b>
+
+### Partie 17
+La Guemara demande : <b>Qu'est-ce que</b> le <i>baraita</i> veut dire quand il affirme qu'un animal qui a deux dos et deux epines est <b>exclu ? </b> Ne signifie-t-il <b>pas</b> qu'il est <b>exclu de la categorie des</b> ces <b>fœtus,</b> qui sont autorises a la consommation s'ils sont trouves dans le ventre de leur mere, <b>car</b> ces animaux sont <b>interdits meme</b> lorsqu'ils sont <b>dans le ventre de leur mere ? </b> Ceci contredit l'opinion de Shmuel, qui soutient qu'un fœtus animal de ce type est autorise a la consommation.
+
+### Partie 18
+La Guemara repond : <b>Rav explique</b> la <i>baraita</i> <b>selon son</b> raisonnement, et Shmuel explique</b> la <i>baraita</i> <b>selon son</b> raisonnement. Rav explique</b> la <i>baraita</i> <b>selon sa</b> ligne de <b>raisonnement,</b> comme cela a ete suppose ci-dessus : Si un fœtus animal est <b>ne</b> au <b>quatrieme</b> mois de grossesse dans le cas <b>de petits</b> animaux domestiques, ou s'il est <b>ne</b> au <b>huit</b> mois de grossesse dans le cas <b>de gros betail</b>, ou s'il est ne <b>de ce</b> stade de la grossesse <b>et avant,</b> l'animal est <b>interdit.</b>
+
+### Partie 19
+<b>Dans quel</b> cas <b>cette declaration est-elle dite ?</b> Dans un cas <b>ou</b> l'animal <b>a emerge dans l'espace aerien du monde ; mais</b> s'il a ete trouve <b>dans le ventre de sa mere</b> apres que celle-ci ait ete abattue, <b>il est permis de</b> consommer. Ceci <b>exclut</b> le cas d'un fœtus <b>qui a deux dos et deux epines, car meme</b> s'il est trouve <b>dans le ventre de sa mere il est interdit.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

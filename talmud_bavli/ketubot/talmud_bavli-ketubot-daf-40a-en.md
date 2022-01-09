@@ -1,0 +1,30 @@
+
+### Part 1
+<b>for this matter too,</b> marrying the woman against his will, <b>let them be derived from each other.</b> Rav Ashi replied that <b>the verse says</b> with regard to a seducer: <b>“He shall pay a dowry for her to be a wife to him”</b> (Exodus 22:15); <b>“to him”</b> means <b>in accordance with his will.</b>
+
+### Part 2
+§ The mishna continues: <b>How does</b> the rapist <b>drink from his vessel?</b> The mishna proceeds to explain that he is obligated to marry her despite the physical flaws she might have. However, if the marriage is prohibited, either due to the fact that she committed adultery or due to her flawed lineage, he is not obligated to marry her, and therefore he may not marry her. <b>Rav Kahana said: I stated</b> this <b><i>halakha</i> before Rav Zevid of Neharde’a,</b> and I asked him: Let the <b>positive</b> mitzva: “And to him she shall be as a wife” (Deuteronomy 22:29), <b>come and override</b> the <b>prohibition</b> of marriage to a woman who is forbidden to him, according to the principle that positive mitzvot override prohibitions.
+
+### Part 3
+<b>He said to me: Where do we say</b> the principle that <b>a positive</b> mitzva <b>comes and overrides a prohibition?</b> It is in a case <b>where</b> one performs <b>circumcision</b> of a foreskin afflicted <b>with leprosy.</b> Although there is a prohibition against removing leprous skin, the positive mitzva of circumcision overrides that prohibition, <b>as it is not possible to fulfill the positive</b> mitzva without violating the prohibition. <b>However, here,</b> in the case of the rapist, <b>if</b> she <b>says: I do not want him</b> as a husband, <b>is there a positive</b> mitzva <b>at all?</b> Since in that case the mitzva need not be performed, as it is negated when the woman refuses to marry him, it does not override the prohibition.
+
+### Part 4
+<strong>MISHNA:</strong> With regard to <b>an orphan who was betrothed and divorced, Rabbi Elazar says: One who rapes</b> her <b>is obligated</b> to pay the fine, as she is a virgin young woman, <b>and one who seduces her is exempt</b> from payment. Because she is an orphan, or because she was betrothed and divorced, she is independent, and by consenting to the seduction she forgoes her right to the fine.
+
+### Part 5
+<strong>GEMARA:</strong> <b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said: Rabbi Elazar stated</b> his opinion <b>in accordance</b> with the opinion of <b>Rabbi Akiva, his teacher, as</b> with regard to a young woman who was betrothed and divorced and then raped, Rabbi Akiva <b>said</b> in an earlier mishna: <b>She is entitled to</b> a <b>fine</b> for rape <b>and her fine</b> is paid <b>to her.</b> Rabbi Yosei HaGelili says: She is not entitled to a fine for rape. <b>And from where</b> do we know that Rabbi Elazar’s opinion corresponds to the opinion of his teacher? <b>From</b> the fact <b>that</b> the mishna <b>teaches</b> with regard to <b>an orphan</b> that <b>Rabbi Elazar says: One who rapes</b> her <b>is obligated</b> to pay the fine <b>and one who seduces</b> her <b>is exempt</b> from payment.
+
+### Part 6
+The Gemara asks: <b>An orphan?</b> That is <b>obvious,</b> as she has no father and is not subject to the authority of anyone else. Clearly the seducer is exempt from payment because she was complicit. <b>Rather, this</b> is what the mishna is <b>teaching us: That</b> the legal status of <b>a young woman who was betrothed and divorced,</b> even if her father is alive, is <b>like</b> that of <b>an orphan: Just as</b> with regard to <b>an orphan,</b> payment of the fine is <b>to her, so too,</b> with regard to <b>a young woman who was betrothed and divorced,</b> payment of the fine is <b>to her.</b>
+
+### Part 7
+<b>Rabbi Zeira said</b> that <b>Rabba bar Sheila said</b> that <b>Rav Hamnuna the Elder said</b> that <b>Rav Adda bar Ahava said</b> that <b>Rav said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Elazar. Rav</b> would <b>exclaim about Rabbi Elazar:</b> He is the <b>happiest of the Sages,</b> as he held that the <i>halakha</i> was ruled in accordance with his opinion in many instances.
+
+### Part 8
+<strong>MISHNA:</strong> <b>What is humiliation?</b> How is the payment for humiliation during rape or seduction assessed? It is <b>all based on the one who humiliated and the one who was humiliated.</b> The price will vary depending on the lineage of the family of the rape victim and the nature of the attacker. How is her <b>degradation</b> assessed? <b>One considers her as though she were a maidservant sold in the marketplace,</b> and assesses <b>how much she was worth</b> beforehand <b>and how much she is</b> currently <b>worth,</b> after the rape or seduction. The sum of the <b>fine is equal for all people, and</b> the principle is: <b>Any</b> payment <b>that has a fixed</b> sum <b>by Torah law is equal for all people,</b> regardless of the lineage and the physical state of the attacker or the victim.
+
+### Part 9
+<strong>GEMARA:</strong> The Gemara asks: <b>And say</b> that <b>the Merciful One said</b> that the payment is <b>fifty <i>sela</i> from all</b> these <b>matters,</b> i.e., the fine, degradation, humiliation, and pain. <b>Rabbi Zeira said:</b> That cannot be, as <b>they will say:</b> If <b>one who engaged in forced intercourse with a daughter of kings</b> pays a sum of <b>fifty</b> <i>sela</i>, does <b>one who engaged in forced intercourse with the daughter of commoners [<i>hedyotot</i>]</b> also pay <b>fifty</b> <i>sela</i>? <b>Abaye said to him:</b> This is not a decisive argument, as <b>if so, with regard to a</b> Canaanite <b>slave</b> killed by an ox, the Torah says that the owner of the ox pays the master of the slave thirty <i>sela</i>. There too, <b>they will say:</b> For <b>a slave who pierces</b> precious <b>pearls [<i>margaliyyot</i>],</b> a valuable skill, the fine is <b>thirty</b> <i>sela</i>, and for <b>a slave who performs</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>Et cela</b> n'est le cas que lorsque <b>un adulte se tenait au-dessus de lui.</b> Lorsque l'adulte supervise l'ecriture, et lui donne l'ordre de l'ecrire pour elle, elle sera valide.
+
+### Partie 2
+<b>Rav Nahman lui a dit : Si c'est ainsi,</b> que quiconque est disqualifie pour rediger un acte de divorce peut le faire avec un adulte qui le supervise, alors si celui qui ecrit est <b>un Gentil, et qu'un Juif se tient au-dessus de lui</b> et lui ordonne de l'ecrire pour elle, diriez-vous <b>aussi</b> <b>que</b> c'est <b>valide ? Et si vous disiez que</b> c'est <b>aussi</b> valide, <b>mais n'est-il pas enseigne</b> dans une <i>baraita</i> : <b>Un Gentil est disqualifie</b> de rediger un acte de divorce dans tous les cas ? Rav Huna a repondu : <b>Un gentil agit</b> sur la base de <b>sa propre volonte.</b> Puisqu'il est halakhiquement competent, il aura ses propres intentions en ecrivant et on ne peut pas compter sur lui pour realiser les intentions du superviseur. Dans le cas de la mishna, puisque ceux qui font l'ecriture ne sont pas halakhiquement competents, ils ecriront selon les instructions du superviseur.
+
+### Partie 3
+<b>Le Rav Nahman a alors dit : Ce que j'ai dit</b> lorsque j'ai souleve une contestation a partir d'un cas impliquant un Gentil <b>n'est pas correct,</b> car <b>a partir du fait</b> que la mishna disqualifie plus tard <b>un Gentil en ce qui concerne</b> l'action en tant que mandataire dans <b>l'apport</b> de l'acte de divorce, on peut apprendre <b>par deduction</b> qu'il est <b>qualifie en ce qui concerne l'ecriture,</b> ou il n'est pas liste parmi ceux qui sont disqualifies.
+
+### Partie 4
+La Guemara demande : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> que <b>un Gentil est disqualifie</b> pour rediger un acte de divorce ? La Gemara repond : <b>Ce</b> <i>baraita</i> <b>est</b> conforme a l'avis de <b>Rabbi Elazar, qui dit : Les temoins de la transmission</b> de l'acte de divorce <b>effectuent</b> le divorce, et lorsque le verset dit : "Et il l'ecrit" (Deuteronome 24:1), qui est la source de la <i>halakha</i> selon laquelle l'ecriture doit etre faite pour elle, il fait reference a l'ecriture de l'acte de divorce et non a sa signature. Par consequent, <b>nous avons besoin</b> que l'<b>ecriture</b> soit <b>pour son bien, et il est certain qu'un gentil agit</b> sur la base de <b>sa propre volonte</b> et qu'on ne peut pas compter sur lui pour rediger l'acte de divorce selon les instructions d'un superviseur.
+
+### Partie 5
+En ce qui concerne l'exigence que l'acte de divorce soit ecrit pour elle, <b>Rav Nahman dit</b> que <b>Rabbi Meir aurait dit : Meme si</b> le mari <b>trouve</b> l'acte de divorce <b>dans la poubelle</b>, et que les noms ecrits dessus se trouvent etre les memes que ceux de sa femme et de lui-meme, si <b>il l'a fait signer</b> par des temoins <b>et qu'il le lui a donne,</b> alors il est <b>valide,</b> car la condition essentielle est qu'il soit signe pour elle.
+
+### Partie 6
+<b>Rava souleve une objection a</b> la declaration de <b>Rav Nahman :</b> Le verset stipule : <b>"Et il l'ecrit,</b> ce qui est interprete comme signifiant qu'il doit etre ecrit <b>pour son bien. Quoi, ne s'agit-il pas</b> d'une reference a la <b>ecriture effective de l'acte de divorce,</b> qu'il doit etre ecrit avec l'intention qu'il soit utilise pour rompre ce mariage particulier ? La Guemara rejette cette idee : <b>Non,</b> elle fait reference a la <b>signature des temoins.</b>
+
+### Partie 7
+<b>Rava souleve</b> une autre <b>objection a son encontre</b> en se basant sur ce qui a ete enseigne dans une mishna (24a) : <b>Tout acte de divorce qui n'a pas ete ecrit dans l'interet</b> d'une <b>femme</b> specifique est <b>invalide.</b> Il a repondu : <b>Dites</b> que selon Rabbi Meir, la mishna enseigne : Tout acte de divorce <b>qui n'a pas ete signe en faveur</b> d'une <b>femme</b> specifique est <b>invalide.</b>
+
+### Partie 8
+Rava <b>souleve</b> une autre <b>objection a son encontre</b> basee sur une autre <i>baraita</i> : <b>Lorsqu'il l'ecrit,</b> c'est <b>comme s'il l'ecrivait pour elle,</b> c'est-a-dire qu'en ecrivant une partie pour elle, c'est comme si tout le document etait ecrit pour elle. <b>Quoi, ce n'est pas</b> affirmant que <b>lorsqu'il ecrit la partie essentielle</b> du document, qui comprend les noms des epoux ; la date a laquelle il a ete ecrit ; et l'expression : Voici que tu es permise a tout homme, <b>pour son bien,</b> alors <b>est-ce comme s'il ecrivait la partie standard</b> de l'acte de divorce, contenant le reste des informations, <b>pour son bien ?</b> Cette <i>baraita</i> indique qu'il y a une exigence que l'acte de divorce, et pas seulement les signatures, soit ecrit pour son bien.
+
+### Partie 9
+Le Rav Nahman rejette cette idee : <b>Non,</b> Rabbi Meir expliquerait que cette <i>baraita</i> fait reference a un cas <b>ou il</b> fait signer des temoins <b>pour son bien ; c'est comme s'il l'avait ecrit pour son bien. Et si vous le souhaitez, dites : Qui est</b> le <i>tanna</i> de <b>ces <i>baraitot</i></b> dont tu as souleve des contestations ? <b>Ils sont</b> conformes a l'avis de <b>Rabbi Elazar, qui a dit : Les temoins de la transmission</b> de l'acte de divorce <b>effectuent</b> le divorce. Selon lui, le verset fait reference a l'ecriture et non a la signature de l'acte de divorce, et l'ecriture doit etre pour elle.
+
+### Partie 10
+<b>Et Rav Yehuda dit</b> que <b>Shmuel</b> dit : <b>Et</b> la declaration de la mishna selon laquelle celui qui n'est pas halakhiquement competent est qualifie pour ecrire un acte de divorce est la <i>halakha</i> seulement <b>quand il a laisse</b> non ecrite <b>l'essentiel</b> du document, qui sera ecrit plus tard par une personne halakhiquement competente, car seule l'essentiel doit etre ecrit pour elle. <b>Et c'est ainsi que Rabbi Hagga dit au nom de Ulla : Et</b> c'est la <i>halakha</i> seulement <b>quand il a laisse la partie essentielle</b> du document non ecrite, <b>et</b> la mishna est conforme a l'avis de <b>Rabbi Elazar,</b> que l'ecriture de la partie essentielle doit etre faite pour elle.
+
+### Partie 11
+<b>Et Rabbi Zerika dit</b> que <b>Rabbi Yohanan</b> dit : <b>Ce n'est pas la Torah.</b> La Guemara clarifie : <b>Qu'est-ce que</b> on entend par l'expression : <b>Ce n'est pas la Torah ? Rabbi Abba dit : Ici</b> Rabbi Yohanan <b>vous informe qu'il n'y a aucune force</b> a l'exigence qu'un acte de divorce soit ecrit <b>pour elle,</b> car seule la signature doit etre faite pour elle. <b>Et c'est</b> conforme a l'avis de <b>Rabbi Meir,</b> qui <b>dit : Les temoins signataires</b> sur l'acte de divorce <b>effectuent</b> le divorce.
+
+### Partie 12
+La Gemara demande : <b>Mais Rabba bar bar Hana n'a-t-il pas dit</b> plus tot que <b>Rabbi Yohanan a dit</b> que la mishna <b>est</b> conforme a l'opinion de <b>Rabbi Elazar ?</b> Comment, alors, Rabbi Abba peut-il dire que selon Rabbi Yohanan, la mishna est conforme a l'opinion de Rabbi Meir ? La Guemara repond : <b>Ils sont <i>amoraim</i> et</b> sont en desaccord <b>en ce qui concerne</b> l'opinion de <b>Rabbi Yohanan,</b> qu'il explique la mishna conformement a l'opinion de Rabbi Meir ou a celle de Rabbi Elazar.
+
+### Partie 13
+<strong>MISHNA:</strong> <b>Tout le monde est apte</b> a servir d'agent <b>pour apporter un acte de divorce</b> a une femme <b>sauf un sourd-muet, un imbecile, ou un mineur, ou un aveugle, ou un gentil.</b>
+
+### Partie 14
+Si <b>un mineur a recu</b> l'acte de divorce <b>et</b> ensuite <b>atteint</b> l'age de la <b>majorite,</b> ou on l'a recu alors qu'il etait <b>sourd-muet et</b> ensuite <b>devenu capable d'entendre,</b> ou on l'a recu alors qu'il etait <b>aveugle et</b> ensuite <b>devenu capable de voir, </b> ou on l'a recue lorsqu'on etait <b>un imbecile et</b> ensuite <b>devenu</b> halakhiquement <b>competent,</b> ou on l'a recue lorsqu'on etait <b>un gentil et</b> ensuite <b>converti,</b> dans tous ces cas, il est <b>inapte</b> a presenter l'acte de divorce.
+
+### Partie 15
+<b>Cependant,</b> si quelqu'un l'a recu alors qu'il etait <b>capable d'entendre, et</b> ensuite <b>devenu sourd-muet, et</b> ensuite <b>de nouveau capable d'entendre;</b> ou si quelqu'un l'a recu alors qu'il <b>etait capable de voir, et</b> ensuite <b>devenu aveugle, et</b> ensuite <b>de nouveau capable de voir ; </b> ou si l'on l'a recu alors qu'il etait halakhiquement <b>competent, et</b> ensuite <b>devenu imbecile, et</b> ensuite <b>de nouveau devenu</b> halakhiquement <b>competent,</b> dans tous ces cas, il est <b>apte</b> a presenter l'acte de divorce. <b>C'est le principe : Quiconque est</b> halakhiquement <b>competent au debut et a la fin</b> est <b>apte,</b> meme s'il y a eu un temps dans l'intervalle ou il etait inapte.
+
+### Partie 16
+<strong>GEMARA:</strong> La Gemara pose la question a propos de ceux que la mishna enumere comme n'etant pas qualifies pour presenter un acte de divorce : <b>Grace, un sourd-muet, un imbecile et un mineur</b> ne sont pas qualifies car <b>ils ne sont pas</b> halakhiquement <b>competents,</b> et seul celui qui est competent peut etre designe comme mandataire. De plus, <b>un Gentil aussi</b> n'est pas qualifie, <b>car il n'est pas soumis</b> aux <i>halakhot</i> qui <b>permettent</b> a une femme de se remarier via un acte de divorce. Une personne ne peut servir de mandataire pour une affaire qui ne la concerne pas. <b>Mais pourquoi une personne aveugle</b> n'est-elle pas qualifiee pour presenter une demande de divorce ? <b>Rav Sheshet repond : Parce qu'il ne sait pas de qui il le prend et a qui il le donne,</b> et comme il l'ignore, il ne pourra pas temoigner a ce sujet.
+
+### Partie 17
+<b>Rav Yosef objecte a cela :</b> Si l'on craint qu'un aveugle ne puisse pas faire la distinction entre differentes personnes, alors <b>comment un aveugle est-il autorise</b> a avoir des relations sexuelles avec <b>sa femme ?</b> Comment sait-il qu'elle est en fait sa femme ? De meme, <b>comment sont</b> toutes les <b>personnes autorisees a</b> avoir des relations sexuelles avec <b>leurs femmes la nuit ?</b> S'il fait sombre, ils ne peuvent pas les voir. <b>Vous devez plutot dire qu'ils sont autorises <b>par reconnaissance vocale [<i>teviut eina dekala</i>].</b> Ils peuvent se reconnaitre entre eux sur la base de leurs voix. <b>Ici aussi,</b> en ce qui concerne un aveugle, il peut reconnaitre le donneur et le receveur de l'acte de divorce <b>par reconnaissance vocale.</b>
+
+### Partie 18
+<b>Au contraire, Rav Yosef dit : Nous avons ici affaire</b> a un mari qui envoie un acte de divorce a sa femme <b>en dehors d'Eretz</b> Yisrael, <b>ou</b> l'agent <b>doit dire : Il a ete ecrit en ma presence et il a ete signe en ma presence, et</b> un aveugle <b>ne peut pas dire</b> cela parce qu'il est incapable de voir qu'il est ecrit ou signe.
+
+### Partie 19
+<b>Abaye lui dit : Cependant, s'il en est ainsi,</b> alors une personne qui <b>est capable de voir</b> lorsqu'elle recoit l'acte de divorce <b>et</b> devient ensuite <b>aveugle, qui peut dire :</b> Il a ete ecrit et signe en ma presence, comme il etait capable de voir lorsqu'il a ete ecrit et signe, dirais-tu qu'il est <b>aussi apte</b> a apporter l'acte de divorce ? <b>Mais il est enseigne</b> dans la mishna : Si quelqu'un l'a recu quand <b>il etait capable de voir, et</b> ensuite <b>devenu aveugle, et</b> ensuite <b>de nouveau capable de voir,</b> alors il est <b>apte</b> a presenter l'acte de divorce. On peut en deduire que ce n'est que lorsque <b>il est redevenu capable de voir, oui,</b> qu'il peut l'intenter. Mais si <b>il n'est pas redevenu capable de voir,</b> alors <b>non,</b> il ne peut pas l'apporter.
+
+### Partie 20
+La Guemara repond a cette question : En fait, en ce qui concerne un aveugle, <b>il en est de meme, que bien qu'il ne soit pas redevenu capable de voir</b> il peut servir de mandataire pour apporter l'acte de divorce et temoigner qu'il a ete ecrit et signe en sa presence. <b>Et</b> pourquoi enseigne-t-on que l'aveugle est redevenu capable de voir ? <b>Puisque</b> la mishna <b>enseigne</b> que celui qui a recu l'acte de divorce alors qu'il etait halakhiquement <b>competent, et</b> ensuite <b>devenu imbecile, et</b> ensuite <b>de nouveau devenu</b> halakhiquement <b>competent</b> est qualifie pour apporter l'acte de divorce. Et dans ce cas, <b>la raison</b> pour laquelle il est qualifie est specifiquement <b>qu'il est redevenu</b> halakhiquement <b>competent, mais s'il n'est pas redevenu</b> halakhiquement <b>competent,</b> alors il est <b>non</b> qualifie. Par consequent, la mishna <b>enseigne egalement</b> a l'egard de <b>une personne qui etait capable de voir</b> qu'elle est ensuite <b>devenue aveugle et</b> puis <b>est redevenue capable de voir.</b>
+
+### Partie 21
+<b>Rav Ashi a dit :</b> Le langage de la mishna <b>est egalement precis, car il enseigne</b> que <b>c'est le principe : Quiconque est</b> halakhiquement <b>competent au debut et a la fin</b> est <b>apte, et elle n'enseigne pas : Quiconque est apte au debut et a la fin</b> est <b>apte. Apprenez de</b> la mishna qu'il n'est pas necessaire qu'il soit apte au debut et a la fin, car il y a des fois ou etre apte au debut est suffisant, comme dans le cas de celui qui est devenu aveugle apres avoir assiste a la redaction et a la signature de l'acte de divorce. Cependant, il est clair qu'il doit etre halakhiquement apte au debut et a la fin, ce que l'aveugle est.
+
+### Partie 22
+§ <b>Ils ont souleve un dilemme devant Rabbi Ami :</b> En ce qui concerne <b>un esclave, quelle est</b> la <i>halakha</i> ? <b>Peut-on en faire un agent pour recevoir de la main de son mari l'acte de divorce d'une femme ?</b> Est-il qualifie pour agir en tant qu'agent ou non ? <b>Il leur repondit : Du</b> fait que la mishna <b>disqualifie un gentil,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

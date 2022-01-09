@@ -1,0 +1,45 @@
+
+### Partie 1
+La Guemara demande : <b>Mais Rabbi Yossei n'accepte-t-il pas</b> qu'il existe un decret d'attendre trois mois afin de <b>distinguer</b> la semence du premier et du second mari ? Selon l'emendation de la Guemara de sa declaration, il semblerait qu'il n'y ait aucun cas dans lequel Rabbi Yosei applique le decret.
+
+### Partie 2
+La Guemara repond : En effet, <b>il n'accepte pas</b> le decret. <b>Et si vous voulez, dites</b> que <b>en fait, il accepte</b> le decret et l'applique dans le cas d'une femme mariee qui a divorce. <b>Et</b> en ce qui concerne la contestation de son opinion a partir de la deduction <i>a fortiori</i>, emendez la mishna et <b>dites : Rabbi Yosei dit</b> que <b>toutes</b> les femmes <b>qui etaient</b> seulement <b>benedictrices</b> de leurs precedents maris puis <b>divorcees peuvent se marier</b> dans les trois mois, car la raison d'attendre ne s'applique pas dans ce cas.
+
+### Partie 3
+La Gemara demande : <b>Si c'est le cas,</b> alors <b>cette opinion</b> de Rabbi Yosei <b>est</b> identique a l'opinion de <b>Rabbi Yehuda.</b> Quelle difference y a-t-il entre elles ? La Guemara repond : <b>Il y a</b> une difference pratique <b>entre eux</b> dans le cas d'une femme qui etait <b>mariee</b> a son precedent mari et qui cherche <b>a etre fiancee. Rabbi Yehuda soutient</b> qu'il <b>est permis de fiancer</b> une femme qui etait <b>mariee</b> a son precedent mari sans attendre au prealable trois mois. <Et Rabbi Yosei soutient</b> que <b>Il est interdit de fiancer</b> une femme qui a ete <b>mariee</b> a son precedent mari sans avoir attendu trois mois.
+
+### Partie 4
+La Guemara demande : <b>Mais Rabbi Yosei</b> soutient-il vraiment <b>qu'il est interdit de fiancer</b> une femme qui a ete <b>mariee</b> a son precedent mari sans avoir attendu trois mois ? <b>Ce n'est pas enseigne</b> dans une <i>baraita</i> : <b>Rabbi Yosei dit</b> que <b>toutes les femmes peuvent etre fiancees</b> sans attendre <b>sauf pour une veuve, en raison de la periode de deuil</b> qu'elle doit observer pour son mari decede ; <b>et quelle est la duree de sa periode de deuil ?</b> Elle est de <b>trente jours. Et aucun d'eux ne peut se marier avant d'avoir</b> attendu <b>trois mois.</b>
+
+### Partie 5
+La Guemara clarifie la question : <b>Quelle difficulte cette </b> <i>baraita</i> pose-t-elle ? <b>Si nous disons que</b> le <i>baraita</i> <b>enseigne : Rabbi Yosei dit</b> que <b>toutes les femmes peuvent etre fiancees</b> sans attendre, <b>est-il</b> le <i>baraita</i> <b>plus fort que la mishna qui a ete etablie</b> comme enseignant que les femmes qui etaient seulement <b>fiancees</b> a leurs maris precedents puis <b>divorcees peuvent etre mariees</b> dans les trois mois ? <b>Ici aussi,</b> le <i>baraita</i> pourrait etre etabli comme enseignant que <b>toutes</b> les femmes qui etaient seulement <b>battues</b> a leurs maris precedents et ensuite <b>divorcees peuvent etre mariees</b> dans les trois mois.
+
+### Partie 6
+<b>La difficulte provient plutot <b>de cette derniere clause qui enseigne : Et aucun d'entre eux ne peut se marier avant d'avoir</b> attendu <b>trois mois.</b> Cela implique que Rabbi Yosei considere que c'est specifiquement le <b>mariage qui</b> n'est <b>pas</b> permis, <b>mais le fait de fiancer semble bien</b> et est permis. Cela remet en question l'affirmation initiale de la Guemara selon laquelle Rabbi Yosei est en desaccord avec Rabbi Yehuda sur ce point.
+
+### Partie 7
+<b>Rava dit : Resolvez</b> la difficulte <b>et</b> emendez la declaration de Rabbi Yosei pour <b>dire ceci : Rabbi Yosei dit</b> que <b>toutes</b> les femmes qui n'etaient que <b>benedictrices</b> de leurs precedents maris puis <b>divorcees peuvent se marier</b> dans les trois mois <b>a l'exception d'une veuve, en raison de la periode de deuil</b> qu'elle doit observer pour son mari decede. <b>Et quelle est la duree de sa periode de deuil ?</b> Elle est de <b>trente jours. Et</b> les femmes qui etaient <b>mariees</b> a leurs precedents maris <b>ne peuvent pas etre fiancees avant d'avoir</b> attendu <b>trois mois.</b>
+
+### Partie 8
+La Gemara demande : <b>Mais est-ce que</b> une femme devenue <b>veuve par fiancailles doit</b> observer <b>une periode de deuil</b> pour son mari ? <b>Rabbi Hiyya bar Ami n'enseigne-t-il pas</b> dans une <i>baraita</i> : Si la <b>femme</b> de quelqu'un a qui il etait <b>fie</b> est decedee, <b>il n'observe pas</b> une periode de <b>deuil aigu</b> pour elle, <b>et</b> s'il est pretre, <b>il n'est pas</b> autorise <b>a devenir rituellement impur pour elle. Et de meme,</b> s'il meurt, <b>elle n'observe pas</b> une periode de <b>deuil aigu</b> pour lui et <b>elle ne devient pas rituellement impure pour lui.</b> Si <b>elle meurt, il n'herite pas d'elle. </b> Si <b>il meurt, elle percoit</b> le paiement de <b>son contrat de mariage.</b> La <i>baraita</i> demontre qu'une veuve n'est tenue de faire le deuil de son mari que si elle etait mariee avec lui et pas seulement fiancee. Si tel est le cas, il est clair que la decision de Rabbi Yosei dans la mishna fait reference aux femmes mariees. Par consequent, toutes les emendations de la Guemara de la declaration de Rabbi Yosei, afin de defendre sa declaration du Rav Hisdas <i>a fortiori</i>, sont refutees.
+
+### Partie 9
+<b>Au contraire,</b> il faut croire que la question de savoir s'il est permis de fiancer une femme pendant la periode precedant la semaine du 9 Av <b>est</b> l'objet d'une dispute entre <b><i>tannaim</i>. Comme il est enseigne</b> dans une <i>baraita</i> : <b>Depuis la Nouvelle Lune</b> d'Av <b>et jusqu'au jeune</b> du neuf, <b>le public reduit ses activites,</b> s'abstenant <b>des transactions commerciales, de construire et de planter, de se fiancer et de se marier.</b> Pendant <b>la semaine ou survient le neuf d'Av, il est interdit de couper</b> les cheveux <b>et de laver</b> les vetements, <b>et il est interdit de se fiancer. Et certains disent : C'est interdit pendant tout le mois.</b> La contestation par la Guemara de l'opinion de Rabbi Yosei selon laquelle il est interdit a une veuve de se fiancer pendant sa periode de deuil etait basee sur une deduction <i>a fortiori</i> qui suppose qu'il est permis de se fiancer pendant la periode de deuil precedant la semaine du 9 Av. Cependant, puisque cette decision fait l'objet d'un litige, Rabbi Yosei pourrait rejeter la deduction <i>a fortiori</i> en declarant qu'il est en accord avec l'opinion selon laquelle il est en fait interdit de se fiancer pendant cette periode.
+
+### Partie 10
+<b>Rav Ashi s'oppose fermement a cela : D'ou</b> sait-on <b>que</b> lorsque la <i>baraita</i> interdit d'etre <b>fie,</b> elle se refere <b>aux fiancailles proprement dites ? Peut-etre est-ce</b> seulement <b>faire un festin de fiancailles qui est interdit, mais</b> simplement <b>etre fiance semble bien</b> et est autorise.
+
+### Partie 11
+La Guemara remet en question l'objection de Rav Ashi : <b>Si c'est le cas,</b> alors en ce qui concerne l'interdiction <b>de se marier</b> egalement on pourrait faire la meme affirmation : En ce qui concerne l'interdiction <b>de se marier aussi, c'est seulement de faire une fete de mariage qui est interdite, mais</b> simplement <b>se marier semble bien</b> et est permis. La Guemara rejette sa question : <b>Comment peut-on</b> ces cas <b>sont comparables ? Certes,</b> d'un <b>mariage,</b> meme <b>sans fete, il y a de la joie, mais</b> d'une <b>fiancailles sans fete, y a-t-il</b> de la <b>joie ?</b> Il s'agit simplement d'une ceremonie legale.
+
+### Partie 12
+<b>Au contraire, Rav Ashi a enonce</b> une resolution differente de l'opinion de Rav Yosei : <b>Le nouveau deuil,</b> c'est-a-dire le deuil d'un parent qui vient de deceder, <b>est different de l'ancien deuil,</b> c'est-a-dire le deuil d'evenements historiques tels que la destruction du Temple, et il convient d'etre plus indulgent dans ce dernier cas. <b>Et le deuil du public est different du</b> <b>deuil prive de l'individu,</b> et il convient d'etre plus rigoureux dans ce dernier. En tant que tel, il n'est pas possible de former une deduction <i>a fortiori</i> des <i>halakhot</i> du deuil du Temple a celles d'une femme en deuil de son mari.
+
+### Partie 13
+<strong>MISHNA :</strong> Dans le cas de <b>quatre freres maries a quatre femmes et</b> certains des freres <b>morts</b> sans enfant, leurs femmes deviennent ainsi <i>yevamot</i>. <b>Si l'aine des</b> freres qui ont survecu <b>souhaitait consommer le mariage levirat avec toutes</b> ses <i>yevamot</i>, <b>il a la permission</b> de le faire.
+
+### Partie 14
+Dans le cas de <b>une personne qui etait mariee a deux femmes et qui est decedee</b> sans enfant, le <b>rapport ou <i>halitza</i> de</b> l'une ou l'autre <b>une des</b> epouses avec le <i>yavam</i> <b>libere son epouse rivale</b> du lien levirien, et l'epouse rivale n'a pas besoin de contracter un mariage levirien ou d'accomplir <i>halitza</i>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

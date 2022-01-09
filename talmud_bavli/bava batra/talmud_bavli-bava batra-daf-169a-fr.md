@@ -1,0 +1,33 @@
+
+### Partie 1
+Le <i>baraita</i> continue : <b>Rabban Shimon ben Gamliel dit :</b> Le tribunal ne peut <b>pas ecrire</b> un document de remplacement <b>meme</b> pour les <b>actes d'achat et de vente</b> de terrains. <b>Et Rabban Shimon ben Gamliel dit egalement :</b> En ce qui concerne <b>celui qui fait don</b> d'une terre <b>a un autre, et</b> le beneficiaire lui <b>retourne l'acte, son don</b> de terre <b>retourne</b> a lui aussi. <b>Mais les rabbins disent : Son don</b> de terre <b>reste</b> en possession du beneficiaire.
+
+### Partie 2
+La Guemara analyse la <i>baraita</i> : <b>Le maitre dit</b> dans le <i>baraita</i> : En ce qui concerne les actes d'achat et de vente de terrains, le tribunal peut rediger un document de remplacement, <b>excluant la garantie qui</b> etait <b>dans</b> le premier document. <b>Quelle est la raison</b> pour laquelle la garantie ne peut etre ecrite ?
+
+### Partie 3
+<b>Rav Safra dit : </b> C'est <b>parce que</b> le tribunal ne peut <b>pas ecrire deux actes</b> de vente <b>pour</b> la meme vente d'<b>un champ, de peur qu'un creancier</b> du vendeur <b>vienne</b> et <b>reprenne possession</b> du champ vendu <b>a cet</b> acheteur, <b>et que</b> l'acheteur <b>allait prendre un</b> acte, <b>et</b> conformement a la clause de garantie de la vente, <b>reprendre</b> le terrain des autres <b>acheteurs</b> qui ont achete le terrain du meme vendeur a une date ulterieure, <b>et dire au creancier : Restez tranquille [<i>shof</i>]</b> a ce sujet pendant quelques annees, <b>pendant que je m'etablis dans</b> la propriete que j'ai reprise. <b>Et alors, venez</b> reclamer a nouveau votre pret, et alors vous <b>repossederez</b> cette propriete <b>de moi. Et</b> ensuite, apres qu'il lui ait ete repris une deuxieme fois, l'acheteur va alors <b>sortir l'autre</b> document de vente, le document de remplacement que le tribunal avait redige pour lui, <b>et ensuite aller</b> et <b>reprendre possession</b> des terrains des <b>autres acheteurs</b> qui ont achete des terrains au meme vendeur. En bref, un document de remplacement d'une garantie permettra un double recouvrement sur cette garantie.
+
+### Partie 4
+La Guemara demande a propos du scenario de Rav Safra : comment serait-il possible que cela se produise ? <b>Mais une fois</b> que le creancier a repris possession du terrain la premiere fois en paiement de la dette, <b>nous,</b> le tribunal, <b>soutenons le <b>billet a ordre</b> du <b>creancier du vendeur ; avec quel</b> document le creancier pourrait-il <b>reprendre possession</b> du terrain de l'acquereur <b>a nouveau ?</b>
+
+### Partie 5
+<b>Et si vous voulez dire que nous n'avons pas dechire</b> le billet a ordre du creancier au cours du premier recouvrement, cela ne peut pas etre. <b>Mais Rav Nahman ne dit-il pas</b> que <b>tout</b> document d'<b>autorisation de reprise de possession</b> d'un bien greve de son acquereur <b>dans lequel il n'est pas ecrit : Nous avons dechire le <b>billet a ordre</b> du creancier, n'est pas</b> un document valide d' <b>autorisation de reprise de possession</b> d'un bien greve ; <b>et tout document d'autorisation</b> utilise <b>pour</b> saisir un bien du debiteur <b>dans lequel il n'est pas ecrit : Nous avons dechire le</b> document du creancier de <b>autorisation de reprise de possession</b> d'un bien greve, <b>n'est pas</b> un <b>document d'autorisation valide ; et tout document d'evaluation</b> de la valeur d'un article <b>dans lequel il n'est pas ecrit : Nous avons dechire</b> le <b>document d'autorisation du creancier, n'est pas</b> un <b>document d'evaluation valide.</b>
+
+### Partie 6
+La Gemara repond : <b>Non,</b> il est <b>necessaire</b> d'expliquer le cas de Rav Safra comme suit : Le souci n'est pas qu'un creancier reprenne le champ, mais <b>que</b> quelqu'un <b>vienne</b> le reprendre <b>sur la base</b> de sa revendication du terrain comme propriete de <b>ses ancetres.</b> C'est-a-dire qu'il a prouve que le champ avait appartenu a ses ancetres, et par extension lui appartient en tant qu'heritier, et que celui qui a vendu le champ etait en fait un voleur. C'est pour cette raison qu'il a repris le champ a l'acheteur, et le souci est que l'acheteur demandera le remboursement, comme stipule dans la garantie, sur d'autres biens vendus ulterieurement par le vendeur. Si l'acheteur possede deux actes de vente avec garantie, il peut percevoir le paiement deux fois.
+
+### Partie 7
+La Guemara presente une autre question relative au cas du Rav Safra. <b>Rav Aha de Difti dit a Ravina : Et pourquoi</b> Rav Safra a du <b>inclure dans son cas que l'acquereur <b>dit au creancier : Reste tranquille</b> a ce sujet pendant quelques annees <b>pendant que je m'etablis dans cette terre</b> que j'ai reprise, puis viendra reclamer a nouveau ton pret ? Pourquoi a-t-il imagine un cas dans lequel le creancier du vendeur percoit le paiement deux fois ? Que le probleme <b>derive</b> du fait <b>que puisque</b> l'acheteur <b>detient deux actes</b> il pourra <b>reprendre possession</b> du terrain sur la base de sa garantie une fois <b>et</b> ensuite <b>reprendre possession</b> du terrain <b>encore une fois,</b> meme si le creancier ne percoit pas sa dette deux fois.
+
+### Partie 8
+Ravina repondit : <b>Si c'est le cas,</b> si l'acheteur tente de reprendre possession du terrain deux fois sur la base d'une seule reprise de possession du creancier, <b>il aura</b> trop <b>de plaideurs</b> a traiter en meme temps, et ses operations malhonnetes seront decouvertes.
+
+### Partie 9
+La Gemara demande plus loin : <b>Mais laissons</b> le tribunal <b>rediger un acte de vente correct</b>, qui inclut une garantie, <b>pour cet</b> acheteur, <b>et</b> ensuite <b>laissons</b> le tribunal <b>rediger un recu pour le vendeur,</b> indiquant : <b>Tous les documents qui sont emis concernant</b> l'achat de <b>ce champ ne sont pas valables, a l'exception</b> de celui <b>emis a cette date,</b> en faisant reference au document de remplacement redige par le tribunal. Cela empechera le double encaissement, car si l'acheteur tente d'encaisser sa garantie avec un deuxieme document, le vendeur dejouera cette tentative en montrant ce recu.
+
+### Partie 10
+<b>Les rabbins ont dit devant Rav Pappa</b> en reponse a cette question, <b>et certains disent</b> qu'il a ete dit <b>devant Rav Ashi : Est-ce a dire</b> que la <i>tanna</i> de la <i>baraita</i> soutient qu'en general le tribunal ne <b>pas ecrire de recu</b> dans de tels cas ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

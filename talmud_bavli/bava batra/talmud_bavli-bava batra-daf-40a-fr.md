@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>et</b> le proprietaire anterieur <b>n'a pas besoin de dire</b> aux temoins : <b>Ecrire</b> un document detaillant la protestation ; ils peuvent en ecrire un meme en l'absence de directive. De meme, celui qui desire enoncer <b>une declaration,</b> invalidant par anticipation un acte de vente en notifiant au tribunal qu'il a ete execute sous la contrainte, doit enoncer la declaration <b>en presence de deux</b> temoins, <b>et</b> il <b>n'a pas besoin de leur dire</b> : <b>Ecrire</b> un document detaillant la declaration ; ils peuvent en ecrire un meme en l'absence de directive.
+
+### Partie 2
+La Guemara poursuit avec la declaration de Rava : <b>Une admission</b> d'une obligation monetaire doit etre enoncee <b>en presence de deux</b> temoins, <b>et</b> dans ce cas, celui qui enonce l'admission <b>doit dire</b> aux temoins : <b>Ecrire</b> un document detaillant l'aveu, car ce document est a son detriment ; ils ne peuvent en ecrire un en l'absence de directive. <b>Acquisition</b> au moyen d'un acte symbolique utilisant un tissu doit se faire <b>en presence de deux</b> temoins, <b>et</b> les parties n'ont <b>pas besoin de dire</b> aux temoins : <b>Ecrire</b> un document detaillant l'acquisition ; elles peuvent en ecrire un meme en l'absence de directive. <b>Et la ratification des</b> <b>documents</b> juridiques doit se faire <b>par</b> le biais de <b>trois</b> personnes.
+
+### Partie 3
+La Guemara presente <b>un moyen mnemotechnique</b> pour les cas evoques ci-dessus : <b><i>Mem</i>,</b> protestation [<i>mehaâ</i>] ; <b><i>mem</i>,</b> declaration [<i>modaâ</i>] ; <b><i>heh</i>,</b> admission [<i>hodaâ</i>] ; <b><i>kuf</i>,</b> acquisition [<i>kinyan</i>].
+
+### Partie 4
+Rava discute maintenant de la declaration du Rav Nahman qu'il a citee. <b>Rava a dit : Si</b> une partie de cette declaration est <b>difficile pour moi, voici</b> ce qui est <b>difficile pour moi. Cette acquisition, a quoi ressemble-t-elle ? Si</b> elle est <b>comme un acte de justice, elle doit necessiter trois</b> temoins pour prendre effet, comme un tribunal doit etre compose d'au moins trois hommes. <b>Si</b> ce n'est <b>pas comme un acte du tribunal, pourquoi ne doit-il pas dire</b> aux temoins qu'ils doivent <b>ecrire</b> le document detaillant l'acquisition ? Le transfert d'un objet a un autre ne revient-il pas a admettre une obligation monetaire ?
+
+### Partie 5
+<b>Apres que</b> Rava <b>soule le dilemme,</b> il le <b>resout ensuite. En fait,</b> il n'est <b>pas considere comme un acte du tribunal. Et ici, quelle est la raison pour laquelle il n'a pas a dire</b> aux temoins qu'ils doivent <b>ecrire ?</b> C'est <b>du au fait</b> qu'un proces-verbal d'une <b>acquisition non specifiee</b> est <b>pret</b> a etre <b>ecrit.</b> Un acte symbolique d'acquisition indique l'intention de faire tout son possible pour finaliser la transaction le plus tot possible sans attendre le transfert effectif de l'objet. Par consequent, on suppose que les parties souhaitent qu'un document soit ecrit, et aucune autorisation explicite n'est necessaire.
+
+### Partie 6
+§ La Guemara discute des <i>halakhot</i> d'une declaration preventive. <b>Rabba et Rav Yosef disent tous deux : On ecrit</b> une <b>declaration preventive uniquement concernant celui qui ne</b> generalement pas <b>ecouter</b> et appliquer <b>le jugement</b> du tribunal. Dans un tel cas, il n'y a pas d'autre recours que de rediger une declaration preemptive au nom du vendeur annulant la transaction. Si l'acheteur etait pret a ecouter le tribunal, le vendeur est cense regler l'affaire au tribunal, plutot que de participer a la vente et de rediger une declaration de preemption. <b>Abaye et Rava disent tous deux :</b> Une declaration preventive peut etre ecrite <b>meme</b> concernant quelqu'un qui respecte la loi, comme <b>pour moi et pour toi,</b> car toutes les questions ne peuvent pas etre reglees par les tribunaux. Les Sages <b>de Nehardeâ disent : Toute <b>declaration</b> preventive...
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

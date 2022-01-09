@@ -1,0 +1,18 @@
+
+### Part 1
+<b>With regard to what <i>halakha</i></b> was this said? It is obvious that in principle daughters have the right to inherit from their maternal uncle, as the mother inherits from him. <b>Rav Sheshet said:</b> It is said <b>to</b> teach that where there are sons as well, they <b>precede</b> the daughters in inheriting from their maternal uncle.
+
+### Part 2
+<b>Rav Shmuel bar Rav Yitzḥak taught</b> a <i>baraita</i> <b>before Rav Huna:</b> At the end of the passage discussing inheritance of land, the verse states: “Then you shall give his inheritance to his kinsman who is next to him of his family, <b>and he shall inherit</b> it” (Numbers 27:11). The verse <b>juxtaposes a secondary inheritance,</b> that of one inheriting from other relatives, <b>to a primary inheritance,</b> that of a child inheriting from a parent. This teaches that <b>just as</b> with regard to <b>a primary inheritance a son precedes a daughter, so too,</b> with regard to <b>a secondary inheritance a son precedes a daughter.</b>
+
+### Part 3
+§ <b>Rabba bar Ḥanina taught</b> a <i>baraita</i> <b>before Rav Naḥman:</b> A verse in the passage concerning the double portion inherited by a firstborn states: <b>“Then it shall be on the day that he causes his sons to inherit</b> that which he has” (Deuteronomy 21:16). The addition of the phrase “on the day” teaches that <b>it is</b> specifically <b>during the day</b> that <b>you may distribute inheritances, but you may not distribute inheritances at night. Abaye said to him:</b> That cannot be the <i>halakha</i>, as, <b>if that is so,</b> it ought to be <b>that</b> only <b>one who dies during the day is</b> the one from <b>whom his children inherit,</b> but with regard to <b>one who dies at night, his children do not inherit</b> from <b>him,</b> and this is not the case.
+
+### Part 4
+Abaye suggests a different interpretation of Rabba bar Ḥanina’s statement: <b>Perhaps you said</b> a distinction between day and night with regard to the <b>adjudication of inheritances,</b> as judges are permitted to sit only during the day. A proof for this distinction is <b>as it is taught</b> in a <i>baraita</i>: A verse in the passage concerning inheritance states: <b>“And it shall be for the children of Israel a statute of judgment”</b> (Numbers 27:11), teaching that <b>the entire portion was placed [<i>ure’a</i>]</b> together <b>to be</b> considered a matter of <b>judgment,</b> subject to the procedural rules of a court matter.
+
+### Part 5
+Abaye continues: <b>And</b> this is <b>in accordance with</b> the statement <b>of Rav Yehuda, as Rav Yehuda says:</b> In a case where there were <b>three</b> men <b>who entered</b> a room <b>to visit a sick person</b> and the sick person desired to write a will in order to distribute his property following his death, if the visitors <b>wish</b> to do so <b>they may write</b> his will and sign it as witnesses. And if <b>they wish, they may act</b> in <b>judgment,</b> i.e., they may act as a court in the matter, since there are three of them. Therefore, they can determine that the will has the validity of an act of court and transfer the property to the heirs in their capacity as a court. But if only <b>two</b> came to visit the sick person, <b>they may write</b> the will and sign it as witnesses, <b>but they may not act</b> in <b>judgment,</b> since three are required to form a court. <b>And Rav Ḥisda says:</b> This <i>halakha</i> was <b>taught only</b> in a case where the three came to visit him <b>during the day,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

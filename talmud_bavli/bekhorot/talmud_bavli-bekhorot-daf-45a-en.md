@@ -1,0 +1,66 @@
+
+### Part 1
+<b>and a <i>ba’al happikim</i>,</b> and <b>the <i>ikkel</i>. What is the <i>ikkel</i>?</b> It is <b>anyone who places his feet together and his knees do not knock into each other,</b> i.e., he is bowlegged. A priest with <b>a protuberance emerging</b> alongside <b>the thumb of his</b> hand or the big toe of his foot,or one <b>whose heel emerges</b> and protrudes <b>back</b> from <b>his</b> foot, or one <b>whose feet are wide like</b> those <b>of a goose</b> are all disqualified from performing the Temple service.
+
+### Part 2
+A priest <b>whose fingers</b> or toes <b>are configured one upon the other, or</b> one whose fingers or toes are <b>attached,</b> is likewise disqualified. But if they were attached from <b>above</b> the palm of the hand or the bottom of the foot only <b>until the</b> middle <b>joint,</b> he is <b>fit.</b> If they were attached <b>below the joint,</b> higher up on the finger or toe, <b>and he cut</b> to separate them, he is <b>fit.</b> In a case where <b>there was an extra</b> finger or toe <b>on</b> his hand or foot <b>and he cut it, if</b> that extra appendage <b>contains a bone,</b> the priest is <b>disqualified</b> even after it was cut, <b>and if</b> there is <b>no</b> bone the priest is <b>fit.</b>
+
+### Part 3
+If there was <b>an extra</b> appendage <b>on his hands and on his feet, six on each</b> for a total of <b>twenty-four, Rabbi Yehuda deems</b> the priest <b>fit and the Rabbis deem</b> him <b>disqualified.</b> With regard to one <b>who</b> is ambidextrous and <b>has control of both of his hands, Rabbi</b> Yehuda HaNasi <b>deems</b> the priest <b>disqualified,</b> as his halakhic status is like that of one who is left-handed, <b>and the Rabbis deem</b> him <b>fit.</b>
+
+### Part 4
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i>: From the verse that states: <b>“Broken-footed”</b> (Leviticus 21:19), <b>I have</b> derived <b>only</b> that <b>a broken leg</b> disqualifies a priest from performing the Temple service. <b>From where</b> do I derive <b>to include</b> that <b>the <i>kishan</i>,</b> i.e., one who knocks his ankles or his knees together; <b>the <i>ikkel</i>; and the <i>kilvan</i></b> are disqualified as well? <b>The</b> same <b>verse states: “Or broken-footed.”</b> The term “or” serves to include all blemishes of the leg. It was also <b>taught</b> in a <i>baraita</i>: <b>A <i>ba’al hakippin</i> and the <i>shufnar</i></b>  are blemished. <b>Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says: A <i>ba’al happikin</i></b> is one <b>who has large protuberances</b> on his leg, while <b>a <i>shufnar</i></b> is one <b>who has no protuberances at all.</b>
+
+### Part 5
+The mishna teaches that one with <b>a protuberance emerging</b> alongside <b>the thumb of his</b> hand or the big toe of his foot, <b>and</b> one <b>whose heel emerges</b> and protrudes <b>back</b> from <b>his</b> foot are disqualified. <b>Rabbi Elazar says:</b> The description: One whose heel emerges and protrudes back from his foot, means <b>his calf,</b> i.e., his lower leg, <b>emerges from the middle</b> of <b>his foot.</b> The mishna also teaches that one <b>whose feet are wide like</b> those <b>of a goose</b> is disqualified. <b>Rav Pappa says: Do not say that</b> this is referring only to one whose feet are entirely like those of a goose, i.e., his feet <b>are flat and</b> his toes <b>are not split. Rather, once</b> one’s feet <b>are flat</b> he is considered blemished, <b>even though</b> his toes <b>are split.</b>
+
+### Part 6
+The mishna further teaches that a priest <b>whose fingers</b> or toes <b>are configured one upon the other, or</b> whose fingers or toes are <b>attached,</b> is likewise disqualified from performing the Temple service. But if they were attached from the hand or foot from above the palm of the hand or the bottom of the foot until the middle joint, or if they were attached below the joint, higher up on the finger or toe, and he cut to separate them, he is fit. <b>The Sages taught</b> in a <i>baraita</i>: The verse states: <b>“Broken-handed”</b> (Leviticus 21:19). <b>I have</b> derived <b>only</b> that <b>a broken hand</b> disqualifies a priest.
+
+### Part 7
+From where do I derive that if <b>his fingers</b> or toes <b>are configured</b> one <b>upon</b> the other, <b>or</b> if they are <b>attached</b> from the hand or foot <b>above the</b> middle <b>joint and he cut them</b> to separate them, that he is disqualified? The Gemara interrupts its citation of the <i>baraita</i> to ask: <b>But didn’t you say</b> in the mishna that if he separates his fingers he is <b>fit? Rather,</b> the <i>baraita</i> is referring to a priest whose fingers or toes are attached above the middle joint <b>and he did not cut them. From where</b> is it derived that he is disqualified? <b>The verse states: “Or broken-handed.”</b>
+
+### Part 8
+§ The mishna teaches: In a case where <b>there was an extra</b> finger or toe <b>on</b> his hand or foot <b>and he cut it, if</b> that extra appendage <b>contains a bone,</b> the priest is <b>disqualified</b> even after it was cut, as he is considered to be missing a limb, <b>and if not,</b> the priest is <b>fit. Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: And this</b> is the <i>halakha</i> only in a case <b>where it can be counted along the back of the hand</b> or foot, i.e., the extra digit is situated in a row with his other fingers or toes. Only in such a situation is an additional appendage considered a distinct limb to the extent that if it contains a bone he is disqualified even after it has been cut away.
+
+### Part 9
+With regard to extra appendages <b>the Sages taught:</b> In the case of <b>an extra</b> appendage that was cut from a corpse, <b>which contains a bone,</b> then even if <b>it does not have a nail</b> it <b>imparts ritual impurity</b> both <b>through contact and by carrying</b> it, <b>and it imparts impurity in a tent,</b>as is the <i>halakha</i> with regard to the limb of a corpse. <b>And</b> if the extra appendage has no flesh surrounding the bone and therefore does not impart the impurity of a limb from a corpse, it is <b>included in the count of 125</b> bones, which constitute a majority of the number of bones in a human being. A majority of bones imparts impurity in a tent, even if there is no flesh on any of them. <b>Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: And</b> it is considered a limb only <b>when it can be counted along the back of the hand</b> or foot.
+
+### Part 10
+<b>Rav Ḥisda says: This matter was stated by our great rabbi,</b> Rav, <b>may the Omnipresent</b> come <b>to his assistance. An extra</b> appendage <b>that contains a bone and does not have a nail imparts ritual impurity through contact and by carrying, but it does not impart impurity in a tent. Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: And</b> it does not impart impurity in a tent only <b>when it is not counted along the back of the hand</b> or foot.
+
+### Part 11
+<b>Rabbi Yoḥanan says:</b> The Sages <b>rendered their statements</b> in this case <b>like statements of prophecy,</b> i.e., there is no rationale for this <i>halakha</i>, as <b>whichever way you</b> look at it there is a difficulty: <b>If</b> a digit that is not counted with the other digits <b>is</b> considered <b>a limb, it should impart impurity in a tent as well; and if it is not a limb, it also should not impart impurity through contact or by carrying.</b>
+
+### Part 12
+<b>Rav Huna bar Manoaḥ said in the name of Rav Aḥa, son of Rav Ika:</b> This appendage imparts impurity through contact and by carrying <b>because</b> the Sages <b>touched upon it,</b> i.e., issued a ruling concerning it, and determined that the <i>halakhot</i> of <b>a bone</b> the volume of <b>a barley grain</b> apply to it, i.e., it is considered a bone fragment and not a limb. Accordingly, it does not impart impurity in a tent.
+
+### Part 13
+<b>Rav Pappa said:</b> It is a rabbinic <b>decree</b> that an appendage <b>that is not counted</b> with the other digits imparts impurity through contact and carrying, <b>due to</b> a case where the appendage is <b>counted</b> with the other digits,in which case it is considered a limb and imparts impurity in a tent. The Gemara raises a difficulty: <b>If so,</b> then an appendage <b>that is not counted should impart impurity in a tent as well.</b>
+
+### Part 14
+The Gemara explains: <b>The Sages implemented a distinction</b> by decreeing this appendage imparts impurity only through contact and carrying, <b>in order that</b> people <b>will</b> know that this impurity applies by rabbinic law and not by Torah law. And therefore they will <b>not</b> come <b>to burn <i>teruma</i>,</b> i.e., the portion of produce designated for the priest, <b>or consecrated</b> items that have been rendered impure <b>on</b> account of this type of impurity, as by Torah law they are ritually pure and may not be burned.
+
+### Part 15
+§ With regard to impurity imparted by extra appendages, <b>we learned</b> in a mishna <b>there</b> (<i>Oholot</i> 2:1): <b>A majority of the</b> skeletal <b>structure or a majority of the number</b> of bones in the corpse of a <b>dead</b> person, <b>even when there is not a quarter</b> of a <i>kav</i> of bones among them, <b>are impure.</b> Concerning the ruling of this mishna, <b>the Sages taught</b> in a <i>baraita</i>: <b>What is</b> considered <b>a majority of the</b> skeletal <b>structure</b> of a corpse? It is <b>two calves and one thigh, since</b> this constitutes <b>a majority of the height of an adult. What is</b> considered <b>a majority of the number</b> of bones? <b>One hundred and twenty-five</b> bones.
+
+### Part 16
+<b>Ravina said to Rava:</b> Is the <b><i>tanna</i> coming to teach us a number?</b> It is obvious that as there are 248 bones in the human body, 125 of them constitute a majority. Rava responded: The <i>tanna</i> <b>teaches us</b> that the <i>halakha</i> is <b>as it is taught</b> in a <i>baraita</i>: With regard to a corpse that <b>lacks</b> some bones and <b>has only 200</b> bones, <b>or</b> one that has <b>extra</b> and <b>has 281</b> bones, <b>all of them are included in the count of 125.</b> In other words, whether the number of 125 is in a majority or minority of that particular corpse, this number of bones imparts impurity, as one <b>follows the majority of people,</b> and most people have 248 bones.
+
+### Part 17
+With regard to the number of limbs or bones in the human body, <b>Rabbi Yehuda says</b> that <b>Shmuel says:</b> There was <b>an incident involving the students of Rabbi Yishmael, who boiled</b> the corpse of <b>a prostitute who was sentenced by the king to</b> death by <b>burning,</b> in order to separate her flesh from her bones. <b>They examined and found she</b> had <b>252</b> limbs. They were puzzled by their finding, as the Sages say that the human body has only 248 limbs. Shmuel <b>said to them: Perhaps you examined</b> the corpse of <b>a woman, as the verse added to her two hinges and two doors,</b> for a total of 252 limbs.
+
+### Part 18
+It <b>is taught</b> in a <i>baraita</i> that <b>Rabbi Elazar says: Just as a house has hinges [<i>tzirim</i>], so too, a woman has hinges, as it is stated: “And she bowed herself and brought forth, for her pains [<i>tzireha</i>] came suddenly upon her”</b> (I Samuel 4:19). <b>Rabbi Yehoshua says: Just as a house has doors, so too, a woman has doors, as it is stated: “Because it did not shut the doors of my womb”</b> (Job 3:10).
+
+### Part 19
+<b>Rabbi Akiva says: Just as</b> there is <b>a key to a house, so too,</b> there is <b>a key to a woman, as it is stated: “And He opened her womb”</b> (Genesis 30:22). The Gemara challenges: The incident <b>involving the students of Rabbi Yishmael,</b> who found that the woman had only four additional limbs rather than five, i.e., there was no key, poses <b>a difficulty for Rabbi Akiva.</b> The Gemara responds: <b>Perhaps since</b> it is <b>small, it dissolved</b> in the water when they boiled the corpse.
+
+### Part 20
+<b>Rav says: And all of them,</b> i.e., all the limbs found only in a woman, <b>do not impart impurity in a tent, as it is stated: “This is the law: When a person dies in a tent”</b> (Numbers 19:14), indicating that only <b>an item that is equal for all people,</b> male and female, imparts impurity in a tent.
+
+### Part 21
+<b>Abaye said to him: And are there no</b> hinges <b>in a man? But isn’t it written: “Pangs [<i>tzirim</i>] have taken hold upon me, as the pangs of a woman in travail”</b> (Isaiah 21:3)? The Gemara responds: The verse is referring specifically to <b>hinges of flesh,</b> which are not considered limbs, as they contain no bones. The Gemara persists: <b>But isn’t it written: “My lord, by reason of the vision my pains [<i>tzirai</i>] come”</b> (Daniel 10:16)? The Gemara responds: <b>Here too,</b> the verse is referring to <b>hinges of flesh.</b> The Gemara notes: <b>So too, it is reasonable</b> that the hinges of a male are only of flesh, <b>as if you do not say so,</b> then as far as the <b>248</b> limbs that the Sages stated constitute a human body, <b>how can you find</b> them? <b>Neither in a man nor in a woman.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

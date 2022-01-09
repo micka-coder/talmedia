@@ -1,0 +1,30 @@
+
+### Partie 1
+Ayant fait cette deduction, Ravina commente : <b>Mais le <i>teruma</i> des pains de l'offrande de reconnaissance n'est</b> designe qu'<b>apres l'aspersion du sang.</b> Par consequent, l'individu doit avoir fait son vœu apres l'aspersion du sang, lorsque ces pains sont autorises aux pretres. Si le vœu prend neanmoins effet, c'est que l'individu se refere au statut d'interdit initial des pains avant l'aspersion du sang. Cela indique que l'on a a l'esprit le statut original de l'article plutot que son statut actuel.
+
+### Partie 2
+La Gemara refute cette affirmation : <b>Disons</b> que lorsque la mishna precise que si l'on a dit que l'aliment doit etre comme le <i>teruma</i> d'Aaron, il reste permis, elle indique ainsi que si l'on a dit qu'il doit etre <b>comme la collecte de la <b>chambre du tresor</b> du Temple,</b> qui est aussi appelee un <i>teruma</i> et qui est toujours interdite, l'aliment devient <b>interdit. </b> Cependant, on ne peut pas deduire de la mishna que si l'on declare que la nourriture est comme le <i>teruma</i> des pains de l'offrande de remerciement, la nourriture devient interdite.
+
+### Partie 3
+La Guemara demande : <b>Mais</b> selon cela, si l'on a declare que l'aliment doit etre comme <b>le <i>teruma</i> des pains de l'offrande de remerciement, quoi,</b> l'aliment reste-t-il <b>permis ? </b> Si oui, <b>qu'il enseigne</b> dans la mishna que si l'on dit que la nourriture doit etre comme le <i>teruma</i> des <b>pains de l'offrande de remerciement</b> elle reste permise meme si l'offrande de remerciement est interdite par le biais d'un vœu, <b>et</b> on saurait de soi-meme que si l'on dit que la nourriture doit etre comme le <b><i>teruma</i> d'Aaron, <b>a plus forte raison</b> la nourriture reste permise. La Guemara repond : Il nous <b>enseigne ceci : Le <i>Teruma</i> des pains de l'offrande de remerciement</b> est egalement designe comme <b>son <i>teruma</i></b> et est donc inclus dans la mishna.
+
+### Partie 4
+La Guemara propose une reponse alternative a la tentative de preuve de Ravina a partir du cas de la <i>teruma</i> des pains de l'offrande de remerciement, selon laquelle on a a l'esprit le statut original d'un element lorsqu'on exprime un vœu. <b>Et si vous voulez, dites</b> que le <b><i>teruma</i> des pains de l'offrande de remerciement</b> peut <b>egalement</b> etre designe <b>avant l'aspersion du sang, par exemple, lorsqu'il a separe</b> le <i>teruma</i> <b>pendant le petrissage</b> de la pate. Par consequent, le cas peut se presenter ou l'on fait le vœu avant l'aspersion du sang, alors que les pains sont interdits a tous, et c'est la raison pour laquelle le vœu prend effet.
+
+### Partie 5
+<b>Et</b> ceci est <b>conforme a ce que Rav Tovi bar Kisna a dit</b> que <b>Shmuel a dit :</b> Si <b>on a cuit les pains de l'offrande de remerciement comme quatre pains</b> plutot que les quarante pains qui devraient idealement etre cuits, <b>il a rempli</b> son obligation. La Gemara demande : <b>N'est-il pas ecrit</b> que <b>quarante</b> pains doivent etre apportes avec l'offrande de remerciement, dix pains de chacun des quatre types differents ? La Guemara repond : On doit cuire quarante pains afin <b>de</b> remplir la <b>mitzva</b> de maniere optimale, mais il a neanmoins rempli son obligation avec quatre pains, un de chaque type.
+
+### Partie 6
+La Guemara demande : <b>Mais il est tenu de prendre <i>teruma</i>,</b> c'est-a-dire de designer un pain de chaque type a remettre aux pretres. <b>Et si l'on veut dire qu'il prend un</b> pain</b> des quatre comme <i>teruma</i> <b>pour tous</b> les autres, <b>mais n'a-t-on pas appris</b> dans une mishna (<i>Menahot</i> 77b) a propos du verset "Et de celui-ci, il presentera <b>un de chaque offrande</b> pour un don au Seigneur ; elle appartiendra au sacrificateur (Levitique 7 : 14), qu'il indique <b>qu'il ne doit pas prendre sur une seule offrande,</b> c'est-a-dire. e., un type de pain, <b>pour un autre ? Et si vous disiez qu'il prend une tranche de chacun</b> des quatre pains et les donne au pretre, <b>mais n'avons-nous pas appris</b> dans cette mishna que le mot <b>un</b> dans le verset indique <b>qu'il ne peut pas prendre une tranche</b> mais plutot un pain complet ?
+
+### Partie 7
+<b>Au contraire,</b> il faut <b>qu'il ait separe</b> le <i>teruma</i> <b>pendant</b> le temps du <b>petrissage. Il prenait un</b> morceau de pate <b>du pain leve, un des pains, un des galettes et un de la farine melangee a l'eau et a l'huile.</b> Apres avoir separe un dixieme de chaque type de pate pour le pretre, il cuisait ensuite le reste en quatre pains. Comme il est possible de separer le <i>teruma</i> au moment du petrissage, avant l'aspersion du sang de l'offrande, il est possible qu'il s'agisse d'un cas ou il a exprime le vœu a ce moment-la. Par consequent, il n'y a pas de preuve que l'on a a l'esprit le statut original d'une offrande plutot que son statut actuel lorsqu'on exprime un vœu apres l'aspersion du sang.
+
+### Partie 8
+La Gemara suggere : <b>Disons</b> que cette question, a savoir si l'on a l'intention de prolonger le statut original ou actuel d'une offrande, est <b>parallele a</b> une dispute entre <b><i>tannaim</i>.</b> Si l'on dit : <b>Cette</b> viande est interdite <b>a moi</b> comme la viande d'un <b>premier-ne, Rabbi Yaâkov rend</b> la viande <b>interdite et Rabbi Yehuda la rend</b> <b>permise.</b>
+
+### Partie 9
+La Guemara clarifie : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si l'on dit</b> qu'il associe l'objet de son vœu au statut d'animal premier-ne <b>avant l'aspersion du sang,</b> alors qu'il est interdit en tant qu'objet consacre, <b>quel est le raisonnement de celui qui le rend</b> <b>permis ? Et si</b> il associe l'objet de son vœu au statut d'un animal premier-ne <b>apres l'aspersion du sang,</b> alors qu'il appartient au pretre et qu'il est autorise a etre mange, <b>quelle est la logique de celui qui le rend</b> <b>interdit ? Au contraire, n'est-ce pas</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

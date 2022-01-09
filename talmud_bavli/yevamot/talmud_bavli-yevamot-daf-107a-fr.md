@@ -1,0 +1,42 @@
+
+### Partie 1
+<strong>MISHNA:</strong> Les Sages ont decrete que dans le cas d'une fille mineure dont le pere est decede, sa mere ou ses freres peuvent la marier. Cependant, un tel mariage n'a pas le meme statut juridique que le mariage d'un adulte. Par consequent, si la mineure regrette de s'etre mariee, elle est autorisee a faire une declaration de refus a son mari, annulant ainsi le lien conjugal. Les Sages n'etaient pas d'accord en ce qui concerne les details de cette <i>halakha</i> : <b>Beit Shammai dit : Seules les filles fiancees peuvent refuser.</b> Une fille peut refuser, en atteignant l'age adulte, de rester mariee a l'homme auquel sa mere ou ses freres l'ont mariee alors qu'elle etait mineure apres la mort de son pere. <b>Mais Beit Hillel dit</b> que les <b>filles fiancees et pleinement mariees</b> peuvent refuser.
+
+### Partie 2
+<b>Beit Shammai disent :</b> Le refus peut etre dirige uniquement <b>vers</b> son <b>mari et non vers</b> son <b><i>yavam</i>.</b> Dans une telle situation, elle doit accomplir <i>halitza</i> afin de dissoudre le lien levirat. <b>Mais Beit Hillel disent :</b> Elle peut etre dirigee <b>vers</b> son <b>mari ou</b> son <b><i>yavam</i>.</b>
+
+### Partie 3
+<b>Beit Shammai disent :</b> Le refus doit avoir lieu specifiquement <b>en presence</b> du mari. <b>Mais Beit Hillel disent :</b> Il peut avoir lieu <b>soit en sa presence, soit en son absence. Beit Shammai disent :</b> Le refus doit avoir lieu specifiquement <b>au tribunal. Mais Beit Hillel disent :</b> Il peut avoir lieu <b>soit au tribunal, soit pas au tribunal.</b>
+
+### Partie 4
+<b>Beit Hillel dit a Beit Shammai : Elle peut refuser tant qu'elle est mineure, meme quatre ou cinq fois</b> si ses proches la marient a nouveau a un autre homme apres chaque refus. <b>Beit Shammai leur a dit : Les filles d'Israel ne doivent pas etre traitees avec mepris</b> et ne doivent pas passer d'un homme a un autre. <b>Au contraire, elle refuse</b> une fois. <b>Et</b> alors <b>elle doit attendre sa majorite, et refuser, et se marier.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Shmuel a dit : Quelle est la raison du Beit Shammai</b> de statuer qu'une fille mineure mariee ne peut pas effectuer de refus ? C'est <b>parce qu'il n'y a pas de conditions en ce qui concerne le mariage.</b> Bien que les fiancailles puissent etre conditionnelles, la condition est annulee lors de la consommation du mariage. De meme, le mariage ne peut etre conditionnel, car la relation sexuelle n'est pas soumise a des conditions. <b>Et si une fille mineure mariee</b> <b>refuserait,</b> d'autres peuvent penser a tort qu'il s'agit d'une condition par rapport au mariage d'une femme adulte, et <b>ils en viendront a dire qu'il</b> peut y avoir une <b>condition par rapport au mariage.</b>
+
+### Partie 6
+La Guemara demande : <b>Mais que dire si elle est entree dans le couvert du mariage mais n'a pas</b> encore <b>engage des rapports sexuels ?</b> Le mariage prend effet meme s'il n'a pas encore ete consomme. La Guemara repond : <b>Il n'y a pas de conditions en ce qui concerne le dais de mariage,</b> c'est-a-dire la ceremonie de mariage.
+
+### Partie 7
+La Guemara demande encore : <b>Mais que dire si le pere a livre sa fille aux agents du mari</b> pour qu'elle se marie, de sorte qu'elle etait consideree comme mariee avant meme que la ceremonie de mariage ait eu lieu ? La Guemara repond : <b>Les Sages n'ont pas fait de distinction</b> entre les differentes circonstances, et aucun mariage n'est conditionnel. Il s'ensuit que le refus ne peut avoir lieu une fois qu'une fille mineure est mariee.
+
+### Partie 8
+<b>Et</b> en ce qui concerne <b>Beit Hillel,</b> quel est leur raisonnement ? <b>On sait que le mariage d'une fille mineure est de droit rabbinique</b>, et donc personne ne confondrait ce type de mariage avec un mariage d'adulte. <b>Rabba et Rav Yosef disent tous deux : La raison de Beit Shammai est qu'un homme ne rendrait pas facilement son acte sexuel licencieux.</b> S'il a eu des rapports sexuels avec la fille mineure et que le mariage a ete plus tard annule retroactivement par son refus, alors son acte sexuel etait hors du contexte du mariage et est considere comme licencieux.
+
+### Partie 9
+La Gemara demande : <b>Qu'y a-t-il a dire si elle est entree dans le couvert du mariage mais n'a pas eu de rapports sexuels,</b> car cette raison ne s'appliquerait pas a un tel cas ? La Gemara repond : <b>Il ne serait pas satisfaisant pour lui,</b> c'est-a-dire pour le mari, <b>si</b> son <b>dais de mariage interdit,</b> car si le mariage est annule ulterieurement par son refus, il se sera tenu sous le dais de mariage avec une femme qui ne lui etait pas permise. La Gemara demande : <b>Qu'y a-t-il a dire si le pere a livre sa fille aux agents du mari ?</b> La Gemara repond : <b>Les Sages n'ont pas fait de distinction</b> entre les differentes circonstances. <b>Et</b> comment <b>Beit Hillel</b> repondent-ils au raisonnement de Beit Shammai ? <b>Puisqu'il y a a la fois des fiancailles et un contrat de mariage</b> dans ce cas, <b>personne ne viendra dire que son acte sexuel etait un rapport licite.</b> La raison principale pour laquelle Beit Shammai interdit le refus apres le mariage est qu'il rendrait la relation sexuelle du mariage licite. Les Beit Hillel ne considerent pas l'activite sexuelle dans de telles circonstances comme licencieuse, il n'y a donc pas non plus de stigmate attache au fait de s'etre tenu sous un dais de mariage avec une fille qui refuse ensuite le mariage.
+
+### Partie 10
+<b>Rav Pappa a dit :</b> Le <b>raisonnement de l'opinion de Beit Shammais</b> <b>est a cause</b> des <b>profits</b> des biens qu'elle apporte dans le mariage, <b>et</b> le <b>raisonnement de l'opinion de Beit Hillels</b> <b>est</b> egalement <b>a cause</b> des <b>profits</b> de ses biens. Il explique : Le <b>raisonnement de l'opinion de Beit Shammais</b> <b>est a cause</b> des <b>profits</b> de ses biens, <b>car si l'on dit qu'une fille mineure mariee</b> <b>peut effectuer un refus, alors le mari</b> de cette mineure <b>pourra saisir</b> ces profits <b>de sa part et les consommer, car en fin de compte elle risque de le quitter</b> si elle le refuse plus tard. En attendant, il essaiera d'extraire le plus de benefices possible. <b>Et Beit Hillel</b> dit : <b>Au contraire : Puisque tu dis qu'elle peut refuser, il</b> cherchera a <b>ameliorer</b> son bien. <b>Il pensera : si</b> je <b>ne le fais pas</b>, <b>ses proches lui conseilleront</b> de le refuser <b>et ils la lui prendront.</b>
+
+### Partie 11
+<b>Rava a dit : Voici le raisonnement de Beit Shammai : Un homme ne se donnera pas la peine de faire un festin de mariage et</b> ensuite de le <b>perdre.</b> Si la femme a le droit de le refuser meme apres le mariage, l'homme ne sera pas dispose a epouser une mineure et a supporter les frais du mariage, alors qu'il n'est pas certain qu'elle restera avec lui. <b>Et Beit Hillel</b> raisonne comme suit : <b>Le mariage convient aux deux</b> meme s'il est annule plus tard, <b>afin de generer une publicite a leur sujet que</b> ils sont <b>maries.</b>
+
+### Partie 12
+§ Il est enseigne dans la mishna : <b>Beit Shammai disent :</b> Le refus ne peut etre dirige que <b>vers</b> son <b>mari</b> et non son <i>yavam</i>. Si elle souhaite refuser son <i>yavam</i>, elle doit accomplir <i>halitza</i> afin de dissoudre le lien levirique. Mais les Beit Hillel disent que le refus peut etre dirige contre son mari ou son <i>yavam</i>. <b>Rabbi Oshaya dit :</b> Une <i>yevama</i> mineure <b>peut diriger un refus contre des fiancailles leviriennes mais elle ne peut pas diriger un refus contre son</b> <b>lien levirien.</b> Avant que le <i>yavam</i> ne la fiance, elle ne peut pas annuler le lien levirien par un refus. <b>Rav Hisda a dit : Quel est le raisonnement de Rabbi Oshaya ?</b> Dans le cas des <b>fiancailles leviriennes, qui sont consensuelles, elle peut les annuler</b>. Mais en ce qui concerne le <b>lien levirat</b>, qui s'applique a elle meme <b>contre sa volonte, elle ne peut l'annuler</b>.
+
+### Partie 13
+La Gemara demande : <b>Mais</b> la <b>consommation</b> du lien levirien <b>peut etre contre sa volonte</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

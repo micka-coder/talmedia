@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>Rav Pappa a dit : La <i>halakha</i></b> est que lorsqu'un creancier accorde <b>un pret par contrat oral</b>, il peut <b>recueillir</b> la dette <b>aupres des heritiers</b> du debiteur apres sa mort, <b>mais il ne peut pas percevoir</b> la dette <b>aupres des acquereurs</b> des biens du debiteur. Il peut <b>recouvrer</b> la dette <b>aupres des heritiers pour ne pas fermer la porte au nez</b> des <b>emprunteurs potentiels. Mais il ne peut pas recouvrer</b> la dette <b>aupres des acquereurs, car</b> un pret par contrat oral <b>n'a pas de publicite</b> associee.
+
+### Partie 2
+§ La mishna enseigne : Si l'on <b>presente a</b> un debiteur un document dans la <b>ecriture du debiteur</b> indiquant <b>qu'il lui doit</b> de l'argent,</b> mais sans temoins signes sur le document, le creancier <b>ne peut percevoir</b> que <b>sur les biens invendus. Rabba bar Natan a demande a Rabbi Yohanan:</b> Si le document dans la <b>ecriture manuscrite</b> du debiteur <b>a ete ratifie au tribunal</b> a une date ulterieure, <b>qu'est-ce que</b> est la <i>halakha</i> ? Serait-il alors possible de recouvrer la dette sur un bien greve qui a ete vendu ? Rabbi Yohanan <b>lui a repondu</b> : <b>Meme si</b> le document de l'<b>ecriture manuscrite</b> du debiteur <b>a ete ratifie en justice,</b> le creancier <b>peut recouvrer</b> la dette <b>uniquement sur des biens non vendus.</b>
+
+### Partie 3
+<b>Rami bar Hama souleve une objection</b> a partir d'une mishna (<i>Gittin</i> 86a), qui stipule : Il existe <b>trois</b> types d'actes de <b>divorce</b> qui <b>ne sont pas valables</b> <i>ab initio</i>, <b>mais si</b> la femme <b>se marie</b> avec un autre homme sur la base d'un de ces actes de divorce, la lignee de <b>la progeniture</b> de ce mariage <b>est sans defaut. </b> En d'autres termes, elle n'est pas consideree comme une femme mariee ayant eu des rapports sexuels avec un autre homme, ce qui porterait atteinte au lignage de leur enfant. <b>Et ce sont ceux-la : </b> Un acte de divorce que le mari <b>a ecrit de sa main mais il n'y a pas</b> de signatures de <b>temoins dans</b> le document du tout ; un acte de divorce ou <b>il y a</b> les signatures de <b>temoins dans</b> le document <b>mais il n'y a pas de date</b> ecrite <b>dans celui-ci;</b> et un acte de divorce ou <b>il y a une date</b> ecrite <b>dans celui-ci, mais il ne contient qu'un seul temoin. Ce sont</b> les <b>trois actes de divorce</b> qui ne sont <b>pas valables</b> a l'egard desquels les Sages ont dit : <b>Et si elle se marie,</b> la lignee de <b>la progeniture est sans defaut.</b>
+
+### Partie 4
+<b>Rabbi Elazar dit : Meme s'il n'y a pas</b> de signatures de <b>temoins dans</b> le document, <b>mais qu'il le lui a remis en presence</b> de deux <b>temoins,</b> c'est <b>un acte de divorce valide</b>. <b>Et</b> sur la base de cet acte de divorce, la femme peut <b>recevoir</b> la somme qui lui a ete ecrite dans son contrat de mariage meme <b>sur des biens greves</b> qui ont ete vendus. Cela indique que meme si aucun temoin n'a signe le document, la dette qui y est inscrite peut etre recouvree sur un bien greve qui a ete vendu, pour autant que des temoins aient vu le document etre transfere au creancier. A plus forte raison, une dette inscrite dans un document ecrit de la main du debiteur et ratifie par un tribunal devrait pouvoir etre recouvree sur un bien greve qui a ete vendu.
+
+### Partie 5
+La Gemara repond : <b>La</b> il <b>est different, car</b> le mari s'est <b>oblige</b> et ses biens immediatement <b>a partir du moment</b> de la <b>ecriture</b> du document, car il savait a ce moment-la que le document serait transfere en presence de temoins. En revanche, dans le cas de la mishna ici, le document ecrit de la main du debiteur a ete redige sans l'intention de le ratifier. Ce n'est qu'a une date ulterieure, apres coup, qu'il a ete ratifie, et les termes de l'obligation de la dette ne peuvent etre modifies a ce moment-la.
+
+### Partie 6
+§ La mishna enseigne : Dans le cas d'un <b>garant dont</b> l'engagement <b>a emerge,</b> c'est-a-dire a ete ecrit, <b>apres la signature de</b> la <b>billet a ordre,</b> le creancier ne peut recouvrer la dette que sur les biens invendus du garant. <b>Rav dit :</b> Si l'engagement du garant est ecrit <b>avant la signature du document,</b> le creancier peut <b>recueillir</b> la dette du garant <b>sur des biens greves</b> qui ont ete vendus ; s'il est ecrit <b>apres la signature du document,</b> le creancier ne peut <b>recueillir</b> la dette que <b>sur des biens invendus.</b>
+
+### Partie 7
+A d'autres <b>moments, le Rav dit : Meme</b> si la garantie est ecrite <b>avant la signature de l'acte,</b> le creancier peut <b>recouvrer</b> la dette <b>uniquement sur les biens invendus.</b>
+
+### Partie 8
+La Gemara demande : Il y a <b>une difficulte</b> resultant de la contradiction entre une declaration <b>du Rav a</b> l'autre declaration <b>du Rav,</b> car elles semblent se contredire en ce qui concerne une garantie qui est ecrite avant la signature du document. La Gemara repond : Ceci n'est <b>pas difficile. Ce</b> cas, ou Rav dit que le creancier ne peut recouvrer la dette que sur les biens invendus, est <b>lorsqu'il etait ecrit dans</b> le document comme suit : <b>Monsieur Untel</b> est <b>un garant,</b> car cette formulation est une declaration independante, et les temoins qui signent le document ne se rapportent pas necessairement a cette declaration. Et <b>cette affaire</b>, ou Rav dit que le creancier peut recouvrer la dette sur un bien greve qui a ete vendu, est <b>la ou il etait ecrit dans</b> le document comme suit : <b>Et untel</b> est <b>un garant.</b> L'usage de la conjonctive : Et, fait que cette clause fait partie integrante du document, de sorte que les signatures des temoins s'y rapportent egalement.
+
+### Partie 9
+<b>Et Rabbi Yohanan dit :</b> Dans <b>cette</b> affaire <b>et cette</b> affaire, le creancier ne peut <b>recouvrer</b> la dette <b>que sur les biens invendus.</b> La Gemara commente : <b>Et</b> selon l'avis de Rabbi Yohanan, c'est la <i>halakha</i> <b>meme si c'est ecrit dans</b> le document : <b>Et untel</b> est <b>un garant.</b>
+
+### Partie 10
+<b>Rava souleve une objection</b> a partir d'une <i>baraita</i> (<i>Tosefta</i>, <i>Gittin</i> 9:9) : Dans un cas ou <b>des temoins sont signes sur une salutation</b> ecrite <b>dans un acte de divorce,</b> l'acte de divorce n'est <b>pas valide,</b> car <b>on craint</b> que <b>peut-etre</b> les temoins aient <b>signe sur la salutation</b> seule, c'est-a-dire qu'ils n'avaient pas l'intention de temoigner du divorce, mais seulement de verifier que la salutation etait ecrite.
+
+### Partie 11
+<b>Et Rabbi Abbahou a dit</b> concernant cette <i>baraita</i> : <b>Il m'a ete explique</b> personnellement <b>par Rabbi Yohanan</b> lui-meme que c'est seulement lorsque la formulation de la salutation commence : <b>Envoyer une salutation</b> a untel, que l'acte de divorce n'est <b>pas valable,</b> car il s'agit d'une declaration independante et il est possible que les signatures se rapportent a elle seule. Mais si le libelle est : <b>Et envoyer un salut</b> a untel, l'usage du conjonctif : Et, fait que cette clause fait partie integrante du document, et l'acte de divorce est <b>valide.</b> Cela indique que Rabbi Yohanan lui-meme soutient que lorsque la conjonction est utilisee, les signatures se rapportent a l'ensemble du document.
+
+#### Partie 12
+La Guemara repond : <b>Ici aussi,</b> quand Rabbi Yohanan a-t-il dit que le creancier ne peut recouvrer la dette que sur les biens invendus du garant ? <b>La ou il a ete ecrit : Untel</b> est <b>un garant.</b> Si on utilise la conjonction, il peut recouvrer la dette meme sur les biens greves qui ont ete vendus.
+
+### Partie 13
+La Gemara objecte : Mais <b>si c'est le cas, c'est</b> identique a l'opinion <b>de Rav,</b> alors que Rabbi Yohanan a ete presente comme etant en desaccord avec Rav. La Guemara repond : Cette presentation etait inexacte. <b>Dites</b> plutot : <b>Et donc Rabbi Yohanan dit</b> comme Rav.
+
+### Partie 14
+§ La mishna relate : <b>Un incident</b> est survenu ou un tel cas <b>se presenta devant Rabbi Yishmael,</b> et il dit : Le creancier peut recouvrer la dette sur les biens non vendus du garant, mais pas sur les biens greves que le garant a vendus a d'autres personnes. Ben Nannas a dit a Rabbi Yishmael : Le creancier ne peut pas du tout recouvrer la dette aupres du garant, ni sur un bien greve qui a ete vendu, ni sur un bien invendu. <b>Rabba bar bar Hana dit</b> que <b>Rabbi Yohanan dit : Bien que Rabbi Yishmael ait fait l'eloge de Ben Nannas</b> apres avoir entendu son opinion dissidente (voir 175b), la <b><i>halakha</i></b> est en fait <b>conforme</b> a l'opinion de Rabbi Yishmael telle qu'il l'a enoncee initialement, c'est-a-dire que dans le cas d'une garantie ecrite apres les signatures, le creancier ne peut recouvrer la dette que sur les biens invendus du garant, mais pas sur les biens greves qui ont ete vendus.
+
+### Partie 15
+<b>Un dilemme a ete souleve devant</b> les Sages : <b>Que</b> me dirait <b>Rabbi Yishmael</b> le cas du debiteur qui se faisait <b>strangler,</b> tel que depeint par ben Nannas ? Peut-etre serait-il d'accord dans ce cas, puisque la garantie a ete donnee sous la contrainte, qu'elle n'est pas valable. La Gemara suggere : <b>Venez</b> et <b>entendez, comme Rabbi Yaakov dit</b> que <b>Rabbi Yohanan dit : Rabbi Yishmael etait en desaccord</b> avec ben Nannas <b>aussi dans</b> le cas ou le debiteur est <b>etrangle.</b>
+
+### Partie 16
+La Gemara demande : Et la <b><i>halakha</i> est-elle conforme a</b> l'avis de Rabbi Yishmael meme dans le cas ou le debiteur est etrangle, <b>ou</b> la <b><i>halakha</i> n'est-elle pas conforme a son</b> avis dans ce cas ? <b>Venez</b> et <b>entendez, comme lorsque Ravin est venu</b> il a dit que <b>Rabbi Yohanan dit : Rabbi Yishmael n'etait pas d'accord</b> avec ben Nannas <b>aussi dans</b> le cas ou le debiteur est <b>trangle, et</b> le <b><i>halakha</i></b> est <b>conforme</b> a l'avis de Rabbi Yishmael <b>aussi dans</b> le cas ou le debiteur est <b>trangle.</b>
+
+### Partie 17
+<b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> Si le debiteur etait <b>strangle, et</b> en plus <b>un acte d'acquisition a ete effectue avec</b> le garant, le garant <b>devient oblige</b> de rembourser la dette. La Gemara en deduit : <b>Par deduction</b> il ressort <b>qu'un garant n'a generalement pas besoin d'un acte d'acquisition</b> pour devenir oblige de payer. <b>Et</b> ceci <b>est en desaccord</b> avec une declaration du <b>Rav Nahman, car Rav Nahman dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

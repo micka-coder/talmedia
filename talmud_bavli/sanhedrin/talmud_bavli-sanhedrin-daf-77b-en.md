@@ -1,0 +1,51 @@
+
+### Part 1
+<b>at the time of</b> the perpetrator’s action, as the room is sufficiently large to enable the individual to breathe. <b>Here,</b> in the case where one overturns a vat upon another, <b>even without</b> a kindled <b>lamp the atmosphere begins</b> to cause suffocation <b>at the time of</b> the perpetrator’s actions. Therefore, the two cases are not comparable, and it is Rava who exempts the one who overturned a vat upon another.
+
+### Part 2
+§ The Gemara cited <b>a mnemonic</b> for the <i>halakhot</i> that follow with regard to causing the death of another: <b>Ladder, shield, herbs, in a wall.</b>
+
+### Part 3
+<b>Rava says:</b> In a case where <b>one pushed</b> another <b>into the pit and</b> there was <b>a ladder in the pit</b> that would enable him to emerge from it, <b>and another</b> individual <b>came and removed</b> the ladder, <b>or even</b> if the perpetrator <b>himself removed</b> the ladder <b>before</b> the one whom he pushed could emerge, causing him to die of starvation, the perpetrator is <b>exempt</b> from execution. The reason is <b>that at the time that he cast</b> him into the pit, the victim <b>was able to ascend</b> and emerge from the pit. Pushing him into the pit did not cause his death, and the removal of the ladder merely prevented the victim from emerging, but was not an action that directly caused his death.
+
+### Part 4
+<b>And Rava says:</b> In the case of one who <b>shot an arrow</b> at another, <b>and</b> there was <b>a shield [<i>teris</i>] in</b> the victim’s <b>hand,</b> if <b>another</b> individual <b>came and took</b> the shield from him, <b>or even</b> if the one who shot the arrow <b>took</b> the shield <b>before</b> the arrow reached the victim, the attacker is <b>exempt</b> from execution. The reason is <b>that at the time that he shot</b> the arrow <b>at</b> the victim, <b>his arrows were blocked</b> from the one being attacked by the shield, and they could not harm him. The victim’s death was caused indirectly, by removal of the shield.
+
+### Part 5
+<b>And Rava says:</b> In the case of one who <b>shot an arrow</b> at another <b>and</b> the victim had <b>herbs in his possession</b> capable of healing the wound from the arrow before it became fatal, if <b>another</b> individual <b>came and scattered</b> the herbs, <b>or even</b> if the one who shot the arrow <b>scattered them before</b> the victim could heal his wound with the herbs, the attacker is <b>exempt</b> from execution. The reason is <b>that at the time that he shot</b> the arrow <b>at him,</b> the victim <b>was able to be cured.</b> The arrow caused injury, but the victim died due to the unavailability of a cure.
+
+### Part 6
+<b>Rav Ashi says:</b> It is established that one who shoots an arrow at another is exempt when herbs that could facilitate his recovery are available; <b>therefore, even</b> if there are <b>herbs</b> available <b>in the marketplace,</b> the attacker is exempt from execution, as in that case, too, the herbs are available. <b>Rav Aḥa, son of Rava, said to Rav Ashi:</b> If the herbs were not available in the marketplace, and <b>herbs</b> capable of healing the wound <b>happened</b> to enter <b>into</b> the victim’s possession, yet he neglected to use them and died, <b>what is</b> the <i>halakha</i>? Rav Ashi <b>said to</b> Rav Aḥa: <b>He emerged from</b> the <b>court innocent.</b> As long as there was a possibility that the victim could heal his wound with the herbs, the one who shot the arrow is not a murderer; rather, he is merely one who caused death indirectly.
+
+### Part 7
+§ <b>And Rava says:</b> In the case of one who <b>threw a stone</b> with the intent to kill another, and the stone caromed <b>off the wall and rebounded back and killed</b> a different individual, the attacker is <b>liable. And the <i>tanna</i> taught</b> a similar <i>halakha</i> in a <i>baraita</i>: In a case <b>where those who were playing with a ball killed</b> another by hitting him with the rebounding ball, if they did so <b>intentionally, they are executed</b> by beheading; if they did so <b>unwittingly, they are exiled.</b>
+
+### Part 8
+The Gemara asks: If they did so <b>unwittingly, they are exiled;</b> isn’t this <b>obvious?</b> All unwitting murderers are exiled. The Gemara answers: The novel element in this <i>baraita</i> is not that the unwit-ting murderer is exiled; rather, it <b>was necessary for</b> the <i>tanna</i> to teach that if they did so <b>intentionally, they are executed.</b> This <i>halakha</i> needed to be taught <b>lest you say</b> that they cannot be executed because the death penalty requires certain forewarning, i.e., forewarning of an action that will certainly lead to the death penalty, and in this case the <b>forewarning is uncertain,</b> as <b>who is to say that</b> the ball will <b>rebound</b> and cause death? Therefore, the <i>tanna</i> <b>teaches us</b> that those who play ball are trained in throwing it and the ball will certainly rebound; therefore, there is no uncertainty.
+
+### Part 9
+<b>Rav Taḥlifa, from the West,</b> Eretz Yisrael, <b>taught</b> this <i>baraita</i> <b>before Rabbi Abbahu:</b> In a case <b>where those who were playing with a ball killed</b> an individual by hitting him with the ball, if the ball struck the individual <b>within four cubits</b> of the one who threw the ball, he is <b>exempt</b> from being exiled, as it was certainly not his intent to throw the ball so short a distance; <b>beyond four cubits,</b> he is <b>liable</b> to be exiled.
+
+### Part 10
+<b>Ravina said to Rav Ashi,</b> questioning this <i>halakha</i>: <b>What are the circumstances? If he was amenable</b> to having the ball travel a short distance, then he should be liable <b>even</b> for a throw <b>less</b> than four cubits. And <b>if he was not amenable</b> to having the ball travel the distance that it traveled, but he wanted it to travel farther, then he should <b>not</b> be liable <b>even</b> for a throw <b>greater</b> than four cubits. In what case is the measure of four cubits significant? Rabbi Abbahu <b>said to him:</b> With regard to <b>ordinary</b> people who <b>play with a ball, the farther they enter</b> and approach the wall, the more <b>amenable they are</b> to the result, as the ball caroms off the wall and rebounds farther. Therefore, presumably their intent was that the ball would travel a distance greater than four cubits.
+
+### Part 11
+The Gemara questions the principle underlying this <i>halakha</i>. Is that <b>to say that</b> in <b>a case like this,</b> when an item caroms off the wall, the action <b>is</b> considered the result of <b>his force? And</b> the Gemara <b>raises a contradiction</b> from a mishna (<i>Para</i> 6:1): In the case of <b>one who sanctifies</b> the waters of purification by placing the ashes of the red heifer into the water, in order to sprinkle on one impure with impurity imparted by a corpse, <b>and the sacred</b> ashes <b>fell on his hand or on the side</b> of the vessel <b>and</b> only <b>thereafter it fell into</b> the water in <b>the trough,</b> the purification waters are <b>unfit,</b> since there is a requirement that the ashes must be placed in the water by the force of his action. Likewise, when an item caroms off a wall, the action is not generated by the force of his action; therefore, he should not be liable.
+
+### Part 12
+The Gemara answers: <b>With what are we dealing here?</b> We are dealing <b>with</b> a case where the ashes <b>trickle</b> from his hand or from the sides of the vessel into the water, a slow movement that is not generated by the force of his action. This is in contrast to the case where he throws a ball off the wall.
+
+### Part 13
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof that only an action that one generates directly is considered the force of his action, as it is taught in a mishna (<i>Para</i> 12:2): Concerning <b>a needle that was</b> impure with impurity imparted by a corpse and was <b>placed on an earthenware</b> shard, <b>and one sprinkled</b> water of purification; if there is <b>uncertainty</b> whether he actually <b>sprinkled</b> the purification water <b>on the needle</b> or whether he <b>sprinkled</b> it <b>on the earthenware</b> shard <b>and</b> the water inadvertently <b>sprayed upon</b> the needle, <b>his sprinkling is unfit.</b> Apparently, an action performed indirectly is not considered to have been generated by his force.
+
+### Part 14
+<b>Rav Ḥinnana bar Yehuda said in the name of Rav:</b> Emend the mishna: Sprayed [<i>mitza</i>] was not stated in the mishna; <b>found [<i>matza</i>] was stated.</b> That is, it was found that the needle was wet, and it is not clear whether it was wet from purification water sprinkled directly upon it or from water that dripped from the earthenware onto the needle. This case is not comparable to the case of one who throws a ball off a wall.
+
+### Part 15
+<b>Rav Pappa says:</b> With regard to <b>this one who bound another and diverted a flow of water upon him and he died,</b> the water <b>is</b> tantamount to <b>his arrows</b> that were effective in committing the murder, <b>and he is liable.</b> And <b>this matter</b> applies only in a case where he killed the other individual <b>by primary force,</b> as the individual was near to him and was directly drowned by the water. <b>But</b> if the individual was further away and was killed <b>by secondary force</b> after the water flowed on its own, it is not his action; rather, <b>it is merely an indirect</b> action, and he is exempt.
+
+### Part 16
+<b>And Rav Pappa says:</b> In a case where one <b>threw a stone upward and it went to the side, and killed</b> an individual, he is <b>liable. Mar, son of Rav Ashi, said to Rav Pappa: What is the reason</b> that you say he is liable? Is it <b>due to</b> the fact <b>that</b> the result <b>is</b> generated by the <b>force of his</b> action? That cannot be, as <b>if</b> it is generated by the <b>force of his</b> action, the stone <b>should go</b> directly <b>upward</b> where he threw it, and not to the side.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+<strong>GEMARA:</strong> <b>Rabbi Yoḥanan says: In three places Rabbi Yehuda taught us</b> the principle that it is <b>forbidden for a person to derive benefit from the property of another</b> without his full awareness and consent, even if the other does not suffer a loss. <b>One</b> of the places where we are taught this principle is <b>that which we learn</b> in the mishna, that Rabbi Yehuda does not allow one to reside in another’s property without paying him rent.
+
+### Part 2
+<b>What is another</b> place where we are taught this principle from Rabbi Yehuda’s statements? <b>As we learned</b> in a mishna (<i>Bava Kamma</i> 100b): If <b>one gives wool to a dyer to dye</b> it <b>red for him and</b> instead <b>he dyed it black,</b> or to dye it <b>black and he dyed it red, Rabbi Meir says:</b> The dyer <b>gives</b> the owner of the wool <b>the value of his wool. Rabbi Yehuda says: If</b> the value of <b>the enhancement exceeds the</b> dyer’s <b>expenses,</b> the owner of the wool <b>gives</b> the dyer <b>the expenses. And if the expenses exceed the enhancement, he gives him</b> the value of <b>the enhancement.</b> But the dyer may not keep the dyed wool for himself, as it is forbidden for one to benefit from another’s property.
+
+### Part 3
+<b>And what is the other,</b> third place where we are taught this principle from Rabbi Yehuda’s statements? <b>As we learned</b> in a mishna (<i>Bava Batra</i> 168a): In a case of a debtor <b>who repaid part of his debt, and he deposited</b> the promissory <b>note with a third party</b> serving as a trustee, to ensure that the creditor not collect the full amount, <b>and</b> the debtor <b>said to</b> the trustee: <b>If I do not give you</b> the balance <b>from now until such and such a time, give</b> the creditor <b>his</b> promissory <b>note,</b> thereby enabling him to collect the full amount stated in the note; if the stipulated <b>time arrived and</b> the debtor <b>has not given</b> the balance to the trustee, <b>Rabbi Yosei says:</b> The trustee <b>shall give</b> the promissory note to the creditor, in accordance with the debtor’s stipulation. <b>Rabbi Yehuda says:</b> The trustee <b>shall not give</b> it, as the stipulation is void. Here too, the reason is that the creditor is forbidden to benefit from the property of another.
+
+### Part 4
+The Gemara refutes these proofs as to the general applicability of Rabbi Yehuda’s rulings. <b>Why</b> is it necessary to explain in this manner? <b>Perhaps Rabbi Yehuda</b> is <b>saying</b> this <b>only here,</b> with regard to the case of the mishna concerning a house and an upper story, <b>only because there is</b> the <b>blackening</b> of the walls. By using the house, the owner of the upper story causes its walls to blacken, thereby lowering its value, and yet he will ultimately claim the value of a new house that he built. Therefore, he is prohibited from using the house without paying.
+
+### Part 5
+<b>Alternatively,</b> if one attempts to prove a general principle from the case where one instructed a dyer <b>to dye</b> the wool <b>for him red and he dyed it black,</b> it can be explained that the reason for the ruling of Rabbi Yehuda is <b>due to</b> the fact that the dyer <b>is changing</b> and deviating from the owner’s instructions, <b>and didn’t we learn</b> in a mishna (76a) that <b>whoever changes</b> the terms accepted by both parties <b>is at a disadvantage?</b>
+
+### Part 6
+<b>And</b> as for the case of <b>one who repaid part of his debt,</b> there <b>too,</b> the reason the trustee may not transfer the promissory note is not as explained above. Rather, it is due to the fact that the transfer of the promissory note and subsequent collection of the entire sum if he does not repay on time <b>is</b> considered <b>a transaction with inconclusive intent [<i>asmakhta</i>],</b> a condition that an individual accepts upon himself as an exaggerated measure that he does not expect to have to fulfill, <b>and we heard Rabbi Yehuda who says</b> that <b>an <i>asmakhta</i> does not effect acquisition.</b> There is therefore no proof that Rabbi Yehuda holds that it is forbidden for one to benefit from the money of another.
+
+### Part 7
+§ <b>Rav Aḥa bar Adda says in the name of Ulla:</b> In the case of a resident of the <b>lower</b> story who wishes to rebuild the collapsed house, <b>who comes to change</b> the structure and now seeks to rebuild it <b>with untrimmed stones</b> that are larger than the original ones, the court <b>listens to him</b> and accepts his wishes, since an adjustment of this kind only serves to benefit the owner of the upper story. But if the house was previously built with large untrimmed stones and he now wants to rebuild it <b>with hewn stones,</b> which are smaller, the court <b>does not listen to him,</b> as this reduces the strength of the building.
+
+### Part 8
+Similarly, if the house was formerly built with bricks, and he wants to rebuild it <b>with girders,</b> the court <b>listens to him,</b> as this type of wall is very stable. But if the house was previously built with girders, and he now wants to rebuild it <b>with bricks,</b> the court <b>does not listen to him.</b> If he wants <b>to roof</b> it <b>with</b> strong <b>cedar wood,</b> the court <b>listens to him,</b> but if he wants to roof it <b>with sycamore</b> wood, instead of cedar, the court <b>does not listen to him.</b>
+
+### Part 9
+If he wants <b>to reduce</b> the number <b>of windows,</b> the court <b>listens to him,</b> as this will strengthen the walls, but if he wants <b>to increase</b> the number <b>of windows,</b> the court <b>does not listen to him.</b> If he wants <b>to heighten</b> the building, the court <b>does not listen to him,</b> as it might be less stable than before, but if he wants <b>to reduce</b> its height, the court <b>listens to him.</b>
+
+### Part 10
+The <i>halakha</i> is the same in the reverse: In the case of a resident of the <b>upper</b> story <b>who comes to change</b> the structure, and wishes to rebuild the upper story <b>with hewn stones</b> instead of large untrimmed stones, the court <b>listens to him,</b> as this reduces the weight on the lower floor. But if he wants to change from smaller hewn stones and rebuild <b>with</b> larger <b>untrimmed stones,</b> the court <b>does not listen to him,</b> as this would make the upper story heavier.
+
+### Part 11
+Likewise, if he wants to rebuild it <b>with girders</b> instead of bricks, the court <b>does not listen to him,</b> but if it was previously built with girders, and he now wants to rebuild it <b>with bricks,</b> the court <b>listens to him.</b> If he wants to roof it <b>with</b> heavy <b>cedar wood,</b> the court <b>does not listen to him,</b> but if he wants to roof it <b>with sycamore</b> wood instead of cedar, the court <b>listens to him.</b> If he wants <b>to increase</b> the number <b>of windows,</b> which would lessen the weight of the construction, the court <b>listens to him,</b> but if he wants <b>to reduce the</b> number <b>of windows,</b> the court <b>does not listen to him.</b> If he wants <b>to heighten</b> the building, the court <b>does not listen to him,</b> as this increases the weight of the building, but if he wants <b>to reduce</b> its height, the court <b>listens to him.</b>
+
+### Part 12
+§ The Gemara poses a question: If they are so poor that <b>neither this one nor that one has</b> enough money to rebuild it, and they are prepared to sell the land, <b>what</b> is the <i>halakha</i>? The Gemara answers: It <b>is taught</b> in a <i>baraita</i>: If <b>neither this one nor that one has</b> the money to rebuild the house, <b>the owner of</b> the <b>upper story does not have any</b> rights <b>to the land,</b> and all rights of the land belong to the owner of the lower story.
+
+### Part 13
+It <b>is taught</b> in a different <i>baraita</i>: <b>Rabbi Natan says:</b> The resident of the <b>lower</b> story <b>takes two shares</b> of the land, <b>and the</b> resident of the <b>upper</b> story takes <b>one-third. And others say:</b> The resident of the <b>lower</b> story <b>takes three shares, and the</b> resident of the <b>upper</b> story <b>takes one-quarter. Rabba says: Take</b> the statement <b>of Rabbi Natan in your hand, because he is a judge, and he descends to the depths of the law. He maintains: How much</b> does the presence of the <b>upper story depreciate</b> the value <b>of the house? One-third. Therefore he has one-third,</b> i.e., he is entitled to one-third of the total sum that they receive for the land.
+
+### Part 14
+<strong>MISHNA:</strong> <b>And likewise,</b> in the case of <b>an olive press that is built</b> inside a cave <b>in a rock, and one garden,</b> belonging to another person, was planted <b>on top of it, and</b> the roof of the olive press <b>broke,</b> which caused the garden to collapse inward, in such a case, <b>the owner of the garden</b> may <b>descend and sow below until</b> the other one <b>constructs for his olive press</b> sturdy <b>arches</b> to support the roof, so that the owner of the garden can once again sow above him.
+
+### Part 15
+The mishna continues: In the case of <b>a wall or a tree that fell into the public domain and caused damage,</b> the owner is <b>exempt from</b> having <b>to pay,</b> as it was an accident. If the court saw that the wall was shaky, or that the tree was tilting, and <b>they gave him time to cut down the tree or to dismantle the wall, and</b> then <b>they fell</b> down, if this occurred <b>during the</b> allotted <b>time,</b> he is <b>exempt,</b> but if they collapsed <b>after the time</b> given to him had elapsed, he is <b>liable</b> to pay, since he was warned against this very occurrence.
+
+### Part 16
+In the case of <b>one whose wall was adjacent to another’s garden, and</b> the wall <b>fell, and</b> the owner of the garden <b>said to him: Clear</b> away <b>your stones, and</b> the owner of the stones <b>said to him:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

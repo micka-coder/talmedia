@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Et</b> quant a <b>un pret qui est avec</b> l'aine, c'est-a-dire qu'il avait emprunte de l'argent a son pere puis son pere est decede, il est incertain si le paiement doit etre considere comme un bien du au pere ou un bien possede par lui. Par consequent, le premier-ne et ses freres <b>divisent</b> la portion supplementaire.
+
+### Partie 2
+§ En ce qui concerne la <i>halakha</i> selon laquelle le premier-ne n'a pas droit a une double portion de la mise en valeur du bien resultant des actions des heritiers, <b>Rav Huna dit</b> que <b>Rav Asi dit : Un premier-ne qui a proteste</b> les efforts de mise en valeur du bien avant son partage a <b>proteste,</b> et si les freres utilisent des ressources de la succession pour la mettre en valeur contre sa volonte, il a droit a une double portion de la valeur mise en valeur.
+
+### Partie 3
+<b>Rabba a dit : L'opinion de Rav Asi est raisonnable dans</b> un cas ou ils ont herite de <b>raisins</b> sur une vigne <b>et</b> les freres les ont <b>recoltes</b> contre la volonte de l'aine, ou s'ils ont herite de <b>olives</b> sur des oliviers <b>et</b> les freres les ont <b>recoltes,</b> car dans ces cas, le produit lui-meme n'a pas change. <b>Mais</b> si <b>ils les ont foules</b>, les transformant en vin ou en huile, meme si l'aine a proteste en le faisant, il n'a <b>pas</b> droit a une double portion. <b>Et Rav Yosef a dit : Meme</b> s'ils ont <b>foule</b> sur <b>elles,</b> le premier-ne a droit a une double portion.
+
+### Partie 4
+La Guemara demande : Pourquoi a-t-il droit a une double portion, selon Rav Yosef, meme si <b>ils ont marche</b> sur <b>eux ?</b> Puisque les freres ont transforme le produit, car <b>initialement</b> il etait sous forme de <b>raisins</b> et <b>maintenant</b> c'est du <b>vin,</b> ils l'ont acquis de la meme maniere qu'un voleur acquiert un objet qu'il a vole. Par consequent, le premier-ne ne doit avoir aucune part de la mise en valeur.
+
+### Partie 5
+La Gemara repond : Rav Yosef n'a pas voulu dire que le premier-ne a droit a une double portion de la valeur accrue du vin. Son intention etait plutot la meme <b>que celle</b> <b>que Rav Ukva bar Hama dit</b> dans un contexte different, a savoir que le jugement fait reference <b>au</b> cas ou le vin s'est gate, sa valeur diminuant jusqu'a etre inferieure a la valeur initiale des raisins, auquel cas les freres doivent <b>donner</b> a l'aine <b>le paiement</b> du <b>dommage</b> a <b>sa</b> portion supplementaire des <b>rais. Ici aussi,</b> Rav Yosef voulait dire que les freres <b>doivent donner</b> le premier ne <b>payant pour</b> le <b>dommage a ses raisins.</b>
+
+### Partie 6
+La Gemara explique : <Ou,</b> c'est a dire, dans quel contexte, la declaration du Rav Ukva bar Hama a-t-elle ete faite ? </b> C'est <b>en reference a ce que dit Rav Yehuda</b> que <b>Shmuel dit :</b> En ce qui concerne <b>un premier-ne et un fils ordinaire</b> <b>dont le pere leur a laisse des raisins et ils les ont recoltes,</b> ou s'il leur a laisse des <b>olives et ils les ont recoltees,</b> le <b>premier-ne prend une double</b> portion. C'est la <i>halakha</i> <b>meme</b> si <b>ils ont marche</b> sur <b>elles.</b> La Gemara demande : Pourquoi a-t-il droit a une double portion si <b>ils les ont foules</b> ; initialement</b> c'etait des <b>grappes,</b> et <b>maintenant</b> c'est du <b>vin ? Mar Ukva bar Hama dit :</b> Shmuel n'a pas voulu dire qu'il a droit a une double portion du vin ; la reference est plutot <b>au</b> cas ou le vin s'est gate, sa valeur diminuant jusqu'a etre inferieure a la valeur initiale des raisins, auquel cas le frere ordinaire doit <b>donner</b> au premier-ne <b>un paiement pour</b> le <b>dommage</b> a <b>ses raisins.</b>
+
+### Partie 7
+§ <b>Rav Asi dit : Un premier-ne qui a pris une portion</b> du bien <b>comme</b> celle d'un <b>heritier ordinaire</b> a <b>renonce</b> a son droit a une portion supplementaire. La Gemara demande : <b>Qu'est-ce que ca veut dire qu'il a <b>relinque</b> sa part supplementaire ? <b>Rav Pappa dit au nom de Rava</b> qu'il a <b>relinque</b> sa portion supplementaire uniquement <b>en ce qui concerne ce champ</b> qui a ete divise, puisqu'il n'a pas exerce son droit a une portion supplementaire, mais il n'a pas renonce a son droit de recevoir une portion supplementaire du reste de la succession. <b>Rav Pappi dit au nom de Rava</b> qu'il a <b>renonce</b> a sa portion supplementaire <b>en ce qui concerne l'ensemble</b> de <b>la propriete.</b>
+
+### Partie 8
+La Gemara explique : <b>Rav Pappa dit au nom de Rava</b> qu'il a <b>renonce</b> a sa portion supplementaire uniquement <b>en ce qui concerne ce champ</b> qui a ete divise, car il <b>soutient</b> que <b>un premier-ne n'a pas</b> de droit a sa portion supplementaire <b>avant</b> la <b>division</b> de la propriete. <b>Et</b> donc, il <b>a renonce</b> a sa portion supplementaire de <b>ce qui est deja <b>entre en sa possession,</b> a savoir le champ qui a ete divise, mais il <b>n'a pas renonce</b> a sa portion des <b>autres</b> champs du domaine.
+
+### Partie 9
+<b>Et Rav Pappi dit au nom de Rava</b> qu'il a <b>renonce</b> a sa portion supplementaire <b>en ce qui concerne l'ensemble</b> de <b>la propriete,</b> car <b>il soutient</b> que <b>un premier-ne a</b> droit a sa portion supplementaire <b>avant</b> le <b>division</b> de la propriete. <b>Et</b> donc, <b>puisqu'il a <b>renonce</b> a sa portion supplementaire <b>dans ce</b> domaine, il <b>a renonce</b> a sa portion <b>de tous</b> les biens.
+
+### Partie 10
+La Gemara note : <b>Et ce</b> differend <b>de Rav Pappi et Rav Pappa n'a pas ete enonce explicitement, mais plutot par deduction. Comme</b> il y avait <b>un certain premier-ne qui est alle</b> et a <b>vendu ses biens et</b> les biens <b>de</b> son frere <b>ordinaire</b> decede, c'est-a-dire leurs parts respectives des biens de leur pere, avant le partage des biens. Les <b>fils orphelins</b> du frere <b>ordinaire</b> <b>allaient manger des dattes du</b> champ qui etait maintenant en possession de <b>ces acquereurs,</b> en raison de la part de leur pere dans le champ. Les acheteurs <b>les ont frappes,</b> comme s'ils etaient des voleurs. Les <b>parents</b> des orphelins <b>ont dit</b> aux acheteurs : <b>Non seulement vous avez achete leur propriete</b> illegalement, <b>mais maintenant vous les frappez aussi ? Ils sont venus devant Rava,</b> qui leur a <b>dit : </b> Le premier-ne <b>n'a rien fait.</b> Sa vente n'etait pas valable.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

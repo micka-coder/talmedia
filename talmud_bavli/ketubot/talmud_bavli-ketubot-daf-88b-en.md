@@ -1,0 +1,39 @@
+
+### Part 1
+If <b>she does not claim her marriage contract,</b> the <b>heirs do not administer an oath to her. And they disagree with regard to</b> the issue that is the subject of <b>the dispute of Ḥanan and the sons of the High Priests, as we learned</b> in a mishna (104b): With regard to <b>one who went to a country overseas and his wife claims</b> money for <b>sustenance, Ḥanan says: She takes an oath at the conclusion,</b> when she comes to claim her marriage contract, that her husband did not leave her with any money and that she took from his estate only what she needed for her sustenance. <b>And she does not take an oath at the beginning,</b> when she takes the allowance for her sustenance from his estate.
+
+### Part 2
+The mishna continues: <b>The sons of the High Priests disagreed with him, and said: She takes an oath</b> that her husband did not leave her any money <b>at the beginning,</b> when she comes to take money for sustenance, <b>and at the conclusion,</b> when she comes to claim her marriage contract. Rabbi Yirmeya suggests: <b>Rabbi Shimon</b> holds <b>like Ḥanan,</b> that she takes an oath only when she comes to collect her marriage contract. And <b>the Rabbis,</b> who disagree, hold <b>like the sons of the High Priests,</b> that she must also take an oath when she collects money for her sustenance.
+
+### Part 3
+<b>Rav Sheshet objects to</b> Rabbi Yirmeya’s statement: If the dispute is with regard to a woman who comes to collect money for her sustenance while her husband is away, why would the mishna employ <b>this</b> phrase: The <b>heirs administer an oath to her? It should</b> have said that <b>the court administers an oath to her,</b> as this oath would be administered by the court.
+
+### Part 4
+<b>Rather, Rav Sheshet said</b> that Rabbi Shimon’s statement is referring <b>to this</b> earlier mishna (86b): If a woman who was exempted from an oath by her husband <b>went from her husband’s grave,</b> immediately after her husband’s death, <b>to her father’s house,</b> without handling her late husband’s property, <b>or</b> in a case <b>where she returned to her father-in-law’s house and did not become a steward,</b> then <b>the heirs cannot administer an oath to her</b> with regard to her actions in their father’s lifetime. <b>And if she became a steward, the heirs may administer an oath to her about the future,</b> i.e., anything she did with the property after the death of her husband, <b>but they cannot administer an oath to her with regard to what</b> took place <b>in the past,</b> during her husband’s lifetime. <b>And Rabbi Shimon came to say</b> that <b>whenever she claims her marriage contract</b> the <b>heirs</b> can <b>administer an oath to her,</b> but if <b>she does not claim her marriage contract,</b> the <b>heirs do not administer an oath to her.</b>
+
+### Part 5
+Rav Sheshet explains: <b>And they disagree with regard to</b> the issue that is the subject of <b>the dispute of Abba Shaul and the Rabbis, as we learned</b> in a mishna (<i>Gittin</i> 52a): <b>A steward who was appointed</b> by <b>the father of orphans</b> to take care of their property <b>must take an oath</b> when the orphans come of age and he returns their property. He takes an oath that he did not appropriate anything for himself. If <b>the court appointed him</b> steward, he need <b>not take an oath.</b> The Sages exempted him from an oath so that people would not refrain from serving as stewards. <b>Abba Shaul says: The matters are reversed.</b> If the <b>court appointed him, he must take an oath;</b> if <b>the father of orphans appointed him,</b> he need <b>not take an oath.</b> It is an honor to be appointed steward by the court, and to receive this honor he would not mind being obligated to take an oath. If he was appointed by the father, it is clear that the father trusted him and relied on him.
+
+### Part 6
+Rav Sheshet completes his explanation: <b>Rabbi Shimon</b> holds <b>in accordance with</b> the opinion of <b>Abba Shaul,</b> as the woman is comparable to a steward appointed by the father of the orphans. Therefore, she cannot be compelled to take an oath about the future, unless she comes to claim her marriage contract. <b>And the Rabbis</b> here hold <b>in accordance with</b> the opinion of <b>the Rabbis</b> there, that a steward appointed by the father is obligated to take an oath.
+
+### Part 7
+<b>Abaye objects to</b> Rav Sheshet’s statement: <b>This</b> phrase, that the heirs can administer an oath to her <b>whenever she claims her marriage contract,</b> is appropriate only if Rabbi Shimon is more stringent than the Rabbis, who exempt her from an oath in all cases. However, since according to Rav Sheshet his opinion is the more lenient one, <b>he should</b> have said: <b>If she claims,</b> meaning that she is required to take an oath only when she claims her marriage contract.
+
+### Part 8
+<b>Rather, Abaye said</b> that Rabbi Shimon’s statement is referring <b>to this</b> clause of the mishna (86b): If the husband <b>wrote for her: I do not have</b> the right to administer <b>a vow or an oath upon you,</b> he <b>cannot administer an oath to her.</b> If he wrote: <b>Neither I, nor my heirs, nor those who come on my authority have</b> the right to administer <b>a vow or an oath upon you, or upon your heirs, or upon those who come on your authority,</b> he <b>cannot administer an oath</b> to <b>her</b> or them; <b>not he, nor his heirs, nor those who come on his authority</b> may administer an oath, <b>not to her, nor her heirs, nor those who come on her authority. And Rabbi Shimon came to say</b> that <b>whenever she claims her marriage contract</b> the <b>heirs</b> can <b>administer an oath to her.</b>
+
+### Part 9
+Abaye explains: <b>And they disagree with regard to</b> the issue that is the subject of <b>the dispute of Abba Shaul ben Imma Miriam and the Rabbis. Rabbi Shimon</b> holds <b>in accordance with</b> the opinion of <b>Abba Shaul,</b> that even if the husband exempted her from an oath she must still take an oath before she can collect from the property of orphans. <b>And the Rabbis</b> here hold <b>in accordance with</b> the opinion of <b>the Rabbis</b> there, that if he exempted her from all oaths she can collect payment without an oath.
+
+### Part 10
+<b>Rav Pappa objects to this: This</b> works out <b>well</b> in explaining Rabbi Shimon’s disagreement with the Rabbis, where he said that she must take an oath <b>whenever she demands</b> payment for <b>her marriage contract.</b> However, <b>what can be said</b> about the second part of Rabbi Shimon’s statement, where he speaks of one who <b>does not demand</b> payment for <b>her marriage contract?</b> According to Abaye’s explanation, that clause does not add or teach anything.
+
+### Part 11
+<b>Rather, Rav Pappa said</b> that Rabbi Shimon is not referring to that mishna. His opinion is <b>to the exclusion of Rabbi Eliezer and those who dispute him</b> (86b), all of whom agree that the woman can be compelled to take an oath that she did not appropriate anything from her husband’s property. The Rabbis hold that she can be compelled to take an oath only if she was appointed steward, whereas Rabbi Eliezer holds that she can always be compelled to take an oath. Rabbi Shimon, who disagrees with both opinions, contends that the heirs can administer an oath to her only when she comes to collect her marriage contract, at which point they can administer an oath about other matters, including the work done with her spindle. However, if she does not claim her marriage contract, they cannot administer an oath to her even with regard to her work as steward or storekeeper.
+
+### Part 12
+<strong>MISHNA:</strong> In a case where a woman <b>produced a bill of divorce and it</b> was <b>unaccompanied by a marriage contract,</b> and she demands that her husband pay her marriage contract,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

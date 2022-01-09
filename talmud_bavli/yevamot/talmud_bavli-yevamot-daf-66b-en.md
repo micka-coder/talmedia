@@ -1,0 +1,33 @@
+
+### Part 1
+<b>The <i>halakha</i></b> favors <b>her;</b> she may take the belongings. <b>And Rav Ami said: The <i>halakha</i></b> favors <b>him;</b> he may retain the items and return their value.
+
+### Part 2
+The Gemara explains that <b>Rav Yehuda said</b> that <b>the <i>halakha</i></b> favors <b>her because</b> they are <b>the assets of her paternal family,</b> whose prestige will suffer if they aren’t returned. Therefore, <b>they are hers. Rabbi Ami said that the <i>halakha</i></b> favors <b>him, since the Master said</b> in the mishna, with regard to guaranteed property: <b>If they die, their death</b> is <b>his</b> loss, <b>and if they increase</b> in value, <b>their increase</b> is <b>his</b> gain. <b>Since he bears</b> financial <b>responsibility for their</b> loss, <b>they partake</b> of <i>teruma</i>. Apparently, the slaves belong to the husband. Therefore, he is obligated to return only their monetary value. <b>Rav Safra said</b> in rejection of Rabbi Ami’s reasoning: <b>Does</b> the mishna <b>teach</b> that <b>they are his?</b> It <b>teaches</b> only that <b>he bears</b> financial <b>responsibility for their</b> loss, <b>but actually they are not his.</b>
+
+### Part 3
+The Gemara asks: <b>And do they partake of <i>teruma</i> wherever he bears</b> financial <b>responsibility for their</b> loss, even if they are not his actual possession? <b>But didn’t we learn</b> in a mishna (<i>Terumot</i> 11:9): <b>An Israelite who rented a cow from a priest may feed it vetches [<i>karshinin</i>] of <i>teruma</i>,</b> since the animal belongs to a priest? With regard to <b>a priest who rented a cow from an Israelite, although</b> its feed <b>is</b> incumbent <b>upon him, he may not feed it vetches of <i>teruma</i>,</b> as it does not belong to him. This indicates that the requirement for enabling an acquisition to eat <i>teruma</i> is possession, not responsibility.
+
+### Part 4
+The Gemara rejects this proof: <b>And</b> how can <b>you understand</b> that the case of the rented cow is parallel to the case of guaranteed property? <b>Though</b> the renter <b>is indeed liable for theft and loss, is he liable for unavoidable accidents, for emaciation,</b> i.e., the cow became thinner or weaker for any reason, <b>or for</b> any other <b>decrease in its value?</b> Certainly he is not. In fact, the case of guaranteed property <b>is similar only to the latter clause</b> of that mishna: In the case of <b>an Israelite who appraised a cow</b> upon renting it <b>from a priest</b> under an arrangement where he guaranteed its value to the owner, he <b>may not feed it vetches of <i>teruma</i>,</b> as it is considered his own. <b>However, a priest who appraised a cow</b> upon renting it <b>from an Israelite may feed it vetches of <i>teruma</i>.</b> This indicates that guaranteed property is considered the acquisition of its recipient with regard to enabling it to eat <i>teruma</i>.
+
+### Part 5
+<b>Rabba and Rav Yosef sat at the conclusion of Rav Naḥman’s sermon, and they sat and said: It is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rav Yehuda, and it is taught</b> in another <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rabbi Ami. It is taught in accordance with</b> the opinion of <b>Rabbi Ami</b> in the following <i>baraita</i>: If a slave’s owner strikes him and knocks out his tooth or blinds him in an eye, he is set free. <b>Slaves of guaranteed investment go</b> free <b>at</b> the loss of <b>a tooth or an eye</b> caused <b>by the husband, but not</b> at such loss caused <b>by the wife.</b> This indicates that they belong to the husband.
+
+### Part 6
+Conversely, <b>it is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rav Yehuda:</b> When a woman <b>brings appraised,</b> guaranteed <b>property</b> into her marriage <b>to her husband, if the husband wishes to sell</b> it, <b>he may not sell</b> it, as it belongs to her. <b>And not only</b> that, but <b>even</b> when her husband <b>brought</b> property <b>into</b> the marriage and added it to <b>her</b> dowry as <b>an appraised,</b> guaranteed gift <b>of his own,</b> even <b>if the husband wishes to sell</b> that gift <b>he may not sell</b> it. With regard to a case in which <b>either</b> the husband or wife unlawfully <b>sold</b> this property <b>for subsistence,</b> there <b>was an incident</b> like <b>this</b> that came <b>before Rabban Shimon ben Gamliel, and he said:</b> Although <b>the husband</b> executed the sale, <b>he may repossess</b> the property <b>from the purchasers,</b> as the sale is void.
+
+### Part 7
+<b>Rava said</b> that <b>Rav Naḥman said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rav Yehuda. Rava said to Rav Naḥman: But isn’t it taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion of <b>Rabbi Ami?</b> He replied: <b>Although it is taught in accordance with</b> the opinion of <b>Rabbi Ami, Rav Yehuda’s rationale,</b> that the wife may take the objects in question <b>because</b> they are <b>assets of her paternal family</b> and their complete removal from her domain would hurt the family’s prestige, <b>is</b> more <b>reasonable.</b>
+
+### Part 8
+The Gemara relates an incident: <b>A certain woman brought into</b> her marriage to her <b>husband a robe [<i>itztela</i>] of fine wool [<i>meileta</i>],</b> which was deemed guaranteed property <b>by her marriage contract.</b> Her husband subsequently <b>died,</b> and <b>the orphans took</b> that robe <b>and spread it over the corpse</b> as a shroud. The woman demanded that the robe be returned to her.
+
+### Part 9
+<b>Rava said: The dead has acquired it,</b> as deriving benefit from anything consecrated for the dead is prohibited. <b>Nanai, son of Rav Yosef, son of Rava, said to Rav Kahana: But didn’t Rava say</b> that <b>Rav Naḥman said</b> that <b>the <i>halakha</i> is in accordance with</b> the opinion of <b>Rav Yehuda?</b> Accordingly, the woman’s robe must be returned. <b>He said to him: Doesn’t Rav Yehuda admit that</b> the robe <b>has not yet been collected? And since it has not yet been collected, it remains in his possession,</b> and his inheritors can render its use as a burial shroud prohibited.
+
+### Part 10
+The Gemara adds that in this regard <b>Rava</b> conforms <b>to his</b> standard line of <b>reasoning, as Rava said: Consecration</b> of property, the prohibition against benefiting from <b>leavened bread</b> on Passover,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+<b>and</b> the original guilt offering <b>became blemished, and he desacralized it</b> by transferring its sanctity <b>onto another</b> animal, which was then lost, <b>and</b> the owner <b>achieved atonement by</b> bringing <b>another,</b> third, animal as <b>a guilt offering,</b> and then the second animal was found <b>and was consigned to</b> be sacrificed as <b>a burnt offering,</b> as is the case for any guilt offering whose owner has achieved atonement by means of another offering, <b>what is</b> the <i>halakha</i> as <b>to</b> whether <b>he</b> can <b>effect substitution for</b> the second animal? Since this animal’s sanctity stems from that of the original blemished animal, and he had already effected a substitute for that original animal, perhaps he cannot now substitute for the second animal, as this would constitute repeat substitution.
+
+### Part 2
+<b>Abaye said: What is the dilemma he is raising? If</b> his essential dilemma concerns the fact that there are <b>two bodies,</b> i.e., two different animals, then the dilemma would stand even if the original animal <b>and</b> the replacement were of <b>one</b> type of <b>sanctity.</b> If so, <b>let the dilemma be raised</b> even <b>in</b> a case where he <b>did not achieve atonement</b> by another guilt offering, and the second animal remained a guilt offering, rather than being consigned to be sacrificed as a burnt offering.
+
+### Part 3
+And <b>if</b> the dilemma is due to the fact that there are <b>two</b> types of <b>sanctity,</b> it would stand even if it was only <b>one body.</b> If so, <b>let the dilemma be raised</b> even where the animal <b>did not become blemished</b> but was simply lost and found after the owner atoned by means of another animal, and it was thereby consigned to be sacrificed as a burnt offering. Why did Rabbi Avin present such a complex case?
+
+### Part 4
+The Gemara explains: <b>Rabbi Avin raises one</b> dilemma <b>as a result of</b> the anticipated solution to <b>another</b> dilemma: <b>If you say</b> that in the case of <b>two bodies and one</b> type of <b>sanctity</b> it is <b>not</b> possible to effect substitution on the second animal, perhaps that is <b>because this sanctity</b> already <b>had been substituted one time.</b> If so, <b>what is</b> the <i>halakha</i> in the case of <b>two bodies and two</b> types of <b>sanctity?</b> Is the offering changed enough to enable another substitution for it? The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 5
+The Gemara presents <b>an alternative version</b> of the previous dilemma. <b>Rabbi Avin raises a dilemma: According to</b> the opinion of <b>Rabbi Yoḥanan, who said</b> that Rabbi Shimon holds that <b>one cannot effect substitution and then effect substitution again</b> for the same animal, if one <b>designated</b> an animal as <b>a guilt offering with which to achieve atonement and substituted for it, and</b> the initial guilt offering <b>became blemished and he desacralized it</b> by transferring its sanctity <b>onto another</b> animal, <b>what is</b> the <i>halakha</i> as <b>to</b> whether <b>he can then effect substitution</b> for this last animal? On the one hand, it is a different animal; on the other hand, it possesses the same sanctity.
+
+### Part 6
+Rabbi Avin raises another dilemma: If the first animal was lost and the owner <b>achieved atonement by</b> bringing <b>another</b> as a <b>guilt offering, and</b> the first animal was found and <b>was consigned to</b> be sacrificed as <b>a burnt offering, what is</b> the <i>halakha</i> as <b>to</b> whether <b>he can then effect substitution</b> for it? On the one hand, it is the same animal; on the other hand, it possesses a different type of sanctity.
+
+### Part 7
+<b>Abaye said: Which</b> of these two is the essential <b>dilemma he is raising?</b> If his dilemma concerns a case of <b>another</b> type of <b>sanctity in the same body, he should not raise the dilemma</b> in the case where the initial guilt offering <b>became blemished and he desacralized it</b> by transferring its sanctity <b>onto another</b> animal. And <b>if</b> his dilemma concerns a case of <b>another body with the same sanctity, he should not raise the dilemma</b> in the case where the owner <b>achieved atonement by</b> bringing <b>another</b> animal as <b>a guilt offering.</b>
+
+### Part 8
+The Gemara explains: <b>Rabbi Avin raises one</b> dilemma <b>as a result of</b> the anticipated solution to <b>another</b> dilemma, as follows: If the initial guilt offering <b>became blemished and he desacralized it</b> by transferring its sanctity <b>onto another</b> animal, <b>what is</b> the <i>halakha</i> as to <b>whether he</b> can <b>then effect substitution</b> for the second animal? <b>Do we say</b> that it <b>is with the first guilt offering that he cannot effect substitution again, but with another body, even though it is sanctified with the same</b> type of <b>sanctity, he</b> can <b>effect substitution again? Or perhaps</b> we say that with regard to <b>any</b> animal <b>with the same</b> type of <b>sanctity, he cannot effect substitution again?</b>
+
+### Part 9
+<b>And if you say</b> that with regard to <b>this other body, since it maintains the same</b> type of <b>sanctity</b> as the original animal one <b>cannot effect substitution again, but</b> what then of a case where the first animal was lost and the owner <b>achieved atonement by</b> bringing <b>another</b> animal as <b>a guilt offering, and this first</b> animal was then found and <b>was consigned to</b> be sacrificed as <b>a burnt offering? What is</b> the <i>halakha</i> as <b>to</b> whether <b>he can effect substitution again</b> for the same animal, since now its sanctity has changed?
+
+### Part 10
+The Gemara elaborates: <b>Do we say</b> that <b>when</b> Rabbi Yoḥanan states that the owner <b>cannot effect substitution and then effect substitution again, this statement</b> applies to <b>the same body with the same</b> type of <b>sanctity, but</b> as for <b>the same body with another</b> type of <b>sanctity, he can effect substitution again? Or perhaps</b> we say that <b>even concerning another</b> type of <b>sanctity, since it is the same body, he cannot effect substitution again</b> with it. The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 11
+§ The Gemara cites a similar discussion. <b>Rabbi Yehoshua ben Levi says:</b> One who redeems an animal that was <b>originally consecrated</b> as an offering and developed a blemish must pay an amount equivalent to its value and <b>add</b> an additional <b>one-fifth</b> of its value. <b>But</b> one who redeems an animal that was <b>consecrated second,</b> i.e., in place of a desacralized blemished offering, and then developed a blemish itself, must pay an amount equivalent to its value but <b>does not add</b> an additional <b>one-fifth</b> of its value.
+
+### Part 12
+<b>Rav Pappa said: What is the reasoning of Rabbi Yehoshua ben Levi? The verse states: “And if he that consecrated it will redeem his house, then he shall add the fifth part</b> of the money of your valuation unto it, and it shall be his” (Leviticus 27:15), from which Rabbi Yehoshua ben Levi infers that the requirement to pay an additional one-fifth applies to one <b>who consecrates</b> an item directly, <b>but not</b> to <b>the one who applies</b> the sanctity of another item to it.
+
+### Part 13
+<b>Rabbi Avin raises a dilemma</b> concerning a similar matter: If one <b>designated</b> an animal as <b>a guilt offering by which to achieve atonement and it became blemished, and he added one-fifth to its</b> value <b>and desacralized it,</b> and he then used the consecrated money to purchase <b>another</b> guilt offering, which was then lost, <b>and</b> the owner <b>achieved atonement by</b> bringing <b>another,</b> third, animal as <b>a guilt offering, and</b> the second animal was found and <b>consigned to</b> be sacrificed as <b>a burnt offering,</b> and then it developed a blemish, <b>what is</b> the <i>halakha</i> as <b>to</b> whether the owner must <b>add one-fifth to its</b> value when he redeems it?
+
+### Part 14
+<b>Abaye said: What is the dilemma he is raising? If he is raising a dilemma</b> with regard to <b>two bodies,</b> i.e., two different animals, the problem should stand even if both are of <b>one</b> type of <b>sanctity.</b> If so, <b>let the dilemma be raised</b> even <b>in</b> a case where he <b>did not achieve atonement</b> through another guilt offering, and the second animal was never consigned to be sacrificed as a burnt offering.
+
+### Part 15
+And <b>if he is raising a dilemma</b> with regard to <b>two</b> types of <b>sanctity,</b> it should apply even in the case of <b>one body.</b> If so, <b>let the dilemma be raised</b> even <b>in</b> a case where the original animal <b>did not become blemished</b> but was simply lost and found after the owner atoned by means of another offering and thereby consigned the original animal to be sacrificed as a burnt offering.
+
+### Part 16
+The Gemara explains that <b>Rabbi Avin raises one</b> dilemma <b>as a result of</b> the anticipated solution to <b>another</b> dilemma, as follows: <b>If you say</b> that in a case of <b>two bodies and one</b> type of <b>sanctity</b> the owner does <b>not</b> add one-fifth, perhaps that is <b>because one-fifth was</b> already <b>added once to</b> redeem an animal <b>with that</b> type of <b>sanctity.</b> If so, <b>what</b> is the <i>halakha</i> in the case of <b>two bodies and two</b> types of <b>sanctity?</b> Perhaps, since the second animal possesses a different sanctity, it is considered to possess its own original sanctity, rather than derivative sanctity, and therefore one who redeems it adds one-fifth. The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 17
+The Gemara presents <b>an alternative version</b> of the previous dilemma. <b>Rabbi Avin raises a dilemma:</b> If one <b>designated</b> an animal as <b>a guilt offering with which to achieve atonement, and it became blemished and he desacralized</b> it by transferring its sanctity <b>onto another animal, and he added one-fifth</b> of its value, and the second animal was lost and the owner <b>achieved atonement by</b> bringing <b>another,</b> third, animal as <b>a guilt offering, and</b> the second animal was found and <b>was consigned to</b> be sacrificed as <b>a burnt offering,</b> and then it developed a blemish, <b>what is</b> the <i>halakha</i> as <b>to</b> whether the owner must <b>add one-fifth to its</b> value when he redeems it?
+
+### Part 18
+<b>Abaye said: Which</b> of these two <b>is</b> the essential <b>dilemma he is raising? If he raises a dilemma</b> with regard to the case of <b>another</b> type of <b>sanctity in the same body, he should not raise the dilemma</b> about a case where the initial guilt offering <b>became blemished</b> and he transferred its sanctity to another animal. And <b>if</b> his essential dilemma concerns the case of <b>another body with the same</b> type of <b>sanctity,</b> he could pose his dilemma with regard to a case where the second animal was not lost and found and consigned to be a burnt offering.
+
+### Part 19
+The Gemara explains that Rabbi Avin raises one dilemma as a result of the anticipated solution to another dilemma. If the initial guilt offering became blemished <b>and he desacralized it</b> by transferring its sanctity <b>onto another,</b> second, animal, <b>what is</b> the <i>halakha</i> as <b>to</b> whether the owner must <b>add one-fifth to its</b> value when he redeems it? <b>Do we say</b> that <b>with regard to</b> a second redemption of the <b>first guilt offering he</b> does not <b>add</b> one-fifth, since it is the same body and the same sanctity, <b>but</b> here, when it is <b>another body, even though it maintains the same</b> type of <b>sanctity</b> as the initial animal, he <b>adds one-fifth,</b> as it is considered to be directly consecrated?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

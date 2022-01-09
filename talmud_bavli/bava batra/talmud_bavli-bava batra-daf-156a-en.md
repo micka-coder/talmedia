@@ -1,0 +1,33 @@
+
+### Part 1
+<b>And according to your reasoning,</b> that the money he receives in exchange for the property is a reason one could consider his sale valid, if <b>he sold</b> property <b>worth five</b> dinars <b>for six</b> dinars, would <b>his sale also be</b> a valid <b>sale?</b>
+
+### Part 2
+<b>Rather, the Sages maintain that a child’s inclination</b> is to be <b>attracted to money. And if you say</b> that <b>his sale is</b> a valid <b>sale,</b> there may be <b>times</b> that there are potential buyers <b>who rattle the dinars</b> before <b>him</b> in order to tempt him to sell, and <b>he will go and sell all of his father’s property.</b> That is why the Sages ruled that all of his sales are not valid. <b>But with regard to a gift, if he did not</b> derive <b>benefit from</b> the recipient, <b>he would not give him a gift. The Sages</b> therefore <b>said: Let the gift</b> of an orphan <b>be</b> a valid <b>gift, so</b> that people <b>will perform</b> beneficial <b>matters for</b> the orphans, as the orphan can reciprocate by giving gifts.
+
+### Part 3
+§ <b>Rav Naḥman says</b> that <b>Shmuel says:</b> Children who have reached the age of majority, i.e., a boy who is thirteen years old and a girl who is twelve years old, <b>are examined</b> for signs indicating puberty if it is necessary to determine their adulthood <b>for</b> the purpose of <b>betrothal, for</b> the purpose of <b>divorce, for</b> the purpose of <b><i>ḥalitza</i>, and</b> for the purpose of stating a girl’s <b>refusal</b> to remain married. <b>But</b> in order <b>to sell from the property that</b> one inherited from <b>his father,</b> the seller must be older, and one cannot sell this property <b>until</b> the seller <b>is twenty</b> years <b>old.</b>
+
+### Part 4
+The Gemara asks: <b>But once I examined</b> the boy <b>for</b> the purpose of <b>betrothal, why do I</b> need to examine him again <b>for</b> the purpose of <b>divorce?</b> The Gemara answers: This <b>is necessary only with regard to</b> the <b>levirate marriage</b> of a minor, <b>as we learned</b> in a mishna (<i>Nidda</i> 45a): A boy who is <b>nine years and one day old who engaged in intercourse with his <i>yevama</i>,</b> i.e., his brother’s widow, <b>acquired her</b> as his wife by means of engaging in the act of intercourse. Although a minor cannot betroth a woman under ordinary circumstances, in the case of levirate marriage the act of intercourse of a nine-year-old with his <i>yevama</i> effects acquisition. <b>But he cannot give</b> her <b>a bill of divorce until he reaches his majority.</b> It is therefore necessary to examine him at the time of the divorce.
+
+### Part 5
+The Gemara explains why it is necessary to mention examining a boy <b>for</b> the purpose of <b><i>ḥalitza</i>:</b> This is mentioned <b>to the exclusion of that which Rabbi Yosei</b> says, <b>as</b> Rabbi Yosei <b>says: “Man,”</b> i.e., an adult man, <b>is written in the</b> Torah <b>passage</b> with regard to <i>ḥalitza</i>, as the verse states: “And if the man does not wish to take his brother’s wife” (Deuteronomy 25:7). <b>But a woman, whether</b> she is <b>an adult or a minor,</b> can be released by <i>ḥalitza</i>, as the verse does not indicate her age. To counter this, Rav Naḥman <b>teaches us that a woman is juxtaposed to a man</b> in this passage, indicating that the <i>yevama</i> must also have reached adulthood, and the <i>halakha</i> is <b>not in accordance with</b> the opinion of <b>Rabbi Yosei.</b>
+
+### Part 6
+The Gemara explains why it is necessary to mention examining a person <b>for</b> the purpose of stating her <b>refusal.</b> This is mentioned <b>to the exclusion of that which Rabbi Yehuda</b> says, <b>as</b> Rabbi Yehuda <b>says</b> that a girl whose mother or brother married her off while she was a minor can nullify her marriage by refusing to remain married, and she can state this refusal <b>until</b> she reaches complete maturity, i.e., <b>when</b> the area covered by <b>black</b> pubic hairs <b>is greater</b> than the skin of the genital area. Rav Naḥman therefore <b>teaches us that</b> the <i>halakha</i> is <b>not in accordance with</b> the opinion of <b>Rabbi Yehuda,</b> and once a girl has developed two pubic hairs she cannot state her refusal.
+
+### Part 7
+Rav Naḥman states: <b>But</b> in order <b>to sell from the property that</b> one inherited from <b>his father,</b> the seller must be older, and he cannot sell the property <b>until he is twenty</b> years <b>old.</b> This is mentioned <b>to the exclusion of</b> the opinion of the <b>one who says</b> that the seller can be <b>eighteen</b> years <b>old.</b>
+
+### Part 8
+The Gemara concludes: <b>And the <i>halakha</i></b> is that with regard to the age when a minor can sell property inherited from his father, <b>during</b> the <b>time,</b> i.e., during his twentieth year, is considered <b>as before</b> the <b>time</b> when it is permitted, and he cannot sell until the end of his twentieth year. <b>And the <i>halakha</i></b> is <b>in accordance with</b> the ruling that Rava sent to <b>Giddel bar Menashe,</b> that a child who has reached his majority and understands the nature of business negotiations can sell land.
+
+### Part 9
+The Gemara continues: <b>And the <i>halakha</i></b> is <b>in accordance with</b> the statement of <b>Mar Zutra,</b> that one who is not fit to sell land is also not fit to bear witness with regard to land. <b>And the <i>halakha</i></b> is <b>in accordance with</b> the statement of <b>Ameimar,</b> that an orphan under the age of twenty can bestow gifts from the property he inherited from his father. <b>And the <i>halakha</i></b> is <b>in accordance with</b> the statement that <b>Rav Naḥman</b> says that <b>Shmuel says with regard to all</b> the matters that he mentioned.
+
+### Part 10
+<strong>MISHNA:</strong> With regard to <b>one who divides his property</b> between various recipients <b>by</b> means of <b>verbal</b> instruction, <b>Rabbi Elazar says:</b> Both in the case of <b>one</b> who is <b>healthy and</b> in the case of <b>one</b> who is <b>dangerously ill,</b> the <i>halakha</i> is as follows: <b>Property that serves as a guarantee,</b> i.e., land, <b>is acquired by</b> means of <b>money, by a deed</b> of transfer, <b>or by taking possession</b> of it. <b>And that</b> which <b>does not serve as a guarantee,</b> i.e., movable property, <b>can be acquired only by pulling.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

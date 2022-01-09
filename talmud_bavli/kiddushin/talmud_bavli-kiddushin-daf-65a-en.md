@@ -1,0 +1,72 @@
+
+### Part 1
+with regard to one who said: I betrothed my elder daughter, <b>the middle</b> daughter <b>of the</b> younger <b>second group should be permitted,</b> as he would have called her by name rather than referring to her as: The elder one. The Gemara answers: <b>Here we are dealing with</b> a case <b>where there are only</b> two daughters, <b>an adult woman and a minor girl,</b> but no middle daughter.
+
+### Part 2
+The Gemara adds: <b>And so too, it is reasonable</b> that this is the case, <b>as, if it is so, that there is</b> a middle daughter, <b>let</b> the mishna <b>teach</b> its <i>halakha</i> with a direct reference to <b>her</b> as well, as the uncertainty also applies to this daughter. In other words, the mishna should have stated: And I do not know if it was the middle of the younger group of daughters. The fact that the mishna does not refer to this daughter indicates that there are only two women in each group. The Gemara rejects this suggestion: <b>But according to your reasoning, the middle one of the first group is definitely</b> included in the <b>uncertainty and is forbidden to</b> the prospective husband, and yet <b>does</b> the mishna <b>teach</b> its <i>halakha</i> with a direct reference to <b>her?</b>
+
+### Part 3
+The Gemara questions this argument: <b>How can</b> these cases <b>be compared? There it taught</b> its <i>halakha</i> with a direct reference to a daughter who is <b>younger than</b> the middle daughter of the older group, and that daughter is mentioned <b>for a prohibition,</b> as the mishna states that the uncertainty applies even to the youngest of the older group; <b>and</b> if so, <b>the same is true of this</b> middle daughter, <b>who is older than</b> the youngest of the older group, i.e., it is evident that the same uncertainty applies to her, and therefore there is no reason to mention the middle daughter of the older group.
+
+### Part 4
+Conversely, <b>here,</b> with regard to the younger group, <b>if it is so that there is</b> uncertainty with regard to the middle daughter and she is forbidden, the mishna <b>should teach</b> its <i>halakha</i> with a direct reference to <b>her,</b> as one might think she is excluded from the uncertainty because she is not the eldest. Consequently, the fact that the mishna omits all reference to the middle daughter from the second group proves that the second wife has only two daughters.
+
+### Part 5
+<b>Rav Huna, son of Rav Yehoshua, said to Rava:</b> But there is the case of <b>Passover, which is comparable to one group</b> of daughters, as all the days of the Festival are part of a single group, <b>and</b> yet Rabbi Meir and Rabbi Yosei <b>disagree</b> with regard to it. This apparently contradicts Abaye’s opinion that everyone agrees in the case of a single group.
+
+### Part 6
+Rava <b>said to him: There they disagree with regard to the general</b> usage of <b>language.</b> In other words, their dispute in that case does not concern the basic issue of whether or not one places himself in a position of uncertainty. Rather, they disagree over the way people speak. One <b>Sage,</b> Rabbi Yosei, <b>holds</b> that the phrase: <b>Until before Passover,</b> means: <b>Until</b> just <b>before Passover, and</b> one <b>Sage,</b> Rabbi Meir, <b>holds</b> that it means <b>until Passover passes</b> and ends.
+
+### Part 7
+<strong>MISHNA:</strong> With regard to <b>one who says to a woman: I betrothed you, and she says: You did not betroth me, he is forbidden to her relatives,</b> as his claim that he has betrothed her renders himself forbidden to her relatives. <b>And she is permitted to his relatives,</b> in accordance with her stance that she is not betrothed to him. If <b>she says: You betrothed me, and he says: I did not betroth you, he is permitted to her relatives and she is forbidden to his relatives</b> by the same reasoning.
+
+### Part 8
+If a man says to a woman: <b>I betrothed you, and she says: You betrothed only my daughter, he is forbidden to the relatives of the older</b> woman, the mother, whom he claims to have betrothed, <b>and the older</b> woman <b>is permitted to his relatives. He is permitted to the relatives of the younger</b> woman, the daughter, as he maintains that he did not betroth her, <b>and the younger</b> woman <b>is permitted to his relatives,</b> since her mother’s statement is insufficient to render her forbidden.
+
+### Part 9
+Similarly, if he says: <b>I betrothed your daughter, and she,</b> the mother, <b>says: You betrothed only me, he is forbidden to the relatives of the younger</b> woman, <b>and the younger</b> woman <b>is permitted to his relatives; he is permitted to the relatives of the older</b> woman, <b>and the older</b> woman <b>is forbidden to his relatives.</b>
+
+### Part 10
+<strong>GEMARA:</strong> The mishna taught that with regard to <b>one who says to a woman: I betrothed you,</b> and she denies his claim, he is forbidden to her relatives while she remains permitted to his. The mishna then provides several examples illustrating the same principle. The Gemara comments: <b>And</b> it is <b>necessary</b> for the mishna to specify all these cases. The Gemara elaborates: <b>As, had</b> the mishna <b>taught us</b> the <i>halakha</i> only <b>with regard to himself,</b> i.e., the case where he claims to have betrothed the woman, one might have said that he is not deemed credible at all, <b>because a man does not care</b> if <b>he happens to say</b> that he betrothed a woman even if he did not do so, as he can betroth another woman.
+
+### Part 11
+<b>But</b> in a case where <b>she</b> claims to have been betrothed by him, one might <b>say</b> that <b>if her statement was not certain to her she would not have said</b> it. Since her claim that he betrothed her renders her forbidden to everyone else, it is likely that it is true, <b>and</b> therefore one might think that <b>he should</b> also <b>be forbidden to her relatives</b> on the basis of this assumption. The mishna therefore <b>teaches us</b> that this is not the case.
+
+### Part 12
+Likewise, with regard to one who says: <b>I betrothed you, and she says:</b> You betrothed only my daughter, in which case he is forbidden to her relatives but she is permitted to his, the Gemara asks: <b>Why do I</b> need <b>this as well?</b> The principle has already been established. The Gemara answers: It <b>was necessary</b> to state this case too, as it might <b>enter your mind to say:</b> Since <b>by Torah law, the Merciful One deems credible a father</b> who claims to have betrothed his daughter to a particular person, perhaps the Sages <b>deem</b> a mother <b>credible by rabbinic law, and</b> therefore <b>her daughter should be forbidden</b> based <b>on her statement.</b> The mishna therefore <b>teaches us</b> that a mother is not believed with regard to her daughter.
+
+### Part 13
+The Gemara continues this line of questioning. With regard to the case where a man says: <b>I betrothed your daughter,</b> and she replies: You betrothed only me, <b>why do I</b> need <b>this as well?</b> What novelty is taught in this case? The Gemara answers: <b>Since</b> the mishna <b>taught this</b> other case, of a man claiming he betrothed a woman and the woman replying that it was her daughter, <b>it also taught this</b> last case, so that it mentions all the permutations, despite the fact that this particular case provides no novelty.
+
+### Part 14
+§ <b>It was stated</b> that <i>amora’im</i> disagreed over how the court should proceed in practice with regard to the cases described in the mishna. <b>Rav says:</b> The court <b>forces</b> the man to give her a bill of divorce, <b>and Shmuel says:</b> The court <b>requests</b> that he give a bill of divorce. The Gemara asks: <b>With regard to which</b> case of the mishna is this referring? <b>If we say</b> it is referring <b>to the first clause,</b> where he says: I betrothed you, and she replies: You did not betroth me, <b>no</b> ruling of: The court <b>forces, is</b> relevant here, <b>nor is</b> the ruling: The court <b>requests,</b> relevant. Since she is permitted to marry even his relatives, she is certainly permitted to marry anyone else. Why, then, would it be necessary for him to give her a bill of divorce? <b>Rather,</b> the dispute applies <b>to the latter clause</b> of the mishna, where he denies her claim that he betrothed her. To allow her to marry somebody else, the court either forces or requests of him to give her a bill of divorce.
+
+### Part 15
+The Gemara asks: <b>Granted,</b> according to the opinion that the court <b>requests</b> that he give a bill of divorce, <b>it is well.</b> Since she has rendered herself forbidden to everyone, one can ask him to release her. <b>But why</b> should the court <b>force</b> him to issue a bill of divorce? Can’t he <b>say: It is not satisfactory for me to be forbidden to her relatives?</b> His giving her a bill of divorce is an admission that he betrothed her, which means that he may not marry her relatives.
+
+### Part 16
+<b>Rather,</b> the Gemara offers a different explanation: These <b><i>halakhot</i> were stated together,</b> as follows: <b>Shmuel says</b> that the court <b>requests of him to give a bill of divorce. Rav says: If he gave a bill of divorce of his own accord,</b> without being asked to do so but merely in response to her claim, the court <b>forces him to give</b> her payment for her <b>marriage contract</b> as well. By giving her a bill of divorce of his own volition, he has effectively admitted that he betrothed her, despite the fact that he has not said so explicitly. Consequently, he must also provide her with payment for her marriage contract.
+
+### Part 17
+<b>It was also stated: Rav Aḥa bar Adda says</b> that <b>Rav says, and some say Rav Aḥa bar Adda says</b> that <b>Rav Hamnuna says</b> that <b>Rav says:</b> The court <b>forces</b> him <b>and requests</b> of him. The Gemara expresses puzzlement at this statement: How can these <b>two</b> statements be reconciled? Rather, it must be that <b>this is</b> what Rav Aḥa bar Adda <b>is saying:</b> The court <b>requests of him to give a bill of divorce, and if he gave a bill of divorce of his own accord</b> the court <b>forces him to give</b> her payment for <b>her marriage contract.</b>
+
+### Part 18
+§ <b>Rav Yehuda says:</b> With regard to <b>one who betroths</b> another <b>with,</b> i.e., in the presence of, <b>one witness, one</b> need <b>not be concerned that his betrothal</b> has taken effect. The students <b>raised a dilemma before Rav Yehuda:</b> If <b>both</b> the man and the woman <b>concede</b> that it was a betrothal, <b>what</b> is the <i>halakha</i>? Is the betrothal valid? Rav Yehuda did not provide a clear answer. He said: <b>Yes and no, and</b> the matter was <b>uncertain to him. It was stated</b> that <i>amora’im</i> discussed this point. <b>Rav Naḥman says</b> that <b>Shmuel says:</b> With regard to <b>one who betroths</b> a woman <b>with one witness, one</b> need <b>not be concerned that his betrothal</b> has taken effect, <b>and</b> this is the <i>halakha</i> <b>even if both</b> parties <b>concede</b> that there was a betrothal.
+
+### Part 19
+<b>Rava raised an objection to</b> the opinion of <b>Rav Naḥman</b> from the mishna: With regard to <b>one who says to a woman: I betrothed you, and she says: You did not betroth me, he is forbidden to her relatives and she is permitted to his relatives.</b> Rava proceeds to analyze the exact circumstances of this case. <b>If</b> the case is one <b>where there are witnesses, why</b> is <b>she permitted to his relatives?</b> It is a full-fledged betrothal performed in the presence of witnesses. <b>And if there are no witnesses</b> at all, <b>why</b> is <b>he forbidden to her relatives</b> without any testimony to that effect? <b>Rather, is it not</b> referring <b>to</b> a case where there was <b>one witness?</b>
+
+### Part 20
+The Gemara answers: <b>Here we are dealing with</b> a case <b>where he said to her: I betrothed you in the presence of so-and-so and so-and-so,</b> i.e., there were two witnesses, <b>but they went overseas</b> and there is no way of clarifying what really occurred. Consequently, there are only the conflicting accounts of the man and woman, and therefore he is prohibited from marrying her relatives while she is permitted to marry his.
+
+### Part 21
+Rava <b>raised an objection to</b> the opinion of Rav Naḥman from a mishna (<i>Eduyyot</i> 4:7): If <b>one divorces his wife, and she</b> subsequently <b>lodged with him in an inn, Beit Shammai say: She does not require a second bill of divorce from him, and Beit Hillel say: She requires a second bill of divorce from him.</b> The Gemara clarifies: <b>What are the circumstances</b> of this case? <b>If there are witnesses</b> who saw them engage in sexual inter-course for the purpose of betrothal, <b>what is the reason that Beit Shammai</b> do not require a second bill of divorce? <b>If there are no witnesses, what is the reason that Beit Hillel</b> require a second bill of divorce? <b>Rather, is it not</b> referring <b>to</b> a case where there was <b>one witness</b> who saw them engage in intercourse for the purpose of betrothal?
+
+### Part 22
+Rav Naḥman responds: <b>And according to your reasoning,</b> that there was one witness, <b>say the latter clause</b> of that mishna: <b>And</b> Beit Hillel <b>concede with regard to</b> a woman <b>who was divorced after betrothal that she does not require a second bill of divorce from him, due to</b> the fact that <b>he is not accustomed to her.</b> Since he had not previously been intimate with her, there is no concern that they engaged in intercourse, even though they lodged together at the inn. <b>And if it enters your mind</b> that <b>one witness is deemed credible</b> in this case, <b>what</b> difference is it <b>to me</b> whether it was <b>after</b> her <b>betrothal,</b> and <b>what</b> difference is it <b>to me</b> if it occurred <b>after</b> her <b>marriage?</b>
+
+### Part 23
+<b>Rather,</b> it is clear that the mishna is not referring to when there is one witness, and <b>here we are dealing with</b> a case <b>where there are witnesses to</b> their <b>seclusion, but there are no witnesses to</b> their engaging in <b>intercourse.</b> The dispute is based on the implications of this seclusion. <b>Beit Shammai hold:</b> One does <b>not</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

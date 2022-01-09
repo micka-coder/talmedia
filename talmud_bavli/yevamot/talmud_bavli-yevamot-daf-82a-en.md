@@ -1,0 +1,45 @@
+
+### Part 1
+The Gemara answers: <b>Rabbi Yehuda</b> conforms <b>to his</b> standard line of <b>reasoning, as he stated</b> a principle that if a particular <b>type</b> of food is mixed <b>with</b> food of <b>its</b> own <b>type,</b> it <b>cannot be nullified</b> under any circumstances.
+
+### Part 2
+The Gemara asks further: <b>But</b> had the piece of meat <b>not</b> been <b>crushed, what</b> would the <i>halakha</i> be? Presumably, it would <b>not</b> be <b>nullified.</b> If so, there is a difficulty, as <b>instead of teaching</b> a case involving non-sacred meat in the second half of the <i>baraita</i>, as follows: <b>However, if a piece of a ritually pure sin-offering became intermingled with one hundred pieces of ritually pure non-sacred</b> meat, the impure piece of a sin-offering <b>is not nullified; let</b> the <i>tanna</i> <b>distinguish and teach</b> it <b>in</b> the case involving only sacred meat, as follows: <b>In what</b> case <b>is this statement said?</b> It is in a case <b>where</b> the piece of meat <b>has been crushed</b> and broken into small parts, <b>but</b> if it <b>has not been crushed,</b> it is <b>not nullified.</b>
+
+### Part 3
+The Gemara answers: Even so, the <i>tanna</i> <b>prefers</b> to address the case of an intermingling of <b>ritually pure</b> items <b>with</b> other <b>ritually pure</b> items and thereby teach a novel <i>halakha</i>, notwithstanding the fact that he could have made a distinction within the case of a ritually impure piece itself.
+
+### Part 4
+The Gemara asks: <b>And according to Reish Lakish,</b> who establishes the <i>baraita</i> as referring to a piece of meat that has been crushed, <b>what is different</b> in <b>the first clause</b> of the <i>baraita</i> <b>and what is different</b> in <b>the latter clause?</b> Why is nullification possible in the case of impure pieces, but not in the case of pure ones? <b>Rav Sheisha, son of Rav Idi, said: The first clause</b> is dealing with a piece of a sin-offering that contracted <b>ritual impurity due to liquids,</b> which is imparted <b>by rabbinic</b> law. Since the sacred food contracted impurity that is only rabbinic in origin, it may be nullified rather than allowed to go to waste. <b>The latter clause,</b> on the other hand, deals with sacred food that became intermingled with ordinary non-sacred food. The sacred food is forbidden to non-priests <b>by Torah</b> law, and therefore it is not nullified.
+
+### Part 5
+The Gemara asks: <b>But</b> had the piece of meat mentioned in the first clause of the <i>baraita</i> contracted <b>ritual impurity through</b> contact with <b>a creeping animal,</b> which is imparted by Torah law, <b>what</b> would the <i>halakha</i> be? Presumably, it would <b>not</b> be <b>nullified.</b>
+
+### Part 6
+If so, there is a difficulty, as <b>instead of teaching</b> a case involving non-sacred meat in the <b>latter clause</b> of the <i>baraita</i>, as follows: <b>However,</b> if <b>a piece of a ritually pure sin-offering became intermingled with one hundred pieces of ritually pure non-sacred</b> meat, the impure piece of a sin-offering <b>is not nullified; let</b> the <i>tanna</i> <b>distinguish and teach</b> it <b>in</b> the case involving only sacred meat, as follows: <b>In what</b> case <b>is this statement said?</b> It is said in a case <b>where</b> the piece of meat contracted <b>ritual impurity due to liquids, but where</b> it contracted <b>ritual impurity through a creeping animal</b> it is <b>not</b> nullified. The Gemara answers: Even so, the <i>tanna</i> <b>prefers</b> to address the novel case of an intermingling of <b>ritually pure</b> items <b>with</b> other <b>ritually pure</b> items.
+
+### Part 7
+<b>Rabba said</b> that an alternative explanation may be suggested for the difference between the two clauses of the <i>baraita</i>: In <b>the first clause</b> of the <i>baraita</i>, which deals with the intermingling of impure sacred meat with pure sacred meat, there is concern about the violation of <b>a standard prohibition,</b> i.e., the prohibition against eating impure sacred meat; therefore, the piece of meat is nullified. In <b>the latter clause</b> of the <i>baraita</i>, which deals with the intermingling of sacred meat and non-sacred meat, there is concern about the violation of <b>a prohibition</b> that bears the punishment <b>of <i>karet</i>,</b> which bars a non-priest from eating pure sacrificial food; therefore, the piece of meat is not nullified.
+
+### Part 8
+The Gemara asks: <b>But wasn’t it Rabba</b> himself <b>who said:</b> With regard to the nullification of <b>any</b> item forbidden <b>by Torah</b> law that became intermingled with a permitted substance, there is <b>no difference between</b> that which is forbidden due to a <b>standard prohibition</b> and that which is forbidden due to <b>a prohibition</b> that entails the punishment <b>of <i>karet</i>.</b> The Gemara concludes: This is <b>difficult</b> for Rabba.
+
+### Part 9
+<b>Rav Ashi said</b> yet another explanation: In <b>the latter clause,</b> where ritually pure sacred meat became intermingled with ritually pure non-sacred meat, the sacred meat does not become nullified <b>because it is an object whose prohibition is temporary.</b> The piece of sacred meat is not absolutely forbidden, as it is permitted for a priest to eat it. <b>And</b> the <i>halakha</i> is that <b>any object whose prohibition is temporary cannot be nullified,</b> no matter how great the amount of permitted substance, <b>even in</b> a mixture of one to <b>one thousand.</b>
+
+### Part 10
+The Gemara comments: <b>Now, that</b> teaching ascribed <b>to Rav Ashi is</b> certainly <b>a mistake [<i>beduta</i>],</b> as the application of this principle to the case at hand can easily be shown to be erroneous. With regard <b>to whom</b> is the prohibition temporary? <b>If</b> one would say that it is <b>for a priest,</b> the sacred meat <b>was</b> always <b>permitted</b> to him, even before it became intermingled, as a priest may eat both sacred and non-sacred food, and therefore it was never a forbidden mixture with respect to him. And <b>if</b> one would say that it is <b>for an Israelite,</b> the meat will <b>always</b> be <b>forbidden</b> to him. <b>Rather, that</b> teaching attributed <b>to Rav Ashi is</b> clearly <b>a mistake.</b>
+
+### Part 11
+The Gemara raises a question with regard to Rabbi Yoḥanan’s opinion: <b>And</b> does <b>Rabbi Yoḥanan maintain that <i>teruma</i> in the present</b> applies <b>by Torah</b> law? <b>But isn’t it taught</b> in a <i>baraita</i>: There were <b>two</b> large <b>baskets, one</b> filled with <b>non-sacred</b> produce <b>and</b> the other <b>one</b> filled with <b><i>teruma</i>, and before them</b> were <b>two</b> one-<b><i>se’a</i></b> vessels, <b>one</b> filled with <b>non-sacred</b> produce <b>and</b> the other <b>one</b> filled with <b><i>teruma</i>. And these,</b> the contents of each of the <i>se’a</i> vessels, <b>fell into those,</b> each of the baskets. It is possible that the <i>teruma</i> fell into the non-sacred produce, and it is prohibited for non-priests to eat a mixture of <i>teruma</i> and non-sacred produce. Nevertheless, the produce found in the basket containing the non-sacred produce <b>is permitted, as I say</b> that <b>the <i>teruma</i> fell into the <i>teruma</i> and the non-sacred</b> produce <b>fell into the non-sacred</b> produce.
+
+### Part 12
+<b>And Reish Lakish said</b> that <b>this</b> is only the case <b>if the non-sacred</b> produce in the basket <b>was greater</b> in quantity <b>than the <i>teruma</i></b> in the one-<i>se’a</i> vessel, so that even if the <i>teruma</i> fell into the non-sacred produce, it is nullified. <b>And Rabbi Yoḥanan said:</b> The mixture is permitted <b>even if the non-sacred</b> produce <b>was not greater</b> in quantity <b>than the <i>teruma</i>,</b> as one may rely on the assumption that each type of produce fell into its own type.
+
+### Part 13
+<b>Granted, according to Reish Lakish,</b> who maintains that <i>teruma</i> nowadays applies by rabbinic law, this is logical, as <b>he maintains</b> that even <b>with regard to</b> <i>teruma</i> that is in effect only <b>by rabbinic</b> law, <b>we also require</b> the permitted portion of the mixture to be <b>greater</b> in quantity so that it can nullify the forbidden part. <b>But according to Rabbi Yoḥanan,</b> it is <b>difficult</b> because if he maintains that even nowadays <i>teruma</i> is mandated by Torah law, how can one disregard the concern and permit the mixture based merely on the assumption that the events occurred in a way that preserves the produce in its permitted state?
+
+### Part 14
+The Gemara answers that Rabbi Yoḥanan can say: In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i> taught? <b>It</b> is in accordance with the opinion of <b>the Rabbis,</b> who maintain that <i>teruma</i> nowadays is in effect only by rabbinic law.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

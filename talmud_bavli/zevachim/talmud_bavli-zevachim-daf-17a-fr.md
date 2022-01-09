@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>Au contraire,</b> on <b>peut deriver de telle</b> maniere <b>et</b> on <b>peut deriver de telle</b> maniere. Comme ces derivations se contredisent, <b>chaque</b> <i>halakha</i> <b>doit rester a sa place</b> et ne pas modifier l'autre par inference <i>a fortiori</i>.
+
+### Partie 2
+§ La mishna enseigne que les rites sacrificiels accomplis par <b>une personne qui s'est immergee ce jour-la</b> sont disqualifies. La Gemara demande : <b>D'ou derive-t-on</b> cette <i>halakha</i> ? La Gemara repond : Elle est derivee <b>comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Simai dit : D'ou vient</b> dans la Torah l'<b>allusion</b> a l'egard d'un pretre <b>qui s'est immerge ce jour-la, que s'il accomplissait</b> le <b>service du Temple, il profanait</b> ce service ? C'est derive d'un verset, car <b>le verset dit : "Ils seront sacrés pour leur Dieu et ils ne profaneront pas</b> le nom de leur Dieu" (Lévitique 21:6).
+
+### Partie 3
+<b>Si</b> ce verset <b>n'est pas</b> ecrit a propos de la <b>question d'un pretre impur</b> qui accomplissait le service du Temple, <b>comme</b> cette <i>halakha</i> est <b>derivee pour nous du</b> verset : <b>"Qu'ils se separent</b> des objets sacres des enfants d'Israel" (Levitique 22:2), puis <b>l'appliquer</b> a la <b>matiere d'un pretre <b>qui s'est immerge ce jour-la</b> qui a accompli le service du Temple. Bien qu'il ne soit plus impur dans tous les sens, le pretre reste impur dans le sens ou il lui est interdit de prendre part au <i>teruma</i> et a la nourriture sacrificielle, et d'entrer dans le Temple.
+
+### Partie 4
+La Guemara demande : Pourquoi le verset doit-il etre applique a l'affaire de celui qui s'est immerge ce jour-la ? <b>Disons</b> qu'il faut <b>l'appliquer</b> a la <b>matiere de celui qui cree une calvitie</b> sur sa tete <b>ou a</b> la matiere de <b>celui qui detruit</b> sa <b>barbe,</b> car ces matieres sont abordees dans le verset precedent.
+
+### Partie 5
+La Gemara repond : Ce verset est deja utilise pour indiquer une autre <i>halakha</i> relative a celui qui s'est immerge ce jour-la : <b>D'ou derive-t-on</b> <b>que si celui qui s'est immerge ce jour-la a accompli</b> des <b>rites sacrificiels,</b> il est susceptible de recevoir la punition de la <b>mort</b> de la main du Ciel ? <b>Comme</b> il est <b>derive</b> par analogie verbale entre la <b>profanation</b> mentionnee dans ce contexte et la <b>profanation de <i>teruma</i>,</b> comme le stipule le verset dans ce contexte : "Et ne pas profaner le nom de leur Dieu" (Levitique 21:6), et le verset indique en ce qui concerne le <i>teruma</i> : "De peur qu'ils ne portent le peche a cause de lui et n'en meurent, s'ils le profanent" (Levitique 22:9). On peut deduire de cette analogie verbale que celui <b>qui disqualifie le <i>teruma</i>,</b> c'est-a-dire celui qui s'est immerge ce jour-la, <b>profane</b> le <b>service du Temple,</b> et celui <b>qui ne disqualifie pas le <i>teruma</i>,</b> c'est-a-dire, celui qui cree une calvitie ou celui qui detruit sa barbe, <b>ne profane pas</b> le <b>service.</b>
+
+### Partie 6
+§ <b>Rabba a dit : Pourquoi ai-je</b> besoin de <b>cette</b> que <b>le Misericordieux a ecrite,</b> c'est-a-dire que <b>un pretre impur</b>, <b>et celui qui s'est immerge ce jour-la, et celui qui n'a pas encore</b> apporte <b>une offrande expiatoire</b> disqualifient tous les rites qu'ils accomplissent ? N'aurait-il pas ete suffisant d'enseigner le <i>halakha</i> dans un seul cas ?
+
+### Partie 7
+Rabba explique : Les trois <b>sont necessaires, car</b> dans chaque cas il y a une rigueur non presente dans les autres. Ainsi, <b>si le Misericordieux avait ecrit</b> seulement que <b>un pretre impur</b> profane l'office, on pourrait dire que c'est <b>parce qu'il transmet l'impurete</b> a d'autres, et comme les deux autres cas ne le font pas, on ne peut pas les deduire du cas d'un pretre impur. Et si le Misericordieux avait ecrit la <i>halakha</i> uniquement <b>en ce qui concerne celui qui s'est immerge ce jour-la,</b> alors le cas de <b>celui qui n'a pas encore</b> apporte <b>une offrande expiatoire</b> ne pourrait pas en etre derive, puisque</b> le premier <b>est inapte a</b> prendre part au <b><i>teruma</i></b> alors que le second ne l'est pas. Et si le Misericordieux avait ecrit le <i>halakha</i> uniquement <b>en ce qui concerne celui qui n'a pas encore</b> apporte <b>une offrande expiatoire</b>, alors le cas de <b>celui qui s'est immerge ce jour-la ne pourrait pas en etre deduit, puisque</b> seul le premier <b>n'a pas encore</b> accompli une <b>action necessaire,</b> alors que celui qui s'est immerge ce jour-la doit simplement attendre la tombee de la nuit pour devenir pleinement pur.
+
+### Partie 8
+La Guemara demande : Pourtant, pourquoi les trois sont-elles necessaires ? Certes, <b>de l'un</b> de ces cas, les deux autres <b>ne peuvent etre derives,</b> mais <b>qu'un soit derive</b> des <b>deux autres.</b>
+
+### Partie 9
+La Gemara demande : <b>Lequel</b> des trois <b>ne doit pas etre ecrit par le Misericordieux ?</b> Si on suggere : <b>Laissons</b> le Misericordieux <b>ne pas ecrire</b> la <i>halakha</i> <b>en ce qui concerne celui qui n'a pas encore</b> apporte une offrande d'<b>atonement</b> <b>et la deriver</b> de ces</b> deux autres, un pretre impur et celui qui s'est immerge ce jour-la, on peut repondre : <b>Qu'est-ce qui</b> est remarquable <b>chez ceux-la ?</b> Ils sont remarquables <b>en ce qu'ils sont inaptes a</b> participer au <b><i>teruma</i>.</b> Puisque celui qui n'a pas encore apporte d'offrande expiatoire peut participer au <i>teruma</i>, peut-etre ne disqualifie-t-il pas les rites qu'il accomplit.
+
+### Partie 10
+<b>Par contre,</b> dites : <b>Que le Misericordieux n'ecrive pas</b> le <i>halakha</i> <b>en ce qui concerne celui qui s'est immerge ce jour-la et le derive</b> de ces</b> deux autres, un pretre impur et celui qui n'a pas encore apporte d'offrande expiatoire. <b>Aussi, que pouvez-vous</b> dire pour <b>refuter</b> ceci ? On ne peut pas repondre : <b>Qu'est-ce qui</b> est remarquable <b>a propos de ceux-ci;</b> ils sont remarquables <b>puisqu'ils n'ont pas encore</b> accompli une <b>action necessaire,</b> car <b>en fin de compte leur impurete,</b> c'est-a-dire l'impurete de celui qui n'a pas encore apporte d'offrande expiatoire, <b>est faible</b> par rapport a celui qui s'est immerge ce jour-la, et relativement, celui qui n'a pas encore apporte d'offrande expiatoire n'est pas considere comme manquant l'accomplissement d'une action.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

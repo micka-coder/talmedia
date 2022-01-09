@@ -1,0 +1,78 @@
+
+### Part 1
+The Gemara answers: The <b><i>tanna</i></b> of that <i>baraita</i> <b>relies on</b> the phrase: <b>“This is the law of the burnt offering [<i>ha’ola</i>]:</b> It is that which goes up on its firewood upon the altar all night unto the morning” (Leviticus 6:2), a seemingly superfluous general phrase which is interpreted homiletically to <b>include</b> the <i>halakha</i> that any item that ascends [<i>ola</i>] upon the altar shall not descend from it, even if it was disqualified. The verse is the actual source for the <i>halakha</i> of the <i>baraita</i>, whereas the case of a private altar is cited merely in support of this ruling. Accordingly, the <i>baraita</i> does not contradict the opinion of Rav Shimi bar Ashi.
+
+### Part 2
+§ The Gemara cites another discussion concerning the sheep of <i>Shavuot</i>. <b>Rabba bar bar Ḥana taught</b> a <i>baraita</i> <b>before Rav:</b> In a case of <b>the</b> two <b>sheep of <i>Shavuot</i> where one slaughtered them for the sake of rams</b> and not for their own sake, <b>they are valid</b> offerings, <b>but they do not satisfy the obligation of the owner,</b> i.e., the community, to sacrifice these offerings. <b>Rav said to</b> Rabba bar bar Ḥana: That is not so; rather, the sheep <b>certainly satisfy</b> the obligation of the community.
+
+### Part 3
+<b>Rav Ḥisda said: The statement of Rav is reasonable in</b> a case where <b>one thought</b> that they were <b>rams</b> when he slaughtered them, <b>and</b> nevertheless <b>slaughtered them for the sake of lambs.</b> In such a case, it makes sense that they satisfy the community’s obligation <b>since</b> the <b>lambs were slaughtered for the sake of lambs.</b>
+
+### Part 4
+<b>But</b> in a case where <b>he thought</b> that they were <b>rams</b> when he slaughtered them, <b>and</b> therefore <b>slaughtered them for the sake of rams,</b> they do <b>not</b> satisfy the community’s obligation, even though they were actually lambs. This is due to the fact that the <b>erroneous uprooting</b> of the status of an offering <b>constitutes uprooting,</b> despite the fact that it was done in error. <b>But Rabba said:</b> The <b>erroneous uprooting</b> of the status of an offering <b>does not constitute uprooting.</b>
+
+### Part 5
+<b>Rava said: We raise an objection to our</b> own ruling concerning this <b><i>halakha</i></b> from that which was taught in a mishna (<i>Gittin</i> 54a): In a case of <b>priests who disqualified</b> an offering <b>through improper intention in the Temple,</b> by expressing, while sacrificing the offering, the intention to eat it after the appropriate time, if they did so <b>intentionally, they are liable</b> to pay the value of the offering to its owner, who must now bring another offering. It follows, <b>therefore,</b> that if the priests did so <b>unintentionally they are exempt. And</b> it <b>is taught concerning this</b> case in a <i>baraita</i>: Even though they slaughtered it with improper intent unintentionally, <b>their</b> act of <b>improper intention</b> renders the offering <b><i>piggul</i>,</b> despite the fact that they are exempt from paying damages.
+
+### Part 6
+<b>What are the circumstances</b> in which this is the <i>halakha</i>? <b>If we say</b> that it is referring to a case where the priest <b>knew that</b> the offering <b>was a sin offering,</b> which is eaten for only one day and one night, <b>and</b> nevertheless <b>he intended</b> the offering to be <b>for the sake of a peace offering,</b> which is eaten for two days and one night, and thereby his intention was that it be eaten after its appropriate time, is <b>this</b> considered <b>an unintentional</b> act by the priests? Certainly <b>they were</b> acting <b>intentionally.</b>
+
+### Part 7
+<b>Rather, is it not</b> referring to a case where the offering was a sin offering, which is eaten for only one day and one night, and the priest <b>thought that it was a peace offering and</b> therefore <b>he intended</b> the offering to be <b>for the sake of a peace offering,</b> which is eaten for two days and one night, and thereby his intention was that it be eaten after its appropriate time? <b>And</b> with regard to this case the <i>tanna</i> <b>taught: Their</b> act of <b>improper intention</b> renders the offering <b><i>piggul</i>. Apparently,</b> this proves that the <b>erroneous uprooting</b> of the status of an offering <b>constitutes uprooting,</b> contrary to the ruling of Rabba.
+
+### Part 8
+<b>Abaye said to</b> Rava: There is no objection from this <i>baraita</i>, because <b>actually</b> it is referring to a case <b>where</b> the priest <b>knew that it</b> was <b>a sin offering and</b> nevertheless <b>he intended</b> the offering to be <b>for the sake of a peace offering,</b> and his uprooting was done intentionally. Nevertheless, the <i>baraita</i> refers to the priests as acting unintentionally because it is referring to circumstances <b>where</b> the priest <b>says,</b> i.e., he mistakenly thinks, that it is <b>permitted</b> to sacrifice the offering with this intent.
+
+### Part 9
+<b>Rabbi Zeira raises an objection</b> to Rabba’s opinion that erroneous uprooting of the status of an offering does not constitute uprooting. A <i>baraita</i> teaches that <b>Rabbi Shimon says: All meal offerings</b> from which <b>the handful was removed not for their sake are</b> entirely <b>valid, and have</b> even <b>satisfied the obligation of the owner,</b> unlike animal offerings slaughtered not for their sake, which do not satisfy the obligation of the owner.
+
+### Part 10
+This is <b>because meal offerings are not similar to animal offerings. As,</b> in the case of <b>one who removes a handful</b> from a meal offering prepared in a shallow <b>pan for the sake of</b> a meal offering prepared in <b>a deep pan, its mode of preparation proves</b> that <b>it</b> is a shallow-<b>pan</b> meal offering and not a deep-pan meal offering. Since a meal offering prepared in a shallow pan is hard and one prepared in a deep pan is soft, his intention is plainly false. Similarly, if one removes a handful from <b>a dry</b> meal offering, the meal offering of a sinner, which has no oil, <b>for the sake of</b> a meal offering <b>mixed</b> with oil, his intention is plainly false, as <b>its mode of preparation proves</b> that <b>it</b> is <b>a dry</b> meal offering.
+
+### Part 11
+<b>But with regard to animal offerings</b> this <b>is not so.</b> There is <b>one</b> mode of <b>slaughter for all of</b> the offerings, <b>one</b> mode of <b>collection</b> of the blood <b>for all of them,</b> and <b>one</b> mode of <b>sprinkling for all of them.</b> Since the only factor that distinguishes between one type of offering and another is the intention of the individuals involved in its sacrifice, their intention is significant. Consequently, if one of the sacrificial rites is performed for the sake of the wrong type of offering, the offering does not satisfy its owner’s obligation.
+
+### Part 12
+The Gemara clarifies: <b>What are the circumstances</b> to which Rabbi Shimon is referring? <b>If we say</b> that he is referring to a case <b>where</b> the priest <b>knew that</b> the meal offering <b>was</b> prepared in a shallow <b>pan, and</b> nevertheless <b>he removed a handful</b> from it <b>for the sake of</b> a meal offering prepared in <b>a deep pan,</b> then although <b>its mode of preparation proves</b> that it was prepared in a shallow pan, <b>what of it?</b> In any case <b>he is</b> consciously <b>uprooting</b> its status as a shallow-pan meal offering, changing it to a deep-pan meal offering by means of his intention when he removes the handful.
+
+### Part 13
+<b>Rather, is it not</b> referring to a case <b>where</b> the priest <b>thought it was</b> a meal offering prepared in <b>a deep pan and</b> therefore <b>removed a handful for the sake of</b> a meal offering prepared in <b>a deep pan, but he was mistaken,</b> as it was actually a meal offering prepared in a shallow pan? <b>It is</b> specifically <b>here,</b> in this case, that Rabbi Shimon rules that the offering remains valid, <b>since its mode of preparation proves</b> that <b>it</b> is a shallow-pan meal offering, which indicates <b>that in general, erroneous uprooting</b> of the status of an offering <b>constitutes uprooting,</b> contrary the ruling of Rabba.
+
+### Part 14
+<b>Abaye said to</b> Rabbi Zeira, in response to his objection: This objection to Rabba’s opinion is inconclusive, because one can explain that the <i>baraita</i> is <b>actually</b> referring to a case <b>where</b> the priest <b>knew that</b> the meal offering <b>was</b> prepared in a shallow <b>pan, and</b> nevertheless <b>he removed a handful for the sake of</b> a meal offering prepared in <b>a deep pan.</b>
+
+### Part 15
+<b>And</b> with regard to <b>that which you said</b> in your question: Although <b>its mode of preparation proves</b> that <b>it</b> is prepared in a shallow pan, <b>what of it,</b> i.e., since he is consciously uprooting its identity, how can it satisfy its owner’s obligation? Abaye answers that <b>Rava</b> conforms <b>to his</b> line of <b>reasoning, as Rava says: The Merciful One disqualifies</b> an offering due to improper <b>intent that is not recognizably</b> false, i.e., when the physical properties of the offering itself do not prove that the intent is mistaken. <b>The Merciful One does not disqualify</b> an offering due to improper <b>intent that is recognizably</b> false. Consequently, if one removes a handful from a shallow-pan meal offering for the sake of a deep-pan meal offering, even if he did so consciously, the offering remains valid and satisfies the owner’s obligation.
+
+### Part 16
+<strong>MISHNA:</strong> Failure to sacrifice <b>the daily offerings does not prevent</b> sacrifice of <b>the additional offerings, and</b> likewise, failure to sacrifice <b>the additional offerings does not prevent</b> sacrifice of <b>the daily offerings. And</b> failure to sacrifice some of <b>the additional offerings</b> on a day when more than one is sacrificed, e.g., if it was both Shabbat and the New Moon, <b>does not prevent</b> sacrifice of the <b>other</b> additional offerings. If the priests <b>did not sacrifice a lamb in the morning</b> as the daily offering, nevertheless, <b>they should sacrifice</b> a lamb <b>in the afternoon</b> as the daily offering, as failure to sacrifice one daily offering does not prevent sacrifice of the other. In all of these cases, if they failed to sacrifice one offering, they should still sacrifice the other.
+
+### Part 17
+<b>Rabbi Shimon said: When</b> does this <i>halakha</i> apply? It applies <b>at a time when</b> the failure to sacrifice the daily morning offering was because <b>they were</b> prevented from sacrificing it due to <b>circumstances beyond their control or</b> they failed to sacrifice it <b>unwittingly. But if</b> the priests acted <b>intentionally and did not sacrifice a lamb in the morning</b> as the daily offering, <b>they should not sacrifice</b> a lamb <b>in the afternoon</b> as the daily offering.
+
+### Part 18
+Incense was burned twice a day, half a measure in the morning and half a measure in the afternoon. If <b>they did not burn</b> the half-measure of <b>incense in the morning, they should burn</b> the half-measure <b>in the afternoon.</b>
+
+### Part 19
+<b>Rabbi Shimon said: And</b> in such a case, <b>the entire</b> measure <b>was sacrificed in the afternoon.</b> The reason for the difference between the daily offerings and the incense is <b>that</b> the daily service on a new <b>golden altar is initiated only with</b> the burning of <b>the incense of the spices</b> in the afternoon, at which time they would burn a full measure. <b>And the</b> daily service on a new <b>altar of the burnt offering,</b> on which the daily offerings were sacrificed, is initiated <b>only with the daily morning offering. And</b> use of a new <b>Table</b> was initiated <b>only with</b> the arrangement of <b>the shewbread on Shabbat, and</b> use of a new <b>Candelabrum</b> was initiated <b>only with</b> the kindling <b>of its seven lamps in the afternoon.</b>
+
+### Part 20
+<strong>GEMARA:</strong> The mishna teaches that the daily offerings and the additional offerings each do not prevent fulfillment of the mitzva with the other. Concerning this, <b>Rabbi Ḥiyya bar Avin raised a dilemma before Rav Ḥisda:</b> In the case of <b>a community that did not have</b> the resources to sacrifice both <b>the daily offerings and the additional offerings, which of them takes precedence</b> over the other?
+
+### Part 21
+The Gemara clarifies: <b>What are the circumstances</b> to which Rabbi Ḥiyya bar Avin is referring? <b>If we say</b> that he is referring to a case where the choice is between <b>the daily offerings of that day and the additional offerings of that</b> same <b>day,</b> it is <b>obvious</b> that <b>the daily offerings are given preference, as</b> the sacrifice of the daily offerings <b>is</b> more <b>frequent</b> than the sacrifice of the additional offerings, which are sacrificed only on special occasions, <b>and</b> the daily offerings are also <b>sanctified.</b>
+
+### Part 22
+<b>Rather,</b> Rabbi Ḥiyya bar Avin must be referring to a case where they have enough animals for the daily offerings of today and also for either <b>the daily offerings for tomorrow or the additional offerings for today.</b> In such a case, are <b>the daily offerings given preference since</b> their sacrifice is more <b>frequent? Or perhaps the additional offerings are given preference because they are</b> considered more <b>sanctified</b> because they are sacrificed on a holy day.
+
+### Part 23
+Rav Ḥisda <b>said to</b> Rabbi Ḥiyya bar Avin: The resolution to this dilemma can be derived from that which <b>you learned</b> in the mishna: Failure to sacrifice <b>the daily offerings does not prevent</b> sacrifice of <b>the additional offerings, and</b> likewise, failure to sacrifice <b>the additional offerings does not prevent</b> sacrifice of <b>the daily offerings. And</b> failure to sacrifice some of <b>the additional offerings does not prevent</b> sacrifice of the <b>other</b> additional offerings.
+
+### Part 24
+<b>What are the circumstances</b> to which the mishna is referring? <b>If we say</b> that it is referring to a case where the Temple treasury <b>has</b> all of the animals necessary for both offerings, <b>and</b> the only question is <b>in</b> terms of sacrificing one <b>before</b> the other, <b>isn’t it taught</b> in a <i>baraita</i>: <b>From where</b> is it derived <b>that no</b> sacrifice <b>should precede</b> the sacrifice of the <b>daily offering of morning?</b> The <i>baraita</i> continues: It is derived from that which <b>the verse states:</b> “And the fire upon the altar shall be kept burning thereby, it shall not go out; and the priest shall kindle wood on it every morning; <b>and he shall lay the burnt offering in order on it,</b> and shall cause the fats of the peace offering to go up in smoke upon it” (Leviticus 6:5).
+
+### Part 25
+<b>And Rava says</b> in explanation of this derivation in the <i>baraita</i> that the term <b>“the burnt offering,”</b> with the definite article, is referring to <b>the first burnt offering</b> of the day, which is the daily offering. Consequently, one may not sacrifice the additional offerings before the daily offering.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+<b>Rabbi Yehuda says:</b> Its status is like any other carcass of an unslaughtered kosher bird, and its meat <b>renders</b> one who swallows it <b>ritually impure.</b>
+
+### Part 2
+<b>Rabbi Meir said:</b> My opinion can be inferred <b><i>a fortiori</i>. If an animal carcass transmits impurity</b> to a person <b>through touching</b> it <b>and through carrying</b> it, and nevertheless the <b>slaughter of</b> an animal <b>purifies it,</b> even if it is <b>a <i>tereifa</i>, from its impurity,</b> i.e., its slaughter prevents it from assuming the impurity status of a carcass, then with regard to <b>a bird carcass, which</b> possesses a lesser degree of impurity, as it <b>does not transmit impurity</b> to a person <b>through touching</b> it <b>and through carrying</b> it, but only through swallowing it, <b>is it not logical that its slaughter should purify it,</b> even if it is <b>a <i>tereifa</i>, from its impurity?</b>
+
+### Part 3
+And once it is established that slaughter renders a bird that is a <i>tereifa</i> pure, it can be inferred that <b>just as we found with regard to its slaughter that it renders</b> a bird <b>fit for consumption and purifies</b> a bird, even if it is <b>a <i>tereifa</i>, from its impurity, so too its pinching, which renders</b> a bird offering <b>fit with regard to consumption, should purify it,</b> even if it is <b>a <i>tereifa</i>, from its impurity.</b>
+
+### Part 4
+<b>Rabbi Yosei says:</b> Although one can derive from the case of an animal that slaughter renders even a bird that is a <i>tereifa</i> pure, that derivation cannot be extended to pinching. The same restriction that applies to every <i>a fortiori</i> inference, namely, that a <i>halakha</i> derived by means of an <i>a fortiori</i> inference is no more stringent than the source from which it is derived, applies here: <b>It is sufficient</b> for the halakhic status of the carcass of a bird that is a <i>tereifa</i> to be <b>like</b> that of <b>the carcass of</b> an <b>animal</b> that is a <i>tereifa</i>; <b>its slaughter renders it pure, but its pinching</b> does <b>not.</b>
+
+### Part 5
+<strong>GEMARA:</strong> In the mishna, Rabbi Yosei answers Rabbi Meir by invoking the principle that a <i>halakha</i> derived by means of an <i>a fortiori</i> inference is no more stringent than the source from which it is derived. The Gemara asks: <b>And does Rabbi Meir not require</b> that <i>a fortiori</i> inferences conform to the principle that <b>it is sufficient</b> for the conclusion that emerges from an <i>a fortiori</i> inference to be like its source? <b>But isn’t</b> the principle: <b>It is sufficient,</b> etc., mandated <b>by Torah law?</b>
+
+### Part 6
+<b>As it is taught</b> in a <i>baraita</i>: <b>How</b> is it derived from the Torah that derivation <b>by</b> means of an <b><i>a fortiori</i> inference</b> is a valid method of biblical exegesis? The Torah states with regard to Miriam, who was reprimanded by God: <b>“And the Lord said to Moses: If her father had but spit in her face,</b> should she not hide in shame seven days? Let her be shut up outside the camp seven days” (Numbers 12:14). If one who was reprimanded by her father would hide in shame for seven days, one could infer through an <b><i>a fortiori</i></b> inference that one reprimanded by <b>the Divine Presence</b> should be shut up outside the camp for <b>fourteen days. Rather,</b> one must say: <b>It is sufficient for the</b> conclusion that <b>emerges from</b> an <i>a fortiori</i> <b>inference to be like</b> its <b>source.</b>
+
+### Part 7
+<b>Rabbi Yosei, son of Rabbi Avin, said: Rabbi Meir</b> does require that <i>a fortiori</i> inferences conform to this principle. But he does not actually infer his opinion <i>a fortiori</i>; rather, <b>he found a verse and interpreted</b> it.
+
+### Part 8
+The Torah states, with regard to the impurity of unslaughtered animal carcasses: <b>“This is the law of the beast, and of the fowl”</b> (Leviticus 11:46), indicating that the two are somehow equated. <b>But with regard to what law is a beast equal to a fowl and a fowl</b> equal <b>to a beast?</b> The <i>halakhot</i> of ritual impurity governing animals and birds are not comparable; <b>an animal transmits impurity by touching and by carrying,</b> whereas <b>a bird does not transmit impurity by touching or by carrying.</b> Furthermore, <b>a bird renders</b> the <b>garments</b> of one who swallows it <b>ritually impure</b> when it is <b>in the throat; an animal does not render</b> the <b>garments</b> of one who swallows it <b>ritually impure</b> when it is <b>in the throat.</b>
+
+### Part 9
+<b>Rather,</b> this verse serves <b>to tell you</b> that <b>just as</b> with regard to <b>an animal, that which renders it fit for consumption,</b> i.e., slaughter, <b>purifies it,</b> even when it is <b>a <i>tereifa</i>, from its impurity, so too</b> with regard to <b>a bird, that which renders</b> it <b>fit for consumption,</b> i.e., both the slaughter of a non-sacred bird and pinching the nape of a bird offering, <b>purifies</b> a bird, even if it is <b>a <i>tereifa</i>, from its impurity.</b>
+
+### Part 10
+§ The Gemara asks: <b>And what is the reasoning of Rabbi Yehuda,</b> who holds that a bird that is a <i>tereifa</i> imparts impurity even when slaughtered? He too <b>found a verse and interpreted</b> it. The Torah states with regard to the ritual impurity of kosher bird carcasses: “And every soul that eats <b>a carcass,</b> or <b>a <i>tereifa</i></b>…he shall be impure until the evening” (Leviticus 17:15). <b>Rabbi Yehuda said: Why was</b> the case of <b>a <i>tereifa</i> stated? If</b> the verse is referring to <b>a live <i>tereifa</i>,</b> it should not be impure, as the term <b>“a carcass” is stated,</b> indicating that to impart impurity the bird must be dead. <b>If</b> it is referring to <b>a <i>tereifa</i></b> that <b>is not alive,</b> but rather has died of its wounds, <b>it</b> falls <b>within the category of a carcass. Rather,</b> the word <i>tereifa</i> is written <b>to include a <i>tereifa</i> that one slaughtered</b> before it had the opportunity to die by itself, to teach <b>that it imparts ritual impurity</b> as would a carcass.
+
+### Part 11
+<b>Rav Sheizevi said to</b> the Sage who suggested this source for Rabbi Yehuda’s opinion: <b>If that is so,</b> one should interpret another verse likewise, <b>as it is written: “And the fat of a carcass, and the fat of a <i>tereifa</i>,</b> may be used for any other service” (Leviticus 7:24), meaning that although the meat of a carcass imparts ritual impurity, those fats that would be forbidden even if the animal had been slaughtered do not impart impurity.
+
+### Part 12
+<b>There too let us say,</b> interpreting the verse according to Rabbi Yehuda’s logic: Why is the case of a <i>tereifa</i> stated? <b>If</b> it is referring to <b>a live <i>tereifa</i>,</b> the case is superfluous, as <b>“a carcass” is stated.</b> Since the forbidden fat of a carcass is pure, obviously that of a live animal is pure. <b>If</b> it is referring to <b>a <i>tereifa</i></b> that <b>is not alive,</b> but has rather died of its wounds, <b>it is</b> included <b>within the category of “a carcass,”</b> and likewise it need not be mentioned. <b>Rather,</b> the word “<i>tereifa</i>” is written <b>to include a <i>tereifa</i> that one slaughtered,</b> to teach <b>that its</b> forbidden <b>fat</b> is <b>pure. By inference,</b> one should then conclude <b>that</b> its meat <b>does impart impurity.</b>
+
+### Part 13
+<b>But doesn’t Rav Yehuda say</b> that <b>Rav says, and some say it was taught in a <i>baraita</i>:</b> The verse concerning the impurity of carcasses states: <b>“And if some animal,</b> of which you may eat, <b>dies,</b> one who touches its carcass shall be impure” (Leviticus 11:39)? The word “some” teaches that <b>some animals impart impurity</b> and <b>some animals do not impart impurity. And what is</b> it <b>that</b> does not impart impurity? <b>That is a <i>tereifa</i> that one slaughtered.</b> And if even its meat does not impart impurity, the word <i>tereifa</i> is not needed to teach that its forbidden fat is pure.
+
+### Part 14
+<b>Rather,</b> the word <b><i>tereifa</i></b> in the verse concerning forbidden fat (Leviticus 7:24) <b>is necessary to exclude non-kosher</b> animals from the <i>halakha</i> in the verse and to teach that their forbidden fat is impure. The word indicates that only the forbidden fat of <b>those</b> carcasses <b>to whose species</b> the <i>halakha</i> of <b><i>tereifa</i> applies,</b> i.e., those of kosher animals, impart impurity. Forbidden fat of a carcass of a non-kosher animal <b>is excluded, as</b> the <i>halakha</i> of <b><i>tereifa</i> does not apply to its species.</b> The status of <i>tereifa</i> is immaterial for a non-kosher animal as its consumption is prohibited in any event.
+
+### Part 15
+<b>Here too,</b> the word <i>tereifa</i> in the verse concerning the impurity of kosher bird carcasses (Leviticus 17:15) should be interpreted as <b>excluding</b> a carcass of <b>a non-kosher bird</b> from ritual impurity, <b>as</b> the <i>halakha</i> of <b><i>tereifa</i> does not apply to its species.</b> Therefore, this verse cannot serve as a source for Rabbi Yehuda’s opinion with regard to the impurity of a slaughtered bird that is a <i>tereifa</i>.
+
+### Part 16
+The Gemara responds: <b>According to Rabbi Yehuda,</b> the <i>halakha</i> that carcass of <b>a non-kosher bird</b> does not impart impurity <b>is derived from</b> the phrase <b>“a carcass”</b> as it appears elsewhere.
+
+### Part 17
+<b>As it is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says:</b> One <b>might</b> have thought that <b>the carcass of a non-kosher bird renders</b> the <b>garments</b> of one who swallows it <b>ritually impure</b> when it is <b>in the throat.</b> But <b>the verse states,</b> concerning the impurity of carcasses of birds: <b>“A carcass, or a <i>tereifa</i>, he shall not eat”</b> (Leviticus 22:8). This type of impurity applies only to <b>those</b> birds <b>that are forbidden</b> specifically <b>due to</b> the prohibition: <b>You shall not eat</b> of <b>a carcass,</b> i.e., kosher birds that died without ritual slaughter. <b>This</b> carcass of a non-kosher animal <b>is excluded,</b> and is not impure, <b>as</b> it is <b>forbidden not due to</b> the prohibition: <b>You shall not eat</b> of <b>a carcass,</b> but <b>rather due to</b> the prohibition: <b>You shall not eat a non-kosher</b> bird, to render yourself impure with it. Consequently, the word <i>tereifa</i> in the aforementioned verse (Leviticus 17:15) teaches that a slaughtered <i>tereifa</i> imparts ritual impurity, as originally posited.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

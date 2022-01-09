@@ -1,0 +1,36 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>These</b> following items are themselves <b>forbidden, and any amount</b> of them <b>renders</b> other items with which they become mixed <b>forbidden: Wine</b> used for <b>a libation; and</b> objects of <b>idol worship; and hides</b> with a tear opposite the <b>heart,</b> indicating the idolatrous practice of sacrificing hearts of live animals.
+
+### Part 2
+<b>And</b> this <i>halakha</i> also applies to <b>an ox that</b> has been condemned to be <b>stoned</b> (see Exodus 21:28), from which it is prohibited to derive benefit even before its sentence is carried out; <b>and</b> it applies to <b>a heifer whose neck is broken</b> when a person is found killed in an area between two cities and the murderer is unknown (see Deuteronomy 21:1–9), which is likewise forbidden from the time it is taken down to the river to be killed. In these cases, if the animal becomes mixed in a herd of similar animals, all of the animals in the herd are forbidden.
+
+### Part 3
+<b>And</b> this <i>halakha</i> also applies to <b>birds</b> designated for the purification <b>of a leper</b> (Leviticus 14:1–6), <b>and the</b> shorn <b>hair of a nazirite</b> (Numbers 6:18), <b>and a firstborn donkey</b> (Exodus 13:13), <b>and meat</b> that was cooked <b>in milk</b> (Exodus 23:19), <b>and the scape-goat</b> of Yom Kippur (Leviticus 16:7–10), <b>and</b> the meat of <b>a non-sacred</b> animal <b>that was slaughtered in the</b> Temple <b>courtyard.</b> All of <b>these</b> are <b>forbidden</b> themselves, <b>and any amount</b> of them <b>renders</b> a mixture <b>forbidden.</b>
+
+### Part 4
+<strong>GEMARA:</strong> According to <b>what</b> criterion <b>does the <i>tanna</i></b> who teaches this mishna <b>reckon</b> cases? <b>If he reckons</b> based on any <b>item that is counted,</b> i.e., any item that is significant enough to be considered individually, which therefore cannot be nullified in a mixture even in a very large majority of permitted items, <b>let him also teach</b> the case of significant <b>cuts of an</b> unslaughtered <b>animal carcass.</b> And <b>if he reckons</b> based on <b>items from which</b> deriving <b>benefit is prohibited, let him also teach</b> the case of <b>leavened bread on Passover. Rabbi Ḥiyya bar Abba said, and some say</b> it was <b>Rabbi Yitzḥak Nappaḥa</b> who said: <b>This <i>tanna</i> has two</b> criteria. He reckons based on any <b>item that is</b> both <b>counted and from which</b> deriving <b>benefit is prohibited.</b>
+
+### Part 5
+The Gemara challenges: <b>But let</b> the <i>tanna</i> <b>teach</b> the cases of <b><i>perekh</i> nuts,</b> a type of nut that has a brittle shell, <b>and Badan pomegranates,</b> pomegranates from Badan; <b>as</b> these fruits are considered significant, and when they grow during the first three years after the tree was planted [<i>orla</i>], they belong to the category of <b>items that are counted and from which</b> deriving <b>benefit is prohibited.</b>
+
+### Part 6
+The Gemara responds: The Mishna <b>taught that</b> case <b>there,</b> in tractate <i>Orla</i> (3:7), where <i>perekh</i> nuts and Badan pomegranates are listed among the forbidden items that cannot be nullified in a mixture, and it is stated with regard to such items: <b>Those</b> items <b>to which</b> the prohibition of <b><i>orla</i> applies</b> render the entire mixture forbidden by imparting to it the status of <b><i>orla</i>,</b> while <b>those to which</b> the prohibition of <b>diverse kinds</b> planted <b>in a vineyard applies</b> render the mixture forbidden by imparting to it the status of <b>diverse kinds</b> planted <b>in a vineyard.</b> Therefore, it is unnecessary to mention those cases here.
+
+### Part 7
+The Gemara suggests: <b>But let</b> the <i>tanna</i> <b>teach</b> the case of <b>loaves of a homeowner,</b> each of which is unique and significant, <b>with regard to</b> the prohibition against deriving benefit from <b>leavened bread on Passover.</b> The Gemara explains: <b>Whom did you hear who says that</b> such loaves are not nullified in a mixture? This is taught by <b>Rabbi Akiva,</b> and <b>he taught it there</b> in tractate <i>Orla</i> (3:7): <b>Rabbi Akiva adds</b> to the list <b>the loaves of a homeowner.</b>
+
+### Part 8
+At the end of the mishna here, the <i>tanna</i> reiterates the <i>halakha</i> stated at its beginning, saying: All of <b>these</b> are forbidden themselves, and any amount of them renders a mixture forbidden. The Gemara asks: The purpose of this reiteration is <b>to exclude what?</b> The Gemara answers: It serves <b>to exclude</b> any <b>item that is counted but from which</b> deriving <b>benefit is not prohibited, or to exclude items from which</b> deriving <b>benefit is prohibited but</b> that <b>are not counted.</b>
+
+### Part 9
+<strong>MISHNA:</strong> In the case of <b>wine</b> used for <b>a libation that fell into</b> a wine <b>cistern,</b> it is <b>prohibited</b> to derive <b>benefit</b> from <b>all of</b> the wine in the cistern, even if the volume of the wine used for a libation was tiny in comparison to the volume of the wine in the cistern. <b>Rabban Shimon ben Gamliel says: All of the</b> wine in the cistern <b>may be sold to a gentile,</b> and the money paid for it is permitted <b>except for the value of the wine</b> used for <b>a libation</b> that is included <b>in it.</b>
+
+### Part 10
+<strong>GEMARA:</strong> <b>Rav says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel</b> in a case where <b>a barrel</b> of wine used for a libation became intermingled <b>with barrels</b> of permitted wine, <b>but not</b> when the <b>wine</b> itself became mixed <b>with</b> permitted <b>wine. And Shmuel says: Even</b> when the <b>wine</b> itself became mixed <b>with</b> permitted <b>wine,</b> the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel. <b>And likewise, Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: Even</b> when <b>wine</b> became mixed <b>with wine,</b> the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel. <b>And likewise, Rabbi Shmuel bar Naḥmani says</b> that <b>Rabbi Ḥanina says: Even</b> when <b>wine</b> became mixed <b>with wine,</b> the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel. <b>And likewise, Rav Naḥman says</b> that <b>Rabba bar Avuh says: Even</b> when <b>wine</b> became mixed <b>with wine,</b> the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel.
+
+### Part 11
+<b>Rav Naḥman says:</b> The <b>practical <i>halakha</i></b> is that with regard to <b>wine</b> that was actually used for <b>a libation, wine</b> that became mixed <b>with wine</b> renders the entire mixture <b>forbidden,</b> but if <b>a barrel</b> became intermingled <b>with barrels</b> of permitted wine, it is <b>permitted</b> to sell the barrels in the manner described by Rabban Shimon ben Gamliel. With regard to <b>nondescript wine</b> of gentiles, which is forbidden due to the suspicion that it was used for a libation, <b>even</b> if <b>wine</b> became mixed <b>with wine,</b> it is <b>permitted</b> to sell the mixture in the manner described by Rabban Shimon ben Gamliel.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+<b>and</b> there is a principle that <b>a positive mitzva</b> by itself <b>does not override</b> both <b>a prohibition and a positive mitzva. But</b> as for the ruling that he does not consummate levirate marriage with a widow <b>from betrothal, why</b> not? The <b>positive mitzva</b> to consummate levirate marriage should <b>come and override the prohibition.</b>
+
+### Part 2
+The Gemara answers: The <b>first</b> act of <b>intercourse</b> is prohibited by rabbinic <b>decree due to</b> the likelihood of <b>a second</b> act of <b>intercourse.</b> Although the first act of intercourse would fulfill the positive mitzva of consummating levirate marriage, which would override the prohibition against a High Priest’s engaging in intercourse with a widow, any further intercourse would not be in fulfillment of a mitzva, and would not override the prohibition. Therefore, due to the possibility that the High Priest and the <i>yevama</i> would engage in intercourse a second time, the Sages decreed that even the first act is forbidden.
+
+### Part 3
+The Gemara comments: <b>This is also taught</b> in a <i>baraita</i>: <b>If</b> the High Priest or one whose <i>yevama</i> is forbidden to him <b>went ahead and engaged in a first</b> act of <b>intercourse</b> with her, <b>he acquired</b> her as a wife, <b>but it is prohibited to retain</b> that woman as a wife <b>for a second</b> act of <b>intercourse.</b>
+
+### Part 4
+§ The mishna teaches with regard to the High Priest that if a relative <b>of his died,</b> he does not follow the bier carrying the corpse. <b>The Sages taught</b> in a <i>baraita</i>: The verse concerning the High Priest, which states: <b>“And from the Temple he shall not emerge”</b> (Leviticus 21:12), means: <b>He shall not emerge with them</b> as they escort the bier, <b>but he emerges after them. How so?</b> Once <b>they are concealed</b> from sight by turning onto another street, <b>he is revealed</b> on the street they departed, and when <b>they are revealed,</b> then <b>he is concealed.</b>
+
+### Part 5
+The mishna teaches Rabbi Meir’s opinion, that in the manner just described to escort the deceased, the High Priest <b>emerges with them until the entrance</b> of the gate of the city, which is contrasted with Rabbi Yehuda’s opinion that he does not leave the Temple at all. The Gemara comments: <b>Rabbi Yehuda is saying well,</b> and his statement is consistent with the straightforward meaning of the verse: “And from the Temple he shall not emerge” (Leviticus 21:12).
+
+### Part 6
+The Gemara responds: <b>Rabbi Meir</b> could have <b>said to you: If so,</b> that you understand the verse so narrowly, he should <b>not</b> go out <b>to his house as well</b> but should be required to stay in the Temple. <b>Rather, this</b> is what <b>it is saying: “And from the Temple [<i>hamikdash</i>] he shall not emerge”</b> means: <b>From his sanctity [<i>mikedushato</i>] he shall not emerge</b> by contracting ritual impurity, <b>and since he has a distinctive indicator</b> in that he does not walk together with those accompanying the bier, <b>he will not come to touch</b> the bier and contract impurity.
+
+### Part 7
+The Gemara asks: <b>And</b> how would <b>Rabbi Yehuda</b> respond? The Gemara explains: There is still cause for concern that <b>on account of his bitterness</b> due to the death of his loved one, <b>perhaps it will happen that he comes and touches</b> the bier. Therefore, a more restrictive regimen of separation is necessary.
+
+### Part 8
+The mishna teaches: And <b>when he consoles</b> others in their mourning when they return from burial, the way of all the people is that they pass by one after another and the mourners stand in a line and are consoled, and the appointed person stands in the middle, between him and the people. <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 4:1) in a more detailed manner: <b>When</b> the High Priest <b>passes by in the line to console others, the deputy</b> High Priest <b>and</b> the <b>former anointed</b> High Priest, who had served temporarily and then stepped down, are <b>on his right. And the head of the patrilineal family</b> appointed over the priestly watch performing the sacrificial rites that day in the Temple; <b>and the mourners; and all the people</b> are <b>on his left. And when he is standing in the line</b> among the other mourners <b>and is consoled by others, the deputy</b> High Priest is <b>on his right, and the head of the patrilineal family and all the people</b> are <b>on his left.</b>
+
+### Part 9
+The Gemara infers: <b>But</b> the <b>previously anointed one does not come before him. What is the reason?</b> The High Priest <b>will become distraught. He will think: He is happy about me</b> in my bereaved state. <b>Rav Pappa said: Learn from it, from this <i>baraita</i>, three</b> matters. <b>Learn from it</b> that <b>the deputy</b> High Priest <b>is</b> the same as the <b>appointed</b> person, as the <i>baraita</i> is referring to the deputy High Priest in the same function described by the mishna as the appointed one. <b>And learn from it</b> that the way of consoling in a line is that <b>the mourners stand and all the people pass by</b> and console them. <b>And learn from it</b> that the custom is that the <b>mourners stand to the left of the consolers.</b>
+
+### Part 10
+<b>The Sages taught</b> in a <i>baraita</i>: <b>Initially the mourners would stand, and all the people would pass by</b> one after another and console them. <b>And there were two families in Jerusalem who would fight with each other,</b> as <b>this</b> one <b>would say: We pass by first</b> because we are more distinguished and important, <b>and that</b> one <b>would say: We pass by first.</b> Consequently, <b>they decreed that the people should stand and</b> the <b>mourners pass by,</b> and disputes would be avoided.
+
+### Part 11
+The Gemara presents <b>a mnemonic</b> for the following discussion: <b>Returned; and walk; and converse.</b>
+
+### Part 12
+<b>Rami bar Abba says: Rabbi Yosei returned the matter to its former</b> custom <b>in Tzippori</b> his city, <b>that the mourners would stand and all the people would pass. And Rami bar Abba says: Rabbi Yosei instituted</b> an ordinance <b>in Tzippori that a woman should not walk in the market and</b> have <b>her son</b> following <b>behind her;</b> rather, he should walk in front of her, <b>because of an incident that happened</b> in which bandits abducted a child and assaulted the mother when she came searching for him in his place of captivity. <b>And Rami bar Abba says: Rabbi Yosei instituted</b> an ordinance <b>in Tzippori that women should converse in the bathroom, because of</b> the restrictions on women being <b>secluded</b> with men. Since the public bathrooms there were outside the city a man might enter to take advantage of a woman, but he would be warded off by the women’s conversation.
+
+### Part 13
+<b>Rav Menashya bar Ute says: I asked</b> a question of <b>Rabbi Yoshiya the Great in the cemetery of Huzal, and he said</b> this <i>halakha</i> <b>to me: There is no line</b> for consoling mourners with <b>fewer than ten people, and</b> the <b>mourners are not</b> included in the <b>count.</b> This minimum number of consolers applies <b>whether the mourners stand and all the people pass by, or the mourners pass by and all the people stand.</b>
+
+### Part 14
+§ The mishna teaches: And <b>when he is consoled</b> by others in his mourning, all the people say to him: We are your atonement. And he says to them: May you be blessed from Heaven. <b>A dilemma was raised before</b> the Sages: <b>When</b> the High Priest <b>consoles others, what</b> should <b>he say to them? Come</b> and <b>hear</b> an answer from a <i>baraita</i>: <b>And he says: May you be consoled.</b> The Gemara asks: <b>What are the circumstances</b> in which he says this? <b>If we say that when others console him</b> in his mourning <b>he says to them: May you be consoled,</b> this does not make sense, because <b>he</b> would be <b>throwing a curse at them</b> by saying that they too will need to be consoled. <b>Rather,</b> it must mean: <b>When he consoles others, he says to them: May you be consoled. Learn from</b> the <i>baraita</i> that this is what he says to console others.
+
+### Part 15
+§ The mishna teaches: <b>A king does not judge</b> and is not judged. <b>Rav Yosef says: They taught</b> this <i>halakha</i> <b>only</b> with regard to <b>the kings of Israel,</b> who were violent and disobedient of Torah laws, <b>but</b> with regard to <b>the kings of the house of David,</b> the king <b>judges and is judged, as it is written: “O house of David, so says the Lord: Execute justice in the morning”</b> (Jeremiah 21:12). <b>If they do not judge him, how can he judge? But isn’t it written: “Gather yourselves together, yea, gather together [<i>hitkosheshu vakoshu</i>]”</b> (Zephaniah 2:1), <b>and Reish Lakish says:</b> This verse teaches a moral principle: <b>Adorn [<i>kashet</i>] yourself</b> first, <b>and then adorn others,</b> i.e., one who is not subject to judgment may not judge others. Since it is understood from the verse in Jeremiah that kings from the Davidic dynasty can judge others, it is implicit that they can also be judged.
+
+### Part 16
+The Gemara asks: <b>But what is the reason</b> that others <b>do not</b> judge <b>the kings of Israel?</b> It is <b>because of an incident that happened, as the slave of Yannai the king killed a person. Shimon ben Shataḥ said to the Sages: Put your eyes on him and let us judge him. They sent</b> word <b>to</b> Yannai: <b>Your slave killed a person.</b> Yannai <b>sent</b> the slave <b>to them. They sent</b> word <b>to</b> Yannai: <b>You also come here,</b> as the verse states with regard to an ox that gored a person to death: <b>“He should be testified against with his owner”</b> (Exodus 21:29). <b>The Torah stated: The owner of the ox should come and stand over his ox.</b>
+
+### Part 17
+The Gemara continues to narrate the incident: Yannai <b>came and sat down. Shimon ben Shataḥ said to him: Yannai the king, stand on your feet and</b> witnesses <b>will testify against you. And</b> it is <b>not before us</b> that <b>you are standing,</b> to give us honor, <b>but</b> it is <b>before the One Who spoke and the world came into being</b> that <b>you are standing, as it is stated: “Then both the people, between whom the controversy is, shall stand</b> before the Lord, before the priests and the judges that shall be in those days” (Deuteronomy 19:17). Yannai the king <b>said to him:</b> I will <b>not</b> stand <b>when you</b> alone <b>say</b> this to me, <b>but according to what your colleagues say,</b> and if the whole court tells me, I will stand.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

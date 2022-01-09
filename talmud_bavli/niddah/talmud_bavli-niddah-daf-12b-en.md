@@ -1,0 +1,33 @@
+
+### Part 1
+Rava <b>said to</b> Rav Pappa: <b>Wise one [<i>sudani</i>]! No, won’t she be demeaned before him?</b> It is embarrassing for her if she is awoken and has to think about whether or not she is pure. <b>Rav Kahana says: I asked the members of the households,</b> i.e., the wives, <b>of Rav Pappa and of Rav Huna, son of Rav Yehoshua: When the Sages,</b> your husbands, <b>came</b> home <b>from</b> the <b>study hall,</b> did they <b>require you</b> to perform <b>an examination prior</b> to intercourse? <b>And they said to me: No.</b> The Gemara asks: <b>But</b> why ask their wives? Why not <b>ask</b> those Sages <b>themselves?</b> The Gemara answers: <b>Perhaps</b> they might rule leniently for others, while <b>acting stringently with themselves.</b> Therefore, their wives were asked, to determine how the Sages conducted themselves in their personal lives.
+
+### Part 2
+§ <b>The Sages taught</b> in a <i>baraita</i>: With regard to <b>a woman who does not have</b> a fixed menstrual <b>cycle,</b> she is <b>forbidden to engage in intercourse, and she does not have</b> the right to receive payment of her <b>marriage contract</b> if divorced or widowed, <b>nor</b> is she entitled to payment from her husband for the <b>produce</b> of her property that he consumed, <b>nor</b> is she entitled to provisions for her <b>sustenance</b> from his estate, <b>nor</b> does she get back her <b>worn clothes</b> or other items she brought with her to her marriage as part of her dowry. And furthermore, her husband <b>must divorce</b> her <b>and he may never remarry</b> her. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 3
+<b>Rabbi Ḥanina ben Antigonus says:</b> She is permitted to <b>engage in intercourse</b> with her husband, but she must examine herself <b>with two examination cloths,</b> one prior to intercourse and one afterward. <b>They</b> may be to <b>her detriment</b> if she finds blood on the cloths, or <b>they</b> may lead to <b>her betterment,</b> since if she finds no blood she is permitted to her husband. <b>They said in the name of Abba Ḥanan: Woe to her husband!</b>
+
+### Part 4
+The Gemara explains each clause of the <i>baraita</i>: She is <b>forbidden to engage in intercourse,</b> as <b>perhaps she will ruin</b> her husband if she emits blood during intercourse. <b>And</b> with regard to the <i>halakha</i> that <b>she does not have</b> the right to receive payment of her <b>marriage contract,</b> the reason is that <b>since</b> she is <b>not fit for intercourse, she is not</b> entitled to payment of her <b>marriage contract.</b>
+
+### Part 5
+The Gemara continues its explanation: <b>And</b> she is <b>not</b> entitled to payment for the <b>produce</b> of her property, <b>nor</b> is she entitled to provisions for her <b>sustenance</b> from his estate, <b>nor</b> does she get back her <b>worn clothes.</b> The reason for all these is because <b>stipulations in the marriage contract are considered like the marriage contract</b> itself. Since she is not entitled to a marriage contract, she is likewise not entitled to these additional provisions that are stipulated in the marriage contract.
+
+### Part 6
+The Gemara analyzes the next clause in the <i>baraita</i>: Her husband <b>must divorce</b> her <b>and he may never remarry</b> her. The Gemara asks: Isn’t that <b>obvious?</b> The Gemara answers: <b>No,</b> it is <b>necessary</b> to teach this in a case <b>where</b> her situation <b>was subsequently amended,</b> i.e., she established a fixed menstrual cycle. <b>Lest you say</b> that he <b>may remarry her,</b> the <i>baraita</i> <b>teaches us</b> that this is not permitted, <b>as sometimes</b> such a woman might <b>go and marry</b> someone else <b>and</b> her status is <b>subsequently amended.</b>
+
+### Part 7
+<b>And</b> the problem in this scenario is that her first husband might <b>say: If I would have known that it is like this,</b> that she would be cured, <b>even if you would have given me one hundred</b> times <b>one hundred dinars</b> to divorce her <b>I would not have divorced her. And</b> if so, the <b>bill of divorce</b> will be <b>found</b> to be <b>void, and her children</b> from her second husband will be considered <b><i>mamzerim</i>.</b> Therefore it must be made clear to him from the outset that this divorce is final.
+
+### Part 8
+The Gemara analyzes the final clause of the <i>baraita</i>: <b>They said in the name of Abba Ḥanan: Woe to her husband! Some say</b> that <b>he said this to Rabbi Meir, as</b> Abba Ḥanan maintains that the husband is <b>required to settle</b> her payment of <b>her marriage contract</b> upon their divorce. And <b>some say</b> that <b>he said this to Rabbi Ḥanina ben Antigonus,</b> since Abba Ḥanan disagrees with his opinion and holds that it is forbidden to engage in intercourse with her, <b>as</b> perhaps <b>she will ruin him</b> if they engage in intercourse when she is menstruating.
+
+### Part 9
+<b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Ḥanina ben Antigonus.</b> The Gemara asks: <b>And with regard to what</b> case did Shmuel issue this ruling of <i>halakha</i>? The Gemara elaborates: <b>If</b> it is referring to a woman who <b>is engaged in</b> handling ritually <b>pure</b> items, <b>didn’t Shmuel</b> already <b>say</b> on <b>another occasion</b> that a woman without a fixed menstrual cycle must examine herself prior to intercourse?
+
+### Part 10
+<b>And if</b> it is referring to a woman <b>who is not engaged in</b> handling ritually <b>pure</b> items, <b>doesn’t</b> Shmuel <b>say</b> that in <b>any</b> case where an examination is only <b>for</b> the purpose of intercourse with <b>her husband,</b> not for handling pure items, she is <b>not required</b> to perform <b>an examination? As Rabbi Zeira said</b> that <b>Rabbi Abba bar Yirmeya says</b> that <b>Shmuel says: A woman who does not have</b> a fixed menstrual <b>cycle is forbidden to engage in intercourse until she examines</b> herself, <b>and we interpreted this</b> statement as referring to cases <b>where she is engaged in</b> handling ritually <b>pure</b> items. The Gemara answers: <b>He who teaches this does not teach that,</b> i.e., Shmuel’s ruling is in fact referring to a woman engaged in handling pure items, and the two rulings were cited in his name by different Sages.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,45 @@
+
+### Partie 1
+le peuple juif <b>a traverse</b> dans la meme formation <b>qu'il campait.</b> Il etait necessaire que l'eau ne s'eleve qu'a douze <i>mil</i> de hauteur pour permettre a tout le campement de passer le Jourdain. <b>Selon la declaration de Rabbi Elazar, fils de Rabbi Shimon,</b> qui a dit que l'eau se tenait a une hauteur de plus de trois cents <i>mil</i>, l'eau devait atteindre ces hauteurs pour laisser suffisamment de temps a tout le monde pour traverser le Jourdain, car <b>ils traversaient l'un apres l'autre.</b>
+
+### Partie 2
+<b>Et l'on dit :</b> Selon <b>les deux</b> ce <b>Sage et</b> ce <b>Sage, ils ont traverse</b> dans la meme formation <b>qu'ils ont campe. </b> Cependant, un <b>Sage,</b> Rabbi Yehuda, <b>soutient</b> que <b>une personne</b> se deplace <b>plus vite</b> que l'eau, <b>et</b> un <b>Sage,</b> Rabbi Elazar fils de Rabbi Shimon, <b>soutient</b> que <b>l'eau</b> se deplace <b>plus vite</b> qu'une personne.
+
+### Partie 3
+§ Puisque la Guemara a mentionne la grappe de raisin que les espions ont rapportee d'Eretz Yisrael, elle continue a discuter de l'histoire des espions. Il est dit dans la Torah que Dieu a dit a Moise : <b>"Envoie-toi</b> des hommes" (Nombres 13:2). <b>Reish Lakish dit : <b>"Envoie-toi"</b> signifie que tu dois les envoyer <b>a ta propre discretion</b> et non comme un ordre divin. Car, s'il s'agissait d'un ordre divin, <b>Est-ce qu'une personne choisit une mauvaise portion pour elle-meme ?</b> Puisque Dieu connaissait la nature de ces espions et qu'ils finiraient par calomnier le pays, Il ne les aurait certainement pas envoyes Lui-meme. <b>Et c'est</b> le sens de <b>ce qui est ecrit</b> dans le passage ou Moise raconte a nouveau l'histoire des espions : <b>"Et cela etait bon a mes yeux"</b> (Deuteronome 1:23), et <b>Reish Lakish dit:</b> L'implication de ces mots est que cela semblait bon <b>"a mes yeux", mais pas aux yeux de l'Omnipresent.</b>
+
+### Partie 4
+La Torah relate que le peuple a demande a Moise d'envoyer des espions afin <b>"qu'ils explorent le pays pour nous"</b> (Deuteronome 1:22). <b>Rabbi Hiyya bar Abba dit :</b> Lorsque le peuple juif a demande d'envoyer des <b>espions, son intention etait uniquement de faire honte a Eretz Yisrael. Il est ecrit ici : "Pour qu'ils fouillent [<i>veyahperu</i>] la terre pour nous," et il est ecrit la : "Alors la lune sera embarrassée [<i>vehafera</i>], et le soleil sera honteux"</b> (Isaie 24:23).
+
+#### Partie 5
+La Torah declare a propos des espions : <b>"Et voici leurs noms : De la tribu de Ruben, Shammua, fils de Zaccur"</b> (Nombres 13:4). <b>Rabbi Yitzhak dit : Cette declaration</b> qui suit <b>est une tradition qui nous a ete transmise</b> <b>par nos ancetres :</b> Les <b>espions etaient nommes d'apres leurs actions, mais nous avons obtenu</b> l'interpretation d'un <b>seul</b> nom, celui de <b>Sethur le fils de Michael"</b> (Nombres 13:13). Il est appele <b>Sethur, car il a cache [<i>satar</i>] les actions du Saint, Beni soit-Il.</b> En d'autres termes, il a ignore les miracles que Dieu a accomplis pour le peuple juif en Egypte et dans le desert. Il est appele <b>Michael, car il a fait en sorte que Lui, </b> Dieu, apparaisse <b>faible [<i>makh</i>]</b> en disant qu'il n'y avait pas assez de nourriture dans le pays pour tout le monde.
+
+### Partie 6
+<b>Rabbi Yohanan dit : On peut aussi dire</b> une interpretation du nom : <b>"Nahbi le fils de Vophsi"</b> (Nombres 13:14) : Il est appele <b>Nahbi, car il a dissimule [<i>hehbi</i>] la declaration du Saint, Beni soit-Il,</b> que la terre est bonne, en en livrant une description deformee. Il est appele <b>Vophsi, car il a pietine [<i>pisseâ</i>] les attributs du Saint, Beni soit-Il,</b> c'est-a-dire qu'il n'a pas cru en Sa promesse de donner Eretz Yisrael au peuple juif.
+
+### Partie 7
+Il est egalement precise a propos des espions : <b>"Et ils monterent dans le sud, et il arriva a Hebron"</b> (Nombres 13:22). Pourquoi l'expression "et il vint" est-elle ecrite au singulier ? Le verset <b>aurait du</b> dire : <b>Et ils sont venus.</b> Rava dit :</b> Ceci <b>enseigne que Caleb se separa du conseil des</b> autres <b>espions et alla se prosterner sur les tombes des ancetres</b> a Hebron. <b>Il leur dit : Mes aieux, priez la misericorde pour moi afin que je sois sauve du conseil des espions.</b>
+
+### Partie 8
+La Guemara explique : <b>Joshua</b> n'est pas alle sur les tombes des ancetres car <b>Moise avait deja prie pour qu'on lui fasse misericorde, comme il est dit : "Et Moise appela Hoshea fils de Nun Josue [<i>Yehoshua</i>]"</b> (Nombres 13:16), ce qui signifie : <b>Dieu vous sauvera [<i>Ya yoshiakha</i>] du conseil des espions. Et c'est</b> le sens de <b>ce qui est ecrit : "Mais mon serviteur Caleb, parce qu'il avait un autre esprit avec lui,</b> et qu'il m'a pleinement suivi, c'est lui que je ferai entrer dans le pays ou il est alle" (Nombres 14:24), ce qui implique que Caleb a change d'avis avec le temps. En revanche, Josue s'est oppose des le depart aux intentions des autres espions.
+
+### Partie 9
+Le verset continue d'indiquer au sujet d'Hebron : <b>"Et Ahiman, Sheshai et Talmai,</b> les enfants d'Anak, etaient la" (Nombres 13:22). <b>Ahiman</b> etait appele de ce nom car il etait le plus <b>habile [<i>meyumman</i>] parmi ses freres. Sheshai</b> etait appele par ce nom <b>parce qu'il transformait la terre</b> qu'il foulait <b>en fosses [<i>shehatot</i>]</b> en raison de ses grandes dimensions. <b>Talmai</b> etait appele ainsi <b>parce qu'il transformait la terre</b> qu'il foulait <b>en sillons</b> sur <b>des sillons [<i>telamim</i>]</b> en raison de son poids.
+
+### Partie 10
+<b>Alternativement,</b> leurs noms signifient une autre affaire : <b>Ahiman</b> est celui qui a <b>bati</b> la ville d'<b>Anat. Sheshai a construit</b> la ville de <b>Alush. Talmai a construit</b> la ville de <b>Talbush.</b> Le verset les decrit comme <b>les enfants d'Anak"</b> car ils etaient si grands et larges qu'il semblait <b>comme</b> s'ils portaient [<i>maânikin</i> le soleil</b> comme un collier <b>en raison de leur taille.</b>
+
+### Partie 11
+La suite du verset indique : <b>Mais Hebron a ete construite sept ans [<i>shanim</i>]</b> avant Zoan d'Egypte [<i>Mitzrayim</i>]</b> (Nombres 13:22). La Guemara demande : <b>Quel est le sens de la phrase <b>"a ete construit" ? Si nous disons</b> qu'elle <b>a ete effectivement construite</b> sept ans avant Zoan, <b>Est-ce qu'une personne construirait une maison pour son fils cadet avant</b> qu'elle en construise une <b>pour son fils aine ?</b> Canaan etait le plus jeune fils de Cham, <b>comme il est ecrit : "Et les fils de Cham : Cush, et Mizraim,</b> et Put, et Canaan" (Genese 10:6). Comment alors Hebron, ville du pays de Canaan, aurait-elle pu etre construite avant Zoan, ville du pays d'Egypte, occupee par les descendants de Mizraim ?
+
+### Partie 12
+<b>Au contraire,</b> le sens du verset est <b>que</b> Hebron <b>etait sept fois plus feconde [<i>mevunna</i>] que Zoan. Et il n'y a pas de terre plus pierreuse en Eretz Yisrael que Hebron.</b> Cela est evident <b>parce qu'on y enterrait les morts,</b> tout comme les ancetres y etaient enterres. Cela se faisait uniquement sur des terres qui n'etaient pas adaptees a l'agriculture. <b>Et de toutes les terres, il n'y en a aucune de meilleure qualite que la terre d'Egypte, comme il est dit : <b>Comme le jardin du Seigneur, comme la terre d'Egypte"</b> (Genese 13:10). <b>Et il n'y avait pas de terre de plus haute qualite</b> dans tout le pays d'Egypte que Zoan, comme il est ecrit</b> a propos des ministres de Pharaon, qui auraient certainement vecu sur la plus belle terre du pays : <b>"Car ses princes sont a Zoan"</b> (Esaie 30:4). <b>Et malgre cela, Hebron etait sept fois plus fructueuse que Zoan.</b>
+
+### Partie 13
+La Gemara demande : <b>Mais est-ce que</b> la terre de <b>Hebron</b> est en fait <b>pierreuse ? Mais n'est-il pas ecrit : "Et au bout de quarante ans, Absalom dit au roi : Je te prie de me laisser aller</b> et d'accomplir le vœu que j'ai fait a l'Eternel, a Hebron" (IIA Samuel 15:7) ? <b>Et Rav Avya dit, et certains disent</b> que c'etait <b>Rabba bar bar Hanan:</b> Cela signifie <b>que</b> Absalom <b>est alle chercher des moutons</b> specifiquement <b>de Hebron. Et cela est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Menahot</i> 9:3) : On doit apporter au Temple les animaux les plus choisis comme offrandes. <b>Les beliers</b> sont apportes <b>de Moab,</b> et les <b>moutons</b> sont apportes <b>de Hebron.</b> Cela indique que Hebron possede des terres riches ou l'on eleve des moutons gras et sains. La Gemara repond : <b>D'apres cette source</b> meme, on peut prouver que Hebron n'est pas adaptee a l'agriculture. <b>Puisque la terre</b> y <b>est mince, elle ne produit</b> que de l'herbe pour <b>le paturage et engraisser le betail.</b>
+
+### Partie 14
+Le verset dit : <b>"Et ils revinrent apres avoir explore le pays</b> au bout de quarante jours.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

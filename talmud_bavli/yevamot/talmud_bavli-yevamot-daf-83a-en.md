@@ -1,0 +1,30 @@
+
+### Part 1
+<b>The mishna</b> here, which states that according to Rabbi Yosei a priest who is a hermaphrodite enables his wife to eat <i>teruma</i>, <b>is not</b> to be relied upon <b>in the presence of a <i>baraita</i></b> that teaches otherwise. <b>As it is taught</b> in a <i>baraita</i> that <b>Rabbi Yosei says: A hermaphrodite is a creature unto himself, and the Sages did not determine whether he is a male or a female.</b> He is consequently prohibited from marrying a woman, and if he does so he does not enable her to eat <i>teruma</i>.
+
+### Part 2
+The Gemara asks: <b>On the contrary,</b> say that <b>the <i>baraita</i> is not</b> to be relied upon <b>in the presence of the mishna</b> here, as <i>baraitot</i> are generally considered less authoritative than <i>mishnayot</i>. The Gemara answers: <b>From</b> the fact <b>that Rabbi Yosei left his colleague,</b> Rabbi Shimon, as the mishna’s ruling is attributed to both Rabbi Yosei and Rabbi Shimon whereas the teaching of the <i>baraita</i> is reported only in the name of Rabbi Yosei, <b>learn from this</b> that Rabbi Yosei <b>retracted</b> his original opinion that he had maintained together with Rabbi Shimon and reached a different conclusion.
+
+### Part 3
+<b>And Shmuel said</b> the reverse: <b>The <i>baraita</i> is not</b> to be relied upon <b>in the presence of the mishna</b> here. The Gemara asks: <b>On the contrary,</b> say that <b>the mishna</b> here <b>is not</b> to be relied upon <b>in the presence of the <i>baraita</i>, as we</b> have <b>heard that Shmuel takes into consideration</b> even <b>an individual</b> dissenting opinion appearing in a <i>baraita</i>. The Gemara answers: <b>This applies only when the mishna</b> itself is <b>not</b> thereby <b>uprooted,</b> as the <i>baraita</i> merely adds to it. <b>But when the mishna is uprooted</b> by a contrary statement taught in a <i>baraita</i>, <b>he does not take</b> it <b>into consideration.</b>
+
+### Part 4
+The Sages of <b>the school of Rav said in the name of Rav</b> that the <b><i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yosei,</b> both <b>with regard to</b> the <i>halakha</i> of <b>a hermaphrodite and with regard to</b> the <i>halakha</i> of <b>grafting. And Shmuel says:</b> The <i>halakha</i> is in accordance with his opinion <b>with regard to</b> the laws of <b>protracted labor and forfeiture.</b>
+
+### Part 5
+The Gemara clarifies: The <i>halakha</i> of <b>a hermaphrodite</b> is <b>that which we</b> just <b>said,</b> that he is considered a creature unto himself (Rabbeinu Ḥananel). The <i>halakha</i> of <b>grafting</b> is <b>as we learned</b> in a mishna (<i>Shevi’it</i> 2:6): <b>One may not plant, or sink</b> the shoot of a vine into the ground, <b>or graft</b> a shoot onto a tree on the <b>eve of the Sabbatical Year less than thirty days before Rosh HaShana,</b> lest it take root in the seventh year. <b>And if he planted or sank or grafted, he must uproot</b> it. <b>Rabbi Yehuda says: Any graft that does not take root in three days will never take root,</b> and therefore it is prohibited to plant only for three days before the start of the Sabbatical Year. <b>Rabbi Yosei and Rabbi Shimon say</b> that it takes <b>two weeks</b> for a plant to take root.
+
+### Part 6
+<b>And Rav Naḥman said</b> that <b>Rabba bar Avuh said: According to</b> the first <i>tanna</i>, <b>who says thirty</b> days, he means that <b>thirty</b> days are <b>required</b> for the tree to take root <b>and</b> another <b>thirty</b> days are required for the addition to the Sabbatical Year, as the prohibitions of the Sabbatical Year apply already during the last thirty days of the sixth year. It is consequently prohibited to plant sixty days before Rosh HaShana. And similarly, <b>according to</b> Rabbi Yehuda, <b>who says three</b> days, he means that <b>three</b> days <b>are required</b> for the tree to take root <b>and</b> another <b>thirty</b> days are required for the addition to the Sabbatical Year. And so too, <b>according to</b> Rabbi Yosei and Rabbi Shimon, <b>who say two weeks,</b> they mean that <b>two weeks are required</b> for the tree to take root <b>and</b> another <b>thirty</b> days are required for the addition to the Sabbatical Year. Rav rules on this matter in accordance with the opinion of Rabbi Yosei.
+
+### Part 7
+<b>And Shmuel said</b> that the <i>halakha</i> is ruled in accordance with the opinion of Rabbi Yosei <b>with regard to protracted labor and proscription</b> as well. The Gemara explains: What is the case of <b>protracted labor? As we learned</b> in a mishna (<i>Nidda</i> 36b): Ordinarily a woman who experiences a flow of blood on three consecutive days during a time of the month when she does not expect to experience menstrual bleeding is rendered ritually impure as a <i>zava</i>. However, if she experiences such bleeding while she is in protracted labor, the bleeding is attributed to her labor, and she is governed by the <i>halakhot</i> of a woman after childbirth.
+
+### Part 8
+The <i>tanna’im</i> disagree about the question: <b>How long is</b> a woman’s period of <b>protracted labor?</b> For what period of time prior to her giving birth is the bleeding attributed to her labor? <b>Rabbi Meir says:</b> It is up to <b>forty or fifty days</b> before she delivers. <b>Rabbi Yehuda says: Her month suffices for her,</b> i.e., it is from the beginning of the month in which she gives birth. <b>Rabbi Yosei and Rabbi Shimon say: Protracted labor does not last for more than two weeks.</b> Shmuel rules in accordance with Rabbi Yosei in this case.
+
+### Part 9
+What is this <i>halakha</i> of <b>proscription? As we learned</b> in a mishna (<i>Kilayim</i> 7:4): If <b>one causes his grapevine to overshadow the grain of another, he has proscribed</b> it, rendering it forbidden as a food crop in a vineyard, <b>and he bears</b> financial <b>responsibility for it,</b> i.e., he must compensate the other individual for the loss of the produce that has been rendered forbidden. This is <b>the statement of Rabbi Meir. Rabbi Yosei and Rabbi Shimon say:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

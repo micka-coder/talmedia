@@ -1,0 +1,30 @@
+
+### Partie 1
+La Gemara objecte : <b>Laissons</b> nous <b>apprendre du</b> cas du belier du nazirite que la saveur de la nourriture sacrificielle peut etre annulee. La Gemara explique : <b>Le Misericordieux a revele</b> dans la Torah <b>en ce qui concerne le sacrifice pour le peche : "Tout ce qui touchera sa chair sera saint"</b> (Levitique 6:20). Cela enseigne que le statut halakhique de tout aliment qui touche et absorbe la saveur d'une offrande pour le peche <b>devient semblable a celle-ci, de sorte que</b> si l'offrande pour le peche <b>est disqualifiee,</b> cet aliment <b>doit</b> egalement <b>etre disqualifie, et si</b> l'offrande pour le peche est <b>valide,</b> cet aliment peut etre <b>consomme conformement aux rigueurs</b> qui s'appliquent a une offrande pour le peche.
+
+### Partie 2
+La Gemara demande : <b>Et qu'as-tu vu</b> pour indiquer <b>que l'on apprend</b> le principe d'annulation concernant la nourriture sacrificielle <b>a partir de ce</b> verset de l'offrande pour le peche ? <b>Derivez-le</b> plutot <b>de ce</b> verset concernant la patte avant du belier du nazirite. La Gemara repond : <b>Ce</b> cas du belier nazirite</b> est une nouveaute, et on n'apprend pas</b> des principes <b>a partir d'une nouveaute.</b>
+
+### Partie 3
+La Guemara objecte : <b>Si oui,</b> si le cas du belier du nazirite n'est pas un precedent viable pour les principes halakhiques generaux, alors <b>on ne devrait pas non plus apprendre</b> de ce cas que lorsqu'un aliment interdit est melange a un aliment permis d'un type different, il est annule soit en <b>cent ou soixante</b> fois son propre volume. Comme discute ci-dessus, les deux avis a cet egard sont tous deux bases sur le cas du belier du nazirite. La Guemara repond : <b>Est-ce a dire</b> que <b>nous apprenons</b> que la nourriture interdite est annulee dans soixante ou cent fois son volume de nourriture permise comme <b>une indulgence ? Nous l'apprenons</b> uniquement comme <b>une rigueur, car</b> s'il n'y avait pas cette derivation, on dirait que <b>par la loi de la Torah</b> l'aliment interdit <b>est annule dans</b> un melange dans lequel il y a une simple <b>majorite</b> d'aliment permis.
+
+### Partie 4
+<b>Ravina a dit</b> une explication alternative de ce terme : C'est-a-dire, qui apparait dans le <i>baraita</i> en ce qui concerne le belier du nazirite. Cette limitation <b>n'est necessaire que pour l'endroit</b> ou la patte avant est <b>coupee</b> du corps du belier, <b>comme</b> il a ete <b>dit</b> que dans un cas ou des aliments permis et interdits etaient attaches et que l'on coupe la partie interdite de la partie permise, <b>l'endroit de la coupe</b> sur la partie permise <b>est generalement interdit. Mais ici,</b> dans le cas du belier du nazirite, <b>il est permis.</b>
+
+### Partie 5
+§ La Guemara revient a la discussion de la declaration de Rabbi Shmuel bar Rav Yitzhak (98a) selon laquelle un aliment interdit est annule dans un melange uniquement s'il y a cent fois son volume d'aliment permis. <b>Rav Dimi s'est assis et a dit cette <i>halakha</i>.</b>
+
+### Partie 6
+<b>Abaye lui dit : Et</b> est-il vrai que <b>tous les aliments interdits</b> dans la Torah</b> qui sont melanges a des aliments autorises ne sont annules que <b>dans</b> un melange contenant <b>cent fois</b> leur volume d'aliments autorises ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Orla</i> 2:6) : <b>Pourquoi les Sages ont-ils</b> <b>dit</b> qu'en ce qui concerne <b>toute personne qui fait lever</b> un aliment non sacre avec un agent levant qui est <i>teruma</i> <b>ou l'aromatise</b> avec des epices de <i>teruma</i> <b>ou melange</b> <i>teruma</i> a un aliment non sacre, rendant ainsi l'aliment interdit aux non-pretres, le <i>halakha</i> doit <b>etre rigoureux</b> s'il a melange un <b>type</b> d'aliment qui est <i>teruma</i> avec un aliment non sacre du meme <b>type. </b> Mais le <i>halakha</i> est <b>a etre indulgent et a etre rigoureux</b> s'il a melange un <b>type</b> de <i>teruma</i> avec un aliment non sacre d'un <b>type different.</b>
+
+### Partie 7
+<b>Et il est enseigne dans cette derniere clause,</b> c'est-a-dire dans la mishna suivante (<i>Orla</i> 2:7) : Lorsqu'il est dit que le <i>halakha</i> doit <b>etre indulgent et etre rigoureux</b> s'il a melange un <b>type</b> de <i>teruma</i> avec un aliment non sacre <b>non</b> de <b>son type, comment</b> cela est-il accompli ? Par exemple, dans le cas de <b>feves fendues</b> de <i>teruma</i> qui ont ete cuites <b>avec</b> des <b>lentilles non sacrees, s'il y a</b> suffisamment de feves fendues par rapport aux lentilles pour <b>importer de la saveur</b> aux lentilles, alors independamment de <b>s'il y a</b> suffisamment de lentilles <b>pour neutraliser</b> les feves fendues <b>en cent un</b> fois leur volume, c'est-a-dire. e., le volume des lentilles est cent une fois le volume des haricots casses, ou <b>s'il n'y a pas</b> assez de lentilles <b>pour neutraliser</b> les haricots casses <b>en cent un</b> fois leur volume, l'ensemble du melange est <b>interdit</b> a un non-pretre.
+
+### Partie 8
+A l'inverse, si <b>il n'y a pas</b> assez de haricots casses de <i>teruma</i> pour <b>imposer une saveur</b> aux lentilles, alors independamment de <b>s'il y a</b> assez de lentilles <b>pour neutraliser</b> les haricots casses <b>en cent un</b> fois leur volume, ou <b>qu'il n'y ait pas</b> assez de lentilles <b>pour neutraliser</b> les haricots casses <b>dans cent un</b> fois leur volume, le melange est <b>permis</b> meme a un non-pretre.
+
+### Partie 9
+Abaye commente : Lorsque la mishna dit qu' <b>il n'y a pas</b> suffisamment de lentilles <b>pour neutraliser</b> les haricots casses <b>dans cent un</b> fois leur volume, et que neanmoins si les haricots casses ne conferaient pas de saveur aux lentilles, le melange est permis, <b>dans quelle quantite</b> de lentilles les haricots casses sont-ils annules ? N'est-ce <b>pas</b> que les haricots casses sont autorises parce qu'ils sont melanges <b>avec soixante</b> fois leur volume de lentilles non sacrees ? Ceci contredit l'opinion de Rabbi Shmuel bar Rav Yitzhak.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

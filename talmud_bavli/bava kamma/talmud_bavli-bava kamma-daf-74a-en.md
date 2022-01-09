@@ -1,0 +1,63 @@
+
+### Part 1
+<b>From</b> the fact that <b>the latter clause</b> of the <i>baraita</i> states a ruling <b>with regard to</b> a case in which the second set of witnesses both <b>reverses</b> the order of events <b>and renders</b> the first pair <b>as conspiring witnesses,</b> it may be inferred that <b>the first case as well,</b> in parallel fashion, states a ruling <b>with regard to</b> a case in which the second set of witnesses both <b>reverses</b> the order of events <b>and renders</b> the first pair <b>as conspiring witnesses.</b>
+
+### Part 2
+This is <b>as it teaches</b> in <b>the latter clause</b> of the <i>baraita</i>, that if witnesses say: <b>We testify</b> with regard to <b>so-and-so that he knocked out his</b> Canaanite <b>slave’s tooth and</b> afterward <b>blinded his eye,</b> which requires the master to emancipate him and compensate him for the value of his eye, <b>as that is what the slave says,</b> i.e., this testimony is advantageous to the slave, <b>and</b> subsequently <b>they were found</b> to be <b>conspiring witnesses, they pay the value of an eye to the master.</b>
+
+### Part 3
+Abaye analyzes this clause of the <i>baraita</i>: <b>What are the circumstances</b> of this case? <b>If</b> it is speaking of a situation <b>where the latter</b> set of witnesses, who attested that the first set of witnesses were conspiring witnesses, <b>do not concede that</b> there was any <b>injury at all</b> inflicted on the slave by his master, then there is no testimony to confirm that those injuries were inflicted other than that given by the witnesses who were shown to be conspiring witnesses. Consequently, <b>they should be required to pay the entire value of the slave to the master,</b> as this is the amount of monetary damage the master stood to incur as a result of their false testimony.
+
+### Part 4
+<b>Rather, it is obvious that all of them,</b> i.e., both the first set of witnesses and the latter set, <b>concede with regard to the injury</b> inflicted on the slave by the master. They both agree that the master both blinded the slave’s eye and knocked out his tooth and therefore is obligated to emancipate him. They disagree concerning only the order of events. The first set of witnesses said that the tooth injury occurred first and the eye injury occurred afterward. Consequently, they sought to require the master to emancipate the slave and compensate him for the eye injury.
+
+### Part 5
+<b>And</b> the second set of witnesses <b>reversed</b> the order of events in their testimony, saying that the eye injury took place first, <b>and</b> in the same testimony, <b>they rendered</b> the first pair <b>conspiring witnesses,</b> by testifying that they were not present when the events occurred. Since the latter clause of the <i>baraita</i> must be interpreted in this manner, it stands to reason that the first case should be explained similarly.
+
+### Part 6
+The Gemara analyzes Abaye’s interpretation of the <i>baraita</i>: <b>And what are the circumstances</b> of the case? The second set of witnesses, who are deemed credible, have established that the injuries did not take place on the date reported by the first set of witnesses. According to their testimony, when did the injuries take place? <b>If the latter</b> witnesses <b>postdated</b> the events, by testifying that the injuries were actually inflicted at a later stage than that mentioned by the first set of witnesses, the first set of witnesses should <b>still be required to pay the</b> full <b>value of a slave to the master.</b>
+
+### Part 7
+The reason the first set of witnesses should be liable is <b>that when they</b> sought to <b>impose liability upon the man,</b> i.e., the master, this <b>man was not yet</b> burdened with any <b>liability.</b> When the first set of witnesses testified about the injuries, the master was not yet obligated to emancipate his slave or pay damages. Therefore, these conspiring witnesses should be required to pay these sums, which they had sought to impose on the master. <b>Rather,</b> it must be that <b>the latter</b> set of witnesses <b>predated</b> the time of the injuries, by testifying that they were inflicted at an earlier date than that attested to by the first set of witnesses.
+
+### Part 8
+The Gemara continues to analyze the case: <b>And if</b> the <i>baraita</i> is referring to a case <b>where</b> the master <b>had not</b> yet <b>stood trial</b> for having injured his slave when the first set of witnesses submitted their testimony, those witnesses <b>should still be required to pay the entire value of the slave to the master, as</b> at the time of their testimony <b>the man,</b> i.e., the master, was <b>not yet liable.</b> The first set of witnesses sought to render the master liable at a time when he was exempt from liability, and therefore they should be obligated to pay him the full value of the slave.
+
+### Part 9
+<b>Rather,</b> it must be <b>that</b> the master <b>had</b> already <b>stood trial</b> for having inflicted these injuries, and had been sentenced by the court to emancipate the slave for the first injury and pay him for the second injury. Then, the master evaded payment, and was subsequently brought before another court, where witnesses testified that the first court had established liability for knocking out the tooth first and then blinding the slave’s eye. This testimony was subsequently rendered conspiring testimony by a second set of witnesses, who testified both that the first set of witnesses was not at the scene of the first trial and that the results of the trial were actually reversed, i.e., the master’s liability was for blinding the eye first and then for knocking out the tooth. Since the first set of witnesses, who were rendered conspiring witnesses, sought to increase the master’s liability payment from that of the value of a tooth to that of an eye, they must pay the value of an eye to the master.
+
+### Part 10
+Rava sought to infer from this <i>baraita</i> to his opinion that contradiction of testimony is the start of determining that testimony is conspiring testimony. <b>Rav Aḥa, son of Rav Ika, said to Rav Ashi: From which</b> case in the <i>baraita</i> <b>is the inference of Rava? If we say</b> that his inference is <b>from the first clause,</b> this is difficult. In the case of <b>the first clause,</b> if it involves three sets of witnesses, as claimed by Rava, <b>is the intermediate</b> set of witnesses <b>contradicted</b> and rejected before they are established as conspiring witnesses? The first set of witnesses testified that the eye injury took place after the tooth injury, whereas the intermediate set of witnesses reversed the order. If so, the intermediate set of witnesses sought to lower the master’s payment from the value of an eye to that of a tooth.
+
+### Part 11
+Rav Aḥa continues: <b>Since if</b> the second set of witnesses <b>would not have been rendered conspiring witnesses, the testimony would</b> have been <b>established in accordance with</b> their statement, <b>as the judgment would have been decided in accordance with</b> their testimony. The reason their testimony would have determined the ruling is <b>that one hundred dinars</b> is subsumed <b>within two hundred,</b> i.e., testimony concerning a large sum includes testimony concerning a smaller sum.
+
+### Part 12
+Rav Aḥa continues: <b>Therefore, it is the first</b> set of witnesses, who testified that the eye injury occurred last, <b>whose</b> testimony would be considered <b>contradicted</b> and rejected, whereas the testimony of <b>the intermediate</b> set of witnesses would <b>not</b> be considered <b>contradicted at all,</b> as it is accepted in full. If so, this is not a case of witnesses who were rejected due to contradiction and then subsequently rendered conspiring witnesses.
+
+### Part 13
+Rav Ashi <b>said to</b> Rav Aḥa in response: <b>Rava maintains</b> that <b>from</b> the fact <b>that</b> the ruling of <b>the first clause</b> of the <i>baraita</i> is stated <b>with regard to</b> a case involving <b>three sets</b> of witnesses, it is logical to assume that the ruling of <b>the latter clause is also</b> stated <b>with regard to</b> a case involving <b>three</b> sets of witnesses, <b>and</b> Rava <b>infers</b> his ruling <b>from the latter clause.</b>
+
+### Part 14
+Rava explains that the latter clause is referring to a case <b>where two</b> witnesses, i.e., the ones mentioned in the <i>baraita</i>, <b>come and say:</b> The master <b>knocked out</b> the slave’s <b>tooth and</b> afterward <b>blinded his eye, and</b> the court <b>ruled</b> its <b>judgment in accordance with their statement,</b> obligating the master to emancipate his slave and compensate him for the value of his eye.
+
+### Part 15
+<b>And</b> subsequently <b>two other</b> witnesses, who were not mentioned in the <i>baraita</i>, <b>come and say</b> that the events were reversed: First the master <b>blinded his</b> slave’s <b>eye and</b> then <b>he knocked out his tooth,</b> so <b>that they contradict</b> the testimony of <b>those first</b> witnesses. At this point the master is obligated to emancipate his slave and pay him only the value of his tooth, as this much was required of him according to both sets of witnesses. <b>And</b> then the first pair <b>were found to be conspiring witnesses.</b> Therefore, as the <i>baraita</i> states, <b>the first</b> set of witnesses <b>pays</b> the <b>value of an eye to the master,</b> less the value of a tooth.
+
+### Part 16
+Rava reaches his conclusion based on the following reasoning: <b>And if it enters your mind that</b> the <b>contradiction</b> of testimony <b>is not the start of determining that</b> testimony is <b>conspiring</b> testimony, and witnesses who were first contradicted and then rendered conspiring witnesses are not punished as conspiring witnesses, <b>why must</b> these witnesses <b>pay? They were</b> already <b>contradicted from the outset,</b> before they were shown to be conspiring witnesses. <b>Rather, conclude from</b> the latter clause of the <i>baraita</i> that the <b>contradiction</b> of testimony <b>is the start of determining that</b> testimony is <b>conspiring</b> testimony.
+
+### Part 17
+<b>And</b> how could <b>Abaye,</b> who disagrees with Rava, refute this proof? He could <b>say to you: Granted, it is impossible</b> to interpret <b>the first clause without</b> the supposition <b>that</b> there are <b>three sets</b> of witnesses involved. The reason is <b>that</b> it <b>is taught</b> with regard to that first clause: <b>As that is what the master says,</b> i.e., this testimony is satisfactory to the master. The only testimony recorded in the <i>baraita</i> is that the master blinded the slave’s eye and then knocked out his tooth. Why would this be considered satisfactory to the master? It must therefore be assumed that this testimony was preceded by another one that was even less advantageous to the master. That testimony confirmed the injuries but placed the eye injury after the tooth injury, which involves greater liability for the master. Finally, a third set of witnesses must have arrived and rendered the intermediate set as conspiring witnesses, so that there are a total of three sets of witnesses.
+
+### Part 18
+<b>But</b> with regard to <b>the latter clause, why do I</b> need to explain it as referring to <b>three sets</b> of witnesses? If you say that it is because the <i>baraita</i> states concerning this case: <b>As that is what the slave says,</b> i.e., this testimony is satisfactory to the slave, this does not prove that there is another testimony, not mentioned in the <i>baraita</i>, that is less favorable to the slave than this one.
+
+### Part 19
+The reason is <b>that a slave would say anything,</b> i.e., any form of testimony would be favorable to him, <b>as it is satisfactory for him that he should be emancipated.</b> The court’s acceptance of testimony confirming either order of events would result in his emancipation from slavery, and therefore both testimonies are satisfactory to him. Although there is a compelling reason to posit the existence of three sets of witnesses in the first clause, there is no justification to do so in the second clause, and therefore it should be explained as did Abaye, as discussing only two sets of witnesses.
+
+### Part 20
+<b>Rabbi Zeira objects to</b> the basic assumption of the <i>baraita</i> that when a master inflicts two injuries upon his Canaanite slave he must indemnify the slave for the second injury. One can <b>say</b> instead that if the master <b>blinded his</b> slave’s <b>eye,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

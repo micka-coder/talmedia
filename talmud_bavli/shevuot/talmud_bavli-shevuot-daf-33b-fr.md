@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>qu'untel a calomnie ma fille.</b> Dans ce cas, les temoins sont <b>responsables</b> pour avoir prete un faux serment de temoignage. Si l'accuse <b>admet de lui-meme</b> qu'il a calomnie la jeune femme, il est <b>exempte</b> du paiement de l'amende. Dans le cas d'un mari qui accuse faussement sa femme d'adultere, le seul paiement est celui de l'amende, et pourtant la <i>baraita</i> dit que les temoins sont responsables pour avoir prete un faux serment de temoignage.
+
+### Partie 2
+La Gemara repond : Selon l'avis de <b>qui</b> <b>est ce</b> <i>baraita</i> ? <b>C'est</b> conformement a l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon, qui dit :</b> Meme si celui qui est redevable de l'amende admet sa responsabilite, <b>les temoins viendront temoigner</b> et rendront celui qui a accompli l'action redevable de l'amende.
+
+### Partie 3
+La Gemara demande : <b>Dit la derniere clause</b> de la <i>baraita</i> : Si cet homme a <b>admis de lui-meme</b> qu'il a calomnie la jeune femme, il est <b>exempte</b> de payer l'amende. Ostensiblement, en cela <b>nous arrivons</b> a l'avis des <b>Rabbins,</b> qui considerent que si celui qui est responsable admet sa responsabilite avant que les temoins ne temoignent, il est exempte de payer l'amende, contrairement a l'avis de Rabbi Elazar, fils de Rabbi Shimon.
+
+### Partie 4
+La Guemara explique : La <i>baraita</i> dans <b>son integralite est</b> l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon, et c'est</b> ce que la <i>tanna</i> <b>dit</b> dans la derniere clause : <b>Vous trouvez</b> un cas de celui qui a <b>admis</b> la responsabilite <b>de lui-meme</b> qu'il est <b>exempte</b> de payer l'amende, <b>seulement</b> dans un cas <b>ou il n'y a pas du tout de temoins et qu'il a admis</b> la responsabilite <b>de lui-meme.</b> Dans un cas ou il y a des temoins, il est tenu de payer l'amende sur la base de leur temoignage meme s'il a admis la responsabilite.
+
+### Partie 5
+<strong>MISHNA :</strong> Dans un cas ou le plaignant a dit a deux temoins : <b>Je vous fais preter serment</b> concernant votre refus de temoigner <b>si vous ne venez pas temoigner que je suis un pretre,</b> ou <b>que je suis un levite,</b> ou <b>que je ne suis pas le fils</b> d'un pretre et <b>d'une femme divorcee,</b> ou <b>que je ne suis pas le fils</b> d'un pretre et <b>d'une <i>halutza</i>, </b> ou <b>qu'untel est pretre,</b> ou <b>qu'untel est levite,</b> ou <b>qu'il n'est pas le fils</b> d'un pretre et d'une <b>femme divorcee,</b> ou <b>qu'il n'est pas le fils</b> d'un pretre et d'une <i>halutza</i> ; </b> dans tous ces cas, les temoins sont exempts de responsabilite pour avoir prete un faux serment de temoignage, car il ne s'agit pas de reclamations monetaires.
+
+### Partie 6
+De meme, si le plaignant leur dit : Je vous administre un serment concernant votre refus de temoigner si vous ne venez pas temoigner <b>qu'untel a viole sa fille, ou</b> qu'il a seduit sa fille, ou que mon fils m'a blesse, ou qu'une autre</b> personne m'a <b>blesse</b> le Chabbat, ou <b>qu'il a mis le feu a ma pile de grains le Chabbat ; </b> dans tous ces cas <b>ces</b> temoins <b>sont exemptes,</b> car chaque cas est passible de la peine de mort, et donc ce sont des cas qui n'impliquent pas de paiement monetaire.
+
+### Partie 7
+<strong>GEMARA:</strong> La Gemara en deduit : <b>La raison</b> pour laquelle les temoins sont exemptes est que le plaignant a exige qu'ils temoignent <b>qu'untel est un pretre</b> ou <b>qu'untel est un levite,</b> qui sont des revendications qui n'impliquent pas de paiement monetaire ; <b>mais</b> si le plaignant disait : Je vous administre un serment concernant votre refus de temoigner si vous ne venez pas temoigner que <b>cent dinars</b> appartenant <b>a untel sont en possession</b> d'un autre <b>untel,</b> ils seraient <b>responsables. Mais n'est-ce pas enseigne</b> dans <b>la derniere clause</b> de la mishna (35a) : Les temoins sont exemptes <b>jusqu'a ce qu'ils entendent</b> une demande de venir temoigner directement <b>de la bouche du plaignant,</b> et ici l'individu qui administre le serment n'est pas le plaignant.
+
+### Partie 8
+<b>Shmuel dit :</b> On fait ici reference a un cas <b>ou l'individu qui administre le serment <b>vient avec l'autorisation</b> d'exiger que les temoins temoignent en son nom. La Gemara demande : <b>Mais est-ce que</b> les Sages <b>de Nehardeâ n'ont pas dit : On ne redige pas un document d'autorisation concernant un bien mobilier ?</b> La Gemara repond : <b>Cette affirmation</b> selon laquelle on ne redige pas d'autorisation concernant des biens meubles ne s'applique que dans un cas <b>ou</b> le defendeur a deja <b>denie</b> la creance a son encontre. <b>Mais</b> dans un cas ou le defendeur <b>n'a pas</b> encore <b>denie</b> la creance contre lui, <b>on ecrit</b> l'autorisation meme pour les biens meubles.
+
+### Partie 9
+§ <b>Les Sages ont enseigne : D'ou</b> provient-il <b>que le verset</b> relatif au serment de temoignage <b>ne parle que</b> des cas impliquant <b>une creance monetaire ? Rabbi Eliezer dit :</b> De multiples occurrences du terme <b>"ou" sont enoncees ici,</b> en ce qui concerne un serment de temoignage : "Et il entend la voix d'un serment et il est temoin ou il a vu ou il a su" (Levitique 5:1), <b>et</b> de multiples occurrences du terme <b>"or" sont enoncees ici,</b> a propos d'un serment sur un depot : "Et il traite faussement son prochain dans une affaire de depot, ou de pret non rembourse, ou de vol, ou il a exploite son collegue, ou il a trouve un objet perdu" (Levitique 5:21""22) ; <b>tout comme la,</b> le verset <b>ne parle que des</b> cas impliquant <b>une creance monetaire, ici aussi,</b> le verset <b>ne parle que des</b> cas impliquant <b>une creance monetaire.</b>
+
+### Partie 10
+La Gemara conteste : Les multiples occurrences du terme <b>Ou</b> qui sont enoncees a propos d'un <b>meurtrier :</b> "Et s'il l'a bouscule avec haine ou a jete sur lui un vase quelconque sans le guetter ou par inimitie l'a frappe de sa main" (Nombres 35 : 20""21), <b>vont prouver</b> que les multiples occurrences du terme "ou" ne sont pas liees a la limitation de l'application de la <i>halakha</i> aux cas impliquant une reclamation monetaire, <b>car</b> ce sont <b>des occurrences multiples du terme <b>"or"</b> dans des versets <b>qui ne parlent pas</b> de cas impliquant <b>une reclamation monetaire. </b>
+
+### Partie 11
+La Gemara repond : <b>On deduit</b> de multiples occurrences du terme <b>"or" avec lequel il y a un serment</b> prononce, c'est-a-dire un serment de temoignage, <b>de</b> multiples occurrences du terme <b>"or" avec lequel il y a un serment</b> prononce, c'est-a-dire, un serment sur un depot, <b>et</b> les multiples occurrences du terme <b>"or" qui</b> sont enoncees a propos de <b>un meurtrier ne prouveront</b> rien de contraire, <b>car il n'y a pas de serment dans leur</b> contexte.
+
+### Partie 12
+La Gemara conteste : Les multiples occurrences du terme <b>Ou</b> qui sont enoncees a propos d'une <b>sota</i></b> dans la Torah : "Or si l'esprit de jalousie est venu sur lui"¦ou sur un homme sur lequel est venu un esprit de jalousie" (Nombres 5 : 14, 30), <b>prouvera</b> que les multiples occurrences de ce terme n'ont aucun rapport avec une reclamation monetaire, <b>car</b> ce <b>sont</b> de multiples occurrences du terme <b>"or," et il y a un serment</b> prete par le pretre a la <i>sota</i> <b>dans leur</b> contexte, <b>et</b> le verset <b>parle de</b> cas <b>non</b> impliquant <b>une reclamation monetaire. </b>
+
+### Partie 13
+La Gemara rejette cette idee : <b>On deduit</b> de multiples occurrences du terme <b>"or" avec lequel il y a un serment</b> administre <b>et avec lequel il n'y a pas de pretre</b> l'administrant, c'est-a-dire le cas d'un serment de temoignage, <b>de</b> multiples occurrences du terme <b>"or" avec lequel il y a un serment</b> administre <b>et avec lequel il n'y a pas de pretre</b> l'administrant, c'est-a-dire, un serment sur un depot, <b>et</b> les multiples occurrences du terme <b>"or" qui</b> sont enoncees a propos d'un <b>meurtrier ne prouveront</b> rien de contraire, <b>car il n'y a pas de serment dans leur</b> contexte, <b>et</b> les multiples occurrences du terme <b>"ou" qui</b> sont enoncees a propos de <b>une <i>sota</i> ne prouveront</b> rien de contraire, <b>car meme s'il y a un serment dans leur</b> contexte, <b>il y a un pretre</b> qui administre le serment <b>dans leur</b> contexte. C'est la source a partir de laquelle Rabbi Eliezer prouve que la responsabilite d'un serment de temoignage est limitee aux cas impliquant une demande monetaire.
+
+### Partie 14
+<b>Rabbi Akiva dit</b> qu'il est ecrit a propos d'un serment de temoignage : <b>"Et il arrivera qu'il se rende coupable de l'une de ces choses"</b> (Levitique 5:5). L'expression "de ceux-ci" est une expression restrictive dont elle est derivee : <b>Il y a</b> certains <b>de ceux-ci</b> pour lesquels il est responsable et il y a</b> certains <b>de ceux-ci</b> pour lesquels il est exempt. Comment cela ? </b> Si le demandeur a <b>exige</b> le temoignage du temoin en ce qui concerne <b>une demande monetaire</b>, le temoin est <b>responsable</b> pour avoir prete un faux serment ; si le demandeur a exige le temoignage du temoin en ce qui concerne <b>une autre question,</b> il est <b>exempte.</b>
+
+### Partie 15
+<b>Rabbi Yosei HaGelili</b> cite une preuve differente et <b>dit :</b> Le verset <b>declare</b> a propos d'un serment de temoignage : <b>"Et il est temoin ou il a vu ou il a su"</b> (Levitique 5:1). C'est <b>en ce qui concerne le temoignage fonde sur la vue,</b> c'est-a-dire l'observation directe, <b>sans connaissance</b> de la matiere, <b>ou au moyen</b> d'une <b>connaissance</b> indirecte de la matiere <b>sans vue</b> que <b>le verset s'exprime.</b>
+
+### Partie 16
+<b>Vue sans connaissance, comment ca ? </b> C'est un cas ou le creancier pretend : <b>J'ai compte pour toi cent dinars devant untel et untel,</b> et le debiteur repond : <b>Laissez untel et untel venir temoigner. Il s'agit ici</b> d'un cas de <b>voyance sans connaissance,</b> car les temoins ne savent pas si l'argent a ete compte comme un pret, un depot ou le remboursement d'un pret.
+
+### Partie 17
+<b>Connaissance sans vue, comment ca ? </b> C'est un cas ou le creancier reclame : <b>Vous avez reconnu</b> me devoir cent dinars devant untel et untel,</b> et le debiteur a repondu : <b>Laissez untel et untel venir temoigner. C'est</b> un cas de <b>connaissance</b> de la dette <b>sans vue</b> de la realisation du pret. Le temoignage fonde sur la vue sans la connaissance ou fonde sur la connaissance sans la vue n'est possible que dans les cas impliquant une creance monetaire.
+
+### Partie 18
+<b>Rabbi Shimon</b> cite une preuve differente et <b>dit : </b> La Torah a rendu quelqu'un <b>responsable</b> s'il fait un faux serment <b>ici</b> en matiere de temoignage, <b>et</b> la Torah a rendu quelqu'un <b>responsable</b> s'il fait un faux serment <b>en matiere de depot ; de meme que la,</b> le verset <b>parle</b> de responsabilite <b>uniquement dans</b> les cas impliquant <b>une creance monetaire, de meme ici,</b> le verset <b>parle</b> de responsabilite <b>uniquement dans</b> les cas impliquant <b>une creance monetaire. </b>
+
+### Partie 19
+<b>Et en outre,</b> on peut deduire cette <i>halakha</i> au moyen d'une <b>a fortiori</i></b> deduction de la <i>halakha</i> d'un depot. <b>Si</b> dans le cas d'un <b>depot, par rapport auquel</b> la Torah a <b>rendu</b> le statut halakhique <b>des femmes comme</b> celui des <b>hommes, </b> le statut halakhique des <b>parents comme</b> celui des <b>non-parents,</b> et le statut halakhique des <b>inaptes</b> temoins <b>comme</b> celui des <b>aptes</b> a temoigner, <b>et</b> il est <b>responsable de</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

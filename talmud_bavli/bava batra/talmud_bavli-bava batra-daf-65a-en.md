@@ -1,0 +1,36 @@
+
+### Part 1
+<b>The <i>halakha</i></b> is <b>in accordance with the statement of the Rabbis, while Rav Yirmeya bar Abba</b> says that <b>Shmuel says: The <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Akiva. Rav Yirmeya bar Abba said to Rav Huna: But many times I said before Rav</b> that <b>the <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Akiva, and never did he say anything to me,</b> which indicates that he holds that the <i>halakha</i> is in accordance with the opinion of Rabbi Akiva and not that of the Rabbis. Rav Huna <b>said to him: How did you teach</b> the mishna before Rav? Rav Yirmeya bar Abba <b>said to him: I taught</b> it with <b>the opposite</b> attributions, that is to say, the opinion that is attributed in the mishna to Rabbi Akiva, I would teach in the name of the Rabbis. Rav Huna said to him: <b>Due to that</b> reason, <b>he never said anything to you,</b> as Rav agreed with the version that you attributed to Rabbi Akiva.
+
+### Part 2
+With regard to the opinions of Rav and Shmuel, <b>Ravina said to Rav Ashi: Shall we say</b> that Rav and Shmuel, in their opinions stated with regard to this matter, each <b>follow their</b> general lines of <b>reasoning,</b> as they appear to have disagreed about this same issue in another context as well?
+
+### Part 3
+<b>As Rav Naḥman says</b> that <b>Shmuel says:</b> With regard to <b>brothers who divided</b> their father’s estate between them, <b>they do not have</b> a right of <b>way against each other,</b> i.e., to walk through the other’s property to reach his own, even though this is how the place was used in their father’s lifetime; <b>nor</b> do they have the right of <b>ladders against each other,</b> i.e., the right to set up a ladder in the other’s property in order to get to his own; <b>nor</b> do they have the right of <b>windows against each other,</b> i.e., the right to prevent the other from building a wall facing his windows; <b>nor</b> do they have the right of <b>a water channel against each other,</b> i.e., the right to pass a water channel through the other’s property.
+
+### Part 4
+Rav Naḥman continues: <b>And be careful with these</b> rulings, <b>since they are established <i>halakhot</i>. And Rav says: They do</b> retain all of these privileges. Consequently, Rav and Shmuel appear to be following their general lines of reasoning here, as Shmuel holds that when the brothers, who are like sellers, divide their father’s estate, they transfer property to each other generously without retaining privileges in each other’s property, while Rav holds that they transfer the property sparingly.
+
+### Part 5
+The Gemara comments: Nevertheless, it was <b>necessary</b> to teach this disagreement in both cases, as the <i>halakha</i> in the one case cannot be derived from the <i>halakha</i> in the other. <b>As had we been taught</b> this dispute only <b>in that</b> case, of the brothers who divided their father’s estate, I would have said that only <b>in that</b> case <b>does Rav say</b> that they retain all of the earlier privileges, <b>because</b> one brother can <b>say to</b> the other: <b>I wish to live in</b> this house <b>just as my ancestors,</b> who had all of those privileges, <b>lived in it. Know</b> that there is substance to this claim, <b>as it is written: “Instead of your fathers shall be your sons”</b> (Psalms 45:17). <b>But in this</b> case of an ordinary house sale, <b>say that he concedes to Shmuel</b> that a seller sells generously.
+
+### Part 6
+<b>And if</b> the dispute <b>was stated</b> only <b>in this</b> case of an ordinary house sale, I would have said that only <b>in this</b> case <b>does Shmuel say</b> that a seller sells generously and does not withhold a path for himself, <b>but in that</b> case, of the brothers who divided their father’s estate, <b>say that he concedes to Rav</b> that the desire to live there just as his ancestors did supersedes the seller’s general tendency to sell generously. Therefore, it was <b>necessary</b> to teach this dispute in both cases.
+
+### Part 7
+As for the ruling itself, <b>Rav Naḥman,</b> who was a disciple of Shmuel, <b>said to Rav Huna:</b> Is <b>the <i>halakha</i> in accordance with our opinion, or is the <i>halakha</i> in accordance with your opinion?</b> Rav Huna <b>said to him: The <i>halakha</i></b> is <b>in accordance with your opinion, as you are near the gate of the Exilarch, where the judges are</b> frequently <b>found,</b> and therefore you are more proficient in monetary law.
+
+### Part 8
+§ <b>It was stated:</b> If there are <b>two residences, one</b> situated <b>behind the other,</b> and the owner transferred ownership of the <b>two of them,</b> each one to a different person, <b>by means of</b> a <b>sale,</b> or if he transferred ownership of the <b>two of them,</b> each to a different person, <b>as a gift, they do not have</b> a right of <b>way against each other.</b> That is, the one who acquired the inner residence may not pass through the outer residence, since each of them received equal privileges from the previous owner. And <b>all the more so</b> is this the <i>halakha</i> if <b>the outer</b> residence was transferred <b>by means of a gift, and the inner</b> residence was transferred <b>by means of a sale,</b> as it may be assumed that a gift is made in a more generous manner than is a sale.
+
+### Part 9
+As for the case where the <b>outer</b> residence was transferred <b>by means of a sale, and the inner</b> residence was transferred <b>by means of a gift,</b> some Sages at first <b>understood from here</b> that <b>they do not have a</b> right of <b>way against each other,</b> that is, that the recipient of the inner residence may not pass through the outer residence.
+
+### Part 10
+<b>But</b> that <b>is not so,</b> as <b>didn’t we learn</b> in a mishna (71a): <b>In what</b> case <b>is this statement,</b> that these items are excluded, <b>said?</b> It is said <b>with regard to one who sells</b> a field, <b>but with regard to one who gives</b> it away as <b>a gift,</b> it is assumed that <b>he gives all of it,</b> including everything found in the field. <b>Apparently, one who gives</b> property <b>as a gift gives</b> it more <b>generously</b> than does one who sells it, as gifts are generally given to friends to whom one wishes to transfer as many privileges as possible. <b>Here too,</b> then, <b>one who gives</b> property <b>as a gift gives</b> it more <b>generously</b> than does one who sells it, and so the recipient of the inner residence acquires a right of way through the outer apartment.
+
+### Part 11
+<strong>MISHNA:</strong> One <b>who sells a house has,</b> as part of the sale, <b>sold</b> also <b>the door, but not the key. He has sold the mortar that is fixed</b> in the ground, <b>but not the portable</b> one. <b>He has sold the</b> immovable <b>lower millstone [<i>ha’itzterobil</i>], but not the</b> portable <b>upper stone [<i>hakelet</i>],</b> the funnel into which one pours the grain to be ground. <b>And</b> he has sold <b>neither the oven nor the double stove,</b> as they are deemed movable. <b>When</b> the seller <b>says to</b> the buyer: I am selling you <b>it, and everything that is in it,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

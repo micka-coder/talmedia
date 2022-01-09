@@ -1,0 +1,72 @@
+
+### Part 1
+<b>And if it should enter your mind that</b> the dead <b>do not know, then what of it if he tells them?</b> The Gemara rejects this: <b>Rather what</b> will you say, <b>that</b> they <b>know?</b> Then <b>why does he</b> need <b>to tell them?</b> The Gemara replies: This is not difficult, as he is telling them so that <b>they will give credit to Moses.</b>
+
+### Part 2
+On this subject, <b>Rabbi Yitzḥak said: Anyone who speaks</b> negatively <b>after the deceased it is as if</b> he <b>speaks after the stone.</b> The Gemara offers two interpretations of this: <b>Some say</b> this is because the dead <b>do not know, and some say</b> that <b>they know,</b> but <b>they do not care</b> that they are spoken of in such a manner.
+
+### Part 3
+The Gemara asks: <b>Is that so? Didn’t Rav Pappa say:</b> There was once <b>someone who spoke</b> disparagingly <b>after</b> the death of <b>Mar Shmuel and a reed fell from the ceiling, fracturing his skull?</b> Obviously, the dead care when people speak ill of them.
+
+### Part 4
+The Gemara rejects this: This is no proof that the dead care. Rather, a <b>Torah scholar is different, as God</b> Himself <b>demands</b> that <b>his honor</b> be upheld.
+
+### Part 5
+Rabbi Yehoshua <b>ben Levi said</b> similarly: <b>One who speaks</b> disparagingly <b>after the biers of Torah scholars</b> and maligns them after their death will <b>fall in Gehenna, as it is stated: “But those who turn aside unto their crooked ways, the Lord will lead them away with the workers of iniquity; peace be upon Israel”</b> (Psalms 125:5). <b>Even</b> if he speaks ill of them <b>when there is peace upon Israel,</b> after death, when they are no longer able to fight those denouncing them (<i>Tosafot</i>); nevertheless <b>the Lord will lead them away with the workers of iniquity,</b> to Gehenna.
+
+### Part 6
+On a similar note, <b>it was taught in the school of Rabbi Yishmael: If you saw a</b> Torah <b>scholar transgress a prohibition at night, do not think</b> badly <b>of him during the day; perhaps he has repented</b> in the meantime. The Gemara challenges this: <b>Does it enter your mind</b> that only <b>perhaps</b> he has repented? Shouldn’t he be given the benefit of the doubt? <b>Rather, he has certainly repented.</b> The Gemara notes: <b>The idea</b> that one must always give a Torah scholar the benefit of the doubt and assume that he has repented refers specifically to <b>matters</b> affecting <b>himself, but,</b> if one witnesses a Torah scholar committing a transgression <b>involving the property</b> of another, one is not required to give him the benefit of the doubt. Rather, he should not assume that he has repented <b>until</b> he sees him <b>return</b> the money to <b>its owner.</b>
+
+### Part 7
+Since matters relating to the respect due Torah scholars were raised, the Gemara continues, citing <b>Rabbi Yehoshua ben Levi,</b> who <b>said: There are twenty-four places in which the court ostracizes over</b> matters of <b>respect</b> due <b>the rabbi, and we learned them all in our Mishna. Rabbi Elazar said to him: Where</b> are those cases to be found? Rabbi Yehoshua ben Levi <b>said to him: When</b> you look, <b>you</b> will <b>find</b> them.
+
+### Part 8
+<b>He went out, analyzed, and found three</b> examples: <b>One who demeans</b> the ritual of <b>washing of the hands, one who speaks</b> disparagingly <b>after the bier of Torah scholars, and one who is arrogant vis-à-vis Heaven.</b> The Gemara cites sources for each of these cases.
+
+### Part 9
+<b>What is</b> the source for <b>one who speaks</b> disparagingly <b>after the biers of Torah scholars? As we learned</b> in the mishna: Akavya ben Mahalalel <b>would say:</b> In the case of a woman whose husband suspects her of adultery, who was warned by her husband not to seclude herself with another man and she did not listen (see Numbers 5), the court <b>does not administer</b> the bitter water potion of a <i>sota</i> to <b>a convert or an emancipated</b> maidservant. <b>And the Rabbis say:</b> The court <b>administers</b> the bitter water potion to them. <b>And</b> the Rabbis <b>said to him</b> as proof: <b>There is the story of Kharkemit, an emancipated maidservant in Jerusalem, and Shemaya and Avtalyon administered her</b> the bitter waters. Akavya ben Mahalalel <b>said to</b> the Sages: That is no proof. Shemaya and Avtalyon, who were also from families of converts, required the maidservant <b>to drink</b> the potion because she was <b>like them [<i>dugma</i>]. And</b> since Akavya ben Mahalalel cast aspersion on the deceased Torah scholars, <b>he was ostracized and died</b> while <b>he</b> was still under the ban of <b>ostracism. And</b> in accordance with the <i>halakha</i> with regard to one who dies while under a ban of ostracism, the court <b>stoned his coffin.</b> Apparently, one who deprecates a deceased Torah scholar is sentenced to ostracism.
+
+### Part 10
+And <b>what is</b> the source for <b>one who demeans</b> the ritual of <b>washing of the hands? We learned</b> later in the same mishna: <b>Rabbi Yehuda said:</b> That story related with regard to the ostracism of Akavya ben Mahalalel is completely untrue; <b>God forbid that Akavya ben Mahalalel was ostracized, as the Temple courtyard is not closed on any Jew,</b> meaning that even when all of Israel made the pilgrimage to Jerusalem, when each of the three groups that gathered to offer the Paschal lamb filled the courtyard, leading the Temple administration to close the courtyard, there was no one there as perfect <b>in wisdom, purity and fear of sin as Akavya ben Mahalalel. Rather, whom did they excommunicate? Elazar ben Ḥanokh,</b> because he <b>doubted</b> and demeaned the rabbinic ordinance of <b>washing of the hands. And when he died, the court sent</b> instructions <b>and they placed a large rock upon his coffin</b> in order <b>to teach you that one who is ostracized and dies in</b> a state of <b>ostracism, the court stones his coffin,</b> as if symbolically stoning him. Apparently, one who makes light of the ritual of washing of the hands is sentenced to ostracism.
+
+### Part 11
+<b>What is</b> the source for the third case, <b>one who is arrogant vis-à-vis Heaven?</b> The mishna relates that Ḥoni HaMe’aggel, the circle-drawer, drew a circle and stood inside it, and said that he would not leave the circle until it rained, and he went so far as to make demands in terms of the manner in which he wanted the rain to fall. After it rained, <b>Shimon ben Shataḥ,</b> the <i>Nasi</i> of the Sanhedrin, relayed to <b>Ḥoni HaMe’aggel:</b> Actually, <b>you should be ostracized</b> for what you said, <b>and if you were not Ḥoni, I would have decreed ostracism upon you, but what can I do? You nag God and He does your bidding, like a son who nags his father and</b> his father <b>does his bidding</b> without reprimand. After all, the rain fell as you requested. <b>About you, the verse states: “Your father and mother will be glad and she who bore you will rejoice”</b> (Proverbs 23:25). Apparently, one who is arrogant vis-à-vis Heaven would ordinarily merit excommunication.
+
+### Part 12
+The Gemara challenges this: <b>And are there no more</b> cases of excommunication or threats of excommunication? <b>Surely there are</b> additional cases like the one in the <i>baraita</i> <b>taught by Rav Yosef:</b> It is told that <b>Theodosius of Rome,</b> leader of the Jewish community there, <b>instituted the custom for the Roman</b> Jews <b>to eat whole kids,</b> young goats roasted with their entrails over their heads, as was the custom when roasting the Paschal lamb, <b>on the eve of Passover,</b> as they did in the Temple. <b>Shimon ben Shataḥ sent</b> a message <b>to him: If you were not Theodosius,</b> an important person, <b>I would have decreed ostracism upon you, as</b> it appears as if <b>you are feeding Israel consecrated food,</b> which may only be eaten in and around the Temple itself, <b>outside</b> the Temple.
+
+### Part 13
+The Gemara responds: This case should not be included, as Rabbi Yehoshua ben Levi said that there were twenty-four cases <b>in our Mishna,</b> and <b>this is</b> merely <b>a <i>baraita</i>.</b>
+
+### Part 14
+The Gemara asks: <b>And are there none in the Mishna? Isn’t there that which we learned</b> in the mishna: <b>One</b> who <b>cut</b> an earthenware oven horizontally <b>into</b> ring-shaped <b>pieces and put sand between the pieces, Rabbi Eliezer deems</b> the oven <b>ritually pure,</b> i.e., it is no longer susceptible to ritual impurity. He holds that, although the fragments of the oven were pieced together, it is not considered an intact vessel but, rather, as a collection of fragments, and a broken earthenware vessel cannot become ritually impure. <b>And the Rabbis deem it ritually impure.</b> Since the oven continues to serve its original function, it is still considered a single entity and a whole vessel despite the sand put between the pieces. <b>And this is</b> called <b>the oven of <i>akhnai</i>, snake.</b>
+
+### Part 15
+The Gemara asks: <b>What is</b> the meaning of oven of the <b>snake? Rav Yehuda said</b> that <b>Shmuel said:</b> It is called snake <b>to teach that</b> the Rabbis <b>surrounded</b> Rabbi Eliezer <b>with</b> <i>halakhot</i> and proofs <b>like a snake</b> surrounds its prey, <b>and declared</b> the oven and its contents <b>ritually impure.</b>
+
+### Part 16
+<b>And it was taught</b> in a <i>baraita</i>: <b>On that day, they gathered all</b> of <b>the ritually pure</b> food items that had come into contact with the oven <b>that Rabbi Eliezer had declared ritually pure, and burned them before him,</b> and because he did not accept the decision of the majority, <b>in the end they “blessed,”</b> a euphemism for ostracized, <b>him.</b> This is another case that ended in ostracism.
+
+### Part 17
+The Gemara answers: <b>Even so, we did not learn</b> the ruling with regard to his <b>ostracism in the mishna.</b> The Gemara asks: Then <b>where do you find</b> the <b>twenty-four places</b> mentioned in Rabbi Yehoshua ben Levi’s statement? The Gemara responds: <b>Rabbi Yehoshua ben Levi likens one matter to another</b> similar <b>matter.</b> Whenever he would encounter a case in a mishna where one of the Sages expressed himself inappropriately in reference to other Sages, he concluded that they should have been excommunicated. <b>Rabbi Elazar does not liken one matter to another</b> similar <b>matter,</b> and therefore located only three explicit cases of ostracism.
+
+### Part 18
+We learned in the mishna that <b>the pallbearers and their replacements</b> are exempt from the recitation of <i>Shema</i>. On this subject, the Gemara cites that which the <b>Sages taught</b> in a <i>baraita</i>: <b>The deceased may not be taken out</b> to be buried <b>adjacent to</b> the time for <b>the recitation of <i>Shema</i>,</b> but should be buried later. <b>And if they</b> already <b>started</b> to take him out, <b>they need not stop</b> in order to recite <i>Shema</i>. The Gemara challenges: <b>Is that so? Didn’t they take Rav Yosef out</b> to be buried <b>adjacent to</b> the time for <b>the recitation of <i>Shema</i>?</b> The Gemara resolves this contradiction: The case of <b>an important person is different,</b> and they are more lenient in order to honor him at his burial.
+
+### Part 19
+In the mishna, we learned the <i>halakha</i> with regard to the pallbearers and their obligation to recite <i>Shema</i>, and a distinction was made between those <b>who are before the bier and</b> those <b>after the bier. Our Rabbis taught</b> in a <i>baraita</i>: <b>Those involved in eulogy must slip away</b> from the eulogy <b>one by one while the deceased is laid out before them and recite</b> <i>Shema</i> elsewhere. And <b>if the deceased is not laid out before them,</b> the eulogizers must <b>sit and recite</b> <i>Shema</i> <b>while</b> the bereaved <b>sits silently. They stand and pray and he stands and justifies God’s judgment, saying: Master of the Universe, I have sinned greatly against You, and You have not collected even one one-thousandth</b> of my debt. <b>May it be Your will, Lord our God, to mercifully repair the breaches in our</b> fence <b>and the breaches of Your nation, the House of Israel.</b>
+
+### Part 20
+<b>Abaye said: A person should not say that, as Rabbi Shimon ben Lakish said, and it was also taught in the name of Rabbi Yosei: One must never open his mouth to the Satan,</b> i.e., one must not leave room for or raise the possibility of disaster or evil. This formula, which states that the entire debt owed due to his transgressions has not been collected, raises the possibility that further payment will be exacted from him.
+
+### Part 21
+<b>And Rav Yosef said: What is the verse</b> from which <b>it</b> is derived? <b>As it is stated: “We should have almost been as Sodom,</b> we should have been like unto Gomorrah” (Isaiah 1:9), after which <b>what did</b> the prophet <b>reply to them? “Hear the word of the Lord, rulers of Sodom;</b> give ear unto the law of our God, people of Gomorrah” (Isaiah 1:10).
+
+### Part 22
+We learned in the mishna that, in a case when <b>they buried the deceased and returned,</b> if they have sufficient time to begin to recite <i>Shema</i> and conclude before they arrive at the row formed by those who came to console the bereaved, they should begin. Here, the Gemara clarifies: This is the case only <b>if they can begin and complete</b> recitation of <i>Shema</i> <b>in its entirety. However,</b> if they can only complete <b>one chapter or one verse,</b> they should <b>not</b> stop to do so. The Gemara <b>raises a contradiction</b> from that which we learned in the <i>baraita</i>: After <b>they buried the deceased and returned, if they can begin</b> the recitation of <i>Shema</i> <b>and finish even a single chapter or verse,</b> they should begin.
+
+### Part 23
+The Gemara responds: <b>That is also what</b> the <i>tanna</i> of the mishna <b>said</b> and this is the conclusion drawn from his statement: <b>If one can begin and conclude even one chapter or one verse before they arrive at the row</b> of consolers, <b>they should begin. And if not, they should not begin.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Et</b> on <b>ne peut pas recolter</b> des raisins avec <b>un Juif qui produit</b> du vin a partir de <b>ses fruits en etat d'<b>impurete rituelle,</b> car il provoque ainsi l'impurete du produit. <b>Et d'autant plus qu'on ne doit</b> pas <b>marcher</b> sur les raisins avec lui, car il assiste le Juif qui rend le vin impur en marchant sur les raisins. <b>Mais</b> on <b>peut recolter</b> des raisins <b>dans le pressoir</b> avec <b>le Gentil, car il est permis de rendre impur un produit non sacre</b> <b>qui se trouve en Eretz Yisrael.</b>
+
+### Partie 2
+§ La mishna enseigne : <b>Et</b> le toucher du Gentil <b>ne rend pas</b> le jus des raisins en <b>vin</b> utilise pour <b>une libation jusqu'a ce qu'il descende dans la</b> collecte <b>vat,</b> car jusque-la il n'a pas le statut de vin. La Gemara demande : <b>Mais n'est-il pas enseigne</b> dans une mishna (<i>Maâsrot</i> 1:7) en ce qui concerne l'etape ou le travail de production du vin est considere comme termine et ou l'on est oblige de separer les dimes du vin : En ce qui concerne le <b>vin,</b> on est oblige de separer les dimes <b>a partir</b> du moment <b>ou</b> le residu solide <b>flotte [<i>misheyikpe</i>]</b> sur le dessus du vin.
+
+### Partie 3
+<b>Rava dit :</b> Ce n'est <b>pas difficile. Cette</b> mishna est conforme a l'opinion de <b>Rabbi Akiva,</b> alors que <b>cette</b> mishna est conforme a l'opinion des <b>rabbins.</b> Ceci est <b>comme nous l'avons appris</b> dans une <i>baraita</i> : En ce qui concerne le <b>vin,</b> on est oblige de separer les dimes <b>a partir</b> du moment <b>ou</b> le vin <b>descend dans la collecte</b> <b>vat. Rabbi Akiva dit:</b> On est oblige de separer les dimes seulement <b>a partir</b> du moment <b>ou</b> le residu solide <b>flotte</b> sur le dessus du vin.
+
+### Partie 4
+<b>Un dilemme a ete souleve devant</b> les Sages : Rabbi Akiva fait-il reference au <b>flottement</b> des graines sur le vin <b>dans le <b>vat de collecte</b> ou</b> au <b>flottement</b> de la levure sur le vin <b>dans</b> le <b>tonneau ?</b>
+
+### Partie 5
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution de cette question, <b>comme cela est enseigne</b> dans cette mishna : En ce qui concerne le <b>vin,</b> on est oblige de separer les dimes <b>a partir</b> du moment <b>ou</b> le residu solide <b>flotte</b> sur le dessus du vin. Par la suite, <b>meme si</b> le residu <b>a flotte,</b> on <b>peut recueillir</b> le vin <b>de la presse superieure et du tuyau</b> qui relie la presse superieure a la cuve, <b>et</b> on <b>peut le boire</b> sans separer les dimes. <b>Concluez de</b> la mishna que <b>nous parlons</b> du <b>flottement</b> des graines sur le dessus du vin <b>dans</b> la <b>cuve de collecte.</b> La Gemara affirme : <b>Concluez-en</b> qu'il en est ainsi.
+
+### Partie 6
+La Gemara demande : <b>Mais Rav Zevid n'a-t-il pas enseigne</b> une version differente de la dispute susmentionnee <b>dans</b> une <i>baraita</i> <b>de l'ecole de Rabbi Oshaya : </b> En ce qui concerne le <b>vin,</b> on est oblige de separer les dimes <b>a partir</b> du moment <b>ou le vin <b>descend dans la <b>vatte de collecte</b> et ou</b> les graines <b>flottent</b> dessus. <b>Rabbi Akiva dit :</b> On n'est oblige de separer les dimes qu'a <b>partir</b> du moment <b>ou</b> on <b>siphonne</b> le vin de la cuve <b>dans des tonneaux.</b> La Gemara repond qu'on peut resoudre la contradiction : <b>Expliquer cette premiere</b> <i>baraita</i> de <b>cette</b> maniere <b>aussi : </b> En ce qui concerne le <b>vin,</b> on est oblige de separer les dimes <b>a partir</b> du moment <b>ou</b> le vin <b>descend dans la <b>cuve de collecte</b> et</b> les graines <b>flottent</b> dessus. <b>Rabbi Akiva dit :</b> On est oblige de separer les dimes seulement <b>a partir</b> du moment <b>ou</b> on <b>siphonne</b> le vin de la cuve <b>dans des tonneaux.</b>
+
+### Partie 7
+La Gemara demande : <b>Mais</b> quelle est l'opinion exprimee dans <b>la mishna qui enseigne :</b> Le Gentil <b>ne rend pas</b> le jus des raisins en <b>vin</b> utilise pour <b>une libation jusqu'a ce qu'il descende dans la</b> <b>cuve de collecte ? Devons-nous dire</b> que le stade ou le travail de production du vin est considere comme acheve <b>est</b> sujet a un litige entre <b>trois <i>tannaim</i> ?</b> La Gemara repond : <b>Non,</b> l'interdiction du <b>vin</b> utilise pour <b>une libation est differente, car les Sages ont ete rigoureux a son sujet</b> et rendent le vin interdit avant meme que les graines ne flottent. En revanche, en ce qui concerne les dimes, la <i>tanna</i> de cette mishna tient conformement a l'opinion de Rabbi Akiva ou des rabbins.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

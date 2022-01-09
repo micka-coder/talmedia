@@ -1,0 +1,57 @@
+
+### Part 1
+<b>Abaye says: This</b> is what the <i>baraita</i> <b>is saying. From where</b> is it derived <b>to render a relative who comes from his</b> family, e.g., the daughter of his daughter and the daughter of his son, <b>like a relative who comes from her</b> family, e.g., the daughter of his wife and the daughter of his wife’s daughter? <b>Lewdness is stated here and lewdness is stated there.</b> Just as there, the Torah renders the status of male relatives like that of female relatives, so too here, the Torah renders the status of males like that of females. The Gemara asks: <b>But isn’t</b> it so that <b>with regard to a relative from his</b> family the term <b>lewdness is not written,</b> as the verse states: “The nakedness of your son’s daughter, or of your daughter’s daughter, their nakedness you shall not expose; for theirs is your own nakedness” (Leviticus 18:10)?
+
+### Part 2
+<b>Rava says: Rav Yitzḥak bar Avudimi said to me:</b> The equation of his relative to her relative is <b>derived</b> by means of a verbal analogy between the word <b>“<i>henna</i>”</b> written with regard to his relative: “The nakedness of your son’s daughter, or of your daughter’s daughter, their nakedness you shall not expose; for theirs [<i>henna</i>] is your own nakedness” (Leviticus 18:10), and the word <b>“<i>henna</i>”</b> written with regard to her relative: “You shall not uncover the nakedness of a woman and her daughter; you shall not take her son’s daughter, or her daughter’s daughter, to uncover her nakedness; they [<i>henna</i>] are near kinswomen; it is lewdness” (Leviticus 18:17). Additionally, it is <b>derived</b> from a verbal analogy between the word <b>“lewdness”</b> (Leviticus 18:17) and the word <b>“lewdness”</b> in the verse: “And if a man takes a woman and her mother, it is lewdness; they shall be burned with fire both him and them, and there shall be no lewdness among you” (Leviticus 20:14).
+
+### Part 3
+<b>The Master says: From where</b> is it derived <b>to render</b> the status of a relative <b>below like</b> the status of a relative <b>above?</b> The Gemara asks: <b>What</b> is the meaning of: The status of a relative <b>below like</b> the status of a relative <b>above? If we say</b> this means that the status of second-generation relative, i.e., <b>the daughter of the son of</b> his wife <b>and the daughter of her daughter</b> is <b>like</b> the status of first-generation relative, i.e., <b>her daughter,</b> this is difficult, as <b>they are derived together,</b> as all of them are mentioned in the same verse (see Leviticus 18:17).
+
+### Part 4
+<b>Rather,</b> it means that the status of the <b>mother of his father-in-law and the mother of his mother-in-law is like</b> that of <b>his mother-in-law.</b> The Gemara challenges: If so, is <b>this</b> an example of: A relative <b>below is like</b> the status of a relative <b>above?</b> On the contrary, <b>it is</b> an example of: A relative <b>above is like</b> the status of a relative <b>below.</b> The Gemara responds: Emend the <i>baraita</i> and <b>teach:</b> The status of a relative from the generation <b>above is like</b> the status of a relative from the generation <b>below</b> them.
+
+### Part 5
+The Gemara asks: <b>If so,</b> as for the continuation of the <i>baraita</i>: <b>Lewdness is stated here,</b> with regard to the prohibition, <b>and lewdness is stated there,</b> with regard to the punishment, <b>now, if</b> the mother of his father-in-law and the mother of his mother-in-law <b>are not written</b> in the Torah and are derived through interpretation, is the term <b>lewdness written concerning them?</b>
+
+### Part 6
+<b>Abaye says: This</b> is what the <i>baraita</i> <b>is saying: From where</b> is it derived <b>to render</b> the status of a relative for <b>three generations above,</b> his wife, his mother-in-law, and the mother of his mother-in-law, <b>like</b> the status of a relative for <b>three generations below,</b> his wife, his daughter, and the daughter of his daughter? <b>Lewdness is stated</b> with regard to relatives <b>below,</b> the offspring of his wife (Leviticus 18:17), <b>and lewdness is stated</b> with regard to relatives <b>above,</b> the ancestors of his wife (Leviticus 20:14). <b>Just as</b> with regard to relatives <b>below,</b> one is liable for engaging in intercourse with <b>three generations</b> of women, <b>so too</b> with regard to relatives <b>above,</b> one is liable for engaging in intercourse with <b>three generations</b> of women.
+
+### Part 7
+<b>And just as with regard to punishment,</b> the verse <b>rendered</b> the status of relatives <b>below like</b> that of relatives <b>above, so too, with regard to</b> the <b>prohibition,</b> the verse <b>rendered</b> the status of relatives <b>above like</b> that of relatives <b>below.</b>
+
+### Part 8
+<b>Rav Ashi says: Actually,</b> it is not necessary to emend the <i>baraita</i>, and the <i>baraita</i> may be interpreted <b>as it is taught. And what is</b> the meaning of the term <b>below?</b> The reference is to <b>below</b> in terms <b>of</b> the <b>prohibition,</b> i.e., below refers to more distant relatives, e.g., the mother of his mother-in-law, with regard to whom the prohibition is less severe, and above refers to closer relatives, e.g., his mother-in-law, with regard to whom the prohibition is more severe.
+
+### Part 9
+Based on that interpretation of the <i>baraita</i>, the Gemara asks: <b>If</b> so, why not say: <b>Just as the mother of the mother of</b> his wife <b>is forbidden</b> to him, <b>so too the mother of his mother is forbidden</b> to him, and say that he would be liable to be executed by burning?
+
+### Part 10
+<b>Abaye says</b> that it is not possible that one is liable to be burned for engaging in intercourse with the mother of his mother, as <b>the verse states:</b> “The nakedness of your father and the nakedness of your mother you shall not expose; <b>she is your mother,</b> you shall not expose her nakedness” (Leviticus 18:7). Infer from this: <b>Due to</b> his intercourse with <b>his mother you deem him liable</b> to be executed, <b>but you do not deem him liable</b> to be executed <b>due to</b> his intercourse with <b>the mother of his mother.</b>
+
+### Part 11
+<b>Rava says: Both according to the one who says</b> with regard to the method of derivation by means of a verbal analogy: <b>Infer</b> the <i>halakha</i> <b>from it,</b> i.e., from the source of the verbal analogy, <b>and</b> derive the details <b>from it,</b> i.e., from that source, <b>and according to the one who says: Infer</b> the <i>halakha</i> <b>from it but interpret</b> the <i>halakha</i> according <b>to its</b> own <b>place,</b> i.e., the derived <i>halakha</i> is subject to the principles that govern that which is derived by means of the verbal analogy, it <b>is not derived</b> that one is liable to be burned for engaging in intercourse with the mother of his mother.
+
+### Part 12
+The Gemara elaborates: <b>According to the one who says: Infer</b> the <i>halakha</i> <b>from it and</b> derive the details <b>from it,</b> one might infer: <b>Just as</b> with regard to relatives of his wife, <b>the mother of her mother is forbidden</b> to him, <b>so too</b> with regard to <b>his</b> relatives, <b>the mother of his mother is forbidden</b> to him. <b>And</b> derive again <b>from it: Just as</b> with regard to relatives of his wife, he is liable to be executed <b>by burning</b> due to his intercourse with the mother of her mother, <b>so too</b> with regard to <b>his</b> relatives, he is <b>also</b> liable to be executed <b>by burning</b> due to his intercourse with the mother of his mother.
+
+### Part 13
+The Gemara proceeds to explain why one cannot derive that one is liable to be burned for engaging in intercourse with the mother of his mother. <b>According to the one who says:</b> Execution by <b>burning is</b> more <b>severe</b> than execution by stoning, the inference from the <i>halakha</i> of relatives of his wife <b>can be refuted</b> as follows: <b>What</b> is notable <b>about her</b> relatives, where he is liable to be burned for engaging in intercourse with the mother of her mother? They are notable <b>in that</b> one who engages in intercourse with <b>the mother of</b> his wife is liable to be executed <b>by</b> the more severe punishment of <b>burning,</b> not the less severe, more common, punishment of stoning. <b>Will you</b> then <b>say</b> that the same <i>halakha</i> should apply <b>with regard to his</b> relatives, <b>where</b> one who engages in intercourse with <b>his mother</b> is liable to be executed <b>by</b> the less severe punishment of <b>stoning?</b>
+
+### Part 14
+<b>And furthermore,</b> as one who engages in intercourse with <b>his mother</b> is executed <b>by</b> the less severe punishment of <b>stoning,</b> is it possible that one who engages in intercourse with <b>the mother of his mother,</b> a more distant relative, is executed <b>by</b> the more severe punishment of <b>burning?</b>
+
+### Part 15
+<b>And furthermore, just as</b> with regard to <b>her</b> relatives, <b>you did not distinguish between her mother and the mother of her mother,</b> and one who engages in intercourse with either is executed by burning, <b>so too</b> with regard to <b>his</b> relatives, <b>you should not distinguish between his mother and the mother of his mother.</b> Since one who engages in intercourse with his mother is punished by stoning, not burning, it follows that one who engages in intercourse with the mother of his mother is punished by stoning, not burning.
+
+### Part 16
+<b>And according to the one who says</b> that <b>stoning is</b> more <b>severe</b> than burning, although the first two refutations of the derivation, based on the fact that execution by burning is more severe, are not relevant, <b>due to this</b> third <b>difficulty,</b> this <i>halakha</i> <b>is not derived.</b> Just as with regard to her relatives, you did not distinguish between her mother and the mother of her mother, so too with regard to his relatives, you should not distinguish between his mother and the mother of his mother.
+
+### Part 17
+<b>And according to the one who says: Infer</b> the <i>halakha</i> <b>from it but interpret</b> the <i>halakha</i> according <b>to its</b> own <b>place,</b> one might infer: <b>Just as</b> with regard to relatives of his wife, <b>the mother of her mother is forbidden</b> to him, <b>so too</b> with regard to <b>his</b> relatives, <b>the mother of his mother is forbidden</b> to him. <b>And interpret</b> the <i>halakha</i> according <b>to its</b> own <b>place: It is there,</b> with regard to the relatives of his wife, <b>that</b> one who engages in intercourse with the mother of her mother is executed <b>by burning; but here,</b> with regard to his relatives, one who engages in intercourse with the mother of his mother is executed <b>by stoning, as we found</b> that this is the punishment <b>with regard to</b> one who engages in intercourse with <b>his mother.</b>
+
+### Part 18
+The Gemara explains why the derivation with regard to the prohibition is not valid. <b>According to the one who says</b> that execution by <b>burning is</b> more <b>severe</b> than execution by stoning, the derivation <b>can be refuted:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

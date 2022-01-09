@@ -1,0 +1,21 @@
+
+### Part 1
+<b>But</b> this is difficult, as <b>we maintain</b> that the <i>halakha</i> that drawn water invalidates a ritual bath applies only by <b>rabbinic</b> decree. <b>And furthermore, doesn’t Rabbi Yosei ben Rabbi Ḥanina say</b> that the <b>dispute</b> between Rabbi Eliezer and the Rabbis is <b>with regard to a board of metal,</b> and a metal vessel, even if it is flat and lacks a receptacle, is susceptible to ritual impurity by Torah law? This means that, according to Rabbi Eliezer, even a vessel that is susceptible to ritual impurity by Torah law loses its status as a vessel when it is affixed to the ground. Consequently, the question returns: Whose opinion is cited in the <i>baraita</i> that states that if one first hollowed out a duct and afterward fixed it to the ground, it is still considered a vessel and water flowing through it invalidates a ritual bath, but if he first fixed it to the ground and afterward hollowed it out, the water flowing through it does not invalidate a ritual bath?
+
+### Part 2
+The Gemara answers: <b>Actually,</b> one can explain that the <i>baraita</i> <b>is</b> in accordance with the opinion of <b>the Rabbis,</b> who deem the baker’s metal board susceptible to ritual impurity even when it is fixed to a wall, <b>but</b> the <i>halakha</i> governing <b>drawn</b> water added to a deficient ritual bath <b>is different,</b> because drawn water invalidates a deficient ritual bath only <b>by rabbinic law,</b> and therefore the Rabbis were lenient.
+
+### Part 3
+The Gemara asks: <b>If so,</b> then <b>even</b> if one first <b>hollowed out</b> the duct <b>and</b> only <b>afterward fixed it</b> to the ground, water flowing through it should not invalidate the ritual bath <b>as well.</b> The Gemara answers: <b>It is different there,</b> where the duct was hollowed out before being affixed to the ground, <b>as</b> the duct <b>had the status of a vessel when</b> it was still <b>detached</b> from the ground, and therefore the Rabbis were not willing to be lenient to such an extent and rule that water flowing through the duct does not invalidate a ritual bath.
+
+### Part 4
+§ <b>Rav Yosef raises a dilemma:</b> With regard to <b>rainwater</b> that was falling and the owner consciously <b>desired</b> that it should fall <b>so that it would wash</b> his immovable <b>lower millstones, what is</b> the <i>halakha</i> <b>with regard to the seeds</b> in the millstones? The verse “But if any water be put upon the seed…it shall be unclean to you” (Leviticus 11:38) teaches that seeds and other food become susceptible to ritual purity only after they have been detached from the ground, and water, or another of the seven liquids specified in the mishna (<i>Makhshirin</i> 6:4), has been put on them. The food must be exposed to the liquid willfully by the owner; that is, he must desire or at least be pleased that the food should become wet. Rav Yosef asks about a case where the owner wants the rain to fall on the millstones: Does that water make the seeds upon which it falls susceptible to ritual impurity?
+
+### Part 5
+The Gemara clarifies Rav Yosef’s question: <b>Do not raise this dilemma according to</b> the opinion <b>of Rabbi Eliezer, who says: Anything attached to the ground</b> has the same legal status <b>as the ground.</b> Since the lower millstones are attached to the ground, they therefore have the same legal status as the ground, and water that falls on the ground, even if it is pleasing to the owner, does not make food susceptible to ritual impurity. <b>When should you raise this dilemma?</b> Raise it <b>according to</b> the opinion <b>of the Rabbis, who say:</b> It does <b>not</b> have the same legal status <b>as the ground. What</b> is the <i>halakha</i> with respect to imparting susceptibility to ritual impurity? The Gemara concludes: An answer to this question was not found; therefore, the dilemma <b>shall stand</b> unresolved.
+
+### Part 6
+§ <b>Rav Neḥemya, son of Rav Yosef, sent</b> a message <b>to Rabba son of Rav Huna the Short at Neharde’a: When this woman</b> bearing this letter <b>comes before you,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

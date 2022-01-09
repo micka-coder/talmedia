@@ -1,0 +1,24 @@
+
+### Part 1
+<b>everyone agrees</b> that it is <b>forbidden,</b> as the bread certainly absorbed of the smell of the wine? Furthermore, <b>in</b> the case of <b>a cool</b> loaf of <b>bread and a stoppered barrel, everyone agrees</b> that it is <b>permitted. They disagree only with regard to</b> the case of <b>a hot</b> loaf of <b>bread and a stoppered barrel,</b> or <b>in</b> the case of <b>a cool</b> loaf of <b>bread and an open barrel. And this</b> case <b>of mine,</b> i.e., the case of the bunghole, <b>is also comparable to</b> the case of <b>a hot</b> loaf of <b>bread and an open barrel,</b> in which everyone agrees that the bread is forbidden.
+
+### Part 2
+§ It is stated in the mishna: <b>This is the principle: Anything that benefits</b> from a forbidden item <b>imparting flavor</b> to it, i.e., the forbidden item contributes a positive taste to it, is forbidden, and anything that does not benefit from a forbidden item imparting flavor to it is permitted, e.g., forbidden vinegar that fell onto split beans, as the flavor imparted by the vinegar does not enhance the taste of the beans. <b>Rav Yehuda says</b> that <b>Shmuel says: This is the <i>halakha</i>.</b>
+
+### Part 3
+<b>And Rav Yehuda says</b> that <b>Shmuel says:</b> The Sages <b>taught</b> this <b>only</b> with regard to a case <b>where</b> the vinegar <b>fell into hot split beans,</b> imparting flavor to their detriment. <b>But</b> if the vinegar <b>fell into cold split beans,</b> the vinegar enhances the flavor, <b>and</b> if <b>one</b> subsequently <b>heated them, it becomes like</b> a dish <b>that</b> some added ingredient first <b>enhanced</b> its flavor <b>and ultimately detracted</b> from it, <b>and</b> it is rendered <b>forbidden,</b> as the initial flavor that was imparted was beneficial.
+
+### Part 4
+<b>And similarly, when Ravin came</b> from Eretz Yisrael to Babylonia he reported that <b>Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> The Sages <b>taught</b> this <b>only</b> with regard to the case <b>where</b> the vinegar <b>fell into hot split beans. But</b> if the vinegar <b>fell into cold split beans and one</b> subsequently <b>heated</b> the mixture, <b>it becomes like</b> a dish <b>that</b> some added ingredient first <b>enhanced</b> its flavor <b>and ultimately detracted</b> from it, <b>and</b> it is rendered <b>forbidden. And similarly, when Rav Dimi came,</b> he also reported this in the name of Rabbi Yoḥanan and added: <b>And they would prepare this</b> dish of split beans and vinegar <b>on the eves of Shabbat in Tzippori, and they would call it cress dish.</b>
+
+### Part 5
+§ <b>Reish Lakish says:</b> With regard to the principle <b>that</b> the Sages <b>said,</b> that if a forbidden food <b>imparts flavor</b> to a permitted food <b>to</b> the <b>detriment</b> of the mixture it remains permitted, the criterion is <b>not that</b> people <b>would say: This dish is lacking in salt</b> or <b>is overabundant in salt, is lacking in spices</b> or <b>is overabundant in spices,</b> and that is why its flavor was detracted by the forbidden food. <b>Rather,</b> it is referring to <b>any</b> dish <b>that is not lacking in anything, but will not be eaten</b> only <b>because of this</b> forbidden substance that fell into it.
+
+### Part 6
+<b>And there are</b> those <b>who say</b> that <b>Reish Lakish states</b> a lenient interpretation of the principle: With regard to that <b>which</b> Sages <b>said</b> that if a forbidden food <b>imparts flavor</b> to a permitted food <b>to</b> the <b>detriment</b> of the mixture, it remains permitted, <b>one does not say</b> that a certain food is forbidden because its flavor was not actually detracted by the forbidden substance, as <b>this dish is lacking in salt</b> or <b>is overabundant in salt, is lacking in spices</b> or <b>is overabundant in spices,</b> and it is for that reason that the forbidden substance detracted from its flavor. <b>Rather,</b> since <b>now, in any event,</b> the forbidden substance <b>detracted</b> from its flavor, it is permitted.
+
+### Part 7
+§ Furthermore, with regard to a forbidden food that became mixed with a permitted food, <b>Rabbi Abbahu says</b> that <b>Rabbi Yoḥanan says:</b> In <b>any</b> case <b>where the flavor and substance of</b> the forbidden food are perceptible in the mixture, the mixture is <b>forbidden,</b> and <b>one is flogged for</b> consuming <b>it. And</b> it is a tradition that <b>this is</b> the measure for such a case: One who eats <b>an olive-bulk</b> of the forbidden element in the mixture <b>in</b> the time it takes <b>to eat a half-loaf</b> of bread is liable for eating the forbidden food.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

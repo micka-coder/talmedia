@@ -1,0 +1,51 @@
+
+### Part 1
+<b>Granted, according to my</b> opinion, <b>as I say</b> that this is <b>because permitted</b> food <b>combines with forbidden</b> food, I can explain that this is referring to a case <b>where</b> there <b>is more non-sacred</b> produce than <i>teruma</i>, and the combination is assumes the status of the forbidden item or <i>teruma</i> only when those are the majority. <b>However, according to your</b> opinion, <b>that you say</b> this is <b>because there is an olive-bulk</b> consumed in the time it takes <b>to eat a half-loaf</b> of bread, then even <b>if</b> there <b>is more non-sacred</b> produce, <b>what of it?</b> In any case there is an olive-bulk of <i>teruma</i> eaten within the time it takes to eat a half-loaf of bread.
+
+### Part 2
+Rav Dimi <b>said to</b> Abaye: <b>Leave</b> aside <b><i>teruma</i> in the present,</b> as it applies <b>by rabbinic law.</b> Since the exile of the Jewish people from Eretz Yisrael, the <i>halakhot</i> of <i>teruma</i> and tithes apply by rabbinic law, not Torah law. This is the basis for the lenient ruling with regard to this mixture.
+
+### Part 3
+<b>Abaye said to him: From where</b> do you derive <b>that this</b> verse: “Nor shall he drink anything <b>soaked</b> in grapes” (Numbers 6:3), <b>comes</b> to teach the principle that <b>permitted</b> food <b>combines with forbidden</b> food, as stated by Rabbi Yoḥanan (35b)? <b>Perhaps</b> instead <b>it comes to establish</b> the principle that the legal status of the <b>flavor</b> of a forbidden food is <b>like</b> that of its <b>substance.</b> This principle states that any food that absorbs the taste of a forbidden item assumes the status of this forbidden item itself.
+
+### Part 4
+The Gemara expresses surprise at Abaye’s question. <b>And according to</b> the opinion of <b>Abaye, initially that which Rav Dimi said was difficult for him.</b> Rav Dimi had cited Rabbi Yoḥanan as saying that permitted food combines with forbidden foods only in the case of naziriteship (36a), due to the term “soaked,” <b>and</b> Abaye <b>had objected</b> with <b>all these</b> aforementioned <b>refutations</b> to prove that this principle applies in all areas of Torah law. And yet <b>he then said to him</b> that one should derive a very different principle from that same verse, that the verse <b>establishes</b> the principle that the legal status of the <b>flavor</b> of a forbidden food is <b>like</b> that of its <b>substance.</b>
+
+### Part 5
+The Gemara answers: <b>After</b> Rav Dimi <b>resolved</b> Abaye’s difficulties, and Abaye had accepted his answer that the principle that permitted food combines with forbidden food does not apply to the rest of Torah law, <b>he said</b> to Rav Dimi that <b>perhaps</b> the verse <b>comes to establish</b> that the legal status of the <b>flavor</b> of a forbidden food is <b>like</b> that of its <b>substance,</b> with the following application.
+
+### Part 6
+This is relevant <b>for that which is taught</b> in a <i>baraita</i>: The term <b>“soaked”</b> serves <b>to establish</b> the principle that the legal status of the <b>flavor</b> of a forbidden food is <b>like</b> that of its <b>substance. As, if</b> a nazirite soaked <b>grapes in water and</b> the water <b>has the taste of wine,</b> he <b>is liable</b> to receive punishment for drinking this liquid, as it assumes the status of wine. <b>And from here you derive</b> the <i>halakha</i> with regard <b>to all prohibitions of the Torah;</b> in all cases, the legal status of the taste of a forbidden food is like that of its substance. The fact that with regard to all other prohibitions, the legal status of the flavor of a forbidden food is like that of its substance, is derived from the <i>halakhot</i> of naziriteship.
+
+### Part 7
+The <i>baraita</i> explains the derivation: <b>And just as</b> with regard to <b>a nazirite, whose prohibition</b> against eating grapes <b>is not a permanent prohibition,</b> as he will be permitted to eat grapes once his term of naziriteship is over, <b>and</b> furthermore <b>his prohibition is not a prohibition</b> against deriving <b>benefit</b> from wine, <b>and there is</b> a way <b>to permit his prohibition</b> against eating grape products by requesting from a halakhic authority to dissolve his vow, and nevertheless, in <b>his</b> case the Torah <b>rendered</b> the legal status of the <b>flavor</b> of food <b>like</b> that of its <b>substance.</b> With regard to a forbidden mixture of <b>diverse kinds in a vineyard,</b> i.e., grain seeds sown with grape seeds, <b>whose prohibition is a permanent prohibition and whose prohibition is a prohibition</b> against deriving <b>benefit, and there is no</b> way <b>to permit their prohibition, is it not right that</b> the Torah <b>should render</b> the legal status of the <b>flavor</b> of its forbidden food <b>like</b> that of its <b>substance?</b>
+
+### Part 8
+The <i>baraita</i> adds: <b>And the same is true for the prohibition against eating the fruit of a tree during the first three years after its planting [<i>orla</i>], on two</b> of three counts: Although the prohibition of <i>orla</i> is not a permanent prohibition, as one may eat the fruit of this tree after three years have passed, it is prohibited to derive benefit from <i>orla</i>, and this prohibition cannot be permitted, as the fruits that grow during the first three years remain forbidden. Similarly, all other prohibitions in the Torah are more severe than the case of a nazirite in one of these aspects, and therefore this principle is universal. Abaye is asking Rav Dimi: In any case doesn’t this entire derivation presents a difficulty for Rabbi Yoḥanan, who derives a different <i>halakha</i> from the term “soaked.”
+
+### Part 9
+<b>One of the Sages said to</b> Abaye: <b>When Rabbi Abbahu said</b> that Rabbi Yoḥanan said that the principle of permitted food combining with forbidden food is derived from the term “soaked,” he spoke in accordance with the opinion <b>of Rabbi Akiva.</b> The Gemara asks: To <b>which</b> statement of <b>Rabbi Akiva</b> is the Gemara referring? <b>If we say</b> it is referring to the opinion of <b>Rabbi Akiva of this</b> mishna, <b>as we learned</b> (<i>Shevuot</i> 21b) that <b>Rabbi Akiva says: Even</b> if <b>a nazirite soaked his bread in wine, and</b> the bread and the wine <b>contain</b> enough <b>to combine to</b> constitute <b>an olive-bulk, he is liable; but from where</b> do we know that Rabbi Akiva means an olive-bulk taken from the bread and the wine together? <b>Perhaps that</b> ruling applies only <b>when there is an olive-bulk</b> of wine <b>as is,</b> without the bread?
+
+### Part 10
+<b>And if you would say:</b> In that case, <b>what</b> is the purpose <b>of stating</b> this ruling? What is the novelty of Rabbi Akiva’s statement if the mixture contains an olive-bulk of wine? One can say that it serves <b>to exclude</b> the opinion of <b>the first <i>tanna</i>, who said</b> that he is liable <b>only if he drinks a quarter</b>-<i>log</i> <b>of wine.</b> Rabbi Akiva emphasizes that one is liable even if he drinks the amount of an olive-bulk.
+
+### Part 11
+<b>Rather,</b> the reference is to the following statement of <b>Rabbi Akiva in a <i>baraita</i>. As it is taught</b> in a <i>baraita</i> that <b>Rabbi Akiva says: A nazirite who soaked his bread in wine and ate an olive-bulk of</b> the mixture of <b>bread and wine is liable.</b> This <i>baraita</i> indicates that according to the opinion of Rabbi Akiva a permitted substance combines with a forbidden substance.
+
+### Part 12
+<b>Rav Aḥa, son of Rav Avya, said to Rav Ashi: According to Rabbi Akiva, who establishes</b> the verse <b>“neither</b> shall he drink <b>anything soaked”</b> (Numbers 6:3) as referring <b>to</b> the principle that the <b>permitted combines with the forbidden, from where does he</b> derive the principle that the legal status of the <b>flavor</b> is <b>like</b> that of the <b>substance</b> itself? The Gemara answers: <b>He derives</b> this principle <b>from</b> the prohibition of <b>meat</b> cooked <b>in milk.</b> Is it <b>not</b> the case that there is no actual milk present, and it <b>is merely</b> the <b>taste</b> of the milk absorbed in the meat, <b>and</b> yet the mixture <b>is prohibited? Here too,</b> in the case of other prohibitions, it <b>is no different,</b> and the legal status of the flavor is like that of the substance itself.
+
+### Part 13
+The Gemara asks: <b>And</b> with regard to <b>the Rabbis,</b> who disagree with Rabbi Akiva and derive the <i>halakha</i> that the legal status of the flavor is like that of the substance itself from the phrase <b>“neither</b> shall he drink anything soaked,” why do they not derive this principle from the case of meat cooked in milk? The Gemara answers: The Rabbis claim that <b>we do not derive</b> other prohibitions <b>from meat</b> cooked <b>in milk, as</b> that prohibition <b>is a novelty,</b> and one does not learn general <i>halakhot</i> from unusual cases.
+
+### Part 14
+The Gemara asks: <b>What is</b> the <b>novelty</b> of that prohibition? <b>If we say that</b> it is unique in <b>that this</b> meat <b>alone and that</b> milk <b>alone</b> are each <b>permitted, and</b> yet <b>together they are forbidden,</b> that characteristic is not unique to meat cooked in milk. In the case of forbidden mixtures of <b>diverse kinds too, this</b> element <b>alone and that</b> element <b>alone</b> are each <b>permitted, and</b> yet <b>together they are forbidden.</b>
+
+### Part 15
+The Gemara answers: <b>Rather,</b> the novelty is <b>that if one soaks</b> meat <b>in milk all day, it is permitted</b> by Torah law, despite the fact that the meat certainly absorbed some taste of the milk, whereas if <b>one cooked</b> meat in milk even for a short time, the mixture <b>is forbidden</b> by Torah law. The novelty is that it is not the fact that they are mixed together that renders meat and milk forbidden, but the act of cooking.
+
+### Part 16
+The Gemara asks: <b>And Rabbi Akiva too,</b> he certainly agrees that the <i>halakha</i> of <b>meat</b> cooked <b>in milk is a novelty.</b> How can he derive a general principle from this case? <b>Rather,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

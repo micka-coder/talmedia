@@ -1,0 +1,21 @@
+
+### Partie 1
+<strong>MISHNA :</strong> Si l'on vend un champ a un autre en lui disant qu'il lui vend un champ mesurant un <i>beit kor</i>, <b>avec ses</b> <b>demarcations et frontieres</b> particulieres que le vendeur specifie pour l'acheteur, la mesure du champ n'est pas traitee de maniere aussi exigeante que dans une vente standard. Par consequent, s'il s'avere plus tard que le champ n'etait pas precisement un <i>beit kor</i>, mais que la difference est toujours <b>moins d'un sixieme,</b> le champ <b>est</b> celui de l'acheteur, et la vente est valide telle quelle. Mais si la difference est plus grande, par exemple un quart ou un cinquieme, alors, <b>jusqu'a ce que</b> elle soit calculee a <b>un sixieme,</b> le vendeur <b>doit deduire</b> la difference du prix d'achat et rendre l'argent a l'acheteur.
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Il a ete dit</b> que les <i>amoraim</i> etaient en desaccord sur la question suivante : <b>Rav Huna dit :</b> Une difference qui est precisement <b>un sixieme est comme</b> une difference qui est <b>moins d'un sixieme,</b> et la vente est valide. <b>Rav Yehuda dit :</b> Une difference qui est precisement <b>un sixieme est comme</b> une qui est <b>plus d'un sixieme,</b> et la difference doit etre deduite du prix d'achat.
+
+### Partie 3
+La Guemara explique les raisons respectives des deux <i>amoraim</i> : <b>Rav Huna dit</b> qu'une difference de <b>un sixieme est comme</b> une difference de <b>moins d'un sixieme,</b> car <b>c'est</b> ce que dit la mishna <b> : </b> Si la difference est <b>moins d'un sixieme, et incluant</b> une difference qui est precisement <b>un sixieme, elle appartient</b> a l'acheteur, car la vente est valide, et si elle est <b>plus d'un sixieme,</b> le vendeur <b>doit deduire</b> la difference du prix d'achat. <b>Rav Yehuda dit</b> qu'une difference de <b>un sixieme est comme</b> une difference de <b>plus d'un sixieme,</b> car <b>c'est</b> ce que dit la mishna <b> : </b> Si la difference est <b>moins d'un sixieme, elle est</b> a l'acheteur, car la vente est valable, et si la difference est plus grande, <b>jusqu'a</b> ce qu'elle soit calculee a <b>un sixieme, et y compris</b> une difference qui est precisement <b>un sixieme,</b> le vendeur <b>doit deduire</b> la difference du prix d'achat.
+
+### Partie 4
+La Guemara <b>souleve une objection</b> a la declaration de Rav Huna a partir d'une <i>baraita</i> : Si l'on vend un champ a un autre, en lui disant qu'il lui vend un champ mesurant un <i>beit kor</i> <b>dans ses</b> <b>demarcations et frontieres particulieres,</b> et <b>il lui a donne</b> un champ qui est <b>un sixieme de moins</b> que la mesure stipulee, <b>ou,</b> alternativement, <b>il lui a donne</b> un champ qui est <b>un sixieme de plus</b> que la mesure stipulee, <b>c'est comme</b> une vente de biens d'orphelins qui est executee conformement a <b>l'evaluation des juges</b> de la valeur de ces biens, et donc <b>c'est</b> a l'acheteur, car la vente est valide. La Gemara enonce l'objection : <b>Mais</b> dans le cas d'une vente executee conformement a <b>l'evaluation des juges,</b> une erreur de precisement <b>un sixieme est comme</b> une erreur de <b>plus d'un sixieme,</b> et la vente est nulle. Ceci contredit l'opinion de Rav Huna selon laquelle une erreur d'un sixieme est comme une erreur de moins d'un sixieme.
+
+### Partie 5
+La Guemara repond : <b>Rav Huna</b> aurait pu <b>vous dire</b> en reponse : Meme <b>selon ton raisonnement,</b> il y a encore une difficulte, puisque la <i>baraita</i> <b>enseigne</b> que <b>c'est</b> a l'acheteur, c'est-a-dire que la vente est definitive. <b>Au contraire,</b> la comparaison etablie entre cette <i>halakha</i> et l'evaluation des juges n'est pas une comparaison generale. Elle est <b>comme l'evaluation des juges, mais</b> elle n'est <b>pas</b> entierement <b>comme l'evaluation des juges. </b> Elle est <b>comme l'evaluation des juges</b> en ce que la limite est <b>un sixieme, mais elle n'est pas comme l'evaluation des juges, car la,</b> dans le cas de l'evaluation des juges, <b>la vente est annulee, alors qu'ici,</b> dans la mishna, <b>elle est</b> a l'acheteur, et la vente est definitive.
+
+### Partie 6
+Il est relate que <b>Rav Pappa a achete une terre a un certain homme,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

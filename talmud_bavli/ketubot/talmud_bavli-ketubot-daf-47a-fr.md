@@ -1,0 +1,36 @@
+
+### Partie 1
+La Guemara explique : La raison en est <b>l'inimitie,</b> afin qu'il ne lui en veuille pas d'avoir trouve des articles et de les lui avoir refuses, ce qui pourrait le conduire a hesiter a lui fournir de la nourriture.
+
+### Partie 2
+§ La mishna a en outre enseigne qu'un pere a le droit <b>de</b> les <b>gains de sa fille.</b> La Gemara demande : <b>D'ou derive-t-on</b> cela ? La Gemara repond : <b>Comme Rav Huna a dit</b> ce <b>Rav a dit : D'ou</b> derive-t-on <b>que les gains d'une fille</b> appartiennent <b>a son pere ? Comme il est dit : "Et si un homme vend sa fille pour etre une servante"</b> (Exode 21:7), ce qui indique que <b>comme</b> en ce qui concerne <b>une servante, ses gains</b> appartiennent <b>a son maitre,</b> puisqu'elle a ete vendue dans ce but, <b>de meme</b> en ce qui concerne <b>une fille, ses gains</b> vont <b>a son pere.</b> La Gemara demande : <b>Mais</b> on peut <b>saisir</b> que <b>cela ne s'applique</b> qu'a <b>une mineure, car</b> un pere <b>peut la vendre</b> comme servante. <b>Cependant,</b> en ce qui concerne <b>une jeune femme, qu'il ne peut vendre,</b> peut-etre que <b>ses gains</b> devraient lui appartenir.</b>
+
+### Partie 3
+La Gemara repond : Il <b>est raisonnable</b> que ses gains aillent <b>a son pere, car, s'il vous venait a l'esprit</b> de dire que <b>ses gains</b> n'appartiennent <b>pas</b> a son pere,</b> que dire du fait <b>que le Misericordieux autorise un pere a amener</b> sa fille, lorsqu'elle est une jeune femme, <b>au dais de mariage ? Comment peut-il l'amener</b> au baldaquin du mariage ? <b>Ne l'amene-t-il pas</b> ainsi a <b>negliger ses revenus</b> a ce moment-la, puisqu'elle ne peut pas travailler en se mariant ? Si elle a des droits sur ses propres revenus, elle peut s'y opposer pour ces motifs.
+
+### Partie 4
+<b>Rav Ahai refute</b> cette affirmation : <b>Disons que</b> lorsqu'il l'amene au dais de mariage, <b>il lui donne le salaire qu'elle neglige</b> en faisant une pause dans son travail, et donc l'objection ci-dessus ne s'applique pas. <b>Alternativement,</b> il se refere a un cas <b>ou il l'a amenee</b> au dais de mariage <b>la nuit,</b> quand elle ne travaille pas. <b>Alternativement,</b> il s'agit du cas <b>ou il l'a amenee</b> au dais nuptial <b>pendant les <i>Shabbatot</i> ou les Fetes,</b> lorsqu'il est interdit de travailler.
+
+### Partie 5
+<b>La Gemara revient plutot a l'expose initial base sur le cas d'une servante hebraique, et soutient qu'en ce qui concerne <b>une mineure,</b> il <b>n'est pas necessaire</b> de deduire d'un <b>verset</b> que son pere a droit a ses gains, pour la raison suivante : <b>Maintenant,</b> si son pere a le droit de la <b>vendre</b> comme servante, est-il <b>necessaire</b> de preciser que <b>ses gains</b> lui appartiennent ? <b>Au contraire, lorsque le verset etait necessaire,</b> c'etait <b>pour</b> enseigner que les gains d'une <b>jeune femme</b> appartiennent aussi a son pere.
+
+### Partie 6
+§ La mishna a enseigne qu'un pere a le droit <b>de</b> effectuer <b>l'annulation</b> des <b>vœux de sa fille.</b> La Gemara demande : <b>D'ou derive-t-on</b> cela ? La Guemara repond <b>qu'il est ecrit : "Etant dans sa jeunesse, dans la maison de son pere"</b> (Nombres 30:17), et la Torah poursuit en expliquant que pendant cette periode, un pere peut annuler les vœux de sa fille.
+
+### Partie 7
+La mishna enseigne en outre : <b>Et il accepte son acte de divorce</b> en son nom. La Gemara demande : <b>D'ou est-ce qu'on</b> derive ceci ? La Gemara repond <b>qu'il est ecrit : "Et elle se retire</b> de sa maison et va <b>devenir</b> la femme d'un autre homme" (Deuteronome 24:2). Ce verset <b>juxtapose le fait de quitter</b> un mariage <b>et de devenir</b> une femme, ce qui enseigne que les <i>halakhot</i> des fiancailles s'appliquent a son depart de la maison de son mari via un acte de divorce. Par consequent, tout comme un pere a le droit d'accepter les fiancailles au nom de sa fille, il peut egalement recevoir un acte de divorce en son nom.
+
+### Partie 8
+§ La mishna a enseigne qu'un pere <b>ne peut pas consommer</b> le <b>produit</b> de la propriete de sa fille <b>pendant sa vie. Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Un pere ne peut pas consommer le produit</b> des biens de sa fille <b>pendant la vie de celle-ci. Rabbi Yosei, fils de Rabbi Yehuda, dit : Un pere peut consommer</b> ce <b>produit du vivant de sa fille.</b> La Guemara demande : <b>Par rapport a quel</b> principe <b>ils sont en desaccord ?</b> La Guemara explique que <b>la premiere <i>tanna</i> tient : Accorde,</b> dans le cas d'un <b>mari, les Sages ont decrete pour lui</b> qu'il devait consommer son <b>produit, car si</b> ce n'etait pas le cas, il s'abstiendrait de la racheter</b> si elle etait capturee. Le droit du mari de consommer le produit des biens de sa femme a ete institue afin de correspondre a son obligation de racheter sa femme en cas de captivite.
+
+### Partie 9
+<b>Cependant,</b> dans le cas d'un <b>pere, que dire ? Qu'il s'abstiendra de la racheter</b> elle ? Meme <b>sans ce</b> droit sur le produit de ses biens <b>il la rachetera,</b> car elle est sa fille et il ne fermera certainement pas les yeux sur sa propre chair et son sang. <b>Et Rabbi Yosei, fils de Rabbi Yehuda, tient : </b> S'il est prive du droit au produit de la propriete de sa fille, <b>un pere s'abstiendra egalement de la racheter</b>, car il <b>se raisonne : Une poche</b> d'argent <b>est tenue dans sa</b> main pour un moment de besoin, alors <b>laissez-la aller se racheter.</b>
+
+### Partie 10
+§ La mishna enseigne en outre que si la fille <b>se marie, le mari a plus</b> de droits <b>que</b> son pere, <b>puisqu'il consomme</b> le produit de ses biens. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : si le pere <b>a ecrit pour elle</b> dans son contrat de mariage qu'il fournissait <b>des produits, des vetements et des recipients qui viendraient avec elle</b> comme dot <b>de la maison de son pere a celle de son mari,</b> et <b>qu'elle est decedee</b> pendant la periode des fiancailles, <b>le mari n'a pas le droit a ces objets. Ils ont dit au nom de Rabbi Natan : Le mari a le droit a ces objets.</b>
+
+### Partie 11
+La Guemara suggere : <b>Disons que la dispute</b> de ces <i>tannaim</i> <b>est</b> parallele a <b>la dispute</b> entre <b>Rabbi Elazar ben Azarya et les rabbins. Comme nous l'avons appris</b> dans une mishna (54b) : Si une femme <b>etait veuve ou divorcee, que ce soit par mariage ou par fiancailles, elle percoit</b> la <b>entiere</b> somme specifiee dans son contrat de mariage, y compris tout montant supplementaire que son mari a ajoute a la somme standard requise par les Sages. <b>Rabbi Elazar ben Azarya dit :</b> Si elle etait veuve ou divorcee <b>depuis le mariage, elle percoit</b> la <b>entiere</b> somme. <b>Mais</b> si elle etait veuve ou divorcee <b>depuis les fiancailles,</b> elle n'a le droit de percevoir que la somme minimale standard exigee par les Sages : Si elle etait fiancee en tant que <b>vierge, elle percoit deux cents</b> dinars, <b>et</b> si elle etait <b>veuve</b> elle a droit a <b>cent dinars.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

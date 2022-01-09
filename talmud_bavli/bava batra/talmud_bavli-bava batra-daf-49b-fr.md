@@ -1,0 +1,18 @@
+
+### Partie 1
+En ce qui concerne <b>un heritage qui arrive a une personne d'un autre lieu,</b> c'est-a-dire un heritage que l'on recevra dans le futur, <b>une personne peut poser une condition a ce sujet</b> des le depart <b>qu'elle n'en heritera pas,</b> car on peut renoncer a ses droits futurs sur un bien qui ne lui appartient pas actuellement. <b>Et</b> cette decision est <b>conforme</b> a l'avis <b>de Rava, car Rava a dit</b> qu'a l'egard de <b>toute personne qui dit : je ne veux pas</b> me prevaloir <b>d'une ordonnance des Sages telle que celle-ci</b> qui a ete instituee a mon profit, on <b>l'ecoute.</b>
+
+### Partie 2
+La Gemara demande : <b>Qu'est-ce que</b> signifie : <b>Comme celui-la</b> ? La Guemara explique : Rava fait reference a <b>cette</b> declaration <b>du Rav Huna,</b> qui dit que <b>Rav dit</b> une certaine decision. <b>Comme Rav Huna dit</b> que <b>Rav dit : Une femme peut dire a son mari : Je ne serai pas soutenue</b> par toi et, en retour, <b>je ne travaillerai pas,</b> c'est-a-dire que tu ne garderas pas mes gains. Les Sages ont institue que le mari doit assurer la subsistance de sa femme et qu'en echange il a droit a son salaire. Puisque cela a ete institue au profit des epouses, celles-ci ont la possibilite de se retirer de cet arrangement. De meme, le mari peut renoncer a ses droits sur les benefices des terres de sa femme. C'est dans une telle circonstance que la mishna statue que meme s'il a renonce a ses droits, il n'etablit pas la presomption de propriete en jouissant des benefices.
+
+### Partie 3
+§ La mishna enseigne qu'un mari n'etablit pas la presomption de propriete du champ de sa femme en jouissant de ses benefices. La Guemara suggere : Par deduction, le mari <b>a</b> la capacite d'apporter la <b>preuve</b> qu'il a achete le champ a sa femme ou qu'il l'a recu en cadeau de sa part et par consequent etre considere comme le proprietaire du champ. La Gemara demande : Pourquoi cette preuve est-elle decisive ? <b>Laissez-la dire : Je l'ai fait</b>, c'est-a-dire que j'ai donne ou vendu le champ a mon mari, uniquement pour <b>faire plaisir a mon mari,</b> mais je ne le pensais pas.
+
+### Partie 4
+La Guemara cite une source pour cette affirmation : <b>N'avons-nous pas appris</b> dans une mishna (<i>Gittin</i> 55b) : Si quelqu'un a d'abord <b>achete</b> une terre <b>du mari et</b> par la suite <b>retourne et l'achete</b> <b>de la femme,</b> c'est-a-dire qu'il a achete ses droits sur cette terre pour apres la mort de son mari ou en cas de leur divorce, comme stipule dans son contrat de mariage, alors <b>sa transaction est nulle. Apparemment, elle a dit : Je l'ai</b> fait, c'est-a-dire signe cet acte de vente, uniquement pour <b>plaire a mon mari,</b> mais je ne le pensais pas. <b>La aussi, qu'elle dise : Je l'ai</b> fait uniquement pour <b>plaire a mon mari</b> mais je ne voulais pas lui donner ou lui vendre le champ.
+
+### Partie 5
+La Guemara repond : <b>Mais n'a-t-il pas ete dit a propos de cette</b> mishna que <b>Rabba bar Rav Huna dit :</b> La <i>halakha</i> selon laquelle une femme peut pretendre qu'elle a agi uniquement pour plaire a son mari n'est pas enoncee a l'egard de tous ses biens, mais <b>est necessaire uniquement a l'egard de ces trois</b> types de <b>champs</b> qui ont un statut particulier : <b>Un</b> champ au sujet duquel il lui a ecrit dans son contrat de mariage</b> qu'il servirait de paiement de son contrat de mariage ;
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

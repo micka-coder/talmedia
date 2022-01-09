@@ -1,0 +1,18 @@
+
+### Part 1
+If there were <b>two</b> people <b>grasping a knife</b> together <b>and slaughtering</b> an animal, <b>one</b> slaughtering <b>for the sake of one of all those</b> enumerated in the first clause of the mishna <b>and one</b> slaughtering <b>for the sake of a legitimate matter,</b> their <b>slaughter is not valid.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The mishna states that if one slaughters for the sake of mountains or other natural entities the slaughter is unfit. The Gemara infers: It is <b>unfit, yes;</b> with regard to <b>offerings to the dead,</b> i.e., to idols, it is <b>not</b> in that category. Apparently, the status of the animal is that of an unslaughtered carcass, from which benefit is permitted, and not that of an idolatrous offering, from which benefit is forbidden. <b>And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i>: With regard to <b>one who slaughters for the sake of mountains, for the sake of hills, for the sake of rivers, for the sake of wildernesses, for the sake of the sun and moon, for the sake of stars and constellations, for the sake of Michael the great ministering angel,</b> or even <b>for the sake of a small worm, these are offerings to the dead,</b> from which benefit is forbidden.
+
+### Part 3
+<b>Abaye said:</b> The apparent contradiction between the mishna and the <i>baraita</i> is <b>not difficult. This</b> mishna that teaches that the slaughter is not valid but benefit is permitted is referring to a case <b>where one says</b> that he is slaughtering the animal for the sake <b>of the mountain</b> itself, which is not an idol. <b>That</b> <i>baraita</i> that teaches that the animal is an offering to the dead and benefit is forbidden is referring to a case <b>where one says</b> that he is slaughtering the animal for the sake <b>of the angel of the mountain.</b> The language of the <i>baraita</i> <b>is also precise, as</b> the mountain and the other natural entities <b>are taught</b> together with and therefore <b>similar to Michael, the great ministering angel. Conclude from it</b> that the <i>tanna</i> is referring to slaughter for the sake of a spiritual entity, not the mountain itself.
+
+### Part 4
+<b>Rav Huna says: If the animal of another was prone before an idol, once one cut one <i>siman</i>,</b> the windpipe or the gullet, <b>he rendered</b> the animal <b>forbidden. He holds in accordance with that which Ulla says</b> that <b>Rabbi Yoḥanan says: Although</b> the Sages <b>said</b> that <b>one who bows to the animal of another does not render it forbidden,</b> if <b>he performed</b> a sacrificial <b>rite upon it he renders it forbidden.</b> The case cited by Rav Huna involves an action of that kind, cutting one <i>siman</i>; therefore, the animal is forbidden.
+
+### Part 5
+<b>Rav Naḥman raised an objection to</b> the opinion of <b>Rav Huna</b> from a <i>baraita</i>: <b>One who</b> unwittingly <b>slaughters</b> an animal that was designated as <b>a sin offering on Shabbat outside</b> the Temple, <b>for idol worship, is liable</b> to bring <b>three sin offerings:</b> One for performing the prohibited labor of slaughtering on Shabbat, one for slaughtering a sacrificial animal outside the Temple, and one for slaughtering an animal for idol worship. <b>And if you say</b> that <b>once he cuts one <i>siman</i> he renders</b> the animal <b>forbidden</b> as an idolatrous offering, then <b>let him not be liable</b> to bring a sin offering <b>for slaughter</b> of a sacrificial animal <b>outside</b> the Temple courtyard,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

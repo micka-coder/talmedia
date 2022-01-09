@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Rava a dit : Venez</b> et <b>entendre</b> une resolution de ce dilemme a partir de la mishna : <b>Si</b> il a decouvert qu'il etait impur <b>avant de se raser, il annule</b> les jours de sa nazireite <b>dans les deux cas.</b> La Gemara cherche a clarifier cela : <b>Quelles sont les circonstances</b> de ce cas ? Quand exactement a-t-il eu connaissance de l'impurete ? <b>Si</b> elle <b>a ete portee a sa connaissance pendant toute la duree</b> de sa nazireat, <b>faut-il dire,</b> qu'il annule les jours precedents ? Apres tout, il n'a pas encore accompli son vœu de nazireat. <b>Ne fait-on pas plutot reference</b> a un cas ou l'impurete a ete decouverte <b>apres le terme complet</b> de sa nazireite ? <b>Conclure de</b> la mishna qu'il annule les jours de sa nazireite meme s'il a decouvert l'impurete apres l'achevement de son terme.
+
+### Partie 2
+La Guemara poursuit l'analyse du cas precite. <b>Et vous</b> pouvez <b>encore soulever le dilemme :</b> Est-ce que <b>il annule</b> la <b>entiere</b> periode de sa nazireite <b>ou</b> est-ce que <b>il annule</b> seulement <b>sept</b> jours ? La Guemara demande : <b>Selon qui</b> ce dilemme se pose-t-il ? <b>Si l'on dit</b> que ce dilemme se refere <b>a l'avis des <b>Rabbins</b> (voir 16b), <b>il est evident que</b> il <b>negocie tout,</b> car ils soutiennent que meme un nazirite qui devient impur apres l'achevement de sa nazireite doit observer trente jours supplementaires. <b>Et si</b> on se refere <b>a</b> l'avis de <b>Rabbi Eliezer,</b> sa decision concernant <b>toute</b> impurete <b>apres le terme complet</b> de son mandat est qu'on <b>negocie</b> seulement <b>sept</b> jours.
+
+### Partie 3
+La Guemara repond : Celui qui a souleve ce dilemme aurait pu <b>vous dire : Cette declaration</b> de Rabbi Eliezer selon laquelle un nazirite n'annule que sept jours ne s'applique que <b>s'il est devenu impur apres le terme complet</b> de sa nazireite, <b>mais celui-ci</b> est devenu impur <b>avant</b> la fin du <b>terme complet,</b> et donc il annule la periode entiere. <b>Ou peut-etre est-ce different ici, car il s'agit</b> d'un cas de <b>connaissance</b> qui s'est revele <b>apres le terme complet</b> de sa nazireite.
+
+### Partie 4
+La Gemara repond : <b>Et</b> on peut resoudre le dilemme <b>a partir de cette</b> mishna elle-meme. La mishna <b>enseigne</b> que si le nazirite a decouvert qu'il etait impur avant de se raser <b>il annule</b> sa nazireite <b>dans les deux cas. Et il ne fait pas de distinction</b> entre les cas ou cela s'est produit avant la fin du terme complet ou apres. Cela indique que dans tous les cas, il ne nie que sept jours.
+
+### Partie 5
+§ <b>Les Sages ont enseigne</b> (<i>Tosefta</i>, <i>Zavim</i> 2:8) : Dans le cas de <b>celui qui trouve un cadavre etendu</b> en travers de <b>la largeur d'une route, en ce qui concerne le <i>teruma</i></b> le passant est <b>impur. Mais a l'egard</b> a la fois d'un <b>nazirite et de celui qui accomplit</b> le rituel de <b>l'offrande pascale,</b> le passant est <b>pur,</b> car il est considere comme impur imparti par une tombe dans les profondeurs. <b>Dans quel</b> cas <b>on dit cette declaration,</b> que l'on est impur en ce qui concerne la participation au <i>teruma</i> ? Elle est dite dans un cas <b>ou il n'a pas l'espace pour passer</b> sur la route sans passer sur le cadavre.
+
+### Partie 6
+<b>Mais</b> si <b>il a l'espace pour passer,</b> alors <b>meme en ce qui concerne le <i>teruma</i></b> il est <b>pur.</b> Ceci parce qu'il est possible que le passant ne soit pas devenu rituellement impur, et il existe un principe selon lequel si une incertitude survient concernant la purete rituelle d'une personne ou d'un objet dans le domaine public, la personne ou l'objet est considere comme pur.
+
+### Partie 7
+De meme, <b>dans quel</b> cas <b>cette declaration est-elle dite ?</b> Elle est dite dans un cas <b>ou l'on trouve</b> le cadavre <b>entier. Cependant,</b> s'il est <b>brise ou demembre</b> il est pur, <b>meme</b> si <b>il n'y a pas d'espace pour passer.</b> La raison est que <b>on soupconne</b> que <b>peut-etre il est passe entre les parties</b> du cadavre et n'a touche ou passe sur aucune d'entre elles. Ceci s'applique lorsqu'il trouve le cadavre a l'air libre. <b>Mais</b> s'il le trouve <b>dans une tombe, meme</b> s'il est <b>brise</b> ou <b>desincarne,</b> il est <b>impur.</b> C'est <b>parce que la tombe reunit</b> les parties en une seule unite et le rend impur s'il est passe sur une partie de la tombe, meme s'il n'a pas passe sur une partie du cadavre.
+
+### Partie 8
+Le <i>baraita</i> ajoute : <b>Dans quel</b> cas <b>cette affirmation est-elle dite,</b> c'est-a-dire que si le cadavre a ete demembre, le passant est pur ? Elle est dite <b>a l'egard</b> d'un passant qui <b>se deplace a pied. Cependant,</b> s'il etait <b>charge</b> d'un lourd fardeau <b>ou</b> etait <b>a cheval</b> sur un animal, il est <b>impur. </b> Ceci est <b>parce que</b> dans le cas de <b>celui qui voyage a pied, il est possible qu'il ne touche pas</b> le cadavre <b>et ne le deplacera pas</b> <b>et ne passera pas dessus</b>, alors que dans le cas de celui qui est <b>charge</b> d'un lourd fardeau et qui, par consequent, ne marche pas en ligne droite, <b>ou</b> celui qui <b>cavalier</b> d'un animal, <b>il est impossible qu'il ne touche pas</b> le cadavre <b>et ne le deplacera pas</b> <b>et ne le depassera pas</b>.
+
+### Partie 9
+<b>Dans quel</b> cas <b>est-il dit,</b> qu'un nazirite et celui qui apporte une offrande pascale sont consideres comme purs ? Il est dit <b>en ce qui concerne l'impurete</b> communiquee par une tombe <b>dans les profondeurs. Cependant,</b> si la source de l'<b>impurete</b> etait <b>connue</b> des autres mais pas de l'individu qui est devenu impur, tous les <b>trois,</b> c'est-a-dire un nazirite, celui qui accomplit le rituel de l'offrande pascale et celui qui souhaite participer au <i>teruma</i>, sont <b>impurs.</b>
+
+### Partie 10
+Le <i>baraita</i> continue : <b>Et quel</b> cadavre <b>est</b> considere comme communiquant l'<b>impurete des profondeurs ? Tout</b> cadavre <b>dont personne n'a connaissance,</b> meme <b>au bout de la terre.</b> Mais si meme <b>un</b> individu <b>en a connaissance,</b> meme si cette personne est <b>au bout de la terre, ce n'est pas</b> considere comme <b>impurete</b> communiquee par une tombe <b>dans les profondeurs.</b>
+
+### Partie 11
+Le <i>baraita</i> continue : Pour verifier si quelqu'un a jamais eu connaissance du cadavre, on tient compte de son etat. Si le corps <b>etait dissimule dans du foin ou dans des cailloux,</b> alors la personne aurait pu mourir dans une avalanche, il est probable que le cadavre n'avait jamais ete retrouve ; <b>c'est l'impurete</b> communiquee par une tombe <b>dans les profondeurs. </b> Par contre, s'il a ete trouve <b>dans l'eau, ou dans un endroit sombre</b>, <b>ou dans les fentes des rochers, ce n'est pas une impurete</b> impartie par une tombe <b>dans les profondeurs.</b> Bien que ce soient des endroits ou les gens ne vont pas souvent, avec le temps le cadavre a des chances d'etre decouvert, et il est fort possible que quelqu'un soit deja passe par la et l'ait vu.
+
+### Partie 12
+Le <i>baraita</i> conclut : <b>Et</b> les Sages ont <b>dit</b> que l'indulgence de <b>impurete</b> communiquee par une tombe <b>dans les profondeurs</b> s'applique <b>uniquement a l'egard d'un cadavre,</b> mais pas a l'egard d'autres sources d'impurete.
+
+### Partie 13
+§ La mishna a enseigne : <b>Comment</b> fait-on la difference entre une impurete connue et une impurete inconnue ? Si un nazirite <b>descend</b> pour s'immerger dans une grotte, et qu'on trouve un cadavre flottant a l'embouchure de la grotte, il est impur. La Guemara commente : <b>Une impurete flottante</b> <b>ne rend pas</b> une personne ou un objet <b>impur dans le cas</b> d'une carcasse d'un <b>animal rampant. Comme il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Teharot</i> 5:6) : En ce qui concerne le cas d'une <b>impurete incertaine,</b> ou un objet aurait pu toucher quelque chose d'impur qui etait <b>flottant, soit</b> dans l'eau <b>d'un recipient ou</b> dans l'eau <b>du sol,</b> par exemple un puits, l'objet est <b>pur. Rabbi Shimon dit:</b> Si l'impurete flottait dans l'eau qui se trouvait <b>dans un recipient,</b> l'article est <b>impur;</b> si l'impurete se trouvait dans l'eau <b>dans le sol,</b> il est <b>pur.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

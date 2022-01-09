@@ -1,0 +1,27 @@
+
+### Part 1
+as they hold that <b>once</b> it is so <b>that</b> the other relative <b>admitted</b> that he is not a closer relative, <b>he admitted</b> that he never had any right to the produce of the tree. Therefore, by his own admission, he is liable to reimburse Rav Idi bar Avin.
+
+### Part 2
+§ There was an incident where two people dispute the ownership of land. <b>This</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them, <b>and that</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them. <b>This</b> one <b>brings witnesses that</b> the land <b>belonged to his ancestors, and that</b> one <b>brings witnesses that</b> he worked and <b>profited</b> from the land for <b>the years</b> necessary <b>for</b> establishing the <b>presumption</b> of ownership.
+
+### Part 3
+<b>Rav Ḥisda said:</b> The one who is in possession of the land is deemed credible due to the legal principle that if one would have been deemed credible had he stated one claim but instead stated another claim that accomplishes the same result, he has credibility, because <b>why would he lie</b> and state this claim? <b>If</b> he <b>wants</b> to lie, he could have <b>said to him: I purchased it from you and I</b> worked and <b>profited from it</b> for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership. <b>Abaye and Rava do not hold</b> in accordance with <b>this</b> opinion <b>of Rav Ḥisda,</b> because they hold that <b>we do not say</b> that the principle of: <b>Why would I lie,</b> applies in a case <b>where</b> there are <b>witnesses</b> contradicting the claim he is stating, and in this case, witnesses testify that it belonged to the ancestors of the other claimant.
+
+### Part 4
+There was <b>a certain</b> person <b>who said to another: What do you want with this land</b> of mine? The possessor <b>said to him</b> in response: <b>I purchased it from you and I</b> worked and <b>profited from it</b> for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership. He then <b>went and brought witnesses that</b> he had <b>profited</b> from the land for <b>two years,</b> but he was unable to bring witnesses to testify about a third year. <b>Rav Naḥman said: The land reverts</b> back to the prior owner, <b>and</b> payment for <b>the produce</b> consumed during those two years <b>reverts</b> to the prior owner. Since the possessor was unable to substantiate his claim to the land, the assumption is that he consumed the produce unlawfully.
+
+### Part 5
+<b>Rav Zevid said: If</b> initially, when questioned by the other, the one occupying the land <b>claimed and said: I entered</b> the land <b>to</b> consume its <b>produce</b> that I had purchased, he is <b>deemed credible.</b> After all, <b>didn’t Rav Yehuda say: This one who is holding a sickle and rope [<i>vetovelaya</i>] and says: I will go cull [<i>igderei</i>]</b> the dates from <b>the date tree of so-and-so who sold it to me, is deemed credible</b> that he has the right to do so? <b>Apparently, a person is not</b> so <b>brazen that</b> he would <b>cull</b> the dates of <b>a date tree that is not his. Here too,</b> in the case discussed by Rav Zevid, <b>a person</b> is <b>not</b> so <b>brazen</b> as <b>to consume produce that is not his.</b>
+
+### Part 6
+The Gemara asks: <b>If that is so,</b> that the assumption is that he would not lie, let one be deemed credible with regard to <b>the land as well.</b> The Gemara answers: In terms of <b>the land, we say to him: Show your bill</b> of sale if you indeed purchased it. The Gemara challenges: <b>If that is so,</b> then in terms of the <b>produce as well,</b> let him be deemed credible only if he can produce documentation of his claim. The Gemara explains: It is <b>not common</b> for <b>people</b> to write <b>documents to</b> establish the right to consume <b>produce</b> alone, and one can therefore claim to have consumed the produce based on an oral agreement.
+
+### Part 7
+There was <b>a certain</b> person <b>who said to another: What do you want with this land</b> of mine? The possessor <b>said to him</b> in response: <b>I purchased it from you and I</b> worked and <b>profited from it</b> for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership. He then <b>brought one witness</b> who testified <b>that</b> he <b>profited</b> from the land for the necessary <b>three years. The Rabbis</b> who were studying <b>before Abaye maintained</b> that it made sense <b>to say</b> that the principle in this case <b>is</b> the same as that in the case of the <b>piece of cast metal [<i>naskha</i>]</b> adjudicated <b>by Rabbi Abba.</b>
+
+### Part 8
+The Gemara now presents that case: <b>As</b> there was <b>a certain man who snatched a piece of cast metal from another.</b> The one from whom it was taken <b>came before Rabbi Ami</b> while <b>Rabbi Abba was sitting before him,</b> and he <b>brought one witness</b> who testified <b>that</b> it was, in fact, <b>snatched from him.</b> The one who snatched it <b>said to him: Yes,</b> it is true that <b>I snatched</b> it, <b>but I</b> merely <b>snatched</b> that which was <b>mine. Rabbi Ami said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,99 @@
+
+### Part 1
+<b>we assess him once</b> and he donates twice the value of that single assessment, <b>or perhaps since he vowed sequentially we assess him twice?</b>
+
+### Part 2
+<b>And if you say</b> in that case that <b>since he vowed sequentially we assess him twice,</b> if <b>he says at the same time: My assessment</b> is <b>twice</b> incumbent <b>upon me, what is</b> the <i>halakha</i>? Do we say that <b>here certainly he vowed at the same time,</b> and therefore <b>we assess him once, or perhaps since he says</b> the word: <b>Twice, it is</b> considered <b>as though</b> he vowed <b>sequentially</b> and therefore he must be assessed twice?
+
+### Part 3
+Finally, <b>if you say</b> that <b>since he says</b> the word: <b>Twice, it is</b> considered <b>as though</b> he vowed <b>sequentially</b> and he must be assessed twice, if a court of ten <b>assessed him on its own,</b>i.e., not for the purpose of assessing a vow, <b>what is</b> the <i>halakha</i>? <b>Do we say that</b> he has already been <b>assessed on his own and</b> now <b>stands</b> before us, and therefore there is no need for another assessment, <b>or perhaps we require an assessment</b> to be performed <b>with intent</b> for the sake of consecration to the Temple treasury.
+
+### Part 4
+The Gemara suggests: <b>Resolve at least one</b> of these dilemmas, <b>as we learned</b> in the mishna below: In the case of one who says: It is incumbent <b>upon me</b> to donate <b>my assessment, and</b> then <b>dies,</b> his <b>heirs</b> need <b>not give</b> his assessment to the Temple treasury, <b>as there is no monetary</b> value <b>for the dead,</b> and his assessment at the time of his vow is unknown.
+
+### Part 5
+The Gemara explains the resolution: <b>And if it enters your mind</b> that in a case where a court of ten <b>assessed him on its own it is</b> a valid <b>assessment</b> with regard to his vow, why does the mishna state that his heirs do not have to donate to the Temple treasury? <b>Isn’t he</b> considered as <b>standing assessed</b> from the outset, as <b>is there a person who is not worth</b> at least <b>four <i>zuz</i>?</b> This proves that an assessment is required to be performed with intent for the sake of consecration to the Temple treasury.
+
+### Part 6
+The Gemara rejects this resolution: In a case where a court of ten <b>assessed him on its own</b> before he took his vow, <b>he has entered into an assessment,</b> i.e., an assessment has actually been performed. By contrast, in the case of one who says: It is incumbent <b>upon me</b> to donate <b>my assessment,</b> and then dies, <b>he has not entered into an assessment,</b> i.e., no actual assessment has been conducted at all.
+
+### Part 7
+<strong>MISHNA:</strong> There are <i>halakhot</i> that are more <b>stringent with regard to valuations than with regard to vows</b> of assessment. <b>How so?</b> In the case of <b>one who says:</b> It is incumbent <b>upon me</b> to donate <b>my valuation, and</b> then <b>dies,</b> his <b>heirs must give</b> his valuation to the Temple treasury. But one who says: It is incumbent <b>upon me</b> to donate <b>my assessment, and</b> then <b>dies,</b> his <b>heirs</b> need <b>not give</b> his assessment to the Temple treasury, <b>as there is no monetary</b> value <b>for the dead.</b>
+
+### Part 8
+One who says: It is incumbent <b>upon me</b> to donate <b>the valuation of my forearm, or: The valuation of my leg, has not said anything,</b> as there are valuations in the Torah only for a complete person. But if one says: It is incumbent <b>upon me</b> to donate <b>the valuation of my head, or: The valuation of my liver, he gives the valuation of his entire</b> self. <b>This is the principle:</b> One who valuates <b>an item upon which the soul is dependent,</b> i.e., without which one will die, <b>gives the valuation of his entire</b> self.
+
+### Part 9
+One who says: It is incumbent <b>upon me</b> to donate <b>half of my valuation, gives half of his valuation.</b> But one who says: It is incumbent <b>upon me</b> to donate <b>the valuation of half of me, gives the valuation of his entire</b> self. Likewise, one who says: It is incumbent <b>upon me</b> to donate <b>half of my assessment, gives half of his assessment;</b> one who says: It is incumbent <b>upon me</b> to donate <b>the assessment of half of me, gives the assessment of his entire</b> self. <b>This is the principle:</b> One who takes a vow with regard to <b>an item upon which the soul is dependent gives the assessment of his entire</b> self.
+
+### Part 10
+With regard to <b>one who says:</b> It is incumbent <b>upon me</b> to donate <b>the valuation of so-and-so,</b> and both <b>the one who vowed and the object of the vow die,</b> the <b>heirs</b> of the one who vowed <b>must give</b> the valuation of the object of the vow to the Temple treasury. With regard to one who says: It is incumbent <b>upon me</b> to donate <b>the assessment of so-and-so, and the one who vowed dies,</b> his <b>heirs must give</b> his assessment to the Temple treasury. If <b>the object of the vow dies,</b> the <b>heirs</b> of the one who vowed need <b>not give</b> his assessment to the Temple treasury, <b>as there is no monetary</b> value <b>for the dead.</b>
+
+### Part 11
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i>: There are <i>halakhot</i> that are more <b>stringent with regard to vows</b> of assessment <b>than with regard to valuations, as vows</b> of assessment <b>take effect with regard to a domesticated animal, an undomesticated animal, and a bird.</b> If one says: It is incumbent upon me to donate the assessment of this bird, he must donate that assessment. This is not the case with regard to valuations, as they do not take effect with regard to animals and birds. <b>And</b> another <i>halakha</i> that is more stringent with regard to vows of assessment than with regard to valuations is that the destitute who take vows of assessment <b>are not assessed based on affordability. This is not the case with regard to valuations,</b> which are assessed based on whether the one who vows can afford to pay what they vowed.
+
+### Part 12
+There is a <i>halakha</i> that is more <b>stringent with regard to valuations than with regard to vows</b> of assessment. <b>How so?</b> In the case of one who <b>said:</b> It is incumbent <b>upon me</b> to donate <b>my valuation, and dies,</b> his <b>heirs must give</b> his valuation to the Temple treasury. But one who says: It is incumbent <b>upon me</b> to donate <b>my assessment, and dies,</b> his <b>heirs</b> need <b>not give</b> his assessment to the Temple treasury, <b>as there is no monetary</b> value <b>for the dead.</b>
+
+### Part 13
+The <i>baraita</i> taught with regard to a person who <b>said:</b> It is incumbent <b>upon me</b> to donate <b>my valuation, and dies,</b> that his <b>heirs must give</b> his valuation to the Temple treasury. The Gemara suggests one can <b>conclude from</b> this ruling that <b>one collects a loan by oral agreement from the heirs,</b> as no promissory note was written with regard to this obligation. The Gemara rejects this conclusion: <b>Here</b> the heirs’ obligation to pay the valuation of the deceased <b>is different,</b> i.e., it is not the same as a loan by oral agreement, <b>as</b> a valuation <b>is</b> considered <b>a loan,</b> i.e., debt, <b>written in the Torah,</b> in accordance with the deceased’s age and sex at the time of the vow.
+
+### Part 14
+The Gemara objects: If so, can one <b>conclude from</b> the <i>baraita</i> that <b>a loan that is written in the Torah,</b> i.e., any financial obligation that applies by Torah law, <b>is considered</b> as though <b>it were written in a document?</b> The Gemara rejects this conclusion: <b>Here we are dealing with</b> a case <b>where he stood in judgment</b> before he died, and the court obligated him to donate his valuation. The court’s ruling is considered like a financial obligation written in a document, and therefore the heirs are required to pay his valuation.
+
+### Part 15
+The Gemara asks: If so, then <b>in the corresponding</b> situation, <b>with regard to</b> one who said: It is incumbent <b>upon me</b> to donate <b>my assessment,</b> the <i>baraita</i> must also be referring to one <b>who stood in judgment.</b> But in that case, <b>why don’t the heirs have to donate</b> his assessment? The Gemara answers that in the case of one who said: It is incumbent <b>upon me</b> to donate <b>my assessment,</b> even if he stood in judgment and the court obligated him to pay, <b>the assessment</b> of the precise amount he must pay is still <b>lacking,</b> as that amount is determined only through the assessment of a court. By contrast, with regard to one who said: It is incumbent <b>upon me</b> to donate <b>my valuation,</b> if he stood in judgment and the court obligated him to pay, <b>nothing is lacking,</b> as the amount he pays is fixed by the Torah.
+
+### Part 16
+§ The mishna teaches that one who says: It is incumbent <b>upon me</b> to donate <b>the valuation of my forearm, or of my leg,</b> has not said anything, as there are valuations in the Torah only for a complete person. <b>Rav Giddel says</b> that <b>Rav says: And</b> although he is exempt from donating the valuation, <b>he must give the assessment</b> of the forearm or leg.
+
+### Part 17
+The Gemara asks: <b>But isn’t it taught</b> in the mishna that <b>he has not said anything?</b> The Gemara answers: The ruling of the mishna that <b>he has not said anything</b> applies <b>according to</b> the opinion of <b>the Rabbis, but he must give the assessment according to</b> the opinion of <b>Rabbi Meir.</b> Rabbi Meir maintains that a person does not utter a statement for naught, and therefore he must have intended to vow to donate the assessment of the limb, as there is no valuation for limbs.
+
+### Part 18
+The Gemara asks: But <b>didn’t</b> Rav Giddel already <b>say it once, as Rav Giddel says</b> that <b>Rav says:</b> In the case of <b>one who says:</b> It is incumbent <b>upon me</b> to donate <b>the valuation of this vessel,</b> although he is exempt from donating the valuation of the vessel, according to the opinion of Rabbi Meir <b>he must give the assessment</b> of the vessel.
+
+### Part 19
+The Gemara answers: It was necessary for Rav Giddel to repeat that <i>halakha</i> with regard to one who vowed the valuation of his forearm or leg, <b>lest you say</b> this ruling <b>is</b> applicable only <b>there,</b> with regard to a vessel, <b>as a person knows that there is no valuation for a vessel, and he</b> therefore <b>intended and said</b> his vow <b>for the sake of assessments. But here,</b> with regard to his forearm or leg, <b>he erred, as he thought that just as there is</b> an obligation to donate the valuation in a case where one said: It is incumbent upon me to donate <b>the valuation of my head, or: The valuation of my liver, so too, there is</b> an obligation to donate the valuation if one said: It is incumbent upon me to donate the <b>valuation of my forearm or the valuation of my leg. But he did not</b> intend to <b>say</b> a vow of <b>assessments.</b> Therefore, Rav Giddel <b>teaches us</b> that even in the case of one who vowed to donate the valuation of his forearm or leg, he did not speak in error but intended to donate the assessment.
+
+### Part 20
+§ The mishna teaches that if one says: It is incumbent upon me to donate the <b>valuation of my head, or: The valuation of my liver, he gives the valuation of his entire</b> self. The Gemara asks: <b>What is the reason?</b> The Gemara answers that <b>the Merciful One states:</b> “A valuation of <b>living people”</b> (Leviticus 27:2), which indicates that in the case of one who valuates an item upon which the soul is dependent and without which one will die, he must give the valuation of his entire self.
+
+### Part 21
+The mishna further teaches that <b>this is the principle:</b> One who valuates <b>an item upon which the soul is dependent</b> and without which one will die gives the valuation of his entire self. The Gemara explains that the phrase: This is the principle, serves <b>to include</b> one who vowed to donate the valuation of his leg <b>from the knee and above.</b> Since one would die if his leg were severed above the knee, this is considered an item upon which the soul is dependent, and therefore he gives the valuation of his entire self.
+
+### Part 22
+The mishna teaches that one who says: It is incumbent <b>upon me</b> to donate <b>half of my valuation, gives</b> half of his valuation. <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 3:3): One who says: It is incumbent <b>upon me</b> to donate <b>half of my valuation, gives half of his valuation. Rabbi Yosei, son of Rabbi Yehuda, says: He is flogged and must give</b> his <b>full valuation.</b>
+
+### Part 23
+The Gemara asks: Since he did not commit a sin, <b>why is he flogged? Rav Pappa said</b> in response: <b>He is flogged,</b> i.e., punished, <b>in</b> that he must donate his <b>full valuation. What is the reason</b> he needs to give his full valuation? A rabbinic <b>decree</b> was issued that one who says: It is incumbent upon me to donate <b>half of my valuation,</b> must give the value of his entire self, <b>due to</b> a concern that this case might become confused with the similar one of a person who vows to donate <b>the valuation of half of himself. And</b> the <i>halakha</i> in such a case is that he must give the value of his entire self, as <b>the valuation of half of him is an item upon which the soul is dependent.</b>
+
+### Part 24
+The mishna further teaches that one who says: It is incumbent <b>upon me</b> to donate <b>half of my assessment, gives</b> half of his assessment. But one who says: It is incumbent <b>upon me</b> to donate <b>the assessment of half of me, gives the assessment of his entire</b> self, as one who takes a vow of assessment with regard to an item upon which the soul depends must give the assessment of his entire self. The Gemara asks: <b>What is the reason?</b> After all, it is only with regard to valuations that the Torah states: “A valuation of living people” (Leviticus 27:2), indicating that one who valuates an item upon which the soul depends must give the valuation of his entire self; but this is not stated with regard to assessments.
+
+### Part 25
+The Gemara answers that <b>it is written:</b> “When a man shall clearly utter <b>a vow [<i>neder</i>] with regard to a valuation [<i>be’erkekha</i>] of living people”</b> (Leviticus 27:2). The verse juxtaposes vows of assessment [<i>neder</i>] and valuations [<i>erekh</i>], thereby teaching that just as one who takes a vow of valuation with regard to an item upon which the soul depends must give the valuation of his entire self, so too, one who takes a vow of assessment with regard to an item upon which the soul is dependent must give the assessment of his entire self.
+
+### Part 26
+The mishna further teaches that <b>this is the principle:</b> One who takes a vow of assessment with regard to <b>an item upon which the soul is dependent</b> gives the assessment of his entire self. The Gemara explains that the phrase: This is the principle, serves <b>to include</b> one who vowed to donate the assessment of his leg <b>from the knee and above.</b> Since one would die if his leg were severed above the knee, this is an item upon which the soul depends, and therefore he gives the assessment of his entire self.
+
+### Part 27
+§ <b>The Sages taught</b> in a <i>baraita</i>: With regard to <b>one who valuates</b> in order to donate <b>half the valuation of a vessel, Rabbi Meir says: He gives</b> half <b>the assessment of</b> the vessel, <b>and the Rabbis say: He has not said anything.</b> The Gemara relates: <b>Rava became sick,</b> and <b>Abaye and</b> other <b>Sages came to</b> visit <b>him.</b> As <b>they were sitting and</b> talking, <b>they said: Granted</b> that <b>Rabbi Meir holds</b> that <b>a person does not utter a statement for naught,</b> and therefore there <b>is no difference</b> whether one vowed to donate the <b>entire</b> valuation <b>of</b> a vessel, <b>and</b> there <b>is no difference</b> whether one vowed to donate <b>half its</b> valuation; in either case he must have intended to donate the assessment, as there is no valuation with regard to vessels.
+
+### Part 28
+<b>But</b> with regard to <b>the Rabbis</b> in the <i>baraita</i>, <b>what do they hold? If</b> they maintain that <b>a person utters a statement for naught,</b> then <b>even</b> if one vowed to donate the <b>entire</b> valuation <b>of</b> a vessel, he should be exempt and the Rabbis should disagree with regard to that case. <b>And if</b> the Rabbis maintain that <b>a person does not utter a statement for naught,</b> then <b>even</b> one who vowed to donate <b>half</b> the valuation of a vessel should be obligated to give half of the assessment.
+
+### Part 29
+<b>Rava and Abaye said to</b> the Sages in response: <b>The Rabbis here</b> in the <i>baraita</i> <b>hold in accordance with</b> the opinion of <b>Rabbi Meir, but they</b> also <b>hold in accordance with</b> the opinion of <b>Rabbi Shimon.</b> Rava and Abaye elaborated: <b>They hold in accordance with</b> the opinion of <b>Rabbi Meir, who says</b> that <b>a person does not utter a statement for naught,</b> and therefore one who vows to donate the valuation of a vessel must give its assessment.
+
+### Part 30
+<b>And they</b> also <b>hold in accordance with</b> the opinion of <b>Rabbi Shimon</b> with regard to one who consecrated an item for a purpose for which it was unsuited, e.g., if one sought to bring a barley meal offering even though meal offerings may be brought only from wheat (see <i>Menaḥot</i> 103a). Rabbi Shimon <b>says</b> he is exempt from any obligation, <b>as</b> this person <b>did not donate in the manner</b> typical <b>of donors.</b> So too, with regard to one who vows to donate the valuation of a vessel, it is the typical <b>manner</b> for one <b>to donate an entire</b> vessel, and therefore one who does so is obligated to donate the assessment of the vessel. But it is <b>not</b> the typical <b>manner</b> for one <b>to donate half</b> a vessel, and therefore one who vows in this manner has not said anything and is exempt.
+
+### Part 31
+§ The mishna teaches that if one said: It is incumbent <b>upon me</b> to donate <b>the valuation of so-and-so, and</b> both <b>the one who vowed</b> and the object of the vow <b>die,</b> the heirs of the one who vowed must give his valuation to the Temple treasury. The Gemara asks: <b>What is</b> the specific case to which the mishna is referring? It must be referring to a case <b>where he stood in judgment,</b> and the court obligated him to donate his valuation before he died. The court’s ruling is considered like a financial obligation written in a document, and therefore the heirs of the one who vowed are required to pay his valuation.
+
+### Part 32
+If so, <b>this</b> clause in the mishna is identical to <b>that</b> previous clause in the mishna, which states that if one said: It is incumbent upon me to donate my valuation, and he dies, his heirs must give his valuation to the Temple treasury. Since it was explained that the earlier clause is also dealing with a case where he stood in judgment, for what purpose was this <i>halakha</i> repeated in the mishna? The Gemara answers: <b>It was necessary</b> to repeat this <i>halakha</i> in order to teach <b>the latter clause</b> of the mishna: With regard to one who says it is incumbent <b>upon him</b> to donate <b>the assessment of so-and-so, and the one who vowed dies,</b> his <b>heirs must give</b> his assessment to the Temple treasury.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

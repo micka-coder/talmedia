@@ -1,0 +1,24 @@
+
+### Part 1
+her husband <b>must nullify his part,</b> i.e., the part of the vow that affects him, so that she will be permitted to him, <b>and she may engage in intercourse with him, but she is removed from</b> all other <b>Jews,</b> so that if he divorces her, she is forbidden to everyone. <b>And if you say that</b> this <b>is a vow of affliction, why should she be removed from</b> all other <b>Jews?</b> Wasn’t it already established that when a husband nullifies a vow of affliction for his wife, he nullifies it not only with respect to himself but with respect to others as well? Rather, <b>learn from here</b> that such vows <b>are</b> under the category of <b>matters that</b> adversely affect the relationship <b>between him and her,</b> and therefore he can nullify it only with respect to himself.
+
+### Part 2
+The Gemara notes: <b>According to the Rabbis, you</b> still <b>have the dilemma, because</b> the mishna dealing with a woman who says: <b>I am removed from the Jews, was taught by Rabbi Yosei. As Rav Huna said: Our entire chapter is</b> in accordance with the opinion of <b>Rabbi Yosei. From where</b> do we know this? <b>Since</b> the mishna <b>teaches: Rabbi Yosei says</b> that <b>these are not vows of affliction, why does it need to teach further,</b> at the end of the mishna: <b>He can nullify</b> the vow; this is <b>the statement of Rabbi Yosei? Learn from this</b> that <b>from this</b> point <b>forward,</b> the rest of the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Yosei.</b> Accordingly, this mishna teaches us only the opinion of Rabbi Yosei, not that of the Rabbis.
+
+### Part 3
+§ <b>Shmuel said in the name of Levi: A husband can nullify all vows</b> of affliction <b>for his wife, except for</b> the vow: <b>Benefit</b> from <b>me</b> is <i>konam</i> <b>for so-and-so, which he cannot nullify,</b> as it is entirely between her and another person. <b>But</b> if she says: <b>Benefit</b> derived <b>from so-and-so</b> is <i>konam</i> <b>for me, he can nullify</b> the vow, as it considered a vow of affliction, since she might one day need that person and be unable to avail herself of his services due to her vow.
+
+### Part 4
+The Gemara raises an objection from that which <b>we learned</b> in the mishna: If she said: <b>The produce of this country</b> is <i>konam</i> <b>for me,</b> he cannot nullify the vow, as it does not involve affliction, since <b>he can</b> still <b>bring her</b> produce <b>from another country.</b> This vow is similar to a vow by which she prohibits herself from deriving benefit from another person. Why, then, does Shmuel say that the husband cannot nullify it? <b>Rav Yosef said:</b> The mishna is referring to a woman <b>who said</b> in her vow: <b>That you bring.</b> In other words, she did not prohibit herself from deriving benefit from the produce of that country entirely, but only from the produce that her husband himself would bring her. She may still enjoy that produce if it is brought to her by someone else or if she brings it for herself.
+
+### Part 5
+The Gemara raises another objection from the next clause of the mishna: <b>Come</b> and <b>hear:</b> If the woman took a vow saying: <b>The produce of this storekeeper is</b> <i>konam</i> <b>for me,</b> her husband <b>cannot nullify</b> the vow. But didn’t Shmuel say that if a woman prohibits herself from benefiting from a certain person, her husband can nullify the vow? The Gemara answers: <b>Here too,</b> the mishna is referring to a case <b>where she said</b> in her vow: The produce <b>that you bring</b> from this storekeeper is <i>konam</i> for me.
+
+### Part 6
+The Gemara questions this resolution: But the continuation of the mishna states: But <b>if</b> the husband can obtain <b>his sustenance only from him,</b> i.e., that particular storekeeper, <b>he can nullify</b> his wife’s vow. <b>And if you say</b> that this is referring to a case <b>where</b> the woman <b>said</b> in her vow: The fruit <b>that you bring</b> from this storekeeper is <i>konam</i> for me, <b>why can</b> the husband <b>nullify</b> her vow? Other people can bring her the fruit on his behalf. <b>Rather, from</b> the fact that <b>the latter clause</b> of the mishna must be dealing with a case where the woman renders all fruit forbidden to herself, even that which <b>the husband does not bring her, the first clause</b> must also refer to a case where the woman renders forbidden even the fruit <b>that she</b> herself <b>brings,</b> and nevertheless the husband cannot nullify the vow. Therefore, the objection raised against Shmuel remains.
+
+### Part 7
+<b>Rather,</b> the Gemara retracts its previous answer and explains the matter as follows: In the <b>first clause</b> the husband <b>cannot nullify</b> his wife’s vow, <b>and</b> the case is one where she renders forbidden even the fruit <b>that she</b> herself <b>brings.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Part 1
+that <b>Rav said: From where</b> is it derived <b>that betrothal</b> by another man <b>does not take effect with a <i>yevama</i>? As it is stated: “The wife of the dead man shall not be married outside of the family to one not of his kin”</b> (Deuteronomy 25:5), which indicates: <b>She shall not have</b> the possibility of <b>becoming</b> married <b>to one not of his kin,</b> i.e., his betrothal is of no account.
+
+### Part 2
+<b>And Shmuel said: In our poverty</b> of knowledge, as we do not fully understand the verse, <b>she requires a bill of divorce.</b> The Gemara explains: <b>Shmuel was uncertain with regard to this</b> verse: <b>“The wife of the dead man shall not be married</b> outside,” <b>whether it comes for a prohibition,</b> i.e., the woman is prohibited from marrying another man but the betrothal of that other man is effective, or <b>whether</b> it <b>comes</b> to teach <b>that betrothal</b> by any other man <b>does not take effect with her.</b>
+
+### Part 3
+<b>Rav Mari bar Raḥel said to Rav Ashi</b> that <b>Ameimar said as follows: The <i>halakha</i> is in accordance</b> with the opinion of <b>Shmuel. Rav Ashi said: Now that Ameimar said</b> that <b>the <i>halakha</i> is in accordance</b> with the opinion of <b>Shmuel,</b> who maintains that one who betroths a <i>yevama</i> before she has performed <i>ḥalitza</i> must give her a bill of divorce, <b>if her <i>yavam</i> was a priest, he performs <i>ḥalitza</i> with her,</b> as she is forbidden to him after the man who betrothed her gave her a bill of divorce, <b>and she is</b> thereby <b>permitted to</b> the man to whom she was betrothed.
+
+### Part 4
+The Gemara expresses surprise at this ruling: But in that case, she thereby <b>gains</b> from her prohibited betrothal, as she may subsequently marry the man who betrothed her illegally. <b>If so, we find a sinner benefiting</b> from his transgression. <b>Rather,</b> the Gemara emends the teaching: <b>If her <i>yavam</i> was</b> a regular <b>Israelite,</b> this <b>second</b> man who betrothed her <b>must give her a bill of divorce, and she is permitted to</b> the <i>yavam</i>, as a non-priest may marry a divorcée.
+
+### Part 5
+§ <b>Rav Giddel said</b> that <b>Rav Ḥiyya bar Yosef said</b> that <b>Rav said:</b> With regard to <b>a <i>yevama</i>, betrothal does not</b> apply <b>to her,</b> but <b>marriage does</b> apply <b>to her.</b> The Gemara expresses puzzlement: <b>If betrothal does not</b> apply <b>to her, marriage also</b> should <b>not</b> apply <b>to her.</b> How can marriage take effect if the earlier and less binding stage of betrothal is of no consequence? Rather, emend the above statement and <b>say: Neither betrothal nor marriage</b> apply <b>to her.</b>
+
+### Part 6
+<b>And if you wish, say</b> a different explanation. <b>What is</b> the meaning of the phrase: <b>Marriage does</b> apply <b>to her?</b> It is referring <b>to</b> a case of <b>licentious sexual relations.</b> In other words, although Rav maintains that betrothal is ineffective for her, if she entered the wedding canopy with another man and had relations with him, her status changes and she is forbidden to the <i>yavam</i>. This is <b>in accordance with</b> the opinion of <b>Rav Hamnuna, as Rav Hamnuna said</b> that <b>a widow awaiting her <i>yavam</i> who committed an act of licentious sexual relations is forbidden to her <i>yavam</i>.</b>
+
+### Part 7
+<b>And if you wish, say: Actually,</b> it is <b>as we said initially,</b> that <b>betrothal does not</b> apply <b>to her</b> but <b>marriage does</b> apply <b>to her.</b> However, this does not mean that marriage is actually effective. Rather, the <i>halakha</i> is that he must give her a bill of divorce, <b>as</b> people might <b>confuse</b> this case <b>with</b> that of <b>a woman whose husband went overseas.</b> The Sages decreed that he must give her a bill of divorce so that people would not say that a woman who remarried after hearing that her husband had died likewise does not require a bill of divorce.
+
+### Part 8
+§ <b>Rabbi Yannai said: In the group</b> of Sages who discussed this matter, <b>they counted and concluded</b> that <b>betrothal</b> by another man <b>does not take effect with a <i>yevama</i>. Rabbi Yoḥanan said to him: My teacher, is this not</b> taught in <b>a mishna</b> that states that betrothal is of no account for such a woman? <b>As we learned</b> in a mishna (<i>Bava Metzia</i> 16b): With regard to <b>one who says to a woman: You are hereby betrothed to me after I convert; after you convert; after I am freed</b> from slavery; <b>after you are freed; after your husband dies; after your sister dies;</b> or <b>after your <i>yavam</i> performs <i>ḥalitza</i> with you, she is not betrothed.</b> The reason for the above ruling is that he is considered to be attempting to acquire an entity that is not yet in existence, as the betrothal cannot take effect at that point in time. This indicates that betrothal is entirely ineffective for a <i>yevama</i> until she performs <i>ḥalitza</i>. Rabbi Yannai <b>said to</b> Rabbi Yoḥanan: <b>Had I not lifted the earthenware shard for you, would you have discovered the pearl</b> [<b><i>marganita</i></b>] <b>beneath it?</b> It was only after I informed you of the <i>halakha</i> that you were able to cite a proof for it from a mishna.
+
+### Part 9
+Sometime later, <b>Reish Lakish said</b> to Rav Yoḥanan: <b>If</b> it were <b>not</b> for the fact <b>that a great man,</b> Rabbi Yannai, <b>praised you, I would say</b> that this is no proof, as it is possible that <b>the mishna is</b> in accordance with the opinion of <b>Rabbi Akiva, who said</b> that <b>betrothal does not take effect for</b> those <b>liable for</b> violating regular <b>prohibitions,</b> and therefore it is not effective with a <i>yevama</i>. However, according to the opinion of the Rabbis, betrothal is effective for this woman, as is the case with all regular prohibitions.
+
+### Part 10
+The Gemara asks: <b>And if</b> it is the opinion of <b>Rabbi Akiva, when he said to her: After your <i>yavam</i> performs <i>ḥalitza</i> for you, let the betrothal take effect with her, as we have heard that Rabbi Akiva said</b> that <b>a man can transfer an entity that has not</b> yet <b>come into the world.</b> In other words, Rabbi Akiva is of the opinion that an acquisition can take effect for something not yet in existence. If so, even if the betrothal cannot take effect now, it should be valid after she has performed <i>ḥalitza</i>. The proof that this is indeed Rabbi Akiva’s opinion is <b>as we learned</b> in a mishna (<i>Ketubot</i> 59a):
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

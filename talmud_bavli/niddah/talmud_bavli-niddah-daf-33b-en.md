@@ -1,0 +1,66 @@
+
+### Part 1
+<b>Or perhaps</b> it is because <b>she was touching</b> the semen, <b>and</b> if so <b>she has not</b> thereby <b>negated</b> her count, just as a <i>zav</i> does not negate his count if he touches semen.
+
+### Part 2
+<b>Rava says: Commensurate with the sharpness</b> of Rami bar Ḥama is the extent of his <b>error,</b> as this is not a dilemma at all, since <b>even</b> if one could suggest <b>that</b> a <i>zava</i> who discharges semen has <b>indeed negated</b> her count, one must ask: <b>How much should she negate?</b> If one suggests <b>she should negate</b> all <b>seven</b> days of her counting, this is untenable, as <b>it is enough for her</b> that she should negate her count <b>like</b> the man who <b>engages in intercourse with her,</b> i.e., like a <i>zav</i> who discharges semen, who negates only one day.
+
+### Part 3
+And if one suggests that <b>she should negate one day</b> alone, this too is untenable, as <b>the Merciful One states:</b> “But if she is purified from her <i>ziva</i> then she shall count to herself seven days, <b>and after that she shall be pure”</b> (Leviticus 15:28). The word <b>“after”</b> indicates that she shall be pure only <b>after all of them,</b> i.e., after seven consecutive clean days, such <b>that there should be no impurity separating between them.</b> If so, there cannot be a situation where a <i>zava</i> negates a single day, and consequently it cannot be that a <i>zava</i> who discharges semen negates any part of her count.
+
+### Part 4
+The Gemara rejects Rava’s response: <b>And according to your reasoning, how does a <i>zav</i> himself negate</b> only one day from his count due to a seminal emission? After all, <b>the Merciful One states:</b> “And when the <i>zav</i> is purified of his <i>ziva</i>, then he shall count for himself seven days for his purification, and wash his clothes, and bathe his flesh in running water, and he shall be pure” (Leviticus 15:13). The phrase: “Seven days <b>for his purification,”</b> indicates <b>that there should be no impurity separating between them.</b>
+
+### Part 5
+<b>Rather, what have you to say?</b> The verse means only <b>that there should not be an impurity of <i>ziva</i> separating between them. Here too,</b> with regard to a <i>zava</i>, the verse means only <b>that there should not be an impurity of <i>ziva</i> separating between them;</b> a discharge of semen is not included in this restriction. It is therefore possible that a discharge of semen from a <i>zava</i> negates only one day from her count. Accordingly, the dilemma raised by Rami bar Ḥama remains in place.
+
+### Part 6
+§ The mishna teaches: <b>But</b> one who enters the Temple while wearing <b>those</b> garments upon which a Samaritan had lain <b>is not liable</b> to bring an offering <b>for entering the Temple,</b> nor does one burn <i>teruma</i> that came into contact with those garments, because their impurity is uncertain. In connection to these <i>halakhot</i>, the Gemara relates that <b>Rav Pappa happened</b> to come <b>to</b> the city of <b>Tavakh. He said: If there is a Torah scholar here I will go and greet him. A certain elderly woman said to him: There is a Torah scholar here and Rav Shmuel is his name, and he teaches <i>mishnayot</i>; may it be</b> God’s <b>will that you should be like him.</b>
+
+### Part 7
+Rav Pappa <b>said</b> to himself: <b>From</b> the fact <b>that they bless me through</b> this Rav Shmuel that I should be like him, I may <b>conclude from it</b> that <b>he is a God-fearing</b> individual. Rav Pappa <b>went to</b> visit <b>him,</b> and Rav Shmuel <b>raised a bull for him,</b> i.e., he slaughtered a bull in honor of Rav Pappa, and he also <b>raised</b> a difficulty between two <b><i>mishnayot</i></b> that apparently contradict <b>one another: We learn</b> in the mishna: One who enters the Temple while wearing <b>those</b> garments upon which a Samaritan had lain is <b>not liable</b> to bring an offering <b>for entering the Temple, nor does one burn <i>teruma</i></b> that came into contact with <b>those</b> garments, <b>because their impurity is uncertain. Evidently, we do not burn <i>teruma</i> due to uncertain</b> impurity.
+
+### Part 8
+<b>And</b> one can <b>raise a contradiction</b> from another mishna (<i>Teharot</i> 4:5): <b>For six</b> cases of <b>uncertain</b> impurity <b>one burns the <i>teruma</i></b> if it came into contact with them, or if a person came into contact with them and subsequently touched the <i>teruma</i>. One of these is <b>for the uncertain</b> case <b>of the garments of one who is unreliable with regard to ritual impurity [<i>am ha’aretz</i>].</b> Such garments impart impurity through contact and through carrying, due to a concern that the wife of the <i>am ha’aretz</i> might have sat on them while she was menstruating. Evidently, one burns <i>teruma</i> due to uncertain impurity.
+
+### Part 9
+<b>Rav Pappa</b> began his response with a supplication and <b>said: May it be</b> God’s <b>will that this bull shall be eaten peacefully,</b> i.e., that I will provide a satisfactory resolution of this contradiction. Since the bull was slaughtered in my honor, failing to resolve the contradiction might spoil the meal. Rav Pappa continued: <b>Here we are dealing with a Samaritan</b> who is <b>devoted to the meticulous observance of mitzvot, especially <i>halakhot</i> of ritual purity, <i>teruma</i>, and tithes [<i>ḥaver</i>].</b> There is therefore less concern with regard to his ritual purity than that of an <i>am ha’aretz</i>. Consequently, the mishna here states that <i>teruma</i> is not burned on account of him.
+
+### Part 10
+Rav Shmuel rejected this response: Since the mishna is referring to men who engage in intercourse with menstruating women, <b>are you equating a Samaritan <i>ḥaver</i></b> with a man who <b>engages in intercourse with a menstruating woman?</b>
+
+### Part 11
+Rav Pappa <b>left</b> Rav Shmuel in embarrassment <b>and came before Rav Shimi bar Ashi,</b> to whom he related this incident. Rav Shimi bar Ashi <b>said to him: What is the reason</b> that <b>you did not respond to him</b> that the ruling of the mishna is stated <b>with regard to a Samaritan who immersed</b> in a ritual bath <b>and arose</b> from his impure status, <b>and</b> subsequently <b>trod on the garments of a <i>ḥaver</i>,</b> which means they are now considered the bedding of the Samaritan, <b>and</b> then those <b>garments of</b> the <b><i>ḥaver</i> went and touched <i>teruma</i>?</b> In such a case one does not burn the <i>teruma</i>.
+
+### Part 12
+<b>As, if</b> one would say to burn it <b>due to the impurity of an <i>am ha’aretz</i>, he</b> has <b>immersed</b> in a ritual bath. <b>And if</b> one were to suggest that it should be burned <b>because</b> the Samaritan is one who <b>engages in intercourse with a menstruating woman,</b> this too is an unsatisfactory reason. This is because it is <b>uncertain</b> whether <b>he recently engaged in intercourse</b> with his wife, in which case his immersion does not remove his impurity; and it is <b>uncertain</b> whether <b>he did not recently engage in intercourse</b> with his wife, in which case he is in fact pure.
+
+### Part 13
+<b>And</b> even <b>if you say</b> that <b>he recently engaged in intercourse</b> with his wife, another uncertainty remains: It is <b>uncertain</b> whether his wife began counting seven days from an emission of green blood and ignored any subsequent emission of red blood and <b>completed</b> her count for the <b>green</b> blood, which would mean that she was in fact a menstruating woman when she engaged in sexual intercourse with her husband; and it is <b>uncertain</b> whether <b>she did not complete</b> a count of seven days from the emission of the green blood, rather from the emission of red blood, in which case she was not a menstruating woman when her husband engaged in intercourse with her. <b>And</b> therefore <b>this is a compound uncertainty, and</b> there is a principle that <b>one does not burn <i>teruma</i> on</b> account of <b>a compound uncertainty.</b>
+
+### Part 14
+Rav Pappa raised an objection to Rav Shimi bar Ashi: <b>And let</b> one <b>derive</b> that the garments of the <i>ḥaver</i> are impure <b>because</b> they came into contact with the <b>garments of an <i>am ha’aretz</i>. As the Master said:</b> The <b>garments of an <i>am ha’aretz</i></b> are considered impure with the ritual impurity imparted by the <b>treading</b> of a <i>zav</i>, which means they impart impurity to people and to garments, <b>for individuals who are scrupulous with regard to impurity [<i>perushin</i>].</b> Rav Shimi bar Ashi <b>said to</b> Rav Pappa: The mishna is referring <b>to a naked Samaritan.</b> Consequently, none of his garments came into contact with the garments of the <i>ḥaver</i>.
+
+### Part 15
+<strong>MISHNA:</strong> With regard to <b>Sadducee girls, when they were accustomed to follow in the ways of their</b> Sadducee <b>ancestors their</b> status <b>is like</b> that of <b>Samaritan women,</b> whose <i>halakha</i> was discussed in the previous mishna. If the Sadducee women <b>abandoned</b> the customs of their ancestors in order <b>to follow in the ways of the Jewish people</b> their status <b>is like</b> that of <b>a Jewish woman. Rabbi Yosei says: Their</b> status <b>is always like</b> that of <b>a Jewish woman, until they will abandon</b> the ways of the Jewish people in order <b>to follow in the ways of their</b> Sadducee <b>ancestors.</b>
+
+### Part 16
+<strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages: <b>What</b> is the <i>halakha</i> in <b>an unspecified</b> case, i.e., when the custom of a Sadducee woman is unknown? The Gemara suggests: <b>Come</b> and <b>hear</b> evidence from the mishna: With regard to <b>Sadducee girls, when they are accustomed to follow in the ways of their</b> Sadducee <b>ancestors their</b> status <b>is like</b> that of <b>Samaritan women.</b> It can be inferred from the mishna <b>that</b> in <b>an unspecified</b> case their status <b>is like</b> that of <b>a Jewish woman.</b> The Gemara rejects this suggestion: <b>Say the latter clause:</b> If the Sadducee women <b>abandoned</b> the customs of their ancestors in order <b>to follow in the ways of the Jewish people their</b> status <b>is like</b> that of <b>a Jewish woman.</b> One may infer from this <b>that</b> in <b>an unspecified</b> case their status <b>is like</b> that of <b>Samaritan women. Rather, no</b> inference is <b>to be learned from this</b> mishna.
+
+### Part 17
+The Gemara suggests: <b>Come</b> and <b>hear</b> the last clause of the mishna, <b>as we learned</b> in the mishna that <b>Rabbi Yosei says: Their</b> status <b>is always like</b> that of <b>a Jewish woman, until they will abandon</b> the ways of the Jewish people in order <b>to follow in the ways of their</b> Sadducee <b>ancestors. By inference,</b> one may conclude <b>that the first <i>tanna</i> holds</b> that in <b>an unspecified</b> case their status <b>is like</b> that of <b>Samaritan women.</b> The Gemara affirms: <b>Conclude from it</b> that this is the case.
+
+### Part 18
+§ <b>The Sages taught:</b> There was <b>an incident involving a certain Sadducee who was conversing with the High Priest in the marketplace, and</b> as he was speaking, <b>saliva [<i>tzinora</i>] sprayed from his mouth and fell onto the garments of the High Priest. And the face of the High Priest turned green,</b> as he feared that his garments had been rendered ritually impure. <b>And he rushed to</b> the Sadducee’s <b>wife</b> to inquire whether she properly observed the <i>halakhot</i> of menstruation, in which case his garments were not rendered impure by the saliva of her husband, as he is not considered one who engages in intercourse with a menstruating woman.
+
+### Part 19
+<b>She said to him: Even though</b> women such as myself <b>are the wives of Sadducees,</b> who do not follow in the ways of the <i>perushim</i>, <b>they are scared of the <i>perushim</i> and they show</b> their <b>blood to the Sages</b> when an uncertainty arises. The garments of the High Priest are therefore pure, as the Sadducee wives properly observe the <i>halakhot</i> of menstruation.
+
+### Part 20
+<b>Rabbi Yosei says: We are familiar with the</b> wives of Sadducees <b>more so than everyone</b> else, as they are our neighbors, <b>and</b> I can testify that <b>they</b> all <b>show</b> their <b>blood to the Sages, except for a certain woman who was</b> living <b>in our neighborhood who did not show</b> her <b>blood to the Sages, and she died,</b> as a punishment for her behavior.
+
+### Part 21
+The Gemara objects: <b>And let</b> the High Priest <b>derive</b> that his garments are impure <b>due to the saliva of an <i>am ha’aretz</i>,</b> which imparts impurity. <b>Abaye said:</b> That case involved <b>a Sadducee <i>ḥaver</i>,</b> who was particular with regard to the <i>halakhot</i> of ritual purity. <b>Rava said: Are you equating a Sadducee <i>ḥaver</i></b> with a man who <b>engages in intercourse with a menstruating woman?</b> After all, the High Priest was initially concerned that the Sadducee might engage in intercourse with his wife while she is still menstruating. <b>Rather, Rava said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+en ce qui concerne le <b>dommage, ou</b> la Torah <b>rendait</b> le statut juridique de celui qui cause un dommage <b>inconsciemment comme</b> celui de celui qui cause un dommage <b>intentionnellement, et</b> le statut de celui qui cause un dommage <b>en raison de circonstances independantes de sa volonte comme</b> celui de celui qui cause un dommage <b>avec intention, </b> comme on est toujours responsable des dommages qu'on a causes (voir <i>Bava Kamma</i> 26a), <b>n'est-il pas logique que</b> la Torah <b>rende celui qui enferme</b> un animal dans un endroit ou il ne peut pas survivre <b>responsable</b> de payer une restitution meme s'il n'a pas accompli une action ?
+
+### Partie 2
+La Guemara explique l'opinion contradictoire. <b>Rav Aha bar Rav, exempte</b> celui qui a confine l'animal au soleil de la retribution du proprietaire. <b>Rav Mesharshiyya a dit : Quelle est la raison</b> de l'avis <b>du</b> Rav Aha, <b>le pere de</b> mon <b>pere, qui l'exempte</b> du paiement ? La raison en est que <b>le verset stipule :</b> "Si, par inimitie, il le frappe de sa main et qu'il meurt, <b>l'agresseur sera mis a mort ; c'est un meurtrier"</b> (Nombres 35:21). L'expression "il est un meurtrier" restreint la responsabilite de celui qui en enferme un autre. C'est <b>dans</b> le cas d'un <b>meurtrier</b> que la Torah <b>rend pour nous celui qui enferme</b> un autre <b>responsable</b> d'etre execute. Mais <b>dans</b> le cas d'un <b>dommage</b> la Torah <b>ne rend pas pour nous celui qui enferme</b> l'animal d'un autre <b>liable</b> de dedommager le proprietaire, car ce n'est pas son action qui a cause le dommage.
+
+### Partie 3
+§ <b>Rava dit :</b> Si <b>quelqu'un a attache</b> un autre <b>et qu'il est mort de faim,</b> il est <b>exempte</b> de la responsabilite de recevoir une peine de mort imposee par le tribunal, car ce n'est pas son action qui a cause la mort de la victime. Meme si la victime avait faim lorsqu'elle a ete ligotee, la famine qui a cause sa mort est survenue plus tard. Celui qui l'a ligote est susceptible d'etre puni par le tribunal celeste. <b>Et Rava dit :</b> Si l'on <b>lien</b> un autre <b>au soleil et qu'il est mort</b> de la chaleur, ou <b>dans un endroit froid</b> <b>et qu'il est mort</b> d'exposition, il est <b>faisable</b> d'etre execute, car a partir du moment ou il l'a lie, la victime a commence a mourir. Mais si quelqu'un en a lie un autre dans un endroit qui, a l'epoque, n'etait pas expose au soleil ou au froid, meme si <b>totot</b> le <b>soleil arrivait</b> a cet endroit, ou <b>otot</b> le <b>froid atteignait</b> cet endroit, il est <b>exempte</b> de l'execution, car au moment ou il a lie la victime, la cause future de la mort n'etait pas presente.
+
+### Partie 4
+<b>Et Rava dit : Si quelqu'un a lie</b> un autre <b>devant un lion,</b> il est <b>exempte</b> de l'execution. Puisque peut-etre le lion choisira de ne pas s'attaquer a la victime, ce n'est pas son action qui a cause le dommage. S'il a lie un autre <b>devant des moustiques</b> il est <b>faisable</b> d'etre execute, car inevitablement, les moustiques le piqueront jusqu'a sa mort. <b>Rav Ashi dit : Meme</b> s'il a lie un individu <b>avant les moustiques</b> il est <b>exempte</b> de l'execution, car les moustiques qui etaient la quand il a lie l'individu ne sont pas ceux qui l'ont tue. Au contraire, <b>ces moustiques</b> sont <b>partis et ces</b> autres moustiques <b>sont arrives.</b> Par consequent, ce cas est comparable a celui ou l'on ligote un autre dans un endroit ou le soleil ou le froid finiraient par arriver.
+
+### Partie 5
+<b>Il a ete dit</b> qu'il y a un differend amoraique concernant celui qui a <b>renverse une cuve sur</b> un autre et celui-ci est mort d'etouffement, <b>ou brise le platre</b> couvrant le toit et l'absence de plafond a cause la mort d'un autre par exposition. <b>Rava et Rabbi Zeira</b> ne sont pas d'accord. <b>L'un dit</b> qu'il est <b>possible</b> d'etre execute, <b>et l'autre dit</b> qu'il est <b>exempte</b> de l'execution.
+
+### Partie 6
+La Gemara suggere : <b>Conclure que Rava est</b> celui <b>qui dit</b> que le coupable est <b>exempte</b> de l'execution, <b>car Rava dit :</b> Si un <b>lien</b> un autre <b>et qu'il meurt de faim,</b> il est <b>exempte</b> de l'execution, car ce n'est pas son action qui a provoque la mort de la victime.
+
+### Partie 7
+La Guemara rejette cette suggestion : <b>Au contraire, concluez que c'est Rabbi Zeira qui dit</b> que l'auteur est <b>exempte, car Rabbi Zeira dit :</b> En ce qui concerne <b>cette</b> individu <b>qui en a emmene un autre dans</b> une <b>maison de marbre hermetiquement fermee et il a allume une lampe [<i>sheraga</i>] pour lui, et il est mort</b> des fumees, l'auteur est <b>faisable</b> d'etre execute. On peut en deduire que <b>la raison</b> il est responsable est <b>parce qu'il a allume une lampe pour lui, mais s'il n'a pas allume de lampe pour lui, non,</b> il n'est pas responsable, bien que la victime serait finalement morte meme sans la lampe. Apparemment, Rabbi Zeira soutient egalement que l'auteur n'est responsable que si son action a cause la mort, ou du moins a provoque le debut du processus de mort. Ce cas est identique a celui de la cuve renversee.
+
+### Partie 8
+Les Sages <b>Disent :</b> Dans le cas <b>la,</b> ou l'on enferme une autre personne dans une maison de marbre, <b>sans</b> une <b>lampe allumee, l'atmosphere ne commence pas</b> a causer la suffocation.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

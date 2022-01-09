@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>Les <i>dulfanin</i> se reproduisent comme les gens.</b> La Gemara demande : <b>Qu'est-ce que les <i>dulfanin</i> ? Rav Yehuda repond :</b> Ce sont des creatures que l'on appelle <b>fils de la mer.</b>
+
+### Partie 2
+La <i>baraita</i> continue : Dans le cas de <b>Tout</b> animal male <b>dont les testicules sont externes,</b> la femelle <b>met au monde</b> une progeniture vivante, <b>et</b> dans le cas de <b>Tout</b> animal male <b>dont les testicules sont internes,</b> la femelle <b>pile des œufs.</b>
+
+### Partie 3
+La Gemara demande : <b>C'est le cas ? Mais Shmuel ne dit-il pas</b> qu'une <b>Oie domestique et une oie sauvage sont</b> considerees comme des <b>especes differentes,</b> et qu'on ne peut les accoupler <b>l'une avec l'autre. Et nous en avons discute : Quelle en est la raison ? Abaye a dit :</b> Dans le cas de <b>cette</b>-la, l'oie sauvage male, <b>ses testicules sont externes, et</b> dans le cas de <b>cette</b>-la, l'oie domestique, <b>ses testicules sont internes.</b> La Gemara commente : <b>Et</b> pourtant <b>les deux</b> oies <b>laissent des œufs.</b> De toute evidence, le fait que les testicules du male soient externes ne prouve pas que la femelle donne naissance.
+
+### Partie 4
+<b>Par contre,</b> le <i>baraita</i> doit signifier ce qui suit : En ce qui concerne <b>tout</b> animal <b>dont l'<b>organe reproducteur</b> male est <b>externe,</b> la femelle <b>met bas,</b> et dans le cas de tout animal male dont l'organe reproducteur est <b>interne,</b> la femelle <b>pile des œufs.</b> Bien que les testicules de l'oie sauvage male soient externes, son organe reproducteur est interne.
+
+### Partie 5
+§ Le <i>baraita</i> continue a discuter des questions de procreation animale : <b>Toute</b> espece <b>dont les rapports sexuels</b> se produisent uniquement <b>pendant le jour donne naissance</b> uniquement <b>pendant le jour;</b> toute espece dont les rapports sexuels se produisent uniquement <b>la nuit donne naissance</b> uniquement <b>la nuit ; toute</b> espece <b>dont les rapports sexuels</b> se produisent <b>a la fois pendant le jour et la nuit donne naissance a la fois pendant le jour et la nuit.</b>
+
+### Partie 6
+La Guemara developpe : L'affirmation selon laquelle toute espece dont le <b>rapport sexuel</b> a lieu <b>pendant le jour donne naissance pendant le jour</b> fait reference a <b>un poulet.</b> L'affirmation selon laquelle toute espece dont le rapport sexuel a lieu <b>la nuit donne naissance la nuit</b> fait reference a <b>une chauve-souris. </b> L'affirmation selon laquelle toute espece dont le <b>rapport sexuel</b> a lieu <b>a la fois le jour et la nuit donne naissance a la fois le jour et la nuit</b> fait reference a <b>un humain et a toute</b> creature <b>qui lui est semblable.</b>
+
+### Partie 7
+La Guemara demande : <b>Quelle</b> <b>difference halakhique y a-t-il</b> selon qu'un animal met bas de jour ou de nuit ? La Gemara repond : La difference est <b>en ce qui concerne ce que Rav Mari, fils de Rav Kahana,</b> a dit. <b>Comme l'a dit Rav Mari, fils de Rav Kahana :</b> Si on <b>examine un nid de poule la veille d'une Fete et qu'on n'y trouve pas d'œuf, et que le lendemain,</b> le jour de la Fete, <b>on se leve tot,</b> avant l'aube, <b>et qu'on y trouve un œuf, la consommation</b> de l'œuf est <b>permise le jour de la Fete. </b> Il n'est pas considere comme un œuf qui a ete pondu le jour de la Fete, ce qui est interdit (voir <i>Beitza</i> 2a), car les poules ne pondent pas la nuit. Bien qu'il ait examine le nid avant la Fete et qu'il n'y ait pas trouve d'œuf, on est oblige de <b>dire</b> que <b>il n'a pas examine</b> le nid <b>avec soin.</b>
+
+### Partie 8
+La Gemara conteste : <b>Mais il a examine</b> le nid <b>avec soin,</b> car la <i>baraita</i> affirme qu'il l'a examine. La Guemara explique : Il faut <b>dire</b> que c'etait <b>un cas ou la <b>majeure partie</b> de l'œuf <b>a emerge</b> la veille de la Fete <b>et est retourne</b> a l'interieur de sa mere avant l'examen. <b>Et</b> cette decision est <b>conforme</b> a l'avis <b>de Rabbi Yohanan, car Rabbi Yohanan dit :</b> Dans un cas ou <b>la plus grande partie de l'œuf a emerge la veille de la Fete et est retournee</b> a l'interieur de sa mere, il est <b>permis de le manger le jour de la Fete,</b> car une fois que la plus grande partie a emerge, on considere qu'il a deja ete pondu.
+
+### Partie 9
+§ Le <i>baraita</i> continue : <b>Tout</b> deux animaux d'especes differentes <b>dont le mode de <b>course et</b> le moment de <b>gestation sont identiques peuvent avoir une progeniture</b> ensemble <b>et</b> peuvent <b>elever,</b> c'est-a-dire, allaiter, les petits <b>les uns des autres.</b> En ce qui concerne le mode de rapport sexuel, <b>toutes</b> les especes <b>engagent des rapports sexuels</b> avec <b>le visage</b> du male <b>oppose a la nuque</b> de la femelle, ce qui signifie que le male vient par derriere la femelle, <b>sauf pour trois</b> especes <b>qui engagent des rapports sexuels face a face, et ce sont celles-ci : Les poissons, et les humains, et</b> le <b>serpent.</b>
+
+### Partie 10
+La Gemara demande : <b>Et qu'est-ce qui est different</b> chez <b>ces trois-la ? Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a rapporte que <b>on dit en Occident,</b> Eretz Yisrael, l'explication suivante : Ils sont differents <b>parce que la Presence Divine a parle avec eux.</b> Cela s'est produit lorsque le poisson a avale le prophete Jonas (voir Jonas 2:11), lorsqu'Adam et d'autres prophetes se sont fait parler par Dieu, et lorsque le serpent a fait pecher Adam et Eve (voir Genese 3:14).
+
+### Partie 11
+Un <i>tanna</i> <b>enseignant : Un chameau</b> a des rapports sexuels <b>dos a dos</b> avec son compagnon.
+
+### Partie 12
+§ La Guemara cite une <i>baraita</i> qui discute de la duree de gestation de divers animaux. <b>Les Sages ont enseigne</b> que <b>un poulet</b> eclot <b>apres vingt-et-un jours, et qu'a lui correspond</b> en duree de gestation <b>en ce qui concerne les arbres, l'amande,</b> qui murit vingt-et-un jours apres le bourgeonnement de la fleur. <b>Un chien</b> donne naissance <b>apres cinquante jours, et lui correspondant en ce qui concerne les arbres est la figue. Un chat</b> donne naissance <b>apres cinquante-deux jours, et lui correspondant en ce qui concerne les arbres est le murier. Un porc</b> donne naissance <b>apres soixante jours,</b> et <b>le correspondant en ce qui concerne les arbres est la pomme. Un renard et toutes sortes d'animaux rampants</b> donnent naissance apres <b>six mois, et leur correspondant en ce qui concerne les arbres,</b> c'est-a-dire les plantes, <b>est le grain.</b>
+
+### Partie 13
+<b>Le petit betail casher,</b> tel que les moutons ou les chevres, donne naissance <b>apres cinq mois, et leur correspondant en ce qui concerne les arbres est la vigne. Le gros betail non casher,</b> comme les chameaux ou les anes, donne naissance <b>apres douze mois, et leur correspondant en matiere d'arbres est le palmier-dattier.</b> Le gros betail <b>casher</b>, comme les vaches, donne naissance <b>apres neuf mois, et leur correspondant en matiere d'arbres est l'olivier. Le loup, et le lion, et l'ours, et le leopard, et les <i>bardelas</i>, et l'elephant, et le singe, et le singe a longue queue</b> donnent naissance <b>apres trois ans, et leur correspondant en ce qui concerne les arbres est la figue blanche.</b>
+
+### Partie 14
+Le <i>baraita</i> continue : <b>Une vipere</b> donne naissance <b>apres soixante-dix ans, et lui correspondant en ce qui concerne les arbres est le caroubier.</b> Dans le cas de <b>ce caroubier,</b> la periode <b>depuis le moment de sa plantation jusqu'au moment de la maturation de son fruit est de soixante-dix ans, et la duree de sa gestation est de trois ans. Un serpent</b> nait <b>apres sept ans, et pour ce mechant</b> animal <b>on n'a pas trouve d'equivalent</b> parmi les arbres. <b>Et certains disent</b> que les <b><i>mukhsasim</i></b> sont l'equivalent, car ils murissent apres sept ans.
+
+### Partie 15
+La Gemara demande : <b>D'ou provient cette affaire,</b> que la periode de gestation d'un serpent est de sept ans ? <b>Rav Yehuda dit</b> que <b>Rav dit, et</b> certains l'ont <b>determine</b> au nom de Rabbi Yehoshua ben Hananya :</b> Il est derive de <b>cette</b> qui <b>est enoncee</b> a propos de la punition du serpent pour avoir fait pecher Adam et Eve : <b>Vous etes maudits d'entre tous les animaux, et d'entre toutes les betes des champs</b> (Genese 3:14), en ce sens que votre periode de gestation doit etre plus longue que toutes les autres. Or, pourquoi le verset mentionne-t-il les betes des champs, c'est-a-dire les animaux non domestiques ? <b>Si</b> le serpent <b>etait maudit</b> plus <b>que les animaux domestiques,</b> alors <b>a plus forte raison</b> n'est-il <b>pas</b> clair qu'il etait maudit plus <b>que les animaux non domestiques ?</b> La plus courte periode de gestation des animaux domestiques, qui est de cinq mois pour une chevre, est plus longue que la plus courte periode de gestation parmi les animaux non domestiques, qui est de cinquante-deux jours pour un chat.
+
+### Partie 16
+<b>Au contraire,</b> le verset mentionne les betes des champs <b>pour vous dire : De meme que les animaux domestiques ont ete maudits</b> plus <b>que les animaux non domestiques dans</b> une proportion de <b>un a sept;</b> la Gemara interjette : <b>Et</b> en ce qui concerne <b>quel</b> cas ? </b> C'est en ce qui concerne <b>un ane,</b> dont la periode de gestation comme mentionne est de douze mois, compare <b>a un chat,</b> dont la periode de gestation est de cinquante-deux jours. Sept fois plus long que cinquante-deux jours, cela fait 364 jours, ce qui signifie que la periode de gestation de l'ane, qui est d'un an, est presque exactement sept fois plus longue que celle du chat. Rav Yehuda poursuit : <b>De meme,</b> le serpent <b>a ete maudit</b> plus <b>que les animaux domestiques,</b> c'est-a-dire l'ane, dans une proportion de <b>un a sept, soit</b> un total de <b>sept ans.</b>
+
+### Partie 17
+La Gemara conteste : <b>Disons</b> que le verset peut etre interprete comme suit : <b>De meme que les animaux non domestiques ont ete maudits</b> plus <b>que les animaux domestiques</b> dans une mesure de <b>une</b> annee <b>a trois ans;</b> la Gemara interjette : <b>Et</b> dans <b>quel cas</b> <b>c'est ca ? </b> C'est dans le cas d'un <b>lion,</b> dont la periode de gestation est de trois ans, compare <b>a un ane,</b> dont la periode de gestation est d'un an. La Guemara poursuit son defi : <b>Aussi,</b> le serpent <b>a ete maudit</b> plus <b>que les animaux non domestiques,</b> c'est-a-dire le lion, dans une proportion de <b>un</b> an <b>a trois ans, soit neuf ans.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

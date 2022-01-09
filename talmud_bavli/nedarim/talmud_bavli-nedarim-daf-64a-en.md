@@ -1,0 +1,18 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>Rabbi Eliezer says:</b> When halakhic authorities are approached with regard to the dissolution of a vow, they <b>may broach</b> dissolution <b>with a person</b> who took a vow <b>by</b> raising the issue of how taking the vow ultimately degraded <b>the honor of his father and mother,</b> asking him the following: Had you known that your parents would experience public shame due to your lax attitude toward your vow, would you still have taken the vow? <b>But the Rabbis</b> disagree with Rabbi Eliezer and <b>prohibit</b> broaching dissolution of a vow with this particular question.
+
+### Part 2
+To support the opinion of the Rabbis, <b>Rabbi Tzadok said: Instead of broaching</b> dissolution <b>with him by</b> raising the issue of <b>the honor of his father and mother, let them broach</b> dissolution <b>with him by</b> raising the issue of <b>the honor of the Omnipresent.</b> They should point out that a vow taken in the name of God lessens the honor of God, so they could ask him: If you had known that your vow would diminish the honor of God, would you have taken your vow? And <b>if so,</b> if this is a valid method of broaching dissolution, <b>there are no vows.</b> Nevertheless, <b>the Rabbis concede to Rabbi Eliezer with regard to</b> a vow concerning <b>a matter that is between him and his father and mother, that</b> they <b>may broach</b> dissolution <b>with him by</b> raising the issue of <b>the honor of his father and mother,</b> as in this case the extenuation is connected to this particular vow.
+
+### Part 3
+<b>And Rabbi Eliezer further said:</b> They <b>may broach</b> dissolution <b>by</b> asking about <b>a new situation, but the Rabbis prohibit</b> it. <b>How</b> might they broach dissolution by asking about a new situation? If one <b>said: It is</b> forbidden to me <b>like an offering [<i>konam</i>] that I will</b> therefore not <b>derive benefit from so-and-so, and</b> that person later <b>became a scribe [<i>sofer</i>],</b> and the one who took the vow now requires his services, <b>or if</b> the one forbidden by the vow <b>was marrying off his son</b> and prepared a feast for all the residents of his town, <b>and</b> the one that had taken the vow <b>said: Had I known that he would become a scribe, or that he would be marrying off his son in the near</b> future, <b>I would not have vowed.</b>
+
+### Part 4
+The mishna cites another example of a new situation. If one said: <b>Entering this house is <i>konam</i></b> for me, <b>and</b> that house <b>became a synagogue,</b> and <b>he said: Had I known that it would become a synagogue, I would not have vowed,</b> in this and all such cases <b>Rabbi Eliezer permits</b> the halakhic authority to use this as a basis for the dissolution of the vow, <b>and the Rabbis prohibit</b> it.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara clarifies the meaning of the statement made by Rabbi Tzadok. <b>What</b> does: If so, <b>there are no vows,</b> mean? <b>Abaye said:</b> It means: <b>If so, vows are not dissolved properly.</b> The one who took the vow might say he regrets doing so only because he is not willing to publicly state that he would have taken his vow despite knowing that it diminishes the honor of God. He may not actually regret having taken the vow, and this will lead to the improper dissolution of the vow.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

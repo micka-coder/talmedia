@@ -1,0 +1,33 @@
+
+### Part 1
+The Gemara addresses the continuation of the verse: <b>“And though I have afflicted you [<i>ve’innitikh</i>]”</b> (Nahum 1:12). <b>Mar Zutra says:</b> This means that <b>even a poor person [<i>ani</i>] who is sustained from charity</b> must also <b>perform charity.</b> With regard to the expression: <b>“And I will afflict you [<i>a’anekh</i>] no more,” Rav Yosef teaches:</b> This means that if he gives charity to others, God <b>will no longer show him signs of poverty [<i>aniyyut</i>].</b>
+
+### Part 2
+§ The mishna teaches that <b>Rabbi Yehuda says: From Rekem and eastward</b> is considered to be a country overseas, from Akko and northward is also outside of Eretz Yisrael, and Akko itself is like north of Eretz Yisrael. The Gemara asks: <b>Is this to say that Akko is located to</b> the <b>north of Eretz Yisrael? And</b> the Gemara <b>raises a contradiction</b> from a <i>baraita</i> (<i>Tosefta</i>, <i>Oholot</i> 18:14) that indicates that Akko is not on the northern border of Eretz Yisrael: If one <b>was traveling from Akko to Keziv,</b> the area <b>on his right, to the east of the road,</b> is <b>impure due to</b> the impurity of <b>the land of the nations, and</b> that area <b>is exempt from the</b> obligation to separate <b>tithe</b> from its produce <b>and from</b> the mitzvot of <b>the Sabbatical</b> Year, as it is assumed to be outside of Eretz Yisrael, <b>until</b> he arrives at a place <b>where it is known to you that it is obligated.</b>
+
+### Part 3
+The <i>baraita</i> continues: Conversely, the territory <b>on his left, to the west of the road,</b> is <b>pure with regard to</b> the impurity of <b>the land of the nations,</b> as it is assumed to be within Eretz Yisrael, <b>and obligated in the</b> mitzva to separate <b>tithe</b> from its produce <b>and in</b> the mitzvot of <b>the Sabbatical</b> Year, <b>until</b> he arrives at a place <b>where it is known to you that it is exempt. Until where</b> does this <i>halakha</i> apply? <b>Until Keziv. Rabbi Yishmael, son of Rabbi Yosei, said in the name of his father: Until</b> the place known as <b>Lavlevu.</b> In any case, this indicates that Akko is not considered the northern border of Eretz Yisrael, as the description in the <i>baraita</i> indicates that Keziv is further north than Akko.
+
+### Part 4
+<b>Abaye said: A strip extends</b> northward from Akko, which is still considered part of Eretz Yisrael, but the general border is at the latitude of Akko. The Gemara asks: <b>But</b> would the <b><i>tanna</i></b> of the <i>baraita</i> <b>provide a sign</b> in <b>this</b> manner for an area of a strip of land? The Gemara answers: <b>Yes,</b> and <b>a verse also provides a sign</b> in this manner, <b>as it is written: “And they said: Behold, there is the feast of the Lord from year to year in Shiloh, which is on the north of Bethel, on the east side of the highway that goes up from Bethel to Shechem, and on the south of Lebonah”</b> (Judges 21:19). <b>And Rav Pappa said:</b> The expression: “On the east side,” should be understood as meaning <b>to the east of the highway.</b> This verse demonstrates that an area as narrow as a road can be used as a sign.
+
+### Part 5
+§ The Gemara presents a contradiction between two <i>baraitot</i>. <b>It was taught</b> in <b>one</b> <i>baraita</i>: <b>One who brings a bill of divorce</b> that was written <b>on a boat</b> in Eretz Yisrael is considered to be <b>like one who brings</b> it <b>in Eretz Yisrael,</b> and therefore he is not required to say: It was written in my presence and it was signed in my presence. <b>And it is taught</b> in <b>another</b> <i>baraita</i> (<i>Tosefta</i> 1:1) that one who brings a bill of divorce written on a boat in Eretz Yisrael is <b>like one who brings</b> a bill of divorce <b>outside of Eretz</b> Yisrael.
+
+### Part 6
+<b>Rabbi Yirmeya says:</b> This is <b>not difficult,</b> as one can say that <b>this</b> <i>baraita</i> is in accordance with the opinion of <b>Rabbi Yehuda,</b> and <b>that</b> <i>baraita</i> is in accordance with the opinion of <b>the Rabbis. As we learned</b> in a mishna (<i>Ḥalla</i> 2:2): With regard to <b>soil from outside of Eretz</b> Yisrael <b>that is brought on a boat to Eretz</b> Yisrael, anything that grew in that soil <b>is obligated in tithe and in</b> the mitzvot of <b>the Sabbatical</b> Year. According to this opinion, soil is considered part of Eretz Yisrael once it arrives there, which means that the plants growing in it are considered to be in Eretz Yisrael.
+
+### Part 7
+<b>Rabbi Yehuda said: When</b> did the Sages say this ruling? <b>When the boat is skimming [<i>gosheshet</i>]</b> the sea floor, as it is weighed down in the water. <b>However,</b> when <b>the boat is not skimming</b> the sea floor, the soil is <b>exempt.</b> The Sage who maintains that the boat is considered to be like Eretz Yisrael with regard to a bill of divorce holds in accordance with the Rabbis of this mishna, and the one who maintains that the boat is not like Eretz Yisrael for the purposes of a bill of divorce holds in accordance with the opinion of Rabbi Yehuda.
+
+### Part 8
+<b>Abaye said:</b> It is possible to say that both <b>this</b> <i>baraita</i> <b>and that</b> <i>baraita</i> are in accordance with the opinion of <b>Rabbi Yehuda, and</b> it is <b>not difficult: Here,</b> the <i>baraita</i> where the soil is considered outside of Eretz Yisrael, deals with a situation <b>when the boat is not skimming</b> the sea floor; and <b>there,</b> in the <i>baraita</i> that states that the soil is considered to be like Eretz Yisrael, it is referring to a case <b>when the boat is skimming</b> the sea floor.
+
+### Part 9
+<b>Rabbi Zeira says:</b> In the case of <b>a perforated pot that is resting on pegs,</b> if something grew in it, <b>we have arrived at the dispute</b> of <b>Rabbi Yehuda and the Rabbis</b> concerning the soil on the boat. Just as the Rabbis maintain that the soil is considered attached to Eretz Yisrael even if the boat does not actually touch the sea floor, the same applies to a perforated flowerpot on pegs, whereas Rabbi Yehuda holds that in both cases the soil must actually be in contact with the earth for it to be considered part of Eretz Yisrael.
+
+### Part 10
+<b>Rava said,</b> in rejection of this claim: <b>Perhaps</b> that <b>is not so,</b> as <b>Rabbi Yehuda says</b> his opinion <b>only there, with regard to a boat,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

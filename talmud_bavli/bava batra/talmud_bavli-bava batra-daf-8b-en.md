@@ -1,0 +1,57 @@
+
+### Part 1
+that <b>redeeming captives is a great mitzva.</b>
+
+### Part 2
+<b>Rava said to Rabba bar Mari:</b> Concerning <b>this matter that the Sages stated, that redeeming captives is a great mitzva, from where is</b> it derived? Rabba bar Mari <b>said to him: As it is written: “And it shall come to pass, when they say to you: To where shall we depart? Then you shall tell them: So says the Lord: Such as are for death, to death; and such as are for the sword, to the sword; and such as are for famine, to famine; and such as are for captivity, to captivity”</b> (Jeremiah 15:2). <b>And Rabbi Yoḥanan says: Whichever</b> punishment <b>is</b> written <b>later in this verse is more severe than the one</b> before it.
+
+### Part 3
+Rabbi Yoḥanan explains: <b>The sword is worse than death. If you wish, say</b> that this is learned from <b>a verse; if you wish, say</b> instead that it is derived by way of <b>logical reasoning. If you wish, say</b> that this is derived by way of <b>logical reasoning: This</b> punishment, i.e., death by sword, <b>mutilates</b> the body, <b>but that</b> punishment, i.e., natural death, <b>does not mutilate</b> it. <b>And if you wish, say</b> that the fact that the sword is worse than death is learned from <b>a verse: “Precious in the sight of the Lord is the death of His pious ones”</b> (Psalms 116:15).
+
+### Part 4
+<b>Famine is worse than the sword. If you wish, say</b> that this is derived by way of <b>logical reasoning: This one,</b> who dies of famine, <b>suffers</b> greatly before departing from this world, <b>but that one,</b> who dies by the sword, <b>does not suffer. If you wish, say</b> instead that the fact that famine is worse than the sword is learned from <b>a verse: “More fortunate were the victims of the sword than the victims of famine”</b> (Lamentations 4:9). And <b>captivity is worse than all of them, as it includes all of them,</b> i.e., famine, the sword, and death.
+
+### Part 5
+§ In connection with the previous discussion concerning charity distribution, the Gemara cites a <i>baraita</i> in which <b>the Sages taught:</b> Money for <b>the charity fund is collected by two</b> people <b>and distributed by three</b> people. <b>It is collected by two</b> people <b>because one does not appoint an authority over the community</b> composed <b>of fewer than two</b> people. <b>And it is distributed by three people, like</b> the number of judges needed in cases of <b>monetary law,</b> since the distributors determine who receives money and who does not, as well as how much each person receives.
+
+### Part 6
+Food for <b>the charity platter is collected by three</b> people <b>and distributed by three</b> people <b>because its collection and its distribution</b> take place on <b>the same</b> day. Food for <b>the charity platter</b> is collected and distributed <b>every day,</b> and therefore a third individual must participate in the collection so that he will be available to take part in the distribution without delay; whereas the money of <b>the charity fund</b> is distributed only once a week, on <b>each Shabbat eve.</b>
+
+### Part 7
+There are additional differences between these two types of charity operations: The food from <b>the charity platter</b> is distributed <b>to the poor of the world,</b> meaning, to any poor individual arriving in the city; the money of <b>the charity fund</b> is allocated exclusively <b>to the poor of the city. But it is permitted for the residents of the city to use</b> money that has been collected for <b>the charity fund</b> to purchase food for <b>the charity platter</b> to feed the poor; <b>and</b> similarly they may use food that had been collected for <b>the charity platter</b> for <b>the charity fund.</b> In general, it is permitted for them <b>to change</b> the purpose toward which charity will be used <b>to whatever they want,</b> in accordance with the needs of the community.
+
+### Part 8
+Similarly, <b>it is permitted for the residents of the city to set the measures</b> used in that city, <b>the prices</b> set for products sold there, <b>and the wages</b> paid <b>to</b> its <b>workers, and to fine</b> people <b>for violating their</b> specifications, in order to enforce observance of these <i>halakhot</i>. This marks the end of the <i>baraita</i>, the details of which the Gemara proceeds to analyze.
+
+### Part 9
+<b>The Master said</b> in the <i>baraita</i>: <b>One does not appoint an authority over the community</b> composed <b>of fewer than two</b> people. The Gemara asks: <b>From where are these matters</b> derived? <b>Rav Naḥman says</b> that this is derived from a verse referring to those engaged in building the Tabernacle and weaving the priestly vestments, who received the community’s donations. <b>The verse states: “And they shall take the gold,</b> and the sky-blue wool, and the purple wool” (Exodus 28:5). The plural “they” indicates that the collection must be performed by two people.
+
+### Part 10
+The Gemara comments: The <i>baraita</i> indicates that <b>authority may not be exercised</b> by less than two people, <b>but</b> even a single individual <b>is trusted</b> to be a treasurer. That is, money for the charity fund is collected by two people, not because a single individual is not trusted not to misappropriate the money, but rather because a single individual should not be given authority over the community. <b>This supports</b> the opinion <b>of Rabbi Ḥanina, as Rabbi Ḥanina says: There was an incident where Rabbi</b> Yehuda HaNasi <b>appointed two brothers to</b> administer <b>the charity fund.</b> Even though the brothers were relatives who are not trusted to testify against each other, Rabbi Yehuda HaNasi was not concerned and he appointed them.
+
+### Part 11
+The Gemara asks: <b>What authority</b> is associated with collecting charity? The Gemara answers: <b>As Rav Naḥman says</b> that <b>Rabba bar Avuh says: Because they can seize collateral for the charity;</b> i.e., they can collect charity by force, <b>and even on Shabbat eve,</b> when people are busy and might claim that they have no time or money. The Gemara objects: <b>Is that so? But isn’t it written: “I will punish all that oppress them”</b> (Jeremiah 30:20), <b>and Rabbi Yitzḥak bar Shmuel bar Marta says in the name of Rav: And</b> punishment will be meted out <b>even to charity collectors?</b> If charity collectors are permitted to force people to contribute charity, why are they counted among Israel’s oppressors?
+
+### Part 12
+The Gemara answers: This is <b>not difficult. This,</b> Rabbi Naḥman’s statement, applies <b>when</b> the contributor is <b>rich,</b> in which case the collectors may seize money from him even by force. <b>That,</b> Rabbi Yitzḥak’s statement, applies <b>when</b> he is <b>not rich,</b> in which case the collectors who take money from him by force are termed oppressors of Israel. <b>This</b> right to force contributions from the rich is <b>like</b> what occurred in the incident in which <b>Rava compelled Rav Natan bar Ami and took four hundred dinars from him for charity.</b>
+
+### Part 13
+Having raised the issue of charity collection, the Gemara cites various rabbinic expositions with regard to the matter. The verse states: <b>“And they who are wise shall shine like the brightness of the firmament;</b> and they who turn many to righteousness like the stars for ever and ever” (Daniel 12:3). <b>“And they who are wise shall shine like the brightness of the firmament”; this is a judge who judges an absolutely true judgment,</b> as his wisdom and understanding lead him to a correct judgment. <b>“And they who turn many to righteousness like the stars for ever and ever”; these are the charity collectors,</b> who facilitate the giving of charity.
+
+### Part 14
+<b>It was taught in a <i>baraita</i>: “And they who are wise shall shine like the brightness of the firmament”; this is a judge who judges an absolutely true judgment and</b> also <b>charity collectors. “And they who turn many to righteousness like the stars for ever and ever”; these are schoolteachers.</b> The Gemara asks: <b>Like whom?</b> Certainly not every schoolteacher is worthy of such accolades. <b>Rav said: For example, Rav Shmuel bar Sheilat. As</b> it is told that <b>Rav</b> once <b>found Rav Shmuel bar Sheilat standing in a garden.</b> Rav <b>said to him: Have you abandoned your trust</b> and neglected your students? Rav Shmuel bar Sheilat <b>said to him: It has been thirteen years</b> now <b>that I have not seen</b> my garden, <b>and even now my thoughts are on</b> the children.
+
+### Part 15
+In light of the praises heaped upon judges, tax collectors, and schoolteachers, the Gemara asks: <b>And what</b> was said about <b>the Sages? Ravina said</b> that about them it is stated: <b>“But let them that love Him be as the sun when it comes out in its might”</b> (Judges 5:31).
+
+### Part 16
+The Gemara resumes its discussion of the <i>halakhot</i> of charity collection: <b>The Sages taught</b> in a <i>baraita</i>: <b>Charity collectors may not separate from each other,</b> each one collecting in a different place; <b>but</b> in a place where the two can see each other, one collector <b>may separate</b> from the other, e.g., <b>this</b> one going <b>to the gate</b> of a house <b>and that</b> one going <b>to a store.</b> If a charity collector <b>found coins in the market, he may not put them into his</b> own <b>pocket, but</b> rather <b>he must put them into the charity purse, and</b> then later <b>when he comes home, he may take them</b> from there. This is necessary so that people should not suspect him of taking charity money for himself. <b>Similarly,</b> if the charity collector <b>was owed one hundred dinars by another, and</b> the latter <b>repaid</b> his debt <b>in the market,</b> the collector <b>may not put</b> the money he received <b>into his</b> own <b>pocket, but</b> rather <b>he must put it into the charity purse, and</b> then later <b>when he comes home, he may take it.</b>
+
+### Part 17
+<b>The Sages taught</b> in a <i>baraita</i>: <b>Charity collectors who have no poor people to</b> whom they can <b>distribute</b> the money, <b>may exchange [<i>poretin</i>]</b> the money, i.e., exchange the copper coins, which tend to rust, for silver dinars, <b>with other</b> people, <b>but they should not change it</b> by <b>themselves,</b> i.e., with their own coins, to avoid any suspicion of wrongdoing. Likewise, <b>collectors</b> of food <b>for the charity platter who do not have poor people</b> to whom <b>to distribute</b> the food <b>may sell</b> the food <b>to others, but they should not sell it to themselves,</b> for a similar reason. <b>Coins of charity are not counted two</b> by two, <b>but rather one by one,</b> to avoid errors in tallying.
+
+### Part 18
+<b>Abaye said: At first,</b> my <b>Master,</b> Rabba, <b>would not sit on the mats in the synagogue because</b> they had been purchased with charity funds. <b>Once he heard that which is taught</b> in a <i>baraita</i>, that it is permitted for the residents of a city <b>to change</b> the purpose toward which charity will be used <b>to whatever they want, he did sit</b> on them. <b>Abaye said: At first,</b> my <b>Master,</b> Rabba, <b>would make two purses, one for the poor of</b> the rest of <b>the world, and one for the poor of his city. Once he heard what Shmuel said to Rav Taḥalifa bar Avdimi: Make</b> only <b>one purse,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

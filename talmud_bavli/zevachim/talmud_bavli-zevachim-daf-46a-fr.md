@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>Le verset parle</b> ici <b>de deux profanations ; l'une</b> est la <b>disqualification du <i>notar</i> et l'autre</b> est la <b>disqualification de l'impurete rituelle.</b> Cela enseigne que comme l'impurete, le <i>notar</i> s'applique meme a un element qui n'a pas de facteur de permission.
+
+### Partie 2
+§ La mishna enseigne : Meme en ce qui concerne les elements pour lesquels on n'est pas responsable de les manger en raison de la violation de l'interdiction de <i>piggul</i>, on est, neanmoins, responsable de les manger en raison de la violation de l'interdiction de <i>notar</i>, et en raison de la violation de l'interdiction de manger des aliments consacres alors qu'ils sont rituellement impurs, <b>a l'exception du sang.</b> La Gemara demande : <b>D'ou proviennent ces questions</b> ? Avant de repondre a cette question, la Guemara cite une autre discussion expliquant pourquoi la <i>halakha</i> de l'abus de biens consacres ne s'applique pas au sang. <b>Ulla dit : Le verset dit</b> en ce qui concerne le sang : "Car la vie de la chair est dans le sang, <b>et je vous l'ai donne</b> sur l'autel pour faire l'expiation de vos ames" (Levitique 17:11). Le terme "a vous" indique que le sang est a vous ; il n'est pas la propriete du Temple et n'est donc pas soumis a l'interdiction d'abuser des biens consacres.
+
+### Partie 3
+<b>L'ecole de Rabbi Yishmael</b> a pareillement <b>attendu : Le verset dit : "Pour faire expiation,"</b> enseignant que Dieu dit : <b>Je l'ai donne pour l'expiation, et non pour</b> l'interdiction du mauvais usage des biens consacres.
+
+### Partie 4
+<b>Rabbi Yohanan dit</b> que cette <i>halakha</i> est derivee de la derniere partie du <b>verset,</b> qui <b>dit :</b> "Car <b>c'est</b> le sang qui fait l'expiation de l'ame" (Levitique 17:11). Le terme" c'est" enseigne que le statut du sang reste tel qu'il est, c'est-A -dire qu'il est avant l'expiation comme</b> il est <b>apres l'expiation.</b> Comme l'indiquera la Guemara, il existe un principe selon lequel une fois que la mitzva impliquant un objet consacre a ete accomplie, l'objet n'est plus soumis A l'interdiction d'abuser d'un bien consacre. En consequence, le terme "il est" enseigne que <b>tout comme apres l'expiation,</b> c'est-a-dire apres que le sang ait ete presente sur l'autel, il n'est <b>pas soumis</b> a l'interdiction d'abuser d'un bien consacre, puisque la mitzva a deja ete accomplie, <b>de meme, avant l'expiation,</b> c'est-a-dire, avant que le sang ait ete presente sur l'autel, <b>il n'est pas soumis</b> a l'interdiction de <b>mauvais usage</b> des biens consacres.
+
+### Partie 5
+La Guemara demande : Mais si le terme "il est" enseigne que le statut du sang reste le meme avant et apres l'expiation, on peut <b>dire</b> exactement le contraire : Il est <b>apres l'expiation comme</b> il est <b>avant l'expiation. De meme qu'avant l'expiation</b> le sang <b>est soumis</b> a l'interdiction de <b>mauvais usage</b> des biens consacres, <b>de meme apres l'expiation il est soumis</b> a l'interdiction de <b>mauvais usage</b> des biens consacres. La Guemara rejette cette idee : Cela ne peut etre le cas, car il existe un principe : <b>Il n'existe aucun objet dont la mitsva a ete accomplie qui soit</b> encore <b>soumis a</b> l'interdiction de <b>mauvais usage</b> des biens consacres.
+
+### Partie 6
+La Gemara demande : <b>Et</b> n'y a-t-il <b>pas</b> de tel cas ? <b>Mais il existe</b> la mitsva de <b>l'enlevement des cendres</b> des offrandes brulees sur l'autel. Tout benefice tire de celles-ci entre leur enlevement et leur enterrement obligatoire constitue un abus de biens consacres, malgre le fait que leur mitzva ait deja ete accomplie.
+
+### Partie 7
+La Gemara repond : Le principe ne s'applique pas dans ce cas, <b>parce que</b> la question de <b>l'enlevement des cendres et</b> la question des <b>vetements sacerdotaux,</b> les quatre vetements blancs portes par le Grand Pretre a Yom Kippour, sont tous deux soumis a la <i>halakha</i> selon laquelle l'abus de biens consacres s'applique a eux meme apres que leur mitzva ait ete accomplie. Par consequent, ils <b>sont deux versets qui ne font qu'un,</b> c'est-a-dire qu'ils partagent une <i>halakha</i> unique que l'on ne trouve pas ailleurs. <b>Et</b> il y a un principe : <b>Les deux versets qui ne font qu'un n'enseignent pas</b> leur element commun a s'appliquer a d'autres cas. Au contraire, ils sont consideres comme des cas exceptionnels qui ne peuvent servir de modeles pour d'autres cas.
+
+### Partie 8
+La Guemara souleve une autre difficulte : <b>Cela marche bien selon</b> l'avis des <b>rabbins, qui disent</b> que le verset : "Il otera les vetements de lin qu'il portait en entrant dans le Sanctuaire, <b>et les laissera la"</b> (Levitique 16:23), <b>enseigne que</b> les quatre vetements blancs portes par le Grand Pretre a Yom Kippour ne sont plus utilisables et <b>doivent etre enterres.</b>
+
+### Partie 9
+<b>Mais selon</b> l'opinion de <b>Rabbi Dosa, qui dit</b> que ces vetements sacerdotaux <b>sont propres a un pretre ordinaire</b> et ne necessitent pas d'inhumation, <b>a condition que</b> un Grand Pretre <b>ne les utilise pas a Yom Kippour</b> dans <b>une annee differente</b>, on n'abuse pas des biens consacres en les utilisant apres l'accomplissement de leur mitzva, et donc <b>qu'y a-t-il a dire ? </b> Selon lui, la <i>halakha</i> d'abus de biens consacres apres l'accomplissement d'une mitzva ne s'applique qu'au retrait des cendres de l'autel, et non aux vetements sacerdotaux, ce qui signifie qu'elle n'est enoncee que dans un seul cas. Pourquoi, alors, ce cas ne sert-il pas de paradigme pour d'autres cas dans la Torah ?
+
+### Partie 10
+La Guemara repond : C'est <b>parce que</b> les cas de <b>l'enlevement des cendres</b> et de la <i>halakha</i> de <b>la genisse dont le cou est brise</b> sont <b>deux versets qui ne font qu'un,</b> car il est interdit de tirer un benefice de l'un ou l'autre meme apres que leur mitzva soit accomplie, <b>et tout deux versets qui ne font qu'un n'enseignent pas</b> leur element commun a s'appliquer a d'autres cas.
+
+### Partie 11
+La Guemara conteste ce point sous un angle different : <b>Cela marche bien selon celui qui dit</b> que deux versets qui viennent en un seul <b>n'enseignent pas</b> leur element commun a s'appliquer a d'autres cas, <b>mais selon celui qui dit</b> que deux versets qui viennent en un seul <b>enseignent</b> leur element commun a s'appliquer a d'autres cas, <b>qu'y a-t-il a dire ?</b>
+
+### Partie 12
+La Guemara repond : <b>Deux exclusions sont ecrites</b> dans ces deux cas, qui indiquent que cette <i>halakha</i> s'applique a eux seuls. <b>Ici,</b> en ce qui concerne la genisse dont le cou est brise, <b>il est ecrit : "Dont le cou a ete brise"</b> (Deuteronome 21:6), et cette description superflue enseigne que cette <i>halakha</i>, a savoir que l'interdiction d'abuser des biens consacres est en vigueur meme apres l'accomplissement d'une mitzva, s'applique uniquement a ce cas et ne doit pas etre etendue aux autres. <b>Et la,</b> en ce qui concerne l'enlevement des cendres, <b>il est ecrit : "Et il la mettra"</b> (Levitique 6:3), ce qui indique que cette <i>halakha</i> s'applique a "elle", et a rien d'autre.
+
+### Partie 13
+La Guemara demande : <b>Et pourquoi ai-je</b> besoin de <b>ces trois versets</b> enonces <b>en ce qui concerne le sang,</b> desquels il decoule que l'interdiction d'abuser des biens consacres ne s'applique pas au sang ? Il s'agit des trois termes specifies precedemment, dans les exposes de Ulla, de l'ecole de Rabbi Yishmael et de Rabbi Yohanan, a partir du verset :" Je vous l'ai donne sur l'autel pour faire l'expiation de vos ames, car c'est le sang qui fait l'expiation de l'ame" (Levitique 17:11).
+
+### Partie 14
+La Guemara repond : L'un de ces termes sert <b>a exclure</b> le sang <b>de</b> l'interdiction d'abuser des biens consacres. Une autre expression sert a exclure le sang <b>de</b> l'interdiction du <b>notar</i>.</b> Si quelqu'un a consomme des restes de sang, il n'est pas responsable de la consommation de <i>notar</i>. Au contraire, il est responsable d'avoir viole uniquement l'interdiction de consommer du sang. <b>Et</b> la derniere phrase sert a l'exclure <b>de l'interdiction de <b>l'impurete rituelle.</b> Si l'on a consomme ce sang en etat d'impurete rituelle, on est responsable uniquement pour avoir consomme du sang, mais pas pour avoir consomme des aliments consacres en etat d'impurete rituelle.
+
+### Partie 15
+<b>Mais aucun verset n'est necessaire</b> pour exclure ce sang de la <i>halakha</i> de <b><i>piggul</i>,</b> car celui-ci provient deja d'une autre source, <b>comme nous l'avons appris</b> dans la mishna (43a) : En ce qui concerne <b>toute chose</b> qui a des facteurs de permission, soit pour</b> la consommation par <b>une personne ou pour</b> la combustion sur <b>l'autel, on est responsable de</b> la manger <b>en raison</b> de la violation de l'interdiction de <b><i>piggul</i>.</b> Le facteur de permission lui-meme n'est pas sujet a <i>piggul</i>. <b>Et</b> par consequent, <i>piggul</i> ne s'applique pas au <b>sang lui-meme,</b> car <b>il</b> rend l'offrande <b>permise</b> pour la consommation humaine ou pour l'autel.
+
+### Partie 16
+§ <b>Rabbi Yohanan dit : Pourquoi ai-je</b> besoin de <b>trois</b> mentions de <b><i>karet</i> a l'egard de</b> celui qui mange des <b>offrandes de paix</b> en etat d'impurete rituelle ? Les trois versets sont : "Mais l'ame qui mange de la chair du sacrifice d'offrande de paix, qui appartient au Seigneur, ayant son impurete sur elle, cette ame sera retranchee [<i>venikhreta</i>] de son peuple" (Levitique 7 : 20) ; "Et si quelqu'un touche un objet impur, qu'il s'agisse de l'impurete de l'homme, d'un animal impur ou de toute chose impure et detestable, et mange de la chair du sacrifice d'actions de graces qui appartient a l'Eternel, cette ame sera retranchee de son peuple" (Levitique 7:21) ; et : "Quiconque de toute votre descendance, parmi vos générations, s"?approche des objets sacrés que les enfants d"?IsraA "l consacrent au Seigneur, ayant sur lui son impureté, cette ame sera retranchée de devant Moi ; Je suis le Seigneur" (Lévitique 22:3).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

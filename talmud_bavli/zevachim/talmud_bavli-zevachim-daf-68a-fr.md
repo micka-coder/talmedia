@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Elle doit apporter cinq autres oiseaux</b> et les sacrifier tous <b>au-dessus</b> de la ligne rouge comme holocaustes. Puisque son engagement n'a pas ete satisfait, elle n'a meme pas accompli une partie de son vœu. Elle doit donc apporter deux holocaustes de chaque espece pour s'assurer qu'elle accomplit son vœu, et elle doit apporter un autre oiseau pour remplacer l'holocauste obligatoire initial et remplir son engagement de les reunir.
+
+### Partie 2
+C'est la <i>halakha</i> seulement si les deux couples qu'elle a apportes etaient <b>de la meme espece. Mais</b> si elles etaient <b>de deux</b> especes differentes,</b> et que le pretre ne se souvient pas laquelle il a sacrifiee en premier comme paire obligatoire, <b>elle doit en apporter six,</b> deux de chaque espece pour s'assurer qu'elle accomplit son vœu, et une autre de chaque espece pour s'assurer qu'elle remplace correctement l'holocauste initial de la paire obligatoire et qu'elle remplit son engagement.
+
+### Partie 3
+Si la femme a specifie l'espece d'oiseau pour son vœu mais a ensuite oublie quelle espece elle a specifiee, et <b>elle a donne</b> deux paires d'oiseaux <b>au pretre mais ne sait pas</b> maintenant <b>quelle</b> espece <b>elle a donnee, </b> ou meme si elle lui a donne une ou deux especes d'oiseaux, et que <b>le pretre est alle sacrifier</b> les oiseaux <b>mais ne sait pas</b> maintenant <b>ce qu'il a sacrifie</b> ou, dans ce cas, <b>elle doit</b> apporter sept oiseaux, comme suit : <b>Quatre oiseaux,</b> deux de chaque espece, <b>pour son vœu ; et deux</b> autres oiseaux, un de chaque espece, <b>pour son holocauste obligatoire</b>, au cas ou le pretre aurait sacrifie une offrande pour le peche d'une certaine espece et que l'holocauste doive maintenant correspondre a cette espece ; <b>et une offrande pour le peche</b> de l'une ou l'autre espece, au cas ou le pretre les aurait tous sacrifies en holocauste.
+
+### Partie 4
+<b>Ben Azzai dit</b> elle doit apporter <b>deux offrandes pour le peche,</b> une de chaque espece, car il considere que si le pretre a sacrifie un oiseau d'une certaine espece specifiquement comme holocauste obligatoire, l'offrande pour le peche doit maintenant correspondre a cette espece.
+
+### Partie 5
+La mishna conclut : <b>Rabbi Yehoshua dit</b> qu'il existe une parabole qui explique cette situation : <b>Voici ce que</b> les gens <b>disent</b> a propos d'un mouton : <b>Quand il est vivant, il</b> fait <b>un son, et quand il est mort, il</b> fait <b>sept sons.</b> Ses deux cornes deviennent des trompettes, ses deux tibias des flutes, sa peau une peau de tambour, ses gros intestins des cordes de harpe, et ses petits intestins des cordes de lyre. Ici aussi, en raison de l'incertitude quant a ce qui s'est passe, la femme doit apporter sept oiseaux supplementaires. Puisque Rabbi Yehoshua resume la mishna, les <i>mishnayot</i> de ce chapitre doivent etre en accord avec son opinion. Selon l'explication de Rav Adda bar Ahava du principe de Rabbi Yehoshua, les holocaustes d'oiseaux sacrifies comme offrandes pour le peche deviennent des offrandes pour le peche valides. Pourquoi alors, selon ces <i>mishnayot</i>, sont-elles disqualifiees ?
+
+### Partie 6
+La Gemara repond : L'explication de Rav Adda bar Ahava n'est pas en contradiction avec ces <i>mishnayot</i> ; alors qu'il est raisonnable de <b>dire,</b> c'est-a-dire, d'expliquer, <b>que Rabbi Yehoshua a dit</b> que l'offrande devient une offrande pour le peche dans la mesure ou <b>pour exclure</b> celui qui en tire un benefice de</b> la responsabilite pour <b>mauvais usage</b> d'un bien consacre, <b>a-t-il dit</b> qu'elle devient une offrande pour le peche de maniere si expansive que <b>pour</b> indiquer qu'elle <b>satisfairait</b> l'obligation du proprietaire ? </b> Dans les cas des <i>mishnayot</i> de <i>Kinnim</i>, tous les holocaustes qui ont ete sacrifies comme offrandes pour le peche ne sont pas soumis aux <i>halakhot</i> d'abus de biens consacres, mais les femmes doivent neanmoins apporter des offrandes de remplacement.
+
+### Partie 7
+<strong>MISHNA : </strong>En ce qui concerne <b>toutes</b> ces personnes <b>disqualifiees</b> pour accomplir le service du Temple <b>qui ont pince</b> la nuque d'une offrande d'oiseau, <b>leur pincement n'est pas valable, mais</b> la viande de l'offrande <b>ne rend pas</b> celui qui l'avale <b>rituellement impur</b> lorsqu'elle est <b>dans la gorge,</b> comme le ferait la viande d'un oiseau casher qui n'a pas ete abattu rituellement. Si un pretre l'a <b>pince</b> <b>avec</b> l'ongle du pouce de sa main <b>gauche</b>, <b>ou</b> s'il l'a pince <b>la nuit,</b> ou si <b>il a abattu un oiseau non sacre</b> <b>a l'interieur</b> de la cour du Temple <b>ou un oiseau sacrificiel</b> <b>a l'exterieur</b> de la cour du Temple, dans tous ces cas, bien qu'il soit interdit de consommer ces oiseaux, <b>ils ne rendent pas</b> une personne <b>rituellement impure</b> lorsqu'ils sont <b>dans la gorge,</b> car le statut halakhique du pincement est comme celui de l'abattage.
+
+### Partie 8
+Si <b>il a pince avec un couteau</b> et non avec l'ongle de son pouce ; ou si <b>il a pince un oiseau non sacre</b> <b>a l'interieur</b> de la cour du Temple <b>ou un oiseau sacrifie</b> <b>a l'exterieur</b> de la cour du Temple ;
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

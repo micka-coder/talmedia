@@ -1,0 +1,33 @@
+
+### Part 1
+§ The mishna teaches that after removing the crop and the feathers and innards that emerged with it, the priest <b>ripped</b> the bird lengthwise <b>and did not separate</b> the two halves of the bird. In this regard <b>the Sages taught</b> in a <i>baraita</i>: The verse states: <b>“And he shall rend”</b> (Leviticus 1:17). The act of <b>rending is</b> performed <b>only by hand, and so too,</b> the verse <b>states</b> with regard to Samson: <b>“And he rent it as one would have rent a kid,</b> and he had nothing in his hand” (Judges 14:6).
+
+### Part 2
+§ The mishna teaches that if the priest <b>did not remove the crop,</b> or he changed any detail of the sacrificial rite after he squeezed out the blood, the offering is valid. If he separated the head from the body of a bird sin offering, it is disqualified. The Gemara says: <b>The mishna is not in accordance with</b> the opinion of <b>Rabbi Elazar, son of Rabbi Shimon, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Elazar, son of Rabbi Shimon, said: I heard that one may separate</b> the head from the body <b>of a bird sin offering.</b>
+
+### Part 3
+The Gemara asks: <b>What</b> is the reason for the difference <b>between them,</b> i.e., what is the basis of the disagreement? <b>Rav Ḥisda says:</b> The difference <b>between them</b> concerns the question of whether <b>squeezing out</b> the blood of <b>a bird sin offering</b> after its blood has been sprinkled is <b>indispensable. The first <i>tanna</i>,</b> whose opinion is cited in the mishna, <b>holds</b> that <b>squeezing out</b> the blood of <b>a bird sin offering</b> is <b>indispensable. And since squeezing out</b> the <b>blood</b> is indispensable, the priest will have to squeeze out the blood after separating the head from the body, and he will have <b>performed the rite of</b> a bird <b>burnt offering on a bird sin offering,</b> which disqualifies the offering (see 66a).
+
+### Part 4
+<b>And Rabbi Elazar, son of Rabbi Shimon, holds</b> that <b>squeezing out</b> the blood of <b>a bird sin offering is not indispensable.</b> Consequently, if the priest would separate the bird’s head from its body, he would refrain from squeezing out the blood, in which case the rite is dissimilar to that of a bird burnt offering. <b>And</b> the separation of the head <b>is</b> considered as though the priest was <b>merely cutting flesh,</b> and the offering is valid.
+
+### Part 5
+<b>Rava says</b> there is an alternative explanation of the dispute: It is possible that all agree that squeezing the blood of a bird sin offering is indispensable, and <b>there is</b> a difference <b>between them</b> with regard to whether <b>interrupting</b> the pinching before severing the <b>second <i>siman</i>,</b> i.e., the gullet or windpipe, one of the organs that must be cut in the ritual slaughter, <b>of a bird burnt offering disqualifies</b> the offering. <b>The first <i>tanna</i> holds</b> that <b>interrupting</b> the pinching before severing the <b>second <i>siman</i> of a bird burnt offering does not disqualify</b> the offering, <b>and</b> therefore, if the priest separates the head of a bird sin offering from its body, <b>even though he interrupted</b> the pinching before severing the second <i>siman</i>, <b>he has performed the rite of</b> a bird <b>burnt offering on</b> a bird <b>sin offering,</b> which disqualifies it.
+
+### Part 6
+<b>And Rabbi Elazar, son of Rabbi Shimon, holds</b> that interrupting the pinching of a bird burnt offering <b>disqualifies</b> the offering. Therefore, in the case of a bird sin offering, <b>since</b> the priest <b>interrupted</b> the pinching before severing the second <i>siman</i>, even if he separates the head from the body <b>he is merely cutting flesh,</b> i.e., it is an insignificant act because he is not performing the rite of a burnt offering on a sin offering, and the offering is not disqualified.
+
+### Part 7
+<b>Abaye says</b> there is a third explanation of the dispute between the <i>tanna’im</i>: It is possible that all agree that interrupting the pinching before severing the second <i>siman</i> disqualifies a bird burnt offering, and <b>there is</b> a difference <b>between them</b> with regard to whether cutting the <b>majority of</b> the <b>flesh</b> of the nape of a bird sin offering is <b>indispensable.</b>
+
+### Part 8
+The Gemara points out: <b>And</b> Rava and Abaye disagree <b>with regard to</b> the issue that is the subject of <b>the dispute between Rabbi Zeira and Rabbi Shmuel bar Rav Yitzḥak. One says</b> that the difference <b>between</b> the first <i>tanna</i> and Rabbi Elazar, son of Rabbi Shimon, concerns whether <b>interrupting</b> the pinching before severing the <b>second <i>siman</i> of a bird burnt offering disqualifies</b> the offering. <b>And one says</b> that the difference <b>between them</b> concerns whether cutting the <b>majority of</b> the <b>flesh</b> of the nape of a bird sin offering is <b>indispensable.</b>
+
+### Part 9
+The Gemara asks: Since there is a dispute concerning whether cutting the majority of the flesh of the nape of a bird sin offering is indispensable, can it be deduced <b>by inference</b> that all agree <b>that we require</b> the priest to cut <b>the majority of the flesh <i>ab initio</i>?</b> The Gemara responds: <b>Yes; and</b> similarly it <b>was taught</b> in <i>baraita</i>: <b>How does one pinch</b> the nape of <b>a bird sin offering?</b> Using his thumbnail, the priest <b>cuts</b> the <b>spine and nape, without</b> cutting through the <b>majority of</b> the <b>flesh, until he reaches</b> either <b>the gullet or the windpipe.</b> Upon <b>reaching the gullet or the windpipe, he cuts one <i>siman</i></b> entirely, <b>or</b> at least <b>the majority of it, and</b> he cuts <b>the majority of the flesh with it. And in</b> the case of a bird <b>burnt offering,</b> he cuts the <b>two</b> <i>simanim</i> <b>or the majority of the two</b> <i>simanim</i>.
+
+### Part 10
+The Gemara relates that the Rabbis <b>said this</b> dispute between the <i>amora’im</i> concerning the reason for the opinion of Rabbi Elazar, son of Rabbi Shimon, <b>before Rabbi Yirmeya.</b> Rabbi Yirmeya <b>said: Have they not heard that which Rabbi Shimon ben Elyakim said in the name of Rabbi Elazar ben Pedat, in the name of Rabbi Elazar ben Shammua: Rabbi Elazar, son of Rabbi Shimon, used to say: I heard that one may</b> completely <b>separate</b> the head of <b>a bird sin offering</b> from its body. <b>And what</b> is the meaning of the verse that states: “But <b>shall not separate it”</b> (Leviticus 5:8)?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

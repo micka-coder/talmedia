@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>Et s'il n'est pas defini par ses limites, jusqu'a quelle quantite</b> du champ est-il acquis par un coup de houe ? <b>Rav Pappa a dit :</b> Il acquiert jusqu'a <b>ce qu'un conducteur de bœuf va et revient,</b> c'est-a-dire la taille d'un sillon standard, en commencant la ou la houe a penetre dans le sol.
+
+### Partie 2
+§ <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> En ce qui concerne la <b>propriete d'un Gentil</b> qui a ete vendue a un Juif contre de l'argent, <b>elle est</b> sans proprietaire <b>comme un desert</b> jusqu'a ce que l'acheteur accomplisse un acte d'acquisition ; <b>toute personne qui en prend possession</b> dans l'intervalle l'a <b>acquise. Quelle est la raison</b> de cette situation ? Le <b>gentil renonce</b> a sa propriete <b>a partir</b> du moment ou <b>l'argent</b> parvient a sa main,</b> alors que le <b>Juif</b> qui l'a achete <b>ne l'acquiert pas</b> jusqu'a ce que l'acte parvienne a sa main. Par consequent,</b> dans la periode de temps entre le don de l'argent et la reception de l'acte, la propriete <b>est comme un desert, et quiconque en prend possession</b> l'a <b>acquise.</b>
+
+### Partie 3
+<b>Abaye dit a Rav Yosef : Shmuel</b> a-t-il reellement <b>dit cela ? Mais Shmuel ne dit-il pas</b> que <b>la loi du royaume est la loi,</b> c'est-a-dire que la <i>halakha</i> oblige les Juifs a respecter les lois du lieu dans lequel ils resident, <b>et le roi a dit</b> que <b>la terre ne peut etre acquise sans document ?</b> Par consequent, la prise de possession ne devrait pas etre effective pour l'acquisition. Rav Yosef lui <b>dit : Je ne sais pas</b> comment concilier cette contradiction, mais <b>il y a eu un incident dans</b> le village de <b>Dura qui</b> a ete fonde par des <b>bergers, ou</b> il y avait <b>un juif qui a achete une terre a un gentil</b> en donnant de l'argent, <b>et</b> dans l'intervalle <b>un autre juif est venu</b> et <b>l'a labouree un peu. </b> Les deux juifs se sont <b>presentes devant Rav Yehuda</b> pour une decision, et il a <b>etabli</b> la propriete <b>en possession du second</b> individu. Ceci s'accorde avec la decision de Shmuel selon laquelle le bien est sans proprietaire jusqu'a ce qu'un juif effectue un acte d'acquisition.
+
+### Partie 4
+Abaye lui dit : Es-tu en train de dire</b> que l'incident s'est produit a <b>Dura qui</b> a ete fondee par des <b>bergers ?</b> On ne peut pas apporter de preuve a partir de ce cas, car <b>la</b> les <b>champs etaient caches, puisque</b> les proprietaires des champs <b>ne voulaient pas payer la taxe fonciere [<i>taska</i>] au roi, et le roi dit</b> que <b>celui qui paie la taxe fonciere</b> peut <b>profiter</b> du <b>champ. </b> Donc, dans ce cas, le Gentil qui a vendu le bien n'en etait pas reellement proprietaire, et par consequent, selon les lois du royaume, il ne pouvait pas le vendre. Celui qui a pris possession du bien l'a acquis conformement a la loi du royaume, puisqu'il s'est engage a payer l'impot foncier. Ailleurs, on n'acquerrait pas le champ avant d'avoir recu un acte de vente de la part du Gentil.
+
+### Partie 5
+La Gemara relate : <b>Rav Huna a achete une terre a un Gentil. Un autre juif vint et le laboura legerement.</b> Rav Huna et ce juif <b>se presenterent devant Rav Nahman,</b> qui <b>etablit</b> la propriete <b>en possession</b> de ce dernier. Rav Huna <b>dit a</b> Rav Nahman : <b>Que pensez-vous</b> en emettant cette decision ? Est-ce <b>parce que Shmuel dit</b> que <b>la propriete d'un Gentil est comme un desert, et quiconque en prend possession</b> l'a <b>acquis?</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

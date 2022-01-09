@@ -1,0 +1,51 @@
+
+### Part 1
+<b>However,</b> according <b>to Rav Shmuel bar Yehuda, the first</b> ruling was <b>due to abrogation and the latter</b> ruling was also <b>due to abrogation.</b> If so, <b>what is</b> the difference <b>between</b> the reasoning of the initial version of the mishna and the decision of the court that convened after them?
+
+### Part 2
+The Gemara answers: The practical difference <b>between them is</b> with regard to <b>superficial investigation,</b> i.e., the investigation that could have been conducted on his behalf by his female relatives, which could have been only a superficial investigation. One <b>Sage holds</b> that <b>superficial investigation is considered</b> a valid <b>investigation,</b> and therefore once he requested to marry her and the marriage date arrived, there is no concern of a later abrogation, <b>and</b> one <b>Sage holds</b> that <b>superficial investigation is not considered</b> a valid <b>investigation,</b> and consequently there is still concern that when he consummates the marriage he will find some blemish on her and abrogate the marriage.
+
+### Part 3
+<strong>MISHNA:</strong> <b>If one consecrates his wife’s earnings,</b> meaning anything she produces, such as thread that she spins from wool, which, according to the Sages’ ordinance, belongs to her husband, <b>she may work and sustain</b> herself from her earnings, as the consecration is ineffective. However, there is a dispute with regard to <b>the surplus,</b> meaning any earnings she produces in excess of the amount she is required to produce for her husband. <b>Rabbi Meir says:</b> The surplus is <b>consecrated</b> property, and <b>Rabbi Yoḥanan the Cobbler says:</b> The surplus is also <b>non-sacred.</b>
+
+### Part 4
+<strong>GEMARA:</strong> <b>Rav Huna said</b> that <b>Rav said: A woman may say to her husband: I will not be sustained</b> by you and, in turn, <b>I will not work,</b> i.e., you will not keep my earnings. <b>He holds</b> that <b>when the Sages instituted</b> the various obligations and rights of a husband and wife, the husband’s obligation to provide for the wife’s <b>sustenance</b> was <b>the primary</b> one, <b>and</b> they then decreed that <b>her earnings</b> belong to him in return, <b>due to</b> concern about <b>animosity.</b> If he would be obligated to provide for her sustenance but she would be allowed to work and keep her earnings, he would resent her. Since her right to sustenance is the primary one, <b>if she says: I will not be sustained</b> by you and, in turn, <b>I will not work,</b> i.e., you will not keep my earnings, <b>she has permission to</b> do so. As the arrangement was established for her benefit, she may cancel it if it is not suitable for her.
+
+### Part 5
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: <b>They instituted</b> the husband’s responsibility for her <b>sustenance in exchange for</b> his right to <b>her earnings.</b> This indicates that the primary enactment is the husband’s right to his wife’s earnings, and the ordinance that requires him to provide her with sustenance comes as a result. According to this, the wife would not be allowed to waive the arrangement, contrary to Rav Huna’s statement. The Gemara responds: Emend the text of the <i>baraita</i> and <b>say</b> instead: <b>They instituted her earnings in exchange for</b> the husband’s responsibility for her <b>sustenance.</b>
+
+### Part 6
+The Gemara raises an objection: <b>Let us say that</b> the mishna <b>supports</b> Rav Huna’s opinion, as it is taught: <b>If one consecrates his wife’s earnings, she may work and sustain</b> herself from her earnings. <b>What, is it not</b> discussing a woman <b>who is sustained</b> by her husband, meaning that he is willing to sustain her, although she relinquishes her right to sustenance in accordance with Rav Huna’s principle? Therefore, her earnings do not belong to him to consecrate. The Gemara answers: <b>No,</b> it is discussing a woman <b>who is not sustained</b> by her husband, as he does not have sufficient funds to sustain her. Consequently, there is no proof with regard to Rav Huna’s statement.
+
+### Part 7
+The Gemara asks: <b>If</b> it is discussing a woman <b>who is not sustained, what</b> is the purpose <b>of stating</b> that he may not consecrate her earnings? <b>Even according to the one who says</b> that <b>a master can say to</b> his <b>slave: Work for me</b> but <b>I will not sustain you, this applies</b> only to <b>a Canaanite slave, about whom it is not written: “With you.” But</b> with regard to <b>a Hebrew slave about whom it is written:</b> “It is good for him <b>with you”</b> (Deuteronomy 15:16), this does <b>not</b> apply, and the master must sustain him just as he sustains the members of his own household. <b>And</b> this is true <b>all the more so</b> with regard to <b>his wife,</b> as there is a specific obligation of sustenance. Consequently, if he does not do so, he certainly has no right to her earnings.
+
+### Part 8
+The Gemara answers: This <i>halakha</i> did not need to be stated, but <b>the latter clause was necessary,</b> as it contains a novelty with regard to <b>the surplus: Rabbi Meir says</b> that the surplus is <b>consecrated</b> property, and <b>Rabbi Yoḥanan the Cobbler says</b> it is <b>non-sacred.</b>
+
+### Part 9
+The Gemara comments: This opinion of Rav Huna <b>disputes</b> that <b>of Reish Lakish, as Reish Lakish said: Do not say</b> that <b>the reason for</b> the opinion of <b>Rabbi Meir</b> is that <b>since he maintains</b> that <b>a person may consecrate an object that has not</b> yet <b>come into the world,</b> the consecration can take effect even on her future earnings. <b>Rather,</b> say that <b>the reason for</b> the opinion of <b>Rabbi Meir</b> is that <b>since he can compel her</b> to produce <b>her earnings</b> for him, it is as if he had a certain legal claim to the products of her hands, i.e., her earnings. Consequently, <b>he is considered as if he had said to her: Your hands are consecrated to the One Who made them,</b> and the consecration can therefore take effect on something that already exists. Since Reish Lakish said that he may compel her to produce earnings for him, the implication is that she may not say: I will not be sustained and I will not work.
+
+### Part 10
+With regard to Reish Lakish’s statement, the Gemara asks: <b>But he did not say this to her;</b> rather, he said that he was consecrating her earnings. The Gemara answers: <b>Since we heard</b> that <b>Rabbi Meir said: A person does not say things for naught,</b> and according to this principle, when one says something that has no halakhic meaning, it is interpreted as if he had said something that does have halakhic relevance, <b>he is considered as if he had said to her: Your hands are consecrated to the One Who made them.</b>
+
+### Part 11
+The Gemara asks: <b>Does Rabbi Meir hold</b> that <b>a person may not consecrate an object that has not</b> yet <b>come into the world? Isn’t it taught</b> in a <i>baraita</i> that if a gentile <b>says to a woman: You are hereby betrothed to me after I convert; or</b> if she was a gentile and he said to her: You are hereby betrothed to me <b>after you convert;</b> or if he was a slave and said to her: <b>After I am emancipated;</b> or if she was a maidservant and he said to her: <b>After you are emancipated;</b> or if she was married and he said to her: <b>After your husband dies; or</b> if he was married to her sister and he said: <b>After your sister dies,</b> as at that point the betrothal could take effect; <b>or</b> if she was a widow waiting for her <i>yavam</i> and he said to her: <b>After your <i>yavam</i> performs <i>ḥalitza</i> with you, Rabbi Meir says:</b> If any of these cases occurred, <b>she is betrothed.</b> Apparently Rabbi Meir maintains that betrothal can take effect even on something that has not yet come into being.
+
+### Part 12
+The Gemara answers: Actually, <b>from that</b> <i>baraita</i>, <b>one can</b> learn that this is Rabbi Meir’s opinion, but Reish Lakish merely wanted to say that <b>no</b> inference is <b>to be learned from this</b> mishna, as it is possible to explain Rabbi Meir’s words in another way, based on the principle that a person does not say things for naught.
+
+### Part 13
+§ The mishna states that with regard to <b>the surplus, Rabbi Meir says: It is consecrated</b> property. The Gemara asks: According to this opinion, <b>when</b> does the surplus amount become <b>consecrated? Rav and Shmuel both said: The surplus is consecrated</b> only <b>after</b> the woman’s <b>death. Rav Adda bar Ahava said: The surplus is consecrated while</b> she is still <b>alive.</b>
+
+### Part 14
+<b>Rav Pappa discussed it,</b> as he was perplexed by this dispute: With regard <b>to what</b> do they argue? <b>If we say</b> that the husband <b>provides for her sustenance and</b> additionally <b>provides her with a silver <i>ma’a</i></b> coin every week <b>for</b> the rest of <b>her needs,</b> as he is obligated to do (see 64b), then <b>what is the reason for</b> the opinion of <b>the one who said it is consecrated</b> only <b>after</b> her <b>death?</b> As the husband has fulfilled all of his obligations and is consequently the owner of his wife’s earnings, he should be capable of consecrating them.
+
+### Part 15
+<b>And</b> if we <b>rather</b> say that <b>he does not provide for her sustenance and does not provide her with a silver <i>ma’a</i> for her needs,</b> and she must consequently support herself entirely, then <b>what is the reason for</b> the opinion of <b>the one who said</b> that <b>it is consecrated in her lifetime?</b> It is possible that at some point she will not find sufficient employment, and since her husband does not provide for her sustenance or her other needs, she will need the money for herself and there will not be any surplus at all.
+
+### Part 16
+The Gemara answers: <b>Actually,</b> one must explain that they are discussing a situation where <b>he provides for her sustenance, but does not provide her with a silver <i>ma’a</i> for her needs,</b> and this is their dispute: <b>Rav and Shmuel maintain</b> that the main enactment was that <b>they established</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Et il y a</b> place <b>pour dire</b> que <b>cela</b> appartient <b>entierement a l'un</b> d'entre eux, <b>et il y a</b> aussi place <b>pour dire</b> que <b>cela</b> appartient <b>entierement a</b> l'autre <b>un, </b> et neanmoins <b>Sumakhos dit</b> que puisqu'il s'agit d'un <b>bien de propriete incertaine ils le divisent</b> <b>sans</b> prendre <b>un serment, </b> alors <b>ici, ou</b> les plaideurs n'ont <b>aucune association financiere</b> avec l'objet, <b>puisqu'il y a</b> place <b>pour dire qu'il</b> appartient a <b>tous les deux, a plus forte raison</b> est-il <b>non</b> clair qu'ils doivent le diviser sans preter serment ?
+
+### Partie 2
+La Gemara repond : <b>On peut meme dire</b> que la mishna est conforme a l'avis de <b>Sumakhos : Ce serment est</b> institue <b>par la loi rabbinique</b> <b>conformement</b> a la declaration <b>de Rabbi Yohanan. Comme le dit Rabbi Yohanan : Ce serment,</b> administre dans le cas de deux personnes tenant un vetement, <b>est une ordonnance</b> instituee <b>par les Sages afin que chacun n'aille pas saisir le vetement d'un autre en disant : C'est le mien.</b>
+
+### Partie 3
+§ La Guemara suggere : <b>Disons que la mishna</b> n'est <b>pas conforme</b> a l'avis de <b>Rabbi Yosei. Car, si</b> vous dites que la decision est <b>conforme</b> a l'opinion de <b>Rabbi Yosei, ne dit-il pas</b> qu'un cas ne peut pas etre decide d'une maniere telle qu'il n'y a pas de dissuasion pour celui qui porte une fausse reclamation devant le tribunal (37a) ? Il dit cela a propos d'un cas ou deux personnes ont depose de l'argent aupres de la meme personne. L'une a depose cent dinars et l'autre deux cents, et le depositaire a oublie laquelle des deux a depose la plus grosse somme. Par la suite, chacun a revendique la propriete de la plus grande somme et etait pret a preter serment a cet effet. Les rabbins disent que chacun doit recevoir la plus petite somme et que le reste doit etre conserve jusqu'a ce que le prophete Elie resolve l'incertitude. Rabbi Yosei dit : <b>Si c'est le cas, qu'est-ce que</b> le <b>swindler a perdu ? Au contraire, la totalite</b> du depot <b>serait placee</b> en lieu sur <b>jusqu'a la venue d'Elie.</b>
+
+### Partie 4
+La Guemara replique : <b>Au contraire, qu'est-ce qui est suggere</b> ? Est-il suggere que la mishna est en accord avec l'opinion des <b>Rabbins,</b> qui ne sont pas d'accord avec Rabbi Yosei ? <b>Puisque les rabbins disent</b> la : <b>Le reste est place</b> en lieu sur <b>jusqu'a la venue d'Elie, ce</b> cas de la mishna concernant le vetement <b>est egalement comparable au reste</b> dans le cas du depot, <b>car on ne sait pas</b> a qui appartient le vetement entier. Il convient donc de le placer en lieu sur jusqu'a ce que la question soit resolue.
+
+### Partie 5
+La Gemara repond : <b>Qu'est-ce que</b> <b>cette comparaison</b> ? <b>Accorde, si l'on dit</b> que la mishna est conforme a l'avis des <b>Rabbins la,</b> dans le cas des deposants, <b>ou ces cent dinars n'appartiennent certainement</b> qu'a <b>un seul d'entre eux</b> et <b>les Rabbins disent</b> qu'on le place</b> en lieu sur <b>jusqu'a la venue d'Elie, ici,</b> dans le cas de cette mishna, <b>ou il y a place</b> pour dire qu'elle appartient aux deux, les rabbins disent</b> qu'ils la partagent</b> <b>avec</b> la condition qu'ils fassent <b>un serment. </b>
+
+### Partie 6
+<b>Mais si vous dites</b> que la mishna <b>est</b> conforme a l'avis de <b>Rabbi Yosei,</b> il y a une difficulte. <b>Maintenant</b> considerez, <b>si il y a,</b> dans un cas <b>ou il est certain qu'il y a cent dinars</b> qui appartiennent <b>a l'un</b> des plaideurs <b>et il y a cent dinars</b> qui appartiennent <b>a</b> l'autre <b>un,</b> neanmoins, <b>Rabbi Yosei dit</b> que la totalite de la somme <b>est placee</b> en lieu sur <b>jusqu'a la venue d'Elie, ici, ou il y a</b> place <b>pour dire que tout cela</b> <b>appartient</b> seulement a <b>un d'entre eux, d'autant plus</b> n'est-il pas <b>clair qu'il faut la placer en lieu sur jusqu'a la venue d'Elie, car l'une des revendications peut etre entierement frauduleuse ?
+
+### Partie 7
+La Guemara rejette cette suggestion : <b>On peut meme dire</b> que la mishna est en accord avec l'opinion de <b>Rabbi Yosei : La,</b> dans le cas du depot, <b>il y a certainement un escroc</b> entre les deux deposants. En revanche, <b>ici,</b> dans le cas de la mishna, <b>qui peut dire qu'il y a un escroc ? Dis</b> que <b>les deux ont souleve</b> le vetement <b>en meme temps,</b> et qu'il n'y a donc aucune raison de les penaliser en placant le vetement dans un endroit sur.
+
+### Partie 8
+<b>Alternativement,</b> il y a lieu de distinguer les cas : <b>Ici, Rabbi Yosei penalise</b> le <b>sauveteur</b> en confisquant son depot <b>afin qu'il admette</b> qu'il a menti pour recevoir son depot initial de cent dinars de la part du depositaire. <b>Ici,</b> dans le cas du vetement, <b>quelle perte</b> un escroc <b>encourrait-il qui</b> l'inciterait a <b>admettre</b> qu'il ment ? Si l'objet est place en lieu sur, il ne perd rien.
+
+### Partie 9
+La Guemara rejette cette explication alternative : Cette distinction <b>fonctionne bien</b> dans le cas d'un <b>objet trouve</b> ou il n'a rien paye pour cet objet. Par consequent, il n'a aucun interet a admettre qu'il a menti. Mais dans un cas d'<b>achat et de vente, qu'y a-t-il a dire ? </b> Les deux parties ont paye pour l'objet et preferent recevoir l'objet. <b>Au contraire,</b> la distinction <b>est clairement celle que nous avons expliquee au depart.</b> La difference entre les cas est que dans la mishna, il n'y a pas de certitude que l'un des deux ment.
+
+### Partie 10
+La Gemara demande : <b>Tant selon</b> l'avis des <b>rabbins que selon</b> l'avis de <b>Rabbi Yosei, la, en ce qui concerne</b> le cas d'un <b>magasinier</b> se fiant <b>a son grand livre,</b> on ne comprend pas pourquoi l'argent n'est pas retenu jusqu'a ce que l'affaire soit clarifiee. Ceci fait reference au cas ou un employeur dit a un commercant de donner de la nourriture a son ouvrier au lieu de son salaire, et plus tard le commercant pretend qu'il lui a donne mais l'ouvrier pretend qu'il ne l'a pas recu. Les deux parties reclament donc le paiement a l'employeur. <b>Comme</b> la mishna (<i>Shevuot</i> 45a) <b>enseigne</b> que <b>celui-ci</b>, le commercant, <b>prete serment</b> qu'il a donne la nourriture a l'ouvrier <b>et recoit</b> le paiement de l'employeur, <b>et celui-la</b>, l'ouvrier, <b>prete serment</b> qu'on ne lui a pas donne la nourriture <b>et prend</b> son salaire de l'employeur.
+
+### Partie 11
+<b>Qu'est-ce qui est different</b> dans ce cas, <b>que nous ne disons pas : Appropriez-vous l'argent de l'employeur, et il est place</b> en lieu sur <b>jusqu'a la venue d'Elie ?</b> Apparemment, nous devrions dire cela <b>parce qu'il y a certainement un escroc</b> parmi les plaideurs, puisqu'il est impossible que le commercant et l'ouvrier disent tous deux la verite.
+
+### Partie 12
+Les Sages <b>disent</b> en reponse : <b>Voila, c'est la raison</b> pour laquelle l'argent n'est pas mis de cote : <Parce que le commercant peut dire a l'employeur : J'ai execute votre agence</b> pour donner la nourriture a l'ouvrier, et je n'ai de rapports qu'avec vous. <b>Qu'est-ce que</b> j'ai a faire avec l'ouvrier engage ? Meme s'il me fait le serment</b> qu'il n'a pas recu la nourriture, il n'est <b>pas digne de confiance pour moi en</b> vertu de son <b>serment. C'est vous</b> qui lui avez <b>fait confiance, puisque vous ne m'avez pas dit : Donne-lui</b> la nourriture <b>en</b> presence de <b>temoins.</b> Par consequent, vous etes oblige de me payer. Si vous avez un grief, reglez-le avec votre employe.
+
+### Partie 13
+<b>Et</b> le <b>travailleur salarie peut aussi dire a l'employeur : J'ai travaille pour vous. Quelle</b> relation <b>j'ai avec le commercant ? Meme s'il me fait le serment</b> qu'il m'a rendu la monnaie, il n'est <b>pas digne de confiance pour moi</b> en vertu de son serment. <b>C'est pourquoi, les deux</b> parties <b>pretent serment et prennent</b> le paiement <b>de l'employeur.</b>
+
+### Partie 14
+§ <b>Rabbi Hiyya a enseigne</b> une <i>baraita</i> : Si quelqu'un dit a un autre : <b>Je</b> ai <b>cent dinars [<i>maneh</i>] en ta possession</b> que tu m'as empruntes et que tu n'as pas rembourses, <b>et l'autre</b> partie <b>dit : Rien de toi</b> n'est <b>en ma possession, et les temoins attestent qu'il a cinquante dinars</b> qu'il doit au demandeur, <b>il lui donne cinquante dinars et prete serment sur le reste,</b> c'est-a-dire qu'il ne lui a pas emprunte les cinquante dinars restants.
+
+### Partie 15
+Cette decision est derivee <b>via une <i>a fortiori</i></b> deduction de la <i>halakha</i> selon laquelle celui qui admet une partie d'une reclamation qui lui est faite est oblige de preter serment qu'il ne doit pas plus que le montant qu'il admet avoir emprunte. La deduction est la suivante : <b>Comme l'aveu de sa propre <b>bouche</b> ne devrait pas avoir <b>plus de poids</b> <b>que la deposition des temoins.</b> Puisque dans ce cas les temoins attestent qu'il doit un montant egal a une partie de la creance, il est d'autant plus oblige de preter serment en ce qui concerne le reste de la somme.
+
+### Partie 16
+La Gemara commente : <b>Et</b> le <b><i>tanna</i></b> de la mishna a egalement <b>enseigne</b> une <i>halakha</i> similaire : Dans un cas de <b>deux</b> personnes qui se sont presentees au tribunal <b>en tenant un vetement,</b> ou <b>ceux-ci</b> disent : je l'ai trouve,</b> et l'autre dit : je l'ai trouve, chaque plaideur prete serment et ils se partagent le vetement. <b>Et ici,</b> dans le cas d'un objet trouve, <b>puisque</b> chaque plaideur <b>tient</b> une partie du vetement, <b>il est clair pour nous que ce</b> qui est dans <b>cette prise est la sienne, et ce</b> qui est dans <b>cette prise est la sienne.</b> Cela equivaut a des temoins attestant qu'une partie de la pretention de chaque plaideur est legitime. <b>Et</b> la mishna <b>enseigne</b> que chacun d'eux <b>prete serment.</b>
+
+### Partie 17
+La Guemara clarifie : Pour <b>quelle</b> raison est-il necessaire d'avoir la <b><i>a fortiori</i></b> deduction : <b>Comme l'aveu de sa</b> propre <b>bouche ne devrait pas</b> avoir <b>plus de poids</b> <b>que le temoignage des temoins ?</b> La comparaison avec le cas de l'aveu d'une partie d'une demande ne va-t-elle pas de soi ? La Gemara repond : C'est necessaire pour <b>que vous ne disiez pas</b> que <b>c'est</b> seulement dans un cas d'<b>admission de sa propre <b>bouche</b> que le Misericordieux lui impose un serment, conformement</b> a l'explication <b>de Rabba.</b>
+
+### Partie 18
+<b>Comme le dit Rabba : Pour quelle</b> raison <b>la Torah a-t-elle dit</b> que celui qui <b>admet une partie de la creance doit preter serment ?</b> C'est parce qu'il y a <b>une presomption</b> que <b>une personne ne fait pas preuve d'insolence</b> en mentant <b>en presence de son creancier,</b> qui lui avait fait une faveur en lui pretant de l'argent. <b>Et cette</b> personne qui nie une partie de la creance veut en fait <b>nier toute</b> la dette, afin d'etre exemptee, <b>et ce</b> fait <b>qu'elle ne nie pas</b> tout <b>cela</b> est <b>parce qu'une personne ne fait pas preuve d'insolence.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Part 1
+<b>from sin.</b> We should therefore show our gratitude to them. The Gemara cites a related incident: <b>Rav Yehuda</b> was <b>teaching</b> Torah <b>to Rav Yitzḥak, his son,</b> and they encountered the verse: <b>“And I find more bitter than death the woman”</b> (Ecclesiastes 7:26). His son <b>said to him: For example, whom?</b> His father replied: <b>For example, your mother.</b>
+
+### Part 2
+The Gemara asks: <b>Didn’t Rav Yehuda teach Rav Yitzḥak, his son,</b> the following <i>baraita</i>: <b>A man finds peace of mind only with his first wife, as it is stated: “Let your fountain be blessed, and have joy from the wife of your youth”</b> (Proverbs 5:18), <b>and</b> his son <b>said to him: For example, whom,</b> and his father responded in this case as well: <b>For example, your mother.</b> This indicates that Rav Yehuda did find peace of mind with his wife. The Gemara answers: She was aggressive and <b>forceful, but</b> she was <b>easily appeased.</b>
+
+### Part 3
+The Gemara asks: <b>What are the circumstances</b> when a woman is considered <b>a bad wife? Abaye said: She arranges a table for him and arranges</b> her <b>mouth for him</b> at the same time. In other words, although she prepares food for him, she verbally abuses him while he eats. <b>Rava said: She arranges a table for him and</b> then <b>turns</b> her <b>back to him,</b> displaying her lack of interest in his company.
+
+### Part 4
+<b>Rabbi Ḥama bar Ḥanina said: Once a man marries a woman his iniquities crumble [<i>mitpakekin</i>], as it is stated: “Whoever finds a wife finds good, and obtains [<i>veyafek</i>] favor of the Lord”</b> (Proverbs 18:22). <b>In the West,</b> i.e., Eretz Yisrael, <b>when a man married a woman they would say to him as follows: <i>Matza</i> or <i>motze</i>?</b> In other words, they would ask the groom if the appropriate passage for his wife is that verse, which begins with the word <b><i>matza</i>, as it is written: Whoever finds [<i>matza</i>] a wife finds good,</b> or whether the more appropriate verse is the one beginning with the word <b><i>motze</i>, as it is written: “And I find [<i>motze</i>] more bitter than death the woman”</b> (Ecclesiastes 7:26).
+
+### Part 5
+<b>Rava said: It is a mitzva to divorce a bad wife, as it is written: “Cast out the scorner and contention will depart; strife and shame will cease”</b> (Proverbs 22:10). <b>And Rava said: A bad wife whose marriage contract</b> settlement <b>is</b> too <b>large</b> for her husband to pay in the event of a divorce, <b>her rival wife is at her side.</b> In other words, the only way for him to improve matters is to take another wife. <b>As people say</b> in the well-known adage: The way to trouble a woman is <b>with her peer and not with a thorn. And Rava said: A bad wife is as troublesome as a day of heavy rain, as it is stated: “A continual dropping on a very rainy day and a contentious woman are alike”</b> (Proverbs 27:15).
+
+### Part 6
+<b>And Rava said: Come and see how good a good wife is and how bad a bad wife is. How good is a good wife? As it is written: Whoever finds a wife finds good. If the verse speaks of her,</b> a wife, this demonstrates <b>how good a good wife is, as the Bible praises her. If the verse speaks</b> metaphorically <b>of the Torah,</b> it nevertheless indicates <b>how good a good wife is, as the Torah is compared to her.</b> Conversely, <b>how bad is a bad wife? As it is written: “And I find more bitter than death the woman.” If the verse speaks of her,</b> this demonstrates <b>how bad a bad wife is, as the Bible condemns her. If the verse speaks</b> metaphorically <b>of Gehenna,</b> it still demonstrates <b>how bad a bad wife is, as Gehenna is compared to her.</b>
+
+### Part 7
+The Gemara cites further statements on the same issue. The verse states: <b>“Behold, I will bring evil upon them, which they shall not be able to escape”</b> (Jeremiah 11:11). <b>Rav Naḥman said</b> that <b>Rabba bar Avuh said: This is a bad wife whose marriage contract is large.</b> Similarly, with regard to the verse: <b>“The Lord has given me into the hands of those against whom I cannot stand”</b> (Lamentations 1:14), <b>Rav Ḥisda said</b> that <b>Mar Ukva bar Ḥiyya said: This is a bad wife whose marriage contract is large. In the West,</b> Eretz Yisrael, <b>they said this</b> verse is referring to one <b>whose food is dependent on his money.</b> He is forced to purchase his food with cash, as he does not possess land of his own.
+
+### Part 8
+With regard to the verse: <b>“Your sons and your daughters shall be given to another people”</b> (Deuteronomy 28:32), <b>Rav Ḥanan bar Rava said</b> that <b>Rav said: This is</b> a reference to the children’s <b>father’s wife,</b> their stepmother. With regard to the verse: <b>“I will provoke them with a vile nation”</b> (Deuteronomy 32:21), <b>Rav Ḥanan bar Rava said</b> that <b>Rav said: This is a bad wife whose marriage contract is large. Rabbi Eliezer says</b> that <b>these are apostates, and so too</b> the verse <b>states: “The vile man has said in his heart: There is no God,</b> they have dealt corruptly” (Psalms 14:1), which proves that an apostate is called vile.
+
+### Part 9
+<b>It was taught in a <i>baraita</i></b> with regard to the verse: “I will provoke them with a vile nation,” that <b>these are the inhabitants of Barbarya and the inhabitants of Martenai, who walk naked in the marketplace, as none is more despised and abominable before the Omnipresent than one who walks naked in the marketplace. Rabbi Yoḥanan said: These are</b> the <b><i>Ḥabbarim</i>,</b> a sect of Persian priests. The Gemara relates: When <b>they said to Rabbi Yoḥanan:</b> The <b><i>Ḥabbarim</i> have come to Babylonia, he shuddered and fell</b> of his chair, out of concern for the Jews living there. <b>They said to him:</b> There is a way to deal with their persecution, as <b>they accept bribes.</b> Upon hearing that not all was lost, <b>he straightened himself</b> and <b>sat</b> in his place once again.
+
+### Part 10
+Apropos the <i>Ḥabbarim</i>, the Gemara cites the following statement of the Sages: The <i>Ḥabbarim</i> were able to <b>issue decrees against</b> the Jewish people with regard to <b>three</b> matters, <b>due to three</b> transgressions on the part of the Jewish people. <b>They decreed against meat,</b> i.e., they banned ritual slaughter, <b>due to</b> the failure of the Jewish people to give the priests <b>the gifts</b> of the foreleg, the jaw, and the maw. <b>They decreed against</b> Jews bathing in <b>bathhouses, due to</b> their neglect of ritual <b>immersion.</b>
+
+### Part 11
+Third, <b>they exhumed the dead</b> from their graves <b>because</b> the Jews <b>rejoice on</b> the <b>holidays</b> of the gentiles, <b>as it is stated: “Then shall the hand of the Lord be against you and against your fathers”</b> (I Samuel 12:15). <b>Rabba bar Shmuel said: This</b> verse is referring to <b>exhuming the dead,</b> which upsets both the living and the dead, <b>as the Master said:</b> Due <b>to the iniquity of the living, the dead are exhumed.</b>
+
+### Part 12
+<b>Rava said to Rabba bar Mari: It is written: “They shall not be gathered nor buried; they shall be for dung upon the face of the earth”</b> (Jeremiah 8:2), <b>and it is written: “And death shall be chosen rather than life”</b> (Jeremiah 8:3). If death will be so indecent that their bodies will not even be buried, why would people choose death over life? Rabba bar Mari <b>said to him:</b> The latter verse does not refer to the previously described state of affairs, but rather it means: <b>Death is preferable for the wicked,</b> as it is better <b>that they not live in this world and sin and</b> consequently <b>descend into Gehenna.</b>
+
+### Part 13
+The Gemara cites more statements concerning women. <b>It is written in the book of Ben Sira: A good wife is a good gift for her husband. And it is written: A good one will be placed in the bosom of a God-fearing man; a bad wife is a plague to her husband. What is his remedy? He should divorce her and he will be cured of his plague. A beautiful wife, happy is her husband; the number of his days are doubled.</b> His pleasure in her beauty makes him feel as though he has lived twice as long.
+
+### Part 14
+<b>Turn your eyes from a graceful woman</b> who is married to another man, <b>lest you be caught in her trap. Do not turn to her husband to mix wine and strong drink with him,</b> which can lead to temptation. <b>For on</b> account of <b>the countenance of a beautiful woman many have been destroyed, and her slain is a mighty host.</b> Furthermore, <b>many have been the wounded peddlers.</b> This is referring to men who travel from place to place to sell women’s jewelry. Their frequent dealings with women lead their husbands to harm the peddlers. <b>Those who accustom</b> themselves <b>to licentious matters are like a spark that ignites a coal. As a cage is full of birds, so are their houses full of deceit.</b>
+
+### Part 15
+The Gemara quotes additional statements from the book of Ben Sira: <b>Do not suffer from tomorrow’s trouble,</b> that is, do not worry about problems that might arise in the future, <b>as you do not know what a day will bring. Perhaps</b> when <b>tomorrow comes,</b> the individual who was so worried will <b>not</b> be among the living, and <b>he</b> was <b>consequently upset over a world that is not his. Prevent a crowd from inside your house,</b> do not let many people enter, <b>and do not</b> even <b>bring all</b> your friends into <b>your house.</b> Make sure, however, that <b>a crowd seeks your welfare,</b> and that you have many allies. <b>Reveal a secret to</b> only <b>one in a thousand,</b> since most people are unable to keep a secret.
+
+### Part 16
+<b>Rabbi Asi said: The</b> Messiah, <b>son of David, will not come until all the souls of the body have been finished,</b> i.e., until all souls that are destined to inhabit physical bodies will do so. <b>As it is stated: “For the spirit that enwraps itself is from Me, and the souls that I have made”</b> (Isaiah 57:16). <b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer says: Anyone who does not engage in</b> the mitzva to be <b>fruitful and multiply</b> is considered <b>as though he sheds blood, as it is stated: “Whoever sheds the blood of man, by man shall his blood be shed”</b> (Genesis 9:6), <b>and it is written</b> immediately <b>afterward: “And you, be fruitful and multiply”</b> (Genesis 9:7).
+
+### Part 17
+<b>Rabbi Ya’akov says: It is as though he diminishes the</b> Divine <b>Image, as it is stated: “For in the image of God He made man”</b> (Genesis 9:6), <b>and it is written</b> immediately <b>afterward: “And you, be fruitful</b> and multiply” (Genesis 9:7). <b>Ben Azzai says:</b> It is <b>as though he sheds blood and</b> also <b>diminishes the</b> Divine <b>Image, as it is stated: “And you, be fruitful and multiply,”</b> after the verse that alludes to both shedding blood and the Divine Image.
+
+### Part 18
+<b>They said to ben Azzai: There</b> is a type of scholar who <b>expounds well and fulfills</b> his own teachings <b>well,</b> and another who <b>fulfills well and does not expound well. But you,</b> who have never married, <b>expound well</b> on the importance of procreation, <b>and</b> yet <b>you do not fulfill well</b> your own teachings. <b>Ben Azzai said to them: What shall I do, as my soul yearns for Torah,</b> and I do not wish to deal with anything else. <b>It is possible for the world to be maintained by others,</b> who are engaged in the mitzva to be fruitful and multiply.
+
+### Part 19
+<b>It is</b> similarly <b>taught</b> in <b>another</b> <i>baraita</i> that <b>Rabbi Eliezer says: Anyone who does not engage in</b> the mitzva to be <b>fruitful and multiply</b> is considered <b>as though he sheds blood, as it is stated: “Whoever sheds the blood of man,” and</b> it is stated <b>near it: “And you, be fruitful</b> and multiply.” <b>Rabbi Elazar ben Azarya says:</b> It is <b>as though he diminishes the</b> Divine <b>Image. Ben Azzai says:</b> It is as though he both sheds blood and diminishes the Divine Image. <b>They said to ben Azzai: There is</b> a type of scholar who <b>expounds well, etc.</b>
+
+### Part 20
+<b>The Sages taught</b> with regard to the mitzva to be fruitful and multiply: <b>“And when it rested, he would say: Return, Lord, to the ten thousands of the thousands of Israel”</b> (Numbers 10:36).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

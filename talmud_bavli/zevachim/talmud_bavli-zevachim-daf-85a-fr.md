@@ -1,0 +1,51 @@
+
+### Partie 1
+neanmoins, la <i>halakha</i> a l'egard de celui qui abat un animal la nuit <b>ne doit pas etre moins</b> rigoureuse <b>que</b> celle de celui qui <b>atteint</b> un animal <b>a l'exterieur</b> du Temple <b>et l'offre</b> <b>a l'exterieur. </b> En ce qui concerne ce cas, la mishna (106a) precise qu'une telle personne est responsable, meme si un animal abattu a l'exterieur du Temple n'est pas apte a etre offert sur l'autel a l'interieur du Temple et doit descendre de l'autel meme s'il est monte.
+
+### Partie 2
+<b>Rav Hiyya bar Avin souleve une objection</b> a la declaration de Rabbi Yohanan a partir d'une mishna (111a) : <b>Celui qui abat un oiseau a l'interieur</b> de la cour du Temple <b>et</b> ensuite l'<b>offre</b> <b>en haut</b> sur un autel <b>a l'exterieur</b> du Temple est <b>exempte,</b> car une offrande d'oiseau est censee etre pincee a la nuque et non abattue avec un couteau. Mais s'il a <b>abattu</b> l'oiseau <b>en dehors</b> de la cour du Temple <b>et l'a offert</b> <b>en dehors</b> de la cour du Temple, il est <b>responsable</b> de recevoir le <i>karet</i>. Selon Rabbi Yohanan, <b>disons</b> que la <i>halakha</i> a l'egard de celui qui egorge un animal a l'interieur du Temple <b>ne devrait pas etre moins</b> rigoureuse <b>que</b> celle de celui qui <b>egorge</b> un animal <b>et l'offre</b> <b>en dehors</b> du Temple. Pourquoi, alors, une telle personne est-elle exemptee ?
+
+### Partie 3
+La Guemara repond : Ceci est en effet <b>une refutation concluante,</b> et la declaration de Rabbi Yohanan est rejetee. La Guemara ajoute une explication possible : <b>Si tu veux, dis</b> qu'on ne peut pas deriver la <i>halakha</i> d'un oiseau abattu a l'interieur du Temple de celle d'un oiseau abattu a l'exterieur, car dans le cas de <b>l'abattage d'un oiseau a l'interieur</b> du Temple, on considere que <b>il l'a tue. </b> En revanche, dans le cas d'un animal abattu la nuit a l'interieur du Temple, bien qu'il soit disqualifie, il est toujours considere comme un animal abattu, et son statut peut donc etre derive de celui d'un animal qui est abattu a l'exterieur du Temple.
+
+### Partie 4
+§ Concernant les objets qui ont ete places de maniere inappropriee sur l'autel, <b>Ulla dit : Les portions sacrificielles des offrandes de moindre saintete que</b> l'on <b>offrait</b> sur l'autel <b>avant l'aspersion de leur sang,</b> qui est l'acte qui sanctifie ces portions pour l'autel, <b>ne descendront pas,</b> car <b>elles sont devenues le pain de</b> l'<b>autel.</b>
+
+### Partie 5
+<b>Rabbi Zeira a dit</b> a l'appui de Ulla : <b>Nous apprenons</b> dans la mishna <b>aussi :</b> Les portions sacrificielles d'une offrande <b>dont le sang a ete repandu, ou dont le sang a emerge en dehors des rideaux,</b> ne descendront pas si elles sont montees. On peut en deduire : <b>Et si la, ou</b> le sang a ete repandu, <b>si l'on vient pour l'asperger</b> <b>il ne peut pas l'asperger</b>, car il n'y a pas de sang avec lequel le faire, et <b>vous avez dit</b> que <b>si elles montent</b> l'autel <b>elles ne descendront pas,</b> alors <b>ici, </b> ou le sang est intact de telle sorte <b>que s'il vient pour l'asperger</b> <b>il l'asperge</b>, ce qui rend les portions sacrificielles permises pour le sacrifice sur l'autel, n'est-ce pas <b>a plus forte raison</b> que s'ils sont montes, ils ne descendront pas ?
+
+### Partie 6
+La Guemara rejette la deduction de Rabbi Zeira : <b>Interpreter</b> la mishna comme se referant specifiquement <b>aux offrandes de l'ordre le plus sacre,</b> dont les portions sacrificielles sont sanctifiees pour le bien de l'autel avant que leur sang ne soit presente. Par consequent, de telles portions sacrificielles sont considerees comme propres a l'autel et ne doivent pas descendre si elles sont montees. Il se peut que les portions sacrificielles des offrandes de moindre saintete soient entierement impropres a l'autel avant la presentation de leur sang.
+
+### Partie 7
+La Gemara conteste : Mais il existe <b>une offrande pascale, qui est une offrande de moindre saintete,</b> et elle est mentionnee dans la meme liste d'objets qui ne doivent pas descendre s'ils sont montes. La Gemara explique : <b>Interpreter</b> le cas d'une offrande pascale comme se referant <b>a</b> l'endroit ou elle a ete abattue <b>pas pour elle,</b> mais pas a l'endroit ou son sang a ete repandu ou a emerge a l'exterieur des rideaux.
+
+### Partie 8
+<b>Nous avons appris</b> dans la mishna : <b>Et tous ceux qui</b> s'ils montent ils ne descendent pas, si <b>ils sont montes au</b> sommet de <b>l'autel vivant, ils descendent. Mais</b> on peut deduire d'ici que les animaux <b>abattus</b> <b>ne descendent pas,</b> meme si leur sang n'a pas ete presente. <b>Quoi, n'est-ce pas</b> que cette deduction s'applique a toutes les offrandes, et la <i>halakha</i> <b>n'est pas differente</b> en ce qui concerne les <b>offrandes de l'ordre le plus sacre, et elle n'est pas differente</b> en ce qui concerne les <b>offrandes de moindre saintete ?</b>
+
+### Partie 9
+La Gemara repond : <b>Non,</b> il est possible d'en deduire ce qui suit : <b>Mais</b> en ce qui concerne les animaux <b>abattus</b>, certains <b>d'entre eux descendront</b> et d'autres <b>ne descendront pas.</b> La Gemara conteste : <b>Mais</b> la mishna <b>enseigne</b> que <b>tous</b> descendront s'ils sont montes vivants, auquel cas il faut deduire a l'egard de tous que s'ils ont ete abattus, ils ne descendront pas. La Guemara explique : Lorsque la mishna declare : <b>Tous</b> descendront, il se refere uniquement <b>aux</b> animaux qui sont montes sur l'autel alors qu'ils etaient encore <b>vivants,</b> afin de souligner que tous les animaux aptes qui sont montes alors qu'ils etaient encore vivants descendront et ne seront pas abattus au sommet de l'autel. La mishna n'avait pas l'intention d'enseigner la <i>halakha</i> a l'egard de tous les animaux abattus.
+
+### Partie 10
+La Guemara demande : N'est-il pas <b>evident</b> que les animaux vivants qui sont montes sur l'autel doivent descendre ? La Guemara repond : <b>En fait,</b> la mishna a l'intention d'enseigner la <i>halakha</i> <b>en ce qui concerne les animaux vivants</b> <b>mais</b> elle se refere specifiquement <b>aux</b> animaux taches sur <b>la cornee de l'œil, et</b> il est <b>conforme</b> a l'avis <b>de Rabbi Akiva, qui dit</b> que dans le cas d'une si petite tare, <b>s'ils montaient</b> l'autel <b>ils ne descendront pas. </La phrase : Tous descendront, enseigne que meme Rabbi Akiva est d'accord pour que ces animaux qui sont montes alors qu'ils etaient encore vivants descendent.
+
+### Partie 11
+La Guemara demande : <b>A quel cas</b> <b>vous avez interprete</b> cette <i>halakha</i> dans la mishna pour faire reference ? Vous l'avez interprete comme faisant reference <b>aux offrandes disqualifiees</b>. <b>Dites la derniere clause : Et de meme, un holocauste qui est monte vivant au sommet de l'autel doit descendre.</b> Mais si <b>on a abattu</b> l'animal <b>au sommet de l'autel, il doit l'ecorcher</b> <b>et le couper</b> <b>en morceaux a sa place,</b> et il n'est pas retire de l'autel. <b>Et si</b> le mishna fait reference a <b>une offrande disqualifiee</b>, il faut se demander : une offrande disqualifiee est-elle <b>adaptee a l'ecorchage et au decoupage ? Le Misericordieux declare :</b> "Il ecorchera l'holocauste, <b>et le coupera</b> en morceaux" (Levitique 1:6), et le mot <b>"il"</b> indique une exclusion : Seules les offrandes <b>adaptees</b> sont ecorchees et coupees, <b>et non</b> celles qui sont <b>disqualifiees.</b>
+
+### Partie 12
+La Gemara repond : Dans <b>cette derniere clause, nous venons</b> faire reference a <b>une offrande apte</b>. La Gemara demande : <b>Et qu'est-ce que</b> cela nous apprend ? </b> La Gemara repond : Elle enseigne <b>que l'on ecorche et coupe au sommet de l'autel,</b> et que cela n'est pas considere comme degradant pour l'autel.
+
+### Partie 13
+La Guemara demande : <b>Mais selon celui qui dit</b> que <b>Il n'y a pas d'ecorchage et de decoupage au sommet de l'autel, que peut-on dire ?</b> La Gemara repond : Selon cet avis, <b>De quoi s'agit-il ici ?</b> Nous avons affaire a un cas <b>ou l'animal qui est monte de son vivant <b>a eu un temps d'aptitude,</b> pendant lequel il a ete egorge au sommet de l'autel et son sang a ete presente, <b>et</b> par la suite il <b>est devenu disqualifie. Et</b> la derniere clause de la mishna <b>est</b> conforme a l'opinion de <b>Rabbi Elazar, fils de Rabbi Shimon, qui dit : Puisque le sang a ete asperge,</b> entrainant ainsi l'acceptation de la chair</b> de l'offrande pendant <b>un moment,</b> meme si l'offrande est ensuite devenue disqualifiee, <b>il l'ecorchera et sa peau</b> sera donnee <b>aux pretres,</b> et sa chair sera brulee.
+
+### Partie 14
+La Gemara demande : <b>Mais</b> si la mishna fait reference a une offrande qui est devenue disqualifiee, alors en ce qui concerne <b>ce qui est enseigne</b> dans une <i>baraita</i> concernant la mishna : <b>Que doit-il</b> il <b>faire</b> avec une telle offrande ? Il <b>enleve les entrailles</b> de l'autel, les place <b>sous l'autel</b>, <b>et</b> par la suite <b>les rince, pourquoi ai-je</b> besoin de le faire ? Puisque les entrailles d'une offrande disqualifiee ne peuvent etre remises sur l'autel une fois qu'elles en ont ete retirees, pourquoi faut-il les retirer de l'autel ?
+
+### Partie 15
+La Gemara repond : Plutot, <b>Que devons-nous faire ? Devrions-nous les offrir avec leurs excrements ?</b> Le verset ne precise-t-il pas : <b>"Presente-le maintenant a ton gouverneur ; sera-t-il satisfait de toi ? Ou bien acceptera-t-il ta personne ? </b> (Malachie 1:8), et ne derive-t-il pas de ce verset que les objets consideres comme repugnants pour les gens ne sont pas aptes a etre utilises comme offrande pour le Tres-Haut ?
+
+### Partie 16
+La Guemara clarifie : <b>Voici ce que nous disons :</b> Puisqu'on retire les entrailles d'une offrande disqualifiee du haut de l'autel et qu'elles ne peuvent pas etre retournees, <b>pourquoi ai-je</b> besoin de les <b>rincer ?</b> La Gemara repond : Le souci est <b>que si un autre pretre tombe par hasard</b> sur ces entrailles <b>et ne sait pas</b> qu'elles sont disqualifiees pour l'autel, <b>il les sacrifiera</b> sur l'autel avec leurs excrements.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

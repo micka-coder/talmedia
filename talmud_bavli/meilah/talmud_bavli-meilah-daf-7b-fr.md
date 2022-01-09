@@ -1,0 +1,60 @@
+
+### Partie 1
+Et dans le cas ou le <b>sang d'un</b> des offrandes pour le peche <b>a ete asperge, ne concedez vous pas que de meme que</b> l'aspersion de <b>son sang exempte sa viande des</b> <i>halakhot</i> de <b>mauvais usage, de meme, elle exempte la viande de l'autre</b> animal <b>des</b> <i>halakhot</i> de <b>mauvais usage ?</b>
+
+### Partie 2
+Si c'est le cas, on peut en deduire par une deduction <i>a fortiori</i> en ce qui concerne le cas de l'aspersion du sang de la viande qui a quitte la cour : <b>Si</b> l'aspersion de son sang <b>a epargne la viande de l'autre</b> animal <b>des <i>halakhot</b> de <b>mauvais usage, meme si</b> cet animal <b>est impropre,</b> puisqu'il s'agit d'un reste d'offrande pour le peche, il est tout a fait <b>droit que</b> le sang asperge <b>exempte sa propre viande,</b> malgre le fait qu'il ait quitte la cour.
+
+### Partie 3
+En ce qui concerne cette reponse de Rabbi Akiva, <b>Reish Lakish dit au nom de Rav Oshaya : Rabbi Akiva a donne une reponse trompeuse a cet etudiant</b> de lui, Rabbi Shimon. Reish Lakish developpe : Sur la base de la reponse de Rabbi Akiva, on pourrait penser que si les deux offrandes pour le peche ont ete abattues <b>en meme temps,</b> alors <b>oui,</b> le sang d'une offrande pour le peche exempte la viande de l'autre des <i>halakhot</i> de mauvais usage. Mais s'ils ont ete egorges <b>un apres l'autre,</b> cela n'exempte <b>pas</b> la viande de l'autre offrande.
+
+### Partie 4
+Mais <b>puisque</b> dans l'un ou l'autre cas l'autre offrande, dont le sang n'a pas ete asperge, <b>est impropre,</b> puisqu'il s'agit d'un reste d'offrande pour le peche, <b>quelle difference</b> cela fait-il <b>pour moi si</b> elles ont ete egorgees <b>en meme temps</b> ou si elles ont ete egorgees <b>l'une apres l'autre ? </b> Dans les deux cas, selon Rabbi Akiva, l'aspersion de l'un devrait exempter la viande de l'autre des <i>halakhot</i> de mauvais usage.
+
+### Partie 5
+<b>Rabbi Yohanan dit a Reish Lakish</b> en reponse : <b>Et vous,</b> qui soulevez cette difficulte, <b>ne dites-vous pas</b> egalement <b>la meme chose,</b> qu'il y a une difference entre un cas ou elles ont ete abattues en meme temps, et sont donc considerees comme une seule entite, lorsque l'aspersion du sang d'une offrande exempte la viande de l'autre, et un cas ou elles ont ete abattues l'une apres l'autre, et sont donc considerees comme deux entites separees, ce qui signifie que le sang d'une offrande n'exempte pas la viande de l'autre ?
+
+### Partie 6
+Mais dans un cas <b>ou</b> on <b>separait deux offrandes de culpabilite comme garantie</b> de son obligation d'une seule offrande de culpabilite, c'est-a-dire, que si l'une etait perdue, il pouvait obtenir l'expiation au moyen de la seconde, <b>et que l'on a egorge les deux,</b> et que le pretre <b>a d'abord fait monter</b> les <b>parties sacrificielles de l'une d'elles</b> sur l'autel <b>avant d'asperger</b> tout sang, et a ensuite asperge le sang de l'autre offrande, <b>ne concederiez-vous pas que</b> meme <b>si</b> les portions sacrificielles de cette offrande dont le sang n'a pas ete asperge <b>sont montees</b> sur l'autel, qu'elles <b>descendront</b> sans etre sacrifiees ? La procedure appropriee est que d'abord le sang est asperge et seulement ensuite les portions sacrificielles sont montees sur l'autel pour etre sacrifiees.
+
+### Partie 7
+Rabbi Yohanan analyse ce cas : <b>Et si</b> il <b>vous vient a l'esprit</b> de dire que meme lorsque les deux offrandes ont ete abattues l'une apres l'autre, elles sont toujours considerees comme <b>une entite, pourquoi</b> est-ce la <i>halakha</i> que <b>si</b> les portions sacrificielles <b>sont montees</b> sur l'autel, <b>elles descendront ? Ulla ne dit-elle pas</b> que <b>les portions sacrificielles des offrandes de moindre saintete que</b> l'on a <b>montees</b> a l'autel <b>avant</b> le <b>sprinkling de</b> l'offrandes <b>sang, </b> et qui ne sont donc pas encore propres a l'autel, <b>ne descendent pas,</b> mais sont sacrifiees, car les portions sacrificielles <b>sont devenues la nourriture de</b> l'<b>autel,</b> en vertu de leur placement sur celui-ci ?
+
+### Partie 8
+Reish Lakish <b>s'est tu,</b> car il n'avait pas de reponse a la difficulte de Rabbi Yohanan. <b>Rabbi Yohanan a dit</b> a ce sujet : <b>Nous avons coupe les jambes de l'enfant,</b> c'est-a-dire que j'ai refute l'opinion de Reish Lakish en soulevant une difficulte qui elimine le fondement de son opinion.
+
+### Partie 9
+<strong>MISHNA:</strong> En ce qui concerne l'etablissement de la responsabilite pour le mauvais usage des objets consacres, <b>il y a</b> un aspect de <b>l'indulgence et</b> un aspect de <b>striction dans l'acte</b> d'aspersion du <b>sang des offrandes de l'ordre le plus sacre. Mais</b> en ce qui concerne l'aspersion du sang <b>dans</b> le cas des <b>offrandes de moindre saintete,</b> elle contient <b>dans sa totalite</b> des aspects de <b>striction,</b> c'est-a-dire qu'il n'y a que des aspects de rigueur.
+
+### Partie 10
+<b>Comment cela ? </b> Le statut des <b>offrandes de l'ordre le plus sacre</b> est que <b>avant l'aspersion du sang, on est</b> responsable <b>du mauvais usage de leurs portions sacrificielles</b> qui doivent etre brulees sur l'autel, <b>et du mauvais usage</b> de <b>la viande</b> qui doit etre mangee par les pretres. La viande etant interdite avant l'aspersion du sang, elle entre dans la categorie des objets consacres a Dieu, qui sont soumis aux <i>halakhot</i> de mauvais usage. <b>Apres l'aspersion du sang</b> des offrandes de l'ordre le plus sacre, <b>on est</b> toujours responsable <b>du mauvais usage de leurs portions sacrificielles,</b> car elles restent interdites a la consommation et font partie de la categorie des objets consacres a Dieu, <b>mais on n'est pas</b> responsable <b>du mauvais usage de la viande,</b> car elle est desormais autorisee a la consommation par les pretres. Ceci explique comment il y a un aspect d'indulgence dans l'aspersion du sang des offrandes de l'ordre le plus sacre.
+
+### Partie 11
+En revanche, <b>pour</b> la consommation a la fois de <b>ceci,</b> les portions sacrificielles, <b>et de ca,</b> la viande, apres l'aspersion du sang, <b>on est susceptible</b> de recevoir <i>karet</i> <b>en raison</b> de la violation de l'interdiction de consommer du <b><i>piggul</i>, </b> et de l'interdiction de consommer du <b><i>notar</i>, et</b> de l'interdiction de consommer de la viande sacrificielle en etant <b>rituellement impur. </b> Par consequent, <b>l'acte d'aspersion</b> du <b>sang des offrandes de l'ordre le plus sacre</b> est <b>trouve</b> contenir un aspect de <b>lenitude et</b> un aspect de <b>striction.</b>
+
+### Partie 12
+<b>Mais en ce qui concerne</b> l'aspersion du sang des <b>offrandes de moindre saintete, tous leurs</b> aspects sont de <b>striction. Comment cela ? </b> Le statut des <b>offrandes de moindre saintete</b> est que <b>avant l'aspersion du</b> <b>sang, on n'est pas</b> responsable d'un <b>mauvais usage, ni pour</b> leurs <b>parties sacrificielles ni pour la viande. Apres l'aspersion</b> du <b>sang, on est</b> responsable du <b>mauvais usage</b> de leurs <b>parties sacrificielles, mais on n'est pas</b> responsable du <b>mauvais usage de la viande.</b> Ceci explique comment l'aspersion du sang dans le cas d'offrandes de moindre saintete entraine une rigueur en termes de <i>halakhot</i> de mauvais usage.
+
+### Partie 13
+Et <b>pour</b> la consommation a la fois de <b>ceci,</b> les portions sacrificielles, <b>et de cela,</b> la viande, apres l'aspersion du sang, <b>on est susceptible</b> de recevoir <i>karet</i> <b>en raison</b> de la violation de l'interdiction de consommer du <b><i>piggul</i>, </b> et de l'interdiction de consommer du <b><i>notar</i>, et</b> de l'interdiction de consommer de la viande sacrificielle en etant <b>rituellement impur. </b> Par consequent, dans <b>l'acte d'</b> aspersion du <b>sang des offrandes de moindre saintete,</b> il est <b>trouve</b> que <b>tous leurs</b> aspects sont de <b>striction.</b>
+
+### Partie 14
+<strong>GEMARA :</strong> La mishna <b>enseigne :</b> Apres l'aspersion du sang des offrandes de l'ordre le plus sacre, on n'est <b>pas</b> responsable de <b>mauvaise utilisation de la viande. </b> La Gemara en deduit <b>qu'il n'y a pas</b> de responsabilite pour <b>mauvais usage</b> d'un bien consacre, <b>mais il y a interdiction</b> pour le pretre d'en manger meme apres l'aspersion du sang. La Gemara demande donc : <b>Mais pourquoi</b> y a-t-il une telle interdiction ? <b>N'est-ce pas</b> la viande <b>la propriete des pretres</b> apres que le sang ait ete asperge, et donc il leur est permis de la consommer ?
+
+### Partie 15
+La Gemara repond : Ce n'est <b>pas difficile,</b> car la deduction ci-dessus n'est pas valide. La raison pour laquelle la mishna a enseigne que l'on n'est pas responsable, plutot que de dire que la viande est permise, est la suivante : <b>Puisque la premiere clause mentionne</b> la phrase : On est responsable de <b>l'abus, la derniere clause mentionne egalement</b> la phrase parallele : On n'est <b>pas</b> responsable de <b>l'abus.</b> Par consequent, la deduction ci-dessus est incorrecte, car il n'y a en fait aucune interdiction pour les pretres de manger la viande.
+
+### Partie 16
+La Guemara continue a analyser la mishna. <b>Disons cette derniere clause :</b> Mais <b>en ce qui concerne</b> l'aspersion du sang des <b>offrandes de moindre saintete, tous leurs</b> aspects sont de <b>striction. Comment cela ? </b> Le statut de <b>la viande des offrandes de moindre saintete</b> est que <b>avant l'aspersion du</b> <b>sang, on n'est pas</b> responsable d'un <b>mauvais usage, ni pour</b> leur viande <b>ni pour leurs portions sacrificielles. Et on n'est pas responsable en raison</b> de la violation de l'interdiction de <b><i>piggul</i>, <i>notar</i>, ou</b> de la consommation de la viande sacrificielle alors qu'on est <b>rituellement impur. Apres l'aspersion du</b> <b>sang, on est</b> responsable du <b>mauvais usage de ses portions sacrificielles, et on n'est pas</b> responsable du <b>mauvais usage de la viande.</b>
+
+### Partie 17
+La Gemara en deduit ce qui precede : <b>Il n'y a pas</b> de responsabilite pour <b>mauvais usage</b> de la viande des offrandes de moindre saintete, <b>mais il y a une interdiction</b> pour les proprietaires de la consommer, meme apres l'aspersion du sang. <b>Mais pourquoi</b> y a-t-il une telle interdiction ? <b>Cette viande n'est-elle pas</b> la propriete des proprietaires</b> apres que le sang ait ete asperge, et il leur est permis de la consommer ?
+
+### Partie 18
+<b>Rabbi Hanina dit</b> en explication : Il s'agit de la viande <b>qui</b> a ete <b>sortie</b> de l'endroit ou il est permis de la consommer avant l'aspersion du sang, et le sang a ete asperge par la suite. Dans un tel cas, la viande est interdite. <b>Et</b> cette decision <b>est</b> conforme a l'avis de <b>Rabbi Akiva</b> dans la mishna sur 6b, qui juge que l'aspersion est efficace en ce qu'elle exempte la viande des offrandes de l'ordre le plus sacre des <i>halakhot</i> de mauvais usage, et rend la viande des offrandes de moindre saintete sujette a mauvais usage, meme si la viande a quitte la cour.
+
+### Partie 19
+Le rabbin Hanina poursuit : Le <i>tanna</i> enseigne ici que <b>lorsque Rabbi Akiva dit</b> que <b>l'aspersion est efficace</b> en ce qui concerne la viande des offrandes de l'ordre le plus sacre ou les portions sacrificielles des offrandes de moindre saintete <b>qui ont quitte</b> la cour, en ce qui concerne les <i>halakhot</i> de mauvais usage, <i>piggul</i>, <i>notar</i>, et l'interdiction de consommer la viande sacrificielle alors qu'elle est rituellement impure, qui s'applique <b>specifiquement en ce qui concerne</b> le <i>halakhot</i> de son <b>brulage,</b> qu'on ne le brule pas tout de suite, mais qu'on doit attendre le lendemain matin pour le bruler.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

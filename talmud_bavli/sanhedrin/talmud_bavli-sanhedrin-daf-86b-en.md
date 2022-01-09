@@ -1,0 +1,63 @@
+
+### Part 1
+It is in order <b>to flog him,</b> not to execute him, that <b>we came</b> to court. <b>And these other</b> witnesses, through their testimony, are the ones who <b>did</b> this <b>to him,</b> i.e., they are responsible for the <b>entire matter</b> of his execution, and are therefore liable to be executed for giving conspiring testimony.
+
+### Part 2
+<b>Rav Pappa objects to this: If so,</b> and Ḥizkiyya concedes to Rabbi Yoḥanan in the case of the final testimony of the stubborn and rebellious son, <b>let them also execute the witnesses to the sale</b> of one who was abducted, <b>as the witnesses to the abduction could say:</b> It is in order <b>to flog</b> the abductor, not to execute him, that <b>we came</b> to court. <b>And if you would say that Ḥizkiyya holds that</b> one who abducts another and does not sell him <b>is not flogged,</b> that is difficult.
+
+### Part 3
+<b>But wasn’t it stated:</b> With regard to <b>witnesses to the abduction who were rendered conspiring witnesses</b> prior to the testimony of the witnesses to the sale, <b>Ḥizkiyya and Rabbi Yoḥanan</b> disagree. <b>One says: They are flogged, and one says: They are not flogged. And we say: It may be concluded that</b> it is <b>Ḥizkiyya who said</b> that <b>they are flogged, from</b> the fact <b>that Ḥizkiyya said: They are not executed.</b>
+
+### Part 4
+<b>Since if</b> one were to suggest that it is <b>Rabbi Yoḥanan</b> who said that they are flogged, that cannot be. <b>Since he says</b> that conspiring witnesses <b>are executed</b> in this case, <b>it is a prohibition that is given as a warning</b> of liability for <b>a court</b>-imposed <b>death</b> penalty, <b>and</b> the principle is: With regard to <b>any prohibition that is given as a warning</b> of liability for <b>a court</b>-imposed <b>death</b> penalty, <b>one is not flogged for its</b> violation, even in a case where the transgressor is not executed. The abductor <b>is not flogged. How</b> then <b>could</b> the conspiring witnesses <b>be flogged</b> for testifying against them, as the punishment for conspiring witnesses is identical to the punishment of the one against whom they testified? Rather, it is certain that Ḥizkiyya holds that the conspiring witnesses to the abduction are flogged, and therefore everyone agrees that the conspiring witnesses to the sale are executed.
+
+### Part 5
+<b>Rather, Rav Pappa says:</b> The previous explanation is rejected, and instead the dispute must be explained as follows: <b>With regard to the witnesses to the sale</b> of the abductee, it is clear <b>that everyone agrees that they are executed,</b> as theirs is testimony concerning an entire matter and would have led to his execution. <b>When they disagree,</b> it is <b>with regard to the witnesses to the abduction. Ḥizkiyya says: They are not executed,</b> as he holds that <b>abduction stands discrete</b> as an independent prohibition punishable by lashes, <b>and</b> the <b>sale stands discrete</b> as an independent prohibition punishable by strangulation. <b>Rabbi Yoḥanan says: They are executed,</b> as the <b>abduction is the beginning of</b> the process that culminates with <b>the sale.</b> The witnesses testifying to the abduction are testifying to a transgression that will culminate with the sale of the abductee.
+
+### Part 6
+The Gemara notes: <b>And Rabbi Yoḥanan concedes with regard to the initial witnesses concerning a stubborn and rebellious son</b> who testified that he engaged in gluttonous and drunken conduct and <b>who were rendered conspiring witnesses that they are not executed, as they could say:</b> It is in order <b>to flog him</b> for past conduct, not to execute him for actions that he might perform in the future, that <b>we came</b> to court. Therefore, there is no connection between their testimony and punishment for future actions.
+
+### Part 7
+<b>Abaye said</b> in summary: <b>All concede in</b> the case of <b>a stubborn and rebellious son, and all concede in</b> the case of <b>a stubborn and rebellious son, and</b> there is <b>a dispute with regard to a stubborn and rebellious son.</b>
+
+### Part 8
+The Gemara elaborates: <b>With regard to the initial witnesses, all,</b> even Rabbi Yoḥanan, <b>concede in</b> the case of <b>a stubborn and rebellious son that they are not executed</b> if they are rendered conspiring witnesses, <b>as they could say:</b> It is in order <b>to flog him</b> for past conduct, not to execute him, that <b>we came</b> to court.
+
+### Part 9
+<b>And with regard to the final witnesses, all,</b> even Ḥizkiyya, <b>concede in</b> the case of <b>a stubborn and rebellious son that they are executed</b> if they are rendered conspiring witnesses, <b>due to</b> the fact <b>that the initial witnesses could say:</b> It is in order <b>to flog him</b> for past conduct that <b>we came</b> to court, <b>and</b> these final witnesses are the ones who <b>did</b> this <b>to him,</b> i.e., they are responsible for the <b>entire matter</b> of his execution and are therefore liable to be executed.
+
+### Part 10
+<b>And there is a dispute with regard to a stubborn and rebellious son</b> in a case where <b>two</b> of the final witnesses, who testify after the son was already flogged for engaging in gluttonous and drunken conduct, <b>say: He stole in our presence, and two</b> other witnesses <b>say: He ate in our presence.</b> The dispute is whether the testimony of these two pairs of witnesses is testimony concerning an entire matter or testimony concerning half a matter.
+
+### Part 11
+<b>Rav Asi says: The witnesses to the sale of a person who were rendered conspiring witnesses are not executed, due to</b> the fact <b>that</b> the one against whom they testified <b>could say:</b> Although they testified that I sold an individual, it was <b>my slave</b> that <b>I sold.</b> In that case, the witnesses are not testifying that he violated a capital transgression, as they cannot attest to the fact that the individual he sold was first abducted.
+
+### Part 12
+<b>Rav Yosef says: In accordance with whose opinion is that <i>halakha</i> of Rav Asi?</b> It is <b>in accordance with</b> the opinion of <b>Rabbi Akiva, who says:</b> The testimony of witnesses is valid only when they attest to an entire <b>matter and not</b> to <b>half a matter. Abaye said to</b> Rav Yosef: According to your explanation, it is in accordance with the opinion of Rabbi Akiva, <b>as, if</b> it were <b>in accordance with</b> the opinion of <b>the Rabbis,</b> who hold: The testimony is valid when they testify to an entire matter and even when they testify to half a matter, are the conspiring witnesses <b>executed? Doesn’t</b> Rav Asi <b>say</b> that they are not executed <b>due to</b> the fact that the one against whom they testified could say: Although they testified that I sold an individual, it was my slave that I sold? According to that reasoning, even the Rabbis would concede that they are not executed.
+
+### Part 13
+<b>Rather, you</b> may <b>even say</b> that Rav Asi’s statement is in accordance with the opinion of <b>the Rabbis, and</b> it is concerning a case <b>where</b> only witnesses to the sale came to testify and <b>witnesses to the abduction did not come</b> to testify. In that case the accused can avoid punishment; therefore, the conspiring witnesses are not executed. The Gemara asks: <b>If so, what</b> is the purpose <b>of stating</b> that <i>halakha</i>? Obviously, in that case they are not executed, as there is no way to determine that the one he sold is not a slave. The Gemara answers: <b>No,</b> it is <b>necessary</b> to teach <b>that</b> they are not executed <b>even if</b> witnesses to the abduction <b>ultimately came</b> after the witnesses to the sale had testified and testified that he sold a freeman, not his slave.
+
+### Part 14
+The Gemara asks: <b>But still, what</b> is the purpose <b>of stating</b> that <i>halakha</i>? When the witnesses to the sale testified, their testimony was not sufficient to execute the accused. The Gemara answers: <b>No,</b> it is <b>necessary</b> to teach the <i>halakha</i> in a case where they are not executed even <b>where</b> the first and second pairs of witnesses <b>gesture</b> to one another, ostensibly indicating that the conspiring witnesses to the sale were aware that the witnesses to the abduction would follow and that therefore the initial witnesses are part of the conspiracy to testify and execute the accused. And consequently, it is necessary to teach this <i>halakha</i> <b>lest you say: Gesturing is</b> a significant <b>matter,</b> and the legal status of the two testimonies is that of a single testimony. Therefore, Rav Asi <b>teaches us</b> that <b>gesturing is nothing</b> of significance.
+
+### Part 15
+<strong>MISHNA:</strong> <b>A rebellious elder according to</b> the <b>court,</b> who does not observe the ruling of the court, is executed by strangulation, <b>as it is stated: “If there shall be a matter too hard for you in judgment</b>…and you shall arise and ascend unto the place that the Lord your God shall choose…and you shall do according to the matter that they shall declare unto you…and the man that shall do so intentionally, not to listen…and that man shall die” (Deuteronomy 17:8–12). <b>There were three courts there</b> in Jerusalem. <b>One convenes at the entrance to the Temple Mount, and one convenes at the entrance to the</b> Temple <b>courtyard, and one convenes in the Chamber of Hewn Stone.</b>
+
+### Part 16
+An elder who issues a ruling contrary to the ruling of his colleagues and his colleagues <b>come to that</b> court <b>that is at the entrance to the Temple Mount, and</b> the elder <b>says: This</b> is what <b>I interpreted and that</b> is what <b>my colleagues interpreted; this</b> is what <b>I taught and that</b> is what <b>my colleagues taught. If</b> the members of the court <b>heard</b> a clear halakhic ruling in that case, the court <b>says</b> it <b>to them.</b>
+
+### Part 17
+<b>And if not, they come to those</b> judges <b>who</b> are convened <b>at the entrance to</b> the <b>Temple courtyard,</b> which is a more significant tribunal. <b>And</b> the elder <b>says: This</b> is what <b>I interpreted and that</b> is what <b>my colleagues interpreted; this</b> is what <b>I taught and that</b> is what <b>my colleagues taught. If</b> the members of the court <b>heard</b> a clear halakhic ruling in that case, the court <b>says</b> it <b>to them.</b>
+
+### Part 18
+<b>And if not, these</b> judges <b>and those</b> judges <b>come to the High Court,</b> the Sanhedrin of seventy-one judges <b>that is in the Chamber of Hewn Stone, from which Torah emerges to the entire Jewish people, as it is stated:</b> “And you shall do according to the matter that they shall declare unto you <b>from that place that the Lord shall choose</b> and you shall observe to perform according to all that they shall teach you” (Deuteronomy 17:10). They are the ultimate arbiters who establish the <i>halakha</i> that is binding. If they ruled contrary to the ruling of the elder and the elder then <b>returned to his city,</b> and nevertheless, <b>he taught in the manner that he was teaching</b> previously, he is <b>exempt</b> from punishment. <b>But if he instructed</b> others <b>to act</b> on the basis of his ruling that stands contrary to the ruling of the Sanhedrin, he is <b>liable</b> to be executed, <b>as it is stated: “And the man that shall do so intentionally</b> not to listen” (Deuteronomy 17:12), meaning that <b>one is not liable unless he instructs</b> others <b>to act.</b>
+
+### Part 19
+<b>A student</b> who is not yet an elder, i.e., he has not been ordained, <b>who instructs</b> others <b>to act</b> contrary to the ruling of the Sanhedrin, is <b>exempt,</b> as a ruling given prior to ordination is not a valid ruling. <b>It follows</b> that <b>his stringency is his leniency.</b> The stringency imposed upon the student that he is not sanctioned to issue rulings results in the leniency that if he instructs others to act on the basis of his ruling that is contrary to the ruling of the Sanhedrin, he is exempt.
+
+### Part 20
+<strong>GEMARA:</strong> <b>The Sages taught</b> with regard to that which is stated: “If there shall be a matter too hard for you in judgment, between blood and blood, between plea and plea, and between mark and mark, even matters of controversy within your gates, then you shall arise, and ascend to the place that the Lord your God shall choose” (Deuteronomy 17:8). <b>“If there shall be a matter too hard [<i>yippaleh</i>] for you”;</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

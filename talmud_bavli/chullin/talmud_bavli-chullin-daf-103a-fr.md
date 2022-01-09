@@ -1,0 +1,54 @@
+
+### Partie 1
+En ce qui concerne celui qui <b>fait un membre d'un animal vivant</b> qui est <b>un <i>tereifa</i>, Rabbi Yohanan dit :</b> Il est <b>faisable</b> de recevoir <b>deux</b> series de coups de fouet, <b>et Rabbi Shimon ben Lakish dit : Il est redevable</b> de recevoir <b>un seul</b> ensemble de coups de fouet.
+
+### Partie 2
+La Guemara commente : <b>Accorde, selon</b> l'avis de <b>Rabbi Yohanan,</b> cela <b>fonctionne bien</b> car les interdictions de manger un membre d'un animal vivant et de manger de la chair sectionnee d'une <i>terifa</i> proviennent de deux versets differents. <b>Mais selon</b> l'avis de <b>Rabbi Shimon ben Lakish,</b> c'est <b>difficile;</b> pourquoi soutient-il que l'individu ne recoit qu'une seule serie de coups de fouet ?
+
+### Partie 3
+<b>Rav Yosef a dit :</b> Ceci n'est <b>pas difficile. Ici</b> il est fait reference <b>a un animal,</b> mais <b>la</b> il est fait reference <b>a deux animaux.</b> Rav Yosef clarifie : <b>Dans</b> un cas de <b>deux animaux,</b> par exemple, ou l'on a mange un membre d'un animal vivant et de la chair sectionnee d'un autre animal qui etait une <i>tereifa</i>, tout le monde est d'accord pour dire que <b>il est passible</b> de recevoir <b>deux</b> series de coups de fouet. Mais <b>dans</b> un cas ou il a mange d'un <b>seul animal,</b> par exemple, il a mange un membre coupe d'un animal vivant <i>tereifa</i>, Rabbi Yohanan et Rabbi Shimon ben Lakish <b>desaccord.</b>
+
+### Partie 4
+La Guemara demande : <b>En ce qui concerne</b> le cas d'<b>un seul animal, dans quel</b> cas <b>ils sont en desaccord ? Abaye repond :</b> Ils sont en desaccord, <b>par exemple,</b> dans un cas ou l'animal <b>est devenu un <i>tereifa</i> alors que la majorite d'entre eux est sortie</b> du ventre de sa mere. Un <b>Sage,</b> Rabbi Yohanan, <b>soutient</b> que <b>un animal,</b> meme <b>pendant sa vie, se tient a</b> etre divise en <b>membres,</b> et donc chacun de ses membres est considere comme une entite distincte ; <b>et</b> ici, <b>l'interdiction de</b> manger <b>un <i>tereifa</i> et l'interdiction de</b> manger <b>un membre</b> d'un animal vivant <b>viennent</b> en vigueur <b>en meme temps. </b> Par consequent, les deux interdictions s'appliquent.
+
+### Partie 5
+<b>Et</b> un <b>Sage,</b> Rabbi Shimon ben Lakish, <b>soutient</b> que <b>pendant sa vie, un animal ne supporte pas</b> d'etre divise en <b>membres. </b> Par consequent, bien que l'interdiction de manger un <i>tereifa</i> prenne effet a sa naissance, l'interdiction de manger un membre d'un animal vivant ne prend pas effet jusqu'a ce que le membre soit effectivement coupe de l'animal, <b>et</b> a ce moment-la, <b>l'interdiction d'un membre</b> d'un animal vivant <b>ne vient pas et ne prend pas effet sur la</b> deja existante <b>interdiction d'un <i>tereifa</i>.</b>
+
+### Partie 6
+<b>Et si vous le souhaitez, dites</b> plutot <b>que tout le monde est d'accord</b> sur le fait que <b>pendant sa vie, un animal ne supporte pas</b> d'etre divise en <b>membres, et qu'ils sont en desaccord en ce qui concerne</b> le fait de savoir si <b>l'interdiction d'un membre</b> d'un animal vivant <b>entraine et prend effet sur l'</b> interdiction deja existante d'un <i>tereifa</i>. </b> Un <b>Sage,</b> Rabbi Yohanan, <b>soutient</b> que <b>l'interdiction de</b> manger <b>un membre</b> d'un animal vivant, qui s'applique aux Gentils comme aux Juifs, <b>entraine et prend effet sur</b> l'interdiction deja existante de</b> manger <b>un <i>tereifa</i>. Et</b> un <b>Sage,</b> Rabbi Shimon ben Lakish, <b>soutient</b> que <b>l'interdiction de</b> manger <b>un membre</b> d'un animal vivant <b>ne vient pas et ne prend pas effet sur l'<b>interdiction deja existante de</b> manger <b>un <i>tereifa</i>.</b>
+
+### Partie 7
+Et <b>si vous le souhaitez, dites</b> plutot <b>que tout le monde est d'accord</b> pour dire que <b>un animal,</b> meme <b>pendant sa vie, supporte</b> d'etre divise en <b>limbes, et</b> le differend porte sur un cas <b>ou l'animal <b>est devenu un <i>tereifa</i> apres coup,</b> c'est-a-dire, apres sa naissance, <b>et ils sont en desaccord</b> quant a savoir si <b>l'interdiction d'un <i>tereifa</i> vient et prend effet sur la</b> deja existante <b>interdiction d'un membre</b> d'un animal vivant.
+
+### Partie 8
+Un <b>Sage,</b> Rabbi Yohanan, <b>soutient</b> que l'interdiction de manger une <i>tereifa</i> <b>vient et prend effet</b> en plus de l'interdiction deja existante de manger un membre d'un animal vivant. <b>Et</b> un <b>Sage,</b> Rabbi Shimon ben Lakish, <b>soutient</b> que l'interdiction de manger un <i>tereifa</i> <b>ne vient pas et ne prend pas effet</b> en plus de l'interdiction deja existante de manger un membre d'un animal vivant.
+
+### Partie 9
+<b>Rava dit</b> une explication alternative : Il s'agit d'un cas <b>ou il a sectionne un membre de</b> l'animal <b>et</b> a ainsi <b>rendu</b> l'animal <b>un <i>tereifa</i>.</b> Un <b>Sage,</b> Rabbi Yohanan, <b>soutient</b> que <b>pendant sa vie, un animal ne supporte pas</b> d'etre divise en <b>membres. </b> Par consequent, <b>l'interdiction d'un membre</b> d'un animal vivant <b>et l'interdiction d'une <i>tereifa</i> entrent</b> en vigueur <b>en meme temps.</b>
+
+### Partie 10
+<b>Et</b> un <b>Sage,</b> Rabbi Shimon ben Lakish, <b>soutient</b> que meme <b>pendant sa vie, un animal se tient a</b> etre divise en <b>membres,</b> et donc l'interdiction de manger un membre d'un animal vivant prend effet a la naissance de l'animal. Par consequent, <b>l'interdiction d'une <i>tereifa</i> ne vient pas prendre effet sur la</b> deja existante <b>interdiction d'un membre</b> d'un animal vivant.
+
+### Partie 11
+§ <b>Rabbi Hiyya bar Abba dit</b> que <b>Rabbi Yohanan dit :</b> Si l'on <b>mange</b> de la <b>graisse interdite d'un animal vivant</b> qui est <b>un <i>tereifa</i></b>, il est <b>faisable</b> de recevoir <b>deux</b> series de coups de fouet. <b>Rabbi Ami lui dit : Mais que le Maitre dise</b> qu'il est passible de <b>trois</b> series de coups de fouet, <b>parce que je dis</b> que la version correcte de la declaration de Rabbi Yohanans est qu'il est passible de <b>trois</b> series de coups de fouet. Il <b>a egalement ete declare : Rabbi Abbahou dit</b> que <b>Rabbi Yohanan dit :</b> Si on <b>mange</b> de la <b>graisse interdite d'un animal vivant</b> qui est <b>un <i>tereifa</i></b> il est <b>louable</b> de <b>trois</b> series de coups de fouet.
+
+### Partie 12
+La Gemara demande : <b>Par rapport a quel</b> principe <b>Rabbi Hiyya bar Abba et Rabbi Ami <b>sont en desaccord ? </b> Ils sont en desaccord dans un cas <b>ou l'animal <b>est devenu un <i>tereifa</i> alors que la majorite d'entre eux est sortie</b> du ventre de sa mere ; <b>Celui qui a dit</b> qu'il est passible de <b>trois</b> series de coups de fouet <b>soutient</b> que meme <b>pendant sa vie, un animal supporte</b> d'etre divise en <b>membres,</b> et chacun de ses membres est considere comme une entite distincte, <b>afin que l'interdiction de</b> manger de la <b>graisse interdite, l'interdiction de</b> manger <b>un membre</b> d'un animal vivant, <b>et l'interdiction de</b> manger <b>un <i>tereifa</i> entrent</b> en vigueur <b>en meme temps. </b>
+
+### Partie 13
+<b>Et celui qui a dit</b> qu'il est passible de <b>deux</b> series de coups de fouet <b>soutient</b> que <b>pendant sa vie, un animal ne supporte pas</b> d'etre divise en <b>membres,</b> c'est-a-dire que ses membres ne sont pas consideres comme des entites distinctes tant que l'animal est vivant. Par consequent, <b>l'interdiction de</b> manger de la <b>graisse interdite et l'interdiction de</b> manger <b>un <i>tereifa</i></b> animal <b>s'appliquent,</b> car elles sont entrees en vigueur au meme moment, lorsque l'animal est ne. En revanche, <b>l'interdiction de</b> manger <b>un membre</b> d'un animal vivant <b>ne vient pas et ne prend pas effet,</b> en raison du fait que d'autres interdictions s'appliquent deja.
+
+### Partie 14
+<b>Et si vous le souhaitez, dites</b> plutot <b>que tout le monde est d'accord</b> pour dire que <b>pendant sa vie, un animal ne supporte pas</b> d'etre divise en <b>membres,</b> et que chacun de ses membres n'est pas considere comme une entite distincte. <b>Mais ils sont en desaccord quant a</b> savoir si <b>l'interdiction de</b> manger <b>un membre</b> d'un animal vivant <b>nait et prend effet sur</b> l'<b>interdiction de manger</b> la <b>graisse interdite et l'<b>interdiction</b> deja existante de manger <b>un <i>tereifa</i>. </b> Un <b>Sage,</b> Rabbi Ami, <b>soutient</b> que cela <b>vient et prend effet, et</b> un <b>Sage,</b> Rabbi Hiyya bar Abba, <b>soutient</b> que <b>cela ne vient pas et ne prend pas effet.</b>
+
+### Partie 15
+<b>Et si tu veux, dis</b> plutot <b>que tout le monde est d'accord</b> pour dire que <b>pendant sa vie, un animal se tient a</b> etre divise en <b>limbes, et</b> c'est un cas <b>ou</b> l'animal <b>est devenu une <i>tereifa</i> apres,</b> c'est-a-dire, apres sa naissance ; <b>et ils sont en desaccord quant a</b> savoir si <b>l'interdiction de</b> manger <b>un <i>tereifa</i> vient et prend effet sur la</b> deja existante <b>interdiction de</b> manger <b>un membre</b> d'un animal vivant.
+
+### Partie 16
+Un <b>Sage,</b> Rabbi Ami, <b>soutient</b> que cela <b>vient et prend effet, tout comme l'est</b> la <i>halakha</i> <b>avec</b> la <b>graisse interdite. Comme le Maitre l'a dit</b> que dans le verset : "Et la graisse d'une carcasse, et la graisse d'une <i>tereifa</i> peuvent etre utilisees pour tout autre service ; mais vous n'en mangerez en aucun cas" (Levitique 7:24), <b>la Torah a dit : Que l'interdiction de</b> manger <b>une carcasse vienne et prenne effet sur l'interdiction de</b> manger de la <b>graisse interdite,</b> malgre le fait que l'interdiction de la graisse interdite soit entree en vigueur en premier. <b>Et</b> de meme, le mot "<i>tereifa</i>" enseigne : <b>L'interdiction de</b> manger <b>un <i>tereifa</i> vient et prend effet sur l'interdiction de</b> manger de la <b>graisse interdite.</b> Par consequent, celui qui mange de la graisse interdite provenant d'un <i>tereifa</i> est susceptible de recevoir deux series de coups de fouet. Rabbi Ami soutient que tout comme l'interdiction de manger un <i>tereifa</i> prend effet en plus de l'interdiction de manger de la graisse interdite, elle prend egalement effet en plus de l'interdiction de manger un membre d'un animal vivant.
+
+### Partie 17
+<b>Et l'autre</b> Sage, Rabbi Hiyya bar Abba, considere <b>que c'est</b> seulement l'interdiction de manger de la <b>graisse interdite pour laquelle il est responsable</b> en plus d'etre responsable de l'interdiction de manger une <i>tereifa</i>. L'interdiction de manger une <i>tereifa</i> prend effet en plus de l'interdiction de manger de la graisse interdite <b>parce que</b> en ce qui concerne cette derniere, il existe des <b>circonstances permises</b> qui servent d'exceptions.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

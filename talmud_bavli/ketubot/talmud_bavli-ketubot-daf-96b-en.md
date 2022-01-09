@@ -1,0 +1,24 @@
+
+### Part 1
+The Gemara presents the different options: Does one say that <b>the property is in the possession of the orphans and</b> it is incumbent <b>upon the widow to bring proof</b> of her claim, in accordance with the principle that the burden of proof rests on the claimant? <b>Or, perhaps</b> one says that the <b>property is in the widow’s possession</b> given that it has a lien attached to it by virtue of her marriage contract, <b>and</b> it is incumbent <b>upon the orphans</b> to <b>bring proof</b> of their claim.
+
+### Part 2
+<b>Come</b> and <b>hear</b> proof from a <i>baraita</i> <b>that Levi taught:</b> In the case of <b>a widow, as long as she has not married</b> again, it is incumbent <b>upon the orphans to bring proof</b> that they provided sustenance for her. Once <b>she</b> has <b>married</b> and comes to demand the sustenance that she was supposed to receive in the past, it is incumbent <b>upon her to bring proof</b> that she never received anything.
+
+### Part 3
+<b>Rav Shimi bar Ashi said:</b> Rabbi Yoḥanan’s question is <b>subject to</b> a dispute between <b><i>tanna’im</i></b> in the following <i>baraita</i>: A widow <b>sells</b> parts of her deceased husband’s property <b>and writes: These I sold for</b> my <b>sustenance and these I sold</b> as payment <b>for</b> my <b>marriage contract;</b> this is <b>the statement of Rabbi Yehuda. Rabbi Yosei says: She sells and writes</b> how much she sold <b>without specification</b> of the purpose for which it was sold. <b>And so her power</b> to support herself <b>is enhanced,</b> as she will be able to decide if what she took was payment for her marriage contract or if it was for her sustenance, based on the status of other claims to her husband’s property.
+
+### Part 4
+<b>What, is it not</b> that <b>they disagree with regard to this</b> question? <b>According to Rabbi Yehuda, who said</b> that <b>she is required to specify</b> the purpose for which it was sold, it is implied that <b>he holds</b> that <b>the property is in the possession of the orphans, and</b> it is incumbent <b>upon the widow to provide proof.</b> This is why she needs to write precisely for what purpose the property was sold. <b>And Rabbi Yosei holds</b> that <b>she does not need to specify</b> the purpose for which it was sold because <b>the property is in the widow’s possession, and</b> it is incumbent <b>upon the orphans to provide proof.</b>
+
+### Part 5
+The Gemara rejects this proof: <b>From where</b> do you arrive at this conclusion? <b>Perhaps everyone</b> agrees that <b>the property is in the widow’s possession and</b> it is incumbent <b>upon the orphans to provide proof. And Rabbi Yehuda</b> simply <b>teaches us</b> a measure of <b>good advice, so that they will not call her a glutton</b> if they think that she spends excessively on her sustenance. He therefore advises her to specify the purpose for which everything was sold so that she can prove that she did not spend excessively on her sustenance.
+
+### Part 6
+<b>As, if you do not say so,</b> then with regard to <b>the dilemma raised</b> by <b>Rabbi Yoḥanan,</b> why not <b>resolve</b> the dilemma <b>from the mishna</b> that states (97b): A woman <b>sells</b> her husband’s property <b>for</b> her <b>sustenance when not in court, and writes: These I sold for</b> my <b>sustenance?</b> Based on the reasoning used earlier, one could have resolved the question by proving from here that the property is in the possession of the orphans, and it is incumbent upon the widow to bring proof for her claim. <b>Rather,</b> it must be that this <i>halakha</i> <b>cannot be derived from this mishna, as it teaches us only good advice</b> to keep the heirs from complaining about her. <b>So too,</b> in the <i>baraita</i>, Rabbi Yehuda <b>teaches us</b> a measure of <b>good advice,</b> not a <i>halakha</i>.
+
+### Part 7
+<b>Alternatively,</b> one can say the opposite: <b>Everyone</b> agrees that <b>the property is in the possession of the orphans, and this is the reasoning</b> of <b>Rabbi Yosei, as</b> explained by <b>Abaye the Elder, as Abaye the Elder said a parable to</b> illustrate the opinion of <b>Rabbi Yosei: To what is this matter comparable? To</b> a person <b>on his deathbed who said: Give two hundred dinars to so-and-so, my creditor.</b> Because the word give is usually used in the context of a gift, the creditor can decide: If <b>he desires, he takes</b> the money <b>as payment of</b> the <b>debt</b> owed to <b>him.</b> This gives the creditor the advantage of being able to collect his debt from liened properties that were sold to a third party. Or, if he so <b>desires, he takes</b> the money <b>as a gift.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

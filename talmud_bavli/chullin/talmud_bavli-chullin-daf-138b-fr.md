@@ -1,0 +1,6 @@
+
+### Partie 1
+<b>Evidemment, une personne ne vend pas les cadeaux</b> appartenant <b>au <b>pretre,</b> et par consequent, ils ne sont pas inclus dans la vente des entrailles, a moins qu'ils aient ete vendus au poids. <b>Ici aussi,</b> en ce qui concerne la premiere laine tondue, <b>une personne ne vend pas les cadeaux</b> appartenant <b>au</b> <b>pretre. Par consequent,</b> si <b>le vendeur a laisse</b> de la laine en sa possession, le <b>vendeur est oblige</b> de donner la premiere laine tondue de la laine restante pour celle qu'il a vendue, <b>comme</b> le <b>acheteur</b> peut <b>le dire au vendeur : Le <b>cadeau du</b> <b>pretre est en votre</b> possession, puisque vous ne m'avez pas tout vendu. Si le vendeur n'a <b>pas laisse</b> de laine en sa possession, <b>l'acheteur est tenu</b> de donner la premiere laine tondue et il ne deduit pas sa valeur du prix, <b>car le vendeur</b> peut lui <b>dire : Je ne t'ai pas vendu le don du</b> <b>pretre,</b> c'est-a-dire qu'il n'y avait pas d'obligation de donner les dons a un pretre lorsque je t'ai vendu la laine, et donc l'acheteur est tenu de donner les dons au pretre.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

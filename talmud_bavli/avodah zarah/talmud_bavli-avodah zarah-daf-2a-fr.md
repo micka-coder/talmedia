@@ -1,0 +1,27 @@
+
+### Partie 1
+<strong>MISHNA:</strong> Les <b>trois jours precedant les fetes des Gentils</b> les actions suivantes sont interdites, car elles apporteraient de la joie au Gentil, qui rendrait ensuite grace a son objet d'adoration idolatre lors de sa fete : Il est <b>interdit de faire des affaires avec eux ; de preter</b> des objets <b>a eux ou d'emprunter</b> des objets <b>a eux ; de preter</b> de l'argent <b>a eux ou d'emprunter</b> de l'argent <b>a eux ;</b> et <b>de rembourser</b> des dettes envers <b>eux ou de percevoir le remboursement</b> de dettes <b>a eux. Rabbi Yehuda dit : On peut percevoir le remboursement</b> de dettes <b>de leur part car cela cause</b> le Gentil <b>desespoir.</b> Les rabbins ont <b>dit a</b> Rabbi Yehuda : <b>Meme s'il est afflige maintenant,</b> lorsqu'il rembourse l'argent, <b>il est heureux par la suite</b> qu'il soit soulage de la dette, et il y a donc lieu de craindre qu'il rende grace a son objet de culte idolatre lors de sa fete.
+
+### Partie 2
+<strong>GEMARA:</strong> <b>Rav et Shmuel</b> sont en desaccord en ce qui concerne la version correcte du texte de la mishna. <b>L'un enseigne</b> la signification du terme : Leurs fetes, comme <b><i>eideihen</i>,</b> orthographie avec un <i>alef</i> comme premiere lettre, <b>et l'un enseigne <i>eideihen</i></b> avec un <i>ayin</i> comme premiere lettre. La Guemara commente : <b>Celui qui enseigne <i>eideihen</i></b> avec un <i>alef</i> <b>ne se trompe pas, et celui qui enseigne <i>eideihen</i></b> avec un <i>ayin</i> <b>ne se trompe pas,</b> car il y a un support pour chaque version du terme.
+
+### Partie 3
+La Guemara developpe : <b>Celui qui enseigne <i>eideihen</i></b> avec un <i>alef</i> <b>ne se trompe pas, comme il est ecrit : "Car le jour de leur calamite [<i>eidam</i>] est proche"</b> (Deuteronome 32:35), et la chute future mentionnee dans le verset est en partie due aux fetes des adorateurs d'idoles. Le terme y est orthographie avec un <i>alef</i>. <b>Et</b> de meme, <b>celui qui enseigne <i>eideihen</i></b> avec un <i>ayin</i> <b>ne se trompe pas, comme il est ecrit : "Qu'ils apportent leurs temoins [<i>eideihem</i>], afin qu'ils soient justifies"</b> (Isaie 43, 9), c'est-a-dire que les fetes serviront de temoins contre les gentils pecheurs, en prouvant qu'ils se sont livres au culte des idoles. Le terme y est orthographie avec un <i>ayin</i>.
+
+### Partie 4
+La Gemara demande : <b>Et</b> selon <b>celui qui enseigne <i>eideihen</i></b> avec un <i>alef</i>, <b>quelle est la raison</b> pour laquelle <b>il n'a pas enseigne <i>eideihen</i></b> avec un <i>ayin</i> ? La Guemara repond : Il aurait pu <b>vous dire</b> qu'un terme qui fait reference a <b>une calamite est preferable.</b> La Gemara demande : <b>Et celui qui enseigne <i>eideihen</i></b> avec un <i>ayin</i>, <b>quelle est la raison</b> pour laquelle <b>il n'a pas enseigne <i>eideihen</i></b> avec un <i>alef</i> ? La Guemara repond : Il aurait pu <b>vous dire : Qu'est-ce qui cause</b> cette <b>calamite</b> a <b>eux ?</b> C'est <b>le temoignage qu'ils ont rendu contre eux-memes. Par consequent,</b> un terme qui fait reference au <b>temoignage est preferable.</b>
+
+### Partie 5
+La Gemara demande : <b>Mais est-ce que ce</b> verset : <b>"Qu'ils amenent leurs temoins afin qu'ils soient justifies"</b> est-il ecrit a l'egard des nations du monde ? N'est-il pas ecrit a l'egard du peuple juif ? Comme le dit Rabbi Yehoshua ben Levi : Toutes les mitzvot que les Juifs accomplissent dans ce monde</b> viendront et temoigneront pour eux dans le Monde a Venir, comme il est dit :" Qu'ils apportent leurs temoins afin qu'ils soient justifies". Ce sont les Juifs,</b> car leurs bonnes actions temoignent pour eux et demontrent leur droiture. Lorsque le verset indique : <b>"Et qu'ils entendent, et disent : C'est la verite"</b> (Esaie 43:9), <b>ce sont les nations du monde,</b> qui admettront la justice des Juifs.
+
+### Partie 6
+<b>Au contraire, Rav Huna, fils de Rav Yehoshua, a dit : Celui qui dit</b> que le mot correct est <b><i>eideihen</i></b> avec un <i>ayin</i> a derive cet usage du terme <b>de la : "Ceux qui faconnent une image taillee sont tous des vanites, et leurs choses delicieuses ne profiteront pas ; et leurs propres temoins [<i>eideihem</i>]</b> ne voient pas, ne savent pas" (Isaie 44:9). Cela demontre que les objets du culte des idoles serviront de temoins contre leurs adorateurs.
+
+### Partie 7
+§ La Guemara cite des interprétations homilétiques du verset discuté plus haut :" Toutes les nations sont rassemblées, et que les peuples soient assemblés. Qui parmi eux peut déclarer cela, et nous annoncer les choses anciennes ? Qu"?ils amènent leurs témoins, afin qu"?ils soient justifiés ; qu"?ils entendent, et qu"?ils disent : C'est la verite" (Isaie 43:9). <b>Rabbi Hanina bar Pappa a enseigne, et certains disent</b> que c'est <b>Rabbi Simlai</b> qui a enseigne : <b>Dans le futur, le Saint, Beni soit-Il,</b> apportera un rouleau de Torah et le placera sur Ses genoux et dira : </b>Quiconque <b>s'est engage dans son</b> etude <b>devra venir et prendre sa recompense.</b>
+
+### Partie 8
+<b>Immediatement, les nations du monde</b> se <b>rassembleront</b> <b>et viendront se meler</b> les unes aux autres, <b>comme il est dit : "Toutes les nations se rassemblent</b> et que les peuples s'assemblent.<b>Le Saint, Beni soit-Il,</b> leur <b>dit : N'entrez pas devant Moi meles ; laissez plutot entrer chaque nation</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

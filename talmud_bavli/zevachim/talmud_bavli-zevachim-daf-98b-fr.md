@@ -1,0 +1,15 @@
+
+### Partie 1
+lorsque le <b>sang d'une offrande pour le peche est en dessous et</b> le <b>sang d'une offrande brulee est au-dessus,</b> dans un cas ou le sang d'une offrande brulee est pulverise comme une deuxieme couche sur le sang d'une offrande pour le peche qui a deja ete pulverise et absorbe dans un vetement, le vetement <b>necessite un lavage.</b>
+
+### Partie 2
+<b>Rava demande :</b> Lorsque le <b>sang d'un holocauste est en dessous et</b> le <b>sang d'une offrande pour le peche est au-dessus, quel est</b> le <i>halakha</i> ? <b>Est-il</b> necessaire de laver un vetement pour enlever le sang d'une offrande pour le peche <b>parce que</b> le sang <b>touche</b> son vetement, <b>et</b> dans ce cas, <b>ce sang</b> <b>touche</b> le vetement ? <b>Ou peut-etre est-on</b> tenu de le laver <b>en raison</b> de l'<b>absorption</b> du sang dans le vetement, <b>et,</b> dans ce cas, puisque le vetement a deja absorbe l'autre sang, <b>ce vetement</b> n'a pas absorbe</b> le sang ? Rava resout alors son dilemme en decidant que de tels vetements n'ont pas besoin d'etre laves.
+
+### Partie 3
+§ De maniere similaire, en ce qui concerne l'immersion d'un vetement devenu impur, <b>Rava dit :</b> Il est <b>evident pour moi</b> que s'il y a du <b>sang</b> sur un <b>vetement,</b> il <b>s'interpose</b> entre l'eau d'immersion et le vetement, de sorte que l'immersion est inefficace. <b>Mais si c'est un boucher,</b> habitue a avoir du sang sur ses vetements, une tache de sang <b>ne s'interpose pas,</b> et l'immersion est effective, car une substance n'est pas consideree comme une interposition si celui qui s'immerge n'a pas de particularite a ce sujet. De meme, s'il y a une tache de <b>graisse [<i>revav</i>] sur un vetement,</b> elle <b>s'interpose. Mais s'il est un vendeur de graisse,</b> une telle tache <b>ne s'interpose pas. Rava demande :</b> S'il y a a la fois du <b>sang et de la graisse</b> sur un <b>vetement</b> lorsqu'il l'immerge, <b>qu'elle est</b> la <i>halakha</i> ?
+
+### Partie 4
+La Guemara conteste la question : <b>Si c'est un boucher, que je deduise</b> que la tache s'interpose <b>en raison</b> de la <b>graisse</b> qu'il n'a pas l'habitude d'avoir sur ses vetements ; <b>et</b> inversement, <b>si c'est un vendeur de graisse, que je deduise</b> que la tache s'interpose <b>en raison</b> de la tache de <b>sang</b> qu'il n'a pas l'habitude d'avoir sur ses vetements. La Gemara explique : <b>Non,</b> cette question n'est pas superflue ; elle est <b>necessaire</b> en ce qui concerne une personne <b>qui travaille</b> a la fois comme <b>ceci,</b> un boucher, <b>et</b> comme <b>cela,</b> un vendeur de graisse. Dans ce cas, la question est la suivante : est-ce que <b>il n'est pas particulier par rapport a une</b> tache, mais <b>il est particulier par rapport a deux</b> taches, de sorte que l'immersion est inefficace ? <b>Ou, peut-etre,</b> est-ce qu'il n'est <b>pas particulier</b> meme en ce qui concerne <b>deux</b> taches, car aucune n'est inhabituelle pour lui ? La Guemara ne fournit pas de reponse, et la question <b>restera</b> non resolue.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

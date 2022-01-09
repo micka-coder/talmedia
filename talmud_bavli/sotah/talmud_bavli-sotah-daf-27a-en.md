@@ -1,0 +1,33 @@
+
+### Part 1
+<b>a woman whose suspected promiscuity is publicly spoken of [<i>duma</i>], and not marry the daughter of a woman suspected of promiscuity, as this</b> woman, who is herself suspected of promiscuity, <b>comes from seed</b> of <b>unflawed</b> lineage; <b>but that</b> woman, the daughter of a woman suspected of promiscuity, <b>comes from seed</b> of <b>flawed</b> lineage, as she might be a <i>mamzeret</i>.
+
+### Part 2
+<b>And Rabbi Yoḥanan says:</b> It is better that <b>a man marry the daughter of a woman suspected of promiscuity, and not marry a woman suspected of promiscuity, as this</b> daughter <b>maintains</b> the <b>presumptive status of virtuousness, but that</b> woman suspected of promiscuity <b>does not maintain</b> the <b>presumptive status of virtuousness.</b>
+
+### Part 3
+The Gemara <b>raises an objection</b> to Rabbi Yoḥanan’s statement from a <i>baraita</i>: <b>A man</b> may <b>marry a woman suspected of promiscuity. Rava said</b> in response: <b>And</b> how can <b>you understand</b> the <i>baraita</i> at face value? The <i>baraita</i> states that a man <b>may marry</b> her <b><i>ab initio</i>,</b> yet clearly it is undesirable to do so. <b>Rather,</b> the wording of the <i>baraita</i> is imprecise, and one must render it: <b>If one married</b> a woman suspected of promiscuity, she is permitted to him. Since the <i>baraita</i> is imprecise, one should <b>also</b> correct it and <b>teach: The daughter of a woman suspected of promiscuity.</b>
+
+### Part 4
+The Gemara concludes: <b>And the <i>halakha</i></b> is that it is better that <b>a man marry the daughter of a woman suspected of promiscuity, and not marry a woman suspected of promiscuity.</b> This is <b>as Rav Taḥalifa, from the West,</b> i.e., Eretz Yisrael, <b>taught before Rabbi Abbahu:</b> If a married <b>woman engages in adulterous sexual intercourse, her children are</b> considered of <b>unflawed</b> lineage, as <b>most</b> instances of <b>sexual intercourse are attributed to the husband,</b> and consequently it is presumed that the children were conceived by the husband and not by the paramour. Therefore, the daughter of a woman suspected of promiscuity is not suspected of being a <i>mamzeret</i>.
+
+### Part 5
+<b>Rav Amram raises a dilemma: What is</b> the <i>halakha</i> if the woman <b>was extremely promiscuous</b> and one cannot reasonably attribute most instances of intercourse to the husband? Are her children considered of unflawed lineage, or is their lineage uncertain? <b>According to</b> the opinion of <b>the one who says</b> that <b>a woman becomes pregnant only close to</b> the time of the onset of <b>her menstruation, you do not</b> need to <b>raise this dilemma, as</b> the husband <b>does not know</b> the time of <b>this,</b> i.e., the time of her menstruation, in advance, <b>and</b> he <b>does not watch her</b> actions in order to prevent her from conceiving from another man. Her children are therefore of uncertain lineage.
+
+### Part 6
+<b>When do you</b> need to <b>raise this dilemma?</b> It is necessary <b>according to</b> the opinion of <b>the one who says</b> that <b>a woman becomes pregnant only close to</b> the time of <b>her immersion. What</b> is the <i>halakha</i>? Can it be assumed that <b>since he knows</b> the time of <b>this,</b> i.e., of her immersion, <b>he watches her</b> actions on that day in order to prevent her from conceiving from another man; <b>or perhaps, since</b> she <b>is extremely promiscuous,</b> her husband <b>cannot</b> adequately watch her and her children are considered of uncertain lineage? The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 7
+§ The mishna states (24a): <b>And these</b> are the women <b>to whom the court issues a warning</b> in place of their husbands: One whose husband became a deaf-mute or became an imbecile, or if he were incarcerated in prison. <b>The Sages taught:</b> The verse states: “If the wife of any man goes astray” (Numbers 5:12). As the verse could have said: The wife of <b>a man, what</b> is the meaning when <b>the verse states:</b> “The wife of <b>any man”?</b> It serves <b>to include the wife of a deaf-mute, and the wife of an imbecile, and the wife of an insane person, and</b> one <b>whose husband went overseas, and</b> one <b>whose</b> husband <b>was incarcerated in prison;</b> and it teaches <b>that the court issues a warning to</b> these women in order <b>to disqualify them from</b> receiving payment of <b>their marriage contract.</b>
+
+### Part 8
+One <b>might</b> have thought that the court’s warning is effective <b>even to have</b> the women <b>drink</b> the bitter water; therefore, <b>the verse states: “Then the man shall bring his wife</b> to the priest” (Numbers 5:15), indicating that only the warning issued by the husband causes his wife to drink. <b>Rabbi Yosei says:</b> The court’s warning is effective <b>even to have her drink, and when her husband is released from prison he has her drink.</b>
+
+### Part 9
+The Gemara asks: <b>With regard to what do they disagree?</b> The Gemara answers: <b>The Rabbis hold</b> that <b>we require</b> the same person who issues the warning to bring the woman to the Temple, as the verse states: <b>“And he warned</b> his wife…<b>then</b> the man <b>shall bring</b> his wife to the priest” (Numbers 5:14–15). <b>And Rabbi Yosei holds</b> that <b>we do not require</b> that the actions stated in the verse, i.e., <b>“And he warned…then</b> the man <b>shall bring,”</b> be performed by the same person; and although only the husband may bring the woman to the priest to drink the bitter water, the warning may be issued by the court.
+
+### Part 10
+§ <b>The Sages taught</b> that the verse: “This is the law of jealousy, <b>when a wife, while under her husband, goes astray</b> and is defiled” (Numbers 5:29), is superfluous, and serves <b>to compare a man to a woman and a woman to a man.</b> The Gemara asks: <b>With regard to what <i>halakha</i></b> is this comparison necessary? <b>Rav Sheshet says:</b> This teaches that <b>just as if</b> the husband <b>was blind he would not have her drink, as it is written: “And it was hidden from the eyes of her husband”</b> (Numbers 5:13), indicating that the <i>sota</i> ritual applies only if the husband was capable of seeing her infidelity but did not do so; <b>so</b> too, with regard to the woman, <b>if she were blind, she would not drink. Rav Ashi</b> also <b>says: Just as a lame woman and a woman without hands would not drink, as it is written:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

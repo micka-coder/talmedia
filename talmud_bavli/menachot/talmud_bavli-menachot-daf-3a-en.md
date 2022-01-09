@@ -1,0 +1,63 @@
+
+### Part 1
+The Gemara responds: This is not considered recognizably false intent, as people might <b>say: Perhaps</b> it is actually a sin offering and he has already sprinkled its blood below the red line. And as for the fact that he squeezed its blood above the red line, they will say: <b>It is the squeezing that follows sprinkling,</b> which may be performed above the red line in the case of a sin offering. <b>As the Master said:</b> If one <b>squeezed the blood of</b> a bird sin offering <b>in any place on the altar,</b> the offering is <b>valid.</b> Since people might erroneously think that this bird is actually a sin offering, this intent is not considered recognizably false, so the offering is disqualified.
+
+### Part 2
+The Gemara asks another question: According to Rabba’s resolution, <b>a bird sin offering whose blood</b> a priest <b>sprinkled below</b> the red line <b>for the sake of a bird burnt offering should effect acceptance, as the actions</b> performed <b>on it prove that it is a bird sin offering. Because if it is</b> in fact <b>a bird burnt offering, he would have performed it above</b> the red line, <b>and he would have performed</b> the act of <b>squeezing</b> instead of sprinkling.
+
+### Part 3
+The Gemara responds: <b>Indeed,</b> according to Rabbi Shimon such a bird offering effects acceptance and fulfills the obligation of the owner. In fact, bird offerings were not discussed by Rabbi Shimon at all. <b>Rather, he said: Because meal offerings are not similar to slaughtered offerings,</b> which means that they are not similar <b>to slaughtered</b> animal <b>offerings, but</b> he did not say that they are <b>not</b> similar <b>to bird</b> offerings.
+
+### Part 4
+The Gemara asks: But if so, then <b>offerings of the most sacred order that one slaughtered in the northern</b> part of the Temple courtyard, which is a requirement that applies only to offerings of the most sacred order, <b>for the sake of offerings of lesser sanctity, should effect acceptance</b> for their owners, as <b>the actions</b> performed <b>on them prove that they are offerings of the most sacred order. Because if</b> they are in fact <b>offerings of lesser sanctity, he would have performed their</b> slaughter <b>in the southern</b> part of the Temple courtyard.
+
+### Part 5
+The Gemara answers: The slaughter of an offering in the northern part of the Temple courtyard is not indicative of the type of offering one intends it to be, as one can <b>say that the Merciful One states</b> that offerings of lesser sanctity may be slaughtered <b>even in the southern</b> part of the courtyard. <b>Did</b> He <b>say</b> that these offerings must be slaughtered specifically <b>in the southern</b> part <b>and not in the northern</b> part? This is <b>as we learned</b> in a mishna (<i>Zevaḥim</i> 55a), that <b>the slaughter of</b> offerings of lesser sanctity may be performed <b>in any place within the</b> Temple <b>courtyard.</b>
+
+### Part 6
+The Gemara asks: If so, then <b>offerings of lesser sanctity that one slaughtered in the southern</b> part of the Temple courtyard <b>for the sake of offerings of the most sacred order should effect acceptance</b> for their owners, as <b>the actions</b> performed <b>on them prove that they are offerings of lesser sanctity. Because if</b> they are in fact <b>offerings of the most sacred order, he would have performed their</b> slaughter <b>in the northern</b> part of the Temple courtyard.
+
+### Part 7
+The Gemara responds: The fact that an offering was slaughtered in the southern part of the Temple courtyard is not a clear indication that it was intended as an offering of lesser sanctity, as people might <b>say: They are</b> in fact <b>offerings of the most sacred order, but</b> the priest <b>transgressed</b> the mitzva to slaughter them in the northern part of the courtyard <b>and slaughtered them in the southern</b> part.
+
+### Part 8
+The Gemara asks: <b>If so,</b> i.e., if people might suspect an individual of performing the rite of an offering in an improper manner, then if a priest removes a handful from <b>a pan</b> meal offering <b>for the sake of a deep-pan</b> meal offering <b>as well,</b> one who sees <b>that this</b> priest <b>removes a handful for</b> the sake of <b>a deep-pan</b> meal offering might <b>say: This</b> owner <b>took a vow</b> to bring a meal offering <b>in a deep pan, and</b> as for the fact <b>that he brings it in a pan, it is</b> actually the meal offering <b>of a deep pan and</b> the owner <b>transgressed</b> the mitzva to bring it in a deep pan, <b>and brought it in a pan.</b> Why, then, does Rabbi Shimon maintain that such a meal offering satisfies the obligation of its owner?
+
+### Part 9
+The Gemara explains: <b>There,</b> where the priest removed the handful from a pan meal offering for the sake of a deep-pan meal offering, <b>even if</b> the owner <b>took a vow</b> to bring a meal offering <b>in a deep pan, when he brings it in a pan it is</b> considered a valid <b>pan</b> meal offering, and therefore the priest’s intention is recognizably false.
+
+### Part 10
+This is <b>as we learned</b> in a mishna (102b): <b>One who says: It</b> is incumbent <b>upon me</b> to bring a meal offering prepared <b>in a pan, and he brought</b> it <b>in a deep pan,</b> or if he says: It is incumbent upon me to bring a meal offering prepared <b>in a deep pan, and he brought</b> it <b>in a pan,</b> the meal offering <b>that he brought, he brought,</b> i.e., it is valid and the priest performs the rites of the meal offering that he actually brought, <b>but he did not fulfill</b> the obligation resulting from <b>his vow,</b> and he must bring another meal offering to fulfill that obligation.
+
+### Part 11
+The Gemara asks: <b>But</b> even so, the priest’s improper intent remains indiscernible, as people might think: <b>Perhaps</b> the owner <b>said: This</b> tenth of an ephah of flour is a meal offering that I must <b>bring in a pan, and</b> in spite of this <b>he brought</b> it <b>in a deep pan.</b> Such a meal offering is disqualified and is not considered a valid pan meal offering, <b>as we learned</b> in that same mishna: One who took a vow, saying: <b>This</b> tenth of an ephah of flour is a meal offering that I must <b>bring in a pan, and he brought</b> it <b>in a deep pan,</b> or if he vowed: This tenth of an ephah of flour is a meal offering that I must bring <b>in a deep pan, and he brought</b> it <b>in a pan, it is disqualified,</b> as he did not fulfill his vow. If so, how can Rabbi Shimon say that such a meal offering satisfies the owner’s obligation, when the intent is not recognizably false?
+
+### Part 12
+The Gemara responds: <b>According to the Rabbis,</b> i.e., according to the opinion of the mishna just cited, there is <b>indeed</b> a difficulty. But <b>according to Rabbi Shimon</b> there is no difficulty, <b>since</b> with regard to a case where one took a vow, saying: It is incumbent upon me to bring a pan meal offering, and then he brought it in a deep pan, <b>Rabbi Shimon says: He has fulfilled even</b> the obligation resulting from <b>his vow. Evidently, the designation of the vessel</b> for a meal offering <b>is nothing</b> according to Rabbi Shimon, <b>and</b> there <b>is no difference</b> in this regard whether <b>he said: This</b> is for a particular type of meal offering, <b>and there is no difference</b> whether <b>he said:</b> It is incumbent <b>upon me</b> to bring a particular meal offering. In both instances the unique actions of each particular meal offering prove its identity, and therefore the owner fulfills his obligation regardless of the priest’s improper intent.
+
+### Part 13
+The Gemara asks: <b>If that is so,</b> that in a case where the manner of its preparation proves the identity of an offering the owner fulfills his obligation, then <b>a burnt offering that one slaughtered for the sake of a sin offering should effect acceptance.</b> His actions prove that it is a burnt offering, <b>as this,</b> a burnt offering, is always <b>male, and that,</b> a sin offering, is <b>female.</b> The Gemara answers: <b>Since there is</b> one sin offering, <b>the goat of</b> the <b><i>Nasi</i>, which is male, it is unknown</b> whether this animal was a burnt offering or the sin offering of the <i>Nasi</i>, and its gender is not conclusive proof.
+
+### Part 14
+The Gemara continues to ask: But in a case where one <b>said:</b> I am hereby slaughtering this animal <b>for the sake of a sin offering of an individual,</b> which is always female, <b>what can be said?</b> Since a male animal cannot be mistaken for such a sin offering, why doesn’t this burnt offering satisfy the obligation of the owner? <b>And furthermore, a sin offering of an individual that one slaughtered for the sake of a burnt offering should effect acceptance, as</b> such <b>a sin offering</b> is always <b>female, and a burnt offering</b> is always <b>male.</b> The Gemara responds: It is difficult to discern whether a lamb is male or female, as its genitals are <b>covered by</b> its <b>tail.</b> Accordingly, its gender is not considered proof of the type of offering being sacrificed.
+
+### Part 15
+The Gemara asks: This <b>works out well</b> in a case <b>where one brought a female lamb</b> as his sin offering, as its tail makes it difficult to discern its sex. But in a case where he <b>brought a female goat, what can be said?</b> Its gender is easily recognized, as goats do not have tails that cover their genitals. The Gemara answers: <b>Rather,</b> discerning <b>between males and females is not on people’s minds,</b> i.e., they do not take notice of the offering’s gender and therefore this aspect of an animal is not considered discernible.
+
+### Part 16
+The Gemara continues to challenge the opinion of Rabba: <b>A Paschal offering that one slaughtered for the sake of a guilt offering should effect acceptance, as this,</b> the Paschal offering, is <b>in its</b> first <b>year, and that,</b> a guilt offering, is <b>in its second</b> year. The Gemara answers: <b>Since there are</b> two guilt offerings that are brought from lambs in their first year, i.e., <b>the guilt offering of a nazirite</b> (see Numbers 6:12) <b>and the guilt offering of a leper</b> (see Leviticus 14:10), <b>it is not definitively</b> clear <b>to</b> an onlooker what type of offering this lamb is.
+
+### Part 17
+The Gemara asks: But if one <b>said:</b> I am hereby slaughtering this lamb <b>for the sake of a guilt offering for robbery, or</b> if he said: I am slaughtering it <b>for the sake of a guilt offering for misuse</b> of consecrated property, <b>what can be said?</b> These guilt offerings must each be brought from an animal in its second year, and therefore they cannot be mistaken for a Paschal offering, which is in its first year. <b>And furthermore, a guilt offering for robbery or a guilt offering for misuse</b> of consecrated property <b>that one slaughtered for the sake of a Paschal offering should effect acceptance, as a Paschal offering is</b> always <b>in its</b> first <b>year, and these are in their second year.</b>
+
+### Part 18
+The Gemara answers: <b>Rather,</b> the difference in appearance <b>between</b> an animal that is <b>in its</b> first <b>year and</b> one that is <b>in its second year is not on people’s minds,</b> i.e., this is not a clearly recognizable difference, <b>as there</b> can <b>be</b> an animal <b>in its</b> first <b>year that appears as</b> though it is <b>in its second</b> year, <b>and there</b> can <b>be</b> an animal <b>in its second</b> year <b>that appears as</b> though it is <b>in its</b> first <b>year.</b>
+
+### Part 19
+The Gemara challenges: <b>A goat</b> sin offering <b>that one slaughtered for the sake of a guilt offering should effect acceptance.</b> It is clearly not a guilt offering, <b>as this,</b> a guilt offering, is a ram, with white <b>wool, and that,</b> a goat, has black <b>hair.</b> The Gemara responds: People will <b>say</b> that this goat <b>is</b> actually <b>a black ram,</b> and they may indeed mistake it for a guilt offering.
+
+### Part 20
+The Gemara challenges: <b>A calf or a bull that one slaughtered for the sake of</b> either <b>a Paschal offering or a guilt offering should effect acceptance.</b> It is clear that such animals cannot be either offering, <b>as a calf or bull</b> offering <b>is not</b> sacrificed either <b>as a Paschal offering or</b> as <b>a guilt offering.</b> The Gemara responds: <b>Yes,</b> it <b>is indeed so,</b> as according to Rabbi Shimon such offerings effect acceptance for their owners.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

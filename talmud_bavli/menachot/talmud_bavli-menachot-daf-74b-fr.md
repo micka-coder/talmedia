@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Je ne souleve pas le dilemme. Quand je souleve le dilemme,</b> c'est par rapport a l'<b>interdiction de : <b>Il doit etre offert en entier;</b> il ne doit pas etre mange.</b> <b>Qu'est-ce que la <i>halakha</i> ? Cette interdiction s'applique-t-elle uniquement a l'offrande de repas d'un pretre mentionnee dans le verset, ou s'applique-t-elle egalement a un pretre qui mange des portions sacrificielles ?
+
+### Partie 2
+<b>Rav Aharon dit a Ravina : Viens</b> et <b>entendre</b> une reponse a cette question a partir de ce <b>qu'on enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer dit :</b> En ce qui concerne <b>chaque element sacrificiel</b>, pas seulement l'offrande de repas d'un pretre, comme les portions sacrificielles, <b>qui est</b> inclus <b>dans</b> la categorie de <b>"doit etre offert dans son integralite"</b> qui exige qu'il soit brule, le verset sert <b>a imposer une interdiction de le manger.</b>
+
+### Partie 3
+<strong>MISHNA:</strong> <b>L'offrande de repas des pretres, l'offrande de repas du pretre oint,</b> c'est-a-dire du Grand Pretre, <b>et l'offrande de repas</b> apportee avec les <b>liberations</b> qui accompagnent les holocaustes et les offrandes de paix sont brulees dans leur integralite <b>sur l'autel, et il n'y a pas</b> de partie <b>de ces offrandes pour les pretres. Et dans</b> le cas de ces offrandes, <b>la puissance de l'autel est plus grande que la puissance des pretres. Les deux pains,</b> c'est-a-dire l'offrande publique de Shavuot de deux pains cuits de ble nouveau, <b>et les pains de proposition,</b> c'est-a-dire les douze pains qui etaient places sur la Table sacree dans le Sanctuaire chaque Chabbat, <b>sont manges par les pretres, et il n'y en a pas de partie</b> brulee <b>sur l'autel. Et dans</b> le cas de ces offrandes, <b>le pouvoir des pretres est plus grand que le pouvoir de l'autel.</b>
+
+### Partie 4
+<strong>GEMARA:</strong> La Gemara demande : <b>Et n'y a-t-il pas d'autres</b> cas d'objets sacrificiels qui sont entierement places sur l'autel, sans qu'aucune de leurs parties ne soit donnee aux pretres ? <b>Mais n'y a-t-il pas l'holocauste,</b> qui est entierement brule sur l'autel ? La Gemara repond : <b>Il y a</b> la <b>peau de l'holocauste,</b> qui est donnee <b>aux pretres.</b> La Gemara demande : <b>Mais n'y a-t-il pas l'oiseau</b> sacrifie comme <b>holocauste,</b> dont la peau n'est pas donnee aux pretres ? La Gemara repond : <b>Il y a</b> l'oiseau holocauste sa <b>coupe et ses plumes,</b> qui ne sont pas brulees sur l'autel. La Guemara demande : <b>Mais n'y a-t-il pas</b> des <b>liberations de vin,</b> qui sont entierement versees sur l'autel ? La Guemara repond : Les libations <b>allent vers les tuyaux d'evacuation,</b> et verser le vin dans les tuyaux d'evacuation n'est pas considere comme le placer sur l'autel.
+
+### Partie 5
+La Guemara demande : <b>Et que</b> signifie que la mishna souligne : <b>Et dans</b> le cas de ces offrandes, le pouvoir de l'autel est plus grand que le pouvoir des pretres, indiquant qu'il y a d'autres articles dont on aurait pu penser qu'ils sont brules entierement sur l'autel egalement ? La Guemara repond : La formulation de la mishna sert <b>a exclure</b> l'opinion <b>de Shmuel, car Shmuel a dit : Celui qui donne du vin l'apporte et le verse sur les feux</b> de l'autel, de sorte qu'il est offert a la maniere d'une offrande animale et non comme une libation. Par consequent, la formulation de la mishna <b>nous apprend que</b> le vin donne de cette maniere <b>allera dans les tuyaux d'evacuation,</b> contrairement a l'avis de Shmuel selon lequel il est entierement brule.
+
+### Partie 6
+La Gemara ajoute : En ce qui concerne une autre decision, la mishna <b>soutient</b> une declaration differente <b>de Shmuel. Comme l'a dit Shmuel : Celui qui donne de l'huile</b> au Temple <b>en preleve une poignee</b> et la sacrifie sur l'autel, <b>et son reste est mange</b> par les pretres. La decision de Shmuel est conforme a la mishna, qui ne cite pas le don d'huile parmi les offrandes donnees integralement a l'autel.
+
+### Partie 7
+§ Selon la mishna, en ce qui concerne <b>les deux pains et les pains de proposition,</b> le pouvoir des pretres est plus grand que le pouvoir de l'autel. La Guemara demande : <b>Et n'y a-t-il pas d'autres</b> cas d'objets sacrificiels qui sont donnes entierement aux pretres, sans qu'aucune de leurs parties ne soit placee sur l'autel ? <b>Mais n'y a-t-il pas l'oiseau</b> sacrifie comme <b>offrande de peche,</b> qui est mange entierement par les pretres, et dont aucune partie n'est placee sur l'autel ? La Gemara repond : <b>Il y a son sang,</b> qui est asperge sur l'autel.
+
+### Partie 8
+La Guemara demande : <b>Mais n'y a-t-il pas</b> le <b><i>logue</i> d'huile d'un lepreux</b> qu'il apporte le jour ou il devient rituellement pur, qui est donne integralement aux pretres ? La Guemara repond : Elle n'est pas donnee completement aux pretres, car <b>il y a ses placements,</b> lorsque l'huile est aspergee sept fois "devant le Seigneur" (Levitique 14:16), et appliquee sur l'oreille droite, le pouce et le gros orteil du lepreux (voir Levitique 14:17).
+
+### Partie 9
+La Gemara demande : <b>Et qu'est-ce</b> signifie que la mishna souligne : <b>Et dans</b> le cas de ces offrandes, le pouvoir des pretres est plus grand que le pouvoir de l'autel ? La Gemara repond : Cette formulation sert <b>a exclure</b> l'opinion <b>de celui qui dit : Les deux pains apportes seuls,</b> non accompagnes des deux agneaux requis, ne peuvent etre offerts, et au lieu d'etre manges <b>ils vont etre brules. </b> En insistant sur le fait que les deux pains et les pains de proposition sont manges par les pretres et non places sur l'autel, la mishna <b>nous enseigne que dans ce</b> cas, <b>le pouvoir des pretres est toujours plus grand,</b> meme si les deux agneaux ne sont pas offerts avec les deux pains.
+
+### Partie 10
+<strong>MISHNA :</strong> <b>Toutes les offrandes de repas qui sont preparees dans un recipient,</b> par exemple, les offrandes preparees dans une poele ou une casserole profonde, <b>necessitent trois placements d'huile,</b> enumeres ici dans l'ordre inverse de leur placement : <b>Verser</b> l'huile sur les gateaux apres leur cuisson, <b>et melanger</b> l'huile a la farine, <b>et placer l'huile dans le recipient avant la preparation</b> des offrandes de repas.
+
+### Partie 11
+Dans les offrandes de repas qui se presentent sous forme de pains, c'est apres que la farine ait ete cuite en <b>pains</b> qu'on les casse en morceaux et qu'on les <b>melange</b> avec de l'huile ; c'est <b>la declaration de Rabbi</b> Yehuda HaNasi. <b>Et les rabbins disent :</b> C'est avec la <b>fine farine</b> que l'on melange l'huile. Bien que <b>les pains</b> de l'offrande de repas cuits dans un four <b>exigent le melange</b> de leur farine avec de l'huile, les <b>sandwichs</b> ne necessitent pas de melange, mais plutot un <b>enrobage</b> d'huile sur eux apres la cuisson. <b>Comment fait-on pour les enduire</b> d'huile ? </b> Il le fait en une forme <b>similaire</b> a la lettre grecque <b>chi,</b> I§, <b>et le reste</b> de l'huile qui reste apres l'enduction est <b>mange par les pretres.</b>
+
+### Partie 12
+<strong>GEMARA:</strong> En ce qui concerne l'affirmation de la mishna selon laquelle toutes les offrandes de repas preparees dans un recipient necessitent trois placements d'huile, la Gemara demande : <b>A l'exclusion de quoi</b> le mishna precise-t-il : Les offrandes de repas preparees dans un recipient ? <b>Rav Pappa dit :</b> La mishna sert <b>a exclure</b> l'offrande de repas</b> cuite au four,</b> dont la preparation ne necessite pas l'utilisation d'un recipient de service, car elle est simplement cuite dans un four. Une telle offrande de repas ne necessite pas le versement de l'huile.
+
+### Partie 13
+En ce qui concerne les trois placements de l'huile dans une offrande de repas a la poele et une offrande de repas a la casserole, <b>les Sages ont enseigne</b> que le verset stipule : <b>Et si ton offrande est une offrande de repas a la poele, elle sera faite de farine fine dans l'huile</b> (Levitique 2:7). Cela <b>enseigne qu'il faut</b> le <b>placement de l'huile dans</b> un <b>vase vide,</b> et la farine est ajoutee ensuite. En outre, le terme <b>Votre offrande"</b> dans ce verset et le terme <b>Votre offrande"</b> (Levitique 2:5), ecrit a propos de l'offrande de repas preparee dans une poele, sont compris <b>pour</b> enseigner <b>une analogie verbale:</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

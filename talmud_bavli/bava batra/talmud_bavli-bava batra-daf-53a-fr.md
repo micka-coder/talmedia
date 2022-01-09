@@ -1,0 +1,27 @@
+
+### Partie 1
+Mais si l'acte a ete accompli <b>non</b> en <b>presence du vendeur,</b> le vendeur <b>doit lui dire : Va, prends possession et</b> ainsi <b>acquerir</b> le bien pour qu'il l'acquiert.
+
+### Partie 2
+<b>Rav souleve un dilemme : Comment</b> on acquiert <b>un don,</b> c'est-a-dire, est-il necessaire que le donateur dise : Va, prends possession et acquiert ainsi ? <b>Shmuel a dit : Quel dilemme est souleve a Abba,</b> c'est-a-dire au Rav ? <b>Maintenant</b> on pourrait dire ce qui suit : <b>Et quelle</b> est la <i>halakha</i> par rapport a <b>une vente, ou</b> l'acheteur <b>donne de l'argent</b> au vendeur ? <b>Si</b> le vendeur <b>dit a</b> l'acheteur : <b>Allez, prenez possession et</b> ainsi <b>acquerir</b> le bien, l'acquisition <b>est effective</b>, mais <b>si</b> il n'a <b>pas</b> dit cela, elle n'est <b>pas effective.</b> Par consequent, en ce qui concerne <b>un don,</b> ou aucune somme d'argent n'est donnee au vendeur, n'est-il pas <b>d'autant plus</b> raisonnable que l'acquisition ne soit pas effective sans une directive claire du vendeur ? La Gemara repond : <b>Et Rav soutient</b> qu'il est possible de dire que <b>celui qui fait un cadeau</b> le fait <b>genereusement,</b> et permettrait l'acquisition meme en l'absence d'une directive claire.
+
+### Partie 3
+§ La mishna enseigne que la prise de possession peut etre effectuee en construisant une cloture ou en ouvrant une breche dans une cloture, meme un peu. La Guemara clarifie : <b>Et combien</b> est la mesure de <b>un peu ? </b> C'est <b>conformement</b> a la declaration <b>de Shmuel, car Shmuel dit : </b> Si l'on avait auparavant <b>construit une cloture, et</b> maintenant <b>l'a achevee jusqu'a</b> une hauteur de <b>dix</b> handbreadths, qui est la hauteur d'une barriere halakhiquement significative ; <b>ou</b> de meme, si l'on avait auparavant <b>brise une breche,</b> et qu'on l'a maintenant etendue <b>afin</b> qu'elle soit suffisamment grande <b>pour que</b> une personne puisse <b>entrer et sortir par la, ceci est</b> considere comme une <b>prise de possession. </b>
+
+### Partie 4
+La Gemara demande : <b>Quelles sont les circonstances</b> de <b>cette cloture ? Si l'on dit qu'initialement</b> on ne pouvait <b>pas l'escalader</b> pour entrer dans le champ, <b>et que maintenant aussi</b> on ne pouvait toujours <b>pas l'escalader, qu'a-t-il accompli ? </b> Rien n'a change par le fait qu'il ait complete la hauteur de la cloture. <b>Et alternativement,</b> si elle etait telle <b>qu'initialement</b> on <b>pouvait l'escalader</b> pour entrer dans le champ, <b>et maintenant</b> on ne pouvait <b>pas l'escalader,</b> il a <b>accompli beaucoup,</b> et la mishna n'aurait pas du faire reference a cet ajout comme : Un peu. La Guemara repond : <b>Non,</b> il est <b>necessaire</b> d'enoncer cette decision si la hauteur de la cloture etait telle <b>qu'initialement</b> on <b>pouvait l'escalader avec facilite, et que maintenant</b> on <b>pouvait l'escalader</b> seulement <b>avec effort.</b>
+
+### Partie 5
+De la meme maniere, la Guemara demande : <b>Quelles sont les circonstances</b> de <b>cette breche ? Si l'on dit qu'initialement,</b> on <b>pouvait entrer</b> dans le champ <b>a travers elle, et que maintenant aussi</b> on <b>pouvait entrer</b> dans le champ <b>a travers elle, qu'a-t-il</b> accompli ? </b> Rien n'a change du fait qu'il a elargi la breche ? <b>Et alternativement,</b> si c'etait tel <b>qu'initialement</b> on <b>ne pouvait pas entrer</b> dans le champ <b>a travers elle, et maintenant</b> on <b>pouvait entrer</b> dans le champ <b>a travers elle,</b> il a <b>accompli beaucoup,</b> et la mishna n'aurait pas du s'y referer comme : Un peu. La Gemara repond : <b>Non,</b> il est <b>necessaire</b> d'enoncer cette decision si la taille de la breche etait telle <b>qu'initialement</b> on <b>pouvait entrer</b> dans le champ <b>a travers elle avec effort, et maintenant</b> on <b>pourrait entrer</b> dans le champ <b>a travers elle avec facilite.</b>
+
+### Partie 6
+<b>Rav Asi dit</b> que <b>Rabbi Yohanan dit :</b> Si l'on <b>placait une pierre et</b> qu'elle <b>aide</b> a servir un objectif, ou si l'on <b>enlevait une pierre et</b> qu'elle <b>aide</b> a servir un objectif, <b>cette</b> action <b>est</b> consideree comme une <b>prise de possession.</b> La Gemara demande : <b>Quel</b> est le sens de <b>place, et quel</b> est le sens de <b>enleve ?</b>
+
+### Partie 7
+<b>Si nous disons</b> qu'il a <b>place une pierre</b> dans la cloture <b>et a empeche l'eau de</b> inonder le champ, ou qu'il a <b>enleve une pierre</b> de la cloture <b>et</b> a ainsi faconne une ouverture qui a <b>libere l'eau</b> qui inondait le champ, <b>ceci</b> est analogue a celui qui <b>chasse un lion de la propriete d'un autre. </b> En d'autres termes, ces actes previennent les dommages au champ, que l'on est oblige de prevenir meme dans le cas de la propriete d'un autre, et par consequent, ils ne constituent pas une demonstration de propriete. <b>Cela signifie plutot qu'il a <b>place une pierre qui a relie l'eau au</b> champ et l'a irrigue, ou qu'il a <b>enleve une pierre et ameliore</b> l'ecoulement de l'<b>eau vers celui-ci.</b>
+
+### Partie 8
+§ La Guemara cite une autre declaration de la meme <i>amora</i> en ce qui concerne la prise de possession. <b>Et Rav Asi dit</b> que <b>Rabbi Yohanan dit :</b> S'il y avait <b>deux champs avec une frontiere entre eux,</b> et que l'on <b>prenne possession d'un des</b> champs afin de <b>l'acquerir,</b> il l'a <b>acquis.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

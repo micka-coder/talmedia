@@ -1,0 +1,24 @@
+
+### Part 1
+The Gemara proposes another resolution to Rav Naḥman’s objection: <b>But let</b> Rav Huna <b>say to</b> Rav Naḥman that the mishna is referring to one <b>who says</b> that the transfer of ownership should take effect <b>when she gives birth,</b> at which point the child already exists. The Gemara rejects this resolution: Rav Huna does not interpret the mishna in this way, because <b>Rav Huna</b> conforms <b>to his</b> line of <b>reasoning, as Rav Huna says: Even</b> if one says that the transfer of ownership should take effect <b>when she gives birth,</b> the fetus <b>does not acquire</b> it.
+
+### Part 2
+The Gemara clarifies: <b>As Rav Naḥman says:</b> With regard to <b>one who transfers ownership</b> of an item <b>to a fetus,</b> the fetus <b>does not acquire</b> it. But if he says that the transfer of ownership of the item should take effect <b>when she gives birth,</b> the fetus <b>acquires</b> it. <b>And Rav Huna says: Even</b> if he says that the transfer of ownership of the item should take effect <b>when she gives birth,</b> the fetus <b>does not acquire</b> it, because the fetus did not exist in the world when he transferred ownership. <b>And Rav Sheshet says:</b> In <b>both this</b> case <b>and that</b> case, the fetus <b>acquires</b> the item.
+
+### Part 3
+<b>Rav Sheshet said: From where do I say</b> that the fetus acquires the item? <b>As it is taught</b> in a <i>baraita</i>: With regard to <b>a convert who died,</b> apparently without offspring, <b>and Jews plundered [<i>uvizbezu</i>] his property,</b> assuming that he had no heirs and his property was therefore ownerless, <b>and</b> subsequently <b>they heard that he had a son or that his wife was pregnant, they are obligated to return</b> the property. If <b>they returned it all, and then they heard that his son died or that his wife miscarried,</b> if one <b>took possession at the second</b> time, after hearing about the death or the miscarriage, he <b>acquired</b> the property, <b>but</b> if one took possession only <b>at the first</b> time, before it was known there was an heir at all, he <b>did not acquire</b> the property.
+
+### Part 4
+Rav Sheshet explains: <b>And if it enters your mind</b> that <b>a fetus does not acquire</b> property, <b>why do they</b> need to <b>take possession</b> again <b>the second</b> time? <b>Didn’t they</b> already <b>take possession one time?</b> Evidently, the miscarried fetus had acquired ownership in the meantime.
+
+### Part 5
+<b>Abaye said</b> in reply to Rav Sheshet: <b>Inheritance, which comes</b> into the possession of the heir <b>by itself</b> without a formal act of acquisition, <b>is different.</b> Even if a fetus inherits property, it may not be able to acquire property in any other manner, e.g., receiving a gift. <b>Rava said:</b> It <b>is different there,</b> in the case where they plundered the property of the convert, <b>as</b> the property <b>was initially</b> only <b>loosely held in their hands,</b> as they did not clearly know whether or not the deceased convert had heirs. Therefore, the first time they took possession was not sufficient, and they needed to take possession again in order to acquire the property.
+
+### Part 6
+The Gemara asks: <b>What is</b> the difference <b>between</b> Abaye’s refutation and Rava’s refutation? The practical difference <b>between them</b> is in a case <b>where they</b> initially <b>heard</b> with regard <b>to</b> the fetus <b>that he</b> had <b>died,</b> and they then took possession of the property. <b>But</b> in reality, he had <b>not died, and then</b> he <b>died.</b> According to Abaye, a fetus inherits property. Therefore, the property was not ownerless, and the plunderers did not acquire it. According to Rava, since the plunderers heard that the fetus had died, they took a firm hold upon the property, and they acquired it the first time.
+
+### Part 7
+The Gemara offers another refutation of the opinion of Rav Sheshet: <b>Come</b> and <b>hear</b> a proof from a mishna (<i>Nidda</i> 43b–44a): <b>A one-day-old child inherits</b> property <b>and bequeaths</b> property. One can infer that if the child is <b>one day old, yes,</b> he inherits property; but <b>a fetus</b> does <b>not.</b> The Gemara replies: <b>Doesn’t Rav Sheshet say</b> that the mishna teaches a different <i>halakha</i>? The mishna teaches that a one-day-old child <b>inherits his mother’s property</b> the moment he is born, so that he is able <b>to bequeath</b> it, if he then dies, <b>to</b> his heirs who are not the mother’s heirs, e.g., his <b>paternal brothers.</b> This <i>halakha</i> <b>specifically</b> applies from when he is <b>one day old, but a fetus</b> whose mother died <b>does not</b> inherit from her. <b>What is the reason</b> for this?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

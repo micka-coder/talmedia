@@ -1,0 +1,39 @@
+
+### Part 1
+<b>as I resolve the mishna in accordance with his</b> opinion, expressed in the <i>baraitot</i> he edited.
+
+### Part 2
+Rava explains: <b>As Rabbi Oshaya teaches</b> in a <i>baraita</i>: One <b>was owed one hundred dinars by another, and he went and stood by</b> the other’s <b>granary and said: Give me my money, as I wish to buy wheat with it, and</b> the other <b>said to him: I have wheat</b> in my granary <b>that I will give you; go and calculate for me</b> the amount to which you are entitled <b>at the current</b> market <b>rate.</b> When <b>the time to sell wheat arrived,</b> the lender <b>said to him: Give me wheat, as I want to sell it and acquire wine with</b> the money received for <b>it.</b> The borrower <b>said to him: I have wine that I will give you; go and calculate for me</b> the amount of wine to which you are entitled <b>at the current</b> market <b>rate.</b>
+
+### Part 3
+The <i>baraita</i> continues: Then <b>the time to sell wine arrived, and</b> the lender <b>said to</b> the borrower: <b>Give me my wine, as I want to sell it and acquire oil with</b> the money received for <b>it.</b> The borrower <b>said to him: I have oil that I will give you; go and calculate for me</b> the amount of oil to which you are entitled <b>at the current</b> market <b>rate.</b> With regard to <b>all</b> such cases, <b>if</b> the borrower <b>has</b> wine and oil, the transaction is <b>permitted,</b> as this is a proper sale. But if <b>he does not have</b> these items it is <b>forbidden.</b> Since he cannot give him the merchandise at the current moment, if its value appreciates in the interim he is considered to have paid an additional sum for the delay of the repayment of the debt. Rava concludes his explanation: <b>And what is</b> the meaning in the mishna of: <b>Acquired?</b> It means that <b>he acquired</b> it <b>as</b> payment for <b>his loan.</b>
+
+### Part 4
+<b>Rava said: Conclude from</b> this <i>baraita</i> <b>of Rabbi Oshaya three</b> <i>halakhot</i>: <b>Conclude from it that one may establish</b> repayment of <b>a loan upon produce,</b> meaning that a borrower can promise to pay the lender in produce over the course of a year, based on the market rate at the beginning of the year, <b>and we do not say</b> that this is <b>like</b> a case where <b>his <i>issar</i> has not</b> already <b>come into his possession,</b> as Rabbi Ḥiyya said in the <i>baraita</i> on the previous <i>amud</i>. Since he owns produce it is as though he has provided it at the present time, and the current lack of payment is not significant. Accordingly, one can <b>conclude from it</b> another <i>halakha</i>, that this practice is permitted <b>provided that he has produce</b> in his possession. <b>And</b> further <b>conclude from it</b> that the <i>halakha</i> <b>is</b> in accordance <b>with</b> the opinion <b>of Rabbi Yannai.</b>
+
+### Part 5
+This is <b>as Rabbi Yannai says: What</b> difference is it <b>to me</b> if he referred to the produce, and <b>what</b> difference is it <b>to me</b> if he referred to the produce’s <b>value?</b> If he stipulated that he would receive a certain amount of produce, he can later take its value in money rather than the produce itself without violating the prohibition of interest.
+
+### Part 6
+<b>As it was stated</b> that <i>amora’im</i> disagreed about this issue: <b>Rav says</b> that <b>one may make</b> an arrangement of <b>trust with regard to</b> the delivery of items such as <b>produce,</b> i.e., one may loan the money in advance with the agreement that he will be repaid with produce at a later date, <b>but one may not make</b> an arrangement of <b>trust with regard to money,</b> i.e., one may not loan the money in advance with the agreement that he will receive the value of the produce at a later date, as this has the appearance of collecting interest. <b>And Rabbi Yannai says: What</b> difference is it <b>to me</b> if the agreement concerned <b>the produce, and what</b> difference is it <b>to me</b> if it concerned the produce’s <b>value?</b> Just as the lender can take the produce and sell it himself, he can likewise accept the value of the produce directly.
+
+### Part 7
+The Gemara <b>raises an objection</b> against Rav’s opinion from the above <i>baraita</i>: With regard to <b>all of them, if</b> the borrower <b>has</b> the items in his possession, it is <b>permitted,</b> apparently even if he actually pays with something else. <b>Rav Huna says</b> that <b>Rav says:</b> That <i>baraita</i> is stated <b>with regard to</b> a case <b>where</b> the lender <b>pulled</b> the produce itself, thereby performing an act of acquisition. The Gemara questions Rav Huna’s statement: <b>If he pulled</b> the produce, does it <b>need to be said?</b> After all, there was a proper act of acquisition. <b>Rather,</b> the <i>baraita</i> is discussing a case <b>where</b> the borrower <b>designated a corner for</b> the lender in which to place the produce that he acquired. For the purposes of this <i>halakha</i>, such an action is sufficient.
+
+### Part 8
+<b>And Shmuel said:</b> In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i>, which permits the practice if the borrower is in possession of such produce? <b>It is</b> in accordance with that of <b>Rabbi Yehuda, who said</b> that <b>uncertain interest,</b> a transaction that may or may not result in the payment of interest, is <b>permitted.</b> Rabbi Yehuda holds that if at the time of the loan it was not certain that the agreement would result in the paying of interest, then even if it is so that if specific circumstances were to develop there would be interest paid according to the agreement, the transaction is permitted.
+
+### Part 9
+<b>As it is taught</b> in a <i>baraita</i>: <b>If</b> one <b>was owed one hundred dinars by another, and</b> the borrower <b>performed a sale</b> of <b>his field for him</b> in order to repay the one hundred dinars, if they agreed <b>that the seller,</b> i.e., the borrower, <b>consumes the produce</b> of the field until the debt is repaid, this is certainly <b>permitted,</b> but if the <b>buyer,</b> i.e., the lender, <b>consumes the produce,</b> it is <b>prohibited,</b> as he is in effect taking the produce as interest while awaiting the payment that he is owed. <b>Rabbi Yehuda says: Even if the buyer consumes the produce,</b> it is <b>permitted.</b>
+
+### Part 10
+The <i>tanna</i> relates: <b>Rabbi Yehuda said to</b> the Sages: <b>An incident</b> occurred <b>involving Baitos ben Zunin, who performed a sale</b> of <b>his field on the basis of</b> a directive from <b>Rabbi Elazar ben Azarya,</b> and that <b>was</b> a case where the <b>buyer consumed the produce.</b> The Sages <b>said to</b> the <i>tanna</i>: Will you <b>bring a proof from there?</b> The reverse was the case: <b>It was</b> the <b>seller, not the buyer, who consumed the produce.</b>
+
+### Part 11
+The Gemara asks: <b>What</b> is the difference in opinion <b>between</b> the first <i>tanna</i> and Rabbi Yehuda? <b>Abaye said:</b> The difference <b>between them</b> concerns the <i>halakha</i> of <b>uncertain interest.</b> According to the opinion of Rabbi Yehuda, if it is uncertain that a transaction will ultimately involve the payment of interest, it is permitted. <b>Rava said: The</b> difference <b>between them</b> involves the status of <b>interest</b> taken <b>on the condition</b> that it be <b>given back.</b> Rava maintains that Rabbi Yehuda did not mean that the lender can consume the produce without payment, as he must repay the amount he ate if the borrower pays off his debt. The first <i>tanna</i> rules that since the sale is not yet final, his consumption of the produce constitutes interest.
+
+### Part 12
+<b>Rava said: Now that Rabbi Yannai</b> is <b>saying</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

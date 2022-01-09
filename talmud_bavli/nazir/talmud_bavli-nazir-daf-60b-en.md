@@ -1,0 +1,33 @@
+
+### Part 1
+<b>And if he was a definite nazirite</b> from the start and was neither impure from a corpse nor a leper, <b>the first burnt-offering</b> he brought after his initial shaving was for his <b>obligation</b> of pure naziriteship, <b>and this</b> one he is bringing now is <b>a gift</b> offering. <b>And if he was impure</b> from a corpse <b>and a confirmed</b> leper, <b>the first burnt-offering</b> he brought was <b>a gift</b> offering <b>and this</b> one he is bringing now is for his <b>obligation. And these,</b> the guilt-offering and peace-offering he is currently bringing, are for <b>the rest of his</b> obligatory <b>offerings.</b> This concludes the Gemara’s analysis of the case of the <i>baraita</i>.
+
+### Part 2
+§ The Gemara addresses similar situations: A nazirite about whom it was <b>uncertain</b> if he was <b>impure</b> from a corpse, <b>and</b> he was <b>a confirmed</b> leper whose status was <b>definite, partakes of sacrificial food after eight days.</b> He counts seven days, after which he is purified from his leprosy. On the following day he brings his offerings and may partake of sacrificial food. <b>And he may drink wine and become impure from the dead after sixty-seven days.</b> He is required to count another thirty days for his naziriteship and shave, at which point he must observe another thirty days, in case his first shaving was for his impurity, and his second shaving is for his purity.
+
+### Part 3
+The Gemara discusses another case: A nazirite whose status as <b>a confirmed</b> leper was <b>uncertain and</b> who was <b>definitely impure</b> from a corpse <b>partakes of sacrificial food after thirty-seven days.</b> He shaves after seven days for his definite impurity and starts counting thirty days of naziriteship afresh. At the conclusion of this period he shaves again, which renders him pure from any uncertain leprosy, and may partake of sacrificial food. However, <b>he may drink wine and become impure from the dead</b> only <b>after seventy-four days.</b> Since he might have been a confirmed leper, his first two shavings, after seven and thirty-seven days, count only toward the two stages of his purification from leprosy, for his first shaving and after the days of his counting. He must therefore observe a further thirty days for his naziriteship of purity.
+
+### Part 4
+The Gemara mentions yet another case: A nazirite who was <b>definitely impure</b> from a corpse <b>and</b> he was <b>a confirmed</b> leper whose status was <b>definite partakes of sacrificial food after eight days.</b> He immediately shaves his first shaving for his leprosy, then counts seven days and shaves again for his leprosy and partakes of sacrificial food on the following day. <b>And he may drink wine and become impure from the dead after forty-four days.</b> He counts a further seven days of hair growth for his shaving of impurity, shaves, and finally observes thirty more days for his naziriteship of purity.
+
+### Part 5
+§ <b>The students of</b> Rabbi Shimon ben Yoḥai <b>asked Rabbi Shimon ben Yoḥai:</b> With regard to one who was <b>a pure nazirite and a leper, what is</b> the <i>halakha</i> concerning the possibility <b>that he may shave one shaving and it will count for him</b> both <b>for this and for that?</b> In other words, can it serve for his shaving of leprosy as well as for his naziriteship? <b>He said to them: He may not shave</b> once for both requirements.
+
+### Part 6
+<b>They said to him: Why</b> not? <b>He said to them: If</b> the aim of both shavings were the same, <b>this one to grow</b> hair <b>and that one to grow</b> hair, <b>or this one to remove</b> hair <b>and that one to remove</b> hair, <b>you</b> would have <b>spoken well. Now</b> in actual fact the two shavings have different functions: <b>A nazirite</b> shaves <b>to remove</b> his hair, <b>and a leper</b> shaves <b>to grow</b> hair, so that he can shave again after the days of his counting.
+
+### Part 7
+His students posed another question: <b>But</b> even if his shaving of naziriteship does <b>not count for him as</b> the shaving of the completion of <b>his days of confirmed</b> leprosy, <b>let it</b> at least <b>count for him</b> as the shaving at the end of the <b>days of his counting,</b> which is not followed by another act of shaving, and therefore is performed only for the purpose of removing his hair. <b>And</b> Rabbi Shimon ben Yoḥai <b>said to them: If this one</b> were performed <b>before the sprinkling of blood and that one before the sprinkling of blood, you</b> would have <b>spoken well. However, a leper</b> shaves <b>before the sprinkling of</b> his offering’s <b>blood, and a nazirite</b> does so <b>after the sprinkling of</b> the <b>blood.</b> Therefore, the two shavings are not equivalent.
+
+### Part 8
+Rabbi Shimon ben Yoḥai’s students asked him yet another question: <b>And</b> granted that his shaving does <b>not count for his days of leprosy and his naziriteship, let it</b> at least <b>count for his days of leprosy and his</b> shaving of naziriteship of <b>impurity,</b> both of which are performed before the sprinkling of the blood. <b>He said to them: If this one</b> shaved <b>before</b> his <b>immersion in water, and that one before immersion in water, you</b> would have <b>spoken well. However, an impure</b> nazirite shaves <b>after immersion in water,</b> whereas <b>a leper</b> shaves <b>before immersion in water.</b>
+
+### Part 9
+<b>They said to</b> Rabbi Shimon ben Yoḥai: <b>You</b> have <b>spoken well,</b> and convinced us <b>that</b> one shaving <b>should not count for</b> the <b>days of his counting and for his naziriteship. But</b> why not say that it should at least <b>count for his days of confirmed</b> leprosy <b>and his</b> naziriteship of <b>impurity, as</b> the purpose of <b>this</b> shaving is <b>to grow</b> hair <b>and</b> the purpose of <b>that one</b> is <b>to grow</b> hair.
+
+### Part 10
+<b>He said to them:</b> Here too the acts of shaving for naziriteship and leprosy are not exactly the same: If he is <b>a pure nazirite and he is</b> also <b>a leper,</b> the difference is that the aim of <b>this</b> one, the shaving of a leper, is <b>to grow</b> hair, <b>and</b> the aim of <b>that</b> one, the shaving of the pure nazirite, is <b>to remove</b> his hair. <b>And if</b> he is <b>an impure nazirite and he is</b> also <b>a leper,</b> the difference is that <b>this</b> shaving, of a leper, occurs <b>before immersion in water, and that</b> one, the shaving of an impure nazirite, is performed <b>after immersion in water.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

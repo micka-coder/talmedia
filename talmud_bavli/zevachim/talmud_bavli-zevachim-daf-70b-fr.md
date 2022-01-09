@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Lorsqu'on aborde</b> la question <b>de cette</b> premiere <b>facon,</b> la <i>halakha</i> que la graisse interdite est pure <b>s'applique</b> specifiquement <b>aux animaux casher</b>, mais <b>lorsqu'on aborde</b> la question <b>de cette</b> seconde <b>facon,</b> la <i>halakha</i> <b>s'applique</b> specifiquement <b>aux animaux non casher</b>. Pour trancher la question, <b>le verset indique :</b> "La graisse d'un <b>tereifa</i></b> peut etre utilisee pour tout autre service" (Levitique 7:24), indiquant que seule la graisse interdite des <b>animaux <b>a l'espece</b> desquels s'applique la <i>halakha</i> de <b><i>tereifa</i>,</b> c'est-a-dire les animaux casher, est rituellement pure. Le statut de <i>tereifa</i> est sans importance pour un animal non casher puisque sa consommation est interdite de toute facon.
+
+### Partie 2
+Le <i>baraita</i> conclut : On pourrait encore supposer que <b>J'exclurai</b> de cette <i>halakha</i> uniquement la graisse interdite d'une carcasse d'un <b>animal non casher</b>, <b>puisque</b> la <i>halakha</i> de <b><i>tereifa</i> ne s'applique pas a son espece, mais je n'exclurai pas</b> la graisse d'une carcasse d'un <b>animal casher non domestique</b>, car</b> la <i>halakha</i> de <b><i>tereifa</i> s'applique a son espece. </b> Par consequent, <b>le verset indique</b> en conclusion : <b>"Mais vous n'en mangerez en aucune facon,</b> indiquant que la reference ne concerne que les animaux <b>dont la graisse</b> est <b>interdite</b> a la consommation s'ils sont abattus <b>mais dont la viande</b> est <b>permise,</b> c'est-a-dire les animaux domestiques casher. <b>Exclus</b> sont les animaux casher <b>undomestices, dont la graisse et la viande</b> sont toutes deux <b>permises</b> pour la consommation.
+
+### Partie 3
+<b>Rav Yaâkov bar Abba dit a Rava : S'il en est ainsi,</b> il ressort de la <i>baraita</i> que <b>la carcasse d'un animal casher transmet l'impurete,</b> mais que <b>la carcasse d'un animal non casher ne transmet pas l'impurete.</b> Rava lui <b>dit : Combien d'anciens as-tu fait errer dans</b> l'interpretation de cette <i>baraita</i> ? Dans <b>cette derniere clause, nous en venons</b> a discuter uniquement de <b>la carcasse d'un oiseau non casher,</b> qui ne transmet pas d'impurete. En revanche, les carcasses d'animaux non cacheres sont impures.
+
+### Partie 4
+§ Dans la mishna, Rabbi Meir affirme qu'une offrande d'oiseau dont on a pince la nuque et qui s'est averee etre une <i>tereifa</i> n'impure pas comme le ferait une carcasse. <b>Rabbi Yohanan dit : Rabbi Meir n'a juge purs que les oiseaux non-blanchis</b> dont les napes ont ete pincees, car ils sont aptes a etre sacrifies, <b>mais</b> il n'a <b>pas</b> juge purs les oiseaux <b>blanchis</b>, qui ne sont pas aptes a etre sacrifies. <b>Et Rabbi Elazar dit :</b> Rabbi Meir jugeait purs <b>meme les oiseaux taches</b> et ne faisait pas de distinction entre les deux. <b>Il a egalement ete dit</b> que <b>Rav Beivai dit</b> que <b>Rabbi Elazar dit : Rabbi Meir jugerait purs les oiseaux taches</b>, <b>et</b> c'etait son avis <b>meme</b> concernant les <b>oies et les poulets,</b> especes qui ne peuvent etre apportees en offrande et qui, en tant que telles, ne sont jamais censees etre pincees.
+
+### Partie 5
+<b>Rabbi Yirmeya souleve un dilemme :</b> Selon la comprehension de Rabbi Elazar de l'avis de Rabbi Meir, <b>quelle est</b> la <i>halakha</i> a l'egard de celui qui a <b>brise le cou d'une chevre ?</b> Est-ce que l'impurete des carcasses d'animaux s'applique ? La rupture du cou est consideree comme la procedure appropriee dans certains cas, car la Torah ordonne de briser le cou d'une genisse si un corps assassine est trouve entre deux villes et que l'identite du meurtrier est inconnue (voir Deuteronome 21:4).
+
+### Partie 6
+On pourrait pretendre : <b>Quelle est la raison</b> pour laquelle <b>les oies et les poulets</b> sont purs si on leur pince les nuques ? C'est <b>parce que ce sont des especes d'oiseaux</b> et que les nuques de certains oiseaux sont pincees ; <b>mais une chevre n'est pas</b> de la meme <b>espece</b> qu'une genisse,</b> car les chevres sont considerees comme du petit betail alors que les bovins sont du gros betail. <b>Ou peut-etre</b> on pourrait pretendre : Puisqu'une chevre <b>est</b> encore <b>une espece d'animal domestique,</b> elle est suffisamment similaire a une genisse pour que la rupture de son cou l'empeche de transmettre une impurete en tant que carcasse.
+
+### Partie 7
+<b>Rav Dimi etait assis et disait cette <i>halakha</i>,</b> c'est-a-dire ce dilemme. <b>Abaye lui dit : Par deduction</b> de ce dilemme, il semble que tu supposes qu'une <b>genisse dont le cou est brise</b> est elle-meme <b>pure</b> et ne transmet pas d'impurete comme le ferait une carcasse. Rav Dimi lui <b>dit : En effet,</b> comme le disent les Sages <b>de l'ecole de Rabbi Yannai :</b> Puisque le langage du <b>monement est ecrit a propos</b> de la genisse dont le cou est brise, dans le verset :" Pardonne, Seigneur, a ton peuple Israel" (Deuteronome 21:8), tout <b>comme</b> l'expiation est ecrite a l'egard des <b>animaux sacrificiels</b>, la rupture du cou de la genisse est equivalente au pincement de la nuque d'une offrande d'oiseau, et la rupture de son cou empeche la genisse de transmettre une impurete rituelle.
+
+### Partie 8
+<b>Rav Natan, pere de Rav Huna bar Natan, souleve une objection</b> basee sur une <i>baraita</i> concernant la purete de la graisse interdite d'un animal casher, mentionnee dans le verset : "Et la graisse d'une carcasse, et la graisse d'une <i>tereifa</i>, peuvent etre utilisees pour tout autre service ; <b>mais vous n'en mangerez en aucun cas"</b> (Levitique 7:24). <b>J'ai</b> tire du verset <b>seulement</b> que la <b>graisse interdite</b> a la consommation mais dont</b> tirer un <b>benefice</b> est <b>permis</b> est pure. <b>D'ou vient</b> que cette <i>halakha</i> s'applique egalement a la <b>graisse interdite d'un bœuf qui est lapide</b> par le tribunal <b>ou</b> a la graisse interdite d'une <b>genisse dont le cou est brise,</b> dont il est interdit de tirer un benefice dans les deux cas ?
+
+### Partie 9
+<b>Le verset dit :</b> "Tu ne mangeras <b>ni graisse</b> ni sang" (Levitique 3:17). La generalisation "pas de graisse" indique que les memes <i>halakhot</i> s'appliquent aux graisses interdites de tous les animaux domestiques casher, y compris celles dont il est interdit de tirer un benefice.
+
+### Partie 10
+Rav Natan conclut son objection : <b>Et s'il vous vient a l'esprit</b> que la viande d'une <b>genisse dont le cou est brise est pure,</b> pourquoi le verset doit-il enseigner que sa graisse interdite est pure ? Pourrait-on envisager la possibilite que sa viande <b>soit pure mais que sa <b>graisse</b> interdite soit <b>impure ?</b>
+
+### Partie 11
+La Gemara repond : La derivation dans le <i>baraita</i> <b>n'etait pas necessaire pour</b> un cas <b>ou l'on casse le cou</b> de la genisse. <b>Il etait necessaire</b> que le verset enseigne que la graisse interdite est pure meme dans un cas <b>ou l'on a abattu</b> une genisse dont le cou etait designe pour etre brise.
+
+### Partie 12
+La Gemara demande : <b>Mais</b> l'<b>abattage</b> lui-meme <b>devrait etre efficace pour purifier</b> la graisse interdite, car l'abattage empeche un animal <b>de</b> prendre le statut impur de <b>carcasse,</b> et la derivation reste superflue. La Guemara repond : <b>Non,</b> il est <b>necessaire</b> d'enseigner que la graisse interdite d'une genisse <b>qui est morte</b> avant que son cou ait pu etre brise est pure meme si la genisse elle-meme assume ce statut de carcasse.
+
+### Partie 13
+La Gemara demande : Si le <i>baraita</i> se refere uniquement a une genisse morte avant que son cou ne puisse etre brise, et qu'il decrit le fait d'en tirer profit comme etant interdit, <b>par deduction,</b> est-il <b>interdit</b> de tirer profit de la genisse <b>pendant</b> qu'elle est encore <b>vivante ?</b> La Gemara repond : <b>En effet,</b> comme le dit <b>Rabbi Yannai : j'ai entendu</b> la <b>limite,</b> c'est-a-dire, stade, au-dela duquel il est interdit, <b>mais j'ai oublie</b> ce que c'est, <b>et</b> pourtant les membres du <b>groupe</b> de savants <b>avaient tendance a dire</b> que <b>sa descente dans une vallee dure</b> (voir Deuteronome 21:4), ou son cou a ete brise, est l'action qui <b>le rend interdit.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

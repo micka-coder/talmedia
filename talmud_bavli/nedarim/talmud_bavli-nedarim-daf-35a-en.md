@@ -1,0 +1,27 @@
+
+### Part 1
+The Gemara <b>raised an objection to</b> Rava. If another person <b>said to him: Lend me your cow,</b> and the owner answered and <b>said to him:</b> Every <b>cow that I purchased</b> other than this one, which I need, <b>is <i>konam</i> for you;</b> or if he said: <b>My property</b> is forbidden <b>to you if I have a cow other than this one,</b> and in fact, he owns other cows; or if another said to him: <b>Lend me your spade,</b> and the owner of the spade <b>said to him:</b> Every <b>spade that I have that I purchased is <i>konam</i> for you;</b> or if he said: <b>My property</b> is forbidden <b>to me if I have a spade other than this one, and it is discovered that he has</b> another spade and the <i>konam</i> takes effect, then <b>during the life</b> of the one who vowed, the cow or the spade is <b>forbidden</b> to the subject of the vow. If the one who vowed <b>died or</b> if the cow or the spade <b>was given to</b> the subject of the vow <b>as a gift, it is permitted.</b> Apparently, the <i>konam</i> is in effect only as long as the property is in his possession.
+
+### Part 2
+<b>Rav Aḥa, son of Rav Ika, said:</b> It is referring to a case where it <b>was given to</b> the subject of the vow <b>by another</b> person. The one who vowed did not give him the gift directly. He sold or transferred the item to a third party, who gave it to the subject of the vow as a present. Since the property left the possession of its owner before it was given to the subject of the vow, the prohibition does not take effect upon it.
+
+### Part 3
+The Gemara states that <b>Rav Ashi said:</b> The language <b>is also precise, as it teaches: That was given to him, and it is not taught: That he gave it to him.</b> This indicates that this <i>halakha</i> applies specifically to a gift that was given to him by a third party, but not by the one who vowed.
+
+### Part 4
+§ <b>Rava raised a dilemma before Rav Naḥman: Is there</b> liability for <b>misuse of consecrated property in</b> cases of <b><i>konamot</i> or not?</b> Since the legal status of an item that was rendered a <i>konam</i> is like that of consecrated property in that it is forbidden to the one who one vowed, is it like consecrated property in every sense, including liability for misuse of consecrated property?
+
+### Part 5
+Rav Naḥman <b>said to</b> him: <b>You learned</b> this <i>halakha</i> from a mishna (33a): In <b>a place where one takes payment</b> for returning a lost item, that <b>benefit</b> that he receives for returning the item <b>should fall into</b> the category of <b>consecrated</b> Temple property. That is <b>to say,</b> an item forbidden by a <i>konam</i> is like <b>consecrated property. Just as</b> with regard to <b>consecrated property there is</b> liability for <b>misuse, so too</b> with regard to <b><i>konamot</i> there is</b> liability for <b>misuse.</b>
+
+### Part 6
+The Gemara comments on this. This dilemma is <b>like</b> a dispute between <b><i>tanna’im</i>.</b> If one said: <b>This loaf is <i>konam</i></b> to all like <b>consecrated property, and he ate it,</b> then, <b>whether he</b> ate it <b>or whether another</b> ate it, the one who ate it <b>misused consecrated property. Therefore,</b> since its status is that of consecrated property, <b>it has</b> the possibility of desanctification through <b>redemption.</b> If one said: <b>This loaf is <i>konam</i> for me</b> like <b>consecrated property and he eats it, he misused consecrated property.</b> If <b>another</b> eats it, <b>he did not misuse consecrated property,</b> as he said: To me. <b>Therefore, it does not have</b> the possibility of desanctification through <b>redemption,</b> since its status is not that of full-fledged consecrated property. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 7
+<b>And the Rabbis say:</b> In the case of <b>both</b> vows taken in <b>this manner and</b> vows taken <b>in that manner, no</b> one <b>misused consecrated property because there is no</b> liability for <b>misuse</b> of consecrated objects <b>in</b> cases of <b><i>konamot</i>.</b> Rabbi Meir disagrees and holds that there is liability for misuse in <i>konamot</i>.
+
+### Part 8
+<b>Rav Aḥa, son of Rav Avya, said to Rav Ashi:</b> If one said to another: <b>My loaf is</b> <i>konam</i> <b>for you, and he</b> then <b>gave it to him as a gift, which</b> of them <b>misused consecrated property?</b> If you say: <b>Let the one who gives</b> the loaf be liable for <b>misuse,</b> why would he be liable; the loaf <b>is not forbidden to him?</b> If you say: <b>Let the one who receives</b> the loaf be liable for <b>misuse, he can say: I wanted</b> to receive <b>a permitted</b> item; <b>I did not want</b> to receive <b>a forbidden</b> item. Since the loaf is forbidden, if I accepted it from you, it was not my intention to do so. Rav Ashi <b>said to him: The one who receives</b> the loaf is liable for <b>misuse when he utilizes</b> the loaf, as the principle with regard to misuse is <b>that anyone who utilizes consecrated money for non-sacred</b> purposes, <b>when he is under the impression that it is non-sacred, misuses consecrated property. This</b> person who received the loaf <b>also misuses consecrated property.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

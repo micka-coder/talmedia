@@ -1,0 +1,12 @@
+
+### Part 1
+The Gemara asks: <b>If so,</b> if a daughter who inherits land from both of her parents must marry a man whose father is from her father’s tribe and whose mother is from her mother’s tribe, <b>this</b> verse: “Shall be a wife to one of the family of the tribe of her father” (Numbers 36:8), <b>should have</b> said: Shall be a wife <b>to one of the family of the tribe of her father and her mother.</b> The Gemara replies: <b>If</b> it <b>were written like this, I would say</b> that <b>even the opposite</b> is permitted, that she may marry a man whose mother is from her father’s tribe and whose father is from her mother’s tribe. As long as she marries someone who is connected to both tribes, it is permitted. The verse therefore <b>teaches us</b> that the opposite is not permitted.
+
+### Part 2
+The Gemara comments: Concerning the marriage of a woman who inherited land, it <b>is taught</b> in a <i>baraita</i> <b>with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the son, and</b> it <b>is taught</b> in a <i>baraita</i> <b>with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the husband.</b> The Gemara presents the <i>baraitot</i>: A <i>baraita</i> <b>is taught with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the son,</b> as follows: <b>“So shall no inheritance of the children of Israel transfer from tribe to tribe”</b> (Numbers 36:7); that <b>verse speaks of</b> the <b>transfer</b> of the inheritance <b>by means of the son.</b> The Torah prohibits the woman from marrying a man from a different tribe since her son will inherit from her and thereby the inheritance will transfer away from its original tribe.
+
+### Part 3
+<b>Do you say</b> that this is <b>with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the son, or is it only with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the husband? When it says: “So shall no inheritance transfer from one tribe to another tribe”</b> (Numbers 36:9), the verse is <b>speaking with regard to</b> the <b>transfer</b> of the inheritance <b>by means of the husband. How do I realize</b> the meaning of the verse: <b>“So shall no inheritance of the children of Israel transfer from tribe to tribe”</b> (Numbers 36:7)? That <b>verse speaks of</b> the <b>transfer</b> of the inheritance <b>by means of the son.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

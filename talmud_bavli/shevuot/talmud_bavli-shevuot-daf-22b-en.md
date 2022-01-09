@@ -1,0 +1,54 @@
+
+### Part 1
+<b>And the Rabbis say: Both he and the other</b> are <b>not</b> liable for <b>misusing</b> consecrated property, <b>because there is no</b> prohibition of <b>misuse</b> of consecrated property <b>with regard to <i>konamot</i>.</b>
+
+### Part 2
+The Gemara responds: <b>Reverse</b> the opinions and say as follows: <b>Both this one and that one</b> are <b>not</b> liable for <b>misusing</b> consecrated property, <b>because there is no</b> prohibition of <b>misuse</b> of consecrated property <b>with regard to <i>konamot</i>.</b> This is <b>the statement of Rabbi Meir. And the Rabbis say: He</b> is liable for <b>misuse</b> of consecrated property <b>and the other</b> is <b>not</b> liable for <b>misuse</b> of consecrated property.
+
+### Part 3
+The Gemara asks: <b>If so,</b> how is it that <b>Rabbi Meir says</b> in the previous <i>baraita</i>: Items forbidden by <b><i>konamot</i> are like</b> those forbidden by <b>oaths?</b> Items forbidden by <b><i>konamot</i> do not combine</b> to produce a full measure that renders one liable for misuse of consecrated property, <b>but</b> this indicates that <b>misuse of consecrated property</b> nevertheless <b>applies to them. But doesn’t Rabbi Meir say,</b> according to the reversal of the opinions, that <b>with regard to <i>konamot</i>, there is no</b> prohibition of <b>misuse</b> of consecrated property <b>at all?</b>
+
+### Part 4
+The Gemara answers: When Rabbi Meir says that items forbidden by <i>konamot</i> do not combine to produce a full measure, <b>he is saying</b> this <b>to the Rabbis in accordance with their statement,</b> as follows: <b>According to my</b> opinion <b>with regard to <i>konamot</i>, there is no</b> prohibition of <b>misuse</b> of consecrated property <b>at all. According to your</b> opinion, <b>at least admit to me that</b> items forbidden by <b><i>konamot</i> are like</b> items forbidden by <b>oaths</b> and do not combine to produce a full measure.
+
+### Part 5
+<b>And the Rabbis?</b> They explain that with regard to items forbidden by <b>oaths</b> one should <b>apply</b> the reasoning <b>of Rav Pineḥas</b> that since two items that are forbidden by a single oath are distinct with regard to sin-offerings, they do not combine in order to produce a full measure. With regard to <b><i>konamot</i></b> the reasoning <b>of Rav Pineḥas does not apply.</b>
+
+### Part 6
+§ <b>Rava says</b> that if one said: On my <b>oath I will not eat, and</b> then he <b>ate dirt,</b> he is <b>exempt,</b> because eating dirt is not considered to be eating. <b>Rava raises a dilemma:</b> If one says: On my <b>oath I will not eat dirt, how much</b> dirt must he eat <b>in</b> order to be liable? Is the <i>halakha</i> that <b>since he said: I will not eat</b> dirt, <b>his intention is</b> that the prohibition applies <b>to an olive-bulk?</b> That is the standard measure for prohibitions with regard to eating. <b>Or perhaps, since</b> dirt <b>is not something that people eat,</b> he is liable <b>for</b> eating <b>any amount.</b> The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 7
+<b>Rava raises a dilemma:</b> If one says: On my <b>oath I will not eat a grape seed, how much</b> must he eat <b>in</b> order to be liable? Is the <i>halakha</i> that <b>since it is</b> ordinarily <b>eaten in a mixture,</b> i.e., as part of a grape, <b>his intention is</b> that the prohibition applies <b>to</b> a complete <b>olive-bulk</b> measure of grape seeds? <b>Or perhaps, since people do not eat it by itself</b> but always in a mixture, <b>his intention is</b> to be liable <b>for</b> eating <b>any amount.</b> The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 8
+§ <b>Rav Ashi raises a dilemma:</b> In the case of <b>a nazirite who says:</b> On my <b>oath I will not eat a grape seed, how much</b> must he eat <b>in</b> order to be liable? A nazirite is prohibited from eating grape seeds (see Numbers 6:4). Is the <i>halakha</i> <b>that since</b> eating <b>an olive-bulk is a prohibition by Torah law, when he takes an oath</b> of this sort, <b>he is taking the oath to</b> prohibit <b>that which is permitted</b> to him <b>and his intention</b> in taking the oath is <b>to</b> prohibit eating <b>any amount? Or perhaps, since he said: I will not eat</b> a grape seed, <b>his intention</b> is that the prohibition applies <b>to an olive-bulk,</b> which is the standard measure for what is considered eating.
+
+### Part 9
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from a mishna (22b): With regard to one who said: On my <b>oath I will not eat, and</b> then <b>ate</b> the meat of unslaughtered <b>carcasses or <i>tereifot</i>, repugnant creatures or creeping animals,</b> he is <b>liable. And Rabbi Shimon deems</b> him <b>exempt. And we discussed it: Why</b> is he <b>liable</b> for violating his oath when he eats non-kosher food? <b>He is already under oath from Mount Sinai</b> not to eat forbidden food, and an oath cannot take effect to prohibit that which is already forbidden. <b>Rav and Shmuel and Rabbi Yoḥanan</b> all <b>say</b> that this is a case <b>where he incorporates</b> into the oath that he will not eat some <b>permitted items, along with</b> the statement concerning the <b>forbidden items.</b> Since the oath takes effect with regard to the permitted items, it extends also to the forbidden ones.
+
+### Part 10
+<b>And Reish Lakish says: You find</b> that one is liable for eating non-kosher food after taking an oath not to eat <b>only if</b> it is both a case <b>where</b> he <b>specifies</b> in the oath that his oath includes <b>a half-measure and in accordance with</b> the opinion <b>of the Rabbis</b> that one is not liable for eating a half-measure unless it is specified in the oath. Since eating a half-measure is not prohibited by the Torah, the oath takes effect. Alternatively, you find that one is liable <b>if</b> he took the oath <b>without specifying</b> that the oath prohibits less than the usual measure <b>and in accordance with</b> the opinion <b>of Rabbi Akiva, who says</b> that <b>a person renders himself prohibited from</b> eating <b>any amount</b> by taking an oath not to eat.
+
+### Part 11
+The Gemara comments: <b>But isn’t a carcass</b> an item for <b>which one is already under oath from Mount Sinai?</b> In that respect it <b>resembles a grape seed for a nazirite, and</b> yet <b>the reason</b> that Reish Lakish says he is liable according to the Rabbis is <b>that he specified</b> that the oath prohibits him from eating even a half-measure, indicating <b>that</b> if he <b>did not specify, his intention</b> is that the oath refer <b>to an olive-bulk. Conclude from it</b> that a nazirite who takes an oath not to eat a grape seed is liable only if he eats an olive-bulk.
+
+### Part 12
+The Gemara asks: <b>But</b> according to this, <b>resolve</b> the dilemma <b>that Rava raises</b> with regard to one who says: On my <b>oath I will not eat dirt,</b> asking <b>how much</b> he must eat <b>in</b> order to be liable? <b>Resolve</b> the dilemma by saying that he is not liable <b>unless</b> he eats <b>an olive-bulk, since a carcass resembles dirt, and the reason</b> he is liable is <b>that he specified</b> that the oath prohibits him from eating even a half-measure, indicating <b>that</b> if he <b>did not specify, his intention is</b> that the oath refers <b>to an olive-bulk.</b>
+
+### Part 13
+The Gemara answers: <b>No,</b> the dilemma cannot be resolved based on this comparison. <b>Dirt is entirely inedible. A carcass,</b> by contrast, <b>is edible, but a lion crouches on it,</b> i.e., eating it is prohibited by the Torah. Therefore, one cannot derive the <i>halakha</i> concerning dirt from the <i>halakha</i> concerning a carcass.
+
+### Part 14
+<strong>MISHNA:</strong> If one said: On my <b>oath I will not eat, and</b> then he <b>ate and drank, he is liable</b> to bring <b>only one</b> offering, because an oath to refrain from eating includes refraining from drinking. If he said: On my <b>oath I will not eat and I will not drink, and</b> then he <b>ate and drank,</b> he is <b>liable</b> to bring <b>two</b> offerings. If he said: On my <b>oath I will not eat, and</b> then he <b>ate wheat bread and barley bread and spelt bread, he is liable</b> to bring <b>only one</b> offering. If he said: On my <b>oath I will not eat wheat bread or barley bread or spelt bread, and</b> then he <b>ate</b> all of them, he is <b>liable</b> to bring an offering <b>for each and every one.</b> If he said: On my <b>oath I will not drink, and</b> then he <b>drank several</b> kinds of <b>liquids, he is liable</b> to bring <b>only one</b> offering. If he said: On my <b>oath I will not drink wine or oil or honey, and</b> then <b>he drank</b> all of them, he is <b>liable</b> to bring an offering <b>for each and every one.</b>
+
+### Part 15
+If he said: On my <b>oath I will not eat, and he ate foods that are inedible or drank liquids that are not potable,</b> he is <b>exempt.</b> If he said: On my <b>oath I will not eat, and</b> then he <b>ate</b> the meat of unslaughtered <b>carcasses or <i>tereifot</i>, repugnant creatures or creeping animals,</b> he is <b>liable. And Rabbi Shimon deems</b> him <b>exempt,</b> since he is already under oath from Mount Sinai not to eat them and an oath cannot take effect where another oath is in force. But if he <b>said:</b> It is <b><i>konam</i></b> for <b>my wife to derive benefit from me if I ate today, and he had eaten carcasses or <i>tereifot</i>, repugnant creatures or creeping animals, his wife is prohibited</b> from deriving benefit from him.
+
+### Part 16
+<strong>GEMARA:</strong> <b>Rabbi Ḥiyya bar Avin says</b> that <b>Shmuel says:</b> If one said: On my <b>oath I will not eat, and</b> then <b>he drank,</b> he is <b>liable. If you wish,</b> you may <b>propose a logical argument</b> for this ruling, <b>and if you wish,</b> you may <b>cite a verse</b> to explain it.
+
+### Part 17
+The Gemara explains: <b>If you wish,</b> you may <b>propose a logical argument</b> for this ruling: It is clear that drinking is included in eating from the fact <b>that a person will say to another: Let’s</b> have <b>a taste</b> of <b>something, and they go in and eat and drink. And if you wish, cite a verse</b> as the source for this ruling, <b>as Reish Lakish says: From where</b> is it derived <b>that drinking is included in eating? It is</b> derived <b>from that</b> which <b>is stated: “And you shall eat before the Lord your God, in the place that He shall choose to cause His name to dwell there, the tithe of your grain, of your <i>tirosh</i>,</b> and of your oil” (Deuteronomy 14:23).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

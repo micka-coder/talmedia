@@ -1,0 +1,27 @@
+
+### Partie 1
+Ceci est <b>comme ce que nous avons appris</b> dans une mishna (167b) : Un scribe <b>peut rediger un acte</b> de vente <b>pour le vendeur meme si l'acheteur n'est pas avec lui</b> lorsque le vendeur presente sa demande. Dans un cas de ce genre, <b>lorsque cet acheteur</b> prend possession du terrain, l'acte est acquis ou qu'il se trouve. Et c'est ce que nous avons appris</b> dans une autre mishna (<i>Kiddushin</i> 26a) : <b>Les biens qui ne servent pas de garantie,</b> c'est-a-dire les biens meubles, peuvent etre <b>acquis</b> ensemble <b>avec les biens qui servent de garantie,</b> c'est-a-dire, un terrain, lorsque le terrain est acquis <b>par</b> moyen de donner <b>de l'argent, ou</b> par le biais de la remise d'un <b>document, ou</b> par le biais d'une prise de <b>possession.</b> Cela montre qu'un acte de vente peut etre transfere sans aucun acte d'acquisition effectue pour le document, et certainement par le biais de mots, ce qui presente une difficulte a l'opinion du Rav Ashi.
+
+### Partie 2
+La Guemara repond : L'acquisition d'un acte de vente <b>par le biais</b> d'une acquisition de terrain <b>est differente,</b> car elle s'apparente a une acquisition par le biais d'un objet, et non par le biais de mots. La raison en est <b>que l'argent, qui ne peut etre acquis par</b> <b>echange symbolique,</b> un acte d'acquisition pro forma effectuant le transfert de propriete d'un objet, peut neanmoins <b>etre acquis au moyen d'un terrain.</b>
+
+### Partie 3
+C'est <b>comme cet</b> incident <b>ou Rav Pappa avait</b> depose <b>douze mille dinars</b> aupres de bailees <b>a Bei Hozai. Il transfera</b> la propriete de l'argent a Bei Hozai <b>a</b> son agent <b>Rav Shmuel bar Aha par le biais du seuil de sa maison.</b> La Gemara ajoute : <b>Lorsque</b> Rav Shmuel bar Aha <b>arrivait</b> de Bei Hozai avec l'argent, Rav Pappa etait si heureux qu'il lui apporte son argent qu'il <b>sortait</b> jusqu'a <b>Tavakh pour</b> le saluer.</b>
+
+### Partie 4
+§ La mishna enseigne que lorsqu'on vend un navire, on a vendu divers autres objets ; <b>mais on n'a pas vendu les esclaves, ni les sacs d'emballage, ni les <i>antikei</i>.</b> Mais lorsqu'on dit a l'acheteur : Vous achetez le navire et tout ce qu'il contient, tous ces elements sont egalement vendus. La Gemara demande : <b>Quel</b> est le sens de <b><i>antikei</i> ? Rav Pappa repond :</b> Cela signifie <b>la marchandise qui se trouve sur</b> le navire. Cette marchandise n'est pas vendue avec le navire.
+
+### Partie 5
+<strong>MISHNA :</strong> Celui qui a <b>vendu un wagon [<i>hakkaron</i>] n'a pas vendu les mules</b> qui tirent le wagon. De meme, si quelqu'un <b>vend les mules, il n'a pas vendu le chariot.</b> Celui qui <b>vend un joug [<i>hatzemed</i>] n'a pas vendu les bœufs,</b> et celui qui <b>vend les bœufs n'a pas vendu le joug. Rabbi Yehuda dit : La</b> somme d'<b>argent indique</b> ce que l'on a vendu. <b>Comment cela ? </b> Si l'acheteur <b>dit au vendeur</b> : <b>Vends-moi ton joug pour deux cents dinars,</b> puisque <b>il est connu qu'un joug ne se vend pas</b> <b>pour deux cents dinars</b> il avait clairement l'intention d'acheter aussi les bœufs. <b>Et les rabbins disent : La</b> somme d'<b>argent n'est pas une preuve.</b>
+
+### Partie 6
+<strong>GEMARA:</strong> <b>Rav Tahlifa, de l'Ouest,</b> c'est-a-dire d'Eretz Yisrael, <b>a enseigne</b> une <i>baraita</i> <b>devant Rabbi Abbahou.</b> Si quelqu'un <b>vend un chariot, il a vendu les mules</b> en meme temps que lui. Rabbi Abbahou a demande : <b>Mais n'avons-nous pas appris</b> dans la mishna que <b>il n'a pas vendu</b> les mules ? Rav Tahlifa <b>lui dit :</b> Dois-je <b>effacer</b> cette <i>baraita</i>, car elle est incorrecte ? Rabbi Abbahou <b>lui repondit : Non,</b> ne l'effacez pas ; vous devez <b>expliquer</b> que <b>votre <i>baraita</i></b> fait reference a un cas <b>ou</b> les mules <b>sont attachees a</b> la charrette. Dans cette situation, celui qui achete le wagon recoit egalement les mules.
+
+### Partie 7
+La mishna enseigne : Celui qui <b>vend un joug n'a pas vendu les bœufs;</b> et les rabbins et Rabbi Yehuda sont en desaccord sur le fait que la somme d'argent prouve exactement ce qui a ete vendu. La Guemara analyse leur desaccord : <b>Quelles sont les circonstances ? Si nous disons</b> que la mishna fait reference a un endroit <b>ou l'on appelle un joug : <i>Tzimda</i>, et</b> qu'on appelle <b>bœuf</b> : <i>Bakar</i>,</b> il est <b>evident</b> que <b>il lui a vendu un joug</b> et <b>ne lui a pas vendu</b> le <b>bœuf. Mais</b> si la mishna fait reference a un endroit <b>ou l'on appelle aussi les bœufs : <i>Tzimda</i>,</b> alors le vendeur <b>lui a tout vendu.</b>
+
+### Partie 8
+La Gemara explique : <b>Non,</b> leur dispute est <b>necessaire dans un endroit ou ils appellent un joug : <i>Tzimda</i>, et</b> appellent <b>bœuf : <i>Bakar</i>, mais il y a aussi</b> ceux <b>qui appellent bœufs : <i>Tzimda</i>.</b> Puisqu'il n'est pas clair ce que l'on entend par le terme : <i>Tzimda</i>, <b>Rabbi Yehuda soutient</b> que <b>la</b> somme d'<b>argent indique</b> s'il a achete un joug ou des bœufs, <b>et les rabbins soutiennent</b> que <b>la</b> somme d'<b>argent ne sert pas de <b>preuve.</b> La Gemara demande : <b>Mais si le</b> montant de la <b>monnaie ne sert pas</b> de <b>preuve,</b> alors dans le cas ou l'acheteur a paye deux cents dinars et n'a recu qu'un joug, <b>laissons</b> la <b>transaction etre annulee.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

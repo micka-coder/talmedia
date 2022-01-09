@@ -1,0 +1,54 @@
+
+### Part 1
+the demon <b>saw</b> the members of Rav Pappa’s household <b>pouring water from the mouth of the pitcher</b> before drinking from it. The demon <b>said</b> to them: <b>If I had known that you regularly do this, I would not have delayed.</b> I would have brought the water straight from the river, knowing you would pour out the foul waters.
+
+### Part 2
+§ <b>When Rav Dimi came</b> from Eretz Yisrael <b>he said:</b> Due to the failure to wash with <b>the first waters,</b> they ultimately <b>fed</b> a Jew <b>pig meat.</b> This case involved a storekeeper who would sell different meat to his Jewish and gentile customers. When a Jew who came to eat with him neglected to wash before eating, the storekeeper assumed he was a gentile and fed him pig meat.
+
+### Part 3
+And due to the failure to wash with <b>final</b> waters <b>a woman</b> was ultimately <b>divorced from her husband.</b> In this incident, a host who had stolen his guests’ money had lentils on his mustache from a previous meal because he had not washed his hands and mouth after eating. Realizing he had eaten lentils that day, his victims approached the man’s wife and said that her husband had instructed them to tell her to return their money. They then claimed that the man told them to tell her that he had eaten lentils that day as proof that they were telling the truth. They thereby fooled his wife into thinking he wanted her to give their money back. Out of anger, the host divorced his wife.
+
+### Part 4
+<b>When Ravin came</b> from Eretz Yisrael <b>he said</b> the statement slightly differently: Due to the failure to wash with <b>first</b> waters, they <b>fed</b> a Jew meat from <b>an animal carcass,</b> and the failure to wash with <b>final</b> waters <b>killed a person,</b> as in the second incident the host was so angry with his wife that he killed her. <b>Rav Naḥman bar Yitzḥak said: And your mnemonic</b> to remember which Sage said which version is: <b>Rav Dimi came</b> and <b>divorced her</b> from her husband, i.e., according to his version she was divorced, and <b>Ravin came</b> and <b>killed her,</b> since in his version the husband killed his wife.
+
+### Part 5
+<b>Rabbi Abba would teach one of these</b> versions involving first waters <b>and one of them</b> with regard to final waters, and in both cases he taught <b>the more severe</b> version, i.e., he specified the meat of a pig and that the husband killed his wife.
+
+### Part 6
+A disagreement <b>was stated</b> with regard to <b>water heated by fire: Ḥizkiyya says</b> that <b>one may not wash</b> his <b>hands with</b> such water, <b>and Rabbi Yoḥanan says</b> that <b>one may wash</b> his <b>hands with it. Rabbi Yoḥanan said: I asked Rabban Gamliel, son of Rabbi</b> Yehuda HaNasi, about this <i>halakha</i>, <b>and</b> he was one who would <b>eat</b> only in a state of <b>ritual purity</b> and was therefore careful about washing his hands; <b>and he said to me</b> that <b>all the great men of the Galilee would do so,</b> i.e., wash their hands in heated water.
+
+### Part 7
+Likewise, with regard to <b>the hot springs of Tiberias, Ḥizkiyya says</b> that <b>one may not wash</b> his <b>hands with</b> water from them before eating, <b>but</b> if there are forty <i>se’a</i>, the requisite size of a ritual bath, then <b>one may immerse the hands</b> directly <b>in them,</b> and this is effective for the ritual of washing the hands before a meal. <b>And Rabbi Yoḥanan says</b> that an impure person <b>may immerse his entire body in</b> such water to become pure, <b>but</b> one may still <b>not</b> use it for the immersion of part of his body, such as <b>his face, hands, and feet,</b> as this immersion is not considered equivalent to washing the hands.
+
+### Part 8
+The Gemara asks: <b>Now</b> that it has been said that one <b>may immerse his entire body in</b> the hot springs of Tiberias, is it <b>not all the more so</b> permitted for <b>his face, hands, and feet? Rav Pappa said:</b> When the water in the hot springs stands <b>in place, everyone,</b> both Ḥizkiyya and Rabbi Yoḥanan, <b>agrees that it is permitted</b> to immerse one’s hands in it. Likewise, <b>everyone agrees that</b> to <b>take from</b> these waters <b>in a vessel</b> and wash one’s hands from it <b>is prohibited. They disagree when one draws</b> the waters <b>through a ditch.</b> One <b>Sage,</b> Rabbi Yoḥanan, <b>holds</b> that <b>we decree</b> against the use of <b>ditch</b> water <b>due to</b> the concern that one might come to use water in <b>a vessel, and</b> one <b>Sage,</b> Ḥizkiyya, <b>holds</b> that <b>we do not decree</b> against it.
+
+### Part 9
+The Gemara comments: This dispute is <b>like</b> a dispute between <b><i>tanna’im</i>,</b> as it was taught: When <b>water that has ceased to be fit for drinking</b> even <b>by an animal</b> is <b>in vessels,</b> it is <b>unfit</b> for washing the hands, but when it is <b>in the ground</b> it is <b>fit</b> for immersion, like a ritual bath. <b>Rabbi Shimon ben Elazar says: Even</b> when the water is <b>in the ground,</b> one <b>may immerse his entire body in it, but</b> he may <b>not</b> immerse <b>his face, hands, and feet.</b>
+
+### Part 10
+As above, one might ask: <b>Now</b> that one <b>may immerse his entire body in</b> the water, is it <b>not all the more so</b> the case that one may immerse <b>his hands and feet</b> in it? <b>Rather,</b> must it <b>not</b> be referring to a case <b>when one draws</b> the waters <b>through a ditch? And</b> if so, <b>they disagree about this:</b> One <b>Sage,</b> Rabbi Shimon ben Elazar, <b>holds</b> that <b>we decree</b> against the use of <b>ditch</b> water <b>due to</b> concern that one may come to use <b>a vessel, and</b> one <b>Sage,</b> the first <i>tanna</i> of that <i>baraita</i>, <b>holds</b> that <b>we do not decree</b> against it.
+
+### Part 11
+§ <b>Rav Idi bar Avin says</b> that <b>Rav Yitzḥak bar Ashiyan says:</b> The obligation of <b>washing hands</b> before eating <b>non-sacred</b> food is <b>due to an ancillary</b> decree on account of <b><i>teruma</i>,</b> the portion of produce designated for the priest, which must be consumed in a state of ritual purity. By rabbinic decree, one’s hands are considered impure with second-degree ritual impurity, as they may have touched impure items. Therefore, they render <i>teruma</i> impure. Consequently, priests who partake of <i>teruma</i> are obligated to wash their hands first. The Sages therefore decreed that all must wash their hands even before eating non-sacred food, so that people not become accustomed to eating without washing their hands, which would in turn lead the priests to partake of <i>teruma</i> without washing their hands.
+
+### Part 12
+<b>And</b> the obligation is <b>further due to</b> its being <b>a mitzva.</b> The Gemara asks: <b>What mitzva</b> does it involve? <b>Abaye says:</b> It is <b>a mitzva to listen to</b> and obey <b>the statements of the Sages,</b> who instituted this washing of the hands. <b>Rava says:</b> It is <b>a mitzva to listen to the statement of Rabbi Elazar ben Arakh, as it is written</b> with regard to a man who experiences a gonorrhea-like discharge [<i>zav</i>]: <b>“And whomever he that has the issue touches, without having rinsed his hands in water,”</b> he contracts ritual impurity (Leviticus 15:11), and <b>Rabbi Elazar ben Arakh says: From here the Sages based washing of the hands</b> upon a verse <b>from the Torah.</b>
+
+### Part 13
+<b>Rava said to Rav Naḥman: From where</b> is this <b>inferred?</b> How can this verse, which concerns a <i>zav</i>, be interpreted as referring to washing the hands before a meal? Rava explains: <b>As it is written: “Without having rinsed his hands in water.” Consequently,</b> one could infer that if he <b>rinsed</b> his hands the <i>zav</i> becomes <b>ritually pure. But</b> this cannot be correct, as verses elsewhere prove that a <i>zav</i> <b>requires</b> the <b>immersion</b> of his entire body. <b>Rather, this</b> is what the verse <b>is saying: And</b> there is <b>another</b> type of person <b>who,</b> if he <b>has not rinsed</b> his hands in water, is considered like one who is <b>impure.</b> The verse thereby serves as the basis for washing the hands.
+
+### Part 14
+<b>Rabbi Elazar says</b> that <b>Rabbi Oshaya says:</b> The Sages <b>said</b> that <b>washing of the hands</b> before eating <b>fruit</b> is mandatory <b>only due to cleanliness.</b> The Gemara comments: <b>They understood from this</b> statement that <b>there is no</b> true <b>obligation</b> to wash the hands before eating fruit, <b>but there is a mitzva</b> to do so. <b>Rava said to them:</b> This practice is <b>not an obligation nor a mitzva, but</b> merely <b>optional. And</b> the Gemara notes that Rava <b>disagrees with Rav Naḥman</b> in this regard, <b>as Rav Naḥman said: One who washes his hands</b> before eating <b>fruit is nothing other than</b> one <b>of the arrogant,</b> i.e., it is actually prohibited to do so.
+
+### Part 15
+<b>Rabba bar bar Ḥana said: I was standing before Rabbi Ami and Rabbi Asi</b> when attendants <b>brought a basket of fruit before them, and they ate and did not wash their hands. And they did not give me anything</b> to eat, to enable me to join the <i>zimmun</i>, the quorum required for communal Grace after Meals, <b>and they each recited a blessing</b> after eating, <b>separately.</b> One may <b>learn three</b> <i>halakhot</i> <b>from</b> this incident. <b>Learn from it</b> that <b>there is no washing of the hands</b> before <b>fruit. And learn from it</b> that <b>one does not issue a <i>zimmun</i> on fruit,</b> i.e., the <i>halakha</i> that when three people eat together, one leads the Grace after Meals does not apply when they ate fruit. <b>And</b> finally, <b>learn from it</b> that if only <b>two</b> people <b>ate,</b> it is <b>a mitzva</b> for them <b>to separate,</b> i.e., each should recite the blessing after eating for himself.
+
+### Part 16
+The Gemara notes: <b>This</b> <i>halakha</i> <b>is also taught</b> in a <i>baraita</i>: If only <b>two</b> individuals <b>ate,</b> it is <b>a mitzva</b> for them <b>to separate. In what</b> case <b>is this statement said?</b> It is said <b>when they were both scribes,</b> i.e., Torah scholars, who know how to recite Grace after Meals properly. <b>But</b> if <b>one</b> of them was <b>a scribe and one</b> was <b>an ignoramus,</b> the <b>scribe recites Grace</b> after Meals <b>and</b> the <b>ignoramus fulfills</b> his obligation by listening to the scribe.
+
+### Part 17
+<b>The Sages taught</b> in a <i>baraita</i>: In <b>washing of the hands for</b> consumption of <b>non-sacred</b> food, one must pour the water on the area that extends <b>until the joint</b> of the fingers. In washing hands <b>for</b> consumption of <b><i>teruma</i>,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

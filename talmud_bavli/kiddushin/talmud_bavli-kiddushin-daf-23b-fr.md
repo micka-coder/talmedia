@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>Selon</b> l'opinion de <b>Rabbi Shimon ben Elazar,</b> dans le cas d'un <b>esclave cananeen, quelle est</b> la <i>halakha</i> par rapport a la possibilite <b>que</b> l'esclave <b>puisse designer un agent pour accepter son acte</b> de manumission <b>de la main de son maitre ? </b> Est-ce qu'on dit que <b>puisque</b> Rabbi Shimon ben Elazar <b>derive</b> l'analogie verbale de <b>"<i>lah</i>"</b> et <b>"<i>lah</i>" d'une femme,</b> qui enseigne qu'un esclave peut etre libere avec un document, donc, un esclave est aussi <b>comme une femme</b> en ce qu'il peut lui aussi designer un agent ?
+
+### Partie 2
+<b>Ou peut-etre,</b> dans le cas d'une <b>femme, comme elle peut accepter elle-meme son acte de divorce</b>, <b>elle peut aussi nommer un agent,</b> alors que <b>un esclave</b> est different, <b>car il ne peut pas accepter lui-meme son acte</b> de manumission, et par consequent <b>il ne peut pas non plus nommer un agent. Apres avoir souleve ce dilemme,</b> Rabba <b>le resout par la suite :</b> Puisque Rabbi Shimon ben Elazar tire l'analogie verbale de <b>"<i>lah</i></b> et de <b>"<i>lah</i>" d'une femme,</b> un esclave est egalement traite <b>comme une femme</b> en ce qui concerne sa capacite a designer un mandataire.
+
+### Partie 3
+La Gemara commente : <b>Mais</b> considerez <b>ce que Rav Huna, fils de Rav Yehoshua, dit</b> en ce qui concerne le service dans le Temple : <b>Ces pretres sont les agents du Misericordieux,</b> c'est-a-dire qu'ils accomplissent le service du Temple en tant qu'emissaires de Dieu. <b>Comme s'il vous venait a l'esprit</b> qu'ils sont nos agents, y a-t-il quelque chose que nous ne pouvons pas faire mais que</b> les agents <b>peuvent faire</b> en notre nom ? Puisqu'il est interdit aux non-pretres de servir dans le Temple, les pretres ne peuvent etre consideres comme les agents du peuple juif.
+
+### Partie 4
+Cette affirmation conduit a la question suivante : <b>Mais</b> est-il <b>non</b> vrai qu'un agent peut etre designe pour accomplir une tache qui ne peut etre realisee par celui qui l'a envoye ? <b>Mais</b> selon la conclusion de Rava, il y a le cas d'un <b>esclave, qui est incapable d'accepter son acte</b> de manumission <b>lui-meme, et</b> pourtant <b>il peut designer un agent</b> pour le recevoir a sa place.
+
+### Partie 5
+La Gemara rejette cette suggestion : <b>Et</b> cela <b>n'est pas ainsi.</b> La difference entre les cas est que <b>un Israelite n'est pas du tout implique dans les <i>halakhot</i> d'offrandes,</b> car un non-pretre n'est jamais autorise a sacrifier des offrandes. En revanche, <b>un esclave est</b> quelque peu <b>implique dans les factures</b> de manumission, <b>comme cela est enseigne</b> dans une <i>baraita</i> : <b>Il semble qu'un esclave puisse accepter le billet</b> de manumission <b>d'un autre</b> esclave <b>de la main du maitre de</b> cet <b>autre</b> esclave. <b>Mais</b> il <b>ne peut</b> accepter un acte de manumission <b>de la main de son propre maitre,</b> qui veut affranchir un autre de ses esclaves. Dans ce cas, il n'y a pas d'acquisition, car le document n'a pas quitte la propriete du maitre, puisque tout ce qui est donne a un esclave est considere comme la propriete de son maitre. En ce qui concerne la question qui nous occupe, etant donne qu'un esclave peut accepter un acte de manumission, du moins au nom d'un autre esclave, les <i>halakhot</i> de ces documents le concernent, et il peut donc designer un agent pour recevoir son acte de manumission.
+
+### Partie 6
+§ La mishna enseigne que selon Rabbi Meir, l'esclave peut etre libere au moyen d'argent donne par d'autres, tandis que les rabbins soutiennent qu'il peut etre libere au moyen d'argent donne par lui-meme, <b>a condition que l'argent</b> qu'il donne <b>appartienne a d'autres.</b> La Guemara suggere : <b>Devons-nous dire</b> que <b>ils sont en desaccord sur ce</b> principe, et <b>que Rabbi Meir soutient : Il n'y a pas d'acquisition pour un esclave sans son maitre,</b> c'est-a-dire qu'un esclave n'a pas de propriete personnelle et donc son maitre possede immediatement tout ce que l'esclave acquiert, ce qui signifie qu'un esclave ne peut pas recevoir lui-meme son argent de rachat. <b>Et</b> de meme <b>il n'y a pas d'acquisition pour une femme sans son mari. Et les rabbins soutiennent : Il y a acquisition pour un esclave sans son maitre, et il y a acquisition pour une femme sans son mari.</b>
+
+### Partie 7
+<b>Rabba dit</b> que <b>Rav Sheshet a dit : Tout le monde est d'accord</b> qu' <b>il n'y a pas d'acquisition pour un esclave sans son maitre, et il n'y a pas d'acquisition pour une femme sans son mari, et</b> donc, <b>De quoi s'agit-il ici ?</b> Il s'agit d'un cas unique dans lequel un autre</b> individu <b>transfere cent dinars a</b> un esclave <b>et lui dit :</b> Je te les donne <b>a condition que ton maitre n'ait aucun droit dessus.</b>
+
+### Partie 8
+La Guemara clarifie les deux avis selon cette explication. <b>Rabbi Meir soutient</b> que <b>lorsque</b> ce tiers <b>dit a</b> l'esclave cananeen : <b>Acquerir</b> l'argent, l'<b>esclave l'acquiert</b> et <b>son maitre</b> l'<b>acquiert</b> immediatement. <b>Et quand il lui dit : A la condition</b> que ton maitre n'ait aucun droit sur elle, <b>il ne lui a rien dit,</b> c'est-a-dire que sa condition est sans effet. <b>Et les rabbins soutiennent</b> que <b>puisqu'il lui a dit : A la condition, sa condition est effective</b> et le maitre n'acquiert pas l'argent. Par consequent, l'esclave possede cet argent, avec lequel il peut se racheter.
+
+### Partie 9
+<b>Et Rabbi Elazar dit :</b> Dans <b>un cas comme celui-ci, tout le monde s'accorde a dire que</b> l'<b>esclave acquiert</b> l'argent, <b>et son maitre</b> acquiert automatiquement <b>ce qui a ete acquis par l'esclave. <b>Et de quoi s'agit-il ici,</b> dans la dispute entre les Sages et Rabbi Meir ? Il s'agit d'un cas <b>ou une autre</b> personne lui <b>transfere cent dinars et lui dit : A condition que tu t'emancipes avec.</b>
+
+### Partie 10
+La Gemara explique le differend selon cette interpretation. <b>Rabbi Meir soutient</b> que <b>lorsqu'il lui a dit : Acquerir</b> l'argent, l'<b>esclave l'acquiert</b>, <b>et son maitre</b> lui <b>acquiert</b> immediatement les cent dinars. <b>Et quand il lui a dit : A la condition, il ne lui a rien dit. Et les rabbins soutiennent : Il</b> ne transfere <b>pas</b> l'argent <b>a</b> l'esclave lui-meme, <b>car il lui a dit seulement : A condition que tu sois emancipe avec.</b> En d'autres termes, il l'a donne a l'esclave uniquement pour qu'il remette l'argent a son maitre pour son emancipation. Sa condition est valable et l'esclave est emancipe.
+
+### Partie 11
+<b>Et</b> la Guemara <b>souleve une contradiction</b> entre une declaration <b>de Rabbi Meir et</b> une seconde declaration <b>de Rabbi Meir, et</b> elle <b>souleve une contradiction entre</b> une declaration des <b>Rabbis</b> et une seconde declaration des <b>Rabbis. Comme il est enseigne</b> dans une <i>baraita</i> :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

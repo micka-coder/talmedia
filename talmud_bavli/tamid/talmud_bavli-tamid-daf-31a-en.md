@@ -1,0 +1,30 @@
+
+### Part 1
+When the priest flayed the hide of the daily offering after its slaughter, <b>he would not break the</b> animal’s <b>leg</b> in the typical manner of flaying an animal; <b>rather, he punctures</b> the leg <b>from within</b> each <b>knee</b> of the hind leg <b>and suspends</b> the animal <b>by</b> placing these holes on two hooks, in order to flay the animal’s hide.
+
+### Part 2
+The priest began <b>flaying</b> from the top of the inverted animal, <b>descending until</b> he would <b>reach</b> the hide <b>of the breast.</b> Once <b>he reached the breast, he severed the</b> lamb’s <b>head and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp. Next <b>he severed the</b> four <b>legs</b> below the knee <b>and gave them to</b> the priest <b>who won</b> the right to take <b>them</b> up to the ramp. <b>He completed the flaying</b> of the remaining hide from the breast down, and then the priest <b>cut the heart and drained its blood.</b>
+
+### Part 3
+Next the priest <b>severed</b> the remaining upper parts of <b>the forelegs and gave them to</b> the priest <b>who won</b> the right to take <b>them</b> up to the ramp. Afterward <b>he moved up to</b> the remaining upper part of <b>the right</b> hind <b>leg, severed it, and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp; <b>and</b> the animal’s <b>two testicles</b> were cut along <b>with</b> the right leg, leaving the animal suspended by its left hind leg. Then the priest <b>tore</b> open the animal’s midsection, <b>resulting</b> in the innards of <b>the entire</b> animal being <b>exposed before him.</b>
+
+### Part 4
+<b>He took the fats and placed</b> them <b>on the place of slaughter</b> on <b>the</b> animal’s <b>head above</b> it, to conceal the place where it was severed while the priest would take the head to the altar. Then the priest <b>took the innards and gave them to</b> the priest <b>who won</b> the right to take <b>them</b> up to the ramp, in order <b>to rinse them</b> first. <b>And</b> with regard to <b>the stomach,</b> in which there is a significant amount of waste, the priests would <b>rinse it in the rinsing site</b> located in the south of the courtyard, east of the Gate of the Water, <b>and they rinsed it as much it required. And</b> with regard to <b>the innards,</b> the priests would <b>rinse them three times at a minimum, on</b> the <b>marble tables that</b> were positioned <b>between the pillars</b> in the slaughterhouse.
+
+### Part 5
+The priest then <b>took the knife and separated the lung from the liver, and</b> the <b>finger-</b>like protrusion from the lower edge <b>of the liver,</b> also known as the lobe of the liver, <b>from the liver. And</b> he <b>would not move</b> any one of the organs <b>from its place.</b> He would leave the lung attached to the neck, the lobe attached to the haunch, and the liver attached to the right flank. The priest would <b>puncture</b> around <b>the breast,</b> separating it from the flanks and the ribs, <b>and</b> he <b>gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp.
+
+### Part 6
+He then <b>moved up to the right flank</b> and <b>would cut</b> it and separate it from the animal’s body. <b>And</b> he would continue to cut, <b>descending until</b> he would reach <b>the spinal column, and</b> the priest <b>would not touch the spinal column,</b> leaving the spine intact and attached to the left flank. He would continue cutting <b>until he reached</b> the space <b>between the two narrow ribs</b> near the neck, leaving them in place. The priest <b>cut</b> the right flank, separating it from the body of the animal, <b>and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp. <b>And the liver</b> was <b>suspended from it.</b>
+
+### Part 7
+The priest then <b>came to the cud. He left</b> attached <b>to it,</b> in their entirety, the <b>two</b> narrow <b>ribs from here,</b> the right side, <b>and</b> the <b>two</b> narrow <b>ribs from there,</b> the left side. <b>He cut</b> the cud <b>and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp; and <b>the windpipe, the heart, and the lung</b> were <b>suspended from it.</b>
+
+### Part 8
+<b>He came to</b> cut <b>the left flank</b> of the body and <b>left</b> attached <b>to it two narrow ribs above,</b> near the haunch, as the animal was suspended upside down, <b>and two narrow ribs below,</b> near the cud. <b>And he</b> also <b>did that with its counterpart,</b> the right flank, <b>resulting</b> in <b>two</b> narrow ribs <b>in each</b> flank <b>above and two</b> narrow ribs <b>in each</b> flank <b>below.</b>
+
+### Part 9
+<b>He cut</b> the left flank <b>and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp, <b>and the spinal column</b> was <b>with it, and the spleen</b> was <b>suspended from it. And</b> the left flank <b>was greater,</b> i.e., the larger of the two, because it included the spine, <b>but</b> they <b>referred</b> to <b>the right</b> flank as the <b>greater</b> one, <b>as</b> in addition to the flank itself, <b>the liver was suspended from it. He came to the haunch, cut it, and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp. And <b>the tail, and the finger-</b>like protrusion <b>of the liver, and the two kidneys</b> were <b>with it. He took</b> the remaining upper part of <b>the left</b> hind <b>leg, cut it, and gave it to</b> the priest <b>who won</b> the right to take <b>it</b> up to the ramp. This <b>resulted</b> in <b>all of</b> the nine priests who won the rights to take the limbs up to the ramp <b>standing in line, and the limbs</b> were <b>in their hands.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

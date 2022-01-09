@@ -1,0 +1,54 @@
+
+### Partie 1
+Meme si la carcasse d'un oiseau casher <b>n'a pas encore ete approchee</b> d'etre avalee, elle est toujours <b>non consideree comme</b> si une <b>action necessaire n'a pas encore</b> ete effectuee, et une olive-bulk est suffisante pour transmettre l'impurete aux aliments et aux boissons.
+
+### Partie 2
+Rabbi Hiyya bar Abba <b>a souleve une objection a</b> Rabbi Abba bar Shmuel, en se basant sur une mishna (<i>Teharot</i> 1:1) : <b>Treize questions ont ete enoncees a propos de la carcasse d'un oiseau casher, et celle-ci en fait partie : </b> Pour etre susceptible d'impurete en tant qu'aliment, il <b>necessite</b> l'<b>intention</b> d'une personne pour qu'il soit mange ; <b>et il n'a pas besoin</b> d'etre <b>rendu susceptible</b> d'une telle impurete par contact avec un liquide ; <b>et il transmet l'impurete rituelle de l'aliment dans</b> la quantite d'<b>un paquet d'œufs. </b> Conformement a l'avis de qui est cette mishna ? <b>Quoi, n'est-ce pas</b> l'avis de <b>Rabbi Meir ?</b> Si c'est le cas, il soutient qu'un culot d'œuf d'une carcasse d'oiseau casher est necessaire pour transmettre l'impurete.
+
+### Partie 3
+La Gemara repond : <b>Non,</b> la mishna <b>est</b> l'avis des <b>rabbins.</b>
+
+### Partie 4
+La Gemara conteste : <b>Mais la premiere clause</b> de cette mishna <b>enseigne :</b> Pour etre susceptible d'impurete en tant qu'aliment, il <b>necessite</b> l'<b>intention</b> d'une personne de le manger <b>et il n'a pas besoin</b> d'etre <b>rendu susceptible</b> par contact avec un liquide. <b>Et</b> de <b>qui apprends-tu ce raisonnement ?</b> De <b>Rabbi Meir,</b> comme cela a ete enseigne dans le <i>baraita</i> (105a). <b>Et puisque la premiere clause</b> est l'opinion de <b>Rabbi Meir,</b> il s'ensuit que <b>la derniere clause</b> est <b>aussi</b> l'opinion de <b>Rabbi Meir.</b>
+
+### Partie 5
+La Gemara repond : <b>Les cas sont-ils comparables ?</b> Les deux clauses doivent-elles etre l'avis de la meme <i>tanna</i> ? <b>Ce cas</b> est <b>comme il est, et ce</b> cas est <b>comme il est.</b>
+
+### Partie 6
+La Guemara conteste : <b>Mais</b> on peut encore deduire cela <b>du fait <b>que la derniere clause</b> de cette mishna <b>enseigne : L'abattage ou le pincement</b> de la nuque <b>d'un oiseau offert <b>le purifie de son impurete,</b> c'est-a-dire, l'empeche d'assumer le statut impur d'une carcasse, meme s'il est trouve qu'il <b>a une blessure qui l'aurait fait mourir dans les douze mois [<i>tereifa</i>].</b> Et de <b>qui as-tu appris ce raisonnement ?</b> De <b>Rabbi Meir</b> (voir 67a). Se pourrait-il que <b>la premiere clause et la derniere clause</b> representent l'opinion de <b>Rabbi Meir, et que la clause du milieu</b> represente l'opinion des <b>rabbebes ?</b>
+
+### Partie 7
+La Guemara repond : <b>Oui, la premiere clause et la derniere clause</b> representent l'opinion du <b>Rabbi Meir, et la clause du milieu</b> represente l'opinion des <b>rabbins.</b>
+
+### Partie 8
+§ <b>Rav Hamnuna dit a Rabbi Zeira : Ne t'assieds pas avant de me dire</b> la resolution de <b>cette question :</b> En general, lorsqu'un aliment touche une source primaire d'impurete rituelle apres avoir ete rendu susceptible d'impurete par le contact avec un liquide, il contracte une impurete de premier degre. S'il touche ensuite un autre aliment, il lui transmet une impurete de second degre. <b>La carcasse d'un oiseau casher, selon</b> l'avis de <b>Rabbi Meir,</b> transmet l'impurete aux aliments sans etre rendue susceptible. Doit-on <b>compter ses premier et second</b> degres d'impurete lorsqu'elle touche un aliment ou une boisson, en la traitant comme une source primaire d'impurete ? <b>Ou</b> peut-etre que l'on <b>ne compte pas les premier et second</b> degres d'impurete, mais qu'on le traite plutot comme un aliment avec une impurete de premier degre, qui transmet une impurete de second degre ?
+
+### Partie 9
+Rabbi Zeira lui <b>dit : Partout ou</b> un element <b>peut rendre une personne impure par contact,</b> il est considere comme une source primaire d'impurete, et on <b>compte ses premier et second</b> degres d'impurete. Et <b>lorsqu'elle ne peut rendre une personne impure par contact,</b> on <b>ne compte pas ses premier et second</b> degres d'impurete. Puisque la carcasse d'un oiseau casher ne rend pas une personne impure par contact, mais seulement en etant avalee, elle est traitee comme un aliment avec un premier degre d'impurete.
+
+### Partie 10
+<b>Rabbi Zeira a pose un dilemme a Rabbi Ami bar Hiyya, et certains disent a Rabbi Avin bar Kahana</b> concernant <b>ce que nous avons appris</b> dans une mishna (<i>Teharot</i> 8:8) : <b>Les liaisons entre les aliments par un liquide,</b> c'est-a-dire les liquides en contact avec deux aliments, situation qui fait que l'impurete d'un aliment se transmet a l'autre et que leurs tailles se combinent vers la mesure minimale de transmission de l'impurete, sont considerees comme <b>une liaison pour</b> l'impurete <b>lente</b> des aliments, <b>mais</b> ne sont <b>pas</b> considerees comme <b>une liaison pour une impurete suffisamment severe</b> pour etre transmise a un etre humain. Si deux morceaux de carcasse animale sont relies par un liquide, ils ne se combinent pas pour former la mesure minimale pour transmettre leur impurete a une personne, mais ils peuvent transmettre l'impurete aux aliments.
+
+### Partie 11
+Rabbi Zeira demande : Si ces deux morceaux de carcasse animale entrent en contact avec un aliment, doit-on <b>compter ses premier et second</b> degres d'impurete et traiter ces morceaux comme une source primaire d'impurete, de sorte que l'aliment transmettra une impurete de second degre a d'autres aliments ? <b>Ou</b> doit-on <b>ne pas compter ses premier et second</b> degres d'impurete, et traiter la carcasse de l'animal comme un aliment avec une impurete de premier degre ?
+
+### Partie 12
+Rabbi Zeira lui <b>dit : Partout ou</b> un objet <b>peut rendre une personne impure,</b> on <b>compte ses premier et second</b> degres d'impurete. Et partout ou il <b>ne peut pas rendre une personne impure,</b> on <b>ne compte pas son premier et son deuxieme</b> degre d'impurete. Puisque les morceaux de carcasse ne peuvent pas transmettre leur impurete a une personne, ils sont traites comme des aliments avec un premier degre d'impurete.
+
+### Partie 13
+§ La mishna enseigne : Lorsque <b>ces</b> pretres <b>et ces</b> pretres <b>sont sortis,</b> tous leurs vetements ont ete rendus rituellement impurs. La Gemara explique : <b>D'ou viennent ces questions</b> ? <b>Comme l'ont enseigne les Sages</b> dans une <i>baraita</i> : Le verset dit a propos du taureau et du bouc qui sont brules a Yom Kippour : "Ils seront transportés hors du camp" (Lévitique 16:27). <b>La,</b> ailleurs, le verset <b>dit</b> que ces taureaux et ces boucs sont brules <b>en dehors de trois camps,</b> ceux du Tabernacle, des Levites et des Israelites, alors que <b>ici,</b> le verset dit seulement qu'ils sont portes en dehors d'<b>un seul camp,</b> c'est-a-dire le Tabernacle. Cela sert <b>a vous dire : Une fois</b> l'offrande <b>sortie d'un camp,</b> celui qui la porte <b>rend</b> ses <b>vetements impurs,</b> comme l'indique le verset suivant : "Et celui qui les brA "lera lavera ses vêtements" (Lévitique 16:28).
+
+### Partie 14
+La Guemara explique plus loin : <b>Et d'ou tirons-nous</b> <b>cette</b> <i>halakha</i> <b>elle-meme,</b> que les taureaux et les boucs sont brules en dehors des trois camps ? <b>Comme l'ont enseigne les Sages</b> dans une <i>baraita</i> : Il est dit a propos du taureau apporte comme offrande pour le peche du Grand Pretre : <b>"Meme le taureau entier, il le portera hors du camp</b> dans un lieu pur, ou la cendre est repandue, et il le brulera" (Levitique 4:12), ce qui signifie qu'il doit le porter <b>hors</b> des <b>trois camps. Dites-vous</b> qu'il le porte <b>en dehors</b> des <b>trois camps, ou</b> est-il tenu de le porter en dehors <b>d'un seul camp ?</b>
+
+### Partie 15
+<b>Lorsque</b> le verset <b>declare a propos du taureau</b> apporte comme <b>offrande de peche communautaire</b> : "Il portera le taureau <b>hors du camp,</b> et le brulera comme il a brule le premier taureau" (Levitique 4:21), cela necessite une explication, <b>car il n'est pas necessaire</b> que le verset <b>declare</b> "hors du camp," <b>puisqu'il est deja indique</b> a la fin de ce meme verset : <b>"Et il le brulera comme il a brule le premier taureau,</b> ce qui indique que toutes les <i>halakhot</i> du taureau apporte comme offrande pour le peche d'un Grand Pretre s'appliquent au taureau apporte comme offrande pour le peche communautaire. Que signifie donc le verset lorsqu'il dit "hors du camp" ? <b>Pour lui donner un second camp,</b> c'est-a-dire qu'il indique qu'il doit etre retire non seulement du camp de la Presence divine, correspondant au Temple, mais aussi du camp des Levites, correspondant au Mont du Temple.
+
+### Partie 16
+Et <b>quand</b> un autre verset <b>dispose a propos de</b> l'enlevement de <b>la cendre:</b> "Il otera ses vetements, en revetira d'autres, et emportera la cendre <b>hors du camp</b> dans un lieu pur" (Levitique 6 : 4), ce verset necessite egalement une explication, <b>car il n'est pas necessaire</b> que le verset <b>l'indique</b>, <b>puisque c'est deja indique</b> en ce qui concerne le taureau apporte comme offrande pour le peche d'un Grand Pretre : A "A Il portera le taureau entier hors du camp, dans un lieu pur, oA¹ l'on verse la cendre, et il le brA "lera sur du bois au feu ; <b>lA oA¹ la cendre est versée, il sera brA "lé"</b> (Léviticus 4:12). La répétition de" hors du camp" indique qu"?il est demandé <b>de lui donner un troisième camp,</b> c"?est-A -dire d"?enseigner qu"?il est brA "lé lorsqu"?il est hors du camp israélien, ce qui correspond A la terre hors des murs de Jérusalem.
+
+### Partie 17
+La Guemara demande : <b>Et que fait Rabbi Shimon de cette</b> phrase, enoncee a propos du taureau et du bouc de Yom Kippour : <b>"Hors du camp"</b> (Levitique 16:27), etant donne qu'il considere que les vetements ne deviennent pas impurs tant que l'offrande n'est pas brulee ? La Guemara repond : <b>Il l'exige pour</b> ce <b>qui est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer dit : Il est dit ici :" Hors du camp", et il est dit ici,</b> en ce qui concerne la genisse rouge :" Il l'apportera <b>hors du camp"</b> (Nombres 19:3). <b>De meme qu'ici,</b> le taureau et le bouc de Yom Kippour sont brules <b>hors des trois camps, de meme la,</b> la genisse rouge est brulee <b>hors des trois camps. Et tout comme la,</b> le genisse rouge est brule <b>a l'est de Jerusalem,</b> puisqu'il doit etre brule "devant la Tente de la Rencontre" (Nombres 19,4), en face de l'entree du Temple, qui est a son est,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+<b>that a</b> term of <b>naziriteship takes effect upon a</b> previously accepted term of <b>naziriteship.</b> Consequently, if one became a nazirite and then again declared: I am hereby a nazirite, then when his term of naziriteship is completed he must observe a second term of naziriteship.
+
+### Part 2
+The Gemara asks: <b>And according to the one who says that the Torah spoke in the language of men</b> and therefore nothing can be derived from the phrase “to utter a vow [<i>lindor neder</i>],” <b>and he expounds</b> the phrase <b>“the vow of a nazirite to consecrate himself [<i>nazir lehazir</i>]” to render intimations of nazirite</b> vows <b>like nazirite</b> vows, <b>from where does he</b> derive that a term of <b>naziriteship takes effect upon a</b> previously accepted term of <b>naziriteship? This works out well if he holds in accordance with the one who says</b> that a term of <b>naziriteship does not take effect upon a</b> previously accepted term of <b>naziriteship; however, if he holds in accordance with the one who says</b> that a term of <b>naziriteship takes effect upon a</b> previously accepted term of <b>naziriteship, from where does he</b> derive this <i>halakha</i>?
+
+### Part 3
+The Gemara answers: <b>Let the verse say: To consecrate himself [<i>lizor</i>]. What</b> is the reason the verse expressed this same idea with the word <b><i>lehazir</i>? Learn two</b> <i>halakhot</i> <b>from this:</b> That intimations of nazirite vows are considered nazirite vows, and that a term of naziriteship takes effect upon a previously accepted term of naziriteship.
+
+### Part 4
+The Gemara adds: <b>In the West,</b> Eretz Yisrael, they <b>say: There is a <i>tanna</i> who derives intimations</b> of vows <b>from</b> the phrase <b>“to utter a vow [<i>lindor neder</i>],”</b> as he holds that the Torah did not speak in the language of men. <b>And</b> conversely, <b>there is a <i>tanna</i> who</b> holds that the Torah spoke in the language of men, and therefore <b>derives this</b> <i>halakha</i> of intimations <b>from</b> the verse: <b>“He shall do according to all that proceeds out of his mouth”</b> (Numbers 30:3). The inclusive formulation of this verse comes to include intimations of vows.
+
+### Part 5
+§ <b>The Master said</b> in the <i>baraita</i> cited earlier: <b>Just as</b> with regard to <b>vows, one</b> who breaks his vow <b>transgresses</b> the prohibition: <b>He shall not profane, and</b> one who does not fulfill his vow in time transgresses the prohibition: <b>You shall not delay,</b> so too, the same is true with regard to nazirite vows. The Gemara asks: <b>Granted, you</b> can <b>find</b> a case <b>where</b> one transgresses the prohibition: <b>He shall not profane, in</b> the case of <b>vows. For example, where one said: I will eat this loaf, and he does not eat it, he violates</b> the prohibition: <b>He shall not profane his word.</b>
+
+### Part 6
+<b>However,</b> with regard to transgressing the prohibition: <b>He shall not profane, in</b> the case of <b>nazirite</b> vows, <b>how can you find these</b> circumstances? <b>Once he said: I am hereby a nazirite, he is a nazirite</b> as of that moment. If he then <b>ate</b> grapes, <b>he is liable for</b> violating the prohibition: <b>He shall not eat</b> (see Numbers 6:4), and if he <b>drank</b> wine, <b>he is liable for</b> violating the prohibition: <b>He shall not drink</b> (see Numbers 6:3). When would he ever become liable for violating the prohibition against profanation? <b>Rava said:</b> The prohibition against profanation serves <b>to render him liable for</b> violating <b>two</b> prohibitions. Consequently, if he eats grapes or drinks wine, he transgresses the relevant prohibition in addition to the prohibition against profanation.
+
+### Part 7
+The Gemara further asks: With regard to violating the prohibition: <b>You shall not delay, in</b> the case of <b>nazirite</b> vows, <b>how can you find these</b> circumstances? <b>Once he said: I am hereby a nazirite, he is a nazirite</b> as of that moment. If he then <b>ate</b> grapes, <b>he is liable for</b> violating the prohibition: <b>He shall not eat.</b> When would he ever become liable for violating the prohibition against delaying? The Gemara answers: It is <b>when he</b> specifically <b>says: I will become a nazirite when I wish,</b> in which case he does not become a nazirite immediately. The Gemara asks: <b>But if he said: When I wish, there is no</b> prohibition of: <b>You shall not delay,</b> as there is no particular time by which he must become a nazirite.
+
+### Part 8
+<b>Rava said:</b> It is, <b>for example, when he said: I will not depart the world until I become a nazirite, as he is a nazirite from that time</b> because he does not know when he will depart this world. This is <b>just as it is</b> in the case of a man <b>who says to his wife: This is your bill of divorce</b> that will take effect <b>one hour before my death.</b> If he is a priest and she is the daughter of a non-priest, <b>she is prohibited from partaking of <i>teruma</i> immediately. Apparently, we say every moment</b> that <b>perhaps he is</b> now <b>dead</b> and she is therefore already divorced. <b>Here, too,</b> with regard to naziriteship, <b>he is a nazirite immediately, as we say</b> that <b>perhaps he is now</b> about to <b>die.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

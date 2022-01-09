@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Si tel est le cas,</b> alors <b>meme</b> en ce qui concerne le montant <b>fixe</b> comme paiement, l'employeur est susceptible d'etre oublieux. <b>Pourquoi,</b> alors, <b>est-il</b> enseigne</b> dans un <i>baraita</i> : Si l'<b>artisan dit : Tu as fixe deux</b> pieces de monnaie <b>comme mon</b> paiement <b>et l'autre,</b> l'employeur, <b>dit : Je n'ai fixe qu'une</b> piece de monnaie <b>comme ton</b> paiement, la <i>halakha</i> est que <b>la charge de la preuve repose sur le demandeur ?</b> L'artisan doit apporter des temoins pour percevoir la somme supplementaire ; un serment ne suffit pas. Pourquoi ne suppose-t-on pas que l'employeur est distrait, et que l'artisan serait autorise a preter serment et a percevoir la somme qu'il reclame ? La Gemara repond : En ce qui concerne la <b>fixation</b> des salaires, <b>il se souvient certainement.</b>
+
+### Partie 2
+La Guemara demande : <b>Si c'est le cas,</b> alors <b>meme</b> si <b>le moment</b> ou le salaire etait du <b>etait passe,</b> le travailleur devrait pouvoir prouver qu'il n'a pas ete paye en pretant serment. <b>Pourquoi,</b> alors, <b>est-il</b> enseigne</b> dans une <i>baraita</i> que si <b>le</b> <b>temps</b> etabli pour le paiement des salaires <b>etait passe,</b> c'est-a-dire, la nuit apres l'execution du travail, <b>et</b> l'employeur <b>n'a pas donne</b> au travailleur son salaire, <b>il ne peut plus</b> faire un serment et recevoir</b> son salaire, mais doit plutot apporter des temoins pour prouver qu'il n'a pas encore ete paye.
+
+### Partie 3
+La Gemara repond : Il y a <b>une presomption</b> que <b>l'employeur ne violera pas l'interdiction de retarder</b> le paiement du salaire (voir Levitique 19:13) et aura paye le travailleur a la date limite. La Guemara demande : <b>Mais n'as-tu pas dit</b> que l'<b>employeur est distrait par ses ouvriers</b> et est susceptible d'oublier de payer ? La Gemara repond : <b>Cette affirmation,</b> qu'il est presume etre distrait, ne s'applique qu'<b>avant que n'arrive le moment</b> ou <b>il</b> encourt la <b>responsabilite</b> pour avoir retarde le paiement des salaires. <b>Quand arrive le moment</b> ou il encourt la <b>responsabilite, il prend sur lui</b> de <b>se souvenir</b> de payer.
+
+### Partie 4
+La Gemara demande : <b>Le travailleur embauche</b> est-il suspecte de reclamer deux fois son salaire et de <b>violer</b> l'interdiction <b>de voler</b> (voir Levitique 19:13) ? La Gemara repond : <b>En ce qui concerne l'employeur, il y a deux presomptions</b> qui soutiennent sa pretention a ce que les salaires aient ete payes : <b>L'une</b> est <b>que l'employeur ne violera pas l'interdiction de retarder</b> le paiement des salaires, <b>et l'autre</b> est <b>que le travailleur engage ne differera pas</b> la demande de <b>ses salaires.</b> Par consequent, s'il demande ses salaires apres la date limite, il les a probablement deja recus, et il ne peut plus prouver sa reclamation avec seulement un serment.
+
+### Partie 5
+§ <b>Rav Nahman dit</b> que <b>Shmuel dit :</b> Les Sages <b>ont enseigne</b> qu'un travailleur prete serment et recoit son salaire <b>uniquement lorsque</b> l'employeur l'a <b>engage en</b> presence de <b>temoins. Mais</b> si <b>il ne l'a pas embauche en</b> presence de <b>temoins,</b> alors <b>puisqu'il aurait pu</b> faire une reclamation plus avantageuse [<i>miggo</i>] et lui <b>dire : Je ne t'ai jamais embauche, il peut</b> au contraire <b>s'adresser a lui : Je t'ai embauche mais</b> deja <b>donne ton salaire,</b> et cette pretention est acceptee par le tribunal. Il existe un principe dans la <i>halakha</i> selon lequel on est juge credible lorsqu'on fait une reclamation moins avantageuse que celle qu'on aurait pu faire. <b>Rabbi Yitzhak dit a</b> Rav Nahman : <b>C'est exact ; et c'est ce qu'a dit Rabbi Yohanan.</b>
+
+### Partie 6
+La Guemara demande : Peut-on deduire <b>du fait</b> que Rabbi Yitzhak a dit que c'est specifiquement Rabbi Yohanan qui dit cela, <b>que Reish Lakish,</b> qui s'est souvent engage dans des disputes avec Rabbi Yohanan, <b>est en desaccord avec lui,</b> meme si Rabbi Yitzhak n'a pas rapporte qu'il le fait ? <b>Certains disent</b> que Reish Lakish <b>buvait</b> au moment ou Rabbi Yohanan faisait sa declaration <b>et</b> donc <b>se taisait, et certains disent</b> qu'il <b>attendait qu'il</b> termine sa declaration <b>et</b> donc <b>se taisait.</b> On ne sait toujours pas s'il etait en desaccord.
+
+### Partie 7
+<b>Il a egalement ete dit</b> que <b>Rav Menashya bar Zevid dit</b> que <b>Rav dit :</b> Les Sages <b>ont enseigne</b> qu'un travailleur prete serment et recoit son salaire <b>uniquement lorsque</b> l'employeur <b>l'a embauche en</b> presence de <b>temoins. Mais</b> si <b>il ne l'a pas embauche en</b> presence de <b>temoins, puisqu'il aurait pu lui dire : Je ne t'ai jamais engage, il peut</b> au contraire lui <b>dire : Je t'ai embauche mais</b> deja <b>donne ton salaire,</b> et cette affirmation est acceptee par le tribunal.
+
+### Partie 8
+§ <b>Rami bar Hama a dit : Combien cette <i>halakha</i> est excellente. Rava lui a repondu : Quelle</b> est son <b>excellence ? Si</b> la <i>halakha</i> est <b>ainsi, comment peux-tu</b> jamais <b>trouver</b> un exemple du <b>serment des bailees</b> concernant un depot <b>que le Misericordieux a impose ? Puisque</b> le bailli <b>pouvait dire au</b> proprietaire : <b>Ces evenements ne se sont jamais produits,</b> c'est-a-dire que je n'ai jamais accepte de depot de votre part, <b>il peut lui dire :</b> Le depot a ete perdu <b>par accident.</b> Il n'aura pas besoin de preter serment pour appuyer sa demande, puisqu'il aurait ete juge credible sans preter serment s'il avait nie avoir accepte le depot tout court.
+
+### Partie 9
+Rami Bar Hama repond : Le serment des bailees est toujours pertinent <b>lorsque</b> le proprietaire <b>deposait</b> l'objet <b>avec lui en</b> presence de <b>temoins.</b> Rava retorque : Meme dans ce cas, puisqu'il pouvait lui dire.. : Je</b> vous l'ai deja <b>retourne,</b> et sa demande serait acceptee sans qu'il prete serment, <b>il peut lui dire :</b> Le depot a ete perdu <b>par accident,</b> et sa demande sera acceptee sans qu'il prete serment.
+
+### Partie 10
+Rami bar Hama repondit : Le serment des bailees reste pertinent <b>lorsque</b> le proprietaire <b>deposait</b> l'objet <b>avec lui, avec un document</b> donne en guise de recu. La possession du recu sert de preuve que le bailli n'a pas restitue le depot.
+
+### Partie 11
+La Gemara commente : <b>Par deduction</b> de leurs declarations, on peut conclure <b>que Rava et Rami bar Hama <b>tiennent</b> que si <b>quelqu'un depose</b> un objet <b>chez une autre</b> personne <b>en</b> presence de <b>temoins, </b> il <b>n'a pas besoin de le lui rendre</b> en</b> presence de <b>temoins,</b> et sa declaration selon laquelle il l'a rendu sans temoins est acceptee. Mais si l'on depose un objet chez une autre personne <b>avec un document</b> donne comme recu, <b>il doit le lui rendre</b> en</b> presence de <b>temoins,</b> qui peuvent temoigner qu'il a ete rendu.
+
+### Partie 12
+§ <b>Rami bar Hama citerait</b> ce verset <b>sur le Rav Sheshet : "Et David mit ces paroles dans son cœur"</b> (IA Samuel 21:13), car Rav Sheshet s'est charge de trouver des sources qui appuieraient ou contrediraient les declarations de Rav et Shmuel. <b>Comme</b> il est relate que <b>Rav Sheshet rencontra Rabba bar Shmuel</b> et lui <b>dit : Le Maitre enseigne-t-il des</b> <i>halakhot</i> <b>sur un ouvrier salarie ?</b> Rabba bar Shmuel <b>lui repondit : Oui, j'enseigne</b> cette <i>baraita</i> (<i>Tosefta</i> 6:1) : <b>Un travailleur engage dans son temps</b> pour recevoir un salaire <b>fait un serment et recoit</b> le paiement. <b>Comment cela ? </b> Cela s'applique dans un cas <b>ou</b> le travailleur <b>dit a</b> l'employeur : <b>Vous m'avez embauche mais ne m'avez pas donne mon salaire, et l'autre,</b> l'employeur, <b>dit : Je t'ai embauche et t'ai donne ton salaire. Mais</b> si le travailleur engage <b>lui dit : Tu as fixe deux</b> pieces de monnaie <b>comme mon</b> paiement, <b>et l'autre,</b> l'employeur, <b>dit : Je n'ai fixe qu'une</b> piece de monnaie <b>comme ton</b> paiement, <b>la charge de la preuve incombe au demandeur,</b> qui doit fournir des temoins pour attester que le salaire etait la plus grande somme.
+
+### Partie 13
+Rav Sheshet a suggere : <b>Puisque la derniere clause</b> traite d'un cas <b>dans</b> lequel la <b>preuve,</b> le temoignage des temoins, <b>est</b> requise, <b>la premiere clause</b> doit traiter d'un cas <b>dans</b> lequel la <b>preuve</b> n'est <b>pas</b> requise. Ceci contredit les declarations de Rav et Shmuel ci-dessus selon lesquelles le travailleur ne peut preter serment et recevoir un paiement que lorsqu'il a des temoins que cette personne l'a embauche.
+
+### Partie 14
+<b>Rav Nahman bar Yitzhak a dit :</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

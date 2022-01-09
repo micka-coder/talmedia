@@ -1,0 +1,75 @@
+
+### Part 1
+The Gemara answers: The <i>halakha</i> here is <b>just as it is after</b> the <b>death</b> of his father, and the son is liable for cursing his father even after his death. Therefore, he is also liable when his father’s death is imminent.
+
+### Part 2
+Despite several attempts to cite proof contradicting his opinion, there is no conclusive refutation of the statement of Rav Sheshet that a son may serve as an agent of the court to punish his father. The Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? <b>Rabba bar Rav Huna says, and likewise the school of Rabbi Yishmael taught: With regard to all</b> cases <b>a son is not designated</b> as <b>an agent to strike his father or to curse him, except</b> in a case where his father <b>incites</b> others to worship idols, <b>as the Torah states: “Neither shall you spare, nor shall you conceal him”</b> (Deuteronomy 13:9).
+
+### Part 3
+<strong>MISHNA:</strong> <b>One who strikes his father or his mother is not liable</b> to be executed <b>unless he wounds</b> one of <b>them. This is a stringency with regard to one who curses</b> his father that is more severe <b>than</b> the <i>halakha</i> <b>with regard to one who strikes</b> his father, <b>as one who curses</b> his father or his mother <b>after</b> his or her <b>death is liable, but one who strikes</b> one of them <b>after</b> his or her <b>death is exempt,</b> as he did not cause a wound.
+
+### Part 4
+gemara <b>The Sages taught</b> in a <i>baraita</i> that it is written: “For any man who curses his father and his mother shall be put to death, he has cursed his father and his mother; his blood shall be upon him who curses his father and his mother shall die; <b>he has cursed his father and his mother;</b> his blood shall be upon him” (Leviticus 20:9). This is referring to one who curses his parents even <b>after</b> their <b>death, as</b> one <b>might</b> have thought: <b>Since one is liable for striking and one is liable for cursing, just as one who strikes is liable only when</b> his father or mother are <b>alive, so too, one who curses is liable only when</b> they are <b>alive.</b>
+
+### Part 5
+<b>Furthermore,</b> one may draw an <b><i>a fortiori</i></b> inference: <b>If,</b> with regard to one who <b>strikes</b> another, <b>where</b> the Torah <b>deemed</b> the status of striking one who performs actions <b>not of your people,</b> i.e., a sinner, <b>like</b> that of striking one who performs actions that are <b>of your people,</b> yet the Torah <b>did not deem him liable</b> for striking another <b>after death,</b> then with regard to one who <b>curses, where</b> the Torah <b>deemed</b> the status of cursing one who performs actions <b>not of your people like</b> that of cursing one who performs actions that are <b>of your people, is it not right that</b> the Torah <b>did not deem him liable</b> for cursing another <b>after</b> their <b>death?</b>
+
+### Part 6
+Therefore, <b>the verse states</b> the extraneous phrase: <b>“He has cursed his father and his mother,”</b> to include even one who curses his father or mother <b>after</b> that parent’s <b>death.</b>
+
+### Part 7
+The Gemara asks: <b>This works out well according to</b> the opinion of <b>Rabbi Yonatan, for whom the phrase “his father and his mother” is extraneous. But according to</b> the opinion of <b>Rabbi Yoshiya,</b> who disagrees with him, <b>what is there to say?</b>
+
+### Part 8
+This is <b>as it is taught</b> in a <i>baraita</i> that it is written: “For <b>any man [<i>ish ish</i>]</b> who curses his father and his mother shall be put to death, he has cursed his father and his mother; his blood shall be upon him.” <b>What</b> is the meaning when <b>the verse states</b> redundantly: <b>“<i>Ish ish</i>”?</b> It serves <b>to include</b> not only a son, but also <b>a daughter, one whose sexual organs are indeterminate [<i>tumtum</i>], and a hermaphrodite</b> who curse their parent. When the verse states: <b>“Who curses his father and his mother,” I have</b> derived <b>only</b> liability for cursing both <b>his father and his mother. From where</b> is liability derived for one who cursed <b>his father</b> but <b>who did not</b> curse <b>his mother,</b> or one who cursed <b>his mother</b> but <b>who did not</b> curse <b>his father? The verse states: “He has cursed his father and his mother,”</b> from which it is derived that the <i>halakha</i> is as if the verse states: <b>He cursed his father</b> or <b>he cursed his mother.</b> This is <b>the statement of Rabbi Yoshiya.</b>
+
+### Part 9
+<b>Rabbi Yonatan says:</b> In verses of this kind when two subjects are joined with a prefix of the letter <i>vav</i>, that prefix <b>indicates</b> the conjunction “and,” meaning <b>both</b> subjects <b>together, and</b> it also <b>indicates</b> the conjunction “or,” meaning <b>each one by itself, unless the verse specifies</b> with the word: <b>“Together,”</b> in which case the meaning is both together. Therefore, the phrase “he has cursed his father and his mother” is extraneous.
+
+### Part 10
+Since according to the opinion of Rabbi Yoshiya, the phrase is not redundant, <b>from where does he</b> derive that one is liable for cursing his father after his death? The Gemara answers: <b>He derives it from</b> that which is written: <b>“And one who curses his father or his mother shall be put to death”</b> (Exodus 21:17).
+
+### Part 11
+The Gemara asks: <b>And the other</b> <i>tanna</i>, Rabbi Yonatan, what does he derive from that verse? The Gemara answers: <b>He requires</b> the other verse <b>to include a daughter, a <i>tumtum</i>, and a hermaphrodite</b> in the prohibition against cursing a parent.
+
+### Part 12
+The Gemara challenges: <b>But let him derive</b> that <i>halakha</i> <b>from</b> the redundant use of <b>“<i>ish ish</i>,”</b> as Rabbi Yoshiya does. The Gemara responds: Rabbi Yonatan holds that <b>the Torah spoke in the language of people.</b> The repetition of the term <i>ish</i> is merely a rhetorical flourish commonly employed in speech, and no additional <i>halakhot</i> can be derived from it.
+
+### Part 13
+§ The Gemara asks with regard to the mishna: <b>And let</b> the <i>tanna</i> <b>teach</b> a second stringency in the mishna: <b>This is a stringency with regard to one who strikes</b> his father that is more severe <b>than</b> the <i>halakha</i> <b>with regard to one who curses</b> his father, <b>that with regard to one who strikes</b> a parent the Torah <b>deemed</b> the status of striking one who performs actions <b>not of your people</b> to be <b>like</b> that of striking one who performs actions <b>of your people, which is not so with regard to one who curses</b> a parent. The Gemara responds: The <i>tanna</i> of the mishna disagrees and <b>holds</b> that <b>we liken striking to cursing</b> based on the juxtaposition of the verses.
+
+### Part 14
+The Gemara suggests: <b>Let us say</b> that the opinions of <b>these</b> following <b><i>tanna’im</i> are parallel to</b> the opinions of <b>those</b> following <b><i>tanna’im</i>, as it is taught</b> in <b>one</b> <i>baraita</i>: With regard to <b>a Samaritan, you are commanded</b> to refrain from <b>striking him, but you are not commanded</b> to refrain from <b>cursing him. And it is taught</b> in <b>another</b> <i>baraita</i>: <b>You are commanded neither</b> to refrain from <b>cursing him nor</b> to refrain from <b>striking him.</b>
+
+### Part 15
+It is <b>assumed</b> that <b>everyone,</b> i.e., the <i>tanna</i> of each <i>baraita</i>, agrees that <b>Samaritans are true converts.</b> Since their conversion was sincere, their status is that of a Jew who sinned. Based on that assumption, the Gemara suggests: <b>What, is it not</b> that <b>they disagree about this: That</b> one <b>Sage,</b> the <i>tanna</i> of the second <i>baraita</i>, <b>holds</b> that <b>we liken striking to cursing</b> and the <i>halakha</i> is the same with regard to both, and therefore it is neither prohibited to strike a Samaritan, nor is it prohibited to curse him; <b>and</b> one <b>Sage,</b> the <i>tanna</i> of the first <i>baraita</i>, <b>holds</b> that <b>we do not liken striking to cursing,</b> and there is no prohibition against cursing a sinner, but there is a prohibition against striking him?
+
+### Part 16
+The Gemara rejects the parallel between the two tannaitic disputes. <b>No, everyone,</b> i.e., the <i>tanna’im</i> in each <i>baraita</i>, agrees that <b>we do not liken striking to cursing, and here they disagree about this:</b> One <b>Sage,</b> the <i>tanna</i> of the first <i>baraita</i>, <b>holds</b> that <b>Samaritans are true converts</b> and their status is that of a Jew who sinned. Therefore, there is no prohibition against cursing him, but there is a prohibition against striking him. <b>And</b> one <b>Sage,</b> the <i>tanna</i> of the second <i>baraita</i>, <b>holds</b> that <b>Samaritans are converts</b> who converted under duress <b>due to</b> the threat of <b>lions</b> (see II Kings, chapter 17) and their conversion was never valid. Therefore, their legal status is that of a gentile and it is neither prohibited to strike a Samaritan nor to curse him.
+
+### Part 17
+The Gemara asks: <b>If so,</b> is <b>that</b> consistent with that <b>which is taught with regard to</b> the second <i>baraita</i>: <b>And</b> in terms of damage caused to <b>his ox</b> his status is <b>like</b> that of <b>a Jew?</b> Apparently, even the <i>tanna</i> of the second <i>baraita</i> holds that the conversion of the Samaritans was sincere. <b>Rather, learn from it</b> that the two <i>tanna’im</i> <b>disagree with regard to the juxtaposition</b> of the two prohibitions, as initially suggested; their dispute is not with regard to the status of a Samaritan. The Gemara affirms: <b>Conclude from it</b> that this is the crux of their dispute.
+
+### Part 18
+mishna <b>One who abducts a Jewish person is not liable</b> to be executed <b>unless he brings</b> the abductee <b>into his domain. Rabbi Yehuda says:</b> He is not liable <b>unless he brings him into his domain and exploits him, as it is stated:</b> “If a man shall be found abducting a person of his brethren from the children of Israel, <b>and he exploited him and sold him,</b> then that abductor shall die” (Deuteronomy 24:7). The phrase “exploited him” indicates using him for labor. With regard to <b>one who abducts his</b> own <b>son</b> and sells him, <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, deems</b> him <b>liable, and the Rabbis deem</b> him <b>exempt.</b> If <b>one abducted one who is a half-slave half-freeman,</b> i.e., a Canaanite slave who belonged to two owners and was emancipated by one of them, <b>Rabbi Yehuda deems</b> him <b>liable, and the Rabbis deem</b> him <b>exempt.</b>
+
+### Part 19
+<strong>GEMARA:</strong> The Gemara asks: <b>And does the first <i>tanna</i> not require exploitation</b> as a condition for liability? The Torah states it explicitly in the verse in Deuteronomy. <b>Rabbi Aḥa, son of Rava, says:</b> The difference <b>between them</b> is in a case of <b>exploitation</b> worth <b>less than the value of one <i>peruta</i>.</b> The first <i>tanna</i> holds that one is liable for any exploitation and there is no minimum value in order to establish liability. Rabbi Yehuda holds that one is liable only if one derives benefit equal to at least one <i>peruta</i> from his exploitation.
+
+### Part 20
+<b>Rabbi Yirmeya raises a dilemma:</b> If <b>one abducted</b> another <b>and sold him</b> while he was <b>asleep, what is</b> the <i>halakha</i>? If one abducted and <b>sold</b> a pregnant <b>woman</b> solely <b>for</b> benefit from <b>her fetus, what is</b> the <i>halakha</i>? <b>Is that a manner of exploitation</b> for which one is liable to be executed <b>or is that not a manner of exploitation</b> for which one is liable to be executed?
+
+### Part 21
+The Gemara asks with regard to the dilemmas raised by Rabbi Yirmeya: <b>But let him derive</b> that the abductor is not liable, <b>as there is no exploitation at all</b> of a sleeping individual or a fetus. The Gemara answers: <b>No,</b> it is <b>necessary</b> to raise the dilemma only with regard to the <b>sleeping</b> individual in a case <b>where one reclines on him,</b> and with regard to the pregnant <b>woman where one stands her in the face of the wind</b> to protect himself from the wind. In those cases, <b>is that a manner of exploitation</b> for which one is liable to be executed <b>or is that not a manner of exploitation</b> for which one is liable to be executed? <b>What</b> is the <i>halakha</i>? The Gemara concludes: The dilemma <b>shall stand [<i>teiku</i>]</b> unresolved.
+
+### Part 22
+<b>The Sages taught</b> in a <i>baraita</i> that it is written: <b>“If a man shall be found abducting a person of his brethren</b> from the children of Israel, and he exploited him and sold him, then that abductor shall die” (Deuteronomy 24:7). <b>I have</b> derived <b>only</b> that <b>a man who abducted</b> another is liable. <b>From where</b> is it derived that <b>a woman</b> who abducts another is liable as well? It is derived from <b>the verse</b> that <b>states: And one who abducts a man,</b> and sells him, if he be found in his hand, he shall be put to death” (Exodus 21:16), where the sex of the abductor is not specified.
+
+### Part 23
+<b>I have</b> derived <b>only</b> that <b>a man who abducted</b> another, <b>whether a man or a woman,</b> is liable, as it is written: “If a man shall be found abducting a person”; the abductor is male but the sex of the abductee is not specified. <b>And</b> I derived that <b>a woman who abducted a man</b> is liable, as it is written: “And one who abducts a man”; the sex of the abductor is not specified but the abductee is male. <b>From where</b> is it derived that <b>a woman who abducted a woman</b> is liable as well? It is derived from <b>the verse</b> that <b>states: “Then that abductor shall die”</b> (Deuteronomy 24:7); the abductor shall die <b>in any case,</b> regardless of the sex of the one who was abducted.
+
+### Part 24
+<b>It is taught</b> in <b>another</b> <i>baraita</i> that it is written: <b>“If a man is found abducting a person of his brethren,”</b> from which it is derived that <b>whether he abducts a man, or</b> whether <b>he abducts a woman, or</b> whether he abducts <b>a convert, or</b> whether he abducts <b>an emancipated slave or a minor,</b> he is <b>liable.</b> If he <b>abducted</b> another <b>but did not sell him,</b> or if he <b>sold him but he remains in his domain,</b> the abductor is <b>exempt.</b> If he <b>sold him to</b> the <b>father of</b> the abductee, <b>or to his brother, or to one of</b> his other <b>relatives,</b> the abductor is <b>liable. One who abducts slaves is exempt.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

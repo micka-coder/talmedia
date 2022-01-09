@@ -1,0 +1,81 @@
+
+### Part 1
+<b>that</b> the mother animal <b>became impregnated from</b> an animal with <b>non-cloven</b> hooves that was born from a kosher mother and father. This is <b>in accordance with</b> the opinion of <b>Rabbi Shimon,</b> who maintains that the offspring resulting from this, which does not have cloven hooves, is not kosher. Since the animal’s father is not kosher according to the opinion of Rabbi Shimon, the offspring is also not kosher, in accordance with Rava’s principle.
+
+### Part 2
+<b>Rava raises a dilemma:</b> With regard to one who says: <b>It is</b> incumbent <b>upon me</b> to bring <b>a burnt</b>-<b>offering, and he</b> subsequently <b>set aside a bull</b> for this purpose, <b>and another</b> person <b>came and stole</b> the bull, <b>can the thief exempt himself</b> from liability <b>by</b> repaying the owner with <b>a sheep, according to</b> the opinion of <b>the Rabbis, or by</b> repaying him with a bird to be used as <b>a bird burnt-offering, according to</b> the opinion of <b>Rabbi Elazar ben Azarya?</b> This is <b>as we learned</b> in a mishna (<i>Menaḥot</i> 107a): If one says: <b>It is</b> incumbent <b>upon me</b> to bring <b>a burnt</b>-<b>offering, he must bring</b> a bull or <b>a sheep</b> as a burnt-offering to fulfill his vow. <b>Rabbi Elazar ben Azarya says: He may</b> even <b>bring a turtledove or a young pigeon</b> as a burnt-offering.
+
+### Part 3
+Rava elaborates: <b>What</b> is the <i>halakha</i> in this case? <b>Do we say</b> that he <b>accepted upon himself</b> to sacrifice an animal with the <b>status of a burnt-offering,</b> in which case any animal that fulfills this requirement will suffice? If so, the thief may compensate the owner with a sheep or bird, as the owner can sacrifice that animal as a burnt-offering. <b>Or perhaps</b> the owner <b>can say to</b> the thief: <b>I want to perform</b> the <b>mitzva</b> in <b>the optimal manner,</b> which is by sacrificing a bull. Therefore, you must pay me back with a bull.
+
+### Part 4
+<b>After he raised the dilemma,</b> Rava himself <b>subsequently resolved it:</b> The <b>thief can exempt himself</b> from liability by repaying the owner <b>with a sheep, according to</b> the opinion of <b>the Rabbis,</b> or <b>by</b> repaying him with a bird to be used as <b>a bird burnt-offering, according to</b> the opinion of <b>Rabbi Elazar ben Azarya.</b>
+
+### Part 5
+<b>Rav Aḥa, son of Rav Ika, teaches</b> this <i>halakha</i> <b>explicitly,</b> i.e., without the question-and-answer format: <b>Rava says:</b> With regard to one who says: <b>It is</b> incumbent <b>upon me</b> to bring <b>a burnt</b>-<b>offering, and he</b> subsequently <b>set aside a bull</b> for this purpose, <b>and another</b> person <b>came and stole</b> the bull, the thief can <b>exempt himself</b> from liability <b>by</b> repaying the owner with <b>a sheep, according to</b> the opinion of <b>the Rabbis, or by</b> repaying him with a bird to be used as <b>a bird burnt-offering, according to</b> the opinion of <b>Rabbi Elazar ben Azarya.</b>
+
+### Part 6
+<strong>MISHNA:</strong> If a thief <b>sold</b> a stolen animal in a partial fashion, e.g., <b>except for</b> one <b>one-hundredth of it,</b> which he kept for himself; <b>or</b> if <b>he had a partnership in</b> owning the animal before stealing it; or in the case of a thief <b>who slaughtered</b> the stolen animal <b>and it became non-kosher</b> meat <b>in his hand</b> because he slaughtered it improperly; or in the case of a thief <b>who ripped open</b> the animal rather than slaughtering it halakhically; <b>or</b> in the case of a thief <b>who tore loose</b> the gullet or windpipe of the animal as he slaughtered it, rendering the slaughter invalid, in all these cases <b>he pays</b> the <b>double payment but does not pay</b> the <b>fourfold or fivefold payment.</b> The fourfold or five-fold payment applies only if the animal is entirely sold or if it is slaughtered in accordance with the halakhic definition of animal slaughter.
+
+### Part 7
+<strong>GEMARA:</strong> <b>What</b> does the mishna mean when it states that the thief sold the animal <b>except for</b> one <b>one-hundredth of it?</b> Which part of the animal must the thief keep for himself for him to be exempt from the fourfold or fivefold payment? <b>Rav says:</b> The mishna means that he sold it <b>except for some</b> part of the animal <b>that becomes permitted through</b> its <b>slaughter.</b> This does not apply to horns or a sheep’s fleece, which do not require slaughter in order to be used. <b>And Levi says:</b> The mishna’s statement applies even if the thief sold the entire animal <b>except for its fleece. And it is likewise taught in a <i>baraita</i>:</b> The thief is exempt even if he sells the whole animal <b>except for its fleece.</b>
+
+### Part 8
+The Gemara <b>raises an objection</b> to the opinion of Rav from a <i>baraita</i>: If the thief <b>sold</b> the whole animal <b>except for its foreleg,</b> or <b>except for its hind leg,</b> or <b>except for its horn,</b> or <b>except for its fleece, he does not pay</b> the <b>fourfold or fivefold payment. Rabbi</b> Yehuda HaNasi <b>says:</b> If the thief sells the animal except for some <b>part</b> of it whose absence <b>invalidates</b> its <b>slaughter, he does not pay</b> the <b>fourfold or fivefold payment.</b>
+
+### Part 9
+Rabbi Yehuda HaNasi continues: <b>But</b> if he leaves out from the sale a part of the animal whose absence <b>does not invalidate the slaughter, he pays</b> the <b>fourfold or fivefold payment.</b> If an animal is missing one of its vital organs, e.g., its liver, one of its intestines, its gullet, or its windpipe, it is considered already dead and its slaughter at this stage would be invalid. For the thief to be exempt from the fourfold or fivefold payment on the grounds of an incomplete sale, he must retain one of these organs for himself.
+
+### Part 10
+The <i>baraita</i> continues: <b>Rabbi Shimon ben Elazar says:</b> If the thief sells the whole animal <b>except for its horn, he does not pay</b> the <b>fourfold or fivefold payment.</b> If he sells the whole animal <b>except for its fleece, he does pay</b> the <b>fourfold or fivefold payment.</b>
+
+### Part 11
+The Gemara explains the objection from this <i>baraita</i>: <b>Granted, according to</b> the opinion of <b>Levi</b> this <i>baraita</i> does not present a difficulty, as his ruling is exactly <b>like</b> that of <b>the first <i>tanna</i>. But according to</b> the opinion of <b>Rav</b> it does present a difficulty, as in accordance with <b>whose</b> opinion does his ruling accord? None of the three opinions expressed in the <i>baraita</i> correlate with that of Rav.
+
+### Part 12
+The Sages <b>say</b> in response: <b>Rav says</b> his opinion <b>in accordance with</b> the opinion of <b>this <i>tanna</i>, as it is taught</b> in another <i>baraita</i>: <b>Rabbi Shimon ben Elazar says:</b> If the thief <b>sold</b> the entire animal <b>except for its foreleg or except for its hind leg, he does not pay</b> the <b>fourfold or fivefold payment.</b> If he sold the entire animal <b>except for its horn</b> or <b>except for its fleece, he does pay</b> the <b>fourfold or fivefold payment.</b>
+
+### Part 13
+The Gemara analyzes the four opinions of the <i>tanna’im</i> presented in these <i>baraitot</i>. <b>With regard to what</b> principle <b>do they disagree? The first <i>tanna</i> holds</b> that when the Torah states: “If a man steals an ox or a sheep, and slaughters it or sells it, he shall pay five oxen for an ox and four sheep for a sheep” (Exodus 21:37), the term <b>“and slaughters it”</b> indicates that <b>we require</b> him to slaughter <b>all of it</b> for him to incur liability to pay the fourfold or fivefold payment. Likewise, the term <b>“or sells it”</b> teaches that <b>we require</b> him to sell <b>all of it,</b> not leaving any portion at all for himself, even the fleece.
+
+### Part 14
+<b>And Rabbi</b> Yehuda HaNasi <b>holds</b> that the term <b>“and slaughters it”</b> is referring to <b>parts</b> of the animal <b>that are</b> affected <b>by</b> its <b>slaughter,</b> which serves <b>to exclude parts</b> of the animal <b>that are not</b> affected <b>by</b> its <b>slaughter.</b> When the Torah immediately adds the term <b>“or sells it,”</b> this indicates that selling is <b>similar to slaughter.</b> Consequently, if the sale excludes the animal’s fleece or horns, i.e., those parts that are not affected by slaughter, there is still fourfold or fivefold payment.
+
+### Part 15
+<b>And Rabbi Shimon ben Elazar holds,</b> according to the first version of his opinion, that <b>the</b> animal’s <b>horn, which is not meant to be cut off</b> in the animal’s lifetime, <b>is</b> considered a significant <b>withholding</b> if the thief keeps that part for himself, <b>and he does not pay</b> the <b>fourfold or fivefold payment.</b> By contrast, <b>fleece, which is meant to be cut off</b> in the animal’s lifetime, <b>is not</b> considered a significant <b>withholding</b> if the thief keeps it for himself, <b>and</b> therefore <b>he must pay</b> the <b>fourfold or fivefold payment.</b>
+
+### Part 16
+<b>And the other <i>tanna</i> of the school of Rabbi Shimon ben Elazar holds</b> that the animal’s <b>forelegs and hind legs, which require slaughter</b> for them to be put to their usual use, i.e., for eating, <b>are</b> considered a significant <b>withholding</b> if the thief keeps one of them for himself, <b>and</b> consequently <b>he does not pay</b> the <b>fourfold or fivefold payment.</b> By contrast, <b>its horns and its fleece, which do not require slaughter</b> in order to be used, <b>are not</b> considered a significant <b>withholding</b> if the thief keeps them for himself.
+
+### Part 17
+The Gemara asks: This presents <b>a difficulty,</b> as there is a contradiction between one statement <b>of Rabbi Shimon ben Elazar and</b> another opinion presented in the name <b>of Rabbi Shimon ben Elazar.</b> The Gemara answers: The two rulings represent the reports of <b>two <i>tanna’im</i>, and</b> they disagree <b>with regard to</b> the opinion <b>of Rabbi Shimon ben Elazar.</b>
+
+### Part 18
+<b>The Sages taught</b> in a <i>baraita</i>: <b>One who steals</b> an animal that is <b>missing a limb, or</b> that is <b>lame, or</b> that is <b>blind,</b> and he subsequently sold it, <b>and similarly, one who steals an animal</b> belonging to several <b>partners</b> and he subsequently sold it, is <b>liable</b> to pay the fourfold or fivefold payment. <b>But</b> several <b>partners who stole</b> an animal together and sell it are <b>exempt</b> from the fourfold or fivefold payment. The Gemara asks: <b>But isn’t it taught</b> in another <i>baraita</i> to the contrary, that several <b>partners who stole</b> an animal together and sell it are <b>liable</b> to pay the fourfold or fivefold payment?
+
+### Part 19
+The Gemara resolves the contradiction: <b>Rav Naḥman said</b> that this is <b>not difficult. Here,</b> where the <i>baraita</i> states that he is exempt, it is referring <b>to</b> one <b>partner who stole</b> an animal <b>from another</b> partner. <b>There,</b> where the <i>baraita</i> states that he is liable, it is dealing <b>with a partner, who,</b> together with other thieves, <b>stole</b> an animal <b>from</b> someone else <b>outside</b> their group.
+
+### Part 20
+<b>Rava raised an objection to Rav Naḥman</b> from another <i>baraita</i>: One <b>might</b> have thought that <b>a partner who stole</b> an animal <b>from another</b> partner and slaughtered it, <b>and</b> likewise <b>partners who</b> jointly <b>stole</b> an animal and one of them slaughtered it, <b>should be liable</b> to pay the fourfold or fivefold payment. To counter this, <b>the verse states: “And slaughters it,”</b> which indicates that <b>we require</b> liability for slaughtering <b>all of it, and</b> in these cases <b>it is not</b> so. One who steals an animal that he partly owns is not liable for slaughtering his own portion. Likewise, when several partners steal an animal, the one who slaughters it is not liable for slaughtering the portions of his fellow thieves.
+
+### Part 21
+<b>Rather, Rav Naḥman said</b> a different resolution of the contradiction: This is <b>not difficult.</b> Both <i>baraitot</i> are speaking of partners who together stole an animal from someone else. <b>Here,</b> where the <i>baraita</i> states that the thief is liable, it is referring <b>to a partner who slaughtered</b> the animal <b>with the knowledge</b> and consent <b>of another</b> partner. In such a case the one slaughtering is acting as the agent of the partner as well and is fully liable for the slaughter. <b>There,</b> where the <i>baraita</i> states that the thief is exempt, it is speaking <b>of a partner who slaughtered</b> the animal <b>without the knowledge of another</b> partner in the theft. Consequently, the one slaughtering is acting solely on his own and is not liable for the slaughter of his partner’s share, which is why he is exempt from any payment.
+
+### Part 22
+§ <b>Rabbi Yirmeya raises</b> several <b>dilemmas:</b> If the thief <b>sold</b> the animal <b>except for thirty days,</b> i.e., the thief reserved the right to use the animal himself for thirty days before the sale takes effect, what is the <i>halakha</i>? If he sold it <b>except for its work,</b> i.e., he stipulated with the buyer that any work the animal performs would be for the thief’s own benefit and profit, what is the <i>halakha</i>? If he stole a pregnant animal and sold it <b>except for its fetus, what is</b> the <i>halakha</i>?
+
+### Part 23
+The Gemara elaborates on the last dilemma: <b>According to the one who says that a fetus is</b> considered as <b>its mother’s thigh,</b> i.e., a part of its mother, <b>you should not raise the dilemma, as</b> it is clear that the thief, by retaining the fetus, <b>has withheld</b> part <b>of</b> the animal. <b>When you should raise the dilemma,</b> it is <b>according to</b> the opinion of <b>the one who says that a fetus is not</b> considered as <b>its mother’s thigh,</b> i.e., it has the status of an independent being. <b>What</b> is the <i>halakha</i> in this case? <b>Do we say that since it is</b> in fact <b>attached</b> to the mother, if the thief keeps the fetus for himself <b>it is</b> considered a significant <b>withholding? Or perhaps, since it stands to become detached from</b> the mother <b>it is not</b> considered a significant <b>withholding?</b>
+
+### Part 24
+<b>There are</b> those <b>who state</b> a different analysis of this dilemma: <b>Since</b> a fetus is <b>not</b> considered as <b>its mother’s thigh, it is not</b> considered a significant <b>withholding, or perhaps, since</b> it needs its mother <b>to be rendered permitted</b> for consumption <b>through</b> the mother’s <b>slaughter, it is considered as though</b> the thief <b>has withheld a part of the</b> mother’s <b>body.</b> The Gemara concludes: All these dilemmas <b>shall stand</b> unresolved.
+
+### Part 25
+<b>Rav Pappa raises a dilemma:</b> If one <b>stole</b> an animal, <b>severed</b> one of its limbs, <b>and</b> then <b>sold it, what is</b> the <i>halakha</i>? <b>Do we say</b> that the essential factor is that part of <b>what he stole he has not sold,</b> as the missing limb was not sold, and therefore he is exempt from the fourfold or fivefold payment? <b>Or perhaps</b> the essential factor is that with regard to that <b>which he sold he has not withheld</b> any part for himself. Once again, the Gemara states that this dilemma <b>shall stand</b> unresolved.
+
+### Part 26
+§ <b>The Sages taught</b> in a <i>baraita</i>: If one <b>stole</b> an animal <b>and gave it to another and</b> that person <b>slaughtered it</b> for him, or if <b>he stole</b> an animal <b>and gave it to another and</b> that person <b>sold it</b> for him, the thief is liable to pay the fourfold or fivefold payment, as performing these actions through an agent is equivalent to performing them by oneself.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

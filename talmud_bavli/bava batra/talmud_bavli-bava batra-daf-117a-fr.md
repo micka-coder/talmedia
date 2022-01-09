@@ -1,0 +1,18 @@
+
+### Partie 1
+<strong>GEMARA : </strong>La Gemara commente : Dans la mishna qui enseigne que Zelophehad et Hepher avaient droit a des portions en Eretz Yisrael, <b>on a appris conformement</b> a l'opinion de celui <b>qui dit : Eretz</b> Yisrael <b>a ete divise entre ceux qui ont quitte l'Egypte.</b>
+
+### Partie 2
+La Guemara cite une <i>baraita</i> qui presente trois opinions sur la facon dont Eretz Yisrael a ete divise. <b>Comme il est enseigne</b> dans un <i>baraita</i> que <b>Rabbi Yoshiya dit : Eretz</b> Yisrael <b>etait divise parmi ceux qui ont quitte l'Egypte, comme il est dit : "Selon les noms des tribus de leurs peres, ils heriteront"</b> (Nombres 26:55), ce qui enseigne que le peuple juif heriterait d'Eretz Yisrael selon les noms de leurs peres, c'est-a-dire ceux qui ont quitte l'Egypte. Rabbi Yoshiya poursuit : <b>Mais comment realiser</b> le sens du verset : <b>"A ceux-la, le pays sera divise en heritage"</b> (Nombres 26:53), qui indique que le pays devait etre divise entre ceux qui avaient ete recemment recenses dans le desert, c'est-a-dire ceux qui entreraient en Eretz Yisrael ? Il repond : <b>"A ceux-la"</b> enseigne que la terre sera partagee entre ceux qui sont <b>comme ces</b> personnes qui ont ete comptees, en ce sens qu'elles etaient des adultes de plus de vingt ans, <b>pour exclure les enfants,</b> qui n'avaient pas droit a une part en Eretz Yisrael, car ils n'etaient pas majeurs au moment de l'Exode.
+
+### Partie 3
+La <i>baraita</i> presente un deuxieme avis. <Rabbi Yonatan dit : Eretz</b> Yisrael <b>a ete divise entre ceux qui sont entres en Eretz</b> Yisrael, <b>comme il est dit : "Auxquels le pays sera divisé en héritage"</b> (Nombres 26, 53). <b>Mais comment realiser</b> le sens du verset : <b>"Selon les noms des tribus de leurs peres, ils heriteront"/b> (Nombres 26:55) ? Cela enseigne que <b>cette succession est differente de toutes</b> les autres <b>heritages du monde, car</b> dans <b>toutes</b> les autres <b>heritages du monde,</b> les <b>vivants heritent</b> des <b>morts, mais ici, les morts heritent</b> des <b>vivants. </b> En d'autres termes, les portions de terre recues par ceux qui sont entres en Eretz Yisrael ont ete transferees a leurs peres qui ont quitte l'Egypte, puis heritees par la generation actuelle, comme la Gemara va maintenant l'expliquer.
+
+### Partie 4
+<b>Rabbi</b> Yehuda HaNasi <b>a dit : Je vais vous raconter une parabole. A quoi cette affaire est-elle comparable ? A deux freres</b> qui etaient <b>pretres</b> et <b>qui etaient dans une ville. Un</b> frere <b>a un fils, et un</b> frere <b>a deux fils, et</b> les fils sont tous <b>alles a l'aire de battage</b> pour recueillir le <i>teruma</i>. <b>Ce</b> frere, <b>qui a un fils, prend une portion</b> du <i>teruma</i> de son enfant, <b>et ce</b> frere, <b>qui a deux fils, prend deux portions</b> de ses fils. <b>Et</b> les freres alors <b>retournent</b> avec les trois portions <b>a leur pere, et</b> alors <b>redivisent</b> les portions entre eux <b>egalement,</b> de sorte que chaque frere recoit une portion et demie. Lorsque les freres donneront leurs parts a leurs enfants, le fils du premier frere recevra tout ce que son pere avait recu, tandis que les fils de l'autre frere se partageront ce que leur pere avait recu.
+
+### Partie 5
+Le <i>baraita</i> presente un troisieme avis. <b>Rabbi Shimon ben Elazar dit :</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

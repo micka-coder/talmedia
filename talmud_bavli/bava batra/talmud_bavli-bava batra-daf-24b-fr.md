@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>De ceux qui versent le vin</b> des tonneaux dans des cruches <b>sont juifs,</b> et il est donc raisonnable que le vin appartienne a un juif. La Gemara commente : <b>Et cette question</b> ne s'applique <b>qu'aux grandes</b> cruches. <b>Mais</b> s'il s'agissait de <b>petites</b> cruches, on peut <b>dire</b> qu'elles ont ete deposees par des voyageurs,</b> dont la plupart sont des Gentils, et donc les cruches de vin sont interdites. <b>Et s'il y a de grandes</b> cruches <b>parmi</b> les cruches trouvees, <b>dire</b> qu'elles appartiennent toutes a des Juifs, car les voyageurs n'ont pas l'habitude de porter de grandes cruches ; on peut supposer que les petites <b>etaient placees pour equilibrer</b> la charge de l'ane, et que les cruches sont toutes tombees ensemble.
+
+### Partie 2
+<strong>MISHNA :</strong> <b>On doit eloigner un arbre de vingt-cinq coudees de la ville, et</b> dans les cas <b>du caroubier et du sycomore,</b> qui ont un grand nombre de branches, on doit les eloigner de <b>cinquante coudees. Abba Shaul dit : Tout arbre sterile</b> doit etre eloigne de <b>cinquante coudees. Et si la ville a precede</b> l'arbre, comme on a plus tard plante l'arbre a cote de la ville, il <b>abat l'arbre</b>, <b>et</b> la ville <b>ne donne pas d'argent</b> au proprietaire de l'arbre en compensation. <b>Et si l'arbre a precede</b> la ville, qui s'est etendue apres que l'on ait plante l'arbre jusqu'a atteindre l'arbre, il <b>abat l'arbre</b> et</b> la ville <b>donne de l'argent</b> a son proprietaire. S'il est <b>incertain que celui-ci ait ete le premier ou que celui-la ait ete le premier,</b> il <b>abattre</b> l'arbre <b>et</b> la ville <b>ne donne pas d'argent.</b>
+
+### Partie 3
+<strong>GEMARA : </strong>La Gemara demande : <b>Quelle est la raison</b> pour laquelle on doit eloigner un arbre d'une ville ? <b>Ulla repond :</b> C'est <b>en raison de la beaute de la ville,</b> car il est inesthetique que les murs d'une ville soient obscurcis par les branches des arbres. La Gemara suggere : <b>Et qu'il derive</b> cette <i>halakha</i> de la declaration du tractate <i>Arakhin</i> (33b) <b>qu'on ne peut ni convertir un champ</b> d'une ville en <b>une zone ouverte</b> entourant la ville, <b>ni convertir</b> <b>une zone ouverte</b> en <b>un champ,</b> car ceux-ci ont des emplacements et des mesures fixes (voir Nombres 35:1""8). Si l'on plante des arbres dans l'espace ouvert d'une ville, on transforme ainsi l'espace ouvert en champ.
+
+### Partie 4
+La Guemara repond : <b>Non,</b> il est <b>necessaire</b> de fournir la raison donnee par Ulla <b>selon</b> l'avis de <b>Rabbi Elazar, qui dit :</b> On <b>peut transformer un champ</b> en <b>une zone ouverte, et une zone ouverte</b> en <b>un champ. Ici, on ne</b> plante pas d'arbres, <b>en raison de la beaute de la ville.</b>
+
+### Partie 5
+<b>Et selon</b> l'avis des <b>Rabbins egalement, qui disent</b> que <b>on ne peut pas convertir un champ</b> en <b>une zone ouverte, ni</b> convertir <b>une zone ouverte</b> en <b>un champ,</b> on peut dire que <b>cette question</b> ne s'applique qu'aux <b>graines,</b> c'est-a-dire qu'on ne peut pas planter des graines dans la zone ouverte d'une ville et la transformer ainsi en champ. <b>Mais</b> en ce qui concerne les <b>arbres, on les</b> plante dans un espace ouvert. <b>Mais ici</b> nous ne faisons <b>pas</b> de plantation d'arbres, <b>en raison de la beaute de la ville.</b>
+
+### Partie 6
+<b>Et d'ou dites-vous,</b> c'est-a-dire sur quelle base soutenez-vous, <b>qu'il y a <b>une difference entre les graines et les arbres</b> ? Comme il est enseigne</b> dans une <i>baraita</i> qui traite des <i>halakhot</i> de Chabbat : En ce qui concerne <b>un enclos [<i>karpef</i> ]</b> dont la superficie est <b>superieure a deux <i>beit seâ</i></b> mais <b>qui a ete clos</b> des le depart <b>dans un but de residence,</b> il est permis d'y porter le Chabbat quelle que soit sa taille, car il est considere comme un domaine prive.
+
+### Partie 7
+Si par la suite <b>la plus grande partie a ete ensemencee</b> de cultures de semences, <b>elle est</b> consideree <b>comme un jardin,</b> qui n'est pas un lieu de residence, <b>et il est interdit</b> d'y transporter quoi que ce soit a Shabbat. Si <b>la plus grande partie a ete plantee</b> d'arbres, <b>elle est</b> consideree <b>comme une cour,</b> qui est un lieu d'habitation, <b>et il est permis</b> d'y transporter a Shabbat. Cela montre que le fait de planter des arbres dans une enceinte ne transforme pas la zone en champ, comme c'est le cas lorsqu'on plante des graines.
+
+### Partie 8
+§ La mishna enseigne : <b>Et si la ville a precede</b> l'arbre, il <b>abat l'arbre</b>, <b>et</b> la ville <b>ne donne pas d'argent.</b> La Gemara demande : <b>Qu'est-ce qui est different en ce qui concerne une citerne, que</b> la <i>tanna</i> d'une autre mishna (25b) <b>enseigne</b> que si on plante un arbre a cote de la citerne existante d'un voisin, le proprietaire de l'arbre <b>abat</b> l'arbre <b>et</b> le proprietaire de la citerne <b>donne de l'argent ; et qu'est-ce qui est different ici que</b> la mishna <b>enseigne</b> que le proprietaire de l'arbre <b>abatte</b> l'arbre <b>et</b> la ville <b>ne donne pas d'argent ? </b>
+
+### Partie 9
+<b>Rav Kahana a dit,</b> citant un aphorisme populaire : <b>Un pot appartenant a des partenaires n'est ni chaud ni froid,</b> c'est-a-dire que personne ne prend la responsabilite d'un objet qui appartient a plusieurs personnes, par opposition a un seul individu. Ici aussi, il n'y a pas de personne precise qui va payer pour l'arbre.
+
+### Partie 10
+La Gemara demande : <b>Et quelle est la difficulte</b> pour commencer ? <b>Peut-etre que les dommages</b> causes <b>a la propriete publique</b> sont differents des dommages</b> causes a la propriete <b>d'un individu.</b> Par consequent, lorsque l'arbre d'un individu cause des dommages a la propriete publique, il n'est pas indemnise pour avoir du l'abattre, alors qu'il recoit un paiement lorsque son arbre endommage une citerne privee.
+
+### Partie 11
+<b>Au contraire, si le Rav Kahanas</b> commentaire <b>a ete enonce</b> dans ce contexte, <b>il a ete enonce a propos de cette derniere clause : Si l'arbre a precede</b> la ville, il <b>abattra</b> l'arbre <b>et</b> la ville <b>donne de l'argent</b> a son proprietaire. A propos de cette <i>halakha</i> on pourrait demander : <Et que le proprietaire de l'arbre dise aux habitants de la ville : <b>Donnez-moi d'abord de l'argent et ensuite je couperai</b> l'arbre. Dans ce contexte, <b>Rav Kahana a dit : Un pot appartenant a des partenaires n'est ni chaud ni froid.</b> Si le proprietaire de l'arbre a le droit d'attendre jusqu'a ce qu'il ait d'abord collecte de l'argent, un bon bout de temps s'ecoulerait avant que l'arbre ne soit coupe. Par consequent, une communaute n'a pas besoin de collecter de l'argent et de payer immediatement, contrairement a un individu.
+
+### Partie 12
+§ La mishna enseigne que s'il est <b>incertain que celui-ci ait ete le premier ou que celui-la ait ete le premier,</b> il <b>coupe</b> l'arbre <b>et</b> la ville <b>ne donne pas d'argent.</b> La Gemara demande : En <b>quelle</b> maniere <b>ce cas est-il</b> different de</b> celui d'un arbre a cote d'une <b>citerne,</b> au sujet duquel vous avez dit</b> dans la mishna (25b) que dans un cas d'incertitude le proprietaire de l'arbre ne doit <b>pas couper</b> l'arbre ?
+
+### Partie 13
+La Gemara repond : <b>Voila,</b> s'il s'agissait d'un cas <b>de certitude</b> l'arbre ne serait <b>pas sujet a etre coupe;</b> donc, dans un cas <b>d'incertitude aussi, on ne dit pas au</b> proprietaire de l'arbre : <b>Coupez-le</b> <b>abattu.</b> Dans ce cas, si l'arbre precedait la citerne, le proprietaire de l'arbre ne serait pas tenu de l'abattre. <b>Ici,</b> s'il s'agissait d'un cas <b>de certitude,</b> l'arbre serait <b>sujet a etre coupe</b> meme s'il a precede la ville, et la seule incertitude est de savoir si le proprietaire de l'arbre devra etre indemnise ou non. Par consequent, dans un cas <b>d'incertitude aussi, on dit au</b> proprietaire de l'arbre : <b>Coupez-le</b> <b>abattu. Et si</b> le proprietaire de l'arbre depose une demande <b>due</b> a la <b>valeur</b> de l'arbre, car il veut une compensation pour celui-ci, <b>on lui dit : Apportez la preuve</b> que votre arbre est venu en premier, <b>et prenez</b> votre argent. Comme il n'a pas de preuve, il ne recoit pas d'argent.
+
+### Partie 14
+<strong>MISHNA:</strong> <b>On doit eloigner une aire de battage permanente a cinquante coudees de la ville,</b> afin que la balle ne nuise pas aux residents de la ville. De plus, <b>une personne ne doit pas etablir une aire de battage permanente</b> meme <b>sur sa propre</b> propriete <b>a moins de disposer de cinquante coudees</b> d'espace libre <b>dans toutes les directions. Et l'on doit eloigner</b> une aire de battage <b>des plantations d'autrui et du</b> <b>champ de labour</b> d'autrui suffisamment <b>pour qu'elle ne cause pas de dommage.</b>
+
+### Partie 15
+<strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est different</b> dans <b>la premiere clause</b> de la mishna, qui enonce une mesure fixe pour la distance d'une aire de battage par rapport a une ville, <b>et qu'est-ce qui est different</b> dans <b>la derniere clause,</b> qui ne fournit pas de mesure mais enonce simplement en termes generaux : Assez pour qu'elle ne cause pas de dommages ? <b>Abaye a dit :</b> Dans <b>la derniere clause, nous arrivons</b> au cas d'une <b>etendue de battage qui n'est pas permanente.</b> Cette etendue de battage doit etre suffisamment eloignee du voisin pour qu'elle ne cause pas de dommage a sa propriete.
+
+### Partie 16
+La Gemara demande : <b>Quelles sont les circonstances</b> d'une <b>infrastructure de battage qui n'est pas permanente ? Rabbi Yosei, fils de Rabbi Hanina, repond :</b> Il s'agit de <b>toutes les aires de battage</b> <b>ou</b> on traite une si petite quantite de grains qu'on <b>ne vanne pas avec une pelle a vanner,</b> mais qu'on emploie une autre methode qui ne disperse pas l'ivraie aussi loin. C'est une resolution de la contradiction.
+
+### Partie 17
+<b>Rav Ashi a dit</b> que la phrase : Assez pour qu'elle ne cause pas de degats, ne fait pas reference a une distance mais fournit une explication. En d'autres termes, la <i>tanna</i> <b>dit : Quelle est la raison</b> de la decision de la premiere clause, comme suit : <b>Quelle est la raison</b> pour laquelle <b>on doit eloigner une aire de battage permanente de cinquante coudees de la ville ?</b> Elle doit etre suffisamment <b>eloignee</b> <b>pour ne pas causer de dommages.</b>
+
+### Partie 18
+La Guemara <b>souleve une objection</b> contre l'avis de Abaye a partir d'une <i>baraita</i> : <b>On doit eloigner une aire de battage permanente de cinquante coudees de la ville ; et de meme qu'on l'eloigne</b> de <b>cinquante coudees de la ville, de meme on l'eloigne</b> de <b>cinquante coudees des courges, concombres, plantations et champ laboure d'un autre, suffisamment pour qu'elle ne cause pas de dommages. Accorde,</b> cela <b>fonctionne bien selon</b> l'avis de <b>Rav Ashi,</b> car il affirme que dans les deux clauses, la meme distance est requise : On doit deplacer une aire de battage de cinquante coudees d'un champ laboure et de ces plantations. <b>Mais selon</b> l'explication de <b>Abaye,</b> c'est <b>difficile.</b> La Gemara commente : En effet, c'est <b>difficile.</b>
+
+### Partie 19
+La Guemara demande a propos de la <i>baraita</i> : <b>Accorde,</b> on doit eloigner son aire de battage <b>des <b>concombres et des courges</b> de son voisin, car la balle</b> de l'aire de battage <b>allait</b> et penetrait <b>au cœur</b> de la fleur <b>et la dessechait. Mais pourquoi</b> faut-il eloigner l'aire de battage <b>de</b> l'autre <b>du champ laboure ? Rabbi Abba bar Zavda a dit, et certains disent</b> que c'est <b>Rabbi Abba bar Zutra :</b> C'est <b>parce que</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

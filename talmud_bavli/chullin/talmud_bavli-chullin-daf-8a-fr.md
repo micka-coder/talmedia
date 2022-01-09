@@ -1,0 +1,39 @@
+
+### Partie 1
+§ <b>Rabbi Zeira dit</b> que <b>Shmuel dit :</b> Si <b>quelqu'un a chauffe un couteau jusqu'a</b> ce qu'il devienne <b>chaud blanc [<i>libben</i>] et a abattu</b> un animal <b>avec, son abattage est valide,</b> car couper le <i>simanim</i> concerne avec la lame <b>aiguisee</b> du couteau <b>precede</b> l'effet de <b>sa chaleur blanche. </b> Si l'effet de la chaleur avait precede la decoupe, l'animal aurait ete rendu <i>tereifa</i>, un animal avec une blessure qui le fera mourir dans les douze mois, avant que l'abattage ne soit termine, en brulant la trachee et le gosier. La Guemara demande : <b>Mais n'y a-t-il pas les cotes</b> du couteau, qui brulent la gorge et rendent l'animal un <i>tereifa</i> ? La Guemara repond : <b>La zone d'abattage</b> dans la gorge <b>partie</b> immediatement apres l'incision, et les tissus de part et d'autre de l'incision ne sont pas brules par la lame chauffee a blanc.
+
+### Partie 2
+<b>Un dilemme a ete souleve devant</b> les Sages : Si <b>on chauffe une brochette [<i>shappud</i>] jusqu'a</b> ce qu'elle devienne <b>blanchatre et qu'on frappe</b> une personne <b>avec, </b> et qu'apres la guerison de la blessure une marque lepreuse se developpe, cette marque est-elle <b>jugee comme</b> un <b>bouillis lepreux ou est-elle jugee comme</b> un <b>brulure lepreuse ?</b>
+
+### Partie 3
+<b>Quelle est la</b> <b>difference pratique</b> selon qu'il est juge comme un furoncle ou comme une brulure ? La difference est <b>pour ce qui est enseigne</b> dans un <i>baraita</i> : Tant un <b>bouillis lepreux</b> qu'un <b>brulure lepreuse deviennent impurs pendant une semaine</b> de quarantaine <b>avec deux symptomes : Avec des cheveux blancs</b> qui poussent dans la marque lepreuse <b>et avec une propagation</b> de la marque lepreuse. <b>Et pourquoi le verset les a-t-il divises</b> en deux passages distincts alors que leur statut halakhique est le meme ? Le verset les a divises <b>pour dire qu'ils ne se rejoignent pas</b> pour constituer la mesure requise de marques lepreuses impures. Au contraire, il y a impurete uniquement si le furoncle ou la brulure constitue cette mesure individuellement.
+
+### Partie 4
+<b>Et il est enseigne</b> dans un <i>baraita</i> : <b>Quelle</b> blessure <b>est un furoncle et laquelle est une brulure ? </b> Si <b>on a ete frappe avec du bois, avec une pierre, avec du marc, avec les sources chaudes de Tiberiade, ou avec tout objet qui n'est pas chauffe par le feu,</b> une expression qui sert <b>a inclure le plomb</b> qui a ete extrait <b>de sa source</b> dans le sol, qui est occasionnellement assez chaud pour bruler une personne, <b>cette</b> impression laissee sur la peau <b>est un furoncle. Et quelle</b> blessure <b>est une brulure ?</b> Si <b>on a ete brule avec un charbon, avec des cendres chaudes, avec du calcaire bouillant, avec du gypse bouillant [<i>begippesit</i>], ou avec tout objet chauffe par le feu,</b> expression qui sert <b>a inclure</b> l'eau <b>chauffee par le feu, cette</b> impression laissee sur la peau <b>est une brulure.</b>
+
+### Partie 5
+<b>Et il est enseigne</b> dans un <i>baraita</i> : S'il y a <b>un furoncle et une brulure</b> au meme endroit sur la peau et qu'une marque lepreuse s'est developpee, la blessure ulterieure determine la nature de la lepre. Par consequent, <b>si le furoncle a precede la brulure, la brulure annule le furoncle</b> et la marque est une brulure lepreuse. <b>Et si la brulure a precede le furoncle, le furoncle annule la brulure</b> et la marque est un furoncle lepreux.
+
+### Partie 6
+<b>Et ici,</b> ou s'est pose le dilemme de savoir si la marque qui se developpe a la suite d'un choc avec une brochette chaude est un furoncle ou une brulure, <b>quelles sont les circonstances ? </b> C'est un cas <b>ou initialement il y avait un furoncle de la moitie</b> de la taille d'un <b>haricot fendu sur</b> la peau de la personne, <b>et on a chauffe une brochette jusqu'a</b> ce qu'elle devienne <b>blanche et on l'a frappee</b> avec, et une autre</b> marque <b>de la moitie</b> de la taille d'un <b>haricot fendu est apparue</b> sur la peau a cet endroit.
+
+### Partie 7
+La Guemara clarifie le dilemme : <b>Qu'est-ce que</b> la <i>halakha</i> ? <b>Est-ce que</b> l'effet du <b>coup vient en premier et</b> ensuite l'effet de <b>la chaleur vient annuler</b> l'effet du <b>coup, et c'est</b> une demi-mesure <b>de bouillir et</b> une demi-mesure <b>de bruler et elles ne se rejoignent pas</b> pour constituer une mesure complete ? <b>Ou peut-etre</b> l'effet de <b>la chaleur vient d'abord et</b> ensuite l'effet de <b>le coup vient et annule</b> l'effet de <b>la chaleur, et c'est</b> une demi-mesure <b>bouillante et</b> une demi-mesure <b>bouillante et elles se rejoignent.</b>
+
+### Partie 8
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une resolution du dilemme a partir de ce <b>que Rabbi Zeira dit</b> que <b>Shmuel dit : </b> Si <b>quelqu'un a chauffe un couteau jusqu'a</b> ce qu'il devienne <b>blanc et a abattu</b> un animal <b>avec, son abattage est valide,</b> car couper les <i>simanim</i> concernes avec la lame <b>tranchante</b> du couteau <b>precede</b> l'effet de <b>sa chaleur blanche. Apparemment,</b> l'effet de <b>le coup vient en premier.</b> La Gemara rejette cette preuve : Couper avec <b>une lame tranchante</b> <b>est different</b> de frapper avec un objet contondant, et c'est seulement dans le cas d'une lame que la coupure precede l'effet de la chaleur.
+
+### Partie 9
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution du dilemme de la part d'un <i>baraita</i> : si <b>on chauffe une brochette jusqu'a</b> ce qu'elle devienne <b>blanche et qu'on frappe</b> une personne <b>avec elle</b> et qu'apres la guerison de la blessure une marque lepreuse se developpe, cette marque <b>est jugee comme</b> une <b>brulure</b> lepreuse causee <b>par le feu. Apparemment,</b> l'effet du <b>coup precede</b> l'effet de la brulure. La Guemara rejette cette preuve : <b>La aussi,</b> la reference est a un cas <b>ou il a poignarde</b> la peau avec la brochette, <b>ce qui est</b> la meme chose que de couper avec <b>une lame tranchante</b>.
+
+### Partie 10
+§ <b>Rav Nahman dit que Rabba bar Avuh dit :</b> En ce qui concerne <b>un couteau</b> utilise <b>pour le culte des idoles,</b> il est <b>permis d'abattre</b> un animal <b>avec, mais</b> il est <b>interdit de couper la viande avec. </b> Il est <b>permis d'abattre</b> un animal <b>avec elle</b> car l'abattre <b>est une action destructrice</b> vis a vis de l'animal, qui a plus de valeur lorsqu'il est vivant. <b>Mais</b> il est <b>interdit de couper la viande avec elle,</b> car une fois l'animal abattu, la couper <b>est une action constructive</b> qui rend la viande maniable.
+
+### Partie 11
+<b>Rava a dit :</b> Il y a des <b>moments ou</b> il est <b>interdit</b> a <b>celui qui abat</b> un animal d'utiliser un couteau utilise pour le culte des idoles, par exemple <b>dans</b> le cas d'un animal qui est en <b>danger,</b> c'est-a-dire qu'il est sur le point de mourir. S'il n'abat pas l'animal, celui-ci deviendrait une carcasse non abattue et perdrait de sa valeur. <b>Et</b> il y a des moments ou il est <b>permis</b> a <b>celui qui coupe</b> la viande d'utiliser un couteau d'idole, par exemple, <b>dans</b> le cas d'un animal dont les <b>cuisses sont destinees</b> a etre envoyees comme <b>cadeau</b> a une personne de stature. Le couper en morceaux le rendrait impropre a cet usage, diminuant ainsi sa valeur.
+
+### Partie 12
+La Gemara conteste : <b>Et deduire</b> qu'il est interdit d'utiliser un couteau utilise pour le culte des idoles, non pas parce que le benefice qui en decoule est interdit, mais <b>en raison</b> du residu de <b>graisse de carcasses interdites</b> sur le couteau.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Part 1
+The mishna is referring to a case <b>where</b> the storekeeper <b>took</b> the jug from the child in order <b>to measure with it</b> for him, <b>and</b> because he took it in his hands, he is liable in the event of an accident, <b>in accordance with</b> the opinion of <b>Rabba. As Rabba says:</b> With regard to the obligation to return lost animals, even in a case where the finder is exempt from caring for the animal and returning it to its owner, e.g., if he is an elderly person and it is beneath his dignity, if <b>he struck</b> the animal in order to lead it, then <b>he becomes obligated</b> to return <b>it.</b> Likewise, the Rabbis here maintain that the storekeeper’s action renders him liable for the jug.
+
+### Part 2
+The Gemara asks: You can <b>say that Rabba says</b> his statement <b>with regard to animals, as</b> the finder <b>taught them</b> to <b>take steps away,</b> i.e., he worsened the situation, as he causes them to stray even further from their owner. Nevertheless, in <b>a case like this,</b> where the storekeeper took the jug from the child, <b>did</b> Rabba <b>say</b> that the storekeeper is liable? The storekeeper’s action does not make it any more likely that the jug will break.
+
+### Part 3
+<b>Rather, Rava said: I and the lion of the group explained it. And who is</b> this great Sage, referred to as a lion? It is <b>Rabbi Zeira,</b> and the explanation is as follows: <b>Here we are dealing with</b> a case <b>where</b> the storekeeper <b>took</b> the jug from the child in order <b>to measure with it for others,</b> without the knowledge of the father.
+
+### Part 4
+<b>And</b> the Rabbis and Rabbi Yehuda <b>disagree with regard to a borrower</b> who takes an item <b>without</b> the owner’s <b>knowledge.</b> One <b>Sage,</b> Rabbi Yehuda, <b>holds</b> that the storekeeper <b>is</b> considered like any other <b>borrower</b> and once he returns the jug to the child, he is no longer responsible for it. <b>And</b> one <b>Sage,</b> i.e., the Rabbis, <b>holds</b> that someone who borrows without the owner’s knowledge <b>is a robber</b> and is obligated to return the item to its owner. Therefore, the storekeeper must pay for the jug that the child broke before it reached the father.
+
+### Part 5
+The Gemara returns to <b>the</b> matter <b>itself. Shmuel says:</b> With regard to <b>one who takes a vessel from a craftsman</b> in order <b>to examine it, and an accident occurred</b> while it was <b>in his possession</b> and it broke, he is <b>liable</b> to pay restitution for the vessel. The Gemara explains: <b>And this statement</b> applies only in a case <b>where the monetary</b> value of the vessel <b>is fixed,</b> because he examines the vessel merely to ensure there is nothing wrong with it, and it is assumed that if he finds no defect he will buy it.
+
+### Part 6
+The Gemara relates: There was <b>a certain man who entered a butcher shop and lifted a thigh of meat</b> to examine it. <b>While he was lifting it, a horseman came</b> and <b>seized</b> it <b>from him.</b> The buyer <b>came before Rav Yeimar,</b> who <b>deemed him liable to pay its monetary</b> value to the seller, because it was seized from him after he had lifted it. The Gemara again notes: <b>And this matter,</b> i.e., <i>halakha</i>, applies only in a place <b>where the monetary</b> value of the item is <b>fixed,</b> and therefore lifting it is equivalent to finalizing the sale.
+
+### Part 7
+The Gemara relates a similar incident: There was <b>a certain man who brought pumpkins to</b> the city of <b>Pum Nahara. Everyone came</b> and <b>took a pumpkin</b> with the intention of buying it, but had yet to pay for it. The seller was angry, and since he did not know from whom to demand payment, <b>he said to them:</b> The pumpkins <b>are hereby consecrated to Heaven.</b>
+
+### Part 8
+<b>They came before Rav Kahana</b> to inquire about the halakhic status of the pumpkins. Rav Kahana <b>said to them:</b> This statement has no effect, as <b>a person cannot consecrate an item that is not his,</b> and since the buyers had lifted the pumpkins, they no longer belonged to the seller. Once again the Gemara points out: <b>And this matter,</b> i.e., <i>halakha</i>, applies only in a place <b>where</b> the item’s <b>monetary</b> value is <b>fixed,</b> and therefore lifting it is akin to finalizing the sale. <b>But</b> if the item’s <b>monetary</b> value is <b>not fixed, it remains in the jurisdiction of its owner, and</b> the seller <b>did well,</b> i.e., was successful, in <b>that he consecrated</b> it.
+
+### Part 9
+§ <b>The Sages taught:</b> In the case of <b>one who</b> wishes to <b>buy vegetables from the market</b> and the seller is an <i>am ha’aretz</i>, i.e., one who is unreliable with regard to tithes, in which case the buyer is required to separate tithes after his purchase, <b>and he selected</b> superior-quality vegetables from inferior-quality vegetables <b>and placed</b> them to the side, as he was considering purchasing them, <b>even</b> if he did this <b>all day,</b> if he does not decide to buy the vegetables <b>he does not acquire</b> them <b>and does not become obligated in</b> separating <b>tithes.</b>
+
+### Part 10
+If <b>he had determined to buy</b> the vegetables he selected, <b>he acquires</b> them <b>and becomes obligated in</b> separating <b>tithes.</b> In such a case, <b>it is not possible</b> for him to decide to not buy the vegetables and <b>to return</b> them to the seller in their present state, <b>as they have already became obligated in tithes, and,</b> likewise, <b>it is not possible to tithe them</b> and return them to the seller, <b>as he would then lower their monetary</b> value. <b>How</b> should he proceed? <b>He</b> should <b>tithe</b> the produce, give the tithes to an appropriate recipient, <b>and give</b> the seller <b>money</b> in exchange for the <b>tithes</b> that he separated from it.
+
+### Part 11
+The Gemara asks: <b>Is that to say</b> that <b>because one determined to buy</b> the produce, even though he says nothing and performs no act of acquisition, <b>he acquires</b> the produce <b>and becomes obligated in tithes? Rav Hoshaya said: Here, we are dealing with</b> a buyer who is <b>God-fearing, such as Rav Safra,</b> who <b>himself fulfilled</b> the verse: <b>“And speaks truth in his heart”</b> (Psalms 15:2). With regard to business matters Rav Safra considered himself bound by his thoughts at the time of negotiations, even if he did not express them verbally or perform any action (see <i>Makkot</i> 24a). A person on the ethical level of Rav Safra acquires the produce and becomes obligated to separate tithes from the moment that he decides to buy it.
+
+### Part 12
+<strong>MISHNA:</strong> <b>A wholesaler [<i>hassiton</i>] must clean his measuring</b> vessels, which are used for measuring liquids such as oil and wine, <b>once every thirty days,</b> because the residue of the liquids sticks to the measure and reduces its capacity. <b>And a homeowner</b> who sells his goods must clean his measuring vessels only <b>once every twelve months. Rabban Shimon ben Gamliel says: The matters are reversed.</b> In the case of one who is constantly using his vessels for selling merchandise the residue does not adhere to the measuring vessel, and therefore a wholesaler must clean his measures only once a year. But in the case of a homeowner, who does not sell as often, the residue adheres to the measuring vessel; therefore, he must clean them every thirty days.
+
+### Part 13
+<b>A storekeeper,</b> who constantly sells merchandise in small quantities, <b>cleans his measuring</b> vessels <b>twice a week and cleans his weights once a week; and he cleans</b> the pans of <b>his scales after each and every weighing,</b> to ensure that no merchandise has adhered to the pans, thereby increasing their weight. <b>Rabban Shimon ben Gamliel said: In what</b> case <b>is this statement,</b> that it is necessary to clean a measuring vessel, <b>said? With regard to moist</b> items, which are likely to adhere to the measuring vessels. <b>But with regard to dry</b> goods, which do not adhere to the measuring vessels, one <b>does not need</b> to clean his measuring vessels.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

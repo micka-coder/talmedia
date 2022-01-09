@@ -1,0 +1,18 @@
+
+### Part 1
+The Gemara asks: <b>We found</b> a source for the <i>halakha</i> that one may not separate <i>teruma</i> from <b>wine and oil</b> together; <b>from where</b> is it derived that one may not separate <i>teruma</i> from <b>wine and grain</b> together, or from <b>grain</b> of one kind <b>and grain</b> of a different kind together? The Gemara answers that this can be derived by <b>an <i>a fortiori</i></b> inference: <b>And if wine and oil, which are not</b> prohibited due to the prohibition of <b>diverse kinds</b> if they are planted <b>with each other,</b> nevertheless <b>may not be tithed from one for the other,</b> then with regard to <b>wine and grain</b> or <b>grain and grain, which are</b> subject to the prohibition of <b>diverse kinds</b> when planted <b>with each other, is it not logical that they may not be tithed from one for the other?</b>
+
+### Part 2
+The Gemara challenges: <b>But</b> this derivation is problematic <b>according to</b> the opinion of <b>Rabbi Yoshiya, who says</b> that the verse: “You shall not sow your vineyard with diverse kinds” (Deuteronomy 22:9), means that one who sows diverse kinds is not liable by Torah law <b>until he sows wheat and barley and</b> a grape <b>seed with a single hand motion.</b> According to this opinion, the above <i>a fortiori</i> inference is not valid; consequently, <b>how does he derive</b> the <i>halakha</i> that one may not tithe grain for wine or grain for grain?
+
+### Part 3
+The Gemara answers that <b>he derives it in this manner: And if wine and oil, which are not</b> prohibited as <b>diverse kinds with each other even by means of something else,</b> i.e., even if one planted a different kind of grain seed with them, do not become prohibited, and yet <b>they may not be tithed from one for the other,</b> then with regard to <b>wine and grain</b> or <b>grain and grain, which are</b> prohibited as <b>diverse kinds with something else,</b> i.e., if they are planted with another type of seed, <b>is it not logical that they may not be tithed from one for the other?</b>
+
+### Part 4
+The Gemara asks: It can be derived in this manner that one may not separate <i>teruma</i> or tithes from wine for grain or vice versa; <b>but from where do we</b> derive the prohibition against separating <i>teruma</i> or tithes from <b>two species in general</b> that are not grain, e.g., lentils and beans, one for the other? The Gemara answers that the obligation to separate tithes from <b>these</b> other species, which are not mentioned in the Torah, applies <b>by rabbinic</b> law, <b>and</b> concerning <b>all</b> ordinances <b>that the Sages instituted, they instituted</b> them <b>parallel to Torah law.</b> Therefore, <b>just as by Torah law two species may not be tithed from one for the other,</b> so <b>too,</b> those mixtures that are prohibited <b>by rabbinic law</b> may not be tithed one for another.
+
+### Part 5
+<b>Rava bar Rav Ḥanan said to Abaye: If that is so,</b> then <b>with regard to animal tithe, where it is not written</b> in the Torah: <b>And all the tithe of the herd or the tithe of the flock,</b> with the word “tithe” mentioned twice, once in reference to the herd and once in reference to the flock, but rather the verse states: “And all the tithe of the herd or the flock, whatever passes under the rod, the tenth shall be sacred to the Lord” (Leviticus 27:32),
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+alors, <b>si</b> le pere <b>decede,</b> son fils <b>n'herite pas</b> de <b>lui.</b> Apparemment, on peut rendre son bien interdit et le faire rester interdit apres qu'il ne soit plus en sa possession. La Guemara rejette cette preuve : Il <b>est different ici, car il lui a dit</b> explicitement : <b>Pendant sa vie et a sa mort.</b> Il n'y a aucune preuve que dans un cas ou il n'a pas explicitement etendu l'interdiction a la periode apres qu'il quitte sa possession, l'interdiction ne resterait pas en vigueur.
+
+### Partie 2
+La deuxieme question a recu une reponse, mais <b>en tout cas</b> la premiere question reste <b>difficile :</b> Pourquoi Rabbi Yohanan et Reish Lakish n'ont-ils pas ete en desaccord dans un cas ou il a dit : Cette propriete, aussi bien ? <b>Au contraire,</b> voici l'explication de leur differend : <b>Dans</b> le cas de celui qui a dit : Le benefice de <b>ce bien</b> t'est interdit, <b>tout le monde est d'accord</b> que l'interdiction reste en vigueur meme apres que l'objet ne soit plus en sa possession. <b>Lorsqu'ils sont en desaccord,</b> c'est <b>dans</b> le cas de celui qui a dit : Le benefice de <b>mes biens</b> vous est interdit.
+
+### Partie 3
+<b>Rav et Shmuel soutiennent : </b> Il <b>n'y a pas de difference</b> s'il a dit : <b>Ce bien,</b> et il <b>n'y a pas de difference</b> s'il a dit : <b>Mon bien,</b> dans les deux cas, <b>une personne rend</b> un objet <b>interdit</b> et l'interdiction reste en vigueur meme apres que l'objet ne soit plus en sa possession. <b>Et Rabbi Yohanan et Reish Lakish soutiennent : </b> Si on dit : <b>Biens, une personne rend</b> un objet <b>interdit</b> et l'interdiction reste en vigueur. Cependant, s'il a dit : <b>Mon bien, une personne ne rend pas</b> un article <b>interdit</b> pour la periode apres qu'il ne soit plus en sa possession, car l'expression mon bien signifie un bien en ma possession.
+
+### Partie 4
+La Gemara demande : <b>Et y a-t-il quelqu'un qui dit</b> qu'il <b>n'y a pas de difference</b> s'il dit : <b>Ce bien, et</b> il <b>n'y a pas de difference</b> s'il dit : <b>Mon bien,</b> et que l'interdiction reste en vigueur meme apres que l'objet n'est plus en sa possession ? <b>Mais n'a-t-on pas appris</b> dans une mishna (46a) : <b>Si quelqu'un dit a un autre : Entrer dans ta maison est <i>konam</i> pour moi,</b> ou : <b>Acheter ton champ est <i>konam</i> pour moi,</b> alors si le proprietaire <b>decede ou vend</b> le bien <b>a un autre,</b> il est <b>permis</b> pour celui qui a fait le vœu d'entrer dans la maison ou d'acheter le champ, car l'interdiction n'est en vigueur que tant qu'il appartient a cette personne. En revanche, s'il a dit : <b>Entrer dans cette maison</b> est <i>konam</i> <b>pour moi,</b> ou : <b>Acheter ce champ</b> est <i>konam</i> <b>pour moi,</b> alors si le proprietaire <b>mort ou vend</b> le bien <b>a un autre,</b> il reste <b>interdit.</b> Apparemment, il y a une difference entre un cas ou il rend simplement un objet interdit et un cas ou il rend interdit un objet appartenant a un individu particulier.
+
+### Partie 5
+<b>Voila plutot,</b> l'explication des declarations des <i>amoraim</i> : <b>Lorsque Rabbi Yohanan et Reish Lakish ont dit</b> que l'interdiction n'est plus en vigueur apres que l'objet n'est plus en sa possession, c'etait <b>dans</b> un cas ou il a dit : <b>Mon bien. Et</b> lorsque <b>Rav et Shmuel</b> ont dit que l'interdiction reste en vigueur apres que l'objet n'est plus en sa possession, c'etait <b>dans</b> un cas ou il a dit : <b>Ce bien. Et ils ne sont pas en desaccord,</b> car chaque paire de <i>amoraim</i> abordait une situation differente.
+
+### Partie 6
+Nous avons appris dans la mishna : <b>Et pendant l'annee sabbatique, il ne peut pas entrer dans son champ;</b> cependant, il mange des produits qui penchent hors du champ. La Gemara demande : <b>Qu'y a-t-il de different</b> dans l'annee sabbatique <b>pour qu'il</b> soit autorise a <b>manger du produit qui penche hors du champ ? C'est du au fait que le produit est sans proprietaire.</b> En ce qui concerne la terre egalement, la Torah l'a rendue sans proprietaire, car pendant l'annee sabbatique, il est permis a tout le monde d'entrer dans le champ et de manger le produit.
+
+### Partie 7
+<b>Ulla a dit :</b> La mishna se refere a un cas <b>ou les arbres fruitiers <b>sont debout sur les frontieres</b> du champ. Puisqu'il est possible de manger le produit sans entrer dans le champ, il ne lui est pas permis d'y entrer. <b>Rabbi Shimon ben Elyakim a dit :</b> Meme dans le cas ou les arbres fruitiers sont debout au milieu du champ, il lui est egalement interdit d'entrer dans le champ, en raison d'un <b>decret rabbinique de peur qu'il ne reste debout</b> la plus longtemps que necessaire a des fins de consommation, ce qui est interdit meme pendant l'annee sabbatique.
+
+### Partie 8
+<strong>MISHNA :</strong> Dans le cas d'une <b>personne pour qui le benefice d'une autre personne est interdit par vœu,</b> cette autre personne <b>ne peut ni preter</b> un objet <b>a elle ni emprunter</b> un objet <b>de lui.</b> De meme, <b>elle ne peut ni preter</b> de l'argent <b>a elle ni emprunter</b> de l'argent <b>de lui. Et il ne peut ni vendre</b> un objet <b>a lui ni acheter</b> un objet <b>de lui.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

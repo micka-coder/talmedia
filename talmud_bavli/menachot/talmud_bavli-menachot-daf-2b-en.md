@@ -1,0 +1,66 @@
+
+### Part 1
+The Gemara concludes the proof from the verse: <b>And</b> with regard to <b>a gift</b> offering, <b>is it permitted to deviate</b> from <b>its</b> protocol <i>ab initio</i>? Clearly one may not do so. Accordingly, if one of the sacrificial rites of a meal offering was performed for the sake of a different meal offering, it is still prohibited to perform any of its other sacrificial rites improperly.
+
+### Part 2
+§ The mishna teaches that all the meal offerings from which a handful was removed not for their sake are fit for sacrifice but they do not fulfill the obligation of the owner. The Gemara suggests: <b>Let us say that the mishna is not in accordance with</b> the opinion of <b>Rabbi Shimon, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon says: All the meal offerings</b> from <b>which a handful was removed not for their sake are fit</b> for sacrifice <b>and they</b> even <b>satisfy the obligation of the owner.</b>
+
+### Part 3
+The <i>baraita</i> continues: Conversely, consecrated animals that were sacrificed not for their sake do not fulfill the obligation of the owner, <b>as</b> in this regard <b>meal offerings are not similar to slaughtered offerings.</b> The difference is <b>that</b> when <b>one removes a handful</b> from <b>a pan</b> meal offering <b>for the sake of a deep-pan</b> meal offering, <b>its mode of preparation proves</b> that <b>it</b> is in fact <b>for the sake of a pan</b> meal offering, as the two offerings differ in appearance. Similarly, with regard to <b>a dry</b> meal offering, e.g., the meal offering of a sinner, which contains no oil, whose handful is removed <b>for the sake of</b> a meal offering that is <b>mixed</b> with oil, <b>its mode of preparation proves</b> that <b>it</b> is <b>for the sake of a dry</b> meal offering, and one’s improper intent is therefore disregarded.
+
+### Part 4
+<b>But with regard to slaughtered offerings it is not so, as</b> there is <b>one</b> manner of <b>slaughter for all</b> offerings, <b>and one</b> manner of <b>sprinkling</b> the blood <b>for all</b> offerings, <b>and one</b> manner of <b>collection</b> of the blood <b>for all</b> offerings. Since the differentiation between slaughtered offerings is established only through intention, one who sacrifices an animal offering not for its own sake does not fulfill the obligation of the owner. Rabbi Shimon apparently disagrees with the <i>tanna</i> of the mishna on two counts: First, he claims that if the handful of a meal offering was removed not for its own sake it satisfies the obligation of the owner, whereas the mishna teaches that the obligation is not fulfilled. Second, Rabbi Shimon does not differentiate between the meal offering of a sinner or the meal offering of jealousy, and the other types of meal offerings.
+
+### Part 5
+The Gemara comments: <b>This works out well,</b> i.e., the mishna can be explained in accordance with the opinion of Rabbi Shimon, <b>according to Rav Ashi, who says</b> (3b), in a resolution of two apparently contradictory statements of Rabbi Shimon: <b>Here,</b> where Rabbi Shimon says that the meal offering is fit and fulfills the owner’s obligation, he is referring to a case <b>where</b> one states that he is <b>removing a handful</b> from <b>a pan</b> meal offering <b>for the sake of a deep pan,</b> i.e., he mentions only the vessel, not the type of meal offering. Conversely, <b>there,</b> where Rabbi Shimon says that the meal offering does not satisfy the owner’s obligation, he is referring to a case <b>where</b> one states that he is <b>removing a handful</b> from <b>a pan meal offering for the sake of a deep-pan meal offering.</b>
+
+### Part 6
+Accordingly, it can be explained that <b>the mishna is</b> referring to a case where one removes a handful from <b>a meal offering for the sake of</b> another <b>meal offering,</b> which is why it does not satisfy the obligation of the owner. <b>But according to</b> the statements of <b>Rabba and Rava,</b> who resolved that contradiction in a different manner, <b>what can be said?</b>
+
+### Part 7
+The Gemara elaborates: <b>And if you would say</b> that the contradiction addressed by Rav Ashi is resolved <b>as Rabba answers,</b> this is problematic. Rabba resolved the contradiction as follows: <b>Here,</b> where Rabbi Shimon says that the meal offering satisfies the owner’s obligation, he is referring <b>to a change of sanctity,</b> i.e., it was sacrificed for the sake of another type of meal offering, whereas <b>there,</b> where Rabbi Shimon says that it does not fulfill the owner’s obligation, he is referring <b>to a change of owner,</b> e.g., the meal offering of Reuven was sacrificed for the sake of Shimon.
+
+### Part 8
+The Gemara explains that the reason this is problematic is that if one accepts Rabba’s resolution, how can the mishna be explained in accordance with the opinion of Rabbi Shimon? <b>The mishna is</b> clearly discussing the case of <b>a change of sanctity, as it teaches: How</b> are these rites performed <b>for their sake and</b> then <b>not for their sake,</b> whereby the offering does not satisfy the owner’s obligation? It is in a case where one initially removed the handful <b>for the sake of the meal offering of a sinner and</b> then <b>for the sake of a voluntary meal offering.</b> This is a change involving a different type of meal offering.
+
+### Part 9
+<b>And alternatively,</b> if you would say that the contradiction addressed by Rav Ashi is resolved <b>as Rava answers,</b> this is equally problematic. Rava resolved the contradiction as follows: <b>Here,</b> where Rabbi Shimon says that the meal offering satisfies the owner’s obligation, he is referring to a case <b>where one removes a handful</b> from <b>a meal offering for the sake of</b> another <b>meal offering,</b> whereas <b>there,</b> where Rabbi Shimon says that it does not satisfy the owner’s obligation, he is referring to a case <b>where one removes a handful</b> from <b>a meal offering for the sake of a slaughtered offering.</b>
+
+### Part 10
+The Gemara explains that if one accepts Rava’s resolution, the mishna cannot be in accordance with the opinion of Rabbi Shimon: <b>The mishna is</b> discussing a case where one removes a handful from <b>a meal offering for the sake of</b> another <b>meal offering, as it teaches:</b> How are these rites performed <b>not for their sake and for their sake?</b> It is a case where one removed the handful <b>for the sake of a voluntary meal offering</b> and then <b>for the sake of the meal offering of a sinner.</b> The Gemara concludes: <b>Rather, according to</b> the resolutions offered by <b>Rabba and Rava, it is clear</b> that <b>the mishna is not in accordance with</b> the opinion of <b>Rabbi Shimon.</b>
+
+### Part 11
+§ The Gemara cites the <i>baraita</i> that is the basis for the apparent contradiction between the statements of Rabbi Shimon, which was mentioned in the previous discussion: <b>And</b> a Sage <b>raises a contradiction</b> from one statement <b>of Rabbi Shimon and</b> another statement <b>of Rabbi Shimon, as it is taught</b> in a <i>baraita</i>: <b>Rabbi Shimon says</b> that the verse written concerning the meal offering: <b>“It is most sacred, as the sin offering, and as the guilt offering”</b> (Leviticus 6:10), indicates that <b>there are some</b> meal offerings whose <i>halakha</i> is <b>like</b> that of <b>a sin offering, and there are some</b> whose <i>halakha</i> is <b>like</b> that of <b>a guilt offering.</b>
+
+### Part 12
+Rabbi Shimon elaborates: The <i>halakha</i> with regard to <b>the meal offering of a sinner is like</b> that of <b>a sin offering. Therefore,</b> if one <b>removed a handful</b> from <b>it not for its own sake,</b> it is <b>disqualified,</b> just <b>like a sin offering</b> that was slaughtered not for its own sake. Conversely, the <i>halakha</i> with regard to <b>a voluntary meal offering is like</b> that of <b>a guilt offering. Therefore,</b> if one <b>removed a handful</b> from <b>it not for its own sake,</b> it is <b>valid,</b> like a guilt offering that was slaughtered not for its own sake.
+
+### Part 13
+Rabbi Shimon adds: <b>And</b> a voluntary meal offering is <b>like a guilt offering</b> in another aspect as well: <b>Just as a guilt offering</b> is <b>valid but it does not effect acceptance,</b> i.e., it does not satisfy the owner’s obligation, <b>so too, a voluntary meal offering</b> is <b>valid but it does not effect acceptance.</b> Rabbi Shimon here apparently contradicts his ruling that all meal offerings from which a handful was removed not for their sake satisfy the obligation of the owner.
+
+### Part 14
+<b>Rabba said</b> in resolution of this contradiction: This is <b>not difficult. Here,</b> where Rabbi Shimon says that the meal offering satisfies the owner’s obligation, he is referring <b>to a change of sanctity,</b> i.e., it was sacrificed for the sake of another type of meal offering, whereas <b>there,</b> where he says that it does not fulfill the owner’s obligation, he is referring <b>to a change of owner,</b> e.g., the meal offering of Reuven was sacrificed for the sake of Shimon.
+
+### Part 15
+<b>Abaye said to</b> Rabba: <b>Now</b> consider, the fact <b>that the Merciful One disqualifies</b> a meal offering due to improper <b>intent is</b> derived from the Torah’s <b>comparison</b> of meal offerings to sin offerings and guilt offerings. If so, <b>what</b> difference is there <b>to me</b> if there was <b>a change of sanctity,</b> and <b>what</b> difference is there <b>to me</b> if there was <b>a change of owner?</b> In the case of a guilt offering either of these changes prevents it from satisfying the obligation of the owner.
+
+### Part 16
+Rabba <b>said to</b> Abaye: The claim that <b>its mode of preparation proves</b> one’s intent, <b>which Rabbi Shimon states</b> in explanation of why offerings are disqualified through improper intent, <b>is</b> based on <b>logical reasoning, as Rabbi Shimon interprets the reason</b> behind the mitzva <b>in the verse</b> and draws halakhic conclusions based on that interpretation.
+
+### Part 17
+Rabba continues: This is significant, as Rabbi Shimon holds that <b>the Merciful One disqualifies</b> improper <b>intent that is not recognizably</b> false, i.e., when the intent is not in clear contradiction to the sacrificial rites performed. The intent to sacrifice an offering for the sake of another owner does not include a change in the sacrificial rites and it therefore disqualifies the offering. <b>The Merciful One does not disqualify</b> improper <b>intent that is recognizably</b> false and contradicts the sacrificial rites performed, e.g., if one removes a handful from a pan meal offering for the sake of a deep-pan meal offering, as the different substance itself indicates that it is a pan meal offering.
+
+### Part 18
+The Gemara lists several questions with regard to Rabba’s statement, for which it provides <b>a mnemonic: Burnt offering, burnt offering, pinched and squeezed, bird sin offering, offerings of the most sacred order, offerings of lesser sanctity.</b>
+
+### Part 19
+The Gemara first asks: But <b>if that is so,</b> that only intent that is not recognizably false disqualifies an offering, then in the case of <b>a bird burnt offering where one pinched</b> the nape of <b>its</b> neck <b>above</b> the red line that divides the upper and lower halves of the altar <b>for the sake of a bird sin offering,</b> it <b>should effect acceptance</b> according to Rabbi Shimon. The reason is <b>the actions</b> performed <b>on it prove that it is a bird burnt offering. Because if it is</b> in fact <b>a bird sin offering, he would have performed</b> the pinching <b>below</b> the red line while standing beside the altar. Nevertheless, Rabbi Shimon agrees with the ruling of the mishna (<i>Zevaḥim</i> 64b) that this bird offering does not satisfy its owner’s obligation.
+
+### Part 20
+The Gemara rejects this: <b>Is that to say</b> that a case of <b>a bird sin offering</b> that is pinched <b>above</b> the red line <b>is not</b> possible? <b>Didn’t the Master say:</b> The <b>pinching</b> of a bird sin offering that is performed <b>in any place on the altar</b> is <b>valid</b> after the fact? Accordingly, there is no discernible difference between the pinching of a bird burnt offering and the pinching of a bird sin offering, so the owner’s obligation is not fulfilled.
+
+### Part 21
+The Gemara raises another difficulty: If recognizably false intent does not disqualify an offering, then <b>a bird burnt offering where</b> a priest <b>squeezed its blood above</b> the red line <b>for the sake of a bird sin offering should effect acceptance,</b> as <b>the actions</b> performed <b>on it prove that it is a bird burnt offering. Because if it is</b> in fact <b>a bird sin offering, he would have performed</b> the required act of holding the body of the bird and <b>sprinkling</b> its blood <b>below</b> the red line, instead of squeezing out its blood above that line.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

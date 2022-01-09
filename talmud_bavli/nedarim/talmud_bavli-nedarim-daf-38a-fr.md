@@ -1,0 +1,54 @@
+
+### Partie 1
+Il en est de meme pour <b>Ceci" qui</b> est dans le verset "et ceci est <b>la mitzva"</b> (Deuteronome 6:1) ; et pour <b>"bend" qui</b> est dans le verset "que <b>l'archer</b> bande son arc" (Jeremie 51 : 3) ; et pour <b>"five" que</b> est dans le verset "et <b>le cote sud</b> quatre mille cinq cents" (Ezechiel 48 : 16) ; et pour <b>"si" que</b> est dans le verset <b>"que</b> si je suis <b>un proche parent"</b> (Ruth 3 : 12). Tous <b>ceux-ci sont ecrits mais pas lus.</b>
+
+### Partie 2
+<b>Rav Aha bar Adda a dit : En Occident,</b> Eretz Yisrael, on <b>divise ce verset en trois versets : "Et l'Eternel dit a Moise : voici que je viens a toi dans une epaisse nuee,</b> afin que le peuple entende comme je te parle, et qu'il croie aussi en toi pour toujours ; et Moise rapporta les paroles du peuple a l'Eternel" (Exode 19:9).
+
+### Partie 3
+§ <b>Rabbi Hama, fils de Rabbi Hanina, a dit : Moise ne s'est enrichi que des dechets</b> restant <b>de la taille</b> des <b>Tablettes</b> de l'Alliance, <b>comme il est dit : "Trouve pour toi deux tables de pierre comme la première"</b> (Exode 34:1). Comme les tablettes ont ete fabriquees a partir de pierres precieuses, leurs restes etaient tout aussi precieux.
+
+### Partie 4
+<b>Rabbi Yosei, fils de Rabbi Hanina, a dit : La Torah a ete donnee</b> initialement <b>uniquement a Moise et a ses descendants, comme il est dit : "Ecrit pour vous"</b> (Exode 34:27), et il est aussi dit : <b>"uvrer pour vous"</b> (Exode 34:1), ce qui signifie : <b>De meme que leurs dechets sont a toi, de meme leur ecriture est a toi.</b> Cependant, <b>Moses a traite</b> la Torah <b>avec generosite et l'a donnee au peuple juif. Et a son sujet, le verset dit : "Celui qui a l'oeil genereux sera beni,</b> comme il donne de son pain aux pauvres" (Proverbes 22:9).
+
+### Partie 5
+<b>Rav Hisda a souleve une objection</b> a partir du verset qui dit : <b>"Et le Seigneur m'a ordonne en ce temps-la de vous enseigner</b> des statuts et des lois" (Deuteronome 4:14). Cela indique que Moise a recu l'ordre d'enseigner la Torah au peuple juif des le debut. La Guemara repond : Le verset signifie : <b>Et le Seigneur a ordonne</b> la Torah a <b>moi, </b> Moise, <b>et moi, </b> de ma propre initiative, j'ai decide <b>de</b> vous enseigner <b>les statuts et les lois</b>. La Gemara cite un verset supplementaire prouvant que Dieu a ordonne d'enseigner le peuple juif des le debut : <b>Voici, je vous ai enseigne des statuts et des lois, comme le Seigneur mon Dieu me l'a ordonne"</b> (Deuteronome 4:5). La Guemara repond : <b>Le Seigneur a ordonne</b> la Torah a <b>moi,</b> Moise, <b>et j'ai</b> decide <b>de</b> vous enseigner <b>les statuts et les lois.
+
+### Partie 6
+La Gemara cite un verset supplementaire : <b>Maintenant, ecris donc ce chant pour toi,</b> et enseigne-le aux enfants d'Israel" (Deuteronome 31:19). Apparemment, Moise a recu l'ordre d'enseigner la Torah au peuple juif. La Guemara repond : Le verset fait reference a <b>le chant</b> de <i>Haâzinu</i> (Deuteronome 31) <b>seul</b> et non au reste de la Torah. La Gemara demande : Mais la suite de ce verset cite : <b>Afin que ce chant soit un temoignage pour Moi parmi les enfants d'Israel</b> (Deuteronome 31:19), indique que la reference est a la Torah entiere, dans laquelle les mitzvot sont ecrites. Au contraire, la Torah a ete donnee des le depart a tout le peuple juif, et lorsque Rabbi Yosei, fils de Rabbi Hanina, a dit que la Torah a ete donnee exclusivement a Moise, il se referait <b>seulement</b> a l'analyse <b>profonde</b> de la Torah. Moise a choisi de l'enseigner au peuple de sa propre initiative.
+
+### Partie 7
+<b>Rabbi Yohanan a dit : Le Saint, Beni soit-Il, ne repose Sa Presence Divine que sur</b> celui qui est <b>puissant, et riche, et sage, et humble. Et toutes ces</b> qualites sont issues <b>de Moise.</b> Il etait <b>puissant, comme il est ecrit : "Et il etendit la tente sur le Tabernacle"</b> (Exode 40:19), <b>et le Maitre dit : Moise, notre maitre, l'a etendue</b> lui-meme. <b>Et il est ecrit :" Dix coudees seront la longueur d'une planche,A/b> et une coudee et demie la largeur de chaque planche" (Exode 26:16). Moise etait assez grand et fort pour deployer la tente sur les planches seules. La Guemara demande : <b>Disons qu'il etait grand et mince,</b> et le fait qu'il etait puissant ne peut etre deduit.
+
+### Partie 8
+<b>Au contraire,</b> le fait que Moise etait puissant est derive <b>de ce verset, comme il est ecrit : "Et j'ai saisi les deux tablettes, je les ai jetees de mes deux mains, et je les ai brisees</b> sous vos yeux" (Deuteronome 9:17), <b>et c'est enseigne</b> dans une <i>baraita</i> : <b>Les tablettes, leur longueur etait de six</b> handbreadths, <b>et leur largeur de six</b> handbreadths, <b>et leur epaisseur de trois</b> handbreadths. Si Moise etait capable de soulever et de jeter un fardeau aussi lourd, apparemment il etait puissant.
+
+### Partie 9
+Moise etait <b>riche,</b> comme il est ecrit : <b>"uvrer pour toi"</b> (Exode 34:1), d'ou ce terme est derive : Les <b>dechets</b> des Tablettes de l'Alliance <b>seront a toi,</b> et ces dechets etaient constitues de pierres precieuses. Que Moise <b>etait sage</b> est derive de la declaration de <b>Rav et Shmuel, qui disent tous deux : Cinquante mesures d'intelligence ont ete creees dans le monde, et toutes ont ete donnees a Moise, sauf une, comme il est dit : "Mais tu l'as privé de peu, de Dieu"</b> (Psaumes 8:6). Il ne lui manquait que la connaissance complete de Dieu. Moise etait <b>humble, comme il est ecrit : "L'homme MoA¯se était très humble"</b> (Nombres 12:3).
+
+### Partie 10
+§ <b>Le rabbin Yohanan a dit : Tous les prophetes etaient riches. D'ou est-ce qu'on</b> derive ceci ? On le tire <b>de Moise, et de Samuel,</b> et <b>d'Amos, et de Jonas,</b> qui etaient tous riches.
+
+### Partie 11
+<b>Moise</b> etait riche, <b>comme il est ecrit : "Je ne leur ai pas pris un seul ane"</b> (Nombres 16:15). La Guemara analyse la declaration de Moise. <b>Si</b> il a dit qu'il n'a pas pris un ane <b>sans paiement,</b> son intention etait-elle <b>d'exclure</b> lui-meme de la categorie de <b>ceux qui prennent</b> des objets qui appartiennent a d'autres <b>sans payer ?</b> C'est evident, car celui qui agit ainsi est un voleur. <b>Au contraire,</b> il dit <b>que meme en payant</b> il n'a pas pris d'ane. Apparemment, il etait riche et n'avait pas besoin d'acheter quoi que ce soit. La Gemara rejette cette preuve. <b>Peut-etre,</b> au contraire, il n'a pas achete d'ane <b>parce qu'il etait pauvre</b> et ne pouvait pas se le permettre. <b>C'est plutot,</b> elle est derivee du verset ecrit a propos des Tablettes de l'Alliance : <b>"Hew for you"</b> (Exode 34:1), qui indique que <b>leurs dechets seront les tiens.</b>
+
+### Partie 12
+<b>Samuel</b> etait riche, <b>comme il est ecrit : <b>Me voici, temoigne contre moi devant le Seigneur et devant son oint : De qui ai-je pris le bœuf, ou de qui ai-je pris l'ane ? "</b> (IA Samuel 12:3). <b>Si</b> il dit qu'il n'a pas pris un bœuf ou un ane <b>gratuitement,</b> son intention etait-elle <b>d'exclure</b> lui-meme de la categorie de <b>ceux qui prennent</b> des objets qui appartiennent a d'autres <b>gratuitement ? Au contraire,</b> il dit <b>que meme avec un paiement</b> il n'a pas pris un ane ou un bœuf. Apparemment, il etait riche. La Gemara rejette cette preuve. <b>Peut-etre,</b> au contraire, la raison pour laquelle il n'a pas achete les anes est due au fait <b>qu'il etait pauvre. Au contraire,</b> le fait que Samuel etait riche est derive <b>de la,</b> comme il est ecrit : <b>Et son retour se fit a Rama, car c'est la qu'etait sa maison"</b> (IA Samuel 7:17). <b>Et Rava a dit : Partout ou il allait, sa maison etait avec lui.</b> Il etait si riche qu'il pouvait se permettre d'engager des serviteurs et des betes de somme pour transporter tous ses biens d'un endroit a l'autre.
+
+### Partie 13
+<b>Rava a dit : Ce qui est enonce a l'egard de Samuel est plus grand que ce qui est enonce a l'egard de Moise, car a l'egard de Moise notre maitre, il est ecrit : "Je ne leur ai pas pris un seul ane"</b> (Nombres 16:15), ce qui signifie qu'il n'a pas pris un objet d'un autre contre sa volonte <b>meme avec un paiement. Alors qu'en ce qui concerne Samuel, meme avec</b> le <b>consentement</b> du proprietaire, <b>il ne lui louait pas</b> un objet, <b>comme il est ecrit : "Et ils ont dit : Tu ne nous as pas spolies, ni opprimes [<i>ratzotanu</i>],</b> et tu n'as rien pris de la main d'aucun homme (IA Samuel 12:4), meme avec son consentement [<i>ratzon</i>].
+
+### Partie 14
+<b>Amos</b> etait riche, <b>comme il est ecrit :" Alors Amos prit la parole et dit a Amatsia : Je n'etais pas prophete, et je n'etais pas non plus fils de prophete ; mais j'etais gardien de troupeaux et cueilleur de sycomores"</b> (Amos 7:14). Amos dit, <b>comme le traduit Rav Yosef : Car je suis proprietaire de troupeaux et je possede des sycomores dans la plaine,</b> et je ne viens pas prophetiser pour un gain financier. Apparemment, Amos etait riche.
+
+### Partie 15
+<b>Jonas</b> etait riche, <b>comme il est ecrit :</b> "Et il descendit a Jaffa, et trouva un navire allant a Tarsis, <b>alors il en paya le prix et y descendit"</b> (Jonas 1:3), <b>et Rabbi Yohanan dit : Il a paye le cout de tout le navire. Rabbi Romanus a dit : Le cout pour le</b> <b>bateau entier etait de quatre mille dinars d'or.</b>
+
+### Partie 16
+<b>Et Rabbi Yohanan a dit : Au depart, Moise etudiait la Torah et l'oubliait, jusqu'a ce qu'elle lui soit donnee en cadeau, comme il est dit : "Et Il la donna a Moise lorsqu'il eut fini de lui parler"</b> (Exode 31:18). Une fois que la Torah lui a été donnée en cadeau, elle est devenue la sienne et il a pu s'en souvenir.
+
+### Partie 17
+<strong>MISHNA:</strong> <b>Et</b> en ce qui concerne celui pour qui le benefice d'une autre personne est interdit par vœu, cette autre personne <b>peut nourrir</b> sa <b>femme et ses enfants, bien que</b> celui qui est lie par le vœu <b>soit oblige dans leur soutien</b> et beneficie quand un autre les soutient. <b>Et il ne peut nourrir son animal, qu'il s'agisse</b> d'un animal <b>cacher</b> ou <b>d'un animal non cachere</b>. <b>Rabbi Eliezer dit : Il peut nourrir l'animal non casher</b>, <b>et il ne peut pas nourrir l'animal casher</b>. Les rabbins lui <b>disent : Quelle est</b> la difference <b>entre les animaux casher et non casher</b> a cet egard ? Rabbi Eliezer leur <b>dit : L'animal casher</b> <b>l'etre</b> appartient <b>au Ciel, et</b> le <b>corps de l'animal est</b> la propriete de son proprietaire, puisqu'il peut le manger. Par consequent, le proprietaire beneficie directement lorsqu'un autre nourrit son animal. <b>Et un animal non casher</b>,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

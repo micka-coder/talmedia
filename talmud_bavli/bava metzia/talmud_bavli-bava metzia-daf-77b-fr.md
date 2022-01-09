@@ -1,0 +1,63 @@
+
+### Partie 1
+<b>Il lui donne son salaire ; s'il est entrepreneur, il lui donne son paiement contractuel</b> ?
+
+### Partie 2
+La Gemara explique : <b>De quel avis</b> cette <i>baraita</i> suit-elle ? <b>Si nous disons</b> qu'il est conforme a l'avis des <b>Rabbins, pourquoi</b> le <i>baraita</i> statue-t-il qu'il recoit son paiement integral <b>specifiquement</b> dans un cas ou l'ouvrier <b>a appris que</b> un de ses parents <b>est decede, ou si</b> il <b>etait saisi de fievre, ou il etait</b> incapable de travailler en raison de <b>circonstances independantes de sa volonte ? Lorsque</b> il n'est <b>pas</b> contraint par des <b>circonstances independantes de sa volonte</b> de cesser de travailler, cela devrait <b>aussi</b> etre la <i>halakha</i>. Apres tout, <b>les rabbins ont dit</b> que <b>le travailleur est avantage. Au contraire, n'est-il pas</b> correct de dire que cette <i>baraita</i> <b>est</b> conforme a l'opinion de <b>Rabbi Dosa ? Et</b> on peut <b>l'apprendre</b> que <b>Rabbi Dosa</b> ne fait <b>pas de difference entre le travail loue</b> <b>et le travail contractuel</b> a cet egard.
+
+### Partie 3
+<b>Rav Nahman bar Yitzhak a dit :</b> La decision de ce <i>baraita</i> est enoncee <b>par rapport a une question qui implique une perte financiere</b> si le travail n'est pas termine. Par consequent, l'employeur est avantage, a moins que le travailleur soit contraint d'arreter de travailler en raison de circonstances independantes de sa volonte, auquel cas <b>Tout le monde est d'accord</b> pour qu'il recoive son salaire complet.
+
+### Partie 4
+<b>Nous avons appris</b> dans la mishna : <b>Quiconque modifie</b> les conditions acceptees par les deux parties <b>est desavantage, et celui qui renie</b> un accord <b>est desavantage.</b> La Gemara demande : <b>Accorde,</b> en ce qui concerne l'affirmation : <b>Qui change est desavantage,</b> on peut le comprendre, <b>car le <i>tanna</i> nous a enseigne une mishna non attribuee</b> conformement a</b> l'opinion de <b>Rabbi Yehuda,</b> indiquant que c'est la <i>halakha</i>. <b>Mais</b> concernant la clause : <b>Quiconque renonce est desavantage, a quoi</b> sert-il <b>d'ajouter ? </b> Ne sert-il <b>pas</b> <b>d'ajouter</b> la <i>halakha</i> d'un <b>travailleur, et</b> ceci est <b>conforme</b> a l'opinion de <b>Rabbi Dosa,</b> qui estime que les travailleurs ne peuvent pas renier ?
+
+### Partie 5
+De toute evidence, la decision de Rav nest pas en accord avec lopinion de Rabbi Dosa. <b>Au contraire, Rabbi Dosa dit deux</b> <i>halakhot</i>, <b>et Rav tient conformement a son</b> avis <b>dans un</b> sujet <b>et est en desaccord avec son</b> avis <b>dans un</b> sujet. Le Rav n'est pas d'accord avec la decision de Rabbi Dosa selon laquelle les ouvriers sont desavantages, mais il est d'accord avec lui en ce qui concerne la maniere de calculer les salaires.
+
+### Partie 6
+<b>Si vous le souhaitez, dites</b> une interpretation differente de la mishna. La phrase : <b>Qui renonce est desavantage,</b> ne discute pas des modalites d'emploi, mais fait reference <b>a ce qui est enseigne</b> dans une <i>baraita</i> : <b>Quiconque renonce</b> est desavantage ; <b>comment cela ? Si l'un a vendu un champ a un autre pour mille dinars, et</b> l'acheteur lui a <b>donne deux cents dinars</b> comme acompte, puis l'un d'eux a renonce, <b>lorsque le vendeur renonce a</b> son engagement, <b>l'acheteur est a l'avantage.</b>
+
+### Partie 7
+En consequence, si l'acheteur <b>souhaite, il</b> peut <b>s'adresser a lui : Rends-moi</b> <b>mon argent</b> que je t'ai donne comme acompte, <b>ou donne-moi un terrain correspondant</b> a la valeur de <b>mon argent.</b> Si tu ne veux pas me donner tout le terrain conformement a notre accord, je devrais au moins recevoir un terrain en proportion de l'argent que je t'ai deja verse. <b>De quel</b> type de terre <b>le vendeur <b>donne-t-il</b> a l'acheteur ? <b>D'une terre de qualite superieure</b>. <b>Et quand l'acheteur renonce, le vendeur est avantage :</b> Si <b>il le desire,</b> le vendeur lui <b>dit : Prends ton argent,</b> et si <b>il desire, il lui dit : Prends un terrain correspondant</b> a la valeur de <b>votre argent</b> que tu as deja paye. <b>De quel</b> type de terre <b>le vendeur <b>donne-t-il</b> a l'acheteur ? Meme <b>de terrains de qualite inferieure</b>.
+
+### Partie 8
+Le <i>baraita</i> continue : <b>Rabban Shimon ben Gamliel dit : Nous leur apprenons</b> des le depart <b>a ne pas se retracter,</b> afin que l'accord ne soit pas annule et ne se termine pas par un conflit. <b>Comment cela ? </b> Le vendeur <b>ecrit</b> pour <b>lui</b> un acte de vente qui stipule : <b>Je, untel, fils d'untel, ai vendu tel champ a untel pour mille dinars, et de ceux-ci il m'a donne deux cents dinars. Et</b> donc, <b>maintenant, il me doit huit cents dinars.</b> De cette maniere, l'acheteur <b>acquiert</b> la totalite du champ, <b>et</b> l'acheteur <b>rend les huit cents dinars restants</b> <b>au vendeur <b>meme apres plusieurs annees.</b> Le reste du paiement du champ a ete transforme en un pret ecrit standard.
+
+### Partie 9
+<b>Le Maitre a dit</b> dans le <i>baraita</i> : <b>De quel</b> type de terrain <b>le vendeur <b>donne-t-il</b> a l'acheteur ? <b>D'une terre de qualite superieure</b>. Il peut <b>entrer dans votre esprit</b> de dire que cela signifie <b>de</b> la terre la plus <b>de qualite superieure</b> <b>de</b> toutes les <b>proprietes du vendeur.</b> La Gemara demande : <b>Mais</b> meme si l'acheteur <b>est</b> considere comme etant comme <b>seulement</b> un <b>creancier ordinaire, nous avons appris</b> dans une mishna (<i>Gittin</i> 48b) que <b>un creancier n'a droit</b> qu'a un <b>terrain de qualite intermediaire</b> et non de qualite superieure. <b>Et en outre,</b> il y a <b>cette</b> parcelle specifique de <b>terrain, pour laquelle</b> l'acheteur a <b>paye de l'argent.</b> Pourquoi devrait-il recevoir un terrain de qualite superieure ?
+
+### Partie 10
+<b>Rav Nahman bar Yitzhak a dit :</b> Lorsque le <i>baraita</i> fait reference au type de terre qui peut etre reclame apres que l'acheteur ou le vendeur se soit retracte, cela signifie <b>de la</b> terre de qualite superieure <b>qui se trouve dans</b> la parcelle convenue, ou <b>de la terre de qualite inferieure</b> <b>qui s'y trouve.</b>
+
+### Partie 11
+<b>Rav Aha, fils de Rav Ika, a dit : On</b> peut <b>meme dire</b> que la <i>baraita</i> signifie <b>de</b> la terre la plus <b>de qualite superieure</b> <b>de</b> l'ensemble des <b>biens du vendeur,</b> car il y a une raison specifique pour que ce soit le cas ici : <b>Ordinairement, celui</b> qui <b>achete un terrain pour mille dinars</b> n'aura pas une telle somme en main pour effectuer la transaction. Il <b>voudra plutot reduire sensiblement</b> le prix de <b>ses biens et les vendre</b> a perte, de maniere a obtenir l'argent. Si le vendeur renonce et que l'acheteur n'acquiert pas cette grande parcelle de terrain, il aura subi une perte importante, <b>et il sera comme une partie lesee</b>, <b>et nous avons appris</b> la meme mishna : Le tribunal <b>apprecie les terres de qualite superieure</b> <b>pour les payer aux parties lesees</b>. Par consequent, dans ce cas aussi, le vendeur doit fournir une terre de qualite superieure.
+
+### Partie 12
+§ Il est en outre indique dans le <i>baraita</i> que <b>Rabban Shimon ben Gamliel dit : Nous leur apprenons a ne pas se retracter. Comment ? Il ecrit pour lui : Moi, untel, fils d'untel,</b> j'ai vendu tel champ a untel pour mille dinars, et de ceux-ci il m'a donne deux cents dinars. Et donc, maintenant, il me doit huit cents dinars. Cela entraine l'acquisition du champ pour l'acheteur immediatement. La Gemara demande : <b>La raison</b> ils ne peuvent pas renier <b>est que</b> le vendeur <b>a ecrit cela pour</b> l'acheteur dans le contrat. De toute evidence, <b>sans que cela</b> soit specifie dans un document, l'acheteur <b>n'acquiert pas</b> le champ immediatement.
+
+### Partie 13
+La Gemara demande : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui donne un acompte a un autre, et lui dit : Si je renonce, mon acompte te sera confisque, et l'autre</b> personne lui <b>dit : Si je renonce, je double ton acompte pour toi, les conditions sont en vigueur;</b> c'est-a-dire que le tribunal appliquera les conditions stipulees entre eux dans ce contrat. C'est <b>la declaration de Rabbi Yosei.</b>
+
+### Partie 14
+La Guemara commente : <b>Rabbi Yosei</b> se conforme <b>a sa ligne standard de <b>raisonnement</b>, puisqu'il dit : Une transaction avec un consentement non concluant [<i>asmakhta</i>] effectue une acquisition.</b> Meme s'il s'agit d'un engagement qu'il a pris en se basant sur sa certitude qu'il ne serait jamais contraint de remplir la condition, il est considere comme un engagement a part entiere.
+
+### Partie 15
+La Guemara poursuit sa discussion sur la <i>baraita</i>. <b>Rabbi Yehuda dit : Il suffit que</b> l'acompte <b>effectue l'acquisition</b> de marchandises <b>commensurables</b> au montant de <b>son acompte. Rabban Shimon ben Gamliel a dit : Dans quel</b> cas <b>cette declaration est-elle dite ? </b> C'est <b>lorsque</b> l'acheteur <b>dit au</b> vendeur : <b>Mon acompte effectuera l'acquisition</b> de la marchandise. <b>Mais</b> si <b>quelqu'un a vendu</b> un autre <b>un champ pour mille dinars, et</b> l'acheteur <b>l'a paye cinq cents dinars de</b> cette somme, il a <b>acquis</b> tout le champ, <b>et il rend le reste</b> de l'argent <b>au vendeur <b>meme apres que plusieurs annees</b> se soient ecoulees. De toute evidence, Rabban Shimon ben Gamliel soutient que meme s'ils n'ont pas de contrat explicite, le premier paiement de l'acheteur finalise la vente, rendant le paiement restant un pret standard. Si tel est le cas, pourquoi la <i>baraita</i> precedente indique-t-elle que Rabban Chimon ben Gamliel soutient que ce contrat doit etre ecrit ?
+
+### Partie 16
+La Guemara repond : <b>Ceci</b> n'est <b>pas difficile. Cette</b> decision, selon laquelle l'acompte ne sert a effectuer l'acquisition que s'ils ont specifie par ecrit que le paiement restant serait considere comme un pret, est enoncee par rapport a un cas <b>ou</b> le vendeur <b>entre et sort pour de l'argent,</b> c'est-a-dire qu'il demontre qu'il a besoin de liquidites. Par consequent, sauf si l'acquisition a ete stipulee par ecrit, l'acheteur n'acquiert la totalite du champ que lorsqu'il paie la totalite de la somme. <b>Cette</b> decision, selon laquelle l'acompte affecte l'acquisition totale, qu'il soit ecrit ou non dans un contrat, est enoncee a propos d'un cas <b>ou il n'entre pas et ne sort pas pour de l'argent.</b>
+
+### Partie 17
+C'est <b>comme le dit Rava :</b> En ce qui concerne <b>celui qui vend</b> un objet <b>a un autre et</b> ensuite <b>entre et sort pour de l'argent,</b> l'acheteur <b>ne l'a pas acquis</b> car il est clair que le vendeur l'a vendu uniquement parce qu'il avait besoin de l'argent immediatement. Puisque le vendeur n'a pas recu l'argent qu'il voulait immediatement, la transaction est nulle. <b>S'il n'entre pas et ne sort pas de l'argent,</b> l'acheteur <b>l'a acquis</b> et le reste du paiement est considere comme un pret qui doit etre rembourse dans le futur.
+
+### Partie 18
+<b>Et Rava dit :</b> En ce qui concerne <b>celui qui a prete cent dinars a un autre et</b> l'emprunteur <b>l'a rembourse un dinar a la fois, c'est</b> un <b>remboursement valable. Mais</b> le preteur <b>a</b> des motifs de <b>grief contre lui</b> pour l'avoir rembourse de cette maniere, <b>car il</b> peut <b>lui dire : Tu m'as fait perdre</b>, car il est plus facile d'utiliser une somme forfaitaire que quelques pieces a la fois.
+
+### Partie 19
+§ La Gemara relate : Il y avait <b>un certain homme qui vendit son ane a un autre, et un dinar lui etait encore du, et</b> le vendeur <b>entra et sortit pour son dinar. Rav Ashi s'est assis et a examine cette</b> situation, en demandant : Dans <b>un cas comme celui-ci, quel</b> est le <i>halakha</i> ? A-t-il <b>acquis</b> l'ane <b>ou</b> n'a-t-il pas <b>acquis</b> celui-ci ? <b>Rav Mordekhai a dit a Rav Ashi : C'est ce qu'a dit Avimi de Hagronya au nom de Rava : Un dinar est considere</b> comme <b>comme</b> plusieurs <b>dinars, et</b> donc <b>il ne l'a pas acquis</b>.
+
+### Partie 20
+<b>Rav Aha, fils de Rav Yosef, dit a Rav Ashi : Mais nous disons au nom de Rava</b> que dans ce cas <b>il l'a acquis</b>. Rav Ashi lui <b>dit,</b> en resolution de la contradiction apparente entre ces deux versions de la decision de Rava : <b>Interpretez votre <i>halakha</i> a l'egard</b> de celui qui <b>vend son champ</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

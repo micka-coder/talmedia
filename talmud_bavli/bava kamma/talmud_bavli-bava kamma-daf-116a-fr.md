@@ -1,0 +1,42 @@
+
+#### Partie 1
+Le vin doit <b>toujours etre verse</b> afin d'eviter une eventuelle mesaventure. <b>Et Beit Hillel dit :</b> Que le vin <b>soit utilise</b> pour <b>sprinkler. Rabbi Yishmael, fils de Rabbi Yosei, dit : Je vais trancher</b> la <i>halakha</i> en proposant un avis intermediaire : Si le vin est devenu impur <b>dans une maison, il peut etre utilise</b> pour <b>l'aspersion,</b> car il peut etre utilise immediatement, <b>mais</b> s'il est devenu impur <b>dans le champ, il doit etre entierement verse,</b> car il est possible qu'au moment ou il est apporte a la maison et utilise pour l'aspersion, quelqu'un puisse le boire.
+
+### Partie 2
+<b>Il y a</b> ceux <b>qui disent</b> qu'il a decide la <i>halakha</i> comme suit : <b>Pour ce qui est du vin vieilli</b>, <b>il peut etre utilise</b> pour l'aspersion,</b> car il est apte a etre asperge immediatement, <b>mais pour ce qui est du vin nouveau</b>, qui n'a pas encore un arome agreable, <b>il faut tout verser</b> afin d'eviter un eventuel accident. <b>Ils ont dit a</b> Rabbi Yishmael, fils de Rabbi Yosei : <b>Une decision</b> par <b>un tiers</b> <b>ne decide pas</b> de maniere concluante de la <b>halakha</b>.
+
+### Partie 3
+§ La mishna enseigne que <b>si</b> le proprietaire du vin <b>dit au</b> proprietaire du miel : <b>Je recupererai ton</b> miel et tu me paieras la valeur de mon vin, le proprietaire du miel est oblige de lui donner une compensation pour le vin. La Gemara demande : <b>Pourquoi</b> cette stipulation est-elle obligatoire ? <b>Laissons</b> le proprietaire du miel lui <b>dire : Je</b> n'ai fait que <b>faire des folies avec toi</b> lorsque j'ai accepte ta condition, et je n'y ai pas consenti du tout.
+
+### Partie 4
+<b>N'est-il pas enseigne</b> dans un <i>baraita</i> : Dans un cas <b>ou quelqu'un s'enfuyait de prison et ou il y avait un bac devant lui,</b> et <b>il a dit au</b> passeur : <b>Prenez</b> ce <b>dinar entier et faites-moi traverser</b> la riviere, le passeur <b>a le droit</b> de ne percevoir <b>que son</b> <b>salaire habituel,</b> mais pas le dinar entier. <b>Apparemment,</b> le prisonnier aurait pu lui <b>dire : Je</b> ne faisais que <b>faire des betises avec toi</b> et n'ai jamais eu l'intention de te payer un dinar entier. <b>Ici aussi, que</b> le proprietaire du miel <b>dise au</b> proprietaire du vin : <b>Je ne faisais que</b> <b>faire des folies avec toi.</b>
+
+### Partie 5
+La Gemara repond : <b>Ce</b> cas dans la mishna <b>n'est pas comparable</b> au cas cite plus haut ; <b>plutot,</b> il est comparable <b>a la derniere clause</b> de cette meme <i>baraita</i>, qui stipule : <b>Et s'il dit a</b> le passeur : <b>Prenez ce dinar comme salaire et faites-moi traverser</b> le fleuve, le prisonnier doit lui <b>donner son salaire dans sa totalite,</b> c'est-a-dire le dinar entier.
+
+### Partie 6
+<b>Qu'est-ce qui est different</b> dans <b>la premiere clause,</b> qui stipule que le passeur ne recoit que son salaire regulier, <b>et qu'est-ce qui est different</b> dans <b>la derniere clause,</b> qui stipule qu'il recoit le dinar entier ? <b>Rami bar Hama a dit :</b> La derniere clause traite <b>du passeur qui ramasse le poisson de la mer,</b> c'est-a-dire du pecheur, <b>et il</b> peut <b>dire au prisonnier : <b>Vous m'avez cause une perte</b> de <b>poissons [<i>kavrei</i>]</b> d'une valeur de <b>un dinar,</b> que j'aurais peches si je ne vous avais pas fait traverser le fleuve. De meme, dans le cas de la mishna, le proprietaire du vin subit une perte financiere afin de sauver le miel, et il a donc droit a la compensation que le proprietaire du miel a accepte de payer.
+
+### Partie 7
+§ La mishna enseigne : Si <b>une riviere a emporte son ane et l'ane de l'autre</b> homme, et que <b>son ane vaut cent dinars,</b> etc. La Gemara note : <b>Et il</b> est <b>necessaire</b> d'enseigner a la fois le cas des tonneaux de vin et de miel et le cas des anes, <b>comme s'il</b> nous avait <b>enseignes</b> seulement <b>le premier</b> cas, celui du vin et du miel, on pourrait dire que <b>c'est</b> seulement <b>la,</b> dans ce cas, <b>que lorsque</b> le proprietaire du vin <b>declare</b> sa stipulation, le proprietaire du miel lui <b>donne la valeur de</b> la <b>entiere</b> perte. Pourquoi cela ? C'est <b>parce que</b> le vin <b>est perdu par</b> l'<b>action</b> directe de son proprietaire. <b>Mais ici,</b> dans le cas des anes, <b>puisque</b> l'ane est perdu <b>par lui-meme</b> dans la riviere, <b>disons :</b> Celui qui sauve l'ane de son compagnon <b>a</b> droit a <b>seulement son salaire,</b> c'est-a-dire a une compensation pour son travail.
+
+### Partie 8
+<b>Et si</b> la mishna nous avait <b>enseigne</b> uniquement le cas de <b>cette derniere clause,</b> on pourrait dire : <b>C'est ici,</b> dans le cas des anes, <b>que</b> si l'intention de celui qui a sauve l'ane etait <b>non specifiee,</b> c'est-a-dire qu'il n'a pas stipule que le proprietaire de l'autre ane l'indemniserait pour la perte de son propre ane, il <b>a droit</b> uniquement a son salaire, car</b> l'ane est perdu <b>par lui-meme. Mais la,</b> ou le tonneau de vin est perdu <b>par</b> l'<b>action</b> directe de son proprietaire, on pourrait <b>dire : Meme dans</b> un cas ou l'intention du proprietaire du vin etait <b>non precisee,</b> le proprietaire du miel doit lui <b>donner la valeur de</b> la <b>entiere</b> barrique de vin. La Gemara conclut : En effet, les deux cas sont <b>necessaires.</b>
+
+### Partie 9
+La Gemara cite une discussion pertinente. <b>Rav Kahana souleve un dilemme devant Rav :</b> Si quelqu'un <b>descend</b> dans la riviere <b>pour sauver</b> l'ane d'un autre au lieu du sien apres avoir stipule qu'il serait indemnise pour la perte de son propre ane, <b>et que son</b> propre ane <b>sort</b> de la riviere <b>par lui-meme, quelle est</b> la <i>halakha</i> ? Le sauveteur a-t-il encore droit a un paiement de la part du proprietaire de l'ane qu'il a sauve, malgre le fait qu'il n'ait pas subi de perte monetaire ? Rav <b>lui a repondu :</b> Le sauveteur est toujours indemnise car c'est <b>du Ciel</b> que la <b>mercie lui a ete accordee,</b> et sa bonne fortune n'affecte pas la stipulation.
+
+### Partie 10
+Ceci <b>est comme ce</b> cas ou <b>Rav Safra voyageait dans une caravane,</b> et <b>un certain lion</b> les suivait, les <b>accompagnant</b> tout au long du chemin. <b>Chaque nuit,</b> les voyageurs <b>envoyaient un de leurs anes vers</b> le lion, <b>et</b> le lion <b>le mangeait</b>. <b>Quand arriva le moment pour Rav Safra</b> de fournir une proie au lion, <b>il lui envoya</b> son <b>ane mais</b> le lion <b>ne le mangea pas. Rav Safra s'avanca et le racheta</b> car son ane etait devenu sans proprietaire lorsqu'il l'avait presente au lion. Bien que Rav Safra n'ait pas perdu son ane, il avait rempli son obligation de fournir un ane au lion, et sa bonne fortune n'a pas affecte son obligation vis-a-vis des autres voyageurs.
+
+### Partie 11
+A propos de cet episode, <b>Rav Aha de Difti dit a Ravina : Pourquoi</b> etait-il necessaire <b>pour lui d'acquerir</b> a nouveau l'ane ? <b>Bien que</b> Rav Safra l'ait <b>rendu sans proprietaire</b> en l'envoyant au lion, il a ete <b>rendu sans proprietaire</b> uniquement <b>dans l'intention que le lion</b> le consomme, mais <b>il n'a pas ete rendu sans proprietaire dans l'intention que tout le monde</b> puisse l'acquerir. En consequence, personne d'autre n'aurait pu acquerir l'ane. Ravina lui a <b>dit : Rav Safra l'a fait</b> ainsi <b>par precaution supplementaire.</b>
+
+### Partie 12
+<b>Rav a souleve un dilemme devant Rabbi</b> Yehuda HaNasi : Si quelqu'un est <b>descendu</b> dans la riviere afin de <b>sauvegarder</b> l'ane d'un autre au lieu du sien, <b>mais</b> il <b>n'a pas</b> reussi a le <b>sauvegarder</b>, <b>qu'est-ce que</b> la <i>halakha</i> ? La stipulation s'applique-t-elle toujours de sorte que le proprietaire de l'ane qu'il a tente de sauver doit l'indemniser pour la perte de son propre ane ? Rabbi Yehuda HaNasi <b>lui repondit : Et est-ce une question ? </b> Il est clair que <b>Il a</b> le droit de percevoir <b>seulement son salaire,</b> mais il n'a pas droit a la valeur de son propre ane.
+
+### Partie 13
+Le Rav <b>a souleve une objection a</b> Rabbi Yehuda HaNasisur la decision d'une <i>baraita</i> : Dans le cas de <b>celui qui embauche un ouvrier</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

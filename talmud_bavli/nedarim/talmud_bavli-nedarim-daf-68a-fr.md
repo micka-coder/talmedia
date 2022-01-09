@@ -1,0 +1,18 @@
+
+### Partie 1
+<b>L'ecole de Rabbi Yishmael enseignait</b> une source differente pour la <i>halakha</i> dans la mishna : La Torah declare en ce qui concerne les voeux : "Voici les lois que le Seigneur a prescrites a Moise, <b>entre un homme et sa femme, entre un pere et sa fille,</b> etant dans sa jeunesse, dans la maison de son pere" (Nombres 30:17). <b>D'ici</b> il est derive <b>en ce qui concerne une jeune femme fiancee que son pere et son mari annulent ses vœux.</b> La Gemara demande : <b>Et selon la <i>tanna</i> de l'ecole de Rabbi Yishmael, que fait-il</b> avec les mots "et <b>si elle est a un mari"</b> (Nombres 30:7) ?
+
+### Partie 2
+La Guemara repond : Selon lui, il <b>etablit</b> cela <b>pour</b> enseigner la <b>autre</b> declaration <b>de Rava</b> : Si son fiance est mort sans ratifier le vœu, son pere peut l'annuler de lui-meme. La Guemara demande alors : <b>Et Rava,</b> qui tire la <i>halakha</i> selon laquelle le pere et le fiance de la jeune femme annulent ensemble ses vœux de la phrase "et si elle est a un mari" (Nombres 30:7), <b>que fait-il de ce</b> verset <b>que l'ecole de Rabbi Yishmael a enseigne</b> comme source pour le pere et le fiance annulant les vœux de la jeune femme ? La Guemara repond : <b>Il exige cette</b> phrase : "Entre un homme et sa femme" (Nombres 30:17), afin de <b>dire que le mari ne peut annuler</b> que les <b>vœux qui sont entre lui et elle,</b> c'est-a-dire les vœux qui ont un impact negatif sur leur relation conjugale, mais il ne peut annuler aucun autre type de vœu.
+
+### Partie 3
+§ <b>Un dilemme a ete souleve devant</b> les Sages : Si <b>un mari</b> annule le vœu de sa fiancee, est-ce qu'il <b>sevit</b> sa part du vœu <b>ou</b> est-ce qu'il <b>affaiblit</b> la force du vœu tout entier ? La Gemara clarifie : Dans <b>quelles</b> circonstances <b>on souleve le dilemme,</b> c'est-a-dire quelle est la difference pratique entre ces deux possibilites ? Dans un cas <b>ou elle a fait le vœu</b> de ne pas tirer de benefice <b>de deux olives, et</b> son <b>benedictin a entendu et annule</b> le vœu <b>pour elle, et</b> elle <b>date ces</b> deux olives avant que son pere n'annule le vœu, il y a une difference pratique.
+
+### Partie 4
+<b>Si nous disons</b> qu'il <b>sevre</b> sa part du vœu, annulant la moitie de l'interdiction, alors l'une des olives reste completement interdite, et elle <b>est fouettee</b> pour avoir viole son vœu. <b>Si l'on dit</b> qu'il <b>affaiblit</b> sa force, elle n'est pas susceptible d'etre fouettee, car manger les olives <b>est</b> maintenant <b>seulement une interdiction</b> qu'elle a violee. Si tel est le cas, <b>Quel</b> est le jugement relatif a cette question ?
+
+### Partie 5
+La Gemara cite maintenant un long <i>baraita</i>, enoncant finalement une preuve pour repondre a la question precedente. <b>Venez</b> et <b>entendez</b> une <i>baraita</i> qui resoudra le dilemme : <b>Quand a-t-on dit</b> que si <b>le mari</b> d'une jeune femme fiancee <b>decede,</b> la <b>autorite</b> d'annuler ses vœux <b>revient au pere,</b> qui peut alors annuler ses vœux a lui seul ? Cela se produit dans un cas <b>ou le mari n'avait pas entendu</b> son vœu <b>avant de mourir ; ou</b> dans un cas <b>ou il a entendu et s'est tu ; ou encore ou il a entendu et annule</b> celui-ci <b>et est mort le meme jour. C'est ce que nous avons appris</b> dans la mishna, concernant un cas de ce genre (70a) : Si <b>le mari meurt,</b> la <b>autorite</b> d'annuler les vœux <b>revient au pere.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

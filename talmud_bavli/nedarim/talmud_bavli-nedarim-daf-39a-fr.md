@@ -1,0 +1,21 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>De quoi s'agit-il ? Si</b> c'est un cas <b>ou les biens du visiteur sont interdits au malade, meme</b> s'il est <b>assis,</b> cela devrait <b>aussi</b> etre permis. <b>S'il s'agit d'un cas <b>ou les biens du malade sont interdits au visiteur, meme</b> s'il est <b>debout,</b> cela ne doit <b>pas non plus</b> etre permis, car on tire un benefice de l'entree dans la maison. <b>Shmuel a dit : En fait,</b> il s'agit d'un cas <b>ou les biens du visiteur sont interdits a la personne malade, et</b> c'est <b>dans un lieu ou l'on prend un paiement pour</b> visiter et <b>s'asseoir</b> avec une personne malade <b>et on ne prend pas de paiement pour</b> visiter et <b>se tenir debout</b> avec une personne malade. Par consequent, en s'asseyant avec la personne malade, le visiteur lui procure un benefice interdit en lui epargnant la depense d'engager une autre personne pour s'asseoir avec lui.
+
+### Partie 2
+<b>Pourquoi</b> cette distinction a-t-elle ete enoncee <b>sans reserve ?</b> Il n'y a pas de difference fondamentale apparente entre la position assise et la position debout lors de la visite d'un malade. La Guemara repond : Elle <b>nous enseigne ceci : Meme dans un lieu ou l'on se fait payer</b> pour visiter les malades, <b>pour s'asseoir, on doit se faire payer</b> mais <b>pour se tenir debout, on ne doit pas se faire payer</b>. <b>Et si vous le souhaitez, dites</b> plutot que la distinction s'explique <b>conformement</b> a l'affirmation que <b>Rabbi Shimon ben Elyakim</b> a dite ailleurs (42a), a savoir que celui a qui il est interdit de tirer un benefice d'un autre en raison d'un <b>decret</b> rabbinique ne peut pas entrer dans un champ qui appartient a ce dernier, <b>sauf a y rester debout</b> plus longtemps que permis. <b>Ici aussi,</b> il est interdit de s'asseoir en raison d'un <b>decret rabbinique, de peur qu'il ne reste assis</b> la plus longtemps que necessaire pour accomplir la mitsva de la visite du malade.
+
+### Partie 3
+<b>Ulla a dit : En fait,</b> il s'agit d'un cas <b>ou les biens du malade sont interdits au visiteur, et ou</b> le malade <b>n'a pas fait vœu</b> que ses biens soient interdits dans les cas ou leur utilisation permet au visiteur de repondre a des besoins relatifs a <b>sa</b> poursuite de l'existence.</b> La Gemara demande : <b>Si c'est le cas,</b> alors <b>meme le fait de s'asseoir</b> devrait etre autorise <b>aussi,</b> puisque le vœu n'interdisait pas l'usage relatif a ses besoins existentiels. La Gemara repond : <b>N'est-il pas possible</b> de satisfaire ces besoins et de rendre visite aux malades <b>en restant debout ?</b> Par consequent, la position assise ne constitue pas un besoin existentiel.
+
+### Partie 4
+La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>S'il est tombe malade, il entre pour le visiter ; si son fils est tombe malade, il s'enquiert</b> de la sante de <b>son</b> fils <b>sur la place du marche</b> mais ne peut entrer dans la maison pour le visiter. <b>Accorde, selon Ulla, qui a dit :</b> Il s'agit d'un cas <b>ou les biens de la personne malade sont interdits au visiteur et ou</b> la personne malade <b>n'a pas fait le vœu</b> que les biens soient interdits dans les cas se rapportant a son <b>existence continue,</b> cela fonctionne <b>bien,</b> car il a exclu ses propres besoins existentiels du vœu, et non les besoins existentiels de son fils.
+
+### Partie 5
+<b>Cependant, selon Shmuel, qui a dit :</b> C'est un cas <b>ou les biens du visiteur sont interdits a la personne malade, qu'est-ce qui est different</b> chez <b>lui et qu'est-ce qui est different</b> chez <b>son fils ?</b> Pourquoi lui est-il interdit de rendre visite lorsque le fils est malade ? La Gemara repond : <b>Shmuel</b> aurait pu <b>s'adresser a toi : La mishna</b> fait reference a un cas <b>ou les biens du visiteur sont interdits a la personne malade ; la <i>baraita</i></b> fait reference a un cas <b>ou les biens de la personne malade sont interdits au visiteur.</b>
+
+### Partie 6
+La Guemara demande : <b>Pourquoi</b> cette distinction entre la mishna et la <i>baraita</i> a-t-elle ete enoncee <b>sans qualification ? Rava dit : </b> En ce qui concerne <b>Shmuel,</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

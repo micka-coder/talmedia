@@ -1,0 +1,69 @@
+
+### Partie 1
+<b>l'offrande de repas d'un pecheur</b> apportee <b>par</b> l'un des <b>pretres</b> comme <b>equivalente</b> au statut de <b>l'offrande de repas d'un pecheur</b> apportee <b>par un Israelite. De meme que</b> en ce qui concerne <b>l'offrande de repas d'un pecheur</b> apportee <b>par un Israelite, une poignee est enlevee, de meme,</b> en ce qui concerne <b>l'offrande de repas d'un pecheur</b> apportee <b>par</b> un des <b>pretres, une poignee est enlevee.</b>
+
+### Partie 2
+Le <i>baraita</i> conteste ce point : <b>Si</b> ainsi, alors dites comme suit : <b>De meme que</b> en ce qui concerne <b>l'offrande de repas d'un pecheur</b> apportee <b>par un Israelite, on enleve une poignee et on mange son reste, de meme,</b> en ce qui concerne l'<b>offrande de repas d'un pecheur</b> apportee <b>par</b> un des <b>pretres, on doit <b>enlever une poignee</b> et manger son reste.</b>
+
+### Partie 3
+Par consequent, <b>le verset dit : </b> "Et le reste sera <b>au sacrificateur, comme offrande de repas,"</b> ce qui est interprete comme signifiant que <b>en ce qui concerne</b> le rite accompli par <b>le sacrificateur,</b> son offrande de repas est <b>comme l'offrande de repas</b> de l'Israelite, <b>mais</b> elle n'est <b>pas comme l'offrande de repas</b> de l'Israelite en ce qui concerne la consommation <b>par les feux</b> de l'autel. <b>Comment</b> est-ce <b>que cela</b> est possible ? En quoi l'offrande de repas d'un pretre ressemble-t-elle a celle d'un israelite a certains egards et pas a d'autres ? La <b>manche du pretre est sacrifiee par elle-meme,</b> comme celle de l'israelite, <b>et le reste est sacrifie par lui-meme,</b> contrairement a ceux de l'israelite, qui sont manges.
+
+### Partie 4
+§ Selon l'opinion de la premiere <i>tanna</i> dans le <i>baraita</i> cite plus haut, un pretre peut accomplir les rites d'une offrande de repas d'un pecheur qu'il apporte pour lui-meme, en se basant sur le verset "Et le reste sera au pretre, comme l'offrande de repas." La Gemara demande maintenant : En ce qui concerne <b>cette</b> <i>halakha</i> <b>que son rite est valide</b> lorsqu'il est accompli <b>par lui,</b> est-elle <b>derivee d'ici ?</b>
+
+### Partie 5
+Il est <b>derive de la,</b> un autre verset cite dans un <i>baraita</i>, qui stipule : <b>D'ou vient</b> qu'il est derive <b>en ce qui concerne un pretre que</b> il peut <b>venir et sacrifier ses offrandes a tout moment et a toute heure qu'il desire,</b> meme si ce n'est pas pendant la periode de sa veille sacerdotale ? <b>Le verset dit :</b> "Et si un levite vient de l'une de vos portes, de tout Israel, ou il habite, <b>et vient avec tout le desir de son ame</b> au lieu que le Seigneur choisira, <b>alors il servira</b> au nom du Seigneur son Dieu, comme le font tous ses freres les levites, qui se tiennent la devant le Seigneur" (Deuteronome 18:6""7).
+
+### Partie 6
+La Guemara repond : <b>Si</b> la <i>halakha</i> etait derivee <b>de la,</b> le verset du Deuteronome, <b>je dirais : Cette affirmation,</b> qu'un pretre peut accomplir ses rites quand il le desire, ne s'applique qu'a <b>une matiere qui ne vient pas</b> expier <b>un peche,</b> car le verset fait reference a une offrande qu'il desire apporter. <b>Mais</b> en ce qui concerne une <b>matiere qui vient</b> pour expier <b>un peche, je dirais</b> qu'il peut <b>ne pas</b> accomplir le rite lui-meme. Par consequent, la <i>halakha</i> de l'offrande de repas d'un pecheur doit etre derivee du verset du Levitique : A "Et le reste appartiendra au pretre, comme l'offrande de repasA".
+
+### Partie 7
+La Guemara demande : <b>Et</b> est-ce que <b>cette</b> <i>halakha</i> selon laquelle un pretre peut accomplir le rite de sa propre offrande pour le peche <b>est egalement derivee d'ici,</b> c'est-a-dire du verset : "Et le reste sera pour le prêtre, comme l"?offrande de repas" ? Il est <b>derive de la : "Et le pretre fera l'expiation pour l'ame qui peche involontairement, quand elle peche involontairement"</b> (Nombres 15:28). L'expression "pour l'ame qui peche involontairement" <b>enseigne que le pretre</b> peut <b>effectuer l'expiation</b> meme <b>par lui-meme,</b> lorsqu'il accomplit le rite.
+
+### Partie 8
+La Guemara repond : <b>Si</b> la <i>halakha</i> etait derivee <b>de ce</b> dernier verset, <b>je dirais : Cette declaration,</b> lui permettant d'effectuer sa propre expiation, s'applique lorsque l'offrande est apportee <b>pour</b> un peche commis <b>involontairement. Mais</b> en ce qui concerne une offrande apportee <b>pour</b> un peche commis <b>intentionnellement,</b> le pretre ne peut <b>pas</b> effectuer sa propre expiation. Par consequent, le verset qui dit : "Et le reste sera au sacrificateur, comme l"?offrande de repas," <b>nous enseigne</b> que le sacrificateur peut accomplir le rite meme pour une offrande qu"?il apporte pour un peche intentionnel.
+
+### Partie 9
+La Guemara clarifie : En ce qui concerne une offrande apportee <b>pour</b> un peche commis <b>intentionnellement, comment peut-on trouver ces</b> circonstances ? La Gemara repond : On peut les trouver <b>dans</b> le cas d'une offrande de repas apportee en expiation pour avoir <b>intentionnellement</b> prete un faux <b>serment</b> de temoignage selon lequel il n'etait pas au courant d'un certain incident impliquant un autre individu. Le pretre peut accomplir les rites pour une offrande de repas qu'il apporte pour expier un tel peche.
+
+### Partie 10
+§ En ce qui concerne l'opinion de Rabbi Shimon selon laquelle une poignee de l'offrande de repas d'un pecheur apportee par un pretre est separee et offerte sur l'autel, il <b>est enseigne</b> dans <b>un autre</b> <i>baraita</i> que <b>Rabbi Shimon dit : </b> En ce qui concerne <b>l'offrande de repas d'un pecheur</b> apportee <b>par</b> un des <b>pretres, on enleve une poignee ; et la poignee est sacrifiee par elle-meme, et le reste est sacrifie par lui-meme. Rabbi Elazar, fils de Rabbi Shimon, dit : La poignee est sacrifiee par elle-meme, et le reste est disperse sur le lieu des cendres.</b>
+
+### Partie 11
+Concernant l'avis de Rabbi Elazar, fils de Rabbi Shimon, <b>Rabbi Hiyya bar Abba dit</b> que <b>Rabbi Yohanan en discute</b> et demande : <b>A quel endroit des cendres</b> dans le Temple fait-il reference ? <b>Si</b> il fait reference a celui <b>qui est au-dessus,</b> sur l'autel, son avis <b>est</b> identique a celui de <b>son pere,</b> Rabbi Shimon, qui a declare que le reste est offert et brule sur l'autel, apres quoi les cendres sont balayees sur le tas de cendres sur l'autel. Si tel est le cas, selon les deux opinions, le reste est apporte au meme endroit. Et <b>si</b> Rabbi Elazar, fils de Rabbi Shimon, fait reference <b>au</b> tas de cendres <b>qui est en dessous</b> de l'autel, cela est difficile : Avez-vous un objet qui est sacrifie sous l'autel ?
+
+### Partie 12
+<b>Rabbi Abba dit a</b> Rabbi Hiyya bar Abba : <b>Peut-etre</b> Rabbi Elazar, fils de Rabbi Shimon, veut dire que le reste est disperse la <b>pour etre gaspille.</b> Lorsque les Sages ont entendu cela, <b>ils se sont moques de lui,</b> en disant : <b>Mais</b> avez-vous <b>un objet qui est sacrifie</b> dans le cadre du service du Temple pour <b>etre gaspille ?</b>
+
+### Partie 13
+La Guemara repond qu'il existe des objets consacres qui sont intentionnellement gaspilles. En ce qui concerne de tels articles, <b>le pere de Rabbi Avin enseigne : "Toute offrande de repas du pretre sera offerte en entier ; elle ne sera pas mangee"</b> (Levitique 6:16). Pourquoi ce verset, qui suit ceux qui traitent de l"?offrande quotidienne du Grand Prêtre, doit-il préciser qu"?elle ne sera pas mangée, après avoir déjA indiqué qu"?elle est entièrement offerte ? Le verset enseigne : <b>J'ai assimile</b> l'offrande de repas d'un pecheur apportee par un pretre a l'offrande quotidienne de gateaux a la plaque apportee par le Grand Pretre <b>en ce qui concerne la nourriture,</b> dans la mesure ou elle n'est pas mangee, <b>mais</b> je ne l'ai <b>pas</b> assimile <b>en ce qui concerne une autre question,</b> c'est-a-dire que l'offrande de repas d'un pecheur n'est pas brulee a la maniere de l'offrande de gateaux a la plaque.
+
+### Partie 14
+La Gemara demande : <b>Que dit-il,</b> puisque le verset indique explicitement qu'elle doit etre entierement offerte ? <b>Abaye dit</b> que <b>voici ce qu'il </b> dit :</b> Voici comment il faut lire le verset : <b>"Toute offrande de repas du pretre"¦ne sera pas mangee,</b> lorsque l'offrande est sacrifiee pour remplir <b>son obligation,</b> telle que l'offrande de repas d'un pecheur. Elle n'est ni mangee ni completement brulee, mais plutot placee sur le tas de cendres. Lorsque le verset dit : <b>Il sera offert en entier,</b> cela fait reference a <b>son offrande de cadeau</b>, qui est entierement brulee a la maniere d'une offrande de gateau a la plancha. <b>Rava lui dit :</b> Cette lecture est comme un <b>couteau tranchant qui coupe les versets</b> en morceaux, car elle interprete le debut et la fin du verset ensemble, en ignorant le milieu.
+
+### Partie 15
+<b>Au contraire, Rava dit :</b> Lorsque le verset dit : <b>"Toute offrande de repas du pretre sera offerte dans son integralite,</b> cela fait reference a <b>son offrande</b>, qui est entierement offerte. Lorsque le verset dit qu'elle <b>"ne sera pas mangee"</b>, cela fait reference a <b>son offrande de repas obligatoire</b>, qui n'est ni mangee ni entierement offerte.
+
+### Partie 16
+La Guemara demande : <b>Mais</b> pourquoi le verset devrait-il etre lu de cette facon ? <b>Je</b> peux <b>inverser</b> l'interpretation et dire que l'offrande de repas obligatoire du pretre est entierement offerte, et que son offrande de don ne sera ni mangee ni entierement offerte. La Guemara repond : Il est <b>raisonnable</b> que <b>son offrande doit etre incluse</b> dans la phrase "sera offerte en entier", <b>car</b> elle ressemble a l'offrande de la galette et differe de l'offrande de repas d'un pecheur a plusieurs egards, notamment, <b>que</b> elle est <b>frequente,</b> que le pretre qui l'apporte <b>n'a pas peche,</b> et que <b>son parfum est odorant,</b> car elle est melangee a de l'huile et on y ajoute de l'encens.
+
+### Partie 17
+La Gemara demande : <b>Au contraire,</b> le verset <b>doit etre interprete <b>comme incluant son offrande de repas obligatoire</b>, <b>car</b> l'offrande de repas obligatoire est similaire a l'offrande de gateau a la plancha en ce que, contrairement a l'offrande de cadeau, elle comprend <b>un dixieme</b> d'un epha et l'apporter est <b>une obligation.</b> La Gemara repond : Parce que <b>ces</b> similitudes entre l'offrande de cadeau et l'offrande de gateau a la plancha <b>sont</b> plus <b>nombreuses</b> que celles entre l'offrande obligatoire et l'offrande de gateau a la plancha, il est logique que le verset compare l'offrande de cadeau a l'offrande de gateau a la plancha.
+
+### Partie 18
+§ Apres avoir discute les opinions de Rabbi Shimon et Rabbi Elazar, fils de Rabbi Shimon, la Guemara demande : <b>Et</b> quant a l'avis des <b>Rabbins</b> selon lequel on ne retire aucune poignee d'une des offrandes de repas des pretres, au regard de <b>cette</b> verset : <b>"Et toute offrande de repas du pretre sera offerte dans son integralite ; elle ne sera pas mangee"</b> Que font-ils ? </b> Comment interpretent-ils la phrase superflue : A "Elle ne sera pas mangéeA" ?
+
+### Partie 19
+La Guemara repond : <b>Ils l'exigent pour ce qui est enseigne</b> dans une <i>baraita</i> : Concernant l'offrande de la galette des champs, le verset indique :" Elle sera entièrement fumée pour le Seigneur" (Lévitique 6:15). De ce verset et du verset qui le suit, qui dit : "Et toute offrande de repas du prêtre sera offerte entièrement ; elle ne sera pas mangée," <b>J'ai</b> déduit <b>seulement</b> que l'offrande de gA¢teaux mentionnée <b>ci-dessus,</b> dans le premier verset, est soumise <b>A : "Il sera entièrement fumé," et</b> que les autres offrandes de repas des prêtres mentionnées <b>en dessous,</b> dans le second verset, sont soumises <b>a : "Il ne sera pas mangé."</b>
+
+### Partie 20
+<b>D'ou vient</b> d'appliquer</b> l'interdiction <b>qui a ete dite a propos de ce</b> cas <b>a ce</b> cas, <b>et</b> l'interdiction <b>qui a ete dite a propos de ce</b> cas <b>a ce</b> cas, pour enseigner que les offrandes de repas des pretres seront entierement fumees et que l'offrande de gateaux de grillage ne sera pas mangee ? <b>Le verset dit : "Entirely,"</b> dans le premier verset, et : <b>Entierement,</b> dans le second, pour etre utilise <b>comme une analogie verbale : Il est dit ici,</b> en ce qui concerne les offrandes de repas des pretres : <b>Entierement,</b> et il est dit la,</b> a propos de l'offrande de gateaux de grillades : <b>"Entierement".</b>
+
+### Partie 21
+<b>Comme la,</b> l'offrande est soumise <b>a</b> l'interdiction de : <b>"Elle sera entierement fumee">, de meme ici,</b> les offrandes sont soumises <b>a</b> l'interdiction de : <b>Ce sera entierement fume.</b> Et de meme qu'ici,</b> en ce qui concerne l'offrande de repas du pretre, le verset sert <b>a imposer une interdiction de la manger, de meme la,</b> en ce qui concerne l'offrande de gateaux a la plancha, le verset sert <b>a imposer une interdiction de la manger.</b>
+
+### Partie 22
+§ En ce qui concerne l'interdiction de manger de certaines offrandes derivees du verset qui dit :" Doit etre offert dans son integralite ; on ne le mangera pas", <b>Ravina demande :</b> Dans le cas d'un <b>pretre qui a mange des portions sacrificielles, quelle est</b> la <i>halakha</i> ? Quant a savoir si ce pretre enfreint <b>l'interdiction faite a un non-pretre</b> de manger certains types de viande sacrificielle, exprimee dans le verset : "Aucun non-pretre ne mangera de la viande sacrificielle" (Levitique 22:10),
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

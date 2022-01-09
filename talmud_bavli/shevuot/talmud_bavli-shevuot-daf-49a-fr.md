@@ -1,0 +1,9 @@
+
+### Partie 1
+<b>Tout</b> serment, y compris celui encouru par la loi rabbinique, <b>peut etre etendu</b> pour rendre la personne qui le prononce redevable d'un serment supplementaire, <b>sauf</b> le serment d'un <b>travailleur engage, qui ne peut etre etendu,</b> puisque le serment du travailleur engage n'a ete institue que pour pallier les preoccupations de l'employeur. <b>Rav Hisda dit :</b> Pour <b>tout le monde,</b> les Sages <b>ne sont pas indulgents,</b> en ce sens qu'ils etendent tout serment qu'ils encourent pour leur imposer des serments supplementaires, <b>sauf pour un travailleur engage,</b> pour <b>lequel ils sont indulgents.</b> La Gemara demande : <b>Quelle</b> est la difference <b>entre</b> les jugements de Rav Huna et de Rav Hisda ? La Guemara repond : <b>Il y a</b> une difference pratique <b>entre eux</b> quant a savoir si le tribunal <b>initie</b> l'extension d'un serment <b>pour lui,</b> c'est-a-dire que meme lorsque l'autre plaideur ne l'a pas suggere, le tribunal etend le serment initial pour inclure un serment sur d'autres revendications.
+
+### Partie 2
+§ La mishna enseigne : <b>L'annee sabbatique</b> <b>abroge</b> l'obligation de preter serment sur une dette, tout comme elle abroge une dette. La Gemara demande : <b>D'ou vient cette question</b> ? <b>Rav Giddel dit</b> que <b>Rav dit : </b> Elle est derivee du fait <b>que le verset dit : "Et voici l'affaire [<i>devar</i>] de la liberation:</b> Tout creancier liberera ce qu'il a prete a son voisin ; il ne l'exigera pas de son voisin et de son frere, parce que la liberation du Seigneur a ete proclamee" (Deuteronome 15:2). Comme le mot <i>devar</i> signifie aussi declaration, <b>cela enseigne que l'annee sabbatique libere,</b> c'est-a-dire abroge, <b>meme une declaration,</b> c'est-a-dire un serment.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

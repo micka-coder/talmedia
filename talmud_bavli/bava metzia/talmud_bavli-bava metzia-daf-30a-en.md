@@ -1,0 +1,54 @@
+
+### Part 1
+that this applies to laborers who work <b>with oxen, whose</b> potential for causing <b>damage is great</b> if they are not supervised, as they will trample the crops.
+
+### Part 2
+§ The mishna teaches that one who found a lost garment <b>spreads it for its sake</b> to ventilate it, <b>but</b> may <b>not</b> use it as a decoration <b>for his</b> own <b>prestige. A dilemma was raised before</b> the Sages: If one spreads it both <b>for his sake and for its sake, what</b> is the <i>halakha</i>?
+
+### Part 3
+The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the mishna: <b>He spreads it for its sake.</b> The Gemara infers: <b>For its sake, yes,</b> he spreads it, <b>but</b> both <b>for his sake and for its sake,</b> he may <b>not</b> do so. The Gemara rejects the proof: <b>Say the latter clause</b> of the mishna: <b>But not for his</b> own <b>prestige.</b> The Gemara infers: It is <b>for his prestige</b> alone <b>that</b> he may <b>not</b> spread it, <b>but for its sake and for his sake,</b> one may <b>well</b> do so. <b>Rather, no</b> inference is <b>to be learned from this</b> mishna, as there are conflicting inferences from the first clause and the latter clause.
+
+### Part 4
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: If one finds a lost garment, <b>he may not spread it on a bed or on a hanger for his sake, but he may spread it on a bed or on a hanger for its sake.</b> If <b>guests happened</b> to visit, <b>he may not spread it, neither on a bed nor on a hanger</b> and <b>neither for his sake nor for its sake.</b> Apparently, it is prohibited to spread it for both his sake, to enhance his prestige before his guests, and for its sake.
+
+### Part 5
+The Gemara rejects this proof: It <b>is different there, as</b> spreading it before his guests is tantamount to <b>burning it, either due to the</b> evil <b>eye</b> that will result, <b>or due to thieves,</b> as once the guests are aware of the valuable item in his possession they may be tempted to steal it.
+
+### Part 6
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: If <b>one introduced</b> a calf <b>into a yoke</b> [<b><i>lirvaka</i></b>] so that it would suckle, <b>and it threshed</b> with the cows, <b>it is fit</b> for use in the ritual of the heifer whose neck is broken, because the owner did not intend for it to perform labor. But if the owner introduces it <b>so that it will suckle and it will thresh, it is unfit</b> for use in that ritual because his intent is for the calf to perform labor, and the intentional performance of labor disqualifies it. <b>And here, isn’t</b> the placement of the calf in the yoke <b>for</b> both <b>his sake,</b> threshing, <b>and for its sake,</b> suckling, <b>and</b> the <i>baraita</i> <b>teaches</b> that the calf <b>is unfit?</b> Apparently, it is prohibited for one who found a lost garment to spread it for both his sake and for its sake.
+
+### Part 7
+The Gemara rejects this proof by citing a verse written with regard to the heifer whose neck is broken. It <b>is different there, as the verse states:</b> “The Elders of that city shall take a heifer of the herd <b>that has not been worked with</b> and that has not pulled a yoke” (Deuteronomy 21:3), indicating that the heifer is rendered unfit <b>in any case</b> of labor performed. Therefore, no conclusion can be drawn with regard to spreading the garment.
+
+### Part 8
+The Gemara asks: <b>If</b> it is <b>so</b> that the calf is rendered unfit by any labor that it performed, then it should be unfit <b>even</b> in <b>the first clause,</b> where the owner did not intend for the calf to perform labor.
+
+### Part 9
+The Gemara answers. <b>This is comparable only to this</b> other case, <b>as we learned</b> in a mishna (<i>Para</i> 2:4): If <b>a bird rested upon</b> a red heifer, <b>it</b> remains <b>fit</b> for use in the purification ritual, as supporting the bird on its back is considered neither labor nor comparable to pulling a yoke. If <b>a male</b> animal <b>mounted it</b> for mating, <b>it is unfit</b> for use in the purification ritual. The Gemara asks: <b>What is the reason</b> for the difference between the two cases?
+
+### Part 10
+The difference is <b>in accordance with</b> the statement of <b>Rav Pappa, as Rav Pappa says</b> with regard to the verse written concerning the heifer whose neck is broken: “And the Elders of that city shall take a heifer of the herd that has not been worked with and that has not pulled a yoke” (Deuteronomy 21:3). <b>If</b> the word <b>were written</b> with an additional letter <i>vav</i>, which would mean the passive: <b>Has been worked with [<i>ubbad</i>], and we</b> also <b>vocalized</b> the word in the passive voice, <b><i>ubbad</i>, I would say</b> that <b>even</b> if the heifer performed labor <b>by itself,</b> it is disqualified for use in the ritual. <b>If</b> the word <b>were written</b> without an additional letter <i>vav</i>, which would mean the active: <b>He used it for labor [<i>avad</i>], and we</b> also <b>vocalized</b> the word in the active voice, <b><i>avad</i>, I would say</b> that indicates that the heifer was fit for use in the ritual <b>until</b> its owner intentionally <b>used it for labor.</b>
+
+### Part 11
+<b>Now that</b> the word <b>is written</b> without an additional letter <i>vav</i> as <b><i>avad</i> and we vocalize</b> the word with an additional letter <i>vav</i>, as <b><i>ubbad</i>,</b> in order to render the heifer unfit <b>we require</b> the situation described by the word <b><i>ubbad</i></b> be <b>similar to</b> the situation described by the word <b><i>avad</i>. Just as</b> the word <b><i>avad</i></b> indicates <b>that</b> the owner <b>is amenable</b> to the performance of that labor, <b>so too,</b> the word <b><i>ubbad</i></b> means <b>that</b> the owner <b>is amenable</b> to the performance of that labor. Since the owner is amenable to the heifer mating, the heifer is rendered unfit. So too, in the first clause of the <i>baraita</i>: If one introduced a calf into a yoke so that it may suckle, and it threshed with the cows, it is fit for use in the ritual of the heifer whose neck is broken, because the owner is not amenable to its performing labor.
+
+### Part 12
+§ The mishna teaches: If one found <b>silver vessels or copper vessels,</b> he <b>may use them</b> for their own sake; and the same <i>halakha</i> applies to other vessels. <b>The Sages taught</b> in a <i>baraita</i>: <b>One who finds wooden vessels uses them, so that they will not deteriorate</b> due to lack of use. If one found <b>copper vessels</b> he <b>uses them with hot</b> water, <b>but not</b> directly <b>on the fire, due to</b> the fact <b>that it erodes them.</b> If one found <b>silver vessels he uses them with cold</b> water, <b>but not with hot</b> water, <b>because it tarnishes them.</b> If one found <b>rakes or axes,</b> he <b>may use them with soft</b> substances <b>but not with hard</b> substances <b>because</b> using them with those substances <b>damages them.</b> If one found <b>gold vessels or glass vessels,</b> which do not deteriorate due to lack of use, <b>he may not touch them until Elijah will come</b> and identify the owner.
+
+### Part 13
+The <i>baraita</i> continues: In <b>the manner that</b> the Sages <b>said with regard to a lost item, so they said</b> with regard to <b>a deposit.</b> The Gemara asks: <b>What is</b> the bailee <b>doing with a deposit;</b> i.e., the owner should tend to his own item, why is the bailee using it at all? The Gemara answers: <b>Rav Adda bar Ḥama said</b> that <b>Rav Sheshet said:</b> It is referring <b>to a deposit whose owner went to a country overseas.</b> Therefore, it is incumbent upon the bailee to tend to the deposit until his return.
+
+### Part 14
+§ The mishna teaches: If a person <b>found a sack or a basket or any</b> other <b>item that</b> it <b>is not his</b> typical <b>manner to take</b> and carry because it is beneath his dignity, <b>he</b> shall <b>not take</b> it. The Gemara asks: <b>From where are these matters</b> derived? It is <b>as the Sages taught</b> in a <i>baraita</i>: It is stated with regard to the return of a lost item: “You shall not see your brother’s ox or his sheep wandering <b>and disregard</b> them; you shall return them to your brother” (Deuteronomy 22:1). The <i>tanna</i> explains that the phrase “and disregard them” means that there are <b>occasions</b> in <b>which you may disregard</b> lost items <b>and</b> there are <b>occasions</b> in <b>which you may not disregard</b> them.
+
+### Part 15
+<b>How so;</b> under what circumstances may one disregard a lost item? One may do so in a case where <b>he was a priest and</b> the lost item <b>is in the graveyard</b> (Leviticus 21:1–4), <b>or</b> where <b>he was an elderly person and it is not in keeping with his dignity</b> to tend to the item, <b>or</b> where the value of <b>his labor was greater than</b> the value of the lost item of <b>the other</b> person, i.e., if the finder was to return the item, reimbursing him for his lost wages would cost more than the value of the item; <b>therefore, it is stated: “And disregard them.”</b>
+
+### Part 16
+The Gemara asks: <b>For what</b> case <b>was a verse necessary</b> to derive that one may disregard a lost item? <b>If we say</b> that the verse is necessary <b>for</b> the case of <b>a priest and</b> the lost item <b>in the graveyard,</b> it is <b>obvious</b> that he need not return the item, as <b>this</b> obligation to return the lost item <b>is a positive mitzva:</b> “You shall return them to your brother” (Deuteronomy 22:1), <b>and that</b> entry of a priest into a graveyard is prohibited by both <b>a prohibition:</b> “To the dead among his people he shall not defile himself” (Leviticus 21:1), <b>and a positive mitzva:</b> “You shall be holy” (Leviticus 19:2); and there is a principle that <b>a positive mitzva does not override a prohibition and a positive mitzva. And furthermore, we do not override</b> a ritual <b>prohibition in the face of monetary matters.</b>
+
+### Part 17
+The Gemara suggests: <b>Rather,</b> say that the verse is necessary <b>to</b> derive the exemption from returning the lost item in the case where the value of <b>his labor was greater than</b> the value of the lost item of <b>the other.</b> The Gemara rejects that possibility: That <i>halakha</i> is <b>derived</b> not from the phrase: “And disregard them,” but from that which <b>Rav Yehuda</b> says that <b>Rav says. As Rav Yehuda says</b> that <b>Rav says:</b> It is written: <b>“Only so that</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

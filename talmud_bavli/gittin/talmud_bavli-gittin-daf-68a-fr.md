@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>On nous a vole une coupe en argent,</b> et ils ont fouille tout le monde pour la trouver. <b>Lorsqu'ils verifiaient, ils ont trouve</b> le morceau de viande <b>enveloppe dans son echarpe.</b>
+
+### Partie 2
+Les serviteurs de l'Exilarque ont <b>dit a</b> l'Exilarque : <b>Voir Maitre,</b> c'est-a-dire l'Exilarque, Rav Sheshet <b>ne desire pas manger, plutot</b> il ne desire que <b>nous affliger.</b> Meme apres tout ce qui a ete fait pour lui, il n'a pas mange du repas de l'Exilarque. Rav Sheshet <b>leur a dit : J'ai mange et j'ai goute le gout des taches blanches</b> lepreuses <b>dans</b> la viande et donc je ne l'ai pas mangee. <b>Ils dirent a</b> l'Exilarque : <b>Nous n'avons pas prepare</b> un animal avec des <b>taches blanches</b> <b>aujourd'hui.</b> Rav Sheshet <b>leur a dit : Verifiez la</b> peau <b>dans</b> la <b>place</b> de la portion qui m'a ete donnee. Il a donne cette instruction conformement a la declaration du Rav Hisda, <b>comme le dit le Rav Hisda : Les taches noires</b> <b>dans la peau blanche</b> <b>et les taches blanches</b> <b>dans la peau noire</b> <b>sont une affliction</b> et un signe de maladie. <b>Ils verifierent</b> et <b>trouverent</b> que l'animal etait afflige de cette maniere, et les serviteurs de l'Exilarque devinrent encore plus furieux contre lui.
+
+### Partie 3
+<b>Lorsque</b> Rav Sheshet <b>sortait</b> de la maison de l'Exilarque, les serviteurs <b>creuserent une fosse et placerent une natte de roseau [<i>tzifta</i>] dessus</b> afin que la fosse ne soit pas remarquee. <b>Et ils dirent a</b> Rav Sheshet : <b>Le Maitre,</b> c'est-a-dire Rav Sheshet, <b>doit venir se reposer</b> pendant un court moment, et ils avaient l'intention qu'il tombe et se blesse. <b>Rav Hisda,</b> qui etait egalement present, <b>s'est ebroue [<i>nehar</i> vers lui par derriere</b> afin de lui faire signe. Rav Sheshet <b>dit a un enfant</b> qui etait present : <b>Recite-moi ton verset</b> que tu as etudie aujourd'hui. L'enfant lui <b>dit :" Tourne-toi A droite ou A gauche" (IIA Samuel 2:21). Rav Sheshet, qui était aveugle, <b>dit A son serviteur : Que vois-tu ? </b> Son serviteur <b>lui repondit : </b> Je vois <b>un tapis qui</b> a ete <b>place</b> sur le sol. Rav Sheshet lui <b>dit : Detourne-toi d'elle</b> et nous en ferons le tour.
+
+### Partie 4
+<b>Apres</b> Rav Sheshet <b>a quitte</b> la maison de l'Exilarque, <b>Rav Hisda lui dit : D'ou le Maitre,</b> c'est-a-dire Rav Sheshet, <b>sait-il</b> que les serviteurs avaient creuse une fosse a cet endroit ? Rav Sheshet <b>lui a dit :</b> Plusieurs elements ont eveille mes soupcons. <b>D'une part, que le Maitre,</b> c'est-a-dire le Rav Hisda, <b>s'est moque de moi</b> pour me signaler que je devais me mefier. <b>Et en plus, lorsque l'enfant a recite le verset</b> pour moi, il a fait allusion a cette question. <b>Et en plus, les serviteurs sont suspects de ne pas</b> agir <b>selon un standard eleve,</b> et je soupconnais qu'ils allaient tenter de me faire du mal.
+
+### Partie 5
+§ Apres avoir mentionne l'esprit nomme <i>kordeyakos</i> sur le <i>daf</i> precedent, la Guemara relate d'autres questions liees aux esprits et aux demons. Il est ecrit : <b>"Je me suis procure des <i>sharim</i> et des <i>sharot</i>, et des plaisirs humains, <i>shidda</i> et <i>shiddot</i>"</b> (Ecclesiaste 2:8). La Gemara explique : <b>"<i>Sharim</i> et <i>sharot</i>" : Ce sont des types d'instruments de musique</b>. <b>"Et les plaisirs humains" : Ce sont les piscines et les bains publics. "<i>Shidda</i> et <i>shiddot</i>" : Ici,</b> en Babylonie, <b>ils ont interprete</b> ces mots de la maniere suivante : <b>Demons males [<i>shidda</i>] et demons femelles [<i>shiddetin</i>]. En Occident,</b> Eretz Yisrael, <b>ils ont dit</b> que ces mots font reference a des <b>voitures [<i>shiddeta</i>].</b>
+
+### Partie 6
+<b>Rabbi Yohanan dit : Il y avait trois cents types de demons dans</b> un endroit nomme <b>Shihin, mais je ne sais pas ce que</b> la forme ou la nature d'un <b>demon lui-meme est.</b>
+
+### Partie 7
+<b>Le Maitre a dit : Ici, ils l'ont interprete</b> : <b>Demons males et demons femelles.</b> La Gemara demande : <b>Pourquoi etait-il necessaire que</b> Salomon, l'auteur de l'Ecclesiaste, ait <b>des demons males et des demons femelles ?</b> La Gemara repond : <b>Comme il est ecrit</b> a propos de la construction du Temple : <b>Car la maison, au moment de sa construction, etait batie en pierres preparees a la carriere;</b> et l'on n'a entendu dans la maison ni marteau, ni hache, ni aucun outil de fer, pendant qu'elle etait construite" (IA Rois 6:7). Salomon <b>dit aux sages : Comment vais-je faire</b> pour que la pierre soit taillee avec precision sans utiliser le fer ? <b>Ils lui repondirent : Il existe une</b> creature appelee <b>un <i>shamir</i></b> qui peut couper les pierres, <b>que Moise a apportee</b> et utilisee pour couper <b>les pierres de l'ephod.</b>
+
+### Partie 8
+Salomon <b>leur dit : Ou se trouve-t-il ? Ils lui repondirent : Fais venir un demon male et un demon femelle</b> et <b>tourmente-les ensemble. Il est possible qu'ils sachent</b> ou, et en raison de la souffrance <b>ils te reveleront</b> le lieu <b>.</b> Salomon <b>amena un demon male et un demon femelle</b> et <b>tourmente-les ensemble,</b> et <b>ils dirent : Nous ne savons pas</b> ou trouver le <i>shamir</i>. <b>Peut-etre que Ashmedai, le roi des demons, le sait.</b>
+
+### Partie 9
+Salomon <b>leur a dit : Ou est</b> Ashmedai ? <b>Ils lui repondirent :</b> Il <b>est sur telle ou telle montagne.</b> Il s'y est <b>creuse une fosse</b>, <b>l'a remplie d'eau, l'a recouverte d'un rocher et l'a scellee de son sceau. Et chaque jour, il monte au Ciel et etudie dans la salle d'etude celeste et il descend sur la terre et etudie dans la salle d'etude terrestre. Et il vient verifier son sceau</b> pour s'assurer que personne n'est entre dans sa fosse, <b>et</b> alors <b>il la decouvre et boit</b> de l'eau de la fosse. <b>Et</b> ensuite <b>il la couvre et la scelle</b> a nouveau <b>et s'en va.</b>
+
+### Partie 10
+Salomon <b>envoya chercher Benayahou, fils de Jehoiada,</b> un membre de l'entourage royal, et lui <b>donna une chaine sur laquelle</b> un <b>nom sacre</b> de Dieu <b>etait grave, et un anneau sur lequel</b> un <b>nom sacre</b> de Dieu <b>etait grave, et des toisons de laine et des outres de vin.</b> Que fit Benayahou ? <b>Il alla creuser une fosse plus bas</b> dans la montagne, en dessous de la fosse creusee par Ashmedai, <b>draina l'eau, et la boucha avec les toisons de laine</b> de sorte que la fosse d'Ashmedai fut videe. <b>Et il creusa une fosse plus haut</b> sur la montagne, au-dessus de la fosse d'Ashmedai. <b>Et il y versa le vin</b> de sorte que le vin remplit la fosse d'Ashmedai, <b>et il boucha</b> les fosses inferieure et superieure qu'il avait creusees. <b>Il</b> monta <b>en haut</b> et <b>s'assit dans un arbre.</b>
+
+### Partie 11
+<b>Lorsque</b> Ashmedai <b>arrivait, il verifiait son sceau, ouvrait</b> la fosse, et <b>le trouvait</b> rempli de <b>vin. Il dit</b> qu'il est ecrit : "Le vin est un objet de moquerie, la boisson forte est seditieuse, et celui qui s'y vautre n'est pas sage"</b> (Proverbes 20:1), <b>et il est ecrit : "L'impudicite, le vin et le vin nouveau emportent le cœur"</b> (Osee 4:11). Il conclut : <b>Je ne boirai pas</b> ce vin. Finalement, <b>quand il eut soif, il ne put</b> resister au vin et <b>il but, s'enivra et s'endormit.</b>
+
+### Partie 12
+Benayahou <b>descendit</b> de l'arbre, <b>vint,</b> et <b>jeta la chaine autour</b> d'Ashmedai, et <b>l'enferma</b> dedans. <b>Lorsque</b> Ashmedai <b>se reveilla, il lutta</b> pour enlever la chaine. Benayahou <b>lui dit : Le nom de ton Maitre est sur toi, le nom de ton Maitre est sur toi,</b> ne dechire pas la chaine. Le nom de Dieu est ecrit sur cette chaine, et il est interdit de la detruire.
+
+### Partie 13
+<b>Lorsque</b> Benayahou <b>prenait</b> Ashmedai <b>et venait</b> a Jerusalem <b>il atteignit un palmier</b> et Ashmedai <b>se frotta contre lui</b> et le <b>frappa. Il atteignit une maison</b> et <b>l'abattit. Il atteignit une petite cabane [<i>kuva</i>] appartenant a une certaine veuve.</b> Cette veuve <b>emergea,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

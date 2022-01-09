@@ -1,0 +1,24 @@
+
+### Part 1
+The Gemara asks: <b>From where are these matters,</b> i.e., that a grafted carob and a sycamore trunk are not included in the sale of a field, derived? <b>Rav Yehuda said</b> that <b>Rav said: As the verse states: “So the field of Ephron, which was in Machpelah,</b> which was before Mamre, the field, and the cave that was within it, and all the trees that were in the field, that were in all the boundaries around, were established for Abraham as a possession” (Genesis 23:17–18). This teaches that <b>anything that requires a boundary around</b> it, as it does not have natural demarcations, is included in the sale of a field. This <b>excludes these</b> trees, i.e., the grafted carob and the sycamore trunk, <b>which do not require a boundary around</b> them, as they stand out individually on their own. <b>Rav Mesharshiyya says: From here</b> there is a source <b>that</b> the acquisition of the actual <b>boundaries</b> in a sale <b>is from the Torah.</b>
+
+### Part 2
+§ <b>Rabbi Yehuda said: One who sells land to another must write for him</b> the following in the bill of sale: <b>Acquire for yourself the palm trees and the dates and the branches and the seedlings. And even if he did not write this for him</b> the buyer would still <b>acquire</b> all of these entities, as demonstrated by the mishna that it is only a grafted carob and a sycamore trunk that are excluded from the sale of a field. <b>Even so, it is an enhancement of the bill</b> of sale that he write all of the details of the transaction so that there be no possible room for disagreement.
+
+### Part 3
+If the seller <b>said to</b> the buyer: I am selling you <b>the land and palm trees, we consider</b> the situation. <b>If he has palm trees, he must give him two palm trees</b> as two is the minimum number of trees that would justify being called: Trees, in the plural. <b>And if he has no</b> palm trees, <b>he must buy two palm trees for him</b> somewhere else. <b>And if</b> he has palm trees, but <b>they are mortgaged</b> to another person, <b>he must redeem two palm trees</b> and give them to the buyer.
+
+### Part 4
+If the seller said to the buyer: I am selling you <b>land with palm trees, we consider</b> the situation. <b>If there are palm trees on</b> the land, <b>he must give him</b> the land, <b>and if not,</b> this <b>is a mistaken transaction</b> and the sale is void. If the seller said to the buyer: I am selling you <b>land of palm trees,</b> the buyer <b>has no</b> claim to receive <b>palm trees.</b> Therefore, if the land has no palm trees, this is not a mistaken transaction, as the seller meant to <b>say to him</b> that the land <b>was fit for palm trees,</b> and not that it already contained them. Furthermore, if the seller <b>said to</b> the buyer that he is selling the land <b>except for such and such a palm tree, we consider</b> the situation. <b>If it is a good palm tree,</b> we assume that <b>he retained</b> only <b>that</b> one for himself and did not include it in the sale, but <b>if it is a bad palm tree,</b> we assume that <b>all the more so</b> did he retain for himself <b>the other</b> ones that are of higher quality.
+
+### Part 5
+If the seller <b>said to</b> the buyer that he is selling him the entire field <b>except for the trees,</b> we consider the situation. <b>If he has</b> different types of <b>trees</b> in the field, for example, olive and fig trees, he has sold the entire field <b>except for the trees. If he has</b> only <b>palm trees</b> in the field, we assume that he meant to sell the entire field <b>except for the palm trees,</b> even though one does not ordinarily refer to palm trees by the more general term: Trees. Similarly, <b>if he has</b> only <b>grapevines</b> in the field, the buyer acquires everything <b>except for the grapevines.</b>
+
+### Part 6
+If the field has both <b>trees and grapevines,</b> he has sold everything <b>except for the trees;</b> therefore, the buyer does not acquire the trees, which the seller excluded from the sale, but he does acquire the grapevines. Similarly, if in the field there are both <b>trees and palm trees,</b> he has sold everything <b>except for the trees.</b> If there are no other trees in the field, but only <b>grapevines and palm trees,</b> everything, including the palm trees, is sold <b>except for the grapevines,</b> which we assume the seller reserved for himself.
+
+### Part 7
+<b>Rav says:</b> If the seller specified that he is selling a field but not the trees, <b>any</b> tree that is so tall <b>that one must climb it by rope</b> in order to harvest its fruit <b>is retained</b> and is not included in the sale, and <b>any</b> tree <b>that one need not climb by rope is not retained</b> and is sold along with the field.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

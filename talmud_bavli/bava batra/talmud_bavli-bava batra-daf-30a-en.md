@@ -1,0 +1,21 @@
+
+### Part 1
+<b>who said to another: I</b> am hereby <b>selling to you all</b> of the <b>property</b> that I own <b>of the house of bar Sisin. There was a certain</b> parcel of <b>land that was called: Of the house of bar Sisin.</b> The seller <b>said to</b> the buyer: <b>This</b> parcel of land that I own is <b>not</b> actually <b>of the house of bar Sisin, and it is</b> merely <b>called: Of the house of bar Sisin,</b> and it is not included in the sale. <b>They came before Rav Naḥman</b> for judgment, and <b>he established</b> the land <b>in the possession of the buyer. Rava said to</b> Rav Naḥman: Is <b>this the <i>halakha</i>?</b> Isn’t the <i>halakha</i> that <b>the burden of proof rests upon the claimant,</b> and the land should remain in the possession of the seller?
+
+### Part 2
+The Gemara continues: There is <b>a difficulty</b> from one statement <b>of Rava to</b> another statement <b>of Rava,</b> and there is also <b>a difficulty</b> from one statement <b>of Rav Naḥman to</b> another statement <b>of Rav Naḥman,</b> as in the first case, where the claimant states that he had been in a distant location, Rav Naḥman ruled in favor of the claimant, and Rava ruled in favor of the possessor; while in the second case, that of the property of bar Sisin, their opinions were reversed.
+
+### Part 3
+The Gemara answers: The contradiction between one statement <b>of Rava and</b> another statement <b>of Rava</b> is <b>not difficult,</b> because <b>there,</b> in the case of the property of bar Sisin, the <b>seller</b> had been <b>established</b> as having the land <b>in his property,</b> which is why Rava rules in his favor. But <b>here,</b> in the case where the claimant states that he had been in a distant location, the <b>buyer</b> is <b>established</b> as having the house <b>in his property.</b>
+
+### Part 4
+The contradiction between one statement <b>of Rav Naḥman and</b> the other statement <b>of Rav Naḥman</b> is <b>not difficult as well,</b> because there, <b>since</b> the seller <b>said to him:</b> I am hereby selling you all of the property that I own <b>of the house of bar Sisin, and</b> this parcel of land is <b>called: Of the house of bar Sisin,</b> it is <b>incumbent on him to reveal that</b> the parcel under dispute is <b>not of the house of bar Sisin. But here,</b> in the case where the claimant states that he had been in a distant location, it <b>should not be</b> any <b>different</b> from a case <b>where</b> the possessor is <b>holding a document</b> as evidence that he purchased the house. <b>Wouldn’t we</b> then <b>say to him:</b> First <b>ratify your document, and</b> only then be <b>established in</b> the <b>property?</b> In this case as well, since his presumptive ownership is in place of a document, he needs to clarify the matter by means of witnesses.
+
+### Part 5
+There was <b>a certain</b> person <b>who said to another: What do you want with this house</b> of mine? The possessor <b>said to him: I purchased it from you and I</b> worked and <b>profited from it</b> for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership. The claimant <b>said to</b> him: <b>I was in</b> the <b>outer marketplaces,</b> and was unaware that you were residing in my house, and therefore did not lodge a protest, so your profiting does not establish the presumption of ownership. The possessor <b>said to him: But I have witnesses that every year you would come</b> here for <b>thirty days</b> and had an opportunity to know that I was residing in your house and to lodge a protest. The claimant <b>said to him: I was occupied with</b> my business in the <b>marketplaces</b> for those <b>thirty days. Rava said: A person is apt</b> to be <b>occupied</b> with business <b>in the marketplace for all</b> of <b>thirty days,</b> and accepted his claim.
+
+### Part 6
+There was <b>a certain</b> person <b>who said to another: What do you want with this land</b> of mine? The possessor <b>said to him: I purchased it from so-and-so, who told me that he purchased it from you.</b> The claimant <b>said to him: Don’t you concede</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

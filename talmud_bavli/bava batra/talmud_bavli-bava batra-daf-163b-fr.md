@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Cela marche bien,</b> c'est-a-dire que, cette preoccupation ne s'applique pas, <b>selon Rav Kahana, qui enseigne au nom de Shmuel</b> qu'un document dans lequel son contenu et les signatures de ses temoins sont tous deux ecrits sur une rature est valide ; selon lui, tout <b>est bien.</b> C'est Rav qui dit qu'un espace encre entre les signatures des temoins et la ratification du tribunal est acceptable, et c'est Shmuel qui dit qu'un document qui est ecrit et signe sur une rature est acceptable. <b>Mais selon le Rav Tavyumei, qui enseigne</b> cette derniere affirmation <b>au nom du Rav, que peut-on dire ?</b> Selon lui, le Rav a dit les deux affirmations, et prises ensemble, elles posent une difficulte : L'espace encre entre les signatures des temoins et la ratification peut facilement etre efface et un nouveau document avec des signatures peut etre ecrit sur l'effacement.
+
+### Partie 2
+La Gemara repond : Rav <b>soutient</b> que dans <b>tous les cas comme celui-ci,</b> ou un document et les signatures de ses temoins sont ecrits sur une rature et qu'il y a une ratification du tribunal sur une partie non effacee du papier, le tribunal ulterieur <b>ratifie</b> le document <b>non pas sur la base de la</b> <b>ratification du tribunal precedent qui est dessus, mais</b> seulement <b>sur la base des</b> signatures des <b>temoins qui sont dessus. </b> Par consequent, la falsification d'un document de cette maniere est impossible, car la ratification prealable du tribunal n'est pas prise en compte, et les temoins attesteront de ce sur quoi ils ont signe.
+
+### Partie 3
+La Guemara cite un autre avis : <b>Et Rabbi Yohanan dit : Ils ont enseigne</b> dans la <i>baraita</i> qu'un espace d'une ligne n'invalide pas le document <b>seulement</b> dans le cas ou cet espace est <b>entre les temoins</b> signatures <b>et le texte</b> du document. <b>Mais</b> si l'espace est <b>entre les signatures des temoins</b> <b>et</b> la <b>ratification</b> du document par un tribunal, alors un espace de <b>meme une ligne</b> rend le document <b>invalide.</b>
+
+### Partie 4
+La Gemara demande : <b>Qu'y a-t-il de different</b> dans le cas ou il y a un espace d'une ligne <b>entre les temoins</b> signatures <b>et</b> la <b>ratification</b> du tribunal pour que vous disiez qu'il n'est pas valide ? La Gemara repond : On craint que <b>peut-etre</b> le detenteur du document <b>excise</b> tout le texte du document en <b>haut</b> du papier <b>et</b> puis <b>ecrive</b> un nouveau document, bref, avec <b>son</b> texte <b>et</b> les signatures de <b>ses temoins sur une ligne.</b> La ratification du tribunal semblera verifier le nouveau document falsifie. <b>Et</b> Rabbi Yohanan <b>tient</b> qu'un <b>document qui se presente</b> devant le tribunal avec <b>son</b> texte <b>et</b> les signatures de <b>ses temoins</b> apparaissant <b>sur une ligne est valide.</b>
+
+### Partie 5
+La Gemara suggere : <b>Si c'est le cas,</b> le meme probleme <b>aussi</b> existe lorsqu'il y a un espace d'une ligne <b>entre les signatures des temoins</b> <b>et le texte :</b> Il faut craindre que <b>peut-etre</b> il <b>excise</b> tout le texte du document en <b>haut</b> du papier <b>et</b> ensuite <b>ecrit ce qu'il veut</b> dans un document bref d'une ligne. <b>Et les signatures des temoins</b> sur la ligne suivante, qui sont la depuis l'ancien document, seront toujours <b>signees</b> la, semblant attester de la veracite du nouveau document d'une ligne. La Guemara repond : Rabbi Yohanan <b>soutient</b> qu'un <b>document qui se presente</b> devant le tribunal avec <b>son</b> texte <b>sur une ligne et</b> les signatures de <b>ses temoins</b> apparaissant <b>sur une autre ligne,</b> c'est-a-dire sur la ligne suivante, n'est <b>pas valide.</b>
+
+### Partie 6
+La Guemara suggere : <b>Et que</b> il y ait <b>une inquietude</b> que <b>peut-etre</b> le detenteur du document excise tout le document, ne laissant que la ligne vierge et les signatures qui la suivent, et il <b>ecrira</b> un bref document dans lequel <b>son</b> texte <b>et</b> les signatures de <b>ses temoins</b> sont <b>sur une ligne,</b> suivis des signatures originales qui sont restees du document original, <b>et</b> il <b>dira : J'ai fait cela</b> afin <b>d'augmenter</b> le nombre de <b>temoins,</b> plus de rendre publique la matiere ecrite dans le document. Le document est donc toujours falsifiable.
+
+### Partie 7
+La Guemara repond : Rabbi Yohanan <b>soutient</b> que dans <b>tous les cas comme celui-ci,</b> ou un document et ses temoins signatures sont ecrits sur une ligne, suivis d'autres signatures sur les lignes suivantes, le tribunal <b>ratifie</b> le document <b>non pas sur la base des</b> signatures des <b>temoins qui</b> sont <b>en bas, mais sur la base des</b> signatures des <b>temoins qui</b> sont <b>en haut,</b> sur la meme ligne que le texte. Par consequent, la falsification d'un document de cette maniere est impossible. Les fausses signatures des temoins seront decouvertes lorsque ces temoins attesteront de ce sur quoi ils ont signe.
+
+### Partie 8
+§ Apres avoir cite la declaration du Rav, la Guemara discute de <b>la</b> question <b>meme. Rav dit : Un document qui se presente</b> devant le tribunal et dans lequel <b>son</b> contenu <b>et</b> les signatures de <b>ses temoins sont</b> toutes deux ecrites <b>sur une rature</b> est <b>valide.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,21 @@
+
+### Part 1
+These three expressions allude <b>to the exclusion of</b> the following three cases from the above principle: An offering that was disqualified because it was <b>slaughtered at night, and</b> an offering <b>whose blood spilled</b> before it could be sprinkled on the altar, <b>and</b> an offering <b>whose blood</b> was disqualified because it <b>was taken outside the curtains [<i>lakela’im</i>]</b> surrounding the courtyard of the Tabernacle in the wilderness, i.e., it left the Temple courtyard. These three cases are excluded, <b>as</b> in these instances, <b>if</b> parts of the disqualified offering <b>ascended,</b> i.e., were brought upon the altar, <b>they must descend,</b> i.e., be taken down.
+
+### Part 2
+<b>Rabbi Shimon says:</b> From the verse’s reference to <b>a burnt offering, I have</b> derived <b>only</b> that <b>a valid burnt offering</b> should not be taken down from the altar. <b>From where</b> is it derived that the verse also serves <b>to include</b> the following disqualified offerings: An offering <b>that</b> is invalid because it <b>was slaughtered at night; and</b> one <b>whose blood spilled</b> before sprinkling; <b>and</b> one <b>whose blood was taken outside the curtains,</b> i.e., the Temple courtyard; <b>and</b> one whose blood <b>was left overnight; and</b> one <b>that was</b> itself <b>taken out</b> of the Temple courtyard; <b>and</b> one <b>that</b> became <b>ritually impure; and</b> one <b>that was left overnight; and</b> one <b>that was slaughtered</b> with the intent to eat its flesh <b>beyond its</b> designated <b>time or outside its</b> designated <b>area.</b>
+
+### Part 3
+<b>And</b> likewise, from where is it derived that the verse serves to include offerings <b>that</b> those who are <b>unfit</b> for performing the Temple service <b>collected or sprinkled their blood; and</b> offerings <b>whose</b> blood is supposed to be <b>placed above</b> the red line of the altar but <b>which one placed below</b> that line; <b>and</b> offerings <b>whose</b> blood is supposed to be <b>placed below</b> the red line of the altar but <b>which one placed above</b> it; <b>and</b> offerings <b>whose</b> blood should be <b>placed</b> on the altar situated <b>outside</b> the Sanctuary but <b>which one</b> instead <b>placed</b> on the altar <b>inside</b> the Sanctuary; <b>and</b> offerings <b>whose</b> blood should be <b>placed</b> on the altar <b>inside</b> the Sanctuary but <b>which one placed</b> on the altar <b>outside; and a Paschal offering and a sin offering that one slaughtered not for their</b> own <b>sake,</b> i.e., while slaughtering he actually intended to sacrifice a different offering? <b>From where</b> is it derived that although these offerings are disqualified, if they were brought up to the altar they are not taken down?
+
+### Part 4
+<b>The verse states: “This is the law of the burnt offering.”</b> The verse thereby <b>included</b> in <b>one law all</b> items <b>that ascend</b> upon the altar, even disqualified offerings, teaching <b>that if they ascended</b> the altar, <b>they shall not descend.</b>
+
+### Part 5
+Rabbi Shimon continues: One <b>might</b> have thought <b>that I</b> should also <b>include an animal that copulated with a person; and an animal that was the object of bestiality; and</b> an animal <b>that</b> was <b>set aside</b> for idol worship; <b>and</b> an animal <b>that was worshipped</b> as a deity; <b>and</b> an animal that was given as <b>payment</b> to a prostitute <b>or</b> as <b>the price</b> of a dog; <b>and</b> an animal that is an offspring of <b>diverse kinds,</b> i.e., crossbreeding; <b>and an animal with a wound that will cause it to die within twelve months [<i>tereifa</i>]; and</b> an animal born by <b>caesarean section.</b> Therefore, <b>the verse states: “This,”</b> to exclude these disqualifications.
+
+### Part 6
+Rabbi Shimon elaborates: <b>And what did you see,</b> i.e., what is the reason <b>to include these</b> particular cases <b>and to exclude those</b> particular cases?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

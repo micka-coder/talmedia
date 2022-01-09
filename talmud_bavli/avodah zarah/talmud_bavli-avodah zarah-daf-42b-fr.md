@@ -1,0 +1,60 @@
+
+### Partie 1
+La Gemara demande : <b>Mais</b> considerons le cas des <b>rognures, ou l'objet principal</b> de l'adoration de l'<b>idole</b> existe toujours, et</b> neanmoins <b>il est enseigne</b> dans la <i>baraita</i> citee precedemment que si un Gentil rase une idole <b>pour son</b> propre <b>service,</b> l'idole est <b>interdite, mais ses copeaux sont autorises. </b> Ici aussi, dans le cas des feuilles tombees d'un arbre qui est adore comme une idole, il devrait etre permis d'en tirer un benefice.
+
+### Partie 2
+<b>Rav Huna, fils de Rav Yehoshua, dit :</b> La raison pour laquelle les feuilles ne sont pas permises est <b>parce que</b> le statut d'un objet d'adoration <b>idolique ne peut etre revoque</b> par <b>son</b> <b>modele naturel de croissance.</b> Puisque la chute des feuilles est un phenomene naturel, leur detachement de l'arbre n'effectue pas une revocation de leur statut d'objet d'adoration idolique.
+
+### Partie 3
+<b>Rabbi Shimon ben Lakish souleve une objection a</b> l'opinion de <b>Rabbi Yohanan</b> a partir d'une mishna (<i>Meila</i> 13b) : En ce qui concerne un <b>nid d'oiseau</b> au sommet d'un arbre qui appartient au tresor du Temple</b>, on ne <b>peut pas</b> en tirer un <b>benefice</b> <i>ab initio</i>, <b>mais</b> si on en a tire un benefice, on n'est <b>pas</b> responsable du <b>mauvais usage</b> des biens consacres au Temple. En ce qui concerne un nid qui se trouve <b>a la cime d'un arbre</b> utilise dans le cadre de rites idolatres <b>[<i>ashera</i>],</b> bien qu'on ne puisse pas grimper sur l'arbre, car ce serait tirer profit d'un objet de culte idolatre, on <b>peut faire tomber</b> le nid <b>avec une perche</b> et en tirer profit en l'utilisant comme bois de chauffage et autres.
+
+### Partie 4
+En analysant ce <i>baraita</i>, <b>il vous vient a l'esprit</b> que cela se refere a un cas <b>ou</b> l'oiseau <b>a casse des branches de</b> l'arbre venere <b>et a construit un nid avec. Et</b> pourtant, la <i>baraita</i> <b>enseigne</b> qu'on peut <b>frapper</b> le nid <b>avec une perche</b> et il est alors permis d'en profiter. Apparemment, les branches interdites utilisees dans la construction du nid ont perdu leur statut idolatre sans l'intervention de l'homme, conformement a l'opinion de Reish Lakish selon laquelle une idole qui se brise perd son statut.
+
+### Partie 5
+La Gemara explique : <b>Il s'agit ici</b> d'un cas <b>ou l'oiseau <b>a apporte des branches d'ailleurs et a construit avec elles</b> un nid au sommet de l'arbre venere. Les branches n'ont jamais fait partie d'un objet de culte idolatre.
+
+### Partie 6
+La Gemara commente : Le langage de la mishna <b>est egalement precis</b> si on le lit avec cette comprehension, <b>comme il l'enseigne en ce qui concerne</b> un nid dans <b>un arbre consacre</b> : On <b>ne peut pas</b> en tirer un <b>benefice</b> <i>ab initio</i>, <b>mais</b> si on en tirait un benefice, on n'est <b>pas</b> responsable d'un <b>abus</b> de biens consacres. <b>Attendu, si vous dites que</b> l'oiseau <b>apportait des branches d'ailleurs, cette</b> explication est coherente avec celle <b>qui</b> la mishna <b>enseigne a propos</b> d'un nid dans <b>un arbre consacre</b>, a savoir qu'on <b>ne peut pas</b> en tirer un <b>benefice</b>, <b>mais</b> si on en tire un benefice, on n'est <b>pas</b> responsable du <b>mauvais usage</b> d'un bien consacre. Selon cette comprehension de la mishna, on <b>ne peut pas</b> tirer un <b>benefice</b> du nid <b>par la loi rabbinique, mais</b> si on en tirait un benefice, on n'est <b>pas</b> responsable de <b>mauvais usage</b> d'un bien consacre <b>par la loi de la Torah, car</b> les branches <b>ne sont pas consacrees,</b> mais ont ete apportees d'ailleurs.
+
+### Partie 7
+<b>Mais si l'on dit que</b> l'oiseau <b>a arrache des branches de</b> l'arbre lui-meme <b>et a construit un nid avec elles, pourquoi</b> est-il enseigne que celui qui en tire un benefice n'est <b>pas</b> responsable de <b>mauvais usage</b> d'un bien consacre ? <b>Ne sont-elles pas</b> les branches <b>consacrees ?</b> De toute evidence, la mishna fait reference a un nid qui a ete construit avec des branches d'autres arbres, conformement a la comprehension de Rabbi Yohan qu'un objet d'adoration idolatre qui s'est brise tout seul est toujours interdit.
+
+#### Partie 8
+La Guemara repond a cette preuve pour Rabbi Yohanans comprehension de la mishna : Cet <b>argument</b> prouve-t-il <b>quelque chose ?</b> La mishna peut encore etre interpretee comme faisant reference a un cas ou les branches pour le nid provenaient de l'arbre lui-meme, et <b>ici nous avons affaire</b> a un cas de <b>croissances qui sont venues apres,</b> c'est-a-dire, des branches qui ont pousse apres que l'arbre ait ete consacre, <b>et</b> la <i>tanna</i> de la mishna <b>soutient</b> qu'il n'y a pas</b> d'interdiction contre le <b>mauvais usage</b> de biens consacres <b>en ce qui concerne</b> de telles <b>croissances.</b>
+
+### Partie 9
+Une autre explication de la mishna conforme a l'opinion de Rabbi Yohanan est presentee. <b>Rabbi Abbahou</b> dit que <b>Rabbi Yohanan dit : Que</b> signifie que l'on <b>peut faire tomber</b> le nid ? Cela signifie qu'on <b>peut faire tomber</b> <b>les poussins;</b> mais on ne peut pas tirer de benefice du nid lui-meme.
+
+### Partie 10
+<b>Rabbi Yaâkov dit a Rabbi Yirmeya bar Tahlifa : Je vais vous expliquer</b> la mishna <b> : En ce qui concerne</b> les <b>poussins,</b> qui peuvent s'envoler et ne sont pas confines a l'arbre, aussi bien <b>ici que la,</b> c'est-a-dire aussi bien dans le cas d'un arbre consacre au tresor du Temple que dans le cas d'un arbre utilise pour le culte des idoles, en tirer un benefice est <b>permis.</b> Mais <b>en ce qui concerne</b> les <b>œufs,</b> aussi bien <b>ici que la,</b> c'est-a-dire, tant dans le cas d'un arbre consacre au tresor du Temple que dans le cas d'un arbre utilise pour le culte des idoles, en tirer un benefice est <b>interdit,</b> car ils ne sont pas consideres comme independants de l'arbre. <b>Rav Ashi</b> a ajoute a cela et <b>a dit : Et les poussins qui</b> ont encore <b>besoin de leur mere</b> pour survivre <b>sont</b> consideres <b>comme des œufs;</b> en tirer un benefice est interdit.
+
+### Partie 11
+<strong>MISHNA :</strong> Dans le cas de <b>celui qui trouve des recipients, et sur lesquels se trouve une figure du soleil, une figure de la lune,</b> ou <b>une figure de dragon, il doit les prendre</b> et les jeter <b>dans la mer Morte</b> et ne pas en tirer de benefice, car ils sont supposes etre des objets d'adoration d'idoles. <b>Rabban Shimon ben Gamliel dit :</b> Ces figures <b>qui</b> sont <b>sur des recipients respectables</b> <b>sont interdites.</b> Celles <b>qui sont sur des recipients disgracieux sont autorisees.</b>
+
+### Partie 12
+<strong>GEMARA:</strong> La Gemara s'interroge a propos des chiffres specifiques enumeres dans la mishna : <b>Est-ce a dire que</b> les gens <b>n'adorent que ces</b> figures, <b>mais pas</b> tout <b>autre objet ? Et</b> la Gemara <b>souleve une contradiction</b> entre cette liste et celle qui est enseignee dans une autre mishna (<i>Hullin</i> 39b) : En ce qui concerne <b>celui qui egorge</b> un animal <b>pour l'amour de,</b> c'est-a-dire, pour adorer, <b>la mer, pour les fleuves, pour le desert, pour le soleil, pour la lune, pour les etoiles et les constellations, pour Michel le grand ange ministre</b>, ou meme <b>pour un petit ver,</b> dans tous <b>ces</b> cas, l'animal est interdit, car ces animaux ont le statut d'<b>offrandes aux morts,</b> c'est-a-dire. e., des idoles.
+
+### Partie 13
+<b>Abaye a dit</b> en reponse a la contradiction : En ce qui concerne le <b>Culte</b>, les gens pourraient <b>adorer n'importe quel</b> objet <b>qu'ils trouvent.</b> En ce qui concerne la <b>fabrication</b> de figures <b>et</b> ensuite leur <b>adoration</b>, ce n'est qu'en ce qui concerne <b>ces trois</b> objets enumeres dans la mishna, <b>qui sont importants,</b> que les gens <b>fabriquent</b> des figures de <b>eux et les adorent. En ce qui concerne</b> les figures de toute <b>autre entite,</b> les gens les <b>fabriquent simplement a des fins ornementales</b>.
+
+### Partie 14
+<b>Rav Sheshet consoliderait les principes des <i>baraitot</i></b> relatifs a cette question <b>et enseignerait :</b> Les figurines de <b>toutes les constellations sont autorisees, sauf</b> les <b>objets celestes suivants : Le soleil et la lune. Et</b> les figures de <b>tous les visages sont autorisees, a l'exception du visage humain. Et toutes les figures</b> d'autres objets <b>sont autorisees, a l'exception de la figure d'un dragon.</b>
+
+### Partie 15
+<b>Le Maitre a dit :</b> Les figures de <b>toutes les constellations sont permises, sauf</b> les <b>objets celestes suivants : Le soleil et la lune.</b> La Gemara demande : <b>De quoi s'agit-il ici ? Si nous disons</b> que la reference est <b>a celui qui forme</b> ces figures, c'est-a-dire, <b>si</b> Rav Sheshet discute de la question <b>de</b> quelles figures il est permis de <b>former, est-il</b> permis de former des figures de <b>toutes</b> les autres <b>constellations ? Mais n'est-il pas ecrit : "Vous ne ferez pas avec Moi</b> des dieux d'argent, ni des dieux d'or, vous n'en ferez pas pour vous" (Exode 20.20) ? Ce verset est interprete comme signifiant : <b>Vous ne ferez pas de figures de Mes serviteurs qui servent devant Moi en haut,</b> c'est-a-dire ces corps celestes, y compris les constellations, qui ont ete crees pour servir Dieu.
+
+### Partie 16
+<b>Au contraire,</b> il est <b>evident</b> que cette <i>halakha</i> fait reference a un cas <b>ou</b> on <b>trouve</b> des recipients portant ces figures, <b>et</b> c'est <b>comme nous l'avons appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des recipients, et sur lesquels il y a une figure du soleil, une figure de la lune,</b> ou <b>une figure d'un dragon, il doit les prendre</b> et les jeter <b>dans la mer morte.</b> Cela indique qu'il est permis de tirer un benefice de tous les autres recipients qui ont ete trouves et qui avaient des figures sur eux.
+
+### Partie 17
+La Gemara demande : <b>Si</b> c'est un cas <b>ou</b> on <b>trouve</b> des recipients avec ces figures dessus, <b>disons la clause du milieu</b> de la declaration de Rav Sheshet : Les figures de <b>tous les visages sont autorises, sauf le visage humain.</b> Maintenant, <b>si</b> c'est un cas <b>ou</b> on <b>trouve</b> des recipients avec des figures dessus, <b>est-il</b> un recipient avec la figure de <b>le visage humain interdit ? Mais n'avons-nous pas appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des recipients sur lesquels il y a une figure du soleil, une figure de la lune,</b> ou <b>une figure de dragon, il doit les prendre</b> et les jeter <b>dans la mer morte ?</b> Cela indique qu'un recipient avec <b>la figure d'un dragon est</b> interdit, mais qu'un recipient avec la figure d'un <b>visage humain ne l'est pas.</b>
+
+### Partie 18
+<b>Au contraire,</b> conclut la Guemara, il est <b>evident</b> que la declaration selon laquelle la figure d'un visage humain est interdite fait reference a un cas <b>ou l'on forme</b> une figure, <b>et</b> cela est interdit, <b>conformement</b> a la declaration <b>du Rav Huna, fils du Rav Yehoshua,</b> qui affirme (43b) que l'interpretation du verset : "Vous ne ferez pas de Moi des dieux d'argent, ni des dieux d'or, vous n'en ferez pas pour vous" (Exode 20:20), est : Ne faites pas de Moi, c'est-a-dire ne formez pas la figure d'une personne, qui a ete creee a l'image de Dieu.
+
+### Partie 19
+La Gemara demande : <b>Si</b> il fait reference a un cas <b>ou l'on forme</b> une figure, <b>disons la derniere clause</b> de la declaration de Rav Sheshet : <b>Toutes les figures sont permises sauf la figure d'un dragon. Et si</b> il se refere a un cas <b>ou l'on forme</b> une figure, <b>est-ce que</b> former <b>la figure d'un dragon est interdit ? Mais n'est-il pas ecrit : "Vous ne ferez pas avec Moi des dieux d'argent, ni des dieux d'or"?</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

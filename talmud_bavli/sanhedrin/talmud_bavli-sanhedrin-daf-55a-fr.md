@@ -1,0 +1,60 @@
+
+### Partie 1
+ou <b>quelqu'un qui se livre a des rapports sexuels avec un animal, que ce soit d'une maniere typique ou d'une maniere atypique,</b> c'est-a-dire des rapports anaux, <b>et</b> de meme <b>une femme qui se livre a des rapports sexuels avec un animal, que ce soit d'une maniere typique ou d'une maniere atypique,</b> est <b>responsable.</b> Ce <i>baraita</i> fixe l'age minimum du male passif a neuf ans et un jour.
+
+### Partie 2
+<b>Rav Nahman bar Rav Hisda a enseigne : En ce qui concerne une femme</b> il y a <b>deux</b> manieres de <b>mentir.</b> Une femme qui a un rapport sexuel avec un animal, que ce soit un rapport vaginal ou anal, est responsable. <b>Mais en ce qui concerne</b> un homme qui se livre a un rapport sexuel avec <b>un animal</b> il n'y a qu'une <b>une</b> maniere de <b>se coucher,</b> c'est-a-dire le rapport vaginal.
+
+### Partie 3
+<b>Rav Pappa s'oppose a cette</b> opinion : <b>Au contraire, une femme, dont la maniere typique</b> de faire l'amour <b>est</b> vaginale, <b>est rendue responsable de coucher</b> avec un animal uniquement de cette maniere ; elle <b>n'est pas rendue responsable d'autre chose,</b> c'est-a-dire d'avoir des rapports anaux avec un animal. En ce qui concerne l'homme qui a des rapports sexuels avec <b>un animal,</b> en revanche, <b>puisque ce n'est pas son comportement typique</b> d'avoir des rapports sexuels avec un homme, il <b>doit etre rendu responsable pour</b> avoir des rapports sexuels avec <b>l'animal par chacun de ses orifices.</b>
+
+### Partie 4
+<b>Il est enseigne</b> dans un <i>baraita</i> <b>conforme a aucune de leurs</b> opinions : Celui qui a des rapports homosexuels avec <b>un homme age de neuf ans et un jour,</b> ou <b>celui qui a des rapports avec un animal, que ce soit de maniere typique, ou de maniere atypique,</b> c'est-a-dire, des rapports sexuels anaux, <b>et</b> de meme, <b>une femme qui se livre a des rapports sexuels avec un animal, que ce soit de maniere typique ou de maniere atypique,</b> sont <b>responsables.</b> De toute evidence, il n'y a pas de difference entre la nature de la transgression d'une femme qui se livre a la bestialite et d'un homme qui se livre a la bestialite a cet egard.
+
+### Partie 5
+<b>Ravina a dit a Rava :</b> En ce qui concerne <b>celui qui accomplit l'etape initiale du rapport sexuel avec</b> un autre <b>homme,</b> c'est-a-dire l'insertion du penis, sans achever le rapport sexuel, <b>quelle est</b> la <i>halakha</i> ? Est-il responsable d'avoir eu des rapports homosexuels ?
+
+### Partie 6
+La Guemara commente : En ce qui concerne <b>celui qui accomplit l'etape initiale du rapport sexuel avec un homme,</b> quelle est la question ? L'expression <b>Comme avec une femme"</b> (Levitique 18:22) <b>est ecrite a son egard,</b> ce qui indique que tout acte qui est considere comme un acte de rapport sexuel avec une femme est egalement considere comme un acte de rapport sexuel avec un homme. <b>Au contraire,</b> la question est la suivante : En ce qui concerne <b>celui qui accomplit l'etape initiale du rapport sexuel avec un animal, quelle est</b> la <i>halakha</i> ?
+
+### Partie 7
+Rava <b>lui a dit :</b> Dans le verset : "Et tu ne decouvriras pas la nudite de la sœur de ta mere ni de la sœur de ton pere, car il a rendu nu [<i>heera</i>] son parent" (Levitique 20:19), le mot <i>heera</i> fait allusion au stade initial du rapport sexuel [<i>haâra</i>]. <b>Si</b> le mot <i>heera</i> <b>n'est pas</b> necessaire pour la <b>question du stade initial du rapport sexuel</b> dans le contexte <b>ou il est ecrit,</b> c'est-a-dire, pour l'interdiction des rapports sexuels avec la <b>sœur de son <b>pere</b> et la <b>sœur de sa <b>mere</b>, car elle n'est pas necessaire</b> dans ce contexte puisque la <i>halakha</i> de l'etape initiale du rapport sexuel en ce qui concerne toutes les relations sexuelles interdites est <b>comparee</b> par la Torah <b>a</b> la <i>halakha</i> de <b>l'etape initiale du rapport sexuel</b> mentionnee <b>en ce qui concerne une femme en periode de menstruation, l'appliquer</b> plutot <b>a</b> la <b>question de l'etape initiale du rapport sexuel avec un animal. </b> L'expression superflue qui apparait dans le verset concernant sa tante enseigne que le stade initial du rapport sexuel est considere comme un rapport sexuel meme a l'egard d'un animal.
+
+### Partie 8
+La Guemara demande : <b>Puisque</b> celui qui a des rapports sexuels avec <b>un animal est parmi ceux qui sont susceptibles</b> de recevoir <b>une</b> peine de <b>mort</b> imposee par le tribunal, <b>Pourquoi ai-je besoin</b> que la <i>halakha</i> de celui qui effectue la <b>etape initiale du rapport sexuel avec</b> un animal <b>soit ecrite</b> dans un verset <b>concernant ceux qui sont susceptibles</b> de recevoir <b><i>karet</i>,</b> c'est-a-dire. e., le cas de celui qui a des rapports sexuels avec sa tante ? <b>Laissons</b> la Torah <b>ecrire</b> cette <i>halakha</i> <b>en ce qui concerne ceux qui sont susceptibles</b> de recevoir <b>une</b> peine de <b>mort</b> imposee par le tribunal, <b>et</b> on <b>deduirait alors</b> cette <i>halakha</i> concernant <b>ceux qui sont susceptibles</b> de recevoir <b>une</b> peine de mort</b> imposee par un tribunal <b>a partir</b> de la <i>halakha</i> de <b>ceux qui sont susceptibles</b> de recevoir <b>une</b> peine de mort</b> imposee par un tribunal, et non de la <i>halakha</i> moins pertinente de celui qui a des rapports sexuels avec sa tante, qui est puni de <i>karet</i>.
+
+### Partie 9
+La Gemara repond : <b>Puisque tout le verset</b> relatif a la punition de celui qui a des rapports sexuels avec la sœur de son pere ou de sa mere est superflu, et <b>vient pour</b> le besoin d'une <b>exposition,</b> puisque cette <i>halakha</i> est deja enoncee dans d'autres versets (voir Levitique 18:12""13), cette <b>question,</b> c'est-a-dire, le fait que le stade initial du rapport sexuel est halakhiquement defini comme un rapport sexuel, <b>est egalement ecrit</b> dans ce verset dans le but <b>d'une exposition,</b> c'est-a-dire pour indiquer que ce principe est egalement valable en ce qui concerne la bestialite.
+
+### Partie 10
+<b>Rav Ahadevoi bar Ami a demande au Rav Sheshet :</b> En ce qui concerne <b>celui qui effectue le stade initial d'un <b>rapport homosexuel sur lui-meme, quelle est</b> la <i>halakha</i> ? Est-il responsable d'un rapport homosexuel ? Rav Sheshet lui <b>dit : Vous me degoutez</b> avec votre question, un tel acte n'est pas possible.
+
+### Partie 11
+<b>Rav Ashi a dit : Quel est votre dilemme ? </b> En ce qui concerne le fait de le faire <b>avec un penis en erection</b>, <b>vous ne pouvez pas trouver</b> un tel cas. <b>Vous pouvez le trouver</b> seulement <b>lorsque</b> on <b>execute</b> cet <b>acte sexuel</b> avec <b>un penis flasque</b>. Et le <i>halakha</i> fait l'objet d'une contestation : <b>Selon celui qui dit</b> qu'un homme <b>qui se livre a un acte sexuel</b> avec <b>un penis flasque</b>, <b>avec</b> l'un de <b>ceux avec qui les relations sont interdites,</b> est <b>exempte,</b> car cela n'est pas considere comme un acte sexuel, <b>la aussi</b> quand on le fait a soi-meme, il est <b>exempte. Et selon celui qui dit</b> qu'il est <b>responsable,</b> il est <b>rendu responsable ici</b> pour avoir transgresse <b>deux</b> interdits selon Rabbi Yishmael ; il est <b>rendu responsable pour s'etre livre</b> a des <b>rapports homosexuels</b> de maniere active, <b>et</b> il est <b>rendu responsable pour s'etre livre</b> a des <b>rapports homosexuels</b> de maniere passive.
+
+### Partie 12
+Les etudiants <b>demandent a Rav Sheshet :</b> En ce qui concerne <b>un gentil qui a des rapports sexuels avec un animal, quelle est</b> la <i>halakha</i> ? L'animal doit-il etre tue ? La Gemara developpe : <b>Est-ce qu'il faut</b> deux raisons pour tuer l'animal, a savoir qu'il a cause <b>une calamite et</b> qu'il a cause la <b>honte, et</b> donc <b>ici</b> l'animal n'est pas tue, car s'il y a <b>une calamite,</b> puisqu'il a cause le peche d'une personne et son execution, <b>il n'y a pas de honte,</b> puisque le tribunal juif n'est pas responsable de la honte d'un Gentil ? <b>Ou peut-etre</b> une seule raison suffit-elle, et un animal est tue a cause de la <b>calamite</b> qu'il a causee <b>meme s'il n'y a pas de honte ?</b>
+
+### Partie 13
+<b>Rav Sheshet a dit : Vous avez appris</b> la reponse a cette question dans une <i>baraita</i> : <b>Si</b> en ce qui concerne les <b>arbres, qui ne mangent ni ne boivent ni ne sentent,</b> et neanmoins, s'ils sont utilises dans des rites idolatres, <b>la Torah dit : Detruisez, brulez et demolissez</b> eux (voir Deuteronome, chapitres 7, 12), et la raison en est que <b>puisqu'une calamite a ete causee aux gens par eux,</b> alors en ce qui concerne celui <b>qui en egare un autre des chemins de la vie vers les chemins de la mort, a plus forte raison</b> il est susceptible d'etre detruit. On peut deduire de la que tout objet utilise pour une transgression qui rend quelqu'un passible d'etre execute doit etre detruit.
+
+### Partie 14
+La Guemara conteste cette decision : <b>Si c'est le cas,</b> dans le cas d'un <b>gentil qui se prosterne devant son animal,</b> l'animal <b>devrait etre interdit,</b> c'est-a-dire qu'il devrait etre interdit d'en tirer un benefice, <b>et il devrait etre tue.</b> La Gemara repond : <b>Y a-t-il quelque chose qui n'est pas interdit a un Juif, mais qui est interdit a un Gentil ?</b> Puisqu'un Juif qui se prosterne devant un animal ne le rend pas interdit (voir <i>Temura</i> 29b), un Gentil qui le fait ne le rend pas non plus interdit.
+
+### Partie 15
+La Guemara remet en cause cette hypothese : En ce qui concerne <b>un Juif lui-meme</b> qui se prosterne devant son animal, <b>laissons</b> l'animal <b>etre interdit, tout comme il l'est dans</b> un cas de <b>bestialite,</b> lorsque l'animal est interdit et est tue. <b>Abaye dit :</b> Les cas ne sont pas les memes. Dans <b>cette</b> cas, ou l'on commet la bestialite, <b>sa honte est grande ; mais</b> dans <b>cette</b> cas, ou l'on venere un animal, <b>sa honte est legere,</b> et il ne sera pas aussi deshonore si l'animal est laisse vivant.
+
+### Partie 16
+La Gemara demande : <b>Mais</b> en ce qui concerne les <b>arbres</b> qui sont utilises dans les rites idolatres, dans <b>lesquels</b> cas <b>la honte des idolatres</b> n'est pas grande, la Torah</b> dit neanmoins <b> : Detruisez, brulez et demolissez-les</b>. La Gemara repond : <b>Nous parlons d'animaux vivants.</b> La <i>halakha</i> y est differente, <b>car le Misericordieux a pitie d'eux.</b> Par consequent, si la honte de la personne n'est pas grande, l'animal n'est pas tue.
+
+### Partie 17
+<b>Rava dit</b> qu'il existe une raison differente pour la distinction entre un animal qui a ete adore et un animal avec lequel on a commis une bestialite : <b>La Torah declare</b> que parce que l'<b>animal a joui</b> de la <b>transgression, il doit etre tue.</b> On ne peut pas dire cela d'un animal qui a ete adore.
+
+### Partie 18
+La Guemara demande : <b>Mais</b> en ce qui concerne les <b>arbres</b> qui sont utilises dans les rites idolatres, <b>qui ne jouissent pas</b> de la <b>transgression,</b> neanmoins <b>la Torah dit : Detruisez, brulez et demolissez.</b> La Gemara repond : <b>Nous parlons des animaux vivants.</b> La <i>halakha</i> y est differente, <b>car le Misericordieux a pitie d'eux.</b> Par consequent, un animal n'est tue que s'il a apprecie la transgression.
+
+### Partie 19
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution de la mishna au dilemme concernant un animal avec lequel un gentil a commis une bestialite : <b>Alternativement,</b> c'est <b>afin que</b> cet <b>animal ne passe pas par la place du marche, et</b> ceux qui le voient <b>diront : C'est</b> l'animal <b>a cause duquel untel a ete lapide,</b> et son existence fera honte a sa memoire. <b>Quoi, n'est-ce pas</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

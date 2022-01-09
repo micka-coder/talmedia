@@ -1,0 +1,33 @@
+
+### Part 1
+<b>learned the reverse,</b> that is to say, according to our version of the <i>baraita</i>, it is the judges of the exile who maintain that the claimant collects only half the sum, which corresponds to the <i>halakha</i> taught by Rava.
+
+### Part 2
+<strong>MISHNA:</strong> In continuation of the previous mishna (68b) discussing one who sells a field, the mishna teaches that even if he says that he is selling it and everything that is in it, has sold <b>neither the cistern, nor the winepress, nor the dovecote, whether</b> it is <b>abandoned or utilized,</b> as these items are not part of the field itself. <b>And</b> the seller <b>must purchase</b> for himself <b>a path</b> through the buyer’s domain to reach whatever remains his. This is <b>the statement of Rabbi Akiva,</b> who holds that one who sells, sells generously; therefore, whatever is not explicitly excluded from the sale is assumed to be sold, and it is presumed that the seller did not retain for himself the right to the path that he requires to access his property. <b>And the Rabbis say:</b> The seller <b>need not</b> purchase a path through the buyer’s domain, as it is assumed that since the seller withholds these items for himself, he also reserves a path to reach them.
+
+### Part 3
+<b>And Rabbi Akiva concedes that when</b> the seller <b>says to</b> the buyer in the bill of sale that he is selling the field <b>apart from these</b> things, i.e., the cistern and the winepress, <b>he need not purchase for himself a path</b> through the buyer’s domain. Since these items would have been excluded from the sale even if he had said nothing, it is assumed that he also meant to reserve for himself the right to access them. But if the seller kept the field but <b>sold</b> the cistern and winepress <b>to another</b> person, <b>Rabbi Akiva says:</b> The buyer <b>need not purchase for himself a path</b> through the seller’s domain to reach what he has bought, since a seller sells generously. <b>But the Rabbis say: He must purchase for himself a path</b> through the seller’s domain.
+
+### Part 4
+<b>In what</b> case <b>is this statement,</b> that these items are excluded, <b>said?</b> It is said <b>with regard to one who sells</b> a field, <b>but with regard to one who gives</b> it away as <b>a gift,</b> it is assumed that <b>he gives all of it,</b> including everything found in the field. Similarly, with regard to <b>brothers who divide</b> their father’s estate among themselves, when they each <b>acquire</b> a <b>field</b> as part of their inheritance, <b>they acquire all of it,</b> including the items that would be excluded from a sale. So too, with regard to <b>one who takes possession of the property of a convert,</b> when <b>he takes possession of a field, he takes possession of all of it.</b>
+
+### Part 5
+<b>One who consecrates a field has consecrated all of it. Rabbi Shimon says: One who consecrates a field has not consecrated</b> any of the items that are ordinarily excluded from a sale <b>except for the grafted carob tree and the sycamore trunk.</b>
+
+### Part 6
+<strong>GEMARA:</strong> The Gemara asks: In <b>what</b> way <b>is a sale different from</b> a gift, <b>and</b> in <b>what</b> way <b>is a gift different from</b> a sale? Why does the mishna distinguish between the two with regard to what is retained by the prior owner? <b>Yehuda ben Nekosa explained before Rabbi</b> Yehuda HaNasi: The difference between the cases is that <b>this</b> one, the seller, <b>specified</b> that certain items were not included in the sale, <b>and that</b> one, the donor, <b>did not specify.</b>
+
+### Part 7
+The Gemara asks: How can it be suggested that <b>this</b> one <b>specified and that</b> one <b>did not specify,</b> when in fact <b>this</b> one <b>did not specify, and that one did not specify,</b> as in neither case did the prior owner specify what items he was reserving for himself? <b>Rather,</b> the difference is that <b>this</b> one, the buyer, <b>should have specified</b> that those items that are not integral parts of the field are nevertheless included in the sale, and since he neglected to do so, he suffers the loss. <b>But</b> in the case of a gift, <b>that</b> one, the recipient, <b>should not have specified</b> what was included in the gift, as it would have been inappropriate for him to act in this manner.
+
+### Part 8
+It is related that there was <b>a certain</b> person <b>who said to</b> others: <b>Give to so-and-so</b> my <b>house containing 100 barrels [<i>gulfei</i>]</b> as a gift. <b>It was found that there was</b> a house in his possession that <b>contained 120</b> barrels. <b>Mar Zutra said:</b> The owner <b>said to him</b> that he was giving him a house containing <b>100</b> barrels, <b>and</b> he <b>did not say to him</b> that he was giving him a house containing <b>120</b> barrels. Therefore, the recipient receives only the portion of the house that holds 100 barrels, and not the rest of the house.
+
+### Part 9
+<b>Rav Ashi said: Didn’t we learn</b> in the mishna here: <b>In what</b> case <b>is this statement said?</b> It is said <b>with regard to one who sells</b> a field, <b>but with regard to one who gives</b> it away as <b>a gift,</b> it is assumed that <b>he gives all of it. Apparently, one who gives a gift gives generously. Here too,</b> then, say that <b>one who gives a gift gives generously,</b> even if he is not always precise in his wording. Therefore, it should be assumed that the donor intended to give the recipient the entire house, which contains more than 100 barrels.
+
+### Part 10
+§ The mishna teaches: <b>One who consecrates a field, has consecrated</b> all of it. <b>Rav Huna said: Even though the Rabbis said:</b> If <b>one buys two trees in</b> the field <b>of another, he does not acquire</b> any of <b>the land</b> but acquires only the trees, and if <b>he sells land</b> to another, <b>and</b> he <b>retains two trees for himself, he</b> also <b>retains the land</b> around those trees, that does not always apply. Rav Huna elaborates: <b>And even according to Rabbi Akiva, who says</b> that <b>one who sells, sells generously</b> and does not retain anything for himself, <b>this does not always apply,</b> as <b>this statement</b> applies only <b>with regard to a pit and a cistern, which do not weaken the land,</b> and therefore the seller feels no need to protect himself from the potential claims of the buyer. <b>But</b> with regard to <b>trees, which do weaken the land,</b> as they draw water and nutrients from the soil,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

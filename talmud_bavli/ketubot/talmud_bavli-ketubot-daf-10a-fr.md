@@ -1,0 +1,42 @@
+
+### Partie 1
+§ <b>Il a ete declare : Rav Nahman a dit</b> que <b>Shmuel a dit au nom de Rabbi Shimon ben Elazar : Les Sages ont institue</b> le contrat de mariage</b> pour les femmes juives : Pour une vierge deux cents</b> dinars <b>et pour une veuve cent dinars.</b> Et ils ont <b>repute</b> le marie <b>credible</b> en <b>ce que si</b> il <b>dit</b> a l'egard de son epouse vierge : <b>J'ai rencontre un orifice non obstrue</b> et qu'elle n'est pas vierge, <b>il est juge credible,</b> lui faisant perdre son contrat de mariage. La Guemara demande : <b>Si c'est le cas,</b> et que les Sages l'ont juge credible, <b>qu'ont-ils accompli dans leur ordonnance</b> selon laquelle le contrat de mariage d'une vierge est de deux cents dinars, si son affirmation selon laquelle elle n'est pas vierge est effective ?
+
+### Partie 2
+<b>Rava a dit :</b> L'ordonnance est efficace en raison de la <b>presomption</b> que <b>une personne ne s'efforce pas</b> de preparer un <b>repas de mariage et</b> ensuite de le <b>faire perdre.</b> Investir dans les preparatifs du mariage indique clairement que l'intention du marie est d'epouser la mariee et de se rejouir avec elle. Si, neanmoins, il pretend qu'elle n'est pas vierge, apparemment il dit la verite.
+
+### Partie 3
+§ Un Sage <b>enseigne</b> dans un <i>baraita</i> : <b>Puisque</b> le paiement du contrat de mariage <b>est une penalite</b> instituee par les <b>Sages, elle ne peut percevoir que sur les</b> terres du mari <b>de qualite la plus inferieure.</b> La Gemara demande : <b>Une penalite ? Quelle penalite</b> existe-t-il dans un contrat de mariage ? <b>Au contraire,</b> emendez la <i>baraita</i> et <b>dites : Puisqu'il s'agit d'une ordonnance rabbinique</b> et non d'une obligation de la Torah, <b>elle ne peut percevoir que sur les</b> <b>terres du mari de la qualite la plus inferieure. Rabban Shimon ben Gamliel dit : Le contrat de mariage d'une femme est</b> une obligation <b>par la loi de la Torah</b>.
+
+### Partie 4
+La Gemara demande : <b>Et Rabban Shimon ben Gamliel a dit cela ? Mais n'est-il pas enseigne</b> dans une <i>baraita</i> qu'il est ecrit a l'egard d'un seducteur : <b>"Il paiera de l'argent selon la dot des vierges"</b> (Exode 22:16) ? La Torah etablit que <b>cette</b> amende <b>serait comme la dot d'une vierge,</b> et que <b>la dot d'une vierge</b> sera <b>comme cette</b> amende, c'est-a-dire cinquante <i>sela</i> d'argent, soit deux cents dinars. <b>A partir de la, les Sages ont fonde</b> leur determination <b>que le contrat de mariage d'une femme est</b> une obligation <b>par la loi de la Torah</b>. <Rabban Shimon ben Gamliel dit : Le contrat de mariage d'une femme n'est pas</b> une obligation <b>par la loi de la Torah, mais</b> l'est <b>par la loi rabbinique.</b>
+
+### Partie 5
+La Guemara resout la contradiction entre les declarations de Rabban Shimon ben Gamliel : <b>Inverse</b> l'attribution des opinions dans cette <i>baraita</i>. La Guemara demande : <b>Et qu'as-tu vu qui</b> t'a conduit <b>a <b>inverser</b> l'attribution des opinions <b>dans ce dernier</b> <i>baraita</i> ? <b>Inverser</b> l'attribution des opinions dans <b>la premiere,</b> dans la <i>baraita</i>, et dire que Rabban Shimon ben Gamliel est celui qui soutient que le contrat de mariage est une ordonnance rabbinique.
+
+### Partie 6
+La Guemara repond : La raison est <b>que nous avons appris que</b> c'est <b>Rabban Chimon ben Gamliel qui a dit</b> ailleurs <b>que le contrat de mariage d'une femme est</b> une obligation <b>par la loi de la Torah</b>, <b>Comme nous l'avons appris</b> dans une mishna (110b) que <b>Rabban Shimon ben Gamliel dit</b> que si un homme epouse une femme en Cappadoce, ou la monnaie a plus de valeur, et qu'il divorce en Eretz Yisrael, <b>il lui donne</b> le paiement du contrat de mariage <b>avec la monnaie de Cappadoce. </b> Du fait qu'il est oblige de payer le contrat de mariage dans la monnaie du lieu ou il a contracte l'obligation, apparemment le contrat de mariage d'une femme est une obligation par la loi de la Torah.
+
+### Partie 7
+<b>Et si vous voulez, dites</b> plutot que la <b>entiere</b> derniere <i>baraita</i> <b>est</b> conforme a l'avis de <b>Rabban Shimon ben Gamliel, mais</b> la <i>baraita</i> <b>est incomplete et elle enseigne ce qui suit : De la, les Sages ont fonde</b> leur determination <b>que le contrat de mariage d'une femme</b> dans le cas d'une vierge <b>est</b> une obligation <b>par la loi de la Torah</b>. Cependant, le <b>contrat de mariage d'une veuve n'est pas</b> une obligation <b>par la loi de la Torah mais</b> est une ordonnance <b>par la loi rabbinique, comme le dit Rabban Shimon ben Gamliel : Le contrat de mariage d'une veuve n'est pas</b> une obligation <b>par la loi de la Torah mais</b> est une ordonnance <b>par la loi rabbinique.</b>
+
+### Partie 8
+§ La Gemara relate : <b>Un certain</b> homme <b>qui n'avait jamais ete marie</b> s'est presente devant Rav Nahman</b> et lui a <b>dit : J'ai rencontre un orifice non obstrue</b> lorsque j'ai consomme le mariage. Rav Nahman <b>a dit a son</b> egard : <b>Flogue-le</b> avec des <b>branches de palmier [<i>kufrei</i>] ; les prostituees [<i>mevarakhta</i>] sont courantes</b> autour de <b>lui.</b> Comme il n'a jamais ete marie auparavant, comment a-t-il pu determiner si l'orifice etait degage ou non, s'il n'a pas acquis l'experience des prostituees ?
+
+### Partie 9
+La Gemara demande : <b>Mais Rav Nahman n'est-il pas celui qui a dit qu'il est juge credible</b> lorsqu'il affirme avoir rencontre un orifice non obstrue ? La Guemara repond : Oui, <b>il est juge credible, et</b> neanmoins, <b>on le flagelle</b> avec des <b>branches de palmier. Le Rav Ahai a repondu : Ici,</b> dans le cas ou on le flagelle, c'est <b>en ce qui concerne un celibataire,</b> auquel on n'accorde pas de credibilite, car il manque d'experience. <b>Ici,</b> dans le cas ou on lui accorde la credibilite, c'est <b>a l'egard</b> de celui qui a ete <b>marie.</b>
+
+### Partie 10
+La Gemara relate un incident similaire d'une epoque anterieure : <b>Un certain</b> homme <b>qui s'est presente devant Rabban Gamliel lui a dit : J'ai rencontre un orifice non obstrue.</b> Rabban Gamliel <b>lui a dit : Peut-etre as-tu detourne</b> ton approche et donc, tu n'as pas rencontre d'obstruction ? <b>Je vais te raconter une parabole a laquelle ceci est similaire.</b> Elle est similaire <b>a un homme qui marchait dans le noir de la nuit et de l'obscurite</b> et il est arrive a l'entree de la maison ; si <b>il detourne</b> l'objet empechant la porte de s'ouvrir, <b>il la trouve ouverte;</b> si <b>il ne le detourne pas</b> il la trouve verrouillee. </b> Peut-etre avez-vous vous aussi detourne votre approche et etes entre sous un angle different et c'est pourquoi vous n'avez pas rencontre d'obstruction.
+
+### Partie 11
+<b>Certains disent que c'est ce que</b> Rabban Gamliel <b>lui a dit : Peut-etre as-tu devie</b> ton approche <b>intentionnellement et tu as deplace la porte et le verrou. Je vais te raconter une parabole a laquelle cela s'apparente.</b> Elle est semblable <b>a un homme qui marche dans le noir de la nuit et des tenebres</b> et il arrive a son entree. <b>S'il devie intentionnellement, il la trouve ouverte ; s'il ne devie pas intentionnellement, il la trouve verrouillee.</b>
+
+### Partie 12
+La Gemara relate : <b>Un certain</b> homme <b>qui s'est presente devant Rabban Gamliel bar Rabbi</b> Yehuda HaNasi <b>lui a dit : Mon maitre, j'ai eu des rapports sexuels et je n'ai pas trouve de sang.</b> La mariee <b>lui a dit : Mon maitre, j'etais vierge.</b> Rabban Gamliel bar Rabbi Yehuda HaNasi <b>leur a dit : Apportez-moi ce tissu [<i>sudar</i>]</b> sur lequel vous avez consomme le mariage. <b>Ils lui apporterent le tissu, il le trempa dans l'eau et le blanchit et trouva sur lui plusieurs gouttes de sang</b> provenant de la rupture de l'hymen. Rabban Gamliel bar Rabbi Yehuda HaNasi <b>Dit au</b> marie : <b>Allez prendre possession de votre acquisition,</b> car elle etait vierge et il n'y a pas lieu de s'inquieter.
+
+### Partie 13
+<b>Huna Mar, fils de Rava, de Parzakya, dit a Rav Ashi : Faisons de meme</b> dans des cas similaires et examinons s'il y a du sang masque par du sperme ou une autre substance. Rav Ashi <b>lui repondit :</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

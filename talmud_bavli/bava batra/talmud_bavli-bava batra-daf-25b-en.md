@@ -1,0 +1,48 @@
+
+### Part 1
+<b>is similar to</b> a partially enclosed <b>veranda [<i>le’akhsadra</i>],</b> enclosed on three sides, <b>and the northern side</b> of the world <b>is not enclosed</b> with a partition like the other directions. The sun begins its revolution in the east and passes to the south and the west, <b>and once the sun reaches the northwestern corner it turns around and ascends</b> throughout the night <b>above the sky</b> to the east side and does not pass the north side. <b>And Rabbi Yehoshua says: The world is similar to a small tent [<i>lekubba</i>], and the north side is enclosed</b> with a partition as well, <b>but once the sun reaches the northwestern corner</b> it emerges from this small tent, and <b>circles and passes behind the dome,</b> i.e., outside the northern partition, until it reaches the east.
+
+### Part 2
+<b>As it is stated:</b> “The sun also rises and the sun goes down, and hastens to its place, where it rises again. <b>It goes toward the south, and turns about to the north;</b> round and round goes the wind, and on its circuits the wind returns” (Ecclesiastes 1:5–6). The verse is understood as describing the sun’s movements, as follows: <b>“It goes toward the south” during the day, “and turns about to the north,”</b> on the outside of the firmament, <b>at night. “Round and round goes the wind [<i>ruaḥ</i>] and the wind returns again to its circuits”;</b> as the word <i>ruaḥ</i> can also mean direction or side, Rabbi Yehoshua explains that <b>these are the face of the east and the face of the west. Sometimes,</b> in the short winter days, the sun <b>turns about them</b> without being seen, <b>and sometimes,</b> in the long summer days, <b>it traverses them</b> visibly.
+
+### Part 3
+The <i>baraita</i> continues:  <b>He would say.</b> Before continuing its citation, the Gemara interjects: In this statement,  <b>we arrive at</b> the opinion of <b>Rabbi Eliezer</b> that the world is like a partially enclosed veranda. The Gemara resumes its citation of the baraita: There is proof from a verse that the north side is open: <b>“Out of the chamber comes the storm”; this is the southern side</b> that forms a room with the other two sides. <b>“And cold out of the dispersed parts”</b> (Job 37:9); <b>this is the northern side,</b> which is open, and from which a cold wind comes. <b>“By the breath of God ice is given”; this is the western side. “And the breadth of the waters is straitened”</b> (Job 37:10); <b>this is the eastern side,</b> from which the rains come.
+
+### Part 4
+The Gemara asks: <b>But doesn’t the Master say</b> that <b>the southern wind raises showers and causes herbs to grow?</b> The Gemara answers that this is <b>not difficult: This</b> is referring to <b>rain that falls gently,</b> which waters plants and brings growth; <b>that</b> is referring to <b>a downpour</b> of rain that causes damage.
+
+### Part 5
+<b>Rav Ḥisda said: What</b> is the meaning of that <b>which is written: “Out of the north comes gold”</b> (Job 37:22)? <b>This is the northern wind, which devalues gold</b> by causing a drought that raises the price of grain. <b>And, in addition, it says: “You who lavish gold out of the bag”</b> (Isaiah 46:6).
+
+### Part 6
+§ <b>Rafram bar Pappa says</b> that <b>Rav Ḥisda says: From the day the Temple was destroyed the southern wind has not brought rain, as it is stated</b> in the description of the destruction of the Temple: <b>“He decrees on the right and there is hunger, and consumes on the left and they are not satisfied”</b> (Isaiah 9:19). This means that God decreed that the southern wind, which is called right, shall bring famine with it. <b>And it is written: “North and right, You have created them”</b> (Psalms 89:13). This proves that the term right means south.
+
+### Part 7
+<b>And Rafram bar Pappa says</b> that <b>Rav Ḥisda says: From the day the Temple was destroyed, the rains no</b> longer <b>descend from the good storehouse, as it is stated: “The Lord will open to you His good storehouse,</b> the skies, to give the rain of your land in its season” (Deuteronomy 28:12). <b>In a time when the Jewish people perform God’s will, and the Jewish people are settled in their land, rain descends from the good storehouse. In a time when the Jewish people are not settled in their land, rain does not descend from the good storehouse.</b>
+
+### Part 8
+<b>Rabbi Yitzḥak says: One who wishes to become wise should face south, and</b> one who wishes <b>to become wealthy should face north. And your mnemonic</b> for this is that in the Temple the <b>Table,</b> which symbolized blessing and abundance, <b>was in the north, and the Candelabrum,</b> which symbolized the light of wisdom, <b>was in the south</b> of the Sanctuary. <b>And Rabbi Yehoshua ben Levi says: One should always face south, as once he becomes wise he will</b> subsequently also <b>become wealthy, as it is stated</b> with regard to the Torah: <b>“Length of days is in her right hand; in her left hand are riches and honor”</b> (Proverbs 3:16).
+
+### Part 9
+The Gemara asks: <b>But Rabbi Yehoshua ben Levi says</b> that <b>the Divine Presence is in the west.</b> How, then, can one pray facing south? The Gemara explains <b>that one should turn aside</b> slightly, so that he faces southwest. <b>Rabbi Ḥanina said to Rav Ashi:</b> An individual <b>such as you, who lives to the north of Eretz Yisrael, should face south</b> when you pray. <b>And from where do we</b> derive <b>that Babylonia is located to the north of Eretz Yisrael? As it is written</b> in a prophecy concerning the destruction of Jerusalem by the Babylonians: <b>“Out of the north evil shall break forth upon all the inhabitants of the land”</b> (Jeremiah 1:14).
+
+### Part 10
+§ The mishna teaches that <b>one must distance from vegetables the water in which flax is steeped,</b> and distance mustard from bees. A Sage <b>taught</b> that <b>Rabbi Yosei permits</b> one not to do so in the case <b>of mustard because he can say to</b> the beekeeper: <b>Before you tell me: Distance your mustard from my bees,</b> I can tell you: <b>Distance your bees from my mustard, as they come and eat my mustard plants.</b> In other words, you are also causing damage to my property. Since they each cause damage to the other, neither can force his neighbor to move.
+
+### Part 11
+<strong>MISHNA:</strong> <b>One must distance a tree twenty-five cubits from a cistern, and</b> in the case <b>of a carob and of a sycamore tree,</b> whose roots extend farther, one must distance the tree <b>fifty cubits.</b> This is the <i>halakha</i> <b>whether</b> the cistern or tree <b>is</b> located <b>above or to the side</b> of the other. <b>If</b> the digging of <b>the cistern preceded</b> the tree, the owner of the tree <b>cuts down</b> the tree <b>and</b> the owner of the cistern <b>pays</b> him <b>money. And if the tree preceded</b> the cistern the owner of the tree need <b>not cut down</b> the tree. If it is <b>uncertain whether this came first or that came first,</b> the owner of the tree need <b>not cut down</b> the tree. <b>Rabbi Yosei says: Even if the cistern preceded the tree,</b> the owner of the tree need <b>not cut down</b> the tree. This is due to the fact <b>that this one digs in his own</b> property, <b>and that one plants in his own</b> property.
+
+### Part 12
+<strong>GEMARA:</strong> The Gemara discusses the mishna’s statement that a tree must be distanced if it is above a cistern. A Sage <b>taught:</b> This is the <i>halakha</i> <b>whether the cistern is below and the tree is above,</b> or <b>whether the cistern is above and the tree is below.</b> The Gemara asks: <b>Granted,</b> if the <b>cistern is below and the tree is above,</b> it will cause damage, as <b>the roots extend and damage the cistern</b> when they breach its walls. <b>But</b> if <b>the cistern is above and the tree is below, why</b> should he have to distance the tree, considering that the roots extend downward? <b>Rabbi Ḥagga says in the name of Rabbi Yosei:</b> He must distance the tree <b>because</b> its roots <b>form holes in the ground and ruin the floor of the cistern.</b>
+
+### Part 13
+<b>Rabbi Yosei says: Even if the cistern preceded the tree,</b> the owner of the tree need <b>not cut down</b> the tree. This is due to the fact <b>that this one digs in his own</b> property, <b>and that one plants in his own</b> property. <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei. Rav Ashi said: When we were</b> studying <b>in the study hall of Rav Kahana, we would say</b> that <b>Rabbi Yosei concedes with regard to one’s arrows,</b> i.e., one must distance his activities from his neighbor if his actions will cause immediate damage to his neighbor, even if he is acting on his own property.
+
+### Part 14
+The Gemara relates that a man called <b>Pappei Yona’a was poor and became wealthy.</b> He <b>built a mansion [<i>appadna</i>]</b> on his land. <b>There were these</b> sesame seed <b>pressers in his neighborhood who</b> would work, and <b>when they would press the sesame seeds</b> their activity <b>would shake his mansion. He came before Rav Ashi</b> to complain. Rav Ashi <b>said to him: When we were</b> studying <b>in the study hall of Rav Kahana, we would say</b> that <b>Rabbi Yosei concedes with regard to one’s arrows.</b> Here too, because the sesame seed pressers cause immediate damage they must distance themselves.
+
+### Part 15
+The Gemara asks: <b>And how much</b> must the mansion shake for the owner to have the right to compel the sesame seed pressers to distance themselves?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

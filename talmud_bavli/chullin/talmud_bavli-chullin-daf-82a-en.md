@@ -1,0 +1,45 @@
+
+### Part 1
+<b>And Rabbi Shimon ben Lakish says</b> in explanation of Rabbi Shimon’s statement: <b>Rabbi Shimon would say</b> that the red <b>heifer can be redeemed</b> with money even once it has been slaughtered and placed <b>upon its pyre</b> in preparation for being burned. Therefore, Rabbi Shimon states that there could be a time when the heifer was fit for consumption, i.e., if it was redeemed. Why, then, does he deem one who slaughters it exempt from liability for transgressing the prohibition of: Itself and its offspring? <b>Rav Shemen bar Abba said</b> that <b>Rabbi Yoḥanan says:</b> The statement with regard to <b>the</b> red <b>heifer of purification is not</b> considered part of the <b>mishna,</b> and Rabbi Shimon agrees that its slaughterer is liable for transgressing the prohibition of: Itself and its offspring.
+
+### Part 2
+The Gemara asks: <b>And is</b> the slaughter of the <b>heifer whose neck</b> was <b>to</b> have been <b>broken not</b> considered an act of <b>slaughter</b> that is <b>fit? But didn’t we learn</b> in a mishna (<i>Sota</i> 47a): If a heifer was set aside to have its neck broken to atone for the murder of an individual whose murderer was not known, and then <b>the murderer was found before the heifer’s neck was broken,</b> the heifer <b>shall go out and graze among the flock,</b> as it is not consecrated. Evidently, before its neck is broken, deriving benefit from it is not prohibited, and its slaughter would be one that is fit. <b>Rabbi Shimon ben Lakish said in the name of Rabbi Yannai:</b> The statement with regard to <b>the heifer whose neck</b> was <b>to</b> have been <b>broken is not</b> considered part of the <b>mishna,</b> and Rabbi Shimon agrees that its slaughterer is liable for violating the prohibition of: Itself and its offspring.
+
+### Part 3
+The Gemara asks: <b>And does Rabbi Yannai</b> actually <b>say so? But doesn’t Rabbi Yannai say: I heard</b> the <b>boundary,</b> i.e., stage, beyond which the heifer is forbidden, <b>but I have forgotten</b> what it is; <b>but the group</b> of scholars <b>were inclined to say</b> that the heifer’s <b>descent to a hard valley,</b> where its neck is broken, <b>is</b> the action that <b>renders it forbidden?</b>
+
+### Part 4
+<b>And if it is so, let him resolve</b> the contradiction by saying: <b>Here,</b> where deriving benefit from the heifer is permitted, and its slaughterer is liable for transgressing the prohibition of: Itself and its offspring, it is referring to an act of slaughtering that is fit and is performed <b>before</b> the heifer’s <b>descent,</b> while <b>there,</b> in the mishna, where Rabbi Shimon holds that there is no liability for transgressing: Itself and its offspring, it is referring to slaughtering performed <b>after</b> its <b>descent.</b> At that time, deriving benefit from the heifer is already prohibited, and the slaughter is therefore not considered fit.
+
+### Part 5
+<b>Rav Pineḥas, son of Rav Ami, said: We taught</b> the statement <b>in the name of Rabbi Shimon ben Lakish</b> himself, not as a quote from Rabbi Yannai: The statement with regard to <b>the heifer whose neck is broken is not</b> considered part of the <b>mishna. Rav Ashi said: When we were</b> studying in <b>the study hall of Rav Pappi,</b> that statement was <b>difficult for us: Did Rabbi Shimon ben Lakish</b> actually <b>say</b> that it is not considered part of the mishna?
+
+### Part 6
+<b>But it was stated</b> that <i>amora’im</i> engaged in a dispute concerning the following issue: <b>From when</b> is one <b>prohibited</b> from deriving benefit from <b>the leper’s birds? Rabbi Yoḥanan says:</b> One is prohibited <b>from the moment of</b> their <b>slaughter; and Reish Lakish says:</b> One is prohibited <b>from the moment</b> they are <b>taken</b> and designated to be a leper’s birds. <b>And we say: What is the reasoning of Rabbi Shimon ben Lakish?</b>
+
+### Part 7
+His reasoning is that he <b>derives</b> it via verbal analogy <b>from</b> the terms: <b>“Taking [<i>kiḥa</i>]”</b> (Leviticus 14:4), with regard to the birds, and: <b>“Taking [<i>kiḥa</i>]”</b> (Deuteronomy 21:3), with regard to the <b>heifer whose neck is broken.</b> Consequently, just as deriving benefit from the heifer whose neck is broken is prohibited from the time of its selection, so too must deriving benefit from these birds be prohibited from the time of their selection. Clearly, then, Rabbi Shimon ben Lakish holds that deriving benefit from the heifer whose neck is broken is prohibited while it is still alive. Therefore, its slaughter is one that does not render the animal fit for consumption. Accordingly, Rabbi Shimon would exempt its slaughterer from the prohibition of: Itself and its offspring, as is taught in the mishna.
+
+### Part 8
+<b>Rather, Rabbi Ḥiyya bar Abba said</b> that <b>Rabbi Yoḥanan said:</b> The statement with regard to the <b>heifer whose neck is broken is not</b> considered part of <b>the mishna,</b> and this resolution of the difficulty was articulated by Rabbi Yoḥanan rather than Reish Lakish.
+
+### Part 9
+<strong>MISHNA:</strong> With regard to <b>two</b> people <b>who purchased a cow and its offspring,</b> where each purchased one of the animals, <b>whoever purchased</b> his animal <b>first shall slaughter</b> it <b>first,</b> and the second one must wait until the next day to slaughter his animal, so as not to violate the prohibition of: It and its offspring. <b>But if the second</b> one <b>preceded</b> him and slaughtered his animal first, he <b>benefitted,</b> and the one who purchased the animal first may not slaughter it until the next day.
+
+### Part 10
+<strong>GEMARA:</strong> <b>Rav Yosef said: We learn</b> in the mishna that the first purchaser is granted precedence only <b>with regard to the matter of</b> a court <b>judgment,</b> in case the two purchasers go to court each demanding to slaughter his animal first. But there is no prohibition against the second one slaughtering his animal first if no claim is brought to court. Likewise, a Sage <b>taught</b> in a <i>baraita</i>: <b>If the second</b> one <b>preceded</b> him and slaughtered his animal first, <b>he is diligent and rewarded;</b> he is <b>diligent because he did not violate a prohibition, and</b> he is <b>rewarded because he eats meat</b> already that day.
+
+### Part 11
+<strong>MISHNA:</strong> If <b>one slaughtered a cow and thereafter</b> slaughtered <b>its two offspring</b> on the same day, <b>he incurs eighty</b> lashes for two separate actions violating the prohibition against slaughtering the mother and the offspring on the same day. If <b>one slaughtered its two offspring and thereafter slaughtered</b> the mother cow, <b>he incurs the forty</b> lashes, as he performed a single prohibited act. If <b>one slaughtered</b> the mother <b>and its daughter, and,</b> later that day, slaughtered <b>its daughter’s daughter, he incurs eighty</b> lashes, as he has performed the act of slaughtering a mother and its offspring twice.
+
+### Part 12
+But if <b>one slaughtered</b> the mother <b>and its daughter’s daughter and thereafter slaughtered its daughter, he incurs the forty</b> lashes, as he performed a single prohibited act. <b>Sumakhos says in the name of Rabbi Meir: He incurs eighty</b> lashes for slaughtering the daughter on the same day as its calf and its mother, as that act comprises two separate violations of the prohibition.
+
+### Part 13
+<strong>GEMARA:</strong> With regard to the statement in the mishna that if one slaughters two calves and thereafter slaughters their mother he incurs the forty lashes, the Gemara asks: <b>Why</b> does he receive lashes? After all, the phrase: <b>“It and its offspring”</b> (Leviticus 22:28), is what <b>the Merciful One states</b> in the Torah, <b>and not: Its offspring and it.</b> The Gemara answers: That thought should <b>not enter your mind, as it is taught</b> in a <i>baraita</i>: From the phrase <b>“it and its offspring” I have</b> derived <b>only</b> that the prohibition includes slaughtering the animal <b>itself</b> first <b>and its offspring</b> afterward. <b>From where</b> do I derive that the prohibition also includes the case of slaughtering the offspring <b>itself</b> first <b>and its mother</b> afterward?
+
+### Part 14
+It is derived in the following manner: <b>When</b> the verse <b>states: “You shall not slaughter [<i>tishḥatu</i>]</b> both in one day” (Leviticus 22:28), <b>this</b> is referring to <b>two</b> people who are prohibited from slaughtering on the same day, as the word “slaughter” is phrased in the plural. <b>How so?</b> If, during the course of a single day, there is <b>one</b> person <b>who slaughters the cow and</b> then <b>another who slaughters</b> that cow’s <b>mother, and</b> then there is <b>another</b> person <b>who slaughters</b> that cow’s <b>offspring, the two latter</b> people <b>are liable,</b> the first of them for slaughtering the mother after its offspring was slaughtered, and the second person for slaughtering the offspring after its mother was slaughtered.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

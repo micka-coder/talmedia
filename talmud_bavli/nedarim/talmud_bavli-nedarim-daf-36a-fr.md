@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Rav Shimi bar Abba a souleve une objection</b> a partir de la <i>Tosefta</i> (2:7) : <b>Si</b> celui qui a fait le vœu d'interdire a un autre de beneficier de lui <b>est un pretre, il peut asperger le sang de son offrande pour le peche et le sang de son offrande pour la culpabilite en</b> faveur de l'autre. Apparemment, le pretre peut accomplir tous les rites sacrificiels pour une personne interdite de beneficier de lui, meme ceux qui necessitent la connaissance de celui pour qui l'offrande expie.
+
+### Partie 2
+La Gemara repond. Il s'agit du <b>sang du sacrifice pour le peche d'un lepreux et du sang du sacrifice de culpabilite d'un lepreux.</b> Il s'agit d'offrandes apportees par un lepreux en manque d'expiation, afin de completer son processus de purification, <b>comme il est ecrit : "C'est la loi du lepreux"</b> (Levitique 14:2). Et le verset en vient a enseigner que les <i>halakhot</i> du lepreux s'appliquent aussi bien a <b>un adulte qu'a un mineur.</b> Cette offrande, elle aussi, ne necessite pas la connaissance de celui pour qui l'offrande expie.
+
+### Partie 3
+La Guemara cite une autre preuve pour resoudre le dilemme relatif a la nature de l'agence d'un pretre. <b>Nous avons appris</b> dans une mishna : Dans le cas des <b>pretres qui ont rendu</b> une offrande <b><i>piggul</i> dans le Temple,</b> c'est-a-dire qu'ils ont sacrifie une offrande avec l'intention de la consommer apres le temps prevu, si <b>ils l'ont fait</b> de maniere <b>intentionnelle,</b> c'est-a-dire en pleine conscience de la periode pendant laquelle l'offrande peut etre consommee, <b>ils sont obliges</b> de payer. La Guemara en deduit : Si <b>ils l'ont fait</b> ainsi <b>a l'insu de leur plein gre, ils sont exemptes</b> du paiement. <b>Cependant,</b> dans tous les cas, lorsque <b>ils</b> ont rendu l'offrande <b><i>piggul</i>,</b> elle a acquis le statut de <b><i>piggul</i></b> et est disqualifiee.
+
+### Partie 4
+La Guemara demande : <b>Grace, si tu dis</b> que les pretres <b>sont des agents du Ciel, c'est</b> pourquoi lorsque <b>leurs</b> actions provoquent <b><i>piggul</i></b> c'est <b><i>piggul</i>;</b> leurs actions sont independantes de celui qui apporte l'offrande. <b>Cependant, si vous dites</b> que les pretres <b>sont nos agents, pourquoi</b> lorsque <b>leurs</b> actions causent <b><i>piggul</i></b> est-ce <b><i>piggul</i> ? Que</b> celui qui apporte l'offrande <b>dit au</b> pretre : <b>Je t'ai designe un agent pour executer</b> la tache <b>correctement mais pas pour executer</b> la tache <b>imparfaitement.</b>
+
+### Partie 5
+Les Sages <b>Disent</b> en reponse : Il <b>est different en ce qui concerne le <i>piggul</i>, car</b> a son egard <b>le verset indique</b> et souligne : "Celui qui l'a offert, <b>cela ne lui sera pas impute"</b> (Levitique 7:18). Cela implique qu'elle est <i>piggul</i> <b>dans tous les cas,</b> par exemple, meme si ses actions font que l'offrande est <i>piggul</i> sans le consentement du proprietaire. Par consequent, il n'y a pas de preuve en ce qui concerne la nature de l'agence du pretre.
+
+### Partie 6
+§ En ce qui concerne <b>la</b> matiere <b>elle-meme, Rabbi Yohanan a dit : Toute personne</b> qui apporte une offrande <b>necessite une connaissance, a l'exception</b> des offrandes apportees par <b>ceux qui manquent d'expiation;</b> cela peut etre prouve par le fait <b>qu'une personne apporte</b> une offrande de purification <b>pour ses fils et filles mineurs.</b> La Guemara demande : <b>Mais, s'il en est ainsi, qu'une personne apporte une offrande de peche au</b> nom d'une <b>autre personne qui a involontairement mange</b> du <b>fat interdit</b> a son insu, <b>comme un homme apporte</b> une offrande <b>pour sa femme qui est une imbecile, conformement</b> a l'opinion de <b>Rabbi Yehuda. Pourquoi</b> alors <b>Rabbi Elazar a-t-il dit :</b> Celui qui a <b>separe une offrande de peche au nom</b> d'un <b>autre</b> qui a mange involontairement de la <b>graisse interdite n'a rien fait ?</b>
+
+### Partie 7
+La Guemara refute l'analogie entre les deux cas. <b>Quelles sont les circonstances de</b> le cas de <b>sa femme qui est une imbecile ? Si elle a mange</b> la <b>graisse interdite alors qu'elle etait imbecile, elle n'est pas soumise</b> a l'obligation d'apporter <b>une offrande,</b> car celui qui manque de competence halakhique est exempt de punition et n'a pas besoin d'expiation.
+
+### Partie 8
+<b>Et si elle a mange</b> la graisse interdite <b>alors qu'elle etait</b> halakhiquement <b>competente et</b> ensuite <b>devenue imbecile, Rabbi Yirmeya n'a-t-il pas dit</b> que <b>Rabbi Abbahou a dit</b> que <b>Rabbi Yohanan a dit : </b> Si <b>quelqu'un a mange</b> de la <b>graisse interdite</b> a son insu, <b>et a separe une offrande, et est devenu imbecile, et est redevenu competent, l'offrande est disqualifiee. Puisqu'elle etait disqualifiee</b> lorsqu'il etait dement, <b>elle sera disqualifiee</b> pour toujours. Il est donc clair que l'offrande de peche que l'on apporte pour sa femme qui est imbecile n'est pas une offrande de peche pour avoir mange de la graisse interdite, car cela necessiterait une intelligence halakhique. Il s'agit simplement de l'achevement du processus de purification, par exemple, une femme apres un accouchement, pour lequel la competence halakhique n'est pas requise. Par consequent, aucune preuve ne peut etre citee du cas de la femme d'un individu qui est un imbecile au cas d'apporter une offrande pour le peche au nom d'un autre qui a mange de la graisse.
+
+### Partie 9
+La Guemara demande : <b>Mais, s'il en est ainsi, qu'une personne apporte un agneau pascal au</b> nom d'un <b>autre</b> a son insu, <b>comme une personne apporte</b> un agneau pascal <b>pour ses fils et filles mineurs. Pourquoi</b> alors <b>Rabbi Elazar a dit :</b> Celui qui a <b>separe un agneau pascal au nom</b> d'<b>un autre n'a rien fait ?</b>
+
+### Partie 10
+<b>Rabbi Zeira a dit:</b> Le verset dit : <b>"Un agneau pour chaque maison paternelle,</b> un agneau pour la maison" (Exode 12:3). On en deduit que tous les membres d'un foyer, y compris les fils et filles mineurs, sont inscrits au groupe qui mange un agneau pascal. Cependant, il s'agit d'une coutume ; ce <b>n'est pas une loi de la Torah.</b>
+
+### Partie 11
+<b>Et d'ou</b> cette <i>halakha</i> est-elle apprise ? C'est <b>de ce que nous avons appris</b> dans une mishna (<i>Pesahim</i> 89a) : En ce qui concerne <b>celui qui dit a ses <b>fils mineurs</b> : J'egorge par la presente l'agneau pascal au nom</b> de <b>celui d'entre vous qui montera le premier a Jerusalem,</b> et il aura le privilege de manger de cet agneau, alors <b>quand le premier</b> de ses enfants <b>introduit sa tete et la plus grande partie</b> de son corps a Jerusalem, <b>il acquiert sa part et acquiert</b> des parts <b>au nom de ses freres avec lui. Et si l'on dit</b> que la <i>halakha</i> derivee de la phrase <b>"un agneau pour la maison" est par la loi de la Torah,</b> et que les mineurs sont obliges de s'inscrire pour l'agneau pascal, bien que le fils qui est arrive le premier a Jerusalem ait acquis sa portion sur la base de la stipulation de son pere, comment peut-il <b>se tenir au-dessus de la viande</b> de l'agneau pascal apres qu'il ait ete abattu <b>et l'acquerir au nom</b> de ses freres ? Apparemment, les mineurs ne sont pas tenus par la loi de la Torah de s'inscrire comme membres du groupe qui mange l'agneau pascal.
+
+### Partie 12
+La Guemara demande : <b>Mais pourquoi exigent-ils</b> <b>que leur pere leur dise :</b> Celui d'entre vous qui montera le premier a Jerusalem aura le privilege de manger de cet agneau, alors qu'aucune acquisition reelle n'a lieu ? C'est <b>afin de les motiver dans</b> l'accomplissement des <b>mitzvot. Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>Il arriva un incident</b> ou un pere dit a ses fils et a ses filles qu'ils devaient rivaliser pour voir qui atteindrait le sacrifice de l'agneau pascal en premier, <b>et les filles precederent les fils, et on trouva</b> que les filles etaient <b>motivees et que les fils</b> etaient <b>lazy [<i>shefalim</i>]. </b> Puisque le <i>baraita</i> n'a pas dit que le resultat etait que les filles ont acquis leur part, apparemment la declaration du pere etait simplement motivee.
+
+### Partie 13
+§ Nous avons appris dans la mishna que parmi les taches que l'on peut accomplir pour quelqu'un a qui un vœu interdit de beneficier de lui, il y a : <b>Et il separe son <i>teruma</i>.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

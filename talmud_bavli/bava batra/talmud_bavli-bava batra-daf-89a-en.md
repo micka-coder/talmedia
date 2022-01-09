@@ -1,0 +1,51 @@
+
+### Part 1
+<b>from</b> the letter <i>vav</i> that begins the verse: <b>“And it shall come to pass [<i>vehaya</i>], if you shall hearken diligently”</b> (Deuteronomy 28:1), <b>until: “To serve them [<i>le’ovdam</i>]”</b> (Deuteronomy 28:14), which ends with the letter <i>mem</i>. <b>And he cursed them with twenty-two</b> letters, <b>from</b> the letter <i>vav</i> that begins the verse: <b>“But it shall come to pass [<i>vehaya</i>], if you will not hearken</b> to the voice of the Lord” (Deuteronomy 28:15), <b>until: “And no man shall buy [<i>koneh</i>]”</b> (Deuteronomy 28:68). This verse ends with a letter <i>heh</i>, which comes just before <i>vav</i> in the alphabet. Starting with a <i>vav</i> and ending with a <i>heh</i> encompasses the twenty-two letters of the alphabet.
+
+### Part 2
+§ The mishna teaches that <b>in a place where they were accustomed to measure with</b> one <b>large</b> measuring vessel, one may not measure with several small measuring vessels. In a place where the custom is to level the top of the measuring vessel to remove substances heaped above its edges, one may not heap it; and where they are accustomed to heap it, one may not level it. The Gemara provides <b>a mnemonic</b> for the ensuing <i>halakhot</i>: <b>One may not balance with precision; and one may not heap</b> it; <b>with market inspectors [<i>ba’agardamin</i>]; and with a <i>litra</i>; three; and ten; fulcrum; weights; a thick leveler; you may not do; one may not do.</b>
+
+### Part 3
+<b>The Sages taught: From where</b> is it derived <b>that one may not level</b> a measuring vessel <b>in a place where they</b> are accustomed to <b>heap</b> it <b>and</b> that <b>one may not heap</b> it <b>in a place where they</b> are accustomed to <b>level</b> it? <b>The verse states: “A perfect weight”</b> (Deuteronomy 25:15), which indicates that one must use whatever is considered a perfect measuring vessel in that locale, as this ensures that there is no deception or trickery.
+
+### Part 4
+<b>And from where</b> is it derived <b>that if</b> the seller <b>said in a place where they heap: I am hereby leveling and</b> am willing in exchange <b>to reduce the price for</b> you, or said, <b>in a place where they level: I am hereby heaping and</b> am willing <b>to increase the price for</b> you, <b>that</b> the court <b>does not listen to him? The verse states: “A perfect and just weight you shall have”</b> (Deuteronomy 25:15). The addition of the term “just,” beyond the requirement that the weight be “perfect,” teaches that one must keep his weights in a just manner, i.e., that employed by the people of that locale.
+
+### Part 5
+<b>The Sages taught: From where</b> is it derived <b>that one may not</b> balance a scale so that it will <b>balance with precision [<i>me’ayyenin</i>] in a place where they</b> are accustomed to <b>let</b> the scales <b>tilt</b> a handbreadth for the benefit of the buyer, <b>and</b> that <b>one may not let</b> the scales <b>tilt</b> a handbreadth <b>in a place where they</b> are accustomed to <b>balance with precision? The verse states: “A perfect weight”</b> (Deuteronomy 25:15), which teaches that the weight must be considered perfect in that locale.
+
+### Part 6
+<b>And from where</b> is it derived <b>that if</b> a seller <b>said, in a place where</b> it is the custom to <b>let</b> the scales <b>tilt</b> a handbreadth: <b>I am hereby balancing with precision and</b> am willing <b>to reduce the price for</b> the buyer; <b>or, in a place where</b> it is the custom to <b>balance with precision: I am hereby letting</b> the scales <b>tilt</b> a handbreadth <b>and</b> am willing <b>to increase the price for</b> the buyer, <b>that</b> the court <b>does not listen to him? The verse states: “A perfect and just weight”</b> (Deuteronomy 25:15), which teaches that the just way of acting is to weigh in accordance with the practice in that locale.
+
+### Part 7
+<b>Rav Yehuda of Sura says</b> a homiletic interpretation of the phrase: “You shall not have in your house diverse measures” (Deuteronomy 25:14): <b>“You shall not have in your house”</b> means that you will become a pauper, who has nothing in his house. <b>What is the reason</b> for this? It is <b>due to</b> the fact that you used <b>diverse measures,</b> buying with a large vessel and selling with a small one.
+
+### Part 8
+The phrase: “You shall not have in your purse diverse weights” (Deuteronomy 25:13), is interpreted in a similar fashion: <b>“You shall not have in your purse,”</b> i.e., you will become a pauper, who has nothing in his purse. <b>What is the reason</b> for this? It is <b>due to</b> the fact that you used <b>diverse weights. But</b> if you possess only <b>“a perfect and just weight,”</b> then <b>“you shall have”</b> wealth. Likewise, if you possess only <b>“a perfect and just measure,”</b> then <b>“you shall have”</b> wealth.
+
+### Part 9
+§ <b>The Sages taught</b> that the phrase: <b>“You shall not have,” teaches that</b> the court <b>appoints market inspectors to</b> supervise the accuracy of <b>measures.</b> The Gemara infers: <b>But</b> the court <b>does not appoint market inspectors for</b> supervising market <b>prices.</b> The Gemara relates: <b>The house of the <i>Nasi</i> appointed market inspectors for</b> supervising <b>both measures and prices. Shmuel said to</b> his student, the Sage <b>Karna: Go out</b> and <b>teach them</b> that <b>one appoints market inspectors for</b> supervising <b>measures but one does not appoint market inspectors for prices.</b>
+
+### Part 10
+Karna <b>went out</b> and <b>taught them</b> that <b>one appoints market inspectors for</b> supervising <b>both measures and prices.</b> Shmuel, hearing what he had done, <b>said to him: What is your name?</b> He replied: <b>Karna.</b> Shmuel said: <b>Let a horn [<i>karna</i>] emerge in his eye. A horn,</b> i.e., a growth of flesh, <b>emerged in his eye.</b> The Gemara asks: <b>And</b> Karna, <b>in accordance with whose</b> opinion <b>did he hold,</b> which led him to disregard his teacher’s statement? He held <b>in accordance with that which Rami bar Ḥama says</b> that <b>Rabbi Yitzḥak says: One appoints market inspectors for</b> supervising <b>both measures and prices, due to swindlers,</b> to prevent people from using smaller measures or from selling at a steep price while falsely claiming that they are selling superior-quality merchandise.
+
+### Part 11
+The Gemara discusses several <i>halakhot</i> related to the cases of the mishna. <b>The Sages taught:</b> If the buyer <b>requested from</b> the seller <b>a <i>litra</i></b> of a specific item, <b>he weighs for him</b> using <b>a <i>litra</i></b> weight. If he asks for <b>half a <i>litra</i>, he weighs for him using a half-<i>litra</i></b> weight. If he wants <b>one-quarter</b> of <b>a <i>litra</i>, he weighs for him</b> using <b>a quarter</b>-<b><i>litra</i></b> weight. The Gemara asks: Isn’t this obvious? <b>What is</b> this <i>baraita</i> <b>teaching us?</b> The Gemara explains: It teaches <b>that one sets weights until this</b> amount, one-quarter of a <i>litra</i>, but not less. If a buyer asks the seller to weigh a smaller amount for him, his request is not granted.
+
+### Part 12
+Furthermore, <b>the Sages taught:</b> If the buyer <b>requested from him three-quarters</b> of <b>a <i>litra</i>,</b> and there is no weight equal to this amount, the buyer <b>may not say to him: Weigh for me three</b> units using <b>a quarter-<i>litra</i></b> weight, <b>one</b> by <b>one,</b> so that the seller lets the scales tilt by a handbreadth as he measures each quarter-<i>litra</i> weight. <b>Rather, he weighs</b> the merchandise all at once, as he places <b>a <i>litra</i></b> weight on one pan of the scale, and <b>places</b> on the other pan of the scale <b>a quarter-<i>litra</i> weight</b> together <b>with the meat</b> that is being sold.
+
+### Part 13
+<b>The Sages</b> likewise <b>taught:</b> In a case where the buyer <b>requested from</b> the seller <b>ten <i>litra</i></b> of merchandise, the buyer <b>may not say to him: Weigh for me</b> each <i>litra</i> <b>one</b> by <b>one, and let</b> the scales <b>tilt</b> each time, as on every occasion that the seller does this the buyer receives more than that for which he paid. <b>Rather, he weighs all</b> the merchandise <b>at the same time and lets</b> the scales <b>tilt once for all</b> the merchandise.
+
+### Part 14
+§ <b>The Sages taught: The fulcrum of a scale</b> must be <b>suspen-ded in the air</b> so that the point the lever goes through it is at a distance of <b>three handbreadths</b> from the ceiling, <b>and</b> the pans of the scale must be <b>three handbreadths above the ground. And</b> the scale’s <b>lever and cord,</b> from which each pan is suspended, must be <b>twelve handbreadths</b> long. <b>And</b> the fulcrum of a scale <b>of wool-weavers and glassmakers</b> must be <b>suspended in the air</b> at a distance of <b>two handbreadths</b> from the ceiling, <b>and</b> the pans of the scale must be <b>two handbreadths above the ground. And its lever and cord</b> must be <b>nine handbreadths</b> long.
+
+### Part 15
+<b>And</b> the fulcrum of a scale <b>of a storekeeper and of a homeowner</b> must be <b>suspended in the air</b> at a distance of <b>one handbreadth</b> from the ceiling, <b>and</b> the pans of the scale must be <b>one handbreadth above the ground. And its lever and cord</b> must be <b>six handbreadths long. And</b> the fulcrums of small <b>scales [<i>turtanei</i>]</b> used for weighing gold and silver must be <b>suspended in the air</b> at a distance of <b>three fingerbreadths</b> from the ceiling, <b>and</b> the pans of the scales must be <b>three fingerbreadths above the ground.</b> The <i>tanna</i> continues: <b>But</b> with regard to <b>its lever and cord, I do not know</b> their required length.
+
+### Part 16
+Since the function of each type of balance scale is mentioned with the exception of the first type, the Gemara asks: <b>And that</b> large balance scale, which is mentioned <b>first, for what</b> is it used?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

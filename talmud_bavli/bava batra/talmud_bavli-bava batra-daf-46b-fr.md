@@ -1,0 +1,33 @@
+
+### Partie 1
+car il <b>est enseigne</b> dans les <i>baraita</i> anterieures que le proprietaire n'a une revendication valable que lorsque lui, et des temoins, <b>ont vu</b> son manteau en possession du blanchisseur et peuvent l'identifier definitivement. Il ne peut pas declarer une revendication basee sur la simple possibilite qu'elle soit la sienne. Ceci valide la revendication des artisans de Pumbedita.
+
+### Partie 2
+<b>Rav Ashi a dit : Et si</b> le proprietaire <b>est malin, il rendra</b> la situation comme etant celle ou il a <b>vu</b> son manteau, <b>comme</b> le proprietaire peut <b>dire a</b> l'artisan : <b>Pourquoi</b> vous le <b>tenez ? N'est-ce pas du</b> au fait <b>qu'il y a</b> de l'argent de <b>vous chez moi,</b> et que vous utilisez la cape comme moyen de recouvrement de la dette que je vous dois ? <b>Maintenant, presentez</b> ma cape devant les evaluateurs <b>et ils evalueront sa</b> valeur, et alors <b>vous prendrez</b> ce qui vous revient de droit, et je prendrai</b> ce qui me revient de droit.</b> Lorsque l'artisan presentera la cape, le jugement changera, car le proprietaire aura vu la cape. <b>Rav Aha, fils de Rav Avya, dit a Rav Ashi :</b> Si l'artisan est malin, il <b>peut dire au</b> proprietaire : <b>Je n'ai pas besoin de votre evaluation,</b> car les <b>anciens qui vous ont precede l'ont deja evalue</b> et ont determine que sa valeur ne depasse pas celle de votre dette envers moi.
+
+### Partie 3
+§ La Gemara discute d'une decision qu'elle paraphrase de la mishna : <b>Un metayer n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete des biens en sa possession. <b>Pourquoi</b> pas ? Nest-ce pas parce que <b>jusquâ cette epoque,</b> alors quil travaillait definitivement comme metayer, il ne consommait que la <b>moitie</b> du produit de la terre, <b>et maintenant,</b> depuis trois ans, il a consomme <b>la totalite</b> de son produit ? Il devrait etre en mesure d'etablir la presomption de propriete en consommant plus de produits qu'un metayer. <b>Rabbi Yohanan dit :</b> La decision de la mishna est enoncee <b>en ce qui concerne les metayers familiaux.</b> Ce type de metayer, qui travaille pour une famille pendant de nombreuses annees, rassemble tous les produits dans sa propriete, et rend ensuite la part du proprietaire foncier. Par consequent, le fait qu'il rassemble tous les produits dans sa propriete n'etablit pas la presomption de propriete.
+
+### Partie 4
+<b>Rav Nahman dit : Un metayer qui a installe</b> d'autres <b>metayers a sa place a</b> la capacite d'etablir la <b>presomption</b> de propriete. <b>Quelle en est la raison ?</b> C'est <b>que</b> il n'est <b>pas courant</b> pour <b>une personne</b> de voir <b>que</b> des <b>metayers</b> inconnus ont ete <b>installes sur son terrain et</b> restent <b>silencieux.</b> Si le proprietaire anterieur n'a pas emis de protestation, cela indique que le metayer est le proprietaire du terrain.
+
+### Partie 5
+<b>Rabbi Yohanan dit : Un metayer qui a divise entre</b> differents <b>metayers n'a pas</b> la capacite d'etablir la <b>presomption</b> de propriete par cet acte. <b>Quelle en est la raison ?</b> C'est qu'on peut <b>dire</b> que le proprietaire foncier l'a <b>simplement nomme</b> comme <b>administrateur [<i>harmanya</i>],</b> et rien n'indique qu'il agit en tant que proprietaire.
+
+### Partie 6
+La Gemara relate : <b>Le Rav Nahman bar Rav Hisda a envoye</b> ce message <b>au Rav Nahman bar Yaakov : Notre maitre, instruis-nous. Un metayer peut-il temoigner</b> en ce qui concerne la propriete d'un champ dont il est metayer, <b>ou ne peut-il pas temoigner,</b> car il est biaise dans son temoignage ? <b>Rav Yosef etait assis devant</b> Rav Nahman bar Yaakov et lui <b>a dit : C'est ce que Shmuel a dit : Un metayer peut temoigner.</b> Rav Nahman bar Yaakov lui a dit : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> qu'un metayer <b>ne peut pas temoigner ?</b>
+
+### Partie 7
+Rav Yosef a repondu : Ce n'est <b>pas difficile. Cette</b> <i>baraita</i>, qui stipule qu'il ne peut pas temoigner, se refere a un cas <b>ou il y a des produits sur le terrain.</b> Par consequent, il est biaise dans son temoignage, car, si le proprietaire actuel perdra la possession du terrain, le metayer perdra son droit de consommer les produits. <b>Et cette</b> declaration de Shmuel selon laquelle il peut temoigner fait reference a un cas <b>ou il n'y a pas de produit sur la terre,</b> et il n'est pas biaise dans son temoignage.
+
+### Partie 8
+§ La Guemara presente le mot <i>Amalek</i> comme <b>un moyen mnemotechnique</b> pour les cas discutes dans la <i>baraita</i>. Il signifie : <b><i>Ayin</i>,</b> garant [<i>arev</i>] ; <b><i>mem</i>,</b> creancier [<i>malve</i>] ; <b><i>lamed</i>,</b> acheteur [<i>lokeâh</i>] ; <b><i>kuf</i>,</b> garant inconditionnel [<i>kablan</i>].
+
+### Partie 9
+<b>Les Sages ont enseigne : Un garant peut temoigner pour</b> le benefice du <b>debiteur</b> que ce dernier possede une parcelle de terrain particuliere, <b>mais cela n'est</b> la <i>halakha</i> que <b>si</b> le debiteur <b>a d'autres terrains</b> sur lesquels le creancier peut recouvrer la dette. Dans le cas contraire, il est biaise dans son temoignage, car le creancier pourrait percevoir aupres de lui si le debiteur venait a perdre la propriete de cette terre. <b>Un creancier peut temoigner pour</b> le benefice du <b>debiteur</b> que ce dernier est proprietaire d'une parcelle de terrain particuliere, <b>mais cela n'est</b> le <i>halakha</i> que <b>si</b> le debiteur <b>a d'autres terrains</b> sur lesquels le creancier peut percevoir sa dette. Sinon, il est biaise dans son temoignage, car cette terre est la seule disponible pour la collecte.
+
+#### Partie 10
+De meme, si deux personnes achetent un terrain aupres d'un vendeur, le <b>premier acheteur peut temoigner pour</b> le benefice du <b>second acheteur</b> si quelqu'un d'autre pretendait que le terrain etait le sien, <b>mais c'est</b> le <i>halakha</i> seulement <b>si</b> le second acheteur <b>a d'autres terrains</b> qu'il a achetes aupres du meme vendeur, soit concomitamment, soit posterieurement a l'achat par le premier acheteur du terrain en question. Un creancier du vendeur peut recouvrer une dette sur le terrain que le vendeur a vendu le plus recemment. Par consequent, si le deuxieme acheteur nâ achete que le terrain en question au vendeur, le premier acheteur est biaise dans son temoignage, car le fait que le deuxieme acheteur soit proprietaire du terrain empeche le creancier de recouvrer une dette sur le terrain du premier acheteur.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

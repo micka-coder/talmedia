@@ -1,0 +1,39 @@
+
+### Part 1
+<b>that any <i>se’a</i> I wish I will take. He took a large palm basket, smeared it with tar, and overturned it upon his head, and went, and said to</b> Rabbi Yehuda HaNasi: <b>Let the Master measure for me</b> the <b>forty <i>se’a</i> of wheat that I am owed by you. Rabbi</b> Yehuda HaNasi <b>laughed</b> at this and <b>said to him: Did I not warn you not to make me laugh? He said to him:</b> What <b>I am taking from you</b> is simply <b>the wheat that I am owed by you.</b>
+
+### Part 2
+The Gemara relates another story. <b>Bar Kappara said to the daughter of Rabbi</b> Yehuda HaNasi, whose husband’s name was ben Elasa: <b>Tomorrow I will drink wine at your father’s dancing and your mother’s singing [<i>kirekanei</i>]. Ben Elasa was the son-in-law of Rabbi</b> Yehuda HaNasi <b>and was a very wealthy man.</b> Rabbi Yehuda HaNasi <b>invited him to the wedding of Rabbi Shimon, son of Rabbi</b> Yehuda HaNasi.
+
+### Part 3
+<b>Bar Kappara said to Rabbi</b> Yehuda HaNasi at the wedding: <b>What</b> is the meaning of the word <b><i>to’eva</i>,</b> abomination, used by the Torah to describe homosexual intercourse (see Leviticus 18:22)? <b>Whatever</b> it was <b>that Rabbi</b> Yehuda HaNasi <b>said to</b> bar Kappara in explanation, claiming <b>that this is</b> the meaning of <b><i>to’eva</i>, bar Kappara refuted it</b> by proving otherwise. Rabbi Yehuda HaNasi <b>said to him: You explain it.</b> Bar Kappara <b>said to him: Let your wife come and pour me a goblet</b> of wine. <b>She came</b> and <b>poured him</b> wine. Bar Kappara then <b>said to Rabbi</b> Yehuda HaNasi: <b>Arise</b> and <b>dance for me, so that I will tell you</b> the meaning of the word: <b>This is what the Merciful One is saying</b> in the Torah in the word <b><i>to’eva</i>: You are straying after it [<i>to’e ata bah</i>],</b> i.e., after an atypical mate.
+
+### Part 4
+When they came <b>to</b> drink <b>another cup,</b> bar Kappara <b>said to him: What</b> is the meaning of the word <b><i>tevel</i>,</b> perversion, as in the verse: “Neither shall any woman stand before a beast, to lie down thereto; it is perversion [<i>tevel</i>]” (Leviticus 18:23)? Rabbi Yehuda HaNasi <b>said</b> various explanations <b>to him, as</b> he did <b>the previous</b> time, which were all refuted again by bar Kappara. Bar Kappara then <b>said to him: Perform for me</b> as you did before, so <b>that I will tell you.</b> Rabbi Yehuda HaNasi <b>did</b> so. Bar Kappara then <b>said to him</b> that the phrase: <b>“It is <i>tevel</i>”</b> means: Does <b>it have</b> any <b>spice [<i>tevalin yesh bah</i>]? Is this act of sexual intercourse</b> with an animal <b>different than all other acts of sexual intercourse,</b> which would cause one to engage in such a repulsive action?
+
+### Part 5
+Rabbi Yehuda HaNasi <b>said to</b> bar Kappara: <b>And what</b> is the meaning of the word <b><i>zimma</i>,</b> lewdness, as in the verse: “They are near kinswomen; it is lewdness [<i>zimma</i>]” (Leviticus 18:17), stated with regard to a man who engages in sexual intercourse with a woman and her daughter? <b>He said to him: Perform for me as</b> you did <b>the previous</b> time. Rabbi Yehuda HaNasi <b>did</b> so, <b>and</b> bar Kappara <b>said to him</b> that <i>zimma</i> means: <b>What is she [<i>zo ma hi</i>]?</b> This man would be confused about how to refer to his wives; his wife is also his other wife’s mother or daughter. <b>Ben Elasa could not tolerate</b> Rabbi Yehuda HaNasi’s humiliation, so <b>he and his wife arose and left</b> the wedding.
+
+### Part 6
+In <b>what</b> other context is <b>ben Elasa</b> mentioned? He is mentioned in a <i>baraita</i>, <b>as it is taught: Ben Elasa did not dispense his money</b> on his special haircut <b>for naught. Rather,</b> he spent it <b>to show</b> others what <b>the haircut of a High Priest</b> looked like.
+
+### Part 7
+<b>As it is written</b> with regard to the priests: <b>“They shall poll their heads”</b> (Ezekiel 44:20), and it is <b>taught</b> in a <i>baraita</i>: This haircut is <b>like a <i>luleyanit</i>.</b> The Gemara asks: <b>What is a <i>luleyanit</i>? Rav Yehuda said:</b> It is <b>a unique haircut.</b> The Gemara asks: <b>What is</b> this haircut <b>like? Rava said: The edge of this</b> hank of hair <b>is by the roots of that</b> hank of hair. The hair is cut in the form of hanks that do not overlap. <b>And this is the haircut of a High Priest,</b> for which ben Elasa paid a large sum.
+
+### Part 8
+§ It is stated in the mishna that one who said: Cooked food is <i>konam</i> for me, and for that reason I will not taste it, is <b>permitted to</b> taste a <i>turemita</i> egg <b>and the <i>remutza</i> gourd.</b> The Gemara asks: <b>What</b> is <b>the <i>remutza</i> gourd? Shmuel said:</b> A type of <b>gourd</b> that grows in <b>Karkuza [<i>kara karkuzai</i>],</b> which does not cook well. <b>Rav Ashi said: A gourd that is insulated in embers [<i>remetz</i>].</b>
+
+### Part 9
+<b>Ravina raised an objection to</b> the definition given by <b>Rav Ashi</b> from a <i>baraita</i>: The halakha is that one who plants different types of vegetables in close proximity to each other violates, by rabbinic law, the transgression of diverse kinds (see <i>Kilayim</i>). Concerning which types of gourd are considered to be different types, <b>Rabbi Neḥemya says</b> that <b>an Aramean gourd is</b> identical to <b>the Egyptian gourd,</b> and one is permitted to plant them together. However, there is a prohibition of <b>diverse kinds</b> when it is planted <b>with the Greek</b> gourd, and there is a prohibition of <b>diverse kinds</b> when it is planted <b>with the <i>remutza</i></b> gourd. This indicates that the <i>remutza</i> gourd is a type of gourd rather than a gourd prepared in a certain manner. This is <b>a conclusive refutation</b> of Rav Ashi’s opinion.
+
+### Part 10
+mishna In the case of <b>one who vows</b> that food <b>cooked in a dish</b> is forbidden to him, he is <b>prohibited from</b> eating <b>only</b> food that is <b>cooked by boiling</b> it in a dish, i.e., its main preparation is in a dish. However, if <b>one said: That which enters into a dish is <i>konam</i></b> for me, and for <b>that</b> reason <b>I</b> will not <b>taste</b> it, he is <b>prohibited</b> from tasting <b>anything cooked in a dish,</b> even if the final stage of the food’s preparation is not in a dish.
+
+### Part 11
+gemara <b>It is taught</b> in a <i>baraita</i>: <b>One who vows</b> that <b>that which enters into a dish</b> is forbidden <b>to</b> him is also <b>prohibited from</b> eating <b>that which enters a stewpot, as it has already entered into a dish before it enters into the stewpot.</b> Food would be cooked in a dish and then it would be cooked some more in a stewpot. However, if one <b>vowed that that which enters into the stewpot</b> is forbidden to him, he is <b>permitted to</b> eat from <b>that which enters into a dish,</b> i.e., food that is cooked only in a regular dish. If one <b>vows</b> that <b>that which is cooked in a dish</b> is forbidden to him, he is <b>permitted to</b> eat <b>that which is cooked in a stewpot,</b> as he referred only to foods whose main preparation is in a dish. Similarly, if one <b>vows</b> that <b>that which is cooked in a stewpot</b> is forbidden to him, he is <b>permitted to</b> eat <b>that which is cooked in a dish.</b>
+
+### Part 12
+<b>One who vows</b> that <b>that which enters into an oven</b> is forbidden <b>to</b> him is <b>prohibited only from</b> eating <b>bread,</b> as that is the main food that is baked in an oven. <b>But if</b> one <b>said: Anything made in an oven is</b> forbidden <b>to me,</b> he is <b>prohibited from</b> eating <b>anything made in an oven.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

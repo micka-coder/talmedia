@@ -1,0 +1,42 @@
+
+### Partie 1
+Si elle est la demi-sœur <b>paternelle</b> de son pere, <b>il peut la maintenir</b> comme epouse. Si elle est la demi-sœur <b>maternelle</b> de sa <b>mere, il doit divorcer</b> d'elle. Si elle est la demi-sœur <b>paternelle</b> de sa mere, <b>Rabbi Meir dit qu'il doit divorcer</b> d'elle, <b>et les rabbins disent qu'il peut la maintenir</b>. C'est <b>comme le dirait Rabbi Meir : Tout parent interdit en raison de la parente avec la mere,</b> que la femme soit son parent paternel, par exemple la demi-sœur maternelle de son pere, ou son parent maternel, <b>il doit divorcer</b> elle. Toutefois, si elle est interdite <b>du fait du pere, il peut la maintenir</b>.
+
+### Partie 2
+<b>Et il lui est permis</b> d'epouser <b>la femme de son frere maternel et la femme du frere de son pere, et tous les autres parents interdits lui sont</b> egalement <b>permis.</b> L'expression : Et tous les autres parents lui sont egalement permis, est ajoutee <b>pour inclure la femme du pere.</b>
+
+### Partie 3
+A l'egard de celui qui a <b>marie une femme et sa fille</b> et qu'elles se sont converties, <b>il peut se remarier avec l'une mais doit divorcer</b> l'autre <b>une. Il ne doit pas se marier</b> avec elle <b><i>ab initio</i>.</b> Si <b>sa femme,</b> la fille, <b>est morte, il lui est permis de</b> maintenir <b>sa belle-mere</b> comme epouse. <b>Et certains enseignent</b> qu'il lui est interdit</b> de maintenir <b>sa belle-mere.</b>
+
+### Partie 4
+<b>En tout etat de cause,</b> cette <i>baraita</i> <b>enseigne</b> qu'il lui est permis</b> d'epouser <b>la femme de son frere.</b> La Gemara demande : <b>Quoi, il ne fait pas</b> reference a un cas <b>ou son frere l'a epousee alors qu'il etait</b> deja <b>converti ?</b> La Gemara repond : <b>Non,</b> il fait reference a un cas <b>ou il l'a epousee alors qu'il etait un Gentil.</b> La Gemara demande : Si c'est le cas, <b>Quel est le but <b>de declarer</b> cette <i>halakha</i> evidente ? La Guemara repond : <b>De peur que l'on dise</b> que les Sages <b>doivent decreter</b> que le mariage est interdit si le frere l'a epousee <b>alors qu'il etait gentil, en raison</b> de l'interdiction de leur mariage si le frere l'a epousee <b>alors qu'il etait</b> deja <b>converti.</b> La <i>baraita</i> nous <b>enseigne donc</b> qu'un tel decret n'existe pas.
+
+### Partie 5
+<b>Le Maitre a dit :</b> Si quelqu'un <b>se marie avec une femme et sa fille</b> et qu'elles se sont converties, <b>il peut se remarier avec l'une mais doit divorcer</b> avec l'autre <b>. Il ne doit pas epouser</b> elle <b><i>ab initio</i>.</b> La Gemara demande : <b>Maintenant</b> qu'il <b>doit divorcer</b> d'elle, <b>est-il</b> necessaire</b> de preciser qu'il ne doit pas l'epouser <b><i>ab initio</i>?</b> La Gemara repond : Cette declaration <b>se tient la,</b> c'est-a-dire qu'elle fait reference a la phrase precedente, <b>et voici ce qu'elle dit : Ces</b> epouses <b>que les Sages ont dit</b> qu'il peut entretenir,</b> par exemple, sa demi-sœur paternelle, <b>il ne doit pas les epouser</b> <b><i>ab initio</i>.</b>
+
+### Partie 6
+Le <i>baraita</i> a enseigne : Si <b>sa femme,</b> la fille, <b>est morte, il lui est permis de</b> maintenir <b>sa belle-mere</b> comme epouse. <b>Et certains enseignent</b> qu'il est interdit de</b> maintenir <b>sa belle-mere.</b> La Gemara commente : <b>L'un</b> de ces enseignements <b>est conforme</b> a l'avis du <b>Rabbi Yishmael, et</b> l'autre <b>est conforme</b> a l'avis du <b>Rabbi Akiva.</b>
+
+### Partie 7
+<b>Celui qui interdit</b> au converti d'entretenir sa belle-mere <b>est conforme</b> a l'avis de <b>Rabbi Yishmael, qui a dit</b> que la <b>belle-mere d'un individu apres</b> le <b>deces de sa femme lui reste interdite</b> au meme degre que de son vivant. <b>Et</b> donc, <b>en ce qui concerne un converti, les Sages ont decrete</b> qu'elle lui est interdite, de peur que l'on n'epouse sa belle-mere qui est juive de naissance apres le deces de sa femme. <b>Et celui qui lui permet</b> de l'entretenir <b>est en accord avec</b> l'avis de <b>Rabbi Akiva, qui a dit</b> que <b>l'interdiction</b> d'avoir des rapports avec sa <b>belle-mere est affaiblie apres</b> le <b>deces de sa femme,</b> car ils ne sont pas susceptibles de recevoir la peine de mort. <b>Et</b> donc, <b>en ce qui concerne un converti, les Sages n'ont pas decrete</b> qu'elle lui est interdite.
+
+### Partie 8
+<strong>MISHNA :</strong> A l'egard de <b>cinq femmes dont la descendance etait mixte,</b> c'est-a-dire, leur lignee est devenue indeterminee, et elles ont eu aussi d'autres fils qui n'etaient pas mixtes, et <b>les fils mixtes</b> ont <b>muri et epouse des femmes et</b> ensuite <b>morts,</b> alors <b>quatre</b> fils qui n'etaient pas mixtes, chacun d'une mere differente, <b>doivent accomplir <i>halitza</i> avec une</b> des veuves, car elle pourrait etre la belle-sœur de l'une d'entre elles. <b>Et un</b> fils de la mere dont les fils n'ont pas accompli <i>halitza</i> <b>peut accomplir un mariage levirat avec elle</b> au lieu de <i>halitza</i> ; meme si elle n'est pas sa belle-sœur, une fois qu'elle a recu <i>halitza</i> des autres, elle peut epouser n'importe quel homme.
+
+### Partie 9
+Par la suite, <b>lui et trois</b> des quatre autres fils <b>doivent accomplir <i>halitza</i> avec une</b> des veuves restantes, <b>et</b> l'autre <b>un peut accomplir un mariage levirat.</b> Lorsque ce processus a ete acheve pour toutes les veuves, <b>quatre <i>halitzot</i> et un mariage levirat sont trouves</b> au total <b>pour chaque</b> veuve.
+
+### Partie 10
+<strong>GEMARA:</strong> La Gemara deduit de la mishna que <b><i>halitza</i> specifiquement est effectuee</b> d'abord, <b>et ensuite le mariage levirat. Cependant, le mariage levirat ne peut etre effectue en premier, car</b> cela <b>serait une violation</b> de l'interdiction faite a <b>un <i>yevama</i></b> d'avoir des rapports <b>avec</b> un membre du <b>public,</b> si elle n'est pas sa belle-sœur.
+
+### Partie 11
+La Gemara demande : <b>Quelle est</b> la raison de la decision de la mishna selon laquelle le fils qui a fait un levirat <b>et trois</b> des quatre autres <b>doit faire <i>halitza</i> avec une</b> des veuves restantes, et le fils restant peut faire un levirat ? Pourquoi le meme fils qui a celebre le levirat avec la premiere veuve ne peut-il pas aussi celebrer le levirat avec les autres veuves, apres que les quatre autres fils aient celebre <i>halitza</i> ? La Gemara repond : <b>Ne dites pas</b> que <b>un</b> des freres <b>peut accomplir un mariage levirat avec toutes. Au contraire, chacun d'entre eux devrait faire un levirat avec un seul,</b> car <b>peut-etre que l'un d'entre eux tombera sur sa propre</b> belle-sœur, alors que si l'un d'entre eux fait un levirat avec tous, les autres n'auront pas l'occasion d'accomplir la mitsva.
+
+### Partie 12
+§ La suite d'un cas dans la mishna est enoncee dans une <i>baraita</i> : Si <b>certains d'entre eux sont freres, et que certains ne sont pas freres, les freres accomplissent <i>halitza</i> et ceux qui ne sont pas freres accomplissent le mariage levirat.</b> La Gemara demande : <b>Qu'est-ce que</b> le <i>baraita</i> <b>dit ? Rav Safra repond</b> que <b>c'est ce qu'il dit : </b> Si <b>certains des</b> fils qui n'etaient pas mixtes <b>sont</b> uniquement des <b>freres paternels</b> des fils mixtes, <b>et certains d'entre eux,</b> en plus d'etre des demi-freres paternels, <b>sont</b> egalement des <b>demi-freres maternels</b> d'autres membres du groupe mixte, alors les <b>demi-freres maternels</b> doivent accomplir la <i>halitza</i></b> avec toutes les femmes, car chacune d'elles pourrait etre sa belle-sœur maternelle, qui lui est interdite, le levirat ne s'appliquant qu'a une belle-sœur paternelle. <b>Et</b> ceux qui ne sont que des <b>freres paternels accomplissent le mariage levirat.</b>
+
+### Partie 13
+Le <i>baraita</i> poursuit : Si <b>certains d'entre eux sont pretres et d'autres ne le sont pas,</b> les <b>pretres accomplissent <i>halitza</i>,</b> et <b>ceux qui ne sont pas pretres accomplissent le mariage levirat,</b> car il est interdit a un pretre d'epouser une femme qui a subi <i>halitza</i>. Si <b>certains d'entre eux sont des pretres et d'autres sont des demi <b>freres maternels</b>, a la fois <b>ceux-ci et ceux-la accomplissent <i>halitza</i> et non le mariage levirat.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

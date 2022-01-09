@@ -1,0 +1,69 @@
+
+### Part 1
+<b>the colleague of</b> the prophet <b>Micah,</b> son of Imla (see II Chronicles 18:7–8), <b>as it is written: “And a certain man of the sons of the prophets said unto his colleague by the word of the Lord: Strike me, please. And the man refused to strike him”</b> (I Kings 20:35). <b>And it is written: “Then he said he to him: Because you have not listened</b> to the voice of the Lord, behold, as soon as you leave me, a lion shall slay you. And as soon as he left from him, a lion found him; and slew him” (I Kings 20:36).
+
+### Part 2
+The mishna lists among those liable to receive death at the hand of Heaven: <b>And a prophet who violated his own statement.</b> The Gemara comments: <b>For example, Iddo the prophet,</b> who, according to tradition, prophesied the punishment of Jeroboam in Bethel, <b>as it is written:</b> “I will neither eat bread nor drink water in this place, <b>for it so was commanded me</b> by the word of the Lord” (I Kings 13:8–9). <b>And it is written: “And he said to him: I too am a prophet like you;</b> and an angel spoke unto me by the word of the Lord, saying: Bring him back with you into your house, that he may eat bread and drink water” (I Kings 13:18). <b>And it is written: “And he went back with him,</b> and ate bread in his house, and drank water” (I Kings 13:19). <b>And it is written</b> that he died at the hand of Heaven: <b>“And he went, and a lion met him</b> by the way, and killed him” (I Kings 13:24).
+
+### Part 3
+§ <b>A <i>tanna</i> taught</b> a <i>baraita</i> <b>before Rav Ḥisda: One who suppresses his prophecy is flogged.</b> Rav Ḥisda <b>said</b> a parable <b>to him: Is one who eats dates in a sieve flogged?</b> How can he be flogged? <b>Who forewarns him</b> if he eats dates infested with worms that no one sees? Likewise, as no one knows whether the prophet received a prophecy, how can he be forewarned? <b>Abaye said: His fellow prophets</b> forewarn him.
+
+### Part 4
+The Gemara asks: <b>From where do they know</b> that he received a prophecy? <b>Abaye says:</b> They know, <b>as it is written: “For the Lord God will do nothing, unless He reveals His counsel</b> to His servants the prophets” (Amos 3:7). The Gemara challenges: <b>And perhaps</b> the heavenly court <b>reconsidered with regard to</b> the prophecy, and the prophet is no longer commanded to disseminate the prophecy. The Gemara answers: <b>If it is so that they reconsidered with regard to</b> the prophecy, the heavenly court <b>would have informed all the prophets.</b>
+
+### Part 5
+The Gemara challenges: <b>But</b> in the case of <b>Jonah, they reconsidered it and did not inform them</b> that the people of Nineveh had repented for their sins and were therefore spared the foretold destruction. The Gemara explains: In the case of <b>Jonah, from the outset,</b> the heavenly court <b>told him</b> to say: <b>“Nineveh will be overturned”</b> (Jonah 3:4). Still, <b>he did not know if</b> the sentence would be <b>for the good,</b> as their corruption would be overturned through repentance, <b>or</b> if it would be <b>for the bad,</b> as the city would be overturned through destruction. Therefore, the prophecy was never revoked, but simply fulfilled in accordance with one of its possible interpretations.
+
+### Part 6
+The Gemara asks: In the case of <b>one who forgoes the statement of a prophet, from where does he know</b> that the one prophesying is actually a prophet and <b>that he</b> will be <b>punished</b> for failing to comply with the prophecy? The Gemara answers: It is referring to a case <b>where</b> the prophet <b>provides him</b> with <b>a sign</b> indicating that he is a prophet. The Gemara asks: <b>But</b> in the case of <b>Micah, who did not provide him</b> with <b>a sign, and</b> yet he was <b>punished,</b> how could he have known that Micah was a prophet? A case <b>where</b> he has already <b>assumed</b> the <b>presumptive status</b> of a prophet <b>is different,</b> and no sign is necessary.
+
+### Part 7
+The Gemara continues: <b>Since if you do not say so,</b> and claim that even the prophecy of one established as a prophet requires a sign, then in the case of <b>Abraham at Mount Moriah, how did Isaac listen to him</b> and submit to being slaughtered as an offering? Likewise, in the case of <b>Elijah at Mount Carmel, how did</b> the people <b>rely upon him and</b> enable him to <b>engage</b> in the sacrifice of animals <b>slaughtered outside</b> the Temple, which is prohibited? <b>Rather,</b> perforce, a case <b>where</b> he has already <b>assumed</b> the <b>presumptive status</b> of a prophet <b>is different.</b>
+
+### Part 8
+§ Apropos the binding of Isaac, the Gemara elaborates: It is written: <b>“And it came to pass after these matters [<i>hadevarim</i>] that God tried Abraham”</b> (Genesis 22:1). The Gemara asks: <b>After what</b> matters? How does the binding of Isaac relate to the preceding events?
+
+### Part 9
+<b>Rabbi Yoḥanan said in the name of Rabbi Yosei ben Zimra:</b> This means <b>after the statement [<i>devarav</i>] of Satan, as it is written: “And the child grew, and was weaned,</b> and Abraham prepared a great feast on the day that Isaac was weaned” (Genesis 21:8). <b>Satan said before the Holy One, Blessed be He: Master of the Universe, this old man, you favored him with a product of the womb,</b> i.e., a child, <b>at one hundred years</b> of age. <b>From the entire feast that he prepared, did he not have</b> even <b>one dove or one pigeon to sacrifice before You</b> as a thanks-offering? God <b>said to</b> Satan: <b>Did</b> Abraham <b>prepare</b> the feast for any reason <b>but for his son? If I say to him: Sacrifice your son before Me,</b> he would <b>immediately slaughter him. Immediately,</b> after these matters, the verse states: <b>“And God tried Abraham.”</b>
+
+### Part 10
+The Torah continues: <b>“And He said: Take, please [<i>na</i>], your son”</b> (Genesis 22:2). <b>Rabbi Shimon bar Abba says:</b> The word <b><i>na</i> is nothing other than an expression of entreaty.</b> Why did God request rather than command that Abraham take his son? The Gemara cites <b>a parable of a flesh-and-blood king who confronted many wars. And he had one warrior</b> fighting for him, <b>and he overcame</b> his enemies. <b>Over time,</b> there was <b>a fierce war confronting him.</b> The king <b>said to</b> his warrior: <b>I entreat you, stand</b> firm <b>for me in this war,</b> so <b>that</b> others <b>will not say: There is no substance in the first</b> victories, and you are not a true warrior. Likewise, <b>the Holy One, Blessed be He, also said to Abraham: I have tried you with several ordeals, and you have withstood them all. Now, stand</b> firm <b>in this ordeal for Me, so that</b> others <b>will not say: There is no substance in the first</b> ordeals.
+
+### Part 11
+God said to Abraham: “Please take your son, your only, whom you love, Isaac” (Genesis 22:2). When God said: <b>“Your son,”</b> Abraham said: <b>I have two sons.</b> When God said: <b>“Your only,”</b> Abraham said: <b>This</b> son <b>is an only</b> son <b>to his mother, and that</b> son <b>is an only</b> son <b>to his mother.</b> When God said: <b>“Whom you love,”</b> Abraham said: <b>I love both of them.</b> Then God said: <b>“Isaac.” And why</b> did God prolong His command to <b>that extent?</b> Why did He not say Isaac’s name from the outset? God did so, <b>so that</b> Abraham’s <b>mind would not be confused</b> by the trauma.
+
+### Part 12
+<b>Satan preceded</b> Abraham <b>to the path</b> that he took to bind his son and <b>said to him: “If one ventures a word to you, will you be weary…you have instructed many, and you have strengthened the weak hands. Your words have upheld him that was falling…but now it comes upon you, and you are weary”</b> (Job 4:2–5). Do you now regret what you are doing? Abraham <b>said to him</b> in response: “And <b>I will walk with my integrity”</b> (Psalms 26:11).
+
+### Part 13
+Satan <b>said to</b> Abraham: <b>“Is not your fear of God your foolishness?”</b> (Job 4:6). In other words, your fear will culminate in the slaughter of your son. Abraham <b>said to him: “Remember, please, whoever perished, being innocent”</b> (Job 4:7). God is righteous and His pronouncements are just. <b>Once</b> Satan <b>saw that</b> Abraham <b>was not heeding him, he said to him: “Now a word was secretly brought to me,</b> and my ear received a whisper thereof” (Job 4:12). <b>This</b> is what <b>I heard from behind the</b> heavenly <b>curtain [<i>pargod</i>],</b> which demarcates between God and the ministering angels: <b>The sheep is to</b> be sacrificed as <b>a burnt-offering, and Isaac is not to</b> be sacrificed as <b>a burnt-offering.</b> Abraham <b>said to him:</b> Perhaps that is so. However, <b>this is the punishment of the liar, that even</b> if <b>he speaks the truth,</b> others <b>do not listen to him.</b> Therefore, I do not believe you and will fulfill that which I was commanded to perform.
+
+### Part 14
+The Gemara cites an alternative explanation of the verse: “And it came to pass after these matters that God tried Abraham” (Genesis 22:1). <b>Rabbi Levi says:</b> This means <b>after the statement of Ishmael to Isaac,</b> during an exchange between them described in the verse: “And Sarah saw the son of Hagar…mocking” (Genesis 21:9). <b>Ishmael said to Isaac: I am greater than you in</b> the fulfillment of <b>mitzvot, as you were circumcised</b> at the <b>age of eight days,</b> without your knowledge and without your consent, <b>and I</b> was circumcised at the <b>age of thirteen years,</b> with both my knowledge and my consent. Isaac <b>said to</b> Ishmael: <b>And do you provoke me with one organ? If the Holy One, Blessed be He,</b> were to <b>say to me: Sacrifice yourself before Me, I</b> would <b>sacrifice</b> myself. <b>Immediately, God tried Abraham,</b> to confirm that Isaac was sincere in his offer to give his life.
+
+### Part 15
+§ <b>The Sages taught: A prophet who incites</b> others to worship idols is executed <b>by stoning. Rabbi Shimon says:</b> He is executed <b>by strangulation.</b> Those <b>who incite</b> residents of a city to worship idols, leading the city to be declared <b>an idolatrous city,</b> are executed <b>by stoning. Rabbi Shimon says:</b> They are executed <b>by strangulation.</b>
+
+### Part 16
+The Gemara elaborates: <b>A prophet who incites</b> others to worship idols is executed <b>by stoning. What is the reason</b> for the opinion <b>of the Rabbis?</b> They <b>derive</b> a verbal analogy to clarify the meaning of the word <b>incitement</b> written with regard to a prophet who incites others to worship idols <b>from</b> the word <b>incitement</b> written with regard to a layman who <b>instigates</b> others to worship idols. <b>Just as there,</b> the layman who incites others to worship idols is executed <b>by stoning, so too here,</b> the prophet who incites others to worship idols is executed <b>by stoning.</b>
+
+### Part 17
+<b>And Rabbi Shimon</b> says: With regard to a prophet, the term <b>death is written concerning him. And every death stated in the Torah without specification</b> is referring to <b>nothing other than strangulation.</b>
+
+### Part 18
+The Gemara continues: Those <b>who incite</b> residents of a city to worship idols, leading the city to be declared <b>an idolatrous city,</b> are executed <b>by stoning. What is the reason</b> for the opinion <b>of the Rabbis? They derive</b> a verbal analogy to clarify the meaning of the word <b>incitement</b> written with regard to those who incite residents of a city to worship idols, leading the city to be declared an idolatrous city, <b>from</b> the word <b>incitement</b> written <b>either</b> with regard to a layman who <b>instigates</b> others to worship idols <b>or from</b> the word incitement written with regard to <b>a prophet who incites</b> others to worship idols. Just as there, the layman who incites others to worship idols is executed by stoning, so too here, the prophet who incites others to worship idols is executed by stoning.
+
+### Part 19
+<b>And Rabbi Shimon derives</b> a verbal analogy to clarify the meaning of the word <b>incitement</b> written with regard to those who incite residents of a city to worship idols, leading the city to be declared an idolatrous city, <b>from</b> the word <b>incitement</b> written with regard to <b>a prophet</b> who incites others to worship idols, who, in his opinion, is executed by strangulation.
+
+### Part 20
+The Gemara challenges: <b>Let him derive</b> the punishment <b>from</b> the punishment of one who is not a prophet who <b>instigates</b> others to worship idols, as those cases are similar. The Gemara answers: Rabbi Shimon <b>derives</b> the punishment for one who <b>instigates the multitudes from</b> the punishment of one who <b>instigates the multitudes, and does not derive</b> the punishment for one who <b>instigates the multitudes from</b> the punishment of one who <b>instigates an individual.</b> The Gemara asks: <b>On the contrary, one derives</b> the punishment for <b>an ordinary</b> person, i.e., one who is not a prophet, who instigates others <b>from</b> the punishment of <b>an ordinary</b> person who incites an idolatrous city, <b>and one does not derive</b> the punishment for <b>an ordinary</b> person who instigates others <b>from</b> the punishment of <b>a prophet</b> who instigates others.
+
+### Part 21
+<b>And Rabbi Shimon</b> holds that in this case there is no distinction between prophet and layman; <b>once</b> the prophet has <b>incited</b> others to idol worship, <b>you have no greater</b> example of <b>an ordinary</b> person <b>than that.</b>
+
+### Part 22
+<b>Rav Ḥisda says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

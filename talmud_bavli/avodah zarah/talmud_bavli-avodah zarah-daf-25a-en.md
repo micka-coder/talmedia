@@ -1,0 +1,57 @@
+
+### Part 1
+§ The Gemara cites a series of expositions with regard to what is called the book of Yashar. The verse states: <b>“And the sun stood still, and the moon stayed, until the nation had avenged themselves of their enemies. Is this not written in the book of Yashar”?</b> (Joshua 10:13). The Gemara asks: <b>What</b> is <b>the book of Yashar? Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says: This</b> is Genesis, which is <b>the book of Abraham, Isaac, and Jacob, who were called righteous [<i>yesharim</i>], as it is stated: “Let me die the death of the righteous [<i>yesharim</i>]”</b> (Numbers 23:10).
+
+### Part 2
+The Gemara asks: <b>And where is it alluded</b> to in Genesis that the sun would stand still for Joshua? The verse states in reference to Ephraim, who was Joshua’s ancestor: <b>“And his seed shall become a multitude of nations”</b> (Genesis 48:19). The Gemara asks: <b>When will he become a multitude of nations?</b> He became a multitude of nations <b>at the time when the sun stood</b> in place <b>for Joshua,</b> as it is written: <b>“And the sun stayed in the midst of heaven, and hastened not to go down for an entire day”</b> (Joshua 10:13).
+
+### Part 3
+The Gemara inquires: <b>And how much</b> time elapsed before the sun finally set? <b>Rabbi Yehoshua ben Levi said</b> that it took <b>twenty-four hours: It traveled</b> across the sky for <b>six</b> hours <b>and stood</b> still for <b>six</b> hours, and again <b>traveled six</b> hours <b>and stood</b> still for <b>six</b> hours, so that <b>the entire matter</b> lasted the duration <b>of an entire day.</b>
+
+### Part 4
+<b>Rabbi Elazar said</b> that it lasted <b>thirty-six</b> hours: The sun <b>traveled</b> for <b>six</b> hours <b>and stood</b> for <b>twelve</b> hours, and again <b>traveled six</b> hours <b>and stood</b> for <b>twelve</b> hours, so that the accumulated time of <b>its suspension</b> was that <b>of an entire day. Rabbi Shmuel bar Naḥmani said: Forty-eight</b> hours elapsed before it set. <b>It traveled six</b> hours <b>and stood</b> for <b>twelve</b> hours, and then <b>traveled six</b> hours <b>and stood</b> for <b>twenty-four</b> hours, <b>as it is stated:</b> “And the sun stayed in the midst of heaven,” and then: <b>“And hastened not to go down for an entire day.” By inference,</b> it can be understood <b>that initially it was not</b> suspended <b>for an entire day.</b> Rather, at first it stood still for twelve hours, and was later suspended for an entire day.
+
+### Part 5
+<b>There are</b> those <b>who say</b> that these Sages do not disagree over how much time had elapsed before the sun set. Rather, <b>they disagree with regard to the additional</b> time by which the day was extended. <b>Rabbi Yehoshua ben Levi said: Twenty-four</b> hours were added to that day, because the sun <b>traveled six</b> hours <b>and stood twelve</b> hours, and again <b>traveled six</b> hours <b>and stood</b> for another <b>twelve</b> hours, which meant that <b>its standing</b> time lasted <b>for an entire day. Rabbi Elazar said</b> that <b>thirty-six</b> hours were added: <b>It traveled six</b> hours <b>and stood</b> for <b>twelve</b> hours, and then <b>traveled six</b> hours <b>and stood</b> for <b>twenty-four</b> more hours. It is with regard to the second suspension that the verse states: <b>“And hastened not to go down for an entire day.”</b>
+
+### Part 6
+<b>Rabbi Shmuel bar Naḥmani said:</b> The time the sun stood in place was <b>forty-eight</b> hours in total. The sun <b>traveled six</b> hours <b>and stood twenty-four</b> hours, and then <b>traveled</b> another <b>six</b> hours <b>and stood</b> for another <b>twenty-four</b> hours. His reasoning is that the verse <b>juxtaposes</b> the sun’s <b>suspension to its motion: Just as</b> the sun is in <b>motion for an entire day, so too, its suspension</b> was <b>for an entire day.</b>
+
+### Part 7
+<b>It is taught: Just as the sun stood</b> still <b>for Joshua, so</b> too <b>the sun stood</b> still <b>for Moses and for Nakdimon ben Guryon.</b> It is known that it stood still for <b>Joshua</b> from <b>a verse,</b> and it is known that it stood still for <b>Nakdimon ben Guryon</b> by <b>tradition. From where do we</b> derive that it stood still <b>for Moses</b> as well? The Gemara answers: It is <b>derived</b> by means of a verbal analogy between the terms <b>“I will begin”</b> and <b>“I will begin.”</b> The Gemara elaborates: <b>It is written here,</b> with regard to Moses: <b>“I will begin to deliver the dread of you</b> and the fear of you upon the peoples” (Deuteronomy 2:25), <b>and it is written there, with regard to Joshua: “I will begin to magnify you”</b> (Joshua 3:7).
+
+### Part 8
+<b>And Rabbi Yoḥanan says:</b> It is <b>derived</b> from a verbal analogy between the words <b>“delivered”</b> and <b>“delivered.” It is written here,</b> with regard to Moses: <b>“I will begin to deliver the dread of you,” and it is written</b> there, <b>with regard to Joshua: “In the day when the Lord delivered up the Amorites</b> before the children of Israel” (Joshua 10:12).
+
+### Part 9
+<b>Rabbi Shmuel bar Naḥmani said</b> that there is no need for a verbal analogy, as <b>you</b> can <b>learn</b> this idea <b>from the verse itself:</b> “This day will I begin to deliver the dread of you and the fear of you upon the peoples that are under the whole heaven, who, <b>when they hear the report of you, shall tremble and be in anguish because of you”</b> (Deuteronomy 2:25). <b>When</b> was the fulfillment of the prophecy that all the nations <b>“shall tremble and be in anguish because of you”?</b> It was <b>at the time when the sun stood</b> still <b>for Moses.</b>
+
+### Part 10
+The Gemara <b>raises an objection:</b> After the sun stood still, the verse states: <b>“And there was no day like that before it or after it”</b> (Joshua 10:14). If there was no day comparable to it, how can it be asserted that the sun stood still for Moses as well? The Gemara answers: <b>If you wish, say</b> that the number of <b>hours</b> the sun stood still for Moses <b>were not as many</b> as in the case of Joshua. <b>And if you wish, say</b> instead: When the sun stood still for Moses <b>there were no hailstones,</b> whereas in the case of Joshua there were hailstones, <b>as it is written: “And it came to pass, as they fled from before the children of Israel, while they were in the descent of Beth Horon, that the Lord cast down great stones from heaven upon them into Azeka and they died”</b> (Joshua 10:11).
+
+### Part 11
+The Gemara cites another exposition with regard to the book of Yashar. <b>It is written: “And said: To teach the sons of Judah the bow. Behold, it is written in the book of Yashar”</b> (II Samuel 1:18). The Gemara again asks: <b>What is the book of Yashar? Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says: This is the book of Abraham, Isaac, and Jacob, who were called righteous [<i>yesharim</i>], as it is written with regard to them: “Let me die the death of the righteous [<i>yesharim</i>] and let my end be like his”</b> (Numbers 23:10).
+
+### Part 12
+The Gemara further analyzes the verse in Samuel: <b>And where is it alluded</b> to in Genesis that Judah must be taught to use the bow? The verse states: <b>“Judah, your brothers shall praise you; your hand shall be on the nape of your enemies”</b> (Genesis 49:8). The Gemara explains: <b>What is</b> the form of <b>warfare that requires</b> one’s <b>hand</b> to be held <b>opposite</b> the <b>nape? You must say</b> that <b>this is</b> referring to the use of <b>a bow.</b> This is the referent of the verse in Samuel.
+
+### Part 13
+The Gemara cites a different interpretation: <b>Rabbi Elazar says</b> that the book of Yashar <b>is the book of Deuteronomy. And why did they call it the book of Yashar? As it is written: “And you shall do that which is right [<i>yashar</i>] and good in the sight of the Lord”</b> (Deuteronomy 6:18). <b>And where is it alluded</b> to in Deuteronomy that Judah must be taught to use the bow? The verse states: “And this for Judah, and he said: Hear, Lord, the voice of Judah, and bring him in unto his people; <b>his hands shall contend for him”</b> (Deuteronomy 33:7). <b>What is</b> the form of <b>warfare that requires</b> the use of <b>two hands? You must say</b> that <b>this is</b> referring to the use of <b>a bow.</b> This is the referent of the verse in Samuel.
+
+### Part 14
+The Gemara provides yet another explanation: <b>Rabbi Shmuel bar Naḥmani says</b> that the book of Yashar <b>is the book of Judges. And why did they call it the book of Yashar? As it is written: “In those days there was no king in Israel; every man did that which was right [<i>yashar</i>] in his own eyes”</b> (Judges 17:6). <b>And where is it alluded</b> to in Judges that Judah must be taught to use the bow? The verse states: <b>“Only that the generations of the children of Israel might know, to teach them war”</b> (Judges 3:2). <b>What is</b> the form of <b>warfare that requires teaching? You must say</b> that <b>this is</b> referring to the use of <b>a bow.</b> This is the referent of the verse in Samuel.
+
+### Part 15
+The Gemara asks: <b>And from where do we</b> derive <b>that</b> Judges 3:2 is <b>written in reference to Judah?</b> We derive it <b>as it is written:</b> “The children of Israel asked the Lord, saying: <b>Who shall go up for us first against the Canaanites, to fight against them? And Lord said: Judah shall go up”</b> (Judges 1:1–2).
+
+### Part 16
+§ The Gemara cites another dispute between the same <i>amora’im</i>. The verse states: <b>“And the cook took up the thigh, and that which was upon it [<i>vehe’aleha</i>], and set it before Saul”</b> (I Samuel 9:24). To <b>what</b> does the term <b>“and that which was upon it”</b> refer? <b>Rabbi Yoḥanan says:</b> It refers to <b>the thigh and the tail.</b> The Gemara asks: <b>What</b> is the reason that the tail is referred to as: <b>“And that which was upon it”?</b> The reason is <b>that the thigh supports the tail,</b> as it rests upon it.
+
+### Part 17
+<b>And Rabbi Elazar says:</b> The verse refers to <b>the thigh and the breast. What</b> is the reason that the breast is referred to as: <b>“And that which was upon it”?</b> The reason is <b>that one places the breast upon the thigh when it requires</b> sacrificial <b>waving, and waves it. And Rabbi Shmuel bar Naḥmani says:</b> The verse refers to <b>the thigh and the cap [<i>shofi</i>],</b> i.e., the very top part of the leg. <b>What</b> is the reason that the cap is referred to as: <b>“And that which was upon it”?</b> It is because it is referring to the <b>cap</b> that <b>stands above the thigh.</b>
+
+### Part 18
+§ The mishna teaches that <b>a woman may not seclude herself with</b> gentiles. The Gemara asks: <b>What are we dealing with? If we say</b> that we are dealing with a woman who secludes herself <b>with one</b> gentile, <b>is</b> this <b>permitted in the corresponding</b> situation <b>involving a Jew? But didn’t we learn</b> in a mishna (<i>Kiddushin</i> 80b): <b>One man may not seclude himself</b> even <b>with two women?</b> It is certainly forbidden for one man to be secluded with one woman.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

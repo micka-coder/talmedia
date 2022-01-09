@@ -1,0 +1,9 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>Un dilemme a ete souleve devant</b> les Sages a propos de la <i>halakha</i> transmise a Moise depuis le Sinai mentionnee dans la mishna : La <i>halakha</i> qu'un nazirite doit raser pour <b>un os qui est un grain d'orge</b>-<b>bulk est-elle une <i>halakha</i></b> transmise a Moise depuis le Sinai, <b>et</b> c'est le statut d'un <b>quart-</b><i>log</i> <b>de sang</b> que Rabbi Akiva a cherche a deduire comme <b>une <i>a fortiori</i></b> deduction, <b>et</b> par rapport a cette pretention, ils ont dit : <b>On ne deduit pas une <i>a fortiori</i></b> inference <b>a partir d'un <i>halakha</i></b> transmis a Moise depuis le Sinai ?
+
+### Partie 2
+<b>Ou peut-etre</b> la decision selon laquelle <b>un quart-</b><i>log</i> <b>de sang</b> imprime une impurete rituelle dans une tente est le <b><i>halakha</i></b> transmis a Moise depuis le Sinai, <b>Et</b> Rabbi Akiva a cherche a utiliser le cas d'un <b>os qui est un grain d'orge</b>-<b>bulk</b> comme source d'une <b>a fortiori</b> deduction qu'un nazirite doit se raser pour un quart de</b>log</i> egalement, ce a quoi les Sages ont repondu que <b>on ne tire pas une <i>a fortiori</i></b> deduction <b>d'un <i>halakha</i></b> transmis a Moise depuis le Sinai. La Guemara repond : <b>Venez</b> et <b>entendez</b> l'affirmation sans equivoque d'un <i>baraita</i> : <b>Un os qui est un grain d'orge</b>-<b>bulk</b> est <b>un <i>halakha</i>, et un quart-</b><i>log</i> <b>de sang</b> est <b>une <i>a fortiori</i></b> deduction, <b>et on ne tire pas une <i>a fortiori</i></b> deduction <b>d'un <i>halakha</i>.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

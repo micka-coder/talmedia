@@ -1,0 +1,54 @@
+
+### Part 1
+<b>Rabbi Yoshiya of his generation,</b> i.e., not the <i>tanna</i> of the same name: <b>Do not sit on your knees until you have explained to me</b> the source <b>for that</b> latter clause in <b>the mishna: From where</b> is it derived <b>that the <i>omer</i></b> offering <b>permits</b> the consumption of the new crop <b>upon</b> its <b>taking root</b> in the ground?
+
+### Part 2
+Rabbi Yoshiya responded: <b>From where do we</b> derive, you ask? The source is <b>that it is written:</b> “And if you bring a meal offering of first fruits to the Lord, you shall bring for the meal offering of your first fruits <b>grain in the ear</b> parched with fire, even groats of the fresh ear” (Leviticus 2:14). Can one <b>not</b> learn from here <b>by inference</b> that although the <i>omer</i> offering must be from fully formed grain, <b>there is</b> less-developed grain at an earlier stage <b>that is not “grain in the ear,”</b> i.e., grain that may not be used for the <i>omer</i> offering but is nevertheless permitted by the <i>omer</i>?
+
+### Part 3
+The Gemara rejects this claim. Perhaps one can infer from here only that there is less-developed grain <b>that is not “grain in the ear” but</b> is at a further stage than simply taking root. Rather, it <b>actually grew one-third</b> of its full growth. If so, merely taking root is not enough for the <i>omer</i> offering to permit the consumption of that grain.
+
+### Part 4
+<b>Rather, Shmuel said</b> that this <i>halakha</i> is derived from a verse discussing the counting of the <i>omer</i>: “Seven weeks you shall number for you; <b>from the time the sickle is first put</b> to the standing grain you shall begin to number seven weeks” (Deuteronomy 16:9). Can one <b>not</b> learn from here <b>by inference</b> that there is grain at an earlier stage <b>that cannot</b> be cut with <b>a sickle,</b> which nevertheless is permitted by the <i>omer</i> offering? This description applies to grain that has taken root. The Gemara rejects this claim as well: Perhaps the inference is to grain at an earlier stage <b>that cannot</b> be cut with <b>a sickle but</b> is <b>actually fodder,</b> i.e., produce that has grown stalks but is not yet ripe.
+
+### Part 5
+<b>Rabbi Yitzḥak said:</b> One can derive that grain that has taken root is permitted by the <i>omer</i> offering from the term: <b>“The standing grain”</b> (Deuteronomy 16:9). Can one <b>not</b> learn from here <b>by inference that</b> there is grain that is too soft <b>and unable to stand,</b> which may not be used for the <i>omer</i> offering and yet is permitted by the <i>omer</i>? The Gemara rejects this claim as well: Perhaps the inference is to grain <b>that is unable to stand</b> but is <b>actually</b> soft grain like that of <b>a marsh;</b> it has grown somewhat but is still soft enough that it bends rather than stands.
+
+### Part 6
+<b>Rather, Rava said</b> that the source of the <i>halakha</i> is the verse: “And the feast of harvest, the first fruits of your labors, <b>which you sow</b> in the field” (Exodus 23:16). This verse is referring to grain <b>from the time of sowing,</b> i.e., from when the grain takes root. <b>Rav Pappa said to Rava: If so,</b> then <b>even though</b> the grain <b>had not taken root</b> it should be permitted by the <i>omer</i> offering. The verse mentions grain at the time of sowing, but it does not indicate that it is necessary for that grain to have taken root in order to be permitted by the <i>omer</i>. Rava <b>said to</b> Rav Pappa in reply: <b>Wise one [<i>sudni</i>]</b>! <b>It is written: “In the field,”</b> which indicates that the verse is referring to freshly sown produce that has become part of the field, i.e., it has taken root.
+
+### Part 7
+<strong>MISHNA:</strong> Even before the <i>omer</i> offering is brought, <b>one may reap</b> a crop that grows in <b>an irrigated field in the valleys, but one may not arrange</b> the reaped stalks in <b>a pile. The residents of Jericho,</b> whose fields were categorized as irrigated fields in a valley, <b>reaped</b> the crops <b>with the approval of the Sages and arranged</b> the crops <b>in a pile without the approval of the Sages, but</b> the Sages <b>did not reprimand them. One may</b> reap crops in any field <b>for fodder</b> and <b>feed it to an animal. Rabbi Yehuda said: When</b> may one do so? <b>At a time when he begins</b> reaping <b>before</b> the crop reaches <b>one-third</b> of its potential growth. <b>Rabbi Shimon says: One may reap and feed</b> the crops to animals <b>even after they reached one-third</b> of their potential growth.
+
+### Part 8
+<b>And one may reap</b> crops prior to the <i>omer</i> <b>due to</b> potential damage to <b>saplings</b> growing alongside the crops; and <b>due to the place of mourning,</b> i.e., to create room for those consoling mourners, who would bless them upon their return from the cemetery; and <b>due to</b> the need to create room for students to study, as failure to do so would lead to <b>dereliction of</b> Torah study in <b>the study hall.</b> After reaping the crops for any of these reasons, <b>one may not fashion them</b> into <b>sheaves, but he leaves them unbound.</b>
+
+### Part 9
+<b>The mitzva of the <i>omer</i></b> is for the barley <b>to come from standing grain.</b> If <b>one did not find</b> standing grain, <b>he brings from sheaves. Its mitzva is</b> for it <b>to come from</b> fresh, <b>moist</b> grain. If <b>one did not find</b> moist grain, <b>he brings from dry</b> grain. <b>Its mitzva is</b> for one <b>to reap</b> the grain <b>at night,</b> but if <b>it was reaped during the day,</b> it is <b>fit. And</b> reaping the grain for the <i>omer</i> <b>overrides Shabbat.</b>
+
+### Part 10
+<strong>GEMARA:</strong> With regard to the ruling of the mishna that one may reap a crop that grows in an irrigated field in the valleys, the Gemara cites that which <b>is taught</b> in a <i>baraita</i>: <b>Rabbi Binyamin says</b> that <b>one verse states:</b> “When you come into the land that I give to you <b>and shall reap its harvest, then you shall bring the <i>omer</i>”</b> (Leviticus 23:10). This verse indicates that one may reap his grain before bringing the <i>omer</i> offering. <b>But it is</b> also <b>written</b> in the continuation of the same verse: <b>“Of the first fruits of your harvest to the priest,”</b> from which it may be inferred that the <i>omer</i> is brought from the first reaped grain.
+
+### Part 11
+<b>How</b> can <b>these</b> texts be reconciled? <b>With regard to a place from</b> which <b>you bring</b> the <i>omer</i> grain for the sacrifice, i.e., from a field that is saturated with rainwater, <b>you may not reap</b> there. But <b>with regard to a place from</b> which <b>you may not bring</b> the <i>omer</i> grain, an irrigated field, <b>you may reap</b> there.
+
+### Part 12
+The Gemara questions this resolution: Why not <b>say</b> instead: <b>With regard to the type</b> of grain <b>from</b> which <b>you bring</b> the <i>omer</i>, i.e., barley, <b>you may not reap</b> it; but <b>with regard to the type</b> of grain <b>from</b> which <b>you may not bring</b> the <i>omer</i>, e.g., wheat, <b>you may reap</b> it? The Gemara answers: <b>You cannot say that</b> resolution, due to <b>that</b> which <b>Rabbi Yoḥanan</b> teaches. On 70a it was stated that Rabbi Yoḥanan derives a verbal analogy between the <i>halakhot</i> of <i>ḥalla</i> and the <i>omer</i> offering, from which he learns that the prohibition against reaping the new crop before the <i>omer</i> sacrifice applies to all five types of grain. Therefore, the reconciliation of the verses must be as first suggested, that one may reap in a place from which the <i>omer</i> grain may not be brought.
+
+### Part 13
+§ The mishna teaches: <b>The residents of Jericho,</b> whose fields were irrigated fields in a valley, <b>reaped</b> their crops <b>with the approval of the Sages and arranged</b> the crops <b>in a pile without the approval of the Sages,</b> but the Sages did not reprimand them. The Gemara asks: <b>Whom did you hear who said:</b> The Sages <b>reprimanded</b> them, or: <b>They did not reprimand</b> them? In other words, who is the <i>tanna</i> who, in the context of the customs of the residents of Jericho, addresses whether or not the Sages reprimanded them, as opposed to whether or not their actions were in accordance with the Sages’ will? The Gemara states: It is <b>Rabbi Yehuda.</b>
+
+### Part 14
+Upon identifying the <i>tanna</i> of the mishna, the Gemara asks: <b>And</b> does <b>Rabbi Yehuda</b> really <b>hold</b> that the <b>reaping of the residents of Jericho was</b> performed <b>with the approval of the Sages? But isn’t it taught</b> in a <i>baraita</i> (<i>Tosefta</i>, <i>Pesaḥim</i> 3:15): <b>The people of Jericho performed six actions, three with the approval of the Sages and three without the approval of the Sages.</b>
+
+### Part 15
+<b>And these</b> are the actions they performed <b>with the approval of the Sages: They</b> would <b>graft palm trees the entire day</b> of the fourteenth of Nisan, <b>and they</b> would <b>bundle <i>Shema</i>, and they</b> would <b>reap</b> grain <b>before the <i>omer</i></b> offering was brought; all of these were <b>with the approval of the Sages. And these</b> are the actions that they performed <b>without the approval of the Sages: They</b> would <b>pile</b> the harvest <b>before the <i>omer</i>, and they</b> would <b>permit</b> the use of <b>consecrated branches [<i>gamziyyot</i>] of carob and of sycamore</b> trees, <b>and they</b> would <b>make breaches in</b> the walls of <b>their gardens and in their orchards to feed fallen</b> fruit <b>to the poor during drought years,</b> so that the poor could take the fruit that had fallen even <b>on <i>Shabbatot</i> and Festivals.</b> This is <b>the statement of Rabbi Meir.</b>
+
+### Part 16
+<b>Rabbi Yehuda said to</b> Rabbi Meir: This is an inaccurate formulation, since <b>if they acted with the approval of the Sages,</b> then <b>every person would do so,</b> not only the residents of Jericho. <b>Rather,</b> you should formulate it in this manner: Both <b>these</b> three acts <b>and those</b> three acts <b>were performed without the approval of the Sages. With regard to three</b> of them the Sages <b>reprimanded them, and with regard to</b> the other <b>three</b> the Sages <b>did not reprimand them.</b>
+
+### Part 17
+<b>And these</b> are the actions they performed for <b>which</b> the Sages <b>did not reprimand them: They</b> would <b>graft palm trees the entire day, and they</b> would <b>bundle <i>Shema</i>, and they</b> would <b>reap and pile</b> grain <b>before the <i>omer</i></b> offering was brought. <b>And these are</b> the actions they performed for <b>which</b> the Sages <b>reprimanded them:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

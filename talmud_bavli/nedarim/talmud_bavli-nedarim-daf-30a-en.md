@@ -1,0 +1,18 @@
+
+### Part 1
+<b>resolve</b> the dilemma from here, <b>as Rav Hoshaya asked:</b> In the case of <b>one who gives two <i>perutot</i> to a woman and says to her: With one</b> of them <b>be betrothed to me today and with one be betrothed to me after I divorce you,</b> what is the <i>halakha</i>? Rav Hoshaya was uncertain whether the second betrothal is effective after the divorce. Bar Padda holds that if he redeems the consecrated saplings, they again become consecrated. Apparently, he holds that upon the redemption, the second consecration immediately goes into effect. From bar Padda’s opinion, one could say: <b>So too,</b> here, after the first marriage is ended by the bill of divorce, the second betrothal that was previously performed takes effect, and <b>it should be</b> a valid <b>betrothal.</b>
+
+### Part 2
+<b>Rabbi Yirmeya,</b> who had been dozing, <b>woke up</b> when he heard their conversation and <b>said to them:</b> For <b>what</b> reason <b>are you comparing</b> where <b>he redeemed them to where others redeemed them?</b> The <i>halakhot</i> are not similar. <b>This is what Rabbi Yoḥanan said:</b> If <b>he redeemed</b> the saplings, <b>they become consecrated again,</b> but if <b>others redeemed them</b> before they were cut <b>they do not become consecrated again,</b> since they are not in his possession anymore, <b>and</b> the case of <b>a woman</b> given a bill of divorce from her husband <b>is considered as if others redeemed her.</b> This is because upon divorce she is completely independent, and the second marriage can therefore take effect only with her consent. But if she refuses, the betrothal is not valid.
+
+### Part 3
+<b>It was also stated</b> that <b>Rabbi Ami said</b> that <b>Rabbi Yoḥanan said: They taught only</b> that bar Padda holds that the saplings become consecrated again <b>when he redeemed them</b> himself, <b>but</b> when <b>others redeemed them they do not become consecrated again</b> for he cannot consecrate them after they have been in the possession of others, and it no longer depends on his intent.
+
+### Part 4
+<strong>MISHNA:</strong> In the case of <b>one who takes a vow</b> that he will not derive benefit <b>from seafarers,</b> he is <b>permitted</b> to benefit <b>from those who live on dry land.</b> But if he takes a vow not to derive benefit <b>from those who live on dry land,</b> he is also <b>prohibited</b> from deriving benefit <b>from seafarers, because seafarers are included</b> within the category of <b>those who live on dry land.</b> The mishna now defines seafarers: <b>Not like those that travel</b> by ship <b>from Akko to Jaffa,</b> which is a short trip, <b>but rather one who customarily departs [<i>lefaresh</i>]</b> to distant locations, e.g., foreign countries.
+
+### Part 5
+<strong>GEMARA:</strong> With regard to the mishna’s definition of seafarers, there is a dispute between <b>Rav Pappa and Rav Aḥa, son of Rav Ika. One teaches</b> this statement <b>with regard to the first clause</b> of the mishna, <b>and one teaches</b> it <b>with regard to the latter clause.</b> The Gemara explains: <b>The one who teaches</b> it <b>with regard to the first clause teaches</b> it <b>like this: One who takes a vow</b> not to derive benefit <b>from seafarers</b> is <b>permitted</b> to derive benefit <b>from those who live on dry land. But</b> he is <b>prohibited</b> from deriving benefit <b>from seafarers, and</b> seafarers are <b>not like those</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

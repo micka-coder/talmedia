@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>peut etre mange avec un non-pretre</b> present <b>a la meme <b>table.</b> Les Sages n'ont pas emis un decret interdisant cela de peur que le non-pretre ne participe a la <i>halla</i>, car la separation de la <i>halla</i> en dehors d'Eretz Yisrael est elle-meme un decret rabbinique. Cela prouve que les Sages n'emettent pas un decret pour empecher la violation d'un autre decret. <b>Et</b> de meme, <i>halla</i> provenant de l'exterieur d'Eretz Yisrael <b>peut etre donnee a tout pretre que</b> l'on <b>souhaite,</b> meme un pretre non instruit qui ne garderait pas son etat de purete rituelle. Ceci est en contraste avec la <i>halla</i> d'Eretz Yisrael, qui ne peut etre donnee qu'aux pretres qui observent les <i>halakhot</i> de purete rituelle.
+
+### Partie 2
+<b>Abaye a dit a</b> Rav Yosef : <b>Accorde,</b> ta deduction serait valable <b>si</b> la mishna du tractate <i>Halla</i> nous avait <b>appris</b> ceci en ce qui concerne les <b><i>halla</i> de l'exterieur d'Eretz</b> Yisrael qui avaient ete amenees <b>en Eretz</b> Yisrael. <b>Comme</b> dans ce cas, <b>il pourrait y avoir une raison <b>de decreter</b> de ne pas le manger alors qu'un non-pretre est a la meme table, malgre le fait que le non-pretre qui le mange ne soit interdit que par la loi rabbinique, <b>en raison</b> de la crainte que l'on vienne manger <b><i>halla</i> d'Eretz</b> Yisrael, ce qui est interdit au non-pretre <b>par la loi de la Torah,</b> a la meme table qu'un non-pretre ; <b>et</b> pourtant <b>on ne decrete pas</b> contre cette pratique. Si c'est le cas, <b>il y aurait des raisons</b> d'apprendre de</b> cette mishna que les Sages n'emettent pas un decret pour empecher la violation d'un autre decret.
+
+### Partie 3
+<b>Mais</b> la mishna enseigne effectivement cette <i>halakha</i> en ce qui concerne la <i>halla</i> de <b>hors d'Eretz</b> Yisrael qui y reste. Cela ne prouve donc rien sur les decrets composes, puisqu'on peut pretendre que la pratique <b>est</b> permise uniquement <b>parce qu'il n'y a pas</b> de raison <b>de decreter.</b> Puisque par la loi de la Torah l'obligation de <i>halla</i> ne s'applique pas en dehors d'Eretz Yisrael, il n'y a aucune chance qu'un tel comportement entraine une transgression de la loi de la Torah. <b>Mais ici, si vous permettez que l'on place</b> la viande d'<b>oiseaux et le fromage</b> sur la meme table, certains pourraient <b>en venir a placer</b> la <b>viande</b> d'animaux domestiques <b>et le fromage</b> sur une meme table <b>et</b> a <b>manger</b> cette <b>viande</b> cuite <b>dans du lait,</b> transgressant ainsi un interdit <b>par la loi de la Torah.</b>
+
+### Partie 4
+<b>Rav Sheshet s'oppose</b> a la premisse de la deduction de Rav Yosef : Meme si l'on postulait que la viande d'oiseaux dans le lait est interdite par la loi de la Torah, <b>en fin de compte</b> il s'agit toujours d'un decret emis en raison d'un autre decret, car <b>il s'agit</b> d'un cas d'aliment <b>froid</b> <b>dans</b> un autre aliment <b>froid</b>, dont la consommation est elle-meme interdite par la loi rabbinique. <b>Abaye a dit :</b> C'est un <b>decret rabbinique, de peur que l'on ne place</b> la viande au fromage <b>dans un faitout bouillant,</b> ce qui est un mode de cuisson et donc interdit par la loi de la Torah.
+
+### Partie 5
+La Gemara compte : <b>En fin de compte,</b> meme un faitout n'est qu'un <b>recipient secondaire,</b> c'est-a-dire pas le recipient qui etait sur le feu, <b>et</b> en regle generale, <b>un recipient secondaire ne cuit pas. Il faut plutot dire qu'il s'agit d'un <b>decret rabbinique, de peur que l'on ne place</b> la viande au fromage <b>dans un faitout</b> qui est <b>un recipient primaire</b>, c'est-a-dire qui etait sur le feu. Cela revient certainement a cuire de la viande dans du lait, et c'est interdit par la loi de la Torah.
+
+### Partie 6
+<strong>MISHNA:</strong> <b>La</b> viande d'<b>oiseaux peut etre placee avec du fromage sur</b> une <b>table mais</b> ne peut <b>pas etre mangee</b> en meme temps que lui ; c'est <b>la declaration de Beit Shammai. Et Beit Hillel disent :</b> Il ne peut <b>ni etre place</b> sur une table <b>ni etre mange</b> avec le fromage. <b>Rabbi Yosei dit : C'est</b> une <b>des disputes</b> impliquant des <b>lenibilites de Beit Shammai et des rigueurs de Beit Hillel.</b>
+
+### Partie 7
+La mishna developpe : <b>Par rapport a quelle table</b> ces <i>halakhot</i> <b>sont-elles enoncees ?</b> C'est <b>par rapport a une table sur laquelle on mange. Mais sur une table sur laquelle on prepare les aliments cuits, on</b> peut <b>placer cette</b> viande <b>a cote de ce</b> fromage ou vice versa, <b>et</b> il ne faut pas <b>s'inquieter</b> que peut-etre ils seront melanges et qu'on viendra les manger ensemble.
+
+### Partie 8
+<strong>GEMARA:</strong> La Gemara conteste : L'avis de <b>Rabbi Yosei est</b> identique a celui de <b>la premiere <i>tanna</i>. Et si vous disiez</b> qu'il y a <b>une difference <b>entre eux</b> en ce qui concerne la liceite de la <b>mangeaison elle-meme, comme le premier <i>tanna</i> dit</b> que Beit Shammai et Beit Hillel <b>desaccordent en ce qui concerne le fait de placer</b> de la viande d'oiseaux avec du fromage sur une table, ce qui indique que <b>en ce qui concerne la consommation, ils ne sont pas en desaccord, et Rabbi Yosei dit</b> en reponse <b>a cela qu'ils sont egalement en desaccord en ce qui concerne la permission de <b>manger</b> de la viande d'oiseaux dans du lait, et c'est <b>lui-meme</b> une <b>des disputes</b> impliquant des <b>lenibilites de Beit Shammai et des rigueurs de Beit Hillel,</b> on peut refuter cette affirmation.
+
+### Partie 9
+La refutation est la suivante : <b>N'est-il pas enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit</b> que <b>six sujets</b> sont inclus <b>comme les</b> litiges impliquant des <b>leniances de Beit Shammai et des stringences de Beit Hillel, et ceci en fait partie : </b> La viande des <b>oiseaux est placee avec le fromage sur</b> une <b>table, mais</b> elle ne peut <b>pas etre mangee</b> en meme temps que lui ; c'est <b>la declaration de Beit Shammai. Et Beit Hillel disent :</b> Il ne peut <b>ni etre place</b> sur une table <b>ni etre mange</b> avec le fromage. De toute evidence, Rabbi Yosei est d'accord pour dire que meme selon Beit Shammai, la viande d'oiseau ne peut etre consommee avec du fromage.
+
+### Partie 10
+<b>Voici plutot</b> ce que la mishna <b>nous enseigne : Qui est le premier <i>tanna</i> ?</b> Il s'agit de <b>Rabbi Yosei.</b> L'identification est importante, car <b>celui qui rapporte une declaration au nom de celui qui l'a dite apporte la redemption au monde. Comme il est dit</b> a propos de l'incident du Bigthan et du Teresh : <b>"Et Esther le rapporta au roi au nom de Mardochee"</b> (Esther 2:22), et Mardochee fut plus tard recompense pour avoir sauve la vie du roi, ouvrant la voie au salut miraculeux.
+
+### Partie 11
+§ La Guemara continue de discuter de la consommation de volaille cuite dans du lait. Le Sage <b>Agra, beau-pere de Rabbi Abba, a enseigne :</b> La viande des <b>oiseaux et du fromage peut etre consommee librement</b> [<b><i>apikoren</i></b>], c'est-a-dire qu'il n'est pas necessaire d'etre strict en la matiere. La Guemara note : <b>Il,</b> Agra, <b>l'enseigne et il le dit,</b> c'est-a-dire qu'il explique sa declaration : La viande d'oiseaux et le fromage peuvent etre consommes <b>sans se laver</b> les <b>mains et sans s'essuyer la bouche</b> entre la consommation de chacun.
+
+### Partie 12
+La Gemara relate : <b>Rav Yitzhak, fils du Rav Mesharshiyya, arriva</b> a venir <b>dans la maison du Rav Ashi. On lui apporta du fromage,</b> et <b>il le mangea</b>. Ensuite, <b>ils lui apporterent de la viande,</b> et <b>il en mangea</b> <b>sans</b> d'abord <b>se laver les mains.</b> Les membres de la maison de Rav Ashi lui <b>dirent : Mais Agra, le beau-pere de Rabbi Abba, n'a-t-il pas enseigne</b> seulement que la viande des <b>oiseaux et le fromage peuvent etre consommes librement ?</b> On peut en deduire qu'en ce qui concerne la viande des <b>oiseaux et le fromage, oui,</b> on peut les manger sans se laver les mains entre les deux, mais en ce qui concerne la <b>viande</b> des animaux domestiques <b>et le fromage, non,</b> on ne peut pas.
+
+### Partie 13
+Rav Yitzhak <b>leur a dit : Cette declaration</b> d'Agra ne s'applique que si on les mange <b>la nuit,</b> car on ne peut pas voir si une partie de la nourriture du plat precedent reste encore sur ses mains, et on doit donc les laver. <b>Mais</b> si l'on mange <b>de jour, je</b> peux <b>voir</b> qu'il ne reste pas de nourriture sur ses mains, et par consequent il n'est pas necessaire de les laver.
+
+### Partie 14
+<b>Il est enseigne</b> dans un <i>baraita</i> : <b>Beit Shammai disent :</b> Entre la consommation de viande et de lait, on doit <b>s'essuyer</b> la bouche, <b>et Beit Hillel disent</b> qu'il doit <b>se rincer</b> la bouche. La Gemara demande : <b>Quel est le sens de ce mot : <b>Essuyer [<i>mekaneâh</i>], et quel</b> est le sens du mot : <b>Rincer [<i>mediah</i>] ?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

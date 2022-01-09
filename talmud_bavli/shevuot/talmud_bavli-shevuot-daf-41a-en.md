@@ -1,0 +1,45 @@
+
+### Part 1
+<b>But the one who teaches it</b> in reference <b>to the latter clause</b> maintains that specifically <b>here,</b> in this case, an oath of inducement is administered to the defendant, <b>as</b> he admits that <b>there is</b> a matter of <b>financial association</b> between them; <b>but there,</b> in the case of the first clause, where the defendant maintains that the claim is baseless, and <b>there is no</b> matter of <b>financial association</b> between them, the court does <b>not</b> administer to him an oath of inducement.
+
+### Part 2
+§ The Gemara asks: Practically speaking, <b>what</b> difference <b>is there between an oath</b> administered <b>by Torah law and an oath</b> administered <b>by rabbinic</b> law, i.e., an oath of inducement? The Gemara answers: The practical difference <b>between them is</b> with regard to the <b>transfer of an oath</b> to the other party. In a case where the defendant suggests that instead of taking an oath himself, the claimant should take an oath and collect that which he claims, if the oath is administered <b>by Torah law, we do not transfer</b> the <b>oath</b> to the claimant; the defendant must either take an oath himself or pay. If the oath is administered <b>by rabbinic law, we</b> do <b>transfer</b> the oath.
+
+### Part 3
+The Gemara asks: <b>And according to Mar bar Rav Ashi, who says</b> that <b>we transfer an oath</b> that is administered <b>by Torah law as well, what</b> difference <b>is there between</b> an oath administered <b>by Torah law and</b> an oath administered <b>by rabbinic law?</b> The Gemara answers: The practical difference <b>between them is</b> with regard to whether or not the court <b>enters the property of</b> the defendant to collect payment if he refuses to take an oath. <b>With regard to</b> an oath administered <b>by Torah law, we enter his property,</b> and <b>with regard to</b> an oath administered <b>by rabbinic law, we do not enter his property.</b>
+
+### Part 4
+The Gemara asks: <b>And</b> what is the practical difference <b>according to Rabbi Yosei, who says</b> that <b>even with regard to</b> a debt that is owed <b>by rabbinic law, we enter the property of</b> the debtor to collect the debt?
+
+### Part 5
+<b>As we learned</b> in a mishna (<i>Gittin</i> 59b): <b>A lost item found</b> by <b>a deaf-mute, an imbecile, or a minor</b> is not acquired by him, since he lacks the legal competence to effect acquisition. Nevertheless, taking such an item from him <b>is considered robbery on account of the ways of peace.</b> Although these individuals lack halakhic competence and are unable to acquire lost items by Torah law, taking such items from them is considered robbery. <b>Rabbi Yosei says:</b> This is <b>full-fledged robbery. And Rav Ḥisda says</b> that Rabbi Yosei means that it is <b>full-fledged robbery by rabbinic</b> law. Accordingly, <b>what is the</b> practical <b>difference</b> between the opinion of the first <i>tanna</i> and Rabbi Yosei’s opinion there? The difference is that according to Rabbi Yosei, if one refuses to return the stolen item, <b>it is appropriated by the judges</b> and returned to the one who found it. The Gemara completes its question: Since according to the opinion of Rabbi Yosei the court enters one’s property to appropriate even an item that is owed by rabbinic law, <b>what</b> difference <b>is there between</b> an oath administered <b>by Torah</b> law <b>and</b> an oath administered <b>by rabbinic</b> law?
+
+### Part 6
+The Gemara answers: The practical difference <b>between them is</b> with regard to a case <b>where the one opposing</b> the claimant, the defendant, <b>is suspected with regard to oaths. With regard to</b> an oath administered <b>by Torah law,</b> if <b>the one opposing</b> the claimant <b>is suspected with regard to oaths, we transfer</b> the obligation to take <b>an oath and impose it on the other</b> litigant, i.e., the claimant, who may take an oath and collect that which he claims he is owed. <b>With regard to</b> an oath administered <b>by rabbinic</b> law, the court does not transfer the oath, as transference of an oath <b>is</b> by rabbinic <b>ordinance, and we do not institute</b> one rabbinic <b>ordinance upon</b> another rabbinic <b>ordinance.</b>
+
+### Part 7
+The Gemara asks: <b>And according to the Rabbis who disagree with Rabbi Yosei, as they say</b> that <b>with regard to</b> an item that is owed <b>by rabbinic law, we do not enter his property</b> to collect the item, <b>what do we do to</b> one who refuses to take an oath of inducement? The Gemara answers: <b>We excommunicate him</b> until he takes an oath.
+
+### Part 8
+<b>Ravina said to Rav Ashi: This</b> sanction is no less severe than entering his property and collecting the debt; it <b>is</b> like <b>grabbing him by his testicles [<i>bekhuveseih</i>]</b> until <b>he surrenders his cloak. Rather, what do we do to him?</b> Rav Ashi <b>said to him: We excommunicate him until the time to flog him comes,</b> i.e., for thirty days, <b>and</b> if he still refuses to take an oath or reach a settlement with the claimant, <b>we flog him and</b> then <b>leave him</b> alone.
+
+### Part 9
+§ <b>Rav Pappa said:</b> With regard to <b>one who produced</b> a promissory <b>note against another</b> in court, <b>and</b> the defendant <b>said to him:</b> The debt in <b>the note is</b> already <b>repaid,</b> but for some reason I did not get the promissory note returned to me when I paid you, <b>we say to</b> the defendant: <b>It is not in your power</b> to deny the debt; <b>go pay. But if</b> the defendant <b>said: Let him take an oath to me</b> that I did not repay him, <b>we say to</b> the claimant: <b>Take an oath to him.</b>
+
+### Part 10
+<b>Rav Aḥa, son of Rava, said to Rav Ashi: But what is</b> the difference <b>between this</b> case <b>and</b> the case of <b>one who vitiates his</b> promissory <b>note</b> by acknowledging that he has received partial payment? In the latter case, the Sages instituted that the creditor can collect the remainder of the debt only after taking an oath that he was not repaid more than the amount he admitted receiving. According to Rav Pappa, an oath can be administered to any creditor who produces a promissory note, even if he did not vitiate it.
+
+### Part 11
+Rav Ashi <b>said to him: There,</b> in the case of a creditor who vitiated his promissory note, <b>even if</b> the defendant <b>does not himself make a claim</b> demanding that the creditor take an oath, <b>we,</b> the court, <b>make</b> such <b>a claim on his</b> behalf. <b>Here,</b> in a case where the creditor did not vitiate his promissory note, <b>we say to</b> the defendant: <b>Go pay him</b> the debt, <b>but if</b> the defendant <b>demands</b> an oath, <b>saying: Take an oath to me, we say to</b> the creditor: <b>Go take an oath to him. And if he is a Torah scholar [<i>tzurva merabbanan</i>], we do not administer an oath to him.</b>
+
+### Part 12
+<b>Rav Yeimar said to Rav Ashi: Can a Torah scholar uncloak people?</b> Does his being a Torah scholar give him the right to collect money that the defendant claims he does not owe? <b>Rather,</b> if he is a Torah scholar <b>we do not attend to his case.</b>
+
+### Part 13
+§ The mishna teaches that if the claimant said: <b>I have one hundred dinars in your possession,</b> and the defendant initially acknowledged the debt, but when he claimed the money the next day the defendant said that he already repaid him, the defendant is exempt from taking an oath. <b>Rav Yehuda says</b> that <b>Rav Asi says:</b> In the case of <b>one who lends</b> money to <b>another in</b> the presence of <b>witnesses,</b> the latter is <b>required to repay him in</b> the presence of <b>witnesses.</b> Therefore, if there are no witnesses to the fact that he repaid him, he is liable. Rav Yehuda continues: <b>When I said this in the presence of Shmuel, he said to me</b> that the debtor <b>can say to</b> the claimant: <b>I repaid you in the presence of so-and-so and so-and-so, and they went overseas.</b>
+
+### Part 14
+The Gemara raises an objection to Rav Asi’s statement: <b>We learned</b> in the mishna that in a case where the claimant said: <b>I have one hundred dinars in your possession,</b> and the latter <b>said to him: Yes,</b> and <b>the next day</b> the claimant <b>said to him: Give</b> the money <b>to me,</b> if the defendant responded: <b>I gave it to you,</b> he is <b>exempt.</b> The Gemara infers: <b>And here, since</b> the claimant <b>claimed</b> the debt from the defendant <b>in</b> the presence of <b>witnesses,</b> and the latter admitted the debt, <b>he is similar to one who lent him</b> the money <b>in</b> the presence of <b>witnesses, and</b> nevertheless, the mishna <b>teaches</b> that the defendant is <b>exempt.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,45 @@
+
+### Part 1
+The Gemara explains the reason for this opinion: <b>Since</b> a nine-year-old boy <b>is fit to</b> engage in <b>intercourse, he also imparts ritual impurity as</b> one who experienced <b><i>ziva</i>. Ravina said: Therefore,</b> with regard to <b>a female gentile child</b> who <b>is three years and one day old, since she is fit to</b> engage in <b>intercourse</b> at that age, <b>she also imparts impurity as</b> one who experienced <b><i>ziva</i>.</b>
+
+### Part 2
+The Gemara asks: Isn’t that <b>obvious?</b> The Gemara explains: It was necessary to state this ruling, <b>lest you say</b> that the <i>halakha</i> that a gentile who is suited for intercourse imparts impurity does not apply to a female. The possible difference between a male and female child is based on the fact that whereas <b>that</b> child, a nine-year-old male gentile, <b>knows</b> how <b>to accustom</b> others to sin by employing persuasion, <b>this</b> child, a three-year-old female gentile, <b>does not know</b> how <b>to accustom</b> others to sin until she matures. Therefore, Ravina <b>teaches us</b> that the <i>halakha</i> nevertheless applies to both male and female children.
+
+### Part 3
+The Gemara relates a relevant incident: <b>Rabbi Yehuda Nesia was traveling</b> while <b>leaning upon the shoulder of Rabbi Simlai, his attendant.</b> Rabbi Yehuda Nesia <b>said to him: Simlai, you were not in the study hall last night when we permitted the oil</b> of gentiles. Rabbi Simlai <b>said to him: In our days, you will permit bread</b> of gentiles <b>as well.</b> Rabbi Yehuda Nesia <b>said to him: If so,</b> people will <b>call us a permissive court. As we learned</b> in a mishna (<i>Eduyyot</i> 8:4): <b>Rabbi Yosei ben Yo’ezer of Tzereida testified with regard to</b> the <b><i>eil kamtza</i>,</b> a type of locust, that it is <b>kosher, and with regard to the liquids of the slaughterhouse</b> in the Temple that they are <b>ritually pure, and with regard to one who touches a corpse</b> that he is <b>impure,</b> as soon explained by the Gemara. <b>And</b> as a result, <b>they called him: Yosef the Permissive.</b>
+
+### Part 4
+Rabbi Simlai <b>said to him: There,</b> Yosei ben Yo’ezer <b>permitted three</b> matters, <b>but the Master</b> has <b>permitted</b> only <b>one, and</b> even <b>if the Master permits one other</b> matter, these <b>will still constitute</b> only <b>two</b> permissive rulings. Rabbi Yehuda Nesia <b>said to him: I</b> have already <b>permitted another</b> matter. The Gemara asks: <b>What is</b> the other matter that he permitted?
+
+### Part 5
+The Gemara explains that this is <b>as we learned</b> in a mishna (<i>Gittin</i> 76b) that if one says to his wife: <b>This is your bill of divorce if I do not arrive from now until twelve months’</b> time, <b>and he died within twelve months,</b> then <b>it is not</b> a valid <b>bill of divorce</b> because it would not take effect until after the husband’s death. <b>And it is taught with regard to</b> that mishna that <b>our Rabbis</b> nevertheless <b>permitted her to marry.</b> The Gemara continues: <b>And we say: Who</b> is the mishna referring to when it mentions <b>our Rabbis? Rav Yehuda said</b> that <b>Shmuel said:</b> This is referring to <b>the court that permitted the oil</b> of gentiles.
+
+### Part 6
+Tangentially, the Gemara examines the reason for the ruling of Rabbi Yehuda Nesia’s court concerning a bill of divorce. <b>They hold in accordance with</b> the opinion of <b>Rabbi Yosei, who says: The date</b> written <b>in a document proves</b> when <b>it</b> takes effect. In other words, the bill of divorce takes effect at the time written on it. Therefore, the divorce actually goes into effect before the husband’s death, because it is retroactively initiated on the day that the bill was issued. The Gemara adds: <b>And Rabbi Abba, son of Rabbi Ḥiyya bar Abba, says:</b> In an earlier period, <b>Rabbi Yehuda HaNasi</b> also <b>ruled</b> that the bill of divorce should be valid, <b>but</b> the other Sages <b>did not concede to</b> his opinion during <b>his entire lifetime [<i>sha’ato</i>]. And some say</b> that <b>all of his colleagues [<i>si’ato</i>]</b> did not concede to his opinion.
+
+### Part 7
+<b>Rabbi Elazar said to a certain elderly man,</b> who was a member of Rabbi Yehuda Nesia’s court: <b>When you permitted</b> this woman to remarry, did <b>you permit her immediately</b> after the husband died, <b>as he</b> certainly will <b>not arrive</b> within the twelve months, <b>or perhaps</b> you permitted her only <b>after twelve months, because</b> only then was <b>the condition fulfilled?</b>
+
+### Part 8
+That elderly man said to Rabbi Elazar: <b>And let the dilemma be raised with regard to the mishna</b> itself, <b>as we learned</b> in the next line of the mishna in <i>Gittin</i>: If one says to his wife: <b>This is your bill of divorce from now if I do not arrive from now until twelve months</b> have elapsed, <b>and he died within twelve months, this is</b> a valid <b>bill of divorce.</b> The reason is <b>that its condition was fulfilled,</b> as the husband stated explicitly that the bill takes effect immediately.
+
+### Part 9
+He explains: <b>And let the dilemma be raised</b> with regard to this case: <b>Is</b> the <b>bill of divorce</b> valid <b>immediately</b> upon the husband’s death <b>because he will</b> certainly <b>not arrive? Or perhaps</b> the bill of divorce is valid only <b>after twelve months</b> have elapsed, <b>because</b> only then is <b>his condition fulfilled?</b> Rabbi Elazar answered: <b>Yes,</b> it <b>is indeed so;</b> this question can be asked with regard to the case of the mishna itself. The Gemara adds: <b>But</b> Rabbi Elazar asked that elder about the decision of Rabbi Yehuda Nesia’s court <b>because he was</b> present <b>at that assembly,</b> and therefore he could report on what had actually occurred.
+
+### Part 10
+<b>Abaye says: All concede</b> that one who says that a bill of divorce will take effect <b>once the sun emerges from its sheath is saying to</b> his wife that it will be valid <b>once</b> the sun <b>comes out</b> in the morning. <b>And</b> therefore, if the husband <b>dies during the night,</b> before sunrise, <b>it is a posthumous bill of divorce,</b> which is invalid.
+
+### Part 11
+Furthermore, if he said to her: <b>On the condition that the sun will come out of its sheath,</b> then <b>he is saying to</b> his wife that the bill of divorce will take effect retroactively <b>from now,</b> on the condition that the sun emerges. <b>And</b> accordingly, <b>if he dies during the night, this is certainly</b> a fulfilled <b>condition, and it is a bill of divorce</b> which takes effect retroactively, <b>while</b> he is <b>alive; in accordance with</b> the statement <b>of Rav Huna. As Rav Huna says:</b> With regard to <b>anyone who states</b> a provision employing the language: <b>On the condition,</b> it <b>is tantamount to his stating</b> in the provision that the document takes effect retroactively <b>from now.</b>
+
+### Part 12
+<b>They disagreed only in</b> the case of one who said to his wife: This will be your bill of divorce <b>if</b> the sun <b>emerges</b> from its sheath, and the husband died during the night. <b>Rabbi Yehuda HaNasi holds in accordance with</b> the opinion of <b>Rabbi Yosei, who says</b> that <b>the date</b> written <b>in a document proves</b> when <b>it</b> takes effect, <b>and it is</b> therefore <b>considered as though</b> the husband said: <b>From today if I die,</b> or <b>as though</b> he said: <b>From now if I die. And the Sages do not</b> accept the opinion <b>of Rabbi Yosei, and</b> consequently they maintain that <b>it is considered as though</b> the husband said <b>only: This is your bill of divorce if I die,</b> in which case the bill of divorce is not valid, as it would take effect only after the husband’s death.
+
+### Part 13
+§ The Gemara returns to <b>the</b> matter <b>itself: Yosei ben Yo’ezer of Tzereida testified with regard to</b> the <b><i>eil kamtza</i></b> that it is <b>kosher, and with regard to the liquids of the slaughterhouse</b> in the Temple that they are <b>ritually pure, and with regard to one who touches a corpse</b> that he is <b>impure. And</b> as a result, <b>they called him: Yosef the Permissive.</b> The Gemara asks: <b>What is</b> the <b><i>eil kamtza</i>? Rav Pappa says:</b> It is a long-headed locust called <b><i>shoshiva</i>, and Rav Ḥiyya bar Ami says in the name of Ulla:</b> It is a locust called <b><i>susbil</i>.</b>
+
+### Part 14
+The Gemara explains: <b>Rav Pappa says</b> it is <b>a <i>shoshiva</i>, and</b> accordingly Yosei ben Yo’ezer and the other Rabbis <b>disagree with regard to a long-headed</b> locust: One <b>Sage,</b> the Rabbis, <b>holds</b> that <b>a long-headed</b> locust is <b>prohibited, and</b> one <b>Sage,</b> Yosei ben Yo’ezer, <b>holds</b> that <b>a long-headed</b> locust is <b>permitted. Rav Ḥiyya bar Ami says in the name of Ulla</b> that
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

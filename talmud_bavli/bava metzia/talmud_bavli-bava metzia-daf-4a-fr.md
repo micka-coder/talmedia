@@ -1,0 +1,60 @@
+
+### Partie 1
+<b>Diriez-vous</b> la meme chose <b>a l'egard de</b> deux <b>temoins,</b> dans <b>lequel</b> cas le defendeur <b>prete serment a l'egard</b> de la creance <b>qu'il nie,</b> et non a l'egard de la dette sur laquelle ils temoignent ?
+
+### Partie 2
+<b>Au contraire, Rav Pappa dit :</b> Le Rabbin Hiyyas <i>a fortiori</i> en deduit <b>l'extension d'un serment</b> que le temoignage <b>d'un temoin</b> l'oblige a preter. Une fois qu'un defendeur est oblige de preter serment, le plaignant peut exiger qu'il prete egalement serment en ce qui concerne les autres reclamations qu'il a contre lui.
+
+### Partie 3
+La Gemara rejette cette idee : <b>Qu'est-ce qui</b> est remarquable <b>de l'extension d'un serment</b> qui est oblige par le temoignage <b>d'un seul temoin ?</b> Il est remarquable <b>en ce que</b> un <b>serment conduit a</b> un autre <b>serment.</b> L'obligation de preter le second serment n'est pas causee directement par le temoin. <b>Diriez-vous</b> la meme chose <b>dans</b> le cas des <b>temoins, dont le</b> temoignage <b>rend</b> le defendeur <b>responsable</b> de payer <b>une somme d'argent ?</b> Le fait d'engager la responsabilite de payer une partie de la demande ne s'etend pas plus loin et n'engage pas la responsabilite de payer le reste.
+
+### Partie 4
+La Guemara repond : L'aveu de la <b>bouche</b> d'une personne peut prouver</b> qu'un element autre qu'un serment peut entrainer l'obligation du defendeur de preter serment en ce qui concerne le reste de la demande. Bien que la deduction <i>a fortiori</i> de la seule admission ait deja ete rejetee, en raison de la pretention de : <b>Ce qui</b> est notable <b>a propos de</b> l'aveu de sa <b>bouche,</b> il est notable <b>en ce qu'il n'est pas</b> sujet <b>a contradiction;</b> le temoignage de <b>un seul temoin peut prouver</b> que meme un temoignage <b>qui est</b> sujet <b>a contradiction rend</b> quelqu'un <b>liable</b> de preter <b>un serment.</b>
+
+### Partie 5
+La deduction <i>a fortiori</i> a partir de la deposition d'un seul temoin a egalement ete rejetee, car <b>Qu'est-ce qui est notable <b>a propos</b> de l'extension d'un serment resultant de la deposition d'<b>un seul temoin ? </b> Il est notable <b>en ce que</b> le defendeur <b>prete serment a l'egard</b> de la question concernant ce dont <b>il temoigne. Diriez-vous</b> la meme chose <b>en ce qui concerne</b> deux <b>temoins,</b> dans <b>lequel</b> cas le defendeur <b>prete serment en ce qui concerne</b> la creance <b>qu'il nie ?</b> L'admission d'une partie d'une creance par sa <b>bouche peut prouver</b> que cette difference n'est pas pertinente, car un defendeur peut etre tenu de preter serment meme en ce qui concerne une creance qu'il nie.
+
+### Partie 6
+<b>Et la derivation est revenue</b> a son point de depart. A ce stade, la <i>halakha</i> est derivee d'une combinaison des deux sources : <b>L'aspect de ce</b> cas, l'admission, <b>n'est pas comme l'aspect de ce</b> cas, l'extension d'un serment resultant du temoignage d'un seul temoin, <b>et l'aspect de ce</b> cas <b>n'est pas comme l'aspect de ce</b> cas. <b>Leur denominateur commun est que</b> ces affaires <b>viennent</b> devant le tribunal <b>avec une demande et</b> son <b>refus, et</b> le defendeur est oblige de <b>preter serment. J'inclurai egalement</b> dans l'obligation de preter serment le cas de Rabbi Hiyya, ou il y a le temoignage de deux <b>temoins</b> sur une partie de la dette, <b>qui vient</b> devant le tribunal <b>avec une reclamation et</b> sa <b>decharge. Et</b> par consequent, le defendeur est oblige de <b>preter serment.</b> C'est la deduction a laquelle Rabbi Hiyya faisait reference.
+
+### Partie 7
+La Guemara rejette cette idee : <b>Qu'y a-t-il de notable</b> dans leur denominateur commun,</b> c'est-a-dire le denominateur commun partage par l'admission d'une partie d'une demande par le defendeur et l'extension d'un serment resultant de la deposition d'un seul temoin ? Il est remarquable <b>en ce que</b> le defendeur <b>n'assume pas le statut presume de celui qui</b> dement faussement <b>ses dettes</b>. Il n'a pas ete prouve qu'il ment, on lui fait donc confiance pour preter serment. <b>Diriez-vous</b> la meme chose <b>en ce qui concerne</b> le cas de deux <b>temoins</b> qui contredisent la negation par le defendeur de la demande du plaignant, <b>ou</b> le defendeur <b>assume le statut presume de celui qui</b> nie faussement <b>ses dettes ? Dans ce cas, il n'est plus juge digne de confiance et son serment peut ne pas etre credible.
+
+### Partie 8
+La Gemara demande : <b>Mais dans</b> un cas ou son deni est contredit par deux <b>temoins, assume-t-il le statut presume de celui qui</b> dement faussement <b>ses dettes ? <b>Mais le Rav Idi bar Avin ne dit-il pas</b> que <b>Rav Hisda dit : Celui qui nie</b> une affirmation selon laquelle il aurait recu <b>un pret</b> et qui est contredit par des temoins <b>est apte a temoigner</b> dans un cas different. Il n'assume pas le statut de menteur confirme, car il avait peut-etre l'intention de rendre l'argent par la suite et n'a nie la declaration que dans le but de gagner du temps jusqu'a ce qu'il acquiere les fonds necessaires pour rembourser le pret. En revanche, si l'on nie avoir recu <b>un depot</b> et que des temoins attestent qu'il ment, il est <b>disqualifie pour temoigner</b> dans d'autres cas, car dans ce cas, il n'a aucune raison de gagner du temps et est clairement un voleur. Par consequent, la deduction <i>a fortiori</i> de Rabbi Hiyya tient.
+
+### Partie 9
+<b>Refutez plutot</b> la deduction <b>comme ceci : Qu'est-ce qui</b> est notable <b>de leur denominateur commun,</b> c'est-a-dire le denominateur commun partage par l'admission d'une partie d'une reclamation par le defendeur et l'extension d'un serment resultant du temoignage d'un seul temoin ? Il est notable <b>en ce que</b> ces cas <b>ne sont pas</b> soumis <b>aux <i>halakhot</i> de conspiration</b> des temoins. Meme si des temoins attestent que le temoin unique a menti, il n'est pas tenu de payer au defendeur la somme qu'il a cherche a lui faire payer, ce qui est la peine infligee aux temoins conspirateurs. <b>Diriez-vous</b> les memes <i>halakhot</i> <b>en ce qui concerne</b> deux <b>temoins, qui sont soumis aux <i>halakhot</i> des temoins conspirateurs</b> ?
+
+### Partie 10
+La Gemara rejette cette idee : <b>Cela</b> n'est <b>pas difficile,</b> car <b>Rabbi Hiyya ne refute pas</b> cette deduction basee sur la punition accompagnant <b>les <i>halakhot</i> de temoins conspirateurs</b>. En d'autres termes, Rabbi Hiyya n'accepte pas cette refutation, car si cette <i>halakha</i> ne s'applique pas du tout a l'admission d'un defendeur, elle s'applique au temoignage d'un seul temoin en ce sens que si deux temoins attestent que le temoin unique est un temoin conspirateur, son temoignage est rendu nul.
+
+### Partie 11
+La Gemara demande : <b>Mais</b> en ce qui concerne ce <b>qui</b> a ete <b>declare</b> (3a) : <b>Et la <i>tanna</i></b> de la mishna a egalement <b>enseigne</b> une <i>halakha</i> similaire a celle de Rabbi Hiyya, il y a une difficulte. <b>Est-ce que</b> le cas de la mishna <b>comparable</b> a la <i>halakha</i> de Rabbi Hiyya ? <b>Il y a,</b> dans le cas des temoins d'un pret, <b>le creancier a des temoins</b> pour soutenir son affirmation qu'il y a eu un pret alors que <b>le debiteur n'a pas de temoins</b> pour soutenir son affirmation <b>qu'il ne doit</b> au creancier <b>rien. Comme, si le debiteur avait des temoins</b> pour soutenir sa declaration <b>qu'il ne doit</b> au creancier <b>rien, Rabbi Hiyya ne lui demanderait pas de preter serment. </b> En revanche, <b>ici,</b> dans le cas de la mishna, <b>tout comme il est clair pour nous que ce</b> demandeur a un droit sur le vetement, tel qu'il le detient, de meme, <b>il est clair pour nous que cet</b> autre demandeur a un droit sur le vetement, tel qu'il le detient egalement. <b>Mais neanmoins,</b> dans la mishna, chaque partie est tenue de <b>preter serment.</b>
+
+### Partie 12
+<b>Par contre, lorsque</b> la phrase <b>a ete enoncee : Et le <i>tanna</i></b> de la mishna a egalement <b>enseigne</b> une <i>halakha</i> similaire, <b>elle a ete enoncee par rapport a une autre</b> declaration <b>de Rabbi Hiyya. Comme le dit Rabbi Hiyya :</b> Si quelqu'un dit a un autre : <b>Je</b> ai <b>cent dinars en ta possession, et l'autre dit</b> en reponse : <b>Tu n'as que cinquante dinars en ma possession, et te voila,</b> lui remettant l'argent, il <b>est oblige</b> de preter serment qu'il ne doit pas le reste.
+
+### Partie 13
+<b>Quelle est la raison ? </b> Celui qui dit : <b>Voila,</b> tout en donnant immediatement l'argent, <b>est egalement</b> considere <b>comme celui qui admet une partie de la creance.</b> On ne peut pas raisonner qu'en remettant immediatement la somme qu'il admet, le defendeur reduit ainsi la creance des cinquante dinars qu'il nie devoir, et qu'il est par consequent dispense de preter serment comme tout defendeur qui nie entierement la creance.
+
+### Partie 14
+Concernant cette decision de Rabbi Hiyya, la Guemara commente : <b>Et la <i>tanna</i></b> de la mishna <b>a enseigne</b> une <i>halakha</i> similaire, citant la mishna commencant : Si <b>deux</b> personnes sont venues au tribunal <b>en tenant un vetement.</b>
+
+### Partie 15
+La Gemara explique la comparaison : <b>Et ici,</b> dans la mishna, <b>puisque</b> chacun <b>saisit</b> la moitie du vetement, <b>il est clair pour nous que ce que l'un saisit est</b> en sa possession, tout comme si l'autre lui avait dit : <b>Voila,</b> je te le donne. <b>Et</b> la mishna <b>enseigne</b> que <b>il prete serment.</b> A l'evidence, dans le cas ou l'on nie une partie d'une demande qui lui est faite, et qu'en ce qui concerne le reste de la demande, il dit au demandeur : Voici, il est oblige de preter serment.
+
+### Partie 16
+<b>Et Rav Sheshet dit:</b> Celui qui dit a propos d'une partie de la reclamation : <b>Voici,</b> et nie le reste de la demande, est <b>exempte</b> de preter serment sur le reste. <b>Quelle en est la raison ? Puisqu'il lui a dit : Voila, ces dinars qu'il a reconnu</b> devoir <b>sont</b> consideres <b>comme si le creancier les a</b> deja en sa possession, et <b>en ce qui concerne les cinquante</b> autres dinars, le defendeur <b>n'a pas reconnu</b> les devoir. <b>Par consequent, il n'y a pas d'admission d'une partie de la creance.</b>
+
+### Partie 17
+La Gemara demande : <b>Mais selon</b> l'avis de <b>Rav Sheshet, la mishna est difficile,</b> car il semble s'agir d'un cas comparable et pourtant un serment est requis. La Gemara repond : <b>Rav Sheshet</b> aurait pu <b>vous dire :</b> Le serment mentionne dans <b>la mishna est une ordonnance rabbinique,</b> qui se rapporte specifiquement a ce cas. En general, un debiteur qui remet immediatement l'argent qu'il reconnait devoir est dispense de preter serment.
+
+### Partie 18
+<b>Et</b> comment l'autre</b> <i>amora</i>, Rabbi Hiyya, repondrait-il a cette affirmation ? <b>En effet,</b> il serait d'accord pour dire que <b>c'est une ordonnance rabbinique. Cependant, accorde, si vous dites</b> que <b>par la loi de la Torah</b> celui qui dit : <b>Voici,</b> est <b>oblige</b> de preter serment, cela explique pourquoi <b>les Sages ont institue</b> le <b>serment</b> mentionne dans la mishna, car il est <b>similaire</b> a un serment administre <b>par la loi de la Torah</b>. <b>Mais si vous dites</b> que <b>par la loi de la Torah</b> celui qui dit : <b>Voici,</b> est <b>exempte</b> de preter serment, <b>les Sages institueraient-ils un serment qui n'a pas de correspondant</b> <b>dans la loi de la Torah ?</b> Clairement, il y a une base pour le serment institue par les Sages dans la loi de la Torah, et cette base est le cas ou le defendeur dit : Voici.
+
+### Partie 19
+La Guemara <b>souleve une objection</b> a l'opinion de Rabbi Hiyya a partir d'une <i>baraita</i> :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

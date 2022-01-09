@@ -1,0 +1,51 @@
+
+### Part 1
+<b>and</b> the court <b>forced her master</b> to emancipate her, <b>and he made her a free woman. And Rav Naḥman bar Yitzḥak said</b> in explanation of why they forced him to do this: <b>They took liberties with her,</b> i.e., people engaged in sexual intercourse with her freely. This demonstrates that it is permitted to free a slave to prevent people from violating prohibitions.
+
+### Part 2
+The Gemara rejects this proof: <b>How can</b> these cases <b>be compared? There,</b> in the case of a half-maidservant half-free woman, <b>she is not fit for</b> marrying <b>a slave and she is not fit for</b> marrying <b>a freeman.</b> This is why she is available to all, and the only way to solve this problem is to emancipate her. <b>Here,</b> in the case of the maidservant, <b>it is possible</b> for the master <b>to assign her to</b> marry <b>his slave, and</b> that slave <b>will guard her</b> from people who wish to be promiscuous with her. Therefore, it is not necessary to emancipate her.
+
+### Part 3
+§ The Gemara returns to discussing <b>the</b> matter <b>itself</b> cited above. <b>Rav Yehuda says</b> that <b>Shmuel says: Anyone who emancipates his slave violates a positive mitzva, as it is stated: “Of them may you take your bondmen forever”</b> (Leviticus 25:46). This is a positive mitzva requiring that one subjugate slaves their entire lives. Therefore, it is prohibited to emancipate them.
+
+### Part 4
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: There was <b>an incident involving Rabbi Eliezer, who entered a synagogue</b> to pray, <b>and he did not find</b> a quorum of <b>ten</b> men, <b>and he emancipated his slave and had him complete</b> a quorum of <b>ten.</b> This demonstrates that one is permitted to emancipate his slave. The Gemara answers: Freeing a slave to enable the performance of <b>a mitzva,</b> e.g., completing a quorum, <b>is different.</b> This does not demonstrate that in general one is permitted to emancipate his slave.
+
+### Part 5
+The Gemara raises an objection from a <i>baraita</i> to the proof citing the incident involving Rabbi Eliezer: <b>The Sages taught: “Of them may you take your bondmen forever,”</b> is <b>optional;</b> this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> It is <b>an obligation.</b> The Gemara now explains the Gemara’s objection: <b>But perhaps Rabbi Eliezer holds in accordance with</b> the opinion of <b>the one who says</b> that it is <b>optional.</b> Therefore, the incident involving Rabbi Eliezer cannot serve as a proof that even those who hold that it is prohibited to free a slave would hold that it is permitted to free a slave to enable the performance of a mitzva.
+
+### Part 6
+The Gemara answers: It <b>cannot enter your mind</b> to say that Rabbi Eliezer holds that enslaving them permanently is optional, <b>as it is taught explicitly</b> in a <i>baraita</i> that <b>Rabbi Eliezer says:</b> “Of them may you take your bondmen forever” is <b>an obligation.</b>
+
+### Part 7
+In connection with this issue, <b>Rabba said: With these three matters homeowners become impoverished: That they emancipate their slaves; and that they inspect their property on Shabbat; and that they set their meals on Shabbat at the time of</b> the sermon in <b>the study hall,</b> so that they miss it, <b>as Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says: There were two families in Jerusalem, one</b> that <b>set its meal on Shabbat and one</b> that <b>set its meal on the eve of Shabbat, and both of them were uprooted.</b> One family was uprooted because they caused the suspension of Torah study, and the other was uprooted because by eating their meal on Shabbat eve, they did not properly distinguish between Shabbat and Shabbat eve.
+
+### Part 8
+§ <b>Rabba says</b> that <b>Rav says:</b> With regard to <b>one who consecrates his slave,</b> the slave <b>is emancipated.</b> The Gemara explains: <b>What is the reason</b> for this? <b>He did not consecrate</b> the slave <b>himself,</b> as the slave cannot become consecrated to be an offering. If you say that it is only <b>with regard to his monetary</b> value that he is consecrated, i.e., the owner pledges to give the value of his slave to the Temple, his owner <b>did not say</b> this. Therefore, it must be <b>that he said</b> that this slave <b>should be</b> a member of the <b>sacred nation,</b> meaning that the slave should be emancipated and become a Jew.
+
+### Part 9
+<b>And Rav Yosef</b> says that <b>Rav says:</b> With regard to one <b>who renounces ownership of his slave,</b> the slave <b>is emancipated.</b> The Gemara points out: According to <b>the one who says</b> that <b>one who consecrates</b> his slave emancipates him, this is <b>all the more so</b> with regard to <b>one who renounces ownership.</b> But according to <b>the one who says</b> that <b>one who renounces ownership</b> of his slave emancipates his slave holds that this is the <i>halakha</i> only if one renounces ownership of his slave; <b>but one who consecrates</b> his slave does <b>not</b> emancipate him, as <b>perhaps</b> when he consecrated his slave <b>he said</b> that his slave is consecrated <b>with regard to his monetary</b> value, he should be sold and the profit donated toward the Temple maintenance.
+
+### Part 10
+<b>A dilemma was raised before</b> the Sages: In both of these cases, where the slave is emancipated after his owner renounces his ownership of him or consecrates him, does the slave <b>require a bill of manumission, or does he not require</b> a bill of manumission? The Gemara suggests a proof to resolve this dilemma: <b>Come</b> and <b>hear that</b> which <b>Rav Ḥiyya bar Avin says</b> that <b>Rav says:</b> In <b>both this</b> case, where one consecrates his slave, <b>and that</b> case, where one renounces ownership of his slave, the slave <b>is emancipated but</b> nevertheless <b>requires a bill of manumission.</b>
+
+### Part 11
+<b>Rabba said: And we raise an objection</b> from a <i>baraita</i> <b>to our <i>halakha</i></b> that Rav said that one who consecrates his slave emancipates him: With regard to <b>one who consecrates</b> all <b>his possessions, and among them were slaves,</b> the Temple <b>treasurers are not allowed to emancipate them. However, they may sell</b> the slaves <b>to others, and</b> these <b>others</b> may <b>emancipate them. Rabbi</b> Yehuda HaNasi <b>says: I say</b> that <b>even</b> the slave <b>himself can give his own monetary value and is emancipated, due to</b> the fact <b>that it is as if</b> the Temple treasurer <b>sold him to himself.</b> This demonstrates that the act of consecrating one’s slave does not emancipate him. The Gemara rejects this argument: Do <b>you raise an objection to Rav</b> from <b>a <i>baraita</i>? Rav</b> himself <b>is a <i>tanna</i>, and,</b> as such, has the authority to <b>dispute</b> the determination in the <i>baraita</i>.
+
+### Part 12
+The Gemara raises another objection from a <i>baraita</i> to the opinion of Rav: <b>Come</b> and <b>hear: “Notwithstanding, no dedicated thing</b> that a man may dedicate to the Lord from all that he has, whether of man or beast, or of the field of his possession, shall be sold or redeemed” (Leviticus 27:28). The Sages interpret the verse as follows: <b>“Of man”; these are his Canaanite slaves and maidservants.</b> This demonstrates that one may consecrate his slaves and they are not emancipated as a result. The Gemara answers: <b>With what are we dealing here?</b> This is referring to a case <b>where</b> the master <b>said</b> explicitly that he is consecrating them <b>with regard to their monetary</b> value.
+
+### Part 13
+The Gemara asks: <b>If that is so,</b> then why not say that <b>the other</b> <i>baraita</i> quoted above is <b>also</b> referring to a case <b>where one said</b> explicitly that the slave is consecrated <b>with regard to his monetary</b> value? Why is it necessary to answer that Rav disagrees with that <i>baraita</i>?
+
+### Part 14
+The Gemara answers: <b>If that is so,</b> that the <i>baraita</i> is referring to one who said that the slaves are consecrated only with regard to their monetary value, then why does the <i>baraita</i> state that the Temple <b>treasurers</b> [<b><i>gizbarim</i></b>] <b>are not allowed to emancipate them.</b> The Temple <b>treasurers; what are they doing</b> in this discussion? They would never be able to emancipate the slaves, as the slaves were never actually consecrated.
+
+### Part 15
+<b>And furthermore,</b> the <i>baraita</i> states: <b>However, they may sell</b> the slaves <b>to others, and</b> these <b>others</b> may <b>emancipate them. Others; what are they doing</b> in this discussion? They also should not be able to emancipate the slaves. <b>And furthermore,</b> the <i>baraita</i> states: <b>Rabbi</b> Yehuda HaNasi <b>says: I say</b> that <b>even</b> the slave <b>himself can give his own monetary value and is emancipated, due to</b> the fact <b>that it is as if</b> the Temple treasurer <b>sold him to himself. And if</b> the slave was consecrated only <b>with regard to his monetary</b> value, <b>what</b> is the meaning of: <b>Due to</b> the fact <b>that it is as if</b> the Temple treasurer <b>sold him to himself?</b> The <i>baraita</i> makes sense only according to the opinion that one who consecrates a slave consecrates the slave himself, and since there is nothing for the Temple to do with the slave, he must be redeemed and the money used in his place. Therefore, the <i>baraita</i> contradicts Rav’s opinion.
+
+### Part 16
+The Gemara raises another objection to Rav’s opinion from a <i>baraita</i>: <b>Come</b> and <b>hear:</b> In a case of <b>one who consecrates his slave,</b> the slave <b>works and is sustained</b> as compensation for his labor, <b>as</b> the master <b>consecrated only his monetary</b> value and donates that sum to the Temple treasury. This demonstrates that the slave does not become consecrated, as he may still work for the master, and he is also not emancipated.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

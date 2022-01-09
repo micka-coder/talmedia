@@ -1,0 +1,24 @@
+
+### Part 1
+<b>establish a set pattern</b> of menstrual bleeding <b>for herself,</b> so that it can be assumed that she will start bleeding at a particular time, <b>until she has established it three times.</b> Similarly, <b>she is not purified from her set pattern until it is uprooted from her three times,</b> i.e., until she did not experience menstrual bleeding at the expected time according to her pattern on three occasions. <b>And</b> the case of a <b>forewarned ox</b> is <b>as we learned</b> in a mishna (<i>Bava Kamma</i> 23b): <b>An ox does not become forewarned until</b> witnesses <b>testify</b> that <b>it</b> has gored <b>three times.</b> Consequently, in the cases of set patterns and a forewarned ox, a legal presumption is created only after three occurrences, in accordance with the opinion of Rabban Shimon ben Gamliel.
+
+### Part 2
+<b>The Sages taught:</b> If a woman <b>was married to</b> her <b>first</b> husband <b>and she did not have children,</b> and then she was married <b>to</b> her <b>second</b> husband <b>and she did not have children, she may not get married to a third</b> husband <b>unless</b> it is <b>to one who</b> already <b>has children</b> and has fulfilled the mitzva to be fruitful and multiply, as it is presumed that she is unable to have children. If <b>she got married to one who does not have children</b> and he had been unaware of her presumptive status, <b>she is divorced without</b> receiving payment for her <b>marriage contract,</b> as he married her erroneously.
+
+### Part 3
+<b>A dilemma was raised before</b> the Sages: If <b>she was married to a third</b> husband <b>and she did not have children</b> for ten years, <b>what is</b> the <i>halakha</i> with regard to whether <b>those first</b> husbands <b>can demand</b> the return of the money they paid for <b>her</b> marriage contracts? <b>Can</b> they <b>say to her: It has been revealed</b> retroactively <b>that it was you who caused</b> our inability to have children, and therefore we entered our marriages erroneously, <b>or perhaps</b> she <b>can say to them: It is now that</b> I am older that <b>I have become weak,</b> but in my youth I could have had children with a different husband. The Sages answer: It is <b>reasonable</b> that <b>she can say to them: It is now that I have become weak.</b>
+
+### Part 4
+Another <b>dilemma was raised before</b> the Sages: If <b>she was married to a fourth</b> husband <b>and she had children</b> with him, <b>what is</b> the <i>halakha</i> with regard to whether <b>she can demand</b> the payment of her marriage contract from her <b>third</b> husband by claiming that it is now evident that she was capable of having children? The Gemara answers: <b>We say to her: Your silence is preferable to your speech,</b> i.e., you are better off not making this claim, <b>as he can say to her: I did not divorce you with this understanding,</b> and now that I know you are capable of having children, I regret divorcing you. This would invalidate her divorce and, consequently, her marriage to her fourth husband, and would render her child a <i>mamzer</i>.
+
+### Part 5
+<b>Rav Pappa strongly objects to this: If she was silent do we remain silent?</b> If there is room for concern that the divorce might be invalid, the concern exists regardless of her claim, and therefore the <b>bill of divorce</b> should be <b>found invalid and her children</b> from her fourth husband should be rendered <b><i>mamzerin</i>. Rather, we say</b> that <b>it is now that she has become healthy.</b> In other words, she was previously incapable of bearing children, but she has since recovered from that disability.
+
+### Part 6
+§ The Gemara addresses a related case. If <b>he said</b> that the cause for their failure to have children is <b>from her,</b> i.e., it is she who is infertile, <b>and she said</b> it is <b>from him, Rabbi Ami said:</b> With regard to such <b>matters between him and her, she is believed.</b> The Gemara inquires: <b>What is the reason</b> for this ruling? <b>She is certain</b> whether his semen <b>shoots like an arrow,</b> whereas <b>he is not certain</b> whether his semen <b>shoots like an arrow.</b>
+
+### Part 7
+If <b>he says: I will go</b> and <b>marry a</b> different <b>woman and examine myself</b> to see if I am indeed the cause, <b>Rabbi Ami said: Even in this</b> case he <b>must divorce</b> his first wife <b>and give</b> her the payment for her <b>marriage contract, as I say</b> that <b>whoever marries a woman in addition to his</b> first <b>wife must divorce</b> his first wife <b>and give</b> her the payment for her <b>marriage contract.</b> Conversely, <b>Rava said</b> that <b>a man may marry several women in addition to his</b> first <b>wife, and</b> there is nothing wrong with this practice <b>as long as he has</b> enough <b>to support them</b> all.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

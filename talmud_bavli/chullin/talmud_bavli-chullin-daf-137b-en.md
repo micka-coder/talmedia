@@ -1,0 +1,54 @@
+
+### Part 1
+<b>Rabbi Yoḥanan says</b> in response: Rabbi Yehuda HaNasi accepted Rabbi Yosei’s opinion not because it was a compromise, but rather because <b>he said it according to a tradition</b> he had <b>from</b> the prophets <b>Haggai, Zechariah, and Malachi.</b>
+
+### Part 2
+§ The mishna states: <b>Rabbi Dosa ben Harkinas says</b> that the mitzva of the first sheared wool applies to five sheep, each of whose shearing weighs one hundred and fifty dinars, whereas the Rabbis say: Five sheep, each of whose shearing is any amount. The Gemara asks: <b>And how much</b> is signified by the phrase: <b>Any amount? Rav says:</b> It is a total weight of <b>one hundred dinars</b> [<b><i>maneh</i></b>] <b>and half</b> of one hundred dinars [<b><i>peras</i></b>], <b>provided that they are divided</b> equally <b>between the five</b> sheep. <b>And Shmuel says:</b> It is a total weight of <b>sixty</b> <i>sela</i>, of which he <b>gives</b> the weight of <b>one <i>sela</i> to the priest.</b>
+
+### Part 3
+<b>Rabba bar bar Ḥana</b> says that <b>Rabbi Yoḥanan says:</b> It is a total weight of <b>six</b> <i>sela</i>, of which he gives <b>to the priest</b> the weight of <b>five</b> <i>sela</i>, <b>and</b> he leaves <b>one</b> <i>sela</i> <b>for himself. Ulla</b> says that <b>Rabbi Elazar says: We learned</b> in the mishna that according to the Rabbis the obligation of the first sheared wool applies to <b>any amount,</b> even if the total weight is only one <i>sela</i>.
+
+### Part 4
+<b>We learned</b> in the mishna (135a): <b>And how much does one give to</b> the priest? One gives him sheared wool of the <b>weight</b> of <b>five <i>sela</i> in Judea, which are</b> the equivalent of <b>ten <i>sela</i> in the Galilee. Granted,</b> according <b>to</b> the opinions of <b>Rav and Rabbi Yoḥanan,</b> the mishna <b>works out well,</b> as their statements do not contradict the mishna. Rav does not discuss the amount one is required to give the priest, and Rabbi Yoḥanan states that one gives the priest five <i>sela</i>. <b>But</b> according <b>to Shmuel and Rabbi Elazar,</b> the mishna is <b>difficult,</b> as Shmuel states that one is required to give one <i>sela</i>, while Rabbi Elazar states that the obligation of the first sheared wool applies even for a weight of less than five <i>sela</i>.
+
+### Part 5
+The Gemara responds: <b>And according to your reasoning, does it work out well</b> according <b>to</b> the opinion of <b>Rav? But Rav and Shmuel both say</b> that <b>the first sheared wool</b> given to the priest is one part <b>in sixty.</b> Rav holds that the weight of one hundred and fifty dinars renders one obligated in the first sheared wool, and one-sixtieth of this weight is less than one <i>sela</i>. Therefore, Rav’s opinion is also not in accordance with the mishna.
+
+### Part 6
+The Gemara answers: <b>It was stated with regard to that</b> mishna that <b>Rav and Shmuel both say:</b> The five <i>sela</i> stated in the mishna is not referring to the total amount given from the sheared wool. Rather, in the mishna <b>we are dealing with a Jew who has a large</b> amount of <b>shearing, and he wishes to give them to the priest,</b> i.e., to several priests. <b>And we say to him:</b> With regard to <b>each and every one</b> of the priests, do <b>not</b> give <b>him less than five <i>sela</i>.</b> But if one has only a small amount of shearing, he gives the priest one-sixtieth of the shearing, even if it is less than five <i>sela</i>.
+
+### Part 7
+§ The Gemara mentioned a ruling of Rav and Shmuel with regard to the amount that one is required to give as the first sheared wool. The Gemara discusses <b>the</b> matter <b>itself. Rav and Shmuel both say: The first sheared wool</b> given to the priest is one part <b>of sixty.</b> Likewise, the amount one is required to separate as <b><i>teruma</i></b> is one part <b>of sixty,</b> and the amount one must leave in his field as <b><i>pe’a</i></b> is one part <b>of sixty.</b>
+
+### Part 8
+The Gemara asks: Is the amount one is required to separate as <b><i>teruma</i></b> one part <b>of sixty? But didn’t we learn</b> in a mishna (<i>Terumot</i> 4:3): With regard to the measure one should separate as <b><i>teruma</i>,</b> if one is of <b>generous disposition</b> he gives <b>one-fortieth.</b> The Gemara answers: <b>By Torah law,</b> it is sufficient to give one part <b>of sixty; by rabbinic law</b> the requisite amount is one part <b>of forty.</b>
+
+### Part 9
+The Gemara asks: Is the measure of <i>teruma</i> <b>by Torah law</b> one part <b>of sixty? But doesn’t Shmuel say:</b> By Torah law, even <b>one</b> grain of <b>wheat</b> given as <i>teruma</i> <b>exempts the</b> entire <b>pile [<i>keri</i>]</b> of grain? The Gemara answers: <b>By Torah law</b> the measure is <b>as</b> stated <b>by Shmuel,</b> that even one grain of wheat is sufficient. <b>By rabbinic law</b>, <b>with regard to</b> produce that is obligated in <i>teruma</i> <b>by Torah law</b> the measure is <b>one-fortieth,</b> whereas <b>by rabbinic law</b>, <b>with regard to</b> produce obligated in <i>teruma</i> <b>by rabbinic law</b> the measure is one part <b>of sixty.</b>
+
+### Part 10
+Rav and Shmuel said above that the amount one is required to leave in his field as <b><i>pe’a</i></b> is one part out <b>of sixty.</b> The Gemara raises a difficulty: <b>But didn’t we learn</b> in a mishna (<i>Pe’a</i> 1:1): <b>These are</b> the <b>matters,</b> i.e., mitzvot, <b>that have no measure: <i>Pe’a</i>, and the first fruits, and the</b> burnt offering of <b>appearance</b> sacrificed on the pilgrimage Festivals. The Gemara answers: <b>By Torah law,</b> <i>pe’a</i> <b>has no</b> fixed <b>measure; by rabbinic law</b> the measure is one part <b>of sixty.</b>
+
+### Part 11
+The Gemara asks: <b>What is</b> the statement of Rav and Shmuel <b>teaching us? We</b> already <b>learn</b> in the subsequent mishna (<i>Pe’a</i> 1:2): One should <b>not give for <i>pe’a</i> less than</b> one part <b>of sixty, even though they said</b> that <b>the</b> mitzva of <b><i>pe’a</i> has no measure.</b> The Gemara answers: The mishna <b>there</b> is referring to the obligation to leave <i>pe’a</i> <b>in Eretz</b> Yisrael, whereas <b>here,</b> the statement of Rav and Shmuel is referring to the obligation of <i>pe’a</i> <b>outside of Eretz</b> Yisrael.
+
+### Part 12
+§ <b>When Isi bar Hini ascended</b> from Babylonia to Eretz Yisrael, <b>Rabbi Yoḥanan found him teaching</b> the mishna <b>to his son.</b> Isi taught that the obligation of the first sheared wool applies only in the case of <b>sheep [<i>reḥelim</i>],</b> the masculine plural form of <i>raḥel</i>, meaning a sheep. Rabbi Yoḥanan <b>said to</b> Isi: You should <b>teach him</b> using the term <b><i>reḥelot</i>,</b> the feminine plural form. Isi <b>said to him</b> in reply: I teach the mishna in accordance with <b>that which is written: “Two hundred <i>reḥelim</i>”</b> (Genesis 32:15). Rabbi Yoḥanan <b>said to</b> Isi: The <b>language</b> of the <b>Torah is distinct</b> and the <b>language</b> of the <b>Sages is distinct,</b> i.e., these are like two separate languages, and the Sages do not always use the same forms that appear in the Bible. In this case, they use <i>reḥelot</i> rather than <i>reḥelim</i>.
+
+### Part 13
+Rabbi Yoḥanan <b>said to</b> Isi: <b>Who is the head of the yeshiva [<i>reish sidra</i>] in Babylonia?</b> Isi <b>said to</b> Rabbi Yoḥanan: It is <b>Abba the tall,</b> i.e., the <i>amora</i> Rav. Rabbi Yoḥanan <b>said to</b> Isi: <b>You call him Abba the tall,</b> in such a familiar manner? <b>I remember when I sat seventeen rows behind Rav,</b> who sat <b>before Rabbi</b> Yehuda HaNasi, <b>and fiery sparks emerged from the mouth of Rav to the mouth of Rabbi</b> Yehuda HaNasi, <b>and from the mouth of Rabbi</b> Yehuda HaNasi <b>to the mouth of Rav, and I did not know what they said,</b> due to the profundity of their discussion. <b>And</b> yet <b>you call him Abba the tall?</b>
+
+### Part 14
+Isi <b>said to</b> Rabbi Yoḥanan: With regard to <b>the first sheared wool, to how much</b> fleece does the mitzva apply? <b>Rabbi Yoḥanan said to him:</b> The first sheared wool applies <b>to</b> fleece weighing <b>sixty</b> <i>sela</i>. Isi asked: <b>But didn’t we learn</b> in the mishna (135a) that the first sheared wool applies <b>to any amount</b> of fleece? Rabbi Yoḥanan <b>said to him</b> in reply: <b>If so,</b> i.e., if the <i>halakha</i> could be understood by a simple reading of the mishna, <b>what</b> is the difference <b>between my</b> knowledge <b>and yours?</b> In fact, you know only the mishna’s statement, whereas I know the halakhic conclusion in this matter.
+
+### Part 15
+§ <b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, he <b>said:</b> With regard to <b>the first sheared wool, Rav says</b> that the mitzva applies <b>to sixty</b> <i>sela</i>, <b>and Rabbi Yoḥanan in the name of Rabbi Yannai says</b> that the mitzva applies <b>to six</b> <i>sela</i>. <b>Abaye said to Rav Dimi: You have made one</b> statement <b>work out well for us, but you have made another</b> statement <b>difficult for us.</b>
+
+### Part 16
+Abaye elaborates: <b>Granted,</b> you have resolved a contradiction between two statements of Rabbi Yoḥanan. Rabbi Yoḥanan said above that the amount of fleece to which the obligation of the first sheared wool applies is six <i>sela</i>, whereas in his answer to Isi he stated that the amount is sixty <i>sela</i>. According to Rav Dimi, the apparent contradiction between one statement <b>of Rabbi Yoḥanan and</b> the other statement <b>of Rabbi Yoḥanan</b> is <b>not difficult,</b> as <b>this</b> statement <b>is his</b> and <b>that</b> statement <b>is his teacher’s.</b> Rabbi Yoḥanan holds that the obligation applies to sixty <i>sela</i>, whereas his teacher Rabbi Yannai maintains that it applies to six <i>sela</i>.
+
+### Part 17
+<b>But</b> the contradiction between one statement <b>of Rav and</b> another statement <b>of Rav</b> poses <b>a difficulty, as Rav said</b> that fleece weighing <b>one hundred dinars [<i>maneh</i>] and half</b> of one hundred dinars [<i>maneh</i>] is obligated in the first sheared wool, whereas Rav Dimi stated that according to Rav the obligation applies to sixty <i>sela</i>, which are 240 dinars. The Gemara answers: The apparent contradiction between the one statement <b>of Rav and</b> the other statement <b>of Rav</b> is <b>also not difficult,</b> as <b>what</b> is the <b><i>maneh</i></b> of <b>which</b> Rav <b>said</b> that a <i>maneh</i> and a half are obligated? Rav was referring not to a <i>maneh</i> of one hundred dinars but to a <i>maneh</i> <b>of forty <i>sela</i>,</b> i.e., 160 dinars, a <i>maneh</i> and a half of <b>which is</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

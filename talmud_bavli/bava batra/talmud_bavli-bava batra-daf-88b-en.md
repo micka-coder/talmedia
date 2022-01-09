@@ -1,0 +1,39 @@
+
+### Part 1
+<b>And</b> before adding the weights and merchandise the seller is <b>obligated to let</b> the pans of the scale that will hold the merchandise <b>tilt</b> an extra <b>handbreadth for</b> the buyer by adding a weight to that side. If the seller <b>weighed for him exactly,</b> i.e., with the scales equally balanced initially, instead of allowing the scales to tilt an extra handbreadth, <b>he must give</b> the buyer <b>additional amounts [<i>geirumin</i>],</b> an additional <b>one-tenth in</b> the case of <b>liquids</b> sold by weight, <b>and</b> an additional <b>one-twentieth in</b> the case of <b>dry</b> goods.
+
+### Part 2
+The mishna continues to discuss the correct method of weighing: In <b>a place where they were accustomed to measure</b> merchandise in several stages <b>with a small</b> measuring vessel, <b>one may not measure</b> all the items at once <b>with</b> a single <b>large</b> measuring vessel. In a place where they measure <b>with</b> one <b>large</b> measuring vessel, <b>one may not measure with</b> several <b>small</b> measuring vessels. In a place where the custom is <b>to level</b> the top of the measuring vessel to remove substances heaped above its edges, <b>one may not heap</b> it, and where the custom is <b>to heap</b> it, <b>one may not level</b> it.
+
+### Part 3
+<strong>GEMARA:</strong> The Gemara asks: <b>From where are these matters,</b> that the seller must initially let the scales tilt an extra handbreadth, <b>derived? Reish Lakish said:</b> The source is <b>that the verse states</b> that one should have: <b>“A perfect and just [<i>tzedek</i>] weight”</b> (Deuteronomy 25:15), which is interpreted as an instruction to the seller: <b>Be righteous [<i>tzaddek</i>] with that which is yours and give it to</b> the buyer. The Gemara asks: <b>If that is so, say the latter clause:</b> If the seller <b>weighed for him exactly, he gives</b> the buyer <b>additional amounts. But if letting</b> the scales <b>tilt</b> is obligatory <b>by Torah law, how can he</b> originally <b>give him</b> by weighing <b>exactly?</b>
+
+### Part 4
+<b>Rather,</b> it is not obligatory to let the scales tilt, and <b>the first clause</b> is referring <b>to a place where they are accustomed</b> to let the scales tilt an extra handbreadth. <b>And if</b> the statement <b>of Reish Lakish was stated,</b> it <b>was stated with regard to the latter clause:</b> If the seller <b>weighed for him exactly, he gives</b> the buyer <b>additional amounts. From where is this matter</b> derived? <b>Reish Lakish said</b> that this is <b>as the verse states: “And just [<i>tzedek</i>],”</b> which indicates: <b>Be righteous [<i>tzaddek</i>] with that which is yours and give it to</b> the buyer. The Gemara asks: <b>And how much</b> are the <b>additional amounts</b> that are given? <b>Rabbi Abba bar Memel says</b> that <b>Rav says: In</b> the case of <b>liquids, one-tenth of a <i>litra</i> for</b> every <b>ten <i>litra</i>,</b> i.e., one-hundredth.
+
+### Part 5
+The mishna teaches that the seller adds <b>one-tenth in</b> the case of <b>liquids, and one-twentieth for dry</b> goods. <b>A dilemma was raised before</b> the Sages: With regard to <b>what</b> case <b>is</b> the <i>tanna</i> of the mishna <b>speaking?</b> Does he mean <b>one-tenth in</b> the case of <b>liquids for</b> every <b>ten</b> units <b>of liquid, and</b> similarly <b>one-twentieth in</b> the case of <b>dry</b> goods <b>for</b> every <b>twenty</b> units <b>of dry</b> goods, i.e., one four-hundredth? <b>Or perhaps,</b> he means <b>one-tenth for</b> every <b>ten</b> units <b>of liquid, and</b> similarly one-tenth <b>for</b> every <b>twenty</b> units <b>of dry</b> goods, i.e., one two- hundredth? The Gemara states that the dilemma <b>shall stand</b> unresolved.
+
+### Part 6
+§ <b>Rabbi Levi says: The punishment for</b> using false <b>measures is more severe than the punishment for</b> transgressing the prohibition of <b>forbidden sexual relations. As</b> in <b>that</b> case, forbidden relations, it <b>is stated with regard to them</b> a shortened term for the word “these”: <b>“<i>El</i>,”</b> in the verse: “For all these [<i>el</i> ] abominations” (Leviticus 18:27). <b>And</b> in <b>this</b> case, false measures, it <b>is stated</b> an expanded term for the word “these”: <b>“<i>Elleh</i>,”</b> in the verse: “For all that do these [<i>elleh</i>] things, even all that do unrighteously, are an abomination unto the Lord your God” (Deuteronomy 25:16). <b>And from where may it be inferred that this</b> expression <b>“<i>el</i>”</b> indicates that the prohibition <b>is severe,</b> based on which it is understood that the form this word takes indicates a level of severity? <b>As it is written: “And the mighty [<i>eilei</i>] of the land he took away”</b> (Ezekiel 17:13).
+
+### Part 7
+The Gemara asks: <b>But with regard to forbidden relations isn’t it also written:</b> “For whosoever shall do any of <b>these [<i>elleh</i>]</b> abominations” (Leviticus 18:29)? If so, why is the punishment for using false measures considered harsher? The Gemara answers: <b>That</b> expression of “<i>elleh</i>” (Leviticus 18:29) in the context of forbidden relations does not serve to emphasize its severity. Rather, it serves <b>to exclude</b> one who uses deception in <b>measures from</b> the penalty of <b>excision from the World-to-Come [<i>karet</i>].</b>
+
+### Part 8
+The Gemara asks: <b>But</b> if the punishment is in fact less severe, <b>what is the advantage,</b> i.e., the greater severity, in the case of false measures? The Gemara answers <b>that there,</b> in the case of one who engages in forbidden relations, <b>he has the possibility of repentance. But here,</b> in the case of one who uses false measures, <b>there is no possibility of repentance</b> because he has no way of knowing whom he cheated, and is therefore unable to return the stolen money.
+
+### Part 9
+<b>And Rabbi Levi says: Robbing an ordinary</b> person <b>is more severe than robbing the Most High,</b> i.e., taking consecrated property. <b>As</b> with regard to <b>this</b> regular robber, the verse states <b>“sin” before “<i>me’ila</i>”:</b> “If any one sin, and commit a trespass [<i>me’ila</i>] against the Lord, and deal falsely with his neighbor in a matter of deposit, or of pledge, or of robbery, or have oppressed his neighbor” (Leviticus 5:21). <b>And</b> with regard to <b>that</b> one who misuses consecrated items, the verse states <b><i>me’ila</i> before sin:</b> “If any one engages in misuse [<i>timol ma’al</i>] and sins unwittingly” (Leviticus 5:15).
+
+### Part 10
+<b>And Rabbi Levi says: Come and see that the attribute of flesh and blood is unlike the attribute of the Holy One, Blessed be He. The Holy One, Blessed be He, blessed the Jewish people with twenty-two, and cursed them with</b> only <b>eight.</b> Rabbi Levi explains: <b>He blessed them with</b> the <b>twenty-two</b> letters of the Hebrew alphabet, <b>from</b> the first letter, <i>alef</i>, that begins the verse: <b>“If [<i>im</i>] you</b> walk <b>in My statutes”</b> (Leviticus 26:3), <b>until “upright [<i>komemiyyut</i>]”</b> (Leviticus 26:13), which ends with the letter <i>tav</i>, the last letter of the Hebrew alphabet.
+
+### Part 11
+<b>And He cursed them with eight</b> letters, <b>from</b> the letter <i>vav</i> that begins the verse: <b>“And if [<i>ve’im</i>] you shall reject My statutes”</b> (Leviticus 26:15), <b>until: “And My statutes were abhorred by their soul [<i>nafsham</i>]”</b> (Leviticus 26:43), which ends with the letter <i>mem</i>. There are eight letters in the Hebrew alphabet from the letter <i>vav</i> to the letter <i>mem</i>, inclusive.
+
+### Part 12
+<b>And yet Moses, our teacher,</b> who is flesh and blood, <b>blessed them with eight</b> letters, <b>and cursed them with twenty-two. He blessed them with eight</b> letters,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

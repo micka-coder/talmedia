@@ -1,0 +1,45 @@
+
+### Part 1
+<b>she persuades him with</b> many <b>statements</b> of encouragement and does not treat him harshly. <b>Therefore,</b> in the mitzva of: “Honor your father and your mother” (Exodus 20:11), <b>the Holy One, Blessed be He, preceded</b> the mention of <b>the honor</b> due one’s <b>father before</b> mentioning the <b>honor</b> due one’s <b>mother.</b> The verse emphasizes the duty that does not come naturally. Similarly, <b>it is revealed and known before the One Who spoke and the world came into being that a son fears his father more than his mother, because</b> his father <b>teaches him Torah,</b> and consequently he is strict with him. <b>Therefore,</b> in the verse: “A man shall fear his mother and his father” (Leviticus 19:3), <b>the Holy One, Blessed be He, preceded</b> the mention of <b>fear of the mother before</b> the mention of <b>fear of the father.</b>
+
+### Part 2
+<b>A <i>tanna</i> taught</b> a <i>baraita</i> <b>before Rav Naḥman: When a person causes his father and mother suffering, the Holy One, Blessed be He, says: I did well in not dwelling among them, for if I had dwelled among them they would have caused Me suffering</b> as well, as it were. <b>Rabbi Yitzḥak says: Anyone who transgresses in private, it is</b> considered <b>as though he is pushing away the feet of the Divine Presence,</b> i.e., he distances God from him, so to speak. <b>As it is stated: “So says the Lord: The heaven is My throne and the earth is My footstool”</b> (Isaiah 66:1). When someone sins in secret, he demonstrates that he thinks God is absent from that place, and it is as though he pushes His feet away from the earth.
+
+### Part 3
+With regard to the same issue, <b>Rabbi Yehoshua ben Levi says:</b> It is <b>prohibited for a person to walk</b> even <b>four cubits with an upright posture,</b> which is considered an arrogant manner, <b>as it is stated: “The entire world is full of His glory”</b> (Isaiah 6:3). One who walks in an arrogant manner indicates a lack of regard for the glory and honor of God that is surrounding him, and thereby chases God from that place, as it were. The Gemara relates: <b>Rav Huna, son of Rav Yehoshua, would not walk four cubits with an uncovered head. He said: The Divine Presence is above my head,</b> and I must act respectfully.
+
+### Part 4
+<b>The son of one widow asked Rabbi Eliezer:</b> If my <b>father says</b> to me: <b>Give me water to drink, and</b> my <b>mother</b> also <b>says</b> to me: <b>Give me water to drink, which of them</b> should I honor <b>first?</b> Rabbi Eliezer <b>said to him: Set</b> aside <b>the honor of your mother, and perform the honor of your father, as you and your mother are</b> both <b>obligated in the honor of your father. He came before Rabbi Yehoshua and</b> asked him the same question, and Rabbi Yehoshua <b>said this</b> same answer <b>to him.</b>
+
+### Part 5
+The man <b>said to him: My teacher,</b> if one’s mother <b>is divorced, what is</b> the <i>halakha</i>? Rabbi Yehoshua <b>said to him: From your eyelashes,</b> which are filled with tears, <b>it is evident that you are the son of a widow,</b> and you have no father. Why, then, are you asking this question as though it were relevant for you? Consequently, Rabbi Yehoshua answered him sarcastically: <b>Pour water for them into a pitcher and squawk at them as</b> one does to summon <b>chickens.</b> In other words, if one’s mother is divorced, the same honor is due to both parents, and neither takes precedence.
+
+### Part 6
+§ <b>Ulla the Great interpreted</b> a verse <b>homiletically at the entrance to the house of the <i>Nasi</i>. What</b> is the meaning of that <b>which is written: “All the kings of the earth shall give You thanks, O Lord, for they have heard the words of Your mouth”</b> (Psalms 138:4)? It <b>is not stated: The word of Your mouth,</b> in the singular. <b>Rather,</b> the verse uses the expression: <b>“The words of Your mouth,”</b> in the plural. To what is this phrase referring? <b>When the Holy One, Blessed be He, said: “I am</b> the Lord your God” (Exodus 20:2), <b>and,</b> in the same verse: <b>“You shall have no</b> other gods before Me,” <b>the nations of the world said: He teaches</b> this <b>for His own honor,</b> as both statements entail respect for God.
+
+### Part 7
+<b>Once He said: “Honor your father and your mother”</b> (Exodus 20:11), <b>they returned and conceded</b> the truth <b>of the first statements,</b> which is why the verse uses the plural expression: “Words of Your mouth,” i.e., all the words of God’s mouth. <b>Rava said:</b> This can be derived <b>from here: “The beginning of Your word is truth”</b> (Psalms 119:160). Is <b>the beginning of Your word</b> truth <b>but not the end of Your word? Rather, from the end of Your word it is apparent</b> to everyone <b>that the beginning of Your word is truth.</b>
+
+### Part 8
+The Sages <b>raised a dilemma before Rav Ulla: How far</b> must one go to fulfill the mitzva of <b>honoring one’s father and mother?</b> Rav Ulla <b>said to them: Go and see what one gentile did in Ashkelon, and his name was Dama ben Netina. Once the Sages sought</b> to purchase <b>merchandise [<i>perakmatya</i>]</b> from him <b>for six hundred thousand</b> gold dinars’ <b>profit, but the key</b> for the container in which the merchandise was kept <b>was placed under his father’s head,</b> and he was sleeping at the time. <b>And</b> Dama ben Netina would <b>not disturb</b> his father by waking him, although he could have made a substantial profit.
+
+### Part 9
+<b>Rav Yehuda says</b> that <b>Shmuel says: They asked Rabbi Eliezer: How far</b> must one go to fulfill the mitzva <b>of honoring one’s father and mother?</b> Rabbi Eliezer <b>said to them: Go and see what one gentile did for his father in Ashkelon, and</b> the <b>name</b> of the son <b>was Dama ben Netina.</b> Once <b>the Sages wished</b> to purchase precious <b>stones from him for the ephod</b> of the High Priest <b>for six hundred thousand</b> gold dinars’ <b>profit, and Rav Kahana taught</b> that it was <b>eight hundred thousand</b> gold dinars’ profit. <b>And the key</b> to the chest holding the jewels <b>was placed under his father’s head, and he</b> would <b>not disturb him.</b>
+
+### Part 10
+<b>The next year the Holy One, Blessed be He, gave</b> Dama ben Netina <b>his reward, as a red heifer was born in his herd,</b> and the Jews needed it. When <b>the Sages of Israel came to him he said to them: I know,</b> concerning <b>you, that if I</b> were to <b>ask for all the money in the world you</b> would <b>give</b> it <b>to me. But I ask only that money that I lost due to</b> the <b>honor of Father.</b>
+
+### Part 11
+<b>And Rabbi Ḥanina says: And if</b> this is related about <b>one who is not commanded</b> by the Torah to honor his father, as Dama was a gentile, <b>and</b> nevertheless when <b>he performs</b> the mitzva he is given <b>this</b> great reward, <b>all the more so</b> is one rewarded who is <b>commanded</b> to fulfill a mitzva <b>and performs</b> it. <b>As Rabbi Ḥanina says: Greater</b> is one who <b>is commanded</b> to do a mitzva <b>and performs</b> it <b>than one who is not commanded</b> to do a mitzva <b>and performs</b> it.
+
+### Part 12
+<b>Rav Yosef,</b> who was blind, <b>said: At first I would say:</b> If <b>someone would tell me</b> that the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda, who says: A blind person is exempt from</b> fulfilling <b>the mitzvot, I would make a festive day for the rabbis, as I am not commanded and yet I perform</b> the mitzvot. This means my reward is very great. <b>Now that I have heard that which Rabbi Ḥanina says: Greater</b> is one who <b>is commanded</b> to do a mitzva <b>and performs</b> it <b>than one who is not commanded</b> to do a mitzva <b>and performs</b> it, <b>on the contrary:</b> If <b>someone would tell me</b> that the <b><i>halakha</i></b> is <b>not in accordance with</b> the opinion of <b>Rabbi Yehuda,</b> and a blind person is obligated in mitzvot, <b>I would make a festive day for the rabbis.</b>
+
+### Part 13
+<b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, <b>he said: Once</b> Dama ben Netina <b>was wearing a fine cloak [<i>sirkon</i>] of gold, and was sitting among the nobles</b> of <b>Rome. And his mother came to him and tore</b> his garment <b>from him and smacked him on the head and spat in his face, and</b> yet <b>he did not embarrass her.</b>
+
+### Part 14
+<b>Avimi, son of Rabbi Abbahu, taught: There is</b> a type of son <b>who feeds his father pheasant [<i>pasyonei</i>] and</b> yet this behavior <b>causes him to be removed from the World,</b> i.e., the World-to-Come; <b>and there is</b> one <b>who makes him grind with a millstone,</b> which is difficult work,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

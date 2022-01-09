@@ -1,0 +1,45 @@
+
+### Part 1
+<b>who is he?</b> He is <b>Rav Yehuda,</b> as the Gemara cited above. <b>But didn’t Rav Yehuda</b> himself <b>say:</b> With regard to <b>one who is a half-slave half-freeman who engaged in intercourse with a Jewish woman, that offspring</b> of that union <b>has no recourse</b> to be able to marry? It is apparent, then, that even one who permits the offspring of a slave to marry into the congregation of Israel does not permit the offspring of a half-slave to do so, contrary to Rava’s assertion.
+
+### Part 2
+The Gemara resolves the difficulty: <b>When</b> this ruling <b>of Rav Yehuda was stated,</b> it was referring to a case <b>where</b> the half-slave <b>betrothed a Jewish woman.</b> Since a slave’s betrothal does not take effect, the result of that betrothal is that the woman is married to only the free half of the half-slave half-freeman, such <b>that it emerges</b> that when he has relations with her, the <b>slave side of him is engaging in relations with a married woman</b> to whom that side of him is not married, and so the offspring of that union is a <i>mamzer</i>.
+
+### Part 3
+The Gemara raises an objection: <b>But didn’t</b> the Sages <b>of Neharde’a say in the name of Rabbi Ya’akov: According to the statement of the one who renders</b> the child of a gentile or slave and a Jewish woman <b>unfit</b> to marry into the congregation of Israel, <b>he renders</b> the child <b>unfit even when</b> the mother is <b>an unmarried woman.</b> And <b>according to the statement of the one who renders</b> the child <b>fit, he renders</b> the child <b>fit even when</b> the mother <b>is a married woman.</b>
+
+### Part 4
+<b>And both of them derived</b> their opinions <b>only from</b> the <i>halakha</i> of one’s <b>father’s wife,</b> as follows: <b>The one who renders</b> the child <b>unfit holds</b> that <b>just as</b> with regard to one’s <b>father’s wife,</b> one’s <b>betrothal of her does not take effect</b> even after she is widowed or divorced, and so <b>the offspring</b> of such a union <b>is a <i>mamzer</i>, so too,</b> with regard to <b>any</b> one for whom <b>betrothal of her does not take effect,</b> including a gentile or a slave, <b>the offspring is a <i>mamzer</i>.</b>
+
+### Part 5
+<b>And the one who renders</b> the child <b>fit holds</b> that the derivation from the <i>halakha</i> of one’s father’s wife is more limited, and it is derived that the offspring is a <i>mamzer</i> only in a case <b>just like</b> one’s <b>father’s wife,</b> in <b>that</b> although his <b>betrothal of her does not take effect, with someone else</b> his <b>betrothal</b> of her <b>does take effect.</b> This is <b>to the exclusion of a gentile and a slave, for whom betrothal</b> of any Jewish woman <b>does not take effect at all,</b> and so the offspring of such a union will not be a <i>mamzer</i>. It is apparent from this statement of the Sages of Neharde’a that according to the lenient opinion, the offspring of a slave is never a <i>mamzer</i>, irrespective of the marital status of the Jewish woman. Therefore, the Gemara’s resolution is undermined.
+
+### Part 6
+The Gemara offers a different resolution: <b>Rather, when</b> this statement <b>of Rav Yehuda was stated,</b> it was referring to a case <b>where</b> the half-slave half-freeman <b>engaged in intercourse with a married woman</b> who was married to someone else, <b>and it</b> therefore <b>emerges</b> that although the woman’s union with the slave side of him will not render the offspring a <i>mamzer</i>, the <b>free side of him is engaging in relations with a married woman</b> to whom he is not married, and due to that side of him the offspring is a <i>mamzer</i>.
+
+### Part 7
+<b>Ravina said: Rav Gazza said to me</b> that <b>Rabbi Yosei bar Avin</b> once <b>happened</b> to come <b>to our place, and there was an incident involving an unmarried woman</b> who had engaged in intercourse with a slave, <b>and</b> Rabbi Yosei bar Avin <b>rendered</b> her offspring <b>fit</b> to marry into the congregation of Israel. And there was another incident <b>involving a married woman</b> who had engaged in intercourse with a slave, <b>and he rendered</b> her offspring <b>unfit</b> to marry into the congregation of Israel by ruling the offspring was a <i>mamzeret</i>. <b>Rav Sheshet said: Rav Gazza told me</b> that it was <b>not Rabbi Yosei bar Avin; rather, it was Rabbi Yosei, son of Rabbi Zevida, and he rendered</b> the offspring <b>fit both in</b> the case of <b>an unmarried woman and in</b> the case of <b>a married woman. Rav Aḥa, son of Rabba, said to Ravina: Ameimar</b> once <b>happened</b> to come <b>to our place and rendered</b> the offspring <b>fit both in</b> the case of <b>an unmarried woman and in</b> the case of <b>a married woman.</b>
+
+### Part 8
+The Gemara concludes: <b>And the <i>halakha</i></b> is that with regard to <b>a gentile or slave who engaged in intercourse with a Jewish woman,</b> the lineage of <b>the offspring is unflawed, whether</b> she was <b>an unmarried or a married woman.</b>
+
+### Part 9
+The Gemara cites a related <i>halakha</i>: <b>Rava ruled</b> that <b>Rav Mari bar Raḥel,</b> who was the son of a gentile father and a Jewish mother, was <b>fit</b> to marry into the congregation of Israel, <b>and</b> furthermore <b>he appointed him as one of the officials [<i>pursei</i>] of Babylonia. And although the Master said</b> that from the verse, <b>“You shall place a king over you</b> whom the Lord your God shall chose; from among your brethren shall you place a king over you” (Deuteronomy 17:15) it is derived that not only with regard to the kingship but also with regard to <b>all positions</b> of authority <b>that you appoint,</b> the incumbents <b>may be</b> selected <b>only from among your brethren</b> who share your Jewish lineage. Nevertheless, with regard to <b>this one,</b> i.e., Rav Mari bar Raḥel, <b>since his mother is of Jewish</b> lineage, <b>we call him “from among your brethren,”</b> and so he is eligible.<br>§ A gentile slave purchased by a Jew must be circumcised and then immersed in a ritual bath. By being immersed for the sake of slavery, he takes on the status of a full slave, which, among other things, obligates him to keep certain mitzvot. However, if the slave, or any gentile, is immersed for the sake of conversion, he then becomes a full Jew and fully obligated in mitzvot like any other Jew.
+
+### Part 10
+The Gemara considers the result of different intentions accompanying an immersion: <b>Rabbi Ḥiyya bar Ami’s slave immersed a certain gentile woman for the sake of</b> having <b>intimate relations,</b> i.e., to purify her from her menstrual impurity. <b>Rav Yosef said: I am able to render</b> both <b>her and her daughter fit</b> to marry into the congregation of Israel.
+
+### Part 11
+<b>With regard to her,</b> I can render her fit <b>in accordance with</b> the opinion <b>of Rav Asi, as Rav Asi said</b> concerning a woman whose status as a convert was unclear but who lived as a part of the Jewish people and acted like all other Jewish women: <b>Didn’t she immerse for the sake of</b> purifying herself from <b>her menstruation?</b> Therefore, even if the original immersion was invalid, her intention in subsequent immersions was sufficient to be considered for the sake of conversion, since ultimately she immersed as an expression of her commitment to Judaism. She is therefore fully Jewish.
+
+### Part 12
+And <b>with regard to her daughter,</b> she is the daughter of <b>a gentile or slave who engaged in intercourse with a Jewish woman,</b> and the <i>halakha</i> is that the lineage of <b>the offspring is unflawed.</b>
+
+### Part 13
+The Gemara details the circumstances of Rav Asi’s ruling: There was <b>a certain</b> man <b>whom</b> people <b>would call: Son of the Aramean woman,</b> as they cast aspersions on the validity of his mother’s conversion. With regard to that case, <b>Rav Asi said: Didn’t she immerse for the sake of</b> purifying herself from <b>her menstruation?</b> A similar incident is recounted: There was <b>a certain</b> man <b>whom</b> people <b>would call: Son of an Aramean man,</b> as they cast aspersions on the validity of his father’s conversion. <b>Rabbi Yehoshua ben Levi said: Didn’t he immerse for the sake of</b> purifying himself from <b>his seminal emission?</b> That intention is sufficient to consider the immersion an immersion for the sake of conversion.
+
+### Part 14
+<b>Rav Ḥama bar Gurya said</b> that <b>Rav said:</b> In the case of a Jew <b>who purchased a slave from a gentile, and</b> before he managed to immerse him for the sake of slavery the slave <b>preempted</b> him <b>and immersed for the sake of</b> conversion to render himself <b>a freeman, he</b> thereby <b>acquired himself</b> and becomes <b>a freeman,</b> i.e., his immersion effects a full conversion and he is no longer a slave. <b>What is the reason</b> for this <i>halakha</i>?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

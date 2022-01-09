@@ -1,0 +1,60 @@
+
+### Part 1
+<b>Had</b> the Torah merely <b>stated: “You shall not let your cattle copulate,” I would have said</b> that <b>a person may not hold the</b> female <b>animal when a male mounts it.</b> Therefore, <b>the verse states: “With a diverse kind”</b> (Leviticus 19:19). This shows that <b>it is</b> a crossbreed of <b>diverse kinds that is prohibited,</b> from which it may be inferred that mating an animal of one <b>species with</b> an animal <b>of its</b> own <b>species is permitted.</b>
+
+### Part 2
+Rav Aḥadvoi bar Ami infers from the <i>baraita</i>: <b>And even</b> concerning mating an animal of one <b>species with</b> an animal <b>of its</b> own <b>species,</b> with regard to <b>holding, yes,</b> this is permitted, but with regard to <b>inserting, no,</b> this is not allowed. The fact that the <i>tanna</i> specifies the act of holding indicates that inserting is prohibited even in the case of two animals of the same species. The Gemara again rejects this claim: <b>What is</b> the meaning of <b>holding</b> in this context? It means <b>inserting. And why does</b> the <i>tanna</i> <b>call it holding?</b> It is <b>a euphemism.</b>
+
+### Part 3
+<b>Rav Ashi said: This matter was asked of me</b> by the members <b>of the house</b> of <b>Rav Neḥemya, the Exilarch: What is</b> the <i>halakha</i> with regard to <b>bringing into</b> the same <b>pen</b> an animal of one <b>species</b> with two other animals, one <b>of its</b> own <b>species and</b> the other <b>of a species different from it?</b> Is the <i>halakha</i> that <b>since there is</b> another animal of <b>its</b> own <b>species, it will be drawn after its species,</b> and therefore there is no concern whatsoever with regard to diverse kinds, <b>or perhaps</b> one should <b>not</b> act <b>even</b> in <b>this</b> manner, in case it leads to crossbreeding? <b>And I resolved</b> it <b>for them</b> by saying <b>that</b> there is <b>a prohibition,</b> but this was <b>not in accordance with the <i>halakha</i>.</b> The reason for my decision was <b>due to the immorality of the slaves.</b> I reasoned that if they are permitted to engage in this practice, they will intentionally crossbreed and claim that it occurred without their intervention.
+
+### Part 4
+<strong>MISHNA:</strong> If a laborer <b>was performing</b> labor <b>with his hands but not with his feet,</b> or <b>with his feet but not with his hands,</b> e.g., pressing grapes, or <b>even</b> if he was performing labor only <b>with his shoulder, this one may eat</b> the produce of the field. <b>Rabbi Yosei, son of Rabbi Yehuda, says:</b> A laborer may not eat <b>unless he performs</b> labor <b>with his hands and with his feet.</b>
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara asks: <b>What is the reason</b> for the ruling of the Rabbis stated in the first clause of the mishna? The Gemara explains that the verse states: <b>“When you come into your neighbor’s vineyard”</b> (Deuteronomy 23:25). Since the Torah does not specify a particular kind of task, it is understood as referring <b>to any</b> labor <b>he performs.</b>
+
+### Part 6
+The mishna teaches that <b>Rabbi Yosei, son of Rabbi Yehuda, says:</b> A laborer may not eat <b>unless he performs</b> labor <b>with his hands and with his feet.</b> The Gemara asks: <b>What is the reasoning of Rabbi Yosei, son of Rabbi Yehuda?</b> The Gemara explains: This <i>halakha</i> is <b>like</b> that of a threshing <b>ox; just as</b> one is not required to let <b>an ox</b> feed <b>unless it is performing</b> labor <b>with its hands and with its feet,</b> as it uses all four of its legs to thresh, <b>so too a laborer</b> is not entitled to eat <b>unless he is performing</b> labor <b>with his hands and with his feet.</b>
+
+### Part 7
+§ With regard to a similar issue, <b>Rabba bar Rav Huna raised a dilemma:</b> If one <b>threshed with geese and chickens,</b> rather than four-legged animals, <b>what is</b> the <i>halakha</i> <b>according to</b> the opinion of <b>Rabbi Yosei, son of Rabbi Yehuda?</b> The Gemara clarifies the sides of the dilemma: Do <b>we require</b> threshing <b>with all its force,</b> as it is for this reason that an ox must thresh with all four of its legs, <b>and</b> that condition <b>is</b> fulfilled <b>here,</b> as these birds perform labor with all their strength, <b>or perhaps we require</b> that the animal must actually perform labor <b>with its hands and with its feet,</b> i.e., with all four legs, <b>and this</b> is <b>not</b> the case here? No answer was found, and the Gemara says that the dilemma <b>shall stand</b> unresolved.
+
+### Part 8
+<b>Rav Naḥman says</b> that <b>Rabba bar Avuh says:</b> With regard to <b>laborers</b> in a vineyard, <b>until they have walked lengthwise and crosswise in the winepress,</b> the first stage of the making of wine, <b>they may eat grapes,</b> as they are performing labor with grapes, but <b>they may not</b> yet <b>drink wine,</b> since their labor has not produced wine. <b>Once they have walked lengthwise and crosswise in the winepress,</b> they are now performing labor with wine as well, and therefore <b>they may eat grapes and drink wine.</b>
+
+### Part 9
+<strong>MISHNA:</strong> If a laborer <b>was performing</b> labor <b>with figs he may not eat grapes;</b> if he was performing labor <b>with grapes he may not eat figs,</b> as he may eat only the type of food with which he is working. This is the <i>halakha</i> even if he was employed to perform labor with both types of produce but is currently performing labor with only one of them. <b>But</b> he <b>may hold himself back</b> from eating <b>until he reaches a place of good</b>-quality grapes or figs <b>and eat</b> from these, as they are the same type of food.
+
+### Part 10
+<b>And</b> with regard to <b>all of these</b> cases the Sages <b>said</b> that he may eat <b>only at the time of work. But due to</b> the obligation to <b>restore lost property to its owners,</b> i.e., so that workers would not neglect their task, <b>they said</b> that <b>laborers may eat as they walk from</b> one <b>row</b> of a vineyard or plantation <b>to</b> another <b>row, and upon their return from the winepress. And with regard to a donkey,</b> it is permitted to eat <b>when it is being unloaded.</b> This statement will be explained in the Gemara.
+
+### Part 11
+<strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages with regard to the ruling of the mishna: If a laborer was <b>performing</b> labor <b>on this vine, what is</b> the <i>halakha</i> concerning the possibility <b>that he may eat from another vine?</b> Do <b>we require</b> only that the food must be <b>from the type that you are placing into the homeowner’s vessels, and</b> this condition <b>is</b> fulfilled <b>here, or perhaps we require</b> that it must be <b>from that</b> very food <b>which you are placing into the homeowner’s vessels, and</b> this is <b>not</b> the case <b>here?</b>
+
+### Part 12
+<b>And if you say</b> that one who was <b>performing</b> labor <b>on this vine may not</b> in fact <b>eat from another vine,</b> a further question arises: With regard to <b>an ox</b> performing labor <b>with</b> produce <b>attached</b> to the ground, <b>how can</b> one enable it to <b>eat?</b> The ox is tied to the front of the wagon, while the laborers are working on a vine adjacent to the wagon. Consequently, it is impossible for the ox to eat from the vine on which labor is being performed. <b>Rav Sheisha, son of Rav Idi, said:</b> In the case <b>of long branches</b> it is possible for the animal to perform labor at one end of the branch while eating from the other.
+
+### Part 13
+This difficulty has been resolved, but the original dilemma remains. The Gemara therefore suggests: <b>Come</b> and <b>hear</b> a resolution from the mishna: If a laborer <b>was performing</b> labor <b>with figs he may not eat grapes.</b> This indicates that if the two types of produce are <b>figs and</b> other <b>figs, similar to</b> the <b>figs and grapes</b> mentioned in the mishna, <b>he may eat. Now, if you say</b> that one who was <b>performing</b> labor <b>on this vine may not eat from another vine, how can you find these</b> circumstances? <b>Rav Sheisha, son of Rav Idi, said:</b> The ruling of the mishna is stated <b>with regard to a hanging</b> vine, and he eats from one edge of the branch while working on the other side.
+
+### Part 14
+The Gemara offers another suggestion: <b>Come</b> and <b>hear</b> another resolution from the mishna: <b>But</b> he <b>may hold himself back</b> from eating <b>until he reaches a place of good</b>-quality fruit <b>and eat. And if you say</b> that one who was <b>performing</b> labor <b>on this vine may eat from another vine, let him go and bring and eat.</b> Why must he wait until he reaches that particular vine? The Gemara answers: <b>There,</b> the reason is <b>due to</b> the <b>neglect of work</b> caused by the laborer walking to the other vine. <b>We do not raise the dilemma</b> with regard to that case, as he may certainly not stop performing labor to go and eat elsewhere. <b>When</b> the <b>dilemma was raised before us,</b> it was with regard to a case <b>where his wife and children are</b> present. <b>What</b> is the <i>halakha</i> as to whether his family members, who are not performing labor, may bring him fruit?
+
+### Part 15
+Once again the Gemara suggests: <b>Come</b> and <b>hear</b> a resolution from the mishna: <b>And</b> with regard to <b>all of these</b> cases <b>they said</b> that he may eat <b>only at the time of work. But due to</b> the mitzva to <b>restore lost property to its owners,</b> the Sages <b>said</b> that <b>laborers may eat as they walk from</b> one <b>row to</b> another <b>row, and upon their return from the winepress.</b>
+
+### Part 16
+The Gemara explains the attempted resolution: The Sages <b>assumed</b> that the basic principle of this <i>halakha</i> is that a laborer who was <b>walking is considered like</b> one who was <b>performing</b> his <b>labor,</b> and it is therefore permitted for him to eat. <b>And</b> yet, <b>it is due to</b> the mitzva to <b>restore lost property to its owner that he may eat,</b> whereas <b>by Torah law he may not eat.</b> But if he is performing labor, why is he not allowed to eat? <b>Apparently,</b> this indicates that <b>one who</b> was <b>performing</b> labor <b>on this vine may not eat from another vine,</b> and therefore once he starts walking and is no longer alongside the vine he may not partake of it by Torah law.
+
+### Part 17
+The Gemara refutes this argument: <b>No; actually, I</b> could <b>say to you</b> that <b>one who</b> was <b>performing</b> labor <b>on this vine may</b> even <b>eat from another vine,</b> but a laborer who was <b>walking is not considered like</b> one who was <b>performing</b> his <b>labor.</b> The reason that he is not permitted to eat by Torah law is not because he is performing labor on a different vine, but because he is walking at the time.
+
+### Part 18
+The Gemara cites an alternative version of this discussion. <b>There are</b> those <b>who say</b> as follows: The Sages <b>assumed</b> that a worker who was <b>walking is not</b> considered <b>like</b> one who was <b>performing</b> his <b>labor, and this is the reason that</b> the <i>baraita</i> says that <b>he may not eat by Torah law: Because he is not</b> considered <b>like</b> one who was <b>performing</b> his <b>labor. This</b> indicates that if he is <b>performing</b> his <b>labor, he may eat by Torah law. Apparently,</b> it may be inferred <b>that one who</b> was <b>performing</b> labor <b>on this vine may eat from another vine.</b>
+
+### Part 19
+The Gemara rejects this claim: <b>No;</b> this is not a proof, as <b>actually I</b> could <b>say to you</b> that <b>one who</b> was <b>performing</b> labor <b>on this vine may not eat from another vine,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

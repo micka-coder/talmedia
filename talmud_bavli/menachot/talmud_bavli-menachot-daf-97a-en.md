@@ -1,0 +1,42 @@
+
+### Part 1
+the Table’s <b>rim [<i>levazbazin</i>]</b> as well as the Table itself, <b>or</b> even to a case <b>where</b> one <b>did not cover</b> its <b>rim? And</b> Rabbi Yoḥanan <b>said to</b> Reish Lakish: The case of <b>a permanent covering is not different, and</b> the case of <b>a covering that is not permanent is not different.</b> Likewise, the case where one <b>covered</b> the <b>rim is not different, and</b> the case where one <b>did not cover</b> the <b>rim is not different.</b> In any case a vessel’s status is determined according to the material of the external covering, and the shewbread Table should be susceptible to impurity because its external covering was of gold. It is therefore not necessary to derive that the Table is susceptible to impurity due to the fact that it is not designated to rest in a fixed place.
+
+### Part 2
+The Gemara suggests another explanation: <b>And if you would say</b> that the <b>acacia wood</b> from which the shewbread Table is fashioned is different, as it is <b>an important,</b> valuable type of wood <b>and</b> therefore the Table’s status as a wooden vessel <b>is not negated</b> by the fact that it was covered with gold, there would still be a difficulty. <b>This</b> explanation <b>works out well according to</b> the opinion of <b>Reish Lakish, who said:</b> The mishna <b>taught</b> that the status of a wooden vessel is determined according to the material of its covering <b>only with regard to vessels</b> made <b>of</b> medium-grade <b><i>akhsalgos</i></b> wood, <b>which come from overseas, but vessels</b> made <b>of</b> expensive <b><i>masmas</i></b> wood <b>are important, and</b> therefore their status as wooden vessels <b>is not negated</b> by the covering. According to this opinion the ruling works out <b>well,</b> as the acacia wood of the shewbread Table is also valuable. <b>But according to</b> the opinion of <b>Rabbi Yoḥanan, who said</b> the importance of <b><i>masmas</i> vessels is also negated</b> by the covering, <b>what is there to say?</b>
+
+### Part 3
+The Gemara answers: The <b>Table is different, because the Merciful One called it wood, as it is stated: “The altar was of wood, three cubits high,</b> and <b>its length two cubits, and so its corners; and its length, and its walls were also of wood, and he said to me: This is the Table that is before the Lord”</b> (Ezekiel 41:22). This verse is referring to the shewbread Table, and it describes it as being made of wood, even though the wood was not visible. This indicates that its status is like that of all wooden vessels, which are not susceptible to impurity unless they are carried both when empty and when full.
+
+### Part 4
+The Gemara challenges: Why does the verse <b>begin with the</b> word <b>“altar” and conclude with the</b> word <b>“Table,”</b> even though both terms are referring to the same item? <b>Rabbi Yoḥanan and Rabbi Elazar both say</b> the following interpretation: <b>When the Temple is standing,</b> the <b>altar effects atonement for</b> the transgressions of <b>a person, but now that the Temple is not standing, a person’s table effects atonement for his</b> transgressions, if he provides for the poor and needy from the food on his table.
+
+### Part 5
+§ The mishna describes the shewbread Table (96a): <b>There were four panels of gold there,</b> which split up at their upper ends, above the Table, and there were twenty-eight rods that rested upon the panels. The Gemara asks: <b>From where are these matters</b> derived? <b>Rav Ketina said: The verse states</b> with regard to the Table: <b>“And you shall make its dishes and its pans, <i>uksotav umnakkiyyotav</i>,</b> with which it shall be covered; of pure gold you shall make them” (Exodus 25:29).
+
+### Part 6
+Rav Ketina interprets the verse: <b>“Its dishes,” these are</b> the <b>molds</b> in which the loaves are kneaded, baked, and placed after baking (see 94a). <b>“Its pans,” these are</b> the <b>bowls</b> for the frankincense that is placed on the Table with the shewbread. <b>“<i>Kesotav</i>,” these are</b> the four <b>panels</b> of gold. <b>“<i>Umnakkiyyotav</i>,” these are</b> the <b>rods,</b> which rest on the notches in the panels and bear the loaves, one on top of the other. <b>“With which it shall be covered,”</b> this indicates <b>that the bread is covered by</b> the rods.
+
+### Part 7
+<b>Rava raises an objection</b> to this interpretation, which indicates that the rods are required by Torah law: The mishna states: <b>Neither the arranging of the rods</b> for the new shewbread, <b>nor their removal</b> from the arrangement of the old shewbread, <b>overrides Shabbat. And if it enters your mind</b> to say the rods are required <b>by Torah</b> law, <b>why does</b> their arrangement <b>not override Shabbat?</b>
+
+### Part 8
+<b>Rava then said: That which I said,</b> that one can infer from the mishna that the rods are not required by Torah law, <b>is not correct, as we learned</b> in the mishna that <b>Rabbi Akiva stated a principle: Any labor that can be performed on Shabbat eve does not override Shabbat. And these</b> actions, arranging and removing the rods, <b>can also</b> be performed in a manner <b>that does not</b> require <b>overriding Shabbat for them,</b> as the rods can be removed before Shabbat, and the rods can be arranged for the new loaves once Shabbat has ended.
+
+### Part 9
+Rava explains why the rods can be arranged after Shabbat: <b>What is the reason</b> that the rods are required? They are necessary in order to create a gap between the loaves, so that the <b>bread does not become moldy. In</b> such a short time <b>period as this,</b> from when the new loaves are placed on the Table on Shabbat until the arrangement of the rods after Shabbat, the loaves will <b>not become moldy.</b>
+
+### Part 10
+This is <b>as it is taught</b> in a <i>baraita</i> with regard to the removal and arrangement of the rods: <b>How</b> does the priest proceed? <b>He enters</b> the Sanctuary <b>on Shabbat eve and removes</b> the rods from between the loaves. <b>And he places them</b> in the space of two handbreadths between the two arrangements, <b>along the length of</b> the <b>Table. And</b> at <b>the conclusion of Shabbat he enters</b> the Sanctuary again. <b>He raises the ends of a loaf</b> of the shewbread <b>and inserts a rod underneath it, and again raises the ends of a loaf and inserts a rod underneath it.</b>
+
+### Part 11
+The <i>baraita</i> continues to describe the placement of the rods: Each arrangement contains six loaves. The <b>four loaves</b> in the middle of the six <b>require three</b> for the first of the four middle loaves, and likewise <b>three rods</b> for each of the other middle loaves, totaling twelve rods. <b>The upper</b> loaf <b>requires only two</b> rods, <b>as</b> the <b>weight</b> of another loaf <b>does not</b> bear <b>upon it.</b> Each arrangement therefore requires a total of fourteen rods, and the two arrangements require twenty-eight rods. As for <b>the lowest</b> loaf of each arrangement, <b>it does not require</b> rods <b>at all, as it rests on the Table itself.</b>
+
+### Part 12
+§ <b>We learned</b> in a mishna <b>there</b> (<i>Kelim</i> 17:10) that <b>Rabbi Meir says: All</b> the <b>cubits that were</b> mentioned <b>with regard to the Temple</b> were <b>medium</b> cubits, consisting of six handbreadths, <b>except</b> in the case <b>of</b> the following items: <b>The golden altar,</b> which was one cubit long and one cubit wide; each protruding <b>corner</b> of the external altar, which were one cubit long, one cubit wide, and one cubit high; <b>the surrounding ledge</b> of the external altar, which was five cubits high and one cubit wide; <b>and the base</b> of the altar, which was one cubit high and one cubit wide. In all these cases, the cubit was of five handbreadths. <b>Rabbi Yehuda says:</b> The measure of <b>a cubit</b> that was used with regard to the <b>building</b> of the Temple was a cubit of <b>six handbreadths, but</b> the cubit mentioned <b>with regard to</b> the Temple <b>vessels,</b> e.g., the Table, the Candelabrum and the golden altar, was a smaller cubit of <b>five</b> handbreadths.
+
+### Part 13
+<b>Rabbi Yoḥanan says: And both</b> Rabbi Meir and Rabbi Yehuda <b>derived</b> their opinions from <b>the same verse: “And these are the measures of the altar by cubits: The cubit is a cubit and a handbreadth,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

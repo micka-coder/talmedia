@@ -1,0 +1,60 @@
+
+### Part 1
+<b>It is</b> the opinion of <b>Rabbi Yosei, who says:</b> Verbal <b>directives cannot be delegated to an agent,</b> and there is no concern that the scribe signed the document without the husband instructing him to do so.
+
+### Part 2
+<b>And if it enters your mind</b> to say that <b>Rabbi Yosei concedes in</b> the case of one who <b>says: Tell</b> another to write it, <b>a pitfall will result from it. As sometimes,</b> it happens <b>that one said to two</b> people: <b>Tell a scribe and he will write</b> the document <b>and</b> tell <b>so-and-so and so-and-so and they will sign</b> it. <b>And due to the shame of the scribe,</b> who asks: Don’t you consider me a sufficiently upright person to sign the document as a witness, the agents <b>are concerned</b> to avoid that disgrace <b>and</b> they will <b>have one of those witnesses and the scribe sign together with him, and the husband did not say</b> to do <b>so.</b> This bill of divorce is invalid because it was signed contrary to the husband’s instructions, and the agents will mistakenly think it is valid.
+
+### Part 3
+The reason that this is not a concern must be because Rabbi Yosei holds that even if the husband says to the agents: Tell the scribe to write, the bill of divorce is not valid. <b>Rather, it is clear</b> that <b>the first clause</b> of the mishna is in accordance with the opinion of <b>Rabbi Meir and the latter clause</b> is in accordance with the opinion of <b>Rabbi Yosei.</b>
+
+### Part 4
+<b>Rav Ashi said</b> an alternative explanation of the attribution of the mishna: The mishna in <b>its entirety is</b> in accordance with the opinion of <b>Rabbi Yosei,</b> who said that verbal directives cannot be delegated to an agent, <b>and it is speaking</b> utilizing the style of: <b>It is not necessary,</b> as follows: <b>It is not necessary</b> to state that the bill of divorce is not valid in a case <b>where he did not say</b> to the agents: <b>Give</b> the document to my wife; <b>rather, even</b> if <b>he said</b> to the agents: <b>Give</b> the bill of divorce to my wife, the document is <b>not</b> valid. <b>And it is not necessary</b> to state the <i>halakha</i> in a case <b>where</b> the husband <b>did not say</b> his instructions <b>to three</b> people; <b>rather, even</b> if <b>he said</b> his instructions <b>to three</b> people, <b>no,</b> the bill of divorce is not valid. <b>And it is not necessary</b> to state the <i>halakha</i> in a case <b>where</b> the husband <b>did not say</b> to the agents: <b>Say</b> my instructions to a scribe, <b>but even</b> if <b>he said: Say</b> my instructions to a scribe, the bill of divorce is <b>also not</b> valid.
+
+### Part 5
+The Gemara notes: It <b>is taught</b> in a <i>baraita</i> (<i>Tosefta</i> 2:7–8) <b>in accordance with</b> the opinion <b>of Rav Ashi</b> that Rabbi Yosei validated the bill of divorce even if the husband said: Tell my instructions to a scribe, as it is taught: If <b>the scribe wrote</b> the bill of divorce <b>for her sake and the witnesses signed it for her sake</b> then <b>even though they wrote it, and they signed it, and they gave it to</b> the husband <b>and he gave it to</b> his wife, <b>the bill of divorce is void until they hear</b> the husband’s <b>voice when he says to the scribe: Write</b> the document for the sake of my wife, <b>and to the witnesses: Sign</b> the document for the sake of my wife.
+
+### Part 6
+The inference from the <i>baraita</i> is that it uses the term: Until <b>they hear,</b> serves <b>to exclude</b> the opinion of <b>the one who said: Rabbi Yosei concedes in</b> a case where the husband <b>says: Say</b> my instructions to the scribe; because the scribe and the witnesses must hear the husband themselves. Furthermore, the <i>baraita</i> uses the term: <b>His voice, to exclude that which Rav Kahana</b> says that <b>Rav says,</b> that a husband may issue written instructions to the scribe and witnesses. According to the <i>baraita</i> the instructions must be verbal.
+
+### Part 7
+<strong>MISHNA:</strong> If one says to his wife: <b>This is your bill of divorce if I die,</b> or: <b>This is your bill of divorce</b> if I die <b>from this illness,</b> or: <b>This is your bill of divorce after</b> my <b>death,</b> then it is as if <b>he said nothing,</b> since a bill of divorce is valid only if it takes effect before the husband’s death. But if the husband said to his wife: This is your bill of divorce <b>from today if I die,</b> or: This is your bill of divorce <b>from now if I die,</b> then <b>this is</b> a valid <b>bill of divorce,</b> because once he dies, the bill of divorce retroactively applies from when he made this statement.
+
+### Part 8
+If the husband says to his wife: This is your bill of divorce <b>from today and after</b> my <b>death,</b> then it is uncertain whether his primary intention was for the bill of divorce to take effect that day, in which case it is a valid bill of divorce, or if his primary intention was that it should take effect after his death and is therefore not valid. The <i>halakha</i> is that there is uncertainty whether it is a valid <b>bill of divorce or not</b> a valid <b>bill of divorce. And if he dies</b> without children his wife must <b>perform <i>ḥalitza</i>,</b> since perhaps the bill of divorce is not valid and she is bound by the levirate bond and may not remarry without first performing <i>ḥalitza</i>. <b>But she may not enter into levirate marriage,</b> since perhaps the bill of divorce is valid, and it is prohibited for a divorcée to marry her brother-in-law.
+
+### Part 9
+If he said: <b>This is your bill of divorce from today if I die from this illness,</b> and he recovered, <b>and he arose and walked in the market, but</b> then <b>became ill</b> again <b>and died,</b> the court <b>assesses him. If he died because of the first illness</b> then <b>this is</b> a valid <b>bill of divorce,</b> as his conditional statement was fulfilled, <b>but if not,</b> i.e., if he was cured from the first illness and died from another illness, then <b>it is not</b> a valid <b>bill of divorce.</b>
+
+### Part 10
+<strong>GEMARA:</strong> The mishna teaches: If one says to his wife: This is your bill of divorce if I die, then it is as if he said nothing. The Gemara deduces: <b>Apparently,</b> the formulation: <b>If I die,</b> is <b>considered</b> to be <b>like</b> the formulation: The bill of divorce will be valid only <b>after</b> my <b>death. And afterward</b> the mishna <b>teaches:</b> If he said: This is your bill of divorce <b>from today if I die,</b> or: This is your bill of divorce <b>from now if I die,</b> then this is a valid bill of divorce. <b>Apparently,</b> the formulation: <b>If I die,</b> is <b>not considered</b> to be <b>like</b> the formulation: The bill of divorce will be valid only <b>after</b> my <b>death.</b> As explained previously in the mishna, a bill of divorce which takes effect only after the husband’s death is not a valid bill of divorce. There is an apparent contradiction as to the meaning of the term: If I die.
+
+### Part 11
+<b>Abaye said:</b> The expression: <b>If I die, indicates two</b> different <b>meanings.</b> It <b>indicates</b> the same meaning <b>as</b> one who says: <b>From now,</b> i.e., that the bill of divorce will take effect after death retroactively from now. <b>And</b> it <b>indicates</b> the same meaning <b>as</b> one who says: <b>After</b> my <b>death,</b> i.e., that the bill of divorce will take effect only after his death.
+
+### Part 12
+If the husband <b>said to</b> his wife: <b>From today</b> if I die, it is <b>considered</b> to be <b>like one who says to her: From now,</b> conditional upon my death. But if <b>he did not say to her: From today,</b> it is <b>considered</b> to be <b>like one who says to her: After</b> my <b>death,</b> and the bill of divorce is void because it takes effect only after his death.
+
+### Part 13
+§ The mishna teaches that if one says to his wife: <b>This is your bill of divorce if I die,</b> then it is as if <b>he said nothing. Rav Huna says: But</b> if her husband died without children this woman must <b>perform <i>ḥalitza</i></b> and not enter into a levirate marriage because perhaps it is a valid bill of divorce.
+
+### Part 14
+The Gemara raises a challenge: <b>But isn’t</b> the expression: It is as if <b>he said nothing, taught</b> in the mishna? The Gemara answers: The mishna means that it is as if <b>he said nothing</b> with regard to the fact that <b>she is</b> still <b>forbidden to everyone</b> after the death of her husband, and is bound by a levirate bond. <b>And she is also forbidden to the <i>yavam</i></b> because perhaps the bill of divorce was valid, in which case she has no levirate bond.
+
+### Part 15
+The Gemara raises a challenge: <b>But since the latter clause</b> of the mishna teaches that in those cases of uncertainty <b>she</b> must <b>perform <i>ḥalitza</i>, by inference</b> it appears <b>that</b> in the cases of <b>the first clause she may also enter into levirate marriage,</b> indicating that in those cases the bill of divorce is definitely not valid. The Gemara answers: This is not a challenge to Rav Huna’s opinion, as <b>the mishna is in accordance</b> with the opinion of <b>the Rabbis</b> that this kind of conditional bill of divorce is invalid and she may enter into levirate marriage.
+
+### Part 16
+<b>But Rav Huna</b> was not explaining the words of the mishna; the statement <b>that he said is in accordance with</b> the opinion of <b>Rabbi Yosei, who says</b> as a principle: <b>The date</b> written <b>in a document proves</b> when <b>it</b> takes effect. Therefore, since the bill of divorce bears that day’s date, it takes effect immediately, even though it is not stated explicitly.
+
+### Part 17
+The Gemara challenges: <b>If</b> Rav Huna’s statement is in accordance with the opinion of <b>Rabbi Yosei</b> then the woman <b>should also not require <i>ḥalitza</i>,</b> as in his opinion the bill of divorce is entirely valid and there is no levirate bond at all. <b>And if you would say</b> that <b>Rav Huna is uncertain if the <i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei or</b> if <b>the <i>halakha</i></b> is <b>not in accordance with</b> the opinion of <b>Rabbi Yosei,</b> and on account of this he was stringent in accordance with both opinions, i.e., the one which requires <i>ḥalitza</i> and the one which forbids levirate marriage, this also presents a difficulty. <b>But is</b> Rav Huna in fact <b>uncertain?</b>
+
+### Part 18
+<b>But when Rabba bar Avuh was ill Rav Huna and Rav Naḥman entered</b> to visit <b>him. Rav Huna said to Rav Naḥman: Ask of him, Rabba bar Avuh:</b> Is <b>the <i>halakha</i> in accordance with</b> the opinion of <b>Rabbi Yosei or</b> is <b>the <i>halakha</i> not</b> in accordance with his opinion? Rav Naḥman <b>said to</b> Rav Huna: <b>I do not know the reason</b> for the opinion held <b>by Rabbi Yosei,</b> and <b>you ask me</b> to ask Rabba bar Avuh the <b><i>halakha</i>?</b> Rav Huna <b>said to</b> Rav Naḥman: <b>You ask him</b> the <b><i>halakha</i>, and I will tell you the reason</b> for the opinion held <b>by Rabbi Yosei</b> afterward.
+
+### Part 19
+Rav Naḥman <b>asked of</b> Rabba bar Avuh what the <i>halakha</i> is. Rabba bar Avuh <b>said to him: So said Rav:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei. After he left</b> Rav Huna <b>said to</b> Rav Naḥman: <b>This is the reason</b> for the opinion <b>of Rabbi Yosei, as he holds: The date</b> written <b>in a document proves</b> when <b>it</b> takes effect. From this incident it is clear that Rav Huna holds that the <i>halakha</i> is in accordance with Rabbi Yosei, as Rav Huna certainly accepted the opinion that Rabba bar Avuh said in the name of Rav. <b>Rather,</b> it is necessary to say that Rav Huna <b>is uncertain</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+<b>And if he was a priest she may not live with him</b> even <b>in</b> one <b>alleyway</b> that opens into several courtyards, even if she did not remarry, as she is forbidden to him forever. What is the ruling <b>if it was a small village?</b> May she live with her ex-husband in the same village? The Gemara relates that <b>this</b> case of his divorcée and a small village <b>was an incident</b> that transpired <b>and</b> the Sages <b>said: A small village is judged as</b> his immediate <b>proximity.</b>
+
+### Part 2
+The Gemara asks: In cases where they may not reside in the same courtyard or alleyway, <b>who is ousted in favor of whom?</b> Which of them must leave? The Gemara suggests: <b>Come</b> and <b>hear</b> proof <b>as it is taught</b> in a <i>baraita</i>: <b>She is ousted in favor of him,</b> and leaves, <b>and he is not ousted in favor of her. But if it was her courtyard, he is ousted in favor of her.</b>
+
+### Part 3
+<b>A dilemma was raised</b> before the Sages: If <b>it was a courtyard</b> belonging <b>to both of them, what is</b> the <i>halakha</i>; who is ousted in favor of whom? The Gemara suggests: <b>Come</b> and <b>hear</b> proof <b>as it is taught</b> in a <i>baraita</i>: <b>She is ousted in favor of him.</b> The Gemara elaborates: <b>With what</b> circumstances <b>are we dealing? If we say</b> that the subject of the <i>baraita</i> is <b>with regard to his courtyard,</b> it is <b>obvious</b> that she is ousted. <b>But rather,</b> is it <b>with regard to her courtyard? Isn’t it taught</b> in a <i>baraita</i>: <b>If it was her courtyard, he is ousted in favor of her? Rather, is it not</b> that the <i>baraita</i> is dealing with <b>a case like this,</b> where it was a courtyard belonging to both of them? The Gemara rejects this proof: <b>Perhaps</b> the <i>baraita</i> is teaching that even in a case <b>where he rented</b> the courtyard she is ousted in his favor. Therefore, the dilemma with regard to a courtyard belonging to both of them is unresolved.
+
+### Part 4
+The Gemara asks: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? The Gemara suggests: <b>Come</b> and <b>hear</b> proof from the verse: <b>“The Lord will dislocate you the dislocation of a man”</b> (Isaiah 22:17), <b>and Rav said:</b> This indicates that <b>the dislocation of a man is more difficult</b> for him <b>than</b> the dislocation of <b>a woman</b> is for her. Therefore, the woman is ousted.
+
+### Part 5
+<b>The Sages taught:</b> With regard to a priest who <b>borrowed from</b> his wife <b>from</b> usufruct <b>property</b> that she inherited from <b>her father</b> and then he divorced her, <b>she is repaid only by means of another</b> person and not directly from her husband, to prevent them from engaging in business dealings. <b>Rav Sheshet said: And if</b> after engaging in business dealings they <b>came before us for judgment, we do not attend to them</b> because by engaging in those dealings they were in violation of a transgression. <b>Rav Pappa said: We excommunicate them</b> for violating that transgression. <b>Rav Huna, the son of Rav Yehoshua, said: We also flog them</b> with lashes. <b>Rav Naḥman said:</b> The <i>tanna</i> <b>taught in <i>Evel Rabbati</i>,</b> one of the minor tractates that deals primarily with the <i>halakhot</i> of mourning: <b>In what</b> case <b>is this statement said?</b> It is in a case <b>where she was divorced from marriage. However, when she was divorced from betrothal, she is repaid</b> even directly <b>by means of</b> receiving the money <b>herself, because,</b> in that case, <b>he is not</b> yet <b>accustomed to her.</b> Since they never shared intimacy, there is no concern that it will lead to transgression.
+
+### Part 6
+The Gemara relates: There was an incident concerning <b>this</b> divorced, <b>betrothed man and his betrothed who came before Rava</b> for judgment, and <b>Rav Adda bar Mattana was sitting before him</b> at the time. <b>Rava placed an intermediary</b> to separate <b>between them. Rav Adda bar Mattana said to</b> Rava: <b>But didn’t Rav Naḥman say:</b> The <i>tanna</i> <b>taught in <i>Evel Rabbati</i></b> that if she was divorced from betrothal she is paid directly? Rava <b>said to him:</b> This applies only in a case where they are not accustomed to each other. However, with regard to these people, <b>we see that they are accustomed to each other,</b> and therefore they must be separated.
+
+### Part 7
+<b>Some say</b> that <b>Rava did not place an intermediary</b> to separate <b>between them. Rav Adda bar Mattana said to</b> Rava: <b>Let the Master place an intermediary</b> to separate <b>between them.</b> Rava <b>said to</b> Rav Adda bar Mattana: <b>But didn’t Rav Naḥman say:</b> The <i>tanna</i> <b>taught in <i>Evel Rabbati</i></b> that if she was divorced from betrothal she is paid directly? Rav Adda bar Mattana <b>said to</b> Rava: <b>This applies only</b> in a case <b>where they are not accustomed to each other. However,</b> with regard to <b>these</b> people, <b>we see that they are accustomed to each other,</b> and therefore they must be separated.
+
+### Part 8
+<strong>MISHNA:</strong> <b>And these are deemed credible to testify in their majority</b> with regard to <b>what they saw in their minority. A person is deemed credible to say: This is my father’s handwriting, and</b> to say: <b>This is my teacher’s handwriting; and</b> to say: <b>This is my brother’s handwriting,</b> even though he never saw their handwriting after reaching majority.
+
+### Part 9
+§ Similarly, one is deemed credible to say: <b>I was reminded of</b> the wedding of <b>so-and-so, who went out with a <i>hinnuma</i>, or</b> with <b>her hair uncovered</b> in a manner typical of virgins, and therefore, her marriage contract is two hundred dinars; <b>and</b> to say <b>that so-and-so would leave school to immerse</b> in order <b>to partake of <i>teruma</i>, and that he would share</b> <i>teruma</i> <b>with us at the threshing floor</b> and therefore he is a priest. Similarly, one is deemed credible to say: <b>This place is a <i>beit haperas</i>,</b> a field with a grave that was plowed, scattering the bones, and rendering the field a place of uncertain ritual impurity; <b>and</b> to say: <b>Until here we would come on Shabbat</b> and thereby determine the Shabbat boundary.
+
+### Part 10
+<b>However, a person is neither deemed credible to say: So-and-so had a path in this place;</b> nor to say: <b>So-and-so had</b> a tract of land where they would perform the ritual of <b>standing</b> and sitting <b>and</b> deliver <b>a eulogy in that place,</b> thereby attesting that the land belongs to that person. The reason he is not deemed credible in those cases is that full-fledged testimony is required to remove property from the possession of its presumptive owner.
+
+### Part 11
+<strong>GEMARA:</strong> <b>Rav Huna, son of Rav Yehoshua, said: And</b> the mishna said that one is deemed credible to testify about handwriting he saw as a minor only <b>when there is</b> a witness who saw the handwriting as an <b>adult</b> testifying <b>with him.</b>
+
+### Part 12
+<b>And</b> all of these cases are <b>necessary,</b> as one could not have been derived from the other. <b>As, if</b> the <i>tanna</i> had <b>taught us</b> the case of <b>his father’s</b> handwriting, one might have thought that he is deemed credible <b>due to</b> the fact <b>that he is</b> often <b>found with his</b> father and is familiar with his handwriting; <b>but</b> with regard to <b>his teacher’s</b> handwriting, <b>no,</b> he is not deemed credible. <b>And if</b> the <i>tanna</i> had <b>taught us</b> the case of <b>his teacher’s</b> handwriting, one might have thought that he is deemed credible <b>due to</b> the fact <b>that he has</b> a sense of <b>awe of his teacher</b> and therefore pays attention to his handwriting; <b>but</b> with regard to <b>his father’s</b> handwriting, <b>no,</b> he is not deemed credible.
+
+### Part 13
+<b>And if</b> the <i>tanna</i> had <b>taught us these two</b> cases, one might have thought that he is deemed credible with regard to <b>his father’s</b> handwriting due to the fact <b>that he is</b> often <b>found with him, and his teacher’s</b> handwriting due to the fact <b>that he has</b> a sense of <b>awe of him. But</b> with regard to <b>his brother’s</b> handwriting, <b>which has neither this</b> factor <b>nor that</b> factor, <b>say no,</b> he is not deemed credible. Therefore, the <i>tanna</i> <b>teaches us: Since ratification of documents is</b> required <b>by rabbinic</b> law, as by Torah law, the signatories are sufficient proof of a document’s validity; <b>the Sages deemed him credible</b> to testify in cases that he witnessed as a minor in matters that are <b>by rabbinic</b> law, including the case of his brother.
+
+### Part 14
+<b>And</b> the mishna states that one is deemed credible to say: <b>I was reminded of</b> the wedding of <b>so-and-so, who went out with a <i>hinnuma</i>, or</b> with <b>her hair uncovered. What is the reason</b> that he is deemed credible? <b>Since most women are married as virgins,</b> her presumptive status is that of a virgin even without his testimony. His testimony with regard to what he saw as a minor <b>is merely revealing of a matter</b> already presumed true, not actual testimony.
+
+### Part 15
+<b>And</b> the mishna states that one is deemed credible to say <b>that so-and-so would leave school to immerse</b> in order <b>to partake of <i>teruma</i>,</b> and therefore he is a priest. The Gemara asks: <b>And perhaps he is the slave of a priest,</b> who is also eligible to partake of <i>teruma</i>. The Gemara notes: This mishna provides <b>support for</b> the opinion of <b>Rabbi Yehoshua ben Levi, as Rabbi Yehoshua ben Levi said: It is prohibited for a person to teach his slave Torah.</b> Since the testimony is that he was in school, apparently he is not a slave. Therefore, the fact that he partook of <i>teruma</i> indicates that he is a priest.
+
+### Part 16
+The Gemara asks: <b>And</b> may one <b>not</b> teach his slave Torah? <b>But isn’t it taught</b> in a <i>baraita</i>: A slave <b>whose master borrowed from him, or whose master made him</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

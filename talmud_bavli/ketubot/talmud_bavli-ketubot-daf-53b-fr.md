@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Votre bien est pris</b> et <b>jete sur des epines,</b> c'est-a-dire que nous n'avons pas de dette de reconnaissance envers vous pour nous avoir informes de cette declaration, car <b>Rav Hoshaya</b> lui-meme a <b>deja interprete</b> et juge cette <b><i>halakha</i></b> de la votre <b>en Babylonie.</b>
+
+### Partie 2
+§ La mishna a enseigne qu'une des stipulations du contrat de mariage est la clause : Les <b>enfants de sexe feminin que tu auras de moi</b> seront entretenus a partir de mes biens. La Guemara note que <b>Rav</b> aurait <b>enseigne</b> que les filles ont droit a la subsistance <b>jusqu'a ce qu'elles soient prises</b> comme epouses <b>par des hommes, et Levi</b> aurait <b>enseigne</b> qu'elles ont droit a la subsistance <b>jusqu'a ce qu'elles deviennent des femmes adultes.</b> La Guemara demande : <b>Selon</b> l'avis de <b>Rav,</b> les filles ont-elles droit a la subsistance <b>meme si elles sont devenues des femmes adultes,</b> si elles ne sont toujours pas mariees ? Pourtant, comment cela peut-il etre correct ? Apres tout, les filles adultes ne sont plus sous la juridiction de leur pere, meme de son vivant. <b>Et</b> peut-on <b>Levi</b> soutenir que <b>meme si elles sont mariees</b> elles recoivent toujours la subsistance de la succession de leur pere jusqu'a ce qu'elles deviennent des femmes adultes ?
+
+### Partie 3
+<b>Au contraire,</b> dans un cas ou <b>elles sont devenues des femmes adultes et n'etaient pas mariees,</b> ou etaient <b>mariees et n'etaient pas devenues des femmes adultes, tout le monde est d'accord</b> pour dire qu'elles n'ont pas droit a la subsistance. <b>Lorsqu'ils sont en desaccord</b> c'est <b>en ce qui concerne</b> une fille <b>qui etait fiancee et n'etait pas devenue une femme adulte.</b> Levi soutient que comme elle n'est pas encore mariee, elle reste sous la juridiction de son pere. <b>Et Levi a de meme enseigne</b> la version suivante de cette stipulation <b>dans sa <i>baraita</i> : Jusqu'a ce qu'elles deviennent des femmes adultes et que le moment arrive pour leur mariage.</b> La Gemara demande : Ces <b>deux</b> conditions sont-elles toutes deux necessaires ? Elle quitte le domaine de son pere lorsqu'une de ces conditions est remplie. <b>Levi veut plutot dire qu'elles peuvent continuer a recevoir la subsistance <b>soit</b> jusqu'a ce que <b>elles deviennent des femmes adultes ou que leur temps arrive pour le mariage.</b>
+
+### Partie 4
+La Gemara observe : La dispute entre Rav et Levi est <b>comme</b> une dispute entre <b><i>tannaim</i>.</b> Comme nous l'avons appris : <b>Jusqu'a quand une fille est-elle soutenue</b> des biens de son pere ? <b>Jusqu'a ce qu'elle soit fiancee. Au nom de Rabbi Elazar, ils ont dit : Jusqu'a ce qu'elle devienne une femme adulte. Rav Yosef a enseigne</b> la version : <b>Jusqu'a ce qu'ils deviennent</b> maries. Le sens de l'expression : Jusqu'a ce qu'ils se marient, n'est pas clair, et donc <b>un dilemme a ete souleve devant</b> les savants : Est-ce que cela se refere a <b>devenir fiances ou</b> a <b>devenir maries ?</b> Aucune reponse n'a ete trouvee, et la Gemara declare que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 5
+<b>Rav Hisda dit a Rav Yosef : As-tu entendu</b> quelque chose <b>de Rav Yehuda</b> concernant le fait de savoir si <b>une orpheline fiancee</b> <b>a une subsistance</b> provenant de l'heritage des freres sur les biens de leur pere, <b>ou</b> si <b>elle n'a pas de subsistance ? </b> Rav Yosef lui <b>repondit : </b> Quant a <b>l'audition, je n'ai rien entendu</b> , <b>mais par un raisonnement logique</b> je peux conclure que <b>elle n'a pas</b> de subsistance de l'heritage. La raison en est que <b>puisque</b> son mari l'a <b>fiancee, il n'est pas satisfaisant pour lui qu'elle soit rabaissee</b> en devant demander sa subsistance sur l'heritage, alors que lui-meme peut y pourvoir.
+
+### Partie 6
+Rav Hisda <b>dit a</b> Rav Yosef : <b>Si tu n'as pas entendu</b> cette <i>halakha</i>, <b>par raisonnement logique</b> <b>elle</b> devrait <b>avoir</b> la subsistance des freres. La raison en est que <b>puisque</b> son mari <b>n'est pas sur</b> de l'epouser, il ne va pas jeter de l'argent pour rien.</b>
+
+### Partie 7
+<b>Et certains disent</b> une version differente de cette discussion. Rav Yosef <b>dit a</b> Rav Hisda : Quant a <b>l'audition, je n'ai rien entendu</b>, mais <b>par raisonnement logique</b> je dirais que <b>elle a effectivement</b> la subsistance des freres : <b>Puisqu'il n'est pas sur</b> qu'il va l'epouser, il ne va pas jeter de l'argent pour rien.</b> En reponse, Rav Hisda <b>lui dit : Si tu n'as pas entendu</b> cette <i>halakha</i>, <b>par un raisonnement logique</b> <b>elle</b> ne devrait <b>pas avoir</b> la subsistance de l'heritage : <b>Puisqu'il l'a fiancee, il n'est pas satisfaisant pour lui qu'elle soit avilie</b> en devant demander de la nourriture aux freres, et il prefere subvenir lui-meme a ses besoins.
+
+### Partie 8
+§ La Gemara enonce <b>un moyen mnemotechnique</b> <b>pour</b> les <b>hommes,</b> c'est-a-dire les Sages, qui apparaissent dans la discussion suivante : <b><i>Shin</i>, <i>kuf</i>, <i>zayin</i>, <i>reish</i>, <i>peh</i>.</b> Il s'agit de Rav Sheshet, Reish Lakish, Rabbi Elazar, Rava et Rav Pappa. Les dilemmes eux-memes sont enumeres dans le mnemonique suivant : <b>Elle a refuse, et une <i>yevama</i>, une <b>relation secondaire</b> interdite, une femme fiancee, et une femme qui a ete violee.</b>
+
+### Partie 9
+La Guemara analyse ces cas un par un : Les Sages <b>soulevent un dilemme devant Rav Sheshet :</b> En ce qui concerne <b>une personne qui a refuse,</b> c'est-a-dire, une orpheline mineure qui a été mariée par ses frères ou sa mère et qui a ensuite refusé son mari, annulant ainsi le mariage, a-t-elle <b>la subsistance</b> de l'héritage de son père <b>ou</b> n'a-t-elle pas la subsistance ? </b> Est-elle considérée comme ayant été mariée, et donc son droit A la subsistance est caduc, ou son refus annule-t-il le mariage dans la mesure oA¹ c'est comme si elle n'avait jamais été mariée du tout, et donc elle a toujours droit A la subsistance ?
+
+### Partie 10
+<b>Rav Sheshet leur a dit : Vous l'avez appris</b> dans la <i>baraita</i> suivante : Dans le cas d'une <b>veuve dans la maison de son pere, ou d'une divorcee dans la maison de son pere, ou d'une veuve qui attend son <i>yavam</i> dans la maison de son pere, elle a la subsistance. Rabbi Yehuda dit :</b> Si <b>elle est encore dans la maison de son pere, elle a de la subsistance ;</b> si <b>elle n'est pas dans la maison de son pere, elle n'a pas de subsistance.</b>
+
+### Partie 11
+Rav Sheshet analyse cette <i>baraita</i> : L'avis de <b>Rabbi Yehuda est</b> selon toute apparence le meme que celui de <b>la premiere <i>tanna</i>.</b> Quel est leur differend ? <b>N'est-ce pas plutot</b> le cas qu' <b>il y a</b> une difference pratique <b>entre eux</b> concernant une fille <b>qui a refuse</b> son mari, <b>car le premier <i>tanna</i> maintient</b> qu'elle a <b>la subsistance</b>, car son mariage a ete annule et c'est comme s'il n'avait jamais eu lieu, <b>et Rabbi Yehuda soutient</b> que <b>elle n'a pas</b> de subsistance, car elle a definitivement perdu ce droit lorsqu'elle a quitte la maison de son pere en mariage.
+
+### Partie 12
+<b>Reish Lakish souleve un dilemme :</b> En ce qui concerne la <b>fille</b> d'un <b>yevama</i>,</b> c'est-a-dire, une femme qui a epouse son <i>yavam</i> en levirat et qui a donne naissance a une fille avant son deces, a-t-elle <b>la subsistance</b> des biens du <i>yavam</i>, c'est-a-dire du pere de la fille, <b>ou</b> n'a-t-elle pas la subsistance ?</b>
+
+### Partie 13
+La Guemara clarifie les deux cotes du dilemme : <b>Puisque le Maitre a dit</b> que le paiement du <b>contrat de mariage</b> d'une <i>yevama</i> est preleve <b>sur les biens de son premier mari,</b> et non sur ceux de la <i>yavam</i>, sa fille ne devrait donc <b>pas avoir</b> de droits a la subsistance sur les biens de la <i>yavam</i>. Sa subsistance est une stipulation du contrat de mariage, qui ne s'applique pas au <i>yavam</i>. <b>Ou peut-etre, puisque si elle ne dispose pas</b> de quoi couvrir le montant de son contrat de mariage <b>a partir des</b> biens du <b>premier</b> mari, <b>les Sages ont edicte pour elle</b> un contrat de mariage <b>a partir du second</b>, c'est-a-dire le <i>yavam</i>. Par consequent, sa fille devrait <b>avoir</b> la subsistance de ses biens. Aucune reponse n'a ete trouvee, et la Guemara declare que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 14
+<b>Rabbi Elazar souleve un dilemme :</b> En ce qui concerne la <b>fille</b> d'une <b>relation secondaire</b> interdite,</b> c'est-a-dire une fille nee d'un homme et d'une femme interdits l'un a l'autre par la loi rabbinique, dont la mere est penalisee en etant privee d'un contrat de mariage, sa fille a-t-elle <b>la subsistance ou</b> n'a-t-elle pas la subsistance ?</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

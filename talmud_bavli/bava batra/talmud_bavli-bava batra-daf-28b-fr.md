@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>et</b> l'exigence qu'il y ait <b>un autre,</b> quatrieme incident pour que le proprietaire soit tenu de payer des dommages et interets complets existe car <b>avant qu'il ne s'encorne</b> apres etre devenu un bœuf averti, <b>qu'est-ce</b> que le proprietaire <b>doit payer ? Ici, une fois qu'il a</b> travaille et <b>profite</b> de la terre pendant <b>trois ans,</b> la terre <b>est etablie</b> comme etant <b>en sa possession.</b>
+
+### Partie 2
+La Gemara demande : <b>Si c'est le cas,</b> selon l'explication selon laquelle le bœuf prevoyant est la source de la presomption de propriete en ce qui concerne la terre, meme une <b>possession qui n'est pas accompagnee d'une revendication,</b> c'est-a-dire ou le possesseur n'a pas d'explication sur la facon dont il l'a acquise, <b>devrait etre</b> suffisante pour etablir la <b>presomption</b> de propriete, tout comme le fait d'encorner trois fois etablit automatiquement qu'il a le statut de bœuf prevoyant. <b>Pourquoi avons-nous appris</b> dans une mishna (41a) : <b>Toute possession qui n'est pas accompagnee d'une revendication</b> expliquant comment le possesseur est devenu proprietaire <b>n'est pas</b> suffisante pour etablir la <b>presomption</b> de propriete ?
+
+### Partie 3
+La Gemara repond : <b>Quelle est la raison</b> pour laquelle la possession qui n'est pas accompagnee d'une revendication n'est pas suffisante pour etablir la presomption de propriete ? <b>Parce que</b> dans un cas standard ou l'on a une presomption de propriete, <b>on dit</b> que meme si le demandeur prouve que le champ etait autrefois le sien, puisque l'autre est en possession de la terre, <b>peut-etre</b> la verite est <b>comme il le dit,</b> qu'il l'a achete au proprietaire precedent. Mais <b>maintenant</b> que <b>il</b> lui-meme <b>ne pretend pas</b> qu'il l'a achete, <b>vous allez revendiquer</b> ceci <b>pour lui ?</b>.
+
+### Partie 4
+<b>Rav Avira s'oppose</b> a l'explication selon laquelle la presomption en ce qui concerne la terre decoule de la <i>halakha</i> d'un bœuf averti : <b>Si tel est le cas, une protestation que</b> le demandeur depose pendant les trois annees <b>non en presence</b> du possesseur <b>ne devrait pas etre</b> consideree comme <b>une protestation,</b> car elle doit etre <b>similaire</b> a la <i>halakha</i> <b>d'un bœuf averti : De meme que nous exigeons</b> que le temoignage concernant <b>un bœuf averti</b> soit <b>en</b> sa <b>presence, de meme ici, nous</b> devrions <b>exiger egalement</b> qu'une protestation soit deposee <b>en la</b> <b>presence du possesseur.</b>
+
+### Partie 5
+La Gemara repond : Ce n'est pas difficile. <b>Il y a,</b> a propos d'un bœuf prevenu, <b>il est ecrit : "Et l'avertissement a ete donne a son proprietaire"</b> (Exode 21:29), indiquant que l'avertissement doit etre emis en presence du proprietaire. <b>Ici,</b> en ce qui concerne la protestation, <b>votre ami a un ami, et l'ami de votre ami a un ami,</b> de sorte que la protestation sera connue meme si elle n'est pas deposee en presence du possesseur, car la nouvelle se repandra. Il n'y a pas de decret de la Torah qui exige que la protestation soit deposee en sa presence, et il suffit qu'il en entende parler, meme indirectement.
+
+### Partie 6
+La Guemara demande encore : <b>Et</b> selon <b>Rabbi Meir, qui dit :</b> Lorsque le bœuf <b>effectue ses gorgements a intervalles</b> son proprietaire est <b>responsable,</b> s'il <b>effectue ses gorgements successivement,</b> n'est-il pas <b>d'autant plus</b> le cas que son proprietaire est responsable ? Selon son avis, l'animal ne doit se gorger que trois fois pour etre prevenu, et il n'est pas exige que les gorgements se produisent sur trois jours distincts ; ils peuvent tous se produire le meme jour. De meme, on pourrait dire que si <b>il a profite</b> du champ en consommant <b>trois fruits</b> de, <b>par exemple, un figuier</b>, <b>en un jour, cela devrait etre</b> suffisant pour etablir la <b>presomption</b> de propriete.
+
+### Partie 7
+La Gemara repond : Ce ne serait pas une comparaison valable, car la presomption de propriete en ce qui concerne la terre doit etre <b>similaire</b> a la <i>halakha</i> <b>d'un bœuf averti : De meme que</b> avec <b>un bœuf prevoyant, au moment ou</b> l'animal <b>a cet encornage, il n'a pas cet encornage,</b> car chaque acte d'encornage se produit a un moment distinct, <b>ici aussi, </b> pour que la consommation du produit etablisse la presomption de propriete, il faut que <b>au moment ou ce fruit est ici, ce fruit ne soit pas ici. </b> Lorsque tous les produits du champ sont presents simultanement, la consommation de ces produits n'etablit pas la presomption de propriete, meme si les produits sont consommes a trois moments differents.
+
+### Partie 8
+La Gemara demande : Sur cette base, si <b>il a profite</b> du champ en consommant <b>trois fruits en l'espace de trois</b> <b>jours consecutifs, par exemple,</b> les fruits d'un <b>buisson de capres,</b> dont les fruits murissent jour apres jour, <b>cela devrait etre</b> suffisant pour etablir la <b>presomption</b> de propriete, car les trois fruits n'etaient pas murs simultanement. La Gemara repond : <b>Voila,</b> en ce qui concerne le buisson de capres, <b>au moins le fruit est la et il est en train de terminer</b> sa maturation pendant les trois jours. Ceci n'est pas similaire au bœuf goret, ou chaque goret est totalement independant des autres.
+
+### Partie 9
+La Gemara conteste : Sur cette base, si <b>il a profite</b> du champ en consommant <b>trois fruits en l'espace de trente jours, par exemple de la luzerne [<i>aspasta</i>],</b> qui repousse rapidement lorsqu'elle est coupee, et qui est coupee a plusieurs reprises sur une courte periode, <b>cela devrait etre</b> suffisant pour etablir la <b>presomption</b> de propriete. La Gemara explique : <b>Quelles sont les circonstances</b> ou il pourrait repousser trois fois en trente jours ? <b>Lorsqu'elle pousse un peu</b> et qu'il la coupe <b>et la consomme, lorsqu'elle pousse un peu</b> plus <b>et qu'il la consomme,</b> de telle sorte qu'il la coupe trois fois en trente jours. <b>Il y a la saisie et consommation</b> de la luzerne, ce qui n'est pas la facon normale de la cultiver, et par consequent il n'etablit pas la presomption de propriete, qui n'est etablie que par l'usage normal du terrain.
+
+### Partie 10
+La Gemara conteste : Sur cette base, si <b>il a profite</b> du champ en consommant <b>trois fruits en trois mois, par exemple de la luzerne,</b> alors qu'il a bien employe la methode standard de recolte, <b>cela devrait etre</b> suffisant pour etablir la <b>presomption</b> de propriete. La Gemara explique : <b>Qui sont</b> ils <b>qui se rendent a Usha</b> dont l'avis est discute ? Il s'agit de <b>Rabbi Yishmael. En effet,</b> selon <b>Rabbi Yishmael,</b> cela etablirait la presomption de propriete.
+
+### Partie 11
+C'est <b>comme nous l'avons appris</b> dans la mishna que <b>Rabbi Yishmael dit : Dans quel</b> cas <b>cette affirmation,</b> selon laquelle dix-huit mois sont necessaires pour un champ non irrigue, <b>est-elle dite ? En ce qui concerne un champ blanc,</b> c'est-a-dire un champ de cereales. <b>Mais en ce qui concerne un champ d'arbres,</b> une fois qu'il a <b>recolte ses produits, et</b> ensuite <b>recolte ses olives, et</b> ensuite <b>recolte ses figues, ces</b> trois recoltes <b>sont</b> l'equivalent de <b>trois ans.</b> Rabbi Yishmael est d'avis que trois recoltes sont suffisantes.
+
+### Partie 12
+La Guemara demande : <b>Selon les rabbins,</b> qui soutiennent que trois ans, et non trois recoltes, sont necessaires pour etablir la presomption de propriete, <b>quelle</b> est la source du concept de ce type de presomption de propriete ?
+
+### Partie 13
+<b>Rav Yosef a dit</b> qu'il est ecrit</b> dans le <b>verset</b> detaillant l'achat d'un champ de Hanamel par Jeremie, son cousin, a l'epoque du siege d'Eretz Yisrael : <b>"Les hommes acheteront des champs pour de l'argent, ils souscriront les actes et les scelleront"</b> (Jeremie 32:44). Cela decrit la redaction d'un acte de vente qui servira de preuve de la propriete du champ, puisqu'il ne pouvait pas rester y vivre pendant trois ans pour etablir la presomption de propriete. <b>Comme le prophete</b> Jeremie <b>s'est leve la dixieme</b> annee du regne du roi Sedecias <b>et a averti</b> les gens de rediger des actes de vente <b>pour la onzieme</b> annee, lorsque Eretz Yisrael serait envahi. Par consequent, malgre le fait que celui qui acheterait un champ la-bas pourrait vivre sur la terre pendant deux ans, cela ne serait pas suffisant pour etablir la presomption de propriete, c'est pourquoi il a dit qu'ils devraient faire ecrire des actes de vente.
+
+### Partie 14
+<b>Abaye lui dit : Peut-etre la, il</b> ne fait que <b>nous donner un bon conseil,</b> a savoir qu'il est conseille d'avoir des documents pour eviter d'avoir a presenter des temoins qui peuvent attester que l'on avait vecu sur la terre. Il ne s'agit pas d'une preuve que la presomption de propriete ne peut etre etablie en moins de trois ans.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+<b>he is saying to her</b> that it will be valid <b>once</b> the sun <b>comes out</b> in the morning. <b>And</b> if the husband <b>dies during the night,</b> before sunrise, then this <b>will be</b> a <b>bill of divorce after</b> his <b>death</b> and is therefore invalid.
+
+### Part 2
+But if he said to her: <b>On the condition that the sun will emerge from its sheath,</b> then <b>he is saying to</b> his wife that the bill of divorce will take effect retroactively <b>from now</b> once the sun emerges. <b>As Rav Huna says</b> that <b>Rav says: Anyone who states</b> a condition employing the language: <b>On the condition,</b> is <b>like</b> one who <b>states:</b> The agreement will take effect retroactively <b>from now.</b>
+
+### Part 3
+The <i>tanna’im</i> <b>disagreed only in</b> the case of one who said to his wife: This will be your bill of divorce <b>if</b> the sun <b>emerges</b> from its sheath, and the husband died during the night. One <b>Sage,</b> referred to as: Our Rabbis, <b>holds in accordance with</b> the opinion of <b>Rabbi Yosei, who says</b> that <b>the date</b> written <b>in a document proves</b> when <b>it</b> takes effect, <b>and it is as</b> if the husband said: <b>From today if I die,</b> or <b>as</b> if he said: <b>From now if I die.</b> And one <b>Sage,</b> the unattributed <i>tanna</i> of the mishna, <b>does not hold in accordance with</b> the opinion of <b>Rabbi Yosei, and it is as</b> if the husband said <b>only: If I die,</b> in which case the bill of divorce is not valid because it cannot take effect after the husband’s death.
+
+### Part 4
+§ The mishna states that if a husband says to others: <b>Write and give a bill of divorce to my wife if I do not come</b> back <b>from now until</b> the conclusion of <b>twelve months,</b> and <b>they wrote</b> it within the twelve months but gave it to her after twelve months, it is not a valid bill of divorce. Rabbi Yosei disagrees and says: It is a valid bill of divorce.
+
+### Part 5
+<b>Rav Yeimar said to Rav Ashi: Shall we say</b> that <b>Rabbi Yosei holds</b> that in general, if <b>he wrote a bill of divorce on condition</b> then it is <b>valid,</b> even if the condition was not fulfilled? Rav Ashi replied: <b>No, actually I</b> could <b>say to you</b> that according to Rabbi Yosei it is <b>invalid</b> if the condition is not fulfilled, <b>and here it is different. Since he could have said: If I do not come</b> back within twelve months, <b>write and give</b> the bill of divorce to my wife, which would emphasize that they may write the document only if he does not come; <b>but</b> instead <b>he said: Write and give</b> a bill of divorce <b>if I do not come</b> back, <b>this is what</b> the husband <b>is saying: Write</b> the bill of divorce <b>from now, and give</b> it to my wife <b>if I do not come</b> back within twelve months. <b>And</b> what do <b>the Rabbis</b> hold? They hold that <b>it is no different</b> whether the husband formulates his instructions like <b>this and it is no different</b> if the husband formulates his instructions like <b>that.</b> The court cannot differentiate based on the minor differences in the formulation.
+
+### Part 6
+§ Since the mishna discussed conditions dependent on time, the Gemara cites a <i>baraita</i> on a similar topic. <b>The Sages taught:</b> If the husband said to his wife: This is your bill of divorce if I do not come back <b>after a seven-</b>year Sabbatical cycle, the word after means that the bill of divorce is not valid until a full <b>year</b> after the conclusion of the seven-year cycle. If he said: This is your bill of divorce if I do not come back <b>after</b> one <b>year,</b> it is not valid until one <b>month</b> after the end of that year. If he said: This is your bill of divorce if I do not come back <b>after</b> one <b>month,</b> it is not valid until one <b>week</b> after the end of the month.
+
+### Part 7
+The Gemara clarifies other similar cases not mentioned in the <i>baraita</i>. If the husband said: This is your bill of divorce if I do not come back <b>after a week,</b> then <b>what</b> is the <i>halakha</i>? The Gemara answers: <b>Rabbi Zeira sat before Rabbi Asi, and some say</b> that it was <b>Rabbi Asi</b> who sat <b>before Rabbi Yoḥanan, and he said</b> the following: <b>Sunday and Monday and Tuesday</b> are called <b>after Shabbat. Wednesday and Thursday and Friday</b> are all called <b>prior to Shabbat.</b>
+
+### Part 8
+It <b>is taught</b> in a <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>says:</b> If a man says: This is your bill of divorce if I do not come back <b>after the pilgrimage Festival,</b> then the document is valid only <b>thirty days</b> after the festival. <b>Rabbi Ḥiyya went out</b> and <b>taught</b> this <i>halakha</i> in public <b>in the name of Rabbi</b> Yehuda HaNasi, <b>and they praised it.</b> He then taught it <b>in the name of the majority,</b> as an unattributed opinion, <b>and they did not praise it. Apparently, the <i>halakha</i> is not in accordance with</b> this ruling. Consequently, the Sages did not praise Rabbi Ḥiyya when he taught it as if it were a majority ruling, as that would cause it to be accepted as <i>halakha</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

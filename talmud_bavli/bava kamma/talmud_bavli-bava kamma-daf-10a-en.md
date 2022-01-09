@@ -1,0 +1,66 @@
+
+### Part 1
+There is <b>a stringency that applies to</b> the category of <b>Ox as op-posed to Fire,</b> and conversely, there is <b>a stringency that applies to Fire as opposed to Ox.</b>
+
+### Part 2
+The <i>baraita</i> elucidates: The <b>stringency that applies to the</b> category of <b>Ox as opposed to</b> the category of <b>Fire</b> is <b>that</b> if <b>an ox</b> kills a Jew the owner is liable to <b>pay a ransom, and for</b> killing <b>a slave</b> the owner is <b>liable</b> to pay <b>thirty</b> <i>sela</i>. Furthermore, in such a case, once the court hears the evidence and the <b>verdict of</b> the ox <b>is complete</b> and the court rules that the ox must be killed, it is <b>prohibited to derive</b> any <b>benefit</b> from the ox. And if <b>one transfers</b> his ox <b>to</b> the care of <b>a deaf-mute, an imbecile, or a minor,</b> and it causes damage, he is <b>liable.</b> All of <b>this is not so with regard to a fire.</b> And the <b>stringency that applies to Fire as opposed to Ox is that</b> the one responsible for <b>the fire is</b> considered <b>forewarned from its inception, which is not so with regard to an ox.</b>
+
+### Part 3
+There is <b>a stringency that applies to</b> the category of <b>Fire as opposed to</b> the category of <b>Pit,</b> and conversely, there is <b>a stringency that applies to Pit as opposed to Fire.</b>
+
+### Part 4
+The <i>baraita</i> elucidates: The <b>stringency that applies to</b> the category of <b>Pit as opposed to</b> the category of <b>Fire</b> is <b>that its initial formation,</b> e.g., its digging, <b>is</b> done in a manner that can <b>result in damage,</b> and if <b>one transfers it to</b> the care of <b>a deaf-mute, an imbecile, or a minor</b> and it causes damage, one is <b>liable. This is not so with regard to a fire.</b> The <b>stringency that applies to Fire as opposed to Pit</b> is <b>that the</b> typical <b>manner of a fire</b> is <b>to proceed and cause damage. And</b> the one responsible for <b>it is</b> considered <b>forewarned</b> with regard <b>to</b> its <b>consuming both something that is fitting for it and something that is not fitting for it,</b> i.e., both flammable and non-flammable items. <b>This is not so with regard to a pit.</b>
+
+### Part 5
+The Gemara asks: <b>But let</b> the <i>baraita</i> also <b>teach</b> the following additional stringency: <b>A stringency that applies to Ox as opposed to Pit</b> is <b>that</b> if <b>the ox</b> damages vessels, the ox’s owner <b>is liable</b> to pay <b>for the vessels, which is not so with regard to a pit,</b> which incurs liability for its owner only for damage it causes to people and to animals but not to vessels.
+
+### Part 6
+The Gemara explains: In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i> taught? <b>It is</b> taught in accordance with the opinion of <b>Rabbi Yehuda, who deems</b> one <b>liable</b> also <b>for damage</b> caused to <b>vessels by</b> his <b>pit.</b>
+
+### Part 7
+The Gemara challenges this: <b>If</b> the <i>baraita</i> is in accordance with <b>Rabbi Yehuda,</b> try to <b>say</b> and explain accordingly <b>the latter clause,</b> which states: The <b>stringency that applies to Fire as opposed to Pit</b> is <b>that the</b> typical <b>manner of a fire</b> is <b>to proceed and cause damage. And</b> the one responsible for <b>it is</b> considered <b>forewarned</b> with regard <b>to</b> its <b>consuming both something that is fitting for it and something that is not fitting for it. This is not so with regard to a pit.</b> The Gemara clarifies: <b>Something that is fitting for it, what are these?</b> Pieces of <b>wood. Something that is not fitting for it, what are these? Vessels.</b> And yet the <i>baraita</i> concludes: <b>This is not so with regard to a pit,</b> which indicates that liability is not incurred for damage done to vessels by one’s pit. The Gemara presents the difficulty: <b>If</b> the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Yehuda, didn’t you say</b> that <b>Rabbi Yehuda deems</b> one <b>liable for damage</b> caused <b>to vessels by</b> his <b>pit?</b>
+
+### Part 8
+<b>Rather, actually,</b> the <i>baraita</i> <b>is</b> in accordance with the opinion of <b>the Rabbis, and</b> the additional stringency mentioned is true but was not mentioned because the <i>tanna</i> <b>taught</b> certain cases <b>and omitted</b> others. The Gemara asks: <b>What</b> else <b>did he omit</b> that makes it reasonable to assume <b>that he omitted this?</b> As a <i>tanna</i> would never omit just a single case, perforce there must be more. The Gemara explains: He also <b>omitted</b> the case of damage done to <b>a concealed</b> item. Liability is incurred for damage done to a concealed item only when it was caused through a category of damage other than fire. If it is damaged by a fire that one lit, he is exempt.
+
+### Part 9
+The Gemara suggests another explanation of the <i>baraita</i>: <b>If you wish, say</b> that <b>actually</b> the <i>baraita</i> is in accordance with the opinion of <b>Rabbi Yehuda, and</b> explain that the term: <b>Something that is not fitting for it,</b> in the <i>baraita</i>, <b>does not</b> serve <b>to include vessels;</b> with regard to vessels there is no distinction between Fire and Pit. <b>Rather,</b> it serves <b>to include</b> a case where a fire <b>scorched</b> another person’s <b>plowed field or singed [<i>sikhsekha</i>] his stones,</b> which are ways of causing damage that cannot be caused by a pit.
+
+### Part 10
+<b>Rav Ashi objects to this</b> suggestion: If so, <b>let</b> the <i>baraita</i> also <b>teach</b> the following additional stringency: <b>A stringency that applies to Ox as opposed to Pit</b> is <b>that in the</b> primary category of <b>Ox one is liable</b> if his ox damages another’s <b>ox</b> that is in the category of <b>disqualified consecrated</b> animals, i.e., an animal set aside to be an offering that was disqualified from use and then redeemed. He is liable despite the fact that even after being redeemed it retains a degree of sanctity. <b>This is not so with regard to</b> damage caused by <b>a pit</b> to a disqualified consecrated animal, as in that case he is not liable for the damage caused.
+
+### Part 11
+Rav Ashi explains his objection: <b>Granted, if you say</b> that the <i>baraita</i> <b>is</b> in accordance with the opinion of <b>the Rabbis,</b> then <b>since</b> the <i>tanna</i> <b>omitted that</b> case of damage done to vessels, <b>he also omitted this</b> case of damage done to disqualified consecrated animals. <b>But if you say</b> that the <i>baraita</i> is in accordance with <b>Rabbi Yehuda, what</b> else <b>did he omit</b> that makes it reasonable to assume <b>that he omitted this?</b>
+
+### Part 12
+The Gemara answers: <b>He omitted</b> the case of an ox that intentionally <b>trampled on a plowed field of</b> another person in order to cause damage. Since the damage was intentional it is included in the primary category of Goring and so one is liable. This manner of causing damage cannot be done by a pit. The Gemara rejects this: <b>If</b> one claims that the <i>tanna</i> omitted the case of damage done to disqualified consecrated animals only <b>due to</b> the fact that he also omitted the case of an ox that intentionally <b>trampled on a plowed field of</b> another person, that is not a sufficient justification. The latter case <b>is not an</b> additional independent <b>omission, as it is</b> included in that which is <b>taught</b> in that <i>baraita</i>: The stringency that applies to Fire as opposed to Pit is <b>that the</b> typical <b>manner of a fire</b> is <b>to proceed and cause damage.</b> The fact that there is no case in the category of Pit corresponding to an ox that intentionally trampled on a plowed field is addressed by this clause.
+
+### Part 13
+§ The mishna states: In any case in which <b>I facilitated part of the damage it</b> caused, I am liable for payments of restitution for damage it caused, as if I were the one who facilitated the entire damage it caused.
+
+### Part 14
+<b>The Sages taught</b> a <i>baraita</i> that elucidates the mishna’s ruling: In any case in which <b>I facilitated part of the damage it</b> caused, <b>I am liable for payments</b> of restitution <b>for damage it</b> caused, <b>as</b> if I were the <b>one who facilitated the entire damage it</b> caused. <b>How so?</b> In the case of <b>one who digs a pit</b> to a depth of <b>nine</b> handbreadths, <b>and another</b> person <b>comes</b> along <b>and completes</b> the digging <b>to</b> a depth of <b>ten</b> handbreadths, the depth at which a pit, according to <i>halakha</i>, can cause death, only <b>the latter</b> individual is <b>liable</b> for injuries and death caused by the pit. Although the pit was already able to cause injury before the second individual deepened it, since by deepening it he increased its capacity to cause damage, he becomes liable for any damage it causes.
+
+### Part 15
+The Gemara suggests: <b>And this is not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, <b>as it is taught</b> in a <i>baraita</i>: In the case of <b>one who digs a pit</b> to a depth of <b>nine</b> handbreadths, <b>and another</b> person <b>comes</b> along <b>and completes</b> the digging <b>to</b> a depth of <b>ten</b> handbreadths, only <b>the latter</b> individual is <b>liable</b> for both injuries and death caused by the pit. <b>Rabbi</b> Yehuda HaNasi <b>says: With regard to death</b> caused by the pit, the responsibility is <b>ascribed to the latter</b> individual. <b>With regard to damage</b> caused by the pit, the responsibility is <b>ascribed to the two of them.</b>
+
+### Part 16
+<b>Rav Pappa said:</b> The <i>baraita</i> refers only to a digger’s liability <b>for death</b> caused by a pit, <b>and</b> then the ruling of the <i>baraita</i> is <b>unanimous,</b> i.e., it is in accordance with the opinions of both the first <i>tanna</i> and Rabbi Yehuda HaNasi.
+
+### Part 17
+<b>There are</b> those <b>who say</b> that the preceding discussion took a slightly different form: The Gemara asks: <b>Shall we say that</b> the <i>baraita</i> <b>is not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi? <b>Rav Pappa</b> answered and <b>said:</b> The <i>baraita</i> refers only to a digger’s liability <b>for death</b> caused by a pit, <b>and</b> then the ruling of the <i>baraita</i> is <b>unanimous.</b>
+
+### Part 18
+<b>Rabbi Zeira objects to</b> the explanation of the <i>baraita</i>, that the mishna is referring only to one specific case: <b>But are there no more</b> cases? <b>But isn’t there</b> the case of one who <b>transferred his ox to five individuals</b> in order for them to safeguard it, <b>and one of them was negligent</b> in his duties <b>and</b> the ox <b>caused damage?</b> Isn’t this individual <b>liable</b> for all the damage? This seems to be an additional example of the principle in the mishna that if one facilitated part of the damage caused, he is liable for pay-ments of restitution for the damage caused, as if he were the one who facilitated the entire damage, so the <i>baraita</i> should have mentioned it.
+
+### Part 19
+The Gemara rejects the possibility that the mishna could be referring to this case: <b>What are the circumstances</b> in which the negligent watchman bears full liability? <b>If we say that without him</b> the ox <b>would not have been</b> properly <b>safeguarded</b> because the ox was particularly strong and it took all five individuals to safeguard it, it <b>is obvious</b> that the negligent individual is liable for all the damage. The reason is <b>that</b> he alone, through his negligence, <b>caused</b> all the damage, not just part of it. <b>Rather,</b> the case must be <b>where</b> even <b>without him</b> the ox <b>would still have been</b> sufficiently <b>safeguarded.</b> The Gemara asks: But if that is the case, <b>what did he do</b> by not safeguarding it? It was still safeguarded without him, so he should not be liable for even part of the damage. It is apparent, then, that the mishna is not referring to this case.
+
+### Part 20
+<b>Rav Sheshet objects to</b> the explanation of the <i>baraita</i>, that the mishna is referring only to one specific case: <b>But isn’t there</b> also the case of a fire that was left unattended by its owner and someone else <b>augmented</b> the fire <b>by</b> adding <b>a bundle</b> of wood to it, thereby increasing the capacity of the fire to cause damage to another’s field? Even though he only increased the fire’s capacity to damage, he is liable for any damage it causes. Seemingly, this is an additional example of the mishna’s principle that if one facilitated part of the damage caused, he is liable for payments of restitution for the damage caused, as if he were one who facilitated the entire damage, so the <i>baraita</i> should have mentioned it.
+
+### Part 21
+The Gemara rejects this suggestion: <b>What are the circumstances?</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+comme un vase impur perd son statut de vase et par consequent son impurete lorsqu'il ne peut plus etre utilise, s'ils ont des trous <b>de la taille d'une grenade</b>.
+
+### Partie 2
+<b>Un pays d'huile d'olive : Rabbi Yosei, fils de Rabbi Hanina, a dit</b> que le verset doit etre explique comme suit : <b>Un pays dont toutes les mesures ont</b> la taille d'une <b>olive.</b> La Guemara pose une question : <b>Peut-il entrer dans votre esprit</b> qu'il s'agit d'une terre <b>dont toutes les mesures</b> sont de la taille d'olives ? <b>N'y a-t-il pas ces</b> mesures <b>que nous avons mentionnees</b> ci-dessus, qui n'ont pas la taille d'une olive ? <b>Disons plutot : Une terre, dont la plupart des mesures sont</b> de la taille des <b>olives,</b> comme la plupart des mesures relatives aux aliments interdits et autres sont de la taille des olives.
+
+### Partie 3
+<b>Le miel,</b> c'est-a-dire les dattes dont on extrait le miel de datte, fait egalement allusion a une mesure. En ce qui concerne Yom Kippour, on n'est responsable que si l'on mange l'equivalent <b>d'une grosse datte a Yom Kippour.</b> La Gemara demande : <b>Et</b> que diront <b>les autres</b> <i>amora</i>, qui ont interprete le verset comme faisant reference aux <i>halakhot</i> de preseance dans les benedictions, a propos de ce midrash ? La Guemara repond : <b>Ces mesures sont-elles ecrites explicitement</b> dans la Torah ? <b>Au contraire,</b> elles le sont <b>par la loi rabbinique</b>, <b>et le verset</b> est <b>un simple support,</b> une allusion a ces mesures.
+
+### Partie 4
+En ce qui concerne les <i>halakhot</i> de preseance dans les benedictions, la Guemara relate : <b>Rav Hisda et Rav Hamnuna etaient assis a un repas. On apporta devant eux des dattes et des grenades. Rav Hamnuna prit et recita une benediction sur les dattes en premier. Rav Hisda lui dit :</b> Est-ce que <b>le Maitre ne tient pas que</b> <i>halakha</i> <b>ce que Rav Yosef, et certains disent Rabbi Yitzhak, a dit : Chaque</b> aliment qui <b>precede</b> les autres <b>dans ce verset, precede</b> les autres <b>en termes de benediction egalement ?</b> La grenade precede la date dans ce verset.
+
+### Partie 5
+Rav Hamnuna lui <b>dit : Ceci, </b> la date, <b>est</b> mentionnee <b>en second lieu</b> apres le mot <b>terre,</b> dans le verset : A "Un pays d'huile d'olive et de mielA", juste apres l'olive, <b>et ceci,A </b> la grenade, est <b>cinquieme apres</b> le mot <b>terre.</b> Rav Hisda <b>lui dit</b> avec admiration : <b>Qui nous donnera des jambes de fer pour que nous puissions te servir</b> et entendre constamment de ta part des idees nouvelles.
+
+### Partie 6
+<b>Il a ete dit :</b> Si <b>ils ont apporte des figues et des raisins devant eux pendant un repas,</b> quelles benedictions faut-il reciter ? <b>Rav Huna a dit : Ils necessitent une benediction avant</b> de les manger, et ne necessitent pas de benediction apres</b> les avoir manges,</b> car la Grace apres les repas les exempte. <b>Et de meme, Rav Nahman a dit : Ils necessitent une benediction avant</b> de manger des <b>mets, et ne necessitent pas de benediction apres</b> avoir mange des <b>mets. Et Rav Sheshet a dit : Ils necessitent une benediction a la fois avant</b> de les manger et apres</b> les avoir manges,</b> meme s'il les a manges pendant le repas, <b>car vous n'avez rien qui necessite une benediction avant</b> de les manger et qui ne necessite pas une benediction apres</b> les avoir manges, </b> parce qu'il est exempte de la Grace apres les repas, <b>a l'exception du pain,</b> une patisserie sucree et epicee, <b>qui vient en dessert,</b> car elle est, elle aussi, un type de pain. Les declarations de Rav Huna et de Rav Sheshet <b>sont en desaccord</b> avec l'opinion <b>de Rabbi Hiyya, car Rabbi Hiyya a dit : Le pain exempte tous les types d'aliments</b> que l'on mange apres lui, <b>et le vin exempte tous les types de boissons</b> que l'on boit apres lui, et on n'a pas besoin de reciter une benediction ni avant ni apres les avoir manges.
+
+### Partie 7
+En resume, <b>Rav Pappa dit</b> que <b>la <i>halakha</i></b> est : Les aliments <b>articles qui viennent en raison du repas,</b> qui sont consommes avec le pain dans le cadre du repas, <b>pendant le repas, ne necessitent pas de benediction avant</b> de les manger ni apres</b> de les manger,</b> car ils sont consideres comme secondaires au pain. <b>Et</b> des aliments comme les fruits, <b>qui ne viennent pas en raison du repas,</b> comme partie du repas, mais qui peuvent etre apportes <b>pendant le repas, necessitent une benediction avant</b> de les manger et ne necessitent pas de benediction apres</b> de les manger.</b> S'ils viennent <b>apres le repas, ils necessitent une benediction a la fois avant</b> de les manger et apres</b> de les manger.</b>
+
+### Partie 8
+La Guemara relate que les etudiants ont demande a Ben Zoma : Pourquoi les Sages ont-ils</b> dit</b> que les aliments <b>qui viennent en raison du repas pendant le repas, ne necessitent ni une benediction avant</b> de les manger ni apres</b> de les manger ? Il leur repondit : Parce que le pain les exempte.</b> Ils demanderent : <b>Si c'est le cas, le pain devrait aussi exempter le vin.</b> Pourtant, on recite une benediction sur le vin pendant le repas. La Guemara repond : <b>Le vin est different,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

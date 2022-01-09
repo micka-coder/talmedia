@@ -1,0 +1,18 @@
+
+### Partie 1
+<strong>MISHNA :</strong> <b>Rabbi Eliezer dit :</b> Lorsque les autorites halakhiques sont approchees en ce qui concerne la dissolution d'un vœu, elles <b>peuvent aborder</b> la dissolution <b>avec une personne</b> qui a fait un vœu <b>en</b> soulevant la question de savoir comment le fait de faire ce vœu a finalement degrade <b>l'honneur de son pere et de sa mere,</b> en lui posant la question suivante : Si tu avais su que tes parents connaitraient une honte publique en raison de ton attitude laxiste a l'egard de ton vœu, aurais-tu quand meme fait ce vœu ? <b>Mais les rabbins</b> ne sont pas d'accord avec Rabbi Eliezer et <b>interdisent</b> d'aborder la dissolution d'un vœu avec cette question particuliere.
+
+### Partie 2
+Pour soutenir l'opinion des rabbins, <b>Rabbi Tzadok a dit : Au lieu d'aborder</b> la dissolution <b>avec lui en</b> soulevant la question de <b>l'honneur de son pere et de sa mere, qu'ils abordent</b> la dissolution <b>avec lui en</b> soulevant la question de <b>l'honneur de l'Omnipresent.</b> Ils doivent faire remarquer qu'un vœu prononce au nom de Dieu diminue l'honneur de Dieu, ils pourraient donc lui demander : Si tu avais su que ton vœu diminuerait l'honneur de Dieu, aurais-tu prononce ton vœu ? Et <b>si oui,</b> si c'est une methode valable pour aborder la dissolution, <b>il n'y a pas de vœux. </b> Neanmoins, <b>les rabbins concedent a Rabbi Eliezer a propos</b> d'un vœu concernant <b>une affaire qui est entre lui et son pere et sa mere, qu'</b> ils <b>peuvent aborder</b> la dissolution <b>avec lui en</b> soulevant la question de <b>l'honneur de son pere et de sa mere,</b> car dans ce cas l'extenuation est liee a ce vœu particulier.
+
+### Partie 3
+<b>Et Rabbi Eliezer dit encore :</b> Ils <b>peuvent aborder</b> la dissolution <b>en demandant</b> une nouvelle situation, mais les rabbins l'interdisent</b>. <b>Comment</b> pourraient-ils aborder la dissolution en demandant une nouvelle situation ? Si l'on <b>dit : Il m'est</b> interdit <b>comme une offrande [<i>konam</i>] que je ne</b> donc pas <b>decrocher un benefice d'untel ou d'unetelle, et</b> cette personne est par la suite <b>devenue un scribe [<i>sofer</i>], </b> et celui qui a fait le vœu a maintenant besoin de ses services, <b>ou si</b> celui a qui le vœu a ete interdit <b>marie son fils</b> et prepare un festin pour tous les habitants de sa ville, <b>et</b> celui qui avait fait le vœu <b>dit : Si j'avais su qu'il deviendrait un scribe, ou qu'il marierait son fils dans un avenir proche</b>, <b>je n'aurais pas fait le vœu.</b>
+
+### Partie 4
+La mishna cite un autre exemple de situation nouvelle. Si l'on dit : <b>Entrer dans cette maison est <i>konam</i></b> pour moi, <b>et</b> cette maison <b>devient une synagogue,</b> et <b>il disait : Si j'avais su qu'elle deviendrait une synagogue, je n'aurais pas fait de vœu,</b> dans ce cas et dans tous les cas de ce genre, <b>Rabbi Eliezer permet</b> a l'autorite halakhique d'utiliser cela comme base pour la dissolution du vœu, <b>et les rabbins l'interdisent</b>.
+
+### Partie 5
+<strong>GEMARA:</strong> La Guemara clarifie le sens de la declaration faite par Rabbi Tsadok. <b>Que</b> signifie : Si donc, <b>il n'y a pas de vœux,</b> ? <b>Abaye a dit :</b> Cela signifie : <b>Si oui, les vœux ne sont pas dissous correctement.</b> Celui qui a fait le vœu pourrait dire qu'il regrette de l'avoir fait uniquement parce qu'il n'est pas pret a declarer publiquement qu'il aurait fait son vœu tout en sachant qu'il diminue l'honneur de Dieu. Il se peut qu'il ne regrette pas reellement d'avoir fait ce vœu, et cela conduira a une dissolution inappropriee du vœu.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+The Gemara relates: There was <b>a certain document that had the signatures of two</b> individuals <b>on it. One of</b> the signatory witnesses <b>died,</b> and when the court sought to ratify the document, which requires either that the witnesses personally attest to the validity of their signatures or that two other witnesses attest to the validity of the signatures, <b>the brother of the</b> witness <b>who remained</b> alive <b>and one other</b> individual <b>came to testify with regard to the signature of the other,</b> deceased, witness, while the living witness attested to his own signature.
+
+### Part 2
+<b>Ravina thought to say</b> that this case <b>is</b> the same as the <i>halakha</i> in <b>the mishna,</b> which states that if testimony was given by <b>three brothers,</b> each of whom testify about one year, <b>and another,</b> unrelated individual <b>joined with</b> each of the brothers as the second witness, these are considered to be three distinct testimonies. Similarly, in this case, one brother attests to his own signature, while the other brother attests to the signature of the deceased witness.
+
+### Part 3
+<b>Rav Ashi said to him: Are</b> these cases <b>comparable? There, the property less one-quarter,</b> i.e., three-quarters of the property in question, <b>is not removed</b> from the possession of the prior owner based <b>upon the mouth,</b> i.e., the testimony, <b>of brothers.</b> Each brother provides only half of the testimony for each year about which he testifies. <b>Here, the property less one-quarter is removed</b> from the possession of the debtor detailed in the document based <b>upon the mouth of brothers.</b> One brother attests to his own signature, which constitutes half of the testimony, while the other signature is authenticated by the testimony of the other brother and another individual. It follows that three-quarters of the testimony is given by brothers, and it is therefore invalid.
+
+### Part 4
+<strong>MISHNA:</strong> <b>These are</b> uses of property <b>that have</b> the means to establish the <b>presumption</b> of ownership, <b>and these are</b> uses of property <b>that do not have</b> the means to establish the <b>presumption</b> of ownership: If one <b>would stand an animal in a courtyard;</b> or if one would place <b>an oven, a millstone, or a stove</b> there; <b>or</b> if one <b>raises chickens</b> in a courtyard, <b>or places his fertilizer in a courtyard,</b> these actions <b>are not</b> sufficient to establish the <b>presumption</b> of ownership. <b>But</b> if one <b>constructed a partition ten handbreadths high to</b> contain <b>his animal, and similarly</b> if he constructed a partition <b>for</b> his <b>oven, and similarly</b> if he constructed a partition <b>for</b> his <b>stove, and similarly</b> if he constructed a partition <b>for</b> his <b>millstone;</b> or if one <b>brought chickens into the house, or</b> if he <b>fashioned a place</b> in the ground <b>for his fertilizer</b> that is <b>three</b> handbreadths <b>deep or three</b> handbreadths <b>high,</b> these actions <b>are</b> sufficient to establish the <b>presumption</b> of ownership.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara asks: <b>What is different</b> in <b>the first clause,</b> where having an animal stand in a courtyard is insufficient to establish the presumption of ownership, <b>and what is different</b> in <b>the latter clause,</b> where constructing a partition is sufficient to establish the presumption of ownership?
+
+### Part 6
+<b>Ulla says:</b> With regard to <b>any</b> act <b>which, if</b> one <b>were</b> to perform it <b>on</b> ownerless property such as the <b>property of a convert</b> who dies without heirs he would <b>acquire</b> that property, that same act is sufficient for him to <b>acquire the property of another</b> if he performed it over the course of three years, provided it is accompanied by the claim that the property had been purchased. Conversely, <b>any</b> act <b>that if</b> one <b>were</b> to perform it <b>on</b> the <b>property of a convert</b> who died without heirs he would <b>not acquire</b> that property, that same act is sufficient for him to <b>acquire the property of another.</b> Taking possession of ownerless property requires an act to be done with regard to the property itself, such as constructing a partition, but merely having an animal stand there is not sufficient. Therefore, it does not establish the presumption of ownership.
+
+### Part 7
+<b>Rav Sheshet objects to this</b> explanation: <b>And is</b> this an established <b>principle? But there is plowing, which,</b> if performed <b>on</b> the <b>property of a convert</b> who died without heirs one <b>acquires</b> it, but if performed <b>on</b> the <b>property of another</b> one does <b>not acquire</b> it. <b>And</b> additionally, <b>there is consumption of produce</b> for the duration of three years, <b>which,</b> if performed <b>on</b> the <b>property of another</b> one <b>acquires</b> it by establishing the presumption of ownership, but if performed <b>on</b> the <b>property of a convert</b> who died without heirs one does <b>not acquire</b> it. These cases contradict Ulla’s claim that the modes of acquisition are analogous.
+
+### Part 8
+<b>Rather, Rav Naḥman said</b> that <b>Rabba bar Avuh said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

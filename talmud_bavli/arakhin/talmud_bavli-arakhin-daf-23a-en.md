@@ -1,0 +1,48 @@
+
+### Part 1
+<strong>MISHNA:</strong> In the case of <b>one who consecrates his property and there was</b> the outstanding debt <b>of the marriage contract of</b> his <b>wife,</b> for whose repayment one’s property is liened, <b>Rabbi Eliezer says: When he divorces her, he shall vow</b> that <b>benefit</b> from her is forbidden to him. This is to prevent collusion, by which he divorces her, she collects payment from the consecrated property, and he then remarries her. <b>Rabbi Yehoshua says: He need not</b> do so. <b>On a similar note, Rabban Shimon ben Gamliel said: Even</b> in the case of <b>the guarantor of a woman for her marriage contract, and her husband was divorcing her</b> and could not pay the debt, the husband <b>shall vow</b> that <b>benefit</b> from her is forbidden to him, <b>lest he</b> and his wife <b>engage in collusion [<i>kinunya</i>]</b> and collect payment from the property of <b>that</b> guarantor, <b>and</b> then the husband <b>will remarry his wife.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The mishna teaches that there is a dispute between Rabbi Eliezer and Rabbi Yehoshua with regard to a case where one consecrates his property and then divorces his wife. The Gemara asks: <b>With regard to what</b> principle <b>do they disagree?</b> The Gemara explains: <b>Rabbi Eliezer holds</b> that <b>a person</b> would <b>engage in collusion against</b> even the <b>Temple</b> treasury, and for this reason he divorces his wife. The required vow serves to prevent such a possibility. <b>And Rabbi Yehoshua holds</b> that <b>a person</b> would <b>not engage in collusion against</b> the <b>Temple</b> treasury.
+
+### Part 3
+The Gemara asks: <b>But</b> if so, consider <b>that which Rav Huna says:</b> If <b>a person on his deathbed consecrated all of his property and said: So-and-so has one hundred</b> dinars that I owe him <b>in my possession,</b> his statement is <b>deemed credible,</b> as there is <b>a presumption</b> that <b>a person does not engage in collusion against</b> the <b>Temple</b> treasury. <b>Let us say</b> that Rav Huna <b>stated</b> this <b><i>halakha</i></b> with regard to a matter that is <b>the subject of</b> a dispute between <b><i>tanna’im</i>.</b>
+
+### Part 4
+The Gemara responds: <b>No,</b> Rabbi Eliezer and Rabbi Yehoshua <b>disagree</b> whether or not one colludes against the Temple treasury <b>only with regard to a healthy</b> person. <b>But with regard to a person on his deathbed, everyone agrees</b> that such <b>a person does not engage in collusion against</b> the <b>Temple</b> treasury. <b>What is the reason?</b> Since he will soon die, he does not stand to gain anything from his statement, and <b>a person sins only for his own</b> benefit, not for the benefit of others.
+
+### Part 5
+<b>Some say</b> that <b>in</b> the case of <b>a healthy</b> person, <b>everyone agrees on</b> the question of whether or <b>not a person</b> would <b>engage in collusion against</b> the <b>Temple</b> treasury, i.e., they agree that one must be concerned that a person may engage in collusion. <b>And here, they disagree with regard to a vow administered in public,</b> e.g., a vow administered by the court. One <b>Sage,</b> Rabbi Yehoshua, <b>holds</b> that such a vow <b>has</b> the option of <b>nullification.</b> Consequently, there is no use in requiring the husband to take a vow even in public, as a halakhic authority can later dissolve it. <b>And</b> one <b>Sage,</b> Rabbi Eliezer, <b>holds</b> that such a vow <b>does not have</b> the option of <b>nullification.</b> Therefore, the court administers a vow in public to prevent collusion.
+
+### Part 6
+<b>And if you wish, say</b> instead: <b>Everyone agrees</b> that <b>a vow administered in public has</b> the option of <b>nullification. And here, they disagree with regard to a vow administered</b> based <b>on the consent of the public,</b> i.e., when the court says to the husband: You are taking a vow that benefit from your wife is forbidden to you based on our consent. According to Rabbi Eliezer, there is no option of nullification for such a vow, and therefore it is effective in preventing collusion, whereas Rabbi Yehoshua maintains that even such a vow can be nullified and is therefore ineffective in preventing collusion.
+
+### Part 7
+The Gemara asks: <b>But</b> if so, consider <b>that which Ameimar says: A vow that was taken in public has</b> the option of <b>nullification;</b> if it was taken based <b>on the consent of the public</b> it <b>does not have</b> the option of <b>nullification. Let us say</b> that Ameimar <b>stated</b> this <b><i>halakha</i></b> with regard to a matter that is <b>the subject of</b> a dispute between <b><i>tanna’im</i>. And furthermore, Rabbi Yehoshua says</b> in the mishna that the husband <b>need not</b> take a vow. If his reason is that such a vow is ineffective, <b>he should have</b> stated: <b>It is ineffective.</b>
+
+### Part 8
+<b>Rather, here they disagree with regard to</b> one’s ability to <b>request</b> the dissolution <b>of</b> a vow involving <b>consecrated</b> property. Rabbi Eliezer holds that one may not request the dissolution of a vow involving consecrated property. Accordingly, there is a concern that the husband might collude with his wife by divorcing her in order to extract the consecrated property from the Temple treasury, as he has no other means of releasing the property. In contrast, Rabbi Yehoshua maintains that such a vow may be dissolved and therefore there is no reason for the husband to collude with his wife.
+
+### Part 9
+The Gemara adds: <b>And it is</b> likewise <b>taught</b> in a <i>baraita</i>: In the case of <b>one who consecrates his property and there was</b> the outstanding debt <b>of the marriage contract of</b> his <b>wife upon it, Rabbi Eliezer says: When he divorces her, he shall vow</b> that <b>benefit</b> from her is forbidden to him, to prevent collusion. <b>Rabbi Yehoshua says: He need not</b> do so. <b>And Rabbi Elazar, son of Rabbi Shimon, said: This</b> statement of Rabbi Eliezer is <b>the same</b> as <b>the statement of Beit Shammai, and this</b> statement of Rabbi Yehoshua is <b>the same</b> as <b>the statement of Beit Hillel.</b>
+
+### Part 10
+<b>As Beit Shammai say: Consecration</b> that one performed <b>in error is</b> effective as <b>consecration.</b> Consequently, one cannot request the dissolution of his consecration due to circumstances that unfolded on the grounds that he did not mean to make a vow. <b>And Beit Hillel say: Consecration</b> that one performed <b>in error</b> is <b>not consecration,</b> and one may therefore request the dissolution of his consecration.
+
+### Part 11
+§ The mishna teaches: <b>On a similar note, Rabban Shimon ben Gamliel said</b> that even in the case of a guarantor for a woman for her marriage contract, he vows that benefit from her is forbidden to him, lest he and his wife engage in collusion. The Gemara relates that <b>Moshe bar Atzrei was the guarantor</b> for the marriage contract <b>of his daughter-in-law, and Rav Huna, his son, was a Torah scholar and was hard-pressed</b> for money. <b>Abaye said: Is there no</b> one <b>who will advise Rav Huna that he should divorce his wife, and she should claim her marriage contract from his father,</b> the guarantor of the marriage contract, <b>and</b> that <b>he should</b> then <b>return</b> and remarry <b>her,</b> and in this manner they will obtain money?
+
+### Part 12
+<b>Rava said to</b> Abaye: <b>But we learned</b> in the mishna that in such a case <b>he shall vow</b> that benefit from her is forbidden to him. If so, Rav Huna cannot remarry her. <b>And</b> the Gemara explains that <b>Abaye</b> would argue: <b>Is that to say</b> that <b>anyone who divorces, divorces in court?</b> Let Rav Huna divorce his wife outside the court, so that he will not be forced to take a vow and he will therefore be allowed to remarry her. The Gemara relates that <b>ultimately it was revealed that</b> Rav Huna <b>was a priest,</b> which means that if he had divorced his wife he would have been prohibited from remarrying her. <b>Abaye said</b> of this revelation: This is an example of the saying that <b>poverty follows the poor,</b> i.e., it is difficult to remove a poor person from a state of poverty.
+
+### Part 13
+The Gemara asks: <b>And did Abaye</b> actually <b>say this? Doesn’t Abaye say: Who is a wily, wicked person? This</b> is <b>one who advises</b> another <b>to sell property</b> that he received from someone who stipulated that the property should pass to a second beneficiary upon the death of the first. And this is <b>in accordance with</b> the ruling of <b>Rabban</b> Shimon ben <b>Gamliel,</b> who maintains that the sale is valid and the second beneficiary may not remove the property from the possession of the buyer. If Abaye considers this individual as wicked for advising one to act against the intentions of a benefactor, how could he suggest that Rav Huna should extract money from the guarantor in the above case?
+
+### Part 14
+The Gemara answers: When one is a guarantor for <b>his son</b> it <b>is different,</b> as he would forgive his son for acting in this manner, as the son will in any case inherit his property. <b>And</b> furthermore, when this is performed for the benefit of <b>a Torah scholar</b> it <b>is different,</b> as it is proper to assist him so that he may continue studying Torah.
+
+### Part 15
+The Gemara objects: <b>And let</b> Abaye <b>deduce</b> that such a course of action is ineffective, <b>as a guarantor of a marriage contract is not</b> legally <b>responsible</b> to pay the marriage contract.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

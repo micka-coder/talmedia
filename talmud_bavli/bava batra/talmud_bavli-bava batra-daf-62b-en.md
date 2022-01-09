@@ -1,0 +1,42 @@
+
+### Part 1
+A third dilemma was also raised before the Sages: If the seller defined the boundaries of the property he is selling <b>in an alternating</b> fashion, mentioning only some of the fields bordering each side of the field being sold, while omitting others, <b>what is</b> the <i>halakha</i>? No resolution was found for these questions, and these dilemmas <b>shall stand</b> unresolved.
+
+### Part 2
+§ The Gemara raises a similar dilemma. If, in the bill of sale, the seller <b>delineated for</b> the buyer the field’s <b>first boundary,</b> its <b>second boundary, and</b> its <b>third boundary, but he did not delineate</b> its <b>fourth boundary</b> at all, <b>Rav says:</b> The buyer <b>acquires the entire</b> field, <b>except for</b> the one furrow along which <b>the fourth boundary</b> runs, which is usually differentiated in some way from the field itself. <b>And Shmuel says:</b> The buyer acquires <b>even</b> the furrow along which <b>the fourth boundary</b> runs. <b>And Rav Asi says: He acquires only</b> the width of <b>one furrow along the entire</b> perimeter of the three boundaries specified by the seller.
+
+### Part 3
+The Gemara explains Rav Asi’s opinion: He <b>holds in accordance with</b> the opinion of <b>Rav, who said</b> that by failing to delineate the fourth boundary, the seller <b>withheld</b> some part of the field, i.e., one furrow, for himself. But Rav Asi takes this further <b>and</b> says that <b>since he withheld</b> some part of the field for himself <b>at the</b> fourth <b>boundary, he withheld also</b> some portion <b>of the entire</b> field, and therefore the buyer acquires only that which is adjacent to the specified boundaries.
+
+### Part 4
+<b>Rava said: The <i>halakha</i></b> is that the buyer <b>acquires the entire</b> field <b>except for</b> the one furrow along which <b>the fourth boundary</b> runs, in accordance with the opinion of Rav. <b>And we said</b> this <b>only</b> in a case <b>where</b> the fourth boundary <b>is not included</b> within the space between two adjacent boundaries, but rather juts out beyond them. <b>But</b> when <b>it is included</b> within the space delineated by the other boundaries, the buyer <b>acquires</b> it as well.
+
+### Part 5
+Rava adds: <b>And even when it is not included</b> in that space, <b>we said</b> that the buyer does not acquire it <b>only</b> in a case <b>where there is a row of trees on it, or it is</b> an area fit for sowing <b>nine <i>kav</i></b> of seed. <b>But</b> where <b>there is no row of trees on it, and it is not</b> an area fit for sowing <b>nine <i>kav</i></b> of seed, the buyer <b>acquires</b> it along with the rest of the field. <b>By inference</b> one derives from here <b>that when</b> the fourth border <b>is included</b> within the space delineated by the two adjacent boundaries, <b>even if there is a row of trees on it and it is</b> an area fit for sowing <b>nine <i>kav</i>,</b> the buyer <b>acquires</b> it.
+
+### Part 6
+<b>There are</b> those <b>who say</b> that Rava’s ruling and the conclusion drawn from it are as follows: <b>Rava said: The <i>halakha</i></b> is that the buyer <b>acquires the entire</b> field, <b>and</b> he acquires <b>even</b> the furrow along which <b>the fourth boundary</b> runs, in accordance with the opinion of Shmuel. <b>And we said</b> this <b>only</b> in a case <b>where</b> the fourth boundary <b>is included</b> within the space delineated by the two adjacent boundaries. <b>But</b> when <b>it is not included</b> within those boundaries, the buyer <b>does not acquire</b> it.
+
+### Part 7
+Rava adds: <b>And even when it is included</b> within the adjoining boundaries, <b>we said</b> that the buyer acquires it <b>only</b> in a case <b>where there is no row of trees on it, and it is not</b> an area fit for sowing <b>nine <i>kav</i></b> of seed. <b>But</b> where <b>there is a row of trees on it, or it is</b> an area fit for sowing <b>nine <i>kav</i></b> of seed, the buyer <b>does not acquire</b> it. <b>By inference</b> one derives from here <b>that when</b> the fourth boundary <b>is not included</b> within the two adjacent boundaries, <b>even if there is no row of trees on it and it is not</b> an area fit for sowing <b>nine <i>kav</i></b> of seed, the buyer <b>does not acquire</b> it.
+
+### Part 8
+<b>We conclude according to both versions</b> of the statement <b>of Rava that</b> even if the seller withheld something for himself along the fourth boundary, <b>he did not withhold anything at all in the field</b> itself. <b>And we also conclude</b> according to both versions <b>that where</b> the fourth boundary <b>is included</b> within the space defined by the two adjacent boundaries, <b>and there is no row of trees on it and it is not</b> an area fit for sowing <b>nine <i>kav</i></b> of seed, the buyer <b>acquires</b> it. And furthermore, we conclude according to both versions that if the fourth boundary <b>is not included</b> within the two adjacent boundaries, <b>and there is a row of trees on it, or it is</b> an area fit for sowing <b>nine <i>kav</i></b> of seed, the buyer <b>does not acquire</b> it.
+
+### Part 9
+If the fourth boundary <b>is included</b> within the two adjacent boundaries, <b>and there is</b> a row of trees <b>on it</b> or it is fit for sowing nine <i>kav</i> of seed, or if the fourth boundary <b>is not included</b> within the two adjacent boundaries, <b>and there is no</b> row of trees <b>on it</b> nor is it fit for sowing nine <i>kav</i>, the ruling in these cases <b>was stated in this direction,</b> that the land adjacent to the fourth boundary is acquired by the buyer, <b>and it was stated in that direction,</b> that this land is not acquired by the buyer, depending upon which version of Rava’s statement is accepted. Since there is no clear ruling in these cases, the decision is left to <b>the discretion of the judges,</b> who must rule in accordance with what appears to them to be the intention of the seller.
+
+### Part 10
+§ <b>Rabba said:</b> If one owns a field in partnership with another, and he says to a third person: I am selling you <b>the half that I have in this land,</b> he means to sell him <b>half</b> of that field, i.e., his entire share. If he says to the buyer: I am selling you <b>half of the land that I have,</b> he means to sell him <b>one-quarter</b> of that field, i.e., half of his share. <b>Abaye said to him: What is different</b> about <b>this</b> wording <b>and what is different</b> about <b>that</b> wording, that you rule differently in the two cases? Rabba <b>was silent,</b> offering no reply.
+
+### Part 11
+<b>Abaye said: I had assumed that since he was silent, he</b> must have <b>accepted</b> my opinion and retracted his statement; <b>but</b> that <b>is not so.</b> As on another occasion <b>I saw certain bills</b> of sale <b>that issued from</b> my <b>Master’s house,</b> that is, they were issued under the auspices of my master Rabba, <b>in which it was written: The half that I have in this land,</b> and it was clear from another clause in the bill that <b>half</b> of the field was being sold. And there was another bill of sale in which it was written: <b>Half of the land that I have,</b> and it was clear from another clause in the bill that <b>one-quarter</b> of the field was being sold.
+
+### Part 12
+<b>And Rabba</b> also <b>said:</b> If one sold land to another and delineated boundaries on three sides of the field, and with regard to the fourth side he wrote in the bill of sale: <b>The boundary</b> of the field is <b>the land through which</b> the field <b>is halved,</b> he has sold him <b>half</b> of the field. If he writes with regard to the fourth boundary: <b>The boundary</b> of the field is <b>the land from which</b> a plot <b>can be set apart,</b> he has sold him only an area fit for sowing <b>nine <i>kav</i></b> of seed, as that is the minimum size of a plot of land defined as a field.
+
+### Part 13
+<b>Abaye said to him: What is different</b> about <b>this</b> wording, <b>and what is different</b> about <b>that</b> wording, that you rule differently in the two cases? Rabba <b>was silent,</b> and did not respond. The Sages <b>understood from this</b> silence that Abaye understood that Rabba retracted his ruling and conceded that in both <b>this</b> case <b>and that</b> case, the buyer acquires <b>half</b> of the field.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

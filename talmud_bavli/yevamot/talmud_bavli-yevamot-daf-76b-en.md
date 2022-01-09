@@ -1,0 +1,54 @@
+
+### Part 1
+But <b>this one,</b> Pharaoh’s daughter, <b>did not require such</b> things, as she herself was the daughter of royalty, and therefore there would have been no reason to doubt the sincerity of her conversion.
+
+### Part 2
+The Gemara asks: <b>But let him derive</b> that Pharaoh’s daughter was forbidden to Solomon for a different reason, <b>as she</b> was <b>a first-</b>generation <b>Egyptian</b> convert. Even if she converted, she would still have been an Egyptian convert of the first generation, and as such neither she nor her children would have been permitted to marry a Jew by birth (Deuteronomy 23:8–9). <b>And if you would say</b> that <b>those</b> whom the Torah rendered forbidden have already <b>left</b> Egypt and are now living elsewhere <b>in the world, and those</b> currently living in Egypt <b>are others,</b> there is a difficulty.
+
+### Part 3
+As, <b>isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda said: Minyamin, an Egyptian convert, was a friend of mine from among the students of Rabbi Akiva,</b> and <b>he said:</b> After I converted <b>I</b> was <b>a first-</b>generation <b>Egyptian</b> convert, <b>and</b> so <b>I married</b> another <b>first-</b>generation <b>Egyptian</b> convert. <b>I will marry off my son,</b> who is a second-generation Egyptian convert, <b>to</b> another <b>second-</b>generation <b>Egyptian</b> convert, <b>so that my grandson will be fit to enter into the congregation.</b> This indicates that first- and second-generation converts of Egyptian extraction were prohibited from entering into the congregation even during the period of the Mishna.
+
+### Part 4
+<b>Rav Pappa said: Shall we stand up and raise an objection from Solomon? Solomon did not marry anyone, as it is written in his regard: “Of the nations concerning which the Lord said to the children of Israel, You shall not go among them, neither shall they come among you; for surely they will turn away your heart after their gods; Solomon cleaved to these in love”</b> (I Kings 11:2). Solomon cleaved to these women in love, but was not legally married to them. As Solomon had other forbidden wives, the case of Pharaoh’s daughter presents no special difficulty. In fact, none of these marriages were valid at all. <b>But</b> the phrase <b>“and</b> Solomon <b>married”</b> (I Kings 3:1) that appears in connection with Pharaoh’s daughter is <b>difficult,</b> as it indicates that this marriage was in fact valid.
+
+### Part 5
+The Gemara answers: <b>Due to the extraordinary love that he had for her, the verse relates to him as if he had married her</b> through a legally valid marriage, even though this was not the case.
+
+### Part 6
+<b>Ravina said to Rav Ashi: But didn’t we learn</b> in the mishna that <b>a man with crushed testicles and one whose penis has been severed are permitted to</b> marry a female <b>convert and an emancipated</b> maidservant? That indicates that it is only these women whom they are permitted to marry, <b>but they are prohibited from</b> marrying <b>a Gibeonite woman.</b> This appears to contradict the <i>baraita</i> that permits a man with crushed testicles to marry a Gibeonite.
+
+### Part 7
+Rav Ashi <b>said to</b> Ravina: <b>And according to your</b> line of <b>reasoning, say the latter clause</b> of the mishna as follows: <b>And they are prohibited only from entering into the congregation,</b> and infer just the opposite, that it is only a woman who was born Jewish whom they are prohibited from marrying, <b>but they are permitted to</b> marry <b>a Gibeonite woman,</b> as she is not part of the congregation of the Lord. <b>Rather, no</b> inference is <b>to be learned from this</b> mishna, as the possible inferences are contradictory, and one must therefore rely on the <i>halakha</i> that was expressly taught.
+
+### Part 8
+mishna <b>Ammonite and Moabite</b> converts <b>are prohibited</b> from entering into the congregation and marrying a woman who was born Jewish, <b>and their prohibition is eternal,</b> for all generations. <b>However, their female</b> counterparts, even the convert herself, <b>are permitted immediately.</b>
+
+### Part 9
+<b>Egyptian and Edomite</b> converts <b>are prohibited</b> from entering into the congregation <b>only for three generations, both males and females. Rabbi Shimon renders permitted</b> Egyptian and Edomite <b>females immediately. Rabbi Shimon said: The matter</b> may be derived by way of <b>an <i>a fortiori</i></b> inference: <b>If in a place where</b> the Torah rendered <b>prohibited the males with an eternal prohibition,</b> i.e., Ammonites and Moabites, it <b>rendered permitted the females immediately,</b> then in <b>a place where it rendered prohibited the males for only three generations,</b> i.e., Egyptians and Edomites, <b>is it not right that we should render permitted the females immediately?</b>
+
+### Part 10
+Rabbi Shimon’s colleagues <b>said to him: If</b> you are reporting a <b><i>halakha</i></b> that you received from your teachers, <b>we will accept</b> it from you. <b>But if</b> you merely wish to prove your case with an <i>a fortiori</i> <b>inference</b> based on your own reasoning, <b>there is a refutation</b> of your argument. Rabbi Shimon <b>said to them:</b> That is <b>not so.</b> I disagree with your claim that the <i>a fortiori</i> inference can be refuted, but in any case <b>I am stating a <i>halakha</i></b> handed down to me by my teachers.
+
+### Part 11
+gemara The Gemara asks: <b>From where are these matters</b> derived that female Ammonites and Moabites are permitted immediately? <b>Rabbi Yoḥanan said: As the verse states: “And when Saul saw David go forth against the Philistine, he said to Abner, the captain of the host: Abner, whose son is this youth? And Abner said: As your soul lives, O king, I cannot tell”</b> (I Samuel 17:55). This verse is puzzling: <b>Did</b> Saul really <b>not recognize him? But isn’t it</b> previously <b>written:</b> “And David came to Saul, and stood before him; <b>and he loved him greatly; and he became his armor-bearer”</b> (I Samuel 16:21)? <b>Rather,</b> it must be that <b>he was asking about</b> David’s <b>father.</b>
+
+### Part 12
+The Gemara is still puzzled by this verse: <b>And did</b> Saul <b>not recognize</b> David’s <b>father? But isn’t it written</b> with regard to Jesse, David’s father: <b>“And the man in the days of Saul was old, and came among men”</b> (I Samuel 17:12), <b>and Rav, and some say Rabbi Abba, said: This</b> is referring to <b>Jesse, father of David, who</b> always <b>entered with multitudes [<i>ukhlusa</i>] and left with multitudes.</b> As he was clearly a man of importance, everyone must have known who he was.
+
+### Part 13
+Rather, <b>this is</b> what <b>Saul was saying,</b> in his attempt to clarify David’s lineage: <b>Does</b> he <b>come from</b> the descendants of <b>Perez, or does</b> he <b>come from</b> the descendants of <b>Zerah?</b> What is the significance of this question? <b>If</b> he <b>comes from Perez he will be king, as a king may breach [<i>poretz</i>] a way</b> for himself <b>and no one can stop him.</b> And <b>if he comes from Zerah he will be merely a man of importance,</b> but not a king.
+
+### Part 14
+The Gemara continues with its explanation: <b>For what reason did</b> Saul <b>say to</b> Abner that he should <b>inquire about</b> David? <b>As it is written: “And Saul clad David with his apparel [<i>maddav</i>]”</b> (I Samuel 17:38), which indicates that the clothes were <b>of</b> David’s <b>size [<i>kemiddato</i>]. And it is written with regard to Saul: “From his shoulders and upward he was higher than any of the people”</b> (I Samuel 9:2). Upon seeing that his clothes fit David, Saul began to fear that it might be David who was destined for the throne, and he therefore inquired into his background. At that point, <b>Doeg the Edomite said to</b> Saul: <b>Before you inquire as to whether or not he is fit for kingship, inquire as to whether or not he is</b> even <b>fit to enter into the congregation. What is the reason</b> for such doubts? It is <b>that</b> he <b>descends from Ruth the Moabite,</b> and Moabites are permanently barred from entering the congregation.
+
+### Part 15
+<b>Abner said to him: We</b> already <b>learned</b> that there is no room for such concern. As the verse states: “An Ammonite or a Moabite shall not enter into the congregation of the Lord” (Deuteronomy 23:4), teaching that <b>an Ammonite</b> man is barred from entering into the congregation, <b>but not an Ammonite woman;</b> and similarly, <b>a Moabite</b> man is barred from entering into the congregation, <b>but not a Moabite woman.</b> Doeg said to him: <b>However, if that is so,</b> say that the verse that renders it prohibited for a <i>mamzer</i> to enter the congregation renders prohibited only a male <b><i>mamzer</i>, but not a female <i>mamzer</i>.</b> Abner replied: <b>It is written: “A <i>mamzer</i>,”</b> which should be understood not as a noun but as an adjective, denoting <b>a strange blemish [<i>mum zar</i>],</b> one who is defective due to a forbidden relationship, and this applies to males and females alike.
+
+### Part 16
+Doeg retorted: If so, say that it is prohibited for only <b>an Egyptian</b> man to enter into the congregation, <b>but not an Egyptian woman.</b> Abner answered: <b>Here it is different, as the reason for</b> the prohibition recorded in this <b>verse</b> with regard to Ammonites <b>is explicit: “Because they did not meet you with bread and with water</b> on the way, when you came forth out of Egypt” (Deuteronomy 23:5). Since <b>it is the way of a man</b> to go forth <b>to meet</b> guests <b>but it is not the way of a woman</b> to go forth, females were not included in this prohibition. Doeg countered: Still, <b>the men should have gone</b> forth <b>to meet the men, and the women to meet the women.</b> Abner <b>was silent,</b> as he did not know how to respond to this objection.
+
+### Part 17
+<b>Immediately: “And the king said, inquire you whose son is this lad”</b> (I Samuel 17:56). The Gemara comments: <b>There,</b> in the previous verse, Saul <b>calls him youth [<i>na’ar</i>],</b> and <b>here he calls him lad [<i>elem</i>].</b> This change in the wording hints at the following discussion. Saul <b>said to</b> Doeg <b>as follows:</b> The <b><i>halakha</i> is hidden [<i>nitalma</i>] from you,</b> and you are ignorant of the law. <b>Go and inquire</b> about the matter <b>in the study hall. He</b> went to the study hall and <b>asked. They said to him:</b> The <i>halakha</i> is: <b>An Ammonite</b> man is forbidden, <b>but not an Ammonite woman; a Moabite</b> man is forbidden, <b>but not a Moabite woman.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

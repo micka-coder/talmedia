@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>Les recipients d'une personne effectuent l'acquisition</b> de tout objet place a l'interieur de ceux-ci <b>pour elle, dans tout lieu</b> dans lequel ils se trouvent, <b>sauf dans le domaine public. Et Rabbi Yohanan et Rabbi Shimon ben Lakish disent tous deux : Meme dans le domaine public,</b> les recipients d'une personne effectuent l'acquisition des objets qui y sont places.
+
+### Partie 2
+<b>Rav Pappa a dit :</b> Ces <i>amoraim</i> <b>ne sont pas en desaccord : ici,</b> lorsque Rav et Shmuel affirment que le navire d'un individu n'effectue pas d'acquisition pour lui, ils parlent d'un navire place <b>dans le domaine public ; la,</b> lorsque Rabbi Yohanan et Reish Lakish affirment que son navire effectue l'acquisition en son nom, ils font reference a un navire situe <b>dans une ruelle. Et pourquoi appellent-ils</b> une ruelle <b>le domaine public ?</b> La raison est <b>que</b> une ruelle n'est <b>pas un domaine prive.</b>
+
+### Partie 3
+La Guemara fait remarquer : <b>Aussi, il est raisonnable</b> d'interpreter la declaration de Rabbi Yohanan de cette maniere, <b>comme Rabbi Abbahou dit</b> que <b>Rabbi Yohanan dit : Les vases d'une personne effectuent l'acquisition pour elle dans tout endroit ou elle a la permission de les garder.</b> On peut deduire de la : Dans un endroit ou <b>il a la permission</b> de les garder, <b>oui,</b> ses recipients effectuent une acquisition pour lui. Mais dans un endroit ou <b>il n'a pas la permission</b> de garder ses recipients, ils n'effectuent <b>pas</b> d'acquisition pour lui, et on a la permission de garder ses recipients dans une ruelle mais pas dans le domaine public. La Guemara affirme : <b>Conclure de</b> cette declaration que lorsque Rabbi Yohanan faisait reference au domaine public, il voulait dire une ruelle.
+
+### Partie 4
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une difficulte d'un <i>baraita</i> : Il y a <b>quatre cas en ce qui concerne les vendeurs,</b> c'est-a-dire quatre methodes par lesquelles la marchandise est acquise. Lorsque le vendeur mesure la marchandise pour l'acheteur, <b>avant que le recipient de mesure</b> <b>ait ete rempli</b> la marchandise dans le recipient appartient encore <b>au vendeur</b> et il peut changer d'avis et annuler la vente. <b>Une fois que le recipient de mesure</b> <b>a ete rempli</b> la marchandise appartient <b>a l'acheteur. Dans quel</b> cas <b>cette affirmation est-elle dite ? </b> Elle est dite lorsque le vendeur mesure <b>avec un recipient a mesurer</b> <b>qui n'appartient a aucun des deux. Mais si le recipient de mesure</b> <b>appartenait a l'un d'eux,</b> l'acheteur <b>acquiert</b> les objets de la vente <b>un</b> par <b>un</b> au fur et a mesure qu'ils sont places dans le recipient de mesure.
+
+### Partie 5
+<b>Dans quel</b> cas <b>cette affirmation est-elle dite ?</b> Elle est dite lorsque le vendeur mesure les objets <b>dans le domaine public ou dans une cour qui n'appartient a aucun des deux. Mais</b> si cela se passe <b>dans le domaine</b> du <b>vendeur,</b> l'acheteur <b>n'acquiert pas</b> la marchandise <b>jusqu'a ce qu'il souleve</b> le recipient de mesure <b>ou jusqu'a ce qu'il le deplace hors du domaine</b> du vendeur. Si elle est <b>dans le domaine</b> de l'<b>acheteur, des que</b> le <b>vendeur accepte sur lui-meme</b> de vendre, l'<b>acheteur l'acquiert</b>. Si la marchandise se trouve <b>dans le domaine de cet</b> individu <b>aupres duquel elle avait ete deposee,</b> l'acheteur ne l'<b>acquiert</b> pas avant que</b> le depositaire <b>accepte sur lui-meme</b> de designer un lieu ou la marchandise doit etre entreposee pour l'acheteur, <b>ou jusqu'a ce que</b> l'acheteur <b>loue</b> du depositaire <b>le lieu</b> ou se trouve la marchandise.
+
+### Partie 6
+<b>En tout etat de cause,</b> cette <i>baraita</i> <b>enseigne a propos</b> d'une transaction dans <b>le domaine public ou dans une cour qui n'appartient a aucun d'eux</b> que si le navire de mesure appartenait a l'un d'eux, l'acheteur acquiert les objets de la vente un par un au fur et a mesure qu'ils sont places dans le navire.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

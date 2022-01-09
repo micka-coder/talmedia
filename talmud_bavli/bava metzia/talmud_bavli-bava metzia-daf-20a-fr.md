@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Conclure du</b> fait que cette suspicion n'est pas prise en compte que la <i>halakha</i> <b>de Shmuel est acceptee. Comme le dit Shmuel :</b> Dans le cas de <b>celui qui vend un billet a ordre a un autre, et</b> le vendeur <b>permet ensuite</b> la remise de la dette du debiteur, <b>elle est remise,</b> puisque le debiteur avait essentiellement une obligation non transferable envers le seul creancier, <b>et meme</b> l'<b>heritier du creancier peut remettre</b> la dette. Par consequent, si l'epouse s'est effectivement livree a la tromperie mentionnee ci-dessus, elle etait dans son droit, car elle est en mesure de remettre la dette du contrat de mariage.
+
+### Partie 2
+<b>Abaye a dit :</b> Ce n'est pas une preuve concluante. <b>Meme</b> si <b>vous dites</b> que la <i>halakha</i> <b>de Shmuel n'est pas</b> acceptee, <b>ici nous avons affaire</b> a un cas <b>ou le <b>contrat de mariage emerge de sa possession,</b> ce qui indique qu'elle ne l'a pas vendu. <b>Et Rava</b> n'est pas d'accord avec Abaye et <b>dit : Si</b> la raison pour laquelle on ne soupconne pas qu'elle a vendu son contrat de mariage est <b>du fait</b> que le <b>contrat de mariage</b> a emerge de sa possession, cette raison est insuffisante, car <b>nous</b> devrions <b>soupconner</b> qu'il pourrait y avoir <b>deux contrats de mariage.</b>
+
+### Partie 3
+<b>Et Abaye dit</b> en reponse : <b>Premierement, nous ne sommes pas concernes par</b> la possibilite lointaine de <b>deux contrats de mariage. Et en outre,</b> meme s'il n'y a qu'un seul contrat de mariage, qui a ete vendu avant que le recu ne soit remis au mari, le recu est valable, car <b>un recu</b> peut etre utilise pour <b>reprendre possession</b> d'un bien <b>a partir</b> du <b>moment</b> ou il a ete ecrit, meme s'il a ete remis a une date ulterieure. En disant cela, <b>Abaye</b> se conforme <b>a sa ligne standard de <b>raisonnement</b>, puisqu'il dit</b> qu'une fois qu'un document monetaire est ecrit pour quelqu'un, <b>les temoins du document, avec leurs signatures, l'acquierent</b> <b>en son nom.</b>
+
+### Partie 4
+<strong>MISHNA : </strong>Si l'on <b>trouve des documents d'evaluation</b> des biens d'un debiteur dans le but de recouvrer une dette ; <b>ou des documents concernant la nourriture,</b> qui ont ete rediges lorsqu'une personne a accepte sur elle-meme de fournir la subsistance a une autre ; <b>des documents de <i>halitza</i> ; ou</b> les documents de <b>refus</b> d'une jeune fille a sa majorite de rester mariee a l'homme auquel sa mere ou ses freres l'ont mariee en tant que mineure apres la mort de son pere ; <b>ou les documents de <i>beirurin</i>,</b> un concept qui sera explique dans la Gemara ; <b>ou tout acte de justice,</b> par ex. g., un billet a ordre qui a ete authentifie par le tribunal, dans tous ces cas, le trouveur <b>doit rendre</b> le document a son proprietaire presume.
+
+### Partie 5
+Si l'on <b>trouve</b> des documents <b>dans une <i>hafisa</i> ou dans un <i>deluskema</i>,</b> ces deux types de recipients, ou si l'on trouve <b>un rouleau de documents ou une liasse de documents, on doit les restituer</b>. <b>Et combien</b> de documents sont consideres comme <b>une liasse de documents ?</b> C'est <b>trois</b> qui sont <b>lies ensemble. Rabban Shimon ben Gamliel dit :</b> Si les documents font reference a des prets de <b>une</b> personne <b>qui a emprunte</b> de l'argent <b>a trois</b> personnes, le trouveur <b>doit les rendre</b> au debiteur,</b> car ils etaient vraisemblablement en sa possession avant d'etre perdus. Si les documents font reference a des prets de <b>trois</b> personnes <b>qui ont emprunte</b> de l'argent <b>a une</b> personne, <b>il doit les restituer</b> <b>au creancier,</b> car ils etaient vraisemblablement en sa possession avant d'etre perdus.
+
+### Partie 6
+Si quelqu'un <b>trouve parmi ses documents</b> un document qui lui a ete remis par d'autres personnes en tant que fiduciaire, <b>et qu'il ne sait pas quelle est sa nature,</b> c'est-a-dire qu'il ne se rappelle pas qui le lui a remis ou si la dette qui y est mentionnee a ete payee, le document <b>est mis</b> de cote <b>jusqu'a ce qu'Elie</b> le prophete <b>vienne</b> et clarifie la question par sa prophetie. <b>S'il y a parmi eux des annulations de contrats [<i>simponot</i>], il doit faire ce qui</b> est indique <b>dans les <i>simponot</i>.</b>
+
+### Partie 7
+<strong>GEMARA :</strong> <b>Qu'entend-on</b> par <b>documents de <i>beirurin</i> ? Ici,</b> en Babylonie, les Sages <b>l'interpretent</b> comme signifiant des <b>documents</b> consignant les eclaircissements [<i>beirur</i>] <b>de</b> chaque plaideur dans un proces. <b>Rabbi Yirmeya,</b> qui vivait en Eretz Yisrael, <b>a dit :</b> Il fait reference aux cas ou <b>cette</b> plaideuse <b>choisit [<i>borer</i>] un</b> juge, <b>et cette</b> plaideuse <b>choisit un</b> juge, et ils choisissent le troisieme juge pour l'affaire. Les deux plaideurs signent un document dans lequel ils declarent quels juges ils choisissent.
+
+### Partie 8
+§ La Gemara aborde ce que la mishna declare : <b>Et</b> en ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouve <b>doit le rendre</b> a son proprietaire presume. La Gemara raconte : Il y avait <b>un certain acte de divorce qui a ete trouve</b> dans <b>le tribunal de Rav Huna, dans lequel il etait ecrit</b> que l'acte de divorce a ete ecrit <b>dans la ville de Sheviri, qui est</b> situee <b>sur la riviere Rakhis. Rav Huna a dit</b> a ce sujet :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

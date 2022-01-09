@@ -1,0 +1,27 @@
+
+### Part 1
+<b>but the offspring of</b> other <b>sacred</b> animals, for peace-offerings, must be brought <b>to the Temple</b> and left to die there. The verse therefore <b>teaches us that</b> one does <b>not</b> leave the offspring of peace-offerings to die. Rather, they are sacrificed upon the altar.
+
+### Part 2
+§ The Gemara continues to discuss the <i>baraita</i>. The <i>baraita</i> <b>teaches:</b> One <b>might</b> have thought that <b>the offspring of a sin-offering and the substitute of a guilt-offering</b> should <b>also</b> be treated <b>so,</b> i.e., they too should be sacrificed on the altar like sin-offerings and guilt-offerings. Therefore, <b>the verse states: “Only”</b> (Deuteronomy 12:26). The Gemara asks: <b>Why do I</b> need <b>a verse</b> for this <i>halakha</i>? After all, <b>this <i>halakha</i> is learned</b> as a tradition that <b>the offspring of a sin-offering goes to</b> its <b>death.</b> The Gemara answers: <b>So too,</b> this is correct as far as the offspring of a sin-offering is concerned, <b>and the verse comes</b> to teach that this <i>halakha</i> applies <b>to a guilt-offering</b> as well.
+
+### Part 3
+The Gemara asks: With regard to <b>a guilt-offering as well, this <i>halakha</i> is learned</b> as a tradition: <b>Any</b> situation <b>that if it were</b> to occur <b>with a sin-offering</b> it would be left to <b>die,</b> i.e., any offering that is invalid in such a manner that it would have to be left to die if it were a sin-offering, which includes a substitute, if <b>it</b> occurs <b>with a guilt-offering it</b> is left to <b>graze</b> until it develops a blemish so that it is no longer fit for the altar. Why, then, is a verse required to teach this <i>halakha</i>?
+
+### Part 4
+<b>Rather,</b> the argument is as follows: <b>If</b> one would have learned this ruling only <b>from the</b> aforementioned <b><i>halakha</i></b> transmitted to Moses from Sinai, <b>I would say:</b> It is admittedly <b>the <i>halakha</i></b> that the offspring of a sin-offering must die and the substitute of a guilt-offering is left to graze, <b>but if he sacrificed it</b> regardless, <b>he would not be liable to</b> receive <b>any</b> punishment <b>for it. The verse</b> therefore <b>teaches us that if he sacrifices</b> the offspring or substitute of a guilt-offering, <b>he transgresses a positive mitzva by it,</b> as derived from the verse: “Only your sacred things which you have, and your vows, you shall take and go to the place which the Lord shall choose” (Deuteronomy 12:26).
+
+### Part 5
+§ The same <i>baraita</i> teaches that <b>Rabbi Akiva says:</b> In the case of a guilt-offering this exposition is <b>not necessary, as it says: “It is a guilt-offering”</b> (Leviticus 5:19), which indicates: <b>It</b> alone <b>shall be</b> sacrificed <b>in its</b> current <b>state,</b> but not its substitute. The Gemara asks: <b>Why do I</b> need <b>a verse</b> for this <i>halakha</i>? <b>We learned it</b> as a <b><i>halakha</i>: Any</b> situation <b>that if it were</b> to occur <b>with a sin-offering</b> it would be left to <b>die,</b> if <b>it</b> occurs <b>with a guilt-offering it</b> is left to <b>graze.</b> If so, it is clear that this guilt-offering cannot be sacrificed.
+
+### Part 6
+The Gemara answers: <b>So too,</b> this is correct, <b>and when the verse comes</b> to teach a <i>halakha</i>, it comes <b>for</b> that which was said <b>by Rav. As Rav Huna said</b> that <b>Rav said:</b> With regard to <b>a guilt-offering that was consigned to grazing,</b> i.e., it had been ruled that the animal must be left to graze until it develops a blemish as it could not be sacrificed as a guilt-offering, at which point it was sold so that the proceeds could be used for voluntary burnt-offerings, <b>and</b> one transgressed and <b>slaughtered</b> the guilt-offering itself <b>for the sake of a burnt-offering</b> rather than using an animal purchased with the money of its sale, <b>it is valid.</b>
+
+### Part 7
+The Gemara infers from Rav’s statement: <b>The reason</b> for this ruling is <b>that</b> it is a guilt-offering that was <b>consigned</b> to grazing, from which it may be inferred that <b>if</b> it were <b>not consigned</b> in this manner it is <b>not</b> valid as a burnt-offering. This is because <b>the verse states: “It</b> is a guilt-offering,” which indicates that <b>it shall be in its</b> current <b>state,</b> and if it were sacrificed as a different offering it is invalid.
+
+### Part 8
+§ The Gemara returns to the issue of a nazirite’s offerings: <b>The Master,</b> Rabbi Yoḥanan, <b>said</b> earlier: <b>It is a <i>halakha</i> with regard to a nazirite</b> that his unallocated funds, including the value of his sin-offering, are used for the purchase of gift offerings. The Gemara asks: This formulation indicates that this <i>halakha</i> pertains only to a nazirite, <b>but is there no other</b> case where the surplus goes toward the purchase of gift offerings? <b>But isn’t it taught</b> in a <i>baraita</i>: <b>And the rest of those liable to</b> bring <b>nests by Torah law,</b> i.e., those paupers who are obligated to bring only a bird-offering, e.g., a poor leper, who must bring two turtledoves, one for a burnt-offering and one for a sin-offering, instead of a sheep or a ewe,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

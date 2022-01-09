@@ -1,0 +1,36 @@
+
+### Partie 1
+La Guemara relate : <b>Rav Yossef s'est assis devant Rav Hamnuna</b> dans la salle d'etude, <b>et Rav Hamnuna s'est assis et a dit</b> le <i>halakha</i> suivant : <b>De meme que les fils n'heritent que de la terre, de meme, les filles ne sont entretenues que par la terre.</b> Lorsque Rav Hamnuna a enseigne cette <i>halakha</i>, <b>tout le monde a claudique [<i>avash</i>] contre lui,</b> c'est-a-dire que tous ses auditeurs se sont murmures leur surprise : Est-ce seulement celui <b>qui laisse</b> derriere lui une <b>terre dont les fils heritent</b> de <b>lui,</b> alors que dans le cas de celui <b>qui ne laisse pas de terre, ses fils n'heritent pas</b> de <b>lui ?</b> La declaration de Rav Hamnuna indique que les fils n'heritent que de la terre et rien d'autre.
+
+### Partie 2
+<b>Rav Yosef a dit a</b> Rav Hamnuna : <b>Peut-etre que le Maitre parlait</b> du <b>document de mariage</b> assurant les droits d'heritage des <b>enfants males</b> d'une femme, c'est-a-dire le droit de ses fils d'heriter de la somme stipulee dans son contrat de mariage en plus de leur part de la succession du pere aux cotes de tout autre frere. Rav Hamnuna <b>lui a dit : Le Maitre, qui est un grand homme, sait ce que j'ai dit,</b> c'est-a-dire que c'etait bien mon intention, alors que les autres n'ont pas su me comprendre correctement.
+
+### Partie 3
+<b>Rabbi Hiyya bar Yosef a dit : Rav</b> soutenait</b> les orphelines <b>avec du ble selon la <i>aliyya</i></b> si leurs peres ne leur laissaient pas de terres. <b>Un dilemme s'est pose devant</b> les savants : <b>Etait-ce</b> cette subsistance que Rav fournissait sous forme de <b>moyens d'existence,</b> c'est-a-dire une dot pour qu'ils puissent se marier, <b>et quel est</b> le sens du terme <b><i>aliyya</i>?</b> Il signifie : En accord avec <b>le statut [<i>illuyya</i>] du pere, et</b> ceci est <b>conforme</b> a l'avis <b>de Shmuel. Comme l'a dit Shmuel : En ce qui concerne</b> les filles <b>moyens d'existence,</b> c'est-a-dire leur dot, le tribunal <b>evalue</b> le montant qu'elles recoivent de la succession de leur pere apres son deces <b>en fonction</b> du temperament et du statut social et financier du <b>pere.</b>
+
+### Partie 4
+<b>Ou peut-etre</b> c'etait <b>la subsistance proprement dite,</b> c'est-a-dire, des dispositions pour qu'ils aient de la nourriture, <b>et quel est</b> le sens du terme <b><i>aliyya</i> ? </b> Il indique que cette <i>halakha</i> fait partie <b>des bonnes declarations dites dans la chambre haute [<i>aliyya</i>], comme l'a dit Rav Yitzhak bar Yosef : </b> Lorsque les Sages se sont assis <b>dans la chambre haute</b> pour statuer sur certaines <i>halakhot</i>, ce qu'ils ne pouvaient pas faire dans la salle d'etude a l'epoque en raison de la persecution des Gentils, <b>ils ont institue que les filles devaient etre entretenues par des biens meubles</b> en plus de la terre.
+
+### Partie 5
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une resolution a ce dilemme : <b>En la possession de Rabbi Banai, le frere de Rabbi Hiyya bar Abba, il y avait des biens mobiliers</b> appartenant <b>a des orphelines,</b> deposes chez lui par leur pere. Les filles orphelines <b>se presenterent devant Shmuel,</b> qui <b>dit a</b> Rabbi Banai : <b>Allez</b> et <b>soutiens</b> les filles de la propriete.
+
+### Partie 6
+<b>Quoi, n'est-il pas</b> correct de dire que cela signifie qu'il doit leur fournir <b>une subsistance, et</b> cela indiquerait que Shmuel <b>soutient conformement</b> a l'opinion de <b>Rav Yitzhak bar Yosef,</b> que les Sages ont institue une ordonnance dans la chambre haute selon laquelle les filles ont droit a leur subsistance meme a partir de biens meubles ? La Gemara refute cette affirmation : <b>Non, il y est</b> enonce en reference <b>a</b> leurs <b>moyens d'existence, et Shmuel</b> se conforme <b>a sa ligne standard de <b>raisonnement, comme l'a dit Shmuel : En ce qui concerne les moyens d'existence,</b> c'est-a-dire la dot accordee aux filles a partir de la succession de leur pere, le tribunal <b>evalue</b> le montant qu'elles recoivent <b>en fonction</b> du statut du <b>pere.</b>
+
+### Partie 7
+La Gemara relate : <b>Il est arrive un incident</b> de ce genre devant le tribunal <b>de Nehardeâ, et les juges de Nehardeâ ont decide</b> que les filles doivent etre soutenues par les biens meubles que leur pere a laisses. De meme, un cas s'est produit <b>a Pumbedita, et Rav Hana bar Bizna a percu</b> la somme sur les biens meubles. <b>Rav Nahman dit aux</b> juges : <b>Voyez annuler</b> vos decisions, <b>et sinon, je percevrai vos maisons [<i>appadnaikhu</i>] aupres de vous</b> afin de dedommager ceux que vous avez juges contre.
+
+### Partie 8
+La Guemara relate encore : <b>Rabbi Ami et Rabbi Asi pensaient</b> emettre une decision exigeant que les heritiers d'un homme <b>soutiennent</b> ses filles <b>a partir</b> des <b>biens immobiliers de l'homme. Rabbi Yaâkov bar Idi leur dit :</b> Il s'agit d'une <b>question</b> a propos de <b>laquelle Rabbi Yohanan et Reish Lakish n'ont pas agi,</b> c'est-a-dire qu'ils n'ont pas emis de decision a cet effet ; allez-vous <b>agir a</b> cet egard ? Si ces grands Sages n'etaient pas assez surs de la <i>halakha</i> pour emettre une decision pratique, comment pouvez-vous le faire ?
+
+### Partie 9
+La Guemara relate que <b>Rabbi Elazar pensait</b> emettre une decision exigeant que les heritiers d'un homme <b>soutiennent</b> ses filles <b>a partir</b> de ses <b>biens immobiliers. Rabbi Shimon ben Elyakim dit devant lui : Mon maitre, je sais de vous que vous n'agissez pas</b> selon <b>la lettre de la loi,</b> mais <b>plutot</b> par <b>pitie</b> pour ces filles, qui n'ont pas d'autre source de soutien. <b>Cependant,</b> vous ne devez toujours pas faire cela, <b>de peur que les eleves observent et</b> par erreur <b>etablir</b> le <b><i>halakha</i></b> en consequence <b>pour</b> les <b>generations futures.</b>
+
+### Partie 10
+<b>Une certaine</b> personne <b>se presenta devant Rav Yosef</b> pour s'enquerir de cette question. Rav Yosef <b>dit aux</b> fils de l'homme decede : <b>Donnez</b> a la fille sa subsistance <b>a partir des dattes</b> qui sont disposees pour secher <b>sur les nattes [<i>budya</i>].</b> Ces fruits sont certainement des biens meubles. <b>Abaye dit a</b> Rav Yosef : <b>Si c'etait un creancier</b> qui venait recouvrer une dette, <b>le Maitre lui donnerait-il</b> le droit de la recouvrer <b>de cette</b> maniere ? Meme un creancier, qui peut recouvrer sa creance en reprenant des biens que le debiteur a vendus, ne peut pas prendre des biens meubles de la possession des orphelins. Une fille, qui ne peut pas percevoir sa subsistance sur les biens que son pere a vendus, ne devrait certainement pas avoir le droit de percevoir sa subsistance sur les biens meubles qui appartiennent aux orphelins masculins.
+
+### Partie 11
+Rav Yosef <b>Dit a</b> Abaye : Je n'ai pas parle de dattes reelles couchees sur des nattes ; plutot, <b>J'ai parle</b> de dattes mures pretes a etre cueillies, <b>qui sont adaptees aux nattes.</b> Puisqu'elles sont encore attachees au sol, elles ne sont pas considerees comme des biens meubles.
+
+>Credit : Edition William Davidson
+>License : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Part 1
+<b>But if</b> this field is <b>not</b> of any distinct quality, he is certainly trying to <b>employ an artifice.</b> His plan is to then purchase another plot of land from this owner, one that does border on the field of a neighbor. By first buying the plot in the middle, he is trying to establish himself as a neighbor so that the other neighbors will not have the first right of purchase relative to him. Therefore, the neighbors may prevent him from buying the second plot of land.
+
+### Part 2
+The Gemara continues to discuss the <i>halakha</i> of one whose field borders that of his neighbor. With regard to <b>a gift, it is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, as one can give a gift to whomever he chooses. <b>Ameimar said: If he wrote</b> a property <b>guarantee to</b> the recipient of the gift that if the field is seized for payment of a debt of the giver the giver of the gift will compensate the recipient for his loss, <b>it is subject to the <i>halakha</i> of one</b> whose field <b>borders</b> of the field of his neighbor. In that case the supposed gift has the appearance of a sale, so the neighbor can force the recipient to sell the plot to him.
+
+### Part 3
+If a seller <b>sold all his property to a single</b> person, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, as the seller is not required to leave out one particular field if the buyer is acquiring all his property. Similarly, if the seller sold it back <b>to the previous owners, this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor. If a buyer <b>bought</b> a field <b>from a gentile or</b> a seller <b>sold</b> a field <b>to a gentile, this</b> purchase or sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor.
+
+### Part 4
+The Gemara clarifies this ruling: If a buyer <b>bought</b> the field <b>from a gentile</b> it does not apply, <b>as he</b> can <b>say to</b> the neighbor: It is better for you that I bought the field, as <b>I have chased away a lion for you from the border;</b> since the neighbor certainly prefers having a Jewish neighbor to having a gentile neighbor. If a seller <b>sold</b> a field <b>to a gentile,</b> the <b>gentile is certainly not bound</b> by the command of: <b>“And you shall do that which is right and good in the eyes of the Lord”</b> (Deuteronomy 6:18). The gentile is therefore under no obligation to refrain from purchasing this land. Nevertheless, <b>we certainly excommunicate</b> the one who sold it to the gentile <b>until he accepts upon himself</b> responsibility for <b>all</b> damage resulting from <b>accidents that</b> might <b>befall</b> the neighbor <b>on</b> the gentile’s <b>account.</b>
+
+### Part 5
+The Gemara continues: If he sold a field previously given as <b>a mortgage</b> to the one to whom it was mortgaged, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, <b>as Rav Ashi said: The elders of</b> the town of <b>Mata Meḥasya said to me: What</b> is the meaning of the word <b>mortgage [<i>mashkanta</i>]?</b> It means <b>that</b> it <b>resides [<i>shekhuna</i>] with</b> the one to whom it was mortgaged. The Gemara asks: <b>What difference does it make</b> what the word means? The Gemara answers: It is relevant <b>with regard to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor in that the person to whom the field is mortgaged has more rights than bordering neighbors, as he lays claim to a measure of ownership over the land.
+
+### Part 6
+If one sought <b>to sell a distant</b> field <b>and to redeem,</b> i.e., purchase for himself, <b>a close</b> one, or if he sold <b>a bad</b> one <b>to redeem a good</b> one, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor. Rather, he may sell his field whenever he has the opportunity.
+
+### Part 7
+Likewise, if he sells his field to pay for necessities, such as <b>for taxes, for</b> his wife and daughters’ <b>sustenance, or for</b> the <b>burial</b> of one of his family members, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor. This is <b>because</b> the Sages of <b>Neharde’a said: For taxes, for sustenance, and for burial we sell</b> a field <b>without a proclamation,</b> as such matters are pressing and urgent and should not be delayed out of consideration for the rights of a bordering neighbor. Similarly, if he sold the field <b>to a woman,</b> who does not usually chase after vendors, <b>or to orphans, or to</b> his <b>partners, this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor.
+
+### Part 8
+If various individuals have equal rights to the field, such as both are bordering neighbors, but some of them are <b>neighbors</b> whose fields are adjacent to his on the side <b>of the city,</b> i.e., their fields are between the city and the field being sold; <b>and</b> others are <b>neighbors</b> whose fields are adjacent to his on the side <b>of the field,</b> i.e., their fields are between the field being sold and the area further from the city, the <b>neighbors</b> whose fields are adjacent to his on the side <b>of the city</b> receive <b>precedence.</b>
+
+### Part 9
+If one is a regular <b>neighbor and</b> the other is <b>a Torah scholar, the Torah scholar</b> receives <b>precedence.</b> If one is <b>a relative and</b> the other is <b>a Torah scholar,</b> here too, <b>the Torah scholar</b> receives <b>precedence. A dilemma was raised before</b> the Sages: With regard to <b>a neighbor and a relative, what</b> is the <i>halakha</i>? Which of them takes precedence? The Gemara suggests: <b>Come</b> and <b>hear</b> an answer from the following verse: <b>“Better a neighbor who is near than a brother who is far”</b> (Proverbs 27:10).
+
+### Part 10
+If two people sought to acquire a field, and <b>these</b> coins that the first produces for payment are <b>good dinars, and those</b> coins that the second uses are <b>weighed dinars,</b> which are preferable to the good dinars, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, as the owner can say he prefers the superior quality coins. If <b>these</b> coins were <b>wrapped up and those</b> were <b>loose, this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> on the field his neighbor, as he may sell his field to the one whose money is ready to be counted.
+
+### Part 11
+If the neighbor <b>said: I will go and expend effort and bring money, we do not wait for him,</b> despite his status as a bordering neighbor, if someone else is available who is prepared to pay immediately. If <b>he said: I will go bring money, we see</b> what his financial status is: <b>If he is a person who is assessed</b> as one <b>who can go and bring money</b> without delay, <b>we wait for him, but if not, we do not wait for him.</b>
+
+### Part 12
+If the <b>land</b> belonged <b>to one</b> person <b>and the houses</b> on the land belonged <b>to</b> another <b>one, the owner of the land prevents the owner of the houses</b> from selling his houses to someone else, as he has the first right of purchase. By contrast, <b>the owner of the houses does not prevent the owner of the land</b> from selling his land, as one can change his place of residence with relative ease, so he is not considered tied to the land. Similarly, if the <b>land</b> belonged <b>to one and</b> its <b>palm trees to</b> another <b>one, the owner of the land can prevent the owner of the palm trees</b> from selling the trees to another, but <b>the owner of the palm trees cannot prevent the owner of the land</b> from selling his land to another.
+
+### Part 13
+If two people wanted to purchase the land, but one desired the <b>land for</b> building <b>houses and</b> the other wished to purchase <b>the land for planting, the settling</b> of the land through construction of houses is <b>preferable, and this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor. Therefore, he may sell to the one who wants to build a house there, even if he is not a bordering neighbor and the other potential buyer is.
+
+### Part 14
+If <b>a jagged edge of rock or a row of palm trees served as a barrier</b> between two bordering fields, <b>we see</b> whether any open space exists. <b>If</b> the owner of the adjacent field <b>can insert even a single furrow there</b> that comes into contact with the other field, <b>this</b> sale <b>is subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor. <b>But if</b> sufficient space for a furrow does <b>not</b> exist, <b>this</b> sale <b>is not subject to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor.
+
+### Part 15
+In a case of <b>those four bordering neighbors</b> who surround a field that is for sale from all four sides, if <b>one of them preceded</b> the others <b>and purchased</b> it, <b>his purchase</b> is a valid <b>purchase</b> and the others cannot object. <b>And if they all came simultaneously</b> to purchase it, then <b>they divide</b> the plot of land, <b>with</b> two bisecting <b>diagonal</b> lines so that each receives a portion near his field.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

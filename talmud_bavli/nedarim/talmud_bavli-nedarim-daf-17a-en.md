@@ -1,0 +1,18 @@
+
+### Part 1
+However, <b>the verse states:</b> “Or if anyone swears clearly with his lips <b>to do evil, or to do good”</b> (Leviticus 5:4). From the juxtaposition of evil and good it is derived that <b>just as the doing of good,</b> which is interpreted as obligating himself to take a positive action, is referring to a <b>permitted</b> activity, e.g., to eat, <b>so too, the doing of evil,</b> which is interpreted as prohibiting himself from something, refers only to that which is <b>permitted,</b> e.g., not to eat. This <b>excludes</b> one who <b>takes an oath to nullify a mitzva and does not nullify it;</b> he is not liable for violating the oath, <b>as the permission</b> to nullify it <b>is not in his power.</b>
+
+### Part 2
+The Gemara answers that both verses are necessary. <b>One verse:</b> “To do evil or to do good,” which is stated in the context of the <i>halakhot</i> of offerings, is necessary <b>to exempt him from</b> bringing <b>an offering for</b> violating <b>an oath, and one</b> verse: “He shall not profane,” is necessary <b>to exempt him from the prohibition for</b> violating <b>an oath.</b>
+
+### Part 3
+<strong>MISHNA:</strong> <b>There is a vow within a vow.</b> It is possible to impose an additional prohibition, by means of a vow, on an item that is already forbidden by means of a vow. <b>But there is no oath within an oath.</b> If one takes an oath twice with regard to the same action, the second oath does not take effect. <b>How so?</b> If one <b>said: I am hereby a nazirite if I eat,</b> and then repeated: <b>I am hereby a nazirite if I eat, and</b> then <b>he ate, he is obligated</b> to observe naziriteship for thirty days <b>for each and every one</b> of the vows, as both vows took effect. However, if he said: I hereby take <b>an oath that I will not eat,</b> and repeated: I hereby take <b>an oath that I will not eat, and</b> then <b>he ate, he is liable</b> to bring an offering <b>for only one</b> violation of an oath.
+
+### Part 4
+<strong>GEMARA:</strong> <b>Rav Huna said: They taught</b> that there is a vow within a vow <b>only where he said: I am hereby a nazirite today,</b> and then he said: <b>I am hereby a nazirite tomorrow. As since an additional day</b> of naziriteship <b>is added</b> by the second vow, an additional thirty-day obligation of <b>naziriteship takes effect upon</b> the first term of <b>naziriteship. However,</b> if <b>he said: I am hereby a nazirite today,</b> and then repeated: <b>I am hereby a nazirite today,</b> a vow of <b>naziriteship does not take effect upon</b> a previous vow of <b>naziriteship,</b> and he must observe only one term of naziriteship. <b>And Shmuel said</b> that <b>even</b> if <b>he said: I am hereby a nazirite today, I am hereby a nazirite today,</b> a second vow of <b>naziriteship takes effect with regard to him,</b> as one can apply two obligations of naziriteship to himself one after the other.
+
+### Part 5
+The Gemara asks: <b>And according to Rav Huna, instead of teaching</b> that <b>there is no oath within an oath,</b> drawing a distinction between a vow and an oath, <b>let</b> the mishna <b>teach</b> a narrower distinction between different vows, stating that <b>there is</b> a case of <b>a vow within a vow, and there is</b> a case in which there is <b>not a vow within a vow.</b> How so? If one says: <b>I am hereby a nazirite today, I am hereby a nazirite tomorrow,</b> in this case <b>there is a vow within a vow.</b> However, if one says: <b>I am hereby a nazirite today,</b> and then again says: <b>I am hereby a nazirite today,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

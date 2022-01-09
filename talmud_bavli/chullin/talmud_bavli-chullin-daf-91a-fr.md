@@ -1,0 +1,72 @@
+
+### Partie 1
+<b>Rav Ashi a dit :</b> La decision de la mishna selon laquelle les tendons doivent etre brules <b>est necessaire uniquement</b> en ce qui concerne le <b>gros</b> autour du nerf sciatique, <b>comme cela est enseigne</b> dans une <i>baraita</i> : Le <b>gros</b> autour du nerf sciatique <b>est permis</b> par la loi de la Torah, <b>mais le peuple juif est saint</b> et <b>le traitait comme interdit. </b> Puisqu'elle est autorisee par la loi de la Torah, elle a le statut de viande sacrificielle et ne peut pas etre simplement jetee. Neanmoins, puisque le peuple juif la considere comme interdite, il ne la mange pas, meme si elle provient de l'offrande pascale, malgre la mitzva de manger cette offrande dans son integralite. Par consequent, on la laisse jusqu'au moment ou la viande peut etre mangee et on la brule comme un reste de viande sacrificielle.
+
+### Partie 2
+<b>Ravina a dit :</b> La declaration de la mishna <b>est necessaire uniquement</b> en ce qui concerne le nerf exterieur, et c'est <b>conformement a ce que Rav Yehuda</b> a dit que <b>Shmuel a dit. Comme Rav Yehuda a dit</b> que <b>Shmuel a dit : Il y a deux nerfs</b> inclus dans l'interdiction du nerf sciatique. Le nerf <b>interieur</b> qui est <b>cote de l'os est interdit</b> par la loi de la Torah, <b>et on est passible</b> d'etre fouette <b>pour</b> l'avoir mange. </b> Le nerf <b>exterieur</b> qui est <b>a cote de la chair est interdit</b> par la loi rabbinique, <b>et</b> donc <b>on n'est pas passible</b> de flagellation <b>pour</b> en avoir mange. </b> Dans le cas d'une offrande pascale, le nerf exterieur etant autorise par la loi de la Torah, il prend le statut de reste de viande sacrificielle lorsqu'il n'est pas consomme.
+
+### Partie 3
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une autre resolution du dilemme concernant la declaration de Rabbi Yehuda, a partir d'une mishna (96a) : Si <b>On a mange une olive-bulk de ce</b> nerf sciatique de la jambe droite <b>et une olive-bulk de ce</b> nerf sciatique de la jambe gauche, <b>il encourt quatre-vingts</b> coups de fouet. <b>Rabbi Yehuda dit : Il n'encourt que quarante</b> coups de fouet.
+
+### Partie 4
+<b>Accorde, si vous dites</b> qu'il est <b>evident pour</b> Rabbi Yehuda que le nerf sciatique de la cuisse droite est celui qui est interdit par la loi de la Torah, c'est <b>bien. Mais si vous dites qu'il est incertain,</b> pourquoi soutiendrait-il que l'on encourt des coups de fouet ? Lorsque l'individu est averti de ne pas prendre part a chaque nerf sciatique, ce qui est necessaire pour etre susceptible d'encourir des coups de fouet, <b>c'est un avertissement incertain, et nous avons entendu</b> au sujet de <b>Rabbi Yehuda qu'il a dit : Un avertissement incertain n'est pas caracterise comme un avertissement.</b>
+
+### Partie 5
+<b>Comme il est enseigne</b> dans une <i>baraita</i> : Si quelqu'un ne sait pas avec certitude lequel de deux hommes est son pere et qu'il <b>frappe celui-ci</b> <b>et ensuite frappe celui-la</b>, ou <b>maudit celui-ci</b> <b>et ensuite maudit celui-la</b>, ou <b>frappe les deux simultanement, ou maudit les deux simultanement, il est susceptible</b> de recevoir la peine de mort, car il a certainement frappe ou maudit son pere. <b>Rabbi Yehuda dit :</b> S'il a frappe ou maudit les deux <b>simultanement, il est responsable,</b> a condition qu'il ait ete prevenu que son action le rendra certainement passible de la peine de mort. Mais s'il les a frappes ou maudits <b>l'un apres l'autre, il est exempte.</b> Apparemment, Rabbi Yehuda est d'avis qu'on n'est pas puni apres un avertissement incertain ; puisque dans ce cas, il est impossible de determiner lequel d'entre eux est le pere, inevitablement chaque avertissement est incertain. De meme, si Rabbi Yehuda n'est pas certain de savoir quel nerf sciatique est interdit par la loi de la Torah, il devrait considerer que puisque l'avertissement avant de manger l'un ou l'autre nerf sciatique est incertain, celui qui consomme les deux devrait etre exempte.
+
+### Partie 6
+La Guemara repond : <b>Cette <i>tanna</i></b> de cette mishna, sur 96a, <b>s'accorde avec</b> l'avis d'une <b>autre <i>tanna</i></b> concernant l'avis <b>de Rabbi Yehuda, qui a dit</b> que Rabbi Yehuda considere que <b>un avertissement incertain est caracterise comme un avertissement.</b>
+
+### Partie 7
+<b>Comme il est enseigne</b> dans une <i>baraita</i> : Le verset indique a propos de l'offrande pascale : <b>"Et tu n'en laisseras rien jusqu'au matin;</b> mais ce qui en restera jusqu'au matin, tu le bruleras au feu" (Exode 12:10). <b>Le verset vient fournir une mitzva positive</b> de bruler les restes de viande <b>apres avoir enseigne <b>un interdit</b> de les laisser, <b>pour dire qu'on n'est pas fouette pour</b> violation <b>de</b> l'interdit ; c'est <b>la declaration de Rabbi Yehuda.</b> Rabbi Yehuda soutient qu'on n'est pas fouette pour toute transgression qui peut etre rectifiee par l'accomplissement d'une mitzva positive.
+
+### Partie 8
+<b>Rabbi Yaâkov dit : Ceci,</b> la <i>halakha</i> qu'on n'est pas flagelle, <b>n'est pas pour</b> cette <b>raison. C'est plutot <b>parce que</b> le fait de laisser de la viande sacrificielle <b>est un interdit qui n'implique pas une action,</b> car on viole l'interdit par l'absence d'action, <b>et</b> concernant <b>tout interdit qui n'implique pas une action, on n'est pas flagelle pour</b> sa violation. L'avertissement que l'on pourrait recevoir pour cette transgression est incertain, car les temoins qui avertissent l'individu ne peuvent etre certains jusqu'au lever du jour qu'il le laissera sur place. Neanmoins, cette <i>baraita</i> indique que si ce n'etait pas le fait que le fait de laisser de la viande sacrificielle peut etre rectifie par une mitzva positive, Rabbi Yehuda considererait que l'on est fouette pour avoir laisse de la viande sacrificielle.
+
+### Partie 9
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution de l'incertitude concernant l'opinion de Rabbi Yehuda a partir d'une <i>baraita</i> : Si <b>quelqu'un a mange deux</b> nerfs sciatiques de deux cuisses de deux</b> <b>animaux differents, il encourt quatre-vingts</b> coups de fouet. <b>Rabbi Yehuda dit : Il n'encourt que quarante</b> coups de fouet.
+
+### Partie 10
+La Gemara commente : <b>D'apres</b> le fait que le premier <i>tanna</i> <b>a dit</b> qu'il faisait reference a <b>deux cuisses de deux</b> <b>animaux differents,</b> il est <b>evident</b> qu'il voulait dire qu'elles provenaient toutes deux de la cuisse droite, car si l'une provenait de la cuisse droite et l'autre de la cuisse gauche, cela n'aurait aucune importance qu'elles proviennent de deux animaux differents ou du meme animal. Par consequent, <b>les deux</b> nerfs sciatiques sont definitivement <b>interdits</b> par la loi de la Torah, et selon le premier <i>tanna</i> on encourt quatre-vingts coups de fouet pour les avoir manges. <b>Et</b> il <b>etait necessaire</b> d'enseigner que <b>selon Rabbi Yehuda</b> on n'encourt que quarante coups de fouet, comme cela sera explique. <b>Conclure de</b> cette <i>baraita</i> qu'il est <b>evident pour</b> Rabbi Yehuda que c'est le nerf sciatique de la cuisse droite qui est interdit par la loi de la Torah. La Guemara affirme : <b>Concluez-en</b> que c'est l'avis de Rabbi Yehuda.
+
+### Partie 11
+La Guemara cherche a clarifier la <i>baraita</i> : <b>Mais s'il</b> est <b>evident pour</b> Rabbi Yehuda que le nerf sciatique de la cuisse droite est interdit par la loi de la Torah, <b>pourquoi</b> encourt-il <b>quarante</b> coups de fouet <b>et rien de plus ? Qu'il soit fouette quatre-vingts</b> fois. La Guemara repond : <b>Il s'agit ici</b> d'un cas <b>ou</b> le volume d'un des nerfs sciatiques <b>n'est pas une botte d'olives,</b> et Rabbi Yehouda estime que dans un tel cas on n'est pas fouette pour sa consommation. <b>Comme il est enseigne</b> dans une <i>baraita</i> : Si <b>on a mange</b> le nerf sciatique entier <b>et</b> son volume <b>n'est pas une botte d'olives,</b> il est neanmoins <b>faisable</b> d'etre fouette, car il a mange une unite complete et naturelle d'aliment interdit. <b>Rabbi Yehuda dit :</b> Il n'est pas responsable <b>a moins qu'il ait</b> un volume d'au moins <b>une botte d'olive.</b>
+
+### Partie 12
+La Gemara demande : <b>Et quelle est la raison</b> pour laquelle Rabbi Yehouda considere que seul le nerf sciatique de la cuisse droite est interdit par la loi de la Torah ? <b>Rava dit</b> que c'est parce que le <b>verset stipule :</b> "C'est pourquoi les enfants d'Israel ne mangent pas le nerf sciatique qui est sur la cuillere de <b>la cuisse"</b> (Genese 32:33). L'article defini indique que cela fait reference a <b>la cuisse la plus importante.</b>
+
+### Partie 13
+<b>Et les rabbins,</b> qui considerent que les nerfs sciatiques de la cuisse droite et de la cuisse gauche sont interdits par la loi de la Torah, expliquent l'article defini comme enseignant que l'interdiction s'applique a <b>celui dont l'interdiction s'etend a toute la cuisse,</b> c'est-a-dire le nerf interne. Cela sert a exclure le nerf exterieur, qui n'est pas interdit par la loi de la Torah.
+
+### Partie 14
+<b>Et Rabbi Yehoshua ben Levi dit</b> que Rabbi Yehuda soutient que le nerf sciatique de la cuisse droite est interdit parce que <b>le verset dit :</b> "Et voyant qu'il ne pouvait l'emporter sur lui, il toucha la cuillere de sa cuisse ; et la cuillere de la cuisse de Jacob fut tendue, <b>car il luttait avec lui"</b> (Genese 32:26). L'ange a lutte avec Jacob <b>comme un homme qui en etreint un autre</b> pour le jeter a terre, <b>et sa main atteint la cuillere de la cuisse droite</b> <b>de l'autre.</b>
+
+### Partie 15
+<b>Rabbi Shmuel bar Nahmani dit :</b> L'ange <b>lui est apparu comme un Gentil, comme l'a dit le Maitre : Un Juif qui est rejoint par un Gentil sur la route</b> et qui continue ses voyages avec lui doit <b>se positionner</b> le Gentil <b>a sa droite,</b> pres de sa main dominante. Cela permet au juif de se defendre contre toute attaque potentielle. Comme Jacob a suivi cette pratique, c'est donc la cuisse droite de Jacob que l'ange a touche.
+
+### Partie 16
+<b>Rav Shmuel bar Aha a dit devant Rav Pappa au nom de Rava bar Ulla</b> que l'ange <b>est apparu a</b> Jacob <b>comme un erudit de la Torah,</b> et donc Jacob a positionne l'ange sur son cote droit, <b>comme l'a dit le Maitre : Celui qui marche a la droite de son maitre est un ignorant,</b> en ce sens qu'il ne sait pas comment se comporter avec les bonnes manieres. Par consequent, cest la cuisse droite de Jacob que lânge a touchee.
+
+### Partie 17
+<b>Et les rabbins,</b> qui considerent que les nerfs sciatiques des deux cuisses sont interdits, comprennent que l'ange <b>est venu par derriere</b> Jacob <b>et l'a frappe sur les deux</b> cuisses.
+
+### Partie 18
+La Guemara demande : <b>Et les rabbins, que deduisent-ils</b> de <b>cette phrase</b> : <b>"Comme il luttait avec lui"</b> (Genese 32:26) ? La Guemara repond : Ils <b>en ont besoin pour l'autre</b> interpretation <b>de Rabbi Yehoshua ben Levi, car Rabbi Yehoshua ben Levi a dit :</b> Ceci <b>enseigne que la poussiere [<i>avak</i>] de leurs pieds est montee sur le trone de gloire. Il est ecrit ici : "Comme il luttait [<i>beheâvko</i>] avec lui," et il est ecrit la</b> dans une description de la facon dont Dieu punira les mechants : "Le Seigneur, dans le tourbillon et dans la tempete est sa voie, <b>et les nuages sont la poussiere de ses pieds"</b> (Nahum 1:3).
+
+### Partie 19
+§ La Guemara cite une autre declaration de Rabbi Yehoshua ben Levi concernant le nerf sciatique : <b>Et Rabbi Yehoshua ben Levi dit : Pourquoi son nom est-il appele nerf sciatique [<i>gid hanashe</i>] ? </b> C'est <b>parce que</b> le nerf sciatique <b>a quitte [<i>nasha</i>] sa place et s'est eleve. Et de meme</b> le verset <b>dit :</b> "Les puissants de Babylone ont cesse de combattre, ils restent dans leurs forteresses ; <b>leur force a quitte [<i>nashata</i>], ils sont devenus comme des femmes"</b> (Jeremie 51:30).
+
+### Partie 20
+La Guemara continue avec d'autres expositions relatives au nerf sciatique. <Rabbi Yosei, fils de Rabbi Hanina, a dit : Quel</b> est le sens de ce <b>qui est ecrit :</b> "Le Seigneur <b>a envoye une parole a Jacob, et elle est tombee sur Israel"</b> (Isaie 9:7) ? <b>"Il a envoye une parole a Jacob" ; ceci</b> est une reference au <b>nerf sciatique. "Et il est tombe sur Israel";</b> cela enseigne <b>que son interdiction a</b> ete <b>etendue a l'ensemble du peuple juif.</b>
+
+### Partie 21
+<b>Et Rabbi Yosei, fils de Rabbi Hanina,</b> a egalement <b>dit : Quel</b> est le sens de ce <b>qui est ecrit :</b> "Et lorsque Joseph vit Benjamin avec eux, il dit a l'intendant de sa maison : Fais entrer les hommes dans la maison, <b>abats les animaux et prepare</b> la viande, car les hommes dineront avec moi a midi" (Genese 43.16) ? Joseph a ordonne a son intendant : <b>Expose le lieu de l'abattage</b> sur le cou de l'animal <b>a eux</b> afin que les freres sachent qu'il est abattu correctement. <b>"Et preparez"</b> enseigne que Joseph a donne l'ordre a l'intendant de <b>enlever le nerf sciatique en leur presence</b> afin que les freres sachent qu'il a ete entierement enleve. La Guemara commente que cet avis est <b>conforme a celui qui a dit</b> que <b>le nerf sciatique etait interdit aux</b> enfants de Jacob avant meme que la Torah ne soit donnee, lorsqu'ils avaient encore le statut de <b>descendants de Noe.</b>
+
+### Partie 22
+La Guemara revient sur le verset de Jacob luttant avec l'ange. Le verset dit : <b>"Et Jacob fut laisse seul;</b> et un homme lutta avec lui jusqu'a l'aube du jour" (Genese 32:25). <b>Rabbi Elazar dit :</b> La raison pour laquelle Jacob est reste seul est <b>qu'il est reste</b> pour ramasser quelques <b>petites cruches</b> qui avaient ete laissees derriere lui. <b>D'ici</b> on deduit <b>que les biens des justes leur sont plus chers que leur corps. Et pourquoi</b> se soucient-ils <b>autant</b> de leurs biens ? C'est <b>parce qu'ils ne tendent pas la main pour</b> prendre part a des <b>biens voles.</b>
+
+### Partie 23
+Le verset indique : <b>"Et un homme lutta avec lui jusqu'a l'aube.</b> Rabbi Yitzhak dit : De la</b> on deduit <b>qu'un erudit de la Torah ne doit pas sortir</b> de sa maison <b>seul la nuit,</b> comme Jacob sortit seul la nuit et fut blesse. <b>Rabbi Abba bar Kahana a dit</b> que la source de cette instruction est <b>de la:</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

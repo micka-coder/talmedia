@@ -1,0 +1,60 @@
+
+### Part 1
+<b>“And knows the knowledge of the Most High”</b> (Numbers 24:16). Now, this should not be understood to mean that Balaam knew the thoughts of God, as is it <b>possible</b> that Balaam <b>did not know the mind of his animal, and</b> yet <b>he did know the mind of the Most High?</b>
+
+### Part 2
+The Gemara clarifies: <b>What</b> is meant by the claim that Balaam <b>did not know the mind of his animal? When</b> the princes of Moab <b>saw that</b> Balaam <b>was riding on his donkey, they said to him: What is the reason</b> that <b>you do not ride upon a horse,</b> which is more fitting for you? Balaam <b>said to them:</b> I am riding on a donkey because <b>I left</b> my horse <b>in a meadow</b> to graze. <b>Immediately: “And the donkey said</b> to Balaam: <b>Am not I your donkey?”</b> (Numbers 22:30), i.e., the donkey you always use. Balaam <b>said to it: For</b> carrying <b>burdens only,</b> not for riding.
+
+### Part 3
+The donkey further <b>said to</b> Balaam: <b>“Upon which you have ridden.”</b> Balaam <b>said to it: Merely at irregular occurrences.</b> The donkey <b>said to him: “All your life long unto this day”</b> (Numbers 22:30). The donkey added: <b>And moreover, I perform for you riding during the day, and marriage,</b> i.e., intercourse, <b>during the night.</b> The Gemara explains: This is derived from the following comparison: <b>It is written here</b> that Balaam’s donkey said: <b>“Was I ever wont [<i>hahasken hiskanti</i>] to do so to you”</b> (Numbers 22:30), <b>and it is written there,</b> with regard to Abishag the Shunammite and King David: <b>“And be a companion [<i>sokhenet</i>] unto him;</b> and let her lie in your bosom” (I Kings 1:2). This teaches that the term <i>hiskanti</i> alludes to sexual intercourse.
+
+### Part 4
+The Gemara returns to its previous question: <b>Rather, what</b> is the meaning of: <b>“And knows the knowledge of the Most High”</b> (Numbers 24:16)? It means <b>that he was able to determine</b> precisely <b>the hour at which the Holy One, Blessed be He, is angry.</b> At that moment Balaam would utter his curse and, through God’s anger, it would be fulfilled. <b>And this is what the prophet said to</b> the Jewish people: <b>“O My people, remember now what Balak, king of Moab, devised, and what Balaam, son of Beor, answered him; from Shittim unto Gilgal, that you may know the righteous acts of the Lord”</b> (Micah 6:5).
+
+### Part 5
+<b>Rabbi Elazar says,</b> in explanation of that verse: <b>The Holy One, Blessed be He, said to the Jewish people: My nation, see how many acts of kindness I performed for you, that I did not become angry at you during all of those days</b> when Balaam attempted to curse the Jewish people, and he was not able to find a moment of divine anger. <b>As, had I become angry at you, there would not have remained a remnant or a refugee among the enemies of the Jewish people,</b> a euphemism for the Jewish people themselves. Instead, God restrained His anger and Balaam’s curse went unfulfilled. <b>And this is what Balaam said to Balak:</b> Since God is not becoming angry, I can do nothing, as: <b>“How shall I curse whom God has not cursed? And how shall I execrate whom the Lord has not execrated”?</b> (Numbers 23:8).
+
+### Part 6
+The Gemara further discusses this matter: <b>And how</b> long does <b>His indignation</b> last? It lasts <b>a moment. And how</b> long is <b>a moment? Ameimar, and some say Ravina, said:</b> It lasts <b>as</b> long as it takes <b>to say</b> the word <b>moment [<i>rega</i>].</b> The Gemara asks: <b>And from where do we</b> derive <b>that</b> God’s <b>anger</b> lasts for only <b>a moment? As it is written: “His anger is but for a moment; His favor, for a lifetime”</b> (Psalms 30:6). <b>And if you wish, say</b> instead that it is derived <b>from here: “Hide yourself for a brief moment, until the anger passes”</b> (Isaiah 26:20), meaning that God’s anger passes in a mere moment.
+
+### Part 7
+The Gemara asks: <b>When</b> is God <b>angry? Abaye said: During the first three hours</b> of the day, <b>when the crest of the rooster whitens</b> in the sun, as though life has left the rooster and it suddenly turns white, that is when God is angry. The Gemara asks: Doesn’t its crest <b>whiten each and every hour?</b> How can this serve as a sign? The Gemara answers: The difference is that <b>every</b> other <b>hour there</b> remain <b>red streaks [<i>surayekei</i>]</b> in the rooster’s crest, whereas at <b>that hour</b> of His anger <b>there are no red streaks in</b> its crest.
+
+### Part 8
+The Gemara relates: <b>A certain heretic would distress Rabi Yehoshua ben Levi</b> by incessantly challenging him as to the meaning <b>of verses. One day,</b> Rabbi Yehoshua ben Levi <b>took a rooster and placed it between the legs of the bed</b> upon which he sat, <b>and looked at it. He thought: When that moment</b> of God’s anger <b>arrives, I will curse</b> the heretic and be rid of <b>him. When that moment</b> of God’s anger <b>arrived,</b> Rabbi Yehoshua ben Levi <b>fell asleep</b> and missed the opportunity to curse the heretic.
+
+### Part 9
+Upon awakening, Rabbi Yehoshua ben Levi <b>said:</b> I can <b>conclude from</b> the fact that I fell asleep that it is <b>not proper conduct to do this,</b> to curse people, even if they are wicked, as the verse: <b>“And His tender mercies are over all His works”</b> (Psalms 145:9) <b>is written</b> even with regard to sinners. <b>And</b> moreover, it is inappropriate to cause the punishment of another, as <b>it is written: “Punishment, even for the righteous, is not good”</b> (Proverbs 17:26). Even for a righteous person, it is improper to punish another.
+
+### Part 10
+In explanation of the cause of God’s anger, <b>it is taught in the name of Rabbi Meir: When the kings</b> wake up and <b>place their crowns on their heads and bow down to the sun, the Holy One, Blessed be He, immediately grows angry.</b> This is why God’s anger occurs during the first three hours of the day. <b>Rav Yosef says: A person should not recite the additional prayers during the first three hours of the day on the first day of Rosh HaShana</b> if he is praying <b>individually,</b> as, <b>since the judgment</b> of the entire world <b>is reckoned</b> then, <b>perhaps</b> the Heavenly court <b>will scrutinize his actions and reject him.</b>
+
+### Part 11
+The Gemara raises a difficulty: <b>If that is so,</b> the prayer <b>of the community</b> should not be recited at that time <b>as well.</b> The Gemara explains: The prayer <b>of the community</b> is not rejected even at this time, due to <b>its many merits.</b> The Gemara asks: <b>If that is so,</b> then shouldn’t the <b>morning</b> prayer <b>of</b> one who is praying <b>individually also not</b> be recited at this time? The Gemara answers: <b>Since there is</b> in all places <b>a community that prays</b> the morning prayer at that same time, his prayer <b>is not rejected.</b> By contrast, the additional prayer is recited at different times by different communities, as unlike the morning prayer it does not have a fixed time but can be recited at any point during the day.
+
+### Part 12
+The Gemara raises another difficulty: <b>But didn’t you say</b> that <b>during the first three hours of the day The Holy One, Blessed be He, sits and engages in Torah</b> study, and He engages in judgment only during the second set of three hours? The Gemara answers: <b>Reverse</b> the order so that it is stated that He sits in judgment during the first three hours of the day.
+
+### Part 13
+<b>And if you wish, say</b> instead: <b>Actually, do not reverse</b> the order. Rather, this is the reason that an individual should not recite the additional prayer during the first three hours of the day when God is engaged in Torah study: In the case of the <b>Torah, with regard to which it is written: Truth, as it is written: “Buy the truth, and sell it not”</b> (Proverbs 23:23), <b>the Holy One, Blessed be He, does not act</b> in a manner that is <b>beyond the letter of the law.</b> But with regard to <b>judgment, with regard to which it is not written: Truth,</b> but it is a process that involves mercy and compromise, <b>the Holy One, Blessed be He,</b> can <b>act</b> in a manner that is <b>beyond the letter of the law.</b>
+
+### Part 14
+§ The Gemara presents <b>a mnemonic</b> for the ensuing statements of Rabbi Yehoshua ben Levi: <b>Today, bear witness, shake, the</b> golden <b>calf.</b> The Gemara returns to an earlier discussion (3a), first by citing <b>the</b> matter <b>itself. Rabbi Yehoshua ben Levi says: What</b> is the meaning of that <b>which is written: “Which I command you this day, to do them”</b> (Deuteronomy 7:11)? This verse teaches that <b>today</b> is the time <b>to do them,</b> i.e., to perform the mitzvot, in this world, <b>but tomorrow,</b> in the World-to-Come, <b>is not</b> the time <b>to do them.</b> Furthermore, <b>today</b> is the time <b>to do them, but today is not</b> the time <b>to receive</b> one’s <b>reward,</b> which is given in the World-to-Come.
+
+### Part 15
+<b>Rabbi Yehoshua ben Levi says: All of the mitzvot that the Jews perform in this word</b> will <b>come and bear witness for them in the World-to-Come, as it is stated: “Let them bring their witnesses that they may be justified, and let them hear, and say: It is truth”</b> (Isaiah 43:9). He explains: <b>“Let them bring their witnesses that they may be justified”; these are</b> referring to <b>the Jews. “And let them hear, and say: It is truth”; these are</b> referring to <b>the nations of the world.</b>
+
+### Part 16
+<b>And Rabbi Yehoshua ben Levi says: All of the mitzvot that the Jewish people perform in this world</b> will <b>come and strike the faces of the nations of the world in the World-to-Come, as it is stated: “Observe therefore and do them; for this is your wisdom and your understanding in the eyes of the nations”</b> (Deuteronomy 4:6). It <b>is not stated: Before the nations; rather,</b> the verse states: <b>“In the eyes of the nations,”</b> which taken literally <b>teaches that they</b> will <b>come and strike the faces of the nations of the world in the World-to-Come.</b>
+
+### Part 17
+<b>And Rabbi Yehoshua ben Levi says: The Jewish people fashioned the</b> Golden <b>Calf</b> (see Exodus, chapter 32) <b>only to give a claim to penitents, as it is stated</b> after the revelation at Sinai: <b>“Who would give that they had such a heart as this always, to fear Me,</b> and keep all My commandments, that it might be good for them, and with their children <b>forever”</b> (Deuteronomy 5:25). If the nation was truly at such a lofty spiritual state, how could they worship the Golden Calf? Rather, their sin occurred so that it would be made clear that one can repent for any sin, as even a sin as severe as the Golden Calf was forgiven.
+
+### Part 18
+<b>And this is</b> similar to that <b>which Rabbi Yoḥanan says in the name of Rabbi Shimon ben Yoḥai: David was not fit to</b> act as he did in <b>that incident</b> involving Bathsheba, <b>and the Jewish people were not fit to</b> act as they did in <b>that incident</b> of the Golden Calf. <b>David was not fit to</b> act as he did in <b>that incident</b> involving Bathsheba (see II Samuel, chapter 11), <b>as it is written: “And my heart is wounded within me”</b> (Psalms 109:22), i.e., he had vanquished his evil inclination, and therefore it should not have been able to rule over him to that extent.
+
+### Part 19
+<b>And</b> likewise <b>the Jewish people were not fit to</b> act as they did in <b>that incident</b> of the Golden Calf, <b>as it is written</b> with regard to the Jewish people of that time: <b>“Who would give that they had such a heart as this always, to fear Me</b> and keep all My commandments, that it might be good for them, and with their children <b>forever”</b> (Deuteronomy 5:25). <b>Rather, why did they perform</b> these sins?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

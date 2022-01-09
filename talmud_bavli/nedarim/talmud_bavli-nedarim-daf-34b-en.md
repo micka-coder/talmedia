@@ -1,0 +1,12 @@
+
+### Part 1
+<b>Rava said:</b> In a case where <b>there was a loaf of ownerless</b> bread <b>before</b> a person, <b>and he said: This loaf is consecrated,</b> if <b>he took</b> the loaf <b>to eat it, he misused consecrated</b> property. His repayment to the Temple for that misuse is <b>based on</b> the loaf’s <b>entire value.</b> However, if his intent was not to take the loaf for himself but <b>to bequeath it to his sons, he misused the consecrated</b> property, and his repayment to the Temple is <b>based on the discretionary benefit that</b> he derived from the fact that his children are indebted to him for the bequest, as he himself derived no direct benefit from the loaf.
+
+### Part 2
+<b>Rav Ḥiyya bar Avin raised a dilemma before Rava.</b> If one said to another: <b>My loaf</b> is <i>konam</i> <b>for you, and</b> then he <b>gave it to him as a gift, what is</b> the <i>halakha</i>? Should one infer: <b>My loaf</b> is forbidden, i.e., <b>he said to him</b> that <b>when</b> the loaf <b>is in his possession, that is when it is forbidden,</b> but when he gives him a gift, it is no longer in his possession and it is no longer forbidden? <b>Or, perhaps</b> the inference is: Forbidden <b>to you,</b> i.e., <b>he said to him</b> that <b>he rendered</b> the loaf <b>for him like a consecrated item</b> that is forbidden even after the loaf is no longer in his possession.
+
+### Part 3
+Rava <b>said to him:</b> It <b>is obvious that although he gave it to</b> the other person <b>as a gift,</b> it is <b>forbidden.</b> Rav Ḥiyya bar Avin asked him: <b>But</b> if that is so, when he said: <b>My loaf</b> is forbidden <b>to you,</b> with emphasis on the word my, <b>what does it</b> come <b>to exclude? Does it not</b> come <b>to exclude</b> a case <b>where he stole it from him,</b> as in that case it is permitted? The same would be true if he gave it to him as a gift. Rava <b>said to him: No, it</b> comes <b>to exclude</b> a case where <b>he invited him</b> to eat from the loaf before he vowed. In that case, that part of the loaf that he invited him to eat is his, and the owner cannot render it forbidden. However, even if he invited the other person before he vowed, the entire loaf remains forbidden if he gave it to him as a gift.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

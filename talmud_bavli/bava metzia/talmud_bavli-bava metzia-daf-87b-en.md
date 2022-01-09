@@ -1,0 +1,69 @@
+
+### Part 1
+<b>not at the time of the completion of</b> its <b>work,</b> i.e., while it is still growing; <b>and</b> a laborer who works <b>with</b> produce <b>detached from the ground after the completion of its work,</b> when it is sufficiently processed and therefore subject to tithes; <b>and</b> a laborer who works <b>with an item whose growth is not from the land.</b>
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara asks: <b>From where are these matters,</b> that a laborer may eat from produce attached to the ground, derived? The Gemara answers: <b>As it is written: “When you come into your neighbor’s vineyard, then you may eat</b> grapes until you have enough at your own pleasure; but you shall not put any in your vessel” (Deuteronomy 23:25). The Gemara asks: <b>We find</b> a source for <b>a vineyard; from where do we</b> derive that a laborer may likewise eat from <b>any</b> other <b>type</b> of produce?
+
+### Part 3
+The Gemara answers: <b>We derive</b> it <b>from</b> a comparison to the case of <b>a vineyard: Just as a vineyard is unique</b> in that it is <b>an entity whose growth is from the ground, and the laborer eats</b> from <b>it at the time of the completion of</b> its <b>work,</b> i.e., when he is harvesting the grapes, <b>so too</b> with regard to <b>any entity whose growth is from the ground</b> and it is <b>at the time of the completion of</b> its <b>work, a laborer may eat</b> from <b>it.</b>
+
+### Part 4
+The Gemara challenges this derivation: <b>What</b> is notable <b>about a vineyard?</b> It is notable <b>in that</b> the owner of a vineyard is <b>obligated in</b> the mitzva of <b><i>olelot</i>,</b> the obligation to leave incomplete clusters of grapes for the poor (see Leviticus 19:10). Accordingly, one should not be able to derive the <i>halakha</i> of other types of produce from the <i>halakha</i> of a vineyard. The Gemara explains: <b>We derive</b> the <i>halakha</i> that a laborer may eat from other crops <b>from</b> the <i>halakha</i> that he may eat <b>standing</b> grain. The Gemara asks: <b>And from where do we</b> derive that he may eat <b>standing</b> grain <b>itself?</b> The Gemara answers: <b>As it is written: “When you come into your neighbor’s standing grain, then you may pluck ears with your hand;</b> but you shall not move a sickle on to your neighbor’s standing grain” (Deuteronomy 23:26).
+
+### Part 5
+The Gemara responds: <b>What</b> is notable <b>about standing</b> grain? It is notable <b>in that</b> the owner of dough prepared from grain is <b>obligated in</b> the mitzva of <b><i>ḥalla</i>.</b> The Gemara asks an incidental question: <b>And from where</b> do you know <b>that this standing</b> grain mentioned in the verse <b>is</b> the same <b>standing</b> grain <b>whose</b> owner is <b>obligated in</b> the mitzva of <b><i>ḥalla</i>? Perhaps the Merciful One is discussing any standing</b> produce, not only the five grains from which <i>ḥalla</i> must be separated.
+
+### Part 6
+The Gemara answers: The matter <b>is derived</b> by means of a verbal analogy between the term <b>“standing”</b> written here and the term <b>“standing”</b> written elsewhere. <b>It is written here: “When you come into your neighbor’s standing grain”</b> (Deuteronomy 23:26), <b>and it is written there,</b> with regard to harvesting the barley for the <i>omer</i> offering: “Seven weeks you shall count for yourself; <b>from the time the sickle is first put to the standing grain”</b> (Deuteronomy 16:9). <b>Just as there,</b> in the verse referring to the harvesting of the <i>omer</i>, it is the owner of <b>standing</b> grain <b>who is obligated in</b> the mitzva of <b><i>ḥalla</i>,</b> as barley is one of the five grains, <b>so too here,</b> with regard to a laborer, it is discussing <b>standing</b> grain <b>whose</b> owner <b>is obligated in</b> the mitzva of <b><i>ḥalla</i>.</b>
+
+### Part 7
+The Gemara resumes its discussion by reiterating its earlier question. The comparison between standing grain and other produce <b>can be refuted</b> as follows: <b>What</b> is notable <b>about standing</b> grain? It is notable <b>in that</b> the owner of dough prepared from grain is <b>obligated in</b> the mitzva of <b><i>ḥalla</i>.</b> The Gemara answers: <b>Let</b> the case of <b>a vineyard prove</b> that this comparison is valid, as the mitzva of <i>ḥalla</i> does not apply to the produce of a vineyard, and yet a laborer may eat from it. The Gemara asks: <b>What</b> is notable <b>about a vineyard?</b> It is notable <b>in that</b> its owner is <b>obligated in</b> the mitzva of <b><i>olelot</i>.</b> The Gemara responds: <b>Let</b> the case of <b>standing</b> grain <b>prove</b> that this is not a decisive factor, as its owner is not obligated in the mitzva of <i>olelot</i> and even so a laborer may eat from it.
+
+### Part 8
+Since no exact comparison can be drawn to either a vineyard or standing grain alone, the Gemara suggests a combined solution: <b>The inference has reverted</b> to its starting point. <b>The aspect of this</b> case, a vineyard, <b>is not like the aspect of that</b> case, standing grain. <b>Their common denominator is that</b> each one <b>grows from the earth and at the time of the completion of</b> its <b>work</b> the <b>laborer may eat</b> from <b>it. So too,</b> with regard to <b>any type</b> of produce <b>that grows from the earth, at the time of the completion of</b> its <b>work, a laborer may eat</b> from <b>it.</b>
+
+### Part 9
+The Gemara asks: <b>What</b> is unique <b>about their common denominator?</b> It is unique <b>in that they have an aspect</b> relating to the <b>altar,</b> i.e., the products of both a vineyard and standing grain differ from other types of produce in that they are both offered on the altar. Wine is brought for libations and flour in meal-offerings. The Gemara suggests tangentially: <b>An olive</b> should <b>also be derived</b> through this category of those products which a laborer may eat, <b>as it</b> too <b>has an aspect</b> relating to the <b>altar,</b> in the oil of meal-offerings.
+
+### Part 10
+The Gemara refutes this suggestion: <b>And</b> is the <i>halakha</i> of <b>an olive derived from the common factor</b> of the two types of produce mentioned earlier? But <b>it itself is called</b> the fruit of <b>a vineyard [<i>kerem</i>], as it is written: “And he burned up both the piles of produce and the standing grain, and also the olive yards [<i>kerem zayit</i>]”</b> (Judges 15:5). <b>Rav Pappa said:</b> This verse does not mean that an olive is considered the product of a vineyard, as in the verse <b>it is called olive yard [<i>kerem zayit</i>],</b> and it is <b>not called a plain vineyard.</b> Therefore, the <i>halakha</i> of olives must be derived by analogy from the common denominator.
+
+### Part 11
+The Gemara resumes its discussion: <b>In any case,</b> it is <b>difficult,</b> as there still has not been found a source according to which the <i>halakha</i> that a laborer may eat when he is working applies to all types of produce. <b>Rather, Shmuel said: The verse states</b> with regard to a laborer who may eat produce: <b>“But</b> you shall not move <b>a sickle”</b> (Deuteronomy 23:26). This serves <b>to include all</b> types of produce <b>that are</b> cut <b>with a sickle.</b>
+
+### Part 12
+The Gemara asks: <b>But this</b> word <b>“sickle” is necessary</b> to teach a different <i>halakha</i> with regard to a laborer: <b>At the time of the sickle,</b> i.e., when the work has been completed and the produce is being picked, <b>you may eat.</b> But <b>when it is not</b> yet <b>the time of the sickle, you may not eat.</b> If so, how can Shmuel use the term “sickle” as the source for the <i>halakha</i> that a laborer may eat all kinds of produce that are cut with a sickle?
+
+### Part 13
+The Gemara answers: <b>That</b> <i>halakha</i>, with regard to when a laborer may eat, <b>is derived from</b> the verse: <b>“But you may not put any in your vessel”</b> (Deuteronomy 23:25), as the Gemara will explain later. Therefore, the word “sickle” is not required to teach that <i>halakha</i> and can be used as the source of the <i>halakha</i> that a laborer may eat all kinds of produce that are cut with a sickle, as stated by Shmuel. The Gemara asks: Shmuel’s derivation <b>works out well</b> for any type of produce <b>that requires a sickle</b> for its harvest. But <b>from where do we</b> derive that the same applies to a type of produce <b>that does not require a sickle</b> for its harvest?
+
+### Part 14
+<b>Rather, Rabbi Yitzḥak said</b> that the <i>halakha</i> concerning which produce a laborer may eat is derived from a different source. <b>The verse states: “Standing [<i>kama</i>]”</b> (Deuteronomy 23:26), and the unmodified term <i>kama</i> serves <b>to include any standing</b> produce. The Gemara asks: <b>But didn’t you say</b> earlier that the term <b>standing</b> is referring specifically to <b>standing</b> produce <b>whose</b> owner is <b>obligated in</b> the mitzva of <b><i>ḥalla</i>,</b> and not to other produce?
+
+### Part 15
+The Gemara answers: <b>That matter</b> applies <b>before we derived</b> a <i>halakha</i> from the mention of <b>“sickle.” Now that</b> a <i>halakha</i> <b>was derived from “sickle,” any type</b> of produce that requires <b>a sickle</b> for its harvesting <b>is included,</b> as stated earlier, <b>and</b> this applies <b>even though</b> the owner of that particular produce <b>is not obligated in</b> the mitzva of <b><i>ḥalla</i>.</b> Accordingly, <b>why do I</b> need the term <b>“standing”?</b> It serves <b>to include any standing</b> produce.
+
+### Part 16
+The Gemara asks: <b>And now that</b> we <b>have derived</b> the <i>halakha</i> concerning which produce a laborer is entitled to eat both <b>from</b> the mention of <b>“sickle” and from “standing,” why do I</b> need the earlier verse: <b>“When you come into your neighbor’s vineyard,</b> then you may eat grapes until you have enough at your own pleasure; but you may not put any in your vessel” (Deuteronomy 23:25)?
+
+### Part 17
+The Gemara answers that <b>Rava said:</b> This verse is required <b>for its</b> unique <b><i>halakhot</i>, as it is taught</b> in a <i>baraita</i> that the phrase <b>“when you come [<i>tavo</i>]”</b> is interpreted as follows: <b>Coming [<i>bia</i>] is stated here, and coming is also stated there:</b> “In the same day you shall give him his wages, <b>and the sun shall not go down [<i>tavo</i>] upon it”</b> (Deuteronomy 24:15). <b>Just as there,</b> in Deuteronomy, chapter 24, <b>the verse is speaking of a laborer, so too here,</b> in Deuteronomy, chapter 23, <b>the verse is speaking of a laborer,</b> despite the fact that this detail is not stated explicitly in the verse.
+
+### Part 18
+The <i>baraita</i> continues analyzing the verse: The phrase <b>“in your neighbor’s vineyard”</b> indicates that it is prohibited for a laborer to put the grapes in his vessel only while he is working in the vineyard of a Jew, <b>but not in the vineyard of a gentile,</b> where he may place grapes in his vessel. The Gemara digresses to discuss this point: <b>This</b> explanation <b>works out well according to the one who says</b> that <b>robbery</b> from <b>a gentile is prohibited; this is why it was necessary for the verse to permit a laborer</b> to eat the gentile’s grapes. <b>But according to the one who says</b> that <b>robbery</b> from <b>a gentile is permitted, now</b> that <b>robbery</b> itself <b>is permitted, is</b> it <b>necessary</b> to teach that <b>a laborer</b> in the vineyard of a gentile is permitted to put grapes in his vessel?
+
+### Part 19
+The Gemara answers: The one who maintains that robbery from a gentile is permitted <b>interprets</b> the phrase <b>“in your neighbor’s vineyard”</b> as teaching that a laborer may eat produce only in his neighbor’s vineyard, <b>but</b> he <b>may not</b> eat produce <b>of consecrated</b> property. The <i>baraita</i> continues: The term <b>“then you may eat”</b> indicates that a laborer must eat the entire grape <b>and may not suck</b> its juice and cast the rest away. The word <b>“grapes”</b> teaches that a laborer may eat only grapes by themselves <b>and not grapes and something else,</b> i.e., he may not use a condiment to make the grapes more palatable to enable him to eat an excessive amount.
+
+### Part 20
+The term: “At your own pleasure [<i>kenafshekha</i>]” (Deuteronomy 23:25), can also mean: As you are. Consequently, the term <b><i>kenafshekha</i></b> teaches that just as the <i>halakha</i> is concerning <b>the owner</b> of the vineyard <b>himself, so is</b> the <i>halakha</i> concerning <b>you, the laborer himself: Just as</b> the owner, alluded to by the term <b><i>nafshekha</i>, may eat</b> from the produce before its labor is complete <b>and</b> is <b>exempt</b> from separating tithes, <b>so too, the laborer himself may eat</b> and is <b>exempt</b> from tithes.
+
+### Part 21
+The expression: “until <b>you have enough”</b> indicates that a laborer may eat until he is satiated, <b>but</b> he <b>may not</b> engage in <b>excessive eating.</b> The phrase <b>“but you may not put any in your vessel”</b> teaches that <b>at a time when you put</b> the grapes <b>in the owner’s vessels,</b> i.e., when harvesting the grapes, then <b>you may eat, but at a time when you are not putting</b> the grapes <b>in the owner’s vessels,</b> i.e., if the laborer is performing other tasks in the vineyard before harvesting, <b>you may not eat.</b>
+
+### Part 22
+§ <b>Rabbi Yannai says:</b> The owner of <b>untithed produce is not obligated in</b> the mitzva of <b>tithing</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

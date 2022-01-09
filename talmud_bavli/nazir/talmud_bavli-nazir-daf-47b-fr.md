@@ -1,0 +1,33 @@
+
+### Partie 1
+<b>et</b> un Grand Pretre <b>de plusieurs vetements,</b> c'est-a-dire celui qui n'a pas ete oint d'huile mais qui a ete sanctifie en portant les huit vetements de Grand Pretre, il est <b>preferable</b> que <b>celui qui a ete oint d'huile d'onction</b> reste rituellement pur. La Guemara explique : <b>Comme</b> un Grand Pretre <b>onctionne avec l'huile d'onction apporte</b> le <b>bull apporte pour toutes les mitzvot,</b> c'est-a-dire, si un pretre oint a juge a tort, a propos d'une interdiction, que si un Juif la transgressait, il serait susceptible d'apporter un sacrifice pour le peche, il apporte un taureau pour son sacrifice pour le peche (voir Levitique 4:3""12), <b>alors que</b> un Grand Pretre <b>de nombreux vetements n'apporte pas</b> un taureau.
+
+### Partie 2
+Dans le cas ou <b>un ancien Grand Pretre oint</b>, c'est-a-dire un pretre qui s'etait temporairement substitue a un Grand Pretre, se promene avec celui qui porte <b>de nombreux vetements,</b> il est <b>preferable</b> que celui qui porte <b>de nombreux vetements</b> reste rituellement pur. La raison en est <b>que</b> un Grand Pretre de <b>plusieurs vetements</b> continue <b>d'accomplir le service, alors qu'un ancien Grand Pretre oint</b> <b>n'est plus</b> <b>capable</b> d'accomplir le <b>service.</b>
+
+### Partie 3
+Dans le cas ou un Grand Pretre oint qui a temporairement <b>quitte</b> son role <b>en raison de son emission seminale</b> marche avec un ancien Grand Pretre oint qui a quitte son role <b>en raison de sa tare,</b> il est <b>preferable</b> que l'ancien Grand Pretre qui <b>a quitte en raison de son emission seminale</b> reste rituellement pur, <b>car celui-ci,</b> le Grand Pretre qui a subi une emission, <b>est apte au</b> <b>service du Temple le jour suivant, alors que</b> l'ancien Grand Pretre oint qui <b>a quitte a cause de sa tare n'est</b> plus du tout <b>apte au service</b> (voir Levitique 21 : 16""24).
+
+### Partie 4
+§ Les cas ci-dessus sont tous facilement resolus et sont mentionnes simplement pour introduire les interrogations suivantes, pour lesquelles il n'y a pas de reponses evidentes. <b>Un dilemme a ete souleve devant</b> les Sages. Pour <b>lequel de ces deux</b> il est <b>preferable</b> qu'il reste rituellement pur : Un pretre <b>anomme pour la guerre,</b> qui etait oint d'huile et designe pour avertir les troupes avant la bataille (voir Deuteronome 20:2) <b>ou le grand pretre adjoint [<i>segan</i>]</b> ? Est-il <b>preferable</b> que le pretre <b>nomme pour la guerre</b> reste rituellement pur, <b>comme il est apte a la guerre ? Ou bien, peut-etre</b> est-il <b>preferable</b> que le <b>sous-pretre</b> reste rituellement pur, <b>puisqu'il est apte a servir</b> dans le Temple a la place du Grand Pretre.
+
+### Partie 5
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une resolution, <b>comme il est enseigne</b> dans une <i>baraita</i> : <b>La difference entre</b> un pretre <b>anomme pour la guerre et un grand pretre adjoint</b> <b>est seulement que s'ils marchaient sur le chemin et trouvaient une <i>met mitzva</i>,</b> la decision est : <b>Laisse celui qui est oint pour la guerre devenir impur, et</b> ne laisse <b>pas l'adjoint devenir impur.</b>
+
+### Partie 6
+La Gemara demande : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> differente : Un pretre <b>nomme pour la guerre a la priorite sur le grand pretre adjoint</b> ? <b>Mar Zutra a dit :</b> Ce n'est pas difficile. <b>Pour ce qui est de preserver sa vie</b> et de le sauver de la captivite ou d'une situation dangereuse, il est <b>preferable</b> de preserver <b>celui qui est oint pour la guerre. Quelle est la raison</b> pour cela ? La raison est <b>que le public depend de lui</b> en temps de guerre.
+
+### Partie 7
+<b>Mais en ce qui concerne l'impurete rituelle,</b> il est <b>preferable</b> que le <b>superieur</b> Grand Pretre reste rituellement pur, <b>comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Hanina ben Antigonus dit : Pourquoi les Sages ont-ils</b> institue un suppleant pour le Grand Pretre ? </b> Afin <b>que si une disqualification frappe</b> le Grand Pretre, son suppleant <b>puisse entrer</b> dans le Temple <b>et servir a sa place.</b> Le suppleant du Grand Pretre ne peut pas remplir cette fonction si on lui permet de devenir rituellement impur.
+
+### Partie 8
+La Guemara porte son attention sur la <i>halakha</i> de la mishna. Rabbi Eliezer et les rabbins <b>sont en desaccord uniquement en ce qui concerne un grand pretre et un nazirite qui se promenent ensemble</b> et trouvent une <i>met mitzva</i>, auquel cas l'un d'eux doit devenir impur. <b>Cependant,</b> il est evident que si <b>chacun d'eux</b> marche <b>separement, ils sont en mesure,</b> c'est-a-dire qu'ils sont tenus, <b>de devenir impurs. D'ou proviennent ces questions ? D'ou apprend-on qu'un Grand Pretre et un nazirite, a qui il est interdit de devenir impurs meme pour enterrer leurs proches, doivent neanmoins devenir impurs pour enterrer une <i>met mitzva</i> ?
+
+### Partie 9
+C'est <b>comme l'ont enseigne les Sages :</b> Le verset indique a propos d'un grand pretre : <b>"Il n'entrera pas aupres de cadavres;</b> ni ne se souillera pour son pere ou pour sa mere" (Levitique 21:11). <b>A l'egard de quels</b> corps <b>le verset parle-t-il ? Si</b> il se refere <b>a des personnes eloignees</b>, c'est-a-dire non parentes, <b>cette</b> <i>halakha</b> peut etre deduite par <b>une <i>a fortiori</i></b> inference : <b>Et si un pretre commun, qui devient impur pour</b> enterrer les membres de sa <b>famille proche</b>, <b>ne peut pas devenir impur pour</b> enterrer des personnes <b>distantes</b>, alors en ce qui concerne <b>un grand pretre, qui ne devient pas impur</b> meme <b>pour</b> enterrer des <b>proches</b> membres de sa famille, <b>n'est-il pas logique qu'il ne devienne pas impur pour</b> enterrer des personnes <b>distantes</b> ? <b>Le verset parle plutot des membres proches</b> de la famille, et il interdit a un Grand Pretre de devenir impur pour enterrer toute personne, meme ses proches.
+
+### Partie 10
+La Guemara commente : En ce qui concerne le reste du verset : "Non se souille pour son père ou pour sa mère" (Lévitique 21:11), chacune de ces clauses doit servir A enseigner une nouvelle <i>halakha</i>. <b>Et</b> l'expression "pour son pere" enseigne : <b>C'est pour</b> enterrer <b>son pere afin qu'il ne devienne pas rituellement impur,</b> d'ou l'on peut deduire que <b>il devient impur pour</b> enterrer <b>une <i>mitsva</i>.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

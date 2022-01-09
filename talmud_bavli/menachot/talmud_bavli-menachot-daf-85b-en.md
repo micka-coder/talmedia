@@ -1,0 +1,60 @@
+
+### Part 1
+it is only <b>the <i>baraita</i></b> that <b>teaches</b> that he plows and then <b>repeats</b> the plowing. It would appear, then, that the mishna and <i>baraita</i> express different opinions, and it may be that according to the mishna one does not need to plow in the second year at all.
+
+### Part 2
+The Gemara dismisses this suggestion: <b>This</b> is <b>not difficult;</b> it is possible that the mishna and the <i>baraita</i> do not disagree, and <b>here,</b> the mishna, which does not require plowing a second time, <b>is referring to a cultivated</b> field, whereas <b>there,</b> the <i>baraita</i> <b>is referring to an uncultivated</b> field, and therefore it requires that the field be plowed a second time.
+
+### Part 3
+The Gemara concludes: <b>What</b> halakhic conclusion <b>was</b> reached <b>about</b> this matter? <b>Come</b> and <b>hear</b> the resolution from that <b>which is taught</b> in a <i>baraita</i>: For the first year, <b>one plows</b> the entire field during the first <b>half of</b> the year, <b>and</b> then he <b>sows half of</b> the field, leaving the other half fallow. For the second year, one again <b>plows</b> the entire field during the first <b>half of</b> the year, <b>and</b> then he <b>sows</b> the <b>half of</b> the field that was left fallow in the previous year. It is evident from this <i>baraita</i> that during the second year as well, the field is plowed before it is sown.
+
+### Part 4
+§ <b>Rabbi Yoḥanan says: One brings the <i>omer</i> only from</b> the <b>southern fields of Eretz Yisrael, as upon those</b> fields, the <b>sun rises</b> and shines, <b>and from those</b> fields, the <b>sun</b> also <b>sets.</b> Those fields are exposed to abundant sunlight, and so they produce a superior-quality crop.
+
+### Part 5
+<b>This is also taught</b> in a <i>baraita</i>: <b>Abba Shaul says</b> that <b>the <i>omer</i> would come from</b> grain grown in <b>the valley of Beit Mikle.</b> The field there <b>was about three <i>se’a</i>, and it was a southern field, and</b> the <b>sun would rise</b> and shine <b>upon it, and</b> the <b>sun would set from it.</b> During the first year, the farmer <b>plowed</b> the entire field during the first <b>half of</b> the year, <b>and</b> he then <b>sowed half of</b> the field, leaving the other half fallow. During the second year, he again <b>plowed</b> the entire field during the first <b>half of</b> the year, <b>and</b> he then <b>sowed</b> the <b>half of</b> the field that was left fallow in the previous year.
+
+### Part 6
+The Gemara demonstrates the efficacy of this method: <b>Rav Ḥilkiya bar Tovi had a tract of land. He plowed</b> the field during the first <b>half of</b> the year <b>and</b> then <b>sowed half of</b> it. The next year, <b>he plowed</b> the field during the first <b>half of</b> the year <b>and</b> then <b>sowed</b> the other <b>half of it. And</b> this method was so effective that his field <b>produced twice</b> as much wheat as other fields its size, <b>and</b> it was of such a superior quality that <b>he sold</b> the <b>wheat</b> to be used <b>as fine flour [<i>lismida</i>]</b> for the meal offerings in the Temple.
+
+### Part 7
+§ The mishna teaches: <b>And if</b> the flour <b>became wormy,</b> it is <b>unfit</b> for use in a meal offering. <b>The Sages taught</b> in a <i>baraita</i>: <b>Fine flour the majority of which became wormy</b> is <b>unfit. And</b> similarly, <b>wheat</b> kernels <b>the majority of which became wormy</b> are <b>unfit,</b> and they may not be used to produce fine flour for meal offerings. <b>Rabbi Yirmeya asks:</b> What is the meaning of this latter ruling? Is it saying only that if the <b>majority of</b> an individual <b>wheat</b> kernel becomes wormy the flour produced from it is unfit, <b>or</b> is it saying that when the <b>majority of a <i>se’a</i></b> of kernels becomes wormy the entire <i>se’a</i> is <b>unfit?</b> The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 8
+<b>Rava asks:</b> If <b>one consecrated</b> grains of wormy wheat for use in a meal offering, <b>what is</b> the <i>halakha</i> with regard to whether <b>he should be flogged for</b> consecrating <b>them due to</b> the prohibition against consecrating <b>a flawed</b> item as an offering? One is flogged for consecrating a blemished animal as an offering (see <i>Temura</i> 6b); does the same apply to consecrating wormy wheat? Does one say that <b>since</b> the wheat is <b>unfit,</b> it is <b>comparable to a blemished</b> animal? <b>Or perhaps,</b> the prohibition against consecrating <b>a flawed</b> item <b>applies only to an animal.</b> The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 9
+§ <b>We learned</b> in a mishna <b>elsewhere</b> (<i>Middot</i> 2:5) with regard to the wood logs that are burned on the altar: Priests inspect them before they are used and <b>any log in which a worm is found</b> is <b>unfit for</b> use <b>on the altar.</b> In reference to this mishna, <b>Shmuel says: They taught</b> this <i>halakha</i> <b>only</b> with regard to <b>a wet</b> log, as a wormy section cannot be removed. <b>But</b> if a wormy section is found in <b>a dry</b> log, the priest <b>scrapes</b> the wormy spot <b>away, and</b> the log is <b>fit</b> for use.
+
+### Part 10
+<b>Rava asks:</b> If <b>one consecrated</b> a wormy log to be used on the altar, <b>what is</b> the <i>halakha</i> with regard to whether <b>he should be flogged for</b> consecrating <b>it due to</b> the prohibition against consecrating <b>a flawed</b> item as an offering? Does one say that <b>since</b> the log is <b>unfit,</b> it is <b>comparable to a blemished</b> animal? <b>Or perhaps,</b> the prohibition against consecrating <b>a flawed</b> item <b>applies only to an animal.</b> The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 11
+<strong>MISHNA:</strong> Olive trees in <b>Tekoa</b> are the <b>primary</b> source <b>of oil</b> to be used in meal offerings. <b>Abba Shaul says: Secondary to</b> Tekoa <b>is Regev on the</b> east <b>bank of the Jordan</b> River. <b>All the regions were valid</b> for oil to be brought from them, <b>but</b> it was <b>from here</b> that <b>they would bring</b> it.
+
+### Part 12
+<b>One may not bring</b> a meal offering containing oil from olives taken <b>from a fertilized</b> olive <b>grove, nor</b> from olives taken <b>from an irrigated</b> olive <b>grove, nor</b> from olives taken <b>from</b> an olive grove where grain <b>was sown between</b> the trees. <b>But if one did bring</b> a meal offering containing oil from such groves, it is <b>valid. One may not bring</b> a meal offering containing oil from <b>unripe olives [<i>anpiktan</i>], but if one did bring</b> it, it is <b>valid. One may not bring</b> a meal offering containing oil <b>from olives that were soaked in water, nor from pickled</b> olives, <b>nor from boiled</b> olives, <b>and</b> even if <b>one did bring</b> it, it is <b>not valid.</b>
+
+### Part 13
+<strong>GEMARA:</strong> The Gemara notes the effect of Tekoa’s oil on those living there: The verse states: <b>“And Joab sent to Tekoa, and fetched from there a wise woman”</b> (II Samuel 14:2). <b>What is different</b> about <b>Tekoa</b> that Joab chose to bring a woman from there? <b>Rabbi Yoḥanan says: Since</b> the residents of Tekoa <b>are accustomed to</b> use <b>olive oil, wisdom is prevalent there.</b>
+
+### Part 14
+§ The Gemara digresses to discuss the tribal portion of Asher, in which the city of Tekoa is located: <b>The Sages taught</b> in a <i>baraita</i>: In his blessing to the tribe of Asher, Moses said: “He will be pleasing to his brothers, <b>and immerse his foot in oil”</b> (Deuteronomy 33:24). <b>This</b> is referring to <b>the portion of Asher, as the oil flows</b> there <b>like a spring.</b> The Gemara relates: <b>They said</b> that <b>once, the people of Laodicea were in need of oil. They appointed</b> a gentile <b>messenger [<i>polmostos</i>]</b> and <b>said to him: Go and bring us one million</b> <i>maneh</i> worth <b>of oil.</b>
+
+### Part 15
+<b>He</b> first <b>went to Jerusalem</b> to procure the oil, but residents there did not have that quantity of oil. <b>They said to him: Go to Tyre,</b> which was a commercial city. <b>He went to Tyre,</b> but they also did not have enough oil. <b>They said to him: Go to Gush Ḥalav,</b> which is located in the portion of Asher. <b>He went to Gush Ḥalav,</b> and <b>they said to him: Go to so-and-so, to that field.</b> He went there <b>and found</b> someone <b>hoeing [<i>ozek</i>] under his olive trees.</b> The messenger <b>said to</b> that man: <b>Do you have</b> the <b>one million</b> <i>maneh</i> worth <b>of oil that I need?</b> The man <b>said to him: Wait for me until I complete my labor,</b> i.e., hoeing. The messenger <b>waited until</b> the man <b>completed his labor.</b>
+
+### Part 16
+<b>After he completed his labor,</b> the man <b>slung his tools</b> over his shoulders <b>behind him,</b> a manner typical of poor laborers, and started walking, <b>and he was removing stones</b> from his orchard <b>as he went along the path.</b> Upon seeing this behavior, which suggested the man was merely a laborer, the messenger questioned whether the man was truly able to provide him with the oil. <b>He said to</b> the man: Can it be that <b>you</b> really <b>have</b> the <b>one million</b> <i>maneh</i> worth <b>of oil that I need? It seems to me that the Jews</b> of Gush Ḥalav <b>are making a laughingstock of me</b> by sending me here. <b>When he reached his city,</b> the man’s <b>maidservant brought out to him a kettle [<i>kumkemos</i>] of hot</b> water, <b>and he washed his hands and his feet.</b> Afterward, <b>she brought out to him a golden basin filled with oil, in which he immersed his hands and feet, in fulfillment of that</b> which <b>is stated</b> with regard to the Tribe of Asher: <b>“And immerse his foot in oil”</b> (Deuteronomy 33:24).
+
+### Part 17
+<b>After they ate and drank,</b> the man <b>measured out</b> for the messenger <b>one million</b> <i>maneh</i> worth <b>of oil.</b> The man <b>said to him:</b> Are you sure that <b>you do not need any more</b> oil? The messenger <b>said to him: Yes,</b> I do need more, <b>but I do not have</b> the <b>money</b> for it. The man <b>said to him: If you wish to take</b> more oil, <b>take</b> it <b>and I will go</b> back to Laodicea <b>with you and collect the money</b> for the extra oil there. The messenger agreed and the man <b>measured out</b> an additional <b>180,000</b> <i>maneh</i> worth <b>of oil.</b> Concerning this incident, people <b>said:</b> The messenger had such an enormous burden of oil that <b>he left neither a horse, nor a mule, nor a camel, nor a donkey in</b> all of <b>Eretz Yisrael that he did not rent</b> in order to help transport the oil back to Laodicea.
+
+### Part 18
+<b>When</b> the messenger finally <b>reached his city, the people of his city came out to praise him [<i>lekaleso</i>]</b> for achieving this tremendous feat. The messenger <b>said to them: Do not praise me. Rather,</b> praise <b>this</b> man <b>who has come with me, as</b> it is <b>he</b> who <b>measured for me one million</b> <i>maneh</i> worth <b>of oil, and he extended a debt to me for 180,000</b> <i>maneh</i> worth <b>of oil.</b> This incident was <b>in fulfillment of that</b> which <b>is stated: “There is one who seems to be rich, yet has nothing; there is one who seems to be poor, yet has great wealth”</b> (Proverbs 13:7).
+
+### Part 19
+§ The mishna teaches: <b>One may not bring</b> a meal offering containing oil made from olives <b>from a fertilized</b> olive <b>grove.</b> The mishna continues to state that one may not bring a meal offering containing oil from unripe olives, and, according to one version of the mishna’s text, it adds that even if one did bring a meal offering containing such oil, it is not valid. The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i>: <b>One may not bring</b> a meal offering containing oil made from <b>unripe olives,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+<b>Rabbi Yoḥanan wondered about</b> Rabbi Oshaya’s explanation of the mishna: <b>And does one say to a person: Arise and sin in order that you may gain?</b> Even if consecrated property can be desacralized intentionally, one is not allowed to redeem an animal designated to be an offering. <b>Rather, Rabbi Yoḥanan says:</b> The mishna does not refer to redeeming an unblemished animal but to a case where the one who found the animal <b>waits for it until it develops a blemish.</b> At that point it would no longer have inherent sanctity but merely sanctity that inheres in its value, so the animal may be redeemed. <b>And he brings two</b> unblemished <b>animals</b> of the same value, <b>and stipulates</b> that if the animal he found was a burnt-offering, the first animal should be a burnt-offering in its stead while the other should be a voluntary peace-offering. And if the animal he found was a peace-offering, the second animal should be a peace-offering in its stead and the first should be a voluntary burnt-offering. After doing so he may eat the animal he found.
+
+### Part 2
+The Gemara continues to clarify the mishna. <b>The Master says</b> (55a): <b>Males</b> are presumed to be <b>burnt-offerings,</b> as only males may be brought as burnt-offerings. The Gemara asks: Why should a male necessarily be a burnt-offering; <b>perhaps it is a thanks-offering,</b> which can also be brought from a male animal? The Gemara answers: The mishna means <b>that</b> he must <b>also bring</b> a third animal and make a similar stipulation, that it should be either <b>a thanks-offering</b> in its stead or a voluntary one. The Gemara asks: <b>But</b> if he brings a third animal as a thanks-offering, doesn’t a thanks-offering <b>require</b> the bringing of <b>bread</b> as well? The Gemara answers: <b>He brings bread as well.</b>
+
+### Part 3
+The Gemara asks: <b>But perhaps it is a guilt-offering,</b> which is also brought only from male animals? The Gemara answers: The animal for <b>a guilt-offering</b> is <b>in its second year, and</b> the mishna is referring to a case where <b>an</b> animal <b>in its first year was found.</b> The Gemara asks: <b>But perhaps it is the guilt-offering of a leper</b> or <b>the guilt-offering of a nazirite,</b> which are brought from animals in their first year? The Gemara answers: Lepers and nazirites are <b>not common,</b> and there is no need to be concerned about that possibility.
+
+### Part 4
+The Gemara asks: <b>But perhaps it is a Paschal offering,</b> which is also brought from male animals? The Gemara answers: That is not likely, because with regard to <b>a Paschal offering,</b> if it is up to or <b>in its time</b> to be slaughtered, the owners <b>carefully guard it</b> to prevent it from going missing. <b>And</b> if it is a Paschal offering <b>that</b> is <b>not</b> offered <b>in its</b> proper <b>time,</b> but was left over and is offered later, <b>it</b> has the same <i>halakha</i> <b>as a peace-offering.</b>
+
+### Part 5
+The Gemara asks: <b>And perhaps</b> the animal he found <b>is a firstborn</b> animal, which can only be brought from male animals, <b>or</b> animal <b>tithe,</b> which can brought from male animals? The Gemara answers: <b>With regard to which <i>halakha</i></b> would the possibility that it is a firstborn or animal tithe need to be taken into account? It is with regard to the <i>halakha</i> that one is permitted <b>to eat them in their blemished</b> state, as firstborns and animal tithes do not need to be redeemed if they develop a blemish, but are eaten as such. <b>These</b> found animals <b>as well are eaten</b> only <b>in their blemished</b> state, as one may not redeem and eat them until they develop a blemish, as explained previously.
+
+### Part 6
+<b>The Master says</b> above: <b>Females</b> are presumed to be <b>peace-offerings,</b> as it is permitted to bring a female peace-offering. The Gemara asks: <b>Perhaps it is a thanks-offering,</b> which can also be brought from female animals? The Gemara answers: The mishna means <b>that</b> he must also <b>bring</b> a third animal and make a similar stipulation, that it is either a <b>thanks-offering</b> in the stead of the found animal, or a gift offering. The Gemara asks: <b>But</b> if he brings a third animal as a thanks-offering, doesn’t a thanks-offering <b>require</b> the bringing of <b>bread</b> as well? The Gemara answers: <b>He brings bread as well.</b>
+
+### Part 7
+The Gemara asks: <b>But perhaps it is a sin-offering,</b> as it is permitted to bring a female sin-offering? The Gemara answers: The animal for <b>a sin-offering</b> is always <b>in its first year, and</b> the mishna is referring to a case where <b>an</b> animal <b>in its second year was found.</b> The Gemara asks: <b>But perhaps</b> it was <b>a sin-offering whose year had passed</b> without having been sacrificed? The <i>halakha</i> in such a case is that the animal is left to die. The Gemara answers: Such a case is <b>not common,</b> and there is no need to be concerned about such a possibility.
+
+### Part 8
+The Gemara asks: This is the case if the animal was in its second year, but <b>what</b> is the <i>halakha</i> if it <b>was found</b> when it was <b>in its first year?</b> The Gemara answers: <b>It is taught</b> in a <i>baraita</i>: <b>Ḥananya ben Ḥakhinai says:</b> If one found <b>a goat in its first year,</b> it is brought <b>as a sin-offering.</b> The Gemara asks: <b>Can it enter your mind</b> that it is brought <b>as a sin</b>-<b>offering?</b> How can he sacrifice the animal as a sin-offering due to a mere possibility that it had been designated as a sin-offering? One cannot bring a voluntary sin-offering. <b>Rather, Abaye says:</b> He treats it <b>as</b> though it were <b>a sin-offering,</b> i.e., he <b>conveys it into a cell and it dies on its own.</b> Since it might be a lost sin-offering, it must be left to die.
+
+### Part 9
+<b>The Sages taught</b> (<i>Tosefta</i>, <i>Ma’aser Sheni</i> 1:15): <b>One may not purchase an animal with second-tithe money</b> outside of Jerusalem,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

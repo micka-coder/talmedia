@@ -1,0 +1,48 @@
+
+### Part 1
+<b>Fire is not</b> the proper interpretation of the <b>term <i>kali</i></b> in the verse. <b>Rather,</b> <i>kali</i> means <b>something else,</b> i.e., the barley was parched inside a receptacle and not directly in the fire. <b>How so? The term <i>kali</i> means only</b> that <b>something else,</b> a vessel made from <b>burnished [<i>kalil</i>]</b> brass was used in the process of parching the grains. <b>How so,</b> i.e., how was this performed? There <b>was a hollow vessel there,</b> in the Temple, which was used <b>for</b> making <b>parched</b> grains. <b>And it was perforated</b> with holes <b>like a sieve, in order to</b> allow <b>the fire to take hold of</b> it <b>in its entirety.</b>
+
+### Part 2
+The <i>baraita</i> analyzes the verse: “And if you bring a meal offering of first fruits to the Lord, you shall bring for the meal offering of your first fruits grain in the <b>ear parched with fire,</b> even <b>groats</b> of the fresh ear” (Leviticus 2:14). This indicates that the grain used for the <i>omer</i> offering must be parched with fire, but is unclear if that clause modifies the earlier or later part of the verse. In other words, <b>I do not know if</b> grain in the <b>ear</b> is to be parched before it is ground, or <b>if</b> the ground <b>groats</b> are to be <b>parched.</b> The <i>baraita</i> explains that <b>when</b> the verse <b>states: With fire, it interrupted the</b> previous <b>matter</b> and is now introducing a new clause. Accordingly, the instructions to parch with fire is referring to the grain still in the stalks, not the ground groats.
+
+### Part 3
+The verse states that the <i>omer</i> offering should be of the <b>fresh ear [<i>karmel</i>].</b> The <i>baraita</i> defines <i>karmel</i> as <b>soft and malleable [<i>rakh umal</i>]. And likewise</b> there are other examples of terms that are interpreted as shortened terms, <b>as</b> the verse <b>states: “And there came a man from Baal Shalishah, and brought the man of God bread of the first fruits, twenty loaves of barley, and fresh ears of grain [<i>karmel</i>] in his sack [<i>betziklono</i>]. And he said: Give to the people, that they may eat”</b> (II Kings 4:42). This verse mentions the word <i>karmel</i> in connection with the word <i>betziklono</i>, which is interpreted as an abbreviation for: <b>He came [<i>ba</i>] and he poured for us [<i>veyatzak lanu</i>], and we ate [<i>ve’akhalnu</i>] and it was fine [<i>venaveh haya</i>].</b>
+
+### Part 4
+The <i>baraita</i> presents further examples of words that are interpreted as shortened terms of an expanded phrase. <b>And</b> the verse <b>states:</b> “Come, let us take our fill of love until the morning; <b>let us solace ourselves [<i>nitalesa</i>] with love”</b> (Proverbs 7:18). The word <i>nitalesa</i> is short for: <b>We shall converse [<i>nissa veniten</i>] and we shall go up [<i>vena’aleh</i>]</b> to bed <b>and we shall rejoice [<i>venismaḥ</i>] and be pampered [<i>venitḥata</i>] with loves.</b>
+
+### Part 5
+The <i>baraita</i> provides an example of a similar shortened word: <b>“The wing of the ostrich beats joyously [<i>ne’elasa</i>]”</b> (Job 39:13). The word <i>ne’elasa</i> is a combination of the words: <b>Carries [<i>noseh</i>], goes up [<i>oleh</i>], and places down [<i>venitḥata</i>].</b> This bird carries its egg, flies upward, and places it in its nest.
+
+### Part 6
+Likewise, the verse states, after Balaam struck his donkey: “And the angel of the Lord said to him: Why did you hit your donkey these three times? Behold I have come out as an adversary <b>because your way is contrary [<i>yarat</i>] against me”</b> (Numbers 22:32). <i>Yarat</i> is also a shortened term: The donkey <b>feared [<i>yirata</i>], it saw [<i>ra’ata</i>],</b> and <b>it turned aside [<i>nateta</i>].</b>
+
+### Part 7
+The Gemara returns to discuss the word <i>karmel</i>. <b>The school of Rabbi Yishmael taught</b> that <b><i>karmel</i></b> means: <b>A full kernel [<i>kar maleh</i>],</b> i.e., that the shell of the kernel should be filled with the ripened kernel inside.
+
+### Part 8
+§ The mishna teaches: <b>Rabbi Akiva deems</b> this flour <b>obligated in</b> having <b><i>ḥalla</i> and the tithes</b> separated from it. <b>Rav Kahana said</b> that <b>Rabbi Akiva would say:</b> The <b>smoothing</b> of a pile of <b>consecrated</b> grains does <b>not exempt</b> it from the obligation to separate tithes if it is later redeemed for common use. This is despite the <i>halakha</i> that the smoothing of the pile is what causes the obligation of separating tithes to take effect.
+
+### Part 9
+<b>Rav Sheshet raises an objection</b> from a <i>baraita</i>: <b>What would they do with</b> the <b>leftover</b> of <b>these three <i>se’a</i></b> of barley, i.e., the portion not used for the tenth of an ephah of flour for the <i>omer</i> offering? It <b>is redeemed and eaten by any person, and</b> it is <b>obligated in</b> the separation of <b><i>ḥalla</i> and exempt</b> from the separation of <b>tithes. Rabbi Akiva deems</b> this flour <b>obligated in</b> having <b><i>ḥalla</i> and the tithes</b> separated from it. The Rabbis <b>said to</b> Rabbi Akiva: The <i>halakha</i> of one who <b>redeems</b> produce <b>from the possession of</b> the Temple <b>treasurer [<i>gizbar</i>] proves</b> otherwise, <b>as</b> he is <b>obligated</b> in the separation of <b><i>ḥalla</i> but exempt from</b> the separation of <b>tithes.</b>
+
+### Part 10
+Rav Sheshet explains his objection: <b>And if it is so that</b> Rabbi Akiva holds that <b>smoothing</b> a pile of <b>consecrated</b> grains does <b>not exempt</b> it from tithes, <b>what</b> is the significance of that which the Rabbis <b>said to him?</b> Rabbi Akiva would simply disagree with their premise, as <b>it is</b> the same ruling <b>itself:</b> Just as a pile of consecrated grains that was smoothed is not exempt from tithes, so too, Rabbi Akiva would maintain that produce redeemed from the Temple treasury is not exempt from tithes.
+
+### Part 11
+<b>And furthermore, Rav Kahana bar Taḥlifa raises an objection</b> from a <i>baraita</i> <b>to Rav Kahana bar Matitya,</b> who reported that Rabbi Akiva holds that consecrated grain is not exempt from the obligation to separate tithes. The <i>baraita</i> teaches: <b>Rabbi Akiva obligates</b> one <b>in</b> the separation of <b><i>ḥalla</i> and in</b> the separation of <b>tithes, as</b> the Temple <b>money</b> designated for the <i>omer</i> crop <b>was given only</b> to cover the cost <b>of that</b> which <b>they required</b> for the offering. Only the requisite tenth of an ephah out of the entire three <i>se’a</i> was paid from the Temple treasury, and was therefore its property. This indicates that had the entire crop been purchased by the Temple, it would be exempt from the obligation to separate tithes.
+
+### Part 12
+<b>Rather, Rabbi Yoḥanan says: It is a settled,</b> accepted <b>tradition in the mouth of Rabbi Akiva that</b> the Temple <b>money</b> designated for the <i>omer</i> crop <b>was given only</b> to cover the cost <b>of that</b> which <b>they required</b> for the offering. In other words, Rav Kahana’s version of Rabbi Akiva’s opinion, that in all cases the smoothing of a pile of consecrated grains does not exempt it from tithes, is rejected.
+
+### Part 13
+<b>Rava</b> likewise <b>said:</b> It is <b>obvious to me that</b> the <b>smoothing</b> of a pile of <b>consecrated</b> grain <b>exempts</b> one from any subsequent obligation to separate tithes. <b>And even Rabbi Akiva,</b> who requires the separation of tithes from the remainder of the grain not used for the <i>omer</i> offering, <b>obligates</b> one to separate <b>tithes only there, where</b> the <b>money was given only</b> to pay for <b>that</b> which <b>they required</b> for the offering. <b>But</b> he concedes that the <b>smoothing</b> of a pile of <b>consecrated</b> grain <b>generally exempts</b> one from the obligation to separate tithes.
+
+### Part 14
+Rava continues: The status of a pile of grain after <b>smoothing</b> performed by <b>a gentile</b> owner <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: <b>One separates</b> <i>teruma</i> <b>from</b> produce <b>of a Jew to</b> exempt other produce <b>of a Jew,</b> and <b>from</b> produce bought <b>from gentiles to</b> exempt other produce bought <b>from gentiles, and from</b> produce bought <b>from Samaritans to</b> exempt other produce bought <b>from Samaritans.</b> Furthermore, one may separate <i>teruma</i> <b>from</b> the produce <b>of any</b> of the above <b>to</b> exempt the produce <b>of any</b> of the above. This is <b>the statement of Rabbi Meir and Rabbi Yehuda,</b> as they maintain that produce that belonged to gentiles or Samaritans is obligated in tithes and has the same status as produce that initially belonged to a Jew.
+
+### Part 15
+<b>Rabbi Yosei and Rabbi Shimon say: One separates <i>teruma</i> from</b> produce <b>of a Jew to</b> exempt other produce <b>of a Jew, and from</b> produce bought from <b>gentiles to</b> exempt produce bought <b>from Samaritans, and from</b> produce bought <b>from Samaritans to</b> exempt produce bought <b>from gentiles. But</b> one may <b>not</b> separate <i>teruma</i> <b>from</b> produce <b>of a Jew to</b> exempt produce bought <b>from gentiles or from Samaritans, nor from</b> produce bought <b>from gentiles or from Samaritans to</b> exempt produce <b>of a Jew.</b> According to Rabbi Yosei and Rabbi Yishmael, produce that belonged to a gentile or a Samaritan is exempt from the obligation to separate tithes. Therefore one may not separate tithes from produce of a Jew, to which the obligation of tithes applies, to exempt such produce.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

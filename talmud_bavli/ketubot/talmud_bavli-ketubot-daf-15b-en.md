@@ -1,0 +1,33 @@
+
+### Part 1
+If there is a city in which both Jews and gentiles reside, and <b>one found</b> an unidentified, <b>abandoned baby in</b> the city, <b>if</b> there is a <b>majority of gentiles</b> in the city the baby is deemed <b>a gentile; if</b> there is a <b>majority of Jews</b> in the city the baby is deemed <b>a Jew.</b> If <b>half</b> the population is gentile and <b>half</b> Jewish, the baby is deemed <b>a Jew.</b>
+
+### Part 2
+<b>And Rav said</b> with regard to this mishna: The Sages <b>taught</b> that if there is a majority of Jews in the city the baby is deemed a Jew <b>only</b> with regard <b>to sustaining him; however,</b> with regard <b>to lineage,</b> e.g., marrying him to a Jewish woman, <b>no,</b> he is not deemed a Jew based on the majority and would require conversion. <b>And Shmuel said:</b> It was taught that he is deemed a Jew in order <b>to create an opening</b> in <b>a heap</b> of debris <b>on his</b> behalf on Shabbat, i.e., desecrating Shabbat in order to save his life. Apparently, contrary to the ruling of Rav Ḥiyya bar Ashi, Rav holds that a single majority is insufficient to deem him Jewish in matters of lineage.
+
+### Part 3
+The Gemara answers: Rav Yirmeya <b>overlooked that which Rav Yehuda said</b> that <b>Rav said</b> with regard to the mishna: The <b>incident</b> of the rape of the young girl transpired <b>among the wagons</b> in the marketplace <b>of Tzippori,</b> and there were two majorities; the majority of the inhabitants of the city and the majority of the passing contingent. Therefore, when Rav Ḥiyya bar Ashi ruled that the <i>halakha</i> is in accordance with the opinion of Rabbi Yosei, i.e., that the young girl may marry a priest, it was in a case of two majorities.
+
+### Part 4
+The Gemara asks: <b>And</b> if the case in the mishna is one of two majorities, according <b>to Rav Ḥanan bar Rava who said</b> in the name of Rav: <b>That was a provisional edict</b> issued in exigent circumstances, meaning that two majorities were required in that case but typically one majority is sufficient, it is <b>difficult.</b> Didn’t Rav say that in matters of lineage one majority is insufficient? The Gemara answers: <b>That</b> is not difficult. <b>The one who teaches this,</b> that the ruling in our mishna was a provisional edict, <b>does not teach that</b> statement that Rav Yehuda said that Rav said that the incident took place among the wagons in the marketplace of Tzippori. Rather, he holds that there was a single majority and nevertheless, due to exigent circumstances, the girl was permitted to marry into the priesthood, although generally two majorities are required in cases of lineage.
+
+### Part 5
+§ Apropos the case of the abandoned baby, the Gemara analyzes the matter <b>itself:</b> If there is a city in which both Jews and gentiles reside, and <b>one found</b> an unidentified, <b>abandoned baby in</b> the city, <b>if</b> there is a <b>majority of gentiles</b> in the city the baby is deemed <b>a gentile. If</b> there is a <b>majority of Jews</b> in the city the baby is deemed <b>a Jew.</b> If <b>half</b> the population is gentile and <b>half</b> Jewish, the baby is deemed <b>a Jew. Rav said:</b> The Sages <b>taught</b> that the baby is deemed a Jew <b>only</b> with regard <b>to sustaining him; however,</b> with regard <b>to lineage, no. And Shmuel said:</b> It was taught that he is deemed a Jew in order <b>to create an opening</b> in <b>a heap</b> of debris <b>on his</b> behalf on Shabbat.
+
+### Part 6
+The Gemara asks: <b>And did Shmuel say that? But didn’t Rav Yosef say</b> that <b>Rav Yehuda said</b> that <b>Shmuel said: One does not follow the majority in matters</b> involving <b>saving a life?</b> Even if there is the slightest concern that the life of a Jew may be in danger, one takes all steps necessary to save him, even on Shabbat. <b>Rather, when the statement of Shmuel was stated</b> with regard to saving a life <b>it was stated concerning the first clause</b> of the mishna: <b>If</b> there is a <b>majority of gentiles</b> in the city the baby is deemed <b>a gentile. Shmuel said: And</b> with regard <b>to creating an opening</b> in <b>a heap</b> of debris <b>on his</b> behalf <b>[<i>lefake’aḥ alav et hagal</i>]</b> on Shabbat, <b>that is not so.</b> Even if there is a gentile majority in the city, one does not follow the majority in cases involving the saving of a life.
+
+### Part 7
+The mishna continues: <b>If</b> there is a <b>majority of gentiles</b> the baby is deemed <b>a gentile.</b> The Gemara asks: With regard <b>to what <i>halakha</i></b> was this stated? <b>Rav Pappa said:</b> It was stated in order <b>to feed</b> the baby <b>animal carcasses,</b> i.e., non-kosher food.
+
+### Part 8
+And it is taught in the mishna: <b>If</b> there is a <b>majority of Jews</b> the baby is deemed <b>a Jew.</b> The Gemara asks: With regard <b>to what <i>halakha</i></b> was this stated? <b>Rav Pappa said:</b> It was stated in order <b>to return lost property to him,</b> as one is required to return lost property to a Jew.
+
+### Part 9
+And it is taught in the mishna: If <b>half</b> the population is gentile and <b>half</b> Jewish, the baby is deemed <b>a Jew.</b> The Gemara asks: With regard <b>to what <i>halakha</i></b> was this stated? <b>Reish Lakish said:</b> It was stated with regard <b>to damages.</b> In terms of payment of damages, the courts judge him as a Jew. The Gemara asks: <b>What are the circumstances? If we say that our ox,</b> one belonging to a Jew, <b>gored his ox,</b> one belonging to a person of uncertain status, and he claims that he should be compensated for the damages as a Jew, <b>let the</b> owner of the ox that gored <b>say to him: Bring proof that you are a Jew, and take</b> payment. Due to the uncertainty surrounding his status, he is unable to produce any proof.
+
+### Part 10
+Rather, this <i>halakha</i> is <b>necessary only</b> in a case <b>where his ox gored our ox,</b> one belonging to a Jew. In that case, there is no question that <b>he pays half</b> the damage, which is the payment when an innocuous ox belonging to a Jew gores an ox belonging to a Jew. <b>And</b> with regard to <b>the other half,</b> which the owner of the gored ox is claiming, asserting that this person of uncertain status is a gentile and therefore liable to pay full damages, the owner of the ox that gored can <b>say to</b> the claimants: <b>Bring proof that I am not a Jew and I will give you</b> payment of the other half of the damages. It is with regard to that case that Reish Lakish ruled that in a case of uncertainty, the baby has the presumptive status of a Jew, and it is incumbent upon the claimant to prove otherwise.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

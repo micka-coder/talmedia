@@ -1,0 +1,75 @@
+
+### Part 1
+<b>What, is</b> the reference in the mishna <b>not</b> to a case <b>where</b> the husband said to the agent: <b>Here you are, and</b> it is in accordance with the opinion of <b>Rabbi Natan,</b> who apparently holds that if the husband says: Here you are, it is not comparable to a case where the husband said: Acquire? The Gemara rejects this: <b>No,</b> the reference in the mishna is to a case <b>where</b> the husband said to the agent: <b>Deliver,</b> and it is the opinion of <b>Rabbi</b> Yehuda HaNasi that even in that case the husband cannot retract his decision.
+
+### Part 2
+The Gemara states: <b>Come</b> and <b>hear</b> an additional proof from the mishna. <b>Therefore,</b> if the husband <b>said to</b> the woman’s agent of receipt: <b>I do not want you to receive</b> the bill of divorce <b>for her; rather, deliver and give</b> it <b>to her,</b> then if the husband <b>seeks to retract</b> his designation, <b>he can retract</b> it until it reaches his wife’s possession. The Gemara infers: <b>The reason</b> that he can retract his designation <b>is</b> due to the fact <b>that he said: I do not want,</b> thereby canceling the agent’s status as an agent of receipt. <b>However, if he did not say: I do not want,</b> but he said: Deliver this bill of divorce, then if the husband <b>seeks to retract</b> his decision <b>he cannot retract</b> it.
+
+### Part 3
+<b>What,</b> is the reference in the mishna <b>not</b> to a case <b>where</b> the husband said to the agent: <b>Here you are, and</b> it is in accordance with the opinion of <b>Rabbi Natan,</b> who apparently holds that the husband’s saying: Here you are, is not comparable to his saying: Acquire? The Gemara rejects this: <b>No,</b> the reference in the mishna is to a case <b>where</b> the husband said to the agent: <b>Deliver,</b> and it is the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 4
+The Gemara states: <b>Come</b> and <b>hear</b> proof with regard to the opinion of Rabbi Natan from a <i>baraita</i>. If the husband said: <b>Deliver this bill of divorce to my wife,</b> if he <b>seeks to retract</b> his decision <b>he can retract</b> it. If he said: <b>Here you are; this bill of divorce</b> is <b>for my wife,</b> if the husband <b>seeks to retract</b> his decision <b>he cannot retract</b> it. <b>Whom did you hear who said with regard to</b> a case where the husband said: <b>Deliver,</b> that if the husband <b>seeks to retract</b> his decision <b>he can retract</b> it? It is <b>Rabbi Natan; and he says in</b> the case of a husband who says: <b>Here you are,</b> that if the husband <b>seeks to retract</b> his decision <b>he cannot retract</b> it. <b>Learn from</b> the <i>baraita</i> that according to the opinion of Rabbi Natan, if the husband says: <b>Here you are,</b> it is <b>comparable</b> to a case <b>where</b> the husband said: <b>Acquire.</b> The Gemara concludes: <b>Learn from</b> the <i>baraita</i> that it is so.
+
+### Part 5
+§ <b>It was stated</b> with regard to a woman who says to her agent: <b>Receive my bill of divorce for me, and</b> the agent says to her husband: <b>Your wife said: Receive my bill of divorce for me, and</b> the husband <b>says</b> to the agent: <b>Deliver and give</b> it to <b>her,</b> that <b>Rabbi Abba says</b> that <b>Rav Huna says</b> that <b>Rav says:</b> The agent <b>becomes</b> both the husband’s <b>agent</b> for delivery of the bill of divorce <b>and</b> the wife’s <b>agent</b> for receipt. Therefore, if the husband dies childless after handing the bill of divorce to the agent <b>but</b> before it reaches his wife’s possession, <b>she performs <i>ḥalitza</i></b> with the husband’s brother due to the possibility that the agent was an agent of delivery and she was therefore not yet divorced. However, her husband’s brother may not enter into levirate marriage with her, due to the possibility that the agent was an agent of receipt, in which case she was divorced and is forbidden to the brother.
+
+### Part 6
+The Gemara asks: <b>Is this to say that Rav was uncertain whether</b> a case where the husband said: <b>Deliver,</b> is <b>comparable</b> to a case where the husband said: <b>Acquire,</b> or <b>whether</b> it is <b>not comparable</b> to a case <b>where</b> he said: <b>Acquire? But wasn’t it stated</b> that in a case where one said to his agent: <b>Deliver one hundred dinars to so-and-so, as I owe him</b> that sum, <b>Rav says:</b> The person who designated the agent <b>bears</b> financial <b>responsibility</b> for this money, and if it is lost he is required to pay the debt to his creditor. Nevertheless, <b>if</b> the person who designated the agent <b>seeks to retract</b> his designation and take the money back from the agent, then <b>he cannot retract</b> it, because the creditor acquires the money from the moment that the debtor handed it to his agent of delivery. Apparently, according to Rav, saying: Deliver, is like saying: Acquire.
+
+### Part 7
+The Gemara rejects this proof. There is a distinction between the agent for delivery of a bill of divorce and the agent for delivery of the repayment of a loan. <b>There,</b> in the case of repayment of a loan, because there is <b>uncertainty</b> with regard to <b>monetary</b> law, the ruling is <b>lenient,</b> as one does not extract money from another in cases of uncertainty with regard to monetary law. However, <b>here,</b> in the case of divorce there is <b>uncertainty</b> with regard to <b>ritual</b> law and the ruling is <b>stringent.</b>
+
+### Part 8
+§ <b>Rav says: A woman cannot appoint an agent to receive her bill of divorce from the hand of her husband’s agent, and Rabbi Ḥanina says: A woman can appoint an agent to receive her bill of divorce from the hand of her husband’s agent.</b>
+
+### Part 9
+The Gemara asks: <b>What is the reason</b> for the opinion <b>of Rav,</b> who said that she cannot appoint an agent to receive a bill of divorce from an agent? The Gemara answers: <b>If you wish, say:</b> It is <b>due to</b> the fact that her unwillingness to receive the document directly from his agent could be construed as a display of <b>contempt for</b> her <b>husband.</b>
+
+### Part 10
+<b>If you wish, say</b> instead that it is a decree issued <b>due to her courtyard that comes</b> into her possession <b>thereafter.</b> If a husband places a bill of divorce in a courtyard that does not belong to his wife, and his wife then purchases the courtyard, the divorce does not take effect, because the husband neither gave the bill of the divorce directly to his wife nor did he place it in her property. Her subsequent purchase of the courtyard is tantamount to her finding and taking the document. In this case too, the woman designated her agent for receipt, who in this sense is comparable to her property or her courtyard, subsequent to her husband’s handing the bill of divorce to his agent of delivery. Were the divorce valid in that case, one might mistakenly conclude that divorce is likewise valid in a case where he placed the document in a courtyard that she subsequently acquired.
+
+### Part 11
+The Gemara asks: <b>What is</b> the difference <b>between</b> these two reasons? The Gemara answers: The difference <b>between them</b> is in a case <b>where she first appointed an agent from the outset,</b> before the husband designated his agent for delivery. That case is not at all comparable to the case of a courtyard that a woman purchases after the document is placed there. However, the concern remains that it could be construed as a display of contempt for her husband.
+
+### Part 12
+The Gemara relates: There was <b>a certain man who sent a bill of divorce to his wife. The agent went and found her while she was sitting and kneading. He said to her: Here you are,</b> take <b>your bill of divorce. She said to him:</b> My hands are covered with dough and therefore <b>let</b> the bill of divorce <b>be in your hand,</b> i.e., serve as my agent for receipt. <b>Rav Naḥman said: If it is so that</b> the <i>halakha</i> is in accordance with the opinion <b>of Rabbi Ḥanina</b> and she can designate an agent to receive a bill of divorce from her husband’s agent, then <b>I would perform an action with regard to</b> this woman and rule that the divorce takes effect.
+
+### Part 13
+<b>Rava said to him: And if it is so that</b> the <i>halakha</i> is in accordance with the opinion <b>of Rabbi Ḥanina, would you perform an action with regard to</b> this woman? In this case, as the agent did not actually hand her the bill of divorce, the <b>agency</b> was not completed and consequently the agent <b>did not return to the husband</b> and report that he performed the task for which he was designated. By designating him as her agent before he completed the agency on behalf of the husband, the wife nullified the agency of the husband. Therefore, the divorce does not take effect.
+
+### Part 14
+Rav Naḥman and Rava <b>sent this</b> issue <b>before Rabbi Ami. He sent</b> a response <b>to them: The agency did not return to the husband,</b> and the divorce does not take effect. <b>And Rabbi Ḥiyya bar Abba says: We will consider the matter</b> and then respond.
+
+### Part 15
+Later <b>they again sent</b> this issue <b>before Rabbi Ḥiyya bar Abba. He said: All these</b> times <b>they continue to send</b> questions? <b>Just as the matter is uncertain to them, so too, it is uncertain to us,</b> and I do not have a resolution to the uncertainty.
+
+### Part 16
+The Gemara concludes: This is a case of uncertainty with regard to <b>a matter of forbidden relations,</b> i.e., a question of whether the woman is still married. And in cases of uncertainty with regard to <b>a matter of forbidden relations, she performs <i>ḥalitza</i>.</b> The ruling is stringent in this case of uncertainty. Therefore, if her husband died childless she may not remarry, due to the possibility that she was not divorced. However, her husband’s brother may not enter into levirate marriage with her, due to the possibility that she was divorced and is therefore forbidden to him.
+
+### Part 17
+The Gemara says: There <b>was an incident and Rav Yitzḥak bar Shmuel bar Marta required</b> the woman to receive both an additional <b>bill of divorce and <i>ḥalitza</i>.</b> The Gemara asks: <b>Two</b> of them? They are mutually exclusive. The second bill of divorce obviates the need for <i>ḥalitza</i>. The Gemara explains: He required <b>a bill of divorce</b> in a case <b>where</b> the husband was <b>alive, and</b> if the husband did not give her a bill of divorce, he required <b><i>ḥalitza</i> after</b> the husband’s <b>death.</b>
+
+### Part 18
+The Gemara relates: There was <b>a certain</b> woman <b>who was named Nefata</b> whose husband instructed witnesses to write and sign a bill of divorce and to divorce her. <b>The witnesses went and</b> mistakenly <b>wrote Tefata</b> in the bill of divorce. <b>Rav Yitzḥak bar Shmuel bar Marta says in the name of Rav:</b> The bill of divorce is invalid because the name is wrong. However, the witnesses cannot write another bill of divorce in the correct manner because the <b>witnesses</b> already <b>performed their agency</b> and are no longer agents of the husband.
+
+### Part 19
+<b>Rabba objects to this</b> ruling. <b>Does</b> the husband <b>say to them: Write</b> a worthless earthenware <b>shard and give it to her?</b> He instructed them to write a valid bill of divorce; as long as they did not write a valid bill of divorce they did not perform their agency. <b>Rather, Rabba said: Certainly, if the witnesses wrote a proper bill of divorce and it was lost,</b> one would say that <b>the witnesses performed their agency,</b> and they are not authorized to write another bill of divorce. That is not the case if they wrote an invalid bill of divorce.
+
+### Part 20
+<b>Rav Naḥman objects to this</b> ruling of Rabba. <b>Does</b> the hus-band <b>say to them: Write</b> it <b>and place it in your pockets?</b> He instructed them to write the document and divorce her with it. They did not perform their agency by merely writing a valid bill of divorce. <b>Rather, Rav Naḥman said:</b> In every case of this type, the witnesses <b>write</b> a bill of divorce <b>and give</b> it to the wife <b>even one hundred times.</b>
+
+### Part 21
+<b>Rava raised a dilemma before Rav Naḥman:</b> In a case where the husband said to witnesses: <b>Write</b> a bill of divorce <b>and give</b> it <b>to an agent, what</b> is the <i>halakha</i>? Did the husband <b>exclude them</b> once they gave the bill of divorce to the agent, and they are no longer eligible to write another bill of divorce? <b>Or perhaps</b> the husband <b>was concerned</b> only <b>about</b> sparing them from <b>their exertions,</b> and that is why he instructed them to hand the document to an agent rather than deliver it themselves. Therefore, their agency remains in effect, and if necessary they can continue writing bills of divorce until the divorce takes effect.
+
+### Part 22
+<b>Ravina said to Rav Ashi,</b> elaborating on the previous dilemma: If the husband said to the witnesses: Write a bill of divorce and give it to an agent <b>and he will deliver</b> it <b>to her, what is</b> the <i>halakha</i>? Does the added expression: And he will deliver it to her, indicate that their agency remains in effect until the agent actually delivers the bill of divorce to her? Or perhaps that is not the meaning of the phrase, and their agency ends with the writing? The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+### Part 23
+§ The mishna teaches that <b>Rabban Shimon ben Gamliel says: Even</b> with regard to a woman <b>who says</b> to her agent: <b>Take my bill of divorce for me, if</b> the husband <b>seeks to retract</b> his decision, <b>he cannot retract</b> it. He is an agent for receipt and she is divorced once the bill of divorce reaches his possession. <b>The Sages taught</b> (<i>Tosefta</i> 6:4): If the woman said to an agent: <b>Take</b> my bill of divorce <b>for me,</b> or: <b>Lift</b> my bill of divorce <b>for me, or:</b> The bill of divorce <b>will be in your possession for me, all of them are expressions of receipt,</b> and the divorce takes effect as soon as the bill of divorce reaches the possession of the agent.
+
+### Part 24
+<strong>MISHNA:</strong> <b>A woman who said</b> to an agent: <b>Receive my bill of divorce for me, requires two sets of witnesses</b> to confirm that she was divorced when the agent received the bill of divorce. She requires <b>two</b> witnesses <b>who say: In our presence she said</b> to the agent: Receive my bill of divorce on my behalf, <b>and two who say: In our presence</b> the agent <b>received</b> the bill of divorce <b>and tore</b> it. This testimony is effective <b>even</b> if two people <b>are the first</b> pair of witnesses <b>and</b> the same two <b>are the latter</b> pair of witnesses,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

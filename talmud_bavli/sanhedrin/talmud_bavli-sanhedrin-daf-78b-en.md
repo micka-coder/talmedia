@@ -1,0 +1,48 @@
+
+### Part 1
+<b>upon his staff, then he that struck him is absolved;</b> only for his loss of livelihood shall he give and he shall heal him” (Exodus 21:19). The phrase: “Then he that struck him is absolved,” is superfluous; <b>would it enter your mind</b> to say <b>that this</b> individual whom he struck <b>is walking in the marketplace, and that</b> individual who struck him <b>will be executed</b> as a murderer? <b>Rather, this</b> is referring to a case <b>where</b> the doctors <b>assessed</b> his condition, saying that it would lead <b>to death, and</b> his condition <b>eased</b> somewhat <b>from what it was</b> and he walked in the marketplace, <b>and thereafter</b> his condition <b>worsened and he died,</b> and the verse is teaching <b>that he is exempt.</b>
+
+### Part 2
+The Gemara asks: <b>And</b> as for <b>the Rabbis</b> who disagree with Rabbi Neḥemya and hold that he is liable in that case, <b>what do they interpret from that</b> phrase: <b>“Then he that struck him is absolved”?</b> The Gemara explains that according to the Rabbis, the verse <b>teaches that they incarcerate him</b> until the fate of the victim can be determined, and the phrase: “Then he that struck him is absolved,” means that he is freed from incarceration.
+
+### Part 3
+The Gemara asks: <b>And</b> as for <b>Rabbi Neḥemya, from where does he</b> derive the <i>halakha</i> of <b>incarceration?</b> The Gemara answers: <b>He derives it from</b> the incident of the wood <b>gatherer</b> in the wilderness with regard to whom it is written: “And they placed him under guard” (Numbers 15:34).
+
+### Part 4
+The Gemara challenges: <b>And the Rabbis too, let them derive</b> the <i>halakha</i> of incarceration <b>from</b> the incident of the wood <b>gatherer.</b> The Gemara explains: With regard to the wood <b>gatherer,</b> he was incarcerated because it was known from the outset that he <b>was liable to be killed, and Moses did not know with what</b> form of capital punishment <b>his death</b> would be implemented. This is <b>to the exclusion of this</b> individual who struck another, with regard to <b>whom we do not know if he is liable to be killed</b> or <b>if he is not liable to be killed.</b> Therefore, one cannot derive the <i>halakha</i> in this case from the case of the wood gatherer.
+
+### Part 5
+The Gemara asks: <b>And Rabbi Neḥemya,</b> from where does he derive the <i>halakha</i>? He too should not be able to derive the <i>halakha</i> from the case of the wood gatherer. The Gemara answers: Rabbi Neḥemya <b>derives</b> the <i>halakha</i> with regard to one who strikes another <b>from</b> the incident of <b>the blasphemer</b> (see Leviticus 24:12), where Moses <b>did not know if he was liable to be killed, and</b> he nevertheless <b>imprisoned</b> the blasphemer.
+
+### Part 6
+The Gemara asks: <b>And the Rabbis,</b> why don’t they derive the <i>halakha</i> from the incident of the blasphemer? The Gemara answers: The Rabbis hold that the case of the <b>blasphemer was a provisional edict.</b>
+
+### Part 7
+The difference between the uncertainty in the case of the wood gatherer and the uncertainty in the case of the blasphemer is <b>as it is taught</b> in a <i>baraita</i>: <b>Moses our teacher knew that the</b> wood <b>gatherer</b> was liable to be sentenced <b>to death, as it is stated:</b> “And you shall observe the Shabbat as it is sacred to you; <b>one who desecrates it shall be put to death”</b> (Exodus 31:14). <b>But he did not know with which death</b> penalty <b>he was</b> to be <b>killed, as it is stated:</b> “And they placed him under guard, <b>as it had not been declared</b> what should be done to him” (Numbers 15:34). <b>But</b> concerning the <b>blasphemer it is stated only:</b> “And they placed him under guard <b>that it might be declared to them according to the Lord”</b> (Leviticus 24:12), <b>as Moses did not know if</b> the blasphemer <b>was liable to be killed at all, or not.</b>
+
+### Part 8
+The Gemara asks: <b>Granted, according to Rabbi Neḥemya, that is</b> the reason <b>that two assessments are written.</b> It is written in one verse: “And if men quarrel and one strikes the other with a stone or with his fist, and he did not die but is bedridden” (Exodus 21:18), indicating that after the initial blow the victim is assessed to determine whether or not he is expected to die. In the following verse it is written: “If he rises and walks outside upon his staff, then he that struck him is absolved” (Exodus 21:19), indicating that there is an additional assessment to determine whether or not he fully recovers. <b>One verse</b> is where <b>they assessed</b> his condition, saying that it would lead <b>to death, and he recovered</b> fully; <b>and one verse</b> is where <b>they assessed</b> his condition, saying that it would lead <b>to death, and</b> his condition <b>eased from what it was</b> and he died thereafter. <b>But according to the Rabbis, why do I</b> need <b>two assessments?</b>
+
+### Part 9
+The Gemara answers: According to the Rabbis, <b>one</b> assessment is where <b>they assessed</b> his condition, saying that it would lead <b>to death and he recovered</b> fully, in which case the assailant is certainly not executed but pays compensation. <b>And one</b> assessment is where <b>they assessed</b> his condition, saying that it would lead <b>to life and he died,</b> in which case the assailant is also not executed but pays compensation.
+
+### Part 10
+The Gemara asks: <b>And Rabbi Neḥemya,</b> from where does he derive these two <i>halakhot</i>? The Gemara answers: He holds that in the case where <b>they assessed</b> his condition, saying that it would lead <b>to life, and he died, one does not need</b> an explicit <b>verse</b> to exempt the assailant from execution, <b>as he emerged from the court</b> after the first hearing <b>innocent</b> when they predicted that the victim would live, and the court does not rescind its initial ruling and convict him.
+
+### Part 11
+<b>The Sages taught:</b> In the case of <b>one who strikes another and they assessed</b> his condition, saying that it would lead <b>to death, and he recovered</b> fully, the court <b>exempts</b> the assailant. If <b>they assessed</b> his condition saying that it would lead <b>to death and</b> his condition <b>eased from what it was, they assess</b> the victim with <b>a second assessment to</b> determine the <b>monetary restitution</b> for damages. <b>And if thereafter</b> his medical condition <b>worsened and he died,</b> the <i>halakha</i> is: <b>Follow the assessment</b> that was assessed at <b>the intermediate</b> stage, which determined that the victim would live, and the assailant is not executed; this is <b>the statement of Rabbi Neḥemya. And the Rabbis say: There is no assessment after assessment.</b> The death of the victim proves that the assessment at the intermediate stage was erroneous, and the assailant is executed.
+
+### Part 12
+<b>It is taught</b> in <b>another</b> <i>baraita</i>: If <b>they assessed</b> his condition, saying that it would lead <b>to death,</b> and his condition improved, <b>they assess</b> his condition to determine whether it would lead <b>to life.</b> If <b>they assessed</b> his condition, saying that it would lead <b>to life,</b> and his condition deteriorated, <b>they do not</b> then <b>assess</b> his condition to determine whether it would lead <b>to death,</b> but the assailant is exempted based on the initial determination. If <b>they assessed</b> his condition, saying that it would lead <b>to death, and</b> his condition <b>eased from what it was, they assess</b> the victim with <b>a second assessment to</b> determine the <b>monetary restitution</b> for damages, as the assailant is certainly liable to pay restitution for the injury that he caused. <b>And if thereafter</b> his medical condition <b>worsened and he died,</b> the assailant <b>pays</b> restitution <b>to the heirs</b> for <b>injury and suffering</b> that he caused.
+
+### Part 13
+The Gemara asks: <b>From when</b> is the initial assessment of the value of the victim performed to determine the sum of the damages that the assailant <b>pays?</b> It is the assessment of his value <b>from the moment that</b> the assailant <b>struck him.</b> The Gemara notes: <b>And</b> this <b>unattributed</b> <i>baraita</i> <b>is in accordance with</b> the opinion of <b>Rabbi Neḥemya,</b> as according to the opinion of the Rabbis, he is liable to be executed even if there was a temporary improvement in his condition before he died.
+
+### Part 14
+<strong>MISHNA:</strong> If one <b>intended to kill an animal, and he killed a person</b> standing adjacent to it, or if he intended <b>to</b> kill <b>a gentile,</b> for whose murder he is not liable to be executed in court, <b>and he killed a Jew,</b> or if he intended <b>to</b> kill <b>non-viable newborns,</b> for whose murder one is not liable, <b>and he killed a viable person,</b> the assailant is <b>exempt</b> from execution, since his intent was to kill one for whose murder he is not liable.
+
+### Part 15
+If one <b>intended to strike</b> another <b>on his loins, and</b> the blow <b>was not</b> powerful <b>enough to kill him</b> if it were to land <b>on his loins, but</b> instead the blow landed <b>on</b> his chest over the victim’s <b>heart, and it was</b> powerful <b>enough to kill him</b> when it landed <b>on</b> his chest over <b>his heart, and</b> the victim <b>died</b> as a result of the blow, the assailant is <b>exempt</b> from execution, as he did not intend to strike the victim a blow that would cause his death. If <b>he intended to strike him on</b> his chest over <b>his heart</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

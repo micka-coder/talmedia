@@ -1,0 +1,39 @@
+
+### Part 1
+<b>But I,</b> Rabbi Yoḥanan, <b>said</b> what I said <b>in accordance with</b> the opinion of <b>Rabbi Yosei</b> that a priest who is a hermaphrodite enables his wife to eat <i>teruma</i>, and Rabbi Yosei himself maintains that even nowadays the <i>halakha</i> of <i>teruma</i> is in effect by Torah law. Accordingly, I argued that a hermaphrodite enables his wife to eat not only <i>teruma</i>, but even the breast and thigh of peace-offerings.
+
+### Part 2
+<b>As it is taught in</b> a <i>baraita</i> in the anthology called <b><i>Seder Olam</i>,</b> with regard to a verse that speaks of the Jewish people’s return to Eretz Yisrael following their exile: “And the Lord your God will bring you into the land <b>that your fathers inherited, and you shall inherit it”</b> (Deuteronomy 30:5). These two expressions of inheritance teach that <b>they had a first inheritance</b> of Eretz Yisrael in the days of Joshua <b>and a second</b> inheritance at the time of the return from the Babylonian exile. That is to say, since the sanctity of the land had lapsed when the First Temple was destroyed and the Jewish people exiled to Babylonia, a second sanctification was necessary when they returned to their land. <b>But they will not have a third</b> inheritance. In other words, it will never be necessary to sanctify the land for a third time, as the second sanctification was permanent.
+
+### Part 3
+<b>And Rabbi Yoḥanan said: Who</b> is the <i>tanna</i> who <b>taught <i>Seder Olam</i>?</b> It is <b>Rabbi Yosei.</b> Since Rabbi Yosei maintains that the second sanctification of Eretz Yisrael never lapsed even after the destruction of the Second Temple, he also holds that <i>teruma</i> nowadays is in effect by Torah law.
+
+### Part 4
+The Gemara raises another objection to Rabbi Yoḥanan’s opinion: <b>But</b> does <b>Rabbi Yoḥanan maintain</b> that <b>with regard to</b> a mixture containing an item that is forbidden <b>by rabbinic</b> law, <b>we do not require</b> the permitted portion of the mixture to be <b>greater</b> in quantity so that it can nullify the prohibited part? <b>Didn’t we learn</b> otherwise in a mishna (<i>Mikvaot</i> 7:2): With regard to <b>a ritual bath that contains exactly forty <i>se’a</i></b> of water, the minimal measure of a fit ritual bath, and <b>one added</b> to it <b>a <i>se’a</i></b> of liquid other than water, <b>and</b> then <b>removed</b> from it <b>a <i>se’a</i></b> of the mixture, the ritual bath remains <b>fit,</b> as the liquid that was added was nullified in the forty <i>se’a</i> of water, so that when one <i>se’a</i> of the mixture was removed there still remained the requisite forty <i>se’a</i> of fit water. <b>And Rabbi Yehuda bar Sheila said</b> that <b>Rabbi Asi said</b> that <b>Rabbi Yoḥanan said</b> that this <i>halakha</i> applies <b>up to the greater part</b> of the ritual bath.
+
+### Part 5
+The Gemara clarifies the opinion of Rabbi Yoḥanan: <b>What, is it not that its greater part must remain,</b> i.e., that most of the original forty <i>se’a</i> of water must remain in the ritual bath? In other words, up to nineteen <i>se’a</i> of other liquids may be added to the ritual bath, with an equal quantity of the mixture then removed from it, and these other liquids are nullified by the ritual bath water. But if twenty <i>se’a</i> are removed, so that fit water no longer constitutes the majority, the ritual bath is no longer fit for use. Since certain liquids are unfit for a ritual bath only by rabbinic law, this shows that even with respect to rabbinic prohibitions the permitted portion of a mixture must be greater in quantity, so that it can nullify the prohibited part. The Gemara refutes this proof: <b>No,</b> it means <b>that its greater part must not be removed,</b> but if the water and other liquids are present in equal proportion, the ritual bath remains fit.
+
+### Part 6
+<b>And if you wish, say</b> an alternative explanation of Rabbi Yoḥanan’s opinion: <b>It is different here,</b> with regard to the case of two baskets, one of which contains <i>teruma</i>, <b>since it may be said: As I say</b> that the <i>teruma</i> fell into the <i>teruma</i> and the non-sacred produce fell into the non-sacred produce, it is therefore assumed that that is what actually took place, and therefore the permitted portion need not be the greater part of the mixture.
+
+### Part 7
+§ <b>We learned</b> in the mishna: <b>A hermaphrodite may marry</b> a woman. This formulation indicates that he may do so <i>ab initio</i>, as he is considered a full-fledged male. Accordingly, a hermaphrodite who is a priest should enable his wife to eat the breast and thigh of peace-offerings, as is maintained by Rabbi Yoḥanan, and against the opinion of Reish Lakish. The Gemara rejects this argument and suggests that the text be emended: <b>Teach</b> in the mishna: <b>If he married.</b> That is to say, if he married a woman, the marriage is valid and a bill of divorce is required, as it is possible that he is a male. But even if he married, he does not enable his wife to eat <i>teruma</i>, as he may be a female.
+
+### Part 8
+The Gemara raises a difficulty: <b>But doesn’t</b> the mishna teach that <b>he may marry</b> a woman, which indicates that he may do so <i>ab initio</i>? The Gemara rejects this argument: <b>And according to your reasoning, what is</b> the meaning of the next clause: <b>But he may not be married</b> to a man? This teaching is certainly referring to a case after the fact, as, if he is a full-fledged male there would be no reason to say that he may not be married to a man <i>ab initio</i>. <b>Rather, what is</b> the meaning of: He may not <b>be married</b> to a man? It means that even <b>after the fact</b> the marriage is not valid. This being the case, when the mishna states that a hermaphrodite <b>may marry</b> a woman, it is <b>also</b> speaking <b>after the fact.</b>
+
+### Part 9
+It may be <b>said</b> in response: <b>No;</b> the words: <b>May marry, indicate</b> that a hermaphrodite may marry a woman <b><i>ab initio</i>,</b> whereas the words: <b>But he may not be married,</b> mean that his marriage to a man is <b>not</b> valid <b>even after the fact.</b> Accordingly, the difficulty raised against Reish Lakish remains.
+
+### Part 10
+The Gemara challenges this understanding: <b>But from</b> the fact <b>that</b> the mishna <b>teaches</b> in <b>the latter clause: Rabbi Eliezer says</b> that if a man had intercourse with <b>a hermaphrodite,</b> he <b>is liable to</b> receive the punishment of <b>stoning on his account as if</b> he had relations with <b>a male,</b> this proves <b>by inference that the first <i>tanna</i> is uncertain</b> as to whether or not a hermaphrodite is considered a full-fledged male, and this presents a difficulty to Rabbi Yoḥanan’s opinion.
+
+### Part 11
+The Gemara answers: No, it <b>is obvious both to this Master and to that Master</b> that a hermaphrodite is deemed a full-fledged male. The practical difference <b>between them</b> relates to the question of whether one is liable to receive the punishment of <b>stoning</b> for intercourse with him at only one place or <b>at two places. As one Sage,</b> the first <i>tanna</i>, <b>holds</b> that <b>one is liable to</b> be punished with <b>stoning on</b> a hermaphrodite’s <b>account</b> for intercourse <b>at two places,</b> whether he penetrated him anally, in the manner of homosexual intercourse, or through his female organ. Since the hermaphrodite is deemed a male, one is liable to be punished with stoning for intercourse at either place. <b>And one Sage,</b> Rabbi Eliezer, <b>holds</b> that one is liable to be punished with stoning for relations with a hermaphrodite only if he penetrated him anally, <b>as if</b> he were <b>a male.</b>
+
+### Part 12
+<b>Rav said:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

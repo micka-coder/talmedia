@@ -1,0 +1,33 @@
+
+### Part 1
+<b>and</b> this is <b>a conclusive refutation</b> of the statement <b>of Rav Huna.</b>
+
+### Part 2
+The Gemara answers: <b>No, actually</b> the case is where he said: <b>I am hereby a nazirite today, I am hereby</b> a nazirite <b>tomorrow. And what</b> is the meaning of the statement: The second term of naziriteship <b>is counted for him</b> instead of the first? It is counted <b>except for that additional day,</b> which he still must observe. <b>Alternatively,</b> it may be a case <b>where he accepted</b> upon himself <b>two</b> periods of <b>naziriteship simultaneously,</b> i.e., he said: I am hereby a nazirite twice. Therefore, when the vow with regard to the first term of naziriteship is dissolved, the days he observed count entirely for his second term.
+
+### Part 3
+<b>Rav Hamnuna raised</b> an additional <b>objection</b> against the opinion of Rav Huna from a <i>baraita</i>. It is stated in the verse: <b>“A nazirite, to consecrate [<i>nazir lehazzir</i>]”</b> (Numbers 6:2). <b>From</b> the use of similar, repetitive wording in the verse <b>here</b> it is derived <b>that naziriteship takes effect upon</b> a prior vow of <b>naziriteship. As</b> one <b>might</b> have thought that it could be derived through an <i>a fortiori</i> <b>inference</b> that naziriteship does not take effect, as follows: <b>And just as</b> with regard to <b>an oath,</b> which is more <b>stringent, an oath does not take effect upon</b> a prior <b>oath,</b> with regard to <b>naziriteship,</b> which is more <b>lenient, all the more so</b> is it <b>not</b> clear that it does not take effect where a vow of naziriteship was already in effect? Therefore, <b>the verse states: “<i>Nazir lehazzir</i>.” From here</b> it is derived <b>that naziriteship takes effect upon</b> a prior vow of <b>naziriteship.</b>
+
+### Part 4
+<b>What are the circumstances? If we say</b> it is a case <b>where</b> one <b>said: I am hereby a nazirite today, I am hereby a nazirite tomorrow, does that</b> case <b>require</b> proof from <b>a verse</b> that it takes effect? It is obvious that the second vow of naziriteship takes effect at least on the additional day. And as the minimum term of naziriteship is thirty days, an additional thirty days must be observed. <b>Rather, is it not</b> a case <b>where</b> one <b>said: I am a nazirite today, I am a nazirite today? And</b> the <i>baraita</i> <b>teaches</b> that in this case as well, <b>naziriteship takes effect upon</b> a prior vow of <b>naziriteship,</b> contrary to the opinion of Rav Huna.
+
+### Part 5
+The Gemara answers: That is <b>not</b> the case. Rather, <b>with what are we dealing here?</b> We are dealing with a case <b>where he accepted upon himself two</b> terms of <b>naziriteship simultaneously.</b> The <i>baraita</i> teaches that he must observe two terms of naziriteship and bring a separate offering for each.
+
+### Part 6
+The <i>baraita</i> stated that an oath is more stringent than a vow. The Gemara asks: <b>And what is the stringency of an oath vis-à-vis a vow,</b> such as a vow of naziriteship? <b>If we say</b> the <i>baraita</i> posits this <b>because</b> an oath, unlike a vow, <b>takes effect even with regard to a matter that has no actual</b> substance, there is a counterargument that <b>a vow also has stringency</b> vis-à-vis an oath, <b>in that it,</b> unlike an oath, <b>takes effect with regard to a mitzva just as</b> it does with regard to a matter that is <b>permitted. Rather,</b> oaths are more stringent <b>because it is written with regard to an oath: “The Lord will not hold guiltless</b> he who takes His name in vain” (Exodus 20:6).
+
+### Part 7
+§ It is taught in the mishna that if one said: I hereby take <b>an oath that I will not eat,</b> I hereby take <b>an oath that I will not eat, and he</b> then <b>ate, he is liable</b> to bring an offering for <b>only one</b> violation of an oath. <b>Rava said: If he requested</b> and received dissolution from a halakhic authority <b>for the first</b> oath, <b>the second</b> oath <b>takes effect upon him. From where</b> is this derived? <b>From</b> the fact <b>that it is not taught</b> in the mishna that <b>there is only one,</b> i.e., it is as though he took only one oath as the oaths are identical. <b>Rather, it is taught</b> that <b>he is liable for only one.</b> Evidently, he is not liable for the second oath only because it <b>does not have a span</b> of time in which to take effect, as he is already under oath not to eat. However, <b>when he requests</b> dissolution of <b>the other</b> oath, i.e. the first oath, the second oath has a span of time in which to take effect, and <b>takes effect.</b>
+
+### Part 8
+<b>Another version</b> of Rava’s proof from the mishna is that it may be inferred from the statement: He is liable for only one, that although <b>there is no liability</b> to bring an offering for violating the second oath, <b>there is</b> an effective <b>oath.</b> But if there is no liability, then <b>with regard to what <i>halakha</i></b> is it effective? Certainly it is effective <b>with regard to</b> the statement <b>of Rava, as Rava said: If he requested</b> and received dissolution from a halakhic authority <b>for the first</b> oath, <b>the second is counted for him in its place.</b>
+
+### Part 9
+The Gemara proposes: <b>Let us say</b> that the following mishna (<i>Shevuot</i> 27b) <b>supports his</b> opinion: In the case of <b>one who took two</b> vows of <b>naziriteship, and counted the first</b> term, <b>and set aside an offering, and requested</b> and received dissolution from a halakhic authority <b>for</b> the first oath, <b>the second</b> term <b>counts for him instead of the first.</b> Evidently, although initially the second term of naziriteship did not have a span of time in which to take effect, it was not completely void. Therefore, when the first vow was dissolved, the second one immediately took its place. It may be proved from here that this is true with regard to oaths as well.
+
+### Part 10
+The Gemara refutes this proof: That mishna may be referring to a case <b>where he accepted upon himself two</b> terms of <b>naziriteship simultaneously.</b> Since two terms cannot be observed concurrently, when he accepts two terms simultaneously, the <i>halakha</i> is that the second term commences immediately following the close of the first, which immediately took effect upon sequential periods of time. However, when one takes an oath prohibiting himself from a matter that is already prohibited by an oath in the same period of time, the second oath may not take effect at all.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

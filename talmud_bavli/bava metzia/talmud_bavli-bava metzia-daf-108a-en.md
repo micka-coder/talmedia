@@ -1,0 +1,48 @@
+
+### Part 1
+<b>and if not, they will be unable to walk,</b> but will have to cross over to the other side of the river. Therefore, no advantage exists to cutting down the trees that block part of the river.
+
+### Part 2
+The Gemara cites a related incident: <b>Rabba bar Rav Naḥman was going on a boat</b> and <b>saw a certain forest that</b> was <b>located</b> right <b>on the riverbank,</b> as its trees had not been cut down to make room for the pullers. <b>He said to</b> those who were with him: <b>To whom</b> does this forest belong? <b>They said to him:</b> It belongs <b>to Rabba bar Rav Huna.</b> Rabba bar Rav Naḥman <b>said:</b> This is reminiscent of the verse: <b>“And the hand of the princes and the rulers has been first in this faithlessness”</b> (Ezra 9:2), because a renowned scholar is acting improperly. Rabba bar Rav Naḥman <b>said to them: Cut down, cut down</b> to clear a path.
+
+### Part 3
+<b>Rabba bar Rav Huna arrived</b> and <b>found that</b> his forest had been <b>cut down.</b> Since he was within his rights not to cut down his trees, as explained above, he grew angry and <b>pronounced</b> a curse: He <b>who cut down</b> this forest <b>should</b> have <b>his branches cut down.</b> The Sages <b>said:</b> Although he was unaware of the identity of the perpetrator, the Sage’s curse was nevertheless fulfilled, and consequently <b>all the</b> remaining <b>years that Rabba bar Rav Huna</b> was alive, <b>the seed of Rabba bar Rav Naḥman did not last,</b> as his children, his branches, died in his lifetime.
+
+### Part 4
+<b>Rav Yehuda says: All</b> participate in the payment <b>for the construction of the</b> city <b>wall, and</b> this sum is collected <b>even from orphans, but not</b> from <b>the Torah scholars. What is the reason</b> for this? <b>The Torah scholars do not require protection,</b> as the merit of their Torah study protects them from harm. By contrast, money is collected <b>for the digging of</b> a river or <b>a well</b> for drinking water, <b>even from the Torah scholars.</b>
+
+### Part 5
+The Gemara adds: <b>And we said</b> this <i>halakha</i> <b>only if</b> the town inhabitants do <b>not go out in a crowd</b> to perform the work themselves but pay workers to act on their behalf. <b>But</b> if they go out <b>in a crowd,</b> Torah scholars do <b>not</b> have to join them, <b>as Torah scholars are not</b> among those <b>who go out in a crowd</b> to perform work in public view.
+
+### Part 6
+<b>Rav Yehuda says: With regard to the digging of a river,</b> i.e., the periodic deepening of a riverbed to prevent it from blocking up, <b>the lower ones,</b> i.e., those who live by the bottom of the river, must <b>assist the upper ones</b> in digging it and fixing it, as those located at the bottom of the river stand to gain from any work performed down to their houses. But <b>the upper ones do not</b> need to <b>assist the lower ones,</b> as the reverse is not the case. <b>And the opposite</b> is true <b>with regard to</b> the digging of a ditch to remove <b>rainwater.</b> In that case, those who live higher up are interested in the operation and therefore must help the lower ones, but the latter need not aid the higher ones in doing so in the upper area.
+
+### Part 7
+The Gemara comments: <b>This is also taught</b> in a <i>baraita</i>: If there were <b>five gardens that draw</b> their <b>water</b> requirements <b>from one spring and the spring became damaged, all</b> must help <b>fix</b> it <b>with</b> the owner of <b>the upper</b> garden, near whose garden the damage occurred. As a <b>result</b> of this ruling, the owner of <b>the lower</b> garden <b>fixes</b> it <b>with all of them</b> in the above case, <b>and fixes it for himself</b> if the damage occurred in the lower area. <b>And similarly,</b> if there were <b>five courtyards that would run off water into a single sewer and the sewer became damaged, all</b> must help <b>fix</b> it <b>with</b> the owner of <b>the lower</b> courtyard, near whose courtyard the damage occurred. The <b>result</b> is that the owner of <b>the upper</b> courtyard <b>fixes</b> the sewer <b>with all of them and fixes it for himself</b> if the damage affected his courtyard alone. This is in accordance with Rav Yehuda’s ruling.
+
+### Part 8
+<b>Shmuel says: One who takes possession of</b> an open space left along <b>a riverbank</b> for the purpose of loading and unloading in order to plow and plant there during the time that it is temporarily unused <b>is impudent.</b> As for <b>removing</b> him, <b>we do not remove him,</b> as this piece of land is considered ownerless. <b>And nowadays, when the Persians write</b> to one who acquires land alongside a river: <b>Acquire for yourself</b> the field <b>up to</b> the portion of the river itself where <b>the water reaches a horse’s neck, we even</b> go as far as to <b>remove him</b> from the plot of land, as it belongs to the owner of the field.
+
+### Part 9
+<b>Rav Yehuda says</b> that <b>Rav says: One who takes possession</b> of land that is located <b>between</b> the land of <b>brothers or between</b> the land of <b>partners</b> and causes them trouble <b>is impudent.</b> As for <b>removing</b> him, <b>we do not remove him,</b> as they have no real claim against him. <b>And Rav Naḥman said: We even</b> go as far as to <b>remove</b> him, as one should not do anything that harms another. <b>And if</b> the complaint against him is <b>due to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, as they owned fields bordering on this one, <b>we do not remove him.</b>
+
+### Part 10
+The Sages <b>of Neharde’a say: Even</b> if his claim was <b>due to the <i>halakha</i> of one</b> whose field <b>borders</b> the field of his neighbor, <b>we</b> still <b>remove him, as it is stated: “And you shall do that which is right and good in the eyes of the Lord”</b> (Deuteronomy 6:18). One should not perform an action that is not right and good, even if he is legally entitled to do so.
+
+### Part 11
+With the above <i>halakhot</i> in mind, the Gemara asks: If the stranger <b>came to consult with</b> one of the owners of the fields, and <b>said to him:</b> Shall <b>I go</b> and <b>acquire</b> the field, <b>and</b> the latter <b>said to him, go</b> and <b>acquire</b> it, as I will raise no objection, is it <b>necessary to</b> perform an act of <b>acquisition with him</b> to solidify the agreement? <b>Or</b> perhaps his mere promise is sufficient and it is <b>not</b> necessary? <b>Ravina said:</b> It is <b>not necessary to</b> perform an act of <b>acquisition with him,</b> while the Sages <b>of Neharde’a say:</b> It is <b>necessary to</b> perform an act of <b>acquisition with him.</b> The Gemara concludes: <b>And the <i>halakha</i></b> is that it is <b>necessary to</b> perform an act of <b>acquisition with him.</b>
+
+### Part 12
+The Gemara adds: <b>Now that you have said</b> that it is <b>necessary to</b> perform an act of <b>acquisition with</b> the neighbor for the right to purchase the field, <b>if he did not</b> perform an act of <b>acquisition with him</b> and purchased the field, and the field <b>increased or decreased</b> in value, the price fluctuation occurs <b>in the domain of</b> the owner of the bordering field. The buyer’s purchase is considered a purchase on behalf of the neighbor, who then reimburses the buyer.
+
+### Part 13
+Accordingly, if this buyer <b>bought</b> it <b>for one hundred</b> dinars <b>and</b> the field <b>was worth two hundred</b> dinars, in order to determine how much money the neighbor must give him, <b>we determine</b> why the owner sold the field to the buyer at this price: <b>If he sells to everyone</b> at that <b>cheap</b> price, the neighbor <b>gives</b> the buyer <b>one hundred</b> dinars <b>and takes it,</b> as the neighbor could have bought it for this sum himself. <b>But if</b> the owner does <b>not</b> sell to everyone at this price and this buyer was given a discount, the neighbor <b>gives</b> the buyer <b>two hundred</b> dinars, the market value of the field, <b>and takes it.</b>
+
+### Part 14
+In the converse case, if <b>he bought</b> it <b>for two hundred</b> dinars <b>and</b> the field was <b>worth one hundred</b> dinars, the Sages <b>understood</b> that the neighbor <b>can say to</b> the buyer: <b>I sent you</b> to act <b>for my benefit, but not</b> to act <b>to my detriment.</b> Since the field will not remain in your possession, you are effectively my agent, and I am not prepared to pay more than its market value due to your mistake. <b>Mar the Elder, son of Rav Ḥisda, said to Rav Ashi: This</b> is what the Sages <b>of Neharde’a say in the name of Rav Naḥman: There is no exploitation with regard to real estate,</b> as land has no fixed value, and therefore it cannot be said that the buyer overpaid, and he is given whatever sum he spent.
+
+### Part 15
+The Gemara discusses a related case: If one <b>sold to</b> another <b>a <i>beit se’a</i> of land in the middle of his property</b> so that the buyer is surrounded on all sides by the seller’s fields, <b>we see</b> what type of land it is: <b>Whether</b> the land <b>is superior-quality</b> land <b>or whether</b> it <b>is inferior-quality</b> land, <b>his sale</b> is a valid <b>sale,</b> as it is a distinctive piece of land. In that case, the seller’s neighbors cannot object, as their fields do not actually border on this plot.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

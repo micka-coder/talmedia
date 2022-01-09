@@ -1,0 +1,48 @@
+
+### Partie 1
+Quand <b>il trouve des gros, il les prend</b> et quand il trouve des <b>petits, il les prend</b> egalement. Ici aussi, bien que la premiere explication de Rabbi Eliezer soit suffisante, il ajoute une reponse supplementaire, malgre le fait qu'elle ne soit pas aussi bonne que la premiere.
+
+### Partie 2
+En revanche, <b>Rav Tavyumei a dit au nom de Rava</b> que <b>il lui a d'abord dit</b> l'explication impliquant un temoignage non concluant affirmant que le bœuf <b>a tue, </b> puisque cela est <b>analogue a un pecheur tirant des poissons de la mer,</b> qui <b>trouve des petits</b> et les <b>prend</b>, et lorsqu'il <b>trouve ensuite des gros, il ecarte les petits et ne prend</b> que <b>les gros. </b> Ici aussi, une fois que Rabbi Eliezer a pense a une meilleure reponse a la question de Rabbi Akiva, il l'a proposee a la place de la premiere.
+
+### Partie 3
+§ <b>Il est enseigne</b> dans <b>un autre</b> <i>baraita</i> a propos du verset : <b>"Le proprietaire du bœuf sera clair,"</b> que <b>Rabbi Yosei HaGelili dit :</b> Cela signifie qu'il sera <b>clair de</b> payer une <b>indemnite pour <b>la progeniture fausse-couche.</b> En d'autres termes, si un bœuf inoffensif provoque une fausse-couche chez une femme, le proprietaire n'est pas tenu de payer la moitie de l'indemnite pour la progeniture fausse-couche.
+
+### Partie 4
+<b>Rabbi Akiva lui dit :</b> Il est inutile que le verset enseigne cela. <b>Ne dit-il pas</b> en ce qui concerne le versement d'une indemnite pour la progeniture victime d'une fausse couche : <b>"Si des hommes se debattent et blessent une</b> <b>femme enceinte</b> et que sa progeniture emerge, et qu'il n'y a pas de drame, il sera puni comme le mari de la femme le lui imposera et il donnera ce que les juges determineront" (Exode 21 : 22) ; d'ou l'on deduit que les <b>hommes</b> qui provoquent la fausse couche d'une femme sont tenus de payer une indemnite pour la progeniture, <b>mais</b> le proprietaire de <b>bœufs</b> qui provoquent la fausse couche d'une femme n'est <b>pas</b> responsable ?
+
+### Partie 5
+La Guemara commente : <b>Rabbi Akiva dit bien;</b> il enonce une objection raisonnable. Que lui aurait repondu Rabbi Yosei HaGelili ?
+
+### Partie 6
+<b>Rav Ulla, fils de Rav Idi, a dit : Il etait necessaire</b> que le verset enseigne cette exemption, car sinon il pourrait <b>entrer dans votre esprit de dire</b> que cette deduction doit etre limitee, comme suit : <b>Les hommes</b> sont tenus de payer une indemnite pour la progeniture fausse, <b>mais</b> le proprietaire de <b>bœufs comparables aux hommes</b> n'est <b>pas</b> tenu. Seuls certains bœufs sont exclus de cette <i>halakha</i>. <b>De meme que les hommes sont</b> categoriquement consideres comme <b>prevenus, de meme</b> les <b>bœufs,</b> qui sont opposes aux hommes dans ce cas, <b>sont</b> consideres comme <b>prevenus</b> egalement. <b>Mais</b> dans le cas d'une fausse couche causee par <b>un bœuf inoffensif</b>, son proprietaire <b>serait tenu</b> de verser une indemnite pour la progeniture fausse couche. Par consequent, <b>Le Misericordieux a ecrit</b> a propos d'un bœuf inoffensif : <b>"Le proprietaire du bœuf sera clair,</b> pour nous enseigner <b>que</b> il est <b>exempte</b> de toute responsabilite.
+
+### Partie 7
+<b>Rava dit,</b> en objection a cette reponse : <b>L'autochtone est sur le sol et l'etranger est dans les cieux !</b> La suggestion susmentionnee contredit le principe selon lequel la <i>halakha</i> d'un bœuf prevenu est plus stricte que celle d'un bœuf inoffensif.
+
+### Partie 8
+<b>Rava dit plutot</b> une autre facon pour Rabbi Yosei HaGelili de contrer l'objection de Rabbi Akiva : <b>Il etait necessaire</b> que le verset enseigne cette exemption, car sinon il pourrait <b>entrer dans votre esprit de dire</b> que seuls les <b>hommes</b> sont tenus de payer pour une progeniture fausse-couche, <b>mais</b> le proprietaire de <b>bœufs comparables aux hommes</b> n'est <b>pas</b> responsable. <b>De meme que les hommes sont</b> categoriquement consideres comme <b>prevenus, de meme</b> les <b>bœufs,</b> qui sont opposes aux hommes dans ce cas, <b>sont</b> consideres comme <b>prevenus</b> egalement. <b>Et pour</b> les fausses couches causees par des <b>bœufsinnocents,</b> leurs proprietaires <b>sont</b> egalement <b>exemptes</b> en raison d'une <b><i>a fortiori</i></b> deduction. <b>Le Misericordieux a alors ecrit</b> que <b>le proprietaire du <b>bœuf inoffensif</b> sera clair,</b> indiquant que ce n'est que pour <b>un bœuf inoffensif</b> que l'on est <b>exempte</b> de payer une indemnite pour progeniture fausse-couche, <b>mais</b> pour <b>un bœuf prevenu</b> le proprietaire est <b>responsable.</b>
+
+### Partie 9
+<b>Abaye lui dit : Si c'est ainsi,</b> alors <b>en ce qui concerne</b> l'indemnisation pour <b>l'humiliation,</b> qui decoule du verset : "Lorsque des hommes luttent ensemble, un homme et son frere, et que la femme de l'un d'eux s'approche pour delivrer son mari de la main de celui qui le frappe, elle etend sa main et saisit ses parties genitales" (Deuteronome 25:11), <b>disons aussi ceci :</b> Seuls les <b>hommes</b> sont tenus de payer pour l'humiliation, <b>mais</b> le proprietaire de <b>bœufs comparables aux hommes</b> n'est <b>pas</b> tenu. <b>De meme que les hommes sont</b> categoriquement consideres comme <b>prevenus, de meme</b> les <b>bœufs,</b> qui sont opposes aux hommes dans ce cas, <b>sont</b> consideres comme <b>prevenus</b> egalement. <b>Et pour</b> l'humiliation causee par des <b>bœufsinnocents,</b> leurs proprietaires <b>sont</b> egalement <b>exemptes</b> en raison d'une <b><i>a fortiori</i></b> deduction. <b>Le Misericordieux a alors ecrit</b> que <b>le proprietaire du <b>bœuf inoffensif</b> sera clair,</b> indiquant que c'est seulement pour <b>un bœuf inoffensif</b> que l'on est <b>exempte</b> de payer une indemnite pour l'humiliation, <b>mais</b> pour <b>un bœuf prevenu</b> le proprietaire est <b>responsable.</b>
+
+### Partie 10
+<b>Et si vous voulez dire</b> que <b>en effet</b> c'est la <i>halakha</i> selon Rabbi Yosei HaGelili, <b>si c'est le cas, laissez</b> la <i>baraita</i> <b>enseigner</b> qu'en ce qui concerne le verset : <b>"Le proprietaire du bœuf sera clair", Rabbi Yosei HaGelili dit : il est exempte</b> a la fois de <b>l'obligation de payer une <b>compensation pour</b> une fausse progeniture et de</b> payer une compensation pour <b>l'humiliation.</b>
+
+### Partie 11
+Rava a ensuite retracte cette explication de l'avis de Rabbi Yosei HaGelili. <b>Abaye et Rava disent tous deux</b> que la deduction de Rabbi Akiva est correcte, selon Rabbi Yosei HaGelili, mais en ce qui concerne la suite du verset : "Mais si un malheur s"?ensuit, tu donneras vie pour vie" (Exode 21:22). En ce qui concerne les <b>hommes,</b> si <b>il n'y a pas de prejudice</b> cause <b>a la femme,</b> c'est-a-dire qu'elle n'est pas tuee, <b>ils seront punis</b> financierement et sont tenus de payer une compensation pour la progeniture avortee. Mais si <b>il y a un prejudice</b> cause <b>a la femme</b> et qu'elle meurt, <b>ils ne seront pas punis</b> financierement, car ils sont susceptibles de recevoir la peine capitale imposee par le tribunal. Cette distinction ne s'applique qu'a l'egard des hommes <b>mais pas</b> a l'egard des <b>bœufs, car meme si un prejudice</b> est cause a la femme, les proprietaires <b>seront punis</b> financierement. Afin d'exclure cette deduction, <b>Le Misericordieux a alors ecrit : "Le proprietaire du bœuf sera degage,"</b> pour enseigner <b>que</b> il est <b>exempte</b> de payer une compensation pour la progeniture fausse-couche.
+
+### Partie 12
+<b>Rav Adda bar Ahava s'oppose a cela : Est-ce a dire</b> que <b>la question</b> de la responsabilite financiere <b>depend</b> de l'existence ou non d'un <b>prejudice</b> cause a la femme ? De toute evidence, <b>la question depend de l'intention</b> de frapper la femme.
+
+### Partie 13
+<b>Au contraire, Rav Adda bar Ahava a dit</b> une deduction differente : En ce qui concerne les <b>hommes,</b> dans un cas <b>ou ils avaient l'intention</b> de se frapper mutuellement, meme s'il y a un prejudice</b> cause <b>a la femme,</b> c'est-a-dire qu'elle meurt, <b>ils seront punis</b> financierement, et sont tenus de payer une compensation pour la progeniture avortee. Mais <b>quand ils avaient l'intention</b> de frapper <b>la femme elle-meme, ils ne seront pas punis</b> financierement, car ils sont susceptibles de recevoir la peine capitale imposee par le tribunal. <b>Mais</b> cette distinction ne s'applique <b>pas</b> en ce qui concerne les <b>bœufs, car meme s'ils avaient l'intention</b> de frapper <b>la femme elle-meme,</b> leurs proprietaires <b>seront punis.</b> Afin d'empecher cette deduction, <b>le Misericordieux a ecrit : "Le proprietaire du bœuf sera degage,"</b> pour enseigner <b>que</b> les proprietaires sont <b>exemptes</b> de payer une compensation pour la progeniture fausse-couche.
+
+### Partie 14
+<b>Et de meme, lorsque Rav Haggai est venu du Sud, il est venu et a apporte une <i>baraita</i> dans sa main</b> qui interprete le verset <b>conformement</b> a l'explication <b>de Rav Adda bar Ahava.</b>
+
+### Partie 15
+§ <b>Il est enseigne</b> dans <b>un autre</b> <i>baraita</i> a propos du verset <b>"?le proprietaire du bœuf sera clair"</b> que <b>Rabbi Akiva dit : </b> Cette declaration enseigne que si un bœuf inoffensif tue un esclave cananeen, son proprietaire sera <b>clair</b> de payer une <b>compensation pour l'esclave,</b> contrairement au cas d'un bœuf averti qui a tue un esclave cananeen, ou le proprietaire du bœuf est responsable.
+
+>Crédit : William Davidson Edition
+>Licence : CC-BY-NC

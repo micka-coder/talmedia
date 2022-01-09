@@ -1,0 +1,72 @@
+
+### Part 1
+<b>as Rabbi Zakkai taught</b> the following <i>baraita</i> <b>before Rabbi Yoḥanan:</b> That which is stated with regard to a High Priest: <b>“But a virgin of his own people shall he take to wife”</b> (Leviticus 21:14), comes <b>to include an established female convert,</b> one who was a convert from birth, i.e., who was born to a father and mother who converted after their marriage but prior to her birth, and this indicates <b>that she is fit</b> to marry <b>into the priesthood. And</b> Rabbi Yoḥanan <b>said to him: I teach</b> that the words <b>“his own people”</b> and the more inclusive phrase <b>“of his own people”</b> come <b>to include a virgin who comes from two peoples,</b> from a union of converts hailing from two different peoples, <b>and you say</b> only <b>an established female convert and no more?</b>
+
+### Part 2
+The Gemara asks: <b>What</b> are these <b>two peoples? If we say</b> this is referring to <b>an Ammonite</b> man <b>who married an Ammonite woman, and what is</b> the meaning of <b>“from two peoples,”</b> that they are legally considered like two separate peoples, <b>as</b> their <b>males are prohibited</b> from entering into the congregation, <b>whereas</b> their <b>females are permitted</b> to do so, there is a difficulty. In that case, <b>this is</b> the same as <b>an established female convert,</b> as the daughter of such a union is a proper convert in all regards. <b>Rather,</b> it must refer <b>to an Ammonite</b> man <b>who married the daughter of a Jew,</b> as they belong to two separate peoples.
+
+### Part 3
+<b>And there are</b> those <b>who say</b> an alternative version of this discussion. Rabbi Yoḥanan <b>said to Rabbi Zakkai: I teach</b> that the words <b>“his own people”</b> and the more inclusive phrase <b>“from his own people”</b> come <b>to include a virgin who comes from two peoples,</b> i.e., whose mother was Jewish from birth and whose father was a convert, <b>and</b> that convert is <b>from a people that</b> itself <b>consists of two peoples,</b> i.e., an Ammonite or a Moabite, who hail from peoples whose males are prohibited from entering into the congregation, while it is permitted for their females to do so, <b>and you say</b> only <b>an established female convert and no more?</b>
+
+### Part 4
+The Gemara asks: <b>And according to this</b> second <b>version, from where</b> does Rabbi Yoḥanan derive that <b>the daughter of a second-</b>generation <b>Egyptian</b> convert who had entered into a forbidden marriage with a woman of Jewish birth <b>is fit</b> to marry <b>into the priesthood,</b> as with respect to Egyptian converts, there is no difference between males and females? <b>And if you would say that he derives</b> this <b>from</b> the case of <b>an Ammonite</b> convert <b>who married</b> the <b>daughter of a Jew,</b> the following difficulty arises: <b>What</b> comparison can be made to <b>an Ammonite</b> convert <b>who married</b> the <b>daughter of a Jew</b> and had a daughter, who is permitted to enter the congregation although she is an Ammonite, <b>as female</b> Ammonite converts <b>are</b> entirely <b>permitted?</b> Perhaps for this reason it is permitted for the daughter to marry into the priesthood as well. Can one say the same with regard to the daughter of a second-generation Egyptian convert who had entered into a forbidden marriage with a woman of Jewish birth, when it is prohibited for female Egyptian converts, like their male counterparts, to enter into the congregation until the third generation?
+
+### Part 5
+The Gemara responds: <b>Let</b> the case of <b>a second-</b>generation <b>male Egyptian</b> convert <b>who married a second-</b>generation <b>female Egyptian</b> convert <b>prove</b> that this is not relevant, as it is permitted for their daughter, a third-generation Egyptian convert, to enter the congregation, even though she belongs to the Egyptian people, whose female converts are prohibited in the same manner as their male converts.
+
+### Part 6
+The Gemara refutes this proof: <b>What</b> comparison can be made to <b>a second-</b>generation <b>male Egyptian</b> convert <b>who married a second-</b>generation <b>female Egyptian</b> convert, seeing <b>that his intercourse does not involve a transgression,</b> as it is permitted for him to marry her? Can one say the same with regard to a second-generation Egyptian convert who entered into a forbidden marriage with the daughter of a Jew?
+
+### Part 7
+This leads back to the first proof: <b>Let an Ammonite</b> man <b>who married the daughter of a Jew prove</b> that this is not irrelevant, as they too entered into a forbidden union, and yet it is permitted for the daughter of that marriage to marry into the priesthood. <b>And the derivation has reverted</b> to its starting point, and the discussion can go back and forth. The two cases differ in their particular aspects, but their common denominator is that it is permitted for the daughter to marry into the priesthood. So too, it is permitted for the daughter of a second-generation Egyptian convert who married a woman who was born Jewish to marry into the priesthood.
+
+### Part 8
+<b>Rav Yosef said: This is what I heard Rav Yehuda say</b> in his lecture about the phrases <b>“his own people”</b> and <b>“from his own people,” and</b> at the time <b>I did not know what he was saying.</b> Now I understand that he was saying that it is permitted for the daughter of an Ammonite convert who married a Jewish woman to marry into the priesthood, as taught by Rabbi Yoḥanan.
+
+### Part 9
+<b>When Rav Shmuel bar Yehuda came</b> from Eretz Yisrael to Babylonia, <b>he said</b> that Rabbi Zakkai <b>taught before</b> Rabbi Yoḥanan <b>as follows: An Ammonite woman is fit, her son from an Ammonite is unfit, and her daughter from an Ammonite is fit. In what</b> case <b>is this statement said?</b> It is said <b>with regard to an Ammonite</b> man <b>and an Ammonite woman who converted, but her daughter from an Ammonite</b> who did not convert <b>is unfit.</b>
+
+### Part 10
+Rabbi Yoḥanan <b>said to him: Go out</b> and <b>teach</b> it <b>outside,</b> i.e., this <i>baraita</i> is not in accordance with the accepted <i>halakha</i>, and therefore it should not be made part of the regular learning in the study hall. <b>What you said,</b> that <b>an Ammonite woman is fit,</b> is well known and need not be taught because it is just another way of saying that <b>a male Ammonite</b> is barred from entering the congregation <b>but not a female Ammonite.</b> As for the teaching that <b>her son from an Ammonite is unfit,</b> this too is unnecessary, <b>as he is an Ammonite.</b>
+
+### Part 11
+But that which you said: <b>Her daughter from an Ammonite is fit, with regard to what</b> issue did you teach this? <b>If we say</b> that she is fit <b>to enter into the congregation,</b> this too is redundant: <b>Now</b> that it was taught that even <b>her mother is fit</b> to enter the congregation, is it <b>necessary</b> to say that <b>she</b> herself, the daughter, is fit to do so? <b>Rather,</b> you must mean to say that she is fit to marry <b>into the priesthood.</b>
+
+### Part 12
+The <i>baraita</i> continues: <b>In what</b> case <b>is this statement said?</b> It is said <b>with regard to an Ammonite</b> man <b>and an Ammonite woman who converted, but her daughter from an Ammonite</b> man <b>is unfit. What is</b> meant here by <b>her daughter from an Ammonite? If we say</b> it means <b>an Ammonite</b> man <b>who married an Ammonite woman,</b> and they converted prior to the birth of their daughter, <b>this is an established female convert,</b> who was previously declared fit to marry into the priesthood. <b>Rather,</b> it must mean <b>an Ammonite</b> convert <b>who</b> unlawfully <b>married the daughter of a Jew,</b> and according to what is stated here, their daughter is unfit to marry a priest. Rabbi Yoḥanan, however, ruled that such a woman is fit, and therefore <b>he said to</b> Rabbi Zakkai: <b>Go out</b> and <b>teach</b> it <b>outside,</b> as this <i>baraita</i> is unreliable.
+
+### Part 13
+It is taught in the mishna that <b>Egyptian and Edomite</b> converts <b>are prohibited</b> from entering into the congregation <b>only</b> for three generations, both males and females, while Rabbi Shimon permits females immediately based on the following <i>a fortiori</i> inference. If regarding Ammonites and Moabites, where the Torah prohibited the males with an eternal prohibition, it permitted the females immediately, then regarding Egyptians and Edomites, where it prohibited the males for only three generations, the females should certainly be permitted immediately. Rabbi Shimon’s colleagues informed him that there is a refutation of his argument. The Gemara asks: <b>What</b> is this <b>refutation</b> mentioned by the mishna?
+
+### Part 14
+<b>Rabba bar bar Ḥana said</b> that <b>Rabbi Yoḥanan said:</b> It is <b>because it may be said</b> that <b>those with whom relations are forbidden,</b> i.e., incestuous relationships, <b>prove</b> that the above-mentioned factor is irrelevant, <b>as</b> the Torah <b>prohibits them only for</b> up to <b>three generations,</b> i.e., up to his granddaughter, and yet it prohibits <b>both males and females,</b> i.e., the daughter of his son and the daughter of his daughter.
+
+### Part 15
+The Gemara rejects this proof: <b>What</b> comparison can be made to <b>those with whom relations are forbidden,</b> which involve stringent prohibitions, <b>as</b> they entail the punishment of <b><i>karet</i>?</b> The Gemara answers: <b>Let</b> the prohibition with regard to <b>a <i>mamzer</i> prove</b> that this is not relevant, as its violation does not involve the punishment of <i>karet</i> and yet it applies equally to males and females.
+
+### Part 16
+The Gemara rejects this argument: <b>What</b> comparison can be made to <b>a <i>mamzer</i>,</b> seeing that he is governed by the stringency <b>that he is forever unfit to enter into the congregation</b> for all generations? The Gemara counters: <b>Let those with whom relations are forbidden prove</b> that this is not relevant, as the Torah prohibits them only for up to three generations. <b>And the derivation has reverted</b> to its starting point, and the discussion can go back and forth.
+
+### Part 17
+However, the <i>halakha</i> with regard to an Egyptian can be derived from a combination of the two sources. <b>The aspect of this</b> case, that of incestuous relationships, <b>is not like the aspect of that</b> case, that of a <i>mamzer</i>, <b>and the aspect of that</b> case <b>is not like the aspect of this</b> case; <b>their common denominator is that their prohibition</b> applies to <b>both males and females. I will also bring</b> the additional <i>halakha</i> of <b>a male Egyptian</b> convert <b>and a female Egyptian</b> convert <b>that they are forbidden, both males and females.</b>
+
+### Part 18
+The Gemara objects: <b>What</b> is unique about <b>the common denominator</b> between the cases of incestuous relationships and a <i>mamzer</i> that prevents utilizing it as a paradigm for other cases? Both <b>include an aspect of <i>karet</i>,</b> either with respect to the act of incestuous intercourse itself or with respect to the conception of the <i>mamzer</i>, as a <i>mamzer</i> is the offspring of a union punishable by <i>karet</i>. However, the prohibition concerning an Egyptian, which does not include an aspect of <i>karet</i>, may apply only to males, but not females.
+
+### Part 19
+<b>And the Rabbis,</b> who reject Rabbi Shimon’s proof, derive the prohibition applying to female Egyptians <b>from</b> the <i>halakha</i> governing <b>a <i>ḥalal</i>,</b> one rendered unfit for the priesthood. A <i>ḥalal</i> is the child of a union for which the parties involved are <b>liable</b> to receive punishment <b>for</b> the transgression of <b>a positive mitzva,</b> e.g., the child of a High Priest and a woman who was not a virgin when he married her, and this status applies to males and females alike. <b>And</b> this is <b>in accordance with</b> the opinion of <b>Rabbi Eliezer ben Ya’akov,</b> who ruled that the child of such a relationship is a <i>ḥalal</i>.
+
+### Part 20
+The Gemara asks: <b>And what</b> did Rabbi Shimon mean when he responded: <b>Not so?</b> The Gemara explains that <b>this is what he said to them: According to my own</b> opinion, <b>I do not hold in accordance with</b> the opinion of <b>Rabbi Eliezer ben Ya’akov,</b> and therefore your refutation is not valid for me. But even <b>according to you, who do maintain in accordance with</b> the opinion of <b>Rabbi Eliezer ben Ya’akov, I am</b> nevertheless <b>stating a <i>halakha</i></b> handed down to me by my teachers that female Egyptians and Edomites are permitted.
+
+### Part 21
+<b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon said to them: I am stating a</b> traditional <b><i>halakha</i>, and furthermore a verse supports me,</b> as the verse with regard to Edomites and Egyptians states: “The <b>sons</b> of the third generation that are born to them may enter to them, the congregation of the Lord” (Deuteronomy 23:9), teaching that the prohibition applies to their sons, <b>but not</b> to their <b>daughters.</b>
+
+### Part 22
+<b>The Sages taught</b> a <i>baraita</i> that further clarifies the matter: The prohibition with regard to Egyptians and Edomites applies only to their <b>sons, but not</b> to their <b>daughters;</b> this is <b>the statement of Rabbi Shimon. Rabbi Yehuda said:</b> The verse <b>states: “The sons of the third generation that are born to them</b> may enter to them, the congregation of the Lord,” and the phrase “born to them” indicates that <b>the verse made their</b> prohibition <b>dependent on birth,</b> with regard to which there is no difference between males and females.
+
+### Part 23
+<b>Rabbi Yoḥanan says: Had Rabbi Yehuda not said</b> that <b>the verse made their</b> prohibition <b>dependent on birth,</b> so that females are also included in the prohibition, <b>he would not have found his hands and feet in the study hall,</b> i.e., he would have been caught in a self-contradiction. Why? <b>Since the Master said</b> that according to Rabbi Yehuda <b>a congregation of converts is</b> also <b>called a congregation</b> of the Lord,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

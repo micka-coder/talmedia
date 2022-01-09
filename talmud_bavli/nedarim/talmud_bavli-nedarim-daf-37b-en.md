@@ -1,0 +1,33 @@
+
+### Part 1
+<b>if</b> the items that the laborer was entrusted to watch <b>were lost</b> on Shabbat, <b>he does not bear</b> financial <b>responsibility</b> to compensate the owners <b>for them,</b> since he is not a paid bailee on that day. <b>And if</b> he is a laborer <b>hired for a week, hired for a month, hired for a year,</b> or <b>hired for seven years,</b> the one who hired him <b>gives him payment</b> for labor performed on <b>Shabbat</b> as well. Therefore, <b>if</b> the items <b>were lost</b> on Shabbat, <b>he bears</b> financial <b>responsibility</b> to compensate the owners <b>for them.</b> If payment for Shabbat is incorporated within payment for a longer period, it is not prohibited to accept payment for permitted actions performed on Shabbat.
+
+### Part 2
+<b>Rather, with regard to Shabbat, this is the reason that</b> children <b>may not read</b> a passage in the Bible <b>for the first</b> time on Shabbat, <b>so that the fathers of the children will be at leisure to</b> fulfill <b>the mitzva of</b> delighting in <b>Shabbat.</b> Teaching new material to their children would occupy more of their fathers’ time, limiting their opportunity to fulfill that mitzva. <b>And if you wish, say</b> instead: <b>Due to</b> the fact <b>that on Shabbat</b> children <b>eat and drink</b> more than they are accustomed to eating, <b>their world is heavy upon them,</b> i.e., their head and their limbs are sluggish, and they are incapable of concentrating and studying well, <b>as Shmuel said: A change in routine [<i>veset</i>]</b> in eating and the like causes <b>the onset of an intestinal ailment.</b>
+
+### Part 3
+<b>And according to the one who says</b> that the payment for teach-ing Bible is <b>payment</b> for teaching <b>punctuation</b> of the text with <b>cantillation notes,</b> and therefore in the case of one for whom benefit from another is forbidden by vow, that other person may not teach his sons and daughters Bible, <b>what is the reason</b> that he <b>did not say</b> that it is <b>payment</b> for <b>watching</b> the children? The Gemara answers: <b>He holds: Do girls need watching?</b> They stay home and are not accustomed to going out.
+
+### Part 4
+The Gemara asks: <b>And according to the one who says</b> that the payment for teaching Bible is <b>payment</b> for <b>watching</b> the children, <b>what is the reason</b> that he <b>did not say</b> that it is <b>payment</b> for teaching <b>punctuation</b> of the text with <b>cantillation notes?</b> The Gemara answers: <b>He holds</b> that <b>the punctuation</b> of the text with <b>cantillation notes is by Torah law;</b> therefore, it is included in the prohibition against taking payment for teaching Torah.
+
+### Part 5
+This is <b>as Rav Ika bar Avin said</b> that <b>Rav Ḥananel said</b> that <b>Rav said: What is</b> the meaning of that <b>which is written: “And they read in the book, in the Torah of God, distinctly; and they gave the sense, and caused them to understand the reading”</b> (Nehemiah 8:8)? The Gemara explains: <b>“They read in the book, in the Torah of God”; that is the Bible. “Distinctly”; that is</b> the Aramaic <b>translation. “And they gave the sense”; these are the</b> division into <b>verses. “And caused them to understand the reading”; this is punctuation</b> of the text with <b>cantillation notes,</b> which facilitate the understanding of the verses. <b>And some say: These are the traditions</b> that determine the proper vocalization of the Bible. Rav holds that the cantillation notes are an integral part of Torah study.
+
+### Part 6
+On a related note, <b>Rabbi Yitzḥak said: The vocalization of the scribes, and the ornamentation of the scribes, and</b> the verses with words that are <b>read but not written, and</b> those that are <b>written but not read</b> are all <b><i>halakha</i></b> transmitted <b>to Moses from Sinai.</b>
+
+### Part 7
+The Gemara elaborates: <b>The vocalization of the scribes</b> is referring to words that when they appear at the end of phrases, clauses, or verses, their vocalization changes, e.g., <i>eretz</i> with a <i>segol</i> under the letter <i>alef</i> to <b><i>aretz</i></b> with a <i>kamatz</i> under the letter <i>alef</i>; <i>shamayim</i> with a <i>pataḥ</i> under the letter <i>mem</i>, to <b><i>shamayim</i></b> with a <i>kamatz</i> under the letter <i>mem</i>; and <i>mitzrayim</i> with a <i>pataḥ</i> under the letter <i>reish</i>, to <b><i>mitzrayim</i></b> with a <i>kamatz</i> under the letter <i>reish</i>.
+
+### Part 8
+<b>The ornamentation of the scribes</b> are expressions that the scribes understood in a manner that differs slightly from its plain understanding. For example: <b>“Then [<i>aḥar</i>] go on”</b> (Genesis 18:5); <b>“then [<i>aḥar</i>] she will go”</b> (Genesis 24:55); <b>“afterward [<i>aḥar</i>] you will be gathered”</b> (Numbers 31:2); <b>“the singers go before, the minstrels follow after [<i>aḥar</i>]”</b> (Psalms 68:26); <b>“Your righteousness is like the mighty mountains”</b> (Psalms 36:7).
+
+### Part 9
+Words that are <b>read but not written</b> are included in the <i>halakha</i> transmitted to Moses from Sinai. For example, the word <b>“Euphrates” that</b> is in the phrase <b>“as he went</b> to establish his control over the river Euphrates” (II Samuel 8:3) is not written in the text of the Bible. The same is true for the word <b>“man” that</b> is in the verse “now the counsel of Ahithophel, which he counseled in those days, <b>was as if a man inquired of the word of God”</b> (II Samuel 16:23); and for the word <b>“come” that</b> is in the verse “behold, the days come, says the Lord, that the city <b>shall be built</b> to the Lord from the tower of Hananel unto the gate of the corner” (Jeremiah 31:37); and for <b>“her” that</b> is in the phrase “let her not have <b>escape”</b> (Jeremiah 50:29); <b>unto that</b> is in the verse “it has <b>been told me,</b> all that you have done unto your mother-in-law” (Ruth 2:11); and for <b>“to me” that</b> is found in the passage “and she said unto her: All that you say to me I will do. And she went down to <b>the threshing floor”</b> (Ruth 3:4–5); and for <b>“to me” that</b> is in the verse “he gave me these six measures of <b>barley;</b> for he said to me” (Ruth 3:17). <b>These</b> words <b>are read but not written.</b>
+
+### Part 10
+<b>And</b> there are words that are <b>written but not read.</b> For example, the word <b>“may” that</b> is in the verse “may God <b>forgive</b> your servant” (II Kings 5:18) appears in the Bible text but is not vocalized.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

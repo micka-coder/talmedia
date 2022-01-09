@@ -1,0 +1,69 @@
+
+### Part 1
+the <i>yavam</i> or his brother <b>did not disqualify the first</b> girl from staying married to him, as her levirate marriage was consummated. <b>Likewise,</b> if the two wives were <b>two female deaf-mutes,</b> the first wife may remain married to the <i>yavam</i>. Intercourse with the second wife, though prohibited, has no effect: If the marriage was of uncertain status, then either the levirate marriage was concluded when he engaged in intercourse with the first, or neither wife was really married to the first husband, and they are therefore not rival wives. If the initial marriage was partial, then since both wives have the same standing, the levirate marriage with the first wife fully realizes whatever degree of levirate marriage is available.
+
+### Part 2
+If one wife was <b>a minor and</b> the other <b>a deaf-mute,</b> and <b>the <i>yavam</i> engaged in intercourse with the minor and then engaged in intercourse with the deaf-mute, or if his brother engaged in intercourse with the deaf-mute,</b> then the <i>yavam</i> or his brother <b>disqualified the minor</b> from staying married due to the Sages’ decree, lest it be confused with a situation where the intercourse with the deaf-mute was first.
+
+### Part 3
+If <b>the <i>yavam</i> engaged in intercourse with the deaf-mute and then engaged in intercourse with the minor, or if his brother engaged in intercourse with the minor,</b> then the <i>yavam</i> or his brother <b>disqualified the deaf-mute</b> from staying married. The marriage to the deaf-mute creates a partial acquisition that does not exempt the second wife from levirate marriage, as she, as a minor, has a different standing. Accordingly, intercourse with the second wife also creates a partial acquisition and thereby both women are prohibited to the <i>yavam</i>, as it is prohibited to consummate levirate marriage with more than one wife.
+
+### Part 4
+If one widow was halakhically <b>competent and</b> one widow was <b>a deaf-mute,</b> and <b>the <i>yavam</i> engaged in intercourse with the</b> halakhically <b>competent woman and then engaged in intercourse with the deaf-mute, or</b> if <b>his brother</b> then <b>engaged in intercourse with the deaf-mute,</b> the <i>yavam</i> or his brother <b>did not disqualify the</b> halakhically <b>competent woman</b> from staying married. Since the <i>yavam</i> consummated the levirate marriage with her first, the levirate bond was entirely dissolved and the intercourse with the deaf-mute, though forbidden, had no effect.
+
+### Part 5
+If <b>the <i>yavam</i> engaged in intercourse with the deaf-mute and then engaged in intercourse with the</b> halakhically <b>competent woman, or if his brother engaged in intercourse with the</b> halakhically <b>competent woman,</b> the <i>yavam</i> or his brother <b>disqualified the deaf-mute</b> from staying married. Consummation of the levirate marriage with the deaf-mute creates only a partial acquisition that does not fully dissolve the levirate bond.
+
+### Part 6
+If the deceased brother had two wives, <b>an adult and a minor,</b> and <b>the <i>yavam</i> engaged in sexual intercourse with the adult, then engaged in intercourse with the minor, or if his brother engaged in intercourse with the minor,</b> the <i>yavam</i> or his brother <b>did not disqualify the adult</b> from staying married, as the consummation of the levirate marriage with the adult completely dissolves the levirate bond. If <b>the <i>yavam</i> engaged in intercourse with the minor, and then engaged in intercourse with the adult, or if his brother engaged in intercourse with the adult,</b> the <i>yavam</i> or his brother <b>disqualified the minor</b> from staying married. <b>Rabbi Elazar says:</b> The court <b>instructs the minor to refuse him</b> thereby annulling her marriage retroactively, and then the minor is permitted to marry any man.
+
+### Part 7
+<strong>GEMARA:</strong> <b>Rav Yehuda said</b> that <b>Shmuel said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Elazar, and likewise</b> the <i>amora</i> <b>Rabbi Elazar</b> ben Pedat <b>said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Elazar</b> ben Shammua, the <i>tanna</i> in the mishna.
+
+### Part 8
+The Gemara says: It is <b>necessary</b> to rule that the minor is instructed to refuse, thus annulling her original marriage, both in this case and in the earlier case (<i>Yevamot</i> 109a) of an adult woman who becomes the <i>yevama</i> of her husband’s brother who is married to her minor sister. <b>For if this</b> halakhic ruling <b>was stated only in that earlier</b> case, I would have said: <b>It was in that</b> case <b>that Shmuel stated the <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Eliezer, due to</b> the fact that the yavam <b>did not fulfill the mitzva of levirate marriage</b> with the adult. In order for him to be permitted to do so, the Sages rule that the minor should be instructed to refuse him. <b>But for this</b> case, <b>where the mitzva of levirate marriage is fulfilled, say that they must both be released with a bill of divorce.</b>
+
+### Part 9
+And conversely, <b>if</b> the <i>tanna</i> <b>teaches us</b> the ruling only <b>in this</b> case, one would think: <b>It is because the adult happened before him</b> for levirate marriage, and since both the adult and the minor are equally candidates for levirate marriage, it makes sense to encourage the minor to refuse; <b>however,</b> in the <b>other</b> mishna, where the minor is already married to the <i>yavam</i>, making the adult <i>yevama</i> his wife’s sister who is forbidden to him, she should <b>not</b> be encouraged to refuse. Therefore, it was <b>necessary</b> to state, also in this case, that she is nevertheless encouraged to refuse.
+
+### Part 10
+<strong>MISHNA:</strong> If <b>a minor <i>yavam</i> engaged in sexual intercourse with a minor <i>yevama</i>, they should grow up together,</b> living as a married couple. He may not divorce her, as he is a minor. <b>If he engaged in sexual intercourse with an adult <i>yevama</i>, she should raise him,</b> i.e., they must stay married, as there is no way for him to divorce her until he reaches majority.
+
+### Part 11
+When a <b><i>yevama</i> said within thirty days</b> of her marriage: <b>I have not engaged in sexual intercourse</b> with him, the court <b>forces him to perform <i>ḥalitza</i> with her.</b> If she said this <b>after thirty days</b> but he claimed that he had engaged in sexual intercourse, the court <b>asks him to perform <i>ḥalitza</i> with her,</b> as there are grounds to believe him. <b>And when he admits</b> that he did not engage in intercourse with her, <b>even after twelve months,</b> the court <b>forces him to perform <i>ḥalitza</i> with her.</b>
+
+### Part 12
+If a woman <b>vows during her husband’s lifetime</b> to derive no <b>benefit from her <i>yavam</i>,</b> the court <b>forces him to perform <i>ḥalitza</i> with her</b> as it is forbidden for her to engage in sexual intercourse with him to consummate the levirate marriage. If she vowed <b>after the death of her husband</b> to derive no benefit from her <i>yavam</i>, the court <b>asks him to perform <i>ḥalitza</i> with her. And if she intended to do so,</b> i.e., she had an ulterior motive of avoiding levirate marriage when she vowed, <b>even</b> if she made the vow <b>during her husband’s lifetime,</b> the court merely <b>asks him to perform <i>ḥalitza</i> with her.</b>
+
+### Part 13
+<strong>GEMARA:</strong> The mishna teaches that a minor <i>yavam</i> and minor <i>yevama</i> can consummate a levirate marriage and are permitted to live together. The Gemara suggests: <b>Let us say that the mishna is not in accordance with</b> the opinion of <b>Rabbi Meir as it is taught</b> in a <i>baraita</i>: <b>A minor</b> boy <b>and a minor</b> girl <b>may not perform <i>ḥalitza</i> and may not enter into levirate marriage.</b> This is <b>the statement of Rabbi Meir.</b> Rabbi Meir prohibits this lest the boy turn out to be a eunuch or the girl turn out to be sexually underdeveloped. In such cases, the mitzva of levirate marriage would not apply, and the prohibition against marrying one’s brother’s wife would be in effect.
+
+### Part 14
+The Gemara responds: <b>You</b> can <b>even say</b> that the mishna is in accordance with the opinion of <b>Rabbi Meir. When Rabbi Meir said</b> that minors may not enter into levirate marriage, he was referring to <b>an adult</b> <i>yevama</i> <b>with a minor</b> <i>yavam</i> <b>or a minor</b> <i>yevama</i> <b>with an adult</b> <i>yavam</i>. This is <b>because for one of them it would be a forbidden sexual act,</b> due to the uncertainty of the minor’s status. Since the minor may turn out to be permanently sexually underdeveloped, the adult is forbidden from having intercourse with him or her. <b>But</b> in the case of <b>a minor</b> <i>yavam</i> <b>who has sexual intercourse with a minor</b> <i>yevama</i>, <b>where they are both similar to one another,</b> as neither of them is obligated to perform mitzvot, Rabbi Meir did not state that it is forbidden for them to perform levirate marriage.
+
+### Part 15
+The Gemara asks: <b>But it is taught</b> in the mishna: <b>If he,</b> i.e., the minor <i>yavam</i>, <b>engaged in sexual intercourse with an adult <i>yevama</i>, she should raise him,</b> which contradicts the explication of Rabbi Meir’s opinion above. <b>Rabbi Ḥanina Ḥoza’a said: It is different</b> once he <b>engaged in intercourse</b> with her. Although at the outset Rabbi Meir prohibits consummation of the levirate marriage, once it has already taken place, it is preferable that she raise him. The Gemara asks: <b>But it says that she should raise him,</b> indicating that they are meant to live as a married couple, <b>even though each and every sexual act is forbidden</b> according to Rabbi Meir. <b>Rather, it is clear that the mishna is not in accordance with</b> the opinion of <b>Rabbi Meir.</b>
+
+### Part 16
+The Gemara asks: How can the minor enter into levirate marriage? The verse <b>here reads:</b> “And if the man does not wish to take his <i>yevama</i>, his <i>yevama</i> shall ascend to the gate to the Elders and say: My brother-in-law refused <b>to establish a name for his brother</b> in Israel; he did not wish to consummate the levirate marriage” (Deuteronomy 25:7), <b>and this</b> minor <b>is incapable of doing so,</b> as he cannot sire children. <b>Abaye said</b> that <b>the verse states: “Her brother-in-law will have intercourse with her</b> and take her to him to be his wife and consummate the levirate marriage” (Deuteronomy 25:5), to include <b>anyone,</b> even someone who cannot sire children.
+
+### Part 17
+<b>Rava said:</b> Even <b>without this</b> interpretation <b>you still could not say</b> that it is prohibited for a minor to enter into levirate marriage. Is <b>there a case</b> of levirate marriage <b>where she is forbidden to him now, and after some time she becomes permitted? Didn’t Rav Yehuda say</b> that <b>Rav said: Any <i>yevama</i> to whom I cannot apply the verse “Her brother-in-law will have intercourse with her”</b> (Deuteronomy 25:5) <b>at the time she happens before him</b> for levirate marriage, <b>is considered as if she were the wife of a brother who has children,</b> who is exempt from levirate marriage, <b>and she is</b> consequently <b>forbidden</b> to him forever? It must be the case that minors can perform levirate marriage. If it was forbidden, then they would be exempt from levirate marriage even after reaching the age of majority.
+
+### Part 18
+The Gemara asks: <b>And say, indeed,</b> a minor should be exempt from levirate marriage, and consequently forbidden from ever marrying his brother’s wife. The Gemara answers: <b>The verse states: “If brothers dwell together”</b> (Deuteronomy 25:5), indicating that this rule applies to all brothers who are alive simultaneously, <b>even</b> if the brother was only <b>one day old.</b>
+
+### Part 19
+§ The mishna states: When <b>a <i>yevama</i> said within thirty days</b> of her marriage: I have not engaged in sexual intercourse with him, the court forces him to perform <i>ḥalitza</i> with her. The Gemara asks: <b>Who</b> is the <i>tanna</i> who <b>taught that for up to thirty days a person</b> can be presumed to <b>restrain himself</b> and resist engaging in sexual intercourse with a woman who lives with him?
+
+### Part 20
+<b>Rabbi Yoḥanan said: It is</b> the opinion of <b>Rabbi Meir, as it is taught</b> in a <i>baraita</i>: A man may come to court to make <b>a claim concerning virginity,</b> i.e., that the woman he married was not a virgin, <b>for thirty days</b> after the marriage ceremony. Assuming that he makes the claim immediately following their first sexual act, his claim is credible if he makes it within the first thirty days; this is <b>the statement of Rabbi Meir.</b>
+
+### Part 21
+<b>Rabbi Yosei says: If she was secluded</b> with him after the wedding in a place suitable for sexual intercourse, <b>a claim concerning virginity</b> is only credible <b>immediately. But if she was not secluded</b> with him, they presumably did not engage in intercourse, and such a claim is credible <b>even several years later.</b>
+
+### Part 22
+<b>Rabba said: You</b> can <b>even say that</b> the mishna is in accordance with the opinion of <b>Rabbi Yosei. Rabbi Yosei states</b> his opinion <b>there only</b> with regard to a virginity claim about <b>one’s betrothed, to whom he is accustomed,</b> and therefore less inhibited, <b>but with regard to his brother’s wife,</b> i.e., a widow,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

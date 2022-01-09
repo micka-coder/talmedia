@@ -1,0 +1,63 @@
+
+### Partie 1
+La Gemara demande : <b>Dans tous les cas,</b> la question se pose : Pourquoi la mishna dit-elle six agneaux alors qu'en fait le nombre requis <b>est sept ?</b> La Gemara repond : <b>La <i>tanna</i> parle plutot</b> <b>generalement,</b> en se referant au nombre d'agneaux inspectes necessaires tout au long de l'annee. <b>Et que</b> veut-il dire par sa declaration : <b>Suffisamment pour le Shabbat et pour les deux jours de fete de Rosh HaShana ?</b> C'est <b>tout simplement</b> destine a etre un <b>memo,</b> pour aider a se rappeler qu'il doit y avoir suffisamment d'agneaux pour l'offrande quotidienne de trois jours.
+
+### Partie 2
+Selon cela, le langage de la mishna <b>est egalement precis, car</b> il <b>enseigne : Suffisamment pour Chabbat</b> et pour les deux jours de fete de Rosh HaShana, <b>et elle n'enseigne pas</b> qu'il faut six agneaux <b>pour Chabbat et pour les deux jours de fete de Rosh HaShana,</b> ce qui aurait indique que ces agneaux sont destines a etre effectivement sacrifies ces jours-la. La Guemara conclut qu'en fait, on peut <b>apprendre du langage de la mishna</b> que c'est l'interpretation correcte.
+
+### Partie 3
+§ La mishna enseigne : Si les pretres <b>n'ont pas sacrifie un agneau le matin</b> comme offrande quotidienne, neanmoins, ils doivent sacrifier un agneau l'apres-midi comme offrande quotidienne. S'ils n'ont pas brule la demi-mesure d'encens le matin, ils devront bruler la demi-mesure l'apres-midi. <b>Rabbi Shimon a dit : Et</b> dans ce cas, <b>la mesure entiere</b> a ete sacrifiee dans l'apres-midi, car</b> le service quotidien sur un nouvel <b>autel d'or n'est initie que par</b> la combustion de <b>l'encens des epices</b> dans l'apres-midi, moment auquel ils bruleraient une mesure entiere. La Gemara demande : <b>Qui a mentionne quoi que ce soit sur</b> l'<b>initiation</b> des vases du Temple, c'est-a-dire quelle est sa pertinence pour la mishna ?
+
+### Partie 4
+La Guemara repond que la mishna <b>est incomplete, et voici</b> ce qu'elle enseigne :</b> Si <b>ils n'ont pas sacrifie un agneau</b> pour l'offrande quotidienne <b>le matin, ils ne doivent pas sacrifier</b> un agneau dans <b>l'apres-midi. Dans quel</b> cas <b>cette declaration est-elle dite ? </b> Elle est dite dans un cas <b>ou</b> le service d'un nouvel <b>altar n'avait pas</b> encore <b>ete initie,</b> puisqu'il doit d'abord etre initie avec l'offrande quotidienne du matin. <b>Mais</b> si le service de <b>l'autel avait</b> deja <b>ete initie,</b> alors <b>ils devront sacrifier</b> l'agneau de l'offrande quotidienne dans <b>l'apres-midi</b> meme s'ils n'ont pas sacrifie l'agneau de l'offrande du matin.
+
+### Partie 5
+<b>Rabbi Shimon a dit : Quand</b> cette <i>halakha</i> s'applique-t-elle ? Il s'applique <b>au moment ou</b> le manquement a sacrifier l'offrande quotidienne du matin etait du au fait qu'ils ont ete</b> empeches de la sacrifier en raison de <b>circonstances independantes de leur volonte ou</b> qu'ils ont manque de la sacrifier <b>involontairement. Mais si</b> les pretres ont agi <b>intentionnellement et n'ont pas sacrifie un agneau le matin</b> comme offrande quotidienne, <b>ils ne doivent pas sacrifier</b> un agneau <b>l'apres-midi</b> comme offrande quotidienne. En revanche, si <b>ils n'ont pas brule</b> la demi-mesure d'<b>encens le matin, ils devront bruler</b> la demi-mesure <b>l'apres-midi</b> quelles que soient les circonstances.
+
+### Partie 6
+La Guemara demande : <b>D'ou vient cette question</b> que si l'agneau de l'offrande quotidienne du matin n'a pas ete sacrifie et que le service d'un nouvel autel n'avait pas encore ete initie, alors l'agneau de l'apres-midi n'est pas non plus sacrifie ? La Guemara explique que cela decoule <b>comme les Sages l'ont enseigne</b> dans une <i>baraita</i> : "L'un des agneaux que tu offriras le matin ; <b>et le second agneau que tu offriras l'apres-midi"</b> (Exode 29:39). Ce verset enseigne que le <b>second agneau</b> de l'offrande quotidienne est sacrifie <b>l'apres-midi, mais</b> s'il est <b>le premier</b> a etre sacrifie, il peut <b>ne pas</b> etre sacrifie <b>l'apres-midi</b>.
+
+### Partie 7
+<b>Dans quel</b> cas <b>cette declaration est-elle dite ?</b> Elle est dite dans un cas <b>ou</b> le service d'un nouvel <b>altar n'avait pas</b> encore <b>ete initie,</b> puisqu'il doit d'abord etre initie avec l'offrande du matin. Lorsque le verset fait reference a la premiere ou a la seconde offrande, il s'agit de la premiere ou de la seconde offrande jamais sacrifiee sur l'autel. <b>Mais</b> si le service de <b>l'autel avait</b> deja <b>ete initie,</b> alors <b>meme</b> si elle est <b>la premiere</b> a etre sacrifiee ce jour-la, elle doit etre sacrifiee <b>l'apres-midi.</b>
+
+### Partie 8
+<b>Rabbi Shimon a dit : Quand</b> cette <i>halakha</i> s'applique-t-elle ? Il s'applique <b>au moment ou</b> le manquement a sacrifier l'offrande quotidienne du matin etait du au fait qu'ils ont ete</b> empeches de la sacrifier en raison de <b>circonstances independantes de leur volonte ou</b> qu'ils ont manque de la sacrifier <b>involontairement. Mais si</b> les pretres ont agi <b>intentionnellement et n'ont pas sacrifie un agneau le matin</b> comme offrande quotidienne, <b>ils ne doivent pas sacrifier</b> un agneau <b>l'apres-midi</b> comme offrande quotidienne. En revanche, si <b>ils n'ont pas brule</b> la demi-mesure d'<b>encens le matin, ils devront bruler</b> la demi-mesure <b>l'apres-midi</b> quelles que soient les circonstances.
+
+### Partie 9
+La Guemara demande : Est-il logique que <b>parce que les pretres ont peche</b> en omettant intentionnellement de sacrifier l'offrande quotidienne du matin, <b>l'autel</b> doive etre entierement <b>dormi ? Rava dit</b> que <b>c'est</b> ce que Rabbi Shimon <b>dit : Eux,</b> les pretres qui ont deliberement omis de sacrifier l'offrande quotidienne du matin, <b>ne doivent pas sacrifier</b> l'offrande quotidienne de l'apres-midi ; <b>mais les autres</b> pretres <b>doivent la sacrifier</b>.
+
+### Partie 10
+En revanche, si les pretres ont agi intentionnellement et <b>n'ont pas brule</b> l'<b>encens le matin,</b> meme ces memes pretres <b>peuvent le bruler</b> dans l'<b>apres-midi. </b> La raison en est <b>que, puisque</b> bruler l'encens <b>est peu commun et fait</b> que ceux qui le font deviennent <b>riches,</b> c'est <b>preoccupant pour les pretres</b>, <b>et ils ne seront pas negligents</b> dans l'accomplissement de ce rite.
+
+### Partie 11
+§La mishna enseigne que s'ils n'ont pas brule la demi-mesure d'encens le matin, ils doivent bruler la demi-mesure l'apres-midi. <b>Rabbi Shimon a dit : Et</b> dans ce cas, <b>la mesure entiere</b> <b>etait sacrifiee l'apres-midi.</b> La raison de la difference entre les offrandes quotidiennes et l'encens est <b>que</b> le service quotidien sur un nouvel <b>autel d'or n'est initie que par</b> la combustion de <b>l'encens des epices de l'apres-midi,</b> moment ou ils bruleraient une mesure entiere. La Guemara demande : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Le service d'un nouvel autel d'or est initie <b>avec</b> la combustion de <b>l'encens des epices du matin ?</b> La Gemara repond : La question de savoir si l'encens du matin ou de l'apres-midi initie le service d'un nouvel autel d'or <b>est</b> une dispute entre <b><i>tannaim</i>.</b>
+
+### Partie 12
+<b>Abaye dit :</b> Il <b>s'impose</b> que la <i>halakha</i> soit <b>conforme a celui qui dit</b> qu'elle a ete initiee <b>avec l'encens des epices de l'apres-midi, comme il est ecrit</b> a propos de l'autel d'or : "Aaron y fera brA "ler de l'encens d'épices douces ; <b>chaque matin, quand il allumera les lampes, il le fera brA "ler.</b> Et quand Aaron allumera les lampes A la tombée de la nuit, il le fera brA "ler, un encens pérenne devant l'Eternel, de génération en génération" (Exode 30:7""8).
+
+### Partie 13
+Le fait que les cendres soient enlevees des lampes du Candelabre le matin indique que les lampes avaient ete allumees auparavant, car <b>si</b> le pretre n'avait <b>pas effectue l'allumage</b> des lampes le <b>soir precedent, d'ou</b> les cendres seraient-elles <b>enlevees le matin ?</b> Cela prouve que le Candelabre doit avoir ete allume pour la premiere fois le soir. Puisque le verset dit :" Quand Aaron allumera les lampes au crepuscule, il en fera bruler un parfum perpetuel devant l'Eternel", il faut croire que l'encens a ete brule pour la premiere fois le soir.
+
+### Partie 14
+La Guemara demande : <b>Et selon celui qui dit</b> que le service d'un nouvel autel d'or est initie <b>avec</b> la combustion de <b>l'encens des epices du matin,</b> d'ou provient cette <i>halakha</i> ? La Gemara repond : Il la <b>derive</b> <b>de l'initiation de <b>l'autel de l'holocauste</b>. De meme que la,</b> le service d'un nouvel autel de l'holocauste est initie <b>par</b> le moyen de l'<b>offrande quotidienne du matin</b> plutot que de l'apres-midi, <b>de meme ici,</b> le service d'un nouvel autel dore est initie <b>par</b> le moyen de la combustion de <b>l'encens des epices du matin.</b>
+
+### Partie 15
+§La mishna enseigne : <b>Et</b> l'utilisation d'une nouvelle <b>Table</b> a ete initiee <b>seulement avec</b> la disposition des <b>pains de mie le Chabbat.</b> La Gemara demande : <b>Mais</b> la mishna veut-elle indiquer que si le pain de messe a ete place sur la Table <b>un jour de semaine, c'est</b> simplement que l'utilisation d'une nouvelle Table <b>n'est pas initiee, mais</b> le pain de messe <b>est sanctifie ?</b> La <i>halakha</i> est que le pain de messe est sanctifie uniquement lorsqu'il est place sur la Table le Chabbat.
+
+### Partie 16
+La Guemara repond : La mishna <b>nous enseigne cette</b> <i>halakha</i> <b>meme, que l'initiation</b> de l'utilisation d'une nouvelle Table <b>et la sanctification</b> des pains de mie lorsqu'ils sont places sur <b>la Table</b> ne se produisent que <b>a Shabbat. </b> Ceci est <b>comme</b> la mishna <b>l'enseigne</b> dans <b>la derniere clause</b> en ce qui concerne l'initiation de l'utilisation d'un nouveau Candelabre : <b>Et</b> l'utilisation d'un nouveau <b>Chandelier</b> etait initiee <b>seulement avec</b> l'allumage <b>de ses sept lampes dans l'apres-midi.</b>
+
+### Partie 17
+§La Guemara cite un autre <i>halakha</i> relatif a la combustion de l'encens. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>C'est de l'encens qui a ete offert pour un individu</b> plutot que pour la communaute <b>sur l'autel externe,</b> et non sur l'autel d'or comme d'habitude ; <b>et c'etait un edit provisoire,</b> autorise temporairement pour cette periode seulement. La Guemara clarifie : A <b>quel</b> cas le <i>baraita</i> fait-il reference ? <b>Rav Pappa dit :</b> Il fait reference a l'encens apporte <b>par les <b>princes</b> tribaux lors de l'inauguration du Tabernacle (voir Nombres, chapitre 7).
+
+### Partie 18
+La Gemara demande : <b>Mais</b> en ce qui concerne l'encens d'un <b>individu, est-ce</b> seulement <b>sur l'autel exterieur qu'il n'est <b>pas</b> generalement permis de le bruler, <b>mais</b> un individu <b>peut sacrifier</b> l'encens <b>sur l'autel interieur,</b> comme l'indique la <i>baraita</i> ? <b>Et en outre, sur l'autel externe, est-ce</b> seulement un <b>individu qui ne peut pas</b> sacrifier de l'encens, <b>mais la communaute peut sacrifier</b> de l'encens sur l'autel externe ?
+
+### Partie 19
+<b>Mais n'est-il pas enseigne</b> dans un <i>baraita</i> contraire a ces deux deductions : On <b>pourrait</b> avoir pense qu'un <b>individu peut volontairement donner et apporter</b> de l'encens <b>similaire</b> a celui apporte par les princes tribaux au Temple en tant qu'offrande <b>cadeau</b>, <b>et je</b> vais <b>lire a propos</b> de cet encens, comme pour les autres offrandes-cadeaux : <b>"Ce qui est sorti de tes levres, tu l'observeras et tu le feras"</b> (Deuteronome 23:24). Par consequent, <b>le verset indique</b> concernant l'autel interieur : <b>Vous n'y apporterez pas d'encens etranger"/b> (Exode 30:9). Cela indique qu'un individu ne peut pas sacrifier d'encens meme sur l'autel interieur.
+
+### Partie 20
+On <b>pourrait</b> avoir pense que seul <b>un individu ne peut pas apporter</b> un don d'encens sur l'autel interieur, <b>comme</b> un individu <b>n'apporte pas son offrande obligatoire</b> <b>similaire a ce</b> don d'encens, c'est-a-dire que puisqu'un individu n'est jamais oblige de sacrifier de l'encens, il ne peut pas non plus sacrifier volontairement de l'encens ;
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

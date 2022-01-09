@@ -1,0 +1,39 @@
+
+### Partie 1
+La Guemara rejette cette possibilite : Rav Nahman fait reference <b>au</b> cas d'un <b>couteau neuf</b> sur lequel il n'y a pas de residu.
+
+#### Partie 2
+La Guemara conteste : S'il s'agit d'un <b>couteau neuf</b>, <b>tous deux</b> selon <b>Rabbi Yishmael et</b> selon <b>Rabbi Akiva,</b> qui etaient en desaccord sur le fait de savoir si une idole est interdite a partir du moment ou on la fabrique ou a partir du moment ou on lui rend un culte, un couteau fait simplement partie de la categorie des <b>accessoires du culte des idoles, et les accessoires du culte des idoles ne sont interdits qu'apres avoir</b> ete utilises pour le <b>service des idoles. </b> La Gemara explique : <b>Si tu veux, dis</b> que la reference est a un cas <b>ou il a coupe une branche [<i>gevaza</i>] pour le culte des idoles avec</b> le couteau, qui ne laisse aucun residu. <b>Et si vous le souhaitez, dites</b> plutot que Rav Nahman fait reference <b>au</b> cas d'un <b>vieux</b> couteau <b>qu'il a brule jusqu'a</b> ce qu'il devienne <b>blanc dans le feu,</b> et donc, il n'y a pas de residu sur le couteau.
+
+### Partie 3
+§ <b>Il a ete dit :</b> En ce qui concerne <b>celui qui egorge</b> un animal <b>avec le couteau des gentils, Rav dit : Il epluche</b> une couche de la chair a l'endroit de l'animal ou le couteau a touche la chair et ou le residu interdit sur le couteau a ete absorbe. <b>Et Rabba bar bar Hana dit : Il rince</b> l'endroit ou le couteau a touche la chair. La Guemara suggere : <b>Disons</b> qu'ils ne sont pas d'accord sur ce point, qu'un <b>Sage,</b> Rabba bar Hana, <b>soutient : La zone de l'abattage</b> sur la gorge <b>est froide</b> et n'absorbe pas le residu interdit, et donc le rincage est suffisant. <b>Et</b> un <b>Sage,</b> Rav, <b>soutient : La zone d'abattage</b> sur la gorge <b>est chaude</b> et donc elle absorbe le residu interdit.
+
+### Partie 4
+La Guemara rejette cette suggestion : <b>Non,</b> il est possible <b>que tout le monde</b> considere que <b>la zone de l'abattage</b> sur la gorge <b>est chaude. </b> Pour <b>celui qui dit</b> que <b>il epluche</b> une couche, ca marche <b>bien, et celui qui dit</b> que <b>il rince</b> l'endroit ou le couteau a touche la chair tient que <b>puisque les deux organes qui doivent etre sectionnes dans l'abattage rituel [<i>simanim</i>],</b> c'est-a-dire, la trachee et le gosier, <b>sont occupes</b> a <b>evacuer le sang, ils n'absorbent pas</b> le residu.
+
+### Partie 5
+<b>Il y a</b> ceux <b>qui disent que tout le monde</b> soutient que <b>la zone de l'abattage</b> sur la gorge <b>est froide. </b> Pour <b>celui qui dit</b> que <b>il rince</b> l'endroit ou le couteau a touche la chair, ca marche <b>bien, et celui qui dit</b> que <b>il epluche</b> une couche tient que bien que cette zone soit froide, <b>en raison de la pression du couteau</b> sur la gorge, la chair <b>absorbe</b> le residu.
+
+### Partie 6
+§ <b>A propos d'un couteau</b> avec lequel on a abattu un animal qui est <b>un <i>tereifa</i></b>, <b>Rav Aha et Ravina sont en desaccord. L'un dit :</b> On le purge <b>dans de l'eau chaude</b> pour enlever les absorptions du <i>tereifa</i>, <b>et l'autre dit :</b> On le rince <b>dans de l'eau froide</b>, et cela est suffisant. <b>Et la <i>halakha</i></b> est : On peut le rincer <b>meme a l'eau froide</b>. <b>Et s'il y a un morceau en lambeaux</b> <b>d'un rideau</b> avec lequel on peut <b>essuyer</b> le couteau, <b>on n'a pas besoin</b> de le rincer.
+
+### Partie 7
+<b>Et selon celui qui dit</b> qu'on le purge <b>dans l'eau chaude</b>, <b>quelle est la raison</b> pour laquelle il doit le faire ; est-ce du <b>a la premisse <b>que</b> le couteau <b>a absorbe des residus interdits</b> ? Ce raisonnement ne doit pas etre limite au cas ou il a abattu une <i>tereifa</i>. Un couteau avec <b>lequel</b> il a abattu un animal qui est <b>permis</b> devrait <b>egalement</b> necessiter une purge, car <b>il a absorbe</b> des residus provenant <b>du membre d'un animal vivant</b> avant la fin de l'abattage. La Guemara repond : <b>Quand</b> peut-on craindre que le couteau ait absorbe</b> le residu ? C'est <b>lorsque</b> la gorge <b>devient chaude. Quand est-ce qu'elle s'echauffe ? </b> C'est <b>au moment</b> ou le massacre est termine. </b> A <b>ce moment, c'est</b> deja <b>permis.</b>
+
+### Partie 8
+§ <b>Rav Yehuda dit</b> que <b>Rav dit : L'abatteur a besoin de trois couteaux, un avec lequel il abat</b> l'animal, <b>et un avec lequel il coupe la viande, et un avec lequel il coupe</b> les <b>graisses interdites.</b> On ne peut pas utiliser le meme couteau pour couper la viande et les graisses interdites a cause des residus sur le couteau apres avoir coupe les graisses interdites.
+
+### Partie 9
+La Guemara suggere : <b>Et qu'il designe un</b> couteau pour couper a la fois la viande et les graisses interdites <b>et qu'il coupe la viande avec celui-ci, puis coupe</b> les <b>graisses interdites avec celui-ci.</b> De cette maniere, le residu interdit sur le couteau n'affectera pas la viande. La Guemara explique : Les Sages ont emis un <b>decret</b> rabbinique interdisant l'utilisation d'un couteau pour couper de la viande puis des graisses interdites <b>de peur qu'il ne <b>coupe</b> egalement des <b>graisses interdites et ne coupe de la viande par la suite.</b> La Gemara conteste : <b>Maintenant aussi,</b> apres le decret imposant des couteaux separes, on craint que <b>ils soient confondus pour lui</b> et qu'il utilise le couteau qui a coupe les graisses interdites pour couper la viande. La Gemara explique : <b>Puisque</b> les Sages <b>l'ont oblige</b> a avoir <b>deux</b> couteaux, <b>il a un repere ostensible</b> sur l'un des couteaux qui empechera toute confusion.
+
+### Partie 10
+<b>Et Rav Yehuda dit</b> que <b>Rav dit : L'abatteur a besoin de deux recipients d'eau, un avec lequel il rince la viande et un avec lequel il rince</b> les <b>graisses interdites.</b> La Gemara suggere : <b>Et qu'il designe un</b> recipient <b>et rince la viande avec</b> l'eau du recipient <b>et ensuite rince</b> les <b>graisses interdites avec</b> l'eau du meme recipient. La Guemara explique : Les Sages ont emis un <b>decret</b> rabbinique pour interdire de faire cela <b>de peur qu'il ne rince</b> les graisses <b>et ne rince la viande par la suite.</b> La Gemara conteste : <b>Maintenant aussi,</b> apres le decret imposant des recipients separes, on craint que <b>ils soient confondus pour lui</b> et qu'il rince la viande dans le recipient dans lequel il a rince les graisses. La Gemara repond : <b>Puisque</b> les Sages <b>l'ont oblige</b> a avoir <b>deux recipients</b>, <b>il a un repere bien visible</b> sur l'un des recipients qui empechera toute confusion.
+
+### Partie 11
+§ <b>Ameimar dit au nom de Rav Pappa : Une personne ne doit pas placer [<i>lishof</i>] les flancs</b> d'un animal <b>sur</b> une autre <b>viande</b> de sorte que les graisses interdites qui sont attachees aux flancs soient en contact avec l'autre viande, en raison du fait <b>que la <b>graisse interdite</b> se liquefie et <b>coule et la viande l'absorbe</b>.
+
+### Partie 12
+La Guemara souleve une objection : <b>Si c'est le cas,</b> et c'est un souci, <b>lorsque</b> les flancs sont <b>places</b> de leur maniere <b>typique</b> <b>[<i>teritzi</i>] egalement,</b> avec la graisse interdite au-dessus de la viande des flancs, <b>la</b> <b>graisse interdite coule et la viande</b> des flancs <b>l'absorbe</b>. La Gemara explique : <b>La membrane</b> entre la graisse interdite et la viande des flancs <b>intervient par le bas</b> et empeche l'absorption de la graisse interdite. La Gemara conteste : <b>Si oui,</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

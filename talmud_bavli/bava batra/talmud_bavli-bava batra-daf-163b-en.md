@@ -1,0 +1,27 @@
+
+### Part 1
+<b>This works out well,</b> i.e., this concern does not apply, <b>according to Rav Kahana, who teaches in the name of Shmuel</b> that a document in which its content and its witnesses’ signatures are both written over an erasure is valid; according to him, all <b>is well.</b> It is Rav who says that an inked-in gap between the witnesses’ signatures and the court’s ratification is acceptable, and it is Shmuel who says that a document that is written and signed over an erasure is acceptable. <b>But according to Rav Tavyumei, who teaches</b> this latter statement <b>in the name of Rav, what can be said?</b> According to him, Rav said both statements, and taken together they pose a difficulty: The inked-in gap between the witnesses’ signatures and the ratification can easily be erased and a new document with signatures can be written over the erasure.
+
+### Part 2
+The Gemara answers: Rav <b>maintains</b> that in <b>all cases like this,</b> where a document and its witnesses’ signatures are written over an erasure and there is a court ratification on a non-erased part of the paper, the later court <b>ratifies</b> the document <b>not on the basis of the</b> previous court’s <b>ratification that is on it, but</b> only <b>on the basis of the</b> signatures of the <b>witnesses that are on it.</b> Therefore, the forging of a document in this manner is impossible, as the prior ratification of the court is disregarded, and the witnesses will attest to what they signed upon.
+
+### Part 3
+The Gemara cites another opinion: <b>And Rabbi Yoḥanan says: They taught</b> in the <i>baraita</i> that a gap of one line does not invalidate the document <b>only</b> in the case where that space is <b>between the witnesses’</b> signatures <b>and the text</b> of the document. <b>But</b> if the gap is <b>between the witnesses’</b> signatures <b>and</b> a court’s <b>ratification</b> of the document, then a space of <b>even one line</b> renders the document <b>not valid.</b>
+
+### Part 4
+The Gemara asks: <b>What is different</b> about the case where there is a one-line gap <b>between the witnesses’</b> signatures <b>and</b> the court’s <b>ratification</b> that you say it is not valid? The Gemara answers: There is a concern that <b>perhaps</b> the holder of the document will <b>excise</b> the entire text of the document at <b>the top</b> of the paper <b>and</b> then <b>write</b> a new, brief document, with <b>its</b> text <b>and</b> the signatures of <b>its witnesses on one line.</b> The court’s ratification will appear to verify the new, forged document. <b>And</b> Rabbi Yoḥanan <b>holds</b> that <b>a document that comes</b> before the court with <b>its</b> text <b>and</b> the signatures of <b>its witnesses</b> appearing <b>on one line is valid.</b>
+
+### Part 5
+The Gemara suggests: <b>If so,</b> the same problem <b>also</b> exists when there is a one-line gap <b>between the witnesses’</b> signatures <b>and the text:</b> There should be a concern that <b>perhaps</b> he will <b>excise</b> the entire text of the document at <b>the top</b> of the paper <b>and</b> then <b>write whatever he wants</b> in a brief, one-line document. <b>And the witnesses’</b> signatures on the next line, which are there from the old document, will still be <b>signed</b> there, appearing to attest to the veracity of the new, one-line document. The Gemara answers: Rabbi Yoḥanan <b>holds</b> that <b>a document that comes</b> before the court with <b>its</b> text <b>on one line and</b> the signatures of <b>its witnesses</b> appearing <b>on another line,</b> i.e., on the following line, is <b>not valid.</b>
+
+### Part 6
+The Gemara suggests: <b>And let</b> there be <b>a concern</b> that <b>perhaps</b> the holder of the document will excise the entire document, leaving only the blank line and the signatures that follow it, and he will <b>write</b> a brief document in which <b>its</b> text <b>and</b> the signatures of <b>its witnesses</b> are <b>on one line,</b> followed by the original signatures that remained from the original document, <b>and</b> he will <b>say: I did this</b> in order <b>to increase</b> the number of <b>witnesses,</b> the more to publicize the matter written in the document. The document is therefore still forgeable.
+
+### Part 7
+The Gemara answers: Rabbi Yoḥanan <b>maintains</b> that in <b>all cases like this,</b> where a document and its witnesses’ signatures are written on one line, followed by other signatures on subsequent lines, the court <b>ratifies</b> the document <b>not on the basis of the</b> signatures of the <b>witnesses that</b> are <b>on the bottom, but on the basis of the</b> signatures of the <b>witnesses that</b> are <b>on top,</b> on the same line as the text. Therefore, the forging of a document in this manner is impossible. The false signatures of the witnesses will be discovered when those witnesses attest to what they signed upon.
+
+### Part 8
+§ Having cited Rav’s statement, the Gemara discusses <b>the</b> matter <b>itself. Rav says: A document that comes</b> before the court in which <b>its</b> content <b>and</b> the signatures of <b>its witnesses are</b> both written <b>over an erasure</b> is <b>valid.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

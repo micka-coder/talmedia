@@ -1,0 +1,81 @@
+
+### Part 1
+<b>until</b> the oven itself merely rests <b>on the ground</b> and is not held in place by plaster.Breaking the oven in such a manner renders the oven pure because it is no longer considered a vessel. <b>Rabbi Meir says: It is unnecessary to scrape off the</b> layer of <b>plaster, and</b> it is certainly <b>not</b> necessary to remove it <b>until</b> the oven rests <b>on the ground. Rather, one</b> makes cuts in the oven itself, <b>reducing</b> its size <b>from within</b> the layer of plaster, i.e., without removing the layer of plaster, until the unbroken part is less <b>than four handbreadths.</b>
+
+### Part 2
+Rabbi Meir holds that although breaking off a minority of the structure of the oven is insufficient, <b>in any event when one reduces</b> the size of the oven to less <b>than four</b> handbreadths in height the oven is rendered <b>pure. Why</b> is this so, according to the opinion of Reish Lakish? <b>Let us say</b> that <b>this</b> oven <b>exists</b> in <b>a repairable</b> state, as the plaster holds it together, and according to Reish Lakish it should therefore be considered connected and remain impure.
+
+### Part 3
+<b>Rava said to</b> Rabbi Yirmeya: Instead of objecting to the opinion of Reish Lakish from the statement of Rabbi Meir, <b>state</b> a proof for his opinion <b>from</b> the statement <b>of the Rabbis</b> who disagree with Rabbi Meir and hold that the oven becomes pure only if <b>one scrapes off the</b> layer of <b>plaster until</b> the oven rests <b>on the ground.</b> Apparently, the Rabbis hold that the oven is rendered pure only if it is completely and irreparably broken, which supports the opinion of Reish Lakish according to your reasoning.
+
+### Part 4
+<b>Rather, Rava said:</b> Not only is there no proof against the opinion of Reish Lakish from this mishna, as the statement of the Rabbis supports his opinion, but Rabbi Meir may even accept the opinion of Reish Lakish; as <b>this</b> is what the mishna <b>is saying: How does one purify an oven that became impure? Everyone,</b> even Rabbi Meir, <b>agrees</b> that one <b>divides it into three</b> parts <b>and scrapes off the</b> layer of <b>plaster until</b> the oven rests <b>on the ground.</b>
+
+### Part 5
+<b>And</b> anyone <b>who wishes that his oven not become</b> susceptible to <b>impurity, how does he act?</b> The Rabbis hold that he goes through the same process as is necessary in order to purify an impure oven: From the outset, <b>he divides</b> the oven <b>into three</b> parts <b>and scrapes off the</b> layer of <b>plaster until</b> the oven rests <b>on the ground. Rabbi Meir says:</b> With regard to an oven that has not yet become impure, <b>it is unnecessary to scrape off the</b> layer of <b>plaster, and</b> it is certainly <b>not</b> necessary to remove it <b>until</b> the oven rests <b>on the ground. Rather, one reduces</b> the size of the oven <b>from within</b> the layer of plaster until the unbroken part is less <b>than four handbreadths</b> in height.
+
+### Part 6
+§The Gemara discusses the mishna in tractate <i>Kelim</i> cited above. <b>The Master said:</b> An impure oven is rendered pure when one <b>divides it into three</b> parts, such that no one part contains the majority of the oven. But one cannot purify the oven by dividing it into two parts because one of the parts would contain the majority of the oven.
+
+### Part 7
+The Gemara <b>raises a contradiction</b> to this mishna from another mishna (<i>Kelim</i> 5:1): A clay <b>oven</b> in <b>its original state,</b> once it is finished being built, is susceptible to ritual impurity if it is <b>four</b> handbreadths tall. <b>And</b> with regard to an oven that became impure and was subsequently broken, if <b>its remains</b> include a piece <b>four</b> handbreadths tall, that piece remains impure. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 8
+<b>And the Rabbis say: In what</b> case <b>is this statement said?</b> It is said <b>in</b> the case of <b>a large</b> oven, <b>but in</b> the case of <b>a small</b> oven, in <b>its original state, any size</b> is sufficient for it to be susceptible to impurity. <b>Once its construction is completed,</b> if the oven became impure and was subsequently broken, <b>its remains</b> are still impure <b>in</b> a case where they contain <b>the majority of</b> the oven.
+
+### Part 9
+The Gemara explains: <b>And how</b> small is the size defined by the mishna as <b>any size?</b> The <b>school of Rabbi Yannai says:</b> One <b>handbreadth, as</b> people <b>make</b> toy <b>ovens one handbreadth tall.</b>
+
+### Part 10
+The Gemara infers: The Rabbis in that mishna hold that with regard to a large impure oven that breaks, any remaining piece that measures four handbreadths remains impure. Evidently, <b>the reason</b> that the oven remains impure is <b>because there are</b> pieces of <b>its remains</b> that measure <b>four</b> handbreadths, <b>but</b> if <b>there are no remains</b> of the oven measuring <b>four</b> handbreadths, even if a piece contains the majority of the oven, the oven is rendered <b>pure.</b> This opinion is not consistent with the opinion of the Rabbis in the previously cited mishna.
+
+### Part 11
+The Sages <b>said</b> in response: <b>There,</b> with regard to the opinion of the Rabbis that if there are no remains measuring four handbreadths then the oven is pure, that mishna is discussing a case <b>where one cut</b> the oven horizontally such that the pieces do not stand one on top of the other in a stable manner. <b>Here,</b> with regard to the opinion of the Rabbis that an impure oven is rendered pure only when no one piece constitutes the majority of the oven, the mishna is discussing a case <b>where one rendered</b> the oven <b>a shard [<i>gistera</i>]</b> by cutting it in half vertically, in which case a piece that contains the majority of the oven can stand on its own.
+
+### Part 12
+§The Gemara discusses the previously cited mishna in tractate <i>Kelim</i>. <b>The Master said:</b> In the case of a small oven, in its original state, any size is sufficient for it to be susceptible to impurity. And once its construction is completed, if the oven became impure and was subsequently broken, <b>its remains</b> are still impure if they contain <b>the majority</b> of the oven. The Gemara asks: Rabbi Yannai explained that the phrase: Any size, is referring to a measure of one handbreadth. <b>For what</b> purpose <b>is</b> a piece of an oven the size of <b>the majority of</b> one <b>handbreadth</b> usable? Since such a small piece is not functional; why should it remain impure?
+
+### Part 13
+<b>Abaye said:</b> The statement of the mishna: Its remains are still impure if they contain the majority of the oven, is not discussing a small oven, but rather is teaching that <b>the remains of a large</b> oven remain impure if they contain <b>the majority of</b> the oven. The Gemara asks: <b>But didn’t the Rabbis say</b> in the mishna that any remaining piece of a large oven measuring <b>four</b> handbreadths remains impure? The Gemara answers: That is <b>not difficult. That</b> statement of the Rabbis that the remains of a large oven remain impure if they contain the majority of the oven is referring <b>to an oven</b> measuring <b>nine</b> handbreadths. <b>That</b> statement of the Rabbis that any remaining piece of a large oven measuring four handbreadths remains impure is referring <b>to an oven</b> measuring <b>seven</b> handbreadths.
+
+### Part 14
+§The Gemara returns to discuss the mishna in tractate <i>Kelim</i> (28:8) previously mentioned in the Gemara (123a–b): In the case of a ritually impure garment that one begins to tear, once the majority of the garment is torn, the two sections are no longer considered to have a connection, and the garment is pure. Rav Huna said in the name of Rabbi Shimon, son of Rabbi Yosei, that even if the majority of the garment is torn, if a part of the garment the measure of a scarf is left intact, the garment remains impure. <b>Some say another version</b> of Rav Huna’s statement: <b>Rav Huna said in the name of Rabbi Yishmael, son of Rabbi Yosei:</b> If the majority of the garment is torn, the garment is rendered pure <b>even</b> if one <b>left</b> an untorn piece <b>the measure of a scarf.</b>
+
+### Part 15
+With regard to that statement of Rav Huna, <b>Reish Lakish said:</b> The Sages <b>taught</b> that the garment is pure even if one left an untorn piece the measure of a scarf <b>only</b> with regard to a torn <b>garment. But</b> with regard to <b>a hide,</b> if the majority was torn and a piece the measure of a scarf remains, the piece is considered <b>significant</b> and the hide remains impure. <b>And Rabbi Yoḥanan said: Even</b> with regard to a torn <b>hide,</b> if a piece the size of a scarf remains it is <b>not</b> considered <b>significant</b> and the hide is therefore rendered pure.
+
+### Part 16
+<b>Rabbi Yoḥanan raised an objection to</b> the opinion of <b>Reish Lakish</b> from that which is taught in the mishna (<i>Kelim</i> 26:9): With regard to <b>a hide</b> that is <b>impure</b> with impurity imparted by <b>treading,</b> if the owner <b>intended with regard to</b> the hide <b>to</b> fashion it into <b>straps and sandals,</b> then <b>when he applies a scalpel to</b> the hide, the hide becomes <b>pure;</b> this is <b>the statement of Rabbi Yehuda. And the Rabbis say:</b> The hide does not become pure <b>until he reduces</b> the hide to a measure of less <b>than five handbreadths.</b>
+
+### Part 17
+<b>In any event, when one reduces</b> the hide to a measure of less than five handbreadths, everyone agrees that it becomes <b>pure. Why</b> is this so? <b>Let us say</b> that the hide is considered <b>significant</b> and therefore remains impure. Reish Lakish answered: <b>Here, we are dealing with</b> a case <b>where one needs</b> the cut hide <b>for a seat</b> that he wishes to designate for <b>a man who experiences a gonorrhea-like discharge [<i>zav</i>].</b> Since a piece of hide measuring less than five handbreadths cannot be used for a seat, it is not considered significant in such a case.
+
+### Part 18
+<strong>MISHNA:</strong> In the case of <b>a hide</b> of an unslaughtered carcass <b>upon which there is an olive-bulk of flesh, one who touches a strand</b> of flesh <b>emerging from</b> the flesh <b>or a hair</b> that is on the side of the hide <b>opposite</b> the flesh <b>is ritually impure.</b> Although he did not touch an olive-bulk of the flesh, he is rendered impure with the impurity of an unslaughtered carcass. The reason is that the strand of flesh has the same status as the flesh itself, and the hair is considered protection to the flesh, which also has the same status as the flesh with regard to one who touches it.
+
+### Part 19
+If <b>upon</b> the hide <b>there were two half olive-bulks,</b> the hide <b>imparts the impurity</b> of an unslaughtered carcass <b>by means of carrying,</b> because one moves them together, <b>but not by means of contact</b> with the flesh, because one touches them separately; this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> The hide does not impart impurity, <b>neither by means of contact nor by means of carrying. And Rabbi Akiva concedes in</b> the case of <b>two half olive-bulks where one skewered them with a wood chip and moved them that he is impure. And for what</b> reason <b>does Rabbi Akiva deem</b> one <b>ritually pure</b> in a case where he moved both half olive-bulks with <b>the hide,</b> as in that case, too, he moved them together? <b>It is because the hide</b> separates between them and <b>nullifies them.</b>
+
+### Part 20
+<strong>GEMARA:</strong> The mishna teaches that in the case of a hide of an unslaughtered carcass upon which there is an olive-bulk of flesh, the flesh is not nullified by the hide, and therefore one who touches a strand of flesh emerging from the flesh is ritually impure. With regard to this section of the mishna, <b>Ulla said</b> that <b>Rabbi Yoḥanan said:</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> in a case where <b>an animal severed</b> the piece of flesh, e.g., a dog bite. <b>But</b> if a person used <b>a knife</b> to <b>sever</b> the flesh, the flesh <b>is nullified</b> by the hide because the person nullified the flesh via his action.
+
+### Part 21
+<b>Rav Naḥman said to Ulla: Did Rabbi Yoḥanan say</b> this <i>halakha</i> <b>even</b> with regard to a large piece of flesh the size of <b>a <i>tarta</i>,</b> i.e., a quarter of a <i>kav</i>? Ulla <b>said to him: Yes.</b> Rav Naḥman was surprised and asked: <b>And</b> did he say it <b>even</b> with regard to a piece of flesh the size of <b>a sifter?</b> Ulla <b>said to him: Yes.</b> Rav Naḥman swore and <b>said to him: By God!</b> Even <b>if Rabbi Yoḥanan had said</b> this statement <b>to me</b> directly <b>from his mouth, I would not have listened to him.</b>
+
+### Part 22
+<b>When Rav Oshaya ascended</b> from Babylonia to Eretz Yisrael <b>he found Rabbi Ami,</b> and <b>he said this <i>halakha</i> before him: This is what Ulla said and this is what Rav Naḥman responded to him.</b> Rav Oshaya <b>said to</b> Rabbi Ami: <b>And</b> just <b>because Rav Naḥman is the son-in-law of the family of the <i>Nasi</i>, can he demean the halakhic statement of Rabbi Yoḥanan?</b>
+
+### Part 23
+Another <b>time</b> Rav Oshaya <b>found</b> Rabbi Ami <b>sitting and saying this</b> <i>halakha</i> <b>with regard to the latter clause</b> of the mishna: If <b>upon</b> the hide <b>there were two half olive-bulks,</b> the hide <b>imparts</b> the <b>impurity</b> of an unslaughtered carcass <b>by means of carrying but not by means of contact</b> with the flesh, because he touches them separately and moves them together; this is <b>the statement of Rabbi Yishmael. Rabbi Akiva says:</b> It imparts impurity <b>neither by means of contact nor by means of carrying.</b>
+
+### Part 24
+With regard to this section of the mishna, <b>Rabbi Yoḥanan said:</b> The Sages <b>taught</b> Rabbi Yishmael’s opinion that the hide imparts the impurity of an unslaughtered carcass by means of carrying <b>only</b> in a case where <b>an animal severed</b> the half olive-bulks of flesh from the animal. <b>But</b> if a person used <b>a knife</b> to <b>sever</b> the half olive-bulks of flesh, the flesh <b>is nullified.</b> If Rav Naḥman had heard that the statement of Rabbi Yoḥanan was stated with regard to a case of half olive-bulks of flesh, he would not have been surprised that this <i>halakha</i> also applies to pieces of flesh that amount together to the size of a <i>tarta</i> or a sifter.
+
+### Part 25
+Rav Oshaya <b>said to</b> Rabbi Ami: <b>Does the Master teach</b> this <i>halakha</i> <b>with regard to the latter clause</b> of the mishna but not with regard to the first section of the mishna that discusses the case of a complete olive-bulk of flesh? Rabbi Ami <b>said to him: Yes. But did Ulla say to you</b> this halakhic statement of Rabbi Yoḥanan in Babylonia <b>with regard to the first clause</b> of the mishna? Rav Oshaya <b>said to him: Yes.</b> Rabbi Ami <b>said to him:</b> If so, Rav Naḥman was justified in his surprise at the <i>halakha</i> of Rabbi Yoḥanan. <b>By God,</b> even <b>if Joshua, son of Nun, had said</b> this <i>halakha</i> <b>to me in his name,</b> i.e., from his own mouth, <b>I would not have listened to him.</b>
+
+### Part 26
+<b>When Ravin and all those descending</b> from Eretz Yisrael <b>came</b> to Babylonia, <b>they stated</b> this <i>halakha</i> of Rabbi Yoḥanan <b>with regard to the first clause</b> of the mishna. The Gemara objects: <b>But</b> the matter is <b>difficult.</b> If an olive-bulk of flesh is nullified by being severed with a knife, the same should be true for larger measurements, such as a <i>tarta</i>, which is unreasonable, as people would not usually disregard such a large amount. The Gemara resolves this difficulty <b>in accordance with that which Rav Pappa said</b> with regard to a different matter:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

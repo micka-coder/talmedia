@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Au contraire,</b> Moise a administre le serment de cette maniere <b>afin qu'il n'y ait</b> aucune possibilite de la <b>nullite de leur serment.</b> Un serment prete avec le consentement du public ne peut etre dissous. Dans ce cas, Moise et Dieu constituent le public qui donne son consentement au serment prete au peuple. Cest la raison pour laquelle Moise a insiste pour que le serment soit prete selon sa conscience et celle de Dieu ; ce nest pas parce quil y avait une possibilite que le peuple prete le serment selon une signification privee.
+
+### Partie 2
+§ La mishna enseigne en ce qui concerne un serment sur une question impossible, par exemple : Si je n'ai pas vu un chameau voler dans les airs, ou : <b>Si je n'ai pas vu un serpent</b> aussi grand <b>que la poutre du pressoir a olives.</b> La Gemara demande : <b>Et</b> n'y a-t-il <b>pas de serpents</b> aussi gros ? <b>Mais n'y avait-il pas un certain</b> serpent <b>pendant les annees</b> du regne <b>du roi Shapur, un</b> serpent <b>qui</b> pouvait <b>contenir,</b> c'est-a-dire avaler, <b>dix etables de paille ?</b>
+
+### Partie 3
+<b>Shmuel dit :</b> La taille du serpent n'est pas le sujet de l'analogie. Le serment fait reference <b>a</b> un serpent qui etait <b>plat [<i>taruf</i>]</b> comme la poutre d'un pressoir a olives. La Gemara demande : <b>Ne sont-ils pas tous plats ?</b> La Gemara explique : Les serpents ont le dessous plat. Ce serment fait reference <b>a</b> un serpent <b>dont le dos est plat.</b>
+
+### Partie 4
+§ La mishna enseigne : Si l'on dit : Sur mon <b>serment, je mangerai ce pain,</b> et a dit plus tard : Sur mon <b>serment je ne le mangerai pas,</b> le premier serment est un serment sur une enonciation, et le second est un serment fait en vain. S'il mangeait le pain, il violait l'interdiction de faire un serment en vain. S'il ne l'a pas mange, il a viole l'interdiction de briser un serment sur une parole. La Gemara demande : <b>Maintenant,</b> s'il ne l'a pas mange, <b>il est responsable car</b> il a viole son <b>serment sur une enonciation. N'est-il pas</b> egalement <b>responsable pour un serment</b> prononce <b>en vain ? Un serment a ete prononce en vain</b> lorsqu'il a fait le serment de ne pas manger le pain, car cela necessitait une violation du serment qu'il avait fait de le manger.
+
+### Partie 5
+<b>Rabbi Yirmeya a dit : Enseigne</b> la mishna avec cette emendation : S'il ne l'a pas mange, il a <b>egalement</b> viole l'interdiction <b>de ne pas</b> rompre <b>un serment sur un enonce.</b>
+
+### Partie 6
+<strong>MISHNA : </strong> Par opposition aux <i>halakhot</i> d'un serment de temoignage, qui seront abordes dans le chapitre suivant, les <i>halakhot</i> d'<b>un serment sur une enonciation s'appliquent aux hommes et aux femmes, aux parents et aux non-parents, a ceux qui sont aptes</b> a temoigner <b>et a ceux qui sont disqualifies,</b> que le serment soit prete <b>en presence d'un tribunal ou non,</b> c'est-a-dire. e., quand on prete serment <b>de son propre chef,</b> de sa propre initiative. <b>Et pour</b> avoir viole un serment <b>intentionnellement</b> on est <b>responsable</b> de recevoir des <b>coups de fouet, et pour</b> l'avoir fait <b>involontairement</b> on est responsable d'apporter <b>une offrande degressive.</b>
+
+### Partie 7
+La responsabilite pour <b>un serment</b> prete <b>en vain s'applique aux hommes et aux femmes, aux parents et aux non-parents, a ceux qui sont aptes</b> a temoigner <b>et a ceux qui sont disqualifies,</b> que le serment soit prete <b>en presence d'un tribunal ou non en presence d'un tribunal, et</b> egalement lorsqu'on prete un serment <b>sur soi-meme. Et pour</b> violer un serment <b>intentionnellement</b> on est <b>responsable</b> de recevoir des <b>coups de fouet, et pour</b> le faire <b>involontairement</b> il est <b>exempte.</b>
+
+### Partie 8
+En ce qui concerne <b>ceci,</b> un serment sur une enonciation, <b>et cela,</b> un serment fait en vain, meme si <b>il est administre le serment par d'autres personnes,</b> il est <b>responsable.</b> Par exemple, si quelqu'un a dit : <b>Si je n'ai pas mange aujourd'hui, ou : Je n'ai pas mis de phylacteres aujourd'hui,</b> et qu'un autre lui dit : <b>Je te fais le serment</b> que ta declaration est vraie, <b>et</b> le premier <b>a dit : Amen,</b> il est <b>responsable</b> si la declaration etait fausse.
+
+### Partie 9
+<strong>GEMARA:</strong> <b>Shmuel dit : Quiconque repond amen apres</b> s'etre vu administrer <b>un serment est comme celui qui exprime un serment avec sa</b> propre <b>bouche, comme il est ecrit</b> dans le contexte du serment administre a une <i>sota</i>, une femme soupconnee par son mari d'avoir ete infidele : <b>"Et la femme dira : Amen, amen"</b> (Nombres 5:22).
+
+### Partie 10
+<b>Rav Pappa a dit au nom de Rava :</b> Une deduction de <b>la mishna et une <i>baraita</i> egalement</b> soutiennent ceci lorsqu'elles sont lues <b>precisement, comme il est enseigne</b> dans la mishna (30a) : <b>Le serment de temoignage est pratique a l'egard des hommes, mais pas a l'egard des femmes ; a l'egard des non-parents</b> des plaideurs, <b>mais pas a l'egard des parents ; a l'egard</b> de ceux qui sont <b>aptes</b> a temoigner <b>mais pas a l'egard</b> de ceux qui sont <b>inaptes</b> a temoigner en raison d'une transgression qu'ils ont commise. <b>Et</b> le serment de temoignage <b>n'est pratique qu'a l'egard</b> de ceux qui sont <b>aptes a temoigner. Et</b> ce serment s'applique aussi bien <b>en presence d'un tribunal que hors presence d'un tribunal,</b> c'est-a-dire lorsque le temoin prete le serment <b>de lui-meme</b> qu'il n'a aucune connaissance de l'affaire. <b>Mais</b> si un serment est prete aux temoins <b>par d'autres personnes, ils ne sont pas responsables jusqu'a ce qu'ils nient</b> la connaissance de l'affaire <b>en presence d'un tribunal</b> et pretent serment a cet effet ; c'est <b>la declaration de Rabbi Meir.</b>
+
+### Partie 11
+Avant d'enoncer la deduction de la mishna, Rav Pappa cite la <i>baraita</i>. <b>Et</b> il <b>est enseigne dans un <i>baraita</i> :</b> En ce qui concerne <b>un serment de temoignage, comment</b> est-on susceptible d'apporter une offrande glissante ? Une personne <b>a dit aux temoins : Venez et temoignez pour moi.</b> Ils ont repondu : Sur notre <b>serment, nous ne connaissons aucun temoignage qui te concerne,</b> c'est-a-dire que nous n'avons aucune connaissance de la question. <b>Alternativement, ils ont dit : Nous ne connaissons aucun temoignage qui vous concerne,</b> et il leur a dit : <b>Je vous fais preter serment, et ils lui ont dit : Amen. Que</b> ce serment ait ete prete <b>en presence d'un tribunal</b> ou <b>que ce ne soit pas en presence d'un tribunal, que</b> il ait ete prete par chaque temoin <b>par lui-meme</b> ou <b>que ce soit <b>par d'autres, des lors qu'ils ont nie</b> connaitre un temoignage qu'ils connaissaient en fait, ils <b>sont responsables;</b> telle est <b>la declaration de Rabbi Meir.</b>
+
+### Partie 12
+Rav Pappa demande : La mishna et le <i>baraita</i> <b>difficiles,</b> car ils se contredisent <b>l'un l'autre ?</b> Selon la mishna, on est responsable lorsque le serment est prete par d'autres personnes seulement si cela a lieu en presence d'un tribunal, alors que selon le <i>baraita</i> on est responsable meme en dehors de la presence d'un tribunal. <b>Au contraire, n'est-il pas</b> correct d'en <b>conclure</b> que <b>cette</b> affirmation dans le <i>baraita</i>, ou il est responsable meme pas en presence d'un tribunal, se refere a celui <b>qui a repondu amen</b> au serment administre. <b>Cette</b> affirmation de la mishna fait reference a celui <b>qui n'a pas repondu amen</b> et qui est donc responsable uniquement en presence d'un tribunal ? La Gemara affirme : <b>Concluez-en</b> qu'il en est ainsi.
+
+### Partie 13
+<b>Ravina a dit au nom de Rava : La mishna qui se trouve ici</b> (29b) <b>aussi</b> peut etre lue <b>precisement</b> pour appuyer ce point. <b>Comme il est enseigne</b> dans la mishna : Les <i>halakhot</i> de <b>un serment sur un enonce s'appliquent aux hommes et aux femmes, aux parents et aux non-parents, a ceux qui sont aptes</b> a temoigner <b>et a ceux qui sont disqualifies,</b> que le serment soit prete <b>en presence d'un tribunal ou non,</b> c'est-a-dire lorsqu'on prete serment <b>de son propre chef,</b> de sa propre initiative. Ravina enonce sa deduction : De sa propre initiative, <b>oui,</b> mais administre <b>par d'autres, non. Et</b> il est <b>enseigne</b> dans <b>la derniere clause</b> de la mishna : En ce qui concerne <b>ceci,</b> un serment sur un enonce, <b>et cela,</b> un serment fait en vain, meme si <b>il est administre le serment par d'autres,</b> il est <b>responsable.</b>
+
+### Partie 14
+Ces declarations de la mishna sont <b>difficiles,</b> car elles se contredisent <b>les unes les autres. Au contraire, n'est-il pas</b> correct d'en <b>conclure</b> que <b>cette</b> derniere clause de la mishna fait reference a celui <b>qui a repondu amen</b> au serment administre. <b>Cette</b> premiere clause fait reference a celui <b>qui n'a pas repondu amen</b> et n'est donc responsable qu'en presence d'un tribunal.
+
+### Partie 15
+La Gemara demande : <b>Mais</b> puisque sa declaration peut etre derivee de sources tannaitiques, <b>Que nous enseigne Shmuel ?</b> La Gemara repond : <b>Il nous enseigne la lecture precise</b> <b>de la mishna.</b> Comme cette <i>halakha</i> n'est pas enoncee explicitement dans la mishna, Shmuel a juge bon de l'enoncer.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

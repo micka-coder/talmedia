@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Et</b> ensuite <b>apporte</b> le sang <b>vers l'</b> <b>altar</b> d'or dans le Sanctuaire et y a asperge le sang, comme requis (voir Levitique 16 : 18), <b>mais</b> par la suite <b>apporte</b> le reste du sang <b>dans</b> vers le Rideau separant le Sanctuaire du Saint des Saints, <b>qu'est-ce que</b> le <i>halakha</i> ?
+
+### Partie 2
+Rava explique les deux cotes du dilemme : disons-nous que <b>ici</b> la zone du Rideau et de l'autel d'or <b>est certainement un seul endroit,</b> puisqu'ils sont tous deux dans le Sanctuaire, et donc le sang ne doit pas etre disqualifie en etant ramene vers le Rideau ? <b>Ou peut-etre,</b> puisque <b>on appelle</b> la prise du sang vers l'autel d'or : <b>Sortir,</b> dans le verset : "Et il sortira vers l'autel" (Levitique 16:18), son retour au Rideau devrait etre considere comme une entree, et donc le sang devrait etre disqualifie ? Aucune reponse n'a ete trouvee, et par consequent la Guemara declare que ces dilemmes <b>doivent rester</b> non resolus.
+
+### Partie 3
+§ La mishna enseigne que les Sages sont en desaccord quant a la <i>halakha</i> dans un cas ou le pretre portant le sang d'une offrande pour le peche dont le placement du sang est sur l'autel externe <b>est entre</b> dans le Sanctuaire <b>pour expier</b> par aspersion, mais en pratique le pretre n'a pas reellement asperge le sang. Selon Rabbi Eliezer, le sang est disqualifie, tandis que Rabbi Shimon soutient que le sang n'est disqualifie que si le pretre l'asperge dans le Sanctuaire. A ce sujet, il <b>est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit : Il est dit ici :</b> "Et toute offrande pour le peche, dont une partie du sang est apportee dans la Tente de la Rencontre <b>pour faire l'expiation dans le Sanctuaire,</b> ne sera pas mangee" (Levitique 6:23), <b>et il est dit ici,</b> en ce qui concerne le service du Grand Pretre a Yom Kippour : <b>"Et il n'y aura pas d'homme dans la Tente de la Rencontre quand il entrera pour faire l'expiation dans le Sanctuaire,</b> jusqu'a ce qu'il en sorte" (Levitique 16:17).
+
+### Partie 4
+Rabbi Eliezer explique : <b>De meme que la,</b> en ce qui concerne Yom Kippour, l'expression "lorsqu'il entre pour faire l'expiation" fait reference <b>a</b> l'etape <b>ou</b> il <b>n'a pas</b> encore <b>fait l'expiation, de meme ici, </b> en ce qui concerne la disqualification du sang apporté A l'intérieur du Sanctuaire, la phrase "pour expier dans le Sanctuaire" se réfère <b>A une situation oA¹ le sang entre dans le Sanctuaire A un moment <b>oA¹</b> le prêtre <b>n'a pas</b> encore <b>exprimé. </b>
+
+### Partie 5
+A l'inverse, <b>Rabbi Shimon dit : Il est dit ici : "Pour expier"</b> (Levitique 6:23), <b>et il est dit ici,</b> en ce qui concerne la conclusion du service de Yom Kippour : <b>"Et le taureau du sacrifice pour le peche et le bouc du sacrifice pour le peche, dont le sang a ete apporte en expiation</b> dans le sanctuaire, seront portes hors du camp, et ils bruleront au feu" (Levitique 16:27). <b>De meme que la,</b> l'expression "pour expier" se refere <b>a</b> l'etape <b>quand</b> il a deja <b>experimente,</b> comme le taureau et le bouc de Yom Kippour sont brules apres que leur sang a ete asperge, <b>Aussi ici,</b> l'expression "expier" se refere <b>a</b> une situation <b>ou</b> il a deja <b>attaque,</b> alors que le simple fait d'apporter le sang dans le Sanctuaire ne le disqualifie pas.
+
+### Partie 6
+La Gemara s'interroge : <b>A propos de quel</b> principe <b>Rabbi Eliezer et Rabbi Shimon <b>sont en desaccord ?</b> La Guemara explique qu'un <b>Sage,</b> Rabbi Eliezer, <b>soutient</b> que <b>on derive</b> un cas de <b>sortie,</b> c'est-a-dire, le sang d'une offrande pour le peche dont le placement du sang est sur l'autel exterieur, qui ne peut etre apporte a l'interieur du Sanctuaire, <b>de</b> une autre interdiction de <b>sortie,</b> l'interdiction d'entrer dans le Sanctuaire ; <b>mais on ne derive pas</b> un cas de <b>sortie du</b> taureau et du bouc de Yom Kippour, dont le sang est apporte <b>a l'interieur</b> du Sanctuaire.
+
+### Partie 7
+<b>Et</b> un <b>Sage,</b> Rabbi Shimon, <b>soutient</b> que <b>on derive</b> un <i>halakha</i> impliquant <b>un animal,</b> c'est-a-dire, une offrande pour le peche dont le placement du sang est sur l'autel exterieur, <b>de</b> une autre <i>halakha</i> impliquant <b>un animal,</b> le taureau et le bouc de Yom Kippour ; <b>mais on ne derive pas</b> un cas de <b>un animal de</b> une interdiction impliquant <b>une personne.</b>
+
+### Partie 8
+§ La mishna enseigne que <b>Rabbi Yehuda dit :</b> Si le pretre a introduit le sang dans le Sanctuaire sans le vouloir, le sang reste propre a la presentation. La Guemara en deduit : <b>Mais</b> si son introduction du sang dans le Sanctuaire etait <b>intentionnelle,</b> il est <b>disqualifie. </La Guemara analyse cette <i>halakha</i> : Le sang est-il disqualifie uniquement <b>dans</b> un cas <b>ou</b> il a apporte le sang dans le Sanctuaire et <b>s'est amende,</b> en l'aspergeant a l'interieur du Sanctuaire, comme le pretend Rabbi Eliezer dans la mishna ; <b>ou</b> meme <b>dans</b> un cas <b>ou</b> il a apporte le sang et <b>n'a pas</b> encore <b>s'amende,</b> conformement a l'opinion de Rabbi Shimon ?
+
+### Partie 9
+<b>Rabbi Yirmeya a dit</b> que l'on peut citer une preuve a partir d'un <i>baraita</i> : <b>Du</b> fait <b>qu'il est dit</b> en ce qui concerne le service de Yom Kippour : <b>"Et le taureau du sacrifice pour le peche et le bouc du sacrifice pour le peche, dont le sang a ete apporte en expiation dans le Sanctuaire,</b> on les emmenera hors du camp, et on brulera au feu leurs peaux, leur chair et leurs excrements ; et celui qui les brulera lavera ses vetements" (Levitique 16:27""28), on peut se poser la question suivante : <b>Pourquoi</b> le verset doit-il preciser : "Et celui qui brule"?</b>
+
+### Partie 10
+La Guemara interrompt sa citation de la <i>baraita</i> pour remettre en question sa ligne d'enquete. <b>Pourquoi</b> le verset doit-il dire : "Et celui qui brule"?</b> On peut repondre que ce terme <b>etait necessaire pour lui-meme,</b> pour enseigner que celui qui brule le taureau et le bouc de Yom Kippour est ainsi rendu rituellement impur. <b>Au contraire,</b> c'est ce que dit la <i>baraita</i> : <b>Pourquoi</b> faut-il que <b>le verset declare</b> deux fois : <b>"offrande de peche", "offrande de peche", </b> en ce qui concerne le taureau et le bouc ? Il aurait pu se contenter de dire : Le taureau et le bouc du sacrifice pour le peche.
+
+### Partie 11
+La <i>baraita</i> repond <b>que</b> si le terme "offrande pour le peche" n'etait apparu qu'une seule fois, <b>nous</b> aurions <b>appris uniquement a propos</b> du <b>taureau et</b> du <b>chevre de Yom Kippour qui sont brules a la place des cendres</b> qu'ils <b>rendent rituellement impurs</b> les <b>vetements</b> de celui qui les porte. <b>D'ou vient</b> qu'il en est de meme pour les <b>autres</b> offrandes pour le peche qui sont <b>brulees ? Le verset dit : "Offrande de peche", "offrande de peche", </b> deux fois, pour inclure toutes les offrandes de peche qui sont brulees. C'est ce qu'affirme Rabbi Yehuda.</b>
+
+### Partie 12
+<b>Rabbi Meir dit : Cette</b> derivation a partir de la mention repetee de l'offrande pour le peche <b>n'est pas necessaire. Maintenant</b> considerez, le verset <b>declare : "Et le taureau de l'offrande pour le peche et le bouc de l'offrande pour le peche</b> - seront pris en dehors du camp." <b>Du fait que</b> il n'y a <b>pas besoin</b> que le verset declare</b> en ce qui concerne ces offrandes : "Dont le sang a été apporté <b>pour expier</b> dans le Sanctuaire, <b>pourquoi</b> le verset doit-il néanmoins <b>préciser : "Pour expier"?</b> Ceci <b>enseigne a propos de toutes</b> les offrandes <b>qui expient</b> a l'interieur du Sanctuaire <b>que celui qui les brule rend</b> ses <b>vetements impurs.</b>
+
+### Partie 13
+La Guemara note : <b>Et Rabbi Yehouda n'apprend</b> rien du terme <b>"expier".</b> Quelle est la raison</b> de cela ? N'est-ce pas parce qu'il exige</b> cette phrase <b>pour une analogie verbale,</b> pour en deduire que le sang d'une offrande pour le peche externe qui a ete pris a l'interieur du Sanctuaire est disqualifie seulement si le pretre l'a asperge, conformement a l'opinion de Rabbi Shimon ? Cela repond a la question de la Guemara, car Rabbi Yehuda suit manifestement l'opinion de Rabbi Shimon.
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

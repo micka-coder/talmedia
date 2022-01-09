@@ -1,0 +1,15 @@
+
+### Part 1
+<b>by fire, and shall we not weep?</b> Rabbi Akiva <b>said to them: That is why I am laughing. If for those who violate His will,</b> the wicked, it is <b>so</b> and they are rewarded for the few good deeds they performed, <b>for those who perform His will, all the more so</b> will they be rewarded.
+
+### Part 2
+The Gemara relates another incident involving those Sages. <b>On another occasion they were ascending to Jerusalem</b> after the destruction of the Temple. <b>When they arrived at Mount Scopus</b> and saw the site of the Temple, <b>they rent their garments</b> in mourning, in keeping with halakhic practice. <b>When they arrived at the Temple Mount, they saw a fox that emerged from</b> the site of <b>the Holy of Holies. They began weeping, and Rabbi Akiva</b> was <b>laughing. They said to him: For what</b> reason <b>are you laughing?</b> Rabbi Akiva <b>said to them: For what</b> reason <b>are you weeping? They said to him:</b> This is the <b>place</b> concerning <b>which it is written: “And the non-priest who approaches shall die”</b> (Numbers 1:51), <b>and now foxes walk in it; and shall we not weep?</b>
+
+### Part 3
+Rabbi Akiva <b>said to them: That is why I am laughing, as it is written,</b> when God revealed the future to the prophet Isaiah: <b>“And I will take to Me faithful witnesses to attest: Uriah the priest, and Zechariah the son of Jeberechiah”</b> (Isaiah 8:2). <b>Now what is the connection between Uriah and Zechariah?</b> He clarifies the difficulty: <b>Uriah</b> prophesied <b>during the First Temple</b> period, <b>and Zechariah</b> prophesied <b>during the Second Temple</b> period, as he was among those who returned to Zion from Babylonia. <b>Rather, the verse established that</b> fulfillment of <b>the prophecy of Zechariah</b> is <b>dependent on</b> fulfillment of <b>the prophecy of Uriah.</b>
+
+### Part 4
+<b>In</b> the prophecy of <b>Uriah it is written: “Therefore, for your sake Zion shall be plowed as a field,</b> and Jerusalem shall become rubble, and the Temple Mount as the high places of a forest” (Micah 3:12), where foxes are found. There is a rabbinic tradition that this was prophesied by Uriah. <b>In</b> the prophecy of <b>Zechariah it is written: “There shall yet be elderly men and elderly women sitting in the streets of Jerusalem”</b> (Zechariah 8:4). <b>Until the prophecy of Uriah</b> with regard to the destruction of the city <b>was fulfilled I was afraid that the prophecy of Zechariah would not be fulfilled,</b> as the two prophecies are linked. <b>Now that the prophecy of Uriah was fulfilled, it</b> is <b>evident that the prophecy of Zechariah</b> remains <b>valid.</b> The Gemara adds: The Sages <b>said to him,</b> employing <b>this formulation: Akiva, you have comforted us; Akiva, you have comforted us.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

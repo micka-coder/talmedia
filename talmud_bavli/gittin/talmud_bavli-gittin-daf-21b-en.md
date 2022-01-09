@@ -1,0 +1,54 @@
+
+### Part 1
+<b>it is not possible to cut it off,</b> as it is certainly prohibited to cut off the hand of a slave, and he therefore must give her the slave. <b>But</b> if he wrote the bill of divorce on <b>the horn of a cow, let him cut it off and give it to her.</b> Why does the mishna state that he must give her the cow?
+
+### Part 2
+The Gemara answers: <b>The verse states: “And he writes</b> her a scroll of severance, <b>and gives it</b> in <b>her</b> hand” (Deuteronomy 24:1), meaning that <b>something</b> is valid as a bill of divorce <b>when it is lacking only writing and giving, excluding this,</b> a cow’s horn, <b>which is lacking writing, cutting, and giving.</b> Since the additional step of cutting would be required in order for him to give her the horn alone, the horn would not be a valid bill of divorce, so he must give her the cow.
+
+### Part 3
+§ The mishna taught that <b>Rabbi Yosei HaGelili says</b> that a bill of divorce may not be written on something living, nor on food. The Gemara asks: <b>What is the reason for Rabbi Yosei HaGelili’s</b> opinion? <b>As it is taught</b> in a <i>baraita</i>: It is said in the Torah with regard to a bill of divorce: “And he writes her <b>a scroll</b> of severance” (Deuteronomy 24:1). From the word “scroll,” <b>I have</b> derived <b>only</b> that <b>a scroll</b> is valid; <b>from where</b> do I derive that it is correct <b>to include all objects</b> as valid materials upon which a bill of divorce may be written? <b>The verse states: “And he writes her,” in any case,</b> i.e., a bill of divorce can be written on any type of surface. <b>If so, what is</b> the meaning when <b>the verse states “scroll”?</b> This teaches: <b>Just as a scroll is neither alive nor food, so too,</b> a bill of divorce may be written on <b>any object that is neither alive nor food.</b> This is why Rabbi Yosei HaGelili deems invalid a bill of divorce written on a living being.
+
+### Part 4
+The Gemara asks: <b>And</b> how do <b>the Rabbis,</b> who disagree and say that a bill of divorce may be written even on a living creature or on food, interpret the verse? They contend: <b>If</b> the verse <b>were written:</b> And he shall write for her <b>in the scroll [<i>besefer</i>],</b> then it would be <b>as you said,</b> and it would indicate the type of surface on which the bill of divorce may be written. <b>Now that it is written: “Scroll [<i>sefer</i>],” it comes to</b> teach that a mere <b>account of the matters [<i>sefirat devarim</i>]</b> is required. In other words, <i>sefer</i> is referring not to the surface on which a bill of divorce must be written, but rather, to the essence of the bill of divorce. The verse teaches that the bill of divorce must contain particular content.
+
+### Part 5
+The Gemara continues: <b>And the Rabbis, what do they do with this</b> phrase in the verse: <b>“And he writes</b> her”? The Gemara answers: <b>For them,</b> that phrase <b>is required</b> to teach the principle that a woman <b>is divorced</b> only <b>via writing,</b> i.e., a bill of divorce, <b>and she is not divorced via</b> giving <b>money.</b> It might <b>enter your mind to say: I should juxtapose leaving</b> marriage, i.e., divorce, <b>to becoming</b> married, i.e., betrothal, and I will say that <b>just as becoming</b> married <b>is</b> effected <b>with</b> giving <b>money, so too, leaving</b> marriage can <b>also</b> be effected <b>with</b> giving <b>money.</b> Therefore, the Torah <b>teaches us:</b> “And he writes her”; divorce can be effected only with a written bill of divorce.
+
+### Part 6
+The Gemara asks: <b>And the other</b> <i>tanna</i>, Rabbi Yosei HaGelili, from where does he derive this reasoning? <b>He derives it from</b> the phrase <b>“scroll of severance,”</b> which teaches that <b>a scroll,</b> i.e., a written document, <b>severs her</b> from her husband <b>and nothing else severs her</b> from him.
+
+### Part 7
+The Gemara asks: <b>And</b> those who hold <b>the other</b> opinion, the Rabbis, how do they explain this phrase? <b>For them,</b> the phrase “scroll of severance” <b>is required</b> to teach that a bill of divorce must be <b>a matter that severs</b> all connection <b>between him and her, as it is taught</b> in a <i>baraita</i>: If a man says to his wife: <b>This is your bill of divorce, on the condition that you will not</b> ever <b>drink wine,</b> or <b>on condition that you will never go to your father’s house, that is not severance,</b> and the bill of divorce is not valid. If a bill of divorce imposes a condition upon the woman that permanently binds her to her husband, her relationship with her husband has not been completely severed, which is a prerequisite for divorce. If, however, he imposes a condition <b>until thirty days</b> have passed, or for any other limited period of time, <b>that is severance.</b> The bill of divorce is valid, as the relationship will be completely terminated at the end of the thirty-day period.
+
+### Part 8
+The Gemara asks: <b>And the other</b> <i>tanna</i>, Rabbi Yosei HaGelili, from where does he derive that a stipulation without a termination point invalidates the divorce? <b>From</b> the fact that instead of using the term <b><i>karet</i>,</b> the verse uses the more expanded term <b><i>keritut</i>.</b> Inasmuch as both terms denote severance, using the longer term teaches us two things: Divorce can be effected only via writing and not through money, and divorce requires total severance.
+
+### Part 9
+<b>And the other,</b> the Rabbis, what do they derive from this? The Gemara answers: <b>They do not derive</b> anything from the expansion of <b><i>karet</i></b> to <b><i>keritut</i>.</b>
+
+### Part 10
+<strong>MISHNA:</strong> <b>One may not write</b> a bill of divorce <b>on</b> anything that is <b>attached to the ground.</b> If <b>one wrote it on</b> something that was <b>attached</b> to the ground, and afterward he <b>detached it, signed it, and gave it to her,</b> then it is <b>valid. Rabbi Yehuda deems</b> a bill of divorce <b>invalid unless its writing and its signing</b> were performed when it was already <b>detached.</b>
+
+### Part 11
+<b>Rabbi Yehuda ben Beteira says: One may not write</b> a bill of divorce <b>on erased paper or on unfinished leather</b> [<b><i>diftera</i></b>], <b>because</b> writing on these surfaces <b>can be forged. And the Rabbis deem valid</b> a bill of divorce that was written on either of these items.
+
+### Part 12
+<strong>GEMARA:</strong> The mishna taught: If <b>one wrote it on</b> something that was <b>attached</b> to the ground, and detached it before he gave it to her, then it is valid. The Gemara challenges: <b>But didn’t you say</b> in <b>the first clause</b> of the mishna that <b>one may not write</b> a bill of divorce on something that is attached to the ground? <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The mishna’s statement that if something was detached and signed then it is a valid bill of divorce <b>is</b> applicable only <b>when one left a place for the essential</b> part of the document. He did not write the entire bill of divorce while it was attached to the ground. Rather, he wrote only the standard part of the bill of divorce. However, he left a place for the essential part of the bill of divorce, which includes the names of the man and woman, and wrote that part only after it was detached.
+
+### Part 13
+<b>And so Rabbi Elazar says</b> that <b>Rabbi Oshaya says: And this is</b> a case <b>where he left a place for the essential</b> part of the document. <b>And so Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: And this is when he left a place for the essential</b> part of the document. <b>And</b> all these Sages hold that the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Elazar, who says: Witnesses of the transmission</b> of the bill of divorce <b>effect</b> the divorce. It is not the signatures of the witnesses on a bill of divorce that validate it. Rather, the divorce is effected by the transmission of the document in the presence of witnesses. Therefore, the phrase: “And he writes” (Deuteronomy 24:1), must be referring to the writing of the bill of divorce and not to the signing of the witnesses, and the restrictions derived from this verse will apply to the writing of the bill of divorce, so the essential part may not be written on something that is attached to the ground.
+
+### Part 14
+<b>And this is what</b> the mishna <b>is saying: One may not write</b> even the <b>standard</b> part on something that is attached to the ground <i>ab initio</i>, <b>lest he write</b> the <b>essential</b> part of the document in this manner as well. However, if <b>he wrote the standard</b> part while it was attached to the ground, <b>and then detached it, wrote the essential</b> part, <b>and gave it to her,</b> it is <b>valid.</b>
+
+### Part 15
+<b>And Reish Lakish says:</b> The mishna should not be understood in that way, where the phrase: And signed it, is referring to the writing of the essential part, since <b>we learned</b> that <b>they signed it,</b> which is referring to the signatures of the witnesses. And <b>it is</b> taught in accordance with the opinion of <b>Rabbi Meir,</b> who <b>says</b> that <b>the signatory witnesses</b> on the bill of divorce <b>effect</b> the divorce.
+
+### Part 16
+<b>And this is what</b> the mishna <b>is saying: One may not write the essential</b> part on something that is attached to the ground due to a rabbinic <b>decree, lest he</b> also <b>have</b> the witnesses <b>sign</b> while it is attached. However, even if <b>he wrote the essential</b> part while it was attached, then <b>detached it, had it signed, and gave it to her,</b> it is <b>valid.</b> According to Rabbi Meir, when the verse states: “And he writes her,” it is referring to when he has the bill of divorce signed. Therefore, by Torah law, the limitation that it not be attached while he writes applies only to the signing but not to the writing. The Sages decreed that the essential part of the bill of divorce also not be written while it is attached to the ground, but if he violated this decree, it is still valid after the fact.
+
+### Part 17
+§ In connection with this discussion, the Gemara mentions several <i>halakhot</i> that are affected by items being attached to the ground or detached. If <b>he wrote</b> the bill of divorce <b>on the clay of a perforated pot [<i>atzitz</i>],</b> which is considered to be attached to the ground, then it is <b>valid, as he</b> can <b>take</b> this pot <b>and give it to her.</b> However, if he wrote it <b>on a leaf of</b> a plant growing in <b>a perforated pot,</b> then what is the <i>halakha</i>? <b>Abaye says:</b> It is <b>valid. And Rava says:</b> It is <b>invalid.</b> The Gemara clarifies their dispute in detail: <b>Abaye says</b> that it is <b>valid</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

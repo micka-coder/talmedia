@@ -1,0 +1,27 @@
+
+### Part 1
+<b>what does he make of it,</b> i.e., what does he derive from it? <b>He requires it for that</b> which was stated <b>by Rav Naḥman, as Rav Naḥman says</b> that <b>Rabba bar Avuh says: From where</b> is it derived <b>that a leftover Paschal offering,</b> an animal consecrated but not ultimately sacrificed on Passover eve, <b>is sacrificed as a peace offering</b> afterward? It is derived from <b>that</b> which <b>is stated: “And you shall sacrifice the Passover offering unto the Lord, your God, of the flock and the herd.”</b> The verse is difficult: <b>But isn’t a Paschal offering brought only from the sheep and from the goats? Rather,</b> it is derived from here <b>that a leftover Paschal offering should be</b> sacrificed <b>as</b> an offering <b>brought</b> both <b>from the flock and from the herd,</b> i.e., a peace offering.
+
+### Part 2
+The Gemara asks: <b>But is it derived from here</b> that a leftover Paschal offering is sacrificed as a peace offering? <b>It is derived from</b> the verse <b>that Shmuel’s father</b> cites: <b>As it is written:</b> “And <b>if his offering for a sacrifice of peace offerings</b> to the Lord <b>is of the flock”</b> (Leviticus 3:6); <b>and Shmuel’s father said:</b> This teaches that an offering <b>that is brought</b> only <b>from the flock,</b> i.e., the Paschal offering, <b>will be a sacrifice of peace offerings.</b>
+
+### Part 3
+<b>But still</b> it must be asked: <b>Is it derived from here? It is derived from there,</b> from the verse cited in the following <i>baraita</i>. <b>And isn’t it taught</b> in a <i>baraita</i>: Even though the verse already states that peace offerings come from the flock, as it is written: “And if his offering for a sacrifice of peace offerings to the Lord be of the flock, male or female, he shall sacrifice it without blemish” (Leviticus 3:6), the verse goes on to specify: “If he bring a lamb for his offering…and if his offering be a goat” (Leviticus 3:7–12). The word <b>“lamb”</b> is written <b>to include the Paschal offering in</b> the requirement that the <b>fat tail</b> be sacrificed on the altar, which is written subsequently with regard to a peace offering (Leviticus 3:9), since this <i>halakha</i> is not mentioned in the verses concerning the Paschal offering.
+
+### Part 4
+The <i>baraita</i> continues: <b>When</b> the verse <b>states: “If</b> he brings <b>a lamb,”</b> it is <b>to include in all the mitzvot of peace offerings a Paschal offering whose</b> first <b>year has passed</b> and is therefore too old to be sacrificed as a Paschal offering, <b>and peace offerings brought due to a Paschal offering.</b> Specifically, this indicates <b>that they require placing hands</b> on the head of the offering, <b>libations, and the waving of</b> the <b>breast and thigh.</b>
+
+### Part 5
+<b>And when</b> the verse <b>states:</b> “And <b>if</b> his offering is a <b>goat,” it interrupted the</b> previous <b>matter</b> and <b>taught that the</b> sacrifice of <b>a goat does not require</b> that the <b>fat tail</b> be burned on the altar. In any event, the verse indicates that a Paschal offering that was disqualified as such because it has reached its second year, i.e., the leftover of a Paschal offering, is sacrificed as a peace offering. It may therefore be asked: Why are there three verses to indicate this one <i>halakha</i>?
+
+### Part 6
+<b>Rather,</b> none of these derivations are superfluous, as <b>three verses are written</b> that teach the <i>halakha</i> that a Paschal offering that is sacrificed not on Passover eve is sacrificed as a peace offering. <b>One</b> verse teaches this <i>halakha</i> in a case where <b>its time</b> of sacrifice, Passover eve, <b>has passed, and its</b> first <b>year has</b> also <b>passed,</b> disqualifying it for sacrifice as a Paschal offering. <b>And one</b> verse teaches the <i>halakha</i> in a case where <b>its time</b> of sacrifice <b>has passed, but not its</b> first <b>year. And</b> the third <b>one</b> teaches a case where <b>neither its time</b> of sacrifice <b>nor its</b> first <b>year has passed,</b> but it was sacrificed before Passover eve.
+
+### Part 7
+<b>And</b> all these verses <b>are necessary. As had the Merciful One written</b> only the case <b>where</b> both <b>its</b> first <b>year and its time</b> of sacrifice <b>have passed,</b> one could say that only such a Paschal offering should be sacrificed as a peace offering, <b>as it was completely rejected from</b> its status as <b>a Paschal offering; but</b> in a case where <b>its time</b> of sacrifice <b>has passed but its</b> first <b>year</b> has <b>not</b> passed, in <b>which</b> case it is still <b>fit to</b> be sacrificed as a Paschal offering on the <b>second <i>Pesaḥ</i>, I would say</b> that it is <b>not</b> sacrificed as a peace offering.
+
+### Part 8
+<b>And if</b> the Torah <b>had taught us</b> only that a leftover Paschal offering <b>whose time has passed but whose year has not passed</b> is sacrificed as a peace offering, one might think that this is <b>because</b> the Paschal offering <b>was rejected from the first <i>Pesaḥ</i>; but</b> in a case <b>where neither its time</b> of sacrifice <b>nor its</b> first <b>year have passed,</b> in <b>which</b> case it is still <b>fit to</b> be sacrificed as <b>a Paschal offering</b> on Passover eve, <b>I would say</b> that it is <b>not</b> sacrificed as a peace offering. Therefore, all three verses <b>are necessary.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

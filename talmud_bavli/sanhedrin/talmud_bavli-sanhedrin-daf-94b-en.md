@@ -1,0 +1,63 @@
+
+### Part 1
+<b>by means of an agent, the Holy One, Blessed be He, exacted retribution from him by means of an agent.</b>
+
+### Part 2
+<b>Pharaoh</b> blasphemed God, <b>as it is written</b> that he said to Moses and Aaron: <b>“Who is the Lord that I should obey His voice?”</b> (Exodus 5:2) <b>The Holy One, Blessed be He, Himself exacted retribution from him, as it is written: “And the Lord overthrew Egypt in the midst of the sea”</b> (Exodus 14:27), <b>and it is written: “You have trodden through the sea with Your horses”</b> (Habakkuk 3:15). <b>Sennacherib</b> blasphemed God by means of an agent, <b>as it is written: “By your messengers you have taunted the Lord”</b> (II Kings 19:23). <b>The Holy One, Blessed be He, exacted retribution from him by means of an agent, as it is written: “Then the angel of the Lord went forth and smote in the camp of the Assyrians one hundred and eighty-five thousand”</b> (II Kings 19:35).
+
+### Part 3
+<b>Rabbi Ḥanina bar Pappa raises a contradiction. It is written</b> that Sennacherib said: “And I will enter <b>into its farthest height”</b> (Isaiah 37:24), <b>and it is written</b> in a parallel verse that he said: “And I have entered <b>into its farthest lodge”</b> (II Kings 19:23). The Gemara resolves the contradiction. <b>That wicked person said: Initially, I will destroy</b> the earthly <b>dwelling place below,</b> i.e., the Temple, its farthest lodge, <b>and thereafter, I will destroy</b> the heavenly <b>dwelling place above,</b> its farthest height.
+
+### Part 4
+§ <b>Rabbi Yehoshua ben Levi says: What</b> is the meaning of that <b>which is written</b> in the statement of Rab-shakeh, emissary of Sennacherib: <b>“Have I now come up without the Lord against this place to destroy it? The Lord said to me: Go up against this land and destroy it”</b> (II Kings 18:25). <b>What is</b> this command to destroy the land? Rabbi Yehoshua ben Levi explains: It is referring to the fact <b>that he heard the prophet who said: “Since the people rejected the waters of Shiloah that flow slowly and rejoice with Rezin and the son of Remaliah.</b> Now therefore, behold, the Lord brings upon them…the king of Assyria” (Isaiah 8:6–7).
+
+### Part 5
+<b>Rav Yosef says: Were it not for the</b> Aramaic <b>translation of this verse I would not know what it is saying.</b> It is translated: <b>Since this people loathed the reign of the house of David that led them gently, like the waters of the Shiloah, which flow gently, and they preferred Rezin and the son of Remaliah,</b> who were kings from the northern kingdom of Israel. And the verse continues: “Now therefore, behold, the Lord brings upon them…the king of Assyria.”
+
+### Part 6
+<b>Rabbi Yoḥanan says: What</b> is the meaning of that <b>which is written: “The curse of the Lord is in the house of the wicked, but He blesses the habitation of the just”</b> (Proverbs 3:33)? <b>“The curse of the Lord is in the house of the wicked”; this is</b> a reference to <b>Pekah, son of Remaliah, who would eat forty <i>se’a</i> of fledglings for dessert</b> and would still not be satiated, as his property was cursed. <b>“But He blesses the habitation of the just”; this is</b> a reference to <b>Hezekiah, king of Judea, who would eat a <i>litra</i> of vegetables at</b> his <b>meal</b> and was satiated, as his property was blessed.
+
+### Part 7
+It is written in the verse: <b>“Now therefore, behold, the Lord brings up upon them the strong and abundant waters of the river, the king of Assyria”</b> (Isaiah 8:7). <b>And it is written: “And he shall sweep through Judea; he shall inundate and pass through, reaching even the neck”</b> (Isaiah 8:8). Rab-shakeh alluded to that prophecy when he said in the verse in Kings that the Lord said to destroy the land.
+
+### Part 8
+The Gemara asks: <b>But what is the reason</b> that Sennacherib <b>was punished</b> if he was merely fulfilling God’s command? The Gemara answers: <b>The prophet prophesied about</b> the destruction of the kingdom of Israel and the exile of <b>the ten tribes,</b> but <b>he directed his attention to</b> destroy <b>all of Jerusalem. The prophet came and said to him: “For there is no weariness [<i>mu’af</i> ] that is set [<i>mutzak</i>] against her”</b> (Isaiah 8:23). <b>Rabbi Elazar bar Berekhya says</b> that the verse is interpreted homiletically: <b>A nation</b> that is <b>weary [<i>ayef</i> ]</b> from its constant engagement <b>in Torah</b> study <b>is not delivered into the hands of one who oppresses [<i>metzik</i>] it.</b>
+
+### Part 9
+<b>What</b> is the meaning of the continuation of the verse, which states: <b>“Now the former has lightly afflicted [<i>hakel</i>] the land of Zebulun and the land of Naphtali but the latter has dealt a more grievous blow [<i>hikhbid</i>] by way of the sea, beyond the Jordan in the district [<i>gelil</i>] of the nations”?</b> The generation in Judea in the time of Hezekiah is <b>not like the former</b> generation of Ahaz, <b>who eased [<i>hekellu</i>] the yoke of Torah from upon</b> the people. <b>But</b> the <b>latter</b> generation of Hezekiah, <b>who intensified [<i>hikhbidu</i>] the yoke of Torah upon</b> the people, <b>is fit</b> for God <b>to perform</b> a miracle <b>for them like</b> the miracles performed for <b>those who crossed the</b> Red <b>Sea and those who trod</b> through <b>the Jordan</b> River. God is saying: <b>If</b> Sennacherib <b>reconsiders</b> his planned conquest, <b>good, but if</b> he does <b>not, I will render him wallowing [<i>galil</i>]</b> in shame <b>among the nations.</b>
+
+### Part 10
+The verse states: <b>“After these matters and this truth, Sennacherib, king of Assyria, came and entered Judea and encamped against the fortified cities and sought to breach them for himself”</b> (II Chronicles 32:1). The Gemara asks: Is <b>this gift [<i>rishna</i>],</b> the invasion of Sennacherib, appropriate compensation <b>for that gift [<i>pardashna</i>],</b> Hezekiah’s restoration of the Temple and the worship of God in Judea?
+
+### Part 11
+The Gemara explains: When the verse states: <b>“After</b> these <b>matters and</b> this <b>truth [<i>emet</i>],” after what</b> matters is the verse referring to? <b>Ravina says:</b> This is referring to <b>after the Holy One, Blessed be He, preempted and took an oath,</b> referenced with the term <i>emet</i>, that He will deliver the spoils of the army of the king of Assyria into the hands of Hezekiah. <b>And</b> this was because <b>He</b> had <b>said: If I say to Hezekiah: I will bring Sennacherib and I will deliver him into your hands; he will</b> then <b>say: I neither want him</b> delivered into my hands <b>nor do I want</b> the accompanying <b>fear</b> of <b>him.</b>
+
+### Part 12
+<b>Immediately, the Holy One, Blessed be He, preempted</b> Hezekiah <b>and took an oath:</b> I take an oath <b>that I will deliver him, as it is stated: “The Lord of hosts has taken an oath, saying: Is it not as I imagined it, so has it come to pass; and as I have proposed, so shall it arise, that I will break Assyria in My land, and upon My mountains subdue him [<i>avusennu</i>]; then shall his yoke depart from them, and his burden depart from its shoulder”</b> (Isaiah 14:24–25). <b>Rabbi Yoḥanan says</b> that <b>the Holy One, Blessed be He, said: Sennacherib and his entourage shall come and be transformed into</b> a feeding <b>trough [<i>evus</i>],</b> in the sense of a source of sustenance <b>for Hezekiah and his entourage.</b>
+
+### Part 13
+§ It is stated with regard to the downfall of Assyria: <b>“And it shall come to pass on that day, his burden shall be taken from on your shoulder, and his yoke from on your neck, and the yoke shall be destroyed due to fatness [<i>shamen</i>]”</b> (Isaiah 10:27). <b>Rabbi Yitzḥak Nappaḥa says: The yoke of Sennacherib was destroyed due to the oil [<i>shemen</i>] of Hezekiah that would burn in the synagogues and study halls</b> when the Jewish people were engaged in Torah study at night.
+
+### Part 14
+<b>What did</b> Hezekiah <b>do</b> to ensure Torah study? <b>He inserted a sword at the entrance of the study hall and said: Anyone who does not engage in Torah</b> study <b>shall be stabbed with this sword.</b> As a result, <b>they searched from Dan</b> in the north <b>to Beersheba</b> in the south, <b>and did not find an ignoramus.</b> They searched <b>from Gevat to Antipatris and did not find a male child, or a female child,</b> or <b>a man, or a woman who was not expert</b> even <b>in the</b> complex <b><i>halakhot</i> of ritual purity and impurity.</b>
+
+### Part 15
+<b>And</b> it is <b>about that generation</b> that the prophet <b>says: “And it shall come to pass in that day, that a man shall nourish a young calf and two sheep.</b> And it shall come to pass, from the abundance of milk that they produce, he shall eat butter, for butter and honey shall everyone eat, everyone who remains in the midst of the land” (Isaiah 7:21–22). <b>And</b> the prophet continues and <b>says: “And it shall come to pass in that day that every place where there were one thousand vines for one thousand silver coins, it shall be for briars and thorns”</b> (Isaiah 7:23). <b>Although one thousand vines are worth one thousand silver coins</b> and one could earn substantial profits through agricultural labor, the fields <b>will</b> grow <b>briars and thorns</b> due to neglect. The people of that generation were devoted to the study of Torah and engaged in labor only minimally to sustain themselves.
+
+### Part 16
+It is written: <b>“And your spoils shall be gathered like the gathering of the locusts;</b> as the advance of the locusts shall he advance” (Isaiah 33:4). <b>The prophet said to the Jewish people: Gather your spoils</b> from the army of Sennacherib. <b>They said to him:</b> Are we <b>to pillage</b> the spoils, each person for himself, <b>or</b> are we <b>to divide</b> the spoils with the monarchy? <b>He said to them:</b> Gather the spoils <b>like the gathering by the locusts. Just as</b> in <b>the gathering by the locusts, each and every one</b> of the locusts takes food <b>for itself, so too,</b> in gathering <b>your spoils, each and every one</b> of you shall take spoils <b>for himself.</b>
+
+### Part 17
+<b>They said to him:</b> Since the army of Sennacherib came to Jerusalem after its conquest of the kingdom of Israel, <b>isn’t the property of the ten tribes intermingled with it,</b> and therefore, gathering the spoils would be robbery? <b>He said to them: “As the advance of the locusts [<i>gevim</i>] shall he advance”</b> (Isaiah 33:4). <b>Just as these pools</b> of water <b>elevate a person up from</b> a state of <b>ritual impurity to</b> a state of <b>purity</b> through immersion, <b>so too the property of the Jewish people, once it falls into the hands of gentiles, it immediately purifies</b> the property, in the sense that it is no longer considered robbery to take it, as its owners despair of its recovery. This is <b>in accordance with</b> the statement <b>of Rav Pappa, as Rav Pappa says:</b> The property of <b>Ammon and Moab was purified through</b> the conquest of <b>Sihon.</b> Although the Torah rendered it prohibited to conquer the land of Ammon and Moab, once Sihon conquered their land, it was permitted for the Jewish people to conquer it.
+
+### Part 18
+§ <b>Rav Huna says: That wicked</b> Sennacherib <b>traveled ten journeys on that day, as it is stated: “He is come to Aiath, he is passed through Migron; at Michmas he deposited his baggage. They passed [<i>averu</i>] Mabara; they have taken up their lodging at Geba; Ramah trembles; Gibeath Shaul has fled. Cry with a shrill voice, daughter of Gallim; hearken, Laish; poor Anathoth. Madmenah is in flight; the inhabitants of Gebim flee to cover. This very day shall he halt at Nov; he shall shake his hand against the mountain of the daughter of Zion, the hill of Jerusalem”</b> (Isaiah 10:28–32). He traveled to all these places on the same day.
+
+### Part 19
+The Gemara asks: <b>Aren’t these more</b> than ten? The Gemara answers that in the verse: <b>“Cry with a shrill voice, daughter of Gallim,”</b> it is <b>the prophet who is saying it to the congregation of Israel: “Cry with a shrill voice, daughter of Gallim,” daughter of Abraham, Isaac, and Jacob, who performed mitzvot</b> as numerous <b>as the waves of the sea. “Hearken, Laish”; from this</b> king, Sennacherib, <b>fear not; but fear Nebuchadnezzar, the wicked who is likened to a lion, as it is stated: “The lion [<i>arye</i>] is gone up from its thicket”</b> (Jeremiah 4:7).
+
+### Part 20
+The Gemara asks: <b>What</b> is the meaning of the phrase:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

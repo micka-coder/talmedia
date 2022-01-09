@@ -1,0 +1,72 @@
+
+### Part 1
+Rabbi Yirmeya elaborates: <b>There,</b> with regard to the impurity contracted by swallowing an unslaughtered bird carcass, this unusual type of impurity <b>does not have</b> an equivalent form of <b>impurity outside,</b> since if one merely touches an unslaughtered bird carcass, he and his garments remain pure. By contrast, <b>here,</b> with regard to the blood of a woman after childbirth, <b>let it become impure</b> only <b>when it emerges outside</b> her body, like all other items that impart impurity by contact once they are no longer encapsulated. Rather, due to this difficulty one must explain that <b>here too,</b> Rabbi Zeira is referring to a case <b>where</b> the blood <b>emerged outside</b> her body after her immersion; otherwise she remains pure.
+
+### Part 2
+The Gemara asks: <b>If</b> the reason that the woman is pure is that the blood <b>emerged outside</b> her body, <b>what</b> is the purpose <b>of stating</b> this <i>halakha</i>? Certainly, this blood renders the woman impure upon contact. The Gemara answers that this ruling is necessary, <b>lest you say: Since</b> the woman’s <b>immersion is effective for</b> any <b>blood that is inside</b> her, i.e., it prevents that blood from rendering her impure, <b>let it also be effective for this</b> blood, which did not leave her body until after the immersion. Therefore, Rabbi Zeira <b>teaches us</b> that this is not the <i>halakha</i>.
+
+### Part 3
+The Gemara objects: <b>We have resolved our <i>halakha</i>,</b> the statement of Rabbi Zeira, <b>but</b> the difficulty remains with regard to the case of <b>a woman after childbirth.</b> In light of the explanation of Rabbi Zeira’s opinion, the <i>baraita</i> cited at the beginning of the discussion, which states that a woman after childbirth becomes impure by blood that is still inside her body, cannot be interpreted in accordance with his opinion, as Rabbi Zeira maintains that the blood does not render her impure unless it emerges outside her body. Accordingly, the original difficulty remains: <b>If</b> the <i>baraita</i> is referring to blood that she discharges <b>in</b> her <b>days of menstruation,</b> then she is <b>a menstruating woman,</b> and <b>if</b> the <i>baraita</i> is referring to her <b>days of <i>ziva</i>,</b> it has the status of <b><i>ziva</i>,</b> both are which are already listed in the <i>baraita</i>.
+
+### Part 4
+The Gemara explains: <b>Here we are dealing with a dry birth,</b> without the emission of blood, and the <i>baraita</i> is teaching that the woman is rendered impure despite the fact that no blood emerged. The Gemara asks: If the <i>baraita</i> is referring to <b>a dry birth, what</b> blood <b>is there</b> that <b>becomes impure</b> while still <b>inside</b> the woman’s body just <b>as</b> it would when emerging <b>outside</b> her body? There is no blood at all in the case of a dry birth.
+
+### Part 5
+The Gemara answers that this clause is not referring to blood; rather, this is a situation <b>where</b> the <b>offspring put his head out of the corridor,</b> in which case it is considered born and renders its mother impure, despite the fact that the rest of its body has not emerged. <b>And</b> this is <b>in accordance with</b> the statement <b>of Rav Oshaya, as Rav Oshaya said:</b> If a midwife inserted her hand into the womb of a woman whose fetus is dead, she is rendered impure due to contact with a corpse. This is a rabbinic <b>decree lest</b> the midwife touch it after <b>the offspring puts his head out of the corridor</b> and it dies afterward, in which case the fetus is considered born and therefore she would be ritually impure by Torah law.
+
+### Part 6
+The Gemara adds: <b>And</b> this is <b>similar to</b> an incident involving <b>a certain</b> man <b>who came before Rava</b> and <b>said to him: What is</b> the <i>halakha</i> <b>with regard to</b> whether one <b>may circumcise on Shabbat?</b> Rava <b>said to him:</b> One may <b>well</b> do so. <b>After</b> that man <b>left, Rava said</b> to himself, perplexed: Can it <b>enter your mind that that man did not know that</b> it is <b>permitted to circumcise on Shabbat,</b> and he approached me to inquire about such a basic matter? There must be an unstated aspect to his question. Rava therefore <b>went after him</b> and <b>said to him: Say to me, my friend [<i>izi</i>], how did the incident itself happen?</b>
+
+### Part 7
+The man <b>said to</b> Rava: <b>I heard</b> the <b>child making a noise at nightfall on Shabbat eve,</b> before Shabbat began, <b>but it was not born until Shabbat.</b> Rava <b>said to him: This is</b> a baby who <b>put his head out of the corridor,</b> as otherwise his voice would not have been heard. Consequently, it is considered born already on Friday, which means that it should be circumcised on the following Friday, the eighth day after its birth. <b>And</b> if it is circumcised afterward, this <b>is a circumcision</b> performed <b>not at its</b> appointed <b>time, and</b> there is a <i>halakha</i> that although circumcision on the eighth day overrides Shabbat, nevertheless, with regard to <b>any circumcision</b> performed <b>not at its</b> appointed <b>time, one does not desecrate Shabbat for its</b> performance.
+
+### Part 8
+§ <b>A dilemma was raised before</b> the Sages: With regard to <b>that place in a woman,</b> i.e., her vagina, how is it defined? <b>Is</b> an impure substance located there considered <b>encapsulated, or is it</b> considered to be located in <b>a concealed part</b> of the body?
+
+### Part 9
+The Gemara explains: <b>What is the</b> practical <b>difference</b> as to whether it is considered encapsulated or concealed? The difference is in a case <b>where another</b> woman <b>inserted an olive-bulk of an animal carcass,</b> which is the size that imparts impurity, <b>into that place. If you say</b> that <b>it is</b> considered <b>encapsulated, an encapsulated</b> source of <b>impurity does not impart impurity. But if you say</b> that <b>it is</b> considered located in <b>a concealed part</b> of the body, <b>although</b> the woman <b>does not become impure by contact, she at least becomes impure by carrying</b> the olive-bulk of the carcass.
+
+### Part 10
+<b>Abaye said: It is</b> considered <b>encapsulated. Rava said: It is</b> considered located in <b>a concealed part</b> of the body. <b>Rava</b> further <b>said: From where do I say</b> this? <b>As it is taught</b> in a <i>baraita</i>: The verse states: “The woman also with whom a man shall lie carnally, they shall both bathe themselves in water, and be impure until the evening” (Leviticus 15:18). Rabbi Shimon said: Now what does this verse teach? If it teaches that one who touches semen is rendered impure, this is derived from the verse: “Or a man from whom the flow of seed goes out” (Leviticus 22:4). <b>Rather,</b> it must be teaching that a woman who engages in intercourse is rendered impure by the man’s semen, despite the fact that the semen did not touch her on the outside of her body.
+
+### Part 11
+The <i>baraita</i> continues: This is a novelty <b>because</b> the semen <b>is</b> a source of <b>impurity</b> located in <b>a concealed part</b> of the body, <b>and</b> ordinarily contact with a source of <b>impurity</b> by <b>a concealed part</b> of the body <b>does not render</b> one <b>impure. But</b> here <b>it is a Torah edict</b> that the woman does become impure in this manner. Evidently, an impure substance in the vagina is considered located in a concealed part of the body.
+
+### Part 12
+The Gemara asks: <b>And Abaye,</b> how does he respond to Rava’s proof? The Gemara answers that Abaye would explain that the <i>tanna</i> of this <i>baraita</i>, Rabbi Shimon, <b>states one</b> reason <b>and</b> adds <b>another: One</b> reason <b>that</b> this <i>halakha</i> is a novelty is that semen in the vagina <b>is an encapsulated</b> substance of <b>impurity, and another</b> reason is that <b>even if you were to say</b> that the semen <b>is</b> considered located in <b>a concealed part</b> of the body, which ordinarily <b>does not render</b> one <b>impure, but</b> here, <b>it is a Torah edict</b> that the woman does become impure in this manner.
+
+### Part 13
+§ A similar <b>dilemma was raised before</b> the Sages: With regard to the <b>place</b> in a person’s throat where <b>an unslaughtered carcass of a kosher bird</b> renders him ritually impure, how is it defined? <b>Is</b> the meat of the carcass considered <b>encapsulated, or is it</b> considered located in <b>a concealed part</b> of the body?
+
+### Part 14
+The Gemara explains: <b>What is the</b> practical <b>difference?</b> The difference is in a case <b>where another</b> individual <b>inserted an olive-bulk of an animal carcass into his mouth. If you say</b> that an impure item located in one’s throat <b>is</b> considered <b>encapsulated, an encapsulated</b> source of <b>impurity does not impart impurity.</b> But if <b>you say</b> that <b>it is</b> considered located in <b>a concealed part</b> of the body, <b>although</b> the one swallowing the meat of the carcass <b>indeed does not become impure by contact, he at least becomes impure by carrying</b> the meat.
+
+### Part 15
+Abaye and Rava disagree with regard to this issue as well. <b>Abaye said: It is</b> considered <b>encapsulated, and Rava said: It is</b> considered located in <b>a concealed part</b> of the body. <b>Abaye</b> further <b>said: From where do I say</b> that it is considered encapsulated? <b>As it is taught</b> in a <i>baraita</i>: One <b>might</b> have thought that <b>an animal carcass should impart impurity to garments</b> when it is <b>in</b> one’s <b>throat,</b> like an unslaughtered carcass of a kosher bird. Therefore, <b>the verse states: “That which dies of itself, or is torn of animals, he shall not eat to render himself impure through it”</b> (Leviticus 22:8).
+
+### Part 16
+The <i>baraita</i> continues: This verse, which is dealing with impurity through eating, applies to <b>that which has impurity only</b> by means of <b>its consumption,</b> i.e., an unslaughtered carcass of a kosher bird, which imparts impurity solely when it is in one’s throat. Therefore, the verse <b>excludes this</b> animal carcass from impurity by consumption, <b>as it is impure,</b> i.e., it imparts impurity, even <b>before one eats it,</b> by touch and carrying. This ruling, that other sources of impurity do not impart impurity in the throat, supports Abaye’s opinion that an item located in the throat is considered encapsulated, which is why it does not impart impurity.
+
+### Part 17
+The Gemara raises a difficulty with regard to the <i>baraita</i>: <b>And let it be derived</b> that an animal carcass imparts impurity to garments when it is in one’s throat <b>by an <i>a fortiori</i></b> inference <b>from</b> the <i>halakha</i> of <b>an unslaughtered carcass of a kosher bird,</b> in the following manner: <b>If an unslaughtered carcass of a kosher bird,</b> whose status is relatively lenient, <b>as it does not have impurity outside</b> the body, since if one touched it or carried it he is not rendered impure, and yet <b>it has impurity inside</b> the throat, then with regard to <b>this</b> animal carcass, whose status is more stringent, <b>as it does have impurity outside</b> the body, <b>is it not right that it</b> should <b>have impurity inside</b> the throat?
+
+### Part 18
+The Gemara answers that <b>the verse states:</b> “That which dies of itself, or is torn of animals, he shall not eat to become impure <b>through it,”</b> which indicates that one becomes impure when the item is in the throat only <b>through it,</b> i.e., an unslaughtered carcass of a kosher bird, <b>and not through another,</b> i.e., an animal carcass.
+
+### Part 19
+The Gemara asks: <b>If so, what</b> is the meaning when <b>the verse states</b> with regard to an animal carcass: <b>“And he who eats</b> of its carcass shall wash his clothes and be impure until the evening” (Leviticus 11:40), which indicates that an animal carcass does impart impurity by means of consumption?
+
+### Part 20
+The Gemara explains that this verse is written <b>to provide a measure</b> for the impurity of an animal carcass, but this measure applies only <b>to one who touches and to one who carries</b> it, not to one who eats the carcass. This measure is <b>like</b> the amount that one <b>eats. Just as</b> the minimum amount that one <b>eats</b> is <b>an olive-bulk,</b> i.e., this is the minimum measure that has the halakhic status of consumption, <b>so too,</b> the minimum measure of an animal carcass that imparts impurity to one who <b>touches or carries</b> it is <b>an olive-bulk.</b>
+
+### Part 21
+§ The Gemara further discusses the impurity of a concealed part of the body. <b>Rava says:</b> If the carcass of a <b>creeping animal</b> is found <b>in the folds [<i>bekometo</i>] of</b> one’s body, e.g., the armpit, he is <b>ritually pure.</b> If the flesh of <b>an animal carcass</b> is found <b>in the folds of</b> one’s body, he is <b>impure.</b>
+
+### Part 22
+Rava elaborates: If the carcass of a <b>creeping animal</b> is found <b>in the folds of</b> one’s body he is <b>ritually pure,</b> as <b>it is through contact that a creeping animal imparts impurity, and a concealed part</b> of the body <b>is not susceptible to</b> impurity through <b>contact.</b> By contrast, if the flesh of <b>an animal carcass</b> is found <b>in the folds of</b> one’s body he is <b>impure,</b> as <b>although it does not impart impurity through contact,</b> since it is in a concealed part of the body, <b>it at least imparts impurity by carrying,</b> and he is considered to be carrying the animal carcass.
+
+### Part 23
+Rava further said: If there was the carcass of <b>a creeping animal in the folds of</b> one’s body, <b>and he brought</b> the creeping animal that was in the fold <b>into the airspace of</b> a large earthenware vessel, such as <b>an oven,</b> the oven is thereby rendered <b>impure,</b> as is the <i>halakha</i> when a creeping animal is placed in its airspace. The Gemara asks: Isn’t this <b>obvious?</b> The Gemara answers: <b>Lest you say</b> that as <b>the Merciful One states</b> with regard to the impurity of creeping animals: “And any earthenware vessel into <b>whose interior</b> any of them fall, whatever is in it shall be impure, and it you shall break” (Leviticus 11:33), this teaches that impurity applies only if the creeping animal fell inside the vessel itself,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

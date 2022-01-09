@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Avec leurs savants, comme il est dit : "Et que les peuples [<i>leumim</i> soient assembles"</b> (Isaie 43:9) ; <b>et</b> le terme <b><i>leom</i></b> ne signifie <b>rien d'autre que royaume, comme il est dit : "Et l'un des royaumes [<i>uleom</i>] sera plus fort que l'autre royaume [<i>mileom</i>]"</b> (Genese 25:23). La Guemara demande : <b>Mais est-il</b> possible qu'il y ait <b>intermediation devant le Saint, Beni soit-Il,</b> au point qu'il faille que chaque nation se tienne debout et soit adressee separement ? <b>Au contraire,</b> les nations sont instruites de se tenir separement <b>afin qu'elles ne se melent pas les unes aux autres</b> afin <b>qu'elles puissent</b> chacune <b>entendre ce qu'Il leur dit.</b>
+
+### Partie 2
+<b>Immediatement, l'Empire romain entre le premier devant Lui.</b> La Gemara demande : <b>Quelle est la raison</b> pour laquelle l'Empire romain entre le premier ? C'est <b>parce que</b> l'Empire romain est la plus <b>importante</b> de toutes les nations. <b>Et d'ou tirons-nous</b> qu'il est</b> le plus <b>important ? Comme il est ecrit</b> dans le livre de Daniel a propos du quatrieme empire qui regnera sur le monde : <b>"Il devorera toute la terre, la foulera et la brisera en morceaux"</b> (Daniel 7:23), et <b>Rabbi Yohanan dit : Cet</b> empire qui devorera la terre est <b>le mechant Empire romain</b>, <b>dont le nom s'est repandu dans le monde entier.</b>
+
+### Partie 3
+La Gemara demande : <b>Et d'ou tire-t-on</b> <b>que celui qui est</b> plus <b>important entre en premier ?</b> Ceci est <b>conforme</b> a une declaration <b>du Rav Hisda, comme le dit le Rav Hisda :</b> Lorsque <b>un roi et une communaute</b> sont amenes devant Dieu pour etre juges, le <b>roi entre en jugement en premier, comme il est dit :" Qu'il fasse le jugement de son serviteur et le jugement de son peuple Israel,</b> comme chaque jour l'exige" (IA Rois 8:59). <b>Et quelle est la raison</b> pour laquelle il est important que le roi entre le premier ? <b>Si tu veux, dis</b> que ce n'est <b>pas une conduite correcte pour le roi de rester dehors</b> et d'attendre que le proces de ses sujets se termine. <b>Et si vous le souhaitez, dites</b> plutot que le roi est amene en premier afin qu'il puisse etre juge <b>avant</b> que la <b>colere de Dieu s'intensifie</b> a cause des peches de la communaute.
+
+### Partie 4
+La Guemara revient a sa narration du jugement futur. D'abord, les membres de l'Empire romain entrent. <Le Saint, beni soit-il, leur dit : A quoi vous etes-vous occupes ? Ils disent devant Lui</b> en reponse : <b>Maitre de l'Univers, nous avons etabli de nombreuses places de marche, nous avons construit de nombreux bains publics,</b> et <b>nous avons augmente beaucoup d'argent et d'or. Et nous avons fait tout</b> cela <b>uniquement pour</b> le bien du <b>peuple juif, afin qu'il</b> soit libre de <b>s'engager dans l'etude de la Torah</b>.
+
+### Partie 5
+<b>Le Saint, Beni soit-Il, leur dit : Fous du monde !</b> Cherchez-vous a Me tromper ? <b>Tout ce que vous avez fait, vous l'avez fait pour vos propres besoins. Vous avez etabli des places de marche pour y placer des prostituees;</b> vous avez construit des <b>bains pour votre propre plaisir;</b> et quant a l'<b>argent et a l'or</b> que vous pretendez avoir augmentes, <b>ils sont a Moi, comme il est dit : A "A L'argent est a moi, et l'or a moi, dit le Seigneur des armeesA" (Aggee 2:8).
+
+### Partie 6
+<b>Il n'y a personne parmi vous qui puisse declarer</b> qu'il a etudie <b>cette</b> Torah ? C'est le sens de la suite du verset d'Isaie, <b>comme il est dit : "Qui parmi eux peut déclarer cela?"</b> (Isaie 43:9). <b>Et "cela" fait reference a <b>rien d'autre</b> que la <b>Torah, comme il est dit : "Et voici la Torah que Moise a mise</b> devant les enfants d'Israel" (Deuteronome 4:44), et celui qui ne s'est pas engage dans son etude ne recoit pas de recompense. <b>Immediatement,</b> les membres de l'Empire romain <b>sortent decus.</b>
+
+### Partie 7
+<b>L'Empire romain part, et l'Empire perse entre apres lui. Quelle est la raison</b> pour laquelle l'Empire perse entre en second ? La raison est <b>que, apres</b> l'Empire romain, il est le plus <b>important. Et d'ou tirons-nous</b> cela ? <b>Comme il est ecrit</b> dans la vision de Daniel : <b>"Et voici une autre bete, une seconde, semblable a un ours"</b> (Daniel 7:5). <b>Et Rav Yosef enseigne : Ce sont les Perses,</b> qui sont compares a un ours, <b>car ils mangent et boivent</b> des quantites copieuses <b>comme</b> fait <b>un ours, et ils sont charnus comme un ours, et ils poussent</b> leurs <b>poils</b> longs <b>comme</b> fait <b>un ours, et ils ne se reposent jamais, comme un ours,</b> qui est constamment en mouvement d'un endroit a l'autre.
+
+### Partie 8
+<b>Le Saint, beni soit-il, leur dit : A quoi vous etes-vous occupes ? Ils disent devant Lui</b> en reponse : <b>Maitre de l'Univers, nous avons construit de nombreux ponts, nous avons conquis de nombreuses villes,</b> et <b>nous avons mene de nombreuses guerres. Et nous avons fait tout</b> cela <b>uniquement pour</b> le bien du <b>peuple juif, afin qu'il s'engage dans l'etude de la Torah</b>.
+
+### Partie 9
+<b>Le Saint, Beni soit-Il, leur dit : Tout ce que vous avez fait, vous l'avez fait pour vos propres besoins. Vous avez etabli des ponts pour percevoir des taxes de</b> tous ceux qui passent dessus <b>.</b> Vous avez conquis des <b>villes pour utiliser</b> leurs residents pour le <b>travail force [<i>angareya</i>];</b> et en ce qui concerne la lutte contre les <b>guerres, Je mene</b> des guerres, et votre succes vient de Moi, <b>comme il est dit : "Le Seigneur est un homme de guerre"</b> (Exode 15:3). <b>Est-ce qu'il n'y a personne parmi vous qui puisse declarer</b> qu'il a etudie <b>cette</b> Torah ? <b>Comme il est dit : "Qui parmi eux peut déclarer cela"</b> (EsaA¯e 43:9), <b>et "cela" fait référence A <b>rien d'autre que la Torah, comme il est dit : "Et voici la Torah que Moise a etablie"</b> (Deuteronome 4:44). <b>Immediatement,</b> les membres de l'Empire perse <b>sortent de devant Lui decus.</b>
+
+### Partie 10
+La Gemara demande : <b>Mais une fois que l'Empire perse voit que</b> tout ce que dit <b>l'Empire romain est completement inefficace, quelle est la raison</b> pour laquelle ils <b>s'avancent</b> ? La Gemara repond : Ils pensent que leurs revendications seront plus efficaces, car <b>ils disent :</b> Les Romains ont <b>detruit le</b> Second <b>Temple, et nous</b> l'avions <b>construit</b>, car le Second Temple a ete construit sous les auspices et avec l'encouragement de Cyrus, le roi de Perse. La Gemara ajoute : <b>Et de meme,</b> un echange similaire s'est produit <b>avec chaque nation.</b>
+
+### Partie 11
+La Gemara demande : <b>Mais une fois que</b> les autres nations <b>viennent a constater que</b> tout ce qui a ete dit par <b>les premiers,</b> Rome et la Perse, <b>est completement inefficace, quelle est la raison</b> pour laquelle ils <b>s'avancent</b> ? La Gemara repond qu'ils <b>pensent : Ces</b> Empires <b>subissaient le peuple juif, mais nous n'avons pas subjugue le peuple juif.</b> La Gemara demande encore : <b>Qu'est-ce qui est different</b> de <b>ceux-la,</b> Rome et la Perse, <b>qui ont ete distingues</b> explicitement, <b>et qu'est-ce qui est different</b> de <b>ces</b> autres empires qui viennent apres, <b>qui n'ont pas ete distingues</b> et mentionnes nommement ? C'est <b>parce que</b> en ce qui concerne <b>ceux-la,</b> Rome et la Perse, <b>leur royaute s'etend jusqu'a la venue du Messie.</b>
+
+### Partie 12
+Les nations <b>disaient devant</b> Dieu : <b>Maitre de l'Univers, nous as-tu donne</b> la Torah <b>et nous ne l'avons pas acceptee ?</b> Puisque nous n'avons jamais recu la Torah, pourquoi sommes-nous juges pour ne pas avoir accompli ses mitzvot ? La Guemara demande : <b>Et peut-on dire</b> qu'on ne leur a jamais offert la Torah ? <b>Mais n'est-il pas ecrit</b> dans la description du don de la Torah : <b>"Et il dit : Le Seigneur est venu du Sinai, et s'est leve de Seir vers eux"</b> (Deuteronome 33:2), <b>Et il est ecrit : "Dieu vient de Théman,</b> et le Saint du mont Paran" (Habacuc 3:3). Et les Sages ont demandé : <b>Que</b> Dieu a-t-il <b>exige a Seir et que</b> a-t-il <b>exige a Paran ?</b> La Torah n'a pas ete donnee dans ces endroits.
+
+### Partie 13
+Et <b>Rabbi Yohanan dit :</b> Ceci <b>enseigne que le Saint, Beni soit-Il, a fait</b> circuler la Torah <b>vers toutes les nations et</b> ceux qui parlent toutes les <b>langues,</b> comme les Edomites a Seir et les Ismaelites a Paran, <b>mais ils ne l'ont pas acceptee, jusqu'a ce qu'Il vienne vers le peuple juif et qu'ils l'acceptent. </b> Si les autres nations ont toutes rejete la Torah, comment peuvent-elles s'excuser en pretendant qu'elle ne leur a jamais ete offerte ?
+
+### Partie 14
+<b>Voici plutot ce que</b> <b>ils disent : Avons-nous accepte</b> la Torah <b>et</b> ensuite <b>ne pas accomplir</b> ses mitzvot ? La Guemara demande : <b>Mais ceci</b> lui-meme <b>sert de refutation de leur</b> propre affirmation, car on peut repondre : <b>Pourquoi ne l'avez-vous pas accepte ? Au contraire, voici</b> ce que les nations du monde <b>dit devant Lui : Maitre de l'Univers, as-tu renverse la montagne au-dessus de nous comme une cuvette, et nous</b> n'avons toujours pas <b>accepte</b> la Torah, <b>comme Tu l'as fait pour le peuple juif ?</b>
+
+### Partie 15
+La Guemara fournit le contexte de cette affirmation : <b>Comme il est ecrit : "Et ils se tinrent a la partie inferieure du mont"</b> (Exode 19:17), <b>et Rav Dimi bar Hama dit:</b> Le verset <b>enseigne que le Saint, Beni soit-Il, renversa la montagne,</b> c'est-a-dire le mont Sinai, <b>au-dessus des Juifs comme un bassin, et</b> Il <b>leur dit : Si vous acceptez la Torah, excellent, et si non, la,</b> sous la montagne, <b>seront vos funerailles.</b> Les nations du monde pretendront qu'elles aussi auraient pu etre contraintes d'accepter la Torah.
+
+### Partie 16
+<b>Immediatement, le Saint, Beni soit-Il, leur dit : Les premieres</b> mitzvot <b>nous feront entendre</b> la verite, <b>comme il est dit</b> dans la suite du meme verset dont il est question : <b>"Et nous annoncer les premieres choses"</b> (Isaie 43, 9). En ce qui concerne les <b>sept</b> <b>mitzvot</b> noachiques qui ont precede le don de la Torah <b>que</b> meme <b>vous avez acceptees, ou</b> est la preuve que <b>vous les avez accomplies ?</b>
+
+### Partie 17
+La Gemara demande : <b>Et d'ou tirons-nous</b> <b>qu'ils ne les ont pas accomplies ? Comme l'enseigne Rav Yosef</b> dans l'explication du verset : <b>"Il se tient debout et fait trembler la terre, Il voit et fait trembler les nations [<i>vayater</i>]</b> (Habacuc 3, 6) : <b>Qu'est-ce que</b> Dieu a <b>vu ? Il a vu</b> les <b>sept mitzvot que les descendants de Noe ont acceptees sur eux-memes, et</b> Il a vu qu'ils <b>ne les ont pas accomplies. Comme ils ne les ont pas accomplies, Il s'est leve et a annule pour eux [<i>vehitiran</i>]</b> le commandement de tenir compte de ces mitzvot. La Guemara demande : Est-ce qu'ils <b>gagnent</b> a ne pas obeir, puisqu'ils sont maintenant liberes de l'obligation d'accomplir ces mitzvot ? <b>Si c'est le cas, nous trouvons</b> que <b>un pecheur profite</b> de sa transgression.
+
+### Partie 18
+<b>Mar, fils de Ravina, a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

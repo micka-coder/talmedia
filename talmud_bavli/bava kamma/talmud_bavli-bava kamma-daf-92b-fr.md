@@ -1,0 +1,54 @@
+
+### Partie 1
+Le verset dit a propos de celui qui est diagnostique lepreux : "Et le lepreux chez qui la plaie est, ses vetements seront dechires, les cheveux de sa tete se detacheront, et il se couvrira la levre superieure, <b>et il criera : Impur, impur"</b> (Levitique 13:45). Non seulement le lepreux doit souffrir de la lepre elle-meme, mais il doit subir un embarras supplementaire en rendant publique sa condition. Cela s'apparente a l'aphorisme selon lequel la pauvrete suit le pauvre.
+
+### Partie 2
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle les Sages ont declare : Se lever tot et manger, en ete a cause de la chaleur et en hiver a cause du froid. Et</b> de meme, <b>les gens disent : Soixante coureurs courent et n'atteignent pas l'homme qui a mange le matin.</b> Rabba bar Mari lui a repondu que la source est <b>comme il est ecrit : "Ils n'auront ni faim ni soif, ni la chaleur ni le soleil ne les frapperont"</b> (Isaie 49:10), indiquant que celui qui n'a ni faim ni soif ne sera pas affecte par le temps.
+
+### Partie 3
+Rava lui <b>dit : Tu as dit</b> la preuve <b>de la-bas,</b> d'un verset des Prophetes, <b>et je dis</b> la preuve <b>d'ici,</b> d'un verset de la Torah. Le verset dit : "Et tu serviras le Seigneur ton Dieu, et Il benira ton pain et ton eau, et j"?eloignerai la maladie du milieu de toi" (Exode 23:25). Rava explique : <b>Et tu serviras le Seigneur ton Dieu" ; ceci</b> fait reference a la <b>recitation du <i>Shema</i> et a la priere. "Et Il benira ton pain et ton eau" ; ceci</b> fait reference au <b>pain</b> trempe <b>dans le sel, et a une gourde d'eau</b> bue apres le pain, le matin. <b>A partir de ce</b> point, <b>a partir de maintenant</b> le reste du verset s'applique : <b>Et j'eloignerai la maladie du milieu de vous.</b>
+
+### Partie 4
+<b>Et il est enseigne</b> dans un <i>baraita</i> : <b>"Maladie" ; ceci</b> se refere a <b>bile. Et pourquoi son nom est appele maladie [<i>mahala</i>] ?</b> On l'appelle ainsi <b>puisqu'il y a quatre-vingt-trois maladies dans</b> la bile. Les lettres qui epellent le mot <b><i>mahala</i>,</b> c'est-a-dire <i>mem</i>, <i>het</i>, <i>lamed</i>, <i>heh</i>, <b>ont cette valeur numerique</b> de quatre-vingt-trois. <b>Et</b> en ce qui concerne <b>toutes ces</b> maladies, manger du <b>pain</b> trempe <b>dans du sel</b> le <b>matin et</b> boire <b>un flacon d'eau</b> ensuite <b>les annule.</b>
+
+### Partie 5
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle les Sages ont declare : </b> Si <b>votre ami vous traite d'ane, preparez une selle pour votre dos,</b> c'est-a-dire ne contestez pas sa declaration ? Rabba bar Mari lui <b>repondit</b> que la source est <b>comme il est ecrit</b> dans la conversation entre l'ange et Agar : <b>"Et il dit : Agar, servante de Sarai, d'ou viens-tu et ou vas-tu ? Et elle repondit : Je fuis la face de ma maitresse Sarai"</b> (Genese 16:8). Bien que Hagar ne soit plus la servante de Sarai, puisque l'ange l'a designee comme telle, elle a repondu de la meme maniere.
+
+### Partie 6
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle on dit : </b> Si tu as connaissance d'une <b>affaire desobligeante qui se trouve</b> en toi, dis-le d'abord</b> avant que les autres ne le disent de toi ? Rabba bar Mari lui <b>repondit</b> que la source est <b>comme il est ecrit</b> a propos d'Eliezer : <b>"Et il dit : Je suis le serviteur d'Abraham</b> (Genese 24:34), proclamant immediatement qu'il est un serviteur.
+
+### Partie 7
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle les gens disent : L'oie baisse</b> sa tete <b>en allant</b>, <b>mais ses yeux</b> regardent <b>afar</b> pour trouver sa nourriture ? Rabba bar Mari lui a <b>repondu</b> que la source est <b>comme il est ecrit</b> en ce qui concerne la declaration d'Abigail a David : <b>"Et quand l'Eternel aura bien traite mon seigneur, souviens-toi de ta servante"</b> (IA Samuel 25:31). Bien qu'Abigail ait parle avec humilite en demandant a David d'epargner la vie de son mari, elle a fait reference au fait de tirer un benefice futur de David.
+
+### Partie 8
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>dont les gens disent : Soixante desagrements arrivent aux dents [<i>lekhakha</i>]</b> de celui <b>qui entend le bruit d'un autre</b> manger <b>et ne mange pas ?</b> Rabba bar Mari <b>lui repondit</b> que la source est <b>comme il est ecrit</b> a propos de ce que Nathan le prophete a dit concernant le banquet de couronnement d'Adonias, auquel il n'etait pas invite : "Car il est descendu aujourd"?hui, il a immolé des boeufs, des bêufs gras et des moutons en abondance, et il a appelé tous les fils du roi"¦<b>Mais moi, moi ton serviteur, et le prêtre Tsadok, et Benaja, fils de Jehoiada, et ton serviteur Salomon, il ne les a pas appelés"</b> (IA Rois 1:25""26).
+
+### Partie 9
+Rava <b>lui a dit : Tu as dit</b> la preuve <b>de la,</b> d'un verset des Prophetes, <b>et je dis</b> la preuve <b>de la,</b> d'un verset de la Torah. Comme il est ecrit : <b>"Isaac l'amena dans la tente de sa mere Sarah, il prit Rebecca, et elle devint sa femme ; il l'aima, et Isaac fut console pour sa mere"</b> (Genese 24:67). <b>Et il est ecrit</b> immediatement <b>apres : "Abraham prit une autre femme, et son nom était Keturah"</b> (Genèse 25:1). Après avoir vu son fils se marier, Abraham était inquiet du fait qu'il n'était pas marié. C'est un peu comme celui qui voit un autre manger et ne mange pas.
+
+### Partie 10
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle on dit : </b> Alors que <b>le vin</b> appartient <b>a son proprietaire, la reconnaissance</b> est donnee <b>a celui qui le verse ?</b> Rabba bar Mari <b>lui repondit</b> que la source est <b>comme il est ecrit</b> a propos de Dieu ordonnant a Moise de transferer son autorite a Josue : "Et le Seigneur dit a Moise : Prends Josue, fils de Noun, un homme en qui il y a de l'esprit, <b>et pose ta main sur lui"¦afin que toute la congregation des enfants d'Israel soit attentive"</b> (Nombres 27, 18""20). <b>Et il est ecrit : <b>Josue, fils de Noun, etait rempli de l'esprit de sagesse, car Moise avait pose ses mains sur lui ; les enfants d'Israel l'ecouterent,</b> et firent ce que l'Eternel avait ordonne a Moise"¯ (Deuteronome 34:9). Bien que l'esprit de Dieu n'ait pas ete donne a Josue par Moise, puisque Moise n'etait qu'un conduit, on lui en a attribue le merite.
+
+### Partie 11
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle on dit : Un chien, dans sa faim, avale</b> meme <b>des excrements ?</b> Rabba bar Mari lui repondit que la source est <b>comme il est ecrit : "L'ame repue a horreur du rayon de miel ; mais pour l'ame affamee, toute chose amere est douce"</b> (Proverbes 27:7).
+
+### Partie 12
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>dont les gens disent : Un mauvais palmier se promene et va</b> pour etre <b>parmi un bosquet d'arbres steriles,</b> c'est-a-dire que les mauvaises personnes recherchent d'autres mauvaises personnes ? Rabba bar Mari lui <b>dit : Cette affaire est ecrite dans la Torah, repetee dans les Prophetes, et triplee dans les Ecrits, et nous l'avons appris</b> dans une mishna, et nous l'avons appris</b> dans une <i>baraita</i>.</b>
+
+### Partie 13
+Rabba bar Mari explique chacune des sources. Il <b>est ecrit dans la Torah, comme il est ecrit : "Esau alla vers Ismael"</b> (Genese 28:9). Il <b>est repete dans les Prophetes, comme il est ecrit : "Et l'on rassembla de vains compagnons vers Yiftah, et ils sortirent avec lui"</b> (Juges 11:3). <b>Et</b> il <b>est triple dans les Ecrits, comme il est ecrit : Tout volatile vivra avec son espece, et les hommes avec ceux qui lui ressemblent</b> (Livre de Ben Sira 13:17). <b>On l'a appris</b> <b>dans une mishna</b> (<i>Kelim</i> 12:2) : <b>Tout ce qui est attache</b> a ce qui est <b>rituellement impur</b> est <b>rituellement impur ; tout ce qui est attache</b> a ce qui est <b>rituellement pur</b> est <b>rituellement pur. Et on l'a appris</b> cela <b>dans une <i>baraita</i> : Rabbi Eliezer dit : Ce n'est pas pour rien</b> que l'<b>etoilette est allee vers le corbeau mais parce qu'elle est de son espece,</b> car elle aussi est un oiseau non casher.
+
+### Partie 14
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle on dit : </b> Si <b>tu as appele</b> <b>ton ami et qu'il ne t'a pas repondu, lance un grand mur</b> et <b>lance-le sur lui,</b> c'est-a-dire ne cherche plus a l'aider ? Rabba bar Mari lui <b>repondit</b> que la source est telle qu'elle est ecrite : <b>Parce que Je t'ai purge et que tu n'as pas ete purge, tu ne seras plus purge de ton impurete,</b> jusqu'a ce que J'aie assouvi Ma fureur sur toi" (Ezechiel 24:13).
+
+### Partie 15
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>par laquelle on dit : </b> S'il y a <b>un puits auquel tu as bu, n'y jette pas une pierre ?</b> Rabba bar Mari lui <b>repondit</b> que la source est <b>comme il est ecrit : "Tu n'auras pas en horreur un Edomite, car il est ton frere ; tu n'auras pas en horreur un Egyptien, car tu etais etranger sur son territoire"</b> (Deuteronome 23:8). Puisque tu as habite sur leurs terres, tu ne dois pas leur faire de mal.
+
+### Partie 16
+<b>Rava dit a Rabba bar Mari : D'ou vient cette affaire</b> <b>dont les gens disent : Si tu souleves la charge</b> avec moi <b>je la souleverai</b>, <b>et si</b> tu ne la <b>pas</b> soulever avec moi <b>je ne la souleverai pas</b> ? Rabba bar Mari lui <b>repondit</b> que la source est <b>comme il est ecrit</b> a propos de Barak et Deborah concernant la guerre de Sisera : <b>"Et Barak lui dit : Si tu veux aller avec moi, alors j'irai ; mais si tu ne veux pas aller avec moi, je n'irai pas"</b> (Juges 4:8).
+
+### Partie 17
+<b>Rava dit a Rabba bar Mari : D'ou provient cette affaire</b> <b>par laquelle les gens disent : Quand nous etions petits,</b> on nous considerait <b>comme des <b>hommes ; maintenant que nous sommes vieux,</b> on nous considere <b>comme des <b>enfants [<i>ledardekei</i>] ?</b> Rabba bar Mari <b>lui repondit</b> que la source est que <b>initialement, il est ecrit</b> a propos du peuple juif voyageant dans le desert : <b>"Et l'Eternel marchait devant eux, le jour, dans une colonne de nuee, pour leur indiquer le chemin, et la nuit, dans une colonne de feu, pour les eclairer"</b> (Exode 13, 21). Dieu Lui-meme veillait sur le peuple juif. <b>Mais a la fin,</b> apres qu'un certain temps se soit ecoule et que l'on puisse s'attendre a ce que le peuple juif soit considere comme plus important, <b>il est ecrit :</b>.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

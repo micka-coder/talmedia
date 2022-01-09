@@ -1,0 +1,45 @@
+
+### Partie 1
+La Gemara clarifie ce dilemme : <b>Le premier <i>siman</i> se joint-il</b> au second <i>siman</i> pour purifier l'animal de</b> l'impurete d'une carcasse non abattue ou non ?</b> Dans les deux cas, le dilemme est le suivant : La coupe du premier <i>siman</i>, qui a la double finalite d'etre un element permettant la consommation et d'empecher l'impurete de l'animal, se joint-elle a la coupe du second <i>siman</i>, qui n'a que la finalite d'empecher l'impurete, pour constituer un seul acte d'abattage et empecher ainsi l'animal d'assumer l'impurete d'une carcasse non abattue ? Ou peut-etre parce que la coupe de chaque <i>siman</i> est effectuee dans un but different, ils ne se rejoignent pas ?
+
+### Partie 2
+Quoi qu'il en soit, <b>nous soulevons le dilemme uniquement</b> afin de <b>purifier</b> la patte avant <b>de</b> l'impurete d'une <b>carcasse non abattue. Mais en ce qui concerne la consommation</b> de l'animal abattu, tous s'accordent a dire que c'est <b>interdit,</b> puisque meme Rabbi Zeira concede que l'animal est une <i>tereifa</i> et retracte son objection a la distinction que Rava proposait entre les poumons et les entrailles.
+
+### Partie 3
+<b>Rav Aha bar Rav dit a Ravina : Peut-etre</b> Rabbi Zeira <b>ne s'est en fait pas retracte</b> de son avis, car meme initialement, il soutenait qu'il n'y a pas de distinction entre les poumons et les entrailles. Si l'un ou l'autre est perfore apres qu'un <i>siman</i> ait ete coupe, l'animal est un <i>tereifa</i>. <b>Et Rabbi Zeira a enonce</b> son objection a la distinction de Rava <b>conformement a la declaration de Rava, mais</b> il <b>lui-meme ne tient pas en consequence.</b>
+
+### Partie 4
+La Guemara poursuit son analyse de la declaration de Reish Lakish, qui a dit qu'apres avoir coupe la trachee, le poumon est considere comme s'il etait place dans un panier, et s'il est perfore avant la fin de l'abattage, l'animal ne devient pas un <i>tereifa</i>. <b>Rav Aha bar Yaakov a dit : Apprenez de</b> la declaration <b>de Rabbi Shimon ben Lakish</b> que <b>on peut inviter des Juifs</b> a manger les <b>innards</b> d'un animal qui a ete abattu, <b>mais on ne peut pas inviter des Gentils</b> a manger les <b>innards</b> d'un animal qui a ete abattu, car ils sont interdits aux Gentils.
+
+### Partie 5
+<b>Quelle en est la raison ?</b> Pour les <b>Juifs, la question</b> de rendre la viande de l'animal propre a la consommation <b>depend</b> de l'accomplissement d'un acte valide d'<b>abattage. Une fois qu'il y a abattage a part entiere</b> et que les deux <i>simanim</i> sont coupes, les entrailles <b>leur sont permises</b> meme si l'animal est en train de convulser. Mais en ce qui concerne les <b>gentils, pour lesquels le poignardage est suffisant</b> et l'abattage n'est pas requis, les entrailles ne sont permises qu'apres la mort complete de l'animal, car <b>la question</b> de rendre la viande de l'animal propre a la consommation <b>est dependante</b> de sa <b>mort. </b> Par consequent, si l'animal est encore en train de convulser, <b>ces</b> entrailles, qui sont considerees comme etant a l'exterieur du corps apres la coupe des deux <i>simanim</i>, sont <b>considerees comme un membre d'un animal vivant</b> et il est interdit aux Gentils de les manger.
+
+### Partie 6
+<b>Rav Pappa a dit : J'etais assis devant Rav Aha bar Yaakov et j'ai cherche a lui dire</b> que sa declaration est difficile : <b>Est-ce qu'il y a quelque chose qui est permis pour un juif mais interdit pour un gentil ? Mais je n'ai pas dit</b> cela <b>a lui, car je me suis dit</b> a moi-meme : <b>N'a-t-il pas dit une raison</b> pour sa decision ? Par consequent, il n'y a aucune raison de poser la question.
+
+### Partie 7
+La Guemara note : <b>Il est enseigne</b> dans une <i>baraita</i> <b>non conforme</b> a l'avis du <b>Rav Aha bar Yaakov : Celui qui cherche a manger de</b> la viande d'un <b>animal avant que son ame ne s'en aille peut couper une olive-bulk de viande dans la zone de l'abattage,</b> le cou, <b>et la saler tres bien,</b> c'est-a-dire, plus que ce qui est normalement requis, <b>et la rincer tres bien</b> dans l'eau pour enlever le sel et le sang, <b>et attendre jusqu'a ce que l'ame de l'animal</b> s'en aille, et la manger.</b> Il est <b>permis</b> a la fois a un Gentil et a un Juif de</b> la manger.</b> Contrairement a la declaration du Rav Aha bar Yaakov, il n'y a pas de distinction entre Juif et Gentil.
+
+### Partie 8
+Cette <i>baraita</i> <b>appuie</b> la declaration de <b>Rav Idi bar Avin, car Rav Idi bar Avin dit</b> que <b>Rav Yitzhak bar Ashyan dit : Celui qui cherche a recuperer</b> d'une maladie doit <b>decouper une olive-bulle de viande dans la zone d'abattage,</b> c'est-a-dire le cou, <b>d'un animal, et la saler tres bien, et la rincer tres bien, et attendre que l'ame</b> de l'animal <b>sorte,</b> et la manger. Il est <b>permis</b> a la fois a un Gentil et a un Juif de</b> manger <b>cela.</b>
+
+### Partie 9
+<strong>MISHNA : </strong>Dans le cas de <b>celui qui abat un animal domestique, un animal non domestique, ou un oiseau, et le sang n'en est pas sorti</b> pendant l'abattage, tous ceux-ci sont <b>permis</b> pour la consommation <b>et</b> ne necessitent pas le lavage rituel des mains car <b>ils peuvent etre manges avec des mains rituellement impures [<i>mesoavot</i>], car ils n'ont pas ete rendus susceptibles</b> d'impurete rituelle par le contact <b>avec le sang,</b> qui est l'un des sept liquides qui rendent les aliments susceptibles d'impurete. <Rabbi Shimon dit : Ils ont ete rendus susceptibles</b> d'impurete rituelle <b>par le biais</b> de l'<b>abattage</b> lui-meme.
+
+### Partie 10
+<strong>GEMARA : </strong>La <b>raison</b> pour laquelle ils peuvent etre manges avec des mains rituellement impures est <b>que le sang n'a pas emerge</b> des animaux ou des oiseaux pendant l'abattage ; <b>mais</b> si <b>du sang a emerge d'eux</b> pendant l'abattage, <b>ils</b> ne peuvent <b>pas etre manges avec des mains rituellement impures.</b> La Gemara demande : <b>Pourquoi</b> pas ? Les <b>mains ordinaires sont</b> impures d'une impurete rituelle de <b>second degre</b> <b>et</b> un objet d'impurete de <b>second degre</b> <b>ne peut pas communiquer une impurete de troisieme degre</b> aux objets <b>non sacres</b> avec lesquels il entre en contact.
+
+### Partie 11
+La Guemara clarifie : <b>D'ou vient</b> qu'il est etabli <b>que nous traitons</b> dans la mishna <b>des aliments non sacres</b>, et non de l'abattage d'une offrande ? Cela est clair, <b>comme</b> le <i>tanna</i> <b>enseigne</b> dans la liste des personnes abattues : <b>Un animal non domestique. Comme, si</b> le <i>tanna</i> se refere a l'abattage des <b>sacrificiels</b> animaux et des oiseaux, <b>y a-t-il</b> un <b>animal non domestique</b> inclus <b>dans</b> le cadre des <b>sacrificiels</b> animaux ? <b>Et en outre, si</b> le <i>tanna</i> se refere <b>aux animaux sacrificiels</b>, <b>lorsqu'aucun sang n'en sort</b> les offrandes sont-elles <b>valides ?</b> L'offrande <b>elle-meme necessite du sang,</b> car ce n'est que par la presentation du sang sur l'autel que l'offrande est acceptee.
+
+### Partie 12
+<b>Et en outre, si</b> le <i>tanna</i> fait reference aux animaux <b>sacrificiels</b>, <b>lorsque le sang en sort, cela les rend-il</b> <b>susceptibles</b> d'impurete rituelle ? <b>Mais Rabbi Hiyya bar Abba ne dit-il pas</b> que <b>Rabbi Yohanan dit : D'ou</b> provient-il <b>que le sang des animaux sacrifies</b> <b>ne rend pas</b> les aliments <b>susceptibles</b> d'impurete rituelle ? Il est derive d'un verset, <b>comme il est dit :</b> "Tu ne le mangeras pas ; <b>tu le verseras sur la terre comme de l'eau"</b> (Deuteronome 12:24). <b>Le sang</b> d'un animal non sacre, <b>qui est verse comme de l'eau</b> lors de son abattage, <b>rend</b> les aliments <b>susceptibles</b> d'impurete rituelle. En revanche, le sang d'un animal sacrifie, <b>qui n'est pas verse comme de l'eau</b> mais est presente sur l'autel, <b>ne rend pas</b> les aliments <b>susceptibles</b> d'impurete rituelle.
+
+### Partie 13
+<b>Et en outre, si</b> le <i>tanna</i> se refere aux animaux <b>sacrificiels</b>, <b>lorsque le sang n'en sort pas</b> ne sont-ils <b>pas</b> neanmoins rendus <b>susceptibles</b> d'impurete rituelle ? <b>Qu'ils soient</b> rendus <b>susceptibles</b> a l'impurete rituelle <b>par le biais du respect de la saintete, car nous soutenons</b> que le <b>respect de la saintete rend</b> les aliments <b>suceptibles</b> a l'impurete rituelle meme en l'absence de contact avec l'un des sept liquides.
+
+### Partie 14
+<b>Rav Nahman a dit</b> que <b>Rabba bar Avuh a dit : Il s'agit ici d'un aliment non sacre</b> <b>que l'on a achete</b> a Jerusalem <b>avec</b> de l'argent de second</b> titre,</b> qui prend le statut de produit de second titre. Ce produit, a son tour, assume une impurete de troisieme degre par le contact avec des mains qui ont une impurete de deuxieme degre. <b>Et</b> cette mishna n'est <b>pas en accord</b> avec l'opinion de <b>Rabbi Meir, comme nous l'avons appris</b> dans une mishna (<i>Para</i> 11:5) :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

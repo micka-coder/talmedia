@@ -1,0 +1,24 @@
+
+### Partie 1
+La Gemara repond : Il y a une difference dans un cas <b>ou une autre</b> personne a <b>associe</b> son propre vœu <b>a ce vœu.</b> Si une autre personne a entendu son vœu et a declare que son vœu etait comme le sien, le statut de son vœu depend de cette question. <b>Si vous dites</b> que de tels vœux <b>prennent effet,</b> alors <b>l'association</b> du vœu de l'autre personne <b>prend effet. Si vous dites</b> que de tels vœux <b>ne prennent pas effet</b> du tout, alors le vœu de l'autre personne <b>n'a aucune substance,</b> puisque le vœu auquel il l'a associe n'a jamais existe.
+
+### Partie 2
+<b>Qu'en est-il,</b> alors de l'avis de Rabbi Eliezer ? <b>Venez</b> et <b>entendez</b> la mishna : <b>Rabbi Eliezer a dit : Si l'on peut annuler des vœux qui ont atteint le statut d'interdiction, ne doit-on pas annuler des vœux qui n'ont pas atteint le statut d'interdiction ? Apprenez-en</b> que de tels vœux <b>ne prennent pas du tout effet</b>, car ils sont decrits comme n'ayant pas atteint le statut d'une interdiction.
+
+### Partie 3
+La Guemara rejette cette conclusion : <b>La mishna <b>enseigne</b> en utilisant les mots : <b>Qui n'atteignent pas</b> le statut d'une interdiction ? Elle <b>enseigne : Qui n'ont pas atteint</b> le statut d'une interdiction, ce qui pourrait signifier que <b>ils n'ont pas encore atteint</b> le statut d'une interdiction, mais qu'ils peuvent prendre effet, momentanement, lorsqu'elle prononce effectivement le vœu.
+
+### Partie 4
+<b>Venez</b> et <b>entendez</b> une <i>baraita</i> de la <i>Tosefta</i> (<i>Nedarim</i> 6:5) : <b>Rabbi Eliezer leur a dit : Et de meme que dans une situation ou il ne peut pas annuler ses propres vœux une fois qu'il a fait un vœu, il peut annuler ses propres vœux avant qu'il fasse un vœu</b> en stipulant au prealable que les vœux qu'il prend ne doivent pas prendre effet, a plus forte raison dans <b>une situation ou il peut annuler les vœux de sa femme</b> meme <b>apres qu'elle ait fait un vœu, n'est-il pas logique qu'il puisse</b> <b>annuler les vœux de sa femme avant qu'elle ne fasse un vœu ?</b>
+
+### Partie 5
+La Gemara explique la preuve : <b>Quoi, ne fait-elle pas reference</b> au cas ou <b>les vœux de sa femme</b> sont <b>similaires aux siens</b> en ce sens que <b>tout comme ses vœux</b>, qui ont ete annules a l'avance, <b>ne prennent pas du tout effet</b>, <b>de meme</b> les vœux de <b>sa femme ne prennent pas du tout effet</b> lorsqu'ils sont annules a l'avance ? La Guemara rejette cette affirmation : <b>Non, ce</b> cas ou il annule ses propres vœux avant de les prendre est <b>tel qu'il est, et ce</b> cas ou il annule ses vœux avant qu'elle les prenne est <b>tel qu'il est;</b> la similitude entre les deux cas est suffisante pour une deduction <i>a fortiori</i>, mais ils ne sont pas similaires a tous egards.
+
+### Partie 6
+<b>Venez</b> et <b>entendez</b> une <i>baraita</i> : <b>Ils ont dit a Rabbi Eliezer :</b> Votre deduction <i>a fortiori</i> est erronee, comme on peut le voir dans cet exemple : <b>Et de meme que</b> en ce qui concerne <b>un bain rituel, qui eleve les impurs de leur</b> <b>impurete</b> rituelle lorsqu'ils s'y immergent mais <b>ne sauve pas les purs de devenir impurs</b> s'ils entrent en contact avec l'impurete apres l'immersion, de meme, en ce qui concerne <b>une personne, qui n'eleve pas les impurs de leur impurete,</b> par ex, lorsqu'une personne avale un objet rituellement impur et qu'elle s'immerge ensuite dans un bain rituel, l'objet reste impur, <b>n'est-il pas logique qu'elle n'epargne pas les objets purs</b> <b>de devenir impurs ?</b> Lorsque celui qui a avale un objet rituellement pur entre en contact avec l'impurete, l'objet qu'il a avale devrait egalement devenir impur. Ce n'est pas le cas, car un objet avale ne devient pas impur quand la personne qui l'a avale le devient. Par consequent, l'argument <i>a fortiori</i> est errone, et on ne peut pas deduire de la capacite a changer un statut, comme la capacite du mari a annuler les vœux de sa femme ou la capacite du bain rituel a rendre quelque chose rituellement pur, que la source du changement peut egalement empecher un changement de statut ou preserver ce statut.
+
+### Partie 7
+Cependant, <b>apprenez de</b> cette <i>baraita</i> que, selon Rabbi Eliezer, les vœux annules par le mari des le depart <b>ne prennent pas du tout effet</b>, car l'objection des rabbins presume que selon Rabbi Eliezer, les vœux ne prennent pas du tout effet. Leur argument est base sur l'analogie entre l'annulation preemptive et la prevention preemptive de l'impurete. La prevention preventive de l'impurete consiste a empecher un objet de devenir impur et, par analogie, l'annulation preventive consiste a empecher un vœu de prendre effet.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

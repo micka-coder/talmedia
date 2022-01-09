@@ -1,0 +1,66 @@
+
+### Part 1
+<b>as though they were fit,</b> and all three are impure, because the blood must have originated from one of them.
+
+### Part 2
+<strong>MISHNA:</strong> In a case of <b>three women who were sleeping in one bed</b> that was located adjacent to a wall, <b>and blood was discovered beneath the middle</b> woman, <b>all of them are ritually impure.</b> If the blood was discovered <b>beneath</b> the woman on <b>the inside,</b> closest to the wall, <b>the two innermost</b> women <b>are ritually impure and</b> the woman on <b>the outside is ritually pure.</b> If the blood was discovered <b>beneath</b> the woman on <b>the outside,</b> farthest from the wall, <b>the two outermost</b> women <b>are ritually impure and</b> the woman on <b>the inside is ritually pure.</b>
+
+### Part 3
+<b>When</b> is that the ruling? It is <b>when they passed</b> into their positions on the bed <b>via the foot of the bed; but if they passed</b> into their positions on the bed <b>via</b> the side of the bed, <b>over</b> the place where the blood was discovered, <b>all of them are ritually impure.</b> If immediately after the blood was discovered, <b>one of them examined</b> herself <b>and she was found</b> to be <b>ritually pure, she is pure and</b> the other <b>two are impure.</b> If <b>two of them examined</b> themselves <b>and found</b> that they were <b>ritually pure, they are pure and</b> the <b>third is impure.</b> If all <b>three of them examined</b> themselves <b>and found</b> that they were <b>ritually pure, all of them are ritually impure,</b> as the blood must have originated from one of them.
+
+### Part 4
+<b>To what</b> case <b>is</b> this <b>matter comparable?</b> It is similar <b>to</b> the case of <b>a ritually impure pile</b> of stones with an olive-bulk of a corpse beneath it, <b>where</b> this pile <b>was intermingled with two ritually pure piles, and they examined one of them and found it pure. That</b> pile <b>is pure and</b> the other <b>two are impure.</b> If they examined <b>two</b> of them <b>and found</b> them <b>ritually pure, they are ritually pure and</b> the <b>third is impure.</b>
+
+### Part 5
+If they examined all <b>three of them and found</b> them <b>ritually pure, all of them are impure;</b> this is <b>the statement of Rabbi Meir, as Rabbi Meir would say:</b> With regard to <b>any item that has</b> the <b>presumptive status of ritual impurity, it forever</b> remains <b>in its</b> state of <b>ritual impurity,</b> even if one examined the relevant area or item and the source of impurity was not found, <b>until it becomes known to you where</b> the <b>ritual impurity is.</b> The assumption is that the impurity was not found because the examination was not conducted properly.
+
+### Part 6
+<b>And the Rabbis say:</b> One continues <b>searching</b> the relevant area <b>until he reaches bedrock or virgin soil,</b> beneath which there is certainly no ritual impurity. If no ritual impurity is found at that stage, presumably an animal dragged the olive-bulk of the corpse from beneath the pile, and the pile of rocks is pure.
+
+### Part 7
+<strong>GEMARA:</strong> The previous mishna taught that if blood is found beneath one of three women lying together on a bed, they are all ritually impure. By contrast, the mishna here distinguishes based on the precise location where the blood was found. The Gemara asks: <b>What is different in the first clause,</b> i.e., the previous mishna, <b>which did not distinguish</b> on the basis of where the blood was found, <b>and what is different in the latter clause,</b> i.e., this mishna, <b>which does distinguish</b> in that manner? <b>Rabbi Ami said</b> that the previous mishna is referring to a case <b>where</b> the women were lying <b>intertwined,</b> and therefore it is impossible to distinguish between the woman on the inside and the woman on the outside.
+
+### Part 8
+§ The mishna teaches: If immediately after the blood was discovered, <b>one of them examined</b> herself and she was found to be ritually pure, she is pure and the other two are impure. If two of them examined themselves and found that they were ritually pure, they are pure and the third is impure. If all three of them examined themselves and found that they were ritually pure, all of them are ritually impure. The mishna proceeds to compare this case to that of a pile of stones beneath which there is an olive-bulk of a corpse. The Gemara asks: <b>Why does</b> the <i>tanna</i> need <b>to teach: To what</b> case <b>is</b> this <b>matter comparable?</b> The ruling of the mishna is clear enough without this analogy.
+
+### Part 9
+The Gemara explains that <b>this</b> is what <b>Rabbi Meir is saying to the Rabbis: What is different with regard to</b> the case of <b>blood, where you do not disagree</b> with me, as you concede that all three women are impure, <b>and what is different with regard to</b> the case of <b>the pile</b> of stones, <b>where you disagree</b> with me and maintain that all three piles of stones can be ritually pure if they are examined?
+
+### Part 10
+<b>And the Rabbis</b> would counter that the two cases are different. <b>Granted, there,</b> with regard to the piles of stones, one could <b>say</b> that <b>a raven</b> or some other animal <b>took</b> away the olive-bulk of the corpse, so there is a reason to deem all the piles pure. <b>But here,</b> in the case of the three women and the blood, <b>from where did this blood come?</b> It must have come from one of them. Therefore, at least one of the women must be ritually impure, and one cannot say that all three are pure.
+
+### Part 11
+The Gemara discusses other cases involving possible mistakes in examinations. <b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Meir said</b> that there was <b>an incident involving a sycamore</b> tree <b>in Kefar Sava, with regard to which they had a presumption of ritual impurity,</b> i.e., a presumption that there was a corpse buried beneath it. <b>And they examined</b> by digging in that place <b>and did not find</b> any corpse. <b>Some days</b> later, <b>the wind blew at it and uprooted</b> the sycamore tree, <b>and they found a skull from a corpse stuck in its roots.</b> This apparently indicates that in general one cannot rely upon an examination. The Sages <b>said to</b> Rabbi Meir: Do you seek to bring <b>a proof from there?</b> One can <b>say</b> that <b>they did not examine as much as was necessary.</b>
+
+### Part 12
+The Gemara cites another case. <b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Yosei said</b> that there was <b>an incident involving a cave in Shiḥin with regard to which they had a presumption of ritual impurity</b> of a corpse. <b>And they examined</b> by digging inside the cave <b>until they reached ground that was as smooth as a fingernail, and they did not find</b> any corpse. <b>Some days</b> later <b>workers entered</b> the cave <b>because</b> they sought shelter from <b>the rain. And they dug with their shovels and found a mortar full of bones.</b> Once again, this indicates that one cannot rely upon an examination. The Sages <b>said to</b> Rabbi Yosei: Do you bring <b>a proof from there?</b> One can <b>say they did not examine as much as was necessary.</b>
+
+### Part 13
+The Gemara cites yet another relevant case. <b>It is taught</b> in a <i>baraita</i>: <b>Abba Shaul says</b> that there was <b>an incident involving bedrock in Beit Ḥoron, with regard to which they had a presumption of ritual impurity</b> of a corpse. <b>And the Sages were unable to examine</b> it <b>because</b> the area of the bedrock <b>was too large. And there was one old man there, and his name was Rabbi Yehoshua ben Ḥananya. He said to them: Bring me sheets. They brought him sheets and he soaked them in water and spread them over</b> the bedrock. In every <b>place of ritual purity</b> the ground remained <b>dry,</b> and in every <b>place of ritual impurity</b> the ground became <b>moist.</b> They understood that it was not entirely bedrock, as the area where the ground was wet was actually soft earth. <b>And they examined</b> there by digging <b>and found a large pit filled with bones.</b>
+
+### Part 14
+It is <b>taught: That</b> pit that they found is <b>the pit that Ishmael, son of Nethaniah, filled with corpses, as it is written: “Now the pit where Ishmael cast all the dead bodies of the men whom he had slain by the side of Gedaliah</b> was that which Asa the king had made for fear of Baasa king of Israel; the same Ishmael, son of Nethaniah, filled with them that were slain” (Jeremiah 41:9).
+
+### Part 15
+The Gemara analyzes that verse: <b>And did Gedaliah kill them? But didn’t Ishmael kill them?</b> Gedaliah was one of those killed by Ishmael and his men (see Jeremiah 41:2). The Gemara answers: <b>Rather, since</b> Gedaliah <b>should have been concerned</b> and cautious based <b>on the advice of Johanan, son of Kareah,</b> who warned him that Ishmael was conspiring to kill him and even offered to go and kill Ishmael in a preemptive strike (see Jeremiah 40:13–16), <b>but</b> Gedaliah <b>was not concerned</b> and he refused to listen to Johanan’s advice, saying that he did not want to listen to malicious speech, <b>the verse ascribes him</b> blame <b>as though he</b> himself <b>killed them.</b>
+
+### Part 16
+§ In relation to the above comment that Gedaliah was killed after not heeding the warning of Johanan, the Gemara clarifies what is permitted when receiving such a warning. <b>Rava said:</b> With regard to <b>this</b> prohibition against listening to <b>malicious speech, even though one should not accept</b> the malicious speech as true, <b>one is</b> nevertheless <b>required to be concerned</b> about the harm that might result from ignoring it.
+
+### Part 17
+The Gemara cites examples of people who were concerned about malicious speech. There were <b>these people of the Galilee about whom a rumor emerged that they had killed someone. They came before Rabbi Tarfon</b> and <b>said to him: Will the Master hide us?</b> Rabbi Tarfon <b>said to them: What should we do? If I do not hide you,</b> your pursuers <b>will see you</b> and kill you. If <b>I do hide you,</b> this too is problematic, as <b>didn’t the Rabbis say:</b> With regard to <b>this</b> prohibition against listening to <b>malicious speech, even though one should not accept</b> the malicious speech as true, <b>one is required to be concerned</b> about the harm that might result from ignoring it? Therefore, <b>you</b> must <b>go</b> and <b>hide yourselves.</b>
+
+### Part 18
+The Gemara cites another case of a report that caused concern. Before the battle against Og, king of Bashan, it is stated: <b>“And the Lord said to Moses: Do not fear</b> him; for I have delivered him into your hand, and all his people, and his land; and you shall do to him as you did to Sihon king of the Amorites, who dwelt at Heshbon” (Numbers 21:34). The Gemara asks: <b>Now, Sihon and Og were brothers, as the Master said: Sihon and Og were sons of Ahijah, son of Shamhazai.</b> In <b>what</b> way is Sihon <b>different from Og, that</b> God found it necessary to warn Moses not to be <b>afraid</b> of Og, <b>and</b> in <b>what</b> way <b>is</b> Og <b>different from Sihon, that</b> there was <b>no</b> need for a warning not to be <b>afraid</b> of Sihon?
+
+### Part 19
+<b>Rabbi Yoḥanan says</b> that <b>Rabbi Shimon ben Yoḥai says: From the answer</b> that God gave <b>to that righteous</b> one, Moses, <b>you know what was in his heart,</b> i.e., what gave Moses cause to fear. Moses <b>said</b> to himself: <b>Perhaps the merit of our forefather Abraham will stand for</b> Og and save him. Og was the one who told Abraham that Lot had been taken captive by the four kings, enabling Abraham to rescue Lot.
+
+### Part 20
+The Gemara cites the source of this claim. <b>As it is stated: “And there came one that was saved, and told Abram the Hebrew,</b> now he dwelt by the terebinths of Mamre the Amorite, brother of Eshkol, and brother of Aner; and these were confederate with Abram. And when Abram heard that his brother was taken captive, he led forth his trained men, born in his house, three hundred and eighteen, and pursued as far as Dan” (Genesis 14:13–14). <b>And Rabbi Yoḥanan said</b> that the term “one that was saved” <b>is</b> referring to <b>Og, who was saved from</b> the punishment of <b>the generation of the flood.</b> For this reason, Moses was more afraid of Og.
+
+### Part 21
+§ The Gemara cites another instance in which an impure item was lost, similar to the case discussed above involving the pile of stones. <b>The Sages taught</b> in a <i>baraita</i>: Menstrual blood is itself a source of impurity. With regard to <b>a garment in which</b> a blood <b>stain was lost,</b> i.e., it is difficult to determine if the blood is still on the garment, <b>one applies to it,</b> i.e., scrubs it with, <b>seven</b> abrasive <b>substances</b> that are known to remove blood stains, <b>and</b> thereby <b>nullifies</b> the blood stain, so that the garment is pure. <b>Rabbi Shimon ben Elazar says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

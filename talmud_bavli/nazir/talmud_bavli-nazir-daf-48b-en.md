@@ -1,0 +1,45 @@
+
+### Part 1
+If so, <b>what</b> is the meaning when <b>the verse states: “For his father, or for his mother”</b> (Numbers 6:7)? It emphasizes that <b>it is to</b> bury <b>his father and to</b> bury <b>his mother that he may not become impure; however, he may become impure to</b> bury <b>a <i>met mitzva</i>.</b>
+
+### Part 2
+The <i>baraita</i> questions the need for this derivation: Even <b>if</b> the verse <b>had not stated</b> this <i>halakha</i>, <b>I have</b> a way of deriving it <b>by right,</b> i.e., logically, with an <i>a fortiori</i> inference: <b>General</b> prohibitions <b>are stated</b> in the Torah <b>with regard to a High Priest</b> contracting impurity from a corpse, i.e., “neither shall he go in to any dead bodies” (Leviticus 21:11), <b>and</b> similar <b>general</b> prohibitions <b>are stated with regard to a nazirite:</b> “He shall not come near to a dead body” (Numbers 6:6). The <i>baraita</i> explains: <b>Just as</b> the <b>general</b> prohibitions <b>stated with regard to a High Priest</b> teach that <b>it is to</b> bury <b>his father that he may not become impure, but he may become impure to</b> bury <b>a <i>met mitzva</i>, so too,</b> the <b>general</b> prohibitions <b>stated with regard to a nazirite</b> indicate that <b>it is for his father that he may not become impure, but he may become impure to</b> bury <b>a <i>met mitzva</i>.</b> Accordingly, there is no need for the derivation from the phrase “for his father or for his mother.”
+
+### Part 3
+The <i>baraita</i> refutes this proof: <b>Or</b> perhaps you can <b>go this way</b> and accept a different interpretation: <b>General</b> prohibitions <b>are stated with regard to a common priest</b> contracting impurity imparted by a corpse, i.e., “there shall none defile himself for the dead among his people” (Leviticus 21:1), <b>and general</b> prohibitions <b>are stated with regard to a nazirite. Just as</b> the <b>general</b> prohibitions <b>stated with regard to a common priest</b> teach that he <b>may become impure to</b> bury <b>his father</b> (Leviticus 21:2), <b>so too,</b> the <b>general</b> prohibitions <b>stated with regard to a nazirite</b> say that he <b>may become impure to</b> bury <b>his father.</b> Perhaps a nazirite is compared to a common priest, not a High Priest.
+
+### Part 4
+Since one cannot learn from the general prohibitions, one must revert to the previous derivation: <b>The verse states</b> with regard to a nazirite: <b>“He shall not become defiled for his father, or for his mother”</b> (Numbers 6:7), which indicates that <b>he may become impure to</b> bury <b>a <i>met mitzva</i>.</b> The <i>baraita</i> raises a difficulty with this last proof: One <b>requires</b> this verse for the <i>halakha</i> itself, <b>to say that</b> a nazirite, unlike a common priest, <b>may not become impure to</b> bury <b>his father.</b> How, then, can one learn from here that he may become impure to bury a <i>met mitzva</i>?
+
+### Part 5
+<b>Rather,</b> the <i>baraita</i> explains as follows: The superfluous phrase <b>“for his father”</b> serves <b>to say that he may not become impure to</b> bury <b>his father,</b> and all the more so for his other relatives. The phrase <b>“for his brother”</b> teaches that <b>he may not become impure</b> to bury his brother but <b>he may become impure to</b> bury <b>a <i>met mitzva</i>. “And for his mother”;</b> this phrase is <b>for a verbal analogy in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, that a nazirite may contract ritual impurity of types other than a corpse.
+
+### Part 6
+As for the phrase <b>“and for his sister,”</b> it is used <b>for that which is taught</b> in a <i>baraita</i>, <b>as it is taught</b> in a <i>baraita</i>: <b>“And for his sister”; what</b> is the meaning when <b>the verse states</b> this with regard to a nazirite? This detail is apparently superfluous, as the <i>halakha</i> that a nazirite may not become impure to bury a relative has already been derived.
+
+### Part 7
+The <i>baraita</i> continues: Rather, the term “and for his sister” teaches the following: <b>If</b> someone <b>went to slaughter his Paschal offering or to circumcise his son,</b> which are particularly stringent positive mitzvot, as their neglect is punished by <i>karet</i>, <b>and he hears that</b> a relative of <b>his had died,</b> one <b>might</b> have thought that <b>he should become impure</b> to bury his dead relative and abandon his performance of the mitzva. <b>You</b> can <b>say</b> in response that <b>he may not become impure,</b> as one is not permitted to neglect the obligation of the Paschal offering or circumcision, even to bury a close relative.
+
+### Part 8
+The <i>baraita</i> continues: One <b>might</b> have thought that <b>he may not become impure</b> even <b>to</b> bury <b>a <i>met mitzva</i>. The verse states: “For his sister.” It is</b> only <b>for his sister</b> or another close relative that the nazirite <b>may not become impure, but he does become impure to</b> bury <b>a <i>met mitzva</i>.</b> Since the verse had already taught that a nazirite may not become impure to bury a relative but does become impure to bury a <i>met mitzva</i> in an ordinary circumstance, the additional term “and for his sister” teaches that the same <i>halakha</i> applies even when he is going to perform an important mitzva.
+
+### Part 9
+<b>Rabbi Akiva says</b> that this verse dealing with a nazirite should be explained differently. “He shall not come near to a dead body” (Numbers 6:6) teaches the following: <b>“Body”; these are the distant</b> people. <b>“Dead”; these are the close</b> relatives. The subsequent verse stresses that <b>“for his father or for his mother” he may not become impure; however, he does become impure to</b> bury <b>a <i>met mitzva</i>.</b>
+
+### Part 10
+The next term in the verse, <b>“for his brother,”</b> indicates <b>that</b> even <b>if he was a High Priest and he was</b> also <b>a nazirite, he may not become impure to</b> bury <b>his brother, but he may become impure to</b> bury <b>a <i>met mitzva</i>.</b> As for the term <b>“for his sister,”</b> this is used to teach <b>that which is taught</b> in a <i>baraita</i>: <b>If one was going to slaughter his Paschal offering or to circumcise his son</b> and encountered a <i>met mitzva</i>, the obligation to bury the corpse takes precedence over the other important mitzva.
+
+### Part 11
+The Gemara asks: <b>And according to</b> the derivation of <b>Rabbi Akiva, from where does he</b> derive the <i>halakha</i> of the <b>verbal analogy of Rabbi</b> Yehuda HaNasi that a High Priest may contract impurities other than the impurity of a corpse? How does Rabbi Akiva derive this <i>halakha</i>?
+
+### Part 12
+The Gemara answers: Rabbi Akiva could have <b>said to you: Since the Master said</b> that <b>if</b> someone <b>was a High Priest and</b> also <b>a nazirite,</b> it is <b>to</b> bury <b>his brother that he may not become impure but he does become impure to</b> bury <b>a <i>met mitzva</i>,</b> one can therefore argue: <b>What</b> difference is it <b>to me</b> if he was <b>only a High Priest,</b> and <b>what</b> difference is it <b>to me</b> if he was both <b>a nazirite and a High Priest?</b> Once the Torah has stated that a nazirite may contract other forms of ritual impurity, the same <i>halakha</i> applies equally to a nazirite who is also a High Priest.
+
+### Part 13
+The Gemara asks: <b>And according to</b> the derivation of <b>Rabbi Yishmael, from where does he</b> derive that <b>a High Priest who is</b> also <b>a nazirite</b> must become impure to bury a <i>met mitzva</i>? The Gemara answers: <b>Since the Merciful One permits one prohibition with regard to a <i>met mitzva</i>,</b> either that of a High Priest or that of a nazirite, <b>what</b> difference is it <b>to me</b> if <b>one prohibition</b> is permitted, and <b>what</b> difference is it <b>to me</b> if <b>two prohibitions</b> are permitted? Once the Torah has permitted both a High Priest and a nazirite to contract ritual impurity to bury a <i>met mitzva</i>, it makes no difference if a single prohibition or two prohibitions are involved.
+
+### Part 14
+The Gemara asks further: If so, <b>why do I</b> need the term <b>“his sister”?</b> The Gemara answers: It might <b>enter your mind to say</b> that <b>when the Merciful One permits</b> the contracting of impurity <b>to</b> bury <b>a <i>met mitzva</i>,</b> this is in the case of <b>a nazirite and a priest,</b> each of which involves <b>a negative prohibition</b> not to become impure. <b>However,</b> with regard to <b>circumcision and</b> the <b>Paschal offering,</b> whose neglect entails the punishment <b>of <i>karet</i>,</b> perhaps one should <b>not become impure to</b> bury <b>a <i>met mitzva</i>.</b> The verse therefore <b>teaches us</b> that one must become impure even if this forces him to neglect a mitzva whose neglect is punishable by <i>karet</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

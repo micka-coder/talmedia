@@ -1,0 +1,60 @@
+
+### Part 1
+<b>And it is taught</b> in a <i>baraita</i>: If a husband says to his wife: This is your bill of divorce <b>from today and after</b> my <b>death,</b> then this is both a valid <b>bill of divorce and not</b> a valid <b>bill of divorce.</b> This is <b>the statement of the Rabbis. Rabbi</b> Yehuda HaNasi disagrees and <b>says:</b> A case <b>like this</b> is a valid <b>bill of divorce</b> without any uncertainty. This teaches that Rabbi Yehuda HaNasi and the Rabbis disagree only in this case, but everyone agrees that when he employed the language: On the condition, it is as though he stipulated: From now.
+
+### Part 2
+The Gemara asks: <b>And according to Rav Yehuda, who said</b> that Rabbi Yehuda HaNasi and the Rabbis <b>disagree about</b> one who employs the language: <b>On the condition, rather than disagreeing with regard to</b> the case where the husband said: <b>From today and after</b> my <b>death, let them disagree with regard to</b> the case where the husband said: <b>On the condition.</b> The Gemara answers that the <i>baraita</i> uses this case <b>to inform you about the far-reaching nature</b> of the opinion <b>of Rabbi</b> Yehuda HaNasi, who is certain that the bill of divorce is valid.
+
+### Part 3
+The Gemara challenges: <b>And let them disagree about: On the condition, to convey to you the far-reaching nature</b> of the opinion <b>of the Rabbis,</b> who do not hold that the phrase: On the condition, is considered to be like the phrase: From now, as this ruling is a more general matter. The Gemara answers: It is <b>preferable</b> to emphasize <b>the power of leniency,</b> and therefore it is preferable to teach the degree to which Rabbi Yehuda HaNasi is lenient.
+
+### Part 4
+§ The mishna teaches: If a husband said to his wife: This is your bill of divorce <b>on the condition that you will give me</b> money <b>from now until</b> the conclusion of <b>thirty days,</b> if she gives the money to him within thirty days she is divorced, and if not she is not divorced. The Gemara asks: <b>Isn’t</b> that <b>obvious,</b> since everything depends on whether or not the condition was fulfilled? The Gemara answers: No, the <i>halakha</i> that the divorce does not take effect unless she gives the money by that time needs to be said, <b>lest you say</b> that <b>the concern</b> of the husband that his wife will give him the money within a specific time frame <b>is not</b> a real <b>concern,</b> and he <b>comes</b> only <b>to galvanize her.</b> Although he wishes to receive this money as soon as possible, in truth he does not care if he receives it later. Therefore, <b>it teaches us</b> that his statement is a valid condition, and if she does not fulfill it then it is not a valid bill of divorce.
+
+### Part 5
+§ The mishna teaches that <b>Rabban Shimon ben Gamliel said:</b> There was <b>an incident in</b> the city of <b>Tzaidan</b> involving one who said to his wife: This is your bill of divorce on the condition that you will give me my coat, and she lost his coat. And the Rabbis said that she should give him the value of that coat, and by doing so she fulfills the condition and is divorced. The Gemara asks: <b>What</b> did Rabban Shimon ben Gamliel <b>teach</b> before, such <b>that he</b> now <b>teaches</b> and cites <b>an incident</b> which is similar to it? This incident does not seem to be referring to what was stated immediately before in the mishna.
+
+### Part 6
+The Gemara answers: The mishna <b>is incomplete and this is what it is teaching: If</b> the husband <b>said to</b> his wife: This is your bill of divorce <b>on the condition that you will give me my coat, and she lost his coat,</b> then since <b>he specifically stated to her:</b> Give me <b>my coat,</b> she cannot give him its value instead. And since she has lost the coat, the bill of divorce is not valid; this is the opinion of the Rabbis. <b>Rabban Shimon ben Gamliel says:</b> In such a case <b>she can give him its value. And Rabban Shimon ben Gamliel said</b> in support of his statement: There was <b>an incident also in</b> the city of <b>Tzaidan involving one who said to his wife: This is your bill of divorce on the condition that you will give me my coat, and she lost his coat. And the Rabbis said</b> that <b>she should give him its value.</b>
+
+### Part 7
+<b>Rabbi Asi raised a dilemma before Rabbi Yoḥanan:</b> If a man says to his wife: <b>This is your bill of divorce on the condition that you will give me two hundred dinars, and</b> afterward <b>he returned and said to her: It is waived for you,</b> then <b>what is</b> the <i>halakha</i>?
+
+### Part 8
+He explained his question in detail: <b>Let the dilemma be raised according to</b> the opinion of <b>the Rabbis,</b> and <b>let the dilemma be raised according to</b> the opinion of <b>Rabban Shimon ben Gamliel.</b>
+
+### Part 9
+<b>Let the dilemma be raised according to</b> the opinion of <b>the Rabbis:</b> One can say that <b>only there</b> do <b>the Rabbis state</b> their opinion that she is not divorced if the condition is not fulfilled and she gives him his coat, because <b>he did not waive</b> his claim to it; <b>but here he says to her: It is waived for you,</b> so they are divorced. <b>Or perhaps</b> one can say that <b>even Rabban Shimon ben Gamliel states</b> that she can be divorced even if he does not receive the coat <b>only there, as she appeases him by</b> giving him <b>money,</b> i.e., the condition is considered to be fulfilled due to the fact that he received the value of the coat; <b>but</b> in a case where he waives the condition <b>entirely, no,</b> because he does not receive anything from her. Rabbi Yoḥanan <b>said to him</b> in response: <b>She is not divorced,</b> because the condition has not been fulfilled.
+
+### Part 10
+<b>He raised an objection to his</b> opinion from a mishna (<i>Nedarim</i> 63b): In the case of <b>one who says to another: Benefiting from me is <i>konam</i> for you,</b> meaning it is prohibited for you to derive benefit from me, <b>if you do not give my son one <i>kor</i> of wheat and two barrels of wine</b> as a wedding gift, <b>Rabbi Meir says:</b> It is <b>prohibited</b> for this other person to benefit from the person who took the vow <b>until he gives</b> his son the gift. <b>And the Rabbis say: Even this</b> individual who took the vow <b>can dissolve his vow without</b> the <b>consent of a halakhic authority, and</b> he does this by <b>saying: I hereby</b> consider it <b>as though I have received</b> the gift from you. Based on this mishna, it would seem that if the husband forgives his wife the money that she owes him, it should be considered as if he received it, and the bill of divorce should be valid.
+
+### Part 11
+The Gemara rejects this: <b>How can</b> these cases <b>be compared? There,</b> in the case of a bill of divorce, <b>he intends to vex her, and</b> until she pays him <b>he did not vex her.</b> If he forgives this condition, his initial intention has not been fulfilled. <b>Here,</b> in the case of the vow, the reason the father took the vow is <b>for the sake of profit;</b> he wants his son to receive a valuable gift, <b>but</b> subsequently the one who took the vow decides that <b>it was not necessary.</b> Therefore, he can waive his claim.
+
+### Part 12
+The Gemara relates an incident of <b>a certain man who said to his sharecropper: Everyone waters</b> the field <b>three</b> times during the season, <b>and they consume,</b> i.e., receive as payment, <b>one quarter</b> of the crops from the field. Will <b>you water four</b> times <b>and consume</b> as your payment <b>one-third</b> of the produce? <b>Ultimately, rain came</b> when the sharecropper would have needed to water a fourth time, and so he did not need to water the field a fourth time. The question was presented to the Sages: Is the sharecropper still entitled to receive one-third of the produce since he was prepared to water the field four times, although ultimately it was not necessary to do so?
+
+### Part 13
+<b>Rav Yosef said: But he did not water</b> the field a fourth time, so the condition was not fulfilled. Consequently, he deserves the same as the other sharecroppers, and receives only one quarter of the produce. <b>Rabba said: But it was not necessary</b> to water the field the fourth time because the rain fell to the benefit of the sharecropper, and therefore he should receive one-third of the produce.
+
+### Part 14
+The Gemara asks: <b>Shall we say that Rav Yosef said</b> his ruling <b>in accordance</b> with the opinion of <b>the Rabbis,</b> who require that the condition of the bill of divorce be fulfilled, <b>and that Rabba said</b> his ruling <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel,</b> that it is not the fulfillment of the specifics of the condition that matter but the fulfillment of the intent of the condition?
+
+### Part 15
+The Gemara asks: <b>And</b> how can <b>you understand</b> it in this way? <b>But don’t we maintain</b> that in all of their disputes <b>the <i>halakha</i></b> is <b>in accordance with</b> the opinion <b>of Rabba</b> when he disagrees with Rav Yosef? <b>And with regard to this</b> <i>halakha</i> we maintain that the <b><i>halakha</i></b> is <b>not in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel.</b> If so, this presents a contradiction between one <i>halakha</i> and another.
+
+### Part 16
+<b>Rather,</b> according to both opinions, this dispute is <b>actually in accordance with</b> the opinion of <b>the Rabbis. Rav Yosef</b> clearly rules <b>in accordance with the Rabbis. And Rabba</b> could have <b>said to you: I was saying</b> my statement <b>even according to</b> the opinion of <b>the Rabbis,</b> as <b>the Rabbis are saying there</b> that she is not divorced if she does not return the coat itself <b>only when</b> the husband <b>intends to vex her,</b> and if she does not need to give the coat itself she will not be vexed, as it is not difficult for her to give him its value. But <b>here,</b> in the case of watering the field, the reason the owner is making the condition <b>is</b> only <b>for the sake of</b> increasing his <b>profit, and it was not necessary</b> to actually water the field.
+
+### Part 17
+§ With regard to the redemption of houses in walled cities, <b>we learned elsewhere</b> in a mishna (<i>Arakhin</i> 31b) that if a house was sold and not redeemed by its owners within twelve months it remains permanently in the possession of the purchaser. The Gemara describes this: <b>At first</b> the purchaser <b>would hide</b> for all of the final <b>day of the twelfth month so that</b> the house would be <b>confirmed</b> as <b>his</b> (see Leviticus 25:29–30). Because the purchaser was in hiding, the seller would be unable to redeem the house from him. <b>Hillel the Elder instituted</b> an ordinance <b>whereby</b> the seller <b>may deposit [<i>ḥolesh</i>] his</b> redemption <b>money in</b> the Temple treasury <b>chamber, and</b> then <b>he may break the door</b> of his house <b>and enter</b> and take possession. <b>And when that</b> purchaser <b>wishes, he should come and take his money</b> from the Temple treasury.
+
+### Part 18
+<b>And Rava says: From the ordinance of Hillel we learn</b> that if one says to his wife: <b>This is your bill of divorce on the condition that you will give me two hundred dinars, and she gave him</b> the money <b>with his consent,</b> then she is <b>divorced.</b> If she gave it to him <b>against his will</b> then <b>she is not divorced.</b>
+
+### Part 19
+How does Rava prove this? <b>From</b> the fact <b>that</b> it <b>was necessary for Hillel to institute</b> a unique ordinance in the case of houses in walled cities whereby <b>giving against the will</b> of the receiver <b>is</b> considered <b>giving.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

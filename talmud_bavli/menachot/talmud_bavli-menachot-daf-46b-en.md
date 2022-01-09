@@ -1,0 +1,81 @@
+
+### Part 1
+the <b>sheep are lost</b> as well, i.e., they cannot be sacrificed, and one must bring different loaves and sheep. Similarly, if the <b>sheep are lost</b> after the waving, <b>the loaves are</b> thereby <b>lost</b> as well, since a bond was established between them by means of the waving.
+
+### Part 2
+<b>And if you say</b> that <b>waving does not establish a bond</b> between the loaves and the sheep, then one can raise the following dilemma: If one <b>brought loaves and sheep and they were waved, and</b> then <b>the loaves were lost and</b> he <b>brought other loaves</b> to replace the original loaves, does <b>that</b> second set of <b>loaves require waving</b> with the sheep, as it has not yet been waved? <b>Or does it not require waving,</b> as the accompanying sheep have already been waved with the original loaves, and the sheep are the subject in the verse that serves as the source of the requirement of waving (see Leviticus 23:20)?
+
+### Part 3
+Rabbi Yirmeya clarifies the dilemma: In a case where the <b>sheep were lost</b> after the waving, <b>do not raise the dilemma, as</b> in this case <b>they certainly require waving,</b> because the primary obligation of waving is mentioned with respect to the sheep, and these sheep have not yet been waved. <b>When should you raise the dilemma?</b> You should raise it in a case where <b>the loaves were lost</b> after the waving.
+
+### Part 4
+<b>And according to</b> the opinion <b>of</b> Rabbi Shimon <b>ben Nannas,</b> who holds that failure to sacrifice the sheep prevents one from sacrificing the loaves, <b>do not raise the dilemma, as he says</b> that the <b>sheep are primary.</b> Consequently, since the sheep have been waved, there is no need to repeat the waving. <b>When should you raise the dilemma?</b> Raise it <b>according to</b> the opinion <b>of Rabbi Akiva,</b> who holds that failure to bring the loaves prevents one from sacrificing the sheep, <b>as he says</b> that the <b>loaves are primary.</b> According to his opinion, <b>what</b> is the <i>halakha</i> concerning the loaves that are brought as replacements?
+
+### Part 5
+On the one hand, one might say that <b>since the loaves are primary</b> and this set of loaves has not yet been waved, <b>it requires waving. Or</b> on the other hand, <b>perhaps</b> one should say that <b>since its permitting factors are</b> the <b>sheep,</b> and they were already waved, the new set of loaves <b>does not require waving.</b> The Gemara concludes that the question <b>shall stand</b> unresolved.
+
+### Part 6
+§ <b>Abaye said to Rava: What is different</b> about the <b>two sheep</b> brought as peace offerings together with the two loaves of <i>Shavuot</i>, such <b>that their</b> slaughter <b>sanctifies the loaves</b> (see 47a), <b>and</b> according to Rabbi Yoḥanan failure to sacrifice them once they have been slaughtered <b>prevents</b> the bringing of the loaves; <b>and what is different</b> about the <b>seven sheep, the bull, and</b> the two <b>rams</b> brought on <i>Shavuot</i> as an additional offering, such <b>that their</b> slaughter <b>does not sanctify</b> the <b>loaves, and</b> failure to sacrifice them <b>does not prevent</b> the bringing of the loaves?
+
+### Part 7
+Rava <b>said to</b> Abaye: The reason for the distinction is <b>because</b> the two sheep and the loaves brought as peace offerings <b>are bound to each other through the waving.</b> This is not so with regard to the additional offerings, which are not waved with the loaves. The Gemara challenges: <b>But</b> in the case of <b>a thanks offering</b> and its loaves, which are not waved together, <b>they are not bound to each other through waving, and</b> nevertheless the slaughter of the animal offering <b>sanctifies</b> the loaves <b>and</b> failure to sacrifice the animal offering <b>prevents</b> the bringing of the loaves. This indicates that the waving is not the critical factor.
+
+### Part 8
+<b>Rather,</b> the reason for the distinction is that the two sheep brought as peace offerings are <b>comparable to a thanks offering. Just as a thanks offering is a peace offering, so too</b> the two sheep are <b>also a peace offering.</b> Consequently, just as the slaughter of the thanks offering sanctifies the accompanying loaves, and failure to sacrifice the animal prevents one from bringing the loaves, the same applies with regard to the sheep peace offerings and loaves of <i>Shavuot</i>.
+
+### Part 9
+The Gemara responds: <b>Are</b> the two sheep of <i>Shavuot</i> and the thanks offering really <b>comparable? There,</b> in the case of the thanks offering, <b>there are no other animal offerings</b> brought <b>with it.</b> But <b>here,</b> in the case of the offerings brought on <i>Shavuot</i>, <b>where there are other animal offerings</b> brought <b>with it, let these</b> peace offerings <b>and those</b> additional offerings <b>sanctify</b> the loaves. Why is it only the sheep brought as peace offerings that sanctify the loaves?
+
+### Part 10
+<b>Rather,</b> the reason for the distinction is that the two sheep brought as peace offerings are <b>comparable to a nazirite’s ram,</b> which is sacrificed as a peace offering when he completes his term of naziriteship, in addition to a lamb that he sacrifices as a burnt offering, a female lamb that he brings then as a sin offering, and the nazirite loaves (see Numbers 6:14–15). <b>Just as</b> in the case of a <b>nazirite’s ram, even though there are other offerings</b> brought with it, nevertheless <b>it is</b> the slaughter of the <b>peace offering that sanctifies</b> the nazirite loaves and <b>not</b> the slaughter of <b>anything else, here too,</b> the <i>halakha</i> <b>is no different,</b> and it is specifically the slaughter of the peace offerings that sanctifies the loaves.
+
+### Part 11
+The Gemara asks: <b>And there,</b> in the case of the offerings of the nazirite, <b>from where do we</b> derive that it is specifically the slaughter of the peace offering that sanctifies the loaves? The Gemara answers: This is <b>as it is taught</b> in a <i>baraita</i> concerning a verse stated with regard to the offerings of the nazirite: <b>“And he shall offer the ram for a sacrifice of peace offerings to the Lord, with the basket of unleavened bread”</b> (Numbers 6:17). This verse, which connects the ram and the loaves, <b>teaches that the basket</b> of the nazirite loaves <b>comes</b> as <b>an obligation for the ram,</b> which is a peace offering, <b>and the slaughter of the ram sanctifies</b> the loaves. <b>Therefore,</b> if the slaughter was unfit, e.g., in a case where <b>he slaughtered</b> the ram <b>not for the sake of</b> a peace offering, <b>the loaves were not sanctified.</b>
+
+### Part 12
+§ The mishna teaches that according to Rabbi Akiva failure to sacrifice the two sheep brought as peace offerings does not prevent sacrifice of the loaves. Consequently, if there are no sheep, the loaves are sacrificed by themselves. Concerning this <b>the Sages taught</b> in a <i>baraita</i>: In a case where <b>the two loaves</b> are <b>brought by themselves, they should be waved.</b> They should then be left overnight so that <b>their form decays,</b> i.e., they become disqualified, <b>and they are</b> then <b>brought out to the place of burning,</b> like any disqualified offering.
+
+### Part 13
+The Gemara challenges: <b>Whichever way you</b> look at it, this is difficult: <b>If</b> the loaves are <b>brought</b> and waved in order <b>to be eaten, let</b> the priests <b>eat them</b> rather than burn them. <b>If</b> they are <b>brought</b> only <b>to be burned, let</b> the priests <b>burn them immediately. Why are they</b> left overnight so that they undergo <b>a decay of form,</b> i.e., become disqualified?
+
+### Part 14
+<b>Rabba said: Actually,</b> the loaves are <b>brought</b> and waved in order <b>to be eaten.</b> Nevertheless, the Sages instituted a rabbinic <b>decree</b> that they not be eaten out of concern <b>lest sheep become available to</b> the nation <b>the following year, and they</b> might <b>say: Didn’t we eat the loaves without</b> any accompanying <b>sheep last year [<i>eshtakad</i>]? Now too, we will eat</b> the loaves without sacrificing sheep.
+
+### Part 15
+<b>And they will not know that</b> the reason they were permitted to eat the loaves without sacrificing sheep <b>last year</b> is that <b>there were no sheep,</b> and therefore the two loaves <b>permitted themselves</b> to be eaten, i.e., they could be eaten without the sacrifice of the sheep. But <b>now that there are sheep, it is</b> the sacrifice of <b>the sheep that permits</b> the loaves to be eaten. Since loaves brought without sheep are fit by Torah law and may not be eaten due to rabbinic decree, they may not be burned until they become disqualified by remaining overnight.
+
+### Part 16
+<b>Rabba said: From where do I say</b> this, i.e., what is the source for my statement? It is <b>as we learned</b> in a mishna (<i>Shekalim</i> 1:4): <b>Rabbi Yehuda said</b> that <b>ben Bukhri testified</b> before the Sages <b>in Yavne: Any priest who contributes his</b> half-<b>shekel is not</b> considered <b>a sinner,</b> despite the fact that he is not obligated to do so.
+
+### Part 17
+Rabbi Yehuda added that <b>Rabban Yoḥanan ben Zakkai said to</b> ben Bukhri: <b>That is not</b> the case, <b>rather, any priest who does not contribute his</b> half-<b>shekel</b> is considered <b>a sinner,</b> as they are obligated in this mitzva like all other Jews. <b>But the priests</b> who do not contribute the half-shekel <b>interpret this</b> following <b>verse to their own</b> advantage in order to excuse themselves from the mitzva.
+
+### Part 18
+The verse states: <b>“And every meal offering of the priest shall be wholly made to smoke; it shall not be eaten”</b> (Leviticus 6:16). Those priests claim as follows: <b>Since the <i>omer</i></b> offering <b>and the two loaves,</b> i.e., the public offering of two loaves from the new wheat, brought on the festival of <i>Shavuot</i>, <b>and the shewbread</b> placed on the Table in the Sanctuary each Shabbat, which are all meal offerings, <b>are ours,</b> then if we contribute half-shekels we will have partial ownership of these communal offerings, as they are purchased with the half-shekels. <b>How,</b> then, <b>can they be eaten?</b> They would then be regarded as priests’ meal offerings, which must be wholly burned.
+
+### Part 19
+Rabba discusses this mishna: <b>What are the circumstances</b> of <b>these two loaves? If we say</b> that the mishna is referring <b>to</b> a case <b>where</b> they are <b>brought with the animal offering,</b> i.e., the two sheep brought as peace offerings, why shouldn’t the loaves be eaten? <b>Is that to say</b> that <b>priests cannot volunteer</b> to bring <b>a thanks offering and its loaves and eat them?</b> Just as the loaves that accompany a thanks offering may be eaten, even if brought by a priest, the same <i>halakha</i> should apply to the two loaves when they accompany sheep brought as peace offerings.
+
+### Part 20
+<b>Rather,</b> is it <b>not</b> referring to a case <b>where</b> the two loaves are <b>brought by themselves,</b> and the mishna <b>teaches</b> that the priests claimed: <b>How</b> can <b>they be eaten? Apparently,</b> in principle the loaves <b>come to be eaten,</b> but due to rabbinic decree they are not eaten and are left overnight until their form decays.
+
+### Part 21
+<b>Abaye said to</b> Rabba in response: <b>Actually,</b> the mishna can be interpreted as referring <b>to</b> loaves <b>brought with the animal offering,</b> and therefore it does not prove that when the two loaves are brought by themselves they may be eaten. <b>And as for that which</b> is <b>difficult for you</b> based <b>on</b> the case of <b>a thanks offering and its loaves,</b> the resolution is that the <b>loaves of a thanks offering are not called a meal offering,</b> and therefore even when a priest brings a thanks offering, the loaves may be eaten. By contrast, <b>the two loaves</b> of <i>Shavuot</i> <b>are called a meal offering, as it is stated</b> with regard to the two loaves: “Also in the day of the first fruits, <b>when you bring a new meal offering to the Lord”</b> (Numbers 28:26). Therefore, the priests held that if they would donate half-shekels, the two loaves would not be permitted to be eaten.
+
+### Part 22
+<b>Rav Yosef said</b> a different response to Rabba’s proof: <b>Actually,</b> when the two loaves of <i>Shavuot</i> are brought by themselves <b>they come to be burned,</b> i.e., they may not be eaten. <b>And this is the reason that we do not burn them</b> until the following day: It is <b>because one may not burn consecrated</b> items <b>on a Festival.</b>
+
+### Part 23
+<b>Abaye said to</b> Rav Yosef: <b>Is</b> the burning of the two loaves <b>comparable</b> to the burning of other consecrated items, such that the loaves may not be burned right away for this reason? <b>There,</b> in the case of other consecrated items, <b>this is not their mitzva,</b> i.e., they are supposed to be eaten, but if they become disqualified they must be burned. Conversely, <b>here,</b> in the case of the two loaves of <i>Shavuot</i> that are brought by themselves, <b>where this is their mitzva,</b> i.e., they are supposed to be burned, <b>let</b> the priests <b>burn them</b> on the Festival, <b>just as is</b> the <i>halakha</i> in the case <b>of the bull and the goat of Yom Kippur,</b> which are burned on Yom Kippur despite the fact that it is a Festival.
+
+### Part 24
+<b>Rather, Rav Yosef said:</b> The reason the loaves are left overnight is due to a rabbinic <b>decree</b> not to burn them immediately, <b>lest sheep become available to</b> the nation <b>afterward,</b> i.e., later in the day, in which case the loaves could be waved with them and then eaten. <b>Abaye said to</b> Rav Yosef: That <b>works out well</b> for the <b>entire time</b> period when <b>they</b> may be <b>sacrificed,</b> i.e., until the afternoon daily offering is sacrificed. But <b>after that, let them burn</b> the loaves immediately and not wait until the next day. Rav Yosef replied: <b>What</b> is the meaning of the phrase in the <i>baraita</i> <b>that teaches</b> that the loaves must be left until <b>their form decays?</b> It means that they must be left until <b>the form of their sacrifice</b> has passed, i.e., until after the time when the sheep could be sacrificed.
+
+### Part 25
+<b>Rava said</b> that there is a different response to Rabba’s proof: When the two loaves of <i>Shavuot</i> are brought by themselves, by Torah law <b>they come to be eaten, but</b> due to rabbinic <b>decree</b> they are not eaten and are left overnight until they are disqualified. The reason for the decree is <b>due to</b> that <b>which Rabba</b> said, i.e., due to the concern that the following year sheep will be available and nevertheless the nation will bring the two loaves without sheep. <b>But</b> the proof that by Torah law the loaves may be eaten is <b>not from</b> Rabba’s line of <b>reasoning,</b> i.e., from the mishna in <i>Shekalim</i>; <b>rather,</b> it is <b>from a verse.</b>
+
+### Part 26
+<b>And Rava said</b> by way of explanation: <b>From where do I state</b> this <i>halakha</i>? From the fact <b>that it is written</b> with regard to the two loaves: <b>“You shall bring out of your dwellings</b> two <b>loaves of waving</b> of two tenth parts of an ephah; they shall be of fine flour, they shall be baked with leaven, <b>for first fruits to the Lord”</b> (Leviticus 23:17). <b>Just as first fruits</b> are brought <b>by themselves,</b> without an accompanying animal offering, <b>so too the two loaves</b> are brought <b>by themselves</b> when there are no sheep available. <b>And</b> learn <b>from this</b> comparison to first fruits that <b>just as first fruits</b> are brought <b>to be eaten, so too the two loaves</b> are <b>also</b> brought <b>to be eaten,</b> even in the absence of the sheep brought as peace offerings.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

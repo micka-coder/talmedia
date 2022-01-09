@@ -1,0 +1,18 @@
+
+### Partie 1
+S'il y avait <b>deux</b> personnes <b>griffant ensemble un couteau</b> <b>et abattant</b> un animal, <b>une</b> abattant <b>en raison de l'un de tous ceux</b> enumeres dans la premiere clause de la mishna <b>et une</b> abattant <b>en raison d'une affaire legitime,</b> leur <b>abattage n'est pas valide.</b>
+
+### Partie 2
+<strong>GEMARA:</strong> La mishna affirme que si l'on abat en raison de montagnes ou d'autres entites naturelles, l'abattage est impropre. La Guemara en deduit : Il est <b>inapte, oui;</b> en ce qui concerne les <b>offrandes aux morts,</b> c'est-a-dire aux idoles, il n'est <b>pas</b> dans cette categorie. Apparemment, le statut de l'animal est celui d'une carcasse non abattue, dont le benefice est permis, et non celui d'une offrande idolatre, dont le benefice est interdit. <b>Et</b> la Guemara <b>souleve une contradiction</b> a partir d'une <i>baraita</i> : En ce qui concerne <b>celui qui egorge en l'honneur des montagnes, en l'honneur des collines, en l'honneur des rivieres, en l'honneur des etendues sauvages, en l'honneur du soleil et de la lune, en l'honneur des etoiles et des constellations, en l'honneur de Michel le grand ange tutelaire,</b> ou meme <b>en l'honneur d'un petit ver, ce sont des offrandes aux morts,</b> dont le benefice est interdit.
+
+### Partie 3
+<b>Abaye a dit :</b> La contradiction apparente entre la mishna et le <i>baraita</i> n'est <b>pas difficile. Cette</b> mishna qui enseigne que l'abattage n'est pas valable mais que le benefice est permis fait reference a un cas <b>ou l'on dit</b> qu'on abat l'animal pour le bien <b>de la montagne</b> elle-meme, qui n'est pas une idole. <b>Ce</b> <i>baraita</i> qui enseigne que l'animal est une offrande aux morts et que le benefice est interdit se refere a un cas <b>ou l'on dit</b> qu'on abat l'animal pour l'amour <b>de l'ange de la montagne. </b> Le langage du <i>baraita</i> <b>est egalement precis, car</b> la montagne et les autres entites naturelles <b>sont enseignees</b> en meme temps que et donc <b>similairement a Michel, le grand ange tutelaire. Concluez-en</b> que le <i>tanna</i> fait reference a l'abattage pour le bien d'une entite spirituelle, et non a la montagne elle-meme.
+
+### Partie 4
+<b>Rav Huna dit : Si l'animal d'un autre etait couche devant une idole, une fois que l'on a coupe un <i>siman</i>,</b> la trachee ou le gosier, <b>il a rendu</b> l'animal <b>interdit. Il tient conformement a ce que dit Ulla</b> que <b>Rabbi Yohanan dit : Bien que</b> les Sages aient <b>dit</b> que <b>celui qui s'incline devant l'animal d'autrui ne le rend pas interdit,</b> si <b>il a accompli</b> un <b>sacrifice sur celui-ci, il le rend interdit.</b> Le cas cite par Rav Huna implique une action de ce genre, coupant un <i>siman</i> ; par consequent, l'animal est interdit.
+
+### Partie 5
+<b>Rav Nahman souleve une objection a</b> l'opinion de <b>Rav Huna</b> a partir d'une <i>baraita</i> : <b>Quelqu'un qui</b> involontairement <b>abatte</b> un animal qui a ete designe comme <b>offrande pour le peche le Chabbat en dehors</b> du Temple, <b>pour le culte des idoles, est susceptible</b> d'apporter <b>trois offrandes pour le peche :</b> une pour avoir accompli le travail interdit de l'abattage le Chabbat, une pour avoir abattu un animal sacrificiel en dehors du Temple, et une pour avoir abattu un animal pour le culte des idoles. <b>Et si vous dites</b> que <b>des lors qu'il coupe un <i>siman</i>, il rend</b> l'animal <b>interdit</b> comme une offrande idolatre, alors <b>il n'est pas susceptible</b> d'apporter une offrande pour le peche <b>pour l'abattage</b> d'un animal sacrificiel <b>a l'exterieur</b> de la cour du Temple,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

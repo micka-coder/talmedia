@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>On ne la retire pas</b> de son mari en raison d'une suspicion <b>du fait d'une rumeur</b> seule. <b>Ici aussi, on ne l'eloigne pas</b> de son mari <b>en raison d'une rumeur.</b>
+
+### Partie 2
+<strong>MISHNA:</strong> <b>Et</b> pour <b>tous ceux</b> qui ont ete impliques pour permettre a la femme de se remarier, c'est-a-dire, le juge, l'agent qui a apporte un acte de divorce, et celui qui a temoigne pour une femme que son mari est mort, si <b>ils avaient des epouses</b> au moment de la decision ou du temoignage <b>et</b> leurs epouses <b>mortes</b> par la suite, alors ces femmes qu'ils avaient liberees <b>sont autorisees a se marier avec eux.</b> Il n'y a aucune inquietude que, alors que leurs epouses etaient encore en vie, ces individus aient pose leurs yeux sur une autre femme.
+
+### Partie 3
+<b>Et</b> en ce qui concerne <b>toutes ces</b> femmes a qui on a interdit d'epouser un certain homme a cause de quelque suspicion, si <b>elles ont ete</b> par la suite <b>mariees a d'autres et</b> ensuite <b>reduites en divorce ou veuves</b> du second mari, <b>il leur est permis de se marier avec eux,</b> c'est-a-dire avec le juge, le messager ou le temoin qui lui a permis de se remarier. <b>Et toutes ces</b> femmes qui etaient interdites de mariage a cause de quelque suspicion <b>sont permises aux fils ou aux freres</b> de ceux qui les ont liberees.
+
+### Partie 4
+<strong>GEMARA:</strong> La mishna a enseigne que si l'un des hommes avait des epouses qui sont mortes par la suite, ils peuvent epouser ces femmes liberees par eux. La Guemara en deduit ce qui suit : <b>Si</b> les epouses de ceux qui ont rendu la femme permise <b>morte, oui,</b> il leur est permis d'epouser la femme qu'ils ont liberee pour le mariage ; mais si les epouses <b>etaient divorcees, non,</b> c'est interdit. Dans ce cas, epouser la femme que l'on a rendue permise eveillerait des soupcons sur le fait que l'on avait en fait prevu de l'epouser depuis le debut.
+
+### Partie 5
+<b>Rav Hillel a dit a Rav Ashi : Pourtant, il est enseigne</b> dans une <i>baraita</i> : <b>Meme s'ils ont ete divorces</b> de leurs premieres epouses, il leur est permis d'epouser les femmes qu'ils ont affranchies. La Guemara repond : <b>Ceci</b> n'est <b>pas difficile : Cette</b> mishna fait reference a un cas <b>ou il y avait une querelle</b> entre le mari et la femme au moment ou il a libere l'autre femme, car alors on peut legitimement craindre qu'il etait deja interesse par elle. <b>Ce</b> cas de la <i>baraita</i> <b>etait lorsqu'il n'y avait pas de querelle</b> entre eux a ce moment-la, et donc le divorce resultait clairement d'une autre raison.
+
+### Partie 6
+<b>Et si vous le souhaitez, dites : Ceci et cela</b> ont ete dits dans les cas <b>ou il n'y avait pas de querelle</b> entre celui qui a libere la femme et sa premiere epouse, et ce n'est que plus tard qu'ils se sont disputes et ont divorce. <b>Et ceci</b> n'est <b>pas difficile : Ce</b> cas de la mishna <b>etait quand il a commence</b> la querelle <b>lui-meme,</b> car alors on peut legitimement craindre qu'il ait eu un interet pour cette autre femme et qu'il ait donc cherche une raison de divorcer de sa femme. <b>Et ce</b> cas du <i>baraita</i> <b>etait lorsque</b> sa femme <b>a commence</b> la querelle, car alors il n'y aurait aucune raison de le soupconner de liberer l'autre femme pour l'epouser.
+
+### Partie 7
+La mishna a declare : <b>Et</b> en ce qui concerne <b>toutes ces</b> femmes, <b>si elles ont ete mariees</b> a d'autres et qu'elles ont ensuite ete divorcees ou veuves, il leur est permis d'epouser ceux qui ont provoque leur liberte de mariage en premier lieu. <b>Il nous entre dans l'esprit de dire</b> que le cas dont il est question ici etait celui de la <b>mort apres la mort,</b> c'est-a-dire le cas d'une femme dont le deces du premier mari avait ete corrobore par un seul temoin mais dont le second mari est mort egalement, <b>et</b> egalement au cas de <b>divorce suite</b> a un acte de <b>divorce</b> qui avait ete valide par un seul temoin.
+
+### Partie 8
+Sur la base de ce qui precede, <b>doit-on dire que la mishna,</b> qui permet a une femme de se remarier meme apres le deces de ses deux precedents maris, <b>n'est pas conforme</b> a l'avis du <b>Rabbi</b> Yehuda HaNasi ? <b>Aussi, si c'est conforme</b> a l'avis de <b>Rabbi</b> Yehuda HaNasi, <b>n'a-t-on pas</b> Rabbi Yehuda HaNasi <b>dit : Apres deux fois</b> une femme a la <b>presomption</b> de causer la mort de ses maris, et une telle femme est consideree comme meurtriere. Par consequent, elle ne peut pas se remarier. Puisqu'il n'y a aucune mention d'une telle preoccupation dans la mishna, il semble que la mishna ne soit pas en accord avec l'opinion de Rabbi Yehuda HaNasi.
+
+### Partie 9
+La Guemara rejette cet avis : <b>Aucune</b> preuve ne peut etre tiree de ce texte, car il peut etre fait reference ici a <b>la mort apres le divorce ou au divorce apres la mort.</b> La mishna pourrait se referer soit a une femme qui a d'abord ete divorcee et ensuite rendue veuve par la mort de son second mari, soit a une femme dont le premier mari est mort et qui a ensuite ete divorcee, mais pas a un cas ou elle a ete rendue veuve par la mort de deux maris.
+
+### Partie 10
+§ La mishna a enseigne : <b>Et toutes ces</b> femmes qui etaient interdites d'epouser l'homme qui les a liberees a cause d'une certaine suspicion <b>sont permises aux fils ou aux freres</b> de ceux qui les ont liberees. La Gemara demande : En <b>quelle</b> maniere <b>ce cas est-il</b> different de celui que nous avons appris</b> dans la <i>Tosefta</i> (4:5) que <b>une personne soupconnee</b> d'adultere <b>avec</b> une <b>femme specifique est interdite</b> non seulement de l'epouser, mais aussi <b>de</b> epouser <b>sa mere, et sa fille, et sa sœur. </b> Pourtant ici on autorise ses fils et ses freres a epouser la femme malgre la suspicion.
+
+### Partie 11
+La Guemara repond : Il y a une distinction entre les situations, car <b>il est courant pour les femmes</b> d'etre <b>chez</b> d'autres <b>femmes</b> et d'y passer la nuit. Par consequent, on peut craindre qu'un parent de la femme du presume adultere, avec laquelle il a ete soupconne d'inconduite, frequente sa maison et qu'il soit tente de repeter sa transgression. D'autre part, <b>il n'est pas courant pour les hommes</b> d'etre <b>a</b> la maison d'autres <b>hommes,</b> de sorte que meme si elle etait mariee a son parent, celui qui est soupconne d'inconduite ne dormirait generalement pas a la maison du mari.
+
+### Partie 12
+<b>Alternativement,</b> un argument different pourrait etre avance : <b>Les femmes ne sont pas si strictes entre elles, car le fait de coucher avec elles</b> et d'avoir des relations sexuelles avec elles <b>ne les rend pas mutuellement interdites.</b> En d'autres termes, si un homme commet l'adultere avec la proche parente de sa femme, sa femme ne lui devient pas interdite, elle peut donc ne pas preter attention a son comportement avec la femme soupconnee. Cependant, <b>les hommes sont stricts les uns envers les autres, car le fait de mentir avec eux</b> et d'avoir des relations sexuelles avec la femme de l'autre homme <b>les rend, </b> le mari et la femme, <b>mutuellement interdits.</b> En d'autres termes, si un autre homme a des relations avec une femme mariee, elle est interdite a son mari, et les hommes font donc tres attention a ce que font les autres.
+
+### Partie 13
+La Gemara demande : <b>Si c'est le cas, il devrait etre permis a son pere</b> d'epouser une femme liberee par son fils <b>aussi.</b> Alors pourquoi la mishna dit-elle : Leurs fils ou leurs freres, et non : Leurs peres ? La Guemara repond : Certes, son pere est autorise egalement, mais la mishna <b>parle</b> en utilisant le style de : <b>Il n'est pas necessaire. Il n'est pas necessaire</b> de mentionner le cas de <b>son pere</b> car il lui est tres certainement permis d'epouser une femme liberee par son fils, <b>car son fils est gene [<i>baziz</i>] devant lui</b> et ne viendrait donc pas coucher avec la femme de son pere. <b>Mais je pourrais dire que</b> puisque <b>le pere n'est pas embarrasse devant son fils,</b> elle <b>ne peut pas</b> etre mariee au fils de celui pour qui il y a suspicion. Par consequent, <b>ceci vient nous apprendre</b> qu'il n'y a pas de souci de ce genre.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

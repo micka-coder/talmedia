@@ -1,0 +1,39 @@
+
+### Partie 1
+La Gemara demande : <b>Et que fait Rabbi Yehuda avec ce</b> verset : <b>Et elle parlera et dira,</b> duquel les rabbins deduisent que la recitation lors du rituel de la <i>halitza</i> doit etre en hebreu ? La Guemara repond : <b>Il l'exige</b> afin <b>d'enseigner</b> a l'egard des <b>Levites qu'ils</b> parlaient <b>dans la langue sacree. </b> Alors que les rabbins deduisent que le rituel de la <i>halitza</i> est accompli en hebreu a partir d'une analogie verbale entre les versets concernant la <i>halitza</i> et les versets concernant les Levites, Rabbi Yehuda deduit que les Levites parlaient en hebreu en raison de cette meme analogie verbale, la <i>halitza</i> servant de source.
+
+#### Partie 2
+La Gemara demande : <b>Mais laissons</b> Rabbi Yehuda <b>deriver</b> que les Levites parlaient en hebreu <b>depuis</b> une analogie verbale entre le mot <b>"voix"</b> qui est ecrit a propos des Levites (Deuteronome 27:14) et le mot "voix" dans le verset sur <b>Moses</b> (Exode 19:19). La Guemara repond : <b>Il a appris</b> l'analogie verbale entre <b>La parole</b> et <b>La parole</b> de son professeur, et <b>Il n'a pas appris</b> l'analogie verbale entre <b>La voix</b> et <b>La voix</b> de son professeur.
+
+### Partie 3
+<b>Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit : Chaque endroit ou il est indique</b> dans la Torah : <b>"So [<i>ko</i>],"</b> ou : <b>"So [<i>kakha</i>],"</b> ou lorsque la langue de <b>parler et dire</b> est utilisee, <b>c'est</b> se referer <b>uniquement</b> a <b>la langue sacree.</b> Le mot <b><i>ko</i></b> apparait dans le contexte de la benediction sacree : <b>"So [<i>ko</i>] tu beniras</b> les enfants d'Israel" (Nombres 6:23). <b><i>Kakha</i></b> apparait dans le contexte <b>de</b> la ceremonie <b><i>halitza</i></b> (Deuteronome 25:9). Le langage de <b>parler et dire</b> apparait en relation <b>avec les Levites.</b>
+
+### Partie 4
+§ Il est dit dans la mishna : <b>Comment</b> s'est deroulee la ceremonie des <b>benedictions et maledictions</b> ? <b>Lorsque le peuple juif a traverse le Jourdain, etc. Les Sages ont enseigne :</b> Lorsque le peuple juif se trouvait en Transjordanie, l'emplacement du mont Gerizim et du mont Ebal leur etait decrit comme suit : A "Ne sont-ils pas au-dela du Jourdain, derriere le chemin de la venue du soleil, au pays des Cananeens qui habitent la plaine, en face de Gilgal, pres des chenes de Moreh ?" (Deuteronome 11, 30). <b>"Ne sont-ils pas au-dela du Jourdain"</b> signifie <b>plus loin</b> a l'ouest, <b>au-dela du Jourdain</b> ; c'est <b>la declaration de Rabbi Yehuda." Derrière le chemin de la venue du soleil";</b> cela fait référence A <b>l'endroit oA¹ le soleil se lève,</b> c'est-A -dire A l'est. En d'autres termes, ils sont a une certaine distance du Jourdain, qui est a l'est.
+
+### Partie 5
+<b>"Au pays des Cananeens qui habitent dans la plaine" ; ceci</b> fait reference au <b>mont Gerizim et au mont Ebal, ou les Samaritains</b> vivent maintenant. "Au-dessus de Gilgal";</b> cela signifie <b>pres de Gilgal. "Aupres les chenes de Moreh";</b> cela fait reference a <b>Shechem. Et</b> d'ou vient que c'est Sichem ? <b>La,</b> en ce qui concerne Abraham, le verset <b>dit : "Et Abram traversa le pays jusqu'au lieu de Sichem, jusqu'aux chenes de Moreh"</b> (Genese 12:6). <b>De meme que les chenes de Moreh enonces la sont</b> identifies comme <b>Shechem, de meme ici,</b> ils sont <b>Shechem.</b>
+
+### Partie 6
+<b>Il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Elazar, fils de Rabbi Yosei, a dit : Dans cette affaire, j'ai prouve la faussete des livres des Samaritains. Je leur ai dit : Vous avez falsifie votre Torah</b> en y faisant des ajouts, <b>et vous n'en avez rien retire</b>, <b>comme, vous dites</b> que <b>les chenes de Moreh</b> font reference a <b>Shechem,</b> et <b>nous aussi concedons</b> que <b>les chenes de Moreh</b> font reference a <b>Shechem. </b> Cependant, <b>nous avons derive cela par</b> le biais d'une <b>analogie verbale</b> entre les versets. <b>Vous,</b> qui n'utilisez pas les analogies verbales, <b>comment l'avez-vous derive ?</b>
+
+### Partie 7
+<b>Rabbi Elazar</b> n'est pas d'accord avec Rabbi Yehuda et <b>dit : "Ne sont-ils pas au-dela du Jourdain"</b> signifie <b>proche du fleuve Jourdain</b>, <b>car, si</b> cela signifiait <b>plus loin</b> a l'ouest <b>au-dela du Jourdain, n'est-il pas ecrit : "Et ce sera quand vous aurez franchi le Jourdain,</b> que vous dresserez ces pierres que je vous ordonne aujourd'hui, sur le mont Ebal" (Deuteronome 27.4) ? Cela implique que le mont Ebal etait proche de l'endroit ou le peuple juif a traverse le Jourdain.
+
+### Partie 8
+<b>"Derriere le chemin de l'arrivee du soleil"</b>, selon Rabbi Elazar, fait reference au <b>lieu ou le soleil se couche,</b> a l'ouest. Ce lieu est eloigne de Sichem, qui se trouve au centre d'Eretz Israel. De plus, le verset dit : <b>"Au pays des Cananeens,</b> et Sichem <b>est</b> situe dans le <b>pays des Hivites</b> (voir Genese 34:2).
+
+### Partie 9
+De meme, la phrase <b>"qui habitent dans la plaine d'Arabie"</b> ne peut pas etre une description des montagnes connues sous le nom de Mont Gerizim et Mont Ebal qui sont a cote de Sichem ; <b>ne sont-elles pas situees parmi des montagnes et des collines ?</b> La description <b>"au-dessus de Gilgal"</b> est egalement difficile ; <b>ils ne pouvaient pas voir Gilgal</b> de Sichem, car il est loin. Plutot, selon Rabbi Elazar, le mont Gerizim et le mont Ebal mentionnes dans la Torah sont situes plus pres du Jourdain. Ce ne sont pas les montagnes connues sous les memes noms qui sont situees pres de Sichem.
+
+### Partie 10
+<b>Rabbi Eliezer ben Yaâkov dit : Le verset ne vient pas</b> etablir l'emplacement du mont Gerizim et du mont Ebal. <b>Au contraire,</b> il vient <b>pour montrer</b> au peuple juif <b>le chemin pour la deuxieme fois,</b> lorsqu'ils entreront dans le pays de Canaan, <b>comme Il leur a montre la premiere fois,</b> lorsqu'ils ont quitte l'Egypte et qu'une colonne de nuee les a precedes et a rendu le terrain plus facile a traverser. Le but de ce verset est d'indiquer au peuple juif comment entrer dans le pays de Canaan avec une relative facilite, malgre l'absence de la colonne de nuee. Le mot <b>"chemin"</b> leur donne l'instruction de <b>s'engager dans un <b>chemin preetabli,</b> et non dans les champs et les vignes.</b> L'expression <b>"ceux qui habitent"</b> leur donne l'instruction de <b>s'engager dans des zones habitees et non dans le desert. A "Dans la plaineA", qui signifie plaine, leur enseigne d'aller dans les plaines et non sur les montagnes et les collines.
+
+### Partie 11
+§ <b>Les Sages ont enseigne</b> (<i>Tosefta</i> 8:1) : <b>Comment le peuple juif a-t-il traverse le Jourdain ? Chaque jour, l'Arche voyageait derriere</b> les <b>deux drapeaux</b> de Juda et de Ruben, <b>mais</b> ce <b>jour-la</b> l'Arche <b>tournait devant, comme il est dit : "Voici, l'Arche de l'Alliance du Seigneur de toute la terre passe devant vous"</b> (Josue 3:11). <b>Un jour sur deux</b> <b>les levites portaient l'Arche, mais ce jour-la, les pretres la portaient, comme il est dit : <b>Et quand la plante des pieds des pretres qui portent l'Arche du Seigneur,</b> le Seigneur de toute la terre, <b>se reposera"</b> (Josue 3:13).
+
+### Partie 12
+<b>Il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i> 8:2) que <b>Rabbi Yosei dit : En trois</b> differents <b>lieux, les pretres portaient l'Arche. </b> Ils l'ont porte <b>lorsque le peuple juif a <b>traverse le Jourdain, et lorsqu'il a encercle Jericho</b> (Josue 6:6), <b>et lorsqu'ils l'ont ramene a sa</b> place</b> dans le Saint des Saints sous le regne du roi Salomon (IA Rois 8:6).
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

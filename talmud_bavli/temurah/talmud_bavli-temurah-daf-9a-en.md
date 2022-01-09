@@ -1,0 +1,66 @@
+
+### Part 1
+<b>A zucchini</b> now <b>is better than</b> the possibility of <b>a gourd</b> later. There is no reason to give up an animal now for the hope of receiving another later.
+
+### Part 2
+<strong>MISHNA:</strong> It is written: “He shall neither exchange it, nor substitute it, good for bad, or bad for good; and if he substitutes an animal for an animal, then both it and its substitute shall be sacred” (Leviticus 27:10). The mishna enumerates the consecrated and non-sacred animals this verse applies to. <b>One substitutes</b> for consecrated animals <b>from the flock</b> of sheep or goats, and the sanctity takes effect <b>upon</b> animals from <b>the herd</b> of cattle, <b>and</b> one substitutes <b>from the herd</b> and the sanctity takes effect <b>upon</b> animals from <b>the flock. And</b> one substitutes <b>from the sheep</b> and the sanctity takes effect <b>upon the goats, and from the goats upon the sheep;</b> and <b>from the males upon the females, and from the females upon the males;</b> and <b>from the unblemished</b> animals <b>upon the blemished</b> animals, and <b>from the blemished</b> animals <b>upon the unblemished</b> animals.
+
+### Part 3
+The source for this is <b>as it is stated: “He shall neither exchange it, nor substitute it, good for bad, or bad for good”</b> (Leviticus 27:10). <b>And which is</b> the case of <b>good for bad</b> where the substitution takes effect? It is a case where one substitutes for <b>blemished</b> animals <b>whose consecration preceded their blemish.</b> But if an animal was consecrated after it was blemished, substitution for it does not take effect.
+
+### Part 4
+<strong>GEMARA:</strong> <b>From where are these matters</b> derived? They are derived from a verse, <b>as the Sages taught</b> in a <i>baraita</i>: The verse states: “And if he substitutes an animal for an animal, then both it and its substitute shall be sacred” (Leviticus 27:10). When the verse states: <b>“An animal for an animal,” from here</b> it is derived <b>that one substitutes</b> for consecrated animals <b>from the flock</b> and the sanctity takes effect <b>upon</b> animals from <b>the herd, and</b> one likewise substitutes <b>from the herd upon</b> animals from <b>the flock;</b> and one substitutes <b>from the sheep</b> and the sanctity takes effect <b>upon the goats, and from the goats upon the sheep; and from the males upon the females and from the females upon the males; and from the blemished</b> animals <b>upon the unblemished</b> animals <b>and from the unblemished</b> animals <b>upon the blemished</b> animals.
+
+### Part 5
+One <b>might</b> have thought that this is the <i>halakha</i> <b>even</b> for animals whose <b>blemish preceded their consecration.</b> Therefore, <b>the verse states: “He shall neither exchange it, nor substitute it, good for bad, or bad for good”</b> (Leviticus 27:10), <b>and which is</b> the case of <b>good for bad</b> where the substitution takes effect? It is a case of <b>blemished</b> animals <b>whose consecration preceded their blemish.</b> If an animal was consecrated after it was blemished, substitution for it does not take effect.
+
+### Part 6
+The Gemara discusses the second half of the <i>baraita</i>: <b>What is the</b> biblical <b>derivation</b> that leads to this conclusion? <b>Abaye said</b> that <b>the verse should have stated: He shall neither exchange it, nor substitute it, good for bad, or bad for it. Why do I</b> need <b>another</b> instance of the term <b>“for good”? Learn from</b> this repetition that if the animal is <b>good,</b> i.e., unblemished, <b>from its beginning,</b> before it was consecrated, one can <b>render a substitute</b> for it, but if it is <b>bad from its beginning,</b> one <b>cannot render a substitute</b> for it.
+
+### Part 7
+<b>Rava said: Both</b> instances <b>of</b> the word <b>“good”</b> in the verse <b>are superfluous. If so, let the verse write: He shall neither exchange it, nor substitute it for bad, or bad for it. Why do I</b> need the verse <b>to write both</b> instances of the word <b>“good”? One</b> instance of the word <b>“good”</b> teaches that <b>even</b> if one substitutes a good animal <b>for a good</b> animal, <b>when he effects substitution</b> he is <b>flogged. And the other</b> instance teaches that if the animal is <b>good from its beginning</b> one can <b>render a substitute</b> for it, but if it is <b>bad from its beginning</b> one <b>cannot render a substitute</b> for it.
+
+### Part 8
+<b>And Abaye said:</b> The first derivation of Rava is unnecessary, as that <i>halakha</i> <b>is</b> already derived by <b>an <i>a fortiori</i></b> inference, as follows: <b>Just as</b> one who substitutes <b>a good</b> animal <b>for a bad</b> blemished one, <b>where</b> he seeks to <b>improve</b> the standing of the consecrated animal by making it fit for sacrifice, is nevertheless <b>flogged,</b> is it <b>not all the more so</b> the case <b>that</b> one who substitutes <b>a good</b> animal <b>for a good</b> animal, <b>which are equivalent to each other,</b> should be <b>flogged?</b>
+
+### Part 9
+<b>And Rava</b> would respond that an <i>a fortiori</i> inference is not sufficient, as <b>one does not administer punishment</b> based <b>on</b> an <i>a fortiori</i> <b>inference.</b> Punishment with lashes can be based only on the explicit wording of a verse. <b>And Abaye</b> could <b>say to you</b> that <b>this is not</b> a mere <b>logical derivation,</b> but it is included in the language of the verse, as, <b>is</b> substituting <b>a good,</b> unblemished, animal <b>less</b> of an act of substitution <b>than</b> substituting <b>a bad</b> one? The prohibition stated in the verse clearly applies in either case.
+
+### Part 10
+§ <b>The Sages taught</b> in a <i>baraita</i> that when the verse states: <b>“He shall neither exchange it,”</b> this is referring to substituting one’s animal <b>for that of others.</b> The phrase <b>“nor substitute it”</b> is referring to substituting one’s non-sacred animal <b>for his own</b> sacred one. The Gemara objects: <b>But let</b> the verse <b>write</b> simply: <b>“He shall not exchange it,” and</b> there will be <b>no need</b> to write: <b>“Nor substitute it,”</b> as the prohibition against substituting for one’s own animal can be inferred <i>a fortiori</i> from the prohibition against substituting for another’s animal.
+
+### Part 11
+The Gemara explains: <b>If</b> the verse had <b>written</b> the prohibition in <b>that manner, I would say that</b> one is <b>flogged</b> only if he stated: <b>This</b> consecrated animal <b>should leave</b> its consecrated status <b>and this</b> non-sacred animal <b>should enter</b> in its stead. <b>But</b> if one <b>effects substitution</b> by simply stating: This is a substitute for that, <b>as he has consecrated both of</b> the animals, <b>I would say</b> that he is <b>not flogged.</b> The additional phrase in the verse <b>teaches us</b> that he is flogged in this case as well.
+
+### Part 12
+The Gemara explains: <b>What are the circumstances</b> of substituting his animal <b>for that of others? If we say</b> that the <b>consecrated animal</b> is <b>his and</b> the <b>non-sacred</b> animal belongs <b>to others, is he able to consecrate</b> an animal in this manner? <b>The Merciful One states</b> in the Torah: <b>“When a man shall consecrate his house to be sacred unto the Lord”</b> (Leviticus 27:14), which teaches that <b>just as his house is in his possession, so too, any</b> item one desires to consecrate must be <b>in his possession.</b> One cannot consecrate another’s animal. <b>But rather,</b> if we say that the <b>consecrated animal</b> belongs <b>to others, and</b> the <b>non-sacred</b> animal is <b>his, can one effect</b> substitution <b>for an item that is not his?</b>
+
+### Part 13
+The Gemara explains: <b>Actually,</b> the <i>baraita</i> is referring <b>to a consecrated</b> animal <b>of others and his non-sacred</b> animal, and it is a case <b>where the owner of the consecrated animal said</b> that <b>whoever wants to effect substitution for his animal can come and effect substitution.</b> In this case, one can effect substitution even for a consecrated item that is not his.
+
+### Part 14
+<strong>MISHNA:</strong> <b>One substitutes one</b> non-sacred animal <b>for two</b> consecrated animals <b>and two</b> non-sacred animals <b>for one</b> consecrated animal, and one substitutes <b>one</b> non-sacred animal <b>for one hundred</b> consecrated animals <b>and one hundred</b> non-sacred animals <b>for one</b> consecrated animal. <b>Rabbi Shimon says: One substitutes only one</b> non-sacred animal <b>for one</b> consecrated animal, <b>as it is stated: “Then both it and its substitute shall be sacred”</b> (Leviticus 27:10). <b>Just as “it”</b> indicates one <b>specific</b> animal, <b>so too,</b> its substitute can be only one <b>specific</b> animal.
+
+### Part 15
+<strong>GEMARA:</strong> With regard to the dispute between the first <i>tanna</i> and Rabbi Shimon, the Gemara explains: <b>From where are these matters</b> derived? <b>As the Sages taught</b> in a <i>baraita</i>: The verse states: <b>“An animal for an animal”</b> (Leviticus 27:10). <b>From here</b> it is derived that <b>one substitutes one</b> non-sacred animal <b>for two</b> consecrated animals <b>and two</b> non-sacred animals <b>for one</b> consecrated animal, and <b>one</b> non-sacred animal <b>for one hundred</b> consecrated animals <b>and one hundred</b> non-sacred animals <b>for one</b> consecrated animal. <b>Rabbi Shimon says: One substitutes only one</b> non-sacred animal <b>for one</b> consecrated animal, <b>as it is stated: “An animal [<i>behema</i>] for an animal,” and</b> it is <b>not</b> stated: <b>An animal for animals [<i>bivehemot</i>], nor: Animals for an animal.</b>
+
+### Part 16
+The first <i>tanna</i> <b>said to</b> Rabbi Shimon: <b>We have found that</b> a group of <b>animals is called</b> by the singular term <b><i>behema</i>, as it is stated: “And many animals [<i>uvhema rabba</i>]”</b> (Jonah 4:11). The Gemara notes: <b>And Rabbi Shimon</b> could respond that many animals <b>are</b> indeed <b>called “<i>behema rabba</i>,”</b> but they <b>are not called “<i>behema</i>” without</b> further <b>specification.</b>
+
+### Part 17
+The Gemara asks: <b>And is the reason of Rabbi Shimon</b> really <b>due to</b> the verse’s phrase <b>“an animal</b> for an animal”? <b>But isn’t the reason of Rabbi Shimon,</b> as explained in the mishna, <b>due to</b> the word <b>“it”</b> in the verse? <b>Just as “it”</b> indicates one <b>specific</b> animal, <b>so too,</b> its <b>substitute</b> can be only one <b>specific</b> animal.
+
+### Part 18
+The Gemara answers: <b>Initially, Rabbi Shimon stated</b> his opinion <b>to</b> the Sages by drawing support <b>from</b> the phrase: <b>“Then both it and its substitute.” But when he saw that the Rabbis taught</b> their opinion drawing support <b>from</b> the phrase <b>“an animal for an animal,” he said to them: You can learn the reason for my</b> opinion <b>from there too.</b>
+
+### Part 19
+<b>Reish Lakish says:</b> Although he holds that one cannot substitute two animals for one, <b>Rabbi Shimon concedes that one can effect substitution</b> once <b>and then effect substitution again</b> for the same consecrated animal. <b>What is the reason</b> for this? The reason is that one can ask: <b>Where has the initial consecration of the consecrated</b> animal <b>gone?</b> Even after one effects substitution, it remains consecrated as it was before. <b>And Rabbi Yoḥanan says:</b> Rabbi Shimon maintains that <b>just as one cannot substitute two</b> animals <b>for one, so</b> too, one <b>cannot effect substitution and then effect substitution again</b> using the same consecrated animal.
+
+### Part 20
+The Gemara comments: It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rabbi Yoḥanan,</b> and it <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Reish Lakish.</b> It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Rabbi Yoḥanan: Just as</b> one <b>cannot substitute one</b> animal <b>for two, so too, one cannot effect substitution and then effect substitution again.</b> It <b>is taught</b> in a <i>baraita</i> <b>in accordance with</b> the opinion <b>of Reish Lakish:</b> One <b>might</b> have thought that <b>just as Rabbi Shimon said</b> that one <b>cannot substitute two</b> animals <b>for one, so too, one cannot effect substitution and then effect substitution again.</b> Therefore, <b>the verse states: “Then both it and its substitute”</b> (Leviticus 27:10), which teaches that one can effect substitution <b>with even one hundred</b> non-sacred animals.
+
+### Part 21
+<b>Rabbi Avin raises a dilemma: According to the statement of the one who says</b> that <b>one cannot effect substitution</b> once <b>and then effect substitution again,</b> if one <b>designated</b> an animal as <b>a guilt offering with which to atone and effected substitution for it,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,59 @@
+
+### Partie 1
+<b>De la manière qu'il a précisé en ce qui concerne un nazirite :" Du noyau a la peau du raisin" (Nombres 6:4). La Guemara demande : <b>Et selon</b> l'avis de <b>Rabbi Elazar ben Azarya, qui etablit ce</b> verset : <b>"Du noyau a la peau de raisin"</b> (Nombres 6:4), comme servant <b>a dire qu'un nazirite <b>n'est responsable que s'il mange deux pepins de raisin et une peau de raisin,</b> dans ce cas <b>d'ou tire-t-il</b> ce detail ? </b> Il n'est pas clair comment il applique cette methode d'un detail, d'une generalisation et d'un detail, car selon son interpretation, l'expression " des noyaux a la peau de raisin " ne sert pas a limiter la generalisation precedente mais a enoncer une <i>halakha</i> differente. La Guemara repond : Rabbi Elazar ben Azarya <b>s'aligne sur</b> l'opinion de <b>Rabbi Elazar, qui interprete</b> ceci en disant qu'un verset <b>restreint et amplifie.</b>
+
+### Partie 2
+<b>Et si vous voulez, dites</b> plutot que Rabbi Elazar ben Azarya tient <b>conformement</b> a l'avis des <b>Rabbins</b> que c'est un cas d'un detail, d'une generalisation et d'un detail. <b>Ainsi, s'il vous venait a l'esprit</b> que le verset ne fait qu'enseigner ce <b>qui a ete enonce</b> par <b>Rabbi Elazar ben Azarya, que le Misericordieux ecrive cette</b> phrase : <b>Du noyau a la peau du raisin,</b> a cote</b> des autres <b>details</b> du vin et du vinaigre. <b>Pour quelle <i>halakha</b> la Torah a-t-elle <b>ecrit : </b> "Des noyaux a la peau du raisin", <b>apres la generalisation ? Concluez-en que</b> vous devez <b>deriver</b> cette <i>halakha</i> <b>par</b> la methode d'<b>une generalisation et d'un detail.</b>
+
+### Partie 3
+La Gemara demande : <b>Mais</b> si c'est le cas, on peut <b>dire</b> que la phrase <b>entiere</b> <b>vient</b> uniquement <b>dans ce but</b>, pour une generalisation et un detail, et Rabbi Elazar ben Azarya ne doit pas du tout tirer de ce verset sa <i>halakha</i>, a savoir qu'un nazirite n'est responsable que s'il mange deux pepins de raisin et une peau de raisin. La Guemara repond que Rabbi Elazar ben Azarya dirait : <b>Si c'est le cas, que</b> la Torah <b>ecrive soit deux pepins de raisin et deux peaux de raisin,</b> avec les deux termes au pluriel, <b>ou un pepin de raisin et une peau de raisin,</b> avec les deux termes au singulier. <b>Pour quelle <i>halakha</i> le Misericordieux a-t-il ecrit : <b>Des noyaux a la peau du raisin</b> ? Apprenez-en</b> qu'il faut <b>l'interpreter</b> a la maniere d'une <b>generalisation et d'un detail, et</b> on <b>peut aussi interpreter</b> a partir de <b>cela</b> qu'un nazirite est redevable <b>seulement s'il mange deux pepins de raisin et une peau de raisin.</b>
+
+### Partie 4
+La Guemara demande : <b>Et Rabbi Elazar, qui interprete</b> par la methode de <b>restriction et d'amplification</b> que meme les vrilles et les feuilles d'une vigne sont incluses dans l'interdiction, <b>d'ou tire-t-il</b> la methode d'<b>un detail, une generalisation et un detail ?</b>
+
+### Partie 5
+<b>Rabbi Abbahu dit : Il la derive de ce verset,</b> qui traite d'un bailli : <b>"Et si un homme livre a son prochain un ane, un bœuf, un mouton,</b> ou tout autre animal a garder, et qu'il meurt, le serment de l'Eternel sera entre eux deux" (Exode 22, 9). L'expression "un ane, ou un bœuf, ou un mouton" est <b>un detail ; "ou tout animal"</b> est <b>une generalisation</b> qui inclut tous les animaux ; et dans l'expression <b>"pour garder"</b> la Torah <b>detaille a nouveau. </b> C'est <b>un detail, et une generalisation, et un detail.</b> Dans ce cas, <b>on peut deduire</b> que le verset se refere <b>uniquement</b> a des elements <b>similaires au detail;</b> c'est-a-dire, les elements qui peuvent etre gardes.
+
+### Partie 6
+<b>Rava a dit :</b> Rabbi Elazar <b>derive</b> la methode d'un detail, d'une generalisation et d'un detail <b>a partir de ce verset :</b> "Et si son offrande provient du troupeau, qu'il s'agisse de moutons ou de chevres, pour un holocauste, il l'offrira un male sans defaut" (Levitique 1:10). La phrase <b>"et si</b> son offrande est <b>de"</b> est <b>un detail,</b> car elle indique une partie mais pas la totalite de quelque chose, <b>"le troupeau"</b> est <b>une generalisation</b> qui inclut les animaux qui ont ete utilises de maniere pecheresse, et lorsqu'il a ete declare : <b>"Moutons"</b> et : "Chevres,"</b> la Torah a <b>detaille a nouveau.</b>
+
+### Partie 7
+Il s'agit d'un <b>detail, et d'une generalisation, et d'un detail,</b> et donc <b>on peut en deduire</b> que le verset se refere <b>uniquement</b> aux elements <b>similaires au detail.</b> Les details enseignent que seuls les animaux qui ont copule avec une personne ne peuvent pas etre apportes en offrande.
+
+### Partie 8
+<b>Rav Yehuda de Diskarta a dit a Rava : Et que</b> Rabbi Elazar <b>derive</b> la methode d'un detail, d'une generalisation et d'un detail <b>de ce <b>verset</b> anterieur,</b> qui figure dans le meme chapitre : "Des animaux, du troupeau ou du cheptel, tu apporteras ton offrande" (Levitique 1, 2), de la maniere suivante : <b>"De" </b> est <b>un detail</b> qui exclut un animal non domestique ; <b>"Animaux" </b> est <b>une generalisation</b> qui inclut les animaux non domestiques (voir Deuteronome, chapitre 14) ; et lorsqu'il est dit : <b>"Cerf", et : "Flock,"</b> la Torah <b>a encore detaille.</b> Il s'agit d'un <b>detail, et d'une generalisation, et d'un detail,</b> et donc <b>on peut en deduire</b> que le verset se refere <b>uniquement</b> a des elements <b>similaires au detail,</b> c'est-a-dire des animaux domestiques.
+
+### Partie 9
+Rava a dit a Rav Yehuda de Diskarta : On ne peut pas <b>deriver</b> la methode d'un detail, d'une generalisation et d'un detail <b>de ce verset</b>, <b>comme si</b> la source etait <b>de la, je dirais</b> l'expression <b>"animaux"</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC
+### Partie 1
+<b>De la manière qu'il a précisé en ce qui concerne un nazirite :" Du noyau a la peau du raisin" (Nombres 6:4). La Guemara demande : <b>Et selon</b> l'avis de <b>Rabbi Elazar ben Azarya, qui etablit ce</b> verset : <b>"Du noyau a la peau de raisin"</b> (Nombres 6:4), comme servant <b>a dire qu'un nazirite <b>n'est responsable que s'il mange deux pepins de raisin et une peau de raisin,</b> dans ce cas <b>d'ou tire-t-il</b> ce detail ? </b> Il n'est pas clair comment il applique cette methode d'un detail, d'une generalisation et d'un detail, car selon son interpretation, l'expression " des noyaux a la peau de raisin " ne sert pas a limiter la generalisation precedente mais a enoncer une <i>halakha</i> differente. La Guemara repond : Rabbi Elazar ben Azarya <b>s'aligne sur</b> l'opinion de <b>Rabbi Elazar, qui interprete</b> ceci en disant qu'un verset <b>restreint et amplifie.</b>
+
+### Partie 2
+<b>Et si vous voulez, dites</b> plutot que Rabbi Elazar ben Azarya tient <b>conformement</b> a l'avis des <b>Rabbins</b> que c'est un cas d'un detail, d'une generalisation et d'un detail. <b>Ainsi, s'il vous venait a l'esprit</b> que le verset ne fait qu'enseigner ce <b>qui a ete enonce</b> par <b>Rabbi Elazar ben Azarya, que le Misericordieux ecrive cette</b> phrase : <b>Du noyau a la peau du raisin,</b> a cote</b> des autres <b>details</b> du vin et du vinaigre. <b>Pour quelle <i>halakha</b> la Torah a-t-elle <b>ecrit : </b> "Des noyaux a la peau du raisin", <b>apres la generalisation ? Concluez-en que</b> vous devez <b>deriver</b> cette <i>halakha</i> <b>par</b> la methode d'<b>une generalisation et d'un detail.</b>
+
+### Partie 3
+La Gemara demande : <b>Mais</b> si c'est le cas, on peut <b>dire</b> que la phrase <b>entiere</b> <b>vient</b> uniquement <b>dans ce but</b>, pour une generalisation et un detail, et Rabbi Elazar ben Azarya ne doit pas du tout tirer de ce verset sa <i>halakha</i>, a savoir qu'un nazirite n'est responsable que s'il mange deux pepins de raisin et une peau de raisin. La Guemara repond que Rabbi Elazar ben Azarya dirait : <b>Si c'est le cas, que</b> la Torah <b>ecrive soit deux pepins de raisin et deux peaux de raisin,</b> avec les deux termes au pluriel, <b>ou un pepin de raisin et une peau de raisin,</b> avec les deux termes au singulier. <b>Pour quelle <i>halakha</i> le Misericordieux a-t-il ecrit : <b>Des noyaux a la peau du raisin</b> ? Apprenez-en</b> qu'il faut <b>l'interpreter</b> a la maniere d'une <b>generalisation et d'un detail, et</b> on <b>peut aussi interpreter</b> a partir de <b>cela</b> qu'un nazirite est redevable <b>seulement s'il mange deux pepins de raisin et une peau de raisin.</b>
+
+### Partie 4
+La Guemara demande : <b>Et Rabbi Elazar, qui interprete</b> par la methode de <b>restriction et d'amplification</b> que meme les vrilles et les feuilles d'une vigne sont incluses dans l'interdiction, <b>d'ou tire-t-il</b> la methode d'<b>un detail, une generalisation et un detail ?</b>
+
+### Partie 5
+<b>Rabbi Abbahu dit : Il la derive de ce verset,</b> qui traite d'un bailli : <b>"Et si un homme livre a son prochain un ane, un bœuf, un mouton,</b> ou tout autre animal a garder, et qu'il meurt, le serment de l'Eternel sera entre eux deux" (Exode 22, 9). L'expression "un ane, ou un bœuf, ou un mouton" est <b>un detail ; "ou tout animal"</b> est <b>une generalisation</b> qui inclut tous les animaux ; et dans l'expression <b>"pour garder"</b> la Torah <b>detaille a nouveau. </b> C'est <b>un detail, et une generalisation, et un detail.</b> Dans ce cas, <b>on peut deduire</b> que le verset se refere <b>uniquement</b> a des elements <b>similaires au detail;</b> c'est-a-dire, les elements qui peuvent etre gardes.
+
+### Partie 6
+<b>Rava a dit :</b> Rabbi Elazar <b>derive</b> la methode d'un detail, d'une generalisation et d'un detail <b>a partir de ce verset :</b> "Et si son offrande provient du troupeau, qu'il s'agisse de moutons ou de chevres, pour un holocauste, il l'offrira un male sans defaut" (Levitique 1:10). La phrase <b>"et si</b> son offrande est <b>de"</b> est <b>un detail,</b> car elle indique une partie mais pas la totalite de quelque chose, <b>"le troupeau"</b> est <b>une generalisation</b> qui inclut les animaux qui ont ete utilises de maniere pecheresse, et lorsqu'il a ete declare : <b>"Moutons"</b> et : "Chevres,"</b> la Torah a <b>detaille a nouveau.</b>
+
+### Partie 7
+Il s'agit d'un <b>detail, et d'une generalisation, et d'un detail,</b> et donc <b>on peut en deduire</b> que le verset se refere <b>uniquement</b> aux elements <b>similaires au detail.</b> Les details enseignent que seuls les animaux qui ont copule avec une personne ne peuvent etre apportes en offrande.
+
+### Partie 8
+<b>Rav Yehuda de Diskarta a dit a Rava : Et que</b> Rabbi Elazar <b>derive</b> la methode d'un detail, d'une generalisation et d'un detail <b>de ce <b>verset</b> anterieur,</b> qui figure dans le meme chapitre : "Des animaux, du troupeau ou du cheptel, tu apporteras ton offrande" (Levitique 1, 2), de la maniere suivante : <b>"De" </b> est <b>un detail</b> qui exclut un animal non domestique ; <b>"Animaux" </b> est <b>une generalisation</b> qui inclut les animaux non domestiques (voir Deuteronome, chapitre 14) ; et lorsqu'il est dit : <b>"Cerf", et : "Flock,"</b> la Torah <b>a encore detaille.</b> Il s'agit d'un <b>detail, et d'une generalisation, et d'un detail,</b> et donc <b>on peut en deduire</b> que le verset se refere <b>uniquement</b> a des elements <b>similaires au detail,</b> c'est-a-dire des animaux domestiques.
+
+### Partie 9
+Rava a dit a Rav Yehuda de Diskarta : On <b>ne peut pas deriver</b> la methode d'un detail, d'une generalisation et d'un detail <b>de ce verset</b>, <b>comme si</b> la source etait <b>de la, je dirais</b> l'expression <b>"animaux"</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

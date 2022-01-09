@@ -1,0 +1,27 @@
+
+### Part 1
+The Gemara asks: <b>But can one derive</b> the <b>possible from</b> the <b>impossible?</b> Those other cases include offerings that by definition do not apply to a community; how can one learn from them with regard to cases where they are possible? The Gemara answers: <b>Rabbi Shimon learns this tradition as one unit,</b> i.e., all the cases of sin offerings left to die are given as one <i>halakha</i>, and therefore there is no difference in their application.
+
+### Part 2
+<b>Reish Lakish says</b> in explanation of this matter: When Moses received this tradition at Sinai, the <i>halakhot</i> of <b>four</b> sin offerings that must be left to die <b>were given to</b> the Jewish people, whereas the fifth sin offering is left to graze until it develops a blemish. <b>But</b> as they did not know which of the sin offerings was the one that should be left to graze, they <b>established these</b> <i>halakhot</i> <b>with regard to</b> all <b>five</b> sin offerings, that they are all left to die. <b>And if it enters your mind</b> that the four cases of sin offerings that must be left to die, as stated to Moses, referred <b>to communal</b> offerings, <b>are</b> all of <b>these</b> four sin offerings possible <b>as communal</b> offerings? <b>Rather, perforce</b> one must <b>derive</b> the cases that are <b>unspecified</b> in terms of their <i>halakhot</i> <b>from</b> those cases that are <b>specified.</b>
+
+### Part 3
+<b>Rabbi Natan says:</b> Only <b>one</b> case of a sin offering that must be left to die <b>was given to them</b> at Sinai, while the other four sin offerings are left to graze until they develop a blemish. <b>But</b> as they did not know which was the sin offering that must be left to die, the Jewish people <b>established it</b> as applying <b>to</b> all <b>five</b> kinds of sin offering.
+
+### Part 4
+The Gemara interrupts Rabbi Natan’s statement to raise a difficulty with regard to his explanation: <b>But</b> why didn’t the Jewish people first <b>see with regard to which category they learned</b> that a sin offering must be left to die, <b>whether</b> in reference <b>to</b> one of the three cases that are found only in the offering of <b>an individual, or to</b> one of the two cases that are also found in the offering <b>of a community?</b> If they knew which group of sin offerings must be left to die, they could have kept the other group in accordance with its original <i>halakha</i>, that it is left to graze.
+
+### Part 5
+The Gemara answers: <b>They forgot two</b> matters. They did not remember which of the five sin offerings must be left to die, and they also <b>forgot</b> to which category it applied, whether to a communal offering or an offering of an individual. <b>And</b> for this reason it was <b>difficult for them,</b> and they were forced to rule that all of these sin offerings must be left to die.
+
+### Part 6
+The Gemara returns to its citation of the statement of Rabbi Natan, who proceeds to explain Rabbi Shimon’s opinion in the mishna in a similar manner to Reish Lakish: <b>And if it enters your mind that</b> the four cases of sin offerings that are left to graze, which were stated to Moses as one unit, involved <b>communal</b> offerings, <b>are</b> all of <b>these</b> five sin offerings applicable in the case of <b>communal</b> offerings? <b>Rather, conclude from it</b> that one <b>learns</b> the cases that are <b>unspecified from</b> those cases that are <b>specified: Just as</b> the <b>specified</b> cases apply only <b>to</b> an offering of <b>an individual and not to a communal</b> offering, <b>so too,</b> the cases that are <b>not specified</b> apply only <b>to</b> an offering of <b>an individual, but not to a communal</b> offering.
+
+### Part 7
+<strong>MISHNA:</strong> There is greater <b>stringency with regard to sacrificial</b> animals <b>than</b> there is <b>with regard to a substitute, and</b> greater <b>stringency with regard to a substitute than</b> there is <b>with regard to sacrificial</b> animals. The Mishna explains: There is greater <b>stringency with regard to sacrificial</b> animals <b>than</b> there is <b>with regard to a substitute, as sacrificial</b> animals <b>render</b> a non-sacred animal exchanged for them <b>a substitute, but a substitute does not render</b> a non-sacred animal exchanged for it <b>a substitute.</b> Furthermore, <b>the community and the partners consecrate</b> animals as offerings, <b>but they do not substitute</b> non-sacred animals for their offerings. <b>And one consecrates fetuses</b> in utero <b>and</b> one can consecrate an animal’s <b>limbs, but one cannot substitute</b> non-sacred animals for them.
+
+### Part 8
+There is greater <b>stringency with regard to a substitute than</b> there is <b>with regard to sacrificial</b> animals, <b>as,</b> if one substituted a non-sacred blemished animal for an unblemished sacrificial animal, then the animal <b>with a permanent blemish is imbued with</b> inherent <b>sanctity,</b> which is not the case with regard to consecration. <b>And</b> in addition, those blemished animals consecrated through substitution <b>do not emerge</b> from their consecrated status <b>to</b> assume <b>non-sacred</b> status by means of redemption,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

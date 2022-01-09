@@ -1,0 +1,18 @@
+
+### Partie 1
+La Guemara explique la deduction de la declaration de Rabbi Yishmael et comment elle clarifie l'opinion des rabbins : <b>Rabbi Yishmael n'a-t-il pas dit</b> que la recolte d'<b>un</b> type de <b>fruit est</b> suffisante pour etablir la <b>presomption</b> de propriete <b>pour tous</b> les types de <b>fruit,</b> c'est-a-dire pour tout le champ ? <b>Ici aussi, ces</b> arbres <b>sont</b> suffisants pour etablir la <b>presomption</b> de propriete <b>pour ces</b> arbres, <b>et ces</b> arbres <b>sont</b> suffisants pour etablir la <b>presomption</b> de propriete <b>pour ces</b> arbres.
+
+### Partie 2
+La Guemara note deux restrictions a la decision susmentionnee : <b>Et cette declaration</b> s'applique specifiquement <b>lorsque</b> les vingt autres arbres <b>n'ont pas produit</b> de fruits, <b>mais</b> si les autres arbres <b>produisaient</b> des fruits <b>et</b> il n'a <b>pas consomme</b> leurs fruits, alors sa conduite <b>n'est pas</b> suffisante pour etablir la <b>presomption</b> de propriete a l'egard des autres arbres. <b>Et ce</b> principe, selon lequel la consommation du produit de certains arbres chaque annee etablit la <b>presomption</b> de propriete pour l'ensemble du champ, ne s'applique que si c'est le cas <b>que</b> les arbres <b>sont disperses [<i>devazei bazuzei</i>]</b> dans tout le champ. Sinon, il etablit la <b>presomption</b> de propriete uniquement sur la section ou se trouvent les arbres.
+
+### Partie 3
+§ Dans un cas ou il y avait un champ avec des arbres dedans, et ou <b>cette</b> personne <b>a pris possession des arbres et cette</b> personne <b>a pris possession du terrain, Rav Zevid dit : Celui-ci</b> <b>a acquis</b> les <b>arbres et celui-la <b>a acquis</b> la <b>terre. Le Rav Pappa s'oppose a cela : Si</b> ceci est <b>ainsi,</b> alors le <b>proprietaire</b> des <b>arbres n'a aucune</b> part <b>dans le terrain du tout. Que</b> le <b>proprietaire</b> de la <b>terre dise</b> au <b>proprietaire</b> des <b>arbres : Deracinez vos arbres, prenez</b> les, <b>et partez. Au contraire, Rav Pappa a dit : Celui-ci</b> <b>acquiert</b> les <b>arbres et la moitie</b> de la <b>terre, et celui-la</b> <b>acquiert la moitie</b> de la <b>terre.</b>
+
+### Partie 4
+La Guemara note : Il est <b>evident</b> que si l'on <b>vendait</b> une section de <b>terrain et laissait</b> la propriete des <b>arbres</b> dans ce terrain <b>pour lui-meme, il a</b> la propriete du <b>terrain</b> entourant les arbres. <b>Et</b> ceci est la <i>halakha</i> <b>meme selon</b> l'avis de <b>Rabbi Akiva, qui dit : Celui qui vend, vend genereusement,</b> et il est presume avoir inclus dans la vente meme des elements qui n'etaient pas explicitement specifies, car <b>cette affirmation</b> ne s'applique que <b>concernant</b> un cas tel que celui ou l'on a vendu une terre et conserve la propriete d'un <b>fosse ou d'une citerne.</b> Dans ce cas, Rabbi Akiva a juge qu'il ne conserve aucune terre, pas meme un chemin pour acceder a la fosse ou a la citerne, car il a vendu genereusement, incluant toute la terre dans la vente.
+
+### Partie 5
+La Guemara explique la difference entre les cas : Cette decision s'applique ici, <b>puisque</b> la fosse ou la citerne <b>ne cause aucun dommage au terrain</b> qui les entoure, et puisque le vendeur ne prevoit pas de conflit decoulant du fait que sa fosse et sa citerne soient situees a cote de la propriete de l'acheteur, il cede donc la totalite du terrain. <b>Mais</b> dans le cas ou il conserve les <b>arbres,</b> <b>il n'y a pas de conflit.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

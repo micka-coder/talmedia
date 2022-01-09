@@ -1,0 +1,15 @@
+
+### Partie 1
+La Gemara conteste : <b>Mais</b> selon l'opinion selon laquelle les recipients en terre cuite peuvent etre nettoyes de leurs substances absorbees par le processus d'embrasement, en ce qui concerne les <b>pots</b> utilises dans <b>le Temple, pourquoi le Misericordieux declare-t-il</b> dans la Torah qu'ils <b>doivent etre brises ? Contentons-nous</b> de les <b>retourner dans</b> les <b>fourneaux</b> dans lesquels les pots sont fabriques afin d'etre surs que les pots seront nettoyes par la chaleur extreme des fours. <b>Rabbi Zeira a dit :</b> Les pots ne peuvent pas etre retournes aux fours <b>parce que,</b> comme enseigne dans une <i>baraita</i> (voir <i>Bava Kamma</i> 82b), <b>les fours ne sont pas construits a Jerusalem</b> en raison de la grande quantite de fumee qu'ils produisent.
+
+### Partie 2
+La Guemara presente une objection a la reponse de Rabbi Zeira. <b>Abaye dit : Mais</b> si, comme l'enseigne la <i>baraita</i>, il n'y a pas de fours a Jerusalem, <b>les tas de ferraille</b> de faience sont-ils <b>assembles dans la cour du Temple ?</b> La meme <i>baraita</i> enseigne egalement qu'il n'y a pas de tas de ferraille a Jerusalem. Que fait-on alors des tessons de recipients en faience qui doivent etre brises dans la cour ? La Gemara rejette la question : Abaye a souleve cette objection uniquement parce que <b>ce que Shemaya a enseigne a Kalnevo lui a echappe;</b> Shemaya y a enseigne : Dans le Temple, <b>les tessons des recipients en terre cuite etaient</b> miraculeusement <b>absorbes a leur place.</b>
+
+### Partie 3
+La Guemara revient sur le sujet de l'embrasement des recipients en faience et demande : <b>Mais</b> si l'embrasement de l'interieur purifie tout ce qui est absorbe dans un four en terre, quelle est la raison de <b>ce que Rav Nahman dit</b> que <b>Rabba bar Avuh dit : Le four du Temple etait</b> faconne <b>en metal ? Faconnons-le</b> <b>en faience, car</b> le <b>foyer d'un four</b> <b>est chauffe de l'interieur,</b> et, en consequence, il serait possible de le nettoyer ?
+
+### Partie 4
+La Guemara repond : La raison pour laquelle le four doit etre faconne en metal est <b>parce qu'il y a les deux pains,</b> c'est-a-dire l'offrande publique de <i>Shavouot</i> de deux pains de ble nouveau, <b>et les pains de mie,</b> c'est-a-dire, le pain cuit chaque semaine sous une forme speciale et expose pendant toute une semaine sur la table du Sanctuaire, <b>dont la cuisson est</b> effectuee <b>dans le four, et</b> aussi <b>dont la sanctification</b> se produit <b>dans le four.</b> Parce que ces offrandes ne sont pas petries dans un recipient de service, elles ne sont sanctifiees qu'en etant placees dans le four, et donc le four <b>est un recipient de service ; et nous ne faisons pas un recipient de service en terre.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

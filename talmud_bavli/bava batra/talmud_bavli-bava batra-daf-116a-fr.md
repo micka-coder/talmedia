@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>mais notre Torah parfaite ne sera-t-elle pas</b> aussi digne <b>que votre discours frivole,</b> car votre deduction est fallacieuse : <b>Qu'y a-t-il de notable</b> dans l'heritage d'une <b>fille de</b> <b>fils du defunt ?</b> Il est notable <b>en ce que son droit est accru</b> en ce qu'elle herite de son grand-pere paternel avec <b>les freres</b> de son pere. Diriez-vous</b> qu'il en va de meme <b>en ce qui concerne</b> la <b>fille du defunt, dont le droit</b> d'heriter <b>est diminue</b> du fait qu'elle n'herite pas de son pere en meme temps que <b>ses <b>freres ?</b> La deduction <i>a fortiori</i> du sadduceen est ainsi refutee. La Guemara conclut : <b>Et</b> puisque les Sadduceens n'avaient pas de contre-argument, les Sages <b>ont ete victorieux sur eux, et ils ont etabli ce jour,</b> le vingt-quatre de Tevet, comme une <b>fete mineure</b> pour celebrer l'etablissement de la <i>halakha</i> conformement a l'opinion des Sages.
+
+### Partie 2
+Apres avoir discute de la <i>halakha</i> du droit a l'heritage d'un fils d'une fille, la Guemara cite un verset qui se rapporte a cette question. Apres l'incident connu sous le nom de : La concubine de Gibea, les hommes de la tribu de Benjamin n'etaient plus que six cents, et chacun de ces hommes avait herite de grandes parcelles de terre de leurs parents decedes. Le verset indique : <b>"Et ils dirent : Ceux qui sont echappes doivent servir d'heritage a Benjamin, afin qu'une tribu ne soit pas effacee d'Israel"</b> (Juges 21:17).
+
+### Partie 3
+<b>Rabbi Yitzhak de la maison de Rabbi Ami dit :</b> Ceci <b>enseigne que</b> les anciens de cette generation <b>stipulaient a propos de la tribu de Benjamin que la fille d'un fils n'heritera pas avec les freres</b> de son pere. Comme la fille d'un fils qui herite des biens de son grand-pere peut les leguer plus tard a son mari, qui peut etre d'une autre tribu, les anciens ont institue cette ordonnance temporaire afin de s'assurer que les autres tribus n'heriteraient pas de grandes quantites de terres appartenant a la tribu de Benjamin, de peur que la tribu de Benjamin ne se retrouve avec peu de terres a elle.
+
+### Partie 4
+§ La Gemara presente une declaration connexe. <b>Rabbi Yohanan dit au nom de Rabbi Shimon ben Yohai:</b> Concernant <b>ceux qui ne laissent pas</b> derriere eux <b>un fils pour heriter</b> de <b>lui, le Saint, Beni soit-Il, est rempli de colere [<i>evra</i>] envers lui,</b> comme <b>il est ecrit ici : </b> "Si un homme meurt et qu'il n'a pas de fils, <b>alors tu transmettras son heritage [<i>vehaâvartem</i>]</b> a sa fille" (Nombres 27:8), <b>et il est ecrit ici : "Ce jour-la est un jour de colere [<i>evra</i>]"</b> (Sophonie 1:15). Les mots "<i>vehaâvartem</i>" et "<i>evra</i>" ont des lettres racines communes, ce qui fait que Rabbi Shimon ben Yohai interprete que la colere de Dieu peut etre le resultat du fait que l'heritage passe a une fille plutot qu'a un fils.
+
+#### Partie 5
+La Guemara presente une declaration connexe. Concernant le verset : "Dieu entendra, et les humiliera, Lui qui trone depuis toujours, Selah ; <b>ceux qui n'ont pas d'echange, et ne craignent pas Dieu"</b> (Psaumes 55:20), <b>Rabbi Yohanan et Rabbi Yehoshua ben Levi</b> interpretent chacun le verset de maniere differente. <b>L'un dit</b> qu'il s'agit d'une reference a <b>ceux qui ne laissent pas</b> derriere eux <b>un fils</b> pour heriter de lui, car il ne laisse personne pour servir en echange, c'est-a-dire en remplacement, pour lui ; <b>et l'autre dit</b> qu'il s'agit d'une reference a <b>ceux qui ne laissent pas</b> derriere eux <b>un etudiant</b> pour servir en echange pour lui.
+
+### Partie 6
+La Gemara suggere : <b>On peut conclure</b> que c'est <b>Rabbi Yohanan qui dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un etudiant, car Rabbi Yohanan,</b> dont les dix fils sont morts de son vivant, <b>a dit</b> a ceux qu'il consolerait : <b>Voici l'os de mon dixieme fils,</b> pour les encourager a ne pas succomber a leur chagrin. Comme Rabbi Yohanan savait qu'il ne laisserait aucun fils pour heriter de ses biens, il est raisonnable de penser qu'il a interprete le verset comme signifiant que Dieu est plein de colere envers celui qui ne laisse pas derriere lui un eleve. La Guemara commente que <b>on peut conclure que</b> c'est <b>Rabbi Yohanan qui dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un etudiant.</b>
+
+#### Partie 7
+La Gemara note : <b>Et de</b> ceci, <b>que Rabbi Yohanan</b> est celui qui <b>dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un etudiant,</b> il s'ensuit que <b>Rabbi Yehoshua ben Levi dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un fils.</b>
+
+### Partie 8
+La Guemara demande : <b>Mais</b> cela ne peut etre, car <b>Rabbi Yehoshua ben Levi ne se rendrait pas dans une maison de deuil [<i>bei tamya</i>]</b> pour consoler l'endeuille afin de ne pas interrompre ses etudes, <b>sauf dans la maison de celui qui est mort sans fils, comme il est ecrit : </b> "Ne pleurez pas sur le mort, ne vous lamentez pas sur lui, mais <b>pleurez douloureusement sur celui qui s'en va"</b> (Jeremie 22:10), <b>et Rabbi Yehuda dit</b> que <b>Rav dit</b> que le verset fait reference <b>a</b> celui qui <b>s'en va</b> de ce monde <b>sans</b> laisser derriere lui <b>un enfant male. </b> Du fait que Rabbi Yehoshua ben Levi consolerait specifiquement celui qui est mort sans laisser de fils, il est evident qu'il ne soutient pas que Dieu est plein de colere envers un tel individu. <b>Il faut plutot croire que <b>Rabbi Yehoshua ben Levi est</b> le Sage <b>qui dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un eleve.</b>
+
+### Partie 9
+La Gemara note : <b>Et de</b> ce <b>que Rabbi Yehoshua ben Levi est</b> celui <b>qui dit</b> que le verset fait reference a celui qui ne laisse pas derriere lui <b>un etudiant,</b> il s'ensuit que <b>Rabbi Yohanan dit</b> qu'il fait reference a celui qui ne laisse pas derriere lui <b>un fils.</b>
+
+### Partie 10
+La Gemara demande : Cela pose <b>une difficulte</b> d'une declaration <b>de Rabbi Yohanan,</b> que le verset fait reference a celui qui ne laisse pas de fils, <b>a</b> une autre declaration <b>de Rabbi Yohanan,</b> car il dirait : Ceci est l'os de mon dixieme fils. La Gemara repond : Il n'y a <b>pas de difficulte : Cette</b> declaration, en ce qui concerne l'os de son fils, <b>est la sienne,</b> tandis que <b>cette</b> declaration, en ce qui concerne le verset, <b>est celle de son maitre.</b>
+
+### Partie 11
+§ La Guemara poursuit avec trois interpretations homiletiques de Rabbi Pinehas ben Hama, et fournit <b>un moyen mnemotechnique</b> pour faciliter la memorisation de ces exposes : <b>Hadad, pauvrete, et sage.</b>
+
+### Partie 12
+La Guemara presente la premiere interpretation homiletique : <b>Rabbi Pinehas ben Hama a interprete</b> un verset <b>homiletiquement : Quel</b> est le sens de ce <b>qui est ecrit : "Et quand Hadad apprit en Egypte que David s'etait couche avec ses peres et que Joab, le chef de l'armee, etait mort"</b> (IA Rois 11.21) ? <b>Pour quelle</b> raison est-ce que <b>dans le cas du roi <b>David, le sommeil a ete enonce par rapport a sa</b> disparition, <b>et dans</b> le cas de <b>Joab, la mort a ete enoncee par rapport a sa</b> disparition ? Il repond : Concernant le roi <b>David, qui a laisse un fils</b>, <b>le sommeil a ete enonce en ce qui concerne sa</b> disparition, car ce n'etait pas une mort complete, tandis que concernant <b>Joab, qui n'a pas laisse de fils</b>, <b>la mort a ete enoncee en ce qui concerne sa</b> disparition, car il n'a laisse aucun fils pour lui succeder.
+
+### Partie 13
+La Gemara demande : <b>Et</b> est-il vrai que <b>Joab n'a pas laisse de fils</b> derriere lui ; <b>mais n'est-il pas ecrit :" Parmi les fils de Joab : Abdias, fils de Jehiel"</b> (Esdras 8.9) ? <b>Au contraire,</b> concernant le roi <b>David, qui a laisse un fils aussi</b> grand que <b>lui-meme, le sommeil a ete declare en ce qui concerne sa</b> disparition, mais concernant <b>Joab, qui n'a pas laisse un fils aussi</b> grand que <b>lui-meme, la mort a ete declaree en ce qui concerne sa</b> disparition.
+
+### Partie 14
+La Guemara presente la deuxieme interpretation homiletique : <b>Rabbi Pinehas ben Hama a interprete</b> un verset <b>homiletiquement,</b> et en a deduit que <b>la pauvrete dans le foyer d'une personne est plus difficile que cinquante fleaux, comme il est dit : "Ayez pitie de moi, ayez pitie de moi, o vous mes amis, car la main de Dieu m'a touche"</b> (Job 19:21), <b>et ses amis lui disaient :" Prends garde, ne regarde pas l'iniquité, car c'est cela que tu as choisi plutèt que la misère" (Job 36:21). Job, qui a souffert de nombreux fleaux, s'est vu dire par ses amis que ses souffrances etaient preferables a la pauvrete.
+
+### Partie 15
+La Guemara presente la troisieme interpretation homiletique : <b>Rabbi Pinehas bar Hama a interprete</b> un verset <b>homiletiquement : Quiconque a un malade chez lui doit se rendre chez un sage, et</b> le sage <b>demandera</b> une <b>mercie au nom</b> du malade, <b>comme il est dit : "La colere d'un roi est comme des messagers de mort ; mais un sage l'apaisera"</b> (Proverbes 16:14).
+
+### Partie 16
+§ La mishna enseigne que <b>ceci est le principe:</b> Concernant <b>toute personne qui precede</b> une autre <b>en matiere d'heritage, ses descendants precedent</b> egalement l'autre, <b>et un pere precede tous ses descendants. Rami bar Hama souleve un dilemme : </b> En ce qui concerne la revendication d'un <b>pere du</b> defunt et</b> la revendication du <b>frere du</b> defunt, comme</b> les revendications d'<b>Abraham et d'Ismael sur les biens d'Esau,</b> qui etait le petit-fils d'Abraham et le neveu d'Ismael, <b>lequel d'entre eux precede</b> l'autre et herite des biens ? <b>Rava dit : Venez</b> et <b>entendez</b> une preuve de la mishna : <b>Un pere precede tous ses descendants,</b> donc, Abraham heriterait, car Ismael etait son descendant. La Gemara demande : <b>Et</b> pourquoi <b>Rami bar Hama</b> a-t-il eu un dilemme ; n'etait-il pas au courant de la declaration de la mishna ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>Rav Shmuel bar Abba se presenta devant Rabbi Yirmeya bar Abba</b> pour reclamer la propriete de sa mere. Rabbi Yirmeya <b>l'a etabli</b> comme le proprietaire <b>de la propriete,</b> conformement a ce qui etait ecrit dans le document. <b>Rabbi Abba,</b> le mari de la mere, <b>se rendit</b> et <b>dit</b> un rapport de <b>l'affaire devant Rav Hoshaya. Rav Hoshaya est alle</b> et <b>a fait</b> un rapport de l'affaire <b>devant Rav Yehuda.</b> Rav Yehuda <b>a dit a</b> Rav Hoshaya : <b>Voici</b> ce que dit <b>Shmuel :</b> Dans le cas d'une <b>femme qui a vendu son bien en usufruit,</b> qui lui appartient mais dont son mari recolte les benefices, <b>du vivant de son mari, et</b> ensuite elle <b>decede, le mari reprend</b> le bien <b>des acheteurs. </b> L'octroi de sa propriete par le biais du document est analogue a une vente, et Rabbi Abba peut reprendre possession de la propriete de Rav Shmuel bar Abba.
+
+### Partie 2
+Les Sages <b>Disent que</b> <i>halakha</i> <b>devant Rabbi Yirmeya bar Abba,</b> qui avait juge que le bien appartient a Rav Shmuel bar Abba. <b>Il leur dit : Je connais la mishna</b> qui soutient mon opinion, <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 136a) : Dans le cas de <b>quelqu'un qui ecrit</b> un document transferant la propriete de <b>son bien a son fils,</b> en precisant que le transfert doit prendre effet immediatement mais que le fils n'en aura l'usage qu'<b>apres</b> le <b>deces du pere, le fils ne peut pas vendre</b> le bien <b>en raison</b> du fait <b>qu'il est</b> encore <b>en possession du pere. Et le pere,</b> meme s'il a conserve le droit d'utiliser le bien, <b>ne peut pas vendre</b> le bien <b>en raison</b> du fait <b>qu'il est ecrit</b> comme appartenant <b>au fils. </b> Si <b>le pere a vendu</b> le bien, alors <b>il est vendu</b> dans la mesure ou l'acheteur peut l'utiliser <b>jusqu'au</b> deces du pere.</b> Si <b>le fils a vendu</b> le bien du vivant de son pere, <b>l'acheteur n'a pas</b> le droit d'utiliser le bien <b>jusqu'au deces du pere.</b>
+
+### Partie 3
+Rabbi Yirmeya bar Abba en deduit : <b>En tout etat de cause,</b> si le fils a vendu le bien du vivant de son pere, <b>au deces du pere, l'acquereur a</b> des droits sur le bien. <b>Et</b> il en serait ainsi <b>meme si</b> il s'agit d'un cas <b>ou le fils est decede du vivant du pere, ou</b> le bien <b>n'est jamais entre en possession du fils.</b>
+
+### Partie 4
+L'analyse de Rabbi Yirmeya bar Abba est <b>conforme</b> a l'avis de <b>Rabbi Shimon ben Lakish, qui dit : </b> Il n'y a <b>aucune difference</b> si <b>le fils est mort du vivant du pere, ou</b> le bien <b>n'est jamais entre en possession du fils,</b> et il n'y a <b>aucune difference</b> si <b>le pere est mort du vivant du fils, ou le</b> bien <b>est entre en possession du fils. </b> En tout etat de cause, <b>l'acquereur a acquis</b> le bien.
+
+### Partie 5
+La Guemara rapporte une dispute entre les <i>amoraim</i> concernant ce point. <b>Comme il a ete dit :</b> Dans un cas ou <b>le fils a vendu</b> le bien <b>du vivant du pere, et que le fils est decede du vivant du pere, Rabbi Yohanan dit : L'acheteur n'a pas acquis</b> la propriete. <b>Reish Lakish dit : L'acheteur a acquis</b> la propriete.
+
+### Partie 6
+La Guemara explique l'opinion de Rabbi Yohanan. <b>Rabbi Yohanan dit : L'acquereur n'a pas acquis</b> le bien, car il aurait pu <b>vous dire : Quand la mishna enseigne</b> que si <b>le fils a vendu</b> le bien du vivant de son pere <b>l'acheteur n'acquiert</b> aucun droit d'utilisation du bien <b>jusqu'a la mort du pere, et</b> on pourrait en deduire que <b>a la mort du pere l'acheteur a</b> des droits sur le bien, la mishna discute d'un cas <b>ou le fils n'est pas mort du vivant du pere,</b> de sorte <b>que</b> la propriete <b>est entree en possession du fils</b> a la mort du pere, avant que l'acheteur ne l'ait acquise. <b>Mais</b> si <b>le fils est mort du vivant du pere,</b> de sorte <b>que</b> le bien <b>n'est pas entre en possession du fils,</b> alors <b>meme au deces du pere, l'acheteur n'a pas</b> de droits sur le bien.
+
+### Partie 7
+La Gemara commente : <b>Apparemment,</b> Rabbi Yohanan <b>soutient</b> que la <b>propriete des</b> droits d'utilisation d'un bien et de <b>son produit est consideree comme la propriete du bien lui-meme.</b> Meme si le bien lui-meme n'appartenait pas au pere, c'est comme si le pere etait proprietaire du bien, car tous les produits lui appartenaient en pratique. Par consequent, <b>lorsque</b> le fils <b>vendait</b> le bien, <b>il vendait</b> un bien <b>qui ne lui appartenait pas.</b>
+
+### Partie 8
+La Guemara explique l'opinion de Rabbi Shimon ben Lakish : <b>Rabbi Shimon ben Lakish dit</b> que l'<b>acheteur a acquis</b> le bien sur la base de cette revendication : <b>Lorsque la mishna enseigne</b> que si <b>le fils a vendu</b> la propriete du vivant de son pere, <b>l'acheteur n'a</b> aucun droit d'utilisation de la propriete <b>jusqu'a la mort du pere,</b> et qu'on pourrait en deduire que <b>de toute facon, a la mort du pere, l'acheteur a</b> des droits sur la propriete, la mishna signifie qu'il n'y a <b>aucune difference</b> si <b>le fils n'est pas mort du vivant du pere, ou le</b> bien <b>est entre en possession du fils, et</b> il n'y a <b>aucune difference</b> si <b>le fils est mort du vivant du pere, ou le</b> bien <b>n'est pas entre en possession du fils. </b> Dans les deux cas, l'<b>acheteur a acquis</b> le bien.
+
+### Partie 9
+La Gemara commente : <b>Apparemment,</b> Rabbi Shimon ben Lakish <b>soutient</b> que la <b>propriete des</b> droits d'utilisation d'un bien et de <b>son produit n'est pas consideree comme la propriete du bien lui-meme. Et</b> donc <b>lorsque</b> le fils <b>vendait</b> le bien, <b>il vendait</b> un bien <b>qui lui appartenait.</b>
+
+### Partie 10
+La Guemara revient a la discussion de l'opinion de Rabbi Yirmeya bar Abba. <b>Et maintenant</b> pour <b>nous, si</b> si l'on discute l'avis de <b>Rabbi Yirmeya bar Abba et si</b> on discute l'avis de <b>Rav Yehuda, ils</b> tous deux <b>sont en accord</b> avec l'avis de <b>Rabbi Shimon ben Lakish,</b> que la propriete des droits d'utilisation d'un bien et de son produit n'est pas consideree comme la propriete du bien lui-meme. <b>Et Rabbi Yirmeya bar Abba dit : Si</b> il <b>vous vient a l'esprit</b> que la <b>propriete des</b> droits d'utilisation d'un bien et de <b>son produit est consideree comme la propriete du bien lui-meme,</b> alors <b>lorsque le pere meurt et que le fils</b> etait <b>mort du vivant du pere, pourquoi l'acheteur a-t-il</b> des droits sur le bien ? <b>Quand</b> le fils l'a <b>vendu</b>, <b>n'a-t-il pas vendu</b> un bien <b>qui ne lui appartenait pas ?</b>
+
+### Partie 11
+<b>Au contraire, n'est-il pas</b> correct de <b>conclure de</b> la mishna que la <b>propriete des</b> droits d'utilisation d'un bien et de <b>son produit n'est pas consideree comme la propriete du bien lui-meme ?</b> Par consequent, Rav Shmuel bar Abba devrait recevoir le bien qui lui a ete transfere par sa mere, car le fait que le mari possedait les droits sur son produit ne limite pas sa capacite a transferer son bien a son fils.
+
+### Partie 12
+Les Sages <b>Rappellent</b> Rabbi Yirmeya bar Abba la reponse <b>de Rav Yehuda.</b> Rav Yehuda <b>leur dit : C'est</b> ce que <b>Shmuel a dit : Cette</b> <i>halakha</i>, selon laquelle un mari peut reprendre le bien que sa femme a vendu avant sa mort, <b>n'est pas similaire</b> a la <i>halakha</i> de <b>notre mishna</b> concernant un pere qui transfere son bien a son fils tout en conservant le droit de recolter les benefices.
+
+### Partie 13
+La Gemara demande : <b>Quel est le raisonnement</b> qui permet de faire la distinction entre les deux cas ? <b>Rav Yosef dit : Accorde, si</b> la mishna avait <b>enseigne le contraire</b> et declare que dans le cas de <b>quelqu'un qui ecrit</b> un document transferant la propriete de <b>son bien a son pere</b> apres sa mort, le fils conservant le droit de recolter les benefices jusque-la, et que le pere a vendu le bien du vivant de son fils, l'acheteur a des droits sur le bien apres le deces du fils, alors <b>il est</b> possible de <b>resoudre a partir</b> de la mishna <b>que la propriete de</b> les droits d'utilisation d'un bien et de <b>ses produits n'est pas consideree comme la propriete du bien lui-meme. </b>
+
+### Partie 14
+Rav Yosef poursuit : <b>Mais maintenant que</b> la mishna <b>enseigne</b> specifiquement : <b>Un homme qui ecrit</b> un document transferant la propriete de <b>ses biens a son fils,</b> la capacite du fils a vendre le bien est <b>due</b> au fait <b>que</b> le fils <b>est apte a heriter</b> de <b>lui</b> et a deja un droit sur le bien, et non pas seulement a l'existence du document. Dans le cas de Rav Shmuel bar Abba egalement, les biens de la femme sont herites par son mari, et non par son fils, elle ne peut donc pas les transferer a Rav Shmuel bar Abba.
+
+### Partie 15
+<b>Abaye dit a</b> Rav Yossef : <b>Est-ce a dire qu'un fils herite</b> d'un <b>pere,</b> mais que <b>un pere n'herite pas</b> d'un <b>fils ?</b> Il n'y a pas de difference entre leurs droits a heriter l'un de l'autre. <b>Au contraire,</b> meme si la mishna enseignait une <i>halakha</i> concernant un fils transferant ses biens a son pere, la raison pour laquelle le fils a agi de la sorte aurait pu etre qu'il <b>vient cacher ses biens a son</b> propre <b>fils</b> et souhaite que son pere herite de lui a la place. <b>Ici aussi,</b> lorsqu'un pere transfere ses biens a son fils, <b>il vient cacher ses biens aux</b> <b>freres du fils,</b> car le pere a d'autres fils mais ne veut pas qu'ils heritent de lui. Par consequent, le choix du cas par la mishna ne peut servir de base a la deduction.
+
+### Partie 16
+Abaye poursuit : <b>Au contraire, quelle</b> etait la raison de Shmuel pour dire que le droit d'un mari sur le bien que sa femme a vendu avant sa mort <b>n'est pas similaire a notre mishna</b> qui stipule qu'un pere n'a pas de droits sur les biens vendus par son fils ? La difference est <b>due</b> a la <b>ordonnance rabbinique de Usha,</b> une ordonnance instituee a l'egard des droits du mari sur les biens de sa femme. <b>Comme le dit Rabbi Yosei bar Hanina : Dans</b> la ville de <b>Usha</b> les Sages ont <b>institue</b> que dans le cas d'une <b>femme qui a vendu ses biens en usufruit du vivant de son mari et</b> ensuite <b>decede, le mari en reprend</b> possession <b>aupres des acheteurs.</b> Cette ordonnance a ete instituee uniquement au profit du mari, mais pas au profit du pere ou du fils.
+
+### Partie 17
+<b>Rav Idi bar Avin a dit : Nous apprenons nous aussi</b> de l'ordonnance de Usha dans la <i>baraita</i> : Si des temoins ont dit : <b>Nous temoignons a propos d'untel qu'il a divorce de sa femme et lui a donne</b> la valeur totale des obligations inscrites dans <b>son contrat de mariage,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,66 @@
+
+### Partie 1
+en ce qui concerne le fait de <b>laisser en suspens,</b> c'est-a-dire de traiter comme incertain, le sang de la couleur de l'eau dans laquelle on trempe une plante de fenugrec, ou de la couleur du liquide qui s'ecoule d'une viande rotie. Selon la premiere <i>tanna</i> de la mishna, il existe cinq types de sang qui sont definitivement impurs, tandis que d'autres types, tels que ceux mentionnes par Beit Shammai, sont consideres comme impurs en raison de leur incertitude. En revanche, les Beit Hillel soutiennent que le sang de ces couleurs est entierement pur.
+
+### Partie 2
+§ La mishna declare : Le sang qui est <b>vert, Akavya ben Mahalalel le juge</b> <b>impur.</b> La Gemara demande : <b>Mais Akavya</b> ben Mahalalel <b>n'accepte-t-il pas</b> l'expose de Rabbi Abbahou selon lequel les deux versets : <b>"<i>Dameha</i>"</b> (Levitique 12:7), et : <b>"<i>Dameha</i>"</b> (Levitique 20:18), indiquent qu'il y a <b>quatre</b> types de sang <b>ici ?</b>
+
+### Partie 3
+La Guemara repond : <b>Si tu veux, dis</b> que Akavya ben Mahalalel <b>n'accepte pas</b> cet avis de Rabbi Abbahou, car il soutient qu'il y a plus de quatre types de sang chez une femme. <b>Et si vous le souhaitez, dites</b> plutot qu'Akavya ben Mahalalel <b>accepte</b> l'expose de Rabbi Abbahu, et la contradiction apparente peut etre resolue comme suit : <b>Rabbi Hanina n'a-t-il pas dit,</b> en ce qui concerne le sang <b>noir</b> mentionne dans la mishna, qu'il <b>est</b> en fait <b>rouge mais</b> sa couleur <b>a pali ? Ici aussi,</b> en ce qui concerne le vert mentionne par Akavya ben Mahalalel, on peut dire qu'il etait initialement rouge mais que sa couleur <b>a pali</b> et est devenue verte.
+
+### Partie 4
+§ La mishna precise a propos du sang qui est vert : <b>Et les rabbins le jugent</b> <b>pur.</b> La Guemara demande : <b>Cette opinion</b> des rabbins n'est-elle pas identique a l'opinion du <b>premier <i>tanna</i> ? </b> La Gemara repond : <b>Il y a</b> une difference pratique <b>entre eux</b> en ce qui concerne le fait de laisser ou non <b>en suspens</b> le sang qui est vert. Selon la premiere <i>tanna</i> de la mishna, il existe cinq types de sang qui sont definitivement impurs, tandis que d'autres types, comme le vert, sont impurs en raison d'une incertitude. En revanche, les rabbins soutiennent que le sang vert est entierement pur.
+
+### Partie 5
+§ La mishna indique que <b>Rabbi Meir a dit :</b> Meme <b>si</b> le sang vert <b>ne transmet pas l'impurete due</b> aux <i>halakhot</i> d'une <b>tache de sang</b> ou du sang d'une femme en periode de menstruation, il est du sang en ce sens qu'il rend la nourriture susceptible d'impurete rituelle en raison de son statut de l'un des sept liquides qui rendent la nourriture susceptible.
+
+### Partie 6
+<b>Rabbi Yohanan dit : Rabbi Meir a accepte l'avis de Akavya ben Mahalalel et a juge</b> le sang vert <b>impur</b> comme le sang d'une femme ayant ses regles. <b>Et</b> quant a sa declaration dans la mishna, <b>ceci</b> est ce que Rabbi Meir <b>disait aux rabbins : Accorde que</b> dans un cas <b>ou</b> une femme <b>trouve une tache verte sur</b> un article de <b>vetement, vous ne la jugez pas</b> impure litterairement,</b> car sa verdure est une indication qu'elle ne provient pas de son corps. Mais dans un cas <b>ou elle</b> voit effectivement <b>du sang vert</b> provenir <b>de son corps, elle sera impure.</b>
+
+### Partie 7
+La Guemara souleve une difficulte avec cette interpretation : <b>Si oui,</b> pourquoi Rabbi Meir a-t-il dit : Meme <b>si elle ne transmet pas l'impurete due</b> aux <i>halakhot</i> d'une <b>tache de sang, elle rend</b> la nourriture susceptible d'etre <b>impurete rituelle en raison</b> de son statut de <b>liquide ?</b> Selon l'explication ci-dessus, il <b>aurait du</b> dire : Si la femme <b>a vu</b> l'emission de ce sang, elle est impure <b>comme</b> une femme en periode de menstruation.
+
+### Partie 8
+<b>Voici plutot</b> ce que Rabbi Meir <b>disait aux</b> rabbins : <b>Accorde</b> que dans un cas <b>ou</b> la femme <b>voit du sang vert des le debut, vous ne la jugez pas</b> impure,</b> mais dans un cas <b>ou elle voit du sang rouge et ensuite du sang vert, elle sera impure. </b> Il en est <b>ainsi en ce qui concerne</b> la <i>halakha</i> des <b>fluides d'un homme qui subit un ecoulement de type gonorrhee [<i>zav</i>] et d'une femme qui subit un ecoulement de sang uterin apres ses regles [<i>zava</i>]. </b> Tous les fluides emis par un <i>zav</i> ou <i>zava</i>, tels que la salive et l'urine, sont impurs. De meme, le sang vert qui est emis par cette femme qui a deja emis du sang rouge doit etre impur.
+
+### Partie 9
+La Gemara demande : <b>Et</b> comment <b>les rabbins</b> repondraient-ils a cela ? La Guemara repond : Ils soutiennent que les fluides impurs d'une femme en periode de menstruation sont uniquement ceux qui sont <b>similaires a la salive : De meme que</b> lorsque la <b>salive</b> quitte la bouche, elle <b>est</b> d'abord <b>rassemblee</b> <b>et</b> ensuite <b>expulsee</b> du corps, <b>de meme, tous</b> les fluides impurs sont ceux qui sont <b>rassembles</b> <b>et</b> ensuite <b>expulses. </b> Cette definition sert <b>a exclure ce</b> sang vert, <b>qui n'est pas rassemble</b> <b>et expulse.</b> La Gemara demande : <b>Si oui, les rabbins ont bien parle a Rabbi Meir,</b> c'est-a-dire que leur reponse est convaincante. Pourquoi Rabbi Meir considere-t-il le sang vert comme impur ?
+
+### Partie 10
+<b>Voici plutot</b> ce que Rabbi Meir <b>disait aux rabbins</b> : <b>Laissons</b> le sang vert <b>etre</b> au moins <b>comme</b> l'un des sept <b>liquides qui rendent les graines</b> sur lesquelles elles tombent <b>susceptibles</b> d'impurete rituelle. Pourquoi le sang vert est-il repute pur meme en ce qui concerne cette question ? <b>Et les rabbins</b> ne sont pas d'accord car ils <b>exigent</b> que chaque type de sang qui rend les aliments sensibles a l'impurete rituelle soit comme celui mentionne dans le verset : "Et buvez <b>le sang des victimes"</b> (Nombres 23:24), c'est-a-dire le sang qui coule au moment de la mort ; <b>et</b> le sang vert n'est <b>pas</b> le type qui coule au moment de la mort. Par consequent, il ne rend pas les aliments susceptibles d'etre soumis a l'impurete rituelle. La Gemara demande a nouveau : <b>Si c'est le cas, les rabbins ont bien parle a Rabbi Meir.</b> Pourquoi est-il en desaccord avec eux ?
+
+### Partie 11
+<b>Voici plutot</b> ce que Rabbi Meir <b>disait aux</b> Rabbins : <b>Apprenez</b> cette <i>halakha</i> que le sang vert rend les aliments susceptibles d'impurete rituelle <b>a partir</b> de l'analogie <b>verbale suivante : Il est ecrit ici,</b> dans une description de la femme aimee qui fait allusion a son sang menstruel : <b>Vos pousses [<i>shelahayikh</i>] sont un verger de grenades"</b> (Cantique des Cantiques 4:13), <b>et il est ecrit la:</b> "Qui donne la pluie sur la terre, <b>et envoie [<i>vesholeâh</i>] les eaux sur les champs"</b> (Job 5:10). Cette analogie verbale indique que le sang menstruel est semblable a l'eau en ce sens que tous deux rendent les aliments susceptibles d'etre impurs sur le plan rituel.
+
+### Partie 12
+<b>Et les rabbins</b> ne sont pas d'accord avec Rabbi Meir, car ils n'ont pas de tradition selon laquelle il s'agit d'une analogie verbale acceptee, et il existe un principe selon lequel, bien que <b>une personne puisse deduire une <i>a fortiori</i></b> inference <b>par elle-meme,</b> c'est-a-dire meme si cet argument logique particulier ne lui a pas ete enseigne par ses maitres, <b>une personne ne peut pas deduire une analogie verbale par elle-meme,</b> mais seulement si elle l'a recue par tradition.
+
+### Partie 13
+§ La mishna indique que <b>Rabbi Yosei dit : Ni</b> dans <b>ce sens, comme le sang d'une femme ayant ses regles selon Akavya ben Mahalalel, ni dans ce sens, comme un liquide qui rend les aliments sensibles selon Rabbi Meir, le sang vert n'est considere comme du sang. La Guemara souleve une difficulte : <b>Ce n'est pas</b> la meme chose que l'avis du <b>premier <i>tanna</i> ?</b> La Guemara repond que <b>c'est</b> ce que la mishna <b>nous enseigne : Qui est le premier <i>tanna</i> ? Rabbi Yosei. Et</b> la raison pour laquelle le nom de Rabbi Yosei est mentionne est due au principe selon lequel <b>toute personne qui rapporte une declaration au nom de celui qui l'a dite apporte la redemption au monde.</b>
+
+### Partie 14
+§ La mishna declare : <b>Quelle est</b> la couleur <b>rouge</b> du sang qui est impur ? Elle est aussi rouge <b>que le sang</b> qui coule d'une <b>plaie.</b> La guemara demande : <b>Quel est le sens de la phrase : <b>Comme le sang</b> qui coule d'une <b>blessure ? Rav Yehuda dit</b> que <b>Shmuel dit : Comme le sang d'un boeuf abattu.</b>
+
+### Partie 15
+La Gemara s'interroge : <b>Mais</b> si c'est le cas, <b>laissons</b> le <i>tanna</i> de la mishna <b>dire</b> explicitement qu'il est aussi rouge <b>que le sang de l'abattage.</b> La Gemara explique : <b>Si</b> le <i>tanna</i> avait <b>dit</b> qu'il est aussi rouge <b>que le sang de l'abattage, je dirais</b> que cela signifie aussi rouge <b>que</b> le sang qui coule tout au long de <b>l'abattage entier,</b> et cela s'appliquerait aux nuances de tout le sang emis pendant le processus. Par consequent, le <i>tanna</i> <b>nous enseigne</b> qu'il est aussi rouge <b>que le sang</b> qui s'ecoule d'une <b>plaie,</b> c'est-a-dire <b>comme</b> le sang qui s'ecoule au <b>debut de l'incision avec</b> le <b>couteau d'abattage.</b>
+
+### Partie 16
+La Guemara cite d'autres definitions de la couleur decrite dans la mishna comme : Rouge comme le sang qui coule d'une blessure. <b>Ulla dit :</b> Elle est rouge <b>comme le sang</b> qui coule d'un <b>oiseau vivant</b> qui a ete blesse. <b>Un dilemme s'est pose devant</b> les Sages : Lorsque Ulla a precise que l'oiseau est <b>vivant,</b> a-t-il voulu dire qu'il n'etait pas mort, <b>pour exclure</b> le sang d'un <b>oiseau abattu</b> ? <b>Ou peut-etre</b> voulait-il dire que l'oiseau etait en bonne sante, <b>pour exclure</b> le sang d'un <b>oiseau faible</b>. Aucune reponse n'a ete trouvee, et la Guemara conclut donc que le dilemme <b>doit rester</b> non resolu.
+
+### Partie 17
+La Gemara cite une autre definition : <b>Zeeiri</b> dit que <b>Rabbi Hanina dit :</b> Il est rouge <b>comme le sang</b> qui provient d'un <b>poux ecrase.</b> La Gemara <b>souleve une objection</b> a partir d'une mishna qui traite d'une tache trouvee sur un vetement de femme (58b) : Si une femme <b>a tue un pou</b> et qu'elle a par la suite trouve une tache de sang sur son vetement ou son corps, <b>cette femme</b> <b>peut attribuer</b> la tache <b>a</b> ce pou, et elle reste pure. La Guemara explique l'objection : <b>Quoi, n'est-il pas</b> exact de dire que cela fait reference a un pou <b>de toutes</b> les parties de <b>son corps,</b> et pas seulement la tete, comme le pretend Rabbi Hanina ? Si oui, la couleur du sang impur est comme la couleur du sang d'un pou provenant de n'importe quelle partie du corps. La Guemara repond : <b>Non;</b> ce <i>halakha</i> se refere specifiquement a un pou qui etait <b>sur sa tete.</b>
+
+### Partie 18
+La Guemara cite encore une autre definition de la couleur decrite dans la mishna comme : Rouge comme le sang qui coule d'une blessure. Le Sage <b>Ami de Vardina</b> dit que <b>Rabbi Abbahu dit :</b> Elle est rouge <b>comme</b> le <b>sang</b> qui coule du <b>petit doigt de</b> la <b>main, qui a ete blessee et</b> plus tard <b>guerie et a ete</b> ensuite <b>blessee a nouveau. Et</b> ceci ne fait <b>pas</b> reference au doigt <b>de n'importe quelle personne, mais</b> specifiquement au doigt <b>d'un jeune homme qui n'a pas</b> encore <b>marie une femme. Et</b> de plus, il ne s'agit pas de n'importe quel jeune homme ; plutot, <b>jusqu'a quel age</b> doit-il etre ? <b>Jusqu'a vingt</b> ans</b>.
+
+### Partie 19
+La Guemara <b>souleve une objection</b> de la mishna precitee (58b) : Si le mari ou le fils de la femme a subi une blessure, <b>elle peut attribuer</b> une tache de sang qu'elle trouve sur son vetement <b>a son fils ou a son mari,</b> et elle reste pure. La Guemara analyse cette <i>halakha</i> : <b>Accorde, en ce qui concerne</b> la decision selon laquelle elle peut l'attribuer a <b>son fils, on peut trouver</b> un cas ou celui-ci remplit toutes les conditions specifiees par Rabbi Abbahou, c'est-a-dire qu'il pourrait avoir moins de vingt ans et ne pas etre marie. <b>Mais</b> en ce qui concerne la decision selon laquelle elle peut l'attribuer a <b>son mari, comment trouver</b> un cas ou son mari est celibataire ?
+
+### Partie 20
+<b>Rav Nahman bar Yitzhak dit :</b> Il est possible dans un cas <b>ou</b> cette femme <b>est entree dans le</b> <b>canopee du mariage mais n'a pas</b> encore <b>engage de rapports</b> avec son mari. Dans une telle situation, bien qu'il soit son mari, il s'apparente physiquement a un jeune homme non marie. Par consequent, elle peut attribuer la tache de sang a sa blessure.
+
+### Partie 21
+<b>Rav Nahman dit :</b> Ce rouge est <b>comme le sang</b> repandu dans le processus <b>de saignee.</b> La Gemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Un incident</b> s'est produit concernant une tache de sang trouvee sur le vetement d'une femme, <b>et Rabbi Meir a attribue</b>...
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

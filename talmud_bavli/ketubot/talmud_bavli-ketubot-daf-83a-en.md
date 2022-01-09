@@ -1,0 +1,33 @@
+
+### Part 1
+<strong>MISHNA:</strong> <b>One who writes for his wife</b> in a document the declaration: <b>I have no legal</b> dealings <b>or involvement with your property,</b> thereby relinquishing his rights to her possessions, <b>may</b> nevertheless <b>consume the produce</b> of her property <b>in her lifetime. And if she dies</b> before him, <b>he inherits</b> from <b>her. If</b> this is <b>so,</b> if he still retains his rights, <b>why</b> would he <b>write for her: I have no legal</b> dealings <b>or involvement with your property?</b> The result of this declaration is <b>that if she sold or gave</b> away her property, the transaction is <b>binding,</b> and he cannot claim it.
+
+### Part 2
+If <b>he writes for her: I have no legal</b> dealings <b>or involvement with your property or with its produce, he may not consume the produce</b> of her property <b>during her lifetime, but if she dies he</b> still retains the right to <b>inherit</b> from <b>her. Rabbi Yehuda says: He always consumes the produce of the produce.</b> Although he has waived his rights to consume the produce itself, it becomes her usufruct property, whose yield belongs to him. He remains entitled to the produce of the produce <b>until he writes for her: I have no legal</b> dealings <b>or involvement with your property, or with its produce, or with the produce of its produce forever.</b>
+
+### Part 3
+If <b>he writes for her: I have no legal</b> dealings <b>or involvement with your property or with its produce, or with the produce of its produce, in your lifetime and after your death, he may not consume the produce</b> of her property <b>in her lifetime. And if she dies, he does not inherit</b> from <b>her. Rabban Shimon ben Gamliel says: If she dies, he does inherit</b> from <b>her, because</b> he <b>stipulates counter to that which is written in the Torah.</b> According to Rabban Shimon ben Gamliel, a husband inherits from his wife by Torah law, <b>and whoever stipulates counter to that which is written in the Torah, his stipulation is void.</b>
+
+### Part 4
+<strong>GEMARA:</strong> <b>Rabbi Ḥiyya taught</b> in a <i>baraita</i>: <b>One who says to his wife;</b> he did not teach: One who writes for his wife, as the mishna stated. This indicates that this condition can be stated verbally and does not need to be written in a contract.
+
+### Part 5
+The Gemara asks about the ruling of the mishna: <b>And if he wrote this to her, what of it?</b> How does such a stipulation, written or otherwise, take effect? <b>But isn’t it taught</b> in a <i>baraita</i>: <b>One who says,</b> whether verbally or by written communication, <b>to another</b> person with whom he shares property: <b>I have no legal</b> dealings <b>or involvement with this field, or I have no dealings with it, or my hands are removed from it, has not said anything?</b> This is because statements that waive rights without transferring them to another have no legal standing.
+
+### Part 6
+The Sages from <b>the school of Rabbi Yannai say:</b> The mishna is referring <b>to one who writes</b> such a statement <b>for her while she is still betrothed.</b> Since the property was not yet in the husband’s possession when he wrote this condition, he was able to forgo any rights that he would later receive. This is <b>in accordance with</b> the opinion of <b>Rav Kahana, as Rav Kahana said:</b> Concerning <b>an inheritance that comes to a person from another place,</b> i.e., he did not inherit it directly but rather through his wife or by means of a gift, <b>the person can stipulate with regard to it that he will not inherit it.</b> In this case, his statement is effective, although one cannot waive a right one already has. <b>And</b> this ruling is <b>in accordance with</b> the opinion of <b>Rava, as Rava said:</b> With regard to <b>one who says: I do not want</b> to avail myself of <b>an ordinance of the Sages</b> that was instituted for my benefit, <b>such as this</b> one, one <b>listens to him.</b>
+
+### Part 7
+The Gemara asks: <b>What</b> is meant by: <b>Such as this</b> one? The Gemara explains: Rava is referring to <b>that</b> statement <b>of Rav Huna,</b> who said that <b>Rav said</b> a certain ruling. <b>As Rav Huna said</b> that <b>Rav said</b> that <b>a woman is able say to her husband: I will not be sustained</b> by you and, in turn, <b>I will not work,</b> i.e., you will not keep my earnings. The Sages instituted that a husband must provide sustenance for his wife, and in exchange is entitled to her wages. Since this was instituted for the benefit of the wife, she is able to opt out of this arrangement. Similarly, the husband may opt out of the arrangement granting him the right to the produce of his wife’s land.
+
+### Part 8
+The Gemara asks: <b>If that is so,</b> and Rava’s opinion that one can waive a right instituted by the Sages for his own benefit is accepted, then <b>even</b> if he relinquished his rights to his wife’s property once she was already <b>married,</b> his stipulation should <b>also</b> be valid. Why, then, was it necessary for Rabbi Yannai to explain that the stipulation in the mishna was made only in the case of a betrothed woman?
+
+### Part 9
+<b>Abaye said:</b> In the case of <b>a married</b> woman, <b>his hand,</b> i.e., his right to the property, <b>is like her hand.</b> Since the husband is considered a partner in her property, he cannot forfeit his ownership by declaration. <b>Rava said:</b> If they are married, <b>his hand is preferable to her hand,</b> i.e., he has more rights to her property than she does. The Gemara comments: The <b>practical difference</b> between the opinions of Rava and Abaye concerns the case <b>of a widow awaiting her brother-in-law [<i>yavam</i>]</b> to perform levirate marriage. If the husband’s rights are greater than the wife’s, then the rights of the <i>yavam</i> can be judged to be at least equal to that of the wife. If the husband and wife have equal rights in her property, then the rights of the <i>yavam</i> are inferior to the wife’s.
+
+### Part 10
+<b>A dilemma was raised before</b> the Sages: <b>What is</b> the <i>halakha</i> if one not only wrote a declaration relinquishing his rights to his partner’s property, but they also <b>performed an act of acquisition</b> transferring the rights <b>from him? Rav Yosef said: They acquired from him</b> only his promise of: <b>I have no legal</b> dealings <b>or involvement</b> with your property. Therefore, the transaction is no more effective than the promise itself. <b>Rav Naḥman said:</b> The transaction is effective and <b>they acquired the land itself from him. Abaye said:</b> The <b>statement of Rav Yosef is reasonable</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

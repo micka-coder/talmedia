@@ -1,0 +1,39 @@
+
+### Part 1
+<b>Ḥizkiyya said: What is the verse</b> from which this <i>halakha</i> is derived? It is derived from the verse: “By this shall the iniquity of Jacob be expiated…<b>when he makes all the stones of the altar as limestones [<i>ke’avnei gir</i>] that are beaten into pieces, so that the <i>asherim</i> and the sun images shall rise no more”</b> (Isaiah 27:9). This indicates that <b>if</b> the description <b>“as limestones that are beaten into pieces” is</b> fulfilled, then the statement <b>“The sun images shall rise no more”</b> also applies, and their status is revoked. <b>If</b> it is <b>not</b> fulfilled, then <b>they shall rise,</b> meaning that their status is not revoked.
+
+### Part 2
+§ The Sages <b>taught</b> in a <i>baraita</i>: With regard to an item, e.g., an animal, that <b>was worshipped</b> by a certain person, if it is <b>his</b> item it is <b>prohibited, but</b> if it is <b>another’s,</b> it is <b>permitted.</b> The Gemara <b>raises a contradiction</b> from another <i>baraita</i>: <b>What is</b> considered an animal <b>that was worshipped</b> and is disqualified from being sacrificed in the Temple? It is <b>any</b> animal <b>that is worshipped, whether unwittingly or intentionally, whether under duress or willingly. What are the circumstances</b> of <b>this</b> case of an animal worshipped under <b>duress? Isn’t</b> it referring to a case <b>where</b> one <b>forcibly</b> took <b>another’s animal and bowed to it,</b> indicating that one who worships the animal of another renders it forbidden?
+
+### Part 3
+<b>Rami bar Ḥama says: No,</b> the <i>baraita</i> is referring to a case <b>where gentiles coerced</b> someone <b>and he bowed to his own animal. Rabbi Zeira objects to this: The Merciful One exempts</b> a victim of <b>circumstances beyond his control</b> from punishment, <b>as it is written</b> with regard to a betrothed young woman who is raped: <b>“But to the maiden you shall do nothing,</b> the maiden has no sin worthy of death, for as when a man rises against his neighbor, and slays him, so is this matter” (Deuteronomy 22:26).
+
+### Part 4
+<b>Rather, Rava says: All</b> cases of idol worship <b>were included in</b> the prohibition: “You shall not bow down to them, <b>nor shall you serve them”</b> (Exodus 20:5), including the case of worship under duress. <b>When the verse specified to you:</b> “You shall keep My statutes…which a man shall do <b>and live by them”</b> (Leviticus 18:5), <b>and not that he should die by them,</b> the verse <b>excluded</b> the case of <b>duress.</b> One would conclude from the verse that one who acts under duress is not considered an idol worshipper, and he is not required to sacrifice his life to refrain from worshipping idols.
+
+### Part 5
+<b>The Merciful One then wrote: “And you shall not profane My holy name”</b> (Leviticus 22:32), indicating <b>that</b> the prohibition against idol worship applies <b>even in</b> a case of <b>duress,</b> as this constitutes a desecration of God’s name. <b>How</b> can <b>these</b> texts be reconciled? <b>This</b> verse is referring to worshipping under duress <b>in private, and that</b> verse is referring to worshipping under duress <b>in public.</b> In private one is not required to sacrifice his life in order to refrain from idol worship. In public one is required to sacrifice his life rather than engage in idol worship. Therefore, if one engaged in idol worship in public, even under duress, the object of idol worship is forbidden.
+
+### Part 6
+<b>The Rabbis said to Rava: That</b> which <b>is taught</b> in a <i>baraita</i> <b>supports your</b> opinion. It is taught in a <i>baraita</i>: The following <i>halakha</i> applies with regard to <b>platforms of gentiles</b> that were used for idol worship <b>in a time of</b> religious <b>persecution,</b> when gentiles decreed that Jews must engage in idol worship. During a time of religious persecution, one is required to sacrifice his life rather than transgress the prohibition against engaging in idolatrous worship even in private. Therefore, <b>even though the</b> religious <b>persecution</b> was <b>canceled,</b> the status of <b>those platforms is not revoked</b> and they remain forbidden, despite the fact that the idol worship was performed under duress.
+
+### Part 7
+Rava <b>said to</b> the Rabbis: <b>If</b> one wishes to support my opinion <b>due to that</b> <i>baraita</i>, <b>you cannot support my</b> opinion, as one can <b>say</b> that perhaps <b>there was an apostate Jew</b> there <b>and he worshipped</b> the idol <b>willingly,</b> and therefore the platforms are forbidden. <b>Rav Ashi says: Do not say</b> that one can <b>say</b> it is a possibility; <b>rather,</b> it is <b>certain</b> that <b>there was an apostate Jew</b> there <b>and he worshipped it willingly.</b>
+
+### Part 8
+<b>Ḥizkiyya says:</b> The contradiction between the <i>baraitot</i> with regard to an animal that was worshipped can be reconciled differently. The <i>baraita</i> that indicates that one who worships the animal of another renders it forbidden is referring to a case <b>where in idolatrous worship</b> one <b>poured</b> a libation of <b>wine on the horns of</b> an animal belonging to another. Since a sacrificial rite was performed upon the animal itself, it is forbidden. <b>Rav Adda bar Ahava objects to this: Is this</b> a case of an animal <b>that was worshipped? This</b> animal <b>is a mere platform,</b> i.e., it serves merely as an altar, <b>and</b> it is <b>permitted.</b>
+
+### Part 9
+<b>Rather, Rav Adda bar Ahava says:</b> That <i>baraita</i> is referring to a case <b>where</b> he <b>poured</b> a libation of <b>wine in</b> worship of the animal <b>between its horns.</b> In this case one renders another’s animal forbidden, <b>as he performed</b> a sacrificial <b>rite upon</b> the animal itself. <b>And</b> this is <b>similar to that</b> which Ulla stated, <b>as Ulla came</b> from Eretz Yisrael and said that <b>Rabbi Yoḥanan says: Even though</b> the Sages <b>said</b> that <b>one who bows to the animal of another</b> person <b>does not render it prohibited,</b> if he <b>performed</b> a sacrificial <b>rite upon it he rendered it prohibited.</b>
+
+### Part 10
+<b>Rav Naḥman said to</b> the Rabbis: <b>Go out and say to Ulla:</b> This is not a novel concept, as <b>Rav Huna already interpreted the <i>halakha</i> that you</b> stated <b>in Babylonia.</b> This is <b>as Rav Huna says:</b> In a case where <b>the animal of another</b> person <b>was lying down before</b> an object of <b>idol worship, once</b> one <b>cut one of the organs that must be severed in ritual slaughter,</b> i.e., either the windpipe or the gullet <b>[<i>siman</i>], he rendered it prohibited,</b> as he performed a sacrificial rite upon the animal.
+
+### Part 11
+The Gemara asks: <b>From where do we</b> derive <b>that he rendered it prohibited? If we say</b> that it is derived <b>from</b> the <i>halakha</i> that <b>priests</b> who engaged in idol worship are disqualified from serving in the Temple, even if they did so under duress, <b>perhaps</b> the case of <b>priests is different, as they possess awareness</b> and are responsible for their actions.
+
+### Part 12
+<b>But rather,</b> perhaps it is derived <b>from</b> the <b>stones of</b> the <b>altar</b> that were rendered forbidden by the Greeks, even though the stones were not theirs. The Gemara rejects this suggestion: <b>But perhaps</b> the reason the stones of the altar were prohibited is different, <b>as</b> explained by the statement <b>of Rav Pappa</b> (52b), that when the Greeks entered the Temple it was defiled and became theirs. One therefore cannot derive from that case that one can render the property of another person forbidden.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

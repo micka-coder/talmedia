@@ -1,0 +1,48 @@
+
+### Part 1
+it is referring to a case where it is <b>before</b> the owners have <b>despaired</b> of retrieving their property. Consequently, the heirs have not acquired the stolen property, and it must be returned.
+
+### Part 2
+<b>Rav Adda bar Ahava teaches that</b> statement <b>of Rami bar Ḥama</b> cited above <b>with regard to this</b> <i>baraita</i>: If <b>their father left them money</b> that he obtained by taking <b>interest,</b> which is prohibited, <b>even if they are aware that</b> the money <b>is</b> from <b>interest, they are not obligated to return</b> the money to the debtor who paid it. <b>Rami bar Ḥama said: That is to say</b> that <b>the domain of an heir is comparable to the domain of a purchaser,</b> and because the money has changed domains, the heirs have acquired it.
+
+### Part 3
+<b>Rava said: Actually, I will say to you</b> that <b>the domain of an heir is not comparable to the domain of a purchaser. And</b> the reason they do not have to return the money is because <b>it is different here, as the verse states: “Take no interest of him or increase,</b> but fear your God, that your brother may live with you” (Leviticus 25:36), which teaches that you must <b>return</b> the interest <b>to him so that he may live with you.</b> Since the interest is returned for this reason and not because it is considered stolen goods, it is apparent that <b>the Merciful One is cautioning him,</b> the lender, to return it, but <b>the Merciful One is not cautioning his son</b> to return it.
+
+### Part 4
+The Gemara points out: <b>The one who teaches</b> Rami bar Ḥama’s statement <b>with regard to the <i>baraita</i>,</b> i.e., Rav Adda bar Ahava, <b>all the more so</b> would apply it <b>to the mishna,</b> since there is no other explanation for why the heirs are exempt from payment. Conversely, according to <b>the one who teaches</b> Rami bar Ḥama’s statement <b>with regard to the mishna,</b> it is limited to that case. <b>But with regard to the <i>baraita</i>,</b> he holds that <b>Rami bar Ḥama teaches it as</b> explained by <b>Rava,</b> that the heirs are not exempt from payment because the domain of an heir is comparable to the domain of a purchaser, but rather because heirs are never required to return interest.
+
+### Part 5
+§ <b>The Sages taught</b> in a <i>baraita</i> (<i>Tosefta</i> 10:21): With regard to <b>one who robs</b> another of food <b>and feeds</b> it to <b>his children,</b> the children <b>are exempt from paying</b> the owner. In a case where <b>he left</b> the stolen items <b>to them</b> as an inheritance, if the heirs are <b>adults they are obligated to pay,</b> and if they are <b>minors they are exempt from paying. If the adult</b> heirs <b>said: We do not know</b> what <b>calculations our father made with you</b> and whether he paid you for the stolen goods, <b>they are exempt.</b>
+
+### Part 6
+The Gemara expresses surprise: <b>Because they say: We do not know,</b> they are <b>exempt?</b> Since it is clear that they are in possession of stolen property, how can they be exempt due to the uncertain claim that perhaps their father repaid the owner after the theft? <b>Rava said</b> that the heirs are certain about their claim and that the <i>baraita</i> should be formulated differently, and <b>this is</b> what the <i>baraita</i> <b>is saying:</b> In the case of <b>adult</b> heirs <b>who said</b> to the claimant: <b>We know the calculations our father made with you and there is nothing of yours left with him,</b> as he paid his debt to you, they <b>are exempt.</b>
+
+### Part 7
+It <b>is taught</b> in <b>another</b> <i>baraita</i>: With regard to <b>one who robs</b> another of food <b>and feeds</b> it to <b>his children,</b> the children <b>are exempt from paying.</b> If <b>he left</b> stolen items <b>to them</b> as an inheritance <b>and they consumed them, whether they are adults or minors, they are obligated</b> to pay the owner. The Gemara asks: Are <b>minors obligated</b> to pay? <b>Let</b> it <b>be only</b> like a case <b>where one caused damage,</b> and a minor who causes damage is exempt. <b>Rav Pappa said</b> that the <i>baraita</i> should be formulated differently, and <b>this is</b> what the <i>baraita</i> <b>is saying:</b> If <b>he left</b> the stolen items <b>to them</b> as an inheritance <b>and they did not yet consume them, whether they are adults or minors, they are obligated</b> to return the stolen items, since the items are still extant.
+
+### Part 8
+<b>Rava says:</b> In the case of children whose <b>father</b> died and <b>left them a cow</b> that he had <b>borrowed, they may use it for the entire duration of its loan.</b> Nevertheless, if it <b>died, they are not liable</b> to pay if its death was caused by <b>an unavoidable accident,</b> despite the fact that a borrower is liable for damage caused by an unavoidable accident. This is because liability for accidental damage pertains only to the actual borrower, i.e., the deceased father. If the children <b>thought that it</b> actually <b>belonged to their father and they slaughtered it and ate it, they</b> are liable to <b>pay</b> the owner <b>the value of inexpensive meat.</b> Rava adds: If <b>their father left them guaranteed property,</b> i.e., land, <b>they are liable to pay.</b>
+
+### Part 9
+The Gemara comments: <b>Some teach this</b> final statement of Rava <b>with regard to the first clause,</b> which states that the heirs are exempt from payment for accidental damage. According to this interpretation, if the father left them land, they are obligated to pay for the cow if it dies due to unavoidable accident. <b>And some teach it with regard to the latter clause,</b> which states that heirs who slaughter and consume a cow must pay the owner the value of inexpensive meat. According to this interpretation, if the father left them land, they must pay for the full value of the cow.
+
+### Part 10
+<b>The one who teaches it with regard to the first clause</b> holds it to be true <b>all the more so with regard to the latter clause,</b> where the heirs actually consumed the meat themselves. <b>And,</b> accordingly, this understanding <b>differs</b> with the forthcoming opinion <b>of Rav Pappa.</b> By contrast, <b>the one who teaches it with regard to the latter clause</b> holds it to be true in that clause exclusively, <b>but with regard to the first clause,</b> it is <b>not</b> true. <b>And this is</b> consistent with the forthcoming opinion of <b>Rav Pappa.</b>
+
+### Part 11
+<b>As Rav Pappa says:</b> If <b>he had a stolen cow</b> in his possession, <b>and he slaughtered it on Shabbat,</b> he is <b>liable</b> to pay <b>because he was already rendered liable</b> for the <b>theft before he came to</b> transgress the <b>Shabbat prohibition</b> of slaughtering an animal on Shabbat. But if <b>he had a borrowed cow</b> in his possession <b>and he slaughtered it on Shabbat,</b> he is <b>exempt</b> from payment, <b>as</b> the transgression of <b>the Shabbat prohibition</b> of slaughtering an animal on Shabbat <b>and the prohibition against theft</b> occur <b>as one,</b> as the act of slaughter is tantamount to the theft of the animal. This indicates that according to Rav Pappa, a borrower’s liability to pay for accidental damage is initiated only when the damage is inflicted. Accordingly, in the case discussed by Rava, since the damage was not inflicted during the father’s lifetime, the deceased’s property was never liened to the cow’s owner, and consequently the heirs are not obligated to pay for any accidental damage.
+
+### Part 12
+After having cited two <i>baraitot</i> that express different opinions with regard to the obligation of heirs to pay for property stolen by their deceased father, the Gemara cites a third <i>baraita</i> that presents both opinions. <b>The Sages taught</b> with regard to the verse: “Then it shall be, if he has sinned, and is guilty, <b>that he shall restore the item that he robbed”</b> (Leviticus 5:23); <b>what</b> is the meaning when <b>the verse states “that he robbed”?</b> It means that the robber must <b>return the same</b> item <b>that he robbed.</b>
+
+### Part 13
+<b>From here,</b> based on this exposition, the Sages <b>stated:</b> In a case of <b>one who robs</b> another of food <b>and feeds</b> it to <b>his children,</b> the children are <b>exempt from paying</b> the owner. If <b>he left</b> stolen goods <b>to them</b> as an inheritance, <b>whether they are adults or minors, they are obligated</b> to return the stolen goods. <b>They said in the name of Sumakhos:</b> If the heirs are <b>adults</b> they <b>are obligated,</b> but if they are <b>minors</b> they <b>are exempt.</b>
+
+### Part 14
+The Gemara recounts a related incident: <b>The son of Rabbi Yirmeya’s father-in-law,</b> i.e., his wife’s brother, who was a minor, <b>shut the doors</b> of his father’s house <b>before Rabbi Yirmeya</b> in order to prevent Rabbi Yirmeya from establishing legal possession of the house or a chamber that he claimed belonged to him. Rabbi Yirmeya <b>came before Rabbi Avin</b> to file a legal claim against his brother-in-law.
+
+### Part 15
+Rabbi Avin <b>said</b> to Rabbi Yirmeya: Your brother-in-law is <b>claiming</b> ownership of that which is <b>his,</b> since he retains the presumptive ownership of his father’s house upon his father’s death. Rabbi Yirmeya <b>said to him: But I can bring witnesses who can testify that I took possession of it during his father’s lifetime.</b> Rabbi Avin <b>said to him: But does</b> the court <b>accept witnesses</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

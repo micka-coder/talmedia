@@ -1,0 +1,54 @@
+
+### Part 1
+<b>Rav Shmuel bar Abba went before Rabbi Yirmeya bar Abba</b> to claim his mother’s property. Rabbi Yirmeya <b>established him</b> as the owner <b>of the property,</b> in accordance with what was written in the document. <b>Rabbi Abba,</b> the mother’s husband, <b>went</b> and <b>said</b> a report of <b>the matter before Rav Hoshaya. Rav Hoshaya went</b> and <b>said</b> a report of the matter <b>before Rav Yehuda.</b> Rav Yehuda <b>said to</b> Rav Hoshaya: <b>This</b> is what <b>Shmuel says:</b> In a case of <b>a woman who sold her usufruct property,</b> which belongs to her but whose profits her husband garners, <b>in her husband’s lifetime, and</b> then she <b>died, the husband repossesses</b> the property <b>from the purchasers.</b> The granting of her property by means of the document is analogous to a sale, and Rabbi Abba can repossess the property from Rav Shmuel bar Abba.
+
+### Part 2
+The Sages <b>said that</b> <i>halakha</i> <b>before Rabbi Yirmeya bar Abba,</b> who had ruled that the property belongs to Rav Shmuel bar Abba. <b>He said to them: I know the mishna</b> that supports my opinion, <b>as we learned</b> in a mishna (<i>Bava Batra</i> 136a): In the case of <b>one who writes</b> a document transferring ownership of <b>his property to his son,</b> stating that the transfer should take effect immediately but the son will have use of it only <b>after</b> the father’s <b>death, the son cannot sell</b> the property <b>due to</b> the fact <b>that it is</b> still <b>in the father’s possession. And the father,</b> even though he retained the right to use the property, <b>cannot sell</b> the property <b>due to</b> the fact <b>that it is written</b> as belonging <b>to the son.</b> If <b>the father sold</b> the property, then <b>it is sold</b> to the extent that the purchaser may use it <b>until</b> the father <b>dies.</b> If <b>the son sold</b> the property during his father’s lifetime, <b>the purchaser does not have</b> the right to use the property <b>until the father dies.</b>
+
+### Part 3
+Rabbi Yirmeya bar Abba infers: <b>In any event,</b> if the son sold the property during his father’s lifetime, <b>when the father dies the purchaser has</b> rights to the property. <b>And</b> this would be so <b>even though</b> it is a case <b>where the son died in the father’s lifetime, where</b> the property <b>never came into the son’s possession.</b>
+
+### Part 4
+Rabbi Yirmeya bar Abba’s analysis is <b>in accordance with</b> the opinion of <b>Rabbi Shimon ben Lakish, who says:</b> There is <b>no difference</b> if <b>the son died in the father’s lifetime, where</b> the property <b>never came into the son’s possession,</b> and there is <b>no difference</b> if <b>the father died in the son’s lifetime, where the</b> property <b>came into the son’s possession.</b> In any event, <b>the purchaser acquired</b> the property.
+
+### Part 5
+The Gemara records a dispute between the <i>amora’im</i> with regard to this point. <b>As was stated:</b> In a case where <b>the son sold</b> the property <b>in the father’s lifetime, and the son died in the father’s lifetime, Rabbi Yoḥanan says: The purchaser did not acquire</b> the property. <b>Reish Lakish says: The purchaser acquired</b> the property.
+
+### Part 6
+The Gemara explains the opinion of Rabbi Yoḥanan. <b>Rabbi Yoḥanan says: The purchaser did not acquire</b> the property, because he could have <b>said to you: When the mishna teaches</b> that if <b>the son sold</b> the property during his father’s lifetime <b>the purchaser does not acquire</b> any rights to use the property <b>until the father dies, and</b> one could infer that <b>when the father dies the purchaser has</b> rights to the property, the mishna is discussing a case <b>where the son did not die during the father’s lifetime,</b> so <b>that</b> the property <b>came into the son’s possession</b> upon the father’s death, before the purchaser acquired it. <b>But</b> if <b>the son died in the father’s lifetime,</b> so <b>that</b> the property <b>did not come into the son’s possession,</b> then <b>even when the father dies the purchaser does not have</b> rights to the property.
+
+### Part 7
+The Gemara comments: <b>Apparently,</b> Rabbi Yoḥanan <b>holds</b> that <b>ownership of</b> the rights to use an item and to <b>its produce is considered to be like ownership of the item itself.</b> Even though the property itself did not belong to the father, it is as though the father owned the property, because all of the produce belonged to him in practice. Therefore, <b>when</b> the son <b>sold</b> the property, <b>he sold</b> property <b>that did not belong to him.</b>
+
+### Part 8
+The Gemara explains the opinion of Rabbi Shimon ben Lakish: <b>Rabbi Shimon ben Lakish says</b> that the <b>purchaser acquired</b> the property based on this claim: <b>When the mishna teaches</b> that if <b>the son sold</b> the property during his father’s lifetime <b>the purchaser does not have</b> any right to use the property <b>until the father dies,</b> and one could infer that <b>in any event, when the father dies the purchaser has</b> rights to the property, the mishna means that there is <b>no difference</b> if <b>the son did not die in the father’s lifetime, where the</b> property <b>came into the son’s possession, and</b> there is <b>no difference</b> if <b>the son died in the father’s lifetime, where the</b> property <b>did not come into the son’s possession.</b> In either case, the <b>purchaser acquired</b> the property.
+
+### Part 9
+The Gemara comments: <b>Apparently,</b> Rabbi Shimon ben Lakish <b>holds</b> that <b>ownership of</b> the rights to use an item and to <b>its produce is not considered to be like ownership of the item itself. And</b> therefore <b>when</b> the son <b>sold</b> the property, <b>he sold</b> property <b>that belonged to him.</b>
+
+### Part 10
+The Gemara returns to the discussion of the opinion of Rabbi Yirmeya bar Abba. <b>And now</b> for <b>us, whether</b> if one discusses the opinion of <b>Rabbi Yirmeya bar Abba and whether</b> one discusses the opinion of <b>Rav Yehuda, they</b> both <b>hold in accordance with</b> the opinion of <b>Rabbi Shimon ben Lakish,</b> that ownership of the rights to use an item and to its produce is not considered to be like ownership of the item itself. <b>And Rabbi Yirmeya bar Abba says: If</b> it <b>enters your mind</b> that <b>ownership of</b> the rights to use an item and to <b>its produce is considered to be like ownership of the item itself,</b> then <b>when the father dies and the son</b> had <b>died in the father’s lifetime, why does the purchaser have</b> rights to the property? <b>When</b> the son <b>sold</b> it, <b>didn’t he sell</b> property <b>that did not belong to him?</b>
+
+### Part 11
+<b>Rather, isn’t it</b> correct to <b>conclude from</b> the mishna that <b>ownership of</b> the rights to use an item and to <b>its produce is not considered to be like ownership of the item itself?</b> Therefore, Rav Shmuel bar Abba should receive the property transferred to him by his mother, as the fact that the husband owned the rights to its produce does not limit her ability to transfer her property to her son.
+
+### Part 12
+The Sages <b>brought back</b> Rabbi Yirmeya bar Abba’s reply <b>before Rav Yehuda.</b> Rav Yehuda <b>said to them: This is</b> what <b>Shmuel said: This</b> <i>halakha</i>, that a husband can repossess the property that his wife sold before she died, <b>is not similar to</b> the <i>halakha</i> of <b>our mishna</b> concerning a father who transfers his property to his son while retaining the right to garner the profits.
+
+### Part 13
+The Gemara asks: <b>What is the reasoning</b> for distinguishing between the two cases? <b>Rav Yosef said: Granted, if</b> the mishna had <b>taught the opposite</b> and stated that in the case of <b>one who writes</b> a document transferring ownership of <b>his property to his father</b> after his death, with the son retaining the right to garner the profits until then, and the father sold the property during his son’s lifetime, the purchaser has rights to the property after the son dies, then <b>it is</b> possible <b>to resolve from</b> the mishna <b>that ownership of</b> the rights to use an item and to <b>its produce is not considered to be like ownership of the item itself.</b>
+
+### Part 14
+Rav Yosef continues: <b>But now that</b> the mishna <b>teaches</b> specifically: <b>One who writes</b> a document transferring ownership of <b>his property to his son,</b> the ability of the son to sell the property is <b>due to</b> the fact <b>that</b> the son <b>is fit to inherit</b> from <b>him</b> and already has a right to the property, and not just due to the existence of the document. In the case of Rav Shmuel bar Abba as well, the woman’s property is inherited by her husband, not her son, so she cannot transfer it to Rav Shmuel bar Abba.
+
+### Part 15
+<b>Abaye said to</b> Rav Yosef: <b>Is this to say that a son inherits</b> from <b>a father,</b> but <b>a father does not inherit</b> from <b>a son?</b> There is no difference between their rights to inherit from one another. <b>Rather,</b> even if the mishna taught a <i>halakha</i> concerning a son transferring his property to his father, the son’s reason for doing so could have been that <b>he comes to hide his property from his</b> own <b>son</b> and wants his father to inherit from him instead. <b>Here too,</b> when a father transfers his property to his son, <b>he comes to hide his property from</b> the son’s <b>brothers,</b> as the father has other sons but does not want them to inherit from him. Therefore, the mishna’s choice of case cannot serve as a basis for inference.
+
+### Part 16
+Abaye continues: <b>Rather, what</b> was Shmuel’s reason for saying that the right of a husband to the property that his wife sold before she died <b>is not similar to our mishna</b> that states that a father does not have rights to property sold by his son? The difference is <b>due to</b> the rabbinic <b>ordinance of Usha,</b> an ordinance instituted with regard to a husband’s rights to his wife’s property. <b>As Rabbi Yosei bar Ḥanina says: In</b> the town of <b>Usha</b> the Sages <b>instituted</b> that in the case of <b>a woman who sold her usufruct property in her husband’s lifetime and</b> then <b>died, the husband repossesses</b> it <b>from the purchasers.</b> This ordinance was instituted only for the benefit of a husband, but not for the benefit of a father or son.
+
+### Part 17
+<b>Rav Idi bar Avin said: We too learn</b> of the ordinance of Usha in the <i>baraita</i>: If witnesses said: <b>We testify about so-and-so that he divorced his wife and gave</b> her the full value of the obligations recorded in <b>her marriage contract,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

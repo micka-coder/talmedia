@@ -1,0 +1,54 @@
+
+### Partie 1
+<b>La mishna est egalement formulee de maniere precise</b> puisqu'elle indique que <b>Rabbi Meir dit : Puisqu'il a ete abattu non selon</b> la decision de <b>un expert,</b> il est <b>interdit. Concluez de</b> cette formulation que <b>Rabbi Meir le penalise</b> pour ne pas l'avoir montre a un expert. En d'autres termes, cela indique que l'animal est considere comme interdit a titre de sanction. Cela n'est pas du a une quelconque incertitude, car les taches sur le corps ne changent pas apres la mort, mais cela est du a un decret rabbinique. La Guemara commente : <b>Concluez-en</b> que la mishna doit etre comprise comme Rabba bar bar Hana l'a explique.
+
+### Partie 2
+<b>Un dilemme a ete souleve devant</b> les Sages : Le <i>baraita</i> declare : <b>En raison</b> des imperfections de la cornee, <b>qui changent. Mais</b> cela signifie-t-il que <b>toutes</b> les taches <b>sur</b> la cornee de l'œil changent definitivement</b> apres la mort de l'animal ? <b>Ou peut-etre y en a-t-il</b> certaines <b>qui changent</b> apres la mort <b>et il y en a</b> d'autres <b>qui ne changent pas.</b>
+
+### Partie 3
+La Gemara demande : <b>Quelle est la</b> <b>difference</b> pratique de ce dilemme ? La Guemara explique : La difference se situe <b>en ce qui concerne les temoins contradictoires</b> qui affirment que l'animal avait les memes tares a l'œil lorsqu'il etait vivant. <b>Si l'on dit</b> que <b>toutes</b> les cornees <b>changent</b> apres la mort de l'animal, <b>ils sont menteurs. Mais si vous dites</b> que <b>il y en a</b> qui changent</b> apres la mort <b>et il y en a</b> d'autres <b>qui ne changent pas,</b> le tribunal <b>se fie</b> a de tels temoins. Par consequent, <b>quelle</b> est la resolution du dilemme ?
+
+### Partie 4
+La Gemara repond : <b>Venez</b> et <b>entendez</b> un <i>baraita</i>, <b>comme le dit Rabba bar Hana : Rabbi Yoshiya de Usha m'a dit : Viens, je vais te montrer les cornees qui changent. Comme il lui a dit : Viens et je te montrerai</b> ceux qui changent, on peut conclure <b>par deduction qu'il y a</b> des cornees <b>qui changent</b> apres la mort <b>et qu'il y a</b> d'autres <b>qui ne changent pas.</b>
+
+### Partie 5
+§ La mishna enseigne : Dans un cas impliquant <b>une personne qui n'est pas un expert, et qu'il a examine l'animal premier-ne</b> <b>et qu'il a ete abattu sur la base de sa</b> decision, <b>cet</b> animal <b>doit etre enterre,</b> et le non-expert <b>doit payer</b> une compensation au pretre <b>a partir de ses biens.</b> La Gemara demande : <b>Devons-nous dire</b> que <b>nous avons appris</b> la mishna <b>non attribuee</b> <b>conformement</b> a l'avis de <b>Rabbi Meir,</b> qui considere qu'un animal premier-ne est interdit dans tous les cas ou il n'a pas ete abattu sur la base de la decision d'un expert ? La Guemara rejette cette suggestion : Non ; <b>peut-etre</b> cela fait reference uniquement a un cas ou il y avait une tare sur <b>la cornee de l'œil,</b> qui change apres la mort de l'animal, <b>et tout le monde est d'accord</b> avec la decision de la mishna dans un tel cas.
+
+### Partie 6
+§ Les Sages ont <b>enseigne</b> dans une <i>baraita</i> : <b>Lorsqu'on paie</b> le pretre pour un premier-ne devenu interdit, <b>on paie un quart de</b> la valeur d'un <b>petit</b> animal, c'est-a-dire un mouton ou une chevre, <b>ou la moitie de</b> la valeur d'un <b>grand</b> animal, c'est-a-dire un taureau. La Gemara demande : <b>Quelle est la raison</b> de cette divergence ? <b>Rav Pappa repond :</b> La perte de <b>cette</b> taureau <b>est</b> une perte relativement <b>grande, et</b> la perte de <b>cette</b> brebis ou chevre <b>est une petite perte.</b>
+
+### Partie 7
+La Guemara souleve une difficulte : <b>Si c'est le cas, qu'il paie en fonction de la</b> <b>perte reelle</b> subie. En d'autres termes, s'il payait la meme proportion de la valeur d'un mouton ou d'une chevre, il paierait toujours moins de la moitie de la valeur d'un taureau. <b>Rav Huna bar Manoah dit au nom du Rav Aha bar Ika:</b> Les Sages <b>y ont touche</b> et ont determine qu'il ne devait payer qu'un quart, <b>en raison du decret</b> contre ceux qui <b>elevaient du petit betail</b> en Eretz Yisrael, car ces animaux causent des dommages a la terre. Par consequent, ces animaux ne peuvent etre eleves que dans des zones specifiques, ce qui signifie que le pretre a ete epargne d'un effort, et les Sages ont donc exige que l'on ne paie qu'un quart de la valeur.
+
+### Partie 8
+mishna Si un juge <b>emet un jugement</b> et commet une erreur, de sorte qu'il <b>exempte une partie responsable</b> ou <b>trouve une partie innocente</b> <b>responsable, </b> ou s'il a <b>juge</b> qu'une chose pure</b> est <b>impure</b> ou <b>juge</b> qu'une chose impure</b> est <b>pure,</b> et que, ce faisant, il a cause une perte pecuniaire a un plaideur, alors <b>ce qu'il a fait est fait,</b> c'est-a-dire que... e., le jugement est maintenu, <b>et</b> le juge <b>doit payer</b> les dommages et interets <b>de sa maison,</b> c'est-a-dire de ses fonds personnels. <b>Et si</b> le juge <b>etait un expert pour</b> le <b>court,</b> il est <b>exempte de</b> responsabilite <b>de payer.</b>
+
+### Partie 9
+Guemara La mishna enseigne qu'un juge qui commet une erreur doit payer une compensation pour le dommage qu'il a cause. La Gemara suggere : <b>Devons-nous dire</b> que <b>nous avons appris</b> la mishna <b>non attribuee</b> <b>conformement</b> a l'opinion de <b>Rabbi Meir, qui statue</b> qu'il y a <b>responsabilite</b> pour les dommages causes par une action <b>indirecte</b> ? <b>Rabbi Ileâ dit</b> que <b>Rav dit :</b> Cela fait reference a un cas <b>ou</b> un juge <b>a pris</b> l'objet en question d'un plaideur <b>et l'a donne</b> a l'autre plaideur <b>avec</b> sa <b>main,</b> et donc il a directement cause le dommage.
+
+### Partie 10
+La Gemara souleve une difficulte : <b>Grace,</b> le cas ou il <b>determine une partie innocente</b> <b>responsable</b> est dans un cas <b>ou</b> le juge <b>a pris</b> l'objet en question de la partie innocente <b>et l'a donne</b> a l'autre plaideur <b>avec</b> sa <b>main. Mais quelles sont les circonstances</b> de sa remise de l'objet de l'un a l'autre au regard de la clause de : <b>Il exonere une partie responsable</b> ? C'est <b>si</b> le juge <b>dit au</b> plaideur seulement : <b>Vous etes exempte</b> de l'obligation de payer, <b>mais</b> le juge n'a pas pris</b> l'objet en question d'un plaideur <b>pour le donner</b> a l'autre plaideur <b>avec</b> sa <b>main. Ravina a dit :</b> Il fait reference a un cas <b>ou</b> le preteur <b>avait une garantie</b> de l'emprunteur, <b>et</b> le juge <b>l'a prise de lui</b> et l'a rendue a l'autre partie.
+
+#### Partie 11
+Dans l'affaire de : Il <b>a juge</b> qu'un objet pur</b> est <b>impur,</b> comment pourrait-il causer une perte de ses propres mains ? C'est <b>la ou il a <b>fait</b> l'objet rituellement pur du justiciable <b>toucher un animal rampant</b> pour souligner qu'il estime qu'il etait deja impur, et qu'il lui a ainsi communique l'impurete. Dans le cas de : Il <b>decide</b> qu'un objet impur</b> est <b>pur,</b> comment pourrait-il causer une perte de ses propres mains ? C'est <b>la ou</b> il a <b>melange</b> ce produit impur du justiciable <b>avec</b> le justiciable <b>produit rituellement pur,</b> et il a ainsi fait en sorte que tout le produit soit considere comme impur. Lorsqu'un juge expert decide plus tard que ce produit est effectivement impur, le resultat est que l'ensemble du melange contient des produits impurs, et le juge a cause ce dommage directement.
+
+### Partie 12
+<strong>MISHNA:</strong> A propos de la mishna precedente, qui enseignait qu'un juge qui etait un expert pour le tribunal et qui a commis une erreur est exempt de paiement, cette mishna enseigne : Il y eut <b>un incident impliquant une vache dont on a retire l'uterus,</b> et lorsque Rabbi Tarfon fut consulte, il statua qu'il s'agit d'un animal avec une blessure qui le fera mourir dans les douze mois [<i>tereifa</i>], ce qui est interdit a la consommation. <b>Et</b> sur la base de la decision de <b>Rabbi Tarfon,</b> le questionneur <b>l'a donne aux chiens. Et l'incident est arrive devant les Sages</b> du tribunal <b>de Yavne, et ils ont juge</b> qu'un tel animal est <b>permis</b> et n'est pas une <i>tereifa</i>.
+
+### Partie 13
+<b>Et Theodose [<i>Todos</i>] le medecin a dit : Une vache ou un cochon n'emerge pas d'Alexandrie d'Egypte a moins que</b> les habitants <b>severent son ventre pour qu'il ne mette pas bas</b> a l'avenir. Les races de vaches et de porcs d'Alexandrie etaient d'une qualite exceptionnelle et les habitants d'Alexandrie ne voulaient pas qu'elles soient reproduites ailleurs. Le fait que ces animaux aient vecu longtemps apres l'ablation de leur uterus prouve que l'hysterectomie ne les a pas rendus <i>tereifot</i>.
+
+### Partie 14
+En entendant cela, <b>Rabbi Tarfon dit : Ton ane est parti, Tarfon,</b> car il croyait devoir dedommager le proprietaire pour la vache qu'il jugeait etre une <i>tereifa</i>. <b>Rabbi Akiva lui dit : Rabbi Tarfon, vous etes un expert pour</b> le <b>court, et tout expert pour</b> le <b>court est exempt de</b> responsabilite <b>de payer.</b>
+
+### Partie 15
+<strong>GEMARA:</strong> La Gemara demande : <b>Mais laissons</b> Rabbi Akiva <b>deriver</b> sa decision du fait <b>que</b> Rabbi Tarfon <b>a delibere a propos d'une question</b> qui figure dans la <b>Mishna,</b> car la decision autorisant un animal dont l'uterus a ete retire est consignee dans une mishna (voir <i>Hullin</i> 54a), <b>et</b> en ce qui concerne celui qui a <b>reflechi a propos d'une question</b> qui figure dans la <b>Mishna,</b> la decision <b>est revoquee,</b> car cela est considere comme une erreur evidente. En d'autres termes, la decision de Rabbi Tarfon n'etait pas contraignante, et par consequent, lorsque le proprietaire a donne la vache a manger aux chiens, il a agi sur la base d'une decision sans validite et a ainsi cause sa propre perte.
+
+### Partie 16
+La Guemara repond : Rabbi Akiva <b>enonce une</b> raison <b>et</b> ajoute <b>une autre</b> raison. <b>Une</b> raison est que dans le cas de celui <b>qui commet une erreur dans une matiere</b> qui figure dans la <b>Mishna,</b> la decision est <b>revoquee. Une autre</b> raison est que <b>meme si vous avez erre dans une deliberation, vous etes</b> un juge accepte comme <b>expert pour le public, et tout</b> juge accepte comme <b>expert pour le public</b> est <b>exempte de</b> responsabilite <b>de payer.</b>
+
+### Partie 17
+<strong>MISHNA :</strong> Dans le cas d'un individu <b>qui se fait payer pour etre celui qui examine les animaux premier-ne</b> pour determiner s'ils sont taches, <b>on ne peut pas abattre</b> le premier-ne <b>sur la base de sa</b> decision, <b>a moins qu'il n'ait ete un expert</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

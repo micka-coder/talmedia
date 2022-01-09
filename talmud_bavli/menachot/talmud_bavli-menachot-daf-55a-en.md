@@ -1,0 +1,39 @@
+
+### Part 1
+<b>and by thought. And</b> this comparison also teaches that <b>just as</b> in the case of <b>standard <i>teruma</i></b> one should give <b>generously, so too,</b> with regard to <b><i>teruma</i> of the tithe</b> one should give <b>generously.</b> Therefore, one who separates <i>teruma</i> of the tithe from fresh figs for dried figs should do so generously, e.g., ten fresh figs for ninety dried ones, as though the volume of the dried figs was as large as that of fresh ones.
+
+### Part 2
+The Gemara suggests: <b>And from this</b> statement of Rabbi Elazar, son of Rabbi Yosei, one can cite a proof for the opinion that food is to be measured in accordance with its initial size. As <b>Rabbi Elazar, son of Rabbi Yosei, said: Father would set aside ten dried figs that</b> were <b>in a vessel for ninety</b> fresh figs <b>that</b> were <b>in a basket. Granted, if you say</b> that <b>we say</b> one measures food items <b>as they were</b> initially, it is <b>well,</b> as Rabbi Yosei apparently considers the dried figs set aside as tithes as though they were still fresh figs. <b>But if you say</b> that one measures foods <b>as they are</b> in their current state, then in a case where one separates ten dried figs for ninety fresh figs <b>they are less</b> than the requisite amount, as the volume of ten dried figs is less than the volume of ten fresh figs. This indicates that the measure of the food is determined according to its initial state.
+
+### Part 3
+The Gemara answers that one cannot extrapolate from the example of dried figs to other cases. <b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, he said that <b>Rabbi Elazar says</b> the following reason for that particular <i>halakha</i>: <b>Dried figs are different, since one can boil</b> dried figs in water <b>and return them to</b> their previous state; in other words, <b>as they were</b> when they were fresh. Consequently, one may separate them for fresh figs as though they too were fresh. One cannot extrapolate from here a principle with regard to other items.
+
+### Part 4
+§ The Gemara discusses the possibility of separating fresh figs as <i>teruma</i> for dried ones. <b>The Sages taught</b> in a <i>baraita</i>: <b>One may separate <i>teruma</i></b> from fresh <b>figs for dried figs</b> by number, e.g., ten fresh figs for ninety dried ones, <b>in a place where they are accustomed to make</b> fresh <b>figs</b> into <b>dried figs,</b> and therefore the fresh figs can be preserved by processing them into dried figs. <b>But</b> one may <b>not</b> set aside <i>teruma</i> from <b>dried figs for</b> fresh <b>figs even in a place where they are accustomed to make</b> fresh <b>figs</b> into <b>dried figs.</b>
+
+### Part 5
+The Gemara analyzes this <i>baraita</i>. <b>The Master said: One may separate <i>teruma</i></b> from fresh <b>figs for dried figs in a place where they are accustomed to make</b> fresh <b>figs</b> into <b>dried figs.</b> This indicates that <b>in a place where they are accustomed</b> to make dried figs, <b>yes,</b> one may set aside <i>teruma</i> in this manner. But <b>in a place where they are not accustomed</b> to make dried figs, one may <b>not</b> separate from fresh figs for dried ones, as the fresh figs are liable to spoil before they can be used.
+
+### Part 6
+The Gemara asks: <b>What are the circumstances</b> of this case? <b>If</b> it is referring to a situation <b>where there is a priest</b> present, and the owner of the produce can give him the <i>teruma</i> without delay, then even in <b>a place where he is not accustomed</b> to make dried figs, <b>why</b> may he <b>not</b> set aside fresh figs for dried ones? <b>But didn’t we learn</b> in a mishna (<i>Terumot</i> 2:4): In <b>a place where there is a priest</b> present, the owner of the produce <b>separates <i>teruma</i> from the</b> best-quality produce? In this case, the fresh figs are superior in quality to the dried ones, despite the fact that dried figs last longer.
+
+### Part 7
+<b>Rather,</b> it is <b>obvious</b> that the <i>baraita</i> is referring to a situation <b>where there is no priest</b> present, and by the time a priest is found the fresh figs might spoil. If so, <b>say the latter clause</b> of that <i>baraita</i>: <b>But</b> one may <b>not</b> set aside <i>teruma</i> from <b>dried figs for</b> fresh <b>figs even in a place where they are accustomed to make</b> fresh <b>figs</b> into <b>dried figs. And if</b> this is referring to a situation <b>where there is no priest</b> present, <b>why</b> may one <b>not</b> set aside dried figs, which can be preserved for a lengthy period, for fresh ones? <b>But didn’t we learn</b> in the same mishna (<i>Terumot</i> 2:4): In <b>a place where there is no priest</b> present, the owner of the produce <b>separates <i>teruma</i> from that which will endure,</b> not from the best-quality produce? <b>Rather,</b> it is <b>obvious</b> that this clause is referring to a situation <b>where there is a priest</b> present.
+
+### Part 8
+The Gemara challenges: If so, <b>the first clause</b> of the <i>baraita</i> addresses a case <b>where there is no priest</b> present, whereas <b>the latter clause</b> addresses a case <b>where there is a priest</b> present. The Gemara explains: <b>Yes, the first clause</b> of the <i>baraita</i> addresses a case <b>where there is no priest</b> present, and <b>the latter clause</b> addresses a case <b>where there is a priest</b> present.
+
+### Part 9
+<b>Rav Pappa said: Learn from</b> this discussion that <b>we exert</b> ourselves <b>and interpret the mishna according to two reasons,</b> i.e., two different situations in accordance with the opinion of one <i>tanna</i>, <b>but we do not interpret</b> it as being in accordance with the opinions <b>of two <i>tanna’im</i>.</b> An interpretation that maintains a single authorship of a mishna is preferable even if it requires explaining the mishna as discussing two different situations.
+
+### Part 10
+<strong>MISHNA:</strong> <b>All the meal-offerings</b> that come as <i>matza</i> <b>are</b> to be <b>kneaded with lukewarm</b> water so that the dough will bake well, as only a small amount of oil is added. <b>And one must watch over them</b> to ensure <b>that they do not</b> become <b>leaven</b> while kneading and shaping them, <b>and if</b> a meal offering or even only <b>its remainder becomes leaven, one violates a prohibition, as it is stated: “No meal offering that you shall bring to the Lord shall be made with leaven;</b> as you shall burn no leaven nor any honey as an offering made by fire to the Lord” (Leviticus 2:11). <b>And one is liable</b> to be flogged <b>for kneading</b> the meal offering, <b>and for shaping</b> it, <b>and for baking</b> it, if the meal offering becomes leaven.
+
+### Part 11
+<strong>GEMARA:</strong> The mishna states that one who allows the remainder of a meal offering to become leavened violates a prohibition. The Gemara asks: <b>From where is this matter</b> derived? <b>Reish Lakish said: The verse states: “It shall not be baked with leaven.</b> I have given it as <b>their portion</b> of My offerings made by fire” (Leviticus 6:10). This section of the verse can be read as a single sentence, to indicate: <b>Even their portion</b> of meal offerings, i.e., the remainder eaten by priests after the removal of the handful to be burned on the altar, <b>shall not be baked with leaven.</b>
+
+### Part 12
+The Gemara asks: <b>And</b> does <b>this</b> verse <b>come for this</b> purpose? It cannot, as <b>it is necessary</b> as the source for a different <i>halakha</i>, <b>for that which is taught</b> in a <i>baraita</i>: The verse states: <b>“It shall not</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

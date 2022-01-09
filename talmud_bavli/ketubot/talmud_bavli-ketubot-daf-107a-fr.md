@@ -1,0 +1,45 @@
+
+### Partie 1
+Le tribunal <b>repartit la subsistance pour une femme mariee,</b> c'est-a-dire que si un mari est parti a l'etranger et n'a rien laisse derriere lui avec lequel sa femme pourrait assurer sa subsistance, le tribunal retire de l'argent de sa succession a cette fin. <b>Et Shmuel dit :</b> Le tribunal <b>ne repartit pas la subsistance pour une femme mariee. Shmuel</b> a en outre <b>dit : Abba,</b> c'est-a-dire Rav, <b>me concede</b> que le tribunal ne touche pas a la succession du mari <b>pendant les trois premiers mois.</b> C'est <b>parce qu'une personne ne laisse pas sa maison vide,</b> et donc il est certain qu'il a laisse quelque chose avec lequel sa femme peut subvenir a ses besoins au moins a court terme.
+
+### Partie 2
+La Gemara commente : Dans un cas <b>ou ils ont entendu que</b> le mari <b>decede, tout le monde est d'accord</b> pour que le tribunal soutienne sa femme a partir de sa succession. <b>Lorsqu'ils sont en desaccord</b> c'est dans un cas <b>ou ils n'ont pas entendu qu'il etait mort</b> a l'etranger. <b>Le Rav dit</b> que le tribunal <b>repartit</b> la subsistance de l'epouse, <b>puisque</b> sa succession est legalement <b>hypothequee en sa faveur</b> et doit lui fournir la subsistance, <b>et Shmuel dit</b> que dans ce cas le tribunal <b>ne repartit pas</b> la subsistance pour elle.
+
+### Partie 3
+La Gemara demande : <b>Quelle est la raison</b> de la decision de Shmuel ? <b>Rav Zevid dit :</b> On peut <b>dire qu'il lui a donne une liasse</b> d'argent avant de partir. <b>Rav Pappa a dit : Nous sommes inquiets</b> que <b>peut-etre qu'il lui a dit</b> avant son depart : <b>Depense tes gains pour subvenir a tes besoins,</b> c'est-a-dire qu'il a renonce a ses droits sur ses gains et qu'en echange, il n'est plus tenu de lui fournir un soutien.
+
+### Partie 4
+La Gemara demande : <b>Quelle est</b> la difference pratique <b>entre</b> ces deux explications ? La Guemara repond : <b>Il y a</b> une difference pratique <b>entre elles</b> dans un cas ou la femme est <b>adulte,</b> et donc il est possible qu'il lui ait laisse de l'argent, <b>et</b> la somme qu'elle gagne n'est <b>pas suffisante</b> pour ses besoins. Selon l'avis du Rav Zevid, on peut supposer qu'il lui a donne de l'argent et qu'il n'est donc pas necessaire pour le tribunal d'allouer sa subsistance a partir de sa succession, alors que selon l'avis du Rav Pappa, comme ses gains ne sont pas suffisants pour sa subsistance, le tribunal alloue plus pour elle a partir de sa succession, malgre la stipulation eventuelle du mari.
+
+### Partie 5
+<b>Alternativement,</b> il y a une difference entre eux dans le cas d'une <b>epouse mineure</b>, a laquelle le mari n'aurait pas laisse d'argent, <b>mais</b> ses gains sont <b>suffisants</b> pour sa subsistance. Rav Zevid pretendrait que le tribunal doit subvenir a ses besoins a partir de sa succession, car il ne lui aurait pas laisse d'argent, alors que Rav Pappa soutiendrait qu'il aurait pu lui dire de subvenir a ses besoins a partir de ses propres revenus.
+
+### Partie 6
+§ <b>Nous avons appris</b> dans la mishna : En ce qui concerne <b>celui qui est parti a l'etranger et dont la femme demande la subsistance, Hanan dit : Elle fait un serment a la fin, et elle ne fait pas de serment au debut. Les fils de grands pretres contesterent</b> Hanan l'opinion <b>et dirent : Elle prete serment</b> a la fois <b>au debut et a la fin.</b> La Gemara commente : <b>Ils ne sont en desaccord qu'en ce qui concerne le serment ; cependant,</b> en ce qui concerne la <b>sustentation</b> tout le monde est d'accord <b>pour dire</b> que le tribunal <b>le donne</b> a elle.</b> Ceci contredit apparemment l'opinion de Shmuel. La Gemara explique que <b>Shmuel a interprete</b> la mishna conformement a son opinion comme se referant a un cas <b>ou ils ont entendu parler de lui qu'il est mort</b> a l'etranger. Dans ce scenario, tout le monde s'accorde a dire que le tribunal lui fournit une subsistance provenant de la succession du mari.
+
+### Partie 7
+<b>Venez</b> et <b>entendez</b> un <i>baraita</i> : En ce qui concerne <b>ceux qui sont partis a l'etranger et dont la femme demande la subsistance, les fils de grands pretres disent : Elle prete serment. Hanan dit : Elle ne prete pas serment,</b> c'est-a-dire qu'elle recoit la subsistance sans avoir a jurer. <b>Et s'il venait et disait : J'ai reparti</b> l'argent <b>pour sa subsistance</b> et l'ai laissee avec des fonds suffisants, <b>il est juge credible</b> et elle doit rendre tout ce qu'elle a recu de sa succession par l'intermediaire du tribunal. Ceci pose une difficulte pour l'opinion de Shmuel, qui soutient que le tribunal ne lui fournit pas de subsistance <i>ab initio</i>.
+
+### Partie 8
+La Gemara repond : <b>Ici aussi,</b> il est question d'un cas <b>ou l'on a entendu dire a son sujet qu'il est mort</b> a l'etranger. La Gemara demande : <b>Mais</b> le <i>tanna</i> <b>a dit : S'il est venu et a dit,</b> ce qui indique que le mari n'est pas mort. La Guemara explique que le <i>baraita</i> signifie : <b>S'il est venu apres la rumeur.</b> Il y avait une rumeur selon laquelle il etait mort, et pour cette raison le tribunal lui a fourni de la subsistance, et plus tard il a ete determine que la rumeur etait fausse.
+
+### Partie 9
+<b>Venez</b> et <b>entendez</b> un autre <i>baraita</i> : En ce qui concerne <b>ceux qui sont partis a l'etranger et dont la femme demande la subsistance, s'il est venu et a dit</b> qu'avant son depart, il lui a dit : <b>Depense tes gains pour te faire vivre, il lui est permis</b> d'agir en consequence. <b>Si le tribunal est alle de l'avant et a reparti</b> la subsistance pour elle, <b>ce qu'ils ont reparti est reparti,</b> et elle n'est pas tenue de le rendre. Encore une fois, cela pose une difficulte pour l'opinion de Shmuel. La Gemara repond : <b>Ici aussi,</b> il est question d'un cas <b>ou l'on a appris a son sujet qu'il est mort</b> a l'etranger.
+
+### Partie 10
+<b>Venez</b> et <b>entendez</b> une autre <i>baraita</i> : A l'egard de <b>quelqu'un qui est parti a l'etranger et dont la femme demande la subsistance,</b> le <b>court descend sur ses biens et nourrit et assure la subsistance de sa femme, mais pas</b> de <b>ses fils et filles, et</b> ils ne <b>pas</b> lui donner <b>quelque chose d'autre.</b> Une fois de plus, cela presente une difficulte pour l'opinion de Shmuel.
+
+### Partie 11
+<b>Rav Sheshet a dit :</b> Ceci fait reference <b>a celui qui nourrit sa femme par le biais d'un tiers.</b> Dans ce cas, meme si le mari etait disponible, il ne lui fournirait pas directement sa subsistance, car il a designe quelqu'un d'autre pour lui donner de l'argent en fonction de ses besoins. La Gemara demande : <b>Si c'est le cas, ses fils et ses filles</b> devraient <b>aussi</b> recevoir cette aide. La Gemara repond : Elle fait reference a un cas <b>ou il a designe</b> un tiers <b>pour ce</b> but, la subsistance de sa femme, <b>mais il n'a pas designe</b> un tiers <b>pour ce</b> but, la subsistance de ses enfants. La Gemara demande : Si cela est correct, <b>pourquoi</b> cela a-t-il ete enonce <b>sans qualification ?</b> Il n'y a aucun indice dans la <i>baraita</i> que le mari ait fait une telle difference.
+
+### Partie 12
+<b>Au contraire, Rav Pappa dit</b> que Shmuel expliquerait cette <i>baraita</i> comme faisant reference a un cas <b>ou elle a entendu dire qu'il etait mort,</b> et qu'elle l'a appris <b>par un seul temoin. </b> Par consequent, en ce qui concerne <b>elle</b>, puisqu'il s'agit d'un cas <b>ou si elle voulait se remarier</b> en se basant <b>sur</b> le temoignage de ce <b>seul temoin, elle peut se marier,</b> puisque dans cette situation, les Sages lui ont permis de s'appuyer sur le recit d'un seul temoin afin qu'elle ne finisse pas femme abandonnee, le tribunal <b>lui assure egalement la subsistance,</b> puisqu'elle peut revendiquer son contrat de mariage sur la base de ce temoignage.
+
+### Partie 13
+Toutefois, en ce qui concerne <b>ses fils et ses filles,</b> etant donne qu'il s'agit d'un cas <b>ou, s'ils voulaient descendre a sa succession sur</b> la base du temoignage d'<b>un seul temoin, ils ne pourraient pas descendre</b> et prendre les biens, deux temoins etant necessaires en matiere d'heritage, le tribunal <b>ne leur assure pas non plus la subsistance.</b> En ce qui concerne les enfants, les preuves du deces de leur pere sont encore insuffisantes.
+
+### Partie 14
+Incidemment, la Gemara demande : <b>Qu'est-ce que : Quelque chose d'autre,</b> mentionne dans la <i>baraita</i> ? <b>Rav Hisda repond :</b> Il s'agit des <b>ornements de l'epouse,</b> auxquels elle a droit en plus de sa subsistance. <b>Rav Yosef a dit :</b> C'est de l'argent pour la <b>charite.</b> La Gemara commente : Selon <b>celui qui a dit</b> que le tribunal ne paie pas pour ses <b>ornements</b> si le mari est parti a l'etranger, <b>a plus forte raison</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

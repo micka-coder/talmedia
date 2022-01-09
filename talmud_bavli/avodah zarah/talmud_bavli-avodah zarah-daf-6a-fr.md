@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>Mais selon celui qui dit</b> que <b>une <i>tereifa</i> peut enfanter, que peut-on dire ?</b> Selon cette opinion, une <i>tereifa</i> ne peut etre exclue par la phrase : "Pour garder la semence vivante." La Guemara repond : <b>Le verset dit</b> a propos des animaux qui ont ete amenes par Noe dans l'arche : "Tu feras entrer dans l'arche, pour les garder en vie <b>avec toi" </b> (Genese 6:19). Le terme "avec toi" indique que le verset est enonce <b>en ce qui concerne</b> les animaux qui sont <b>similaires a toi,</b> mais pas un <i>tereifa</i>. La Gemara demande : <b>Mais peut-etre que Noe lui-meme etait un <i>tereifa</i>.</b> Si c'est le cas, on ne peut pas exclure un <i>tereifa</i> de la comparaison des animaux a Noe. La Guemara repond : <b>Il est ecrit au sujet de</b> Noe qu'il etait <b>"complet"</b> (Genese 6:9).
+
+### Partie 2
+La Gemara conteste : <b>Mais peut-etre</b> le verset signifie que <b>ses voies etaient completes,</b> mais il ne fait pas reference aux attributs physiques de Noe. La Guemara explique : <b>Il est</b> deja <b>ecrit a son sujet</b> qu'il etait <b>"juste"</b> (Genese 6:9), ce qui signifie que ses actions etaient parfaites. Par consequent, lorsque le verset dit qu'il etait aussi complet, il doit faire reference a son corps.
+
+### Partie 3
+La Gemara conteste : Mais <b>peut-etre</b> le verset veut dire que Noe etait <b>complet dans sa maniere,</b> et qu'il <b>etait juste dans ses</b> bonnes <b>actions.</b> Par consequent, le verset n'exclurait pas la possibilite que Noe lui-meme soit un <i>tereifa</i>. La Gemara explique : <b>Il ne peut entrer dans votre esprit que Noe lui-meme etait un <i>tereifa</i>, car, si cela entrait dans votre esprit que Noe etait un <i>tereifa</i>,</b> <b>le Misericordieux</b> lui aurait <b>dit : Fais entrer</b> <i>tereifot</i> <b>comme toi</b> dans l'arche, mais <b>ne fais pas entrer des animaux entiers</b> et parfaits ?
+
+### Partie 4
+La Gemara demande : <b>Et maintenant que</b> il a ete etabli que <b>on tire</b> la disqualification d'une <i>tereifa</i> <b>de</b> l'expression <b>"avec toi", pourquoi ai-je</b> besoin de l'expression <b>"pour garder la graine en vie"?</b> La Gemara repond : <b>Si</b> on ne pouvait apprendre que <b>de" avec toi", je dirais</b> que Noe a amene les animaux dans l'arche <b>uniquement pour</b> un but de <b>compagnie, et</b> donc <b>meme</b> un animal <b>age et meme un animal castre</b> peut entrer dans l'arche, a condition qu'il ne soit pas un <i>tereifa</i>. Par consequent, <b>Le Misericordieux ecrit :</b> "Pour garder la <b>semence</b> vivante", ce qui enseigne que seuls les animaux susceptibles de porter une descendance peuvent etre introduits dans l'arche.
+
+### Partie 5
+§ <b>Un dilemme a ete souleve devant</b> les Sages : Lorsque la mishna enseigne qu'il est interdit de faire des affaires avec les Gentils les <b>trois jours</b> avant leur fete, ces trois jours incluent-ils <b>eux,</b> c'est-a-dire les jours precedant la fete <b>et leur fete</b> elle-meme, auquel cas l'interdiction ne s'applique qu'a la fete et aux deux jours precedents ? <b>Ou peut-etre</b> fait-on reference a <b>eux sans leur fete,</b> c'est-a-dire que l'interdiction s'applique a trois jours entiers avant la fete.
+
+### Partie 6
+La Gemara suggere une preuve a partir d'une mishna (7b). <b>Venez</b> et <b>ecoutez,</b> car <b>Rabbi Yishmael dit : </b> Les <b>trois</b> jours <b>avant</b> les fetes des Gentils <b>et</b> les <b>trois</b> jours <b>apres, </b> ces actions sont <b>interdites.</b> La Gemara analyse cette declaration. <b>S'il vous vient a l'esprit</b> que les trois jours incluent <b>eux et leur fete,</b> cela signifierait que <b>Rabbi Yishmael compte le jour de leur fete</b> deux fois, car il le compte <b>initialement,</b> comme faisant partie de la premiere serie de trois jours, <b>et</b> il le <b>compte egalement a la fin,</b> avec la deuxieme serie de trois jours. Il est clair que les trois jours ne comprennent pas le jour de la fete elle-meme.
+
+### Partie 7
+La Gemara rejette cette preuve : Il est possible que la fete soit comptee comme l'un des trois jours initiaux, c'est-a-dire que les trois jours les incluent, eux et leur fete, et ne sont pas comptes comme faisant partie des trois jours suivant la fete. Mais <b>puisque</b> Rabbi Yishmael <b>enseignait</b> que ces actions sont interdites pendant les <b>trois</b> jours <b>avant eux,</b> il <b>a egalement</b> utilise la meme expression et <b>enseignait</b> que ces actions sont interdites pendant les <b>trois</b> jours <b>apres eux,</b> bien que ce qu'il enseigne en realite est que ces actions sont interdites seulement pendant les deux jours apres.
+
+### Partie 8
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> une preuve de ce <b>que Rav Tahlifa bar Avdimi dit</b> que <b>Shmuel dit : Selon la declaration de Rabbi Yishmael, il est toujours interdit</b> de faire des affaires avec les <b>Chretiens,</b> car leur fete a lieu chaque dimanche. Puisque les trois jours precedant et suivant leur fete sont inclus dans l'interdiction, on ne peut s'engager dans des affaires avec eux aucun jour de la semaine. <b>Et s'il vous vient a l'esprit</b> que les trois jours de la mishna incluent <b>eux et leur fete,</b> c'est-a-dire que seuls les deux jours precedant et suivant la fete sont inclus dans l'interdiction, alors selon Rabbi Yishmael <b>il reste <b>mercredi et jeudi,</b> les <b>jours ou il est <b>permis</b> de faire des affaires avec les chretiens.
+
+### Partie 9
+La Guemara clarifie : <b>Selon</b> l'avis <b>de Rabbi Yishmael, je n'ai pas de dilemme, car</b> il est clair que les trois jours mentionnes dans la mishna sont <b>les sans leur fete. Lorsque je souleve le dilemme,</b> c'est <b>selon</b> l'avis <b>des rabbins : Quels</b> jours sont inclus dans l'interdiction selon leur avis ?
+
+### Partie 10
+<b>Ravina dit : Venez</b> et <b>entendre</b> une preuve a partir de la suite de la mishna (8a). <b>Et voici les fetes des Gentils : Kalenda, Saturnalia, et Kratesis. Et Rav Hanin bar Rava dit</b> en explication de cette mishna : Quand ces fetes ont-elles lieu ? <b>Kalenda</b> se deroule pendant les <b>huit jours apres</b> le <b>solstice d'hiver,</b> et <b>Saturnalia</b> se deroule pendant les <b>huit jours avant</b> le <b>solstice d'hiver. Et votre moyen mnemotechnique</b> pour vous rappeler de quelle fete il s'agit est que la fete qui a lieu apres le solstice est mentionnee en premier et celle qui a lieu avant est mentionnee plus tard, comme dans le verset : <b>"Tu m'as enferme derriere et devant"</b> (Psaumes 139:5), ou le mot "devant" apparait apres le terme "derriere".
+
+### Partie 11
+Ravina explique la preuve : <b>Et s'il vous vient a l'esprit</b> que la <i>tanna</i> de la mishna compte <b>eux et leur fete,</b> dans ce cas <b>il y a dix</b> jours qui sont inclus dans l'interdiction : Les huit jours de la fete et les deux jours qui la precedent. Pourquoi, alors, la mishna dit-elle que l'interdiction ne s'applique que pendant trois jours ? Si les trois jours ne comprennent pas les fetes elles-memes, alors cette difficulte ne s'applique pas, car bien qu'en pratique l'interdiction dure onze jours, la mishna ne fait pas reference a la periode de la fete. La Gemara repond : Cette preuve n'est pas concluante, car la <b><i>tanna</i> compte toute</b> la fete de <b>Kalenda</b> comme <b>un jour.</b>
+
+### Partie 12
+<b>Rav Ashi dit : Viens</b> et <b>entendre</b> une preuve de la mishna, qui precise que le moment ou les actions sont interdites est : Le <b>trois jours avant les fetes des gentils. Et s'il vous vient a l'esprit</b> que la mishna fait reference a <b>eux et a leur fete, qu'elle enseigne :</b> Au moment des <b>fetes des Gentils,</b> il est interdit de faire des affaires avec eux pendant <b>trois jours.</b> La formulation de la mishna indique que les trois jours sont avant la fete.
+
+### Partie 13
+<b>Et si vous disiez : Ce qui est enseigne</b> dans la mishna : <b>Avant les fetes</b> des Gentils, sert <b>a exclure</b> les jours <b>suivant leurs fetes,</b> c'est-a-dire, le <i>tanna</i> indique clairement que l'interdiction s'applique avant, plutot qu'apres, <b>laissons</b> la mishna <b>enseigner : </b> Au moment des <b>fetes des Gentils,</b> il est interdit de faire des affaires avec eux pendant <b>trois jours avant. Il faut plutot conclure de</b> la formulation employee que lorsque la mishna dit : Les trois jours precedant les fetes, elle se refere a <b>eux sans leur fete.</b> La Gemara affirme : <b>Conclure a partir</b> ici que c'est le cas.
+
+### Partie 14
+§ <b>Un dilemme a ete souleve devant</b> les Sages : La raison de l'interdiction de faire des affaires avec les Gentils les jours precedant leurs fetes est-elle <b>parce que</b> le Gentil pourrait <b>profiter,</b> ce qui lui apportera de la joie, et il rendra ensuite grace a son idole lors de sa fete ? <b>Ou peut-etre</b> c'est parce que cela constitue une violation de l'interdiction : <b>"Et tu ne mettras pas de pierre d'achoppement devant un aveugle"</b> (Levitique 19:14), car celui qui vend un animal a un Gentil l'aide ainsi a se livrer a un culte idolatre interdit.
+
+### Partie 15
+La Guemara explique : <b>Quelle est la</b> <b>difference</b> pratique entre les deux options ? La difference pratique se situe dans une situation <b>ou le Gentil</b> possede deja <b>un animal a lui. Si l'on dit</b> que la raison de l'interdiction est <b>parce que</b> il pourrait <b>profiter,</b> ici aussi le juif <b>lui fait profiter.</b> Mais <b>si l'on dit</b> que la raison de l'interdiction est <b>du fait</b> de l'interdiction : <b>Vous ne mettrez pas de pierre d'achoppement</b> devant <b>l'aveugle,</b> puisque le Gentil <b>a son propre animal</b>, le Juif ne l'aide pas a pecher.
+
+### Partie 16
+La Gemara conteste : <b>Et</b> meme <b>s'il</b> a deja <b>son propre animal, est-ce que <b>n'est pas</b> celui qui l'aide a <b>transgresser en raison</b> du commandement : <b>Vous ne mettrez pas de pierre d'achoppement</b> devant <b>l'aveugle</b> ? Mais n'est-il pas enseigne</b> dans une <i>baraita</i> que <b>Rabbi Natan a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

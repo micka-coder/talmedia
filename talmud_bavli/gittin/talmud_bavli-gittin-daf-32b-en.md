@@ -1,0 +1,36 @@
+
+### Part 1
+<b>has two</b> potential <b>meanings,</b> depending on the context. <b>It means that</b> it was <b>void</b> already, <b>and it</b> also <b>means that it will become void</b> in the future. <b>With regard to a bill of divorce, he stated the formulation that is effective with regard to it,</b> and since his statement can be understood to mean that the bill of divorce should be void from that point onward, it is interpreted as such. <b>With regard to a gift, he stated the formulation that is effective with regard to it,</b> and since one cannot nullify the acquisition of a gift after taking possession of it, his intention was that the gift was void from the outset, and his statement is interpreted as such.
+
+### Part 2
+Additionally <b>Abaye said</b> with regard to the relationship between a bill of divorce and a gift that <b>we have a tradition: An agent</b> sent to deliver <b>a gift is</b> considered <b>like an agent</b> sent to deliver <b>a bill of divorce.</b> The Gemara explains: <b>The practical difference</b> that is learned from this is <b>that</b> if one says to his agent: <b>Take</b> this gift to so-and-so, <b>it is not considered as</b> if he said to him: <b>Acquire</b> the gift on his behalf. Therefore, as long as the gift has not yet reached the intended recipient, the one who sent the gift can retract it, and it is not as if the intended recipient had taken possession of the gift from the moment that it was given to the agent.
+
+### Part 3
+The Gemara relates: <b>Ravina found Rav Naḥman bar Yitzḥak as he was leaning on the bar of a door</b> deep in thought, <b>and</b> Rav Naḥman bar Yitzḥak <b>was considering</b> the following <b>dilemma: What is</b> the <i>halakha</i> if a husband said only: This bill of divorce is <b>void,</b> but did not say: This bill of divorce, it is void? Does he mean to render the bill of divorce void from that point onward, which he has the ability to do, or is he merely noting the fact that this bill of divorce is void, in which case his statement does not affect the validity of the document? No answer is given to this question and therefore the dilemma <b>shall stand</b> unresolved.
+
+### Part 4
+<b>Rav Sheshet says, and some say</b> that <b>it was taught in a <i>baraita</i>,</b> that if the husband said one of these phrases: <b>This bill of divorce shall not be effective, shall not release, shall not cause to leave, shall not send away, shall not divorce, shall be pottery,</b> or <b>shall be like pottery,</b> in all of these cases <b>his statement is effective,</b> and the bill of divorce is rendered void.
+
+### Part 5
+If, however, the husband used one of the following formulations: This bill of divorce <b>has no effect, does not release, does not cause to leave, does not send away, does not divorce, it is pottery,</b> or <b>it is like pottery,</b> then it is as though <b>he said nothing.</b> The husband has the authority only to render the bill of divorce void. However, his descriptive statements with regard to the legal standing of the bill of divorce are meaningless.
+
+### Part 6
+<b>A dilemma was raised before</b> the Sages: <b>What is</b> the <i>halakha</i> if he said: <b>It is hereby pottery?</b> Is his intention to make a descriptive statement, that the bill of divorce is not valid, or does he intend to render it void? <b>Ravina said to Rav Aḥa, son of Rava, and some say</b> that <b>Rav Aḥa, son of Rava, said to Rav Ashi:</b> In <b>what</b> way <b>is</b> this formulation <b>different from</b> saying about one’s property: <b>It is hereby consecrated</b> property, or: <b>It is hereby ownerless</b> property, where it is clear that his intention is to designate the items as consecrated or ownerless property? With regard to bills of divorce as well, his statement is effective and it renders the bill of divorce void.
+
+### Part 7
+§ The Gemara asks: If the husband rendered void a bill of divorce, can he <b>go back and divorce</b> his wife <b>with it,</b> since perhaps he did not actually render void the bill of divorce but only nullified the agency for its delivery, so it can be used again in the future; <b>or may he not go back and divorce with it,</b> as the bill of divorce itself was rendered void? <b>Rav Naḥman says: He may go back and divorce with it, and Rav Sheshet says: He may not go back and divorce with it.</b> The Gemara concludes: <b>And the <i>halakha</i> is in accordance with</b> the opinion <b>of Rav Naḥman,</b> that the bill of divorce may be used.
+
+### Part 8
+The Gemara asks: <b>Is that so? But don’t we maintain</b> that <b>the <i>halakha</i> is in accordance with</b> the opinion <b>of Rabbi Yoḥanan, who said:</b> If a man gives a woman money for betrothal and says that the betrothal will take effect after thirty days, the woman <b>can retract</b> her agreement within the thirty days and decide that she does not wish to be betrothed. Rabbi Yoḥanan holds that as long as the change in status had not yet taken effect, she may nullify her earlier agreement by stating a retraction. Therefore, here too, when the husband states that the bill of divorce should be rendered void, since the divorce had not taken effect, it should be rendered void.
+
+### Part 9
+The Gemara rejects this argument: <b>How can</b> these cases <b>be compared? There,</b> in the case of betrothal, <b>it is speech</b> that accepts the betrothal <b>and speech</b> that retracts her acceptance; therefore, her <b>speech comes and nullifies</b> her previous <b>speech,</b> as the woman first stated that she agreed and then stated afterward that she retracted her agreement. <b>But here,</b> even <b>though</b> it is true <b>that</b> the husband <b>rendered void the agency of the agent, does</b> he also <b>render void the bill of divorce itself?</b> Since the bill of divorce is a tangible object, it cannot be made void through speech alone.
+
+### Part 10
+§ The mishna taught that <b>initially</b> a husband who wished to render void the bill of divorce <b>would convene</b> a court, even if he had already sent the document with an agent, and render the bill of divorce void in the presence of the court. <b>It was stated:</b> When the husband would state that the bill of divorce should be void, <b>in the presence of how many</b> people <b>must he render it void? Rav Naḥman says:</b> He must render it void <b>in the presence of two</b> people. <b>Rav Sheshet says:</b> He must render it void <b>in the presence of three</b> people.
+
+### Part 11
+The Gemara explains the reasoning of each <i>amora</i>: <b>Rav Sheshet said</b> that he must do so <b>in the presence of three</b> people, because the mishna <b>teaches</b> that this takes place in the presence of a <b>court,</b> and a court consists of three judges. <b>And Rav Naḥman said</b> that it may be done <b>in the presence of two</b> people, as <b>two</b> people <b>are also called a court,</b> and in exigent circumstances one may rely on this. <b>Rav Naḥman said: From where do I say</b> that two people are also called a court? <b>As we learned</b> in a mishna (<i>Shevi’it</i> 10:4): When one creates a document that prevents the Sabbatical Year from abrogating an outstanding debt [<i>prosbol</i>], he states: <b>I transfer</b> to you <b>in your presence,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>Disqualifier</b> l'<b>eau de purification,</b> c'est-a-dire l'eau dans laquelle on a place les cendres de la genisse rouge, en y buvant. L'eau qui est entree dans la bouche de l'oiseau est disqualifiee, et une partie de cette eau s'egoutte dans le recipient, disqualifiant le reste. Ceci s'applique a tous les oiseaux <b>sauf au pigeon, car il sirote</b> l'eau du recipient et aucune ne retombe dans sa bouche. <b>Mais s'il en est ainsi</b> que le <i>tasil</i> est un type de pigeon, <b>laissons</b> la mishna <b>enseigner : Sauf pour</b> le <b>pigeon et</b> le <b><i>tasil</i>. Rabbi Zeira a dit :</b> Bien que le <i>tasil</i> soit une sorte de pigeon et qu'il sirote egalement l'eau, <b>celui-ci,</b> le <i>tasil</i>, <b>sipe</b> l'eau <b>et en recrache</b> une partie, et disqualifie donc l'eau de purification, <b>et celui-la,</b> le pigeon, <b>sipe mais ne recrache pas.</b>
+
+### Partie 2
+<b>Rav Yehuda dit : Les <i>tzutzeyanei</i> colombes sont aptes au</b> sacrifice <b>sur l'autel, et ce sont les colombes de Rehava</b> mentionnees precedemment. La Guemara <b>souleve une objection</b> tiree d'une mishna (<i>Negaim</i> 14:6) : La Torah exige de l'hysope pour la purification d'un lepreux. Ce doit etre de l'hysope standard, et ni une hysope de Grece, ni une hysope stibium, ni une hysope romaine, ni une hysope du desert</b>, <b>ni aucune</b> autre sorte d'hysope dont</b> le nom est accompagne d'un <b>modificateur.</b> De meme, les colombes <i>tzutzeyanei</i> devraient etre impropres au sacrifice, parce qu'elles ont un modificateur dans leur nom.
+
+### Partie 3
+<b>Abaye a dit : Tout</b> article <b>dont le nom a ete modifie avant le don de la Torah, et</b> concernant lequel <b>la Torah a ete particuliere</b> en le nommant, est impropre</b> si <b>son</b> nom est accompagne d'un <b>modificateur,</b> puisque le langage de la Torah a ete formule pour l'exclure. <b>Mais le nom de ces</b> <i>tzutzeyanei</i> colombes <b>n'a pas ete modifie,</b> c'est-a-dire que le modificateur <i>tzutzeyanei</i> ne leur a pas ete applique, <b>avant le don de la Torah.</b> Meme s'il leur a ete applique plus tard, elles sont encore aptes au sacrifice. Alternativement, <b>Rava a dit : Les <i>tzutzeyanei</i> colombes sont appelees simplement</b> colombes <b>dans leur lieu</b> d'habitation.
+
+### Partie 4
+De meme, <b>Rav Yehuda dit : Ces sauterelles</b> trouvees <b>parmi les arbustes</b> sont cacheres et <b>permises</b> a la consommation. <b>Et</b> celles trouvees <b>parmi les choux sont interdites. Ravina a dit : Et on flagelle</b> ceux qui les mangent <b>pour leur compte, en raison</b> de l'interdiction : "Et tous les <b>organismes grouillants ailes</b> sont impurs pour vous" (Deuteronome 14, 19). <b>Et Rav Yehuda dit :</b> L'oiseau appele <b><i>tzarda</i> est autorise</b> a la consommation, <b>et</b> le <b><i>barda</i> est interdit. Et votre moyen mnemotechnique</b> pour vous souvenir de ce qui est quoi est ceci : Mangez n'importe quel oiseau <b>sauf [<i>bar</i>] pour lui.</b> Quant a <b>la <i>marda</i>, il est incertain</b> qu'elle soit cachere.
+
+### Partie 5
+<b>Rav Asi dit : Il y a huit cas incertains</b> : Le <b><i>huva</i>, <i>huga</i>, <i>suga</i>, et <i>harnuga</i>, <i>tushelemi</i>, et <i>marda</i>, <i>kuhilna</i>, et <i>bar nappaha</i>.</b> La Gemara explique : <b>Quelle est leur incertitude ? Le gesier des oiseaux casher peut etre epluche,</b> comme mentionne dans la mishna, <b>et le gesier des oiseaux non casher</b> <b>ne peut pas etre epluche, mais le gesier de ces</b> oiseaux <b>ne peut etre epluche</b> qu'<b>avec un couteau.</b>
+
+### Partie 6
+La Guemara demande : <b>Mais</b> pourquoi ne seraient-ils pas cachers ? N'y avait-il pas <b>un certain canard dans la maison de Mar Shmuel dont le gesier ne pouvait pas etre pele, et ils ont mis</b> le gesier <b>au soleil, et une fois qu'il a ramolli, il a pu etre pele ?</b> La Gemara repond : <b>La, lorsqu'il a ramolli, on pouvait le peler a la main. Ici,</b> dans ces huit cas, <b>meme lorsqu'il a ramolli, on ne pouvait l'eplucher qu'avec un couteau.</b>
+
+### Partie 7
+<b>Abaye dit : Le coq des marais est l'un des huit cas incertains</b>, <b>et c'est</b> le <b><i>mardu</i>,</b> c'est-a-dire le <i>marda</i> mentionne precedemment. <b>Rav Pappa dit : Le coq des marais est interdit, mais le poulets des marais est autorise. Et votre moyen mnemotechnique</b> pour vous en souvenir est la declaration des Sages a propos du verset : "Un Ammonite ou un Moabite n"?entrera pas dans l"?assemblée du Seigneur" (Deuteronome 23:4), que <b>un homme Ammonite</b> est inapte a entrer dans l"?assemblee, <b>mais pas une femme Ammonite. Mareimar a enseigne : Le swamphen est interdit,</b> car les Sages <b>ont vu qu'il griffe</b> sa proie <b>et la mange</b>. <b>Et c'est</b> le <b><i>giruta</i>,</b> un oiseau non casher (voir 109b).
+
+### Partie 8
+<b>Rav dit :</b> L'oiseau appele le <b><i>shavor anderafta</i> est permis,</b> mais le <b><i>piruz anderafta</i> est interdit. Et votre moyen mnemotechnique</b> pour vous en souvenir est la personnalite connue <b>Pirouz le Mauvais</b>. Rav Huna dit :</b> L'oiseau appele le <b><i>bunya</i> est permis.</b> Le <b><i>parva</i> est interdit. Et votre moyen mnemotechnique</b> pour vous en souvenir est la personnalite connue <b>Parvaâ le sorcier.</b>
+
+### Partie 9
+<b>Rav Pappa dit :</b> L'oiseau connu sous le nom de <b>reclining and eating <i>mardu</i> est permis,</b> tandis que le <b>bowing and eating</b> <i>mardu</i> <b>est interdit. Et votre moyen mnemotechnique</b> pour vous en souvenir est le verset : <b>Vous ne vous prosternerez devant aucun autre dieu"</b> (Exode 34:14). <b>Shmuel dit :</b> L'oiseau appele le <b>buveur de vin est interdit. Et votre moyen mnemotechnique</b> pour vous en souvenir est le <i>halakha</i> : <b>Ceux qui ont bu du vin sont inaptes au service</b> dans le Temple. <b>Et Shmuel dit :</b> L'oiseau appele le <b>verseuse de vin est interdit.</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

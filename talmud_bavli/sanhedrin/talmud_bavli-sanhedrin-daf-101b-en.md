@@ -1,0 +1,48 @@
+
+### Part 1
+<b>“These too are the proverbs of Solomon, which the men of Hezekiah, king of Judea, copied”</b> (Proverbs 25:1), indicating that Hezekiah taught Torah and disseminated it to the multitudes. <b>And</b> is it conceivable that <b>Hezekiah, king of Judea, taught Torah to the entire world and to Manasseh his son he did not teach Torah? Rather,</b> Hezekiah certainly taught Manasseh much Torah; nevertheless, <b>from all his exertion to</b> teach <b>him and from all his toil to</b> teach <b>him,</b> it was <b>only afflictions</b> that <b>elevated him to</b> the path of <b>good, as it is stated: “And the Lord spoke to Manasseh and to his people but they would not heed. And the Lord brought upon them the captains of the army of the king of Assyria, who took Manasseh with hooks, and bound him with chains, and carried him to Babylonia”</b> (II Chronicles 33:10–11).
+
+### Part 2
+<b>And it is written</b> thereafter: <b>“And when he was in distress, he sought the Lord his God, and humbled himself greatly before the God of his fathers, and he prayed to Him and He was entreated of him, and He heard his supplication, and brought him back to Jerusalem into his kingdom; then Manasseh knew that the Lord He was God”</b> (II Chronicles 33:12–13). <b>You learned</b> from <b>this that afflictions are cherished.</b>
+
+### Part 3
+Apropos Manasseh’s repentance, the Gemara cites that <b>the Sages taught</b> in a <i>baraita</i>: <b>Three came with a demand,</b> and <b>these are they: Cain, Esau, and Manasseh. Cain</b> came with a demand, <b>as it is written: “My sin is too great to bear”</b> (Genesis 4:13). Cain <b>said before</b> God: <b>Master of the Universe, is my transgression greater than</b> the transgression of <b>the 600,000 who are destined to sin before You</b> with the Golden Calf, <b>and You</b> will nevertheless <b>forgive them?</b> There should be atonement for my transgression as well. <b>Esau</b> came with a demand, <b>as it is stated: “Have you but one blessing, my father?”</b> (Genesis 27:38). With regard to Manasseh, <b>initially he called to multiple gods,</b> and his prayers were not answered, <b>and ultimately he called to the God of his forefathers</b> with the demand: If God does not answer my prayer, then apparently all the gods are equal to the God of my forefathers.
+
+### Part 4
+§ The mishna teaches: <b>Abba Shaul says: Also</b> among those who have no share in the World-to-Come is <b>one who pronounces the</b> ineffable <b>name</b> of God as it is written, <b>with its letters.</b> It is <b>taught</b> in a <i>baraita</i>: This is referring to one who pronounces the name <b>in the outlying areas</b> outside the Temple, <b>and in colloquial [<i>aga</i>] language,</b> for no particular purpose.
+
+### Part 5
+In the mishna, the <i>tanna</i> enumerated <b>three kings and four commoners</b> who have no share in the World-to-Come. <b>The Sages taught</b> in a <i>baraita</i>: <b>Jeroboam [<i>Yorovam</i>]</b> is an abbreviation for one <b>who debased</b> the Jewish <b>people [<i>riba am</i>]. Alternatively, <i>Yorovam</i></b> is an abbreviation for one <b>who engendered strife among the people [<i>meriva ba’am</i>],</b> causing the schism between the kingdoms of Judea and Israel. <b>Alternatively, <i>Yorovam</i></b> is an abbreviation for one <b>who engendered strife between the Jewish people [<i>meriva bein ha’am</i>] and their Heavenly Father,</b> as he instituted the worship of the golden calves (I Kings 12:28–31). He is called <b>son of Nebat</b> because he is the <b>son who looked [<i>nibat</i>]</b> in an effort to assess the situation <b>but did not see</b> the situation accurately.
+
+### Part 6
+It is <b>taught</b> in a <i>baraita</i>: Based on a homiletic interpretation of their names, these three biblical figures are deemed to be the same person. <b>He is</b> called <b>Nebat, he is</b> called <b>Micah,</b> and <b>he is</b> called <b>Sheba, son of Bichri. Nebat, who looked [<i>nibat</i>] but did not see,</b> believed that he was destined for greatness, and that was achieved only by his son. <b>Micah, who was crushed [<i>nitmakhmekh</i>] in the building</b> of the storage cities of Pithom and Raamses, was miraculously saved. <b>And what is his</b> actual <b>name? His name is Sheba, son of Bichri.</b>
+
+### Part 7
+<b>The Sages taught</b> in a <i>baraita</i>: <b>Three looked but did not see</b> and as a result were mistaken in their prognostications. <b>And these are they: Nebat, and Ahithophel, and the astrologers of Pharaoh.</b>
+
+### Part 8
+The Gemara elaborates: <b>Nebat saw fire that emerges from his penis. He thought</b> that it meant that <b>he</b> would <b>rule. But that is not</b> so. It meant that it <b>would be Jeroboam who</b> would <b>emerge from him</b> and rule.
+
+### Part 9
+<b>Ahithophel saw leprosy that glowed on his penis</b> and <b>he thought</b> that <b>he</b> would <b>rule. But it is not so.</b> Instead <b>from Bathsheba his daughter,</b> i.e., his son’s daughter, <b>came Solomon</b> the king.
+
+### Part 10
+<b>The astrologers of Pharaoh</b> saw and were mistaken, <b>as Rabbi Ḥama, son of Rabbi Ḥanina, says: What</b> is the meaning of that <b>which is written: “These are the waters of contention”</b> (Numbers 20:13)? <b>These are</b> the waters <b>that the astrologers of Pharaoh saw, and they erred</b> concerning them. As <b>they saw</b> in the stars <b>that the savior of Israel would be stricken by water,</b> Pharaoh <b>said: “Every son that is born you shall cast into the river”</b> (Exodus 1:22), assuming that any potential savior would be drowned. <b>And they did not know that</b> it was <b>over matters</b> involving <b>the waters of Meribah</b> that Moses would be <b>stricken</b> and would not be allowed to enter Eretz Yisrael.
+
+### Part 11
+The Gemara resumes its discussion of Jeroboam. <b>And from where do we</b> derive <b>that</b> Jeroboam <b>does not enter into the World-to-Come?</b> It is derived from a verse, <b>as it is written: “And by this matter there was a sin to the house of Jeroboam, and to eradicate it and to destroy it from off the face of the earth”</b> (I Kings 13:34). It can be interpreted to mean: <b>To eradicate it in this world, and to destroy it for the World-to-Come.</b>
+
+### Part 12
+<b>Rabbi Yoḥanan says: For what</b> virtue <b>was Jeroboam privileged</b> to ascend <b>to monarchy?</b> It is <b>due to</b> the fact <b>that he rebuked Solomon</b> for his sins. <b>And for what</b> misdeed <b>was he punished</b> and lost everything? It is <b>due to</b> the fact <b>that he rebuked</b> Solomon and humiliated him <b>in public, as it is stated: “And this was the cause that he lifted his hand against the king: Solomon built the Millo, and repaired the breaches of the city of David his father”</b> (I Kings 11:27). Jeroboam <b>said to</b> Solomon: <b>David, your father, created breaches in the wall so that the Jewish people could ascend for the pilgrimage Festival, and you sealed them in order to marshal forced labor [<i>angarya</i>] for the daughter of Pharaoh,</b> your wife.
+
+### Part 13
+<b>And what</b> is the meaning of the phrase <b>“and this was the cause that he lifted his hand against the king”? Rav Naḥman says: He removed his phylacteries before</b> Solomon, thereby demonstrating that he does not consider Solomon his superior. <b>Rav Naḥman says: The arrogance that existed in Jeroboam drove him from the</b> World-to-Come, <b>as it is stated: “And Jeroboam said in his heart: Now shall the kingdom return to the house of David. If this people go up to offer sacrifices in the House of the Lord in Jerusalem, then shall the heart of this people turn again to their lord, even to Rehoboam, king of Judea, and they shall kill me and return to Rehoboam, king of Judea”</b> (I Kings 12:26–27).
+
+### Part 14
+Jeroboam calculated and <b>said: It is learned</b> as a tradition <b>that sitting in the Temple courtyard</b> is permitted <b>only for kings of the house of Judah alone. Once they see Rehoboam, who is sitting, and</b> they see <b>me standing, they will think: This,</b> Rehoboam, <b>is king, and that,</b> Jeroboam, <b>is the servant. And if I sit</b> there, <b>I will be</b> considered <b>a traitor against the throne, and they will kill me and follow him. Immediately,</b> the following took place: <b>“And the king took counsel, and made two calves of gold, and said to them: It is too much for you to ascend to Jerusalem; behold your gods, Israel, who brought you up from the land of Egypt. And he placed the one in Bethel and the other he placed in Dan”</b> (I Kings 12:28–29).
+
+### Part 15
+<b>What</b> is the meaning of the phrase <b>“and</b> the king <b>took counsel”? Rabbi Yehuda says:</b> It means <b>that</b> he assembled the elders of the kingdom of Israel and <b>seated a wicked</b> person <b>alongside a righteous</b> person and consulted them. <b>He said</b> to the elders: <b>Do you sign</b> a writ of authorization <b>for all that I am doing? They said to him: Yes. He said to them: I want to be the king. They said to him: Yes.</b> Jeroboam said to them: <b>Will you do everything I tell you to do? They said to him: Yes.</b> He said to them: <b>Even to worship idols? A righteous</b> man <b>said: Heaven forfend;</b> idol worship is unacceptable. The <b>wicked</b> man seated alongside him <b>said to the righteous</b> man: <b>Does it enter your mind that a man like Jeroboam</b> would <b>worship idols? Rather, he</b> merely <b>seeks to test</b> those sitting here, to determine <b>if they accept</b> and will obey <b>his pronouncements.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,60 @@
+
+### Part 1
+The Gemara responds: <b>Wood</b> is <b>removed</b> from the <i>baraita</i>, <b>and insert</b> in its place wine <b>libations,</b> teaching that they do not require the addition of salt. <b>As it is taught</b> in a <i>baraita</i>: <b>But the wine</b> libations <b>and the blood, and the wood and the incense, do not require salt.</b>
+
+### Part 2
+The Gemara asks: In accordance with <b>whose</b> opinion is this <i>baraita</i>? <b>If</b> you say it is in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi, the ruling of the <i>baraita</i> concerning <b>wood</b> is <b>difficult,</b> as the <i>baraita</i> rules that wood does not require salt, whereas Rabbi Yehuda HaNasi holds that wood does require salt. <b>If</b> you say it is the opinion of <b>the Rabbis,</b> the ruling of the <i>baraita</i> concerning <b>incense</b> is <b>difficult,</b> as they taught in the <i>baraita</i> on 20a that any item for which another item is necessary requires salt, and this includes the incense, which is burned with wood.
+
+### Part 3
+The Gemara suggests: The <i>baraita</i> <b>is</b> in accordance with <b>this</b> following <b><i>tanna</i>,</b> who explains the verse that was interpreted in the <i>baraita</i> in a different manner. <b>As it is taught</b> in a <i>baraita</i>: <b>Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, says:</b> The verse states: “And every meal offering of yours you shall season with salt” (Leviticus 2:13). <b>Just as the specified detail,</b> i.e., the meal offering, is <b>an item that is susceptible to ritual impurity, and is brought on the fire</b> of the altar, <b>and is</b> sacrificed <b>on the external altar, so too, any item that is susceptible to ritual impurity, and is brought on the fire</b> of the altar, <b>and is</b> sacrificed <b>on the external altar</b> requires salting.
+
+### Part 4
+Therefore, <b>wood is excluded, as</b> it is <b>not susceptible to ritual impurity. Wine and blood are excluded, as they are not brought on the fire</b> of the altar but rather are sprinkled on the corner of the altar. The <b>incense</b> is <b>excluded, as it is</b> sacrificed <b>not on the external altar</b> but rather on the inner altar.
+
+### Part 5
+The Gemara asks: <b>But</b> how can it be that according to all opinions, <b>the reason that</b> blood does not require salting is that <b>the verse excluded blood,</b> indicating <b>that</b> if <b>not</b> for <b>that, I would say</b> that <b>blood requires salt? Once one salts</b> the blood, <b>it exits the category of blood, as Ze’eiri says</b> that <b>Rabbi Ḥanina says:</b> With regard to <b>blood that one cooked, one does not transgress</b> the prohibition against consuming blood <b>by</b> drinking <b>it,</b> since it no longer has the status of blood that is fit to be presented on the altar. <b>And Rav Yehuda says</b> that <b>Ze’eiri</b> says: With regard to <b>blood that one salted, one does not transgress</b> a prohibition <b>by</b> drinking <b>it,</b> since salted blood has the status of cooked blood.
+
+### Part 6
+<b>And</b> similarly, <b>Rav Yehuda himself says:</b> With regard to the <b>limbs</b> of a burnt offering <b>that</b> one first <b>roasted and</b> afterward <b>brought them up</b> to the altar, <b>they do not constitute</b> fulfillment of the requirement of the verse that an offering be <b>“an aroma pleasing</b> to the Lord” (Exodus 29:25).
+
+### Part 7
+The Gemara answers: It is still necessary to derive that blood does not require salt, <b>lest you say</b> that the priest should <b>sprinkle any amount</b> of salt, even a minute quantity, <b>on</b> the blood, <b>merely for</b> the fulfillment of the <b>mitzva,</b> as such an amount would not render the blood as cooked. To counter this, the verse <b>teaches us</b> that blood requires no application of salt.
+
+### Part 8
+§ The Gemara discusses <b>the</b> matter <b>itself: Ze’eiri says</b> that <b>Rabbi Ḥanina says:</b> With regard to <b>blood that one cooked, one does not transgress</b> a prohibition <b>by</b> drinking <b>it. Rava was sitting and saying this <i>halakha</i>. Abaye raised an objection to</b> him from a <i>baraita</i> (<i>Tosefta</i>, <i>Karetot</i> 2:19): If <b>one curdled blood and consumed it, or</b> in a case <b>where one melted</b> forbidden <b>fat and swallowed it,</b> even though he changed its form, he is <b>liable.</b> This demonstrates that even after its form is changed, the blood’s status remains unchanged.
+
+### Part 9
+Rava responded: This is <b>not difficult,</b> as <b>here,</b> Ze’eiri’s statement relates to a case <b>where he curdled</b> the blood <b>by</b> means of <b>the fire,</b> whereas <b>there,</b> in the case of the <i>baraita</i>, <b>he curdled</b> the blood <b>by</b> means of <b>the sun.</b> Blood curdled <b>by</b> means of <b>a fire cannot return</b> to its former state, so one is not liable, whereas blood curdled <b>by</b> means of <b>the sun can return</b> to its former state, so one is liable.
+
+### Part 10
+Abaye objected: But <b>even</b> when blood is curdled <b>by</b> means of <b>the sun, let us say</b> that <b>since it was disqualified</b> from being presented on the altar, <b>it was disqualified,</b> i.e., excluded, from the prohibition against consuming blood; <b>as Rabbi Mani inquired of Rabbi Yoḥanan:</b> With regard to <b>blood that was congealed and one ate it, what is</b> the <i>halakha</i>? Rabbi Yoḥanan responded: He is not liable; <b>since it was disqualified</b> from being presented on the altar, <b>it shall be disqualified</b> from the prohibition against consuming blood. Rava <b>was silent</b> and had no answer.
+
+### Part 11
+Abaye <b>said to him: Perhaps here</b> the <i>baraita</i> is <b>certainly</b> referring <b>to</b> the blood of <b>the external sin offerings,</b> which is sprinkled on the external altar in the Temple courtyard, whereas <b>there</b> Ze’eiri is referring <b>to</b> the blood of <b>the inner sin offerings,</b> which is sprinkled inside the Sanctuary.
+
+### Part 12
+Rava <b>said</b> to him: <b>You have reminded me of a matter, as Rabbi Ḥisda says:</b> With regard to <b>blood that became congealed,</b> if it is blood <b>of the</b> external <b>sin offerings and one ate it,</b> he is <b>liable,</b> as <b>the Merciful One states</b> in the Torah: <b>“And</b> the priest <b>shall take</b> of the blood of the sin offering with his finger, <b>and place it</b> upon the corners of the altar of burnt offering” (Leviticus 4:25), and congealed blood <b>is suitable for taking and placing,</b> as one can take the congealed blood and place it upon the altar. By contrast, if it is blood <b>of the inner sin offerings and one ate it,</b> he is <b>exempt,</b> as <b>the Merciful One states</b> in the Torah: <b>“And</b> the priest <b>shall dip</b> his finger in the blood, <b>and sprinkle</b> of the blood” (Leviticus 4:6), <b>and this</b> congealed blood <b>is not suitable for dipping and sprinkling.</b>
+
+### Part 13
+<b>And Rava himself says: Even</b> if there was blood <b>of the inner sin offerings and one ate it,</b> he is <b>liable, since</b> blood <b>corresponding to</b> this blood is <b>suitable</b> to be placed on the altar <b>in</b> the case of <b>the external sin offerings. Rav Pappa says: Therefore,</b> according to the same reasoning, in the case of <b>the blood of a donkey that became congealed and one ate it,</b> he is <b>liable,</b> despite the fact that a donkey’s blood is not fit to be brought as an offering, <b>since</b> blood <b>corresponding to</b> this blood <b>is suitable</b> to be placed on the altar <b>in</b> the case of <b>the external sin offerings.</b>
+
+### Part 14
+In the context of the <i>halakhot</i> of blood, <b>Rav Giddel says</b> that <b>Ze’eiri says: Blood, whether moist or dry, interposes</b> during ritual immersion. The Gemara <b>raises an objection</b> from a <i>baraita</i> (<i>Tosefta</i>, <i>Mikvaot</i> 6:9): With regard to <b>blood, ink, honey, or milk</b> on a person’s skin, when <b>they are dry, they interpose</b> during immersion; but when <b>they are moist, they do not interpose.</b> The Gemara explains: This is <b>not difficult; this</b> statement of Rav Giddel is referring to a case <b>where</b> the blood <b>adheres</b> to the skin, as it has begun to congeal and therefore interposes. <b>That</b> <i>baraita</i> is referring to a case <b>where</b> the blood <b>did not adhere</b> and therefore does not interpose.
+
+### Part 15
+§ The Gemara returns to its interpretation of the verse: “And every meal offering of yours you shall season with salt” (Leviticus 2:13), and asks: <b>For what</b> purpose does the expression <b>“you shall season” come?</b> The Gemara answers: It is written <b>for that which is taught</b> in a <i>baraita</i>: Had the verse stated only: And every meal offering of yours shall be <b>with salt,</b> one <b>might</b> have thought that the <i>halakha</i> is <b><i>tevonehu</i>,</b> a term that will be explained in the Gemara. Therefore, <b>the verse states: “You shall season.”</b> Conversely, <b>had</b> the verse stated only: <b>“You shall season,”</b> one <b>might</b> have thought that this obligation can be fulfilled <b>by</b> means of adding <b>salt water.</b> Therefore, <b>the verse states “with salt.”</b>
+
+### Part 16
+The continuation of the verse: <b>“And you shall not omit [<i>tashbit</i>] salt</b> from your meal offering,” teaches that <b>one should bring salt that never rests [<i>shovetet</i>],</b> i.e., it is found continuously. <b>And what</b> type of salt <b>is this? This</b> is referring to <b>salt of Sodom. And from where</b> is it derived <b>that if one did not find salt of Sodom that he should bring salt of <i>istrokanit</i>,</b> which is quarried from rock? <b>The verse states</b> immediately afterward: “With all your offerings <b>you shall sacrifice</b> salt” (Leviticus 2:13), in order to emphasize that <b>you should sacrifice any</b> type of salt; <b>you should sacrifice</b> salt <b>from any place,</b> even from a location outside of Eretz Yisrael; <b>you should sacrifice</b> salt <b>even on Shabbat;</b> and <b>you should sacrifice</b> salt <b>even in</b> a state of <b>ritual impurity.</b>
+
+### Part 17
+The Gemara clarifies: <b>What</b> is the meaning of the term <b><i>tevonehu</i>? Rabba bar Ulla said: This</b> is what the <i>baraita</i> <b>is saying:</b> One <b>might</b> have thought that <b>one should mix into it [<i>yitabonenu</i>]</b> large quantities of salt, <b>just as</b> one mixes <b>straw [<i>teven</i>] into clay. Abaye said to him: If so,</b> the <i>baraita</i> <b>should have said: <i>Yitabonenu</i>,</b> and not <i>tevonehu</i>. <b>Rather, Abaye said:</b> The <i>baraita</i> is saying that one <b>might</b> have thought <b>one should form</b> the addition of salt <b>just as</b> one builds <b>a building [<i>binyan</i>],</b> by adding layer upon layer. <b>Rava said to him: If so,</b> the <i>baraita</i> <b>should have said: He should build it [<i>yivnenu</i>]</b> and not <i>tevonehu</i>. <b>Rather, Rava said:</b> The <i>baraita</i> states: One <b>might</b> have thought <b><i>tevonehu</i>.</b>
+
+### Part 18
+The Gemara asks: <b>What</b> is meant by <b><i>tevonehu</i>? Rav Ashi said:</b> One <b>might</b> have thought that <b>one should infuse</b> the entire offering with the <b>taste</b> of salt, <b>just as understanding [<i>bina</i>]</b> infuses a person with wisdom. To counter this, <b>the verse states: “You shall season.” How does he act? He brings the limb</b> that is to be sacrificed on the altar <b>and applies salt, and then turns it over and again applies salt, and brings it up</b> to the altar.
+
+### Part 19
+<b>Abaye says: And</b> one acts <b>similarly</b> before placing meat <b>into a pot.</b> If one wishes to cook meat and needs to salt it in order to extract its blood, it is sufficient to apply salt to both sides and let it sit until the blood drains. Then, after it is washed, the meat is ready to be cooked and eaten.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

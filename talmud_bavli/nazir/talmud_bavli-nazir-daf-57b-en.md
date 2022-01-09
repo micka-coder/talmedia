@@ -1,0 +1,27 @@
+
+### Part 1
+<b>as it teaches: But I do not know which</b> one <b>of you.</b> This indicates that the third individual was too far away to detect which of them became impure. The Gemara says: <b>Conclude from</b> the inference from the mishna that it is so.
+
+### Part 2
+§ The mishna taught that the two nazirites <b>shave</b> and cut their hair <b>and bring</b> an offering of impurity and an offering of purity. The Gemara asks: <b>But why</b> are they permitted to shave? <b>Perhaps</b> both of <b>them are not impure, and</b> therefore one of them <b>violates</b> the prohibition against <b>rounding</b> the head, i.e., shaving the hair on the sides of the head (see Leviticus 19:27), when he shaves his hair unnecessarily. Since one of them does not need to shave, he thereby transgresses a mitzva by Torah law. <b>Shmuel said:</b> The mishna is referring <b>to</b> a case where each nazirite was <b>a woman,</b> who is not prohibited from rounding the hair of her head, <b>or a minor boy,</b> who is not obligated in the observance of mitzvot.
+
+### Part 3
+The Gemara analyzes Shmuel’s answer: <b>And let</b> Shmuel <b>establish</b> the mishna as referring <b>to a male who reached majority, and</b> the reason it is permitted is because <b>rounding the entire head,</b> not merely its corners, is <b>not called rounding</b> as prohibited by the Torah. <b>From</b> the fact that <b>he does not establish</b> the mishna in <b>this</b> manner, <b>conclude from it</b> that <b>Shmuel maintains</b> that <b>rounding the entire head</b> is <b>called rounding.</b>
+
+### Part 4
+<b>Mar Zutra taught this <i>halakha</i> of Shmuel</b> with regard <b>to the latter clause</b> of the following mishna (59b): <b>A nazirite who has uncertain impurity and</b> whose status as <b>a confirmed leper is uncertain may eat sacrificial food after sixty days and shaves four times.</b> One shaving is for his uncertain status as an impure nazirite, one is at the end of his term of naziriteship, and two are due to his status as a leper. A similar problem arose: <b>But</b> as he is not definitely obligated to shave, he <b>violates the</b> prohibition against <b>rounding</b> the head. <b>Shmuel said:</b> The mishna is referring <b>to a woman or a minor boy,</b> who are not prohibited from rounding their heads.
+
+### Part 5
+With regard to the same issue, <b>Rav Huna said:</b> An adult <b>who rounds</b> the head <b>of a minor boy is liable</b> to receive lashes, despite the fact that the child himself is not obligated to observe mitzvot. <b>Rav Adda bar Ahava,</b> who disputed this ruling, <b>said to Rav Huna: And</b> with regard to <b>your</b> sons, <b>who shaves them</b> and rounds the corners of their heads? After all, you maintain that an adult may not round the head of a minor. Rav Huna <b>said to him: Ḥova</b> my wife does it, as she is not prohibited from rounding their heads. Rav Adda bar Ahava exclaimed in anger: <b>Ḥova should bury her sons</b> if she acts in this manner. The Gemara reports: During <b>the years that Rav Adda bar Ahava</b> was alive, <b>Rav Huna’s children did not survive.</b> His children died due to the curse pronounced by Rav Adda.
+
+### Part 6
+The Gemara asks: <b>Since both</b> Rav Huna and Rav Adda <b>maintain</b> that <b>rounding the entire head is called rounding, with regard to what do they disagree?</b> What is the reason for their respective rulings? The Gemara explains: <b>Rav Huna,</b> who prohibits an adult male from rounding the head of a minor but permits a woman to do so, <b>maintains</b> that the association between the two prohibitions in the verse: <b>“You shall not round the corners of your heads, neither shall you destroy the corners of your beard”</b> (Leviticus 19:27), teaches: <b>Whoever has</b> the prohibition of the <b>destruction</b> of the beard also <b>has</b> the prohibition of <b>rounding. And these women, since they are not</b> included <b>in</b> the prohibition of <b>destruction,</b> as they do not have beards, <b>they are not</b> included in the prohibition of <b>rounding either.</b>
+
+### Part 7
+<b>And Rav Adda bar Ahava,</b> who permits anyone to shave a minor boy’s head, <b>maintains:</b> Both <b>one who rounds and one who is rounded are included</b> in the phrase “you shall not round,” which is stated in the plural. <b>And</b> in this manner the verse <b>juxtaposes one who rounds to one who is rounded: Wherever one who is rounded is liable, the one who rounds is also liable; and</b> with regard to <b>this minor boy, since he himself is not liable to be punished</b> for this transgression, an adult who <b>rounds</b> his head <b>is also not liable</b> due to this action.
+
+### Part 8
+The Gemara asks: <b>Shall we say</b> that the issue of whether one who <b>rounds the entire head</b> is considered to have rounded its corners <b>is</b> a dispute between <b><i>tanna’im</i>? As the Sages taught</b> in a <i>baraita</i>, with regard to a verse that deals with the shaving of a leper: “He shall shave all his hair; <b>his head</b> and his beard and his eyebrows, even all his hair he shall shave off” (Leviticus 14:9). <b>Why</b> must <b>the verse state:</b> “His head,” after it has already stated: “All his hair”? The <i>baraita</i> explains that <b>since it is stated: “You shall not round the corners of your heads”</b> (Leviticus 19:27),
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

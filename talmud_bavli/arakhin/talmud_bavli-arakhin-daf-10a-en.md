@@ -1,0 +1,45 @@
+
+### Part 1
+<b>and</b> the month that was <b>intercalated,</b> added for the <b>leap year,</b> was <b>thirty</b> days, and <b>last year we turned two</b> months that are generally deficient into <b>full</b> months, which meant that it had eight full months instead of the usual six. Consequently, <b>remove</b> from consideration the <b>three</b> months that were made deficient this year <b>corresponding to the three</b> extra months that were made full last year, <b>and</b> the moon is <b>restored to its place,</b> i.e., it is properly aligned with the months. Rabbi Yehuda HaNasi <b>said to him: Lamp of Israel!</b> Indeed, <b>so it was.</b>
+
+### Part 2
+<strong>MISHNA:</strong> <b>No fewer than twenty-one</b> trumpet <b>blasts are</b> sounded daily <b>in the Temple,</b> as each day three blasts were sounded for the opening of the gates in the morning, nine for the daily morning offering, and nine for the daily afternoon offering, totaling twenty-one. <b>And no more than forty-eight are</b> ever sounded on a single day. This would occur on the Friday of <i>Sukkot</i>, when they would sound an additional twelve blasts during the ritual of drawing the water for the water libation; nine for the additional offerings; three to signal the population to cease their work before Shabbat; and three more to mark the beginning of Shabbat.
+
+### Part 3
+When accompanying their song with instruments, the Levites <b>do not use fewer than two lyres and do not use more than six.</b> When flutes are played, <b>they do not use fewer than two flutes and do not use more than twelve. And</b> there are <b>twelve days during the year when the flute plays before the altar: At</b> the time of <b>the slaughter of the first Paschal offering,</b> on the fourteenth of Nisan; <b>and at</b> the time of <b>the slaughter of the second Paschal offering,</b> on the fourteenth of Iyyar; <b>and on the first festival</b> day <b>of Passover; and on the festival of <i>Shavuot</i>; and on</b> all <b>eight days of the festival of <i>Sukkot</i>. And one would not play with a copper flute; rather, one would play with a flute of reed, because its sound is</b> more <b>pleasant. And one would conclude</b> the music <b>only with a single flute, because it concludes</b> the music <b>nicely.</b>
+
+### Part 4
+The Temple musicians <b>were slaves of priests;</b> this is <b>the statement of Rabbi Meir. Rabbi Yosei says:</b> The musicians were not slaves, but Israelites from <b>the family of the house of Pegarim and the family of the house of Tzippara from</b> the city of <b>Emaum,</b> and their lineage was sufficiently pure that <b>they would marry</b> their daughters <b>to</b> members of <b>the priesthood. Rabbi Ḥanina ben Antigonus says: They were Levites.</b>
+
+### Part 5
+<strong>GEMARA:</strong> The mishna teaches that no fewer than twenty-one trumpet blasts are sounded daily in the Temple and no more than forty-eight. The Gemara notes: <b>The mishna is not in accordance with</b> the opinion of <b>Rabbi Yehuda, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says: One may not</b> blow <b>fewer than seven</b> blasts, and <b>one may not</b> blow <b>more than sixteen</b> blasts.
+
+### Part 6
+The Gemara asks: <b>With regard to what</b> principle <b>do</b> the <i>tanna</i> of the mishna and Rabbi Yehuda <b>disagree?</b> The Gemara explains that <b>Rabbi Yehuda holds:</b> A series of blasts consisting of <b><i>tekia</i>, <i>terua</i>, <i>tekia</i> is</b> counted as <b>one</b> unit. <b>And the Rabbis hold: A <i>tekia</i></b> is counted as <b>a discrete</b> unit <b>and a <i>terua</i></b> is also counted as <b>a discrete</b> unit, <b>and</b> the final <b><i>tekia</i></b> is again counted as <b>a discrete</b> unit. They agree with regard to the sequence and the number of the blasts; their disgreement is only with regard to how the blasts are tallied.
+
+### Part 7
+The Gemara asks: <b>What is the reasoning of Rabbi Yehuda?</b> As <b>it is written</b> in the verse: <b>“And you shall sound [<i>utkatem</i>] a <i>terua</i>”</b> (Numbers 10:5), <b>and it is written: “A <i>terua</i> they will sound [<i>yitke’u</i>]”</b> (Numbers 10:6). <b>Conclude from</b> the fact that the Torah uses a verb from the root <i>tekia</i> when referring to a <i>terua</i> that <b>a <i>tekia</i>, <i>terua</i>, and <i>tekia</i></b> together constitute <b>one</b> unit. <b>And</b> how do <b>the Rabbis</b> interpret these verses? They explain that <b>these</b> verses <b>come</b> to teach that each <i>terua</i> blast is accompanied by <b>a plain</b> blast, a <i>tekia</i>, <b>preceding it and</b> another <b>plain</b> blast <b>following it.</b>
+
+### Part 8
+The Gemara asks: <b>And what is the reasoning</b> of <b>the Rabbis? As it is written: “And when congregating the people you shall sound a <i>tekia</i> and shall not sound a <i>terua</i>”</b> (Numbers 10:7). <b>And if it enters your mind</b> that a series of <b><i>tekia</i>, <i>terua</i>, and <i>tekia</i> are</b> considered <b>one</b> unit, would <b>the Merciful One say</b> to <b>perform</b> only <b>half a mitzva?</b> Rather, each sound constitutes a separate mitzva. The Gemara asks: <b>And</b> how does <b>Rabbi Yehuda</b> explain this verse? The Gemara answers: <b>That</b> single <i>tekia</i> mentioned in the context of congregating the people was blown <b>merely as a signal</b> to the people to assemble, not for the purpose of fulfilling a mitzva, which, in Rabbi Yehuda’s opinion, always comes in units of three sounds.
+
+### Part 9
+The Gemara asks: <b>In accordance with whose</b> opinion <b>is that which Rav Kahana said?</b> As Rav Kahana said: <b>There is</b> to be <b>no</b> pause <b>between a <i>tekia</i> and a <i>terua</i> at all,</b> but rather they are sounded in one continuous series of blasts. <b>In accordance with whose</b> opinion is this statement? It is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda.</b> The Gemara asks: Isn’t that <b>obvious?</b> Why was it necessary to point this out?
+
+### Part 10
+The Gemara answers: It is not obvious that Rav Kahana’s statement is in accordance with the opinion of Rabbi Yehuda. <b>Lest you say</b> that Rav Kahana <b>comes</b> to teach his <i>halakha</i> <b>even in accordance with</b> the opinion of <b>the Rabbis,</b> and that he is coming <b>to exclude</b> only the opinion <b>of Rabbi Yoḥanan, who says:</b> If <b>one heard nine blasts in nine</b> different <b>hours on the day</b> of Rosh HaShana, despite the considerable gap between them, <b>he has fulfilled</b> his obligation. One might have thought that Rav Kahana meant only that there should not be such long gaps between the sounds. Therefore, the Gemara <b>teaches us</b> that Rav Kahana’s ruling is in accordance with the opinion of Rabbi Yehuda, as he does not allow any pause at all between the shofar blasts.
+
+### Part 11
+The Gemara asks: <b>And</b> how do you know that this was Rav Kahana’s intent? One can <b>say it is indeed so,</b> that Rav Kahana holds in accordance with the opinion of the Rabbis and he merely excludes the opinion of Rabbi Yoḥanan. The Gemara answers that <b>if so, what is</b> the meaning of the phrase <b>“at all”</b> when Rav Kahana said that there is no pause between a <i>tekia</i> and a <i>terua</i> at all? This phrase indicates that Rav Kahana does not allow even a slight pause between blasts, which is in accordance with the opinion of Rabbi Yehuda.
+
+### Part 12
+§ The mishna teaches that there are <b>twelve days during the year when the flute plays</b> before the altar, and it proceeds to list them. The Gemara asks: <b>What is different</b> about <b>these</b> days enumerated in the mishna that the flute is played before the altar specifically on those occasions? The Gemara answers: They are unique, <b>since</b> these are the days <b>on which the individual completes</b> the full <b><i>hallel</i>.</b>
+
+### Part 13
+<b>As Rabbi Yoḥanan says in the name of Rabbi Shimon ben Yehotzadak:</b> There are <b>eighteen days</b> a year <b>on which the individual completes</b> the full <b><i>hallel</i>: The eight days of the festival</b> of <i>Sukkot</i>, including the Eighth Day of Assembly; <b>and the eight days of Hanukkah; and the first festival day of Passover; and the festival day of Assembly,</b> i.e., <i>Shavuot</i>. <b>And in the Diaspora,</b> where a second day is added to each Festival due to uncertainty over the precise date, there are <b>twenty-one days: The nine days of the festival</b> of <i>Sukkot</i>; <b>and the eight days of Hanukkah; and the</b> first <b>two festival days of Passover; and the two festival days of Assembly,</b> i.e., <i>Shavuot</i>.
+
+### Part 14
+The Gemara asks: <b>What is different</b> about <b>the festival</b> of <i>Sukkot</i>, <b>that we say</b> <i>hallel</i> <b>every day, and what is different</b> about <b>Passover, that we do not say</b> <i>hallel</i>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

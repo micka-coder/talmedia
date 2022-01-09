@@ -1,0 +1,66 @@
+
+### Part 1
+by <b>which he lowered her monetary</b> value, diminishing the amount of money that her father will receive for her betrothal. <b>But</b> with regard to <b>a wound,</b> by <b>which he did not lower her monetary</b> value, <b>Rabbi Elazar did not</b> even <b>raise a dilemma.</b>
+
+### Part 2
+<b>Rabbi Yosei bar Ḥanina said:</b> Rabbi Yoḥanan is discussing a case <b>where</b> someone <b>wounded her on her face, and he</b> thereby <b>lowered her monetary</b> value, as this affects the amount of money that her father will receive for her betrothal.
+
+### Part 3
+§ The mishna teaches: <b>One who injures a Canaanite slave belonging to others</b> is <b>liable</b> for all of the five types of indemnity. Rabbi Yehuda says: Canaanite slaves do not have humiliation, so one who injures a slave pays only the other four types of indemnity. <b>What is the reasoning of Rabbi Yehuda?</b> The Gemara explains: The <b>verse states</b> with regard to the indemnity of humiliation: <b>“When men strive together, a man and his brother”</b> (Deuteronomy 25:11). The formulation “and his brother” teaches that the payment of compensation for humiliation is applicable <b>with regard to someone who has</b> a relationship of <b>brotherhood</b> with a Jew. This is <b>excluding</b> a Canaanite <b>slave, who does not have</b> a relationship of <b>brotherhood</b> with Jews. <b>And the Sages,</b> who hold that a Canaanite slave is included in the <i>halakhot</i> of compensation for humiliation, maintain that <b>he is</b> the Jews’ <b>brother with regard to</b> the observance of <b>mitzvot,</b> as a Canaanite slave is obligated to observe most mitzvot.
+
+### Part 4
+The Gemara challenges: <b>If that is so,</b> then <b>according to Rabbi Yehuda,</b> who holds that slaves are not in the category of brothers, <b>conspiring witnesses</b> who testify that a Canaanite <b>slave</b> committed a sin punishable by capital punishment <b>should not be put to death</b> by the court, <b>as it is written: “You shall do unto him as he conspired to do unto his brother”</b> (Deuteronomy 19:19), and the slave is not considered a brother. <b>Rava said</b> that <b>Rav Sheshet said: The</b> same <b>verse states</b> with regard to conspiring witnesses: <b>“And you shall put away the evil from your midst,”</b> indicating that the punishment for conspiring witnesses should be applied <b>in any case,</b> including when they testified about a slave.
+
+### Part 5
+The Gemara raises another challenge: <b>If that is so,</b> then <b>according to the Sages,</b> who hold that slaves are in the category of brothers, a Canaanite <b>slave should be fit for kingship,</b> as it is written: “One from among your brothers shall you set a king over you” (Deuteronomy 17:15). The Sages <b>say</b> in response: <b>But according to your reasoning,</b> the <i>halakha</i> disqualifying <b>a convert</b> from being king <b>should pose a difficulty for you according to all</b> opinions, both according to the opinion of the Sages and of Rabbi Yehuda: Why is a convert not fit to be a king, as he is certainly in the category of brother? The Gemara answers: <b>Rather, the verse states: “One from among your brothers</b> shall you set a king over you,” which indicates that the king must be <b>from the choicest among your brothers,</b> which disqualifies both converts and slaves.
+
+### Part 6
+The Gemara challenges further: <b>If that is so,</b> then <b>according to the Sages,</b> who hold that slaves are in the category of brothers, a Canaanite <b>slave should be fit to bear witness, as it is written: “And behold, the witness is a false witness, and has testified falsely against his brother”</b> (Deuteronomy 19:18). If a slave is considered a brother, why is he not eligible to testify in court?
+
+### Part 7
+<b>Ulla said: You cannot say</b> that a slave is fit to bear <b>witness,</b> because the <i>halakha</i> concerning the <b>testimony</b> of a slave <b>is derived by an <i>a fortiori</i></b> inference <b>from</b> the <i>halakha</i> concerning the testimony of <b>a woman: And just as a woman, who is fit to enter into the congregation,</b> i.e., to marry a Jew of fit lineage, <b>is</b> nevertheless <b>disqualified from bearing witness,</b> so too, with regard to <b>a slave, who is not fit to enter the congregation, is it not logical that</b> he is <b>disqualified from bearing witness?</b>
+
+### Part 8
+The Gemara counters this derivation: <b>What</b> is notable <b>about a woman?</b> She is notable <b>in that she is not fit to</b> undergo the mitzva of <b>circumcision.</b> Would <b>you say</b> that from the fact that a woman is disqualified from bearing witness one can derive that the same is true <b>for a slave, who is fit to</b> undergo <b>circumcision?</b> The Gemara responds: The <i>halakha</i> of <b>a minor shall prove</b> that one’s fitness to undergo circumcision is not germane to one’s qualification to bear witness, <b>as</b> a minor <b>is</b> included <b>in</b> the mitzva to undergo <b>circumcision, and</b> yet he <b>is disqualified from bearing witness.</b>
+
+### Part 9
+This is countered: <b>What</b> is notable <b>about a minor?</b> He is notable <b>in that he is not</b> obligated <b>in</b> the performance of <b>mitzvot.</b> Would <b>you say</b> that from the fact that a minor is disqualified from bearing witness one can derive that the same is true <b>for a slave, who is</b> obligated <b>in</b> the performance of <b>mitzvot?</b> The Gemara responds: The <i>halakha</i> of <b>a woman shall prove</b> the matter, <b>as she is</b> obligated <b>in</b> the performance of <b>mitzvot and is disqualified from bearing witness.</b>
+
+### Part 10
+<b>And the derivation has reverted</b> to its starting point. <b>The aspect of this</b> case <b>is not like the aspect of that</b> case, <b>and the aspect of that</b> case <b>is not like the aspect of this</b> case, as each case has its own unique <i>halakha</i>. <b>Their common denominator</b> is <b>that</b> both a woman and a minor <b>are not</b> obligated <b>in</b> the performance of <b>all the mitzvot and are disqualified from bearing witness. I will also bring</b> the case of <b>the slave</b> for inclusion in this <i>halakha</i>, <b>as he is</b> also <b>not</b> obligated <b>in</b> the performance of <b>all the mitzvot and is disqualified from bearing witness.</b>
+
+### Part 11
+This derivation is rejected: <b>What</b> is notable <b>about their common denominator?</b> It is notable <b>in that</b> a woman or a minor <b>is not a man,</b> and this is why they are disqualified from bearing witness. Would <b>you say</b> that from the fact that they are disqualified from bearing witness one can derive that the same is true <b>for a slave, who is a man?</b>
+
+### Part 12
+The Gemara offers a different derivation: <b>Rather, derive</b> the <i>halakha</i> that a slave is disqualified from bearing witness <b>from</b> that of <b>a robber,</b> who is disqualified from bearing witness. The Gemara objects: <b>What</b> is notable <b>about a robber?</b> He is notable <b>in that his actions caused him</b> to be disqualified. Would <b>you say</b> that from the fact that a robber is disqualified from bearing witness one can derive that the same is true <b>for a slave, whose actions did not cause him</b> to be unfit?
+
+### Part 13
+The Gemara answers: <b>Rather, derive</b> the <i>halakha</i> <b>from a robber and from one of these</b> other two, either a woman or a minor. Their common denominator is that they do not observe all the mitzvot and are disqualified from bearing witness. So too, a slave does not observe all the mitzvot and is disqualified from bearing witness.
+
+### Part 14
+<b>Mar, son of Ravina, said</b> another derivation. <b>The verse states: “Fathers shall not be put to death for children”</b> (Deuteronomy 24:16), meaning that people <b>shall not be put to death based on</b> the testimony of <b>fathers who do not have</b> common <b>lineage [<i>ḥayis</i>] with</b> their <b>children.</b> This is referring to Canaanite slaves, whose children are not considered to be related to them. <b>For if</b> it <b>enters your mind</b> to interpret the verse according to its straightforward meaning, <b>as we say: “Fathers shall not be put to death for children,”</b> meaning <b>by the testimony of</b> their <b>children,</b> then <b>let the Merciful One write: Fathers shall not be put to death for their children. What</b> does the verse teach by stating only: <b>“Children,”</b> without the word their? <b>Learn from</b> this formulation <b>that</b> people <b>shall not be put to death based on</b> the testimony of <b>fathers who do not have</b> common <b>lineage with</b> their <b>children.</b>
+
+### Part 15
+The Gemara challenges this: <b>If that is so,</b> when the end of the verse states: <b>“Nor shall children be put to death for fathers”</b> (Deuteronomy 24:16), does this <b>also</b> mean that people <b>shall not be put to death based on</b> the testimony of <b>children who do not have</b> common <b>lineage with</b> their <b>fathers? But</b> if that were the case, it would <b>also</b> be the case that <b>a convert</b> would be <b>disqualified from bearing witness,</b> as one who converts no longer shares common lineage with his parents.
+
+### Part 16
+The Sages <b>say</b> in response: <b>How can</b> these cases <b>be compared?</b> With regard to <b>a convert, although he has no</b> common <b>lineage</b> with those <b>above</b> him, i.e., his parents, <b>he</b> does <b>have</b> common <b>lineage</b> with those <b>below</b> him, i.e., his children. This serves <b>to exclude a slave, who has no</b> common <b>lineage either</b> with those <b>above</b> him <b>or</b> with those <b>below</b> him.
+
+### Part 17
+The Sages prove that a convert is fit to bear witness: <b>As, if</b> it <b>enters your mind</b> that <b>a convert is disqualified from bearing witness,</b> then <b>let the Merciful One write: Fathers shall not be put to death for their children, according to</b> the interpretation <b>that we say:</b> Fathers <b>shall not be put to death based on the testimony of</b> their <b>children; and let the Merciful One</b> also <b>write: “Nor shall children be put to death for fathers,” from which you learn two</b> <i>halakhot</i>: <b>One,</b> that <b>children shall not be put to death by</b> the <b>testimony of</b> their <b>fathers, and another,</b> that people <b>shall not be put to death based on</b> the testimony of <b>children who do not have</b> common <b>lineage with</b> their <b>fathers,</b> i.e., converts.
+
+### Part 18
+The Gemara continues the statement: <b>And</b> the <i>halakha</i> with regard to <b>a slave</b> being disqualified from bearing witness <b>is derived by an <i>a fortiori</i></b> inference <b>from</b> the <i>halakha</i> of <b>a convert: And just as</b> with regard to <b>a convert, that it is</b> the case concerning those <b>above</b> him <b>that he has no</b> common <b>lineage, but</b> with those <b>below</b> him <b>he</b> does <b>have</b> common <b>lineage,</b> and he is <b>disqualified from bearing witness,</b> then with regard to <b>a slave, who has no</b> common <b>lineage</b> with those <b>above</b> him <b>or</b> those <b>below</b> him, all the more so <b>is it not logical that he is disqualified from bearing witness?</b>
+
+### Part 19
+The Gemara continues the statement: <b>Rather, due to</b> the fact <b>that the Merciful One</b> did not write the verse that way, but instead <b>wrote: “Fathers shall not be put to death for children,” which indicates</b> that people <b>shall not be put to death based on</b> the testimony of <b>fathers who do not have</b> common <b>lineage with</b> their <b>children, learn from</b> this formulation that with regard to <b>a slave, who has no</b> common <b>lineage</b> with those <b>above</b> him <b>or</b> those <b>below</b> him, <b>he</b> is the one <b>who is disqualified from bearing witness. But</b> with regard to <b>a convert, since he has</b> common <b>lineage</b> with those <b>below</b> him, he is <b>fit to bear witness.</b>
+
+### Part 20
+<b>And if you would say: Let the Merciful One write: Nor shall children be put to death for their fathers, why do I</b> need <b>that</b> which <b>the Merciful One wrote: “Nor shall children be put to death for fathers,” which indicates</b> that people <b>shall not be put to death based on</b> the testimony of <b>children who do not have</b> common <b>lineage</b> with their <b>fathers?</b> The Gemara answers: <b>Since</b> the Merciful One <b>wrote: “Fathers shall not be put to death for children,”</b> He <b>also wrote</b> in the same manner: <b>“Nor shall children be put to death for fathers.”</b>
+
+### Part 21
+§ The mishna (87a) teaches: With regard to <b>a deaf-mute, an imbecile, or a minor, an encounter with them is disadvantageous,</b> since one who injures them is liable. But if they were the ones who injured, they are exempt. The Gemara relates an incident: <b>The mother of Rav Shmuel bar Abba from</b> the city of <b>Hagroneya was married to Rabbi Abba. She wrote,</b> i.e., signed over, her <b>property to Rav Shmuel bar Abba, her son. After she died,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

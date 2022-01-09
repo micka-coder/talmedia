@@ -1,0 +1,96 @@
+
+### Part 1
+<strong>GEMARA:</strong> The mishna teaches that the placement of the blood of a sin offering precedes the sprinkling of the blood of a burnt offering, whereas the burning of the limbs of a burnt offering precedes the burning of the portions of a sin offering. The Gemara asks: <b>From where are these matters</b> derived? The Gemara answers: This is <b>as the Sages taught</b> in a <i>baraita</i> discussing a verse about the consecration of the Levites: “Then let them take a young bull, and its meal offering, fine flour mingled with oil; <b>and a second young bull you shall take for a sin offering”</b> (Numbers 8:8).
+
+### Part 2
+The <i>baraita</i> explains: <b>If</b> this verse <b>comes to teach that they are two</b> bulls, this is superfluous, as it <b>is already stated: “And offer the one for a sin offering and the other for a burnt offering”</b> (Numbers 8:12). <b>Why</b> must <b>the verse state: “And a second young bull you shall take for a sin offering”? As</b> one <b>might</b> have thought <b>that</b> the <b>sin offering should precede all</b> the <b>rites of</b> the <b>burnt offering,</b> therefore <b>the verse states: “And a second young bull you shall take for a sin offering,”</b> which indicates that the sin offering actually comes second to the burnt offering.
+
+### Part 3
+The <i>baraita</i> continues: <b>If</b> the verse had stated only that the sin offering is the <b>second bull,</b> one <b>might</b> have thought that the <b>burnt offering precedes</b> the <b>sin offering with regard to all its rites.</b> Therefore, <b>the verse states: “And offer the one for a sin offering and the other for a burnt offering,”</b> indicating that the sin offering precedes the burnt offering. <b>How</b> can <b>these</b> verses be reconciled? The placement of the <b>blood of</b> the <b>sin offering precedes</b> the sprinkling of the <b>blood of</b> the <b>burnt offering because it effects acceptance,</b> whereas the burnt offering does not effect atonement. And burning the <b>limbs of</b> the <b>burnt offering</b> on the altar precedes burning the portions of the sin offering, in fulfillment of the phrase: “And a second young bull you shall take for a sin offering.”
+
+### Part 4
+The Gemara asks: <b>But why</b> do all four placements of the blood of the sin offering precede the sprinkling of the blood of the burnt offering? <b>Let</b> only the <b>first placement</b> of blood, <b>which effects atonement, take precedence, and those</b> other placements should <b>not</b> come before the sprinkling of the blood of the burnt offering.
+
+### Part 5
+<b>Ravina said:</b> In the verse <b>here, we are dealing with</b> the <b>sin offering</b> brought by <b>the Levites</b> for their consecration. <b>And even though</b> it does not effect atonement and <b>is</b> therefore <b>comparable to a burnt offering, the Merciful One states</b> that the sin offering <b>precedes</b> the burnt offering with regard to the presentation of the blood. This indicates that in general, all four placements of the blood of a sin offering precede the sprinkling of the blood of the burnt offering, despite the fact that only the first placement effects atonement. <b>In the West,</b> Eretz Yisrael, <b>they say</b> there is another answer: <b>Once</b> the priest <b>commenced with the placements</b> of the blood of the sin offering, he <b>completes</b> all of them before sprinkling the blood of the burnt offering.
+
+### Part 6
+§ <b>A dilemma was raised before</b> the Sages: If there is <b>blood of a sin offering and limbs of a burnt offering</b> to be sacrificed, <b>which of them precedes</b> the other? Does the <b>blood of</b> the <b>sin offering take precedence, due to</b> the fact <b>that it effects acceptance? Or perhaps</b> the <b>limbs of</b> the <b>burnt offering take precedence, due to</b> the fact <b>that they are entirely</b> burned <b>in the flames</b> of the altar.
+
+### Part 7
+The Gemara suggests: <b>Come</b> and <b>hear,</b> as the mishna teaches that the <b>blood of a sin offering precedes</b> the <b>blood of a burnt offering.</b> One can infer from this that the blood of the sin offering does not precede all elements of the burnt offering; it is only <b>with regard to the blood of</b> the <b>burnt offering that it takes precedence,</b> whereas it does <b>not take precedence with regard to the limbs of</b> the <b>burnt offering.</b>
+
+### Part 8
+The Gemara rejects this proof: <b>On the contrary,</b> the opposite conclusion can be inferred <b>from the latter clause</b> of the mishna, which teaches that <b>limbs of a burnt offering precede the portions of</b> the <b>sin offering</b> consumed on the altar. This indicates that <b>it is</b> only <b>with regard to the portions of</b> the <b>sin offering</b> consumed on the altar <b>that</b> the limbs of the burnt offering <b>take precedence,</b> but they do <b>not take precedence with regard to the blood of</b> the <b>sin offering.</b> The Gemara concludes: <b>Rather, no</b> inference is <b>to be learned from this</b> mishna concerning this matter.
+
+### Part 9
+<b>A dilemma was raised before</b> the Sages: If there is <b>blood of a burnt offering</b> to be sprinkled <b>and portions of a sin offering</b> to be burned, <b>which of them precedes</b> the other? Does <b>the blood of</b> the <b>burnt offering take precedence, as it comes from</b> an offering that is burned in its <b>entirety</b> on the altar? <b>Or perhaps the portions of</b> the <b>sin offering</b> to be burned <b>take precedence because they come from</b> an offering that <b>effects atonement.</b>
+
+### Part 10
+The Gemara suggests: <b>Come</b> and <b>hear,</b> as the mishna teaches that <b>the blood of</b> the <b>sin offering precedes the blood of</b> the <b>burnt offering.</b> One can infer from this that <b>it</b> is only <b>the blood of</b> the <b>sin offering that precedes the blood of</b> the <b>burnt offering, but the portions</b> of the <b>sin offering</b> to be burned do <b>not</b> take precedence.
+
+### Part 11
+The Gemara rejects this proof: <b>On the contrary,</b> the opposite conclusion can be inferred <b>from the latter clause</b> of the mishna, which teaches that <b>the limbs of</b> the <b>burnt offering precede</b> the <b>portions of</b> the <b>sin offering</b> to be consumed on the altar. This indicates that <b>it is</b> only <b>the limbs of</b> the <b>burnt offering that precede the portions of</b> the <b>sin offering</b> to be burned, <b>but the blood of</b> the <b>burnt offering</b> does <b>not.</b> The Gemara again concludes: <b>Rather, no</b> inference is <b>to be learned from this</b> mishna concerning this dilemma.
+
+### Part 12
+<b>A dilemma was raised before</b> the Sages: If there is <b>blood of a burnt offering and blood of a guilt offering</b> to be sprinkled on the altar, <b>which of them precedes</b> the other? Does the <b>blood of the burnt offering take precedence, as it comes from</b> an offering that is burned in its <b>entirety</b> on the altar? <b>Or perhaps the blood of a guilt offering takes precedence, as it effects atonement.</b>
+
+### Part 13
+The Gemara suggests: <b>Come</b> and <b>hear,</b> as the mishna teaches that <b>the blood of</b> the <b>sin offering precedes the blood of</b> the <b>burnt offering.</b> One can infer from here: <b>But</b> the <b>blood of a guilt offering</b> does <b>not</b> precede the blood of a burnt offering.
+
+### Part 14
+The Gemara rejects this proof: <b>By right</b> the mishna <b>should have taught</b> this <i>halakha</i> with regard to <b>blood of a guilt offering.</b> One could then have inferred that the blood of a sin offering, which takes precedence over the blood of a guilt offering, also precedes blood of a burnt offering. <b>But since</b> the mishna <b>wants to teach the latter clause:</b> The burning of <b>the limbs of a burnt offering precedes the portions of a sin offering,</b> it also mentions a sin offering in the former clause.
+
+### Part 15
+The Gemara explains why the latter clause had to mention a sin offering rather than a guilt offering: <b>As, had</b> the mishna <b>taught</b> this principle of the latter clause with regard <b>to the portions of a guilt offering, I would say</b> that <b>it is</b> only <b>the portions of a guilt offering</b> over <b>which</b> the limbs of a burnt offering <b>take precedence,</b> but they <b>do not take precedence over the portions of a sin offering,</b> as a sin offering is of greater sanctity than a guilt offering. <b>Due to this</b> reason the mishna in the former clause also <b>taught</b> this principle with regard to <b>a sin offering,</b> and one cannot infer from this that its <i>halakha</i> does not apply to the guilt offering.
+
+### Part 16
+The Gemara suggests: <b>Come</b> and <b>hear,</b> as the mishna states that <b>a sin offering precedes a guilt offering.</b> One can infer from this that <b>it</b> is only <b>a sin offering that precedes a guilt offering, but a burnt offering</b> does <b>not. What, is</b> the mishna <b>not</b> referring to the sprinkling of the <b>blood,</b> which would indicate that the blood of a burnt offering does not precede the blood of a guilt offering?
+
+### Part 17
+The Gemara rejects this explanation: <b>No,</b> it is referring <b>to the</b> precedence of the <b>sacrificial portions</b> consumed on the altar. The Gemara adds that the language of the mishna <b>is also precise</b> in this regard, <b>as it teaches</b> that the sin offering takes precedence <b>due to</b> the fact <b>that its blood is placed</b> on the four corners of the altar, rather than simply teaching: It is placed on the four corners of the altar, as it would have taught had it been speaking of the blood. One can therefore <b>conclude from</b> the statement of the mishna that its subject is the sacrificial portions burned on the altar, not the blood.
+
+### Part 18
+§ The mishna teaches: <b>A sin offering precedes</b> a guilt offering due to the fact that its blood is placed on the four corners of the altar and the remainder of its blood is poured on the base of the altar. The Gemara challenges: <b>On the contrary,</b> the <b>guilt offering</b> should <b>precede</b> the sin offering, <b>as it has a fixed</b> minimal <b>value</b> of two shekels, as stated in the Torah (see Leviticus 5:15), whereas the sin offering has no minimal value. The Gemara explains: <b>Even so,</b> the fact that the sin offering requires <b>more</b> placements of the blood <b>on the altar</b> is of <b>greater</b> importance.
+
+### Part 19
+The mishna further teaches: <b>A guilt offering precedes a thanks offering</b> and the nazirite’s ram due to the fact that it is an offering of the most sacred order. The Gemara challenges: <b>On the contrary, the thanks offering and</b> the <b>nazirite’s ram</b> should <b>precede</b> the guilt offering, <b>as they require loaves</b> to be brought with them. The Gemara explains: <b>Even so,</b> the fact that the guilt offering is an <b>offering of the most sacred order</b> is of <b>greater</b> importance.
+
+### Part 20
+The mishna teaches: <b>A thanks offering and</b> the <b>nazirite’s ram</b> precede a peace offering due to the fact that they are eaten for only one day. The Gemara challenges: <b>On the contrary, peace offerings</b> should <b>precede</b> the thanks offering and the nazirite’s ram, <b>as they are</b> offered <b>by the community as well as by the individual.</b> A communal peace offering is sacrificed on the festival of <i>Shavuot</i>, but there is no communal thanks offering or nazirite’s ram. The Gemara explains: <b>Even so,</b> the fact that the thanks offering and the nazirite’s ram <b>are eaten for</b> only <b>one day</b> is of <b>greater</b> importance.
+
+### Part 21
+<b>A dilemma was raised before</b> the Sages: If there is <b>a thanks offering and a nazirite’s ram</b> to be sacrificed, <b>which of them precedes</b> the other? Does the <b>thanks offering take precedence, as it requires four types of loaves,</b> whereas the nazirite’s ram requires only two? <b>Or perhaps</b> the <b>nazirite’s ram takes precedence, as there are other</b> offerings whose <b>blood</b> is placed on the altar together <b>with</b> the nazirite’s ram. A nazirite is required to sacrifice a burnt offering and a sin offering, as well as a ram. The Gemara answers: <b>Come</b> and <b>hear</b> a <i>baraita</i> that explicitly discusses this case: <b>This</b> offering <b>precedes that</b> offering, <b>as this</b> offering, i.e., the thanks offering, <b>requires four types of loaves, and that</b> offering, the nazirite’s ram, <b>requires only two types of loaves.</b>
+
+### Part 22
+The mishna teaches: <b>And the peace offering precedes the firstborn</b> offering due to the fact that the peace offering requires two placements of the blood on the altar that are four, and the placement of hands on the animal’s head, and libations, and the wavings of the breast and thigh. The Gemara challenges: <b>On the contrary,</b> the sacrifice of the <b>firstborn</b> offering should <b>precede</b> the peace offering, <b>as it is sanctified from</b> the <b>womb and it is eaten</b> only <b>by the priests,</b> whereas the peace offering may be eaten by non-priests. The Gemara explains: <b>Even so,</b> the fact that <b>additional mitzvot</b> are performed in the case of the peace offering is of <b>greater</b> importance.
+
+### Part 23
+The mishna further teaches: <b>The firstborn</b> offering <b>precedes</b> the animal tithe offering because it is sanctified from the womb and is eaten only by the priests. The Gemara challenges: <b>On the contrary,</b> the animal <b>tithe</b> offering should <b>precede</b> the firstborn offering, <b>as</b> if one mistakenly called the ninth or eleventh animal that emerged from the pen the tenth, those animals that came out <b>before or after</b> the tenth are also <b>sanctified.</b> The Gemara explains: <b>Even so,</b> the fact that the firstborn is <b>sanctified from</b> the <b>womb</b> is of <b>greater</b> importance.
+
+### Part 24
+The mishna teaches: The animal <b>tithe</b> offering <b>precedes bird</b> offerings due to the fact that it requires slaughtering, whereas the bird’s nape is pinched; and furthermore, there are two elements of the animal tithe offering that have the status of offerings of the most sacred order: Its blood, which is presented on the altar, and its portions that are burned on the altar. The Gemara challenges: <b>On the contrary, bird</b> offerings should <b>precede</b> the animal tithe offering, <b>as</b> they are <b>offerings of the most sacred order,</b> whether they are burnt offerings or sin offerings. The Gemara explains: <b>Even so,</b> the fact that the animal tithe is a <b>type of</b> offering that requires <b>slaughtering</b> is of <b>greater</b> importance.
+
+### Part 25
+§ <b>Ravina bar Sheila says</b> with regard to the sacrificial portions that are consumed on the altar: <b>Sacrificial portions of offerings of lesser sanctity that left</b> the Temple courtyard <b>before the sprinkling of</b> the <b>blood are disqualified. And the <i>tanna</i></b> of the mishna also <b>taught:</b> The animal tithe offering precedes bird offerings <b>due to</b> the fact <b>that it</b> requires <b>slaughtering, and there are</b> two elements of the animal tithe offering that have the status of <b>offerings of the most sacred order: Its blood and its sacrificial portions</b> consumed on the altar.
+
+### Part 26
+The Gemara explains how Ravina bar Sheila interprets the mishna in support of his opinion: <b>Granted, there are no sacrificial portions</b> consumed on the altar <b>from a bird</b> offering, <b>but</b> its <b>blood at least is</b> sprinkled. Why, then, does the mishna mention the blood? <b>Rather, is it not</b> mentioned in order to <b>teach us</b> that the status of the <b>sacrificial portions</b> consumed on the altar from the animal tithe offering and other offerings of lesser sanctity is <b>comparable to</b> the status of <b>its blood?</b>
+
+### Part 27
+The Gemara explains the implications of this comparison. <b>Just as its blood</b> referred to in the mishna is blood <b>before</b> its <b>sprinkling</b> on the altar, as afterward it no longer has any sanctity, <b>so too,</b> the <b>sacrificial portions</b> mentioned in the mishna are from <b>before</b> the <b>sprinkling</b> of the blood, <b>and</b> the mishna <b>calls them</b> at this stage <b>offerings of the most sacred order. And</b> therefore one can infer from this that <b>just as</b> the animal tithe’s <b>blood is disqualified by leaving</b> the Temple courtyard, <b>so too,</b> the <b>sacrificial portions</b> to be burned on the altar <b>are disqualified by leaving</b> the courtyard.
+
+### Part 28
+The Gemara attempts to prove the opinion of Ravina bar Sheila. <b>Let us say</b> that the following dispute between <i>amora’im</i> <b>supports his</b> statement: With regard to <b>flesh of offerings of lesser sanctity that left</b> the Temple courtyard <b>before the sprinkling of</b> the <b>blood, Rabbi Yoḥanan says</b> that it is <b>fit</b> and <b>Reish Lakish says</b> that it is <b>disqualified.</b>
+
+### Part 29
+The Gemara clarifies this dispute: <b>Rabbi Yoḥanan says</b> that it is <b>fit, since it will ultimately leave</b> the Temple courtyard, as offerings of lesser sanctity may be eaten anywhere within the walls of Jerusalem. <b>Reish Lakish says</b> that it is <b>unfit,</b> as <b>its time to leave</b> the Temple courtyard <b>has not yet arrived</b> because the flesh cannot be taken out until after the sprinkling of the blood. The Gemara infers that these <i>amora’im</i> <b>disagree only with regard to</b> the <b>flesh</b> of the offering, which will eventually leave the Temple courtyard. <b>But with regard to</b> the <b>sacrificial portions</b> of the offering, which will never leave the courtyard, they do <b>not</b> disagree, as Rabbi Yoḥanan concedes that those portions are disqualified.
+
+### Part 30
+The Gemara rejects this proof: <b>The same is true with regard to</b> the <b>sacrificial portions,</b> i.e., these <i>amora’im</i> <b>also disagree</b> in that case, as Rabbi Yoḥanan holds they are fit. <b>And</b> the reason <b>that</b> they <b>disagree</b> explicitly <b>with regard to</b> the <b>flesh is to convey to you the far-reaching nature of</b> the opinion of <b>Reish Lakish, as even</b> with regard to the <b>flesh, which will ultimately leave</b> the Temple courtyard, <b>he says</b> that it is disqualified, because <b>its time to leave</b> the courtyard <b>has not yet arrived.</b>
+
+### Part 31
+The Gemara suggests: <b>Let us say</b> that this dispute between <i>amora’im</i> is <b>parallel to</b> a dispute between <b><i>tanna’im</i>:</b> With regard to the <b>sacrificial portions of offerings of lesser sanctity that left</b> the Temple courtyard <b>before the sprinkling of</b> the <b>blood, Rabbi Eliezer says</b> that one who benefits <b>from them</b> is <b>not</b> liable for <b>misuse</b> of consecrated property,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

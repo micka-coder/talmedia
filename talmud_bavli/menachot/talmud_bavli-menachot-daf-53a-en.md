@@ -1,0 +1,63 @@
+
+### Part 1
+<b>“And this is the law of the meal offering: The sons of Aaron shall sacrifice it before the Lord in front of the altar…And that which is left of it Aaron and his sons shall eat; it shall be eaten as <i>matzot</i>”</b> (Leviticus 6:7–9). These verses demonstrate that there is a general requirement that meal offerings must be brought as <i>matza</i>. Rabbi Perida <b>said to</b> Rabbi Ami: <b>I do not raise the dilemma</b> with regard to the source of the <b>mitzva</b> <i>ab initio</i>, as that is clearly derived from these verses. <b>Where I raise the dilemma,</b> it is <b>with regard to</b> the source that indicates this requirement is <b>indispensable,</b> i.e., that if one violated the mitzva and brought a meal offering not as <i>matza</i> the offering is not valid.
+
+### Part 2
+Rabbi Ami <b>said to</b> Rabbi Perida: <b>With regard to</b> the <i>halakha</i> that the requirement that meal offerings must come as <i>matza</i> is <b>indispensable, it is also written: “It shall not be baked as leavened bread”</b> (Leviticus 6:10), <b>but</b> rather must come as <b><i>matza</i>.</b> This additional verse indicates that even after the fact, if a meal offering was not made as <i>matza</i> it is not valid.
+
+### Part 3
+Rav <b>Ḥisda objects to this: But</b> one can <b>say</b> that the verse should be interpreted as follows: <b>“It shall not be baked as leavened bread,”</b> i.e., fully leavened, <b>but</b> it can be brought even if it has been leavened slightly with <b>leavening [<i>siur</i>]</b> dough. Although it does not have the status of leavened bread and is therefore not prohibited by the verse, it also does not have the status of <i>matza</i>.
+
+### Part 4
+The Gemara analyzes Rav Ḥisda’s objection, as there is a dispute among the Sages with regard to the definition of <i>siur</i> (see <i>Pesaḥim</i> 48b). According to Rabbi Meir, <i>siur</i> is dough at the beginning of the leavening process, when its surface has become pale. Conversely, Rabbi Yehuda maintains that <i>siur</i> is dough that has been leavened to the point that it has cracks that look like the antennae of locusts. In this light, the Gemara inquires: This <b><i>siur</i>,</b> mentioned by Rav Ḥisda in his suggested interpretation of the verse, is in accordance <b>with whose</b> opinion? <b>If</b> he is referring to <i>siur</i> as defined <b>by Rabbi Meir,</b> then <b>according to</b> the opinion of <b>Rabbi Yehuda</b> Rav Ḥisda’s objection does not arise, as Rabbi Yehuda maintains this <b>is full-fledged <i>matza</i>.</b> And <b>if</b> Rav Ḥisda is referring to <i>siur</i> as defined <b>by Rabbi Yehuda,</b> then <b>according to</b> the opinion of <b>Rabbi Meir</b> Rav Ḥisda’s objection does not arise either, as Rabbi Meir holds that it <b>is full-fledged leavened bread.</b>
+
+### Part 5
+Furthermore, <b>if</b> Rav Ḥisda is referring to <i>siur</i> as defined <b>by Rabbi Meir,</b> then even <b>according to</b> the opinion of <b>Rabbi Meir</b> himself the objection does not arise. The reason is that <b>from</b> the fact that Rabbi Meir rules <b>that</b> one who eats this <i>siur</i> on Passover <b>is flogged for it,</b> this indicates that <b>it is</b> deemed <b>full-fledged leavened bread. Rather,</b> Rav Ḥisda’s objection arises with regard to leavening dough as defined <b>by Rabbi Yehuda, according to</b> the opinion of <b>Rabbi Yehuda,</b> who maintains that this dough is not considered full-fledged leavened bread.
+
+### Part 6
+<b>Rav Naḥman bar Yitzḥak</b> also <b>objects to</b> Rabbi Ami’s explanation: <b>But</b> one can <b>say</b> that the verse can be interpreted as follows: <b>“It shall not be baked as leavened bread,” but</b> one may bring a meal offering that has been <b>boiled,</b> as this is not leavened bread; although it is also not <i>matza</i>. The Gemara asks: This <b>boiled</b> dough, <b>what is it?</b> It is <b>poached [<i>revikha</i>],</b> as described in the verse: “In a pan it shall be made of oil, when it is soaked [<i>murbekhet</i>]” (Leviticus 6:14). If so, there is no need to derive the <i>halakha</i> of boiled dough from the verse: “It shall not be baked as leavened bread.” <b>If</b> it is a meal offering that must be <b>poached, it is</b> explicitly <b>written with regard to it</b> that it must be <b>poached. And</b> if it is a meal offering that is not to be poached, <b>it is not written with regard to it</b> that it is <b>poached.</b>
+
+### Part 7
+The Gemara challenges: <b>But</b> one can <b>say</b> that the verse: “It shall not be baked as leavened bread,” indicates that with regard to a meal offering <b>about which it is written</b> explicitly that it must be <b>poached,</b> it is a <b>mitzva that</b> it be <b>poached, and</b> with regard to a meal offering <b>about which it is not written</b> that it must be <b>poached,</b> the one who brings the offering can decide: <b>If he wants, let him bring</b> it <b>poached,</b> and <b>if he wants, let him bring</b> it as <b><i>matza</i>.</b> Accordingly, Rabbi Ami’s proof from the verse is inconclusive.
+
+### Part 8
+<b>Ravina</b> also <b>objects to</b> Rabbi Ami’s explanation: <b>But</b> one can <b>say</b> that the verse: <b>“It shall not be baked as leavened bread,”</b> serves <b>to determine</b> that this <b>man</b> who brings a meal offering as leavened bread <b>is</b> liable <b>for</b> violating <b>a mere prohibition, but</b> the meal offering itself is <b>not invalid.</b>
+
+### Part 9
+All these objections indicate that the verse: “It shall not be baked as leavened bread,” can be interpreted in ways other than that suggested by Rabbi Ami. Accordingly, the Gemara asks: <b>Rather, from where do we</b> derive that all meal offerings not brought as <i>matza</i> are not valid? The Gemara answers: We derive it <b>as it is taught</b> in a <i>baraita</i> discussing a verse concerning meal offerings: “It shall be of <b><i>matza</i>”</b> (Leviticus 2:5): One <b>might</b> have thought that it is only <b>a mitzva</b> <i>ab initio</i> for a meal offering to be of <i>matza</i>. Therefore, <b>the verse states: “It shall be,”</b> which indicates that <b>the verse established it</b> as <b>an obligation,</b> i.e., if the meal offering was not brought as <i>matza</i> it is not valid.
+
+### Part 10
+§ <b>Rabbi Perida raised</b> another <b>dilemma before Rabbi Ami: From where</b> is it derived with regard <b>to all the meal offerings</b> that must be brought as <i>matza</i> <b>that they are kneaded with lukewarm</b> water so that the dough will be baked well, as only a small amount of oil is added, <b>and</b> that <b>one must watch over them</b> to ensure <b>that they do not</b> become <b>leavened</b> while kneading and shaping them? Shall <b>we derive this</b> <i>halakha</i> <b>from</b> the prohibition concerning leavened bread on the festival of <b>Passover, as it is written: “And you shall watch over the <i>matzot</i>”</b> (Exodus 12:17), which indicates that one must watch over any dough that is supposed to be made into <i>matza</i>, to ensure that it does not become leavened?
+
+### Part 11
+Rabbi Ami <b>said to</b> Rabbi Perida: The <i>halakha</i> of meal offerings is not derived from Passover, as <b>it is written in</b> the context of a meal offering <b>itself: “It shall be [<i>tehiye</i>] of <i>matza</i>”</b> (Leviticus 2:5), which can be read as meaning: <b>Preserve [<i>haḥaye</i>]</b> <i>matza</i>, i.e., preserve the <i>matza</i> as it is, and do not let it become leavened.
+
+### Part 12
+The Gemara asks: <b>But didn’t you</b> already <b>derive</b> from the term “it shall be” that the requirement that a meal offering must be made as <i>matza</i> <b>is indispensable?</b> The Gemara answers: <b>If so,</b> that this term serves to teach only one <i>halakha</i>, <b>let the verse write: It is <i>matza</i>. What</b> is the reason that it writes: <b>“It shall be</b> of <i>matza</i>”? <b>Learn from it two</b> conclusions, both that the requirement that it be made as <i>matza</i> is indispensable and that one must watch over the <i>matza</i> to ensure that it does not become leavened.
+
+### Part 13
+§ The Gemara relates an incident that involves the aforementioned Rabbi Perida. <b>The Sages said to Rabbi Perida:</b> The Sage <b>Rabbi Ezra,</b> who is of especially fine lineage, <b>a grandson of Rabbi Avtolus, who</b> in turn <b>is a</b> tenth-generation descendant <b>of Rabbi Elazar ben Azarya, who is a</b> tenth-generation descendant <b>of Ezra</b> the Scribe, <b>is standing</b> and waiting <b>at the gate</b> of the house and seeks entry. Rabbi Perida <b>said</b> to the Sages: <b>What is</b> the need for <b>all this</b> detail about Rabbi Ezra’s lineage?
+
+### Part 14
+Rabbi Perida elaborated: <b>If he is a man of Torah</b> study, he is <b>worthy</b> of entry on his own account, regardless of his ancestors. And <b>if he is</b> both <b>a man of Torah</b> study <b>and a man of lineage,</b> he is also <b>worthy</b> of entry. <b>But if</b> he is <b>a man of lineage and not a man of Torah,</b> better for <b>fire to devour him</b> than for him to enter my house. In this case, his lineage is to his detriment, as it highlights his failure to become a Sage like his ancestors. The Sages <b>said to</b> Rabbi Perida: Rabbi Ezra <b>is a man of Torah</b> study. Rabbi Perida <b>said to them:</b> If so, <b>let him enter and come.</b>
+
+### Part 15
+When Rabbi Ezra entered his house, Rabbi Perida <b>saw that</b> Rabbi Ezra’s <b>mind was troubled</b> with embarrassment at having to wait outside. Therefore, Rabbi Perida taught a homily to comfort Rabbi Ezra. <b>He began and said</b> an interpretation of the verse: <b>“I have said to the Lord: You are my Lord; I have no good but in You [<i>tovati bal alekha</i>]”</b> (Psalms 16:2). Rabbi Perida interpreted: <b>The congregation of Israel said before the Holy One, Blessed be He: Master of the Universe, give me credit, as I made Your</b> Name <b>known in the world,</b> as indicated by the phrase: “You are my Lord.”
+
+### Part 16
+God <b>said to</b> the congregation of Israel: <b>I give no credit to you [<i>tovati bal alekha</i>].</b> God explained: <b>I give credit only to</b> the three Patriarchs, <b>Abraham, Isaac, and Jacob, who</b> were the <b>first who made My</b> Name <b>known in the world, as it is stated: “As for the holy that are in the earth, they are the excellent [<i>ve’addirei</i>] in whom is all My delight”</b> (Psalms 16:3). The holy in the earth are the Patriarchs, in whom God delights. In this manner Rabbi Perida alluded to the importance of the ancestors of the Jewish people, including Ezra the Scribe, from whom Rabbi Ezra was descended.
+
+### Part 17
+<b>When</b> Rabbi Ezra <b>heard</b> Rabbi Perida <b>say</b> the word: <b>Excellent [<i>addir</i>],</b> he too <b>began</b> a homily, one that plays with different forms of this term, <b>and said: Let the <i>Addir</i> come and exact punishment for the <i>addirim</i> from the <i>addirim</i> in the <i>addirim</i>.</b>
+
+### Part 18
+Rabbi Ezra explained this statement: With regard to <i>Addir</i> in the phrase: <b>Let the <i>Addir</i> come, this is the Holy One, Blessed be He, as it is written: “The Lord on high is mighty [<i>addir</i>]”</b> (Psalms 93:4). In the phrase: <b>And exact punishment for the <i>addirim</i>, these</b> <i>addirim</i> <b>are the Jews, as it is stated: “The excellent [<i>ve’addirei</i>] in whom is all My delight”</b> (Psalms 16:3). In the phrase: <b>From the <i>addirim</i>, these</b> <i>addirim</i> <b>are the Egyptians, as it is written</b> with regard to the splitting of the Red Sea: <b>“The mighty [<i>addirim</i>] sank as lead in the waters”</b> (Exodus 15:10). In the phrase: <b>In the <i>addirim</i>, these</b> <i>addirim</i> <b>are the waters, as it is stated: “Above the voices of many waters, the mighty [<i>addirim</i>] breakers of the sea”</b> (Psalms 93:4).
+
+### Part 19
+Rabbi Ezra stated another, similar, homiletic interpretation: <b>Let <i>yadid</i>, son of <i>yadid</i>, come and build <i>yadid</i> for <i>yadid</i> in the portion of <i>yadid</i>, and let <i>yedidim</i> achieve atonement through it.</b>
+
+### Part 20
+Rabbi Ezra explained this statement: With regard to <i>yadid</i> in the phrase: <b>Let <i>yadid</i>, this is King Solomon, as it is written</b> after Solomon’s birth: <b>“And He sent by the hand of Nathan the prophet, and he called his name Yedidya, for the Lord’s sake”</b> (II Samuel 12:25).
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

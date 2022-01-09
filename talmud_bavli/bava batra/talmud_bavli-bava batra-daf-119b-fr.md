@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>que le merite est engendre par le biais</b> d'une personne qui <b>est meritante et la responsabilite par le biais</b> d'une personne qui <b>est responsable.</b> En consequence, les filles de Zelophehad ont merite que la portion de la Torah concernant un sujet positif soit ecrite a travers elles, et le ramasseur de bois a merite qu'une portion concernant un sujet negatif soit ecrite a travers lui. Ceci conclut la citation de Rabbi Chimon HaShikmoni par Rabbi Hideka.
+
+### Partie 2
+La Guemara enonce son objection : <b>Et s'il vous vient a l'esprit</b> de dire que <b>Eretz Yisrael</b> etait deja <b>en possession</b> du peuple juif avant meme que la terre ne soit attribuee, <b>Qu'est-ce qui etait</b> Moise <b>incertain</b> en ce qui concerne le droit des filles de Zelophehad a percevoir une double portion ; apres tout, la portion de Hepher dans la terre etait en sa possession, et Zelophehad etait le premier-ne ?
+
+### Partie 3
+La Guemara repond : <b>Cette</b> question <b>en soi</b> est ce sur quoi Moise <b>etait incertain</b>, <b>comme il est ecrit : "Et je vous la donnerai en heritage [<i>morasha</i>] : Je suis le Seigneur"</b> (Exode 6:8). Moise n'etait pas sur de la maniere dont il fallait comprendre ce verset : <b>C'est</b> <b>un heritage [<i>yerusha</i>] pour vous de vos peres,</b> tel qu'il est considere en possession de ceux qui ont quitte l'Egypte ; <b>ou peut-etre</b> le verset indique une autre chose, <b>que</b> la generation de ceux qui ont quitte l'Egypte <b>laisse [<i>morishin</i>]</b> les portions a d'autres <b>mais ils n'heritent pas [<i>yoreshin</i>]</b> les portions eux-memes, parce qu'ils sont destines a mourir dans le desert.
+
+### Partie 4
+La Guemara poursuit : <b>Et</b> Dieu <b>resout</b> la question <b>pour lui :</b> Le verset enseigne <b>les deux. Il</b> est <b>un heritage pour vous de vos peres</b> et est considere dans votre possession ; <b>et</b> aussi la generation qui a quitte l'Egypte <b>laisse mais elle n'herite pas. Et c'est</b> le sens de ce <b>qui est ecrit</b> dans le chant que le peuple juif a chante apres la fente de la mer Rouge : <b>Vous les ferez entrer, et vous les planterez dans la montagne de votre heritage"</b> (Exode 15, 17). Il <b>n'est pas dit : Tu nous feras entrer, mais plutot : "Tu les feras entrer,"</b> ce qui <b>enseigne que</b> dans leur chant, le peuple juif <b>prophetisait</b> que leur generation n'entrerait jamais en Eretz Yisrael, <b>mais ils ne savaient pas ce qu'ils prophetisaient.</b>
+
+### Partie 5
+§ La Guemara poursuit sa discussion sur l'incident impliquant les filles de Zelophehad. Le verset indique : <b>"Et elles se presenterent devant Moise, et devant le pretre Eleazar, et devant les princes et toute l'assemblee"</b> (Nombres 27:2). La Gemara demande : Est-il <b>possible</b> que les filles de Zelophehad se soient <b>presentees devant Moise</b> puis devant Eleazar pour poser leur question, <b>et qu'ils ne leur aient rien dit ; et</b> qu'ensuite les filles se soient <b>presentees devant les princes et toute l'assemblee</b> pour les interroger ? Comment les princes ou l'assemblee connaitraient-ils une reponse si Moise et Eleazar ne la connaissent pas ?
+
+### Partie 6
+La Gemara repond : <b>Il faut plutot transposer le verset et l'interpreter :</b> D'abord, les filles sont allees vers la congregation et sont finalement venues vers Moise, c'est <b>la declaration de Rabbi Yoshiya. Abba Hanan dit au nom de Rabbi Eliezer:</b> Ceux qui sont enumeres dans le verset <b>etaient</b> tous <b>assis dans la maison d'etude, et</b> les filles de Zelophehad <b>sont allees et se sont presentees devant tous</b> en meme temps. Elles n'ont pas ete interrogees separement ; l'ordre du verset reflete plutot leur stature.
+
+### Partie 7
+La Guemara clarifie : <b>A propos de quoi sont-ils en desaccord ? </b> Un <b>Sage,</b> Abba Hanan, <b>soutient</b> qu'on peut <b>faire honneur a un eleve en presence du maitre,</b> de sorte que le verset mentionnerait tous les autres meme s'ils etaient en presence de Moise ; <b>et</b> un <b>Sage,</b> Rabbi Yoshiya, <b>soutient</b> qu'on peut <b>ne pas montrer</b> d'honneur a un eleve en presence du maitre, de sorte que seul Moise aurait ete mentionne s'ils etaient tous au meme endroit.
+
+### Partie 8
+La Guemara conclut : <b>Et la <i>halakha</i></b> est qu'on peut <b>faire honneur</b> a un eleve, <b>et la <i>halakha</i></b> est qu'on peut <b>ne pas faire honneur</b>. La Guemara demande : Ceci est <b>difficile,</b> car il y a une contradiction entre <b>la</b> une <b><i>halakha</i> et la</b> autre <b><i>halakha</i>.</b> La Gemara repond : La contradiction entre <b>la</b> une <b><i>halakha</i> et la</b> autre <b><i>halakha</i></b> n'est <b>pas difficile,</b> car <b>cette regle</b>, selon laquelle on peut faire preuve d'honneur, a ete enoncee <b>lorsque son maitre</b> lui-meme <b>accorde</b> l'eleve <b>l'honneur.</b> Dans ce cas, les autres peuvent aussi faire preuve d'honneur envers l'eleve. Et <b>cette</b> decision, selon laquelle on ne peut pas montrer de l'honneur, a ete enoncee <b>lorsque son enseignant ne lui accorde pas d'honneur.</b>
+
+### Partie 9
+§ Les Sages <b>enseignent : Les filles de Zelophehad sont sages, elles sont interpretes</b> de versets, et <b>elles sont justes.</b>
+
+### Partie 10
+La Guemara prouve ces affirmations. Qu'ils soient <b>sages</b> ressort du fait <b>qu'ils ont parle en fonction du moment,</b> c'est-a-dire qu'ils ont presente leur cas a un moment propice. <b>Comme le dit Rabbi Shmuel bar Rav Yitzhak :</b> La tradition <b>enseigne que Moise notre maitre etait assis et interpretait dans</b> la Torah <b>la proportion au sujet d'hommes dont les freres maries etaient morts sans enfant, comme il est dit : "Si des frères habitent ensemble,</b> et que l'un d'eux meurt et n'a pas d'enfant, la femme du mort ne sera pas mariée A l'étranger A quelqu'un qui n'est pas de sa famille ; le frère de son mari viendra A elle et la prendra pour lui comme femme" (Deutéromoine 25:5). Les filles de Zelophehad <b>ont dit a</b> Moise : <b>Si nous sommes</b> chacune <b>consideree comme un fils, donne-nous</b> chacune <b>un heritage comme un fils;</b> et <b>si ce n'est pas le cas, notre mere doit contracter un mariage levirat. Immediatement</b> apres avoir entendu leur revendication, le verset enregistre : <b>"Et Moise porta leur cause devant le Seigneur"</b> (Nombres 27:5).
+
+### Partie 11
+Qu'ils soient <b>interpretes</b> de versets peut etre vu par le fait <b>qu'ils disaient : Si</b> notre pere <b>avait eu un fils, nous n'aurions pas parle;</b> mais comme il n'avait pas de fils, nous remplissons le role de l'heritier. La Gemara demande : <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Ils diraient, s'il avait eu <b>une fille,</b> nous n'aurions pas parle ? <b>Rabbi Yirmeya a dit : Supprimez de</b> la <i>baraita</i> <b>ici</b> le mot : <b>Fille.</b> Comme elles etaient elles-memes filles, cela ne peut avoir ete leur pretention. <b>Abaye dit</b> que le <i>baraita</i> n'a pas besoin d'etre emende, et doit etre compris comme suit : <b>Meme si</b> il y avait <b>une fille d'un fils</b> de Zelophehad, <b>on n'aurait pas parle,</b> car elle aurait ete l'heritiere.
+
+### Partie 12
+Qu'ils sont justes</b> se voit au fait <b>qu'ils</b> ne se sont pas precipites pour <b>se marier,</b> mais <b>ont plutot</b> attendu <b>pour</b> epouser ceux <b>qui leur convenaient. Rabbi Eliezer ben Yaâkov enseigne : Meme le plus jeune</b> a se marier <b>parmi eux ne s'est pas marie</b> a <b>moins de quarante ans</b>.
+
+### Partie 13
+La Gemara demande : <b>C'est le cas ? Mais le Rav Hisda ne dit-il pas : </b> Si une femme <b>se marie</b> alors qu'elle a <b>moins de vingt</b> ans <b>elle est en mesure de <b>faire des enfants jusqu'a</b> l'age de <b>soixante ans ; </b> si elle se marie lorsqu'elle a <b>vingt</b> ans <b>ages</b> ou plus, elle peut <b>donner naissance jusqu'a</b> l'age de <b>quarante ans;</b> si elle se marie lorsqu'elle a <b>quarante</b> ans <b>ages</b> ou plus, elle ne peut <b>plus du tout</b> donner naissance</b>. Dans ce cas, comment les filles de Zelophehad auraient-elles pu attendre l"?A¢ge de quarante ans pour se marier ? <b>Au contraire, comme ce sont des femmes justes, un miracle a ete accompli pour elles, comme</b> celui fait pour <b>Jochebed. Comme il est ecrit : "Un homme de la maison de Levi alla prendre pour femme une fille de Levi"</b> (Exode 2:1).
+
+>Crédit : édition William Davidson
+>License : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Part 1
+<b>And if Moses, our teacher, was a lover of the Jewish people, why did he delay them in the wilderness forty years?</b> The elderly man <b>said to him: My teacher, you dismiss me with this</b> retort? Rabbi Yoḥanan ben Zakkai <b>said to him: Fool! And will our perfect Torah not be</b> as worthy <b>as your frivolous speech?</b> Your claim can easily be refuted.
+
+### Part 2
+Rabbi Yoḥanan ben Zakkai cites a proof that <i>Shavuot</i> does not need to occur specifically on a Sunday. <b>One verse states:</b> “Even to the morrow after the seventh week <b>you shall number fifty days;</b> and you shall present a new meal offering to the Lord” (Leviticus 23:16), <b>and one verse,</b> the preceding one, apparently contradicts this when it <b>states:</b> “And you shall count for you from the morrow after the day of rest, from the day that you brought the sheaf of the waving; <b>seven weeks shall there be complete.”</b> Is the festival of <i>Shavuot</i> seven full weeks after Passover, i.e., counting from Sunday through Shabbat seven times; or is it fifty days after Passover?
+
+### Part 3
+The Gemara explains: <b>How so,</b> i.e., how can one reconcile these two verses? <b>Here,</b> the verse that mentions seven complete weeks, is referring to a year <b>when the festival</b> of Passover <b>occurs on Shabbat.</b> In such a year, the fifty-day period between Passover and <i>Shavuot</i> contains seven complete weeks, from Sunday through Shabbat. <b>There,</b> the verse that defines the period as fifty days, is referring to a year <b>when the festival</b> of Passover <b>occurs in the middle of the week.</b>
+
+### Part 4
+The Gemara presents <b>a mnemonic</b> for several other proofs in refutation of the claim of the Boethusians: That <b>of Rabbi Eliezer: Number; Rabbi Yehoshua: Count; Rabbi Yishmael: From the <i>omer</i>; Rabbi Yehuda: Below.</b>
+
+### Part 5
+<b>Rabbi Eliezer says:</b> The previous proof <b>is not necessary, as</b> the verse <b>states:</b> “Seven weeks <b>you shall number for you;</b> from the time the sickle is first put to the standing grain you shall begin to number seven weeks” (Deuteronomy 16:9). The term “for you” indicates that the <b>counting</b> of the weeks <b>is dependent upon</b> the decision of the <b>court, as they know</b> how to <b>calculate the new</b> months, upon which the date of the Festival depends. Therefore, when the verse states: <b>“The morrow after the day of rest [<i>hashabbat</i>]”</b> (Leviticus 23:16), it means: <b>The morrow after the Festival,</b> as the determination of Festivals is by the court. This serves to <b>exclude</b> the interpretation that the counting starts after the <b>Shabbat of Creation,</b> i.e., a regular weekly Shabbat, <b>whose counting</b> can be performed <b>by every person,</b> not exclusively by the court.
+
+### Part 6
+Citing a different proof, <b>Rabbi Yehoshua says:</b> The <b>Torah said</b> to <b>count days,</b> as it is stated: “A month of days” (Numbers 11:20), <b>and</b> then <b>sanctify</b> the <b>month</b> with offerings. And the Torah also said to <b>count days</b> from Passover <b>and</b> then <b>sanctify the festival of <i>Shavuot</i></b> with offerings, as it is stated: “You shall count fifty days” (Leviticus 23:16). From this comparison, one can learn that <b>just as</b> the start of the counting toward the new <b>month is known</b> even <b>before it comes,</b> as one begins counting toward the following new month on the first day of a month, <b>so too</b> the start of the counting toward <b>the festival of <i>Shavuot</i> is known</b> even <b>before it comes,</b> as one begins counting toward <i>Shavuot</i> on a fixed day of the month.
+
+### Part 7
+The Gemara elaborates: <b>And if you say</b> that the festival of <b><i>Shavuot</i> always</b> occurs the <b>day after Shabbat, how</b> is the counting toward Shavuot <b>known</b> based on <b>what came before it?</b> If the occurrence of <i>Shavuot</i> depends upon a Shabbat, there would be no specific date after Passover upon which the counting occurs yearly.
+
+### Part 8
+<b>Rabbi Yishmael says</b> there is another refutation of the Boethusian interpretation. <b>The Torah said: Bring</b> the <b><i>omer</i></b> offering on the festival <b>on Passover and the two loaves on <i>Shavuot</i>. Just as there,</b> with regard to the offering on the <b>festival</b> of <i>Shavuot</i>, the two loaves are brought at <b>the beginning of the Festival,</b> as it lasts only one day, <b>so too here,</b> with regard to the <b>festival</b> of Passover, the <i>omer</i> must be brought at <b>the beginning of the Festival.</b> If the <i>omer</i> were to always be brought on a Sunday, this might occur at the end of the festival of Passover. For example, if Passover started on a Monday, the <i>omer</i> would be brought only on the next Sunday, at the end of the Festival.
+
+### Part 9
+<b>Rabbi Yehuda ben Beteira says</b> there is yet another refutation. It is <b>stated “<i>shabbat</i>” above</b> (Leviticus 23:15), with regard to starting the counting of the <i>omer</i>, <b>and</b> it is also <b>stated “<i>shabbat</i>” below</b> (Leviticus 23:16), with regard to the commencement of the festival of <i>Shavuot</i>. <b>Just as</b> there, with regard to the <b>festival</b> of <i>Shavuot</i>, it is stated: “Even until the morrow after the seventh week [<i>hashabbat</i>] you shall number fifty days,” <b>and</b> the word <i>shabbat</i> is referring to the <b>beginning of the Festival</b> and it immediately <b>follows</b> the end of the seventh week; <b>so too here,</b> with regard to the bringing of the <i>omer</i>, the word <i>shabbat</i> means <b>Festival,</b> so that the <i>omer</i> offering immediately <b>follows the beginning of the Festival,</b> on the second day of Passover. According to the Boethusians, the commencement of the counting could start well after the beginning of Passover. For example, if Passover occurs on a Sunday, the counting of the <i>omer</i> would start only the following Sunday.
+
+### Part 10
+<b>The Sages taught</b> in a <i>baraita</i>: The verse states: “And you shall count for you from the morrow after the day of rest [<i>hashabbat</i>], from the day that you brought the sheaf of the waving; seven weeks there shall be complete” (Leviticus 23:15). The phrase: <b>“And you shall count for you,”</b> teaches <b>that</b> the mitzva of counting is not a communal obligation. Rather, <b>there should be a counting by each and every</b> person.
+
+### Part 11
+The <i>baraita</i> continues: <b>From the morrow after the day of rest [<i>hashabbat</i>],</b> this means <b>from the morrow after the festival</b> of Passover. <b>Or</b> perhaps this is <b>not</b> the meaning of the verse, but <b>rather</b> it means <b>after the Shabbat of Creation,</b> i.e., Sunday. <b>Rabbi Yosei bar Yehuda says:</b> This cannot be correct, <b>as</b> the verse <b>states:</b> “Even until the morrow after the seventh week <b>you shall number fifty days”</b> (Leviticus 23:16). This teaches that <b>all the countings that you count shall be only fifty days.</b>
+
+### Part 12
+Rabbi Yosei bar Yehuda elaborates: <b>And if you say</b> that the clause: <b>“From the morrow after</b> the day of rest [<i>hashabbat</i>],” is referring to the <b>Shabbat of Creation, sometimes you will find</b> a count of <b>fifty-one</b> days from the first day of Passover, which is the date that the count began the previous year, until <i>Shavuot</i>; <b>and sometimes you will find fifty-two,</b> or <b>fifty-three,</b> or <b>fifty-four,</b> or <b>fifty-five,</b> or <b>fifty-six.</b> For example, in one year, Passover occurs on Shabbat, and the counting of the <i>omer</i> would start on Sunday, the sixteenth of Nisan, and <i>Shavuot</i> would occur fifty days later. Another year, Passover occurs on a Friday, and the counting starts on Sunday, then the date that <i>Shavuot</i> will occur this year is fifty-one days from the sixteenth of Nisan. If Passover occurs on a Thursday, and the counting begins on the following Sunday, <i>Shavuot</i> will occur fifty-two days from the sixteenth of Nisan.
+
+### Part 13
+<b>Rabbi Yehuda ben Beteira says:</b> That proof <b>is not necessary,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

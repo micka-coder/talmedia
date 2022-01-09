@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Rather,</b> the Mishna is <b>not particular</b> with regard to this matter, and there is no consistent pattern. <b>Sometimes it explains first that</b> subject with which <b>it began,</b> and <b>sometimes it explains first that</b> subject <b>with which</b> the introductory line in the mishna <b>finished. And if you wish, say</b> an alternate explanation of the order of the mishna here: With regard to <b>intimations, since they are derived from</b> the <b>exposition</b> of verses and are not explicitly mentioned in the Torah, the <i>tanna</i> cherishes them and <b>explains them first.</b>
+
+### Part 2
+The Gemara asks: If so, <b>let him begin</b> the mishna <b>with that,</b> i.e., intimations, <b>first.</b> The Gemara answers: The <i>tanna</i> <b>begins with substitutes</b> for the language of vows, which are written <b>in the Torah, in the first clause, and then explains intimations, which are derived from</b> the <b>exposition</b> of verses.
+
+### Part 3
+The Gemara asks: <b>This works out well according to the one who said</b> that <b>substitutes</b> for the language of vows <b>are</b> terms for vows in a <b>foreign language.</b> Consequently, they may be considered to have been written in the Torah, as vows are certainly valid regardless of the language in which they are expressed. <b>However, according to the one who says</b> that these substitute terms are simply <b>language that the Sages invented</b> for one <b>to</b> use in taking a <b>vow</b> so as to minimize using God’s name in expressing a vow, <b>what can be said?</b> These include novelties just as intimations do.
+
+### Part 4
+The Gemara responds: <b>Does</b> the mishna explicitly <b>teach</b> the <i>halakha</i> of <b>intimations</b> of vows? <b>Do you not consider it incomplete,</b> missing the phrase that mentions intimations? Once you are inserting this phrase into the mishna, you can <b>also</b> have it <b>precede</b> the clause about substitutes for the language of vows <b>and teach</b> the <i>halakha</i> of <b>intimations</b> at the beginning, so that the mishna reads as follows: <b>All intimations of vows are like vows, and all substitutes</b> for the language <b>of vows are like vows. And these are intimations: One who says to his fellow:</b> I am avowed from you, etc. <b>And these are substitutes</b> for the language of vows: <b><i>Konam</i>, <i>konaḥ</i>, <i>konas</i>.</b>
+
+### Part 5
+§ Apropos the discussion of intimations of vows, the Gemara asks: <b>And where are intimations</b> of vows <b>written,</b> i.e., from where in the Torah is the <i>halakha</i> of intimations of vows derived? The Gemara explains that it is from the verse: <b>“When a man</b> or a woman <b>shall clearly utter a vow, the vow of a nazirite [<i>nazir</i>], to consecrate [<i>lehazir</i>] himself to the Lord”</b> (Numbers 6:2). <b>And it was taught</b> in a <i>baraita</i> that the doubled term <b>“<i>nazir lehazir</i>”</b> serves <b>to render substitutes</b> for the language <b>of nazirite</b> vows <b>like nazirite</b> vows, <b>and intimations of nazirite</b> vows <b>like nazirite</b> vows.
+
+### Part 6
+<b>I have</b> derived <b>only</b> intimations of <b>nazirite</b> vows; <b>from where</b> do I derive intimations of general <b>vows? The verse states: “When a man</b> or woman <b>shall clearly utter a vow, the vow of a nazirite, to consecrate himself to the Lord.”</b> This verse <b>juxtaposes nazirite</b> vows <b>to</b> other <b>vows and</b> other <b>vows to nazirite</b> vows: <b>Just as</b> with regard to <b>nazirite</b> vows, the verse <b>rendered intimations of nazirite</b> vows <b>like nazirite</b> vows, <b>so too,</b> with regard to <b>vows, it rendered intimations of vows like vows.</b>
+
+### Part 7
+<b>And just as</b> with regard to <b>vows,</b> one who breaks his vow <b>transgresses</b> the prohibition: <b>He shall not profane</b> (see Numbers 30:3), <b>and</b> if he does not fulfill his vow in time, he transgresses the prohibition: <b>You shall not delay</b> (see Deuteronomy 23:22), <b>so too,</b> with regard to <b>nazirite</b> vows, <b>he transgresses</b> the prohibition: <b>He shall not profane, and</b> the prohibition: <b>You shall not delay. And</b> furthermore, <b>just as</b> with regard to <b>vows, a father may nullify the vows of his daughter and a husband may nullify the vows of his wife,</b> as written explicitly in the passage concerning vows (Numbers, chapter 30), <b>so too,</b> with regard to <b>nazirite</b> vows, <b>a father may nullify the nazirite</b> vows <b>of his daughter and a husband may nullify the nazirite</b> vows <b>of his wife.</b>
+
+### Part 8
+The Gemara questions this explanation: <b>What is different with regard to nazirite</b> vows, with regard to <b>which it is written “<i>nazir lehazir</i>,”</b> using the doubled term, when with regard to all <b>vows as well it is written: “To utter a vow [<i>lindor neder</i>],”</b> also using a doubled term? <b>Why do I</b> need <b>the juxtaposition</b> of all other vows to nazirite vows in order to derive that intimations of vows are like vows, when this can be derived from the doubled term with regard to general vows?
+
+### Part 9
+The Gemara answers: <b>If</b> the Torah <b>had written: A vow to utter [<i>neder lindor</i>], as it wrote</b> with regard to a nazirite: “The vow of <b>a nazirite, to consecrate himself [<i>nazir lehazir</i>],”</b> it would be <b>as you said,</b> and <b>there</b> would be <b>no need for the juxtaposition. Now that it is written: “To utter a vow [<i>lindor neder</i>],”</b> it is possible to say that <b>the Torah spoke in the language of men,</b> and nothing can be derived from the phrase <i>lindor neder</i>, which is simply a common manner of speech.
+
+### Part 10
+The Gemara asks: <b>This works out well according to the one who holds</b> that <b>the Torah spoke in the language of men, but according to the one who does not hold</b> that <b>the Torah spoke in the language of men,</b> any doubled term comes to teach something. <b>What does he do with this</b> phrase: <b>“To utter a vow [<i>lindor neder</i>]”?</b> The Gemara answers: <b>He expounds it to render intimations of vows like vows</b> themselves. <b>And</b> the verse <b>juxtaposes nazirite</b> vows <b>to</b> other <b>vows</b> to teach that intimations of vows are like vows with regard to nazirite vows, and to teach the other <i>halakhot</i> mentioned above. With regard to the phrase: “The vow of <b>a nazirite, to consecrate himself [<i>nazir lehazir</i>],” he expounds:</b> This <b>teaches</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+then with regard to the case of <b>a disqualified bird sin offering</b> that was pinched at the top of the altar, <b>how</b> does one <b>sprinkle from its blood</b> on the wall of the altar? When the priest raises the bird in his hand in order to sprinkle its blood, the bird <b>is</b> considered to have <b>descended</b> from upon the altar and he cannot sprinkle its blood, as the <i>halakha</i> with regard to all disqualified items is that once they have descended from upon the altar they shall not ascend. Likewise, concerning the blood of <b>other</b> offerings that were <b>disqualified</b> that ascended upon the altar, <b>how</b> does he <b>sprinkle from their blood,</b> since it is sprinkled from the airspace above the altar? Rather, it must be that the airspace above the altar is considered as the altar.
+
+### Part 2
+The Gemara rejects this proof: It is possible that in such cases one does not sprinkle the blood in its normal fashion, but in such a manner <b>that he presses it</b> against the wall of the altar immediately without the blood passing through the air. The Gemara rejects this suggestion: <b>Is this</b> considered <b>sprinkling?</b> It <b>is squeezing,</b> an act that is performed for a bird burnt offering, not for a bird sin offering. Likewise, if one sprinkles the blood of other disqualified offerings in this manner, is <b>this sprinkling? It is pouring.</b>
+
+### Part 3
+<b>And furthermore,</b> with regard to a disqualified bird burnt offering, is <b>the manner of sprinkling in such</b> a fashion? And in the case of other disqualified offerings, is <b>the manner of sprinkling in such</b> a fashion? It is not. Rather, the airspace above the altar must be considered as the altar.
+
+### Part 4
+<b>Rav Ashi said: If</b> the question concerns a case <b>where</b> the priest <b>held</b> the blood or limbs while standing <b>at the top of the altar,</b> they would <b>indeed</b> be considered as having ascended the altar, and shall not descend from it. But <b>when</b> the dilemma was <b>stated</b> with regard to the airspace above the altar, it was with regard to an instance <b>where he suspended them with a pole</b> above the altar, while he himself stood on the floor of the Temple courtyard. <b>What</b> is the <i>halakha</i> in such a case? The Gemara responds that the dilemma <b>shall stand</b> unresolved.
+
+### Part 5
+<strong>MISHNA:</strong> The mishna elaborates on the <i>halakha</i> taught in the previous mishna (86a) that service vessels sanctify items placed in them. <b>The</b> service <b>vessels</b> used for <b>liquids sanctify</b> only <b>liquids</b> used in the service, <b>and</b> the service vessels that serve as <b>dry measures sanctify</b> only <b>dry</b> items used in the service. <b>The</b> service <b>vessels</b> used for <b>liquids do not sanctify dry</b> items, <b>and</b> the service vessels used for <b>dry</b> items <b>do not sanctify liquids.</b> With regard to <b>sacred vessels that were perforated, if one</b> continues to <b>utilize them</b> for a use <b>similar to the use for which they would utilize them</b> previously when <b>they</b> were <b>whole, they</b> continue to <b>sanctify</b> their contents. <b>And if not, they do not sanctify</b> their contents. <b>And all of</b> these vessels <b>sanctify</b> items <b>only</b> when they are <b>in the sacred</b> area, i.e., the Temple courtyard.
+
+### Part 6
+<strong>GEMARA:</strong> With regard to the statement of the mishna that the vessels used for liquids do not sanctify dry items, <b>Shmuel says:</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> with regard to <b>measures</b> used for liquids, i.e., wine or oil. <b>But cups,</b> which are used for collecting the blood of offerings, <b>sanctify</b> dry items as well, <b>as it is stated</b> in the verse: “One silver cup of seventy shekels, after the shekel of the sanctuary; <b>both of them full of fine flour</b> mingled with oil for a meal offering” (Numbers 7:13), indicating that the cups were also fashioned for use with flour, a dry item.
+
+### Part 7
+<b>Rav Aḥa of Difti said to Ravina:</b> The <b>meal offering</b> of the verse <b>is</b> also considered <b>a liquid,</b> as it is mixed with oil, and one cannot derive from it the <i>halakha</i> with regard to items that are entirely dry. Ravina <b>said to him:</b> The verse cited by Shmuel <b>was only necessary to</b> derive the <i>halakha</i> of <b>the dry</b> portions <b>of</b> a meal offering, teaching that even flour that remained dry because it did not get thoroughly mixed with the oil is sanctified by the cups as well. <b>If you wish, say</b> instead: <b>A meal offering,</b> even though it is mixed with oil, is, <b>in comparison to blood, considered as a dry</b> item. Accordingly, one can derive from the verse that the cups sanctify all dry items.
+
+### Part 8
+Additionally, <b>Shmuel says: Service vessels sanctify</b> items <b>only</b> when the vessels are <b>whole,</b> i.e., they do not have a hole; <b>they sanctify only full</b> measures, i.e., when they contain a measurement fit for offering; and <b>they sanctify</b> items <b>only from within them</b> and not items that merely touched their exterior. <b>And some say</b> there is another version of the statement of Shmuel: Service vessels <b>sanctify</b> items <b>only</b> when the vessels are <b>whole, and</b> when they contain <b>full</b> measures, <b>and from inside.</b>
+
+### Part 9
+The Gemara asks: <b>What</b> is the difference <b>between</b> these two versions? The Gemara responds: The difference <b>between them is</b> with regard to <b>heaping measures.</b> According to the first version, that service vessels sanctify only items that are within them, nothing that overflows is included. The Gemara notes that it <b>was taught in a <i>baraita</i></b> in accordance with both versions: Service vessels <b>sanctify</b> items <b>only</b> when they are <b>whole, and</b> only <b>full</b> measurements, <b>and from within them, and inside.</b>
+
+### Part 10
+With regard to the <i>halakha</i> that service vessels sanctify only full measurements, <b>Rabbi Asi says</b> that <b>Rabbi Yoḥanan says: They taught</b> this <i>halakha</i> <b>only when</b> the priest’s initial <b>intention</b> was <b>not to add</b> to that which was already placed inside the vessel. <b>But</b> if <b>his</b> initial <b>intention</b> was <b>to add,</b> then <b>each initial</b> amount placed in the vessel becomes <b>sacred,</b> no matter how small.
+
+### Part 11
+<b>This</b> distinction <b>is also taught</b> in a <i>baraita</i>: With regard to the <i>halakha</i> that service vessels sanctify <b>full</b> measurements, <b>full</b> measurements are <b>nothing other than whole</b> measurements. <b>Rabbi Yosei said: When</b> are full measurements whole ones? It is <b>at a time that</b> the priest’s <b>intention</b> was <b>not to add. But</b> if <b>his intention</b> was <b>to add, each initial</b> amount is <b>sacred.</b>
+
+### Part 12
+§ The mishna teaches that <b>the</b> service <b>vessels</b> used for <b>liquids do not sanctify</b> dry items. With regard to this <i>halakha</i>, <b>Rav says, and some say</b> that <b>Rav Asi</b> says: The service vessels used for liquids <b>do not sanctify</b> dry items to permit them <b>for sacrifice</b> upon the altar, <b>but they sanctify</b> dry items in order for the items <b>to be disqualified</b> by them, i.e., dry items placed in such vessels may be disqualified by that which disqualifies only sanctified items, e.g., if they are touched by one who immersed that day, or if they emerged from the Temple courtyard.
+
+### Part 13
+<b>There are</b> those <b>who teach this</b> statement <b>with regard to this</b> <i>halakha</i>: <b>One may not bring meal offerings, or libations, or meal offerings</b> accompanying <b>an animal, or first fruits, from a mixture</b> containing <i>teruma</i>, since that which may not be consumed by all Jews may not be used for an offering. <b>And needless to say,</b> one may not bring these items <b>from</b> the fruit of a tree that is <b><i>orla</i>,</b> i.e., a tree during the first three years after its planting, from which it is prohibited to eat, <b>or</b> from <b>diverse kinds</b> sown <b>in a vineyard,</b> both of which are prohibited for consumption to priests as well. <b>And if he brought</b> an offering from them, it is <b>not sanctified.</b> With regard to this issue, <b>Rav says, and some say</b> that <b>Rav Asi</b> says: It is <b>not sanctified for sacrifice</b> upon the altar, <b>but</b> it is <b>sanctified</b> in order <b>to be disqualified.</b>
+
+### Part 14
+§ With regard to perforated vessels, <b>the Sages taught:</b> In the case of <b>sacred vessels that were perforated, one may not melt them</b> in order to seal the perforation, <b>and one may not melt lead into them</b> for such a purpose. If the vessels <b>were damaged, one may not repair them.</b> Concerning <b>a knife that was damaged, one may not sharpen</b> the spot of <b>its damage.</b> If the blade <b>separated</b> from the handle, <b>one may not restore it. Abba Shaul says: There was</b> a certain <b>knife in the Temple</b> whose metal was soft and easily damaged, such that when used it would often <b>render</b> animals <b>prohibited,</b> thereby disqualifying them. Accordingly, the <b>priests voted concerning it, and</b> elected to <b>hide it.</b>
+
+### Part 15
+<b>The Sages taught: Priestly vestments are not fashioned</b> by <b>needlework,</b> i.e., by stitching various parts together, but <b>rather</b> through <b>woven work,</b> whereby the entire garment is initially woven into one entity, <b>as it is stated: “Woven work”</b> (Exodus 28:32). If the garments <b>were soiled one may not launder</b> them, <b>neither with natron nor with soap,</b> two common detergents.
+
+### Part 16
+The Gemara asks: <b>But</b> may it be inferred from this that <b>with water one may launder</b> the priestly vestments? <b>Abaye said: This</b> is what the <i>baraita</i> <b>is saying:</b> If the dirtied garments have only <b>reached</b> the point where laundering them <b>with water</b> alone would suffice, <b>one may launder them with natron and soap,</b> as they are not considered soiled.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

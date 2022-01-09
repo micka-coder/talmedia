@@ -1,0 +1,48 @@
+
+### Partie 1
+<b>Il dit a son assistant : Emmene</b> moi loin d'ici, car <b>cette homme</b>, Rabbi Yehuda Nesia, <b>ne desire pas apprendre</b> mais souleve plutot des difficultes qui sont facilement resolues. <b>Et quelle est la raison</b> pour laquelle il ne recoit pas une double portion ? <b>Abaye a dit : Le verset</b> concernant la double portion recue par un fils premier-ne <b>dit :</b> "En lui donnant une double portion <b>de tout ce qu'il possede"</b> (Deuteronome 21:17), indiquant qu'il recoit une double portion dans tout ce qu'<b>il</b> possede, <b>mais pas</b> dans tout ce qu'<b>elle</b> possede.
+
+### Partie 2
+La Gemara demande : <b>Et</b> pourquoi ne pas <b>dire</b> que <b>cette declaration</b> s'applique dans le cas d'un <b>celibataire qui a epouse une veuve,</b> c'est-a-dire, un homme qui epouse une femme qui a deja des enfants d'un autre homme, de sorte que le fils premier-ne est son premier-ne mais pas le sien, <b>mais</b> dans le cas d'un <b>celibataire qui a epouse une vierge, de meme</b> la <i>halakha</i> sera <b>que</b> leur fils premier-ne <b>prendra</b> une double portion de l'heritage de sa mere ?
+
+### Partie 3
+<b>Rav Nahman bar Yitzhak dit :</b> Il existe une derivation differente enseignant cette <i>halakha</i>, car le meme <b>verset indique :</b> "Car il est <b>les premices de sa force [<i>ono</i>]</b> (Deuteronome 21 : 17), indiquant que la <i>halakha</i> de la double portion est enoncee par rapport a <b>sa force, mais pas a sa force,</b> excluant ainsi un fils qui est le premier-ne de sa seule mere.
+
+### Partie 4
+La Gemara conteste : Mais <b>cette</b> verset <b>est necessaire pour</b> deriver la <i>halakha</i> d'un enfant qui <b>est venu</b> au monde <b>apres</b> que sa mere ait donne naissance a des <b>nouveaux-nes non viables</b> qui n'ont pas atteint le terme complet de neuf mois. Ce verset enseigne <b>que</b> un tel fils premier-ne <b>doit etre un premier-ne en ce qui concerne l'heritage,</b> meme s'il n'est pas un premier-ne en ce qui concerne la mitsva de racheter son fils premier-ne. Comment cette <i>halakha</i> est-elle derivee du verset ? L'expression " sa force [<i>ono</i>] " est comprise comme faisant reference au deuil aigu [<i>aninut</i>], de la maniere suivante : Un fils premier-ne en vue de l'heritage d'une terre est uniquement <b>celui dont le pere a le <b>cœur douloureux a son egard</b> lorsqu'il meurt, c'est-a-dire un fils qui vit au-dela de la naissance, <b>a l'exclusion de ce</b> nouveau-ne non viable <b>dont le pere n'a pas le <b>cœur douloureux a son egard</b> lorsqu'il meurt. Par consequent, le prochain fils viable qui nait apres un nouveau-ne non viable est considere comme le premier-ne.
+
+### Partie 5
+La Guemara repond : <b>Si c'est le cas,</b> que le seul but du terme : "Sa force" est d'enseigner que <i>halakha</i>, <b>laissez le verset dire : Car il est le premier fruit de la force [<i>on</i>],</b> en omettant le possessif "son", represente par la lettre <i>vav</i>. <b>Quoi</b> est derive du terme plus developpe : <b>"Sa force [<i>ono</i>]",</b> qui indique specifiquement la force du pere ? <b>Concluez deux</b> conclusions <b>a partir de la,</b> tant en ce qui concerne le deuil qu'en ce qui concerne le statut du premier-ne en tant qu'heritier du pere specifiquement.
+
+### Partie 6
+La Guemara souleve une difficulte : <b>Mais</b> on peut <b>dire encore</b> que <b>cette declaration</b> s'applique dans le cas d'un <b>veuf qui a epouse une vierge,</b> de sorte qu'il a deja un premier-ne de son precedent mariage qui est le premier fruit de sa force. Et le fils ne de lui et de sa seconde epouse n'est pas le premier fruit de sa force, et c'est ce type de premier-ne qui n'herite pas d'une double portion de la succession de sa mere. <b>Mais</b> dans un cas de <b>celibataire qui a epouse une vierge, de meme</b> la <i>halakha</i> sera <b>que</b> leur fils premier-ne partage <b>prendra</b> une double portion de l'heritage de sa mere.
+
+### Partie 7
+<b>Au contraire, Rava dit :</b> Il existe une derivation differente enseignant cette <i>halakha</i>, car le meme <b>verset indique : "Le droit du premier-né est le sien"</b> (Deutéronome 21:17). L'accent mis sur "son" indique que <b>la primogeniture</b> s'applique specifiquement <b>a un homme, et que la primogeniture ne</b> s'applique pas <b>a une femme,</b> que celle-ci soit celle qui herite ou qu'elle soit legataire.
+
+### Partie 8
+§ La mishna enseigne : <b>Et un homme</b> a l'egard de <b>sa femme</b> herite mais ne legue pas. La Gemara demande : <b>D'ou proviennent ces questions</b> ? La Gemara explique : <b>Comme l'ont enseigne les Sages</b> dans une <i>baraita</i> : Le verset concernant l'heritage dit : "Et si son pere n'a pas de freres, alors vous donnerez son heritage a <b>son parent [<i>sheero</i>]</b> qui est le plus proche de lui de sa famille, et il en heritera" (Nombres 27:11). <b>Cette</b> parente est <b>la femme de quelqu'un,</b> et la Torah <b>enseigne qu'un mari herite</b> de <b>sa femme,</b> comme l'expliquera la Gemara plus loin. On <b>pourrait</b> penser qu'elle heriterait aussi</b> de <b>lui</b> ; c'est pourquoi le verset dit : "Et il en heritera,"</b> avec le mot "elle" ecrit au feminin "<i>otah</i>, qui peut aussi etre traduit par : Elle. Cela enseigne que c'est <b>il qui herite</b> de <b>elle, mais elle n'herite pas</b> de <b>lui.</b>
+
+### Partie 9
+La Guemara remet en question cette explication : <b>Mais les versets ne sont pas ecrits ainsi.</b> Le verset stipule que "son parent" herite du defunt, de sorte que si ce terme fait reference a l'epouse, celle-ci devrait heriter de son mari. <b>Abaye a dit : Reponds comme ceci,</b> c'est-a-dire comme si le verset etait divise en deux parties. La premiere partie est : <b>Alors tu donneras son heritage a celui qui est a cote de lui,</b> ce qui est une declaration generale concernant l'heritage des proches. La seconde est : <b>Son parent, et il l'heritera,</b> ce qui signifie que le mari herite de son parent, en reference a sa femme.
+
+### Partie 10
+<b>Rava a dit :</b> Est-ce que <b>un couteau tranchant coupe les versets ?</b> Comment peut-on diviser le verset, le rearranger et omettre des lettres de ses mots ? La derivation d'Abaye rearrange les mots et omet la lettre <i>lamed</i> du terme " a son parent [<i>lesheero</i>] ".<b>Au contraire, Rava dit : C'est</b> ce que dit le verset</b> : Et tu lui donneras l'heritage de son parent [<i>sheero</i>].</b> Les lettres doivent etre disposees differemment, en retirant la lettre <i>lamed</i> du mot <i>lesheero</i> et la lettre <i>vav</i> du mot <i>nahalato</i> et en les combinant pour former le mot <i>lo</i>, signifiant : Pour lui. En consequence, le verset enseigne que le mari herite de sa femme. La Guemara explique que Rava <b>soutient que</b> les Sages <b>soustraient et ajoutent et interpretent homiletiquement,</b> ce qui signifie que les lettres peuvent etre retirees des mots et annexees les unes aux autres, et qu'une <i>halakha</i> peut etre derivee du nouveau mot forme par la combinaison des lettres.
+
+### Partie 11
+La Guemara commente : <b>Et cette <i>tanna</i> cite</b> la <i>halakha</i> que le mari herite de sa femme <b>depuis ici, comme il est enseigne</b> dans une <i>baraita</i> : <b>"Et il en heritera"</b>, le mot "elle" etant ecrit au feminin "<i>otah</i>", qui peut aussi etre traduit par : Elle. Ceci <b>enseigne que le mari herite</b> de <b>sa femme;</b> c'est <b>la declaration de Rabbi Akiva,</b> similaire a la derivation citee dans le <i>baraita</i> ci-dessus.
+
+### Partie 12
+Le <i>baraita</i> cite un autre <i>tanna</i>. <b>Rabbi Yishmael dit :</b> Cette derivation <b>n'est pas necessaire, car</b> le verset <b>dit : "Et toute fille qui possède un héritage des tribus des enfants d'IsraA "l</b> sera la femme d'un membre de la famille</b> de la tribu de son père" (Nombres 36:8). Le but de cette mitsva etait que la terre qu'elle a heritee de la tribu de son pere ne soit pas transferee a une autre tribu a sa mort. <b>Le verset parle d'un transfert</b> d'heritage d'une tribu a une autre <b>par l'intermediaire du mari,</b> c'est-a-dire qu'elle ne doit pas epouser un homme d'une autre tribu afin que la terre ne soit pas transferee a cette tribu lorsque son mari heritera d'elle a sa mort. Ceci indique que le mari herite de sa femme.
+
+### Partie 13
+Rabbi Yishmael poursuit : <b>Et</b> un autre verset <b>etablit : "Ainsi, aucun heritage des enfants d'Israel ne sera transfere d'une tribu a l'autre"</b> (Nombres 36:7), <b>et</b> un autre verset <b>dit : "Ainsi, aucun heritage ne passera d'une tribu a une autre tribu"</b> (Nombres 36:9), indiquant egalement que le mari herite de sa femme.
+
+### Partie 14
+Rabbi Yishmael poursuit : <b>Et</b> le verset des Prophetes <b>dispose : <b>Elazar, fils d'Aaron, mourut et on l'enterra dans la colline de Pinehas, son fils,</b> qui lui avait ete donnee dans le mont Ephraim (Josue 24:33). <b>Et d'ou</b> est-ce que <b>Pinehas a eu</b> une terre <b>que</b> son pere, <b>Elazar, n'a pas eue ? Plutot,</b> ceci <b>enseigne que Pinehas a epouse une femme</b> qui a herite de la terre de son pere, <b>et elle est morte et il a herite</b> de <b>elle</b> afin d'avoir sa propre terre. Cela indique egalement que le mari herite de sa femme.
+
+### Partie 15
+Rabbi Yishmael poursuit . <b>Et</b> le verset dans les Ecrits <b>dit : "Et Segouv engendra Yair, qui eut vingt-trois villes dans le pays de Galaad"</b> (IA Chroniques 2:22).
+
+>Crédit : édition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Part 1
+The Gemara objects: <b>But one should derive</b> instead <b>from a crow: Just as there,</b> a bird with <b>two</b> signs is <b>not</b> kosher, <b>so too any</b> other bird that has only <b>two</b> signs is <b>not</b> kosher. The Gemara responds: <b>If so, why do I</b> need the <b><i>peres</i> and</b> the <b><i>ozniyya</i> that the Merciful One wrote</b> among the non-kosher birds? <b>Now</b> that it is established <b>that we do not eat</b> any bird <b>that has two</b> signs, <b>is</b> it <b>necessary</b> to mention these birds, <b>which have</b> only <b>one?</b> Rather, even birds that have only one sign are kosher, save those mentioned explicitly in the Torah as non-kosher.
+
+### Part 2
+The Gemara objects: <b>But let us learn</b> instead <b>from</b> the <b><i>peres</i> and <i>ozniyya</i></b> themselves that all other birds with only one sign are non-kosher. The Gemara responds: <b>If so, why do I</b> need the <b><i>nesher</i> that the Merciful One wrote? Now</b> that it is established <b>that we do not eat</b> any bird <b>that has one</b> sign, <b>is</b> it <b>necessary</b> to mention the <i>nesher</i>, <b>which has none? Rather,</b> the Torah mentions the <i>nesher</i> to indicate that <b>it is a <i>nesher</i>, which has none</b> of the signs of a kosher bird, <b>that you shall not eat. But</b> if you find any bird <b>that has</b> even <b>one</b> of the signs, you may <b>eat</b> it.
+
+### Part 3
+The Gemara objects: <b>But</b> if so, <b>the reason</b> for eating birds with even one sign is only <b>that the Merciful One wrote: “<i>Nesher</i>.”</b> One can infer, <b>then,</b> that if <b>not</b> for <b>this, I would say: Derive from</b> the <b><i>peres</i> and <i>ozniyya</i></b> that any bird with one sign is non-kosher. But that cannot be, since the <b><i>peres</i> and <i>ozniyya</i> are two verses that come as one,</b> i.e., that teach the same matter, <b>and</b> as a rule, <b>two verses that come as one do not teach</b> a principle.
+
+### Part 4
+The Gemara responds: <b>It is learned</b> as a tradition <b>that</b> the sign <b>present in this,</b> the <i>peres</i>, <b>is absent in that,</b> the <i>ozniyya</i>, <b>and that</b> which is <b>present in that is absent in this.</b> Accordingly, this is not a case of two verses that come as one, since each case would teach only that any other bird with only its respective sign is non-kosher. Consequently, it would have been possible to derive from them that any bird with only one sign is non-kosher. The verse therefore states: “<i>Nesher</i>,” to indicate otherwise.
+
+### Part 5
+The Gemara persists: <b>Now, there are twenty-four non-kosher birds</b> mentioned in the verses. <b>It is impossible that</b> the <b>one</b> sign <b>present in these,</b> the <i>peres</i> and <i>ozniyya</i>, respectively, <b>is absent in</b> all <b>those</b> other birds. Consequently, the mentioning of the <i>peres</i>, <i>ozniyya</i>, and the other birds <b>constitutes two verses that come as one.</b> If so, one could not have derived from the cases of the <i>peres</i> and <i>ozniyya</i> that a bird with one sign is not kosher, and the inclusion of the <i>nesher</i> is unnecessary.
+
+### Part 6
+The Gemara responds: <b>It is learned</b> as a tradition that <b>there are twenty-four non-kosher birds, and four signs</b> of a kosher bird. The same <b>three</b> signs <b>can be found in all of them,</b> with the exception of either the <i>peres</i> or the <i>ozniyya</i>. <b>Twenty of them</b> have all <b>three</b> signs, <b>and two</b> of those signs can be found <b>in a crow. One</b> sign is found <b>in a <i>peres</i> and one in an <i>ozniyya</i>,</b> and the sign <b>present in this is absent in that,</b> i.e., one of them has the fourth sign, which is absent from the other twenty-three non-kosher birds. <b>Lest you say: Derive from it</b> that any other bird with only that sign is non-kosher, <b>the Merciful One wrote</b> about the <b><i>nesher</i></b> to indicate: <b>It is a <i>nesher</i>, which has none</b> of the signs of a kosher bird, <b>that you shall not eat. But</b> if <b>there is</b> any bird <b>that has</b> even <b>one</b> of the signs, you may <b>eat</b> it.
+
+### Part 7
+The Gemara asks: <b>But</b> if one learns from <i>nesher</i> that a bird with even one sign is kosher, <b>why do I</b> need the <b>doves that the Merciful One wrote</b> are kosher, which have all four? <b>Rav Ukva bar Ḥama said:</b> The dove was not mentioned to teach that it is kosher, but rather <b>to</b> teach that it is the only bird fit to be sacrificed as <b>an offering. Rav Naḥman says:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

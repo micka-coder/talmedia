@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>et demain,</b> c'est-a-dire a l'avenir, <b>je porterai plainte</b> contre <b>lui en justice, c'est</b> une <b>protestation valide.</b>
+
+### Partie 2
+Si celui qui depose une protestation a egalement <b>dit : Ne dis pas</b> au possesseur de la protestation, <b>Quel est</b> la <i>halakha</i> ? <b>Rav Zevid a dit :</b> Ce n'est pas une protestation valable, car <b>il ne dit pas : Ne lui dis pas?</b> Par consequent, la parole de la protestation n'atteindra pas le possesseur et elle n'a pas de sens. <b>Rav Pappa</b> n'est pas d'accord et <b>dit</b> que le proprietaire voulait simplement dire : <b>Ne lui dites pas personnellement,</b> mais ils, c'est-a-dire les temoins, doivent <b>le dire a d'autres personnes.</b> Dans ce cas, la parole de la protestation atteindra le possesseur, puisque <b>votre ami a un ami</b> a qui il parle de la protestation, <b>et l'ami de votre ami a un ami</b> a qui il parle de la protestation ; c'est donc une protestation valable.
+
+### Partie 3
+Si les temoins devant lesquels le proprietaire a depose la protestation <b>lui ont dit : Nous</b> ne sommes <b>pas</b> allons <b>dire</b> au possesseur de votre protestation, quelle est la <i>halakha</i> ? <b>Rav Zevid a dit :</b> Ce n'est pas une protestation valable, et il doit deposer une protestation devant d'autres temoins, comme sont <b>ils</b> pas <b>dire a lui : Nous ne</b> allons pas <b>lui parler</b> de votre protestation ? <b>Rav Pappa</b> n'est pas d'accord et <b>dit</b> qu'ils ont simplement voulu dire : <b>Nous</b> n'allons <b>pas</b> lui <b>dire personnellement,</b> mais <b>nous allons</b> <b>le dire a d'autres.</b> Dans ce cas, la nouvelle de la protestation parviendra au possesseur, puisque <b>votre ami a un ami</b> a qui il parle de la protestation, <b>et l'ami de votre ami a un ami</b> a qui il parle de la protestation ; c'est donc une protestation valable.
+
+### Partie 4
+Si celui qui depose la protestation leur a egalement <b>dit : Un mot [<i>shuta</i>] ne doit pas sortir de vous</b> a ce sujet, quelle est la <i>halakha</i> ? <b>Rav Zevid a dit :</b> Ce n'est pas une protestation valable, car <b>il ne leur dit pas</b> : <b>Une parole ne doit pas emerger</b> de vous ? De meme, si les personnes devant lesquelles il a proteste <b>lui ont dit : Nous ne ferons pas</b> sortir <b>un mot</b> de nous, <b>Rav Pappa dit :</b> Ce n'est pas une protestation valable, car <b>ne lui disent-ils pas : Nous n'aurons pas</b> <b>une parole qui emerge</b> de nous ? <b>Rav Huna, le fils de Rav Yehoshua,</b> n'est pas d'accord et <b>dit :</b> C'est une protestation valable, car en ce qui concerne <b>tout sujet qui</b> n'est <b>pas</b> reellement <b>incombant a une personne</b> de garder le secret, il est probable qu'elle le <b>dit</b> a d'autres personnes <b>inconscientes,</b> et donc la presomption est que la parole parviendra au possesseur.
+
+### Partie 5
+§ <b>Rava dit</b> que <b>Rav Nahman dit : Une protestation qui</b> est deposee <b>non en</b> la <b>presence</b> du possesseur <b>est</b> une <b>protestation valable. Rava souleve une objection a</b> ce que <b>Rav Nahman</b> a dit de la mishna : <Rabbi Yehuda dit : </b> Les Sages <b>ont dit</b> que l'etablissement de la presomption de propriete necessite <b>trois ans seulement afin que</b> si le proprietaire <b>se trouve en Espagne et</b> un autre <b>possede</b> son champ pendant <b>un an, </b> les gens <b>alleront informer</b> le proprietaire avant la fin de l'<b>annee suivante, et</b> le proprietaire <b>reviendra</b> <b>dans</b> l'annee <b>suivante</b> et poursuivra le possesseur en justice. <b>Et si</b> il <b>vous vient a l'esprit</b> que <b>une protestation qui</b> est deposee <b>non en sa presence est</b> une <b>protestation valable, pourquoi ai-je</b> besoin que le proprietaire <b>vienne ? Qu'il reste la a sa place et proteste.</b> La Gemara repond : <b>Voila,</b> Rabbi Yehouda souhaite <b>nous donner un bon conseil, a savoir qu'il</b> doit <b>venir et recueillir la terre et</b> son <b>produit.</b>
+
+### Partie 6
+La Gemara demande : <b>Du fait</b> que <b>Rava a souleve une objection a Rav Nahman, on peut en deduire que</b> il ne tient pas <b>a ce qu'une protestation qui</b> est deposee <b>en dehors de sa presence soit</b> une <b>protestation valable. Mais Rava n'a-t-il pas dit : Une protestation qui</b> est deposee <b>non en sa presence est</b> une <b>protestation valide?</b> La Gemara repond : Il <b>a maintenu cette</b> conclusion seulement <b>apres</b> avoir <b>entendu cette</b> <i>halakha</i> <b>du Rav Nahman.</b>
+
+### Partie 7
+§ La Gemara relate : <b>Rabbi Yosei, fils de Rabbi Hanina, rencontra</b> les <b>etudiants de Rabbi Yohanan</b> et leur <b>dit : Rabbi Yohanan a-t-il dit en</b> presence de <b>quelque nombre</b> de personnes <b>une protestation</b> doit etre deposee ? <b>Rabbi Hiyya bar Abba dit</b> que <b>Rabbi Yohanan</b> dit : <b>Une protestation</b> doit etre deposee <b>en presence de deux</b> personnes. <b>Rabbi Abbahu dit</b> que <b>Rabbi Yohanan</b> dit : <b>Une protestation</b> doit etre deposee <b>en presence de trois</b> personnes.
+
+### Partie 8
+La Gemara suggere : <b>Devons-nous dire qu'ils sont en desaccord par rapport</b> a la <i>halakha</i> <b>de Rabba bar Rav Huna ? Comme le dit Rabba bar Rav Huna : Toute question qui est dite en presence de trois</b> personnes.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

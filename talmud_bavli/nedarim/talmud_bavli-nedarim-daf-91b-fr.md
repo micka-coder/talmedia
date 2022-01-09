@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>les marchands aloe [<i>ahaloyei</i>] qui etaient ici</b> juste <b>maintenant</b> devraient etre blames ; <b>si</b> ce n'etait <b>pas vous, peut-etre</b> c'etait l'un <b>d'entre eux. </b> Le cas est arrive devant <b>Rav Nahman,</b> qui a <b>dit :</b> Il y a des raisons de soupconner que <b>elle a pu jeter les yeux sur un autre</b> homme, <b>et</b> par consequent <b>il n'y a pas de substance a ses paroles.</b> Elle manque de credibilite et sa declaration n'est pas fiable, et donc elle reste autorisee a son mari.
+
+### Partie 2
+On raconte encore qu'il y avait <b>une certaine femme qui etait mecontente</b> de son <b>homme. Il lui dit : Qu'est-ce qui est different maintenant ?</b> Qu'ai-je fait pour te mettre en colere ? <b>Elle lui dit : </b> Je suis contrariee parce que <b>vous ne m'avez jamais fait de mal</b> alors que nous etions engages <b>dans des relations correctes comme</b> vous l'avez fait juste <b>maintenant. Il lui dit : Cette affaire n'a pas eu lieu maintenant. Elle lui dit : Si c'est le cas,</b> il se peut que <b>l'un des</b> marchands d'huile paiens [<i>naftoyei</i>] qui etaient ici</b> juste <b>maintenant</b> doive etre blame ; <b>si</b> ce n'etait <b>pas vous, peut-etre</b> etait-ce l'un <b>d'entre eux. Rav Nahman leur dit : Ne faites pas attention a elle ; elle a jete les yeux sur un autre</b> homme, et ses paroles ne sont donc pas fiables.
+
+### Partie 3
+La Gemara relate un autre incident concernant <b>un certain homme qui se retirait</b> lui-meme <b>[<i>meharzeik</i>] dans une maison, lui et une</b> certaine <b>femme mariee.</b> Lorsque <b>le proprietaire de la maison est entre, l'adultere a fait irruption a travers le mur de branches de palmiers et s'est enfui. Rava a dit : La femme est permise</b> a son mari. L'hypothese est qu'elle n'a pas peche, car <b>si c'est le cas</b> l'homme <b>avait commis une transgression, il se serait cache</b> dans la maison au lieu de reveler son identite en s'echappant au grand jour.
+
+### Partie 4
+La Guemara conclut par un dernier incident concernant <b>un certain adultere qui entra</b> dans la maison <b>d'une certaine</b> femme mariee.</b> Lorsque <b>l'homme,</b> c'est-a-dire son mari, <b>arrivait</b> a la maison, le <b>adultere alla s'asseoir derriere la porte,</b> afin que le mari ne sache pas qu'il etait la. <b>Il y avait</b> du <b>cresson [<i>tahlei</i>] etendu la</b> dans la maison, <b>et</b> l'adultere, mais pas le mari, vit qu'un <b>serpent</b> etait venu et en avait <b>goute,</b> le contaminant peut-etre ainsi de son venin. <b>Le maitre de maison voulut manger de ce cresson, a l'insu de la femme. L'adultere lui dit : Ne mange pas de</b> ce cresson, <b>car un serpent y a goute.</b>
+
+### Partie 5
+Le cas a ete porte devant <b>Rava,</b> qui <b>a dit : Sa femme lui est permise</b>, car <b>s'il s'averait que</b> l'adultere <b>avait commis une transgression, il aurait ete preferable pour lui que</b> le mari <b>mange</b> le cresson <b>et meure.</b> Ceci parce que celui qui commet l'adultere est aussi suspect de faire couler le sang, <b>comme il est ecrit : "Car ils ont commis un adultere et le sang est sur leurs mains"</b> (Ezechiel 23:45), ce qui indique que l'adultere conduit au meurtre.
+
+### Partie 6
+La Guemara commente : Il <b>est evident</b> que c'est le cas. Que vient donc nous apprendre Rava ? La Guemara repond : La decision de Rava est necessaire, <b>de peur que l'on dise</b> que l'homme a effectivement <b>commis une transgression</b> avec la femme de l'autre homme, <b>et</b> la raison pour laquelle <b>il a dit</b> au mari de ne pas manger et lui a sauve la vie est <b>parce qu'il est preferable pour lui que le mari ne meure pas.</b> Ceci afin <b>que sa femme soit pour lui</b> comme il est dit dans le verset : <b>Les eaux volees sont douces, et le pain mange en secret est agreable</b> (Proverbes 9:17). C'est-a-dire qu'une personne tire un plus grand plaisir du fruit defendu. Rava nous <b>enseigne donc</b> que cela n'est pas un probleme. L'hypothese est plutot qu'il n'a pas encore reellement peche et qu'il a donc agi de maniere appropriee.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

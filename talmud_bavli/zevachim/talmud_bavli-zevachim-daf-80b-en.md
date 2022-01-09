@@ -1,0 +1,39 @@
+
+### Part 1
+The Gemara adds: <b>And furthermore,</b> one can raise another difficulty against the opinion of Rav Ashi, who maintains that according to Rabbi Eliezer there is no mixing, as it <b>is taught explicitly</b> in a <i>baraita</i>: With regard to blood of an offering, e.g., a sin offering, <b>which is</b> to be <b>placed above</b> the red line <b>that was mixed with</b> blood of an offering, e.g., a burnt offering, <b>which is</b> to be <b>placed below</b> the red line, <b>Rabbi Eliezer says:</b> The priest <b>shall</b> initially <b>place</b> the blood of the mixture <b>above</b> the red line for the sake of the sin offering, and the priest should then place blood from the mixture below the red line for the sake of the burnt offering, <b>and</b> both the blood placed above and <b>the</b> blood placed <b>below count for him</b> toward the fulfillment of the mitzva.
+
+### Part 2
+The Gemara explains the difficulty from this <i>baraita</i>: <b>And if you say</b> that <b>there is no mixing, why</b> do both of the placements <b>count for him? Perhaps he placed</b> the blood of the mixture that belongs <b>above</b> the red line <b>below</b> it, <b>and the</b> blood that belongs <b>below</b> the red line <b>above</b> it.
+
+### Part 3
+The Gemara answers: <b>Here we are dealing with</b> a case <b>where there is a majority</b> of blood that is to be placed <b>above</b> the line, <b>and</b> the priest <b>placed</b> blood <b>above</b> by the <b>measure</b> of the blood in the mixture that is to be placed <b>below</b> the line, <b>and</b> slightly <b>more</b> blood. In this manner he ensures that he must have placed above the red line some of the blood that belongs there.
+
+### Part 4
+The Gemara raises a difficulty: <b>But</b> the <i>baraita</i> <b>teaches: The</b> blood placed <b>below counts for him</b> toward the fulfillment of the mitzva. According to this explanation, it is possible that all the blood of the burnt offering was placed above the red line. Why, then, has he fulfilled the mitzva by placing blood below the red line? The Gemara explains: The <i>baraita</i> does not mean that it counts for the mitzva of the placing of the blood of a burnt offering below the red line; rather, it means that it counts for him <b>for the sake of</b> the <b>remainder</b> of the blood of the sin offering, which must be poured onto the base of the altar.
+
+### Part 5
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: If the priest <b>placed</b> the mixed blood <b>below</b> the red line <b>and did not consult</b> the authorities, what should he do now? <b>Rabbi Eliezer says:</b> He <b>shall again place</b> the blood <b>above</b> the red line, <b>and the</b> blood placed <b>below counts for him.</b> Once again, the difficulty is that if Rabbi Eliezer maintains that there is no mixing, why does the placement count for him? Perhaps he placed the blood of the mixture that belongs above the red line below it, and the blood that belongs below the red line above it.
+
+### Part 6
+The Gemara answers: <b>Here too, we are dealing with</b> a case <b>where the majority</b> of blood belongs <b>above</b> the line, <b>and</b> the priest <b>placed</b> blood <b>above</b> from the <b>measure</b> of the blood in the mixture that belongs <b>below</b> the line, <b>and</b> slightly <b>more</b> blood. Again the Gemara asks: <b>But</b> the <i>baraita</i> <b>teaches: The</b> blood placed <b>below counts for him.</b> Since it is possible that all of the blood of the burnt offering was placed above the red line, why does the blood placed below count for him? The Gemara answers that the <i>baraita</i> means it counts for him <b>for the sake of</b> the <b>remainder</b> of the sin offering.
+
+### Part 7
+The Gemara further suggests: <b>Come</b> and <b>hear</b> another proof from a <i>baraita</i>: If the priest <b>placed</b> the mixed blood <b>above and did not consult</b> the authorities, both <b>these</b> Sages <b>and those</b> Sages, i.e., the Rabbis and Rabbi Eliezer, <b>concede that he shall again place</b> the blood <b>below</b> the red line, <b>and these</b> placements <b>and those</b> placements <b>count for him.</b> If Rabbi Eliezer maintains that there is no mixing, he would not concede this point, as perhaps he placed the blood that belongs below the red line above it, and the blood that belongs above, below.
+
+### Part 8
+The Gemara answers: <b>Here too,</b> this is referring to a case <b>where the majority</b> of blood belongs <b>above</b> the line, <b>and</b> the priest <b>placed</b> blood <b>above</b> in the <b>measure</b> of the blood in the mixture that belongs <b>below</b> the line, <b>and</b> slightly <b>more</b> blood. In this manner he fulfills the mitzva of the blood that is to be placed above the red line alone.
+
+### Part 9
+The Gemara raises a difficulty: <b>But</b> the <i>baraita</i> <b>teaches: These and those count for him,</b> not only the blood that is to be placed above. The Gemara explains: <b>Does</b> the <i>baraita</i> <b>teach: These</b> Sages <b>and those</b> Sages <b>concede</b> that these placements and those placements count for him? It <b>teaches</b> only: <b>These and those count for him.</b> In other words, although the <i>baraita</i> states in the first clause that both the Rabbis and Rabbi Eliezer concede that the priest returns and places the blood below the red line, this agreement does not apply to the next clause of the <i>baraita</i>, as in <b>the latter clause we come to</b> the opinion of <b>the Rabbis</b> alone, <b>who say</b> that <b>there is mixing,</b> which is why both placements count.
+
+### Part 10
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from the mishna: In a case of the blood of an offering <b>that is</b> to be <b>placed</b> on the altar <b>with one placement that was mixed with</b> the blood of another offering <b>that is</b> to be <b>placed</b> on the altar <b>with one placement,</b> the blood <b>shall be placed with one placement. And if you say</b> that according to Rabbi Eliezer <b>there is no mixing, why shall they be placed with one placement? Perhaps he places from this</b> blood <b>and does not place from that</b> blood. The Gemara answers: This is referring to a case <b>where</b> the measure of <b>one</b> placement of this blood <b>was mixed with</b> the measure of <b>one</b> placement of that blood, and no more. Consequently, he certainly placed both types of blood.
+
+### Part 11
+The Gemara raises another difficulty: The mishna teaches that in a case of the blood of an offering that is to be placed on the altar with <b>four placements</b> that was mixed <b>with</b> the blood of another offering that is to be placed on the altar <b>with four placements,</b> the blood shall be placed with four placements. But if there is no mixing, perhaps he placed only the blood of one offering. The Gemara explains: <b>Here too,</b> it is referring to a case <b>where</b> the measure of <b>four</b> placements of this blood <b>was mixed with</b> the measure of <b>four</b> placements of that blood, and therefore he certainly placed blood from both offerings.
+
+### Part 12
+The Gemara raises another difficulty: The mishna teaches that if the blood of an offering that is to be placed on the altar with <b>four placements</b> was mixed with the blood of another offering that is to be placed on the altar <b>with one placement,</b> Rabbi Eliezer says: The blood shall be placed with four placements. Here too, if there is no mixing according to Rabbi Eliezer, perhaps he placed the blood of only one of the offerings.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

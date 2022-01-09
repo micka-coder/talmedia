@@ -1,0 +1,42 @@
+
+### Part 1
+<b>All</b> the <b>dry days</b> during the summer, when it does not rain, are viewed as <b>one</b> period, meaning that if they each agreed to work one day, the dry days are viewed as though they were all exactly equal in length, despite the slight differences between them. Similarly, <b>all</b> the <b>rainy days</b> are treated as <b>one</b> period. But <b>he may not say to him: Plow with me in the dry</b> season <b>and I will plow with you in the rainy</b> season.
+
+### Part 2
+<b>Rabban Gamliel says: There is</b> a case of <b>pre</b>-paid <b>interest, and there is</b> also a case of <b>interest</b> paid <b>later,</b> both of which are prohibited. <b>How so?</b> If he <b>had hopes of borrowing</b> money <b>from him</b> in the future, <b>and he sends him</b> money or a gift <b>and says:</b> I am sending you this gift <b>in order that you will lend to me, this is pre</b>-paid <b>interest.</b> Similarly, if he <b>borrowed</b> money <b>from him and</b> subsequently <b>returned his money, and he</b> later <b>sends</b> a gift <b>to him and says:</b> I am sending you this gift in order to repay you <b>for your money, which was idle with me,</b> preventing you from earning a profit from it, <b>this is interest</b> paid <b>later.</b>
+
+### Part 3
+<b>Rabbi Shimon says:</b> Not only is there interest consisting of payment of money or items, but <b>there is</b> also <b>verbal interest.</b> For example, the borrower <b>may not say to</b> the lender: You should <b>know that so-and-so has come from such and such a place,</b> when he is aware that this information is of significance to his creditor. Since his intention is to provide a benefit to the lender, he has effectively paid him an extra sum for the money he lent him, which constitutes interest.
+
+### Part 4
+<b>And these</b> people <b>violate a prohibition</b> of interest: <b>The lender, and the borrower, and the guarantor, and the witnesses. And the Rabbis say: Also the scribe</b> who writes the promissory note violates this prohibition. These parties to the transaction <b>violate</b> different prohibtions. Some are in violation of: <b>“You shall not give</b> him your money with interest” (Leviticus 25:37), <b>and of: “Do not take from him</b> interest or increase” (Leviticus 25:36), <b>and of: “Do not be to him as a creditor”</b> (Exodus 22:24), <b>and of “Do not place interest upon him”</b> (Exodus 22:24), <b>and of: “And you shall not place a stumbling block before the blind, and you shall fear your God; I am the Lord”</b> (Leviticus 19:14).
+
+### Part 5
+<strong>GEMARA:</strong> <b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon ben Yoḥai says: From where</b> is it derived <b>with regard to one who is owed one hundred dinars by another, and</b> the borrower <b>is not accustomed to greeting</b> that lender, <b>that it is prohibited to</b> start <b>greeting him</b> after being granted the loan? <b>The verse states: “Interest of any matter [<i>davar</i>] that is lent with interest”</b> (Deuteronomy 23:20), which can also be read as indicating that <b>even speech [<i>dibbur</i>]</b> can be <b>prohibited</b> as interest.
+
+### Part 6
+§ The mishna teaches: <b>And these</b> people <b>violate</b> the prohibition of interest. <b>Abaye says:</b> The <b>lender violates all of them,</b> meaning all of the prohibitions listed in the mishna. The <b>borrower violates</b> the prohibition <b>of: “You shall not lend to your brother with interest”</b> (Deuteronomy 23:20), as he enables his brother to lend with interest. And they also violate the prohibition: “You may lend to a gentile with interest, but <b>to your brother you shall not lend with interest”</b> (Deuteronomy 23:21), as well as: <b>“And you shall not place a stumbling block before the blind”</b> (Leviticus 19:14). The <b>guarantor and the witness violate only: “Do not place interest upon him”</b> (Exodus 22:24).
+
+### Part 7
+<b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Shimon says: Those who lend</b> with <b>interest lose more than they gain,</b> as they will eventually be punished by God. <b>Moreover,</b> a loan of this kind desecrates the name of Heaven, <b>as they cause</b> it to seem that <b>Moses our teacher</b> is <b>a scholar and his Torah</b> is <b>true.</b> This is a euphemism; Rabbi Shimon means that their actions make a mockery of Moses and his Torah. <b>And</b> this is because <b>they say: Had Moses our teacher known that there was a profit</b> involved <b>in the matter, he would not have written it</b> as a prohibition. Not only do they violate a mitzva but they also belittle the Torah.
+
+### Part 8
+§ The Gemara cites further statements with regard to loans in general. <b>When Rav Dimi came</b> from Eretz Yisrael, he <b>said: From where</b> is it derived that with regard to <b>one who is owed one hundred dinars by another and knows that</b> the borrower <b>does not have</b> the funds to repay him, <b>that</b> it is <b>prohibited</b> for him <b>to pass before</b> the borrower, so as not to embarrass the borrower and cause him discomfort? <b>The verse states: “Do not be to him as a creditor”</b> (Exodus 22:24). Even if he does not claim the debt from the borrower, his presence reminds the latter of the debt, which distresses him.
+
+### Part 9
+<b>Rabbi Ami and Rabbi Asi both say</b> that if one upsets another in this way, it is <b>as though he sentences him to two</b> types <b>of punishments, as it is stated: “You have caused men to ride over our heads; we went through fire and through water”</b> (Psalms 66:12). As the one in control, a creditor is regarded as though he had brought the debtor through fire and water.
+
+### Part 10
+§ <b>Rav Yehuda says</b> that <b>Rav says: Whoever has money and lends it not in</b> the presence of <b>witnesses violates</b> the prohibition of: <b>“And you shall not place a stumbling block before the blind”</b> (Leviticus 19:14), as this tempts the borrower not to repay his debt. <b>And Reish Lakish says: He brings a curse upon himself, as it is stated: “Let the lying lips be dumb, which speak arrogantly against the righteous,</b> with pride and contempt” (Psalms 31:19), as when the lender comes to claim his money without any proof, people will think he is falsely accusing the borrower, and they will end up cursing him.
+
+### Part 11
+The Gemara cites a related incident: <b>The Sages said to Rav Ashi: Ravina fulfills all</b> of the directives <b>that the Sages say.</b> Seeking to test him, Rav Ashi <b>sent</b> a messenger <b>to him close to sunset on the eve of Shabbat,</b> at the busiest time of the week, with the following request: <b>Let the Master send me ten dinars</b> as a loan, <b>as I have happened upon a small piece of land for an acquisition</b> and I need the money. Ravina <b>sent</b> a message <b>to him: Let the Master bring witnesses and we will write a written</b> document for this loan. Rav Ashi <b>sent</b> a message <b>to him: Even I, as well?</b> Do you suspect even me of shirking payment? Ravina <b>sent</b> a message <b>to him: All the more so</b> it is necessary to document a loan to <b>the Master, who is occupied with his studies</b> and therefore very likely <b>to forget,</b> and I will thereby <b>bring a curse upon myself.</b>
+
+### Part 12
+<b>The Sages taught</b> in a <i>baraita</i>: There are <b>three</b> who <b>cry</b> out <b>and are not answered,</b> as they are responsible for their own troubles. <b>And they are: One who has money and lends it not in</b> the presence of <b>witnesses, and one who acquires a master for himself, and one whose wife rules over him.</b>
+
+### Part 13
+The Gemara clarifies: One who <b>acquires a master for himself, what is it? There are</b> those <b>who say</b> that it is referring to one who <b>attributes his property to a gentile.</b> He falsely claims that his possessions belong to a gentile in order to evade his obligations, thereby inviting the gentile to take advantage of this declaration. And <b>there are</b> those <b>who say</b> that it is referring to one <b>who writes</b> a document bequeathing <b>his property</b> as a gift <b>to his children in his lifetime,</b> as he becomes financially dependent on them. And <b>there are</b> those <b>who say that</b> it is referring to one <b>who has bad</b> fortune <b>in this town but does not go to a different town.</b> He is consequently responsible for his own misfortunes.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

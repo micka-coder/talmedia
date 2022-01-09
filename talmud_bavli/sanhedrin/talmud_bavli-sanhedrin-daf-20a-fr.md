@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>La puissance de Boaz</b> est l'<b>humilite de Palti, fils de Laish, comme nous l'avons dit,</b> car il a conquis son desir non seulement pour une nuit, comme Boaz, mais pour plusieurs nuits.
+
+### Partie 2
+<b>Rabbi Yohanan dit : Quel</b> est le sens de ce <b>qui est ecrit : "Beaucoup de filles ont fait des prouesses, mais tu excelles au-dessus de toutes"</b> (Proverbes 31:29) ? <b>"Beaucoup de filles ont fait preuve de vaillance" ; ceci</b> est une référence A <b>Joseph et Boaz. "Mais toi, tu les surpasses toutes" ; ceci</b> est une référence A <b>Palti, fils de Laish,</b> qui surpassait Joseph et Boaz en retenue, comme discuté ci-dessus.
+
+### Partie 3
+<b>Rabbi Shmuel bar Nahman dit</b> que <b>Rabbi Yonatan dit : Quel</b> est le sens de ce <b>qui est ecrit : "La grA¢ce est trompeuse, et la beauté est vaine,</b> mais une femme qui craint le Seigneur, elle sera louée" (Proverbes 31:30). <b>"La grace est trompeuse" ; ceci</b> est une reference a <b>Joseph. "Et la beauté est vaine" ; ceci</b> est une référence A <b>Boaz. "Celle qui craint le Seigneur, elle sera louée" ; ceci</b> est une référence A <b>Palti, fils de Laish,</b> qui n'a pas péché avec Michal. Bien que le comportement de Joseph et de Boaz soit louable, il est A "trompeurA" et A "vainA" par rapport A celui de Palti ben Laish.
+
+### Partie 4
+<b>Alternativement : "La grA¢ce est trompeuse" ; ceci</b> est une référence A <b>la génération de MoA¯se. "Et la beauté est vaine" ; ceci</b> est une référence A <b>la génération de Joséha. Bien que l'etude de la Torah pendant les generations de Moise et de Josue etait louable, elle etait "trompeuse" et "vaine" par rapport a celle de la generation d'Ezechias, pendant laquelle le peuple etudiait la Torah assidument, malgre les souffrances causees par la guerre et la domination etrangere.
+
+### Partie 5
+<b>Alternativement : "La grace est trompeuse" ; ceci</b> est une reference a <b>la generation de Moise et Josue. "Et la beaute est vaine" ; ceci</b> est une reference a <b>la generation d'Ezechias. "Celle qui craint le Seigneur, elle sera louee" ; ceci</b> est une reference a <b>la generation de Rabbi Yehuda, fils de Rabbi Ilai,</b> qui vecut apres les decrets d'Hadrien, alors que le peuple etait appauvri et opprime. <b>On a dit de Rabbi Yehuda, fils de Rabbi Ilai, que six</b> de ses <b>etudiants se couvraient d'un seul vetement,</b> en raison de leur pauvrete, <b>et</b> neanmoins ils s'engageaient <b>dans l'etude de la Torah</b>. Bien que l'etude de la Torah pendant les generations de Moise, Josue et Ezechias etait louable, elle etait "trompeuse" et "vaine" par rapport a celle des gens de la generation de Rabbi Yehuda, fils de Rabbi Ilai, qui etudiaient la Torah malgre leurs difficultes.
+
+### Partie 6
+<strong>MISHNA :</strong> Si un parent <b>du</b> roi <b>decede, il ne sort pas de l'entree de son palais [<i>palterin</i>],</b> car il ne convient pas a quelqu'un de sa stature d'accompagner le defunt. <b>Rabbi Yehuda dit : S'il souhaite suivre le cercueil, il le suit</b>, <b>car c'est ce que nous avons constate</b> en ce qui concerne <b>le roi <b>David, qui suivait le cercueil d'Abner. Comme il est dit : "Et le roi David suivit le cercueil"</b> (IIA Samuel 3:31). Les Sages ont <b>dit a</b> Rabbi Yehuda : <b>Il s'agissait uniquement d'apaiser le peuple,</b> afin qu'il ne soupconne pas David d'avoir ordonne la mort d'Abner. <b>Et quand</b> le peuple <b>conforte</b> le roi avec le repas de reconfort, <b>tout le peuple s'allonge sur le sol, et lui s'allonge sur le <i>dargash</i>.</b>
+
+### Partie 7
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Dans <b>un endroit ou les femmes avaient l'habitude de suivre le cercueil, elles le suivaient</b> et les hommes marchaient devant le cercueil, et si les femmes avaient l'habitude de marcher <b>devant le cercueil, elles allaient</b> devant. <b>Rabbi Yehuda dit : Les femmes vont toujours devant le cercueil, car c'est ce que nous avons constate a propos</b> du roi <b>David, qui suivait le cercueil d'Abner, comme il est dit : "Et le roi David suivit le cercueil,"</b> et vraisemblablement David n'est pas alle parmi les femmes.
+
+### Partie 8
+Les Sages lui ont dit : Il ne s'agissait que d'apaiser le peuple, et il a ete apaise. Comme David sortait du milieu des hommes et entrait parmi les femmes, et sortait du milieu des femmes et entrait parmi les hommes, comme il est dit :" Ainsi tout le peuple et tout Israel comprirent</b> ce jour-la <b>que ce n'etait pas de la part du roi de tuer Abner,</b> fils de Ner" (IIA Samuel 3:37).
+
+### Partie 9
+<b>Rava a interprete</b> un verset de maniere <b>homiletique : Quel</b> est le sens de ce <b>qui est ecrit : "Et tout le peuple vint pour consoler David"</b> (IIA Samuel 3:35) ? <b>Il est ecrit :" Pour détruire [<i>lehakhrot</i>]", et nous lisons : "Pour consoler [<i>lehavrot</i>],"</b> ce qui signifie que, <b>au debut</b> ils voulaient <b>le detruire,</b> car ils le soupconnaient d'avoir ordonne l'assassinat d'Abner, <b>et finalement,</b> quand ils ont vu qu'il etait vraiment en deuil, ils ont decide <b>de le consoler.</b>
+
+### Partie 10
+<b>Rav Yehuda dit</b> que <b>Rav dit : Pour quelle</b> raison <b>Abner a-t-il ete puni</b> en etant tue ? C'est <b>parce qu'il aurait du protester aupres de Saul</b> au sujet du meurtre des pretres de Nob (voir IA Samuel 22:17""19), <b>mais il n'a pas proteste. Rabbi Yitzhak dit : Il a proteste,</b> donc ce n'est pas la raison de sa mort, <b>mais il n'a pas ete exauce. Et ces deux</b> Sages ont interprete un verset : "Et le roi se lamenta sur Abner, et dit : Abner doit-il mourir comme meurt un churl ? Tes mains n'étaient pas liées et tes pieds n'étaient pas entravés ; tu es tombé comme un homme tombe devant les enfants de l'iniquité" (IIA Samuel 3:33""34).
+
+### Partie 11
+La Guemara explique comment chaque Sage comprend le verset : <b>Celui qui dit qu'il n'a pas proteste</b> explique que <b>ceci</b> est ce que le verset <b>dit :</b> Puisque <b>Vos mains n'etaient pas liees, ni vos pieds mis aux fers,</b> quelle est la raison pour laquelle vous n'avez pas proteste</b> contre Saul. Donc, puisque tu aurais pu protester mais que tu ne l'as pas fait, alors <b>Comme un homme tombe devant les enfants de l'iniquite, tu es tombe.</b> Et celui qui dit qu'il a proteste et n'a pas ete exauce</b> explique que c'est ce que dit le verset : David <b>se demandait : A "Abner devrait-il mourir comme meurt un enfant ? Tes mains n'ont pas ete liees, ni tes pieds mis aux fers, puisque tu as proteste</b> au bon moment. Puisque c'est le cas, <b>Qu'est-ce qui explique</b> que <b>Comme un homme tombe devant les enfants de l'iniquite, tu es tombe</b>.
+
+### Partie 12
+La Guemara demande : <b>Selon celui qui dit</b> qu'Abner a <b>proteste, quelle est la raison pour laquelle il a ete puni</b> de cette mort ? <b>Rav Nahman, fils de Rabbi Yitzhak, repond :</b> C'est <b>parce qu'il a retarde le royaume de la maison de David de deux ans et demi,</b> en soutenant le royaume d'Ish-bosheth, le fils de Saul, pendant cette periode de temps.
+
+### Partie 13
+§ La mishna enseigne : <b>Et quand on reconforte</b> le roi avec le repas de reconfort, il s'allonge sur le <i>dargash</i>. La Gemara demande : <b>Qu'est ce que <b>un <i>dargash</i> ? Ulla repond : Un lit de fortune,</b> qui serait designe dans les maisons pour la decoration et pour la bonne fortune, et personne ne s'y assierait. <b>Les Sages ont dit a Ulla : Y a-t-il une chose</b> sur laquelle <b>jusqu'a present on n'autorisait pas quelqu'un a s'asseoir</b>, <b>mais maintenant,</b> dans sa periode de deuil, <b>on l'y assoit</b> ?
+
+### Partie 14
+<b>Rava s'oppose a cette</b> question : <b>Quelle est la difficulte</b> dans ce cas ? <b>Peut-etre</b> que s'asseoir sur le <i>dargash</i> est <b>comme pour le manger et le boire. Comme jusqu'a present, on ne le nourrissait pas et on ne lui donnait pas a boire,</b> mais <b>maintenant,</b> dans son temps de deuil, <b>on le nourrit et on lui donne a boire,</b> dans le repas de reconfort. <b>Au contraire, si</b> c'est <b>difficile, c'est</b> ce qui est <b>difficile,</b> comme il est enseigne dans une <i>baraita</i> : Concernant <b>un <i>dargash</i>,</b> la personne en deuil <b>n'est pas tenue de le renverser</b> pendant le deuil. <b>Au contraire, il le dresse</b> sur son cote. <b>Et s'il vous vient a l'esprit</b> de dire que c'est <b>un lit de fortune, pourquoi n'est-il pas tenu de le renverser ? Mais n'est-ce pas enseigne</b> dans un <i>baraita</i> : En ce qui concerne <b>celui qui renverse son lit</b> pendant un deuil, <b>non seulement il renverse son</b> propre <b>lit, mais plutot il renverse tous les lits qu'il a dans sa maison ?</b>.
+
+### Partie 15
+La Gemara repond : <b>Quelle est la difficulte</b> dans ce cas ? <b>Peut-etre</b> l'absence d'obligation de renverser le <i>dargash</i> est <b>comme pour un lit</b> qui est <b>designe pour</b> le rangement des <b>vetements,</b> et non pour dormir, <b>comme il est enseigne</b> dans une <i>baraita</i> : <b>Si elle a ete designee pour</b> le rangement des <b>vetements</b> et non pour qu'on s'y couche, <b>il n'est pas tenu de la renverser. Au contraire, si</b> elle <b>est difficile, c'est</b> ce qui est <b>difficile,</b> comme il est enseigne dans une <i>baraita</i> : <b>Rabban Shimon ben Gamliel dit :</b> On n'est pas tenu de renverser <b>un <i>dargash</i>.</b> Au contraire, la personne en deuil <b>detache les sangles [<i>karvitin</i>] et il tombe tout seul. Et s'il vous vient a l'esprit</b> de dire que c'est <b>un lit de fortune, est-ce que</b> un tel lit <b>a des sangles ?</b>
+
+### Partie 16
+<b>Au contraire, quand Ravin est venu, il a dit : Un des Sages m'a dit, et Rav Tahlifa</b> est <b>son nom, qu'il etait souvent au marche des maroquiniers, et il lui a dit : Quelle</b> est la signification de <b><i>dargash</i> ? Un lit en cuir. Rabbi Yirmeya dit</b> que <b>Rabbi Yohanan dit :</b> La difference entre un lit et un <i>dargash</i> est la suivante : <b>Un <i>dargash</i></b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

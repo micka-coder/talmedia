@@ -1,0 +1,12 @@
+
+### Partie 1
+<b>Rava a dit :</b> Dans le cas ou <b>il y avait une miche de pain sans proprietaire</b> <b>devant</b> une personne, <b>et qu'elle a dit : Ce pain est consacre,</b> si <b>il a pris</b> le pain <b>pour le manger, il a abuse d'un bien consacre</b>. Son remboursement au Temple pour cet abus est <b>base</b> sur la valeur <b>entiere du pain. </b> En revanche, si son intention n'etait pas de prendre le pain pour lui-meme mais <b>de le leguer a ses fils, il a fait un mauvais usage du bien consacre</b> et son remboursement au Temple est <b>base sur le benefice discretionnaire qu</b> il a tire du fait que ses enfants lui sont redevables du legs, car lui-meme n'a tire aucun benefice direct du pain.
+
+### Partie 2
+<b>Rav Hiyya bar Avin a souleve un dilemme devant Rava.</b> Si un individu dit a un autre : <b>Mon pain</b> est <i>konam</i> <b>pour toi, et</b> ensuite il le <b>donne en cadeau, quelle est</b> la <i>halakha</i> ? Doit-on en deduire : <b>Mon pain</b> est interdit, c'est-a-dire que <b>il lui a dit</b> que <b>lorsque</b> le pain <b>est en sa possession, c'est la qu'il est interdit,</b> mais que lorsqu'il lui fait un cadeau, il n'est plus en sa possession et il n'est plus interdit ? <b>Ou, peut-etre</b> la deduction est : Interdit <b>a toi,</b> c'est-a-dire qu'il lui a dit</b> que <b>il a rendu</b> le pain <b>pour lui comme un objet consacre</b> qui est interdit meme apres que le pain n'est plus en sa possession.
+
+### Partie 3
+Rava <b>lui dit :</b> Il <b>est evident que bien qu'il l'ait donne a</b> l'autre personne <b>comme un cadeau,</b> il est <b>interdit.</b> Rav Hiyya bar Avin lui demande : <b>Mais</b> si c'est le cas, quand il a dit : <b>Mon pain</b> est interdit <b>a toi,</b> en insistant sur le mot mon, <b>qu'est-ce que cela vient <b>exclure ? Ne vient-il pas</b> <b>exclure</b> un cas <b>ou il le lui a vole,</b> puisque dans ce cas il est permis ? Il en serait de meme s'il le lui a donne en cadeau. Rava <b>lui a dit : Non, il</b> vient <b>exclure</b> un cas ou <b>il l'a invite</b> a manger du pain avant de faire son vœu. Dans ce cas, la partie du pain qu'il l'a invite a manger lui appartient, et le proprietaire ne peut pas la rendre interdite. Cependant, meme s'il a invite l'autre personne avant de faire son vœu, le pain entier reste interdit s'il le lui a donne en cadeau.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

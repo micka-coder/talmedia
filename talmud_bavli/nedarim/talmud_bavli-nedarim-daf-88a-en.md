@@ -1,0 +1,15 @@
+
+### Part 1
+<b>Rava said:</b> There is no contradiction here, as the dispute with regard to an unintentional killing is based on divergent interpretations of the verse. <b>Here,</b> the ruling follows <b>from the context of the verse, and there,</b> the ruling follows <b>from the context of the verse. Rabbi Yehuda maintains</b> that <b>with regard to</b> the exile of an unintentional <b>killer it is written: “And a man who goes into the forest with his neighbor</b> to hew wood” (Deuteronomy 19:5), which serves to include <b>anyone</b> who <b>is capable of entering a forest, and a blind person is also is capable of entering a forest. And if you say</b> that the phrase <b>“without seeing”</b> serves <b>to include a blind person,</b> this <b>is</b> already <b>derived from</b> the word <b>“forest,”</b> as he too can enter a forest. <b>Rather, learn from it</b> that the phrase <b>“without seeing”</b> serves <b>to exclude a blind person</b> from the category of unintentional killers who are exiled to a city of refuge.
+
+### Part 2
+By contrast, <b>Rabbi Meir maintains: It is written</b> in that same section: “One who strikes his neighbor <b>without knowledge”</b> (Deuteronomy 19:4), which indicates that the <i>halakha</i> applies to <b>anyone who is capable of knowing</b> the precise location of the people standing about him, <b>but a blind person is not capable of knowing</b> this. <b>And if you say</b> that the phrase <b>“without seeing”</b> serves <b>to exclude a blind person,</b> this <b>is</b> already <b>derived from</b> the words <b>“without knowledge.” Rather, learn from it</b> that the phrase <b>“without seeing”</b> serves <b>to include a blind person</b> in the <i>halakha</i> of exile, not to exclude him.
+
+### Part 3
+<strong>MISHNA:</strong> With regard to <b>one who vows</b> that <b>benefit</b> from him is forbidden <b>to his son-in-law, but he</b> nevertheless <b>wishes to give his daughter,</b> i.e., the wife of that same son-in-law, <b>money,</b> then, though he cannot do so directly, as anything acquired by a woman belongs to her husband, <b>he</b> should <b>say to her: This money is hereby given to you as a gift, provided that your husband has no rights to it,</b> but the gift includes <b>only that which you pick up and place in your mouth.</b>
+
+### Part 4
+<strong>GEMARA:</strong> <b>Rav said</b> that <b>they taught</b> this <i>halakha</i> <b>only</b> in a case <b>where he</b> actually <b>said to her: That which you pick up and place in your mouth</b> is yours. <b>But</b> if <b>he said: Do as you please</b> with the money, his stipulation is of no effect, and <b>the husband acquires</b> the money. <b>And Shmuel says</b> that <b>even</b> if <b>he said: Do as you please</b> with the money, <b>the husband does not acquire it. Rabbi Zeira objects to this</b> statement of Rav:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,51 @@
+
+### Part 1
+This is <b>apart from</b> the mitzvot of <b><i>orla</i> and diverse kinds,</b> which apply even outside of Eretz Yisrael. <b>Rabbi Eliezer says:</b> This is the <i>halakha</i> <b>even</b> with regard to the prohibition to eat from the <b>new crop</b> before the <i>omer</i> offering has been brought on the sixteenth of Nisan.
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara asks: <b>What</b> is meant by mitzvot that are <b>dependent</b> on the land, <b>and what</b> is meant by mitzvot <b>that are not dependent</b> on the land? <b>If we say</b> that a mitzva is called <b>dependent</b> in a case <b>where it is written</b> in a verse <b>with regard to it: Coming</b> to Eretz Yisrael, <b>and</b> a mitzva <b>that is not dependent</b> on the land is one concerning <b>which</b> the verb: <b>Coming,</b> or the verb: Bringing, <b>is not written</b> in a verse <b>with regard to it,</b> that would lead to a difficulty: <b>But aren’t there</b> the mitzvot of donning <b>phylacteries and the</b> redemption of the <b>firstborn donkey, in which</b> the verse <b>states: Bringing,</b> in the passage: “And it shall be when the Lord shall bring you to the land of the Canaanite…And every firstborn of a donkey you shall redeem with a lamb…And it shall be for a sign upon your hand, and for frontlets between your eyes” (Exodus 13:11–16), <b>and</b> yet those mitzvot <b>apply both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael.
+
+### Part 3
+<b>Rav Yehuda said</b> that <b>this is what</b> the mishna <b>is saying: Any mitzva that is an obligation of the body,</b> i.e., an obligation upon the person, <b>applies both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael. Conversely, <b>an obligation of the land,</b> that is, a mitzva that applies specifically to the earth and its growths, <b>applies only in Eretz</b> Yisrael.
+
+### Part 4
+The Gemara asks: <b>From where are these matters</b> derived? The Gemara answers: This is <b>as the Sages taught</b> in a <i>baraita</i>: The verse states: “These are the statutes and the ordinances that you shall observe to do in the land that the Lord, the God of your fathers, has given you to possess it, all the days that you live upon the earth” (Deuteronomy 12:1). This verse is interpreted as follows: The phrase <b>“these are the statutes”</b> means that <b>these are the expositions</b> that the Sages learn from verses. With regard to the phrase <b>“and the ordinances,” these are</b> monetary <b>laws.</b> With regard to <b>“that you shall observe,” this is</b> referring to the <b>study</b> of matters that must be observed for one to perform them. And as for the phrase <b>“to do,” this is</b> referring to <b>action,</b> the actual performance of mitzvot.
+
+### Part 5
+The <i>baraita</i> continues: From the phrase <b>“in the land [<i>ba’aretz</i>],”</b> one <b>might</b> have thought that <b>all mitzvot apply only in Eretz</b> Yisrael. Therefore, <b>the verse</b> also <b>states “all the days that you live upon the earth,”</b> i.e., wherever you live. Furthermore, <b>if</b> the Merciful One had written only the phrase <b>“all the days,”</b> one <b>might</b> have thought that all mitzvot <b>should apply both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael. Therefore, <b>the verse</b> also <b>states “in the land.”</b>
+
+### Part 6
+The <i>baraita</i> continues: <b>Once the verse includes</b> areas outside of Eretz Yisrael <b>and</b> also <b>excludes</b> areas outside of Eretz Yisrael, how is it determined which mitzvot apply outside the land and which do not? The <i>baraita</i> answers: <b>Go and learn from what is stated with regard to</b> a different <b>issue</b> that appears in the next verse: <b>“You shall destroy all the places where</b> the nations that you are to dispossess <b>served</b> their gods” (Deuteronomy 12:2). <b>Just as</b> the prohibition of <b>idol worship is distinct</b> in <b>that it is an obligation of the body, and it applies both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael, <b>so too, any</b> mitzva <b>that is an obligation of the body applies both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael. Conversely, mitzvot that are an obligation connected to the land apply only in Eretz Yisrael.
+
+### Part 7
+§ The mishna teaches that all mitzvot that are dependent on the land apply only in Eretz Yisrael, <b>apart from <i>orla</i> and</b> the prohibition of <b>diverse kinds.</b> Rabbi Eliezer says: This is the <i>halakha</i> even with regard to the prohibition to eat from the new crop. <b>A dilemma was raised before them:</b> Does <b>Rabbi Eliezer disagree</b> with the first <i>tanna</i> with the intent to rule more <b>leniently or</b> does <b>he disagree</b> with the first <i>tanna</i> with the intent to rule more <b>stringently?</b>
+
+### Part 8
+The Gemara elaborates: It is possible that Rabbi Eliezer <b>disagrees</b> with the first <i>tanna</i> with the intent to rule more <b>stringently, and this is what the first <i>tanna</i> is saying:</b> All mitzvot that are dependent on the land apply only in Eretz Yisrael, <b>apart from <i>orla</i> and diverse kinds, as we learned this <i>halakha</i> through a tradition</b> transmitted to Moses from Sinai. <b>Although one could say</b> that each of them <b>is an obligation of the land</b> and should apply only in Eretz Yisrael, nevertheless they are obligatory outside of Eretz Yisrael as well. <b>But</b> the prohibition of the <b>new crop,</b> which is an obligation of the land, <b>yes,</b> it applies <b>in Eretz</b> Yisrael, but <b>outside of Eretz</b> Yisrael, <b>no,</b> it does not apply.
+
+### Part 9
+<b>What is the reason</b> of the first <i>tanna</i>? In the verse that states with regard to the new crop: “In all your dwellings” (Leviticus 23:14), the term <b>dwelling</b> does not mean that this <i>halakha</i> applies wherever Jews live. Rather, it means that the mitzva is applicable only in Eretz Yisrael, as this phrase <b>indicates</b> a time <b>after inheritance and settlement</b> of Eretz Yisrael by the Jewish people, when they are actually dwelling in the land, not when they are in the process of conquering it. This is the opinion of the first <i>tanna</i>.
+
+### Part 10
+<b>And Rabbi Eliezer comes to say: Even</b> the prohibition with regard to the <b>new crop applies both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael. <b>What is the reason</b> for his opinion? He explains that the term <b>dwelling</b> means <b>wherever you dwell.</b> This is one possible way to understand the dispute, according to which the opinion of Rabbi Eliezer is more stringent than that of the first <i>tanna</i>.
+
+### Part 11
+<b>Or perhaps</b> Rabbi Eliezer <b>disagrees</b> with the first <i>tanna</i> with the intent to rule more <b>leniently, and this is what the first <i>tanna</i> is saying:</b> All mitzvot that are dependent on the land apply only in Eretz Yisrael, <b>apart from <i>orla</i> and diverse kinds, as we learned this <i>halakha</i> through tradition, and all the more so</b> apart from the <b>new crop,</b> which applies outside of Eretz Yisrael, <b>as</b> the term <b>dwelling indicates wherever you dwell.</b> This is the opinion of the first <i>tanna</i>.
+
+### Part 12
+<b>And Rabbi Eliezer comes to say:</b> The prohibition of the <b>new crop applies only in Eretz</b> Yisrael, <b>as</b> the term <b>dwelling indicates</b> a time <b>after inheritance and settlement</b> of Eretz Yisrael by the Jewish people. The Gemara asks: <b>And</b> accordingly, <b>what</b> is the meaning of the word: <b>Even,</b> with which Rabbi Eliezer begins his statement? It is not referring to <i>orla</i> and diverse kinds, which apply outside of Eretz Yisrael, but <b>to the first</b> clause, which states that a mitzva that is dependent on the land applies only in Eretz Yisrael. Rabbi Eliezer adds that this principle includes the new crop as well.
+
+### Part 13
+Having presented the two ways in which one can explain the opinion of Rabbi Eliezer, the Gemara attempts to prove which is correct and suggests: <b>Come</b> and <b>hear</b> a proof from that <b>which Abaye said: Who</b> is the <b><i>tanna</i> who disagrees with Rabbi Eliezer? It is Rabbi Yishmael. As it is taught</b> in a <i>baraita</i> with regard to the mitzva of bringing libations with offerings: This serves <b>to teach you that wherever</b> the term <b>dwelling is stated,</b> the mitzva in question applies <b>only after</b> the <b>inheritance and settlement</b> of Eretz Yisrael. This is <b>the statement of Rabbi Yishmael.</b>
+
+### Part 14
+<b>Rabbi Akiva said to him:</b> But there is the case of <b>Shabbat, in which it is stated:</b> “It is a Shabbat to the Lord in all your <b>dwellings”</b> (Leviticus 23:3), <b>and</b> this mitzva <b>applies both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael. Rabbi Yishmael <b>said to</b> Rabbi Akiva: <b>Shabbat is derived through</b> the following <b><i>a fortiori</i></b> inference: <b>If less stringent mitzvot apply both in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael, is it <b>not all the more so</b> reasonable that <b>Shabbat,</b> which is <b>a stringent</b> mitzva, should apply everywhere?
+
+### Part 15
+The Gemara explains the proof. <b>From</b> the fact <b>that Abaye said: Who is the <i>tanna</i> who disagrees with Rabbi Eliezer,</b> it is <b>Rabbi Yishmael,</b> and Rabbi Yishmael says that the term dwelling means that the mitzva applies after Eretz Yisrael has been entirely settled, one can <b>conclude from</b> it that <b>Rabbi Eliezer disagrees</b> with the first <i>tanna</i> with the intent to rule more <b>stringently,</b> as he evidently maintains that the term dwelling means wherever Jews are located. The Gemara affirms: <b>Conclude from</b> that <i>baraita</i> that it is so.
+
+### Part 16
+The Gemara asks an incidental question with regard to Rabbi Yishmael’s opinion. <b>Now, where does Rabbi Yishmael stand,</b> i.e., to which specific mitzva is he referring? He is referring <b>to</b> the obligation to bring <b>libations,</b> from which he learns that all mitzvot that feature the term dwelling apply only after Eretz Yisrael had been conquered and settled. <b>With regard to libations</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

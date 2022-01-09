@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>On ne nous a pas permis le corbeau et on ne nous a pas interdit la colombe.</b> On ne fait que nous parler de ce qui est dit explicitement dans la Torah.
+
+### Partie 2
+La Gemara relate a propos de <b>Rava : Lorsqu'ils apportaient</b> une eventuelle <b><i>tereifa</i> de la maison de Binyamin devant lui, alors qu'il y voyait une raison de permettre</b> sa consommation, Rava leur <b>disait : Voyez que je vous permets un corbeau,</b> car c'est un animal qui semblait interdit. <b>Quand il y verrait une raison d'interdire</b> sa consommation, Rava leur <b>dit : Voyez que j'interdis pour vous une colombe.</b>
+
+### Partie 3
+<b>Rav Pappa dit :</b> Le <i>epikoros</i> mentionne dans la mishna fait reference a celui qui se conduit <b>comme celui qui dit : Ces Sages,</b> avec des connotations meprisantes. La Guemara relate que <b>Rav Pappa</b> lui-meme a <b>forge</b> dans un cas <b>et a dit : Comme ces Sages, et il a observe un jeune</b> pour obtenir l'expiation de s'etre exprime de cette maniere.
+
+### Partie 4
+La Gemara relate : <b>Levi bar Shmuel et Rav Huna bar Hiyya raccommodaient des manteaux pour</b> les <b>rouleaux sacres de l'ecole de Rav Yehuda. Lorsqu'ils atteignirent le rouleau d'Esther, ils dirent : Ce rouleau d'Esther ne necessite pas de manteau,</b> car il n'est pas aussi important que les autres rouleaux sacres. Rav Yehuda <b>leur a dit :</b> Une declaration <b>de ce genre semble egalement</b> exprimer une irreverence <b>comme</b> la <b>irreverence</b> typique d'un <i>epikoros</i>, car vous n'auriez pas du designer le rouleau d'Esther par : Ce rouleau.
+
+### Partie 5
+<b>Rav Nahman dit :</b> Un <i>epikoros</i> <b>est celui qui appelle son maitre par son nom</b> et ne l'appelle pas Rabbi, <b>comme l'a dit Rabbi Yohanan : Pour quelle</b> raison <b>Gehazi a-t-il ete puni ?</b> C'est <b>en raison</b> du fait <b>qu'il a appele son maitre par son nom, comme il est dit : A "Et Guehazi dit : Monseigneur le roi, voici la femme, et voici son fils, qu'Elisee a fait revivre"</b> (IIA Rois 8:5).
+
+### Partie 6
+§ La Gemara relate : <b>Rabbi Yirmeya s'est assis devant Rabbi Zeira, et a dit : Le Saint, Beni soit-Il, fera sortir un fleuve du Saint des Saints, et a cote de lui pousseront toutes sortes de delices</b>, <b>comme il est dit : "Et le fleuve sur sa rive, de ce cote-ci et de ce cote-la, poussera tout arbre alimentaire, dont la feuille ne se fletrira pas et dont le fruit ne tombera pas ; il produira des fruits nouveaux chaque mois, parce que leurs eaux ont emerge du Sanctuaire ; et son fruit sera pour la nourriture et sa feuille pour la medecine"</b> (Ezechiel 47:12). <b>Un certain ancien a dit a</b> Rabbi Yirmeya : <b>Bien fait, et ainsi Rabbi Yohanan a dit : Bien joue. Rabbi Yirmeya dit a Rabbi Zeira :</b> Est-ce qu'une declaration <b>de ce genre,</b> quand celui qui n'est pas un erudit de la Torah dit a un Sage que sa declaration est correcte, <b>semble</b> a la <b>irreverence</b> typique d'un <i>epikoros</i> ?
+
+### Partie 7
+Rabbi Zeira lui <b>dit : Mais ne soutient-il pas votre</b> declaration ? Il ne voulait pas manquer de respect. <b>Au contraire, si tu as entendu</b> que parfois soutenir la declaration d'un Sage est irreverencieux, <b>ceci</b> est ce que <b>tu as entendu :</b> C'est <b>comme ce</b> cas dans <b>lequel Rabbi Yohanan s'est assis et a enseigne : Le Saint, Beni soit-Il, est destine a apporter des pierres precieuses et des bijoux de trente coudees sur trente coudees, et Il y percera</b> une ouverture de <b>dix</b> coudees de large <b>par vingt</b> coudees <b>de hauteur et les placera</b> pour servir <b>de portes de Jerusalem, comme il est dit : "Et je ferai tes pinacles de rubis et tes portes d'escarboucles"</b> (Isaie 54, 12). <b>Un certain etudiant se moqua de lui</b> et <b>dit : Or,</b> actuellement, <b>nous ne trouvons pas</b> de pierres precieuses <b>comparables</b> en taille a <b>l'œuf d'une colombe palmiste.</b> Est-ce que <b>nous trouverons</b> des pierres <b>aussi grandes</b> que celles <b>que tu as decrites ?
+
+### Partie 8
+<b>Quelque temps</b> plus tard, cet etudiants'est mis en route en mer. Il vit les anges tutelaires qui taillaient des pierres precieuses</b> de cette taille. <b>Il dit aux</b> anges : <b>Pour qui</b> sont <b>ces pierres</b> ? Les anges lui <b>repondirent</b> : <b>Le Saint, Beni soit-Il, est destine a les placer aux portes de Jerusalem. Lorsque</b> l'etudiant <b>s'en retourna, il trouva Rabbi Yohanan, qui etait assis et enseignait.</b> L'etudiant lui <b>dit : Mon maitre, enseigne, et il convient que tu enseignes. Tout comme tu as dit</b> a propos des pierres precieuses, <b>ainsi j'ai vu.</b> Rabbi Yohanan <b>lui dit : Bon a rien, si tu ne l'as pas vu</b>, <b>tu ne le croirais pas</b> ? <b>Tu</b> es celui qui <b>se moque des declarations des Sages.</b> Rabbi Yohanan <b>dirigea ses yeux vers lui</b> avec colere <b>et en fit un tas d'os.</b>
+
+### Partie 9
+La Guemara <b>souleve une objection</b> d'un <i>baraita</i> a la declaration de Rabbi Yohanan selon laquelle les portes auront une hauteur de vingt coudees. Les Sages se sont engages dans une dispute concernant l'interpretation du verset : <b>"Et je t'ai fait aller debout [<i>komemiyyut</i>]</b> (Levitique 26:13). <b>Rabbi Meir dit</b> qu'a la fin des temps, les gens auront une taille de <b>deux cents coudees</b>, <b>l'equivalent de deux fois la taille d'Adam le premier</b> homme, qui avait une taille de cent coudees. <b>Rabbi Yehuda dit :</b> Les gens seront <b>de cent coudees</b> de hauteur, <b>correspondant a</b> la hauteur du <b>Sanctuaire et de ses murs, comme il est dit : "Car nos fils sont comme des plantes poussant dans leur jeunesse, nos filles comme des pierres angulaires, taillees a la maniere d'un palais"</b> (Psaumes 144:12), ce qui indique que les fils et les filles auront une hauteur de cent coudees, soit la hauteur du Sanctuaire. Si le peuple est aussi grand, comment pourra-t-il franchir des portes de vingt coudees de haut ?
+
+### Partie 10
+La Guemara repond : <b>Lorsque Rabbi Yohanan dit</b> que les ouvertures auraient une hauteur de vingt coudees, il fait reference <b>aux fenetres</b> par lesquelles <b>le vent entre.</b> Les portes par lesquelles les gens entrent s'etendront considerablement plus haut.
+
+### Partie 11
+§ A propos de la riviere qui emergera du Saint des Saints, la Guemara demande : <b>Quel est le sens de la phrase : <b>Et sa feuille pour la medecine [<i>literufa</i>] ? Rabbi Yitzhak bar Avudimi et Rav Hisda</b> ne sont pas d'accord. <b>L'un dit :</b> Il s'agit d'une abreviation de la phrase : <b>Debloquer la bouche [<i>lehattir peh</i>]</b> qui est <b>au-dessus,</b> c'est-a-dire que la feuille guerit le muet. <b>Et l'on dit :</b> C'est l'abreviation, mais elle signifie <b>debloquer la bouche</b> qui est <b>en bas,</b> un euphemisme pour la guerison du ventre d'une femme sterile.
+
+### Partie 12
+<b>Il a egalement ete declare</b> que d'autres Sages se sont engages dans une dispute concernant cette question. <b>A¸¤izkiyya dit</b> que la reference est : <b>Debloquer la bouche des muets,</b> et <b>bar Kappara dit</b> que la reference est : <b>Debloquer la bouche des femmes steriles. Rabbi Yohanan dit:</b> La reference est <b>a la medecine actuelle.</b> La Gemara demande : Selon cet avis, <b>quelle est</b> la signification de ce terme : <b>Pour la medecine [<i>literufa</i>] ? Rabbi Shmuel bar Nahmani repond :</b> C'est une abreviation signifiant <b>pour</b> embellir <b>la physionomie [<i>letoar panim</i>] des gardiens de la bouche [<i>peh</i>],</b> c'est-a-dire les Sages, qui ont travaille avec leur bouche pour etudier la Torah dans ce monde.
+
+### Partie 13
+<b>Rabbi Yehuda, fils de Rabbi Simon, a enseigne :</b> Pour <b>celui qui noircit son visage</b> en peinant <b>sur des questions de Torah dans ce monde, le Saint, Beni soit-Il, fait briller son eclat dans le Monde-a-Venir, comme il est dit :</b> "Ses meches sont bouclees et noires comme un corbeau" (Cantique des Cantiques 5:11), et par la suite il est ecrit : <b>"Son visage est comme le Liban, excellent comme les cedres"</b> (Cantique des Cantiques 5:15), suivi de :" Son palais est comme des sucreries" (Cantique des Cantiques 5:16). Celui qui s'adonne aux sucreries, c'est-a-dire a l'etude de la Torah, dans ce monde, jusqu'a ce qu'il soit noirci, noir comme un corbeau, a le privilege de briller dans le monde a venir.
+
+### Partie 14
+<b>Rabbi Tanhum, fils de Rabbi Hanilai, dit :</b> En ce qui concerne <b>ceux qui s'affament sur des questions de Torah dans ce monde, le Saint, Beni soit-Il, les satisfait dans le Monde-a-Come, comme il est dit :</b> "Tes jugements sont comme le grand abime" (Psaumes 36:7), indiquant que Dieu est exigeant avec les justes et ne les recompense pas dans ce monde, et il est dit ensuite : <b>"Ils sont abondamment rassasies de l'abondance de Ta maison, et Tu les abreuves au fleuve de Tes plaisirs"</b> (Psaumes 36:9).
+
+### Partie 15
+<b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie <b>il a dit : Le Saint, Beni soit-Il, donnera a chaque juste sa poignee, comme il est dit : "Beni soit le Seigneur, Qui jour apres jour porte notre fardeau ; Dieu est notre salut, Selah"</b> (Psaumes 68, 20). <b>Abaye lui dit : Et est-il possible de dire ainsi,</b> que le Saint, Beni soit-Il, leur donnera Sa poignee ? <b>Mais n'a-t-il pas deja ete dit : "Qui a mesuré les eaux dans le creux de sa main, et mesuré le ciel avec l"?envergure,</b> et compris la poussière de la terre dans une mesure" (Isaie 40.12) ? Et si l'envergure du Saint, Beni soit-Il, est aussi grande que les cieux, comment une personne peut-elle recevoir une poignee du Saint, Beni soit-Il ?
+
+### Partie 16
+Rav Dimi <b>a dit : Quelle est la raison</b> pour laquelle <b>vous n'etes pas familier avec</b> les questions de <b><i>aggada</i> ? Comme on le dit en Occident,</b> Eretz Yisrael, <b>au nom de Rava bar Mari : Le Saint, Beni soit-Il, donnera a chaque juste 310 mondes comme il est dit : "Pour leguer a ceux qui m'aiment une substance [<i>yesh</i>] ; et je remplirai leurs tresors"</b> (Proverbes 8:21). <b>En</b> termes de sa <b>valeur numerique,</b> le mot <b><i>yesh</i>,</b> orthographie <i>yod</i>, <i>shin</i>, <b>est 310,</b> indiquant que Dieu accorde au juste une pleine mesure.
+
+### Partie 17
+Dans un domaine connexe, <b>il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Meir dit : Selon la mesure qu'une personne met</b> pour les autres, la cour celeste <b>met</b> pour elle,</b> c'est-a-dire que la reponse est proportionnelle a l'action, <b>comme il est ecrit : "Dans toute la mesure [<i>besasseâ</i>] ou tu la renvoies, tu la disputes"</b> (Isaie 27, 8). Le terme <i>besasseâ</i> est interprete comme <i>beseâ seâ</i>, ce qui signifie que l'on recoit une mesure [<i>seâ</i>] proportionnelle a la mesure [<i>beseâ</i>] qu'on lui a infligee.
+
+### Partie 18
+<b>Rabbi Yehoshua dit</b> a Rabbi Meir : <b>Et est-il possible de dire que</b> si <b>une personne donne sa poignee a un indigent dans ce monde, le Saint, Beni soit-Il, lui donne Sa poignee dans le Monde-a-Venir ? Mais n'est-il pas ecrit : "Et distribua le ciel avec l"?envergure"</b> (Isaie 40:12) ? Il demanda comment on peut recevoir une recompense aussi genereuse. Rabbi Meir lui repondit : <b>Et tu ne le dis pas ? Lequel</b> des <b>attributs de Dieu est le plus grand ? </b> Est-ce que <b>l'attribut de la recompense est plus grand ou</b> est-ce que <b>l'attribut de la punition</b> est plus grand ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,24 @@
+
+### Part 1
+If there is a water <b>channel</b> on <b>one side</b> of the field <b>and a river</b> on <b>the other side,</b> the field <b>is divided diagonally [<i>bekarna zol</i>]</b> between the two brothers, so that they each receive land adjoining both the river and the water channel.
+
+### Part 2
+§ The mishna teaches that <b>a hall,</b> a drawing room, and the like should <b>not</b> be divided unless the two parties will be able to use their respective portions in the same manner that they had previously used them. The Gemara asks: <b>What is</b> the <i>halakha</i> if <b>there is not enough for this one and that one?</b> What is to be done if one of the parties wishes to dissolve the partnership? <b>Rav Yehuda said: There is a <i>halakha</i></b> of: Either <b>you set</b> a price <b>or I will set</b> a price. That is to say, one party can say to the other: Set a price you are willing to pay for my share, and I will sell my share to you or purchase your share from you at that price. <b>Rav Naḥman said: There is no <i>halakha</i></b> of: Either <b>you set</b> a price <b>or I will set</b> a price; rather, the partnership continues.
+
+### Part 3
+<b>Rava said to Rav Naḥman: According to you who say</b> that <b>there is no <i>halakha</i></b> of: Either <b>you set</b> a price <b>or I will set</b> a price, <b>what should they do</b> if there was <b>a firstborn</b> son <b>and</b> an <b>ordinary</b> brother <b>whose father left them a slave and a non-kosher animal</b> as an inheritance? How are they to be divided? Rav Naḥman <b>said to him: I say that they work for this one,</b> the ordinary brother, <b>one day, and for the other one,</b> the firstborn, <b>two days.</b>
+
+### Part 4
+The Gemara <b>raises an objection</b> to Rav Yehuda’s approach from what is taught in a mishna (<i>Gittin</i> 41a): <b>One who is half-slave half-freeman,</b> e.g., a slave who had been jointly owned by two people, one of whom emancipated him, <b>serves his master one day and himself one day;</b> this is <b>the statement of Beit Hillel. Beit Shammai say: You have remedied</b> the situation of <b>his master,</b> who benefits fully from all his rights to the slave, but <b>you have not remedied his own</b> situation. <b>He cannot marry a maidservant,</b> since half of him is free, and a free Jew may not marry a Canaanite maidservant. <b>He is</b> also <b>not able to marry a free woman,</b> since half of him is a slave, and a Jewish woman may not marry a Canaanite slave. And if you say <b>he should be idle</b> and not marry, <b>but is it not</b> true that <b>the world was created only for procreation, as it is stated: “He did not create it to be a waste; He formed it to be inhabited”</b> (Isaiah 45:18)?
+
+### Part 5
+<b>Rather,</b> the court <b>forces his master to make him a freeman</b> by emancipating the half that he owns, <b>and</b> the court <b>writes a bill</b> in which the slave accepts responsibility to pay <b>half his value</b> to his master. This was the original version of the mishna. The ultimate version of the mishna records the retraction of Beit Hillel: <b>And Beit Hillel retracted</b> its opinion and <b>ruled in accordance with the statement of Beit Shammai.</b> This indicates that it is only in this case, where there is the particular consideration of procreation, that the court compels one of the parties to forfeit his portion and dissolve the partnership. But in other cases there is no <i>halakha</i> of: Either you set a price or I will set a price.
+
+### Part 6
+The Gemara answers: <b>It is different here, because</b> the slave can say: <b>I will set</b> a price, but he is <b>not</b> able to say: <b>You set</b> a price. In other words, the slave cannot offer to sell himself, because his Jewish side precludes him from selling himself as a Canaanite slave. Therefore, the court would not be able force the master to sell his share, were it not for the consideration of procreation. By contrast, in a situation where either side can buy or sell, one partner can compel the other to either buy his portion or sell his portion to him.
+
+### Part 7
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from what is taught in a mishna (172a): In a case where there are <b>two brothers, one poor and one rich, and their father left them a bathhouse or an olive press</b> as an inheritance, if the father had <b>built</b> these facilities <b>for profit,</b> i.e., to charge others for using them, <b>the profit</b> that accrues after the father’s death is <b>shared equally</b> by the two brothers. If the father had <b>built them for himself</b> and for the members of his household to use, the poor brother, who has little use for these amenities, cannot force the rich brother to convert the facilities to commercial use; rather, <b>the rich</b> brother can <b>say to the poor</b> brother:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

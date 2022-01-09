@@ -1,0 +1,54 @@
+
+### Part 1
+The Gemara responds: <b>No, the agent</b> of <b>the court</b> is considered <b>like</b> the <b>creditor,</b> who must wait outside for the debtor to deliver his collateral.
+
+### Part 2
+The Gemara attempts a further proof. <b>Come</b> and <b>hear</b> that which the Sages taught: The verse states: <b>“If you take as collateral your neighbor’s garment,</b> you shall restore it to him until the sun goes down” (Exodus 22:25). <b>The verse is speaking of an agent of the court.</b> Do <b>you say</b> that <b>the verse is speaking of an agent of the court, or</b> perhaps <b>it is</b> referring <b>only to a creditor? When it says: “You shall not go into his house to take his collateral”</b> (Deuteronomy 24:10), the case of <b>a creditor is thereby stated. How</b> then <b>do I realize</b> the meaning of the verse: <b>“If you take as collateral your neighbor’s garment”? The verse is speaking of an agent of the court.</b> This indicates that an agent of the court has permission to take collateral.
+
+### Part 3
+The Gemara responds: This issue <b>is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: <b>An agent of the court who comes to take collateral</b> from a debtor may <b>not enter his house to take the collateral from him. Rather,</b> the agent <b>stands outside and the other,</b> i.e., the debtor, <b>brings out</b> the <b>collateral to him, as it is stated: “You shall stand outside, and the man</b> to whom you lend shall bring forth the collateral” (Deuteronomy 24:11). According to this <i>tanna</i>, the agent of the court has the same status as the creditor.
+
+### Part 4
+<b>And it is taught</b> in <b>another</b> <i>baraita</i>: <b>A creditor who comes to take collateral from</b> the debtor <b>may not enter his house to take his collateral. Rather,</b> he <b>stands outside, and the other,</b> i.e., the debtor, <b>enters and brings out the collateral to him, as it is stated: “You shall stand outside,</b> and the man to whom you lend shall bring forth the collateral” (Deuteronomy 24:11). <b>But</b> as for <b>an agent of the court who comes to take collateral from</b> the debtor, <b>this</b> agent <b>may enter his house and take his collateral.</b>
+
+### Part 5
+The <i>baraita</i> continues: The agent of the court may <b>not take</b> as <b>collateral from</b> the debtor <b>items that</b> people <b>use in the preparation of food,</b> as the debtor needs such items, and the Torah explicitly forbade their removal. <b>And</b> the agent <b>gives,</b> i.e., leaves behind, <b>a bed, and</b> a second <b>bed, and blankets, for a wealthy person;</b> and <b>a bed, and</b> a second <b>bed, and a mat, for a poor person.</b> These items are left <b>for</b> the debtor himself, <b>but not for his wife, and not for his sons or for his daughters,</b> as the Torah did not obligate the creditor to care for the debtor’s family.
+
+### Part 6
+The <i>tanna</i> adds: <b>In the manner that arrangements are made for a debtor</b> to be left with certain necessary utensils, <b>so arrangements are made for</b> one obligated to give money to the Temple treasury resulting from a vow in the category of <b>valuations.</b> If one vowed to give a certain valuation to the Sanctuary as specified in the Torah (see Leviticus 27) but does not have sufficient money to pay that sum immediately, a similar arrangement is made for him. The Gemara is puzzled by this last clause: <b>Isn’t it the opposite?</b> The <b>primary</b> discussion of <b>arrangements is stated</b> in the Torah <b>with regard to valuations,</b> from which the <i>halakha</i> of other debts is derived. <b>Rather, say</b> that <b>in the manner that arrangements are made for valuations</b> as explained by the Torah, <b>so arrangements are made for a debtor.</b>
+
+### Part 7
+§ <b>The Master said</b> above: He <b>gives a bed, and</b> a second <b>bed, and blankets, for a wealthy person;</b> and <b>a bed, and</b> a second <b>bed, and a mat, for a poor person.</b> The Gemara asks: <b>For whom</b> is this extra bed? <b>If we say</b> it is <b>for his wife, for his sons, or for his daughters, didn’t you</b> expressly <b>say</b> that these items are left <b>for him, but not for his wife, for his sons, or for his daughters? Rather,</b> both <b>this</b> bed <b>and that</b> bed <b>are for him.</b>
+
+### Part 8
+The Gemara asks: <b>Why does</b> the debtor need <b>two</b> beds when one should suffice for all his needs? The Gemara answers: <b>One</b> is <b>for</b> him to <b>eat on it and one</b> is <b>for</b> him to <b>sleep on it,</b> and this is <b>in accordance</b> with the opinion of <b>Shmuel. As Shmuel,</b> who was a doctor by profession, <b>said:</b> With regard to <b>all items</b> that cause illness, <b>I know their cure, apart from these three: One who eats a bitter date [<i>ahina</i>] on an empty stomach, one who girds a wet linen belt around his loins, and one who eats bread and does not walk four cubits</b> afterward. It is for this reason that one requires two beds, so that he should not eat and sleep on the same bed without having to walk a little distance between them after his meal.
+
+### Part 9
+§ <b>A <i>tanna</i> taught</b> a <i>baraita</i> <b>before Rav Naḥman: In the manner in which arrangements are made for valuations, so arrangements are made for a debtor.</b> Rav Naḥman <b>said to him: Now</b> that it states in the mishna that <b>we sell</b> his collateral, do <b>we arrange for him</b> to keep part of it? The Gemara asks: <b>And do we sell it? But didn’t we learn</b> in the mishna that <b>he returns a pillow at night and a plow by day,</b> which demonstrates that such items are not sold?
+
+### Part 10
+The Gemara answers: <b>The <i>tanna</i> taught</b> the <i>baraita</i> <b>before him in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel, and this is what</b> Rav Naḥman <b>was saying to him: Now,</b> since <b>according to Rabban Shimon ben Gamliel we sell</b> the collateral, do <b>we make arrangements for him</b> to keep it? <b>As we learned</b> in the mishna: <b>Rabban Shimon ben Gamliel says: Even to</b> the debtor <b>himself</b> he needs to <b>return</b> the collateral each day <b>only until thirty days</b> have passed, <b>and from that point onward,</b> the creditor can <b>sell them in court,</b> with the proceeds going toward payment of the debt.
+
+### Part 11
+The Gemara asks: <b>And from where</b> is it known <b>that when Rabban Shimon ben Gamliel said</b> that he <b>sells</b> the collateral, he <b>was saying</b> that there may be <b>a complete</b> sale? <b>Perhaps this</b> is what he <b>is saying: Until thirty days,</b> the creditor <b>returns</b> it <b>to</b> the debtor <b>as is; from that</b> point <b>onward,</b> the creditor <b>returns to him that which is fit for him, and we sell what is not fit for him.</b>
+
+### Part 12
+The Gemara rejects this suggestion: <b>If it enters your mind</b> that <b>Rabban Shimon ben Gamliel maintains this reasoning, there is nothing that is unfit for him. As Abaye said: Rabban Shimon ben Gamliel and Rabbi Shimon and Rabbi Yishmael and Rabbi Akiva all hold</b> that <b>all Israel are the children of kings.</b> In other words, a Jew is never deemed unfit to use a certain item, even if it is a luxury item.
+
+### Part 13
+The Gemara cites the cases in which the <i>tanna’im</i> apply the above principle. <b>Rabban Shimon ben Gamliel</b> applies this principle, <b>as we learned</b> in a mishna (<i>Shabbat</i> 126b): One may <b>not</b> move either raw <b>arum or</b> raw <b>mustard</b> on Shabbat, as these are unfit for consumption when they are raw, and are therefore set-aside [<i>muktze</i>]. <b>In</b> the case of <b>arum, Rabban Shimon ben Gamliel permits</b> moving it <b>because it is</b> considered <b>food for ravens,</b> which wealthy Jews would breed for purposes of ornamentation and amusement. As Rabban Shimon ben Gamliel permits all people to carry arum, not only the rich, it is evident that he maintains that all Jews are considered wealthy in this regard.
+
+### Part 14
+<b>Rabbi Shimon</b> applies this principle <b>as we learned</b> in a mishna (<i>Shabbat</i> 111a): <b>Princes may smear rose oil on their wounds on Shabbat,</b> even though most people use this oil for medicinal purposes, and healing oneself using oil is prohibited on Shabbat. The reason is <b>that it is the usual manner</b> of princes <b>to smear</b> rose oil on themselves for pleasure <b>during the week</b>. <b>Rabbi Shimon says: All of the Jewish people are princes,</b> and it is permitted for them to smear rose oil on themselves on Shabbat.
+
+### Part 15
+<b>Rabbi Yishmael and Rabbi Akiva</b> also hold this opinion, <b>as it is taught</b> in a <i>baraita</i>: If creditors <b>were claiming one thousand dinars</b> from someone, <b>and</b> he was <b>wearing a cloak [<i>itztela</i>] worth ten thousand dinars,</b> the court <b>strips it from him</b> and sells it for his debt, <b>and dresses him</b> in <b>a cloak appropriate for him,</b> as one who is in debt does not have the right to withhold payment while possessing such an expensive garment. <b>And</b> it was <b>taught in the name of Rabbi Yishmael, and</b> it was similarly <b>taught in the name of Rabbi Akiva: All of the Jewish people are fit for that cloak.</b> One’s clothing is not sold to pay a debt, and since all Jews are worthy of wearing the finest garments, this <i>halakha</i> applies to an expansive cloak as well.
+
+### Part 16
+The Gemara returns to the issue at hand: <b>And with regard to what entered our minds initially, that</b> according to the opinion of Rabban Shimon ben Gamliel, the creditor <b>returns to him that which is fit for him and we sell what is not fit for him,</b> there is a difficulty, as the examples given in the mishna are bedding and a plow. <b>Granted,</b> this is understandable with regard to a pillow or cushion, as it can mean that the court sells these items only if the difference in cost <b>between</b> the ones he has and less expensive ones that are also <b>fit for him</b> suffices to repay the debt. <b>But for what is a plow fit?</b> In other words, how can there be a difference in price in this case? <b>Rava bar Rabba said:</b> This is referring to <b>a silver plow,</b> which is an ornament and not used for work.
+
+### Part 17
+<b>Rav Ḥagga objects to this</b> entire opinion concerning the arrangement made for a debtor: <b>Let</b> the creditor <b>say to</b> the debtor: <b>Your</b> needs <b>are not cast upon me.</b> In other words, why should I, who lent you money, make allowances for your livelihood? <b>Abaye said to him:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

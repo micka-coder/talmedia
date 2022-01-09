@@ -1,0 +1,42 @@
+
+### Partie 1
+La Gemara repond : <b>Au contraire,</b> si l'on compte ainsi, il faut dire que <b>ces deux</b> cas que <b>vous avez enleves,</b> c'est-a-dire un animal dont les pattes arriere ont ete coupees et un autre dont la peau a ete enlevee, <b>ne pas enlever.</b> Le compte restera alors de dix-huit.
+
+### Partie 2
+§ <b>Ulla dit : Huit types de <i>tereifot</i> ont ete enonces a Moise au Sinai,</b> et tous les cas mentionnes dans la Mishna et ailleurs entrent dans ces categories : Un animal dont l'organe a ete <b>perfore ou sectionne, enleve ou auquel il manque</b> un morceau, un animal qui a ete <b>dechire ou griffe</b> par des animaux sauvages, ou qui est <b>tombe ou</b> a ete <b>brise.</b> La Gemara note : Cette liste est etablie <b>a l'exclusion d'un organe malade</b>, <b>que Rakhish bar Pappa</b> a mentionne a propos d'un rein. Ulla ne considere pas cela comme une <i>tereifa</i>.
+
+### Partie 3
+<b>A¸¤iyya bar Rava dit : Il y a huit <i>tereifot</i> dans</b> la categorie d'un <b>organe perfore</b> : Un œsophage perfore, une membrane cerebrale, un cœur, un poumon, une caillette, un intestin, un rumen interne et un reticulum ou un omasum qui a ete perfore vers l'exterieur. <b>Si l'on dit</b> qu'il y en a <b>neuf,</b> car une vesicule biliaire perforee est egalement mentionnee dans la mishna, on peut dire qu'en ce qui concerne la <b>vesicule biliaire,</b> seul <b>Rabbi Yosei, fils de Rabbi Yehuda, l'enseigne,</b> et qu'il s'agit de l'opinion d'un individu. <b>Comme il est enseigne</b> dans une <i>baraita</i> : Si <b>la caillette a ete perforee,</b> ou <b>les intestins ont ete perfores,</b> c'est <b>une <i>terifa</i>. Rabbi Yosei, fils de Rabbi Yehuda, dit : Meme</b> si <b>la vesicule biliaire a ete perforee</b> c'est un <i>tereifa</i>.
+
+### Partie 4
+§ La Guemara fournit <b>un moyen mnemotechnique</b> pour les declarations suivantes de Rabbi Yitzhak, fils de Rabbi Yosef : <b><i>Halakhot</i>, ami, olive-bulbe, vesicule biliaire et gesier.</b>
+
+### Partie 5
+<b>Rabbi Yitzhak, fils de Rabbi Yosef, dit</b> que <b>Rabbi Yohanan</b> n'est pas d'accord avec la declaration de Hiyya bar Rava et <b>dit : </b> La <b><i>halakha</i></b> est <b>conforme</b> a l'opinion de <b>Rabbi Yosei, fils de Rabbi Yehuda,</b> qu'une vesicule biliaire perforee rend l'animal un <i>tereifa</i>.
+
+### Partie 6
+<b>Et Rabbi Yitzhak, fils de Rabbi Yosef, dit</b> que <b>Rabbi Yohanan dit : Que lui ont repondu les amis de Rabbi Yosei, fils de Rabbi Yehuda ? </b> Ils ont repondu que Job a dit : <b>"Il repand mon fiel sur le sol"</b> (Job 16:13), <b>et</b> pourtant <b>Job</b> etait <b>encore en vie.</b> A l'evidence, celui qui a la vesicule biliaire perforee peut vivre. Rabbi Yosei <b>leur a dit :</b> Job a ete maintenu en vie par un miracle, et <b>on ne mentionne pas les actes miraculeux</b> comme preuve d'un jugement general. <b>Aussi, si vous ne le dites pas,</b> alors l'autre phrase du verset : <b>"Il me fend les reins, et n'epargne pas"</b> est problematique. <b>Est-ce que</b> celui qui a les reins fendus <b>vit ? Au contraire, un miracle est different, comme il est ecrit</b> que Dieu a dit a Satan a propos de Job : <b>"N'epargne que sa vie"</b> (Job 2:6). Dans des circonstances naturelles, Job aurait du mourir de ses blessures, mais dans ce cas, il a ete maintenu en vie par un miracle. <b>Ici aussi,</b> en ce qui concerne la vesicule biliaire, on doit dire que <b>un miracle est different,</b> et on ne peut pas en apporter la preuve.
+
+### Partie 7
+<b>Et Rabbi Yitzhak, fils de Rabbi Yosef, dit</b> que <b>Rabbi Yohanan dit :</b> La <b><i>halakha</i></b> est <b>conforme a la declaration de celui qui dit</b> que si le foie d'un animal a ete enleve mais qu'il en reste une <b>boule d'olive</b>, il est cachere.
+
+### Partie 8
+La Guemara demande : <b>Et est-ce que Rabbi Yohanan</b> dit vraiment <b>cette phrase ? Mais Rabba bar bar Hana ne dit-il pas</b> que <b>Rabbi Yohanan dit :</b> La <b><i>halakha</i></b> est toujours <b>conforme a une mishna non attribuee ; et nous avons appris</b> dans la mishna : Si <b>le foie a ete enleve et qu'il n'en reste rien,</b> l'animal est une <i>tereifa</i> ? On peut en deduire que s'il en <b>restait quelque chose,</b> l'animal est <b>cacher meme si</b> ce qui reste <b>ne constitue pas</b> <b>une olive-bulk.</b> La Gemara repond : <b>Ils sont des <i>amoraim</i>, et</b> ils sont en desaccord <b>en ce qui concerne</b> l'opinion <b>de Rabbi Yohanan</b> quant a savoir s'il soutient que la <i>halakha</i> est toujours conforme a une mishna non attribuee.
+
+### Partie 9
+La Guemara rapporte une autre declaration <b>que Rabbi Yitzhak, fils de Rabbi Yosef, dit</b> que <b>Rabbi Yohanan dit : </b> Si la <b>vessie biliaire a ete perforee</b> a un endroit ou elle etait adjacente au foie, <b>et que le foie bouche</b> le trou, l'animal est <b>cacher,</b> meme si une vesicule biliaire perforee rend normalement l'animal <i>tereifa</i> selon Rabbi Yohanan.
+
+### Partie 10
+<b>Et Rabbi Yitzhak, fils de Rabbi Yosef, dit</b> que <b>Rabbi Yohanan dit :</b> Meme si la mishna sur 56a enseigne que si le gesier d'un oiseau a ete perfore, c'est une <i>terifa</i>, si <b>le gesier a ete perfore mais que sa <b>doublure interne est intacte,</b> l'oiseau est <b>cacher.</b>
+
+### Partie 11
+<b>Un dilemme a ete souleve devant</b> les Sages : Si <b>la</b> doublure interieure</b> du gesier <b>a ete perforee, mais</b> la chair du <b>gesier est intacte, quelle</b> est la <i>halakha</i> ? La Gemara suggere : <b>Venez</b> et <b>entendez</b> une preuve de ce <b>que Rav Nahman a dit</b> a propos d'un gosier perfore : Si sa doublure exterieure et sa doublure interieure ont ete perforees, l'animal est une <i>tereifa</i>, mais si <b>cette</b> doublure <b>a ete perforee sans que cette</b> doublure ne soit perforee, il est <b>kasher.</b> De meme, <b>Rava dit : Le gosier a deux doublures,</b> la <b>rouge exterieure, et</b> la <b>blanche interieure.</b> Si <b>cette doublure</b> a ete perforee sans que cette</b> doublure soit perforee, l'animal est <b>cacher.</b> La Gemara demande : <b>Pourquoi ai-je</b> besoin que Rava <b>declare</b> que la <b>sortie</b> est <b>rouge et</b> la <b>interieure</b> est <b>blanche ?</b> N'est-ce pas une evidence ? La Guemara repond : Cela enseigne <b>que si</b> les deux etaient <b>interverties,</b> c'est-a-dire que la doublure exterieure devenait blanche et l'interieure rouge, l'animal est <b>un <i>tereifa</i>.</b>
+
+### Partie 12
+<b>Un dilemme a ete souleve devant</b> les Sages : Si <b>les deux</b> doublures <b>etaient perforees,</b> mais <b>non adjacentes l'une a l'autre, quelle est</b> la <i>halakha</i> ? <b>Mar Zutra dit au nom du Rav Pappa :</b> Si cela s'est produit <b>dans le gosier,</b> l'animal est <b>cacher;</b> mais si cela s'est produit <b>dans le gesier,</b> il est <b>inapte</b> a la consommation. <b>Rav Ashi s'oppose a cela : Au contraire, le gosier, avec lequel</b> l'animal <b>mange et appelle, est spacieux</b> et flexible, et l'animal <b>le contraint et l'etire.</b> Comme les deux revetements ne sont pas relies l'un a l'autre, <b>il y a des moments</b> au cours de leur mouvement <b>que</b> les deux trous <b>s'alignent [<i>demihandezin</i>] l'un avec l'autre,</b> creant une perforation completement alignee. Mais le <b>gesier, qui est</b> toujours <b>au repos</b> en place, <b>se tient comme il</b> toujours <b>se tient.</b> Par consequent, deux telles perforations ne s'aligneront jamais. <b>Rav Aha, fils de Rav Yosef, dit a Rav Ashi : Nous disons donc au nom de Mar Zutra, qu'en fait</b> il a <b>dit au nom de Rav Pappa conformement a votre</b> objection.
+
+### Partie 13
+§ <b>Et Rabba dit : Une membrane apparue a cause d'une blessure dans le gosier,</b> c'est-a-dire une croute qui a recouvert une perforation, <b>n'est pas</b> consideree comme <b>une membrane</b> qui empeche de rendre l'animal <i>tereifa</i>. <b>Et Rabba dit :</b> Le <b>gullet ne peut pas etre inspecte de l'exterieur</b> pour determiner si l'animal est une <i>tereifa</i>, car la doublure exterieure elle-meme est rouge, et donc on ne peut y discerner une rougeur due a une blessure. <b>Au contraire,</b> il doit etre inspecte <b>de l'interieur,</b> ou la doublure est blanche. La Gemara demande : <b>Quelle difference y a-t-il</b> a la suite de cette declaration, c'est-a-dire dans quel cas le gosier doit-il etre inspecte de l'interieur ?
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

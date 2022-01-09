@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Venez</b> et <b>entendez</b> une resolution de ce dilemme. Si <b>elle dit : Mon mari est mort et par la suite mon beau-pere est mort, elle peut se marier et prendre</b> son argent du <b>contrat de mariage, et sa belle-mere est interdite</b> de se remarier ; elle n'est pas jugee credible pour temoigner pour sa belle-mere, comme deja dit. La Guemara clarifie : <b>Quelle est la raison</b> pour laquelle <b>sa belle-mere est interdite</b> de se remarier ? N'est-ce pas <b>pas parce qu'on dit :</b> Peut-etre que <b>son mari n'est pas</b> vraiment <b>decede,</b> et qu'elle est toujours sa belle-mere, <b>et son beau-pere n'est pas mort</b> non plus, <b>et</b> la raison pour laquelle elle dit cette</b> declaration <b>est qu'elle a l'intention de ruiner sa belle-mere ?</b>
+
+### Partie 2
+La Gemara developpe. <b>Elle raisonne : Plus tard,</b> lorsque les maris arriveront, <b>elle ne reviendra pas me troubler,</b> car si la belle-mere se fie a ce temoignage et se remarie, elle ne pourra plus retourner aupres de son mari initial, et elle sortira de la vie de sa belle-fille. Cela montre que l'on craint qu'une belle-fille puisse mentir afin d'empecher les futures relations familiales de voir le jour. De meme, une femme doit etre soupconnee de mentir a l'egard de sa future belle-fille.
+
+### Partie 3
+La Guemara rejette cette suggestion. <b>Peut-etre</b> que c'est <b>different ici, car</b> la belle-fille s'est deja <b>sentie opprimee par sa</b> belle-mere. En d'autres termes, elle est soupconnee de mentir parce qu'elle a eu des rapports anterieurs avec cette femme, alors que dans le cas d'une future belle-mere, avec laquelle elle n'a pas eu de rapports anterieurs, il n'y a pas cette preoccupation. Par consequent, le dilemme ne peut etre resolu a partir de ce cas.
+
+### Partie 4
+<strong>MISHNA :</strong> Si un <b>temoin dit :</b> L'homme <b>est mort, et</b> la femme <b>se marie</b> sur la base de ce temoignage, <b>et un</b> autre temoin <b>arrive et dit :</b> Il n'est <b>pas mort, elle</b> n'a pas besoin <b>de quitter</b> son nouveau mari a cause de ce temoignage. Cependant, si un <b>temoin</b> vient et <b>dit :</b> Le mari <b>est mort, et deux</b> temoins <b>disent :</b> Il n'est <b>pas mort,</b> alors <b>meme si elle s'est mariee</b> sur la base du premier temoin <b>elle doit quitter</b> son nouveau mari. Si <b>deux</b> temoins <b>disent : Il est mort, et</b> un <b>temoin dit :</b> Il n'est <b>pas mort,</b> le temoignage des deux temoins est accepte, et <b>meme si elle ne s'est pas</b> encore <b>mariee, elle peut se marier.</b>
+
+### Partie 5
+<strong>GEMARA : </strong>La Gemara en deduit : <b>La raison</b> dans le cas d'un temoin contredit par un autre temoin <b>est qu'elle</b> s'est deja <b>mariee;</b> cependant, si <b>elle n'a pas</b> encore <b>marie</b> et qu'un deuxieme temoin vient entre-temps et contredit la declaration du premier, <b>elle ne peut pas se marier.</b> La Gemara demande : <b>Mais Ulla n'a-t-il pas dit : Partout ou</b> vous trouvez que <b>la Torah s'appuie sur un seul temoin,</b> son temoignage est considere comme une preuve complete, comme si <b>il y avait deux</b> temoins presents <b>ici ?</b> Si c'est le cas, le temoin qui vient attester du contraire n'est qu'un temoin, <b>et la declaration d'un</b> temoin <b>n'a pas</b> de valeur <b>dans un lieu ou</b> elle est contredite par <b>deux</b> temoins. Pourquoi, alors, ne peut-elle pas se remarier, meme <i>ab initio</i> ?
+
+### Partie 6
+La Guemara repond que <b>C'est ce que</b> la mishna <b>a dit :</b> Si <b>un temoin dit : Il est mort, et on lui a permis de se marier</b> sur la base de son temoignage, <b>et un</b> autre temoin plus tard <b>arrive et dit : Il n'est pas mort, elle ne quitte pas son etat initial, autorise</b>, c'est-a-dire que la permission qui lui a ete accordee de se remarier est toujours en vigueur, et elle peut se marier <i>ab initio</i>.
+
+### Partie 7
+§ La mishna a enseigne que si un <b>temoin dit : Il est mort,</b> et que deux viennent et disent : Il n'est pas mort, elle doit quitter son nouveau mari. La Guemara demande : Ceci <b>est evident, car la declaration d'un</b> temoin <b>n'a aucune</b> qualite pour agir <b>dans un lieu ou</b> elle est contredite par <b>deux</b> temoins. La Gemara repond : <b>Non,</b> il est <b>necessaire</b> dans un cas <b>de</b> personnes <b>disqualifiees</b> pour donner <b>un temoignage.</b> En d'autres termes, la mishna fait reference a deux personnes qui sont generalement disqualifiees pour servir de temoins. Dans le cas d'un mari disparu, cependant, leur temoignage est accepte en contradiction avec le premier temoin, qualifie. <b>Et</b> ceci est <b>conforme</b> a l'opinion du <b>Rabbin Nehemya.</b>
+
+### Partie 8
+<b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Nehemya dit : Partout ou</b> vous trouvez que <b>la Torah s'appuie sur un seul temoin, suivez la majorite des opinions,</b> meme si elles sont disqualifiees. <b>Et</b> les Sages ont <b>etabli</b> le temoignage de <b>deux femmes contre un homme</b> dans ce cas <b>comme</b> le temoignage de <b>deux hommes contre un homme,</b> c'est-a-dire que le temoignage des deux temoins annule le temoignage anterieur d'un seul temoin. La mishna enseigne que meme si le premier temoin etait qualifie pour temoigner, son recit est annule par les declarations des deux temoins disqualifies qui l'ont contredit.
+
+### Partie 9
+<b>Et si vous le souhaitez, dites : Partout ou un temoin qualifie est venu initialement</b> et a temoigne qu'il est mort, <b>meme</b> si <b>cent femmes</b> sont venues et ont contredit son recit, elles <b>sont considerees comme un seul temoin,</b> et ne peuvent pas nier son temoignage. <b>Cependant,</b> ici il est question d'un cas <b>ou une femme est venue initialement</b> et ils se sont appuyes sur son temoignage pour liberer la femme, et par la suite deux autres femmes sont venues et l'ont contredite.
+
+### Partie 10
+La Gemara explique : <b>Et</b> vous pouvez <b>expliquer</b> la decision <b>conformement</b> a l'avis du <b>Rabbin Nehemya comme suit : Le rabbin Nehemya dit : Partout ou</b> vous trouvez que <b>la Torah s'appuie sur un seul temoin,</b> par exemple, dans le temoignage concernant le mari disparu d'une femme, <b>suivez la majorite des avis, et ils ont etabli deux femmes contre une femme comme deux hommes contre un homme. Cependant,</b> dans un cas impliquant <b>deux femmes contre un homme,</b> ce dernier etant un temoin qualifie, cela <b>est comme une moitie contre une moitie,</b> c'est-a-dire qu'ils sont egaux. Le temoignage de deux femmes n'a aucun avantage par rapport a celui d'un seul temoin masculin, qui est considere comme deux temoins dans un temoignage concernant un mari disparu.
+
+### Partie 11
+§ La mishna a enseigne : Si <b>deux</b> temoins <b>disent : Il est mort,</b> et qu'un temoin dit : Il n'est pas mort, meme si elle ne s'est pas encore mariee, elle peut se marier. La Gemara demande : <b>Que nous <b>enseigne la mishna ?</b> Si l'on dit qu'elle fait reference <b>aux</b> personnes <b>disqualifiees</b> pour donner un <b>temoignage, et</b> ceci est <b>conforme</b> a l'avis du <b>Rabbi Nehemya, qui suit la majorite des avis,</b> alors <b>cette affaire</b> <b>est</b> identique a <b>cette affaire</b> precedente.
+
+### Partie 12
+La Gemara repond. Ce cas est egalement necessaire, <b>de peur que vous ne disiez</b> que <b>lorsque nous suivons la majorite des avis,</b> ce n'est que lorsque cela conduit <b>a une rigueur, mais</b> lorsque ce principe conduirait <b>a une indulgence,</b> pour lui permettre de se marier sur la base de la majorite des avis, nous ne <b>suivons pas</b> l'avis de la majorite. Par consequent, la mishna <b>nous enseigne</b> qu'il n'y a pas de difference a cet egard, car la majorite des opinions est acceptee, que cela conduise a un resultat clement ou rigoureux.
+
+### Partie 13
+<strong>MISHNA :</strong> Si deux femmes qui etaient mariees au meme homme se presentent, et que <b>une</b> d'entre elles <b>dit</b> que le mari <b>est mort, et</b> l'autre <b>dit qu'il n'est pas mort, celle qui dit qu'il est mort peut se marier</b> sur la base de son propre temoignage, <b>et elle prend</b> l'argent de <b>son contrat de mariage. Et celle qui a dit qu'il n'est pas mort ne peut pas se marier, et ne prend pas</b> l'argent de <b>son contrat de mariage.</b>
+
+### Partie 14
+Si <b>une</b> epouse <b>dit : Il est mort</b> de maniere normale, <b>et</b> l'autre <b>dit : Il a ete tue, Rabbi Meir dit : Puisqu'elles se contredisent, ces</b> femmes <b>ne peuvent pas se marier. Rabbi Yehuda et Rabbi Shimon disent : Puisqu'ils sont tous deux d'accord qu'il n'est pas vivant, ils peuvent se marier,</b> malgre le fait qu'ils contestent les circonstances de sa disparition. Si <b>un temoin dit : Il est mort, et un temoin dit : Il n'est pas mort,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,33 @@
+
+### Part 1
+<b>Here Rabbi</b> Yehuda HaNasi <b>taught,</b> i.e., it can be learned from this mishna that it is Rabbi Yehuda HaNasi’s opinion that <b>everything</b> belongs <b>to the owner of the money.</b> If one earned a profit through the actions of his agent, the profit belongs to him and not to the agent, <b>as it is taught</b> in a <i>baraita</i> where the Sages debate this matter: In a case where one sent an agent to the marketplace to purchase merchandise at a certain price, if in addition to items that the agent purchased <b>they added for him one extra</b> item, <b>the entire</b> profit belongs <b>to the agent;</b> this is <b>the statement of Rabbi Yehuda. Rabbi Yosei says:</b> The owner of the money and the agent <b>split</b> the profit.
+
+### Part 2
+The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yosei says: Everything</b> belongs <b>to the owner of the money? Rami bar Ḥama said:</b> This is <b>not difficult. Here</b> the <i>baraita</i> is referring to <b>an item that has a fixed</b> price. If the seller added something, it is clear that the additional item is a gift, but it is unclear if the gift is meant for the agent or for the owner of the money, so it is split between the two. Whereas <b>there,</b> the <i>baraita</i> is referring to <b>an item that does not have a fixed</b> price, and one can say that any additional items that were given were not intended for the agent, but were part of the overall deal and belong to the owner of the money.
+
+### Part 3
+<b>Rav Pappa said: The <i>halakha</i></b> is that <b>an item that has a fixed</b> price <b>is split,</b> and with regard to <b>an item that does not have a fixed</b> price, <b>the entire</b> profit belongs <b>to the owner of the money.</b> The Gemara asks: <b>What is he teaching us</b> with that statement? That is exactly what Rami bar Ḥama said. The Gemara explains: He wanted to say that <b>the answer that we taught is the</b> correct <b>answer,</b> and one can issue practical halakhic rulings based on it.
+
+### Part 4
+§ <b>A dilemma was raised before</b> the Sages: If <b>one said to</b> his agent: <b>Sell</b> on <b>my</b> behalf <b>a half-<i>kor</i>, and</b> the agent <b>went and sold for him a <i>kor</i>, what</b> is the <i>halakha</i>? Is <b>he</b> considered to be <b>adding to the words</b> of his employer? In that case, though he also performed an action that he was not assigned to do, part of his action was performing his assigned agency, and the buyer <b>at least acquired a half-<i>kor</i>. Or perhaps he is</b> considered to be <b>disregarding his</b> employer’s <b>words,</b> since he did not perform exactly what he was told to do, in which case the entire transaction was performed by his own volition, without the authorization of his employer, <b>and even the half-<i>kor</i> is not acquired</b> by the buyer.
+
+### Part 5
+<b>Rav Ya’akov of Pekod River said in the name of Ravina: Come</b> and <b>hear</b> proof from a mishna (<i>Me’ila</i> 20a): The mishna teaches with regard to the <i>halakhot</i> of misuse of consecrated property: If <b>the host said to his agent: Give the guests a piece</b> of meat, <b>and</b> the agent went and <b>said</b> to the guests: <b>Take two</b> pieces, <b>and they</b> went and <b>took three,</b> and in the end it was ascertained that the meat was consecrated, <b>they are all guilty of misusing consecrated property.</b>
+
+### Part 6
+<b>Granted, if you say</b> that the agent <b>is adding to the words</b> of the host, this <i>halakha</i> is understandable, because then, when the agent said to the guests: Take two pieces, he presented one of the pieces as the agent of the host. It is <b>due to that</b> reason that <b>the host is guilty of misusing consecrated property. However, if you say</b> that the agent <b>is disregarding the words</b> of the host, <b>why</b> is <b>the host guilty of misusing consecrated property? Didn’t we learn</b> in a mishna (<i>Me’ila</i> 20a): If <b>an agent who performed his</b> assigned <b>agency</b> caused consecrated property to be misused, it is <b>the host</b> who appointed him who <b>is guilty of misusing consecrated property;</b> however, if the agent <b>did not perform his</b> assigned <b>agency,</b> and did not act in accordance with his instructions, it is <b>the agent</b> who <b>is guilty of the misuse</b> and not the employer?
+
+### Part 7
+The Gemara answers: <b>With what are we dealing here?</b> This is a case <b>where</b> the agent <b>said</b> explicitly <b>to</b> the guests: <b>Take one</b> piece <b>with the consent of the host, and one</b> piece <b>with my consent, and they took three</b> pieces. Since every piece of meat was taken with the consent of someone else, they are all guilty of the misuse of consecrated property.
+
+### Part 8
+The Gemara suggests: <b>Come</b> and <b>hear</b> an understanding of the mishna: If <b>her marriage contract was</b> worth <b>one hundred dinars, and she sold</b> property <b>worth one hundred dinars and a dinar for one hundred dinars, the sale is void.</b>
+
+### Part 9
+The Gemara interprets the case of the mishna: <b>What, is it not that she sold</b> property <b>worth one hundred dinars and a dinar for one hundred dinars and a dinar,</b> and there was no error in the sale? <b>And what</b> does it mean when the mishna says that she sold the property <b>for one hundred dinars?</b> It means that she sold it in order to receive the <b>one hundred dinars</b> owed to <b>her</b> because of her marriage contract. <b>And what</b> does it mean when it says in the mishna: <b>Even</b> if she says: I will return the one extra dinar to the heirs, nevertheless the sale is voided? It means that <b>even if she says: I will return the dinar to the heirs by</b> giving them <b>a dinar’s</b> worth <b>from my land,</b> the heirs will not be losing anything at all. The Gemara concludes the proof: <b>And</b> the mishna <b>teaches</b> that even so the <b>sale is void,</b> implying that not just what she added is void, but the entire sale is voided.
+
+### Part 10
+<b>Rav Huna, son of Rav Natan, said: No,</b> the correct understanding of the mishna is not that she sold the land for its proper price. Rather, the mishna is referring to a situation <b>where she reduced</b> its price and sold the property for less than its worth, and there was an error in the sale itself.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

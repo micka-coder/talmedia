@@ -1,0 +1,63 @@
+
+### Partie 1
+La Gemara demande : <b>Pourquoi ne sont-ils pas impregnes de la saintete</b> de la mere ? La Gemara repond : <b>Rabban Shimon ben Gamliel soutient</b> que <b>la progeniture des animaux sacrifies</b> <b>sont impregnes de saintete</b> uniquement <b>au moment ou ils prennent naissance,</b> c'est-a-dire des leur naissance. <b>Aussi, s'il entre dans votre esprit</b> qu'ils sont <b>sanctifies</b> deja <b>dans le ventre de leur mere, pourquoi ne sont-ils pas impregnes de la saintete</b> de la mere ? Apres tout, <b>la saintete de leur mere s'est emparee d'eux. Apprenez plutot</b> que la <b>progeniture des animaux sacrifies</b> <b>est sanctifiee</b> seulement <b>au moment ou elle nait.</b>
+
+### Partie 2
+<b>Et cette <i>tanna</i></b> n'est pas d'accord avec Rabban Shimon ben Gamliel et <b>soutient</b> que la <b>descendance des animaux sacrifies</b> <b>est sanctifiee dans le ventre de leur mere. Comme les Sages l'ont enseigne</b> dans une <i>baraita</i> : Il est ecrit a propos d'un premier-ne : "Mais le premier-ne parmi les animaux, qui est ne comme un premier-ne pour le Seigneur, l'homme ne le consacrera pas" (Levitique 27:26). <b>Si</b> ce verset n'etait <b>pas</b> complet mais simplement <b>enonce : Le premier-ne ne consacrera pas, j'aurais dit</b> que le verset enseigne qu'un <b>premier-ne</b> homme <b>ne doit pas consacrer</b> des <b>objets non sacres.</b> Par consequent, <b>le verset dit : "L'homme</b> ne consacrera pas <b>cela,"</b> c'est-a-dire que <b>vous ne pouvez pas le consacrer,</b> un animal premier-ne, <b>mais un homme premier-ne peut consacrer</b> des <b>objets non sacres.</b>
+
+### Partie 3
+<b>Mais quand meme, je</b> dirais <b>que specifiquement un homme premier-ne <b>ne peut pas consacrer</b> un animal premier-ne avec une saintete differente, <b>mais d'autres</b> qui ne sont pas premiers-nes <b>peuvent consacrer</b> un animal premier-ne. Par consequent, <b>le verset dit : "Parmi les animaux,"</b> indiquant que <b>je traite des <b>animaux premiers-nes,</b> et non des hommes premiers-nes, c'est-a-dire que le verset enseigne qu'il est interdit a tous de consacrer un animal premier-ne avec une saintete differente de celle d'un premier-ne.
+
+### Partie 4
+Le <i>baraita</i> continue : On <b>pourrait</b> avoir pense qu'on ne peut egalement <b>consacrer</b> le fœtus d'un animal enceint de son premier-ne alors que le fœtus est encore <b>dans le ventre</b> de sa mere. Par consequent, <b>le verset dit : "Ce qui est ne comme un premier-ne au Seigneur,"</b> indiquant que <b>a partir</b> du moment ou l'animal <b>nait et est consacre au Seigneur comme un premier-ne, vous ne pouvez pas le consacrer</b> avec une saintete differente, <b>mais vous pouvez le consacrer</b> avec une saintete differente pendant qu'il est encore <b>dans le ventre de sa mere.</b>
+
+### Partie 5
+On <b>pourrait</b> avoir pense que <b>meme</b> en ce qui concerne <b>la progeniture de tous</b> les autres animaux <b>consacres</b> il est <b>ainsi,</b> que l'on peut les consacrer avec une saintete differente lorsqu'ils sont encore dans le ventre de leur mere. Par consequent, <b>le verset indique : "Mais [<i>akh</i>],</b> ce qui <b>distingue</b> entre un animal premier-ne, que l'on peut consacrer avec une saintete differente alors qu'il est encore dans le ventre de sa mere, et la progeniture des autres animaux consacres, que l'on ne peut pas consacrer avec une saintete differente meme lorsqu'ils sont dans le ventre de leur mere. <b>Evidemment,</b> ce <i>tanna</i> <b>tient</b> que la <b>descendance des animaux sacrifies</b> <b>est sanctifiee dans le ventre de leur mere.</b>
+
+### Partie 6
+§ La mishna enseigne que l'on peut employer un artifice pour contourner l'obligation de donner le premier-ne au pretre en consacrant le fœtus comme holocauste avant le moment de la naissance, qui est le moment ou l'animal devient sanctifie comme un premier-ne. <b>Rav Amram a dit a Rav Sheshet :</b> Si un proprietaire <b>dit a propos</b> du fœtus d'un animal enceint de son <b>premier-ne :</b> Ce fœtus sera consacre comme <b>un holocauste</b> au moment ou la saintete du premier-ne prend effet, c'est-a-dire <b>lorsque la majorite</b> de l'animal <b>sort</b> du ventre de la mere, quel est le statut de la progeniture ? <b>La progeniture est-elle</b> <b>un holocauste ou un premier-ne ?</b>
+
+### Partie 7
+La Guemara explique le dilemme : <b>Est-ce un holocauste, car</b> la saintete d'un holocauste est plus stricte que la saintete d'un premier-ne et donc <b>chaque parcelle qui sort</b> du ventre de la mere devient un holocauste, qui est <b>entierement consomme</b> sur l'autel ? <b>Ou</b> peut-etre <b>c'est un premier-ne,</b> car normalement le caractere sacre du premier-ne prend effet au moment de la naissance, et donc <b>en ce qui concerne chaque morceau</b> de l'animal <b>qui sort</b> du ventre, <b>son statut est</b> celui d'un premier-ne.
+
+### Partie 8
+La Guemara cite une autre version de l'explication du dilemme : Est-ce un holocauste parce qu'il est impregne de la saintete plus stricte d'un holocauste ? <b>Ou peut-etre est-ce un premier-ne parce que</b> Dieu a declare <b>sa saintete</b> en tant que premier-ne a sa sortie <b>du ventre de sa mere.</b>
+
+### Partie 9
+Rav Sheshet a dit a Rav Amram : <b>Quel est ton dilemme ? </b> Ton dilemme <b>est</b> le meme que ce dilemme <b>que Ilfa a souleve :</b> En ce qui concerne les <b>gleances</b> laissees aux pauvres, que les riches ne peuvent prendre, si le proprietaire d'un champ au moment de la recolte <b>dit : </b> Ce grain qui est maintenant sur la tige <b>devra devenir un bien sans proprietaire</b>, ce qui signifie que meme les riches peuvent l'acquerir, precisement au moment ou le <i>halakha</i> des glanages laisses pour les pauvres prend effet, c'est-a-dire <b>lorsque la majorite</b> du grain <b>tombe</b> de la tige, quel est le statut du grain apres qu'il soit tombe de la tige ? <b>Est-ce du glanage</b> laisse aux pauvres <b>ou est-ce un bien sans proprietaire</b> que meme les riches peuvent prendre ?
+
+### Partie 10
+La Guemara explique le dilemme : <b>Est-ce du glanage, car son caractere sacre</b> est dicte <b>par la main du Ciel</b> au moment ou le grain tombe de la tige ? <b>Ou peut-etre s'agit-il de biens sans proprietaire</b>, car ce statut est plus inclusif, <b>puisque</b> tant le <b>pauvre que</b> le <b>riche peuvent acquerir</b> le grain.
+
+### Partie 11
+<b>Et Abaye dit</b> en reponse au dilemme d'Ilfa : <b>Quel est ton dilemme ?</b> Lorsqu'il y a un conflit entre <b>la declaration du Maitre,</b> c'est-a-dire Dieu, qui a ordonne que le grain devienne des glanes pour les pauvres, <b>et la declaration de l'etudiant,</b> celui qui a declare que le grain est un bien sans proprietaire qui peut etre acquis meme par les riches, <b>a quelle declaration doit-on preter attention ? De meme,</b> en ce qui concerne le dilemme du Rav Amram, lorsqu'il y a un conflit entre la declaration de Dieu et la declaration de l'etudiant, <b>de qui doit-on ecouter la declaration ?</b> En consequence, le fœtus est consacre avec la saintete d'un premier-ne, pas celle d'un holocauste.
+
+### Partie 12
+<strong>MISHNA:</strong> <b>Qui dit : La progeniture de cet</b> animal non sacre <b>est un holocauste et</b> l'animal <b>lui-meme est un sacrifice de paix, sa declaration tient,</b> c'est-a-dire qu'elle est effective. S'il dit : L'animal <b>lui-meme est un sacrifice de paix et sa progeniture est un holocauste,</b> alors puisque la consecration de la mere a precede la consecration de la progeniture, c'est <b>la progeniture d'un sacrifice de paix,</b> dont le statut halakhique est celui d'un sacrifice de paix ; c'est <b>la declaration de Rabbi Meir.</b>
+
+### Partie 13
+<b>Rabbi Yosei a dit : Si telle etait son intention des le depart,</b> de designer la progeniture comme un holocauste lorsqu'il designait la mere comme un sacrifice de paix, alors <b>puisqu'il est impossible de l'appeler</b> par <b>deux designations simultanement, sa declaration tient,</b> et la mere est un sacrifice de paix et la progeniture un holocauste. <b>Et si</b> ce n'est qu'<b>apres avoir dit : Cet</b> animal <b>est par la presente une offrande de paix,</b> qu'il <b>reflechit et dit : Sa descendance est un holocauste, cette descendance est un sacrifice de paix,</b> car avant qu'il ne reconsidere, la descendance avait deja pris le statut de descendance d'un sacrifice de paix.
+
+### Partie 14
+<strong>GEMARA :</strong> <b>Rabbi Yohanan dit :</b> Dans le cas de <b>celui qui a separe un animal gravide</b> comme <b>offrande pour le peche et</b> cet animal a ensuite <b>genere</b> une femelle, les deux animaux sont consacres comme offrandes pour le peche. Si <b>il le souhaite, il peut obtenir l'expiation</b> en sacrifiant la mere <b>elle-meme,</b> et si <b>il le souhaite, il peut obtenir l'expiation</b> en sacrifiant <b>la progeniture.</b> Puisqu'il a consacre l'animal alors qu'il etait deja en gestation, son acte de consecration a pris effet a l'egard de la mere et de la progeniture.
+
+### Partie 15
+<b>Quelle est la raison</b> de cette <i>halakha</i> ? <b>Rabbi Yohanan soutient</b> que dans le cas de celui qui a consacre un animal en gestation, <b>s'il a reserve</b> le fœtus et l'a designe comme non sacre, par exemple, il a dit : Le fœtus est non sacre et l'animal lui-meme est designe comme offrande pour le peche, alors la progeniture est consideree comme <b>reservee</b> et est non sacree, malgre le fait que la mere soit consacree.
+
+### Partie 16
+La raison en est que Rabbi Yohanan soutient que <b>un fœtus n'est pas</b> considere comme <b>la cuisse,</b> c'est-a-dire une partie, <b>de sa mere.</b> Par consequent, de meme que l'on peut reserver le fœtus pour qu'il ne soit pas consacre avec sa mere, de meme, on peut consacrer le fœtus avec une saintete distincte de celle de la mere. Par consequent, <b>cette</b> affaire <b>est comme</b> celle de celui qui <b>separerait deux offrandes de peche a titre de garantie;</b> si <b>il le souhaite, il peut obtenir l'expiation avec l'une</b> d'entre elles, et si <b>il le souhaite, il peut obtenir l'expiation avec l'autre.</b>
+
+### Partie 17
+<b>Rabbi Elazar souleve une objection</b> de la mishna : Si l'on dit : L'animal <b>lui-meme est une offrande de paix et sa progeniture est un holocauste,</b> alors <b>il est la progeniture d'une offrande de paix. Et s'il vous vient a l'esprit</b> que si <b>on a reserve</b> le fœtus de la consecration de la mere, il est considere comme <b>reserve,</b> et sa saintete est independante de celle de la mere, pourquoi la mishna declare-t-elle a propos de la descendance que <b>c'est la descendance d'une offrande de paix,</b> ce qui indique qu'elle recoit sa saintete de celle de la mere ? Le mishna <b>doit enseigner</b> que la progeniture <b>est une offrande de paix</b> avec une saintete independante.
+
+### Partie 18
+<b>Rav Tavla a dit :</b> La discussion de ce sujet devrait etre tenue <b>en dehors de cette</b> version de la mishna, car elle est incorrecte. <b>Rav n'a-t-il pas dit au <i>tanna</i></b> qui recitait des <i>mishnayot</i> qu'il ne devait pas reciter la mishna avec la phrase : C'est la progeniture d'une offrande de paix, mais plutot, il devait <b>enseigner : C'est une offrande de paix.</b>
+
+### Partie 19
+La Guemara <b>souleve</b> une autre <b>objection</b> a l'affirmation de Rabbi Yohanans d'une <i>baraita</i> : <b>Celui qui dit a sa</b> <b>servante cananeenne : Tu es par la presente</b> encore <b>une servante mais ton</b> <b>enfant a naitre est un homme libre,</b> et il redige un acte de manumission pour l'enfant et le place dans sa main, <b>si elle etait enceinte</b> a ce moment-la, alors <b>elle a acquis</b> la liberte <b>pour</b> l'enfant a naitre.
+
+### Partie 20
+La Gemara explique l'objection : <b>Grace a toi, si tu dis</b> que <b>si l'on a reserve</b> une certaine consecration, elle n'est <b>pas</b> consideree comme <b>reservee,</b> et donc la saintete de la mere prend effet sur sa progeniture, et de meme que <b>un fœtus est</b> considere comme <b>la cuisse de sa mere,</b> c'est <b>pour cette</b> raison qu'elle a <b>acquis</b> la liberte <b>pour</b> l'enfant a naitre. <b>Et</b> l'explication est que <b>cette affaire</b> <b>est comme</b> celle de <b>celui qui affranchit la moitie de son esclave,</b> puisque cette moitie est ainsi affranchie. <b>Et de quel</b> avis s'agit-il ? <b>C'est</b> l'avis de <b>Rabbi Meir, tel qu'il est enseigne</b> dans une <i>baraita</i> :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

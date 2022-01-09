@@ -1,0 +1,39 @@
+
+### Partie 1
+Ils apporteraient d'eux un dessert, comme des figues blanches, pour l'autel.</b> La Gemara demande : Les figues blanches sont-elles deja offertes sur l'autel ? <b>Mais n'est-il pas ecrit : "Car tout levain ou miel de fruit</b> tu ne feras pas monter en fumee comme offrande a l'Eternel" (Levitique 2:11) ? Le terme" miel de fruit" inclut tous les fruits des arbres. La Guemara repond : <b>Rav Hanina enseigne:</b> Les offrandes supplementaires sont a l'autel <b>comme les figues blanches pour une personne.</b>
+
+### Partie 2
+La Guemara discute de ce qui peut etre utilise pour les offrandes supplementaires : <b>Rav Nahman bar Rav Hisda a enseigne : On ne complete pas</b> les offrandes de l'autel <b>avec un holocauste d'oiseau. Rava a dit : Cette</b> decision <b>est une absurdite [<i>burkha</i>]. Rav Nahman bar Yitzhak dit a Rava : Quelle est l'absurdite ? </b> La decision a un fondement. <b>J'ai dit</b> cette decision <b>au</b> Rav Nahman, <b>et le lui ai dit au nom du Rav Shimi de Nehardeâ, comme le dit le Rav Shimi de Nehardeâ : Les agneaux excedentaires</b> qui etaient consacres aux offrandes quotidiennes <b>sont affectes aux offrandes communales</b>, <b>et il n'y a pas un seul oiseau holocauste</b> qui soit offert <b>par la communaute.</b>
+
+### Partie 3
+La Guemara note : <b>Et aussi Shmuel tient conformement a cette</b> declaration <b>de Rabbi Yohanan,</b> qui a enseigne que Rabbi Shimon tient que les agneaux consacres pour l'offrande quotidienne qui n'ont pas ete utilises sont apportes comme offrandes supplementaires, meme s'ils n'ont pas ete consacres a l'origine dans ce but, <b>comme Rav Yehuda dit</b> que <b>Shmuel dit : </b> En ce qui concerne les <b>offrandes communales,</b> leur consecration ne sert qu'a definir dans quelle categorie generale d'offrandes elles sont incluses, par ex. g., s'il s'agit d'un sacrifice pour le peche ou d'un holocauste, mais c'est le but pour lequel ils sont finalement abattus avec <b>un couteau</b> qui <b>definit ce que leur</b> nature precise <b>est.</b>
+
+### Partie 4
+La Guemara note : <b>Ceci est egalement enseigne</b> dans une <i>baraita</i> a propos des offrandes pour le peche : <b>Et Rabbi Shimon concede a propos d'un bouc</b> consacre pour etre utilise dans le cadre des offrandes supplementaires lors des Fetes de pelerinage <b>que s'il n'a pas ete sacrifie lors d'une Fete de pelerinage, il peut etre sacrifie lors d'une Nouvelle Lune, et si elle n'a pas ete sacrifiee a une Nouvelle Lune, elle peut etre sacrifiee a Yom Kippour, et si elle n'a pas ete sacrifiee a Yom Kippour, elle peut etre sacrifiee a une Fete de pelerinage, et si elle n'a pas ete sacrifiee a cette Fete de pelerinage, elle peut etre sacrifiee a une autre Fete de pelerinage. </b> Ceci est <b>parce que des le depart,</b> en vertu de sa consecration, <b>il ne venait que pour expier</b> en ayant son sang presente <b>sur l'autel exterieur,</b> mais sa nature precise n'est definie que par le but pour lequel il est finalement abattu.
+
+### Partie 5
+Un autre <i>baraita</i> enseigne la meme decision : <b>Il est enseigne :</b> Le sacrifice pour le peche <b>n'a ete consacre que pour expier</b> en ayant son sang presente <b>sur l'autel exterieur.</b>
+
+### Partie 6
+§ La mishna enseigne : <b>Et pour</b> les cas ou la <b>salissure</b> du <b>Temple ou de ses aliments sacrificiels</b> a ete effectuee <b>intentionnellement,</b> le <b>chevre dont la presentation du sang est <b>effectuee a l'interieur</b> du Sanctuaire a Yom Kippour, et Yom Kippour lui-meme, expient. La Gemara demande : <b>D'ou viennent ces questions</b> ?
+
+### Partie 7
+La Gemara repond : Elles sont derivees d'un verset, <b>comme l'ont enseigne les Sages</b> dans une <i>baraita</i> : Le verset stipule a propos du Grand Pretre sacrifiant le bouc interne de Yom Kippour : <b>Et il fera l'expiation sur le Sanctuaire des impuretes des enfants d'Israel</b> et de leurs actes de rebellion, pour tous leurs peches" (Levitique 16:16). Le verset fait reference a deux categories de peches. La premiere categorie est <b>les actes de rebellion [<i>peshaim</i>] ; ce sont les peches rebelles, et ainsi</b> le verset <b>declare</b> que le roi Joram d'Israel a dit au roi Josaphat de Juda : <b>""Le roi de Moab s'est rebelle [<i>pasha</i>] contre moi"</b> (IIA Rois 3:7). <b>Et</b> le verset <b>declare</b> a propos d'une rebellion contre Juda : <b>"Libna se rebella [<i>tifsha</i>] a cette epoque"</b> (IIA Rois 8:22). La deuxieme categorie est constituee par les <b>peches [<i>hataot</i>] ; ce sont des peches involontaires, et donc</b> le verset <b>dit : "Si une personne individuelle transgresse [<i>teheta</i>] involontairement"</b> (Levitique 4:2).
+
+### Partie 8
+§ La mishna enseigne : <b>Pour</b> toutes les <b>autres transgressions qui sont</b> enoncees <b>dans la Torah,</b> qu'elles soient <b>les mineures</b> <b>ou les majeures</b>, qu'elles aient ete <b>intentionnelles ou involontaires,</b> qu'on en ait pris conscience avant Yom Kippour ou qu'on n'en ait pris conscience qu'apres Yom Kippour, qu'elles concernent une mitzva positive ou une interdiction, que les transgresseurs soient soumis a l'excision du Monde-a-Venir [<i>karet</i>], ou a l'une des peines de mort imposees par les tribunaux, le bouc emissaire envoye a Azazel a Yom Kippour expie.
+
+### Partie 9
+La Guemara note que la mishna semble repetitive : <b>Les mineures</b> <b>sont les memes que</b> une mitzva et une interdiction standard <b>positive, les majeures</b> <b>sont les memes que</b> les transgressions qui sont sujettes a <b><i>karet</i> et</b> a des <b>peines de mort</b> imposees par un <b>court</b>, les transgressions dont <b>on a pris conscience</b> <b>sont les memes que les transgressions intentionnelles</b> et les transgressions dont <b>on n'a pas pris conscience</b> <b>sont les memes que les transgressions involontaires</b>.
+
+### Partie 10
+<b>Rav Yehuda dit</b> que <b>c'est</b> ce que dit la mishna <b> : Pour</b> toutes les <b>autres transgressions qui sont</b> enoncees <b>dans la Torah, qu'il s'agisse</b> des <b>mineures</b> <b>ou</b> des <b>majeures</b>, <b>qu'elles aient ete accomplies involontairement</b> ou <b>qu'elles aient ete accomplies intentionnellement,</b> elles ont chacune leurs propres <i>halakhot</i>. Pour <b>ceux qui ont ete accomplis involontairement,</b> dans les cas ou il y avait une incertitude quant a l'interdiction de l'acte, l'expiation est effectuee <b>que l'incertitude concernant</b> les transgressions <b>ait ete connue par lui</b> avant Yom Kippour ou <b>que l'incertitude concernant ces transgressions n'a ete connue par lui</b> qu'apres Yom Kippour. <b>Et ce sont</b> les <b>minorites</b> auxquelles la mishna fait reference : Une mitzva standard <b>positive et une prohibition. Et voici</b> les <b>majeures</b> auxquelles elle se refere : Les transgressions qui font l'objet de <b><i>karet</i> et</b> de peines de <b>mort</b> imposees par un <b>court</b>.
+
+### Partie 11
+La Gemara demande : <b>Quelles sont les circonstances</b> de <b>cette mitzva positive</b> dans la mishna ? <b>Si</b> c'est un cas <b>ou il ne s'est pas repenti,</b> l'offrande ne peut pas expier pour lui, comme le dit le verset : <b>"Le sacrifice du mechant est une abomination"</b> (Proverbes 21:27). <b>S'il s'est repenti,</b> alors pourquoi la mishna fait-elle reference a Yom Kippour ? Il obtiendra l'expiation sur <b>n'importe quel</b> autre <b>jour egalement, comme il est enseigne</b> dans une <i>baraita</i> : Si <b>quelqu'un a transgresse une mitzva positive et s'est repenti, il ne bouge pas de la jusqu'a ce qu'il soit pardonne.</b>
+
+### Partie 12
+<b>Rabbi Zeira a dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

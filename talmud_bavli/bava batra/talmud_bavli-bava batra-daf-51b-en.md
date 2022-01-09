@@ -1,0 +1,27 @@
+
+### Part 1
+<b>and</b> as long as they remain married, the <b>husband enjoys the profits,</b> as he would with any usufruct property. <b>But Rabbi Abba and Rabbi Abbahu and all of the great</b> Sages <b>of the generation said</b> that the assumption is that the husband <b>wanted to give it to her as a gift. And why did he write</b> the deed <b>for her</b> employing terminology indicating that it is <b>for the sake of a sale?</b> It was <b>in order to enhance</b> her <b>power.</b>
+
+### Part 2
+The Gemara <b>raises an objection</b> from a <i>baraita</i> to the ruling that the wife acquires the property: If one <b>borrowed from</b> his own <b>slave and</b> then <b>freed him,</b> or if one borrowed <b>from his wife and</b> then <b>divorced her, they do not have any</b> claim <b>on him,</b> and he need not repay them. <b>What is the reason</b> for this? Is it <b>not because</b> we <b>say</b> that <b>he desired to expose</b> their concealed <b>money,</b> and his taking of the loan was merely an artifice to claim money to which he was entitled? Similarly, the assumption should be that his sale to her was merely an artifice.
+
+### Part 3
+The Gemara answers: It <b>is different there,</b> because there is an additional reason to think it was an artifice, <b>as</b> it is <b>uncomfortable for a person to be</b> described by the verse: “The rich rules over the poor, and <b>the borrower is servant to the lender”</b> (Proverbs 22:7). It is therefore reasonable to posit that his intention was not to borrow money, but to expose the concealed money that was in the possession of his slave or wife. This concern does not apply to one who sells property to his wife, and therefore the sale is valid.
+
+### Part 4
+The Gemara quotes a related statement. <b>Rav says:</b> In the case of <b>one who sells a field to his wife, she has acquired</b> it, <b>and the husband enjoys the profits.</b> In the case of one who gives a married woman the field <b>as a gift, she has acquired it and the husband does not enjoy the profits,</b> since he gave it to her completely. <b>And Rabbi Elazar says:</b> In <b>both this</b> case <b>and that</b> case <b>she has acquired</b> it, <b>and the husband does not enjoy the profits.</b>
+
+### Part 5
+The Gemara relates: <b>Rav Ḥisda performed an action in accordance with</b> the opinion of <b>Rabbi Elazar,</b> and did not allow a husband to enjoy the profits of a field he sold to his wife. <b>Rabban Ukva and Rabban Neḥemya, the sons of Rav’s daughters, said to Rav Ḥisda:</b> Does the <b>Master abandon a greater</b> Sage, i.e., Rav, the greatest Sage of his generation, <b>and act in accordance with</b> the opinion of <b>a lesser</b> Sage, i.e., Rabbi Elazar, who was Rav’s student? Rav Ḥisda <b>said to them: But I too am acting in accordance with</b> the opinion of <b>a greater</b> Sage, <b>as when Ravin came</b> from Eretz Yisrael, <b>he said</b> that <b>Rabbi Yoḥanan</b> said: In <b>both this</b> case <b>and that</b> case <b>she has acquired</b> it, <b>and the husband does not enjoy the profits.</b> I am consequently not relying exclusively on Rabbi Elazar’s opinion, but also on that of Rabbi Yoḥanan.
+
+### Part 6
+<b>Rava says</b> that <b>the <i>halakha</i></b> is: In the case of <b>one who sells a field to his wife, she has not acquired</b> it, <b>and the husband enjoys the profits.</b> In the case of one who gives a married woman the field <b>as a gift, she has acquired it and the husband does not enjoy the profits.</b> The Gemara asks with regard to the first <i>halakha</i>: Can these <b>two</b> ostensibly contradictory rulings be given? Rava’s statement that the wife has not acquired the field means that the husband still owns it, while his statement that the husband enjoys the profits, i.e., he merely enjoys the profits but does not own the field, indicates that the field itself is owned by the wife.
+
+### Part 7
+The Gemara responds: This is <b>not difficult,</b> because Rava is referring to two different cases. <b>Here,</b> where he says that she has not acquired the land, he is referring to a case <b>where</b> her <b>money</b> was <b>concealed,</b> and the sale was an artifice to expose it; while <b>there,</b> where he says that she acquires the land, he is referring to a case <b>where</b> she had <b>money that is not concealed. As Rav Yehuda says:</b> If she purchased the field with <b>concealed money, she has not acquired</b> it; if she purchased it with <b>money that is not concealed, she has acquired</b> it.
+
+### Part 8
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>One may not accept deposits from women, and not from slaves, and not from children.</b> Since it is likely that they do not own property, they might have taken the item without authorization from their husband, master, or parent, respectively. Consequently, one should not accept the deposit. If, however, one <b>accepted</b> a deposit <b>from a woman, he must return it to the woman,</b> as he cannot be certain that it is not hers. <b>And if</b> the woman <b>died, he must return it to her husband,</b> as he is her heir. If one <b>accepted</b> a deposit <b>from a slave, he must return it to the slave,</b> since it might not belong to the master. <b>And if</b> the slave <b>died, he must return it to his master.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

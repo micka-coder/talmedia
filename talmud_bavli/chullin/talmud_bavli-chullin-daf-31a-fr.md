@@ -1,0 +1,66 @@
+
+### Partie 1
+<b>que les plumes</b> a l'avant du cou ont ete <b>dechirees</b> par la fleche, une indication claire que l'abattage a ete effectue par l'avant du cou.
+
+### Partie 2
+La Guemara note une autre difficulte rencontree dans l'abattage d'un oiseau volant avec une fleche. <b>Mais le sang de l'oiseau ne necessite-t-il pas</b> <b>une couverture</b> de terre ? <b>Et si on disait que</b> Rabbi Yona bar Tahlifa <b>couvre</b> le sang, <b>mais Rabbi Zeira ne dit-il pas</b> que <b>Rav dit : </b> En accomplissant la mitsva de couvrir le sang, <b>celui qui abat</b> un animal ou un oiseau non domestique <b>doit placer de la terre sous</b> le sang <b>et de la terre au-dessus</b> de celui-ci, <b>comme il est dit :</b> "Il versera son sang, <b>et le couvrira de terre"</b> (Levitique 17:13). <b>Il n'est pas dit :</b> le couvrir de <b>terre, mais plutot de "en terre</b>.</b> Cela <b>enseigne que celui qui egorge doit placer de la terre sous</b> le sang <b>et de la terre au-dessus</b> du sang, afin que le sang soit dans la terre.
+
+### Partie 3
+La Guemara repond <b>que</b> Rabbi Yona bar Tahlifa <b>designait pour lui-meme</b> la <b>terre de toute la vallee [<i>patka</i>]</b> avant de tirer la fleche. Cette terre servirait de couche de terre sous le sang et il procederait a la couverture du sang avec une autre couche de terre.
+
+### Partie 4
+§ La mishna enseigne : Dans un cas ou <b>on etait</b> en train de <b>abattre</b> l'animal de la maniere standard <b>et qu'il a decapite</b> l'animal d'un seul mouvement, si la longueur du couteau est equivalente a la largeur du cou entier de l'animal, l'abattage est valide. <b>Rabbi Zeira dit :</b> Le couteau doit etre equivalent a <b>la</b> largeur du cou <b>entier de l'animal et</b> s'etendre <b>au dela du cou.</b>
+
+### Partie 5
+<b>Un dilemme a ete souleve devant</b> les Sages : Rabbi Zeira voulait-il dire : Equivalent a la largeur du <b>cou entier de l'animal et</b> s'etendre <b>au dela du cou</b> d'une quantite equivalente a la largeur du <b>cou entier,</b> auquel cas la longueur du couteau <b>serait</b> egale a la largeur de <b>deux cous ? Ou peut-etre</b> il voulait dire : Equivalent a la largeur du <b>entier cou et au-dela du cou</b> de <b>n'importe quelle quantite ?</b>
+
+### Partie 6
+La Guemara suggere : <b>Venez</b> et <b>entendez</b> la preuve pour resoudre le dilemme de la suite de la mishna : Si <b>quelqu'un etait</b> en train d'abattre</b> deux animaux simultanement, <b>et qu'il decapite deux tetes en un</b> mouvement, <b>si</b> la longueur <b>du couteau</b> est equivalente a la largeur de <b>un cou entier</b> de <b>un</b> des animaux, l'abattage est <b>valide.</b> La Gemara demande : <b>Quel</b> est le sens de la phrase : La largeur de <b>un cou entier</b> de <b>un</b> des animaux ? <b>Si l'on dit</b> que cela signifie la largeur d'<b>un cou entier et rien de plus,</b> c'est difficile. <b>Maintenant,</b> pour l'abattage <b>d'un animal, nous exigeons</b> que le couteau soit equivalent a la largeur du <b>cou entier de l'animal et</b> s'etende <b>au dela du cou;</b> pour l'abattage <b>de deux animaux,</b> est-il possible qu'un couteau dont la longueur est equivalente a la largeur du <b>cou entier d'un</b> animal soit suffisant ? Au contraire,</b> il est <b>evident</b> que cela signifie que la longueur du couteau doit etre equivalente a la largeur d'<b>un cou entier au-dela de la</b> largeur de <b>deux cous.</b>
+
+### Partie 7
+La Guemara suggere : <b>Apprenez de</b> la mishna que Rabbi Zeira veut dire que la longueur du couteau doit etre equivalente a la largeur du cou entier de l'animal et s'etendre <b>au-dela du cou</b> de la largeur du <b>cou entier.</b> La Guemara conclut : En effet, <b>apprenez-en</b> que telle etait l'intention de Rabbi Zeira.
+
+### Partie 8
+§ La mishna poursuit : <b>Dans quel</b> cas <b>cette declaration est-elle dite ?</b> C'est <b>lorsqu'on a tire</b> le couteau <b>en arriere et qu'on ne l'a pas tire</b> en avant,</b> ou qu'on l'a tire en avant et qu'on ne l'a pas tire en arriere. Mais s'il l'a tire en avant et en arriere, meme si le couteau etait de n'importe quelle longueur, meme s'il a abattu avec un scalpel, l'abattage est valide. <b>Rav Menashe a dit :</b> C'est la <i>halakha</i> <b>dans</b> le cas d'un <b>scalpel qui n'a pas de saillies</b> sur les cotes. S'il y a des saillies, comme le scalpel est court, on craint que les coins ne perforent les <i>simanim</i> ou n'entrent entre les <i>simanim</i> et n'invalident l'abattage.
+
+### Partie 9
+<b>Rav Aha, fils de Rav Avya, dit a Rav Menashe : Quelle</b> est la <i>halakha</i> en ce qui concerne l'abattage avec <b>une aiguille ?</b> Rav Menashe lui <b>a repondu : Une aiguille transperce</b> les <i>simanim</i>, car elle perfore le cou au lieu de le couper.
+
+### Partie 10
+Rav Aha a alors demande a Rav Menashe : <b>Quel est</b> la <i>halakha</i> en ce qui concerne l'abattage avec <b>une aiguille de cordonnier,</b> qui est plate et a des cotes pointus ? Rav Menashe lui <b>dit : Nous</b> deja <b>l'apprenons</b> dans la mishna : <b>Meme</b> si le couteau etait de <b>n'importe quelle longueur,</b> l'abattage est valable. <b>Quoi, il ne fait pas</b> reference a l'abattage avec <b>une aiguille de cordonnier ?</b> La Gemara repond : <b>Non.</b> La reference est a l'abattage avec <b>un scalpel,</b> qui est plus grand qu'une aiguille de cordonnier. La Gemara objecte : Le <i>tanna</i> <b>enseigne</b> le cas d'un <b>scalpel</b> explicitement dans la mishna. Par consequent, la phrase dans la mishna : Un couteau de n'importe quelle longueur, doit faire reference a un objet plus petit qu'un scalpel. La Guemara explique : La mention ulterieure du scalpel explique la phrase : Meme si le couteau etait de n'importe quelle longueur. <b>Qu'est-ce que</b> le couteau de <b>toute longueur</b> avec lequel l'abattage est valable ? C'est <b>un scalpel.</b>
+
+### Partie 11
+<b>Cela aussi va de soi, car, s'il vous vient a l'esprit</b> que la phrase : Un couteau de n'importe quelle longueur, fait reference a <b>une aiguille de cordonnier, maintenant</b> qu'il est <b>permis</b> d'abattre avec <b>une aiguille de cordonnier, est-il</b> <b>necessaire</b> que la <i>tanna</i> enseigne qu'il est permis d'abattre avec <b>un scalpel,</b> qui est plus grand qu'une aiguille de cordonnier ? La Guemara rejette ce raisonnement : Il <b>est necessaire</b> que la mishna enseigne a la fois le cas d'une aiguille de cordonnier et le cas d'un <b>scalpel,</b> car il pourrait <b>entrer dans votre esprit de dire</b> qu'il est interdit d'abattre avec un scalpel meme s'il est permis d'abattre avec une aiguille de cordonnier. Le raisonnement pour cette distinction serait le suivant : <b>Laissons</b> les Sages <b>emettre un decret</b> interdisant l'utilisation d'un <b>bistouri sans protuberance en raison</b> de l'interdiction d'utiliser <b>un bistouri avec protuberance.</b> Par consequent, la <i>tanna</i> <b>nous enseigne</b> qu'il n'y a pas de decret et qu'il est permis d'abattre avec un bistouri sans protuberance.
+
+### Partie 12
+<strong>MISHNA :</strong> Si <b>un couteau est tombe et a abattu</b> un animal, <b>bien que</b> le couteau ait <b>abattu</b> l'animal <b>de maniere standard,</b> l'abattage n'est <b>pas valide, comme il est dit : "Et tu abattras"¦et tu mangeras"</b> (Deuteronome 27:7), d'ou il decoule : <b>Ce que tu egorges, tu peux le manger,</b> et ce qui a ete egorge seul, tu ne peux pas le manger.
+
+### Partie 13
+<strong>GEMARA:</strong> La mishna enseigne que si un couteau est tombe et a abattu un animal, l'abattage n'est pas valide. La Guemara note : <b>La raison</b> pour laquelle l'abattage n'est pas valide est <b>que</b> le couteau <b>est tombe. Mais</b> par deduction, si <b>on a laisse tomber</b> le couteau, l'abattage est <b>valide, et</b> c'est la <i>halakha</i> <b>meme si</b> en laissant tomber le couteau, il <b>n'avait pas l'intention</b> d'abattre l'animal.
+
+### Partie 14
+La Gemara demande : <b>Qui est le <i>tanna</i></b> qui soutient <b>qu'on ne requiert pas l'intention pour l'abattage ? Rava dit :</b> C'est <b>Rabbi Natan, comme Oshaya, le plus jeune de la compagnie</b> des Sages, <b>a enseigne</b> une <i>baraita</i> : Si <b>On a lance un couteau pour l'encastrer dans le mur et</b> au cours de son vol le couteau <b>est alle abattre</b> un animal <b>dans sa</b> maniere propre, Rabbi Natan juge</b> l'abattage <b>valide et les rabbins jugent</b> l'abattage <b>non valide. </b> Oshaya <b>enseigne</b> la <i>baraita</i> <b>et il dit</b> a son sujet :</b> La <b><i>halakha</i></b> est <b>conforme</b> a l'opinion de <b>Rabbi Natan</b> selon laquelle il n'y a pas besoin d'intention pour accomplir un acte d'abattage valide.
+
+### Partie 15
+La Gemara demande : <b>Mais Rava</b> n'a-t-il pas deja <b>dit une fois</b> que la mishna est en accord avec l'opinion de Rabbi Natan ? <b>Comme nous l'avons appris</b> dans une mishna (2a) : <b>Et</b> en ce qui concerne <b>l'un d'entre eux,</b> un sourd-muet, un imbecile ou un mineur, <b>qui a abattu</b> un animal <b>et que d'autres le voient</b> et le surveillent, son abattage est valide</b> meme s'il est incapable d'intention. <b>Et nous avons dit : Quel est le <i>tanna</i></b> qui soutient <b>qu'on ne requiert pas d'intention pour l'abattage ? Et Rava a dit : </b> C'est <b>Rabbi Natan.</b>
+
+### Partie 16
+La Guemara repond : Les deux declarations <b>sont necessaires. Comme si</b> Rava <b>nous avait enseigne</b> sa declaration <b>la</b> a propos d'un sourd-muet, d'un imbecile et d'un mineur, on aurait pense que l'abattage est valide <b>en raison</b> du fait <b>que</b> bien que l'individu n'ait pas l'intention d'abattre l'animal, <b>il a l'intention</b> de son action <b>pour le bien de la decoupe en general. Mais ici,</b> en ce qui concerne le fait de jeter un couteau sur le mur, <b>ou il n'a pas du tout l'intention</b> de couper, <b>disons non,</b> l'abattage n'est pas valable.
+
+### Partie 17
+<b>Et si</b> Rava nous avait <b>enseigne</b> sa declaration <b>ici</b> en ce qui concerne le fait de jeter le couteau, on aurait pense que l'abattage est valable est <b>du fait</b> qu'il <b>arrive du fait</b> de l'action <b>d'une personne mentalement competente. Mais la,</b> en ce qui concerne l'abattage par un sourd-muet, un imbecile ou un mineur, <b>ou</b> l'abattage <b>ne vient pas en raison</b> de l'action <b>d'une personne mentalement competente, dites</b> que l'abattage est <b>non</b> valide. Par consequent, il est <b>necessaire</b> pour Rava d'enseigner les deux cas.
+
+### Partie 18
+§ La mishna est maintenant citee comme preuve dans une dispute amoraique. <b>Il a ete dit :</b> En ce qui concerne <b>une femme en periode de menstruation qui,</b> apres la fin du flux menstruel, <b>a ete contrainte</b> contre sa volonte <b>et immergee</b> dans un bain rituel, <b>Rav Yehuda dit</b> que <b>Rav dit : Elle est rituellement pure vis-A -vis de sa maison,</b> c'est-a-dire qu'il lui est permis d'avoir des rapports sexuels avec son mari, <b>mais il lui est interdit de prendre part au <i>teruma</i></b> car l'immersion n'est pas consideree comme valable a cet effet. <b>Et Rabbi Yohanan dit : Elle n'a pas ete purifiee meme vis-A -vis de sa maison.</b>
+
+### Partie 19
+<b>Rava dit a Rav Nahman : Selon</b> l'avis de <b>Rav, qui dit</b> que <b>elle est rituellement pure vis-A -vis de sa maison mais qu'il lui est interdit de prendre part au <i>teruma</i>,</b> il est difficile. En ce qui concerne <b>une transgression</b> punissable <b>par <i>karet</i>,</b> c'est-a-dire, les rapports sexuels avec une femme en periode de menstruation, <b>elle a ete rendue permise</b> par immersion contre sa volonte ; en ce qui concerne la participation a <i>teruma</i>, <b>une interdiction</b> punie par <b>la mort</b> de la main du Ciel, qui est une peine moindre, <b>est-il</b> <b>necessaire</b> de dire qu'elle est permise pour elle par immersion contre sa volonte ? Pourquoi alors le Rav considere-t-il qu'il est interdit pour elle de prendre part au <i>teruma</i> ?
+
+### Partie 20
+Rav Nahman lui <b>dit : </b> Le statut halakhique de <b>son mari est non sacre, et les objets non sacres</b> <b>ne necessitent pas d'intention</b> pour la purification. <b>Et d'ou dites-vous</b> ainsi ? C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Mikvaot</i> 5:6) : Dans le cas d'une <b>vague qui s'est detachee</b> de la mer, <b>et dans laquelle</b> il y avait <b>quarante <i>seâ</i></b> d'eau, <b>et</b> cette vague <b>est tombee sur</b> une <b>personne impure ou sur</b> des <b>bateaux impurs, ils sont rituellement purs. Quoi, n'est-ce pas</b> que <b>une personne</b> est <b>similaire aux vaisseaux ? De meme que les vaisseaux n'ont pas l'intention</b> d'etre purifies et qu'ils sont purifies par l'onde, <b>de meme, une personne n'a pas besoin d'intention</b> pour etre purifiee.
+
+### Partie 21
+La Guemara rejette cette preuve : <b>D'ou</b> vient la preuve que c'est le sens de la mishna ? <b>Peut-etre avons-nous affaire</b> au cas de celui qui <b>s'assied</b> pres de l'eau <b>et attend</b> de determiner <b>quand la vague se detachera,</b> ce qui equivaut a avoir l'intention de s'immerger,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

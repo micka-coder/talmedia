@@ -1,0 +1,36 @@
+
+#### Partie 1
+ou : <b>Vous me l'avez donne en cadeau,</b> s'il ajoute ensuite : Bien que je ne te doive rien, puisque l'esclave est a moi, si c'est <b>votre desir, fais le serment</b> qu'il est a toi <b>et prends</b> lui ; <b>et</b> le demandeur <b>fait le serment</b> que l'esclave est a lui, celui qui est en possession de l'esclave <b>ne peut pas retracter</b> son offre, bien qu'il n'ait pas ete oblige de faire cette offre.
+
+### Partie 2
+La Gemara demande : <b>Qu'est-ce que</b> Rabbi Abba <b>nous apprend ? Nous</b> avons deja <b>appris</b> dans une mishna (<i>Sanhedrin</i> 24a) que si l'un des plaideurs <b>dit a</b> l'autre : Mon <b>pere est digne de confiance</b> pour statuer <b>pour moi,</b> ou : <b>Ton pere est digne de confiance</b> pour juger <b>pour moi,</b> ou : Ces <b>trois eleveurs de betail</b> qui ne sont pas des experts en <i>halakha</i> <b>sont dignes de confiance</b> pour statuer <b>pour moi,</b> et toutes les personnes que ce plaideur a mentionnees sont legalement disqualifiees pour servir de juges, <b>Rabbi Meir dit</b> que celui qui a declare cela <b>peut se retracter</b> sa declaration, <b>et les rabbins disent</b> qu'il <b>ne peut pas se retracter</b>, et il est oblige de les faire servir comme juges si l'autre plaideur le desire. Puisque cette <i>halakha</i> est deja enoncee dans la mishna, quelle nouvelle <i>halakha</i> Rabbi Abba a-t-il enseignee ?
+
+### Partie 3
+La Guemara dans le tractate <i>Sanhedrin</i> fait etat d'un differend entre <i>amoraim</i> quant aux circonstances du cas de cette mishna, un <i>amora</i> soutenant que le differend concerne uniquement un cas ou celui qui accepte le juge disqualifie devra remettre une dette si le juge statue conformement a son adversaire, tandis qu'une autre <i>amora</i> considere que le litige porte meme sur un cas ou il devra payer l'autre plaideur si le juge statue conformement a son adversaire. En enoncant sa decision dans un cas ou le plaideur devra donner l'esclave a l'autre, Rabbi Abba <b>nous enseigne ceci, que le differend</b> entre Rabbi Meir et les rabbins est meme <b>dans</b> un cas ou le plaideur a dit : <b>Je vous donnerai</b> ce que vous reclamez si telle est la decision de ces juges, et les rabbins considerent que si, par la suite, il souhaite retracter sa suggestion, il ne peut le faire. <b>Et</b> Rabbi Abba enseigne egalement que la <b><i>halakha</i></b> est <b>conforme a la declaration des rabbins.</b>
+
+### Partie 4
+§ <b>Rabbi Abba</b> a egalement <b>envoye</b> une decision <b>a Rav Yosef bar Hama</b> selon laquelle la <b><i>halakha</i></b> est que les creanciers de celui qui est decede <b>collectent</b> les dettes <b>des <b>esclaves cananeens</b> que le defunt a laisse a ses heritiers, c'est-a-dire, ils prennent les esclaves, car les esclaves ont le meme statut que la terre a cet egard. <b>Et Rav Nahman dit</b> qu'ils <b>ne percoivent pas</b> la dette en prenant les esclaves.
+
+### Partie 5
+§ <b>Rabbi Abba</b> a egalement <b>envoye</b> une decision <b>a Rav Yosef bar Hama</b> selon laquelle, en ce qui concerne les personnes ayant un ancetre commun, la <b><i>halakha</i></b> est que le temoignage des membres de la <b>troisieme</b> generation <b>par rapport</b> aux membres de la <b>deuxieme</b> generation dont le lien familial le plus proche passe par cet ancetre est <b>valide. </b> Par exemple, on peut temoigner sur son cousin germain une fois retire, et n'est pas disqualifie en tant que parent. <b>Rava dit : Meme</b> le temoignage des membres de la troisieme generation <b>a l'egard</b> des membres de la <b>premiere</b> generation est valide ; par exemple, on peut temoigner sur son grand-oncle.
+
+### Partie 6
+<b>Mar bar Rav Ashi a juge</b> le temoignage d'une personne <b>par rapport</b> a son <b>pere</b> valide,</b> car il considere qu'il s'agit d'un cas de temoignage d'un membre de la troisieme generation par rapport a un membre de la premiere generation, que Rava a juge valide. <b>Mais la <i>halakha</i></b> n'est <b>pas conforme</b> a l'avis de <b>Mar bar Rav Ashi.</b>
+
+### Partie 7
+§ <b>Rabbi Abba</b> a egalement <b>envoye</b> une decision <b>a Rav Yosef bar Hama</b> concernant le temoignage : Si quelqu'un <b>connaissait</b> des informations pouvant servir de <b>temoignage sur</b> la limite des <b>terres d'une autre personne avant qu'il ne devienne aveugle, et</b> qu'ensuite il <b>devient aveugle,</b> il est <b>disqualifie</b> pour temoigner dans un litige concernant les limites des proprietes de cette personne.
+
+### Partie 8
+<b>Et Shmuel a dit : Il est apte</b> a temoigner, car il lui est <b>possible</b> de <b>determiner les limites</b> des champs malgre sa cecite. <b>Mais</b> il n'est <b>pas</b> apte a identifier un objet mobile, par exemple <b>un manteau,</b> car il ne peut le voir. <b>Et Rav Sheshet dit :</b> Il peut identifier <b>meme un manteau,</b> car il lui est <b>possible</b> de <b>determiner sa longueur et sa largeur. Mais</b> il n'est <b>pas</b> apte a identifier <b>une piece d'argent. Et Rav Pappa dit :</b> Il peut identifier <b>meme une piece d'argent,</b> car il lui est <b>possible</b> de determiner son poids.</b>
+
+### Partie 9
+La Guemara <b>souleve une objection</b> d'une <i>baraita</i> (<i>Tosefta</i>, <i>Sanhedrin</i> 3:5) : Si quelqu'un <b>connaissait</b> des informations qui pourraient servir de <b>temoignage sur</b> un autre <b>avant qu'il ne devienne son gendre, et</b> ensuite <b>il est devenu son gendre,</b> devenant ainsi un parent qui est disqualifie pour temoigner le concernant ; ou s'il etait <b>capable d'entendre</b> au moment ou il a ete temoin d'un incident <b>et</b> ensuite <b>il est devenu sourd ; </b> ou s'il etait <b>capable de voir</b> au moment ou il a ete temoin d'un incident <b>et</b> ensuite <b>devenir aveugle;</b> ou s'il etait halakhiquement <b>competent et</b> ensuite <b>devenir fou,</b> dans tous ces cas, il est <b>disqualifie</b> de temoigner.
+
+### Partie 10
+Le <i>baraita</i> poursuit : <b>Mais</b> si <b>il connaissait</b> des informations <b>sur lui</b> qui pourraient servir de <b>temoignage avant qu'il ne devienne son gendre, et</b> alors <b>il est devenu son gendre, et</b> alors <b>sa fille est morte,</b> de sorte qu'ils ne sont plus apparentes ; ou s'il etait <b>capable d'entendre, et</b> alors <b>devenu sourd, et</b> alors <b>de nouveau capable d'entendre ; </b> ou s'il etait <b>capable de voir, et</b> alors <b>devenu aveugle, et</b> alors <b>de nouveau capable de voir;</b> ou s'il etait halakhiquement <b>competent, et</b> alors <b>devenu fou, et</b> alors <b>de nouveau</b> halakhiquement <b>competent,</b> dans tous ces cas, il est <b>apte</b> a temoigner.
+
+### Partie 11
+Le <i>baraita</i> conclut : <b>Voici le principe : Toute personne dont l'etat initial</b> <b>ou son etat ultime</b>, c'est-a-dire son etat au moment de l'incident ou au moment de son temoignage au tribunal, <b>est</b> un etat de <b>disqualification</b> pour temoigner est <b>disqualifiee</b> pour temoigner. Mais toute personne <b>dont l'etat initial</b> <b>et son etat ultime</b> <b>est</b> un etat d'<b>aptitude</b> a temoigner est <b>apte</b> a temoigner, meme si elle a ete disqualifiee dans l'intervalle. Ce <i>baraita</i> indique clairement que celui qui est aveugle est disqualifie pour temoigner.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

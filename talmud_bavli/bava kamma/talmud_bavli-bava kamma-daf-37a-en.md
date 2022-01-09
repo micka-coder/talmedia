@@ -1,0 +1,84 @@
+
+### Part 1
+<b>do not require a document that prevents the Sabbatical Year from abrogating an outstanding debt [<i>prosbol</i>]</b> by transferring the right of collection to the court. The reason that orphans do not require this document is because the court is legally considered to be their steward, and their debts are therefore transferred to the court automatically, even without a <i>prosbol</i>.
+
+### Part 2
+<b>Similarly, Rami bar Ḥama taught: Orphans do not require a <i>prosbol</i>,</b> as <b>Rabban Gamliel and his court were</b> tantamount to <b>the fathers of orphans,</b> as they were vigilant to collect all of the debts owed to orphans. Subsequently, the courts in every generation have this status.
+
+### Part 3
+The Gemara relates: <b>Ḥanan the wicked slapped a certain man. He</b> then <b>came before Rav Huna</b> for judgment. Rav Huna <b>said to him: Go give him a half-dinar,</b> which is the fine imposed for such an act. Ḥanan the wicked <b>had a clipped dinar,</b> and <b>wanted to give him a half-dinar from it,</b> but <b>there was no one</b> who wanted <b>to take it</b> from him to give him smaller coins for it. Ḥanan the wicked then <b>gave him another slap,</b> rendering himself liable to pay an additional fine of half a dinar, <b>and gave him</b> the clipped dinar as payment.
+
+### Part 4
+<strong>MISHNA:</strong> With regard to <b>an ox that is forewarned with regard to its</b> own <b>species,</b> as it already gored other oxen three times, <b>but is not forewarned with regard to other species;</b> or an ox that is <b>forewarned with regard to people, but is not forewarned with regard to animals;</b> or one that is <b>forewarned with regard to small</b> specimens of a species, <b>but is not forewarned with regard to large</b> specimens of that species; in all these cases, if the ox gores the type of animal or person <b>with regard to which it is forewarned,</b> its owner <b>pays the full</b> cost of the <b>damage, and</b> if it gores an animal or person <b>with regard to which it is not forewarned, he pays half</b> the cost of <b>the damage.</b>
+
+### Part 5
+The Sages <b>said before Rabbi Yehuda:</b> What would be the <i>halakha</i> if <b>this</b> ox <b>is forewarned with regard to <i>Shabbatot</i> but is not forewarned with regard to weekdays? He said to them: For</b> damage it causes on <b><i>Shabbatot</i></b> its owner <b>pays</b> the <b>full</b> cost of the <b>damage, and for</b> damage it causes on <b>weekdays, he pays half</b> the cost of the <b>damage.</b>
+
+### Part 6
+<b>When is it</b> rendered <b>innocuous</b> again after being forewarned with regard to Shabbat? It reverts to its innocuous status <b>when</b> its behavior <b>reverts</b> to normal, i.e., when it refrains from goring for <b>three days of Shabbat,</b> i.e., Shabbat in three successive weeks.
+
+### Part 7
+<strong>GEMARA:</strong> <b>It was stated</b> that <b>Rav Zevid said:</b> The version of the mishna that <b>we learned</b> states: With regard to an ox that is forewarned with regard to its own species <b>but is not forewarned</b> with regard to other species, referring to an ox that is proven to be innocuous with regard to other species, if it gores another species, its owner pays only half the cost of the damage. <b>Rav Pappa said:</b> The version of the mishna that <b>we learned</b> states: An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species. Accordingly, the mishna is teaching that the fact that it is forewarned with regard to goring one species does not render it forewarned with regard to goring other species, until it is proven otherwise.
+
+### Part 8
+The Gemara explains: <b>Rav Zevid said</b> that the version of the mishna that <b>we learned</b> states: With regard to an ox that is forewarned with regard to its own species <b>but is not forewarned</b> with regard to other species, indicating that it is referring specifically to an ox that is proven to be innocuous with regard to other species. This implies that in <b>an ordinary</b> case, where there is no such proof, the ox <b>is</b> considered <b>forewarned</b> with regard to all species. <b>Rav Pappa,</b> by contrast, <b>said</b> that the version of the mishna that <b>we learned</b> states: An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species, meaning <b>that</b> in <b>an ordinary</b> case, the ox <b>is not</b> considered <b>forewarned</b> with regard to other species.
+
+### Part 9
+<b>Rav Zevid inferred</b> his opinion <b>from the latter clause</b> of the mishna, whereas <b>Rav Pappa inferred</b> his opinion <b>from the former clause.</b>
+
+### Part 10
+<b>Rav Zevid inferred</b> his opinion <b>from the latter clause, as it teaches:</b> An ox that is <b>forewarned with regard to small</b> specimens of a species, <b>but is not forewarned with regard to large</b> specimens of that species. <b>Granted, if you say</b> that the mishna <b>teaches</b> in the first clause: With regard to an ox that is forewarned with regard to its own species <b>but is not forewarned</b> with regard to other species, indicating that in <b>an ordinary</b> case the ox <b>is</b> considered <b>forewarned</b> with regard to all animals, <b>this</b> clause of the mishna <b>teaches us that even from</b> being forewarned with regard to <b>small</b> specimens of a species, in <b>an ordinary</b> case the ox <b>is</b> thereby considered <b>forewarned with regard to large</b> specimens of that species, which is a more far-reaching statement, as an ox is less likely to gore large animals.
+
+### Part 11
+<b>But if you say</b> that the mishna <b>teaches:</b> An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species, meaning that in <b>an ordinary</b> case, where there is no proof to the contrary, the ox <b>is not</b> considered <b>forewarned</b> with regard to other species, there is a difficulty with the latter clause of the mishna.
+
+### Part 12
+The Gemara explains: <b>Now</b> that <b>it can be said</b> that <b>from</b> being forewarned with regard to <b>small</b> oxen, in <b>an ordinary</b> case, the ox <b>is not</b> thereby considered <b>forewarned with regard to small</b> animals <b>in general, need it be said that from</b> being forewarned with regard to <b>small</b> specimens of a species <b>it is not</b> thereby considered <b>forewarned with regard to large</b> specimens of that species? It must be that the mishna reads: But is not forewarned, indicating that only when the ox is proven to be innocuous with regard to other species and then it gores another species is its owner liable to pay only half the cost of the damage. Otherwise, he must pay the full cost of the damage.
+
+### Part 13
+<b>And Rav Pappa</b> could have <b>said to you</b> in response that even if the mishna reads: An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species, the latter clause is <b>necessary,</b> as otherwise it might <b>enter your mind to say</b> that <b>since it breached</b> the norm by attacking one <b>of that species, it</b> is considered to have <b>breached</b> the norm entirely <b>with regard to</b> that species, and there <b>is no difference</b> with regard to <b>large</b> members <b>of</b> the species <b>and</b> there <b>is no difference</b> with regard to <b>small</b> members <b>of it,</b> as the ox is now likely to gore any of them. Therefore, this clause of the mishna <b>teaches us that it is not</b> considered <b>forewarned</b> with regard to the large animals of that species.
+
+### Part 14
+As stated previously, <b>Rav Pappa inferred</b> his opinion <b>from the former clause</b> of the mishna. <b>As</b> the mishna <b>teaches:</b> An ox that is <b>forewarned with regard to people is not forewarned with regard to animals. Granted, if you say</b> that <b>we learned</b> that the mishna states: An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species, which would indicate that in <b>an ordinary</b> case, where there is no proof to the contrary, <b>it is not</b> considered <b>forewarned</b> with regard to other species, then the mishna, in the next clause, <b>teaches us this, that even from</b> being forewarned with regard to <b>people,</b> in <b>an ordinary</b> case, the ox <b>is not</b> considered <b>forewarned with regard to animals.</b> The ox is considered innocuous with regard to animals, although it is more common for an ox to gore an animal than a person.
+
+### Part 15
+<b>But if you say that</b> the mishna <b>teaches</b> in the first clause: With regard to an ox that is forewarned with regard to its own species <b>but is not forewarned</b> with regard to other species, indicating that in <b>an ordinary</b> case <b>it is</b> considered <b>forewarned</b> with regard to other species, then there is a difficulty with the following clause of the mishna. <b>Now</b> that <b>it can be said</b> that even <b>from</b> being forewarned with regard to one species of <b>animal,</b> in <b>an ordinary</b> case, <b>it is</b> thereby considered <b>forewarned</b> with regard <b>to</b> other species of <b>animals, need it be said that from</b> its being forewarned with regard to <b>people it is</b> also considered <b>forewarned with regard to animals?</b>
+
+### Part 16
+<b>And Rav Zevid</b> could have <b>said to you</b> in response: <b>The former clause</b> in the mishna <b>relates to</b> the ox <b>reverting</b> to its innocuous status, i.e., a case <b>where</b> the ox <b>was forewarned with regard to man and forewarned with regard to animals, and reverted</b> to its innocuous status <b>with regard to animals, as it stood in</b> close <b>proximity to an animal three times and did not gore. Lest you say</b> that <b>since it did not</b> demonstratively <b>revert to</b> its innocuous behavior toward <b>people,</b> as it did not refrain from goring people, its <b>reversal with regard to animals is not</b> considered <b>a reversal,</b> the mishna <b>teaches us that</b> its <b>reversal with regard to animals is nevertheless</b> considered <b>a reversal,</b> and it no longer has the status of a forewarned ox with regard to goring animals.
+
+### Part 17
+The Gemara <b>raises an objection</b> to Rav Zevid’s opinion from a <i>baraita</i>: <b>Sumakhos says:</b> An ox that is <b>forewarned with regard to people is</b> considered <b>forewarned with regard to animals, due to an <i>a fortiori</i></b> inference: <b>If it is forewarned with regard to people,</b> is it <b>not</b> clear <b>all the more so</b> that it is forewarned <b>with regard to animals?</b> The Gemara elaborates: <b>By inference, the first <i>tanna</i>,</b> i.e., the <i>tanna</i> of the mishna, <b>is saying</b> that the ox <b>is not</b> considered <b>forewarned</b> with regard to animals, in accordance with the opinion of Rav Pappa.
+
+### Part 18
+The Gemara answers: <b>Rav Zevid</b> could have <b>said to you</b> that <b>Sumakhos’s</b> statement can be interpreted as <b>relating to</b> the ox <b>reverting</b> to its innocuous status, <b>and this is</b> what he <b>is saying to the first <i>tanna</i>:</b> Contrary to <b>what you are saying,</b> that the ox’s <b>reversal with regard to animals is considered a reversal</b> although it has not yet reversed its behavior toward people, I maintain that its <b>reversal with regard to animals is not</b> considered <b>a reversal, due to an <i>a fortiori</i></b> inference <b>from</b> the <i>halakha</i> of an animal forewarned with regard to <b>people: If</b> the ox <b>has not reverted to</b> its innocuous behavior toward <b>people,</b> is it <b>not</b> clear <b>all the more so</b> that it has not truly reverted <b>to</b> its innocuous behavior toward <b>animals?</b>
+
+### Part 19
+<b>Rav Ashi said: Come</b> and <b>hear</b> a proof for Rav Zevid’s opinion from the mishna: The Sages <b>said before Rabbi Yehuda:</b> What would be the <i>halakha</i> if <b>this</b> ox <b>is forewarned with regard to <i>Shabbatot</i> but is not forewarned with regard to weekdays? He said to them: For</b> damage it causes on <b><i>Shabbatot</i></b> its owner <b>pays the full</b> cost of the <b>damage,</b> and <b>for</b> damage it causes on <b>weekdays, he pays half</b> the cost of <b>the damage.</b>
+
+### Part 20
+<b>Granted, if you say</b> that the mishna <b>teaches: But was not forewarned</b> with regard to weekdays, <b>they were asking him</b> about the <i>halakha</i> in that case, <b>and likewise, he was answering them</b> with a ruling. <b>But if you say</b> that <b>it teaches:</b> This ox that is forewarned with regard to <i>Shabbatot</i> <b>is not forewarned</b> with regard to weekdays, the mishna would be understood as saying that an ox that is forewarned with regard to Shabbat is not considered forewarned with regard to weekdays. Is it possible that the Sages <b>were teaching him</b> this <i>halakha</i>? <b>And furthermore, what was he responding to them?</b> They had already stated themselves that the ox is not considered forewarned with regard to weekdays.
+
+### Part 21
+<b>Rav Yannai said:</b> Rav Zevid’s opinion <b>can be inferred from the former clause</b> of the mishna <b>as well, as it teaches:</b> If the ox gores an animal or person <b>with regard to which it is forewarned,</b> its owner <b>pays the full</b> cost of the <b>damage, and</b> if it gores an animal or person <b>with regard to which it is not forewarned, he pays half</b> the cost of <b>the damage.</b>
+
+### Part 22
+<b>Granted, if you say</b> that the mishna <b>teaches</b> in the first clause: With regard to an ox that is forewarned with regard to its own species <b>but is not forewarned</b> with regard to other species, this clause <b>is explaining</b> the <i>halakha</i> in that case, i.e., if the ox is forewarned only with regard to its species, its owner is liable to pay the full cost of the damage only if it gores another ox.
+
+### Part 23
+<b>But if you say</b> that the mishna <b>teaches:</b> An ox that is forewarned with regard to its own species <b>is not forewarned</b> with regard to other species, and the <i>halakha</i> was already <b>determined</b> at the beginning of the mishna, namely, that the ox is not considered forewarned with regard to other species, then <b>what</b> need is there for the mishna to <b>further</b> state: If the ox gores an animal or person <b>with regard to which it is forewarned,</b> its owner <b>pays the full</b> cost of the <b>damage, and</b> if it gores an animal or person <b>with regard to which it is not forewarned, he pays half</b> the cost of <b>the damage? Has</b> the mishna <b>not taught us until now that for an innocuous</b> ox its owner <b>pays half</b> the cost of <b>the damage and for a forewarned</b> ox <b>he pays the full</b> cost of the <b>damage?</b>
+
+### Part 24
+The Gemara comments: <b>And even if you say</b> that <b>Rav Pappa’s</b> opinion, which says that an ox that is forewarned with regard to its own species is not considered forewarned with regard to other species, <b>is accepted,</b> nevertheless, if an ox <b>gored an ox, a donkey, and a camel, it is</b> thereby <b>rendered forewarned</b> with regard <b>to all</b> of them. The ox is rendered forewarned with regard to all three species, regardless of the fact that it did not gore each individual species three times.
+
+### Part 25
+§ <b>The Sages taught:</b> If an ox <b>saw an ox</b> and <b>gored</b> it, and subsequently saw another <b>ox</b> but <b>did not gore</b> it, again saw <b>an ox</b> and <b>gored</b> it and then saw <b>an ox</b> but <b>did not gore</b> it, and a third time saw <b>an ox</b> and <b>gored</b> it and saw <b>an ox</b> and <b>did not gore</b> it, in this case <b>it is rendered forewarned with regard to alternate oxen.</b> The ox is considered forewarned with regard to goring every other ox that it sees and is considered innocuous with regard to the oxen in between. If it then gores two oxen in a row, the owner of the ox is liable for only half the cost of the damage for the second ox.
+
+### Part 26
+<b>The Sages taught:</b> If an ox <b>saw an ox</b> and <b>gored</b> it, and then saw <b>a donkey</b> but <b>did not gore</b> it, and saw <b>a horse</b> and <b>gored</b> it, then saw <b>a camel</b> and <b>did not gore</b> it, and saw <b>a mule</b> and <b>gored</b> it, and then saw <b>a wild donkey [<i>arod</i>]</b> and <b>did not gore</b> it, in this case it <b>is rendered forewarned</b> with regard <b>to alternate</b> animals of <b>all</b> species.
+
+### Part 27
+<b>A dilemma was raised before</b> the Sages: If an ox <b>gored</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

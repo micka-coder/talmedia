@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Shilo, Nob, et Gibeon, et</b> aussi <b>la Maison eternelle,</b> c'est-a-dire le Temple de Jerusalem. La poussiere pour la <i>sota</i> est toujours rapportee du sol du Sanctuaire, ou qu'il se trouve, meme apres que le peuple juif ne soit plus dans le desert.
+
+### Partie 2
+<b>Isi ben Menahem dit : Il n'est pas necessaire</b> de faire deriver cette <i>halakha</i> du verset. On peut l'apprendre par une <i>a fortiori</i> deduction : <b>En ce qui concerne</b> l'interdiction d'entrer dans le Sanctuaire en etat d' <b>impurete, une question indulgente</b> pour laquelle il n'y a pas de peine capitale imposee par un tribunal, <b>la Torah ne fait pas de difference.</b> Il est interdit a une personne impure d'entrer dans le Tabernacle quel que soit l'endroit ou il se trouve. Par consequent, <b>en ce qui concerne l'impurete d'une femme mariee,</b> qui est <b>stringente</b> et entraine la peine de strangulation, <b>a plus forte raison</b> n'est-il pas <b>clair</b> que la Torah ne fait pas de difference ? La poussiere doit etre apportee du Sanctuaire, peu importe ou il se trouve. <b>Si c'est le cas, quel</b> est le sens quand <b>le verset dit :</b> "Et de la poussiere qui est <b>sur le sol du Tabernacle" ? </b> Il enseigne <b>qu'on ne doit pas apporter</b> de la poussiere <b>de son</b> propre <b>panier</b> et la placer directement dans l'eau ; il doit d'abord la placer sur le sol.
+
+### Partie 3
+<b>Un dilemme a ete souleve devant</b> les Sages : Si <b>il n'y a pas de poussiere, qu'est-ce que</b> la <i>halakha</i> ? Peut-on <b>placer des cendres</b> dans le recipient a la place ? La Gemara repond : Il n'y a <b>pas</b> besoin de <b>soulever le dilemme</b> si l'on tient <b>conformement</b> a l'avis du <b>Beit Shammai, comme on dit : On ne trouve jamais de cendres designees comme de la poussiere</b> dans la Torah.
+
+### Partie 4
+<b>Lorsque vous soulevez le dilemme,</b> c'est <b>conformement</b> a l'avis de <b>Beit Hillel, qui dit : Nous</b> trouvons effectivement des cendres designees comme de la poussiere</b> dans le contexte de la genisse rouge (Nombres 19:17). De meme, ils soutiennent que les cendres peuvent egalement etre utilisees a la place de la poussiere pour couvrir le sang d'un oiseau abattu ou d'un animal non domestique (voir Levitique 17:13). <b>Quel</b> est le <i>halakha</i> ici, en ce qui concerne l'eau d'une <i>sota</i> ? Les cendres peuvent-elles remplacer la poussiere ? <b>Bien que</b> ailleurs les cendres puissent etre <b>referencees comme de la poussiere, ici il est ecrit : "Sur le sol du Tabernacle,"</b> indiquant que la poussiere en particulier est requise, puisque la poussiere provient du sol. <b>Ou peut-etre</b> l'expression <b>"sur le sol du Tabernacle" vient</b> seulement pour enseigner que la <i>halakha</i> est <b>conforme</b> a l'enseignement de <b>Isi ben Yehuda ou conforme</b> a l'enseignement de <b>Isi ben Menahem.</b> Si c'est le cas, peut-etre que les cendres sont egalement acceptables.
+
+### Partie 5
+<b>Venez</b> et <b>entendez</b> la preuve de <b>cette</b> que <b>Rabbi Yohanan dit au nom de Rabbi Yishmael : Dans trois cas, la <i>halakha</i> supplante le verset,</b> c'est-a-dire que la tradition altere le sens direct du verset.
+
+### Partie 6
+<b>La Torah declare :</b> "Et tout homme"¦qui prend a la chasse une bete ou un volatile susceptible d'etre mange, il en versera le sang et le couvrira <b>de poussiere"</b> (Levitique 17:13), <b>mais la <i>halakha</i> est</b> que le sang peut etre couvert <b>de tout ce qui est</b> semblable a de la poussiere. <b>La Torah declare</b> en ce qui concerne le nazirite : "Tous les jours de son vœu de nazireat, aucun <b>razor</b> ne viendra sur sa tete" (Nombres 6:5), <b>mais la <i>halakha</i> est</b> que le nazireen ne peut s'epiler <b>avec quoi que ce soit. La Torah declare :</b> "Qu'il lui redige un <b>acte [<i>sefer</i>]</b> de divorce" (Deuteronome 24:1). Le mot <i>sefer</i> designe un rouleau, <b>mais la <i>halakha</i> est</b> que le mari peut inscrire l'acte de divorce <b>sur tout</b> ce qui est detache du sol et apte a etre ecrit, pas seulement sur un rouleau.
+
+### Partie 7
+<b>Et s'il en est ainsi</b> que l'on peut mettre des cendres dans l'eau d'une <i>sota</i> malgre la stipulation du verset concernant la poussiere, <b>considerez ce</b> quatrieme cas <b>aussi</b> comme une <i>halakha</i> qui supplante le verset. Puisqu'il est omis de la declaration de Rabbi Yishmael, il semble que les cendres ne peuvent pas etre utilisees.
+
+### Partie 8
+La Guemara repond : Rabbi Yishmael <b>a enseigne</b> certains cas <b>et omis</b> d'autres ; sa liste n'est pas exhaustive. La Guemara demande : <b>Quoi</b> d'autre <b>a-t-il omis pour qu'il omette ceci ?</b> Il n'est pas raisonnable qu'il fournisse une liste a laquelle il ne manque qu'un seul element. La Guemara repond : <b>Il a omis le lepreux, comme il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Negaim</i> 1:9) : Dans le verset : <b>"Et le septieme jour, il se rasera tous ses cheveux"</b> (Levitique 14:9), la phrase "tous ses cheveux" est <b>une generalisation.</b> La phrase qui suit : <b>Sa tete, sa barbe et ses sourcils,</b> est <b>un detail.</b> Et avec la phrase suivante : <b>"Meme tous ses cheveux, il les rasera"</b>, le verset <b>s'est a nouveau generalise</b>. Dans tous les cas de <b>generalisation, et un detail, et une generalisation, vous pouvez deduire</b> que le verset se refere <b>uniquement</b> a des elements <b>similaires au detail. De meme que le detail fait explicitement</b> reference aux <b>zones</b> ou il y a <b>une collection de poils qui est visible, de meme toutes les zones</b> sur le lepreux qui ont <b>une collection de poils qui est visible</b> doivent etre rasees.
+
+### Partie 9
+A <b>Quel</b> cas autrement exclu ce <i>baraita</i> <b>etend-il</b> le <i>halakha</i> ? Elle <b>etend</b> le <i>halakha</i> des poils pour inclure les <b>poils pubiens. Qu'est-ce que</b> le <i>baraita</i> <b>exclut ? Elle exclut les poils des aisselles,</b> qui ne sont pas visibles, <b>et les poils du corps</b> qui ne sont pas recueillis. C'est le sens direct du verset.
+
+### Partie 10
+<b>Et</b> pourtant <b>la <i>halakha</i> est :</b> Le lepreux <b>se rase comme une calebasse,</b> c'est-a-dire que tout son corps doit etre rase. <b>Comme nous l'avons appris</b> dans une mishna (<i>Negaim</i> 14:2) : Lorsque le pretre <b>vient pour raser le lepreux, il passe un rasoir sur toute sa chair. Et</b> dans <b>la derniere clause,</b> la mishna <b>enseigne : Le septieme jour, il rase</b> le lepreux a nouveau. <b>Le deuxieme rasage est</b> juste <b>comme le premier rasage.</b> Le verset analyse precedemment fait reference au deuxieme rasage, et sa signification directe est que toute la chair du lepreux n'a pas besoin d'etre rasee. Cependant, la mishna indique que le lepreux doit egalement raser toute sa chair lors du second rasage. Il s'agit d'un autre cas ou la <i>halakha</i> supplante le sens direct du verset, et pourtant il est omis de la liste de Rabbi Yishmael.
+
+### Partie 11
+<b>Rabbi Nahman bar Yitzhak dit :</b> Rabbi Yishmael a consciemment omis la <i>halakha</i> du lepreux parce qu'il <b>comptait</b> uniquement les cas ou la <b><i>halakha</i> supplante</b> le sens direct du <b>verset. Cette</b> <i>halakha</i> du lepreux, cependant, <b>est</b> un cas ou la <i>halakha</i> <b>superieure</b> uniquement une interpretation exegetique <b>des Sages.</b>
+
+### Partie 12
+<b>Rav Pappa a dit :</b> Rabbi Yishmael <b>n'a compte</b> que les cas ou le <b><i>halakha</i></b> a la fois <b>supere et deracine</b> le sens direct du verset. <b>Ceci,</b> cependant, est un cas ou le <i>halakha</i> <b>supere et ajoute.</b> Le <i>halakha</i> n'annule pas le verset mais ajoute une exigence supplementaire, a savoir que tout le corps doit etre rase.
+
+### Partie 13
+<b>Rav Ashi a dit : Ce <i>baraita</i>,</b> qui enseigne que seules certaines parties du corps doivent etre rasees, <b>est</b> conforme a <b>l'opinion de qui</b> ? <b>C'est</b> conforme a l'opinion de <b>Rabbi Yishmael, qui interprete</b> les versets au moyen du principe des <b>generalisations et des details.</b> Selon cette interpretation, seules les zones collectees de poils visibles doivent etre rasees.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

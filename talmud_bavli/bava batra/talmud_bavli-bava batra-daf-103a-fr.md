@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>ils ne sont pas mesures</b> ensemble <b>avec</b> le reste du terrain. Si les crevasses ou les rochers etaient <b>moins</b> de dix handbreadths, <b>ils sont mesures</b> ensemble <b>avec</b> le reste du champ.
+
+### Partie 2
+La Gemara demande : <b>Mais pourquoi</b> les crevasses qui sont plus profondes et les rochers qui sont plus hauts que dix metres carres ne sont pas mesures avec le reste du champ ? <b>Laissons-les</b> au moins <b>etre consacres separement</b> et exiger leur propre rachat. <b>Et si vous voulez dire que puisqu'ils n'ont pas</b> la taille d'un <b>couleur</i>, ils ne peuvent etre consacres,</b> il y a une difficulte.
+
+### Partie 3
+<b>Mais n'est-il pas enseigne</b> dans un <i>baraita</i> concernant le verset : "Et si celui qui a sanctifie le champ le rachete" (Levitique 27:19) : <b>Pourquoi</b> faut-il que <b>le verset enonce</b> le mot <b>"champ"</b> Puisque les versets precedents parlent tous d'un champ, il aurait suffi que ce verset fasse reference au champ avec le pronom : Il. Au contraire, <b>comme il est dit</b> dans un verset precedent : "Alors ton evaluation sera en fonction de la semence requise pour celui-ci ; <b>un <i>homer</i> de semence d'orge sera evalue a cinquante sicles d'argent"</b> (Levitique 27:16), <b>J'ai</b> derive <b>seulement</b> le <i>halakha</i> dans le cas de celui qui a <b>consacre de cette maniere,</b> c'est-a-dire, une zone apte a semer un <i>homer</i> de graines d'orge.
+
+#### Partie 4
+Le <i>baraita</i> continue : <b>D'ou</b> j'apprends que cette <i>halakha</i> est egalement censee <b>inclure</b> le cas de celui qui a consacre une surface plus petite, par exemple, une surface apte a semer <b>un <i>letekh</i>,</b> c'est-a-dire, un demi-<i>kor</i>, <b>un demi-<i>letekh</i>, un <i>seâ</i>, un <i>tarkav</i>, et un demi-<i>tarkav</i>?</b> D'ou vient que ces parcelles plus petites peuvent aussi etre consacrees et rachetees selon les valeurs fixes enoncees dans la Torah ? <b>Le verset indique : "Un champ,"</b> ce qui enseigne que cette <i>halakha</i> s'applique <b>dans tous les cas</b> de figure d'un champ, meme a des parcelles plus petites.
+
+### Partie 5
+<b>Rav Ukva bar Hama a dit : Ici,</b> dans la mishna de <i>Arakhin</i>, <b>on a affaire a des crevasses remplies d'eau.</b> Etant <b>qu'elles ne sont pas aptes a etre ensemencees,</b> elles ne peuvent etre consacrees, comme le dit le verset : "Alors ton evaluation sera en fonction de la semence requise pour cela" (Levitique 27:16). La Guemara commente : Le langage de la mishna <b>est egalement precis</b> selon cette interpretation, <b>car il enseigne</b> la <i>halakha</i> a propos des crevasses qui sont <b>similaires a des rochers,</b> qui ne sont certainement pas aptes a etre semees. La Guemara affirme : <b>Apprenez de ceci</b> que cette explication est correcte.
+
+### Partie 6
+La Gemara souleve une difficulte : <b>Si</b> c'est <b>ainsi,</b> que les crevasses et les rochers de la mishna sont exclus de la consecration parce qu'ils sont impropres a la semence, alors <b>meme</b> s'ils <b>sont inferieurs</b> a dix handbreadths de profondeur ou de hauteur, ils <b>aussi</b> ne doivent pas etre consacres. La Guemara repond : Si les crevasses ou les rochers ont moins de dix centimetres de profondeur ou de hauteur, <b>ces</b> crevasses <b>sont appelees les fissures de la terre,</b> et ces rochers <b>sont appeles les epines [<i>shidrei</i>] de la terre.</b> En d'autres termes, puisqu'ils sont consideres comme des caracteristiques standard du champ et ne constituent pas des zones separees, ils sont consacres avec le reste du champ.
+
+### Partie 7
+La Gemara demande : La <i>halakha</i> enoncee ci-dessus a ete enseignee en ce qui concerne les biens consacres. <b>Ici,</b> dans le cas d'une vente de terrain, a propos de laquelle la mishna enseigne que les crevasses d'une profondeur de dix handbreadths ne sont pas mesurees avec le terrain, <b>qu'est-ce</b> que la <i>halakha</i> ? Cette <i>halakha</i> ne s'applique-t-elle que lorsque les crevasses sont remplies d'eau ? <b>Rav Pappa a dit : Meme si elles ne sont pas remplies d'eau</b> elles ne sont pas considerees comme faisant partie du champ. <b>Quelle est la raison</b> pour laquelle, dans le cas d'une vente, les crevasses ne sont pas considerees comme faisant partie du champ meme si elles ne sont pas remplies d'eau ? Parce que <b>une personne</b> achetant un champ <b>ne veut pas donner son argent pour</b> l'achat d'<b>une parcelle alors qu'elle lui apparait comme deux ou trois</b> <b>parcelles</b> differentes en raison des differences de hauteur du terrain. Par consequent, ces crevasses qui ont dix handbreadths de profondeur ne sont pas mesurees avec le reste du terrain, qu'elles soient remplies d'eau ou non.
+
+### Partie 8
+<b>Ravina s'oppose a cela : Mais</b> la mishna <b>enseigne</b> le <i>halakha</i> sur les crevasses d'une maniere indiquant qu'elles sont <b>similaires</b> aux <b>roches</b> dont il est question dans la mishna. <b>De meme que les rochers ne sont pas aptes a etre semes, de meme, ces</b> crevasses sont telles <b>qu'elles ne sont pas aptes a etre semees.</b> Mais si elles ne sont pas remplies d'eau, et sont donc aptes a etre semees, alors meme si elles sont plus basses que le reste du champ, elles doivent etre incluses dans la vente. La Gemara repond : <b>Lorsque la mishna <b>enseigne</b> le <i>halakha</i> sur les crevasses d'une maniere indiquant qu'elles sont <b>similaires</b> aux <b>roches</b> dont il est question dans la mishna, elle enseigne sur les crevasses qui <b>sont inferieures a cela,</b> c'est-a-dire d'une profondeur inferieure a dix handbreadths. Dans ce cas, meme si elles ne sont pas aptes a etre semees, elles sont mesurees avec le reste du champ.
+
+### Partie 9
+§ La mishna enseigne que si les crevasses ou les rochers du champ mesuraient <b>moins</b> de dix centimetres carres, <b>ils sont mesures</b> avec <b>le reste du champ. <Rabbi Yitzhak dit : Les rochers</b> ou les crevasses qui mesurent moins de dix handbreadths <b>que</b> les Sages <b>ont dit</b> sont mesures avec le reste du champ ne doivent pas mesurer plus que <b>une surface necessaire pour semer quatre <i>kav</i></b> de graines dans une surface necessaire pour semer un <i>kor</i>. <b>Rav Ukva bar Hama dit : Cela s'applique</b> specifiquement <b>lorsque</b> les pierres <b>sont dispersees dans une zone requise pour semer cinq <i>kav</i>. Rav Hiyya bar Abba</b> dit que <b>Rabbi Yohanan dit : Ceci s'applique</b> specifiquement <b>lorsque</b> les pierres <b>sont dispersees dans la plus grande partie du champ.</b>
+
+### Partie 10
+<b>Rabbi Hiyya bar Abba souleve un dilemme</b> par rapport a la <i>halakha</i> enseignee au nom de Rabbi Yohanan : Si <b>la majorite des</b> rochers sont disperses <b>dans la plus petite partie</b> du champ, <b>et la minorite des</b> rochers sont disperses <b>dans la plus grande partie</b> du champ, <b>qu'est-ce que</b> la <i>halakha</i> ? La Gemara repond : Le dilemme <b>demeurera</b> non resolu, car aucune reponse n'a ete trouvee.
+
+### Partie 11
+<b>Rabbi Yirmeya souleve</b> un autre <b>dilemme :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

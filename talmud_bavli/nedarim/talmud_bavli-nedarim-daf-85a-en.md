@@ -1,0 +1,30 @@
+
+### Part 1
+<b>That Rabbi</b> Yehuda HaNasi <b>holds</b> that the <b>benefit of discretion is</b> considered to have <b>monetary value,</b> and therefore a thief must pay the full value of the untithed produce. The owner has monetary rights in the priestly and Levitical gifts, by virtue of the fact that he may give his <i>teruma</i> and tithes to the priest and Levite of his choice. <b>And Rabbi Yosei, son of Rabbi Yehuda, holds</b> that the <b>benefit of discretion is not</b> considered to have <b>monetary value,</b> meaning that the owner of the produce has no monetary rights whatsoever in the <i>teruma</i> and tithes included in the untithed produce.
+
+### Part 2
+The Gemara rejects this explanation: <b>No, as everyone</b> agrees that the <b>benefit of discretion is not</b> considered to have <b>monetary</b> value. <b>Rather, here they disagree with regard to</b> whether priestly and Levitical <b>gifts that have not</b> yet <b>been separated</b> are considered as if they have already been separated, meaning the dispute is whether the untithed produce is categorized as a mixture of regular produce and tithes, or as a non-sacred category in and of itself. If they are not seen as having already been separated, the thief must restore everything he took. But if they are regarded as having already been separated, then the thief returns only the non-sacred portion of the produce, as the priestly and Levitical gifts did not belong to the owner.
+
+### Part 3
+The Gemara counters this argument: <b>But if</b> the <b>benefit of discretion is not</b> considered to have <b>monetary value, what is</b> the difference <b>to me</b> if the gifts <b>have</b> already <b>been separated,</b> and <b>what is</b> the difference <b>to me if they have not</b> yet <b>been separated?</b> Either way, the owner of the produce has no monetary rights in the portions of <i>teruma</i> and tithes contained in the untithed produce.
+
+### Part 4
+<b>Rather,</b> one must explain that <b>this is the reasoning of Rabbi</b> Yehuda HaNasi: <b>The Sages penalized the thief so that he would not steal</b> again by requiring him to repay the full value of what he stole, despite the fact that the owner of the untithed produce has no monetary rights in the <i>teruma</i> and tithes included in it. <b>And Rabbi Yosei, son of Rabbi Yehuda, holds</b> that <b>the Sages penalized the owner</b> of the produce, awarding him only the value of the non-sacred portion of the produce, <b>so that</b> in the future <b>he would not delay</b> with <b>his untithed produce,</b> but rather separate its <i>teruma</i> and tithes as soon as the produce is harvested. Had he set aside and distributed the gifts promptly they would not have been stolen.
+
+### Part 5
+<b>Rava said</b> that there is another way to reconcile the apparent contradiction in the mishna: As stated, the second case, where the person prohibits specific priests and Levites from benefiting from him, indicates that the benefit of discretion is considered to have monetary value. However, <b><i>teruma</i> is different, as this is the reason that</b> priests <b>can take</b> <i>teruma</i> from him <b>against his will</b> in a case where one prohibited all priests from deriving benefit from him: <b>Because <i>teruma</i> is fit only for priests, and since he came to render it prohibited to them, he made it,</b> for him, <b>like mere dust.</b> If this <i>teruma</i>, which certainly cannot be eaten by Israelites, is now forbidden to priests as well, the owner has effectively removed it from his own possession. Therefore, the priests do not derive any benefit from him if they take it.
+
+### Part 6
+<strong>MISHNA:</strong> If a woman said: <b>I will not produce</b> anything <b>for</b> my <b>father,</b> as <b>that is <i>konam</i></b> for me, <b>or: For your father, or: For my brother, or: For your brother,</b> her husband <b>cannot nullify</b> such vows, as they do not fall under the category of vows that adversely affect the relationship between him and her. By contrast, if she said: <b>I will not produce</b> anything <b>for you,</b> including the work that she is obligated to do for him according to the terms of her marriage contract, as <b>that</b> is <i>konam</i> for me, her husband <b>need not nullify</b> the vow at all. It is automatically void, since she is obligated to perform those tasks.
+
+### Part 7
+<b>Rabbi Akiva says: He should</b> nevertheless <b>nullify</b> the vow, as <b>perhaps she will exceed</b> the required amount of work and do <b>more for him than is fitting for him</b> to receive. If she does more than the fixed amount of work that a woman is obligated to perform for her husband, the vow will be valid with respect to the excess to which he is not entitled, and he might inadvertently come to benefit from something that is forbidden to him.
+
+### Part 8
+<b>Rabbi Yoḥanan ben Nuri</b> also <b>says</b> that he <b>should nullify</b> the vow, but for a different reason: <b>Perhaps he will</b> one day <b>divorce her,</b> at which point the vow will take effect <b>and she will</b> then <b>be forbidden to him</b> forever, i.e., he will be unable to remarry her, lest he come to benefit from her labor.
+
+### Part 9
+<strong>GEMARA:</strong> <b>Shmuel said: The <i>halakha</i> is in accordance with</b> the opinion of <b>Rabbi Yoḥanan ben Nuri.</b> The Gemara asks: <b>Is this to say that Shmuel maintains</b> that <b>a person can consecrate an entity that has not</b> yet <b>come into the world?</b> According to Rabbi Yoḥanan ben Nuri, her vow is valid with respect to things she will do after her divorce, even though at present she is not divorced and she has not yet produced anything. <b>And</b> the Gemara <b>raises a contradiction</b> from a mishna (<i>Ketubot</i> 58b): If <b>one consecrates his wife’s earnings,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

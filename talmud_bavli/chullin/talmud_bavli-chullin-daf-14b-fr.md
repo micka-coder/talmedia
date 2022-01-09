@@ -1,0 +1,51 @@
+
+### Partie 1
+La Guemara commente : Ce n'est pas une preuve, car <b>la, la raison</b> de l'opinion de Rabbi Yehuda est <b>comme cela est enseigne</b> dans la derniere clause de la <i>baraita</i> : Les rabbins <b>ont dit a Rabbi Meir : Ne concedez vous pas</b> que <b>peut-etre que l'outre eclatera</b> avant qu'il ne parvienne a separer le <i>teruma</i>, <b>et</b> cette personne <b>aura ete trouvee retroactivement</b> en train de <b>boire un produit non titre ?</b> Rabbi Meir <b>dit aux</b> Rabbins : La simple possibilite que cela se produise n'est pas une preoccupation. <b>Lorsque cela</b> effectivement <b>eclate,</b> je serai concerne. De toute evidence, l'opinion de Rabbi Yehuda n'est pas due a son rejet du principe de designation retroactive, mais a sa crainte que l'outre eclate avant que les dimes ne soient effectivement separees.
+
+### Partie 2
+<b>Au contraire,</b> le fait que Rabbi Yehouda n'accepte pas le principe de la designation retroactive est appris <b>de ce que Ayo enseigne</b> en ce qui concerne la jonction des limites du Chabbat dans un cas ou l'on sait que deux erudits de la Torah prevoient de donner des conferences le Chabbat en dehors des limites de la ville, l'un a l'est de la ville et l'autre a l'ouest de la ville, et la veille du Chabbat, on n'a pas encore decide a laquelle des conferences on souhaite assister. Dans ce cas, il peut placer la nourriture pour la jonction des limites des deux cotes de la ville et stipuler qu'il pourra aller au-dela des limites de la ville dans la direction qu'il choisira.
+
+### Partie 3
+<b>Comme Ayo enseigne</b> que <b>Rabbi Yehuda dit : Une personne ne peut pas stipuler</b> que sa jonction des limites prendra effet <b>sur deux affaires comme une seule. Au contraire,</b> il peut stipuler que <b>si</b> un <b>Sage vient a l'est, sa jonction</b> des limites prend effet <b>a l'est,</b> et s'il vient <b>a l'ouest, sa jonction</b> prend effet <b>a l'ouest, tandis que</b> s'il stipule qu'elle doit prendre effet <b>vers ici ou vers la</b> et qu'il ira dans la direction qu'il choisit, dans ce cas, la jonction ne prend <b>pas</b> effet.
+
+### Partie 4
+<b>Et nous avons discute</b> de ce <i>baraita</i> : <b>Qu'est-ce qui est different</b> dans un cas ou l'on stipule qu'il doit prendre effet <b>a ici ou a la</b> tel <b>que</b> la jonction ne prend <b>pas</b> effet ? C'est <b>parce qu'il n'y a pas</b> de <b>designation retroactive.</b> Si donc, stipuler que la jonction prendra effet a l'<b>est ou a l'ouest,</b> selon l'endroit ou va le Sage, ne devrait <b>egalement</b> pas prendre effet <b>parce qu'il n'y a pas</b> de <b>designation retroactive.</b>
+
+### Partie 5
+<b>Et Rabbi Yohanan dit :</b> C'est un cas <b>ou</b> lorsqu'il fait la stipulation, <b>le Sage est deja venu</b> soit a l'est, soit a l'ouest, et la jonction prend effet dans cette direction. Il fait une stipulation parce qu'il ne sait pas ou le Sage est venu. La jonction prend effet sans le principe de la designation retroactive. Neanmoins, puisqu'il est clair d'apres le premier cas de Ayo que Rabbi Yehuda n'accepte pas le principe de la designation retroactive, la question demeure : D'ou vient qu'un animal qui est abattu le Chabbat ou le Yom Kippour est interdit pour le jour ou il a ete abattu ?
+
+### Partie 6
+<b>Au contraire, Rav Yosef dit :</b> Lorsque Rav dit que la <i>halakha</i> selon laquelle la consommation de l'animal est interdite pour ce jour est l'avis de Rabbi Yehuda, la reference <b>est</b> a l'avis de <b>Rabbi Yehuda en ce qui concerne les recipients, comme nous l'avons appris</b> dans une mishna (<i>Chabbat</i> 124b) : En ce qui concerne <b>tous les recipients qui peuvent etre deplaces le Chabbat, leurs tessons peuvent etre deplaces</b> egalement, <b>a condition qu'ils soient adaptes a</b> un certain <b>type de travail. Les tessons d'un grand <b>bollier</b> peuvent etre utilises <b>pour couvrir l'embouchure d'un tonneau. Les tessons d'un recipient en verre</b> peuvent etre utilises <b>pour couvrir la bouche d'une caisse.</b>
+
+### Partie 7
+<b>Rabbi Yehuda dit : Et</b> il est permis d'utiliser les tessons <b>a condition qu'ils soient adaptes a un type de travail</b> similaire a <b>leur</b> utilisation initiale. Dans le cas des <b>tessons d'un</b> grand <b>bol,</b> il doit etre possible <b>d'y verser</b> un <b>broth epais,</b> et dans le cas des <b>tessons d'un recipient en verre</b>, il doit etre possible <b>d'y verser de l'huile.</b>
+
+### Partie 8
+La Guemara en deduit : S'ils conviennent a <b>un type de travail</b> similaire a <b>leur</b> usage initial, <b>oui,</b> ils peuvent etre deplaces ; mais s'ils conviennent a <b>un autre type de travail,</b> ils ne peuvent <b>pas</b> etre deplaces. <b>Apparemment, puisque</b> le tesson <b>n'etait pas prepare depuis hier pour ce</b> type de <b>travail,</b> il est <b>interdit</b> de le deplacer. <b>Ici aussi, puisque</b> l'animal qui a ete abattu <b>n'etait pas prepare d'hier,</b> il est <b>interdit</b> de le manger.
+
+### Partie 9
+<b>Abaye dit a</b> Rav Yosef : <b>Les cas sont-ils</b> <b>comparables ? La,</b> dans la mishna a propos des recipients, <b>initialement</b> c'etait <b>un recipient et maintenant</b> c'est <b>le tesson d'un recipient, et c'est</b> un cas d'un element qui <b>a pris naissance, et</b> il est donc <b>interdit</b> de le deplacer. <b>Ici,</b> dans le cas d'un animal abattu le Chabbat, <b>initialement,</b> de son vivant, il a ete designe comme <b>aliment, et finalement,</b> apres l'abattage, il est <b>aliment,</b> donc il <b>est</b> simplement <b>aliment qui a ete separe [<i>deifrat</i>].</b>
+
+### Partie 10
+<b>Et nous avons entendu</b> que c'est <b>Rabbi Yehuda qui dit : Les aliments qui ont ete separes</b> sont <b>permis, comme nous l'avons appris</b> dans une mishna (<i>Shabbat</i> 143b) : <b>On ne peut pas presser les fruits</b> le Chabbat afin <b>d'en extraire des liquides. Et si</b> les liquides <b>s'echappent d'eux-memes, il est interdit</b> de les utiliser a Shabbat, de peur que l'on ne vienne presser des fruits a Shabbat.
+
+### Partie 11
+<b>Rabbi Yehuda dit : Si</b> les fruits etaient destines <b>a etre manges,</b> le liquide <b>qui s'en est ecoule</b> le Chabbat <b>est permis. Et si</b> les fruits etaient designes <b>pour</b> leurs <b>liquides,</b> les liquides <b>qui en ont suinte</b> le Chabbat <b>sont interdits,</b> de peur qu'il ne vienne les presser le Chabbat. En ce qui concerne les fruits destines a la consommation, le liquide est considere comme un aliment qui a ete separe et est autorise. La meme <i>halakha</i> s'applique a l'egard d'un animal abattu le Chabbat : Puisqu'il etait destine a la consommation, sa viande est un aliment qui a ete separe et doit etre autorise selon Rabbi Yehuda.
+
+### Partie 12
+La Guemara rejette cette interpretation et affirme qu'au contraire, il existe une preuve que Rabbi Yehuda interdirait de manger un animal qui a ete abattu le Chabbat. <b>N'a-t-il pas ete dit a propos de</b> cette mishna que <b>Rav Yehuda dit</b> que <b>Shmuel dit : Rabbi Yehuda a concede aux rabbins dans</b> le cas des <b>baskets d'olives et de raisins</b> qui sont typiquement designes pour leurs liquides, meme si on avait prevu de les manger, que le liquide qui s'en ecoule est interdit ?
+
+### Partie 13
+<b>Apparemment, puisque</b> les olives et les raisins sont typiquement <b>designes pour etre presses,</b> on <b>determine son intention</b> de les utiliser pour leurs liquides, et s'il lui etait permis d'utiliser leurs liquides qui suintent le Chabbat, on craint qu'il vienne les presser le Chabbat. Par consequent, les Sages ont decrete que ces liquides sont interdits. <b>Ici aussi, puisque</b> l'animal est <b>designe pour l'abattage,</b> une personne <b>determine son intention</b> de le manger. Par consequent, s'il lui etait permis de manger la viande le Chabbat, le souci est qu'il en vienne a l'abattre le Chabbat. Par consequent, les Sages ont decrete que la viande est interdite.
+
+### Partie 14
+La Guemara justifie l'interpretation de la mishna par Abaye : <b>Cette explication est</b> valable <b>uniquement selon Rav,</b> qui dit que la decision selon laquelle il est interdit de manger un animal abattu le Chabbat jusqu'apres Chabbat est selon l'opinion de Rabbi Yehuda. <b>Le Rav n'a-t-il pas dit : Rabbi Yehouda etait en desaccord</b> avec les rabbins <b>meme dans</b> le cas des <b>paniers d'olives et de raisins ?</b> Selon Rav lui-meme, de meme que Rabbi Yehouda juge permis les liquides qui suintent des olives et des raisins par eux-memes, Rabbi Yehouda aurait du egalement juger permis pour ce jour un animal qui a ete abattu le Chabbat.
+
+### Partie 15
+<b>Au contraire, Rav Sheshet, fils de Rav Idi, a dit :</b> Lorsque Rav dit que la <i>halakha</i> selon laquelle il est interdit de consommer l'animal ce jour-la est l'avis de Rabbi Yehuda, la reference <b>est</b> a l'avis de <b>Rabbi Yehuda concernant les lampes, tel qu'il est enseigne</b> dans une <i>baraita</i> : <b>On peut deplacer,</b> a d'autres fins que de l'allumer, <b>une nouvelle</b> <b>lampe</b> en faience qui n'a jamais ete utilisee. <b>Mais</b> on ne peut <b>pas</b> deplacer <b>une vieille lampe</b> couverte de residus d'huile et de suie, parce qu'une personne la met de cote pour cause de repugnance. Puisqu'elle a ete mise de cote au debut du Chabbat, elle est mise de cote pour tout le Chabbat et elle ne peut pas etre deplacee meme si un besoin de la deplacer se presente ; c'est <b>la declaration de Rabbi Yehuda.</b> La meme <i>halakha</i> s'applique en ce qui concerne un animal abattu le Chabbat : Puisqu'il etait interdit au debut du Chabbat en tant que membre d'un etre vivant, il reste interdit pendant tout le Chabbat.
+
+### Partie 16
+La Guemara rejette cette analogie. <b>Disons que vous avez entendu Rabbi Yehuda</b> statuer qu'il est interdit pour tout le Chabbat <b>dans</b> un cas ou il est <b>mis de cote pour cause de repugnance,</b> comme la vieille lampe. <b>Avez-vous entendu</b> que <b>il</b> a dit qu'il est interdit pour tout le Chabbat dans un cas ou il est <b>mis de cote en raison d'une interdiction,</b> comme l'animal ? La Guemara repond : <b>Oui, car nous avons appris</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

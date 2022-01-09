@@ -1,0 +1,24 @@
+
+### Partie 1
+<strong>MISHNA:</strong> Lorsqu'on apporte une offrande de repas au Temple, le pretre en preleve une poignee, la place dans un recipient de service, la transporte jusqu'a l'autel et la brule. A ce moment-la, le reste est autorise aux pretres pour la consommation et le proprietaire a rempli son obligation. Dans ce contexte, la mishna enseigne : <b>Toutes les offrandes de repas</b> dont on a retire une poignee non pas pour elles</b> mais pour une autre offrande de repas <b>sont aptes</b> au sacrifice. <b>Mais</b> ces offrandes <b>n'ont pas satisfait l'obligation du proprietaire,</b> qui doit donc apporter une autre offrande. C'est la <i>halakha</i> en ce qui concerne toutes les offrandes de repas <b>a l'exception de l'offrande de repas d'un pecheur et de l'offrande de repas de jalousie,</b> qui est apportee dans le cadre du rite d'une femme soupconnee par son mari d'avoir ete infidele [<i>sota</i>]. Dans ces cas, si le pretre a retire la poignee non pour elle-meme, l'offrande est disqualifiee.
+
+### Partie 2
+En ce qui concerne <b>l'offrande de repas d'un pecheur et l'offrande de repas de jalousie</b> dont <b>le sacrificateur a <b>enleve une poignee non pour leur bien,</b> ou ou <b>il a place</b> une poignee de celles-ci <b>dans un recipient, ou transporte</b> la poignee a l'autel, <b>ou brule</b> la poignee sur l'autel, <b>non pour eux, ou pour eux et non pour eux, ou non pour eux et pour eux,</b> ils <b>sont disqualifies. </b>
+
+### Partie 3
+La mishna developpe : <b>Comment</b> ces rites sont-ils accomplis <b>pour leur bien et pas pour leur bien ?</b> C'est dans un cas ou l'on a retire la poignee avec deux intentions : <b>Pour l'offrande de repas d'un pecheur et pour l'offrande volontaire de repas.</b> Comment ces rites sont-ils accomplis <b>pas pour leur bien et pour leur bien ?</b> C'est dans un cas ou l'on a retire la poignee avec deux intentions : <b>Pour l'amour d'une offrande de repas volontaire et pour l'amour de l'offrande de repas d'un pecheur.</b>
+
+### Partie 4
+<strong>GEMARA : </strong>La mishna enseigne : Toutes les offrandes de repas dont on a retire une poignee non pas pour elles mais pour une autre offrande de repas sont propres au sacrifice, mais ces offrandes ne satisfaisaient pas a l'obligation de leur proprietaire. La Guemara demande : <b>Pourquoi ai-je</b> besoin de la mishna <b>pour enseigner : Mais</b> ces offrandes n'ont pas <b>[<i>ella</i></b> <i>shelo</i>] satisfait a l'obligation du proprietaire ? <b>Laissez-le enseigner</b> simplement : <b>Et ils n'ont pas [<i>velo</i>] satisfait a l'obligation du proprietaire.</b> Qu'ajoute le mot <i>ella</i> ?
+
+### Partie 5
+La Guemara repond : En ajoutant ce mot, la mishna <b>nous apprend</b> que la seule deficience de ces offrandes est qu'elles <b>n'ont pas satisfait l'obligation du proprietaire ; mais l'offrande de repas elle-meme</b> est <b>valide et</b> il est toujours <b>interdit de s'ecarter</b> du protocole de son processus sacrificiel. Par exemple, si une poignee a ete retiree d'une offrande de repas non pour elle-meme, il est interdit de la bruler egalement non pour elle-meme. Cette <i>halakha</i> est <b>conforme</b> a la declaration <b>de Rava, car Rava dit :</b> En ce qui concerne <b>un holocauste qu'on a egorge pas pour lui-meme,</b> il est encore <b>interdit d'asperger son sang</b> sur l'autel <b>pas pour lui-meme.</b>
+
+### Partie 6
+La Guemara ajoute : <b>Si tu le souhaites, propose un argument logique</b> pour soutenir cette affirmation ; <b>et si tu le souhaites, cite un verset</b> comme preuve. La Gemara developpe : <b>Si tu le souhaites, propose un argument logique</b> Juste <b>parce qu'on a devie</b> du protocole <b>dans son</b> sacrifice une fois, en enlevant la poignee, pourrait-il etre que <b>il devrait continuer a devier</b> du protocole <b>dans tout</b> le reste des rites sacrificiels ? Une deviation ne justifie pas d'autres deviations.
+
+### Partie 7
+<b>Et si vous le souhaitez, citez un verset :" Ce qui est sorti de tes lèvres, tu l'observeras et tu le mettras en pratique, selon ce que tu as fait comme voeu d'offrande A l'Eternel, ton Dieu, ce que tu as promis de ta bouche" (Deutéronome 23:24). La Guemara analyse le verset : Est-ce <b>un don</b> offrande ? <b>C'est une offrande de voeu</b>. Pourquoi le verset l'appelle-t-il d'abord <b>offrande de vœu</b> <b>et</b> ensuite <b>offrande de don</b> ? <b>Au contraire,</b> le verset enseigne que <b>si vous avez agi conformement a la maniere dont vous avez fait votre vœu,</b> c'est-a-dire si vous avez sacrifie l'offrande pour elle-meme, votre obligation d'accomplir votre <b>vœu sera</b> remplie ; <b>mais si</b> vous n'avez <b>pas</b> agi conformement a votre vœu, elle ne remplit pas l'obligation encourue par le vœu, et <b>serait</b> consideree comme <b>une offrande de don</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

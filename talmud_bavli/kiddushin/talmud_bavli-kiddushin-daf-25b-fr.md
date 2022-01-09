@@ -1,0 +1,21 @@
+
+### Partie 1
+La Guemara commente que la premiere question relative a la castration des testicules est <b>comme</b> une dispute entre <b><i>tannaim</i>.</b> Elle est enoncee a propos des animaux qui ne peuvent etre utilises comme offrandes a cause de leurs taches : <b>"Celui dont les pierres sont meurtries, ou ecrasees, ou dechirees, ou coupees</b> vous ne sacrifierez pas a l'Eternel" (Levitique 22:24). <b>Toutes</b> ces taches <b>sont</b> relatives <b>aux</b> <b>testicules de l'animal;</b> c'est <b>la declaration de Rabbi Yehuda.</b>
+
+### Partie 2
+La Guemara demande : Rabbi Yehuda pourrait-il eventuellement vouloir dire que ces tares ne s'appliquent qu'aux <b>testicules et pas au penis ?</b> Certes, celles-ci devraient egalement etre considerees comme des tares si elles affectent le penis, qui est plus expose que les testicules. <b>Au contraire,</b> c'est ce que dit le <i>baraita</i> : <b>Toutes</b> ces imperfections s'appliquent <b>aux testicules aussi;</b> c'est <b>la declaration de Rabbi Yehuda. Rabbi Eliezer ben Yaâkov dit : Toutes</b> s'appliquent uniquement <b>au penis. Rabbi Yosei affirme</b> la distinction suivante : <b>Les meurtrissures ou les ecrasements</b> s'appliquent <b>aux testicules egalement.</b> A l'inverse, lorsqu'il y a des zones <b>"cassees ou coupees"</b> sur le penis, oui,</b> elles sont considerees comme une tare, mais <b>sur les testicules, non,</b> elles ne sont pas une tare.
+
+### Partie 3
+<strong>MISHNA :</strong> <b>Un grand animal domestique est acquis par passage,</b> lorsque son proprietaire actuel le transfere a un acheteur en lui donnant les renes ou le mors. <b>Et un petit</b> animal domestique est acquis <b>par soulevement.</b> C'est <b>la declaration de Rabbi Meir et Rabbi Eliezer. Et les rabbins disent : Un petit animal domestique peut etre acquis en tirant</b> egalement, et il n'est pas necessaire de le soulever.
+
+### Partie 4
+<strong>GEMARA:</strong> <b>Rav a enseigne dans</b> la ville de <b>Kimhonya : On acquiert un grand animal domestique en le tirant. Shmuel a trouve les etudiants de Rav</b> et leur a <b>dit : Rav</b> a-t-il reellement <b>dit qu'un grand animal domestique s'acquiert en tirant ? Mais n'avons-nous pas appris</b> dans la mishna qu'il s'acquiert <b>en passant ? Et</b> plusieurs fois j'ai <b>aussi</b> entendu <b>Rav dire</b> qu'il est acquis <b>en passant.</b> S'est-il retracte de cette</b> decision ? Les eleves du Rav ont repondu : En fait, le Rav a retracte cette decision et <b>il enonce</b> son opinion <b>conforme</b> a l'opinion de <b>cette <i>tanna</i>,</b> c'est-a-dire les Rabbins, <b>comme cela est enseigne</b> dans une <i>baraita</i> : <b>Et les Rabbins disent : Tant</b> les petits que les grands animaux domestiques <b>sont acquis par tirage. Rabbi Shimon dit : Les deux</b> sont acquis <b>en soulevant.</b>
+
+### Partie 5
+<b>Rav Yosef s'oppose</b> a cela : <b>Si c'est ainsi, par quel</b> mode d'acquisition <b>on peut acquerir un elephant, selon</b> l'avis de <b>Rabbi Shimon ?</b> Il est impossible de soulever un elephant. <b>Abaye lui a repondu :</b> Il est possible de l'acquerir <b>par le mode d'acquisition de <b>l'echange symbolique,</b> un acte juridique d'acquisition formalisant le transfert de propriete d'un article. <b>Alternativement,</b> on peut acquerir un elephant <b>en louant sa place</b> temporairement et en acquerant l'elephant par le biais du sol sur lequel il se trouve.
+
+### Partie 6
+<b>Rabbi Zeira dit</b> qu'il existe une autre methode : On <b>apporte quatre recipients et on les place sous</b> les <b>pieds de l'elephant,</b> et il l'acquiert ainsi comme tout autre objet qui se trouve a l'interieur des recipients de l'acheteur. La Gemara demande : Peut-on <b>apprendre de</b> Rabbi Zeira que si les <b>vases de l'acheteur,</b> utilises pour acquerir un objet du vendeur, <b>se trouvent dans le domaine du vendeur, l'acheteur acquiert</b> l'objet ? La Gemara rejette cette affirmation : Ce n'est pas une preuve, car <b>De quoi s'agit-il ici ?</b> Le cas en question est celui ou les recipients ne sont pas dans le domaine du vendeur mais <b>dans une ruelle [<i>simta</i>],</b> qui n'est ni un domaine public ni un domaine prive. Dans un tel lieu, les vaisseaux de lâcheteur effectuent certainement lâcquisition pour lui.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

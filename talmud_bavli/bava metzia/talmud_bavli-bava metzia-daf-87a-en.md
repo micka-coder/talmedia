@@ -1,0 +1,60 @@
+
+### Part 1
+<b>“And he urged them greatly”</b> (Genesis 19:3), only after which they acquiesced? <b>Rabbi Elazar says: From here</b> we learn <b>that one may decline</b> the request of <b>a lesser man, but one may not decline</b> the request of <b>a great man.</b>
+
+### Part 2
+The Gemara continues analyzing the same passage. <b>It is written: “And I will fetch a morsel of bread,</b> and satisfy your heart” (Genesis 18:5), <b>and it is written: “And Abraham ran to the herd,</b> and fetched a calf tender and good” (Genesis 18:7). <b>Rabbi Elazar said: From here</b> we learn <b>that</b> the <b>righteous say little and do much,</b> whereas the <b>wicked say much and do not do even a little.</b>
+
+### Part 3
+<b>From where do we</b> derive this principle that the wicked say much and do not do even a little? We derive it <b>from Ephron. Initially, it is written</b> that Ephron said to Abraham: <b>“A piece of land worth four hundred shekels of silver,</b> what is that between me and you?” (Genesis 23:15). And <b>ultimately it is written: “And Abraham listened to Ephron; and Abraham weighed to Ephron the silver, which he had named in the hearing of the children of Heth, four hundred shekels of silver, current money with the merchant”</b> (Genesis 23:16), i.e., shekels that could be used in any location. This teaches <b>that</b> not only did Ephron take shekels from Abraham, <b>he took from him only centenaria [<i>kantarei</i>],</b> i.e., superior coins, <b>as there is a place where they call a shekel a centenarius.</b>
+
+### Part 4
+The verse states: “Make ready quickly three measures of flour, fine flour” (Genesis 18:6). The Gemara questions the apparent redundancy. <b>It is written: “Flour,” and it is</b> also <b>written: “Fine flour.” Rabbi Yitzḥak says: From here</b> we learn <b>that a woman is more stingy with guests than a man.</b> Sarah wanted to use merely flour, and Abraham persuaded her to use fine flour.
+
+### Part 5
+The Gemara continues its analysis of the verses. <b>It is written: “Knead it, and make cakes”</b> (Genesis 18:6), and two verses later <b>it is written: “And he took curd, and milk, and the calf</b> which he prepared” (Genesis 18:8). Abraham served these items to the guests, <b>and yet he did not bring bread before them</b> despite having instructed Sarah to prepare baked goods.
+
+### Part 6
+<b>Efrayim Miksha’a, disciple of Rabbi Meir, says in the name of Rabbi Meir: Abraham, our forefather, would eat non-sacred food</b> only when he was <b>in</b> a state of <b>ritual purity,</b> i.e., he treated his food as though it were consecrated to God. <b>And Sarah, our foremother, menstruated that day,</b> which rendered the baked goods ritually impure, preventing Abraham from handling them. Therefore, they could not serve bread to their guests.
+
+### Part 7
+The next verse states: <b>“And they said to him: Where is Sarah your wife? And he said: Behold, in the tent”</b> (Genesis 18:9). The Gemara explains that this verse serves <b>to inform</b> us <b>that Sarah, our foremother, was a modest woman,</b> as she remained inside while the guests were present. <b>Rav Yehuda says</b> that <b>Rav says, and some say</b> it is <b>Rabbi Yitzḥak</b> who says: <b>The ministering angels,</b> who visited Abraham in the guise of travelers, <b>knew that Sarah, our foremother, was inside the tent. Rather, what</b> was the purpose of their eliciting Abraham’s response: <b>In the tent?</b> It was <b>in order to endear her to her husband,</b> by accentuating Sarah’s modesty.
+
+### Part 8
+<b>Rabbi Yosei, son of Rabbi Ḥanina, says:</b> They inquired about her <b>in order to send her</b> the <b>cup of blessing.</b> It is customary to recite Grace after Meals over a cup of wine, which is then distributed to those present. <b>It is taught in the name of Rabbi Yosei: Why are there dots</b> in the Torah scroll <b>upon the letters <i>alef</i>, <i>yod</i>,</b> and <b><i>vav</i> in</b> the word <b>“to him [<i>eilav</i>]”?</b> These letters spell <i>ayo</i>, which means: Where is he? <b>The Torah is teaching the proper etiquette,</b> which is <b>that a person should inquire of his hostess</b> about his host, just as he should inquire about the welfare of his hostess from the host. The Gemara asks: <b>But doesn’t Shmuel say: One may not inquire about the welfare of a woman at all,</b> as this is immodest? The Gemara answers: A greeting <b>by means of her husband is different.</b> Asking a husband about his wife is not considered immodest.
+
+### Part 9
+The Gemara analyzes the verses that describe Sarah at the time: “And Sarah laughed within herself, saying: <b>After I am waxed old [<i>veloti</i>] shall I have pleasure [<i>edna</i>]”</b> (Genesis 18:12). <b>Rav Ḥisda says: After the skin had worn out [<i>nitballa</i>] and become full of wrinkles, the skin once again became soft [<i>nitadden</i>] and her wrinkles smoothed out, and</b> Sarah’s <b>beauty returned to its place.</b>
+
+### Part 10
+<b>It is written</b> that Sarah said: <b>“And my lord is old”</b> (Genesis 18:12), <b>and it is written:</b> “And the Lord said to Abraham: Why did Sarah laugh, saying: Shall I certainly bear a child, <b>and I am old?”</b> (Genesis 18:13). This verse indicates that <b>the Holy One, Blessed be He, did not repeat</b> to Abraham <b>that</b> which Sarah actually <b>said,</b> that her husband is old. Why did God change the wording of her statement so that she was referring to herself?
+
+### Part 11
+<b>The school of Rabbi Yishmael taught: Peace is</b> of such <b>great</b> importance <b>that even the Holy One, Blessed be He, altered</b> the truth for the sake of preserving peace, <b>as it is stated: “And Sarah laughed within herself,</b> saying: After I am waxed old shall I have pleasure, <b>and my lord is old,” and it is written: “And the Lord said to Abraham:</b> Why did Sarah laugh, saying: Shall I certainly bear a child, <b>and I am old?”</b>
+
+### Part 12
+In reference to Sarah having given birth to Isaac, the verse states: <b>“And she said: Who would have said to Abraham that Sarah should nurse children?”</b> (Genesis 21:7). The Gemara asks: <b>How many children did Sarah nurse?</b> Why does the verse use the plural form when she had only one child? <b>Rabbi Levi says: That day when Abraham weaned his son Isaac, he prepared a great</b> celebratory <b>feast. All of the nations of the world were gossiping and saying</b> to each other: <b>See</b> this <b>old man and old woman who brought a foundling from the market and are saying: He is our son, and moreover they are making a great feast to bolster their claim.</b>
+
+### Part 13
+<b>What did Abraham, our forefather, do? He went and invited all of the great</b> men <b>of</b> that <b>generation, and Sarah, our foremother, invited their wives. Each and every one</b> of the wives <b>brought her child with her but did not bring her wet nurse. And a miracle occurred to Sarah, our foremother, and her breasts were opened like two springs, and she nursed all</b> of these children. <b>And still</b> those people <b>were gossiping and saying</b> to each other: Even <b>if Sarah,</b> at <b>ninety years of age, can give birth, can Abraham,</b> at <b>one hundred years of age, father</b> a child? <b>Immediately, the countenance of Isaac’s face transformed and appeared</b> exactly like that <b>of Abraham. Everyone exclaimed and said: “Abraham fathered Isaac”</b> (Genesis 25:19).
+
+### Part 14
+§ The Gemara continues discussing Abraham: <b>Until Abraham, there was no aging,</b> i.e., old age was not physically recognizable. Consequently, <b>one who wanted to speak to Abraham</b> would mistakenly <b>speak to Isaac,</b> and vice versa: An individual who wanted to speak <b>to Isaac</b> would <b>speak to Abraham,</b> as they were indistinguishable. <b>Abraham came and prayed for mercy, and aging was</b> at last noticeable, <b>as it is stated: “And Abraham was old, well stricken in age”</b> (Genesis 24:1), which is the first time that aging is mentioned in the Bible.
+
+### Part 15
+<b>Until Jacob, there was no illness</b> leading up to death; rather, one would die suddenly. <b>Jacob came and prayed for mercy, and illness was</b> brought to the world, allowing one to prepare for his death, <b>as it is stated: “And one said to Joseph: Behold, your father is sick”</b> (Genesis 48:1), which is the first time that sickness preceding death is mentioned in the Bible. <b>Until Elisha, one did not fall ill and</b> then <b>heal,</b> as everyone who fell ill would die. <b>Elisha came and prayed for mercy and he was healed, as it is written: “Now Elisha fell ill with his illness from which he was to die”</b> (II Kings 13:14). <b>By inference,</b> one can derive that <b>he</b> had previously <b>fallen ill</b> with <b>other illnesses</b> from which he did not die.
+
+### Part 16
+<b>The Sages taught: Elisha fell ill with three illnesses: One</b> was due to the fact <b>that he pushed Gehazi away with both hands,</b> i.e., he banished Gehazi without granting him a chance to repent (see II Kings, chapter 5). <b>One</b> was due to the fact <b>that he incited bears against young children</b> (see II Kings 2:23–25). <b>And one</b> was the illness <b>from which he died, as it is stated: “Now Elisha fell ill of his illness from which he was to die”</b> (II Kings 13:14).
+
+### Part 17
+§ The mishna (83a) teaches that Rabbi Yoḥanan ben Matya said to his son: <b>Rather, before they begin</b> engaging <b>in</b> their <b>labor, go out and say to them:</b> The stipulation that food will be provided is <b>on the condition that you have</b> the right to claim <b>from me only</b> a meal of <b>bread and legumes,</b> which is the typical meal given to laborers. <b>Rav Aḥa, son of Rav Yosef, said to Rav Ḥisda:</b> Did <b>we learn: Bread of legumes [<i>pat kitnit</i>],</b> i.e., inferior-quality bread made of legumes, <b>or</b> did <b>we learn: Bread and legumes [<i>pat vekitnit</i>]?</b> Rav Ḥisda <b>said to him: By God!</b> That word <i>vekitnit</i> <b>requires</b> at its beginning the letter <b><i>vav</i></b> as large <b>as an oar [<i>mordeya</i>]</b> made <b>of cypress</b> wood [<i>deliberot</i>], i.e., <i>pat vekitnit</i> is undoubtedly the correct version.
+
+### Part 18
+§ The mishna teaches that <b>Rabban Shimon ben Gamliel says:</b> The son of Rabbi Yoḥanan ben Matya <b>did not need to state</b> this, as the principle is: <b>Everything is in accordance with the regional custom.</b> The Gemara asks: This term: <b>Everything,</b> serves <b>to add what?</b> What is the <i>tanna</i> including by this term? The Gemara answers: It serves <b>to add that which we learned</b> in a <i>baraita</i>: With regard to <b>one who hires a laborer and said to him:</b> I will pay you <b>as one or two of the residents of the city</b> are paid, <b>he gives him</b> wages in accordance <b>with the lowest wage</b> paid in that region. This is <b>the statement of Rabbi Yehoshua. The Rabbis say: One divides</b> the difference <b>between</b> the highest and lowest paid wages, thereby giving the wages to this laborer according to the average of the regional custom. This <i>halakha</i> is alluded to in the statement of Rabban Shimon ben Gamliel.
+
+### Part 19
+<strong>MISHNA:</strong> This mishna details the <i>halakha</i> that a laborer is permitted to eat from the produce with which he is working. <b>And these</b> laborers <b>may eat by Torah law:</b> A laborer <b>who works with</b> produce <b>attached to the ground at the time of the completion of</b> its <b>work,</b> e.g., harvesting produce; <b>and</b> a laborer who works <b>with</b> produce <b>detached from the ground before the completion of its work,</b> i.e., before it is sufficiently processed and thereby subject to tithes. <b>And</b> this is the <i>halakha</i> provided that they are working <b>with an item whose growth is from the land. And these</b> are laborers who <b>may not eat:</b> A laborer who <b>works with</b> produce <b>attached to the ground</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

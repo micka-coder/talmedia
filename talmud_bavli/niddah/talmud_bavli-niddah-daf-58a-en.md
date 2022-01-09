@@ -1,0 +1,57 @@
+
+### Part 1
+<b>by rabbinic law.</b> Accordingly, Shmuel agrees that if she examined the ground, found it clean, sat upon it, and later found blood, even if she did not sense that she emitted blood she is impure by rabbinic law.
+
+### Part 2
+<b>Rav Ashi said: Shmuel said</b> this woman is pure even by rabbinic law, <b>in accordance with</b> the opinion of <b>Rabbi Neḥemya, as we learned</b> in a mishna (59b) that <b>Rabbi Neḥemya says: Any item that is not susceptible to ritual impurity,</b> e.g., the ground, <b>is not susceptible to</b> ritual impurity due to blood <b>stains.</b> This is because the decree of impurity of blood stains was limited to items susceptible to ritual impurity. According to Rav Ashi, all the sources cited above that indicate she is impure even if she did not sense an emission are referring to cases where the stain was found on an item that is susceptible to ritual impurity.
+
+### Part 3
+The Gemara asks: <b>Granted, according to</b> the opinion of <b>Rav Ashi</b> with regard to Shmuel’s opinion, <b>that is</b> why Shmuel <b>says</b> the woman examined <b>the ground</b> beneath her, as the ground is not susceptible to ritual impurity. <b>But according to</b> the opinion of <b>Rav Yirmeya, why</b> does Shmuel refer <b>specifically</b> to <b>the ground?</b> The same <i>halakha</i> should apply <b>even</b> if she sat on <b>a cloak</b> and did not sense an emission of blood. The Gemara answers that Shmuel <b>is speaking</b> utilizing the style of: <b>It is not necessary.</b>
+
+### Part 4
+The Gemara elaborates: <b>It is not necessary</b> to state that if a woman examined <b>a cloak,</b> found it pure, sat upon it, and then saw a blood stain on it, she is pure. The reason is <b>that</b> it is <b>not</b> easy to <b>examine</b> a cloak <b>well,</b> due to its creases, <b>and</b> therefore <b>there is</b> room <b>to say</b> the stain on the cloak <b>came from the</b> outside <b>world,</b> i.e., from some external factor. <b>Rather, even</b> in the case of the <b>ground, which</b> one can <b>examine well</b> and therefore <b>there is</b> room <b>to say</b> the stain on the ground must have <b>come from her body</b> when she sat upon it, Shmuel teaches that the blood is nevertheless <b>ritually pure.</b>
+
+### Part 5
+§ The mishna teaches: If a stain was discovered on her heel or on the tip of her large <b>toe,</b> although it is not adjacent to her vagina <b>she is ritually impure,</b> as blood from the uterus could have reached there. The Gemara comments: <b>Granted,</b> when blood is found on <b>her heel</b> she is impure, as <b>it is wont to touch that place,</b> her vagina, when she kneels. <b>But</b> if the blood is discovered <b>on the tip of her large toe, what is the reason</b> she is thereby rendered impure? <b>And if you would say</b> the reason is that <b>sometimes</b> the tip of one large toe might <b>touch her heel,</b> i.e., the heel of the other foot, <b>do we presume</b> that <b>ritual impurity</b> travels <b>from place to place?</b> Since that is not presumed, the stain on the large toe of one foot cannot be presumed to come from the heel of the other foot.
+
+### Part 6
+The Gemara cites the source of this principle. <b>But isn’t it taught</b> in a <i>baraita</i>: If a woman <b>had a wound on her neck</b> in an area <b>where she can attribute</b> the blood she found adjacent to her vagina to that wound, <b>she may attribute</b> the blood to the wound and she is pure. But if the wound was <b>on her shoulder,</b> which is a place <b>where she cannot attribute</b> the blood she found adjacent to her vagina to that wound, <b>she may not attribute</b> it to the wound, and she is ritually impure.
+
+### Part 7
+The Gemara explains the proof from the <i>baraita</i>: <b>And</b> it is clear from this <i>baraita</i> that <b>we do not say</b> that <b>perhaps she took</b> blood from her wounded shoulder <b>in her hand and brought it there,</b> near her vagina. <b>Rather,</b> this is the reason for the ruling of the mishna: <b>The tip of her large toe is different, as when she walks it might happen</b> that the tip of this toe is positioned under her vagina and blood drips onto it from there. For this reason she is rendered impure by a stain on that toe.
+
+### Part 8
+The Gemara asks: <b>And do we not presume</b> that <b>ritual impurity</b> travels <b>from place to place? But isn’t it taught</b> in a <i>baraita</i>: If blood <b>was found on the joints of her fingers</b> on the back of her hand <b>she is impure,</b> despite the fact that blood from her source is not usually found on that part of her hand <b>because hands are active?</b>
+
+### Part 9
+The Gemara analyzes the <i>baraita</i>: <b>What is the reason</b> for this <i>halakha</i>? Is it <b>not due to</b> the fact <b>that we say she examined with one hand and</b> then <b>touched</b> the back <b>of the other hand?</b> If so, this indicates that ritual impurity is presumed to travel from place to place. The Gemara answers: <b>No,</b> the reason she is impure when blood is found on the back of her hand is that <b>her hand is different, as</b> with regard to the <b>entire</b> hand, including the back, it might <b>happen that it touched</b> the vagina,as one’s hands are active.
+
+### Part 10
+§ The mishna teaches: In a case where the stain was discovered <b>on her leg or on her feet,</b> if it was <b>on the inner</b> side she is ritually impure, as blood from the uterus could have reached there. If it was on the outer side of the leg or foot she is ritually pure. The Gemara asks: With regard to the term: <b>On the inner</b> side, <b>until where</b> does it extend? The students of <b>the school of Rabbi Yannai said: Until the place of the joint [<i>mekom ḥavak</i>]</b> of the thigh and shin, the ligaments on the inside of the kneecap.
+
+### Part 11
+In this regard, <b>a dilemma was raised before</b> the Sages: Is <b>the place of the joint</b> itself considered <b>as</b> part of <b>the inner</b> side <b>or as</b> part of <b>the outer</b> side? <b>Come</b> and <b>hear, as Rav Ketina</b> explicitly <b>teaches:</b> The inner side extends <b>until the place of the joint, and the joint itself</b> is considered <b>as</b> part of <b>the inner</b> side. The Gemara adds that <b>Rav Ḥiyya, son of Rav Avya, teaches it explicitly</b> that the students of <b>the school of Rabbi Yannai</b> themselves <b>said:</b> The inner side extends <b>until the place of the joint, and the joint itself</b> is considered <b>as</b> part of <b>the inner</b> side.
+
+### Part 12
+<b>Rabbi Yirmeya raises a dilemma:</b> If the stain on a woman’s body was in the shape <b>of a bracelet, what is</b> the <i>halakha</i>? Likewise, if it was in the shape <b>of a straight line, what is</b> the <i>halakha</i>? If it was not in a single defined shape but was <b>a series of drops, what is</b> the <i>halakha</i>? Furthermore, if the stain extended <b>along the width of her thigh, what is</b> the <i>halakha</i>? Is there a concern in these cases that the blood might have come from her uterus?
+
+### Part 13
+The Gemara suggests: <b>Come</b> and <b>hear</b> a <i>baraita</i>: If a stain is discovered <b>on her flesh</b> and there is <b>uncertainty whether it is impure or pure,</b> it is <b>impure. What, is it not</b> that the case of blood found <b>on her flesh</b> is referring to <b>a case like this,</b> i.e., those cases mentioned by Rabbi Yirmeya, and therefore she is impure? The Gemara answers: There is <b>no</b> proof from here, as <b>perhaps</b> the <i>baraita</i> is referring to a stain <b>shaped like a strip</b> along the length of her thigh, as this is the usual form of a stain from the vagina.
+
+### Part 14
+The Gemara relates that there was <b>a certain woman who discovered blood in the warp</b> on the loom where she was weaving. She was concerned that while she was weaving, the threads of the warp might have come between her legs and been stained. <b>She came before Rabbi Yannai</b> to inquire about the status of this blood. Rabbi Yannai <b>said to her: Let her go and come,</b> i.e., she should go and weave in her usual manner. Since this involves a repetitive action, it will soon become clear whether the threads stretch between her legs.
+
+### Part 15
+The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i> that <b>one does not</b> rely on <b>repeated</b> actions <b>with regard to ritually pure</b> items? Since the second action might not precisely mimic the first it cannot be relied upon to determine ritual-purity status. The Gemara answers that <b>when we say one does not</b> rely on <b>repeated</b> actions it is only in cases where it would lead <b>to a leniency. But</b> if it leads <b>to a stringency,</b> as in this case where the woman is currently pure, since the blood was not found on her body or her garments <b>one does</b> rely on <b>repeated</b> actions. If the repeated action indicates that the threads of the warp come between her legs while weaving, she is impure.
+
+### Part 16
+§ The mishna teaches: If it was a robe that <b>she would remove</b> and cover herself with at night, no matter where on the robe the stain is found, she is ritually impure because the robe moves while the woman is asleep, and therefore the blood could have originated in the uterus. The Gemara comments: It <b>is taught</b> in a <i>baraita</i> that <b>Rabbi Eliezer, son of Rabbi Yosei, said:</b> With regard to <b>this matter</b> of blood found on a robe worn at night, <b>I issued a prohibitive ruling in the city of Rome. And when I came to the Sages in the south</b> of Eretz Yisrael <b>they said to me: You issued a proper ruling.</b>
+
+### Part 17
+With regard to blood discovered on a robe, <b>the Sages taught</b> in a <i>baraita</i>: In the case of <b>a tall</b> woman <b>who wore the robe of a short</b> woman without first examining it to see if it was clean of stains, <b>and</b> likewise <b>a short</b> woman <b>who wore the robe of a tall</b> woman, if a stain was subsequently found on the robe and it is unknown from which woman it came, the <i>halakha</i> is as follows: <b>If</b> the location of the stain <b>reaches adjacent to the vagina of the tall</b> woman <b>they are both ritually impure.</b> The reason is that in this case it certainly reached that area of the short woman. <b>And if</b> it does <b>not</b> reach adjacent to the vagina of the tall woman, <b>the tall</b> woman <b>is pure,</b> as the stain is definitely not from her, <b>and the short</b> woman <b>is impure.</b>
+
+### Part 18
+It <b>is taught</b> in <b>another</b> <i>baraita</i>: If a woman <b>examined her robe</b> and did not find a stain, <b>and</b> then <b>lent it to another</b> woman, after which a stain was discovered on the robe, what is the <i>halakha</i>? <b>She,</b> the woman who lent the robe, <b>is pure, and the other</b> woman, the one who borrowed the robe, <b>may attribute</b> the stain <b>to</b> the woman who lent the robe to her, i.e., she may say that she does not rely on the lender’s examination. <b>Rav Sheshet said</b> in explanation of this <i>baraita</i>: <b>And we learn</b> this ruling that the borrower can say she does not rely on the lender only <b>with regard to the matter of</b> a monetary <b>judgment</b> as to which of the women must pay for the laundering of the robe. <b>But with regard to the matter of ritual impurity, she,</b> the lender, <b>is pure, and the other</b> woman, the borrower, <b>is impure.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

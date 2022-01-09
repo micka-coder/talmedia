@@ -1,0 +1,33 @@
+
+### Part 1
+<b>But</b> if he profited from the land for only <b>six</b> years, so that the sale to the claimant took place before the years necessary for establishing the presumption of ownership were completed, <b>you</b> can <b>have no greater protest than this,</b> that the purported seller then sold the land to another. By doing so he indicated that he does not concede that the possessor was the rightful owner, and the possessor should have been careful to hold on to his bill of sale for even longer than three years.
+
+### Part 2
+There was an incident where two people disputed the ownership of land. <b>This</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them, <b>and that</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them. <b>This</b> one <b>brings witnesses that</b> the land <b>belonged to his ancestors, and that</b> one <b>brings witnesses that</b> he currently possesses the land and that he worked and <b>profited</b> from the land for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership.
+
+### Part 3
+<b>Rabba said:</b> The judgment is in favor of the possessor, due to the legal principle that if the judgment would have been decided in one’s favor had he advanced a certain claim, and he instead advanced a different claim that leads to the same ruling, he has credibility, as <b>why would he lie</b> and state this claim? <b>If</b> the possessor <b>wanted</b> to lie, he could have <b>said to</b> the claimant: <b>I purchased</b> the land <b>from you and I</b> worked and <b>profited from it</b> for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership, in which case he would have been awarded the land. <b>Abaye said to</b> Rabba: <b>We do not say</b> the principle of: <b>Why would I lie, in</b> a case <b>where</b> there are <b>witnesses</b> contradicting his current claim, as they testify that the land belonged to the ancestors of the claimant. Therefore, he should not be awarded the land.
+
+### Part 4
+The possessor <b>then said to</b> the claimant: <b>Yes,</b> it is true that it had <b>belonged to your ancestors, but I purchased it from you, and</b> by stating <b>that which I said to you:</b> It <b>belonged to my ancestors,</b> I merely meant <b>that I rely upon</b> my ownership of <b>it as if</b> it belonged <b>to my ancestors,</b> as I purchased it and then profited from it for the years necessary for establishing the presumption of ownership.
+
+### Part 5
+The Gemara asks: Can he <b>state a claim and return and state</b> a modified version of his <b>claim,</b> or can he <b>not state a claim and return and state</b> a modified version of his <b>claim? Ulla said:</b> He can <b>state a claim and return and state</b> a modified version of his <b>claim.</b> The Sages <b>of Neharde’a say:</b> He <b>cannot state a claim and return and state</b> a modified version of his <b>claim.</b>
+
+### Part 6
+The Gemara clarifies their respective opinions: <b>And Ulla concedes</b> that in a case <b>where he</b> had initially <b>said to him:</b> The land <b>belonged to my ancestors and did not belong to your ancestors, that</b> he <b>cannot state a claim and return and state</b> a modified version of his <b>claim,</b> as Ulla allows the litigant only to reinterpret his initial claim, not to replace it with a contradictory claim. <b>And</b> Ulla also concedes that in a case <b>where he was standing in court and did not state</b> a particular <b>claim, and</b> he later <b>came in from outside</b> and back into the court <b>and</b> he <b>stated</b> that <b>claim,</b> that he <b>cannot return and state</b> that <b>claim. What is the reason</b> for this? It is because it is apparent that these <b>claims of his</b> were <b>taught to him</b> by someone after he left the court.
+
+### Part 7
+<b>And</b> the Sages <b>of Neharde’a concede</b> that in a case <b>where</b> the litigant who changed his claim <b>said to</b> the other litigant that when he had initially claimed: The land belonged to my ancestors, he had actually meant: It <b>belonged to my ancestors, who purchased it from your ancestors,</b> that he can state a claim and <b>return and state</b> a modified version of his <b>claim,</b> as this serves only to clarify, and not negate, his initial claim. <b>And</b> the Sages of Neharde’a also concede that in a case <b>where</b> he <b>discussed</b> the <b>matter outside</b> of the court <b>and</b> did <b>not</b> state a particular <b>claim, and</b> then he <b>came</b> in <b>to</b> the <b>court and stated</b> that <b>claim, that</b> he can <b>return and state</b> that <b>claim. What is the reason</b> for this? Because <b>a person is apt not to reveal his claims except to</b> the <b>court.</b>
+
+### Part 8
+<b>Ameimar said: I am</b> from <b>Neharde’a, but I</b> nevertheless <b>hold that</b> a litigant can <b>state a claim and return and state</b> a modified version of his <b>claim.</b> The Gemara concludes: <b>And the <i>halakha</i></b> is that a litigant can <b>state a claim and return and state</b> a modified version of his <b>claim.</b>
+
+### Part 9
+In an incident where two people dispute the ownership of land, <b>this</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them, <b>and that</b> one <b>says:</b> The land <b>belonged to my ancestors</b> and I inherited it from them. The first one <b>brings witnesses that</b> the land <b>belonged to his ancestors, and</b> that he worked and <b>profited</b> from the land for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership. <b>And</b> the second one <b>brings witnesses</b> only <b>that</b> he worked and <b>profited</b> from the land for <b>the years</b> necessary for establishing the <b>presumption</b> of ownership.
+
+### Part 10
+<b>Rav Naḥman said: Establish</b> the testimony with regard to the <b>profiting</b> by the first litigant <b>alongside</b> the testimony with regard to the <b>profiting</b> by the second, and the two testimonies cancel each other out, leaving the testimony with regard to ownership by the ancestors of the first litigant. <b>And</b> therefore, <b>establish the land in</b> the <b>presumptive ownership of</b> the litigant who brought witnesses that it belonged to his <b>ancestors. Rava</b> objected and <b>said to him: This testimony</b> cannot be relied on, as it <b>is contradicted</b> by the other testimony. Rav Naḥman responded and <b>said to him: Although</b> it is so <b>that</b> the testimony <b>was contradicted with regard to profiting</b> from the land,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

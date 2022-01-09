@@ -1,0 +1,42 @@
+
+### Part 1
+toy <b>ovens with</b> which <b>girls</b> play, whose minimum measure with regard to ritual impurity is also one <b>handbreadth? As it is taught</b> in a mishna (<i>Kelim</i> 5:1): A clay <b>oven</b> in <b>its original,</b> unbroken, <b>state</b> is susceptible to ritual impurity if it is <b>four</b> handbreadths tall. <b>And</b> with regard to an oven that became impure and was subsequently broken, if <b>its remains</b> include a piece <b>four</b> handbreadths tall, that piece remains impure. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 2
+<b>And the Rabbis say: In what</b> case <b>is this statement said?</b> It is said <b>in</b> the case of <b>a large</b> oven, made for regular use; <b>but with regard to a small</b> oven made for girls to play with, in <b>its original state, any size</b> is sufficient for it to be susceptible to contract impurity. <b>Once its construction is completed,</b> if the oven then becomes impure and is subsequently broken, if <b>its remains include</b> a piece that contains <b>the majority of</b> the oven, that piece remains impure.
+
+### Part 3
+The Gemara explains: <b>And how</b> small is the size defined by the mishna as <b>any size? Rabbi Yannai says:</b> One <b>handbreadth, as</b> people <b>fashion</b> toy <b>ovens for girls</b> one <b>handbreadth</b> high. This is another example of an item that has a minimum measure of one handbreadth, in addition to the five items listed by Rabbi Oshaya. The Gemara answers: Rabbi Oshaya <b>is not speaking of</b> matters that are subject to <b>dispute,</b> such as the minimum measure of an oven.
+
+### Part 4
+The Gemara adds: <b>Now that you have arrived at this</b> answer, the fact that Rabbi Oshaya does not mention a stone protruding from an oven can be explained in the same manner, since <b>this</b> <i>halakha</i> <b>is also</b> subject to <b>a dispute. As the latter clause</b> of that mishna (<i>Kelim</i> 5:2) <b>teaches</b> that <b>Rabbi Yehuda said:</b> When the Sages <b>said</b> that a stone protruding from an oven is considered a handle if it protrudes one <b>handbreadth,</b> they said so <b>only</b> with regard to a stone that protrudes <b>from the oven and toward the wall.</b> If the stone protrudes more than that, it is not considered a handle, as it is likely to be removed so that the oven can be moved closer to the wall. But if the stone protrudes toward the airspace of the house, it is considered an oven handle even if it protrudes more than one handbreadth.
+
+### Part 5
+The Gemara raises a difficulty: <b>But isn’t there</b> the <b>frame</b> of the Table in the Temple, which is one <b>handbreadth</b> wide, as stated in the Torah (Exodus 25:25)? The Gemara answers: Rabbi Oshaya <b>is not dealing with</b> matters <b>that are written</b> in the Torah. The Gemara further asks: <b>But isn’t there the Ark Cover,</b> which is one <b>handbreadth</b> thick, and its measure is not written explicitly in the Torah? The Gemara answers: Rabbi Oshaya <b>is not dealing with consecrated</b> items.
+
+### Part 6
+The Gemara asks: <b>But isn’t there</b> the <i>halakha</i> of a cross beam, which is placed over the entrance to an alleyway in order to permit carrying items in the alleyway on Shabbat, and the <i>halakha</i> is that <b>it is enough for</b> a cross <b>beam to be</b> one <b>handbreadth wide?</b> The Gemara answers: Rabbi Oshaya <b>is not dealing with matters of rabbinic law. Rather,</b> he is speaking only <b>of</b> matters <b>that are written</b> in the Torah <b>but whose measure is not explicit</b> in the Torah.
+
+### Part 7
+§ <b>Rav Yitzḥak bar Shmuel bar Marta sat before Rav Kahana, and he sat and said</b> that <b>Rav Yehuda says</b> that <b>Rav says:</b> For <b>all of the first three days</b> after a woman gives birth, if she discharges afterbirth, <b>we attribute the afterbirth to</b> the <b>offspring.</b> There is no concern that this afterbirth indicates the miscarriage of another offspring. <b>From this</b> point <b>forward,</b> once three days have passed since the birth, if the woman discharges an afterbirth, <b>we are concerned that</b> there might have been <b>another offspring</b> in the afterbirth, and the <i>halakhot</i> of a woman who discharged an offspring apply to her.
+
+### Part 8
+Rav Kahana <b>said to</b> Rav Yitzḥak bar Shmuel: <b>And did Rav say this? But didn’t Rav say</b> that <b>an offspring does not remain</b> in the womb <b>at all after another</b> offspring was born? Rav Yitzḥak bar Shmuel <b>was silent.</b> Rav Kahana <b>said to him: Perhaps</b> there is no contradiction between Rav’s two statements, as <b>here,</b> where he indicates that a second offspring can emerge even three days after the first, the reference is <b>to</b> a case where the first offspring is <b>a non-viable newborn,</b> whereas <b>there,</b> in the statement that a second offspring does not remain in the womb after the first offspring was born, he is referring <b>to</b> a case where the first offspring is <b>a viable</b> offspring.
+
+### Part 9
+Rav Yitzḥak bar Shmuel <b>said to him:</b> Are <b>you</b> the one who <b>says</b> this explanation <b>of Rav’s <i>halakha</i></b> of your own accord? Indeed, <b>Rav said this explicitly:</b> If a woman <b>discharged a non-viable newborn and subsequently discharged an afterbirth,</b> for <b>all of the first three days we attribute the afterbirth to</b> the <b>offspring. From this</b> point <b>forward,</b> if she discharged an afterbirth <b>we are concerned that</b> it contained <b>another offspring.</b> If she <b>gave birth</b> to a viable offspring <b>and subsequently discharged an afterbirth, even from now until ten days</b> after the birth <b>we are not concerned that</b> the afterbirth contained <b>another offspring.</b>
+
+### Part 10
+The Gemara relates: <b>Shmuel, Rav’s students, and Rav Yehuda were sitting</b> together. <b>Rav Yosef, son of Rav Menashya of D’vil, was passing</b> by <b>and walking toward them,</b> i.e., he was walking in their direction, and <b>he was hurrying and coming</b> along. Shmuel <b>said</b> to his company: <b>A man is coming toward us whom one can knock</b> down <b>with a straw of wheat, and he falls and stays down.</b> In other words, he cannot refute even a minor challenge to his opinions.
+
+### Part 11
+<b>In the meantime,</b> Rav Yosef, son of Rav Menashya, <b>arrived. Shmuel said to him: What did Rav say with regard to an afterbirth?</b> Rav Yosef <b>said to him</b> that <b>this is what Rav said: One attributes an afterbirth only to a viable item,</b> i.e., a viable offspring. <b>Shmuel</b> subsequently <b>asked all of Rav’s students</b> who were present whether Rav actually said this, <b>and they said to him</b> that Rav indeed said <b>so.</b> Shmuel <b>then looked at Rav Yehuda harshly,</b> as Rav Yehuda was also a student of Rav, but he had not transmitted this <i>halakha</i> to Shmuel after Rav’s death.
+
+### Part 12
+§ <b>Rabbi Yosei ben Shaul asked Rabbi</b> Yehuda HaNasi: In the case of a woman <b>who discharges</b> an item in <b>the form of a crow and</b> there is also <b>an afterbirth, what is</b> the <i>halakha</i>? Is the afterbirth attributed to the discharged item, or is there concern that the afterbirth might have contained another offspring? Rabbi Yehuda HaNasi <b>said to him: One attributes</b> an afterbirth <b>only to an item whose species has an afterbirth.</b> Since crows do not have an afterbirth, the afterbirth cannot be associated with that discharged item.
+
+### Part 13
+Rabbi Yosei ben Shaul then asked Rabbi Yehuda HaNasi: If the afterbirth is <b>tied to</b> the item that has the form of a crow, <b>what is</b> the <i>halakha</i>? Rabbi Yehuda HaNasi <b>said to him: You asked</b> about <b>a matter that does not exist.</b> Rabbi Yosei ben Shaul <b>raised an objection to</b> this response from a <i>baraita</i>: With regard to a woman <b>who discharges a type of domesticated animal, undomesticated animal, or bird, and</b> she discharges <b>an afterbirth with them,</b> in an instance <b>when</b> the <b>afterbirth is tied to them we are not concerned about</b> the possibility of <b>another offspring.</b> If the <b>afterbirth is not tied to them, we are concerned that</b> the afterbirth contained <b>another offspring.</b> And <b>I impose upon them</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

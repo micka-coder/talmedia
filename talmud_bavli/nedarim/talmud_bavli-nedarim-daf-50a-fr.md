@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Il souleva le tapis [<i>tzifeta</i>]</b> sur lequel il etait assis <b>et dit au messager : Voyez ce qu'il y a</b> ici. L'endroit fut miraculeusement rempli de dinars d'or. Cela demontrait que Rabbi Yehouda aurait pu avoir beaucoup d'argent s'il l'avait souhaite. Il expliqua : <b>Cependant, il ne m'est pas loisible de tirer un benefice dans ce monde.</b>
+
+### Partie 2
+§ En rapport avec l'incident ci-dessus concernant la pauvrete des savants et leur potentiel a devenir riches grace a des circonstances remarquables, la Gemara relate un incident : <b>Rabbi Akiva s'est fiance a la fille de bar Kalba Savua.</b> Lorsque <b>bar Kalba Savua a entendu</b> de leurs fiancailles, il a fait un vœu <b>l'interdisant de</b> manger <b>tous ses biens.</b> Malgre cela, <b>elle est allee</b> de l'avant <b>et a epouse</b> Rabbi Akiva.
+
+### Partie 3
+<b>En hiver, ils dormaient dans un entrepot de paille,</b> et Rabbi Akiva <b>ramassait</b> des meches de <b>paille dans ses cheveux. Il lui disait : Si j'en avais</b> les moyens <b>je placerais sur ta</b> tete <b>une Jerusalem d'or,</b> une sorte de couronne. <b>Elijah</b> le prophete <b>arrivait</b> et <b>leur apparaissait comme</b> une <b>personne ordinaire et</b> commencait a <b>appeler</b> et a frapper <b>a la porte. Il leur dit : Donnez-moi un peu de paille, car ma femme a accouche et je n'ai rien sur lequel la coucher. Rabbi Akiva dit a sa femme : Voyez</b> cet <b>homme, qui n'a meme pas de paille.</b> Nous devrions etre heureux de notre sort, car nous avons au moins de la paille pour dormir.
+
+### Partie 4
+<b>Elle lui dit : Va</b> et <b>soit un etudiant</b> de la Torah. <b>Il y alla</b> et etudia la Torah pendant <b>douze ans devant Rabbi Eliezer et Rabbi Yehoshua. Au terme de</b> ces <b>douze ans, il rentrait chez lui</b> quand <b>il entendit derriere sa maison qu'un mechant disait a sa femme : Ton pere s'est bien comporte avec toi</b> Il a eu raison de te desheriter. <b>Une</b> raison est <b>que</b> ton mari <b>n'est pas semblable a toi,</b> c'est-a-dire qu'il ne te convient pas. <b>Et de plus, il t'a laissee en veuvage de son vivant pendant toutes ces annees. Elle lui dit : S'il m'ecoute, il devrait etre</b> la pour <b>encore douze ans.</b> Rabbi Akiva <b>a dit : Puisqu'elle m'a donne la permission</b> par cette declaration, <b>je vais retourner</b> et etudier davantage. <b>Il se retourna</b> et <b>alla</b> a la salle d'etude, et il <b>y resta</b> pendant <b>douze autres annees.</b>
+
+### Partie 5
+Finalement, <b>il est revenu</b> accompagne <b>de 24 000 paires d'etudiants. Tout le monde sortit pour</b> saluer <b>lui,</b> car il etait alors un professeur renomme, <b>et elle aussi se leva pour sortir afin de</b> saluer <b>lui. Cette mechante personne lui dit : Et ou vas-tu</b> aller ? Comme elle etait excessivement pauvre, elle n'etait pas habillee d'une maniere grandiose, comme il convient a la femme d'un homme aussi estime. <b>Elle lui dit : <b>Un homme juste a egard a la vie de sa bete"</b> (Proverbes 12:10) ; il sait que je suis dans cet etat par suite de mon devouement envers lui. <b>Elle est venue se presenter devant</b> Rabbi Akiva, mais <b>les Sages</b> ont essaye de la <b>faire fuir,</b> car ils ignoraient son identite. <b>Il leur dit : Laissez-la.</b> Tant <b>mes</b> connaissances de la Torah <b>que les votres lui appartiennent.</b> Lorsque <b>le bar Kalba Savua apprit</b> que l'homme celebre etait son gendre, <b>il se presenta</b> devant les autorites halakhiques <b>et demanda la dissolution de son vœu, et celui-ci fut dissous.</b>
+
+### Partie 6
+La Guemara ajoute : <b>Rabbi Akiva s'est enrichi de six choses.</b> Premierement, <b>de</b> l'argent qu'il a recu de <b>Kalba Savua</b> apres la dissolution de son vœu. Deuxiemement, il gagna de l'argent <b>du belier d'un navire [<i>eila disfineta</i>], car</b> les artisans <b>faconnaient</b> une sculpture d'un <b>type de mouton pour chaque navire,</b> qui etait placee sur sa proue, et qui servait a dissimuler de l'argent. A <b>une occasion,</b> les marins <b>oubliaient</b> ce belier <b>au bord de la mer,</b> et Rabbi Akiva <b>arrivait</b> et le <b>trouvait</b> avec l'argent stocke a l'interieur.
+
+### Partie 7
+<b>Et</b> troisiemement, il s'enrichit <b>a partir d'une buche [<i>gavza</i>]</b> de bois, <b>car</b> a <b>une occasion, il donna quatre dinars a des marins</b> et leur <b>dit : Apportez-moi quelque chose</b> de valable. <b>Et ils ne trouverent qu'une buche</b> de bois <b>au bord de la mer. Ils le lui apporterent</b> et lui <b>dirent : Que notre maitre attende avec ceci</b> jusqu'a ce que nous apportions un objet plus digne. <b>Il trouva que</b> le rondin <b>etait plein de dinars, car</b> en <b>une occasion un navire a coule et toute la marchandise,</b> c'est-a-dire l'argent, appartenant aux gens du navire <b>a ete placee dans ce rondin, et il a ete trouve a cette occasion</b> par les marins.
+
+### Partie 8
+Rabbi Akiva s'enrichit <b>a partir</b> d'un convoi d'<b>Ishmaelites [<i>Serukita</i>]. Et</b> il s'enrichit <b>de</b> une certaine <b>lady.</b> Rabbi Akiva emprunta de l'argent a une dame et dit que Dieu serait son garant. Quand vint le moment de rendre le pret, la fille du roi devint folle et jeta une bourse de bijoux dans la mer, qui fut trouvee par cette dame. Elle dit a Rabbi Akiva que son garant avait paye sa dette et elle lui permit de garder le pret.
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

@@ -1,0 +1,54 @@
+
+### Part 1
+The Gemara asks: <b>And did Rabbi Elazar, son of Rabbi Shimon, not know</b> of this? He must have known of his father’s statement that a mitzva performed at its proper time overrides Shabbat. If so, his ruling that reaping at an improper time is unfit cannot be proven from the fact that reaping the <i>omer</i> overrides Shabbat, as claimed earlier.
+
+### Part 2
+<b>Rather,</b> it must be that Rabbi Elazar, son of Rabbi Shimon, was aware of that principle, and nevertheless he maintains that the requirement to perform a mitzva at its optimal time does not apply to the case of the reaping of the <i>omer</i>. This is because <b>there,</b> in the case of the burning of the fats and limbs, it <b>is different, as the slaughter</b> of the animal already <b>overrode Shabbat.</b> Therefore, it is dear to perform the burning of its fats and limbs at the proper time, even on Shabbat. One cannot apply this reasoning to the reaping of the <i>omer</i>, as there is no prior labor performed on Shabbat before the reaping. Consequently, the reason it may be performed on Shabbat must be that it would be unfit if reaped any other time.
+
+### Part 3
+The Gemara asks: <b>But</b> if so, <b>according to Rabbi</b> Yehuda HaNasi, he should agree that the case of the burning of the sacrifice’s fats and limbs is different from the <i>omer</i>, since <b>also</b> there, <b>the slaughter</b> of the animal already <b>overrode Shabbat.</b> Therefore, the Gemara gives a new explanation: <b>Rather, Rabbi</b> Yehuda HaNasi <b>holds</b> that in fact the <b>reaping of the <i>omer</i></b> crop <b>does not override Shabbat,</b> in contrast to the opinion of Rabbi Yishmael. For this reason Rabbi Yehuda HaNasi’s ruling that the <i>omer</i> is fit if reaped at an improper time does not conflict with the principle of his teacher, Rabbi Akiva, that any prohibited labor that can be performed on Shabbat eve does not override Shabbat.
+
+### Part 4
+The Gemara asks: <b>And</b> does Rabbi Yehuda HaNasi <b>not</b> maintain that the reaping of the <i>omer</i> overrides Shabbat? <b>But didn’t we learn</b> in a mishna (63b) in response to Rabbi Yishmael’s opinion that when the sixteenth of Nisan occurred during the week, five <i>se’a</i> of barley were reaped, and when it occurred on Shabbat only three <i>se’a</i> were reaped: <b>And the Rabbis say: Both on Shabbat and</b> during the <b>week,</b> the <i>omer</i> offering <b>would come from three</b> <i>se’a</i>? In any case, according to both opinions, the <i>omer</i> was reaped on Shabbat. The Gemara answers: <b>That</b> mishna <b>is not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 5
+The Gemara raises a difficulty from the latter clause of that mishna. Rabbi Ḥanina, the deputy High Priest, says: On Shabbat the barley was reaped by an individual, with one sickle and one basket into which the barley was placed, whereas during the week it was reaped by three people, with three baskets and three sickles. <b>And the Rabbis say: Both on Shabbat and</b> during the <b>week</b> it is reaped <b>by three</b> people, <b>with three baskets and three sickles.</b> According to both opinions the <i>omer</i> was reaped on Shabbat. The Gemara again responds: <b>That</b> clause of the mishna <b>is</b> also <b>not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 6
+The Gemara raises another difficulty from a mishna (65a) that describes the series of questions posed by the court emissary who reaps the grain to those assembled to witness the process: <b>And</b> if the sixteenth of Nisan occurs <b>on Shabbat,</b> the court emissary <b>says to</b> those assembled: Shall I cut the sheaves on <b>this Shabbat?</b> The assembly says in response: Yes. The Gemara answers: <b>That</b> clause of mishna <b>is</b> also <b>not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi.
+
+### Part 7
+The Gemara raises a difficulty from the mishna (71a): If the <i>omer</i> <b>was reaped during the day,</b> it is <b>fit, and</b> it <b>overrides Shabbat.</b> Now, <b>whom did you hear who said: If the <i>omer</i> was reaped during the day,</b> it is <b>fit?</b> It is <b>Rabbi</b> Yehuda HaNasi. <b>And</b> yet <b>it is taught</b> in the mishna: <b>And it overrides Shabbat. What, is it not</b> referring to <b>reaping?</b> The Gemara answers: <b>No,</b> it is referring <b>to</b> the <b>sacrifice</b> of the <i>omer</i> offering.
+
+### Part 8
+The Gemara asks: <b>But with regard to reaping,</b> does it <b>not</b> override Shabbat, according to Rabbi Yehuda HaNasi? <b>As, isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi said the following <i>halakha</i> based upon the verse: <b>“And Moses declared the appointed times of the Lord</b> to the children of Israel” (Leviticus 23:44): <b>What</b> is the meaning when <b>the verse states</b> this phrase? This phrase is necessary <b>because we</b> had <b>learned only that the daily offering and the Paschal offering</b> override Shabbat and ritual impurity, <b>as it is stated concerning them: “In its appointed time”</b> (see Numbers 9:2, 28:2), from which it is derived that each of them must be sacrificed <b>in its appointed time and even on Shabbat; in its appointed time and even in ritual impurity.</b>
+
+### Part 9
+The <i>baraita</i> continues: With regard to <b>the rest of the communal offerings, from where</b> is it derived that they likewise override Shabbat and ritual impurity? <b>The verse states</b> with regard to additional offerings that are brought on the Festivals: <b>“These you shall sacrifice to the Lord in your appointed times”</b> (Numbers 29:39).
+
+### Part 10
+The <i>baraita</i> continues: <b>From where</b> is it derived <b>to include</b> in this <i>halakha</i> the <b><i>omer</i> and</b> the lambs that are <b>sacrificed with it, the two loaves</b> sacrificed on <i>Shavuot</i>, <b>and</b> the communal peace offerings that are <b>sacrificed with them? The verse states: “And Moses declared the appointed times of the Lord</b> to the children of Israel,” after it lists Shabbat and the Festivals. This indicates that <b>the verse established one time for all of them.</b> All of these days are considered appointed times, and their offerings are not deferred.
+
+### Part 11
+The Gemara analyzes the <i>baraita</i>: <b>With regard to what</b> ritual does the <i>baraita</i> state that these offerings override Shabbat? <b>If we say for</b> actual <b>sacrifice,</b> this cannot be correct, as <b>are the two loaves fit for sacrifice?</b> The two loaves are not sacrificed on the altar at all. Rather, they are waved and later eaten by priests.
+
+### Part 12
+The Gemara concludes its interpretation of the <i>baraita</i>, which leads to the question about the opinion of Rabbi Yehuda HaNasi: <b>Rather,</b> it is <b>obvious</b> that the two loaves override Shabbat with regard <b>to grinding and sifting. And</b> if so, <b>similarly, with regard to the <i>omer</i></b> offering, it overrides Shabbat <b>with regard to</b> the process of <b>reaping</b> the grains. <b>And</b> as the <i>baraita</i> is the opinion of Rabbi Yehuda HaNasi, evidently he maintains that the reaping of the <i>omer</i> <b>overrides Sh abbat.</b>
+
+### Part 13
+The Gemara answers: <b>Rather,</b> one must say that the <i>baraita</i> is not referring to comparable cases. As far as the <b><i>omer</i></b> is concerned, it overrides Shabbat only <b>with regard to</b> its actual <b>sacrifice, but</b> when it comes to the <b>two loaves,</b> it overrides Shabbat <b>with regard to</b> its <b>baking. And</b> the reason why the two loaves must be baked on Shabbat is because <b>Rabbi</b> Yehuda HaNasi <b>holds</b> that the <b>oven consecrates</b> that which is baked inside it. Therefore, <b>if</b> one were to <b>bake from the previous day,</b> on the eve of <i>Shavuot</i>, he would effectively be <b>disqualifying it</b> from being brought on <i>Shavuot</i> day, as it would be disqualified by being <b>left overnight.</b>
+
+### Part 14
+The Gemara asks: <b>And</b> does <b>Rabbi</b> Yehuda HaNasi really <b>hold</b> that the <b>oven consecrates</b> that which is baked inside it? <b>But isn’t it taught</b> in a <i>baraita</i>: The communal peace offering of two <b>lambs</b> that accompanies the two loaves sacrificed on the festival of <i>Shavuot</i> <b>consecrate the loaves</b> that accompany them <b>only by</b> means of their <b>slaughter. How so?</b> If <b>one slaughtered</b> the lambs <b>for their</b> own <b>sake,</b> i.e., as lambs for <i>Shavuot</i> in the appropriate manner, <b>and</b> the priest <b>sprinkled their blood for their</b> own <b>sake, the loaves are consecrated.</b>
+
+### Part 15
+The <i>baraita</i> continues: But if <b>one slaughtered them not for their</b> own <b>sake, and</b> the priest <b>sprinkled their blood not for their</b> own <b>sake, the loaves are not consecrated,</b> as the factors indispensable in rendering the offering fit were not properly performed. If <b>one slaughtered them for their</b> own <b>sake and he sprinkled their blood not for their</b> own <b>sake,</b> the fact that the lambs were properly slaughtered renders the loaves partially consecrated. Therefore, <b>the loaves are consecrated</b> to the extent that they cannot be redeemed, <b>but they are not consecrated</b> to the extent that they may be eaten. This is <b>the statement of Rabbi</b> Yehuda HaNasi.
+
+### Part 16
+<b>Rabbi Elazar, son of Rabbi Shimon, says: Actually, the loaves are consecrated only when one slaughters</b> the offerings <b>for their</b> own <b>sake and sprinkles their blood for their</b> own <b>sake,</b> i.e., only if both factors indispensable in rendering the offering fit were properly performed. Apparently, Rabbi Yehuda HaNasi holds that it is the slaughter of the lambs that consecrates the loaves, not baking the loaves in the oven.
+
+### Part 17
+<b>Rav Naḥman bar Yitzḥak says:</b> Actually, Rabbi Yehuda HaNasi does hold that the oven consecrates the loaves. What the <i>baraita</i> <b>is saying</b> when it uses the categories of consecrated and not consecrated with regard to the slaughter of the lambs is that either the two loaves <b>are fixed</b> as <i>Shavuot</i> meal offerings and cannot be used for any other offering, <b>or</b> they <b>are not fixed</b> as <i>Shavuot</i> meal offerings. In other words, if the lambs were slaughtered and the blood sprinkled in the proper manner, one cannot change the designation of the loaves, whereas if they were not slaughtered and their blood was not sprinkled properly, one can change their designation. If the lambs were slaughtered properly but their blood was sprinkled improperly, the status of the loaves is subject to a dispute. This has nothing to do with when the loaves are consecrated.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

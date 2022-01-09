@@ -1,0 +1,21 @@
+
+### Partie 1
+<b>Mais</b> ceci est difficile, car <b>nous maintenons</b> que la <i>halakha</i> selon laquelle l'eau puisee invalide un bain rituel ne s'applique que par <b>decret rabbinique</b>. <b>Et par ailleurs, Rabbi Yosei ben Rabbi Hanina ne dit-il pas</b> que le <b>dispute</b> entre Rabbi Eliezer et les rabbins concerne <b>une planche de metal,</b> et qu'un recipient en metal, meme s'il est plat et depourvu de receptacle, est susceptible d'impurete rituelle selon la loi de la Torah ? Cela signifie que, selon Rabbi Eliezer, meme un recipient susceptible d'impurete rituelle par la loi de la Torah perd son statut de recipient lorsqu'il est fixe au sol. Par consequent, la question revient : Quel est l'avis cite dans le <i>baraita</i> qui stipule que si l'on a d'abord evide un conduit et qu'on l'a ensuite fixe au sol, il est toujours considere comme un recipient et l'eau qui y coule invalide un bain rituel, mais si on l'a d'abord fixe au sol et qu'on l'a ensuite evide, l'eau qui y coule n'invalide pas un bain rituel ?
+
+### Partie 2
+La Guemara repond : <b>En fait,</b> on peut expliquer que la <i>baraita</i> <b>est</b> en accord avec l'avis des <b>Rabbins,</b> qui jugent la planche metallique du boulanger susceptible d'impurete rituelle meme si elle est fixee a un mur, <b>mais</b> la <i>halakha</i> regissant l'eau <b>tiree</b> ajoutee a un bain rituel deficient <b>est differente,</b> car l'eau tiree n'invalide un bain rituel deficient que <b>par la loi rabbinique,</b> et les rabbins ont donc ete indulgents.
+
+### Partie 3
+La Guemara demande : <b>Si c'est le cas,</b> alors <b>meme</b> si l'on a d'abord <b>creuse</b> le conduit <b>et</b> seulement <b>ensuite fixe</b> au sol, l'eau qui y coule ne devrait pas invalider le bain rituel <b>aussi.</b> La Guemara repond : <b>C'est different la,</b> ou le conduit a ete creuse avant d'etre fixe au sol, <b>car</b> le conduit <b>avait le statut d'un recipient lorsque</b> il etait encore <b>detache</b> du sol, et donc les rabbins n'etaient pas prets a etre indulgents a ce point et a statuer que l'eau qui coule a travers le conduit n'invalide pas un bain rituel.
+
+### Partie 4
+§ <b>Rav Yosef souleve un dilemme :</b> En ce qui concerne l'<b>eau de pluie</b> qui tombait et dont le proprietaire <b>desirait</b> consciemment qu'elle tombe <b>pour qu'elle lave</b> ses <b>moulins inferieurs inamovibles, quelle est</b> la <i>halakha</i> <b>en ce qui concerne les graines</b> dans les moulins ? Le verset "Mais si l'on met de l'eau sur la graine"¦ elle sera impure pour vous" (Levitique 11:38) enseigne que les graines et autres aliments ne deviennent susceptibles de purete rituelle qu'apres avoir ete detaches du sol, et que de l'eau, ou un autre des sept liquides specifies dans la mishna (<i>Makhshirin</i> 6:4), a ete mis sur eux. L'aliment doit etre expose au liquide volontairement par son proprietaire, c'est-a-dire qu'il doit desirer ou du moins etre content que l'aliment devienne humide. Rav Yosef s'interroge sur le cas ou le proprietaire souhaite que la pluie tombe sur les meules : Cette eau rend-elle les graines sur lesquelles elle tombe susceptibles d'etre impures selon le rituel ?
+
+### Partie 5
+La Guemara clarifie la question de Rav Yosef : <b>Ne souleve pas ce dilemme selon</b> l'avis <b>de Rabbi Eliezer, qui dit : Tout ce qui est attache au sol</b> a le meme statut juridique <b>que le sol.</b> Puisque les meules inferieures sont attachees au sol, elles ont donc le meme statut juridique que le sol, et l'eau qui tombe sur le sol, meme si elle est agreable au proprietaire, ne rend pas les aliments susceptibles d'impurete rituelle. <b>Quand faut-il soulever ce dilemme ? </b> Le soulever <b>selon</b> l'avis <b>des rabbins, qui disent :</b> Elle n'a <b>pas</b> le meme statut juridique <b>que le sol. Quelle</b> est la <i>halakha</i> par rapport au fait de transmettre une susceptibilite a l'impurete rituelle ? La Guemara conclut : Une reponse a cette question n'a pas ete trouvee ; par consequent, le dilemme <b>doit rester</b> non resolu.
+
+### Partie 6
+§ <b>Rav Nehemya, fils de Rav Yosef, a envoye</b> un message <b>a Rabba fils de Rav Huna le Court a Nehardeâ : Lorsque cette femme</b> portant cette lettre <b>se presente devant toi,</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,48 @@
+
+### Part 1
+The Gemara responds: The <i>halakha</i> is necessary <b>for</b> a case in which it was <b>uncertain</b> whether an animal was <b>clawed</b> by a predator. If the animal was in fact clawed, the gullet would have become red. Since the outer lining is always red, the gullet must be checked on the inside to ascertain whether it is still white.
+
+### Part 2
+The Gemara recounts the case of <b>a certain</b> animal concerning which it was <b>uncertain</b> whether it was <b>clawed</b> by a predator, <b>which came before Rabba. Rabba was checking its gullet from the outside. Abaye said to him: But isn’t it</b> you, <b>Master, who says:</b> The <b>gullet may be inspected only from the inside? Rabba turned over</b> the gullet <b>and checked it</b> from the inside, <b>and found on it two drops of blood, and deemed it a <i>tereifa</i></b> due to clawing. The Gemara notes: <b>And Rabba as well desired</b> only <b>to sharpen Abaye</b> by inducing him to ask. He did not forget his own statement.
+
+### Part 3
+<b>Ulla says: If a thorn sat in</b> the animal’s <b>gullet</b> but did not perforate the outer lining, <b>one</b> need <b>not be concerned</b> that <b>perhaps</b> it perforated the outer lining beforehand and the perforation <b>healed</b> and a scab formed over it, in which case the animal would be a <i>tereifa</i>, as stated above. Rather, one assumes that the thorn never perforated the outer lining and the animal is kosher.
+
+### Part 4
+The Gemara provides <b>a mnemonic</b> for the following questions with regard to Ulla’s statement: <b>Clawed, pieces, with a knife, ritually impure.</b>
+
+### Part 5
+The Gemara asks: <b>But according to Ulla,</b> given that this is a case of uncertainty, in <b>what</b> way <b>is</b> it <b>different from</b> a case of <b>uncertainty</b> as to whether an animal was <b>clawed,</b> where the animal must be checked and cannot be presumed kosher? The Gemara responds: <b>Ulla holds</b> that <b>one</b> need <b>not be concerned with regard to an uncertainty</b> as to whether the animal was <b>clawed.</b>
+
+### Part 6
+The Gemara asks: <b>And</b> in <b>what</b> way <b>is</b> this case <b>different from</b> a case where there were <b>two pieces</b> of fat before a person, <b>one of forbidden fat and one of</b> permitted <b>fat,</b> and the person ate one piece but does not know which one, where the <i>halakha</i> is that one must bring a provisional guilt offering due to the possibility that he consumed forbidden fat? Evidently, one may not presume that an item is permitted in a case of uncertainty. The Gemara responds: <b>There,</b> one finds <b>a presumption of prohibition,</b> since one of the pieces is certainly prohibited. Here, with regard to the thorn, there is no presumption of prohibition.
+
+### Part 7
+The Gemara asks: <b>And</b> in <b>what</b> way <b>is</b> the case of the thorn <b>different from</b> the case of <b>one who slaughters with a knife</b> that was previously checked for flaws <b>but was</b> then <b>found to be notched</b> after the slaughter? In that case, it is uncertain whether the notch existed at the time of slaughter, yet the animal is prohibited. The Gemara responds: <b>There, a deficiency was born in the knife.</b> Accordingly, one must be concerned that it was notched beforehand as well. By contrast, the wall of the gullet is currently intact, and one may therefore presume that it was intact beforehand as well.
+
+### Part 8
+The Gemara asks: <b>And</b> in <b>what</b> way <b>is</b> this case <b>different from an uncertainty</b> with regard to <b>ritual impurity in a private domain, whose uncertainty</b> is presumed <b>impure?</b> The Gemara responds: <b>But according to your reasoning, let us compare it</b> instead <b>to uncertainty</b> with regard to <b>impurity in a public domain, whose uncertainty</b> is presumed <b>pure. Rather, there,</b> with regard to the presumption of impurity in a private domain and purity in a public domain, the Sages <b>learned this <i>halakha</i> through tradition from</b> the <i>halakha</i> of <b>a woman suspected by her husband of having been unfaithful [<i>sota</i>].</b> Therefore, one cannot extend it to other cases.
+
+### Part 9
+The Gemara relates that <b>one of the Sages was sitting before Rav Kahana, and he was sitting and saying:</b> It <b>was stated</b> that one need not be concerned that the thorn perforated the linings of the gullet only if it <b>was found</b> loose inside the gullet. <b>But</b> if it <b>sat</b> embedded in the gullet wall, <b>we</b> must be <b>concerned</b> that the outer lining was perforated and later healed, rendering the animal a <i>tereifa</i>. <b>Rav Kahana said to</b> the other Sages: <b>Do not listen to him.</b> Rather, it <b>was stated</b> that one need not be concerned about a possible perforation if the thorn <b>sat</b> embedded in the gullet wall. <b>But</b> in a case where it was simply <b>found</b> there loose, it <b>was not necessary for Ulla</b> to say that the animal is kosher, <b>since all animals</b> that live <b>outside eat thorns,</b> and it is reasonable to expect to find them in the gullet without presuming injury.
+
+### Part 10
+§ The mishna teaches that if the gullet was perforated, the animal is a <i>tereifa</i>. <b>It was stated:</b> In a case where <b>the entrance [<i>turbatz</i>] of the gullet</b> from the pharynx was perforated, <b>Rav says:</b> The animal is a <i>tereifa</i> if <b>any</b> part of the gullet was perforated. <b>And Shmuel says:</b> It is a <i>tereifa</i> only if <b>its majority</b> was perforated. <b>Rav says:</b> If <b>any</b> part was perforated, because he holds that the entrance of the gullet <b>is a location</b> fit for <b>slaughter</b> and is therefore considered part of the gullet. <b>And Shmuel says:</b> If <b>its majority</b> was perforated, because he holds that <b>it is not a location</b> fit for <b>slaughter</b> and is not considered part of the gullet.
+
+### Part 11
+The Gemara clarifies: <b>Which</b> area <b>is the entrance of the gullet? Mari bar Mar Ukva said</b> that <b>Shmuel said: All</b> of the area <b>that widens</b> outward <b>when cut</b> along its width, <b>this is the entrance of the gullet;</b> all the area that <b>remains in place when cut, this is the gullet itself. Rav Pappi said to them: Master did not say so. And who is</b> that Master? It is <b>Rav Beivai bar Abaye. Rather,</b> he said that <b>all</b> of the area <b>that remains in place when cut, this is the entrance of the gullet. But which</b> area, then, <b>is the gullet itself?</b> It is <b>all</b> of the area <b>that constricts when cut</b> and closes inward. The Sage <b>Yona says</b> in the name of Rabbi <b>Zeira:</b> The entrance of the gullet is only the area of the <b>throat immediately</b> bordering the gullet. <b>And how much</b> of the throat qualifies as the entrance of the gullet? <b>Rav Avya said: Less than</b> the length of <b>a barley</b> kernel <b>and more than</b> the length of <b>a wheat</b> kernel.
+
+### Part 12
+The Gemara relates an incident involving <b>a certain bull that belonged to the sons of Rav Ukva, where</b> its <b>slaughter began</b> with a small incision <b>in the entrance of the gullet and concluded</b> in its majority <b>in the gullet. Rava said: I impose upon it the stringencies of Rav and the stringencies of Shmuel, and deem it a <i>tereifa</i>.</b>
+
+### Part 13
+I impose the <b>stringencies of Rav, as Rav said:</b> The animal is a <i>tereifa</i> if <b>any</b> part of the entrance of the gullet was perforated before slaughter. Such is the case here, since the incision began in the entrance of the gullet. Perhaps one will ask: <b>But doesn’t Rav say</b> that the entrance of the gullet <b>is a location</b> fit for <b>slaughter,</b> in which case the initial incision should be considered the beginning of the act of slaughter? To this I will respond: I hold <b>in accordance with</b> the opinion of <b>Shmuel, who says</b> that it is <b>not a location</b> fit for <b>slaughter.</b> If one asks: <b>If</b> I hold in accordance with the opinion of <b>Shmuel, doesn’t he say:</b> It is a <i>tereifa</i> only if it was perforated <b>in its majority?</b> To this I will respond: I hold <b>in accordance with</b> the opinion of <b>Rav, who says:</b> If <b>any</b> part was perforated. Consequently, I deem the animal a <i>tereifa</i>.
+
+### Part 14
+The Gemara relates that <b>the matter circulated,</b> and <b>it came before Rabbi Abba,</b> who <b>said to</b> his students: This <b>bull is permitted</b> for consumption, <b>both according to Rav,</b> who holds that the entrance of the gullet is a location fit for slaughter, <b>and according to Shmuel,</b> who holds that it is not a <i>tereifa</i> unless it is perforated in its majority. Therefore, <b>go tell the son of Rav Yosef bar Ḥama,</b> i.e., Rava, <b>that</b> he is <b>to pay the value of the bull to its owner,</b> since he improperly deemed it a <i>tereifa</i>.
+
+### Part 15
+<b>Mar, son of Ravina, said: I offer a conclusive refutation to the enemies of Rava,</b> a euphemism for Rava himself, from a <i>baraita</i>: <b>The <i>halakha</i></b> is <b>always in accordance with the statement of Beit Hillel, but one who wishes to act in accordance with the statement of Beit Shammai may do so,</b> and one who wishes to act <b>in accordance with the statement of Beit Hillel may do so.</b> But if one wishes to adopt both <b>the leniencies of Beit Shammai and</b> also <b>the leniencies of Beit Hillel, he is a wicked person.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

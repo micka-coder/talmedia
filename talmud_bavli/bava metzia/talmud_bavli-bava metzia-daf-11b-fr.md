@@ -1,0 +1,36 @@
+
+### Partie 1
+<b>et le lieu de</b> la dime <b>lui est loue.</b> Rabbi Yehoshua lui a verse une somme symbolique pour louer le champ, qui est vraisemblablement devenu l'equivalent de sa cour, et a ainsi acquis la dime. <b>Et un autre dixieme que je mesurerai a l'avenir</b> et que je separerai de mes produits comme la dime du pauvre <b>est donne a Akiva ben Yosef afin qu'il l'acquiere pour les pauvres, et sa place lui est louee.</b>
+
+### Partie 2
+Rabbi Abba poursuit : <b>Mais Rabbi Yehoshua et Rabbi Akiva se trouvaient-ils a cote du champ de Rabban Gamliel</b> alors ? Ils etaient tous sur le bateau. Apparemment, la cour d'un individu effectue l'acquisition pour lui meme lorsqu'il ne se tient pas a cote d'elle.
+
+### Partie 3
+Ulla <b>lui dit : Celui-ci, parmi les Sages, semble etre quelqu'un qui n'a pas etudie la <i>halakha</i>.</b> Ulla rejeta entierement la question, car il la jugea indigne d'etre prise en consideration.
+
+### Partie 4
+<b>Lorsque</b> Rabbi Abba <b>se rendit a Sura,</b> il rapporta la discussion aux savants locaux, <b>en leur disant : Voici ce qu'a dit Ulla, et voici comment je l'ai conteste. L'un des Sages lui dit : Rabban Gamliel a transfere la propriete de</b> le <b>bien meuble,</b> les dimes, <b>a</b> eux <b>par le biais</b> de la location du <b>terrain.</b> La transaction concernant les dimes a ete effectuee non pas en faisant en sorte que l'emplacement du produit devienne l'equivalent d'une cour appartenant a Rabbi Yehoshua et Rabbi Akiva, mais plutot en employant le principe que les biens meubles peuvent etre acquis en meme temps que l'acquisition d'un terrain. La Guemara commente : <b>Rabbi Zeira a accepte</b> cette reponse a l'objection de Rabbi Abba, mais <b>Rabbi Abba ne l'a pas acceptee.</b>
+
+### Partie 5
+<b>Rava dit :</b> Rabbi Abba <b>a bien fait de ne pas accepter</b> cette reponse, car si Rabban Gamliel avait eu l'intention de transferer sa propriete des dimes a Rabbi Yehoshua et Rabbi Akiva, <b>n'avaient-ils pas un tissu</b> avec lequel <b>acquerir</b> les dimes <b>de lui au moyen</b> d'un <b>echange symbolique ?</b> Ils auraient pu acquerir les dimes par echange symbolique sans louer la terre. <b>Au contraire,</b> il est clair que les dimes n'etaient pas considerees comme la propriete de Rabban Gamliel, car il ne possedait que le <b>benefice de la discretion,</b> c'est-a-dire le benefice decoulant de l'option de donner les dimes a n'importe quel Levite ou pauvre qu'il choisissait, et ce benefice <b>n'est pas</b> considere comme une <b>propriete qui peut etre acquise au moyen</b> d'un <b>echange symbolique. Ici aussi,</b> la transaction a clairement ete effectuee au moyen d'une cour, car le <b>benefice de la discretion n'est pas un bien qui peut etre acquis au moyen</b> de l'acquisition d'une <b>terre.</b> Par consequent, l'explication de Rabbi Abba doit etre correcte, et la cour d'une personne effectue une acquisition pour elle meme lorsqu'elle ne se tient pas a cote d'elle.
+
+### Partie 6
+La Guemara rejette le raisonnement de Rava : <b>Mais</b> cela <b>n'est pas le cas. En ce qui concerne les dons</b> auxquels les membres <b>du sacerdoce</b> ont droit, et de meme en ce qui concerne les dimes qui sont donnees aux Levites et aux pauvres, la notion de <b>don est ecrite</b> dans la Torah : "Et vous l'avez donnée au lévite, A l'étranger, A l'orphelin et A la veuve" (Deutéronome 26:12). Ces dons doivent être donnés et non vendus ou troqués. Par consequent, puisque <b>l'echange est une forme d'achat et de vente,</b> c'est un mode d'acquisition inapproprie en ce qui concerne les dimes. En revanche, le transfert de la propriete d'un <b>bien immobilier au moyen</b> du transfert de la propriete d'une <b>terre est une forme puissante</b> de <b>don.</b> Par consequent, Rabban Gamliel ne pouvait pas leur donner la dime au moyen d'un echange symbolique en utilisant un tissu, mais devait au contraire la leur donner avec la terre. Par consequent, puisque la transaction n'a pas ete effectuee au moyen d'une cour, elle ne pose aucune difficulte a l'opinion de Ulla.
+
+### Partie 7
+<b>Rav Pappa a dit :</b> Meme si Rabbi Yehoshua et Rabbi Akiva ont acquis les dimes au moyen d'une cour, cela ne pose aucune difficulte a l'opinion de Ulla. Puisque les dimes n'etaient pas des objets sans proprietaire, mais plutot <b>un autre esprit,</b> c'est-a-dire Rabban Gamliel, <b>transfere leur propriete</b> a Rabbi Yehoshua et Rabbi Akiva, c'est <b>different,</b> et les beneficiaires n'avaient pas besoin de se tenir a cote de la cour.
+
+### Partie 8
+<b>Et d'ou affirmez-vous</b> cette distinction ? <b>Comme nous l'avons appris</b> dans la mishna : Si quelqu'un <b>voyait</b> des gens <b>courir apres un animal sans proprietaire trouve</b> et disait : Mon champ a effectue l'acquisition de cet animal pour moi, il en a effectue l'acquisition pour lui. <b>Et Rabbi Yirmeya dit</b> que <b>Rabbi Yohanan dit</b> que cette <i>halakha</i> <b>n'est</b> vraie que dans un cas <b>ou il</b> serait capable de <b>courir apres eux et de les attraper. Et Rabbi Yirmeya souleve un dilemme : Est-ce que</b> l'on acquiert des animaux qui lui sont donnes <b>en cadeau</b> dans un tel scenario ? <b>Rabbi Abba bar Kahana a accepte</b> la premisse du dilemme <b>de</b> Rabbi Yirmeya, et a statue que dans le cas d'un cadeau, on acquiert les animaux <b>meme s'il</b> ne serait <b>pas en mesure</b> de <b>courir apres eux et de les attraper. Quelle est la raison</b> de cette distinction ? N'est-ce pas parce que</b> lorsque <b>un autre esprit transfere leur propriete,</b> la <i>halakha</i> <b>est differente,</b> en ce que la cour effectue l'acquisition des objets avec moins de limitations ? Cela corrobore l'explication du Rav Pappa.
+
+### Partie 9
+<b>Rav Shimi a dit a Rav Pappa : Mais</b> qu'en est-il du cas de <b>l'acte de divorce, ou un autre esprit,</b> le mari, <b>transfere sa propriete</b> a la femme, <b>et</b> neanmoins <b>Ulla dit</b> a propos de celui qui a jete un acte de divorce dans la maison ou la cour de sa femme : <b>Mais ce n'est</b> un divorce valable que si <b>elle se tient a cote de sa maison ou a cote de sa cour ?</b> Rav Pappa a repondu : <b>L'acte de divorce est different, car il est</b> possible de le donner a sa femme meme <b>contre sa volonte.</b>
+
+### Partie 10
+<b>Rav Sheshet, fils de Rav Idi, s'oppose a cette</b> reponse : <b>Mais n'est-ce pas une deduction <i>a fortiori</i></b> ? <b>Si</b> dans le cas d'un <b>acte de divorce, qui est</b> valable meme s'il est remis a la femme <b>contre sa volonte,</b> neanmoins <b>si elle se tient a cote de sa maison ou a cote de sa cour</b> elle <b>acquiert</b> l'acte de divorce, et <b>si ce n'est pas le cas</b> elle ne l'acquiert <b>pas</b>, alors dans le cas d'un <b>don, que</b> l'on ne peut recevoir que <b>de son plein gre,</b> n'est-il <b>pas d'autant plus</b> exact que le beneficiaire doit se trouver a cote de sa cour pour que la transaction prenne effet ?
+
+### Partie 11
+<b>Au contraire, le Rav Ashi dit</b> que la distinction entre les cas de donation et d'acte de divorce doit etre expliquee comme suit :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

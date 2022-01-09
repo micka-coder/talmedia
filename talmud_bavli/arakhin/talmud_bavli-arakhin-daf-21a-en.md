@@ -1,0 +1,48 @@
+
+### Part 1
+If <b>the one living in it,</b> i.e., the renter, <b>consecrates</b> the house, <b>he pays the rent to the Temple</b> treasury. The Gemara express surprise at this last statement of the <i>baraita</i>: If <b>the one living in</b> the house <b>consecrates</b> it? <b>How can</b> the renter <b>consecrate it? The Merciful One states: “When a man shall sanctify his house to be sacred”</b> (Leviticus 27:14), from which it is derived that <b>just as one’s house is in his possession, so too, anything</b> that one consecrates must be <b>in his possession.</b> If so, the renter cannot consecrate the house, as he is not its owner. The Gemara answers that <b>this</b> is what the <i>baraita</i> <b>is saying:</b> If <b>the one renting out the house consecrates it, the one living in it pays the rent to the Temple</b> treasury.
+
+### Part 2
+The Gemara asks: If <b>the one renting out the house consecrates it, how</b> is it possible for the renter to <b>live in it?</b> Since the house is consecrated property <b>he is standing</b> liable <b>for</b> the prohibition of <b>misuse of consecrated property</b> by living there. <b>And furthermore,</b> why must <b>he pay the rent to the Temple</b> treasury? <b>Since he misused consecrated property the payment</b> of the rent immediately <b>leaves</b> the state of consecration and becomes <b>non-sacred.</b>
+
+### Part 3
+The Gemara answers: The <i>baraita</i> is discussing a case <b>where</b> the one renting out the house <b>says: When the payment</b> of the rent <b>will come</b> to me, the money <b>shall be consecrated.</b> The Gemara asks: <b>But</b> how is it possible for the one renting out the house to consecrate money he will receive in the future? After all, <b>a person cannot consecrate an entity that has not</b> yet <b>come into the world.</b>
+
+### Part 4
+<b>Rav Yehuda says</b> that <b>Rav says:</b> In accordance with <b>whose</b> opinion <b>is this</b> <i>baraita</i>? <b>It is</b> in accordance with the opinion of <b>Rabbi Meir, who says: A person can consecrate an entity that has not</b> yet <b>come into the world. Some say</b> that <b>Rav Pappa said to Abaye, and some say</b> that <b>Rav Mari bar Ḥama</b> said <b>to Rav Ḥisda: In accordance with whose</b> opinion is this <i>baraita</i>? Is it <b>in accordance with</b> the opinion of <b>Rabbi Meir, who says</b> that <b>a person can consecrate an entity that has not</b> yet <b>come into the world? He said to him: Rather, in accordance with who</b> else’s opinion could this <i>baraita</i> be? Certainly it is in accordance with the opinion of Rabbi Meir.
+
+### Part 5
+<strong>MISHNA:</strong> With regard to those <b>obligated</b> to pay <b>valuations,</b> the court <b>repossesses their</b> property to pay their debt to the Temple treasury. With regard to those <b>obligated</b> to bring <b>sin offerings and guilt offerings,</b> the court <b>does not repossess their</b> property; since one is obligated to bring them for atonement he would not delay bringing them. But with regard to those <b>obligated</b> to bring <b>burnt offerings and peace offerings,</b> the court <b>repossesses their</b> property;since these offerings are not obligatory for atonement, one might delay bringing them.
+
+### Part 6
+<b>Although</b> one obligated to bring burnt offerings and peace offerings <b>does not achieve atonement until he</b> brings the offering <b>of his own volition, as it is stated:</b> “He shall bring it to the entrance of the Tent of Meeting <b>of his volition”</b> (Leviticus 1:3), nevertheless the court <b>coerces him until he says: I want</b> to do so. <b>And likewise, you say</b> the same <b>with regard to women’s bills of divorce.</b> Although one divorces his wife only of his own volition, in any case where the Sages obligated a husband to divorce his wife the court <b>coerces him until he says: I want</b> to do so.
+
+### Part 7
+<strong>GEMARA:</strong> <b>Rav Pappa says: Sometimes</b> with regard to <b>those obligated</b> to bring <b>sin offerings</b> the court <b>does repossess their</b> property, and likewise there are occasions involving those <b>obligated</b> to bring <b>burnt offerings</b> where the court <b>does not repossess their</b> property.
+
+### Part 8
+Rav Pappa elaborates: With regard to those <b>obligated</b> to bring <b>sin offerings,</b> the court <b>repossesses their</b> property <b>in</b> the case of <b>the sin offering of a nazirite, since the Master says</b> (<i>Nazir</i> 45a): <b>If</b> a nazirite <b>shaved</b> after the sacrifice <b>of one of the three</b> nazirite offerings, either the burnt offering, the peace offering, or the sin offering, <b>he has fulfilled</b> his obligation of shaving. <b>And if the blood of one</b> of these offerings <b>was sprinkled on his behalf, the nazirite is permitted to drink wine and to become ritually impure from a corpse.</b> Therefore, there is a concern that a nazirite who has already sacrificed his burnt offering or peace offering might be <b>negligent with regard to</b> his sin offering <b>and not bring</b> it, and therefore the court repossesses his property in this particular case.
+
+### Part 9
+With regard to those <b>obligated</b> to bring <b>burnt offerings,</b> the court <b>does not repossess their</b> property <b>in</b> the case of <b>a burnt offering of a woman after childbirth.</b> There is no concern that she might delay bringing her burnt offering, as she is required to bring this offering before partaking of sacrificial food.
+
+### Part 10
+The Gemara asks: <b>What is</b> the reason for the ruling that a woman after childbirth is required to bring her burnt offering before she can sacrifice her sin offering? Is it <b>that the verse</b> mentions her burnt offering <b>before</b> it mentions her sin offering, as it is written: “And when the days of her purification are fulfilled…she shall bring a lamb of the first year for a burnt offering, and a young pigeon, or a turtle-dove, for a sin offering” (Leviticus 12:6)? <b>But doesn’t Rava say: The verse</b> mentions her burnt offering <b>before</b> her sin offering only with regard <b>to</b> the <b>reading</b> of the verse, but not with regard to the order of the offerings? If so, there should be a concern that she might first sacrifice her sin offering and delay bringing her burnt offering.
+
+### Part 11
+<b>Rather,</b> the court does not repossess the property of those obligated to bring burnt offerings <b>in</b> the case of the <b>burnt offering of a leper, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Yishmael, son of Rabbi Yehuda ben Beroka, says: Just as</b> failure to sacrifice <b>his sin offering and his guilt offering prevents</b> the leper from achieving full ritual purity, <b>so too,</b> failure to sacrifice <b>his burnt offering</b> has the same effect and <b>prevents him</b> from achieving full ritual purity. Therefore, the court does not repossess his property, as there is no concern he might delay bringing his burnt offering.
+
+### Part 12
+§ The mishna teaches: <b>Although</b> one obligated to bring burnt offerings and peace offerings <b>does not achieve atonement until he</b> brings the offering <b>of his own volition,</b> as it is stated: “He shall bring it to the entrance of the Tent of Meeting of his volition” (Leviticus 1:3), nevertheless, one coerces him until he says: I want to do so. Similarly, <b>the Sages taught</b> in a <i>baraita</i>: It is written with regard to a burnt offering: <b>“He shall sacrifice it”</b> (Leviticus 1:3), which <b>teaches that one coerces him</b> to bring his burnt offering. One <b>might</b> have thought he brings the offering <b>against his will;</b> therefore, <b>the verse states: “Of his volition”</b> (Leviticus 1:3). <b>How</b> can <b>these</b> texts be reconciled? The court <b>coerces him until he says: I want to</b> do so.
+
+### Part 13
+<b>Shmuel says: A burnt offering requires</b> the <b>consent</b> of the one receiving atonement, <b>as it is stated: “Of his volition.”</b> The Gemara asks: <b>What is</b> Shmuel <b>teaching us?</b> Didn’t <b>we</b> already <b>learn</b> in the mishna: <b>Although he does not achieve atonement until he</b> brings the offering <b>of his own volition, as it is stated:</b> “He shall bring it to the entrance of the Tent of Meeting <b>of his volition”?</b>
+
+### Part 14
+The Gemara answers: <b>No,</b> the statement of Shmuel is <b>necessary</b> with regard to a case <b>where another</b> person <b>separated,</b> i.e., designated, a burnt offering <b>on his behalf. Lest you say: When we require</b> the <b>consent</b> of the one receiving atonement, that is only in a case where an animal <b>from his</b> property is separated as his burnt offering, e.g., the court repossesses his property for the sake of his burnt offering. <b>But</b> we do <b>not</b> need his consent if an animal <b>from</b> the property <b>of another</b> is separated as his burnt offering. Therefore, Shmuel <b>teaches us</b> that the consent of the one receiving atonement is required even in a case where an animal from the property of another was separated as an offering. The reason is that <b>sometimes he is not amenable to achieving atonement with an item that does not belong to him,</b> and in such a case he will not achieve atonement.
+
+### Part 15
+The Gemara <b>raises an objection</b> from a <i>baraita</i>: With regard to one who says: It is incumbent <b>upon me</b> to bring <b>the sin offering or the guilt offering of so-and-so,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

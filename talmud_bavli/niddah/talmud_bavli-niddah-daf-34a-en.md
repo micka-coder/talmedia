@@ -1,0 +1,45 @@
+
+### Part 1
+This incident occurred during <b>a pilgrimage Festival,</b> either Passover, <i>Sukkot</i>, or <i>Shavuot</i>, <b>and the Sages rendered the ritual impurity of an <i>am ha’aretz</i> during a pilgrimage Festival as purity. As it is written: “And all the men of Israel gathered to the city, like one man, united [<i>ḥaverim</i>]”</b> (Judges 20:11). Whenever all the Jewish people gather in a single place, such as on a pilgrimage Festival, <b>the verse renders all of them <i>ḥaverim</i>,</b> even one who is an <i>am ha’aretz</i>. There was therefore no concern for impurity due to the saliva of an <i>am ha’aretz</i>. Yet, the High Priest was concerned that this Sadducee was one who engages in intercourse with a menstruating woman.
+
+### Part 2
+<strong>MISHNA:</strong> With regard to the <b>blood of</b> a menstruating <b>gentile woman</b> or a gentile <i>zava</i>, <b>and</b> the <b>blood</b> discharged <b>by</b> a female Jewish <b>leper</b> during the days <b>of purity</b> of a woman who gives birth, <b>Beit Shammai deem</b> them <b>ritually pure, and Beit Hillel say:</b> The halakhic status of the blood of the gentile woman is <b>like</b> that of <b>her saliva and her urine,</b> which impart impurity only while moist. Likewise, the blood discharged by a Jewish leper during the days of purity imparts impurity only when moist.
+
+### Part 3
+With regard to <b>the blood of a woman who gave birth</b> and reached the conclusion of her days of impurity, i.e., seven days after giving birth to a male or fourteen days after giving birth to a female, but <b>who did not</b> yet <b>immerse</b> in a ritual bath, <b>Beit Shammai say:</b> Although she has yet to immerse in a ritual bath, the blood does not retain the halakhic status of menstrual blood. Rather, the status of the blood is <b>like</b> that of <b>her saliva and her urine,</b> and it imparts impurity only while moist. <b>And Beit Hillel say:</b> Since she did not immerse in a ritual bath, her blood is considered like that of a menstruating woman, and it <b>imparts impurity</b> whether it is <b>moist or dry.</b>
+
+### Part 4
+<b>And</b> Beit Shammai <b>concede</b> to Beit Hillel <b>in</b> the case of <b>a woman who gives birth as a <i>zava</i>,</b> where the woman must count seven clean days from the conclusion of her days of impurity, <b>that</b> any blood <b>she</b> sees during those seven days <b>imparts impurity</b> whether it is <b>moist or dry.</b>
+
+### Part 5
+<strong>GEMARA:</strong> The mishna teaches that according to Beit Shammai the blood of a gentile woman does not impart impurity. The Gemara objects: <b>And do Beit Shammai not accept</b> that which is taught with regard to the verse: <b>“Speak to the children of Israel and say to them, when any man has an issue [<i>zav</i>]</b> out of his flesh, his issue is impure” (Leviticus 15:2), from which it is inferred: By Torah law, <b>the children of Israel become impure through <i>ziva</i> and gentiles do not become impure through <i>ziva</i>, but</b> the Sages <b>decreed concerning them that they shall be like <i>zavin</i> in all their matters</b> of ritual purity.
+
+### Part 6
+The Gemara responds: <b>Beit Shammai</b> could <b>say to you</b> that <b>this was stated</b> only <b>with regard to males,</b> not females. <b>As, if</b> it was stated even <b>with regard to females, how should one act</b> with regard to this impurity? <b>Should</b> their blood <b>impart impurity</b> whether it is <b>moist or dry?</b> If so, <b>you have rendered it like</b> blood that imparts impurity <b>by Torah</b> law, and people will mistakenly come to burn <i>teruma</i> that comes into contact with it. Perhaps one will suggest that it <b>should impart impurity</b> only while it is <b>moist and it should not impart impurity</b> when it is <b>dry.</b> But if so, <b>you</b> will have <b>differentiated</b> between moist and dry blood even <b>with regard to</b> blood <b>that</b> is impure by <b>Torah</b> law, i.e., one might mistakenly conclude that the blood of Jewish women imparts impurity only when it is moist, when in fact it imparts impurity whether it is moist or dry.
+
+### Part 7
+The Gemara objects: <b>If so,</b> then with regard to <b>the saliva and urine of</b> a gentile <i>zava</i>, which impart impurity by rabbinic law only when moist, Beit Shammai should <b>also</b> rule that they do not impart impurity at all, in order to distinguish their saliva and urine from that of a Jewish <i>zava</i>, which by Torah law impart impurity only when moist (see 54b). The Gemara responds: <b>Since we implement a conspicuous marker with regard to the blood of</b> a gentile woman, i.e., it is clear that her status is different from that of a Jewish woman in that her blood does not impart impurity whatsoever, everyone <b>will know that</b> the impurity of <b>her saliva and her urine</b> is only <b>by rabbinic</b> law, and there is no concern that people might come to mistakenly burn <i>teruma</i> that comes into contact with the saliva and urine of a gentile <i>zava</i>.
+
+### Part 8
+The Gemara persists: <b>And let them implement a conspicuous marker with regard to the saliva and urine of</b> a gentile woman, that they should not impart impurity whatsoever, <b>and let them deem her blood impure</b> even when dry. In this manner, everyone will know that the impurity of a gentile woman applies only by rabbinic law, and they will not come to treat that which is impure by Torah law in the same manner. The Gemara responds: With regard to <b>her saliva and her urine, which are</b> relatively <b>common, the Sages decreed</b> that <b>they</b> are impure, but with regard to <b>her blood, which is not</b> as <b>common, the Sages did not decree</b> that <b>it</b> is impure.
+
+### Part 9
+§ With regard to a gentile man, <b>Rava says: The <i>ziva</i> of</b> a gentile man is <b>ritually impure, even according to</b> the opinion of <b>Beit Shammai,</b> who maintain that the <i>ziva</i> of a gentile woman does not impart impurity whatsoever. By contrast, <b>the semen of</b> a gentile is <b>pure, even according to</b> the opinion of <b>Beit Hillel,</b> who hold that the blood of menstruating gentiles and the blood of their <i>ziva</i> imparts impurity when it is moist.
+
+### Part 10
+Rava elaborates: <b>The <i>ziva</i> of</b> a gentile man is <b>impure, even according to</b> the opinion of <b>Beit Shammai, as it is</b> possible <b>to implement a conspicuous marker with his semen,</b> i.e., since his semen does not impart impurity whatsoever, everyone will know that the impurity imparted by the <i>ziva</i> of a gentile applies by rabbinic law, and they will not come to burn <i>teruma</i> that comes in contact with the <i>ziva</i> of a gentile.
+
+### Part 11
+And <b>the semen of</b> a gentile is <b>ritually pure, even according to</b> the opinion of <b>Beit Hillel.</b> This is because <b>the Sages</b> had to <b>implement a conspicuous marker with regard to it</b> to indicate that the <i>ziva</i> of a gentile imparts impurity only by rabbinic law <b>in order that they will not</b> come <b>to burn <i>teruma</i> and consecrated</b> items <b>that</b> come into contact with their <i>ziva</i>, as must be performed with <i>teruma</i> and consecrated items that contract impurity by Torah law.
+
+### Part 12
+The Gemara objects: <b>And let</b> the Sages <b>implement a conspicuous marker with regard to the <i>ziva</i> of</b> a gentile man, that it should not impart impurity whatsoever, <b>and let them deem his semen impure.</b> The Gemara explains: With regard to <b>his <i>ziva</i>, which is not dependent on an action</b> he performs but is emitted on its own, <b>the Sages decreed</b> that <b>it</b> is impure; with regard to <b>his semen, which is dependent on an action</b> he performs, <b>the Sages did not decree</b> that <b>it</b> is impure.
+
+### Part 13
+The Gemara suggests: <b>Let us say</b> that the following mishna (<i>Mikvaot</i> 8:4) <b>supports</b> Rava’s opinion: In the case of <b>a gentile woman who discharged semen</b> that came <b>from a Jew</b> who engaged in intercourse with her, the semen is <b>impure,</b> as it came from a Jew. <b>And</b> in the case of <b>a Jewish woman who discharged semen</b> that came <b>from a gentile,</b> the semen is <b>pure. What, is it not</b> correct to say that the mishna means the semen of the gentile is <b>entirely pure,</b> in accordance with the opinion of Rava? The Gemara refutes this suggestion: <b>No,</b> perhaps the mishna means that the semen of a gentile is <b>pure by Torah law</b> but <b>impure by rabbinic law,</b> whereas according to Rava, the semen of a gentile is pure even by rabbinic law.
+
+### Part 14
+The Gemara cites another source that possibly supports Rava’s opinion: <b>Come</b> and <b>hear</b> a <i>baraita</i>: <b>You are found</b> to <b>say the semen of a Jew is impure wherever</b> it is found,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

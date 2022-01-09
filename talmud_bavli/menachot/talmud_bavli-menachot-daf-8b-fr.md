@@ -1,0 +1,57 @@
+
+### Partie 1
+<b>Ni</b> cette substance n'est <b>sanctifiee sans cela, ni cela sanctifie sans cela.</b> Au contraire, toute offrande de repas qui necessite de l'huile et de l'encens n'est sanctifiee par un vase de service que lorsque la farine, l'huile et l'encens sont tous places dans le meme vase au meme moment.
+
+### Partie 2
+La Gemara demande : <b>Et selon</b> l'avis de <b>Rabbi Hanina, dans quel</b> but le recipient qui mesurait <b>un dixieme</b> d'un epha <b>a ete oint,</b> lui permettant de sanctifier les objets places a l'interieur ? Ce recipient <b>etait faconne uniquement pour mesurer la farine, et</b> selon Rabbi Hanina <b>la farine n'est pas sanctifiee sans huile.</b> Que sanctifie donc ce recipient ? La Guemara repond : Le recipient a ete oint <b>pour</b> le but de sanctifier l'<b>offrande de repas d'un pecheur,</b> qui ne contient ni huile ni encens.
+
+### Partie 3
+La Gemara demande en outre : <b>Et dans quel but</b> le recipient qui mesurait un <b><i>log</i></b> d'huile etait-il <b>sanctifie ?</b> Apres tout, selon Rabbi Hanina, l'huile destinee a une offrande de repas ne peut etre sanctifiee par elle-meme. La Guemara explique : Elle a ete ointe <b>pour</b> le but de sanctifier le <b>log</i></b> d'huile <b>d'un lepreux,</b> qui n'est pas apporte dans le cadre d'une offrande de repas. Cette huile est sanctifiee sans farine ni encens.
+
+### Partie 4
+La Gemara note : <b>Et Shmuel soutient egalement, conformement a cette</b> declaration <b>de Rav,</b> qu'un recipient de service sanctifie la farine d'une offrande de repas meme sans son huile, <b>comme nous l'avons appris</b> dans une mishna (<i>Zevahim</i> 88a) : <b>Les recipients</b> utilises pour les <b>liquides sanctifient</b> uniquement <b>les liquides, et les</b> recipients qui servent de <b>mesures seches sanctifient</b> uniquement <b>les biens secs</b>. <b>Mais les vases</b> utilises pour les <b>liquides ne sanctifient pas les biens secs</b>, <b>et les</b> vases qui servent de <b>mesures seches ne sanctifient pas les liquides.</b>
+
+### Partie 5
+<b>Et Shmuel dit</b> a propos de cette mishna : <b>Ils ont enseigne</b> que les recipients utilises pour les liquides ne sanctifient pas les produits secs <b>seulement</b> en ce qui concerne les recipients utilises comme <b>mesures. Mais les bols</b> qui servent a recueillir et a jeter le <b>sang</b> des offrandes <b>sanctifient egalement les biens secs</b>, <b>comme il est dit</b> a propos des offrandes des princes apportees lors de l'inauguration du Tabernacle : <b>"Les deux pleins de fine farine melangee a de l'huile pour une offrande de repas"</b> (Nombres 7:13), ce qui indique que le bol sanctifie les offrandes de repas, qui sont seches.
+
+### Partie 6
+La Guemara poursuit sa preuve : Et <b>Rav Aha de Difti dit a Ravina,</b> a propos de cette derivation de Shmuel : Mais l'<b>offrande de repas</b> du verset <b>est</b> egalement consideree comme <b>un liquide,</b> car elle est melee a de l'huile. Comment alors peut-on en tirer la <i>halakha</i> a l'egard d'objets entierement secs ? Ravina <b>lui dit :</b> Le verset cite par Shmuel <b>n'est necessaire que pour</b> enseigner que <b>la partie seche</b> <b>de</b> une offrande de repas, <b>c'est-a-dire,</b> l'<b>encens, </b> qui invariablement n'entre pas en contact avec l'huile, est sanctifie par les bols egalement.
+
+### Partie 7
+La Guemara conclut sa preuve en ce qui concerne l'opinion de Shmuel : <b>Et s'il te vient a l'esprit</b> que <b>Shmuel soutient</b> que <b>une offrande de repas n'est pas sanctifiee</b> par un recipient de service <b>jusqu'a ce que tous</b> ses composants <b>soient</b> reunis dans le recipient, alors <b>comment peux-tu trouver</b> un cas ou les parties <b>seches</b> <b>d'une offrande de repas sont par elles-memes ? <b>N'est-il pas</b> exact que lorsque les offrandes de repas sont sanctifiees, <b>toutes sont liquides, en raison de l'huile</b> qui y est melangee ? <b>Concluez plutot de</b> ici que <b>Shmuel soutient</b> que <b>cette substance</b> peut etre sanctifiee <b>sans celle-la</b>.
+
+### Partie 8
+<b>Et si vous le souhaitez, dites</b> plutot en reponse a la question du Rav Aha de Difti : <b>Une offrande de repas,</b> meme lorsqu'elle est melangee a de l'huile, est, <b>par rapport au sang, consideree comme un element sec</b>. En consequence, on peut deduire du verset que les bols sanctifient les objets secs, et de meme qu'un bol sanctifie une offrande de repas qui contient de l'huile, car il est considere comme sec par rapport au sang, de meme, il sanctifie une offrande de repas entierement seche, c'est-a-dire qui ne contient pas d'huile, comme le pretend Rav.
+
+### Partie 9
+§ La Guemara discute de <b>la</b> question <b>meme. Rabbi Elazar dit : Une offrande de repas</b> dont le pretre <b>a retire une poignee</b> alors qu'il se trouvait <b>a l'interieur du Sanctuaire</b> est <b>valide,</b> malgre le fait que la poignee doit etre retiree dans la cour du Temple ; la raison en est <b>que nous trouvons</b> un cas similaire dans le Sanctuaire, <b>en ce qui concerne le retrait</b> des <b>bols d'encens</b> de la Table des pains de mie. De meme que les bols permettent de consommer les pains de mie, de meme la poignee permet de consommer le reste de l'offrande du repas.
+
+### Partie 10
+<b>Rabbi Yirmeya souleve une objection</b> a cette opinion a partir d'une <i>baraita</i> discutant le verset : "Et il l'apportera aux fils d'Aaron, les prêtres ; <b>et il en retirera</b> sa poignee" (Levitique 2:2). Le verset indique que le retrait d'une poignee d'une offrande de repas peut etre effectue <b>de l'endroit ou les pieds du non-pretre</b> peuvent <b>se tenir,</b> c'est-a-dire n'importe ou dans la cour du Temple.
+
+### Partie 11
+La <i>baraita</i> continue : <b>Ben Beteira,</b> qui soutient qu'une poignee n'est pas disqualifiee lorsqu'elle est retiree avec la main gauche, <b>dit</b> que le verset doit etre interprete comme suit : <b>D'ou vient</b> que si</b> on <b>enleve une poignee avec</b> sa <b>main gauche</b>, <b>il doit remettre</b> la poignee dans le recipient qui contient l'offrande de repas <b>et</b> a nouveau <b>enlever la poignee avec</b> sa <b>main droite</b> ? <b>Le verset dit : "Et il enlevera de la."</b> Cela indique que la poignee est enlevee <b>de l'endroit ou il l'a deja enlevee</b>, c'est-a-dire que la poignee est remise dans l'offrande de repas et ensuite enlevee de la meme offrande de repas, cette fois avec sa main droite. Il ressort de la declaration du premier <i>tanna</i> que la poignee d'une offrande de repas ne peut etre enlevee qu'a l'endroit ou les pieds d'un non-pretre peuvent se tenir, mais pas dans le Sanctuaire.
+
+### Partie 12
+<b>Certains disent</b> que Rabbi Yirmeya <b>souleve l'objection et il la resout</b> egalement. Et <b>Certains disent</b> que <b>Rabbi Yaâkov dit a Rabbi Yirmeya bar Tahlifa : Je vais t'expliquer</b> la resolution de cette objection : Le verset <b>n'est necessaire que pour autoriser l'ensemble de la</b> <b>cour du Temple</b> pour y retirer la poignee, et non pour interdire le retrait d'une poignee a l'interieur du Sanctuaire. La raison en est <b>que vous ne devez pas dire : Puisqu'un holocauste</b> est <b>une offrande de l'ordre le plus sacre, et qu'une offrande de repas</b> est de meme <b>une offrande de l'ordre le plus sacre,</b> alors <b>de meme qu'un holocauste exige</b> que son abattage soit effectue dans la partie <b>nord</b> de la cour du Temple, <b>de meme, une offrande de repas exige</b> que l'enlevement de sa poignee soit dans la partie <b>nord</b>.
+
+### Partie 13
+La Guemara souleve une difficulte par rapport a cette comparaison : <b>Qu'est-ce qui</b> est notable <b>dans l'holocauste ?</b> Il est notable <b>en ce que</b> il est plus sacre, car il est <b>consomme</b> en entier sur l'autel. La Gemara repond : On peut etablir la meme comparaison <b>avec une offrande pour le peche,</b> qui est egalement une offrande de l'ordre le plus sacre et qui n'est pas sacrifiee dans son integralite sur l'autel, et pourtant elle doit etre abattue dans la partie nord de la cour du Temple.
+
+### Partie 14
+La Guemara souleve une difficulte concernant cette comparaison egalement : <b>Qu'est-ce qui est remarquable</b> a propos d'une offrande pour le peche ? </b> Il est remarquable <b>en ce que</b> les <i>halakhot</b> d'une offrande pour le peche sont plus strictes, car son sacrifice <b>repare</b> les peches dont la transgression fait que l'on est <b>libre de recevoir <b><i>karet</b>.</b> La Gemara repond : La comparaison peut etre etablie <b>a partir d'une offrande de culpabilite,</b> car elle aussi est une offrande de l'ordre le plus sacre, elle n'est pas sacrifiee dans son integralite sur l'autel, elle n'expie pas de tels peches, et pourtant elle doit etre abattue dans la partie nord de la cour du Temple.
+
+### Partie 15
+La Guemara rejette egalement cette suggestion : <b>Qu'est-ce qui est remarquable</b> a propos d'une offrande de culpabilite ? </b> Elle est remarquable <b>en ce que</b> une offrande de culpabilite a un statut plus eleve, car elle fait partie des <b>types d'offrandes</b> dont l'expiation est realisee par leur <b>sang,</b> c'est-a-dire que c'est une offrande animale. La Guemara ajoute : Une fois cette affirmation acceptee, <b>de toutes ces offrandes egalement,</b> c'est-a-dire d'un holocauste et d'une offrande pour le peche, on ne peut pas non plus etablir de comparaison avec une offrande de repas, <b>car</b> elles font toutes partie des <b>types d'offrandes</b> dont l'expiation est realisee par leur <b>sang.</b>
+
+### Partie 16
+<b>Au contraire,</b> le verset <b>etait necessaire</b> afin de permettre le deplacement d'une poignee n'importe ou dans la cour du Temple car il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisqu'il est ecrit : "Et elle sera presentee au pretre, qui l'apportera a l'autel"</b> (Levitique 2:8), et il est dit : <b>"Et il enlevera</b> de la sa poignee" (Levitique 2:2), on pourrait pretendre : <b>De meme que</b> l'<b>amenee</b> de l'offrande de repas est <b>dans le coin sud-ouest</b> de l'autel, <b>de meme,</b> le <b>retrait de la poignee</b> doit <b>egalement</b> etre effectue <b>dans le coin sud-ouest. </b> Par consequent, le verset <b>nous enseigne</b> que l'enlevement de la poignee peut etre effectue n'importe ou dans la cour du Temple, mais cela ne sert pas a exclure le Sanctuaire.
+
+### Partie 17
+§ La Guemara discute de <b>la</b> question <b>meme. Rabbi Yohanan dit : Les offrandes de paix qui</b> ont ete <b>abattues dans le Sanctuaire sont valables, comme il est dit : "Et vous l'egorgez a l'entree de la Tente de la Rencontre"</b> (Levitique 3:2), c'est-a-dire dans la cour. <b>Et</b> il est logique que la <i>halakha</i> par rapport a la zone <b>minor</b>, c'est-a-dire la cour, <b>ne soit pas plus rigoureuse que</b> la <i>halakha</i> par rapport a <b>la majeure</b>, la Tente de la Rencontre ou le Sanctuaire.
+
+### Partie 18
+La Guemara <b>souleve une objection</b> a l'opinion de Rabbi Yohanan a partir d'une <i>baraita</i>. <b>Rabbi Yehuda ben Beteira dit : D'ou</b> provient-il <b>que si des Gentils entouraient la <b>cour</b> du Temple et tiraient des projectiles a l'interieur au point qu'il devenait impossible de rester dans la cour en raison de la menace, <b>les pretres doivent entrer dans le Sanctuaire et prendre part aux offrandes de l'ordre le plus sacre et aux restes</b> des <b>offrandes de repas</b> pendant qu'ils sont a l'interieur du Sanctuaire ? <b>Le verset stipule :</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

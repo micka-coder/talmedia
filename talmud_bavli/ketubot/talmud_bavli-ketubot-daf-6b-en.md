@@ -1,0 +1,42 @@
+
+### Part 1
+<b>What, is it not</b> referring to a case <b>where if he did not</b> yet <b>engage in</b> full-fledged <b>intercourse,</b> i.e., rupturing the hymen, with his bride, <b>he may engage in</b> full-fledged <b>intercourse</b> with her <b>even on Shabbat?</b> Apparently, it is permitted to engage in intercourse with a virgin on Shabbat. <b>Rava said: No,</b> it is referring to any other day <b>except for Shabbat. Abaye said to him: But isn’t it taught: Until the conclusion of Shabbat, four nights?</b> Four nights from Wednesday until the conclusion of Shabbat includes Shabbat. <b>Rather, Rava said:</b> It is referring to a case <b>where he engaged in</b> full-fledged <b>intercourse</b> with his bride before Shabbat. Therefore, there is no concern lest he cause a wound on Shabbat.
+
+### Part 2
+However, <b>if</b> it is referring to a case where <b>he</b> already <b>engaged in intercourse, what is</b> the <i>tanna</i> <b>teaching us</b> when he says that it is permitted to have intercourse with her even on Shabbat? <b>He teaches us that</b> although it might cause bleeding, <b>it is permitted to engage in intercourse on Shabbat, in accordance with</b> the statement <b>of Shmuel, as Shmuel said:</b> It is <b>permitted to enter into a narrow opening</b> in a wall <b>on Shabbat, although</b> doing so <b>causes pebbles to fall</b> from the wall. Here too, although it might cause a wound and bleeding, intercourse is permitted on Shabbat.
+
+### Part 3
+<b>Rav Yosef raised an objection</b> from a mishna (<i>Berakhot</i> 16a): <b>A groom is exempt from the</b> mitzva <b>of reciting <i>Shema</i> on the first night</b> of his marriage to a virgin on Wednesday night, <b>until Saturday night, if he has not taken action</b> and consummated the marriage. <b>What, is it not</b> that he is exempt due to the fact <b>that he is preoccupied because he wishes to engage in intercourse</b> with her and is concerned that he will fail to do so properly? Apparently, if he did not yet consummate the marriage, he is exempt from reciting <i>Shema</i> even on Shabbat, indicating that it is permitted to engage in intercourse on Shabbat. <b>Abaye said to him: No.</b> It can be explained <b>that he</b> is exempt from reciting <i>Shema</i> because he <b>is preoccupied</b> due to the fact <b>that</b> he did <b>not</b> yet <b>engage in intercourse</b> with her. No proof may be cited with regard to engaging in intercourse on Shabbat.
+
+### Part 4
+<b>Rava said to</b> Abaye: <b>And</b> is one <b>exempt due to preoccupation? If that is so,</b> would <b>one whose ship sunk at sea also</b> be exempt? The Gemara reinforces its question: <b>And if you would say:</b> In fact, <b>that is so, didn’t Rabbi Abba bar Zavda say</b> that <b>Rav said: A mourner is obligated in all the mitzvot in the Torah except for</b> the mitzva to don <b>phylacteries, as</b> the term <b>splendor is stated with regard to</b> phylacteries: “Make no mourning for the dead; bind your splendor upon yourself” (Ezekiel 24:17). Splendor is antithetical to mourning. If a mourner, who is clearly pained and preoccupied, is obligated to recite <i>Shema</i>, then certainly all others who are preoccupied due to events that transpired in the past should be obligated. If the groom is exempt, it must be due to his preoccupation with a mitzva that remains incumbent upon him to perform in the future.
+
+### Part 5
+<b>Rather, Rava said:</b> This matter of intercourse with a virgin on Shabbat <b>is</b> subject to a dispute between <b><i>tanna’im</i>, as one</b> <i>tanna</i> <b>taught: If he did not take action on the first</b> night <b>he is exempt</b> from reciting <i>Shema</i> <b>even on the second.</b> If he failed to consummate the marriage on the <b>second</b> night <b>he is exempt even on the third</b> night, which is Shabbat evening.
+
+### Part 6
+<b>And another</b> <i>baraita</i> <b>is taught:</b> On the <b>first and second</b> nights <b>he is exempt;</b> on the <b>third he is obligated</b> to recite <i>Shema</i>. He is obligated on the third night, even if he did not yet consummate the marriage, because the third night is Shabbat, when intercourse with his virgin wife is forbidden. The different rulings in the two <i>baraitot</i> indicate that there is a tannaitic dispute with regard to intercourse with a virgin on Shabbat.
+
+### Part 7
+<b>And</b> how does <b>Abaye</b> respond to this proof? He says that <b>there too,</b> it can be explained that it <b>is with regard to preoccupation</b> that the <i>tanna’im</i> <b>disagree.</b> Everyone agrees that it is prohibited to engage in intercourse with a virgin on Shabbat. The dispute is whether or not one’s preoccupation with the fact that he has not yet performed the mitzva of consummating the marriage in the past is considered preoccupation with a mitzva, which would exempt him from reciting <i>Shema</i>?
+
+### Part 8
+<b>And</b> the dispute between <b>these <i>tanna’im</i></b> in the <i>baraitot</i> cited is <b>parallel</b> to the dispute between <b>these <i>tanna’im</i>, as it is taught</b> in another <i>baraita</i>: With regard to <b>one who marries a virgin, he may not engage in intercourse</b> with her for the <b>first</b> time on <b>Shabbat, and the Rabbis permit</b> doing so.
+
+### Part 9
+The Gemara asks: <b>Who are</b> the <b>Rabbis</b> that permit doing so? <b>Rabba said: It is</b> the opinion of <b>Rabbi Shimon, who said: An unintentional act is permitted</b> on Shabbat. Since one’s intention is to perform a permitted action, i.e., the consummation of the marriage, and there is no intent to perform a forbidden action, any forbidden action that may ensue is not a source of concern.
+
+### Part 10
+<b>Abaye said to</b> Rabba: <b>But doesn’t Rabbi Shimon concede</b> that <b>in</b> the case of: <b>Cut off its head and will it not die,</b> i.e., inevitable consequences, one is not exempted by lack of intent. Since rupture of the hymen and the subsequent bleeding is inevitable, Rabbi Shimon would concede that intercourse with a virgin is forbidden. Rabba <b>said to him: Unlike these Babylonians, who are not experts in diverting</b> during intercourse and are unable to engage in intercourse without rupturing the hymen, <b>there are</b> those who are <b>experts in diverting.</b> Therefore, rupture of the hymen is not an inevitable consequence.
+
+### Part 11
+The Gemara asks: <b>If so,</b> and the groom is expert in diverting, <b>why</b> is there <b>preoccupation</b> that renders him exempt from reciting <i>Shema</i>? The Gemara answers: The exemption due to preoccupation is limited to <b>one who is not expert.</b> The Gemara asks: If so, the Sages <b>should say</b> explicitly: One who is <b>expert is permitted</b> to have intercourse with a virgin on Shabbat, and one <b>who is not expert is prohibited</b> from doing so. The Gemara answers: The <b>majority</b> of men <b>are experts</b> in this matter. Therefore, rupture of the hymen is not an inevitable consequence, and intercourse is permitted on Shabbat.
+
+### Part 12
+<b>Rava bar Rav Ḥanan said to Abaye: If that is so,</b> and most people are able to engage in intercourse with a virgin without rupturing the hymen, <b>why are groomsmen</b> stationed to ensure that no deceit is employed by the groom with regard to the bride’s virginity? And <b>why</b> is <b>a sheet</b> necessary to determine whether there was blood? The absence of blood proves nothing if intercourse is possible without blood. Abaye <b>said to him: There,</b> the groomsmen and the sheet are necessary <b>lest</b> the groom <b>see</b> blood <b>and</b> seek to <b>destroy</b> it intentionally. Certainly, if he seeks to engage in intercourse and keep the hymen intact he can do so. However, if he engages in full-fledged intercourse and the hymen is ruptured, the Sages sought to ensure that the facts are clear.
+
+### Part 13
+<b>Rav Ami raised an objection</b> from a mishna (<i>Eduyyot</i> 2:5): With regard to <b>one who drains an abscess on Shabbat, if</b> his intent is <b>to create</b> a permanent <b>opening</b> so that the abscess will dry, <b>he is liable</b> to receive punishment for performing an action similar to the prohibited labor of building on Shabbat. <b>However, if</b> he created the opening <b>to remove pus,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

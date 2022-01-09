@@ -1,0 +1,45 @@
+
+### Part 1
+<b>And</b> this <b>incident came</b> to court <b>before Rabban Shimon ben Gamliel and before Rabbi Yosei, and they said:</b> The two expressions have contradictory implications, and it is uncertain which expression should be followed. Therefore, the landlord and the renter <b>should divide the intercalary month</b> between them, i.e., the renter should pay half a gold dinar for it.
+
+### Part 2
+<strong>GEMARA:</strong> The Gemara asks: Was <b>an incident</b> cited <b>to contradict</b> the mishna’s initial ruling? The Gemara explains: The latter clause <b>is incomplete and this</b> is what <b>it is teaching: But if</b> the landlord <b>said to</b> the renter that the rent would be: <b>Twelve gold</b> dinars <b>per year, a gold dinar per month,</b> and then the year was intercalated, the intercalary month <b>should be divided</b> between them. <b>And in addition, an incident</b> like this occurred <b>in Tzippori involving one who rented a bathhouse from another,</b> and they stated that the rent would be: <b>Twelve gold</b> dinars <b>per year, a gold dinar per month,</b> and then the year was intercalated. <b>And</b> this <b>incident came</b> to court <b>before Rabban Shimon ben Gamliel and before Rabbi Yosei, and they said:</b> The landlord and the renter <b>should divide the intercalary month</b> between them.
+
+### Part 3
+<b>Rav said: If I had been there,</b> as a judge, <b>I would have given the entire</b> month <b>to the landlord</b> and ruled that the renter must pay for it. Rav understood that the statement defining the rent should be understood based on the final expression used, i.e., a gold dinar per month.
+
+### Part 4
+The Gemara asks: <b>What is</b> Rav <b>teaching us?</b> Could he be teach-ing that when a statement consists of two expressions with contradictory implications one should <b>attend</b> only to <b>the last statement?</b>
+
+### Part 5
+But <b>didn’t Rav</b> already <b>say</b> that <b>one time</b> before, <b>as Rav Huna said</b> with regard to a case in which a seller fixed the price for an item using two different expressions that indicate different amounts and the buyer agreed and took the item: <b>They say</b> in <b>the study hall of Rav</b> that if the seller said: <b>An <i>asteira</i>, one hundred coins,</b> i.e., copper <i>perutot</i>, then the buyer must pay him <b>one hundred coins,</b> despite the fact that an <i>asteira</i> is a coin worth ninety-six <i>perutot</i>. And if the seller said: <b>One hundred coins, an <i>asteira</i>,</b> the buyer must pay him <b>an <i>asteira</i>.</b> It is already apparent from this ruling that Rav holds that one should rule according to the final expression. Why did he restate his opinion with regard to the case of the intercalary month?
+
+### Part 6
+The Gemara explains: <b>If</b> Rav’s opinion were known <b>from there, I would say</b> that the second expression <b>is explaining</b> the first, and that is the reason to follow it. But one would still not know the <i>halakha</i> in a case in which the second expression undeniably contradicts the first. Therefore, Rav <b>teaches us</b> that in all cases one acts in accordance with the final expression.
+
+### Part 7
+<b>And Shmuel said</b> in explanation of the ruling of Rabban Shimon ben Gamliel and Rabbi Yosei: In the mishna, <b>we are dealing with</b> a case <b>where</b> the landlord <b>came</b> before the court <b>in the middle of the month.</b> Only in that case is the disputed month divided between them. <b>But</b> if <b>he came at the beginning of the month, the entire</b> month’s rent would be awarded <b>to the landlord,</b> and if <b>he came at the end of the month, the entire</b> month’s rent would be awarded <b>to the renter.</b> The reason is that it is uncertain whether or not one always acts in accordance with the final expression, and, consequently, whether the renter must pay for the extra month. With regard to upcoming days of rental, since the landlord has possession of the property, he can demand rent. And with regard to days that have already passed, where the question is whether the renter must pay for them, since he is in possession of his money, he cannot be made to pay. Shmuel does not hold that only the second statement is followed.
+
+### Part 8
+The Gemara asks: <b>Did Shmuel</b> actually <b>say</b> that <b>we do not say</b> that one should <b>attend</b> only to <b>the last statement? But don’t Rav and Shmuel both say:</b> If a seller says to a buyer: <b>I am selling you a <i>kor</i></b> of grain <b>for thirty</b> <i>sela</i>, then <b>he can renege on</b> the sale <b>even while</b> transferring to him the <b>last <i>se’a</i></b> of grain. As a <i>kor</i> is equal to thirty <i>se’a</i>, it is apparent that each <i>se’a</i> is being sold for one <i>sela</i>, but since that breakdown was not made explicit, the sale of the entire <i>kor</i> is considered as a single entity. Until the entire <i>kor</i> has been transferred, the sale does not take effect. If the seller used two expressions: <b>I am selling you a <i>kor</i></b> of grain <b>for thirty</b> <i>sela</i>, <b>a <i>se’a</i> per <i>sela</i>,</b> then the buyer <b>acquires</b> each of the thirty <i>se’a</i> of grain <b>one by one,</b> immediately upon each being transferred to him, and the seller cannot renege on the sale of any <i>se’a</i> that has taken place. Although the implications of the seller’s two expressions are contradictory, Shmuel rules that one should act in accordance with the final expression.
+
+### Part 9
+The Gemara explains: <b>There,</b> in the case of the grain, Shmuel’s ruling was not due to the fact that we attend to the final expression, since it is uncertain whether or not we do. Rather, <b>what is the reason</b> for his ruling? It is <b>due to</b> the fact that the buyer <b>has</b> already <b>taken hold</b> of the grain and consequently has presumptive ownership of it. <b>Here too,</b> in the case of the bathhouse, each party <b>is holding</b> onto the basis of his claim, i.e., the landlord has possession of his property and the renter has possession of his money, and it is only due to this reason that Shmuel rules as he does.
+
+### Part 10
+<b>And Rav Naḥman said:</b> I would have ruled that since the <i>halakha</i> is that <b>land is</b> always <b>in its owner’s possession,</b> even when rented out, the landlord is entitled to the entire month’s rent. The Gemara asks: <b>What is</b> Rav Naḥman <b>teaching us?</b> Could his ruling be based on saying that one should <b>attend</b> only to <b>the last statement?</b> But then <b>this is</b> identical to the ruling <b>of Rav.</b> The Gemara clarifies: Rav Naḥman’s ruling is unlike Rav’s, as Rav Naḥman would award the extra month to the landlord <b>even where</b> the order of the two expressions <b>is reversed.</b> Rather, as he explained, his ruling is based on the fact the landlord has possession of the property.
+
+### Part 11
+§ The Sages <b>raised a dilemma before Rabbi Yannai:</b> If <b>a renter says</b> to his landlord: <b>I</b> already <b>gave</b> the rental fee to you, <b>and</b> the <b>landlord says: I did not take</b> any payment from you, <b>upon whom is the burden of proof?</b>
+
+### Part 12
+The Gemara clarifies the dilemma: <b>When</b> did the renter make his claim? <b>If</b> it was <b>during his</b> rental <b>period, we</b> already <b>learned</b> the <i>halakha</i> in this case and the Sages would not have asked about it. Similarly, <b>if</b> it was <b>after his</b> rental <b>period, we</b> already <b>learned</b> the <i>halakha</i> in that case as well. <b>As we learned</b> in a mishna (<i>Bekhorot</i> 49a): A father is obligated to redeem his firstborn son after the son is thirty days old by paying five shekels to a priest. If <b>the father died within thirty days</b> of the birth, the son <b>has the presumptive status of being unredeemed, until he brings a proof that he was redeemed.</b> If he died <b>after thirty days,</b> the son <b>has the presumptive status of having been redeemed, until</b> people <b>tell him that he was not redeemed.</b> It is apparent from this mishna that a person is presumed not to pay money before he must, and he is presumed to have paid money once he is required to do so. This logic can be applied to the paying of a rental fee.
+
+### Part 13
+The Gemara explains: <b>No,</b> it is <b>necessary</b> to raise the dilemma in a case where the renter makes his claim <b>on the day on which his</b> rental <b>period is completed.</b> The dilemma is <b>whether a person is apt to pay</b> his debts <b>on the</b> very <b>day on which</b> the <b>period</b> in which to pay them <b>is completed, or</b> he is <b>not.</b>
+
+### Part 14
+<b>Rabbi Yoḥanan said to them:</b> Also this, <b>you have</b> already <b>learned</b> in a mishna (111a):
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

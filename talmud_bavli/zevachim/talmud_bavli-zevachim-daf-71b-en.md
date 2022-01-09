@@ -1,0 +1,45 @@
+
+### Part 1
+Additional examples include an offering that was intermingled <b>with</b> an animal born of a mixture of <b>diverse kinds,</b> e.g., the offspring of a ram and a goat, <b>or with an animal with a wound that will cause it to die within twelve months [<i>tereifa</i>],</b> or <b>with</b> an animal <b>born by caesarean section.</b> In all these cases the animals that are intermingled <b>shall graze until they become unfit</b> for sacrifice <b>and</b> then <b>they shall be sold. And</b> from the money received in the sale, the owner <b>shall bring</b> another offering <b>of the monetary value of</b> the <b>highest-quality</b> animal <b>among them, of the same type</b> of offering that the intermingled offering was.
+
+### Part 2
+The mishna continues: If sacrificial animals <b>were intermingled with unblemished, non-sacred</b> animals, which, if consecrated, are fit for sacrifice, <b>the non-sacred</b> animals <b>shall be sold for the purpose</b> of purchasing offerings <b>of the same type</b> as the offering with which they were intermingled.
+
+### Part 3
+In a case where <b>sacrificial</b> animals were intermingled <b>with</b> other <b>sacrificial</b> animals, if it was an animal of one <b>type</b> of offering <b>with</b> animals of the same <b>type</b> of offering, <b>one shall sacrifice this</b> animal <b>for the sake of whoever is</b> its owner <b>and one shall sacrifice that</b> animal <b>for the sake of whoever is</b> its owner, and both fulfill their obligation.
+
+### Part 4
+In a case where <b>sacrificial</b> animals were intermingled <b>with</b> other <b>sacrificial</b> animals, where an animal of one <b>type</b> of offering was intermingled <b>with</b> animals <b>not</b> of the same <b>type</b> of offering, e.g., two rams, where one is designated as a burnt offering and one as a peace offering, <b>they shall graze until they become unfit</b> for sacrifice <b>and</b> then <b>they shall be sold. And</b> from the money received in the sale, the owner <b>shall bring</b> another offering <b>of the monetary value of</b> the <b>highest-quality</b> animal <b>among them as this type</b> of offering, <b>and</b> another offering <b>of the monetary value of</b> the <b>highest-quality</b> animal <b>among them as that type</b> of offering, <b>and he will lose the additional</b> expense of purchasing two highest-quality animals, when he had sold only one highest-quality animal, <b>from his</b> own <b>assets.</b>
+
+### Part 5
+In a case where sacrificial animals <b>were intermingled with a firstborn</b> offering <b>or with</b> an animal <b>tithe</b> offering, <b>they shall graze until they become unfit</b> for sacrifice <b>and they shall</b> both <b>be eaten as a firstborn</b> offering <b>or as</b> an animal <b>tithe</b> offering.
+
+### Part 6
+<b>All</b> offerings <b>can become</b> indistinguishably <b>intermingled</b> with each other, <b>except for a sin offering and a guilt offering,</b> as the Gemara will explain.
+
+### Part 7
+<strong>GEMARA:</strong> The mishna teaches the <i>halakha</i> of all the offerings that were intermingled with animals from which deriving benefit is forbidden. This indicates that one offering became intermingled with a majority of prohibited animals, as it is usual to describe the smaller unit as being intermingled with the larger unit. The Gemara asks: If so, <b>what</b> is the meaning of the term: <b>Even,</b> in the clause: Even if the ratio is one in ten thousand, deriving benefit from them all is prohibited and they all must die. If the permitted animal is rendered prohibited by a simple majority, of course it is prohibited if the ratio is one in ten thousand.
+
+### Part 8
+The Gemara explains: <b>This</b> is what the mishna <b>is saying: All the offerings in which were intermingled sin offerings</b> left to <b>die, or</b> in which <b>an ox that</b> was sentenced to be <b>stoned</b> was intermingled, <b>even</b> if the ratio is <b>one</b> forbidden animal intermingled <b>with ten thousand</b> offerings, <b>they all must die.</b>
+
+### Part 9
+The Gemara raises a difficulty: Why is this mishna necessary? <b>We</b> already <b>learn</b> this <i>halakha</i> on <b>another occasion,</b> in a mishna (<i>Temura</i> 28a): With regard to <b>all</b> animals <b>whose</b> sacrifice <b>on the altar</b> is <b>prohibited,</b> if they are intermingled with animals whose sacrifice is permitted <b>they render</b> the entire mixture <b>prohibited in any amount,</b> regardless of the ratio of permitted to prohibited animals. The mishna adds that these are the animals whose sacrifice is prohibited: <b>An animal that</b> actively <b>copulated with a person, and an animal that was the object of bestiality.</b> That mishna proceeds to add other categories of animals to this list, including ones mentioned in the mishna here. In any event, the basic <i>halakha</i> of the mishna is also taught in tractate <i>Temura</i>.
+
+### Part 10
+<b>Rav Ashi says: I said this <i>halakha</i> in the presence of Rav Shimi, and he</b> explained to <b>me</b> that both <i>mishnayot</i> <b>are necessary,</b> as each teaches a novelty not included in the other. Rav Ashi clarifies: <b>As, if</b> this <i>halakha</i> was learned only <b>from there,</b> the mishna in <i>Temura</i>, <b>I would say</b> that <b>this statement,</b> that prohibited animals render a mixture prohibited in any ratio, applies only to prohibiting the animals from being sacrificed <b>to the Most High; but</b> with regard to prohibiting the animals even <b>to an ordinary</b> person <b>[<i>hedyot</i>],</b> e.g., that if they became intermingled with an ox that is to be stoned they all must die without the possibility of redemption, one might <b>say</b> that they are <b>not</b> all rendered prohibited in benefit, as the prohibited animal is nullified in a majority. Therefore, the mishna here teaches that even with regard to deriving benefit, all the animals in the mixture are prohibited.
+
+### Part 11
+Rav Ashi continues: <b>And if</b> this <i>halakha</i> was learned only <b>from here, I would say</b> that <b>it is</b> only <b>these</b> categories that are mentioned in this mishna, i.e., sin offerings that were condemned to die or an ox that was sentenced to be stoned, that render a mixture prohibited in any ratio. The <i>halakha</i> is stringent with regard to them, as <b>they are items from which</b> deriving <b>benefit is prohibited. But</b> with regard to <b>these</b> categories mentioned in the mishna in <i>Temura</i>, e.g., an animal that copulated with a person, which are not items from which deriving benefit is prohibited, one might <b>say</b> that they are <b>not</b> disqualified from being sacrificed, and they are nullified in a majority. Therefore, both <i>mishnayot</i> <b>are necessary.</b>
+
+### Part 12
+The Gemara questions this explanation: This justifies the mishna here, but concerning the <i>halakha</i> stated in <i>Temura</i>, why did that mishna teach the <i>halakha</i> with regard to those animals <b>that are not items from which</b> deriving <b>benefit is prohibited,</b> such as an animal that copulated with a person; the <i>tanna</i> already <b>taught this</b> <i>halakha</i> in the mishna here. The Gemara answers: <b>Does</b> the mishna here <b>teach by what</b> ratio they render the mixture prohibited? The important measure: <b>In any amount, is taught there,</b> in <i>Temura</i>, not in the mishna here, and that is the novelty of the mishna in <i>Temura</i>.
+
+### Part 13
+The Gemara challenges: <b>But</b> if so, <b>let</b> the <i>tanna</i> <b>teach that</b> mishna in <i>Temura</i>, <b>and</b> then he would <b>not require this</b> mishna here. Why teach the second clause of the mishna here? The Gemara explains: It <b>was necessary for</b> the <i>tanna</i> to mention <b>the remedy,</b> i.e., that the animals that are intermingled shall graze until they become unfit for sacrifice and then they shall be sold; and from the money received in the sale, the owner shall bring another offering of the monetary value of the highest-quality animal among them as the same type of offering that the sacrificial animal was. This <i>halakha</i> is not stated in the mishna in <i>Temura</i>.
+
+### Part 14
+The Gemara raises another difficulty. The <i>halakha</i> of the mishna that items from which deriving benefit is prohibited render a mixture prohibited in any amount even <b>to an ordinary</b> person, as stated with regard to the sin offerings that were condemned to die and an ox that was sentenced to be stoned, is <b>also taught</b> in a mishna (<i>Avoda Zara</i> 74a): <b>And these</b> following items are themselves <b>forbidden, and any amount</b> of them <b>renders</b> other items with which they become mixed <b>forbidden: Wine</b> used for <b>a libation</b> that became mixed with kosher wine, <b>and</b> objects of <b>idol worship</b> that were intermingled with permitted items.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

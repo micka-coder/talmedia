@@ -1,0 +1,48 @@
+
+### Part 1
+In a case of the blood of an offering <b>that is</b> to be <b>placed</b> on the altar <b>with one placement that was mixed with</b> the blood of another offering <b>that is</b> to be <b>placed</b> on the altar <b>with one placement,</b> e.g., the blood of a firstborn offering with the blood of another firstborn offering or the blood of an animal tithe offering, the blood <b>shall be placed with one placement.</b> In a case of the blood of an offering that is to be placed on the altar with <b>four placements</b> that was mixed with the blood of another offering that is to be placed on the altar <b>with four placements,</b> e.g., the blood of a sin offering with that of another sin offering, or the blood of a burnt offering with that of a peace offering, the blood <b>shall be placed with four placements.</b>
+
+### Part 2
+If the blood of an offering that is to be placed on the altar with <b>four placements</b> was mixed with the blood of an offering that is to be placed on the altar <b>with one placement, Rabbi Eliezer says:</b> The blood <b>shall be placed with four placements. Rabbi Yehoshua says:</b> The blood <b>shall be placed with one placement,</b> as the priest fulfills the requirement with one placement after the fact.
+
+### Part 3
+<b>Rabbi Eliezer said to</b> Rabbi Yehoshua: According to your opinion, the priest <b>violates</b> the prohibition of: <b>Do not diminish,</b> as it is written: “All these matters that I command you, that you shall observe to do; you shall not add thereto, nor diminish from it” (Deuteronomy 13:1). One may not diminish the number of required placements from four to one. <b>Rabbi Yehoshua said to</b> Rabbi Eliezer: According to your opinion, the priest <b>violates</b> the prohibition of: <b>Do not add,</b> derived from the same verse. One may not add to the one required placement and place four.
+
+### Part 4
+<b>Rabbi Eliezer said to</b> Rabbi Yehoshua: The prohibition of: <b>Do not add, is stated only</b> in a case <b>where</b> the blood <b>is by itself,</b> not when it is part of a mixture. <b>Rabbi Yehoshua said to</b> Rabbi Eliezer: Likewise, the prohibition of: <b>Do not diminish, is stated only</b> in a case <b>where</b> the blood <b>is by itself. And Rabbi Yehoshua also said: When you placed</b> four placements, <b>you transgressed</b> the prohibition of: <b>Do not add, and you performed a direct action. When you did not place</b> four placements but only one, although <b>you transgressed</b> the prohibition of: <b>Do not diminish, you did not perform a direct action.</b> An active transgression is more severe than a passive one.
+
+### Part 5
+<strong>GEMARA:</strong> The mishna teaches that according to the opinion of Rabbi Eliezer, if a cup containing the blood of blemished animals became intermingled with cups holding the blood of fit offerings, and the blood in one of the cups was sacrificed, all the remaining cups are fit. <b>Rabbi Elazar says: Rabbi Eliezer permitted</b> the rest of the cups <b>only</b> if they were sacrificed <b>two</b> by <b>two,</b> as at least one of them is certainly permitted; <b>but</b> he did <b>not</b> permit them to be sacrificed <b>one</b> by <b>one,</b> as he may be found to have presented the blood of the prohibited cup by itself.
+
+### Part 6
+<b>Rav Dimi raises an objection</b> from the mishna: <b>And the Rabbis say</b> that <b>even</b> if the blood in <b>all</b> the cups <b>was sacrificed except for</b> the blood in <b>one of them,</b> the blood <b>shall be poured into the</b> Temple courtyard <b>drain.</b> This indicates that even in this case, where only one cup remains, Rabbi Eliezer disagrees with the Rabbis and permits the blood in the cup to be presented. <b>Rabbi Ya’akov said to Rabbi Yirmeya bar Taḥlifa: I will explain</b> it <b>to you: What</b> does the mishna mean when it states: Except for the blood in <b>one</b> of them? It means except for <b>one pair,</b> i.e., two cups, as even Rabbi Eliezer did not permit the presentation of the cups one by one.
+
+### Part 7
+§ The dispute between Rabbi Eliezer and the Rabbis was also stated above with regard to a mixture of limbs from fit and unfit offerings. The Gemara notes: <b>And</b> it is <b>necessary</b> for the mishna to teach this dispute with regard to both cases, <b>as, if it were stated</b> only <b>with regard to that</b> case of the limbs, one would have said that it is <b>in that</b> case alone that <b>Rabbi Eliezer says</b> that the rest of the limbs are sacrificed, <b>because</b> the offering’s <b>atonement,</b> i.e., the presenting of the blood, <b>has</b> already <b>been performed,</b> as the limbs are sacrificed after the blood has been presented. <b>But in this</b> case of the blood in the cups, <b>say</b> that Rabbi Eliezer <b>concedes to the Rabbis</b> that the rest of the blood is unfit to be presented.
+
+### Part 8
+<b>And</b> conversely, <b>if</b> the dispute <b>were stated</b> only <b>with regard to this</b> case of the cups, one would have said that it is <b>in this</b> case alone that <b>the Rabbis say</b> that the blood in the rest of the cups is unfit, <b>but in that</b> case of the limbs, <b>say</b> that the Rabbis <b>concede to Rabbi Eliezer</b> that the rest of the limbs are fit to be sacrificed, as the blood has already been presented. Therefore, it is <b>necessary</b> for the mishna to state that the dispute applies in both cases.
+
+### Part 9
+§ The Gemara continues its discussion of the dispute between Rabbi Eliezer and the Rabbis. <b>We learned</b> in a mishna <b>there</b> (<i>Para</i> 9:1): With regard to <b>a flask</b> containing water of purification <b>into which any amount of</b> regular <b>water fell, Rabbi Eliezer says:</b> The priest <b>should sprinkle two sprinklings</b> on the ritually impure person, as in this manner he ensures that he will be sprinkled with some of the water of purification; <b>but the Rabbis disqualify</b> the mixture for purification.
+
+### Part 10
+The Gemara clarifies: <b>Granted,</b> one can understand why <b>the Rabbis</b> disqualify the mixture, as <b>they hold</b> three opinions: They hold that <b>there is mixing,</b> i.e., when two substances are mixed together each drop is assumed to contain a bit of each of them. <b>And</b> they hold that an act of <b>sprinkling</b> of the water of purification <b>requires</b> a minimum <b>measure</b> of water of purification, and in this case each sprinkling contained some of the regular water. <b>And</b> they hold that it is of no help to sprinkle the water twice, as <b>one cannot combine sprinklings,</b> i.e., two acts of sprinkling the water of purification do not combine to render one pure. Therefore, the person is not purified.
+
+### Part 11
+<b>But what</b> does <b>Rabbi Eliezer hold? If he holds</b> that <b>there is no mixing,</b> i.e., when two substances are mixed together each drop is not assumed to contain a bit of each of them, then even <b>if one sprinkles two sprinklings, what of it? Perhaps</b> on <b>both</b> occasions <b>he sprinkles</b> regular <b>water. Rather,</b> one must say that Rabbi Eliezer <b>holds</b> that <b>there is mixing. If he holds</b> that the act of <b>sprinkling does not require</b> a minimum <b>measure, why do I</b> need <b>two sprinklings?</b> One act of sprinkling would be enough. <b>Rather,</b> you must say that Rabbi Eliezer <b>holds</b> that the act of <b>sprinkling requires</b> a minimum <b>measure. And if</b> Rabbi Eliezer <b>holds</b> that <b>one cannot combine sprinklings,</b> then even <b>if one sprinkles two sprinklings, what of it? And alternatively,</b> if he holds that <b>one combines sprinklings, who says that</b> the two sprinklings will <b>amount to</b> the minimum <b>measure?</b> Perhaps most of the water he sprinkled was regular water.
+
+### Part 12
+<b>Reish Lakish says: Actually,</b> Rabbi Eliezer holds that <b>there is mixing, and sprinkling requires</b> a minimum <b>measure. And here we are dealing with</b> a case <b>where</b> the two types of water <b>were mixed</b> together in a ratio of <b>one to one,</b> and therefore by performing two sprinklings the priest ensures that he has sprinkled the minimum measure of one sprinkling of water of purification.
+
+### Part 13
+<b>Rava says: Actually,</b> Rabbi Eliezer maintains that <b>there is mixing, and sprinkling does not require</b> a minimum <b>measure.</b> Consequently, it should suffice for the priest to perform one sprinkling. <b>And</b> the requirement to sprinkle twice is <b>a penalty</b> that <b>the Sages imposed, so that</b> one who mixes regular water with the water of purification <b>would not benefit from this</b> act by diluting the valuable water of purification.
+
+### Part 14
+<b>Rav Ashi states</b> a different explanation: Rabbi Eliezer holds that <b>there is no mixing,</b> and therefore if the priest sprinkles only once there is a concern that he might not have sprinkled any water of purification at all, and therefore he <b>sprinkles two sprinklings.</b>
+
+### Part 15
+The Gemara <b>raises an objection</b> from a <i>baraita</i> against Reish Lakish’s opinion that Rabbi Eliezer holds that sprinkling requires a minimum measure. <b>Rabbi</b> Yehuda HaNasi <b>says: According to the statement of Rabbi Eliezer</b> that if the priest performs two sprinklings the purification ritual is valid, <b>a sprinkling of any amount renders</b> the impure person <b>ritually pure,</b> as <b>sprinkling does not require</b> a minimum <b>measure,</b> and even <b>a sprinkling</b> that contains <b>half fit</b> water <b>and half unfit</b> water renders the individual ritually pure.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

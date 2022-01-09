@@ -1,0 +1,63 @@
+
+### Part 1
+<b>for what</b> use <b>are they fit?</b> According to the Rabbis, one sells them in court. Apparently, they must have some value. The Gemara answers: <b>Oil is fit for tanners</b> who would coat the hides with oil even if it had a foul odor. <b>Honey</b> it fit as a salve <b>for a wound</b> on the back <b>of camels.</b>
+
+### Part 2
+It is taught in the <i>baraita</i>: <b>And the Rabbis say</b> that the bailee <b>effects a remedy for</b> the spoiled products <b>and sells them in court.</b> The Gemara asks: <b>What remedy does he effect for</b> those products? <b>Rav Ashi said:</b> It is a remedy <b>for the casks.</b> Although the contents of the barrel are irreversibly spoiled, leaving it in the barrels will ruin the barrels.
+
+### Part 3
+The Gemara asks: Since Rabbi Meir agrees that when there is deterioration at a rate greater than its standard rate of deterioration, the bailee should sell the deposit, <b>with regard to what</b> issue <b>do</b> Rabbi Meir and the Rabbis <b>disagree?</b> The Gemara answers: The dispute is <b>that one Sage,</b> Rabbi Meir, <b>holds:</b> The Sages <b>were concerned for a significant loss,</b> but the Sages <b>were not concerned for an insignificant loss,</b> like damage to the barrels. <b>And one Sage,</b> the Rabbis, <b>holds:</b> The Sages <b>were concerned even for an insignificant loss.</b>
+
+### Part 4
+§ The mishna teaches that <b>Rabban Shimon ben Gamliel says: He sells it before the court, due to</b> the fact <b>that</b> in doing so <b>he is like</b> one <b>returning a lost item to the owner. It was stated</b> that <b>Rabbi Abba, son of Rabbi Ya’akov,</b> says that <b>Rabbi Yoḥanan says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel. And Rava</b> says that <b>Rav Naḥman says:</b> The <b><i>halakha</i></b> is <b>in accordance with the statement of the Rabbis.</b>
+
+### Part 5
+The Gemara asks: <b>But</b> why is it necessary for Rabbi Yoḥanan to issue that ruling specifically in this case? <b>Didn’t Rabbi Yoḥanan</b> already <b>say one</b> other <b>time</b> that in general the <i>halakha</i> is in accordance with the opinion of Rabban Shimon ben Gamliel? <b>As Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan said: Every place where Rabban Shimon ben Gamliel taught</b> a ruling <b>in our mishna,</b> the <b><i>halakha</i></b> is <b>in accordance with his</b> opinion, <b>except for</b> the following three cases: The responsibility of the <b>guarantor</b> (<i>Bava Batra</i> 173b), <b>and</b> the incident that occurred in the city of <b>Tzaidan</b> (<i>Gittin</i> 74a), <b>and</b> the dispute with regard to <b>evidence</b> in the <b>final</b> disagreement (<i>Sanhedrin</i> 31a). By inference, in all other cases, Rabbi Yoḥanan holds that the <i>halakha</i> is in accordance with his opinion.
+
+### Part 6
+The Gemara answers: Rabbi Abba and Rabba bar bar Ḥana <b>are <i>amora’im</i></b> and disagree <b>with regard to</b> the opinion <b>of Rabbi Yoḥanan.</b> Rabbi Abba holds that there was no general ruling, and therefore a ruling was necessary in this case. Rabba bar bar Ḥana holds that Rabbi Yoḥanan issued a general ruling.
+
+### Part 7
+The Gemara notes: <b>From</b> the statement <b>of Rabban Shimon ben Gamliel, it is learned</b> that the court authorizes <b>a relative,</b> who is the heir apparent, to <b>descend</b> and manage <b>the property of a captive.</b> A bailee who sells rotting produce is like one returning a lost item to the owner; one who manages the property of a captive who is unable to do so himself should have the same status. <b>From</b> the statement <b>of the Rabbis,</b> who say that the bailee may not touch the rotting produce, <b>it is learned that</b> the court <b>does not authorize a relative</b> to <b>descend</b> and manage <b>the property of a captive.</b>
+
+### Part 8
+The Gemara rejects this parallel: <b>And from where</b> do you draw that conclusion? <b>Perhaps Rabban Shimon ben Gamliel states his opinion here only due to</b> the fact <b>that the principal,</b> i.e., the rotting produce, <b>is destroyed. But there, indeed,</b> the court <b>does not authorize</b> a relative to descend and manage the property of a captive, because if the land lies fallow, the land will remain intact, even if the captive will not profit. <b>And</b> perhaps <b>the Rabbis state their opinion only here</b> based <b>either</b> on the reason <b>of Rav Kahana,</b> that a person prefers his own produce, <b>or</b> on the reason <b>of Rav Naḥman bar Yitzḥak,</b> that there is concern that perhaps the owner designated the produce as <i>teruma</i> or tithe. <b>But there,</b> with regard to the captive’s property, those reasons do not apply, and <b>indeed</b> the court <b>authorizes</b> the relative to manage it.
+
+### Part 9
+The Gemara asks: <b>Is this to say that they are two</b> independent <b>reasons</b> for these two <i>halakhot</i>? <b>But doesn’t Rav Yehuda say</b> that <b>Shmuel says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabban Shimon ben Gamliel, and Shmuel says:</b> The court <b>authorizes a relative to descend</b> and manage <b>the property of a captive? Is it not due to</b> the fact <b>that there is one</b> common <b>reason</b> for both <i>halakhot</i>? The Gemara rejects that reasoning: <b>No, they are</b> based upon <b>two</b> unrelated <b>reasons,</b> and Shmuel ruled the <i>halakha</i> in each case independently.
+
+### Part 10
+The Gemara comments: <b>So too, it is reasonable</b> to say that the two <i>halakhot</i> are unrelated, <b>as Rava says</b> that <b>Rav Naḥman says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>the Rabbis, and Rav Naḥman says:</b> The court <b>authorizes a relative to descend</b> and manage <b>the property of a captive. Rather, learn from it</b> that <b>they are</b> based upon <b>two</b> unrelated <b>reasons.</b> The Gemara affirms: <b>Learn from it</b> that they are unrelated.
+
+### Part 11
+The Gemara notes that <b>it was stated</b> that there is an amoraic dispute with regard to one who <b>was taken captive. Rav says:</b> The court <b>does not authorize a relative to descend</b> and manage <b>the property</b> of a captive. <b>Shmuel says:</b> The court <b>authorizes a relative to descend</b> and manage <b>the property</b> of a captive.
+
+### Part 12
+The Gemara limits the scope of the dispute: In a case <b>where they heard that</b> the captive <b>died, everyone agrees that</b> the court <b>authorizes</b> a relative to <b>descend</b> and manage the property of a captive. The relative is the prospective heir and will tend to the land as if it were his own. If the captive returns, he will compensate the relative for his expenditures.
+
+### Part 13
+<b>When they disagree,</b> it is in a case <b>where they did not hear that</b> the captive <b>died</b> and presumably he will return. <b>Rav says:</b> The court <b>does not authorize</b> a relative to descend and manage the property of a captive, <b>lest he devalue</b> the property. Since presumably the owner of the property is alive, the relative assumes that he will eventually be required to return the property to the owner. Therefore, he does not tend to the land as if it were his own but will farm the land to increase its short-term yield, at the expense of its long-term condition. <b>And Shmuel says:</b> The court <b>authorizes</b> a relative to descend and manage the property of a captive. <b>Since the Master said:</b> In any case where one works a field that is not his, <b>we appraise</b> his work <b>as</b> if he were <b>a sharecropper,</b> the relative <b>will not devalue</b> the property. It is in his best interest to tend to the land to ensure that he will receive his payment.
+
+### Part 14
+The Gemara <b>raises an objection</b> from a <i>baraita</i>. <b>Rabbi Eliezer says: By inference, from that which is stated: “My wrath shall wax hot, and I will kill you”</b> (Exodus 22:23), <b>I know that their wives</b> shall be <b>widows and their children orphans. Rather, what</b> is the meaning when <b>the verse states: “And your wives shall be</b> widows and your children orphans” (Exodus 22:23)? Why is this clause in the verse necessary?
+
+### Part 15
+The verse <b>teaches</b> an additional punishment, that the men will be killed with no witnesses. <b>Their wives will seek to marry, and</b> the courts <b>will not allow them</b> to do so without witnesses to their husbands’ deaths. <b>And their children will wish to descend to their father’s property,</b> to inherit it, <b>and</b> the courts <b>will not allow them</b> to do so. Apparently, the court does not authorize a relative to descend and manage the property of a captive. <b>Rava said: We learned</b> in the <i>baraita</i> that the courts do not allow them <b>to descend and to sell</b> the land, but the court does authorize a relative to descend and manage the land.
+
+### Part 16
+The Gemara relates: There <b>was</b> a similar <b>incident in Neharde’a, and Rav Sheshet resolved</b> the matter <b>from this <i>baraita</i></b> and ruled that the court does not authorize a relative to descend to the property of a captive. <b>Rav Amram said to him: Perhaps we learned</b> in the <i>baraita</i> that the courts do not allow a relative <b>to descend and to sell</b> the land? Rav Sheshet <b>said</b> mockingly <b>to him,</b> employing a similar style: <b>Perhaps you are from Pumbedita, where</b> people <b>pass an elephant through the eye of a needle,</b> i.e., they engage in specious reasoning. <b>But doesn’t</b> the juxtaposition between <b>their wives and their children</b> in the verse <b>teach</b> that the meaning is <b>similar</b> in both cases? <b>Just as there,</b> with regard to the wives, it means that they may <b>not</b> remarry <b>at all, so too here,</b> with regard to the sons, it means that they may <b>not</b> descend to the property <b>at all.</b>
+
+### Part 17
+The Gemara comments: <b>And</b> the matter of whether the court <b>authorizes a relative to descend</b> and manage <b>the property of a captive is</b> a dispute between <b><i>tanna’im</i>, as it is taught</b> in a <i>baraita</i>: In the case of <b>one who descends to the property of a captive</b> and works his field, the court <b>does not confiscate it from his possession. And furthermore, even if he heard that</b> the owners <b>are approaching and arriving, and</b> the one who descended to the field <b>preceded</b> their arrival <b>and uprooted and consumed</b> produce that grew that year, <b>that</b> person is deemed <b>diligent and he profits,</b> as he received a return on the work that he invested. <b>And these</b> are the cases where there <b>is captives’ property:</b> Cases <b>where one’s father, or brother, or one of</b> those relatives <b>who bequeaths</b> him an inheritance <b>went to a country overseas, and</b> those in his locale <b>heard that</b> the relative <b>died.</b>
+
+### Part 18
+In the case of <b>one who descends to abandoned property,</b> the court <b>removes it from the possession of</b> the one managing it. <b>And these</b> are the cases where there <b>is abandoned property:</b> Cases <b>where one’s father, or brother, or one of</b> those relatives <b>who bequeaths</b> him an inheritance <b>went to a country overseas, and</b> those in his locale <b>did not hear that</b> the relative <b>died. And Rabban Shimon ben Gamliel said: I heard that the</b> legal status of <b>abandoned</b> property <b>is like</b> that of the property of <b>captives,</b> and it is not confiscated from the possession of the one managing it. The dispute between the first <i>tanna</i> and Rabban Shimon ben Gamliel parallels the dispute between Rav and Shmuel.
+
+### Part 19
+With regard to <b>one who descends to forsaken property,</b> the court <b>removes it from his possession. And these</b> are the cases where there is <b>forsaken property:</b> Cases <b>where one’s father, or brother, or one of</b> those relatives <b>who bequeaths</b> him an inheritance was <b>here, and</b> the relative <b>does not know where they went.</b> Everyone agrees that in these instances the court does not authorize a relative to descend to the property.
+
+### Part 20
+The Gemara asks: <b>What is different</b> about one property, <b>that it is called abandoned</b> property? <b>And what is different</b> about the other property, <b>that it is called forsaken</b> property?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

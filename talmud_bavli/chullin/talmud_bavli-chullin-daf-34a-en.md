@@ -1,0 +1,39 @@
+
+### Part 1
+<b>with regard to</b> the case of <b>non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of <i>teruma</i> and</b> in accordance with the opinion of <b>Rabbi Yehoshua.</b> The Gemara responds: <b>It</b> should <b>not enter your mind</b> that the mishna is referring to a case of the level of purity of <i>teruma</i>, <b>as</b> the mishna <b>teaches</b> a case of the slaughter of animals and birds and consumption of their <b>meat.</b> And <b>if</b> the mishna is taught <b>with regard to</b> non-sacred food items that were prepared on the level of purity of <b><i>teruma</i>, is there meat</b> eaten with the level of purity of <i>teruma</i>? The practice of preparing non-sacred food items on the level of purity of <i>teruma</i> is done only so that one will not treat actual <i>teruma</i> in the correct manner, and <i>teruma</i> is separated only from produce that grows in the ground.
+
+### Part 2
+The Gemara asks: <b>Rather, what</b> is the case in the mishna? Is it a case of non-sacred food items that were prepared on the level of purity of <b>sacrificial</b> food? <b>Is there an undomesticated animal</b> that can be sacrificed as an offering and its meat is <b>sacrificial</b> food? The Gemara answers: Although undomesticated animals cannot be sacrificed as an offering, there are those who would undertake to eat their meat only when prepared on the level of purity of sacrificial food because <b>meat</b> of an undomesticated animal is sometimes <b>interchanged with meat</b> of a domesticated animal. No one would undertake to eat meat only when prepared on the level of purity of <i>teruma</i>, because <b>meat</b> would <b>not</b> be <b>interchanged with produce.</b>
+
+### Part 3
+<b>Ulla said:</b> My <b>colleagues say</b> that the mishna is referring to the case <b>of non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of sacrificial</b> food, <b>and</b> the mishna is <b>not in accordance with</b> the opinion of <b>Rabbi Yehoshua,</b> who says: Non-sacred food items that were prepared on the level of purity of <i>teruma</i> assume third-degree impurity, but non-sacred food items that were prepared on the level of purity of sacrificial food do not assume third-degree impurity.
+
+### Part 4
+Ulla continues: <b>And I say</b> that the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Yehoshua,</b> and when he said that non-sacred food items that were prepared on the level of purity of <i>teruma</i> assume third-degree impurity, he <b>is speaking</b> utilizing the style of: <b>It is not necessary. It is not necessary</b> to say that in the case of <b>non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of sacrificial</b> food, <b>which is stringent, that they have</b> the capacity of assuming <b>third-degree</b> impurity. <b>Rather, even non-sacred</b> food items <b>that were prepared on the</b> level of <b>purity of <i>teruma</i> also have</b> the capacity of assuming <b>third-degree</b> impurity.
+
+### Part 5
+The Gemara asks: <b>Who are the colleagues</b> to whom Ulla referred? <b>It is Rabba bar bar Ḥana, as Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says: What did Rabbi Eliezer and Rabbi Yehoshua reply to each other?</b> The differences between their opinions are twofold. First, Rabbi Eliezer holds that one who eats food with first-degree impurity assumes first-degree impurity, while according to Rabbi Yehoshua he assumes second-degree impurity. Second, Rabbi Eliezer holds that one who eats food with third-degree impurity assumes third-degree impurity, while according to Rabbi Yehoshua he assumes second-degree impurity vis-à-vis sacrificial food but not vis-à-vis <i>teruma</i>.
+
+### Part 6
+<b>Rabbi Eliezer said to Rabbi Yehoshua:</b> The basis for my opinion that one assumes the level of impurity of that which he ate is that <b>we found</b> a case where the <i>halakha</i> of <b>the one who eats</b> a food item <b>is more stringent than</b> the <i>halakha</i> of <b>the food</b> itself. <b>As, the carcass of a kosher bird</b> on <b>the outside,</b> i.e., when one comes into contact with it, <b>does not impart ritual impurity, while</b> one who <b>eats</b> the carcass of the kosher bird <b>renders</b> his <b>garments impure</b> when the food is <b>in</b> his <b>throat. And we,</b> in light of that, <b>how will we not deem one who eats</b> the impure item to be on a level of impurity at least <b>like</b> that of <b>the food</b> that he ate?
+
+### Part 7
+<b>And Rabbi Yehoshua</b> responded that <b>we do not derive</b> other cases <b>from the</b> case of the <b>carcass of a kosher bird, because it is a novel</b> ruling that cannot serve as a paradigm. <b>Rather, we found that</b> the <i>halakha</i> of <b>food is more stringent than</b> the <i>halakha</i> of <b>the one who eats</b> it, <b>as food</b> becomes impure if its measure is <b>that</b> of <b>an egg-bulk, and</b> one who <b>eats</b> impure food does not become impure <b>until he eats half of a half-loaf. And we,</b> in light of that, <b>how will we deem one who eats</b> the impure item to be on a level of impurity <b>like</b> that of <b>the food</b> that he ate?
+
+### Part 8
+<b>And Rabbi Eliezer</b> responded: <b>We do not derive</b> the relative stringency of ritual <b>impurity from</b> the relative size of halakhic <b>measures,</b> as measures are not indicative of stringency or leniency. <b>And furthermore, according to your statement, that</b> which <b>you say with regard to one who eats food</b> with <b>first-degree</b> ritual impurity, that he assumes <b>second-degree</b> impurity, what <b>you say</b> is <b>well.</b> But <b>that</b> which <b>you say</b> with regard to one who eats food with <b>second-degree</b> impurity, that he assumes <b>second-degree</b> impurity, <b>why</b> is that the case? It contradicts your reasoning.
+
+### Part 9
+Rabbi Yehoshua <b>said to</b> Rabbi Eliezer: <b>We found that</b> food with <b>second</b>-<b>degree</b> impurity <b>renders</b> other food impure with <b>second-degree</b> impurity <b>by means of liquids.</b> Liquids that come into contact with food with second-degree impurity render other food with which they come into contact impure with second-degree impurity.
+
+### Part 10
+Rabbi Eliezer <b>said to him: But aren’t</b> those <b>liquids also</b> impure with <b>first-degree</b> ritual impurity through contact with an item impure with second-degree impurity? <b>As we learned</b> in a mishna (<i>Para</i> 8:7): <b>Any</b> item with second-degree ritual impurity that <b>disqualifies <i>teruma</i> renders liquids impure</b> with <b>first-degree</b> ritual impurity. These liquids assume a degree of impurity greater than that of the item that rendered them impure. This rabbinic decree applies to all people and items with second-degree impurity <b>except</b> for <b>one</b> who was ritually impure <b>who immersed that day</b> and is waiting for nightfall for the purification process to be completed. Liquids with which he comes into contact follow the standard course of transmitted impurity and assume third-degree impurity, one level below his own impurity.
+
+### Part 11
+Rabbi Eliezer questioned the next segment in the ruling of Rabbi Yehoshua: <b>And furthermore,</b> that which you say with regard to one who eats food with <b>third-degree</b> impurity, that he assumes <b>second-degree</b> impurity vis-à-vis sacrificial food, <b>why</b> is that the <i>halakha</i>? It contradicts your reasoning.
+
+### Part 12
+Rabbi Yehoshua <b>said to</b> Rabbi Eliezer: <b>I too stated</b> that one who eats food with third-degree impurity assumes second-degree impurity vis-à-vis sacrificial food <b>only with regard to</b> one who eats non-sacred food items that were prepared on the level of purity of <b><i>teruma</i>, as its</b> state of <b>purity</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

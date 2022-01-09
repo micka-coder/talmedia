@@ -1,0 +1,45 @@
+
+### Partie 1
+<b>Comme il est écrit : <b>Vous ne porterez pas ensemble diverses sortes</b> de laine et de lin. <b>Tu te feras des franges torsadees</b> aux quatre coins de ta couverture dont tu te couvriras" (Deuteronome 22:11""12). Ces versets enseignent que, malgre l'interdiction de porter diverses sortes de laine et de lin, il est permis de preparer des franges rituelles de diverses sortes, par exemple des fils de laine teints en bleu ciel sur des vetements de lin. Cela montre que la mitzva positive des franges rituelles l'emporte sur l'interdiction de porter des vetements de differentes sortes.
+
+### Partie 2
+<b>Et Rabbi Elazar dit : D'ou</b> dans la Torah provient-il que l'on peut tirer des interpretations homiletiques de la <b>juxtaposition</b> de versets ? En d'autres termes, d'ou vient que le fait que certains versets soient adjacents les uns aux autres est une raison d'appliquer les <i>halakhot</i> d'un verset a l'autre ? <b>Comme il est dit :</b> "Les œuvres de ses mains en verite et en justice, tous ses commandements sont surs". <b>Juxtaposes a jamais, faits dans la verite et la droiture" </b> (Psaumes 111:7""8). Ce verset indique qu'il est approprie de tirer des deductions de la juxtaposition des commandements de Dieu.
+
+### Partie 3
+<b>Et</b> de meme, <b>Rav Sheshet a dit</b> que <b>Rabbi Elazar a dit au nom de Rabbi Elazar ben Azarya : D'ou</b> provient-il en ce qui concerne <b>une <i>yevama</i> qui est venue avant</b> une <i>yavam</i> <b>affligee de furoncles qu'on ne peut pas la museler,</b> c'est-a-dire qu'on ne peut pas la forcer a contracter un mariage levirat, et il est oblige de la liberer par <i>halitza</i> ? <b>Comme il est dit : <b>Vous ne musellerez pas un bœuf pendant qu'il foule le ble</b> (Deuteronome 25, 4), <b>et, juxtapose a cela,</b> se trouve le verset : <b>"Si des freres habitent ensemble"</b> (Deuteronome 25:5), qui commence le passage qui traite des <i>halakhot</i> du mariage levirat. Cela enseigne que, de meme qu'il est interdit de museler le bœuf, on ne doit pas museler et ignorer les plaintes d'un <i>yevama</i> qui ne souhaite pas epouser une <i>yavam</i> affligee de furoncles.
+
+### Partie 4
+<b>Et Rav Yosef dit : Meme selon celui qui ne tire generalement pas d'interpretations homiletiques de versets juxtaposes</b>, neanmoins, il les <b>derive</b> <b>du Deuteronome, comme Rabbi Yehouda ne tire generalement pas d'interpretations homiletiques</b> de versets juxtaposes, <b>et</b> neanmoins <b>il les deduit</b> <b>du Deuteronome.</b>
+
+### Partie 5
+§ La Gemara demande : <b>Et d'ou tirons-nous</b> que Rabbi Yehouda <b>generalement ne tire pas d'interpretations homiletiques</b> de versets juxtaposes ? <b>Comme il est enseigne</b> dans une <i>baraita</i> a propos de la punition d'une sorciere que <b>ben Azzai dit</b> que <b>il est enonce : "Tu ne permettras pas a une sorciere de vivre"</b> (Exode 22:17), bien que la maniere de son execution ne soit pas specifiee, <b>et il est dit : "Quiconque couche avec une bete sera certainement mis a mort"</b> (Exode 22:18). La Torah <b>juxtapose cette affaire a celle-la</b> de maniere a dire : <b>De meme que celui qui couche avec une bete</b> est execute <b>par lapidation</b> (voir Levitique 20:16), <b>de meme, une sorciere</b> est executee <b>par lapidation.</b>
+
+### Partie 6
+A propos de cette preuve, <b>Rabbi Yehuda dit a</b> ben Azzai : <b>Et</b> simplement <b>en raison</b> du fait <b>que</b> la Torah <b>juxtapose cette affaire a celle-la</b>, <b>doit-on sortir cette</b> personne <b>pour la lapider ?</b> Doit-on la condamner a la plus severe des peines de mort sur la base d'une juxtaposition de passages ?
+
+### Partie 7
+<b>Au contraire,</b> Rabbi Yehouda affirme que la source est la declaration suivante : <b>Les mediums et les sorciers etaient inclus parmi tous les sorciers. Et pourquoi ont-ils ete distingues</b> des autres dans le verset : A "A Et un homme ou une femme qui est un medium ou un sorcier sera certainement mis a mort ; on les lapidera, leur sang est sur euxA" (Levitique 20.27) ? C'est pour <b>etablir une analogie avec eux et vous dire : De meme qu'un medium et un sorcier</b> sont executes <b>par lapidation, de meme, une sorciere</b> est executee <b>par lapidation.</b> Cela montre que Rabbi Yehouda ne tire pas d'interpretations homiletiques de versets juxtaposes.
+
+### Partie 8
+§ <b>Et d'ou tirons-nous</b> que</b> Rabbi Yehuda <b>derive</b> des interpretations homiletiques <b>dans le Deuteronome ? Comme nous l'avons appris</b> dans une mishna : <b>Une personne peut epouser</b> une femme <b>violee par son pere et</b> une <b>eduquee par son pere,</b> malgre le fait que la femme de son pere lui soit interdite. De meme, il peut epouser une femme <b>violee par son</b> fils <b>et</b> une <b>seduite par son fils.</b> Bien qu'il soit interdit par la loi de la Torah d'epouser la femme de son pere ou la femme de son fils, ces interdictions ne s'appliquent pas a une femme violee ou seduite par eux. <b>Et Rabbi Yehouda lui interdit</b> d'epouser <b>une femme violee par son pere et une femme seduite par son pere.</b>
+
+### Partie 9
+<b>Et Rav Giddel dit</b> que <b>Rav a dit : Quelle est la raison de l'opinion de Rabbi Yehudas</b> ? <b>Comme il est ecrit : "Un homme ne prendra pas la femme de son père, et ne découvrira pas la jupe de son père"</b> (Deutéronome 23:1). Cette dernière expression : "Et ne decouvrira pas la jupe de son pere," fait reference a <b>une jupe qui a ete vue par son pere,</b> c'est-a-dire que toute femme qui a eu des relations avec son pere <b>ne peut pas etre decouverte</b> par son fils, ce qui signifie que son fils ne peut pas l'epouser.
+
+### Partie 10
+<b>Et d'ou sait-on <b>que</b> le verset <b>est ecrit a propos d'une femme violee par son pere ?</b> C'est <b>a partir du verset precedent</b>, qui traite des <i>halakhot</i> du viol, <b>comme il est ecrit : "Et l'homme qui a couche avec elle doit donner au pere de la jeune fille cinquante sicles d'argent"</b> (Deuteronome 22:29), <b>et juxtapose a celui-ci</b> se trouve le verset : <b>L'homme ne prendra pas la femme de son pere</b> et ne decouvrira pas la jupe de son pere.</b> Cela montre que Rabbi Yehuda tire effectivement des interpretations homiletiques des versets juxtaposes du Deuteronome.
+
+### Partie 11
+§ La Guemara demande : <b>Et</b> comment <b>les rabbins,</b> qui ne sont pas d'accord avec l'opinion de Rabbi Yehuda, repondent-ils a cet argument ? Ils disent : <b>Si</b> les deux versets etaient entierement <b>juxtaposes,</b> il serait interprete <b>comme vous l'avez dit.</b> Cependant, <b>maintenant</b> que <b>il n'est pas</b> correctement <b>juxtapose, car il est ecrit : "Un homme ne prendra pas la femme de son père", entre</b> les <i>halakhot</i> de viol et la prononciation concernant le découvrement du vêtement de son père, cela sert A rompre la juxtaposition.
+
+### Partie 12
+Par consequent, ce <b>verse</b> particulier concernant le fait de decouvrir le vetement de son pere <b>parle d'une femme qui attend son <i>yavam</i>,</b> en l'occurrence son pere. En d'autres termes, la <i>yevama</i> d'un pere qui attend le levirat de son pere est deja consideree comme "la jupe de son pere", et elle est donc interdite au fils. Bien que cette femme en attente de levirat soit en fait la femme de son oncle et lui soit de toute facon explicitement interdite, ce passage vient enseigner que <b>il enfreint deux interdictions.</b> En d'autres termes, s'il s'engageait dans des relations avec elle, il serait penalise a la fois pour des relations avec la femme de son oncle et des relations avec la "jupe de son pere".
+
+### Partie 13
+§ La Gemara demande : <b>Mais</b> comme Rabbi Yehouda ne deduit generalement pas d'interpretations homiletiques de versets juxtaposes, <b>quelle est la raison pour laquelle il derive</b> ces interpretations <b>dans le Deuteronome ?</b> La Guemara repond : <b>Si tu veux, dis</b> que c'est <b>parce que</b> c'est <b>evident</b> d'apres le contexte ; <b>et si tu veux, dis</b> plutot que c'est <b>parce que</b> ce verset est etranger et est donc <b>libre</b> de cette deduction.
+
+### Partie 14
+La Guemara developpe : <b>Si tu veux, dis</b> que c'est <b>parce que</b> c'est <b>evident ; comme, si</b> c'est <b>ainsi</b> que le verset n'avait pas l'intention d'enseigner par juxtaposition, <b>laissons le Misericordieux ecrire</b> cette <i>halakha</i> interdisant le mariage avec la femme du pere <b>a cote</b> des autres femmes <b>avec lesquelles les relations sont interdites,</b> dans le Levitique. Puisque ce verset n'est pas a sa place, il vient certainement enseigner par juxtaposition. <b>Et si tu veux, dis</b> plutot que c'est <b>parce que</b> ce verset est <b>libre, car, si</b> c'est <b>donc</b> que le verset ne vient pas enseigner une <i>halakha</i> supplementaire, <b>que le Misericordieux ecrive</b> seulement : <b>"Un homme ne prendra pas la femme de son pere"</b> Pourquoi ai-je</b> besoin de la phrase : <b>"Et ne decouvrira pas la jupe de son pere"?</b> Cette phrase est superflue, et donc elle enseigne par juxtaposition.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Part 1
+<b>Beit Shammai say: Even</b> the stream <b>of a stew</b> made of <b>crushed and broken beans or of whole beans</b> also connects two items <b>because it returns backward.</b> When one stops pouring this stew, part of the dish reverts to its place of origin, and therefore the stream is considered a single unit.
+
+### Part 2
+§ <b>Rami bar Ḥama raises a dilemma:</b> According to the opinion of the Rabbis that in general, poured liquid does not serve to connect, <b>is there a stream for food, or is there not a stream for food?</b> If one pours melted food into an impure vessel, does the food which one is pouring become impure? The Gemara explains the two sides of the dilemma: <b>Do we say</b> that <i>zifim</i> honey and batter connect different items <b>because they have a flow</b> that returns backward, <b>and these</b> regular foods <b>do not have a flow</b> that returns backward? <b>Or, perhaps</b> the reason why <i>zifim</i> honey and batter connect is <b>because they are viscous, and here</b> the melted foodstuffs <b>are</b> also <b>viscous.</b>
+
+### Part 3
+<b>Rava said: Come</b> and <b>hear</b> a resolution from the <i>Tosefta</i> (<i>Oholot</i> 4:3): If there was <b>fat of a corpse that was whole</b> and contained an olive-bulk, <b>and one melted it,</b> it is <b>ritually impure.</b> If from the outset the fat <b>was separated</b> into pieces smaller than an olive-bulk, which do not impart impurity, <b>and one melted it,</b> so that it combined into an olive-bulk in its melted state, it is <b>pure. And if it enters your mind</b> that <b>there is no stream for food,</b> even if it was <b>whole and one melted it, it should also be pure,</b> as it became liquid and spread throughout the pan. Consequently, each part should be considered separate, which means the food is not the size of an olive-bulk.
+
+### Part 4
+<b>Rabbi Zeira said: I and Mar, son of Ravina, explained</b> it: <b>With what are we dealing here?</b> With a case <b>where as he was heating it, the column of fire rose</b> from under the pan <b>to the mouth of the vessel, and</b> the fat <b>congealed</b> there, <b>so that it was all</b> present <b>together,</b> i.e., there was no stream at all.
+
+### Part 5
+<b>Ravina said to Rav Ashi: Come</b> and <b>hear</b> a resolution from the mishna to the question of whether food is considered a stream. <b>Beit Shammai say: Even</b> the stream of <b>a stew made of crushed and broken beans or of whole beans</b> also connects two items <b>because it returns backward.</b> This indicates that the dispute in the mishna is whether or not stew meets the criteria of returning backward, and the Rabbis hold that honey and anything like it, which return backward, are considered a stream. Rav Ashi replied: <b>Are the cases comparable? There,</b> in the case of honey, one might suggest it is a stream <b>because</b> it <b>is viscous. Here,</b> with regard to the stew, the reason Beit Shammai rule stringently is <b>due to</b> the <b>flow,</b> which returns backward. The Rabbis do not agree that this is a factor at all.
+
+### Part 6
+§ The mishna taught: <b>And for</b> impurity imparted by <b>a full ladle of dust.</b> The Gemara inquires: <b>And how much is</b> this <b>measure</b> of a full ladle of dust? <b>Ḥizkiyya said: A full palm of the hand. Rabbi Yoḥanan said: His handfuls,</b> i.e., the amount that can be held in the whole hand, including the fingers. The Gemara cites a relevant source. <b>We learned</b> in the <i>Tosefta</i> (<i>Oholot</i> 2:2): <b>The full ladle of dust that</b> the Sages <b>spoke of includes</b> all that can be contained <b>from the base</b> of the <b>fingers and above;</b> this is <b>the statement of Rabbi Meir. And the Rabbis say: His handfuls.</b>
+
+### Part 7
+<b>Granted, Rabbi Yoḥanan spoke in accordance with</b> the opinion of <b>the Rabbis. But</b> in accordance <b>with whose</b> opinion <b>did Ḥizkiyya</b> state his opinion? His ruling is <b>neither in accordance with</b> the opinion of <b>Rabbi Meir nor in accordance with</b> that of <b>the Rabbis.</b> The Rabbis require his handfuls, Rabbi Meir refers only to the amount contained in the fingers themselves, while Ḥizkiyya rules that it is the amount that can rest on the palm of a hand. The Sages <b>say</b> in response that Ḥizkiyya’s amount of <b>a full palm of</b> his <b>hand and</b> Rabbi Meir’s measurement of <b>a full</b> amount of <b>his finger joints</b> from the palm of the hand <b>and above are one</b> and the same <b>measure.</b>
+
+### Part 8
+The Gemara raises a difficulty with regard to the basis of the question directed toward the opinion of Ḥizkiyya. <b>Rav Shimi bar Adda said to Rav Pappa: From where</b> do we know <b>that this</b> amount specified by Rabbi Meir: <b>From his finger joints and above,</b> means <b>toward the ends</b> of the fingers? <b>Perhaps</b> it is referring <b>to below it,</b> toward the arm, <b>in which</b> case <b>it is</b> exactly the same as Ḥizkiyya’s amount: <b>A full palm of the hand.</b> If so, this <i>baraita</i> presents no difficulty to Ḥizkiyya at all. No answer was found, and the Gemara says that the question <b>shall stand</b> unresolved.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

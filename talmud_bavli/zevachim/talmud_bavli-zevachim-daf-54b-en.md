@@ -1,0 +1,36 @@
+
+### Part 1
+<b>that he cuts</b> the base on the southern and western sides after he has poured the mixture for the altar and it has dried, <b>it is written</b> concerning the altar: “You shall build the altar of the Lord your God of <b>unhewn stones;</b> and you shall offer burnt offerings on it to the Lord your God” (Deuteronomy 27:6), so it cannot be cut.
+
+### Part 2
+Rav could answer: This means <b>that he places something under</b> the frame, in the place where there is to be no base, <b>and</b> after the poured mixture has dried he <b>removes it,</b> leaving the space empty. <b>As if you do not say so,</b> how will you explain <b>that which Rav Kahana says: The stone</b> interiors <b>of the corners were hollow,</b> i.e., there were gaps between the stones, <b>as it is written: “And they shall be filled like the basins, like the corners of the altar”</b> (Zechariah 9:15)? The verse compares the corners to hollow basins. <b>Here too,</b> doesn’t <b>the Merciful One state</b> that the altar must be made of <b>“unhewn stones”?</b> If so, how could the corners be hollow? <b>Rather,</b> it must be <b>that he places something,</b> e.g., sticks and twigs, <b>under</b> the frame and pours the mixture for the corners over it, <b>and</b> when it has hardened, <b>removes</b> the sticks and twigs, leaving the corners somewhat hollow. <b>Here too, he places something under</b> the frame <b>and</b> later <b>removes it.</b>
+
+### Part 3
+§ Apropos the altar and the Temple, the Gemara relates that <b>Rava taught: What</b> is the meaning of that <b>which is written</b> concerning David: <b>“And he and Samuel went and dwelt in Naioth.</b> And it was told Saul, saying: Behold, David is at Naioth [<i>beNayot</i>] <b>in Ramah”</b> (I Samuel 19:18–19)? <b>But what does Naioth have to do with Ramah?</b> They are in two distinct places. <b>Rather,</b> this means <b>that they were sitting in Ramah and</b> were <b>involved in</b> discussing <b>the beauty [<i>benoyo</i>] of the world,</b> i.e., the Temple.
+
+### Part 4
+David and Samuel <b>said: It is written: “Then you shall arise, and get you up unto the place</b> which the Lord your God shall choose” (Deuteronomy 17:8). This <b>teaches that the Temple is higher than all</b> places in <b>Eretz Yisrael. And Eretz Yisrael is higher than all countries. They did not know where</b> the highest <b>place</b> in Eretz Yisrael was.
+
+### Part 5
+<b>They brought the book of Joshua. With regard to all of</b> the borders of the tribes <b>it is written: “And went down”</b> (see Joshua 15:10, 16:3, 17:9), and it is written: <b>“And the border went up</b> to Beth Hoglah.” (Joshua 15:6), and: <b>“And the border was drawn</b> from the top of the mountain to the fountain of the waters of Nephtoah” (Joshua 15:9). The verse uses different terms to describe the borders of the portion of each tribe. And <b>with regard to</b> the borders of <b>the tribe of Benjamin it is written</b> only: <b>“And went up”</b> (Joshua 18:11), but it <b>is not written: “And went down.” They said: Conclude from</b> the verses that the Temple’s <b>place is here,</b> in the portion of Benjamin.
+
+### Part 6
+<b>They thought to build it at Ein Eitam, which is higher</b> than any other place in the portion of Benjamin. <b>They said: Let us lower it a bit, as it is written:</b> “He covers it throughout the day, <b>and He dwells between his shoulders”</b> (Deuteronomy 33:12). This indicates that the Temple is situated slightly lower, between two peaks.
+
+### Part 7
+<b>And if you wish, say</b> instead that <b>it is learned</b> as a tradition <b>that</b> the <b>Sanhedrin</b> is to be located <b>in the portion of Judah, and</b> the place of the <b>Divine Presence is</b> to be located <b>in the portion of Benjamin.</b> They said: <b>And if we raise it</b> and place it near Ein Eitam <b>it</b> will be <b>too distant</b> from the portion of Judah. They said: It is <b>preferable that we lower it a bit, as it is written:</b> “He covers it throughout the day, <b>and He dwells between his shoulders”</b> (Deuteronomy 33:12).
+
+### Part 8
+<b>And with regard to this matter,</b> that David and Samuel discovered the location of the Temple, <b>Doeg the Edomite was jealous of David, as it is written: “Because jealousy for Your House has eaten me up”</b> (Psalms 69:10), <b>and it is written: “Lord, remember for David all his affliction; how he swore to the Lord,</b> and vowed unto the Mighty One of Jacob: <b>I will not come into the tent of my house,</b> nor go up into the bed that is spread for me; <b>if I will give sleep to my eyes, or slumber to my eyelids; until I find a place for the Lord,</b> a dwelling place for the Mighty One of Jacob” (Psalms 132:1–5).
+
+### Part 9
+The verse following those verses states: <b>“We heard of it as being in Ephrath; we found it in the field of the wood”</b> (Psalms 132:6). Rava explains the meaning of these words: <b>“In Ephrath”; this</b> is a reference to <b>Joshua, who came from</b> the tribe of <b>Ephraim.</b> This alludes to the fact that David and Samuel were able to locate the highest place in Eretz Yisrael based on the book of Joshua. <b>“We found it in the field of the wood”; this</b> is a reference to <b>Benjamin, as it is written</b> concerning him: <b>“Benjamin is a wolf that tears apart;</b> in the morning he devours the prey, and in the evening he divides the spoil” (Genesis 49:27). A wolf is a wild animal living in the field, and David and Samuel found the location of the Temple in the portion of Benjamin.
+
+### Part 10
+<strong>MISHNA:</strong> These are the <i>halakhot</i> of <b>communal peace offerings and guilt offerings. These are guilt offerings: The guilt offering for robbery,</b> brought by one from whom another demanded payment of a debt and he denied it and took a false oath (see Leviticus 5:20–26); <b>the guilt offering for</b> unwitting <b>misuse</b> of consecrated property (see Leviticus 5:14–16); <b>the guilt offering of an espoused maidservant,</b> brought by one who engaged in sexual intercourse with a Canaanite maidservant betrothed to a Hebrew slave (see Leviticus 19:20–22); <b>the guilt offering of a nazirite</b> who became impure via contact with a corpse (see Numbers 6:12); <b>the guilt offering of a leper,</b> brought for his purification (see Leviticus 14:12); and <b>the provisional guilt offering,</b> brought by one who is uncertain as to whether he committed a sin that requires a sin offering (see Leviticus 5:17–18).
+
+### Part 11
+Concerning all of these, <b>their slaughter</b> is <b>in the north</b> of the Temple courtyard <b>and collection of their blood in a service vessel</b> is <b>in the north, and their blood requires two placements that are four. And</b> the meat portions of the offering <b>are eaten within the curtains,</b> i.e., in the Temple courtyard, <b>by male priests.</b> And they are eaten prepared <b>in any</b> manner of <b>food</b> preparation, <b>on</b> the <b>day</b> the offering was sacrificed <b>and</b> during the <b>night</b> that follows, <b>until midnight.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

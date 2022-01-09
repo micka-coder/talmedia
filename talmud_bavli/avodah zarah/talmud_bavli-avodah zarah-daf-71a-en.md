@@ -1,0 +1,24 @@
+
+### Part 1
+<strong>GEMARA:</strong> <b>And</b> the Gemara <b>raises a contradiction</b> to the assumption that soldiers during wartime do not have time to commit transgressions from that which is taught in another mishna (<i>Ketubot</i> 27a): With regard to <b>a city that was conquered by</b> an army laying <b>siege, all the women</b> married to <b>priests</b> located <b>in</b> the city <b>are unfit</b> and forbidden to their husbands, due to the concern that they were raped. <b>Rav Mari</b> resolved the contradiction and <b>said: They do not have time to pour</b> wine for <b>libations,</b> as their passion for idolatry is not pressing at that time, but <b>they have time to engage in intercourse,</b> because their lust is great even during wartime.
+
+### Part 2
+<strong>MISHNA:</strong> With regard to <b>Jewish craftsmen to whom a gentile sent a barrel of wine</b> used for <b>a libation in</b> lieu of <b>their wage,</b> it is <b>permitted</b> for them <b>to say</b> to him: <b>Give us its monetary value</b> instead. But <b>once it has entered into their possession,</b> it is <b>prohibited</b> for them to say so, as that would be tantamount to selling the wine to the gentile and deriving benefit from it.
+
+### Part 3
+<strong>GEMARA:</strong> <b>Rav Yehuda says</b> that <b>Rav says:</b> It is <b>permitted for a person to say to a gentile: Go and placate</b> the collectors of <b>the governmental tax</b> on wine <b>for me,</b> and I will reimburse you subsequently, even if he pays the tax with wine used for a libation.
+
+### Part 4
+One of the Sages <b>raised an objection</b> from a <i>baraita</i>: <b>A person may not say to a gentile: Go in my stead to the commissary [<i>la’otzer</i>]</b> to pay the wine tax for me, if he pays it in wine used for a libation. <b>Rav said to him: You say</b> that the case I am referring to is similar to one who says to a gentile: <b>Go in my stead to the commissary?</b> In that case, since he says: In my stead, whatever the gentile gives the commissary is considered as though the Jew gave it himself. <b>This</b> case that I am referring to <b>is comparable only to that</b> which is taught in the <i>baraita</i>: <b>But</b> the Jew <b>may say to</b> a gentile: <b>Save me from the commissary.</b>
+
+### Part 5
+<strong>MISHNA:</strong> In the case of a Jew <b>who sells his wine to a gentile,</b> if <b>he fixed</b> a price <b>before he measured</b> the wine into the gentile’s vessel, deriving benefit from <b>the money</b> paid <b>for</b> the wine is <b>permitted.</b> It is not tantamount to selling wine used for a libation, as the gentile purchased the wine before it became forbidden, and the money already belonged to the Jew. But if the Jew <b>measured</b> the wine into the gentile’s vessel, thereby rendering it forbidden, <b>before he fixed</b> a price, <b>the money</b> paid <b>for</b> the wine is <b>forbidden.</b>
+
+### Part 6
+<strong>GEMARA:</strong> <b>Ameimar says:</b> The legal act of <b>acquiring</b> an object <b>by pulling</b> it applies <b>to a gentile. Know</b> that it is so, <b>as those Persians send gifts [<i>pardashnei</i>] to one another and do not retract them,</b> which shows that they acquire one from another by pulling the object alone, even without paying for it. <b>Rav Ashi says: Actually, I will say to you</b> that <b>pulling</b> an object <b>does not acquire</b> it <b>in</b> a transaction involving <b>a gentile, and</b> the fact <b>that they do not retract their</b> gifts is not due to the <i>halakhot</i> of acquisition but <b>because they are taken over by haughtiness,</b> and they consider it shameful to retract a gift.
+
+### Part 7
+<b>Rav Ashi said: From where do I say that</b> acquisition by pulling does not apply to gentiles? It is <b>from</b> that <b>which Rav said to certain wine shopkeepers: When you measure wine for gentiles, take</b> the <b>dinars from them and then measure</b> the wine <b>for them. And if they do not have dinars with them</b> readily available, <b>lend them</b> dinars <b>and then take</b> those dinars back <b>from them, so that it will be a loan</b> provided <b>to them</b> that they are repaying. <b>As if you do not do so, when it becomes wine</b> used for <b>a libation it becomes</b> so <b>in your possession, and when you take</b> the money it will be <b>payment for wine</b> used for <b>a libation</b> that <b>you are taking.</b> Rav Ashi concludes his proof for his opinion: <b>And if it enters your mind</b> that <b>pulling</b> an object <b>acquires</b> it <b>in</b> a transaction involving <b>a gentile,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

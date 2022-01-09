@@ -1,0 +1,36 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>A quel</b> cas se refere la declaration finale de la mishna, qui dit que le creancier est celui qui prete serment ? <b>Si l'on dit</b> qu'elle fait reference <b>au cas dans <b>la derniere clause</b> de la mishna, ou le debiteur pretend que la garantie valait plus que le pret, <b>derivez</b> cette <i>halakha</i> du fait <b>que</b> le <b>serment est</b> de toute facon prete <b>par le creancier,</b> puisqu'il est le defendeur dans ce cas. La declaration supplementaire est superflue.
+
+### Partie 2
+En reponse, <b>Shmuel dit :</b> Cette declaration se rapporte <b>au</b> cas dans <b>la premiere clause</b> de la mishna, ou le debiteur est le defendeur. <b>Et Rabbi Hiyya bar Rav dit pareillement</b> qu'elle se rapporte <b>a la premiere clause. Et Rabbi Yohanan dit pareillement</b> qu'il se rapporte <b>a la premiere clause.</b>
+
+### Partie 3
+La Guemara demande : <b>Qu'est-ce que</b> les <i>amoraim</i> ont voulu dire par : <b>La premiere clause ?</b> La Gemara repond : Ils ne faisaient pas reference a la toute premiere <i>halakha</i> de la mishna, mais plutot a <b>la derniere partie de la premiere clause :</b> Il y a le cas d'un creancier qui pretend : <b>Je t'ai prete une <i>sela</i> sur</b> la base de cette garantie <b>et elle valait un shekel. Et l'autre</b> individu, le debiteur, <b>dit : Ce n'est pas</b> le cas ; <b>au contraire, tu m'as prete une <i>sela</i> sur</b> la base de ce gage <b>et</b> le gage <b>vallait trois dinars,</b> soit les trois quarts d'une <i>sela</i>. Dans ce cas, il est <b>liable</b> de preter serment. <b>Comme</b> dans ce cas, <b>le serment</b> devrait en principe etre prete <b>par le debiteur,</b> puisque c'est lui qui a admis une partie de la creance du creancier, <b>mais les Sages ont retire</b> l'obligation de preter serment <b>au debiteur et l'ont imposee au creancier,</b> le jugeant responsable de preter serment que le gage ne valait pas plus d'un shekel.
+
+### Partie 4
+La Gemara note : <b>Et maintenant que Rav Ashi dit que nous maintenons</b> que deux serments sont pretes dans ce cas, car <b>cette</b> partie, le creancier, <b>prete serment que</b> le collateral <b>n'est pas en sa possession, et cette</b> partie, le debiteur, <b>prete serment</b> concernant <b>la valeur</b> du collateral, voici</b> ce que la mishna <b>dit : Qui prete serment en premier ? Celui en la possession duquel</b> le depot</b> avait ete localise, c'est-a-dire le creancier, prete d'abord serment que le gage n'est pas en sa possession, <b>de peur que cette</b> partie, le debiteur, <b>prete serment et</b> ensuite <b>l'autre</b> partie, le creancier, <b>produise le depot</b> et prouve que le serment est faux.
+
+### Partie 5
+§ <b>Shmuel dit :</b> En ce qui concerne <b>celui qui a prete mille dinars a un autre et a pris de lui le manche d'une faucille comme garantie,</b> si <b>le manche de la faucille est perdu,</b> le creancier a <b>perdu la</b> totalite de la somme de <b>mille dinars,</b> meme si la garantie perdue avait une valeur moindre. <b>Mais</b> s'il a pris <b>deux manches</b> en garantie et qu'un seul a ete perdu, le creancier ne <b>pas</b> perdre la totalite de la dette ; il ne perd que la valeur du manche qu'il a perdu.
+
+### Partie 6
+<b>Et le Rav Nahman dit : Meme</b> s'il a pris <b>deux poignees</b> et que seule <b>une</b> d'entre elles a ete <b>perdue,</b> il a <b>perdu cinq cents</b> dinars, c'est-a-dire la moitie de la dette. Si <b>l'autre</b> etait alors egalement <b>perdue,</b> il a <b>perdu la totalite</b> de la dette. <b>Mais</b> s'il a pris <b>un manche et une piece d'argent</b> en garantie et qu'il a ensuite perdu le manche, il n'a <b>pas</b> perdu la moitie de la dette, car il s'est vraisemblablement appuye sur l'argent, et non sur le manche, pour le paiement. Les Sages <b>de Nehardeâ disent : Meme</b> s'il a pris <b>une poignee et une piece d'argent,</b> et que <b>la piece d'argent a ete perdue,</b> il a <b>perdu la moitie</b> de la dette. Si <b>la poignee</b> a ensuite ete <b>perdue,</b> il a <b>perdu la totalite</b> de la dette.
+
+### Partie 7
+La Guemara conteste l'opinion de Shmuel basee sur la mishna. <b>Nous avons appris</b> dans la mishna : Il y a le cas d'un creancier qui pretend : <b>Je t'ai prete une <i>sela</i> sur</b> la base de cette garantie <b>et elle valait un shekel. Et l'autre</b> individu, le debiteur, <b>dit : Ce n'est pas</b> le cas ; <b>au contraire, tu m'as prete une <i>sela</i> sur</b> la base de ce gage <b>et</b> le gage <b>vallait trois dinars,</b> soit les trois quarts d'une <i>sela</i>. Dans ce cas, le debiteur est <b>responsable</b> de preter serment. Selon l'avis de Shmuel qui estime que si la garantie est perdue, la dette est annulee, <b>laissons</b> le debiteur <b>dire a celui-ci : Tu as</b> deja <b>recu</b> le remboursement de la dette au moyen de la garantie.
+
+### Partie 8
+La Gemara repond : La <i>halakha</i> dans <b>la mishna concerne</b> un cas <b>ou</b> le creancier <b>a declare explicitement</b> qu'il prend la garantie uniquement pour assurer le paiement de la valeur de l'objet, et non comme un remboursement complet. Par consequent, puisqu'il y a un differend concernant la valeur monetaire de la garantie, les deux parties doivent plaider cette question. <b>Shmuel,</b> en revanche, faisait reference <b>a</b> un cas <b>ou</b> le creancier <b>n'a pas indique explicitement</b> s'il prenait la garantie pour couvrir uniquement sa valeur monetaire ou la totalite de la dette. Dans ce cas, il est presume qu'il l'a prise pour couvrir la totalite de la dette.
+
+### Partie 9
+La Gemara suggere : <b>Disons</b> que la decision de Shmuel est <b>l'objet</b> d'un differend entre <b><i>tannaim</i>,</b> comme il est dit dans une <i>baraita</i> : En ce qui concerne <b>quelqu'un qui prete</b> de l'argent <b>a un autre sur</b> la base d'un <b>collateral, et que le collateral a ete perdu, il doit preter serment</b> qu'il a effectivement ete perdu <b>et</b> peut alors <b>reprendre son argent;</b> c'est <b>la declaration de Rabbi Eliezer. Rabbi Akiva dit</b> que le debiteur <b>peut dire au</b> creancier : <b>Ne m'avez-vous pas prete</b> l'argent <b>uniquement sur</b> la base de <b>la garantie ?</b> Puisque <b>la garantie a ete perdue, votre argent est perdu</b> egalement.
+
+### Partie 10
+<b>Mais</b> en ce qui concerne <b>celui qui prete</b> a une autre personne <b>un millier de dinars avec</b> un <b>billet a ordre, et</b> en plus du billet, le debiteur a <b>laisse des garanties en</b> possession du creancier, tous conviennent</b> que puisque <b>les garanties ont ete perdues, son argent est perdu</b> aussi. Comme il avait un billet a ordre comme preuve du pret, le collateral a clairement ete pris comme remboursement potentiel.
+
+### Partie 11
+La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles Rabbi Eliezer et Rabbi Akiva sont en desaccord ? <b>Si</b> c'est un cas <b>ou</b> la garantie etait <b>digne de la somme d'argent</b> qu'il lui a pretee,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

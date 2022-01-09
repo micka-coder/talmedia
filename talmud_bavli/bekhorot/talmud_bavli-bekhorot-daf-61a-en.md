@@ -1,0 +1,42 @@
+
+### Part 1
+<b>And</b> the ruling of <b>this</b> <i>tanna</i>, <b>who teaches:</b> Both animals must <b>be sacrificed, is</b> in accordance with the opinion of <b>Rabbi Shimon, who says</b> that <b>one may bring sacrificial</b> animals <b>to a situation</b> where <b>the</b> likelihood of <b>disqualification</b> is increased.
+
+### Part 2
+<b>And</b> the ruling of <b>this</b> <i>tanna</i>, <b>who teaches:</b> Both animals <b>must die, is</b> in accordance with the opinion of <b>Rabbi Yehuda, who says:</b> When the owner makes <b>a mistake</b> in designating animal <b>tithe,</b> e.g., if one designates the ninth animal as the tenth, the designated animal has the status of <b>a substitute</b> animal. And <b>Rabbi Yehuda holds</b> that <b>a substitute for</b> an animal <b>tithe must</b> be left to <b>die.</b> Since it is uncertain which animal is the eleventh, both are left to die.
+
+### Part 3
+The Gemara asks: <b>And does Rabbi Yehuda hold</b> that <b>a substitute for</b> an animal <b>tithe must die? But didn’t we learn</b> in the mishna: The Sages <b>said in the name of Rabbi Meir,</b> in response to the statement of Rabbi Yehuda: The eleventh animal is not considered a substitute for the animal tithe, since <b>if it were a substitute it would not be sacrificed,</b> as the substitute for an animal tithe is not sacrificed?<b>By inference, Rabbi Yehuda holds</b> that the eleventh animal is <b>sacrificed,</b> and not put to death, despite the fact that it has the status of a substitute animal.
+
+### Part 4
+The Gemara continues: <b>And if you would say</b> that <b>Rabbi Meir is saying</b> his statement according <b>to what he</b> himself <b>holds,</b> and therefore nothing can be inferred from his comment with regard to the opinion of Rabbi Yehuda, that cannot be so; <b>but isn’t it taught</b> in a <i>baraita</i>: <b>The difference between</b> the <b>eleventh</b> animal mistakenly designated as animal tithe <b>and a peace offering is only that this,</b> the peace offering, <b>renders</b> a substitute <b>sanctified to</b> the extent that it can <b>be sacrificed, but that,</b> the eleventh animal mistakenly designated as animal tithe, does <b>not render</b> its substitute <b>sanctified to be sacrificed;</b> this is <b>the statement of Rabbi Yehuda?</b> The Gemara infers: <b>It is</b> stated only that the eleventh animal mistakenly designated as tithe <b>does not render</b> its substitute <b>sanctified</b> with enough sanctity <b>to be sacrificed,</b> which indicates the eleventh animal <b>itself is sacrificed</b> and not put to death.
+
+### Part 5
+<b>And furthermore,</b> there is a source that indicates that Rabbi Yehuda holds that a mistakenly designated animal tithe is sacrificed, <b>as it is taught</b> in a <i>baraita</i> in the <i>Sifra</i>: “And if his offering be a sacrifice of peace offerings: <b>If</b> he sacrifice <b>of the herd,</b> whether male or female, he shall sacrifice it without blemish before the Lord” (Leviticus 3:1). This serves <b>to include</b> the <b>eleventh</b> animal mistakenly designated as tithe; it must be sacrificed <b>as a peace offering.</b>
+
+### Part 6
+One <b>might</b> have thought <b>that I include even the ninth</b> animal mistakenly designated as the tithe. <b>You say</b> in rejection of this suggestion: <b>But does consecration sanctify</b> a substitute <b>before</b> the original animal is sanctified, <b>or</b> does it <b>sanctify</b> only <b>after</b> the original animal is sanctified? <b>You must say</b> that it <b>sanctifies</b> only <b>after</b> the original animal is sanctified. If so, only the eleventh animal is sacrificed as a peace offering, but not the ninth.
+
+### Part 7
+And <b>who is</b> the author of the <b>unattributed</b> statement in the <b><i>Sifra</i>?</b> It is <b>Rabbi Yehuda. And</b> the <i>baraita</i> <b>is teaching</b> that the verse: “If he sacrifice <b>of the herd,</b> whether male or female, he shall sacrifice it without blemish before the Lord,” serves <b>to include</b> the <b>eleventh</b> animal mistakenly designated as tithe, i.e., to teach that it must be sacrificed <b>as a peace offering.</b> Evidently, Rabbi Yehuda does not hold that the eleventh animal mistakenly designated as tithe must die.
+
+### Part 8
+If so, in accordance with whose opinion is the <i>baraita</i> that rules that in a case where two animals emerged together as the tenth, and the owner called them both the tenth, they must both die? It cannot be in accordance with the opinion of Rabbi Yehuda. <b>Rather, Rabbi Shimon, son of Rabbi Abba, interpreted</b> that <i>baraita</i> <b>before Rabbi Yoḥanan: We are dealing with</b> animal <b>tithe in the present</b> time, <b>and</b> the animals must die <b>due to</b> concern that <b>a mishap</b> might occur, as one might shear them or put them to work, or eat them before they develop a blemish.
+
+### Part 9
+The Gemara asks: <b>If so, why</b> is the <i>baraita</i> referring <b>specifically</b> to a case where <b>two</b> animals left the pen at the same time? The same would hold true <b>even</b> with regard to <b>one</b> animal designated as tithe, as it cannot be sacrificed nowadays. The Gemara answers: The <i>tanna</i> <b>is speaking</b> utilizing the style of: <b>It is not necessary. It is not necessary</b> to teach that in a case where <b>one</b> animal was designated as tithe it must die, <b>as there is no</b> major financial <b>loss. But</b> in a case where <b>two</b> animals were designated as tithe, <b>since the loss is great</b> one might think <b>he should leave them until they develop a blemish, and</b> then <b>eat them.</b> Therefore, the <i>tanna</i> <b>teaches us</b> that even in a case where two animals were designated as tithe, both must die.
+
+### Part 10
+It <b>was stated:</b> In the case of <b>one who says to his agent: Go and separate</b> animal <b>tithe on my</b> behalf, <b>Rav Pappi says in the name of Rava:</b> If he <b>called the ninth</b> animal the <b>tenth, it is sanctified</b> and may not be eaten until it has developed a blemish. The owner is not particular about this error, as the animal is not rendered entirely prohibited. <b>But</b> if he designated the <b>eleventh</b> animal as the <b>tenth it is not sanctified</b> as a peace offering, as the owner would not tolerate losing the animal entirely. <b>And Rav Pappa</b> disagrees and <b>says: Even</b> if the agent <b>called the ninth</b> animal the <b>tenth it is not sanctified, as</b> the owner who sent him can <b>say to him: I sent you to</b> act for <b>my benefit and not to my detriment.</b> The authority to serve as an agent does not extend to a case where he acts to the detriment of the one who designated him.
+
+### Part 11
+The Gemara asks: <b>And</b> in <b>what</b> manner <b>is</b> the case of animal tithe <b>different from that which we learned</b> in a mishna (<i>Terumot</i> 4:4): With regard to <b>one who says to his agent: Go and separate</b> <i>teruma</i>, the agent <b>separates</b> <i>teruma</i> <b>in accordance with the intention of the homeowner.</b> He must separate the amount that he assumes the owner would want to give, as there is no fixed measure that one must set aside as <i>teruma</i>. A generous person gives as much as one-fortieth of his produce as <i>teruma</i>, while a stingy person can give one-sixtieth.
+
+### Part 12
+The mishna continues: <b>If he does not know the intention of</b> the <b>homeowner he separates an intermediate</b> measure, i.e., <b>one-fiftieth</b> of the produce. If <b>he subtracted ten</b> from the denominator and separated one-fortieth of the produce, <b>or added ten</b> to the denominator and separated one-sixtieth, <b>his <i>teruma</i></b> is considered <b><i>teruma</i>.</b> In this case too, the owner should also be able to say he did not send the agent to act to his detriment, and therefore the act of separating <i>teruma</i> should not take effect.
+
+### Part 13
+The Sages <b>say</b> in answer: <b>There,</b> with regard to <i>teruma</i>, <b>since there are</b> those <b>who separate <i>teruma</i> generously and there are</b> those <b>who separate <i>teruma</i> sparingly,</b> the agent can <b>say: I estimated that you</b> were one <b>such as this,</b> i.e., either generous or stingy. But <b>here,</b> with regard to animal tithe, <b>it is a mistake,</b> and therefore the owner can <b>say: I did not want you to make a mistake.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

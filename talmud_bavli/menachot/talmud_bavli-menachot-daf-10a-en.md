@@ -1,0 +1,60 @@
+
+### Part 1
+After all, a verse already indicates that the oil must be placed on the right thumb and big toe, <b>as</b> it is <b>written: “Upon the blood of the guilt offering”</b> (Leviticus 14:17). Since the Torah has already specified that the blood is placed upon the right thumb and big toe (Leviticus 14:14), it is clear that the oil is placed there as well. Similarly, why must the verse specify with regard to a poor leper that the oil is placed on the right thumb and big toe? Isn’t already clear from the verse where the oil must be placed, as it states: “Upon the place of the blood of the guilt offering” (Leviticus 14:28)? The Gemara responds: <b>One</b> specification, stated with regard to a wealthy leper, serves <b>to permit</b> the placement of the oil on the <b>sides</b> of the thumb and sides of the big toe in addition to the nail side of the thumb and big toe, <b>and one,</b> stated with regard to a poor leper, serves <b>to disqualify the sides of sides,</b> i.e., their undersides.
+
+### Part 2
+The Gemara inquires with regard to the verse: <b>“Upon the blood of the guilt offering”</b> (Leviticus 14:17), stated with regard to the purification of a wealthy leper, and the verse: <b>“Upon the place of the blood of the guilt offering”</b> (Leviticus 14:28), stated with regard to the purification of a poor leper. <b>For what</b> purpose <b>do they come,</b> i.e., why are both verses necessary?
+
+### Part 3
+The Gemara responds: <b>These</b> verses <b>are necessary, because if the Merciful One had written</b> only: <b>“Upon the blood of the guilt offering,” I would say:</b> If the blood <b>is</b> still on the right thumb and big toe of the leper, <b>yes,</b> the priest places the oil upon the blood. But if it <b>was wiped</b> from there, he does <b>not</b> place the oil. Therefore, <b>the Merciful One writes: “Upon the place</b> of the blood of the guilt offering,” indicating that the oil is placed upon the location of the blood, not necessarily upon the blood itself.
+
+### Part 4
+<b>And</b> conversely, <b>if the Merciful One had written</b> only: <b>“Upon the place</b> of the blood of the guilt offering,” <b>I would say:</b> The oil is placed on his right thumb and big toe <b>specifically</b> when the blood <b>was wiped</b> from there. <b>But</b> if the blood <b>is</b> still there, I will <b>say</b> that the blood <b>is an interposition</b> between the oil and the thumb or toe. Therefore, the verse <b>teaches us</b> that the oil is placed <b>“upon the blood of the guilt offering,”</b> and the blood is not considered an interposition.
+
+### Part 5
+<b>Rava said: Since it is written</b> that the priest places the oil <b>“upon the blood of the guilt offering,” and: “Upon the place of</b> the blood of <b>the guilt offering,” and it is</b> also <b>written</b> with regard to a wealthy leper (see Leviticus 14:14) and a poor one (see Leviticus 14:25) that the <b>right</b> hand and foot are required <b>for</b> the placement of <b>the blood,</b> as the verses state: <b>“Upon the thumb of his right hand, and upon the big toe of his right foot,” and</b> this <b>is</b> also <b>written with regard to</b> the <b>oil of a wealthy leper</b> (see Leviticus 14:17) <b>and a poor</b> one (see Leviticus 14:28), one can ask: <b>Why do I</b> need all of these verses?
+
+### Part 6
+<b>Rather, Rava said:</b> The verses that specify that the oil must be placed on the right thumb and big toe do not teach a <i>halakha</i> with regard to a leper, as it is clear that the oil must be placed on the right thumb and big toe, as it states: “Upon the place of the blood of the guilt offering.” Rather, these verses are the source of verbal analogies for other <i>halakhot</i>. When the verse states with regard to a wealthy leper: “Of his right hand” (Leviticus 14:17), this teaches a verbal analogy between the term <b>“hand”</b> written here and <b>“hand”</b> written <b>with regard to the removal of a handful,</b> as the verse states about the removal of a handful: “And he filled his hand from it” (Leviticus 9:17). The verbal analogy teaches that the removal of the handful must also be performed with the right hand.
+
+### Part 7
+Similarly, when the verse states: “Of his right foot” (Leviticus 14:17), with regard to a wealthy leper, this teaches a verbal analogy between the term <b>“foot”</b> written here and <b>“foot”</b> written <b>with regard to the ritual through which the <i>yavam</i>, a man whose married brother died childless, frees his brother’s widow, the <i>yevama</i>, of her levirate bonds [<i>ḥalitza</i>],</b> as the verse states with regard to <i>ḥalitza</i>: “And remove his shoe from upon his foot” (Deuteronomy 25:9). The verbal analogy teaches that the shoe is removed from his right foot.
+
+### Part 8
+Additionally, when the verse states: “Upon the tip of the right ear of him that is to be cleansed” (Leviticus 14:17), with regard to a wealthy leper, this teaches a verbal analogy between the term <b>“ear”</b> written here and <b>“ear”</b> written <b>with regard to</b> the <b>piercing</b> of a Hebrew slave’s ear with an awl, as the verse states: “And his master shall bore his ear through with an awl” (Exodus 21:6). The verbal analogy teaches that the slave’s right ear is pierced.
+
+### Part 9
+The Gemara asks: With regard to the additional mention of the <b>left</b> hand in the verse dealing <b>with the poor</b> leper, <b>for what</b> purpose <b>does</b> it <b>come? Rav Sheisha, son of Rav Idi, said:</b> It comes <b>to disqualify</b> the <b>right</b> hand <b>of a priest for</b> the purification of <b>a leper.</b> This teaches <b>that you should not say: And if in a place where</b> the <b>left</b> side <b>is not included,</b> as sacrificial rites in general are disqualified when performed with the left hand, the <b>right</b> hand <b>is included,</b> i.e., those rites must be performed with the right hand, then <b>in a place where</b> the <b>left</b> hand <b>is included,</b> in the case of a leper, <b>isn’t it logical that</b> the <b>right</b> hand should also be <b>included?</b> Therefore, the verse repeats that the oil is poured into the priest’s left hand, in order to disqualify the right hand.
+
+### Part 10
+The Gemara asks: <b>And</b> concerning <b>the other</b> verses that specify the <b>left</b> hand of a poor leper (Leviticus 14:26–27) as well as the <b>right hand and foot of a poor</b> leper (Leviticus 14:25–28), <b>for what</b> purpose do they <b>come?</b> The Gemara responds: These verses come <b>for that which the school of Rabbi Yishmael taught: Any passage that was stated</b> in the Torah <b>and was</b> then <b>repeated, was repeated only for</b> the sake of <b>a matter that was introduced</b> for the first time <b>in</b> the repeated passage. That is, sometimes the Torah repeats an entire passage just to teach a single new detail. In this case, the verses that discuss the purification of a poor leper were repeated only for the sake of the differences in the offerings between a wealthy leper and a poor one. No additional <i>halakha</i> should be derived from them.
+
+### Part 11
+§ <b>Rabba bar bar Ḥana says</b> that <b>Rabbi Shimon ben Lakish says: Any place</b> in the Torah <b>in which</b> it <b>is stated</b> that an action is performed with <b>a finger or</b> by the <b>priesthood,</b> i.e., that one uses his finger to perform the action or that a priest performs it, this teaches that it is performed <b>only</b> with the <b>right</b> hand.
+
+### Part 12
+The Gemara comments: It might <b>enter our mind</b> to say that this means that <b>we require both a finger and</b> the <b>priesthood</b> to be stated together in the verse in order to mandate use of the right hand, e.g., <b>as it is written: “And the priest shall take of the blood of the sin offering with his finger”</b> (Leviticus 4:25). <b>And</b> the fact that this verse is referring to a finger from his right hand <b>is derived from a leper, as it is written: “And the priest shall dip his right finger”</b> (Leviticus 14:16). This cannot be correct, <b>as</b> there is the verse that addresses <b>the removal of a handful</b> from a meal offering, <b>in which only</b> the <b>priesthood is written, and</b> yet <b>we learned</b> in a mishna (6a): If the priest <b>removed the handful with</b> his <b>left</b> hand the meal offering is <b>unfit.</b>
+
+### Part 13
+Therefore, <b>Rava said:</b> This statement means that if the verse mentions <b>either a finger or</b> the <b>priesthood,</b> only the right hand may be used.
+
+### Part 14
+<b>Abaye said to</b> Rava: But this is contradicted by the verse discussing <b>the conveyance of</b> the <b>limbs</b> of the daily burnt offering <b>to the ramp</b> of the altar, <b>as priesthood is written with regard to it, as it is written: “And the priest shall sacrifice the whole</b> and make it smoke <b>upon the altar”</b> (Leviticus 1:13), <b>and the Master said</b> that <b>this</b> verse is referring to <b>the conveyance of</b> the <b>limbs to the ramp. And</b> yet <b>we learned</b> in a mishna (<i>Tamid</i> 31b): When the priest conveys the limbs to the ramp, <b>the foot of</b> the <b>right</b> side of the offering is carried <b>in</b> the <b>left</b> hand of the priest, <b>and the place of its skin,</b> i.e., the side of the limb covered in skin, is held facing <b>outward.</b> Clearly, use of the left hand does not disqualify the conveyance of the limbs.
+
+### Part 15
+The Gemara responds: <b>When we say</b> that if the verse states <b>either finger or priesthood</b> then the left hand is disqualified, this is only <b>with regard to a matter that precludes atonement,</b> i.e., a rite whose performance is indispensable to the atonement, similar to the sprinkling of the oil on the leper (see Leviticus 14:16). The conveyance of the limbs, by contrast, is not indispensable to atonement.
+
+### Part 16
+The Gemara asks: <b>But</b> isn’t there the <b>collection</b> of the blood in a service vessel, <b>which is a matter indispensable to atonement, and about which priesthood is written? As it is written: “And Aaron’s sons, the priests, shall present the blood”</b> (Leviticus 1:5), and <b>this</b> is referring to <b>the collection of the blood. And</b> yet <b>we learned</b> in a mishna (<i>Zevaḥim</i> 15b): If <b>one collected</b> the blood <b>with</b> his <b>left</b> hand, the blood is <b>disqualified</b> for offering, <b>and Rabbi Shimon deems</b> it <b>fit,</b> despite the fact that priesthood is mentioned in the verse.
+
+### Part 17
+The Gemara responds: <b>You are saying</b> that there is a difficulty <b>according to</b> the opinion of <b>Rabbi Shimon? Rabbi Shimon requires</b> that <b>both</b> matters appear in the verse, i.e., both finger and priesthood.
+
+### Part 18
+The Gemara asks: <b>And does Rabbi Shimon</b> really <b>require both? But isn’t it taught</b> in a <i>baraita</i>: <b>Rabbi Shimon says:</b> In <b>any place</b> in the Torah in <b>which</b> the word <b>hand is stated,</b> the verse <b>is</b> referring <b>only</b> to the <b>right</b> hand, and whenever a verse mentions the word <b>finger,</b> it <b>is</b> referring <b>only</b> to a finger of the <b>right</b> hand? The Gemara responds: According to Rabbi Shimon, if the verse mentions only the word <b>finger,</b> it <b>does not require</b> a mention of the <b>priesthood</b> as well for the limitation to apply. But if the verse mentions only the <b>priesthood,</b> it <b>requires</b> mention of the term <b>finger</b> for the limitation to apply.
+
+### Part 19
+The Gemara asks: <b>But</b> according to Rabbi Shimon, if the mention of the priesthood alone does not suffice to disqualify the right hand, then <b>why do I</b> need the superfluous reference to <b>a priest</b> with regard to the collection of the blood? After all, the verse already states that the collection must be performed by the sons of Aaron. The Gemara responds: The additional mention of the priesthood indicates that a priest must perform the collection of the blood <b>in his priestly state,</b> i.e., while wearing the priestly vestments.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

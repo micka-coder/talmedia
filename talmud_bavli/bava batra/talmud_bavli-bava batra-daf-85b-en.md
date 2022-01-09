@@ -1,0 +1,33 @@
+
+### Part 1
+<b>What,</b> is it <b>not</b> stating that a buyer’s vessels effect acquisition of items on his behalf even <b>in the actual public domain,</b> which contradicts Rav Pappa’s explanation? The Gemara answers: <b>No,</b> the <i>baraita</i> is referring to <b>an alleyway,</b> not the actual public domain. The Gemara asks: How can this be what the <i>baraita</i> means? <b>But</b> the <i>baraita</i> <b>teaches</b> that it is <b>similar to a courtyard that does not belong to either of them,</b> i.e., a location to which neither of them have any rights, whereas they both have some rights in an alleyway. Consequently, this must be referring to the actual public domain, not an alleyway.
+
+### Part 2
+The Gemara answers: <b>What</b> is the meaning of the phrase: <b>A courtyard that does not belong to either of them?</b> It <b>also</b> refers to shared property, specifically a courtyard shared by partners, <b>which does not</b> belong to <b>this</b> one <b>entirely and does not</b> belong to <b>that</b> one <b>entirely, but rather</b> it is the property <b>of both of them.</b> Consequently, this courtyard is comparable to an alleyway.
+
+### Part 3
+<b>Rav Sheshet raises a dilemma before Rav Huna:</b> If the <b>vessels of the buyer</b> are <b>in the domain of the seller,</b> does the <b>buyer acquire</b> the merchandise once it is placed in his vessels <b>or not?</b> Rav Huna <b>said to him: You learned</b> the answer already in a mishna (<i>Gittin</i> 77a): A wife is divorced when her husband hands her a bill of divorce or places it in a manner that is considered equivalent to handing it to her, e.g., placing in her courtyard. Accordingly, if the husband <b>threw</b> the bill of divorce <b>to her into her lap or into her basket [<i>kaltah</i>], this</b> woman <b>is divorced</b> even if she was in her husband’s domain at that time. By the same token, even if the buyer’s vessels are in the domain of the seller, they effect acquisition of the sold items on his behalf.
+
+### Part 4
+<b>Rav Naḥman said to</b> Rav Huna: <b>What is the reason</b> that <b>you resolved</b> Rav Sheshet’s dilemma <b>from that</b> mishna, <b>which</b> has already been <b>struck</b> with <b>one hundred strikes of a hammer [<i>uklei be’ukela</i>]?</b> In their analysis of this mishna, the Sages have already inserted so many qualifications that it cannot be understood in a straightforward manner.
+
+### Part 5
+<b>As Rav Yehuda says</b> that <b>Shmuel says: This</b> <i>halakha</i> of the mishna in <i>Gittin</i> applies only if <b>her basket was hanging from her</b> body, so that it is considered on her or in her hand. <b>And Reish Lakish says:</b> It is sufficient if <b>it</b> was <b>tied</b> to her, <b>even though it is not hanging from her,</b> but resting on the ground. <b>Rav Adda bar Ahava says:</b> The mishna is referring to a case <b>where her basket was placed between her thighs.</b> Although it is not hanging from her, since it is placed on her body it serves to acquire the bill of divorce on her behalf. <b>Rav Mesharshiyya, son of Rabbi Ami, says:</b> This is referring to a case <b>where her husband</b> was <b>a basket seller.</b> Since he is not particular about the place where the basket into which he placed the bill of divorce is located, as his entire courtyard is full of baskets, it is considered as though he expressly granted her the right to make use of its location.
+
+### Part 6
+<b>Rabbi Yoḥanan says: The place of her lap,</b> i.e., the place within her husband’s property where she stands or sits, <b>belongs to her,</b> and <b>the place of her basket is acquired to her. Rava said: What is the reason</b> behind the statement <b>of Rabbi Yoḥanan?</b> It is <b>because a person,</b> including a husband, <b>is not particular neither about the place of her lap nor about the place of her basket,</b> as she requires these areas and they do not take up much space. It is evident from all of these qualifications that one cannot infer a halakhic principle from here with regard to a buyer’s vessels in a seller’s domain.
+
+### Part 7
+<b>Rather, resolve</b> the dilemma <b>from that</b> which was taught in a <i>baraita</i>: If the merchandise was <b>in the domain of a seller,</b> the buyer <b>does not acquire</b> the merchandise <b>until he lifts</b> it <b>or until he removes it from the domain</b> of the seller. <b>What,</b> is it <b>not</b> referring to merchandise placed <b>in the vessels of the buyer,</b> which proves that the buyer’s vessels do not effect acquisition of the merchandise on his behalf when they are in the seller’s domain? The Gemara answers: <b>No,</b> this does not serve as proof, as it is referring to merchandise placed <b>in the vessels of the seller.</b> That is why the buyer must lift or pull the merchandise to acquire it.
+
+### Part 8
+The Gemara asks: <b>But from</b> the fact <b>that the first clause</b> is referring <b>to the vessels of the seller,</b> as currently understood, <b>the latter clause</b> must <b>also</b> be referring <b>to the vessels of the seller. Say the latter clause:</b> If the merchandise was <b>in the domain of the buyer, once the seller accepts upon himself</b> to sell an item, <b>the buyer acquires</b> it. <b>And if</b> this is referring to merchandise <b>in the vessels of the seller,</b> as in the earlier clause, <b>why does the buyer acquire</b> it? The Gemara answers: In <b>the latter clause, we come to</b> a different scenario, which involves <b>the vessels of the buyer.</b>
+
+### Part 9
+The Gemara asks: <b>But</b> if the clauses of the <i>baraita</i> are addressing different cases, <b>why</b> was it stated <b>without qualification?</b> The Gemara answers: <b>The normal</b> way <b>of things</b> is that <b>in the house of the seller the vessels of the seller are</b> commonly <b>found, and in the house of the buyer the vessels of the buyer are</b> commonly <b>found.</b> In sum, the dilemma cannot be resolved from the <i>baraita</i>.
+
+### Part 10
+<b>Rava said: Come</b> and <b>hear</b> a resolution from a <i>baraita</i>: If <b>one pulled his donkey drivers,</b> thereby dragging along with them the donkeys laden with goods, <b>and</b> likewise, if he pulled <b>his laborers,</b> who were carrying merchandise he wished to purchase, <b>and he brought them into his house, whether he fixed</b> a price <b>before he measured</b> the merchandise <b>or whether he measured before fixing</b> a price, <b>both</b> parties <b>can renege on</b> the sale, provided that the merchandise has not been unloaded from the laborers or the donkeys.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

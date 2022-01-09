@@ -1,0 +1,36 @@
+
+### Partie 1
+<strong>GEMARA:</strong> <b>De qui l'opinion</b> est exprimee dans <b>la mishna ? C'est</b> apparemment l'opinion de <b>Rabbi Meir. Car, si</b> c'est l'avis de <b>Rabbi Yehuda,</b> il y a une contradiction, car <b>il ne differencie pas</b> si on fait un vœu en disant : <b>Une offrande, et il ne differencie pas</b> si on fait un vœu en disant : <b>Cette offrande.</b> Dans les deux cas, le vœu ne prend pas effet, car il n'a pas utilise l'expression : Comme une offrande. La mishna, en revanche, indique que seul un vœu qui est formule : Une offrande que je ne mangerai pas de toi, ou : Cette offrande que je mangerai de la tienne, ne prend pas effet. S'il est formule ainsi : Une offrande que je mangerai de toi, il prend effet, car il indique que son repas sera comme une offrande.
+
+### Partie 2
+La Guemara poursuit son analyse : <b>Dites la derniere clause</b> de la mishna : S'il dit : Ce que <b>je ne mangerai pas de toi</b> n'est <b>pas une offrande,</b> la nourriture est <b>permise.</b> La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans une mishna (13a) que si l'on dit : Ce que <b>je ne mangerai pas de toi</b> sera <b>pour une offrande [<i>lekorban</i>], Rabbi Meir lui interdit</b> la nourriture ? <b>Et Rabbi Abba a dit</b> que <b>cela est rendu comme celui qui dit :</b> Ta nourriture <b>sera</b> pour moi <b>pour une offrande ; donc, je ne mangerai pas de la tienne.</b> La mishna semble etre incompatible avec l'opinion de Rabbi Meir egalement.
+
+### Partie 3
+La Guemara repond que cela n'est <b>pas difficile. Cette</b> mishna fait reference a celui <b>qui a dit : Pour une offrande [<i>lekorban</i>],</b> et le vœu prend donc effet. <b>Cette</b> mishna fait reference a celui <b>qui a dit : Pas pour une offrande [<i>la lekorban</i>],</b> ou <b>il dit que cela ne doit pas etre une offrande,</b> et donc le vœu ne prend pas effet.
+
+### Partie 4
+<strong>MISHNA : </strong>Si l'on dit : <b>Un serment</b> que <b>je ne mangerai pas de toi,</b> ou : <b>Ceci</b> est <b>un serment que je mangerai du tien [<i>sheokhal lekha</i>],</b> ou : <b>Non un serment que je ne mangerai pas du votre,</b> la nourriture <b>est interdite.</b>
+
+### Partie 5
+<strong>GEMARA:</strong> <b>Par deduction</b> de la mishna, on peut deduire <b>que</b> l'enonce : <b>C'est un serment que je mangerai de toi, indique que je ne mangerai pas. Et</b> la Gemara <b>souleve une contradiction</b> d'une mishna (<i>Shevuot</i> 19b) : Il existe <b>deux</b> types de base de <b>serments qui sont</b> en fait <b>quatre :</b> Un serment <b>que je mangerai, et : Que je ne mangerai pas;</b> un serment <b>que j'ai mange, et : Que je n'ai pas mange. Du</b> fait <b>que</b> la mishna <b>declare :</b> Que je mangerai, en contradiction avec : <b>que je ne mangerai pas ; que j'ai mange, et</b> en contradiction avec : <b>que je n'ai pas mange,</b> on peut en deduire <b>par inference que</b> un serment <b>que je mangerai de toi [<i>sheokhal lekha</i>] indique :</b> Un serment <b>que je mangerai.</b> Ceci contredit notre mishna.
+
+### Partie 6
+<b>Abaye a dit:</b> La phrase : <b>Que je mangerai [<i>sheokhal</i>], indique deux expressions,</b> selon le contexte dans lequel elle est utilisee. Comment ? Si <b>ils l'importunaient [<i>mesarevin</i>] pour qu'il mange, et qu'il disait : Je mangerai, je mangerai, et</b> il a <b>en outre</b> dit : <b>Un serment que je mangerai [<i>sheokhal</i>], cela indique : Que je vais manger. Toutefois,</b> si <b>il a dit : Je ne mangerai pas, je ne mangerai pas, et qu'il a dit en outre : Un serment que je mangerai [<i>sheokhal</i>], il dit : Que je ne mangerai pas.</b> Le serment est destine a renforcer son refus de manger.
+
+### Partie 7
+<b>Rav Ashi a dit</b> que la phrase : <b>Que je mangerai [<i>sheokhal</i>],</b> citee dans la mishna <b>a propos d'un serment, est</b> en fait <b>dire</b> que <b>il a dit : Que je ne mangerai pas [<i>shei okhal</i>].</b> La Gemara demande : <b>Si oui,</b> l'interdiction <b>est evidente,</b> puisqu'il a explicitement fait le serment de ne pas manger. <b>Quel est le but</b> d'enoncer</b> cette <i>halakha</i> ? La Guemara repond : <b>De peur que l'on dise</b> que <b>il a fait une gaffe</b> en tenant correctement <b>la formulation,</b> c'est-a-dire qu'il a mal prononce le vœu, car son intention etait de dire : Un serment que je mangerai [<i>sheokhal</i>], la mishna <b>nous apprend</b> qu'il voulait dire qu'il ne mangera pas.
+
+### Partie 8
+<b>Abaye n'a pas enonce</b> la <b>raison</b> de la decision de la mishna qui a ete enoncee <b>par Rav Ashi, car</b> la mishna <b>n'enseigne pas</b> le cas de : <b>Que je ne mangerai pas [<i>shei okhal</i>].</b> Au contraire, elle enseigne le cas de que je mangerai [<i>sheokhal</i>].
+
+### Partie 9
+<b>Et Rav Ashi s'est detourne [<i>nadei</i>] de la raison qu'Abaye</b> a enoncee, car <b>il a soutenu</b> que la phrase : <b>Ce que je ne mangerai pas, indique egalement deux expressions,</b> selon le contexte. Par exemple, si <b>ils l'importunaient pour manger et qu'il disait : Je ne mangerai pas, je ne mangerai pas, et</b> par la suite <b>il</b> a egalement <b>dit : Un serment,</b> alors, dans ce cas, <b>si la formulation du serment etait : <b>que je vais manger, ou : Que je ne mangerai pas, cette</b> expression <b>indique qu'il dit : Je mangerai.</b> L'affirmation : Un serment que je ne mangerai pas, doit etre interpretee rhetoriquement dans ce contexte : Ai-je fait le serment que je ne mangerai pas ? Certainement pas, puisque je vais manger.
+
+### Partie 10
+<b>Et il y a aussi</b> une facon <b>d'interpreter l'expression : Un serment que je ne mangerai pas,</b> comme <b>indiquant</b> son sens direct, c'est-a-dire qu'il <b>dit : Un serment que je ne mangerai pas.</b> Par consequent, la mishna ne peut etre interpretee de cette maniere. <b>Au contraire, le <i>tanna</i></b> du tractat <i>Shevuot</i> a clairement <b>etabli un principe : Que je mangerai, indique que je mangerai, et : Que je ne mangerai pas, indique que je ne mangerai pas.</b> Par consequent, la version correcte de la mishna doit etre : Que je ne mangerai pas [<i>shei okhal</i>].
+
+### Partie 11
+<strong>MISHNA:</strong> <b>Cette</b> regle, selon laquelle les serments peuvent rendre des actions, qui n'ont pas de substance reelle, soit interdites soit obligatoires, <b>est une rigueur des serments vis-A -vis des vœux,</b> qui ne prennent pas effet en ce qui concerne les questions qui n'ont pas de substance reelle. <b>Et</b> il y a aussi <b>une rigueur des vœux vis a vis des serments. Comment cela ? </b> En ce qui concerne celui qui a <b>dit : Faire une <i>sukka</i> est <i>konam</i> pour moi,</b> ou : <b>Prendre un <i>lulav</i> est</b> <i>konam</i> <b>pour moi,</b> ou : <b>Donner des phylacteres est</b> <i>konam</i> <b>pour moi, dans</b> le cas de <b>vœux,</b> les articles sont rendus <b>interdits,</b> et il ne peut pas accomplir la mitsva jusqu'a ce que le vœu soit dissous. Cependant, <b>dans</b> le cas de <b>serments similaires,</b> ces elements sont <b>permis, car on ne peut pas faire un serment pour transgresser les mitzvot.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

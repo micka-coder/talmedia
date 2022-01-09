@@ -1,0 +1,42 @@
+
+### Part 1
+In <b>the latter clause we arrive at</b> the case of <b>schoolchildren</b> who come to learn Torah in his house, <b>and</b> this ruling applies <b>from</b> the time of <b>the ordinance of Yehoshua ben Gamla and onward.</b>
+
+### Part 2
+What was this ordinance? <b>As Rav Yehuda says</b> that <b>Rav says: Truly, that man is remembered for the good, and his name is Yehoshua ben Gamla. If not for him</b> the <b>Torah would have been forgotten from the Jewish people. Initially, whoever had a father</b> would have his father <b>teach him Torah,</b> and <b>whoever did not have a father would not learn Torah</b> at all. The Gemara explains: <b>What</b> verse <b>did they interpret homiletically</b> that allowed them to conduct themselves in this manner? They interpreted the verse that states: <b>“And you shall teach them [<i>otam</i>]</b> to your sons” (Deuteronomy 11:19), to mean: <b>And you yourselves [<i>atem</i>] shall teach,</b> i.e., you fathers shall teach your sons.
+
+### Part 3
+When the Sages saw that not everyone was capable of teaching their children and Torah study was declining, <b>they instituted</b> an ordinance <b>that teachers of children should be established in Jerusalem.</b> The Gemara explains: <b>What</b> verse <b>did they interpret homiletically</b> that enabled them to do this? They interpreted the verse: <b>“For Torah emerges from Zion”</b> (Isaiah 2:3). <b>But still, whoever had a father,</b> his father <b>ascended with him</b> to Jerusalem <b>and had him taught, but whoever did not have a father, he did not ascend and learn.</b> Therefore, the Sages <b>instituted</b> an ordinance <b>that</b> teachers of children <b>should be established</b> in one city <b>in each and every region [<i>pelekh</i>]. And they brought</b> the students <b>in at</b> the <b>age</b> of <b>sixteen</b> and <b>at</b> the <b>age</b> of <b>seventeen.</b>
+
+### Part 4
+<b>But</b> as the students were old and had not yet had any formal education, a student <b>whose teacher grew angry at him</b> would <b>rebel against him and leave.</b> It was impossible to hold the youths there against their will. This state of affairs continued <b>until Yehoshua ben Gamla came and instituted</b> an ordinance <b>that teachers of children should be established in each and every province and in each and every town, and they</b> would <b>bring</b> the children <b>in</b> to learn <b>at</b> the <b>age</b> of <b>six</b> and <b>at</b> the <b>age</b> of <b>seven.</b> With regard to the matter at hand, since this system was established for the masses, the neighbors cannot prevent a scholar from teaching Torah in the courtyard.
+
+### Part 5
+Concerning that same issue, <b>Rav said to Rav Shmuel bar Sheilat,</b> a teacher of children: <b>Do not accept</b> a student <b>before</b> the age of <b>six,</b> as he is too young, and it is difficult for him to learn in a steady manner. <b>From this</b> point <b>forward, accept him and stuff him</b> with Torah <b>like an ox. And Rav</b> further <b>said to Rav Shmuel bar Sheilat: When you strike a child</b> for educational purposes, <b>hit him only with the strap of a sandal,</b> which is small and does not cause pain. Rav further advised him: <b>He who reads,</b> let him <b>read</b> on his own; <b>whoever does not read, let him be a companion to his friends,</b> which will encourage him to learn to read.
+
+### Part 6
+With regard to a courtyard, the Gemara concluded that it is permitted for one to establish an elementary school to teach Torah and the neighbors cannot protest. The Gemara <b>raises an objection</b> to this ruling from a <i>baraita</i>: With regard to <b>one member of a courtyard who wishes to become a doctor, a bloodletter, a weaver [<i>vegardi</i>], or a teacher of children, the</b> other <b>members of the courtyard can prevent him</b> from doing so. This indicates that neighbors can protest the teaching of children in their shared courtyard. The Gemara answers: <b>With what are we dealing here,</b> i.e., when can they protest his teaching children? We are dealing <b>with</b> a case of <b>gentile children,</b> as there is no mitzva to educate them. In this situation, the neighbors can protest about the noise.
+
+### Part 7
+<b>Come</b> and <b>hear</b> another <i>baraita</i>: With regard to <b>two people who are residing in</b> one <b>courtyard, and one of them sought to become a doctor, a bloodletter, a weaver, or a teacher of children, the other can prevent him</b> from doing so. The Gemara answers: <b>Here too,</b> we are dealing <b>with</b> a case of <b>gentile children.</b>
+
+### Part 8
+The Gemara suggests: <b>Come</b> and <b>hear</b> another <i>baraita</i>: <b>One who has a house in a jointly owned courtyard may not rent it to a doctor, nor to a bloodletter, nor to a weaver, nor to a Jewish teacher [<i>sofer</i>], nor to a gentile teacher.</b> This indicates that one’s neighbors can prevent him from teaching Jewish children. The Gemara answers: <b>With what are we dealing here?</b> We are dealing <b>with the scribe [<i>sofer</i>] of the town,</b> who does not teach children but writes documents and letters for residents of the town. This type of work is not a mitzva, and since many people seek his services, the residents of the courtyard can prevent him from performing this job near their houses.
+
+### Part 9
+§ With regard to the ordinance of Yehoshua ben Gamla, and concerning teaching children in general, <b>Rava says: From</b> the time of <b>the ordinance of Yehoshua ben Gamla,</b> that schoolteachers must be established in each town, <b>and onward, one does not bring a child from one town to another.</b> Rather, each child is educated where he resides. <b>But one does bring them from one synagogue</b> where they learn <b>to another synagogue. And if a river separates</b> the areas <b>one does not bring</b> the children across, lest they fall into the river. <b>And if there is a bridge</b> spanning the river <b>one may bring</b> them across the river. <b>But if there is</b> only <b>a narrow bridge [<i>gamla</i>] one does not bring</b> them.
+
+### Part 10
+<b>And Rava said:</b> The maximum <b>number</b> of students for one <b>teacher of children</b> is <b>twenty-five children. And if there are fifty</b> children in a single place, <b>one establishes two</b> teachers, so that each one teaches twenty-five students. <b>And if there are forty</b> children, <b>one establishes an assistant, and</b> the teacher <b>receives help from</b> the residents of <b>the town</b> to pay the salary of the assistant.
+
+### Part 11
+<b>And Rava said:</b> If there is <b>a teacher of children who teaches</b> a few subjects, <b>and there is another who teaches more</b> subjects <b>than him, one does not remove</b> the first teacher from his position to hire the second, as <b>perhaps</b> the other teacher <b>will come to be negligent</b> due to the lack of competition. <b>Rav Dimi from Neharde’a said:</b> On the contrary, <b>all the more so</b> is it the case that he will <b>teach</b> in <b>a better</b> manner if he knows that he is the sole instructor in the place, as <b>jealousy among teachers increases wisdom.</b> The one who was dismissed will try to refine his skills so that he will be rehired, and this will prevent negligence on the part of the other teacher.
+
+### Part 12
+<b>And Rava said:</b> If there are <b>two teachers of children, one</b> who <b>teaches</b> a lot of material <b>but is not precise</b> in his statements, <b>and one</b> who <b>is precise but does not teach</b> a lot of material, <b>one hires the one who teaches</b> a lot of material <b>but is not precise.</b> Why is this? <b>Errors will be corrected by themselves,</b> and no lasting harm will be caused. By contrast, <b>Rav Dimi of Neharde’a said: One hires</b> the instructor <b>who is precise and does not teach</b> a lot of material, <b>as once an error is taught, it is taught,</b> and cannot be easily corrected.
+
+### Part 13
+The Gemara cites a proof for the opinion of Rav Dimi of Neharde’a: This is <b>as it is written: “For Joab and all Israel remained there six months until he had cut off every male in Edom”</b> (I Kings 11:16). <b>When</b> Joab <b>came before</b> King <b>David</b> after this episode, David <b>said to him:</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

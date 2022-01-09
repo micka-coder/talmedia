@@ -1,0 +1,30 @@
+
+### Part 1
+If a wife said: <b><i>Konam</i>,</b> i.e., this is forbidden like consecrated property, in reference to anything <b>that I will prepare for your mouth,</b> that is, the payment for any work I perform shall be forbidden to you, <b>he is not required to nullify</b> the vow, as it is automatically void, since she was under a prior obligation to give him her earnings as part of their marriage agreement.
+
+### Part 2
+<b>Rabbi Akiva says:</b> He should <b>nullify</b> the vow, <b>lest she exceed more than is fitting for him.</b> A husband is entitled only to a certain sum from his wife’s earnings (see <i>Ketubot</i> 64b). If she earns only the sum of money to which he is entitled, the vow certainly does not go into effect. However, she might earn more, in which case the vow would apply with regard to the additional amount. To avoid this scenario, it is preferable for the husband to nullify the vow. This shows that according to the opinion of Rabbi Akiva a vow applies even with regard to an entity that has not yet come into the world. In this case, the entity is the earnings for work she has yet to perform.
+
+### Part 3
+The Gemara refutes this proof: <b>But wasn’t it stated with regard to that</b> mishna that <b>Rav Huna, son of Rav Yehoshua, said:</b> This mishna is not referring to a woman who renders the earnings for work she has yet to perform forbidden, but <b>to</b> a wife <b>who says: Let my hands be consecrated to their Maker.</b> In other words, she declares that it is as though her hands were sanctified, which means that anything produced by them is forbidden. <b>Since</b> these <b>hands</b> are <b>in the world,</b> she has not attempted to acquire something that does not exist. Therefore, there is no proof from here with regard to Rabbi Akiva’s opinion on that issue.
+
+### Part 4
+§ The Gemara comments: <b>And</b> this opinion, that Rabbi Akiva maintains that one cannot acquire an entity that has not yet come into the world, <b>disagrees with</b> the opinion of <b>Rav Naḥman bar Yitzḥak, as Rav Naḥman bar Yitzḥak said: Rav Huna</b> agrees <b>with</b> the opinion of <b>Rav, and Rav</b> agrees <b>with</b> the opinion of <b>Rabbi Yannai, and Rabbi Yannai with</b> the opinion of <b>Rabbi Ḥiyya, and Rabbi Ḥiyya with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi, <b>and Rabbi</b> Yehuda HaNasi <b>with</b> the opinion of <b>Rabbi Meir, and Rabbi Meir with</b> the opinion of <b>Rabbi Eliezer ben Ya’akov, and Rabbi Eliezer ben Ya’akov with</b> the opinion of <b>Rabbi Akiva, who said: A person can transfer</b> to another <b>an entity that has not</b> yet <b>come into the world.</b> This shows that Rabbi Akiva indeed maintains that one can acquire something that does not yet exist.
+
+### Part 5
+The Gemara specifies the particular contexts in which the aforementioned opinions, all of which concur, were issued: <b>Rav Huna, what is</b> the source for his ruling? <b>As it was stated:</b> With regard to <b>one who sells the fruit of a palm tree to another</b> before the fruit has grown, <b>Rav Huna said: Until</b> the fruit <b>has come into the world, he can retract</b> the sale, as it has yet to take effect. However, <b>after</b> the fruit <b>has come into the world, he can no</b> longer <b>retract,</b> despite the fact the fruit had not yet sprouted when he made the acquisition.
+
+### Part 6
+<b>And Rav Naḥman said: Even after they have come into the world he can retract,</b> as the acquisition was defective from the outset. He maintains that one cannot transfer ownership of an entity that does not yet exist. <b>Rav Naḥman said:</b> Even so, <b>I concede that if</b> the buyer <b>seizes</b> the fruit <b>and consumes</b> it, the court <b>does not remove them from him,</b> because despite the faulty acquisition he was promised a sale of fruit.
+
+### Part 7
+The Gemara cites the proof that <b>Rav</b> also accepts the ruling that one can acquire an entity that does not yet exist, <b>as Rav Huna said</b> that <b>Rav said:</b> With regard to <b>one who says to another: This field that I am</b> about to <b>buy, when I buy it, it is acquired by you from now,</b> the addressee <b>has acquired</b> the field, despite the fact that it did not belong to the speaker at the time of his statement.
+
+### Part 8
+<b>Rabbi Yannai</b> also agrees <b>with</b> the opinion of <b>Rabbi Ḥiyya, as</b> demonstrated by the following episode: <b>Rabbi Yannai had a sharecropper</b> working his land <b>who would bring him a basket [<i>kanta</i>] of fruit every Shabbat eve. One day he was late and did not come.</b> Rabbi Yannai <b>took tithe from the fruit in his house for</b> the fruit he expected to receive. He did this in case the fruit arrived near the beginning of Shabbat, as one may not tithe on Shabbat. However, Rabbi Yannai was uncertain whether it is indeed possible to separate tithes for an entity that has not yet reached one’s possession. He therefore <b>came before Rabbi Ḥiyya</b> to inquire whether his separation of tithes was effective.
+
+### Part 9
+Rabbi Ḥiyya <b>said to him: You acted well, as it is taught</b> in a <i>baraita</i>, with regard to a verse that discusses tithes: “And you shall eat before the Lord your God…<b>in order that you should learn to fear the Lord your God all the days”</b> (Deuteronomy 14:23). With regard to the emphasis of “all,” <b>these are <i>Shabbatot</i> and Festivals. With regard to what <i>halakha</i></b> was this stated? <b>If we say</b> it was stated in regard to the issue <b>of tithing and eating</b> on Shabbat, this <i>halakha</i> is redundant. <b>Was a verse necessary to permit</b> the prohibition against <b>moving</b> objects, which applies <b>by rabbinic</b> law? Since the prohibition against moving objects is from the Sages, the Torah is certainly not referring to this <i>halakha</i>.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

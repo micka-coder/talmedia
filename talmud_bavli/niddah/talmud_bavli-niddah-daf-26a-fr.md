@@ -1,0 +1,66 @@
+
+### Partie 1
+<b>en ce qui concerne les premiers-nes</b> (<i>Bekhorot</i> 46a), qui stipule que le fils qui nait apres un fœtus de sandale a le statut de premier-ne en ce qui concerne l'heritage mais pas en ce qui concerne l'obligation de rachat aupres d'un pretre. La Gemara demande : <b>Pour quelle raison</b> cette <b><i>halakha</i></b> est-elle pertinente ? Puisque le fœtus sandale a un jumeau qui nait avec lui, le fils suivant est de toute facon exempte de rachat.
+
+### Partie 2
+La Gemara repond : Que <i>halakha</i> est pertinent <b>pour</b> un cas ou le fœtus sandaleson jumeau <b>sort</b> du ventre de sa mere <b>apres lui.</b> La mishna enseigne que comme le fœtus sandale est ne en premier, son jumeau est considere <b>comme un premier-ne en ce qui concerne l'heritage, mais</b> il n'est <b>pas un premier-ne en ce qui concerne</b> le rachat aupres d'un <b>pretre.</b>
+
+### Partie 3
+La Guemara discute de la <i>halakha</i> a l'egard d'une femme qui a decharge <b>un fœtus sandale</b> que nous avons appris</b> dans une mishna <b>dans</b> le tractate <b><i>Karetot</i></b> (7b), qui stipule qu'une telle femme apporte l'offrande d'une femme qui a accouche. La Gemara demande : <b>Pour quelle raison</b> cette <b><i>halakha</i></b> est-elle pertinente ? En tout cas cette femme est obligee d'apporter l'offrande d'une femme qui a accouche, en raison de la gemellite.
+
+### Partie 4
+La Guemara repond : Il est necessaire que la mishna precise <b>que si</b> une femme <b>accouche</b> d'une <b>production a part entiere par cesarienne, et</b> d'un <b>fœtus sandale</b> de maniere reguliere <b>a travers</b> l'uterus, dans</b> un tel cas, <b>elle apporte une offrande pour</b> donner naissance au fœtus <b>sandale</b>, malgre le fait qu'elle n'apporte pas d'offrande pour la progeniture a part entiere, comme on n'apporte pas d'offrande pour une naissance par cesarienne.
+
+### Partie 5
+La Guemara demande : <b>Mais selon Rabbi Shimon, qui a dit</b> qu'une progeniture qui est <b>delivree par cesarienne est</b> consideree comme <b>une progeniture a part entiere,</b> et que sa mere apporte une offrande, <b>qu'y a-t-il a dire ?</b> Pourquoi est-il necessaire que la mishna enonce cette <i>halakha</i> si la femme doit apporter une offrande independamment du fœtus sandale ?
+
+### Partie 6
+<b>Rabbi Yirmeya dit : </b> Il est necessaire que la mishna precise <b>que si</b> une femme <b>enfante</b> la pleine <b>production alors qu'elle est gentille,</b> alors que les <i>halakhot</i> d'une femme apres l'accouchement ne s'appliquent pas a elle, et elle se convertit immediatement au judaisme <b>et</b> donne naissance au fœtus <b>sandal</b> <b>apres s'etre convertie</b> et etre devenue obligee d'observer les <i>halakhot</i> d'une femme apres l'accouchement, <b>qu'elle apporte une offrande pour le fœtus sandal</b>.
+
+### Partie 7
+<b>Les Sages ont dit</b> les reponses a ces questions <b>devant Rav Pappa, et</b> ils lui ont demande : <b>Et ces reponses</b> sont-elles correctes ? Peut-on suggerer que le fœtus sandale est ne avant ou apres le fœtus jumeau ? <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> que <b>lorsque</b> un fœtus sandale et la progeniture a part entiere <b>sortent</b> du ventre de la mere, <b>ils sortent seulement enveloppes</b> l'un autour de l'autre ?
+
+### Partie 8
+<b>Rav Pappa a dit</b> en reponse : <b>Concluez-en</b> que le fœtus santal et son jumeau ne sont pas couches cote a cote, mais plutot que la <b>production a part entiere rencontre le fœtus santal</b> <b>a la moitie de sa</b> hauteur, c'est-a-dire que la tete de la production a part entiere s'enfonce dans l'abdomen du fœtus santal. <b>Et</b> lorsqu'ils naissent, le rejeton a part entiere <b>pousse</b> le fœtus sandale <b>vers</b> la direction vers laquelle <b>sa tete</b> pointe, vers l'entree de l'uterus, ce qui fait que le fœtus sandale nait en premier. Par consequent, la mishna <b>en ce qui concerne les premiers-nes</b> peut etre expliquee comme se referant a un cas <b>ou les fœtus <b>sont sortis</b> de l'uterus <b>avec leur tete</b> en premier, <b>car</b> dans un tel cas, le fœtus <b>sandal</b> <b>sort en premier. </b> En revanche, la mishna <b>dans</b> le tractat <b><i>Karetot</i></b> se refere a un cas <b>ou ils ont emerge avec leurs pieds</b> en premier, <b>comme</b> dans ce cas, la progeniture a part entiere <b>emerge en premier.</b>
+
+### Partie 9
+<b>Rav Huna bar Tahlifa dit au nom de Rava : On</b> peut <b>meme dire</b> que les deux fœtus reposent <b>precisement</b> cote a cote, <b>et</b> il faut <b>inverser</b> le Rav Pappa <b><i>halakha</i></b> pour qu'il se lise comme suit : <b>En ce qui concerne les premiers-nes,</b> la reference est un cas <b>ou les fœtus <b>sont sortis avec leurs pieds</b> en premier. Dans un tel cas, la <b>production a part entiere, qui a la vie, s'accroche et n'emerge pas</b> aussi rapidement, alors que le <b>sandale</b> fœtus, <b>qui n'a pas la vie, glisse</b> vers l'exterieur <b>et emerge</b> en premier. <b>Dans</b> tractat <b><i>Karetot</i>,</b> il est question d'un cas <b>ou</b> les fœtus <b>sortent avec leur tete</b> en premier. Dans un tel cas, en ce qui concerne la <b>production a part entiere, qui a la vie, des que sa tete emerge, elle est</b> consideree comme <b>une naissance,</b> alors que le fœtus <b>sandal</b> est considere comme etant ne <b>seulement lorsque la majorite de son</b> corps <b>emerge.</b>
+
+### Partie 10
+<strong>MISHNA :</strong> S'il y a <b>une post-naissance dans la maison, celle-ci est rituellement impure,</b> en ce sens que tout ce qui se trouve sous le toit contracte l'impurete communiquee par un cadavre. La raison n'est pas que</b> le statut d'une post-naissance</b> est celui d'une progeniture ; c'est plutot <b>qu'il n'y a pas de post-naissance sans progeniture.</b> Il est clair que la post-naissance contenait une progeniture qui s'est desintegree apres la fausse couche. Cette progeniture a rendu impur le contenu de la maison.
+
+### Partie 11
+<b>Rabbi Shimon dit :</b> La maison ne devient pas une tente sur un cadavre, car bien qu'il y ait eu une progeniture dans le post-partum, <b>la progeniture s'est desintegree,</b> se transformant en sang, <b>avant qu'elle n'emerge</b> de la matrice, et elle a ete annulee par la majorite du sang qui a accompagne la fausse couche.
+
+### Partie 12
+<strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> dans une <i>baraita</i> en ce qui concerne l'apparition de la post-naissance : Au <b>debut de</b> la grossesse, le <b>renaissance</b> est si mince qu'il est <b>similaire a une corde de la trame, et</b> a la <b>fin de</b> la grossesse, il est beaucoup plus large, <b>similaire</b> en largeur <b>a un lupin. Et</b> le placenta est <b>creux comme une trompette, et il n'y a pas de placenta</b> dont la longueur soit <b>moins d'un paleron. Rabbi Shimon ben Gamliel dit : Un post-naissance est semblable au crawl des coqs, d'ou sort l'intestin grele</b> <b>sortant.</b>
+
+### Partie 13
+Puisque la <i>baraita</i> indique que la longueur minimale d'un placenta est d'un metre carre, la Guemara cite une autre <i>baraita</i> qui enumere differents elements dont le statut halakhique depend d'une mesure minimale d'un metre carre. <b>Il est enseigne</b> par <b>Rabbi Oshaya, le plus jeune [<i>zeeira</i>] de la compagnie [<i>demin havrayya</i>]</b> des Sages : Il y a <b>cinq</b> elements <b>dont</b> la <b>mesure minimale</b> est d'un <b>manchette, et ce sont eux : Une post-naissance,</b> le <b>shofar</b> pour souffler a Rosh HaShana, la <b>epine</b> d'un <i>lulav</i> qui doit etre pris a <i>Sukkot</i>, la largeur du <b>mur d'une <i>sukka</i>, et l'hysope [<i>vehaezov</i>]. </b> L'hysope est utilisee pour la purification d'un lepreux et pour la preparation des cendres d'une genisse rouge afin de les asperger avec de l'eau sur quelqu'un qui est rituellement impur en raison de l'impurete communiquee par un cadavre.
+
+### Partie 14
+La Guemara developpe : La <i>halakha</i> par rapport a <b>une post-naissance est celle que nous avons enoncee</b> ci-dessus. La <i>halakha</i> de <b>un shofar</b> est <b>telle qu'elle est enseignee</b> dans une <i>baraita</i> : <b>Quelle est la mesure</b> de la longueur <b>d'un shofar</b> pour souffler a Rosh HaShana ? <b>Rabbi Shimon ben Gamliel a explique :</b> Il doit etre suffisamment long pour que, lorsqu'on le tient dans sa main</b> avec quatre doigts, <b>on puisse le voir</b> depasser <b>d'un cote</b> de sa main <b>et de l'autre cote,</b> c'est-a-dire d'au moins un <b>manche de largeur.</b>
+
+### Partie 15
+<b>Quel est</b> la <i>halakha</i> en ce qui concerne <b>une epine</b> d'un <i>lulav</i> ? C'est <b>comme l'a dit Rabbi Parnakh</b> que <b>Rabbi Yohanan dit : L'epine dorsale d'un <i>lulav</i> doit depasser</b> d'au moins un <b>manchement au-dela de la branche de myrte</b> qui lui est attachee. La <i>halakha</i> de <b>la paroi d'une <i>sukka</i></b> est <b>telle qu'elle est enseignee</b> dans une <i>baraita</i> : Une <i>sukka</i> n'est valable que si elle comporte <b>deux</b> cloisons a part entiere <b>au sens courant,</b> fermant completement chacun de ces deux cotes et mesurant au moins sept brins de main, <b>et une troisieme</b> paroi qui mesure <b>meme</b> un <b>bref de main.</b> Si la troisieme paroi a une longueur inferieure a un brin de main, la <i>sukka</i> est impropre. Enfin, la <i>halakha</i> en ce qui concerne l'<b>hysope</b> est enoncee dans une <i>baraita</i> <b>que Rabbi Hiyya enseigne :</b> L'<b>hysope</b> utilisee pour la purification d'un lepreux et pour la preparation des cendres d'une genisse rouge doit mesurer au moins un <b>breadth de main.</b>
+
+### Partie 16
+<b>Rabbi Hanina bar Pappa dit</b> que <b>Sheila de Kefar Temarta a enseigne</b> comme moyen mnemotechnique : Il y a <b>trois <i>baraitot</i>,</b> en ce qui concerne une post-naissance, un shofar, et le mur d'une <i>sukka</i>, <b>et</b> il y a <b>deux</b> <b><i>halakhot</i></b> independantes de <i>amoraim</i>, de l'epine d'un <i>lulav</i> et de l'hysope, ou la <b>mesure minimale</b> d'un <b>manchement</b> est requise. La Guemara demande : Y a-t-il <b>deux</b> <i>halakhot</i> de <i>amoraim</i> dans cette liste ? Il <b>y a</b> seulement <b>une</b> affirmation, en ce qui concerne la colonne vertebrale d'un <i>lulav</i>. La <i>halakha</i> de l'hysope est enseignee dans une <i>baraita</i> de Rabbi Hiyya. <b>Abaye dit :</b> Revisez la formulation de cette declaration, de sorte qu'il ne faut pas lire que Rabbi Hiyya a enseigne une <i>baraita</i> ; plutot, <b>say</b> que <b>Rabbi Hiyya dit</b> lui-meme que l'<b>hysope</b> doit mesurer au moins un <b>manchette,</b> c'est-a-dire, que <i>halakha</i> n'est pas enseigne dans un <i>baraita</i>.
+
+### Partie 17
+La Guemara demande : <b>Et n'y a-t-il pas d'autres</b> cas ou la mesure minimale est un tour de main, autres que les cinq enumeres par Rabbi Oshaya ? <b>Mais n'y a-t-il pas</b> la mishna suivante (<i>Oholot</i> 3:7) qui traite de la taille minimale d'une tente qui transmet une impurete rituelle : <b>Un espace cubique</b> mesurant une <b>coupe transversale par</b> une <b>coupe transversale avec une hauteur de</b> une <b>coupe transversale transmet l'impurete rituelle.</b> Si un cadavre se trouve dans cet espace, l'impurete est transmise a toutes les personnes, les recipients et la nourriture dans cet espace. <b>Et</b> un espace de cette taille <b>sert de barriere avant,</b> c'est-a-dire qu'il arrete la propagation de, <b>l'impurete rituelle</b> au-dela de cet espace.
+
+### Partie 18
+La Gemara repond : <b>Nous avons dit</b> qu'il y a cinq objets dont la mesure minimale est d'un <b>centimetre carre ; nous n'avons</b> rien dit au sujet d'un espace dont la mesure est d'un <b>centimetre carre par</b> un <b>centimetre carre.</b>
+
+### Partie 19
+La Guemara demande en outre : <b>Mais n'y a-t-il pas</b> la mishna suivante (<i>Kelim</i> 5:2) : <b>Une pierre qui depasse du four</b> d'un <b>manchette,</b> qui est utilisee comme poignee pour soulever et porter le four, <b>et</b> de meme une pierre qui depasse <b>du poele de trois brins de doigt</b> est consideree comme ayant <b>un lien</b> avec le four ou le poele en ce qui concerne l'impurete rituelle. Par consequent, si le four ou le poele devient impur, la poignee en pierre, qui est classee comme faisant partie du four, est egalement rendue impure. Si la poignee est plus longue que cela, la longueur supplementaire sera enlevee, elle n'est donc pas consideree comme faisant partie du four.
+
+### Partie 20
+La Guemara repond : <b>Lorsque nous avons dit</b> qu'il y a cinq articles dont la mesure minimale est d'une largeur de main, nous faisions reference a des cas <b>ou</b> s'il <b>moins</b> d'une <b>largeur de main</b>, il <b>est impropre</b> a l'usage de l'article. <b>Mais ici,</b> ou une pierre saillante d'un tour de main est consideree comme une poignee du four, c'est <b>d'autant plus</b> le cas <b>que</b> une pierre saillante <b>moins</b> d'un <b>tour de main</b> de longueur <b>est</b> consideree comme <b>une poignee du</b> <b>four.</b>
+
+### Partie 21
+La Gemara demande : <b>Mais n'y a-t-il pas</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

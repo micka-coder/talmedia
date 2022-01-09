@@ -1,0 +1,45 @@
+
+### Part 1
+<b>let</b> the barrel <b>itself serve as a barrier.</b> It should not be susceptible to impurity in this case, <b>as an earthenware vessel does not contract impurity if its exterior</b> is exposed to impurity. <b>Rather,</b> one must say <b>that its opening faces inward,</b> and it is rendered impure because the impurity enters through its opening. <b>And if you wish, say</b> instead that <b>actually its opening faces outward, and with what are we dealing here?</b> We are dealing <b>with a metal barrel,</b> which does contract impurity through its exterior.
+
+### Part 2
+The Gemara <b>raises</b> another <b>objection</b> to the assumption that an item for which there is a use does not reduce the dimensions of a window, even if is not susceptible to impurity, from a <i>baraita</i> (<i>Tosefta</i>, <i>Oholot</i> 14:6): With regard to <b>grass that one plucked and placed in a window or that grew on its own in windows; and scraps of fabric that do not measure three by three</b> fingerbreadths; <b>and a limb or flesh dangling from an animal or a beast; and a bird resting in the window; and a gentile sitting in the window; and</b> a child <b>born</b> after <b>eight</b> months of pregnancy, who is not expected to survive, <b>that is placed in the window; and salt; and an earthenware vessel; and a Torah scroll, all these reduce the dimensions of the window.</b> Consequently, impurity passes through only if there remains an open space of a square handbreadth. <b>But</b> with regard to <b>snow, hail, frost, ice, and water, all these do not reduce the dimensions of a window.</b>
+
+### Part 3
+The Gemara proceeds to challenge Shmuel’s ruling from each of the cases of the <i>baraita</i>. The Gemara asks: <b>But</b> according to Shmuel, who says that an item that has a use is not considered part of the window and does not reduce the dimensions of the space, <b>grass is fit</b> for consumption by <b>one’s animal,</b> so it will not remain in the window. Yet the <i>baraita</i> states that grass reduces the dimensions of the window. The Gemara answers: This is referring <b>to <i>afrazta</i>,</b> which is poisonous grass that is unfit for an animal to consume.
+
+### Part 4
+The <i>baraita</i> teaches: <b>Or</b> grass <b>that grew on its own</b> also reduces the dimensions of the window. The Gemara asks: But <b>since</b> the grass <b>damages the wall,</b> the owner <b>will remove it.</b> Therefore, it should not serve as a barrier to impurity. <b>Rabba says:</b> This is referring <b>to a wall of a ruin,</b> whose structural integrity is insignificant, and therefore the owner will not trouble himself to remove the grass. <b>Rav Pappa says:</b> The <i>baraita</i> may even be referring <b>to a wall</b> in <b>a settled</b> house, and it is referring to a case <b>where</b> the grass <b>comes from three</b> handbreadths <b>beyond</b> the <b>window.</b> In other words, the grass does not grow on the window but takes root some distance away, and from there it reaches the window. The homeowner is not particular about this grass and will not uproot it.
+
+### Part 5
+The Gemara further asks: Why do <b>scraps of fabric</b> reduce the dimensions of the window? After all, <b>they are fit for</b> patching <b>a tear in a garment.</b> The Gemara answers: This is referring <b>to thick</b> scraps, which are unsuitable for patching. The Gemara challenges: Nevertheless, they are <b>fit for a bloodletter</b> to wipe up the blood at the point of incision. The Gemara answers: It is referring <b>to sackcloth,</b> which scratches the skin, and would not be used for that purpose.
+
+### Part 6
+The Gemara asks: <b>If</b> it is referring <b>to sackcloth,</b> why does the <i>baraita</i> state <b>that it is not three by three</b> fingerbreadths? It <b>should have</b> said that <b>it is not four by four</b> handbreadths. Rough woven material of the kind used for sacks rather than clothes is susceptible to impurity only if its area measures at least four by four handbreadths. The Gemara answers: It is not actual sackcloth; rather, it is <b>like sackcloth,</b> i.e., it is stiff, and will therefore not be used by a bloodletter, but is woven like regular clothing.
+
+### Part 7
+The <i>baraita</i> teaches: <b>And a limb or flesh dangling from an animal or a beast</b> reduces the dimensions of a window. The Gemara asks: According to the opinion of Shmuel, why should this be so? After all, the animal can <b>arise and escape,</b> and therefore it should not be considered as part of the window. The Gemara answers: This is referring <b>to</b> an animal that is <b>tied</b> in place.
+
+### Part 8
+The Gemara challenges: But the owner of the animal will take it and <b>slaughter it.</b> The Gemara answers: It is referring <b>to</b> an animal that is <b>non-kosher</b> and will not be slaughtered. The Gemara challenges: Even so, <b>he</b> will take it and <b>sell it to a gentile.</b> The Gemara responds: It is referring <b>to a lean</b> animal, which no one will buy. The Gemara continues: Even if the animal does not move, there is a use for the part that is dangling, <b>since he</b> can <b>cut it off</b> and <b>throw it to the dogs.</b> The Gemara answers: <b>Since there is suffering to an animal</b> if he cuts it off, <b>he will not do</b> that.
+
+### Part 9
+The <i>baraita</i> further teaches: <b>And a bird resting in the window</b> reduces its dimensions. The Gemara challenges: But it will <b>fly away,</b> and therefore it should not be considered as part of the window. The Gemara answers: This is referring to a bird <b>that is tied</b> in place. The Gemara further challenges: But the owner will take it and <b>slaughter it.</b> The Gemara answers: This is referring <b>to a non-kosher bird,</b> which he will not slaughter. The Gemara continues: Even if it is non-kosher <b>he</b> will take it and <b>sell it to a gentile.</b> The Gemara responds: It is referring <b>to a <i>kelanita</i>,</b> a type of bird that is so bony that no one would purchase it to consume it.
+
+### Part 10
+The Gemara asks: But even so, <b>he</b> can <b>give it to a child</b> to play with, so why does it reduce the dimensions of the window? The Gemara answers: It is referring to a bird <b>that scratches.</b> The Gemara challenges: But <b>a <i>kelanita</i> does not scratch.</b> The Gemara answers: The <i>baraita</i> is referring to a type of bird that is <b>like a <i>kelanita</i></b> in that it is bony, but is inclined to scratch people.
+
+### Part 11
+The <i>baraita</i> further states: <b>And a gentile sitting in the window</b> reduces its dimensions. The Gemara asks: But the gentile will <b>arise and leave,</b> so why does he reduce the dimensions of the window? The Gemara answers: This is referring <b>to</b> someone <b>who is tied</b> in place. The Gemara continues: <b>Another</b> person <b>will come</b> and <b>release him.</b> The Gemara answers: This is referring <b>to a leper,</b> whom people are afraid to touch. The Gemara challenges: <b>Another leper will come</b> and <b>release him. Rather,</b> this is referring <b>to a prisoner of the monarchy.</b> Since he is confined as a punishment, others are afraid to release him.
+
+### Part 12
+The <i>baraita</i> teaches: <b>And</b> a child <b>born</b> after <b>eight</b> months of pregnancy <b>who is placed in the window</b> reduces its dimensions. The Gemara challenges: Perhaps <b>his mother will come and remove him</b> from there. The Gemara answers: This is referring <b>to Shabbat,</b> when it is prohibited to move this child, <b>as it is taught</b> in a <i>baraita</i>: A child <b>born</b> after <b>eight</b> months <b>is like a stone</b> with regard to the <i>halakhot</i> of set-aside [<i>muktze</i>], <b>and</b> therefore <b>it is prohibited to move him; but his mother may bend over</b> the child <b>and nurse him, due to the danger</b> that failure to nurse will cause her to fall ill.
+
+### Part 13
+The <i>baraita</i> teaches: <b>Salt</b> reduces the dimensions of a window. The Gemara challenges: <b>It is fit</b> for use and people will remove it from there. The Gemara answers: This is referring <b>to bitter</b> salt, which is not used as a seasoning. The Gemara challenges: Nevertheless, <b>it is fit for</b> tanning <b>hides.</b> The Gemara responds: It is referring to salt <b>that has thorns</b> mixed with it, and therefore it will not be used for tanning.
+
+### Part 14
+The Gemara challenges: Even so, <b>since</b> this salt <b>is damaging to the wall, he will remove it</b> from there. The Gemara answers: This is referring to a case <b>where it sits on a shard</b> of earthenware, and consequently it does not damage the wall. The Gemara states: If it is resting on earthenware, <b>let</b> the <b>shard itself serve as a barrier</b> against the spreading of the impurity. Why, then, is the salt mentioned?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

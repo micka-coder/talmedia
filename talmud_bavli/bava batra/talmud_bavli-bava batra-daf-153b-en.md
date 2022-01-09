@@ -1,0 +1,24 @@
+
+### Part 1
+<b>Rabba said: He is dead, and his grave proves</b> that <b>he</b> died. It may therefore be assumed that he did not recover from his sickness, and his gift remains valid. <b>Abaye said to him: And now, if</b> in the case of <b>a ship</b> that sank, <b>where</b> the fate of <b>most of</b> the passengers of sunken ships is <b>to perish,</b> the <b>stringencies of</b> the <b>living and</b> the <b>stringencies of</b> the <b>dead are applied to them</b> due to the uncertainty as to whether they are alive or dead, in the case of <b>sick people, where</b> the fate of <b>most sick people</b> is <b>to</b> return to <b>life, all the more so</b> is it <b>not</b> clear that one should assume that he recovered from the illness and his gift is invalid?
+
+### Part 2
+<b>Rav Huna, son of Rav Yehoshua, said: In accordance with whose</b> opinion <b>is that <i>halakha</i> of Rabba?</b> It is <b>in accordance with</b> the opinion of <b>Rabbi Natan, as it is taught</b> in a <i>baraita</i>: With regard to a case where one who gave his property to others claims that since he was on his deathbed at the time he can retract the gifts, and the recipients claim that he was healthy and cannot retract it, <b>who removes</b> the property <b>from whose possession?</b> The giver <b>can remove</b> it <b>from</b> the recipients’ <b>possession without proof,</b> as the property was previously established to be in his possession, <b>but</b> the recipients <b>can remove</b> it <b>from</b> the giver’s <b>possession only with proof.</b> This is <b>the statement of Rabbi Ya’akov.</b>
+
+### Part 3
+<b>Rabbi Natan says:</b> The presumption is that the current situation reflects the situation at the time the gift was bestowed. Therefore, <b>if he is</b> currently <b>healthy,</b> the obligation <b>is upon him to bring proof that he was on his deathbed</b> when he gave his property to others. <b>If he is</b> currently <b>on his deathbed,</b> the obligation <b>is upon</b> the recipients <b>to bring proof that he was healthy</b> then.
+
+### Part 4
+<b>Rabbi Elazar says: And with regard to</b> a case of uncertain <b>ritual impurity,</b> the <i>halakha</i> depends <b>on</b> the same <b>dispute.</b> This is <b>as we learned</b> in a mishna (<i>Teharot</i> 6:7): The <i>halakha</i> is that a case where it is uncertain if something or someone became impure in the public domain, the item or person is deemed pure. With regard to <b>an expanse of fields, in the summer,</b> when many people pass through the fields, it <b>is</b> considered <b>the private domain with regard to</b> the <i>halakhot</i> of <b>Shabbat, but</b> it is considered <b>the public domain with regard to</b> the <i>halakhot</i> of <b>ritual impurity,</b> and if one is uncertain as to whether he was rendered impure there, he is deemed pure.
+
+### Part 5
+<b>In the rainy season,</b> when not many people pass through the fields, an expanse of fields is considered <b>the private domain</b> both <b>with regard to this,</b> Shabbat, <b>and with regard to that,</b> ritual impurity. Therefore, if one is uncertain whether he was rendered impure there, he is deemed impure. If one does not know whether the day he entered the expanse of fields was considered part of the summer or the rainy season, and he is uncertain whether he was rendered impure there, Rabbi Ya’akov maintains that he retains the status of purity that he held before entering the fields. According to Rabbi Natan, it is presumed that he entered the fields during the same season in which he came to ask whether he was rendered impure.
+
+### Part 6
+<b>Rava</b> disagrees with Rabbi Elazar and <b>says: They taught</b> the ruling of the mishna <b>only</b> with regard to a case <b>where the rainy season has not</b> yet <b>passed over</b> the fields after the possibility arose that the fields contained impurity. <b>But</b> if <b>the rainy season has</b> already <b>passed over</b> the fields, it is considered <b>the private domain</b> both <b>with regard to this,</b> Shabbat, <b>and with regard to that,</b> ritual impurity. Even though the one who passed through the fields came to ask about his status in the summer, when the fields should be considered the public domain, he is nevertheless deemed impure even according to Rabbi Natan, and there is no parallel dispute with regard to uncertain ritual impurity.
+
+### Part 7
+§ The mishna teaches: <b>And the Rabbis say: The burden of proof rests upon the claimant,</b> and since the property is in the possession of the giver, the recipients must bring proof that they have the right to receive it.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Partie 1
+<b>Tout element compte, meme</b> s'il est interdit <b>par la loi rabbinique,</b> par exemple le <i>teruma</i> de fruits, <b>ne peut etre annule, et a plus forte raison</b> les elements interdits <b>par la loi de la Torah,</b> comme les animaux disqualifies pour l'autel, comme dans la mishna.
+
+### Partie 2
+Ceci est <b>comme il est enseigne</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Terumot</i> 5:11) : La <i>baraita</i> discute de trois cas, tous relatifs a la dime des figues, qui est une obligation selon la loi rabbinique. Le premier est le cas de <b>une <i>litra</i> de</b> figues seches</b> non lavees qui ont ete pressees dans differents recipients et faconnees en cercles, <b>celle-ci</b> placee dans un tonneau contenant des figues dimees, et pendant le processus de production d'un cercle, il a <b>presse</b> les figues <b>sur l'ouverture de</b> l'un des recipients <b>circulaires</b> dans lesquels les cercles sont formes, <b>et il ne sait pas dans quel recipient circulaire</b> <b>il l'a presse. </b> Le deuxieme cas est celui ou il se rappelle qu'il l'a presse <b>sur l'ouverture d'un tonneau</b> contenant des figues titrees, <b>mais il ne sait pas dans quel tonneau il l'a presse. </b> Le troisieme cas est qu'il se rappelle qu'il l'a presse <b>sur l'ouverture</b> d'un <b>receptacle</b> de paille contenant des figues dimees, <b>mais il ne sait pas dans quel receptacle il l'a presse.</b> Dans tous ces cas, il y a une dispute entre Rabbi Meir et Rabbi Yehuda quant aux details d'une dispute entre Rabbi Eliezer et Rabbi Yehoshua.
+
+### Partie 3
+<b>Rabbi Meir dit</b> que <b>Rabbi Eliezer dit : On considere les couches superieures</b> de figues seches eventuellement non lavees <b>comme si elles etaient des pieces separees</b>, plutot qu'une seule unite. <b>Et les inferieures</b>, qui etaient la au prealable et qui ont certainement ete soumises a la dime, <b>annulent les superieures</b>, car il y a suffisamment de cercles de figues pour annuler la couche superieure. On n'a pas besoin de donner la dime des figues qui se trouvent au sommet de l'un ou l'autre des recipients.
+
+### Partie 4
+Rabbi Meir poursuit : En revanche, <b>Rabbi Yehoshua dit : Si cent ouvertures</b> de recipients y sont presentes, la <i>litra</i> de figues non lavee sur l'ouverture d'un des recipients <b>est annulee</b> dans un rapport d'une partie de figues non lavees pour cent parties de figues similaires et titrees. <b>Mais si ce n'est pas le cas,</b> toutes <b>les</b> couches de figues aux <b>ouvertures</b> des recipients <b>sont interdites,</b> c'est-a-dire regardees comme non titrees, car l'une d'elles contient certainement une <i>litra</i> non titree qui n'a pas ete annulee. <b>Et les</b> figues sur les <b>interieurs</b> des recipients <b>sont permises,</b> car les figues non dechirees n'y sont certainement pas parvenues. Voici la version de Rabbi Meir de la dispute.
+
+### Partie 5
+La <i>baraita</i> continue : <b>Rabbi Yehuda dit</b> que <b>Rabbi Eliezer dit : S'il y a cent ouvertures</b> de recipients avec des figues dimees presentes <b>la,</b> en plus des figues non dimees, <b>on annule</b> dans les cent. <b>Mais si ce n'est pas le cas,</b> toutes <b>les</b> couches de figues aux <b>ouvertures</b> des recipients <b>sont interdites,</b> c'est-a-dire regardees comme non titrees, car l'une d'elles contient certainement une <i>litra</i> non titree qui n'a pas ete annulee. Et les figues qui se trouvent a l'interieur des recipients sont permises, car les figues non lavees n'y sont certainement pas parvenues.
+
+### Partie 6
+Rabbi Yehuda poursuit sa declaration : En revanche, <b>Rabbi Yehoshua dit : Meme</b> si <b>il y a trois cents ouvertures</b> presentes <b>la, </b> la couche au sommet du recipient n'est <b>pas annulee.</b> Cette <i>litra</i> ne peut etre annulee d'aucune maniere, car Rabbi Yehoshua soutient que meme un article vendu occasionnellement a l'unite, comme un cercle de figues seches, ne peut jamais etre annule.
+
+### Partie 7
+Rabbi Yehouda poursuit : Mais si l'on <b>pressait</b> la <i>litra</i> de figues seches <b>dans un recipient circulaire</b> avec d'autres figues seches, <b>mais que l'on ne sait pas sur quel endroit,</b> c'est-a-dire de quel cote, <b>du recipient circulaire</b> <b>il l'a pressee, que ce soit,</b> par ex, <b>vers son cote nord</b> <b>ou vers son cote sud</b>, dans ce cas, comme la <i>litra</i> interdite n'est pas situee dans un endroit defini et qu'elle ne peut etre distinguee des autres, elle n'est pas consideree comme un objet d'importance, et <b>tout le monde s'accorde</b> a dire qu'elle est <b>annulee. </b> En consequence, la decision de la mishna selon laquelle les animaux disqualifies pour etre sacrifies ne sont pas annules est en accord avec l'opinion de Rabbi Yehoshua telle qu'enoncee par Rabbi Eliezer, selon laquelle un article vendu occasionnellement a l'unite n'est pas annule. La declaration de Rabbi Yohanan, selon laquelle seul un article dont la maniere est exclusivement d'etre compte est significatif et ne peut etre annule, est en accord avec l'opinion de Rabbi Meir.
+
+### Partie 8
+<b>Rav Ashi dit : Vous</b> pouvez <b>meme dire</b> que la mishna est conforme a l'avis des <b>Rabbins,</b> c'est-a-dire de Rabbi Meir, qui soutient qu'un element qui n'est pas toujours compte est annule a la majorite. La raison est que <b>les creatures vivantes sont significatives, et</b> donc <b>elles ne sont pas annulees.</b>
+
+### Partie 9
+§ La Guemara souleve une difficulte avec la decision de la mishna selon laquelle tous les animaux sont interdits. <b>Et tirons et sacrifions un</b> animal <b>du</b> melange, <b>et disons,</b> c'est-a-dire appliquons le principe : <b>Tout</b> element <b>qui se separe</b> d'un groupe est suppose s'etre <b>separe de la majorite.</b> En consequence, l'animal qui a ete sacrifie est presume apte. On peut continuer de cette maniere jusqu'a ce qu'il ne reste que deux animaux du melange. La Guemara remet en question cette suggestion : Devrions-nous tirer un animal du melange ? Mais ceci <b>est</b> le retrait d'un element de sa <b>place fixe</b>,
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Et meme les rabbins ne sont pas en desaccord avec Rabbi Elazar, fils de Rabbi Shimon, sauf en ce qui concerne l'offrande de repas d'un pecheur</b> qui est <b>un pretre, car</b> ils soutiennent que <b>elle est apte a etre sacrifiee</b> dans son integralite sans en retirer une poignee. <b>Cependant, dans ce</b> cas, c'est-a-dire dans le cas de l'offrande de repas d'une <i>sota</i> qui est mariee a un pretre, <b>meme les rabbins sont d'accord</b> pour que son reste soit disperse a la place des cendres, puisque la poignee est retiree de l'offrande.
+
+### Partie 2
+§ La mishna declare : Dans le cas d'une <b>femme israelite mariee</b> a un pretre, son offrande de repas est brulee ; et dans le cas de la fille d'un pretre mariee a un israelite, son offrande de repas est mangee. La Gemara demande : <b>Quelle est la raison</b> de ceci ? C'est <b>comme le dit le verset : "Toute offrande d'un prêtre sera entièrement brA "lée ; elle ne sera pas mangée"</b> (Léviticus 6:16). On peut en deduire que cela s'applique a <b>un pretre, mais pas</b> a <b>la fille d'un pretre.</b>
+
+### Partie 3
+La mishna declare : La <b>fille d'un pretre peut devenir disqualifiee</b> d'epouser un pretre et de participer a la <i>teruma</i> en ayant des rapports sexuels avec une personne qui lui est interdite, mais <b>un pretre ne devient pas desacralise</b> en ayant des rapports sexuels avec une femme qui lui est interdite. La Gemara demande : <b>D'ou derive-t-on</b> cela ? C'est <b>comme le dit le verset</b> a propos d'un pretre qui epouse une femme qui lui est interdite : <b>Et il ne disqualifiera pas sa descendance parmi son peuple</b> (Levitique 21:15), indiquant que <b>sa descendance</b> issue de rapports interdits <b>est desacralisee, mais il n'est pas</b> personnellement <b>desacralise</b> par ses actes.
+
+### Partie 4
+La mishna declare : <b>La fille d'un pretre peut devenir impure</b> avec l'impurete transmise par un cadavre, mais un pretre ne le peut pas. La Gemara demande : <b>Quelle est la raison</b> de cette situation ? La Gemara repond : <b>Le verset dit : <b>Parle aux pretres, les fils d'Aaron,</b> et dis-leur : Nul ne se rendra impur pour un mort parmi son peuple" (Levitique 21:1). Le verset indique que cela s'applique aux <b>fils d'Aaron et non</b> aux <b>filles d'Aaron.</b>
+
+### Partie 5
+La mishna indique : <b>Un pretre peut manger des offrandes de l'ordre le plus sacre,</b> mais une fille de pretre ne peut pas manger des offrandes de l'ordre le plus sacre. La Gemara explique : Ceci est derive <b>comme il est ecrit</b> en ce qui concerne l'offrande de repas, qui est une offrande de l'ordre le plus sacre : <b>"Tout male parmi les enfants d'Aaron peut en manger"</b> (Levitique 6:11).
+
+### Partie 6
+§ La mishna declare : <b>Et quelles</b> sont les differences halakhiques <b>entre un homme</b> et une femme ? Un homme laisse pousser ses cheveux et dechire ses vetements lorsqu'il est lepreux, mais une femme ne le fait pas. <b>Les Sages ont enseigne:</b> Le verset dit : "Il est un <b>homme lepreux,</b> il est impur" (Levitique 13:44). <b>J'ai</b> deduit <b>seulement</b> que les <i>halakhot</i> d'un lepreux confirme s'appliquent a <b>un homme ; d'ou</b> est-ce que je deduis qu'elles s'appliquent a <b>une femme ? Quand il est dit</b> dans le verset suivant : <b>"Et le lepreux chez qui</b> la plaie est, ses vetements seront dechires, les cheveux de sa tete pousseront a l'etat sauvage et il se couvrira la levre superieure ; et il criera : Impur, impur" (Levitique 13:45), <b>Il y a deux</b> individus indiques <b>ici,</b> car ce verset n'avait pas besoin de reformuler "et le lepreux," puisque le sujet du verset etait clair grace au verset precedent.
+
+### Partie 7
+<b>Si c'est le cas, quel</b> est le sens lorsque <b>le verset dit :</b> Un <b>homme lepreux" ? </b> Cela fait reference <b>a la question</b> de dechirer ses vetements et de laisser pousser ses cheveux sauvages, <b>ce qui</b> est enonce dans le verset <b>ci-dessous,</b> et enseigne que <b>un homme laisse</b> les cheveux de sa tete <b>pousser</b> et dechire ses vetements, mais une femme ne le fait pas.
+
+### Partie 8
+La mishna declare : <b>Un homme peut faire le vœu</b> que <b>son <b>fils</b> mineur sera <b>nazirite, mais une femme ne peut pas faire le vœu</b> que <b>son fils</b> sera <b>nazirite. Rabbi Yohanan dit : Il s'agit d'une <i>halakha</i></b> transmise oralement a Moise depuis le Sinai <b>en ce qui concerne</b> le <b>nazirite,</b> et elle ne provient pas de la Bible. La mishna declare : <b>Un homme peut se raser</b> au point culminant de sa nazireite <b>en utilisant</b> des offrandes designees pour <b>sa nazireite de pere, mais une femme ne peut pas se raser en</b> utilisant des offrandes designees pour <b>sa nazireite de pere. Rabbi Yohanan dit : Il s'agit d'une <i>halakha</i></b> transmise oralement a Moise depuis le Sinai <b>en ce qui concerne</b> la <b>nazirite,</b> et elle ne provient pas de la Bible.
+
+### Partie 9
+La mishna declare : <b>Un homme peut fiancer sa fille</b> a un autre homme tant qu'elle est mineure, <b>mais une femme ne peut pas fiancer sa fille.</b> La Gemara explique : C'est <b>comme il est ecrit :</b> "Et le pere de la jeune fille dira aux anciens : <b>J'ai donne ma fille a cet homme</b> comme epouse" (Deuteronome 22:16), indiquant que seul le pere a le pouvoir de fiancer sa fille. La mishna affirme : <b>Un homme peut vendre sa fille</b> comme servante <b>mais une femme ne peut pas vendre sa fille.</b> La Gemara explique : Ceci est derive <b>du fait qu'il est ecrit : "Et si un homme vend sa fille</b> pour en faire une servante" (Exode 21:7), indiquant que seul un homme peut vendre sa fille, alors qu'une femme ne le peut pas.
+
+### Partie 10
+§ La mishna indique : <b>Un homme est lapide nu,</b> mais une femme n'est pas lapidee nue. La Gemara demande : <b>Quelle est la raison</b> de cet etat de fait ? La Gemara repond : Le verset dit : <b>"Et</b> que toute la congregation <b>le lapide"</b> (Levitique 24:14). <b>Qu'est-ce</b> que le terme <b>"lui"</b> vient exclure ? <b>Si nous disons</b> que cela signifie qu'on lapide <b>lui mais pas elle,</b> c'est-a-dire qu'une femme n'est pas du tout lapidee, <b>mais n'est-il pas ecrit : "Et tu sortiras cet homme ou cette femme,</b> qui a fait cette mauvaise action, vers tes portes, cet homme ou cette femme ; tu les lapideras, et ils mourront" (Deuteronome 17:5). <b>Au contraire,</b> le terme <b>"lui"</b> exclut son vetement, indiquant qu'il est lapide <b>sans son vetement. Et</b> une femme est exclue de cette <i>halakha</i>, car on peut deduire du terme "lui" qu'on ne <b>pas</b> la lapider <b>sans son vetement.</b>
+
+### Partie 11
+La mishna declare : <b>Un homme est pendu, mais</b> une femme est <b>non</b> pendue. La Gemara demande : <b>Quelle est la raison</b> de ceci ? <b>Le verset indique :</b> "Et si un homme a commis un peche digne de mort, et qu'il est mis a mort, <b>vous le pendrez a un arbre"</b> (Deuteronome 21:22). Le verset indique qu'il faut pendre <b>"il,</b> un homme, <b>mais pas elle,</b> une femme.
+
+### Partie 12
+La mishna declare : <b>Un homme est vendu pour son</b> commettre un acte de <b>vol, mais une femme n'est pas vendue pour son</b> commettre un acte de <b>vol.</b> La Gemara demande : <b>Quelle est la raison</b> de ceci ? <b>Le verset indique :</b> <b>"Si le soleil s'est leve sur lui, il y a faute de sang pour lui ; il fera restitution ; s'il n'a rien, <b>alors il sera vendu pour son vol"</b> (Exode 22:2). Le verset indique qu'il est vendu <b>pour son vol, mais</b> elle n'est <b>pas</b> vendue <b>pour son vol.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

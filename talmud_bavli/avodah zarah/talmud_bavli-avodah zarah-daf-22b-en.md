@@ -1,0 +1,39 @@
+
+### Part 1
+<strong>GEMARA:</strong> With regard to the assumption that gentiles are suspected of bestiality, the Gemara <b>raises a contradiction</b> from a <i>baraita</i> (<i>Tosefta</i> 2:1): <b>One may purchase an animal from</b> gentiles <b>for</b> use as <b>an offering, and there is no concern</b> that it might be unfit <b>due to</b> it being <b>an animal that copulated with a person, or due to</b> is being <b>an animal that was the object of bestiality, or due to</b> it having been <b>set aside</b> for idol worship, <b>or due to</b> the animal itself having been <b>worshipped.</b>
+
+### Part 2
+The Gemara analyzes this ruling: <b>Granted,</b> there is no concern that the animal was <b>set aside</b> for idolatry <b>or</b> was itself <b>worshipped.</b> The reason is that <b>if it is so that it was set aside, or if it is so that it was worshipped,</b> then the gentile <b>would not have sold it to</b> the Jew in the first place. <b>But</b> with regard to the possibility that it is <b>an animal that copulated with a person or an animal that was the object of bestiality, let</b> one raise <b>a concern</b> in line with the ruling of the mishna. The Gemara explains: <b>Rav Taḥlifa says</b> that <b>Rav Sheila bar Avina says in the name of Rav: A gentile</b> protects and thereby <b>spares his</b> own <b>animal so that it will not become barren.</b> Since an act of bestiality may cause an animal to become barren, there is no concern that the gentile engaged in immoral behavior with it. Therefore, one may use an animal purchased from a gentile as an offering.
+
+### Part 3
+The Gemara asks: This <b>works out well</b> with regard to <b>female</b> animals, as they can become barren, but with regard to <b>males, what is there to say? Rav Kahana says:</b> Gentiles also refrain from engaging in bestiality with their male livestock, <b>since</b> doing so <b>deteriorates</b> the animals’ <b>flesh,</b> i.e., it makes them physically weaker.
+
+### Part 4
+<b>Rather,</b> the Gemara instead raises a contradiction from <b>that which is taught</b> in a <i>baraita</i>: <b>One may purchase an animal</b> for use as an offering <b>from their shepherd,</b> i.e., a gentile shepherd. The Gemara explains the apparent contradiction: In light of the ruling of the mishna, <b>let us be concerned</b> that <b>perhaps he engaged in bestiality with</b> the animal, as it does not belong to him, and therefore it should be prohibited to purchase an animal from gentile shepherds. The Gemara answers: <b>Their shepherd is fearful</b> of engaging in bestiality with the animals under his care, <b>due to</b> the <b>forfeit of</b> his <b>wages</b> that would result if this were discovered.
+
+### Part 5
+<b>Rather,</b> the Gemara instead raises a contradiction from <b>that which is taught</b> in a <i>baraita</i>: <b>One may not deliver an animal to their shepherd,</b> i.e., a gentile shepherd. The Gemara explains the contradiction: Why may one not do so? <b>Let us say</b> that <b>their shepherd is fearful due to</b> the <b>forfeit of his wages,</b> and accordingly one should be permitted to give him an animal.
+
+### Part 6
+The Gemara answers: With regard to <b>themselves,</b> i.e., other gentiles, <b>as they are aware of each other’s</b> actions, <b>they are fearful</b> that they may be caught, and therefore will not engage in bestiality with an animal belonging to another gentile. But with regard to <b>ourselves,</b> Jews, <b>as we are not aware of them</b> and their behavior, <b>they are not fearful</b> of us. The Gemara notes that <b>Rabba said: This</b> is in accordance with the adage <b>that people say:</b> Just as <b>the stylus etches</b> script upon <b>marble, a sinner knows his fellow</b> sinner, i.e., a transgressor is acutely aware of others who act in the same manner.
+
+### Part 7
+The Gemara raises a difficulty: <b>If that is so,</b> and the reason one may purchase an animal for use as an offering from a gentile is that engaging in bestiality has a negative impact on the animal, then <b>let us not purchase male</b> animals <b>from female</b> gentiles, <b>as we</b> should be <b>concerned</b> that <b>perhaps she engaged in bestiality with it.</b> This would not damage the animal or render it barren, and therefore there is no deterrent that would prevent a gentile woman from doing so. The Gemara answers: <b>Since,</b> if she were to engage in bestiality, the animal would <b>follow her</b> around in public, <b>she is afraid</b> of others discovering her behavior.
+
+### Part 8
+The Gemara further asks: <b>But</b> consider <b>that which Rav Yosef teaches: A widow may not raise a dog</b> due to the suspicion that she may engage in bestiality, <b>and</b> she <b>may not allow a student</b> of Torah to dwell <b>as a lodger [<i>be’ushpiza</i>]</b> in her home. <b>Granted,</b> it makes sense that is prohibited for her to have <b>a student</b> of Torah lodging in her home, as he is regarded as <b>discreet in her</b> eyes, so she will not be deterred from sinning with him. <b>But</b> with regard to <b>a dog, since it would follow her</b> around after she mates with it, <b>she is afraid</b> to engage in bestiality with it. Therefore, it should be permitted for her to raise a dog.
+
+### Part 9
+The Gemara answers: <b>Since it will</b> also <b>follow her</b> around in a case <b>when she throws it a piece of meat, people will say:</b> The fact <b>that it is following her</b> is <b>due to the meat</b> she threw at it, and they will not suspect her of bestiality. Consequently, she will not be deterred from transgressing.
+
+### Part 10
+The Gemara asks: With regard to <b>female</b> animals <b>with females, what is the reason</b> that <b>we do not</b> permit them to <b>be secluded</b> with each other? <b>Mar Ukva bar Ḥama says:</b> It is <b>because gentiles frequent the wives of others, and on occasion</b> the gentile <b>does not find her, and he finds the animal and engages in bestiality with it</b> instead.
+
+### Part 11
+<b>And if you wish, say</b> instead: <b>Even</b> when <b>he finds</b> the wife, <b>he also engages in bestiality with</b> the animal, <b>as the Master said: The animal of a Jew is more appealing to</b> gentiles <b>than their</b> own <b>wives, as Rabbi Yoḥanan says: At the time when the snake came upon Eve,</b> at the time of the sin of her eating from the Tree of Knowledge, <b>it infected her with</b> moral <b>contamination,</b> and this contamination lingers in all human beings. The Gemara asks: <b>If that is so, a Jew</b> should <b>also</b> be suspected of engaging in bestiality. The Gemara answers: With regard to the <b>Jewish people, who stood at Mount Sinai</b> and received the Torah, <b>their contamination ended,</b> whereas in the case of <b>gentiles, who did not stand at Mount Sinai</b> and receive the Torah, <b>their contamination has not ended.</b>
+
+### Part 12
+§ The Gemara inquires with regard to the <i>halakha</i> in the case of a bird. <b>A dilemma was raised before</b> the Sages: With regard to <b>birds, what</b> is the <i>halakha</i>? Are gentiles suspected of engaging in bestiality with birds? The Gemara suggests: <b>Come</b> and <b>hear</b> a proof that they are suspected of doing so, <b>as Rav Yehuda says</b> that <b>Shmuel says in the name of Rabbi Ḥanina: I</b> once <b>saw a gentile who bought a goose in the market, engaged in bestiality with it, strangled it, roasted it, and</b> then <b>ate it. And</b> similarly, <b>Rabbi Yirmeya of Difti says: I saw a certain Arab who bought a thigh</b> of meat <b>from the market and carved</b> a space <b>in it</b> that was <b>the size necessary</b> to allow <b>for penetration.</b> Subsequently, <b>he penetrated it, roasted it, and ate it.</b> These incidents demonstrate that gentiles are suspected of immoral conduct with fowl.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

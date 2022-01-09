@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>Mais selon celui qui dit : Il y a</b> une source pour l'<b>abattage d'un oiseau dans la Torah, il y a</b> disqualification pour <b>l'abattage</b> <i>desimanim</i> dans un oiseau egalement.
+
+### Partie 2
+Rav Ashi <b>lui a dit : Au contraire, le contraire est raisonnable. Selon celui qui dit : Il existe</b> une source pour l'<b>abattage d'un oiseau dans la Torah,</b> les <i>halakhot</i> d'abattage ne sont pas explicites et ont ete transmises a Moise oralement, et <b>on peut dire que c'est ce que</b> Dieu lui a <b>appris, qu'il n'y a pas</b> de disqualification pour <b>l'abattage</b> <i>des simanim</i>. <b>Et meme selon celui qui dit</b> que le statut halakhique d'un oiseau est <b>comme</b> celui d'un <b>animal,</b> puisque les <i>halakhot</i> de l'abattage d'un oiseau sont derivees des <i>halakhot</i> de l'abattage d'un animal, peut-etre Dieu a-t-il enseigne a Moise qu'en ce qui concerne <b>la question de l'eventrement</b> <i>simanim</i> <b>il ne sera pas comme un animal.</b>
+
+### Partie 3
+<b>Mais selon celui qui dit : Il n'y a pas</b> de source pour l'<b>abattage d'un oiseau dans la Torah,</b> mais <b>plutot</b> c'est <b>par la loi rabbinique, d'ou sont</b> les <i>halakhot</i> de l'abattage d'un oiseau <b>appris ? </b> Elles sont apprises <b>a partir</b> des <i>halakhot</i> de l'abattage d'un <b>animal;</b> par consequent, <b>toute la question</b> de l'abattage d'un oiseau est <b>comme</b> celle d'un <b>animal.</b>
+
+### Partie 4
+<b>Ravina a dit : Ravin bar Kisi m'a dit :</b> En ce qui concerne <b>ce que Rami bar Yehezkel enseigne,</b> c'est-a-dire que <b>Il n'y a pas</b> de disqualification pour <b>decrocher <i>simanim</i> dans un oiseau, nous disons</b> cela <b>seulement en ce qui concerne le pincement, mais en ce qui concerne l'abattage, il y a</b> disqualification pour <b>decrocher</b> <i>simanim</i>. La Gemara objecte : <b>Mais Rabbi Yirmeya ne dit-il pas</b> que <b>Shmuel dit : Tout</b> endroit <b>qui est valable pour l'abattage</b> sur la gorge <b>est correlativement valable pour le pincement sur la nuque, mais</b> ce qui n'est <b>pas valable</b> pour l'abattage n'est <b>pas valable</b> pour le pincement. La Guemara explique : <b>Ceci</b> <i>halakha</i> <b>est en desaccord</b> avec cette declaration de Shmuel.
+
+### Partie 5
+§ <b>Zeeiri dit :</b> Si <b>l'os du cou</b> d'un animal ou d'un oiseau <b>a ete brise et que la majeure partie de la</b> <b>chair</b> environnante a ete coupee <b>avec lui,</b> le statut de l'animal ou de l'oiseau est celui d'une <b>carcasse non abattue.</b> Il est mort et ne peut plus etre rendu apte a l'abattage.
+
+### Partie 6
+<b>Rav Hisda dit</b> que <b>nous apprenons</b> ceci dans une mishna (<i>Zevahim</i> 68a) egalement : Si <b>on pince</b> une offrande d'oiseau <b>avec un couteau</b> et non avec l'ongle du pouce, l'oiseau <b>dechire les vetements</b> de celui qui l'avale <b>impur</b> lorsqu'il est <b>dans la gorge,</b> ce qui est la <i>halakha</i> dans le cas d'une carcasse non abattue d'un oiseau casher. <b>Et si vous disiez</b> que si l'os du cou d'un animal ou d'un oiseau etait brise et que la plus grande partie de la chair environnante etait coupee avec, l'oiseau n'est pas une carcasse non abattue mais <b>il est une <i>tereifa</i>, </b> alors puisque concernant une offrande d'oiseau <b>son pincement est son abattage, que</b> le pincement avec <b>un couteau soit efficace pour purifier</b> l'oiseau <b>de</b> l'impurete d'une <b>carcasse non abattue,</b> car un <i>tereifa</i> ne transmet pas d'impurete lorsqu'il est abattu correctement. De la <i>halakha</i> que le pincement avec un couteau ne rend pas l'oiseau pur, il est evident que lorsque l'os du cou est brise, l'oiseau devient une carcasse non abattue.
+
+### Partie 7
+Les Sages <b>Disent</b> en reponse : <b>Voila,</b> le pincement avec un couteau est inefficace pour le rendre pur non pas parce que la rupture de l'os du cou rend l'oiseau une carcasse non abattue. C'est plutot <b>parce que ce n'est pas du tout un abattage.</b> La Gemara demande : <b>Quelle en est la raison ? Rav Huna repond :</b> C'est <b>parce qu'il dissimule</b> le couteau et effectue un abattage inverse, ce qui invalide l'abattage. <b>Rava dit :</b> C'est <b>parce qu'il appuie</b> sur le couteau.
+
+### Partie 8
+La Guemara demande : A propos de <b>celui qui dit : Parce qu'il dissimule</b> le couteau et effectue un abattage inverse, <b>Quelle est la raison</b> pour laquelle <b>il ne dit pas : Parce qu'il presse</b> le couteau ? La Gemara repond : C'est parce que <b>il soutient</b> que <b>le fait de tirer d'avant en arriere en pincant est valable.</b> La Gemara demande : <b>Et celui qui dit : Parce qu'il presse</b> le couteau, <b>Quelle est la raison</b> pour laquelle <b>il ne dit pas : Parce qu'il dissimule [<i>mahlid</i>]</b> le couteau ? La Guemara repond que <b>il</b> aurait pu <b>vous dire : Quelles sont les circonstances pour cacher</b> le couteau ? Il est <b>comme un rat [<i>hulda</i>] qui reside dans les fondations des maisons qui sont dissimulees. Ici,</b> quand il commence a couper a partir de la nuque, <b>ce couteau</b> <b>est expose.</b>
+
+### Partie 9
+<b>Rava a dit : Si</b> ce que Zeeiri a dit : Si l'os du cou d'un animal ou d'un oiseau a ete brise et que la majeure partie de la chair environnante a ete coupee avec lui, le statut de l'animal ou de l'oiseau est celui d'une carcasse non abattue, est <b>difficile pour moi, ceci</b> est <b>difficile pour moi :</b> Comment le fait de pincer une offrande d'oiseau la prepare-t-elle au sacrifice ? Puisque le pincement consiste a briser l'os du cou et a couper avec lui la plus grande partie de la chair environnante avant de couper les <i>simanim</i>, quelle signification cela a-t-il de pincer les <i>simanim</i> ? <b>Et se tient-il debout pour pincer un oiseau mort</b> ? S'il est mort, a quoi sert le pincement ?
+
+### Partie 10
+<b>Abaye lui a dit : Et</b> meme sans la declaration de Zeeiri, <b>que</b> le cas de l'holocauste d'un oiseau te soit difficile, car</b> il <b>exige</b> la decoupe de <b>deux <i>simanim</i>. </b> Puisque l'abattage d'un oiseau non sacre necessite de couper un <i>siman</i>, une fois qu'un <i>siman</i> est coupe, l'oiseau est considere comme mort a toutes fins utiles, <b>et se tient-il debout pour pincer un oiseau mort</b> ? Rava <b>lui a repondu : La,</b> il continue a pincer <b>afin d'accomplir par ce biais la mitsva de separation</b> entre la tete et le corps dans l'holocauste d'oiseau.
+
+### Partie 11
+La Gemara demande : <b>Si c'est le cas,</b> il devrait y avoir une obligation de couper la <b>peau</b> de l'oiseau <b>aussi</b> afin d'accomplir la mitzva de separation. Abaye repond : <b>Tout</b> element <b>qui invalide l'abattage invalide la separation, et tout</b> element <b>qui n'invalide pas l'abattage n'invalide pas la separation.</b> Le fait de ne pas couper la peau n'invalide pas l'abattage.
+
+### Partie 12
+La Gemara objecte : <b>Mais n'y a-t-il pas</b> <b>la minorite des <i>simanim</i> selon les rabbins, qui n'invalident pas l'abattage,</b> comme, si l'on a abattu une majorite des <i>simanim</i> et qu'une minorite est restee non coupee, l'abattage est valide, <b>et</b> ils soutiennent que <b>ils invalident la separation ?</b> La Gemara clarifie : <b>Disons plutot : Tout</b> element <b>qui est</b> en vigueur <b>en ce qui concerne l'abattage est</b> en vigueur <b>en ce qui concerne la separation, et tout</b> element <b>qui n'est pas</b> en vigueur <b>en ce qui concerne l'abattage n'est pas</b> en vigueur <b>en ce qui concerne la separation. </b> Les deux <i>simanim</i>, bien qu'ils n'invalident pas l'abattage, font partie de la mitzva de l'abattage, alors que la peau ne fait pas partie de la mitzva de l'abattage.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

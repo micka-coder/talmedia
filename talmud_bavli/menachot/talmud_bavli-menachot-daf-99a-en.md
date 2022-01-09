@@ -1,0 +1,45 @@
+
+### Part 1
+The Gemara continues: <b>Granted, according to the one who said</b> the tables were positioned along the width of the Sanctuary, from <b>north</b> to <b>south,</b> it works out <b>well.</b> According to this opinion there was enough room on the east and the west of the Table for the two priests arranging the new loaves to stand on one side of the Table and for the two priests removing the old loaves to stand on the other side.
+
+### Part 2
+<b>But according to the one who said</b> the tables were positioned along the length of the Sanctuary, from <b>east</b> to <b>west,</b> in which case the priests arranging and removing the shewbread would stand at the north and south of the Table, this is difficult. <b>Now,</b> consider how much space was taken up by the tables: <b>How far</b> was the <b>Table removed from the</b> northern <b>wall</b> of the Sanctuary? It was <b>two and a half cubits</b> away from the wall, as this is the space necessary for the two priests to pass. <b>And</b> to this one must add one <b>cubit</b> for the width of the northern row of tables <b>itself, and</b> another <b>two and a half cubits that</b> were <b>between</b> the northern row of five tables and Moses’ Table, as space for two priests to pass is required here as well.
+
+### Part 3
+The Gemara continues to calculate the area occupied by the tables: <b>And</b> then one must add one <b>cubit</b> for the width of the Table of Moses, <b>and two and a half cubits that</b> were <b>between</b> Moses’ Table and the southern row of tables, <b>and</b> another <b>cubit</b> for the width of the southern row <b>itself.</b> This totals ten and a half cubits, according to which <b>it is found that</b> the <b>Table occupies half a cubit in the south</b> of the Sanctuary, although the Table is supposed to be entirely in the north of the Sanctuary.
+
+### Part 4
+The Gemara answers: <b>Do you maintain</b> that the <b>Table of Moses resided together with</b> the other ten tables, i.e., parallel to them? It was <b>not</b> so. The Table of Moses was situated to the west of the other tables, in the space corresponding to the space between the two rows of tables, and its width should not be added to the width of the two rows of Solomon’s tables. All the tables were therefore situated in the north of the Sanctuary. Since the Temple was built on terrain that sloped downward from west to east, this means <b>that</b> the Table of Moses <b>was raised</b> above the tables of Solomon. The Table of Moses <b>was placed</b> to the west <b>and</b> the tables of Solomon <b>were lowered slightly</b> toward the east. Solomon’s tables therefore appeared in relation to Moses’ Table <b>as a student who sits</b> on a lower level <b>before his teacher.</b>
+
+### Part 5
+§ <b>The Sages taught</b> in a <i>baraita</i>: <b>Solomon built ten tables</b> that were situated in the Sanctuary, in addition to Moses’ Table, <b>but</b> the priests <b>would arrange</b> the shewbread <b>only upon</b> the Table <b>of Moses.</b> This is derived from a verse, <b>as it is stated:</b> “And Solomon made all the vessels that were in the House of the Lord, the golden altar, <b>and the Table upon which the shewbread was, of gold”</b> (I Kings 7:48), indicating that the shewbread was placed on only one Table.
+
+### Part 6
+Likewise, <b>Solomon built ten candelabra, but</b> the priests <b>would kindle</b> the lamps <b>only on</b> the Candelabrum <b>of Moses.</b> This is derived from a verse, <b>as it is stated:</b> “And they burn unto the Lord every morning and every evening burnt offerings and sweet incense; the shewbread also they arrange in order upon the pure Table, and <b>the Candelabrum of gold with its lamps, to burn</b> every <b>evening”</b> (II Chronicles 13:11). The singular form indicates that the lamps were kindled on only one Candelabrum.
+
+### Part 7
+<b>Rabbi Elazar ben Shammua says: They would arrange</b> the shewbread <b>upon all</b> the tables, <b>as it is stated:</b> “And Solomon made all the vessels that were in the House of God, the golden altar as well, and <b>the tables upon which was the shewbread”</b> (II Chronicles 4:19). The plural form indicates that the shewbread was arranged on all the tables. <b>And they would kindle</b> the lamps <b>on all</b> the candelabra, <b>as it is stated</b> in the subsequent verse: <b>“And the candelabra with their lamps, which they should burn according to the ordinance before the Sanctuary, of pure gold”</b> (II Chronicles 4:20).
+
+### Part 8
+<b>Rabbi Yosei, son of Rabbi Yehuda, says: They would arrange</b> the shewbread <b>only upon</b> the Table <b>of Moses. Rather, how do I realize</b> the meaning of the verse: <b>“And the tables upon which was the shewbread…</b>of pure <b>gold”</b> (II Chronicles 4:19–20)? <b>These are</b> the <b>three tables that were in the Temple,</b> of which there were <b>two that were</b> situated <b>in the Entrance Hall</b> to the Sanctuary, <b>on the inside</b> near <b>to the entrance to the Temple,</b> i.e., near the entrance to the Sanctuary. <b>One</b> of these tables was made <b>of silver, and</b> the other <b>one</b> was made <b>of gold.</b>
+
+### Part 9
+<b>On</b> the table <b>of silver</b> the priest <b>places the</b> new <b>shewbread</b> that has been baked, <b>before its entrance</b> into the Sanctuary, so that the loaves may cool a little from the heat of the oven. <b>And</b> when the old shewbread is removed from the shewbread Table it is placed <b>on</b> the table <b>of gold upon its exit</b> from the Sanctuary, until the frankincense is burned on the altar. The reason the shewbread is placed on a silver table before it is brought into the Sanctuary and on a gold one when it is removed is <b>that one elevates</b> to a higher level <b>in</b> matters of <b>sanctity and one does not downgrade.</b> Since it is set on the gold shewbread Table all week, it cannot be downgraded to a silver table upon its removal. The Gemara concludes: The third of the three tables is the <b>one</b> Table <b>of gold inside</b> the Sanctuary <b>upon which the shewbread</b> is <b>always</b> found.
+
+### Part 10
+The Gemara asks: <b>And from where do we</b> derive <b>that one does not downgrade</b> in matters of sanctity? <b>Rabbi</b> Yehuda HaNasi <b>said:</b> This is derived from a verse, <b>as the verse states: “And Moses erected the Tabernacle, and he laid its sockets, and set up its boards, and put in its bars, and erected its pillars”</b> (Exodus 40:18). This teaches that once Moses, who was at a greater level of sanctity than the rest of the people, began the work of erecting the Tabernacle, he alone completed it.
+
+### Part 11
+The Gemara asks: <b>And from where do we</b> derive <b>that one elevates</b> to a higher level in matters of sanctity? <b>Rabbi Aḥa bar Ya’akov said:</b> This is derived from a verse, <b>as the verse states</b> with regard to the coal pans of the men of Korah’s assembly, in which they burned incense before they were consumed by a fire: <b>“The coal pans of these men who have sinned at the cost of their lives, and let them be made beaten plates for a covering of the altar, for they have become sacred because they were brought before the Lord, that they may be a sign to the children of Israel”</b> (Numbers 17:3). <b>Initially</b> the coal pans had the status of <b>articles</b> used in the service <b>of</b> the <b>altar,</b> as they contained the incense, <b>and now</b> that they have been made into a covering for the altar their status has been elevated to that of <b>the altar itself.</b>
+
+### Part 12
+§ Having mentioned the principle that one does not downgrade in matters of sanctity, the Gemara cites a related issue. The verse states: “At that time the Lord said to me: Hew for yourself two tablets of stone like the first…And I will write on the tablets the words that were on the first tablets, <b>which you broke, and you shall put them in the Ark”</b> (Deuteronomy 10:1–2). <b>Rav Yosef teaches</b> a <i>baraita</i>: This verse <b>teaches that</b> both <b>the tablets</b> of the Covenant <b>and</b> the <b>pieces of</b> the broken <b>tablets are placed in the Ark.</b> One should learn <b>from here that with regard to a Torah scholar who has forgotten his</b> Torah <b>knowledge due to</b> circumstances <b>beyond his control,</b> e.g., illness, <b>one may not behave toward him</b> in <b>a degrading manner.</b> Although the first tablets were broken it is prohibited to treat them with disrespect, due to their sanctity. A Torah scholar who forgot the Torah knowledge he once possessed is likened to these broken tablets.
+
+### Part 13
+The Gemara notes <b>a mnemonic</b> for the following three statements of Reish Lakish, which are all related to the concept stated by Rav Yosef: One who <b>caused dereliction</b> of the study of Torah for the sake of a mitzva, a Torah scholar who <b>sinned, and</b> a Torah scholar who <b>forgot</b> his studies.
+
+### Part 14
+<b>Reish Lakish says: Sometimes</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

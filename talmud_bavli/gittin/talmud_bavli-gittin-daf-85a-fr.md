@@ -1,0 +1,84 @@
+
+### Partie 1
+<b>Tout le monde s'accorde</b> a dire qu'il <b>est valide. Et la mishna, qui enseigne</b> que si <b>il ecrit</b> sa qualification dans l'acte de divorce, celui-ci est invalide, <b>et nous avons etabli</b> qu'elle se refere seulement <b>a</b> un cas de <b>exception, mais une condition ne rend pas</b> l'acte de divorce <b>invalide,</b> ne contredit pas cette <i>baraita</i>. Comme <b>si tu veux, dis</b> que la mishna fait reference a un cas ou la qualification est ecrite <b>avant la partie essentielle</b> de l'acte de divorce, <b>et</b> c'est conforme a l'opinion des <b>rabbins. Et si vous voulez, dites</b> qu'il se refere a un cas ou la qualification est ecrite <b>apres la partie essentielle</b>, <b>et tout le monde,</b> meme Rabbi Yehuda HaNasi, <b>est d'accord</b> en ce qui concerne sa decision.
+
+### Partie 2
+<b>Et Rava a dit : </b> Le <b>dispute</b> entre Rabbi Yehuda HaNasi et les rabbins <b>est</b> en ce qui concerne un cas ou la condition est ecrite <b>apres la partie essentielle</b>, <b>Comme Rabbi</b> Yehuda HaNasi <b>soutient</b> que <b>nous emettons un decret</b> rendant l'acte de divorce invalide <b>en raison</b> d'un cas ou la condition est ecrite <b>avant la partie essentielle</b>, <b>et les rabbins soutiennent</b> que <b>nous n'emettons pas de decret en raison</b> d'un cas ou elle est ecrite <b>avant la partie essentielle</b>. <b>Mais</b> s'il est ecrit <b>avant la partie essentielle</b>, <b>tout le monde s'accorde</b> a dire qu'il <b>est invalide.</b>
+
+### Partie 3
+<b>Et</b> en consequence, <b>la mishna, qui enseigne</b> que si <b>il ecrit</b> sa qualification dans l'acte de divorce, celui-ci est invalide, <b>et nous avons etabli</b> qu'elle se refere uniquement <b>a</b> un cas de <b>exception, mais une condition ne rend pas</b> l'acte de divorce <b>invalide,</b> ne contredit pas cette <i>baraita</i>. Elle fait reference a un cas ou il a ecrit la condition <b>apres la partie essentielle</b>, <b>et c'est</b> conforme a l'avis des <b>Rabbins,</b> qui considerent qu'une condition ecrite apres la partie essentielle ne rend pas l'acte de divorce invalide.
+
+### Partie 4
+<b>Le pere de Rabbi Avin a enseigne</b> une <i>baraita</i> <b>devant Rabbi Zeira :</b> Si l'on <b>ecrit un acte de divorce conditionnel, tout le monde est d'accord</b> qu'il <b>est invalide.</b> Rabbi Zeira lui a demande : <b>Tout le monde est d'accord</b> qu'il <b>est invalide ? Mais ne sont-ils pas en desaccord</b> sur ce point ?
+
+### Partie 5
+Rabbi Zeira a donc modifie la <i>baraita</i> en fonction de son opinion : <b>Disons plutot</b> que <b>tout le monde est d'accord</b> pour dire qu'elle <b>est valide. Et quelles sont les circonstances</b> dans lesquelles les deux parties sont d'accord pour dire qu'elle est valide ? Il fait reference a un cas ou la condition est ecrite <b>apres la partie essentielle</b> de l'acte de divorce.
+
+### Partie 6
+La Gemara riposte : <b>Laissons</b> Rabbi Zeira <b>savoir</b> une modification alternative de la <i>baraita</i> : <b>C'est invalide,</b> en omettant les mots : Tout le monde est d'accord, <b>et</b> cette <i>baraita</i> est conforme a l'opinion de <b>Rabbi</b> Yehuda HaNasi. La Guemara repond : <b>Le <i>tanna</i> lui a enseigne</b> que <b>tout le monde est d'accord,</b> ce qui est une declaration ostensible. Bien que <b>il puisse</b> concevoir de <b>confondre</b> le mot <b>valide avec invalide, il</b> certainement <b>ne confond pas</b> la phrase : <b>C'est, avec</b> la phrase : <b>Tout le monde est d'accord.</b> Par consequent, Rabbi Zeira a modifie la <i>baraita</i> comme il l'a fait.
+
+### Partie 7
+<strong>MISHNA :</strong> Si un homme dit a sa femme en lui remettant un acte de divorce : <b>Vous etes par la presente autorisee a</b> epouser <b>n'importe quel homme, sauf a</b> epouser <b>mon pere ou a</b> epouser <b>votre pere, a</b> epouser <b>mon frere ou a</b> epouser <b>votre frere, pour</b> epouser <b>un esclave ou pour</b> epouser <b>un gentil, ou pour</b> epouser <b>toute personne</b> a laquelle <b>elle ne peut</b> legalement devenir <b>fiancee,</b> le divorce <b>est valable. </b> Puisque ces hommes ne peuvent de toute facon pas la fiancer, sa qualification n'a pas de sens.
+
+### Partie 8
+S'il lui dit : <b>Vous etes par la presente autorisee a</b> epouser <b>n'importe quel homme, sauf</b> lorsque le faire viole ce qui suit : L'interdiction faite a <b>une veuve</b> d'etre mariee <b>a un grand pretre;</b> l'interdiction faite a <b>une divorcee ou une <i>yevama</i> qui a effectue <i>halitza</i> [<i>halutza</i>]</b> d'etre mariee <b>a un pretre commun ; une <i>mamzeret</i> ou une femme gibeonite</b> etant mariee <b>a un homme israelite</b> ; <b>une femme israelite</b> mariee <b>a un <i>mamzeret</i> ou a un Gibeonite</b> ; <b>ou</b> epousant <b>toute personne</b> a qui <b>elle peut</b> legalement se <b>fier, meme</b> si ces fiancailles constituent <b>une transgression,</b> comme dans les cas precites ; dans tous ces cas, le divorce <b>est invalide. </b> Sa declaration en fait un divorce partiel, car la femme n'est toujours pas autorisee a epouser un homme susceptible de la fiancer.
+
+### Partie 9
+<strong>GEMARA:</strong> L'enonce de <b>la generalisation dans la premiere clause</b> de la mishna : Toute personne a laquelle elle ne peut pas se fiancer legalement, sert <b>a inclure le reste des personnes susceptibles</b> de recevoir un <b><i>karet</i></b> pour avoir des rapports sexuels avec elle, qui ne sont pas enumeres explicitement dans la mishna. L'enonce de <b>la generalisation dans la derniere clause</b> de la mishna : Toute personne a laquelle elle peut legalement se fiancer, sert a inclure le reste de ceux qui sont soumis a une interdiction</b> d'avoir des relations sexuelles avec elle, <b>comme un Ammonite et un Moabite, un Gibeonite, un Egyptien et un Edomite</b> (Deuteronome 23:4, 8""9). Bien qu'il leur soit interdit d'avoir des relations sexuelles avec elle en raison d'une interdiction ou d'une mitzva positive, elle peut legalement se fiancer a eux.
+
+### Partie 10
+§ <b>Rava a souleve un dilemme devant Rav Nahman :</b> Si le mari dit qu'il lui est permis d'epouser n'importe quel homme <b>sauf pour des fiancailles avec</b> untel, qui est <b>un garcon mineur</b> a ce moment-la, <b>qu'elle est</b> la <i>halakha</i> ? <b>Disons-nous</b> que <b>maintenant,</b> puisque <b>il n'est de toute facon pas eligible aux fiancailles,</b> comme un garcon mineur ne peut pas fiancer une femme, la qualification du mari n'interdit sa femme a personne, et c'est un acte complet de rupture ? <b>Ou peut-etre,</b> puisque <b>il atteindra</b> l'eligibilite aux <b>fiancailles,</b> la qualification du mari est-elle consideree comme l'interdisant a quelqu'un a qui les fiancailles pourraient s'appliquer ?
+
+### Partie 11
+Rav Nahman <b>lui a dit : Tu as appris</b> la solution a ce dilemme dans une <i>baraita</i> : <b>Une fille mineure peut divorcer</b> de son mari meme si elle lui a ete fiancee <b>par le biais des fiancailles de son pere,</b> c'est-a-dire que son pere l'a fiancee a son mari (voir Deuteronome 22:16).
+
+### Partie 12
+<b>Pourquoi</b> elle peut le faire ? <b>Mais n'avons-nous pas besoin</b> qu'il y ait une large similitude entre les <i>halakhot</i> du divorce et des fiancailles, telle qu'elle decoule de la juxtaposition entre la clause : <b>"Et elle s'en va"</b> et la clause : <b>"Et devient"</b> (Deuteronome 24:2), qui sert de base a la comparaison des <i>halakhot</i> de divorce et de fiancailles ? En consequence, puisqu'elle ne pourra pas recevoir ses propres fiancailles avant sa majorite, elle ne devrait pas pouvoir recevoir son acte de divorce. <b>A l'evidence, puisque <b>elle</b> finira par <b>atteindre</b> l'age d'eligibilite pour recevoir sa propre <b>fiancailles</b>, elle est consideree comme essentiellement eligible aux fiancailles des maintenant egalement. <b>Ici aussi,</b> puisque le garcon mineur, que le mari a interdit a la femme d'epouser, <b>atteindra</b> l'age d'eligibilite pour la <b>bebauche,</b> le divorce est invalide.
+
+### Partie 13
+Rava souleve un autre dilemme : si le mari dit qu'il lui est permis d'epouser n'importe quel homme <b>sauf ceux qui naitront</b> dans le futur, <b>qu'en est-il</b> de la <i>halakha</i> ? Faut-il raisonner que <b>maintenant,</b> puisque <b>en tout etat de cause ils ne sont pas encore nes,</b> la qualification est nulle, puisqu'elle concerne des personnes qui n'existent pas ? <b>Ou peut-etre</b> qu'ils sont consideres comme interdits pour elle car <b>ils naitront dans le futur.</b>
+
+### Partie 14
+Le Rav Nahman <b>lui a dit : Tu as appris</b> la solution a ton dilemme dans la mishna, qui stipule que si le mari dit qu'il lui est interdit <b>de</b> se marier avec <b>un esclave ou de</b> se marier avec <b>un Gentil</b> le divorce est valable ; <b>si c'est ainsi</b> que les situations futures sont prises en compte, <b>un esclave et un Gentil sont egalement susceptibles de se convertir. </b> Par consequent, le mari lui interdit d'epouser un homme qu'elle pourrait etre en mesure d'epouser dans le futur, ce qui devrait rendre le divorce invalide. De toute evidence, seule la situation actuelle est prise en consideration.
+
+### Partie 15
+La Guemara rejette cette solution : <b>Ces personnes</b> <b>ne se presentent pas</b> devant le tribunal pretes <b>a se convertir.</b> Ce n'est qu'une possibilite qu'elles se convertissent, car il n'y a aucune raison de supposer qu'elles le feront. En revanche, <b>ces</b> personnes qui naitront <b>se tiennent</b> pretes <b>a naitre.</b> Par consequent, cette solution ne peut etre deduite de la mishna.
+
+### Partie 16
+Rava souleve un autre dilemme : s'il lui permet d'epouser n'importe quel homme <b>sauf le mari de sa sœur, quelle est</b> la <i>halakha</i> ? Faut-il raisonner que <b>maintenant,</b> puisque <b>de toute facon elle n'est pas encore faite pour lui,</b> les rapports sexuels entre eux etant passibles de <i>karet</i>, le divorce est valable ? <b>Ou peut-etre</b> faut-il raisonner que <b>parfois</b> la <b>sœur d'une femme meurt et qu'elle est</b> ainsi <b>apte a</b> epouser son mari ?
+
+### Partie 17
+Rav Nahman lui <b>dit : Tu as appris</b> la solution a ton dilemme dans la mishna, qui stipule que si le mari dit qu'il lui est interdit <b>de</b> se marier avec <b>un esclave ou de</b> se marier avec <b>un gentil</b> le divorce est valable. Et <b>un esclave et un Gentil sont aussi</b> potentiellement aptes a l'epouser car ils sont <b>susceptibles de se convertir.</b> De toute evidence, seule la situation actuelle est prise en compte. La Guemara rejette cela ; alors que la <b>conversion est rare, la mort est courante.</b>
+
+### Partie 18
+Rava souleve un autre dilemme : s'il lui dit : Tu es par la presente autorisee a tout homme <b>sauf pour ta licence,</b> ce qui signifie qu'elle peut se marier avec n'importe quel homme mais qu'elle ne peut pas avoir de rapports sexuels en dehors d'un second mariage, car elle est toujours rendue femme mariee a cet egard, <b>qu'elle est</b> la <i>halakha</i> dans ce cas ? Le divorce est-il valable ? Doit-on raisonner que <b>en ce qui concerne le mariage, il n'a rien laisse</b> <b>hors</b> du divorce, puisqu'il lui est permis d'epouser n'importe quel homme, <b>ou peut-etre a-t-il laisse</b> une partie du divorce <b>en ce qui concerne les rapports sexuels ?</b>
+
+### Partie 19
+Rav Nahman <b>lui a dit : Tu as appris</b> la solution dans la mishna : Si le mari dit en lui remettant l'acte de divorce : Tu es par la presente interdite <b>a mon pere ou a ton pere,</b> le divorce est valable. <b>Et a l'egard de quelle</b> action cela est-il enonce ? <b>Si on dit</b> que c'est <b>en ce qui concerne le mariage, mon pere et ton pere sont-ils admissibles au mariage ?</b> Ses fiancailles avec eux ne prendraient pas effet. <b>Ce n'est pas plutot par rapport</b> a leur engagement dans la <b>licencieusete</b> avec elle ? <b>Et</b> on peut deduire de la mishna que ce n'est que s'il lui rend interdit <b>a mon pere ou a ton pere que ce n'est pas</b> considere comme si <b>il a omis</b> une partie du divorce, rendant le divorce valide ; mais s'il lui rend interdit <b>de</b> s'engager dans la licence avec <b>un autre</b> homme, c'est considere comme si <b>il a omis</b> une partie du divorce, et il ne prendra pas effet.
+
+### Partie 20
+La Gemara rejette cette idee : <b>Peut-etre</b> la mishna fait-elle reference <b>au mariage, ou</b> le pere <b>transgresse</b> l'interdiction <b>et l'epouse</b> quand meme. Par consequent, la <i>halakha</i> en ce qui concerne la licence ne peut etre deduite d'ici.
+
+### Partie 21
+Rava souleve un autre dilemme : s'il lui dit qu'elle est permise a tout homme <b>sauf pour</b> se livrer a des <b>rapports de maniere atypique,</b> c'est-a-dire des rapports anaux, <b>qu'elle est</b> la <i>halakha</i> ? Doit-on raisonner que <b>en ce qui concerne les rapports sexuels typiques</b> <b>il n'a pas omis</b> une partie du divorce, rendant le divorce valide ? <b>Ou peut-etre</b> du fait que l'expression : <b>Cohabitations d'une femme"</b> (Levitique 20:13), <b>est ecrite</b> au pluriel, on en deduit que les rapports sexuels typiques et atypiques ont le meme statut, et en consequence ceci est considere comme un divorce partiel, et il ne prendra pas effet.
+
+### Partie 22
+La Guemara souleve un dilemme similaire : S'il lui dit qu'il lui est permis d'epouser n'importe quel homme : <b>Sauf</b> pour les <i>halakhot</i> de <b>l'annulation de tes vœux,</b> c'est-a-dire qu'aucun homme qui l'epouse ne peut annuler ses vœux autre que son ex-mari, qui conserve son pouvoir de le faire, <b>qu'est-ce que</b> la <i>halakha</i> ? Faut-il raisonner que <b>en ce qui concerne</b> sa capacite a contracter un <b>mariage, il n'a rien omis</b> de son acte de rupture ? <b>Ou peut-etre</b> est-il derive de ce qui <b>est ecrit : "Son mari peut le soutenir, ou son mari peut l'annuler"</b> (Nombres 30:14), que le pouvoir du mari d'annuler les vœux de sa femme est une composante intrinseque du fait d'etre marie, et donc que ce divorce n'est pas une rupture complete ?
+
+### Partie 23
+La Guemara souleve un autre dilemme : S'il lui dit : Il t'est permis par la presente d'epouser n'importe quel homme <b>sauf pour ta</b> participation au <b><i>teruma</i>,</b> c'est-a-dire que si elle epouse un pretre, elle ne pourra pas participer au <i>teruma</i>, <b>qu'est-ce que</b> la <i>halakha</i> ? Faut-il raisonner que <b>en ce qui concerne</b> sa capacite a contracter un <b>mariage, il n'a rien omis</b> de son acte de rupture ? <b>Ou peut-etre</b> est-il derive de ce qui <b>est ecrit : "L'achat de son argent,</b> il peut en manger" (Levitique 22:11), indiquant que la femme du pretre participe au <i>teruma</i> parce qu'elle est son acquisition, et que si on lui interdit de participer au <i>teruma</i>, alors son acquisition d'elle n'est pas complete ?
+
+### Partie 24
+La Guemara souleve un autre dilemme : s'il lui dit : Il t'est permis par la presente d'epouser n'importe quel homme <b>sauf pour ton heritage,</b> c'est-a-dire que son futur mari ne sera pas considere comme son mari au regard des <i>halakhot</i> d'heritage, <b>qu'est-ce que</b> la <i>halakha</i> ? Faut-il raisonner que <b>en ce qui concerne sa capacite</b> a contracter un <b>mariage, il n'a rien omis</b> de son acte de rupture ? <b>Ou peut-etre</b> puisqu'il est derive que le mari herite de sa femme, qui est consideree comme son plus proche parent, de ce qui <b>est ecrit : "A son parent</b> qui est le plus proche de sa famille <b>et il le possedera"</b> (Nombres 27:11), alors si un mari ne devient pas le beneficiaire de sa femme, leur mariage n'est-il pas complet ?
+
+### Partie 25
+La Guemara souleve un autre dilemme : s'il lui dit : Par la presente, il t'est permis d'epouser n'importe quel homme <b>sauf pour ta</b> capacite a entrer dans les <b>fiancailles en</b> recevant <b>un document,</b> c'est-a-dire que si un autre homme la fiance en lui donnant un document de fiancailles, les fiancailles ne prendront pas effet, <b>qu'est-ce que</b> la <i>halakha</i> ? <b>Disons-nous</b> que puisqu'on <b>peut</b> encore la <b>fier avec de l'argent ou avec des rapports sexuels,</b> l'acte de rupture est complet ? <b>Ou peut-etre</b> est-il derive de la juxtaposition entre la clause : <b>"Et elle s'en va"</b> et la clause : <b>"Et devient"</b> (Deuteronome 24.2), que les differentes manieres de <b>devenir</b> une epouse <b>sont comparees les unes aux autres,</b> de sorte que l'incapacite d'accomplir l'une d'entre elles rend la rupture incomplete ?
+
+### Partie 26
+La Gemara commente : Ces dilemmes <b>doivent</b> tous <b>rester</b> non resolus.
+
+### Partie 27
+<strong>MISHNA:</strong> <b>L'element de base, </b> essentiel, <b>d'un acte de divorce est : Vous etes par la presente autorisee a</b> epouser <b>n'importe quel homme.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,6 @@
+
+### Part 1
+<b>Evidently, a person does not sell the gifts</b> belonging <b>to</b> the <b>priest,</b> and therefore they are not included in the sale of the innards unless they were sold by weight. <b>Here too,</b> with regard to the first sheared wool, <b>a person does not sell the gifts</b> belonging <b>to</b> the <b>priest. Therefore,</b> if <b>the seller left</b> wool in his possession, the <b>seller is obligated</b> to give the first sheared wool from the remaining wool for that which he sold, <b>as</b> the <b>buyer</b> can <b>say to</b> the seller: The <b>gift of</b> the <b>priest is in your</b> possession, since you did not sell me everything. If the seller did <b>not leave</b> any wool in his possession, <b>the buyer is obligated</b> to give the first sheared wool and he does not deduct its value from the price, <b>as the seller</b> can <b>say to him: I did not sell the gift of</b> the <b>priest to you,</b> i.e., there was no obligation to give the gifts to a priest when I sold the wool to you, and therefore the buyer is required to give the gifts to the priest.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

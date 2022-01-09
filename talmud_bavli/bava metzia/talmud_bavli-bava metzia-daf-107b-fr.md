@@ -1,0 +1,51 @@
+
+### Partie 1
+Dans tous les cas, il est evident que le Rav approuve celui dont la propriete est situee pres d'une ville. Comment cela s'accorde-t-il avec sa declaration selon laquelle on craint le mauvais œil lorsque le champ d'une personne est vu par des gens ? La Guemara repond : Ce n'est <b>pas difficile. Cette</b> declaration fait reference a <b>un mur et</b> une <b>partition supplementaire [<i>ritka</i>] qui entourent</b> l'intrigue et l'empechent d'etre atteinte par le mauvais œil. <b>Cette</b> declaration fait reference a un cas <b>ou un mur et</b> une <b>partition supplementaire ne l'entourent pas.</b>
+
+### Partie 2
+§ La Guemara revient a l'expose des themes des benedictions et du mauvais œil. La Torah declare : <b>"Et le Seigneur eloignera de toi toute maladie"</b> (Deuteronome 7:15). En interpretant ce verset, le <b>Rav dit : Ce</b> verset parle du mauvais <b>oeil.</b> La Gemara commente : <b>Rav</b> se conforme <b>a son</b> ligne de <b>raisonnement, car Rav s'est rendu dans un cimetiere,</b> et <b>a fait ce</b> qu'il <b>a fait,</b> c'est-a-dire qu'il a utilise une incantation pour savoir comment sont morts ceux qui y sont enterres, et il <b>a dit : Quatre-vingt-dix-neuf</b> d'entre eux sont morts <b>par le mauvais œil, et</b> seulement <b>un</b> est mort <b>par</b> des moyens entierement <b>naturels.</b>
+
+### Partie 3
+<b>Et Shmuel dit : Ce</b> terme : "Toutes les maladies" fait référence au <b>vent.</b> La Guemara commente : <b>Shmuel</b> se conforme <b>a son</b> ligne de <b>raisonnement, car Shmuel dit : Chaque</b> blessure subie par les gens est due <b>au vent</b> qui penetre dans les plaies et les cavites corporelles. La Gemara demande : <b>Mais selon Shmuel, n'y a-t-il pas</b> ceux <b>executes par la monarchie</b> et d'autres tues par une blessure traumatique et non par le vent ? La Gemara repond : En ce qui concerne <b>ceux-la aussi, s'il n'y avait pas</b> <b>le vent, on preparerait un medicament pour</b> ces blesses <b>et</b> ils seraient gueris et <b>vivraient,</b> mais le vent empeche cela.
+
+### Partie 4
+<b>Rabbi Hanina dit : Cette</b> phrase : "Toutes les maladies" fait reference au froid, comme le dit Rabbi Hanina : Tous</b> les evenements qui arrivent a l'homme sont <b>aux mains du Ciel, sauf</b> l'exces de <b>froid</b> et de <b>chaleur, comme il est dit : "Le froid et la chaleur sont sur le chemin des pervers ; celui qui veille sur son ame s'en eloigne"</b> (Proverbes 22:5). Cela indique que le froid et la chaleur sont des formes de mal cause par l'homme, dont on peut se proteger.
+
+### Partie 5
+<b>Rabbi Yosei bar Hanina dit : Cette</b> phrase : "Toutes les maladies" fait reference a <b>l'excretion, comme le dit le Maitre :</b> En ce qui concerne <b>l'excretion du nez,</b> c'est-a-dire le mucus</b>, et l'excretion de l'oreille,</b> c'est-a-dire le cerumen, si une grande quantite est emise, en avoir <b>beaucoup</b> est <b>malfaisant, mais</b> en avoir <b>un peu</b> est <b>benefique.</b>
+
+### Partie 6
+<b>Rabbi Elazar dit : Ce</b> terme : "Toutes les maladies" fait référence A <b>la vésicule biliaire.</b> La Guemara ajoute : <b>Cela est egalement enseigne</b> dans une <i>baraita</i> : En ce qui concerne le terme : <b>"Maladie", cela</b> fait reference a <b>la vesicule biliaire. Et pourquoi</b> la vesicule biliaire est-elle <b>appelee maladie ?</b> C'est <b>parce qu'elle rend malade le corps entier d'une personne. Alternativement,</b> elle est appelee <b>maladie parce que quatre-vingt-trois maladies,</b> la valeur numerique de <i>mahala</i>, la maladie, <b>dependent de la vesicule biliaire.</b> La Gemara commente : <b>Et</b> en ce qui concerne <b>toutes ces maladies,</b> consommer du <b>pain</b> le matin avec du sel et</b> boire <b>une grande cruche d'eau annule leurs</b> effets nefastes, car un simple repas matinal est benefique pour le corps.
+
+### Partie 7
+§ La Guemara cite une <i>baraita</i> apparentee : <b>Les Sages ont enseigne</b> que <b>treize sujets</b> de louanges <b>etaient enonces a propos</b> d'un repas de <b>pain</b> consomme le <b>matin : </b> Il <b>protege</b> le dineur <b>de la chaleur, et du froid, et des vents, et des esprits nuisibles ; et il rend sage le simple, et</b> celui qui le consomme sera <b>victorieux dans le jugement,</b> il meritera <b>d'apprendre la Torah et de l'enseigner</b>, <b>et ses declarations seront entendues, et son etude restera en sa possession. </b>
+
+### Partie 8
+En outre, <b>sa chair ne genere pas</b> un exces de <b>sueur, et il a des rapports sexuels avec sa femme</b> au moment opportun, <b>et il ne convoite pas une autre femme, et</b> ce repas est si avantageux qu'il <b>tue</b> meme tout <b>poux dans</b> ses <b>intestins. Et certains disent</b> qu'il <b>supprime meme la jalousie et fait naitre l'amour.</b> Comme il est en parfaite sante, il n'est pas enclin a se mettre en colere contre les autres.
+
+### Partie 9
+En relation avec la <i>baraita</i> ci-dessus, <b>Rabba dit a Rava bar Mari : D'ou provient cette affaire que les gens disent</b> : <b>Sixante coureurs couraient mais ne pouvaient rattraper l'homme qui mangeait le matin, et les Sages</b> de meme <b>ont dit : Leve-toi tot et mange, en ete a cause du soleil et en hiver a cause du froid,</b> afin que son corps ait la force de resister au climat.
+
+### Partie 10
+Rava bar Mari <b>lui dit :</b> Cela decoule d'un verset, <b>comme il est ecrit : "Ils n'auront ni faim ni soif, ni la chaleur ni le soleil ne les frapperont"</b> (Isaie 49:10). Pourquoi <b>la chaleur et le soleil ne les frapperont-ils pas ? Puisqu'ils n'auront ni faim ni soif,</b> puisqu'ils se sont leves tot pour manger.
+
+### Partie 11
+Rava <b>lui a dit : Tu m'as dit</b> qu'il est derive <b>de la, mais je te dis</b> qu'il est derive <b>de la,</b> un verset different : <b>"Et tu serviras le Seigneur ton Dieu, et il benira ton pain et ton eau"</b> (Exode 23:25), qu'il interprete comme suit : <b>"Et tu serviras le Seigneur ton Dieu", ceci</b> fait reference a la <b>recitation du <i>Shema</i> et</b> a la <i>Amida</i> <b>priere,</b> toutes deux constituant un service quotidien de Dieu. <b>Et Il benira votre pain et votre eau,</b> ceci</b> fait reference au <b>pain au sel et a une grande cruche d'eau</b> consommes apres les prieres du matin. <b>A partir de ce</b> point, <b>le reste du verset : <b>"Et j'eloignerai la maladie de votre milieu"</b> sera accompli.
+
+### Partie 12
+§ <b>Rav Yehuda dit a Rav Adda le geometre</b> : <b>Ne traite pas le mesurage a la legere</b> meme pour de petites surfaces de terrain, <b>car chaque petite parcelle</b> est <b>adaptee a</b> la culture du <b>safran [<i>rishka</i>] cultive,</b> un produit tres cher. <b>Rav Yehuda</b> a en outre <b>dit a Rav Adda le geometre :</b> En ce qui concerne les <b>quatre coudees</b> mesurees a cote d'un <b>canal d'irrigation,</b> vous <b>pouvez les traiter a la legere,</b> et il n'est pas necessaire d'en fournir une mesure exacte lors du calcul des superficies des champs. Et quant aux quatre coudees adjacentes <b>a une riviere,</b> ne les <b>pas du tout mesurer,</b> mais simplement estimer la taille et les inclure dans la plus grande mesure.
+
+### Partie 13
+La Gemara commente : A cet egard, <b>Rav Yehuda</b> se conforme a sa ligne de <b>raisonnement</b>, car Rav Yehuda dit :</b> Les <b>quatre coudees</b> adjacentes <b>a un canal</b> appartiennent <b>aux residents</b> des maisons le long du <b>canal,</b> alors que les quatre coudees adjacentes <b>a une riviere</b> appartiennent <b>a tout le monde.</b>
+
+### Partie 14
+<b>Rabbi Ami</b> ferait <b>une annonce : Coupez</b> les arbres sur la largeur des <b>epaules completes</b> des <b>tireurs</b> du bateau <b>des deux cotes</b> de <b>la riviere</b> afin que les arbres ne genent pas la traction des bateaux. La Gemara relate : <b>Rav Natan bar Hoshaya</b> a ordonne aux gens de <b>abattre seize coudees</b> de chaque cote de la riviere, et <b>les habitants de Mashronya sont venus sur lui et l'ont battu</b> pour avoir emis cette directive. La Gemara explique : <b>Il soutient</b> que tout chemin doit etre fait aussi large que <b>comme un domaine public,</b> qui a une largeur de seize coudees. <b>Mais</b> ce n'est pas le cas,</b> car <b>la, </b> dans le cas d'un domaine public, <b>on</b> n'a pas <b>besoin d'autant d'espace</b> ; <b>ici,</b> par contre, l'espace <b>est</b> necessaire doit etre seulement suffisant <b>pour</b> permettre <b>la tension des cordes</b> pour tirer les bateaux. Par consequent, la largeur des <b>epaules completes des tireurs est</b> la mesure <b>suffisante</b> de l'espace necessaire pour ne pas gener la traction des bateaux.
+
+### Partie 15
+La Gemara relate un autre incident : <b>Rabba bar Rav Huna possedait une certaine foret au bord d'une riviere. On lui dit : Que le Maitre coupe</b> les arbres sur la rive du fleuve conformement a la declaration ci-dessus. Rabba bar Rav Huna <b>leur repondit :</b> Que <b>ceux qui sont au-dessus et au-dessous</b> de moi le long de la riviere <b>coupent</b> d'abord leurs arbres, <b>et ensuite je couperai</b> mes arbres. Je n'arriverai a rien en coupant mes arbres tout seul. La Guemara demande : <b>Comment peut-il agir ainsi,</b> c'est-a-dire attendre que les autres agissent ? <b>Mais n'est-il pas ecrit : "Rassemblez-vous et rassemblez-vous [<i>hitkosheshu vakoshu</i>]"</b> (Sophonie 2:1), <b>et le Reish Lakish dit</b> a ce sujet : <b>S'orner [<i>keshot</i>] soi-meme et apres orner les autres.</b> Par consequent, il faut d'abord accomplir soi-meme l'action requise avant de donner des conseils aux autres.
+
+### Partie 16
+La Guemara repond : <b>Ceci</b> il <b>etait la foret de la maison de Parzak, le general, et</b> il etait evident qu'ils ne preteraient aucune attention a un savant juif. Rabba bar Rav Huna a donc <b>dit : Si</b> les ouvriers de l'officier perse <b>coupent, je couperai</b> aussi, <b>et si</b> ils ne coupent <b>pas, pourquoi devrais-je couper</b> sans but ? <b>Puisque si</b> les tireurs peuvent <b>etirer leurs cordes, ils peuvent aller</b> le long de ce cote de la riviere,
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,21 @@
+
+### Part 1
+<strong>GEMARA:</strong> <b>From where are these matters</b> derived, that one is liable to pay for intent to misappropriate a deposit? It is <b>as the Sages taught:</b> It is written with regard to misappropriation: <b>“For every matter of [<i>devar</i>] trespass”</b> (Exodus 22:8). <b>Beit Shammai say:</b> The term <i>devar</i>, literally, word, <b>teaches</b> that <b>one is liable</b> to pay <b>for a thought</b> of misappropriation just <b>as</b> he is for <b>an action.</b> One pays for a matter of trespass even if there is no actual trespass. <b>And Beit Hillel say: He is liable</b> to pay <b>only</b> if <b>he</b> actually <b>misappropriates</b> the deposit, <b>as it is stated: “Whether he has misappropriated his neighbor’s goods”</b> (Exodus 22:7). <b>Beit Shammai said to Beit Hillel: But isn’t it already stated: “For every matter of trespass”? Beit Hillel said to Beit Shammai: But isn’t it already stated: “Whether he has misappropriated his neighbor’s goods”?</b>
+
+### Part 2
+<b>If so, what</b> is the meaning when <b>the verse states “for every matter of trespass”?</b> One <b>might</b> have thought: <b>I have</b> derived <b>only</b> that one is liable to pay if <b>he</b> misappropriated the deposit himself, but if he <b>said to his slave or to his agent</b> to misappropriate the deposit in his possession, <b>from where</b> is it derived that he is liable to pay due to their actions? <b>The verse states: “For every matter of trespass,”</b> from which it is derived that one’s speech renders him liable to pay for any misappropriation.
+
+### Part 3
+§ The mishna teaches: If <b>he tilted the</b> deposited <b>barrel,</b> he is liable to pay only for the wine that he took. <b>Rabba says:</b> The Sages <b>taught</b> this <i>halakha</i> <b>only</b> if the barrel <b>broke. But</b> if the wine in the barrel <b>fermented</b> and spoiled, <b>he pays for the entire</b> barrel. The Gemara asks: <b>What is the reason</b> for this ruling? He is liable because it was <b>his arrows,</b> i.e., his actions, that <b>were effective</b> in spoiling the wine. Although he took only a quarter-<i>log</i>, the wine fermented and turned rancid as a result of his opening the cask.
+
+### Part 4
+§ The mishna teaches: If <b>one lifted</b> the barrel <b>and took from it</b> a quarter-<i>log</i> of wine, he pays the value of the entire barrel. <b>Shmuel says:</b> When the <i>tanna</i> said: And <b>took</b> from it, it is <b>not</b> that he <b>actually took</b> the wine from the barrel. <b>Rather, once he lifted it</b> in order <b>to take</b> wine from <b>it, although he did not</b> yet <b>take</b> wine from it, if it breaks, he is liable to pay.
+
+### Part 5
+The Gemara asks: <b>Shall we say</b> that <b>Shmuel holds</b> that <b>misappropriation does not require loss?</b> The Sages <b>say: No,</b> do not draw that conclusion. <b>It is different here, since it is preferable for</b> the bailee <b>that</b> all the wine in <b>this barrel will</b> serve as <b>a base for that quarter</b>-<i>log</i>. Although his intent was to take a small amount of wine, since that small amount is better preserved within the full barrel of wine, it is as though he took the entire barrel.
+
+### Part 6
+<b>Rav Ashi raises a dilemma</b> based on that explanation: If <b>one lifts a purse</b> in order <b>to take from it</b> a single <b>dinar, what is</b> the <i>halakha</i>? <b>Is it</b> only with regard to <b>wine, which is preserved only by means of the wine</b> in the barrel, that if one intends to take a quarter-<i>log</i>, it is as though he intended to take all of the wine in the barrel, <b>but</b> with regard to <b>a dinar, which is preserved</b> even alone, intent to take one dinar does not indicate intent to take all of the coins in the purse? <b>Or, perhaps safeguarding a purse is different from safeguarding a dinar.</b> A single coin is easily lost, whereas a purse is not, as it is more easily safeguarded. Therefore, when the bailee intends to take one dinar, he intends to take all of the coins in the purse. The Gemara concludes: The dilemma <b>shall stand</b> unresolved.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

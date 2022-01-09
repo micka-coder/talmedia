@@ -1,0 +1,48 @@
+
+### Part 1
+The Gemara analyzes the <i>baraita</i> in detail. <b>The Master said</b> in the <i>baraita</i>: <b>I have</b> a derivation <b>only</b> with regard to the <b>seven placements</b> on the Curtain separating between the Sanctuary and Holy of Holies, that they are indispensable, <b>as</b> these seven <b>are indispensable in all cases.</b> The Gemara asks: <b>Where</b> are the seven indispensable? <b>Rav Pappa says: In</b> the case of the red <b>heifer</b> (see Numbers 19:2–4), <b>and in</b> the purification process of one afflicted with leprous <b>marks</b> (see Leviticus 14:16).
+
+### Part 2
+The <i>baraita</i> continues: <b>From where</b> is it derived that the same applies to the <b>four placements</b> on the inner altar? <b>The verse states: “So shall he do”</b> (Leviticus 4:20). The Gemara asks: <b>What is different</b> about <b>seven placements,</b> that they should be indispensable? If you say that the reason is <b>that</b> the seven placements <b>are written and repeated,</b> by means of the terms “And he shall do…as he did,” which teaches that they are indispensable, I can say that the <b>four placements as well are written and repeated.</b> Why then should their <i>halakha</i> be any different?
+
+### Part 3
+<b>Rabbi Yirmeya says:</b> This <b>is necessary only according to</b> the opinion of <b>Rabbi Shimon,</b> who maintains that only two placements are written in this chapter, while the other two are derived through a juxtaposition. Consequently, a specific derivation is required for these. <b>As it is taught</b> in a <i>baraita</i> with regard to the placements on the inner altar: <b>Above,</b> in the case of the bull for an unwitting sin of the anointed priest, the verse <b>states corner</b> in the plural form of <b>corners</b> (see Leviticus 4:7), i.e., it says “corners [<i>karnot</i>],” in the plural, where it could have written corner, in the singular. These are <b>two</b> corners. And <b>below,</b> with regard to the bull for an unwitting communal sin, <b>it</b> again <b>states corner</b> in the plural form of <b>corners</b> (see Leviticus 4:18). Together these amount to <b>four</b> corners. This is <b>the statement of Rabbi Shimon.</b>
+
+### Part 4
+<b>Rabbi Yehuda says:</b> This derivation <b>is not necessary, as it states</b> in these same verses: “And he shall put of the blood upon the corners of the altar which is before the Lord, which is <b>in the Tent of Meeting”</b> (Leviticus 4:18). The superfluous expression “in the Tent of Meeting” teaches that the blood must be placed <b>on all</b> the corners of the altar <b>that are stated with regard to the Tent of Meeting,</b> i.e., on all four corners. The Gemara asks: <b>And Rabbi Yehuda, what does he do with</b> the phrase <b>“so shall he do,”</b> which Rabbi Shimon interprets as referring to the four placements?
+
+### Part 5
+The Gemara answers that Rabbi Yehuda <b>requires</b> this verse <b>for that which is taught</b> in a <i>baraita</i>: <b>As we did not learn</b> with regard <b>to the bull of Yom Kippur that placing hands</b> is required, i.e., that the High Priest must place his hands on this animal before it is slaughtered, <b>and</b> likewise it is not stated that the <b>remainder of</b> its <b>blood</b> must be poured on the base of the altar. <b>From where</b> is it derived that these actions must be performed? <b>The verse states: “So shall he do.”</b>
+
+### Part 6
+The Gemara asks: <b>And did we not learn</b> with regard <b>to the bull of Yom Kippur</b> that these requirements apply? <b>But you said</b> earlier in the <i>baraita</i>: <b>“With the bull”</b> (Leviticus 4:20); <b>this</b> alludes to the bull of <b>Yom Kippur,</b> which indicates that all the rites performed in connection with the bull for an unwitting communal sin apply also to the bull of Yom Kippur.
+
+### Part 7
+The Gemara answers: The derivation from the phrase “so shall he do” <b>was necessary,</b> as it could <b>enter your mind to say</b> that <b>this matter,</b> the comparison between the bull for an unwitting communal sin and the bull of Yom Kippur, applies only to <b>a service that is indispensable for atonement,</b> e.g., the sprinkling of the blood. <b>But</b> with regard to <b>a service that is not indispensable for atonement,</b> such as placing hands on the head of the animal or pouring out the remainder of the blood, one might <b>say</b> that these actions need <b>not</b> be performed. Therefore, the verse <b>teaches us:</b> “So shall he do,” i.e., these services, too, must be performed with the bull of Yom Kippur.
+
+### Part 8
+The Gemara asks: <b>And Rabbi Shimon, what does he do with this</b> phrase: <b>“In the Tent of Meeting,”</b> from which Rabbi Yehuda derives that the blood must be placed on all four corners of the altar? The Gemara answers: Rabbi Shimon <b>requires</b> the phrase <b>“in the Tent of Meeting”</b> to teach <b>that if the roof of the Sanctuary was breached</b> by a hole, the priest <b>would not sprinkle</b> the blood, as it would no longer be called the Tent of Meeting. The Gemara asks: <b>And the other</b> <i>tanna</i>, Rabbi Yehuda, from where does he derive this <i>halakha</i>? The Gemara explains that Rabbi Yehuda derives it <b>from</b> the superfluous term <b>“which is</b> in the Tent of Meeting” (Leviticus 4:7, 18). The Gemara asks: <b>And the other</b> <i>tanna</i>, Rabbi Shimon? <b>He does not interpret</b> the term <b>“which is”</b> as he maintains that this expression is not significant enough to serve as the source of a <i>halakha</i>.
+
+### Part 9
+<b>Abaye said: According to</b> the opinion of <b>Rabbi Yehuda as well,</b> it <b>was necessary</b> to learn from the phrase “so shall he do” that the four placements are indispensable. As it might <b>enter your mind to say</b> that <b>just as it is with regard to placing hands and</b> the <b>remainder of the blood, that even though they are written and repeated they are not indispensable,</b> so <b>too,</b> the <b>four placements</b> of blood <b>should not be indispensable.</b> Therefore, the phrase “so shall he do” <b>teaches us</b> that this is not the case, and the four sprinklings are indeed indispensable.
+
+### Part 10
+§ The <i>baraita</i> teaches: <b>“With the bull”</b> (Leviticus 4:20), <b>this</b> alludes to <b>the bull of Yom Kippur. To what <i>halakha</i></b> does this statement relate? <b>If</b> it serves <b>to</b> teach that all matters stated with regard to the bull of Yom Kippur are <b>indispensable,</b> this is <b>obvious,</b> since the word <b>“statute” is written concerning it:</b> “And this shall be an everlasting statute to you” (Leviticus 16:29), and there is a principle that <i>halakhot</i> described as statutes are indispensable.
+
+### Part 11
+<b>Rav Naḥman bar Yitzḥak said:</b> This statement <b>is necessary only according to</b> the opinion of <b>Rabbi Yehuda, who says: When</b> the term <b>“statute” is written</b> concerning the Yom Kippur service, indicating that no details may be altered, it is written only <b>with regard to actions performed in white garments inside</b> the Holy of Holies, e.g., burning the incense and sprinkling the blood, which are the essential services of the day, and it teaches <b>that if</b> the High Priest <b>performed</b> one of the <b>actions before another,</b> i.e., not in the proper order, <b>he has done nothing.</b>
+
+### Part 12
+<b>But</b> with regard to <b>those actions performed in white garments outside,</b> in the Sanctuary, if he <b>performed</b> one <b>action before another, what he did is done</b> and he is not required to repeat the rite. Consequently, one might <b>say</b> that <b>from</b> the fact <b>that their order is not indispensable,</b> it may be derived that the <b>sprinklings,</b> i.e., placements, <b>themselves are also not indispensable.</b> Therefore, the term “with the bull” <b>teaches us</b> that the placements are indeed indispensable.
+
+### Part 13
+<b>Rav Pappa objects to this: And how can you say this,</b> that Rabbi Yehuda derives from here that the placements are indispensable? <b>But isn’t it taught</b> in a <i>baraita</i>: The verse discussing the Yom Kippur service states: <b>“And when he has finished atoning for the Sanctuary”</b> (Leviticus 16:20). This indicates that <b>if he performed the atonement,</b> i.e., the sprinklings, inside the Sanctuary, <b>he has finished</b> the order of the service, even though he has not poured the remainder of the blood on the base of the altar; <b>and if he did not perform the atonement, he has not finished;</b> this is <b>the statement of Rabbi Akiva.</b>
+
+### Part 14
+<b>Rabbi Yehuda said to him: For what</b> reason <b>do we not say: If he finished</b> the entire service, which includes sprinkling the blood in the Sanctuary and pouring the remainder of the blood onto the base of the altar, <b>he has facilitated atonement; and if he did not finish, he has not facilitated atonement?</b> This indicates that Rabbi Yehuda derives from this verse the <i>halakha</i> that the sprinklings in the Sanctuary are indispensable.
+
+### Part 15
+<b>Rav Pappa says:</b> This reference to the bull of Yom Kippur in the term “with the bull,” <b>is necessary only to</b> apply to the bull of Yom Kippur three <i>halakhot</i> that are derived from that which is stated with regard to the bull for an unwitting sin of the anointed priest: “And the priest shall immerse his finger [<i>et etzba’o</i>] in the blood” (Leviticus 4:6). These <i>halakhot</i> can be summarized in the shortened form: <b><i>Et</i>, blood, and with immersion.</b> The Gemara elaborates: With regard to the word <b><i>et</i>, Rav Aḥa bar Ya’akov says:</b> This word <b>is necessary only to render fit</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

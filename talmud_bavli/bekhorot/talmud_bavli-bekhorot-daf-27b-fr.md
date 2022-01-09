@@ -1,0 +1,24 @@
+
+### Partie 1
+<b>Mais avons-nous l'aspersion</b> des cendres de la genisse rouge ? Puisque sans cette aspersion on reste impur apres le contact avec un cadavre, en quoi l'immersion dans un bain rituel est-elle utile ? <b>Rami bar Hama lui dit : Rav Nahman ne devrait-il pas <b>se preoccuper</b> de l'avis <b>du vieil homme,</b> c'est-a-dire de Rav Amram ? Ne serait-il pas preferable d'attendre son retour avant de repondre ? <b>Pendant ce temps, le Rav Amram est revenu</b>. <b>Il leur dit</b> que <b>ceci</b> est ce que <b>Rav dit :</b> Celui qui est devenu impur avec <b>l'impurete</b> communiquee par <b>un cadavre peut s'immerger et prendre part a <i>teruma</i> a partir</b> de produits cultives <b>en dehors d'Eretz</b> Yisrael.
+
+### Partie 2
+La Guemara commente : <b>Mais la <i>halakha</i></b> n'est <b>pas en accord avec son</b> avis. <b>Mar Zutra a dit au nom de Rav Sheshet :</b> Celui qui est devenu <b>impur</b> par contact avec la carcasse d'un <b>animal rampant peut s'immerger</b> dans un bain rituel <b>et participer a un <i>teruma</i> provenant</b> de produits cultives <b>en dehors d'Eretz</b> Yisrael. <b>Mais la <i>halakha</i></b> n'est <b>pas en accord avec son</b> avis.
+
+### Partie 3
+§ La mishna enseigne : <b>L'animal premier-ne est mange annee par annee,</b> c'est-a-dire des sa premiere annee, qu'il soit tache ou non. La Gemara commente : <b>D'apres</b> le fait <b>que</b> la mishna <b>dit : Si une tare s'est developpee au cours de sa</b> premiere <b>annee,</b> plutot qu'au cours de la premiere annee, c'est <b>dire qu'on compte</b> selon <b>son annee,</b> et non selon l'annee civile. En d'autres termes, l'annee est calculee a partir du jour de la naissance de l'animal. <b>D'ou vient cette matiere</b> ?
+
+### Partie 4
+Elle est derivee d'un verset, <b>comme le dit Rav Yehuda</b> que <b>Rav dit que le verset dit : "Tu le mangeras devant le Seigneur ton Dieu, annuellement [<i>shana beshana</i>]</b> dans le lieu que le Seigneur choisira, toi et ta famille" (Deuteronome 15:20). L'expression "<i>shana beshana</i>", qui peut aussi etre traduite par : Une annee dans une annee, indique que le verset fait reference a une annee qui entre dans une autre annee. <b>Quel</b> type d'<b>annee entre dans une autre</b> annee ? <b>Vous devez dire</b> que cela parle de l'<b>annee du premier-ne</b> animal, qui entre dans l'annee civile suivante, car si l'animal est ne au milieu de l'annee, sa premiere annee comprend une partie de l'annee civile suivante.
+
+### Partie 5
+<b>L'ecole du Rav a enseigne</b> qu'il existe une <i>halakha</i> differente derivee de la phrase <b>"annee par annee"</b> Cette phrase indique qu'elle peut etre consommee un <b>jour de cette annee et un jour de cette</b> <b>annee suivante. </b> Le verset <b>enseigne ainsi a propos</b> d'un <b>premier-ne</b> sans tache, qui est sacrifie dans le Temple, <b>qu'il est mange pendant deux jours et une nuit,</b> comme une offrande de paix.
+
+### Partie 6
+La Gemara demande : <b>D'ou</b> <b>l'ecole du Rav</b> derive la <i>halakha</i> qu'un premier-ne doit etre mange dans sa propre annee et que son annee n'est pas calculee selon l'annee civile ? <b>Ils le tirent de</b> la <i>halakha</i> des autres <b>animaux sacrificiels</b>, dont l'age est compte a partir de leur naissance et non selon l'annee civile. <b>Et</b> en ce qui concerne les autres <b>animaux sacrificiels</b> <b>eux-memes, d'ou deduit-on</b> que leur age est compte a partir de leur naissance ? <b>Rav Aha bar Yaakov dit</b> que <b>le verset dit :</b> "Et lorsque les jours de sa purification seront accomplis, pour un fils ou pour une fille, elle apportera <b>un agneau d'un an</b> pour l'holocauste, et un pigeon ou une colombe pour le sacrifice pour le peche, a l'entree de la Tente de la Rencontre, au pretre" (Levitique 12:6). Cette description de l'agneau fait reference a <b>son</b> propre <b>annee, et non a une annee du comptage du monde.</b>
+
+### Partie 7
+La Gemara demande : <b>Et Rav, d'ou derive-t-il</b> qu'un premier-ne <b>est mange pendant deux jours et une nuit ?</b> La Gemara repond : <b>Il le derive</b> d'un verset dans lequel Moise parle a Aaron et a ses fils concernant la consommation du premier-ne : <b>"Et leur chair sera a vous, comme la poitrine d'ondulation et comme la cuisse droite, elle sera a vous"</b> (Nombres 18:18). <b>Le verset</b> a ainsi <b>juxtapose</b> la <i>halakha</i> du premier-ne <b>avec la poitrine et la cuisse d'une offrande de paix. De meme que la-bas,</b> il peut etre mange pendant <b>deux jours et une nuit,</b> comme le dit explicitement un verset (voir Levitique 7:16), <b>de meme ici,</b> un premier-ne peut etre mange pendant <b>deux jours et une nuit.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

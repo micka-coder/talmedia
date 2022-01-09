@@ -1,0 +1,60 @@
+
+### Part 1
+<b>Everyone</b> also <b>agrees that an unconditional guarantor for</b> the repayment of <b>a creditor becomes responsible</b> for payment of the borrower’s debt. The Sages <b>disagree</b> with regard to the following cases: <b>A guarantor for</b> the repayment of <b>a creditor and an unconditional guarantor for</b> payment of <b>a marriage contract. There is one</b> Sage <b>who says: Although the borrower does not have property</b> of his own at the time of the loan, the guarantor <b>becomes responsible</b> for payment of the obligation. <b>And there is one</b> Sage <b>who says: If</b> the obligated party <b>has</b> property of his own, then the guarantor <b>becomes responsible; if he does not have</b> property of his own, <b>he does not become responsible.</b>
+
+### Part 2
+<b>And the <i>halakha</i></b> is: <b>In all of</b> these cases, <b>although</b> the obligated party <b>does not have</b> property of his own at the time he assumes the obligation, the guarantor <b>becomes responsible</b> for payment of that obligation. This is so <b>except in</b> the case of a <b>guarantor for</b> payment of <b>a marriage contract, as</b> in that case, <b>even if</b> the husband <b>has</b> property of his own when he gives marriage contract, the guarantor <b>does not become responsible</b> for payment of the obligation.
+
+### Part 3
+<b>What is the reason</b> for this? The intention of the guarantor <b>is performing a mitzva</b> of facilitating a marriage by encouraging the woman to consent to the marriage as a result of his involvement, but he does not truly intend to obligate himself. <b>And</b> furthermore, the woman <b>does not lose</b> anything in exchange for which the guarantor would accept responsibility, as the husband does not borrow money from the woman. Therefore, the Sages instituted that the guarantor does not become responsible for payment of the marriage contract from his own property.
+
+### Part 4
+<b>Ravina said: Come</b> and <b>hear</b> a proof concerning the question of whether the mishna’s ruling that payment of a woman’s marriage contract is collected from inferior-quality land applies only when the woman collects from orphans or if it applies even when she collects from her husband. The proof is <b>from the beginning of our ordinance:</b> Why did the Sages say that a woman’s marriage contract is collected from inferior-quality land? It is because <b>more than a man wants to marry</b> a woman, <b>a woman wants to become married</b> to a man. <b>And if it enters your mind</b> that this <i>halakha</i> applies only when the woman collects <b>from orphans,</b> then the reason given for <b>this</b> <i>halakha</i> should be that it is <b>because they are orphans,</b> not because a woman wants to become married. This indicates that the mishna’s ruling applies even when she collects her marriage contract during her husband’s lifetime, contrary to the opinion of Mar Zutra. The Gemara affirms: <b>The refutation</b> of the opinion <b>of Mar Zutra is a conclusive refutation.</b>
+
+### Part 5
+§ Apropos a statement attributed to Mar Zutra, son of Rav Naḥman, the Gemara cites another <i>halakha</i> in his name on a similar topic: <b>Mar Zutra, son of Rav Naḥman, said in the name of Rav Naḥman:</b> If <b>a promissory note is presented to orphans</b> for repayment of a loan taken by their father, then <b>although an enhancement</b> of the creditor’s ability to collect, enabling the collection of even superior-value land, <b>is written in it,</b> the creditor <b>can collect only from inferior-quality land.</b>
+
+### Part 6
+<b>Abaye said: Know</b> that this is the case, <b>as</b> the <b><i>halakha</i></b> governing <b>a creditor</b> is that he collects <b>from intermediate-quality land, but from orphans</b> he collects only <b>from inferior-quality land.</b> If one cannot collect even from intermediate-quality land of orphans, all the more so one cannot collect from their superior-quality land.
+
+### Part 7
+<b>Rava said to him: How can</b> these two cases <b>be compared? By Torah law,</b> the <b><i>halakha</i></b> governing <b>a creditor</b> is that he collects <b>from inferior-quality land, in accordance with</b> the opinion <b>of Ulla, as Ulla says: By Torah law, a creditor</b> collects <b>from inferior-quality land, as it is stated: “You shall stand outside, and the man</b> to whom you have lent shall bring forth the pledge out to you” (Deuteronomy 24:11). <b>What would a man ordinarily take out</b> as a pledge? <b>The least</b> valuable <b>of</b> his <b>vessels.</b> This demonstrates that the creditor is entitled only to the least valuable of the debtor’s vessels. Similarly, when he collects from land, he collects only from inferior-quality land. <b>And for what reason did</b> the Sages <b>say</b> that <b>a creditor</b> collects <b>from intermediate-quality land? So as not to lock the door before</b> potential <b>borrowers,</b> i.e., so that people do not refrain from extending loans. <b>And with regard to orphans, the Sages left</b> the <i>halakha</i> <b>as</b> it is stated <b>in the Torah.</b>
+
+### Part 8
+<b>But here,</b> a stipulation enhancing the creditor’s ability to collect was included in the promissory note. Therefore, <b>since by Torah law the <i>halakha</i></b> governing this creditor is that he collects <b>from superior-quality land</b> as stipulated in the loan agreement, then <b>he should also</b> collect <b>from superior-quality land even</b> when collecting the debt <b>from orphans.</b>
+
+### Part 9
+The Gemara asks: <b>And according to</b> this explanation of <b>Rava,</b> there is a difficulty: <b>Didn’t</b> the Sage <b>Avram Ḥoza’a teach</b> a <i>baraita</i> that states: A father’s debt <b>can be collected from the property of the orphans only from inferior-quality land?</b> The Gemara infers: <b>And</b> this ruling applies <b>even</b> if the property is collected for payment to <b>injured</b> parties. <b>But isn’t</b> it true that <b>by Torah law</b> the <b><i>halakha</i></b> governing <b>injured</b> parties is that they collect <b>from superior-quality land?</b> This indicates that even when by Torah law collection should be from superior-quality land, the Sages instituted that one may collect from orphans only inferior-quality land.
+
+### Part 10
+The Gemara answers: <b>With what</b> case <b>are we dealing here</b> in the <i>baraita</i> taught by Avram Ḥoza’a? We are dealing with a case <b>where superior-quality land of the injured</b> party <b>is equal</b> in quality <b>to inferior-quality land of the one who caused the damage,</b> i.e., the orphans, and the one who caused the damage also has land of superior quality.
+
+### Part 11
+<b>And</b> the <i>baraita</i> is taught in accordance with the opinion of <b>Rabbi Yishmael, who says: By Torah law we appraise</b> the property <b>of the injured</b> party, and therefore the one who caused the damage can pay with his inferior-quality fields that are equal in quality to the superior-quality land owned by the injured party. <b>And for the betterment of the world, the Sages instituted</b> that we appraise the property <b>of the one who caused the damage,</b> and he pays with his superior-quality land. <b>But with regard to orphans, the Sages left</b> the <i>halakha</i> <b>as</b> it is stated <b>in the Torah;</b> they pay from their inferior-quality land that is equal in quality to superior-quality land belonging to the injured party. By contrast, a creditor who holds a promissory note stipulating that the debt can be collected from superior-quality land can collect superior-quality land even from orphans, as stipulated in the loan agreement.
+
+### Part 12
+The Gemara asks: <b>Is that so? But didn’t Rabbi Eliezer Nayota’a teach</b> a <i>baraita</i> that states: A father’s debt <b>can be collected from the property of the orphans only from inferior-quality land, even if it is superior-quality land?</b> The Gemara asks: <b>What</b> is the meaning of: <b>Even if it is superior-quality land? Is it not</b> the following: <b>Although superior-quality land is written in the</b> promissory <b>note,</b> the debt can be collected from the orphans only from inferior-quality land.
+
+### Part 13
+The Gemara rejects this suggestion: <b>No, what</b> is the meaning of <b>superior-quality land?</b> Orphans can repay the debt even from <b>strips of superior-quality land</b> that due to their location cannot be cultivated or guarded and that consequently have a lower market value than inferior-quality land, <b>as</b> in the statement <b>of Rava.</b>
+
+### Part 14
+<b>As Rava says:</b> If <b>one damaged inferior-quality land,</b> the injured party <b>collects from superior-quality land.</b> The one who caused damage is penalized and made to pay from land of much higher quality than that which he damaged. If he damaged <b>strips of superior-quality land</b> that cannot be cultivated, the injured party <b>collects from intermediate-quality land,</b> as the land that was damaged is inferior in value even to inferior-quality land, and therefore it suffices if compensation is paid from intermediate-quality land. And why did Rabbi Eliezer Nayota’a teach that orphans may pay their father’s debt from land of the lowest quality? <b>With regard to orphans, the Sages left</b> the <i>halakha</i> as it is written <b>in the Torah,</b> that a creditor collects from inferior-quality land.
+
+### Part 15
+§ The mishna teaches: If one who owed money died and his children inherited his property, the father’s debt <b>can be collected from the property of the orphans only from inferior-quality land. Rav Aḥadevoi bar Ami raised a dilemma</b> with regard to the meaning of this statement: Do the <b>orphans of which they spoke</b> refer specifically to <b>minors or even</b> to <b>adults?</b> The Gemara explains the two sides of the dilemma: Is <b>this an ordinance that the Sages instituted for</b> the benefit of the <b>orphans,</b> in which case it may be argued that <b>the Sages instituted</b> it <b>for minors</b> but <b>they did not institute</b> it <b>for adults?</b>
+
+### Part 16
+<b>Or, perhaps</b> the reason is different. The reason that a creditor collects from intermediate-quality land is so that the door not be locked before potential borrowers. Here, this is not a concern, <b>since it does not enter the mind of the creditor</b> that he should not lend money as perhaps <b>the borrower</b> will <b>die and</b> his <b>property will fall to the orphans. As</b> only if he were to consider this possibility, would it be <b>that this would lock the door</b> before potential borrowers. Consequently, the ordinance that a creditor collects from intermediate-quality land was instituted only in the standard case, where the creditor collects from the debtor himself, but not where he collects from the heirs. <b>Therefore,</b> the ordinance that a debt can be collected from the property of orphans only from inferior-quality land should apply <b>also</b> to <b>adult</b> orphans.
+
+### Part 17
+The Gemara answers: <b>Come</b> and <b>hear what Abaye the Elder taught:</b> With regard to <b>the orphans of which</b> the Sages <b>spoke,</b> the phrase is referring to <b>adults, and needless to say</b> it is referring also to <b>minors.</b>
+
+### Part 18
+The Gemara rejects this proof: <b>But perhaps this statement applies only to the matter of an oath.</b> One who collects a debt from property left by the debtor to his heirs always takes an oath, even if he produces a promissory note. This <i>halakha</i> applies even if the heirs are adults. This is <b>because</b> even <b>an adult</b> son <b>is considered like a minor with regard to</b> his father’s financial <b>matters,</b> since he does not know the details of his father’s business dealings and it is possible that his father had actually repaid the debt before dying. <b>But with regard to</b> collecting the debt from <b>inferior-quality land, no,</b> this <i>halakha</i> applies only to minors.
+
+### Part 19
+The Gemara concludes: <b>And the <i>halakha</i></b> is:
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

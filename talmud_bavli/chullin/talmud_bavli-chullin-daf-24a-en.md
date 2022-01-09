@@ -1,0 +1,48 @@
+
+### Part 1
+The Gemara answers that <b>the verse states</b> with regard to the red heifer: <b>“And he shall slaughter</b> it” (Numbers 19:3), <b>and</b> it mentions the term <b>statute:</b> “This is the statute of the Torah” (Numbers 19:2), indicating that <b>with slaughter, yes,</b> the red heifer is rendered fit; <b>with breaking the neck,</b> the red heifer is <b>not</b> rendered fit.
+
+### Part 2
+The Gemara asks: <b>And</b> is it so that <b>anywhere that statute is written with regard to</b> a certain matter, <b>we do not learn an <i>a fortiori</i></b> inference? <b>But</b> what <b>about Yom Kippur, with regard to which statute is written:</b> “And this shall be an everlasting statute unto you” (Leviticus 16:34), <b>and</b> nevertheless <b>it is taught</b> in a <i>baraita</i>: “And Aaron shall bring forward the goat upon which the lot came up for the Lord, <b>and he shall offer it for a sin offering”</b> (Leviticus 16:9). The verse indicates that <b>the lottery renders</b> the goat <b>a sin offering, but a verbal designation</b> of the goat with the status of a sin offering <b>does not render</b> it <b>a sin offering.</b>
+
+### Part 3
+The <i>baraita</i> continues: A verse is necessary to teach this <i>halakha</i>, <b>as</b> one <b>might</b> have thought that the opposite conclusion is correct: <b>Could this not</b> be derived through an <i>a fortiori</i> <b>inference: If in a case where the lottery does not sanctify</b> the animal with a specific designation, such as in the case of two birds brought by a woman after childbirth, and nevertheless <b>a verbal designation</b> of that offering <b>sanctifies</b> it, in <b>a case where the lottery sanctifies</b> the animal on Yom Kippur, <b>isn’t it logical that a verbal designation</b> as a sin offering <b>sanctifies it?</b> Therefore, <b>the verse states: “And render it a sin offering;” the lottery renders</b> the goat <b>a sin offering, but a verbal designation</b> of a sin offering <b>does not render</b> the goat <b>a sin offering.</b>
+
+### Part 4
+The Gemara infers: <b>The reason</b> that the <i>a fortiori</i> inference is not learned is <b>that the Merciful One writes: “And he shall offer it for a sin offering.” But otherwise we</b> would <b>learn an <i>a fortiori</i></b> inference, despite the fact that statute is written with regard to the Yom Kippur service.
+
+### Part 5
+The Gemara explains: Actually, one may learn an <i>a fortiori</i> inference even in a case where statute is written. Nevertheless, <b>with regard to</b> the <b>heifer</b> whose neck is broken, <b>the Merciful One restricts</b> the use of breaking the neck: “And all the Elders of that city…shall wash their hands over the heifer <b>whose neck is broken”</b> (Deuteronomy 21:6). From the relative pronoun “whose” it is derived: <b>This</b> heifer <b>is</b> killed <b>by breaking the neck, but no other,</b> i.e., the red heifer, is killed <b>by breaking the neck.</b>
+
+### Part 6
+The Gemara challenges: <b>And let it be</b> derived that the heifer whose neck is broken is rendered <b>fit with slaughter by means of an <i>a fortiori</i></b> inference: <b>If</b> a red <b>heifer, which is not rendered fit with breaking the neck,</b> is rendered <b>fit with slaughter,</b> then with regard to <b>a heifer</b> whose neck is broken, <b>which</b> is rendered <b>fit with breaking the neck, isn’t it logical that it is rendered fit with slaughter?</b> The Gemara responds that <b>the verse states: “And shall break the neck of the heifer</b> there in the valley” (Deuteronomy 21:4). The doubled reference to breaking the neck in the two verses indicates that <b>by breaking the neck, yes,</b> the heifer may be killed; <b>by slaughter,</b> the heifer may <b>not</b> be killed.
+
+### Part 7
+<strong>MISHNA:</strong> There is an element with which <b>priests</b> remain <b>fit</b> and <b>Levites are unfit,</b> and there is also an element with which <b>Levites</b> remain <b>fit</b> and <b>priests are unfit.</b>
+
+### Part 8
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i> in explanation of the mishna: <b>Priests are</b> rendered <b>unfit</b> for Temple service <b>with</b> the <b>blemishes</b> enumerated in the Torah (see Leviticus 21:16–23), but remain <b>fit with</b> the passage of <b>years,</b> as from the moment that they reach majority they are fit for service for the rest of their lives. <b>Levites</b> remain <b>fit</b> for Temple service <b>with</b> the <b>blemishes</b> enumerated in the Torah but <b>are unfit with</b> the passage of <b>years,</b> as they are fit for service only between the ages of thirty and fifty (see Numbers 4:47). <b>It is found</b> that there is an element with which <b>priests</b> remain <b>fit</b> and <b>Levites are unfit,</b> and there is an element with which <b>Levites</b> remain <b>fit</b> and <b>priests are unfit.</b>
+
+### Part 9
+The Gemara asks: <b>From where are these matters</b> derived? The Gemara answers: It is <b>as the Sages taught</b> in a <i>baraita</i>: <b>“This is that which pertains to the Levites”</b> (Numbers 8:24); <b>why</b> must <b>the verse state</b> this? <b>Since it is stated: “And from the age of fifty years he shall return</b> from the service” (Numbers 8:25), <b>we learned with regard to the Levites that</b> the passage of <b>years disqualifies them.</b> One <b>might</b> have thought that <b>blemishes disqualify them</b> too. <b>And</b> ostensibly, it could be learned through <b>logical inference: If priests,</b> with regard to <b>whom</b> the passage of <b>years does not disqualify them, blemishes disqualify them,</b> then in the case of <b>Levites,</b> with regard to <b>whom</b> the passage of <b>years disqualifies them, isn’t it logical that blemishes disqualify them?</b> Therefore, <b>the verse states: “This is that which pertains to the Levites,”</b> from which it is derived: <b>“This,”</b> the passage of years, is a disqualification that pertains <b>to the Levites, and there is no other</b> disqualification that pertains <b>to the Levites.</b>
+
+### Part 10
+One <b>might</b> have thought that <b>priests would be disqualified with</b> the passage of <b>years. And</b> ostensibly, <b>could this not</b> be derived through the following <i>a fortiori</i> <b>inference: If Levites,</b> with regard to <b>whom blemishes do not disqualify them,</b> the passage of <b>years disqualifies them,</b> then in the case of <b>priests,</b> with regard to <b>whom blemishes disqualify them, isn’t it logical</b> that the passage of <b>years disqualifies them?</b> Therefore, <b>the verse states: “Which pertains to the Levites,” and not which pertains to the priests.</b>
+
+### Part 11
+One <b>might</b> have thought that the Levites were disqualified with the passage of years <b>even in Shiloh,</b> the permanent place of the Tabernacle, <b>and in the eternal Temple.</b> Therefore, <b>the verse states: “To perform the work of service, and the work of bearing burdens”</b> (Numbers 4:47), juxtaposing the two forms of Levite service to teach: <b>I stated</b> the disqualification of the passage of years <b>only at a time when</b> there is Levite <b>service</b> involving carrying the Tabernacle <b>on</b> their <b>shoulders.</b>
+
+### Part 12
+The <i>baraita</i> notes that <b>one verse states: “From twenty-five years old and upward”</b> (Numbers 8:24), <b>and one verse states: “From thirty years old</b> and upward” (Numbers 4:47). It is <b>impossible to say thirty, as twenty-five is already stated, and</b> it is <b>impossible to say twenty-five, as thirty is already stated. How</b> can these verses be reconciled? <b>Twenty-five</b> years old is the time <b>for apprenticeship and thirty for service.</b>
+
+### Part 13
+<b>From here</b> it is derived that <b>a student who did not see a positive indication in his studies</b> after <b>five years will no longer see</b> a productive result from those studies. <b>Rabbi Yosei says</b> that the period is <b>three years, as it is stated</b> with regard to Daniel and his cohort who instructed the king of Babylonia: <b>“And they should be raised three years”</b> (Daniel 1:5), <b>“and he should teach them the books and the language of the Chaldeans”</b> (Daniel 1:4).
+
+### Part 14
+The Gemara asks: <b>And</b> how does <b>the other</b> <i>tanna</i> explain the verses in Daniel? The Gemara answers: He holds that the verses in Daniel cannot be cited as a source for this principle because <b>the language of the Chaldeans is different, as</b> it is <b>easy</b> and can be learned in a shorter period. The Gemara asks: <b>And</b> how does <b>the other</b> <i>tanna</i>, Rabbi Yosei, explain the verses with regard to the Levites? The Gemara answers: He holds that <b>the <i>halakhot</i> of</b> Temple <b>service are different, as they are difficult</b> and require a longer period of study.
+
+### Part 15
+<b>The Sages taught</b> in a <i>baraita</i>: <b>A priest, from</b> the time he reaches puberty and <b>grows two</b> pubic <b>hairs until he ages, is fit for</b> Temple <b>service, and blemishes disqualify him. A Levite from the age of thirty until the age of fifty is fit for</b> Temple <b>service, and</b> the passage of <b>years disqualifies him. In what</b> case <b>is this statement said?</b> It is said <b>with regard to the Tent of Meeting</b> of the Tabernacle <b>in the wilderness. But with regard to Shiloh and in the eternal Temple,</b> Levites <b>are disqualified only</b> due to a change <b>in voice</b> that renders them unable to recite the songs in the Temple with their brethren. <b>Rabbi Yosei said: What is the verse</b> from which this is derived?
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

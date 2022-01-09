@@ -1,0 +1,42 @@
+
+### Part 1
+<b>even until Nophah,”</b> meaning <b>until the fire comes that does not require fanning [<i>nippuaḥ</i>],</b> i.e., the fire of Gehenna, which will consume them. <b>“Until Medeba [<i>Medeva</i>]”;</b> this means <b>until their souls are pained [<i>tadiv</i>]. And some say</b> an alternative explanation: It means <b>until</b> God <b>does what He wishes [<i>mai deva’ei</i>]</b> with them and punishes them as they deserve.
+
+### Part 2
+<b>Rav Yehuda says</b> that <b>Rav says:</b> With regard to <b>anyone who separates</b> himself <b>from matters of Torah, a fire consumes him, as it is stated: “And I will set My face against them; out of the fire they come forth, and the fire shall devour them”</b> (Ezekiel 15:7). The Torah is likened to fire in the verse: “Is not My word like fire?” (Jeremiah 23:29). The verse in Ezekiel teaches: “Out of the fire they come forth,” referring to those who separate themselves from the fire of Torah; “and the fire shall devour them,” i.e., they are consumed by the fire of Gehenna.
+
+### Part 3
+<b>When Rav Dimi came</b> from Eretz Yisrael to Babylonia, he said that <b>Rabbi Yonatan says: Anyone who separates himself from the matters of Torah falls into Gehenna. As it is stated: “The man who strays out of the way of understanding shall rest in the congregation of the spirits”</b> (Proverbs 21:16). “The way of understanding” is the way of the Torah. <b>And</b> one who departs from the Torah arrives in the place of the <b>spirits,</b> which <b>is nothing other than Gehenna, as it is stated: “But he does not know that the spirits are there; that those whom she has called are in the depths of the netherworld”</b> (Proverbs 9:18).
+
+### Part 4
+§ The mishna teaches: One who <b>sold a dunghill has sold its manure,</b> and one who sold a cistern has sold its water. <b>We learned</b> in a mishna <b>elsewhere</b> (<i>Me’ila</i> 12b): With regard to <b>any</b> item that is <b>fit to</b> be sacrificed on <b>the altar but</b> is <b>not</b> fit <b>for Temple maintenance,</b> or is fit <b>for Temple maintenance but not for the altar,</b> or items that are fit <b>neither for the altar nor for Temple maintenance</b> in their current state and are slated to be sold with the profit used for the Temple, in all these cases if one consecrates these items and then derives benefit <b>from them or their contents</b> for a non-sacred purpose, he thereby is liable for <b>misuse</b> of consecrated property and is obligated to bring an offering as atonement.
+
+### Part 5
+<b>How so?</b> One who <b>consecrated a cistern filled with water, dunghills filled with manure, a dovecote filled with doves, a field filled with plants,</b> or <b>a tree bearing fruit,</b> and subsequently derived benefit <b>from them or their contents</b> is liable for <b>misuse</b> of consecrated property.
+
+### Part 6
+<b>But</b> with regard to one who <b>consecrated a cistern and it was later filled with water, a dunghill and it was later filled with manure, a dovecote and it later was filled with doves, a tree and it later bore fruit,</b> or <b>a field and it was later filled with plants,</b> if he derives benefit <b>from them</b> he is liable for <b>misuse</b> of consecrated property but he is <b>not</b> liable for <b>misuse</b> of consecrated property by deriving benefit from <b>its contents.</b> This is <b>the statement of Rabbi Yehuda. Rabbi Yosei says:</b> With regard to one who <b>consecrated a field or a tree,</b> he is liable for <b>misuse</b> of consecrated property if he derives benefit from <b>them or that which grows from them, because they are growths of consecrated</b> property.
+
+### Part 7
+<b>It is taught</b> in a <i>baraita</i> that <b>Rabbi</b> Yehuda HaNasi <b>said: The statement of Rabbi Yehuda appears</b> to be correct <b>in</b> the cases of <b>a cistern and a dovecote,</b> i.e., if one consecrated an empty cistern or dovecote, the water or doves that later fill it do not become consecrated. <b>And the statement of Rabbi Yosei</b> appears to be correct <b>in</b> the cases of <b>a field and a tree.</b> The Gemara asks: <b>What is</b> the meaning of <b>this</b> statement of Rabbi Yehuda HaNasi? <b>Granted,</b> when he says that <b>the statement of Rabbi Yehuda appears</b> to be correct <b>in</b> the cases of <b>a cistern and a dovecote, by inference</b> this means <b>that</b> Rabbi Yehuda <b>disagrees</b> with Rabbi Yosei <b>in</b> the cases of <b>a field and a tree,</b> and Rabbi Yehuda does explicitly disagree in those cases.
+
+### Part 8
+<b>But</b> when Rabbi Yehuda HaNasi says that <b>the statement of Rabbi Yosei appears</b> to be correct <b>in</b> the cases of <b>a field and a tree,</b> this indicates <b>by inference that</b> Rabbi Yosei <b>disagrees</b> with Rabbi Yehuda <b>in</b> the cases of <b>a cistern and a dovecote. But Rabbi Yosei stated</b> his opinion solely <b>in</b> the cases of <b>a field and a tree,</b> as only plants and fruit grow directly from consecrated property, and this reasoning is not relevant in the case of a cistern or dovecote.
+
+### Part 9
+<b>And if you would say</b> that Rabbi Yosei <b>stated</b> his opinion <b>in accordance with the statement of Rabbi Yehuda,</b> whereas he himself holds that even the items found in a dovecote or a cistern are consecrated, this is difficult: <b>But isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yosei said: I do not see the statement of Rabbi Yehuda</b> as correct <b>in</b> the cases of <b>a field and a tree, because</b> the plants and the fruit <b>are the growths of consecrated</b> property? Infer from here that it is <b>in</b> the cases of <b>a field and a tree that</b> Rabbi Yosei <b>does not see</b> and accept the opinion of Rabbi Yehuda. <b>But in</b> the cases of <b>a cistern and a dovecote, he</b> does <b>see</b> and accept his opinion.
+
+### Part 10
+The Gemara answers that <b>this</b> is what Rabbi Yehuda HaNasi <b>is saying: The statement of Rabbi Yehuda appears to Rabbi Yosei</b> to be correct <b>in</b> the cases of <b>a cistern and a dovecote.</b> In other words, Rabbi Yehuda HaNasi is saying <b>that even Rabbi Yosei disagrees with</b> Rabbi Yehuda <b>only in</b> the cases of <b>a field and a tree. But in</b> the cases of <b>a cistern and a dovecote, he concedes to him</b> that the prohibition against misuse of consecrated property does not apply to items that were added afterward and were not present at the time of the consecration.
+
+### Part 11
+<b>The Sages taught:</b> In the case of cisterns, with regard to one who <b>consecrated them</b> when they were <b>empty and they were later filled,</b> if one derives benefit <b>from them</b> he is liable for <b>misuse</b> of consecrated property, <b>but</b> he is <b>not</b> liable for <b>misuse</b> of consecrated property if he derives benefit <b>from their contents.</b> This ruling will be clarified below. <b>Rabbi Elazar, son of Rabbi Shimon, says:</b> One is liable for <b>misuse</b> of consecrated property <b>even</b> by deriving benefit <b>from their contents.</b>
+
+### Part 12
+<b>Rabba says:</b> This <b>dispute</b> in the <i>baraita</i> applies only <b>in</b> the cases of <b>a field and a tree, as the first <i>tanna</i> holds in accordance with</b> the opinion of <b>Rabbi Yehuda, and Rabbi Elazar, son of Rabbi Shimon, holds in accordance with</b> the opinion of <b>Rabbi Yosei. But in</b> the cases of <b>a cistern and a dovecote, everyone agrees</b> that if one derives benefit <b>from them</b> he is liable for <b>misuse</b> of consecrated property <b>but</b> he is <b>not</b> liable for <b>misuse</b> of consecrated property if he derives benefit <b>from their contents.</b>
+
+### Part 13
+<b>Abaye said to him: But</b> consider <b>that which is taught</b> in the continuation of the <i>baraita</i>: If one <b>consecrated them</b> when they were <b>full</b> and then derives benefit <b>from them or from their contents,</b> he is liable for <b>misuse</b> of consecrated property. <b>And Rabbi Elazar, son of Rabbi Shimon, reverses</b> his previous ruling in this case and holds that if the items were consecrated when full their contents are not subject to the prohibition against misuse of consecrated property.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

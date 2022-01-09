@@ -1,0 +1,30 @@
+
+### Part 1
+<b>It is taught</b> in a <i>baraita</i>: If one declares food: <b>Non-sacred,</b> or: <b>The non-sacred,</b> or: <b>Like the non-sacred,</b> then <b>whether</b> he combines that expression with the phrase: <b>That which I eat of yours, or: That which I do not eat of yours,</b> he has not expressed a vow and the food remains <b>permitted.</b> However, if he says: <b>That which I eat of yours</b> shall be considered <b><i>laḥullin</i>,</b> i.e., not non-sacred, but rather consecrated, the food is <b>forbidden.</b> If he says: <b>That which I do not eat of yours</b> shall be considered <b><i>laḥullin</i>,</b> the other individual’s food remains <b>permitted</b> to him.
+
+### Part 2
+The Gemara analyzes this <i>baraita</i>: <b>Who is</b> the author of <b>the first clause</b> of the <i>baraita</i>? <b>It is Rabbi Meir, who does not hold</b> that <b>from a negative</b> statement <b>you</b> can <b>infer a positive</b> statement. Consequently, even if one said: That which I do not eat of yours shall be considered non-sacred, that does not indicate that what he does eat shall be considered consecrated.
+
+### Part 3
+However, <b>say the latter clause</b> of that <i>baraita</i>: If one says: <b>That which I will not eat of yours</b> shall be considered <b><i>laḥullin</i>,</b> the other individual’s food remains <b>permitted</b> to him. <b>But didn’t we learn</b> in a mishna (13a) that if one says: That which <b>I will not eat of yours</b> shall be considered <b><i>lakorban</i>, Rabbi Meir prohibits</b> him from eating food belonging to the other individual? <i>Lakorban</i> apparently means <i>la korban</i>, it is not an offering. The reason for this opinion is that his statement indicates that what he does not eat is not an offering, but what he does eat shall be considered an offering. This <b>poses a difficulty for us</b> because Rabbi Meir does <b>not</b> hold that <b>from a negative</b> statement <b>you</b> can <b>infer a positive</b> statement.
+
+### Part 4
+<b>And</b> to answer this difficulty, <b>Rabbi Abba said: It is as though he said: It shall be for an offering [<i>lekorban</i>],</b> and <b>therefore I will not eat</b> that which is <b>yours. Here too,</b> when he said: That which I will not eat of yours shall be considered <i>laḥullin</i>, <b>this is what he said to him: It shall not be non-sacred,</b> and <b>therefore I will not eat</b> that which is <b>yours.</b> Consequently, the vow should take effect even according to Rabbi Meir; why does the <i>baraita</i> rule that the vow does not take effect and the food remains permitted?
+
+### Part 5
+The Gemara answers: <b>This <i>tanna</i></b> of the <i>baraita</i> <b>holds in accordance with</b> the opinion of <b>Rabbi Meir in one</b> case <b>and disagrees with his</b> opinion <b>in another. He holds in accordance with his</b> opinion <b>in one</b> case, in <b>that he does not hold that from a negative</b> statement <b>you</b> can <b>infer a positive</b> statement. <b>And he disagrees with his</b> opinion <b>in another</b> case, i.e., <b>in</b> the case of <b>an offering.</b> This <i>tanna</i> holds that if one says: That which I will not eat of yours shall be considered <i>lakorban</i>, he does not mean: It is to be considered an offering and therefore I will not eat from that which is yours. Similarly, in the case in the <i>baraita</i>, the <i>tanna</i> does not hold that the individual means to say: It shall not be non-sacred and therefore I will not eat that which is yours. In order to effect a vow, one must express it clearly.
+
+### Part 6
+<b>Rav Ashi said:</b> The apparent contradiction between the <i>baraita</i> and the mishna can be resolved in a different manner. <b>This</b> case in the <i>baraita</i> is <b>where he said:</b> That which I will not eat of yours shall be considered <b>as non-sacred, and that</b> case, where it is forbidden, in accordance with Rabbi Meir’s ruling in the mishna, is <b>where he said:</b> That which I will not eat of yours should <b>not</b> be considered <b>as non-sacred, which indicates: It shall not be</b> considered <b>non-sacred</b> but <b>rather like an offering,</b> and therefore I will not eat it.
+
+### Part 7
+§ It is stated in the mishna that if one says that a food item shall be considered not <b>ritually pure, or</b> if he said the food shall be considered an offering that has become <b>ritually impure, left over [<i>notar</i>], or <i>piggul</i>,</b> i.e., an offering that was sacrificed with the intent to consume it after its appointed time, <b>it is forbidden. Rami bar Ḥama raises a dilemma:</b> If one said with regard to a particular item: <b>This</b> is prohibited <b>to me</b> like <b>the meat of peace-offerings after the sprinkling of</b> their <b>blood, what is</b> the <i>halakha</i>? Is this an effective vow, which prohibits the item?
+
+### Part 8
+The Gemara responds: <b>If he said</b> it <b>with this formulation, he is associating</b> the object of his vow <b>with a permitted</b> item, as the meat of peace-offerings is permitted to be eaten after the blood is sprinkled on the altar. Consequently, the declaration does not express a vow. <b>Rather,</b> it is a case <b>where he places the meat of peace-offerings</b> following the sprinkling of the blood in one place, <b>and he places</b> an item <b>that is permitted next to it. And he says: This is like that.</b> In this case, <b>what</b> is the <i>halakha</i>? <b>Is he associating</b> the object of his vow <b>with the original</b> forbidden status of the peace-offering before the blood is sprinkled, <b>or is he associating</b> the object of his vow <b>with the</b> current <b>permitted</b> status of the peace-offering?
+
+### Part 9
+To resolve this question, <b>Rava said: Come</b> and <b>hear</b> a proof from the mishna: If he said the food shall be considered an offering that has become <b><i>notar</i> or <i>piggul</i>,</b> i.e. an offering that was sacrificed with the intent to consume it after its appointed time, it is forbidden.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

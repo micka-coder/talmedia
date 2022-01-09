@@ -1,0 +1,36 @@
+
+### Part 1
+<b>And</b> as the <b><i>ḥalla</i></b> of this kneaded, untithed dough is in a state of uncertain purity, its status is <b>suspended:</b> It is <b>neither eaten</b> like ritually pure <i>ḥalla</i>, <b>nor</b> is it <b>burned</b> like impure <i>ḥalla</i>. <b>With regard to which</b> uncertainty did <b>they state</b> this <i>halakha</i>? <b>With regard to <i>ḥalla</i></b> of <b>uncertain</b> status. The Gemara asks: <b>What</b> is the meaning of the concept of <b><i>ḥalla</i></b> of <b>uncertain</b> status? This apparently indicates a scenario of possible ritual impurity that applies specifically to <i>ḥalla</i>, not to non-sacred food.
+
+### Part 2
+<b>Abaye and Rava both say: One should not say</b> that <b>we learned</b> this case of <i>ḥalla</i> of uncertain status among the cases of equal <b>proofs,</b> i.e., an unresolvable uncertainty, <b>such as</b> the case of <b>two paths,</b> where someone walked down one of two paths, one of which was ritually impure and the other ritually pure, and he does not remember which one he walked down. <b>As there,</b> even <b>regular non-sacred</b> food is <b>also rendered</b> ritually <b>impure</b> due to uncertainty.
+
+### Part 3
+<b>Rather,</b> the uncertainty referred to here is similar to the less likely case <b>of leaning, as we learned</b> in a mishna (<i>Zavim</i> 3:2): In a case of <b>a <i>zav</i> and a ritually pure</b> person <b>who were unloading</b> a package <b>from a donkey or</b> who were <b>loading</b> a package onto a donkey, <b>when their package</b> is <b>heavy</b> the pure person is rendered <b>impure,</b> as perhaps the <i>zav</i> leaned on him while they handled the package together. If <b>their package</b> is <b>light,</b> he remains <b>pure. And</b> in <b>all those</b> cases, he remains ritually <b>pure</b> even if he is one of the <b>members of a synagogue</b> whose congregants handle non-sacred food according to the standards of sacrificial food, as this is not a true case of a <i>zav</i> moving a pure person. <b>But</b> he is <b>impure with regard to</b> matters involving <b><i>teruma</i>,</b> by rabbinic law.
+
+### Part 4
+The Gemara asks: <b>And is non-sacred</b> food <b>that is untithed with regard to</b> the obligation to separate <b><i>ḥalla</i></b> really <b>considered like <i>ḥalla</i></b> to the extent that it is rendered impure even in a case of leaning? <b>But isn’t it taught</b> in a <i>baraita</i>: With regard to <b>a woman who immersed that day</b> and is waiting for nightfall for the purification process to be completed, she may separate <i>ḥalla</i>: <b>She may knead the dough, and separate its <i>ḥalla</i> from it, and place</b> the separated dough <b>into a wicker basket or a wooden board [<i>be’anḥuta</i>], and</b> subsequently she may <b>bring</b> it <b>near</b> the rest of the dough, <b>and</b> she may then <b>designate it</b> <i>ḥalla</i> <b>by name.</b>
+
+### Part 5
+The <i>baraita</i> continues: The reason that this is allowed, despite her impurity, is <b>because</b> the dough <b>is</b> impure by <b>third</b>-degree ritual impurity, <b>and</b> an item that has <b>third</b>-degree impurity is considered <b>pure with regard to non-sacred</b> food. The Gemara concludes its question: <b>And if you say</b> that <b>non-sacred</b> food <b>that is untithed with regard to</b> the obligation to separate <b><i>ḥalla</i></b> is <b>considered like <i>ḥalla</i>,</b> then she should <b>render it impure</b> with her touch, just as she would render actual <i>ḥalla</i> impure.
+
+### Part 6
+<b>Abaye says:</b> With regard to <b>any</b> item <b>that</b> when it is <b>definitely</b> impure <b>renders non-sacred</b> food <b>impure,</b> as in the case of the <i>zav</i>, the Sages <b>issued a decree</b> that <b>its uncertain</b> impurity should also render non-sacred food items impure, <b>due to</b> its status as <b>non-sacred</b> food <b>that is untithed with regard to <i>ḥalla</i>. But</b> with regard to <b>this</b> case of <b>one who immersed that day, since</b> even when she is <b>definitely</b> impure she <b>does not render non-sacred food impure, they did not issue a decree</b> that she should render that dough impure <b>due to</b> its status as <b>non-sacred</b> food <b>that is untithed with regard to <i>ḥalla</i>.</b>
+
+### Part 7
+The Gemara asks: <b>But</b> what about the twenty-four-hour <b>period</b> of retroactive impurity <b>of a menstruating woman? As a definitely</b> impure menstruating woman <b>renders non-sacred</b> food <b>impure and</b> nevertheless with regard to untithed dough the Sages <b>did not issue a decree</b> to treat <b>her uncertain</b> impurity as definite impurity <b>due to</b> the dough’s status as <b>non-sacred</b> food <b>that is untithed with regard to <i>ḥalla</i>.</b>
+
+### Part 8
+The Gemara cites its source for this claim: <b>As the Master said: Rav Shmuel bar Rav Yitzḥak received</b> from Rav Naḥman: The retroactive impurity of a menstruating woman transmits impurity <b>to non-sacred</b> food items <b>that were prepared according to</b> the standards of <b>purity of sacrificial</b> food, <b>but not to non-sacred</b> food items <b>that were prepared</b> according to the standards of <b>purity of <i>teruma</i>.</b> It is assumed that the level of purity required for non-sacred food items prepared according to the standards required of <i>teruma</i> is the same as that of dough from which <i>ḥalla</i> has not been separated, i.e., it is not treated as real <i>ḥalla</i>, which is rendered impure by her retroactive twenty-four-hour period of impurity.
+
+### Part 9
+The Gemara answers: The level of purity required for non-sacred food items that were prepared according to the standards of purity of <i>teruma</i> is actually lower than the level required for dough from which <i>ḥalla</i> has not been separated. The reason is that <b>there,</b> in the case of non-sacred food items, there is <b>no</b> actual <b><i>teruma</i> mixed in it.</b> By contrast, <b>here,</b> in the case of untithed dough, there is <b><i>teruma</i>,</b> i.e., <i>ḥalla</i>, <b>mixed in it,</b> which will eventually be separated from this dough.
+
+### Part 10
+<b>If you wish, say</b> instead: <b>Leave</b> aside the twenty-four-hour <b>period</b> of retroactive impurity of a menstruating woman, as it applies <b>by rabbinic law.</b> One cannot raise a difficulty against the principle that untithed dough is treated with the same level of purity as <i>ḥalla</i> from the case of the retroactive impurity of a menstruating woman, since that retroactive impurity is a rabbinic decree, and therefore there is more room for leniency.
+
+### Part 11
+<strong>MISHNA:</strong> <b>Rabbi Eliezer says:</b> Unlike the women with regard to whom it was taught that they transmit impurity retroactively, there are <b>four women</b> who discern menstrual blood and <b>their time is sufficient,</b> i.e., they transmit impurity only from the moment that they saw the blood: <b>A virgin, a pregnant woman, a nursing woman, and an elderly woman. Rabbi Yehoshua says: I heard</b> this <i>halakha</i> from my teachers <b>only</b> with regard to <b>a virgin,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

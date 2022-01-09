@@ -1,0 +1,36 @@
+
+### Part 1
+<b>and</b> then that person <b>says: They were purchased</b> and that is why they are <b>in my possession,</b> he is <b>not deemed credible. And we said</b> this <b>only</b> with regard to items taken from <b>a homeowner who is not apt to sell his items; but</b> with regard to <b>a homeowner who is apt to sell his items,</b> the one taking the items is <b>deemed credible. And even</b> with regard to a homeowner <b>who is not apt to sell his items, we said</b> that the one carrying the items is not deemed credible <b>only</b> with regard to <b>items that are not typically concealed; but</b> with regard to <b>items that are typically concealed,</b> he is <b>deemed credible.</b>
+
+### Part 2
+<b>And even</b> with regard to items <b>that are not typically concealed, we said</b> that he is not deemed credible <b>only</b> with regard to <b>a person who is not</b> generally <b>secretive, but</b> with regard to <b>a person who is</b> generally <b>secretive, that is his manner,</b> i.e., he would be likely to conceal items beneath his clothing, and he is deemed credible. <b>And we said</b> this <b>only</b> when <b>this</b> one, the homeowner, <b>says:</b> The items are <b>borrowed, and that</b> one who took the items, <b>says:</b> They are <b>purchased, but in</b> a case where the homeowner claims that the items are <b>stolen,</b> it <b>is not in his</b> power to have his accusation accepted, as <b>we do not presume a person to</b> be <b>a thief.</b>
+
+### Part 3
+Furthermore, <b>we said</b> that the one who claims he purchased the items is not deemed credible <b>only with regard to items that are typically lent or rented,</b> where the homeowner’s claim that they must now be returned is more reasonable; <b>but</b> for <b>items that are not typically lent or rented,</b> the person who took them is <b>deemed credible. As Rav Huna bar Avin sent</b> a ruling to the Sages: With regard to <b>items that are typically lent or rented</b> that someone took <b>and said: They were purchased</b> and that is why they are <b>in my possession, he is not deemed credible.</b> This is <b>like that</b> incident <b>where Rava</b> ruled to <b>expropriate fabric scissors and a book of <i>aggada</i> from orphans</b> whose father had taken them, as they were <b>items that are typically lent or rented.</b>
+
+### Part 4
+The oath of one who was robbed can be taken by others as well. <b>Rava says: Even a watchman</b> at the house can <b>take</b> the <b>oath,</b> and <b>even the wife of the watchman</b> can <b>take</b> the <b>oath. Rav Pappa asks:</b> With regard to the employer’s regular <b>hired worker or his</b> regular <b>harvester,</b> who are not appointed to safeguard the employer’s property, <b>what</b> is the <i>halakha</i>? The Gemara responds: The question <b>shall stand</b> unresolved.
+
+### Part 5
+<b>Rav Yeimar said to Rav Ashi:</b> If one <b>states a claim against another</b> that he left his house <b>with a silver cup</b> and is liable to return it, <b>what</b> is the <i>halakha</i>? Rav Ashi replied: <b>We see if</b> the owner of the house <b>is an affluent person, or</b> if <b>he is a trustworthy person with whom people deposit</b> their valuables, as those are people who would typically have a silver cup. If the homeowner is in these categories <b>he takes an oath and receives</b> payment of his claim; <b>but if</b> he is <b>not,</b> he does <b>not</b> receive the benefit of taking an oath in order to prove his claim.
+
+### Part 6
+§ The mishna teaches: <b>How</b> does this <i>halakha</i> apply to <b>one who was injured?</b> If witnesses testified about the injured person that he entered into the domain of the defendant whole, but left injured, the injured party may take an oath and receive compensation. <b>Rav Yehuda says</b> that <b>Shmuel says:</b> The Sages <b>taught</b> that he needs to take an oath in order to receive compensation <b>only</b> if he was injured <b>in a place where he is able to injure himself, but</b> if he was injured <b>in a place where he is unable to injure himself, he receives</b> compensation <b>without</b> taking <b>an oath.</b>
+
+### Part 7
+The Gemara challenges: <b>And let us be concerned</b> that <b>perhaps he scraped against a wall</b> and caused the injury himself. The Gemara explains: <b>Rabbi Ḥiyya teaches</b> that the mishna is referring to a case <b>where,</b> for example, <b>he has a bite on his back or on his elbows,</b> which must have been caused by someone else. The Gemara challenges: <b>And perhaps a different</b> person <b>did</b> it <b>to him,</b> and not the defendant. The Gemara explains: This is a case <b>where</b> there <b>is no other</b> person with him besides the defendant.
+
+### Part 8
+§ The mishna teaches: How does this <i>halakha</i> apply to <b>one whose opposing</b> litigant is <b>suspect</b> with regard to the taking of an oath and therefore is not permitted to take the oath? One is suspected if he had been found to have taken a false oath, whether it was an oath of testimony or an oath on a deposit, which are prescribed by Torah law, <b>or even an oath</b> taken <b>in vain.</b> The Gemara asks: For <b>what</b> reason does the mishna emphasize: <b>Even an oath</b> taken <b>in vain?</b>
+
+### Part 9
+The Gemara explains: The mishna <b>is speaking</b> utilizing the style of: <b>It is not necessary. It is not necessary</b> to state that one who is suspected of falsifying <b>these</b> oaths is disqualified from taking oaths, <b>as they entail the denial of a monetary</b> claim, i.e., due to the false oath someone incurs financial loss, <b>but</b> it is necessary to state that <b>even that</b> oath, an oath taken in vain, <b>which</b> involves <b>merely the repudiation of one’s verbal</b> commitment, nevertheless grants one the status of a person who is <b>not credible</b> and who is disqualified from taking oaths.
+
+### Part 10
+The Gemara suggests: <b>And let</b> the <i>tanna</i> <b>also teach</b> that falsifying <b>an oath on an utterance,</b> which is also an oath without monetary consequences, disqualifies one from taking oaths. The Gemara responds: <b>When</b> the <i>tanna</i> <b>teaches</b> which types of false <b>oaths</b> disqualify a person, it includes only oaths with regard to <b>which when one takes the oath, he is</b> at that time <b>falsely taking the oath. But</b> with regard to <b>an oath on an utterance,</b> such as an oath that he will eat a specific fruit that day, <b>where it can be said that he took the oath with true</b> intention and intended to eat that fruit, but ultimately failed to do so, the <i>tanna</i> <b>does not teach,</b> as one who does not fulfill such an oath retains his credibility to take oaths, since he did not consciously lie.
+
+### Part 11
+The Gemara raises a difficulty: It <b>works out well</b> to make this distinction for one who is liable for an oath on an utterance like: <b>I will eat, or: I will not eat,</b> where it is possible that he was not lying when he took the oath. But with regard to oaths about the past like: <b>I ate, or: I did not eat, what can be said,</b> since he certainly took a false oath? The Gemara answers: <b>Teach</b> the mishna, i.e., understand it to mean: <b>An oath</b> taken <b>in vain</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

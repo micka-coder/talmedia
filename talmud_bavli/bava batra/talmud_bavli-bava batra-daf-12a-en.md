@@ -1,0 +1,48 @@
+
+### Part 1
+<b>A house</b> that has <b>a sealed</b> entrance still <b>has</b> the <b>four cubits</b> adjoining that entrance because the entrance can be reopened. If <b>one broke its doorposts</b> and sealed the entrance, the entrance is completely negated, and <b>it does not have</b> the <b>four cubits</b> adjoining it.
+
+### Part 2
+There is a similar distinction with regard to the <i>halakhot</i> of ritual impurity. There is a <i>halakha</i> that a house in which there is a corpse transmits ritual impurity only through its doorways. The <i>baraita</i> continues: <b>A grave whose entrance is sealed does not render all its surroundings ritually impure;</b> the ritual impurity extends only to the area opposite the entrance. But if <b>one broke its doorposts and sealed it,</b> it is no longer considered an entrance, and the grave <b>renders all its surroundings ritually impure,</b> because impurity that has no egress bursts from all sides. Similarly, <b>a house</b> in which there is a corpse that has <b>a sealed</b> entrance <b>does not render all its surroundings ritually impure.</b> But if <b>one broke its doorposts,</b> it is no longer considered an entrance, and the corpse <b>renders all of its surroundings ritually impure.</b>
+
+### Part 3
+<b>Rabba bar bar Ḥana says</b> that <b>Rabbi Yoḥanan says:</b> With regard to <b>alleyways that are open to another city,</b> and through which one would ordinarily travel to reach that other city, if <b>the residents of the city</b> in which the alleyways are located <b>wished to block them</b> off, <b>the residents of the city</b> into which the alleyways open <b>can prevent them</b> from doing so, because they have a right to reach their city via those routes. The Gemara explains: <b>It is not necessary</b> to state <b>that they can prevent</b> them from blocking the alleyways <b>when there is no alternative route</b> to reach their town, <b>but they can prevent</b> them from blocking the alleyways <b>even when there is an alternative route.</b>
+
+### Part 4
+This is <b>due to</b> the reasoning that <b>Rav Yehuda</b> says that <b>Rav says. As Rav says:</b> One is <b>prohibited from ruining a path that the public has established</b> as a public thoroughfare, i.e., steps may not be taken to prevent people from using it. This is in accordance with the statement <b>of Rav Giddel, as Rav Giddel says:</b> If <b>the public has chosen a route for itself</b> and they walk on it, <b>what they have chosen is chosen,</b> and it cannot be taken away from them.
+
+### Part 5
+<b>Rav Anan says</b> that <b>Shmuel says:</b> With regard to <b>alleyways that open onto a public thoroughfare,</b> if <b>the residents of the alleyways wished to put up doors</b> at the entrance to their alleyways, <b>the people</b> who use <b>the public thoroughfare can prevent them</b> from doing so.
+
+### Part 6
+Some Sages <b>understood from this</b> that <b>this statement</b> applies specifically to the area <b>within four cubits</b> of the public thoroughfare, <b>in accordance with</b> the statement <b>that Rabbi Zeira</b> says that <b>Rav Naḥman says, as Rabbi Zeira says</b> that <b>Rav Naḥman says: The four cubits</b> in an alleyway <b>that are adjacent to the public thoroughfare are considered like the public thoroughfare</b> itself. Consequently, this area has the <i>halakha</i> of a public thoroughfare. <b>But</b> that <b>is not so. There,</b> the ruling of Rav Naḥman was stated <b>with regard to the issue of ritual impurity,</b> with regard to which only the first four cubits of the alleyway are considered like the public thoroughfare. <b>But here,</b> with regard to doors set up at the entrance to the alleyway, <b>sometimes the public thoroughfare becomes crowded with people and they enter far</b> into the alleyway, even farther than four cubits.
+
+### Part 7
+§ The mishna teaches: <b>And</b> the court does <b>not</b> divide a jointly owned <b>field unless there is</b> space <b>in it</b> to plant <b>nine <i>kav</i></b> of seed <b>for this one and nine <i>kav</i></b> of seed <b>for that one.</b> Rabbi Yehuda says: The court does not divide a field unless there is space in it to plant nine half-<i>kav</i> of seed for this one and nine half-<i>kav</i> of seed for that one. The Gemara comments: <b>And</b> they <b>do not disagree</b> with regard to the fundamental <i>halakha</i>, as this <b>Sage</b> ruled <b>in accordance with</b> the custom of <b>his locale, and</b> that <b>Sage</b> ruled <b>in accordance with</b> the custom of <b>his locale.</b> In Rabbi Yehuda’s locale, even a smaller parcel of land was considered a viable field.
+
+### Part 8
+The Gemara asks: The mishna was taught in Eretz Yisrael; <b>what</b> practice should be followed <b>in Babylonia? Rav Yosef said:</b> In Babylonia, a parcel of land the size of which is <b>the area of a day’s plowing</b> is considered a field; if each of the parties will receive less than that, the field should not be divided.
+
+### Part 9
+The Gemara asks: <b>What</b> is meant by a parcel of land the size of which is <b>the area of a day’s plowing? If</b> it means <b>a day’s</b> plowing in <b>the planting</b> season, i.e., the winter, when it is easy to plow, since the earth has already been turned over at the end of the summer, the field will <b>not</b> require <b>two</b> full <b>days</b> of plowing in <b>the plowing</b> season, i.e., at the end of the summer, when it is more difficult to plow, since the earth is hard and dry. In that case, he will have to pay his summer plowman two days’ wages for less than two days of work. And <b>if</b> it means <b>a day’s</b> plowing in the <b>plowing</b> season, the field will <b>not</b> require a full <b>day</b> of plowing in the <b>planting</b> season. In that case, he will have to pay his winter plowman a full day’s wages for less than a full day of work.
+
+### Part 10
+The Gemara answers: <b>If you wish, say</b> it is referring to <b>a day’s</b> plowing in the <b>plowing</b> season, and the field will still require a full day of plowing in the planting season <b>since he plows</b> once before he sows the seeds <b>and</b> then he <b>repeats</b> the plowing after the seeds are sown. <b>And if you wish, say</b> instead that it is referring to <b>a day’s</b> plowing in the <b>planting</b> season, and the field will in fact require two full days of plowing in the plowing season if it is <b>rocky ground,</b> on which plowing takes longer.
+
+### Part 11
+In connection with this discussion, the Gemara clarifies the conditions under which <b>a cistern,</b> from which its joint owners draw their water, is divided. <b>Rav Naḥman said:</b> It should be divided only if each party will receive <b>the volume of</b> water needed for <b>a day’s irrigation</b> work. As for <b>an orchard, Shmuel’s father says:</b> It should be divided only if each party will receive <b>an area</b> large enough to plant <b>three <i>kav</i>,</b> one-third of the measure required for a field.
+
+### Part 12
+<b>That</b> opinion <b>is also taught</b> in a <i>baraita</i>: With regard to <b>one who says to another: I am selling you part of a vineyard,</b> without specifying how much of the vineyard, <b>Sumakhos says: He may not</b> give him <b>less than an area</b> large enough to plant <b>three <i>kav</i>. Rabbi Yosei said: These are nothing other than words of prophecy,</b> i.e., I do not see the logic behind this statement, and it is as if based on prophecy and a heavenly decree, as the seller did not mention any area, but rather spoke in the most general of terms: Part of a vineyard. The Gemara asks: <b>What</b> is the measure with regard to this matter <b>in Babylonia? Rava bar Kisna said: Three rows [<i>atzyata</i>] of twelve vines, which is</b> the area <b>a person can hoe in</b> a single <b>day.</b>
+
+### Part 13
+§ In connection with Rabbi Yosei’s statement that Sumakhos’s words are nothing but words of prophecy, the Gemara reports that <b>Rabbi Avdimi from Haifa says: From the day that the Temple was destroyed prophecy was taken from the prophets and given to the Sages.</b> The Gemara expresses astonishment: <b>Is that to say</b> that <b>a Sage is not</b> fit to be <b>a prophet?</b> Rabbi Avdimi seems to say that these are two distinct categories of people. The Gemara explains: <b>This is what</b> Rabbi Avdimi <b>is saying: Even though</b> prophecy <b>was taken from the prophets, it was not taken from the Sages.</b>
+
+### Part 14
+<b>Ameimar said: And a Sage is greater than a prophet, as it is stated: “And a prophet has a heart of wisdom”</b> (Psalms 90:12), i.e., he is wise. When comparisons are drawn, <b>who is compared to whom? You must say</b> that <b>the lesser is compared to the greater.</b> Here too, prophecy is compared to wisdom, thus indicating that wisdom is greater than prophecy.
+
+### Part 15
+<b>Abaye said: Know</b> that this is so, that the Sages still enjoy the prophetic gift, <b>as a great man makes a statement</b> with regard to a point of <i>halakha</i> <b>and</b> the same statement <b>is</b> then <b>cited in the name of a different great man in accordance with his</b> statement, indicating that the Sages makes their statements by way of prophecy. <b>Rava</b> disagreed and <b>said: And what is the difficulty</b> with explaining this? <b>Perhaps they were born under the same constellation,</b> and since they are similar in their traits, they reach the same conclusions. <b>Rather, Rava said: Know</b> that this is so, <b>as a great man makes a statement and</b> the same statement <b>is</b> then <b>cited</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,66 @@
+
+### Partie 1
+comme en egorgeant intentionnellement l'offrande idolatre <b>il est devenu un serviteur du culte des idoles.</b>
+
+### Partie 2
+<b>Rav Nahman a dit : D'ou est-ce que je dis</b> que meme un pretre qui egorge intentionnellement une offrande idolatre est neanmoins apte a servir dans le Temple s'il se repent ? <b>Comme il est enseigne</b> dans un <i>baraita</i> : En ce qui concerne <b>un pretre qui a servi</b> dans le culte des <b>idoles et s'est repenti, son offrande</b> dans le Temple <b>est un arome agreable</b> au Seigneur et est acceptable.
+
+### Partie 3
+Le Rav Nahman clarifie : <b>De quelle</b> maniere a-t-il servi au culte des idoles ? <b>Si nous disons</b> qu'il a servi dans le culte des idoles <b>involontairement, que</b> signifie la <i>baraita</i> quand elle dit : <b>Et s'est repenti ? Il est deja repenti,</b> puisqu'il n'a jamais eu l'intention de pecher en premier lieu. <b>Au contraire,</b> il est <b>evident</b> que le <i>baraita</i> fait reference a un cas <b>d'adoration intentionnelle</b> d'une idole. <b>Et si</b> le <i>baraita</i> fait reference a <b>l'aspersion</b> du sang d'une offrande idolatre, <b>quand il se repent, qu'en est-il ? N'a-t-il pas accompli</b> un <b>service idolatre,</b> se disqualifiant ainsi de toute facon pour servir dans le Temple ? <b>Ne s'agit-il pas plutot</b> de faire reference <b>a</b> l'<b>abattage</b> d'une offrande idolatre ? A l'evidence, meme si le pretre l'a egorgee intentionnellement, des lors qu'il se repent, il est apte a servir dans le Temple.
+
+### Partie 4
+<b>Et</b> quant a <b>Rav Sheshet, il</b> aurait pu <b>vous dire</b> que <b>en fait</b> la <i>baraita</i> fait reference <b>a l'abattage involontaire</b>. <b>Et ceci</b> est ce que le <i>baraita</i> <b>dit : Si</b> le pretre <b>se repent des le depart, comme lorsqu'il servait</b> dans le culte des idoles <b>il servait involontairement,</b> alors <b>son offrande est un arome agreable</b> au Seigneur et est acceptable. <b>Mais si ce n'est pas le cas,</b> c'est-a-dire qu'il a egorge une offrande idolatre intentionnellement, <b>son</b> <b>offrande</b> ulterieure dans le Temple n'est <b>pas un arome agreable</b> au Seigneur.
+
+### Partie 5
+§ La Guemara enumere d'autres desaccords similaires entre Rav Nahman et Rav Sheshet. Dans un cas ou un pretre <b>s'est incline devant</b> un objet d'adoration <b>idolique, Rav Nahman dit :</b> S'il se repent par la suite et sert dans le Temple, <b>son offrande est un arome agreable</b> au Seigneur. <b>Et Rav Sheshet dit : Son offrande n'est pas un arome agreable</b> au Seigneur. Dans le cas ou un pretre <b>reconnait</b> un objet d'adoration <b>idolique</b> comme une divinite, <b>Rav Nahman dit :</b> S'il se repent ensuite et sert dans le Temple, <b>son offrande est un arome agreable</b> au Seigneur. <b>Et Rav Sheshet dit : Son offrande n'est pas un arome agreable</b> au Seigneur.
+
+### Partie 6
+Apres avoir enumere quatre differends similaires entre Rav Nahman et Rav Sheshet, a savoir, concernant un pretre qui a asperge involontairement le sang d'une offrande idolatre, un pretre qui a egorge intentionnellement une offrande idolatre, un pretre qui s'est incline devant une idole, et un pretre qui a reconnu une idole comme une divinite, la Gemara explique : <b>Et</b> il etait <b>necessaire</b> d'enseigner le differend en ce qui concerne ces quatre cas. <b>Car, si</b> les Sages ne nous avaient <b>enseigne</b> que <b>ce premier</b> cas, ou un pretre asperge le sang d'une offrande idolatre a son insu, on aurait pu penser que seulement <b>dans ce</b> cas, <b>le Rav Sheshet dit</b> que le service ulterieur du pretre dans le Temple est disqualifie, <b>parce qu'il a effectue un service pour</b> l'idolatrie qui est considere comme un rite sacrificiel dans le Temple. <b>Mais</b> dans un cas ou le pretre a simplement effectue un <b>abattage, puisqu'il n'a pas effectue un service pour</b> l'idolatrie qui est un rite sacrificiel dans le Temple, il y a lieu de <b>savoir</b> que Rav Sheshet <b>accepte</b> l'opinion de <b>Rav Nahman.</b>
+
+### Partie 7
+<b>Et si</b> les Sages nous avaient <b>enseignes</b> uniquement le differend concernant un pretre effectuant intentionnellement un <b>abattage</b> pour une offrande idolatre, on aurait pu penser que Rav Sheshet dit que le service ulterieur du pretre dans le Temple est disqualifie <b>parce qu'il a effectue</b> un <b>sacrifice pour</b> l'idolatrie. <b>Mais</b> s'il s'est contente de <b>s'incliner</b> devant l'idole, <b>puisqu'il n'a pas accompli</b> un <b>sacrifice pour</b> l'idolatrie, il est possible de <b>savoir</b> que Rav Sheshet ne <b>pas</b> disqualifie le service ulterieur du pretre dans le Temple. Par consequent, il etait <b>necessaire</b> d'enseigner egalement ce cas.
+
+### Partie 8
+<b>Et si</b> les Sages nous avaient <b>enseignes</b> uniquement le cas d'un pretre <b>s'inclinant</b> devant une idole, on aurait pu penser que dans ce cas, Rav Sheshet dit que le service ulterieur du pretre dans le Temple est disqualifie <b>parce qu'il a accompli une action pour</b> l'idolatrie. <b>Mais</b> s'il a seulement <b>reconnu</b> l'idole comme une divinite, <b>ce qui est une simple parole,</b> il y a de la place pour <b>dire</b> que Rav Sheshet ne disqualifie <b>pas</b> le service ulterieur du pretre dans le Temple. La Guemara conclut : Par consequent, il etait <b>necessaire</b> d'enseigner ce cas egalement.
+
+### Partie 9
+§ La mishna enseigne : <b>Et il va sans dire,</b> si les pretres ont servi pour <b>quelque chose d'autre,</b> un euphemisme pour l'idolatrie, ils sont disqualifies du service dans le Temple. La Gemara commente : <b>D'apres</b> le fait <b>qu'il est dit : Inutile de dire,</b> s'ils ont servi pour <b>quelque chose d'autre, par deduction, le temple d'Onias n'est pas</b> un temple d'<b>adoration d'idoles,</b> mais plutot un temple consacre au culte de Dieu.
+
+### Partie 10
+<b>Il est enseigne</b> dans un <i>baraita</i> <b>comme celui qui dit</b> que <b>le temple d'Onias n'est pas</b> un temple d'<b>adoration d'idoles. Comme il est enseigne :</b> Durant <b>l'annee ou Shimon HaTzaddik est mort, il a dit a</b> ses associes : <b>Cette annee, il va mourir,</b> en faisant euphemiquement reference a lui-meme. <b>Ils lui ont repondu : D'ou le sais-tu ? </b>
+
+### Partie 11
+Shimon HaTzaddik <b>leur a dit : </b> Les annees precedentes, <b>chaque Yom Kippour,</b> en entrant dans le Saint des Saints, j'avais une vision prophetique dans laquelle <b>je serais rencontre par un vieil homme</b> qui etait <b>vetu de blanc, et</b> sa tete etait <b>enveloppee de blanc, et il entrerait</b> dans le Saint des Saints <b>avec moi, et il sortirait avec moi. </b> Mais <b>cette annee, j'ai ete rencontre par un vieil homme</b> qui etait <b>vetu de noir, et</b> sa tete etait <b>enveloppee de noir, et il est entre</b> dans le Saint des Saints <b>avec moi, mais il n'est pas reparti avec moi.</b> Shimon HaTzaddik a compris cela comme un signe que sa mort etait imminente.
+
+### Partie 12
+En effet, <b>apres la fete du pelerinage</b> de <i>Soukkot</i>, <b>il fut malade pendant sept jours et mourut. Et ses confreres pretres s'abstinrent de reciter la</b> <b>Benediction sacerdotale avec le</b> <b>nom ineffable</b> de Dieu.
+
+### Partie 13
+<b>Au moment de sa mort, il dit aux</b> Sages : <b>Onias, mon fils, servira</b> comme grand pretre <b>a ma place. Shimi,</b> Onias <b>frere, devint jaloux</b> de lui, <b>car</b> Shimi <b>etait de deux ans et demi plus age que</b> Onias. Shimi <b>dit a</b> Onias avec perfidie : <b>Viens et je t'apprendrai l'ordre du service</b> du grand pretre. Shimi <b>s'habilla</b> Onias <b>dans une tunique [<i>beunkeli</i>] et le ceignit d'un ruban [<i>betziltzul</i>]</b> en guise de ceinture, c'est-a-dire pas dans les vetements du Grand Pretre, et <b>le fit asseoir pres de l'autel.</b> Shimi <b>dit a ses collegues pretres : Regardez ce que cet</b> homme <b>a jure et accompli pour sa bien-aimee,</b> qu'il lui avait dit : <b>Le jour ou je servirai dans le grand sacerdoce, je porterai ta tunique et je ceindrai ton ruban.</b>
+
+### Partie 14
+<b>Les collegues pretres d'</b> Onias <b>voulaient le tuer</b> parce qu'il avait deshonore le service du Temple par ses vetements. Onias <b>s'eloigna</b> d'eux et ils coururent apres lui. Il se rendit a Alexandrie en Egypte, y construisit un autel et y sacrifia</b> des offrandes <b>dans le but d'adorer des idoles. Lorsque les Sages ont entendu parler de cette affaire, ils ont dit : Si cette</b> personne, Shimi, <b>qui n'est pas entree</b> dans la fonction de grand pretre, a agi avec <b>tant de jalousie</b>, <b>a plus forte raison</b> qu'une personne qui entre</b> dans une fonction prestigieuse se revoltera si cette fonction lui est retiree. C'est <b>la declaration de Rabbi Meir.</b> Selon Rabbi Meir, le temple d'Onias a ete construit pour le culte des idoles.
+
+### Partie 15
+<b>Rabbi Yehouda lui a dit :</b> L'<b>incident n'etait pas comme cela. Au contraire, Onias n'a pas accepte</b> le poste de Grand Pretre <b>parce que son frere Shimi avait deux ans et demi de plus que lui,</b> donc Shimi a ete nomme Grand Pretre. <b>Et meme ainsi,</b> bien qu'Onias lui-meme ait offert le poste a Shimi, <b>Onias etait jaloux de son frere Shimi.</b> Onias <b>dit a</b> Shimi : <b>Viens et je t'apprendrai l'ordre du service</b> du Grand Pretre. <b>Et</b> Onias <b>s'habilla</b> Shimi <b>d'une tunique et le ceignit d'un ruban et le placa pres de l'autel.</b> Onias <b>dit a ses collegues pretres : Regarde ce que cet</b> homme, Shimi, <b>a jure et accompli pour sa bien-aimee,</b> qu'il lui avait dit : <b>Le jour ou je servirai dans le grand sacerdoce, je porterai ta tunique et je ceindrai ton ruban.</b>
+
+### Partie 16
+<b>Ses collegues pretres voulaient tuer</b> Shimi. Shimi leur a alors <b>raconte tout l'incident,</b> qu'il avait ete trompe par son frere Onias, alors les pretres <b>voulaient tuer Onias.</b> Onias <b>s'est eloigne</b> <b>d'eux, et ils ont couru apres lui.</b> Onias <b>s'est dirige vers le palais du roi, et ils ont couru apres lui. Tous ceux qui le voyaient disaient : C'est lui, c'est lui,</b> et il ne pouvait pas s'echapper inapercu. Onias <b>se rendit a Alexandrie en Egypte, y construisit un autel et y sacrifia</b> des offrandes <b>sur celui-ci pour l'amour du Ciel. Comme il est dit : "En ce jour, il y aura un autel a l'Eternel au milieu du pays d'Egypte, et une colonne a sa frontiere, a l'Eternel"</b> (Isaie 19:19). Selon Rabbi Yehuda, le temple d'Onias etait dedie au culte de Dieu.
+
+### Partie 17
+<b>Et lorsque les Sages ont entendu parler de cette affaire, ils ont dit : Si celui-ci,</b> Onias, <b>qui a fui</b> le poste de Grand Pretre et l'a offert a son frere, a encore ete pris d'une <b>telle jalousie</b> au point de tenter de faire tuer Shimi, <b>a plus forte raison</b> celui qui veut acceder</b> a un poste prestigieux sera-t-il jaloux de celui qui occupe deja ce poste.
+
+### Partie 18
+§ En corollaire a la declaration des Sages concernant celui qui est jaloux et veut la position d'un autre, <b>il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yehoshua ben Perahya a dit : Initialement,</b> en reponse a <b>toute personne qui me dirait</b> : <b>S'elever a</b> la position de <i>Nasi</i>, <b>je l'attachais et le placais devant un lion</b> par colere pour sa suggestion. <b>Maintenant</b> que je suis devenu le <i>Nasi</i>, en reponse a <b>toute personne qui me dit de quitter</b> la position, <b>je</b> <b>jetterais une bouilloire [<i>kumkum</i>] d'eau bouillante</b> sur lui</b> par colere pour sa suggestion.
+
+### Partie 19
+Il est dans la nature humaine qu'apres avoir accede a une position prestigieuse, on ne souhaite pas la perdre. <b>Comme preuve</b> de ce principe, <b>Saul</b> a d'abord <b>fui de</b> la royaute, car il ne souhaitait pas etre roi, comme l'indique le verset : "Lorsqu'on le cherchait, on ne le trouvait pas"¦Voici qu'il s'est cache parmi les bagages" (IA Samuel 10:21""22). <b>Mais lorsqu'il est monte</b> a la royaute <b>il a essaye de tuer David,</b> qui, selon lui, tentait d'usurper son autorite (voir IA Samuel, chapitres 18""27).
+
+### Partie 20
+§ <b>Mar Kashisha, fils de Rav Hisda, dit a Abaye : Que fait Rabbi Meir de ce verset de Rabbi Yehuda ? </b> Puisque Rabbi Meir soutient que le temple d'Onias etait dedie au culte des idoles, comment explique-t-il le verset d'Isaie ?
+
+### Partie 21
+Abaye repondit a Mar Kashisha et dit que Rabbi Meir utilise ce verset <b>pour ce qui est enseigne</b> dans une <i>baraita</i> : <b>Apres la chute de Sennacherib,</b> le roi d'Assyrie qui assiegea Jerusalem (voir IIA Rois, chapitres 18""19), le roi <b>Hezekiah sortit</b> de Jerusalem <b>et trouva les</b> gentils <b>princes</b> que Sennacherib avait amenes avec lui de ses autres conquetes, <b>assis dans des carrosses [<i>bikronot</i>] d'or. Il leur fit jurer de ne pas adorer les idoles,</b> et ils accomplirent leur vœu, <b>comme il est dit</b> dans la prophetie d'Isaie sur l'Egypte : <b>"En ce jour-la, il y aura cinq villes dans le pays d'Egypte qui parleront la langue de Canaan</b>".
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,30 @@
+
+### Part 1
+<b>C'est Hadyab. La riviere de Gozan ; c'est Ginzak. Et les villes des Medes ; c'est Hamadan et ses environs. Et certains disent : C'est Nihar et ses environs.</b> La Gemara demande : <b>Quelles sont ses environs ? Shmuel dit : Kerakh, Mushkhei, Hidkei, et Domakya</b> sont les environs d'Hamadan. <Rabbi Yohanan a dit : Et tous sont pour la disqualification.</b> En d'autres termes, si quelqu'un de l'un de ces endroits souhaite se convertir, on craint qu'il soit un descendant d'un juif et donc un <i>mamzer</i>. Par consequent, ils sont tous disqualifies.
+
+### Partie 2
+Rav Yehouda poursuivit son recit : <b>Lorsque j'ai dit cela</b> <i>halakha</i>, qu'on s'inquiete des fiancailles de gentils de nos jours, <b>devant Shmuel, il m'a repondu :</b> Il ne faut pas s'en inquieter, car <b>votre fils issu d'une femme juive est appele votre fils,</b> c'est-a-dire, il herite sa lignee de vous, <b>et votre fils d'une femme gentille n'est pas appele votre fils,</b> mais <b>plutot son fils.</b> Par consequent, tous les enfants nes de juifs de femmes gentilles ne sont pas consideres comme des juifs, car leur lignee est determinee par leurs meres gentilles.
+
+### Partie 3
+La Gemara demande : <b>N'y a-t-il pas</b> des <b>filles</b> juives qui ont ete capturees par des Gentils, dont les enfants sont consideres comme des Juifs ? <b>Et Ravina dit : Apprends de cela</b> que <b>le fils de ta fille d'un Gentil est appele ton fils.</b> Si c'est le cas, les descendants de femmes juives capturees par des Gentils seraient effectivement des Juifs. La Guemara repond : Cela ne pose aucun souci, car il <b>est appris</b> comme une tradition <b>que les filles</b> des dix tribus <b>de cette generation sont devenues steriles</b> et n'ont donne naissance a aucune progeniture, alors que certains des hommes exiles des dix tribus ont epouse des Gentilles. Par consequent, tous les enfants qui y sont nes etaient des gentils.
+
+### Partie 4
+<b>Il y a</b> ceux <b>qui disent</b> que le Rav Yehouda a effectivement relate ce qui suit : <b>Lorsque j'ai dit cela</b> <i>halakha</i> <b>devant Shmuel, il m'a dit : Ils n'ont pas bouge de la,</b> le lieu ou ils ont delibere sur cette question, <b>jusqu'a ce qu'ils les aient rendus</b> tous, <b>y compris ceux qui se sont meles aux dix tribus dans differents endroits, <b>des gentils a part entiere.</b> Par consequent, il n'y a aucune inquietude que leurs fiancailles puissent avoir un quelconque effet, <b>comme il est dit : <b>Ils ont trahi l'Eternel, car ils ont engendre des enfants etrangers</b> (Osee 5:7).
+
+### Partie 5
+§ La Guemara relate : <b>Rav Yosef s'est assis derriere Rav Kahana, et Rav Kahana s'est assis devant Rav Yehuda, et il s'est assis et a dit</b> cette tradition : <b>Dans le futur, les Juifs etabliront un jour de Fete lorsque Tarmod sera detruit.</b> La Gemara demande : <b>Mais il a</b> deja <b>ete detruit.</b> La Gemara repond : <b>Ce</b> lieu qui a ete detruit <b>etait Tamud,</b> pas Tarmod. <b>Rav Ashi a dit : Tarmod est</b> le meme que <b>Tamud.</b> Cependant, la ville <b>est doublee.</b> En d'autres termes, lorsqu'elle <b>est detruite de ce cote, elle est installee de ce cote, et</b> lorsqu'elle <b>est detruite de ce cote, elle est installee de ce cote.</b> Par consequent, elle n'a pas encore ete entierement detruite.
+
+### Partie 6
+La Gemara relate : <b>Rav Hamnuna etait assis devant Ulla et se livrait</b> a l'etude de la <b><i>halakha</i>.</b> Ulla <b>dit</b> a son sujet : <b>Quel homme ; quel homme.</b> En d'autres termes : Quel grand homme est ce Rav Hamnuna. <b>Si seulement Harpanya n'etait pas sa ville,</b> car les habitants de ce lieu sont tous de lignee viciee, ce qui indique que la lignee de Rav Hamnuna est egalement viciee. Rav Hamnuna <b>avait honte.</b> Ulla <b>lui a dit : Ou donnes-tu l'argent pour</b> le paiement de la taxe <b>poll</b> ? <b>Il lui a dit :</b> Je le verse <b>a</b> la ville de <b>Pum Nahara,</b> car ma ville est soumise a l'impot de cette ville. <b>Il lui dit : Si c'est le cas, vous etes de Pum Nahara,</b> et non d'Harpanya, et votre lignee n'est manifestement pas viciee.
+
+### Partie 7
+§ La Gemara demande : <b>Quelle est</b> la signification du nom <b>Harpanya ? Rabbi Zeira repond :</b> Cela signifie <b>la montagne vers laquelle tous se tournent [<i>har shehakol ponin bo</i>].</b> En d'autres termes, c'est la destination de tous ceux qui n'ont pas pu trouver de femmes ailleurs, car la majorite de sa population est de lignee viciee. <b>Il est enseigne dans un <i>baraita</i> : Tous ceux qui ne connaissent pas leur famille ou leur tribu s'y tournent. Rava a dit : Ce</b> type de defaut est epouvantable et <b>est plus profond que le monde souterrain, comme il est dit : "Dois-je les racheter du pouvoir du monde souterrain ? Les racheterai-je de la mort ? " (Osee 13:14). Ce verset indique qu'il est possible d'etre ranconne et libere du monde souterrain, <b>alors que leur disqualification ne peut etre rectifiee.</b>
+
+### Partie 8
+La Gemara commente : <b>Ceux qui</b> sont <b>disqualifies de Harpanya</b> sont inaptes <b>en raison de la disqualification</b> des habitants <b>de</b> <b>Meishon,</b> voisins, qui etaient inaptes et se sont maries avec les residents de Harpanya. <b>Ces disqualifies de Meishon</b> sont inaptes <b>a cause de ceux disqualifies de Tarmod, et ceux disqualifies de Tarmod</b> sont disqualifies <b>a cause des serviteurs de Salomon.</b>
+
+### Partie 9
+La Gemara commente : <b>Et ceci</b> explique le dicton populaire <b>que les gens disent</b> a ce sujet : <b>Un grand epha et un petit epha,</b> qui sont tous deux des ustensiles imprecis qui ne peuvent pas etre utilises pour mesurer, <b>roulent vers le monde souterrain, et du monde souterrain a Tarmod, et de Tarmod a Meishon, et de Meishon a Harpanya.</b> La meme idee exprimee par les Sages en ce qui concerne la disqualification du lignage a egalement ete incorporee dans un adage bien connu des roturiers.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

@@ -1,0 +1,27 @@
+
+### Partie 1
+<b>Mais <i>notar</i> et <i>piggul</i> sont</b> des conditions qui s'appliquent <b>apres l'aspersion du sang,</b> lorsque l'interdiction d'abuser des biens consacres, que l'individu tente d'etendre a un objet permis, ne s'applique plus. Puisque le vœu prend effet, cela prouve que l'individu associe l'objet de son vœu au statut d'interdit initial de l'offrande.
+
+### Partie 2
+<b>Rav Huna, fils de Rav Natan, lui dit :</b> Il est possible de dire qu'il est question ici du <b>notar</i> d'un holocauste.</b> Puisqu'un holocauste ne peut etre mange meme apres que son sang ait ete asperge, l'interdiction originelle d'abuser des biens consacres continue de s'appliquer a la viande de cette offrande. Rava <b>dit a</b> Rav Huna, fils de Rav Natan : <b>Si c'est le cas, qu'il enseigne</b> explicitement que l'individu faisait reference <b>a la viande d'un holocauste.</b>
+
+### Partie 3
+La Guemara repond : Le <i>tanna</i> <b>parle</b> en utilisant le style de : <b>Il n'est pas necessaire. Il n'est pas necessaire</b> d'affirmer que si l'on <b>associe</b> l'objet de son vœu a la <b>viande d'un holocauste,</b> il est <b>interdit, car il etend</b> le statut de <b>offrande</b> a l'autre element. Par contre, si on etend le statut de <b><i>notar</i> et de <i>piggul</i> d'un holocauste, il faut dire</b> que l'autre objet est interdit.
+
+### Partie 4
+Il pourrait <b>entrer dans votre esprit de dire</b> que l'individu a eu l'intention de declarer l'objet interdit <b>comme l'interdiction du <i>notar</i></b> ou <b>comme l'interdiction du <i>piggul</i>, et ce serait comme celui qui associe</b> l'objet de son vœu a <b>un objet interdit</b> par la Torah plutot qu'a un objet interdit par le biais d'un vœu. Par consequent, l'objet <b>n'est pas interdit,</b> car on ne peut faire un vœu en associant l'objet de son vœu a un objet interdit que si cet objet est lui-meme interdit en raison d'un vœu. La mishna <b>nous apprend donc</b> que son intention est de transferer l'interdiction de l'offrande, et le vœu prend effet.
+
+### Partie 5
+La Gemara <b>souleve une objection</b> basee sur la <i>baraita</i> suivante : <b>Quel est le</b> vœu de <b>prohibition [<i>issar</i>] mentionne dans la Torah ?</b> Il s'agit d'un cas ou <b>quelqu'un a dit : Je declare par la presente</b> <b>que je ne mangerai pas de viande et que je ne boirai pas de vin</b> aujourd'hui <b>comme le jour ou son pere est mort,</b> en faisant reference au pere de l'individu qui fait le vœu, car il y a une coutume de jeuner le jour anniversaire de la mort d'un parent, ou : <b>Comme le jour ou son professeur est mort,</b> car on pleure son professeur principal comme un pere, ou : <b>Comme le jour ou Gedaliah, fils d'Ahikam, a ete tue</b> (voir Jeremie, chapitre 41), c'est-a-dire le jeune de Gedaliah, ou : <b>Comme le jour ou j'ai vu Jerusalem dans son</b> etat de <b>destruction. Et Shmuel dit : Et ceci s'il etait oblige par</b> un <b>vœu</b> anterieur de s'abstenir de viande et de vin <b>ce jour-la</b> auquel il fait reference dans sa declaration.
+
+### Partie 6
+La Guemara clarifie : <b>Quelles sont les circonstances ? Ne s'agit-il pas</b> d'un cas ou, <b>par exemple, c'etait dimanche,</b> le meme jour de la semaine <b>ou son pere est mort ? Et bien qu'il y ait eu de nombreux dimanches permis</b> dans l'intervalle, neanmoins, lorsqu'il a dit qu'il ne mangerait pas de viande et ne boirait pas de vin comme le jour de la semaine ou son pere est mort, son intention visait le dimanche particulier ou son pere est mort, ou il avait fait vœu de s'abstenir de viande et de vin, <b>et</b> par consequent, <b>la <i>tanna</i> enseigne</b> que c'est <b>prohibe. Apprenez-en qu'il associe</b> l'objet de son vœu au <b>statut halakhique originel</b> du dimanche ou son pere est mort, et non au statut des dimanches intermediaires. De meme, dans le cas des sacrifices de paix qui suivent l'aspersion du sang, il se refere au statut original de la viande avant l'aspersion du sang.
+
+### Partie 7
+La Guemara repond que <b>C'est ainsi</b> que le commentaire <b>de Shmuel a ete enonce : Shmuel a dit : Et ceci s'il etait continuellement oblige par un vœu a partir de ce jour</b> de s'abstenir de viande et de vin le jour anniversaire de la mort de son pere. Par consequent, lorsqu'il associe un autre jour au jour de la mort de son pere, il exprime un vœu base sur l'etat actuel du jour, et il n'y a pas de preuve en ce qui concerne le cas de la viande de l'offrande de paix.
+
+### Partie 8
+La Gemara cite une autre tentative de preuve. <b>Ravina a dit : Venez</b> et <b>entendez</b> ce qui a ete enseigne dans la mishna (13b) : Si l'on declare qu'un objet est <b>comme la <i>halla</i> d'Aaron,</b> c'est-a-dire la portion de pate donnee aux pretres, <b>ou comme sa <i>teruma</i>,</b> la portion de produits agricoles donnee aux pretres, l'objet reste <b>permis.</b> Bien que ces objets soient interdits aux non-pretres des qu'ils sont designes, ils sont consideres comme interdits par la Torah plutot qu'interdits par un vœu. La Guemara en deduit : <b>Mais</b> si l'on declare qu'un objet est <b>comme le <i>teruma</i> des pains de l'offrande de remerciement,</b> c'est-a-dire les quatre pains de l'offrande de remerciement qui etaient consommes par les pretres, cet objet est <b>interdit.</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

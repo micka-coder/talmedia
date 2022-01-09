@@ -1,0 +1,42 @@
+
+### Part 1
+<b>and he signed it and gave it to</b> his wife, it is <b>a valid</b> bill of divorce? <b>And if you would say</b> that <b>we learned</b> that <b>this</b> statement of Rav Naḥman applies <b>by Torah law,</b> whereas by rabbinic law Rabbi Meir concedes that a bill of divorce must be written for her sake, <b>if so,</b> Rav Naḥman <b>should have</b> said: <b>Rabbi Meir would say</b> that <b>by Torah law</b> if a husband found a document in the garbage he may use it.
+
+### Part 2
+<b>Rather,</b> the Gemara retracts the previous answer and states: <b>Actually,</b> the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Elazar, and when does Rabbi Elazar not require</b> that the <b>signing</b> must be for her sake? <b>Where there are no witnesses at all</b> on the bill of divorce. However, <b>where there are witnesses, he does require</b> that all their signatures must be for her sake. The proof for this is <b>that Rabbi Abba says: Rabbi Elazar concedes with regard to</b> a document whose <b>falsification is inherent in it,</b> i.e., a document that is signed by disqualified witnesses, <b>that it is invalid.</b> This shows that although Rabbi Elazar maintains that a lack of signatures does not invalidate a bill of divorce, all signatures included in the bill of divorce must be valid; otherwise the document is rendered invalid.
+
+### Part 3
+<b>Rav Ashi said</b> a different explanation: In accordance with <b>whose</b> opinion <b>is this</b> mishna? <b>It is</b> in accordance with a third opinion, that of <b>Rabbi Yehuda. As we learned</b> in a mishna (21b): <b>Rabbi Yehuda invalidates</b> a bill of divorce <b>unless its writing and signing</b> are performed <b>on</b> an item that is <b>detached</b> from the ground. According to this opinion, both the writing and the signing must be done for her sake.
+
+### Part 4
+The Gemara asks: <b>And initially, what is the reason we did not establish</b> the mishna <b>in accordance with</b> the opinion of <b>Rabbi Yehuda?</b> Since Rabbi Yehuda’s opinion is explicitly stated in a mishna, isn’t it obvious that this mishna also follows his ruling?
+
+### Part 5
+The Gemara answers: <b>We seek</b> to explain the mishna <b>in accordance with</b> the opinion of <b>Rabbi Meir,</b> as there is a general principle <b>that</b> a ruling in <b>an unattributed mishna</b> is in accordance with the opinion of <b>Rabbi Meir.</b> Likewise, <b>we seek</b> to interpret the mishna in accordance with the ruling of <b>Rabbi Elazar, as we maintain</b> in general that <b>the <i>halakha</i> is in accordance with his</b> opinion <b>with regard to bills of divorce.</b> For these reasons, the Gemara first attempted to interpret the mishna in accordance with the opinion of one of these <i>tanna’im</i>, not that of Rabbi Yehuda.
+
+### Part 6
+§ The Gemara continues to explain the mishna in light of the dispute between Rabba and Rava. <b>We learned</b> in the mishna that <b>Rabban Gamliel says: Even one who brings</b> a bill of divorce <b>from Rekem or from Ḥeger</b> must say: It was written in my presence and it was signed in my presence. <b>Rabbi Eliezer says: Even</b> one who brings a bill of divorce <b>from the village of Ludim to Lod. And Abaye said</b> in explanation of this matter: <b>We are dealing with towns</b> that are not part of the land itself, but <b>are near Eretz Yisrael and within the boundary of Eretz Yisrael.</b>
+
+### Part 7
+<b>And Rabba bar bar Ḥana said: I myself saw that place,</b> i.e., the distance between the village of Ludim and Lod, <b>and it was similar</b> to the distance <b>from Bei Kuvei to Pumbedita,</b> which is only a short distance.
+
+### Part 8
+The Gemara analyzes the mishna: One can derive <b>by inference that the first <i>tanna</i></b> of the mishna <b>holds</b> that in <b>these</b> places the agent <b>is not required</b> to testify that the bill of divorce was written and signed for the woman’s sake. <b>What, is it not</b> the case that <b>they disagree with regard to this</b> principle, <b>as</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that the reason for saying: It was written in my presence and it was signed in my presence, is <b>because</b> people living overseas <b>are not experts</b> in writing a bill of divorce <b>for her sake, and</b> the residents of <b>these</b> places <b>are learned</b> in this matter, as they are near Eretz Yisrael. <b>And</b> one <b>Sage,</b> Rabban Gamliel, <b>holds:</b> The reason is <b>because there are no witnesses available to ratify it, and</b> the residents of <b>these</b> places <b>are also not frequently</b> available, as they live on the other side of the border, and it is difficult to bring witnesses from one place to another.
+
+### Part 9
+The Gemara rejects this suggestion: <b>No,</b> there is no proof that this issue is a dispute among <i>tanna’im</i>, as <b>Rabba resolves</b> the different opinions in the mishna according <b>to his</b> line of <b>reasoning, and Rava resolves</b> them according <b>to his</b> line of <b>reasoning.</b> The Gemara elaborates: <b>Rabba resolves</b> them according <b>to his</b> line of <b>reasoning, as everyone</b> agrees that the reason is <b>because they are not experts</b> in writing a bill of divorce <b>for her sake. And here they disagree with regard to this</b> issue: <b>The first <i>tanna</i> holds</b> that <b>since</b> the residents of <b>these</b> cities <b>are</b> located <b>near</b> Eretz Yisrael, they <b>are</b> assumed to be <b>learned</b> in this <i>halakha</i>.
+
+### Part 10
+<b>And Rabban Gamliel came to say:</b> Granted, the residents of those cities that <b>are within</b> the boundary of Eretz Yisrael <b>are learned</b> in this <i>halakha</i>, however, the residents of these cities that are only <b>near</b> Eretz Yisrael <b>are not learned. And Rabbi Eliezer came to say,</b> when he mentioned the village of Ludim and the town of Lod, that the residents of those cities that <b>are within</b> the boundary of Eretz Yisrael are <b>also not</b> treated as learned, so <b>that you should not make a distinction within</b> separate areas of <b>the country overseas.</b> In other words, anywhere that is not part of the Jewish settlement of Eretz Yisrael is classified as outside, even if they are familiar with the <i>halakhot</i> of bills of divorce.
+
+### Part 11
+Likewise, <b>Rava resolves</b> the various opinions in the mishna according <b>to his</b> line of <b>reasoning.</b> He maintains <b>that everyone</b> agrees that the reason for the declaration: It was written in my presence and it was signed in my presence, is <b>because there are no witnesses available to ratify it. And the first <i>tanna</i> holds: Since</b> the residents of <b>these</b> cities <b>are nearby</b> they <b>are frequently</b> available.
+
+### Part 12
+<b>And Rabban Gamliel came to say:</b> The residents of cities <b>within</b> the boundary of Eretz Yisrael <b>are frequently</b> available. However, the residents of places that are merely <b>near</b> Eretz Yisrael <b>are not frequently</b> available. <b>And Rabbi Eliezer came to say</b> that the residents of those cities that <b>are within</b> the boundary of Eretz Yisrael are <b>also not</b> considered to be like Eretz Yisrael in this matter, despite their proximity to the Jewish settlement, so <b>that you should not make a distinction within</b> separate areas of <b>a country overseas.</b>
+
+### Part 13
+§ <b>We learned</b> in the mishna: <b>And the Rabbis say</b> that <b>one is required to say: It was written in my presence and it was signed in my presence, only</b> if he <b>brings</b> a bill of divorce <b>from a country overseas</b> to Eretz Yisrael, <b>and</b> the same applies to <b>one who delivers</b> a bill of divorce from Eretz Yisrael to a country overseas. The Gemara analyzes this statement: One can learn <b>by inference that the first <i>tanna</i></b> of the mishna <b>holds</b> that <b>one who delivers</b> a bill of divorce from Eretz Yisrael to a country overseas <b>is not required</b> to say this declaration. <b>What, is it not</b> the case that <b>they disagree with regard to this</b> principle, <b>as</b> one <b>Sage,</b> the first <i>tanna</i>, <b>holds</b> that the reason for the declaration is <b>because they are not experts</b> in writing a bill of divorce <b>for her sake,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,42 @@
+
+### Partie 1
+<b>Et si Moise, notre maitre, etait un amoureux du peuple juif, pourquoi l'a-t-il retarde dans le desert pendant quarante ans ?</b> Le vieillard lui <b>dit : Mon maitre, tu m'ecartes avec cette</b> replique ? Rabbi Yohanan ben Zakkai <b>lui dit : Imbecile ! Et notre Torah parfaite ne sera-t-elle pas</b> aussi digne <b>que ton discours frivole ?</b> Ton affirmation peut etre facilement refutee.
+
+### Partie 2
+Rabbi Yohanan ben Zakkai cite une preuve que <i>Shavuot</i> n'a pas besoin de se produire specifiquement un dimanche. <b>Un verset indique :</b> "Au lendemain de la septieme semaine, <b>tu compteras cinquante jours;</b> et tu presenteras une nouvelle offrande de repas a l'Eternel" (Levitique 23 : 16), <b>et un verset,</b> le precedent, le contredit apparemment lorsqu'il <b>dit :</b> "Et tu compteras pour toi depuis le lendemain du jour de repos, depuis le jour ou tu as apporte la gerbe de l'ondee ; <b>sept semaines seront completes. "</b> Est-ce que la fete de <i>Shavuot</i> est sept semaines completes apres la Paque, c'est-a-dire, en comptant sept fois du dimanche au Shabbat ; ou est-ce cinquante jours apres Pessah ?
+
+### Partie 3
+La Guemara explique : <b>Comment,</b> c'est-a-dire comment peut-on concilier ces deux versets ? <b>Ici,</b> le verset qui mentionne sept semaines completes, fait reference a une annee <b>ou la fete</b> de Pessah <b>se deroule le Chabbat.</b> Dans une telle annee, la periode de cinquante jours entre Pessah et <i>Shavouot</i> contient sept semaines completes, du dimanche au Chabbat. <b>Ce verset,</b> qui definit la periode comme etant de cinquante jours, fait reference a une annee <b>ou la fete</b> de Pessah <b>se deroule au milieu de la semaine.</b>
+
+### Partie 4
+La Guemara presente <b>un moyen mnemotechnique</b> pour plusieurs autres preuves en refutation de l'affirmation des Boethusiens : Celle <b>de Rabbi Eliezer : Nombre ; Rabbi Yehoshua : Compte ; Rabbi Yishmael : Du <i>omer</i> ; Rabbi Yehuda : En dessous.</b>
+
+### Partie 5
+<b>Rabbi Eliezer dit :</b> La preuve precedente <b>n'est pas necessaire, car</b> le verset <b>dit :</b> "Sept semaines <b>que vous compterez pour vous ;</b> a partir du moment ou la faucille est mise pour la premiere fois sur le grain sur pied, vous commencerez a compter sept semaines" (Deuteronome 16:9). Le terme "pour toi" indique que le <b>comptage</b> des semaines <b>depend</b> de la decision du <b>court, car il sait</b> comment <b>calculer les nouveaux</b> mois, dont depend la date de la Fete. Par consequent, lorsque le verset dit : <b>"Le lendemain du jour de repos [<i>hashabbat</i>]</b> (Levitique 23:16), cela signifie : <b>Le lendemain de la Fete,</b> car la determination des Fetes se fait par le tribunal. Cela sert a <b>exclure</b> l'interpretation selon laquelle le decompte commence apres le <b>Chabbat de la Creation,</b> c'est-a-dire un Chabbat hebdomadaire regulier, <b>dont le decompte</b> peut etre effectue <b>par toute personne,</b> et non exclusivement par le tribunal.
+
+### Partie 6
+Citant une preuve differente, <b>Rabbi Yehoshua dit :</b> La <b>Torah a dit</b> de <b>compter les jours,</b> comme il est dit : "Un mois de jours" (Nombres 11:20), <b>et</b> ensuite <b>sanctifier</b> le <b>mois</b> par des offrandes. Et la Torah a egalement dit de <b>compter les jours</b> a partir de Pessah <b>et</b> ensuite <b>sanctifier la fete de <i>Shavuot</i></b> avec des offrandes, comme il est dit : "Tu compteras cinquante jours" (Levitique 23, 16). De cette comparaison, on peut apprendre que <b>tout comme</b> le debut du decompte vers le nouveau <b>mois est connu</b> meme <b>avant qu'il n'arrive,</b> puisqu'on commence a compter vers le nouveau mois suivant le premier jour d'un mois, <b>De meme</b> le debut du decompte vers <b>la fete de <i>Shavuot</i> est connu</b> meme <b>avant qu'elle n'arrive,</b> car on commence a compter vers <i>Shavuot</i> un jour fixe du mois.
+
+### Partie 7
+La Guemara developpe : <b>Et si vous dites</b> que la fete de <b><i>Chavouot</i> a toujours</b> lieu le <b>jour apres Chabbat, comment</b> le decompte vers Chavouot <b>est-il connu</b> sur la base de <b>ce qui l'a precede ?</b> Si la survenue de <i>Chavouot</i> depend d'un Chabbat, il n'y aurait pas de date specifique apres Pessah sur laquelle le decompte a lieu annuellement.
+
+### Partie 8
+<b>Rabbi Yishmael dit</b> qu'il existe une autre refutation de l'interpretation boethusienne. <b>La Torah dit : Apportez</b> l'offrande du <b><i>omer</b> a la fete <b>de Pessah et les deux pains a <i>Shavouot</i>. De meme que la,</b> en ce qui concerne l'offrande de la <b>fete</b> de <i>Shavouot</i>, les deux pains sont apportes au <b>debut de la fete,</b> car elle ne dure qu'un jour, <b>de meme ici,</b> en ce qui concerne la <b>fete</b> de Pessah, le <i>omer</i> doit etre apporte au <b>debut de la fete. </b> Si l'<i>omer</i> devait toujours etre apporte un dimanche, cela pourrait se produire a la fin de la fete de Pessah. Par exemple, si la Paque commencait un lundi, le <i>omer</i> ne serait apporte que le dimanche suivant, a la fin de la Fete.
+
+### Partie 9
+<b>Rabbi Yehuda ben Beteira dit</b> il existe encore une autre refutation. Il est <b>dit "<i>shabbat</i>" ci-dessus</b> (Levitique 23:15), en ce qui concerne le debut du decompte de la <i>omer</i>, <b>et</b> il est egalement <b>dit "<i>shabbat</i>" ci-dessous</b> (Levitique 23:16), en ce qui concerne le debut de la fete de <i>Shavuot</i>. <b>Tout comme</b> la, a propos de la <b>fete</b> de <i>Shavuot</i>, il est precise : "Jusqu'au lendemain de la septieme semaine [<i>hashabbat</i>], vous compterez cinquante jours,<b>et</b> le mot <i>shabbat</i> fait reference au <b>debut de la Fete</b> et il suit immediatement <b>la fin de la septieme semaine ; <b>Aussi ici,</b> en ce qui concerne l'apport de l'<i>omer</i>, le mot <i>shabbat</i> signifie <b>Fete,</b> de sorte que l'offrande de l'<i>omer</i> suit immediatement le debut de la Fete,</b> le deuxieme jour de la Paque. Selon les Boethusiens, le debut du decompte pourrait commencer bien apres le debut de la Paque. Par exemple, si la Paque a lieu un dimanche, le decompte de l'<i>omer</i> ne commencerait que le dimanche suivant.
+
+### Partie 10
+<b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Le verset dit : "Et tu compteras pour toi a partir du lendemain du jour de repos [<i>hashabbat</i>], a partir du jour ou tu as apporte la gerbe de l'ondee ; sept semaines seront completes" (Levitique 23:15). La phrase : <b>"Et tu compteras pour toi,</b> enseigne <b>que</b> la mitzva du comptage n'est pas une obligation communautaire. Au contraire, <b>il doit y avoir un comptage par chaque</b> personne.
+
+### Partie 11
+Le <i>baraita</i> continue : <b>Des le lendemain du jour de repos [<i>hashabbat</i>],</b> cela signifie <b>Des le lendemain de la fete</b> de Pessah. <b>Ou</b> peut-etre est-ce <b>non</b> le sens du verset, mais <b>plutot</b> cela signifie <b>apres le Chabbat de la Creation,</b> c'est-a-dire le dimanche. <b>Rabbi Yosei bar Yehuda dit :</b> Cela ne peut etre correct, <b>car</b> le verset <b>dit :</b> "Jusqu'au lendemain de la septieme semaine <b>tu compteras cinquante jours"</b> (Levitique 23:16). Cela enseigne que <b>tous les decomptes que tu feras ne seront que de cinquante jours.</b>
+
+### Partie 12
+Rabbi Yosei bar Yehuda developpe : <b>Et si vous dites</b> que la clause : <b>Du lendemain</b> du jour de repos [<i>hashabbat</i>], se refere au <b>Shabbat de la Creation, on trouvera parfois</b> un decompte de <b>cinquante et un</b> jours a partir du premier jour de Pessah, qui est la date a laquelle le decompte a commence l'annee precedente, jusqu'a <i>Shavouot</i> ; <b>et parfois vous trouverez cinquante-deux,</b> ou <b>fifty-three,</b> ou <b>fifty-four,</b> ou <b>fifty-five,</b> ou <b>fifty-six. </b> Par exemple, une annee, la Paque a lieu le Chabbat, et le decompte de la <i>omer</i> commencerait le dimanche, le seize de Nisan, et <i>Shavuot</i> aurait lieu cinquante jours plus tard. Une autre annee, la Paque a lieu un vendredi, et le decompte commence le dimanche, alors la date a laquelle <i>Shavuot</i> aura lieu cette annee est de cinquante et un jours a partir du seize de Nisan. Si la Paque a lieu un jeudi, et que le decompte commence le dimanche suivant, <i>Shavuot</i> aura lieu cinquante-deux jours apres le seize de Nisan.
+
+### Partie 13
+<b>Rabbi Yehuda ben Beteira dit :</b> Que la preuve <b>n'est pas necessaire,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

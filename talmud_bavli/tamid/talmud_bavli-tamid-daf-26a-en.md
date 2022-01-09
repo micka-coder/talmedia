@@ -1,0 +1,33 @@
+
+### Part 1
+<b>through the circuitous passage that extended beneath the Temple,</b> as he could not pass through the Temple courtyard, due to his impurity. <b>And</b> there were <b>lamps burning on this</b> side <b>and on that</b> side of the passage. He would walk through the passage <b>until he reached the Chamber of Immersion. And there was a fire</b> burning <b>there</b> to warm the priests after they had immersed, <b>and</b> also <b>a bathroom of honor,</b> so that the priests could urinate before immersion. <b>This was</b> the manifestation of <b>its honor:</b> If one <b>found</b> the door <b>closed,</b> he would <b>know that there was a person there,</b> and he would wait for him to exit before entering. If one found the door <b>open, it was known that there was no person there,</b> and he could enter. In this manner, the one using it was afforded privacy.
+
+### Part 2
+After the priest <b>descended and immersed</b> in the ritual bath, he <b>ascended and dried himself</b> with a towel, <b>and warmed himself opposite the fire. He</b> then <b>came</b> back to the Chamber of the Hearth <b>and sat with his brethren the priests until</b> dawn, when the <b>gates</b> of the Temple courtyard <b>would be opened.</b> He would then <b>leave</b> the Temple <b>and go on his</b> way. Since the purification process of one who immerses is not complete until sunset, by rabbinic law he could not remain in the Temple during the daytime.
+
+### Part 3
+The mishna describes the commencement of the daily service in the Temple: Among the members of the priestly family who are to serve in the Temple that day, <b>whoever wants to remove</b> the ashes <b>from the altar rises early and immerses</b> himself in a ritual bath, as required of anyone who enters the Temple courtyard. He must immerse <b>before the appointed</b> priest <b>arrives,</b> as the appointed priest oversees the lottery that determines which priests perform the various rites of the Temple service, and the first of those lotteries determines who will be charged with the removal of the ashes. <b>And at what time does the appointed</b> priest <b>arrive? The times</b> of his arrival <b>are not all the same.</b> There are <b>times that he comes at the call of the rooster [<i>hagever</i>], or</b> he might come at <b>an adjacent</b> time, either <b>before</b> the call of the rooster <b>or after it.</b>
+
+### Part 4
+<b>The appointed</b> priest <b>arrived</b> at the Chamber of the Hearth, where the priests of the patrilineal family were assembled, <b>and he knocked</b> on the gate <b>to</b> alert <b>them</b> to open the gate for him. <b>And</b> when <b>they opened</b> the gate <b>for him, he said to them: Whoever immersed</b> in the ritual bath <b>may come and participate in the lottery. They</b> then <b>conducted the lottery,</b> and <b>whoever won</b> that lottery <b>won</b> the privilege to perform the rite of the removal of the ashes.
+
+### Part 5
+<strong>GEMARA:</strong> The mishna teaches that the priests would keep watch in three locations in the Temple. The Gemara asks: <b>From where are these matters</b> derived? <b>Abaye said</b> that they are derived from a verse, as <b>the verse states: “And those that were to camp before the Tabernacle eastward, before the Tent of Meeting toward the sunrise, were Moses and Aaron and his sons, keeping the watch of the Sanctuary, for the watch of the children of Israel,</b> and the non-priest who came near was to be put to death” (Numbers 3:38).
+
+### Part 6
+The Sages <b>say</b> in response: <b>Yes, we have found</b> in this verse <b>that in general</b> the Torah <b>requires a watch</b> to be kept. Furthermore, the verse indicates that it is the <b>priests and Levites</b> who are required to perform the <b>watch,</b> as it states the precedent of Moses, who was a Levite, and Aaron, who was a priest. <b>But the mishna</b> (<i>Middot</i> 1:1) <b>teaches: The priests</b> would <b>keep watch in three places in the Temple</b> courtyard…<b>and the Levites in twenty-one places.</b> According to the mishna, the priests and Levites kept watch in different locations, <b>whereas</b> in the <b>verse</b> the <b>priests and</b> the <b>Levites are written together,</b> indicating that they kept watch in the same places.
+
+### Part 7
+The Sages <b>say</b> that <b>this</b> is what the verse <b>is saying: “And those that were to camp before the Tabernacle eastward, before the Tent of Meeting toward the sunrise, were Moses,”</b> indicating that the Levites keep watch. <b>And then</b> the verse states with regard to the separate watch kept by the priests: <b>“Aaron and his sons, keeping the watch of the Sanctuary.”</b> Furthermore, the verse indicates that <b>Aaron</b> keeps watch <b>in one place, and his sons</b> keep watch <b>in two</b> other <b>places,</b> from which it is derived that the priests keep watch in three different places.
+
+### Part 8
+The Gemara asks: <b>From where</b> is it derived that the verse should be interpreted in this manner? This is derived <b>from</b> the fact <b>that it is written: “And those that were to</b> camp…were Moses,” <b>and it is written</b> separately: “Aaron and his sons, <b>keeping the watch.”</b> This indicates that those <b>who</b> were to <b>camp</b> and thereby keep watch <b>are discrete, and</b> those <b>keeping the watch are discrete,</b> i.e., they perform different watches in separate places.
+
+### Part 9
+The Gemara objects: One can <b>say</b> that <b>all of</b> the priests keep watch <b>in one place</b> that is <b>discrete</b> from the watches of the Levites, but not in three separate places. The Gemara explains: That possibility should <b>not enter your mind,</b> as the verse juxtaposes the watches of Moses and Aaron. This indicates that <b>just as Moses</b> keeps watch <b>in one place discretely, so too, Aaron and his sons</b> each keep watch <b>in one place discretely,</b> and they do not keep watch together.
+
+### Part 10
+<b>Rav Ashi said</b> that the <i>halakha</i> that the priests keep watch in three places is derived <b>from the end of the verse,</b> which states: “Moses and Aaron and his sons, <b>keeping [<i>shomerim</i>] the watch [<i>mishmeret</i>]</b> of the Sanctuary, <b>for the watch [<i>lemishmeret</i>]</b> of the children of Israel.” The verse uses three terms from the root <i>shin</i>, <i>mem</i>, <i>reish</i>, which means to watch, indicating that there should be three separate watches.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

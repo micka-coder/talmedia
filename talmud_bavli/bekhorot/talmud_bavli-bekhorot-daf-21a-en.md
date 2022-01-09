@@ -1,0 +1,18 @@
+
+### Part 1
+<b>Shall we say</b> the <i>tanna</i> of this <i>baraita</i> <b>holds</b> that an animal that <b>expels a murky discharge does not return</b> to its fertile state <b>and give birth within its first year?</b> The Gemara rejects this suggestion: It is possible the <i>tanna</i> does not hold that opinion. Even <b>if you say</b> an animal that <b>expels a murky discharge returns</b> to its fertile state <b>and gives birth within its first year,</b> an animal <b>that</b> actually <b>gave birth</b> to a live offspring <b>certainly does not return</b> to its fertile state <b>and give birth within its first year.</b>
+
+### Part 2
+§ The <i>baraita</i> teaches that <b>Rabbi Shimon says: I saw</b> a single <b>kid</b> that yielded enough offspring to be subject to the tithe within its first year of life. By contrast, the first <i>tanna</i> in the <i>baraita</i> does not add the phrase: Within its first year of life. The Gemara asks: <b>What</b> difference <b>is there between</b> the opinion of <b>the first <i>tanna</i> and</b> that of <b>Rabbi Shimon?</b> The Gemara answers that there is a difference <b>between</b> them in a case where the second-generation goats expel a murky discharge on the first day of their seventh month, which is the seventh month of their year for animal tithe. And they disagree with regard to the statement <b>of Ze’eiri,</b> cited earlier, that the expulsion of a discharge which exempts an animal from having its future offspring counted a firstborn is one which prevents it from being impregnated for no less than thirty days.
+
+### Part 3
+<b>The first <i>tanna</i> accepts</b> the statement <b>of Ze’eiri,</b> and therefore he holds that in such a case the goats cannot become pregnant before the first day of the eighth month, which means they cannot give birth before the first day of the second year. <b>And Rabbi Shimon does not accept</b> the statement <b>of Ze’eiri;</b> he holds that the goats can become pregnant during the seventh month and give birth during the last month of their first year of life. <b>And if you wish, say that everyone accepts</b> the statement <b>of Ze’eiri, and here they disagree</b> with regard to whether or not an animal <b>gives birth after incomplete</b> months, i.e., prematurely. <b>According to the first <i>tanna</i>,</b> an animal <b>does not give birth after incomplete</b> months; <b>according to Rabbi Shimon,</b> an animal <b>gives birth</b> after incomplete months.
+
+### Part 4
+<b>And if you wish, say</b> that everyone accepts Ze’eiri’s statement and <b>everyone agrees</b> that an animal <b>does not give birth after incomplete</b> months, <b>and here they disagree</b> with regard to whether or not the halakhic status of <b>part of the day is like an entire</b> day. <b>According to the first <i>tanna</i>, we do not say part of the day is like an entire</b> day, which means the earliest possible birth is on the first day of the second year. <b>According to Rabbi Shimon, we do say part of the day is like an entire</b> day, and therefore it is possible for the goat to give birth on the last day of the first year.
+
+### Part 5
+<b>And if you wish, say</b> that <b>everyone agrees</b> that <b>part of the day is like an entire</b> day, <b>and here they disagree</b> with regard to whether or not an animal <b>whose time has not yet</b> arrived, i.e., one that is not yet seven days old, which may not be sacrificed on the altar, <b>enters the pen to be tithed.</b> According to the first <i>tanna</i> it does not enter the pen to be tithed; according to Rabbi Shimon, it does enter the pen to be tithed.
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

@@ -1,0 +1,63 @@
+
+### Part 1
+<b>and he intended</b> to partake <b>of</b> the meal offering in an improper manner, <b>whether outside its</b> designated <b>area or beyond its</b> designated <b>time,</b> the offering is <b>not valid, but there is no</b> liability to receive <b><i>karet</i></b> if one partakes <b>of it.</b>
+
+### Part 2
+The Gemara presents an alternative version of this <i>baraita</i>: If, while the handful was in his right hand, <b>he intended</b> to partake <b>of</b> the meal offering <b>outside its</b> designated <b>area,</b> the offering is <b>not valid, but there is no</b> liability to receive <b><i>karet</i></b> if one partakes <b>of it.</b> If he intended to partake of it <b>beyond its</b> designated <b>time,</b> then the offering is <b><i>piggul</i> and</b> one who partakes of it <b>is liable</b> to receive <b><i>karet</i>.</b> This is <b>the statement of Rabbi Elazar and Rabbi Shimon.</b>
+
+### Part 3
+<b>And the Rabbis say: Once he put</b> the handful <b>in</b> his <b>left</b> hand, the <b>placing</b> of it in his left hand <b>renders it unfit</b> and it cannot be rendered fit by returning it to his right hand. <b>What is the reason?</b> It is <b>because it requires sanctification in</b> a service <b>vessel, and once he put it in</b> his <b>left</b> hand, <b>it is considered like blood that spilled from an animal’s neck onto the floor</b> before being collected in a service vessel <b>and one</b> then <b>gathered it, which</b> is <b>unfit</b> and cannot be rendered fit by then being placed in a service vessel.
+
+### Part 4
+The Gemara notes: <b>By inference,</b> one can conclude <b>that Rabbi Elazar and Rabbi Shimon do not require</b> sanctification of the handful by <b>placing</b> it in a service <b>vessel.</b> Accordingly, this serves as <b>a conclusive refutation</b> of the opinion <b>of Rav Naḥman</b> bar Yitzḥak, who stated that even Rabbi Shimon requires sanctification in a service vessel. The Gemara affirms: This is <b>a conclusive refutation</b> of his opinion.
+
+### Part 5
+The <i>baraita</i> teaches that according to Rabbi Shimon, if the priest transferred the handful to his left hand he should return the handful to his right hand. The Gemara comments: This <b>supports</b> the statement of <b>Rabbi Yehuda, son of Rabbi Ḥiyya,</b> as he said that according to the opinion of Rabbi Shimon the rites of the meal offering must be performed with the priest’s right hand. The Gemara asks: <b>Shall we say</b> that this <i>baraita</i> <b>is a conclusive refutation</b> of the opinion <b>of Rabbi Yannai,</b> as it teaches that the handful must be transferred back to his right hand, whereas he states that once the handful has been removed from a service vessel it may be sacrificed in any manner?
+
+### Part 6
+The Gemara answers: <b>Rabbi Yannai</b> could <b>say to you: I stated</b> my ruling <b>in accordance with</b> the opinion of <b>the <i>tanna</i></b> who taught <b>that</b> the <b>burning</b> of the fats and the limbs and the sacrifice of the meal offering can all take place with either the right or left hand. <b>And</b> I hold that he <b>does not teach</b> it <b>disjunctively,</b> as it was explained in order to reconcile the <i>baraita</i> with the statement of Rabbi Yehuda, son of Rabbi Ḥiyya. Rather, it is to be understood according to its straightforward meaning.
+
+### Part 7
+§ The mishna teaches: If the priest <b>burned the handful of</b> a meal offering <b>twice,</b> i.e., in two increments, it is <b>fit.</b> The Gemara comments: <b>Rabbi Yehoshua ben Levi says:</b> The handful is fit if it is burned <b>twice,</b> where half of the handful is burned each time, <b>but not</b> if it is burned <b>several times,</b> in smaller increments. <b>And Rabbi Yoḥanan says:</b> It is fit if it is burned <b>twice, and</b> it is fit <b>even</b> if it is burned <b>several times.</b>
+
+### Part 8
+The Gemara asks: <b>What</b> is the basis for the dispute <b>between</b> the two opinions? <b>Rabbi Zeira said:</b> The dispute <b>between</b> the two <b>is</b> with regard to whether <b>there is</b> significance to <b>a handful</b> that is <b>less than</b> the size of <b>two olives and whether there is</b> significance to the <b>burning</b> of <b>less than an olive-bulk</b> on the altar.
+
+### Part 9
+<b>Rabbi Yehoshua ben Levi holds</b> that <b>there is no</b> significance to <b>a handful</b> that is <b>less than</b> the size of <b>two olives and there is no</b> significance to the <b>burning</b> of <b>less than an olive-bulk</b> on the altar. Therefore, the mishna’s statement that the handful may be burned in two increments is meant literally, and the handful may be divided into only two equal portions, where each one contains exactly one olive-bulk. It may not be divided further, since doing so would result in the burning of less than an olive-bulk on the altar. <b>And Rabbi Yoḥanan holds</b> that <b>there is</b> significance to <b>a handful</b> that is <b>less than</b> the size of <b>two olives and there is</b> significance to the <b>burning</b> of <b>less than an olive-bulk</b> on the altar. Therefore, if the handful was divided into several small portions and each portion was burned separately, it is fit.
+
+### Part 10
+§ <b>It was stated: From when</b> precisely <b>does</b> the sacrifice of the <b>handful render permitted</b> the <b>remainder</b> of the meal offering <b>for consumption</b> by the priests? <b>Rabbi Ḥanina says: From when the fire takes hold of it,</b> i.e., when it ignites. <b>Rabbi Yoḥanan says: From when the fire consumes most of</b> the handful.
+
+### Part 11
+<b>Rav Yehuda said to Rabba bar Rav Yitzḥak: I will explain to you the reasoning of Rabbi Yoḥanan. The verse states: “And behold, the smoke of the land went up as the smoke of a furnace”</b> (Genesis 19:28), and <b>a furnace does not release smoke until the fire takes hold of the majority of</b> the fuel. Rabbi Yoḥanan derived from this verse that the majority of the handful must be consumed by the fire, since the priests are instructed to make the handful smoke, as it is written: “And the priest shall make the memorial part thereof smoke upon the altar” (Leviticus 2:2).
+
+### Part 12
+<b>Ravin bar Rav Adda said to Rava: Your students say</b> that <b>Rav Amram said</b> that <b>it is taught</b> in a <i>baraita</i>: <b>I have</b> derived <b>only</b> with regard to <b>items whose</b> usual <b>manner</b> is <b>to be sacrificed at night, for example,</b> the <b>limbs</b> of the burnt offering <b>and</b> the <b>fats [<i>pedarim</i>]</b> of the burnt offering, <b>that</b> the priest <b>may bring them up and burn them after sunset and they are consumed throughout the entire night.</b> This is derived from the verse: “This is the law of the burnt offering: It is that which goes up on its firewood upon the altar all night unto the morning” (Leviticus 6:2).
+
+### Part 13
+The <i>baraita</i> continues: With regard to <b>items whose</b> usual <b>manner is to be sacrificed during the day, for example, the handful</b> of the meal offering, <b>the frankincense, the incense, the meal offering of priests, the meal offering of</b> the <b>anointed priest,</b> i.e., the High Priest, <b>and the meal offering</b> that accompanies the <b>libations,</b> from where is it derived <b>that</b> the priest <b>may bring them up and burn them after sunset?</b>
+
+### Part 14
+The Gemara interjects: Why would they be allowed to be burned after sunset? <b>But didn’t you say</b> that these are items <b>whose</b> usual <b>manner is to be sacrificed during the day?</b> The Gemara clarifies: <b>Rather,</b> the question of the <i>baraita</i> is as follows: <b>From where</b> is it derived that these items may be brought up and burned concurrent <b>with the setting of the sun,</b> in <b>which</b> case <b>they are consumed throughout the entire night</b> and not during the day? <b>The verse states: “This is the law of the burnt offering”</b> (Leviticus 6:2), which <b>included</b> everything that is sacrificed on the altar.
+
+### Part 15
+Ravin bar Rav Adda challenges: <b>But</b> if the handful is brought up and burned concurrent <b>with the setting of the sun, you do not find that the majority of it is consumed by the fire</b> before sunset. How does this <i>baraita</i> accord with Rabbi Yoḥanan’s statement that the majority of the handful must be consumed by the fire in order to render permitted the consumption of the remainder by the priests? The Gemara answers: This is <b>not difficult. Here,</b> where the <i>baraita</i> does not require the consumption by fire of the majority of the handful, it is referring only to that which is required in order for the altar <b>to receive</b> the handful, so that it is considered the food of the altar and may continue to burn all night long. <b>There,</b> Rabbi Yoḥanan states that in order <b>to render permitted</b> the consumption of the remainder by the priests, the majority of the handful must be consumed by the fire.
+
+### Part 16
+The Gemara notes: <b>Rabbi Elazar teaches</b> the <i>baraita</i> the way it was initially presented, as asking how it is known that items that are usually sacrificed during the day may be burned <b>after sunset. And he interprets</b> the <i>baraita</i> as referring <b>to</b> parts of the offering that were <b>dislodged</b> from the fire after sunset, which may be returned to the fire throughout the night. <b>And similarly, when Rav Dimi came</b> from Eretz Yisrael to Babylonia he said that <b>Rabbi Yannai said</b> the <i>baraita</i> is referring <b>to</b> parts that were <b>dislodged</b> from the fire after sunset.
+
+### Part 17
+The Gemara asks: <b>And did Rabbi Yannai</b> in fact <b>say this? But doesn’t Rabbi Yannai say:</b> In the case of <b>incense that was dislodged from on top of the altar,</b> the priests <b>may not return even small lumps of it</b> to the fire? <b>And</b> similarly, <b>Rav Ḥanina bar Minyumi from the school of Rabbi Eliezer ben Ya’akov taught</b> in a <i>baraita</i>: The verse states: <b>“That which the fire will consume of the burnt offering on the altar”</b> (Leviticus 6:3). This teaches that if parts <b>of a burnt offering</b> that were partially <b>consumed</b> were dislodged from the external altar <b>you shall return</b> them, <b>but you do not return incense</b> that was partially <b>consumed</b> and was dislodged from the internal altar. The Gemara answers: <b>Remove from</b> the <i>baraita</i> <b>here</b> the word <b>incense,</b> so that it is not included in the list of items that may be burned throughout the night.
+
+### Part 18
+<b>Rabbi Asi said: When Rabbi Elazar would explain</b> the <i>halakhot</i> <b>of</b> the <b>meal offerings,</b> he would <b>raise</b> this <b>dilemma: Rabbi Elazar raises a dilemma:</b> With regard to <b>a handful that</b> a priest <b>arranged</b> on the altar, <b>and he arranged the arrangement</b> of wood on the altar <b>on top of it, what is</b> the <i>halakha</i>? Is <b>this</b> considered a proper <b>manner of burning, or</b> is <b>this not</b> considered a proper <b>manner of burning,</b> since the handful is not arranged on top of the wood? The Gemara comments: No answer was found, and the dilemma <b>shall stand</b> unresolved.
+
+### Part 19
+<b>Ḥizkiyya raises a dilemma:</b> With regard to the <b>limbs</b> of the burnt offering <b>that</b> a priest <b>arranged</b> on the altar <b>and arranged the arrangement</b> of wood on the altar <b>on top of them, what is</b> the <i>halakha</i>? Do we say that <b>the Merciful One states:</b> “And Aaron’s sons, the priests, shall lay the pieces and the head, and the fat, in order <b>upon the wood</b> that is on the fire upon the altar” (Leviticus 1:8), teaching that they must be placed <b>specifically upon the wood? Or perhaps, since it is written</b> in <b>another verse: “That which the fire will consume of the burnt offering on the altar”</b> (Leviticus 6:3), indicating that the burnt offering may be arranged directly on the altar, <b>if</b> the priest <b>desires</b> to arrange the limbs in <b>this</b> manner he may <b>do</b> so, <b>and if</b> he <b>desires</b> to arrange them in <b>that</b> manner he may also <b>do</b> so. The Gemara comments: No answer was found, and the dilemma <b>shall stand</b> unresolved.
+
+### Part 20
+<b>Rabbi Yitzḥak Nappaḥa raises a dilemma:</b> With regard to the <b>limbs</b> of an offering <b>that</b> a priest <b>arranged adjacent to the arrangement</b> of wood on the altar, <b>what is</b> the <i>halakha</i>? The Gemara explains: <b>Do not raise the dilemma according to</b> the opinion <b>of the one who says</b> that the phrase <b>“upon [<i>al</i>]</b> the wood” is meant <b>literally,</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

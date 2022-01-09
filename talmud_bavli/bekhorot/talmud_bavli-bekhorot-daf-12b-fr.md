@@ -1,0 +1,84 @@
+
+### Partie 1
+<b>Selon Rabbi Shimon egalement,</b> on ne peut peut-etre pas racheter un ane premier-ne avec des animaux consacres disqualifies, car <b>il est ecrit a leur sujet</b> qu'ils doivent etre traites : "Comme <b>la gazelle et</b> comme <b>le cerf"</b> (Deuteronome 12:15). Puisqu'une gazelle et un cerf ne peuvent etre utilises pour la redemption, de meme, les animaux consacres disqualifies ne peuvent etre utilises pour la redemption.
+
+### Partie 2
+§ <b>Un dilemme a ete souleve devant</b> les Sages : <b>Quel est</b> la <i>halakha</i> <b>en ce qui concerne le rachat</b> d'un ane premier-ne <b>avec un animal</b> qui a ete achete avec des produits <b>de l'annee sabbatique</b>, ce qui a provoque le transfert de la saintete des produits a l'animal ?
+
+### Partie 3
+La Gemara clarifie la question : En ce qui concerne le rachat d'un ane qui a le statut de premier-ne <b>defini</b> avec un animal qui a ete achete avec des produits de l'annee sabbatique, <b>il ne faut pas soulever le dilemme,</b> car on ne peut certainement pas le racheter de cette maniere, car le proprietaire acquiert son ane premier-ne en echange de l'animal qu'il donne au pretre, et cela est interdit en ce qui concerne un tel animal. Ceci parce que <b>Le Misericordieux declare</b> en ce qui concerne l'annee sabbatique : "Le reste de la terre vous sera destine a la consommation" (Levitique 25:6), ce qui indique que les produits peuvent etre utilises <b>pour la consommation mais pas pour le commerce.</b> Au contraire, <b>Quand faut-il soulever le dilemme ?</b> Le soulever dans le cas d'un ane au statut de premier-ne <b>incertain</b>.
+
+### Partie 4
+La Guemara clarifie davantage : <b>Et selon</b> l'avis <b>de Rabbi Shimon, il ne faut pas soulever le dilemme, car il ne soutient pas</b> que la redemption est necessaire dans le cas d'un ane au statut de premier-ne <b>incertain</b>. <b>Quand faut-il soulever le dilemme ?</b> Le soulever <b>selon</b> l'avis <b>de Rabbi Yehuda,</b> qui considere que dans un tel cas, le proprietaire de l'ane doit designer un agneau pour son rachat afin d'abroger son statut interdit, mais il n'est pas tenu de le donner a un pretre.
+
+### Partie 5
+<b>Qu'est-ce que</b> le <i>halakha</i> ? Peut-etre <b>puisqu'il designe un agneau et que c'est le sien, on appelle</b> cet acte de rachat <b>"pour la consommation"</b> et il n'est pas considere comme un commerce s'il ne le donne pas au pretre en echange de son ane. <b>Ou peut-etre, puisque tant que</b> l'agneau <b>n'abroge pas le statut interdit de</b> l'ane premier-ne <b>il n'est pas permis</b> de tirer profit de l'ane, lorsque le proprietaire designe l'agneau comme remplacant de l'ane <b>cela revient a</b> s'engager dans un <b>commerce</b> avec lui.
+
+### Partie 6
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une resolution de ce <b>que dit Rav Hisda : On ne peut pas racheter</b> un ane au statut de premier-ne <b>defini</b> <b>avec un animal</b> qui a ete achete avec des produits <b>de l'annee sabbatique</b>, <b>mais on peut racheter</b> un ane au statut de premier-ne <b>incertain</b> avec lui.</b>
+
+### Partie 7
+<b>Et Rav Hisda dit</b> une decision supplementaire : <b>Un animal</b> qui a ete achete avec les produits <b>de l'annee sabbatique</b> est <b>exempte de</b> sa progeniture d'etre comptee <b>comme un premier-ne, mais il est oblige</b> de se voir retirer les <b>dons</b> de la pretrise. Voici les dons auxquels les membres de la pretrise ont droit lorsqu'un animal non sacre est abattu,
+
+### Partie 8
+La Gemara explique : Il est <b>exempte</b> que sa progeniture soit comptee <b>comme un premier-ne</b> car <b>Le Misericordieux declare</b> a propos des produits de l'annee sabbatique qu'ils doivent etre utilises <b>"pour la consommation", mais pas pour etre brules</b> et les portions d'un animal premier-ne casher sont brulees sur l'autel. <b>Et il est obligatoire</b> qu'on lui retire les <b>dons</b> du sacerdoce, <b>car on appelle</b> ce cas <b>"pour la consommation"</b> puisque le pretre les mange.
+
+### Partie 9
+La Guemara <b>souleve une objection</b> tiree d'une mishna (<i>Sheviit</i> 9:9) : <b>Celui qui mange de la pate de</b> produit de l'annee <b>sabbatique</b> <b>avant que sa <i>halla</i>,</b> c'est-a-dire la portion de pate donnee aux pretres, <b>ait ete separee, est susceptible</b> de recevoir la punition de la <b>mort</b> de la main du Ciel, tout comme celui qui consomme n'importe quelle pate avant que la <i>halla</i> ne soit separee.
+
+### Partie 10
+<b>Mais</b> selon l'avis du Rav Hisda, <b>pourquoi</b> la pate des produits de l'annee sabbatique est-elle soumise a l'obligation de separer la <i>halla</i> ? Elle ne devrait pas etre soumise a cette mitzva, <b>puisque si</b> la pate <b>devient rituellement impure</b> apres avoir ete separee comme <i>halla</i>, <b>elle est sujette a etre brulee,</b> et <b>le Misericordieux declare : </b> Ceci est similaire a l'affirmation du Rav Hisda selon laquelle un animal premier-ne qui a ete achete avec les produits de l'annee sabbatique n'est pas soumis aux obligations du statut de premier-ne.
+
+#### Partie 11
+La Guemara repond : <b>Ici,</b> en ce qui concerne <i>halla</i>, <b>il en va differemment, car il est ecrit :</b> "De la premiere de tes pates, tu donneras a l'Eternel une portion pour un don <b>a travers tes generations"</b> (Nombres 15:21), ce qui indique que toutes les pates, y compris celles des produits de l'annee sabbatique, sont soumises a la mitzva de <i>halla</i>.
+
+### Partie 12
+<b>Ceci est egalement enseigne</b> dans une <i>baraita</i> : <b>D'ou vient</b> que celui qui consomme de la pate de</b> produits de l'annee <b>sabbatique</b> <b>avant que sa <i>halla</i> ait ete separee est susceptible</b> de recevoir la punition de la <b>mort</b> de la main du Ciel ? Elle est derivee d'un verset, <b>comme il est dit : "Tout au long de vos generations,"</b> qui indique l'inclusion des annees sabbatiques egalement. En revanche, cette formulation n'est pas utilisee a l'egard d'un animal premier-ne. Par consequent, etant donne que les parties d'un animal premier-ne cachere sont brulees sur l'autel, un animal qui a ete achete avec les produits de l'annee sabbatique est exempt de sa progeniture qui est comptee comme un premier-ne.
+
+### Partie 13
+La Gemara conteste : <b>Et que</b> Rav Hisda <b>deduise de</b> la <i>halakha</i> de <i>halla</i> qu'un tel animal est sujet a ce que sa progeniture soit comptee comme un premier-ne, et que l'interpretation de : "Pour etre consomme" mais pas pour etre brule, n'est pas appliquee. La Guemara explique : <b>Il y a,</b> en ce qui concerne la <i>halla</i>, le but <b>primaire</b> de la pate est <b>pour la consommation,</b> et on ne la brule que si elle devient impure. <b>Ici,</b> en ce qui concerne un animal premier-ne, le <b>but premier</b> des portions qui sont consommees sur l'autel est <b>de bruler.</b>
+
+### Partie 14
+§ La mishna enseigne : Si le proprietaire <b>a donne</b> l'ane premier-ne lui-meme <b>a un pretre,</b> le pretre ne peut le garder qu'apres avoir designe un agneau a sa place pour le rachat. Cette formulation indique que l'on craint que le pretre ne soit negligent dans son rachat. La Guemara commente : <b>Nous apprenons</b> dans la mishna <b>ce que les Sages ont enseigne</b> explicitement dans une <i>baraita</i> : Dans le cas d'un <b>Israelite qui avait un ane premier-ne dans sa maison et le pretre lui a dit : Donne-le moi et je le racheterai, il ne peut pas donner</b> l'ane <b>au pretre</b> <b>a moins que</b> le pretre <b>le rachete en sa presence.</b>
+
+### Partie 15
+<b>Rav Nahman dit</b> que <b>Rabba bar Avuh dit : C'est-a-dire</b> que les <b>pretres sont suspects en ce qui concerne</b> l'utilisation des <b>anes premiers-nes</b> sans rachat. La Guemara demande : N'est-ce pas <b>evident ?</b> C'est exactement ce que dit la <i>baraita</i>. La Guemara explique : La declaration de Rav Nahman est necessaire <b>de peur que l'on dise</b> que <b>cette declaration</b> du <i>baraita</i> ne s'applique que dans un cas <b>ou l'on a une presomption qu'il</b> occasionnellement <b>arrive</b> que ce pretre utilise un ane premier-ne sans le racheter au prealable, <b>mais dans</b> le cas d'un <b>pretre ordinaire</b>, il n'y a <b>pas</b> de preoccupation a ce sujet. Par consequent, Rav Nahman <b>nous enseigne que</b> cette preoccupation concerne tout pretre, <b>car</b> un pretre est suspecte de <b>s'octroyer</b> <b>la permission</b> d'utiliser l'ane premier-ne sans le racheter au prealable avec un agneau, car dans tous les cas l'agneau restera a lui.
+
+### Partie 16
+<strong>MISHNA :</strong> Dans le cas de <b>celui qui designe</b> un agneau pour le <b>rachat d'un ane premier-ne et</b> l'agneau <b>mort, Rabbi Eliezer dit :</b> Le proprietaire <b>porte</b> la <b>responsabilite</b> financiere et doit donner au pretre un autre agneau a sa place. Ceci est <b>comme</b> le cas des <b>cinq <i>sela</i></b> pour le rachat <b>d'un <b>fils aine,</b> ou si l'argent est perdu avant que l'on ne le remette au pretre, on doit donner au pretre cinq autres <i>sela</i>. <b>Et les rabbins disent :</b> Le proprietaire <b>ne porte pas</b> de <b>responsabilite financiere.</b> C'est <b>comme</b> le cas de l'argent designe pour le <b>rachat de produits de second-tithe</b>, ou une fois que le proprietaire designe l'argent pour le rachat, le produit est desacralise.
+
+### Partie 17
+<b>Rabbi Yehoshua et Rabbi Tzadok ont temoigne au sujet</b> d'un agneau designe pour <b>le rachat d'un ane premier-ne qui est mort, que le pretre n'a rien ici,</b> c'est-a-dire, dans un tel cas, puisque l'ane premier-ne a deja ete rachete, et que le proprietaire ne porte plus la responsabilite financiere de l'agneau mort, conformement a l'opinion des rabbins. Si apres la designation de l'agneau, <b>l'ane premier-ne est mort, Rabbi Eliezer dit :</b> L'ane <b>doit etre enterre, et</b> le proprietaire est <b>permis de</b> tirer un <b>benefice de l'agneau. Et les rabbins disent :</b> Il <b>n'a pas besoin d'etre enterre, et l'agneau</b> est donne <b>au pretre.</b>
+
+### Partie 18
+<strong>GEMARA :</strong> <b>Rav Yosef dit : Quelle est la raison</b> de l'avis <b>de Rabbi Eliezer,</b> qui considere que le proprietaire porte la responsabilite financiere de l'agneau s'il est designe et meurt avant que le pretre ne le recoive ? <b>Comme il est ecrit :" Tu racheteras</b> le premier-ne de l'homme, et tu racheteras le premier-ne des animaux non casher" (Nombres 18:15). Il decoule de la comparaison entre les deux cas que <b>comme</b> en ce qui concerne le rachat du <b>premier-ne d'une femme,</b> le pere <b>porte</b> une <b>responsabilite financiere</b> pour compenser les cinq <i>sela</i> en cas de leur perte, <b>De meme,</b> en ce qui concerne le rachat d'un <b>animal premier-ne non casher,</b> le proprietaire <b>engage</b> la <b>responsabilite</b> financiere d'indemniser le pretre en cas <b>de leur</b> perte.
+
+### Partie 19
+<b>Abaye lui dit : Si</b> ils sont compares, alors <b>comme</b> tirer un <b>benefice</b> du <b>premier-ne d'une femme est permis</b> s'il n'a pas encore ete rachete, <b>de meme,</b> tirer un benefice du <b>premier-ne d'un animal non casher</b> devrait etre <b>permis</b> avant le rachat, y compris sa tonte et son travail. <b>Et si vous voulez dire</b> que <b>en effet</b> Rabbi Eliezer permet de tirer un benefice d'un ane premier-ne, c'est difficile : <b>Mais n'avons-nous pas appris</b> dans la mishna que si, apres la designation de l'agneau, <b>l'ane premier-ne est mort, Rabbi Eliezer dit : il doit etre enterre ?</b> Or, <b>Qu'est-ce qui justifie</b> qu'il <b>doive etre enterre ?</b> N'est-ce pas parce que</b> en tirer un <b>benefice</b> est interdit ?</b>
+
+### Partie 20
+Rav Yosef a repondu : <b>Non, il doit etre enterre comme</b> le <b>fils premier-ne d'une femme.</b> Il existe une mitsva d'enterrer le fils premier-ne d'une femme s'il meurt, et en raison de la comparaison du verset, il en va de meme pour un ane premier-ne. La Gemara demande : <b>Mais</b> selon cette reponse, est-ce que <b>une personne</b> qui est decedee <b>necessite un enterrement</b> seulement si elle <b>est un fils premier-ne</b>, tandis que <b>une personne ordinaire</b> qui n'est pas un premier-ne <b>ne necessite pas d'enterrement ?</b> Ce n'est certainement pas correct. Par consequent, une telle distinction ne devrait pas non plus exister en ce qui concerne un ane.
+
+### Partie 21
+<b>Et en outre,</b> Rabbi Eliezer soutient clairement que tirer un benefice d'un ane premier-ne avant la redemption est interdit, comme <b>il est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer concede a l'egard d'un israelite qui a un ane dans sa maison</b> dont le statut de <b>premier-ne</b> est <b>incertain, qu'il lui designe un agneau et</b> l'agneau <b>est a lui.</b> Designer un agneau dans ce cas n'est necessaire que pour lever l'interdiction de tirer un benefice de l'ane.
+
+### Partie 22
+<b>Au contraire, Rava dit</b> que bien que le verset compare le statut d'un ane premier-ne a celui du fils premier-ne d'une femme, cela ne concerne que le fait de porter la responsabilite financiere de l'agneau, mais pas le fait de tirer un benefice de l'ane. Cela est du au fait que <b>le verset indique : "Toutefois tu racheteras [<i>pado tifde</i>]</b> le premier-ne de l'homme, et tu racheteras le premier-ne des animaux non cachers." Le double verbe "<i>pado tifde</i>" indique que <b>Je l'ai compare par rapport au rachat, mais pas par rapport a une autre question.</b>
+
+### Partie 23
+§ <b>On a appris</b> dans un <i>baraita</i> <b>ailleurs : Les valorisations</b> sont determinees en fonction de <b>l'epoque du</b> vœu. Par consequent, si quelqu'un a fait le vœu de consacrer la valorisation d'un nourrisson age de moins d'un mois, il n'est pas oblige de donner de l'argent meme apres que le nourrisson ait un mois, car un nourrisson de moins d'un mois n'a pas de valorisation. <b>Et</b> en ce qui concerne le <b>remboursement</b> d'un <b>fils premier-ne</b> d'une femme, on doit donner la somme requise au pretre <b>apres</b> que le nourrisson ait <b>trente jours</b>, comme il est dit : "Et leur argent de rachat, a partir d'un mois, tu les racheteras" (Nombres 18, 16). En ce qui concerne le <b>rachat d'un ane premier-ne,</b> il doit etre effectue <b>immediatement.</b>
+
+### Partie 24
+La Gemara demande : <b>Et</b> il faut <b>redemander a un ane premier-ne</b> d'etre execute <b>immediatement ? Mais</b> on peut <b>soulever une contradiction</b> a partir d'une autre <i>baraita</i> : Les <i>halakhot</i> <b>des evaluations, et du rachat de</b> le fils premier-ne d'une femme, et des vœux nazirites, et d'un ane premier-ne, ne</b> s'appliquent pas a <b>moins de trente</b> jours. En d'autres termes, les <i>halakhot</i> d'evaluations, de rachat du fils premier-ne d'une femme, et d'un ane premier-ne ne s'appliquent pas a une personne ou un animal age de moins de trente jours, et une duree de nazireat est de trente jours minimum.
+
+### Partie 25
+<b>Mais on peut ajouter</b> a ce montant <b>pour toujours.</b> Ce qui signifie que les <i>halakhot</i> d'evaluations s'appliquent a une personne de n'importe quel age au-dela de trente jours, que le rachat du fils premier-ne d'une femme et de l'ane premier-ne s'applique meme si le premier-ne en question a deja plusieurs annees, et que l'on peut faire vœu d'etre nazirite pour n'importe quelle duree au-dela de trente jours. Cette <i>baraita</i> indique qu'un ane premier-ne n'est pas rachete immediatement, mais seulement apres trente jours.
+
+### Partie 26
+<b>Rav Nahman dit :</b> Lorsque la premiere <i>baraita</i> indique qu'un ane premier-ne doit etre rachete immediatement, elle veut <b>dire que si on le rachete</b> immediatement, <b>il est rachete,</b> bien qu'il ne doive etre rachete qu'apres trente jours <i>ab initio</i>. La Guemara demande : <b>Par deduction,</b> dans le cas <b>du</b> premier-ne d'une femme <b>son,</b> ou la premiere <i>baraita</i> stipule qu'il est rachete apres trente jours, <b>si on l'a rachete</b> avant ce delai, <b>n'est-il pas rachete ? Mais n'a-t-on pas precise :</b> Dans le cas de <b>celui qui rachete son fils dans les trente jours</b> de sa naissance, <b>Rav dit : son fils est rachete?</b>.
+
+### Partie 27
+La Gemara repond : <b>N'a-t-il pas ete dit a propos de cette</b> question que <b>Rava dit : Tout le monde</b> s'accorde a dire que si l'on dit dans les trente jours de la naissance de son fils qu'on le rachete <b>des maintenant, son fils n'est pas rachete.</b> Un tel rachat ne serait effectif que si l'on donnait l'argent a condition que le rachat prenne effet apres les trente jours de son fils.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

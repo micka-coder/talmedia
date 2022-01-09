@@ -1,0 +1,51 @@
+
+### Partie 1
+<b>"A cause de Manasse"</b> signifie <b>parce qu'il ne s'est pas repenti,</b> et le peuple a suivi ses traces.
+
+### Partie 2
+<b>Rabbi Yohanan dit : Quiconque dit</b> que <b>Manasse n'a aucune part dans le Monde-a-Venir decourage les penitents,</b> car Manasse s'est repenti et selon eux est neanmoins exclu du Monde-a-Venir. <b>Comme</b> le <b><i>tanna</i> enseignait</b> un <i>baraita</i> <b>avant Rabbi Yohanan : Manasse s'est repenti pendant trente-trois ans, comme il est ecrit : "Manasse avait douze ans quand il commenca a regner, et il regna cinquante-cinq ans a Jerusalem"¦Et il fit ce qui est mal"¦Et il fit une <i>ashera</i>, comme le fit Achab roi d'Israel"</b> (IIA Rois 21:1""3). <b>Combien</b> d'annees <b>Achab a-t-il regne ?</b> Il a regne <b>vingt-deux ans. Combien</b> d'annees <b>Manasse a-t-il regne ?</b> Il a regne <b>cinq</b> ans. <b>Deduisez-en</b> les <b>vingt-deux</b> annees pendant lesquelles il a fait le mal comme Achab, et <b>trente-trois</b> annees <b>restent pour qu'il</b> se soit repenti.
+
+### Partie 3
+<b>Rabbi Yohanan dit au nom de Rabbi Shimon ben Yohai : Quel</b> est le sens de ce <b>qui est ecrit : "Et il Le pria, et Il lui fit une ouverture"</b> (IIA Chroniques 33:13) ? Au lieu de cela : <b>Et Il recut sa supplique, aurait du etre</b> ecrit. Au contraire, cela <b>enseigne que le Saint, Beni soit-Il, lui a faconne une sorte d'ouverture dans le Ciel afin de l'accepter dans le repentir.</b> Il etait necessaire que Manasse entre dans le Monde-a-Venir de maniere clandestine, <b>en raison de l'attribut de justice</b> qui cherchait a empecher son entree en pretendant que sa sentence etait irreversible.
+
+### Partie 4
+§ <b>Et Rabbi Yohanan dit au nom de Rabbi Shimon ben Yohai : Quelle</b> est la signification de ce <b>qui est ecrit : "Au debut du regne de Jehoiakim, fils de Josias"</b> (Jeremie 26:1), <b>et il est ecrit : "Au commencement du regne de Sedecias"</b> (Jeremie 28:1). <b>Mais est-il vrai</b> que <b>jusqu'a present il n'y avait pas de rois ?</b> Pourquoi le prophete a-t-il utilise le terme "au commencement" exclusivement a propos de ces deux rois, par opposition a : Pendant la premiere annee de son regne, ou une formulation similaire ?
+
+### Partie 5
+<b>La raison de cette formulation inhabituelle est plutot que <b>Le Saint, Beni soit-Il, a cherche a restaurer le monde entier dans le chaos et le vide,</b> comme il l'etait au debut avant la Creation, <b>a cause de Jehoiakim</b> le mechant ; mais <b>Il a observe</b> la <b>generation de Jehoiakim,</b> qui comprenait les justes qui n'avaient pas encore ete exiles en Babylonie, <b>et Son esprit a ete mis a l'aise. </b> L'expression "au commencement" est utilisee pour signifier que c'est comme si le monde avait ete cree a nouveau.
+
+### Partie 6
+De meme, <b>Le Saint, Beni soit-Il, a cherche a ramener le monde entier au chaos et au neant,</b> comme au debut avant la Creation, <b>a cause de la generation de Sedecias,</b> car seuls les mechants sont restes apres l'exil des justes ; mais <b>Il a observe Sedecias et Son esprit a ete mis a l'aise.</b> La Gemara demande : <b>A propos de Sedecias, il est egalement ecrit : "Et il fit le mal aux yeux du Seigneur"</b> (IIA Rois 24:19) ; pourquoi l'esprit de Dieu etait-il tranquille ? La Guemara repond : Sedecias n'etait pas mechant ; plutot, <b>il avait</b> en son pouvoir de reprimander</b> les gens de sa generation <b>et il ne les a pas reprimandes</b>. Par consequent, leurs peches lui sont attribues.
+
+### Partie 7
+<b>Et Rabbi Yohanan dit au nom de Rabbi Shimon ben Yohai : Quel</b> est le sens de ce <b>qui est ecrit : "Si un sage conteste un insense, qu'il se fache ou qu'il rie, il n'y a pas de repos"</b> (Proverbes 29:9) ? <b>Le Saint, beni soit-Il, a dit : Je me suis mis en colere contre Achaz et je l'ai livre entre les mains des rois de Damas. Il</b> a alors <b>sacrifie</b> des offrandes <b>et brule</b> de l'encens <b>a leurs dieux, comme il est dit :" Il a sacrifie aux dieux de Damas qui l'ont frappe, et il a dit : Puisque les dieux des rois de Syrie les aident, je leur sacrifierai, et ils m'aideront. Mais ils ont été la ruine de lui et de tout IsraA "l"?"</b> (IIA Chroniques 28:23). Lorsque le Saint, Beni soit-Il, etait en colere contre Israel et leur faisait perdre une guerre pour les inciter a se repentir de leurs peches, leur reponse etait d'adorer des idoles.
+
+### Partie 8
+<b>J'ai souri a Amaziah et j'ai livre les rois d'Edom entre ses mains.</b> En reponse, <b>il a fait venir leurs dieux et s'est prosterne devant eux, comme il est dit : "Et il arriva qu'après qu'Amatsia eut frappé les èdomites, il fit venir les dieux des enfants de Seir et les éleva pour être ses dieux, il se prosterna devant eux et leur offrit de l'encens"</b> (IIA Chroniques 25:14). La réponse A la victoire A la guerre était la même, le culte des idoles. Ils sont incorrigibles. <b>Rav Pappa dit</b> que <b>ceci</b> est conforme a l'adage <b>que les gens disent : J'ai pleure pour le maitre et il ne savait pas, j'ai souri pour le maitre et il ne savait pas ; malheur au maitre qui ne sait pas</b> la distinction <b>entre le bon et le mauvais.</b> Le peuple juif avait egalement recours au culte des idoles aussi bien lorsque Dieu le recompensait que lorsqu'Il l'affligeait.
+
+### Partie 9
+En ce qui concerne le verset : <b>"Et tous les princes du roi de Babylonie entrerent et s'assirent a la porte du milieu [<i>shaâr hattavekh</i>]</b> (Jeremie 39 : 3), <b>Rabbi Yohanan a dit au nom de Rabbi Shimon ben Yohai:</b> <i>Shaâr hattavekh</i> etait <b>le lieu dans lequel ils</b> allaient <b>decider [<i>mehattekhin</i>] <i>halakhot</i>. Rav Pappa dit</b> que <b>ceci</b> est conforme a l'adage <b>que les gens disent : A l'endroit ou le maitre</b> de maison <b>pend ses armes, la le meprisable berger pend sa cruche.</b> A l'endroit ou le Sanhedrin s'est reuni, Nabuchodonosor le mechant et ses princes se rassemblent maintenant.
+
+### Partie 10
+§ La Guemara cite <b>un moyen mnemotechnique</b> pour les declarations suivantes : Rav Hisda a dit que Rabbi Yirmeya bar Abba a dit : <b>Par le champ, les maisons, ne tomberont pas.</b>
+
+### Partie 11
+<b>Rav Hisda dit</b> que <b>Rabbi Yirmeya bar Abba dit : Quel</b> est le sens de ce <b>qui est ecrit : "Je suis passe pres du champ d'un indolent, et pres de la vigne d'un homme depourvu d'intelligence ; et voici qu'elle etait envahie de chardons, que sa surface etait couverte d'orties, et que son mur de pierre etait brise"</b> (Proverbes 24:30""31) ? Ce verset decrit le declin spirituel et politique des rois de Judee. <b>J'ai passé par le champ d'un homme indolent" ; ceci</b> est une référence A <b>Ahaz. "Et pres de la vigne d'un homme depourvu d'intelligence" ; ceci</b> est une reference a <b>Manasse. "Et voici qu"?elle était couverte de chardons" ; ceci</b> est une référence A <b>Amon. "Et sa surface etait couverte d'orties" ; ceci</b> est une reference a <b>Jehoiakim. "Et son mur de pierre fut brise" ; ceci</b> est une reference a <b>Sedekiah, du temps duquel le Temple fut detruit.</b>
+
+### Partie 12
+Apropos de la declaration precedente, la Gemara cite une declaration supplementaire. <b>Et Rav Hisda dit</b> que <b>Rabbi Yirmeya bar Abba dit</b> que <b>quatre groupes ne recoivent pas la Presence Divine:</b> Cela concerne <b>le groupe des cyniques, le groupe des menteurs, le groupe des flatteurs,</b> et <b>le groupe des calomniateurs.</b> Cela concerne <b>le groupe des cyniques, comme il est ecrit : "Il a retiré sa main des cyniques"</b> (Osée 7:5), indiquant que Dieu s"?est distancé d"?eux. Cela concerne <b>le groupe des menteurs, comme il est ecrit : A "Celui qui dit des mensonges ne sera pas établi devant mes yeuxA" (Psaumes 101:7). Cela concerne <b>le groupe des flatteurs, comme il est ecrit : "Que le flatteur ne vienne pas devant Lui"</b> (Job 13:16). Cela concerne <b>le groupe des calomniateurs, comme il est dit : "Car Tu n'es pas un Dieu qui desire la mechancete ; le mal n'habitera pas avec Toi"</b> (Psaumes 5:5), ce qui signifie : <b>Tu es juste, et il n'y aura pas</b> de forme de <b>malheur dans Ta demeure.</b>
+
+### Partie 13
+<b>Et Rav Hisda dit</b> que <b>Rabbi Yirmeya bar Abba dit : Quel</b> est le sens de ce <b>qui est ecrit : <b>Aucun mal ne t'atteindra, aucune plaie ne s'approchera de ta tente"</b> (Psaumes 91.10) ? <b>"Aucun mal ne vous atteindra"</b> signifie <b>que le mauvais penchant ne les dominera pas. "Aucun fleau n'approchera de ta tente"</b> signifie <b>que tu ne trouveras jamais ta femme</b> dans un etat d'<b>incertitude</b> quant a savoir si elle a le statut halakhique d'une <b>femme en periode de menstruation lorsque tu reviens d'un voyage.</b> Apres une periode de separation, lorsqu'un mari desire sa femme, son statut incertain peut s'averer plus frustrant qu'une situation ou l'interdiction est claire et nette.
+
+### Partie 14
+<b>Alternativement,</b> la phrase <b>"Aucun mal ne t'atteindra"</b> signifie <b>que tu ne seras effraye ni par de mauvais reves ni par de mauvaises pensees. "Aucune peste ne s"?approchera de ta tente"</b> signifie <b>que tu n"?auras pas d"?enfant ou d"?élève qui fait trop cuire sa nourriture en public,</b> c"?est-A -dire qui pèse en public et fait pécher les autres, <b>comme</b> dans le cas bien connu de <b>Jésus le Nazaréen.</b>
+
+### Partie 15
+<b>Jusqu'a ce point</b> dans le psaume, le <b>pere de Salomon,</b> David, <b>l'a beni,</b> car ce sont des benedictions appropriees pour qu'un pere benisse son fils. <b>A partir de ce</b> point, sa mere l'a beni,</b> comme ce sont des benedictions appropriees pour une mere de benir son fils. <b>Car il ordonnera a ses anges de te preserver dans toutes tes voies. Ils te porteront sur leurs mains,</b> de peur qu'ils ne heurtent ton pied contre une pierre. <b>Tu marcheras sur le lion et la vipere;</b> tu fouleras aux pieds le lionceau et le crocodile" (Psaumes 91:11""13).
+
+### Partie 16
+<b>Jusqu'a ce point</b> du psaume, <b>sa mere le benissait. A partir de ce</b> point, <b>a partir de maintenant,</b> Dieu au <b>Ciel l'a beni,</b> car le psaume procede a une reference a Dieu a la premiere personne, comme s'il parlait en son nom :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

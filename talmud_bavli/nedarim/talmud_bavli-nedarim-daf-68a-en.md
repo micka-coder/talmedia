@@ -1,0 +1,18 @@
+
+### Part 1
+<b>The school of Rabbi Yishmael taught</b> a different source for the <i>halakha</i> in the mishna: The Torah states with regard to vows: “These are the statutes, which the Lord commanded Moses, <b>between a man and his wife, between a father and his daughter,</b> being in her youth, in her father’s house” (Numbers 30:17). <b>From here</b> it is derived <b>with regard to a betrothed young woman that her father and her husband nullify her vows.</b> The Gemara asks: <b>And according to the <i>tanna</i> of the school of Rabbi Yishmael, what does he do</b> with the words “and <b>if she be to a husband”</b> (Numbers 30:7)?
+
+### Part 2
+The Gemara answers: According to him, he <b>establishes</b> it <b>to</b> teach the <b>other</b> statement <b>of Rava</b> statement: If her betrothed died without ratifying the vow, her father can nullify it on his own. The Gemara then asks: <b>And Rava,</b> who derives the <i>halakha</i> that the father and the betrothed of the young woman together nullify her vows from the phrase “and if she be to a husband” (Numbers 30:7), <b>what does he do with this</b> verse <b>that the school of Rabbi Yishmael taught</b> as the source for the father and the betrothed nullifying the young woman’s vows? The Gemara answers: <b>He requires that</b> phrase: “Between a man and his wife” (Numbers 30:17), in order <b>to say that the husband can nullify</b> only <b>vows that are between him and her,</b> i.e., vows that negatively impact their marital relationship, but he cannot nullify any other type of vow.
+
+### Part 3
+§ <b>A dilemma was raised before</b> the Sages: If <b>a husband</b> nullifies his betrothed’s vow, does he <b>sever</b> his share of the vow <b>or</b> does he <b>weaken</b> the force of the entire vow? The Gemara clarifies: Under <b>which</b> circumstances <b>do we raise the dilemma,</b> i.e., what is the practical difference between these two possibilities? In a case <b>where she vowed</b> not to derive benefit <b>from two olives, and</b> her <b>betrothed heard and nullified</b> the vow <b>for her, and</b> she <b>ate those</b> two olives before her father nullified the vow, there is a practical difference.
+
+### Part 4
+<b>If we say</b> that he <b>severs</b> his share of the vow, nullifying half of the prohibition, then one of the olives remains completely forbidden, and she <b>is flogged</b> for violating her vow. <b>If we say</b> that he <b>weakens</b> its force, she is not liable to be flogged, as eating the olives <b>is</b> now <b>merely a prohibition</b> that she has violated. If so, <b>what</b> is the ruling with regard to this question?
+
+### Part 5
+The Gemara now cites a lengthy <i>baraita</i>, ultimately stating a proof to answer the previous question. <b>Come</b> and <b>hear</b> a <i>baraita</i> that will resolve the dilemma: <b>When did they say</b> that if <b>the husband</b> of a betrothed young woman <b>dies,</b> the <b>authority</b> to nullify her vows <b>reverts to the father,</b> who can then nullify her vows on his own? This occurs in a case <b>when the husband had not heard</b> her vow <b>before he died; or</b> in a case <b>where he heard and was silent; or where he heard and nullified</b> it <b>and died on the same day. This is what we learned</b> in the mishna, concerning a case of this kind (70a): If <b>the husband dies,</b> the <b>authority</b> to nullify vows <b>reverts to the father.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

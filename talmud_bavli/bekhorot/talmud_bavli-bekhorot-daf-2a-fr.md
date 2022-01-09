@@ -1,0 +1,39 @@
+
+### Partie 1
+<strong>MISHNA : </strong>En ce qui concerne <b>celui qui achete le fœtus d'un ane appartenant a un Gentil, et celui qui vend</b> le fœtus de son ane <b>a</b> un Gentil <b>bien qu'il ne lui soit pas permis</b> de vendre un gros animal a un Gentil, et <b>celui qui s'associe avec</b> un Gentil pour la propriete d'un ane ou de son fœtus, <b>et celui qui recoit</b> un ane <b>de la part d'un Gentil afin d'en prendre soin en echange d'un partenariat dans sa progeniture, <b>et celui qui donne</b> son ane <b>a</b> un Gentil <b>en sequestre,</b> dans tous ces cas, les anes sont <b>exempts des</b> obligations du statut de <b>premier-ne,</b> c'est-a-dire qu'il est interdit de les vendre a un Gentil. e., ils n'ont pas le statut de premier-ne et ne sont pas rachetes, <b>comme il est dit :</b> "J'ai sanctifie pour Moi tous les premiers-nes <b>en Israel,</b> aussi bien les hommes que les animaux" (Nombres 3:13), indiquant que la mitzva incombe au peuple juif, <b>mais pas aux autres.</b> Si le premier-ne appartient meme partiellement a un Gentil, il n'a pas le statut de premier-ne.
+
+### Partie 2
+<strong>GEMARA : </strong>La Gemara demande : <b>Pourquoi ai-je</b> besoin de <b>tous ces</b> exemples dans la mishna pour demontrer le principe selon lequel un ane premier-ne doit appartenir exclusivement a un juif pour que les obligations du statut de premier-ne s'appliquent ?
+
+### Partie 3
+La Gemara explique : Tous ces exemples <b>sont necessaires. Comme, si</b> le <i>tanna</i> <b>enseignait</b> qu'un ane est exempte des obligations du statut de premier-ne uniquement dans le cas ou un juif <b>achete</b> un fœtus a un Gentil, <b>je dirais</b> que c'est <b>parce que</b> le juif <b>le porte a</b> un etat de <b>saintete</b> dans la mesure ou il ne sera pas travaille le Chabbat. <b>Mais</b> dans le cas ou un Juif <b>vend</b> le fœtus de son ane a un Gentil, <b>ou il abroge</b> son etat de <b>saintete,</b> je dirais <b>que les Sages <b>doivent le penaliser [<i>likneseih</i>]</b> pour ses actions en rendant le fœtus soumis aux obligations du statut de premier-ne. Par consequent, la mishna <b>nous apprend</b> qu'il est exempte de ces obligations.
+
+### Partie 4
+<b>Et pourquoi ai-je</b> besoin du mishna pour enoncer le cas de <b>ceux qui s'associent</b> a un Gentil ? Le cas est necessaire <b>pour exclure</b> l'opinion <b>de Rabbi Yehuda, qui dit :</b> Un animal possede en <b>partenariat</b> avec <b>un Gentil est oblige,</b> c'est-a-dire sujet a comptabiliser sa progeniture <b>comme un premier-ne.</b> Par consequent, la mishna <b>nous enseigne que</b> il <b>est exempte de</b> sa progeniture etant comptee <b>comme un premier-ne.</b>
+
+### Partie 5
+<b>Et pourquoi ai-je</b> besoin de la mishna pour affirmer que le fœtus n'a pas le statut de premier-ne dans le cas de <b>celui qui recoit</b> un ane d'un Gentil en echange d'un partenariat dans sa descendance ? Cette <i>halakha</i> est deja incluse dans la precedente. La Guemara repond : C'est <b>parce que</b> la <i>tanna</i> <b>voulait enseigner</b> dans le cas parallele de : <b>Et celui qui donne</b> son ane <b>a</b> un Gentil <b>en sequestre,</b> que sa progeniture n'a pas le statut de premier-ne.
+
+### Partie 6
+<b>Et pourquoi ai-je</b> besoin que le cas de <b>celui qui donne</b> son ane <b>a</b> un Gentil <b>en sequestre</b> soit enonce ? Il <b>etait necessaire,</b> car il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque l'animal primaire appartient au Juif,</b> les Sages <b>doivent le penaliser</b> en traitant la progeniture comme un premier-ne et en exigeant qu'elle soit rachetee, <b>De peur</b> que ce cas ne soit confondu avec un autre</b> cas d'un <b>animal</b> que le Juif confie a la garde d'un Gentil, ou le Gentil ne possede pas de droits sur la progeniture, et celle-ci est comptee comme un premier-ne. Par consequent, la mishna <b>nous apprend</b> qu'il n'est pas penalise.
+
+### Partie 7
+§ La Guemara cite une discussion ou la mishna est utilisee comme une preuve : <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (<i>Avoda Zara</i> 14b) a propos de l'interdiction de vendre du gros betail a un Gentil par crainte qu'il soit travaille le Chabbat : <b>Rabbi Yehuda juge</b> la vente <b>d'un animal endommage</b> <b>permise</b> car il est incapable d'effectuer un travail, <b>et ben Beteira juge</b> la vente <b>d'un cheval</b> pour le monter <b>permise,</b> car monter a cheval le Chabbat n'est pas interdit par la loi de la Torah.
+
+### Partie 8
+<b>Un dilemme a ete souleve devant</b> les Sages : En ce qui concerne <b>un fœtus, que</b> me dirait <b>Rabbi Yehuda</b> de le vendre a un Gentil ? La <b>raison pour laquelle Rabbi Yehuda juge</b> la vente de l'animal <b>permise la parce que</b> il est <b>endommage</b> et qu'il ne peut pas travailler, <b>et un fœtus est egalement endommage</b> dans le sens ou il ne peut pas travailler ? <b>Ou, peut-etre</b> est-il permis de vendre <b>un animal endommage</b> car <b>ce n'est pas son etat naturel</b> ; il est defectueux et n'est donc pas inclus dans l'interdiction de vendre du gros betail. <b>Mais</b> en ce qui concerne <b>un fœtus, puisque c'est son etat naturel</b> et qu'il deviendra capable de travailler apres avoir grandi, peut-etre qu'il <b>n'est pas</b> considere comme <b>endommage,</b> puisqu'il n'est pas defectueux.
+
+### Partie 9
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une resolution du dilemme a partir de la mishna : <b>Et celui qui vend</b> le fœtus de son ane <b>a</b> un Gentil, son ane est exempte des obligations du statut de premier-ne, <b>bien que</b> le proprietaire <b>ne soit pas autorise</b> a le faire. <b>Et Rabbi Yehuda n'est pas en desaccord</b> et affirme qu'il peut le vendre. Apparemment, Rabbi Yehuda est d'accord pour dire qu'il est interdit de vendre le fœtus de son animal a un Gentil.
+
+### Partie 10
+La Guemara rejette cette resolution : <b>Et selon votre raisonnement,</b> concernant les autres cas de la mishna, a savoir, <b>celui qui s'associe</b> a un Gentil, <b>et celui qui recoit</b> un ane <b>de</b> un Gentil en echange d'une association dans sa progeniture, <b>et celui qui donne</b> son ane <b>a</b> un Gentil <b>en sequestre,</b> a l'egard desquels <b>la mishna <b>n'enseigne pas</b> que Rabbi Yehuda est en desaccord, <b>aussi</b> cela indique-t-il <b>qu'il n'est pas en desaccord</b> avec la decision de la mishna dans ces cas ? C'est impossible, car Rabbi Yehuda soutient qu'un animal soumis a un partenariat entre un Juif et un Gentil est sujet a comptabiliser sa progeniture comme un premier-ne, comme cela ressort d'une <i>baraita</i> qui sera bientot citee.
+
+### Partie 11
+<b>Au contraire,</b> manifestement Rabbi Yehuda <b>n'est pas d'accord, mais</b> la mishna <b>n'enseigne pas</b> son opinion. <b>Ici aussi,</b> en ce qui concerne la vente du fœtus, <b>il n'est pas d'accord, mais</b> la mishna <b>n'enseigne pas</b> son opinion.
+
+### Partie 12
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une resolution d'un <i>baraita</i> : <b>Rabbi Yehuda dit</b> que dans le cas de <b>celui qui recoit un animal d'un Gentil</b> pour le soigner et recoit une partie de la progeniture en echange de son travail, <b>et il a donne naissance</b> a un premier-ne, <b>ils evaluent sa valeur, et</b> le Juif <b>donne la moitie de sa valeur au pretre</b> pour racheter sa part, qui est sanctifiee par le statut de premier-ne. <b>Et</b> dans le cas de <b>celui qui donne</b> au Gentil un animal <b>sous sequestre alors qu'il n'est pas autorise</b> a le faire, les Sages le <b>penalisent</b> en exigeant qu'il achete la portion du Gentil de l'animal pour <b>jusqu'a dix</b> fois <b>sa valeur, et qu'il donne toute sa valeur au pretre.</b>
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

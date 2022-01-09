@@ -1,0 +1,63 @@
+
+### Part 1
+<strong>GEMARA:</strong> The Gemara suggests: <b>Let us say</b> that it is evident from the mishna that <b>Rabbi Meir holds</b> that <b>a prohibition takes effect</b> where another <b>prohibition</b> already exists. The Gemara counters: <b>Although he does not</b> generally <b>hold</b> that <b>a prohibition takes effect</b> where another <b>prohibition</b> already exists, with regard to a more <b>inclusive prohibition and an expanded prohibition, he holds</b> that the second prohibition does take effect where a prohibition already exists. Under certain circumstances a second prohibition takes effect, and under other circumstances it does not. When the second prohibition is an expanded or inclusive prohibition, it takes effect.
+
+### Part 2
+Therefore, in the case in the mishna of a ritually impure person who ate leftover forbidden fat from an offering, one who was <b>initially pure was prohibited</b> from eating the food <b>only</b> due to the prohibition <b>of</b> forbidden <b>fat.</b> Once the person <b>became impure, since he</b> became <b>prohibited from</b> eating even <b>pure pieces</b> of sacrificial meat, an additional <b>prohibition is also added</b> to the forbidden <b>fat.</b> The prohibition against an impure person eating sacrificial meat is considered an inclusive prohibition, and therefore it takes effect even though the prohibition against eating forbidden fat already applied.
+
+### Part 3
+<b>And</b> likewise, the forbidden <b>fat was initially forbidden only in consumption.</b> When he <b>consecrated</b> the animal, it became prohibited to derive benefit from it in any manner. Therefore, <b>since the prohibition</b> against <b>deriving</b> any form of <b>benefit was added to it, it was</b> also <b>added with regard to</b> eating the forbidden <b>fat.</b> Consequently, the prohibition against misusing consecrated property, which is an expanded prohibition, applies even to one who eats the forbidden fat.
+
+### Part 4
+<b>And still,</b> the consecrated forbidden fat is <b>prohibited</b> only <b>to an ordinary</b> person, <b>but it is permitted to the Most High,</b> i.e., the altar. When <b>it becomes leftover, since a prohibition was added with regard to the Most High,</b> as it is now prohibited to sacrifice it upon the altar, the expanded prohibition of leftover sacrificial meat is <b>added with regard to an ordinary</b> person as well. If <b>Yom Kippur,</b> during which the person is prohibited from eating anything, <b>takes effect with regard to it, since a prohibition was added with regard to</b> eating <b>non-sacred</b> food, a prohibition <b>is</b> also <b>added with regard to</b> food that had been consecrated <b>to the Most High.</b> The prohibition against eating on Yom Kippur is an inclusive prohibition, and therefore it takes effect even with regard to eating leftover sacrificial meat.
+
+### Part 5
+The Gemara objects: <b>And let</b> the mishna <b>teach:</b> There is a case where one can perform a single act of eating an olive-bulk of food and be liable to bring <b>five sin offerings,</b> rather than four, <b>and interpret it</b> as a case <b>where he ate an olive-bulk</b> from <b>an offering that was sacrificed with the intent to consume it after its appointed time [<i>piggul</i>].</b> The Gemara explains: The mishna is <b>referring</b> to a case <b>of one animal,</b> but is <b>not referring</b> to a case <b>of two animals, and you do not find</b> a case where the prohibitions of <b>leftover</b> sacrificial meat [<i>notar</i>] <b>and <i>piggul</i></b> apply <b>to one animal.</b> From the moment an offering is rendered <i>piggul</i> it may not be sacrificed or eaten, and therefore it is not subject to the prohibition of <i>notar</i>.
+
+### Part 6
+The Gemara asks: <b>Why</b> is it <b>not</b> possible for the prohibitions of <i>notar</i> and <i>piggul</i> to apply to the same animal? <b>You find it</b> in a case <b>where one brought upon the altar a limb</b> from an offering that was <b><i>piggul</i>, as</b> from that time <b>its <i>piggul</i></b> status has <b>been abrogated, and it becomes <i>notar</i></b> once the time that it may be sacrificed has passed.
+
+### Part 7
+<b>And</b> this is <b>as Ulla says:</b> In the case of <b>a handful of</b> a meal offering that is <b><i>piggul</i> that one brought upon the altar, its <i>piggul</i></b> status has <b>been abrogated and it becomes leftover.</b> Consequently, he is liable with regard to the limb that was offered for violating the prohibition of <i>notar</i>, and is liable with regard to the rest of the animal for violating the prohibition of <i>piggul</i>. The Gemara answers: The mishna is <b>referring to one limb,</b> but it is <b>not referring to two limbs, and you do not find <i>notar</i> and <i>piggul</i> with regard to one limb.</b>
+
+### Part 8
+The Gemara asks: <b>Why</b> is there <b>no</b> such case? <b>You find it</b> in a situation <b>where one brought a limb</b> from <b>a <i>piggul</i></b> offering <b>upon the altar,</b> and <b>he placed half of it upon the altar and half of it outside of the altar.</b> In such a case, with regard to <b>that</b> portion of the limb which he placed upon the <b>altar,</b> its <b><i>piggul</i></b> status has <b>been abrogated and it becomes <i>notar</i>. And</b> this is <b>as Ulla says:</b> In the case of <b>a handful of</b> a meal offering that is <b><i>piggul</i> that one brought upon the altar, its <i>piggul</i></b> status has <b>been abrogated and it becomes <i>notar</i>.</b> By contrast, the part of the limb that was not placed upon the altar retains its status as <i>piggul</i>.
+
+### Part 9
+The Sage answering the question <b>said to</b> the questioner: <b>No,</b> the status of <i>piggul</i> cannot be abrogated from part of a limb. Rather, if <b>the majority</b> of the limb is <b>on the altar,</b> then <b>throw it on the altar,</b> i.e., the entire limb has the status of being on the altar. If <b>the majority</b> of the limb is <b>outside</b> the altar, <b>throw it outside,</b> i.e., it is considered as though the limb was not placed on the altar at all.
+
+### Part 10
+The Gemara objects: If so, one can <b>resolve</b> the dilemma <b>that Rami bar Ḥama raised:</b> Does one <b>follow the majority with regard to limbs or not?</b> According to the previous interpretation of the mishna, one does follow the majority with regard to limbs. The Gemara explains: <b>Rather,</b> the reason that the mishna did not mention the prohibition of <i>piggul</i> is that it is <b>referring to</b> the consumption of <b>one olive-bulk</b> of forbidden fat, and is <b>not referring to two olive-bulks.</b> Even if parts of one limb can have the status of <i>piggul</i> and other parts can be leftover sacrificial meat, one single olive-bulk cannot have both statuses.
+
+### Part 11
+The Gemara asks: <b>And</b> is the mishna <b>not</b> referring to a case of more than one olive-bulk? <b>But isn’t it taught</b> that one is liable to bring a sin offering for eating on <b>Yom Kippur, and on Yom Kippur</b> it is only eating the <b>volume of a large date that obligates</b> one to bring a sin offering, <b>and</b> the <b>volume of a large date contains</b> the volume of <b>two olives?</b>
+
+### Part 12
+<b>Rabbi Zeira said:</b> It is referring to a case <b>where he eats a kidney with the fat</b> attached to <b>it.</b> He is liable to bring three of the sin offerings enumerated in the mishna for eating the olive-bulk of fat, and the additional amount of kidney he eats brings his total consumption to the volume of a large date, so that he is liable for eating on Yom Kippur. <b>Rav Pappa said:</b> It is referring to a case <b>where he</b> ate an olive-bulk of the fat and <b>completed</b> the volume of a large date <b>with dates.</b>
+
+### Part 13
+<b>Rav Adda bar Aḥa teaches</b> that the mishna is stating that one can be liable to bring <b>five sin offerings</b> for one act of eating, not just four, <b>and he interprets it</b> to be referring to a case <b>where one ate an olive-bulk of <i>piggul</i></b> from another animal together with the olive-bulk of forbidden fat, <b>and he does not answer</b> in accordance <b>with these answers that we answered</b> in the name of Rav Pappa and Rabbi Zeira.
+
+### Part 14
+The Gemara objects: <b>And let</b> the mishna <b>teach</b> that one can be liable to bring <b>six sin offerings, and interpret it</b> as referring to a case <b>where he consumed an olive-bulk of blood</b> in addition to the other two olive-bulks. The Gemara explains: The mishna is <b>referring to one</b> act of <b>eating,</b> but is <b>not referring to two</b> acts of <b>eating, and the Sages calculated that</b> one’s <b>throat does not hold more than two olive-bulks</b> at once.
+
+### Part 15
+§ The mishna teaches that <b>Rabbi Meir says:</b> If it was Shabbat and he carried it out from the private domain into the public domain while eating it, he would be liable to bring a sin offering for performing a prohibited labor on Shabbat. The Gemara objects: <b>And let</b> the mishna <b>teach: If he carried it out</b> he is <b>liable,</b> as the mishna is referring to one who ate on Yom Kippur, which is also a day when labor is prohibited. <b>What is the reason</b> that it <b>teaches: If it was Shabbat</b> and he carried it out he is liable? Why mention Shabbat at all? <b>Rafram said: That is to say</b> that the <b>joining</b> of courtyards in order to permit carrying, <b>and</b> the general prohibition against <b>carrying</b> from one domain to another, apply <b>with regard to Shabbat,</b> but the <b>joining</b> of courtyards <b>and</b> the prohibition against <b>carrying do not</b> apply <b>with regard to Yom Kippur.</b>
+
+### Part 16
+The Gemara asks: <b>From where</b> is this conclusion derived? <b>Perhaps</b> the <b>joining</b> of courtyards <b>and</b> the prohibition against <b>carrying do</b> apply <b>to Yom Kippur, and this</b> is what the mishna <b>is teaching: If it was Shabbat and he carried it out</b> from one domain to another he is <b>liable due to</b> the prohibition against carrying on <b>Shabbat and also</b> due to the prohibition against carrying on <b>Yom Kippur.</b>
+
+### Part 17
+<b>Rather, if</b> the statement <b>of Rafram was stated,</b> it <b>was stated with regard to this</b> case, <b>as it is taught</b> in a <i>baraita</i>: The verse states with regard to the scapegoat of Yom Kippur: <b>“And he shall send it away with an appointed man</b> into the wilderness” (Leviticus 16:21). The word <b>“man”</b> is mentioned in order <b>to render a non-priest fit</b> for this task. The term <b>“appointed”</b> indicates that the scapegoat is always sent away at the appropriate time, <b>even</b> when the appointed man is <b>in</b> a state of <b>ritual impurity, and even</b> when Yom Kippur occurs <b>on Shabbat.</b> In addition, the word <b>“appointed”</b> is referring <b>to</b> one who was <b>designated</b> for the task the day before.
+
+### Part 18
+The <i>baraita</i> <b>taught</b> that the word <b>“appointed”</b> indicates that the scapegoat is sent away <b>even on Shabbat,</b> and in this context <b>Rafram says: That is to say</b> that the <b>joining</b> of courtyards <b>and</b> the prohibition against <b>carrying</b> apply <b>with regard to Shabbat,</b> but the <b>joining</b> of courtyards <b>and</b> the prohibition against <b>carrying do not</b> apply <b>with regard to Yom Kippur.</b>
+
+### Part 19
+The Gemara objects to Rafram’s inference: <b>From where</b> does he cite proof for this inference? The case of <b>the scapegoat is different, as its validity on Yom Kippur is in this</b> manner. Even if the prohibition against carrying does apply on Yom Kippur, the Torah explicitly commanded that the scapegoat be sent away on that day, and therefore it is permitted. <b>Rather,</b> the statement cited in the name <b>of Rafram is an error [<i>beruta</i>],</b> and it was not actually stated in the study hall.
+
+### Part 20
+<strong>MISHNA:</strong> <b>There is</b> a case where <b>one</b> can <b>engage in a single</b> act of <b>intercourse and</b> be <b>liable</b> to bring <b>six sin offerings for it. How so?</b> It is possible for <b>one who engages in intercourse with his daughter</b> to be <b>liable due to</b> having violated the prohibitions of engaging in intercourse with <b>his daughter, his sister, the wife of his brother, the wife of his father’s brother, a married woman, and a menstruating woman.</b>
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

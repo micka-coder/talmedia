@@ -1,0 +1,87 @@
+
+### Part 1
+<b>and she descended</b> to the ritual bath <b>and immersed</b> for the sake of conversion, <b>what is</b> the <i>halakha</i>?
+
+### Part 2
+Once again, the Gemara explains the dilemma: <b>If you say</b> that <b>we follow</b> the moment of <b>uprooting even though she can hold in</b> the urine, nevertheless one can claim that <b>this statement</b> applies specifically to <b>a Jewish woman, who is impure by Torah law. But</b> with regard to <b>a gentile <i>zava</i>, who is impure by rabbinic law,</b> it is possible that one does <b>not</b> follow the moment of uprooting. <b>Or perhaps</b> there <b>is no difference</b> in the application of this principle between the case of a Jewish woman and a gentile woman, as in both cases one follows the moment of uprooting. The Gemara again concludes that the dilemma <b>shall stand</b> unresolved.
+
+### Part 3
+§ The mishna teaches that the emission of a <i>zav</i> and a seminal emission <b>impart impurity in any amount. Shmuel says:</b> In order for <b>a <i>zav</i></b> to become ritually impure, he <b>must</b> experience a discharge substantial enough <b>to</b> cause <b>a blockage of the tip of the penis, as it is stated:</b> “And this shall be his impurity in his issue: Whether his flesh run with his issue, <b>or his flesh be stopped from his issue,</b> it is his impurity” (Leviticus 15:3).
+
+### Part 4
+The Gemara asks: <b>But didn’t we learn</b> in the mishna that the emission of a <i>zav</i> and a seminal emission <b>impart impurity in any amount?</b> The Gemara answers that Shmuel <b>said</b> his ruling <b>in accordance with</b> the statement of <b>Rabbi Natan, as it is taught</b> in a <i>baraita</i> that <b>Rabbi Natan says in the name of Rabbi Yishmael:</b> In order for <b>a <i>zav</i></b> to become ritually impure, he <b>must</b> experience a discharge substantial enough <b>to</b> cause <b>a blockage of the tip of the penis, but</b> the Rabbis <b>did not concede to his</b> opinion, as they maintain that any amount is sufficient. The <i>tanna</i> of the mishna agrees with the opinion of the Rabbis, whereas Shmuel agrees with the statement of Rabbi Natan in the name of Rabbi Yishmael.
+
+### Part 5
+The Gemara asks: <b>What is the reason</b> for the opinion <b>of Rabbi Yishmael,</b> i.e., what is the source in the Torah for his ruling? The Gemara answers: His source is, as mentioned above, <b>that the verse states:</b> “And this shall be his impurity in his issue: Whether his flesh run with his issue, <b>or his flesh be stopped from his issue,</b> it is his impurity” (Leviticus 15:3). This verse indicates that the emission must be enough to cause a blockage of his penis.
+
+### Part 6
+The Gemara asks: <b>And the Rabbis,</b> who disagree with Rabbi Yishmael, what do they derive from this verse? The Gemara explains that according to the Rabbis, <b>that</b> verse <b>is necessary</b> to teach a different <i>halakha</i> with regard to a <i>zav</i>, that it is only a discharge which is <b>moist,</b> and which therefore could cause a blockage of the organ, that <b>imparts impurity, but a dry</b> discharge does <b>not impart impurity.</b>
+
+### Part 7
+The Gemara asks: <b>And</b> from where does <b>Rabbi Yishmael</b> derive that only a moist discharge imparts impurity? The Gemara answers: <b>That</b> <i>halakha</i> <b>is derived from</b> the word <b>“run”</b> in the verse “And this shall be his impurity in his issue: Whether his flesh run with his issue.”
+
+### Part 8
+The Gemara asks: <b>And</b> what do <b>the Rabbis</b> derive from this word? The Gemara explains that according to the Rabbis, <b>that</b> verse <b>comes to</b> teach the <b>number</b> of emissions by which a <i>zav</i> is rendered impure, as follows: The term <b>“his issue”</b> is <b>one</b> emission, the term <b>“his flesh run”</b> is another emission so that there are <b>two</b> emissions, and the term <b>“with his issue”</b> makes a total of <b>three</b> emissions. The verse thereby <b>teaches with regard to a <i>zav</i> who experienced three emissions that</b> he <b>is obligated to</b> bring <b>an offering</b> as part of his purification process.
+
+### Part 9
+The Gemara continues: From the last section of the verse: <b>“Or his flesh be stopped from his issue,</b> it is his <b>impurity,”</b> it is derived that one is <b>impure</b> even by means of <b>part of his issue,</b> i.e., even if he did not experience three emissions. Here the verse <b>teaches with regard to a <i>zav</i> who experienced two emissions that</b> although he is not obligated to bring an offering, he <b>renders</b> a surface designated for <b>lying and</b> a surface designated for <b>sitting ritually impure</b> by lying or sitting on them, even without touching them directly. The Gemara asks: <b>And Rabbi Yishmael, from where does he</b> derive this <i>halakha</i> of the requisite <b>number</b> of emissions? The Gemara answers that <b>he derives it from that</b> which <b>Rabbi Simai</b> said.
+
+### Part 10
+<b>As it is taught</b> in a <i>baraita</i> that <b>Rabbi Simai says: The verse enumerated two</b> emissions <b>and called</b> the <i>zav</i> <b>impure:</b> “When any man has an emission out of his flesh, due to his issue he is impure” (Leviticus 15:2). And yet, another verse enumerates <b>three</b> emissions <b>and it</b> too <b>called him impure:</b> “And this shall be his impurity in his emission: Whether his flesh runs with his emission, or his flesh be stopped from his emission, it is his impurity” (Leviticus 15:3). <b>How</b> can <b>these</b> verses be reconciled? If one is impure after two emissions, for what purpose does the Torah mention three? It is to teach that <b>two</b> emissions are necessary <b>to</b> establish <b>impurity, and three</b> are necessary <b>to</b> render a <i>zav</i> liable to bring <b>an offering.</b>
+
+### Part 11
+The Gemara asks: <b>And according to the one who derives both</b> the <i>halakha</i> of impurity and the obligation to bring an offering <b>from</b> the single verse: “And <b>this shall be his impurity in his issue,” what do they,</b> i.e., the Rabbis, <b>do with</b> the other verse: <b>“When any man has an emission out of his flesh”?</b> The Gemara answers that this verse is <b>necessary</b> to teach the <i>halakha</i> that a <i>zav</i> is not impure <b>unless</b> the discharge <b>emerges from his flesh.</b>
+
+### Part 12
+The Gemara further asks: <b>Why do I</b> need the last part of the previous verse, which can be read as: <b>His issue is impure</b> (Leviticus 15:2)? The Gemara explains that this <b>teaches with regard to the issue</b> itself <b>that it is impure,</b> i.e., not only does it render the man who emitted it impure, but the substance itself is impure and imparts impurity to others by contact.
+
+### Part 13
+§ With regard to the statement of the mishna that the issue of the <i>zav</i> and a seminal emission render them impure in any amount, <b>Rav Ḥanilai says in the name of Rabbi Elazar, son of Rabbi Shimon: Semen</b> imparts impurity <b>to</b> the man who <b>emits</b> it <b>in any amount,</b> whereas <b>with regard to one who touches</b> semen, it imparts impurity only <b>in</b> the amount of <b>a lentil-bulk.</b> The Gemara asks: <b>But didn’t we learn</b> in the mishna that the emission of a <i>zav</i> and a seminal emission <b>impart impurity in any amount? What, is it not</b> referring to <b>one who touches</b> semen? The Gemara answers: <b>No,</b> the mishna is referring <b>to</b> the man who <b>emits</b> it.
+
+### Part 14
+The Gemara suggests: <b>Come</b> and <b>hear</b> a proof from a <i>baraita</i>: There is an element of <b>stringency</b> which applies <b>to</b> the impurity of <b>semen that</b> does not apply <b>to</b> the impurity of the carcass of <b>a creeping animal, and</b> likewise there is an element of <b>stringency</b> which applies <b>to</b> the impurity of the carcass of <b>a creeping animal that</b> does not apply <b>to</b> the impurity of <b>semen.</b> The <i>baraita</i> elaborates: The <b>stringency</b> which applies <b>to</b> the carcass of <b>a creeping animal</b> but not to semen is <b>that</b> with regard to the carcass of <b>a creeping animal there is no differentiation in its impurity, which is not the case with regard to semen,</b> as certain types of semen impart impurity while others do not. The <b>stringency</b> which applies <b>to semen</b> but not to the carcass of a creeping animal is <b>that semen imparts impurity in any amount, which is not the case with regard to</b> the carcass of <b>a creeping animal,</b> which must be at least a lentil-bulk.
+
+### Part 15
+The Gemara analyzes this <i>baraita</i>: <b>What, is it not</b> referring <b>to one who touches</b> semen, and the <i>baraita</i> rules that he is rendered impure by any amount? The Gemara again answers: <b>No,</b> the <i>baraita</i> is speaking <b>of</b> the man who <b>emits</b> semen, whereas one who touches it becomes impure only if it is at least as large as a lentil-bulk.
+
+### Part 16
+The Gemara raises a difficulty with regard to this answer: <b>But</b> the <i>baraita</i> <b>teaches</b> the case of semen as <b>similar to</b> that of the carcass of <b>a creeping animal,</b> which indicates that <b>just as</b> the impurity of the carcass of <b>a creeping animal</b> is imparted <b>by contact, so too,</b> the impurity discussed in the <i>baraita</i> with regard to <b>semen</b> is imparted <b>by contact. Rav Adda bar Ahava said</b> in response: The <i>baraita</i> <b>teaches the category of</b> the carcass of <b>a creeping animal, and</b> it likewise <b>teaches the category of semen,</b> i.e., it is referring to these types of impurity in general, but this does not mean that these types of impurity are contracted in the same manner.
+
+### Part 17
+The Gemara asks: <b>And does</b> the carcass of <b>a creeping animal not impart impurity in any amount? But didn’t we learn</b> in a mishna (<i>Oholot</i> 1:7): <b>The limbs</b> of impure bodies that are whole <b>have no</b> minimum <b>measure</b> with regard to imparting ritual impurity. Even if a limb is <b>less than an olive-bulk of</b> a human <b>corpse, or less than an olive-bulk of an animal carcass, or less than a lentil-bulk of</b> the carcass of <b>a creeping animal,</b> it imparts ritual impurity. If so, how can the <i>baraita</i> state that there is a minimum measure of a lentil-bulk with regard to the impurity of a creeping animal?
+
+### Part 18
+The Gemara answers that the <i>halakha</i> of <b>a limb is different, as</b> when <b>all of it</b> is intact <b>it stands in place of a lentil</b>-bulk, i.e., a whole limb is considered like a lentil-bulk of the carcass of a creeping animal, regardless of its actual size. The proof is <b>that if</b> it were <b>lacking</b> any slight <b>bit,</b> thereby causing this <b>limb</b> of a creeping animal to be less than a lentil-bulk, <b>would it impart impurity?</b> Certainly not. Clearly, then, the impurity of a limb is due to its wholeness, not its size.
+
+### Part 19
+The <i>baraita</i> teaches: The stringency that applies to the carcass of a creeping animal but not to semen is that with regard to a creeping animal there is no differentiation concerning its impurity, which is not the case with regard to semen. The Gemara asks: <b>What is the differentiation</b> with regard to <b>the impurity of semen? If we say</b> that this is referring to the difference <b>between</b> the semen of <b>Jews,</b> to which this impurity applies, <b>and</b> the semen <b>of gentiles,</b> to which it does not apply, <b>there is also</b> a differentiation with regard to the impurity of the carcass of a creeping animal between <b>a sea mouse,</b> which is not impure, and <b>a land mouse,</b> which is impure.
+
+### Part 20
+<b>Rather,</b> the <i>baraita</i> is referring to the differentiation <b>between</b> the emission of <b>a minor,</b> which is not classified as semen and which does not render him impure, <b>and</b> that of <b>an adult,</b> which does render him impure. By contrast, there is no such differentiation with regard to the impurity of the carcass of a creeping animal, as it imparts impurity regardless of its age and size.
+
+### Part 21
+§ <b>Rav Pappa said:</b> The amount of semen which imparts impurity to one who touches it is <b>subject to</b> a dispute between <b><i>tanna’im</i>,</b> as it is stated in a <i>baraita</i>: <b>From where</b> is it derived <b>that</b> the Torah <b>includes one who touches semen,</b> in addition to one who emits semen, as impure? <b>The verse states</b> with regard to the impurity of the carcass of a creeping animal: <b>“Or whoever</b> touches any creeping animal, whereby he may become impure” (Leviticus 22:5). It is inferred from the inclusive phrase “or whoever” that one who touches semen is also impure.
+
+### Part 22
+<b>And in general, <i>tanna’im</i> disagree</b> with regard to the possibility of deriving a <i>halakha</i> in this manner. <b>As some say</b> with regard to a <i>halakha</i> that is inferred from another <i>halakha</i>: <b>Infer from it, and</b> derive the details of the <i>halakha</i> <b>from it</b> as well. <b>And some say</b> with regard to such a <i>halakha</i>: <b>Infer from it, but interpret</b> the <i>halakha</i> according <b>to its</b> own <b>place,</b> i.e., not all aspects of the source case are applied to this <i>halakha</i>.
+
+### Part 23
+The Gemara explains how this general dispute applies to the case at hand. <b>According to the one who says</b> that one <b>infers from it and</b> again <b>from it,</b> the derivation is as follows: <b>Just as</b> the carcass of <b>a creeping animal</b> imparts impurity <b>by contact, so too, semen</b> imparts impurity <b>by contact. And</b> one again infers <b>from</b> the impurity of the carcass of a creeping animal that <b>just as</b> the carcass of <b>a creeping animal</b> imparts impurity <b>in</b> the amount of <b>a lentil-bulk, so too, semen</b> imparts impurity <b>in</b> the amount of <b>a lentil-bulk.</b>
+
+### Part 24
+<b>And according to the one who says: Infer from it, but interpret</b> the <i>halakha</i> according <b>to</b> its own <b>place,</b> one derives as follows: <b>Just as</b> the carcass of <b>a creeping animal</b> imparts impurity <b>by contact, so too, semen</b> imparts impurity <b>by contact. But</b> one must <b>interpret</b> the <i>halakha</i> according <b>to</b> its own <b>place: Just as semen</b> imparts impurity <b>to the one who emits</b> it <b>in any amount, so too,</b> it imparts impurity <b>to the one who touches</b> it <b>in any amount.</b>
+
+### Part 25
+<b>Rav Huna, son of Rav Natan, said to Rav Pappa: From where</b> do you infer <b>that</b> the <i>tanna</i> of the <i>baraita</i> <b>derives</b> the impurity of one who touches semen <b>from</b> the phrase <b>“or whoever”</b> that is stated with regard to the impurity <b>of</b> the carcass of <b>a creeping animal? Perhaps he derives it from</b> the previous verse: <b>“Or from whoever the flow of seed goes out”</b> (Leviticus 22:4), <b>and everyone</b> agrees that when a <i>halakha</i> is derived from a verse dealing with the same matter, one should <b>infer from it and</b> derive the details of the <i>halakha</i> <b>from it</b> as well. If so, the amount of semen that imparts impurity by contact should be derived from the amount that renders the one who emitted it impure, which is any amount.
+
+### Part 26
+The Gemara relates that the Sages <b>asked the <i>tanna’im</i>,</b> i.e., those who recite <i>mishnayot</i> and <i>baraitot</i>, whether the derivation of the <i>baraita</i> is from the verse dealing with the carcass of a creeping animal or from the one dealing with semen. They discovered that <b>there are those who teach</b> this <i>halakha</i> <b>in accordance with</b> the assumption of <b>Rav Pappa,</b> that it is derived from a creeping animal, <b>and there are those who teach</b> this <i>halakha</i> <b>in accordance with</b> the opinion of <b>Rav Huna, son of Rav Natan,</b> that the source is the verse referring to semen.
+
+### Part 27
+<strong>MISHNA:</strong> <b>A baby girl,</b> even one who is <b>one day old,</b> who experiences an emission of blood, <b>becomes impure with</b> the impurity of <b>a menstruating woman.</b> A baby girl who is <b>ten days old</b> who experiences an emission of blood for three consecutive days after the conclusion of the seven days fit for menstruation <b>becomes impure with</b> the impurity of <b><i>ziva</i>,</b> and is therefore obligated to observe seven clean days before immersion.
+
+### Part 28
+<b>A baby boy,</b> even one who is <b>one day old, becomes impure with</b> the impurity of <b><i>ziva</i>; and becomes impure with</b> the impurity of <b>leprous marks; and becomes impure with impurity</b> imparted by <b>a corpse; and he creates</b> a levirate bond requiring the widow of his childless brother <b>to</b> enter into <b>levirate marriage</b> with him; <b>and he exempts</b> his widowed mother <b>from the</b> obligation of <b>levirate marriage,</b> freeing her to marry anyone she chooses; <b>and he enables</b> his mother, an Israelite woman who is no longer married to his father, a priest, to continue <b>to partake of <i>teruma</i>; and he disqualifies</b> his mother, the daughter of a priest who is no longer married to his father, an Israelite man, <b>from</b> continuing to partake of <b><i>teruma</i>,</b> because the child is unfit to partake of <i>teruma</i>;
+
+>Credit : William Davidson Edition
+>License : CC-BY-NC

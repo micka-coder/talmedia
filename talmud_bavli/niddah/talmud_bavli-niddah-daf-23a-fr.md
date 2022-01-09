@@ -1,0 +1,78 @@
+
+### Partie 1
+<b>et deriver</b> le <i>halakha</i> de l'analogie qui est <b>libre des deux cotes. Et</b> c'est <b>pour cette raison</b> que <b>Le Misericordieux a rendu</b> l'analogie verbale entre <b>animal</b> et homme <b>libre des deux cotes, afin qu'on ne derive pas</b> le <i>halakha</i> <b>de</b> l'analogie verbale entre monstre marin et homme, qui est <b>libre sur</b> seulement <b>un cote.</b>
+
+### Partie 2
+<b>Rav Aha, fils de Rava, enseigne au nom de Rabbi Elazar</b> une version plus <b>lenifiante</b> du principe d'exegese de l'analogie verbale precite : A l'egard de <b>toute analogie verbale qui n'est pas du tout libre, on peut en tirer</b> <i>halakhot</i>, <b>mais on peut</b> aussi la <b>refuter</b> logiquement. Si l'analogie verbale est <b>libre d'un cote, selon Rabbi Yishmael on peut en deriver</b> <i>halakhot</i>, <b>et on ne peut pas la refuter</b>. <b>Selon les rabbins, on peut en deriver</b> <i>halakhot</i>, <b>mais on peut</b> aussi la <b>refuter</b>. Si l'analogie verbale est <b>libre de part et d'autre, tout le monde s'accorde</b> a dire que <b>on peut en tirer</b> <i>halakhot</i> <b>et on ne peut pas la refuter</b>.
+
+### Partie 3
+La Guemara demande : <b>Mais</b> si tel est le cas, <b>selon les Rabbins, quelle</b> difference <b>y a-t-il entre</b> une analogie verbale qui est <b>libre d'un cote et</b> une <b>qui n'est pas libre du tout ?</b> Dans les deux cas, les Rabbins soutiennent qu'on peut deriver des <i>halakhot</i> d'une telle analogie verbale mais on peut aussi la refuter.
+
+### Partie 4
+La Guemara repond : La <b>difference</b> se situe dans un cas <b>ou l'on trouve</b> deux analogies verbales mutuellement exclusives, une qui est <b>libre d'un cote et</b> une <b>qui n'est pas libre du tout, et ni</b> celle-ci n'a</b> une <b>refutation logique ni</b> <b>celle-la n'a</b> une <b>refutation logique. </b> Dans un tel cas, <b>on ne tient pas compte</b> de l'analogie <b>qui n'est pas libre du tout, et on derive</b> le <i>halakha</i> <b>de</b> celui qui est <b>libre d'un cote.</b>
+
+### Partie 5
+La Gemara demande : <b>Et ici,</b> en ce qui concerne l'analogie verbale entre l'homme et le monstre marin, qui a ete rejetee parce qu'elle est libre d'un seul cote, <b>Quelle</b> <b>refutation logique existe-t-il</b> en raison de laquelle cette analogie verbale est rejetee ? La Gemara repond : L'analogie verbale entre l'homme et le monstre marin est rejetee <b>parce qu'elle peut etre refutee</b> comme suit : <b>Qu'est-ce qui est unique</b> a l'homme ? </b> L'homme est unique <b>en ce que</b> une personne peut <b>devenir impure de son vivant,</b> contrairement a un animal, qui ne peut devenir impur qu'apres sa mort, ou a un monstre marin, qui ne peut absolument pas devenir impur.
+
+### Partie 6
+<b>Et de meme, Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit : Voici la raison</b> de l'opinion <b>de Rabbi Meir,</b> selon laquelle une femme qui decharge un objet semblable a un animal domestique, un animal non domestique ou un oiseau est impure : C'est <b>parce que la formation est enoncee en ce qui concerne</b> la creation de ces animaux, <b>comme</b> elle est enoncee en ce qui concerne la creation de <b>l'homme.</b>
+
+### Partie 7
+<b>Rabbi Ami lui a dit : Si c'est ainsi,</b> alors dans le cas d'une femme <b>qui decharge</b> un objet qui a <b>la forme d'une montagne, sa mere</b> devra etre <b>impurete</b> avec l'impurete d'une femme apres <b>l'accouchement, comme il est dit</b> a propos de la creation des montagnes : <b>Car c'est Lui qui forme les montagnes et cree le vent"/b> (Amos 4:13). Rabbi Hiyya bar Abba <b>lui dit : Est-ce qu'elle decharge une montagne ? </b> L'objet decharge ne peut pas etre aussi grand. <b>C'est</b> un element ayant la forme d'une <b>pierre qu'elle decharge,</b> et <b>cela s'appelle une motte,</b> pas une montagne.
+
+### Partie 8
+Rabbi Ami s'enquit en outre : <b>Si c'est ainsi,</b> dans le cas d'une femme <b>qui rejette</b> un objet ayant <b>une forme amorphe [<i>ruah</i>], sa mere devra etre impure</b> avec l'impurete d'une femme apres <b>l'accouchement, puisque la creation est enoncee a son sujet, tout comme</b> elle est enoncee a propos de <b>l'homme, comme il est ecrit : "Et cree le vent [<i>ruah</i>]." Et si l'on veut dire</b> qu'aucune analogie verbale ne peut etre etablie ici, car le verset <b>n'est pas libre,</b> c'est-a-dire qu'il n'est pas superflu, puisqu'il est necessaire de relater la creation du vent, il n'en est rien. Rabbi Ami explique : <b>D'apres</b> le fait <b>que</b> le verset <b>aurait pu ecrire : Qui forme les montagnes et le vent, et</b> au lieu de cela <b>il est ecrit :</b> "Qui forme les montagnes <b>et cree le vent", concluez-en</b> que le mot superflu "cree" sert <b>a le rendre libre</b> pour etablir une analogie verbale entre <i>ruah</i> et l'homme.
+
+### Partie 9
+Rabbi Hiyya bar Abba <b>a dit a</b> Rabbi Ami : <b>On derive des sujets</b> qui sont enonces dans la <b>Torah de sujets</b> qui sont enonces dans la <b>Torah,</b> c'est-a-dire de versets de la Torah, <b>mais on ne derive pas des sujets</b> qui sont enonces dans la <b>Torah des paroles de la tradition,</b> c'est-a-dire des versets des Prophetes ou des Ecrits, comme le verset d'Amos.
+
+### Partie 10
+§ <b>Rabba bar bar Hana</b> a dit que <b>Rabbi Yohanan a dit : C'est la raison</b> de l'opinion <b>de Rabbi Meir : Puisque les yeux de</b> ces animaux <b>sont semblables a ceux d'un humain,</b> une femme qui decharge un objet de ce type est impure.
+
+### Partie 11
+La Gemara objecte : <b>Si c'est ainsi,</b> alors dans le cas d'une femme <b>qui decharge</b> un objet qui a <b>la forme d'un serpent, sa mere devrait</b> de meme <b>etre impure</b> avec l'impurete d'une femme apres <b>l'accouchement, puisque la pupille de</b> un serpent <b>est ronde, comme</b> celle <b>d'un humain. Et si vous disiez</b> que <b>en effet,</b> c'est la <i>halakha</i>, alors <b>laissons</b> la mishna <b>enseigner</b> ce cas d'une femme qui evacue un objet qui a la forme d'un <b>serpent</b> parmi les autres cas ou la femme evacue un objet d'une forme inhabituelle.
+
+### Partie 12
+La Gemara explique : <b>Si</b> la mishna avait <b>enseigne</b> le cas d'un <b>serpent, je dirais</b> que ce n'est <b>que <b>dans</b> le cas d'une femme qui decharge un objet ayant la forme d'un <b>serpent que les rabbins sont en desaccord avec Rabbi Meir</b> et statuent que la femme n'est pas impure, <b>car</b> un terme de <b>formation n'est pas ecrit en ce qui concerne</b> la creation du serpent. <b>Mais</b> en ce qui concerne la femme qui decharge un objet ayant la forme d'un <b>animal domestique ou d'un animal non domestique, ils ne sont pas en desaccord</b> avec Rabbi Meir, <b>car</b> la notion de <b>formation est ecrite a leur egard.</b>
+
+### Partie 13
+La Guemara souleve une difficulte : <b>Mais en ce qui concerne</b> les <i>halakhot</i> de <b>blanchissures</b> qui rendent l'abattage d'un animal premier-ne permis, <b>il est enseigne</b> dans une mishna (<i>Bekhorot</i> 40a) qu'un animal <b>dont la pupille est ronde comme</b> celle <b>d'un humain</b> est considere comme blanchi. De toute evidence, les yeux des animaux sont dissemblables de ceux des humains. La Guemara repond que ce n'est <b>pas difficile ; cette</b> affirmation, que les yeux des animaux sont semblables a ceux des humains, se refere <b>a</b> la <b>pupille,</b> et <b>cette</b> affirmation, que les yeux des animaux ne sont pas semblables a ceux des humains, se refere <b>a</b> l'ensemble du globe oculaire dans la <b>socket.</b>
+
+### Partie 14
+§ <b>Rabbi Yannai a dit : Voici la raison</b> de l'avis <b>de Rabbi Meir:</b> C'est <b>parce que les yeux de</b> ces animaux <b>sont fixes a l'avant de</b> leur tete <b>comme</b> ceux <b>d'un humain,</b> contrairement aux yeux des oiseaux et des serpents, une femme qui decharge un objet de ce genre est impure. La Gemara souleve une difficulte : <b>Mais</b> il y a le cas d'une femme qui decharge un objet semblable a <b>un oiseau, dont les yeux ne sont pas fixes a l'avant de</b> sa tete, <b>et</b> neanmoins <b>Rabbi Meir dit que</b> la femme <b>est impure.</b> Ceci contredit apparemment l'explication de Rabbi Yannai. <b>Abaye dit : </b> Rabbi Meir fait reference <b>a</b> la <b>petite chouette [<i>bekarya</i>] et</b> la <b>grande chouette [<i>vekifofa</i>],</b> dont les yeux sont fixes a l'avant de leur tete, <b>Mais dans</b> le cas d'une femme qui decharge l'une des <b>autres</b> especes d'<b>oiseaux,</b> Rabbi Meir ne la <b>pas</b> considerer comme impure.
+
+### Partie 15
+La Guemara <b>souleve une objection</b> a cette reponse d'un <i>baraita</i> : <b>Rabbi Hanina ben Antigonus dit : La declaration de Rabbi Meir semble</b> correcte <b>dans</b> le cas d'une femme qui decharge la forme d'un <b>animal domestique ou d'un animal non domestique, et la declaration des rabbins</b> semble correcte <b>dans</b> le cas des <b>oiseaux.</b>
+
+### Partie 16
+La Guemara demande : A <b>quels oiseaux</b> Rabbi Hanina ben Antigonus fait-il reference ? <b>Si nous disons</b> qu'il fait reference <b>a</b> la <b>petite chouette et</b> la <b>grande chouette, quelle est la difference</b> entre ce cas et les cas d'un <b>animal domestique ou d'un animal non domestique,</b> a propos desquels Rabbi Hanina ben Antigonus accepte l'opinion de Rabbi Meir ? Si le facteur cle est <b>que leurs yeux sont fixes a l'avant</b> de leur tete <b>comme</b> ceux <b>d'un humain,</b> Rabbi Hanina ben Antigonus doit accepter l'avis de Rabbi Meir dans le cas d'<b>une petite chouette ou d'une chouette cheveche egalement,</b> car leurs yeux sont egalement fixes a l'avant de leur tete.
+
+### Partie 17
+<b>Au contraire,</b> il est <b>evident</b> que lorsque Rabbi Hanina ben Antigonus dit qu'il n'accepte pas l'avis de Rabbi Meir, il fait reference <b>aux</b> <b>autres</b> especes d'<b>oiseaux. Du fait</b> qu'il est necessaire pour Rabbi Hanina ben Antigonus de rejeter l'avis de Rabbi Meir dans ces cas, on peut conclure que <b>Rabbi Meir</b> lui-meme est <b>en desaccord</b> avec les rabbins <b>en ce qui concerne</b> les <b>autres</b> especes d'<b>oiseaux</b> egalement, malgre le fait que leurs yeux ne sont pas fixes a l'avant de leur tete.
+
+### Partie 18
+La Guemara explique que la <i>baraita</i> <b>est incomplete, et c'est</b> ce qu'elle <b>enseigne : Rabbi Hanina ben Antigonus dit : La declaration de Rabbi Meir semble</b> correcte <b>dans</b> le cas d'un <b>animal domestique ou d'un animal non domestique, et il en est de meme en ce qui concerne une petite chouette ou une grande chouette. Et la declaration des rabbins</b> semble correcte meme pour Rabbi Meir <b>en ce qui concerne</b> les <b>autres</b> especes d'<b>oiseaux.</b> La raison est <b>que meme Rabbi Meir</b> est d'accord pour dire que si une femme evacue un objet qui a la forme d'une des autres especes d'oiseaux, elle n'est pas impure, c'est-a-dire, il <b>n'est en desaccord avec eux qu'en ce qui concerne une petite chouette ou une grande chouette, mais il concede</b> leur opinion <b>en ce qui concerne</b> les <b>autres</b> especes d'oiseaux.</b>
+
+### Partie 19
+La Guemara cite une preuve de l'affirmation d'Abaye selon laquelle Rabbi Meir fait une difference entre une chouette et d'autres especes d'oiseaux, <b>car il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Elazar, fils de Rabbi Tzadok, dit : </b> Dans le cas d'une femme <b>qui decharge</b> un objet qui a la forme d'un <b>type d'animal domestique ou non domestique, selon la declaration de Rabbi Meir</b> il a le statut halakhique d'une <b>production a part entiere, et selon la declaration des rabbins,</b> il n'a <b>pas</b> le statut d'une <b>production a part entiere. Dans</b> le cas d'une femme qui decharge un objet qui a la forme d'<b>oiseaux, il doit etre examine.</b>
+
+### Partie 20
+La Gemara demande : <b>Selon qui doit-on l'examiner ?</b> Est-ce que cela ne fait <b>pas</b> reference a la declaration de Rabbi Meir, qui a dit</b> que si une femme decharge un objet qui a la forme d'un <b>petit hibou ou d'un grand hibou, oui,</b> elle est impure, mais si elle decharge un objet qui a la forme d'<b>autres oiseaux,</b> elle n'est <b>pas</b> impure ? Par consequent, l'objet doit etre examine pour determiner a quel type d'oiseau il ressemble.
+
+### Partie 21
+<b>Rav Aha, fils de Rav Ika, a dit : Non,</b> cette <i>baraita</i> ne prouve pas que Rabbi Meir fait une difference entre les hiboux et les autres especes d'oiseaux, car peut-etre que la declaration selon laquelle l'objet decharge <b>doit etre examine</b> s'applique <b>selon les rabbins, car ils disent</b> que si une femme decharge un objet qui a la forme d'un <b>petit hibou ou d'un grand hibou, oui,</b> elle est impure, mais si une femme decharge un objet qui a la forme d'<b>autres oiseaux,</b> elle est <b>non</b> impure.
+
+### Partie 22
+La Gemara demande : <b>Mais</b> si les rabbins soutiennent qu'une femme qui decharge un objet semblable a un animal terrestre n'est pas impure, pourquoi soutiennent-ils que si elle decharge un objet qui a la forme de chouettes, elle est impure ? <b>Quelle est la difference</b> entre <b>un petit hibou et un grand hibou</b> d'une part, et <b>un animal domestique et un animal non domestique</b> d'autre part ? La Gemara repond : <b>Puisque</b> les chouettes <b>ont des joues comme</b> celles d'un <b>humain,</b> par consequent, une femme qui decharge un objet semblable a une chouette est impure, alors que si elle decharge un objet qui a la forme d'un animal terrestre, elle est pure, malgre le fait que leurs yeux sont fixes a l'avant de leur tete.
+
+### Partie 23
+§ <b>Rabbi Yirmeya a demande a Rabbi Zeira : Selon Rabbi Meir, qui a dit</b> que <b>un animal dans le ventre d'une femme est</b> considere comme <b>une progeniture a part entiere, quelle est</b> la <i>halakha</i> dans le cas ou il s'agit d'une femelle, et que <b>son pere a accepte des fiancailles pour elle,</b> c'est-a-dire qu'il l'a mariee en acceptant de l'argent de fiancailles d'un homme, ou un document de fiancailles ? De telles fiancailles sont-elles valides ? Rabbi Yirmeya a elabore : <b>Quelle</b> <b>difference pratique y a-t-il</b> a savoir si elle est valide ? La difference est <b>en ce qui concerne</b> la question de savoir s'il est <b>interdit</b> a l'homme <b>d'epouser</b> <b>sa sœur.</b> Si les fiancailles sont valides, il est interdit au mari d'epouser sa sœur, car on ne peut pas epouser la sœur de sa femme.
+
+### Partie 24
+La Gemara demande : <b>Est-ce a dire que</b> une telle progeniture <b>peut vivre ?</b> Ce facteur est important, car il est interdit a un homme d'epouser la sœur de sa femme uniquement du vivant de celle-ci. <b>Mais le Rav Yehuda ne dit-il pas</b> que <b>Rav dit : Rabbi Meir a dit</b> qu'une femme qui decharge un objet qui a la forme d'un animal est impure <b>uniquement car</b> il existe d'autres animaux <b>de son type</b> qui peuvent <b>vivre,</b> c'est-a-dire qu'il existe des animaux similaires a l'objet decharge qui survivent, mais pas cette creature elle-meme. <b>Rav Aha bar Yaâkov dit : Rabbi Yirmeya a essaye a ce point de provoquer le rire de Rabbi Zeira, mais il n'a pas ri.</b> En d'autres termes, Rabbi Yirmeya ne posait pas sa question serieusement.
+
+### Partie 25
+La Guemara discute de <b>la</b> question <b>meme. Rav Yehuda dit</b> que <b>Rav dit : Rabbi Meir a dit</b> qu'une femme qui decharge un objet qui a la forme d'un animal est impure <b>uniquement car</b> il existe des animaux <b>de son type</b> qui peuvent <b>vivre. Rav Yirmeya de Difti dit :</b>
+
+>Credit : Edition William Davidson
+>Licence : CC-BY-NC

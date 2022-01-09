@@ -1,0 +1,24 @@
+
+### Partie 1
+La Gemara suggere : <b>Venez</b> et <b>entendez</b> une preuve de la mishna (84b) que meme les objets que l'on souleve habituellement peuvent etre acquis par le biais de la traction : En ce qui concerne <b>celui qui vend un produit a un autre,</b> si l'acheteur a <b>tire</b> le produit <b>mais ne l'a pas mesure</b>, <b>il l'a acquis</b>. La Gemara explique la preuve : <b>Mais le produit peut etre souleve, et</b> pourtant la mishna <b>enseigne qu'il est acquis par</b> moyen de <b>tirer.</b>
+
+### Partie 2
+La Gemara rejette cette preuve : <b>De quoi s'agit-il ici ?</b> Nous avons affaire <b>a de gros paquets</b> qui sont tires d'un endroit a l'autre et qui ne sont pas transportes, en raison de leur taille. La Gemara demande : <b>Si c'est le cas, dites la derniere clause</b> de la mishna : <b>Quelqu'un qui achete du lin chez un autre ne l'a pas acquis</b> jusqu'a ce qu'il le porte de ce lieu a un autre lieu,</b> c'est-a-dire qu'il n'est acquis que par le soulevement et non par la traction. <b>Est-ce a dire</b> que <b>le lin n'est pas prepare en gros ballots ?</b> La Gemara repond : Oui, <b>Le lin est different.</b> Contrairement aux autres produits, le lin n'est pas emballe en grosses bottes, <b>car il</b> glisserait</b> de sa place. Il est plutot emballe dans de petites bottes, et donc le lin est acquis specifiquement par le levage.
+
+### Partie 3
+<b>Ravina dit a Rav Ashi : Venez</b> et <b>entendez</b> une preuve issue d'une mishna (<i>Kiddushin</i> 25b) : <b>Les grands animaux domestiques sont acquis en passant</b> la laisse de l'animal a l'acheteur, <b>et les petits</b> animaux domestiques sont acquis <b>en soulevant</b> c'est <b>la declaration de Rabbi Meir et Rabbi Shimon ben Elazar. Et les rabbins disent : Les petits animaux domestiques</b> sont acquis <b>par la traction.</b> Ravina explique la preuve : <b>Mais les petits animaux domestiques sont</b> des creatures <b>qui peuvent etre soulevees, et</b> pourtant la mishna <b>enseigne que</b> on les <b>acquiert</b> <b>en les tirant.</b> Rav Ashi rejette cette preuve : <b>Les animaux domestiques sont differents, car ils s'accrochent</b> au sol et il est difficile de les soulever. Par consequent, la maniere habituelle de deplacer les animaux est de les tirer.
+
+### Partie 4
+§ La Gemara cite un autre cas en ce qui concerne les ventes. <b>Rav et Shmuel disent tous deux :</b> Si un vendeur dit a un acheteur : <b>Je te vends un <i>kor</i>,</b> une mesure equivalente a trente <i>seâ</i>, de cereales <b>pour</b> le prix de <b>trente</b> <i>sela</i>, le vendeur <b>peut renier</b> la vente tant que le vase de mesure n'est pas rempli, <b>meme lorsque</b> seule <b>la derniere <i>seâ</i></b> reste a mesurer, car il avait convenu de ne vendre qu'un <i>kor</i> complet. En revanche, si le vendeur disait : <b>Je vous vends un <i>kor</i> pour trente</b> <i>sela</i> et chaque <b><i>seâ</i></b> est vendu <b>pour un <i>sela</i>,</b> il ne peut pas revenir completement sur la vente au milieu de la transaction. En effet, l'acheteur <b>acquiert</b> chaque <i>seâ</i> <b>un</b> par <b>un</b> tel qu'il est mesure, puisque le vendeur a vendu chaque <i>seâ</i> individuellement.
+
+### Partie 5
+La Guemara souleve une difficulte a partir de la <i>baraita</i> citee au 85a. <b>Venez</b> et <b>entendez : Si le recipient de mesure</b> <b>appartenait a l'un d'eux,</b> l'acheteur <b>acquiert</b> les objets de la vente <b>un</b> par <b>un. Et</b> puisque cette <i>halakha</i> est enoncee en termes generaux, elle indique que l'acheteur acquiert chaque article au fur et a mesure qu'il est place dans le recipient de mesure, <b>meme si le recipient de mesure</b> <b>n'etait pas rempli.</b>
+
+### Partie 6
+La Gemara repond : Le <i>baraita</i> fait reference a un cas <b>ou</b> le vendeur <b>lui a dit : Je te vends un <i>hin</i>,</b> une mesure liquide equivalente a douze <i>log</i>, <b>pour douze <i>sela</i>,</b> chaque <b><i>log</i> pour une <i>sela</i>. Et</b> ceci est <b>conforme</b> a une observation <b>que Rav Kahana dit :</b> Dans le Temple <b>il y avait des marques sur le</b> recipient qui mesuraient <b><i>hin</i>,</b> avec lesquelles on pouvait mesurer les differentes libations. <b>Ici aussi, il y avait des marques sur les recipients de mesure</b>, et comme le recipient de mesure indique a quel moment chaque <i>logue</i> a ete rempli, l'acheteur l'acquiert. Ceci est comparable au cas de celui qui vend chaque <i>seâ</i> individuellement.
+
+### Partie 7
+La Guemara souleve une autre difficulte. <b>Venez</b> et <b>entendez : Celui qui engage un ouvrier</b> en hiver ou au printemps <b>pour travailler pour lui a la recolte, pour</b> un <b>dinar par jour,</b>.
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC

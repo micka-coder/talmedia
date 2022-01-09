@@ -1,0 +1,39 @@
+
+### Partie 1
+<b>La majorite de sa largeur,</b> en comptant la largeur de la paroi de la trachee elle-meme, dont l'epaisseur est inegale. <b>Et certains disent</b> que le Rav dit : La <b>majorite de son espace,</b> la surface interieure de la section transversale de la trachee, sans compter la largeur de la paroi de la trachee.
+
+### Partie 2
+La Gemara raconte : Il y avait <b>un certain</b> animal avec <b>une trachee coupee qui s'est presente devant Rav,</b> c'est-a-dire qu'il a ete amene pour etre inspecte afin de decider s'il etait casher. Rav <b>etait assis et le verifiait</b> pour voir si la trachee avait ete coupee <b>dans la majorite de sa largeur. Rav Kahana et Rav Asi dirent au Rav :</b> Ne nous avez-vous pas <b>enseigne, notre maitre,</b> qu'une trachee coupee est mesuree par la <b>majorite de son espace ? </b> Rav <b>envoya</b> l'animal <b>devant Rabba bar bar Hana,</b> qui <b>l'a verifie dans la majorite de son espace et l'a juge casher, et en a achete la viande</b> au prix de <b>treize pieces de <i>sistera</i> unies.</b>
+
+### Partie 3
+La Gemara demande : <b>Et comment</b> Rabba bar bar Hana <b>a-t-il pu faire cela,</b> c'est-a-dire juger permis un animal que Rav allait juger interdit ? <b>Mais n'est-il pas enseigne</b> dans une <i>baraita</i> : Si <b>une autorite halakhique a juge</b> un objet <b>impur, une autre</b> autorite halakhique <b>n'est pas autorisee a le juger</b> <b>pur;</b> de meme, si elle l'a <b>interdit</b>, <b>une autre</b> autorite <b>n'est pas autorisee a le permettre</b> ? La Gemara repond : C'est <b>different ici, puisque Rav n'a pas</b> reellement <b>interdit</b> l'animal. Il a simplement envisage de le faire, mais il l'a envoye a Rabba bar bar Hana avant de rendre une decision formelle.
+
+### Partie 4
+La Guemara demande : <b>Et une fois qu'une autorite halakhique a statue a l'egard</b> de l'animal, meme pour le permettre, <b>comment</b> Rabba bar bar Hana <b>pourrait-il en manger ? Mais n'est-il pas ecrit : A "Alors j'ai dit : Helas, Seigneur Dieu, mon ame n'est pas devenue impure ; et depuis ma jeunesse jusqu'a maintenant, je n'ai pas mange une carcasse non abattue, ni une <i>tereifa</i> ; et aucune chair de <i>piggul</i> n'est entree dans ma bouche"</b> (Ezechiel 4:14).
+
+### Partie 5
+Les Sages ont interprete ce verset comme suit : <b>"Mon ame n'est pas devenue impure"</b> signifie <b>que je n'ai pas pense</b> a des pensees sexuelles <b>pendant la journee</b> de maniere a <b>en arriver</b> a l'<b>impurete</b> d'une emission seminale <b>la nuit. "Je n'ai pas mange de carcasse non abattue, ni de <i>tereifa</i>"</b> signifie <b>que je n'ai jamais mange</b> la <b>chair</b> d'un animal en danger de mort imminente, ce qui amene a dire : <b>L'abattre</b>, <b>l'abattre</b> rapidement, avant qu'il ne meure. <b>"Et aucune chair de <i>piggul</i> n'est entree dans ma bouche,</b> signifie <b>que je n'ai jamais mange d'un animal</b> a propos duquel <b>il y avait une incertitude quant a son interdiction et <b>un Sage a emis une decision</b> pour l'autoriser. Les Sages ont <b>dit au nom de Rabbi Natan :</b> La phrase signifie <b>que je n'ai jamais mange d'un animal</b> dont les dons</b> du sacerdoce, la patte anterieure, la machoire et la caillette, <b>n'etaient pas separes.</b> Les actes ci-dessus sont techniquement permis mais inconvenants. Comment donc Rabba bar bar Hana a-t-il pu consommer la viande de cet animal ?
+
+#### Partie 6
+La Guemara repond : <b>Cette affirmation,</b> selon laquelle il est inconvenant pour une autorite halakhique de s'appuyer sur sa propre decision pour autoriser la viande, ne s'applique qu'a <b>une question qui depend d'un raisonnement. Rabba bar bar Hana s'est appuye sur son apprentissage,</b> c'est-a-dire sur une tradition recue. Il n'y a rien d'inconvenant a s'appuyer sur une tradition recue.
+
+#### Partie 7
+La Guemara objecte : <b>Mais</b> que l'on <b>derive</b> que Rabba bar bar Hana n'aurait pas du acheter la viande <b>en raison de la suspicion, comme il est enseigne</b> dans une <i>baraita</i> : Si l'on <b>emet un jugement, acquitte ou condamne, juge impur ou pur, interdit ou permis ; ou</b> si des <b>temoins</b> temoignent a propos d'une affaire, dans <b>tous</b> ces cas, les juges ou les temoins <b>sont autorises a acheter</b> l'article qu'ils ont juge permis. <b>Mais les Sages ont dit : Distance</b> toi <b>de l'inconvenance et des</b> choses <b>similaires a celle-ci.</b> Si tel est le cas, Rabba bar bar Hana n'aurait pas du acheter la viande qu'il a lui-meme autorisee.
+
+### Partie 8
+La Guemara repond : <b>Cette declaration</b> ne s'applique qu'a <b>un article qui est vendu</b> sur la base d'une <b>appreciation</b> de sa valeur et non d'une mesure standard. Dans ce cas, les badauds pourraient soupconner que le juge recoit un prix favorable en echange de son jugement. Mais <b>ici, le poids</b> de la viande <b>prouve</b> que le juge ne recoit pas un rabais, mais qu'il paie le prix standard. C'est <b>comme cet</b> incident <b>ou Rabba a autorise</b> un eventuel <b><i>tereifa</i></b> pour la consommation <b>et en a achete de la viande.</b> Sa femme, <b>la fille de Rav Hisda, lui dit : Pere a permis un animal premier-ne</b>, declarant qu'il possedait une tare qui le rendait permis a la consommation, <b>mais n'en a pas achete la viande.</b> Pourquoi agis-tu differemment ?
+
+### Partie 9
+Rabba <b>lui a dit : Cette question</b> s'applique a <b>un premier-ne, que l'on vend</b> sur la base d'une <b>appreciation</b> de sa valeur. <b>Ici, le poids</b> de la viande <b>prouve</b> que je paie le prix normal et que je ne tire pas injustement profit de mon jugement. <b>Quel</b> soupcon <b>existe-t-il</b> dans ce cas ? Va-t-on me soupconner <b>parce que</b> j'ai recu <b>un morceau de viande superieur ? Tous les jours on me vend un morceau de viande superieur.</b>
+
+### Partie 10
+La Guemara cite un aphorisme : <b>Rav Hisda dit : Qui est un erudit de la Torah ? C'est celui qui voit sa propre <i>tereifa</i>.</b> En d'autres termes, lorsque le statut de son propre animal est incertain, il le juge interdit sans se soucier de sa propre perte monetaire. <b>Et Rav Hisda dit : Qui est</b> vise par le verset : <b>"Celui qui deteste les cadeaux vivra"</b> (Proverbes 15:27) ? <b>C'est celui qui voit sa propre <i>tereifa</i>.</b> Il veille a ne pas tirer de benefice de ce qui ne lui appartient pas, et meme d'elements qui lui appartiennent concernant lesquels on peut se demander s'ils sont permis ou non.
+
+### Partie 11
+<b>Mar Zutra a enseigne au nom du Rav Hisda : Quiconque lit</b> la Torah <b>et etudie</b> la Mishna, <b>et voit sa propre <i>tereifa</i>, et a servi des erudits de la Torah</b> pour apprendre les voies du jugement halakhique, <b>sur lui le verset dit : "Quand tu mangeras le travail de tes mains, tu seras heureux, et tout ira bien pour toi"</b> (Psaumes 128:2). <b>Rav Zevid dit :</b> Une telle personne <b>merite d'heriter de deux mondes, ce monde-ci et le Monde-a-Venir.</b> Lorsque le verset dit : <b>"Heureux serez-vous",</b> cela signifie <b>dans ce monde,</b> et quand il dit : <b>"Et tout ira bien pour vous"</b>, il se refere <b>au Monde-a-Venir.</b>
+
+### Partie 12
+En ce qui concerne le verset :" Celui qui déteste les cadeaux vivra", la Guemara relate que <b>quand on envoyait A Rabbi Elazar un cadeau</b> <b>de la maison du <i>Nasi</i>, il ne le prenait pas</b>. <b>Et lorsqu'on l'invitait, il ne s'y rendait pas</b>. En declinant ces offres, <b>il leur disait</b> : <b>Le Maitre ne desire-t-il pas que je vive ? Comme il est ecrit : "Celui qui deteste les cadeaux vivra."</b> En revanche, <b>quand on envoyait</b> un cadeau <b>a Rabbi Zeira, il ne le prenait pas</b> mais <b>quand on l'invitait, il y allait. Il dit</b> en guise d'explication :
+
+>Credit : William Davidson Edition
+>Licence : CC-BY-NC
