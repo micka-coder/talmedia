@@ -1,0 +1,402 @@
+[
+	{
+		"word": "מיתה",
+		"description": " מִיתָה f. (b. h. ; [Jastrow, מוּת,1] [Jastrow, מוּת,1]) mort, peine de mort. [Shabbat,156b,3] מ׳ משונה une mort non naturelle ; מ׳ עצמה mort naturelle. [Sanhedrin,68a,4] אם ימותו מִיתַת עצמן s'ils meurent de mort naturelle. [Mishna Sanhedrin,11,4] ([Sanhedrin,89a,3]) מ׳ בב \"ד mort de la main du tribunal. [Sanhedrin,5a] מִיתָתוֹ בידי אדם il doit être mis à mort par l'homme (tribunal) ; מיתתו בידי שמים il sera mis à mort par le Seigneur. [Ketubot,37b,8] מ׳ אריכתא un acte continu d'exécution (comprenant les coups de fouet et la mise à mort) ; a. fr.-Pl. מִיתוֹת. [Mishna Sanhedrin,7,1] ארבע מ׳ נמסרו לב \"ד quatre formes de peine capitale ont été confiées aux tribunaux. [Sotah,8b,2] דין ארבע מ׳ וכ׳ le jugement divin prenant la place des quatre formes de peine capitale (que les tribunaux juifs ne peuvent plus décréter) n'a pas cessé ; a. fr. "
+	},
+	{
+		"word": "מיתוח",
+		"description": " מִיתּוּחַ, מִתּ׳ m. ([Jastrow, מָתַח,1]) étirer, serrer. Y. M. Kat. I, 80ᵈ bot.-מחט של מ׳ une épingle utilisée en tissage ou en broderie pour tirer le fil serré, bobine. [Mishnah Kelim,13,5] (Talm. ed. [Jastrow, מִיתּוּן,1]). Ib. התקינה למ׳ (éd. Dehr. למיתא, v. [Jastrow, מֵיתָא,1] II a. [Jastrow, מֵיתָנָא,1]). Ib. 8 ; [Yevamot,43a,3] לנר או למ׳ (Kel. ed. Dehr. למיתא) fait pour éteindre la lumière (v. [Jastrow, מָחַט,1]) ou comme bobine. "
+	},
+	{
+		"word": "מיתון",
+		"description": " מִיתּוּן, מִתּ׳ m. ([Jastrow, מָתַן,1]) étirement, v. [Jastrow, מִיתּוּחַ,1] [Mishnah Orlah,1,4] מחט של מ׳ (Ms. M. מיתין), v. [Jastrow, מִיתּוּחַ,1] "
+	},
+	{
+		"word": "מיתוריין",
+		"description": " מִיתוֹרְיִין, מִיתוֹרִין m. pl. (μεσθόρια) limites, frontières. [Bereishit Rabbah,50], beg. Ar. (v. [Jastrow, אוֹרְיָין II,1]) ; [Vayikra Rabbah,27] [Jastrow, מתורין,1] (acc. corr.). "
+	},
+	{
+		"word": "מיתותא",
+		"description": " מִיתוּתָא f. ([Jastrow, מִית I,1]) mort, mourant. [Targum Jonathan sur Nombres,16,29] ; a. fr.-[Bava Batra,16b,5] ; [Taanit,23a,17], v. [Jastrow, חַבָּרוּתָא,1]. "
+	},
+	{
+		"word": "מיתחזנא",
+		"description": " מִיתְחַזְנָא (une partie feinte. Ithp. de נחז, dénomin. de נחיז, substitut problématique de [Jastrow, נָזִיחַ,1], lui-même substitut de [Jastrow, נָזִיר,1] ; v. [Jastrow, כִּינּוּי,1]) Je serai un naḥiz. [Nedarim,10b,8] ; v. [Jastrow, מִיפְּחַזְנָא,1]. "
+	},
+	{
+		"word": "מיתנא",
+		"description": " מִיתָנָא m. ([Jastrow, מִית I,1]) [mort,] le défunt. [Yevamot,37b,20], sq. בר מ׳ le fils de la personne décédée. "
+	},
+	{
+		"word": "מיתנא",
+		"description": " מֵיתָנָא m. ([Jastrow, אֲתָא,1]) ramener à la maison, attirer vers soi. [Shabbat,102a], v. [Jastrow, לֶכְתָּא,1] ; [Rashi : [Jastrow, מִתְנָא,1] rope].-Mishnah Oktzin,1,2] המיתנא, v. [Jastrow, מִינְתָּא,1].] "
+	},
+	{
+		"word": "מיתנא",
+		"description": " מִיתְנָא , v. [Jastrow, מִתְנָא,1]. "
+	},
+	{
+		"word": "מיתעזנא",
+		"description": " מִיתְעַזְנָא (une partie feinte. Ithp. de נעז, comme substitut dialectique de נקז, dénom. de נקיז, substitut de נזיק, lui-même substitut de [Jastrow, נָזִיר,1]) Je serai un naʿiz. [Nedarim,10a] ; v. [Jastrow, מִיתְחַזְנָא,1]. "
+	},
+	{
+		"word": "מיתר",
+		"description": " מֵיתָר m. (b. h. ; [Jastrow, יָתַר,1] [Jastrow, יָתַר,1]) cordon, corde.-Pl. מֵיתָרִים, מֵיתָרִין. [Bamidbar Rabbah,12,19], fin. [Yalkut Shimoni sur la Torah,374] ; a. e.-[Tanḥ. Ki Thetsé 4 מיתרין, lire : [Jastrow, מִיטְרִין,1].] "
+	},
+	{
+		"word": "מיתרכא",
+		"description": " מִיתַּרְכָא , v. [Jastrow, מְתַרְכָא,1]. "
+	},
+	{
+		"word": "מיתת",
+		"description": " מִיתַת , v, [Jastrow, מִיתָא,1]. "
+	},
+	{
+		"word": "מך",
+		"description": " מָךְ ton eau, v. [Jastrow, מַיִין,1]. "
+	},
+	{
+		"word": "מך²",
+		"description": " מָךְ m. (b. h. ; [Jastrow, מוּךְ,1] [Jastrow, מוּךְ,1]) bas. [Sotah,10b,5] (jeu de mot sur מ̇כ̇ת̇ם̇, [Psaumes,56,1]) שהיה מ̇ך̇ ות̇ם̇ לכל il était humble et sincère envers tout le monde. [Vayikra Rabbah,34,6] מך שהוא מך לפני כל וכ׳ le pauvre est appelé makh, car il est bas devant tout le monde, il est comme le seuil le plus bas ; [Midrash Mishlei,22,6] מך עד האסקופה וכ׳ il est bas (courbé) jusqu'au seuil le plus bas. "
+	},
+	{
+		"word": "מכא",
+		"description": " מָכָא, מָאכָא m. (= מעכא ; [Jastrow, מְעַךְ,1]) écrasé, battu.-זוזא מ׳ un Zuz battu (qui ne peut être passé). [Shabbat,129a,18] ; [Bava Kamma,37a,3] (Mme M. מא׳) ; [Bekhorot,51a,9] מא׳. "
+	},
+	{
+		"word": "מכא",
+		"description": " מְכָא , v. [Jastrow, מְכִי,1] "
+	},
+	{
+		"word": "מכבד",
+		"description": " מְכַבֵּד m. , מְכַבֶּדֶת f. ([Jastrow, כָּבֵד I,1], Pi.) genêt ; aussi le rameau en forme d'éventail du palmier. [Mishna Oktzin,1,3] יד המ׳ של תמרה la tige du 'balai' du palmier ; [Tosefta Uktsin,1,4] מכבדת. Tanḥ. Masʿé 13 (réf. à [Jastrow, כָּבֵד I,1], [Isaïe,8,23]) הכבידן כבמ׳ il les balaya comme avec un balai ; [Bamidbar Rabba,23], fin ; Lam. R. introd. (R. Abbahu 2) הממם כבמַכְבֵּיד, v. [Jastrow, הָמַם,1]. [Tosefta Shabbat,6] ([Tosefta Shabbat,7,7] שב על המ׳ s'asseoir sur un balai (une pratique superstitieuse) ; a. e.-Pl. מְכַבְּדוֹת. [Soucca,13b,9] מ׳ ובהן תמרים perruques de palmier sur lesquelles il y a des dattes ; Y. Bets. IV, 62ᶜ haut. [Pessahim,56b,6] של מ׳ les dattes accrochées aux branches. Y. Peah IV, beg. 18ᵃ תמרים במ׳ (laisser pour les pauvres) les dattes sur les branches. Y. Maasr. I, 48ᵈ bot.-Shabbat,113b,12] מְכֵבְּדוֹתַי, v. [Jastrow, כָּבֵד I,1], Pi.]-[Ruth R. fin מכבדות quelques éd., lire : מַכְבֵּרוֹת.] "
+	},
+	{
+		"word": "מכביד",
+		"description": " מַכְבֵּיד , v. [Jastrow, מְכַבֵּד,1]. "
+	},
+	{
+		"word": "מכבין",
+		"description": " מכבין , [Targum Jonathan sur II Samuel,17,28], v. [Jastrow, מַכָּכָא,1] "
+	},
+	{
+		"word": "מכביש",
+		"description": " מַכְבֵּישׁ , v. [Jastrow, מַכְבֵּשׁ,1] "
+	},
+	{
+		"word": "מכבנתא",
+		"description": " מַכְבַּנְתָּא f. ch. ([Jastrow, כְּבַן,1]) = h. [Jastrow, כְּבֵינָה,1], broche, boucle. [Shabbat,62a,17], exploser. [Jastrow, כּוֹכְלִיאָר,1].-[Shabbat,156b,4], v. [Jastrow, דּוּץ II,1]. "
+	},
+	{
+		"word": "מכבר",
+		"description": " מִכְבַּר, מַכְ׳ , v. [Jastrow, מִכְוַור,1]. "
+	},
+	{
+		"word": "מכברה",
+		"description": " מַכְבֵּרָה f. (b. h. [Jastrow, מִכְבַּר,1] ; [Jastrow, כָּבַר,1] ; v. [Jastrow, כְּבָרָה,1]) sieve.-Pl. מַכְבֵּרוֹת. [Bereishit Rabbah,39,10] ; [Yalkut Shimoni sur la Torah,62,20] ; Yalk. Neh. 1071 ; Ruth R. fin (pas מכבדות). "
+	},
+	{
+		"word": "מכבש",
+		"description": " מַכְבֵּשׁ m. ([Jastrow, כָּבַשׁ,1]) presse à linge ; vis, étau. [Tosefta Shabbat,16] ([Tosefta Shabbat,17,5] מ׳ של בעלי ... כלים (ed. Zuck. [Jastrow, מַיִם,1] pour כלים, corr. acc.) presse à linge domestique qui a été dévissée pour sortir les vêtements. [Mishna Shabbat,20,5] מ׳ ... מתירין וכ׳ on peut dévisser une presse à linge domestique mais pas la visser (le jour du Shabbat). Ib. ([Jastrow, מ׳,1])של כובסין la presse à linge des laveuses. [Mishna Kelim,16,7] מ׳ של חרש l'étau du charpentier (pour redresser le bois), v. [Jastrow, *מְכַוֵּון,1] ; [Tosefta Keilim Batra,1,8] מכביש של נגר. [Tosefta Keilim Batra,1,15] מ׳ של שכף וכ׳ la presse du maroquinier sur laquelle il tend les peaux. Y. Sabb. XX, fin, 17ᵈ ; a. e. "
+	},
+	{
+		"word": "מכדי",
+		"description": " מִכְּדִי , v. [Jastrow, כְּדִי I,1] "
+	},
+	{
+		"word": "מכה",
+		"description": " מַכָּה f. (b. h. ; [Jastrow, נָכָה,1] [Jastrow, נָכָה,1]) blessure, fléau, coup, coup. [Shabbat,134b,23]. [Megillah,13b,12] (réf. à [Esther,3,1]) אחר שברא ... רפואה למ׳ après que le Seigneur ait préparé la guérison de la blessure (le moyen de salut) ; a. v. fr.-מַכַּת בצורת, מ׳ בכורות, מ׳ מרדות &c, v. déterminants respectifs. [Mishnah Sotah, 3,4] מכת פרושין Y. ed. (Bab. a. Mish. [Jastrow, מָכוּת,1]) la blessure infligée par les Pharisiens, c'est-à-dire une blessure faite sous le prétexte d'un crime. c'est-à-dire une blessure faite sous le prétexte d'une stricte adhésion à la lettre de la loi, ou de la bienveillance ; Y. ib. 19ᵃ מ׳ פ׳ זה שהוא נותן עצה וכ׳ \" la plaie des pharisiens \" est celui qui conseille aux héritiers de se soustraire au paiement de la nourriture à la veuve. Ib. זו מ׳ פ׳ נגעו בה (collect. pl.) la peste pharisienne l'a frappée ; ib. זה מ׳ פ׳ נגעו בו ses amis sous prétexte de bienveillance l'ont privé du bénéfice de la loi sur les pauvres ; Y. Peah VIII, 21ᵃ bot.-[Sotah,10b,5] (jeu sur מ̇כ̇ת̇ם̇, v. [Jastrow, מָךְ,1]) שהיתה מ̇כ̇תו ת̇מ̇ה וכ׳ son défaut était une perfection, car il était né circoncis ; [Rachi : \" l'endroit où il devait être blessé \"].-Pl. [Jastrow, מָכוּת,1]. [Shemot Rabbah,10,7] ; a. fr.-[Mishnah Sanhedrin,1,2] מ׳ בשלשה les châtiments corporels (coups de fouet, v. [Jastrow, מַלְקוּת,1]) doivent être décrétés par une cour de trois. [Sanhedrin,10a,13] מ׳ הראויות להשתלש un nombre de coups de fouet divisible par trois (39) ; a. fr. -Maccoth (châtiments), un traité de la Mishna, de la Tosefta, du Talmud Babli a. Y'rushalmi, de l'ordre de N'zikin. "
+	},
+	{
+		"word": "מכוה",
+		"description": " מִכְוָה f. (b. h. ; [Jastrow, כָּוָה,1] [Jastrow, כָּוָה,1]) tache brûlée sur la peau, brûlure. [Mishnah Negaim,9,1] כל שהוא מחמת האש זו היא מ׳ toutes les blessures produites par le feu (directement ou indirectement) sont appelées 'brûlures'. [Mishnah Negaim,8,7] מחיית המ׳ la cicatrisation d'une brûlure. [Mishnah Negaim,9,2] ; Sifra Thazr., Neg., Par. 4, ch. VII אין שחין ומ׳ וכ׳ une inflammation et une brûlure ne peuvent être combinées (pour constituer la taille minimale requise pour l'impureté) ; a. fr. "
+	},
+	{
+		"word": "*מכוון",
+		"description": " *מְכַוֵּון m. ([Jastrow, כּוּן,1]) un appareil à redresser, un étau. Pesik. Zutr., Haăz. (p. 111 ed. Bub. ) נתנו במ׳ ולא וכ׳ il le plaça (le bois tordu) dans un étau, et il ne fut pas redressé ; ([Sifrei Devarim,308] ; [Yalkut Shimoni sur la Torah,942] ; [Yalkut Shimoni sur Nach,362], versions corrompues) ; cmp. [Jastrow, מַכְבֵּשׁ,1]. "
+	},
+	{
+		"word": "מכוור",
+		"description": " מִכְוַור, מַכְ׳ pr. n. Mikhvar, Makhvar, un district de Peraea. [La situation de Machaerus interdit son identification avec notre w.] [Targum Jonathan sur Nombres,32,1], [Targum Jérusalem, Nombres,32,1] ; [Targum Jérusalem, Nombres,21,32] (Y. I [Jastrow, מִכְבַּר,1] ; h. texte יעזר). Ib. XXXII, 35 (Y. I מִ׳ גרמתא, II מַ׳ ויגבהה ; h. texte יעזר ויגבהה).-Y. R. Hash. II, 58ᵃ top הרי מ׳ וגדור ; (Bab. ib. 23ᵇ ; Tosef. ib. II (I), 2 חרים וכייר), v. [Jastrow, גְּדוֹר,1] ; Y. Shebi. IX, 38ᵈ bot ; ("
+	},
+	{
+		"word": "מכולין",
+		"description": " מְכוֹלִין m. pl. ([Jastrow, כּוּל,1], [Jastrow, כְּלַל,1] ; cmp. [Jastrow, כִּילָה,1]) rideau, couverture. [Targum Jonathan sur II Rois, 23,7] (Ar. מְכִילִין). "
+	},
+	{
+		"word": "מכון",
+		"description": " מָכוֹן m. (b. h. ; [Jastrow, כּוּן,1] [Jastrow, כּוּן,1]) lieu défini ; plan ; résidence. [Mishna Sotah,8,3] הבונה בית על מְכוֹנוֹ celui qui reconstruit une maison sur son ancien lieu et plan. Lam. R. introd. (R. Joḥ. 1) למְכוֹנִי הראשון à ma résidence d'origine (le ciel).-Esp. Makhon, nom d'un des sept cieux. [Chagigah,12b,12] "
+	},
+	{
+		"word": "מכונה",
+		"description": " מְכוֹנָה f. ([Jastrow, מָכוֹן,1]) lieu où l'on garde les animaux prêts à être abattus ; stalle, coop.-Pl. [Jastrow, מְכוֹרוֹת,1]. Ohol. VIII, 1.- [Y. Sabb. XVII, 16ᵇ top ובמכונה, v. [Jastrow, בּוּכָנָא,1]. "
+	},
+	{
+		"word": "*מכונתא",
+		"description": " *מְכַוַּנְתָּא f. (כּוּן Pa.) regarder, se tapir.- [Targum Jonathan sur les Juges,5,11] בית מְכַוְּנַת ליסטין l'endroit où les voleurs guettent. "
+	},
+	{
+		"word": "מכור",
+		"description": " מִכְוַר , v. [Jastrow, מִכְוַור,1] "
+	},
+	{
+		"word": "מכורה",
+		"description": " מְכוּרָה , v. [Jastrow, מְכִירָה,1] "
+	},
+	{
+		"word": "מכורות",
+		"description": " מְכוֹרוֹת , v. [Jastrow, מְכֵרוֹת,1]. "
+	},
+	{
+		"word": "מכורן",
+		"description": " מכורן , v. [Jastrow, כָּדַן,1] "
+	},
+	{
+		"word": "מכורסינין",
+		"description": " מכורסינין , v. [Jastrow, *בּוּרְסִיוֹן,1] "
+	},
+	{
+		"word": "מכוש",
+		"description": " מַכּוֹשׁ I m. ([Jastrow, נָכַשׁ,1]) houe, spud ; creuser avec le spud. [Bava Batra,54a,8] כיון שהכיש בה מ׳ אחד וכ׳ (Ms. R. שנכש בה) dès qu'il a inséré la houe une fois, il a pris possession de tout le champ. [Bava Batra,54a,8] מקום מַכּוּשׁוֹ בלבד seulement l'endroit où il a creusé.- [Y. Ned. IV, beg. 38ᶜ קורדום של מ׳, v. [Jastrow, נִיכּוּשׁ,1].] "
+	},
+	{
+		"word": "מכוש",
+		"description": " מַכּוֹשׁ II m. ([Jastrow, כְּשַׁשׁ,1], v. [Jastrow, כִּשְׁכֵּשׁ,1]) 1) claqueur de cloche. [Midrash Tehillim,7,9] דומה לפעמון ... ומַכּוּשׁוֹ של וכ׳ comme une cloche d'or dont le battant est fait d'un bijou. -2) marteau, frapper avec le marteau. [Avodah Zarah,19b,13] מ׳ אחרון le dernier coup (enfoncer le clou).-Tosefta Mikvaot,6,1] ([Tosefta Mikvaot,7,17] והמכושים, ed. Zuck, lire : המכובשים, v. [Jastrow, כָּבַשׁ,1]. "
+	},
+	{
+		"word": "מכוש",
+		"description": " מַכּוֹשׁ, מַכּוֹשָׁא I, מַכּוֹשָׁה ch. [Jastrow, מַכּוֹשׁ II,1] , marteau ; heurtoir. [Vayikra Rabbah, 24,3] מאן דהוה ליה מ׳ celui qui a un marteau (ou une houe, v. [Jastrow, מַכּוֹשָׁא II,1]). [Bereishit Rabbah,44] (éd. Wil. [Jastrow, מַכִּישָׁה,1]) ; [Yalkut Shimoni sur la Torah,77] [Jastrow, מַכּוֹשׁ,1], v. [Jastrow, כְּשַׁשׁ,1]. Y. Meg. III, 73ᵈ bot., v. [Jastrow, *בּכּוּשָׁא,1]. "
+	},
+	{
+		"word": "מכושא",
+		"description": " מַכּוֹשָׁא II ch. = h. [Jastrow, מַכּוֹשׁ I,1] , houe, bêche. [Vayikra Rabbah,25,5] יטעון מַכּוּשֵׁיה וכ׳ (Var. en Ar. יסב פסא) prendra sa bêche et sortira planter des arbres. "
+	},
+	{
+		"word": "מכות",
+		"description": " מָכוּת f. ([Jastrow, מָךְ,1]) 1) pauvreté. [Bava Metzia, 114a] ; [Arakhin, 17b, 23] (réf. à [Jastrow, מָךְ,1], [Lévitique,27,8]) עד שיהא במָכוּתוֹ וכ׳ il doit être resté dans sa condition d'appauvrissement du début à la fin de la procédure. -2) l'humilité. [Bereishit Rabbah,74,15], fin (jeu sur מ̇כ̇ת̇ם̇, [Psaumes,60,1]) מ̇כ̇ות ות̇מ̇ות humilité (de David) et innocence ; [Yalkut Shimoni sur Nach,147,1] מ׳ ותמות לדוד. "
+	},
+	{
+		"word": "מכותא",
+		"description": " מָכוּתָא f. (Assyr. makua, v. Fränkel Zeitschr. für Assyriol. III, p. 53 ; Proceed. Soc. for Bibl. Archaeol. 1887, p. 103) un certain type de bateau, (bateau bas ?). [Ketubot,69b,11] אסקריא דמ׳ ; ([Taanit,21a,5] דספינתא, v. Rabb. D. S. a. l. note 300), v. [Jastrow, אִסְקַרְיָא,1] ; [Rashi : voile]. [Bava Batra,161b,3] ([Jastrow, צְיָיר I,1]) [Jastrow, מ׳,1] a dessiné un navire à la place de son nom (Rashb. mât) ; [Gittin,36a,9] ; [Gittin,87b,2] (Rashi : voile). "
+	},
+	{
+		"word": "מכותי",
+		"description": " מַכּוּתִי f. ([Jastrow, נְכַת,1]) une morsure. [Kohelet Rabbah,6,11] [lire :] או חדא מ׳, v. [Jastrow, *מַעְקוּצִי,1]. "
+	},
+	{
+		"word": "מכחול",
+		"description": " מַכְחוֹל, מַכְחֹל m. ([Jastrow, כָּחַל,1]) bâton utilisé pour peindre l'œil. [Mishna Kelim,13,2] מ׳ שניטל הכף un bâton de peinture dont le côté en forme de cuillère est cassé ; [Tosefta Keilim Metsia,3,5], v. [Jastrow, זָכָר,1]. [Sanhedrin,68a,5] כמ׳ בשפופרת ; [Shir HaShirim Rabbah,1,3], v. [Jastrow, זַכְרוּת,1] a. [Jastrow, חָסַר,1]. [Bava Metzia,91a,13] כמ׳ בשפופרת lorsque le bâton de peinture est inséré dans le tube ; [Makkot,7a] ; a. e. "
+	},
+	{
+		"word": "מכחלא",
+		"description": " מַכְחָלָא, מַכְחַלְתָּא f. ch. [Jastrow, מַכְחוֹל,1].  [Bava Kamma,117a,24] דלו ליה במ׳ דכספא Ar. (ed... [Jastrow, לָתָא,1]) ils ont soulevé ses paupières avec un bâton en argent.-Pl. מַכְחָלֵי. [Gittin,69a,1] תלתא מ׳ trois personnes pleines de peinture. "
+	},
+	{
+		"word": "מכי",
+		"description": " מְכִי, מְכָא (v. [Jastrow, מוּךְ,1]) décliner, plier. [Targum Jonathan sur les Juges,5,4] ; a. e. (v. [Jastrow, מוּךְ,1]).<br> Af. - אַמְכֵי à abaisser. [Bereishit Rabbah,17], beg. אַמְכַת לאפה elle baissa le visage (regarda de façon boudeuse) ; [Vayikra Rabbah,34,14] אמכת על אפא (acc. corr.).<br>Ithpe. - אִתְמְכֵי être courbé, déprimé. [Targum araméen des Psaumes, 38,9] אִתְמְכָיִית (ed. Wil. אִתְמַכִית ; h. text נדכיתי). [Targum araméen des Psaumes, 106,43]. [Targum araméen sur Job, 24,24] (Ms. אִתְמַכִּיכוּ). "
+	},
+	{
+		"word": "מכי",
+		"description": " מְכֵי, מַכְיָא, מַכְיָה f. ([Jastrow, מְכִי,1]) 1) courbé, lâche, timide. [Vayikra Rabbah,13] [lire :] הדא חיותא כי סלקא מן ימא היא מ׳ וכ׳ Ar. (ed. ממכיא) un animal sortant de l'eau et arrivant sur terre est craintif, sortant de la forêt, il ne l'est pas ; [Shir HaShirim Rabbah,3,4,2] (corr. acc.). -2) bas.-Pl. מָכַיָּיא. [Bereishit Rabbah,32,10] אי מן מ׳ הוא s'il s'agit d'une des basses montagnes ; ([Shir HaShirim Rabbah,4,4,4] מַכִּיכַיָּא, v. [Jastrow, מַכִּיךְ,1]). "
+	},
+	{
+		"word": "מכיך",
+		"description": " מַכִּיךְ, מַכִּיכָא, מַכִּיכָא, מַכִּיכְתָּא f. ([Jastrow, מְכַךְ,1]) 1) bas ; bas, humble. [Onkelos Lévitique,13,20], sq.-[Targum araméen aux Proverbes,18,14] (ed. Wil. [Jastrow, מְכִכְתָּא,1]). [Targum araméen des Proverbes,17,27] ; a. fr.-Pl. מַכִּיכִין, מַכִּיכַיָּא. [Targum Jonathan sur Isaïe, 57,15]. [Targum araméen sur Job,5,11] ; a. fr.-[Shir HaShirim Rabbah,4,4,4], v. [Jastrow, מְכֵי,1] [ -2) traversin, coussin, v. [Jastrow, מַכָּכָא,1]. "
+	},
+	{
+		"word": "מכיכותא",
+		"description": " מַכִּיכוּתָא f. ([Jastrow, מַכִּיךְ,1]) 1) bassesse, humilitég. [Targum araméen de l'Ecclésiaste, 10,6] ; a. e. -2) langueur. Ib. 18 מַכִּיכוּת תפקידתא langueur dans l'observation de la loi (texte h. שפלות ידים). "
+	},
+	{
+		"word": "מכיכתא",
+		"description": " מַכִּיכְתָּא , v. [Jastrow, מַכִּיךְ,1]. "
+	},
+	{
+		"word": "מכילא",
+		"description": " מְכִילָא, מְכִילְתָּא, מְכִל׳ f. ([Jastrow, כּוּל,1]) 1) mesure de la capacité ; trnsf. (v. [Jastrow, מִדָּה,1]) rétribution, distribution. [Onkelos Deutéronome,25,14]. [Targum de I Chroniques,23,29] ; a. fr.-[Targum araméen de Job,9,22] חדא מ׳ le même destin.-Pl. [Jastrow, מְכִילָא,1], מְכִלָן, [Jastrow, מְכִילָא,1], [Jastrow, מְכִילָא,1]. Targ. Y. Deut. l. c. [Onkelos Leviticus,19,36] (Y. מְכִילוּ, lire : ... לָן). Y. B. Bath. V, fin, 15ᵇ הוה מחי על מ׳ puni pour les fausses mesures. -2) un récipient utilisé en rapport avec les pains de proposition dans le Temple.-Pl. [Jastrow, מְכִילָא,1]. [Onkelos Exode,25,29] (texte h. [Jastrow, *מְנַקִּיּוֹת,1]) ; a. e. -3) (cmp. [Jastrow, מִדָּה,1]) un recueil de règles d'interprétation, traité, tract. [Gittin,44a,10] עיין במְכִילְתֵּיךְ le lire dans ta collection (Boraitha). [Pessahim,48a,13] ואהדר ליה במ׳ וכ׳ et sa réponse est consignée dans un autre recueil.-Y. Ab. Zar. IV, 44ᵇ top אפיק ... מ׳ R. Y. a produit la M'khilta (v. infra ; v. Mekh. Mishp. s. 20, éd. Weiss, p. 107, note 100).-Pl. [Jastrow, מְכִילָא,1]. [Vayikra Rabbah,3,1], beg. רעותיה ... בר מ׳ il aime qu'on l'appelle un homme maîtrisant de nombreux Mekhiltas ; [Kohelet Rabbah,4,6,1] מרי מ׳ (certains éditeurs [Jastrow, מיכיילא,1], מיכלייאן, v. [Jastrow, מֵיכְלָא II,1]).-Esp. M'khilta, ou M. d'bé R. Yishmael, un livre halakhique et midrashique sur l'Exode du ch. XII au XXXV. "
+	},
+	{
+		"word": "מכיר",
+		"description": " מַכִּיר , v. [Jastrow, נָכַר,1]. "
+	},
+	{
+		"word": "מכיר",
+		"description": " מכיר , [Pirkei DeRabbi Eliezer,38], lu מְכֵירָא, v. [Jastrow, מְכֵירִין,1] "
+	},
+	{
+		"word": "מכירה",
+		"description": " מְכִירָה f. ([Jastrow, מָכַר,1]) vente. [Rosh Hashanah,26b] ; [Sotah,13a,8], v. [Jastrow, כִּירָה I,1]. Y. Kidd. I, 59ᵃ מ׳ מ׳ on établit une analogie entre les expressions מכר ([Deutéronome,15,12] a. [Exode,21,7]). Ib. bot. שביעית של מ׳ la septième année comptée à partir de la date de la vente, opp. של עולם l'année sabbatique. [Bava Kamma,68a,25] מ׳ שאינה חוזרת une vente qui ne peut être reconsidérée ; a. fr.-Y. Maas. Sh. III, beg. 54ᵃ מְכוּרָתוֹ מיוחדת sa vente est autorisée dans un passage biblique spécial ([Deutéronome,14,24], sq.). "
+	},
+	{
+		"word": "מכירין",
+		"description": " מְכֵירִין m. pl. (μάχαιρα) couteaux, poignards. Tanḥ. Vayḥi 9 (jeu sur [Jastrow, מְכֵרוֹת,1], [Genèse,49,5]) לשון יוני הוא שקורין לחרבות מ׳ c'est du grec, dans lequel les épées sont appelées machaerin. [Bereishit Rabbah,99,7] לשון יוני הוא מ׳ ; [Pirkei DeRabbi Eliezer,38] שהיונים קוראים לחרב מכיר (lire : מְכֵירָא). [Bereishit Rabbah,88,3] קונדא מ׳ נתנו וכ׳ (combinés en un mot : κονδομάχειρα, v. S. composés de κοντο) ils ont mis des poignards courts dans leurs chaussures. [Vayikra Rabbah,33,1], beg. [Jastrow, מוכירין,1] (acc. corr.), v. [Jastrow, מִיצְטְרָא,1]. "
+	},
+	{
+		"word": "מכיצטרכי",
+		"description": " מכיצטרכי , v. [Jastrow, מגיסטריני,1]. "
+	},
+	{
+		"word": "מכישה",
+		"description": " מַכִּישָׁה , v. [Jastrow, מַכּוֹשׁ,1] "
+	},
+	{
+		"word": "מכך",
+		"description": " מָכַךְ (v. [Jastrow, מוּךְ,1]), Hif. הֵימֵךְ plier, abaisser. [Tosefta Nazir,4,7] הֵימַכְתִּי את וכ׳ J'ai courbé la tête.<br> Nif. - נָמַךְ d'être écrasé. [Sifrei Devarim,296] נָמַכּיּ , v. [Jastrow, חָשַׁל,1].<br> Nithpa. - נִתְמַכֵּךְ , v. [Jastrow, מִכְמֵךְ,1]. "
+	},
+	{
+		"word": "מכך",
+		"description": " מְכַךְ ch. [Jastrow, מָכַךְ,1] , abaisser, niveler ; humilier. [Targum Jonathan sur Exode,12,37] למֵימַךְ וכ׳ pour niveler les montagnes. [Targum araméen sur les Psaumes,35,15] (texte h. נכים).-Part. pass. : [Jastrow, מַכִּיךְ,1], pl. מְכִיכִין posé sous, soutenu. [Targum Jonathan sur Ezéchiel,23,41], v. [Jastrow, מַכָּכָא,1]<br> Pa. - מַכֵּךְ [Jastrow, מָכַךְ,1]. [Targum Jonathan sur les Nombres, 14, 14]. [Targum araméen sur les Proverbes,22,22].- [Targum araméen sur les Lamentations,3,34]. [Targum araméen des Psaumes,147,6] [lire :] מְמַכֵּיךְ, v. [Jastrow, מְאַךְ,1] ; a. e.-[Yoma,84b,8] מַכֵּיךְ מַכּוּכֵי Rashi a. Ms. O. (ed. מְמַכֵּיךְ, v. Rabb. D. S. a. l. note 9 ; Ms. L. מסכיך סכוכי, v. [Jastrow, סְכַךְ,1]) il soumet la flamme (et produit un feu de charbon qui peut être utilisé).<br> Ithpa. - אִתְמַכֵּךְ pour être humilié, rabaissé. [Targum araméen des Psaumes,42,6] ; a. e. "
+	},
+	{
+		"word": "מככא",
+		"description": " מַכָּכָא m. ([Jastrow, מְכַךְ,1] ; cmp. [Jastrow, מוֹךְ,1]) soutien, coussin. [Targum Jonathan sur Ezéchiel,23,41] מְכִיכִין מַ׳ דיקר ed. Lag. (ed. seulement מַכִּיכִין דיקר, corr. acc.) soutenu par des coussins d'honneur. [Targum Jonathan sur II Samuel,17,28] ed. Lag. (éd. [Jastrow, מכבין,1], acc. corrigé ; texte intégral [Jastrow, מִשְׁכָּב,1]). [Targum Jonathan sur Amos,6,7] ed. Lag. (ed. מַכִּיכִין). "
+	},
+	{
+		"word": "מככתא",
+		"description": " מְכִכְתָּא , v. [Jastrow, מַכִּיךְ,1]. "
+	},
+	{
+		"word": "מכל",
+		"description": " מַכָּל m. ([Jastrow, נְכַל,1]) fraude, falsification. Mekh. Mishp. s. 13, v. [Jastrow, דֶּלֶם,1]. "
+	},
+	{
+		"word": "מכלא",
+		"description": " מֵכְלָא , v. [Jastrow, מֵיכַל,1]. "
+	},
+	{
+		"word": "מכלא",
+		"description": " מְכִלָא, מְכִלְתָּא , v. [Jastrow, מְכִילָא,1] "
+	},
+	{
+		"word": "מכלה",
+		"description": " מִכְלָה, מִי׳ f. (b. h. ; [Jastrow, כָּלָה,1] [Jastrow, כָּלָה,1]) perfection.-Pl. מִכְלוֹת, [Jastrow, מִכְלָה,1] ; מ׳ זהב (récipients) en or pur. [Menachot,29a,5] (expl. מ׳ זהב, [II Chroniques,4,21]) שכילתו לכל זהב וכ׳ il a utilisé tout l'or enfermé de Salomon. "
+	},
+	{
+		"word": "מכלה",
+		"description": " מְכַלֶּה m. ([Jastrow, כָּלָה,1]) Destructeur, nom d'un ange du jugement. [Devarim Rabba,3], v. [Jastrow, הַשְׁמֵד,1]. "
+	},
+	{
+		"word": "מכלותא",
+		"description": " מֵכְלוּתָא , v. [Jastrow, מֵיכְלוּתָא,1] "
+	},
+	{
+		"word": "מכלל",
+		"description": " מִכְּלָל , v. [Jastrow, כְּלָל,1]. "
+	},
+	{
+		"word": "מכללה",
+		"description": " מכללה , [Shir HaShirim Rabbah,2,15,2], v. [Jastrow, בלטוורא,1] "
+	},
+	{
+		"word": "מכללתא",
+		"description": " מַכְלַלְתָּא pr. n. pl. ([Jastrow, כְּלַל,1]) Makhlalta (couronne). [Targum Jonathan sur Nombres, 32,3] ; Targum Jonathan sur Nombres, 32,34] (texte h. [Jastrow, עֲטָרוֹת,1], [Jastrow, עֲטָרוֹת,1]). [Targum Jonathan sur Nombres,32,35] מַכְלְלַת (Y. II מ׳ ד- ; texte h. עַטְרֹת). "
+	},
+	{
+		"word": "מכלתא",
+		"description": " מְכִלְתָּא , v. [Jastrow, מְכִילָא,1]. "
+	},
+	{
+		"word": "מכלתייא",
+		"description": " מכלתייא , Yalk. Dan. 1061 quelques éd., v. [Jastrow, מצלתייא,1]. "
+	},
+	{
+		"word": "מכמור",
+		"description": " מִכְמוֹר , pl. [Jastrow, *מִכְסוֹרִין,1], v. [Jastrow, מִכְמוֹרֶת,1] "
+	},
+	{
+		"word": "מכמורת",
+		"description": " מִכְמוֹרֶת, מִכְמֶרֶת f. (b. h. ; כמר to hide) piège, petit filet de pêcheur, contrad. à [Jastrow, חֵרֶם,1]. Y. Pes. IV, 30ᵈ haut ; Y. M. Kat. II, fin, 81ᵇ צד הוא במ׳ on peut pêcher avec le petit filet. Y. Yeb. XVI, 15ᵈ top (prob. à lire : רוֹת ... pl.), v. [Jastrow, כָּמַר,1].-Pl. [Jastrow, מִכְמוֹרֶת,1], [Jastrow, *מִכְסוֹרִין,1], מִכְמֵרוֹת. [Tosefta Beitsah,3,1] ; Y. ib. 62ᵃ top. [Yevamot,121a,15] מכמורין ; [Tosefta Yevamot,14,6] מכמרות (Var. מכמרראות, lire מַכְמוֹרָאוֹת, fr. מַכְמוֹרִית). [Mishnah Kelim,23,5]. [Mishna Makhshirin, 5,7]. [Pirkei DeRabbi Eliezer,51,13] נאחזין במכמרותיהם seront pris dans les filets tendus pour eux ; a. e. "
+	},
+	{
+		"word": "מכמך",
+		"description": " מִכְמֵךְ (v. [Jastrow, מָכַךְ,1]) écraser.<br> Nithpalp. - נִתְמַכְמֵךְ à écraser. [Sanhedrin,101b] (Ar. ed. pr. [Jastrow, מָכַךְ,1]) ; cmp. [Jastrow, מָעַךְ,1]. "
+	},
+	{
+		"word": "מכמם",
+		"description": " מכמם , v. [Jastrow, מִכְמָס,1] "
+	},
+	{
+		"word": "מכמס",
+		"description": " מִכְמָס pr. n. pl. (b. h. מכמש) Mikhmas en Benjamin. (Mishnah Menachot, 8,1) (Bab. ed. 83ᵇ [Jastrow, מכניס,1], corr. acc. ; v. Rabb. D. S. a. l.) ; Tosef. ib. IX, 2 [Jastrow, מכמם,1] éd. Zuck. (Var. ... [Jastrow, מַס I,1]). "
+	},
+	{
+		"word": "מכמר",
+		"description": " מִכְמַר , v. [Jastrow, כְּמַר,1] "
+	},
+	{
+		"word": "מכמר",
+		"description": " מִכְמָר m. (b. h., v. [Jastrow, מִכְמוֹרֶת,1]) piège, filet. [Bava Kamma,117a,19].-[מכמרים, [Esther Rabbah,10,4] ed. Wil, lire מסמרים]. "
+	},
+	{
+		"word": "מכמרת",
+		"description": " מִכְמֶרֶת , v. [Jastrow, מִכְמוֹרֶת,1] "
+	},
+	{
+		"word": "מכמת־",
+		"description": " מִכְּמַת- f. constr. (composé de מִ, כְּ a. [Jastrow, מָא,1] ; cmp. [Jastrow, דִּכְמָא,1]) de ceux qui sont semblables. [Targum araméen des Psaumes,73,15] ed. Lag., v. [Jastrow, דִּכְמָא,1]. "
+	},
+	{
+		"word": "מכן",
+		"description": " מִכַּן , v. [Jastrow, כַּאַן,1]. "
+	},
+	{
+		"word": "מכן",
+		"description": " מִכֵּן , v. [Jastrow, כֵּן I,1] "
+	},
+	{
+		"word": "מכני",
+		"description": " מִכְנִי , v. [Jastrow, מוּכְנִי,1] "
+	},
+	{
+		"word": "מכניס",
+		"description": " מכניס , [Menachot,83b,11], v. [Jastrow, מִכְמָס,1].-([Bereishit Rabbah,31] מכניסו, quelques ed., v. next w.]. "
+	},
+	{
+		"word": "מכנס",
+		"description": " מִכְנָס m. ([Jastrow, כָּנַס,1]) 1) stocker, mettre en réserve. Y. Kil. II, beg. 27ᶜ דרך מ׳ à la manière de stocker (pour la consommation domestique). [Bereishit Rabbah,31] רוב מִכְנָסוֹ, v. [Jastrow, דְּבֵילָה,1]. Y. Dem. III, 22ᶜ top רוב מכנסו מישראל la plus grande partie de son stockage provient des Juifs. -2) בית מ׳ le côté inférieur de la pelle, v. [Jastrow, כּוֹנֵס,1]. Y. B. Mets. IX, beg. 12ᵃ "
+	},
+	{
+		"word": "מכנסים",
+		"description": " מִכְנָסַיִם, מִכְנָסַיִים m. du. (b. h. ; [Jastrow, כָּנַס,1]) [vêtements de retraite,] sous-vêtements, tiroirs. [Mishnah Yoma,7,5]. [Yoma,23b,12] שלא יהא דבר קודם למ׳ qu'il ne faut pas mettre de vêtement avant (sous) les tiroirs ; a. fr. "
+	},
+	{
+		"word": "מכנסין",
+		"description": " מַכְנְסִין, מִכְ׳ ch. [Jastrow, מִכְנָסַיִם,1] [Onkelos Leviticus,6,3] ; a. e. "
+	},
+	{
+		"word": "מכנשתא",
+		"description": " מַכְנַשְׁתָּא f. ([Jastrow, כְּנַשׁ,1]) rassemblement dans. [Bava Metzia,21a,13] מ׳ דבי דרי la saison du stockage des grains de l'aire de battage ; [Bava Metzia,21b,6] מ׳ דביזרי (corr. acc.). [Ar. s. v. כנש, lit [Jastrow, כְּנִישָׁא,1], et explique : les balayures de l'aire de battage]. "
+	},
+	{
+		"word": "מכס",
+		"description": " מָכַס (dénom. de [Jastrow, מֶכֶס,1]) pour payer le péage. [Midrash Tehillim,109,14] אם אינך מוֹכֵס כל וכ׳ si tu ne payes pas le péage sur tous tes biens, il ne te restera rien.-V. [Jastrow, מוֹכֵס,1]. "
+	},
+	{
+		"word": "מכס",
+		"description": " מֶכֶס m. (b. h. ; [Jastrow, כָּסַס,1] [Jastrow, כָּסַס,1]) [marquer, compter,] péage, taxe. [Sukkah,30a,3] בית המ׳ le poste de douane. [Shabbat,33b,5] ; [Avodah Zarah,2b,9] תקנתם גשרים ליטול בהם מ׳ on construit des ponts afin d'y prélever un péage. [Avodah Zarah,13a,2] יניח לו את המ׳ à lui le péage sera remis. Tanḥ. Lekh 5 טלו מ׳ של חטין percevoir le droit comme s'il s'agissait de blé ; a. fr.-Pl. מִכְסָאוֹת. "
+	},
+	{
+		"word": "מכסא",
+		"description": " מִכְסָא, מִיכְ׳ ch. [Jastrow, מֶכֶס,1].  [Bereishit Rabbah,40,5] כיון דמטא למ׳ (= לבי מ׳) quand il est arrivé au poste de douane. [Bereishit Rabbah,40,5] הב מ׳ payer le péage. [Avodah Zarah,4a,11] שבקו ליה מ׳ וכ׳ ils l'ont libéré des taxes pendant treize ans. Jastrow, מִכְסָא,1], infin. de [Jastrow, כְּסֵי,1], v. [Jastrow, כְּסַן,1].]-Pl. מִכְסֵי, [Jastrow, מִכְלָה,1]. [Jastrow, מְשָׁכָא,1] Custom House, nom d'un lieu. [Ketubot,112a,1] haut ; [Yevamot,45a,18] ; [Gittin,46b,16] ; v. [Jastrow, כּוּבָּא II,1]. "
+	},
+	{
+		"word": "מכסא",
+		"description": " מָכְסָא , v. [Jastrow, מוֹכֵס ²,1]. "
+	},
+	{
+		"word": "מכסאני",
+		"description": " מכסאני , v. [Jastrow, מַכְסָנָא,1] "
+	},
+	{
+		"word": "מכסה",
+		"description": " מִכְסֶה m. (b. h. ; [Jastrow, כסי ²,1] 1) toile de tente. [Shabbat,28a,4] ; a. e.-Pl. מִכְסָאוֹת. Ib. [Bamidbar Rabbah,12], fin ; a. e. -2) (v. [Lévitique,3,3]) la couverture des entrailles, le péritoine. Y. Hor. I, 46ᵃ haut ושל מ׳ (pas ולומ׳) et la graisse du péritoine. "
+	},
+	{
+		"word": "*מכסורין",
+		"description": " *מִכְסוֹרִין, מַכְסִי׳ m. pl. (כסר, cmp. Arab. kasar et denom.) division, règlement des parts (cmp. [Jastrow, מֶכֶס,1]). Y'lamd. à Num. XXIII, 10, cit. en Ar. לכשתטול את שלך ותעשה המ׳ וכ׳ quand tu (Balaam) prendras ta part et fera un règlement, tu seras d'accord avec (ou tu me remercieras). [Ar. se réfère à [Jastrow, אַכְסָרָה,1].] "
+	},
+	{
+		"word": "מכסח",
+		"description": " מכסח , Y. Sabb. VI, fin, 8ᵈ קריב למ׳, lire : למָכְסָה, v. [Jastrow, מוֹכֵס ²,1]. "
+	}
+]
