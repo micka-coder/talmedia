@@ -12,7 +12,7 @@ Celui qui récite le _Shema_ mais ne le rend pas audible à son oreille - a remp
 Les travailleurs peuvent réciter [_Shema_] au sommet d'un arbre ou d'un mur de pierres, ce qu'ils ne sont pas autorisés à faire pour la prière [récitation du Shemoneh Esreh].
 
 ### michna 5
-Un marié est exempté de la récitation du _Shema_ la première nuit, jusqu'au samedi soir s'il n'a pas fait l'acte. Une histoire sur Rabban Gamliel qui a récité [_Shema_] la première nuit de son mariage. Ses élèves lui ont dit : Ne nous avez-vous pas enseigné, notre maître, qu'un marié est exempté de réciter le _Shema_ la première nuit ? Il leur répondit : Je ne vous écouterai pas, pour éloigner de moi le royaume des cieux, ne serait-ce qu'une heure.
+Un marié est exempté de la récitation du _Shema_ la première nuit, jusqu'au samedi soir s'il n'a pas fait l'acte. On raconte que Rabban Gamliel a récité le [_Shema_] la première nuit de son mariage. Ses élèves lui ont dit : Ne nous avez-vous pas enseigné, notre maître, qu'un marié est exempté de réciter le _Shema_ la première nuit ? Il leur répondit : Je ne vous écouterai pas, pour éloigner de moi le royaume des cieux, ne serait-ce qu'un instant.
 
 ### michna 6
 Rabban Gamliel] s'est lavé la première nuit après la mort de sa femme. Ses élèves lui dirent : Ne nous avez-vous pas appris, notre maître, qu'il est interdit à une personne en deuil de se laver ? Il leur répondit : Je ne suis pas comme les autres personnes. Je suis délicat.

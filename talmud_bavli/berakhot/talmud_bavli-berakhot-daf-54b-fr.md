@@ -63,7 +63,7 @@ La Gemara demande : <b>Mais Abaye n'a-t-il pas dit</b> que <b>on doit offrir des
 Incidemment a la declaration precedente du Rav Yehuda, qui organisait plusieurs cas en une seule categorie, la Gemara cite des declarations similaires de sa part. <b>Rav Yehuda a dit : Trois necessitent une protection</b> contre le mal : <b>Une personne malade, un jeune marie et une jeune mariee. Il a ete enseigne dans une <i>baraita</i> : Un malade, une femme en couches, un marie et une mariee</b> necessitent une protection contre le mal. <b>Et certains disent : Meme une personne en deuil. Et certains disent : Meme les erudits de la Torah la nuit.</b> Ceux dont les pensees sont concentrees ailleurs ou qui sont dans un etat physique affaibli ont besoin de protection.
 
 ### Partie 22
-<b>Et Rav Yehuda dit : Il y a trois matieres qui,</b> lorsque <b>ceux qui prolongent leur</b> duree, <b>elles prolongent les jours et les annees d'une personne.</b> Ce sont : <b>La personne qui prolonge sa priere, celle qui prolonge son</b> repas a la <b>table, et celle qui prolonge</b> son temps dans <b>la salle de bain.</b>
+<b>Et Rav Yehuda dit : Il y a trois choses qui,</b> si <b>l'on prolonge son temp avec </b>  <b>elles prolongent les jours et les annees d'une personne.</b> Ce sont : <b>La personne qui prolonge sa priere, celle qui prolonge son</b> repas a <b>table, et celle qui prolonge</b> son temps dans <b>les toilettes.</b>
 
 ### Partie 23
 La Gemara demande : <b>Et celui qui prolonge sa priere ; est-ce une vertu ? Rabbi Hiyya bar Abba n'a-t-il pas dit</b> que <b>Rabbi Yohanan a dit :</b>

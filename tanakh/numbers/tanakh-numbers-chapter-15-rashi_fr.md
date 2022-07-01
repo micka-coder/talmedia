@@ -45,14 +45,14 @@
 ### passuk 17
 
 ### passuk 18
-<b>Lors de ton arrivée dans le pays.</b> Cette " arrivée " est différente de toutes les " arrivées " de la Torah. Avec toutes, il est dit : " quand tu viendras ", " quand vous viendrez tous ".Par conséquent, toutes sont apprises les unes des autres. Puisque l'Écriture a spécifié pour l'un d'entre eux que c'est seulement après avoir hérité et s'être installé, tous sont identiques. Dès qu'ils sont entrés dans le pays et ont mangé son pain, ils ont été obligés de respecter la mitsva de la challah. 
+<b>Lors de ton arrivée dans le pays.</b> Cette " arrivée " est différente de toutes les " arrivées " de la Torah. Avec toutes, il est dit : "quand tu viendras", "quand vous viendrez tous".Par conséquent, toutes sont apprises les unes des autres. Puisque l'Écriture a spécifié pour l'un d'entre eux que c'est seulement après avoir hérité et s'être installé, tous sont identiques. Mais pour celle là (cette mitsva) dès qu'ils sont entrés dans le pays et ont mangé son pain, ils ont été obligés de respecter la mitsva de la challah. 
 
 ### passuk 19
 
 ### passuk 20
-<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert  quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois ufs et un cinquième) - tu sépareras [le cadeau <i>terumah</i>] de sa première portion. Comme pour dire : "avant d'en manger la première portion, séparez un pain comme <i>terumah</i>-cadeau pour l'amour d'Hachem'. 
+<b>[De] la première portion de vos pàtes.</b> Quand on pétrit la quantité de pàte que l'on pétrit généralement dans le désert  quelle est cette quantité ? On la mesure avec un <i>omer,</i> "Un <i>omer</i> par personne" (la quantité est de quarante-trois oeufs et un cinquième) - tu sépareras [le prélèvement <i>terumah</i>] de sa première portion. Comme pour dire : "avant d'en manger la première portion, séparez un pain comme <i>terumah</i> au nom d'Hachem'. 
 <b>Un pain.</b> <i>Tortel</i> en ancien français.
-<b>Comme la <i>terumah</i>-offrande du grenier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour laquelle aucune quantité spécifique n'est requise, mais pas comme comme la <i>terumah</i>-offrande de la dîme, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour laquelle une quantité spécifique est requise. Cependant, les sages exigeaient un montant spécifique : Pour le ménager, un vingt-quatrième, pour le boulanger commercial, un quarante-huitième. 
+<b>Comme la <i>terumah</i>-offrande du grenier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour laquelle aucune quantité spécifique n'est requise, mais pas comme comme la <i>terumah</i>-offrande de la dîme, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour laquelle une quantité spécifique est requise. Cependant, les sages exigeaient un montant spécifique : Pour le particulier, un vingt-quatrième, pour le boulanger, un quarante-huitième. 
 
 ### passuk 21
 <b>De la première portion de vos pâtes.</b> Pourquoi cela est-il dit ? Parce qu'il est dit : "La première portion de votre pâte", je comprendrais cela comme <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> le premier des pains. La Torah enseigne donc : " de la première portion " - une partie, mais pas la totalité. 
