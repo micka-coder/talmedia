@@ -33,7 +33,7 @@ La Gemara dit : <b>Trois</b> aliments <b>entrent dans le corps</b> pourtant <b>l
 La Guemara demande : <b>L'usage de quoi</b> profite au corps et est un microcosme du Monde-a-Venir ? <b>Si l'on dit</b> que cela fait reference aux <b>relations conjugales, cela n'affaiblit-il pas</b> le corps ? <b>Au contraire,</b> il fait reference a <b>l'utilisation de ses orifices,</b> a se soulager.
 
 ### Partie 12
-<b>Trois matieres</b> <b>soulagent l'esprit, ce sont : La voix, la vue et l'odorat,</b> lorsqu'elles sont agreables et esthetiques. <b>Trois</b> matieres <b>donnent du confort a une personne, et ce sont : Une belle demeure, une belle epouse, et de beaux vaisseaux.</b>
+<b>Trois matieres</b> <b>soulagent l'esprit, ce sont : La voix, la vue et l'odorat,</b> lorsqu'elles sont agreables et esthetiques. <b>Trois</b> matieres <b>donnent du confort a une personne, et ce sont : Une belle demeure, une belle epouse, et de beaux ustensiles.</b>
 
 ### Partie 13
 Les chiffres <b>cinq, six et dix sont des mnemoniques</b> pour les categories a suivre. La Guemara dit : Il y a <b>cinq</b> matieres dans notre monde qui sont <b>un soixantieme</b> de leurs manifestations les plus extremes. <b>Ils sont : Le feu, le miel, le Shabbat, le sommeil et un reve.</b> La Gemara developpe : Notre <b>feu</b> est <b>un soixantieme</b> du feu de la <b>Gehenna ; le miel est un soixantieme de la manne ; le Shabbat est un soixantieme du Monde-a-Venir ; le sommeil est un soixantieme de la mort;</b> et <b>un reve est un soixantieme de la prophetie.</b>

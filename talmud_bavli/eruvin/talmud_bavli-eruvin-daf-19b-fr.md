@@ -57,7 +57,7 @@ La Guemara demande par rapport à la déclaration de Rabba' : <b>Et s'il en est 
 La Guemara répond : Aucune preuve ne peut être apportée d'ici, car Rabbi Yehuda <b>dit comme suit : Celui-ci</b>, les murs d'une cour, sont régis par <b>les lois d'une cloison, et</b> donc <b>ses brèches</b> ne doivent pas dépasser <b>dix</b> coudées. <b>Alors que ceux-ci,</b> qui entourent le puits, sont régis par <b>les lois des</b> <b>planches verticales, et leurs brèches</b> peuvent aller jusqu'à <b>treize et un tiers de coudées.</b> Par conséquent, seule une surface de deux <i>se'a</i> peut être close de cette manière. Par conséquent, aucune preuve ne peut être apportée de cette <i>baraita</i> au dilemme d'Abaye'.
 
 ### Partie 20
-<b>Abaye soulève</b> un autre <b>dilemme devant Rabba : un monticule qui s'élève</b> à une hauteur de <b>dix</b> handbreadths <b>dans</b> une surface de <b>quatre</b> coudées peut-il <b>servir de double poteau ou ne peut-il pas servir de double poteau ?</b>
+<b>Abaye soulève</b> un autre <b>dilemme devant Rabba : un monticule qui s'élève</b> à une hauteur de <b>dix</b> coudées <b>dans</b> une surface de <b>quatre</b> coudées peut-il <b>servir de double poteau ou ne peut-il pas servir de double poteau ?</b>
 
 ### Partie 21
 Rabba <b>lui dit : Nous</b> avons déjà <b>appris cela</b> dans la <i>baraita</i> suivante : <b>Rabbi Shimon ben Elazar dit :</b> Si <b>une pierre carrée était présente, on voit</b> la pierre comme si elle était altérée : <b>Là où elle peut être divisée</b> de telle sorte que <b>il resterait une coudée ici</b> dans une direction <b>et une coudée là</b> à angle droit, <b>elle peut servir de double poteau ; mais sinon, elle ne peut pas servir de double poteau.</b>
@@ -69,10 +69,10 @@ Rabba <b>lui dit : Nous</b> avons déjà <b>appris cela</b> dans la <i>baraita</
 En ce qui concerne la <i>baraita</i> elle-même, la Gemara demande : <b>A propos de quoi</b> ces deux <i>tanna'im</i> <b>sont-ils en désaccord ?</b> La Guemara explique qu'un <b>Sage,</b> Rabbi Shimon ben Elazar, <b>soutient</b> que <b>on dit : On voit, une fois.</b> Cependant, <b>on ne dit pas : On voit, deux fois.</b> C'est-à-dire que si la pierre peut être considérée comme si elle était divisée, elle ne peut pas aussi être considérée comme si elle était ciselée en un carré. <b>Et</b> l'autre <b>Sage,</b> Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, <b>soutient</b> que <b>on dit même : Nous voyons, deux fois.</b> Puisqu'un monticule est semblable à une pierre ronde, il peut donc servir de double poteau.
 
 ### Partie 24
-<b>Abaye a soulevé</b> un autre <b>dilemme devant Rabba :</b> En ce qui concerne <b>une barrière de roseaux</b> en forme de double poteau, où <b>chaque roseau est distant de moins de trois</b> handbreadths du suivant, de sorte qu'ils sont considérés comme reliés par le principe du <i>lavud</i>, <b>peut-elle servir de double poteau ou non ?</b>
+<b>Abaye a soulevé</b> un autre <b>dilemme devant Rabba :</b> En ce qui concerne <b>une barrière de roseaux</b> en forme de double poteau, où <b>chaque roseau est distant de moins de trois</b> coudées du suivant, de sorte qu'ils sont considérés comme reliés par le principe du <i>lavud</i>, <b>peut-elle servir de double poteau ou non ?</b>
 
 ### Partie 25
-Rabba <b>lui a dit : Nous</b> avons déjà <b>appris cette</b> loi dans une <i>baraita</i> qui stipule : Si <b>un arbre, ou une clôture, ou une barrière de roseaux était présent, il sert de double poteau. Est-ce que</b> ceci <b>ne se réfère pas</b> à une barrière de roseaux où <b>chaque roseau est à moins de trois</b> handbreadths du suivant ?
+Rabba <b>lui a dit : Nous</b> avons déjà <b>appris cette</b> loi dans une <i>baraita</i> qui stipule : Si <b>un arbre, ou une clôture, ou une barrière de roseaux était présent, il sert de double poteau. Est-ce que</b> ceci <b>ne se réfère pas</b> à une barrière de roseaux où <b>chaque roseau est à moins de trois</b> coudées du suivant ?
 
 ### Partie 26
 La Gemara réfute cette affirmation : <b>Non,</b> elle peut peut-être faire référence à <b>un fourré de roseaux</b> plantés de manière rapprochée, formant une sorte de poteau. La Gemara soulève une difficulté : <b>Si c'est le cas, il est</b> équivalent à <b>un arbre,</b> et le <i>tanna</i> ne répéterait pas deux fois le même cas.
@@ -84,7 +84,7 @@ La Gemara rejette cet argument : <b>Quoi donc ? </b> Diriez-vous que le <i>barai
 La Guemara cite une version alternative de la discussion précédente : <b>Il y a</b> certains <b>qui disent</b> que la question a été posée différemment, et que le <b>dilemme</b> qu'Abaye <b>soulevait devant</b> Rabba concernait la question de savoir si oui ou non un <b>caniveau dense de roseaux</b> peut servir de double poteau. Rabba <b>lui a dit : Nous</b> avons déjà <b>appris cette</b> loi dans la <i>baraita</i> suivante : si <b>un arbre, ou une clôture, ou une barrière de roseaux était présent, il peut servir de double poteau. Est-ce que</b> ceci <b>ne se réfère pas</b> à <b>un fourré de roseaux ?</b>
 
 ### Partie 29
-La Gemara réfute cette affirmation : <b>Non,</b> il peut peut-être faire référence à une barrière de roseaux où <b>chaque roseau est distant de moins de trois</b> handbreadths du suivant. La Gemara soulève une difficulté : <b>Si oui, c'est</b> exactement <b>une barrière.</b>
+La Gemara réfute cette affirmation : <b>Non,</b> il peut peut-être faire référence à une barrière de roseaux où <b>chaque roseau est distant de moins de trois</b> coudées du suivant. La Gemara soulève une difficulté : <b>Si oui, c'est</b> exactement <b>une barrière.</b>
 
 ### Partie 30
 La Guemara rejette cet argument : <b>Quoi donc ? </b> Dirais-tu que la <i>baraita</i> fait référence à <b>un fourré de roseaux ?</b> Si oui, <b>c'est un arbre. Au contraire, que devez-vous dire</b> est...

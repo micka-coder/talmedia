@@ -3,7 +3,7 @@
 <b>qu'ils ne sont pas précisément</b> une coudée. <b>Grâce, selon Rava,</b> le <i>baraita</i> signifie : <b>Ainsi, celles-ci,</b> les coudées de diverses sortes de graines, <b>doivent être</b> mesurées avec des paliers <b>expansifs</b>, <b>et celles-là,</b> les coudées de <i>sukka</i>, doivent être mesurées avec des paliers <b>dépressifs</b>. <b>Cependant, selon Abaye,</b> c'est <b>difficile.</b>
 
 ### Partie 2
-La Gemara répond : <b>Abaye</b> aurait pu <b>vous dire :</b> Emendez la <i>baraita</i> et <b>dire : La coudée de diverses sortes</b> de graines mentionnées par les Sages <b>est</b> mesurée <b>avec une coudée de six</b> handbreadths, pas les autres coudées.
+La Gemara répond : <b>Abaye</b> aurait pu <b>vous dire :</b> Emendez la <i>baraita</i> et <b>dire : La coudée de diverses sortes</b> de graines mentionnées par les Sages <b>est</b> mesurée <b>avec une coudée de six</b> coudées, pas les autres coudées.
 
 ### Partie 3
 La Guemara soulève une difficulté. <b>Cependant, du</b> fait <b>qu'il est enseigné</b> dans <b>la dernière clause</b> de la <i>baraita</i> que <b>Rabban Shimon ben Gamliel dit : Toutes les coudées que les Sages ont mentionnées à propos des diverses sortes</b> de graines sont mesurées <b>avec des coudées de six</b> paliers, <b>à condition qu'elles ne soient pas</b> mesurées avec des paliers <b>exacts</b> ? Ceci prouve <b>par inférence</b> que <b>le</b> anonyme <b>premier <i>tanna</i> parle de toutes les coudées,</b> et pas seulement de celles dans le cas des diverses sortes de graines.
@@ -15,10 +15,10 @@ La Guemara répond que <b>Abaye</b> aurait pu <b>vous dire : N'y a-t-il pas un R
 La Gemara commente : <b>Selon Abaye,</b> la question des grandes et petites coudées <b>est certainement</b> l'objet d'une dispute entre les <b><i>tanna'im</i>,</b> car sa décision ne peut être que conforme à l'avis de Rabban Shimon ben Gamliel. <b>Selon Rava,</b> cependant, <b>doit-on dire</b> que <b>ceci fait</b> l'objet d'un différend entre <b><i>tanna'im</i> ?</b>
 
 ### Partie 6
-La Guemara répond : Ce n'est pas nécessairement le cas, car <b>Rava</b> aurait pu <b>vous dire : Rabban Shimon ben Gamliel</b> ne conteste pas l'enseignement de base du premier <i>tanna</i> anonyme selon lequel toutes les coudées mentionnées par les Sages sont des coudées de six mètres carrés. Au contraire, il <b>vient nous enseigner ceci : On</b> doit <b>ne pas réduire la coudée de diverses sortes</b> de graines, c'est-à-dire qu'on ne doit pas la mesurer avec des handbreadths déprimés.
+La Guemara répond : Ce n'est pas nécessairement le cas, car <b>Rava</b> aurait pu <b>vous dire : Rabban Shimon ben Gamliel</b> ne conteste pas l'enseignement de base du premier <i>tanna</i> anonyme selon lequel toutes les coudées mentionnées par les Sages sont des coudées de six mètres carrés. Au contraire, il <b>vient nous enseigner ceci : On</b> doit <b>ne pas réduire la coudée de diverses sortes</b> de graines, c'est-à-dire qu'on ne doit pas la mesurer avec des coudées déprimés.
 
 ### Partie 7
-La Gemara soulève une objection. <b>Et</b> si tel est le cas, <b>qu'il dise : On ne doit pas réduire la coudée de diverses sortes</b> de graines. <b>Que fait</b> la phrase : <b>Une coudée</b> constituée <b>de six</b> handbreadths vient-elle <b>exclure ? Ne vient-elle pas</b> exclure la coudée d'une <i>sukka</i> et la coudée d'une ruelle,</b> qui sont mesurées avec des coudées de cinq handbreadths ?
+La Gemara soulève une objection. <b>Et</b> si tel est le cas, <b>qu'il dise : On ne doit pas réduire la coudée de diverses sortes</b> de graines. <b>Que fait</b> la phrase : <b>Une coudée</b> constituée <b>de six</b> coudées vient-elle <b>exclure ? Ne vient-elle pas</b> exclure la coudée d'une <i>sukka</i> et la coudée d'une ruelle,</b> qui sont mesurées avec des coudées de cinq coudées ?
 
 ### Partie 8
 La Gemara rejette cet argument. <b>Non,</b> la formulation de Rabban Shimon ben Gamliel vient <b>exclure la coudée de la base</b> de l'autel, qui est le niveau inférieur de l'autel, d'une coudée de hauteur avec un rebord d'une coudée de largeur, <b>et la coudée du rebord périphérique</b> de l'autel, qui est à cinq coudées au-dessus de la base, six coudées au-dessus du sol, et une coudée de largeur. Tout le monde est d'accord pour dire que ces coudées sont des petites coudées de cinq palmes.

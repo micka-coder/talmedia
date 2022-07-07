@@ -9,7 +9,7 @@ La Gemara tente d'écarter cette difficulté : <b>Et,</b> en ce qui concerne <b>
 La Guemara répond : <b>Et quelle est la difficulté</b> avec <b>cela ? Peut-être que la conception du Sanctuaire était comme la conception du Hall d'entrée.</b> Tout comme il y avait des corniches dans une porte, il y avait des corniches dans l'autre.
 
 ### Partie 4
-La Guemara revient à sa question par rapport à une corniche : <b>Pourquoi</b> alors <b>Rabbi Ile'a dit</b> que <b>Rav</b> lui-même <b>a dit :</b> Si la <b>largeur</b> d'une poutre transversale est de <b>quatre</b> handbreadths, <b>même si elle n'est pas solide,</b> elle rend la ruelle apte à porter en son sein. <b>Et si elle a une corniche, même si elle est plus haute que vingt coudées, on ne doit pas diminuer</b> sa hauteur.
+La Guemara revient à sa question par rapport à une corniche : <b>Pourquoi</b> alors <b>Rabbi Ile'a dit</b> que <b>Rav</b> lui-même <b>a dit :</b> Si la <b>largeur</b> d'une poutre transversale est de <b>quatre</b> coudées, <b>même si elle n'est pas solide,</b> elle rend la ruelle apte à porter en son sein. <b>Et si elle a une corniche, même si elle est plus haute que vingt coudées, on ne doit pas diminuer</b> sa hauteur.
 
 ### Partie 5
 <b>Rav Yosef a dit :</b> Cette <i>halakha</i> concernant une <b>corniche</b> n'a pas été réellement énoncée par Rav, mais il s'agit plutôt d'une <b>baraita</i>. Qui, en fait, <b>enseigne</b> cette <i>baraïta</i> ? Peut-être n'est-ce pas une <i>baraita</i> qui fait autorité, et le Rav n'est pas obligé d'accepter ce qu'elle dit.

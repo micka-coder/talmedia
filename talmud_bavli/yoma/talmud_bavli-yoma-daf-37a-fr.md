@@ -48,7 +48,7 @@ Il a été enseigné dans le <i>baraita</i> que les <b>lots</b> peuvent être fa
 La mishna poursuit à propos de ben Katin : <b>Il a aussi fabriqué une machine pour</b> couler <b>le bassin.</b> La Gemara demande : <b>Qu'est-ce</b> que cette <b>machine ? Abaye répond :</b> C'est <b>une roue avec laquelle il a abaissé</b> le bassin dans la fosse.
 
 ### Partie 17
-La mishna continue : <b>Le roi Munbaz</b> apporterait les fonds nécessaires pour <b>faire les poignées de tous les</b> <b>vaisseaux de Yom Kippour</b> en or. La Guemara demande : S'il voulait donner de l'argent pour embellir le Temple, <b>il aurait dû faire</b> les vases <b>eux-mêmes en or,</b> pas seulement les poignées.
+La mishna continue : <b>Le roi Munbaz</b> apporterait les fonds nécessaires pour <b>faire les poignées de tous les</b> <b>ustensiles de Yom Kippour</b> en or. La Guemara demande : S'il voulait donner de l'argent pour embellir le Temple, <b>il aurait dû faire</b> les vases <b>eux-mêmes en or,</b> pas seulement les poignées.
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

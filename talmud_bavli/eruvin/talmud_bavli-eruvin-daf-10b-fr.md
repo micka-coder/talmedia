@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>On prépare une planche de dix</b> handbreadths <b>hauteur avec une longueur de quatre coudées et on la pose dans le sens de la longueur</b> au milieu <b>de la ruelle,</b> et on forme ainsi deux petites ruelles à l'entrée de la ruelle, dont aucune n'a plus de dix coudées de largeur.
+<b>On prépare une planche de dix</b> coudées <b>hauteur avec une longueur de quatre coudées et on la pose dans le sens de la longueur</b> au milieu <b>de la ruelle,</b> et on forme ainsi deux petites ruelles à l'entrée de la ruelle, dont aucune n'a plus de dix coudées de largeur.
 
 ### Partie 2
 <b>Alternativement,</b> on peut agir <b>conformément</b> à l'avis de <b>Rav Yehuda,</b> car <b>Rav Yehuda a dit :</b> Si <b>une ruelle a une largeur de quinze coudées,</b> comment réduit-on sa largeur ? <b>Il se met à distance</b> <b>de deux coudées</b> d'un des murs de la ruelle <b>et prépare une planche de trois coudées</b> de large, laissant ainsi une ouverture de seulement dix coudées.

@@ -13,7 +13,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Behold...handbreadths</b> Les jours de l'homme sont mesurés comme une chose qui se mesure avec des handbreadths ; ainsi sont limités les jours de l'homme. <b>et ma vieillesse</b> Heb.  וחלדי, et notre vieillesse n'est rien devant toi.  חלד " est une expression de rouille (חלודה"), rodijjl en ancien français ; rouille, vieillesse.
+<b>Behold...coudées</b> Les jours de l'homme sont mesurés comme une chose qui se mesure avec des coudées ; ainsi sont limités les jours de l'homme. <b>et ma vieillesse</b> Heb.  וחלדי, et notre vieillesse n'est rien devant toi.  חלד " est une expression de rouille (חלודה"), rodijjl en ancien français ; rouille, vieillesse.
 <b>Chaque homme</b> sa vie et sa condition sont une vie de vanité.
 
 ### passuk 7

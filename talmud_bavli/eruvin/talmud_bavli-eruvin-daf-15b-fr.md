@@ -27,7 +27,7 @@ La Guemara poursuit : <b>Et les rabbins</b> expliquent que <b>cette phrase</b> :
 <b>Et</b> quant aux <b>rabbins, ils ne tirent</b> rien de l'extension de <b><i>karet</i></b> à <b><i>keritut</i>.</b>
 
 ### Partie 10
-<strong>MISHNA :</strong> Si <b>une caravane campait dans une vallée,</b> c'est-à-dire un espace ouvert non fermé par des murs, <b>et</b> les voyageurs <b>enfermaient</b> leur camp <b>avec</b> des cloisons faites de l'équipement des <b>animaux,</b> par ex, selles et autres, <b>on peut transporter à l'intérieur</b> de l'espace clos, <b>à condition que</b> la cloison résultante <b>soit une clôture de dix handbreadths de haut, et</b> que <b>il n'y ait pas de brèches</b> dans la cloison <b>plus grande</b> que <b>le segment construit</b>.
+<strong>MISHNA :</strong> Si <b>une caravane campait dans une vallée,</b> c'est-à-dire un espace ouvert non fermé par des murs, <b>et</b> les voyageurs <b>enfermaient</b> leur camp <b>avec</b> des cloisons faites de l'équipement des <b>animaux,</b> par ex, selles et autres, <b>on peut transporter à l'intérieur</b> de l'espace clos, <b>à condition que</b> la cloison résultante <b>soit une clôture de dix coudées de haut, et</b> que <b>il n'y ait pas de brèches</b> dans la cloison <b>plus grande</b> que <b>le segment construit</b>.
 
 ### Partie 11
 <b>Toute brèche d'une largeur d'environ dix coudées</b> <b>est permise</b> et n'invalide pas la cloison <b>parce qu'elle est</b> considérée <b>comme une entrée.</b> Toutefois, si l'une des brèches est <b>plus grande</b> de dix coudées, <b>il est interdit</b> de porter n'importe où dans l'espace clos.

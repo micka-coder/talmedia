@@ -54,7 +54,7 @@ A ce sujet, <b>Rabbi Meyasha, fils de Rabbi Yehoshua ben Levi, a dit : La <i>hal
 De meme, <b>Rabba bar bar Hana a dit</b> que <b>Rabbi Yohanan a dit : Pendant la journee, on enroule</b> les phylacteres <b>comme un rouleau et on les place dans sa main en face de son cœur, et la nuit, on leur fait une sorte de poche d'un pouce de large et on les y place</b>.
 
 ### Partie 19
-<b>Abaye a dit : Ils ont seulement enseigne</b> qu'il doit s'agir d'une poche d'un metre carre <b>en ce qui concerne un recipient qui est</b> le vaisseau habituel des phylacteres, mais dans un recipient qui n'est pas leur</b> vaisseau habituel,</b> il peut y placer les phylacteres, <b>meme</b> s'il est <b>moins d'un metre carre.</b>
+<b>Abaye a dit : Ils ont seulement enseigne</b> qu'il doit s'agir d'une poche d'un metre carre <b>en ce qui concerne un recipient qui est</b> le ustensile habituel des phylacteres, mais dans un recipient qui n'est pas leur</b> ustensile habituel,</b> il peut y placer les phylacteres, <b>meme</b> s'il est <b>moins d'un metre carre.</b>
 
 ### Partie 20
 <b>Mar Zutra et, selon certains, Rav Ashi, ont dit</b> comme preuve de cette distinction : Les lois de l'impurete stipulent que seul un espace d'au moins un centimetre de main peut servir de barriere pour empecher la propagation de l'impurete transmise par un cadavre. Neanmoins, les <b>petits</b> <b>vases scelles</b> de moins d'un palier de main <b>protegent</b> leur contenu de l'impurete rituelle meme s'ils se trouvent a l'interieur d'<b>une tente sur un cadavre.</b> Cela prouve que meme un espace plus petit qu'un palier de main peut servir de barriere avant l'impurete.

@@ -15,25 +15,25 @@ Toutefois, si <b>le mur</b> est d'une hauteur de <b>vingt</b> mètres, il <b>fau
 <b>Rav Huna a dit :</b> Si <b>un pilier du domaine public</b> est de <b>dix</b> handbreths <b>hauteur et quatre</b> handbreths <b>large,</b> de sorte qu'il est considéré comme un domaine privé, <b>et que l'on enfonce un pieu de n'importe quelle</b> taille <b>dans</b> son sommet, on a diminué sa</b> surface. La surface utilisable est maintenant inférieure à quatre brins de main, et donc le pilier n'est plus considéré comme un domaine privé.
 
 ### Partie 6
-<b>Rav Adda bar Ahava a dit :</b> Cela ne s'applique que si le pieu est au moins <b>trois</b> handbreadths <b>high.</b> S'il a moins de trois handbreadths de hauteur, il est considéré comme faisant partie du sommet du pilier, selon le principe du <i>lavud</i>. Ceci est en contraste avec <b>Abaye et Rava, qui disent tous deux : Même si</b> le pieu n'est <b>pas trois</b> brins de main <b>hauteur,</b> le pilier n'est plus considéré comme un domaine privé.
+<b>Rav Adda bar Ahava a dit :</b> Cela ne s'applique que si le pieu est au moins <b>trois</b> coudées <b>high.</b> S'il a moins de trois coudées de hauteur, il est considéré comme faisant partie du sommet du pilier, selon le principe du <i>lavud</i>. Ceci est en contraste avec <b>Abaye et Rava, qui disent tous deux : Même si</b> le pieu n'est <b>pas trois</b> brins de main <b>hauteur,</b> le pilier n'est plus considéré comme un domaine privé.
 
 ### Partie 7
 <b>Quelle est la raison</b> de l'avis de Abaye et de Rava ? C'est que le pilier <b>n'est plus</b> apte à être <b>utilisé,</b> car une surface de quatre pouces sur quatre pouces ne peut être utilisée que si elle est plane. Si elle présente une saillie même minime, elle n'est plus utilisable.
 
 ### Partie 8
-<b>Rav Ashi a dit : Même un pieu de trois</b> handbreadths <b>hauteur</b> ne diminue pas la surface du pilier. <b>Quelle est la raison</b> de cela ? C'est qu'il <b>est possible d'y accrocher un objet. Même si</b> il n'est plus possible de reposer des objets au sommet du pilier, il est toujours utile d'une certaine manière.
+<b>Rav Ashi a dit : Même un pieu de trois</b> coudées <b>hauteur</b> ne diminue pas la surface du pilier. <b>Quelle est la raison</b> de cela ? C'est qu'il <b>est possible d'y accrocher un objet. Même si</b> il n'est plus possible de reposer des objets au sommet du pilier, il est toujours utile d'une certaine manière.
 
 ### Partie 9
 <b>Rav Aḥa, fils de Rava, dit à Rav Ashi :</b> Selon votre avis, si <b>il l'a rempli entièrement de piquets,</b> c'est-à-dire s'il a enfoncé tant de piquets au sommet du poteau qu'il était entièrement rempli, <b>qu'est-ce que</b> la <i>halakha</i> ?
 
 ### Partie 10
-Rav Ashi <b>lui dit : N'as-tu pas entendu ce</b> que <b>Rabbi Yoḥanan a dit ?</b> Il a dit que <b>une fosse et son remblai</b> de pierre autour du bord <b>se rejoignent</b> pour compléter la mesure de <b>dix</b> handbreadths. De même, la largeur du talus se joint au diamètre de la fosse pour compléter la mesure de quatre par quatre handbreadths nécessaire pour définir la fosse comme un domaine privé.
+Rav Ashi <b>lui dit : N'as-tu pas entendu ce</b> que <b>Rabbi Yoḥanan a dit ?</b> Il a dit que <b>une fosse et son remblai</b> de pierre autour du bord <b>se rejoignent</b> pour compléter la mesure de <b>dix</b> coudées. De même, la largeur du talus se joint au diamètre de la fosse pour compléter la mesure de quatre par quatre coudées nécessaire pour définir la fosse comme un domaine privé.
 
 ### Partie 11
 Là aussi, on peut se poser la question : <b>Mais pourquoi ? Il ne peut pas utiliser</b> le talus, puisque la majeure partie de la surface est l'espace vide de la fosse. <b>Au contraire, qu'avez-vous à dire,</b> c'est-à-dire, comment pouvez-vous résoudre ce problème ? La solution est <b>qu'il place un objet,</b> par exemple une planche, sur la bouche de la fosse, <b>et</b> alors il peut en faire <b>l'usage</b>. <b>Ici aussi, il place un objet</b> sur les pieux <b>et</b> peut faire <b>usage</b> du pilier.
 
 ### Partie 12
-<b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Si <b>un mur</b> est de <b>dix</b> mètres de haut, <b>il faut une échelle de quatorze</b> mètres de haut, afin de pouvoir placer l'échelle en diagonale contre le mur. L'échelle fonctionne alors comme un passage et rend ainsi l'usage du mur <b>permis. Rav Yosef a dit : Même</b> une échelle d'une hauteur de <b>treize</b> handbreadths <b>and a bit</b> est suffisante, car il suffit que l'échelle arrive à un handbreadth du haut du mur.
+<b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> Si <b>un mur</b> est de <b>dix</b> mètres de haut, <b>il faut une échelle de quatorze</b> mètres de haut, afin de pouvoir placer l'échelle en diagonale contre le mur. L'échelle fonctionne alors comme un passage et rend ainsi l'usage du mur <b>permis. Rav Yosef a dit : Même</b> une échelle d'une hauteur de <b>treize</b> coudées <b>and a bit</b> est suffisante, car il suffit que l'échelle arrive à un handbreadth du haut du mur.
 
 ### Partie 13
 <b>Abaye a dit : Même</b> une échelle qui n'est que de <b>sept</b> handbreths <b>and a bit</b> suffit, car l'échelle atteindra quand même une hauteur de plus de sept handbreths, c'est-à-dire à moins de trois handbreths du sommet du mur.

@@ -45,7 +45,7 @@ La Gemara demande : N'est-ce pas <b>evident ?</b> Il s'agit exactement de la mem
 La Guemara repond : C'est necessaire. <b>Au cas ou vous diriez : </b> Ce n'est que <b>la,</b> dans le cas des epines, que le proprietaire du mur est exempte, <b>puisqu'il ne savait pas</b> qui dissimulait l'objet dangereux pour <b>l'informer</b> qu'il devait les enlever, <b>mais ici, puisque</b> le proprietaire du seau <b>savait</b> qui creusait la fosse, <b>il aurait du l'informer</b> qu'il prenait son seau et qu'il est par consequent responsable des dommages causes par la fosse, Ravina donc, <b>nous enseigne</b> qu'il n'est pas tenu d'informer le proprietaire de la fosse, et qu'il ne porte aucune responsabilite pour les dommages causes.
 
 ### Partie 16
-<b>Les Sages ont enseigne : Les premiers pieux dissimulaient leurs epines et leurs morceaux de verre dans leurs champs, et creusaient jusqu'a une profondeur</b> d'au moins <b>trois handbreadths</b> afin de les enterrer, <b>pour qu'ils ne genent pas la charrue.</b>
+<b>Les Sages ont enseigne : Les premiers pieux dissimulaient leurs epines et leurs morceaux de verre dans leurs champs, et creusaient jusqu'a une profondeur</b> d'au moins <b>trois coudées</b> afin de les enterrer, <b>pour qu'ils ne genent pas la charrue.</b>
 
 ### Partie 17
 La Gemara relate : <b>Rav Sheshet jetait</b> ses epines <b>dans le feu,</b> afin qu'elles ne causent pas de dommages a autrui. <b>Rava les jetait dans le fleuve Tigre [<i>Diglat</i>]</b>.

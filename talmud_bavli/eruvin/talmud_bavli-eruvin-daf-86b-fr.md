@@ -1,6 +1,6 @@
 
 ### Partie 1
-Une <b>poutre transversale de quatre</b> handbreadths posée en travers d'une citerne située entre deux cours <b>permet</b> à l'un de tirer <b>l'eau</b> de cette citerne.
+Une <b>poutre transversale de quatre</b> coudées posée en travers d'une citerne située entre deux cours <b>permet</b> à l'un de tirer <b>l'eau</b> de cette citerne.
 
 ### Partie 2
 Dans cette perspective, la difficulté suivante se pose : Le <b>seau</b> qu'il utilise pour puiser l'eau <b>pourrait dériver</b> sous la croix <b>poutre vers l'autre côté</b> de la citerne <b>et ramener</b> l'eau de l'autre cour. La Guemara répond : <b>Les Sages ont établi qu'un seau ne dérive pas de plus de quatre brins de main</b> du point où il a été abaissé, et il restera donc sur son côté d'origine de la cloison.

@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>C'est évident,</b> car <b>le domaine privé monte vers le ciel, et de même qu'il monte vers le haut, de même</b> il <b>descend vers le bas</b> jusqu'au fond de la fosse, même si celle-ci a plus de dix handbreadths de profondeur. <b>Au contraire,</b> il faut dire <b>que</b> la fosse <b>est située dans le domaine public.</b>
+<b>C'est évident,</b> car <b>le domaine privé monte vers le ciel, et de même qu'il monte vers le haut, de même</b> il <b>descend vers le bas</b> jusqu'au fond de la fosse, même si celle-ci a plus de dix coudées de profondeur. <b>Au contraire,</b> il faut dire <b>que</b> la fosse <b>est située dans le domaine public.</b>
 
 ### Partie 2
 La Guemara clarifie maintenant : <b>Où</b> avait-on <b>l'intention d'établir sa résidence de Shabbat ? Si</b> il avait l'intention d'établir sa résidence <b>au-dessus</b> de la fosse dans le domaine public, il s'agit d'un cas où <b>il est dans un endroit et son <i>eirouv</i> est dans un autre endroit,</b> c'est-à-dire dans un domaine privé, et donc son <i>eirouv</i> n'est pas valable. Alternativement, <b>si</b> on avait l'intention d'établir sa résidence de Chabbat <b>en bas,</b> dans la fosse, <b>c'est</b> également <b>évident,</b> car <b>il et son <i>eirouv</i> sont dans un seul lieu.</b>

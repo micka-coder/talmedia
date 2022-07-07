@@ -41,7 +41,7 @@ J'ai trouvé : "et toutes ses formes" n'est pas clair.
 ### passuk 13
 <b>Et voici les mesures de l'autel</b> comme il l'explique plus loin (verset 17) : " quatorze [coudées] de longueur sur quatorze [coudées] de largeur ".
 <b>en coudées ; la coudée, une coudée et un palier</b> avec une coudée de six [paliers], qui est une coudée et un palier, [jugeant] par une coudée de cinq [paliers].
-<b>mais la base une coudée [ordinaire]</b> mais sa base est mesurée avec une coudée ordinaire, qui est égale à cinq [handbreadths]. Le mot  חֵיק  est lié à  חֵקוּי, permanence, il fait référence à la coudée unique. La coudée est la coudée ordinaire, et non une coudée et un palier, qui est la coudée de six [paliers]. De même, nous avons appris dans Menahoth (97b) que la base, le circuit et les cornes sont mesurés avec une coudée de cinq [handbreadths].
+<b>mais la base une coudée [ordinaire]</b> mais sa base est mesurée avec une coudée ordinaire, qui est égale à cinq [coudées]. Le mot  חֵיק  est lié à  חֵקוּי, permanence, il fait référence à la coudée unique. La coudée est la coudée ordinaire, et non une coudée et un palier, qui est la coudée de six [paliers]. De même, nous avons appris dans Menahoth (97b) que la base, le circuit et les cornes sont mesurés avec une coudée de cinq [coudées].
 <b>mais la base une coudée [ordinaire]</b> C'est le yesod.
 <b>Et une telle coudée aussi pour la largeur</b> C'est le circuit.
 <b>Et [de même sur] sa bordure, [allant] d'un empan jusqu'à son bord tout autour</b> Ce sont les cornes, [dont chacune mesurait] un empan à partir de son centre ; et elles mesuraient un empan de chaque côté, totalisant une coudée par une coudée.

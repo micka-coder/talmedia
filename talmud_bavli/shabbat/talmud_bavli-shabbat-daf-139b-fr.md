@@ -42,7 +42,7 @@ La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Rabban Shimon b
 Nous avons appris dans la mishna : <b>On peut filtrer le vin à travers des tissus</b> le Chabbat. <b>Rav Shimi bar Ḥiyya a dit :</b> Cela est permis <b>à condition de ne pas faire une indentation</b> dans le tissu, le transformant en réceptacle, car il faut s'écarter de la manière habituelle, en semaine, d'effectuer cette activité.
 
 ### Partie 15
-Nous avons également appris dans la mishna : <b>Et</b> il est permis de filtrer le vin le Chabbat <b>à travers un panier égyptien. Rav Ḥiyya bar Ashi dit</b> que <b>Rav a dit</b> la mise en garde suivante à cette déclaration : Il est permis <b>à condition de ne pas soulever</b> le panier à <b>une largeur de main du fond du <b>vaisseau inférieur.</b> Cela garantit que l'on effectue l'activité de manière atypique (Rabbeinou Yona).
+Nous avons également appris dans la mishna : <b>Et</b> il est permis de filtrer le vin le Chabbat <b>à travers un panier égyptien. Rav Ḥiyya bar Ashi dit</b> que <b>Rav a dit</b> la mise en garde suivante à cette déclaration : Il est permis <b>à condition de ne pas soulever</b> le panier à <b>une largeur de main du fond du <b>ustensile inférieur.</b> Cela garantit que l'on effectue l'activité de manière atypique (Rabbeinou Yona).
 
 ### Partie 16
 <b>Rav a dit : Il est permis</b> de placer <b>cette couverture</b> qui a des trous pour filtrer <b>sur la moitié d'un tonneau,</b> mais <b>il est interdit</b> de l'étendre <b>sur tout le tonneau,</b> afin de ne pas avoir l'air de l'utiliser comme un filtre (Rabbeinou Ḥananel).

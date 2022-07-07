@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>De</b> le mot <b>vaisseau</b> écrit <b>là,</b> en ce qui concerne les <i>halakhot</i> d'impureté rituelle communiquées par un cadavre, et le mot <b>vaisseau</b> écrit en ce qui concerne les <i>halakhot</i> d'autres impuretés.
+<b>De</b> le mot <b>ustensile</b> écrit <b>là,</b> en ce qui concerne les <i>halakhot</i> d'impureté rituelle communiquées par un cadavre, et le mot <b>ustensile</b> écrit en ce qui concerne les <i>halakhot</i> d'autres impuretés.
 
 ### Partie 2
 Il a été enseigné dans la <i>baraita</i> que <b>un sac est ajouté</b> à la catégorie des <b>vêtements</b> ; il</b> aussi <b>est rituellement impur en raison du tissu.</b> La Gemara demande : <b>Est-ce à dire qu'un vêtement n'est pas un tissu tissé ?</b> Il faut plutôt émonder la déclaration et <b>dire comme suit : Un sac</b> en poil de chèvre <b>s'ajoute à la catégorie du vêtement ; même s'il n'est pas tissé, il</b> peut néanmoins devenir <b>rituellement impur.</b> La Gemara demande : <b>Pour quoi</b> un vêtement en poil de chèvre non tissé est-il <b>convenable ? Rabbi Yoḥanan dit : Puisqu'une personne pauvre</b> tresse occasionnellement trois</b> poils de chèvre <b>et les accroche au cou de sa fille</b> en guise de parure.

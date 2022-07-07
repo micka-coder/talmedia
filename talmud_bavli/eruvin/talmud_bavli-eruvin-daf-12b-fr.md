@@ -42,7 +42,7 @@ La Guemara répond : Ce n'est pas la raison derrière la déclaration de Rabbi Y
 <b>Rabbi Zeira a dit :</b> Néanmoins, <b>si</b> cette question <b>est difficile pour moi</b> à comprendre, <b>c'est ma difficulté : Que ce poteau latéral soit</b> considéré <b>comme</b> une <b>planche verticale de largeur minimale</b> <b>et permette</b> le port dans la ruelle, tout comme une planche verticale permet le port dans une cour percée.
 
 ### Partie 15
-La Guemara explique que ceci est incorrect, car <b>ce que Rabbi Asi a dit</b> que <b>Rabbi Yoḥanan a dit a échappé</b> à Rabbi Zeira's <b>attention : Les</b> planches verticales d'une cour doivent avoir une largeur de quatre</b> handbreadths, alors qu'un poteau latéral peut être de taille minimale.
+La Guemara explique que ceci est incorrect, car <b>ce que Rabbi Asi a dit</b> que <b>Rabbi Yoḥanan a dit a échappé</b> à Rabbi Zeira's <b>attention : Les</b> planches verticales d'une cour doivent avoir une largeur de quatre</b> coudées, alors qu'un poteau latéral peut être de taille minimale.
 
 ### Partie 16
 <b>Rav Naḥman a dit : Nous avons une tradition</b> qui stipule : <b>Quel est le</b> type de <b>allée</b> dans <b>laquelle</b> le portage <b>est autorisé au moyen</b> d'un poteau latéral ou</b> d'une <b>poutre transversale ? Toute</b> ruelle <b>dont la longueur est supérieure à sa largeur et dans laquelle s'ouvrent des maisons et des cours. Et quel est le</b> type de <b>cour</b> dans <b>lequel</b> le portage <b>n'est pas permis au moyen</b> d'un poteau latéral ou</b> d'une <b>poutre transversale, mais au moyen</b> d'une <b>planche verticale de quatre</b> brins de main ? <b>Toute</b> cour <b>qui est carrée.</b>

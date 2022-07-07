@@ -33,7 +33,7 @@ La Gemara rejette cette idee : Peut-etre que la derniere section de la <i>barait
 <b>Rav Mesharshiyya dit : On ne presume pas</b> qu'il y a du <b>sang dans les intestins,</b> et donc ils ne sont pas interdits s'ils n'ont pas ete sales. La Gemara commente : Les Sages ont <b>interprete</b> cette declaration comme faisant reference <b>au rectum, aux intestins et au colon spirale.</b>
 
 ### Partie 12
-<b>Shmuel dit : On ne peut placer de la viande salee que sur un recipient perfore,</b> afin que le sang expulse puisse s'ecouler. Mais si le vaisseau n'est pas perfore, alors le sang s'accumulera et sera reabsorbe par la viande.
+<b>Shmuel dit : On ne peut placer de la viande salee que sur un recipient perfore,</b> afin que le sang expulse puisse s'ecouler. Mais si le ustensile n'est pas perfore, alors le sang s'accumulera et sera reabsorbe par la viande.
 
 ### Partie 13
 La Gemara relate : <b>Le Rav Sheshet salait</b> la viande <b>un os,</b> c'est-a-dire un morceau, <b>a la fois.</b> La Gemara demande : <b>Quelle est la raison</b> pour laquelle il ne <b>pas</b> saler <b>deux</b> ensemble ? Serait-ce <b>parce que</b> le sang <b>sort de ce</b> morceau <b>et ce</b> morceau <b>l'absorbe</b> ? Si oui, en ce qui concerne <b>une</b> piece <b>aussi,</b> on pourrait pretendre que le sang <b>sort de ce cote</b> de la piece <b>et que ce cote l'absorbe</b>. <b>Au contraire,</b> il n'y a <b>pas de difference</b> entre un morceau et deux morceaux, et on peut saler meme plusieurs morceaux ensemble.

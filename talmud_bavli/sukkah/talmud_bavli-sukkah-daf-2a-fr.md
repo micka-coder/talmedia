@@ -3,7 +3,7 @@
 <strong>MISHNA :</strong> <b>Une <i>sukka</i>,</b> c'est-à-dire sa toiture, qui est l'élément principal et le plus crucial de la mitsva, <b>qui a plus de vingt coudées de hauteur est impropre. Rabbi Yéhouda la considère comme convenable.</b>
 
 ### Partie 2
-De même, une <i>sukka</i> <b>qui n'est pas</b> même <b>dix handbreadths de hauteur, et</b> une <b>qui n'a pas trois murs, et</b> une <b>dont la lumière du soleil</b> qui passe par sa toiture <b>est plus grande que son ombre sont impropres.</b>
+De même, une <i>sukka</i> <b>qui n'est pas</b> même <b>dix coudées de hauteur, et</b> une <b>qui n'a pas trois murs, et</b> une <b>dont la lumière du soleil</b> qui passe par sa toiture <b>est plus grande que son ombre sont impropres.</b>
 
 ### Partie 3
 <strong>GEMARA :</strong> <b>On a appris</b> une <i>halakha</i> similaire dans une mishna <b>là,</b> dans le tractate <i>Eiruvin</i> (2a) : Dans le cas d'une <b>ruelle qui est plus haute que vingt coudées,</b> c'est-à-dire que la poutre qui a été placée en travers de l'extrémité d'une ruelle qui donne sur un domaine public afin de permettre le port dans la ruelle le Chabbat est plus haute que vingt coudées, <b>on</b> doit <b>diminuer</b> la hauteur de la poutre afin de permettre le port dans la ruelle. <Rabbi Yehuda dit qu'il n'a pas besoin</b> de le faire, et bien que la poutre soit plus haute que vingt coudées, la ruelle est qualifiée pour permettre de porter à l'intérieur.

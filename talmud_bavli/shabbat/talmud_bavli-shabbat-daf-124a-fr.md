@@ -15,7 +15,7 @@ Dans le cas de <b>l'extrémité épaisse</b> du verrou de la porte, pourquoi ét
 En ce qui concerne <b>un mortier,</b> la <i>halakha</i> <b>est</b> en accord avec l'avis du <b>Rabbi Neḥemya,</b> qui considère qu'un récipient ne peut être déplacé le Chabbat que pour l'usage auquel il est destiné.
 
 ### Partie 6
-<strong>MISHNA:</strong> <b>Tous les récipients peuvent être déplacés pour un</b> <b>usage spécifique et non pour un</b> <b>usage spécifique. Rabbi Neḥemya dit :</b> Les vaisseaux <b>ne peuvent être déplacés que pour un</b> <b>but précis.</b>
+<strong>MISHNA:</strong> <b>Tous les récipients peuvent être déplacés pour un</b> <b>usage spécifique et non pour un</b> <b>usage spécifique. Rabbi Neḥemya dit :</b> Les ustensiles <b>ne peuvent être déplacés que pour un</b> <b>but précis.</b>
 
 ### Partie 7
 <strong>GEMARA : </strong>La Gemara demande : <b>Quoi</b> est la signification de : <b>Pour un</b> <b>but précis, et quel est</b> le sens de : <b>Non pour un</b> <b>but précis ?</b>

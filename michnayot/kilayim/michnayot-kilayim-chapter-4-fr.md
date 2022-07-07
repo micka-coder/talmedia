@@ -6,7 +6,7 @@ Un karahat [une parcelle dénudée] dans un vignoble : Bet Shammai dit : [elle d
 Qu'est-ce qu'un mehol dans une vigne ? L'espace] entre la vigne et une clôture. S'il y a moins de douze coudées, on ne pourra pas y apporter de semence. S'il y a douze coudées, on laisse un espace pour travailler [la vigne] et on peut semer le reste.
 
 ### michna 3
-Rabbi Juda dit : ce n'est rien d'autre que la clôture de la clôture de la vigne. Qu'est-ce donc qu'un mehol d'une vigne ? [Un espace] entre deux vignes. Qu'est-ce qui est considéré comme une clôture ? Celle qui a une hauteur de dix handbreadths. Et qu'est-ce qui est considéré comme une tranchée ? Une tranchée de dix centimètres de profondeur et de quatre de largeur.
+Rabbi Juda dit : ce n'est rien d'autre que la clôture de la clôture de la vigne. Qu'est-ce donc qu'un mehol d'une vigne ? [Un espace] entre deux vignes. Qu'est-ce qui est considéré comme une clôture ? Celle qui a une hauteur de dix coudées. Et qu'est-ce qui est considéré comme une tranchée ? Une tranchée de dix centimètres de profondeur et de quatre de largeur.
 
 ### michna 4
 Une cloison de roseaux : si entre un roseau et un autre il y a moins de trois centimètres, [l'espace] par lequel un chevreau (une jeune chèvre) pourrait entrer, elle compte comme une cloison [légalement efficace]. Une clôture [en pierre] qui a été percée jusqu'à [la longueur de] dix coudées, [la brèche] est [considérée] comme une porte ; de plus, en face de la brèche, il est interdit [de semer des graines]. S'il y avait de nombreuses brèches dans la clôture, si la partie qui reste debout dépasse celle qui est percée, il est permis [d'y semer]. Mais si les sections brisées dépassent celles qui restent debout, il est interdit [de semer en face des brèches].

@@ -3,7 +3,7 @@
 Les Sages interpretent ce verset comme faisant reference aux constellations celestes, ce qui indique qu'il <b>est</b> interdit de former uniquement <b>ces</b> figures, mais il n'est <b>pas</b> interdit de former <b>une figure de dragon.</b>
 
 ### Partie 2
-<b>Au contraire,</b> conclut la Guemara, il est <b>evident</b> que cette <i>halakha</i> fait reference a un cas <b>ou</b> on <b>trouve</b> un recipient avec la figure d'un dragon, <b>et</b> ceci est <b>comme nous l'avons appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des vaisseaux, et sur lesquels il y a une figure du soleil,</b> une figure de la lune, ou une figure d'un dragon, il doit les prendre et les jeter dans la mer morte.
+<b>Au contraire,</b> conclut la Guemara, il est <b>evident</b> que cette <i>halakha</i> fait reference a un cas <b>ou</b> on <b>trouve</b> un recipient avec la figure d'un dragon, <b>et</b> ceci est <b>comme nous l'avons appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des ustensiles, et sur lesquels il y a une figure du soleil,</b> une figure de la lune, ou une figure d'un dragon, il doit les prendre et les jeter dans la mer morte.
 
 ### Partie 3
 La Guemara s'interroge sur le manque de coherence entre les clauses de la declaration de Rav Sheshets : Se peut-il que <b>la premiere clause et la derniere clause fassent</b> reference a un cas <b>ou l'on trouve</b> des navires avec les figures specifiees, <b>et que la clause du milieu fasse</b> reference a un cas <b>ou l'on forme</b> ces figures ?

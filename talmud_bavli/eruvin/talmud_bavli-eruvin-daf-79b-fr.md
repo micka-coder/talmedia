@@ -3,7 +3,7 @@
 <b>et</b> le <b>hayon</b> de la maison est <b>un peu plus de sept</b> mètres de hauteur, il est considéré comme une cloison à part entière qui atteint le plafond, car les objets séparés par <b>tout espace</b> de <b>moins de trois</b> mètres <b>sont considérés comme joints,</b> selon le principe du <i>lavud</i>.
 
 ### Partie 2
-La Guemara commente . <b>Accordé, selon</b> l'avis de <b>Abaye, c'est pourquoi</b> le <i>baraita</i> <b>enseigne :</b> Si la hauteur de la meule de foin a été réduite à moins de <b>dix</b> handbreadths. <b>Cependant, selon le Rav Huna, fils du Rav Yehoshua, quel est</b> le sens de : Moins <b>que dix</b> Même au départ, il n'a jamais été aussi élevé que dix handbreadths.
+La Guemara commente . <b>Accordé, selon</b> l'avis de <b>Abaye, c'est pourquoi</b> le <i>baraita</i> <b>enseigne :</b> Si la hauteur de la meule de foin a été réduite à moins de <b>dix</b> coudées. <b>Cependant, selon le Rav Huna, fils du Rav Yehoshua, quel est</b> le sens de : Moins <b>que dix</b> Même au départ, il n'a jamais été aussi élevé que dix coudées.
 
 ### Partie 3
 La Guemara répond : Cela signifie qu'il a été réduit à moins <b>que la loi de dix</b> mètres carrés. Tant que le foin a une hauteur légèrement supérieure à sept millièmes de pouce, il est considéré comme ayant une hauteur de dix millièmes de pouce, conformément au principe du <i>lavud</i>. Dès que sa hauteur est réduite à moins de sept brins d'herbe, la <i>halakha</i> d'une cloison de dix brins d'herbe n'est plus en vigueur.
