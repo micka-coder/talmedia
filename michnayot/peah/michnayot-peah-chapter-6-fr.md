@@ -3,7 +3,7 @@
 Beit Shammai dit : Abandonner un bien uniquement aux pauvres est un abandon ; Beit Hillel dit : Ce n'est pas un abandon tant qu'il n'a pas été également abandonné aux riches, comme dans l'année sabbatique. Si toutes les gerbes du champ sont d'un Kav [mesure halakhique], et qu'une gerbe est de quatre Kav et qu'elle a été oubliée, Beit Shammai dit : Elle n'est pas [sujette à] Shikhechah [gerbes individuelles, oubliées dans le champ, qui doivent être laissées pour que les pauvres les ramassent] ; Beit Hillel dit : Elle est [sujette à] Shikhechah.
 
 ### michna 2
-La gerbe qui est à côté d'un mur de pierre, ou d'une pile, ou du bétail, ou des vaisseaux, et qui a été oubliée, Beit Shammai dit : Ce n'est pas Shikhechah ; Beit Hillel dit : "[C'est] Shikhechah.
+La gerbe qui est à côté d'un mur de pierre, ou d'une pile, ou du bétail, ou des ustensiles, et qui a été oubliée, Beit Shammai dit : Ce n'est pas Shikhechah ; Beit Hillel dit : "[C'est] Shikhechah.
 
 ### michna 3
 Les gerbes à] la tête des rangs, [ou] la gerbe [dans un rang non rassemblé] adjacente [à une gerbe apparemment oubliée], [ou] la gerbe qu'il a prise pour l'apporter à la ville et [ensuite] l'a oubliée ; ils [Beit Hillel] concèdent que ce ne sont pas des Shikhechah.

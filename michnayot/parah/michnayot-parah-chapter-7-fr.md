@@ -33,7 +33,7 @@ Si quelqu'un a transmit [la surveillance de] son eau à quelqu'un d'impur, elle 
 Deux hommes qui puisent de l'eau pour la hatat et l'un aide l'autre à la relever ou l'un arrache une écharde pour l'autre : Pour un mélange, c'est valable ; Pour deux mélanges, c'est invalide. Rabbi Yose dit : même pour deux mélanges, c'est valide s'ils ont fait un accord mutuel entre eux.
 
 ### michna 12
-Celui qui a démoli une clôture [même] avec l'intention de la remonter, l'eau reste valide ; mais s'il a remonté une clôture, l'eau devient invalide. S'il a mangé des figues avec l'intention d'en sécher une partie, l'eau est valable ; mais s'il a mis à sécher des figues, l'eau n'est pas valable. S'il mangeait des figues et que qu'il lui en restait, et qu'il a jeté ces dernières sous un figuier ou dans un surface de séchage, afin que [les figues] ne soient pas gaspillé, l'eau est invalide.
+Celui qui a démoli une clôture [même] avec l'intention de la remonter, l'eau reste valide ; mais s'il a remonté une clôture, l'eau devient invalide. S'il a mangé des figues avec l'intention d'en sécher une partie, l'eau est valable ; mais s'il a mis à sécher des figues, l'eau n'est pas valable. S'il mangeait des figues et qu'il lui en restait, et qu'il a jeté ces dernières sous un figuier ou dans un surface de séchage, afin que [les figues] ne soient pas gaspillée, l'eau est invalide.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

@@ -1,6 +1,6 @@
 
 ### michna 1
-Rabbi Joshua a dit : si une femme en état de menstruation s'est assise dans un lit avec une femme pure, [même] le chapeau sur sa tête contracte l'impureté de midras. Et si elle s'est assise dans un bateau, les vaisseaux au sommet du mât sont également impurs à cause de midras. S'il y avait [sur le bateau] une baignoire pleine de vêtements : si leur poids est lourd, ils deviennent impurs, mais si leur poids est léger, ils restent propres. Si un zav s'est cogné contre un balcon et a ainsi fait tomber un pain de terumah, il reste propre.
+Rabbi Joshua a dit : si une femme en état de menstruation s'est assise dans un lit avec une femme pure, [même] le chapeau sur sa tête contracte l'impureté de midras. Et si elle s'est assise dans un bateau, les ustensiles au sommet du mât sont également impurs à cause de midras. S'il y avait [sur le bateau] une baignoire pleine de vêtements : si leur poids est lourd, ils deviennent impurs, mais si leur poids est léger, ils restent propres. Si un zav s'est cogné contre un balcon et a ainsi fait tomber un pain de terumah, il reste propre.
 
 ### michna 2
 S'il a heurté une poutre solide, un cadre de fenêtre, un tuyau d'eau, une étagère, même si elle était fixée avec des cordes, ou un four, un récipient à farine, la pierre inférieure du moulin, la base d'un moulin à main, ou la mesure de se'ah d'un moulin à olives, [le pain reste pur]. Rabbi Yose ajoute : également [s'il frappe] contre la poutre du gardien du bain, il reste propre.

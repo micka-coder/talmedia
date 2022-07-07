@@ -70,7 +70,7 @@
 <b>Pour se mêler au peuple</b> [Héb.  לְקַדֵשׁ אֶתהָעָם  lit. pour sanctifier le peuple.] Jonathan rend : pour se mêler au peuple.
 
 ### passuk 21
-<b>corners</b> [Heb.  מִקְצוֹעֵי,] angles en français, coins.
+<b>coins</b> [Heb.  מִקְצוֹעֵי,] angles en français, coins.
 
 ### passuk 22
 <b>Enclos ouverts</b> Nous avons appris dans le Tractate Middoth (2:5) :  קְטֻרוֹת  signifie qu'ils n'avaient pas de toit, et là, il est expliqué à quoi ils servaient.
