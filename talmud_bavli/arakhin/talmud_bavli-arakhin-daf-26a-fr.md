@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>de</b> celui d'autres elements <b>consacres</b> pour <b>l'entretien du temple,</b> par exemple, une maison consacree, <b>mais on ne derive pas</b> la <i>halakha</i> en ce qui concerne les elements <b>consacres</b> pour l'entretien du <b>Temple de</b> elements qui sont <b>consacres</b> pour l'<b>altar,</b> tels que les deux agneaux apportes a <i>Shavuot</i>.
+<b>de</b> celui d'autres elements <b>consacres</b> pour <b>l'entretien du temple,</b> par exemple, une maison consacree, <b>mais on ne derive pas</b> la <i>halakha</i> en ce qui concerne les elements <b>consacres</b> pour l'entretien du <b>Temple de</b> elements qui sont <b>consacres</b> pour l'<b>autel,</b> tels que les deux agneaux apportes a <i>Shavuot</i>.
 
 ### Partie 2
 La Guemara objecte : <b>Et que Rabbi Shimon derive aussi</b> la <i>halakha</i> au moyen d'une analogie verbale <b>de celui qui <b>consacre une maison.</b> Pourquoi n'est-il pas d'accord avec Rabbi Yehouda ? La Guemara explique : <b>On derive</b> la <i>halakha</i> d'un <b>element qui</b> est <b>un don aux pretres,</b> tel qu'un champ ancestral qui est donne aux pretres pendant l'annee jubilaire, <b>de</b> celui d'un autre <b>element qui est un don aux pretres,</b> c'est-a-dire, les deux agneaux apportes a <i>Shavuot</i>, <b>mais on ne derive pas</b> la <i>halakha</i> d'un <b>element qui est un don aux pretres de</b> celui d'un <b>element qui n'est pas un don aux pretres,</b> c'est-a-dire une maison consacree.

@@ -30,7 +30,7 @@ La Guemara demande : En ce qui concerne les taureaux sacrifiés lors de <i>Soukk
 La Guemara cite <b>une parabole</b> à propos d'un <b>roi de chair et de sang qui dit à ses serviteurs : Préparez-moi un grand festin</b> qui durera plusieurs jours. Le festin terminé, <b>le dernier jour, il dit à son serviteur bien-aimé</b> : <b>Prépare-moi un petit festin afin que je puisse tirer du plaisir de toi</b> seul.
 
 ### Partie 11
-<b>Rabbi Yoḥanan a dit : Malheur aux nations</b> du monde <b>qui ont perdu</b> quelque chose <b>et ne savent pas ce qu'elles ont perdu. Lorsque le Temple est debout, les</b> soixante-dix taureaux sacrifiés sur l'<b>altar</b> pendant la fête de <i>Sukkot</i> <b>s'expient pour eux. Et maintenant</b> que le Temple est détruit, <b>qui expie pour eux ?</b>
+<b>Rabbi Yoḥanan a dit : Malheur aux nations</b> du monde <b>qui ont perdu</b> quelque chose <b>et ne savent pas ce qu'elles ont perdu. Lorsque le Temple est debout, les</b> soixante-dix taureaux sacrifiés sur l'<b>autel</b> pendant la fête de <i>Sukkot</i> <b>s'expient pour eux. Et maintenant</b> que le Temple est détruit, <b>qui expie pour eux ?</b>
 
 ### Partie 12
 <strong>MISHNA:</strong> <b>A trois moments de l'année, les</b> vingt-quatre <b>veilles sacerdotales</b> ont un statut <b>égal</b>, en ce sens que toutes reçoivent une part du service du Temple indépendamment de l'ordre standard des veilles et que toutes reçoivent une part des dons du sacerdoce qui les accompagnent : <b>Dans les portions des offrandes des Fêtes</b> sacrifiées sur l'autel <b>et dans la distribution des pains de sève</b> le Chabbat pendant les Fêtes.

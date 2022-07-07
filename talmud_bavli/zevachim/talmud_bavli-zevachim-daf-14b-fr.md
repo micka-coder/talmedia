@@ -21,7 +21,7 @@ La Guemara demande : <b>Et ce n'est pas le cas ? Mais Rabbi Zeira ne dit-il pas<
 La Guemara repond : La <b>genisse rouge est differente, car elle n'est</b> pas une offrande ; elle a le caractere sacre des objets <b>consacres a l'entretien du Temple.</b> Les <i>halakhot</i> qui regissent son service different donc de celles des offrandes proprement dites.
 
 ### Partie 8
-La Guemara demande : <b>Mais</b> cela ne prouve-t-il pas <b>d'autant plus</b> que si l'abattage d'un animal <b>consacre a l'entretien du Temple equivaut</b> a un <b>sacrifice,</b> l'abattage des <b>offrandes,</b> qui sont sacrifiees sur l'<b>altar, ne peut-il pas etre</b> considere comme un <b>sacrifice ?</b>
+La Guemara demande : <b>Mais</b> cela ne prouve-t-il pas <b>d'autant plus</b> que si l'abattage d'un animal <b>consacre a l'entretien du Temple equivaut</b> a un <b>sacrifice,</b> l'abattage des <b>offrandes,</b> qui sont sacrifiees sur l'<b>autel, ne peut-il pas etre</b> considere comme un <b>sacrifice ?</b>
 
 ### Partie 9
 <b>Rav Sheisha, fils de Rav Idi, a dit :</b> L'abattage d'une genisse rouge est considere <b>comme il l'est dans</b> le cas de <b>l'ombre de</b> <b>marques lepreuses, qui</b> sont jugees rituellement pures ou impures par un pretre. Bien qu'il ne s'agisse <b>pas</b> d'un <b>rite sacrificiel,</b> il faut neanmoins <b>un membre de la <b>pretrise</b> pour l'accomplir. Par consequent, l'exigence que la genisse rouge soit abattue par un pretre ne prouve pas qu'elle soit classee comme un rite sacrificiel.
