@@ -1,6 +1,6 @@
 
 ### michna 1
-Un oeuf pondu le jour de Yom Tov : les Bet Shammai disent : on peut le manger [le jour même] ; mais les Bet Hillel disent : on ne peut pas le manger [avant la fin du jour]. Les Bet Shammai disent : la quantité de levain est de la taille d'une olive et le pain levé est de la taille d'une datte ; mais Bet Hillel disent : les deux sont de la taille d'une olive.
+Un oeuf pondu le jour de Yom Tov : Bet Shammai disent : on peut le manger [le jour même] ; mais Bet Hillel disent : on ne peut pas le manger [avant la fin du jour]. Bet Shammai disent : la quantité de levain est de la taille d'une olive et le pain levé est de la taille d'une datte ; mais Bet Hillel disent : les deux sont de la taille d'une olive.
 
 ### michna 2
 Celui qui abat un animal sauvage ou un oiseau lors d'une fête Bet Shammai dit : il peut creuser avec un outil à dents et couvrir [le sang], mais Bet Hillel dit : il ne peut pas abattre à moins d'avoir préparé de la terre. Mais ils sont d'accord sur le fait que s'il abattait, il devrait creuser avec un outil à dents et recouvrir [le sang, et] que les cendres d'un poêle comptent comme étant préparées pour la fête.

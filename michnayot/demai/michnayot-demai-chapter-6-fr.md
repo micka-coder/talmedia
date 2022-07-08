@@ -15,7 +15,7 @@ Si un Israélite a loué un champ à un prêtre ou à un lévite [pour une part 
 Un Israélien qui loue des oliviers [d'un prêtre ou d'un lévite] pour [une part de] l'huile : de la même façon qu'on divise les produits non sacrés, on divise la térouma. Rabbi Juda dit : un Israélite qui a loué [des oliviers] d'un prêtre ou d'un lévite pour l'huile pour une part de la moitié du bénéfice, les dîmes appartiennent au propriétaire.
 
 ### michna 6
-Bet Shammai dit : un homme ne peut vendre ses olives qu'à un "chaver (un "associé")". Mais Bet Hillel dit : [on peut les vendre] même à celui qui ne fait que] la dîme. Et les pieux parmi les Bet Hillel avaient l'habitude d'agir conformément aux paroles des Bet Shammai.
+Bet Shammai dit : un homme ne peut vendre ses olives qu'à un "chaver (un "associé")". Mais Bet Hillel dit : [on peut les vendre] même à celui qui ne fait que] la dîme. Et les pieux parmi Bet Hillel avaient l'habitude d'agir conformément aux paroles des Bet Shammai.
 
 ### michna 7
 Deux personnes ont recueilli [le fruit de] leurs vignes dans un seul pressoir, l'une paie la dîme et l'autre ne paie pas la dîme ; celle qui paie la dîme peut payer sa propre part et sa part où qu'elle soit.
