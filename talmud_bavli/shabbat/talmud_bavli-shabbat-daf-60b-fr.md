@@ -21,7 +21,7 @@ La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Pour une sanda
 La Gemara note : <b>Accordé, selon Rabbi Ḥanina,</b> il n'y a pas de problème, <b>car il a énoncé</b> son avis <b>conforme</b> à l'avis de <b>Rabbi Natan. Cependant, Rabbi Yoḥanan, conformément à l'avis de qui <b>a-t-il énoncé</b> son avis ? Aucun des <i>tanna'im</i> n'est d'accord avec son opinion. La Gemara répond : <b>Il a énoncé</b> son avis <b>conformément</b> à l'avis du <b>Rabbi Nehorai, comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Nehorai dit : </b> Avec <b>cinq</b> clous insérés dans la semelle, il <b>est permis</b> de sortir dans le domaine public le Chabbat ; <b>et</b> avec <b>sept</b> clous, il est <b>interdit</b> de sortir dans le domaine public le Chabbat.
 
 ### Partie 8
-Le Sage, <b>Ifa, dit à Rabba bar bar Ḥana : Vous,</b> qui êtes <b>les élèves de Rabbi Yoḥanan, agissez conformément</b> à l'avis de <b>Rabbi Yoḥanan. Nous agirons en accord avec</b> l'opinion <b>du Rabbin Ḥanina.</b>
+Le Sage, <b>Ifa, dit à Rabba bar bar Ḥana : Vous,</b> qui êtes <b>les élèves de Rabbi Yoḥanan, agissez conformément</b> à l'avis de <b>Rabbi Yoḥanan. Nous agirons en accord avec</b> l'opinion <b>de Rabbi Ḥanina.</b>
 
 ### Partie 9
 <b>Rav Huna a soulevé un dilemme devant Rav Ashi :</b> Avec une sandale qui a <b>cinq</b> clous insérés dans la semelle, <b>qu'elle est</b> la <i>halakha</i> par rapport à la sortie dans le domaine public ? <b>Il lui répondit : Même</b> avec <b>sept</b> clous, il <b>est permis.</b> Il demanda encore : Avec <b>neuf, quelle est</b> la <i>halakha</i> ? <b>Il lui a répondu : Même</b> avec <b>huit</b> il <b>est interdit.</b>
