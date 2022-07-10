@@ -3,7 +3,7 @@
 <b>Exclue est l'eau du</b> <b>Bassin, qui a un modificateur</b> dans son nom ? <b>Au contraire,</b> puisque le <i>baraita</i> ne peut pas se referer a l'eau du Bassin lui-meme, car elle est impropre a laver les entrailles, <b>ne se refere-t-il pas</b> a l'eau <b>qui est apte a</b> etre <b>l'eau du</b> <b>Bassin ? Apparemment,</b> la seule raison pour laquelle une telle eau pourrait etre preferable est qu'elle <b>est une eau courante.</b>
 
 ### Partie 2
-La Guemara repond : La question <b>est</b> un differend entre <b><i>tannaim</i>, comme le dit Rabbi Yohanan :</b> En ce qui concerne <b>l'eau du</b> <b>Bassin, Rabbi Yishmael dit : Elle</b> doit etre <b>l'eau de source,</b> c'est-a-dire l'eau courante, <b>et les rabbins disent : Ce</b> peut etre <b>un autre</b> type d'<b>eau.</b>
+La Guemara repond : La question <b>est</b> un differend entre <b><i>tannaim</i>, comme le dit Rabbi Yohanan :</b> En ce qui concerne <b>l'eau du</b> <b>Bassin, Rabbi Yishmael dit : Elle</b> doit etre <b>l'eau de source,</b> c'est-a-dire l'eau courante, <b>et les sages disent : Ce</b> peut etre <b>un autre</b> type d'<b>eau.</b>
 
 ### Partie 3
 § La mishna enseigne qu'un pretre qui est <b>uncirconcis</b> disqualifie les rites sacrificiels qu'il accomplit. La Guemara developpe : <b>D'ou tirons-nous</b> cela ? <b>Rav Hisda dit : Nous n'avons pas appris cette question de la Torah de Moise, notre maitre;</b> plutot, <b>nous l'avons appris</b> <b>des paroles du prophete <b>Ezechiel, fils de Buzi : "Aucun étranger, incirconcis de coeur ou incirconcis de chair, n'entrera dans mon sanctuaire pour me servir"</b> (Ezékiel 44:9).

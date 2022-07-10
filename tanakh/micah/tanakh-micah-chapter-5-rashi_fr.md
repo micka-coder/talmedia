@@ -19,7 +19,7 @@
 ### passuk 4
 <b>Et ce sera la paix</b> - Une paix complète et permanente, sans interruption, et elle ne ressemblera pas aux autres rédemptions après lesquelles il y eut des troubles. 
 <b>Si l'Assyrie venait</b> Heb  כִּי יָבוֹא. Ce  כִּי  sert de "si" - S'il vient dans notre pays comme il vient maintenant. 
-<b>Nous établirons sur eux sept bergers et huit</b> " Concernant les sept et huit, nos rabbins ont énuméré leurs noms dans le Tractate <i>Sukkah</i>, mais je ne sais pas d'où ils les ont tirés. (se référant à <i>Sukkah</i> 52b) 
+<b>Nous établirons sur eux sept bergers et huit</b> " Concernant les sept et huit, nos sages ont énuméré leurs noms dans le Tractate <i>Sukkah</i>, mais je ne sais pas d'où ils les ont tirés. (se référant à <i>Sukkah</i> 52b) 
 
 ### passuk 5
 <b>Et ils briseront le pays d'Assyrie</b> Heb.  יְרָעוּ. Et ils briseront, semblable à (<a class="refLink" href="/Psalms.2.9" data-ref="Psaumes 2:9">Ps. 2:9</a>) "Tu les briseras (תְּרֹעֵם) avec une verge de fer." 

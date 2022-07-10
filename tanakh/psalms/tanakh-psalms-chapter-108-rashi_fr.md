@@ -6,12 +6,12 @@
 <b>Même ma gloire</b> Même ma gloire est ce que je chante pour Toi. Une autre explication : <b>Même ma gloire</b> Même selon mon honneur, je n'hésiterai pas à chanter pour Lui, et je ne prendrai pas la gloire pour moi.
 
 ### passuk 3
-<b>Je réveillerai l'aube</b> Les autres rois ont pour coutume que l'aube les réveille, mais moi je réveille l'aube, car je me lève à minuit, lorsque le psaltérion et la harpe me réveillent, comme l'ont dit nos rabbins (Ber. 3b) : Une harpe était suspendue au-dessus du lit de David. Dès que minuit arrivait, le vent du nord soufflait dessus et elle jouait toute seule.
+<b>Je réveillerai l'aube</b> Les autres rois ont pour coutume que l'aube les réveille, mais moi je réveille l'aube, car je me lève à minuit, lorsque le psaltérion et la harpe me réveillent, comme l'ont dit nos sages (Ber. 3b) : Une harpe était suspendue au-dessus du lit de David. Dès que minuit arrivait, le vent du nord soufflait dessus et elle jouait toute seule.
 
 ### passuk 4
 
 ### passuk 5
-<b>Au-dessus des cieux</b> et un verset dit (ci-dessus 57:11) : " est jusqu'aux cieux. " Nos rabbins ont expliqué : Celui-ci parle de ceux qui accomplissent [un commandement] pour l'amour de celui-ci [c'est-à-dire dans le seul but d'obéir à la Torah], et celui-là traite de ceux qui accomplissent [les commandements] avec des motivations ultérieures.
+<b>Au-dessus des cieux</b> et un verset dit (ci-dessus 57:11) : " est jusqu'aux cieux. " Nos sages ont expliqué : Celui-ci parle de ceux qui accomplissent [un commandement] pour l'amour de celui-ci [c'est-à-dire dans le seul but d'obéir à la Torah], et celui-là traite de ceux qui accomplissent [les commandements] avec des motivations ultérieures.
 
 ### passuk 6
 

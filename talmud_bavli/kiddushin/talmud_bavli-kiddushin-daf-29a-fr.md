@@ -54,7 +54,7 @@ La Gemara demande : <b>Et d'ou deduit-on</b> <b>qu'elle n'est pas obligee de se 
 <b>Les Sages ont enseigne :</b> Si un premier-ne n'a pas encore ete rachete et qu'il a lui-meme un fils premier-ne, il est oblige <b>de se racheter lui-meme et</b> il est egalement oblige <b>de racheter son</b> premier-ne <b>fils,</b> et <b>il a la priorite sur son fils.</b> S'il n'a pas assez d'argent pour les racheter tous les deux, il se rachete lui-meme. <b>Rabbi Yehuda dit : Son fils a la preseance sur lui.</b> Le raisonnement de Rabbi Yehuda est <b>que</b> concernant <b>cette</b> personne, le pere, la <b>mitzva</b> de <b>son</b> rachat etait <b>sur son pere,</b> et ce n'est que lorsque son pere n'observait pas la mitsva qu'elle s'appliquait au fils adulte. <b>Et cette mitsva de</b> la redemption de <b>son</b> premier-ne <b>s'applique a lui</b> directement. Par consequent, il doit d'abord accomplir la mitsva qui s'applique a lui en rachetant son fils.
 
 ### Partie 19
-<Rabbi Yirmeya dit : Tout le monde est d'accord</b>
+<b>Rabbi Yirmeya dit : Tout le monde est d'accord</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

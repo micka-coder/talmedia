@@ -62,7 +62,7 @@
 
 ### passuk 17
 <b>Pourquoi n'avez-vous pas mangé le sacrifice pour le péché dans un lieu sacré ?</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les mangeaient-ils alors en dehors du [lieu] saint ? Ne l'ont-ils pas brûlé ? Que veut-il dire par là ? " dans un lieu saint " ? Il leur a plutèt dit : " Peut-être est-elle sortie " au-delà des rideaux " et est-elle devenue invalide " ? 
-<Car c'est un lieu saint, et il devient invalide si on le sort. Ils lui répondirent : " Non ". Il leur dit alors : " Puisqu'il était dans un lieu sacré, pourquoi ne l'avez-vous pas mangé ? ". 
+<b>Car c'est un lieu saint, et il devient invalide si on le sort. Ils lui répondirent : " Non ". Il leur dit alors : " Puisqu'il était dans un lieu sacré, pourquoi ne l'avez-vous pas mangé ? ". 
 <b>Et Il vous l'a donné, pour porter [l'iniquité de la congrégation].</b> Car les <i>kohanim</i> mangent [la viande sacrificielle] et les propriétaires trouvent l'expiation [par là]. 
 <b>Porter l'iniquité de la congrégation.</b> On apprend ici qu'il s'agissait d'un bouc pour [le musaf de] Rosh Chodesh, qui expie le péché de [causer] l'impureté [du] Tabernacle et de ses choses sacrées. [C'est la seule possibilité,] puisque le sacrifice pour le péché du huitième [jour] et le sacrifice pour le péché [apporté par] Nachshon <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> ne sont pas venus pour [le but de] l'expiation. 
 

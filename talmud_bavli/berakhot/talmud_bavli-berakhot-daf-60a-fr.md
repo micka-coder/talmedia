@@ -81,13 +81,13 @@ Pour en revenir au sujet des bains romains, la Gemara demande : <b>Lorsqu'il eme
 La Gemara relate : <b>Rabbi Abbahou est entre dans une maison de bain lorsque le sol de la maison de bain</b> <b>s'est effondre sous lui et un miracle s'est produit en sa faveur. Il s'est tenu sur un pilier et a sauve cent un hommes d'un seul bras.</b> Il tenait une ou deux personnes dans son bras, d'autres s'accrochant a elles et ainsi de suite, de sorte que tous furent sauves. <b>Il dit : Ceci est</b> une confirmation de la declaration <b>du Rav Aha,</b> qui a dit qu'il fallait offrir des remerciements en sortant sain et sauf des bains.
 
 ### Partie 28
-<b>Comme le dit le Rav Aha : Celui qui entre pour laisser couler le sang dit :</b> <br><b>Que ce soit Ta volonte, Seigneur mon Dieu,</b> <br><b>que cette entreprise soit pour la guerison et que Tu me guerisses.</b> <br><b>Comme Tu es un Dieu fidele de guerison et que Ta guerison est verite. </b> <br><b>Parce que ce n'est pas la voie des gens de guerir, mais ils se sont habitues.</b> <br>Le Rav Aha dit que les gens ne devraient pas pratiquer la medecine car ils n'ont pas la capacite de guerir ; il faut plutot laisser la guerison a Dieu.
+<b>Comme le dit le Rav Aha : Celui qui entre pour laisser couler le sang dit :</b> <br><b>Que ce soit Ta volonte, Seigneur mon Dieu,</b> <br><b>que cette entreprise soit pour la guerison et que Tu me guerisses.</b> <br><b>Comme Tu es un Dieu fidele de guerison et que Ta guerison est verite. </b> <br><b>Parce que ce n'est pas la voie des gens de guerir, mais ils se sont habitues.</b> <br>Rav Aha dit que les gens ne devraient pas pratiquer la medecine car ils n'ont pas la capacite de guerir ; il faut plutot laisser la guerison a Dieu.
 
 ### Partie 29
 <b>Abaye</b> repondit et <b>dit : Il ne faut pas dire cela, car</b> il a ete <b>enseigne</b> dans <b>l'ecole de Rabbi Yishmael</b> que du verset, <b>"Et le fera guerir completement"</b> (Exode 21:19), <b>de la</b> on deduit <b>que la permission est accordee a un medecin de guerir.</b> La pratique de la medecine est conforme a la volonte de Dieu.
 
 ### Partie 30
-En ce qui concerne la saignee, la Gemara demande : <b>Lorsqu'on se leve</b> apres avoir fait couler du sang, <b>que dit-il ? Le Rav Aha repond : <b>Il recite en signe de gratitude : <b>Grace a celui qui guerit sans payer.</b>
+En ce qui concerne la saignee, la Gemara demande : <b>Lorsqu'on se leve</b> apres avoir fait couler du sang, <b>que dit-il ? Rav Aha repond : <b>Il recite en signe de gratitude : <b>Grace a celui qui guerit sans payer.</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

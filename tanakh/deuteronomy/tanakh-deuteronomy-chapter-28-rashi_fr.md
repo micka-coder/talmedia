@@ -7,7 +7,7 @@
 
 ### passuk 4
 <b>La progéniture de ton bétail.</b> La progéniture de ton bétail, que l'animal fait sortir de son ventre. 
-<b>Et les troupeaux de tes moutons.</b> Comme le rend le Targum [Onkelos]. Les rabbins commentent : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pourquoi les appelle-t-on  עַשְׁתָּרוֹת  ? Parce qu'ils enrichissent leurs propriétaires et les renforcent, comme les palissades, qui sont de puissantes falaises. 
+<b>Et les troupeaux de tes moutons.</b> Comme le rend le Targum [Onkelos]. Les sages commentent : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pourquoi les appelle-t-on  עַשְׁתָּרוֹת  ? Parce qu'ils enrichissent leurs propriétaires et les renforcent, comme les palissades, qui sont de puissantes falaises. 
 
 ### passuk 5
 <b>Bienheureux sera ton panier.</b> Tes fruits. Autre interprétation : Ton panier  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les liquides que tu filtres à travers des paniers.
@@ -184,7 +184,7 @@
 <b>Les yeux languissants.</b> Aspirant au salut, mais il ne viendra pas. 
 
 ### passuk 66
-<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens  "Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les rabbins expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
+<b>Votre vie sera suspendue devant vous.</b> En suspens. Tout suspens est considéré comme étant en suspens  "Peut-être que je mourrai aujourd'hui, par l'épée qui nous a été visitée.' Les sages expliquent : Cela fait référence à celui qui achète des produits sur le marché. 
 <b>Tu n'auras pas foi en ta vie.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à celui qui dépend de la boulangerie.
 
 ### passuk 67

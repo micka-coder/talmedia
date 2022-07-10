@@ -44,7 +44,7 @@
 
 ### passuk 13
 <b>Rester la nuit.</b> Rester [une nuit de plus] sans mari.
-<b>Comme Hachem vit.</b> Elle lui dit : "Tu me renvoies avec des mots [c'est-à-dire des excuses]." Il se lève d'un bond et lui jure<sup>18</sup><i class="footnote">"חי ה " est la forme biblique d'un serment, comme dans I Shmuel 19:6. </i> qu'il ne la congédierait pas avec des mots. Certains de nos rabbins ont dit qu'il a juré à son mauvais penchant, car son mauvais penchant l'incitait [en disant] : "Tu n'es pas marié et elle n'est pas mariée ; sois intime avec elle". Il a donc juré qu'il ne serait pas intime avec elle, sauf avec le mariage. 
+<b>Comme Hachem vit.</b> Elle lui dit : "Tu me renvoies avec des mots [c'est-à-dire des excuses]." Il se lève d'un bond et lui jure<sup>18</sup><i class="footnote">"חי ה " est la forme biblique d'un serment, comme dans I Shmuel 19:6. </i> qu'il ne la congédierait pas avec des mots. Certains de nos sages ont dit qu'il a juré à son mauvais penchant, car son mauvais penchant l'incitait [en disant] : "Tu n'es pas marié et elle n'est pas mariée ; sois intime avec elle". Il a donc juré qu'il ne serait pas intime avec elle, sauf avec le mariage. 
 
 ### passuk 14
 <b>Parce qu'il a dit : " Il ne faut pas que cela se sache " Cela fait référence à " et elle s'est levée avant que l'un ait pu reconnaà®tre l'autre ". Il l'a pressée de se lever parce qu'il disait dans son coeur : " Il ne sied pas à mon honneur que l'on sache que la femme est venue à l'aire de battage. "<sup>19</sup><i class="footnote">Selon le Alshich, Bo'az s'est inquiété de la réputation de Rus plutèt que de la sienne, car sa droiture était bien connue et personne ne le suspecterait d'agir de manière immorale. </i> 

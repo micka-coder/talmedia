@@ -12,7 +12,7 @@ La Gemara demande : <b>S'il se souvient</b> au moment du vœu que son intention 
 La Guemara relate que <b>Rav Huna bar Hinnana avait l'intention d'enseigner</b> ce sujet <b>lors de</b> la <b>conference de la Fete,</b> afin que tout le monde apprenne cette maniere de rendre les vœux nuls a Roch HaShana. <b>Rava lui dit :</b> Le <b><i>tanna</i></b> de la mishna le <b>conduit</b> et ne le dit pas explicitement, malgre le fait qu'il soit etudie par les erudits de la Torah, <b>afin que</b> le public <b>ne traite pas les vœux a la legere, et tu l'enseignes</b> publiquement <b>a</b> la <b>conference de la Fete ?</b>
 
 ### Partie 5
-§ <b>Un dilemme a ete souleve devant</b> les savants : Est-ce que <b>les rabbins sont en desaccord avec Rabbi Eliezer ben Yaâkov</b> dans la mishna <b>ou pas ? Et si l'on dit</b> qu'ils sont <b>en desaccord</b> avec lui, est-ce que <b>la <i>halakha</i> est conforme a son</b> avis <b>ou non ? </b> La Guemara propose une preuve : <b>Venez</b> et <b>entendez, comme nous l'avons appris</b> dans une mishna (63b) : <b>Quelqu'un qui dit a un autre :</b>
+§ <b>Un dilemme a ete souleve devant</b> les savants : Est-ce que <b>les sages sont en desaccord avec Rabbi Eliezer ben Yaâkov</b> dans la mishna <b>ou pas ? Et si l'on dit</b> qu'ils sont <b>en desaccord</b> avec lui, est-ce que <b>la <i>halakha</i> est conforme a son</b> avis <b>ou non ? </b> La Guemara propose une preuve : <b>Venez</b> et <b>entendez, comme nous l'avons appris</b> dans une mishna (63b) : <b>Quelqu'un qui dit a un autre :</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

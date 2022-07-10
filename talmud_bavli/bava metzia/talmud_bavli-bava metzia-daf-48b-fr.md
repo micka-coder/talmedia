@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Mais</b> cette <i>baraita</i> est <b>difficile selon Reish Lakish.</b> La Gemara repond : <b>Reish Lakish</b> aurait pu te <b>dire : </b> Selon <b>l'avis de qui</b> <b>c'est</b> <i>baraita</i> ? <b>C'est</b> conformement a l'avis de <b>Rabbi Shimon,</b> pas a celui des rabbins.
+<b>Mais</b> cette <i>baraita</i> est <b>difficile selon Reish Lakish.</b> La Gemara repond : <b>Reish Lakish</b> aurait pu te <b>dire : </b> Selon <b>l'avis de qui</b> <b>c'est</b> <i>baraita</i> ? <b>C'est</b> conformement a l'avis de <b>Rabbi Shimon,</b> pas a celui des sages.
 
 ### Partie 2
 § La mishna enseigne a propos de celui qui renonce a une transaction apres que l'argent ait ete verse : <b>Mais</b> les Sages ont dit : Celui qui a exige le paiement</b> des gens de la generation du deluge, et de la generation de la dispersion, exigera a l'avenir le paiement de celui qui ne s'en tient pas a sa declaration. <b>Il a ete dit</b> qu'il y a un differend amoraique. <b>Abaye a dit</b> que <b>on informe</b> celui qui cherche a revenir sur une transaction : Sachez que c'est la punition de celui qui ne s'en tient pas a sa declaration. <b>Rava dit</b> que <b>nous le maudissons</b> avec cette declaration.
@@ -15,7 +15,7 @@ La Guemara developpe : <b>Abaye dit</b> que <b>on l'informe, comme il est ecrit 
 <b>Au contraire,</b> les details de l'incident etaient differents. <b>Il s'agit d'un acompte que</b> les acheteurs ont <b>donne a Rabbi Hiyya bar Yosef.</b> L'argent a ete verse simplement pour renforcer l'engagement a conclure la transaction. Rabbi Hiyya bar Yosef <b>soutenait</b> que l'acompte <b>effectue l'acquisition</b> du sel <b>correspondant a sa</b> valeur, et donc il voulait leur donner seulement cette portion du sel. <b>Et Rabbi Yohanan lui dit :</b> L'acompte <b>effectue l'acquisition</b> du sel <b>commensurablement</b> au <b>entier</b> montant de la transaction.
 
 ### Partie 6
-§ <b>Il a ete affirme</b> qu'il existe un differend amoraique concernant <b>un acompte</b>. Le Rav dit :</b> Un acompte <b>effectue l'acquisition</b> d'une marchandise <b>correspondant a sa</b> valeur. <b>Et Rabbi Yohanan dit : Il effectue l'acquisition</b> de la marchandise <b>commensurablement</b> au <b>vaste</b> montant de la transaction.
+§ <b>Il a ete affirme</b> qu'il existe un differend amoraique concernant <b>un acompte</b>. Rav dit :</b> Un acompte <b>effectue l'acquisition</b> d'une marchandise <b>correspondant a sa</b> valeur. <b>Et Rabbi Yohanan dit : Il effectue l'acquisition</b> de la marchandise <b>commensurablement</b> au <b>vaste</b> montant de la transaction.
 
 ### Partie 7
 La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : En ce qui concerne <b>quelqu'un qui donne un acompte a un autre, et lui dit : Si je renonce, mon acompte te sera confisque, et l'autre</b> personne lui <b>dit : Si je renonce, je double ton acompte pour toi, les conditions sont en vigueur;</b> c'est <b>la declaration de Rabbi Yosei.</b> La Guemara commente : <b>Rabbi Yosei</b> se conforme <b>a sa ligne standard de <b>raisonnement</b>, car il dit : Une transaction avec un consentement non concluant [<i>asmakhta</i>] effectue une acquisition.</b> Meme s'il s'agit d'un engagement qu'il a pris en se basant sur sa certitude qu'il ne serait jamais force de remplir la condition, il est considere comme un engagement a part entiere.

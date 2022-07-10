@@ -67,7 +67,7 @@
 
 ### passuk 22
 <b>Si un homme est coupable d'un crime capital.</b> La proximité des chapitres enseigne que si sa mère et son père ont pitié de lui, il finira par devenir un dégénéré, commettre des transgressions et être condamné à mort par les tribunaux. 
-<b>Vous le pendrez à un arbre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins remarquent que tous ceux qui sont lapidés sont également pendus, car il est dit : "car un cadavre suspendu est un affront à Dieu", et quelqu'un qui maudit Dieu est lapidé. 
+<b>Vous le pendrez à un arbre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les sages remarquent que tous ceux qui sont lapidés sont également pendus, car il est dit : "car un cadavre suspendu est un affront à Dieu", et quelqu'un qui maudit Dieu est lapidé. 
 
 ### passuk 23
 <b>Car un cadavre pendu est un affront à Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est un affront au roi, car l'homme est façonné à Son image, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>et les Israélites sont Ses enfants. Ceci est comparé à des frères jumeaux qui étaient identiques l'un à l'autre. L'un devint roi, l'autre fut appréhendé comme voleur et pendu. Tous ceux qui le voyaient s'exclamaient : "Le roi a été pendu!' [Le roi a donné un ordre, et il a été pendu.]  קְלָלָה " dans l'Écriture connote l'affront et l'insulte, comme dans : "Il m'a insulté explicitement. 

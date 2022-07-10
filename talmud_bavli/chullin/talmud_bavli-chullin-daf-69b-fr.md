@@ -21,7 +21,7 @@ Un animal non sacre dont un membre est consacre ne peut etre sacrifie. En conseq
 <b>Rabbi Yosei et Rabbi Shimon disent : D'ou</b> provient-il <b>que</b> dans le cas de <b>celui qui dit : La patte de cet</b> animal <b>est un holocauste, tout devient un holocauste ? Le verset dit :" Il sera</b> sacre." Cela sert <b>a inclure tout</b> l'animal, indiquant que tout devient sacre.
 
 ### Partie 8
-La Guemara reitere sa question : <A qui Rabbi Yosei repond-il ? Rabbi Yosei est clairement en desaccord avec l'opinion selon laquelle si un seul membre est consacre, alors l'animal entier devient consacre. <b>Si nous disons</b> qu'il repond <b>a Rabbi Meir et Rabbi Yehuda, acceptent-ils ce raisonnement ? Plutot, est-ce que</b> Rabbi Yosei ne repond pas <b>a Rabbi Shimon,</b> comme la Guemara le suggere ci-dessus dans la resolution de la difficulte de la mishna dans <i>Temura</i> ?
+La Guemara reitere sa question : <b>A qui Rabbi Yosei repond-il ? Rabbi Yosei est clairement en desaccord avec l'opinion selon laquelle si un seul membre est consacre, alors l'animal entier devient consacre. <b>Si nous disons</b> qu'il repond <b>a Rabbi Meir et Rabbi Yehuda, acceptent-ils ce raisonnement ? Plutot, est-ce que</b> Rabbi Yosei ne repond pas <b>a Rabbi Shimon,</b> comme la Guemara le suggere ci-dessus dans la resolution de la difficulte de la mishna dans <i>Temura</i> ?
 
 ### Partie 9
 La Gemara repond : <b>Non,</b> il est possible que Rabbi Yossei ne reponde pas directement a une autre opinion ; plutot, <b>il a enonce son propre raisonnement,</b> sans reference a celui d'un autre Sage. Par consequent, sa declaration ne fournit aucune preuve que la mishna de <i>Temura</i> exprime l'opinion de Rabbi Shimon.

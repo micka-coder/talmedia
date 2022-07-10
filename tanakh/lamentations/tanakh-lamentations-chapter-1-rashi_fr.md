@@ -68,7 +68,7 @@
 
 ### passuk 15
 <b>Trampé.</b> Il a piétiné et foulé, une expression de, "pave, pave  סֹלּוּ  la route."<sup>51</sup><i class="footnote">Yeshayahuu 62:10. </i> 
-<b>Il a proclamé un rassemblement contre moi.</b> Un rassemblement de troupes pour venir contre moi.</sup>52</sup><i class="footnote">Alternativement, "Il a proclamé de me briser [מועד (Yein Horekach) </i>Et nos rabbins ont exposé ce qu'ils ont exposé. Tammuz de cette année-là était un mois complet [=30 jours], de la deuxième année depuis leur Exode d'Égypte. Par conséquent, le retour des espions a eu lieu la nuit du 9 Av, sur laquelle leurs pleurs ont été établis pour des générations.<sup>53</sup><i class="footnote">Masehet Ta'anis 29a. Selon cette explication,  מועד " signifie "a temps fixé.' </i> 
+<b>Il a proclamé un rassemblement contre moi.</b> Un rassemblement de troupes pour venir contre moi.</sup>52</sup><i class="footnote">Alternativement, "Il a proclamé de me briser [מועד (Yein Horekach) </i>Et nos sages ont exposé ce qu'ils ont exposé. Tammuz de cette année-là était un mois complet [=30 jours], de la deuxième année depuis leur Exode d'Égypte. Par conséquent, le retour des espions a eu lieu la nuit du 9 Av, sur laquelle leurs pleurs ont été établis pour des générations.<sup>53</sup><i class="footnote">Masehet Ta'anis 29a. Selon cette explication,  מועד " signifie "a temps fixé.' </i> 
 <b>[Comme] un pressoir, [Dieu] a foulé.</b> Expression de mise à mort, comme dans, "Moi seul ai foulé un pressoir,"<sup>54</sup><i class="footnote">Yeshayahuu 63:3. </i> comme on foule le raisin pour en extraire le vin, ainsi Il a piétiné les femmes pour en extraire le sang. 
 
 ### passuk 16

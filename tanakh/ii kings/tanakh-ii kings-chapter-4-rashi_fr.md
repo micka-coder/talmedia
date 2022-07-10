@@ -87,7 +87,7 @@
 <b>"Ne m'induis pas en erreur"</b> Ne m'induis pas en erreur.</sup>23</sup><i class="footnote">Alternativement, Gא תַשְׁגֶּה " signifie "ne m'afflige pas".
 
 ### passuk 29
-<Ne le saluez pas. Ne vous informez pas de son bien-être. Tout cela [était fait] pour décourager la conversation, où l'on pourrait lui demander : "Où vas-tu ?" et il répondrait : "Pour ressusciter les morts".Ce n'est pas respectueux pour le miracle quand le créateur s'en vante. Mais, il n'obéit pas.<sup>24</sup><i class="footnote">Geichazi prit sa mission très à la légère et la considéra comme une blague. Il n'a donc pas réussi à mener à bien sa mission. Radak</i> Lorsqu'on lui demandait [où il allait], il répondait : "Mon maître m'a envoyé ranimer les morts." <<sup>25</sup><i class="footnote">Alternativement, Elisha pensait initialement que le garçon s'était simplement évanoui et que sa présence personnelle ne serait donc pas nécessaire.Malbim</i>
+<b>Ne le saluez pas. Ne vous informez pas de son bien-être. Tout cela [était fait] pour décourager la conversation, où l'on pourrait lui demander : "Où vas-tu ?" et il répondrait : "Pour ressusciter les morts".Ce n'est pas respectueux pour le miracle quand le créateur s'en vante. Mais, il n'obéit pas.<sup>24</sup><i class="footnote">Geichazi prit sa mission très à la légère et la considéra comme une blague. Il n'a donc pas réussi à mener à bien sa mission. Radak</i> Lorsqu'on lui demandait [où il allait], il répondait : "Mon maître m'a envoyé ranimer les morts." <<sup>25</sup><i class="footnote">Alternativement, Elisha pensait initialement que le garçon s'était simplement évanoui et que sa présence personnelle ne serait donc pas nécessaire.Malbim</i>
 
 ### passuk 30
 

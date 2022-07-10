@@ -33,7 +33,7 @@ Une femme <b>qui danse pour</b> s'assurer que le <b><i>kutaḥ</i>,</b> une épi
 <b>Une femme qui urine devant sa marmite pour qu'elle cuise rapidement;</b> cette action <b>contient un élément des voies de l'Amorite.</b>
 
 ### Partie 12
-<b>Mais on peut mettre un éclat de mûrier</b> <b>et des éclats de verre dans la marmite pour qu'elle cuise rapidement,</b> car agir ainsi est efficace et ne relève pas de la simple superstition. <b>Et les rabbins interdisent les éclats de verre</b> non pas en raison de la superstition, mais plutôt <b>en raison</b> du <b>danger</b> impliqué si le verre n'est pas filtré complètement.
+<b>Mais on peut mettre un éclat de mûrier</b> <b>et des éclats de verre dans la marmite pour qu'elle cuise rapidement,</b> car agir ainsi est efficace et ne relève pas de la simple superstition. <b>Et les sages interdisent les éclats de verre</b> non pas en raison de la superstition, mais plutôt <b>en raison</b> du <b>danger</b> impliqué si le verre n'est pas filtré complètement.
 
 ### Partie 13
 <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> : <b>On</b> peut <b>placer un morceau de sel dans une bougie pour qu'elle brûle vivement;</b> cela est efficace et pas seulement pour la bonne fortune, il n'y a donc aucun élément des voies des Amorites impliqué. <b>Et</b> de même, <b>on peut mettre de la boue ou de l'argile sous une bougie pour qu'elle brûle plus longtemps.</b>

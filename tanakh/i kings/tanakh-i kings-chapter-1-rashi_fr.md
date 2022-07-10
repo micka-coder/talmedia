@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Mais il n'a pas été réchauffé.</b> Nos rabbins ont dit : " Celui qui fait honte aux vêtements sera finalement privé de leurs plaisirs ".</sup>1</sup><i class="footnote">Masehet Berahot 62b.</i> [Les vêtements de David ne l'ont pas réchauffé] parce qu'il a déchiré le coin de la robe de Shaul's.</sup>2</sup><i class="footnote">Voir I Shmuel 24:5. </i> Le Midrash [Aggadah affirme], Rabbi Shmuel fils de Na'hmeni a dit, que lorsque David a vu l'ange debout à Yerushalayim avec son épée tirée dans sa main, son sang s'est glacé de peur.<sup>3</sup><i class="footnote">La terreur de cette expérience est restée avec David, et à partir de ce moment-là, il ne pouvait plus jamais trouver de la chaleur.</i>
+<b>Mais il n'a pas été réchauffé.</b> Nos sages ont dit : " Celui qui fait honte aux vêtements sera finalement privé de leurs plaisirs ".</sup>1</sup><i class="footnote">Masehet Berahot 62b.</i> [Les vêtements de David ne l'ont pas réchauffé] parce qu'il a déchiré le coin de la robe de Shaul's.</sup>2</sup><i class="footnote">Voir I Shmuel 24:5. </i> Le Midrash [Aggadah affirme], Rabbi Shmuel fils de Na'hmeni a dit, que lorsque David a vu l'ange debout à Yerushalayim avec son épée tirée dans sa main, son sang s'est glacé de peur.<sup>3</sup><i class="footnote">La terreur de cette expérience est restée avec David, et à partir de ce moment-là, il ne pouvait plus jamais trouver de la chaleur.</i>
 
 ### passuk 2
 <b>Fille vierge.</b> Sa virginité réchauffe sa chair.
@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Il n'était pas intime avec elle.</b> Parce qu'une vierge est plus appropriée pour [le but] de l'échauffement qu'une non-vierge.</sup>6</sup><i class="footnote">Il préférait donc qu'elle reste vierge.</i> Mais nos rabbins ont dit [qu'il n'était pas intime avec elle] parce que "Il ne doit pas avoir trop de femmes",<<sup>7</sup><i class="footnote">Devarim 17:17. Voir Rashi.</i> et il en avait déjà dix-huit.<sup>8</sup><i class="footnote">C'est-à -dire que parce que David avait déjà dix-huit femmes, le maximum autorisé pour un roi, il ne l'a donc pas épousée. Voir Maseches Sanhedrin 22a et Rashi à ce sujet.</i>
+<b>Il n'était pas intime avec elle.</b> Parce qu'une vierge est plus appropriée pour [le but] de l'échauffement qu'une non-vierge.</sup>6</sup><i class="footnote">Il préférait donc qu'elle reste vierge.</i> Mais nos sages ont dit [qu'il n'était pas intime avec elle] parce que "Il ne doit pas avoir trop de femmes",<<sup>7</sup><i class="footnote">Devarim 17:17. Voir Rashi.</i> et il en avait déjà dix-huit.<sup>8</sup><i class="footnote">C'est-à -dire que parce que David avait déjà dix-huit femmes, le maximum autorisé pour un roi, il ne l'a donc pas épousée. Voir Maseches Sanhedrin 22a et Rashi à ce sujet.</i>
 
 ### passuk 5
 <b>Il s'éleva.</b> Il s'éleva.<sup>9</sup><i class="footnote">Le sens littéral est : "s'éleva".</i>
@@ -100,7 +100,7 @@
 <b>Tant que le trône de mon seigneur David Hamelech.</b> De ceci [on déduit] qu'un père n'est pas envieux de son fils.<sup>30</sup><i class="footnote">Voir Maseches Sanhedrin 105b.</i>
 
 ### passuk 38
-<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonoson a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. Ralbag</i> Mais nos rabbins ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
+<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonoson a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. Ralbag</i> Mais nos sages ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
 
 ### passuk 39
 <b>La corne d'huile.</b> [Tsadok prit] de l'huile d'onction composée par Moshé.<sup>33</sup><i class="footnote">Voir Shemos 30, 31.</i>

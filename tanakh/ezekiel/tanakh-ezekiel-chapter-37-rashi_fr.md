@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>La main du Seigneur est venue sur moi et m'a transporté dans l'esprit du Seigneur, etc.</b> Chaque "la main du Seigneur" dans une prophétie est une expression de contrainte, c'est-à-dire que l'esprit le contraindrait à se rendre comme un fou dans un lieu que l'esprit désirait.
-<b>Et cela était plein d'os</b> Nos rabbins ont dit (Sanh. 92b) qu'ils étaient de la tribu d'Ephraïm, qui avait quitté l'Egypte avant la fin [de l'exil], et que les gens de Gath qui étaient nés dans le pays les avaient tués, comme il est dit dans (I) Chroniques (7 : 20 et suivants).
+<b>Et cela était plein d'os</b> Nos sages ont dit (Sanh. 92b) qu'ils étaient de la tribu d'Ephraïm, qui avait quitté l'Egypte avant la fin [de l'exil], et que les gens de Gath qui étaient nés dans le pays les avaient tués, comme il est dit dans (I) Chroniques (7 : 20 et suivants).
 
 ### passuk 2
 <b>Et Il me fit passer à côté d'eux autour</b> de la vallée. Mais Il ne l'a pas fait entrer au milieu d'elle parce qu'il était prêtre.

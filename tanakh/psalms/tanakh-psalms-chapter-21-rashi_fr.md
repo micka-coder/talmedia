@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Que le roi se réjouisse de Ta force</b> Nos rabbins (Mid. Ps. 21:1) l'ont interprété comme se référant au roi Messie, mais la question peut être correctement interprétée plus loin comme se référant à David lui-même, afin de réfuter les sectaires, qui sont devenus audacieux à cause de cela.
+<b>Que le roi se réjouisse de Ta force</b> Nos sages (Mid. Ps. 21:1) l'ont interprété comme se référant au roi Messie, mais la question peut être correctement interprétée plus loin comme se référant à David lui-même, afin de réfuter les sectaires, qui sont devenus audacieux à cause de cela.
 
 ### passuk 3
 <b>et le discours de</b> Heb.  וארשת, une expression du discours, qui n'a pas de mot similaire. Menachem (p. 167), cependant, a apporté un [mot] similaire à celui-ci (Esdras 3:7) : "par l'autorisation (ברשיון) de Cyrus, roi de Perse."
@@ -21,7 +21,7 @@
 
 ### passuk 7
 <b>Tu le rendras heureux</b> Heb.  תחדהו-, une expression de  חדוה", la joie.
-<b>Devant Toi</b> au Paradis. Nos rabbins, qui l'ont interprété comme faisant référence au Roi Messie, ont apporté une preuve à ce sujet (de Dn. 7, 13) : L'Écriture déclare également (dans Jérémie 30:21) : "Je le ferai approcher, et il s'approchera de Moi."
+<b>Devant Toi</b> au Paradis. Nos sages, qui l'ont interprété comme faisant référence au Roi Messie, ont apporté une preuve à ce sujet (de Dn. 7, 13) : L'Écriture déclare également (dans Jérémie 30:21) : "Je le ferai approcher, et il s'approchera de Moi."
 
 ### passuk 8
 <b>Pour qu'il ne faiblisse pas</b> Et il se confie dans la bonté du Très Haut pour qu'il ne faiblisse pas.

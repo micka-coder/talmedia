@@ -6,7 +6,7 @@
 La Guemara repond : <b>Si oui,</b> si c'est tout ce que la phrase vient enseigner, <b>laissons le verset enoncer</b> deux fois le mot identique : <b><i>Himmatze himmatze</i>, ou : <i>Timmatze timmatze</i>. A partir</b> du fait que <b>le verset a varie</b> sa formulation, on peut <b>conclure deux</b> <i>halakhot</i> <b>de ce verset :</b> Que l'on est tenu de payer double independamment du lieu ou l'objet vole a ete trouve, et que le voleur paie double meme s'il n'a pas prete serment.
 
 ### Partie 3
-§ La Gemara revient sur <b>la</b> question <b>meme. Le Rav dit :</b> Lorsqu'un voleur effectue ses paiements, le <b>principal</b> est paye <b>selon</b> la valeur au moment <b>ou il l'a vole</b>, alors que le <b>double paiement et</b> le <b>quadruple ou quintuple paiement</b> sont calcules <b>selon</b> la valeur au <b>moment du proces debout.</b>
+§ La Gemara revient sur <b>la</b> question <b>meme. Rav dit :</b> Lorsqu'un voleur effectue ses paiements, le <b>principal</b> est paye <b>selon</b> la valeur au moment <b>ou il l'a vole</b>, alors que le <b>double paiement et</b> le <b>quadruple ou quintuple paiement</b> sont calcules <b>selon</b> la valeur au <b>moment du proces debout.</b>
 
 ### Partie 4
 La Gemara demande : <b>Quelle est la raison,</b> c'est-a-dire la source, de cette decision <b>du Rav ?</b> La Gemara repond : <b>Le verset dit :</b> "Si le <b>vol</b> est trouve en sa possession <b>vivant,</b> que ce soit un bœuf, un ane ou un mouton, il paiera le double" (Exode 22:3). <b>Pourquoi le Misericordieux dit-il "vivant [<i>hayyim</i>]</b> dans le contexte de ce <b>vol ?</b> Cette juxtaposition sert a enseigner : Lors du paiement, <b>reviens [<i>ahayah</i>] au principal</b> a la valeur qu'il avait <b>au moment</b> ou il l'a vole</b>.

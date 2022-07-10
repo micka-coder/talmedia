@@ -39,7 +39,7 @@
 
 ### passuk 11
 <b>Et jusqu'au Prince de l'armée</b> C'est le Temple, qui est la Maison du Saint, béni soit-il, le Prince de l'armée. Il a blasphémé le Saint, béni soit-il.
-<b>Et par lui, le sacrifice quotidien fut supprimé</b> Et par ses troupes et ses armées, qu'il envoya à Jérusalem, le sacrifice quotidien fut aboli, car il y envoya Néron César, son général, comme le racontent nos rabbins dans Gittin (56a) et dans Gorion.
+<b>Et par lui, le sacrifice quotidien fut supprimé</b> Et par ses troupes et ses armées, qu'il envoya à Jérusalem, le sacrifice quotidien fut aboli, car il y envoya Néron César, son général, comme le racontent nos sages dans Gittin (56a) et dans Gorion.
 
 ### passuk 12
 <b>Et un temps sera donné pour le sacrifice quotidien</b> Un temps déterminé sera donné pour que le sacrifice quotidien soit supprimé à cause de la transgression.

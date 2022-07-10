@@ -50,7 +50,7 @@
 <b>Le grand rocher. </b> Il s'agit du grand rocher précédemment mentionné, car le '<span></span>' vient à la place du '<span> </span>' [dans le mot '<span> '</span>'], similaire à '<span>' "</span>' au lieu de '<span> '"</span>' [chambre], dans le livre de Nechemyah. <sup>7</sup><i class="footnote"> 13:7.</i> Et parce qu'ils y ont connu le deuil,<sup>8</sup><i class="footnote"> Voir ci-dessous le verset 19.</i> ils l'ont appelé '<span>' </span>'.
 
 ### passuk 19
-<b>Soixante-dix hommes, cinquante mille hommes.</sup></b> Le Targum Yonoson rend : 'Il tua parmi les anciens du peuple soixante-dix hommes, et parmi la communauté cinquante mille hommes.'<sup>9</sup><i class="footnote">Un autre avis est que ce chiffre comprend également le nombre de Philistins qui furent tués suite à leur irrévérence envers l'Arche. </i> Nos rabbins ont cependant dit : 'Soixante-dix hommes, dont chacun était égal à cinquante mille, ou cinquante mille hommes dont chacun était égal aux soixante-dix du Sanhédrin.'<sup>10</sup><i class="footnote">Masehet Sotah 35b.</i>
+<b>Soixante-dix hommes, cinquante mille hommes.</sup></b> Le Targum Yonoson rend : 'Il tua parmi les anciens du peuple soixante-dix hommes, et parmi la communauté cinquante mille hommes.'<sup>9</sup><i class="footnote">Un autre avis est que ce chiffre comprend également le nombre de Philistins qui furent tués suite à leur irrévérence envers l'Arche. </i> Nos sages ont cependant dit : 'Soixante-dix hommes, dont chacun était égal à cinquante mille, ou cinquante mille hommes dont chacun était égal aux soixante-dix du Sanhédrin.'<sup>10</sup><i class="footnote">Masehet Sotah 35b.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

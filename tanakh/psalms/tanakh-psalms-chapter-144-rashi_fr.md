@@ -33,7 +33,7 @@
 <b>Nos fils sont comme des jeunes pousses</b> qui n'ont pas de défaut, tant ils sont purs de tout péché. (J'ai trouvé.)
 <b>Générés dans leur jeunesse</b> avec ce bon renom, qu'ils sont comme des jeunes arbres dans leur jeunesse, poussant toute leur vie ; et cette louange ne peut être justifiée que dans la génération d'Ezéchias.
 <b>Nos filles</b> sont de haute et belle stature comme les pierres angulaires d'une maison en pierre, dans laquelle les pierres angulaires sont placées exactement l'une en face de l'autre, et elle monte vers le haut jusqu'à ce que les coins soient égaux.
-<b>Valorisées comme la forme du Temple</b> Louées par ceux qui les voient et les comparent à la forme de la hauteur du Temple. Nos rabbins, cependant, ont expliqué : <b>Nos filles sont comme des coins</b> Pleines de désir comme les coins de l'autel sont pleins de sang, mais elles ne sont intimes qu'avec leurs maris.
+<b>Valorisées comme la forme du Temple</b> Louées par ceux qui les voient et les comparent à la forme de la hauteur du Temple. Nos sages, cependant, ont expliqué : <b>Nos filles sont comme des coins</b> Pleines de désir comme les coins de l'autel sont pleins de sang, mais elles ne sont intimes qu'avec leurs maris.
 
 ### passuk 13
 <b>Nos coins sont pleins</b> Les coins de nos entrepôts sont pleins de bonté.

@@ -67,7 +67,7 @@
 <b>Un vêtement usé par un jour de froid</b> Heb.  מעדה בגד", synonyme de (Isa. 64:5) : "בגד עדים, un vêtement jeté, un vêtement usé qui est apte à être enlevé puisqu'il est usé, comme nous traduisons en araméen "ויסר" (Ex. 7:24) par  ויעדי, et Il enlèvera. Voici son interprétation : Un vêtement usé par un jour de froid est comme du vinaigre sur de la craie. <b>Craie</b> Héb.  נתר, une sorte de terre molle, comme notre terre qu'on appelle creide, qu'on taillait et dont on faisait des récipients, et si du vinaigre tombe dessus, [la terre] est dissoute et ruinée. Ainsi... <b>est celui qui chante des chansons à un cœur brisé</b> [lit. sur un mauvais cœur.Celui-là] ressemble aux deux. Maintenant, qu'est-ce que celui qui chante des chansons ? C'est celui qui enseigne la Torah à un étudiant méchant, qui n'a aucune intention dans son cœur de l'accomplir.
 
 ### passuk 21
-<b>Si ton ennemi a faim</b> [à expliquer] selon son sens apparent. Nos rabbins, cependant, l'ont expliqué comme faisant référence au mauvais penchant. S'il a faim et te demande de le rassasier de péchés, attire-toi dans la salle d'étude et donne-lui le pain de la Torah, et de même, donne-lui l'eau de la Torah à boire.
+<b>Si ton ennemi a faim</b> [à expliquer] selon son sens apparent. Nos sages, cependant, l'ont expliqué comme faisant référence au mauvais penchant. S'il a faim et te demande de le rassasier de péchés, attire-toi dans la salle d'étude et donne-lui le pain de la Torah, et de même, donne-lui l'eau de la Torah à boire.
 
 ### passuk 22
 <b>Pour...des charbons</b> ils sont pour lui, que vous écopez du feu pour les entasser sur sa tête.

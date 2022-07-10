@@ -39,7 +39,7 @@ La Gemara cherche a clarifier la mishna : <b>A quel</b> cas de la mishna cette <
 La Guemara clarifie davantage : <b>Quel</b> est le sens de la declaration de Shmuel selon laquelle ce <i>halakha</i> fait reference <b>a la premiere clause</b> de la mishna ? Il se refere <b>a la derniere</b> partie <b>de la premiere clause :</b> Le creancier dit : <b>Je t'ai prete une <i>sela</i> sur</b> la base de cette garantie <b>et elle valait un shekel. Et l'autre</b> individu, le debiteur, <b>dit : Ce n'est pas</b> le cas ; <b>au contraire, tu m'as prete une <i>sela</i> sur</b> la base de cette garantie <b>et</b> la garantie <b>vallait trois dinars.</b> Ici, la <i>halakha</i> est que le debiteur est <b>oblige</b> de preter serment. Fondamentalement, l'obligation de preter <b>le serment est celle de l'emprunteur,</b> car c'est lui qui repond a la demande du creancier par un aveu partiel. <b>Mais les Sages ont dit : Que le creancier prete</b> le <b>serment</b> pour etayer sa demande, <b>de peur que cette</b> partie, le debiteur, <b>prete serment et que l'autre</b> partie, le creancier, <b>produise le depot.</b>
 
 ### Partie 14
-Apres avoir explique cette mishna du tractate <i>Shevuot</i>, la Gemara analyse son lien avec la declaration de Rav Huna : <b>Mais si</b>
+Apres avoir explique cette mishna du traité <i>Shevuot</i>, la Gemara analyse son lien avec la declaration de Rav Huna : <b>Mais si</b>
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

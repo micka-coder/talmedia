@@ -45,7 +45,7 @@ La Gemara repond : <b>Ne dites pas</b> que Shmuel juge l'animal casher si l'entr
 La Guemara demande : <b>Mais est-ce que Rabba bar bar Hana ne dit pas</b> que <b>Shmuel dit : <i>Simanim</i> qui ont ete detaches dans leur majorite</b> rendent l'animal <b>a <i>tereifa</i> ? Rav Sheisha, fils de Rav Idi, dit : Cette</b> affirmation de Shmuel, selon laquelle l'animal est cachere meme si les <i>simanim</i> sont detaches en majorite, ne s'applique qu'a un cas dans <b>lequel</b> l'entree du gosier <b>a ete pelee</b> de la chair de la machoire, de sorte que les tissus relies sont concentres dans une seule zone. Dans un tel cas, l'animal pourrait se retablir. <b>La,</b> ou Shmuel juge que l'animal est un <i>tereifa</i>, il fait reference a un cas dans <b>lequel</b> les <i>simanim</i> <b>ont ete</b> separes de force <b>de la machoire [<i>deippruk ipprukei</i>]</b> et ne sont relies que par quelques morceaux discontinus de chair. Dans un tel cas, l'animal ne peut pas se retablir.
 
 ### Partie 16
-§ La mishna declare : <b>Ou</b> un animal avec <b>une trachee coupee,</b> coupee dans sa largeur, est un <i>tereifa</i>. A ce propos, les Sages ont <b>enseigne : De combien</b> faut-il que <b>la trachee</b> soit <b>coupee</b> pour que l'animal soit un <i>tereifa</i> ? <b>Dans sa majorite. Et de combien est sa majorite ? Le Rav dit :</b>
+§ La mishna declare : <b>Ou</b> un animal avec <b>une trachee coupee,</b> coupee dans sa largeur, est un <i>tereifa</i>. A ce propos, les Sages ont <b>enseigne : De combien</b> faut-il que <b>la trachee</b> soit <b>coupee</b> pour que l'animal soit un <i>tereifa</i> ? <b>Dans sa majorite. Et de combien est sa majorite ? Rav dit :</b>
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

@@ -41,7 +41,7 @@
 <b>et il les laissa dans les villes de chars</b> Il laissa une partie de ces cavaliers et de ces chars dans les villes de chars ; comme les chars du roi s'y trouvaient, ces villes furent appelées les villes de chars, et il en laissa une partie avec lui à Jérusalem.
 
 ### passuk 15
-<b>Comme des pierres</b> En raison de l'abondance d'argent et d'or qu'il avait, il n'était pas particulier à distribuer l'argent et l'or dans toute la ville pour fabriquer des tables et des chaises. Nos rabbins ont dit (<i>Ecc. Rabbah</i> 2:3) : Comme des pierres de dix ou huit coudées : de même qu'il taillait les pierres, il taillait l'argent.
+<b>Comme des pierres</b> En raison de l'abondance d'argent et d'or qu'il avait, il n'était pas particulier à distribuer l'argent et l'or dans toute la ville pour fabriquer des tables et des chaises. Nos sages ont dit (<i>Ecc. Rabbah</i> 2:3) : Comme des pierres de dix ou huit coudées : de même qu'il taillait les pierres, il taillait l'argent.
 
 ### passuk 16
 <b>Et la source de chevaux de Salomon'</b> c'est-à-dire que toute la source de chevaux de Salomon provenait exclusivement d'Égypte.

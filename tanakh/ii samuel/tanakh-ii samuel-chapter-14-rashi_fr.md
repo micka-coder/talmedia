@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Yoav a envoyé à Tekoua.</b> Nos rabbins ont dit Parce qu'on y trouve de l'huile d'olive, on y trouve donc de la sagesse.</sup>1</sup><i class="footnote">Menochos 85a.</i>
+<b>Yoav a envoyé à Tekoua.</b> Nos sages ont dit Parce qu'on y trouve de l'huile d'olive, on y trouve donc de la sagesse.</sup>1</sup><i class="footnote">Menochos 85a.</i>
 
 ### passuk 3
 

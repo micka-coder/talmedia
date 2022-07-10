@@ -48,7 +48,7 @@ La mishna poursuit : Dans le cas d'un <b>tonneau rond brise et bouche avec de la
 La mishna poursuit : <b>Rabbi Eliezer dit :</b> Mon opinion peut etre deduite <b><i>a fortiori</i> : Si</b> un tonneau ou toute autre separation entre un objet et un cadavre sous le meme toit <b>protege</b> l'objet <b>de devenir impur, meme si l'impurete communiquee par <b>un cadavre</b> est <b>severe</b> en ce qu'elle dure sept jours, <b>Ne devrait-on pas</b> une cloison <b>proteger</b> les aliments <b>dans</b> l'espace aerien d'un <b>recipient en terre</b> de l'impurete communiquee par la carcasse d'un animal rampant, <b>qui est douce</b> en comparaison ?
 
 ### Partie 17
-La mishna continue : Les rabbins lui <b>dirent :</b> Ta deduction n'est <b>pas</b> correcte.
+La mishna continue : Les sages lui <b>dirent :</b> Ta deduction n'est <b>pas</b> correcte.
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

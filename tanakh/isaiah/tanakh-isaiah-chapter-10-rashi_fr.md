@@ -82,7 +82,7 @@
 
 ### passuk 19
 <b>Et les arbres restants de sa forêt</b> Les survivants de ses armées.
-<b>Ils seront peu nombreux</b> [lit. un nombre, c'est-à-dire] faciles à compter, car ils seront peu nombreux, et un jeune garçon pourra les écrire, et nos rabbins ont dit qu'il en restait dix, car il n'y a pas de petit enfant qui ne puisse écrire un petit "yud.'
+<b>Ils seront peu nombreux</b> [lit. un nombre, c'est-à-dire] faciles à compter, car ils seront peu nombreux, et un jeune garçon pourra les écrire, et nos sages ont dit qu'il en restait dix, car il n'y a pas de petit enfant qui ne puisse écrire un petit "yud.'
 
 ### passuk 20
 <b>Pour s'appuyer sur celui qui les a frappés</b> [c'est-à-dire] pour s'appuyer sur les rois d'Égypte, qui ont été les premiers à les opprimer.
@@ -114,7 +114,7 @@
 <b>Et Il l'emportera</b> Et Il l'emportera loin du monde, de la même manière qu'Il a emporté l'Égypte.
 
 ### passuk 27
-<b>et le joug sera détruit</b> Le joug de Sennacherib sera détruit à cause d'Ezéchias, qui était doux pour sa génération, comme l'huile. Nos rabbins, cependant, expliquent [que le joug de Sennacherib sera détruit] à cause de l'huile d'Ezéchias qui brûlait dans les synagogues et dans les salles d'étude, car il les persuadait de s'engager dans la Torah, selon ce qui est écrit (Proverbes 25 : 1) : " Ce que les hommes d'Ezéchias ont renforcé ".
+<b>et le joug sera détruit</b> Le joug de Sennacherib sera détruit à cause d'Ezéchias, qui était doux pour sa génération, comme l'huile. Nos sages, cependant, expliquent [que le joug de Sennacherib sera détruit] à cause de l'huile d'Ezéchias qui brûlait dans les synagogues et dans les salles d'étude, car il les persuadait de s'engager dans la Torah, selon ce qui est écrit (Proverbes 25 : 1) : " Ce que les hommes d'Ezéchias ont renforcé ".
 
 ### passuk 28
 <b>Il est venu sur Aiath</b> Il poursuit en énumérant les voyages que Sennacherib a parcourus lorsqu'il est venu sur les villes de Juda, pour venir à Jérusalem, le jour de sa chute : Aiath, Migron, Michmas, Rama, Gib'ath Saul, Bath-galim, Laishah, Anathoth, Madmenah et Gebim. Ce sont tous des lieux.
@@ -128,7 +128,7 @@
 <b>Écoute, Laishah</b> au son du shofar et fuis, et ainsi, Aniah Anathoth.
 
 ### passuk 31
-<b>Rassemblés</b> Rassemblés pour fuir. Nos rabbins, cependant, ont expliqué, "Elevez votre voix, Bath-Gallim," et le verset entier d'une manière différente dans la Aggadah de "Chelek," et ils ont fixé le nombre de voyages à dix. Mais Jonathan les a tous rendus comme des noms de lieux.
+<b>Rassemblés</b> Rassemblés pour fuir. Nos sages, cependant, ont expliqué, "Elevez votre voix, Bath-Gallim," et le verset entier d'une manière différente dans la Aggadah de "Chelek," et ils ont fixé le nombre de voyages à dix. Mais Jonathan les a tous rendus comme des noms de lieux.
 
 ### passuk 32
 <b>Aujourd'hui encore, [il a l'intention] de se tenir à Nob</b> Tout ce chemin, il l'a parcouru en hâte, afin de se tenir à Nob pendant qu'il fait encore jour, car ses astrologues lui ont dit : Si tu l'attaques aujourd'hui, tu la conquerras. Et, quand il fut à Nob et qu'il vit que Jérusalem était petite, il ne tint pas compte des paroles de ses astrologues et commença à agiter la main avec arrogance : Pour une ville comme celle-ci, ai-je rassemblé toutes ces armées ? Passez la nuit ici, et demain, chacun y jettera sa pierre.

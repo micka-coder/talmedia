@@ -107,14 +107,14 @@
 <b>Ils se sont plaints.</b> [וַיִּלֹּנוּ] est à la forme <i>nifal</i> : Onkelos, aussi, le traduit à la forme <i>nifal</i> :  וְאִתְרָעָמוּ  . (En araméen, le  אִתְפְּעֵל  représente l'hébreu  נִפְעַל  .) C'est la manière des expressions de plainte de retourner l'énoncé à la personne [qui se plaint], [ex. ex.]  מִתְלוֹנֵן  (se plaindre),  מִתְרוֹעֵם  (rancune) et il n'est pas dit sous la forme de  לוֹנֵן . Le Français l'exprime aussi de cette façon : "<i>decomplaisant se</i>." L'action se retourne contre lui par l'emploi de l'expression "<i>se.</i>". 
 
 ### passuk 25
-<b>C'est là qu'Il a placé devant eux.</b> A Marah, Il leur a donné quelques sections de la Torah afin qu'ils s'occupent de [les étudier] : [les sections traitant] du Chabbat la <i>Parah Adumah</i> (la génisse rouge) et l'administration de la justice.
+<b>C'est là qu'Il a placé devant eux.</b> A Marah, Il leur a donné quelques sections de la Torah afin qu'ils s'occupent de [les étudier] : [les sections traitant] du Chabbat la <i>Parah Adumah</i> (la vache rousse) et l'administration de la justice.
 <b>Et là, Il les a mis à l'épreuve. (lit. Lui).</b> [Signification :] la nation, et il vit leur entêtement, car ils ne consultaient pas Moshé avec un langage respectueux, [c'est-à-dire] "Prie la compassion pour nous afin que nous ayons de l'eau à boire", mais, au contraire, ils se plaignaient. 
 
 ### passuk 26
 <b>Si vous obéissez avec vigilance.</b> [שָׁמוֹעַ תִּשְׁמַע] implique l'acceptation  qu'ils acceptent sur eux-mêmes [les commandements de Dieu].
 <b>Faire.</b> [Signification :] l'accomplissement effectif [des <i>mitzvot</i>].
 <b>Donner l'oreille.</b> Incliner les oreilles afin d'être exact dans leur [accomplissement].
-<b>Toutes ses lois.</b> Les choses qui sont uniquement un décret du roi sans raison [donnée], où le mauvais penchant y trouve à redire : [en disant :] "Quel est le sens de leur interdiction - pourquoi les a-t-on interdites ?" Par exemple : [l'interdiction de :] porter le <i>shatnez</i> et de manger du porc [et la <i>mitzvah</i> de] la <i>Parah Adumah</i> (génisse rouge), et leurs semblables. 
+<b>Toutes ses lois.</b> Les choses qui sont uniquement un décret du roi sans raison [donnée], où le mauvais penchant y trouve à redire : [en disant :] "Quel est le sens de leur interdiction - pourquoi les a-t-on interdites ?" Par exemple : [l'interdiction de :] porter le <i>shatnez</i> et de manger du porc [et la <i>mitzvah</i> de] la <i>Parah Adumah</i> (vache rousse), et leurs semblables. 
 <b>Je n'amènerai pas sur vous.</b> [Signification :] et si je l'amène, ce sera comme si elle n'avait pas été amenée - "car je suis Hachem, qui vous guérit".</b> Telle est son explication midrashique. Mais son explication simple est : "Car je suis Hachem, qui vous guérit, et vous enseigne la Torah et les <i>mitzvot</i> afin que vous soyez sauvés d'elles (les maladies)" : " Ne mange pas cette chose en particulier de peur qu'elle ne t'amène à la maladie ; ceci représente l'écoute des mitzvot. c'est ce que l'on veut dire quand on dit . "Il (l'obéissance aux <i>mitzvot</i>) sera salutaire pour ton nombril." 
 
 ### passuk 27
@@ -231,14 +231,14 @@
 <b>Ils se sont plaints.</b> [--' -] est à la forme <i>nifal</i> : Onkelos, aussi, le traduit à la forme <i>nifal</i> : -'- . (En araméen, le ' représente l'hébreu  '- .) C'est la manière des expressions de plainte de retourner l'énoncé à la personne [qui se plaint], [ex. ex.] '-  (se plaindre), '- (rancune) et il n'est pas dit sous la forme de - , - . Le Français l'exprime aussi de cette façon : "<i>decomplaisant se</i>." L'action se retourne contre lui par l'emploi de l'expression "<i>se.</i>". 
 
 ### passuk 25
-<b>C'est là qu'Il a placé devant eux.</b> A Marah, Il leur a donné quelques sections de la Torah afin qu'ils s'occupent de [les étudier] : [les sections traitant] du Chabbat la <i>Parah Adumah</i> (la génisse rouge) et l'administration de la justice.
+<b>C'est là qu'Il a placé devant eux.</b> A Marah, Il leur a donné quelques sections de la Torah afin qu'ils s'occupent de [les étudier] : [les sections traitant] du Chabbat la <i>Parah Adumah</i> (la vache rousse) et l'administration de la justice.
 <b>Et là, Il les a mis à l'épreuve. (lit. Lui).</b> [Signification :] la nation, et il vit leur entêtement, car ils ne consultaient pas Moshé avec un langage respectueux, [c'est-à-dire] "Prie la compassion pour nous afin que nous ayons de l'eau à boire", mais, au contraire, ils se plaignaient. 
 
 ### passuk 26
 <b>Si vous obéissez avec vigilance.</b> [-- '-] implique l'acceptation  qu'ils acceptent sur eux-mêmes [les commandements de Dieu].
 <b>Faire.</b> [Signification :] l'accomplissement effectif [des <i>mitzvot</i>].
 <b>Donner l'oreille.</b> Incliner les oreilles afin d'être exact dans leur [accomplissement].
-<b>Toutes ses lois.</b> Les choses qui sont uniquement un décret du roi sans raison [donnée], où le mauvais penchant y trouve à redire : [en disant :] "Quel est le sens de leur interdiction - pourquoi les a-t-on interdites ?" Par exemple : [l'interdiction de :] porter le <i>shatnez</i> et de manger du porc [et la <i>mitzvah</i> de] la <i>Parah Adumah</i> (génisse rouge), et leurs semblables. 
+<b>Toutes ses lois.</b> Les choses qui sont uniquement un décret du roi sans raison [donnée], où le mauvais penchant y trouve à redire : [en disant :] "Quel est le sens de leur interdiction - pourquoi les a-t-on interdites ?" Par exemple : [l'interdiction de :] porter le <i>shatnez</i> et de manger du porc [et la <i>mitzvah</i> de] la <i>Parah Adumah</i> (vache rousse), et leurs semblables. 
 <b>Je n'amènerai pas sur vous.</b> [Signification :] et si je l'amène, ce sera comme si elle n'avait pas été amenée - "car je suis Hachem, qui vous guérit".</b> Telle est son explication midrashique. Mais son explication simple est : "Car je suis Hachem, qui vous guérit, et vous enseigne la Torah et les <i>mitzvot</i> afin que vous soyez sauvés d'elles (les maladies)" : " Ne mange pas cette chose en particulier de peur qu'elle ne t'amène à la maladie ; ceci représente l'écoute des mitzvot. c'est ce que l'on veut dire quand on dit . "Il (l'obéissance aux <i>mitzvot</i>) sera salutaire pour ton nombril." 
 
 ### passuk 27

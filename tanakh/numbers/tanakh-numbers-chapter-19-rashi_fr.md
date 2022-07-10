@@ -48,7 +48,7 @@
 <b>Fixé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le mot désigne l'attachement en arabe. De même, "J'ai été uni par des liens divins", j'ai été uni à ma sur. 
 
 ### passuk 16
-<b>Dans un champ ouvert.</b> Les rabbins extrapolent, cela inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le "<i>gollel</i>" et le "<i>dofek.</i>" Son sens clair est que dans le champ ouvert, où il n'y a pas de tente, le cadavre transmet la souillure par le toucher. 
+<b>Dans un champ ouvert.</b> Les sages extrapolent, cela inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>le "<i>gollel</i>" et le "<i>dofek.</i>" Son sens clair est que dans le champ ouvert, où il n'y a pas de tente, le cadavre transmet la souillure par le toucher. 
 
 ### passuk 17
 
@@ -61,7 +61,7 @@
 <b>Une personne qui est devenue rituellement impure, etc.</b> Si on a dit "<i>Mikdash</i>", <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pourquoi a-t-on dit "<i>Mishkon</i>".... .etc., comme indiqué dans le tractat Shevuos. 
 
 ### passuk 21
-<b>La personne qui asperge les eaux d'arrosage. </b> Les rabbins disent <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que l'asperseur est en réalité pur, et que cela enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que celui qui porte l'eau purificatrice devient extrêmement souillé, au point de contaminer les vêtements qu'il porte, contrairement à celui qui touche [l'eau]. La raison pour laquelle on l'exprime par "l'asperseur" est d'enseigner qu'elles (les eaux) ne souillent pas à moins qu'elles ne contiennent une quantité suffisante pour l'aspersion. 
+<b>La personne qui asperge les eaux d'arrosage. </b> Les sages disent <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que l'asperseur est en réalité pur, et que cela enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que celui qui porte l'eau purificatrice devient extrêmement souillé, au point de contaminer les vêtements qu'il porte, contrairement à celui qui touche [l'eau]. La raison pour laquelle on l'exprime par "l'asperseur" est d'enseigner qu'elles (les eaux) ne souillent pas à moins qu'elles ne contiennent une quantité suffisante pour l'aspersion. 
 <b>Celui qui touche, etc. restera impur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais ses vêtements ne nécessitent pas de lavage rituel. 
 
 ### passuk 22

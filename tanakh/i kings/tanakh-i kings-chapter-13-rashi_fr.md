@@ -49,7 +49,7 @@
 
 ### passuk 20
 <b>Au prophète.</b> Le faux prophète.
-<b>Ce qui l'a fait revenir.</b> A l'homme de Dieu. De là, ils [les rabbins] ont déduit que [offrir] un rafraîchissement est une grande chose, car cela fait reposer la Présence divine sur les prophètes du Baal.<sup>8</sup><i class="footnote">Le simple acte d'hospitalité peut avoir de grandes et profondes conséquences. Voir Maseches Sanhedrin 103b-104a.</i>
+<b>Ce qui l'a fait revenir.</b> A l'homme de Dieu. De là, ils [les sages] ont déduit que [offrir] un rafraîchissement est une grande chose, car cela fait reposer la Présence divine sur les prophètes du Baal.<sup>8</sup><i class="footnote">Le simple acte d'hospitalité peut avoir de grandes et profondes conséquences. Voir Maseches Sanhedrin 103b-104a.</i>
 
 ### passuk 21
 <b>Et il appela.</b> Le vieux prophète appela l'homme de Dieu.<sup>9</sup><i class="footnote">Alternativement, et "il prophétisa sur le prophète de Dieu.Targum Yonoson</i>
@@ -80,7 +80,7 @@
 <b>Car [le message] s'accomplira certainement, etc.</b> Peut-être que ses os sauveront mes os.</sup></sup><i class="footnote">C'est en effet ce qui s'est passé. Voir ci-dessous, II Melahim 23:18.</i>
 
 ### passuk 33
-<b>[Même] après tout ce qui s'est passé.</b> Qu'il ait vu ce prodige et entendu les paroles du prophète, et que, néanmoins, il ne se soit pas repenti. Et nos rabbins expliquent : "Après que le Saint, béni soit-Il, l'ait saisi par son vêtement et lui ait dit, "Repens-toi, et moi, toi et le fils de Yishay, nous nous promènerons dans le jardin d'Eden.'"<sup>12</sup><i class="footnote">Voir Maseches Sanhedrin 102a. La conversation se poursuivit ainsi : " Yerovom dit : "Qui marchera devant ? ' [et la réponse fut :] "Le fils de Yishy.' [Yerovom répondit :] "Si c'est le cas, je ne veux pas en faire partie.'" </i>
+<b>[Même] après tout ce qui s'est passé.</b> Qu'il ait vu ce prodige et entendu les paroles du prophète, et que, néanmoins, il ne se soit pas repenti. Et nos sages expliquent : "Après que le Saint, béni soit-Il, l'ait saisi par son vêtement et lui ait dit, "Repens-toi, et moi, toi et le fils de Yishay, nous nous promènerons dans le jardin d'Eden.'"<sup>12</sup><i class="footnote">Voir Maseches Sanhedrin 102a. La conversation se poursuivit ainsi : " Yerovom dit : "Qui marchera devant ? ' [et la réponse fut :] "Le fils de Yishy.' [Yerovom répondit :] "Si c'est le cas, je ne veux pas en faire partie.'" </i>
 
 >Crédit : sefaris
 >License : CC-BY

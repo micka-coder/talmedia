@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Et cachez-vous.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Regarde tes yeux comme si tu ne le remarquais pas.
-<b>Vous ne pouvez pas observer... et vous dissimuler.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous ne pouvez pas l'observer de manière à vous dissimuler. C'est son sens ordinaire. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les rabbins, cependant, commentent : Il arrive que l'on se dissimule, etc. 
+<b>Vous ne pouvez pas observer... et vous dissimuler.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous ne pouvez pas l'observer de manière à vous dissimuler. C'est son sens ordinaire. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les sages, cependant, commentent : Il arrive que l'on se dissimule, etc. 
 
 ### passuk 2
 <b>Jusqu'à ce que ton frère cherche.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> Serait-il raisonnable de le lui rendre avant qu'il ne le cherche ? Mais, plutôt, renseignez-vous sur lui, de peur qu'il ne soit un escroc. 
@@ -40,7 +40,7 @@
 <b>Tu ne peux pas labourer avec un boeuf et un âne.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela s'applique, aussi bien, à n'importe quelles deux espèces dans l'univers, et s'applique, aussi bien, à les mener ensemble, attelés en paire, pour transporter n'importe quel type de fardeau. 
 
 ### passuk 11
-<b>Un mélange de fils.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le sens est "un mélange". Les rabbins interprètent, peigné, filé et tissé. 
+<b>Un mélange de fils.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le sens est "un mélange". Les sages interprètent, peigné, filé et tissé. 
 
 ### passuk 12
 <b>Fais-toi des fils pendants.</b> Même du mélange  כִּלְאַיִם  - c'est pourquoi l'Écriture les place l'un à côté de l'autre.

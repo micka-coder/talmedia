@@ -18,7 +18,7 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Yehuda</b> répond-il à cette pr
 Nous avons appris dans la mishna : <b>La mesure</b> qui détermine la responsabilité <b>pour celui qui blanchit</b> et pour des travaux interdits similaires est <b>la pleine largeur d'un double <i>sit</i>. Rav Yosef démontrait</b> la largeur d'un double <i>sit</i> en indiquant la distance entre l'index et le majeur et en ordonnant aux spectateurs de <b>doubler</b> la mesure. <b>Rabbi Ḥiyya bar Ami ferait la démonstration</b> d'une manière <b>simple</b>, car il a calculé que la distance entre le pouce et l'index est égale à une double <i>sit</i>.
 
 ### Partie 7
-<strong>MISHNA:</strong> <b>Rabbi Yehuda dit : Celui qui piège un oiseau dans un placard</b> ou une cage, <b>et</b> celui qui piège <b>un cerf dans une maison est responsable. Les rabbins disent :</b> On est responsable pour avoir piégé <b>un oiseau dans un placard</b>.
+<strong>MISHNA:</strong> <b>Rabbi Yehuda dit : Celui qui piège un oiseau dans un placard</b> ou une cage, <b>et</b> celui qui piège <b>un cerf dans une maison est responsable. Les sages disent :</b> On est responsable pour avoir piégé <b>un oiseau dans un placard</b>.
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

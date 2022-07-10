@@ -6,14 +6,14 @@
 ### passuk 3
 <b>Gros.</b> Grossi dans l'étable.
 <b>Pâté.</b> [i.e.] sur l'herbe.
-<b>Et de la volaille engraissée.</b> Parmi nos rabbins, il y a ceux qui disent [qu'il s'agit] de coqs qui ont été engraissés.<sup>1</sup><i class="footnote">Voir Maseches Bava Metzia 86b.</i>
+<b>Et de la volaille engraissée.</b> Parmi nos sages, il y a ceux qui disent [qu'il s'agit] de coqs qui ont été engraissés.<sup>1</sup><i class="footnote">Voir Maseches Bava Metzia 86b.</i>
 
 ### passuk 4
 
 ### passuk 5
 
 ### passuk 6
-<b>Quarante mille écuries de chevaux.</b> Dans le Divrei Hayomim, il est indiqué : "quatre mille [écuries de chevaux]".</sup>2</sup><i class="footnote">II Divrei Hayomim 9:25. </i> Nos rabbins ont expliqué qu'il y avait quarante mille écuries et dans chacune d'elles quatre mille cloisons, ou qu'il y avait quatre mille écuries et dans chacune d'elles quarante mille cloisons.<sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 21b.</i>
+<b>Quarante mille écuries de chevaux.</b> Dans le Divrei Hayomim, il est indiqué : "quatre mille [écuries de chevaux]".</sup>2</sup><i class="footnote">II Divrei Hayomim 9:25. </i> Nos sages ont expliqué qu'il y avait quarante mille écuries et dans chacune d'elles quatre mille cloisons, ou qu'il y avait quatre mille écuries et dans chacune d'elles quarante mille cloisons.<sup>3</sup><i class="footnote">Voir Maseches Sanhedrin 21b.</i>
 
 ### passuk 7
 <b>Ils n'ont rien omis.</b> Même [les fruits et légumes] de la saison d'été, de la saison d'hiver.

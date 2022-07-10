@@ -27,7 +27,7 @@ Le <i>baraita</i> repond en developpant l'analogie verbale qu'il a mentionnee pr
 Elle est derivee de la phrase : <b>"Elle est ta mere"</b> (Levitique 18:7), que <b>vous le rendez responsable en raison</b> de l'interdiction d'avoir des rapports sexuels avec <b>sa mere, mais vous ne le rendez pas responsable en raison</b> de l'interdiction d'avoir des rapports sexuels avec la femme de son <b>pere.</b> La <i>baraita</i> s'arrete ici. Puisque les <i>halakhot</i> du recueil de <i>baraitot</i> ou apparait cette <i>baraita</i>, <i>Torat Kohanim</i>, sont conformes aux opinions de Rabbi Yehuda, la <i>baraita</i> soutient l'opinion de Rava, qui explique l'opinion de Rabbi Yehuda de cette maniere.
 
 ### Partie 10
-La Guemara discute le <i>baraita</i>, en demandant : <b>Et</b> comment les rabbins,</b> qui ne sont pas d'accord avec Rabbi Yehuda, interpretent-ils la phrase <b>"la nudite de ton pere" ? </b> La Guemara repond : Ils soutiennent que cette phrase est signifiee <b>litteralement,</b> c'est-a-dire qu'elle fait reference a des rapports homosexuels. Ils n'acceptent pas l'analogie verbale a partir de laquelle Rabbi Yehuda deduit que la reference est aux rapports sexuels avec la femme de son pere.
+La Guemara discute le <i>baraita</i>, en demandant : <b>Et</b> comment les sages,</b> qui ne sont pas d'accord avec Rabbi Yehuda, interpretent-ils la phrase <b>"la nudite de ton pere" ? </b> La Guemara repond : Ils soutiennent que cette phrase est signifiee <b>litteralement,</b> c'est-a-dire qu'elle fait reference a des rapports homosexuels. Ils n'acceptent pas l'analogie verbale a partir de laquelle Rabbi Yehuda deduit que la reference est aux rapports sexuels avec la femme de son pere.
 
 ### Partie 11
 La Guemara demande : Est-ce que <b>cette interdiction</b> de rapports homosexuels avec son pere n'est pas <b>derivee</b> du verset : <b>"Et</b> tu ne coucheras pas <b>avec un male</b> comme avec une femme ; c'est une abomination" (Levitique 18:22) ? La Guemara repond : L'interdiction est enoncee specifiquement a l'egard de son pere afin de <b>le rendre redevable</b> d'apporter <b>deux</b> offrandes de peche pour avoir eu involontairement des rapports sexuels avec son pere.
@@ -51,13 +51,13 @@ La Guemara demande : Est-ce que <b>cette interdiction</b> de rapports homosexuel
 <b>Et</b> les Sages qui fournissent ces deux interpretations de l'avis de Rabbi Yehouda <b>sont en desaccord par rapport</b> a la question qui fait l'objet de <b>la dispute entre Abaye et Rava. </b> Un <b>Sage,</b> lui de la deuxieme interpretation, <b>soutient</b> que <b>on administre une punition</b> sur la base <b>d'une <i>a fortiori</i> <b>deduction.</b> Meme en ce qui concerne une interdiction qui est derivee <i>a fortiori</i>, celui qui la transgresse est responsable. <b>Et</b> un <b>Sage,</b> lui de la premiere interpretation, <b>soutient</b> que <b>on n'administre pas de punition</b> sur la base <b>de</b> une <i>a fortiori</i> <b>inference.</b>
 
 ### Partie 18
-La Gemara demande : <b>Et</b> en ce qui concerne <b>les rabbins,</b> qui ne sont pas d'accord avec l'opinion de Rabbi Yehuda, <b>d'ou tirent-ils</b> <b>l'interdiction de</b> rapports sexuels avec la femme de son <b>pere ?</b> La Guemara repond : <b>Ils la tirent</b> du verset : <b>La nudite de la femme de ton pere, tu ne la decouvriras pas;</b> c'est la nudite de ton pere (Levitique 18:8).
+La Gemara demande : <b>Et</b> en ce qui concerne <b>les sages,</b> qui ne sont pas d'accord avec l'opinion de Rabbi Yehuda, <b>d'ou tirent-ils</b> <b>l'interdiction de</b> rapports sexuels avec la femme de son <b>pere ?</b> La Guemara repond : <b>Ils la tirent</b> du verset : <b>La nudite de la femme de ton pere, tu ne la decouvriras pas;</b> c'est la nudite de ton pere (Levitique 18:8).
 
 ### Partie 19
 La Gemara demande : <b>Et</b> qu'est-ce que <b>Rabbi Yehuda</b> deduit de ce verset, puisqu'il deduit l'interdiction du verset : "La nudité de ton père"¦ tu ne la découvriras pas" ? La Guemara repond : <b>Ce</b> verset <b>est necessaire pour l'interdiction de</b> la femme de <b>son <b>pere apres</b> la <b>mort de son pere;</b> meme si son pere est mort, la femme de son pere lui reste interdite.
 
 ### Partie 20
-La Gemara demande : <b>Et</b> d'ou <b>les rabbins</b> tirent-ils cette <i>halakha</i> ? La Guemara repond : <b>Ce</b> <i>halakha</i> <b>est derive de la derniere clause du verset : "C'est la nudité de ton père."</b>
+La Gemara demande : <b>Et</b> d'ou <b>les sages</b> tirent-ils cette <i>halakha</i> ? La Guemara repond : <b>Ce</b> <i>halakha</i> <b>est derive de la derniere clause du verset : "C'est la nudité de ton père."</b>
 
 ### Partie 21
 La Guemara demande : <b>Et</b> qu'est-ce que <b>Rabbi Yehuda</b> deduit de cette clause ? La Guemara repond : <b>Cette</b> clause <b>est necessaire pour</b> enseigner au <i>halakha</i> que si quelqu'un a des rapports sexuels avec la femme de son pere, <b>on le rend responsable en raison</b> de l'interdiction d'avoir des rapports sexuels avec la femme de son <b>pere, mais on ne le rend pas responsable en raison</b> de l'interdiction d'avoir des rapports sexuels avec <b>une femme mariee.</b>
@@ -69,10 +69,10 @@ La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna : <b>L'ho
 <b>Abaye dit : Il conteste</b> cette decision <b>dans un <i>baraita</i>.</b> Bien qu'il ne soit pas mentionne dans la mishna que Rabbi Yehuda conteste cette decision, il est mentionne dans une source differente.
 
 ### Partie 24
-La Gemara demande : <b>Et</b> quant aux <b>Rabbins, d'ou tirent-ils</b> la punition pour</b> celui qui a des rapports sexuels avec <b>la femme de son pere apres</b> la <b>mort de son pere ? Accorde,</b> selon <b>Rabbi Yehuda, elle est derivee au moyen d'une analogie verbale. Mais d'ou les rabbins,</b> qui n'acceptent pas l'analogie verbale, le derivent-ils ?
+La Gemara demande : <b>Et</b> quant aux <b>Rabbins, d'ou tirent-ils</b> la punition pour</b> celui qui a des rapports sexuels avec <b>la femme de son pere apres</b> la <b>mort de son pere ? Accorde,</b> selon <b>Rabbi Yehuda, elle est derivee au moyen d'une analogie verbale. Mais d'ou les sages,</b> qui n'acceptent pas l'analogie verbale, le derivent-ils ?
 
 ### Partie 25
-La Guemara repond : Les rabbins peuvent <b>vous dire</b> qu'elle est derivee comme suit : En ce qui concerne <b>cette phrase</b>, <b>"Il a decouvert la nudite de son pere", dont Rabbi Yehuda tire une analogie verbale, ils en deduisent la punition pour</b> celui qui a des rapports sexuels avec <b>la femme de son pere apres</b> la <b>mort de son pere.</b>
+La Guemara repond : Les sages peuvent <b>vous dire</b> qu'elle est derivee comme suit : En ce qui concerne <b>cette phrase</b>, <b>"Il a decouvert la nudite de son pere", dont Rabbi Yehuda tire une analogie verbale, ils en deduisent la punition pour</b> celui qui a des rapports sexuels avec <b>la femme de son pere apres</b> la <b>mort de son pere.</b>
 
 ### Partie 26
 La Gemara demande : <b>Et</b> quant aux <b>Rabbins, d'ou tirent-ils</b> <b>la punition pour</b> celui qui a des rapports avec <b>sa mere qui n'est pas la femme de son pere ? Rav Sheisha, fils de Rav Idi, dit : Le verset dit : "Elle est ta mere"</b> (Levitique 18:7). <b>Le verset rend</b> la <i>halakha</i> de <b>sa mere qui n'est pas la femme de son pere comme</b> celle de <b>sa mere qui est la femme de son pere.</b>

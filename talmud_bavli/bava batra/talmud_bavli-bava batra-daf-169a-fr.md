@@ -1,6 +1,6 @@
 
 ### Partie 1
-Le <i>baraita</i> continue : <b>Rabban Shimon ben Gamliel dit :</b> Le tribunal ne peut <b>pas ecrire</b> un document de remplacement <b>meme</b> pour les <b>actes d'achat et de vente</b> de terrains. <b>Et Rabban Shimon ben Gamliel dit egalement :</b> En ce qui concerne <b>celui qui fait don</b> d'une terre <b>a un autre, et</b> le beneficiaire lui <b>retourne l'acte, son don</b> de terre <b>retourne</b> a lui aussi. <b>Mais les rabbins disent : Son don</b> de terre <b>reste</b> en possession du beneficiaire.
+Le <i>baraita</i> continue : <b>Rabban Shimon ben Gamliel dit :</b> Le tribunal ne peut <b>pas ecrire</b> un document de remplacement <b>meme</b> pour les <b>actes d'achat et de vente</b> de terrains. <b>Et Rabban Shimon ben Gamliel dit egalement :</b> En ce qui concerne <b>celui qui fait don</b> d'une terre <b>a un autre, et</b> le beneficiaire lui <b>retourne l'acte, son don</b> de terre <b>retourne</b> a lui aussi. <b>Mais les sages disent : Son don</b> de terre <b>reste</b> en possession du beneficiaire.
 
 ### Partie 2
 La Guemara analyse la <i>baraita</i> : <b>Le maitre dit</b> dans le <i>baraita</i> : En ce qui concerne les actes d'achat et de vente de terrains, le tribunal peut rediger un document de remplacement, <b>excluant la garantie qui</b> etait <b>dans</b> le premier document. <b>Quelle est la raison</b> pour laquelle la garantie ne peut etre ecrite ?
@@ -27,7 +27,7 @@ Ravina repondit : <b>Si c'est le cas,</b> si l'acheteur tente de reprendre posse
 La Gemara demande plus loin : <b>Mais laissons</b> le tribunal <b>rediger un acte de vente correct</b>, qui inclut une garantie, <b>pour cet</b> acheteur, <b>et</b> ensuite <b>laissons</b> le tribunal <b>rediger un recu pour le vendeur,</b> indiquant : <b>Tous les documents qui sont emis concernant</b> l'achat de <b>ce champ ne sont pas valables, a l'exception</b> de celui <b>emis a cette date,</b> en faisant reference au document de remplacement redige par le tribunal. Cela empechera le double encaissement, car si l'acheteur tente d'encaisser sa garantie avec un deuxieme document, le vendeur dejouera cette tentative en montrant ce recu.
 
 ### Partie 10
-<b>Les rabbins ont dit devant Rav Pappa</b> en reponse a cette question, <b>et certains disent</b> qu'il a ete dit <b>devant Rav Ashi : Est-ce a dire</b> que la <i>tanna</i> de la <i>baraita</i> soutient qu'en general le tribunal ne <b>pas ecrire de recu</b> dans de tels cas ?
+<b>Les sages ont dit devant Rav Pappa</b> en reponse a cette question, <b>et certains disent</b> qu'il a ete dit <b>devant Rav Ashi : Est-ce a dire</b> que la <i>tanna</i> de la <i>baraita</i> soutient qu'en general le tribunal ne <b>pas ecrire de recu</b> dans de tels cas ?
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

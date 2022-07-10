@@ -23,7 +23,7 @@
 
 ### passuk 9
 <b>Les désirs des méchants</b> Le méchant Esaü.
-<b>car ils sont constamment hautains</b> Héb.  ירומו סלה", parce qu'ils sont toujours arrogants. Nos rabbins, cependant (Gen. Rabbah 75:9) ont expliqué  זממוֹ  comme une expression d'un mors qui muselle le chameau, et c'est une expression mishnique.
+<b>car ils sont constamment hautains</b> Héb.  ירומו סלה", parce qu'ils sont toujours arrogants. Nos sages, cependant (Gen. Rabbah 75:9) ont expliqué  זממוֹ  comme une expression d'un mors qui muselle le chameau, et c'est une expression mishnique.
 <b>Ne pas sortir</b> Heb.  אל תפק, Ne pas sortir de ses mâchoires.
 
 ### passuk 10

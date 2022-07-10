@@ -63,7 +63,7 @@ La Guemara repond : <b>En fin de compte, est-il un Levite ?</b> Si le pretre est
 En ce qui concerne l'inquietude elle-meme, la Guemara demande : <b>Et au sujet de qui</b> il y a une inquietude ? Qui pourrait penser a tort que le statut du premier pretre est entache ? <b>Si</b> vous dites que la preoccupation concerne <b>ceux qui sont assis</b> dans la synagogue jusqu'a la fin de la lecture de la Torah, ce n'est pas une preoccupation valable, car <b>ils voient</b> qu'il est compte parmi les sept qui doivent lire de la Torah, et donc qu'il doit certainement etre un pretre qualifie. <b>La preoccupation concerne plutot <b>ceux qui partent</b> avant la conclusion de la lecture, et qui ne savent pas qu'il etait compte parmi les sept lecteurs.
 
 ### Partie 22
-<b>Les gens de la Galilee ont envoye</b> une question <b>au rabbin Helbo : Apres eux,</b> le pretre et le levite,
+<b>Les gens de la Galilee ont envoye</b> une question <b>au Rabbi Helbo : Apres eux,</b> le pretre et le levite,
 
 >Credit : William Davidson Edition
 >License : CC-BY-NC

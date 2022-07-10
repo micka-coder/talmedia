@@ -46,7 +46,7 @@ J'ai trouvé : "et toutes ses formes" n'est pas clair.
 <b>Et une telle coudée aussi pour la largeur</b> C'est le circuit.
 <b>Et [de même sur] sa bordure, [allant] d'un empan jusqu'à son bord tout autour</b> Ce sont les cornes, [dont chacune mesurait] un empan à partir de son centre ; et elles mesuraient un empan de chaque côté, totalisant une coudée par une coudée.
 <b>Et de même pour le sommet de l'autel</b> Et avec cette coudée, le sommet de l'autel d'or était mesuré [pour être] une coudée en longueur et une coudée en largeur [formant un] carré. C'est ce qui est expliqué dans Erubin (4a). Dans Menahoth (97b), il est expliqué plus en détail en termes de calcul : La base avait une coudée de hauteur. Elle s'étendait vers le haut d'une coudée, et sa largeur était d'une coudée. La cavité du circuit était en retrait d'une coudée de cinq [centimètres], mais sa hauteur, dont nous avons appris (Middoth 3:1) : " Elle s'étendait vers le haut sur 5 [coudées] et était en retrait d'une coudée " n'était pas [mesurée] avec une coudée de cinq [centimètres].
-<Les cornes, tant dans leur largeur que dans leur hauteur, étaient mesurées avec une coudée de cinq centimètres.
+<b>Les cornes, tant dans leur largeur que dans leur hauteur, étaient mesurées avec une coudée de cinq centimètres.
 
 ### passuk 14
 <b>Et depuis la base sur le sol</b> [Heb.  וּמֵחֵיק הָאָרֶץ. Du "yesod", du sol de la terre.

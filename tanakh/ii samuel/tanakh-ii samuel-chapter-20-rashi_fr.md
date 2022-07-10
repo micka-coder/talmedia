@@ -11,7 +11,7 @@
 <b>Et puis tu seras de retour ici [pour me rencontrer].</b> Après trois jours, sois sûr d'être de retour ici avant moi car il [David] voulait courir après Shevah, le fils de Bichri.
 
 ### passuk 5
-<b>Mais a été retardé au-delà de l'heure prévue.</b> Il a trouvé des rabbins qui avaient commencé à apprendre un tract du Talmud, comme il est dit dans Sanhedrin.<sup>3</sup><i class="footnote"></i>.
+<b>Mais a été retardé au-delà de l'heure prévue.</b> Il a trouvé des sages qui avaient commencé à apprendre un tract du Talmud, comme il est dit dans Sanhedrin.<sup>3</sup><i class="footnote"></i>.
 
 ### passuk 6
 <b>Prenez les serviteurs de votre maître.</b> Maintenant qu'Amosoh, le commandant a été retardé et n'avait pas encore amené les soldats de Yéhouda, vous prenez parmi les hommes de mon entourage et vous le poursuivez.
@@ -74,7 +74,7 @@
 
 ### passuk 26
 <b>Eiroh le Yoiri.</b> Yonoson a traduit : "Eiroh qui fait jaillir la lumière de Tekuah." Et c'est ainsi qu'il est désigné dans ce livre Eiroh ben Eikash de Tekuah. On l'a appelé Yoiri parce qu'il est enseigné dans Menochos,<sup>16</sup><i class="footnote">Menochos 85b.</i> "Tekuah était la première en huile [d'olive]", parce que l'huile d'olive y était répandue, avec laquelle on allume des bougies [dans le Beis Mikdosh].
-<b>Etait un Kokein pour David.</b> Il [David] lui donnait [Eiroh] tous ses cadeaux de Kehunah, c'est ce que nos rabbins ont expliqué.<sup>17</sup><i class="footnote">Eiruvin 63a.</i>L'explication simple du verset est qu'il [David] l'a fait [Eiroh] officier et juge.
+<b>Etait un Kokein pour David.</b> Il [David] lui donnait [Eiroh] tous ses cadeaux de Kehunah, c'est ce que nos sages ont expliqué.<sup>17</sup><i class="footnote">Eiruvin 63a.</i>L'explication simple du verset est qu'il [David] l'a fait [Eiroh] officier et juge.
 
 >Crédit : sefaris
 >Licence : CC-BY

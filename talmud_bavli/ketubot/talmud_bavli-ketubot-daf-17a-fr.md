@@ -18,7 +18,7 @@ En ce qui concerne la mitzva d'apporter de la joie aux maries, la Gemara relate 
 <b>Rabbi Zeira a dit : Sa branche [<i>shotitei</i>] a ete efficace pour le vieil homme,</b> car c'est grace a cette mitzva qu'il a accomplie avec tant d'enthousiasme qu'il a eu le privilege de recevoir cette grande recompense. <b>Et certains disent</b> que Rabbi Zeira a dit : <b>Ses betises [<i>shetutei</i>]</b> ont ete efficaces <b>pour le vieil homme. Et certains disent</b> qu'il a dit : <b>Sa methode [<i>shittatei</i>]</b> etait efficace <b>pour le vieil homme.</b>
 
 ### Partie 7
-<b>Le Rav Aha placait</b> la mariee <b>sur ses epaules</b> et dansait. <b>Les Sages lui ont dit : Quelle est la regle ? Est-il permis a <b>nous de le faire aussi ? Il leur repondit : Si</b> les fiancees sont <b>comparables pour vous a une poutre, tres bien, mais sinon, non,</b> vous ne pouvez pas.
+<b>Rav Aha placait</b> la mariee <b>sur ses epaules</b> et dansait. <b>Les Sages lui ont dit : Quelle est la regle ? Est-il permis a <b>nous de le faire aussi ? Il leur repondit : Si</b> les fiancees sont <b>comparables pour vous a une poutre, tres bien, mais sinon, non,</b> vous ne pouvez pas.
 
 ### Partie 8
 <b>Rabbi Shmuel bar Nahmani a dit</b> que <b>Rabbi Yonatan a dit :</b> Il <b>est permis de regarder le visage d'une mariee</b> tout au long des <b>sept</b> jours de la celebration du mariage, <b>afin de l'attacher a son mari,</b> dont l'appreciation de sa beaute sera ainsi renforcee. La Guemara note : <b>Et la <i>halakha</i> n'est pas conforme a son</b> avis, car il est interdit de regarder toute femme mariee, meme une mariee.

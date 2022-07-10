@@ -33,7 +33,7 @@ La Gemara demande : <b>Si</b> on accepte la suggestion que <b>cette</b> <i>barai
 <b>Mais si vous dites que c'est</b> en accord avec l'opinion de <b>Rabbi Nehemya,</b> et aussi que le statut du mariage d'une sourde-muette est incertain alors que le statut de la mineure est qu'elle est partiellement acquise, il n'y a pas d'explication pourquoi la mineure doit accomplir <i>halitza</i> quand elle atteint la majorite, car <b>il a dit</b> que <b>un acte sexuel invalide l'exempte.</b>
 
 ### Partie 12
-<b>Concluez plutot de</b> ce raisonnement que cette <i>baraita</i> <b>est</b> conforme a l'avis des <b>rabbins.</b> La Guemara conclut : <b>Apprenez-en la lecon.</b>
+<b>Concluez plutot de</b> ce raisonnement que cette <i>baraita</i> <b>est</b> conforme a l'avis des <b>sages.</b> La Guemara conclut : <b>Apprenez-en la lecon.</b>
 
 ### Partie 13
 <b>Rav Ashi a dit : On peut aussi apprendre de la premiere clause</b> de la <i>baraita</i> <b>qu'elle est</b> conforme a <b>l'opinion</b> des <b>Rabbis, car elle enseigne : S'il</b> transgresse et <b>consomme</b> le mariage levirat <b>avec la</b> sœur, qui est <b>sourde-muette, il lui donne un acte de divorce</b> par la suite, <b>et elle est</b> ainsi <b>liberee. Et il n'enseigne pas : S'il consomme</b> le mariage levirat <b>avec la mineure, il lui donne un acte de divorce et elle est liberee.</b> Ceci est vraisemblablement du au fait que la consommation du mariage levirat avec la mineure est un acte sexuel invalide, puisque sa sœur sourde-muette est partiellement mariee au <i>yavam</i>. Meme s'il s'engage dans un rapport sexuel avec elle, elle aura toujours besoin de <i>halitza</i>.

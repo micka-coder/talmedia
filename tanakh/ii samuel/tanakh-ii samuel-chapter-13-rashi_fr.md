@@ -37,7 +37,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Amnon la détestait.</b> Nos rabbins disent qu'elle lui a attaché un cheveu [dans la zone génitale] et lui a causé un organe sectionné.<sup>6</sup><i class="footnote">La personne ainsi blessée n'a pas le droit d'épouser une femme juive, comme le relate Devorim 23:2. Cette interprétation de notre verset se trouve dans Sanhedrin 21a.</i>
+<b>Amnon la détestait.</b> Nos sages disent qu'elle lui a attaché un cheveu [dans la zone génitale] et lui a causé un organe sectionné.<sup>6</sup><i class="footnote">La personne ainsi blessée n'a pas le droit d'épouser une femme juive, comme le relate Devorim 23:2. Cette interprétation de notre verset se trouve dans Sanhedrin 21a.</i>
 
 ### passuk 16
 <b>Ne fais pas cette chose.</b> Ne fais pas cette mauvaise chose de [me] renvoyer qui est pire que l'autre [mauvaise chose] que tu m'as faite. Vous m'avez violée et ensuite vous avez ajouté plus de mal que cela en me renvoyant.

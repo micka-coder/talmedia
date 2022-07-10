@@ -27,7 +27,7 @@ Rav Ḥisda lui <b>dit : </b> Cela ne peut pas être ainsi, <b>car la Torah a-t-
 <b>Au risque de dire : Si</b> les paroles des Sages <b>sont de substance</b> et ont une si grande importance, <b>pourquoi n'ont-elles pas été écrites</b> dans la Torah, donc, <b>le verset dit : "Dans la fabrication de nombreux livres, il n'y a pas de fin,"</b> ce qui signifie qu'il est impossible de mettre entièrement par écrit la Torah orale, car elle est illimitée.
 
 ### Partie 10
-Quelle est la signification des mots : <b>"Et beaucoup d'étude [<i>lahag</i>] est une fatigue de la chair" ? Le Rav Pappa, fils du Rav Aḥa bar Adda, a dit au nom du Rav Aḥa bar Ulla : Ceci enseigne que celui qui se moque [<i>malig</i>] des paroles des Sages sera condamné à l'excrément bouillant,</b> qui résulte de la lassitude de la chair de l'homme.
+Quelle est la signification des mots : <b>"Et beaucoup d'étude [<i>lahag</i>] est une fatigue de la chair" ? Rav Pappa, fils du Rav Aḥa bar Adda, a dit au nom du Rav Aḥa bar Ulla : Ceci enseigne que celui qui se moque [<i>malig</i>] des paroles des Sages sera condamné à l'excrément bouillant,</b> qui résulte de la lassitude de la chair de l'homme.
 
 ### Partie 11
 <b>Rava s'oppose fortement à cette</b> explication : <b>Est-il écrit : Se moquer [<i>la'ag</i>] ? "<i>Lahag</i>" est</b> le mot qui est <b>écrit. Au contraire,</b> le verset doit être compris de manière opposée : <b>Quiconque médite [<i>hogeh</i>] sur eux,</b> les paroles des Sages, <b>expérimente</b> une jouissance comme s'il avait <b>le goût de la viande.</b>

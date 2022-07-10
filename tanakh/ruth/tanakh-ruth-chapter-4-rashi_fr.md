@@ -21,7 +21,7 @@
 ### passuk 7
 <b>Concernant le rachat.</b> Il s'agit d'une vente.
 <b>Et l'échange.</b> Il s'agit d'un échange.
-<b>Un homme enlèverait sa chaussure.</b> C'est un acte d'acquisition, tout comme nous acquérons un titre de propriété avec un foulard à la place d'une chaussure. Et nos rabbins de mémoire bénie ont divergé sur cette question,<sup>7</sup><i class="footnote">Masehet Bava Metzia 47a. </i> quant à savoir qui a donné [la chaussure] à qui. Certains disent que l'on acquiert le titre avec l'ustensile de l'acquéreur, et que Bo'az a donné [sa chaussure] au racheteur, et d'autres disent que l'on acquiert le titre avec l'ustensile du vendeur, et que le racheteur a donné [sa chaussure] à Bo'az. 
+<b>Un homme enlèverait sa chaussure.</b> C'est un acte d'acquisition, tout comme nous acquérons un titre de propriété avec un foulard à la place d'une chaussure. Et nos sages de mémoire bénie ont divergé sur cette question,<sup>7</sup><i class="footnote">Masehet Bava Metzia 47a. </i> quant à savoir qui a donné [la chaussure] à qui. Certains disent que l'on acquiert le titre avec l'ustensile de l'acquéreur, et que Bo'az a donné [sa chaussure] au racheteur, et d'autres disent que l'on acquiert le titre avec l'ustensile du vendeur, et que le racheteur a donné [sa chaussure] à Bo'az. 
 <b>C'était la forme de validation en Yisrael.</b>  תְּעוּדָה " =] la loi du témoignage.
 
 ### passuk 8

@@ -3,7 +3,7 @@
 <b>Diriez-vous</b> la meme chose <b>a l'egard de</b> deux <b>temoins,</b> dans <b>lequel</b> cas le defendeur <b>prete serment a l'egard</b> de la creance <b>qu'il nie,</b> et non a l'egard de la dette sur laquelle ils temoignent ?
 
 ### Partie 2
-<b>Au contraire, Rav Pappa dit :</b> Le Rabbin Hiyyas <i>a fortiori</i> en deduit <b>l'extension d'un serment</b> que le temoignage <b>d'un temoin</b> l'oblige a preter. Une fois qu'un defendeur est oblige de preter serment, le plaignant peut exiger qu'il prete egalement serment en ce qui concerne les autres reclamations qu'il a contre lui.
+<b>Au contraire, Rav Pappa dit :</b> Rabbi Hiyyas <i>a fortiori</i> en deduit <b>l'extension d'un serment</b> que le temoignage <b>d'un temoin</b> l'oblige a preter. Une fois qu'un defendeur est oblige de preter serment, le plaignant peut exiger qu'il prete egalement serment en ce qui concerne les autres reclamations qu'il a contre lui.
 
 ### Partie 3
 La Gemara rejette cette idee : <b>Qu'est-ce qui</b> est remarquable <b>de l'extension d'un serment</b> qui est oblige par le temoignage <b>d'un seul temoin ?</b> Il est remarquable <b>en ce que</b> un <b>serment conduit a</b> un autre <b>serment.</b> L'obligation de preter le second serment n'est pas causee directement par le temoin. <b>Diriez-vous</b> la meme chose <b>dans</b> le cas des <b>temoins, dont le</b> temoignage <b>rend</b> le defendeur <b>responsable</b> de payer <b>une somme d'argent ?</b> Le fait d'engager la responsabilite de payer une partie de la demande ne s'etend pas plus loin et n'engage pas la responsabilite de payer le reste.

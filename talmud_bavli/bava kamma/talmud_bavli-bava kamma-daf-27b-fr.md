@@ -33,7 +33,7 @@ La Gemara demande : <b>Accorde, Shmuel</b> a juge <b>conformement a son opinion 
 Rav Nahman <b>lui a envoye</b> la reponse suivante : <b>A¸¤isda, Hisda, est-ce que tu percois une amende</b> pour humiliation <b>en Babylonie,</b> ou les juges ne sont pas autorises a percevoir des amendes ? <b>Dites-moi comment l'incident lui-meme</b> s'est deroule.
 
 ### Partie 12
-Le Rav Hisda <b>l'a envoye</b> en reponse : Il y a <b>une certaine citerne appartenant a deux</b> personnes dont l'arrangement etait d'alterner son utilisation de sorte <b>que chaque jour l'une d'entre elles y puiserait</b> a tour de role. Il arriva que <b>l'un d'entre eux vint et puisait</b> de l'eau <b>un jour qui n'etait pas son</b> tour. Son coproprietaire lui <b>dit : C'est mon jour</b> de puisage, pas le votre. Son collegue <b>n'a pas fait attention a lui.</b> Celui dont c'etait le tour a donc <b>pris le manche d'une houe</b> et a <b>frappe</b> celui qui lui volait son eau, qui a ensuite intente un proces en dommages et interets.
+Rav Hisda <b>l'a envoye</b> en reponse : Il y a <b>une certaine citerne appartenant a deux</b> personnes dont l'arrangement etait d'alterner son utilisation de sorte <b>que chaque jour l'une d'entre elles y puiserait</b> a tour de role. Il arriva que <b>l'un d'entre eux vint et puisait</b> de l'eau <b>un jour qui n'etait pas son</b> tour. Son coproprietaire lui <b>dit : C'est mon jour</b> de puisage, pas le votre. Son collegue <b>n'a pas fait attention a lui.</b> Celui dont c'etait le tour a donc <b>pris le manche d'une houe</b> et a <b>frappe</b> celui qui lui volait son eau, qui a ensuite intente un proces en dommages et interets.
 
 ### Partie 13
 Rav Nahman <b>lui dit :</b> Dans ce cas, il a eu raison d'agir ainsi, et il <b>aurait du</b> <b>le frapper</b> meme <b>cent fois avec la houe. Meme selon celui qui dit</b> que <b>une personne ne peut pas se faire justice elle-meme</b> mais doit aller au tribunal, dans un cas <b>ou</b> il y aurait <b>une perte</b> impliquee si aucune action immediate n'est prise, <b>une personne peut se faire justice elle-meme</b>.
@@ -48,7 +48,7 @@ C'est <b>comme il a ete dit,</b> que <b>Rav Yehuda dit : Une personne ne peut pa
 <b>Rav Kahana souleve une objection</b> a l'avis du Rav Yehuda en se basant sur une <i>baraita</i> : <b>Ben Bag Bag dit : N'entre pas dans la <b>cour</b> d'une autre personne en secret <b>pour prendre ce qui est</b> legitimement a toi sans permission, de peur que tu n'apparaisses a ses yeux comme un voleur</b> essayant de voler son bien. <b>Par contre, casse-lui les dents,</b> c'est-a-dire prends-le par la force, <b>et dis-lui : Je prends ce qui m'appartient.</b> A l'evidence, on peut se faire justice soi-meme.
 
 ### Partie 17
-Le Rav Yehouda <b>lui dit :</b>
+Rav Yehouda <b>lui dit :</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

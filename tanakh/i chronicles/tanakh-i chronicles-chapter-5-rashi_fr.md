@@ -15,7 +15,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Dont Tillegath Pilneser a exilé</b> Il a précédé Sannecherib, et voici leur séquence : Pul était [roi] lorsque Menahem, fils de Gadi, fut couronné (II Rois 15:19 et suivants), et (ibid. verset 29) : "...aux jours de Pékah, fils de Remaliah, vint Tiglath Pileser, roi d'Assyrie," et aux jours d'Oshea, fils d'Elah, vint Shalmaneser, roi d'Assyrie (ibid. 17:3), et aux jours d'Ezéchias fut Sannecherib (ibid. 18:13), mais nos rabbins ont expliqué (Sanh. 94a) que Pul et tous les autres sont identiques à Sannecherib.
+<b>Dont Tillegath Pilneser a exilé</b> Il a précédé Sannecherib, et voici leur séquence : Pul était [roi] lorsque Menahem, fils de Gadi, fut couronné (II Rois 15:19 et suivants), et (ibid. verset 29) : "...aux jours de Pékah, fils de Remaliah, vint Tiglath Pileser, roi d'Assyrie," et aux jours d'Oshea, fils d'Elah, vint Shalmaneser, roi d'Assyrie (ibid. 17:3), et aux jours d'Ezéchias fut Sannecherib (ibid. 18:13), mais nos sages ont expliqué (Sanh. 94a) que Pul et tous les autres sont identiques à Sannecherib.
 <b>Il était le prince des Rubénites</b> au moment où Tiglath Pileser l'exila.
 
 ### passuk 7

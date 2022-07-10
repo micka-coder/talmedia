@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un chant de David</b> Les rabbins ont dit : Partout où il est dit : " Un chant de David ", il jouait [de son instrument de musique] et ensuite la Shechinah se posait sur lui. C'est un chant pour amener l'esprit saint sur David. Et, partout où il est dit : " De David, un chant ", la Shechinah se reposait sur lui [d'abord] et ensuite il récitait un chant.
+<b>Un chant de David</b> Les sages ont dit : Partout où il est dit : " Un chant de David ", il jouait [de son instrument de musique] et ensuite la Shechinah se posait sur lui. C'est un chant pour amener l'esprit saint sur David. Et, partout où il est dit : " De David, un chant ", la Shechinah se reposait sur lui [d'abord] et ensuite il récitait un chant.
 <b>Le Seigneur est mon berger</b> Dans ce désert où je vais, [donc] je suis confiant que je ne manquerai de rien.
 
 ### passuk 2

@@ -1,6 +1,6 @@
 
 ### Partie 1
-La Gemara repond : <En raison de son esprit vif, il n'a pas analyse soigneusement la mishna.
+La Gemara repond : <b>En raison de son esprit vif, il n'a pas analyse soigneusement la mishna.
 
 ### Partie 2
 <b>Rami bar Hama a souleve un dilemme : </b> En ce qui concerne la revendication d'un <b>pere du</b> defunt et</b> la revendication du <b>frere du defunt, comme</b> les revendications d'<b>Abraham et de Jacob sur les biens d'Esau,</b> qui etait le petit-fils d'Abraham et le frere de Jacob, <b>lequel d'entre eux precede</b> l'autre et herite des biens ? <b>Rava dit : Venez</b> et <b>entendez</b> une preuve de la mishna : <b>Un pere precede tous ses descendants,</b> donc, Abraham heriterait, car Jacob etait son descendant. La Gemara demande : <b>Et</b> pourquoi <b>Rami bar Hama</b> a-t-il eu un dilemme ; vraisemblablement, il etait au courant de la declaration de la mishna ? La Guemara repond : Rami bar Hama a compris que la mishna enseigne qu'un pere <b>precede</b> uniquement <b>ses propres</b> <b>descendants immediats, mais pas les descendants de son fils.</b>

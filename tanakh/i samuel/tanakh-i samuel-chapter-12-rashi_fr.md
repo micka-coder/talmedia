@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>J'ai vieilli et je suis devenu gris.</b> Nos rabbins ont dit qu'il avait vieilli prématurément, comme indiqué dans les Masehet Ta'anis.<sup>1</sup><i class="footnote"> 5b.</i>.
+<b>J'ai vieilli et je suis devenu gris.</b> Nos sages ont dit qu'il avait vieilli prématurément, comme indiqué dans les Masehet Ta'anis.<sup>1</sup><i class="footnote"> 5b.</i>.
 
 ### passuk 3
 <b>À qui appartient le boeuf que j'ai pris ?</b> Pour mon travail.
@@ -41,7 +41,7 @@
 <b>Alors vous deux.</b> Vous vivrez jusqu'à un âge avancé, vous et le roi.
 
 ### passuk 15
-<b>Alors la main d'Hachem sera contre vous et contre vos ancêtres.</b> C'est-à-dire qu'elle sera contre vous après avoir été contre vos pères. Nos rabbins ont cependant dit que "contre vous et contre vos pères" fait référence au déterrement des morts, qui est une honte pour les morts.<sup>9</sup><i class="footnote"> Maseches Yevamos 63b. Lorsque les gens pèchent, les générations passées sont également punies en voyant leurs tombes dérangées.
+<b>Alors la main d'Hachem sera contre vous et contre vos ancêtres.</b> C'est-à-dire qu'elle sera contre vous après avoir été contre vos pères. Nos sages ont cependant dit que "contre vous et contre vos pères" fait référence au déterrement des morts, qui est une honte pour les morts.<sup>9</sup><i class="footnote"> Maseches Yevamos 63b. Lorsque les gens pèchent, les générations passées sont également punies en voyant leurs tombes dérangées.
 
 ### passuk 16
 <b>Dresse-toi et regarde"</b> Et de même que par ma prière, je suis capable de changer les saisons, de même, si une guerre vous frappait, ma prière aurait le pouvoir de vous protéger contre l'ennemi, et vous n'aviez pas besoin de demander un roi de mon vivant,<sup>10</sup><i class="footnote"> Shmuel a démontré à la nation combien leur demande de roi était inutile. De même que "<span>"</span> a répondu immédiatement aux prières de Shmuel pour la pluie, de même "<span>"</span> répondra-t-il à ses prières pour sauver les Bnei Yisrael de leurs ennemis.</i> même si je suis vieux.

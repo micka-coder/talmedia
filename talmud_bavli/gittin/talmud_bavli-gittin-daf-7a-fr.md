@@ -3,7 +3,7 @@
 <b>Dites-les avec calme afin qu'ils acceptent</b> l'instruction <b>de sa part. Rav Ashi a dit : Je n'ai pas entendu cette</b> declaration <b>de Rabba bar Hana, et</b> pourtant <b>je l'ai accomplie par</b> mon propre <b>raisonnement.</b>
 
 ### Partie 2
-<Rabbi Abbahou dit : Une personne ne doit jamais imposer une crainte excessive aux</b> membres de <b>sa famille, comme un grand homme a impose une crainte excessive a sa famille et ils lui ont donne a manger quelque chose</b> qui comportait <b>une grande</b> interdiction.
+<b>Rabbi Abbahou dit : Une personne ne doit jamais imposer une crainte excessive aux</b> membres de <b>sa famille, comme un grand homme a impose une crainte excessive a sa famille et ils lui ont donne a manger quelque chose</b> qui comportait <b>une grande</b> interdiction.
 
 ### Partie 3
 La Gemara demande : <b>Et qui etait</b> cet individu ? La Gemara repond : <b>Rabbi Hanina ben Gamliel.</b> La Gemara demande : <b>Est-ce qu'il te viendrait a l'esprit</b> de dire que <b>ils</b> lui ont effectivement <b>fourni</b> de la nourriture interdite ? <b>Maintenant</b> considerez que <b>le Saint, Beni soit-Il, ne fait pas commettre d'erreur</b> a travers les animaux des justes.</b> En ce qui concerne <b>les justes eux-memes</b> n'est-ce pas <b>a plus forte raison ?</b> Comment pouvez-vous dire que Rabbi Hanina ben Gamliel a mange de la nourriture interdite ?

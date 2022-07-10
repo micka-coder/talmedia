@@ -1,6 +1,6 @@
 
 ### Partie 1
-La Guemara demande : Est-ce à dire que <b>la première clause</b> de la décision de Rav Naḥman <b>est</b> conforme à l'avis de <b>Rabbi Yosei, fils de Rabbi Yehuda, et la dernière clause est</b> conforme à l'avis de <b>les rabbins ?</b>.
+La Guemara demande : Est-ce à dire que <b>la première clause</b> de la décision de Rav Naḥman <b>est</b> conforme à l'avis de <b>Rabbi Yosei, fils de Rabbi Yehuda, et la dernière clause est</b> conforme à l'avis de <b>les sages ?</b>.
 
 ### Partie 2
 La Guemara répond : <b>Oui, car son père,</b> Rabbi Yehouda, <b>s'en tient à son avis</b> en ce qui concerne les espaces clos pour le bien d'un individu. Ceci étant, leur avis sur cette question est celui du plus grand nombre.
@@ -36,10 +36,10 @@ La Guemara rejette cette explication. <b>Rav Huna</b> aurait pu <b>vous dire : <
 <b>Et Rabbi Yitzḥak</b> aurait pu <b>vous dire</b> : C'est <b>moi qui ai énoncé</b> mon avis <b>même en accord</b> avec l'avis de <b>Rabbi Yehuda. Rabbi Yehuda a énoncé</b> son opinion <b>uniquement là,</b> dans un cas <b>où il y a des résidents.</b> Cependant, <b>ici, il n'y a pas</b> de <b>résidents</b> restants qui sont vivants, donc lui aussi interdirait le port.
 
 ### Partie 13
-Nous avons appris dans la mishna : <b>Cependant, les rabbins disent : L'un des deux éléments,</b> soit vertical, soit horizontal, est suffisant. La Guemara demande : <b>C'est</b> identique à l'avis de <b>la première <i>tanna</i></b> de la mishna. Qu'ont ajouté les rabbins ?
+Nous avons appris dans la mishna : <b>Cependant, les sages disent : L'un des deux éléments,</b> soit vertical, soit horizontal, est suffisant. La Guemara demande : <b>C'est</b> identique à l'avis de <b>la première <i>tanna</i></b> de la mishna. Qu'ont ajouté les sages ?
 
 ### Partie 14
-La Guemara répond : <b>Il y a</b> une différence halakhique pratique <b>entre eux</b> en ce qui concerne <b>un individu</b> dans <b>une colonie.</b> Le premier <i>tanna</i> ne permet pas de s'appuyer sur une partition de ce type <i>ab initio</i>, alors que les rabbins permettent de le faire dans tous les cas.
+La Guemara répond : <b>Il y a</b> une différence halakhique pratique <b>entre eux</b> en ce qui concerne <b>un individu</b> dans <b>une colonie.</b> Le premier <i>tanna</i> ne permet pas de s'appuyer sur une partition de ce type <i>ab initio</i>, alors que les sages permettent de le faire dans tous les cas.
 
 ### Partie 15
 <strong>MISHNA :</strong> Les Sages ont <b>exempté</b> un soldat <b>dans</b> un <b>camp</b> militaire dans <b>quatre domaines : On peut apporter du bois</b> pour l'allumage <b>de n'importe quel endroit</b> sans craindre de voler du bois à ses propriétaires ; <b>et on est exempté</b> du <b>lavage</b> rituel des <b>mains</b> avant de manger ; <b>et</b> on est exempté <b>de</b> la séparation de la dîme des <b>produits dont la dîme est douteuse [<i>demai</i>],</b> c'est-à-dire, les produits achetés à un <i>am ha'aretz</i>, celui qui n'est pas diligent dans la séparation des dîmes ; <b>et</b> on est exempté <b>de l'établissement d'un <i>eiruv</i>.</b>

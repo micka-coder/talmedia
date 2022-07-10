@@ -5,7 +5,7 @@
 <b>Ce sont les cornes</b> Ce sont les nations des quatre coins du ciel qui ont encorné Juda et Jérusalem de leurs cornes jusqu'à les disperser.
 
 ### passuk 3
-<b>Quatre artisans</b> Charpentiers qui savent scier les cornes. Et nos rabbins ont expliqué dans le tractate <i>Sukkah</i> (52b) qui ils sont.
+<b>Quatre artisans</b> Charpentiers qui savent scier les cornes. Et nos sages ont expliqué dans le traité <i>Sukkah</i> (52b) qui ils sont.
 
 ### passuk 4
 <b>Et il dit, en disant : "Ce sont les cornes"</b> que tu as vues pour la première fois.

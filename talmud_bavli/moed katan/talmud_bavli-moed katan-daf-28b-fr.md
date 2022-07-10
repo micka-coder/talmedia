@@ -1,6 +1,6 @@
 
 ### Partie 1
-<strong>MISHNA:</strong> <b>Les</b> jours intermédiaires d'une <b>fête, les femmes peuvent gémir</b> de chagrin sur le défunt, <b>mais elles ne peuvent pas frapper [<i>metapeḥot</i>]</b> leurs mains en signe de deuil. <Rabbi Yishmael dit : Ceux qui sont proches du cercueil peuvent applaudir.</b>
+<strong>MISHNA:</strong> <b>Les</b> jours intermédiaires d'une <b>fête, les femmes peuvent gémir</b> de chagrin sur le défunt, <b>mais elles ne peuvent pas frapper [<i>metapeḥot</i>]</b> leurs mains en signe de deuil. <b>Rabbi Yishmael dit : Ceux qui sont proches du cercueil peuvent applaudir.</b>
 
 ### Partie 2
 <b>Lors des Nouvelles Lunes, de Hanoukka et de Pourim,</b> qui ne sont pas des Fêtes selon la loi de la Torah, les femmes <b>peuvent</b> à la fois <b>gémir et frapper des mains</b> en signe de deuil. <b>Les deux</b> jours intermédiaires d'une Fête <b>et les</b> Nouvelles Lunes, Hanoukka et Pourim <b>ils ne peuvent pas se lamenter.</b> Après <b>l'enterrement du défunt, ils ne peuvent ni gémir ni frapper des mains.</b>
@@ -66,7 +66,7 @@ La Guemara discute des questions dans les versets susmentionnés : <b>Rava dit �
 Rabba bar Mari <b>lui a dit : Rabbi Yoḥanan a dit ce qui suit :</b> Les mots "en paix" énoncés à propos du roi Josias font référence au fait <b>que le Temple n'a pas été détruit de son vivant,</b> comme le verset lui-même le poursuit : "Et tes yeux ne verront pas tout le mal que je ferai venir sur ce lieu" (IIÂ Rois 22:20).
 
 ### Partie 23
-La Guemara revient à l'examen des <i>halakhot</i> de consolation. <Rabbi Yoḥanan a dit : Les consolateurs ne sont pas autorisés à prononcer des paroles</b> de consolation <b>jusqu'à ce que la personne en deuil ouvre</b> et parle en premier. <b>Comme il est dit :</b> "Et ils s'assirent avec lui sur le sol pendant sept jours et sept nuits, et personne ne lui adressa un mot, car ils virent que sa souffrance était très grande". <b>Après cela, Job ouvrit sa bouche"</b> (Job 2:13""3:1). <b>Et après : <b>Eliphaz, le Thémanite, prit la parole</b> et dit : (Job 4:1).
+La Guemara revient à l'examen des <i>halakhot</i> de consolation. <b>Rabbi Yoḥanan a dit : Les consolateurs ne sont pas autorisés à prononcer des paroles</b> de consolation <b>jusqu'à ce que la personne en deuil ouvre</b> et parle en premier. <b>Comme il est dit :</b> "Et ils s'assirent avec lui sur le sol pendant sept jours et sept nuits, et personne ne lui adressa un mot, car ils virent que sa souffrance était très grande". <b>Après cela, Job ouvrit sa bouche"</b> (Job 2:13""3:1). <b>Et après : <b>Eliphaz, le Thémanite, prit la parole</b> et dit : (Job 4:1).
 
 ### Partie 24
 <b>Rabbi Abbahu a dit : D'où</b> provient que <b>le pleureur s'allonge à la tête [<i>rosh</i>]</b> de la table ? <b>Comme il est dit : "J'ai choisi leur voie, je me suis assis en chef [<i>rosh</i>], j'ai habité comme un roi dans l'armée, comme celui qui console [<i>yenaḥem</i>] les personnes en deuil"</b> (Job 29:25). Cela indique que la personne en deuil est assise à la tête de la table, comme le chef.

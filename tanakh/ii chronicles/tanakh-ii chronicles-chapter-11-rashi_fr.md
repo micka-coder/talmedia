@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Il rassembla la maison de Juda et de Benjamin</b> qui étaient ensemble sur la frontière. Jérusalem appartenait aux deux, et le Temple était construit sur leur frontière commune. Dans la section traitant des frontières dans Josué, il est expliqué comment leur frontière était partagée. Nos rabbins ont également dit (<i>Yoma</i> 12a, <i>Meg.</i> 26a, <i>Zeb.</i> 53b) : Une bande dépassait du territoire de Benjamin et entrait dans le territoire de Juda, sur laquelle l'autel était construit. Ils étaient donc inséparables, et ils sont également mentionnés proches les uns des autres.
+<b>Il rassembla la maison de Juda et de Benjamin</b> qui étaient ensemble sur la frontière. Jérusalem appartenait aux deux, et le Temple était construit sur leur frontière commune. Dans la section traitant des frontières dans Josué, il est expliqué comment leur frontière était partagée. Nos sages ont également dit (<i>Yoma</i> 12a, <i>Meg.</i> 26a, <i>Zeb.</i> 53b) : Une bande dépassait du territoire de Benjamin et entrait dans le territoire de Juda, sur laquelle l'autel était construit. Ils étaient donc inséparables, et ils sont également mentionnés proches les uns des autres.
 
 ### passuk 2
 

@@ -17,7 +17,7 @@
 <b>Sera réduite à néant</b> Heb.  לְאָוֶן. [<i>Jonathan</i> rend :]  לִלְמָא, qui est la traduction araméenne de  הֶבֶל, vanité, et ceci est une similitude avec (Osée 12 : 12) "Si Galaad est néant, c'est parce qu'ils ne sont que futilité."
 
 ### passuk 6
-<De peur qu'Il ne se déchaîne comme un feu</b> Heb.  יִצְלַח-. De peur que sa colère ne s'élève comme un feu vers la maison de Joseph.
+<b>De peur qu'Il ne se déchaîne comme un feu</b> Heb.  יִצְלַח-. De peur que sa colère ne s'élève comme un feu vers la maison de Joseph.
 <b>La maison de Joseph</b> - Comme  לְבֵית יוֹסֵף£, à la maison de Joseph.
 
 ### passuk 7

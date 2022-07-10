@@ -71,7 +71,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>et je détruirai la puissance des royaumes des nations</b> Le royaume de Perse, qui règne actuellement sur le monde entier, tombera entre les mains d'un autre royaume au bout de trente-quatre ans à compter de la construction du Temple, comme nous l'avons appris dans le tractate <i>Avodah Zarah</i> (9a).
+<b>et je détruirai la puissance des royaumes des nations</b> Le royaume de Perse, qui règne actuellement sur le monde entier, tombera entre les mains d'un autre royaume au bout de trente-quatre ans à compter de la construction du Temple, comme nous l'avons appris dans le traité <i>Avodah Zarah</i> (9a).
 
 ### passuk 23
 <b>et je te ferai comme un sceau</b> Contrairement à ce qui avait été décrété sur son père Jeconiah (Jér. 22, 24) : " Je suis vivant, dit l'èternel, si Conia, fils de Jéhoà¯akim, roi de Juda, est un sceau à ma droite, je t'en extirperai. " [Jérémia] affirme en outre (ibid. 22:30) : " Inscrivez cet homme sans enfants. " Nous apprenons que son repentir a servi [Jeconiah], et Zorobabel lui est né, et il a été fait comme un sceau.

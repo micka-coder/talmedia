@@ -3,7 +3,7 @@
 <b>Des raisins</b> cultives en palissant la vigne sur <b>un palmier</b> trempe <b>dans l'eau.</b>
 
 ### Partie 2
-Comme remede <b>au lichen plan [<i>hazazita</i>]</b> sur sa peau, <b>qu'il apporte sept gros grains de ble [<i>arzanayata</i>] et</b> qu'il les <b>rotisse sur</b> un feu sur la lame d'une <b>houe neuve. Et</b> qu'il <b>extrait de l'huile</b> du ble <b>et s'en frottait</b> sur la peau. Il est dit : <b>Le Rav Shimi bar Ashi a utilise ce</b> remede <b>pour un certain Gentil</b> qui avait <b>quelque chose d'autre,</b> c'est-a-dire la lepre, <b>et il a ete gueri.</b>
+Comme remede <b>au lichen plan [<i>hazazita</i>]</b> sur sa peau, <b>qu'il apporte sept gros grains de ble [<i>arzanayata</i>] et</b> qu'il les <b>rotisse sur</b> un feu sur la lame d'une <b>houe neuve. Et</b> qu'il <b>extrait de l'huile</b> du ble <b>et s'en frottait</b> sur la peau. Il est dit : <b>Rav Shimi bar Ashi a utilise ce</b> remede <b>pour un certain Gentil</b> qui avait <b>quelque chose d'autre,</b> c'est-a-dire la lepre, <b>et il a ete gueri.</b>
 
 ### Partie 3
 <b>Shmuel a dit : Celui qui est frappe par des lances persanes [<i>alunkei</i>] ne vivra pas</b> longtemps apres, car il mourra certainement de cette blessure. <b>En attendant, on le nourrira de force de viande grasse</b> rotie <b>sur des charbons, et de vin non dilue.</b> En faisant cela, il est <b>possible qu'il vive</b> un <b>petit peu</b> plus longtemps <b>et</b> qu'il ait le temps de <b>instruire sa famille</b> quant a ce qu'elle devra faire apres sa mort.
@@ -33,7 +33,7 @@ La Gemara demande : <b>Qu'est-ce</b> que l'affliction <b><i>ahilu</i></b> mentio
 <b>Rabbi Hiyya enseigne : Celui qui ne veut pas en arriver</b> a une situation ou il contracte une <b>maladie intestinale</b> doit <b>prendre l'habitude de tremper</b> sa nourriture dans du vin ou du vinaigre, aussi bien en <b>ete</b> qu'en <b>hiver.</b> Il enseigne egalement : <b>Vous devez retirer votre main,</b> c'est-a-dire arreter de manger, <b>d'un repas que vous appreciez</b> afin de ne pas trop manger. <b>Et ne vous retardez pas au moment ou il est necessaire de vous soulager.</b>
 
 ### Partie 12
-<b>Mar Ukva a dit : Celui qui boit du vin blanc de qualite inferieure [<i>tilya</i>]</b> sera <b>afflige de faiblesse [<i>vitak</i>]. Le Rav Hisda a dit : Il existe soixante types de vin. Le meilleur de tous</b> est le <b>vin rouge et parfume</b>. <b>Le pire de tous</b> est le <b>vin blanc inferieur.</b>
+<b>Mar Ukva a dit : Celui qui boit du vin blanc de qualite inferieure [<i>tilya</i>]</b> sera <b>afflige de faiblesse [<i>vitak</i>]. Rav Hisda a dit : Il existe soixante types de vin. Le meilleur de tous</b> est le <b>vin rouge et parfume</b>. <b>Le pire de tous</b> est le <b>vin blanc inferieur.</b>
 
 ### Partie 13
 <b>Rav Yehuda a dit : Celui qui s'assied pres du feu pendant les matinees</b> du mois <b>de Nisan et se frotte</b> <b>avec de l'huile et</b> ensuite <b>sort et s'assied au soleil</b> sera <b>afflige de faiblesse.</b>

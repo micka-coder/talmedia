@@ -18,7 +18,7 @@ La Guemara ajoute : <b>Et ceci est</b> en accord avec <b>cette</b> que <b>nous a
 La Guemara souleve une difficulte contre les deux dernieres raisons suggerees pour le decret des Sages. <b>Selon le Rav Hisda,</b> qui soutient que le fromage est interdit parce qu'il est caille avec du vinaigre fabrique a partir du vin des gentils, <b>et le Rav Nahman bar Yitzhak, </b> qui soutient qu'il est interdit parce qu'il est caille avec la seve de <i>orla</i>, <b>on doit s'interdire</b> de tirer un <b>benefice</b> du fromage, car on ne peut tirer de benefice ni du vin des gentils ni de <i>orla</i>. La Guemara conclut : En effet, ceci est <b>difficile.</b>
 
 ### Partie 7
-§ <b>Le Rav Nahman, fils du Rav Hisda, a interprete</b> un verset <b>homiletiquement : Quel</b> est le sens de ce <b>qui est ecrit : A "Tes onguents ont un bon parfumA" (Cantique des Cantiques 1:3) ? Il s'agit d'une metaphore pour designer un erudit de la Torah : <b>A quoi est comparable un erudit de la Torah ? A un flacon de <i>pelaitin</i>:</b> Quand il est <b>expose, son parfum se diffuse;</b> quand il est <b>couvert, son parfum ne se diffuse pas.</b>
+§ <b>Rav Nahman, fils du Rav Hisda, a interprete</b> un verset <b>homiletiquement : Quel</b> est le sens de ce <b>qui est ecrit : A "Tes onguents ont un bon parfumA" (Cantique des Cantiques 1:3) ? Il s'agit d'une metaphore pour designer un erudit de la Torah : <b>A quoi est comparable un erudit de la Torah ? A un flacon de <i>pelaitin</i>:</b> Quand il est <b>expose, son parfum se diffuse;</b> quand il est <b>couvert, son parfum ne se diffuse pas.</b>
 
 ### Partie 8
 La Gemara remarque : <b>Et de plus,</b> lorsqu'un erudit de la Torah diffuse son savoir, des <b>matieres qui lui sont</b> generalement <b>cachees lui sont revelees, comme il est dit : "Les jeunes filles [<i>alamot</i>] t'aiment"</b> (Cantique des Cantiques 1:3), et on peut <b>lire dans</b> le verset : <b>Les caches [<i>alumot</i>]. Et de plus, l'ange de la mort l'aime, comme il est dit : "Les demoiselles [<i>alamot</i>] t'aiment,"</b> et on peut <b>lire dans</b> le verset : Celui qui est designe <b>sur la mort [<i>al mot</i>]</b> t'aime. <b>Et de plus,</b> un erudit de la Torah <b>herite de deux mondes : L'un</b> est <b>ce monde, et</b> l'autre <b>un</b> est <b>le Monde-a-Venir, comme il est dit : "Les demoiselles [<i>alamot</i>]</b> t'aiment," et on peut <b>lire dans</b> le verset : <b>Mondes [<i>olamot</i>].</b>
@@ -60,7 +60,7 @@ La Gemara cite deux qualifications de l'indulgence que les gens ont deduit de l'
 La Guemara relate : <b>Aivu mordait et mangeait le pain</b> des Gentils <b>aux limites</b> des champs. <b>Rava dit</b> aux etudiants de la salle d'etude, <b>et certains disent</b> que c'est <b>Rav Nahman bar Yitzhak</b> qui leur a dit : <b>Ne parlez pas avec Aivu, car il mange le pain des Arameens</b> en violation deliberee d'un decret rabbinique.
 
 ### Partie 21
-§ La mishna enseigne : <b>Et leur huile</b> etait initialement interdite mais autorisee par la suite par Rabbi Yehuda HaNasi et son tribunal. La Guemara cite une dispute concernant l'origine de l'interdiction de l'<b>huile</b>. Le Rav dit : Daniel a decrete</b> que l'huile est interdite, <b>et Shmuel dit :</b>
+§ La mishna enseigne : <b>Et leur huile</b> etait initialement interdite mais autorisee par la suite par Rabbi Yehuda HaNasi et son tribunal. La Guemara cite une dispute concernant l'origine de l'interdiction de l'<b>huile</b>. Rav dit : Daniel a decrete</b> que l'huile est interdite, <b>et Shmuel dit :</b>
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

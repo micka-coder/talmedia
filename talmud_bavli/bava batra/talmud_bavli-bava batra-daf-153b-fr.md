@@ -18,7 +18,7 @@
 <b>Rava</b> n'est pas d'accord avec Rabbi Elazar et <b>dit : Ils ont enseigne</b> la decision de la mishna <b>uniquement</b> en ce qui concerne un cas <b>ou la saison des pluies n'a pas</b> encore <b>passe sur</b> les champs apres que la possibilite soit apparue que les champs contenaient une impurete. <b>Mais</b> si <b>la saison des pluies a</b> deja <b>passe au-dessus</b> des champs, ceux-ci sont consideres comme <b>le domaine prive</b> tant <b>en ce qui concerne ceci,</b> le Chabbat, <b>que pour cela,</b> l'impurete rituelle. Meme si celui qui est passe par les champs est venu s'enquerir de son statut en ete, alors que les champs devraient etre consideres comme le domaine public, il est neanmoins juge impur meme selon Rabbi Natan, et il n'y a pas de contestation parallele en ce qui concerne l'impurete rituelle incertaine.
 
 ### Partie 7
-§ La mishna enseigne : <b>Et les rabbins disent : La charge de la preuve repose sur le demandeur,</b> et puisque le bien est en possession du donateur, les destinataires doivent apporter la preuve qu'ils ont le droit de le recevoir.
+§ La mishna enseigne : <b>Et les sages disent : La charge de la preuve repose sur le demandeur,</b> et puisque le bien est en possession du donateur, les destinataires doivent apporter la preuve qu'ils ont le droit de le recevoir.
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

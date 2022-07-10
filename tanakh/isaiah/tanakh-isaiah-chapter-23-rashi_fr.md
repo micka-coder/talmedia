@@ -60,7 +60,7 @@
 ### passuk 14
 
 ### passuk 15
-<Puisque le prophète fait référence à Tyr avec une expression de dégradation, en la comparant à une prostituée, il dit : "sera oubliée", comme une prostituée dont les amants l'ont oubliée. Elle aussi sera oubliée, faute de marchands et de trafiquants qui se tourneront vers elle, car elle sera détruite.
+<b>Puisque le prophète fait référence à Tyr avec une expression de dégradation, en la comparant à une prostituée, il dit : "sera oubliée", comme une prostituée dont les amants l'ont oubliée. Elle aussi sera oubliée, faute de marchands et de trafiquants qui se tourneront vers elle, car elle sera détruite.
 <b>Comme les jours d'un roi</b> Les jours de David ont été de soixante-dix ans, mais je ne sais pas pourquoi ce signe est donné ici.
 <b>Comme il arrivera à Tyr</b> un léger souvenir, qu'elle se secouera de son humble état et fera appel à ceux qui avaient l'habitude de commercer avec elle, pour qu'ils reviennent à elle afin qu'elle retourne à son état initial.
 <b>Comme le chant de la prostituée</b> qui voit que personne ne se tourne vers elle et élève une voix douce et mélodieuse en chantant, peut-être plaira-t-elle à ses amants.

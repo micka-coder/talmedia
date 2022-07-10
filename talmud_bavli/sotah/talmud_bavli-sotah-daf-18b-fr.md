@@ -48,10 +48,10 @@ La Guemara repond : <b>Venez</b> et <b>entendez</b> les preuves de la mishna : <
 La <i>baraita</i> continue : <b>Rabbi Yehuda dit :</b> Le mot <b>Ceci</b> dans le verset est un terme restrictif, indiquant <b>que la femme ne boit pas et ne repete pas. Rabbi Yehuda dit :</b> Il y a eu <b>un incident</b> dans lequel <b>Nehunya le creuseur de fosses a temoigne devant nous</b> au nom de ses maitres <b>que la femme boit et repete, et nous avons accepte son temoignage en ce qui concerne deux hommes, mais pas en ce qui concerne un seul homme.</b> Meme si elle boit l'eau d'un <i>sota</i> alors qu'elle est mariee a son premier mari, elle doit boire a nouveau apres avoir enfreint un avertissement de son second mari. Cependant, un mari ne peut pas faire boire sa femme deux fois.
 
 ### Partie 17
-Le <i>baraita</i> conclut : <b>Et les rabbins disent : La femme ne boit pas et ne repete pas, que ce soit a l'egard d'un homme ou a l'egard de deux hommes.</b>
+Le <i>baraita</i> conclut : <b>Et les sages disent : La femme ne boit pas et ne repete pas, que ce soit a l'egard d'un homme ou a l'egard de deux hommes.</b>
 
 ### Partie 18
-La Guemara demande : <b>Mais</b> selon <b>la premiere <i>tanna</i></b> du <i>baraita</i> <b>aussi, n'est-il pas ecrit</b> dans le verset : <b>Ceci,</b> limitant le nombre de fois ou une femme doit boire ? <b>Et</b> selon <b>les rabbins</b> mentionnes <b>plus tard</b> dans le <i>baraita</i> <b>aussi, n'est-il pas ecrit : "La loi de</b> la jalousie," amplifiant le nombre de fois qu'une femme doit boire pour inclure tous les cas de jalousie ?
+La Guemara demande : <b>Mais</b> selon <b>la premiere <i>tanna</i></b> du <i>baraita</i> <b>aussi, n'est-il pas ecrit</b> dans le verset : <b>Ceci,</b> limitant le nombre de fois ou une femme doit boire ? <b>Et</b> selon <b>les sages</b> mentionnes <b>plus tard</b> dans le <i>baraita</i> <b>aussi, n'est-il pas ecrit : "La loi de</b> la jalousie," amplifiant le nombre de fois qu'une femme doit boire pour inclure tous les cas de jalousie ?
 
 ### Partie 19
 <b>Rava a dit :</b> Des <i>halakhot</i> differentes s'appliquent a des cas differents : <b>A l'egard d'un mari</b> qui a accuse sa femme deux fois au sujet d'<b>un seul paramour, tout le monde s'accorde a dire que la femme ne boit pas et ne repete pas,</b> ayant ete prouvee innocente une fois,

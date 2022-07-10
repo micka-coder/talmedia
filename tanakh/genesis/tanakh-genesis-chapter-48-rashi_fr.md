@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>Yisraël vit les fils de Yossef'.</b> Il tenta de les bénir, mais la Présence divine s'éloigna de lui, car Yerovom et Achov étaient destinés à naître d'Ephraïm et Yehu et ses fils de Menasheh. 
-<Et il dit : "Qui sont ces gens-là ?" [Signification :] De qui sont nés ces gens qui ne sont pas aptes à être bénis ? 
+<b>Et il dit : "Qui sont ces gens-là ?" [Signification :] De qui sont nés ces gens qui ne sont pas aptes à être bénis ? 
 
 ### passuk 9
 <b>En cela.</b> Il lui montra ses contrats de fiançailles et de mariage et Yossef pria pour avoir de la compassion à ce sujet et l'Esprit divin revint à lui [Yaakov].

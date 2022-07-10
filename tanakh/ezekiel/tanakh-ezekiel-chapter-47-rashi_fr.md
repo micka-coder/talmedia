@@ -27,7 +27,7 @@
 
 ### passuk 8
 <b>à la...frontière</b> [Heb.  הֳגְלִילָה",] la marche, frontière (province).
-<b>L'est</b> [Heb.  הֳקֳדְוֹמנָה",] l'est. Nos rabbins ont enseigné dans la Tosefta de Soucca (3:3) : Où coulent-ils ? Vers la mer de Tibériade (Kinnereth), la mer de Sodome (Mer Morte), et vers la Grande Mer, pour guérir leurs eaux salées et les adoucir.
+<b>L'est</b> [Heb.  הֳקֳדְוֹמנָה",] l'est. Nos sages ont enseigné dans la Tosefta de Soucca (3:3) : Où coulent-ils ? Vers la mer de Tibériade (Kinnereth), la mer de Sodome (Mer Morte), et vers la Grande Mer, pour guérir leurs eaux salées et les adoucir.
 ["Pour descendre sur la plaine"] c'est la mer de Tibériade.
 ["Et arrivera à la mer"] c'est la mer de Sodome.
 <b>A la mer qui sort</b> C'est l'océan  אוֹקיַינוּס ¡, qui sort de la civilisation pour englober le monde.

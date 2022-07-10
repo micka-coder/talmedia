@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Remettre en place l'Arche sainte</b> Selon son sens simple, [ils devaient la remettre en place] car Manassé et Amon avaient enlevé l'Arche sainte et placé leurs images taillées à sa place, comme cela est prouvé ci-dessus (33:7) concernant Manassé : "Et il plaça l'image taillée de l'idole, etc." Par conséquent, Josias ordonna de la remettre et de placer l'Arche à l'endroit que Salomon avait construit pour elle, mais nos rabbins ont dit (<i>Yoma</i> 42b) qu'il ordonna aux Lévites de la cacher là.
+<b>Remettre en place l'Arche sainte</b> Selon son sens simple, [ils devaient la remettre en place] car Manassé et Amon avaient enlevé l'Arche sainte et placé leurs images taillées à sa place, comme cela est prouvé ci-dessus (33:7) concernant Manassé : "Et il plaça l'image taillée de l'idole, etc." Par conséquent, Josias ordonna de la remettre et de placer l'Arche à l'endroit que Salomon avait construit pour elle, mais nos sages ont dit (<i>Yoma</i> 42b) qu'il ordonna aux Lévites de la cacher là.
 <b>Vous n'avez pas de fardeau sur les épaules</b> C'est un autre argument et le début d'une affirmation. Il leur dit . Vous n'avez plus la peine de porter un fardeau sur vos épaules, c'est-à-dire tous les vases de la Maison du Seigneur. Vous ne pouvez plus dire : "A cause de la fatigue des fardeaux sur nos épaules, nous ne pouvons pas servir le Seigneur et Son peuple". C'est pourquoi, dès maintenant, servez le Seigneur votre Dieu avec des chants et Son peuple Israël en abattant et en écorchant leurs sacrifices pascals, comme cela est prouvé ci-dessous (verset 6) : "Abattez le sacrifice pascal et préparez-vous, etc.
 
 ### passuk 4

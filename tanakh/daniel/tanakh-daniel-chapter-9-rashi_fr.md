@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>et j'ai confessé</b> les péchés de mon peuple.
-<Mais il n'a pas dit "puissant". Il s'est dit : "Les païens asservissent ses enfants, alors où sont ses exploits ?
+<b>Mais il n'a pas dit "puissant". Il s'est dit : "Les païens asservissent ses enfants, alors où sont ses exploits ?
 
 ### passuk 5
 <b>se détourner</b> Nous nous sommes constamment détournés de Tes commandements, tolant en vieux français, se détourner.
@@ -41,7 +41,7 @@
 
 ### passuk 14
 <b>hâté</b> Heb.  וַיִשְׁקֹד", et s'est hâté.
-<b>Pour...est juste</b> car la justice est avec Lui. Nos rabbins, cependant, ont expliqué que le Saint, béni soit-Il, est charitable, et c'est de la charité pour nous qu'Il s'est hâté et a amené [le mal] deux ans avant la valeur numérique de  וַנוֹשַּׁנְתֶּם  (Deut. 4:25) : "et tu auras vieilli," afin que [la malédiction de] "que tu périsses" ne s'accomplisse pas avec toi. La valeur numérique de  וַנוֹשַּׁנְתֶּם  est 852, mais ils ont été exilés au bout de 850 [années] après leur entrée dans le pays.
+<b>Pour...est juste</b> car la justice est avec Lui. Nos sages, cependant, ont expliqué que le Saint, béni soit-Il, est charitable, et c'est de la charité pour nous qu'Il s'est hâté et a amené [le mal] deux ans avant la valeur numérique de  וַנוֹשַּׁנְתֶּם  (Deut. 4:25) : "et tu auras vieilli," afin que [la malédiction de] "que tu périsses" ne s'accomplisse pas avec toi. La valeur numérique de  וַנוֹשַּׁנְתֶּם  est 852, mais ils ont été exilés au bout de 850 [années] après leur entrée dans le pays.
 
 ### passuk 15
 <b>Et maintenant, Seigneur, notre Dieu</b> Nous confessons que nous avons péché et que nous avons agi méchamment.
@@ -84,7 +84,7 @@
 ### passuk 25
 <b>Et vous saurez et comprendrez dès l'émergence de la parole</b> Dès l'émergence de cette parole, qui a émergé au début de vos supplications pour vous le dire, vous saurez pour comprendre [comment] restaurer et construire Jérusalem.
 <b>Jusqu'au roi oint</b> Le temps sera donné depuis le jour de la destruction jusqu'à la venue de Cyrus, roi de Perse, au sujet duquel le Saint, béni soit-il, a dit qu'il reviendrait et qu'il bâtirait sa ville, et il l'a appelé son oint et son roi, comme il est dit (Esaïe 45:1) : "C'est ainsi que le Seigneur a dit à son oint, à Cyrus, etc." (verset 13) : "Il rebâtira ma ville et libérera mes exilés, etc.".
-<b>Sept semaines</b> Sept cycles complets de shemittah ils seront en exil avant la venue de Cyrus, et il y eut encore trois années supplémentaires, mais comme elles ne constituaient pas un cycle complet de shemittah, elles ne furent pas comptées. Dans la seule année de Darius, dans laquelle se trouvait Daniel lorsque cette vision lui fut dite, soixante-dix ans depuis la conquête de Jehoïakim se sont achevés. Déduisez-en dix-huit ans, pendant lesquels la conquête de Jojakim a précédé la destruction de Jérusalem, ce qui laisse cinquante-deux ans. C'est ce que nos rabbins ont appris (Yoma 54a) : " Pendant cinquante-deux ans, personne n'a traversé la Judée ". Il s'agit des cinquante-deux ans qui vont du jour de la destruction jusqu'au retour à l'époque de Cyrus. Par conséquent, nous avons sept cycles de shemittah et trois ans.
+<b>Sept semaines</b> Sept cycles complets de shemittah ils seront en exil avant la venue de Cyrus, et il y eut encore trois années supplémentaires, mais comme elles ne constituaient pas un cycle complet de shemittah, elles ne furent pas comptées. Dans la seule année de Darius, dans laquelle se trouvait Daniel lorsque cette vision lui fut dite, soixante-dix ans depuis la conquête de Jehoïakim se sont achevés. Déduisez-en dix-huit ans, pendant lesquels la conquête de Jojakim a précédé la destruction de Jérusalem, ce qui laisse cinquante-deux ans. C'est ce que nos sages ont appris (Yoma 54a) : " Pendant cinquante-deux ans, personne n'a traversé la Judée ". Il s'agit des cinquante-deux ans qui vont du jour de la destruction jusqu'au retour à l'époque de Cyrus. Par conséquent, nous avons sept cycles de shemittah et trois ans.
 <b>Et en soixante-deux semaines, elle reviendra et sera construite</b> c'est-à-dire la ville avec ses rues.
 <b>et les douves</b> Heb.  וְחָרוּץ. Ce sont les fossés qu'on fait autour de la muraille pour fortifier la ville, qu'on appelle fosse en français, fossé ou douves.
 <b>mais dans des temps troublés</b> Mais dans ces temps-là, ils seront troublés et affligés, car dans l'assujettissement des rois de Perse et des païens, ils les accablent d'une dure servitude. Or, bien qu'il reste encore soixante-deux semaines et quatre ans à partir de la huitième semaine, dont le commencement, c'est-à-dire les trois ans, a été compris dans le cycle des trois semaines. les trois ans, était compris dans les cinquante-deux ans de la durée de l'exil, ces quatre années n'ont pas été comptées ici, parce qu'ici il n'a compté que des semaines, et vous trouvez que dès le début il a commencé à compter soixante-dix semaines, et à la fin, quand il a délimité leurs temps et leurs jugements, il n'en a compté que soixante-neuf, ce qui prouve qu'une semaine a été divisée, une partie ici et une partie là ; et il n'a mentionné que des semaines entières.

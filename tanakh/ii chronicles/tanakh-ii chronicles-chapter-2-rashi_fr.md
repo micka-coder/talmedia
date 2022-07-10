@@ -6,7 +6,7 @@
 ### passuk 3
 <b>de Lui consacrer</b> dans un but quelconque.
 <b>Pour brûler devant Lui de l'encens</b> qui est une manière de L'honorer, et ceci est répété plus loin (verset 5) : "mais pour brûler de l'encens devant Lui."
-<C'est pourquoi je te demande de m'envoyer des matériaux pour construire une maison solide, car Israël doit offrir ses sacrifices à perpétuité dans cette maison que je construis.
+<b>C'est pourquoi je te demande de m'envoyer des matériaux pour construire une maison solide, car Israël doit offrir ses sacrifices à perpétuité dans cette maison que je construis.
 
 ### passuk 4
 <b>Et la Maison, que je bâtis, est grande</b> C'est pourquoi j'exige de vous que vous m'envoyiez de vos constructions. Maintenant, si vous dites : "Réduisez la Maison, afin que vous n'ayez pas besoin d'autres personnes", je ne peux pas le faire, car notre Dieu est plus grand que tous les Dieux ; par conséquent, je ne peux pas le diminuer ou le rendre plus petit.

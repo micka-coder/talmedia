@@ -33,7 +33,7 @@ A propos du sujet de la facon dont l'homme doit aborder son foyer, <b>Rav Yehuda
 <b>Et Rabbi Helbo dit : Une personne doit toujours faire attention a</b> soutenir <b>l'honneur de sa femme, car la benediction se trouve dans la maison d'une personne uniquement grace a sa femme, comme il est dit</b> en allusion a ceci : <b>"Et il traita bien Abram a cause d'elle,</b> et il eut des moutons et des bœufs" (Genese 12:16). <b>Et c'est ce que Rava a dit aux habitants de Mehoza,</b> ou il vivait : <b>Honorez vos femmes, ainsi vous deviendrez riches.</b>
 
 ### Partie 12
-§ A propos du sujet de la maltraitance verbale, <b>on apprend</b> dans une mishna <b>la</b> (<i>Kelim</i> 5:10) : Si <b>on coupe</b> un four en terre cuite dans le sens de la largeur <b>en segments, et qu'on place du sable entre chaque segment, Rabbi Eliezer le juge rituellement pur.</b> A cause du sable, son statut juridique n'est pas celui d'un recipient complet, et il n'est donc pas susceptible d'impurete rituelle. <b>Et les rabbins le jugent rituellement impur,</b> car il est fonctionnellement un four complet.
+§ A propos du sujet de la maltraitance verbale, <b>on apprend</b> dans une mishna <b>la</b> (<i>Kelim</i> 5:10) : Si <b>on coupe</b> un four en terre cuite dans le sens de la largeur <b>en segments, et qu'on place du sable entre chaque segment, Rabbi Eliezer le juge rituellement pur.</b> A cause du sable, son statut juridique n'est pas celui d'un recipient complet, et il n'est donc pas susceptible d'impurete rituelle. <b>Et les sages le jugent rituellement impur,</b> car il est fonctionnellement un four complet.
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Commander Bnei Yisrael.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cette <i>parasha</i> a été dite le jour où le <i>Mishkon</i> a été érigé. Huit <i>parshiyos</i> ont été dits ce jour-là, comme le précise le Tractate Gittin, <i>perek</i> Hanizakin. 
-<b>Ils doivent expulser du camp.</b> Il y avait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>trois camps lorsqu'ils se reposaient : A l'intérieur des rideaux, il y avait le camp de la <i>Shechinah</i> ; le campement des Lévites qui l'entourait, comme le dit expressément le <i>parasha</i> de Bemidbar Sinaï, était le camp des Lévites ; de là jusqu'à l'extrémité du campement des bannières, dans les quatre directions, était le camp des Israélites. Le <i>metzoro</i> était envoyé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> hors de tous ces camps. Le <i>zav</i> était autorisé dans le camp des Israélites, mais expulsé des [autres] deux. Une personne souillée par un mort était autorisée même parmi le [campement des] Lévites, étant expulsée seulement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>du campement de la <i>Shechinah.</i> Tout cela, les rabbins le tirent de passages scripturaires dans Masech Pesachim. 
+<b>Ils doivent expulser du camp.</b> Il y avait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>trois camps lorsqu'ils se reposaient : A l'intérieur des rideaux, il y avait le camp de la <i>Shechinah</i> ; le campement des Lévites qui l'entourait, comme le dit expressément le <i>parasha</i> de Bemidbar Sinaï, était le camp des Lévites ; de là jusqu'à l'extrémité du campement des bannières, dans les quatre directions, était le camp des Israélites. Le <i>metzoro</i> était envoyé <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> hors de tous ces camps. Le <i>zav</i> était autorisé dans le camp des Israélites, mais expulsé des [autres] deux. Une personne souillée par un mort était autorisée même parmi le [campement des] Lévites, étant expulsée seulement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>du campement de la <i>Shechinah.</i> Tout cela, les sages le tirent de passages scripturaires dans Masech Pesachim. 
 <b>Sali par une âme [défunte].</b> [Onkelos rend]  דִּמְסָאָב לִטְמֵי נַפְשָׁא דֶאֱנָשָׁא, ("qui ont été souillés par les os d'une âme humaine. ") A mon avis, le mot <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> signifie "ossements humains" en araméen. Il y a de nombreux [exemples] dans Bereishis Rabbah, "  טַמְיָא   que [ses] " os " soient broyés. 
 
 ### passuk 3
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>Mais si l'homme n'a pas de rédempteur.</b> Comme est mort le réclamant qui l'a mis (le voleur) sous serment  sans héritiers.
-<b>A qui la dette peut être rendue.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand il (le voleur) se rétracte et avoue son crime. Les rabbins remarquent : "Y a-t-il quelqu'un dans Yisrael qui n'ait pas de rédempteurs, qu'il s'agisse d'un fils, d'un frère ou d'une relation de sang paternelle [ramifiée] vers le haut jusqu'au [patriarche] Yaakov ? Mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[cela fait référence à] un prosélyte qui est mort sans héritiers. 
+<b>A qui la dette peut être rendue.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quand il (le voleur) se rétracte et avoue son crime. Les sages remarquent : "Y a-t-il quelqu'un dans Yisrael qui n'ait pas de rédempteurs, qu'il s'agisse d'un fils, d'un frère ou d'une relation de sang paternelle [ramifiée] vers le haut jusqu'au [patriarche] Yaakov ? Mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[cela fait référence à] un prosélyte qui est mort sans héritiers. 
 <b>La dette étant restituée.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est le principal et le cinquième de celle-ci.
 <b>A Hachem, [puis] au kohen.</b> Dieu en prend possession, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>puis le donne au <i>kohen [servant] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> dans cette montre. </i>
 <b>A part le bélier du pardon.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mentionné dans Vayikra, qu'il est tenu d'apporter. 
@@ -39,7 +39,7 @@
 ### passuk 12
 <b>Si la femme d'un homme s'égare.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Qu'est-il écrit [immédiatement] au-dessus de ce sujet ? "Les objets sacrés d'un homme seront à lui." (v. 10) [Cela implique que] si tu retiens les cadeaux du <i>kohen's</i>, alors par ta vie ! Tu trouveras nécessaire de lui rendre visite, de lui apporter la <i>sotah</i>. 
 <b>Tout homme [lit. un homme, un homme].</b> Cela enseigne qu'elle est doublement perfide ; contre l'"homme de guerre" en haut, et son mari [lit. "homme"] en bas. 
-<b>Si la femme d'un homme s'égare.</b> Nos rabbins enseignent : Les adultères ne commettent pas d'adultère à moins qu'ils ne soient imprégnés de l' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>esprit de folie, comme il est écrit  כִּי תִשְׂטֶה " [lit. agit de façon insensée]. et il est écrit : "l'adultère manque de raison" : L'explication simple du verset est la suivante : " [Si la femme d'un homme] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'écarte des voies de la pudeur " et éveille sa suspicion, comme dans " écarte-toi de lui et passe à côté ", " que ton cœur ne se tourne pas vers ses voies ". 
+<b>Si la femme d'un homme s'égare.</b> Nos sages enseignent : Les adultères ne commettent pas d'adultère à moins qu'ils ne soient imprégnés de l' <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>esprit de folie, comme il est écrit  כִּי תִשְׂטֶה " [lit. agit de façon insensée]. et il est écrit : "l'adultère manque de raison" : L'explication simple du verset est la suivante : " [Si la femme d'un homme] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> s'écarte des voies de la pudeur " et éveille sa suspicion, comme dans " écarte-toi de lui et passe à côté ", " que ton cœur ne se tourne pas vers ses voies ". 
 <b>Et agit avec perfidie envers lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Quelle est cette perfidie ? 
 
 ### passuk 13
@@ -53,7 +53,7 @@
 
 ### passuk 14
 <b>Sur lui.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Avant la dissimulation.
-<b>Un esprit de jalousie, et il est jaloux.</b> Les rabbins interprètent cela comme un " avertissement ". Il l'avertit de ne pas rester seule avec un certain homme, 
+<b>Un esprit de jalousie, et il est jaloux.</b> Les sages interprètent cela comme un " avertissement ". Il l'avertit de ne pas rester seule avec un certain homme, 
 <b>Et elle a été souillée. Ou, lui arrive... etc.</b> Comme s'il avait dit : "il l'a avertie et elle a ignoré l'avertissement, mais <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> on ne sait pas si elle a été souillée ou non.' 
 
 ### passuk 15

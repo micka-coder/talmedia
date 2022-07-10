@@ -7,7 +7,7 @@
 <b>Continuellement,</b> de nuit en nuit, comme [l'expression] "un holocauste continuel", qui [ne vient] que de jour en jour. 
 
 ### passuk 3
-<b>Le rideau du témoignage,</b> qui se trouve devant l'arche, et qui est appelé "témoignage".</b> Et nos rabbins ont expliqué [cela comme faisant référence] à <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la lampe la plus occidentale, qui témoigne pour tous les habitants du monde que la Présence divine habite au milieu d'Israël. [C'est parce que le <i>kohen Godol</i>] y place autant d'huile que pour les autres lampes, [mais] c'est par elle qu'il commencerait [à allumer les lampes] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et c'est par elle qu'il s'achèverait. 
+<b>Le rideau du témoignage,</b> qui se trouve devant l'arche, et qui est appelé "témoignage".</b> Et nos sages ont expliqué [cela comme faisant référence] à <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la lampe la plus occidentale, qui témoigne pour tous les habitants du monde que la Présence divine habite au milieu d'Israël. [C'est parce que le <i>kohen Godol</i>] y place autant d'huile que pour les autres lampes, [mais] c'est par elle qu'il commencerait [à allumer les lampes] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et c'est par elle qu'il s'achèverait. 
 <b>Aharon la disposera [de manière à ce qu'elle brûle] du soir au matin.</b> Il devra la disposer de manière appropriée en fonction de la durée de chaque nuit ; les Sages ont estimé [cela] à la moitié d'un <i>log</i> pour chaque lampe, et cela convenait même aux [longues] nuits de la saison de Tévès, et cette mesure leur a été fixée [pour toute l'année]. 
 
 ### passuk 4
@@ -70,7 +70,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Il lui sera fait ainsi.</b> Nos rabbins ont expliqué que [cela] ne [signifie] pas placer une tare réelle [sur lui], mais [plutôt] le paiement d'une somme d'argent. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Nous évaluons [sa valeur] comme celle d'un esclave [vendu sur un marché aux esclaves]. C'est pourquoi [יִנָתֵן,] on écrit "donner" à son sujet - quelque chose qui est donné de main en main. 
+<b>Il lui sera fait ainsi.</b> Nos sages ont expliqué que [cela] ne [signifie] pas placer une tare réelle [sur lui], mais [plutôt] le paiement d'une somme d'argent. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Nous évaluons [sa valeur] comme celle d'un esclave [vendu sur un marché aux esclaves]. C'est pourquoi [יִנָתֵן,] on écrit "donner" à son sujet - quelque chose qui est donné de main en main. 
 
 ### passuk 21
 <b>Quiconque frappe un animal devra en payer le prix,</b> ci-dessus (verset 18), [il] était question de celui qui tue un animal, et ici il est question de celui <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qui lui cause une blessure. 

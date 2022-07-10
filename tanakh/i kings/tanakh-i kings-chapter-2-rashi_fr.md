@@ -45,7 +45,7 @@
 
 ### passuk 19
 <b>Pour lui parler.</b> Pour parler en son nom, au nom d'Adoniyahou.<sup>11</sup><i class="footnote">Alternativement, au nom de Shlomo, parce qu'elle estimait que le royaume de Shlomo serait renforcé en accédant à la demande d'Adoniyahou.</sup> Malbim.</i>
-<b>Pour la mère du roi.</b> Nos rabbins ont dit [que cela se réfère] à Rus, la matriarche de la royauté.</sup>12</sup><i class="footnote">Voir Masechès Bava Basra 91b et Rachi à cet endroit. Rus était l'arrière arrière grand-mère de Shlomo qui était encore en vie lorsque Shlomo monta sur le trône.</i>
+<b>Pour la mère du roi.</b> Nos sages ont dit [que cela se réfère] à Rus, la matriarche de la royauté.</sup>12</sup><i class="footnote">Voir Masechès Bava Basra 91b et Rachi à cet endroit. Rus était l'arrière arrière grand-mère de Shlomo qui était encore en vie lorsque Shlomo monta sur le trône.</i>
 
 ### passuk 20
 

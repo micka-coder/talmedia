@@ -55,7 +55,7 @@
 <b>Et tu prendras garde à ton esprit, afin qu'il ne traite pas perfidement la femme de ta jeunesse</b> Ton esprit ne doit pas traiter perfidement.
 
 ### passuk 16
-<b>Si tu la détestes, renvoie-la</b> Nos Sages divergent à ce sujet dans le tractate Gittin (90b). Certains d'entre eux disent : Si tu la détestes, renvoie-la avec un acte de divorce, afin qu'elle puisse épouser quelqu'un d'autre.
+<b>Si tu la détestes, renvoie-la</b> Nos Sages divergent à ce sujet dans le traité Gittin (90b). Certains d'entre eux disent : Si tu la détestes, renvoie-la avec un acte de divorce, afin qu'elle puisse épouser quelqu'un d'autre.
 <b>Parce que l'injustice couvrira son vêtement</b> Mais ceci - est-il convenable de faire, que tu étendes ton manteau sur elle pour la garder pour toi comme ta femme, et que tu la provoques et la tourmentes constamment ?
 
 ### passuk 17

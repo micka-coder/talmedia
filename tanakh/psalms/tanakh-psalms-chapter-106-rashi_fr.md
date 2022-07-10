@@ -112,7 +112,7 @@
 
 ### passuk 45
 <b>Et Il s'est souvenu de son alliance</b> A cause du repentir.
-<Moïse, lui aussi, les a inclus dans un seul verset (Deut. 4:30) : "Dans cette détresse qui vous atteindra etc."
+<b>Moïse, lui aussi, les a inclus dans un seul verset (Deut. 4:30) : "Dans cette détresse qui vous atteindra etc."
 
 ### passuk 46
 

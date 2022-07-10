@@ -53,7 +53,7 @@
 
 ### passuk 18
 <b>Si, après le jubilé, il consacre son champ.</b> Et ainsi [aussi] s'il l'a consacré dès le jubilé et qu'il reste en possession du trésorier [du Temple], et que celui-ci vient le racheter après le jubilé -" 
-<b>alors le kohen calculera l'argent [dû] selon les années restantes,</b> selon la proportion. Comment cela se passe-t-il ? Notez que [le verset] fixe le prix pour quarante-neuf ans [à] cinquante <i>shekolim</i>, rapportant un <i>shekel</i> par an, et un <i>shekel</i> supplémentaire pour toutes ces années. Un shekel est quarante-huit pundionim donnant un  סֶלַע  [= shekel] et un  פּוּנְדְּיוֹן  par an, sauf qu'il manque un  פּוּנְדְּיוֹן  pour tous. Nos rabbins ont déclaré que le  פּוּנְדְּיוֹן  [manquant] est une commission pour le changement d'argent. [Par conséquent,] celui qui vient racheter [le champ] donne un  סֶלַע  [= <i>shekel</i>] et un  פּוּנְדְּיוֹן  pour chacune des années restantes jusqu'à l'année jubilaire. 
+<b>alors le kohen calculera l'argent [dû] selon les années restantes,</b> selon la proportion. Comment cela se passe-t-il ? Notez que [le verset] fixe le prix pour quarante-neuf ans [à] cinquante <i>shekolim</i>, rapportant un <i>shekel</i> par an, et un <i>shekel</i> supplémentaire pour toutes ces années. Un shekel est quarante-huit pundionim donnant un  סֶלַע  [= shekel] et un  פּוּנְדְּיוֹן  par an, sauf qu'il manque un  פּוּנְדְּיוֹן  pour tous. Nos sages ont déclaré que le  פּוּנְדְּיוֹן  [manquant] est une commission pour le changement d'argent. [Par conséquent,] celui qui vient racheter [le champ] donne un  סֶלַע  [= <i>shekel</i>] et un  פּוּנְדְּיוֹן  pour chacune des années restantes jusqu'à l'année jubilaire. 
 <b>Et son évaluation sera réduite en conséquence.</b> [C'est-à-dire, selon] le nombre d'années qui s'écoulent depuis l'année du jubilé jusqu'à l'année de rachat. 
 
 ### passuk 19
@@ -77,7 +77,7 @@
 
 ### passuk 25
 <b>Toutes tes évaluations seront dans de saints shekolim.</b> Chaque évaluation, concernant laquelle <i>shekolim</i> sont mentionnés, doit être dans de saints <i>shekolim</i>. 
-<b>Vingt geirah,</b> vingt <i>mo'oh</i>. Tels étaient-ils au début, mais ensuite ils ont ajouté un sixième. Nos rabbins ont déclaré : [Il y a] six <i>mo'oh</i> d'argent au <i>dinar</i>, vingt-quatre <i>mo'oh</i> au <i>sela'</i> [= un <i>shekel</i>]. 
+<b>Vingt geirah,</b> vingt <i>mo'oh</i>. Tels étaient-ils au début, mais ensuite ils ont ajouté un sixième. Nos sages ont déclaré : [Il y a] six <i>mo'oh</i> d'argent au <i>dinar</i>, vingt-quatre <i>mo'oh</i> au <i>sela'</i> [= un <i>shekel</i>]. 
 
 ### passuk 26
 <b>Un homme ne le consacrera pas,</b> pour un autre sacrifice, car il ne lui appartient pas. 
@@ -89,7 +89,7 @@
 <b>il sera vendu</b> - à d'autres.
 
 ### passuk 28
-<b>Cependant, toute dédicace, etc.</b> Nos rabbins étaient en désaccord sur la question. Certains disent que les consécrations non spécifiées appartiennent au trésor du Temple. Comment dois-je [alors] interpréter [le verset] : "Toute consécration en Israël sera à toi" ? Il s'agit des consécrations [faites explicitement pour les] <i>kohanim</i>, où [celui qui l'a consacré] a dit clairement : " Voici, c'est une dédicace pour le <i>kohen</i>." Et certains disent : les dédicaces non spécifiées [vont au] <i>kohen</i>. 
+<b>Cependant, toute dédicace, etc.</b> Nos sages étaient en désaccord sur la question. Certains disent que les consécrations non spécifiées appartiennent au trésor du Temple. Comment dois-je [alors] interpréter [le verset] : "Toute consécration en Israël sera à toi" ? Il s'agit des consécrations [faites explicitement pour les] <i>kohanim</i>, où [celui qui l'a consacré] a dit clairement : " Voici, c'est une dédicace pour le <i>kohen</i>." Et certains disent : les dédicaces non spécifiées [vont au] <i>kohen</i>. 
 <b>[Aucun de ces éléments] ne peut être vendu ou racheté,</b> mais doit être donné au <i>kohen</i>. Selon l'avis de celui qui dit : " Les dédicaces non spécifiées appartiennent au <i>kohen</i> ", ce verset est expliqué comme [se référant] aux dédicaces non spécifiées, et [selon] celui qui dit : " Les dédicaces non spécifiées appartiennent à l'entretien du Temple ", ce verset s'explique comme [se référant] aux dédicaces [explicitement dédiées] aux <i>kohanim</i>, car tous admettent que les dédicaces [dédiées] aux <i>kohanim</i> ne peuvent être rachetées, jusqu'à ce qu'elles arrivent entre les mains du <i>kohen</i>, [alors que] les dédicaces [dédiées] au Très-Haut peuvent être rachetées. 
 <b>Tout ce qui est consacré est très saint.</b> Celui qui dit que les dédicaces non spécifiées appartiennent à l'entretien du Temple, en apporte la preuve à partir d'ici, et celui qui dit [que] les dédicaces non spécifiées appartiennent aux <i>kohanim</i> explique [que la phrase], "Tout ce qui est consacré est très saint", enseigne que les dédicaces aux <i>kohanim</i> s'appliquent aux sacrifices les plus saints [comme] aux sacrifices de moindre degré. Il [les] donne au <i>kohen</i>, comme nous l'avons appris dans le Maseches Arochin : S'il s'agit d'un vu, il donne leur valeur, [et] s'il s'agit d'une offrande volontaire, il donne la valeur de son bénéfice. 
 <b>Que ce soit des personnes.</b> Comme par exemple, [si] il a consacré ses esclaves [cananéens] ou ses servantes cananéennes. 

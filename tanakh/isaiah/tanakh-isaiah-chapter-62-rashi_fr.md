@@ -15,7 +15,7 @@
 <b>Comme un jeune homme vit avec une vierge, etc.</b> Comme un jeune homme vit avec une vierge, ainsi vos enfants vivront en vous [après Jonathan].
 
 ### passuk 6
-<b>Sur tes murs, ô Jérusalem</b> Nos rabbins l'ont exposé selon son sens apparent comme désignant les anges qui rappellent au Seigneur, concernant sa destruction, de la construire. Que disent-ils ? (Ps. 102, 14) "Tu te lèveras, Tu auras pitié de Sion" ; (ibid. 132, 13) "Car le Seigneur a choisi Sion". Comme on le trouve dans le Tractate Menahoth (87a, Rashi ad loc.). Jonathan, [cependant,] rend "vos murs", les premiers ancêtres, qui nous protègent comme un mur.
+<b>Sur tes murs, ô Jérusalem</b> Nos sages l'ont exposé selon son sens apparent comme désignant les anges qui rappellent au Seigneur, concernant sa destruction, de la construire. Que disent-ils ? (Ps. 102, 14) "Tu te lèveras, Tu auras pitié de Sion" ; (ibid. 132, 13) "Car le Seigneur a choisi Sion". Comme on le trouve dans le Tractate Menahoth (87a, Rashi ad loc.). Jonathan, [cependant,] rend "vos murs", les premiers ancêtres, qui nous protègent comme un mur.
 <b>J'ai désigné des veilleurs</b> pour inscrire un livre de souvenirs, afin que leur mérite ne soit pas oublié de devant Moi.
 <b>Ils ne se tairont jamais</b> pour ne pas mentionner leur mérite devant Moi.
 <b>Ceux qui rappellent au Seigneur</b> le mérite des ancêtres.

@@ -34,7 +34,7 @@
 ### passuk 13
 
 ### passuk 14
-<Si un prosélyte habite parmi vous et apporte l'offrande de Pessah.</b> Peut-être que toute personne qui se convertit doit immédiatement apporter l'offrande de Pessah ? La Torah enseigne donc : "Une loi, etc..." Voici plutôt son sens : " Si un prosélyte habite parmi vous, et qu'il vienne apporter l'offrande de <i>Pesach</i> avec ses compagnons, il fera selon les statuts de l'offrande de <i>Pesach</i> et ses lois. 
+<b>Si un prosélyte habite parmi vous et apporte l'offrande de Pessah.</b> Peut-être que toute personne qui se convertit doit immédiatement apporter l'offrande de Pessah ? La Torah enseigne donc : "Une loi, etc..." Voici plutôt son sens : " Si un prosélyte habite parmi vous, et qu'il vienne apporter l'offrande de <i>Pesach</i> avec ses compagnons, il fera selon les statuts de l'offrande de <i>Pesach</i> et ses lois. 
 
 ### passuk 15
 <b>Le Mishkon [qui servait] de tente du témoignage.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Le <i>Mishkon</i> qui a été fait pour être une tente pour les tables du témoignage.

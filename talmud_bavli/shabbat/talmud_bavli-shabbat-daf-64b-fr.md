@@ -18,7 +18,7 @@ Elle peut sortir le Chabbat <b>avec</b> un <b>bonnet de laine ou avec une perruq
 Elle peut sortir le Chabbat <b>avec du poivre, ou avec un grain de sel, ou tout ce qui a été placé dans sa bouche</b> pour guérir ou pour empêcher la mauvaise odeur, <b>à condition qu'elle ne mette pas</b> ces objets dans sa bouche <b>pour la première fois le Chabbat. Et s'il est tombé, elle ne doit pas le remplacer.</b>
 
 ### Partie 7
-<b>Une fausse dent</b> ainsi que (Ramban) <b>une dent en or, Rabbi</b> Yehuda HaNasi <b>permet</b> de sortir avec, <b>et les rabbins interdisent</b> de le faire.
+<b>Une fausse dent</b> ainsi que (Ramban) <b>une dent en or, Rabbi</b> Yehuda HaNasi <b>permet</b> de sortir avec, <b>et les sages interdisent</b> de le faire.
 
 ### Partie 8
 <strong>GEMARA:</strong> Nous avons appris dans la mishna qu'une femme peut sortir avec différentes mèches de cheveux. La Guemara commente : <b>Et il est nécessaire</b> de citer tous les cas. <b>Si</b> la mishna <b>nous enseignait seulement</b> en ce qui concerne <b>ses propres cheveux</b>, j'aurais dit qu'elle peut sortir avec <b>parce qu'ils ne sont pas repoussants,</b> puisqu'il s'agit de ses propres cheveux ; il n'y a donc pas d'inquiétude à avoir de peur qu'elle en vienne à enlever les mèches et à les porter dans le domaine public. <b>Cependant,</b> les cheveux <b>d'une autre, qui sont repoussants</b> et d'une couleur différente de la sienne, <b>disent non,</b> elle ne peut pas sortir avec, par souci de ne pas être gênée, de les enlever, et de venir les porter dans le domaine public.

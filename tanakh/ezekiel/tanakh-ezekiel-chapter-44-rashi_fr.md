@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Sera fermée</b> Nos rabbins ont interprété ce verset comme faisant référence au guichet sud, car la porte du Heichal avait un guichet, une petite entrée. C'est ce que nous avons appris dans le Tractate Middoth (4:2) : La Grande Porte avait deux portillons, un au sud et un au nord. Personne n'est jamais entré dans celui du sud, dont Ezéchiel dit : "Cette porte sera fermée".
+<b>Sera fermée</b> Nos sages ont interprété ce verset comme faisant référence au guichet sud, car la porte du Heichal avait un guichet, une petite entrée. C'est ce que nous avons appris dans le Tractate Middoth (4:2) : La Grande Porte avait deux portillons, un au sud et un au nord. Personne n'est jamais entré dans celui du sud, dont Ezéchiel dit : "Cette porte sera fermée".
 <b>Passe par elle</b> dans le futur.
 
 ### passuk 3

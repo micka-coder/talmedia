@@ -91,7 +91,7 @@
 <b>Et comme un marteau</b> (pic en français), un pic. Et certains disent (marteau en français), un marteau.
 
 ### passuk 30
-<b>Ceux qui se volent Mes gardes</b> Ils ont des espions qui épient les vrais prophètes, qui écoutent l'expression avec laquelle ils prophétisent et disent de fausses prophéties avec cette même expression, comme le fit Hanania fils d'Azzur. Il a entendu Jérémie prophétiser sur la place du marché supérieure, "Voici que je brise l'arc d'Élam", et il a prophétisé sur la place du marché inférieure, "J'ai brisé le joug du roi de Babylone" (28:2), comme nos rabbins l'ont écrit dans Sanhedrin 89a.
+<b>Ceux qui se volent Mes gardes</b> Ils ont des espions qui épient les vrais prophètes, qui écoutent l'expression avec laquelle ils prophétisent et disent de fausses prophéties avec cette même expression, comme le fit Hanania fils d'Azzur. Il a entendu Jérémie prophétiser sur la place du marché supérieure, "Voici que je brise l'arc d'Élam", et il a prophétisé sur la place du marché inférieure, "J'ai brisé le joug du roi de Babylone" (28:2), comme nos sages l'ont écrit dans Sanhedrin 89a.
 
 ### passuk 31
 <b>Ceux qui forment leurs langues</b> qui apprennent à leurs langues à dire leurs faussetés avec l'expression, "dit le Seigneur", comme les vrais prophètes, afin qu'ils les croient.

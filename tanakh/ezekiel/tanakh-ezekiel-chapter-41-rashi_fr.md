@@ -28,7 +28,7 @@
 <b>Et elle s'élargissait</b> Et les cellules s'élargissaient constamment en montant, comme je l'ai expliqué : celle du milieu était plus large d'une coudée que celle du bas, et celle du haut [était] plus large d'une coudée que celle du milieu.
 <b>Et elle s'enroulait de plus en plus haut</b> [Héb.  וְנָסְבָה",] et elle était entourée d'un escalier en colimaçon, fiz en vieux français. Il s'agit d'une structure en pierre semblable à un pilier, avec des marches qui s'enroulent autour. La personne qui y monte a l'impression d'encercler un pilier de pierre. En allemand, on l'appelle un wendelstein. C'est ce que l'on entend lorsqu'on parle du Temple de Salomon (I Rois 6:8) : "Et par des escaliers tournants (לוּלִים), ils montèrent dans la [chambre] du milieu. " Cela aussi est traduit [en araméen] par  וּבִמְסִיבָתָא, comme  וְנָסְבָה לְמַעְלָה לְמַעְלָה " et il s'enroulait de plus en plus haut. L'escalier en spirale continuait à s'enrouler de plus en plus haut jusqu'au toit de la cellule la plus haute, comme il continue à l'expliquer, [de sorte que] l'escalier en spirale montait de la cellule la plus basse à celle du milieu et de celle du milieu à celle la plus haute.
 <b>Pour l'englobement de la Maison</b> aux cellules.
-<La partie la plus large de la Maison était donc en haut</b> C'est pourquoi nous avons dit : "Et elle s'est élargie et s'est enroulée de plus en plus haut" La partie la plus large de la Maison dans les cellules était en haut. La [cellule] la plus haute était plus large que toutes les autres.
+<b>La partie la plus large de la Maison était donc en haut</b> C'est pourquoi nous avons dit : "Et elle s'est élargie et s'est enroulée de plus en plus haut" La partie la plus large de la Maison dans les cellules était en haut. La [cellule] la plus haute était plus large que toutes les autres.
 <b>Et ainsi, [à partir] de la cellule la plus basse</b> Jonathan a rendu : "Et ainsi, avec l'escalier en colimaçon, ils montaient de la plus basse à la plus haute en passant par celle du milieu." Et ainsi ils montaient avec l'escalier en colimaçon de la plus basse à la plus haute en passant par celle du milieu.
 
 ### passuk 8
@@ -112,7 +112,7 @@
 
 ### passuk 26
 <b>aux côtés de la Salle</b> Les deux côtés de l'entrée.
-<b>et les supports de la Maison et les poutres</b> Et il me montra les supports et les poutres. Et nos rabbins de mémoire bénie ont dit (Bava Kamma 67a) : Les  צַלְעוֹתהַבַּיִת  font référence aux  מַלְטַסִים. Et les  עֻבִּים  font référence à  מְרִישּׁוֹת. Maintenant, que sont les  מְרִישּׁוֹת ? Ce sont des poutres. Et que sont les  מַלְטַסִים ? Ce sont des planches de cèdre placées au sommet des murs, sur lesquelles sont posées les extrémités des poutres.
+<b>et les supports de la Maison et les poutres</b> Et il me montra les supports et les poutres. Et nos sages de mémoire bénie ont dit (Bava Kamma 67a) : Les  צַלְעוֹתהַבַּיִת  font référence aux  מַלְטַסִים. Et les  עֻבִּים  font référence à  מְרִישּׁוֹת. Maintenant, que sont les  מְרִישּׁוֹת ? Ce sont des poutres. Et que sont les  מַלְטַסִים ? Ce sont des planches de cèdre placées au sommet des murs, sur lesquelles sont posées les extrémités des poutres.
 
 >Crédit : sefaris
 >License : CC-BY

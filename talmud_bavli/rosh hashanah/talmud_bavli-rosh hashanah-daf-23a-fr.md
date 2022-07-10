@@ -39,7 +39,7 @@ A propos du verset précité, <b>Rabbi Yoḥanan a dit : Chacun des acacias que 
 <b>Et Rabbi Yoḥanan</b> a encore <b>dit : Malheur aux nations</b> du monde, <b>car elles n'ont aucun remède</b> pour les péchés qu'elles ont commis contre le peuple juif, <b>comme il est dit : "Pour le laiton, je ferai venir l'or, et pour le fer, je ferai venir l'argent, et pour le bois, l'airain, et pour les pierres, le fer"</b> (Isaïe 60, 17). Pour toutes choses, il existe un remède, car on peut toujours les échanger contre un objet de valeur équivalente ou supérieure. Cependant, <b>pour Rabbi Akiva et ses collègues,</b> que les nations ont mis à mort, <b>que peut-on apporter</b> pour expier leur péché ? <b>Et à leur égard, il est dit : Et je les tiendrai</b> comme innocents, mais pour leur sang je ne les tiendrai pas</b> <b>innocents</b> (voir Joël 4:21).
 
 ### Partie 14
-§ La mishna dit : <b>Et de</b> quelles montagnes <b>allumeront-ils</b> les <b>torches ?</b> Du Mont des Oliviers à Sartava, et de Sartava à Gerofina, et de Gerofina à Ḥavran, et de Ḥavran à Beit Baltin. <b>Et à partir de Beit Baltin</b>, ils n'allumeraient pas de torches dans d'autres endroits préétablis. La Gemara demande : <b>Quel est</b> ce lieu appelé <b>Beit Baltin ? Le Rav répond :</b>
+§ La mishna dit : <b>Et de</b> quelles montagnes <b>allumeront-ils</b> les <b>torches ?</b> Du Mont des Oliviers à Sartava, et de Sartava à Gerofina, et de Gerofina à Ḥavran, et de Ḥavran à Beit Baltin. <b>Et à partir de Beit Baltin</b>, ils n'allumeraient pas de torches dans d'autres endroits préétablis. La Gemara demande : <b>Quel est</b> ce lieu appelé <b>Beit Baltin ? Rav répond :</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

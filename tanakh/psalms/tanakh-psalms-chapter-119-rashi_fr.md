@@ -246,7 +246,7 @@
 ### passuk 97
 
 ### passuk 98
-<b>Chacun de Tes commandements me rend plus sage que mes ennemis</b> Concernant Doeg et Ahithophel, ils [les rabbins] ont dit que leurs conclusions finales n'étaient pas en accord avec la pratique adoptée. Le secret de la Torah est entre mes mains pour toujours, car j'ai acquis la compréhension de tous mes professeurs ; j'ai appris un peu de celui-ci et j'ai appris un peu de celui-là (après avoir appris de mon professeur distingué).
+<b>Chacun de Tes commandements me rend plus sage que mes ennemis</b> Concernant Doeg et Ahithophel, ils [les sages] ont dit que leurs conclusions finales n'étaient pas en accord avec la pratique adoptée. Le secret de la Torah est entre mes mains pour toujours, car j'ai acquis la compréhension de tous mes professeurs ; j'ai appris un peu de celui-ci et j'ai appris un peu de celui-là (après avoir appris de mon professeur distingué).
 
 ### passuk 99
 <b>Sont ma conversation</b> Toute ma conversation portait sur eux.
@@ -318,7 +318,7 @@
 ### passuk 125
 
 ### passuk 126
-<b>Un temps à faire pour le Seigneur, etc.</b> Cela renvoie au verset qui le précède : Rends-moi capable de comprendre, et je connaîtrai Tes témoignages, pour savoir un temps à faire pour Ton nom. Que doivent-ils faire, ceux qui ont annulé Ta Torah, pour trouver bonne volonté et pardon, et que Tu sois trouvé par eux, et je le ferai pour chaque transgression que j'ai commise. Nos rabbins, cependant, en ont déduit [de ce verset] que nous pouvons transgresser les paroles de la Torah afin de faire une clôture et un mur [une sauvegarde] pour Israël, par exemple Gédéon et Elie sur le Mont Carmel, qui ont sacrifié sur des lieux élevés (Ber. 63a). J'ai vu qu'il était expliqué plus en détail dans la Aggadah (Yerushalmi Ber. 9:4, Mid. Sam 1:1) comme signifiant : Une personne qui est oisive et nonchalante, qui consacre des moments [occasionnels] à sa Torah, annule l'alliance, car une personne oisive doit travailler dans la Torah à toute heure du jour.
+<b>Un temps à faire pour le Seigneur, etc.</b> Cela renvoie au verset qui le précède : Rends-moi capable de comprendre, et je connaîtrai Tes témoignages, pour savoir un temps à faire pour Ton nom. Que doivent-ils faire, ceux qui ont annulé Ta Torah, pour trouver bonne volonté et pardon, et que Tu sois trouvé par eux, et je le ferai pour chaque transgression que j'ai commise. Nos sages, cependant, en ont déduit [de ce verset] que nous pouvons transgresser les paroles de la Torah afin de faire une clôture et un mur [une sauvegarde] pour Israël, par exemple Gédéon et Elie sur le Mont Carmel, qui ont sacrifié sur des lieux élevés (Ber. 63a). J'ai vu qu'il était expliqué plus en détail dans la Aggadah (Yerushalmi Ber. 9:4, Mid. Sam 1:1) comme signifiant : Une personne qui est oisive et nonchalante, qui consacre des moments [occasionnels] à sa Torah, annule l'alliance, car une personne oisive doit travailler dans la Torah à toute heure du jour.
 
 ### passuk 127
 <b>Parce que j'ai aimé</b> Heb.  על-כן. Parce que j'ai aimé Tes commandements, il convient que Tu m'enseignes un temps de bonne volonté, et ce que je dois faire pour Toi pour que Tu m'acceptes. Il y a de nombreuses [occurrences de]  על-כן  qui doivent être interprétées comme "parce que" ; par exemple, (Gen. 33:10) : "parce que (כי על-כן) j'ai vu ta face" ; (Nombres 10:33). "parce que (כי על-כן) tu connais notre campement" ; (Isa. 15:7), "Parce que (כי על-כן) les nombreuses choses qu'ils ont faites."
@@ -409,7 +409,7 @@
 ### passuk 161
 
 ### passuk 162
-<b>Je me réjouis de Ta parole</b> De Ta promesse que Tu m'as faite. Autre explication : Sur une de Tes déclarations énigmatiques, quand je la comprends. Nos rabbins, cependant, l'ont interprété comme faisant référence à la circoncision, car [lorsque] David était dans la salle de bain et qu'il s'est vu sans zizith, sans tefillin et sans Torah, il a dit : " Malheur à moi, car je suis nu de tous les commandements. Dès qu'il pensa à la circoncision, il se réjouit et dit en sortant : " Je me réjouis de Ta parole ". [Cela fait référence à] la circoncision, qui fut d'abord donnée par une parole (אמירה"), et non par un discours (דיבור), comme il est dit (Gen. 17:9) : "Et Dieu dit (ויאמר) à Abraham : "Et tu garderas Mon alliance.'".
+<b>Je me réjouis de Ta parole</b> De Ta promesse que Tu m'as faite. Autre explication : Sur une de Tes déclarations énigmatiques, quand je la comprends. Nos sages, cependant, l'ont interprété comme faisant référence à la circoncision, car [lorsque] David était dans la salle de bain et qu'il s'est vu sans zizith, sans tefillin et sans Torah, il a dit : " Malheur à moi, car je suis nu de tous les commandements. Dès qu'il pensa à la circoncision, il se réjouit et dit en sortant : " Je me réjouis de Ta parole ". [Cela fait référence à] la circoncision, qui fut d'abord donnée par une parole (אמירה"), et non par un discours (דיבור), comme il est dit (Gen. 17:9) : "Et Dieu dit (ויאמר) à Abraham : "Et tu garderas Mon alliance.'".
 
 ### passuk 163
 

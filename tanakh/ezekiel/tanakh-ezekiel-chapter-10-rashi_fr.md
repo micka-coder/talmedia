@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>sur les têtes des chérubins</b> Sur les têtes des quatre êtres vivants du Chariot. Dans ce chapitre, il passe à les appeler [tous] chérubins car le visage du boeuf a été transformé en visage de chérubin, comme il est écrit dans ce chapitre. Nos rabbins ont dit (Chag. 13b) : Ezéchiel a imploré la pitié et l'a transformé en chérubin. Il a dit devant Lui : "Maître du monde, un accusateur ne peut pas devenir un défenseur".
+<b>sur les têtes des chérubins</b> Sur les têtes des quatre êtres vivants du Chariot. Dans ce chapitre, il passe à les appeler [tous] chérubins car le visage du boeuf a été transformé en visage de chérubin, comme il est écrit dans ce chapitre. Nos sages ont dit (Chag. 13b) : Ezéchiel a imploré la pitié et l'a transformé en chérubin. Il a dit devant Lui : "Maître du monde, un accusateur ne peut pas devenir un défenseur".
 
 ### passuk 2
 <b>Entre les roues</b> Héb. (בֵּינוֹתלַגַלְגַל) [lit. entre les roues] Partout où il est dit : "Et il dit... et il dit", c'est uniquement pour être développé. Le Saint, béni soit-Il, a dit à Gabriel [de prendre les charbons], mais il [Gabriel] a demandé au chérubin de [les prendre d'abord et ensuite] de les lui donner afin que les charbons refroidissent et que le décret soit atténué. Et ceci est clairement indiqué dans le chapitre (verset 7) : "Il ramassa [le feu] et le remit entre les mains de celui qui était vêtu de lin."
-<Il ne les a pas jetés immédiatement, et bien que celui qui était vêtu de lin les ait reçus, il ne les a jetés que six ans après les avoir reçus, car les charbons ont couvé dans sa main pendant ces six années. Et vous devez savoir [que cela est vrai] car cette prophétie a été dite la sixième année, et la ville a été détruite la onzième année.
+<b>Il ne les a pas jetés immédiatement, et bien que celui qui était vêtu de lin les ait reçus, il ne les a jetés que six ans après les avoir reçus, car les charbons ont couvé dans sa main pendant ces six années. Et vous devez savoir [que cela est vrai] car cette prophétie a été dite la sixième année, et la ville a été détruite la onzième année.
 
 ### passuk 3
 <b>À droite de la Maison</b> Au sud [du Temple].

@@ -55,7 +55,7 @@
 <b>Ta fontaine sera bénie, et tu te réjouiras avec la femme de ta jeunesse</b> C'est la Torah que tu as apprise dans ta jeunesse.
 
 ### passuk 19
-<b>Tu seras toujours en état d'ivresse</b> Heb.  תשגה". J'ai vu dans les paroles du rabbin Moshe Hadarshan que  תשגה " signifie "tu t'occuperas toujours", et que c'est une expression arabe. Il a cité comme preuve, " chercher shegiah ", ce qui signifie chercher des affaires, mais je ne sais pas où cela est énoncé. Mais nos Sages l'ont expliqué comme une expression d'intoxication (lit. inadvertance), comme sa signification apparente. A cause de son amour, tu seras par inadvertance dans tes autres affaires, car elle gardera tes affaires. On dit à propos de Rabbi Eléazar, fils de Pedath, qu'il prêchait dans le marché inférieur et que son manteau était étendu dans le marché supérieur. Un jour, un homme vint et trouva un serpent enroulé dessus.
+<b>Tu seras toujours en état d'ivresse</b> Heb.  תשגה". J'ai vu dans les paroles de Rabbi Moshe Hadarshan que  תשגה " signifie "tu t'occuperas toujours", et que c'est une expression arabe. Il a cité comme preuve, " chercher shegiah ", ce qui signifie chercher des affaires, mais je ne sais pas où cela est énoncé. Mais nos Sages l'ont expliqué comme une expression d'intoxication (lit. inadvertance), comme sa signification apparente. A cause de son amour, tu seras par inadvertance dans tes autres affaires, car elle gardera tes affaires. On dit à propos de Rabbi Eléazar, fils de Pedath, qu'il prêchait dans le marché inférieur et que son manteau était étendu dans le marché supérieur. Un jour, un homme vint et trouva un serpent enroulé dessus.
 
 ### passuk 20
 

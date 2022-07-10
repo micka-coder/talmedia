@@ -9,7 +9,7 @@
 <b>Et toute l'armée du ciel se fondra</b> Ils seront effrayés quand je renverserai les princes des païens.([Rendement des Mss. :] les princes des nations.) ([Edition de Varsovie :] de l'Assyrie et de Babylone.)
 <b>Ils seront roulés</b> (וְנָגֹלּוּ) une expression de roulement. Et les cieux seront roulés comme un rouleau. Jonathan rend : Et ils seront effacés de dessous les cieux, comme il est dit d'eux dans le Livre. Mais je l'explique selon le contexte, car maintenant, les royaumes des Ismaélites (les nations [ms.]) (les méchants [éd. de Varsovie]) ont la fortune et la lumière. Quand ils seront effacés et détruits, ce sera comme si le monde s'était obscurci pour eux, comme si le soleil et la lumière étaient enroulés comme le roulement d'un rouleau.
 <b>Flétris</b> (יִבּוֹל) flétris.
-<b>Et comme une [figue] desséchée d'un figuier</b> Le fruit desséché d'un arbre est appelé  נוֹבְלוֹת. C'est ce qu'expliquent nos rabbins (Ber. 40b) : Que sont les "noveloth' ? Les fruits mûris dans le chauffoir, qui deviennent mûrs dans le chauffoir. Après les avoir cueillis, il les rassemble et ils se réchauffent et mûrissent.
+<b>Et comme une [figue] desséchée d'un figuier</b> Le fruit desséché d'un arbre est appelé  נוֹבְלוֹת. C'est ce qu'expliquent nos sages (Ber. 40b) : Que sont les "noveloth' ? Les fruits mûris dans le chauffoir, qui deviennent mûrs dans le chauffoir. Après les avoir cueillis, il les rassemble et ils se réchauffent et mûrissent.
 
 ### passuk 5
 <b>Parce que Mon épée s'est rassasiée dans le ciel</b> Pour tuer les princes célestes, et ensuite elle s'abattra sur la nation Ismaël ([mss. et Kli Paz :] Edom) ([éd. Varsovie :] Babyloniens) en bas, car aucune nation ne souffre tant que son prince ne souffre pas dans le ciel.

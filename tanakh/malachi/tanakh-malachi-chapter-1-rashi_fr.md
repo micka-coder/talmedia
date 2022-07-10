@@ -23,7 +23,7 @@
 <b>Mais vous avez dit : "Comment avons-nous méprisé ?"</b> Je savais que vous diriez : "Comment avons-nous méprisé ?" C'est le mépris [qui suit :].
 
 ### passuk 7
-<b>Vous offrez sur Mon autel, etc. et pourtant vous dites</b> Et si vous dites . <b>Comment t'avons-nous souillé ?</b> Comment avons-nous souillé pour Toi le pain de Ton autel ? Je vous réponds que, de cette manière, vous m'avez souillé. <Ils considéraient avec mépris le partage égal des offrandes et des aliments saints, et ils disaient : "Puisque nous ne pouvons pas partager une offrande pour une offrande, ou un sacrifice pour un sacrifice, c'est trop d'ennui et de travail que de diviser chaque offrande pour le morceau de la taille d'une olive ou d'un haricot qui est attribué à chacun".
+<b>Vous offrez sur Mon autel, etc. et pourtant vous dites</b> Et si vous dites . <b>Comment t'avons-nous souillé ?</b> Comment avons-nous souillé pour Toi le pain de Ton autel ? Je vous réponds que, de cette manière, vous m'avez souillé. <b>Ils considéraient avec mépris le partage égal des offrandes et des aliments saints, et ils disaient : "Puisque nous ne pouvons pas partager une offrande pour une offrande, ou un sacrifice pour un sacrifice, c'est trop d'ennui et de travail que de diviser chaque offrande pour le morceau de la taille d'une olive ou d'un haricot qui est attribué à chacun".
 
 ### passuk 8
 <b>N'y a-t-il rien de mal?</b> Cette chose n'est-elle pas mauvaise ?
@@ -41,7 +41,7 @@
 <b>Oyea, une oblation pure</b> c'est pour Moi, car par vous Mon Nom est craint parmi les nations. Mais vous Me profanez, Moi et Mon Nom.
 
 ### passuk 12
-<L'expression de l'autel qui court sur vos lèvres est toujours : "Sa nourriture est méprisable" ; c'est tout ce que vous en dites. Vous avez déjà répandu cette calomnie, et vous avez fortement attaché cette expression à Mon autel.
+<b>L'expression de l'autel qui court sur vos lèvres est toujours : "Sa nourriture est méprisable" ; c'est tout ce que vous en dites. Vous avez déjà répandu cette calomnie, et vous avez fortement attaché cette expression à Mon autel.
 <b>Sa nourriture</b> sa nourriture.
 
 ### passuk 13

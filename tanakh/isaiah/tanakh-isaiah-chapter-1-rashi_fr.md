@@ -45,7 +45,7 @@
 <b>Nous serions bientôt comme Sodome</b> Nous serions tous détruits.
 
 ### passuk 10
-<b>Dirigeants de Sodome</b> Princes dont les actes sont semblables à ceux de Sodome. De là, [les rabbins] ont déduit qu'une personne ne doit pas ouvrir sa bouche à Satan.
+<b>Dirigeants de Sodome</b> Princes dont les actes sont semblables à ceux de Sodome. De là, [les sages] ont déduit qu'une personne ne doit pas ouvrir sa bouche à Satan.
 
 ### passuk 11
 <b>Je suis rassasié d'holocaustes de béliers</b> Ceci est similaire à : " De peur qu'il n'ait trop de toi et ne te déteste " (Proverbes 25:18).

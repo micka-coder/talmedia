@@ -3,7 +3,7 @@
 <b>de l'apporter</b> a nouveau. Par consequent, le second transport doit egalement etre effectue par un pretre.
 
 ### Partie 2
-<b>Rabbi Yirmeya a dit a Rav Ashi : C'est</b> ce que <b>Rav Yirmeya de Difti a dit</b> lorsqu'il a declare <b>qu'il est necessaire d'apporter</b> a nouveau le sang a l'autel, et que par consequent le second convoyage est considere comme un rite sacrificiel et doit etre effectue par un pretre : Il voulait dire que ce principe est sujet a <b>une dispute</b> entre <b>Rabbi Eliezer et les rabbins.</b>
+<b>Rabbi Yirmeya a dit a Rav Ashi : C'est</b> ce que <b>Rav Yirmeya de Difti a dit</b> lorsqu'il a declare <b>qu'il est necessaire d'apporter</b> a nouveau le sang a l'autel, et que par consequent le second convoyage est considere comme un rite sacrificiel et doit etre effectue par un pretre : Il voulait dire que ce principe est sujet a <b>une dispute</b> entre <b>Rabbi Eliezer et les sages.</b>
 
 ### Partie 3
 C'est <b>comme nous l'avons appris</b> dans la mishna (13a) : <b>Rabbi Eliezer dit :</b> En ce qui concerne <b>celui qui transporte</b> le sang <b>dans une situation ou il est tenu de le transporter</b>, une <b>intention</b> interdite lors du transport <b>disqualifie</b> l'offrande. S'il transmet le sang <b>dans une situation ou il n'est pas tenu de le transmettre</b>, le <b>sens interdit</b> pendant qu'il le transmet <b>ne disqualifie pas</b> l'offrande.

@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Il va de soi, tant selon Rabbi Eliezer que selon les rabbins,</b> que <b>lorsqu'il la separe, il l'a separee</b> entierement. En la rendant entierement permise pour un jour, il dissout le lien entre eux et le divorce prend effet.
+<b>Il va de soi, tant selon Rabbi Eliezer que selon les sages,</b> que <b>lorsqu'il la separe, il l'a separee</b> entierement. En la rendant entierement permise pour un jour, il dissout le lien entre eux et le divorce prend effet.
 
 ### Partie 2
 <b>Les Sages ont enseigne</b> (<i>Tosefta</i> 6:7) que si un homme dit a sa femme : <b>Voici ton acte de divorce a condition que tu epouses untel ou untel, elle ne peut pas epouser</b> cet homme, <b>mais si elle l'epouse</b> le mariage est valide et <b>elle</b> n'a pas besoin de <b>separer</b> son mari.

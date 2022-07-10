@@ -40,7 +40,7 @@
 <b>Les montagnes et les collines éclateront en chants devant toi</b> car elles te donneront leurs fruits et leurs plantes, et leurs habitants en tireront profit. ([Certaines éditions lisent :] Et leurs habitants chanteront.)
 
 ### passuk 13
-<b>A la place de la bruyère, etc.</b> Nos rabbins ont expliqué [Targum Jonathan] : A la place des méchants, des justes se lèveront.
+<b>A la place de la bruyère, etc.</b> Nos sages ont expliqué [Targum Jonathan] : A la place des méchants, des justes se lèveront.
 <b>ruban...et...ortie</b> Ce sont des espèces d'épines ; c'est-à-dire pour dire que les méchants seront détruits et que les justes prendront leur règne.
 
 >Crédit : sefaris

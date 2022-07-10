@@ -130,7 +130,7 @@ Heb.  צחה " araméen pour la soif.
 
 ### passuk 17
 <b>Et les agneaux paîtront comme à leur habitude</b> Les justes qui sont comparés à un troupeau de brebis.
-<b>Comme leur habitude</b> Héb.  כדברם. Selon leur habitude, avec équité et avec mesure, guidant leurs affaires avec justice, comme ces agneaux. [Variante de lecture : Selon leur habitude, avec équité et de leur propre chef, car il n'y aura plus de méchants dans le monde, qui les voleront]. Nos rabbins ont expliqué  כְּדָבְרָם  pour signifier : Selon tout ce qui a été dit à leur sujet, [c'est-à-dire] les consolations prononcées pour eux.
+<b>Comme leur habitude</b> Héb.  כדברם. Selon leur habitude, avec équité et avec mesure, guidant leurs affaires avec justice, comme ces agneaux. [Variante de lecture : Selon leur habitude, avec équité et de leur propre chef, car il n'y aura plus de méchants dans le monde, qui les voleront]. Nos sages ont expliqué  כְּדָבְרָם  pour signifier : Selon tout ce qui a été dit à leur sujet, [c'est-à-dire] les consolations prononcées pour eux.
 <b>et...les ruines des gros</b> les maisons des méchants, qui sont gros.
 <b>Les séjournants en mangeront</b> Les justes, qui sont comme des séjournants, les mangeront.
 <b>Gros</b> Heb.  מֵחִים, signifiant "gras", comme (Psaumes 66 : 15) : "J'offrirai des holocaustes de veaux gras."
@@ -168,7 +168,7 @@ Heb.  צחה " araméen pour la soif.
 ### passuk 25
 <b>C'est pourquoi</b> [c'est à dire] à cause de ces actes qu'ils ont commis.
 <b>et les montagnes ont tremblé</b> [Ceci est symbolique de] leurs rois et leurs princes.
-<b>Comme des crachats</b> Heb.  כַּסּוּחָה", comme des crachats et des vomissures, qui sont expulsés (נִיסָח-) du corps d'une personne, ce qui est répugnant. Dans la langue des rabbins, on l'appelle  סְחִי  et ainsi (Lamentations 3:45) : "Loathsome et rejeté."
+<b>Comme des crachats</b> Heb.  כַּסּוּחָה", comme des crachats et des vomissures, qui sont expulsés (נִיסָח-) du corps d'une personne, ce qui est répugnant. Dans la langue des sages, on l'appelle  סְחִי  et ainsi (Lamentations 3:45) : "Loathsome et rejeté."
 <b>Au milieu des rues</b> Ils seront donc détestables parmi les nations.
 <b>Avec tout cela</b> qui s'est abattu sur eux.
 <b>Sa colère ne s'est pas retournée</b> Ils n'ont pas été redressés par leurs actes pour que Sa colère se retourne.

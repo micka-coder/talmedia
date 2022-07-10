@@ -23,10 +23,10 @@
 <b>Dans les animaux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> On en déduit que " ce qui se trouve dans l'animal, vous pouvez le manger.' On en déduit que le ftus est autorisé par l'abattage de sa mère. 
 
 ### passuk 7
-<b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les rabbins remarquent : Pourquoi ont-ils été répétés ? Les animaux  à cause du dromadaire, et les volailles  à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
+<b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les sages remarquent : Pourquoi ont-ils été répétés ? Les animaux  à cause du dromadaire, et les volailles  à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
 
 ### passuk 8
-<b>Et n'entrez pas en contact avec leurs carcasses.</b> Les rabbins expliquent que cela s'applique pendant les fêtes, car un homme est tenu de se purifier pendant la fête. Peut-être l'admonition s'applique-t-elle tout au long de l'année ? La Torah enseigne donc : "Dis aux <i>kohanim,</i> etc." Si la malpropreté émanant d'un cadavre humain est stricte, restreignant uniquement les <i>kohanim,</i> mais pas les Israélites - alors la malpropreté indulgente émanant d'une carcasse d'animal l'est - certainement. 
+<b>Et n'entrez pas en contact avec leurs carcasses.</b> Les sages expliquent que cela s'applique pendant les fêtes, car un homme est tenu de se purifier pendant la fête. Peut-être l'admonition s'applique-t-elle tout au long de l'année ? La Torah enseigne donc : "Dis aux <i>kohanim,</i> etc." Si la malpropreté émanant d'un cadavre humain est stricte, restreignant uniquement les <i>kohanim,</i> mais pas les Israélites - alors la malpropreté indulgente émanant d'une carcasse d'animal l'est - certainement. 
 
 ### passuk 9
 

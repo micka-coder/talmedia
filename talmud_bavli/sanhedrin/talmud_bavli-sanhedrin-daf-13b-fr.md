@@ -33,7 +33,7 @@ La Gemara demande : <b>Mais</b> selon <b>Rabbi Shimon, n'est-il pas ecrit : "Et<
 <b>Rav Aha, fils de Rava, dit a Rav Ashi :</b> Est-ce qu'ils <b>l'ordonnent litteralement avec la main ?</b> Rav Ashi lui <b>dit : Ils l'ordonnent par son nom</b> en l'annoncant publiquement ; <b>on l'appelle : Rabbi, et ils lui donnent la permission de juger</b> des cas impliquant des <b>lois d'amendes.</b>
 
 ### Partie 12
-La Guemara demande : <b>Et</b> est-ce que c'est ainsi que <b>un</b> homme seul n'est <b>pas</b> capable de <b>ordonner</b> un rabbin ? <b>Mais Rav Yehuda ne dit-il pas</b> que <b>Rav dit : En effet [<i>beram</i>], on se souviendra favorablement de cet homme, et Rabbi Yehuda ben Bava est son nom, car sans lui, les lois des amendes auraient ete oubliees de</b> parmi <b>le peuple juif.</b> La Guemara conteste cette affirmation : <b>Est-ce que</b> les lois des amendes auraient reellement <b>ete oubliees ? Qu'ils les etudient,</b> afin qu'elles ne soient pas oubliees. <b>Au contraire,</b> son intention etait de dire que .
+La Guemara demande : <b>Et</b> est-ce que c'est ainsi que <b>un</b> homme seul n'est <b>pas</b> capable de <b>ordonner</b> un Rabbi ? <b>Mais Rav Yehuda ne dit-il pas</b> que <b>Rav dit : En effet [<i>beram</i>], on se souviendra favorablement de cet homme, et Rabbi Yehuda ben Bava est son nom, car sans lui, les lois des amendes auraient ete oubliees de</b> parmi <b>le peuple juif.</b> La Guemara conteste cette affirmation : <b>Est-ce que</b> les lois des amendes auraient reellement <b>ete oubliees ? Qu'ils les etudient,</b> afin qu'elles ne soient pas oubliees. <b>Au contraire,</b> son intention etait de dire que .
 
 >Credit : Edition William Davidson
 >License : CC-BY-NC

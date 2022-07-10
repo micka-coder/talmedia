@@ -69,7 +69,7 @@ La Gemara répond : <b>En fait,</b> la mishna est selon l'avis du <b>premier <i>
 <b>Rabbi Ḥiyya bar Avin dit</b> que <b>Rabbi Yoḥanan a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabban Shimon ben Gamliel, qui l'a dit</b> <b>au nom de Rabbi Yosei.</b>
 
 ### Partie 24
-<b>Rabbi Yoḥanan a dit : Et tous deux,</b> Rabban Shimon ben Gamliel et Rabbi Eliezer, fils de Rabbi Yosei, <b>interprétèrent le même verset</b> différemment, ce qui les amena à leurs conclusions. Il est écrit : "Pour leur enjoindre de célébrer le quatorzième jour du mois d'Adar et le quinzième jour du même, <b>chaque année"</b> (Esther 9:21). <Rabbi Eliezer, fils de Rabbi Yosei, soutient : <b>Dans chaque année"</b> enseigne que Pourim doit être célébrée de la même manière chaque année, même si elle est intercalée : <b>De même que chaque année</b> Pourim est célébrée pendant <b>Adar qui est adjacent à Shevat, de même ici</b> dans une année intercalée, Pourim est célébrée pendant <b>Adar qui est adjacent à Shevat.</b>
+<b>Rabbi Yoḥanan a dit : Et tous deux,</b> Rabban Shimon ben Gamliel et Rabbi Eliezer, fils de Rabbi Yosei, <b>interprétèrent le même verset</b> différemment, ce qui les amena à leurs conclusions. Il est écrit : "Pour leur enjoindre de célébrer le quatorzième jour du mois d'Adar et le quinzième jour du même, <b>chaque année"</b> (Esther 9:21). <b>Rabbi Eliezer, fils de Rabbi Yosei, soutient : <b>Dans chaque année"</b> enseigne que Pourim doit être célébrée de la même manière chaque année, même si elle est intercalée : <b>De même que chaque année</b> Pourim est célébrée pendant <b>Adar qui est adjacent à Shevat, de même ici</b> dans une année intercalée, Pourim est célébrée pendant <b>Adar qui est adjacent à Shevat.</b>
 
 ### Partie 25
 <b>Et Rabban Shimon ben Gamliel soutient : "Dans chaque année"</b> enseigne que <b>tout comme chaque année</b> Pourim est célébré dans <b>Adar qui est adjacent à Nisan, de même ici,</b> dans une année intercalaire, Pourim est célébré pendant <b>Adar qui est adjacent à Nisan.</b>
@@ -81,7 +81,7 @@ La Gemara demande : <b>Accordé,</b> selon <b>Rabbi Eliezer, fils de Rabbi Yosei
 <b>Rabbi Tavi a dit : La raison</b> de l'avis <b>de Rabban Shimon ben Gamliel</b> est que <b>juxtaposer</b> la célébration d'une <b>rédemption,</b> Pourim, <b>à</b> la célébration d'une autre <b>rédemption,</b> Pessah, <b>est préférable.</b>
 
 ### Partie 28
-<b>Rabbi Elazar a dit : La raison</b> de l'opinion <b>de Rabban Shimon ben Gamliel</b> est dérivée <b>d'ici, comme il est écrit : "Pour confirmer cette deuxième lettre de Pourim"</b> (Esther 9:29), indiquant qu'il existe des circonstances oà¹ la Megilla est lue une deuxième fois (Talmud de Jérusalem), c'est-à -dire lorsque l'année a été intercalée après que la Megilla ait été lue dans le premier Adar.
+<b>Rabbi Elazar a dit : La raison</b> de l'opinion <b>de Rabban Shimon ben Gamliel</b> est dérivée <b>d'ici, comme il est écrit : "Pour confirmer cette deuxième lettre de Pourim"</b> (Esther 9:29), indiquant qu'il existe des circonstances où la Megilla est lue une deuxième fois (Talmud de Jérusalem), c'est-à -dire lorsque l'année a été intercalée après que la Megilla ait été lue dans le premier Adar.
 
 ### Partie 29
 La Gemara commente : <b>Et il était nécessaire d'écrire</b>.

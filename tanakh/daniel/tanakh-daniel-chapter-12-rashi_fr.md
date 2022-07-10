@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>A ce moment-là, Michel...se taira</b> Il se taira comme un muet, car il verra le Saint, béni soit-il, juger par lui-même et dire : "Comment détruirai-je une grande nation comme celle-ci pour l'amour d'Israël ?".
-<b>et ce sera un temps de détresse</b> dans le ciel, il y aura des accusations contre les érudits de la Torah, [et il y aura] des pilleurs et des pilleurs de pilleurs, comme nos rabbins l'ont dit dans l'Aggadah du dernier chapitre de Kethuboth (112b).
+<b>et ce sera un temps de détresse</b> dans le ciel, il y aura des accusations contre les érudits de la Torah, [et il y aura] des pilleurs et des pilleurs de pilleurs, comme nos sages l'ont dit dans l'Aggadah du dernier chapitre de Kethuboth (112b).
 <b>Ton peuple s'échappera</b> Le royaume de Gog sera détruit et Israël s'échappera.
 <b>Quiconque est trouvé inscrit dans le livre</b> C'est un verset court, [signifiant] quiconque est trouvé inscrit dans ce livre, par les rêves qui y sont inscrits (7 : 11) : " jusqu'à ce que la bête soit tuée " ; (verset 18) : "et les hauts saints recevront le royaume." Tout s'accomplira.
 

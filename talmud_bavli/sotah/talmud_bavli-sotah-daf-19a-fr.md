@@ -9,7 +9,7 @@
 Les opinions sont justifiees comme suit : <b>Le premier <i>tanna</i> tient</b> que l'expression <b>"la loi de</b> la jalousie" sert <b>a inclure tous ces</b> cas. Dans presque tous les cas, la femme boit et repete. Le mot <b>"cette"</b> sert <b>a exclure</b> uniquement le cas de <b>un mari et un amant,</b> dans lequel elle ne boit pas et ne repete pas.
 
 ### Partie 4
-<b>Et les rabbins</b> mentionnes <b>plus tard</b> dans le <i>baraita</i> <b>sont d'avis</b> que le mot <b>Ceci</b> sert <b>a exclure tous ces</b> cas. La femme ne boit presque jamais et repete. L'expression <b>La loi de</b> la jalousie sert <b>a inclure</b> uniquement le cas de <b>deux maris et deux amants,</b> dans lequel elle boit et repete.
+<b>Et les sages</b> mentionnes <b>plus tard</b> dans le <i>baraita</i> <b>sont d'avis</b> que le mot <b>Ceci</b> sert <b>a exclure tous ces</b> cas. La femme ne boit presque jamais et repete. L'expression <b>La loi de</b> la jalousie sert <b>a inclure</b> uniquement le cas de <b>deux maris et deux amants,</b> dans lequel elle boit et repete.
 
 ### Partie 5
 <b>Et Rabbi Yehuda</b> soutient : Le mot <b>Ceci</b> sert <b>a exclure deux</b> des cas, et la phrase <b>La loi de</b> la jalousie sert <b>a en inclure deux. </b> Le mot <b>Ceci</b> sert <b>a exclure</b> les <b>deux</b> cas de <b>un mari et un amant</b> et <b>un mari et deux amants.</b> Dans aucun de ces cas, la femme ne boit et ne repete. L'expression <b>La loi de</b> la jalousie sert <b>a inclure deux</b> cas, c'est-a-dire <b>deux maris et un paramour,</b> et a plus forte raison <b>deux maris et deux paramours.</b> Dans ces deux cas, la femme doit boire et repeter.

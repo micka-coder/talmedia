@@ -38,7 +38,7 @@
 <b>et ses trésors</b> l'endroit où étaient déposés les trésors des objets saints.
 
 ### passuk 12
-<b>Ce qu'il avait par l'esprit</b> Comme Samuel le Voyant le lui a montré, comme il est écrit (ci-dessus 9:22) : "... que David et Samuel ont établi de façon permanente." Nos rabbins ont dit (<i>Zeb.</i> 54b) (I Sam. 19:22) : "... il demanda et dit : "Où sont Samuel et David?' Et on répondit : "Behold à Naioth à Ramah.'" Ils étaient engagés dans la construction du monde. Cela fait référence au Temple. Et il lui enseigna à ce moment-là ce qu'un étudiant fidèle ne peut apprendre en plusieurs années. (<i>Moyen Sam.</i> 22:4)
+<b>Ce qu'il avait par l'esprit</b> Comme Samuel le Voyant le lui a montré, comme il est écrit (ci-dessus 9:22) : "... que David et Samuel ont établi de façon permanente." Nos sages ont dit (<i>Zeb.</i> 54b) (I Sam. 19:22) : "... il demanda et dit : "Où sont Samuel et David?' Et on répondit : "Behold à Naioth à Ramah.'" Ils étaient engagés dans la construction du monde. Cela fait référence au Temple. Et il lui enseigna à ce moment-là ce qu'un étudiant fidèle ne peut apprendre en plusieurs années. (<i>Moyen Sam.</i> 22:4)
 <b>Environ, des trésors de la Maison de Dieu et des trésors des choses sanctifiées</b> mais il n'explique pas lesquelles des choses sanctifiées que David et les chefs des maisons des pères ont sanctifiées [il fait référence] ; et à ce moment-là, ils ont été nommés sur cela jusqu'à ce qu'ils construisent le Temple, mais ces trésors ont toujours existé aussi longtemps que le Temple existait.
 
 ### passuk 13

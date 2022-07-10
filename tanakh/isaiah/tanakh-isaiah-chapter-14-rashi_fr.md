@@ -13,7 +13,7 @@
 <b>De ta tristesse et de ton frémissement</b> que le roi de Babylone t'a attristé et fait frémir, et quand tu verras sa chute, tu seras soulagé, puisque tu sortiras libre.
 
 ### passuk 4
-<b>Le hautain</b> Heb.  מַדְהֵבָה". Une expression d'un excès de haut-le-cur et d'un lourd fardeau. Nos rabbins, cependant, l'expliquent ainsi : Ceux qui disent, "Mesure et apporte.'
+<b>Le hautain</b> Heb.  מַדְהֵבָה". Une expression d'un excès de haut-le-cur et d'un lourd fardeau. Nos sages, cependant, l'expliquent ainsi : Ceux qui disent, "Mesure et apporte.'
 
 ### passuk 5
 <b>Le Seigneur a brisé le bâton des méchants</b> Car il voulait frapper les peuples de colère.
@@ -42,7 +42,7 @@
 
 ### passuk 12
 <b>Lucifer, l'étoile du matin</b> Il s'agit de Vénus, qui donne la lumière comme l'étoile du matin,  הֵילֵל  étant dérivé de  יהל, répandre la lumière. C'est la lamentation sur le prince céleste de Babylone, qui tombera du ciel.
-<b>Tu as été réduit à la terre</b> Toi, Nabuchodonosor, qui voulais tirer au sort les nations. Tu tirais au sort sur elles, sur les rois, qui d'entre eux te servirait tel ou tel jour, et qui tel ou tel jour. Nos rabbins, cependant, ont interprété cela comme signifiant qu'il devait tirer au sort les rois à des fins de pédérastie.
+<b>Tu as été réduit à la terre</b> Toi, Nabuchodonosor, qui voulais tirer au sort les nations. Tu tirais au sort sur elles, sur les rois, qui d'entre eux te servirait tel ou tel jour, et qui tel ou tel jour. Nos sages, cependant, ont interprété cela comme signifiant qu'il devait tirer au sort les rois à des fins de pédérastie.
 
 ### passuk 13
 <b>Au-dessus des étoiles de Dieu</b> Israël.
@@ -86,7 +86,7 @@
 
 ### passuk 23
 <b>Hérisson</b> Heb.  קִפֹּד " [hricon ou hericon en ancien français.] [En français moderne, il s'écrit herisson].
-<b>et je balaierai</b> Heb.  וְטִאטֵאתִיהָ, une expression de balayage [eskober en ancien français], comme l'ont déclaré nos rabbins : Les Rabbins ne connaissaient pas le sens de  וְטִאטֵאתִיהָ בְּמַטְאֲטֵא הַשְׁמֵד", jusqu'à ce qu'ils entendent [le Rabbin' (R. Judah Hanasi) dire à son ami : " Prends un balai (מַטְאֲטֵא) et balaie (וְטַאְטְאִי) la maison ".]
+<b>et je balaierai</b> Heb.  וְטִאטֵאתִיהָ, une expression de balayage [eskober en ancien français], comme l'ont déclaré nos sages : Les Rabbins ne connaissaient pas le sens de  וְטִאטֵאתִיהָ בְּמַטְאֲטֵא הַשְׁמֵד", jusqu'à ce qu'ils entendent [le Rabbin' (R. Judah Hanasi) dire à son ami : " Prends un balai (מַטְאֲטֵא) et balaie (וְטַאְטְאִי) la maison ".]
 
 ### passuk 24
 <b>Comme je le pensais</b> concernant l'Assyrie, il en fut ainsi . Toi, Nabuchodonosor, tu as vu que les paroles des prophètes d'Israël sur Sennachérib se sont accomplies.

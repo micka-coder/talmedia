@@ -43,7 +43,7 @@
 <b>tremblements</b> [comme traduit,] tremblements.
 
 ### passuk 12
-<b>et je suis venu à cause de vos paroles</b> Je suis venu dans cette mission à cause de vos paroles. Nos rabbins, cependant, ont expliqué dans le Tractate Yoma (77a) : "et je suis venu dans le rideau à cause de toi, car j'étais banni de son milieu."
+<b>et je suis venu à cause de vos paroles</b> Je suis venu dans cette mission à cause de vos paroles. Nos sages, cependant, ont expliqué dans le Tractate Yoma (77a) : "et je suis venu dans le rideau à cause de toi, car j'étais banni de son milieu."
 
 ### passuk 13
 <b>S'est dressé contre moi</b> pour me combattre dans le ciel en demandant une extension du royaume pour la Perse afin de lui permettre de vous subjuguer (Israël). Voici vingt et un jours qu'il s'est dressé contre moi.

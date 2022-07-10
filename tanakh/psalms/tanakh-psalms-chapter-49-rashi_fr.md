@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Écoutez ceci, vous tous, peuples</b> Parce que ce psaume est basé sur des gens qui s'appuient sur leurs richesses, il dit : "vous tous, peuples", car ils ont tous besoin d'une admonition.
-<b>Terre</b> Héb.  חלוד". Ce [terme] est [utilisé pour décrire] la terre parce qu'elle est vieille et rouillée (חלודה"), rodile en vieux français, rouille, rouille en français moderne. Mais nos Sages ont expliqué que c'est à cause de la belette (חֻלְדָה"), qui fréquente la terre ferme mais ne se trouve pas dans la mer, car les rabbins ont enseigné (Hul. 127a) : Tout ce qui est sur la terre ferme se trouve dans la mer, sauf la belette.
+<b>Terre</b> Héb.  חלוד". Ce [terme] est [utilisé pour décrire] la terre parce qu'elle est vieille et rouillée (חלודה"), rodile en vieux français, rouille, rouille en français moderne. Mais nos Sages ont expliqué que c'est à cause de la belette (חֻלְדָה"), qui fréquente la terre ferme mais ne se trouve pas dans la mer, car les sages ont enseigné (Hul. 127a) : Tout ce qui est sur la terre ferme se trouve dans la mer, sauf la belette.
 
 ### passuk 3
 <b>Les deux fils de "adam"</b> Les fils d'Abraham, qui a été appelé (Josh. 14:15) : " le plus grand homme (האדם) parmi les géants " ; les fils d'Ismaël et les fils de Keturah.

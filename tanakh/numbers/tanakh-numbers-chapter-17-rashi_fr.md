@@ -31,7 +31,7 @@
 ### passuk 10
 
 ### passuk 11
-<C'est le secret que l'ange de la mort lui a transmis lorsqu'il [Moshé] est monté au ciel, à savoir que l'encens retient la peste, comme l'indique le <i>Masechès</i> Chabbat. 
+<b>C'est le secret que l'ange de la mort lui a transmis lorsqu'il [Moshé] est monté au ciel, à savoir que l'encens retient la peste, comme l'indique le <i>Masechès</i> Chabbat. 
 
 ### passuk 12
 

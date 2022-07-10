@@ -50,7 +50,7 @@
 
 ### passuk 12
 <b>Le fer brisera-t-il le fer du nord</b> Je dis que le fer qui vient du nord est plus dur que les autres fers, et voici son interprétation : Ils ont été comparés à du fer (ci-dessus 6:28), "Aller porter comme le cuivre et le fer." Et concernant Jérémie il est dit (ci-dessus 1:18) : " J'ai fait de toi... une colonne de fer et des murs de cuivre ", et les siens sont plus forts que les leurs, car Nabuchodonosor s'abattra sur eux selon ses paroles.
-<Leur fer brisera-t-il le vôtre ? Autre explication : Pharaon qui vient à votre secours, qui est dur comme le fer, brisera-t-il Nabuchodonosor, qui est le fer qui vient du nord et du cuivre ? Le Targum Jonathan penche dans ce sens.
+<b>Leur fer brisera-t-il le vôtre ? Autre explication : Pharaon qui vient à votre secours, qui est dur comme le fer, brisera-t-il Nabuchodonosor, qui est le fer qui vient du nord et du cuivre ? Le Targum Jonathan penche dans ce sens.
 
 ### passuk 13
 <b>Ta richesse</b> Une expression de l'argent.

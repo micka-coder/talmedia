@@ -1,6 +1,6 @@
 
 #### Partie 1
-Vous pouvez garder cette question <b>pour vous,</b> car elle ne pose aucune difficulte. <b>Ben Bag Bag</b> enonce <b>un avis individuel</b> a cet egard, <b>et les rabbins ne sont pas d'accord avec lui.</b>
+Vous pouvez garder cette question <b>pour vous,</b> car elle ne pose aucune difficulte. <b>Ben Bag Bag</b> enonce <b>un avis individuel</b> a cet egard, <b>et les sages ne sont pas d'accord avec lui.</b>
 
 ### Partie 2
 <b>Rabbi Yannai dit</b> une reponse alternative a l'objection de Rav Kahana : <b>Que</b> signifie la <i>baraita</i> par la phrase : <b>Casser ses dents?</b> Cela signifie le poursuivre <b>en justice.</b>

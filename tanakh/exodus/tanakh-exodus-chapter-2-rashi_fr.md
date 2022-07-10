@@ -53,7 +53,7 @@ passuk 13
 passuk 14
 <b>Qui a fait de toi un homme ?</b> "et tu es encore un garçon".
 <b>Tu as l'intention de me tuer.</b> On en déduit qu'il a tué [l'Égyptien] avec le Nom divin.
-<Moché a été effrayé. Comme son sens ordinaire l'indique. Mais son interprétation midrashique est la suivante : il était inquiet de voir parmi les Israélites des méchants qui étaient des délateurs. Il a donc pensé : si c'est le cas, alors peut-être ne méritent-ils pas d'être rachetés.
+<b>Moché a été effrayé. Comme son sens ordinaire l'indique. Mais son interprétation midrashique est la suivante : il était inquiet de voir parmi les Israélites des méchants qui étaient des délateurs. Il a donc pensé : si c'est le cas, alors peut-être ne méritent-ils pas d'être rachetés.
 <b>Alors l'affaire est connue.</b> Comme son sens l'implique. Mais l'interprétation midrashique est : <b>La chose est devenue connue <i>pour moi,</i> car je m'étais interrogé à ce sujet. En quoi le péché d'Israël était-il supérieur à celui de l'ensemble des soixante-dix nations, pour être assujetti par un travail oppressif. Mais, je vois maintenant qu'ils l'ont mérité. 
 
 passuk 15
@@ -149,7 +149,7 @@ passuk 13
 passuk 14
 <b>Qui a fait de toi un homme ?</b> "et tu es encore un garçon".
 <b>Tu as l'intention de me tuer.</b> On en déduit qu'il a tué [l'Égyptien] avec le Nom divin.
-<Moché a été effrayé. Comme son sens ordinaire l'indique. Mais son interprétation midrashique est la suivante : il était inquiet de voir parmi les Israélites des méchants qui étaient des délateurs. Il a donc pensé : si c'est le cas, alors peut-être ne méritent-ils pas d'être rachetés.
+<b>Moché a été effrayé. Comme son sens ordinaire l'indique. Mais son interprétation midrashique est la suivante : il était inquiet de voir parmi les Israélites des méchants qui étaient des délateurs. Il a donc pensé : si c'est le cas, alors peut-être ne méritent-ils pas d'être rachetés.
 <b>Alors l'affaire est connue.</b> Comme son sens l'implique. Mais l'interprétation midrashique est : <b>La chose est devenue connue <i>pour moi,</i> car je m'étais interrogé à ce sujet. En quoi le péché d'Israël était-il supérieur à celui de l'ensemble des soixante-dix nations, pour être assujetti par un travail oppressif. Mais, je vois maintenant qu'ils l'ont mérité. 
 
 passuk 15

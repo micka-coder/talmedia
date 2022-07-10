@@ -64,7 +64,7 @@
 
 ### passuk 23
 <b>De tout interdit</b> De tout ce dont la Torah a ordonné de se méfier, garde ton cœur (de la transgression), que ce soit un péché mineur ou un péché grave.
-<Car les issues de la vie en découlent</b> En effet, d'un interdit, même mineur, tu auras la vie et une grande récompense si tu l'accomplis" a expliqué Rabbi Tanhuma.
+<b>Car les issues de la vie en découlent</b> En effet, d'un interdit, même mineur, tu auras la vie et une grande récompense si tu l'accomplis" a expliqué Rabbi Tanhuma.
 
 ### passuk 24
 <b>Eloigne de toi les paroles véreuses</b> Ne fais rien pour lequel les gens te calomnieront et rendront leurs bouches véreuses [en parlant] de toi.

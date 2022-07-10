@@ -34,7 +34,7 @@
 ### passuk 13
 
 ### passuk 14
-<L'étalon divin de la justice dit à l'Omniprésent : "Seigneur de l'univers, pourquoi as-tu écarté Saül pour David ?" [Dieu] répondit : "Parce qu'il n'a pas attendu sept jours pour Samuel comme il le lui avait ordonné" [comme dans I Sam. 13:814]. Le Saint, bénié soit-Il, dit encore : " Je vais maintenant mettre David à l'épreuve : encerclez-les ".
+<b>L'étalon divin de la justice dit à l'Omniprésent : "Seigneur de l'univers, pourquoi as-tu écarté Saül pour David ?" [Dieu] répondit : "Parce qu'il n'a pas attendu sept jours pour Samuel comme il le lui avait ordonné" [comme dans I Sam. 13:814]. Le Saint, bénié soit-Il, dit encore : " Je vais maintenant mettre David à l'épreuve : encerclez-les ".
 
 >Crédit : sefaris
 >Licence : CC-BY

@@ -76,7 +76,7 @@
 <b>Il les plaça.</b> Et il les dirigea.</sup></sup><i class="footnote">Alternativement, il les plaça. Metzudas David.</i>
 
 ### passuk 27
-<b>Comme des pierres.</b> Mais il est dit plus haut : "sans valeur".</sup>13</sup><i class="footnote">Au-dessus du v. 21.</i> Nos rabbins ont expliqué que l'un fait référence au temps avant que Shlomo n'épouse la fille de Pharaon, et l'autre au temps après que Shlomo ait épousé la fille de Pharaon.</sup>14</sup><i class="footnote">Voir Masech Sanhedrin 21b. Après que Shlomo ait épousé la fille de Pharaon et qu'il ait commencé à s'égarer, la nation est devenue moins prospère et l'argent a retrouvé une certaine valeur.</i>.
+<b>Comme des pierres.</b> Mais il est dit plus haut : "sans valeur".</sup>13</sup><i class="footnote">Au-dessus du v. 21.</i> Nos sages ont expliqué que l'un fait référence au temps avant que Shlomo n'épouse la fille de Pharaon, et l'autre au temps après que Shlomo ait épousé la fille de Pharaon.</sup>14</sup><i class="footnote">Voir Masech Sanhedrin 21b. Après que Shlomo ait épousé la fille de Pharaon et qu'il ait commencé à s'égarer, la nation est devenue moins prospère et l'argent a retrouvé une certaine valeur.</i>.
 
 ### passuk 28
 <b>La source des chevaux que possédait Shlomo.</b> venait d'Egypte.

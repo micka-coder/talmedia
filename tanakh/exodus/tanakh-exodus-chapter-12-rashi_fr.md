@@ -214,7 +214,7 @@
 <b>Et tu ne dois pas briser un de ses os.</b> [Un os] qui est comestible comme, par exemple, s'il a sur lui un morceau de chair <i>kezayis</i>, il y a l'interdiction de briser l'os. S'il n'a pas sur lui un <i>kezayis</i> de chair ou de moelle, il n'y a pas d'interdiction de briser l'os. 
 
 ### passuk 47
-<Toute la communauté d'Israël doit faire cette offrande.</b> Pourquoi cela est-il dit ? Parce qu'à propos du Pessah en Egypte, il est dit : " Un agneau pour une famille " [c'est-à-dire] qu'ils y étaient affectés selon les familles ; je pourrais donc penser que cela vaut pour le Pessah des générations suivantes. La Torah nous dit donc : " Toute la communauté d'Israël le fera ". 
+<b>Toute la communauté d'Israël doit faire cette offrande.</b> Pourquoi cela est-il dit ? Parce qu'à propos du Pessah en Egypte, il est dit : " Un agneau pour une famille " [c'est-à-dire] qu'ils y étaient affectés selon les familles ; je pourrais donc penser que cela vaut pour le Pessah des générations suivantes. La Torah nous dit donc : " Toute la communauté d'Israël le fera ". 
 
 ### passuk 48
 <b>Et veut faire l'offrande de Pessah.</b> Je pourrais penser que lorsqu'on se convertit, on doit immédiatement faire le service de <i>korbon Pessah</i>, la Torah nous dit donc : <b>Et il sera comme le natif</b> - de même que le natif [apporte le Pessah] le 14, de même le converti [l'apporte] le 14. 
@@ -440,7 +440,7 @@
 <b>Et tu ne dois briser aucun de ses os.</b> [Un os] qui est comestible comme, par exemple, s'il a sur lui un morceau de chair <i>kezayis</i>, il y a l'interdiction de briser l'os. S'il n'a pas sur lui un <i>kezayis</i> de chair ou de moelle, il n'y a pas d'interdiction de briser l'os. 
 
 ### passuk 47
-<Toute la communauté d'Israël doit faire cette offrande.</b> Pourquoi cela est-il dit ? Parce qu'à propos du Pessah en Egypte, il est dit : " Un agneau pour une famille " [c'est-à-dire] qu'ils y étaient affectés selon les familles ; je pourrais donc penser que cela vaut pour le Pessah des générations suivantes. La Torah nous dit donc : " Toute la communauté d'Israël le fera ". 
+<b>Toute la communauté d'Israël doit faire cette offrande.</b> Pourquoi cela est-il dit ? Parce qu'à propos du Pessah en Egypte, il est dit : " Un agneau pour une famille " [c'est-à-dire] qu'ils y étaient affectés selon les familles ; je pourrais donc penser que cela vaut pour le Pessah des générations suivantes. La Torah nous dit donc : " Toute la communauté d'Israël le fera ". 
 
 ### passuk 48
 <b>Et veut faire l'offrande de Pessah.</b> Je pourrais penser que lorsqu'on se convertit, on doit immédiatement faire le service de <i>korbon Pessah</i>, la Torah nous dit donc : <b>Et il sera comme le natif</b> - de même que le natif [apporte le Pessah] le 14, de même le converti [l'apporte] le 14. 

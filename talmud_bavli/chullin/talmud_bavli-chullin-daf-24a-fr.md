@@ -1,6 +1,6 @@
 
 ### Partie 1
-La Guemara répond que <b>le verset dit</b> en ce qui concerne la génisse rouge : <b>"Et il l'abattra</b> (Nombres 19:3), <b>et</b> il mentionne le terme <b>statut : </b> "C'est le statut de la Torah" (Nombres 19:2), indiquant que <b>par l'abattage, oui,</b> la genisse rouge est rendue apte ; <b>par la rupture du cou,</b> la genisse rouge est <b>non</b> rendue apte.
+La Guemara répond que <b>le verset dit</b> en ce qui concerne la vache rousse : <b>"Et il l'abattra</b> (Nombres 19:3), <b>et</b> il mentionne le terme <b>statut : </b> "C'est le statut de la Torah" (Nombres 19:2), indiquant que <b>par l'abattage, oui,</b> la genisse rouge est rendue apte ; <b>par la rupture du cou,</b> la genisse rouge est <b>non</b> rendue apte.
 
 ### Partie 2
 La Gemara demande : <b>Et</b> est-il vrai que <b>partout ou une loi est ecrite a propos</b> d'une certaine matiere, <b>on n'apprend pas une deduction <i>a fortiori</i></b> ? <b>Mais</b> qu'en est-il <b>de Yom Kippour, a propos de laquelle la loi est ecrite :</b> "Et ceci sera pour vous une loi eternelle" (Levitique 16:34), <b>et</b> pourtant <b>elle est enseignee</b> dans une <i>baraita</i> : "Aaron fera avancer le bouc sur lequel est apparu le sort pour l'Eternel, <b>et il l'offrira en sacrifice pour le péché"</b> (Lévitique 16:9). Le verset indique que <b>le tirage au sort rend</b> le bouc <b>un sacrifice pour le peche, mais une designation verbale</b> du bouc avec le statut de sacrifice pour le peche <b>ne le rend pas</b> <b>un sacrifice pour le peche.</b>

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<A Beer Sheva. [בְּאֵרָה שָּׁבַע] est la même chose que  לִבְאֵר שָׁבַע  . Le suffixe  ה'  remplace le préfixe ' .
+<b>A Beer Sheva. [בְּאֵרָה שָּׁבַע] est la même chose que  לִבְאֵר שָׁבַע  . Le suffixe  ה'  remplace le préfixe ' .
 <b>Au Dieu de son père Yitzchak.</b> Une personne doit honorer son père plus qu'elle ne doit honorer son grand-père. Par conséquent, il a associé [les sacrifices] à Yitzchak et non à Avraham. 
 
 ### passuk 2

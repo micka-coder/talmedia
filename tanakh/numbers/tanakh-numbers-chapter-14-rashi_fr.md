@@ -8,7 +8,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Désignons (lit. placer) un chef.</b> Comme le Targum [Onkelos] le rend, "Désignons un chef, "Désignons un roi sur nous.' Les rabbins, de mémoire bénie, interprètent cela comme faisant référence à l'idolâtrie. 
+<b>Désignons (lit. placer) un chef.</b> Comme le Targum [Onkelos] le rend, "Désignons un chef, "Désignons un roi sur nous.' Les sages, de mémoire bénie, interprètent cela comme faisant référence à l'idolâtrie. 
 
 ### passuk 5
 

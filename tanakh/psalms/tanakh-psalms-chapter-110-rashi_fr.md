@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La parole du Seigneur à mon maître</b> Nos rabbins l'ont interprétée comme faisant référence à Abraham notre père, et je l'expliquerai selon leurs propos (Mid. Ps. 110:1) : La parole du Seigneur à Abraham, que le monde a appelé "mon maître", comme il est écrit (Gen. 23:6) : " Écoute-nous, mon maître ".
+<b>La parole du Seigneur à mon maître</b> Nos sages l'ont interprétée comme faisant référence à Abraham notre père, et je l'expliquerai selon leurs propos (Mid. Ps. 110:1) : La parole du Seigneur à Abraham, que le monde a appelé "mon maître", comme il est écrit (Gen. 23:6) : " Écoute-nous, mon maître ".
 <b>"Attendez ma droite"</b> Attendez mon salut et espérez le Seigneur. [La racine]  ישיבה " ne signifie que l'attente, comme l'indique l'Écriture (Deut. 1:46) : "Et vous êtes restés (ותשבו-) à Kadesh pendant de nombreux jours."
 <b>Pour ma droite</b> Pour le salut de ma droite.
 <b>Jusqu'à ce que je fasse de tes ennemis</b> Amraphel et ses alliés.

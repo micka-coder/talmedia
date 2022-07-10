@@ -12,13 +12,13 @@ La Guemara ajoute : <b>Aussi, il est raisonnable</b> de dire <b>que Rava tient c
 <b>On</b> peut <b>élaguer</b> les miettes de pain de la table,</b> même si elles sont <b>moins d'une botte d'olives, et les cosses de pois et de lentilles.</b> Même si elles ne sont pas propres à la consommation humaine, elles peuvent être déplacées <b>parce qu'elles sont du fourrage pour les animaux.</b>
 
 ### Partie 5
-En ce qui concerne <b>une éponge, si elle a du cuir</b> comme <b>manche, on peut essuyer</b> la table <b>avec elle, et sinon, on ne peut pas essuyer</b> la table <b>avec elle</b> de peur d'en venir à presser du liquide. <b>Et les rabbins disent : Tant ceci,</b> une éponge sèche avec un manche, <b>que cela,</b> une éponge sans manche, <b>peuvent être déplacés le Chabbat et cela ne devient pas rituellement impur.</b> Une éponge ne fait pas partie des substances qui peuvent devenir rituellement impures, ni par la loi de la Torah ni par décret rabbinique.
+En ce qui concerne <b>une éponge, si elle a du cuir</b> comme <b>manche, on peut essuyer</b> la table <b>avec elle, et sinon, on ne peut pas essuyer</b> la table <b>avec elle</b> de peur d'en venir à presser du liquide. <b>Et les sages disent : Tant ceci,</b> une éponge sèche avec un manche, <b>que cela,</b> une éponge sans manche, <b>peuvent être déplacés le Chabbat et cela ne devient pas rituellement impur.</b> Une éponge ne fait pas partie des substances qui peuvent devenir rituellement impures, ni par la loi de la Torah ni par décret rabbinique.
 
 ### Partie 6
 <strong>GEMARA :</strong> <b>Rav Naḥman a dit :</b> Inversez les deux avis, car <b>nous n'avons que Beit Shammai en accord avec</b> l'avis de <b>Rabbi Yehuda,</b> qui interdit de déplacer les objets mis en jachère, <b>et Beit Hillel en accord avec</b> l'avis de <b>Rabbi Shimon,</b> qui permet de le faire.
 
 ### Partie 7
-Nous avons appris dans la mishna : <On peut enlever les miettes de pain de la table. La Gemara commente : Ceci <b>appuie</b> l'avis du <b>Rabbi Yoḥanan, car Rabbi Yoḥanan a dit :</b> En ce qui concerne les <b>miettes qui sont inférieures à une botte d'olive, il est interdit de les détruire à la main</b> par déférence pour la nourriture.
+Nous avons appris dans la mishna : <b>On peut enlever les miettes de pain de la table. La Gemara commente : Ceci <b>appuie</b> l'avis du <b>Rabbi Yoḥanan, car Rabbi Yoḥanan a dit :</b> En ce qui concerne les <b>miettes qui sont inférieures à une botte d'olive, il est interdit de les détruire à la main</b> par déférence pour la nourriture.
 
 ### Partie 8
 Nous avons appris dans la mishna : On peut débarrasser les <b>pois</b> et les <b>gousses</b> de lentilles de la table le Chabbat. La Guemara demande : <b>De quel avis</b> <b>s'agit-il</b> dans la mishna ? C'est l'avis de <b>Rabbi Shimon, qui n'est pas</b> d'avis qu'il y a une interdiction de <b>mettre de côté.</b>

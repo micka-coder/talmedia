@@ -41,7 +41,7 @@
 
 ### passuk 15
 <b>Sera brisé par elle</b> Le méchant qui a donné son cœur en caution à l'idolâtrie.
-<b>Mais celui qui déteste les serreurs de mains</b> Ceux qui serrent les mains des séducteurs pour suivre leurs conseils. Mais nos rabbins ont expliqué cela en ce qui concerne la caution en matière monétaire.
+<b>Mais celui qui déteste les serreurs de mains</b> Ceux qui serrent les mains des séducteurs pour suivre leurs conseils. Mais nos sages ont expliqué cela en ce qui concerne la caution en matière monétaire.
 
 ### passuk 16
 <b>S'approche de l'honneur</b> Heb.  תתמךš. Le peuple d'Israël s'approche constamment de l'honneur du Saint, béni soit-il, et de sa Torah. (

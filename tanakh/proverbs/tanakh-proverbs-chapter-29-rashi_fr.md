@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>établit le pays</b> S'il est un juge honnête, il établit le pays.
-<b>Mais un homme hautain</b> Heb.  תרומות, un homme hautain, qui ne se soucie pas de prendre du temps dans le jugement. Nos rabbins (Keth. 105b) ont déclaré : "Si le juge est comme un roi, qui n'a pas besoin de se faire des amis et d'accepter des pots-de-vin, il établit le pays. Mais s'il est comme un prêtre, qui demande des terumoth dans les aires de battage, il le démolit.
+<b>Mais un homme hautain</b> Heb.  תרומות, un homme hautain, qui ne se soucie pas de prendre du temps dans le jugement. Nos sages (Keth. 105b) ont déclaré : "Si le juge est comme un roi, qui n'a pas besoin de se faire des amis et d'accepter des pots-de-vin, il établit le pays. Mais s'il est comme un prêtre, qui demande des terumoth dans les aires de battage, il le démolit.
 
 ### passuk 5
 <b>Flatter</b> Heb.  מחליק, parler avec aisance.

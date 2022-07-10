@@ -72,7 +72,7 @@
 <b>Tu peux payer l'usure à l'étranger.</b> Mais pas à ton frère. Un commandement négatif déduit du positif constitue un commandement positif  <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> de sorte qu'il transgresse, pour cela, deux commandements négatifs et un commandement positif. 
 
 ### passuk 22
-<b>Ne tardez pas à vous en acquitter.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour trois fêtes. Les rabbins tirent cela de l'Écriture.
+<b>Ne tardez pas à vous en acquitter.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour trois fêtes. Les sages tirent cela de l'Écriture.
 
 ### passuk 23
 

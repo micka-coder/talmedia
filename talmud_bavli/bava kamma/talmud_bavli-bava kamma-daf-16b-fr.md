@@ -72,7 +72,7 @@ La Guemara demande : <b>Accorde, selon celui qui dit qu'on le soupconne d'avoir<
 La Gemara, ci-dessus, a cite un verset concernant l'enterrement du roi Ezechias. La Gemara cite la suite de ce verset : <b>"Et ils lui rendirent honneur dans sa mort"</b> (IIA Chroniques 32:33). Ceci <b>enseigne qu'ils etablirent une yeshiva sur sa tombe</b> pour y etudier la Torah.
 
 ### Partie 25
-<b>Rabbi Natan et les rabbins sont en desaccord</b> en ce qui concerne cette yeshiva : <b>L'un d'eux dit : </b> Ils y ont etudie pendant <b>trois</b> jours.
+<b>Rabbi Natan et les sages sont en desaccord</b> en ce qui concerne cette yeshiva : <b>L'un d'eux dit : </b> Ils y ont etudie pendant <b>trois</b> jours.
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

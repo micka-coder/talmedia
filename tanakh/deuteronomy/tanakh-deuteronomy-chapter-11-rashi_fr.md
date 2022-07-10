@@ -81,7 +81,7 @@
 ### passuk 22
 <b>Tu gardes vraiment.</b> Cette admonestation comprend de nombreux avertissements. Il faut être assidu dans l'apprentissage, afin de ne pas l'oublier. 
 <b>Pour marcher dans toutes Ses voies.</b> Il est miséricordieux  vous devez être miséricordieux. Il agit avec bonté  tu devrais agir avec bonté.
-<Et s'attacher à Lui. Est-il possible de dire cela ? N'est-il pas un feu dévorant ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Rattache-toi plutôt aux disciples et aux sages, et je te créditerai comme si tu t'étais attaché à Lui. 
+<b>Et s'attacher à Lui. Est-il possible de dire cela ? N'est-il pas un feu dévorant ? <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Rattache-toi plutôt aux disciples et aux sages, et je te créditerai comme si tu t'étais attaché à Lui. 
 
 ### passuk 23
 <b>Hachem expulsera.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous avez rempli vos obligations  je remplirai moi aussi mon obligation. 

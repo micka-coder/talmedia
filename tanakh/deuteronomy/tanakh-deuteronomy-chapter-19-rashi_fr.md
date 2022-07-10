@@ -11,7 +11,7 @@
 
 ### passuk 5
 <b>Et comme sa main se balançait. .vers le bas.</b> Alors qu'il abaissait la hache sur l'arbre. Le Targum [Onkelos] rend  וְתִתְמְרֵיג יְדֵהּ, ce qui signifie "sa main était abaissée" pour frapper un coup de hache vers le bas sur l'arbre. "Car le bétail l'a abaissée," Yonasan rend,  אֲרֵי מְרַגוּהִי תּוֹרַיָּא  . 
-<b>Le fer s'est envolé du manche en bois.</b> Certains rabbins disent que le fer s'est envolé du manche. Mais d'autres disent que le fer a détaché un éclat de l'arbre en train d'être ébréché. Celui-ci s'est envolé et a causé la mort. 
+<b>Le fer s'est envolé du manche en bois.</b> Certains sages disent que le fer s'est envolé du manche. Mais d'autres disent que le fer a détaché un éclat de l'arbre en train d'être ébréché. Celui-ci s'est envolé et a causé la mort. 
 
 ### passuk 6
 <b>De peur que le Rédempteur du sang ne poursuive.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est pourquoi je vous ordonne de préparer la route, et [pourquoi il y a] de nombreux sites de refuge. 

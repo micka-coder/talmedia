@@ -144,7 +144,7 @@
 <b>Et "Impur, impur" criera-t-il.</b> Il doit annoncer qu'il est impur <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>[afin que les gens] s'éloignent de lui. 
 
 ### passuk 46
-<b>Il habitera seul </b>afin que d'autres personnes impures n'habitent pas avec lui. Nos rabbins ont dit : Pourquoi se distingue-t-il des autres personnes impures pour habiter seul ? Puisque <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par sa langue calomnieuse, il a séparé l'homme de sa femme, et un homme de son compatriote juif, ainsi lui aussi sera séparé. 
+<b>Il habitera seul </b>afin que d'autres personnes impures n'habitent pas avec lui. Nos sages ont dit : Pourquoi se distingue-t-il des autres personnes impures pour habiter seul ? Puisque <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par sa langue calomnieuse, il a séparé l'homme de sa femme, et un homme de son compatriote juif, ainsi lui aussi sera séparé. 
 <b>Au delà du campement.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au delà des trois campements.
 
 ### passuk 47

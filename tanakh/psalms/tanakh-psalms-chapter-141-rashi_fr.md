@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Leurs juges ont été égarés par [leur cœur de] pierre</b> Car les juges et les chefs de ce [peuple] ont été égarés de la bonne voie par le mauvais penchant et le cœur de pierre, et il est dur comme le roc.
-<b>bien qu'ils aient entendu mes paroles</b> [mes] paroles agréables, que je prononce sur les commandements, et ils ne se repentent pas de leur mauvaise voie. Nos rabbins dans la Baraitha de Sifrei (Deut. 3 : 23) l'ont interprété à propos de Moïse et Aaron, mais je ne peux pas réconcilier la fin du verset avec son début. Je peux peut-être la réconcilier et dire que dans l'obstination, ces gens égalent l'obstination de ceux par qui Moïse et Aaron sont morts à travers le rocher, car eux aussi ont entendu les paroles agréables mais ne se repentent pas.
+<b>bien qu'ils aient entendu mes paroles</b> [mes] paroles agréables, que je prononce sur les commandements, et ils ne se repentent pas de leur mauvaise voie. Nos sages dans la Baraitha de Sifrei (Deut. 3 : 23) l'ont interprété à propos de Moïse et Aaron, mais je ne peux pas réconcilier la fin du verset avec son début. Je peux peut-être la réconcilier et dire que dans l'obstination, ces gens égalent l'obstination de ceux par qui Moïse et Aaron sont morts à travers le rocher, car eux aussi ont entendu les paroles agréables mais ne se repentent pas.
 
 ### passuk 7
 <b>Comme celui qui coupe</b> le bois.

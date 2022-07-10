@@ -21,7 +21,7 @@ La Guemara rejette cette explication. <b>Non, en fait, je vous dirai</b> que <b>
 La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Qui est un <i>ger toshav</i> ? </b> C'est <b>toute personne qui a accepte sur elle devant trois <i>haverim</i>,</b> c'est-a-dire, des personnes devouees a l'observance meticuleuse des mitzvot, notamment des <i>halakhot</i> de purete rituelle, de la <i>teruma</i> et de la dime, <b>de ne pas adorer les idoles.</b> C'est <b>la declaration de Rabbi Meir.</b>
 
 ### Partie 8
-<b>Et les rabbins disent : Quiconque a accepte sur lui</b> l'observance des <b>sept mitzvot que les descendants de Noe ont accepte sur eux</b> est un <i>ger toshav</i>.
+<b>Et les sages disent : Quiconque a accepte sur lui</b> l'observance des <b>sept mitzvot que les descendants de Noe ont accepte sur eux</b> est un <i>ger toshav</i>.
 
 ### Partie 9
 <b>D'autres disent : Ceux-ci ne sont pas entres dans la categorie des <i>ger toshav</i>. Au contraire, qui est un <i>ger toshav</i> ? C'est un converti</b> qui <b>mange</b> des <b>carcasses d'animaux non abattus,</b> qui ne sont pas cacheres, mais <b>qui a accepte sur lui-meme d'observer toutes les mitzvot qui sont enoncees dans la Torah a l'exception de l'interdiction</b> de manger des <b>carcasses non abattues.</b>

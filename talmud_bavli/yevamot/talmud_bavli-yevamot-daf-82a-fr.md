@@ -39,7 +39,7 @@ La Guemara souleve une question par rapport a l'avis de Rabbi Yohans : <b>Et</b>
 <b>Accorde, selon Reish Lakish,</b> qui soutient que la <i>teruma</i> s'applique aujourd'hui par la loi rabbinique, ceci est logique, car <b>il soutient</b> que meme <b>en ce qui concerne</b> la <i>teruma</i> qui n'est en vigueur que <b>par la loi rabbinique</b>, <b>on exige aussi</b> que la partie permise du melange soit <b>plus grande</b> en quantite pour qu'elle puisse annuler la partie interdite. <b>Mais selon Rabbi Yohanan,</b> c'est <b>difficile</b> car s'il soutient que meme de nos jours le <i>teruma</i> est mandate par la loi de la Torah, comment peut-on ignorer cette preoccupation et autoriser le melange en se basant simplement sur l'hypothese que les evenements se sont produits d'une maniere qui preserve le produit dans son etat permis ?
 
 ### Partie 14
-La Guemara repond que Rabbi Yohanan peut dire : Conformement a l'avis de <b>qui</b> <b>cette <i>baraita</i> est enseignee ? <b>C'est</b> conformement a l'opinion des <b>rabbins,</b> qui soutiennent que <i>teruma</i> de nos jours n'est en vigueur que par la loi rabbinique.
+La Guemara repond que Rabbi Yohanan peut dire : Conformement a l'avis de <b>qui</b> <b>cette <i>baraita</i> est enseignee ? <b>C'est</b> conformement a l'opinion des <b>sages,</b> qui soutiennent que <i>teruma</i> de nos jours n'est en vigueur que par la loi rabbinique.
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

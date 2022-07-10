@@ -24,7 +24,7 @@
 
 ### passuk 8
 <b>Avec les liens d'Elohim.</b> Menachem ben Saruk explique [נַפְתּוּלֵי] dans le <i>Machberes</i> [comme ayant la même racine que]  צָמִיד פָּתִיל  [une couverture qui  פָּתִיל  attachait]. [Je [Rachi] l'explique [comme ayant une racine commune avec]  עִקֵּשׁ וּפְתַלְתּוֹל  " pervers et tortueux. [Signifiant ici :] "J'ai obstinément plaidé de nombreuses suppliques tortueuses à Dieu afin d'être l'égal de ma sur.
-<Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה "  prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma soeur ". 
+<b>Onkelos explique [נַפְתּוּלֵי] par le terme  תְּפִלָה "  prière "Avec les liens d'Elohim, j'ai été joint," [c'est-à-dire que j'ai prié] de nombreuses prières [à Dieu] qui lui étaient agréables. J'ai été acceptée et mes [prières] ont été exaucées comme ma soeur ". 
 <b>J'ai été unie.</b> [Signification :] "Ma prière a été acceptée" Il existe [également] de nombreuses interprétations midrashiques utilisant <i>Notarikon</i> [pour expliquer  נִפְתַּלְתִי].
 
 ### passuk 9

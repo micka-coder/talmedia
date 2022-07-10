@@ -48,7 +48,7 @@ La Guemara cite un conseil similaire : Si, par honneur pour les morts, <b>on sou
 La Guemara relate que <b>Neḥemya, fils de Rav Ḥanilai, était</b> un jour tellement <b>englué dans</b> son <b>apprentissage</b> qu'il n'a pas remarqué qu'il <b>sortait au-delà</b> de sa limite de Chabbat. <b>Rav Ḥisda dit à Rav Naḥman : Ton élève Neḥemya est en détresse,</b> car il est hors de la limite du Chabbat et ne peut y entrer. Que pouvons-nous faire pour lui ?
 
 ### Partie 17
-Le Rav Naḥman <b>lui dit : Établissez pour lui une cloison humaine,</b> c'est-à-dire que les personnes qui sont autorisées à sortir là-bas doivent s'aligner et former des murs humains, à travers lesquels il est autorisé à marcher et ainsi <b>rentrer</b> dans la limite du Chabbat.
+Rav Naḥman <b>lui dit : Établissez pour lui une cloison humaine,</b> c'est-à-dire que les personnes qui sont autorisées à sortir là-bas doivent s'aligner et former des murs humains, à travers lesquels il est autorisé à marcher et ainsi <b>rentrer</b> dans la limite du Chabbat.
 
 ### Partie 18
 <b>Rav Naḥman bar Yitzḥak s'est assis derrière Rava, et Rava s'est assis</b> au premier rang <b>avant Rav Naḥman. Rav Naḥman bar Yitzḥak dit à Rava : Quel</b> précisément <b>était le dilemme</b> de Rav Ḥisda qu'il a adressé à Rav Naḥman concernant la détresse de Neḥemya ?

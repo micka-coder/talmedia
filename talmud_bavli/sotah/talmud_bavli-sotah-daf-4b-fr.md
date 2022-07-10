@@ -48,7 +48,7 @@ Cette interpretation <b>pose une difficulte</b> aux Sages de <b>l'ecole de Rabbi
 <b>Au contraire,</b> les Sages <b>de l'ecole de Rabbi Sheila disent :</b> Ceci enseigne que <b>meme</b> si celui qui a des rapports sexuels avec une adultere avait <b>recu la Torah</b> de la main de Dieu <b>comme Moise notre maitre</b>, <b>il est ecrit a son sujet : "A sa droite etait une loi ardente pour eux"</b> (Deuteronome 33:2), c'est-a-dire que Dieu a donne la Torah de sa droite dans la main de Moise afin de la donner au peuple juif, le pecheur <b>ne restera pas impuni du jugement de la Gehenne</b>.
 
 ### Partie 17
-<b>Cette</b> interpretation pose egalement une <b>difficulte au rabbin Yohanan : Cette</b> phrase "<b>main a main"</b> n'est pas la facon dont le verset presenterait cette idee. <b>Il aurait du</b> dire : <b>Main a main,</b> car c'est le terme employe dans le verset a propos de Moise.
+<b>Cette</b> interpretation pose egalement une <b>difficulte au Rabbi Yohanan : Cette</b> phrase "<b>main a main"</b> n'est pas la facon dont le verset presenterait cette idee. <b>Il aurait du</b> dire : <b>Main a main,</b> car c'est le terme employe dans le verset a propos de Moise.
 
 ### Partie 18
 <b>Au contraire, Rabbi Yohanan dit :</b>

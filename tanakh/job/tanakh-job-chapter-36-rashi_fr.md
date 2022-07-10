@@ -106,7 +106,7 @@
 <b>À celui qui a beaucoup</b> à celui dont les enfants sont nombreux et nombreux ; à celui qui multiplie les enfants et demande de la nourriture.
 
 ### passuk 32
-<b>Sur les nuages</b> Heb.  כפים, sur les nuages. De même (Lam. 3:41), "Elevons notre cœur vers les nuages (כפים)," basé sur (I Rois 18:44), "...un nuage aussi petit que la paume d'un homme (ככף£)." Mais nos rabbins ont dit (Taanith 7b) : A cause du péché (du vol) des mains <b>Il couvre la pluie</b> La pluie est retenue.
+<b>Sur les nuages</b> Heb.  כפים, sur les nuages. De même (Lam. 3:41), "Elevons notre cœur vers les nuages (כפים)," basé sur (I Rois 18:44), "...un nuage aussi petit que la paume d'un homme (ככף£)." Mais nos sages ont dit (Taanith 7b) : A cause du péché (du vol) des mains <b>Il couvre la pluie</b> La pluie est retenue.
 <b>Il ordonne</b> qu'elle vienne par celui qui l'implore par la prière. (Le bien-aimé de la génération, son grand homme et son sage Lui raconteront - devant le Saint, béni soit-Il - les difficultés de la génération et ses besoins).
 
 ### passuk 33

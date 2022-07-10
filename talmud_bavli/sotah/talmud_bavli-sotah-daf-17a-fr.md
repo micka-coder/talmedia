@@ -24,7 +24,7 @@ Il commence <b>a partir</b> du verset : <b>"Si aucun homme n'a couche</b> avec t
 <b>Et Rabbi Yosei</b> l'interprete : <b>Il</b> serait <b>tout</b> comme vous, </b> Rabbi Meir, <b>a dit;</b> cependant, le mot supplementaire <b>"<i>et</i>"</b> dans le verset amplifie sa portee. Il sert a <b>inclure</b> a la fois les <b>ordres et les acceptations,</b> car ils doivent egalement etre ecrits dans le rouleau.
 
 ### Partie 9
-<b>Et</b> pourquoi le Rabbin Meir</b> n'est pas d'accord ? En regle generale, il <b>n'interprete pas</b> le mot supplementaire <b><i>et</i></b> comme amplifiant la portee d'un verset.
+<b>Et</b> pourquoi Rabbi Meir</b> n'est pas d'accord ? En regle generale, il <b>n'interprete pas</b> le mot supplementaire <b><i>et</i></b> comme amplifiant la portee d'un verset.
 
 ### Partie 10
 <b>Et</b> quant a <b>Rabbi Yehuda, il interprete tous</b> les termes du verset <b>comme etant exclusifs :</b> Le mot <b>"<i>alot</i>"</b> fait reference specifiquement aux <b>maledictions reelles</b> enregistrees dans les versets. L'article defini dans le mot <b>"<i>haâlot</i>"</b> sert <b>a exclure les maledictions qui viennent a cause des benedictions.</b> Le mot <b>"<i>eleh</i>"</b> sert <b>a exclure les maledictions</b> enregistrees <b>dans</b> le <b><i>Mishne Torah</i>. </b> Et l'article defini dans le mot <b>"<i>haeleh</i>"</b> sert <b>a exclure</b> les <b>ordres et acceptations</b> enregistres dans les versets.

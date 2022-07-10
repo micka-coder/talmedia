@@ -39,7 +39,7 @@ La Guemara relate que <b>au moment de sa mort,</b> immediatement avant, <b>il le
 <b>Rabbi Eliezer dit : Celui dont la priere est fixee, sa priere n'est pas une supplication</b> et est viciee. La Guemara precisera les implications halakhiques de ce defaut.
 
 ### Partie 14
-<Rabbi Yehoshua dit : Celui qui</b> ne peut pas reciter une priere complete parce qu'il <b>marche dans un lieu de danger, recite une breve priere et dit : Rachete, Seigneur, Ton peuple, le reste d'Israel, a chaque transition [<i>parashat haibur</i>],</b> dont le sens sera discute dans la Guemara. <b>Que leurs besoins soient devant Toi. Beni sois-Tu, Seigneur, qui ecoute la priere.</b>
+<b>Rabbi Yehoshua dit : Celui qui</b> ne peut pas reciter une priere complete parce qu'il <b>marche dans un lieu de danger, recite une breve priere et dit : Rachete, Seigneur, Ton peuple, le reste d'Israel, a chaque transition [<i>parashat haibur</i>],</b> dont le sens sera discute dans la Guemara. <b>Que leurs besoins soient devant Toi. Beni sois-Tu, Seigneur, qui ecoute la priere.</b>
 
 ### Partie 15
 Pendant la priere, il faut faire face a la direction du Saint Temple. <b>La personne qui etait montee sur un ane doit descendre de cheval et prier</b> calmement. <b>S'il n'est pas en mesure de descendre de cheval, il doit tourner son visage</b> vers la direction du Temple. <b>S'il ne peut pas tourner son visage,</b> il suffit qu'il <b>concentre son cœur a l'oppose du Saint des Saints.</b> De meme, <b>celui qui voyageait dans un bateau ou sur un radeau [<i>asda</i>]</b> et qui ne peut pas se tourner et faire face en direction de Jerusalem, <b>doit concentrer son cœur a l'oppose du Saint des Saints.</b>

@@ -61,7 +61,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Et il arriva que Dieu aida les Lévites</b> - Heb.  - . Le "beth" de  בֶּעְֹזר est voyellé avec un "segol", mais en règle générale, il est voyellé avec un "pattah". Le sens de "quand [Dieu] aida" est qu'ils ne se sont pas trompés quand ils ont porté l'Arche comme ils s'étaient trompés au début quand Uzza est mort. Et dans le Livre de Samuel (II 6:13), il est dit que lorsqu'ils avaient fait six pas, ils faisaient ce sacrifice. Nos rabbins ont déduit d'ici que l'Arche se portait elle-même.
+<b>Et il arriva que Dieu aida les Lévites</b> - Heb.  - . Le "beth" de  בֶּעְֹזר est voyellé avec un "segol", mais en règle générale, il est voyellé avec un "pattah". Le sens de "quand [Dieu] aida" est qu'ils ne se sont pas trompés quand ils ont porté l'Arche comme ils s'étaient trompés au début quand Uzza est mort. Et dans le Livre de Samuel (II 6:13), il est dit que lorsqu'ils avaient fait six pas, ils faisaient ce sacrifice. Nos sages ont déduit d'ici que l'Arche se portait elle-même.
 
 ### passuk 27
 <b>Et David fut enveloppé d'une robe de lin</b> - Heb.  -  enveloppé, comme dans Daniel (3:21) : "leurs robes ( מְכֻרְבָּל )." Un cas similaire est le peigne (וְכַרְבְּלָתְהוֹן) d'un coq.

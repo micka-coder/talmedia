@@ -36,7 +36,7 @@ Bar Peyoli prit <b>peur</b> a cause de la reprimande de Shmuel et <b>le couteau 
 <b>Rav Pappa dit :</b> Cette declaration de Shmuel fait <b>l'objet</b> d'une dispute entre <b><i>tannaim</i>,</b> car elle est enseignee dans une <i>baraita</i> : Si <b>quelqu'un a mange</b> le nerf sciatique en entier et que <b>celui-ci ne contenait pas de corpuscule d'olive, il est</b> neanmoins <b>responsable</b> d'etre fouette. <b>Rabbi Yehuda dit :</b> Il n'est pas responsable <b>a moins que cela ait</b> un volume d'au moins <b>une olive-bulk.</b>
 
 ### Partie 13
-Le Rav Pappa explique le rapport entre ce qui precede et la declaration de Shmuel. <b>Quelle est la raison</b> de l'avis <b>des rabbins,</b> qui ne sont pas d'accord avec Rabbi Yehuda ? Ils soutiennent que le nerf sciatique <b>est une entite distincte.</b> Par consequent, meme si l'on mange moins d'une botte d'olives, il s'agit d'un acte alimentaire significatif, et l'on est responsable.
+Rav Pappa explique le rapport entre ce qui precede et la declaration de Shmuel. <b>Quelle est la raison</b> de l'avis <b>des sages,</b> qui ne sont pas d'accord avec Rabbi Yehuda ? Ils soutiennent que le nerf sciatique <b>est une entite distincte.</b> Par consequent, meme si l'on mange moins d'une botte d'olives, il s'agit d'un acte alimentaire significatif, et l'on est responsable.
 
 >Credit : William Davidson Edition
 >License : CC-BY-NC

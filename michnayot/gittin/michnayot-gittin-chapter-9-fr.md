@@ -1,6 +1,6 @@
 
 ### michna 1
-Si un homme divorce de sa femme et lui dit : "Tu es libre d'épouser n'importe quel homme sauf untel", Rabbi Eliezer lui permet [de se marier sur la base de ce get], mais les rabbins lui interdisent. Que doit-il faire ? Il doit lui reprendre le get et le lui redonner en disant : "Tu es libre d'épouser n'importe quel homme". S'il a écrit [la restriction] dans le get, même s'il est revenu en arrière et l'a effacé, il n'est pas valide.
+Si un homme divorce de sa femme et lui dit : "Tu es libre d'épouser n'importe quel homme sauf untel", Rabbi Eliezer lui permet [de se marier sur la base de ce get], mais les sages lui interdisent. Que doit-il faire ? Il doit lui reprendre le get et le lui redonner en disant : "Tu es libre d'épouser n'importe quel homme". S'il a écrit [la restriction] dans le get, même s'il est revenu en arrière et l'a effacé, il n'est pas valide.
 
 ### michna 2
 S'il a dit :] "Tu es libre d'épouser n'importe quel homme, sauf mon père, ton père, mon frère, ton frère, un esclave, un païen ou quelqu'un à qui elle ne peut pas être fiancée", le get est valide. S'il dit : " Tu es permise à tout le monde sauf (en supposant qu'elle soit veuve) à un grand prêtre, ou (en supposant qu'elle soit divorcée ou halutzah) à un prêtre ordinaire, ou (en supposant qu'elle soit mamzeret ou netinah) à un israélite ordinaire, ou (en supposant qu'elle soit israélite) à un mamzer ou un natin, ou à quiconque est capable de la fiancer même en transgressant la loi, le get est invalide.

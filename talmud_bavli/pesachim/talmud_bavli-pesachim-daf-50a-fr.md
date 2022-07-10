@@ -3,7 +3,7 @@
 <b>est analogue à sa prohibition. De même que son interdiction n'est</b> que lorsqu'il a la taille d'un <b>bulot d'olive, de même,</b> l'obligation de le <b>retourner n'est</b> que lorsqu'il a la taille d'un <b>bulot d'olive.</b>
 
 ### Partie 2
-Une autre opinion sur cette question <b>a été enseignée</b> dans une <i>baraita</i>. <b>Rabbi Natan dit :</b> La mesure minimale pour à la fois <b>ceci et ça,</b> le levain et la viande sacrificielle, est de <b>deux pains d'œufs</b> de matière interdite, <b>mais les rabbins n'étaient pas d'accord avec lui.</b>
+Une autre opinion sur cette question <b>a été enseignée</b> dans une <i>baraita</i>. <b>Rabbi Natan dit :</b> La mesure minimale pour à la fois <b>ceci et ça,</b> le levain et la viande sacrificielle, est de <b>deux pains d'œufs</b> de matière interdite, <b>mais les sages n'étaient pas d'accord avec lui.</b>
 
 ### Partie 3
 Incidemment à la discussion sur le fait de quitter Jérusalem et ses environs, la Guemara cite des expositions d'un passage prophétique, y compris une déclaration selon laquelle Dieu finira par étendre les frontières de Jérusalem. Le verset stipule : <b>"Et il arrivera en ce jour-là qu'il n'y aura pas de lumière,</b> mais de <b>lourds nuages [<i>yekarot</i>] et une épaisseur [<i>vekippaon</i>]</b> (Zacharie 14:6). La Gemara demande : <b>Quel est</b> le sens de l'expression <b>"<i>yekarot vekippaon</i>'</b>

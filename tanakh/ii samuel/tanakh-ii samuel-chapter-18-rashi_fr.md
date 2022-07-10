@@ -24,7 +24,7 @@
 
 ### passuk 9
 <b>Avsholom happenned.</b> Désignant quelque chose qui vient d'arriver, une rencontre fortuite.
-<b>Il était suspendu entre le ciel et la terre.</b> Nos rabbins ont dit<sup>3</sup><i class="footnote">Sotah 10b. Voir Méharsho là.</i> Il dégaina son épée pour se couper les cheveux et vit la Géhenne s'ouvrir sous lui.
+<b>Il était suspendu entre le ciel et la terre.</b> Nos sages ont dit<sup>3</sup><i class="footnote">Sotah 10b. Voir Méharsho là.</i> Il dégaina son épée pour se couper les cheveux et vit la Géhenne s'ouvrir sous lui.
 
 ### passuk 10
 

@@ -36,7 +36,7 @@
 <b>Quand.</b> [וְהָיָה " est] au présent.
 <b>Moshé sortait</b> du campement pour se rendre à la tente</b> <b>de l'école.
 <b>Tout le peuple se levait.</b> Ils se levaient devant lui et ne s'asseyaient plus jusqu'à ce qu'il disparaisse de la vue.
-<Ils regardaient Moshe d'une manière admirative, [disant, en fait :] " Heureux celui qui est né d'une femme et qui est assuré que la Shechinah le suivra dans l'entrée de sa tente ". 
+<b>Ils regardaient Moshe d'une manière admirative, [disant, en fait :] " Heureux celui qui est né d'une femme et qui est assuré que la Shechinah le suivra dans l'entrée de sa tente ". 
 
 ### passuk 9
 <b>Et parlerait avec Moshé</b> - le même que  וּמְדַבֵּר עִם משֶׁה " (présent). Onkelos le traduit par  וּמִתְמַלֵּל עִם משֶׁה " qui est le respect pour la Shechinah, comme dans : "Il entendit la voix  מִדַבֵּר  à lui" et il ne lit pas  מְדַבֵּר אֵלָיו - . Parce que lorsqu'il lit  מִדַּבֵּר  son interprétation est : la Voix qui se parle à elle-même et que la personne ordinaire entend par hasard, mais lorsqu'il lit  מְדַבֵּר  il implique que le roi parle avec la personne ordinaire. 

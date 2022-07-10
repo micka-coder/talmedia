@@ -37,7 +37,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Et Shobach le général</b> Et dans Samuel (ad loc.) il est écrit : " et Shobach le général. " Nos rabbins ont expliqué dans Sotah (42b) : " Shobach, parce qu'il était aussi grand qu'un pigeonnier (שׁוֹבָךְ). Shophach, parce qu'il versait (שׁוֹפֵךְ) du sang comme de l'eau.
+<b>Et Shobach le général</b> Et dans Samuel (ad loc.) il est écrit : " et Shobach le général. " Nos sages ont expliqué dans Sotah (42b) : " Shobach, parce qu'il était aussi grand qu'un pigeonnier (שׁוֹבָךְ). Shophach, parce qu'il versait (שׁוֹפֵךְ) du sang comme de l'eau.
 
 >Crédit : sefaris
 >License : CC-BY

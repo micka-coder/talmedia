@@ -33,7 +33,7 @@ La Guemara commente : <b>Du fait</b> qu'il est dit</b> que le <i>taḥash</i> <b
 <b>Rav Yosef a dit, c'est ce que j'ai appris : Trois par trois exactement. Et je ne savais pas à quelle <i>halakha</i></b> cela se rapportait. Rav Yosef a reçu de ses maîtres que la <i>baraita</i> se réfère à un cas de trois par trois exactement, et il ne savait pas pourquoi il était significatif d'établir la <i>baraita</i> dans un cas de trois par trois exactement et pas plus.
 
 ### Partie 12
-La Guemara ajoute incidemment : <b>Et du fait</b> que <b>Rav Adda bar Ahava a interprété</b> cette mishna <b>conformément</b> à l'opinion de <b>Rabbi Yehuda, concluez de cela</b> qu'il <b>tient conformément</b> à l'opinion de <b>Rabbi Yehuda. Le Rav Adda bar Ahava</b> a-t-il réellement <b>dit cela ? Le Rav Adda bar Ahava</b> n'a-t-il pas lui-même <b>dit :</b>
+La Guemara ajoute incidemment : <b>Et du fait</b> que <b>Rav Adda bar Ahava a interprété</b> cette mishna <b>conformément</b> à l'opinion de <b>Rabbi Yehuda, concluez de cela</b> qu'il <b>tient conformément</b> à l'opinion de <b>Rabbi Yehuda. Rav Adda bar Ahava</b> a-t-il réellement <b>dit cela ? Rav Adda bar Ahava</b> n'a-t-il pas lui-même <b>dit :</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

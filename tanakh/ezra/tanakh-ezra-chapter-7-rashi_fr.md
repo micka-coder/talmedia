@@ -13,7 +13,7 @@
 
 ### passuk 6
 <b>Et le roi lui accorda</b> [i.e., le roi] Darius.
-<b>selon l'ordre du Seigneur son Dieu sur lui</b> comme le Saint, béni soit-il, le lui avait ordonné. Ce verset est transposé [son sens étant] : et le roi lui accorda toute sa demande, selon l'ordre du Seigneur sur lui. Et nos rabbins ont dit (Meg. 15a) qu'Esdras et Malachie étaient une seule et même personne.
+<b>selon l'ordre du Seigneur son Dieu sur lui</b> comme le Saint, béni soit-il, le lui avait ordonné. Ce verset est transposé [son sens étant] : et le roi lui accorda toute sa demande, selon l'ordre du Seigneur sur lui. Et nos sages ont dit (Meg. 15a) qu'Esdras et Malachie étaient une seule et même personne.
 
 ### passuk 7
 <b>Dans la septième année</b> C'est-à-dire un an après l'achèvement du Temple.

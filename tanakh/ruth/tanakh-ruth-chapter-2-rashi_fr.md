@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un parent.</b> Un parent ; il était le fils du frère d'Elimelech. Nos rabbins de mémoire bénie ont dit : "Elimelech, et Salmone<sup>1</sup><i class="footnote">Rus 4:21. </i> le père de Bo'az, et le parent anonyme,<sup>2</sup><i class="footnote">Ibid. 4:1. </i> et le père de Naomi,<sup>3</sup><i class="footnote">Donc Bo'az et Naomi étaient cousins. </i> étaient tous fils de Nachshon,<sup>4</sup><i class="footnote">Shemos 6:23 et Bamidbar 10:14. </i> le fils d'Aminadav.<sup>5</sup><i class="footnote">Maseches Bava Basra 91a. </i> Pourtant, le mérite de leurs pères ne leur servait à rien lorsqu'ils quittaient la Terre [de Yisrael] pour aller à l'étranger.</i> 
+<b>Un parent.</b> Un parent ; il était le fils du frère d'Elimelech. Nos sages de mémoire bénie ont dit : "Elimelech, et Salmone<sup>1</sup><i class="footnote">Rus 4:21. </i> le père de Bo'az, et le parent anonyme,<sup>2</sup><i class="footnote">Ibid. 4:1. </i> et le père de Naomi,<sup>3</sup><i class="footnote">Donc Bo'az et Naomi étaient cousins. </i> étaient tous fils de Nachshon,<sup>4</sup><i class="footnote">Shemos 6:23 et Bamidbar 10:14. </i> le fils d'Aminadav.<sup>5</sup><i class="footnote">Maseches Bava Basra 91a. </i> Pourtant, le mérite de leurs pères ne leur servait à rien lorsqu'ils quittaient la Terre [de Yisrael] pour aller à l'étranger.</i> 
 
 ### passuk 2
 <b>Allez maintenant au champ.</b> A l'un des champs des gens de la ville, après l'un d'entre eux, "aux yeux duquel je trouverai grâce", afin qu'il ne me réprimande pas. 

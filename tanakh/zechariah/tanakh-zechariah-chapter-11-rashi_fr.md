@@ -78,7 +78,7 @@
 <b>Pas de berger</b> un berger de rien du tout.  אֶלִיל, est une expression de  אַל, néant ; il n'est pas un berger. [Il y a aussi] (dans Job 13:4) "médecins sans valeur". רֹעִי  Le "yud" est superflu ; il est à la place d'un "il", comme "qui abandonne le troupeau" ; (Deut. 33:16) qui habite (שׁכְנִי) dans la ronce" ; et (Micha 7:14) "qui habite seul".
 <b>Qui abandonne le troupeau</b> Qui les laisse en liberté pour quiconque vient battre, égorger et piller.
 <b>Une épée est sur son bras et son il droit</b> Et ce berger porte un couteau d'abattage dans sa main pour égorger le gras et le sain, sur lequel il jette son il droit pour savoir qui sont les riches, pour dépouiller et achever leurs biens.
-<Les commentateurs, cependant, ont interprété cela comme une référence à Sédécias, une allusion à (II Rois 25:7), "et ils aveuglèrent les yeux de Sédécias". Mais il est impossible de concilier "Voici ! J'établis un berger dans le pays" comme faisant référence à Sédécias, car soixante-dix ans avaient déjà passé après lui.
+<b>Les commentateurs, cependant, ont interprété cela comme une référence à Sédécias, une allusion à (II Rois 25:7), "et ils aveuglèrent les yeux de Sédécias". Mais il est impossible de concilier "Voici ! J'établis un berger dans le pays" comme faisant référence à Sédécias, car soixante-dix ans avaient déjà passé après lui.
 
 >Crédit : sefaris
 >Licence : CC-BY

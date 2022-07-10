@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, que d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup des étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnant et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent, et le lieu devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Maseches Sotah 47a.</i>
+<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos sages ont dit, que d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup des étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnant et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent, et le lieu devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Maseches Sotah 47a.</i>
 
 ### passuk 2
 

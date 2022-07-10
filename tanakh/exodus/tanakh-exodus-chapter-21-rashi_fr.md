@@ -104,7 +104,7 @@
 <b>Si des hommes vont se battre</b> entre eux, et que l'un avait l'intention de frapper l'autre et [par inadvertance] a frappé la femme. 
 <b>Et ils frappent.</b>  נְגִיפָה " a toujours le sens de "frapper" et "frapper", comme dans : "De peur que tu ne heurtes ton pied contre une pierre", [ou :] "avant que tes pieds ne soient frappés", [ou :] "pour une pierre à frapper". 
 <b>mais il n'y a pas de blessure mortelle</b> pour la femme.
-<Il doit être puni en payant la valeur de la progéniture au mari. [Comment leur valeur est-elle déterminée ?] on évalue ce que serait son prix si elle était vendue sur le marché [comme esclave], en augmentant sa valeur du fait de sa grossesse. 
+<b>Il doit être puni en payant la valeur de la progéniture au mari. [Comment leur valeur est-elle déterminée ?] on évalue ce que serait son prix si elle était vendue sur le marché [comme esclave], en augmentant sa valeur du fait de sa grossesse. 
 <b>Il doit être puni.</b> On lui imposera une compensation monétaire comme dans : "(  וְעָנְשׁוּ  ) ils lui imposeront un paiement de cent [sicles] d'argent."
 <b>Lorsque le mari l'exige etc.</b> [C'est-à-dire] lorsque le mari le convoque au tribunal [demandant au tribunal] de lui imposer une pénalité pour cela. 
 <b>Il paiera.</b> C'est-à-dire que celui qui a frappé [la seule femme] [devra payer] la valeur de la progéniture. 
@@ -282,7 +282,7 @@
 <b>Si des hommes vont se battre</b> entre eux, et que l'un avait l'intention de frapper l'autre et [par inadvertance] a frappé la femme. 
 <b>Et ils frappent.</b>  ''" a toujours le sens de "frapper" et "frapper", comme dans : "De peur que tu ne heurtes ton pied contre une pierre", [ou :] "avant que tes pieds ne soient frappés", [ou :] "pour une pierre à frapper". 
 <b>mais il n'y a pas de blessure mortelle</b> pour la femme.
-<Il doit être puni en payant la valeur de la progéniture au mari. [Comment leur valeur est-elle déterminée ?] on évalue ce que serait son prix si elle était vendue sur le marché [comme esclave], en augmentant sa valeur du fait de sa grossesse. 
+<b>Il doit être puni en payant la valeur de la progéniture au mari. [Comment leur valeur est-elle déterminée ?] on évalue ce que serait son prix si elle était vendue sur le marché [comme esclave], en augmentant sa valeur du fait de sa grossesse. 
 <b>Il doit être puni.</b> On lui imposera une compensation monétaire comme dans : "( - - ) ils lui imposeront un paiement de cent [sicles] d'argent."
 <b>Lorsque le mari l'exige etc.</b> [C'est-à-dire] lorsque le mari le convoque au tribunal [demandant au tribunal] de lui imposer une pénalité pour cela. 
 <b>Il paiera.</b> C'est-à-dire que celui qui a frappé [la seule femme] [devra payer] la valeur de la progéniture. 

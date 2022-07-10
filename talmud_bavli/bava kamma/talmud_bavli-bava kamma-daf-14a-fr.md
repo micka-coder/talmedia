@@ -63,10 +63,10 @@ La Gemara demande : <b>Que</b> signifie le <i>baraita</i> en disant que le bien 
 <b>Au contraire, il est evident</b> que l'intention du <i>baraita</i> est que le bien n'est <b>ni de celui-ci</b> <b>ni de celui-la</b> ensemble ; <b>plutot,</b> il appartient <b>a</b> seulement <b>un</b> d'entre eux, a savoir , la partie lesee, <b>et cette derniere clause enseigne :</b> Si le bœuf est <b>innocent,</b> le proprietaire <b>paye la moitie</b> de la valeur du <b>dommage, et</b> s'il est <b>averti, il paie</b> le <b>cout total</b> du <b>dommage.</b>
 
 ### Partie 22
-Si tel est le cas, dans cette derniere clause, <b>nous arrivons</b> a l'opinion des <b>rabbins, qui disent :</b> La <i>halakha</i> des cas de <b>Goring</b> effectue par un animal inoffensif, ce qui est <b>atypique,</b> se produisant <b>dans la cour de la partie lesee</b> est que le proprietaire du bœuf <b>paye la moitie</b> de la valeur du <b>dommage.</b>
+Si tel est le cas, dans cette derniere clause, <b>nous arrivons</b> a l'opinion des <b>sages, qui disent :</b> La <i>halakha</i> des cas de <b>Goring</b> effectue par un animal inoffensif, ce qui est <b>atypique,</b> se produisant <b>dans la cour de la partie lesee</b> est que le proprietaire du bœuf <b>paye la moitie</b> de la valeur du <b>dommage.</b>
 
 ### Partie 23
-La Gemara demande : Se pourrait-il que <b>la premiere clause</b> de la <i>baraita</i> soit conforme a l'avis de <b>Rabbi Tarfon et que la derniere clause soit</b> conforme a l'avis des <b>rabbins ?</b>
+La Gemara demande : Se pourrait-il que <b>la premiere clause</b> de la <i>baraita</i> soit conforme a l'avis de <b>Rabbi Tarfon et que la derniere clause soit</b> conforme a l'avis des <b>sages ?</b>
 
 ### Partie 24
 La Guemara repond : <b>Oui,</b> c'est <b>ce que Shmuel a dit a Rav Yehuda</b> a propos d'une autre mishna (15b) : <b><i>Shinnana</i>, laisse la mishna et suis-moi</b> et mon interpretation selon laquelle <b>la premiere clause</b> de la mishna est conforme a l'opinion de <b>Rabbi Tarfon et la derniere clause est</b> conforme a l'opinion des <b>Rabbis.</b> Dans cette <i>baraita</i> egalement, les differentes clauses sont enseignees conformement aux differentes opinions des Sages.

@@ -9,7 +9,7 @@ On peut travailler sur les [produits] qui ont été arrachés en Syrie, mais pas
 Les oignons sur lesquels la pluie est tombée et qui ont germé, si leurs feuilles sont noires, ils sont interdits. S'ils sont devenus verts, ils sont permis. Rabbi Chanina fils d'Antigonus a dit : "S'ils peuvent être arrachés par leurs feuilles, ils sont interdits. Et [les oignons] semblables à ceux-ci, pendant l'année qui suit l'année sabbatique, sont permis.
 
 ### michna 4
-Quand est-il permis d'acheter de la verdure pendant l'année post-sabbatique ? Chaque fois que cette espèce [de verdure] produit à nouveau. Une fois que le [produit dans un endroit qui produit une] récolte précoce est mûr, le [produit dans un endroit qui produit une] récolte ultérieure est autorisé. Le rabbin a autorisé l'achat de verdure dès [le début] de l'année post-sabbatique.
+Quand est-il permis d'acheter de la verdure pendant l'année post-sabbatique ? Chaque fois que cette espèce [de verdure] produit à nouveau. Une fois que le [produit dans un endroit qui produit une] récolte précoce est mûr, le [produit dans un endroit qui produit une] récolte ultérieure est autorisé. Rabbi a autorisé l'achat de verdure dès [le début] de l'année post-sabbatique.
 
 ### michna 5
 Il n'est pas permis d'exporter l'huile qui doit être brûlée [parce qu'il s'agit de Térouma, produit consacré à la consommation sacerdotale, qui a été rendu impur] et les fruits de l'année sabbatique de la Terre [d'Israël] vers d'autres pays. Rabbi Shimon a dit : J'ai explicitement entendu qu'il est permis d'exporter vers la Syrie, mais qu'il n'est pas permis d'exporter vers d'autres pays.

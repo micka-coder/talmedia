@@ -1,6 +1,6 @@
 
 ### michna 1
-Les trois jours précédant les fêtes des idolâtres, il est interdit de faire des affaires avec eux, de leur prêter des articles ou de leur emprunter de l'argent, de rembourser une dette ou de recevoir un remboursement de leur part. Rabbi Juda dit : nous devrions recevoir un remboursement de leur part, car cela ne peut que les déprimer. Mais ils [les rabbins] lui ont dit : même si c'est déprimant sur le moment, ils s'en réjouissent par la suite.
+Les trois jours précédant les fêtes des idolâtres, il est interdit de faire des affaires avec eux, de leur prêter des articles ou de leur emprunter de l'argent, de rembourser une dette ou de recevoir un remboursement de leur part. Rabbi Juda dit : nous devrions recevoir un remboursement de leur part, car cela ne peut que les déprimer. Mais ils [les sages] lui ont dit : même si c'est déprimant sur le moment, ils s'en réjouissent par la suite.
 
 ### michna 2
 Rabbi Ismaël dit : les trois jours précédents et les trois jours suivants, c'est interdit ; Mais les Sages disent : avant leurs festivités, c'est interdit, mais après leurs festivités, c'est permis.

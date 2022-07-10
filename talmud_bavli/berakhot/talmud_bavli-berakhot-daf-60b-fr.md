@@ -21,7 +21,7 @@ La Guemara poursuit en citant des benedictions supplementaires recitees dans le 
 Nous avons appris dans la mishna : <b>On est oblige de reciter une benediction</b> pour le mal qui lui arrive tout comme il recite une benediction pour le bien qui lui arrive. La Gemara demande : <b>Qu'est-ce que ca veut dire : <b>On est oblige de reciter une benediction pour le mauvais comme pour le bon ? Si on dit</b> cela signifie que <b>comme on recite une benediction pour un evenement positif</b> avec la formule : <b>Qui est bon et fait le bien, de meme on recite une benediction pour une calamite</b> avec la formule : <b>Qui est bon et fait le bien,</b> n'avons-nous pas appris</b> dans notre mishna que <b>sur une bonne nouvelle on recite : Qui est bon et fait le bien,</b> alors que <b>sur les mauvaises nouvelles on recite : Beni"¦le vrai Juge ?</b> Au contraire, <b>Rava dit :</b> La declaration de la mishna <b>etait seulement necessaire</b> pour nous instruire <b>d'accepter</b> les mauvaises nouvelles <b>avec</b> la meme <b>joie</b> avec laquelle nous acceptons les bonnes nouvelles, et non pour nous instruire en ce qui concerne la benediction a reciter.
 
 ### Partie 8
-<b>Rav Aha a dit au nom de Rabbi Levi : Quel</b> est le <b>verset</b> qui fait allusion a cela ? <b>Je chanterai la bonte et la justice ; a Toi, Seigneur, je chanterai des louanges"</b> (Psaumes 101, 1). Le Rav Aha explique : <b>Si</b> c'est <b>l'amour bienveillant, je chanterai, et si</b> c'est <b>la justice, je chanterai.</b> Je remercierai Dieu en chantant pour le mauvais comme pour le bon.
+<b>Rav Aha a dit au nom de Rabbi Levi : Quel</b> est le <b>verset</b> qui fait allusion a cela ? <b>Je chanterai la bonte et la justice ; a Toi, Seigneur, je chanterai des louanges"</b> (Psaumes 101, 1). Rav Aha explique : <b>Si</b> c'est <b>l'amour bienveillant, je chanterai, et si</b> c'est <b>la justice, je chanterai.</b> Je remercierai Dieu en chantant pour le mauvais comme pour le bon.
 
 ### Partie 9
 <b>Rabbi Shmuel bar Nahmani a dit :</b> La preuve est <b>de la,</b> comme il est dit : <b>"En Dieu, je louerai Sa parole ; en l'Eternel, je louerai Sa parole"</b> (Psaumes 56:11). La Guemara explique que <b>En Dieu, je louerai Sa parole ; c'est</b> la revelation de l'<b>attribut de bienveillance de Dieu,</b> tandis que : <b>Dans le Seigneur, je louerai Sa parole ; c'est l'attribut de la souffrance;</b> meme si Dieu fait peser sur moi la souffrance, je le louerai quand meme.
@@ -30,7 +30,7 @@ Nous avons appris dans la mishna : <b>On est oblige de reciter une benediction</
 <b>Rabbi Tanhum a dit :</b> La preuve est <b>de la,</b> comme il est dit : <b>Je leverai la coupe du salut et invoquerai le nom du Seigneur"</b> (Psaumes 116:13), et : <b>J'ai trouve la detresse et le chagrin, mais j'ai invoque le nom du Seigneur"</b> (Psaumes 116:3""4).
 
 ### Partie 11
-<b>Et les rabbins ont dit :</b> La preuve est <b>de la,</b> comme il est dit : <b>"Le Seigneur a donne et le Seigneur a repris ; beni soit le nom du Seigneur"</b> (Job 1:21).
+<b>Et les sages ont dit :</b> La preuve est <b>de la,</b> comme il est dit : <b>"Le Seigneur a donne et le Seigneur a repris ; beni soit le nom du Seigneur"</b> (Job 1:21).
 
 ### Partie 12
 <b>Rav Huna a dit</b> que <b>Rav a dit</b> que <b>Rabbi Meir a dit ; et c'est ainsi que cela a ete enseigne</b> dans une <i>baraita</i> <b>au nom de Rabbi Akiva : Il faut toujours s'habituer a dire : Tout ce que Dieu fait, Il le fait pour le mieux.</b>

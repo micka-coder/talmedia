@@ -57,7 +57,7 @@ Selon Rabbi Yohanan, le fait de recouvrir est designe par le terme toucher dans 
 <b>Mais si vous dites</b> que <b>ce sont deux concepts,</b> comment <b>ils peuvent se rejoindre ? Mais n'avons-nous pas appris</b> dans cette mishna (<i>Oholot</i> 3:1) : <b>Voici le principe : Tout</b> element impur n'ayant pas le volume requis pour avoir le statut d'impurete par lui-meme <b>qui est d'un seul concept s'unit et est impur;</b> s'il est <b>de deux concepts,</b> il ne s'unit pas et reste <b>pur ?</b>Apparemment, toucher et recouvrir un cadavre cree le meme type d'impurete, et c'est pourquoi le fait de recouvrir est appele toucher dans la mishna ici.
 
 ### Partie 20
-La Gemara conteste : <b>Au contraire, quelle</b> est l'alternative ? <b>S'agit-il d'un seul concept</b> qui comprend a la fois le fait de toucher et de recouvrir ? <b>Dit la derniere clause</b> de la mishna du tractate <i>Oholot</i> : <b>Mais</b>
+La Gemara conteste : <b>Au contraire, quelle</b> est l'alternative ? <b>S'agit-il d'un seul concept</b> qui comprend a la fois le fait de toucher et de recouvrir ? <b>Dit la derniere clause</b> de la mishna du traité <i>Oholot</i> : <b>Mais</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

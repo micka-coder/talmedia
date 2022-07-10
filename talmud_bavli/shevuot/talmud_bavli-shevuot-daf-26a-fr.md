@@ -51,7 +51,7 @@ Le <i>baraita</i> poursuit : Le terme <b>"de lui"</b> enseigne que <b>celui qui 
 La Gemara repond : C'est <b>comme</b> ce fut le cas <b>avec Rav Kahana et Rav Asi,</b> qui, <b>alors qu'ils se tenaient debout en presence de Rav,</b> leur professeur, a la fin d'une lecon, etaient en desaccord quant a ce qu'il avait dit exactement. L'un <b>Sage a dit :</b> Sur mon <b>maintien Rav a dit comme ceci, et</b> l'autre <b>Sage a dit :</b> Sur mon <b>maintien Rav a dit comme cela. Lorsqu'ils se presenterent devant le Rav</b> pour clarifier ce qu'il avait dit, <b>il enonca</b> son opinion <b>conforme</b> a ce que <b>l'un d'eux</b> avait dit. <b>L'autre dit a</b> Rav : <b>Ai-je</b> alors <b>prete un faux serment ?</b>
 
 ### Partie 18
-Le Rav <b>lui a dit : Ton cœur t'a contraint.</b> Il n'est pas considere comme un faux serment, puisqu'au moment ou tu as prete serment, tu etais certain de dire la verite.
+Rav <b>lui a dit : Ton cœur t'a contraint.</b> Il n'est pas considere comme un faux serment, puisqu'au moment ou tu as prete serment, tu etais certain de dire la verite.
 
 ### Partie 19
 § Le <i>baraita</i> enseigne : L'expression <b>"et on le lui cache"</b> enseigne que <b>celui qui ignorait son serment,</b> c'est-a-dire qui l'a oublie, et qui l'a ensuite rompu, est tenu d'apporter une offrande. On <b>pourrait</b> penser que celui qui a prete serment est egalement responsable lorsqu'il a rompu le serment <b>parce qu'il ignorait</b> qu'un objet particulier est interdit en tant qu'<b>objet</b> de son serment ; c'est pourquoi <b>le verset dit : Il est responsable de la meconnaissance du serment, mais il n'est pas responsable de la meconnaissance de l'objet du serment.
@@ -78,7 +78,7 @@ La Gemara presente <b>une autre formulation</b> de cette affirmation. <b>Abaye a
 <b>Et Rav Yosef</b> pourrait <b>vous dire : Puisque, s'il savait que c'est du pain de ble</b> <b>il s'abstiendrait de</b> manger <b>celui-ci,</b> ceci doit etre considere comme un cas de <b>manque de conscience de l'objet.</b>
 
 ### Partie 27
-<b>Rava a demande a Rav Nahman :</b> Dans un cas ou l'on <b>a un manque de conscience de ceci,</b> le serment, <b>et de cela,</b> son objet, <b>qu'elle est</b> la <i>halakha</i> ? Le Rav Nahman <b>lui a dit : Il</b> rompt le serment alors qu'il <b>n'a pas conscience du serment et</b> est donc <b>responsable.</b> Rava lui a repondu : <b>Au contraire, il a un manque de conscience de l'objet</b> du serment <b>et</b> doit donc etre <b>exempte.</b>
+<b>Rava a demande a Rav Nahman :</b> Dans un cas ou l'on <b>a un manque de conscience de ceci,</b> le serment, <b>et de cela,</b> son objet, <b>qu'elle est</b> la <i>halakha</i> ? Rav Nahman <b>lui a dit : Il</b> rompt le serment alors qu'il <b>n'a pas conscience du serment et</b> est donc <b>responsable.</b> Rava lui a repondu : <b>Au contraire, il a un manque de conscience de l'objet</b> du serment <b>et</b> doit donc etre <b>exempte.</b>
 
 ### Partie 28
 <b>Rav Ashi a dit : Nous voyons : S'il s'abstient</b> de manger <b>en raison du serment,</b> c'est-a-dire lorsqu'on lui rappelle qu'il a prete serment, <b>il avait une meconnaissance du serment et est responsable. S'il s'abstient en raison de l'objet</b> du serment, c'est-a-dire lorsqu'on lui rappelle ce qu'il s'apprete a manger, <b>il avait un manque de conscience en raison de l'objet, et il est exempt.</b>

@@ -36,7 +36,7 @@
 ### passuk 11
 <b>Oiseaux de proie.</b> C'est le nom d'un oiseau ainsi appelé parce qu'il pique et est avide des carcasses pour voler rapidement sur sa nourriture comme dans : "Et tu as piqué sur le butin". 
 <b>Sur les carcasses.</b> [Signification :] sur les morceaux. Autre version : le Targum de  הַפְּגָרִים  est  פַּגְלַיָּא  . Mais, comme les gens ont pris l'habitude de traduire  אִישׁ בִּתְרוֹ  [v. 10] par "Il a placé les <i>pièces</i>", ils ont confondu par erreur  פַּגְלַיָּא  avec  פַּלְגַּיָּא  et [donc] ont traduit  הַפְּגָרִים  par  פַּלְגַיָּא  . Et celui qui le traduit ainsi se trompe puisque vous ne pouvez pas assimiler <i>pièces</i> à <i>carcasses</i> car [seulement]  בְּתָרִים  doit être traduit  פַּלְגַּיָּא . et  פְּגָרִים  devrait être traduit  פַּגְלַיָּא  du mot  פִּיגּוּל  [quelque chose de répugnant] comme dans, "C'est répugnant", similaire à  פֶּגֶר  [carcasse]. 
-<Cela symbolise le fait que David ben Yishai tentera de les détruire [les nations] mais ne sera pas autorisé par le Ciel [Dieu] jusqu'à ce que le Roi Machia'h, vienne. 
+<b>Cela symbolise le fait que David ben Yishai tentera de les détruire [les nations] mais ne sera pas autorisé par le Ciel [Dieu] jusqu'à ce que le Roi Machia'h, vienne. 
 
 ### passuk 12
 <b>Et voici, un effroi de profondes ténèbres.</b> Symbolisant l'oppression et les ténèbres des exilés. 

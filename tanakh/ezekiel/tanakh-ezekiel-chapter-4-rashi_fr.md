@@ -52,7 +52,7 @@
 <b>O</b> Expression d'un soupir.
 <b>Mon âme n'a pas été souillée</b> Je n'ai pas entretenu de pensées érotiques le jour, m'amenant à une pollution nocturne.
 <b>Je n'ai pas non plus mangé d'un animal mort de lui-même et déchiré</b> La chair d'un animal mourant, qui ressemble à un animal mort de lui-même et à un animal déchiré par les bêtes.
-<b>Viande répugnante</b> Un animal [au statut discutable] sur lequel un rabbin a statué [de manière permissive]. Cela ne peut pas signifier un animal qui est mort de lui-même ou qui a été déchiré [par des bêtes, le blessant de telle sorte qu'il ne pouvait pas vivre pendant un an], car si c'était le cas, quelle était la grandeur d'Ezéchiel ?
+<b>Viande répugnante</b> Un animal [au statut discutable] sur lequel un Rabbi a statué [de manière permissive]. Cela ne peut pas signifier un animal qui est mort de lui-même ou qui a été déchiré [par des bêtes, le blessant de telle sorte qu'il ne pouvait pas vivre pendant un an], car si c'était le cas, quelle était la grandeur d'Ezéchiel ?
 
 ### passuk 15
 <b>dung</b> Heb.  צְפִיעֵי  [synonyme de]  גֶלְלֵי, excréments.

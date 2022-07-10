@@ -3,7 +3,7 @@
 <b>Aussi ici,</b> le taureau et le bouc de Yom Kippour sont brules <b>a l'est de Jerusalem.</b>
 
 ### Partie 2
-<b>Mais selon les rabbins,</b> alors, <b>ou</b> en dehors de Jerusalem <b>on les brule ?</b> La Gemara repond : <b>Comme il est enseigne</b> dans une <i>baraita</i> : <b>Ou sont</b> les taureaux et les chevres <b>brules ?</b> Ils sont brules <b>au nord de Jerusalem, en dehors</b> des <b>trois camps. Rabbi Yosei HaGelili dit : On les brule sur le lieu des cendres,</b> ou l'on versait les cendres de l'autel.
+<b>Mais selon les sages,</b> alors, <b>ou</b> en dehors de Jerusalem <b>on les brule ?</b> La Gemara repond : <b>Comme il est enseigne</b> dans une <i>baraita</i> : <b>Ou sont</b> les taureaux et les chevres <b>brules ?</b> Ils sont brules <b>au nord de Jerusalem, en dehors</b> des <b>trois camps. Rabbi Yosei HaGelili dit : On les brule sur le lieu des cendres,</b> ou l'on versait les cendres de l'autel.
 
 ### Partie 3
 <b>Rava dit : Qui est le <i>tanna</i> qui est en desaccord avec Rabbi Yosei HaGelili ? C'est Rabbi Eliezer ben Yaakov, comme il est enseigne</b> dans une <i>baraita</i> : Le verset dit a propos des taureaux qui sont brules : <b>"La ou les cendres sont repandues [<i>shefekh hadeshen</i>] il sera brule"</b> (Levitique 4:12). Cela enseigne <b>que les cendres doivent etre la</b> deja lorsque les taureaux sont brules. <b>Rabbi Eliezer ben Yaakov dit:</b> Ce verset enseigne <b>que son emplacement doit etre en pente [<i>meshupakh</i>]</b> vers le bas afin que les cendres de la combustion glissent vers le bas.

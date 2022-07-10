@@ -39,7 +39,7 @@ En revanche, <b>Rav Nahman dit :</b> Si ma force augmente, <b>je maintiendrai</b
 La Guemara continue a discuter de la signification du mot <i>ulbena</i>. <b>Les Sages ont enseigne : Ceux qui sont insultes [<i>neelavin</i>] mais n'insultent pas</b> les autres, <b>qui entendent leur honte mais ne repondent pas, qui agissent par amour et sont joyeux dans</b> leur <b>souffrance, a leur sujet le verset dit : "Et ceux qui l'aiment sont comme le soleil qui sort de sa puissance"</b> (Juges 5:31).
 
 ### Partie 14
-§ La Gemara demande : <b>Quel</b> est le sens du mot <b><i>prosbol</i> ? Le Rav Hisda repond : Une ordonnance [<i>pros</i>] de <i>bulei</i> et <i>butei</i>.</b>
+§ La Gemara demande : <b>Quel</b> est le sens du mot <b><i>prosbol</i> ? Rav Hisda repond : Une ordonnance [<i>pros</i>] de <i>bulei</i> et <i>butei</i>.</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

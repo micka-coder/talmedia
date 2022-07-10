@@ -111,7 +111,7 @@ Une autre explication : <b>[1] Mon fils, si tu t'es porté caution pour ton ami<
 <b>Pour la jalousie</b> Car la jalousie du Saint, béni soit-Il, qui est le Puissant sur tous, sera suscitée pour lui infliger un châtiment, et Il n'aura pas de pitié au jour de la vengeance.
 
 ### passuk 35
-<b>Il n'aura pas d'égard</b> pour une quelconque somme d'argent pour expier son reniement de Lui et son attachement à l'idolâtrie. Et nos rabbins ont expliqué (Tosefta Baba Kamma 7:3) : Ils ne dédaigneront pas un voleur : c'est celui qui dérobe son ami et se rend à la salle d'étude pour s'adonner à la Torah. S'il est retrouvé, il paiera sept fois plus. [L'intention est que] finalement, il sera nommé juge et rendra des décisions juridiques, car le "septuple" se réfère uniquement à la Torah, comme il est dit (Ps. 12:7) : " sept fois plus raffinée ".
+<b>Il n'aura pas d'égard</b> pour une quelconque somme d'argent pour expier son reniement de Lui et son attachement à l'idolâtrie. Et nos sages ont expliqué (Tosefta Baba Kamma 7:3) : Ils ne dédaigneront pas un voleur : c'est celui qui dérobe son ami et se rend à la salle d'étude pour s'adonner à la Torah. S'il est retrouvé, il paiera sept fois plus. [L'intention est que] finalement, il sera nommé juge et rendra des décisions juridiques, car le "septuple" se réfère uniquement à la Torah, comme il est dit (Ps. 12:7) : " sept fois plus raffinée ".
 
 >Crédit : sefaris
 >Licence : CC-BY

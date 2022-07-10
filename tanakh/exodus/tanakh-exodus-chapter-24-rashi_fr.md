@@ -8,7 +8,7 @@
 ### passuk 3
 <b>Moshe vint et le dit au peuple</b> ce même jour.
 <b>Toutes les paroles d'Hachem.</b> [C'est-à-dire] l'ordre de se séparer [de leurs femmes] et l'établissement des frontières [au mont Sinaï].
-<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvot</i> données aux descendants de Noach [ainsi que les <i>mitzvot</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
+<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvot</i> données aux descendants de Noach [ainsi que les <i>mitzvot</i> de :] Chabbat, honorer ses parents, la vache rousse et administrer la justice qui leur ont été données à Marah. 
 
 ### passuk 4
 <b>Moshé nota</b> [tout] depuis Bereishis jusqu'au don de la Torah et il nota également les <i>mitzvot</i> qui leur furent ordonnés à Marah.
@@ -78,7 +78,7 @@
 ### passuk 3
 <b>Moshe vint et le dit au peuple</b> ce même jour.
 <b>Toutes les paroles d'Hachem.</b> [C'est-à-dire] l'ordre de se séparer [de leurs femmes] et l'établissement des frontières [au mont Sinaï].
-<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvot</i> données aux descendants de Noach [ainsi que les <i>mitzvot</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
+<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvot</i> données aux descendants de Noach [ainsi que les <i>mitzvot</i> de :] Chabbat, honorer ses parents, la vache rousse et administrer la justice qui leur ont été données à Marah. 
 
 ### passuk 4
 <b>Moshé nota</b> [tout] depuis Bereishis jusqu'au don de la Torah et il nota également les <i>mitzvot</i> qui leur furent ordonnés à Marah.

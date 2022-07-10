@@ -5,7 +5,7 @@
 
 ### passuk 2
 <b>Tu égorgeras l'offrande de Pessah à Hachem ton Dieu ; des troupeaux.</b> Comme il est dit : "Tu la prendras sur les moutons et les chèvres". 
-<b>Et les bovins.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous les égorgerez, comme l'offrande de <i>chagigah</i>. Si les personnes engagées comme partenaires dans le <i>pesach</i> étaient un groupe important, elles doivent apporter, avec lui, une offrande de <i>chagigah</i>, afin qu'elle soit consommée lorsqu'elles se seront rassasiées. Par ailleurs, les rabbins tirent de nombreux enseignements de ce passage. 
+<b>Et les bovins.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous les égorgerez, comme l'offrande de <i>chagigah</i>. Si les personnes engagées comme partenaires dans le <i>pesach</i> étaient un groupe important, elles doivent apporter, avec lui, une offrande de <i>chagigah</i>, afin qu'elle soit consommée lorsqu'elles se seront rassasiées. Par ailleurs, les sages tirent de nombreux enseignements de ce passage. 
 
 ### passuk 3
 <b>Pain d'angoisse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pain qui commémore l'angoisse qu'ils ont subie en Égypte.

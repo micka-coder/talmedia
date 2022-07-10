@@ -12,7 +12,7 @@ Mar Ukva <b>leur a dit : Est-ce a dire</b> que <b>je suis colle a vous avec un <
 § La mishna enseigne que selon Rabbi Yehouda, celui qui aime ou celui qui deteste l'un des plaideurs est disqualifie pour temoigner. Celui qui <b>aime</b> l'un des plaideurs ; <b>cela</b> fait reference a <b>son palefrenier.</b>
 
 ### Partie 5
-La Gemara demande : <b>Et</b> pendant <b>quelle duree</b> le palefrenier est disqualifie ? <b>Rabbi Abba dit</b> que <b>Rabbi Yirmeya dit</b> que <b>Rav dit :</b> Pendant <b>toute la duree des sept jours de fete. Et les rabbins disent au nom de Rava : Meme a partir du premier jour</b> apres le mariage <b>et a partir de</b> il n'est plus disqualifie ; il n'est disqualifie que le jour meme du mariage.
+La Gemara demande : <b>Et</b> pendant <b>quelle duree</b> le palefrenier est disqualifie ? <b>Rabbi Abba dit</b> que <b>Rabbi Yirmeya dit</b> que <b>Rav dit :</b> Pendant <b>toute la duree des sept jours de fete. Et les sages disent au nom de Rava : Meme a partir du premier jour</b> apres le mariage <b>et a partir de</b> il n'est plus disqualifie ; il n'est disqualifie que le jour meme du mariage.
 
 ### Partie 6
 § La mishna enseigne : <b>La personne qui deteste</b> le plaideur se refere a <b>toute personne</b> qui, par inimitie, <b>n'a pas parle</b> avec le plaideur pendant trois jours. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : Cette <i>halakha</i> est derivee du verset : "Et il n'etait pas son ennemi, et ne cherchait pas a lui nuire" (Nombres 35:23), celui au sujet duquel on peut affirmer : <b>"Et il n'etait pas son ennemi", peut temoigner de lui.</b> Et celui qui <b>"n'a pas cherche a lui faire du mal" peut le juger.</b>
@@ -27,10 +27,10 @@ La Guemara repond qu'il faut <b>lire dans</b> le verset <b>comme ceci :</b> Un a
 La Gemara demande : <b>Est-ce que : Celui qui aime, est-il ecrit</b> dans le verset ? Comment le verset peut-il etre lu de cette maniere ? <b>Au contraire,</b> l'extension de la disqualification a celui qui l'aime aussi <b>est</b> basee sur <b>un raisonnement logique : Quelle est la raison pour laquelle un ennemi</b> est disqualifie pour temoigner ? C'est <b>parce qu'il eprouve un sentiment d'aversion</b> envers cet individu et pourrait temoigner faussement contre lui. Une logique similaire peut etre employee a l'egard de celui qui <b>aime</b>, egalement : Il ressent un sentiment d'affinite</b> envers cet individu, et pourrait temoigner faussement en sa faveur.
 
 ### Partie 10
-La Gemara demande : <b>Et que retiennent les rabbins,</b> qui ne sont pas d'accord avec Rabbi Yehouda, <b>de ce verset</b> : <b>"Et il n'etait pas son ennemi, il n'a pas cherche a lui faire du mal"</b>.
+La Gemara demande : <b>Et que retiennent les sages,</b> qui ne sont pas d'accord avec Rabbi Yehouda, <b>de ce verset</b> : <b>"Et il n'etait pas son ennemi, il n'a pas cherche a lui faire du mal"</b>.
 
 ### Partie 11
-La Guemara repond : <b>Une</b> partie du verset est necessaire <b>pour</b> la <i>halakha</i> selon laquelle <b>un juge</b> qui aime ou deteste l'un des plaideurs est disqualifie. Les rabbins sont d'accord avec cette <i>halakha</i>, car un tel juge est naturellement enclin a favoriser l'un des plaideurs.
+La Guemara repond : <b>Une</b> partie du verset est necessaire <b>pour</b> la <i>halakha</i> selon laquelle <b>un juge</b> qui aime ou deteste l'un des plaideurs est disqualifie. Les sages sont d'accord avec cette <i>halakha</i>, car un tel juge est naturellement enclin a favoriser l'un des plaideurs.
 
 ### Partie 12
 <b>L'autre</b> partie du verset est interpretee <b>conformement a ce qui est enseigne</b> dans une <i>baraita</i> : <b>Rabbi Yosei, fils de Rabbi Yehuda, dit :</b> En ce qui concerne le verset <b>"Et il n"?etait pas son ennemi, et n"?a pas cherche a lui nuire,"</b> il est derive <b>de la que deux erudits de la Torah qui se detestent ne peuvent pas sieger en jugement</b> ensemble <b>comme un seul homme.</b> A cause de leur haine, ils en viendront a se contredire injustement dans leurs jugements.

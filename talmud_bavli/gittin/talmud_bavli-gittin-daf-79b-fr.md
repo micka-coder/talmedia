@@ -33,7 +33,7 @@ La Gemara repond : <b>A quoi avons-nous affaire ici ? D'un panier qui n'a pas de
 <b>Et Beit Hillel soutient</b> que <b>nous disons</b> que cet acte de divorce n'est pas valable en raison d'un <b>decret rabbinique, de peur qu'on dise</b> que la reception de <b>son acte de divorce precede</b> la conception de <b>son fils.</b> Par consequent, si une femme s'est isolee avec son mari apres la redaction de l'acte de divorce, l'acte de divorce n'est pas valable.
 
 ### Partie 12
-<b>Rabbi Abba dit</b> que <b>Shmuel dit :</b> Meme selon Beit Hillel, <b>si</b> la femme <b>a ete mariee</b> sur la base d'un acte de divorce perime que lui a donne son precedent mari, qui n'a pas demande conseil aux rabbins, <b>elle</b> n'a pas besoin de <b>separer</b> son second mari. Dans ce cas, ce decret n'est pas assez severe pour invalider l'acte de divorce.
+<b>Rabbi Abba dit</b> que <b>Shmuel dit :</b> Meme selon Beit Hillel, <b>si</b> la femme <b>a ete mariee</b> sur la base d'un acte de divorce perime que lui a donne son precedent mari, qui n'a pas demande conseil aux sages, <b>elle</b> n'a pas besoin de <b>separer</b> son second mari. Dans ce cas, ce decret n'est pas assez severe pour invalider l'acte de divorce.
 
 ### Partie 13
 <b>Et il y a</b> ceux <b>qui disent</b> que <b>Rabbi Abba dit</b> que <b>Shmuel dit : Si elle a ete divorcee</b> avec un acte de divorce perime, cette femme peut <b>se marier</b> meme <b><i>ab initio</i></b> sur la base de cet acte de divorce. Il n'est pas necessaire qu'elle attende que son premier mari lui ecrive un nouvel acte de divorce.

@@ -84,7 +84,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Hachem lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tous les sept jours. Et nos rabbins ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la génisse rouge, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et pour enseigner que le <i>kohen Godol</i> nécessite <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une exclusion sept jours avant Yom Kippour, et de même le <i>kohen</i> qui brûle la Génisse. 
+<b>Hachem lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>tous les sept jours. Et nos sages ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la vache rousse, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et pour enseigner que le <i>kohen Godol</i> nécessite <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une exclusion sept jours avant Yom Kippour, et de même le <i>kohen</i> qui brûle la Génisse. 
 
 ### passuk 35
 <b>Et tu ne mourras pas,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>donc, si tu ne le fais pas, tu es passible de [la] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>mort [pénalité]. 

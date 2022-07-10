@@ -1,6 +1,6 @@
 
 ### Partie 1
-Le Rav Zevid conclut : <b>Et c'est</b> le cas du <b>magasin,</b> c'est-a-dire de la cave, <b>que les Sages ont enseigne dans la mishna.</b> Il ressort clairement de cette <i>baraita</i> a la fois qu'elle contredit l'ajout suggere a la <i>baraita</i> precedente, et que la mishna concerne un cas ou l'on precise quelle cave a vin on vend.
+Rav Zevid conclut : <b>Et c'est</b> le cas du <b>magasin,</b> c'est-a-dire de la cave, <b>que les Sages ont enseigne dans la mishna.</b> Il ressort clairement de cette <i>baraita</i> a la fois qu'elle contredit l'ajout suggere a la <i>baraita</i> precedente, et que la mishna concerne un cas ou l'on precise quelle cave a vin on vend.
 
 ### Partie 2
 <b>Au contraire,</b> comme l'indique la <i>baraita</i>, <b>la mishna concerne egalement</b> un cas ou l'on <b>dit a</b> l'acheteur : Je vous vends <b>cette</b> cave particuliere, et parce qu'il a specifie une cave particuliere, l'acheteur accepte sur lui-meme la possibilite que jusqu'a dix barils par cent soient acides.

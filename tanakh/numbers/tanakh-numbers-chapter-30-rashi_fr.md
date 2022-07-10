@@ -12,7 +12,7 @@
 
 ### passuk 4
 <b>Dans la maison de son père.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sous la juridiction de son père, même si elle n'est pas réellement dans sa maison. 
-<b>Alors qu'elle est encore dans sa jeunesse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas une mineure, ou une "<i>bogeret,</i>" car les voeux d'une mineure sont invalides, et une <i>bogeret</i> n'est plus sous la juridiction de son père pour l'annulation des voeux. Quand est-elle considérée comme une mineure ? Nos rabbins disent qu'à l'âge de onze ans et un jour, ses voeux doivent être examinés. Si elle reconnaît au nom de qui elle a fait le vu, ou au nom de qui elle a fait la sanctification, alors son vu est valide. A l'âge de douze ans et un jour, l'examen n'est plus nécessaire. 
+<b>Alors qu'elle est encore dans sa jeunesse.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas une mineure, ou une "<i>bogeret,</i>" car les voeux d'une mineure sont invalides, et une <i>bogeret</i> n'est plus sous la juridiction de son père pour l'annulation des voeux. Quand est-elle considérée comme une mineure ? Nos sages disent qu'à l'âge de onze ans et un jour, ses voeux doivent être examinés. Si elle reconnaît au nom de qui elle a fait le vu, ou au nom de qui elle a fait la sanctification, alors son vu est valide. A l'âge de douze ans et un jour, l'examen n'est plus nécessaire. 
 
 ### passuk 5
 
@@ -41,7 +41,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Tout vu, et tout serment de renoncement, etc.</b> Puisqu'il a été dit que le mari peut annuler, peut-être que tous les voeux sont inclus ; la Torah enseigne donc : " de renoncement ".</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut annuler que les voeux qui sont de renoncement Ils sont définis dans le tractate Nedarim. 
+<b>Tout vu, et tout serment de renoncement, etc.</b> Puisqu'il a été dit que le mari peut annuler, peut-être que tous les voeux sont inclus ; la Torah enseigne donc : " de renoncement ".</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il ne peut annuler que les voeux qui sont de renoncement Ils sont définis dans le traité Nedarim. 
 
 ### passuk 15
 <b>D'un jour à l'autre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Afin que l'on ne dise pas [qu'il peut annuler] pendant vingt-quatre heures - c'est pourquoi on dit "d'un jour à l'autre", pour enseigner qu'il ne peut annuler que <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à la tombée de la nuit. 

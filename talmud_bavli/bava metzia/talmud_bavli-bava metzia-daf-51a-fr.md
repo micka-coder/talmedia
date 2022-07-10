@@ -1,9 +1,9 @@
 
 ### Partie 1
-c'est <b>pour cette raison</b> qu'ils sont revenus</b> a suivre la declaration des rabbins, car les vendeurs pouvaient de toute facon renier a tout moment, tandis que Rabbi Tarfon a prolonge la periode pendant laquelle les acheteurs pouvaient renier la transaction.
+c'est <b>pour cette raison</b> qu'ils sont revenus</b> a suivre la declaration des sages, car les vendeurs pouvaient de toute facon renier a tout moment, tandis que Rabbi Tarfon a prolonge la periode pendant laquelle les acheteurs pouvaient renier la transaction.
 
 ### Partie 2
-<b>Mais si l'on dit</b> que le statut juridique d'un <b>vendeur est egalement</b> limite <b>comme</b> celui d'un <b>acheteur</b> en termes de periode de temps pendant laquelle il peut renier, <b>quelle difference y a-t-il</b> <b>pour</b> les marchands ? <b>De meme que les Sages ont institue une ordonnance en faveur d'un acheteur</b> lui permettant de renier la transaction, <b>de meme, les Sages ont institue une ordonnance en faveur d'un vendeur.</b> Si le delai accorde au vendeur est egal a celui accorde a l'acheteur, le fait que Rabbi Tarfon ait prolonge ce delai ne serait pas une raison pour que les marchands reviennent a suivre l'avis des rabbins, car il y a un benefice et une perte pour les marchands selon les deux avis.
+<b>Mais si l'on dit</b> que le statut juridique d'un <b>vendeur est egalement</b> limite <b>comme</b> celui d'un <b>acheteur</b> en termes de periode de temps pendant laquelle il peut renier, <b>quelle difference y a-t-il</b> <b>pour</b> les marchands ? <b>De meme que les Sages ont institue une ordonnance en faveur d'un acheteur</b> lui permettant de renier la transaction, <b>de meme, les Sages ont institue une ordonnance en faveur d'un vendeur.</b> Si le delai accorde au vendeur est egal a celui accorde a l'acheteur, le fait que Rabbi Tarfon ait prolonge ce delai ne serait pas une raison pour que les marchands reviennent a suivre l'avis des sages, car il y a un benefice et une perte pour les marchands selon les deux avis.
 
 ### Partie 3
 La Guemara repond : En ce qui concerne <b>les marchands de Lod, il est rare qu'ils se trompent,</b> et ils ont donc prefere limiter la periode pendant laquelle l'acheteur pouvait se retracter plutot que d'etendre la periode pendant laquelle ils pouvaient eux-memes se retracter.

@@ -55,7 +55,7 @@
 ### passuk 16
 
 ### passuk 17
-<En ces jours-là, le Saint, béni soit-il, dira : "Es-tu celui dont j'ai parlé autrefois par l'intermédiaire de mes serviteurs, les prophètes d'Israël, par exemple Ezéchiel et Zacharie ?" Car lui aussi [Zacharie] a prophétisé les guerres de Gog et Magog (Zach. 14:2) : "Et je rassemblerai toutes les nations, etc." Nos Sages ont dit (Sanh. 17a) : Eldad et Medad ont [aussi] prophétisé à ce sujet. C'est le  שָּׁנִים  énoncé ici. Ne lisez pas  שָּׁנִים, années, mais  שְּׁנַיִם, deux. Deux prophètes ont prophétisé une seule prophétie à la fois (mais pas dans le même style d'expression) .
+<b>En ces jours-là, le Saint, béni soit-il, dira : "Es-tu celui dont j'ai parlé autrefois par l'intermédiaire de mes serviteurs, les prophètes d'Israël, par exemple Ezéchiel et Zacharie ?" Car lui aussi [Zacharie] a prophétisé les guerres de Gog et Magog (Zach. 14:2) : "Et je rassemblerai toutes les nations, etc." Nos Sages ont dit (Sanh. 17a) : Eldad et Medad ont [aussi] prophétisé à ce sujet. C'est le  שָּׁנִים  énoncé ici. Ne lisez pas  שָּׁנִים, années, mais  שְּׁנַיִם, deux. Deux prophètes ont prophétisé une seule prophétie à la fois (mais pas dans le même style d'expression) .
 
 ### passuk 18
 

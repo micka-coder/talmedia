@@ -1,6 +1,6 @@
 
 ### Partie 1
-La Gemara explique : <Est-il ecrit : Et ils brisent toutes les limites,</b> avec la conjonction : Et, ce qui indiquerait que tous les peches sont inclus comme une seule unite ? Plutot, il est ecrit : "Ils brisent toutes les limites,</b> d'ou l'on peut deduire que cette punition est donnee separement pour chacun de ces peches.
+La Gemara explique : <b>Est-il ecrit : Et ils brisent toutes les limites,</b> avec la conjonction : Et, ce qui indiquerait que tous les peches sont inclus comme une seule unite ? Plutot, il est ecrit : "Ils brisent toutes les limites,</b> d'ou l'on peut deduire que cette punition est donnee separement pour chacun de ces peches.
 
 ### Partie 2
 § <b>Ils se sont ensuite assis et ont dit</b> des declarations supplementaires au nom du Rav Asi, dont l'une concerne <b>ce que nous avons appris</b> dans une mishna (<i>Kinnim</i> 2:5) : En ce qui concerne <b>une femme</b> apres l'accouchement <b>qui a apporte son offrande pour le peche</b> pour sa purification rituelle <b>et qui est morte, les heritiers apportent son holocauste</b> pour remplir ses obligations sacrificielles restantes. <b>Rav Yehuda dit</b> que <b>Shmuel dit : Et</b> ceci <b>est</b> la <i>halakha</i> uniquement <b>lorsque</b> la femme elle-meme avait deja <b>separe,</b> c'est-a-dire designe, l'animal pour l'holocauste <b>de son vivant. Mais</b> si elle <b>ne l'avait pas separe de son vivant, non,</b> les heritiers ne sont pas tenus d'apporter un holocauste en son nom.

@@ -61,7 +61,7 @@ de meurtriers, comme il est écrit : " Gil'ad, ville de malfaiteurs, <i data-com
 ### passuk 23
 <b>Ou avec une pierre qui peut tuer.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il l'a frappé.
 <b>Sans voir.</b> Il ne l'a pas vu. 
-<b>Il le jeta sur lui.</b> A partir de là, ils (les rabbins) ont dit : " Quelqu'un qui tue <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en descendant, est exilé ; [mais s'il tue] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en montant, n'est pas exilé. 
+<b>Il le jeta sur lui.</b> A partir de là, ils (les sages) ont dit : " Quelqu'un qui tue <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en descendant, est exilé ; [mais s'il tue] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en montant, n'est pas exilé. 
 
 ### passuk 24
 

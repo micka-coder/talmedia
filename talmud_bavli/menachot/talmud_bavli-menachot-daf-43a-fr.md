@@ -63,7 +63,7 @@ Le <i>baraita</i> continue : On peut demander : <b>Vous dites</b> que le verset 
 La Guemara demande : <b>Qu'as-tu vu</b> qui t'a conduit <b>a inclure le vetement d'un aveugle</b> de la phrase : A "Avec lequel tu te couvresA", et a exclure un vetement de nuit</b> de la phrase :" Afin que tu puisses le regarder", plutot que d"?inclure un vetement de nuit dans l"?obligation et d"?exclure le vetement d"?un aveugle ? La Guemara repond : <b>J'inclus le vetement d'un aveugle, qui est visible par les autres,</b> meme si l'aveugle lui-meme ne peut le voir, <b>et j'exclus un vetement de nuit, qui n'est pas visible</b> meme <b>par les autres.</b>
 
 ### Partie 22
-La Guemara demande : <b>Et les rabbins</b> qui ne sont pas d'accord avec Rabbi Shimon,
+La Guemara demande : <b>Et les sages</b> qui ne sont pas d'accord avec Rabbi Shimon,
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

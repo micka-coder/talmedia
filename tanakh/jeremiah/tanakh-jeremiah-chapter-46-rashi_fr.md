@@ -8,7 +8,7 @@
 <b>Bouclier</b> Héb.  וצנה", [fait] de bois, à l'image de nos boucliers.
 
 ### passuk 4
-<polir les lances</b> Heb.  מרקו-. Cf. "Il sera récuré (וּמֹרַק) et rincé" (Lév. 6:21), (forbir dans le ancien français., à furbish).
+<b>polir les lances</b> Heb.  מרקו-. Cf. "Il sera récuré (וּמֹרַק) et rincé" (Lév. 6:21), (forbir dans le ancien français., à furbish).
 
 ### passuk 5
 <b>Ils brisaient</b> Les Egyptiens.

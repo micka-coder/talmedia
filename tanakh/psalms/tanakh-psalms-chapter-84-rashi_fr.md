@@ -23,7 +23,7 @@
 ### passuk 7
 <b>Transgresseurs dans la vallée des pleurs</b> Ceux qui transgressent ta loi voici qu'ils sont dans la profondeur de Gehinnom avec des pleurs et des gémissements.
 <b>Fais-en une fontaine</b> avec les larmes de leurs yeux.
-<Ils bénissent et remercient son nom et disent : "Il nous a jugés équitablement, et son jugement est vrai" (autre explication : Shem Ephraïm). Et celui qui nous a appris à suivre le bon chemin nous enveloppe de bénédictions, mais nous ne lui avons pas obéi.
+<b>Ils bénissent et remercient son nom et disent : "Il nous a jugés équitablement, et son jugement est vrai" (autre explication : Shem Ephraïm). Et celui qui nous a appris à suivre le bon chemin nous enveloppe de bénédictions, mais nous ne lui avons pas obéi.
 
 ### passuk 8
 <b>Ils vont d'hôte en hôte</b> Ceux mentionnés ci-dessus, qui habitent dans Ta maison, dans le cœur desquels se trouvent les autoroutes.

@@ -30,7 +30,7 @@ La Guemara repond : <b>Nous enoncons</b> une comparaison entre une offrande de c
 La Guemara contredit : Si c'est le cas, Rabbi Yehoshua aurait pu refuter la comparaison en soulignant une autre difference entre une offrande de peche et une offrande de culpabilite, <b>comme, si le sang</b> d'une offrande de peche externe <b>entre dans le sanctuaire le plus interieur,</b> il est <b>disqualifie.</b> Il n'en est pas ainsi dans le cas du sang d'une offrande de culpabilite.
 
 ### Partie 11
-La Gemara repond : <Rabbi Eliezer soutient qu'une offrande de culpabilite dont le sang penetre dans le sanctuaire le plus proche est egalement disqualifiee.
+La Gemara repond : <b>Rabbi Eliezer soutient qu'une offrande de culpabilite dont le sang penetre dans le sanctuaire le plus proche est egalement disqualifiee.
 
 ### Partie 12
 La Guemara contredit : Rabbi Yehoshua aurait pu faire une autre distinction, <b>comme</b> une offrande de peche <b>repare</b> les transgressions pour lesquelles on est <b>susceptible</b> de recevoir <b><i>karet</i></b> si on les a commises intentionnellement.
@@ -93,10 +93,10 @@ La Gemara repond : <b>En ce qui concerne</b> les offrandes qui necessitent <b>l'
 <b>Comme il est enseigne</b> dans un <i>baraita</i> : <b>Le sang</b> qui doit etre place sur <b>la moitie inferieure</b> de l'autel <b>est place</b> n'importe ou <b>a partir de la ligne rouge [<i>hasikra</i>] et en dessous, et</b> le sang qui doit etre place sur <b>la moitie superieure</b> est place n'importe ou <b>a partir de la ligne rouge et au-dessus. Rabbi Elazar, fils de Rabbi Shimon, a dit : Dans quel</b> cas <b>cette declaration est-elle dite ? </b> Elle est dite <b>par rapport a un holocauste d'oiseau. Mais</b> le placement du sang d'un <b>sacrifice pour le peche animal n'est lui-meme effectue que sur le coin actuel</b> de l'autel.
 
 ### Partie 32
-§ <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (81b) : <b>Comme le dirait Rabbi Akiva : Tout sang qui</b> aurait du etre asperge sur l'autel exterieur mais qui au lieu de cela <b>est entre pour expier dans le Sanctuaire</b> est <b>inadapte. Et les rabbins disent :</b> C'est la <i>halakha</i> <b>seulement</b> en ce qui concerne le sang d'une <b>offrande pour le peche. Rabbi Eliezer dit :</b> Le statut halakhique d'une <b>offrande de culpabilite</b> est <b>aussi</b> comme celui d'une offrande de peche, <b>comme il est dit : "Comme le sacrifice pour le péché, ainsi est le sacrifice de culpabilité"</b> (Levitique 7:7).
+§ <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (81b) : <b>Comme le dirait Rabbi Akiva : Tout sang qui</b> aurait du etre asperge sur l'autel exterieur mais qui au lieu de cela <b>est entre pour expier dans le Sanctuaire</b> est <b>inadapte. Et les sages disent :</b> C'est la <i>halakha</i> <b>seulement</b> en ce qui concerne le sang d'une <b>offrande pour le peche. Rabbi Eliezer dit :</b> Le statut halakhique d'une <b>offrande de culpabilite</b> est <b>aussi</b> comme celui d'une offrande de peche, <b>comme il est dit : "Comme le sacrifice pour le péché, ainsi est le sacrifice de culpabilité"</b> (Levitique 7:7).
 
 ### Partie 33
-La Gemara demande : <b>Accorde,</b> l'avis de <b>Rabbi Eliezer</b> est comprehensible, <b>car il enonce la raison</b> de son avis. <b>Mais quelle est la raison</b> de l'avis des <b>rabbins ?</b>
+La Gemara demande : <b>Accorde,</b> l'avis de <b>Rabbi Eliezer</b> est comprehensible, <b>car il enonce la raison</b> de son avis. <b>Mais quelle est la raison</b> de l'avis des <b>sages ?</b>
 
 ### Partie 34
 <b>Rava dit : On ne peut pas dire</b> que <b>le sang d'une offrande de culpabilite qui est entre</b> dans le Sanctuaire est <b>disqualifie,</b> en raison <b>d'une <i>a fortiori</i></b> deduction <b>du cas d'une <b>offrande brulee : Tout comme</b>

@@ -1,6 +1,6 @@
 
 ### Partie 1
-<Le document de ratification est signe, et il peut etre utilise pour remplacer le document efface.
+<b>Le document de ratification est signe, et il peut etre utilise pour remplacer le document efface.
 
 ### Partie 2
 <strong>GEMARA:</strong> <b>Les Sages ont enseigne</b> (<i>Tosefta</i>, <i>Bava Metzia</i> 1:16) : <b>Quel est</b> le texte du <b>document de ratification</b> <b>de</b> un document efface ? Le tribunal ecrit comme suit : <b>Nous, untel, untel et untel, siegions a trois</b> juges, et <b>untel, fils d'untel, a produit devant nous un document efface,</b> qui etait ecrit <b>a telle date, et untel et untel</b> en etaient <b>les temoins. Et s'il est ecrit dans</b> ce document de ratification aussi : <b>Nous avons engage</b> l'enquete sur <b>les temoignages des temoins et leurs temoignages se sont reveles</b> etre <b>concordants,</b> le creancier peut <b>recouvrer</b> sa dette sur la base de ce document de ratification, <b>et il n'a pas besoin d'apporter</b> d'autres <b>preuves. Mais si</b> cette formule est <b>non</b> ecrite, le creancier <b>doit apporter</b> d'autres <b>preuves</b> du pret pour le recouvrer.

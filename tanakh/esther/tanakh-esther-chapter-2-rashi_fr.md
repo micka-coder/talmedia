@@ -12,18 +12,18 @@
 
 ### passuk 5
 <b>Il y avait un homme yéhudite.</b> Parce qu'il a été exilé avec l'exil de Yéhudah.</sup>5</sup><i class="footnote">Rashi propose cette explication pour réconcilier la contradiction à la fin de ce verset où Mordechaï est décrit comme un homme binyaminite. Le targum rend  איש יהודי, "un juif pieux." Alternativement,  יהוד " est similaire à  יחוד " [=unification], c'est-à-dire que Mordechai a publiquement unifié le Nom de Dieu en refusant de s'incliner devant Haman, qui portait une image idolâtre. (Esther Rabba 6:2 et voir Maseches Megillah 12b-13a) </i>Tous ceux qui furent exilés avec les rois de Yehouda furent appelés  יְהוּדִים  [Yehoudites] parmi les nations, même s'ils étaient d'une autre tribu.<sup>6</sup><i class="footnote">Maseches Megillah 12b. </i> 
-<b>Un homme binyaminite.</b> Il était de Binyamin, c'est le sens courant. Mais nos rabbins ont exposé ce qu'ils ont exposé.<sup>7</sup><i class="footnote">Ibid. </i> 
+<b>Un homme binyaminite.</b> Il était de Binyamin, c'est le sens courant. Mais nos sages ont exposé ce qu'ils ont exposé.<sup>7</sup><i class="footnote">Ibid. </i> 
 
 ### passuk 6
 
 ### passuk 7
-<b>Comme une fille.</b> Nos rabbins ont expliqué, "pour une maison" [c'est-à-dire,  לְבַת, ce qui signifie, comme une femme.<sup>8</sup><i class="footnote">Masech Megillah 13a. Apparemment, לְבַיִת ne signifie pas ici [lit.] fille, car Esther n'était pas son enfant. </i> 
+<b>Comme une fille.</b> Nos sages ont expliqué, "pour une maison" [c'est-à-dire,  לְבַת, ce qui signifie, comme une femme.<sup>8</sup><i class="footnote">Masech Megillah 13a. Apparemment, לְבַיִת ne signifie pas ici [lit.] fille, car Esther n'était pas son enfant. </i> 
 
 ### passuk 8
 
 ### passuk 9
 <b>Il s'empressa de lui livrer ses produits cosmétiques.</b> Il fut plus expéditif et plus rapide à lui apporter [des produits cosmétiques] qu'à toutes les autres.</sup>9</sup><i class="footnote">Pour éviter de manger des aliments non cachers, Esther demanda à Hagaï de lui fournir des aliments naturels non cuits. Voir Maseches Megillah 13a. </i> 
-<b>Attribuées à elle.</b> Pour la servir, et c'est ce qu'ils feraient pour tous ; et nos rabbins ont exposé ce qu'ils ont exposé.<sup>10</sup><i class="footnote">Ibid. En ayant sept servantes, Esther était en mesure de savoir quand c'était Shabbat. Elle appelait chacune d'entre elles un jour différent de la semaine et lorsque celle qui était affectée au Shabbat arrivait, elle savait que c'était Shabbat. Une autre raison pour laquelle elle avait sept servantes, une pour chaque jour de la semaine, était que les servantes des jours de la semaine ne pouvaient pas observer son repos le Chabbath et détecter qu'elle était juive. Selon le Targum, le nom de chaque servante' correspondait à une partie de la création d'un jour spécifique. </i> 
+<b>Attribuées à elle.</b> Pour la servir, et c'est ce qu'ils feraient pour tous ; et nos sages ont exposé ce qu'ils ont exposé.<sup>10</sup><i class="footnote">Ibid. En ayant sept servantes, Esther était en mesure de savoir quand c'était Shabbat. Elle appelait chacune d'entre elles un jour différent de la semaine et lorsque celle qui était affectée au Shabbat arrivait, elle savait que c'était Shabbat. Une autre raison pour laquelle elle avait sept servantes, une pour chaque jour de la semaine, était que les servantes des jours de la semaine ne pouvaient pas observer son repos le Chabbath et détecter qu'elle était juive. Selon le Targum, le nom de chaque servante' correspondait à une partie de la création d'un jour spécifique. </i> 
 <b>Il l'a favorisée.</b> C'est-à-dire qu'il l'a changée  וַיְשַׁנֶּהָ. 
 
 ### passuk 10

@@ -26,7 +26,7 @@
 
 ### passuk 9
 <b>Le jour est saint</b> car c'est le jour de Roch Hachana. 
-<Car tout le peuple pleurait parce qu'il n'avait pas respecté la Torah de manière appropriée. 
+<b>Car tout le peuple pleurait parce qu'il n'avait pas respecté la Torah de manière appropriée. 
 
 ### passuk 10
 <b>À celui qui n'a rien préparé</b> à un pauvre qui n'a pas de nourriture préparée pour lui-même. 

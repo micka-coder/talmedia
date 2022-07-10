@@ -30,7 +30,7 @@
 Comment peut-il y avoir <b>un divorce</b> dont le statut est <b>incertain ?</b> C'est dans les cas d'actes de divorce non valables mentionnes ici dans la mishna : Un acte de divorce que le mari <b>a ecrit de sa main mais qui ne comporte aucune</b> signature de <b>temoins sur</b> le document, un cas ou <b>il y a</b> des signatures de <b>temoins sur</b> le document <b>mais ou il n'y a pas de date</b> ecrite <b>sur celui-ci,</b> et un cas ou <b>il y a une date</b> ecrite <b>sur celui-ci mais ou il ne comporte qu'un seul temoin. </b> Dans chacun de ces trois cas, <b>c'est</b> considere comme <b>un divorce</b> dont l'etat est <b>incertain.</b>
 
 ### Partie 11
-<b>Et si l'on dit</b> que malgre le divorce problematique de cette femme <b>elle</b> n'a pas besoin de <b>separer</b> son second mari, <b>sa femme rivale</b> de son premier mariage pourrait <b>entrer en levirat</b> apres le deces du premier mari, en supposant qu'elle etait deja divorcee. Cela violerait la decision de la mishna dans le tractate <i>Yevamot</i> selon laquelle elle ne peut pas le faire, car le statut du divorce est incertain et il n'est donc pas certain qu'elle soit la femme rivale d'un parent interdit.
+<b>Et si l'on dit</b> que malgre le divorce problematique de cette femme <b>elle</b> n'a pas besoin de <b>separer</b> son second mari, <b>sa femme rivale</b> de son premier mariage pourrait <b>entrer en levirat</b> apres le deces du premier mari, en supposant qu'elle etait deja divorcee. Cela violerait la decision de la mishna dans le traité <i>Yevamot</i> selon laquelle elle ne peut pas le faire, car le statut du divorce est incertain et il n'est donc pas certain qu'elle soit la femme rivale d'un parent interdit.
 
 ### Partie 12
 La Gemara repond : <b>Elle peut contracter un mariage levirat, et</b> il n'y a <b>aucun</b> probleme <b>avec cela,</b> car la difficulte avec l'acte de divorce <b>est</b> simplement <b>une preoccupation par la loi rabbinique.</b> Par la loi de la Torah, c'est un acte de divorce complet, et la femme rivale est apte au mariage levirat.
@@ -63,13 +63,13 @@ La Guemara repond : <b>Rabbi Elazar a fait deux declarations,</b> c'est-a-dire q
 <b>Et de meme, Rabbi Yaâkov bar Idi dit</b> que <b>Rabbi Yehoshua ben Levi dit :</b> Le <b><i>halakha</i> est en accord avec</b> l'avis de <b>Rabbi Elazar en ce qui concerne les actes de divorce. Et Rabbi Yannai dit :</b> Ceci <b>n'a meme pas la trace d'un acte de divorce.</b>
 
 ### Partie 22
-La Guemara demande : <b>Mais Rabbi Yannai ne tient-il pas</b> conformement a l'avis <b>de Rabbi Elazar</b> du tout, contrairement aux autres <i>amoraim</i> ? La Guemara repond : Au contraire, <b>c'est ce que</b> Rabbi Yannai <b>dit : Selon les rabbins,</b> qui ne sont pas d'accord avec Rabbi Elazar, cet acte de divorce <b>n'a meme pas la trace d'un acte de divorce.</b>
+La Guemara demande : <b>Mais Rabbi Yannai ne tient-il pas</b> conformement a l'avis <b>de Rabbi Elazar</b> du tout, contrairement aux autres <i>amoraim</i> ? La Guemara repond : Au contraire, <b>c'est ce que</b> Rabbi Yannai <b>dit : Selon les sages,</b> qui ne sont pas d'accord avec Rabbi Elazar, cet acte de divorce <b>n'a meme pas la trace d'un acte de divorce.</b>
 
 ### Partie 23
 <b>Et de meme, Rabbi Yosei, fils de Rabbi Hanina, dit</b> que <b>Reish Lakish dit :</b> La <b><i>halakha</i> est conforme</b> a l'opinion de <b>Rabbi Elazar en ce qui concerne les actes de divorce. Et Rabbi Yohanan dit :</b> Ceci <b>n'a meme pas la trace d'un acte de divorce.</b>
 
 ### Partie 24
-La Gemara demande : <b>Disons</b> que <b>Rabbi Yohanan ne tient pas</b> conformement a l'avis <b>de Rabbi Elazar</b> du tout. La Guemara repond : Au contraire, <b>C'est ce que</b> Rabbi Yohanan <b>dit : Selon les rabbins,</b> qui ne sont pas d'accord avec Rabbi Elazar, ceci <b>n'a meme pas la trace d'un acte de divorce.</b>
+La Gemara demande : <b>Disons</b> que <b>Rabbi Yohanan ne tient pas</b> conformement a l'avis <b>de Rabbi Elazar</b> du tout. La Guemara repond : Au contraire, <b>C'est ce que</b> Rabbi Yohanan <b>dit : Selon les sages,</b> qui ne sont pas d'accord avec Rabbi Elazar, ceci <b>n'a meme pas la trace d'un acte de divorce.</b>
 
 ### Partie 25
 <b>Rabbi Abba bar Zavda a envoye</b> la demande suivante <b>a Marei bar Mar : Demande a Rav Huna</b> si la <b><i>halakha</i> est conforme</b> a l'avis du <b>Rabbi Elazar en ce qui concerne les actes de divorce ou</b> si la <b><i>halakha</i> n'est pas</b> conforme a son avis.

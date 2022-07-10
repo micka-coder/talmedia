@@ -45,7 +45,7 @@ La Guemara rejette ce raisonnement : <b>Quelle est la difficulté</b> ici ? <b>P
 Une femme qui avait seulement été <b>fiançée</b> lorsqu'elle est devenue veuve ou divorcée <b>peut se marier</b> immédiatement, car on peut supposer que le couple n'a pas eu de relations pendant la période de leurs fiançailles. Ceci est <b>excepté pour une femme fiancée en Judée, car</b> là, le <b>cœur de l'époux est hardi,</b> car il était d'usage que les couples soient seuls ensemble pendant la période des fiançailles, et par conséquent il y a un soupçon qu'ils aient pu avoir des relations, auquel cas elle pourrait porter son enfant. Cependant, aucune préoccupation similaire ne s'applique dans d'autres endroits.
 
 ### Partie 16
-<Rabbi Yosei dit : Toutes les femmes</b> énumérées ci-dessus <b>peuvent être fiancées</b> immédiatement, car le décret ne s'applique qu'en ce qui concerne le mariage ; ceci est <b>excepté pour une veuve,</b> qui doit attendre pour une raison différente, <b>à cause</b> du <b>deuil</b> de son mari décédé.
+<b>Rabbi Yosei dit : Toutes les femmes</b> énumérées ci-dessus <b>peuvent être fiancées</b> immédiatement, car le décret ne s'applique qu'en ce qui concerne le mariage ; ceci est <b>excepté pour une veuve,</b> qui doit attendre pour une raison différente, <b>à cause</b> du <b>deuil</b> de son mari décédé.
 
 ### Partie 17
 <b>Et nous avons dit</b> à ce sujet : Il arriva une fois que <b>Rabbi Eliezer ne vienne pas à la salle d'étude. Il rencontra Rabbi Asi, qui était debout,</b> et lui <b>dit : Qu'ont-ils dit</b> aujourd'hui <b>dans la salle d'étude ? Il lui a répondu</b> que <b>Rabbi Yoḥanan a dit comme suit :</b> La <b><i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Yosei.</b> Rabbi Eliezer a demandé : <b>Par déduction,</b> peut-on déduire du fait que le <i>halakha</i> est conforme à son avis que seule <b>une seule</b> autorité <b>est en désaccord avec lui ?</b>
@@ -72,10 +72,10 @@ La Guemara interrompt sa présentation de la <i>baraita</i> pour exprimer sa sur
 <b>La <i>baraita</i> fait plutôt référence à <b>une zone où il existe une incertitude quant à l'emplacement d'une tombe ou d'un cadavre [<i>beit haperas</i>],</b> en raison du fait qu'une tombe a été involontairement labourée et que les ossements peuvent s'être dispersés dans le champ. Un tel champ ne confère une impureté rituelle que <b>par la loi rabbinique.</b>
 
 ### Partie 25
-Le <i>baraita</i> continue : <b>Et</b> un prêtre <b>peut</b> de même <b>devenir rituellement impur</b> et quitter Eretz Yisrael afin <b>d'épouser une femme ou d'étudier la Torah</b> là-bas. <Rabbi Yehuda a dit : Quand</b> cette autorisation s'applique-t-elle ? Lorsque <b>il ne peut pas trouver</b> un endroit <b>pour étudier</b> en Eretz Yisrael. <b>Mais</b> si le prêtre peut trouver un endroit <b>pour étudier</b> en Eretz Yisrael, <b>il ne peut devenir rituellement impur</b> en quittant le pays.
+Le <i>baraita</i> continue : <b>Et</b> un prêtre <b>peut</b> de même <b>devenir rituellement impur</b> et quitter Eretz Yisrael afin <b>d'épouser une femme ou d'étudier la Torah</b> là-bas. <b>Rabbi Yehuda a dit : Quand</b> cette autorisation s'applique-t-elle ? Lorsque <b>il ne peut pas trouver</b> un endroit <b>pour étudier</b> en Eretz Yisrael. <b>Mais</b> si le prêtre peut trouver un endroit <b>pour étudier</b> en Eretz Yisrael, <b>il ne peut devenir rituellement impur</b> en quittant le pays.
 
 ### Partie 26
-<Rabbi Yosei dit : Même s'il peut trouver</b> un endroit <b>pour étudier</b> la Torah en Eretz Yisrael, <b>il peut aussi</b> quitter le pays et <b>devenir rituellement impur, car</b>.
+<b>Rabbi Yosei dit : Même s'il peut trouver</b> un endroit <b>pour étudier</b> la Torah en Eretz Yisrael, <b>il peut aussi</b> quitter le pays et <b>devenir rituellement impur, car</b>.
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

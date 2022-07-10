@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>et ne saisit pas la boîte</b> des phylactères, qu'il ne peut toucher tant qu'il est impur. C'est <b>la déclaration de Rabbi Ya'akov. Et les rabbins disent : Une personne</b> peut <b>faire une brève sieste avec ses phylactères, mais le sommeil substantiel</b> n'est <b>pas</b> permis, et elle évitera ainsi une émission séminale en enfilant les phylactères. <b>Et quelle est</b> la durée de <b>une brève sieste ?</b> Elle est <b>équivalente</b> au temps nécessaire pour <b>marcher cent coudées.</b>
+<b>et ne saisit pas la boîte</b> des phylactères, qu'il ne peut toucher tant qu'il est impur. C'est <b>la déclaration de Rabbi Ya'akov. Et les sages disent : Une personne</b> peut <b>faire une brève sieste avec ses phylactères, mais le sommeil substantiel</b> n'est <b>pas</b> permis, et elle évitera ainsi une émission séminale en enfilant les phylactères. <b>Et quelle est</b> la durée de <b>une brève sieste ?</b> Elle est <b>équivalente</b> au temps nécessaire pour <b>marcher cent coudées.</b>
 
 ### Partie 2
 A propos de la durée d'une brève sieste, la Gemara cite que <b>Rav a dit : Il est interdit à une personne de dormir pendant la journée plus longtemps que</b> la durée du <b>sommeil d'un cheval.</b> Celui qui dort plus longtemps est défaillant dans l'étude de la Torah. <b>Et quelle est la durée</b> de la durée du <b>sommeil d'un cheval ?</b> Elle est de <b>six respirations</b>.

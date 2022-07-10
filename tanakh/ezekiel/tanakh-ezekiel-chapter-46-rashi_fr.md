@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>La porte de la cour intérieure qui donne sur l'est, etc.</b> Nos rabbins ont appris dans le Tractate Middoth (4:2) : La porte du Heichal avait deux guichets, un au sud et un au nord. Concernant celui du sud, il est expliqué dans les Écritures post-mosaïques (ci-dessus 44:2) : "et aucun homme ne pourra y entrer...et il sera fermé."
+<b>La porte de la cour intérieure qui donne sur l'est, etc.</b> Nos sages ont appris dans le Tractate Middoth (4:2) : La porte du Heichal avait deux guichets, un au sud et un au nord. Concernant celui du sud, il est expliqué dans les Écritures post-mosaïques (ci-dessus 44:2) : "et aucun homme ne pourra y entrer...et il sera fermé."
 
 ### passuk 2
 <b>par le vestibule de la porte du dehors</b> comme il est dit plus haut (40:31) : "Et ses salles étaient vers la cour extérieure." Par le vestibule de la porte de la cour, c'est-à-dire qu'il entrera par la porte orientale, qui sert d'entrée et de sortie, et arrivera à ce guichet.
@@ -13,13 +13,13 @@
 <b>Et les gens du pays se prosterneront</b> tout le jour, et celui qui vient aussi, et le soir on le fermera.
 
 ### passuk 4
-<b>Le jour du sabbat, il y aura six agneaux</b> Je ne sais pas pourquoi, car la Torah a dit (Num. 28:9) : " deux agneaux ", et " le jour du sabbat " signifie soit le sabbat commémorant la création, soit une fête. Je dis donc que ce sabbat n'est pas le sabbat commémorant la création, mais une fête qui nécessite sept agneaux et deux béliers. L'Écriture vient vous enseigner que [l'absence de l'un] ne rend pas l'autre invalide, et que si l'on ne trouve pas sept agneaux, il faut en apporter six, et que si l'on ne trouve pas deux béliers, il faut en apporter un, comme nos rabbins l'ont expliqué à propos de la Nouvelle Lune.
+<b>Le jour du sabbat, il y aura six agneaux</b> Je ne sais pas pourquoi, car la Torah a dit (Num. 28:9) : " deux agneaux ", et " le jour du sabbat " signifie soit le sabbat commémorant la création, soit une fête. Je dis donc que ce sabbat n'est pas le sabbat commémorant la création, mais une fête qui nécessite sept agneaux et deux béliers. L'Écriture vient vous enseigner que [l'absence de l'un] ne rend pas l'autre invalide, et que si l'on ne trouve pas sept agneaux, il faut en apporter six, et que si l'on ne trouve pas deux béliers, il faut en apporter un, comme nos sages l'ont expliqué à propos de la Nouvelle Lune.
 
 ### passuk 5
 <b>Comme il est capable de donner</b> Cela enseigne que les offrandes de repas ne s'invalident pas mutuellement [en l'absence de l'autre].
 
 ### passuk 6
-<b>Mais à la Nouvelle Lune : un jeune taureau sans défaut</b> Nos rabbins ont exposé ce verset dans Menahoth (45a) : Pourquoi est-il dit : "un jeune taureau" ? Puisqu'il est dit dans la Torah (Num. 28:11) : " Et au début de vos mois, etc., deux jeunes taureaux ", comment savez-vous que s'il n'en a pas trouvé deux, il doit en apporter un ? Car il est dit : " un taureau ".
+<b>Mais à la Nouvelle Lune : un jeune taureau sans défaut</b> Nos sages ont exposé ce verset dans Menahoth (45a) : Pourquoi est-il dit : "un jeune taureau" ? Puisqu'il est dit dans la Torah (Num. 28:11) : " Et au début de vos mois, etc., deux jeunes taureaux ", comment savez-vous que s'il n'en a pas trouvé deux, il doit en apporter un ? Car il est dit : " un taureau ".
 <b>et six agneaux</b> Pourquoi est-il nécessaire de le préciser ? Puisqu'il est dit dans la Torah : "sept", comment savez-vous que s'il n'en a pas trouvé sept, il devra en apporter six ? Parce qu'il est dit : " et six agneaux. " Et comment savoir [qu'il doit apporter] même un seul agneau ? Parce que la Torah dit : "mais pour les agneaux, autant qu'il peut en apporter".
 
 ### passuk 7

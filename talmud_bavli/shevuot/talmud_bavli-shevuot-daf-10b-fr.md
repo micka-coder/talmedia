@@ -30,7 +30,7 @@ Rabba <b>s'adressa a lui : N'etes-vous pas</b> egalement <b>d'avis que nous ne d
 Rabba explique la preuve a partir de la mishna : On pourrait se demander : <b>Mais pourquoi</b> la methode decrite devrait-elle fonctionner ? <b>Disons :</b> La <b>saintete qui etait</b> inherente <b>a l'encens, <b>ou est-elle passee ?</b> Elle ne peut etre supprimee en la rachetant. Perforce, meme vous devez conceder que cette question ne pose pas de difficulte.
 
 ### Partie 11
-Le Rav Hisda <b>lui a dit : As-tu dit</b> qu'il existe une preuve a partir des <i>halakhot</i> de l'<b>encens ?</b> On ne peut pas comparer l'encens aux animaux consacres pour les offrandes quotidiennes, car <b>l'encens est different,</b>.
+Rav Hisda <b>lui a dit : As-tu dit</b> qu'il existe une preuve a partir des <i>halakhot</i> de l'<b>encens ?</b> On ne peut pas comparer l'encens aux animaux consacres pour les offrandes quotidiennes, car <b>l'encens est different,</b>.
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

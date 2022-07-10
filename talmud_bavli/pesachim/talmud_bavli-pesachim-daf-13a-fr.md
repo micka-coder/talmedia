@@ -1,6 +1,6 @@
 
 ### Partie 1
-que l'incident s'est produit <b>pendant le lever du soleil</b> est parce que <b>il se tenait</b> dehors <b>en plein air et</b> ce sont <b>de simples rayons de lumière qu'il a vus</b> qu'il a pris pour le lever du soleil. En réalité, il témoigne lui aussi d'un incident survenu avant le lever du soleil, et les témoignages des deux témoins sont donc des témoignages compatibles. Le Rav Shimi bar Ashi nous <b>enseigne donc</b> qu'il n'y a pas lieu de s'inquiéter que cela ait transpiré de cette manière.
+que l'incident s'est produit <b>pendant le lever du soleil</b> est parce que <b>il se tenait</b> dehors <b>en plein air et</b> ce sont <b>de simples rayons de lumière qu'il a vus</b> qu'il a pris pour le lever du soleil. En réalité, il témoigne lui aussi d'un incident survenu avant le lever du soleil, et les témoignages des deux témoins sont donc des témoignages compatibles. Rav Shimi bar Ashi nous <b>enseigne donc</b> qu'il n'y a pas lieu de s'inquiéter que cela ait transpiré de cette manière.
 
 ### Partie 2
 <b>Rav Naḥman a dit</b> que <b>Rav a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda. Rava a dit à Rav Naḥman : Et que le Maître dise</b> que <b>la <i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Meir,</b> qui soutient que l'on peut manger pendant toute la cinquième heure, <b>comme l'a enseigné la <i>tanna</i></b> une <b>mishna non attribuée</b> <b>conforme à son opinion,</b> indiquant que c'est la <i>halakha</i>.
@@ -48,7 +48,7 @@ De même, les <b>collecteurs de</b> nourriture pour <b>l'assiette de charité,</
 <b>Rav Yosef a dit : Selon l'avis de qui</b>, c'est-à-dire l'avis de quelle <i>tanna</i>, <b>est ce <i>halakha</i> qui a été enseigné par Rabbi</b> Yehuda HaNasi, selon lequel on doit vendre le levain déposé chez soi afin d'éviter que le déposant ne perde sa possession ? Rav Yosef explique : C'est <b>conforme</b> à l'avis de <b>Rabban Chimon ben Gamliel, comme nous l'avons appris</b> dans une mishna : En ce qui concerne <b>celui qui dépose des produits chez un autre, même si</b> les produits seront <b>ruinés</b> par des insectes ou des moisissures, <b>il</b> ne doit <b>pas les toucher. Rabban Shimon ben Gamliel dit :</b> Il doit les <b>vendre au tribunal, en raison</b> de l'obligation de <b>restaurer les biens perdus.</b> Tout comme on est tenu de rendre un objet perdu, on est également tenu de prévenir la perte du bien d'autrui dont il a assumé la responsabilité.
 
 ### Partie 17
-<b>Abaye lui dit : N'a-t-on pas dit à propos de cette</b> mishna que <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Les rabbins <b>ont enseigné</b> qu'on ne peut les toucher <b>que</b> si .
+<b>Abaye lui dit : N'a-t-on pas dit à propos de cette</b> mishna que <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Les sages <b>ont enseigné</b> qu'on ne peut les toucher <b>que</b> si .
 
 >Crédit : William Davidson Edition
 >License : CC-BY-NC

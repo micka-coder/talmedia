@@ -17,7 +17,7 @@
 
 ### passuk 6
 <b>Comme témoignage pour Jehoseph Il l'a ordonné</b> Le jour de Roch Hachana, Joseph sortit de prison.
-<b>[quand] j'ai compris une langue que je ne connaissais pas</b> Il est expliqué dans le tractate Sotah (36b) que [l'ange] Gabriel lui a enseigné soixante-dix langues.
+<b>[quand] j'ai compris une langue que je ne connaissais pas</b> Il est expliqué dans le traité Sotah (36b) que [l'ange] Gabriel lui a enseigné soixante-dix langues.
 
 ### passuk 7
 <b>Du chaudron</b> Du travail des esclaves pour cuire les pots à la manière des autres esclaves.

@@ -40,7 +40,7 @@
 
 ### passuk 11
 <b>Vous devez le laisser se reposer </b> du travail [des champs] .
-<Une autre explication [de  תִּשְׁמְטֶנָּה וּנְטַשְׁתָּהּ] : " Vous devez le laisser se reposer " du travail réel, comme le labourage et les semailles ; " et l'abandonner " du fumier et du binage. 
+<b>Une autre explication [de  תִּשְׁמְטֶנָּה וּנְטַשְׁתָּהּ] : " Vous devez le laisser se reposer " du travail réel, comme le labourage et les semailles ; " et l'abandonner " du fumier et du binage. 
 <b>Ce qu'ils laissent en surplus, les bêtes des champs peuvent le manger.</b> Il s'agit de comparer la nourriture du pauvre à celle de la bête sauvage. De même que la bête sauvage mange sans dîme, de même les pauvres mangent sans dîme. C'est à partir de là qu'ils (les Sages) ont affirmé qu'il n'y a pas d'obligation de dîme pendant la septième année. 
 <b>Faites de même avec votre vigne.</b> Mais le début du verset [תִּשְׁמְטֶנָּה וּנְטַשְׁתָּהּ] traite d'un champ de céréales, puisqu'il est dit, avant cela : " Tu peux ensemencer ta terre. 
 
@@ -66,7 +66,7 @@
 <b>La fête de la moisson.</b> Cela fait référence à la fête de Shavuos....
 <b>Les prémices de votre travail</b> qui est le moment d'apporter les prémices car l'offrande des "deux pains" qui sont apportés à Chavouos, permettent à la nouvelle récolte [d'être utilisée] pour les offrandes de repas et pour apporter des <i>bikkurim</i> au Beit Hamikdash, comme il est dit : " Le jour des Bikkurim, etc...." ? 
 <b>La fête de la collecte.</b> Il s'agit de la fête de Souccos .
-<Car pendant tout l'été, les céréales sèchent dans les champs et pendant la saison de Souccos, elles sont récoltées à l'intérieur pour éviter les pluies.
+<b>Car pendant tout l'été, les céréales sèchent dans les champs et pendant la saison de Souccos, elles sont récoltées à l'intérieur pour éviter les pluies.
 
 ### passuk 17
 <b>Trois fois, etc.</b> Puisque le sujet ici traite de <i>souccos,</i> il était nécessaire de préciser que les Trois Fêtes ne seront pas annulées de [se dérouler à] leurs temps alloués. 
@@ -173,7 +173,7 @@
 
 ### passuk 11
 <b>Vous devez le laisser se reposer </b> du travail [des champs] .
-<Une autre explication [de ' " - -"] : " Vous devez le laisser se reposer " du travail réel, comme le labourage et les semailles ; " et l'abandonner " du fumier et du binage. 
+<b>Une autre explication [de ' " - -"] : " Vous devez le laisser se reposer " du travail réel, comme le labourage et les semailles ; " et l'abandonner " du fumier et du binage. 
 <b>Ce qu'ils laissent en surplus, les bêtes des champs peuvent le manger.</b> Il s'agit de comparer la nourriture du pauvre à celle de la bête sauvage. De même que la bête sauvage mange sans dîme, de même les pauvres mangent sans dîme. C'est à partir de là qu'ils (les Sages) ont affirmé qu'il n'y a pas d'obligation de dîme pendant la septième année. 
 <b>Faites de même avec votre vigne.</b> Mais le début du verset [' " - -"] traite d'un champ de céréales, puisqu'il est dit, avant cela : " Tu peux ensemencer ta terre. 
 
@@ -199,7 +199,7 @@
 <b>La fête de la moisson.</b> Cela fait référence à la fête de Shavuos....
 <b>Les prémices de votre travail</b> qui est le moment d'apporter les prémices car l'offrande des "deux pains" qui sont apportés à Chavouos, permettent à la nouvelle récolte [d'être utilisée] pour les offrandes de repas et pour apporter des <i>bikkurim</i> au Beit Hamikdash, comme il est dit : " Le jour des Bikkurim, etc...." ? 
 <b>La fête de la collecte.</b> Il s'agit de la fête de Souccos .
-<Car pendant tout l'été, les céréales sèchent dans les champs et pendant la saison de Souccos, elles sont récoltées à l'intérieur pour éviter les pluies.
+<b>Car pendant tout l'été, les céréales sèchent dans les champs et pendant la saison de Souccos, elles sont récoltées à l'intérieur pour éviter les pluies.
 
 ### passuk 17
 <b>Trois fois, etc.</b> Puisque le sujet ici traite de <i>souccos,</i> il était nécessaire de préciser que les Trois Fêtes ne seront pas annulées de [se dérouler à] leurs temps alloués. 

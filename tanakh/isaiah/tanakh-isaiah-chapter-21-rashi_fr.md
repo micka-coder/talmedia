@@ -15,7 +15,7 @@
 <b>Tous les soupirs ont pris fin</b> (אַנְחָתָה"). (Ce n'est) pas (orthographié avec un) "Mappiq heh," (qui signifierait "son soupir") car c'est comme "tous les soupirs du monde," et c'est une expression dénotant un grand soupir de beaucoup de gens (sospiradique en ancien français). J'ai mis fin à tous les soupirs, car le monde soupirait à cause du joug du royaume de Babylone ; maintenant j'y ai mis fin.
 
 ### passuk 3
-<b>mes reins sont remplis de tremblements</b> Le prophète est miséricordieux et soupire sur le châtiment infligé aux nations. C'est le Midrash Aggadah (Tan., début de Balak). Selon son sens simple, cependant, le prophète récite la lamentation et le deuil comme s'il s'agissait de la lamentation de Babylone. pangs (צִירִים), expression désignant le tremblement et les douleurs. Et nos rabbins ont dit : La femme a des portes et des charnières (צִירִים) sur son ventre, tout comme les portes d'une maison ont des charnières (Bechoroth 45a).
+<b>mes reins sont remplis de tremblements</b> Le prophète est miséricordieux et soupire sur le châtiment infligé aux nations. C'est le Midrash Aggadah (Tan., début de Balak). Selon son sens simple, cependant, le prophète récite la lamentation et le deuil comme s'il s'agissait de la lamentation de Babylone. pangs (צִירִים), expression désignant le tremblement et les douleurs. Et nos sages ont dit : La femme a des portes et des charnières (צִירִים) sur son ventre, tout comme les portes d'une maison ont des charnières (Bechoroth 45a).
 <b>Je suis devenu confus</b> Il s'agit d'une maladie connue sous le nom de  עֲוִית, convulsions, dans la langue des Sages.
 
 ### passuk 4

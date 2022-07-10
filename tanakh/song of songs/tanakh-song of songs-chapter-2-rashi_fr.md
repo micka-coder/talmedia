@@ -56,7 +56,7 @@
 <b>Le figuier a produit ses figues vertes.</b> [A comprendre] selon son sens apparent.
 <b>Et les vignes aux raisins tendres.</b> Lorsque la fleur tombe, que les raisins se séparent les uns des autres, et que chaque grain est discernable par lui-même, on l'appelle "סְמָדַר." Toute cette partie, selon son sens simple, est l'expression d'une séduction amoureuse, par laquelle un jeune homme appelle sa fiancée à le suivre ; c'est ce que mon bien-aimé a fait pour moi. 
 <b>Mon bien-aimé a parlé.</b> Par l'intermédiaire de Moshé.
-<Et m'a dit. Par Aharon.
+<b>Et m'a dit. Par Aharon.
 <b>Lève-toi.</b> Dépêche-toi, "et que chacun emprunte à son voisin".</sup></sup><i class="footnote">Shemos 11:2. </i> 
 <b>Parce que voici, l'hiver est passé.</b> Ce sont les quatre cents ans de [l'exil]. Je les ai sautées en les comptant depuis la naissance de Yitzchak.<sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 15:13. </i> 
 <b>La pluie.</b> Qui est la dureté de l'hiver, est passée et disparue, c'est-à-dire que quatre-vingt-six années de dur esclavage ont été décrétées sur vous, et elles sont passées. À partir du moment où Miryam est née, les Égyptiens ont intensifié l'esclavage sur Yisrael ; c'est pourquoi on l'a appelée Miryam [=  מִרְיָם, parce qu'ils l'ont rendu amer [=מַר  pour eux.<sup>24</sup><i class="footnote">Voir Shemos 1:14. </i> 

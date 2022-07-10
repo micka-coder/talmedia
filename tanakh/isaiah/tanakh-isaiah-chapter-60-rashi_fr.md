@@ -51,7 +51,7 @@
 ### passuk 17
 <b>A la place du cuivre</b> qu'ils t'ont pris.
 <b>Et je ferai la paix à tes officiers</b> [Jonathan rend :] Et je ferai la paix à tes officiers et la justice à tes chefs.
-פְקֻדָּתֵךְ  Vos officiers désignés. Nos rabbins ont déclaré : Les officiers qui sont venus sur vous dans votre exil et les dirigeants qui vous ont pressé seront comptés pour vous comme la paix et la charité (Baba Bathra 9a). (C'est-à-dire que l'argent qu'ils ont exigé de vous sera compté comme de la charité).
+פְקֻדָּתֵךְ  Vos officiers désignés. Nos sages ont déclaré : Les officiers qui sont venus sur vous dans votre exil et les dirigeants qui vous ont pressé seront comptés pour vous comme la paix et la charité (Baba Bathra 9a). (C'est-à-dire que l'argent qu'ils ont exigé de vous sera compté comme de la charité).
 
 ### passuk 18
 

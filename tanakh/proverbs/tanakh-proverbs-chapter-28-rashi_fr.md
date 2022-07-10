@@ -91,7 +91,7 @@
 
 ### passuk 27
 <b>Celui qui donne à un pauvre</b> charité.
-<Il en est de même pour le professeur qui ne retient pas la Torah de son élève.
+<b>Il en est de même pour le professeur qui ne retient pas la Torah de son élève.
 
 >Crédit : sefaris
 >Licence : CC-BY

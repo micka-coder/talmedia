@@ -53,7 +53,7 @@
 
 ### passuk 20
 <b>Je placerai une pierre d'achoppement devant lui</b> Quand il fait ses actes en secret et s'affiche comme un homme juste, je place un péché manifeste devant lui afin de révéler ses actes, et quand je fais venir le mal sur lui, ils ne me questionneront pas.
-<b>et ses actes justes...ne seront pas rappelés</b> Nos rabbins ont expliqué cela comme faisant référence à celui qui regrette ses premiersils regrettent les premiers actes justes qu'il a accomplis.
+<b>et ses actes justes...ne seront pas rappelés</b> Nos sages ont expliqué cela comme faisant référence à celui qui regrette ses premiersils regrettent les premiers actes justes qu'il a accomplis.
 
 ### passuk 21
 

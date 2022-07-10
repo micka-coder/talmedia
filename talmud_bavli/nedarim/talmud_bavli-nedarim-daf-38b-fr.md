@@ -1,6 +1,6 @@
 
 ### Partie 1
-Tant <b>son etre que son corps</b> appartiennent <b>au Ciel,</b> car il est interdit a son proprietaire de manger sa viande. Les rabbins lui ont <b>dit : L'animal non casher</b> <b>aussi, son etre</b> appartient <b>au Ciel, et son corps est</b> la propriete de son proprietaire, car si le proprietaire le choisit, <b>il le vend aux gentils ou le donne a manger aux chiens.</b>
+Tant <b>son etre que son corps</b> appartiennent <b>au Ciel,</b> car il est interdit a son proprietaire de manger sa viande. Les sages lui ont <b>dit : L'animal non casher</b> <b>aussi, son etre</b> appartient <b>au Ciel, et son corps est</b> la propriete de son proprietaire, car si le proprietaire le choisit, <b>il le vend aux gentils ou le donne a manger aux chiens.</b>
 
 ### Partie 2
 <strong>GEMARA :</strong> <b>Rav Yitzhak bar Hananya a dit</b> que <b>Rav Huna a dit :</b> Dans le cas de <b>quelqu'un pour qui le benefice d'un autre est interdit par vœu, il est permis de lui marier sa fille. Rabbi Zeira en a discute : Dans quel</b> cas avons-nous affaire ? Si nous disons</b> qu'il s'agit d'un cas ou <b>les biens du pere de la mariee sont interdits au marie,</b> cela ne peut etre, car lorsqu'on marie sa fille au marie, <b>il lui fournit une servante pour le servir</b> et lui profite ainsi.

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Tout commandement d'Hachem. </b> Nos rabbins ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
+<b>Tout commandement d'Hachem. </b> Nos sages ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
 <b>Un de ceux-ci,</b> une partie d'un de ceux-ci, comme celui qui écrit le Chabbat, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Noach de Nochor, Don de Doniel. 
 
 ### passuk 3
@@ -35,7 +35,7 @@
 
 ### passuk 12
 <b>Dans un lieu pur [non souillé].</b> Puisqu'il y a hors de la ville un lieu préparé pour l'impureté - [dans lequel] on jette des pierres frappées de peste, et [réservé] pour un cimetière - il était nécessaire de préciser qu'" au-delà du campement ", qui est hors de la ville [= Jérusalem], que le lieu doit être pur. 
-<b>Au delà du campement, </b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>au delà des trois campements, et dans le Temple, [cela signifie] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à l'extérieur de la ville [de Jérusalem], comme nos rabbins l'ont expliqué dans Maseches Yomo et dans Sanhedrin. 
+<b>Au delà du campement, </b><i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>au delà des trois campements, et dans le Temple, [cela signifie] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à l'extérieur de la ville [de Jérusalem], comme nos sages l'ont expliqué dans Maseches Yomo et dans Sanhedrin. 
 <b>L'endroit où l'on jette les cendres,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>un endroit où l'on répand les cendres retirées de l'autel, comme il est dit : "Il emportera les cendres au-delà du campement [dans un endroit pur]". 
 <b>On le brûlera à l'endroit où l'on a jeté les cendres.</b> Bien que le verset n'ait pas eu besoin de dire [cela], sauf pour enseigner que [le taureau est brûlé] même si <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>il n'y a pas de cendres à cet endroit.
 

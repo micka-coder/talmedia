@@ -67,7 +67,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Qu'ils mentiraient.</b> L'explication est selon le sens simple. Nos rabbins ont cependant dit<sup>10</sup><i class="footnote">Dans le Masehet Yoma 9a-b.</i> que puisqu'ils retardaient [le sacrifice de] leurs oiseaux<sup>11</sup><i class="footnote">Voir Vayikra 15:29 et 22:6-8. </i> et qu'ils attendaient de voir leurs oiseaux offerts, l'Écriture les charge comme s'ils avaient couché avec eux.<sup>12</sup><i class="footnote">Voir Maseches Shabbos 55b. Metzudas David traduit cette phrase par " ils feraient dormir les femmes qui se sont rassemblées à l'entrée de la Tente de la Rencontre ", ce qui les empêcherait de retourner dans leurs maisons et chez leurs maris.
+<b>Qu'ils mentiraient.</b> L'explication est selon le sens simple. Nos sages ont cependant dit<sup>10</sup><i class="footnote">Dans le Masehet Yoma 9a-b.</i> que puisqu'ils retardaient [le sacrifice de] leurs oiseaux<sup>11</sup><i class="footnote">Voir Vayikra 15:29 et 22:6-8. </i> et qu'ils attendaient de voir leurs oiseaux offerts, l'Écriture les charge comme s'ils avaient couché avec eux.<sup>12</sup><i class="footnote">Voir Maseches Shabbos 55b. Metzudas David traduit cette phrase par " ils feraient dormir les femmes qui se sont rassemblées à l'entrée de la Tente de la Rencontre ", ce qui les empêcherait de retourner dans leurs maisons et chez leurs maris.
 
 ### passuk 23
 

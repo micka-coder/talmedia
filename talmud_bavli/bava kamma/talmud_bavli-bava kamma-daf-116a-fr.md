@@ -36,7 +36,7 @@ A propos de cet episode, <b>Rav Aha de Difti dit a Ravina : Pourquoi</b> etait-i
 <b>Rav a souleve un dilemme devant Rabbi</b> Yehuda HaNasi : Si quelqu'un est <b>descendu</b> dans la riviere afin de <b>sauvegarder</b> l'ane d'un autre au lieu du sien, <b>mais</b> il <b>n'a pas</b> reussi a le <b>sauvegarder</b>, <b>qu'est-ce que</b> la <i>halakha</i> ? La stipulation s'applique-t-elle toujours de sorte que le proprietaire de l'ane qu'il a tente de sauver doit l'indemniser pour la perte de son propre ane ? Rabbi Yehuda HaNasi <b>lui repondit : Et est-ce une question ? </b> Il est clair que <b>Il a</b> le droit de percevoir <b>seulement son salaire,</b> mais il n'a pas droit a la valeur de son propre ane.
 
 ### Partie 13
-Le Rav <b>a souleve une objection a</b> Rabbi Yehuda HaNasisur la decision d'une <i>baraita</i> : Dans le cas de <b>celui qui embauche un ouvrier</b>.
+Rav <b>a souleve une objection a</b> Rabbi Yehuda HaNasisur la decision d'une <i>baraita</i> : Dans le cas de <b>celui qui embauche un ouvrier</b>.
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

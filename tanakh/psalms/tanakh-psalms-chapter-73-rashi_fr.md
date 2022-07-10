@@ -11,7 +11,7 @@
 <b>les pervers</b> Heb.  בהוללים, mélangé, comme (Isa. 1:22) : "Votre vin est dilué (מהול) avec de l'eau."
 
 ### passuk 4
-<b>Parce qu'il n'y a pas d'entraves à leur mort</b> Heb.  חרצבות, expression de lier, comme (Isa. 58:6) : "défaire les fers (חרצבות) de la méchanceté," c'est-à-dire les verrous des fers avec lesquels ils lient les pauvres. Ici aussi, il n'y a pas de douleurs à leur mort. Ceux qui meurent parmi eux meurent en bonne santé, [forts comme] un palais, sans douleurs. Mais nos rabbins ont expliqué  חַרְצֻבּוֹת  comme une abréviation, signifiant qu'ils ne sont pas (שאין) effrayés (חרדין) ou attristés (עצבין) par le jour de la mort (Shab. 31b). Autre explication : que le Saint, béni soit-Il, ne retarde pas (מאחר) leur désir (צביונם).
+<b>Parce qu'il n'y a pas d'entraves à leur mort</b> Heb.  חרצבות, expression de lier, comme (Isa. 58:6) : "défaire les fers (חרצבות) de la méchanceté," c'est-à-dire les verrous des fers avec lesquels ils lient les pauvres. Ici aussi, il n'y a pas de douleurs à leur mort. Ceux qui meurent parmi eux meurent en bonne santé, [forts comme] un palais, sans douleurs. Mais nos sages ont expliqué  חַרְצֻבּוֹת  comme une abréviation, signifiant qu'ils ne sont pas (שאין) effrayés (חרדין) ou attristés (עצבין) par le jour de la mort (Shab. 31b). Autre explication : que le Saint, béni soit-Il, ne retarde pas (מאחר) leur désir (צביונם).
 
 ### passuk 5
 

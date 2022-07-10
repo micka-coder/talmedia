@@ -41,7 +41,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Non fortifiées.</b> Ceux qui ne résident pas dans des villes fortifiées, [fêtent] le quatorze, et ceux qui résident dans des villes fortifiées [fêtent] le quinze, comme Shushan ; et [ces villes] doivent avoir été entourées [de murs] depuis les jours de Yehoshua Bin Nun. C'est ainsi que nos rabbins ont expliqué et appris.<sup>4</sup><i class="footnote">Masech Megillah 2b. Shushan qui était sans mur à l'époque de Yehoshua s'est vu accorder un statut particulier  parce que le miracle y a été accompli. </i> 
+<b>Non fortifiées.</b> Ceux qui ne résident pas dans des villes fortifiées, [fêtent] le quatorze, et ceux qui résident dans des villes fortifiées [fêtent] le quinze, comme Shushan ; et [ces villes] doivent avoir été entourées [de murs] depuis les jours de Yehoshua Bin Nun. C'est ainsi que nos sages ont expliqué et appris.<sup>4</sup><i class="footnote">Masech Megillah 2b. Shushan qui était sans mur à l'époque de Yehoshua s'est vu accorder un statut particulier  parce que le miracle y a été accompli. </i> 
 <b>Envoi.</b> Ce  מִשְׁלֹחַ - est un nom comme  מִשְׁמָר  [garde]<sup>5</sup><i class="footnote">Nechemyah 12:24. </i> et  מִשְׁמָע  [entendre],<sup>6</sup><i class="footnote">Yeshayah 11:3. </i> donc le <i>shin</i> est voyellé doucement [sans un <i>dagesh</i>]. 
 
 ### passuk 20

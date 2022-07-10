@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un chant de montées</b> que les lévites réciteront sur les quinze marches qui descendent de la cour des Israélites à la cour des Femmes, et il existe quinze psaumes intitulés "Un chant de montées" (Suc. 5:4, Mid 2:5). Et nos rabbins ont dit que David les a composés pour élever les profondeurs, comme cela est expliqué dans le Tractate Succah (53a). Et selon l'Aggadah (Yerushalmi Sanh. 10:2, 52b), il faut l'interpréter ainsi : Une chanson pour cent pas (שיר למאה עולות).
+<b>Un chant de montées</b> que les lévites réciteront sur les quinze marches qui descendent de la cour des Israélites à la cour des Femmes, et il existe quinze psaumes intitulés "Un chant de montées" (Suc. 5:4, Mid 2:5). Et nos sages ont dit que David les a composés pour élever les profondeurs, comme cela est expliqué dans le Tractate Succah (53a). Et selon l'Aggadah (Yerushalmi Sanh. 10:2, 52b), il faut l'interpréter ainsi : Une chanson pour cent pas (שיר למאה עולות).
 
 ### passuk 2
 <b>Des lèvres fausses</b> Le bras de ceux qui chassent les gens avec leur bouche par de méchantes accusations.

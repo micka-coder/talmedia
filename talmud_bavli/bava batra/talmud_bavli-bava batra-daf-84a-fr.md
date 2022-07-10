@@ -21,7 +21,7 @@ La Gemara <b>souleve une objection</b> a cette affirmation : A propos d'un verse
 La Gemara demande : <b>Et d'apres ce qui est entre dans notre esprit initialement,</b> que le soleil est blanc, est-ce qu'il ne <b>rouge pas dans</b> le <b>matin et le soir ?</b> La Gemara repond : <b>Le matin</b> il devient rouge <b>en passant sur l'emplacement</b> des <b>roses du jardin d'Eden,</b> dont les reflets donnent a la lumiere une teinte rouge. <b>Le soir</b> le soleil devient rouge <b>parce que</b> il <b>passe sur l'entree de la Gehenne,</b> dont les feux rougissent la lumiere. <b>Et il y a</b> ceux <b>qui disent le contraire</b> en expliquant pourquoi le soleil est rouge le matin et le soir, c'est-a-dire qu'il passe le matin sur l'entree de la Gehenne, tandis que le soir il passe sur l'emplacement des roses du jardin d'Eden.
 
 ### Partie 8
-§ La mishna enseigne : Si le vendeur a vendu du <b>vin et que l'on decouvre</b> qu'il s'agit de <b>vinaigre, tant</b> le vendeur que l'acheteur <b>peuvent renier</b> la vente. La Gemara suggere : <b>Devons-nous dire</b> que <b>la mishna est</b> en accord avec l'opinion du <b>Rabbi</b> Yehuda HaNasi <b>et non</b> en accord avec l'opinion des <b>rabbins ? Comme il est enseigne</b> dans une <i>baraita</i> :
+§ La mishna enseigne : Si le vendeur a vendu du <b>vin et que l'on decouvre</b> qu'il s'agit de <b>vinaigre, tant</b> le vendeur que l'acheteur <b>peuvent renier</b> la vente. La Gemara suggere : <b>Devons-nous dire</b> que <b>la mishna est</b> en accord avec l'opinion du <b>Rabbi</b> Yehuda HaNasi <b>et non</b> en accord avec l'opinion des <b>sages ? Comme il est enseigne</b> dans une <i>baraita</i> :
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

@@ -6,7 +6,7 @@
 <b>Le roi de Babylone l'a assiégée</b> Aujourd'hui il l'a assiégée.
 
 ### passuk 3
-<b>Mettez la marmite</b> [Héb.  שְׂפֹת, mettre.] Sur la bouche du poêle à l'endroit où elle est mise. Cela s'appelle  שְׂפִיתָה " en hébreu mishnique, car nos rabbins ont dit (Shab. 38b) : "[Un poêle a] un emplacement pour la mise en place de ]  שְׂפִיתַת [deux pots." Nous avons également appris (Beizah 34a) : "Si on pose la marmite, on y met de l'eau, et on y met les condiments..." Nous apprenons qu'il s'agit de la poser sur la bouche du poêle avant d'y mettre quoi que ce soit. Cette figure représente Jérusalem, dont tu as dit : "C'est la marmite". Maintenant, le temps est venu pour qu'elle devienne une marmite, et vous serez la viande à l'intérieur, et Nabuchodonosor arrive et la mettra sur le feu. Menachem (p. 179) l'explique comme une expression de placement.
+<b>Mettez la marmite</b> [Héb.  שְׂפֹת, mettre.] Sur la bouche du poêle à l'endroit où elle est mise. Cela s'appelle  שְׂפִיתָה " en hébreu mishnique, car nos sages ont dit (Shab. 38b) : "[Un poêle a] un emplacement pour la mise en place de ]  שְׂפִיתַת [deux pots." Nous avons également appris (Beizah 34a) : "Si on pose la marmite, on y met de l'eau, et on y met les condiments..." Nous apprenons qu'il s'agit de la poser sur la bouche du poêle avant d'y mettre quoi que ce soit. Cette figure représente Jérusalem, dont tu as dit : "C'est la marmite". Maintenant, le temps est venu pour qu'elle devienne une marmite, et vous serez la viande à l'intérieur, et Nabuchodonosor arrive et la mettra sur le feu. Menachem (p. 179) l'explique comme une expression de placement.
 <b>et aussi y verser de l'eau</b> Ceux-ci [représentent] les accessoires pour le siège.  יִצֹק  est comme  שְׁפֹךְ, verser.
 
 ### passuk 4
@@ -25,7 +25,7 @@
 
 ### passuk 7
 <b>lisse</b> [Héb.  צְחִיחַ-,] douceur.
-<b>Elle ne l'a pas versé sur le sol, etc.</b> Jonathan a paraphrasé : c'est avec une méchanceté volontaire et avec un bras levé en haut qu'elle l'a versé ; elle ne l'a pas versé involontairement pour s'en repentir. Nos rabbins (Git. 57b, Pesikta d'Rav Kahana 122a) l'ont expliqué comme faisant référence au sang de Zacharie, fils de Jehoiada. Ils ne l'ont pas traité comme le sang du cerf ou le sang de la gazelle.
+<b>Elle ne l'a pas versé sur le sol, etc.</b> Jonathan a paraphrasé : c'est avec une méchanceté volontaire et avec un bras levé en haut qu'elle l'a versé ; elle ne l'a pas versé involontairement pour s'en repentir. Nos sages (Git. 57b, Pesikta d'Rav Kahana 122a) l'ont expliqué comme faisant référence au sang de Zacharie, fils de Jehoiada. Ils ne l'ont pas traité comme le sang du cerf ou le sang de la gazelle.
 
 ### passuk 8
 <b>Pour qu'il suscite la fureur</b> devant Moi. J'ai [donc (ms. Etz Chaim)] ordonné que ce sang ne soit pas absorbé par le sol, afin qu'on s'en souvienne, afin que Ma vengeance soit exercée.

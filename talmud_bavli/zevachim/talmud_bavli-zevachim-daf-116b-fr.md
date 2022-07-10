@@ -54,7 +54,7 @@ La Guemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> que c'est <b>en eff
 § En ce qui concerne la division de Jerusalem en trois camps, <b>il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Yohai dit : Il y avait un camp supplementaire</b> a Jerusalem, dans la zone du Mont du Temple, <b>et c'etait</b> <b>le rempart de la cour des femmes.</b> Les Sages ont rendu interdit a certains individus rituellement impurs de penetrer dans cette zone, <b>mais ils ne les punissaient pas</b> <b>pour</b> y etre entres,</b> car par la loi de la Torah, il ne constitue pas une section distincte du Mont du Temple mais a le statut du camp des Levites. Le <i>baraita</i> ajoute : <b>Et</b> lorsque le Tabernacle etait <b>a Silo, il n'y avait que deux camps.</b>
 
 ### Partie 19
-La Gemara demande : <b>Lequel des</b> trois camps qui etaient presents dans le desert <b>n'etait pas</b> present a Silo ? <Rabba dit : Il va de soi que le camp levite etait</b> present, mais que le camp israelite ne l'etait pas. <b>Ainsi, s'il vous vient a l'esprit de dire</b> que <b>le camp levite n'etait pas</b> present a Silo,
+La Gemara demande : <b>Lequel des</b> trois camps qui etaient presents dans le desert <b>n'etait pas</b> present a Silo ? <b>Rabba dit : Il va de soi que le camp levite etait</b> present, mais que le camp israelite ne l'etait pas. <b>Ainsi, s'il vous vient a l'esprit de dire</b> que <b>le camp levite n'etait pas</b> present a Silo,
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

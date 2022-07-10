@@ -27,7 +27,7 @@
 ### passuk 11
 <b>L'acte d'achat</b> L'acte de vente.
 <b>Ce qui a été signé, etc.</b> Avec sa signature telle qu'elle a été signée selon so la loi et le statut.
-<b>et ce qui a été ouvert</b> Qui a été confirmé au tribunal par la parole de ses témoins, et les juges ont écrit et signé une confirmation judiciaire. Il s'agit de la confirmation des actes pour rendre l'affaire ouverte et publique de peur que les témoins ne meurent, et nos rabbins ont expliqué cela concernant un document clair et ouvert et un document plié dans Baba Bathra (160b).
+<b>et ce qui a été ouvert</b> Qui a été confirmé au tribunal par la parole de ses témoins, et les juges ont écrit et signé une confirmation judiciaire. Il s'agit de la confirmation des actes pour rendre l'affaire ouverte et publique de peur que les témoins ne meurent, et nos sages ont expliqué cela concernant un document clair et ouvert et un document plié dans Baba Bathra (160b).
 
 ### passuk 12
 <b>en présence de Hanamel mon oncle</b> Et jusqu'à présent, il l'appelle "le fils de mon oncle".</b> Peut-être y en avait-il deux. Sinon, je ne sais pas ce que cela signifie. Certains sont enclins à dire que Hanamel était à la fois l'oncle de Jérémie et le fils de son oncle ; par exemple, Ruben a épousé la fille de son frère Simon, qui lui a donné naissance à Jemuel, et Simon avait déjà engendré Jamin. Jamin est donc l'oncle de Jemuel, puisqu'il est le frère de sa mère, et aussi le fils de son oncle, puisqu'il est le fils de Simon, le frère du père de Jemuel. Ce n'est cependant pas la méthode d'expression, car nous ne trouvons nulle part dans la Bible, que le frère de la mère soit appelé oncle.

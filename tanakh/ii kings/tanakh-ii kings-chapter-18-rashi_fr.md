@@ -71,7 +71,7 @@
 
 ### passuk 27
 <b>Manger ses propres excréments.</b> Dans la faim [causée] par le siège.<sup>20</sup><i class="footnote">S'ils continuent à garder le mur pour empêcher l'armée d'Ashur d'entrer, ils assiégeront la ville pendant une période prolongée qui sera si sévère que les gens mourront de faim pendant le siège, ce qui les amènera à "manger leurs propres excréments, etc.".
-<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos rabbins ont expliqué qu'il fallait euphémiser et lire : "צואתם" [au lieu de  חריהם].<sup>21</sup><i class="footnote">Voir Maseches Megillah 25b.</i>
+<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos sages ont expliqué qu'il fallait euphémiser et lire : "צואתם" [au lieu de  חריהם].<sup>21</sup><i class="footnote">Voir Maseches Megillah 25b.</i>
 <b>Leur propre urine.</b> Excréments lâches, les glandes du rectum, qui est retenu par trois glandes. Alternativement, une expression d'excréments qui se produit par la mastication des dents [=שניהם].
 
 ### passuk 28

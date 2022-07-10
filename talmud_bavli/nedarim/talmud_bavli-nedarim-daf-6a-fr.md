@@ -18,10 +18,10 @@ La Guemara <b>souleve une objection</b> a cela sur la base de la <i>baraita</i> 
 La Guemara repond : <b>Abaye</b> aurait pu <b>vous dire : </b> Conformement a <b>l'avis de qui</b> <b>est ce</b> <i>baraita</i> ? <b>C'est</b> en accord avec l'opinion de <b>Rabbi Yehuda,</b> qui considere que les intimations ambigues ne sont pas des intimations. La Gemara demande : <b>Ce n'est pas Abaye qui a dit : Je dis</b> que les intimations ambigues sont des intimations valables <b>meme selon</b> l'opinion de Rabbi Yehuda ? La Guemara repond : <b>Il s'est retracte</b> cette declaration et a admis que Rabbi Yehuda soutient que les intimations ambigues ne sont pas des intimations valides.
 
 ### Partie 7
-La Guemara demande : <b>Mais devons-nous dire</b> que de meme qu'Abaye s'est retracte en declarant que son opinion peut etre enoncee meme selon Rabbi Yehuda, <b>Rava, qui a dit</b> que les intimations ambigues ne sont pas des intimations valables, s'est egalement retracte de sa declaration initiale et a admis que son opinion est seulement <b>conforme</b> a l'opinion de <b>Rabbi Yehuda</b> et n'est pas conforme a l'opinion des rabbins ?
+La Guemara demande : <b>Mais devons-nous dire</b> que de meme qu'Abaye s'est retracte en declarant que son opinion peut etre enoncee meme selon Rabbi Yehuda, <b>Rava, qui a dit</b> que les intimations ambigues ne sont pas des intimations valables, s'est egalement retracte de sa declaration initiale et a admis que son opinion est seulement <b>conforme</b> a l'opinion de <b>Rabbi Yehuda</b> et n'est pas conforme a l'opinion des sages ?
 
 ### Partie 8
-La Guemara repond : <b>Rava</b> aurait pu <b>vous dire : Je dis</b> ma declaration <b>meme selon</b> l'avis des <b>Rabbins. Les rabbins disent que nous n'exigeons pas d'intimations evidentes uniquement en ce qui concerne l'acte de divorce, car un homme ne divorce pas de la femme de son compagnon,</b> il est donc evident qu'il ecrit l'acte de divorce a sa femme. <b>Cependant, en general, nous exigeons des intimations evidentes.</b>
+La Guemara repond : <b>Rava</b> aurait pu <b>vous dire : Je dis</b> ma declaration <b>meme selon</b> l'avis des <b>Rabbins. Les sages disent que nous n'exigeons pas d'intimations evidentes uniquement en ce qui concerne l'acte de divorce, car un homme ne divorce pas de la femme de son compagnon,</b> il est donc evident qu'il ecrit l'acte de divorce a sa femme. <b>Cependant, en general, nous exigeons des intimations evidentes.</b>
 
 >Credit : William Davidson Edition
 >License : CC-BY-NC

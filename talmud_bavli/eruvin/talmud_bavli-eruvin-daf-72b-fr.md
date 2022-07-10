@@ -51,7 +51,7 @@ Si oui, <b>selon l'avis de qui</b> <b>est</b> la décision <b>qui a été enseig
 La Guemara s'étonne de la formulation de la <i>baraita</i> : <b>Est-il entré dans votre esprit</b> que la lecture correcte est <b>une maison de résidence ?</b> Il a une maison dans chacune des cinq cours. <b>Disons plutôt : Un lieu de résidence,</b> c'est-à-dire qu'il est interdit de porter dans le lieu où il habite effectivement, mais nulle part ailleurs.
 
 ### Partie 18
-La Gemara demande : <b>Qu'est-ce qui est</b> considéré comme le <b>lieu de résidence</b> d'une personne ? Le Rav répond :</b>
+La Gemara demande : <b>Qu'est-ce qui est</b> considéré comme le <b>lieu de résidence</b> d'une personne ? Rav répond :</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

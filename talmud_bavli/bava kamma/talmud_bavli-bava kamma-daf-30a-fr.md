@@ -15,7 +15,7 @@ La Gemara repond : Ceci n'est <b>pas difficile. Cette</b> decision, qu'il est ex
 <b>Rav Huna dit au Rav :</b> Pourquoi devrait-il etre exempte de payer la restitution pour la blessure ? Meme si l'eau qu'il a versee est consideree <b>seulement comme sa salete</b> qu'il a jetee dans le domaine public, il devrait etre responsable. Puisque le sol boueux a cause le prejudice, et que la boue lui appartient, puisqu'elle resulte de l'addition de son eau a la salete, il devrait etre responsable.
 
 ### Partie 6
-Le Rav a repondu : <b>Vous maintenez</b> qu'il s'agit d'un cas <b>ou l'eau n'a pas ete absorbee</b> dans le sol ? C'est un cas <b>ou l'eau a ete absorbee,</b> ne laissant que de la terre humide. Comme il n'y a pas la de boue qui puisse etre consideree comme appartenant a celui qui a renverse l'eau, il est exonere de toute responsabilite.
+Rav a repondu : <b>Vous maintenez</b> qu'il s'agit d'un cas <b>ou l'eau n'a pas ete absorbee</b> dans le sol ? C'est un cas <b>ou l'eau a ete absorbee,</b> ne laissant que de la terre humide. Comme il n'y a pas la de boue qui puisse etre consideree comme appartenant a celui qui a renverse l'eau, il est exonere de toute responsabilite.
 
 ### Partie 7
 La Gemara demande : <b>Mais</b> si la decision de la mishna ne fait reference qu'a la souillure des vetements du pieton, <b>pourquoi ai-je</b> besoin de <b>deux</b> <i>mishnayot</i> pour enoncer cette <i>halakha</i> ? Selon le Rav, cette <i>halakha</i> a deja ete abordee dans la mishna precedente, a propos d'une cruche qui s'est brisee, entrainant la chute d'un pieton et la souillure de ses vetements.
@@ -51,7 +51,7 @@ La Guemara repond : C'est necessaire. <b>Au cas ou vous diriez : </b> Ce n'est q
 La Gemara relate : <b>Rav Sheshet jetait</b> ses epines <b>dans le feu,</b> afin qu'elles ne causent pas de dommages a autrui. <b>Rava les jetait dans le fleuve Tigre [<i>Diglat</i>]</b>.
 
 ### Partie 18
-<b>Rav Yehuda dit : Celui qui veut etre pieux doit observer les questions du</b> tractate <b><i>Nezikin</i>,</b> afin d'eviter de causer des dommages a autrui. <b>Rava dit</b> qu'il doit observer <b>les matieres du</b> tractate <b><i>Avot</i>. Et certains disent</b> qu'il doit observer <b>les matieres du</b> tractate <b><i>Berakhot</i>.</b>
+<b>Rav Yehuda dit : Celui qui veut etre pieux doit observer les questions du</b> traité <b><i>Nezikin</i>,</b> afin d'eviter de causer des dommages a autrui. <b>Rava dit</b> qu'il doit observer <b>les matieres du</b> traité <b><i>Avot</i>. Et certains disent</b> qu'il doit observer <b>les matieres du</b> traité <b><i>Berakhot</i>.</b>
 
 ### Partie 19
 <strong>MISHNA : </strong>Dans le cas de <b>celui qui sort sa paille [<i>teven</i>] et son foin [<i>kash</i>] dans le domaine public pour</b> l'utiliser ensuite comme <b>engrais et qu'une autre</b> personne <b>a subi un dommage a cause d'eux,</b> il est <b>responsable</b> de payer <b>son dommage, et celui qui</b> prend possession du foin et de la paille <b>les acquiert</b> d'abord pour lui-meme. <b>Rabban Shimon ben Gamliel dit :</b> En ce qui concerne <b>celui qui place des obstacles dans le domaine public et qu'ils causent des dommages,</b> il est <b>responsable de payer</b> des dommages, <b>et celui qui</b> prend possession <b>de ceux-ci les acquiert</b> d'abord.

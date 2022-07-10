@@ -13,7 +13,7 @@
 
 ### passuk 6
 <b>Comme ce sera merveilleux</b> à leurs yeux, la grande bonté d'amour que je ferai pour eux.
-<b>Ce sera aussi merveilleux à Mes yeux</b> comment Je suis revenu de la grande colère. Et nos Sages ont exposé [cette phrase], concernant l'abattage du mauvais penchant, dans le tractate Sukkah (52a) : <b>Ce sera également merveilleux à Mes yeux</b> comment les justes seront capables de tenir tête [au mauvais penchant] pendant leur vie.
+<b>Ce sera aussi merveilleux à Mes yeux</b> comment Je suis revenu de la grande colère. Et nos Sages ont exposé [cette phrase], concernant l'abattage du mauvais penchant, dans le traité Sukkah (52a) : <b>Ce sera également merveilleux à Mes yeux</b> comment les justes seront capables de tenir tête [au mauvais penchant] pendant leur vie.
 
 ### passuk 7
 

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Faites le compte... etc.</b> Comptez ceux d'entre eux aptes <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au service de portage, ceux de trente à cinquante ans. Quelqu'un de moins de trente ans n'a pas atteint sa force maximale. De là, ils (les rabbins) déduisent "l'âge de trente ans pour la force" et après cinquante ans, la force diminue. 
+<b>Faites le compte... etc.</b> Comptez ceux d'entre eux aptes <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> au service de portage, ceux de trente à cinquante ans. Quelqu'un de moins de trente ans n'a pas atteint sa force maximale. De là, ils (les sages) déduisent "l'âge de trente ans pour la force" et après cinquante ans, la force diminue. 
 
 ### passuk 3
 

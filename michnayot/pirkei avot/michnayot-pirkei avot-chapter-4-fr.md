@@ -12,7 +12,7 @@ Il disait : ne méprisez aucun homme, et ne discriminez rien, car il n'y a pas d
 Rabbi Levitas, un homme de Yavneh, a dit : ayez un esprit extrêmement humble, car la fin de l'homme est le ver. Rabbi Yohanan ben Berokah a dit : quiconque profane le nom du ciel en secret, il sera puni au grand jour. Inconsciemment ou sciemment, c'est tout un dans la profanation du nom.
 
 ### michna 5
-Le rabbin Ismaël, son fils, a dit : Celui qui apprend dans le but d'enseigner, il lui est accordé d'étudier et d'enseigner ; Mais celui qui apprend dans le but de pratiquer, il lui est accordé d'apprendre et d'enseigner et de pratiquer. Rabbi Zadok a dit : ne fais pas d'eux une couronne pour t'exalter, ni une bêche pour creuser.   De même, Hillel disait : "Et celui qui met la couronne à son propre usage périra". Ainsi, vous avez appris que quiconque tire un bénéfice mondain des paroles de la Torah, retire sa vie du monde.
+Rabbi Ismaël, son fils, a dit : Celui qui apprend dans le but d'enseigner, il lui est accordé d'étudier et d'enseigner ; Mais celui qui apprend dans le but de pratiquer, il lui est accordé d'apprendre et d'enseigner et de pratiquer. Rabbi Zadok a dit : ne fais pas d'eux une couronne pour t'exalter, ni une bêche pour creuser.   De même, Hillel disait : "Et celui qui met la couronne à son propre usage périra". Ainsi, vous avez appris que quiconque tire un bénéfice mondain des paroles de la Torah, retire sa vie du monde.
 
 ### michna 6
 Rabbi Yose a dit : celui qui honore la Torah est lui-même honoré par les autres, et celui qui déshonore la Torah est lui-même déshonoré par les autres.

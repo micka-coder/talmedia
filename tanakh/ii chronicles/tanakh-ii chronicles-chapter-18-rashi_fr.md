@@ -50,7 +50,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Et un certain esprit sortit</b> Le sens est : Et un ange sortit, car il est dit plus haut : "et toute l'armée du ciel, etc." Un des anges sortit et dit : "Je le séduirai", comme il est dit (Ps. 104:4) : " Il fait de ses anges des esprits " [Cf. Comm. Dig. ad loc.] Il fait précéder ce récit de la mention : " et toute l'armée du ciel se tenait debout ", de sorte que l'on ne doit pas se demander, en lisant : " Et un certain esprit sortit ", qui il était et d'où il venait. Lorsqu'il dit : "et toute l'armée du ciel était debout", c'est pour vous informer d'où il venait : du reste des esprits qui se tenaient à ses côtés. Nos rabbins (<i>Sanh.</i> 89a, <i>Targum</i>) ont cependant expliqué qu'il s'agissait de l'esprit de Naboth.
+<b>Et un certain esprit sortit</b> Le sens est : Et un ange sortit, car il est dit plus haut : "et toute l'armée du ciel, etc." Un des anges sortit et dit : "Je le séduirai", comme il est dit (Ps. 104:4) : " Il fait de ses anges des esprits " [Cf. Comm. Dig. ad loc.] Il fait précéder ce récit de la mention : " et toute l'armée du ciel se tenait debout ", de sorte que l'on ne doit pas se demander, en lisant : " Et un certain esprit sortit ", qui il était et d'où il venait. Lorsqu'il dit : "et toute l'armée du ciel était debout", c'est pour vous informer d'où il venait : du reste des esprits qui se tenaient à ses côtés. Nos sages (<i>Sanh.</i> 89a, <i>Targum</i>) ont cependant expliqué qu'il s'agissait de l'esprit de Naboth.
 
 ### passuk 21
 <b>Dans la bouche de tous ses prophètes</b> Il doit placer les mots "Monte et triomphe" dans leurs bouches et il [Achab] montera et tombera. Cela prouve qu'ils étaient de vrais prophètes qui ne prophétisaient que ce que le Seigneur mettait dans leur bouche.

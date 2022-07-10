@@ -24,7 +24,7 @@
 <b>Et [s'accroche aux] épines.</b>  קוֹצִים  sont des <i>chardons</i> (chardons) en ancien français.
 <b>Et consomme le grain lié.</b> Il (les flammes) a léché les épines jusqu'à atteindre le grain lié ou le grain debout qui est encore attaché au sol.
 <b>Ou un champ</b> par lequel [la flamme] a léché son labour et il doit maintenant le labourer une seconde fois.
-<Bien qu'il ait allumé le feu sur sa propre propriété et que celui-ci se soit propagé de lui-même par le biais des épines qu'il a trouvées, il est néanmoins tenu de réparer le fait qu'il n'a pas empêché son charbon ardent d'éclater et de causer des dommages.
+<b>Bien qu'il ait allumé le feu sur sa propre propriété et que celui-ci se soit propagé de lui-même par le biais des épines qu'il a trouvées, il est néanmoins tenu de réparer le fait qu'il n'a pas empêché son charbon ardent d'éclater et de causer des dommages.
 
 ### passuk 6
 <b>Et ils sont volés dans la maison de l'homme [de garde]</b> selon son propre témoignage.
@@ -154,7 +154,7 @@
 <b>Et [s'accroche aux] épines.</b> -' sont des <i>chardons</i> (chardons) en ancien français.
 <b>Et consomme le grain lié.</b> Il (les flammes) a léché les épines jusqu'à atteindre le grain lié ou le grain debout qui est encore attaché au sol.
 <b>Ou un champ</b> par lequel [la flamme] a léché son labour et il doit maintenant le labourer une seconde fois.
-<Bien qu'il ait allumé le feu sur sa propre propriété et que celui-ci se soit propagé de lui-même par le biais des épines qu'il a trouvées, il est néanmoins tenu de réparer le fait qu'il n'a pas empêché son charbon ardent d'éclater et de causer des dommages.
+<b>Bien qu'il ait allumé le feu sur sa propre propriété et que celui-ci se soit propagé de lui-même par le biais des épines qu'il a trouvées, il est néanmoins tenu de réparer le fait qu'il n'a pas empêché son charbon ardent d'éclater et de causer des dommages.
 
 ### passuk 6
 <b>Et ils sont volés dans la maison de l'homme [de garde]</b> selon son propre témoignage.

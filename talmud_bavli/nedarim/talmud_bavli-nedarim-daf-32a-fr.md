@@ -30,7 +30,7 @@ La Guemara explique le verset <b>"et Il le fit sortir"</b> (Genese 15:5) : Abrah
 <b>Rabbi Yitzhak a dit : Quiconque se conduit de bon cœur, le Saint, Beni soit-Il, le traite de bon cœur, comme il est dit : "Avec le pieux, Tu agis avec piete, et avec celui qui est fort dans son cœur, Tu agis avec cœur"</b> (IIA Samuel 22:26).
 
 ### Partie 11
-<Rabbi Hoshaya a dit : Quiconque agit de tout son cœur, le temps lui sera favorable,</b> c'est-a-dire qu'il aura du succes, <b>comme il est dit :" Marche devant Moi et tu dois avoir le cA"ur bien accroché" (Genèse 17:1), <b>et il est écrit : "Et tu seras le père d"?une multitude de nations"</b> (Genèse 17:4).
+<b>Rabbi Hoshaya a dit : Quiconque agit de tout son cœur, le temps lui sera favorable,</b> c'est-a-dire qu'il aura du succes, <b>comme il est dit :" Marche devant Moi et tu dois avoir le cA"ur bien accroché" (Genèse 17:1), <b>et il est écrit : "Et tu seras le père d"?une multitude de nations"</b> (Genèse 17:4).
 
 ### Partie 12
 <b>Rabbi</b> Yehuda HaNasi <b>a dit : Celui qui divague,</b> c'est-a-dire qu'il devine et cherche des signes sur l'avenir, <b>le signe</b> le blessera, comme il est dit : "Car il y a pour lui [<i>lo</i>] divination avec Jacob"</b> (Nombres 23:23). La Guemara demande : <b>Mais il est ecrit</b> <i>lo</i> <b>avec</b> les lettres <b><i>lamed alef</i>,</b> signifiant "pas de divination", par opposition aux lettres <i>lamed vav</i>, signifiant "il y a pour lui de la divination".</b> Le sens direct du verset est qu'il n'y a pas de divination en ce qui concerne Jacob. <b>Au contraire,</b> la raison pour laquelle il sera blesse n'est pas basee sur le verset mais plutot <b>en raison</b> du concept de <b>mesure pour mesure:</b> Puisqu'il tente de dire la bonne aventure, cela le blesse.

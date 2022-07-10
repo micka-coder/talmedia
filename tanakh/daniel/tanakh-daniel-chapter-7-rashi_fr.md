@@ -38,7 +38,7 @@
 
 ### passuk 8
 <b>Et voici</b> Aram.  וַאֲלוּ, comme  וַאֲרוּ, une expression de "regarder".
-<b>Parler avec arrogance</b> paroles d'arrogance. C'est Titus, au sujet duquel les rabbins, de mémoire bénie, ont dit (Gittin 56b) qu'il blasphémait et réprimandait et entrait dans le Heichal avec effronterie.
+<b>Parler avec arrogance</b> paroles d'arrogance. C'est Titus, au sujet duquel les sages, de mémoire bénie, ont dit (Gittin 56b) qu'il blasphémait et réprimandait et entrait dans le Heichal avec effronterie.
 
 ### passuk 9
 <b>Jusqu'à ce que des trônes soient mis en place</b> Des trônes furent mis en place et établis pour siéger en jugement, un pour le jugement des nations du monde et un pour la charité d'Israël.

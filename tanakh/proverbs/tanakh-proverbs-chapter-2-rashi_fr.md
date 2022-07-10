@@ -46,7 +46,7 @@
 ### passuk 17
 
 ### passuk 18
-<Car celui qui vient chez elle s'enfonce et glisse comme sur une pente qui mène à la mort, et la Torah vous protège de cette chute. Par conséquent, c'est une grande chose pour vous.
+<b>Car celui qui vient chez elle s'enfonce et glisse comme sur une pente qui mène à la mort, et la Torah vous protège de cette chute. Par conséquent, c'est une grande chose pour vous.
 <b>les morts</b> Héb.  רפאים, ceux qui négligent (נרפים) la voie du bien et sont abandonnés sans soutien jusqu'à ce qu'ils tombent dans le Gehinnom.
 
 ### passuk 19

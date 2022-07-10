@@ -36,7 +36,7 @@ Accessoirement, il ajoute : <b>Et j'ai aussi entendu de lui</b> une autre <i>hal
 <b>Si vous dites</b> que <b>parce qu'il</b> a d'abord <b>enseigné une rigueur</b> concernant les planches verticales entourant un puits, <b>et</b> ensuite <b>il enseigne une autre</b> rigueur concernant une enceinte, et <b>pour cette raison</b> la <i>tanna</i> de la mishna <b>enseigne : Et de plus,</b> alors il y a une difficulté. <b>Rabbi Yehuda</b> n'a-t-il pas également <b>enseigné une rigueur et</b> ensuite <b>enseigné une autre</b> rigueur, <b>et</b> pourtant le <i>tanna</i> de la mishna <b>n'enseigne pas : Et en outre</b> Rabbi Yehuda a dit ?
 
 ### Partie 13
-La Guemara répond que les cas sont différents : <b>Là, les rabbins ont interrompu</b> Rabbi Yehuda dans ses déclarations afin d'être en désaccord avec lui, et donc il n'est pas possible de dire : Et de plus, Rabbi Yehuda a dit. <b>Ici,</b> cependant, <b>les rabbins ne l'ont pas interrompu,</b> car les deux déclarations de Rabbi Yehuda ben Bava se suivent immédiatement.
+La Guemara répond que les cas sont différents : <b>Là, les sages ont interrompu</b> Rabbi Yehuda dans ses déclarations afin d'être en désaccord avec lui, et donc il n'est pas possible de dire : Et de plus, Rabbi Yehuda a dit. <b>Ici,</b> cependant, <b>les sages ne l'ont pas interrompu,</b> car les deux déclarations de Rabbi Yehuda ben Bava se suivent immédiatement.
 
 ### Partie 14
 La Guemara soulève une difficulté : Cela signifie-t-il que <b>là où les <b>Rabbis en conflit interrompent</b> leur collègue, le <i>tanna</i> <b>enseigne : Et en outre ? Mais</b> en ce qui concerne <b>Rabbi Eliezer</b> dans une mishna <b>dans</b> le tractat <b><i>Sukka</i></b> (27a), <b>où les Rabbins interrompent ses</b> déclarations, néanmoins le <i>tanna</i> <b>enseigne : Et en outre.</b>
@@ -45,7 +45,7 @@ La Guemara soulève une difficulté : Cela signifie-t-il que <b>là où les <b>R
 La Guemara répond : Ce n'est pas la même chose ; <b>là, ils ont interrompu</b> Rabbi Eliezer <b>avec</b> une décision concernant <b>son</b> propre <b>sujet ; ici,</b> cependant, <b>ils ont interrompu</b> Rabbi Yehuda avec une décision concernant <b>une</b> question tout à fait <b>différente. </b> Par conséquent, sa première déclaration avait déjà été oubliée, et ce n'est pas le style de la Mishna de joindre des déclarations lorsque le lien séquentiel entre elles a déjà été rompu.
 
 ### Partie 16
-Nous avons appris dans la mishna : <b>Rabbi Akiva a dit : Même</b> si la cour <b>ne possède aucun de ces</b> éléments qui indiquent l'habitation stipulés par les autres rabbins, <b>on peut porter à l'intérieur,</b> à condition qu'elle ne mesure pas plus de soixante-dix coudées et un reste par soixante-dix coudées et un reste.
+Nous avons appris dans la mishna : <b>Rabbi Akiva a dit : Même</b> si la cour <b>ne possède aucun de ces</b> éléments qui indiquent l'habitation stipulés par les autres sages, <b>on peut porter à l'intérieur,</b> à condition qu'elle ne mesure pas plus de soixante-dix coudées et un reste par soixante-dix coudées et un reste.
 
 >Crédit : Edition William Davidson
 >Licence : CC-BY-NC

@@ -52,7 +52,7 @@
 
 ### passuk 21
 <b>On le fit descendre à Aza.</b> L'endroit où sa ruine commença<sup>3</sup><i class="footnote">V.l.</i><sup>4</sup><i class="footnote">Sotah, 9:b.</i>.
-<b>Il est devenu le meunier. Avec des meules</b> un travail pénible. Les rabbins interprètent cela selon leur mode.<sup>5</sup><i class="footnote">Selon leur interprétation, les Pelishtites amenaient leurs femmes à la prison pour être fécondées par Shimshon, (Sotah, 10:a)</i>.
+<b>Il est devenu le meunier. Avec des meules</b> un travail pénible. Les sages interprètent cela selon leur mode.<sup>5</sup><i class="footnote">Selon leur interprétation, les Pelishtites amenaient leurs femmes à la prison pour être fécondées par Shimshon, (Sotah, 10:a)</i>.
 
 ### passuk 22
 

@@ -51,7 +51,7 @@ Le verset dit : <b>"Et ces hommes qui ont rapporte un mauvais rapport du pays, s
 § Le verset indique : <b>"Et la colere de l'Eternel s'enflamma contre Uzza ; et</b> Dieu <b>le frappa la pour son erreur [<i>hashal</i>]</b> (IIA Samuel 6:7). <b>Rabbi Yohanan et Rabbi Elazar</b> etaient en desaccord sur l'interpretation de ce verset. <b>L'un dit :</b> Dieu l'a frappe <b>pour son oubli [<i>shalo</i>],</b> car il ne s'est pas souvenu que l'Arche peut se porter toute seule. <b>Et l'on dit :</b> Dieu l'a frappe <b>parce qu'il</b> a souleve les bords [<i>shulayyim</i>] de son vetement devant l'Arche et <b>s'est soulage en sa presence.</b>
 
 ### Partie 18
-Le verset indique : <b>"Et il mourut la avec l'Arche de Dieu"</b> (IIA Samuel 6:7). <b>Le rabbin Yohanan dit : Uzzah est entre dans le Monde-a-Venir, comme il est dit : De meme que l'Arche existe pour toujours, Uzzah est entre dans le Monde-a-Venir.
+Le verset indique : <b>"Et il mourut la avec l'Arche de Dieu"</b> (IIA Samuel 6:7). <b>Rabbi Yohanan dit : Uzzah est entre dans le Monde-a-Venir, comme il est dit : De meme que l'Arche existe pour toujours, Uzzah est entre dans le Monde-a-Venir.
 
 ### Partie 19
 Le verset indique : <b>"Et David fut mecontent [<i>vayyihar</i>] parce que le Seigneur avait fait irruption sur Uzza"</b> (IIA Samuel 6:8). <b>Rabbi Elazar dit :</b> <i>Vayyihar</i> signifie <b>que son visage a change</b> de couleurs et s'est assombri <b>comme du pain cuit [<i>harara</i>]</b> de deplaisir.

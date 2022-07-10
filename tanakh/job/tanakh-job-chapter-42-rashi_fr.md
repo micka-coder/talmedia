@@ -59,7 +59,7 @@
 ### passuk 16
 
 ### passuk 17
-<De  וּשְׂבַע- il dit  וְשָׂבֵעַ , dans l'état de construction.
+<b>De  וּשְׂבַע- il dit  וְשָׂבֵעַ , dans l'état de construction.
 
 >Crédit : sefaris
 >License : CC-BY

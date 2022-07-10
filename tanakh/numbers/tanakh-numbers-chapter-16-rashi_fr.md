@@ -100,7 +100,7 @@
 
 ### passuk 30
 <b>Mais si Hachem va créer une nouvelle création. </b>
- Pour les tuer <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>avec une mort que personne n'a jamais connue jusqu'à présent. Quelle est cette création ? "La terre ouvrira sa bouche et les avalera." Alors, vous saurez qu'ils ont mis Dieu en colère, et j'ai parlé selon la parole du Tout-Puissant. Les rabbins interprètent : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"si la bouche de la terre a été créée pendant les six jours de la création, très bien, mais sinon, que Dieu la crée [maintenant]!' 
+ Pour les tuer <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>avec une mort que personne n'a jamais connue jusqu'à présent. Quelle est cette création ? "La terre ouvrira sa bouche et les avalera." Alors, vous saurez qu'ils ont mis Dieu en colère, et j'ai parlé selon la parole du Tout-Puissant. Les sages interprètent : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"si la bouche de la terre a été créée pendant les six jours de la création, très bien, mais sinon, que Dieu la crée [maintenant]!' 
 
 ### passuk 31
 

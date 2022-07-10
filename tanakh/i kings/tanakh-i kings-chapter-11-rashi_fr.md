@@ -13,7 +13,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Chlomo construisit alors un <i>Bomoh</i> [autel].</b> Nos rabbins ont dit que parce qu'il n'a pas protesté contre ses femmes, il est appelé par son nom.</sup>3</sup><i class="footnote">Masech Shabbos 56b. Un juif est responsable du comportement de ceux qui sont soumis à son influence. La Torah demande : "Tu réprimanderas ton prochain et tu ne porteras pas de péché à cause de lui" [Vayikra 19:17], ce qui implique que si tu ne le réprimandes pas, tu porteras son péché.
+<b>Chlomo construisit alors un <i>Bomoh</i> [autel].</b> Nos sages ont dit que parce qu'il n'a pas protesté contre ses femmes, il est appelé par son nom.</sup>3</sup><i class="footnote">Masech Shabbos 56b. Un juif est responsable du comportement de ceux qui sont soumis à son influence. La Torah demande : "Tu réprimanderas ton prochain et tu ne porteras pas de péché à cause de lui" [Vayikra 19:17], ce qui implique que si tu ne le réprimandes pas, tu porteras son péché.
 <b>Sur la montagne en face de Yerushalayim.</b> Le Mont des Oliviers.
 
 ### passuk 8

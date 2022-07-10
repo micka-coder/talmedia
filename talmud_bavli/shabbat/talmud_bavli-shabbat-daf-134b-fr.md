@@ -39,7 +39,7 @@ La Gemara relate : <b>Une certaine</b> personne <b>se présente devant Rava</b> 
 <b>Ils ont discuté de la</b> question suivante <b>en Occident,</b> en Eretz Yisrael : S'agit-il de <b>laver le corps entier</b> du bébé, <b>ou</b> de <b>laver</b> l'endroit de <b>la circoncision ?</b>
 
 ### Partie 14
-<b>Un des Sages, nommé Rabbi Ya'akov, leur a dit : Il</b> tient à <b>la raison</b> qu'il est question de <b>laver son corps entier, car s'il vous venait à l'esprit</b> que le différend porte sur le <b>lavage</b> de l'endroit de <b>la circoncision, ce</b> lavage est-il <b>mauvais que</b> de mettre de l'eau chaude sur une plaie ? Le Rav a dit : On n'empêche pas</b> de placer de l'eau chaude et de l'huile sur une blessure le Chabbat.</b> Par conséquent, il devrait certainement être permis de laver l'endroit de la circoncision.
+<b>Un des Sages, nommé Rabbi Ya'akov, leur a dit : Il</b> tient à <b>la raison</b> qu'il est question de <b>laver son corps entier, car s'il vous venait à l'esprit</b> que le différend porte sur le <b>lavage</b> de l'endroit de <b>la circoncision, ce</b> lavage est-il <b>mauvais que</b> de mettre de l'eau chaude sur une plaie ? Rav a dit : On n'empêche pas</b> de placer de l'eau chaude et de l'huile sur une blessure le Chabbat.</b> Par conséquent, il devrait certainement être permis de laver l'endroit de la circoncision.
 
 ### Partie 15
 <b>Rav Yosef s'oppose fortement</b> à cette preuve : <b>Et n'y a-t-il pas de différence pour vous entre l'eau chaude chauffée le Chabbat et l'eau chaude chauffée la veille du Chabbat ?</b> Placer de l'eau chaude chauffée la veille du Chabbat sur une plaie ne viole que le décret rabbinique interdisant la guérison ; alors que chauffer de l'eau chaude le Chabbat viole un interdit de la Torah.

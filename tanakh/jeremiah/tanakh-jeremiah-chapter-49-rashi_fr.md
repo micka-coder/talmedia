@@ -54,7 +54,7 @@
 
 ### passuk 16
 <b>Ta hâte</b> Heb.  תפלצתךš, une expression de hâte, car tu t'es précipité et tu t'es empressé de susciter ta haine pour ton frère. Et il y en a qui traduisent cela par une expression de frayeur (פַּלָצוּת), et il y en a qui traduisent cela par une expression d'image (מפלצת).
-<Il vous a incité à leur faire du mal.
+<b>Il vous a incité à leur faire du mal.
 <b>Vous qui habitez</b> Heb.  שכני, comme  שׁוֹכֵן.
 <b>qui tiennent</b>  תפשי, comme  תּופֵשׂ', et le "yud' y est superflu.
 
@@ -73,7 +73,7 @@
 ### passuk 20
 <b>si...pas</b> Une expression de "indeed.'
 <b>Les traîner</b> Heb.  יסחבום.
-<b>Les jeunes du troupeau</b>. Le méprisé des nations, et nos rabbins [Yoma 10] ont expliqué qu'il s'agit de la Perse, qui était le plus jeune des fils de Japhet.
+<b>Les jeunes du troupeau</b>. Le méprisé des nations, et nos sages [Yoma 10] ont expliqué qu'il s'agit de la Perse, qui était le plus jeune des fils de Japhet.
 <b>Faire désolation</b> Heb.  ישים, une expression de désolation (שממה").
 
 ### passuk 21

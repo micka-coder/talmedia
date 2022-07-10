@@ -30,7 +30,7 @@ La Guemara relate maintenant qu'une <b>certaine</b> personne <b>sortait avec une
 En rapport avec la discussion précédente concernant celui qui ne se conforme pas à la loi de la Torah, <b>Rav Huna dit : Qui est un juif apostat ?</b> C'est <b>celui qui profane le Chabbat en public. Rav Naḥman lui a répondu : Conformément</b> à l'avis de qui as-tu dit cela ? <b>Si</b> il a dit cela <b>conformément</b> à l'avis de <b>Rabbi Meir,</b> qui <b>a dit : Celui qui est soupçonné de</b> transgresser <b>une matière,</b> c'est-à-dire quelqu'un qui est connu pour avoir commis une transgression, <b>est soupçonné de</b> transgresser <b>l'ensemble de la Torah,</b> il doit être considéré comme un apostat <b>même</b> s'il transgresse <b>une de toutes les</b> autres <b>interdictions de la Torah également,</b> et pas nécessairement une aussi grave que la profanation du Shabbat.
 
 ### Partie 11
-<b>Si</b> il a dit cela <b>conformément</b> à l'avis des <b>rabbins,</b> c'est difficile. <b>N'ont-ils pas dit :</b> Celui qui est <b>suspecté de</b> transgresser <b>une matière n'est pas suspecté de</b> transgresser <b>l'ensemble de la Torah,</b>
+<b>Si</b> il a dit cela <b>conformément</b> à l'avis des <b>sages,</b> c'est difficile. <b>N'ont-ils pas dit :</b> Celui qui est <b>suspecté de</b> transgresser <b>une matière n'est pas suspecté de</b> transgresser <b>l'ensemble de la Torah,</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

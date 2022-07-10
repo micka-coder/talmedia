@@ -42,7 +42,7 @@
 <b>Sur sa base</b> - Heb.  - , sur sa base.
 
 ### passuk 14
-<b>Vases de service et pilons</b> (<i>Stessel</i> en allemand.) C'est [l'instrument] avec lequel on broie les épices dans le mortier. Un exemple similaire est (Prov. 27:22) : "Si tu écrases un fou dans un mortier [parmi les grains avec un pilon (בַּעֱלִי)"]. C'est ce que m'a dit le rabbin Isaac, fils de Samuel, de Narbonne. D'autres disent que  וְהַעֲלוֹת  fait référence aux planches sur lesquelles la viande est coupée, et un exemple de ceci apparaît dans Bezah (1:5) : On ne doit pas déplacer une planche (עלי) pour y couper de la viande.
+<b>Vases de service et pilons</b> (<i>Stessel</i> en allemand.) C'est [l'instrument] avec lequel on broie les épices dans le mortier. Un exemple similaire est (Prov. 27:22) : "Si tu écrases un fou dans un mortier [parmi les grains avec un pilon (בַּעֱלִי)"]. C'est ce que m'a dit Rabbi Isaac, fils de Samuel, de Narbonne. D'autres disent que  וְהַעֲלוֹת  fait référence aux planches sur lesquelles la viande est coupée, et un exemple de ceci apparaît dans Bezah (1:5) : On ne doit pas déplacer une planche (עלי) pour y couper de la viande.
 <b>et des cuillères et des récipients en or et en argent</b> Mais dans II Rois (12:14), il est écrit : "Mais on ne ferait pas pour la Maison de l'Éternel des cruches d'argent." Comment cela est-il possible ? C'est expliqué dans <i>Kethuboth</i>, chapitre 13 (106) : Rav Huna s'est renseigné auprès de Rav : Peut-on faire des vases du ministère en matériau sanctifié pour la réparation du Temple, etc.
 
 ### passuk 15
@@ -61,7 +61,7 @@
 ### passuk 21
 
 ### passuk 22
-<Car ils ne m'ont tué que parce que j'ai parlé en tant que médium de l'Omniprésent, et puisque j'ai été tué à cause de Lui, il est juste et approprié qu'Il récompense mon sang. Et c'est ainsi que son sang a été récompensé immédiatement, car " il arriva qu'au tournant de l'année, etc.
+<b>Car ils ne m'ont tué que parce que j'ai parlé en tant que médium de l'Omniprésent, et puisque j'ai été tué à cause de Lui, il est juste et approprié qu'Il récompense mon sang. Et c'est ainsi que son sang a été récompensé immédiatement, car " il arriva qu'au tournant de l'année, etc.
 
 ### passuk 23
 <b>Et il arriva au tournant de l'année</b> Parce que les fils de Juda ont péché plus que les autres tribus, comme il est écrit plus haut (verset 18) : "Et ils abandonnèrent la Maison de l'Eternel, le Dieu de leurs pères."

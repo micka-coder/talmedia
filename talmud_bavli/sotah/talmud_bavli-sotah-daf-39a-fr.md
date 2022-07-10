@@ -15,7 +15,7 @@
 La Gemara demande : <b>Quelle benediction</b> les pretres recitent-ils avant la benediction ? <b>Rabbi Zeira dit</b> que <b>Rav Hisda dit :</b> Beni sois-tu, Seigneur notre Dieu, Roi de l'univers, <b>qui nous a sanctifies avec la saintete d'Aaron et nous a ordonne de benir Son peuple, Israel, avec amour.</b>
 
 ### Partie 6
-La Guemara poursuit : <b>Lorsque</b> le pretre <b>commence a marcher</b> vers l'estrade pour reciter la benediction, <b>que dit-il ?</b> La Gemara repond : <b>Que ce soit Ta volonte, Seigneur notre Dieu, que cette benediction par laquelle Tu nous as ordonne de benir Ton peuple, Israel, ne contienne aucune pierre d'achoppement ou iniquite. Et</b> lorsque la benediction est achevee, <b>quand il detourne son visage de la congregation, que dit-il ? Le Rav Hisda a instruit le Rav Ukva et lui a</b> enseigne que voici ce qu'il devait dire : <b>Maitre de l'Univers, nous avons accompli ce que Tu as decrete sur nous. Fais-le pour nous</b>
+La Guemara poursuit : <b>Lorsque</b> le pretre <b>commence a marcher</b> vers l'estrade pour reciter la benediction, <b>que dit-il ?</b> La Gemara repond : <b>Que ce soit Ta volonte, Seigneur notre Dieu, que cette benediction par laquelle Tu nous as ordonne de benir Ton peuple, Israel, ne contienne aucune pierre d'achoppement ou iniquite. Et</b> lorsque la benediction est achevee, <b>quand il detourne son visage de la congregation, que dit-il ? Rav Hisda a instruit le Rav Ukva et lui a</b> enseigne que voici ce qu'il devait dire : <b>Maitre de l'Univers, nous avons accompli ce que Tu as decrete sur nous. Fais-le pour nous</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

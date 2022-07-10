@@ -86,7 +86,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Vous viendrez au tombeau à un âge avancé</b> Héb.  בְכֶלַח-. [En d'autres termes,] tu seras sauvé de la peste. Quant au mot  בְכֶלַח- : il n'y a pas de support biblique pour comprendre son sens, mais selon le contexte, il peut être interprété comme l'expression de l'achèvement de la maturation du grain, lorsqu'il est complètement mûr. Nos rabbins, cependant, interprètent  בְכֶלַח - comme "soixante ans", selon sa valeur numérique.
+<b>Vous viendrez au tombeau à un âge avancé</b> Héb.  בְכֶלַח-. [En d'autres termes,] tu seras sauvé de la peste. Quant au mot  בְכֶלַח- : il n'y a pas de support biblique pour comprendre son sens, mais selon le contexte, il peut être interprété comme l'expression de l'achèvement de la maturation du grain, lorsqu'il est complètement mûr. Nos sages, cependant, interprètent  בְכֶלַח - comme "soixante ans", selon sa valeur numérique.
 <b>Comme on enlève le stock de grains</b> Comme on enlève la pile de grains du sol en son temps.
 
 >Crédit : sefaris

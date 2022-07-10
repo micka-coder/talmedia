@@ -18,7 +18,7 @@ La Gemara demande : <b>Mais Rabbi Hiyya n'a-t-il pas enseigne</b> une <i>baraita
 <b>Rav Hananya s'y oppose : Et que</b> le <i>tanna</i> <b>enumere egalement celui qui efface le nom</b> de Dieu <b>dans</b> le cours de <b>sa marche</b> et de son labour, <b>et son interdiction vient d'ici : "Et tu effaceras leurs noms"¦ tu ne le feras pas pour le Seigneur ton Dieu"</b> (Deuteronome 12:3""4).
 
 ### Partie 7
-<Le rabbin Abbahou s'oppose a cela : Et que</b> le <i>tanna</i> <b>enumere egalement celui qui separe sa marque lepreuse blanche comme neige</b> au cours de son labour, <b>et son interdiction est d'ici :" Prenez garde a la plaie de la lepre"</b> (Deuteronome 24:8), indiquant l'interdiction de sectionner la marque.
+<b>Rabbi Abbahou s'oppose a cela : Et que</b> le <i>tanna</i> <b>enumere egalement celui qui separe sa marque lepreuse blanche comme neige</b> au cours de son labour, <b>et son interdiction est d'ici :" Prenez garde a la plaie de la lepre"</b> (Deuteronome 24:8), indiquant l'interdiction de sectionner la marque.
 
 ### Partie 8
 <b>Abaye s'oppose a cela : Et que</b> le <i>tanna</i> <b>enumere egalement celui qui detache la cuirasse de sur l'ephod</b> au cours du labourage, <b>ou celui qui enleve les douves de l'Arche</b> d'Alliance. <b>Et son interdiction vient d'ici :</b> <b>"Les douves seront dans les anneaux de l'Arche ; <b>on ne les enlevera pas</b>" (Exode 25:15), tandis que le verset pertinent concernant le plastron est : <b>Et le pectoral ne sera pas detache</b> de l'ephod" (Exode 28:28).

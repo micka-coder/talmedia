@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Comme, s'il vous venait à l'esprit</b> de dire que Rav Yehuda a dit que la <i>halakha</i> est conforme à l'avis des rabbins en ce qui concerne <b>tous</b> les cas de la mishna, y compris celui du 9 Av qui a lieu la veille de Chabbat, il y a une difficulté : <b>Rabba n'a-t-il pas soulevé un dilemme devant Rav Yehuda</b> à propos de cette question, <b>et il ne lui a pas répondu ?</b> Cela démontre qu'il n'avait pas de décision décisive à ce sujet.
+<b>Comme, s'il vous venait à l'esprit</b> de dire que Rav Yehuda a dit que la <i>halakha</i> est conforme à l'avis des sages en ce qui concerne <b>tous</b> les cas de la mishna, y compris celui du 9 Av qui a lieu la veille de Chabbat, il y a une difficulté : <b>Rabba n'a-t-il pas soulevé un dilemme devant Rav Yehuda</b> à propos de cette question, <b>et il ne lui a pas répondu ?</b> Cela démontre qu'il n'avait pas de décision décisive à ce sujet.
 
 ### Partie 2
 La Guemara répond : <b>Et selon votre avis,</b> que la question n'avait pas été résolue, il y a une difficulté avec <b>cette</b> que <b>Mar Zutra a exposée au nom de Rav Huna:</b> La <b><i>halakha</i></b> est que <b>on jeûne et achève</b> le jeûne la veille de Chabbat. <b>Rabba</b> n'a-t-il pas également <b>souligné</b> ce <b>dilemme devant Rav Huna, et lui aussi</b> <b>ne lui a pas répondu ?</b> Comment Mar Zutra a-t-il pu rapporter cette décision halakhique au nom de Rav Huna ?

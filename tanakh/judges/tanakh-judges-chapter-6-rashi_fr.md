@@ -90,7 +90,7 @@
 <b>Pour le venger [lit. le sauver].</b> Pour se venger de lui.</sup></sup><i class="footnote">La traduction littérale de <span>ïŠï'ï¬'ִיע</span>, "pour le sauver", ne s'applique pas, puisque l'idole n'était plus en danger. L'autre interprétation, "se venger", est correcte ici.</i> De même, "par ma propre main exerçant ma vengeance,"<sup>21</sup><i class="footnote">Shmuel 1, 25:33. <span>ִיעָה"</span>est interprété comme "avenge."</i> par David concernant Novol.
 <b>Quiconque se bat pour [lit. "à"] lui.</b> Pour son bien.
 <b>Attendez jusqu'au matin.</b> Jusqu'au matin, attendez.
-<S'il est un dieu, qu'il mène sa propre bataille et sa propre vengeance. Pour les repousser jusqu'à ce que Gidon puisse s'échapper, il a dit ceci.
+<b>S'il est un dieu, qu'il mène sa propre bataille et sa propre vengeance. Pour les repousser jusqu'à ce que Gidon puisse s'échapper, il a dit ceci.
 
 ### passuk 32
 <b>Lutte contre lui.</b> Contre Gidon. Par rapport à <span>רַיב'</span>, "combattre", le terme approprié est <span>עִם</span>, ou <span>אֶת</span>, ou <span>ï¬±ï'</span>, "avec" [lui], comme dans "il a combattu avec Lavan". <sup>22</sup><i class="footnote">Bereishis, 31:36.</i> Cependant, <span>ï'</span>, lit. "à", n'est pas le terme approprié. Toutes les <span>ï'</span> mentionnées ici sont interprétées comme "pour son bien".

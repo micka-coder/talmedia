@@ -1,6 +1,6 @@
 
 ### Partie 1
-La Gemara repond : <b>Il s'agit ici</b> d'un cas <b>ou il a abattu</b> l'ane premier-ne afin <b>d'apprendre lui-meme</b> comment abattre correctement un animal, et non dans le but de le manger. Dans ce cas, Rabbi Shimon et les rabbins ne sont pas d'accord pour savoir si l'interdiction faite a un juif de le consommer sert d'intention pour qu'il soit traite comme de la nourriture. <b>Et</b> ils sont en desaccord <b>en ce qui concerne</b> la question qui fait l'objet de <b>la dispute entre Nimos et Rabbi Eliezer.</b>
+La Gemara repond : <b>Il s'agit ici</b> d'un cas <b>ou il a abattu</b> l'ane premier-ne afin <b>d'apprendre lui-meme</b> comment abattre correctement un animal, et non dans le but de le manger. Dans ce cas, Rabbi Shimon et les sages ne sont pas d'accord pour savoir si l'interdiction faite a un juif de le consommer sert d'intention pour qu'il soit traite comme de la nourriture. <b>Et</b> ils sont en desaccord <b>en ce qui concerne</b> la question qui fait l'objet de <b>la dispute entre Nimos et Rabbi Eliezer.</b>
 
 ### Partie 2
 <b>Comme il est enseigne</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Nimos, le frere de Rabbi Yehoshua HaGarsi,</b> m'a un jour <b>raconte que</b> dans le cas de <b>celui qui abat un corbeau</b> afin <b>d'apprendre lui-meme</b> comment abattre un oiseau correctement, <b>son sang rend</b> d'autres aliments susceptibles d'etre impurs, car le sang est l'un des sept liquides capables de rendre les aliments susceptibles d'etre impurs. <b>Rabbi Eliezer dit :</b> Le <b>sang</b> qui provient de l'<b>abattage</b> d'un animal <b>rend toujours</b> les aliments susceptibles d'etre impurs.
@@ -12,7 +12,7 @@ La Gemara demande : <b>Cette affirmation</b> de <b>Rabbi Eliezer</b> n'est-elle 
 En consequence, <b>le premier <i>tanna</i> soutient</b> que l'interdiction de consommer un corbeau ne le rend pas un aliment. Ainsi, <b>son sang rend</b> les aliments <b>en general</b> susceptibles d'etre impurs, <b>mais pour</b> rendre le corbeau <b>en soi</b> un aliment, <b>l'intention</b> de le manger est egalement <b>requise,</b> car les gens ne consomment generalement pas la viande des corbeaux.
 
 ### Partie 5
-<b>Et Rabbi Eliezer en vient a dire</b> que <b>le sang de l'abattage rend toujours</b> les autres aliments susceptibles d'etre impurs, <b>et meme en ce qui concerne</b> le corbeau <b>lui-meme, l'intention</b> de le consommer n'est <b>pas requise,</b> car il considere que son interdiction fait office d'intention de le consommer. De meme, Rabbi Shimon et les rabbins ne sont pas d'accord en ce qui concerne un ane premier-ne dans le cas ou il est abattu uniquement pour s'apprendre a abattre correctement. Selon Rabbi Shimon, l'intention de le manger est requise afin de le rendre susceptible de devenir un aliment impur, alors que selon les rabbins, l'interdiction de le manger dans ce cas sert d'intention pour qu'il soit utilise comme aliment.
+<b>Et Rabbi Eliezer en vient a dire</b> que <b>le sang de l'abattage rend toujours</b> les autres aliments susceptibles d'etre impurs, <b>et meme en ce qui concerne</b> le corbeau <b>lui-meme, l'intention</b> de le consommer n'est <b>pas requise,</b> car il considere que son interdiction fait office d'intention de le consommer. De meme, Rabbi Shimon et les sages ne sont pas d'accord en ce qui concerne un ane premier-ne dans le cas ou il est abattu uniquement pour s'apprendre a abattre correctement. Selon Rabbi Shimon, l'intention de le manger est requise afin de le rendre susceptible de devenir un aliment impur, alors que selon les sages, l'interdiction de le manger dans ce cas sert d'intention pour qu'il soit utilise comme aliment.
 
 ### Partie 6
 La Guemara repond : <b>D'ou</b> on deduit que le differend entre Nimos et Rabbi Eliezer porte sur cette question ? <b>Peut-etre que la raison</b> de l'avis <b>de Rabbi Eliezer la</b> est <b>qu'un corbeau est different, puisqu'il possede</b> certains <b>indicateurs d'un oiseau casher</b>, et est donc considere comme un aliment. En revanche, en ce qui concerne un ane, qui n'a aucun indicateur d'un animal casher, le fait de l'abattre pour apprendre a abattre correctement ne le rend pas alimentaire.
@@ -96,7 +96,7 @@ Le <i>baraita</i> indique egalement que <b>Rabbi Yosei bar Yehuda dit : Il n'y a
 La Guemara repond : <b>En fait,</b> le verset <b>ne les compare pas</b> et la raison pour laquelle un agneau valant un shekel est necessaire est due a ce que <b>Rava dit : Le verset dit</b> en ce qui concerne le rachat des biens consacres : <b>"Et toutes vos evaluations seront avec le shekel du Sanctuaire"</b> (Levitique 27:25), ce qui indique que <b>toutes les evaluations que vous faites ne doivent pas etre inferieures</b> a la valeur d'un <b>shekel.</b>
 
 ### Partie 33
-<b>Et les rabbins</b> qui ne sont pas d'accord avec lui tiennent que <b>cette</b> verset.
+<b>Et les sages</b> qui ne sont pas d'accord avec lui tiennent que <b>cette</b> verset.
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

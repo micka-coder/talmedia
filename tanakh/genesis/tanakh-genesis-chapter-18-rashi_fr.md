@@ -64,7 +64,7 @@
 <b>Au moment fixé.</b> [Signifie :] à ce moment fixé que j'ai précédemment mis de côté pour vous [lorsque j'ai dit :] "A cette époque de l'année prochaine".
 
 ### passuk 15
-<b>Car elle avait peur... car tu as ri. </b> Le premier "כִּי" est utilisé dans le sens de "<i>parce que</i>, donnant une raison au fait. [C'est-à-dire que] Sarah a nié... <i>parce que</i> elle avait peur. Le second [כִּי  est utilisé dans le sens de " mais ". [I.e.,] Et Il dit : ce n'est pas comme vous le dites, mais vous <i>avez</i> ri. Car nos rabbins ont dit :  כִּי  a quatre significations [différentes] : 1) si, 2) peut-être, 3) mais, 4) parce que. 
+<b>Car elle avait peur... car tu as ri. </b> Le premier "כִּי" est utilisé dans le sens de "<i>parce que</i>, donnant une raison au fait. [C'est-à-dire que] Sarah a nié... <i>parce que</i> elle avait peur. Le second [כִּי  est utilisé dans le sens de " mais ". [I.e.,] Et Il dit : ce n'est pas comme vous le dites, mais vous <i>avez</i> ri. Car nos sages ont dit :  כִּי  a quatre significations [différentes] : 1) si, 2) peut-être, 3) mais, 4) parce que. 
 
 ### passuk 16
 <b>Et ils regardèrent.</b> Partout où le terme  הַשְׁקָפָה " est utilisé dans l'Écriture, il est [destiné à exprimer le fait de regarder dans le but d'apporter] le mal, sauf : "Regardez en bas de Votre sainte demeure," [pour enseigner] que donner aux pauvres est si grand que cela peut changer l'attribut de colère de Dieu en miséricorde. 

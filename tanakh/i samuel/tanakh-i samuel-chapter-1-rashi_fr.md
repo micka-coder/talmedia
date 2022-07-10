@@ -19,7 +19,7 @@
 ### passuk 6
 <b>Sa rivale.</b> L'autre femme de son mari, Penina.
 <b>Fréquemment en colère.</b> Colère après colère, c'est-à-dire toujours.' C'est pourquoi il est écrit 'aussi [<span>' </span>] la colère.' Elle lui dirait : " As-tu acheté aujourd'hui un manteau à ton fils aîné, ou à ton fils cadet, une chemise ? ".
-<b>Pour qu'elle se plaigne.</b> Pour qu'elle se plaigne. Nos rabbins expliquent, 'afin de la faire tempêter', qu'elle prie. Penina avait de bonnes intentions.<sup>11</sup><i class="footnote"> Maseches Bava Basra 16a.</i>
+<b>Pour qu'elle se plaigne.</b> Pour qu'elle se plaigne. Nos sages expliquent, 'afin de la faire tempêter', qu'elle prie. Penina avait de bonnes intentions.<sup>11</sup><i class="footnote"> Maseches Bava Basra 16a.</i>
 <b>Son utérus.</b> Lit., à l'opposé de son utérus, et ainsi est chaque expression du mot <span>.<sup>12</sup><i class="footnote">Voir Rachi, Bereishis 7:16.</i></span><span>בְּעַד"</span>.
 
 ### passuk 7
@@ -38,7 +38,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Hachem des Armées.</b> Pourquoi ce nom a-t-il été désigné ici ? Elle [Chana] a dit devant Lui : " Seigneur de l'univers, Tu as créé deux armées dans Ton monde. Les êtres célestes ne se multiplient pas et ne meurent pas ; les êtres terrestres se multiplient et meurent. Si je fais partie des êtres terrestres, que je me multiplie et meure, et si je fais partie des êtres célestes, que je ne meure pas." J'ai trouvé [cette explication] dans la Aggadah de R. Eliezer le fils de R. Yose Haglili. Nos rabbins dans le Maseches Berahot,<sup>17</sup><i class="footnote"></i> ont exposé ce qu'ils ont exposé : Jusqu'alors, il n'y avait pas une seule personne qui appelait le Saint, Béni soit-Il, [maître des] hosties. Elle dit ainsi devant Lui : "Seigneur de l'univers, de toutes les armées que Tu as créées dans Ton monde, est-ce difficile pour Toi de m'accorder un fils ?".
+<b>Hachem des Armées.</b> Pourquoi ce nom a-t-il été désigné ici ? Elle [Chana] a dit devant Lui : " Seigneur de l'univers, Tu as créé deux armées dans Ton monde. Les êtres célestes ne se multiplient pas et ne meurent pas ; les êtres terrestres se multiplient et meurent. Si je fais partie des êtres terrestres, que je me multiplie et meure, et si je fais partie des êtres célestes, que je ne meure pas." J'ai trouvé [cette explication] dans la Aggadah de R. Eliezer le fils de R. Yose Haglili. Nos sages dans le Maseches Berahot,<sup>17</sup><i class="footnote"></i> ont exposé ce qu'ils ont exposé : Jusqu'alors, il n'y avait pas une seule personne qui appelait le Saint, Béni soit-Il, [maître des] hosties. Elle dit ainsi devant Lui : "Seigneur de l'univers, de toutes les armées que Tu as créées dans Ton monde, est-ce difficile pour Toi de m'accorder un fils ?".
 <b>Si tu regardes.</b> Dans le Maseches Berahot,<sup>18</sup><i class="footnote">Ibid.</i> nos Sages ont exposé ce qu'ils ont exposé.
 <b>Ta servante.</b> [Le mot "servante"] est énoncé trois fois dans ce verset, ce qui correspond aux trois mitzvot qu'il est commandé à la femme d'observer.<sup>19</sup><i class="footnote">Ils sont les lois de : 1. Menstruations <span>.2</span><span> '"</span>Séparation de la pâte <span>.3</span><span>נִדָּה"</span>Allumage des lumières du Shabbat [<span>חַלָּה</span>].</i>
 <b>Pendance masculine.</b> C'est-à-dire des hommes justes, comme il est écrit : "Deux hommes [<span>אֲנָשִׁים</span>] qui étaient justes."<sup>20</sup><i class="footnote">I Melachim 2:32.</i>

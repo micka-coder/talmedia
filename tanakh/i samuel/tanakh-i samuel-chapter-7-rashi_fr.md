@@ -22,7 +22,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Ils offrirent tout cela en holocauste.</b> Le <span>כְּתִיב'</span> est '<span> '</span> parce que c'était une femelle. <sup>8</sup><i class="footnote">Malgré le fait que le <span>וַיַעֲלֶהָ</span> soit de forme mâle.</i> De là, nos rabbins ont déduit qu'un animal femelle est acceptable comme holocauste sur un autel privé.<sup>9</sup><i class="footnote"></i>
+<b>Ils offrirent tout cela en holocauste.</b> Le <span>כְּתִיב'</span> est '<span> '</span> parce que c'était une femelle. <sup>8</sup><i class="footnote">Malgré le fait que le <span>וַיַעֲלֶהָ</span> soit de forme mâle.</i> De là, nos sages ont déduit qu'un animal femelle est acceptable comme holocauste sur un autel privé.<sup>9</sup><i class="footnote"></i>
 
 ### passuk 10
 

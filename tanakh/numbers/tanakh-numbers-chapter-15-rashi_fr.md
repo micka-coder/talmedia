@@ -16,7 +16,7 @@
 <b>Pour un mouton.</b> Cela concerne tout ce qui a été dit plus haut - l'offrande de repas, l'huile et le vin. 
 
 ### passuk 6
-<b>Si (lit. ou) pour un bélier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est un bélier. Les rabbins extrapolent, "  אוֹ  inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les "<i>palgas</i>" dans les libations du bélier. 
+<b>Si (lit. ou) pour un bélier.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Si c'est un bélier. Les sages extrapolent, "  אוֹ  inclut <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les "<i>palgas</i>" dans les libations du bélier. 
 
 ### passuk 7
 
@@ -86,7 +86,7 @@
 
 ### passuk 30
 <b>High handedly.</b> Intentionnellement.
-<b>Blasphèmes.</b> Révolte, comme, "méprisé et injurié", "que les serviteurs du roi d'Ashur ont injurié". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En outre, les rabbins déduisent d'ici que quelqu'un qui maudit Hachem" est sujet à "<i>koreis</i>." 
+<b>Blasphèmes.</b> Révolte, comme, "méprisé et injurié", "que les serviteurs du roi d'Ashur ont injurié". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En outre, les sages déduisent d'ici que quelqu'un qui maudit Hachem" est sujet à "<i>koreis</i>." 
 
 ### passuk 31
 <b>La parole d'Hachem.</b> L'interdiction du culte des idoles était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>par la parole de l'Omnipotent, le reste par la parole de Moshé. 

@@ -12,10 +12,10 @@ La Guemara cite la conclusion a l'egard de cette <i>halakha</i> en relatant une 
 La Guemara s'interroge : Dire que la <b><i>halakha</i></b> est conforme a l'avis de Rabbi Eliezer, <b>indique que</b> ses pairs <b>contestent</b> son avis. Ou trouve-t-on cette contestation ?
 
 ### Partie 5
-La Gemara rejette cette idee : <b>Et ne contestent-ils pas</b> son opinion ? <b>Les rabbins ne contestent-ils pas</b> son opinion, car, selon eux, la benediction de <i>havdala</i> est recitee dans la benediction : Qui accorde gracieusement la connaissance ?
+La Gemara rejette cette idee : <b>Et ne contestent-ils pas</b> son opinion ? <b>Les sages ne contestent-ils pas</b> son opinion, car, selon eux, la benediction de <i>havdala</i> est recitee dans la benediction : Qui accorde gracieusement la connaissance ?
 
 ### Partie 6
-La Guemara repond : <b>Disons que les rabbins contestent</b> l'avis de Rabbi Eliezer <b>pendant le reste des jours de l'annee,</b> lorsque l'option de reciter <i>havdala</i> dans la benediction : Qui accorde gracieusement la connaissance existe, mais <b>dans le cas d'une Fete qui se produit</b> directement <b>apres Chabbat, contestent-ils</b> son opinion ? Les rabbins sont d'accord avec lui dans ce cas.
+La Guemara repond : <b>Disons que les sages contestent</b> l'avis de Rabbi Eliezer <b>pendant le reste des jours de l'annee,</b> lorsque l'option de reciter <i>havdala</i> dans la benediction : Qui accorde gracieusement la connaissance existe, mais <b>dans le cas d'une Fete qui se produit</b> directement <b>apres Chabbat, contestent-ils</b> son opinion ? Les sages sont d'accord avec lui dans ce cas.
 
 ### Partie 7
 La Guemara poursuit : <b>Rabbi Akiva ne conteste-t-il pas</b> son opinion ? Il soutient que <i>havdala</i> est recite comme une quatrieme benediction independante, dans ce cas il y a une dispute.
@@ -30,7 +30,7 @@ En reponse a ces questions, Rabbi Zeira lui <b>dit</b> que <b>ce n'est pas</b> q
 <b>Comme</b> en effet <b>il a ete affirme</b> qu'il y a une dispute entre les Sages a ce sujet. <b>Rav Yitzhak bar Avdimi a dit au nom de Rabbeinou,</b> Rav : <b>La <i>halakha</i></b> est conforme a l'avis de Rabbi Eliezer. <b>Et certains disent cette</b> declaration : On est <b>incline</b> a favoriser l'opinion de Rabbi Eliezer.
 
 ### Partie 11
-<b>Rabbi Yohanan dit</b> qu'il n'y a pas de contestation ici, et que les rabbins sont <b>d'accord</b> avec Rabbi Eliezer. <b>Et Rabbi Hiyya bar Abba dit</b> qu'il a ete etabli que l'opinion de Rabbi Eliezer <b>apparait</b> comme etant correcte.
+<b>Rabbi Yohanan dit</b> qu'il n'y a pas de contestation ici, et que les sages sont <b>d'accord</b> avec Rabbi Eliezer. <b>Et Rabbi Hiyya bar Abba dit</b> qu'il a ete etabli que l'opinion de Rabbi Eliezer <b>apparait</b> comme etant correcte.
 
 ### Partie 12
 A propos de cette divergence d'opinion <b>Rabbi Zeira a dit : Prends</b> cette declaration de <b>Rabbi Hiyya bar Abba dans ta main, car il est scrupuleux et il a bien appris la <i>halakha</i> de la bouche de son initiateur, comme</b> le Sage <b>Rahava</b> de la ville <b>Pumbedita.</b> Rahava etait celebre pour la precision avec laquelle il transmettait la matiere qu'il apprenait de son maitre.
@@ -39,7 +39,7 @@ A propos de cette divergence d'opinion <b>Rabbi Zeira a dit : Prends</b> cette d
 La Gemara cite un exemple : <b>Rahava a dit</b> que <b>Rabbi Yehuda a dit : Le Mont du Temple etait un double <i>stav</i>, et il y avait un <i>stav</i> a l'interieur d'un <i>stav</i>.</b> Ici, Rahava a utilise le langage de son Rabbi pour decrire la structure du Temple et les rangees de colonnes qu'il contenait, une rangee a l'interieur d'une rangee ; mais il n'a pas employe le terme courant <i>itzteba</i>, portique, mais plutot <i>stav</i>, tel qu'il l'a entendu de son Rabbi.
 
 ### Partie 14
-<b>Rav Yosef a dit</b> la <i>halakha</i> concluante sur ce sujet : <b>Je ne sais pas ceci et je ne sais pas cela, mais je sais d'apres</b> les declarations de <b>Rav et Shmuel qu'ils ont institue une perle pour nous en Babylonie.</b> Ils ont etabli une version qui combine la premiere benediction de la Fete avec la formule de <i>havdala</i>, parallelement a l'avis des rabbins qui incluent <i>havdala</i> dans la premiere benediction qui suit les trois premieres benedictions. Ils ont institue de reciter :
+<b>Rav Yosef a dit</b> la <i>halakha</i> concluante sur ce sujet : <b>Je ne sais pas ceci et je ne sais pas cela, mais je sais d'apres</b> les declarations de <b>Rav et Shmuel qu'ils ont institue une perle pour nous en Babylonie.</b> Ils ont etabli une version qui combine la premiere benediction de la Fete avec la formule de <i>havdala</i>, parallelement a l'avis des sages qui incluent <i>havdala</i> dans la premiere benediction qui suit les trois premieres benedictions. Ils ont institue de reciter :
 
 ### Partie 15
 <b>Tu nous as fait connaitre, Seigneur notre Dieu, Tes lois justes,</b> <br><b>et tu nous as appris a accomplir les decrets de Ta volonte.</b> <br><b>Tu nous as donne en heritage des saisons de joie et des Fetes d'offrandes volontaires.</b> <br><b>Tu nous as donne en heritage la saintete du Chabbat, la gloire de la fete et les offrandes festives des Fetes de pelerinage. </b> <br><b>Tu as distingue entre la saintete du Chabbat et la saintete de la Fete,</b> <br><b>et tu as sanctifie le septieme jour sur les six jours de travail.</b> <br><b>Tu as distingue et sanctifie Ton peuple Israel par Ta saintete,</b> <br><b>Et Tu nous as donne, etc.</b>

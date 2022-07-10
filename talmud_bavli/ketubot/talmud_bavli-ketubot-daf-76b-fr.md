@@ -33,7 +33,7 @@ La Guemara <b>souleve une objection : Une aiguille qui se trouve dans la paroi e
 La Guemara repond : Cette <i>baraita</i> fait reference a un cas <b>ou le boucher avait</b> deja <b>donne l'argent.</b> Puisque le boucher est celui qui demande de l'argent au vendeur, il doit fournir une preuve. La Guemara pose une question : <b>Mais pourquoi</b> cela a-t-il ete enonce <b>sans qualification ?</b> Comment sait-on que le <i>tanna</i> faisait reference a ce cas particulier ? La Guemara repond : <b>La situation ordinaire</b> est que <b>tant qu'une personne n'a pas donne d'argent,</b> l'autre <b>personne ne lui donnera pas</b> <b>l'animal.</b> On peut donc supposer que le boucher a paye l'animal avant d'etre autorise a l'abattre, ce qui signifie que c'est lui qui reclame la restitution de l'argent.
 
 ### Partie 12
-§ La mishna enseigne : <b>Et les rabbins disent : Dans quel</b> cas <b>cette declaration est-elle dite ? A l'egard des tares cachees.</b> Mais il ne peut pretendre avoir ignore les tares visibles. <b>Rav Nahman a dit :</b>
+§ La mishna enseigne : <b>Et les sages disent : Dans quel</b> cas <b>cette declaration est-elle dite ? A l'egard des tares cachees.</b> Mais il ne peut pretendre avoir ignore les tares visibles. <b>Rav Nahman a dit :</b>
 
 >Credit : William Davidson Edition
 >Licence : CC-BY-NC

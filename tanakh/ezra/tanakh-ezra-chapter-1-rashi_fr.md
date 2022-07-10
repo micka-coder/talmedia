@@ -33,7 +33,7 @@
 
 ### passuk 8
 <b>par la main de Mithderath le trésorier</b> tel était le nom du trésorier de Cyrus, et Cyrus ordonna [à celui-ci] de les sortir.
-<b>et il les compta</b> Ce trésorier les compta et les remit à Sheshbazzar, afin qu'il les porte et les transporte à Jérusalem. Nos rabbins ont dit : " Sheshbazzar est identique à Daniel, et pourquoi l'appelait-on Sheshbazzar ? Parce qu'il a enduré six troubles (שֵּׁשּׁ צָרוֹת) ." ?
+<b>et il les compta</b> Ce trésorier les compta et les remit à Sheshbazzar, afin qu'il les porte et les transporte à Jérusalem. Nos sages ont dit : " Sheshbazzar est identique à Daniel, et pourquoi l'appelait-on Sheshbazzar ? Parce qu'il a enduré six troubles (שֵּׁשּׁ צָרוֹת) ." ?
 <b>Le prince de Juda</b> Il est le prince de la tribu de Juda.
 
 ### passuk 9
@@ -42,7 +42,7 @@
 <b>Couteaux</b> Heb.  מַחֲלָפִים. Ce sont des couteaux, et cette expression fait référence à la chambre des couteaux (בֵּית הַחֲלִיפוֹת). Comme ils y déposaient les couteaux, on l'appelait la chambre du dépôt des couteaux (לִשְּׁכַּת בֵּית הַחֲלִיפוֹת).
 
 ### passuk 10
-<Heb.  כְּפוֹרֵי, bols, et ils ont été appelés  כְּפוֹרֵי  d'une expression d'essuyage, comme (Bava Mezia 24b) : "Qui a essuyé (דְּכָפַר) ses mains sur le manteau de son voisin", car celui qui recevait le sang dans un bol essuyait les giclées de sang qui éclaboussaient sa main sur le rebord du bol.
+<b>Heb.  כְּפוֹרֵי, bols, et ils ont été appelés  כְּפוֹרֵי  d'une expression d'essuyage, comme (Bava Mezia 24b) : "Qui a essuyé (דְּכָפַר) ses mains sur le manteau de son voisin", car celui qui recevait le sang dans un bol essuyait les giclées de sang qui éclaboussaient sa main sur le rebord du bol.
 <b>secondaire</b> Heb.  מִשְּׁנִים, secondaires, autres récipients d'un autre genre.
 
 ### passuk 11

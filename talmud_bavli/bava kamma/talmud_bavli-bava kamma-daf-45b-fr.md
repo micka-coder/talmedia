@@ -9,7 +9,7 @@
 <b>Rav Huna bar Hinnana a dit :</b> Conformement a <b>l'avis de qui</b> <b>est ce</b> <i>baraita</i> ? <b>C'est</b> conformement a l'avis de <b>Rabbi Eliezer, qui dit</b> qu'un bœuf <b>n'a pas</b> de <b>sauvegarde</b> suffisante du tout <b>autre que</b> l'egorger avec <b>un couteau;</b> c'est-a-dire, il n'y a aucun degre de sauvegarde qui exonere le proprietaire du bœuf, ou dans le contexte de la <i>baraita</i>, le bailli, de la responsabilite si le bœuf cause des dommages ou tue. <b>Et en ce qui concerne un locataire,</b> le <i>baraita</i> <b>s'en tient conformement</b> a l'opinion de <b>Rabbi Yehuda, qui dit</b> que <b>un locataire est</b> considere <b>comme un bailli paye.</b>
 
 ### Partie 4
-<b>Abaye a dit : En fait,</b> la <i>baraita</i> est <b>conforme</b> a l'avis de <b>Rabbi Meir ; et</b> c'est <b>comme Rabba bar Avuh a inverse</b> les deux avis <b>et a enseigne : Comment un locataire doit-il payer ? </b> En d'autres termes, quel est son degre de responsabilite ? <Rabbi Meir dit : Comme un bailli paye. Rabbi Yehuda dit : Comme un depositaire non paye.</b>
+<b>Abaye a dit : En fait,</b> la <i>baraita</i> est <b>conforme</b> a l'avis de <b>Rabbi Meir ; et</b> c'est <b>comme Rabba bar Avuh a inverse</b> les deux avis <b>et a enseigne : Comment un locataire doit-il payer ? </b> En d'autres termes, quel est son degre de responsabilite ? <b>Rabbi Meir dit : Comme un bailli paye. Rabbi Yehuda dit : Comme un depositaire non paye.</b>
 
 ### Partie 5
 <b>Rabbi Elazar dit : </b> Si le proprietaire a <b>convoque son bœuf a un depositaire non paye,</b> si le bœuf <b>a cause des dommages,</b> le depositaire est <b>responsable</b> de payer des dommages et interets ; mais si le bœuf <b>a ete blesse,</b> il est <b>exempte.</b>

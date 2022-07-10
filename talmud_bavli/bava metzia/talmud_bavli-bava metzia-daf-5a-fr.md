@@ -24,7 +24,7 @@ La Guemara rejette cet avis : <b>Non,</b> Rami bar Hama fait reference a un cas 
 Pour contrer cela, <b>le verset indique</b> en ce qui concerne les bailees : <b>Pour toute affaire d'infraction, pour un bœuf, pour un ane, pour un mouton, pour un vetement, <b>pour tout objet perdu au sujet duquel on dira : C'est cela,</b> les reclamations des deux viendront devant les juges" (Exode 22:8). Cela indique que <b>vous obligez</b> le defendeur a preter serment sur la base <b>de l'admission</b> d'une partie d'une reclamation par <b>sa bouche, mais vous ne l'obligez pas</b> a preter serment sur la base <b>de la deposition des temoins.</b>
 
 ### Partie 9
-La Guemara rejette cette contestation : <b>Soulevez-vous une objection a</b> l'opinion de <b>Rabbi Hiyya</b> a partir de <b>une <i>baraita</i> ? Le rabbin Hiyya</b> lui-meme <b>est un <i>tanna</i>, et</b> en tant que tel, il a l'autorite pour <b>disputer</b> la determination dans un <i>baraita</i>.
+La Guemara rejette cette contestation : <b>Soulevez-vous une objection a</b> l'opinion de <b>Rabbi Hiyya</b> a partir de <b>une <i>baraita</i> ? Rabbi Hiyya</b> lui-meme <b>est un <i>tanna</i>, et</b> en tant que tel, il a l'autorite pour <b>disputer</b> la determination dans un <i>baraita</i>.
 
 ### Partie 10
 La Gemara demande : <b>Mais cette <i>tanna</b> ne <b>cite-t-elle pas un verset ? </b> La Guemara repond : Selon Rabbi Hiyya, <b>ce verset</b> enseigne que <b>celui qui admet une partie de la demande</b> est oblige de preter serment.

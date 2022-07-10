@@ -74,7 +74,7 @@
 
 ### passuk 32
 <b>Et ils l'exalteront dans une assemblée de gens</b> Il doit rendre grâce en présence de dix personnes.
-<b>et dans une assemblée d'anciens</b> Et deux d'entre eux doivent être des savants rabbins.
+<b>et dans une assemblée d'anciens</b> Et deux d'entre eux doivent être des savants sages.
 
 ### passuk 33
 <b>Il transforme les fleuves en désert</b> C'est-à-dire qu'Il transforme les établissements des nations en ruines.

@@ -11,7 +11,7 @@
 ### passuk 4
 
 ### passuk 5
-<Voici, je vais ajouter</b> (יוֹסִיף£, lit., il va ajouter.) Voici, je suis celui qui va ajouter à votre vie.
+<b>Voici, je vais ajouter</b> (יוֹסִיף£, lit., il va ajouter.) Voici, je suis celui qui va ajouter à votre vie.
 
 ### passuk 6
 <b>Et de la main du roi d'Assyrie je te sauverai</b> On en déduit qu'il est tombé malade avant la chute de Sennacherib.

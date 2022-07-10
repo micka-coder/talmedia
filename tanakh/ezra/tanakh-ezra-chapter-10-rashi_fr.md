@@ -42,7 +42,7 @@
 
 ### passuk 14
 <b>avec toute la congrégation</b> Heb.  לְכָל הַקָהָל
-<Heb.  הַהשִּׁיב ' équivalent à  אֲשֶּׁר הוֹשִּׁיב'.
+<b>Heb.  הַהשִּׁיב ' équivalent à  אֲשֶּׁר הוֹשִּׁיב'.
 <b>Jusqu'à ce que nous nous détournions</b> jusqu'à ce que la colère ardente du Saint, béni soit-il, revienne de dessus nous.
 
 ### passuk 15

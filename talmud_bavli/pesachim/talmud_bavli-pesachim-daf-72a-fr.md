@@ -42,7 +42,7 @@ La Guemara demande : <b>Si c'est le cas,</b> comment comprendre la suite de la m
 La Guemara exprime sa surprise : <b>Et</b> comment pouvez-vous <b>comprendre</b> cette <i>baraïta</i> dans sa formulation actuelle ? <b>Si là,</b> dans la dernière clause, où il a circoncis le bébé qui aurait dû être circoncis après Chabbat, le Chabbat, de sorte que <b>il n'a pas accompli une mitzva</b> parce que le bébé n'avait pas encore huit jours et que la mitzva ne s'appliquait pas encore, <b>Rabbi Yehoshua</b> l'a néanmoins <b>exempté</b> parce qu'il a commis une erreur en ayant l'intention d'accomplir une mitzva. Ensuite, <b>lorsqu'il a effectivement accompli une mitzva,</b> c'est-à-dire lorsqu'il a circoncis un bébé le Chabbat qui était déjà âgé de huit jours avant Chabbat et auquel la mitzva de la circoncision s'appliquait, Rabbi Yehoshua <b>le considérerait-il comme responsable ?</b>
 
 ### Partie 15
-Les rabbins de <b>l'école de Rabbi Yannai ont dit : La première clause</b> de la <i>baraita</i> fait référence à une situation unique, <b>où le circonciseur <b>premier</b> a involontairement <b>circoncis la veille de Chabbat</b> le bébé qui aurait dû être circoncis le <b>Shabbat.</b>
+Les sages de <b>l'école de Rabbi Yannai ont dit : La première clause</b> de la <i>baraita</i> fait référence à une situation unique, <b>où le circonciseur <b>premier</b> a involontairement <b>circoncis la veille de Chabbat</b> le bébé qui aurait dû être circoncis le <b>Shabbat.</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>La Jérusalem bâtie</b> Lorsque mon fils Salomon construira le Temple en son sein [Jérusalem], elle sera bâtie avec la Shechinah, le Temple, l'Arche et l'autel.
-<b>Comme une ville qui a été réunie en son sein</b> Comme Shiloh, car l'Écriture les a comparées l'une à l'autre, comme il est dit (Deut. 12:9) : Le reste, c'est Shilo. L'héritage est Jérusalem (voir Sifrei Re'eh 66). Et nos rabbins ont dit (Ta'an. 5a) : Il y a une Jérusalem dans le ciel, et la Jérusalem de la terre est destinée à lui ressembler.
+<b>Comme une ville qui a été réunie en son sein</b> Comme Shiloh, car l'Écriture les a comparées l'une à l'autre, comme il est dit (Deut. 12:9) : Le reste, c'est Shilo. L'héritage est Jérusalem (voir Sifrei Re'eh 66). Et nos sages ont dit (Ta'an. 5a) : Il y a une Jérusalem dans le ciel, et la Jérusalem de la terre est destinée à lui ressembler.
 
 ### passuk 4
 <b>Là où sont montées les tribus</b> Car c'est là, à Silo, que les tribus sont montées lorsqu'elles sont sorties d'Égypte, et le Tabernacle a été établi au milieu d'elles.

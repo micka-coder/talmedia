@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Mon fils, mon fils.</b> Huit fois.<sup>1</sup><i class="footnote">David a dit le mot <span>ï¬±ְנִי</span> huit fois, cinq fois dans ce verset et trois autres fois plus tard au verset 5. </i> Nos rabbins ont dit,<sup>2</sup><i class="footnote">Sotah 10b.</i> Sept de ces fois pour le sortir des sept niveaux de la Géhenne et une pour l'amener dans le Monde à venir.
+<b>Mon fils, mon fils.</b> Huit fois.<sup>1</sup><i class="footnote">David a dit le mot <span>ï¬±ְנִי</span> huit fois, cinq fois dans ce verset et trois autres fois plus tard au verset 5. </i> Nos sages ont dit,<sup>2</sup><i class="footnote">Sotah 10b.</i> Sept de ces fois pour le sortir des sept niveaux de la Géhenne et une pour l'amener dans le Monde à venir.
 
 ### passuk 2
 
@@ -90,7 +90,7 @@
 <b>Que je devrais monter.</b> Il n'en reste que quelques-unes, [donc] quel plaisir aurai-je à ce que vous me fournissiez.
 
 ### passuk 36
-<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos rabbins de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Shabbos 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
+<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos sages de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Shabbos 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
 
 ### passuk 37
 <b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Yardein.

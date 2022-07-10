@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>La vallée de la vision</b> C'est Jérusalem, la vallée au sujet de laquelle la plupart des prophéties ont été annoncées.
-<b>que vous êtes tous montés sur les toits</b> Lorsqu'une armée arrive sur eux, ils montent sur leurs toits pour voir l'armée et pour combattre. Nos rabbins, cependant, ont expliqué cela concernant les prêtres qui montaient sur le toit du Temple avec les clés de l'avant-cour dans leurs mains, comme il est indiqué dans le Tractate Taanith (29a). Le Midrash Aggadah, cependant, affirme qu'ils (les habitants de Jérusalem) étaient hautains. (Cela se trouve) dans Lamentations Rabbah (Int. 24).
+<b>que vous êtes tous montés sur les toits</b> Lorsqu'une armée arrive sur eux, ils montent sur leurs toits pour voir l'armée et pour combattre. Nos sages, cependant, ont expliqué cela concernant les prêtres qui montaient sur le toit du Temple avec les clés de l'avant-cour dans leurs mains, comme il est indiqué dans le Tractate Taanith (29a). Le Midrash Aggadah, cependant, affirme qu'ils (les habitants de Jérusalem) étaient hautains. (Cela se trouve) dans Lamentations Rabbah (Int. 24).
 
 ### passuk 2
 <b>pleine de clameurs</b> Une ville qui était pleine de clameurs, la voix d'un grand nombre de personnes, tumultueuse et heureuse, maintenant, qu'est-ce qui t'afflige pour que tu te lamentes ?
@@ -67,12 +67,12 @@
 <b>Il taille</b> (חֹצְבִי). Le "yud' est superflu. Comp. (Deut. 33:16) : "Qui habite (שׁוֹכְנִי) dans le buisson d'épines" ; (Psaumes 113:7) "Il relève (מְקִימִי) le pauvre de la poussière."
 
 ### passuk 17
-<b>Il te jettera d'un puissant coup</b> (גָבֶר) comme un coq qui erre d'un endroit à l'autre (Lev. Rabbah ibid.) Le Midrash explique  גֶבֶר  comme un coq. Nos rabbins ont cependant affirmé que l'errance d'un homme est plus éprouvante que celle d'une femme (San. 26a).
-<b>et te faire voler.</b> Heb. (וְעֹטְךָ עָטֹה"). Comp. (I Sam. 25:14) "Et il les chassa (וַיָּעַט)," une expression de  עַיִּט, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos rabbins ont cependant affirmé que le "zaraath' a éclaté sur lui, comme il est dit : (Lévitique 13:45) "Et sur sa lèvre supérieure, il s'enveloppera (יַעְטֶה")."
+<b>Il te jettera d'un puissant coup</b> (גָבֶר) comme un coq qui erre d'un endroit à l'autre (Lev. Rabbah ibid.) Le Midrash explique  גֶבֶר  comme un coq. Nos sages ont cependant affirmé que l'errance d'un homme est plus éprouvante que celle d'une femme (San. 26a).
+<b>et te faire voler.</b> Heb. (וְעֹטְךָ עָטֹה"). Comp. (I Sam. 25:14) "Et il les chassa (וַיָּעַט)," une expression de  עַיִּט, un oiseau. Il vous fera vous envoler comme un oiseau, en exil. Nos sages ont cependant affirmé que le "zaraath' a éclaté sur lui, comme il est dit : (Lévitique 13:45) "Et sur sa lèvre supérieure, il s'enveloppera (יַעְטֶה")."
 
 ### passuk 18
 <b>Il t'enroulera</b> comme un turban qui entoure la tête, les ennemis et les oppresseurs t'entoureront. 
-<b>Comme un mur d'enceinte.</b> (כַּדּוּר). Nos rabbins, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent "pelote' en français, qui est lancée et attrapée de main en main.
+<b>Comme un mur d'enceinte.</b> (כַּדּוּר). Nos sages, cependant, l'ont expliqué comme l'expression d'une balle, qu'ils appellent "pelote' en français, qui est lancée et attrapée de main en main.
 <b>Vers une terre de grand espace</b> dans Casiphia, le nom d'un lieu.
 <b>C'est là que tu mourras</b> Et tu ne seras pas enterré dans le sépulcre de la maison de David, et c'est là que les chars de ta gloire seront convertis en la honte de la maison de ton maître que tu as recherché.
 

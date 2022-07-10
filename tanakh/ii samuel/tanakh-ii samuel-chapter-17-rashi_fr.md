@@ -67,7 +67,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
+<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos sages ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
 
 ### passuk 26
 
@@ -77,7 +77,7 @@
 ### passuk 28
 <b>Mats.</b> Mats.
  <b>Ustensiles.</b> Il s'agit d'ustensiles à usage pratique. comme [on trouve], "des ustensiles en argent."<sup>10</sup><i class="footnote">Melahim II, 12:14.</i>.
-<b>Grain grillé.</b> Types d'aliments grillés Nos rabbins ont dit que Barzilai a apporté deux types de bouillie à David, l'une faite de blé et l'autre de lentilles, comme décrit ici farine et <span>קָלִי</span>, celle-ci était faite de blé. Haricots, lentilles et <span>קָלִי</span> [celui-ci] a été fait à partir de types de haricots.<sup>11</sup><i class="footnote">Le mot <span>קָלִי</span> apparaît deux fois dans ce verset. Le premier <span>קָלִי</span> écrit après <span>קֶמַח-</span> fait référence à une bouillie faite de céréales. Le second <span>קָלִי</span> écrit après <span>עֲדָ</span> fait référence à une bouillie faite de lentilles.</i> Ils avaient l'habitude de les sécher dans des fours [ayant été mis dedans] alors qu'ils étaient [encore] humides, ils [ainsi] étaient doux de façon permanente [puis] ils les broyaient et en faisaient un aliment qui était appelé "bouillie"."
+<b>Grain grillé.</b> Types d'aliments grillés Nos sages ont dit que Barzilai a apporté deux types de bouillie à David, l'une faite de blé et l'autre de lentilles, comme décrit ici farine et <span>קָלִי</span>, celle-ci était faite de blé. Haricots, lentilles et <span>קָלִי</span> [celui-ci] a été fait à partir de types de haricots.<sup>11</sup><i class="footnote">Le mot <span>קָלִי</span> apparaît deux fois dans ce verset. Le premier <span>קָלִי</span> écrit après <span>קֶמַח-</span> fait référence à une bouillie faite de céréales. Le second <span>קָלִי</span> écrit après <span>עֲדָ</span> fait référence à une bouillie faite de lentilles.</i> Ils avaient l'habitude de les sécher dans des fours [ayant été mis dedans] alors qu'ils étaient [encore] humides, ils [ainsi] étaient doux de façon permanente [puis] ils les broyaient et en faisaient un aliment qui était appelé "bouillie"."
 
 ### passuk 29
 <b>Et le fromage de vache.</b> [Le Yonoson traduit :] "Et le fromage fait de lait".

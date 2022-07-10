@@ -51,7 +51,7 @@ Après avoir mentionné ce verset, la Guemara pose une question connexe : <b>Que
 <strong>MISHNA : </strong> <b>Une personne</b> peut <b>donner une pièce de <i>ma'a</i></b> à un épicier ou à un boulanger,</b> s'ils habitent la même ruelle ou la même cour, <b>afin que</b> l'épicier ou le boulanger lui <b>confère la possession</b> de vin ou de pain <b>pour</b> une fusion de la ruelle ou <b>un <i>eiruv</i>,</b> si d'autres résidents viennent les voir pour acheter ces produits à cette fin. Telle est <b>la déclaration de Rabbi Eliezer.</b>
 
 ### Partie 18
-<b>Et les rabbins disent : Son argent ne lui a pas conféré la possession,</b> car le transfert d'argent seul n'est pas un mode d'acquisition valide et ne peut conférer la possession. Il faut effectuer un mode d'acquisition valide, par exemple, tirer un article en sa possession, pour transférer la propriété.
+<b>Et les sages disent : Son argent ne lui a pas conféré la possession,</b> car le transfert d'argent seul n'est pas un mode d'acquisition valide et ne peut conférer la possession. Il faut effectuer un mode d'acquisition valide, par exemple, tirer un article en sa possession, pour transférer la propriété.
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

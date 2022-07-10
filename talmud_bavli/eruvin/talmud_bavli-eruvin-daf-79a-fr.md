@@ -1,12 +1,12 @@
 
 ### Partie 1
-Cependant, si <b>il ne l'a pas annulée, non,</b> la maison conserve le statut de maison, bien qu'elle soit remplie de foin. <b>Rav Huna a dit : Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> le tractate <b><i>Oholot</i> ? C'est Rabbi Yosei,</b> et le <i>tanna</i> de la mishna n'accepte pas son opinion.
+Cependant, si <b>il ne l'a pas annulée, non,</b> la maison conserve le statut de maison, bien qu'elle soit remplie de foin. <b>Rav Huna a dit : Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> le traité <b><i>Oholot</i> ? C'est Rabbi Yosei,</b> et le <i>tanna</i> de la mishna n'accepte pas son opinion.
 
 ### Partie 2
 La Guemara demande : <b>Si</b> cette mishna est conforme à l'avis de <b>Rabbi Yosei,</b> il y a une difficulté, car <b>on l'a entendu</b> dire <b>le contraire, comme il a été enseigné</b> dans la <i>Tosefta</i> que <b>Rabbi Yosei dit : </b> Dans le cas où il y a une maison pleine de <b>hay et</b> le propriétaire <b>n'a pas l'intention de l'enlever, on considère qu'elle</b> est remplie de <b>saleté indéterminée, et elle est</b> donc <b>annulée. </b> Cependant, si la maison était pleine de <b>saleté</b> qu'il <b>a l'intention d'enlever, elle est considérée comme si</b> elle était remplie de <b>foin indéterminé, et elle est</b> donc <b>non annulée.</b> Apparemment, le facteur décisif pour Rabbi Yosei n'est pas la matière spécifique dans la maison, mais si le propriétaire a l'intention ou non de l'enlever.
 
 ### Partie 3
-<b>Au contraire, Rav Asi a dit : Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> le tractate <i>Eiruvin</i> ? <b>C'est Rabbi Yosei,</b> qui n'accepte pas l'opinion du <i>tanna</i> du tractat <i>Oholot</i>.
+<b>Au contraire, Rav Asi a dit : Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> le traité <i>Eiruvin</i> ? <b>C'est Rabbi Yosei,</b> qui n'accepte pas l'opinion du <i>tanna</i> du tractat <i>Oholot</i>.
 
 ### Partie 4
 <b>Rav Huna, fils de Rav Yehoshua, a dit : Est-ce que tu soulèves une contradiction</b> entre les <i>halakhot</i> d'<b>impureté</b> rituelle et les <i>halakhot</i> de <b>Shabbat ?</b> Ces deux domaines de <i>halakha</i> ne peuvent être comparés. <b>Laissons</b> de côté l'<b>interdiction du Shabbat.</b> En ce qui concerne le Shabbat, <b>une personne annule même une poche</b> pleine d'argent. La poche ne peut pas être déplacée le Chabbat et est donc considérée comme fixe en place. En revanche, le foin, qui peut être déplacé même le Chabbat, n'est pas considéré comme fixé dans le fossé. En ce qui concerne l'impureté rituelle, en revanche, l'annulation doit être permanente.

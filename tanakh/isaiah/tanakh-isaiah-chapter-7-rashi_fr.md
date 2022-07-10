@@ -13,7 +13,7 @@
 <b>Au bord du conduit</b> Là, tu le trouveras.  תְּעָלַת  est fosed [un fossé] en ancien français
 <b>le bassin supérieur</b> Type de rassemblement d'eau qui est fait pour les poissons.
 <b>Supérieur</b> Sur l'inclinaison de la montagne, et il y en a un en dessous, à sa base.
-<b>Le champ des laveurs</b> Champ dans lequel les laveurs étendent le linge à sécher. C'est ainsi que Jonathan a rendu cela. Nos rabbins ont expliqué qu'Achaz s'est humilié devant Isaïe et a placé sur sa tête un ustensile de laveur, c'est-à-dire qu'il a inversé un récipient sur sa tête [c'est-à-dire un récipient perforé utilisé par les laveurs, avec lequel ils aspergent les vêtements d'eau].
+<b>Le champ des laveurs</b> Champ dans lequel les laveurs étendent le linge à sécher. C'est ainsi que Jonathan a rendu cela. Nos sages ont expliqué qu'Achaz s'est humilié devant Isaïe et a placé sur sa tête un ustensile de laveur, c'est-à-dire qu'il a inversé un récipient sur sa tête [c'est-à-dire un récipient perforé utilisé par les laveurs, avec lequel ils aspergent les vêtements d'eau].
 
 ### passuk 4
 <b>Se sentir en sécurité</b> Heb.  הִשָּׁמֵר. S'asseoir tranquillement comme le vin sur sa lie (שְׁמָרָיו-).
@@ -89,7 +89,7 @@
 <b>Sera entièrement supprimé</b> Sera détruit. Le rasage est la mise à mort, et le rasoir est l'épée.
 <b>La tête</b> Elle symbolise le roi.
 <b>Les jambes</b> [Cela symbolise] ses camps [de Jonathan].
-<b>La barbe</b> [Cela symbolise] les gouverneurs [de Jonathan]. Mais nos rabbins ont dit que cela fait littéralement référence au rasage, et que l'élimination de la barbe se fait en la brûlant au feu. " La barbe " fait référence à la barbe de Sénacherib, comme on le trouve dans la Aggadah du chapitre intitulé, "Chelek.'
+<b>La barbe</b> [Cela symbolise] les gouverneurs [de Jonathan]. Mais nos sages ont dit que cela fait littéralement référence au rasage, et que l'élimination de la barbe se fait en la brûlant au feu. " La barbe " fait référence à la barbe de Sénacherib, comme on le trouve dans la Aggadah du chapitre intitulé, "Chelek.'
 
 ### passuk 21
 <b>Un homme gardera la vie</b> et comme le pays sera vide, car les armées pilleront le bétail, et dans le peu qui restera, je donnerai une bénédiction.

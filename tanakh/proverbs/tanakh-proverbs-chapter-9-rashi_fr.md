@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>La sagesse a construit sa maison</b> Avec la sagesse, le Saint, béni soit-il, a construit le monde.
-<b>Elle a taillé ses sept piliers</b> Les sept jours de la création. Une autre explication : Il s'agit des sept livres de la Torah, puisque (Nombres 10, 35s) "Et il arriva que l'arche voyagea..." est un livre individuel, comme il est dit dans le tractate Shabbath (116a).
+<b>Elle a taillé ses sept piliers</b> Les sept jours de la création. Une autre explication : Il s'agit des sept livres de la Torah, puisque (Nombres 10, 35s) "Et il arriva que l'arche voyagea..." est un livre individuel, comme il est dit dans le traité Shabbath (116a).
 
 ### passuk 2
 <b>Elle a préparé sa viande, elle a mêlé son vin</b> Elle l'a mélangé à l'eau, comme du vin fort, impropre à la consommation sans mélange.

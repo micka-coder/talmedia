@@ -1,6 +1,6 @@
 
 ### Partie 1
-<Ezra a penalise les Levites pour ne pas etre montes avec lui de Babylone en Eretz Israel en leur retirant le droit a la premiere dime. Par consequent, le proprietaire du produit ne peut plus reciter la declaration de la dime, qui comprend la declaration :" J'ai fait tout ce que Tu m'as ordonne" (Deuteronome 26:14), car il n'a pas donne la dime aux Levites.
+<b>Ezra a penalise les Levites pour ne pas etre montes avec lui de Babylone en Eretz Israel en leur retirant le droit a la premiere dime. Par consequent, le proprietaire du produit ne peut plus reciter la declaration de la dime, qui comprend la declaration :" J'ai fait tout ce que Tu m'as ordonne" (Deuteronome 26:14), car il n'a pas donne la dime aux Levites.
 
 ### Partie 2
 La Guemara demande : <b>Et qu'il</b> au moins <b>declarer</b> qu'il a donne <b>les autres dimes</b> dans les regles de l'art. <b>Reish Lakish dit : Toute maison qui ne declare pas la declaration concernant</b> la <b>premiere dime ne peut plus declarer la declaration des autres</b> types de <b>dimes.</b> La Gemara demande : <b>Quelle est la raison</b> de ceci ? <b>Abaye dit : Parce que le verset ecrit</b> <b>commence</b> la declaration <b>avec</b> la dime donnee aux Levites : "Et moi aussi, je l'ai donnée au lévite, A l'étranger, A l'orphelin et A la veuve, conformément A toutes Tes mitzvot que Tu m'as ordonnées" (Deutéromie 26, 13). S'il ne peut pas dire la premiere partie de la declaration, il ne peut pas dire le reste.

@@ -15,7 +15,7 @@
 <b>Ils ont fait de leurs signes des signes</b> Quand ils sont devenus assez puissants pour le détruire, alors ils ont eux-mêmes accepté que les signes de leur divination étaient des signes véritables. Maintenant, quelles étaient leurs divinations ? " Il a secoué les flèches, il a consulté les terafim ".
 
 ### passuk 5
-<b>Qu'il soit connu comme portant en haut ; les hachettes étaient dans le fourré des arbres</b> L'ennemi sait que lorsqu'il frappe les portes des entrées du Sanctuaire, c'est comme s'il portait ses coups en haut, jusque dans le ciel. Comment le savait-il ? Car il voyait que les arbres enchevêtraient, saisissaient et engloutissaient les haches, comme l'ont dit nos rabbins (Sanh. 96b) : Une porte de Jérusalem les a toutes englouties.
+<b>Qu'il soit connu comme portant en haut ; les hachettes étaient dans le fourré des arbres</b> L'ennemi sait que lorsqu'il frappe les portes des entrées du Sanctuaire, c'est comme s'il portait ses coups en haut, jusque dans le ciel. Comment le savait-il ? Car il voyait que les arbres enchevêtraient, saisissaient et engloutissaient les haches, comme l'ont dit nos sages (Sanh. 96b) : Une porte de Jérusalem les a toutes englouties.
 <b>Les haches étaient dans le fourré des arbres</b> Heb.  בסבך-עץ, expression de (Gen. 22:13) : "Pris dans le fourré (בסבך)." L'arbre les enchevêtre et ils s'y enchevêtrent.
 
 ### passuk 6

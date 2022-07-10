@@ -17,7 +17,7 @@
 <b>sont teints en rouge</b> - Ils sont teints en rouge, <b>et les hommes de leur armée sont en cramoisi</b>, vêtus de cramoisi.
 <b>Les chars sont au feu des torches le jour de sa préparation</b> Heb.  פְּלָדֹת. Le jour où il [Nabuchodonosor] se prépare à sortir à l'armée, il polit ses chars de fer, mais je ne sais pas ce que signifie  פְּלָדֹת . Je dis que c'est une matière qui polit bien le fer. Et certains interprètent  פְּלָדֹת  comme l'expression d'une torche ardente (לַפִּיד"), en transposant les lettres.
 <b>Et les cyprès sont enveloppés</b>" <i>Jonathan</i> rend : Et les chefs des camps [babyloniens] sont enveloppés de vêtements colorés.
-<b>Sont enveloppés</b> Heb.  הַרְעָלוּ, enveloppé. Semblable est (Isa. 3:19) "Les colliers et les bracelets et les châles (הָרְעָלוֹת)." Dans la langue de la Mishna nous avons appris "châle (רְעוּלוֹת) des femmes arabes" dans le tractate <i>Shabbath</i> (65a).
+<b>Sont enveloppés</b> Heb.  הַרְעָלוּ, enveloppé. Semblable est (Isa. 3:19) "Les colliers et les bracelets et les châles (הָרְעָלוֹת)." Dans la langue de la Mishna nous avons appris "châle (רְעוּלוֹת) des femmes arabes" dans le traité <i>Shabbath</i> (65a).
 
 ### passuk 5
 <b>S'élanceront follement</b> - Elles se comporteront follement.

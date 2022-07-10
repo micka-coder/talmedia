@@ -36,7 +36,7 @@ En ce qui concerne <b>lui, puisqu'il s'est mis en route, son</b> statut juridiqu
 <b>Et</b> le statut juridique de <b>ces</b> autres habitants de sa ville, <b>est</b> celui de <b>personnes aisées,</b> car ils sont dans leurs maisons et ont de la nourriture. Par conséquent, ils ne peuvent établir leur résidence à la fin de leur limite de Chabbat qu'en y déposant de la nourriture avant le début du Chabbat. <b>Apparemment, tout</b> énoncé à l'égard de celui qui dit : Ma résidence est <b>à tel et tel endroit;</b> à <b>un indigent, oui,</b> cela s'applique à <b>une personne riche, non,</b> cela ne s'applique pas. La Gemara conclut : En effet, <b>apprenez de ceci</b> que c'est le cas.
 
 ### Partie 13
-<b>Rav Ḥiyya bar Ashi enseignait</b> la mishna à <b>Ḥiyya bar Rav devant Rav.</b> Il déclara que cette indulgence s'applique <b>aussi bien à un indigent qu'à une personne riche. Le Rav lui dit : Concluez</b> votre affirmation <b>aussi : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b>
+<b>Rav Ḥiyya bar Ashi enseignait</b> la mishna à <b>Ḥiyya bar Rav devant Rav.</b> Il déclara que cette indulgence s'applique <b>aussi bien à un indigent qu'à une personne riche. Rav lui dit : Concluez</b> votre affirmation <b>aussi : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b>
 
 ### Partie 14
 La Gemara relate : <b>Rabba bar Rav Ḥanan avait l'habitude</b> de <b>venir de</b> sa maison à <b>Artibbena à Pumbedita</b> le Chabbat.

@@ -3,7 +3,7 @@
 <b>Il ne peut pas enlever</b> le pot <b>et</b> ensuite le <b>remettre</b> à sa place.
 
 ### Partie 2
-<Rabbi Yehuda dit : L'ivraie du lin fin est comme du fumier.</b> Par conséquent, on ne peut pas y isoler des aliments même la veille de Chabbat.
+<b>Rabbi Yehuda dit : L'ivraie du lin fin est comme du fumier.</b> Par conséquent, on ne peut pas y isoler des aliments même la veille de Chabbat.
 
 ### Partie 3
 <b>On peut placer une <b>brûle en cuivre</b> sur une <b>brûle en cuivre</b> et</b> on peut placer <b>un <b>pot</b> en terre sur un <b>pot</b> en terre car l'ustensile inférieur ne chauffera pas l'ustensile supérieur. <b>Cependant,</b> on ne peut <b>pas</b> placer <b>un <b>pot</b> en faïence sur un <b>brûleur</b> en cuivre, ou un <b>brûleur</b> en cuivre sur un <b>pot</b> en faïence,</b> car dans ce cas on craint que l'ustensile supérieur soit chauffé par l'ustensile inférieur. <b>Et on peut sceller l'embouchure</b> d'un pot <b>avec de la pâte.</b> Tout ce qui précède ne peut <b>pas</b> être entrepris <b>dans le but de chauffer</b> l'eau, <b>mais seulement pour que</b> sa chaleur <b>soit maintenue</b> et qu'elle ne refroidisse pas.

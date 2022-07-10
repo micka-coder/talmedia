@@ -35,7 +35,7 @@
 
 ### passuk 12
 <b>Et maintenant, Yisrael.</b> Bien que tu aies perpétré tout cela, Il est encore compatissant et affectueux envers toi, de sorte que, malgré toutes tes transgressions devant Lui, Il n'exige rien de toi ". . . autre que de craindre, etc.' 
-<b>Autre que de craindre, etc.</b> Les rabbins extrapolent à partir de là : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout est entre les mains du Ciel, à part la crainte du Ciel. 
+<b>Autre que de craindre, etc.</b> Les sages extrapolent à partir de là : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Tout est entre les mains du Ciel, à part la crainte du Ciel. 
 
 ### passuk 13
 <b>S'en tenir aux commandements d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Et ceci n'est pas non plus pour rien, mais "pour ton bénéfice'  afin que tu sois récompensé. 

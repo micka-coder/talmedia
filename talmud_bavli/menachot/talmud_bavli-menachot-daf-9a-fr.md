@@ -1,6 +1,6 @@
 
 ### Partie 1
-A" Chacune de leurs offrandes de repas, de leurs offrandes de peche et de leurs offrandes de culpabilite, qu'ils me presenteront, sera tres sainte pour vous et pour vos fils. <Vous les mangerez dans le sanctuaire (Nombres 18:9-10). Cela indique que bien que la mitsva soit de consommer les offrandes de l'ordre le plus sacre dans la cour, dans certains cas, les pretres peuvent consommer ces offrandes a l'interieur du Sanctuaire, le lieu le plus saint.
+A" Chacune de leurs offrandes de repas, de leurs offrandes de peche et de leurs offrandes de culpabilite, qu'ils me presenteront, sera tres sainte pour vous et pour vos fils. <b>Vous les mangerez dans le sanctuaire (Nombres 18:9-10). Cela indique que bien que la mitsva soit de consommer les offrandes de l'ordre le plus sacre dans la cour, dans certains cas, les pretres peuvent consommer ces offrandes a l'interieur du Sanctuaire, le lieu le plus saint.
 
 ### Partie 2
 La Guemara explique son objection : <b>Mais</b> selon l'avis de Rabbi Yohanan, <b>pourquoi ai-je</b> besoin de ce <b>verset ? Qu'il dise</b> ici aussi que comme le dit le verset : <b>"Dans la cour de la Tente d'assignation, ils le mangeront"</b> (Levitique 6:9), c'est-a-dire dans la cour du Temple, il est logique que la <i>halakha</i> par rapport a la zone <b>minor</b> <b>ne soit pas plus rigoureuse que</b> la <i>halakha</i> par rapport a <b>la majeure</b>, c'est-a-dire, si quelqu'un peut consommer une offrande de paix dans la cour du Temple, il peut d'autant plus la consommer dans le Sanctuaire.

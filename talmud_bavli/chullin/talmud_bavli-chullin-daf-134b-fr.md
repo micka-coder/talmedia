@@ -69,7 +69,7 @@ La Guemara repond : Ceci n'est <b>pas difficile.</b> Tout le monde est d'accord 
 La Guemara explique que c'est <b>comme il est enseigne</b> dans une <i>baraita</i> : l'abattage d'un animal de telle maniere que le couteau est <b>diffuse</b> vers une zone situee au-dessus du lieu d'abattage sur sa gorge n'est <b>pas valide. Rabbi Hanina ben Antigonus a temoigne a propos</b> de l'abattage d'un animal lorsque le couteau est <b>diffuse qu'il est valide</b> (voir 18b). Le <i>baraita</i> appelle la zone de la machoire jusqu'a l'anneau superieur de la trachee la zone d'abattage, conformement a l'opinion de Rabbi Hanina ben Antigonus, qui soutient que c'est egalement une zone valide pour l'abattage.
 
 ### Partie 24
-Et <b>si vous voulez, dites</b> plutot que <b>cette</b> mishna <b>et cette</b> <i>baraita</i> sont toutes deux conformes a l'opinion des <b>rabbins, et que</b> veut dire la <i>baraita</i> quand elle dit : <b>Avec lui ?</b> Cela signifie que la zone d'abattage reste <b>avec l'animal,</b> c'est-a-dire qu'elle reste avec le proprietaire et n'est pas donnee au pretre.
+Et <b>si vous voulez, dites</b> plutot que <b>cette</b> mishna <b>et cette</b> <i>baraita</i> sont toutes deux conformes a l'opinion des <b>sages, et que</b> veut dire la <i>baraita</i> quand elle dit : <b>Avec lui ?</b> Cela signifie que la zone d'abattage reste <b>avec l'animal,</b> c'est-a-dire qu'elle reste avec le proprietaire et n'est pas donnee au pretre.
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

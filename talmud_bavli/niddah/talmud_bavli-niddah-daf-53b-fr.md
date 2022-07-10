@@ -60,7 +60,7 @@ De meme, dans le cas d'une femme qui eprouve une emission de sang au crepuscule 
 En ce qui concerne la suite de la mishna, qui dit : Le debut du flux de <i>ziva</i> et la fin du flux de <i>ziva</i>, il faut comprendre cela comme suit : <b>Et</b> dans le cas d'une femme qui eprouve une emission de sang au crepuscule <b>du septieme</b> jour des sept jours de l'ecoulement <b>de ses menstruations,</b> elle doit s'inquieter a la fois de la possibilite que ce soit <b>la fin</b> des sept jours de <b>menstruations et</b> de la possibilite que ce soit <b>le debut de l'ecoulement de la <i>ziva</i>.</b>
 
 ### Partie 21
-§ La mishna enseigne que <b>Rabbi Yehoshua a dit</b> aux rabbins : <b>Au lieu de</b> prendre des dispositions pour <b>remedier</b> aux incertitudes <b>des egares,</b> venez remedier aux incertitudes des femmes competentes. La Gemara demande : <b>Est-ce que ce sont</b> des femmes qui ont des saignements au crepuscule...
+§ La mishna enseigne que <b>Rabbi Yehoshua a dit</b> aux sages : <b>Au lieu de</b> prendre des dispositions pour <b>remedier</b> aux incertitudes <b>des egares,</b> venez remedier aux incertitudes des femmes competentes. La Gemara demande : <b>Est-ce que ce sont</b> des femmes qui ont des saignements au crepuscule...
 
 >Credit : Edition William Davidson
 >Licence : CC-BY-NC

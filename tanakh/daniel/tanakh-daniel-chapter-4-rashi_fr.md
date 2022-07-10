@@ -66,7 +66,7 @@
 <b>Alors Daniel, dont le nom est Belteshazzar, était déconcerté</b> Il était silencieux.
 <b>et ses pensées</b> [traduit,] et ses pensées.
 <b>le rassuraient</b> car il avait peur d'interpréter le rêve pour lui.
-<b>Mon seigneur</b> Aram.  מָרִאי. Nos rabbins ont dit (Shevu. 35b) : "Mon Seigneur, que le rêve soit pour Tes ennemis," se réfère à Dieu. Il a levé les yeux vers le Saint, béni soit-Il, et a dit : "Que ce rêve s'accomplisse sur Ton ennemi." Mais si vous dites qu'il l'a dit à Nabuchodonosor, Israël n'était-il pas son ennemi ? Est-il possible qu'il les maudisse ?
+<b>Mon seigneur</b> Aram.  מָרִאי. Nos sages ont dit (Shevu. 35b) : "Mon Seigneur, que le rêve soit pour Tes ennemis," se réfère à Dieu. Il a levé les yeux vers le Saint, béni soit-Il, et a dit : "Que ce rêve s'accomplisse sur Ton ennemi." Mais si vous dites qu'il l'a dit à Nabuchodonosor, Israël n'était-il pas son ennemi ? Est-il possible qu'il les maudisse ?
 <b>Pour tes ennemis</b> Aram.  לְעָרָךְ, comme (Sam. 28:16) : "et est devenu [le soutien de] tes ennemis (עָרֶךָ)."
 
 ### passuk 17
@@ -125,7 +125,7 @@
 <b>Et je bénis le Très-Haut</b> [comme traduit,] et je bénis le Très-Haut.
 
 ### passuk 32
-<b>sont comptés comme rien</b> Aram.  כְּלָה". Nos rabbins ont dit (Yoma 20b) : On appelle la poussière du soleil  לָא  c'est-à-dire la poussière qui apparaît dans le soleil.
+<b>sont comptés comme rien</b> Aram.  כְּלָה". Nos sages ont dit (Yoma 20b) : On appelle la poussière du soleil  לָא  c'est-à-dire la poussière qui apparaît dans le soleil.
 <b>et selon Sa volonté, Il fait avec l'armée du ciel</b> [traduit,] et selon Sa volonté, Il fait avec l'armée du ciel.
 <b>et personne ne peut arrêter Sa main</b> Aram.  וְלָא אִיתַי דִּי יְמַחֵא בִידֵהּ. Et il n'y a personne qui puisse arrêter Sa main.
 
@@ -135,7 +135,7 @@
 <b>et ma splendeur</b> les traits de mon visage.
 <b>Mes chefs et mes dignitaires me cherchaient</b> Mes conseillers et mes princes me cherchaient et espéraient mon retour.
 <b>et j'étais établi</b> [traduit,] et j'étais établi.
-<b>et une grandeur excessive m'a été ajoutée</b> et une grandeur supérieure à celle des [rois] précédents m'a été ajoutée. Nos rabbins ont dit (Shab. 150a) qu'il chevauchait un lion et attachait un serpent à sa tête.
+<b>et une grandeur excessive m'a été ajoutée</b> et une grandeur supérieure à celle des [rois] précédents m'a été ajoutée. Nos sages ont dit (Shab. 150a) qu'il chevauchait un lion et attachait un serpent à sa tête.
 
 ### passuk 34
 <b>et dont les voies sont justes</b> Ses voies sont justes.

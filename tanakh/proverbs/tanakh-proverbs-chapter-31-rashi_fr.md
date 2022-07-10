@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Les paroles de Lemuel le roi</b> Les paroles du roi Salomon, qu'il a dites pour le Saint, béni soit-il, parce qu'il a péché contre le Saint, béni soit-il. <b>Lemuel</b> pour Dieu, comme (Job 40:4) : "à (למו-) ma bouche." Les paroles que le roi a dites pour l'amour du Saint, béni soit-il.
-<Lorsqu'il épousa la fille de Pharaon le jour de la dédicace du Temple, elle apporta pour lui de nombreuses sortes d'instruments de musique, et il resta éveillé toute la nuit et dormit le lendemain jusqu'à quatre heures [après l'aube], comme cela est relaté dans Pesikta (inconnu, mais trouvé dans Mid. Mishle et dans Num. Rabbah 10:8), et les clés du Temple étaient sous sa tête. A propos de cette époque, nous avons appris (Eduyoth 6:1) : " En ce qui concerne l'holocauste quotidien du matin, il était offert à [la fin de] quatre heures. Alors sa mère est entrée et l'a châtié avec toute cette prophétie".
+<b>Lorsqu'il épousa la fille de Pharaon le jour de la dédicace du Temple, elle apporta pour lui de nombreuses sortes d'instruments de musique, et il resta éveillé toute la nuit et dormit le lendemain jusqu'à quatre heures [après l'aube], comme cela est relaté dans Pesikta (inconnu, mais trouvé dans Mid. Mishle et dans Num. Rabbah 10:8), et les clés du Temple étaient sous sa tête. A propos de cette époque, nous avons appris (Eduyoth 6:1) : " En ce qui concerne l'holocauste quotidien du matin, il était offert à [la fin de] quatre heures. Alors sa mère est entrée et l'a châtié avec toute cette prophétie".
 <b>Une prophétie avec laquelle sa mère l'a châtié</b> Une prophétie allégorique avec laquelle sa mère l'a châtié.
 
 ### passuk 2

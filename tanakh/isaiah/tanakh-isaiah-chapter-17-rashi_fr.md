@@ -19,7 +19,7 @@
 
 ### passuk 6
 <b>Et...il y restera</b> Ezéchias et sa troupe, qui sont à l'intérieur de Jérusalem. Ce sont des gens peu nombreux comme le glaneur d'une vigne et comme le coupeur d'un olivier, qui laisse de côté deux ou trois baies.
-<b>Comme le coupeur d'un olivier</b> Heb.  כְּנֹקֶף£, comme celui qui coupe les olives pour les cueillir sur l'arbre. Comp. (infra 10:34) "Et les fourrés de la forêt seront coupés (וְנִקַּף£)." Nos rabbins ont expliqué : "Et...il en restera", comme se référant à l'armée de Sennacherib ; c'est-à-dire qu'il restera dans la multitude de Sennacherib quelques personnes comme le coupeur d'un olivier, comme il est dit dans l'Aggadah de "Chelek' (95b).
+<b>Comme le coupeur d'un olivier</b> Heb.  כְּנֹקֶף£, comme celui qui coupe les olives pour les cueillir sur l'arbre. Comp. (infra 10:34) "Et les fourrés de la forêt seront coupés (וְנִקַּף£)." Nos sages ont expliqué : "Et...il en restera", comme se référant à l'armée de Sennacherib ; c'est-à-dire qu'il restera dans la multitude de Sennacherib quelques personnes comme le coupeur d'un olivier, comme il est dit dans l'Aggadah de "Chelek' (95b).
 <b>A l'extrémité de la branche la plus haute</b> à l'extrémité de la branche.
 <b>Sur ses branches</b> Heb.  בִּסְעִפֶיהָ. Comp. infra (27:10) "Et il terminera ses branches (סְעִיפֶיהָ)." Aussi (supra 10:33), "Les branches sont coupées (מְסָעֵף£)."
 

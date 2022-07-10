@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Un an de règne pour Shaoul.</b> Nos rabbins, de sainte mémoire, ont dit,<sup>1</sup><i class="footnote"> Masech Yoma 22b.</i> [Shaoul était] comme un enfant d'un an, qui n'a pas connu le goût du péché. On peut aussi interpréter : " Shaoul était un an dans son règne ", c'est-à-dire dans la première année où il a été fait roi, bien qu'il ait effectivement régné sur Yisrael deux ans, dans la première année, immédiatement, " Shaoul s'est choisi trois mille [hommes]. "
+<b>Un an de règne pour Shaoul.</b> Nos sages, de sainte mémoire, ont dit,<sup>1</sup><i class="footnote"> Masech Yoma 22b.</i> [Shaoul était] comme un enfant d'un an, qui n'a pas connu le goût du péché. On peut aussi interpréter : " Shaoul était un an dans son règne ", c'est-à-dire dans la première année où il a été fait roi, bien qu'il ait effectivement régné sur Yisrael deux ans, dans la première année, immédiatement, " Shaoul s'est choisi trois mille [hommes]. "
 
 ### passuk 2
 
@@ -55,7 +55,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi le <span>'<sup>12</sup><i class="footnote"> Maseches Bava Kama 16a.</i></span><span> '-</span> Le Targum Yonoson rend : '<span>'<sup>13</sup><i class="footnote"> Peut-être s'agit-il de la hyène ou du renard. </i></span><span>צָּבוֹעַ</span> et c'est ainsi que nos rabbins de sainte mémoire, expliquent, <span> '-</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֲפָעַיָא"</span>une espèce d'animaux féroces et destructeurs.
+<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi le <span>'<sup>12</sup><i class="footnote"> Maseches Bava Kama 16a.</i></span><span> '-</span> Le Targum Yonoson rend : '<span>'<sup>13</sup><i class="footnote"> Peut-être s'agit-il de la hyène ou du renard. </i></span><span>צָּבוֹעַ</span> et c'est ainsi que nos sages de sainte mémoire, expliquent, <span> '-</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֲפָעַיָא"</span>une espèce d'animaux féroces et destructeurs.
 
 ### passuk 19
 <b>On ne trouvait pas de forgeron.</b> C'est-à-dire qu'il n'y en avait pas au début du règne de Shaoul, car les Philistins qui régnaient sur Yisrael, ont éliminé tous les forgerons de Yisrael, de peur qu'ils ne fabriquent des armes pour faire la guerre.

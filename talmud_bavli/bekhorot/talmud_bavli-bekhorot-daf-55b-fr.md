@@ -27,7 +27,7 @@ La Guemara note : <b>Et</b> cette declaration <b>de</b> Shmuels, selon laquelle 
 <strong>MISHNA:</strong> <b>La personne qui achete</b> un animal <b>ou</b> possede un animal <b>qui lui a ete donne en cadeau</b> est <b>exemptee de</b> separer la <b>dime des animaux.</b>
 
 ### Partie 10
-<strong>GEMARA:</strong> La Gemara demande : <b>D'ou vient cette matiere</b> ? <b>Rav Kahana repond que le verset dit :</b> <b>Vous ne tarderez pas a offrir de la plenitude de votre recolte, et de l'ecoulement de vos presses. <Tu me donneras le premier-ne de tes fils. Tu feras de même avec tes bA"ufs et tes brebis : il restera sept jours avec sa mère ; le huitième jour, tu me le donneras" (Exode 22:28-29).
+<strong>GEMARA:</strong> La Gemara demande : <b>D'ou vient cette matiere</b> ? <b>Rav Kahana repond que le verset dit :</b> <b>Vous ne tarderez pas a offrir de la plenitude de votre recolte, et de l'ecoulement de vos presses. <b>Tu me donneras le premier-ne de tes fils. Tu feras de même avec tes bA"ufs et tes brebis : il restera sept jours avec sa mère ; le huitième jour, tu me le donneras" (Exode 22:28-29).
 
 >Credit : William Davidson Edition
 >License : CC-BY-NC

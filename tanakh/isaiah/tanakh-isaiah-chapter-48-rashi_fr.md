@@ -31,7 +31,7 @@
 
 ### passuk 8
 <b>Vous n'avez pas non plus écouté</b> Jonathan rend : Vous n'avez pas non plus écouté les paroles des prophètes, vous n'avez pas accepté l'enseignement de la Torah, vous n'avez pas prêté l'oreille aux paroles des bénédictions et des malédictions de Mon alliance que J'ai établie avec vous à Horeb.
-<b>Parce que je savais que vous agiriez en traître</b> Lorsque je suis descendu pour vous sauver des mains des Égyptiens, il m'a été révélé que vous finiriez par agir en traître. Néanmoins, J'ai tenu le serment des Patriarches. C'est ce qui est dit (Ex. 3:7) : " J'ai vu l'affliction de Mon peuple." [L'expression hébreu pour " J'ai vu " est  רָאֹה רָאִיתִי, une forme de verbe double, qui dénote] deux visions. Je vois qu'ils finiront par traiter avec perfidie, mais, néanmoins, J'ai vu l'affliction de Mon peuple. Le rabbin Tanhuma l'a expliqué de la manière suivante .
+<b>Parce que je savais que vous agiriez en traître</b> Lorsque je suis descendu pour vous sauver des mains des Égyptiens, il m'a été révélé que vous finiriez par agir en traître. Néanmoins, J'ai tenu le serment des Patriarches. C'est ce qui est dit (Ex. 3:7) : " J'ai vu l'affliction de Mon peuple." [L'expression hébreu pour " J'ai vu " est  רָאֹה רָאִיתִי, une forme de verbe double, qui dénote] deux visions. Je vois qu'ils finiront par traiter avec perfidie, mais, néanmoins, J'ai vu l'affliction de Mon peuple. Rabbi Tanhuma l'a expliqué de la manière suivante .
 <b>Et...transgresseur dès le ventre de ta mère</b> Depuis que tu es en Egypte, comme il est relaté dans Ezéchiel (20:5) : "Et je me suis fait connaître au pays d'Égypte, etc. (v. 7) et Je leur ai dit : [Que chacun rejette les abominations de ses yeux, et ne vous contaminez pas avec les idoles d'Égypte].
 
 ### passuk 9

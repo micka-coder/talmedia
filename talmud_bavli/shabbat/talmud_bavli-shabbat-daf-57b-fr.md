@@ -3,25 +3,25 @@
 <b>Il s'agit ici d'une large lanière ornée [<i>katla</i>]</b> suspendue autour du cou, à laquelle est attachée une petite bavette. <b>Une femme s'étrangle</b> avec une <i>katla</i> car la lanière est large et la serrer ne provoque pas de douleur. Elle la serre <b>parce que cela lui fait plaisir de paraître charnue.</b> Il était considéré comme beau d'avoir de la chair qui dépasse de la <i>katla</i>.
 
 ### Partie 2
-Dans la même mishna du tractate <i>Mikvaot</i>, <b>Rabbi Yehuda dit :</b> Les cordes <b>de laine et</b> les mèches <b>de cheveux ne s'interposent pas</b> et n'invalident pas l'immersion <b>parce que l'eau les traverse.</b>
+Dans la même mishna du traité <i>Mikvaot</i>, <b>Rabbi Yehuda dit :</b> Les cordes <b>de laine et</b> les mèches <b>de cheveux ne s'interposent pas</b> et n'invalident pas l'immersion <b>parce que l'eau les traverse.</b>
 
 ### Partie 3
 <b>Rav Yosef a dit</b> que <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda en ce qui concerne les mèches de cheveux.</b> Cependant, la <i>halakha</i> n'est pas conforme à son avis en ce qui concerne les cordes de laine.
 
 ### Partie 4
-<b>Abaye lui dit :</b> En disant que le <b><i>halakha</i></b> est en accord avec Rav Yehuda, <b>par déduction</b> les rabbins <b>désaccord</b> en ce qui concerne les mèches de cheveux. Cependant, aucun avis affirmant que les mèches de cheveux constituent une interposition n'est cité dans la mishna.
+<b>Abaye lui dit :</b> En disant que le <b><i>halakha</i></b> est en accord avec Rav Yehuda, <b>par déduction</b> les sages <b>désaccord</b> en ce qui concerne les mèches de cheveux. Cependant, aucun avis affirmant que les mèches de cheveux constituent une interposition n'est cité dans la mishna.
 
 ### Partie 5
-<b>Et si vous dites</b> que <b>si nous n'avions pas entendu du premier <i>tanna</i> qu'il parle de mèches de cheveux,</b> Rabbi Yehuda <b>n'en aurait pas non plus parlé</b>. Apparemment, le premier <i>tanna</i> interdisait les mèches de cheveux, et Rabbi Yehuda n'était pas d'accord avec lui. Néanmoins, on pourrait l'expliquer autrement. <b>Et, peut-être a-t-il</b> fait précéder ce qu'il <b>disait</b> aux rabbins de la phrase : <b>Juste comme. De même que vous êtes d'accord avec moi</b> que les <b>mèches de cheveux</b> ne s'interposent pas, <b>convenez avec moi</b> que les <b>cordes de laine aussi</b> ne s'interposent pas. Le fait qu'il mentionne les mèches de cheveux n'indique pas une contestation, mais au contraire une tentative d'établir un consensus en ce qui concerne la <i>halakha</i>.
+<b>Et si vous dites</b> que <b>si nous n'avions pas entendu du premier <i>tanna</i> qu'il parle de mèches de cheveux,</b> Rabbi Yehuda <b>n'en aurait pas non plus parlé</b>. Apparemment, le premier <i>tanna</i> interdisait les mèches de cheveux, et Rabbi Yehuda n'était pas d'accord avec lui. Néanmoins, on pourrait l'expliquer autrement. <b>Et, peut-être a-t-il</b> fait précéder ce qu'il <b>disait</b> aux sages de la phrase : <b>Juste comme. De même que vous êtes d'accord avec moi</b> que les <b>mèches de cheveux</b> ne s'interposent pas, <b>convenez avec moi</b> que les <b>cordes de laine aussi</b> ne s'interposent pas. Le fait qu'il mentionne les mèches de cheveux n'indique pas une contestation, mais au contraire une tentative d'établir un consensus en ce qui concerne la <i>halakha</i>.
 
 ### Partie 6
-En effet, <b>il a été affirmé</b> que <b>Rav Naḥman a dit</b> que <b>Shmuel a dit : Les rabbins sont d'accord avec Rabbi Yehuda en ce qui concerne les mèches de cheveux.</b>
+En effet, <b>il a été affirmé</b> que <b>Rav Naḥman a dit</b> que <b>Shmuel a dit : Les sages sont d'accord avec Rabbi Yehuda en ce qui concerne les mèches de cheveux.</b>
 
 ### Partie 7
 <b>Cette</b> opinion <b>a également été enseignée</b> dans une <i>baraita</i> : <b>Les cordes de laine s'interposent. Les mèches de cheveux ne s'interposent pas. Rabbi Yehuda dit : Les deux</b> cordes <b>de laine et</b> les mèches <b>de cheveux ne s'interposent pas.</b>
 
 ### Partie 8
-<b>Rav Naḥman bar Yitzḥak dit :</b> Le langage de <b>la mishna est également précis,</b> comme nous l'avons appris dans une mishna de notre chapitre : <b>Une femme peut sortir avec des mèches de cheveux qu'elles</b> soient <b>de ses propres cheveux</b> ou <b>qu'elles soient</b> <b>de</b> les cheveux d'une <b>autre personne. De qui</b> l'opinion <b>est-elle</b> exprimée dans cette mishna ? <b>Si vous dites</b> que c'est l'opinion de <b>Rabbi Yehuda, même les cordes de laine</b> auraient dû <b>également</b> être autorisées. <b>Au contraire, n'est-ce pas l'avis</b> des <b>rabbins ; et en conclure</b> que <b>en ce qui concerne les mèches de cheveux, ils ne sont pas en désaccord ?</b> La Gemara détermine : En effet, <b>concluez-en.</b>
+<b>Rav Naḥman bar Yitzḥak dit :</b> Le langage de <b>la mishna est également précis,</b> comme nous l'avons appris dans une mishna de notre chapitre : <b>Une femme peut sortir avec des mèches de cheveux qu'elles</b> soient <b>de ses propres cheveux</b> ou <b>qu'elles soient</b> <b>de</b> les cheveux d'une <b>autre personne. De qui</b> l'opinion <b>est-elle</b> exprimée dans cette mishna ? <b>Si vous dites</b> que c'est l'opinion de <b>Rabbi Yehuda, même les cordes de laine</b> auraient dû <b>également</b> être autorisées. <b>Au contraire, n'est-ce pas l'avis</b> des <b>sages ; et en conclure</b> que <b>en ce qui concerne les mèches de cheveux, ils ne sont pas en désaccord ?</b> La Gemara détermine : En effet, <b>concluez-en.</b>
 
 ### Partie 9
 La mishna a dit qu'une femme ne peut <b>pas</b> sortir <b>avec</b> l'ornement appelé <b><i>totefet</i>.</b> La Gemara demande : <b>Qu'est-ce qu'un <i>totefet</i> ? Rav Yosef répond : Un paquet d'épices</b> pour éloigner le mauvais œil.

@@ -34,7 +34,7 @@
 <b>Il sera saint pour vous,</b> traitez-le avec sainteté, pour avoir la priorité dans toutes les questions [de sainteté], et pour le bénir en premier lors d'un repas. 
 
 ### passuk 9
-<b>Qui se profane par fornication,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>quand elle se profane par fornication, comme lorsqu'elle avait [un certain] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> lien marital avec un mari et qu'elle a forniqué, que [ce lien ait été par] fiançailles ou mariage. Nos rabbins n'étaient pas d'accord sur ce point, [mais] tous s'accordent à dire que le verset ne parle pas d'une femme libre. 
+<b>Qui se profane par fornication,</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>quand elle se profane par fornication, comme lorsqu'elle avait [un certain] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> lien marital avec un mari et qu'elle a forniqué, que [ce lien ait été par] fiançailles ou mariage. Nos sages n'étaient pas d'accord sur ce point, [mais] tous s'accordent à dire que le verset ne parle pas d'une femme libre. 
 <b>Elle profane son père.</b> Elle a profané et dégradé son honneur, car on dit de lui : " Maudit soit-il pour avoir fait naître celle-ci ; maudit soit-il pour l'avoir élevée " ! 
 
 ### passuk 10
@@ -46,7 +46,7 @@
 <b>Pour son père et sa mère, il ne deviendra pas impur [rituellement].</b> Cela vient uniquement <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> pour lui permettre [de devenir impur] pour un <i>mitsvoh</i>.
 
 ### passuk 12
-<b>Il ne s'éloignera pas du Sanctuaire.</b> Il ne suit pas le cercueil. De plus, nos rabbins ont appris d'ici qu'un <i>kohen Godol</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>peut offrir [un sacrifice] alors qu'il est un <i>onein</i>, et voici sa signification : Même si son père et sa mère sont morts, il n'est pas tenu de quitter le Sanctuaire, mais accomplit le service du Temple. 
+<b>Il ne s'éloignera pas du Sanctuaire.</b> Il ne suit pas le cercueil. De plus, nos sages ont appris d'ici qu'un <i>kohen Godol</i> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>peut offrir [un sacrifice] alors qu'il est un <i>onein</i>, et voici sa signification : Même si son père et sa mère sont morts, il n'est pas tenu de quitter le Sanctuaire, mais accomplit le service du Temple. 
 <b>Et il ne profanera pas. .le Sanctuaire,</b> Il ne profane pas le service du Temple avec cela, puisque l'Écriture lui a permis [d'y rester] ; ainsi, [nous apprenons,] qu'un <i>kohen</i> ordinaire qui accomplit [le service du Temple] alors qu'il est un <i>onein</i> <i>fait</i> profaner [celui-ci]. 
 
 ### passuk 13

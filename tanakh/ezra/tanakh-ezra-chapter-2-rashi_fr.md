@@ -142,7 +142,7 @@
 <b>Et ils furent disqualifiés</b> Héb.  וַיְגאַלוּ, car ils furent souillés et purgés de la prêtrise afin qu'ils n'accomplissent plus le service avec les prêtres restants, parce que leur registre généalogique ne fut pas trouvé.
 
 ### passuk 63
-<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Néh. 8:9), et nos rabbins ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (הָתֵּר) de boire (שָּׁתָּא) le vin des gentils parce qu'il était le majordome du roi.
+<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Néh. 8:9), et nos sages ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (הָתֵּר) de boire (שָּׁתָּא) le vin des gentils parce qu'il était le majordome du roi.
 <b>Des sacrifices très saints</b> des sacrifices de péché et des sacrifices de culpabilité, comme les autres prêtres.
 <b>Jusqu'à ce qu'un prêtre se lève, etc.</b> comme une personne qui dit à son ami : "Tant que le Messie ne viendra pas, cette affaire ne se réalisera pas".Je ne peux pas l'interpréter comme signifiant : jusqu'à ce qu'un prêtre se lève pour l'Urim et le Tumim dans le Second Temple, car nous trouvons dans Yoma, chapitre 1 (21b) que l'Urim et le Tumim manquaient dans le Second Temple.
 

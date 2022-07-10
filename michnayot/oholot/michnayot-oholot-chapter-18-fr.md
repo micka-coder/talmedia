@@ -24,7 +24,7 @@ Si quelqu'un achète un champ en Syrie près de la terre d'Israël : S'il peut y
 Qu'examine-t-on ? Les drains profonds et les eaux malodorantes. Bet Shammai disent : même les décharges d'ordures et la terre émiettée. Bet Hillel disent : tout endroit où un porc ou une belette peut aller ne nécessite pas d'examen.
 
 ### michna 9
-Les colonnades ne sont pas [soumises aux lois] des lieux d'habitation non juifs. Rabban Shimon ben Gamaliel dit : une ville non juive qui a été détruite n'est pas [soumise aux lois] des lieux d'habitation non juifs. L'est de Césarion et l'ouest de Césarion sont des cimetières. L'est d'Acre était douteux, mais les sages l'ont déclaré propre. Le rabbin et son tribunal ont voté [pour décider] au sujet de Keni et l'ont déclaré propre.
+Les colonnades ne sont pas [soumises aux lois] des lieux d'habitation non juifs. Rabban Shimon ben Gamaliel dit : une ville non juive qui a été détruite n'est pas [soumise aux lois] des lieux d'habitation non juifs. L'est de Césarion et l'ouest de Césarion sont des cimetières. L'est d'Acre était douteux, mais les sages l'ont déclaré propre. Rabbi et son tribunal ont voté [pour décider] au sujet de Keni et l'ont déclaré propre.
 
 ### michna 10
 Dix endroits ne sont pas [soumis aux lois] des lieux d'habitation non-juifs : les tentes arabes, les cabanes de campagne (sukkot), les cabanes de campagne triangulaires, les abris à fruits, les abris d'été, une maison de gardien, les espaces ouverts d'une cour, une maison de bain, une armurerie, et l'endroit où les légions [campent].

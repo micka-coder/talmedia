@@ -40,7 +40,7 @@
 <b>Cailloux.</b> Il s'agit de cailloux aplanis par un cours d'eau, comme dans "Il a broyé avec des cailloux."<sup>16</sup><i class="footnote">Eichah, 3:16.</i>.
 
 ### passuk 12
-<b>Éveillez-vous, réveillez-vous.</b> La déduction est : "réveillez-vous pour louer", comme cela est clairement indiqué. "Intensifiez vos chants." Cependant, les rabbins remarquent,<sup>17</sup><i class="footnote">Pessahim, 66:b.</i> parce qu'elle s'est auto-louée et a dit, "Jusqu'à ce que je me lève, Devorah,"<sup>18</sup><i class="footnote">se favorisant ainsi par rapport aux chefs qui l'ont précédée. (Rachi à Pessahim, ibid.)</i> l'esprit divin s'éloigna d'elle.<sup>19</sup><i class="footnote">Silençant son chant (Rachi à Pessahim, ibid). Il lui fallait maintenant ranimer l'esprit prophétique en disant : "Réveille-toi, réveille-toi".
+<b>Éveillez-vous, réveillez-vous.</b> La déduction est : "réveillez-vous pour louer", comme cela est clairement indiqué. "Intensifiez vos chants." Cependant, les sages remarquent,<sup>17</sup><i class="footnote">Pessahim, 66:b.</i> parce qu'elle s'est auto-louée et a dit, "Jusqu'à ce que je me lève, Devorah,"<sup>18</sup><i class="footnote">se favorisant ainsi par rapport aux chefs qui l'ont précédée. (Rachi à Pessahim, ibid.)</i> l'esprit divin s'éloigna d'elle.<sup>19</sup><i class="footnote">Silençant son chant (Rachi à Pessahim, ibid). Il lui fallait maintenant ranimer l'esprit prophétique en disant : "Réveille-toi, réveille-toi".
 
 ### passuk 13
 <b>Dominée.</b><span>יְרַד"</span> est similaire à <span>יִרְדֶה"</span>, "dominée,"<sup>20</sup><i class="footnote"><span>יָרַד"</span> est traduit par descendue. <span>יְרַד"</span>, cependant, signifie dominé.</i> comme dans "prosterner les nations devant lui."<sup>21</sup><i class="footnote">Pour lui donner la domination sur elles. (Yeshayah, 45:1.)</i> Les Yisroélites survivantes dominaient les puissants parmi les idolâtres.
@@ -108,7 +108,7 @@
 ### passuk 27
 
 ### passuk 28
-<b>Gémissement.</b> Le mot fait référence à l'expression de la parole, comme dans "l'expression des lèvres."<sup>49</sup><i class="footnote">Yeshaya, 57:19.</i> Cependant, les rabbins<sup>50</sup><i class="footnote">Rosh Hashona 33:b. </i> interprètent cela comme faisant référence aux gémissements, comme dans le son <i>"teruah"</i> du shofar, traduit <span>יַ/span>, "gémissement".<sup>51</sup><i class="footnote">Bemidbar, 29:1. </i> A mon avis, la référence est de voir, comme dans "la pupille de son il."<sup>52</sup><i class="footnote">Zechariah, 2:12.</i> C'est l'interprétation de Menachem. 
+<b>Gémissement.</b> Le mot fait référence à l'expression de la parole, comme dans "l'expression des lèvres."<sup>49</sup><i class="footnote">Yeshaya, 57:19.</i> Cependant, les sages<sup>50</sup><i class="footnote">Rosh Hashona 33:b. </i> interprètent cela comme faisant référence aux gémissements, comme dans le son <i>"teruah"</i> du shofar, traduit <span>יַ/span>, "gémissement".<sup>51</sup><i class="footnote">Bemidbar, 29:1. </i> A mon avis, la référence est de voir, comme dans "la pupille de son il."<sup>52</sup><i class="footnote">Zechariah, 2:12.</i> C'est l'interprétation de Menachem. 
 Une fenêtre.
 
 ### passuk 29

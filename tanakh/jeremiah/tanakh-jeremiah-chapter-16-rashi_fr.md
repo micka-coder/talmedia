@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (מַרְזֵיחִין) pour eux, mais nos rabbins ont expliqué  מַרְזֵחַ - comme "a pleureuse.'
+<b>maison de deuil</b> fête. Dans Sifrei, dans la section traitant de Beth-Péor (Balak), j'ai vu. Ils sont revenus pour faire des festins (מַרְזֵיחִין) pour eux, mais nos sages ont expliqué  מַרְזֵחַ - comme "a pleureuse.'
 <b>Vous vous lamentez</b> vous vous lamenterez.
 <b>Car j'ai recueilli ma paix, etc.</b> Lorsque leur père Abraham a pratiqué la charité et la justice, j'ai donné à ses enfants l'amour et la miséricorde, comme dans Deut. 7:12 : "Et le Seigneur ton Dieu gardera pour toi l'alliance et l'amour, etc." Aussi (Deut. 13:18), "Et il te donnera la miséricorde." Ils ont transformé "la justice en absinthe, et jeté la droiture à terre" (Amos 5:7). Moi aussi, je suis revenu et j'ai recueilli auprès de moi ma bonté et mes miséricordes.
 <b>J'ai recueilli</b> (ote en ancien français.), enlevé. Comp. (Gen. 30:23) "Dieu a recueilli (אסף£) ma disgrâce."
@@ -37,7 +37,7 @@
 
 ### passuk 14
 <b>C'est pourquoi</b> Expression d'un serment. Bien que tu m'aies trahi, j'ai fait le serment que je te rachèterai.
-<b>Et il ne sera plus dit</b> Nos rabbins ont expliqué : Non pas que la sortie d'Égypte sera déracinée de sa place, mais la rédemption finale sera la plus importante et la sortie d'Égypte lui sera secondaire.
+<b>Et il ne sera plus dit</b> Nos sages ont expliqué : Non pas que la sortie d'Égypte sera déracinée de sa place, mais la rédemption finale sera la plus importante et la sortie d'Égypte lui sera secondaire.
 
 ### passuk 15
 

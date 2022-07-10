@@ -18,7 +18,7 @@
 ### passuk 7
 <b>Au bout de quarante ans.</b> [Après] que Yisrael ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avsholom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
-<b>Et accomplir les voeux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui discute de la qualité des agneaux de Chevron.</i>
+<b>Et accomplir les voeux [d'apporter des sacrifices]</b> Nos sages ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui discute de la qualité des agneaux de Chevron.</i>
 
 ### passuk 8
 
@@ -65,7 +65,7 @@
 ### passuk 24
 <b>Ils se posèrent.</b> Comme "Ils s'arrêtèrent"<sup>9</sup><i class="footnote">Précédemment en 6:17.</i> [Yonasan traduit :] "Ils arrêtèrent l'arche." Ils l'ont mise à l'écart et les gens sont passés devant car David voulait qu'on l'apporte avec lui.
 <b>Et Evyosor s'éloigna [sur le côté]</b> jusqu'à ce que [tout le monde] ait fini etc. Il s'agit d'un verset abrégé ils déposèrent l'Arche de Dieu jusqu'à ce que tout le peuple ait fini de voyager.<sup>10</sup><i class="footnote">Les mots <span>ויעל אביתר</span> doivent être placés à la fin du verset pour être interprétés.</i>
-<b>Evyosor s'en alla [sur le côté].</b> Ce jour-là, il fut retiré du service Kohanite.</sup>11</sup><i class="footnote">comme le kohen Gadol.</i> parce qu'il s'enquit de l'Urim et du Tumim mais ne reçut pas de réponse,</sup>12</sup><i class="footnote">ce qui montrait qu'il n'était plus qualifié pour cette haute fonction. L'Urim et le Tumim éclairaient certaines lettres sur le plastron du kohen Gadol comme un moyen pour Dieu de communiquer avec Son peuple. Voir Shemos 28:30.</i> Tzodok l'a alors remplacé. C'est ce que nous avons appris dans le Seder Olam dans le tractate Yuma.<sup>13</sup><i class="footnote"></i>.
+<b>Evyosor s'en alla [sur le côté].</b> Ce jour-là, il fut retiré du service Kohanite.</sup>11</sup><i class="footnote">comme le kohen Gadol.</i> parce qu'il s'enquit de l'Urim et du Tumim mais ne reçut pas de réponse,</sup>12</sup><i class="footnote">ce qui montrait qu'il n'était plus qualifié pour cette haute fonction. L'Urim et le Tumim éclairaient certaines lettres sur le plastron du kohen Gadol comme un moyen pour Dieu de communiquer avec Son peuple. Voir Shemos 28:30.</i> Tzodok l'a alors remplacé. C'est ce que nous avons appris dans le Seder Olam dans le traité Yuma.<sup>13</sup><i class="footnote"></i>.
 
 ### passuk 25
 
