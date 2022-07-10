@@ -12,7 +12,7 @@
 <b>Et attachés ensemble.</b>  מְצרָרִים  est une autre expression de  מְבוּקָעִים  (fendu), qui est une expression araméenne, "La fente du blé". <sup>6</sup><i class="footnote">Voir Pessahim 40A. Rabbi Yoseph a dit : Un homme ne doit pas ébouillanter deux grains de blé ensemble, de peur que l'un ne se coince dans la <i>fente</i> de l'autre, de sorte que l'eau ne le recouvre pas de tous côtés et qu'il provoque une fermentation.</i> "Ce qui fait éclater la peau du vin"."<sup>7</sup><i class="footnote">Voir Avodah Zara 30A. Il existe un type de vin qui est considéré comme un "vin fort" et qui est connu pour faire éclater la peau du vin. Cependant, selon la plupart des commentaires, le mot  מְצרָרִים  est traduit par attaché.</i>
 
 ### passuk 5
-<b>Moldy.</b> "Arson" en vieux français est une expression de  מוֹקֵד", feu ou chaleur.<sup>8</sup><i class="footnote">Rashi explique que  נִקֻדִים  indique que le pain n'était pas simplement sec mais brûlé comme un toast qui le conserverait sur une longue période. Il rejetterait donc la traduction de  נְקֻדִים  par moisi.</i> Le Targum Yonasan traduit également  נִקֻדִים  par  כִּסְנִין.
+<b>Moldy.</b> "Arson" en vieux français est une expression de  מוֹקֵד", feu ou chaleur.<sup>8</sup><i class="footnote">Rashi explique que  נִקֻדִים  indique que le pain n'était pas simplement sec mais brûlé comme un toast qui le conserverait sur une longue période. Il rejetterait donc la traduction de  נְקֻדִים  par moisi.</i> Le Targum Yonathan traduit également  נִקֻדִים  par  כִּסְנִין.
 
 ### passuk 6
 

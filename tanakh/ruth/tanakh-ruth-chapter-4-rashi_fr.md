@@ -13,7 +13,7 @@
 <b>Afin que je sache [maintenant], car à côté de toi il n'y a personne.</b> [Qui est aussi] proche [que toi] de la rédemption.
 
 ### passuk 5
-<b>Et de Rus la Mo'avitesse.</b> Il faut acheter [l'héritage], et elle ne veut pas [vendre] à moins que tu ne l'épouses. 
+<b>Et de Ruth la Mo'avitesse.</b> Il faut acheter [l'héritage], et elle ne veut pas [vendre] à moins que tu ne l'épouses. 
 
 ### passuk 6
 <b>Parce que je voudrais entacher mon propre héritage.</b>  נַחֲלָתִי  =] ma progéniture, comme dans, "l'héritage d'Hachem, ce sont les enfants;"<sup>4</sup><i class="footnote">Tehillim 127:3. </i> de stigmatiser ma descendance, car il est dit : "Ni un Ammonite ni un Mo'avite ne peuvent entrer [dans la communauté d'Hachem],"<sup>5</sup><i class="footnote">Devarim 23:4. </i> mais il a commis une erreur [en ne l'interprétant pas comme] "un Ammonite mais pas une Ammonitrice".<<sup>6</sup><i class="footnote">Il ne savait pas que la Torah interdisait uniquement aux Mo'avites mâles d'entrer dans les rangs des Bnei Yisrael, mais que les femmes étaient autorisées. Alternativement, il savait que les femmes étaient autorisées à entrer dans les rangs des Bnei Yisrael, mais il craignait que dans les générations futures, la décision soit contestée, comme elle l'a été à l'époque de David'eg par Do'eg. </i> 
@@ -49,7 +49,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Voici les générations de Peretz.</b> Comme [l'Écriture] a retracé la lignée de David' jusqu'au nom de Rus la Mo'avitess, elle est revenue et a retracé sa lignée jusqu'au nom de Yehudah.</sup>10</sup><i class="footnote">Le symbole de la royauté. </i> 
+<b>Voici les générations de Peretz.</b> Comme [l'Écriture] a retracé la lignée de David' jusqu'au nom de Ruth la Moavite, elle est revenue et a retracé sa lignée jusqu'au nom de Yehudah.</sup>10</sup><i class="footnote">Le symbole de la royauté. </i> 
 
 >Crédit : sefaris
 >License : CC-BY

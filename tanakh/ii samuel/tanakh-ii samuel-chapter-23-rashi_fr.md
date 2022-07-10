@@ -69,7 +69,7 @@
 
 ### passuk 20
 <b>Les deux géants moabites.</b> [Le Yonoson traduit :] "Les deux géants moabites." Et nos sages ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
-<b>Géants moabites.</b> Parce que Shlomo qui l'a construit était issu de Rus le Moabite.</sup>22</sup><i class="footnote">Rashi explique le lien que <span>אֲרִיאֵל</span>, référence au Beis Hamikdash, a avec Moav.</i>
+<b>Géants moabites.</b> Parce que Shlomo qui l'a construit était issu de Ruth la Moabite.</sup>22</sup><i class="footnote">Rashi explique le lien que <span>אֲרִיאֵל</span>, référence au Beis Hamikdash, a avec Moav.</i>
 
 ### passuk 21
 

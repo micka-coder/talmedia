@@ -47,7 +47,7 @@
 
 ### passuk 23
 <b>Dans la cinquième côte.</b> Comme [si l'on disait] la cinquième côte,</sup>3</sup><i class="footnote">en comptant à partir du bas.</i> l'endroit où se trouvent la bile et le foie. [Mais Yonasan a traduit [ceci pour signifier] "sur le côté de sa cuisse".
-<b>Et mourut à sa place.</b> Et mourut à sa place.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>Et mourut à sa place.</b> Et mourut à sa place.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
 
 ### passuk 24
 

@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Est-ce qu'une de mes actions peut se comparer à la tienne ?</b> Quelle importance avaient mes actions au début par rapport aux tiennes à la fin ?
-<b>Ne surpasse pas les glanes d'Ephraïm qui n'ont pas mûri.</b> Les glanes<sup>1</sup><i class="footnote"><span>לְל</span> sont des raisins qui n'ont pas mûri et qui ne peuvent pas être récoltés, mais qui doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale contre les Midyonites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>לְל</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Hachem a livré les rois entre vos mains.
+<b>Ne surpasse pas les glanes d'Ephraïm qui n'ont pas mûri.</b> Les glanes<sup>1</sup><i class="footnote"><span>לְל</span> sont des raisins qui n'ont pas mûri et qui ne peuvent pas être récoltés, mais qui doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale contre les Midyanites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>לְל</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Hachem a livré les rois entre vos mains.
 
 ### passuk 3
 <b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que vos réalisations ?
@@ -15,7 +15,7 @@
 <b>Aux gens de Souccos.</b> Ils étaient Yisroélites.
 
 ### passuk 6
-<b>Les paumes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyon.
+<b>Les paumes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyan.
 
 ### passuk 7
 <b>Epines.</b> "Ronzes" en vieux français.
@@ -41,7 +41,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
 
 ### passuk 17
 
@@ -65,7 +65,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Les chaînes et les couronnes en forme de croissant.</b> Les colliers et les couronnes.</sup></sup><i class="footnote">C'est le rendu du Targum Yonasan.</i>
+<b>Les chaînes et les couronnes en forme de croissant.</b> Les colliers et les couronnes.</sup></sup><i class="footnote">C'est le rendu du Targum Yonathan.</i>
 
 ### passuk 27
 <b>Gidon le façonna en un tablier</b> comme un mémorial au grand salut, démontrant combien leurs forces étaient énormes, comme les anneaux de nez de leurs hommes éminents contenaient tant d'or.

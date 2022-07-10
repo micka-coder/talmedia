@@ -8,7 +8,7 @@
 
 ### passuk 4
 <b>Juniper.</b> <i>Genevrier</i>, en ancien français
-<b>Et il dit : "Cela suffit.</b> [Le Targum Yonoson rendit :] "Ma longue vie suffit,<sup>1</sup><i class="footnote">Selon l'opinion qu'Eliyahu est Pinchos, le petit-fils d'Aharon, il avait plus de 500 ans à cette époque.</i> jusqu'à quand serai-je confondu de la sorte ?".
+<b>Et il dit : "Cela suffit.</b> [Le Targum Yonoson rendit :] "Ma longue vie suffit,<sup>1</sup><i class="footnote">Selon l'opinion qu'Eliyahu est Pinhass, le petit-fils d'Aharon, il avait plus de 500 ans à cette époque.</i> jusqu'à quand serai-je confondu de la sorte ?".
 
 ### passuk 5
 

@@ -17,7 +17,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>מִשְׂרְפוֹת מַיִם<sup>2</sup><i class="footnote">Du mot  שְׂרֵפָה", feu ou brûlure. Ainsi le Targum explique : la combustion de l'eau,  מַיִם.</i></b> Le Targum Yonasan traduit, fossés de mer. Ils ont creusé des fossés et l'eau de la mer s'y déversait, et l'eau était brûlée [s'évaporait] à cause de la chaleur du soleil et se transformait en sel.
+<b>מִשְׂרְפוֹת מַיִם<sup>2</sup><i class="footnote">Du mot  שְׂרֵפָה", feu ou brûlure. Ainsi le Targum explique : la combustion de l'eau,  מַיִם.</i></b> Le Targum Yonathan traduit, fossés de mer. Ils ont creusé des fossés et l'eau de la mer s'y déversait, et l'eau était brûlée [s'évaporait] à cause de la chaleur du soleil et se transformait en sel.
 
 ### passuk 9
 

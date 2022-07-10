@@ -3,7 +3,7 @@
 <b>A agi méchamment.</b> Jusqu'à cette période, l'Écriture précise : " Ils ont recommencé [à agir méchamment] " puisque leurs iniquités se sont accumulées. Cependant, grâce à cet hymne<sup>1</sup><i class="footnote">chanté par Devorah et Barak [ch.5].</i>, ils ont obtenu le pardon de tout ce qu'ils avaient perpétré.<sup>2</sup><i class="footnote">Quiconque est sauvé miraculeusement et chante ensuite un hymne de louange se voit pardonner tous ses péchés, comme s'il avait été nouvellement créé. (Yalkut, 60)</i> Mais maintenant, ils ont recommencé à pécher. Cette interprétation est dans Agadas Tehilim.
 
 ### passuk 2
-<b>Retraites.</b> Lieux cachés.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i> En vieux français, "voutes". Parce qu'un léger brin d'illumination y est positionné à un endroit peu visible, on les appelle <span>מִנְהׇר</span>, lit. "lueurs", "lucerno" en ancien français.
+<b>Retraites.</b> Lieux cachés.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i> En vieux français, "voutes". Parce qu'un léger brin d'illumination y est positionné à un endroit peu visible, on les appelle <span>מִנְהׇר</span>, lit. "lueurs", "lucerno" en ancien français.
 <b>Caves.</b> "Grotte" en ancien français.
 <b>Palissades.</b> "Palliser" en vieux français, "pales", car elle est construite dans la forêt en abattant des arbres sur son périmètre.<sup>4</sup><i class="footnote">Les arbres servent de pales ou de piquets formant la palissade.</i>
 
@@ -52,7 +52,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Matsos contenant de la farine.</b> On apprend que c'était Pessah, le jour où l'on agitait l'offrande du Omer.</sup>12</sup><i class="footnote">Le deuxième jour de Pessah. (Vayikra, 23:11)</i> C'est pourquoi il est dit,<sup>13</sup><i class="footnote">Dessous, 7:13.</i> "Voici qu'un pain d'orge grillé caressait,<sup>14</sup><i class="footnote">" le camp de Midyon. Il atteignit la tente et la terrassa.C'était au mérite de l'offrande du Omer (Rachi, là, Yalkout, 62), qui était faite d'orge.</i> etc."
+<b>Matsos contenant de la farine.</b> On apprend que c'était Pessah, le jour où l'on agitait l'offrande du Omer.</sup>12</sup><i class="footnote">Le deuxième jour de Pessah. (Vayikra, 23:11)</i> C'est pourquoi il est dit,<sup>13</sup><i class="footnote">Dessous, 7:13.</i> "Voici qu'un pain d'orge grillé caressait,<sup>14</sup><i class="footnote">" le camp de Midyan. Il atteignit la tente et la terrassa.C'était au mérite de l'offrande du Omer (Rachi, là, Yalkout, 62), qui était faite d'orge.</i> etc."
 <b>Soupe.</b> Bouillon.
 
 ### passuk 20
@@ -71,7 +71,7 @@
 
 ### passuk 25
 <b>Taureau [lit. boeuf].</b> Le jeune taureau, car même un boeuf d'un jour est appelé "buf".</sup>16</sup><i class="footnote">La déduction de "buf" est un taureau qui se qualifie comme un boeuf. Puisque même un taureau âgé d'un jour se qualifie, la référence est à un jeune taureau.</i>
-<b>Un second taureau.</b><span>וְת</span>, "Un second taureau".<sup>17</sup><i class="footnote">C'est la restitution du Targum Yonasan's.</i>
+<b>Un second taureau.</b><span>וְת</span>, "Un second taureau".<sup>17</sup><i class="footnote">C'est la restitution du Targum Yonathan's.</i>
 <b>Sept ans.</b> Qui avait été engraissé pendant sept ans pour être apporté en sacrifice idolâtre. Huit interdictions étaient suspendues<sup>18</sup><i class="footnote"> 1. Le second taureau, qui avait été désigné comme sacrifice idolâtre, était désormais apporté en offrande. 2. Les ustensiles utilisés précédemment pour les sacrifices <i>Asheirah</i> étaient maintenant utilisés. 3. Le bois de l'arbre <i>Asheirah</i> a été utilisé comme combustible. 4. L'offrande était apportée la nuit. 5. Elle était apportée sur un autel personnel à l'extérieur du Mishkon à Silo. 6. Le second taureau avait été effectivement adoré comme une divinité. 7. 7. Gidon n'était pas un kohen. 8. Il n'a pas utilisé les ustensiles sacrés requis.</i> cette nuit-là ; 'désigné', <i>'asheirah',</i> 'nuit', 'autel', etc., tels qu'énumérés dans Temurah.<sup>19</sup><i class="footnote">29:a.</i>.
 
 ### passuk 26

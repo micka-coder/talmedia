@@ -40,7 +40,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Loin.</b> [Le Targum Yonasan traduit :] "dans un endroit éloigné".
+<b>Loin.</b> [Le Targum Yonathan traduit :] "dans un endroit éloigné".
 
 ### passuk 18
 <b>Par lui.</b> Près de lui, Il se tenait en place et ils passaient à côté.

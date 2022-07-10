@@ -31,7 +31,7 @@
 <b>Et parlèrent à Novol conformément à toutes ces paroles, au nom de David, puis ils se reposèrent.</b> Ils étaient fatigués par le voyage, mais ils s'empressèrent d'exécuter l'ordre de David, et ne se reposèrent pas avant de lui avoir parlé, puis ils se reposèrent. Le Targum Yonson rend cependant : et ils cessèrent, c'est-à-dire qu'ils cessèrent de parler davantage, jusqu'à ce qu'ils entendent sa réponse.
 
 ### passuk 10
-<b>Qui est David.</b> De quelle importance est-il pour que je lui donne la mienne ? Ne descend-il pas de Rus le Moavite ?<sup>10</sup><i class="footnote">Et à ce titre, Novol mit en doute le droit de David au trône. Voir le Talmud Yerushalmi Sanhedrin 2:3.</i>
+<b>Qui est David.</b> De quelle importance est-il pour que je lui donne la mienne ? Ne descend-il pas de Ruth la Moavite ?<sup>10</sup><i class="footnote">Et à ce titre, Novol mit en doute le droit de David au trône. Voir le Talmud Yerushalmi Sanhedrin 2:3.</i>
 
 ### passuk 11
 

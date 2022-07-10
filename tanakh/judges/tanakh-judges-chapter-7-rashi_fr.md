@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>De la crête de la vallée du signal.</b> Surplombant la plaine<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan'. La crête surplombait la plaine, et convenait donc comme poste d'observation.</i>. <span>הַ"</span> connote l'instruction, l'observation, comme dans "instruit en faisant des gestes."<sup>2</sup><i class="footnote">Mishlei, 6:13.</i> De là, ils observaient, puis signalaient les instructions à la vallée.
+<b>De la crête de la vallée du signal.</b> Surplombant la plaine<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonathan'. La crête surplombait la plaine, et convenait donc comme poste d'observation.</i>. <span>הַ"</span> connote l'instruction, l'observation, comme dans "instruit en faisant des gestes."<sup>2</sup><i class="footnote">Mishlei, 6:13.</i> De là, ils observaient, puis signalaient les instructions à la vallée.
 
 ### passuk 2
 <b>Glorifier.</b> "Vanter" en ancien français.
@@ -38,7 +38,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote"><span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote"><span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
 <b>Et son interprétation [lit. "sa vente"].</b> Les biens échangés contre lui,</sup>9</sup><i class="footnote">Selon l'interprétation littérale, "vente".</i> ou son interprétation.
 
 ### passuk 16
@@ -49,7 +49,7 @@
 
 ### passuk 18
 <b>Je, et tous ceux qui m'accompagnent.</b> Une des divisions et cent hommes l'accompagnent.
-<b>Pour Hachem, et pour Gidon.</b> L'épée qui exécute est d'Hachem, de sorte que la victoire est celle de Gidon.</sup>12</sup><i class="footnote">C'est l'interprétation du Targum Yonasan', à la suite du v. 20, "L'épée d'Hachem, et pour Gidon!</i>
+<b>Pour Hachem, et pour Gidon.</b> L'épée qui exécute est d'Hachem, de sorte que la victoire est celle de Gidon.</sup>12</sup><i class="footnote">C'est l'interprétation du Targum Yonathan', à la suite du v. 20, "L'épée d'Hachem, et pour Gidon!</i>
 
 ### passuk 19
 <b>On avait posté.</b> Les soldats avaient déjà posté les sentinelles qui étaient affectées à la garde intermédiaire. Les membres de l'armée répartissent généralement les tâches de sentinelle de sorte que certains servent pendant le premier tiers de la nuit, d'autres pendant le deuxième tiers et d'autres encore pendant le dernier tiers.<sup>13</sup><i class="footnote">Voir Yalkut, 63.</i>

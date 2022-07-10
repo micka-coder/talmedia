@@ -111,7 +111,7 @@ Une autre explication : <b>Aux sages. C'est Moshe. <b>Than ten rulers.</b> [Les]
 <b>Et de savoir que la méchanceté est une folie.</b> Prévoir la fin ultime de l'hérésie, et "la folie est une folie", [c'est-à-dire] la confusion et la folie qui en découlent. 
 
 ### passuk 26
-<b>Et je trouve plus amer que la mort.</b> Qui est la plus sévère des dix choses dures qui ont été créées dans le monde, comme il est [indiqué] dans les [Maseches] Bava Basra, dans [le chapitre intitulé] "Les partenaires".</sup><i class="footnote">10a. </i> "Et je trouve plus amer" et plus sévère que lui, "la femme", cela fait référence à l'hérésie. 
+<b>Et je trouve plus amer que la mort.</b> Qui est la plus sévère des dix choses dures qui ont été créées dans le monde, comme il est [indiqué] dans les [Maseches] Bava Batra, dans [le chapitre intitulé] "Les partenaires".</sup><i class="footnote">10a. </i> "Et je trouve plus amer" et plus sévère que lui, "la femme", cela fait référence à l'hérésie. 
 <b>Dont le cœur est rempli de [pièges et] de filets.</b> Expression d'un filet, comme dans, "il les attrape dans son filet et les rassemble dans son chalut."<sup>61</sup><i class="footnote">Chavakuk 1:15. </i> 
 <b>Ses mains comme des chaînes.</b> Dès qu'elle s'empare d'un homme, il est comme lié par d'épaisses cordes. 
 <b>Chaînes.</b>  אֲסוּרִים  est] un substantif signifiant "liens", comme dans, "et ses liens  אֱסוּרָיו - ont fondu,"<sup>62</sup><i class="footnote">Shoftim 15:14. </i> signifiant ses liens, et c'est ainsi que Menachem l'explique. 

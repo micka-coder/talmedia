@@ -19,7 +19,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Vous apporterez un sacrifice par le feu, etc.</b> Ce sont les sacrifices supplémentaires qui sont mentionnés dans Parshas Pinchos. Et pourquoi sont-ils mentionnés ici ? Pour dire que les [se] sacrifices additionnels ne s'entravent pas les uns les autres, [puisqu'il est dit] : 
+<b>Vous apporterez un sacrifice par le feu, etc.</b> Ce sont les sacrifices supplémentaires qui sont mentionnés dans Parshas Pinhass. Et pourquoi sont-ils mentionnés ici ? Pour dire que les [se] sacrifices additionnels ne s'entravent pas les uns les autres, [puisqu'il est dit] : 
 <b>Vous apporterez un sacrifice par le feu à Hachem,</b> [l'apporter] en toute circonstance s'il n'y a pas de boeufs [disponibles], apportez des béliers, et s'il n'y a ni boeufs ni béliers, apportez des agneaux. 
 <b>[A chacun des] sept jours.</b> Partout où  שִׁבְעַת, ("seven") est dit, il s'agit d'un substantif  une semaine de jours, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i><i>seyne</i> en ancien français, de même que toutes les expressions de "huit de, "six de."cinq de, "trois de.". 
 <b>Tu ne feras aucun travail de labeur.</b> Même ce travail qui est considéré comme un travail nécessaire, qui entraîne une perte monétaire par sa négligence, comme une opportunité qui est perdue. Ainsi ai-je compris du Toras Kohanim, qui enseigne : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Peut-être que même [pendant] les jours intermédiaires de la fête, le travail de labeur devrait être interdit ? Etc. 

@@ -61,7 +61,7 @@
 <b>Une source enfermée.</b> Cela peut s'expliquer comme un terme faisant référence à une fontaine, comme dans, "fontaines supérieures  גֻּלּוֹת,"<sup>61</sup><i class="footnote">Yehoshua 15:19. </i> et il peut également être expliqué comme un terme se référant à une porte, et c'est un terme araméen dans le Talmud, "verrouiller les portes  גַלֵּי."<sup>62</sup><i class="footnote">Maseches Berahot 28a. </i> 
 
 ### passuk 13
-<b>Vos champs arides.</b> La terre sèche est appelée  בֵּית הַשְּׁלָחִין  [=terre assoiffée], et il est nécessaire de l'irriguer constamment ; un champ arrosé par la pluie [=בֵּית הַבַּעַל  lui est supérieur. <sup>63</sup><i class="footnote">La Mishna dans Bava Basra décrit  בית הבעל  comme un champ dans la vallée qui est humide et ne nécessite pas d'irrigation. (Sifsei Chachomim) </i>Il fait ici l'éloge du champ aride, "Tes champs arides" regorgent de tout bien comme un verger de grenadiers. Ceci est dit des plus petits de Yisrael, qui sont succulents de bonnes actions comme un verger de grenadiers. 
+<b>Vos champs arides.</b> La terre sèche est appelée  בֵּית הַשְּׁלָחִין  [=terre assoiffée], et il est nécessaire de l'irriguer constamment ; un champ arrosé par la pluie [=בֵּית הַבַּעַל  lui est supérieur. <sup>63</sup><i class="footnote">La Mishna dans Bava Batra décrit  בית הבעל  comme un champ dans la vallée qui est humide et ne nécessite pas d'irrigation. (Sifsei Chachomim) </i>Il fait ici l'éloge du champ aride, "Tes champs arides" regorgent de tout bien comme un verger de grenadiers. Ceci est dit des plus petits de Yisrael, qui sont succulents de bonnes actions comme un verger de grenadiers. 
 <b>Henné avec du nard.</b> Ce sont des types d'épices.
 
 ### passuk 14

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Contre les Madianites.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas contre les Moavites, car ces derniers sont entrés en matière par crainte. Ils avaient peur d'eux, [craignant] qu'ils ne les pillent, car il est seulement dit : " ne les provoquez pas par la guerre ".Les Madianites, eux, étaient <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>enragés pour un différend qui n'était pas le leur. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour l'amour de deux colombes vertueuses que je dois extraire d'eux  Rus le Moavite, et Na'amah l'Ammonite. 
+<b>Contre les Madianites.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Mais pas contre les Moavites, car ces derniers sont entrés en matière par crainte. Ils avaient peur d'eux, [craignant] qu'ils ne les pillent, car il est seulement dit : " ne les provoquez pas par la guerre ".Les Madianites, eux, étaient <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>enragés pour un différend qui n'était pas le leur. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>pour l'amour de deux colombes vertueuses que je dois extraire d'eux  Ruth le Moavite, et Na'amah l'Ammonite. 
  
 
 ### passuk 3

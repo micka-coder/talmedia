@@ -63,7 +63,7 @@ Pinchas le fils d'Elazar, le fils d'Aharon le kohen. <i data-commentator="Siftei
 <b>Antagoniser.</b> Comme  זָכוֹר, "souviens-toi",  שָׁמוֹר, "garde", ce qui signifie une action continue. Il vous incombe d'agir avec hostilité envers eux. 
 
 ### passuk 18
-<b>Parce qu'ils t'ont contrarié, etc, dans l'affaire du Pe'or.</b> Puisqu'ils ont abandonné leurs filles à la promiscuité <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin de te faire t'égarer après le Pe'or. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, Il n'a pas ordonné la destruction de Moav, A cause de Rus [Ruth], qui était destiné à émaner d'eux, comme nous l'affirmons dans Bava Kama. 
+<b>Parce qu'ils t'ont contrarié, etc, dans l'affaire du Pe'or.</b> Puisqu'ils ont abandonné leurs filles à la promiscuité <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>afin de te faire t'égarer après le Pe'or. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, Il n'a pas ordonné la destruction de Moav, A cause de Ruth [Ruth], qui était destiné à émaner d'eux, comme nous l'affirmons dans Bava Kama. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

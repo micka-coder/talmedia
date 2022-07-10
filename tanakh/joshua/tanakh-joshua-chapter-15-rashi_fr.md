@@ -39,7 +39,7 @@
 <b>Au côté sud du Yevusi.</b> Yerushalayim est en dehors de la ligne de démarcation, et n'est pas dans la limite de Yehudah, mais dans la limite de Binyomin qui est au nord de Yehudah.
 
 ### passuk 9
-<b>Et il engloba.</b> Il s'agit d'une expression d'encerclement, similaire à, "et avec un compas, il en fait le tour."<sup>13</sup><i class="footnote">Yeshayahu 44:13.</i> Le Targum Yonasan traduit tous, et il encercla.
+<b>Et il engloba.</b> Il s'agit d'une expression d'encerclement, similaire à, "et avec un compas, il en fait le tour."<sup>13</sup><i class="footnote">Yeshayahu 44:13.</i> Le Targum Yonathan traduit tous, et il encercla.
 <b>Et s'étendit jusqu'aux villes du mont Efron.</b> La ligne de démarcation s'étendait vers le nord, et la frontière s'élargit pour englober les villes du mont Efron.
 <b>Et la frontière tournait autour de Baaloh.</b> Ce n'est pas en direction de l'ouest, mais sa projection était vers le nord.
 

@@ -70,7 +70,7 @@
 
 ### passuk 26
 <b>Prendre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Comme "se souvenir", "garder", "aller". 
-<b>Du côté de l'arche de l'alliance d'Hachem'....</b> Il y a une différence d'opinion ici parmi les sages de Yisrael, dans le tractat Bava Basra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle était placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
+<b>Du côté de l'arche de l'alliance d'Hachem'....</b> Il y a une différence d'opinion ici parmi les sages de Yisrael, dans le tractat Bava Batra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle était placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
 
 ### passuk 27
 

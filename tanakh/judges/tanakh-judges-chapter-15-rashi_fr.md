@@ -18,7 +18,7 @@
 <b>C'est ainsi que tu te comportes.</b> Peut-être es-tu habitué à cela : passer les femmes de l'une à l'autre.
 
 ### passuk 8
-<b>Cavalerie et infanterie [lit. mollet et cuisse].</b> "Cavaliers et fantassins."</sup>6</sup><i class="footnote">C'est la traduction du Targum Yonasan'. Le "mollet" désigne le cavalier, soutenu par le mollet, comme l'explique Rachi, et la "cuisse" désigne le fantassin, dont le poids est soutenu par la cuisse.</i> Le cavalier n'est pas soutenu par la cuisse, mais par le mollet du pied inséré dans l'étrier métallique suspendu à la selle.
+<b>Cavalerie et infanterie [lit. mollet et cuisse].</b> "Cavaliers et fantassins."</sup>6</sup><i class="footnote">C'est la traduction du Targum Yonathan'. Le "mollet" désigne le cavalier, soutenu par le mollet, comme l'explique Rachi, et la "cuisse" désigne le fantassin, dont le poids est soutenu par la cuisse.</i> Le cavalier n'est pas soutenu par la cuisse, mais par le mollet du pied inséré dans l'étrier métallique suspendu à la selle.
 <b>Sur le promontoire</b> d'une anfractuosité de la falaise d'Eitam. De même, "Les promontoires des falaises"<sup>7</sup><i class="footnote">Yeshaya, 2:21</i> "[Il] enlèvera ses branches."<sup>8</sup><i class="footnote">Ibid, 10:33.</i>
 
 ### passuk 9
@@ -37,14 +37,14 @@
 <b>Non ! Nous ne ferons que vous attacher.</b> Nous ne vous exécuterons pas, mais nous ne ferons que vous attacher.
 
 ### passuk 14
-<b>L'esprit d'Hachem.</b> Un esprit de puissance, émanant d'Hachem.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
+<b>L'esprit d'Hachem.</b> Un esprit de puissance, émanant d'Hachem.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 <b>Ses liens</b> qui l'attachaient .
 
 ### passuk 15
 <b>Humide.</b> Humide. J'ai vu un lexique médical qui désigne le pus suintant d'une plaie comme <span><b>טְרִיָה"</b></span>.
 
 ### passuk 16
-<b>J'ai amassé des monticules</b> avec la mâchoire d'un âne, amassant de nombreux monticules. "Avec la mâchoire d'un âne, je les ai précipités dans des monticules."<sup>11</sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>J'ai amassé des monticules</b> avec la mâchoire d'un âne, amassant de nombreux monticules. "Avec la mâchoire d'un âne, je les ai précipités dans des monticules."<sup>11</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
 
 ### passuk 17
 

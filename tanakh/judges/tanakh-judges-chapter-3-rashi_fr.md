@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'ornéanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
+<b>L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'ornéanmoins, 'j'ai vu la tribulation de mon peuple'." Otniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Otniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
 
 ### passuk 11
 
@@ -38,7 +38,7 @@
 <b>Dont le bras droit était immobile.</b> Yonasan rend "Un homme dont le bras droit était rétréci". "Gamid" en araméen indique toujours quelque chose de rétréci par la maladie, "retrait", "rétréci" en vieux français. Il ne pouvait pas se servir de son bras droit. En hébreu, "fermé", comme dans "Que le puits ne ferme pas sa bouche sur moi."<sup>4</sup><i class="footnote">Tehilim, 69:16.</i> Son bras droit était "fermé" - il ne pouvait pas l'utiliser.
 
 ### passuk 16
-<b>Un <i>gomed</i> de long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Basra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
+<b>Un <i>gomed</i> de long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Batra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
 <b>Au-dessus de sa cuisse droite.</b> Comme il était capable d'utiliser sa main gauche, il la saisissait avec la main gauche.
 
 ### passuk 17
@@ -55,7 +55,7 @@
 ### passuk 20
 <b>Dans la véranda de son penthouse.</b> Dans le penthouse d'été qui était aéré et frais.
 <b>J'ai un message divin pour vous.</b> Ainsi, vous devez vous lever.
-<b>Il s'est élevé du trône.</b> Il a donc mérité que Rus soit descendu de lui.
+<b>Il s'est élevé du trône.</b> Il a donc mérité que Ruth soit descendu de lui.
 
 ### passuk 21
 
@@ -66,7 +66,7 @@
 <b>Les déchets ont suinté.</b> Yonasan rend : "Les déchets renversés ont suinté". Il lit cela comme une contraction de deux mots, le "shin" servant aux deux. <sup>9</sup><i class="footnote"> <span>ï "- '"</span>est lu comme <span>ï "' /span>, "déchets déversés", avec le milieu <span></span> servant de dernière lettre de <span>ï "ַרְï¬</span> et de première lettre de <span>ï¬ְדֹֽנׇה</span>. </i> "déchets déversés" [suintés].<sup>10</sup><i class="footnote">Les déchets se sont d'abord déversés de l'abdomen dans le corps, puis ils ont suinté de la plaie. (Ralbag).</i><span>ï¬ֶרֶ</span>, "répandu", est la traduction de <span>ï¬ְד</span><sup>11</sup><i class="footnote">Ou <span>ï¬נׇא</span>.</i> selon Yonasan.
 
 ### passuk 23
-<b>Ehud sortit dans le couloir.</b> Du penthouse au <span>מסדרונה"</span>, traduit par le Targum Yonasan par 'couloir'.
+<b>Ehud sortit dans le couloir.</b> Du penthouse au <span>מסדרונה"</span>, traduit par le Targum Yonathan par 'couloir'.
 <b>Et verrouillé</b> avec la clé.
 
 ### passuk 24

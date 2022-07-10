@@ -74,7 +74,7 @@
 ### passuk 32
 
 ### passuk 33
-<b>Et les Bnei Yisrael bénirent Dieu.</b> Les Bnei Yisrael remercièrent Hachem.</sup>4</sup><i class="footnote">Rashi cite ici le Targum Yonasan, qui estime qu'il est plus approprié de dire qu'ils remercièrent Dieu, plutôt que de le bénir.</i>
+<b>Et les Bnei Yisrael bénirent Dieu.</b> Les Bnei Yisrael remercièrent Hachem.</sup>4</sup><i class="footnote">Rashi cite ici le Targum Yonathan, qui estime qu'il est plus approprié de dire qu'ils remercièrent Dieu, plutôt que de le bénir.</i>
 
 ### passuk 34
 <b>Et les Bnei Reouven et les Bnei Gad appelèrent l'autel, car il est un témoin.</b> C'est l'un des versets raccourcis. Il aurait fallu ajouter un mot : Et les Bnei Reouven et les Bnei Gad appelèrent l'autel "<i>témoin,</i>' [car il est etc...].

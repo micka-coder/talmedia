@@ -48,7 +48,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Que David dormait.</b> Pour David qui est mort de causes naturelles, on mentionne une expression de dormir [שכיבה"] ; mais pour Yoav qui a été tué, on mentionne une expression de mourir [מיתה"].... Une autre explication est que concernant David qui a été survécu par un fils méritant qui a pris sa place, [une expression de] dormir est mentionnée, mais concernant Yoav qui n'a pas été survécu par un fils méritant qui a pris sa place, [une expression de] dormir n'est pas mentionnée, plutôt [une expression de] mourir [est mentionnée].<sup>7</sup><i class="footnote">Maseches Bava Basra 116a.</i>
+<b>Que David dormait.</b> Pour David qui est mort de causes naturelles, on mentionne une expression de dormir [שכיבה"] ; mais pour Yoav qui a été tué, on mentionne une expression de mourir [מיתה"].... Une autre explication est que concernant David qui a été survécu par un fils méritant qui a pris sa place, [une expression de] dormir est mentionnée, mais concernant Yoav qui n'a pas été survécu par un fils méritant qui a pris sa place, [une expression de] dormir n'est pas mentionnée, plutôt [une expression de] mourir [est mentionnée].<sup>7</sup><i class="footnote">Maseches Bava Batra 116a.</i>
 
 ### passuk 22
 

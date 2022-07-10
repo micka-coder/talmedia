@@ -18,7 +18,7 @@
 <b>Et Yehoshua dit.</b> C'était le troisième jour, et le trentième jour de deuil [pour Moshé] était le premier des trois jours.
 הִתְקַדָשׁוּ  signifie généralement se sanctifier, mais ici cela signifie se préparer.
 <b>Pour demain</b> quand vous traverserez le Jourdain.
-<b>Merveilles.</b> Cette traduction suit celle du <i>Targum Yonasan.</i>
+<b>Merveilles.</b> Cette traduction suit celle du <i>Targum Yonathan.</i>
 
 ### passuk 6
 <b>Et Yehoshu dit aux Kohanim.</b> Il dit cela le jour suivant.

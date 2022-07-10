@@ -74,7 +74,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>Ben Menasheh.</b> Par déférence envers Moshé, la lettre "nun" a été incluse, modifiant ainsi le nom. Il est suspendu scripturairement pour indiquer qu'il n'était en fait pas Menasheh, mais Moshe.<sup>10</sup><i class="footnote">Bava Basra 109b.</i>
+<b>Ben Menasheh.</b> Par déférence envers Moshé, la lettre "nun" a été incluse, modifiant ainsi le nom. Il est suspendu scripturairement pour indiquer qu'il n'était en fait pas Menasheh, mais Moshe.<sup>10</sup><i class="footnote">Bava Batra 109b.</i>
 <b>Jusqu'au jour de l'exil du pays.</b> A l'époque de Sancheriv, lors du premier exil.
 
 >Crédit : sefaris

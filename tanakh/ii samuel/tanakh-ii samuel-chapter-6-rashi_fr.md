@@ -54,7 +54,7 @@
 <b>Une cruche [de vin].</b> Une cruche de vin.
 
 ### passuk 20
-<b>Une des racailles.</b> [Le Targum Yonasan traduit :] Une des racailles.
+<b>Une des racailles.</b> [Le Targum Yonathan traduit :] Une des racailles.
 
 ### passuk 21
 

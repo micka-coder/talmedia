@@ -17,11 +17,11 @@
 ### passuk 8
 
 ### passuk 9
-<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan'. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shahul' de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul qui a tué les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Shmuel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 cite la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là et le mot <span>הַשָּׁבָץ</span> ici partagent les trois mêmes lettres, <span>ש־ב־ץ</span>.</i>
+<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan'. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shahul' de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul qui a tué les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Shmuel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 cite la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là et le mot <span>הַשָּׁבָץ</span> ici partagent les trois mêmes lettres, <span>ש־ב־ץ</span>.</i>
 <b>Pendant que je suis encore en vie.</b> Dépêchez-vous de me tuer. Je préfère que vous me tuiez et non qu'ils<sup>10</sup><i class="footnote">les Pelishtim.</i> me tuent et me torturent.<sup>11</sup><i class="footnote">Préalisez ma mort.</i>
 
 ### passuk 10
-<b>Et le bracelet qui était à son bras.</b> Les tefilines qui étaient à son bras.</sup>12</sup><i class="footnote">C'est la traduction du Targum Yonasan'. Il refuse de l'expliquer pour signifier littéralement bracelet, car cela aurait été pris par les Pelishtim comme faisant partie du butin de guerre (Meam Loez).</i>
+<b>Et le bracelet qui était à son bras.</b> Les tefilines qui étaient à son bras.</sup>12</sup><i class="footnote">C'est la traduction du Targum Yonathan'. Il refuse de l'expliquer pour signifier littéralement bracelet, car cela aurait été pris par les Pelishtim comme faisant partie du butin de guerre (Meam Loez).</i>
 
 ### passuk 11
 
@@ -34,7 +34,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Votre sang est sur votre propre tête.</b> La responsabilité de votre mort repose sur votre propre tête.</sup>13</sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>Il n'y a personne à punir pour votre mort, sauf vous-même.
+<b>Votre sang est sur votre propre tête.</b> La responsabilité de votre mort repose sur votre propre tête.</sup>13</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>Il n'y a personne à punir pour votre mort, sauf vous-même.
 
 ### passuk 17
 

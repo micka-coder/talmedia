@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Les chefs de tout le peuple.</b> Les chefs de tout le peuple.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
+<b>Les chefs de tout le peuple.</b> Les chefs de tout le peuple.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 3
 

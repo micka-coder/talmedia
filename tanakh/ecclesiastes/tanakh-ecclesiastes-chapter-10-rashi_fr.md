@@ -86,7 +86,7 @@ Mais selon son sens simple : <b>Le fou multiplie les paroles.</b> Il déclare et
 <b>Même dans vos pensées [ne maudissez pas] le roi.</b> Même dans vos pensées, sans parole. "גַּם" signifie "même". 
 <b>Ne maudissez pas le roi.</b> Ne provoquez pas le roi de l'univers. Autre explication : Selon sa signification apparente, il s'agit d'un roi mortel. 
 <b>Un oiseau des cieux.</b> L'âme, qui est placée en vous, qui s'envolera finalement vers le ciel. 
-<b>Et ce qui a des ailes.</b> L'ange qui t'escorte, comme il est dit : "Car Il commandera à Ses anges en ton nom,<<sup>34</sup><i class="footnote">Tehillim 91:11. </i> et selon son sens apparent, " ceux qui vont et viennent " [c'est-à-dire que] tu dois t'inquiéter de chaque personne, peut-être y a-t-il des auditeurs, qui raconteront [l'affaire] à d'autres.<sup>35</sup><i class="footnote">La Guemara dans Maseches Bava Basra 4a affirme, que lorsque Bava le fils de Butta a rencontré Hordos, il a appliqué ce verset. </i> 
+<b>Et ce qui a des ailes.</b> L'ange qui t'escorte, comme il est dit : "Car Il commandera à Ses anges en ton nom,<<sup>34</sup><i class="footnote">Tehillim 91:11. </i> et selon son sens apparent, " ceux qui vont et viennent " [c'est-à-dire que] tu dois t'inquiéter de chaque personne, peut-être y a-t-il des auditeurs, qui raconteront [l'affaire] à d'autres.<sup>35</sup><i class="footnote">La Guemara dans Maseches Bava Batra 4a affirme, que lorsque Bava le fils de Butta a rencontré Hordos, il a appliqué ce verset. </i> 
 
 >Crédit : sefaris
 >Licence : CC-BY

@@ -19,7 +19,7 @@
 ### passuk 6
 <b>Sa rivale.</b> L'autre femme de son mari, Penina.
 <b>Fréquemment en colère.</b> Colère après colère, c'est-à-dire toujours.' C'est pourquoi il est écrit 'aussi [<span>' </span>] la colère.' Elle lui dirait : " As-tu acheté aujourd'hui un manteau à ton fils aîné, ou à ton fils cadet, une chemise ? ".
-<b>Pour qu'elle se plaigne.</b> Pour qu'elle se plaigne. Nos sages expliquent, 'afin de la faire tempêter', qu'elle prie. Penina avait de bonnes intentions.<sup>11</sup><i class="footnote"> Maseches Bava Basra 16a.</i>
+<b>Pour qu'elle se plaigne.</b> Pour qu'elle se plaigne. Nos sages expliquent, 'afin de la faire tempêter', qu'elle prie. Penina avait de bonnes intentions.<sup>11</sup><i class="footnote"> Maseches Bava Batra 16a.</i>
 <b>Son utérus.</b> Lit., à l'opposé de son utérus, et ainsi est chaque expression du mot <span>.<sup>12</sup><i class="footnote">Voir Rachi, Bereishis 7:16.</i></span><span>בְּעַד"</span>.
 
 ### passuk 7

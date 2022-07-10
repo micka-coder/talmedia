@@ -11,13 +11,13 @@
 ### passuk 5
 
 ### passuk 6
-<b>Près de la plaine du pilier.</b> "La plaine des monuments"</sup>1</sup><i class="footnote">C'est la traduction du Targum Yonasan.</i> Une plaine dans laquelle se dressaient des monuments.
+<b>Près de la plaine du pilier.</b> "La plaine des monuments"</sup>1</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i> Une plaine dans laquelle se dressaient des monuments.
 
 ### passuk 7
 
 ### passuk 8
 <b>Les arbres allaient résolument.</b> Il s'agit d'une parabole.</sup>2</sup><i class="footnote">Yalkout, 65.</i>.
-<b>L'olivier.</b> Asniel ben Kenaz,<sup>3</sup><i class="footnote">Supra, 3 ; 911. (Yalkut, ibid)</i> une tribu de Juda, qui porte le titre d'"olivier", comme il est dit : "Olivier rafraîchi, aux fruits beaux d'aspect, etc."<sup>4</sup><i class="footnote">Yirmiyahu, 11:16. Le chapitre est adressé aux " hommes de Yéhouda " (v.1).</i>
+<b>L'olivier.</b> Otniel ben Kenaz,<sup>3</sup><i class="footnote">Supra, 3 ; 911. (Yalkut, ibid)</i> une tribu de Juda, qui porte le titre d'"olivier", comme il est dit : "Olivier rafraîchi, aux fruits beaux d'aspect, etc."<sup>4</sup><i class="footnote">Yirmiyahu, 11:16. Le chapitre est adressé aux " hommes de Yéhouda " (v.1).</i>
 
 ### passuk 9
 <b>La richesse de mon huile.</b> La connotation ici est la graisse.
@@ -66,7 +66,7 @@
 <b>Ga'al ben Eved.</b> Il était d'une autre nation.
 
 ### passuk 27
-<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan's.</i>
+<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
 
 ### passuk 28
 <b>Qui est Avimelech, et qui est Sichem.</b> Qui est Avimelech pour contrôler Sichem, et qui est Sichem pour être soumis à Avimelech ? Avimelech n'est-il pas le fils de Yerubaal, d'Ofros, des Aviezrites ?<sup>10</sup><i class="footnote"></i>.
@@ -95,7 +95,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Du promontoire de la terre.</b> "De la prééminence de la terre."<sup>14</sup><i class="footnote">C'est la traduction du Targum Yonasan.</i> Du plus haut sommet de tous.
+<b>Du promontoire de la terre.</b> "De la prééminence de la terre."<sup>14</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i> Du plus haut sommet de tous.
 <b>Elon Meonenim.</b> La plaine de Meonenim.
 
 ### passuk 38

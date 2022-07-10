@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>L'émissaire d'Hachem est monté.</b> Nous apprenons dans le Seder Olam qu'il s'agissait de Pinchos.</sup>1</sup><i class="footnote"> Fils d'Elazar, petit-fils d'Aharon Hakohen. (Bemidbar, 25:11.)</i><sup>2</sup><i class="footnote"> Pourquoi Pinchas est-il intitulé <span>מַלְ³</span>, lit. " un ange d'Hachem " ? Parce que, lorsqu'il était visité par l'esprit sacré, il était enflammé de radiance. (Vayikra Rabah, A. Voir Rachi à Yehoshua, 2:4).</i>
+<b>L'émissaire d'Hachem est monté.</b> Nous apprenons dans le Seder Olam qu'il s'agissait de Pinhass.</sup>1</sup><i class="footnote"> Fils d'Elazar, petit-fils d'Aharon Hakohen. (Bemidbar, 25:11.)</i><sup>2</sup><i class="footnote"> Pourquoi Pinchas est-il intitulé <span>מַלְ³</span>, lit. " un ange d'Hachem " ? Parce que, lorsqu'il était visité par l'esprit sacré, il était enflammé de radiance. (Vayikra Rabah, A. Voir Rachi à Yehoshua, 2:4).</i>
 <b>To Bochim.</b> Le nom d'un lieu.</sup>3</sup><i class="footnote">Non littéralement "pleurer". Voir vs.4,5.</i>
 <b>Je t'ai pris.</b> C'était Mon intention première,</sup>4</sup><i class="footnote">Le futur, <span>ï¬®עֲלֶה"</span>, littéralement "Je prendrai", indique l'intention qui a précédé la prise effective. Voir Rachi à Shemos, 15:1.</i> de vous faire monter de Mitzrayim - et Je l'ai fait - à la condition que Mes ennemis soient chassés.<sup>5</sup><i class="footnote"> Comme l'indique la mise en garde contre les pactes [v.2].</i>
 
