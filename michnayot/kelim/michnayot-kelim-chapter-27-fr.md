@@ -24,7 +24,7 @@ Si l'on a tissé une pièce d'étoffe de la taille de trois pouces sur trois, pu
 De même, si une pièce d'étoffe a été tissée jusqu'à la taille de trois [doigts] carrés, et qu'elle a contracté la souillure du cadavre, et qu'après avoir terminé la pièce entière, il a retiré un seul fil de sa partie originale, elle est exempte de la souillure du cadavre, mais reste impure au contact de la souillure du cadavre. Si un fil a été retiré de la partie d'origine et qu'ensuite tout le tissu a été terminé, il reste pur, car les sages ont statué : si un morceau de trois [centimètres] de côté est réduit, il devient pur. Mais si un morceau de trois pouces carrés est amoindri, même s'il est libéré de midras, il est encore susceptible de toutes les autres formes d'impureté.
 
 ### michna 9
-Si un drap qui a contracté la souillure de midras a été transformé en rideau, il est pur de la souillure de midras mais reste souillé par le contact avec la souillure de midras. Rabbi Yose a dit : mais quelle malpropreté midras a-t-elle touché ! C'est seulement si un zav l'a touché qu'il est impur par contact avec un zav.
+Si un drap qui a contracté la souillure de midras a été transformé en rideau, il est pur de la souillure de midras mais reste souillé par le contact avec la souillure de midras. Rabbi Yose a dit : mais quelle impureté midras a-t-elle touché ! C'est seulement si un zav l'a touché qu'il est impur par contact avec un zav.
 
 ### michna 10
 Si un morceau de tissu de trois [centimètres] de côté a été divisé, il est pur de la souillure de Midras, mais il est encore impur par contact avec la souillure de Midras. Rabbi Yose a dit : mais quelle souillure midras a-t-elle touché ! C'est seulement si un zav l'a touché qu'il est impur par contact avec un zav.

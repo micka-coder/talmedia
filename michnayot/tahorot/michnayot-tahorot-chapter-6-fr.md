@@ -24,7 +24,7 @@ Une vallée : en été, c'est un domaine privé en ce qui concerne les lois du S
 Une basilique : est un domaine privé en ce qui concerne les lois du Shabbat, mais un domaine public en ce qui concerne les lois de l'impureté. Rabbi Juda dit : si quelqu'un qui se tient à une porte peut voir ceux qui entrent et sortent par l'autre porte, on considère qu'il s'agit d'un domaine privé dans les deux cas ; sinon, on considère qu'il s'agit d'un domaine privé en ce qui concerne le Chabbat et d'un domaine public en ce qui concerne l'impureté.
 
 ### michna 9
-Un forum couvert: : est un domaine privé en ce qui concerne Chabbat et un domaine public en ce qui concerne les lois de la malpropreté ; ainsi que les côtés. Rabbi Meir dit : les côtés sont considérés comme un domaine privé dans les deux cas. Les colonnades : sont un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la malpropreté. Une cour dans laquelle de nombreuses personnes entrent par une porte et sortent par une autre, est un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la propreté.
+Un forum couvert: : est un domaine privé en ce qui concerne Chabbat et un domaine public en ce qui concerne les lois de l'impureté ; ainsi que les côtés. Rabbi Meir dit : les côtés sont considérés comme un domaine privé dans les deux cas. Les colonnades : sont un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de l'impureté. Une cour dans laquelle de nombreuses personnes entrent par une porte et sortent par une autre, est un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la propreté.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

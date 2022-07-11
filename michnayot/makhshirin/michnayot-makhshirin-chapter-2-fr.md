@@ -1,6 +1,6 @@
 
 ### michna 1
-La sueur des maisons, des citernes, des fossés et des cavernes ne provoque pas la susceptibilité à l'impureté. La transpiration d'un homme ne rend pas sensible à l'impureté. Si un homme a bu de l'eau impure et a transpiré, sa transpiration ne le rend pas sensible à l'impureté. S'il est entré dans de l'eau souillée et a transpiré, sa transpiration le rend sensible à l'impureté. S'il s'est séché et a ensuite transpiré, sa transpiration ne le rend pas sensible à la malpropreté.
+La sueur des maisons, des citernes, des fossés et des cavernes ne provoque pas la susceptibilité à l'impureté. La transpiration d'un homme ne rend pas sensible à l'impureté. Si un homme a bu de l'eau impure et a transpiré, sa transpiration ne le rend pas sensible à l'impureté. S'il est entré dans de l'eau souillée et a transpiré, sa transpiration le rend sensible à l'impureté. S'il s'est séché et a ensuite transpiré, sa transpiration ne le rend pas sensible à l'impureté.
 
 ### michna 2
 La sueur d'un bain impur est impure, Mais celle d'un bain propre relève de la loi de "if water be put". S'il y avait une piscine dans une maison, la maison transpire à cause d'elle si la piscine était impure, la sueur de toute la maison qui a été causée par la piscine est impure.

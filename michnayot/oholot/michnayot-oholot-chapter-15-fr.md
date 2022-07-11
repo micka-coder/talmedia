@@ -1,6 +1,6 @@
 
 ### michna 1
-Une épaisse veste de laine ou un bloc de bois épais ne sont pas impurs tant qu'ils ne sont pas à une hauteur d'un centimètre du sol. Si [les vêtements] sont pliés l'un au-dessus de l'autre, ils n'entraînent pas d'impureté jusqu'à ce que le plus haut soit à un centimètre du sol. Les tables de bois [placées] l'une au-dessus de l'autre n'entraînent pas de malpropreté tant que la plus haute n'est pas à un centimètre du sol ; mais si elles étaient en marbre, la malpropreté se fend en haut et en bas.
+Une épaisse veste de laine ou un bloc de bois épais ne sont pas impurs tant qu'ils ne sont pas à une hauteur d'un centimètre du sol. Si [les vêtements] sont pliés l'un au-dessus de l'autre, ils n'entraînent pas d'impureté jusqu'à ce que le plus haut soit à un centimètre du sol. Les tables de bois [placées] l'une au-dessus de l'autre n'entraînent pas d'impureté tant que la plus haute n'est pas à un centimètre du sol ; mais si elles étaient en marbre, l'impureté se fend en haut et en bas.
 
 ### michna 2
 Les tablettes de bois qui se touchent par leurs coins et qui sont à un centimètre du sol : S'il y a une souillure sous l'une d'elles, [celui qui] touche la deuxième [tablette] se souille pendant sept jours. Les objets placés sous la première [tablette] deviennent impurs, mais ceux placés sous la seconde restent purs. Une table n'entraîne pas de souillure si elle ne contient pas un carré d'au moins une largeur de main.

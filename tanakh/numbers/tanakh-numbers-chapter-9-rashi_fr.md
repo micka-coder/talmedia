@@ -3,7 +3,7 @@
 <b>Au premier mois.</b> Le chapitre du début de ce livre <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> n'a pas été dit avant Iyar. Vous apprenez, qu'il n'y a pas d'ordre de préséance ou de succession dans la Torah. Mais pourquoi n'a-t-Il pas commencé par ce [chapitre] ? Parce que c'est au discrédit de Yisrael, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> que tout au long des quarante années que Yisrael a passées dans le désert, ils n'ont offert aucune autre <i>Pesach</i> offrande que celle-ci. 
 
 ### passuk 2
-<b>En son temps.</b> Même le Chabbath ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même pendant la malpropreté rituelle. 
+<b>En son temps.</b> Même le Chabbath ; <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>même pendant l'impureté rituelle. 
 
 ### passuk 3
 <b>Selon tous ses statuts.</b> Ce sont les commandements relatifs à son corps [c'est-à-dire l'animal lui-même] un agneau ; sans tache ; mâle ; un yearling. 

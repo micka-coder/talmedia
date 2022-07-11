@@ -1,6 +1,6 @@
 
 ### michna 1
-Ce qui sert de poignée mais ne protège pas, contracte l'impureté et transmet l'impureté ; mais il n'est pas inclus. S'il protège mais n'est pas une poignée, il contracte et transmet l'impureté et est inclus. S'il ne protège pas et ne sert pas de poignée, il ne contracte ni ne transmet la malpropreté.
+Ce qui sert de poignée mais ne protège pas, contracte l'impureté et transmet l'impureté ; mais il n'est pas inclus. S'il protège mais n'est pas une poignée, il contracte et transmet l'impureté et est inclus. S'il ne protège pas et ne sert pas de poignée, il ne contracte ni ne transmet l'impureté.
 
 ### michna 2
 Les racines d'ail, d'oignon ou de poireau encore humides, ou leurs parties supérieures, qu'elles soient humides ou sèches, ainsi que la tige centrale qui se trouve à l'intérieur de la partie comestible, les racines de laitue, de radis et de navet, selon les paroles de Rabbi Meir. Rabbi Judah dit : seules les grosses racines du radis sont incluses, mais ses racines fibreuses ne le sont pas. Les racines de la menthe, de la rue, des herbes sauvages et des herbes de jardin qui ont été déracinées pour être plantées ailleurs, ainsi que l'épine d'un épi de blé et son enveloppe. Rabbi Elazar dit : également la couverture de terre des racines ; Toutes ces choses contractent et véhiculent l'impureté et sont incluses.

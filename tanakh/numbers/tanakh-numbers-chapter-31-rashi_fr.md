@@ -73,7 +73,7 @@
 <b>Ce que Hachem a ordonné, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il a crédité l'enseignement à son maître. 
 
 ### passuk 22
-<b>Seulement l'or, etc.</b> Bien que Moshé ne vous ait pas mis en garde, sauf pour les lois de la malpropreté rituelle, vous devez être mis en garde davantage, concernant les lois de la purification. Le terme "seulement" dénote une exclusion, comme pour dire : "Vous êtes exclus de l'utilisation des ustensiles, même après leur purification de la contamination par les morts, jusqu'à ce qu'ils soient purifiés de l'absorption de la viande interdite "neveilah"." Nos sages remarquent que "seulement l'or, etc." enseigne que l'on doit enlever sa rouille avant de le purger. C'est la connotation du mot " seulement "  il ne doit pas y avoir de rouille, seulement le métal, exactement comme il est. 
+<b>Seulement l'or, etc.</b> Bien que Moshé ne vous ait pas mis en garde, sauf pour les lois de l'impureté rituelle, vous devez être mis en garde davantage, concernant les lois de la purification. Le terme "seulement" dénote une exclusion, comme pour dire : "Vous êtes exclus de l'utilisation des ustensiles, même après leur purification de la contamination par les morts, jusqu'à ce qu'ils soient purifiés de l'absorption de la viande interdite "neveilah"." Nos sages remarquent que "seulement l'or, etc." enseigne que l'on doit enlever sa rouille avant de le purger. C'est la connotation du mot " seulement "  il ne doit pas y avoir de rouille, seulement le métal, exactement comme il est. 
 
 ### passuk 23
 <b>Tout ce qui est placé sur un feu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Dans lequel on fait cuire quelque chose.

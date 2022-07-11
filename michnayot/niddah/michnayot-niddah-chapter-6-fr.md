@@ -6,13 +6,13 @@ Si le signe inférieur apparaît avant le signe supérieur, elle peut accomplir 
 De même, tout [trou dans] un récipient en terre qui laisse entrer un liquide le laissera sortir, mais il peut y en avoir un qui laissera sortir le liquide et ne le laissera pas entrer. Tout membre qui fait pousser un ongle a aussi un os en lui, mais il peut y en avoir un qui a un os en lui mais ne fait pas pousser d'ongle.
 
 ### michna 3
-Tout ce qui est susceptible d'être souillé par les midras est également susceptible d'être souillé par les cadavres. Mais il y a des choses qui sont sensibles à la malpropreté du cadavre mais pas à la malpropreté du midras.
+Tout ce qui est susceptible d'être souillé par les midras est également susceptible d'être souillé par les cadavres. Mais il y a des choses qui sont sensibles à l'impureté du cadavre mais pas à l'impureté du midras.
 
 ### michna 4
 Quiconque est apte à juger des affaires capitales est également apte à juger des affaires monétaires. Mais il y a ceux qui sont aptes à juger des affaires monétaires et et inaptes à juger des affaires capitales. Quiconque est apte à agir en tant que juge est apte à agir en tant que témoin. Mais il peut y en avoir un qui est apte à agir comme témoin et non comme juge.
 
 ### michna 5
-Tout ce qui est soumis à la dîme est susceptible d'être impur sur le plan alimentaire. Mais il y a des aliments qui sont à la malpropreté alimentaire et qui ne sont pas soumis à la dîme.
+Tout ce qui est soumis à la dîme est susceptible d'être impur sur le plan alimentaire. Mais il y a des aliments qui sont à l'impureté alimentaire et qui ne sont pas soumis à la dîme.
 
 ### michna 6
 Tout ce qui est soumis à la pah est également soumis à la dîme. Mais il y a des [produits] qui sont soumis à la dîme et qui ne sont pas soumis à la pah.

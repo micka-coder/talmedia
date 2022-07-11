@@ -26,7 +26,7 @@
 <b>Le dromadaire.</b> Une créature avec deux bosses et deux colonnes vertébrales. Les sages remarquent : Pourquoi ont-ils été répétés ? Les animaux  à cause du dromadaire, et les volailles  à cause de la <i>ra'ah,</i> qui n'étaient pas énumérés dans le Toras Kohanim. 
 
 ### passuk 8
-<b>Et n'entrez pas en contact avec leurs carcasses.</b> Les sages expliquent que cela s'applique pendant les fêtes, car un homme est tenu de se purifier pendant la fête. Peut-être l'admonition s'applique-t-elle tout au long de l'année ? La Torah enseigne donc : "Dis aux <i>kohanim,</i> etc." Si la malpropreté émanant d'un cadavre humain est stricte, restreignant uniquement les <i>kohanim,</i> mais pas les Israélites - alors la malpropreté indulgente émanant d'une carcasse d'animal l'est - certainement. 
+<b>Et n'entrez pas en contact avec leurs carcasses.</b> Les sages expliquent que cela s'applique pendant les fêtes, car un homme est tenu de se purifier pendant la fête. Peut-être l'admonition s'applique-t-elle tout au long de l'année ? La Torah enseigne donc : "Dis aux <i>kohanim,</i> etc." Si l'impureté émanant d'un cadavre humain est stricte, restreignant uniquement les <i>kohanim,</i> mais pas les Israélites - alors l'impureté indulgente émanant d'une carcasse d'animal l'est - certainement. 
 
 ### passuk 9
 

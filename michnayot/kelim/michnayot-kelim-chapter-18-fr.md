@@ -12,7 +12,7 @@ S'il manque un des pieds d'un coffre, d'une boîte ou d'une armoire, même s'il 
 Un cadre de lit qui a été mis sur des étais : Rabbi Meir et Rabbi Juda disent qu'il est susceptible d'être impur. Mais Rabbi Yose et Rabbi Shimon disent qu'il est propre. Rabbi Yose dit : Pourquoi cela est-il différent des cadres rectangulaires des Lévites qui sont propres ?
 
 ### michna 5
-Un lit qui a contracté la malpropreté de midras : Si un côté court a été enlevé et que ses deux pieds restent encore, il est impur. Mais si un côté long et deux jambes ont été enlevés, il devient propre. Rabbi Néhémie dit : il est impur. Si deux étais aux coins opposés ont été coupés, ou si deux jambes aux coins opposés ont été coupées, ou si le lit a été réduit à un niveau de moins d'un mètre carré, il devient pur.
+Un lit qui a contracté l'impureté de midras : Si un côté court a été enlevé et que ses deux pieds restent encore, il est impur. Mais si un côté long et deux jambes ont été enlevés, il devient propre. Rabbi Néhémie dit : il est impur. Si deux étais aux coins opposés ont été coupés, ou si deux jambes aux coins opposés ont été coupées, ou si le lit a été réduit à un niveau de moins d'un mètre carré, il devient pur.
 
 ### michna 6
 Un lit qui a contracté l'impureté midras : Si un long côté a été cassé et qu'on l'a réparé, il conserve son impureté midras. Si le deuxième côté était également cassé et qu'on le répare, il devient pur de l'impureté midras mais reste impur en vertu du contact avec midras. Si avant d'avoir réussi à réparer le premier côté, le second s'est cassé, le lit devient pur.

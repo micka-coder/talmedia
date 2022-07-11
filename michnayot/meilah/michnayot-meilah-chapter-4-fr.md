@@ -15,7 +15,7 @@ Piggul et reste ne se combinent pas l'un avec l'autre car ils portent deux noms 
 Toutes les sortes d'aliments peuvent se combiner entre elles : Compléter la quantité d'un demi-péra afin de rendre le corps impur [Compléter la nourriture] pour deux repas afin de former un érouv ; Compléter le volume d'un œuf pour contaminer la nourriture ; Compléter le volume d'une figue sèche en ce qui concerne le port de Chabbat ; Et le volume d'une datte en ce qui concerne Yom Kippour. Toutes sortes de boissons peuvent se combiner entre elles : Un quart [d'une bûche] pour rendre le corps inapte ; une bouchée pour Yom Kippour.
 
 ### michna 6
-Orlah et kilayim de la vigne peuvent se combiner entre eux. Rabbi Shimon dit : ils ne se combinent pas. Le tissu, le sac, le sac et le cuir, le cuir et la natte se combinent l'un avec l'autre. Rabbi Shimon : Quelle en est la raison ?  Parce qu'ils sont tous sensibles à la malpropreté causée par la position assise.
+Orlah et kilayim de la vigne peuvent se combiner entre eux. Rabbi Shimon dit : ils ne se combinent pas. Le tissu, le sac, le sac et le cuir, le cuir et la natte se combinent l'un avec l'autre. Rabbi Shimon : Quelle en est la raison ?  Parce qu'ils sont tous sensibles à l'impureté causée par la position assise.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY
