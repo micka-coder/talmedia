@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Et traversèrent vers le nord.</b> Ils traversèrent le Yardein et voyagèrent vers le nord en trans-Yardein jusqu'à Gilod.
+<b>Et traversèrent vers le nord.</b> Ils traversèrent le Jourdain et voyagèrent vers le nord en trans-Jourdain jusqu'à Gilod.
 
 ### passuk 2
 
@@ -10,7 +10,7 @@
 <b>Depuis que les méprisables d'Ephraïm avaient dit,</b> "Qu'est-ce que tu es ,Gilod ?". Les plus humbles d'Ephraïm se moquaient de Gilod en disant : "De quelle importance es-tu, Gilod, parmi Ephraïm et parmi Menashé ?". C'est l'interprétation du Targum Yonathan.
 
 ### passuk 5
-<b>Les Gilodites s'emparèrent des passages de Yardein.</b> Ils postèrent des sentinelles aux endroits de passage.
+<b>Les Gilodites s'emparèrent des passages de Jourdain.</b> Ils postèrent des sentinelles aux endroits de passage.
 
 ### passuk 6
 <b>Dites Shiboles s'il vous plaît.</b> Puis-je traverser cette rivière qui coule?</sup>1</sup><i class="footnote">Shiboles" est traduit par "couler".</i>

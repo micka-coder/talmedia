@@ -15,7 +15,7 @@
 <b>Soyez doux avec le jeune homme.</b> S'il se présente devant vous en combat, ayez pitié de lui.
 
 ### passuk 6
-<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Yardein,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Yardein plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reouven et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Yardein.</i> sauf que le Yardein était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
+<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Jourdain,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Jourdain plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reouven et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Jourdain.</i> sauf que le Jourdain était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
 
 ### passuk 7
 

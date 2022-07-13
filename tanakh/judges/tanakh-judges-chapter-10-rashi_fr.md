@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Sangliers.</b><span><b>עוּלִין</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i> les chevaux les plus choisis.
+<b>Sangliers.</b><span><b>עוּלִין</b></span>,<sup>1</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i> les chevaux les plus choisis.
 <b>Ils possédaient trente villes.</b> Ils possédaient trente communes non fortifiées. C'est pourquoi elles sont décrites comme <span><b>עַיָרִים</b></span>, "villes", ce qui signifie la même chose que <span><b>עַיָירָוֹת</b></span>. <sup>2</sup><i class="footnote">Plutôt que <span><b>עָרִים</b></span> signifiant villes fortifiées.</i>
 
 ### passuk 5
@@ -20,7 +20,7 @@
 
 ### passuk 8
 <b>Cette année là</b> où Yair est mort.
-<b>A travers le Yardein.</b> Le territoire de Reuven, Gad, et la moitié de Menasheh ; ils étaient voisins.</sup>5</sup><i class="footnote">Des Ammonites. Voir ci-dessous, ch.11.</i>
+<b>A travers le Jourdain.</b> Le territoire de Reuven, Gad, et la moitié de Menasheh ; ils étaient voisins.</sup>5</sup><i class="footnote">Des Ammonites. Voir ci-dessous, ch.11.</i>
 
 ### passuk 9
 

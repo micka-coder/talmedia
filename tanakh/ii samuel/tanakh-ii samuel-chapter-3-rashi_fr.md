@@ -18,7 +18,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Suis-je le chef des chiens pour [le royaume de] Yehouda ?</b> Suis-je au moins aussi important que le chef des chiens pour David. Cependant, selon la cantillation qui a l'accent sous [le mot] <span>ראׁשׁ</span> et [le mot] <span>כֶּלֶב אָנׂכׅי</span> coraillés [ensemble],<sup>12</sup><i class="footnote">La première explication de Rachi suppose que les mots <span>ראש</span> et <span>כלב'</span> sont reliés. Cependant, la cantillation indique qu'ils sont séparés. Au contraire, les mots <span>כלב אנכי</span> appartiennent ensemble. Cela oblige Rachi à offrir une explication alternative.</i> alors c'est l'explication : Le chef ? Est-ce que je veux être un chef dans ta maison ? Il est préférable pour moi d'être un chien et une personne ordinaire dans la maison de David. C'est aussi la traduction de Yonasan.
+<b>Suis-je le chef des chiens pour [le royaume de] Yehouda ?</b> Suis-je au moins aussi important que le chef des chiens pour David. Cependant, selon la cantillation qui a l'accent sous [le mot] <span>ראׁשׁ</span> et [le mot] <span>כֶּלֶב אָנׂכׅי</span> coraillés [ensemble],<sup>12</sup><i class="footnote">La première explication de Rachi suppose que les mots <span>ראש</span> et <span>כלב'</span> sont reliés. Cependant, la cantillation indique qu'ils sont séparés. Au contraire, les mots <span>כלב אנכי</span> appartiennent ensemble. Cela oblige Rachi à offrir une explication alternative.</i> alors c'est l'explication : Le chef ? Est-ce que je veux être un chef dans ta maison ? Il est préférable pour moi d'être un chien et une personne ordinaire dans la maison de David. C'est aussi la traduction de Yonathan.
 <b>A partir de ce jour, dois-je [continuer à] être gentil.</b> A partir de maintenant, [est-il] convenable que je sois gentil avec la maison de Shaoul et avec tous ceux qui l'aiment comme je l'ai fait jusqu'à présent et que je ne vous ai pas livré entre les mains de David ?
 
 ### passuk 9
@@ -38,7 +38,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>De [son] homme.</b> Yonasan a traduit "de la compagnie de son mari".
+<b>De [son] homme.</b> Yonathan a traduit "de la compagnie de son mari".
 
 ### passuk 16
 <b>Suivant et pleurant.</b> Sur la bonne action [sur le point d'être] quittée parce que toutes ces années, il a enfoncé une épée dans le lit [séparant] lui et elle et il n'a pas trébuché [dans une intimité pécheresse] avec elle.<sup>13</sup><i class="footnote">Shaul ne la considérait pas comme mariée à David parce qu'il considérait que le Kiddushin de David' avait été fait en utilisant un prêt qui est un Kiddushin invalide. Cependant, en fait, David avait utilisé une richesse matérielle régulière comme moyen de Kiddushin, ce qui rendait David halachiquement marié à Michal. Cela signifie que Paltiel Ben Loyish vivait dans la même maison que la femme d'un autre homme. Pendant toutes ces années, Paltiel s'est assuré de ne jamais la toucher et s'est ainsi élevé spirituellement en maîtrisant son penchant lubrique. Maintenant qu'elle partait, il était triste de ne plus avoir l'opportunité de ce type de grandeur spirituelle. (Sanhedrin, ibid).</i>

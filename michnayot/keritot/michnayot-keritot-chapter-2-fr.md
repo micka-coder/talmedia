@@ -1,6 +1,6 @@
 
 ### michna 1
-Il y a quatre personnes qui nécessitent une cérémonie d'expiation, et il y en a quatre qui apportent un sacrifice pour une transgression volontaire ou par inadvertance. Les personnes suivantes ont besoin d'une cérémonie d'expiation : le zav, la zavah, la femme qui a accouché et la metzora. Rabbi Eliezer ben Jacob a dit : un converti est également considéré comme une personne qui nécessite encore une cérémonie d'expiation jusqu'à ce que le sang ait été aspergé pour lui ; il en va de même pour le nazirite en ce qui concerne le vin, la coupe de cheveux et la souillure.
+Il y a quatre personnes qui nécessitent une cérémonie d'expiation, et il y en a quatre qui apportent un sacrifice pour une transgression volontaire ou par inadvertance. Les personnes suivantes ont besoin d'une cérémonie d'expiation : le zav, la zavah, la femme qui a accouché et la metzora. Rabbi Eliezer ben Jacob a dit : un converti est également considéré comme une personne qui nécessite encore une cérémonie d'expiation jusqu'à ce que le sang ait été aspergé pour lui ; il en va de même pour le nazirite en ce qui concerne le vin, la coupe de cheveux et l'impureté.
 
 ### michna 2
 Les personnes suivantes apportent un sacrifice pour des transgressions volontaires ou involontaires : celui qui a des relations sexuelles avec une femme esclave, un naziréen qui est devenu impur, pour un faux serment concernant un témoignage, et pour un faux serment concernant un dépôt.

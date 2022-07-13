@@ -21,7 +21,7 @@
 <b>Et dans les fosses.</b> Les citernes.
 
 ### passuk 7
-<b>Passé le Yardein vers le pays de Gad.</b> Pour échapper aux Philistins, car les Philistins étaient dans le pays de Canaan, à l'ouest du Yardein.
+<b>Passé le Jourdain vers le pays de Gad.</b> Pour échapper aux Philistins, car les Philistins étaient dans le pays de Canaan, à l'ouest du Jourdain.
 <b>S'empressèrent de le suivre.</b> Ils s'empressèrent de le suivre.</sup>4</sup><i class="footnote"> C'est-à-dire de s'allier à Saül.</i>
 
 ### passuk 8

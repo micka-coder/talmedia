@@ -38,7 +38,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote"><span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>Le récit du rêve.</b> Le récit du rêve.</sup></sup><i class="footnote"><span>מִסְפַר</span>, généralement traduit par "nombre", est interprété ici comme "récit". </i> "Le récit du rêve et son interprétation."<sup>8</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 <b>Et son interprétation [lit. "sa vente"].</b> Les biens échangés contre lui,</sup>9</sup><i class="footnote">Selon l'interprétation littérale, "vente".</i> ou son interprétation.
 
 ### passuk 16
@@ -66,10 +66,10 @@
 
 ### passuk 24
 <b>Capture des eaux</b> qui s'interposent entre Aram et le territoire cananéen.
-<b>Et les Yardein</b> qui interviennent également.
+<b>Et les Jourdain</b> qui interviennent également.
 
 ### passuk 25
-<b>Ils amenèrent à Gidon, à travers le Yardein.</b> Le matin, quand Gidon traversa le Yardein en poursuivant Zevach et Tzalmona.<sup>15</sup><i class="footnote"></i>
+<b>Ils amenèrent à Gidon, à travers le Jourdain.</b> Le matin, quand Gidon traversa le Jourdain en poursuivant Zevach et Tzalmona.<sup>15</sup><i class="footnote"></i>
 
 >Crédit : sefaris
 >Licence : CC-BY

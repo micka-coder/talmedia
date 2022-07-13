@@ -3,7 +3,7 @@
 Une épaisse veste de laine ou un bloc de bois épais ne sont pas impurs tant qu'ils ne sont pas à une hauteur d'un centimètre du sol. Si [les vêtements] sont pliés l'un au-dessus de l'autre, ils n'entraînent pas d'impureté jusqu'à ce que le plus haut soit à un centimètre du sol. Les tables de bois [placées] l'une au-dessus de l'autre n'entraînent pas d'impureté tant que la plus haute n'est pas à un centimètre du sol ; mais si elles étaient en marbre, l'impureté se fend en haut et en bas.
 
 ### michna 2
-Les tablettes de bois qui se touchent par leurs coins et qui sont à un centimètre du sol : S'il y a une souillure sous l'une d'elles, [celui qui] touche la deuxième [tablette] se souille pendant sept jours. Les objets placés sous la première [tablette] deviennent impurs, mais ceux placés sous la seconde restent purs. Une table n'entraîne pas de souillure si elle ne contient pas un carré d'au moins une largeur de main.
+Les tablettes de bois qui se touchent par leurs coins et qui sont à un centimètre du sol : S'il y a une impureté sous l'une d'elles, [celui qui] touche la deuxième [tablette] se souille pendant sept jours. Les objets placés sous la première [tablette] deviennent impurs, mais ceux placés sous la seconde restent purs. Une table n'entraîne pas d'impureté si elle ne contient pas un carré d'au moins une largeur de main.
 
 ### michna 3
 En ce qui concerne les jarres posées sur le fond ou sur le côté à l'air libre et qui se touchent d'un centimètre carré, s'il y a de l'impureté sous l'une d'elles, l'impureté se sépare en haut et en bas. Quand cette règle s'applique-t-elle ? Lorsque les [jarres] sont propres. Mais dans le cas où elles étaient impures ou à un centimètre du sol, s'il y a une impureté sous l'une d'elles, ce qui est en dessous devient impur.
@@ -27,7 +27,7 @@ S'il s'agit d'une maison remplie de terre ou de cailloux qu'il a décidé d'y la
 Une jarre remplie d'un liquide pur et scellée avec un couvercle bien ajusté, qui a été utilisée comme pierre de couverture d'une tombe, une personne qui la touche contracte une impureté de sept jours, mais la jarre et le liquide restent purs. Un animal qui a été utilisé comme pierre de couverture, une personne qui le touche contracte une impureté de sept jours. Rabbi Meir dit : tout ce qui possède le souffle de vie est impur du fait qu'il a été utilisé comme pierre de couverture.
 
 ### michna 10
-Celui qui touche un cadavre et touche des récipients, celui qui fait de l'ombre à un cadavre et touche des récipients, ils [les récipients] sont impurs. Celui qui couvre un cadavre et couvre des récipients, celui qui touche un cadavre et couvre des récipients, ils [les récipients] sont purs. Si ses mains sont larges d'un palme, elles sont impures. Deux maisons, et dans chacune il y a un cadavre d'une demi-olive, et il met une main dans chaque maison : Si ses mains sont larges d'une largeur de main, il apporte la souillure ; sinon, il n'apporte pas la souillure.
+Celui qui touche un cadavre et touche des récipients, celui qui fait de l'ombre à un cadavre et touche des récipients, ils [les récipients] sont impurs. Celui qui couvre un cadavre et couvre des récipients, celui qui touche un cadavre et couvre des récipients, ils [les récipients] sont purs. Si ses mains sont larges d'un palme, elles sont impures. Deux maisons, et dans chacune il y a un cadavre d'une demi-olive, et il met une main dans chaque maison : Si ses mains sont larges d'une largeur de main, il apporte l'impureté ; sinon, il n'apporte pas l'impureté.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

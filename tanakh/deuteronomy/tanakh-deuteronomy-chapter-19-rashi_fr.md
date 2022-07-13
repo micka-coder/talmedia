@@ -10,7 +10,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et comme sa main se balançait. .vers le bas.</b> Alors qu'il abaissait la hache sur l'arbre. Le Targum [Onkelos] rend  וְתִתְמְרֵיג יְדֵהּ, ce qui signifie "sa main était abaissée" pour frapper un coup de hache vers le bas sur l'arbre. "Car le bétail l'a abaissée," Yonasan rend,  אֲרֵי מְרַגוּהִי תּוֹרַיָּא  . 
+<b>Et comme sa main se balançait. .vers le bas.</b> Alors qu'il abaissait la hache sur l'arbre. Le Targum [Onkelos] rend  וְתִתְמְרֵיג יְדֵהּ, ce qui signifie "sa main était abaissée" pour frapper un coup de hache vers le bas sur l'arbre. "Car le bétail l'a abaissée," Yonathan rend,  אֲרֵי מְרַגוּהִי תּוֹרַיָּא  . 
 <b>Le fer s'est envolé du manche en bois.</b> Certains sages disent que le fer s'est envolé du manche. Mais d'autres disent que le fer a détaché un éclat de l'arbre en train d'être ébréché. Celui-ci s'est envolé et a causé la mort. 
 
 ### passuk 6
@@ -22,7 +22,7 @@
 <b>Lorsque [Dieu] s'étend...</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> conformément à Son serment. Pour vous donner le pays des Keini, des Kenizi et des Kadmoni. 
 
 ### passuk 9
-<b>Tu en ajouteras trois autres.</b> Ce qui fait neuf - trois à travers le Yardein, trois dans le pays de Canaan et trois dans le temps destiné à venir. 
+<b>Tu en ajouteras trois autres.</b> Ce qui fait neuf - trois à travers le Jourdain, trois dans le pays de Canaan et trois dans le temps destiné à venir. 
 
 ### passuk 10
 

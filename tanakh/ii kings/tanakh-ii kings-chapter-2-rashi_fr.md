@@ -36,7 +36,7 @@
 
 ### passuk 14
 <b>Où est Hachem, le Dieu d'Eliyahou ?</b> On m'a promis qu'une double portion de son esprit reposerait sur moi.</sup>9</sup><i class="footnote">Alternativement, où est Dieu qui ne me montre pas Son signe comme Il l'a montré à Eliyahou est la fente de l'eau ?</b> Ralbag</i>.
-<b>Alors, il a aussi frappé l'eau.</b> Lui aussi. Dans les chapitres de Rabbi Eliezer, fils de Rabbi Yose Haglili, [il est dit que] le fendage [du Yardein] par Elisée était deux fois plus grand que celui d'Eliyahou, car au début il y avait le mérite des deux, et maintenant il y avait son seul mérite.<sup>10</sup><i class="footnote">Voir Rachi 3:1 ci-dessous. Ainsi, la demande d'Elisée de recevoir deux fois l'esprit d'Eliyahu avait été satisfaite.</i>
+<b>Alors, il a aussi frappé l'eau.</b> Lui aussi. Dans les chapitres de Rabbi Eliezer, fils de Rabbi Yose Haglili, [il est dit que] le fendage [du Jourdain] par Elisée était deux fois plus grand que celui d'Eliyahou, car au début il y avait le mérite des deux, et maintenant il y avait son seul mérite.<sup>10</sup><i class="footnote">Voir Rachi 3:1 ci-dessous. Ainsi, la demande d'Elisée de recevoir deux fois l'esprit d'Eliyahu avait été satisfaite.</i>
 
 ### passuk 15
 

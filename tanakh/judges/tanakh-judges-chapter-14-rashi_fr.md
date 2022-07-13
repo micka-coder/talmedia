@@ -44,10 +44,10 @@
 
 ### passuk 18
 <b>Avant le coucher du soleil.</b> Avant le coucher du soleil, car ils avaient encore du temps jusqu'à la tombée de la nuit.
-<b>On a labouré avec mon veau.</b> Ceci est allégorique - si tu n'avais pas interrogé ma femme.</sup>7</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i><sup>8</sup><i class="footnote">Qui est chéri comme on chérit un jeune veau. (Sanhedrin, 21:a.)</i>
+<b>On a labouré avec mon veau.</b> Ceci est allégorique - si tu n'avais pas interrogé ma femme.</sup>7</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i><sup>8</sup><i class="footnote">Qui est chéri comme on chérit un jeune veau. (Sanhedrin, 21:a.)</i>
 
 ### passuk 19
-<b>L'esprit divin.</b> Un esprit de puissance, divinement inspiré.</sup>9</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>L'esprit divin.</b> Un esprit de puissance, divinement inspiré.</sup>9</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 <b>Leurs vêtements.</b> Les vêtements qu'il leur avait enlevés.
 
 ### passuk 20

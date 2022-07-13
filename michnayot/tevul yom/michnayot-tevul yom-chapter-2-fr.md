@@ -1,6 +1,6 @@
 
 ### michna 1
-Les liquides qui sortent d'un tevul yom sont comme ceux qu'il a touchés : aucun d'eux ne provoque de souillure. En ce qui concerne tous les autres impurs, qu'ils soient de [degré] mineur ou majeur, les liquides qui sortent d'eux sont comme ceux qu'ils ont touchés : tous deux ont une impureté de premier degré. A l'exception du liquide qui est un "père d'impureté".
+Les liquides qui sortent d'un tevul yom sont comme ceux qu'il a touchés : aucun d'eux ne provoque d'impureté. En ce qui concerne tous les autres impurs, qu'ils soient de [degré] mineur ou majeur, les liquides qui sortent d'eux sont comme ceux qu'ils ont touchés : tous deux ont une impureté de premier degré. A l'exception du liquide qui est un "père d'impureté".
 
 ### michna 2
 Un pot qui était rempli de liquide et un tevul yom l'a touché : Si c'est de la terumah, le liquide est disqualifié, mais le pot est pur. Mais si le liquide n'est pas sacré [hullin], tout reste propre. Si ses mains étaient souillées [et qu'il a touché les liquides dans le pot], tout devient impur. Dans ce cas, les mains souillées sont traitées de manière plus stricte qu'un tevul yom. Mais une plus grande rigueur est appliquée à un tevul yom qu'à des mains souillées, car un tevul yom douteux disqualifie la terumah, mais les doutes concernant les mains souillées sont propres.

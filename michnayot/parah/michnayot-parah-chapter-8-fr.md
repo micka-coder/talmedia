@@ -12,7 +12,7 @@ Celui qui brûle la vache rousse ou les taureaux [de Kippour ou liés à une fau
 Celui qui mange de la charogne d'un oiseau pur, alors qu'elle est encore dans son gosier, rend les vêtements impurs ; mais la charogne elle-même ne rend pas les vêtements impurs. Ainsi [le vêtement] pourrait dire [à la personne] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !.
 
 ### michna 5
-Toute souillure dérivée ne souille pas les récipients, mais [elle souille] un liquide. Si un liquide devient impur, il les souille. Ainsi [le récipient] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".
+Toute impureté dérivée ne souille pas les récipients, mais [elle souille] un liquide. Si un liquide devient impur, il les souille. Ainsi [le récipient] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".
 
 ### michna 6
 Un récipient en terre ne souille pas un autre récipient de ce type, mais [il souille] un liquide. Et lorsque le liquide devient impur, il souille le récipient. Ainsi [le recipient] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".

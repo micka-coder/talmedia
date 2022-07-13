@@ -29,7 +29,7 @@
 <b>Du vengeur.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Contre le rédempteur de sang, qui est le parent de la victime du meurtre. 
 
 ### passuk 13
-<b>Six villes refuges.</b> Cela enseigne que bien que Moshé ait désigné trois villes à travers le Yardein, de son vivant, elles n'ont pas absorbé, jusqu'à la sélection des <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les trois que Yehoshua a placées dans le pays de Canaan. 
+<b>Six villes refuges.</b> Cela enseigne que bien que Moshé ait désigné trois villes à travers le Jourdain, de son vivant, elles n'ont pas absorbé, jusqu'à la sélection des <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>les trois que Yehoshua a placées dans le pays de Canaan. 
 
 ### passuk 14
 <b>Trois villes, etc.</b> Bien qu'il y ait eu, au pays de Canaan, neuf tribus, et ici seulement deux et demi, le nombre de leurs villes de refuge était le même. Parce que Gil'ad était <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>truffé de meurtriers, comme il est écrit dans la Bible. 

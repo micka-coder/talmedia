@@ -51,7 +51,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Cependant, il ne pouvait pas les évincer.</b> [Targum] Yonasan interprète : Après, comme ils avaient péché, ils ne pouvaient pas évincer les habitants de la vallée.
+<b>Cependant, il ne pouvait pas les évincer.</b> [Targum] Yonathan interprète : Après, comme ils avaient péché, ils ne pouvaient pas évincer les habitants de la vallée.
 
 ### passuk 20
 

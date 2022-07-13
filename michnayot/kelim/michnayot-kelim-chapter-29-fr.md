@@ -9,7 +9,7 @@ Trois taies d'oreiller en laine, six taies d'oreiller en lin, trois draps, douze
 Le fil d'un fil à plomb [commun] est considéré comme relié jusqu'à une longueur de douze [coudées] ; Celui du fil à plomb des charpentiers, jusqu'à dix-huit [coudées] ; Et celui du fil à plomb des constructeurs jusqu'à cinquante coudées. Les parties qui dépassent ces longueurs, même si l'on voulait les conserver, sont pures. Le fil à plomb des plâtriers ou des mouleurs est considéré comme relié quelle que soit sa longueur.
 
 ### michna 4
-Le cordon des balances des orfèvres ou des peseurs de tissu fin de pourpre est considéré comme un connecteur jusqu'à une longueur de trois brins de doigt, Le manche d'une hache derrière la poignée, jusqu'à une longueur de trois brins de doigt. Rabbi Yose dit : si la longueur derrière la poignée n'est pas inférieure à un centimètre, le manche entier est insensible à la souillure.
+Le cordon des balances des orfèvres ou des peseurs de tissu fin de pourpre est considéré comme un connecteur jusqu'à une longueur de trois brins de doigt, Le manche d'une hache derrière la poignée, jusqu'à une longueur de trois brins de doigt. Rabbi Yose dit : si la longueur derrière la poignée n'est pas inférieure à un centimètre, le manche entier est insensible à l'impureté.
 
 ### michna 5
 Le cordon des balances des commerçants ou des ménagères est considéré comme relié jusqu'à une longueur d'un centimètre. Le manche d'une hache devant la poignée, jusqu'à un centimètre. La projection du manche d'un compas, jusqu'à un centimètre. Celle du manche du ciseau des tailleurs de pierre, jusqu'à un centimètre.

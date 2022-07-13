@@ -45,7 +45,7 @@
 
 ### passuk 18
 <b>Quand Il établirait</b> - Ceci décrit un processus continu - "Quand Il établirait des juges pour eux, et Hachem visiterait le juge, etc.".
-<b>Parce qu'Il se rétracterait.</b> Il se rétracterait, à leur égard, de la destruction.</sup>14</sup><i class="footnote">qu'Il avait l'intention de faire pleuvoir sur eux. En conséquence, <span>יְנַחֵם</span> n'est pas compris comme "pourrait trouver du réconfort,' mais comme "pourrait se rétracter.' Voir Rachi à Bereishis, 6:6, deuxième interprétation.</i> C'est la restitution de Yonasan.
+<b>Parce qu'Il se rétracterait.</b> Il se rétracterait, à leur égard, de la destruction.</sup>14</sup><i class="footnote">qu'Il avait l'intention de faire pleuvoir sur eux. En conséquence, <span>יְנַחֵם</span> n'est pas compris comme "pourrait trouver du réconfort,' mais comme "pourrait se rétracter.' Voir Rachi à Bereishis, 6:6, deuxième interprétation.</i> C'est la restitution de Yonathan.
 <b>Du fait de leur cri</b> - Du fait de leur cri qui est monté vers Lui à cause de leurs bourreaux.
 
 ### passuk 19

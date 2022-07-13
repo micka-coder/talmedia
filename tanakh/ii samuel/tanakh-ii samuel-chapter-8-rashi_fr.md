@@ -9,7 +9,7 @@
 
 ### passuk 3
 <b>Comme il allait.</b> Lorsque Haddadezer allait
-<b>Pour élargir sa frontière.</b> Comme le traduit [Yonasan], "Pour élargir sa frontière", [Haddadezer] a conquis des terres en dehors de la frontière de ses pays et a élargi sa frontière.
+<b>Pour élargir sa frontière.</b> Comme le traduit [Yonathan], "Pour élargir sa frontière", [Haddadezer] a conquis des terres en dehors de la frontière de ses pays et a élargi sa frontière.
 
 ### passuk 4
 <b>David a détruit tous les chars [chevaux].</b> En raison [du verset], "Il ne doit pas acquérir une abondance de chevaux pour lui-même"<sup>5</sup><i class="footnote">Un des interdits spécifiques aux rois de Yisrael. (Voir Devorim 17:16)</i>
@@ -48,8 +48,8 @@
 ### passuk 17
 
 ### passuk 18
-<b>Venoyohaa, fils de Yehoyodoh</b> [était en charge] des archers et des tireurs de frondes. Yonasan traduit : "Venoyoha, fils de Yehoydoh fut nommé [responsable] des archers et des tireurs de frondes." [Alternativement] nos sages ont dit [que les mots] keraisi et plaisi font référence à l'Urim et au Tumim.<sup>11</sup><i class="footnote">Rashi explique dans Shemos 28:30 qu'il s'agit d'une référence à l'inscription du Nom explicite qui était placée dans les plis du plastron. Par le biais du plastron, ils communiquaient les réponses d'Hachem aux questions que le kohen Lui posait, d'où ils (<span>מֵאִיר</span>), s'illuminaient et expliquaient leurs paroles et <span>וּמְתַּמֵּם</span>) complétaient leurs paroles, c'est-à-dire faisaient en sorte que les paroles se réalisent. (Yoma 73b). Cette explication de nos sages concernant la traduction de keraisi et plaisi se retrouve dans le Berahot 4a.</i>
-<b>Etaient des [dirigeants] éminents.</b> [Yonasan traduit] "Ils étaient éminents".
+<b>Venoyohaa, fils de Yehoyodoh</b> [était en charge] des archers et des tireurs de frondes. Yonathan traduit : "Venoyoha, fils de Yehoydoh fut nommé [responsable] des archers et des tireurs de frondes." [Alternativement] nos sages ont dit [que les mots] keraisi et plaisi font référence à l'Urim et au Tumim.<sup>11</sup><i class="footnote">Rashi explique dans Shemos 28:30 qu'il s'agit d'une référence à l'inscription du Nom explicite qui était placée dans les plis du plastron. Par le biais du plastron, ils communiquaient les réponses d'Hachem aux questions que le kohen Lui posait, d'où ils (<span>מֵאִיר</span>), s'illuminaient et expliquaient leurs paroles et <span>וּמְתַּמֵּם</span>) complétaient leurs paroles, c'est-à-dire faisaient en sorte que les paroles se réalisent. (Yoma 73b). Cette explication de nos sages concernant la traduction de keraisi et plaisi se retrouve dans le Berahot 4a.</i>
+<b>Etaient des [dirigeants] éminents.</b> [Yonathan traduit] "Ils étaient éminents".
 
 >Crédit : sefaris
 >Licence : CC-BY

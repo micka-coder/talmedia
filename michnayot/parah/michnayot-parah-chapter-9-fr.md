@@ -24,7 +24,7 @@ Si des cendres [de la vache rousses] valides ont été mélangées à des cendre
 Les eaux lustrales qui ont été invalidées impurifient celui qui est pur pour la terumah [par contact] avec ses mains ou son corps. Et celui qui est pur pour les eaux lustrale, elles ne l'impurifie ni [par contact] avec ses mains ni [par contact] avec son corps. Si elles deviennent impurs, elles souillent celui qui est pur pour la terumah [par contact] avec ses mains ou avec son corps, tandis celui qui est pur pour les eaux lustrales, elles le souillent [par contact] avec ses mains mais pas [par contact] avec son corps.
 
 ### michna 9
-Si des cendres valides ont été mises sur de l'eau impropre à la préparation, [cette dernière] souille celui qui est pur pour la terumah [par contact] avec ses mains ou avec son corps, tandis que pour celui qui est pur pour la hatat, elle ne transmet la souillure ni [par contact] avec ses mains ni avec son corps.
+Si des cendres valides ont été mises sur de l'eau impropre à la préparation, [cette dernière] souille celui qui est pur pour la terumah [par contact] avec ses mains ou avec son corps, tandis que pour celui qui est pur pour la hatat, elle ne transmet l'impureté ni [par contact] avec ses mains ni avec son corps.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

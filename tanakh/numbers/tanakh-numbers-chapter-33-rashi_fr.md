@@ -108,7 +108,7 @@
 ### passuk 50
 
 ### passuk 51
-<b>Lorsque tu traverses le Yardein, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : " Lorsque vous traversez le Yardein sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont. " Nous constatons que Yehoshua leur a parlé de la même manière alors qu'ils étaient encore dans le Yardein. 
+<b>Lorsque tu traverses le Jourdain, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : " Lorsque vous traversez le Jourdain sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont. " Nous constatons que Yehoshua leur a parlé de la même manière alors qu'ils étaient encore dans le Jourdain. 
 
 ### passuk 52
 <b>Vous devez chasser.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Vous devez chasser. 

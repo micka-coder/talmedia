@@ -51,7 +51,7 @@
 <b>Et même si tu es exilé [d'Avsholom].</b> Et même si tu es exilé du roi [Avsholom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
 
 ### passuk 20
-<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avsholom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
+<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonathan traduit [le verset] : " Et si tu es éloigné [d'Avsholom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
 <b>Je considérerai cela comme de la bonté et de la vérité.</b> Je te créditerai la faveur de la bonté et de la vérité que tu as faite pour moi.
 
 ### passuk 21
@@ -63,7 +63,7 @@
 <b>Et tout le peuple passait.</b> A partir du roi et selon son emplacement, on les appelle des passants.</sup>8</sup><i class="footnote">Même s'il passait aussi, puisqu'ils étaient devant lui, on les appelle des passants par rapport à son emplacement.</i>
 
 ### passuk 24
-<b>Ils se posèrent.</b> Comme "Ils s'arrêtèrent"<sup>9</sup><i class="footnote">Précédemment en 6:17.</i> [Yonasan traduit :] "Ils arrêtèrent l'arche." Ils l'ont mise à l'écart et les gens sont passés devant car David voulait qu'on l'apporte avec lui.
+<b>Ils se posèrent.</b> Comme "Ils s'arrêtèrent"<sup>9</sup><i class="footnote">Précédemment en 6:17.</i> [Yonathan traduit :] "Ils arrêtèrent l'arche." Ils l'ont mise à l'écart et les gens sont passés devant car David voulait qu'on l'apporte avec lui.
 <b>Et Evyosor s'éloigna [sur le côté]</b> jusqu'à ce que [tout le monde] ait fini etc. Il s'agit d'un verset abrégé ils déposèrent l'Arche de Dieu jusqu'à ce que tout le peuple ait fini de voyager.<sup>10</sup><i class="footnote">Les mots <span>ויעל אביתר</span> doivent être placés à la fin du verset pour être interprétés.</i>
 <b>Evyosor s'en alla [sur le côté].</b> Ce jour-là, il fut retiré du service Kohanite.</sup>11</sup><i class="footnote">comme le kohen Gadol.</i> parce qu'il s'enquit de l'Urim et du Tumim mais ne reçut pas de réponse,</sup>12</sup><i class="footnote">ce qui montrait qu'il n'était plus qualifié pour cette haute fonction. L'Urim et le Tumim éclairaient certaines lettres sur le plastron du kohen Gadol comme un moyen pour Dieu de communiquer avec Son peuple. Voir Shemos 28:30.</i> Tzodok l'a alors remplacé. C'est ce que nous avons appris dans le Seder Olam dans le traité Yuma.<sup>13</sup><i class="footnote"></i>.
 
@@ -82,7 +82,7 @@
 ### passuk 30
 <b>Les hauteurs du mont des Oliviers.</b> Sur le mont des Oliviers.
 <b>Etait couvert.</b> "Couvert" à la manière des personnes en deuil.
-<b>Couvert.</b> [Yonasan traduit :] "Couvert".
+<b>Couvert.</b> [Yonathan traduit :] "Couvert".
 
 ### passuk 31
 <b>David a été informé [par un informateur].</b> David a été informé par l'informateur.

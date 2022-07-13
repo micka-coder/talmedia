@@ -31,7 +31,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>La plaine des épées.</b> Yonasan traduit la plaine de la tuerie en raison des épées, tout comme vous le dites [dans les Écritures] (Tehilim 89, 44)<sup>2</sup><i class="footnote">Rashi montre comment le mot <span>צוּר</span>, tranchant, est utilisé en référence à une épée.</i> "Tu as aussi retourné le tranchant de son épée."
+<b>La plaine des épées.</b> Yonathan traduit la plaine de la tuerie en raison des épées, tout comme vous le dites [dans les Écritures] (Tehilim 89, 44)<sup>2</sup><i class="footnote">Rashi montre comment le mot <span>צוּר</span>, tranchant, est utilisé en référence à une épée.</i> "Tu as aussi retourné le tranchant de son épée."
 
 ### passuk 17
 
@@ -46,8 +46,8 @@
 ### passuk 22
 
 ### passuk 23
-<b>Dans la cinquième côte.</b> Comme [si l'on disait] la cinquième côte,</sup>3</sup><i class="footnote">en comptant à partir du bas.</i> l'endroit où se trouvent la bile et le foie. [Mais Yonasan a traduit [ceci pour signifier] "sur le côté de sa cuisse".
-<b>Et mourut à sa place.</b> Et mourut à sa place.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>Dans la cinquième côte.</b> Comme [si l'on disait] la cinquième côte,</sup>3</sup><i class="footnote">en comptant à partir du bas.</i> l'endroit où se trouvent la bile et le foie. [Mais Yonathan a traduit [ceci pour signifier] "sur le côté de sa cuisse".
+<b>Et mourut à sa place.</b> Et mourut à sa place.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 24
 

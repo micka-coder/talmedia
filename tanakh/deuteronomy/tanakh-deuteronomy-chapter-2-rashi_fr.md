@@ -80,7 +80,7 @@
 
 ### passuk 29
 <b>Comme les descendants d'Essav l'ont fait pour moi.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela ne fait pas référence à [notre] passage sur leur terre mais uniquement concernant leur vente de nourriture et d'eau.
-<b>Jusqu'à ce que j'aie traversé le Yardein.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la déclaration : "Laissez-moi passer par [votre terre]". 
+<b>Jusqu'à ce que j'aie traversé le Jourdain.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela fait référence à la déclaration : "Laissez-moi passer par [votre terre]". 
 
 ### passuk 30
 

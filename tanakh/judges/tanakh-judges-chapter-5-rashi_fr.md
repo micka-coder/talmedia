@@ -56,13 +56,13 @@
 <b>Les nobles de Yésochar.</b> Le "<span>ׇרַי</span>" dans <span>ï¬"ׇדַי</span> [lit. "mes" nobles] est accessoire, ne remplissant aucune fonction grammaticale. Il est similaire au "<span>ׇדֶה</span>" dans "les animaux des champs"<sup>31</sup><i class="footnote">Tehilim, 8:8. <span>ï¬"חַ</span>, lit. <span>ï¬"נַי"</span>, "mon" champ, est traduit par <span>ï¬"חַ"</span>, "le champ.</i> ou "il a ouvert, pour lui-même, une fenêtre."<sup>32</sup><i class="footnote">Yermiyahu, 22:14. <span>--ï¬ï' -</span>, lit. "mes fenêtres", est traduit par <span>--ï¬ï'</span>, "la fenêtre".</i>
 <b>Yesochar avec Barak.</b> Le reste de la circonscription de Yesochar était de même à la disposition de Barak chaque fois qu'il donnait des ordres.
 <b>Dépêchés dans la vallée sur ses talons.</b> Il les dépêchait dans toutes ses missions... pour mobiliser le peuple, et pour tous les besoins militaires.
-<b>Cependant, dans l'équivoque de Reuven.</b> Cependant, dans l'ambiguïté de Reuven se trouvait une grande ruse. "La ruse du cur,"<sup>33</sup><i class="footnote"> C'est la traduction du Targum Yonathan's.</i> ruse. En quoi était-il rusé ? Il a chevauché les lignes de combat pour apprendre qui sortirait vainqueur afin de pouvoir les rejoindre.
+<b>Cependant, dans l'équivoque de Reuven.</b> Cependant, dans l'ambiguïté de Reuven se trouvait une grande ruse. "La ruse du cur,"<sup>33</sup><i class="footnote"> C'est la traduction du Targum Yonathan.</i> ruse. En quoi était-il rusé ? Il a chevauché les lignes de combat pour apprendre qui sortirait vainqueur afin de pouvoir les rejoindre.
 
 ### passuk 16
 <b>Les compagnies hurlantes.</b> Écouter les sons émis par les compagnies engagées dans la bataille, pour déterminer lequel était le cri de triomphe, et lequel le cri de défaite.
 
 ### passuk 17
-<b>Il est retranché au-delà de Yardein</b> et n'est jamais arrivé sur le front de la bataille. De même, Dan a amassé son argent dans des navires de mer, prêts à s'échapper.
+<b>Il est retranché au-delà de Jourdain</b> et n'est jamais arrivé sur le front de la bataille. De même, Dan a amassé son argent dans des navires de mer, prêts à s'échapper.
 <b>À ses expositions.</b> Pour défendre son territoire exposé.
 
 ### passuk 18
@@ -96,7 +96,7 @@
 <b>Béni par les femmes de la tente.</b> Yaël a été bénie. Pourquoi ? Elles ont porté et élevé des enfants. S'il n'y avait pas eu Yaël, cette canaille les aurait anéantis. Ceci est enseigné dans Breishis Rabbah.<sup>46</sup><i class="footnote"></i> Une autre interprétation : Yaël, elle aussi, est restée dans la tente,<sup>47</sup><i class="footnote"></i> et elle est donc, mentionnée dans la bénédiction des femmes des tentes.
 
 ### passuk 25
-<b>Mais elle a donné du lait</b> pour vérifier s'il était assez alerte pour différencier le goût de l'eau et celui du lait. Voici l'interprétation de Yonasan.
+<b>Mais elle a donné du lait</b> pour vérifier s'il était assez alerte pour différencier le goût de l'eau et celui du lait. Voici l'interprétation de Yonathan.
 <b>Dans une coupe des puissants.</b> Dans une coupe utilisée pour boire de l'eau, car les eaux sont décrites comme "puissantes", comme il est dit, "dans les eaux puissantes."<sup>48</sup><i class="footnote">Shemos, 15:10.</i>
 
 ### passuk 26
@@ -122,7 +122,7 @@ Une fenêtre.
 
 ### passuk 31
 <b>Ainsi peuvent-ils périr</b>. Devorah a déclaré,<sup>59</sup><i class="footnote">Notre verset n'a pas été récité par la mère de Sisera, mais par Devorah. (Yalkout, 58.)</i> sa consolation est creuseque tous tes ennemis périssent, Hachem, comme lui a péri.
-<b>Mais ceux qui l'aiment</b> <b>comme le soleil émergeant dans sa pleine puissance dans le monde à venir, sept fois plus que la lumière des sept jours de la création, soit trois cent quarante trois contre un. Cela équivaut à quarante-neuf fois sept.<sup>60</sup><i class="footnote">Le septuple de la lumière des sept jours de la création équivaut à quarante-neuf fois la lumière originelle de la création. (Rachi à Zacharie, 4:3). La lumière de la création était sept fois supérieure à notre lumière actuelle. (Tosafos à Bava Batra, 8:b). Par conséquent, la lumière du monde à venir sera cent quarante trois fois plus grande que notre lumière actuelle.</i>
+<b>Mais ceux qui l'aiment</b> comme le soleil émergeant dans sa pleine puissance dans le monde à venir, sept fois plus que la lumière des sept jours de la création, soit trois cent quarante trois contre un. Cela équivaut à quarante-neuf fois sept.<sup>60</sup><i class="footnote">Le septuple de la lumière des sept jours de la création équivaut à quarante-neuf fois la lumière originelle de la création. (Rachi à Zacharie, 4:3). La lumière de la création était sept fois supérieure à notre lumière actuelle. (Tosafos à Bava Batra, 8:b). Par conséquent, la lumière du monde à venir sera cent quarante trois fois plus grande que notre lumière actuelle.</i>
 <b>La terre fut tranquille pendant quarante ans.</b> Ces mots ne sont pas ceux de Devorah, mais ceux de l'auteur.
 
 >Crédit : sefaris

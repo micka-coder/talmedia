@@ -66,7 +66,7 @@
 <b>Ga'al ben Eved.</b> Il était d'une autre nation.
 
 ### passuk 27
-<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>Il se livrait à des carrousels.</b> Il exécutait des danses.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 28
 <b>Qui est Avimelech, et qui est Sichem.</b> Qui est Avimelech pour contrôler Sichem, et qui est Sichem pour être soumis à Avimelech ? Avimelech n'est-il pas le fils de Yerubaal, d'Ofros, des Aviezrites ?<sup>10</sup><i class="footnote"></i>.

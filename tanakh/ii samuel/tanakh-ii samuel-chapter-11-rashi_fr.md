@@ -17,7 +17,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Le repas du roi.</b> [Yonasan traduit :] le repas du roi.</sup>1</sup><i class="footnote">David envoya des hommes avec des provisions pour Urioh afin qu'il les mange chez lui.</i>
+<b>Le repas du roi.</b> [Yonathan traduit :] le repas du roi.</sup>1</sup><i class="footnote">David envoya des hommes avec des provisions pour Urioh afin qu'il les mange chez lui.</i>
 
 ### passuk 9
 

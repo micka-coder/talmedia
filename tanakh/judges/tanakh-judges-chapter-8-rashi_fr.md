@@ -9,7 +9,7 @@
 <b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que vos réalisations ?
 
 ### passuk 4
-<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Yardein après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Yardein, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
+<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Jourdain après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Jourdain, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
 
 ### passuk 5
 <b>Aux gens de Souccos.</b> Ils étaient Yisroélites.
@@ -41,12 +41,12 @@
 ### passuk 15
 
 ### passuk 16
-<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 17
 
 ### passuk 18
-<b>Singulier, d'apparence princière.</b> Yonasan explique que l'un d'entre eux était d'apparence princière.</sup>3</sup><i class="footnote">La lecture de Yonasan est : "Un était exactement comme toi, d'apparence princière."</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
+<b>Singulier, d'apparence princière.</b> Yonathan explique que l'un d'entre eux était d'apparence princière.</sup>3</sup><i class="footnote">La lecture de Yonathan est : "Un était exactement comme toi, d'apparence princière."</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
 
 ### passuk 19
 

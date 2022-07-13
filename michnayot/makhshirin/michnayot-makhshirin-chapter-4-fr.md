@@ -9,7 +9,7 @@ Si la pluie tombait sur une personne, même si elle était souillée par un pèr
 Si l'on incline un plat contre un mur pour qu'il soit rincé [par l'eau de pluie], cela relève de la loi de "if water be put". Mais si c'est pour que le mur ne soit pas endommagé, cela ne relève pas de la loi de "if water be put".
 
 ### michna 4
-Une jarre dans laquelle est tombée une fuite [d'un toit] : Bet Shammai disent : elle doit être brisée. Mais Bet Hillel disent : on peut la vider. Mais ils sont d'accord pour dire qu'on peut y mettre la main et en prendre des produits et qu'ils sont insusceptibles de souillure.
+Une jarre dans laquelle est tombée une fuite [d'un toit] : Bet Shammai disent : elle doit être brisée. Mais Bet Hillel disent : on peut la vider. Mais ils sont d'accord pour dire qu'on peut y mettre la main et en prendre des produits et qu'ils sont insusceptibles d'impureté.
 
 ### michna 5
 Une baignoire dans laquelle est tombée une fuite [d'un toit], l'eau qui a éclaboussé ou qui a coulé ne relève pas de la loi de "if water be put". Si l'on a déplacé la baignoire afin de verser l'eau : Bet Shammai disent : cela relève de la loi de "if water be put". Mais Bet Hillel disent : cela ne relève pas de la loi de "si l'eau est mise". Si l'on a placé la baignoire de manière à ce que la fuite [du toit] y tombe : Bet Shammai disent : l'eau qui éclabousse ou qui déborde relève de la loi de "if water be put". Mais Bet Hillel disent : cela ne relève pas de la loi de "si l'eau est mise". Si l'on a déplacé la baignoire afin de verser l'eau, les deux s'accordent à dire que cela relève de la loi de "if water be put". Si l'on a immergé des récipients ou lavé son vêtement dans une caverne, l'eau qui est remontée sur ses mains relève de la loi de "if water be put" ; mais ce qui est remonté sur ses pieds ne relève pas de la loi de "if water be put". Rabbi Eliezer dit : s'il ne lui était pas possible de descendre dans la caverne sans se souiller les pieds, ce qui est remonté sur ses pieds relève aussi de la loi du "if water be put".
@@ -21,7 +21,7 @@ Un panier rempli de lupins placé dans un mikvé, on peut tendre la main et y pr
 Si un produit est tombé dans un canal d'eau et qu'une personne dont les mains étaient impures a tendu les mains et l'a pris, ses mains deviennent propres et le produit reste propre. Mais si son intention était que ses mains soient rincées, ses mains deviennent propres et le produit tombe sous la loi de "if water be put.".
 
 ### michna 8
-Si un pot rempli d'eau a été placé dans un mikvé, et qu'une personne qui était impure par un père d'impureté a mis sa main dans le pot, celui-ci devient impur. Mais si [elle était impure] par un "contact de souillure", le pot reste pur. Mais tout autre liquide [contenu dans le pot] devient impur, car l'eau ne peut pas purifier les autres liquides.
+Si un pot rempli d'eau a été placé dans un mikvé, et qu'une personne qui était impure par un père d'impureté a mis sa main dans le pot, celui-ci devient impur. Mais si [elle était impure] par un "contact d'impureté", le pot reste pur. Mais tout autre liquide [contenu dans le pot] devient impur, car l'eau ne peut pas purifier les autres liquides.
 
 ### michna 9
 Si l'on a puisé de l'eau à travers un kilon (un rayon de pompe), cela provoque une susceptibilité à l'impureté pendant trois jours. Rabbi Akiva dit : si l'eau a été séchée, elle n'est pas immédiatement sujette à l'impureté ; mais si elle n'a pas été séchée, elle est sujette à l'impureté même pendant trente jours.

@@ -118,7 +118,7 @@ passuk 40
 
 passuk 41
 <b>Alors Moshé mit de côté.</b> [  יַבְדִיל  est le futur.] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il réfléchit dans son cœur pour se préoccuper de la question de les mettre [les villes] de côté. Et bien qu'ils n'offriraient pas l'asile jusqu'à ce que ces villes de Canaan soient mises de côté, Moshé a dit : une <i>mitzvah</i> que je peux accomplir, je l'accomplirai. 
-<b>Traverser le Yardein où le soleil se lève.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De ce côté qui est à l'est du Yardein.
+<b>Traverser le Jourdain où le soleil se lève.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>De ce côté qui est à l'est du Jourdain.
 <b>Là où le soleil se lève</b> Parce que  מִזְרָחָה " est à l'état de construction, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>la lettre <i>reish</i> est vocalisée avec un <i>chataf</i> [<i>sheva</i>], [signifiant] le lever du soleil  c'est-à-dire, le lieu du lever du soleil'. 
 
 passuk 42
@@ -134,7 +134,7 @@ passuk 45
 passuk 46
 
 passuk 47
-<b>Ceux qui étaient de l'autre côté du Yardein.</b> C'est-à-dire à l'est, car le second côté était à l'ouest. 
+<b>Ceux qui étaient de l'autre côté du Jourdain.</b> C'est-à-dire à l'est, car le second côté était à l'ouest. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

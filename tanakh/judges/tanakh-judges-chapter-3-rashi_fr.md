@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'ornéanmoins, 'j'ai vu la tribulation de mon peuple'." Otniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Otniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
+<b>L'esprit divin l'a visité.</b> R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitzrayim : " J'ai sûrement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> Quelles sont les deux vues ? <sup>2</sup><i class="footnote">"Seeing' J'ai "seen'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'ornéanmoins, 'j'ai vu la tribulation de mon peuple'." Otniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, " Il a jugé Yisraël " dans notre passage ne fait pas référence à la décision d'Otniel concernant un litige dans la salle d'audience, mais à son exposition de " J'ai vu " dans sa prière devant Hachem. Dans son "jugement", Yisrael devait être sauvé. (Radal là, 5)</i>
 
 ### passuk 11
 
@@ -35,7 +35,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Dont le bras droit était immobile.</b> Yonasan rend "Un homme dont le bras droit était rétréci". "Gamid" en araméen indique toujours quelque chose de rétréci par la maladie, "retrait", "rétréci" en vieux français. Il ne pouvait pas se servir de son bras droit. En hébreu, "fermé", comme dans "Que le puits ne ferme pas sa bouche sur moi."<sup>4</sup><i class="footnote">Tehilim, 69:16.</i> Son bras droit était "fermé" - il ne pouvait pas l'utiliser.
+<b>Dont le bras droit était immobile.</b> Yonathan rend "Un homme dont le bras droit était rétréci". "Gamid" en araméen indique toujours quelque chose de rétréci par la maladie, "retrait", "rétréci" en vieux français. Il ne pouvait pas se servir de son bras droit. En hébreu, "fermé", comme dans "Que le puits ne ferme pas sa bouche sur moi."<sup>4</sup><i class="footnote">Tehilim, 69:16.</i> Son bras droit était "fermé" - il ne pouvait pas l'utiliser.
 
 ### passuk 16
 <b>Un <i>gomed</i> de long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Batra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
@@ -49,8 +49,8 @@
 
 ### passuk 19
 <b>Il est ensuite revenu</b> seul.
-<b>Dans les carrières.</b> Une zone où les pierres étaient extraites de la montagne. De même, Yonasan rend "des carrières". Puis il se rendit à Eglon,<sup>6</sup><i class="footnote">Le retour d'Ehud' à Eglon n'est pas réellement abordé dans le texte. Rachi mentionne le retour dans un souci de clarification.</i> et lui déclara.<sup>7</sup><i class="footnote">J'ai une affaire, etc.</i>.
-<b>Il dit : "Hsst."</b> Eglon dit : "Faites taire tout le monde près de moi !". Yonasan rend : "Partez !"-"éloignez tout le monde. Néanmoins, le terme connote le silence.<sup>8</sup><i class="footnote">Silence en les éloignant.</i>
+<b>Dans les carrières.</b> Une zone où les pierres étaient extraites de la montagne. De même, Yonathan rend "des carrières". Puis il se rendit à Eglon,<sup>6</sup><i class="footnote">Le retour d'Ehud' à Eglon n'est pas réellement abordé dans le texte. Rachi mentionne le retour dans un souci de clarification.</i> et lui déclara.<sup>7</sup><i class="footnote">J'ai une affaire, etc.</i>.
+<b>Il dit : "Hsst."</b> Eglon dit : "Faites taire tout le monde près de moi !". Yonathan rend : "Partez !"-"éloignez tout le monde. Néanmoins, le terme connote le silence.<sup>8</sup><i class="footnote">Silence en les éloignant.</i>
 
 ### passuk 20
 <b>Dans la véranda de son penthouse.</b> Dans le penthouse d'été qui était aéré et frais.
@@ -63,7 +63,7 @@
 <b>La garde.</b> Le fer dans lequel est insérée la lame, appelé "hulot" en ancien français. Cela permet d'équilibrer l'épée dans son fourreau.
 <b>La lame.</b> La partie aiguisée, appelée "brant" et "lama" en ancien français.
 <b>La graisse fermée.</b> Sa graisse. Il était extrêmement corpulent, de sorte qu'il enfermait toute la longueur de la dague.
-<b>Les déchets ont suinté.</b> Yonasan rend : "Les déchets renversés ont suinté". Il lit cela comme une contraction de deux mots, le "shin" servant aux deux. <sup>9</sup><i class="footnote"> <span>ï "- '"</span>est lu comme <span>ï "' /span>, "déchets déversés", avec le milieu <span></span> servant de dernière lettre de <span>ï "ַרְï¬</span> et de première lettre de <span>ï¬ְדֹֽנׇה</span>. </i> "déchets déversés" [suintés].<sup>10</sup><i class="footnote">Les déchets se sont d'abord déversés de l'abdomen dans le corps, puis ils ont suinté de la plaie. (Ralbag).</i><span>ï¬ֶרֶ</span>, "répandu", est la traduction de <span>ï¬ְד</span><sup>11</sup><i class="footnote">Ou <span>ï¬נׇא</span>.</i> selon Yonasan.
+<b>Les déchets ont suinté.</b> Yonathan rend : "Les déchets renversés ont suinté". Il lit cela comme une contraction de deux mots, le "shin" servant aux deux. <sup>9</sup><i class="footnote"> <span>ï "- '"</span>est lu comme <span>ï "' /span>, "déchets déversés", avec le milieu <span></span> servant de dernière lettre de <span>ï "ַרְï¬</span> et de première lettre de <span>ï¬ְדֹֽנׇה</span>. </i> "déchets déversés" [suintés].<sup>10</sup><i class="footnote">Les déchets se sont d'abord déversés de l'abdomen dans le corps, puis ils ont suinté de la plaie. (Ralbag).</i><span>ï¬ֶרֶ</span>, "répandu", est la traduction de <span>ï¬ְד</span><sup>11</sup><i class="footnote">Ou <span>ï¬נׇא</span>.</i> selon Yonathan.
 
 ### passuk 23
 <b>Ehud sortit dans le couloir.</b> Du penthouse au <span>מסדרונה"</span>, traduit par le Targum Yonathan par 'couloir'.
@@ -82,12 +82,12 @@
 <b>Dans le sous-bois.</b> Forêt à branches fines, fortement boisée, appelée "brousaille", brush, en vieux français, excellente pour se dissimuler. Fréquemment, dans l'ordre de Zeraim, les branches fines sont appelées "sa'ar"- [Il] renversa les branches,"<sup>16</sup><i class="footnote">Kilayim, 4:9.</i> "Si les branches s'engrènent."<sup>17</sup><i class="footnote">Peah, 2:3.</i>
 
 ### passuk 27
-<b>Il arriva que, lorsqu'il arriva.</b> Il traversa le Yardein, et arriva à sa place dans le pays de Canaan.<sup>18</sup><i class="footnote">Le texte omet la traversée du Yardein par Ehud et son arrivée à Canaan. Rashi mentionne ces événements à des fins de clarification.</i>
-<b>Au mont Ephrayim.</b> Qui était dans le pays de Canaan, sur le côté ouest du Yardein. Le pays de Moav était sur le côté oriental du Yardein, mais comme ils avaient soumis Yisrael et traversé le Yardein, ils ont occupé Yericho comme indiqué ci-dessus, et installé leurs princes et gouverneurs sur Yisrael.
+<b>Il arriva que, lorsqu'il arriva.</b> Il traversa le Jourdain, et arriva à sa place dans le pays de Canaan.<sup>18</sup><i class="footnote">Le texte omet la traversée du Jourdain par Ehud et son arrivée à Canaan. Rashi mentionne ces événements à des fins de clarification.</i>
+<b>Au mont Ephrayim.</b> Qui était dans le pays de Canaan, sur le côté ouest du Jourdain. Le pays de Moav était sur le côté oriental du Jourdain, mais comme ils avaient soumis Yisrael et traversé le Jourdain, ils ont occupé Yericho comme indiqué ci-dessus, et installé leurs princes et gouverneurs sur Yisrael.
 
 ### passuk 28
-<b>Chargez derrière moi</b> pour exterminer tous les Moabites de notre côté de Yardein.
-<b>Prise de contrôle des cols de Yardein</b> afin que les Moabites ne puissent pas traverser pour s'échapper et retourner dans leur pays.
+<b>Chargez derrière moi</b> pour exterminer tous les Moabites de notre côté de Jourdain.
+<b>Prise de contrôle des cols de Jourdain</b> afin que les Moabites ne puissent pas traverser pour s'échapper et retourner dans leur pays.
 
 ### passuk 29
 <b>Tous horribles [lit. corpulent].</b> Chaque homme inspire l'admiration.

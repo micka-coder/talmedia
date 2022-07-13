@@ -42,7 +42,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Ils ont traversé le Yardein.</b> Ils l'ont traversé avec leurs radeaux.
+<b>Ils ont traversé le Jourdain.</b> Ils l'ont traversé avec leurs radeaux.
 
 ### passuk 19
 <b>Le bac a traversé.</b> Le bac qui était utilisé pour passer de l'autre côté de la largeur du fleuve.
@@ -93,7 +93,7 @@
 <b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos sages de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Shabbos 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
 
 ### passuk 37
-<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Yardein.
+<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Jourdain.
 <b>Ce type de récompense.</b> Ce n'est pas bon pour moi.
 
 ### passuk 38

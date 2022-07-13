@@ -66,7 +66,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Pour qui les dirigeants sont allés.</b> Moshé et Aharon comme il est dit, (Shemos 7:1). "Je t'ai fait juge sur Pharaon" et de même Yonasan a traduit : "des messagers sont partis de devant Hachem".
+<b>Pour qui les dirigeants sont allés.</b> Moshé et Aharon comme il est dit, (Shemos 7:1). "Je t'ai fait juge sur Pharaon" et de même Yonathan a traduit : "des messagers sont partis de devant Hachem".
 <b>Pour racheter pour Lui un peuple.</b> C'est ce que les messagers ont dit à Yisrael, Le Saint, béni soit-il nous a envoyés pour racheter pour Lui un peuple, pour mettre en avant Son Nom et pour faire de grandes [choses] pour vous.
 <b>Des choses impressionnantes</b> Vous avez fait pour votre pays après que [les Bnei Yisrael] en soient sortis [c'est-à-dire en Égypte]. Et quelles sont ces choses impressionnantes ? Devant ton peuple, tu as chassé les nations et leurs dieux. Il manque à ce verset [le mot] "<span>לגרש</span>", [cependant] dans le Divrei Hayomim (I 17:21) il est expliqué : "Pour expulser de devant Ton peuple que Tu as racheté d'Égypte, les nations et leurs dieux." [Notre verset] n'est pas [vraiment] dépourvu [de ce mot] car d'après le sens véhiculé lorsqu'il est dit : " De devant Ton peuple, les nations ", nous comprenons qu'il signifie poussé et chassé.
 

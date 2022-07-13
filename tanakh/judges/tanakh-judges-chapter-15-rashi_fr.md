@@ -44,7 +44,7 @@
 <b>Humide.</b> Humide. J'ai vu un lexique médical qui désigne le pus suintant d'une plaie comme <span><b>טְרִיָה"</b></span>.
 
 ### passuk 16
-<b>J'ai amassé des monticules</b> avec la mâchoire d'un âne, amassant de nombreux monticules. "Avec la mâchoire d'un âne, je les ai précipités dans des monticules."<sup>11</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>J'ai amassé des monticules</b> avec la mâchoire d'un âne, amassant de nombreux monticules. "Avec la mâchoire d'un âne, je les ai précipités dans des monticules."<sup>11</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 17
 

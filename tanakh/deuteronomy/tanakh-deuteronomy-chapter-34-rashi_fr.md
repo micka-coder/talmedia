@@ -12,7 +12,7 @@
 
 ### passuk 3
 <b>Et le Néguev.</b> Le territoire du sud. Une autre interprétation : La grotte de Machpéla, comme il est dit : "Ils sont montés au Néguev, et il s'est avancé jusqu'à Chevron". 
-<b>Et la plaine.</b> Il lui montra Shlomo coulant les vases pour le Beit Hamikdash, comme il est dit : "Dans la plaine de Yardein, le roi les coula, sous la surface du sol". 
+<b>Et la plaine.</b> Il lui montra Shlomo coulant les vases pour le Beit Hamikdash, comme il est dit : "Dans la plaine de Jourdain, le roi les coula, sous la surface du sol". 
 
 ### passuk 4
 <b>En disant : "Je la donnerai à tes descendants'. Je te l'ai montré.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pour que tu ailles dire à Avrohom, Yitzchak et Yaakov : "Le serment que le Saint, qu'Il soit béni, vous a prononcé s'est accompli.' C'est [la déduction de] " dire "  c'est pour cela que je te l'ai montré. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cependant, il a été décrété devant Moi que tu n'y feras pas le passage. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Sans cela, Je t'aurais soutenu jusqu'à ce que tu les aies observés implantés et établis en elle, afin que tu puisses aller de l'avant et leur rapporter cela. 

@@ -12,7 +12,7 @@
 
 ### passuk 5
 <b>Sous le dattier [de Devorah].</b> Elle possédait des dattiers à Yericho.
-<b>Entre Rama et Beis El, sur le mont Ephrayim.</b> D'après la traduction de Yonasan<sup>4</sup><i class="footnote">Targum Yonathan rend : "Elle vivait dans la ville d'Ataros". Devorah était financièrement indépendante. Elle possédait des dattiers à Yericho, des vergers à Rama, des oliviers producteurs d'huile dans les zones humides du plateau de Beis Eil, de la terre blanche à Tur Malka."</i> Nous en déduisons que ce passage n'a pas un sens littéral  que ces mots ne sont pas destinés à identifier son lieu de résidence. Nous apprenons plutôt qu'il s'agissait d'une femme aisée, ayant des intérêts financiers dans ces lieux. Elle vivait dans une ville nommée Ataros.
+<b>Entre Rama et Beis El, sur le mont Ephrayim.</b> D'après la traduction de Yonathan<sup>4</sup><i class="footnote">Targum Yonathan rend : "Elle vivait dans la ville d'Ataros". Devorah était financièrement indépendante. Elle possédait des dattiers à Yericho, des vergers à Rama, des oliviers producteurs d'huile dans les zones humides du plateau de Beis Eil, de la terre blanche à Tur Malka."</i> Nous en déduisons que ce passage n'a pas un sens littéral  que ces mots ne sont pas destinés à identifier son lieu de résidence. Nous apprenons plutôt qu'il s'agissait d'une femme aisée, ayant des intérêts financiers dans ces lieux. Elle vivait dans une ville nommée Ataros.
 <b>Sous le dattier [de Devorah].</b> Elle possédait des dattiers à Yericho, des vignes à Rama, des oliviers sur le plateau de Béthel, une zone fertile, et de la terre blanche au Mont Ephrayim, à Tur Malka. A mon avis, cette dernière a été vendue pour être utilisée en céramique. Certains interprètent la "terre blanche" comme des champs de céréales, comme dans "le champ de céréales [lit. "blanc"]."<sup>5</sup><i class="footnote">Le Talmud [Moed Katan, 6:b, etc. ] fait référence au champ de céréales comme <span>ï¬"½ֽדֵה לׇכׇן</span>, littéralement "champ blanc".Rashi [Pe'ah, 3:1] explique que c'est parce que les céréales blanchissent lorsqu'elles sont mûres pour la récolte. Ou encore, pour distinguer le champ de céréales, qui est soumis à l'éblouissement blanc du soleil, et le verger, qui est assombri par l'ombre des arbres.</i>
 
 ### passuk 6
@@ -44,7 +44,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Avec un manteau.</b> Yonasan rend <span>נְכׇא</span>. R' Hai traduit <span>' </span> par manteau, "Coate" en vieux français.
+<b>Avec un manteau.</b> Yonathan rend <span>נְכׇא</span>. R' Hai traduit <span>' </span> par manteau, "Coate" en vieux français.
 
 ### passuk 19
 <b>La poche de lait.</b> Comme le lait induit la somnolence, puis le sommeil.</sup></sup><i class="footnote">Il a demandé de l'eau. Pourquoi lui a-t-elle donné du lait ? Pour le rendre somnolent.</i>
@@ -56,7 +56,7 @@
 <b>Un piquet de tente.</b> "Chevilles" en ancien français. On l'enfonce dans le sol avec le rabat inférieur de la tente afin de l'étendre complètement.
 <b>Un marteau.</b> Marteau, "martel" en ancien français.
 <b>Furtivement.</b> Furtivement, en secret.
-<b>Et l'empalèrent dans le sol.</b><span>ï¬נְעַצַ</span>,<sup>12</sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i> et l'empalèrent dans le sol.
+<b>Et l'empalèrent dans le sol.</b><span>ï¬נְעַצַ</span>,<sup>12</sup><i class="footnote">C'est la traduction du Targum Yonathan.</i> et l'empalèrent dans le sol.
 
 ### passuk 22
 <b>Dans son front.</b><span>ï¬±ְצִידֽעֵיה"</span>, "tenplia" en ancien français. Elle avait pénétré son front et le sol.

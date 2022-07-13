@@ -27,7 +27,7 @@
 <b>Comme Hachem t'a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon la bénédiction, apporter. 
 
 ### passuk 8
-<b>Vous ne ferez pas tout ce que nous faisons, etc.</b> C'est la suite de ce qui précède, à partir de " Car vous traverserez le Yardein, etc. "<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque vous traverserez le Yardein, il vous sera immédiatement permis d'apporter des offrandes sur l'autel personnel <i>bamah</i>, tout au long des quatorze années de conquête et de répartition. Cependant, sur l'autel personnel, vous ne pourrez pas offrir tout ce que vous offrez ici, aujourd'hui, au Mishkan, qui reste avec vous et qui a été oint. C'est un lieu approprié pour apporter les offrandes de péché et de culpabilité, ainsi que les offrandes promissoires et contributives. Cependant, sur l'autel personnel <i>bamah</i>, on ne peut rien offrir, sauf les offrandes promissoires et contributives, et c'est le sens de "chacun ce qui est droit à ses yeux". Les offrandes promissoires et contributives, que l'on donne parce que l'on pense qu'il est approprié de les apporter et non parce que l'on <i>doit</i> Celles-ci peuvent être offertes sur un autel personnel <i>bamah</i>. 
+<b>Vous ne ferez pas tout ce que nous faisons, etc.</b> C'est la suite de ce qui précède, à partir de " Car vous traverserez le Jourdain, etc. "<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Lorsque vous traverserez le Jourdain, il vous sera immédiatement permis d'apporter des offrandes sur l'autel personnel <i>bamah</i>, tout au long des quatorze années de conquête et de répartition. Cependant, sur l'autel personnel, vous ne pourrez pas offrir tout ce que vous offrez ici, aujourd'hui, au Mishkan, qui reste avec vous et qui a été oint. C'est un lieu approprié pour apporter les offrandes de péché et de culpabilité, ainsi que les offrandes promissoires et contributives. Cependant, sur l'autel personnel <i>bamah</i>, on ne peut rien offrir, sauf les offrandes promissoires et contributives, et c'est le sens de "chacun ce qui est droit à ses yeux". Les offrandes promissoires et contributives, que l'on donne parce que l'on pense qu'il est approprié de les apporter et non parce que l'on <i>doit</i> Celles-ci peuvent être offertes sur un autel personnel <i>bamah</i>. 
 
 ### passuk 9
 <b>Parce que tu ne seras pas venu.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Pendant ces quatorze années.
@@ -36,7 +36,7 @@
 <b>Le territoire.</b> Il s'agit de Jérusalem.
 
 ### passuk 10
-<b>Lorsque vous traverserez le Yardein et que vous vous installerez dans le pays.</b> Lorsque vous l'aurez réparti, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et que chacun distinguera sa portion et sa tribu. 
+<b>Lorsque vous traverserez le Jourdain et que vous vous installerez dans le pays.</b> Lorsque vous l'aurez réparti, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et que chacun distinguera sa portion et sa tribu. 
 <b>Et Il vous a accordé la paix.</b> Après la conquête et la répartition, et la paix avec les nations qu'Hachem a permis de rester afin de tester Yisrael - ce qui ne s'est pas produit jusqu'à l'époque de David - ensuite : 
 
 ### passuk 11

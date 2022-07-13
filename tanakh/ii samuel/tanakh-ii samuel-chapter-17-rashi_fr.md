@@ -42,7 +42,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Traversez-la.</b> Le Yardein.
+<b>Traversez-la.</b> Le Jourdain.
 <b>Parce que [ma suggestion] peut être rejetée par le roi.</b> Que je ne l'ai pas bien conseillé et [qu'au contraire] il procédera selon le conseil d'Achitophel.
 <b>Rejeté.</b> On le lui dira secrètement et par une méthode cachée.
 

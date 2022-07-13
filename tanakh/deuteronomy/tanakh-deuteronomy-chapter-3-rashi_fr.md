@@ -46,7 +46,7 @@
 <b>Dans l'oued et la frontière.</b> Tout l'oued et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>jusqu'à sa rive opposée. En d'autres termes,  עַד " ne signifie pas seulement jusqu'à mais inclut tout ce qui s'y trouve et même plus. 
 
 ### passuk 17
-<b>De Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est sur le côté ouest du Yardein. L'héritage des Bnei Gad était sur le côté oriental du Yardein et leur héritage comprenait la largeur du Yardein attenant à leurs terres, plus [quelques] terres sur son côté opposé jusqu'à Kinneres. C'est donc ce qui est dit ici, "Et le Yardein et la frontière", Le Yardein et (quelques terres) sur son côté opposé. 
+<b>De Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'est sur le côté ouest du Jourdain. L'héritage des Bnei Gad était sur le côté oriental du Jourdain et leur héritage comprenait la largeur du Jourdain attenant à leurs terres, plus [quelques] terres sur son côté opposé jusqu'à Kinneres. C'est donc ce qui est dit ici, "Et le Jourdain et la frontière", Le Jourdain et (quelques terres) sur son côté opposé. 
 
 ### passuk 18
 <b>Je vous ai ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il parlait aux Bnei Reouven et aux Bnei Gad.

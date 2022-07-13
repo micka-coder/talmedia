@@ -18,10 +18,10 @@
 <b>Avec tous les [instruments faits de] bois de cyprès.</b> Instruments de musique fabriqués à partir de [bois de cyprès].
 
 ### passuk 6
-<b>Parce que le boeuf l'avait [fait] glisser.</b> Parce que le boeuf l'avait [fait] glisser et l'avait secoué Et ainsi à est la traduction de Yonasan, "parce que le boeuf l'avait [fait] glisser", comme [Onkelus] traduit [le verset], "et sa main glisse sur la hache" [comme suit :] et sa main glisse sur la hache. <sup>6</sup><i class="footnote">Substituant le mot hébreu <span>וְנִדְּחָה"</span> par la traduction amarique, <span>וְתִתְמְרִיג'</span> désignant le glissement tout comme il utilise le même mot amarique dans notre verset, c'est-à-dire , <span>מְרָגוּהִי</span>.</i>
+<b>Parce que le boeuf l'avait [fait] glisser.</b> Parce que le boeuf l'avait [fait] glisser et l'avait secoué Et ainsi à est la traduction de Yonathan, "parce que le boeuf l'avait [fait] glisser", comme [Onkelus] traduit [le verset], "et sa main glisse sur la hache" [comme suit :] et sa main glisse sur la hache. <sup>6</sup><i class="footnote">Substituant le mot hébreu <span>וְנִדְּחָה"</span> par la traduction amarique, <span>וְתִתְמְרִיג'</span> désignant le glissement tout comme il utilise le même mot amarique dans notre verset, c'est-à-dire , <span>מְרָגוּהִי</span>.</i>
 
 ### passuk 7
-<b>En raison de son erreur.</b> En raison de son erreur, il aurait dû exposer a fortiori [comme suit :] l'Arche a porté ses propres porteurs dans le Yardein,<sup>7</sup><i class="footnote">Lorsque les Bnei Yisrael ont traversé le Yardein pour entrer dans le pays de Yisrael, comme indiqué dans Yehoshua 4:11 et expliqué dans Sotah, ibid.</i> n'est-ce pas d'autant plus [qu'elle est capable de se porter] elle-même.
+<b>En raison de son erreur.</b> En raison de son erreur, il aurait dû exposer a fortiori [comme suit :] l'Arche a porté ses propres porteurs dans le Jourdain,<sup>7</sup><i class="footnote">Lorsque les Bnei Yisrael ont traversé le Jourdain pour entrer dans le pays de Yisrael, comme indiqué dans Yehoshua 4:11 et expliqué dans Sotah, ibid.</i> n'est-ce pas d'autant plus [qu'elle est capable de se porter] elle-même.
 
 ### passuk 8
 
@@ -39,7 +39,7 @@
 
 ### passuk 14
 <b>Dansé.</b> Dansé.
-<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en ancien français Yonasan a traduit, peignoir comme Yonasan a aussi traduit "les robes de Tomor, la soeur d'Avsholom," robes (Plus loin, 13:18).
+<b>Peignoir de lin.</b> Un peignoir de lin, <i>Foursaint</i> en ancien français Yonathan a traduit, peignoir comme Yonathan a aussi traduit "les robes de Tomor, la soeur d'Avsholom," robes (Plus loin, 13:18).
 
 ### passuk 15
 

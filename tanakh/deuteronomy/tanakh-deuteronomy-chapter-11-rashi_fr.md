@@ -109,13 +109,13 @@
 
 ### passuk 30
 <b>Ne sont-ils pas.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ceci fournit les repères.
-<b>Loin au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Loin après la traversée du Yardein, dans la distance au-delà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme l'indique le mot "au-delà". Partout où  אַחֲרֵי   "au-delà" est mentionné, il est fait référence à une grande distance. 
-<b>Le long de la route du coucher du soleil.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au delà du Yardein, vers l'ouest. La cantillation du passage prouve qu'il s'agit de deux matières, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>puisqu'elles sont ponctuées de deux symboles de cantillation ;  אַחֲרֵי, " loin au-delà ", est ponctué du symbole <i>pashta</i>, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors que  דֶרֶךְ, " la route ", est ponctué du symbole <i>mishpal</i>, et est en pointillé. Si  אַחֲרֵי דֶּרֶךְ, "loin au-delà de la route", était une seule phrase, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors  אַחֲרֵי, "loin au-delà, " serait ponctué du symbole <i>meshares</i> - l'inverse de <i>shofar</i> - et  דֶּרֶךְ, "route," serait ponctué du symbole <i>pashta</i>, et ne serait pas noté. 
+<b>Loin au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Loin après la traversée du Jourdain, dans la distance au-delà, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme l'indique le mot "au-delà". Partout où  אַחֲרֵי   "au-delà" est mentionné, il est fait référence à une grande distance. 
+<b>Le long de la route du coucher du soleil.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Au delà du Jourdain, vers l'ouest. La cantillation du passage prouve qu'il s'agit de deux matières, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>puisqu'elles sont ponctuées de deux symboles de cantillation ;  אַחֲרֵי, " loin au-delà ", est ponctué du symbole <i>pashta</i>, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors que  דֶרֶךְ, " la route ", est ponctué du symbole <i>mishpal</i>, et est en pointillé. Si  אַחֲרֵי דֶּרֶךְ, "loin au-delà de la route", était une seule phrase, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>alors  אַחֲרֵי, "loin au-delà, " serait ponctué du symbole <i>meshares</i> - l'inverse de <i>shofar</i> - et  דֶּרֶךְ, "route," serait ponctué du symbole <i>pashta</i>, et ne serait pas noté. 
 <b>Opposé à Gilgal.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>À une certaine distance de Gilgal.
 <b>Plaine de Moreh.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Sichem, comme il est dit : "Jusqu'au territoire de Sichem - jusqu'à la plaine de Moreh". 
 
 ### passuk 31
-<b>Parce que vous traverserez le Yardein, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les miracles au Yardein présageront, pour vous, que vous entrerez dans le pays et en prendrez possession. 
+<b>Parce que vous traverserez le Jourdain, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Les miracles au Jourdain présageront, pour vous, que vous entrerez dans le pays et en prendrez possession. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

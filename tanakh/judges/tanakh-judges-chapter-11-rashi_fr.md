@@ -44,7 +44,7 @@
 <b>Ils ont ensuite continué à travers le désert</b> d'ouest en est, le long des frontières sud d'Edom et de Moav.
 <b>Circonscription du pays d'Edom.</b> Toute sa frontière sud.
 <b>Et le pays de Moav.</b> Toute sa frontière sud. Lorsqu'ils ont atteint l'angle sud-est, ils ont fait un angle vers le nord en suivant la périphérie de la frontière orientale.
-<b>Arrivèrent à l'est du pays de Moav et campèrent en face de Arnon.</b> A l'extrémité de la frontière orientale du pays de Moav. C'était le point de départ des terres de Sichon et d'Og. Ils conquirent le territoire trans-yardéen à l'est du pays de Canaan, traversèrent le Yardein et envahirent le pays de Canaan par la route orientale.
+<b>Arrivèrent à l'est du pays de Moav et campèrent en face de Arnon.</b> A l'extrémité de la frontière orientale du pays de Moav. C'était le point de départ des terres de Sichon et d'Og. Ils conquirent le territoire trans-yardéen à l'est du pays de Canaan, traversèrent le Jourdain et envahirent le pays de Canaan par la route orientale.
 
 ### passuk 19
 
@@ -54,7 +54,7 @@
 
 ### passuk 22
 <b>Ils prirent possession, etc., depuis Arnon jusqu'au Yabok.</b> Ce que tu revendiques comme tien, ils l'annexèrent depuis Sichon.
-<b>Du désert jusqu'au Yardein.</b> Il y avait une zone sauvage attenante au Yardein.
+<b>Du désert jusqu'au Jourdain.</b> Il y avait une zone sauvage attenante au Jourdain.
 
 ### passuk 23
 
@@ -80,7 +80,7 @@
 ### passuk 32
 
 ### passuk 33
-<b>La plaine des vignes.</b> La plaine des vignes.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan's.</i>
+<b>La plaine des vignes.</b> La plaine des vignes.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
 
 ### passuk 34
 
