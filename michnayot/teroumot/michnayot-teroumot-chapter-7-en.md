@@ -22,26 +22,3 @@ If he used one of these [baskets] as seed, he is exempt, and the second is treat
 
 >Credit : Dr. Joshua Kulp
 >License : CC-BY
-### michna 1
-One who eats Terumah [produce consecrated for priestly consumption] intentionally must pay the principal value but need not pay the [additional] fifth. The Tashlumin [payments for what was wrongfully eaten] are Chulin [non-sacred produce, and] if the priest wishes to forego [the payments], he may forego.
-
-### michna 2
-A daughter of a priest who married an Israelite and afterwards ate Terumah, she must pay the principal value but does not pay the [additional] fifth. Her death [penalty if she commits adultery] is by burning. If she married one of the ineligible [to marry a daughter of a priest], she must pay the principal value and the fifth, and her death [penalty] is by strangulation. These are the words of Rabbi Meir. The Sages say that both cases must pay the principal value but not pay the fifth, and their deaths are by burning.
-
-### michna 3
-One who feeds Terumah to his young children, or to his slaves, whether they are adult or young, as well as one who eats Terumah of Chutz LaAretz [outside of the Land of Israel], and one who eats less than an olive-bulk of Terumah, must repay the principal value, but need not pay the fifth. The Tashlumin are Chulin, [and] if the priest wishes to forego [the payments], he may forego.
-
-### michna 4
-This is the general principle: whenever one has to pay both the principal value and the fifth, the Tashlumin are Terumah, [and] if the priest wishes to forego [the payments], he may not forego. But whenever one has to pay the principal value and not pay the fifth, the Tashlumin remain Chulin, [and] if the priest wishes to forego [the payments], he may forego.
-
-### michna 5
-If there were two baskets, one of Terumah and one of Chulin, and a Se'ah [specific unit of volume] of Terumah fell into one of them, but it is not known into which it fell, behold I can assume that it had fallen into that of the Terumah. [If] it is not known which was of Terumah and which of Chulin, if he eats from one of them he is exempt, and the second [basket] is treated as [if it were] Terumah and requires Challah [dough that must be set aside for the priest], the words of Rabbi Meir. But Rabbi Yosi exempts. If another person eats from the second basket he is exempt. If one man ate of both, he must repay according to [the value of] the smaller of the two.
-
-### michna 6
-If one of these [baskets] fell into Chulin, it does not render it a forbidden mixture, and the second [basket] is treated as [if it were] Terumah and requires Challah, the words of Rabbi Meir. Rabbi Yosi exempts. If the second [basket] falls into another place [that is Chulin ], it does not render [that other place] a forbidden mixture. If both of them fall into one place, they render it Demai according to [the proportion of] the smaller of the two.
-
-### michna 7
-One who used one of these [baskets] as seed, he is exempt, and the second is treated as if it were Terumah and requires Challah, the words of Rabbi Meir. But Rabbi Yosi exempts. If another person uses the second as seed, he is exempt. If one man uses both as seed, if it is of a kind whose seed disintegrates [in the ground] it is permitted, but if it is of the kind whose seed does not disintegrate it is prohibited.
-
->Credit : Sefaria Community Translation
->License : CC0

@@ -28,32 +28,3 @@ Terumah given by a non-Jew or a Samaritan is terumah and their tithes are tithes
 
 >Credit : Dr. Joshua Kulp
 >License : CC-BY
-### michna 1
-If one set aside a gourd as Terumah [produce consecrated for priestly consumption] and it was found to be bitter, a melon and it was found to be rotten, it is [considered valid] Terumah but he must again give Terumah. If one set aside a barrel of wine as Terumah and it was found to be vinegar, if it was known to be vinegar before he set it aside as Terumah, is is [not considered valid] Terumah. But if it had become vinegar after he had given it as Terumah, behold it is Terumah. In a case of doubt, it is Terumah but he must again give Terumah. The first [set of Terumah ] will not render on its own [another substance that it falls] a forbidden mixture and does not require a fine of a fifth [of its value if eaten by an Israelite], and so too with the second [set of Terumah ].
-
-### michna 2
-If one of them fell into Chulin [non-sacred produce], it does not render [the Chulin ] a forbidden mixture. If the second fell into a different place, it does not render [that place] a forbidden mixture. If both fell into the same place, it renders it a forbidden mixture according to the smaller one.
-
-### michna 3
-Partners who set aside Terumah, the one after the other: Rabbi Akiva says: the Terumah of both of them is [valid] Terumah. But the Sages say: [only] the Terumah of the first is Terumah. Rabbi Yosi says: if the first set aside Terumah according to the prescribed amount, the Terumah of the second is not Terumah, but if the first did not set aside Terumah according to the prescribed amount, the Terumah of the second is Terumah.
-
-### michna 4
-To what does this apply? Only if one did not confer [with the other], but if one permits a member of his household, or his male slave or female slave to set aside Terumah [for him], this Terumah is [considered valid] Terumah. If he annulled [this permission]: If he annulled it before he set aside Terumah, the Terumah is not [valid] Terumah. But if he annulled it after he set aside Terumah, the Terumah is Terumah. Workers have no permission to give Terumah, except for those who tread [grapes] for they immediately make the winepress impure.
-
-### michna 5
-If one says: “The Terumah of this pile is within it,” or, “its tithes are within it,” or, “the Terumat Ma'aser [a portion of the tithes that are given to the priest] is within it,” Rabbi Shimon says: he has [thereby] designated it [as Terumah, tithes, or Terumat Ma'aser ]. But the Sages say: not unless he said, “It is in the north or south of it.” Rabbi Elazar Chisma says: if one says, “The Terumah of this pile is taken from it for it,” he has [thereby] designated it. Rabbi Eliezer ben Yaakov says: if one says, “The tenth part of this tithe is made into Terumat Ma'aser for it,” he has [thereby] designated it.
-
-### michna 6
-If one sets aside Terumah before Bikurim [first-fruits that must be given to the priest], or Ma'aser Rishon [first tithe, which must be given to the Levite] before Terumah, or Ma'aser Sheni [second tithe, which must be eaten in Jerusalem] before Ma'aser Rishon, although he transgresses a negative commandment, that which he has done is done, for it is said: “You shall not delay your grain harvests and your grape harvests” (Exodus 22:28).
-
-### michna 7
-From where [do we derive] that [the setting aside of] Bikurim must precede Terumah, seeing that this one is called “ Terumah ” and “the first” and the other is [also] called “ Terumah ” and “the first”? Rather Bikurim take precedence since they are the first-fruits of all produce. And Terumah precedes Ma'aser Rishon because it is called “first.” And Ma'aser Rishon precedes Ma'aser Sheni because it includes that which is called “first” [ Terumat Ma'aser ].
-
-### michna 8
-He who intends to say ‘ Terumah ’ and says ‘tithe’, [or] ‘tithe’ and says ‘ Terumah ’ [or who intends to say] ‘ Olah ’ [burnt-offering] and he says ‘ Shelamim ’ [burnt offering, or] ‘ Shelamim ’ and he says ‘ Olah ’ [or who intends to vow that] ‘I will not enter this house,’ and says, ‘that house,’ [or] ‘That I will not give any benefit to this [man],’ and says ‘to that [man],’ he has said nothing until his mouth and mind are equivalent.
-
-### michna 9
-A non-Jew and a Cuthite, their Terumah is [considered valid] Terumah and their tithes are [valid] tithes and their Hekdesh [consecrated donations] is [valid] Hekdesh. Rabbi Yehudah says: the non-Jew does not have Kerem Revai [fruits in the four year after their planting, which are considered sacred]. But the Sages say: he does have it. The Terumah of a non-Jew makes [produce into which it falls into] a forbidden mixture, and [one who eats it unintentionally] is obligated [to pay back an extra] fifth. But Rabbi Shimon exempts him.
-
->Credit : Sefaria Community Translation
->License : CC0

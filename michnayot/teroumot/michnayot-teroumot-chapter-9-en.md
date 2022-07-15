@@ -22,26 +22,3 @@ He who weeds allium plants (whose seeds do not disintegrate) for a Gentile, even
 
 >Credit : Dr. Joshua Kulp
 >License : CC-BY
-### michna 1
-One who plants Terumah [produce consecrated for priestly consumption], if unintentionally, must overturn it. If intentionally, he must allow it to remain. If it had already produced a third [of its full size], whether unintentionally or intentionally, he must allow it to remain. But in the case of flax, [even if planted] intentionally he must overturn it.
-
-### michna 2
-And [ Terumah that has been planted is] obligated in Leket [fallen gleanings given to the poor], Shikhecha [forgotten sheaves given to the poor], and Pe'ah [corner of a field that must be given to the poor]. The poor of the Israelites and the poor of the priests may glean them, but the poor of the Israelites must sell theirs to the priests for the price of Terumah and the money is theirs. Rabbi Tarfon says: none may glean except the poor of the priests, lest [Israelite gleaners] forget and put it into their mouths. Rabbi Akiva said to him: if so, then none may glean except the pure.
-
-### michna 3
-And [ Terumah that has been planted is] obligated in tithes and the poor man’s tithe. The poor of the Israelites and the poor of the priests may take them, but the poor of the Israelites must sell theirs to the priests for the price of Terumah and the money is theirs. He who beats [the grain with sticks] is praiseworthy. But he who threshes it [with an animal], how should he do it? He should suspend baskets from the neck of the animal and place in them [grain] from the same kind [as that being threshed], with the result that he will neither muzzle the animal nor feed [it] the Terumah.
-
-### michna 4
-The growths of Terumah [seeds] are Terumah, but the growths of their growths are Chulin [non-sacred produce]. But non-tithed produce, and Ma'aser Rishon [first tithe, which must be given to the Levite], and after-growths from the Sabbatical year, and Terumah grown in Chutz La'Aretz [outside the Land of Israel], and mixtures that are meduma [mixture of Chulin (permitted foodstuff) and Terumah that is forbidden to non-Kohanim and Bikurim [first-fruits that must be given to the priest]—their growths are Chulin. The growths of Hekdesh [consecrated donation] and Ma'aser Sheni [second tithe, which must be eaten in Jerusalem] are Chulin, and one redeems them at the time when they are planted.
-
-### michna 5
-A hundred rows of Terumah [seeds] and one of Chulin, they are all permitted, in [the case of] a kind whose seed disintegrates. But in a kind whose seed does not disintegrate, even if there be a hundred [rows] of Chulin and one of Terumah, they are all prohibited.
-
-### michna 6
-Non-tithed produce, its growths are permissible in a kind whose seed disintegrates. But in a kind whose seed does not disintegrate, [even] the growths of its growths are forbidden. Which is a kind whose seed does not disintegrate? For instance, Luf [plant], garlic, and onions. Rabbi Yehudah says: onions are like barley.
-
-### michna 7
-One who weeds with a non-Jew in leek-plants, even though its fruits are non-tithed, he may eat from them in a casual fashion. Saplings of Terumah which have become impure, if planted [again], they become pure from their impurity. But they may not be eaten until the edible [parts] have been lopped off [and regrown]. Rabbi Yehudah says: until they have been lopped off and repeated [lopped off a second time].
-
->Credit : Sefaria Community Translation
->License : CC0
