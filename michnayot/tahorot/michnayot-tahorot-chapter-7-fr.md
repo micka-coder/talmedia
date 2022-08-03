@@ -6,10 +6,10 @@ Un potier qui a laissé ses pots et est descendu boire : les pots intérieurs re
 S'il a laissé un am haaretz dans sa maison éveillé et l'a trouvé éveillé, ou endormi et l'a trouvé endormi, ou éveillé et l'a trouvé endormi, la maison reste propre. S'il l'a laissé endormi et l'a trouvé éveillé, la maison est impure, paroles de Rabbi Meir. Mais les sages disent : la seule partie qui est impure est celle où il peut tendre la main et la toucher.
 
 ### michna 3
-Celui qui a laissé des artisans dans sa maison, la maison est impure, selon les paroles de Rabbi Meir. Mais les sages disent : la seule partie qui est impure est celle où ils peuvent étendre la main et la toucher.
+Celui qui a laissé des artisans dans sa maison, la maison est impure, ce sont les paroles de Rabbi Meir. Mais les sages disent : la seule partie qui est impure est celle où ils peuvent étendre la main et la toucher.
 
 ### michna 4
-Si la femme d'un haver a laissé la femme d'un am haaretz moudre du grain dans sa maison, si le moulin à main a cessé de tourner, la maison est impure. Mais si le moulin à main ne s'est pas arrêté de tourner, la partie de la maison qu'elle peut étendre la main et toucher est impure. S'il y avait deux femmes, la maison est impure dans les deux cas, car pendant que l'une moud, l'autre peut aller toucher, selon les paroles de Meir. Mais les sages disent : la seule partie qui est impure est celle où elle peut étendre sa main et la toucher.
+Si la femme d'un haver a laissé la femme d'un am haaretz moudre du grain dans sa maison, si le moulin à main a cessé de tourner, la maison est impure. Mais si le moulin à main ne s'est pas arrêté de tourner, la partie de la maison qu'elle peut étendre la main et toucher est impure. S'il y avait deux femmes, la maison est impure dans les deux cas, car pendant que l'une moud, l'autre peut aller toucher, ce sont les paroles de Meir. Mais les sages disent : la seule partie qui est impure est celle où elle peut étendre sa main et la toucher.
 
 ### michna 5
 Celui qui a laissé am haaretz dans sa maison pour le garder, s'il peut voir ceux qui entrent et sortent, seuls les aliments et les liquides et les faïences non couvertes sont impurs, mais les divans et les sièges et les faïences qui ont des couvertures bien ajustées restent propres. Et s'il ne peut voir ni ceux qui entrent ni ceux qui sortent, même si le am haaretz doit être conduit et même s'il était lié, tout est impur.

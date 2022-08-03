@@ -1,6 +1,6 @@
 
 ### michna 1
-Un vêtement teint avec des pelures d'orlah [fruit] doit être brûlé. S'il s'est mélangé à d'autres [vêtements], ils doivent tous être brûlés, selon les paroles de Rabbi Meir. Mais les sages disent : il se neutralise en deux cent un.
+Un vêtement teint avec des pelures d'orlah [fruit] doit être brûlé. S'il s'est mélangé à d'autres [vêtements], ils doivent tous être brûlés, ce sont les paroles de Rabbi Meir. Mais les sages disent : il se neutralise en deux cent un.
 
 ### michna 2
 Si quelqu'un a teint un fil de toute la longueur d'un siège avec des écorces d'orlah, et l'a tissé dans un vêtement, et qu'on ne sait pas de quel [fil] il s'agit : Rabbi Meir dit : le vêtement doit être brûlé ; mais les Sages disent : il se neutralise en deux cent un.

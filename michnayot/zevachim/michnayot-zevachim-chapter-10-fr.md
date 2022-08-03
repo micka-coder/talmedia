@@ -18,7 +18,7 @@ Toutes les hatats de la Torah précèdent les ashams, à l'exception de l'asham 
 De même qu'ils ont la priorité pour être offerts, ils ont la priorité pour être mangés. Les shelamim d'hier et les shelamim d'aujourd'hui, ceux d'hier ont la priorité. Les shelamim d'hier et les hatat et asham d'aujourd'hui, les shelamim d'hier ont la priorité, paroles de Rabbi Meir. Mais les sages disent : la hatat est prioritaire, car c'est un sacrifice très sacré.
 
 ### michna 7
-Et dans tous ces cas, les prêtres peuvent s'écarter de leur façon de manger, et les manger rôtis, en ragoût ou bouillis. Et on peut les assaisonner avec des épices hullin ou des épices terumah, selon les paroles de Rabbi Shimon. Rabbi Meir dit : on ne doit pas les assaisonner avec des épices de terumah, afin de ne pas rendre la terumah impropre.
+Et dans tous ces cas, les prêtres peuvent s'écarter de leur façon de manger, et les manger rôtis, en ragoût ou bouillis. Et on peut les assaisonner avec des épices hullin ou des épices terumah, ce sont les paroles de Rabbi Shimon. Rabbi Meir dit : on ne doit pas les assaisonner avec des épices de terumah, afin de ne pas rendre la terumah impropre.
 
 ### michna 8
 Rabbi Chimon dit : si tu vois de l'huile divisée dans la cour du Temple, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste d'huile des galettes des offrandes de repas des Israélites, ou de la bûche d'huile de la metzora. Si tu vois de l'huile versée sur les feux, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste de l'huile des galettes des offrandes de repas des prêtres", ou de l'offrande de repas du prêtre oint ; car on ne peut pas offrir volontairement de l'huile [seule]. Rabbi Tarfon dit : l'huile peut être offerte volontairement [seule].

@@ -3,7 +3,7 @@
 Et voici les vœux qu'il peut annuler : les vœux qui impliquent une renonciation à soi. Par exemple : "Si je me lave" ou "Si je ne me lave pas" ; "Si je me pare" ou "Si je ne me pare pas". Rabbi Yose dit : ce ne sont pas des voeux de renoncement.
 
 ### michna 2
-Mais ce sont des vœux d'abnégation : Si elle dit : "Que le produit du monde [entier] soit pour moi", il peut annuler. Si elle dit : "Que le produit de cette région soit pour moi konam", il doit lui apporter celui d'une autre région. "[Konam soit] pour moi le produit de ce commerçant", il ne peut pas annuler. Mais s'il ne peut obtenir sa subsistance que de lui, il peut annuler, selon les paroles de Rabbi Yose.
+Mais ce sont des vœux d'abnégation : Si elle dit : "Que le produit du monde [entier] soit pour moi", il peut annuler. Si elle dit : "Que le produit de cette région soit pour moi konam", il doit lui apporter celui d'une autre région. "[Konam soit] pour moi le produit de ce commerçant", il ne peut pas annuler. Mais s'il ne peut obtenir sa subsistance que de lui, il peut annuler, ce sont les paroles de Rabbi Yose.
 
 ### michna 3
 Si elle fait le vœu suivant : "Konam, ce dont je profite de l'humanité", il ne peut pas l'annuler, et elle peut profiter des glanes, des gerbes oubliées et des coins du champ. [Si quelqu'un dit] : "Konam, le bénéfice que les prêtres et les lévites ont de moi", ils peuvent prendre [de lui] contre sa volonté. [Mais s'il dit] : "Que le bénéfice que ces prêtres et lévites ont de moi soit konam", d'autres [prêtres et lévites] doivent prendre.

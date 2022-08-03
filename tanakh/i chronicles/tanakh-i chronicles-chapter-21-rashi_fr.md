@@ -76,7 +76,7 @@
 
 ### passuk 30
 <b>Mais David n'a pas pu</b> Alors, lorsque cet incident s'est produit que le Saint, béni soit-Il, lui a ordonné d'offrir un sacrifice, David n'a pas pu aller devant celui-ci pour s'enquérir de Dieu, c'est-à-dire devant l'autel qui était à Gibéon.
-<b>parce qu'il était effrayé par l'épée de l'ange du Seigneur</b> et David alla selon les paroles du Seigneur et bâtit un autel, et le Seigneur lui répondit.
+<b>parce qu'il était effrayé par l'épée de l'ange du Seigneur</b> et David alla ce sont les paroles du Seigneur et bâtit un autel, et le Seigneur lui répondit.
 
 >Crédit : sefaris
 >License : CC-BY

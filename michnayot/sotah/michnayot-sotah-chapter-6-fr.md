@@ -1,6 +1,6 @@
 
 ### michna 1
-Si un homme a averti sa femme et qu'elle s'est retirée [avec un autre homme], même s'il a appris [qu'elle l'a fait] par un oiseau volant, il doit divorcer et lui donner la ketubah, selon les paroles de Rabbi Eliezer. Rabbi Joshua dit : jusqu'à ce que les femmes qui filent au clair de lune discutent d'elle.
+Si un homme a averti sa femme et qu'elle s'est retirée [avec un autre homme], même s'il a appris [qu'elle l'a fait] par un oiseau volant, il doit divorcer et lui donner la ketubah, ce sont les paroles de Rabbi Eliezer. Rabbi Joshua dit : jusqu'à ce que les femmes qui filent au clair de lune discutent d'elle.
 
 ### michna 2
 Si un témoin a dit : "J'ai vu qu'elle était souillée", elle ne boit pas l'eau. Non seulement cela, mais on croit même qu'un esclave, homme ou femme, la disqualifie pour recevoir sa ketubah. Sa belle-mère, la fille de sa belle-mère, sa rivale, sa belle-sœur et la fille de son mari sont considérées, non pas comme l'empêchant de recevoir sa ketubah, mais comme lui interdisant de boire.

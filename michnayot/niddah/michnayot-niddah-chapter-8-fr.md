@@ -9,7 +9,7 @@ Une femme peut attribuer [une tache de sang] à toute cause [externe] à laquell
 Il arriva qu'une femme se présenta devant Rabbi Akiva et lui dit. Elle lui dit : J'ai vu une tache de sang. Il lui dit : Peut-être as-tu eu une blessure ? Elle lui dit : Oui, mais elle est guérie. Il lui dit : Peut-être qu'elle aurait pu se rouvrir et laisser échapper du sang." Elle lui dit : Oui. Et Rabbi Akiva la déclara pure. Il vit ses disciples se regarder avec étonnement. Il leur dit : Pourquoi trouvez-vous cela difficile, car les sages n'ont pas dit cette règle pour être rigoureux, mais plutôt pour être indulgents, car il est dit : "Et si une femme a une issue, et que son issue dans sa chair soit du sang" sang mais pas une tache de sang.
 
 ### michna 4
-Un chiffon d'essai a été placé sous un oreiller et on y a trouvé du sang : S'il est rond, il est propre S'il est allongé, il est impur, selon les paroles de Rabbi Elazar bar Zadok.
+Un chiffon d'essai a été placé sous un oreiller et on y a trouvé du sang : S'il est rond, il est propre S'il est allongé, il est impur, ce sont les paroles de Rabbi Elazar bar Zadok.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

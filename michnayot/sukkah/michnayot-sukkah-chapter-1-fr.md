@@ -15,7 +15,7 @@ S'il fait pousser une vigne, une calebasse ou du lierre sur [la soukkah] et qu'i
 Les fagots de paille, les fagots de bois et les fagots de broussailles, on ne les utilise pas comme skhakh. Mais tous, s'il les détache, sont valables. Et ils sont tous valables pour les murs.
 
 ### michna 6
-Ils peuvent faire du skhakh avec des planches de bois, selon les paroles de Rabbi Juda. Rabbi Meir l'interdit. Si l'on place sur le dessus [de la souka] une planche de quatre pieds de large, elle est valable à condition de ne pas dormir dessous.
+Ils peuvent faire du skhakh avec des planches de bois, ce sont les paroles de Rabbi Juda. Rabbi Meir l'interdit. Si l'on place sur le dessus [de la souka] une planche de quatre pieds de large, elle est valable à condition de ne pas dormir dessous.
 
 ### michna 7
 Un toit [en bois] qui n'a pas de plâtre : Rabbi Judah dit : Bet Shammai dit qu'il doit desserrer [les planches] et en retirer une entre chaque deux. Et Bet Hillel dit qu'il doit soit desserrer [les planches] soit en enlever une entre deux. Rabbi Meir dit qu'il enlève une d'entre les deux, mais qu'il ne desserre pas [les planches].

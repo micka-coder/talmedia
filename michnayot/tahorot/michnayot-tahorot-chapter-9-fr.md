@@ -1,6 +1,6 @@
 
 ### michna 1
-A quel stade les olives deviennent-elles susceptibles d'être impures ? Lorsqu'elles exsudent l'humidité [produite] par [leur séjour dans] la cuve mais pas celle [produite alors qu'elles sont encore] dans le panier, selon les paroles de Bet Shammai. Rabbi Shimon dit : le temps minimum prescrit pour une exsudation correcte est de trois jours. Bet Hillel dit : dès que trois olives sont collées ensemble. Rabban Gamaliel dit : dès que leur préparation est terminée, et les sages sont d'accord avec son opinion.
+A quel stade les olives deviennent-elles susceptibles d'être impures ? Lorsqu'elles exsudent l'humidité [produite] par [leur séjour dans] la cuve mais pas celle [produite alors qu'elles sont encore] dans le panier, ce sont les paroles de Bet Shammai. Rabbi Shimon dit : le temps minimum prescrit pour une exsudation correcte est de trois jours. Bet Hillel dit : dès que trois olives sont collées ensemble. Rabban Gamaliel dit : dès que leur préparation est terminée, et les sages sont d'accord avec son opinion.
 
 ### michna 2
 S'il a fini de ramasser mais avait l'intention d'en acheter d'autres, ou s'il avait fini d'acheter mais avait l'intention d'en emprunter d'autres, ou si un temps de deuil, une fête de mariage ou un autre empêchement lui est arrivé, alors même si des zavim et des zavot les ont piétinés, ils restent purs. Si un liquide impur est tombé sur eux, seul l'endroit où il les a touchés devient impur. Tout liquide qui en sort est propre.

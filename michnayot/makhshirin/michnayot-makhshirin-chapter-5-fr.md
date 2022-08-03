@@ -9,7 +9,7 @@ Celui qui a nagé dans l'eau, l'eau qui a éclaboussé ne relève pas de la loi 
 Un produit sur lequel est tombée une fuite [d'un toit] et qu'il a mélangé afin qu'il devienne sec [rapidement] : Rabbi Shimon dit : cela relève de la loi de "if water be put". Mais les sages disent : cela ne relève pas de la loi de "si l'eau est mise".
 
 ### michna 4
-Celui qui mesure une citerne que ce soit pour sa profondeur ou pour sa largeur, cela relève de la loi de "si l'eau est mise" selon les paroles de Rabbi Tarfon. Mais Rabbi Akiva dit : si [elle a été mesurée] pour sa profondeur, elle relève de la loi de "si l'eau est mise" ; mais si c'est pour sa largeur, elle ne relève pas de la loi de "si l'eau est mise".
+Celui qui mesure une citerne que ce soit pour sa profondeur ou pour sa largeur, cela relève de la loi de "si l'eau est mise" ce sont les paroles de Rabbi Tarfon. Mais Rabbi Akiva dit : si [elle a été mesurée] pour sa profondeur, elle relève de la loi de "si l'eau est mise" ; mais si c'est pour sa largeur, elle ne relève pas de la loi de "si l'eau est mise".
 
 ### michna 5
 Si l'on met sa main, son pied ou un roseau dans une citerne pour vérifier s'il y a de l'eau, cela ne relève pas de la loi de "if water be put" ; mais si c'est pour vérifier la quantité d'eau qu'elle contient, cela relève de la loi de "if water be put". Si on a jeté une pierre dans une citerne pour vérifier si elle avait de l'eau, [l'eau] qui a été éclaboussée ne relève pas de la loi de "if water be put", et aussi [l'eau] qui est sur la pierre est pure.

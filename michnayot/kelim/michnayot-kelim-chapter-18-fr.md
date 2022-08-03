@@ -24,7 +24,7 @@ Si un pied [de lit] qui a contracté l'impureté midras a été joint à un lit,
 Une boîte à tefillin composée de quatre récipients : si le premier compartiment a été détaché, puis qu'il a été raccommodé, elle conserve son impureté de cadavre. Il en est de même pour le deuxième et le troisième. S'il a délié le quatrième, il devient exempt de l'impureté du cadavre, mais il reste impur par contact avec l'impureté du cadavre. S'il retourne au premier compartiment, le détache et le répare, il reste impur par contact. Il en est de même pour le deuxième compartiment. S'il détache alors le troisième compartiment et le répare, il devient propre, puisque le quatrième est impur par contact, et ce qui est impur par contact ne peut pas transmettre l'impureté par contact.
 
 ### michna 9
-Un lit dont la moitié a été volée ou perdue, ou un lit que des frères ou des copropriétaires ont partagé entre eux, devient pur. S'il a été restitué, il est désormais susceptible d'être impur. Un lit peut contracter l'impureté et être rendu propre lorsque toutes ses parties sont liées ensemble, selon les paroles de Rabbi Eliezer. Mais les sages disent : il peut contracter l'impureté et être rendu pur en ses parties individuelles.
+Un lit dont la moitié a été volée ou perdue, ou un lit que des frères ou des copropriétaires ont partagé entre eux, devient pur. S'il a été restitué, il est désormais susceptible d'être impur. Un lit peut contracter l'impureté et être rendu propre lorsque toutes ses parties sont liées ensemble, ce sont les paroles de Rabbi Eliezer. Mais les sages disent : il peut contracter l'impureté et être rendu pur en ses parties individuelles.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

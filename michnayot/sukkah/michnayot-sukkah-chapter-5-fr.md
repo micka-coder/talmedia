@@ -3,7 +3,7 @@
 La flûte était pour cinq ou six jours. Il s'agit de la flûte du Bet Hashoevah [lieu de puisage de l'eau] qui n'outrepasse pas Shabbat ou le jour de la fête. Ils ont dit : celui qui n'a pas vu le Simchat Bet Hashoevah n'a jamais vu de réjouissance dans sa vie.
 
 ### michna 2
-A la fin du premier jour de fête de Souccot, ils descendaient dans la cour des femmes (Ezrat Nashim) et ils y faisaient une grande mise en scène. Il y avait là des chandeliers d'or, et quatre bols d'or au sommet de chacun d'eux, et quatre échelles pour chacun d'eux, et quatre jeunes gens tirés parmi les jeunes prêtres, et dans leurs mains il y avait des jarres d'huile contenant cent vingt bûches qu'ils versaient dans les bols.
+A la fin du premier jour de fête de Souccot, ils descendaient dans la cour des femmes (Ezrat Nashim) et ils y faisaient une grande mise en scène. Il y avait là des chandeliers d'or, et quatre bols d'or au sommet de chacun d'eux, et quatre échelles pour chacun d'eux, et quatre jeunes gens tirés parmi les jeunes prêtres, et dans leurs mains il y avait des jarres d'huile contenant cent vingt log qu'ils versaient dans les bols.
 
 ### michna 3
 Avec les pantalons et les ceintures usés des prêtres, ils firent des mèches et avec elles, ils allumèrent les lampes. Et il n'y avait pas une cour à Jérusalem qui ne soit éclairée par la lumière du Bet Hashoevah.

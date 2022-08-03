@@ -35,7 +35,7 @@
 <b>Je Te supplie, Seigneur, que Ton oreille soit maintenant attentive</b> Au début de sa prière, il utilise cette expression, et ainsi après sa prière. 
 <b>Ton serviteur</b> C'est ce qu'il a prié pour lui-même. 
 <b>Devant cet homme</b> devant le roi. 
-<b>Majordome</b> Heb.  מַשְּׁקֶה", comme (<a class="refLink" href="/Genèse.40.1" data-ref="Genèse 40:1">Gen. 40:1</a>) : "...le majordome de (מַשְּׁקֶה") le roi d'Égypte." C'est ce que j'ai expliqué plus haut (<a class="refLink" href="/Ezra.2.63" data-ref="Ezra 2:63">Ezra 2:63</a>) selon les paroles de nos Sages, que Hattirshatha est Néhémie. 
+<b>Majordome</b> Heb.  מַשְּׁקֶה", comme (<a class="refLink" href="/Genèse.40.1" data-ref="Genèse 40:1">Gen. 40:1</a>) : "...le majordome de (מַשְּׁקֶה") le roi d'Égypte." C'est ce que j'ai expliqué plus haut (<a class="refLink" href="/Ezra.2.63" data-ref="Ezra 2:63">Ezra 2:63</a>) ce sont les paroles de nos Sages, que Hattirshatha est Néhémie. 
 
 >Crédit : sefaris
 >Licence : CC-BY

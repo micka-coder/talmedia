@@ -18,7 +18,7 @@ Si un homme donne sa fille en mariage sans spécifier aucune condition, il ne do
 Si une orpheline a été donnée en mariage par sa mère ou ses frères avec son consentement et qu'ils lui ont donné une dot de cent ou cinquante zuz, elle peut, lorsqu'elle atteint l'âge de la majorité, leur réclamer légalement le montant qui lui était dû. Rabbi Juda dit : si le père avait donné sa première fille en mariage, la seconde doit recevoir autant que la première. Les Sages disent : parfois un homme est pauvre et devient riche ou riche et devient pauvre.   Il faut plutôt évaluer la succession et lui donner [le montant approprié].
 
 ### michna 7
-Si un homme a déposé une somme d'argent auprès d'un agent pour sa fille, et qu'après ses fiançailles, elle dit : "Je fais confiance à mon mari", le fiduciaire doit agir conformément à la condition de sa confiance, selon les paroles de Rabbi Meir. Rabbi Yose dit : si [la confiance] était un champ et qu'elle souhaitait le vendre, ce serait comme s'il était vendu immédiatement ! A qui cela s'applique-t-il ?  A [une fille] qui a atteint l'âge de la majorité, mais dans le cas d'une mineure, il n'y a aucune validité à l'acte d'une mineure.
+Si un homme a déposé une somme d'argent auprès d'un agent pour sa fille, et qu'après ses fiançailles, elle dit : "Je fais confiance à mon mari", le fiduciaire doit agir conformément à la condition de sa confiance, ce sont les paroles de Rabbi Meir. Rabbi Yose dit : si [la confiance] était un champ et qu'elle souhaitait le vendre, ce serait comme s'il était vendu immédiatement ! A qui cela s'applique-t-il ?  A [une fille] qui a atteint l'âge de la majorité, mais dans le cas d'une mineure, il n'y a aucune validité à l'acte d'une mineure.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

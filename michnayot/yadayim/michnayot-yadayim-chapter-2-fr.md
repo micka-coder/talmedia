@@ -1,6 +1,6 @@
 
 ### michna 1
-S'il a versé de l'eau sur une de ses mains en un seul rinçage, sa main devient propre. S'il a versé de l'eau sur ses deux mains avec un seul rinçage : Rabbi Meir les déclare impures jusqu'à ce qu'il verse un minimum d'un quart de bûche d'eau sur elles. Si un pain de terumah est tombé sur l'eau, le pain est propre. Rabbi Yose déclare qu'il est impur.
+S'il a versé de l'eau sur une de ses mains en un seul rinçage, sa main devient propre. S'il a versé de l'eau sur ses deux mains avec un seul rinçage : Rabbi Meir les déclare impures jusqu'à ce qu'il verse un minimum d'un quart de log d'eau sur elles. Si un pain de terumah est tombé sur l'eau, le pain est propre. Rabbi Yose déclare qu'il est impur.
 
 ### michna 2
 S'il a versé la première eau sur ses mains [en se tenant] dans un endroit, et la deuxième eau sur ses mains [en se tenant] dans un autre endroit, et qu'un pain de teruma est tombé sur la première eau, le pain devient impur. Mais s'il est tombé sur la deuxième eau, il reste pur. S'il a versé la première et la seconde eau [en se tenant] dans un même lieu, et qu'un pain de terumah est tombé sur l'eau, le pain devient impur. S'il a versé la première eau sur ses mains et qu'une écharde ou un morceau de gravier se trouve sur ses mains, [ses mains] restent impures, car la seconde eau ne fait que rendre propre la première eau sur les mains. Rabban Chimon ben Gamaliel dit : si une créature de l'eau [était sur les mains pendant qu'on les nettoie], elles sont pures.

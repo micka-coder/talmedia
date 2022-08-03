@@ -6,7 +6,7 @@ Shammai dit : "Pour toutes les femmes [qui commencent à avoir leurs règles] il
 Shammai dit :  "La [pâte] d'un kav ou plus est soumise à la loi de la hallah." Et Hillel dit : "De deux kavs ou plus." Mais les Sages disent : "Ni selon l'avis de celui-ci, ni selon l'avis de celui-là , mais [une pâte] d'un kav et demi est soumise à la loi de la hallah "Et après avoir augmenté les mesures, ils ont dit :  "[Une pÃ¢te de] cinq quarts est soumise. Rabbi Yose a dit :  "Cinq sont exemptés, cinq et plus sont soumis."
 
 ### michna 3
-Hillel dit :  "Un hin plein d'eau tirée rend le mikweh impropre. "(Cependant, l'homme doit parler dans la langue de son maître.) Et Shammai dit :  "Neuf kavs." Mais les Sages disent : Mais lorsque deux tisserands de la porte des bouses qui se trouve à Jérusalem sont venus et ont témoigné au nom de Shemaiah et Avtalion : "Trois bûches d'eau tirée rendent le mikweh impropre", les Sages ont confirmé leur déclaration.
+Hillel dit :  "Un hin plein d'eau puisée rend le mikweh impropre. "(Cependant, l'homme doit parler dans la langue de son maître.) Et Shammai dit :  "Neuf kavs." Mais les Sages disent : Mais lorsque deux tisserands de la porte des bouses qui se trouve à Jérusalem sont venus et ont témoigné au nom de Shemaiah et Avtalion : "Trois log d'eau puisée rendent le mikweh impropre", les Sages ont confirmé leur déclaration.
 
 ### michna 4
 Et pourquoi enregistrent-ils les opinions de Shammai et Hillel pour rien ? Pour enseigner aux générations suivantes qu'un homme ne doit pas [toujours] persister dans son opinion, car voici, les pères du monde n'ont pas persisté dans leur opinion.

@@ -3,7 +3,7 @@
 Celui qui met de côté une partie seulement de la térouma et de la dîme, peut prendre de la térouma de ce [tas], mais il ne peut pas prendre de la térouma de ce tas pour d'autres produits. Rabbi Meir dit : il peut également prendre la terumah et la dîme pour d'autres produits.
 
 ### michna 2
-Si quelqu'un avait ses produits dans un entrepôt, et qu'il donnait une seah à un Lévite et une seah à un pauvre, il peut mettre de côté huit autres seahs et les manger, selon les paroles de Rabbi Meir. Mais les sages disent : il ne peut mettre de côté que selon la proportion.
+Si quelqu'un avait ses produits dans un entrepôt, et qu'il donnait une seah à un Lévite et une seah à un pauvre, il peut mettre de côté huit autres seahs et les manger, ce sont les paroles de Rabbi Meir. Mais les sages disent : il ne peut mettre de côté que selon la proportion.
 
 ### michna 3
 La quantité de terumah : Une quantité généreuse : un quarantième. Beth Shammai dit : un trentième. La quantité moyenne : un cinquantième. Une quantité avare : un soixantième. S'il a donné une terumah et a découvert qu'elle n'était que d'un soixantième, sa terumah est valide et il n'a pas besoin de la donner à nouveau. S'il y retourne et l'ajoute, [le montant supplémentaire] est soumis à la dîme. S'il a découvert qu'il n'y avait qu'un soixante-et-unième, elle est valide, mais il doit donner à nouveau la terumah selon sa pratique établie, en mesure, en poids ou en nombre. Rabbi Judah dit : même si cela ne provient pas d'un produit proche.

@@ -24,7 +24,7 @@ Si l'on soupçonne quelqu'un en rapport avec les premiers nés, on ne doit pas l
 Si l'on soupçonne quelqu'un d'avoir [ignoré] l'année sabbatique, on ne pourra pas lui acheter du lin, même peigné ; mais on pourra lui acheter du lin filé ou tissé.
 
 ### michna 9
-Si l'on soupçonne quelqu'un de vendre de la terumah comme hullin, on ne doit pas lui acheter d'eau ni de sel, selon les paroles de Rabbi Juda. Rabbi Shimon dit : [On ne peut pas lui acheter] tout ce qui est lié à la térouma et aux dîmes.
+Si l'on soupçonne quelqu'un de vendre de la terumah comme hullin, on ne doit pas lui acheter d'eau ni de sel, ce sont les paroles de Rabbi Juda. Rabbi Shimon dit : [On ne peut pas lui acheter] tout ce qui est lié à la térouma et aux dîmes.
 
 ### michna 10
 Celui qui est suspecté d'ignorer l'année sabbatique n'est pas suspecté d'ignorer [également] les dîmes. Celui qui est suspecté d'ignorer les dîmes n'est pas suspecté d'ignorer [aussi] l'année sabbatique. Celui qui est suspecté d'ignorer les deux est suspecté d'ignorer les règles de pureté. Et il est possible qu'une personne soit soupçonnée d'ignorer les règles de pureté et qu'elle ne soit pas soupçonnée d'ignorer les deux lois [citées ci-dessus]. Telle est la règle générale : celui qui est soupçonné de [transgresser] quelque chose ne doit pas rendre de jugement sur cette chose ou témoigner à son sujet.

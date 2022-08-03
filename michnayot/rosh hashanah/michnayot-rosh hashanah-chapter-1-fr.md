@@ -1,6 +1,6 @@
 
 ### michna 1
-Il y a quatre nouvelles années : Le premier de Nisan est la nouvelle année pour les rois et pour les festivals. Le premier d'Elul est la nouvelle année pour la dîme des bêtes. Rabbi Elazar et Rabbi Shimon disent : le premier de Tishri. Le premier de Tishri est la nouvelle année pour les années, pour la shmitta et les années jubilaires, pour les plantations et pour la dîme des légumes. Le premier de Shevat est la nouvelle année pour les arbres, selon les paroles de Bet Shammai. Bet Hillel dit : le 15 de ce mois.
+Il y a quatre nouvelles années : Le premier de Nisan est la nouvelle année pour les rois et pour les festivals. Le premier d'Elul est la nouvelle année pour la dîme des bêtes. Rabbi Elazar et Rabbi Shimon disent : le premier de Tishri. Le premier de Tishri est la nouvelle année pour les années, pour la shmitta et les années jubilaires, pour les plantations et pour la dîme des légumes. Le premier de Shevat est la nouvelle année pour les arbres, ce sont les paroles de Bet Shammai. Bet Hillel dit : le 15 de ce mois.
 
 ### michna 2
 A quatre moments précis, le monde est jugé : A Pesah, en ce qui concerne les produits. A Shavuot, par rapport aux fruits de l'arbre. A Roch Hachana, tous les peuples du monde passent devant Lui comme une division de soldats [un numerus], comme il est dit : "Celui qui façonne le cœur de tous, qui discerne toutes leurs actions" (Psaumes 33:15). Et à Souccot, ils sont jugés par rapport à la pluie.

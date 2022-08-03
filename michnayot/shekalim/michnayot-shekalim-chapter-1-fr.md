@@ -18,7 +18,7 @@ Même s'ils ont dit : "Ils n'exigent pas de gages des femmes, des esclaves ou de
 Les personnes suivantes sont tenues [de payer] le kalbon (surtaxe) : Les lévites et les Israélites, les convertis et les esclaves affranchis ; mais pas les prêtres, ni les femmes, ni les esclaves, ni les mineurs. Si un homme a payé le shekel au nom d'un prêtre, d'une femme, d'un esclave ou d'un mineur, il est exempté. Si un homme a payé le shekel en son nom et au nom de son compagnon, il est redevable d'un kalbon. Rabbi Meir dit : deux kalbons. Si quelqu'un a donné une sela et a reçu un shekel, il est tenu de payer deux kalbons.
 
 ### michna 7
-Si quelqu'un a payé le shekel au nom d'un pauvre ou au nom de son voisin ou au nom de son concitoyen, il est exempté [du kalbon]. Mais s'il le leur a prêté, il est responsable. Les frères associés qui sont redevables du kalbon sont exemptés de la dîme des bêtes. Mais lorsqu'ils sont redevables de la dîme des bêtes, ils sont exemptés de la surtaxe. Et quel est le montant du kalbon ? Un ma'ah d'argent, selon les paroles de Rabbi Meir. Mais les sages disent : la moitié d'un ma'ah.
+Si quelqu'un a payé le shekel au nom d'un pauvre ou au nom de son voisin ou au nom de son concitoyen, il est exempté [du kalbon]. Mais s'il le leur a prêté, il est responsable. Les frères associés qui sont redevables du kalbon sont exemptés de la dîme des bêtes. Mais lorsqu'ils sont redevables de la dîme des bêtes, ils sont exemptés de la surtaxe. Et quel est le montant du kalbon ? Un ma'ah d'argent, ce sont les paroles de Rabbi Meir. Mais les sages disent : la moitié d'un ma'ah.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

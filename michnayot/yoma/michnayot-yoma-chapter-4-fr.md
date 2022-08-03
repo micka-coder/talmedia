@@ -15,7 +15,7 @@ Un jour sur deux, il sortait [les charbons] avec un charbonnier d'argent et le v
 Tous les autres jours, les prêtres montaient du côté est de la rampe et descendaient du côté ouest, mais ce jour-là, le Grand Prêtre monte au milieu et descend au milieu. Rabbi Yehudah dit : le Grand Prêtre monte toujours au milieu et descend au milieu. Les autres jours, le Grand Prêtre se lavait les mains et les pieds dans la bassine, mais ce jour-là, il se lavait dans une louche en or. Rabbi Yehudah dit : le Grand Prêtre sanctifie toujours ses mains et ses pieds à partir d'une louche en or.
 
 ### michna 6
-Tous les autres jours, il y avait quatre tas de bois [sur l'autel], mais ce jour-là, il y en a cinq, selon les paroles de Rabbi Meir. Rabbi Yosi dit : les autres jours, trois, mais ce jour-là, quatre. Rabbi Yehudah dit : deux les autres jours, mais trois ce jour-ci.
+Tous les autres jours, il y avait quatre tas de bois [sur l'autel], mais ce jour-là, il y en a cinq, ce sont les paroles de Rabbi Meir. Rabbi Yosi dit : les autres jours, trois, mais ce jour-là, quatre. Rabbi Yehudah dit : deux les autres jours, mais trois ce jour-ci.
 
 >Crédit : Sefaria Community Translation
 >License : CC0

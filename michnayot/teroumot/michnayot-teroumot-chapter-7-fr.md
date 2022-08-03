@@ -18,7 +18,7 @@ S'il y avait deux paniers, l'un de terumah et l'autre de hullin, et qu'une seah 
 Si l'un de ces [paniers] est tombé dans le hullin, cela ne le rend pas medumma (térouma douteuse), mais le second est traité comme de la térouma et soumis à la loi de la hallah, les paroles de Rabbi Meir. Rabbi Yose l'exempte. Si le second tombe ailleurs [dans le hullin], cela ne le rend pas medumma. Si les deux tombent dans un seul endroit, ils le rendent medumma selon [la proportion] du plus petit des deux.
 
 ### michna 7
-S'il a utilisé un de ces [paniers] comme semence, il est exempté, et le second est traité comme s'il s'agissait de terumah et soumis à la loi de la hallah, selon les paroles de Rabbi Meir. Mais Rabbi Yose l'exempte. Si une autre personne utilise la seconde comme semence, alors elle est exemptée. Si un homme utilise les deux comme semence, s'il s'agit d'une espèce dont la semence se désintègre [dans le sol], il est permis, mais s'il s'agit d'une espèce dont la semence ne se désintègre pas, il est interdit.
+S'il a utilisé un de ces [paniers] comme semence, il est exempté, et le second est traité comme s'il s'agissait de terumah et soumis à la loi de la hallah, ce sont les paroles de Rabbi Meir. Mais Rabbi Yose l'exempte. Si une autre personne utilise la seconde comme semence, alors elle est exemptée. Si un homme utilise les deux comme semence, s'il s'agit d'une espèce dont la semence se désintègre [dans le sol], il est permis, mais s'il s'agit d'une espèce dont la semence ne se désintègre pas, il est interdit.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

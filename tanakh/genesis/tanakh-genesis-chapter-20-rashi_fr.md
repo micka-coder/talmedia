@@ -61,7 +61,7 @@
 
 ### passuk 18
 <b>Toutes les entrailles.</b> [C'est-à-dire] toutes les ouvertures [du corps].
-<b>Selon la parole de Sarah.</b> [Signification] selon les paroles de Sarah.
+<b>Selon la parole de Sarah.</b> [Signification] ce sont les paroles de Sarah.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

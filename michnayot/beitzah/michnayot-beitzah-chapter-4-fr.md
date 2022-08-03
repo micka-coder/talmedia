@@ -3,7 +3,7 @@
 Celui qui transporte des jarres de vin d'un endroit à l'autre, il ne peut pas les transporter dans un panier ou dans un grand panier, mais il peut [les] porter sur son épaule ou devant lui. De même, celui qui apporte de la paille, ne peut pas draper un grand panier sur son dos, mais il doit le porter dans sa main. Et on peut commencer [à utiliser] un tas de paille, mais [on ne peut] pas [commencer à utiliser le bois] de l'arrière-cour.
 
 ### michna 2
-On ne peut pas prendre du bois dans une souka, mais seulement dans [ce qui se trouve] à côté d'elle. On peut apporter du bois du champ qui est rassemblé, et d'un karpef [un enclos] même s'il est éparpillé. Qu'est-ce qu'un karpef ? Tout [enclos] à côté de la ville, selon les paroles de Rabbi Juda. Rabbi Yose dit : Tout [enclos] dans lequel on entre avec une clé, même s'il est [juste] à l'intérieur de la frontière de Chabbat.
+On ne peut pas prendre du bois dans une souka, mais seulement dans [ce qui se trouve] à côté d'elle. On peut apporter du bois du champ qui est rassemblé, et d'un karpef [un enclos] même s'il est éparpillé. Qu'est-ce qu'un karpef ? Tout [enclos] à côté de la ville, ce sont les paroles de Rabbi Juda. Rabbi Yose dit : Tout [enclos] dans lequel on entre avec une clé, même s'il est [juste] à l'intérieur de la frontière de Chabbat.
 
 ### michna 3
 Il est interdit de couper du bois, que ce soit des poutres ou des poutres cassées le jour de Yom Tov. Et on ne peut pas couper avec une hache, une scie ou une faucille, mais seulement avec un hachoir [de boucher]. Une pièce [fermée] remplie de produits qui a été ouverte par une brèche [à Yom Tov], il est permis de sortir [les produits] par la brèche. Rabbi Meir dit : il peut faire un trou au début et sortir [les produits].

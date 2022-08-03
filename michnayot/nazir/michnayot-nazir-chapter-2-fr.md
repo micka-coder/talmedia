@@ -15,7 +15,7 @@ Si quelqu'un dit : "Voici, je suis un naziréen, à condition que je puisse boir
 [Si quelqu'un dit :] "Voici, je suis un nazirite et je prends sur moi d'apporter l'offrande de cheveux d'un autre nazirite", et que son ami a entendu et dit : "Moi aussi, et je prends sur moi d'apporter l'offrande de cheveux d'un autre nazirite", alors, s'ils sont intelligents, ils apporteront l'offrande de cheveux de l'autre ; sinon, ils doivent apporter des offrandes de cheveux au nom d'autres nazirites.
 
 ### michna 6
-Si quelqu'un dit : "Je prends sur moi d'apporter l'offrande de cheveux de la moitié d'un autre nazirite", et que son ami a entendu et dit : "Je prends aussi sur moi d'apporter l'offrande de cheveux de la moitié d'un autre nazirite", celui-ci apporte une offrande de cheveux complète et celui-là apporte une offrande de cheveux complète, selon les paroles de Rabbi Meir. Mais les Sages disent : chacun apporte la moitié d'une offrande de cheveux.
+Si quelqu'un dit : "Je prends sur moi d'apporter l'offrande de cheveux de la moitié d'un autre nazirite", et que son ami a entendu et dit : "Je prends aussi sur moi d'apporter l'offrande de cheveux de la moitié d'un autre nazirite", celui-ci apporte une offrande de cheveux complète et celui-là apporte une offrande de cheveux complète, ce sont les paroles de Rabbi Meir. Mais les Sages disent : chacun apporte la moitié d'une offrande de cheveux.
 
 ### michna 7
 Si quelqu'un dit : "Voici, je suis un naziréen quand j'aurai un fils" et qu'un fils lui naît, il devient un naziréen. Si l'enfant est une fille, ou un tumtum, ou un hermaphrodite, il ne devient pas nazirite. S'il a dit : "Quand j'aurai un enfant", même si c'est une fille, un tumtum ou un hermaphrodite, il devient naziréen.

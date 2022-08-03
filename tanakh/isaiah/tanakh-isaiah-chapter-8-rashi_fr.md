@@ -31,7 +31,7 @@
 <b>jusqu'au cou</b> jusqu'à la partie principale de la force de leur cou. Et Jonathan rend : Jusqu'à Jérusalem, il atteindra. <b>le cou</b> leur force.
 <b>Les extrémités de ses ailes</b> On appelle  מֻטּוֹת une petite articulation à l'extrémité de l'aile, et j'ai vu dans Tanhuma (Tazria 8, Buber 10) : Quelle est la taille des extrémités des ailes du coq ? [Un soixantième de ses ailes, symbolisant] un soixantième des forces de Sennacherib'.
 <b>Ils rempliront la largeur</b> du pays de Juda.
-<b>Immanuel</b> C'est la tribu de Juda, à laquelle le Saint, béni soit-il, a promis d'être avec aux jours d'Ezéchias, selon les paroles de la prophétesse, qui a nommé son fils Immanuel.
+<b>Immanuel</b> C'est la tribu de Juda, à laquelle le Saint, béni soit-il, a promis d'être avec aux jours d'Ezéchias, ce sont les paroles de la prophétesse, qui a nommé son fils Immanuel.
 
 ### passuk 9
 <b>Joindre ensemble</b> Heb. (רֹעוּ), une expression similaire à (Prov. 27:10) : "Ton ami et l'ami de ton père" (רֵעֲךָ וְרֵעַ אָבִיךָ), comme le rend Jonathan : Unissez-vous. Unissez-vous, armées de Sennacherib.

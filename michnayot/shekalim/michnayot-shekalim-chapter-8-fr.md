@@ -1,6 +1,6 @@
 
 ### michna 1
-Tout crachat trouvé à Jérusalem est pur, sauf celui qui se trouve sur le marché supérieur, selon les paroles de Rabbi Meir. Rabbi Yose dit : à d'autres périodes de l'année, [le crachat trouvé] au milieu [de la route] est impur mais [le crachat trouvé] sur les côtés [de la route] est propre ; mais au moment des fêtes, [le crachat trouvé] au milieu [de la route] est propre, tandis que [celui qui est trouvé] sur les côtés [de la route] est impur, puisqu'ils sont peu nombreux, ils se retirent sur les côtés de la route.
+Tout crachat trouvé à Jérusalem est pur, sauf celui qui se trouve sur le marché supérieur, ce sont les paroles de Rabbi Meir. Rabbi Yose dit : à d'autres périodes de l'année, [le crachat trouvé] au milieu [de la route] est impur mais [le crachat trouvé] sur les côtés [de la route] est propre ; mais au moment des fêtes, [le crachat trouvé] au milieu [de la route] est propre, tandis que [celui qui est trouvé] sur les côtés [de la route] est impur, puisqu'ils sont peu nombreux, ils se retirent sur les côtés de la route.
 
 ### michna 2
 Tous les récipients trouvés à Jérusalem sur le chemin qui descend vers le lieu d'immersion sont impurs, [mais ceux trouvés] sur le chemin qui remonte [du lieu d'immersion] sont purs ; car le chemin qui descend n'est pas le même que celui qui monte, paroles de Rabbi Meir. Rabbi Yose dit : ils sont tous purs, sauf le panier et la pelle ou le pic qui sont spécialement liés au [travail dans] les cimetières.

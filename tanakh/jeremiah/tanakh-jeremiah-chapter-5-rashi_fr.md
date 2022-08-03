@@ -103,7 +103,7 @@
 
 ### passuk 30
 <b>Une chose effroyable...</b> Heb.  שמה", une merveille.
-<b>Une chose effroyable</b> Heb.  ושערורה", une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : "Rob et pillage", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main," énoncé à propos de David, signifiant "après lui.' Ici aussi, "sur leurs mains" signifie "après eux,' faire selon les paroles des prophètes.
+<b>Une chose effroyable</b> Heb.  ושערורה", une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : "Rob et pillage", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main," énoncé à propos de David, signifiant "après lui.' Ici aussi, "sur leurs mains" signifie "après eux,' faire ce sont les paroles des prophètes.
 
 >Crédit : sefaris
 >Licence : CC-BY

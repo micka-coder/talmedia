@@ -24,7 +24,7 @@ Les parties extérieures des récipients qui ont contracté une impureté par de
 Si une cuve de pétrissage était en pente vers le bas et qu'il y avait de la pâte dans la partie supérieure et de l'humidité dégoulinante dans la partie inférieure, alors trois morceaux qui constituent ensemble la masse d'un œuf ne peuvent pas être combinés ensemble, mais deux le sont. Rabbi Yose dit : les deux ne peuvent pas non plus être combinés à moins qu'ils ne compriment le liquide entre eux. Si le liquide était plat, même si le morceau avait la taille d'une graine de moutarde, ils sont combinés ensemble. Rabbi Dosa dit : les aliments émiettés ne peuvent pas être combinés ensemble.
 
 ### michna 9
-Si un bâton est entièrement recouvert d'un liquide impur, dès qu'il a touché l'eau [du] mikvé, il devient propre, selon les paroles de Rabbi Joshua. Mais les sages disent : seulement quand il est entièrement immergé. Un écoulement d'un récipient à l'autre ou une pente d'humidité goutte à goutte ne sert de lien ni pour l'impureté ni pour la pureté. Une mare d'eau sert de lien à la fois pour l'impureté et la propreté.
+Si un bâton est entièrement recouvert d'un liquide impur, dès qu'il a touché l'eau [du] mikvé, il devient propre, ce sont les paroles de Rabbi Joshua. Mais les sages disent : seulement quand il est entièrement immergé. Un écoulement d'un récipient à l'autre ou une pente d'humidité goutte à goutte ne sert de lien ni pour l'impureté ni pour la pureté. Une mare d'eau sert de lien à la fois pour l'impureté et la propreté.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

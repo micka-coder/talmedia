@@ -6,7 +6,7 @@ Il existe trois types de boucliers différents : un bouclier courbé est suscept
 Il y a trois types différents de chariots : celui qui est fait comme une cathédrale est susceptible d'être souillé par les midras ; celui qui est fait comme un lit est susceptible d'être souillé par les cadavres ; et celui qui sert à [transporter] les pierres est exempt de toute impureté.
 
 ### michna 3
-Il y a trois types différents de cuves de cuisson : si une cuve de cuisson d'une capacité de deux bûches à neuf kav a été fendue, elle est susceptible d'être souillée par le midras ; si elle a été entière, elle est susceptible d'être souillée par le cadavre ; et si elle contient la mesure prescrite, elle est exempte de toute impureté.
+Il y a trois types différents de cuves de cuisson : si une cuve de cuisson d'une capacité de deux log à neuf kav a été fendue, elle est susceptible d'être souillée par le midras ; si elle a été entière, elle est susceptible d'être souillée par le cadavre ; et si elle contient la mesure prescrite, elle est exempte de toute impureté.
 
 ### michna 4
 Il y a trois types différents de boîtes : Une boîte dont l'ouverture est sur les côtés est susceptible d'être souillée par le midras ; Si elle est sur le dessus, elle est susceptible d'être souillée par le cadavre ; Et si elle contient la mesure prescrite, elle est libre de toute impureté.

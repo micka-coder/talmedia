@@ -6,7 +6,7 @@ Celui qui démonte un lit afin de l'immerger et qui touche les cordes [en le fai
 Une corde qui pend d'un lit : Si elle est plus courte que cinq millièmes de pouce, elle est pure, Si elle est longue de cinq à dix millièmes de pouce, elle est impure. Si sa longueur est supérieure ou égale à dix centimètres, elle est pure ; car c'est avec [cette corde] qu'on attachait les agneaux pascals et qu'on descendait les lits.
 
 ### michna 3
-Si une partie d'un matelas pend, il est impur quelle que soit sa longueur, selon les paroles de Rabbi Meir. Rabbi Yose dit : seulement ce qui est plus court que dix centimètres. Le reste d'un matelas reste impur si sa longueur est d'au moins sept centimètres carrés, dont on peut faire une couverture d'âne.
+Si une partie d'un matelas pend, il est impur quelle que soit sa longueur, ce sont les paroles de Rabbi Meir. Rabbi Yose dit : seulement ce qui est plus court que dix centimètres. Le reste d'un matelas reste impur si sa longueur est d'au moins sept centimètres carrés, dont on peut faire une couverture d'âne.
 
 ### michna 4
 Si un zav a été porté sur un lit et sur son matelas, ce dernier provoque une impureté de deux degrés et une inaptitude d'un degré, paroles de Rabbi Meir. Rabbi Yose dit : si un zav a été porté sur un lit et sur son matelas, la partie qui est plus courte que dix millièmes de pouce cause une impureté de deux degrés et une inaptitude d'un degré, mais celle qui dépasse les dix millièmes de pouce cause seulement une impureté d'un degré et une inaptitude d'un degré. S'il a été porté sur le matelas, [sur la partie en surplomb] qui était plus courte que dix palmes, elle devient impure, mais si sur la partie qui était plus longue que dix palmes, elle reste propre.

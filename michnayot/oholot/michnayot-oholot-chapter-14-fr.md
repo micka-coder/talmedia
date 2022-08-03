@@ -6,7 +6,7 @@ Une saillie entraîne l'impureté, quelle que soit sa largeur ; mais un balcon o
 Une saillie qui se trouve au-dessus d'une porte forme un passage pour l'impureté lorsqu'elle a une largeur d'un centimètre ; si elle se trouve au-dessus d'une fenêtre, elle a une hauteur de deux centimètres ou la taille d'un trou fait par une perceuse, quelle que soit sa largeur. Rabbi Yose dit : lorsqu'il est de taille égale [à la fenêtre en question].
 
 ### michna 3
-Une barre au-dessus d'une porte, même si elle est plus haute de cent coudées, constitue un passage pour l'impureté, quelle que soit sa largeur, selon les paroles de Rabbi Joshua. Rabbi Yohanan ben Nuri dit : ne soyez pas plus rigoureux que dans le cas d'une saillie.
+Une barre au-dessus d'une porte, même si elle est plus haute de cent coudées, constitue un passage pour l'impureté, quelle que soit sa largeur, ce sont les paroles de Rabbi Joshua. Rabbi Yohanan ben Nuri dit : ne soyez pas plus rigoureux que dans le cas d'une saillie.
 
 ### michna 4
 Dans le cas d'une saillie qui fait le tour de la maison, occupant l'espace au-dessus de la porte jusqu'à trois centimètres, s'il y a une impureté dans la maison, les récipients situés sous [la saillie] deviennent impurs. Si l'impureté est en dessous [de la saillie] : Rabbi Eliezer déclare la maison impure, mais Rabbi Joshua la déclare pure. Une règle similaire [s'applique] à une cour entourée d'un portique.

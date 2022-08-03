@@ -9,7 +9,7 @@ Il n'y a jamais moins de quatre mois complets dans l'année, et il n'a pas sembl
 Il n'y a jamais moins de vingt et un coups dans le Temple et jamais plus de quarante-huit. Il n'y a jamais moins de deux harpes, ni plus de six. Il n'y a jamais moins de deux flûtes, ni plus de douze. Douze jours dans l'année, on jouait de la flûte devant l'autel : Lors de l'abattage de la première Pesah, Lors de l'abattage de la seconde Pesah, Le premier jour de la fête de Pesah, Le jour de la fête d'Atzeret (Shavuot), Et les huit jours de Sukkot. Ils ne jouaient pas sur un tuyau [abuv] de bronze, mais sur un tuyau de roseau, car sa mélodie est plus douce. De même, on n'utilisait qu'un seul tuyau pour clore un air, car il fait un final agréable.
 
 ### michna 4
-Ils étaient esclaves des prêtres, selon les paroles de Rabbi Meir. Rabbi Yose a dit : ils étaient issus de familles de Bet Hapegarim, Bet-Zipparya et d'Emmaüs, des lieux d'où les prêtres épousaient [des femmes]. Rabbi Hanina ben Antigonos a dit : ils étaient des Lévites.
+Ils étaient esclaves des prêtres, ce sont les paroles de Rabbi Meir. Rabbi Yose a dit : ils étaient issus de familles de Bet Hapegarim, Bet-Zipparya et d'Emmaüs, des lieux d'où les prêtres épousaient [des femmes]. Rabbi Hanina ben Antigonos a dit : ils étaient des Lévites.
 
 ### michna 5
 Il n'y avait jamais moins de six agneaux inspectés dans la chambre des agneaux, suffisamment pour Chabbat et les [deux] jours de fête de Roch Hachana, et leur nombre pouvait être augmenté à l'infini. Il n'y avait jamais moins de deux trompettes et leur nombre pouvait être augmenté à l'infini. Il n'y avait jamais moins de neuf lyres, et leur nombre pouvait être augmenté à l'infini. Mais il n'y avait qu'une seule cymbale.
