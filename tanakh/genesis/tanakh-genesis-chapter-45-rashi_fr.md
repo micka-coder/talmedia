@@ -32,13 +32,13 @@
 
 ### passuk 12
 <b>Voici, tes yeux voient</b> ma gloire, et que je suis ton frère car je suis circoncis comme toi et, de plus, "que je te parle" dans la langue sainte [hébreu]. 
-<b>Aussi les yeux de mon frère Binyomin'.</b> Il les mentionne tous de la même manière pour laisser entendre : " De même que je n'ai aucune animosité envers mon frère Binyomin, car il n'était pas là quand j'ai été vendu, de même je n'ai aucune animosité dans mon cÅ"ur envers toi ". 
+<b>Aussi les yeux de mon frère Binyamin'.</b> Il les mentionne tous de la même manière pour laisser entendre : " De même que je n'ai aucune animosité envers mon frère Binyamin, car il n'était pas là quand j'ai été vendu, de même je n'ai aucune animosité dans mon cÅ"ur envers toi ". 
 
 ### passuk 13
 
 ### passuk 14
-<b>Il se jeta sur son frère Binyomin et pleura.</b> [Il pleura] sur les deux Temples qui étaient destinés à être sur le territoire de Binyomin et qui, au final, seront détruits. 
-<b>Et Binyomin pleura sur son cou.</b> Pour le Tabernacle de Silo qui était destiné à être sur le territoire de Yossef et qui, à la fin, sera détruit. 
+<b>Il se jeta sur son frère Binyamin et pleura.</b> [Il pleura] sur les deux Temples qui étaient destinés à être sur le territoire de Binyamin et qui, au final, seront détruits. 
+<b>Et Binyamin pleura sur son cou.</b> Pour le Tabernacle de Silo qui était destiné à être sur le territoire de Yossef et qui, à la fin, sera détruit. 
 
 ### passuk 15
 <b>Après cela.</b> Après qu'ils l'aient vu pleurer et que ses intentions à leur égard aient été pacifiques... <b>[Après cela] ses frères lui ont parlé.</b> Parce qu'au début, ils avaient honte devant lui.

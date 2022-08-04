@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Tout commandement d'Hachem. </b> Nos sages ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
-<b>Un de ceux-ci,</b> une partie d'un de ceux-ci, comme celui qui écrit le Chabbat, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Noach de Nochor, Don de Doniel. 
+<b>Un de ceux-ci,</b> une partie d'un de ceux-ci, comme celui qui écrit le Chabbat, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Noach de Nochor, Dan de Doniel. 
 
 ### passuk 3
 <b>Si le kohen oint venait à pécher pour faire porter la culpabilité sur le peuple,</b> Son interprétation midrashique : Il n'est pas obligé [d'apporter un sacrifice pour le péché] à moins qu'il n'y ait une chose cachée en même temps <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> qu'un acte [illégal] non intentionnel, comme il est dit : "pour rendre le peuple coupable" "et quelque chose est caché à la congrégation et elle le fait".Et son sens ordinaire selon le <i>aggodoh</i> : Lorsque le <i>kohen godol</i> pèche, cela [entraîne] la culpabilité du peuple, car ils dépendent de lui pour expier pour eux et prier pour eux - et [maintenant] il s'est affaibli. 

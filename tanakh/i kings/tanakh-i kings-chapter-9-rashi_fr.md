@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Et mes yeux et mon coeur seront.</b> [Targum] Yonoson a rendu : "et ma présence divine y demeurera si ma volonté est faite."
+<b>Et mes yeux et mon coeur seront.</b> [Targum] Yonathan a rendu : "et ma présence divine y demeurera si ma volonté est faite."
 <b>Et mes yeux et mon coeur y seront.</b> Si mon coeur et ma volonté y sont.</sup>1</sup><i class="footnote">I.e., si Mon désir et Ma volonté sont suivis, Ma Présence Divine y sera.</i><sup>2</sup><i class="footnote">Même après la destruction du Beit Hamikdash, la Présence Divine est restée sur le Mur occidental [כותל המערבי] du Beit Hamikdash. Voir Shir Hashirim 2:9 et Midrash Rabboh là.</i>
 
 ### passuk 4
@@ -15,7 +15,7 @@
 
 ### passuk 7
 <b>Et la Maison que J'ai sanctifiée pour Mon Nom.</b> Il y a une condition entre Moi et vous, [que] "Si vous ne faites pas attention, etc...", qu'est-ce qui est dit là ? "Je ferai tomber vos Sanctuaires en décombres."<sup>3</sup><i class="footnote">Vayikra 26:31.</i>
-<b>Et une moquerie.</b> Comme le Targum [Yonoson a rendu],  ולשועי, [c'est-à-dire qu'] ils raconteront les maux qui les ont frappés et se moqueront d'eux, comme dans, "ויספר  [=et il a raconté," que le Targum a rendu]  ואשתעי. L'expression "שנינה" est aussi une expression de la parole comme il est écrit [dans les Écritures], "et vous les répéterez [ושננתם] à vos enfants".
+<b>Et une moquerie.</b> Comme le Targum [Yonathan a rendu],  ולשועי, [c'est-à-dire qu'] ils raconteront les maux qui les ont frappés et se moqueront d'eux, comme dans, "ויספר  [=et il a raconté," que le Targum a rendu]  ואשתעי. L'expression "שנינה" est aussi une expression de la parole comme il est écrit [dans les Écritures], "et vous les répéterez [ושננתם] à vos enfants".
 
 ### passuk 8
 <b>Et ce Beit Hamikdash sera très élevé.</b> Tant que vous n'aurez pas péché ; mais une fois que vous aurez péché, tous les passants seront stupéfaits et siffleront.<sup>4</sup><i class="footnote">Rashi comprend que  יהיה " est le futur, ce qui signifie "sera" très élevé. Alternativement,  יהיה " peut également être interprété au présent, "est" le plus haut" Ralbag. Ou encore,  יהיה עליון  est interprété comme "sera détruit"."Radak</i> Et de la même manière, il est écrit dans Divrei Hayomim, "Et ce Beis [Hamikdosh] qui a été exalté, tous ceux qui passent devant, etc, "<sup>5</sup><i class="footnote">II Divrei Hayomim 7:41.</i> et voici son interprétation, "et cette maison qui était exaltée et vénérée même par les Gentils," comme il est dit plus haut, "Et même à l'étranger qui n'est pas de Ton peuple, etc, "<sup>6</sup><i class="footnote">I Melahim 8:21.</i> Mais, maintenant dans sa destruction, tous ceux qui passeront devant, même les Gentils, seront stupéfaits et siffleront, et diront que les péchés des Juifs en sont la cause.
@@ -50,7 +50,7 @@
 <b>Et Tadmor dans le désert du pays.</b> [C'est-à-dire qu'il était situé] près d'une colonie.<sup>15</sup><i class="footnote">L'expression  במדבר בארץ  [=dans le désert du pays] est quelque peu ambiguë. C'est pourquoi Rachi suggère que le désert était situé près d'une zone civilisée. Alternativement, la ville était bordée par un désert d'un côté, et par des terres arables de l'autre côté. Ralbag</i>
 
 ### passuk 19
-<b>Les villes de stockage.</b> [Le Targum Yonoson a rendu,] "villes utilisées pour le stockage".
+<b>Les villes de stockage.</b> [Le Targum Yonathan a rendu,] "villes utilisées pour le stockage".
 
 ### passuk 20
 

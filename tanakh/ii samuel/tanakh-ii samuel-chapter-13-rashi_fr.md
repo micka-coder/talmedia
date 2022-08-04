@@ -90,7 +90,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>David désirait.</b> Il s'agit d'un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonoson traduit également [de cette manière :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> Il s'agit d'un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonathan traduit également [de cette manière :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris

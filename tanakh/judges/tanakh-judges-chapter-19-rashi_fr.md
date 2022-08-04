@@ -26,7 +26,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>À Giv'oh.</b> Giv'oh de Binyomin.
+<b>À Giv'ah.</b> Giv'ah de Binyamin.
 
 ### passuk 13
 <b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue le <span><b> </b></span> sert à remplacer un deuxième <span><b> </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b> </b></span> apparaît dans la racine, comme dans <span><b>לין</b></span>, le <span><b> </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b> </b></span>.</i>

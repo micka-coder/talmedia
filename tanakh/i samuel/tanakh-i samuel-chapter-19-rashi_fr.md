@@ -55,7 +55,7 @@
 
 ### passuk 24
 <b>Il a aussi enlevé ses vêtements.</b> Ses vêtements royaux, pour revêtir ses vêtements d'étudiants.
-<b>Il tomba dépouillé.</b> Le Targum Yonoson rend <span>ï¬נְפַל </span> 'et il tomba nu'. Et au nom de R. Menachem, qui a entendu d'un Arabe, <span>ï¬±'ִרְ</span> en arabe [signifie] fou.
+<b>Il tomba dépouillé.</b> Le Targum Yonathan rend <span>ï¬נְפַל </span> 'et il tomba nu'. Et au nom de R. Menachem, qui a entendu d'un Arabe, <span>ï¬±'ִרְ</span> en arabe [signifie] fou.
 
 >Crédit : sefaris
 >License : CC-BY

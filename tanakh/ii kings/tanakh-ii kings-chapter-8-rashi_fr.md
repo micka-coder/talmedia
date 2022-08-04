@@ -37,7 +37,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Une couverture.</b> [Targum] Yonoson rend  גּוּנְכָא  [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller".  Radak Ou, un vêtement épais. Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה","<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend,  בְּגוּנְכָא  [=une couverture], c'est-à-dire, un vêtement.
+<b>Une couverture.</b> [Targum] Yonathan rend  גּוּנְכָא  [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller".  Radak Ou, un vêtement épais. Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה","<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend,  בְּגוּנְכָא  [=une couverture], c'est-à-dire, un vêtement.
 <b>Il l'étendit sur son visage [celui de Ben-Hadad].</b> Pour se rafraîchir.</b> <sup>13</sup><i class="footnote">Il dit à Ben-Hadad qu'il faisait cela pour le soulager de sa maladie, mais en réalité, Chazoeil avait l'intention de le tuer.Radak</i>
 
 ### passuk 16

@@ -1,9 +1,9 @@
 
 ### passuk 1
 <b>Et il y avait un homme.</b> Tout suit l'ordre : Moshe remit la Torah à Yehoshua et Yehoshua aux Anciens et chaque Juge à son successeur jusqu'à ce qu'elle atteigne Eili qui la remit à Shmuel<sup>1</sup><i class="footnote">C'est-à-dire, le "<<span>וְאֵלֶה</span>" de <span>-"</span> relie le Livre de Shmuel au Livre de Shoftim qui le précède et sert de lien entre la tradition orale telle qu'énoncée dans la Mishna, et les Anciens</i> comme nous l'avons appris (dans la Mishna),  et les Anciens [l'ont remis] aux Prophètes<sup>2</sup><i class="footnote">Masech Avos 1 : 1. </i>
-<b>De Ramasayim Tsofim.</b> Il y avait deux collines visibles l'une par rapport à l'autre.</sup>3</sup><i class="footnote">Elkonoh vivait à Romoh, voir ci-dessous le verset 19 ; et il prophétisait à TsofimDa'as Sofrim. </i><sup>4</sup><i class="footnote">Masehet Megillah 14a.</i> Le Targum Yonoson rend <span>צוֹפִים</span> : "des disciples des prophètes".
+<b>De Ramasayim Tsofim.</b> Il y avait deux collines visibles l'une par rapport à l'autre.</sup>3</sup><i class="footnote">Elkonoh vivait à Romoh, voir ci-dessous le verset 19 ; et il prophétisait à TsofimDa'as Sofrim. </i><sup>4</sup><i class="footnote">Masehet Megillah 14a.</i> Le Targum Yonathan rend <span>צוֹפִים</span> : "des disciples des prophètes".
 <b>Elkonoh.</b> Il était un lévite des fils d'Aviosof, le fils de Korach  son ascendance est ainsi consignée dans le Divrei Hayomim.<sup>5</sup><i class="footnote">I Divrei Hayomim 6:19-23.</i>
-<b>Du pays d'Ephrayim.</b> [Targum] Yonoson rend "sur la montagne de la maison d'Ephrayim". Le Midrash Aggadah [rend] <span>אֶפְרָתִי</span> - un habitant du palais, une personne importante, <sup>6</sup><i class="footnote">Rashi souligne que <span>אֶפְרָתִי</span> ne signifie pas qu'il était de la tribu d'Ephrayim car il a déjà été établi qu'il était de la tribu de Levi. </i> comme dans "étendons <span>אַפִּרְיוֹן</span> à Rabbi Shimon,"<sup>7</sup><i class="footnote">Masehet Bava Metzia 119a.</i> [signifiant] une expression de faveur.
+<b>Du pays d'Ephrayim.</b> [Targum] Yonathan rend "sur la montagne de la maison d'Ephrayim". Le Midrash Aggadah [rend] <span>אֶפְרָתִי</span> - un habitant du palais, une personne importante, <sup>6</sup><i class="footnote">Rashi souligne que <span>אֶפְרָתִי</span> ne signifie pas qu'il était de la tribu d'Ephrayim car il a déjà été établi qu'il était de la tribu de Levi. </i> comme dans "étendons <span>אַפִּרְיוֹן</span> à Rabbi Shimon,"<sup>7</sup><i class="footnote">Masehet Bava Metzia 119a.</i> [signifiant] une expression de faveur.
 
 ### passuk 2
 
@@ -44,10 +44,10 @@
 <b>Pendance masculine.</b> C'est-à-dire des hommes justes, comme il est écrit : "Deux hommes [<span>אֲנָשִׁים</span>] qui étaient justes."<sup>20</sup><i class="footnote">I Melachim 2:32.</i>
 <b>Hommes.</b> C'est-à-dire, des hommes importants,<sup>21</sup><i class="footnote"> Voir Maseches Berahot 31b.</i> car il est écrit, "hommes sages" et connus <span>]</span><span>אֲנָשִׁים</span>[</span>.<sup>22</sup><i class="footnote">Devarim 1:13.</i>
 <b>Alors je le donnerai à Hachem.</b> C'est-à-dire qu'il soit apte à être donné à Hachem.
-<b>Et un rasoir.</sup></sup><i class="footnote">Voir Maseches Nazir 66a où cette même différence d'opinion est discutée. R. Nehorai interprète <span>מוֹרָה"</span> comme signifiant un rasoir, car l'Écriture déclare à propos de Shimshon, dans Shoftim 13:5, que "le rasoir [<span>מוֹרָהk_B8↩"</span>] ne doit pas être manié sur sa tête." Et R. Yose soutient que [<span>מוֹרָה"</span>] est une connotation faisant référence à la crainte de l'homme.</i></b> Le Targum Yonoson rend : "et la crainte [<span>וּמַרְוַת</span>] de l'homme ne sera pas sur lui."
+<b>Et un rasoir.</sup></sup><i class="footnote">Voir Maseches Nazir 66a où cette même différence d'opinion est discutée. R. Nehorai interprète <span>מוֹרָה"</span> comme signifiant un rasoir, car l'Écriture déclare à propos de Shimshon, dans Shoftim 13:5, que "le rasoir [<span>מוֹרָהk_B8↩"</span>] ne doit pas être manié sur sa tête." Et R. Yose soutient que [<span>מוֹרָה"</span>] est une connotation faisant référence à la crainte de l'homme.</i></b> Le Targum Yonathan rend : "et la crainte [<span>וּמַרְוַת</span>] de l'homme ne sera pas sur lui."
 
 ### passuk 12
-<b>Watched her mouth.</b> Il a attendu qu'elle s'arrête, comme le rend le Targum Yonoson, 'et Eili a attendu qu'elle s'arrête.'
+<b>Watched her mouth.</b> Il a attendu qu'elle s'arrête, comme le rend le Targum Yonathan, 'et Eili a attendu qu'elle s'arrête.'
 <b>Watched.</b> Une expression d'attente, comme dans, "[et son père] garda l'affaire en tête <span>]</span><span>שָׁמַר</span><span>[</span>"<sup>24</sup><i class="footnote">Bereishis 37:11.</i> c'est-à-dire, a attendu, [et de même] "n'attends pas [<span>תִשְׁמוֹר</span>] mon péché."<sup>25</sup><i class="footnote">Iyov 14:16.</i>
 
 ### passuk 13

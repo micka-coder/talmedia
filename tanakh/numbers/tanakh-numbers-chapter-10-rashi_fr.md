@@ -68,7 +68,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>Le rassembleur pour tous les camps.</b> Talmud Yerushalmi [enseigne] : Comme la tribu de Don était très peuplée, elle voyageait en dernier. Si quelqu'un perdait un bien, elle le lui rendait. Il existe une opinion selon laquelle <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ils voyageaient en forme de boîte, dérivée de : "De même qu'ils campaient, ils voyageaient aussi".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un autre avis est qu'ils voyageaient en forme de poutre, dérivée de "Le rassembleur de tous les camps". 
+<b>Le rassembleur pour tous les camps.</b> Talmud Yerushalmi [enseigne] : Comme la tribu de Dan était très peuplée, elle voyageait en dernier. Si quelqu'un perdait un bien, elle le lui rendait. Il existe une opinion selon laquelle <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ils voyageaient en forme de boîte, dérivée de : "De même qu'ils campaient, ils voyageaient aussi".<i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Un autre avis est qu'ils voyageaient en forme de poutre, dérivée de "Le rassembleur de tous les camps". 
 
 ### passuk 26
 
@@ -79,7 +79,7 @@
 <b>Ils ont voyagé.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Ce jour-là, ils ont voyagé. 
 
 ### passuk 29
-<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Yisro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé". Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Reuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yitro " [lit. " additionnel "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " quelqu'un qui chérit "] parce qu'il chérissait la Torah, etc... . 
+<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>C'était Yitro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé". Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Reuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yitro " [lit. " additionnel "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " quelqu'un qui chérit "] parce qu'il chérissait la Torah, etc... . 
 <b>Nous faisons route vers le lieu.</b> Immédiatement. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>En trois jours, nous entrons en terre [sainte]. Car lors de ce premier voyage, ils ont voyagé avec l'intention d'entrer en Eretz Yisrael, mais ils ont péché avec les râleurs. Mais pourquoi Moshé s'est-il inclus parmi eux ? Parce que le décret n'avait pas encore été émis contre lui, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> et qu'il pensait y entrer. 
 
 ### passuk 30
@@ -92,7 +92,7 @@
 <b>Vous serez nos yeux.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Passé, comme le rend le Targum [Onkelos]. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Futur. [Si] quelque chose [est] caché à nos yeux, tu éclaireras nos yeux. Autre interprétation : Tu nous seras aussi précieux que les pupilles de nos yeux, comme il est dit : " Tu aimeras le prosélyte ". 
 
 ### passuk 32
-<b>Il sera que le très bon (lit. que bon).</b> Quel bien lui ont-ils accordé ? Ils ont dit : "Lorsque les Israélites ont divisé le pays, il y avait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une région fertile de Yericho, cinq cents <i>amos</i> par cinq cents <i>amos,</i> qu'ils ont laissée indivise." Ils ont dit : En attendant, ils la donnèrent aux enfants de Yisro, à Yonadav, fils de Rechav, comme il est dit : "Les fils de Keini, beau-père de Moshé, montèrent de la ville des dattes, etc...". 
+<b>Il sera que le très bon (lit. que bon).</b> Quel bien lui ont-ils accordé ? Ils ont dit : "Lorsque les Israélites ont divisé le pays, il y avait <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> une région fertile de Yericho, cinq cents <i>amos</i> par cinq cents <i>amos,</i> qu'ils ont laissée indivise." Ils ont dit : En attendant, ils la donnèrent aux enfants de Yitro, à Yonadav, fils de Rechav, comme il est dit : "Les fils de Keini, beau-père de Moshé, montèrent de la ville des dattes, etc...". 
 
 ### passuk 33
 <b>Un voyage de trois jours.</b> Trois jours de voyage, <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>ils ont voyagé en un jour, car le Saint, Béni soit-Il, voulait les faire entrer dans le pays immédiatement. 

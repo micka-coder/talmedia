@@ -20,7 +20,7 @@
 <b>Paix à vous"</b> Il en sera ainsi pendant longtemps.</sup>5</sup><i class="footnote">Et pour souligner sa longévité, ils mentionnent <span>ï¬-ַל</span> [=paix] trois fois dans leur déclaration.</i>
 
 ### passuk 7
-<b>Nous ne leur avons pas fait honte.</b> S'ils avaient besoin de nous pour quoi que ce soit, nous ne les avons pas renvoyés les mains vides.</sup>6</sup><i class="footnote">Nous ne leur avons pas fait de mal physique.</b> - Targum Yonoson.</i>
+<b>Nous ne leur avons pas fait honte.</b> S'ils avaient besoin de nous pour quoi que ce soit, nous ne les avons pas renvoyés les mains vides.</sup>6</sup><i class="footnote">Nous ne leur avons pas fait de mal physique.</b> - Targum Yonathan.</i>
 <b>Pas une chose qui leur manquait.</b> De vos troupeaux, car nous les surveillions.</b> <sup>7</sup><i class="footnote">Et nous les avons protégés de l'attaque des animaux sauvages.</b> - Mahri Kra.</i>
 
 ### passuk 8
@@ -55,7 +55,7 @@
 <b>Il est une personne trop méchante pour qu'on lui parle.</b> Notre maître est une personne si vile<sup>13</sup><i class="footnote">Ou, la phrase se réfère à David, que David est une personne si vile qu'il est capable d'attaquer sans prévenir.</b> Radak.</i> de sorte que je ne peux pas lui dire ce que je te dis, car il se mettrait en colère contre nous.
 
 ### passuk 18
-<b>Préparé.</b> Le Targum Yonoson rend <span>ïŠ-ַכְ</span>, rempli de viande finement coupée et d'ufs ; farcides en ancien français, comme nous l'avons appris dans [Maseches] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon appelle cela <span>ïŠ-ְרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>ïŠ-ַכְ</span> est une combinaison de deux mots <span>ïŠï'ְרָא</span> [=intérieur] et <span>ï¬±ַכְ</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est-il dit dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
+<b>Préparé.</b> Le Targum Yonathan rend <span>ïŠ-ַכְ</span>, rempli de viande finement coupée et d'ufs ; farcides en ancien français, comme nous l'avons appris dans [Maseches] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon appelle cela <span>ïŠ-ְרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>ïŠ-ַכְ</span> est une combinaison de deux mots <span>ïŠï'ְרָא</span> [=intérieur] et <span>ï¬±ַכְ</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est-il dit dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
 <b>Raisins secs.</b> Raisins secs.
 <b>Gâteaux de figues pressées.</b> Gâteaux ronds de figues sèches, foulées et pressées dans un récipient.
 
@@ -68,7 +68,7 @@
 <b>David a dit.</b> A lui-même lorsque ses jeunes lui ont raconté les insultes de Novol : " C'est pour rien que j'ai gardé, etc. ".
 
 ### passuk 22
-<b>Même un chien.</b> Le Targum Yonoson rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cœur.Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Maseches Bava Basro 19b.</i>
+<b>Même un chien.</b> Le Targum Yonathan rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cœur.Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Maseches Bava Basro 19b.</i>
 
 ### passuk 23
 

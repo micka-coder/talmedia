@@ -59,7 +59,7 @@
 
 ### passuk 18
 <b>Ben Oni.</b> [Signification :] fils de mon angoisse.
-<b>Binyomin.</b> Il me semble que puisque lui seul est né dans le Pays de Canaan qui est au sud pour celui qui vient de Aram Naharayim, comme il est dit : <b>Dans le Sud en Terre de Canaan" [ou] "Voyageant régulièrement vers le Sud.</b> [Il est donc appelé  בִּנְיָמִין  ,] contraction de  בֶּן יְמִין  , de : "Nord et  יְמִין  Tu les as créés." C'est pour cette raison qu'il est écrit complet. 
+<b>Binyamin.</b> Il me semble que puisque lui seul est né dans le Pays de Canaan qui est au sud pour celui qui vient de Aram Naharayim, comme il est dit : <b>Dans le Sud en Terre de Canaan" [ou] "Voyageant régulièrement vers le Sud.</b> [Il est donc appelé  בִּנְיָמִין  ,] contraction de  בֶּן יְמִין  , de : "Nord et  יְמִין  Tu les as créés." C'est pour cette raison qu'il est écrit complet. 
 
 ### passuk 19
 

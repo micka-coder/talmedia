@@ -10,12 +10,12 @@
 <b>Porter l'Eiphod.</b> Signifiant l'Urim et le Tumim.
 
 ### passuk 4
-<b>Entre les cols que Yonoson voulait franchir.</b> Il en fut ainsi fait : Il y avait un précipice rocheux de ce côté de 'entre les cols', et il y avait un précipice rocheux de l'autre côté de 'entre les cols'. La vallée est appelée 'entre les cols', et elle avait une pierre d'ici, et une pierre d'ici, une de ce côté et une de l'autre côté, et la vallée était entre les deux cols. C'est cette vallée que Yonoson voulait traverser.
+<b>Entre les cols que Yonathan voulait franchir.</b> Il en fut ainsi fait : Il y avait un précipice rocheux de ce côté de 'entre les cols', et il y avait un précipice rocheux de l'autre côté de 'entre les cols'. La vallée est appelée 'entre les cols', et elle avait une pierre d'ici, et une pierre d'ici, une de ce côté et une de l'autre côté, et la vallée était entre les deux cols. C'est cette vallée que Yonathan voulait traverser.
 <b>Récipice rocheux.</b> Le nom d'un précipice était Botzeitz et le nom du second était Seneh.<sup>1</sup><i class="footnote">Les noms des deux précipices rocheux sont révélateurs de leur terrain. Botzeitz, comme son nom l'indique, avait une surface lisse et glissante, ce qui le rendait très difficile à escalader. Le Seneh avait une surface "usée". "Radak".
 
 ### passuk 5
 <b>Sortant du nord.</b> Incliné du côté nord vers Michmos.
-<b>Vers Geva.</b> D'où Yonoson a émergé.
+<b>Vers Geva.</b> D'où Yonathan a émergé.
 
 ### passuk 6
 
@@ -27,7 +27,7 @@
 <b>Arrêter.</b> Attendre, comme dans, "Soleil, attends [<span>דּוֹם</span>] à Givon,"<sup>2</sup><i class="footnote"> Yehoshua 10:12.</i> et comme dans, "Attends <span>. "<sup>3</sup><i class="footnote"> Tehillim 37:7.</i></span><span>השם</span> [Le sens ici étant] que s'ils disent : " Attends, et nous monterons vers toi ", ils ont actuellement du succès et ils sont fiers.
 
 ### passuk 10
-<b>Mais s'ils disent [à nous] : " Montez vers nous ". Une crainte inspirée par le Saint, Béni soit-Il, est dans leur cœur et ils ont peur de bouger de leur place.<sup>4</sup><i class="footnote">Bien qu'il y ait une interdiction de recourir aux présages dans Vayikra 19:26, Tosfos dans Maseches Chulin 95b explique que Yonoson lui-même ne croyait pas au signe, il l'a seulement fait pour encourager son porteur d'arme. Voir Radak. </i></b>
+<b>Mais s'ils disent [à nous] : " Montez vers nous ". Une crainte inspirée par le Saint, Béni soit-Il, est dans leur cœur et ils ont peur de bouger de leur place.<sup>4</sup><i class="footnote">Bien qu'il y ait une interdiction de recourir aux présages dans Vayikra 19:26, Tosfos dans Maseches Chulin 95b explique que Yonathan lui-même ne croyait pas au signe, il l'a seulement fait pour encourager son porteur d'arme. Voir Radak. </i></b>
 
 ### passuk 11
 
@@ -44,7 +44,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Les sentinelles de Shaoul.</b> Les sentinelles que Shaoul avait à Givas Binyomin.<sup>6</sup><i class="footnote">Les sentinelles désignées par Shaoul pour surveiller l'ennemi ont fait l'observation.</i><span>צוֹפִים</span> est <i>badetes</i> en ancien français.
+<b>Les sentinelles de Shaoul.</b> Les sentinelles que Shaoul avait à Givat Binyamin.<sup>6</sup><i class="footnote">Les sentinelles désignées par Shaoul pour surveiller l'ennemi ont fait l'observation.</i><span>צוֹפִים</span> est <i>badetes</i> en ancien français.
 <b>Voyez la multitude.</b> Des Philistins fondait de sa position et ne cessait de se rapprocher de <span>הֲלֹם</span> c'est-à-dire du côté de Yisrael.
 <b>Fusionner.</b> [Cela signifie la même chose que], "errer et se déplacer."<sup>7</sup><i class="footnote"> Bereishis 4:12.</i>
 
@@ -130,7 +130,7 @@
 ### passuk 44
 
 ### passuk 45
-<b>Le peuple racheta [Yonoson].</b> Il annula le serment de Shaoul.
+<b>Le peuple racheta [Yonathan].</b> Il annula le serment de Shaoul.
 
 ### passuk 46
 

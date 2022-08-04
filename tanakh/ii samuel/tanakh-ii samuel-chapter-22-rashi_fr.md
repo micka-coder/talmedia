@@ -18,11 +18,11 @@
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
-<b>Destruction de la mort.</b> Comme le traduit [Yonoson], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַ</span>.</i>
+<b>Destruction de la mort.</b> Comme le traduit [Yonathan], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַ</span>.</i>
 <b>Le déluge.</b> Des soldats se déversant comme un torrent.
 
 ### passuk 6
-<b>L'agonie.</b> Comme [Yonoson] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
+<b>L'agonie.</b> Comme [Yonathan] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
 <b>Etaient devant moi.</b> Sont venus devant moi.
 
 ### passuk 7

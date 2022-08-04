@@ -28,7 +28,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Un vieux prophète.</b> Un faux prophète.</sup></sup><i class="footnote">Selon certaines opinions, le prophète était Micha. D'autres opinent qu'il s'agit de Amatzyah, ou de Yiddo, ou de Yonoson, fils de Gershom. Radak</i>
+<b>Un vieux prophète.</b> Un faux prophète.</sup></sup><i class="footnote">Selon certaines opinions, le prophète était Micha. D'autres opinent qu'il s'agit de Amatzyah, ou de Yiddo, ou de Yonathan, fils de Gershom. Radak</i>
 <b>Qui vivait à Beis Eil.</b> Mais il n'était pas de là , mais il venait de Shomron, et c'est ainsi qu'il est indiqué dans la section traitant de Yoshiyahu, " ses os avec les os du prophète qui était venu de Shomron."<sup>7</sup><i class="footnote">II Melahim 23:18.</i>
 
 ### passuk 12
@@ -52,7 +52,7 @@
 <b>Ce qui l'a fait revenir.</b> A l'homme de Dieu. De là, ils [les sages] ont déduit que [offrir] un rafraîchissement est une grande chose, car cela fait reposer la Présence divine sur les prophètes du Baal.<sup>8</sup><i class="footnote">Le simple acte d'hospitalité peut avoir de grandes et profondes conséquences. Voir Maseches Sanhedrin 103b-104a.</i>
 
 ### passuk 21
-<b>Et il appela.</b> Le vieux prophète appela l'homme de Dieu.<sup>9</sup><i class="footnote">Alternativement, et "il prophétisa sur le prophète de Dieu.Targum Yonoson</i>
+<b>Et il appela.</b> Le vieux prophète appela l'homme de Dieu.<sup>9</sup><i class="footnote">Alternativement, et "il prophétisa sur le prophète de Dieu.Targum Yonathan</i>
 
 ### passuk 22
 

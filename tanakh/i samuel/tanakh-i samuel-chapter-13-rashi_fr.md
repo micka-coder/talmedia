@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Yisrael et ils l'ont posté à Givas Binyomin.<sup>2</sup><i class="footnote">Yonoson l'a assassiné comme un acte ouvert de rébellion contre les Philistins.Radak</i>.
+<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Yisrael et ils l'ont posté à Givat Binyamin.<sup>2</sup><i class="footnote">Yonathan l'a assassiné comme un acte ouvert de rébellion contre les Philistins.Radak</i>.
 <b>Que les Hébreux entendent.</b> Que nous nous sommes révoltés contre les Philistins et qu'ils doivent se méfier d'eux.
 
 ### passuk 4
@@ -55,7 +55,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi le <span>'<sup>12</sup><i class="footnote"> Maseches Bava Kama 16a.</i></span><span> '-</span> Le Targum Yonoson rend : '<span>'<sup>13</sup><i class="footnote"> Peut-être s'agit-il de la hyène ou du renard. </i></span><span>צָּבוֹעַ</span> et c'est ainsi que nos sages de sainte mémoire, expliquent, <span> '-</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֲפָעַיָא"</span>une espèce d'animaux féroces et destructeurs.
+<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi le <span>'<sup>12</sup><i class="footnote"> Maseches Bava Kama 16a.</i></span><span> '-</span> Le Targum Yonathan rend : '<span>'<sup>13</sup><i class="footnote"> Peut-être s'agit-il de la hyène ou du renard. </i></span><span>צָּבוֹעַ</span> et c'est ainsi que nos sages de sainte mémoire, expliquent, <span> '-</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֲפָעַיָא"</span>une espèce d'animaux féroces et destructeurs.
 
 ### passuk 19
 <b>On ne trouvait pas de forgeron.</b> C'est-à-dire qu'il n'y en avait pas au début du règne de Shaoul, car les Philistins qui régnaient sur Yisrael, ont éliminé tous les forgerons de Yisrael, de peur qu'ils ne fabriquent des armes pour faire la guerre.

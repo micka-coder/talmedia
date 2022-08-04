@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Comme il n'était pas tombé sur leur sort.</b> Un héritage convenable pour eux dans le territoire conquis, comme il est dit dans Yehoshua : "La limite de Bnei Don s'étendait à partir d'eux."<sup>1</sup><i class="footnote">Yehoshua, 19:47. Voir Rachi à ce sujet.</i><sup>2</sup><i class="footnote">Lorsque la répartition des terres entre les tribus fut achevée.</i> Ceci nous enseigne également que cet épisode s'est déroulé au tout début de la période des juges.</sup>3</sup><i class="footnote">En plus des preuves présentées par Rachi ci-dessus, 17:1.</i>
+<b>Comme il n'était pas tombé sur leur sort.</b> Un héritage convenable pour eux dans le territoire conquis, comme il est dit dans Yehoshua : "La limite de Bnei Dan s'étendait à partir d'eux."<sup>1</sup><i class="footnote">Yehoshua, 19:47. Voir Rachi à ce sujet.</i><sup>2</sup><i class="footnote">Lorsque la répartition des terres entre les tribus fut achevée.</i> Ceci nous enseigne également que cet épisode s'est déroulé au tout début de la période des juges.</sup>3</sup><i class="footnote">En plus des preuves présentées par Rachi ci-dessus, 17:1.</i>
 
 ### passuk 2
 
@@ -56,7 +56,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Ils ont tourné leur visage.</b> Les fils de Don se sont tournés vers ceux qui leur criaient dessus.
+<b>Ils ont tourné leur visage.</b> Les fils de Dan se sont tournés vers ceux qui leur criaient dessus.
 
 ### passuk 24
 <b>Qu'est-ce que j'ai d'autre.</b> Qu'est-ce qui me reste d'autre ?

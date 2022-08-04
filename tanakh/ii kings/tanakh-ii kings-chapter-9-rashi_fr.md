@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Le garçon, le disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de  הַנַּעַר  dans ce verset. </i> ainsi rendu [Targum] Yonoson, "et le jeune homme, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le jeune homme, le jeune homme qui était un prophète [de plein droit], s'en alla."Malbim</i>
+<b>Le garçon, le disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de  הַנַּעַר  dans ce verset. </i> ainsi rendu [Targum] Yonathan, "et le jeune homme, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le jeune homme, le jeune homme qui était un prophète [de plein droit], s'en alla."Malbim</i>
 
 ### passuk 5
 
@@ -30,7 +30,7 @@
 <b>Ils ont dit : "C'est un mensonge.</b> [Ce] que vous dites ; vous cachez ce qu'il vous a dit.</sup></sup><i class="footnote">Yeihu voulait cacher la prophétie et attendre un moment plus opportun pour la révéler.</i>
 
 ### passuk 13
-<b>Sur la marche supérieure. </b> (Targum) [Yonoson a rendu,]  עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte lit  לִדְּרַג שָׁr-ַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure.  גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה", se rapportant aux lois de  שְׁחִיטָה " [=abattage rituel] est de cette dérivation, que l'on abat en ligne droite, puis [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
+<b>Sur la marche supérieure. </b> (Targum) [Yonathan a rendu,]  עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte lit  לִדְּרַג שָׁr-ַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure.  גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה", se rapportant aux lois de  שְׁחִיטָה " [=abattage rituel] est de cette dérivation, que l'on abat en ligne droite, puis [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
 
 ### passuk 14
 
@@ -75,7 +75,7 @@
 <b>La onzième année de Yorom, fils d'Achov, Achazyoh devint roi.</b> Plus haut, il est dit : "La douzième année.<<sup>18</sup><i class="footnote">8:25.</i> Et on est obligé [de dire] que Yehorom son père est mort la douzième année de Yorom, car il est devenu roi la cinquième année de Yorom et il a régné pendant huit ans. Pourquoi donc est-il dit ici : "La onzième année" ? Je dis qu'il a régné un an du vivant de son père parce qu'il a été affligé de graves maladies, comme il est dit : " Et après tout cela, Hachem l'a affligé [dans ses intestins] d'une maladie incurable, et c'est au bout d'un an " ses intestins sont sortis à cause de sa maladie, etc, "<sup>19</sup><i class="footnote">II Divrei Hayomim 21:18-19.</i> "et les habitants de Yerushalayim firent un roiAchazyohu."<sup>20</sup><i class="footnote">Ibid. 22:1.</i> Ici, il est dit : "Achazyohou avait vingt-deux ans lorsqu'il devint roi","<sup>21</sup><i class="footnote">Haut 8:26.</i> mais dans le Divrei Hayomim [il est dit] : "Il avait quarante-deux ans lorsqu'il régna"."<sup>22</sup><i class="footnote">II Divrei Hayomim 22:2. </i> Yehorom, son père, vécut quarante ans, pas plus, comme il est dit, à son sujet : "Il avait trente-deux ans lorsqu'il devint roi, et il régna huit ans [à Yerushalayim]."<sup>23</sup><i class="footnote">Haut 8:17.</i> Comment est-il donc possible qu'un fils ait deux ans de plus que son père ? Au contraire, vingt ans avant sa naissance, c'est-à-dire deux ans avant celle de son père, ce décret a été publié. Du jour où Asa a pris la fille d'Omri en mariage pour son fils Yehoshophot, un décret a été publié sur la maison de David pour qu'elle soit détruite avec la maison d'Achov. Et de même, il est dit : " Et de la part de Dieu [il a été décrété] pour la ruine d'Achazyohu, qu'il vienne à Yorom, etc."<sup>24</sup><i class="footnote">II Divrei Hayomim 22:7. </i> Ainsi est-il enseigné dans le Seder Olam et dans la Tosefta de [Maseches] Sotah.<sup>25</sup><i class="footnote">12:3.</i> Cependant, dans toute l'Écriture, nous ne trouvons pas que Yehoshophot a épousé la fille d'Omri. Cependant, j'ai trouvé dans le Divrei Hayomim, " Et il s'est marié avec Achov ". <sup>26</sup><i class="footnote">II Divrei Hayomim 18:1.</i> Peut-être cela [fait-il référence à] sa sÅ"ur qu'il a épouse. Il l'a épousée la trente et unième année d'Asa, comme il est dit : "La trente et unième année du règne d'Asa, [roi de Yehouda], Omri régna [sur Yisrael]."<sup>27</sup><i class="footnote">I Melahim 16:23. </i> Et nous avons appris dans le Seder Olam qu'il a régné sur tout le royaume, pendant six ans auparavant, il a régné sur la moitié du peuple, et quand Asa a pris sa fille [Imri'] en mariage à [son fils] Yehoshophot, Imri a gagné en prestige, et ils ont assassiné Tivni. Procédez et calculez depuis la trente et unième année d'Asa jusqu'à la mort d'Achazyohu et vous trouverez qu'ils sont quarante-deux [ans].
 
 ### passuk 30
-<b>Et maquilla ses cheveux.</b> [Targum Yonoson] (traduit)  וּתְקָנַת יַת רֵישָׁהּ  [=elle orna sa tête], afin d'avoir du charme aux yeux de Yeihu' et qu'il l'épouse. <sup>28</sup><i class="footnote">Alternativement, elle s'est faite belle en espérant que Yeihu épargnera sa vie. Metzudas David</i>
+<b>Et maquilla ses cheveux.</b> [Targum Yonathan] (traduit)  וּתְקָנַת יַת רֵישָׁהּ  [=elle orna sa tête], afin d'avoir du charme aux yeux de Yeihu' et qu'il l'épouse. <sup>28</sup><i class="footnote">Alternativement, elle s'est faite belle en espérant que Yeihu épargnera sa vie. Metzudas David</i>
 
 ### passuk 31
 <b>Et elle dit : "Est-ce que tout va bien ?"</b> Veux-tu être avec moi en paix ?
@@ -95,7 +95,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Comme du fumier.</b> [Targum Yonoson] rend  כזבל<sup>34</sup><i class="footnote">Son nom indiquait son avenir,  אִיזֶבֶל  est un acronyme de  אִי  [=woe] qu'elle sera comme  זֶבֶל  [= fumier].Kli Yakar </i> [=comme du fumier].
+<b>Comme du fumier.</b> [Targum Yonathan] rend  כזבל<sup>34</sup><i class="footnote">Son nom indiquait son avenir,  אִיזֶבֶל  est un acronyme de  אִי  [=woe] qu'elle sera comme  זֶבֶל  [= fumier].Kli Yakar </i> [=comme du fumier].
 
 >Crédit : sefaris
 >Licence : CC-BY

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyomin, car le lot de Binyomin était le premier des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : " Et ils le diviseront en sept parts ", car Yehouda et Yossef avaient auparavant reçu [leur héritage] comme il est dit ici : " Yéhouda restera sur sa limite au sud, [et la maison de Yossef restera sur sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
+<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyamin, car le lot de Binyamin était le premier des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : " Et ils le diviseront en sept parts ", car Yehouda et Yossef avaient auparavant reçu [leur héritage] comme il est dit ici : " Yéhouda restera sur sa limite au sud, [et la maison de Yossef restera sur sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
 
 ### passuk 2
 
@@ -90,7 +90,7 @@
 ### passuk 40
 
 ### passuk 41
-<b>Tzoroh, Eshtaeil.</b> Ce sont des villes de la portion de Yehouda, et le lot des Bnei Don est tombé près d'elles.
+<b>Tzoroh, Eshtaeil.</b> Ce sont des villes de la portion de Yehouda, et le lot des Bnei Dan est tombé près d'elles.
 
 ### passuk 42
 
@@ -103,7 +103,7 @@
 ### passuk 46
 
 ### passuk 47
-<b>La frontière des Bnei Don s'étendait à partir d'eux.</b> A cet endroit, ils n'ont pris qu'une petite partie, mais le lot est également tombé pour eux à un autre endroit qui était à une certaine distance de leur frontière, et ainsi les autres tribus sont intervenues entre eux. <sup>4</sup><i class="footnote">D'autres expliquent les mots,  וַיֵצֵא גְבוּל בְנֵי־דָן מֵהֶם  pour signifier, "la frontière des Bnei Don était trop petite pour eux," et ils sont partis capturer la ville de Leshem pour faire de la place à leur population.</i>
+<b>La frontière des Bnei Dan s'étendait à partir d'eux.</b> A cet endroit, ils n'ont pris qu'une petite partie, mais le lot est également tombé pour eux à un autre endroit qui était à une certaine distance de leur frontière, et ainsi les autres tribus sont intervenues entre eux. <sup>4</sup><i class="footnote">D'autres expliquent les mots,  וַיֵצֵא גְבוּל בְנֵי־דָן מֵהֶם  pour signifier, "la frontière des Bnei Dan était trop petite pour eux," et ils sont partis capturer la ville de Leshem pour faire de la place à leur population.</i>
 <b>Ils ont combattu contre Leshem.</b> Cela a eu lieu plus tard, à l'époque d'Osniel, le fils de Kenaz, à l'époque de l'image taillée de Micho, comme il est dit dans le livre de Shoftim.</sup>5</sup><i class="footnote">Shoftim 17:3,4. 18:2. (Voir Rachi à 17:1.)</i>
 <b>Leshem</b> C'est la ville de Layish, qui est mentionnée dans le livre de Shoftim.<sup>6</sup><i class="footnote">Shoftim 18:7,14.</i>
 

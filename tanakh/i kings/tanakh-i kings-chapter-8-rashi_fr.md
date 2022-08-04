@@ -4,7 +4,7 @@
 <b>De la ville de David.</b> David l'avait placé là lorsqu'il l'avait apporté de la maison de Oved Edom.</sup>2</sup><i class="footnote">Voir II Chmuel 6:10-12, 17.</i>
 
 ### passuk 2
-<b>Dans le mois <i>Eisonim</i>.</b> [Targum] Yonoson a rendu : "Dans le mois que les gens de l'antiquité appelaient le premier mois, lors de la fête, et actuellement c'est le septième mois, c'est-à-dire, depuis que la Torah a été donnée, et il est écrit au mois de Nissan qu'il est le premier des mois, [donc,] Tishrei<sup>3</sup><i class="footnote">Bien que la construction du Beit Hamikdash ait été achevée au huitième mois de l'année précédente [voir ci-dessus 6:38], Shlomo a reporté son inauguration au Tishrei suivant. </i> est appelé le septième [mois].<sup>4</sup><i class="footnote">איתן  signifie "tout-puissant" et  ירח האיתנים  fait référence au mois de Tishrei qui a l'effet spirituel le plus fort pour que les gens s'améliorent en raison des fêtes célébrées pendant TishreiRalbag. Alternativement,  איתנים  fait allusion aux Patriarches. Voir Maseches Rosh Hashana 11a.</i>
+<b>Dans le mois <i>Eisonim</i>.</b> [Targum] Yonathan a rendu : "Dans le mois que les gens de l'antiquité appelaient le premier mois, lors de la fête, et actuellement c'est le septième mois, c'est-à-dire, depuis que la Torah a été donnée, et il est écrit au mois de Nissan qu'il est le premier des mois, [donc,] Tishrei<sup>3</sup><i class="footnote">Bien que la construction du Beit Hamikdash ait été achevée au huitième mois de l'année précédente [voir ci-dessus 6:38], Shlomo a reporté son inauguration au Tishrei suivant. </i> est appelé le septième [mois].<sup>4</sup><i class="footnote">איתן  signifie "tout-puissant" et  ירח האיתנים  fait référence au mois de Tishrei qui a l'effet spirituel le plus fort pour que les gens s'améliorent en raison des fêtes célébrées pendant TishreiRalbag. Alternativement,  איתנים  fait allusion aux Patriarches. Voir Maseches Rosh Hashana 11a.</i>
 
 ### passuk 3
 
@@ -167,7 +167,7 @@
 
 ### passuk 65
 <b>[S'étendant] de l'entrée de Chamos.</b> Situé au nord d'Eretz Yisrael.
-<b>Jusqu'au ruisseau d'Egypte.</b> Qui lui fait face, au sud, [comme cela est décrit] dans [la section intitulée], "Ce sont les voyages"."<sup>39</sup><i class="footnote">Voir Bamidbar 34:5, 8. Là, le Targum Yonoson Ben Uziel identifie le " ruisseau d'Égypte " [מצרים נחלה"] comme étant le fleuve Nil.</i>
+<b>Jusqu'au ruisseau d'Egypte.</b> Qui lui fait face, au sud, [comme cela est décrit] dans [la section intitulée], "Ce sont les voyages"."<sup>39</sup><i class="footnote">Voir Bamidbar 34:5, 8. Là, le Targum Yonathan Ben Uziel identifie le " ruisseau d'Égypte " [מצרים נחלה"] comme étant le fleuve Nil.</i>
 <b>Sept jours.</b> d'inauguration.
 <b>Et sept [plus] jours.</b> De Souccos.</sup>40</sup><i class="footnote">Les sages, dans le Masehet Mo'ed Katan 9a, déduisent de la redondance de cette phrase ["sept jours et sept jours de plus"], qu'il n'est pas permis de combiner un  שמחה " avec un autre, par ex, on n'a pas le droit de célébrer un mariage le jour de Chol Hamoed.</i> On constate qu'ils ont mangé et bu le jour de Yom Kippour.<sup>41</sup><i class="footnote">Voir Maseches Mo'ed Katan 9a et Rachi à ce sujet.</i><sup>42</sup><i class="footnote">Ils ont commencé à célébrer le huit de Tishrei et ont continué pendant les quatorze jours suivants. Ainsi, le troisième jour de la dédicace était Yom Kippour, le dixième de Tishrei.</i>
 

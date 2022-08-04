@@ -67,7 +67,7 @@
 <b>Un messager est venu.</b> Un véritable ange [sous l'apparence d'un messager], afin de sauver David.
 
 ### passuk 28
-<b>Le "rocher des divisions"</b> Le coeur de Saül était divisé par deux pensées,</sup>6</sup><i class="footnote">Ou cela peut faire référence à la division parmi les troupes de Saül pour savoir s'il fallait poursuivre David ou combattre les Philistins.Radak</i> soit revenir pour sauver son pays des Philistins, soit poursuivre et attraper David ; ainsi rend le Targum Yonoson.
+<b>Le "rocher des divisions"</b> Le coeur de Saül était divisé par deux pensées,</sup>6</sup><i class="footnote">Ou cela peut faire référence à la division parmi les troupes de Saül pour savoir s'il fallait poursuivre David ou combattre les Philistins.Radak</i> soit revenir pour sauver son pays des Philistins, soit poursuivre et attraper David ; ainsi rend le Targum Yonathan.
 
 >Crédit : sefaris
 >Licence : CC-BY

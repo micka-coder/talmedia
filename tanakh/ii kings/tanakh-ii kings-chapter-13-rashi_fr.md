@@ -36,7 +36,7 @@
 
 ### passuk 17
 <b>Ouvrir la fenêtre vers l'est.</b> En face du pays d'Arom qui est situé à l'est, comme il est indiqué, "Arom de l'est."<sup>8</sup><i class="footnote">Yeshayahu 9:11.</i>
-<b>"Tirez !" Et il tira.</b> [Le Targum Yonoson rend] "Tirez !" Et il tira.
+<b>"Tirez !" Et il tira.</b> [Le Targum Yonathan rend] "Tirez !" Et il tira.
 <b>Et il dit : "Une flèche de salut, etc."</b> Elisha dit : "Cette flèche est un symbole de salut pour Yisrael".
 <b>À Apheik.</b> Le nom de la ville [est Apheik].<sup>9</sup><i class="footnote">Yisrael avait été vaincu auparavant par Arom. Voir I Melahim 20:26-30.</i>
 
@@ -48,7 +48,7 @@
 
 ### passuk 20
 <b>Ils envahiraient le pays.</b> Il était courant qu'ils viennent piller le pays.<sup>10</sup><i class="footnote">Après la mort d'Elisha.Radak Tant qu'il était vivant, aucun Araméen n'osait envahir comme l'indique II Melahim 6:23.</i>.
-<b>Au début de chaque année.</b> [Le Targum Yonoson rend :] "au début de l'année", <sup>11</sup><i class="footnote">I.e.,  בָּא שָׁנָה " signifie "lorsque l'année [=  שָׁנָה"] entre [=בָּא]." Cependant,  שָׁנָה " est féminin et  בא  est masculin. Cette difficulté peut être résolue en remplaçant  בָּא  par  בָּהּ, ce qui signifie " en cette année même ", c'est-à-dire l'année de la mort d'Élisée.Radak. Ou encore,  בָּא שָׁנָה " signifie : " lorsqu'il [Élisée] était venu [dans son lieu de repos] pour une année ". Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est habituel que les troupes se mettent en route [pour la guerre].
+<b>Au début de chaque année.</b> [Le Targum Yonathan rend :] "au début de l'année", <sup>11</sup><i class="footnote">I.e.,  בָּא שָׁנָה " signifie "lorsque l'année [=  שָׁנָה"] entre [=בָּא]." Cependant,  שָׁנָה " est féminin et  בא  est masculin. Cette difficulté peut être résolue en remplaçant  בָּא  par  בָּהּ, ce qui signifie " en cette année même ", c'est-à-dire l'année de la mort d'Élisée.Radak. Ou encore,  בָּא שָׁנָה " signifie : " lorsqu'il [Élisée] était venu [dans son lieu de repos] pour une année ". Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est habituel que les troupes se mettent en route [pour la guerre].
 
 >Crédit : sefaris
 >License : CC-BY

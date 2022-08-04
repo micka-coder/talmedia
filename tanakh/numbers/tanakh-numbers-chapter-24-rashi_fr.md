@@ -83,7 +83,7 @@
 <b>Amalek était le premier parmi les nations.</b> Il les a toutes précédées <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> en faisant la guerre à Israël. C'est, là aussi, l'interprétation du Targum' [Onkelos]. <b>Et sa fin.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>serait de périr de leur main, comme il est dit : "tu effaceras la mémoire d'Amalek". 
 
 ### passuk 21
-<b>Il vit le Keinite.</b> Parce que le Keinite campait près d'Amalek, comme dans l'incident dont il est dit : "Shahoul dit au Keinite, etc...", il le mentionne après Amalek. Il contempla la grandeur des descendants de Yisro', dont il est dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'-Tirasites, Shimasites, Sochasites." ? 
+<b>Il vit le Keinite.</b> Parce que le Keinite campait près d'Amalek, comme dans l'incident dont il est dit : "Shahoul dit au Keinite, etc...", il le mentionne après Amalek. Il contempla la grandeur des descendants de Yitro, dont il est dit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>'-Tirasites, Shimasites, Sochasites." ? 
 <b>Comme ta demeure est puissante.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Je me demande comment tu as mérité cela. N'étiez-vous pas avec moi lorsque je conseillais "Venez, traitons-les avec astuce" ? Et maintenant, tu t'es installé dans la puissance et la force d'Israël. 
 
 ### passuk 22

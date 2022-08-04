@@ -100,7 +100,7 @@ Une autre explication : <b>Aux sages. C'est Moshe. <b>Than ten rulers.</b> [Les]
 "Tout cela, je l'ai sondé avec sagesse,"<sup>54</sup><i class="footnote">Ci-après, verset 23. </i> renvoie aux versets ci-dessous (autres textes : et non) et [aux versets] ci-dessus. 
 <b>J'ai sondé avec sagesse.</b> Avec la [sagesse de la] Torah.
 <b>J'ai dit que je serai sage.</b> Pour connaître la sagesse [de la Torah].<sup>55</sup><i class="footnote">Alternativement, si je me considère comme une personne sage [=אמרתי אחכמה"], il ne fait aucun doute que la sagesse est très éloignée de moi [=והיא רחוקה ממני]. (Rabbin de Kotzk) </i> 
-<b>Mais [elle s'est avérée] loin de moi.</b> Et qu'est-ce que c'est ? <sup>56</sup><i class="footnote">Alternativement, la raison pour laquelle la Torah s'est avérée loin, c'est-à-dire que je suis incapable de la comprendre, c'est à cause de moi [=ממני] et non pas, à Dieu ne plaise, que la Torah manque. (Amtachas Binyomin) </i> 
+<b>Mais [elle s'est avérée] loin de moi.</b> Et qu'est-ce que c'est ? <sup>56</sup><i class="footnote">Alternativement, la raison pour laquelle la Torah s'est avérée loin, c'est-à-dire que je suis incapable de la comprendre, c'est à cause de moi [=ממני] et non pas, à Dieu ne plaise, que la Torah manque. (Amtachas Binyamin) </i> 
 
 ### passuk 24
 <b>Ce qui était est bien au-delà de moi.</b> Les choses lointaines qui étaient dans la Création.

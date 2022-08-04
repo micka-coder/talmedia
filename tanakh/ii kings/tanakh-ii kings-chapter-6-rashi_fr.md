@@ -19,7 +19,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Caché, secret.</b> [Le Targum Yonoson a rendu,] "couvert et caché". "פלוני" est une expression de, "S'il est caché [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8. </i> il sera couvert.<sup>5</sup><i class="footnote">Voir Megillas Ruth 4:1 et Rachi à cet endroit.</i>
+<b>Caché, secret.</b> [Le Targum Yonathan a rendu,] "couvert et caché". "פלוני" est une expression de, "S'il est caché [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8. </i> il sera couvert.<sup>5</sup><i class="footnote">Voir Megillas Ruth 4:1 et Rachi à cet endroit.</i>
 <b>Secret.</b> Sans nom, car il ne voulait pas qu'il soit révélé.
 <b>Je dresserai mon camp.</b> C'est là que je camperai et que je tendrai une embuscade au roi de Yisrael ou à ses bandes qui passent pour piller dans mon pays par ce lieu.
 

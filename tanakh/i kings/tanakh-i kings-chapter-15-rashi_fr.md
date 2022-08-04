@@ -23,7 +23,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Et il débarrassa [le pays] des prostituées.</b> [Targum] Yonoson a rendu : "et il abolit les prostituées".
+<b>Et il débarrassa [le pays] des prostituées.</b> [Targum] Yonathan a rendu : "et il abolit les prostituées".
 
 ### passuk 13
 <b>Il la retira de sa position d'autorité.</b> De sa position de reine.

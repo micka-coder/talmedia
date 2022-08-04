@@ -5,7 +5,7 @@
 
 ### passuk 3
 <b>Shmuel était mort.</b> Il était déjà dit : "et Shmuel mourut"<sup>1</sup><i class="footnote">Au-dessus de 25:1. </i> mais comme [l'Écriture] est venue parler de Shaoul, qu'il devait demander à un médium de <span>יׅ'</span>,<sup>2</sup><i class="footnote">Voir Maseches Sanhedrin 65b pour la description de <span>ְעֹנִי'</span>.</i>, on commence par dire "et Shmuel était mort", car s'il avait été vivant, Shaoul se serait renseigné auprès de lui. Mais puisque Shaoul avait supprimé les <span>ï''</span>médiums,<sup>3</sup><i class="footnote">Selon l'interdiction énoncée dans Vayikra 19:31. Shaul a retiré les médiums après la mort de Shmuel. Avant cela, il n'était pas nécessaire qu'il le fasse car du vivant de Shmuel, la prophétie était répandue en Yisraël, donc personne ne cherchait le médium de <span>ï''</span> ou <span>...ï¬³ '</span>.</i> il devait chercher à trouver un <span>ï''</span> médium.
-<b>Et tous les Yisroélites le pleurèrent et l'enterrèrent à Romoh, dans sa ville.</b> Et tous les Yisroélites le pleurèrent et l'enterrèrent à Romoh, et chacun le pleura dans sa propre ville ; et " dans sa ville " est relié à " et ils le pleurèrent ", c'est-à-dire , ils le pleurèrent et l'enterrèrent à Romoh, et chacun le pleura dans sa propre ville.<sup>4</sup><i class="footnote">De la même manière qu'il fut pleuré dans sa ville natale de Romoh.</i>
+<b>Et tous les Israélite le pleurèrent et l'enterrèrent à Romoh, dans sa ville.</b> Et tous les Israélite le pleurèrent et l'enterrèrent à Romoh, et chacun le pleura dans sa propre ville ; et " dans sa ville " est relié à " et ils le pleurèrent ", c'est-à-dire , ils le pleurèrent et l'enterrèrent à Romoh, et chacun le pleura dans sa propre ville.<sup>4</sup><i class="footnote">De la même manière qu'il fut pleuré dans sa ville natale de Romoh.</i>
 
 ### passuk 4
 
@@ -17,7 +17,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Shaul se déguisa.</b> Il changea de vêtements, et de même, 'déguise-toi [<span> 'ï¬"</span>] et viens au combat,'<sup>6</sup><i class="footnote">II Melahim 22:30. </i> et de même, 'son intensité me fait changer [<span>הִתְחַï¬"</span>] mes vêtements.'<sup>7</sup><i class="footnote">Iyov 30:18.</i> Et c'est ainsi que le Targum Yonoson a rendu : 'et Shaul se changea'.
+<b>Shaul se déguisa.</b> Il changea de vêtements, et de même, 'déguise-toi [<span> 'ï¬"</span>] et viens au combat,'<sup>6</sup><i class="footnote">II Melahim 22:30. </i> et de même, 'son intensité me fait changer [<span>הִתְחַï¬"</span>] mes vêtements.'<sup>7</sup><i class="footnote">Iyov 30:18.</i> Et c'est ainsi que le Targum Yonathan a rendu : 'et Shaul se changea'.
 <b>Ils sont venus vers la femme de nuit.</b> [Ils sont en fait venus] de jour, mais à cause de leur détresse, cela leur a semblé être la nuit. C'est ce qu'a expliqué R. Tanchuma.
 
 ### passuk 9

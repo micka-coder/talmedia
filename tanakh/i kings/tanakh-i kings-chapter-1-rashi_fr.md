@@ -30,8 +30,8 @@
 
 ### passuk 9
 <b>Et des [bufs] engraissés.</b> Des boeufs qui sont [engraissés en étant] nourris de force.
-<b>La pierre de Zocheles.</b> Une énorme pierre utilisée par les jeunes hommes pour tester leur force en la déplaçant ou en la traînant. Une expression similaire à "déplacer [זוחלין]"<sup>20</sup><i class="footnote">Voir Misnayoy Mikvaos 5:4,5.</i> l'eau, ou, "ceux qui rampent [זוחלי] sur la terre". "<sup>21</sup><i class="footnote">Devarim 32:24.</i> [Targum] Yonoson a rendu [אבן זוחלת  comme]  אבן סכותא  [=une pierre de guet], sur laquelle les gens se tiennent et regardent au loin.
-<b>Ein-Rogel.</b> [Targum] Yonoson a rendu [עין רוגל  comme]  עין קצרא, qui est [un puits]<sup>22</sup><i class="footnote">Il était habituel d'oindre les rois près d'un puits ou d'une autre source d'eau courante pour symboliser la continuité et la prolongation du règne. Voir Rachi 1:33 ci-dessous.</i> utilisé par un laveur de linge qui pressait les vêtements de laine avec ses pieds [=רגליו-], en les piétinant [sur eux].
+<b>La pierre de Zocheles.</b> Une énorme pierre utilisée par les jeunes hommes pour tester leur force en la déplaçant ou en la traînant. Une expression similaire à "déplacer [זוחלין]"<sup>20</sup><i class="footnote">Voir Misnayoy Mikvaos 5:4,5.</i> l'eau, ou, "ceux qui rampent [זוחלי] sur la terre". "<sup>21</sup><i class="footnote">Devarim 32:24.</i> [Targum] Yonathan a rendu [אבן זוחלת  comme]  אבן סכותא  [=une pierre de guet], sur laquelle les gens se tiennent et regardent au loin.
+<b>Ein-Rogel.</b> [Targum] Yonathan a rendu [עין רוגל  comme]  עין קצרא, qui est [un puits]<sup>22</sup><i class="footnote">Il était habituel d'oindre les rois près d'un puits ou d'une autre source d'eau courante pour symboliser la continuité et la prolongation du règne. Voir Rachi 1:33 ci-dessous.</i> utilisé par un laveur de linge qui pressait les vêtements de laine avec ses pieds [=רגליו-], en les piétinant [sur eux].
 
 ### passuk 10
 <b>Et son frère Shlomo, il ne l'a pas invité.</b> Car il savait que le prophète avait prophétisé à son sujet qu'il régnerait.
@@ -100,7 +100,7 @@
 <b>Tant que le trône de mon seigneur David Hamelech.</b> De ceci [on déduit] qu'un père n'est pas envieux de son fils.<sup>30</sup><i class="footnote">Voir Maseches Sanhedrin 105b.</i>
 
 ### passuk 38
-<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonoson a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. Ralbag</i> Mais nos sages ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
+<b>Et les archers et les tireurs de frondes.</b> [Targum] Yonathan a rendu : "les archers et les tireurs de frondes".</sup>31</sup><i class="footnote">Alternativement,  כרתי ופלתי  fait référence au Sanhedrin. Ralbag</i> Mais nos sages ont maintenu [qu'il se réfère aux] <i>Urim</i> et <i>Tumim</i>.<sup>32</sup><i class="footnote">L'Urim et le Tumim sont appelés "כרתי ופלתי parce que leurs paroles sont "coupées" [ כרתי ], c'est-à-dire, elles rendent des décisions irrévocables et כרת parce qu'elles sont "wondrous" [ פלתי ] en révélant l'avenir. Voir Maseches Berahot 4a.</i>
 
 ### passuk 39
 <b>La corne d'huile.</b> [Tsadok prit] de l'huile d'onction composée par Moshé.<sup>33</sup><i class="footnote">Voir Shemos 30, 31.</i>

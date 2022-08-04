@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Après la Tombe de Rachel, à la frontière de Binyomin.</b> La Tombe de Rachel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rachel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyomin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
+<b>Après la Tombe de Rachel, à la frontière de Binyamin.</b> La Tombe de Rachel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rachel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyamin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
 Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Yerushalayim.
 <b>Et s'inquiète à ton sujet.</b> A des craintes à ton sujet ; toute expression de <span>דְּאָגָה"</span> [inquiétude] est une expression de crainte ; <i>démenteur</i> en ancien français
 
@@ -14,8 +14,8 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח-</span> du Sain
 ### passuk 5
 <b>La colline de Dieu.</b> La colline de Kiryas Ye'arim, où l'Arche de Dieu reposait maintenant.
 <b>Officiers philistins.</b> Officiers qu'ils avaient nommés sur Yisrael, car ils [les Philistins] régnaient sur eux et postaient des officiers dans les villes de Yisrael.</sup>3</sup><i class="footnote">Les Philistins avaient conquis des parties d'Eretz Yisrael et avaient nommé des officiers pour gouverner les régions qu'ils dominaient. Mahri Kra</i>.
-<b>Une bande de prophètes.</b> Le Targum Yonoson rend : 'une bande de scribes'. '<span> '</span>' est une bande, similaire à, 'les <span>' '</span> des méchants m'ont entouré'<sup>4</sup><i class="footnote">II Shmuel 22:6.</i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
-<b>Du haut lieu.</b> Le Targum Yonoson rend : "de la salle de banquet".
+<b>Une bande de prophètes.</b> Le Targum Yonathan rend : 'une bande de scribes'. '<span> '</span>' est une bande, similaire à, 'les <span>' '</span> des méchants m'ont entouré'<sup>4</sup><i class="footnote">II Shmuel 22:6.</i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
+<b>Du haut lieu.</b> Le Targum Yonathan rend : "de la salle de banquet".
 
 ### passuk 6
 

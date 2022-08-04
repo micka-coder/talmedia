@@ -39,7 +39,7 @@
 <b>Quand ils ont humilié les Pelishtim.</b> Ils se sont mis d'accord entre eux pour les combattre et les vaincre.
 
 ### passuk 10
-<b>Mais seulement pour dépouiller [les cadavres].</b> Yonoson traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
+<b>Mais seulement pour dépouiller [les cadavres].</b> Yonathan traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
 
 ### passuk 11
 <b>De la montagne.</b> De la montagne.
@@ -48,7 +48,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Des trente chefs.</b> Yonoson traduit : Des hommes qui étaient des chefs au sein de l'armée.
+<b>Des trente chefs.</b> Yonathan traduit : Des hommes qui étaient des chefs au sein de l'armée.
 
 ### passuk 14
 <b>Et un contingent de Pesishtim était alors à Beis Lechem.</b> L'armée [Pelishtim] était campée dans la vallée de Rephoim et ils avaient envoyé un contingent à Beis Lechem.
@@ -65,10 +65,10 @@
 ### passuk 18
 
 ### passuk 19
-<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonoson traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elazar, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
+<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonathan traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elazar, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
 
 ### passuk 20
-<b>Les deux géants moabites.</b> [Le Yonoson traduit :] "Les deux géants moabites." Et nos sages ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
+<b>Les deux géants moabites.</b> [Le Yonathan traduit :] "Les deux géants moabites." Et nos sages ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
 <b>Géants moabites.</b> Parce que Shlomo qui l'a construit était issu de Ruth la Moabite.</sup>22</sup><i class="footnote">Rashi explique le lien que <span>אֲרִיאֵל</span>, référence au Beis Hamikdash, a avec Moav.</i>
 
 ### passuk 21
@@ -76,7 +76,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Des trente.</b> Des trente de cette section. Yonoson traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>ï¬ְל</span>.</i>
+<b>Des trente.</b> Des trente de cette section. Yonathan traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>ï¬ְל</span>.</i>
 
 ### passuk 24
 

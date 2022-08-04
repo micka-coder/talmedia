@@ -28,13 +28,13 @@
 
 ### passuk 11
 <b>Mais je conseille [comme suit :]</b> Car c'est mon conseil.
-<b>Et toi-même tu devrais partir à la guerre.</b> En tête. [Yonoson traduit :] "Et tu devrais y aller à la tête de tout le monde."
+<b>Et toi-même tu devrais partir à la guerre.</b> En tête. [Yonathan traduit :] "Et tu devrais y aller à la tête de tout le monde."
 
 ### passuk 12
 <b>Et nous camperons sur lui.</b> Nous camperons sur lui langue [dénotant] le campement comme [nous trouvons], "Il a campé dans tout le boorder de Mitsraïm"<sup>2</sup><i class="footnote">Shemos 10:14.</i> [et] "Arom a campé en face d'Ephraïm."<sup>3</sup><i class="footnote">Yeshayohu 7:2.</i>
 
 ### passuk 13
-<b>En groupes.</b> [Yonoson traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Shmuel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
+<b>En groupes.</b> [Yonathan traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Shmuel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
 <b>Dans la vallée [en bas].</b> Nous traînerons la muraille de la ville dans la vallée.
 
 ### passuk 14
@@ -80,7 +80,7 @@
 <b>Grain grillé.</b> Types d'aliments grillés Nos sages ont dit que Barzilai a apporté deux types de bouillie à David, l'une faite de blé et l'autre de lentilles, comme décrit ici farine et <span>קָלִי</span>, celle-ci était faite de blé. Haricots, lentilles et <span>קָלִי</span> [celui-ci] a été fait à partir de types de haricots.<sup>11</sup><i class="footnote">Le mot <span>קָלִי</span> apparaît deux fois dans ce verset. Le premier <span>קָלִי</span> écrit après <span>קֶמַח-</span> fait référence à une bouillie faite de céréales. Le second <span>קָלִי</span> écrit après <span>עֲדָ</span> fait référence à une bouillie faite de lentilles.</i> Ils avaient l'habitude de les sécher dans des fours [ayant été mis dedans] alors qu'ils étaient [encore] humides, ils [ainsi] étaient doux de façon permanente [puis] ils les broyaient et en faisaient un aliment qui était appelé "bouillie"."
 
 ### passuk 29
-<b>Et le fromage de vache.</b> [Le Yonoson traduit :] "Et le fromage fait de lait".
+<b>Et le fromage de vache.</b> [Le Yonathan traduit :] "Et le fromage fait de lait".
 
 >Crédit : sefaris
 >Licence : CC-BY

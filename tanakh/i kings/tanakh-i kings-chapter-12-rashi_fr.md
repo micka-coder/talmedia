@@ -44,7 +44,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Et la tribu de Binyomin.</b> Qui étaient situés sur la frontière, car les limites de Yehouda et de Binyomin étaient adjacentes.
+<b>Et la tribu de Binyamin.</b> Qui étaient situés sur la frontière, car les limites de Yehouda et de Binyamin étaient adjacentes.
 
 ### passuk 22
 

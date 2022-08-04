@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>[Bnei Yisrael] ont inventé.</b> Ils ont dissimulé;<sup>21</sup><i class="footnote">Alternativement, "Bnei Yisrael a dit."Targum Yonoson Ou, "Bnei Yisrael a affirmé que Dieu ne les a pas vus."Radak</i> cette interprétation est conforme à son contexte.
+<b>[Bnei Yisrael] ont inventé.</b> Ils ont dissimulé;<sup>21</sup><i class="footnote">Alternativement, "Bnei Yisrael a dit."Targum Yonathan Ou, "Bnei Yisrael a affirmé que Dieu ne les a pas vus."Radak</i> cette interprétation est conforme à son contexte.
 <b>De tour de guet.</b> Qui n'est faite que pour poster un guetteur pour surveiller ; ils érigeaient maintenant des idoles dans chaque haute maison.<sup>22</sup><i class="footnote">Ils niaient la Providence de Dieu et adoptaient une nouvelle doctrine. Ils disaient que Dieu ne les voyait pas parce qu'il avait délégué les corps célestes pour surveiller la terre. C'est pourquoi ils ont érigé des idoles dans des lieux élevés pour honorer ces corps célestes. Ralbag</i>
 <b>Ville fortifiée.</b> Comme "de petit à grand".
 

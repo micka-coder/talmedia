@@ -34,12 +34,12 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonoson a rendu les  סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement,  אמנות  sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonathan a rendu les  סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement,  אמנות  sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.Ralbag</i>
 
 ### passuk 17
 <b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerushalayim alors que Chizkiyoh a payé le tribut qui lui a été imposé. Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, au cours des années suivantes, Chizkiyohu n'a pas répondu à ses exigences et il a donc attaqué à nouveau.Radak</i> plutôt mais Ravshokei [est venu] seul, comme il est écrit dans le livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une seconde mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, " Il entendit et envoya des émissaires à Chizkiyohu"<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français, [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
-<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonoson a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire, où les laveurs étalent les vêtements.</i>
+<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonathan a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire, où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
 <b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, afin qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayohu 36:3 définit  מזכיר, comme étant "l'écrivain des registres dans les annales".</i>

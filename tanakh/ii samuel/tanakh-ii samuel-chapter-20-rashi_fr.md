@@ -41,7 +41,7 @@
 <b>Tous les Beirim.</b> Je ne sais pas ce que c'est.
 
 ### passuk 15
-<b>Et elle [la ville] a tenu en vertu de son mur intérieur.</b> [Le Yonoson traduit :] "Ils l'ont fortement entourée." Certains interprètent <span>וַתַּעֲמדׁ בַּחֵל</span> comme ayant un sens tel que "le mur intérieur et le mur extérieur".<sup>7</sup><i class="footnote">Eichoh 2:8.</i> Ils avaient [déjà] fait tomber le mur extérieur et elle [la ville] s'est fortifiée pour tenir en vertu du mur intérieur.
+<b>Et elle [la ville] a tenu en vertu de son mur intérieur.</b> [Le Yonathan traduit :] "Ils l'ont fortement entourée." Certains interprètent <span>וַתַּעֲמדׁ בַּחֵל</span> comme ayant un sens tel que "le mur intérieur et le mur extérieur".<sup>7</sup><i class="footnote">Eichoh 2:8.</i> Ils avaient [déjà] fait tomber le mur extérieur et elle [la ville] s'est fortifiée pour tenir en vertu du mur intérieur.
 
 ### passuk 16
 
@@ -73,7 +73,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Eiroh le Yoiri.</b> Yonoson a traduit : "Eiroh qui fait jaillir la lumière de Tekuah." Et c'est ainsi qu'il est désigné dans ce livre Eiroh ben Eikash de Tekuah. On l'a appelé Yoiri parce qu'il est enseigné dans Menochos,<sup>16</sup><i class="footnote">Menochos 85b.</i> "Tekuah était la première en huile [d'olive]", parce que l'huile d'olive y était répandue, avec laquelle on allume des bougies [dans le Beis Mikdosh].
+<b>Eiroh le Yoiri.</b> Yonathan a traduit : "Eiroh qui fait jaillir la lumière de Tekuah." Et c'est ainsi qu'il est désigné dans ce livre Eiroh ben Eikash de Tekuah. On l'a appelé Yoiri parce qu'il est enseigné dans Menochos,<sup>16</sup><i class="footnote">Menochos 85b.</i> "Tekuah était la première en huile [d'olive]", parce que l'huile d'olive y était répandue, avec laquelle on allume des bougies [dans le Beis Mikdosh].
 <b>Etait un Kokein pour David.</b> Il [David] lui donnait [Eiroh] tous ses cadeaux de Kehunah, c'est ce que nos sages ont expliqué.<sup>17</sup><i class="footnote">Eiruvin 63a.</i>L'explication simple du verset est qu'il [David] l'a fait [Eiroh] officier et juge.
 
 >Crédit : sefaris

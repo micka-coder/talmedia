@@ -32,7 +32,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonoson a rendu : " les enfants des princes ".
+<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonathan a rendu : " les enfants des princes ".
 
 ### passuk 15
 

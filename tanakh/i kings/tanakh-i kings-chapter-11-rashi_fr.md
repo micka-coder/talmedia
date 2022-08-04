@@ -33,7 +33,7 @@
 
 ### passuk 15
 <b>David était en Edom.</b> Alors Hadad s'enfuit de David et de Yoav.</sup>4</sup><i class="footnote">Dessous v. 17.</i>
-<b>Enterrer les morts.</b> En effet, ils enterraient les morts d'Edom, c'est ce que dit le livre de Shmuel : "Et David se fit [un nom] quand il revint de tuer [ceux d'] Edom,<<sup>5</sup><i class="footnote">II Shmuel 8:13. Rashi avait apparemment une version du texte différente de la nôtre qui se lit comme suit : " ... après être revenu de la tuerie [de ceux d'] <i>Aram</i> " Pour une clarification, voir Tehillim 60:2.</i> car tous le louaient comme une personne pieuse car il enterre ses morts. De même, il est dit à propos des guerres de Gog et Magog : " Et ils enterreront tous les habitants du pays, et cela leur vaudra la gloire."<sup>6</sup><i class="footnote">Yechezkeil 39:13.</i> Cependant, [le targum] Yonoson a rendu  לקבר את החללים, " dépouiller les morts ", [c'est-à-dire] enlever leurs vêtements.
+<b>Enterrer les morts.</b> En effet, ils enterraient les morts d'Edom, c'est ce que dit le livre de Shmuel : "Et David se fit [un nom] quand il revint de tuer [ceux d'] Edom,<<sup>5</sup><i class="footnote">II Shmuel 8:13. Rashi avait apparemment une version du texte différente de la nôtre qui se lit comme suit : " ... après être revenu de la tuerie [de ceux d'] <i>Aram</i> " Pour une clarification, voir Tehillim 60:2.</i> car tous le louaient comme une personne pieuse car il enterre ses morts. De même, il est dit à propos des guerres de Gog et Magog : " Et ils enterreront tous les habitants du pays, et cela leur vaudra la gloire."<sup>6</sup><i class="footnote">Yechezkeil 39:13.</i> Cependant, [le targum] Yonathan a rendu  לקבר את החללים, " dépouiller les morts ", [c'est-à-dire] enlever leurs vêtements.
 
 ### passuk 16
 
@@ -70,7 +70,7 @@
 ### passuk 28
 <b>Et Shlomo avait vu que ce jeune homme.</b> Avant cela.
 <b>Faisait son travail avec diligence.</b> Rapide dans son travail et diligent.
-<b>Sur toutes les charges [fiscales] de la maison de Yosef.</b> [Le Targum Yonoson a rendu :] "sur tous les contribuables de la maison de Yosef", [c'est-à-dire] Menashe et Ephrayim, car il était de la tribu d'Ephrayim.
+<b>Sur toutes les charges [fiscales] de la maison de Yosef.</b> [Le Targum Yonathan a rendu :] "sur tous les contribuables de la maison de Yosef", [c'est-à-dire] Menashe et Ephrayim, car il était de la tribu d'Ephrayim.
 
 ### passuk 29
 

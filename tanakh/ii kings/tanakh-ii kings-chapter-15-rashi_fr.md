@@ -22,7 +22,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Et le frappa devant le peuple.</b> [Le Targum Yonoson rend :] il le frappa devant le peuple [c'est-à-dire] devant les yeux du peuple.</sup>8</sup><i class="footnote">קבל  en araméen signifie opposé, c'est-à-dire qu'il le frappa devant le peuple.</i> Metzudas Tzion</i>
+<b>Et le frappa devant le peuple.</b> [Le Targum Yonathan rend :] il le frappa devant le peuple [c'est-à-dire] devant les yeux du peuple.</sup>8</sup><i class="footnote">קבל  en araméen signifie opposé, c'est-à-dire qu'il le frappa devant le peuple.</i> Metzudas Tzion</i>
 
 ### passuk 11
 

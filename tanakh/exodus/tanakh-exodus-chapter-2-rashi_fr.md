@@ -67,7 +67,7 @@ passuk 16
 <b>Et remplissez les abreuvoirs.</b> [הַרְהָטִים  signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
 
 passuk 17
-<b>Et les chassa.</b> A cause de son (Yisro's) bannissement.
+<b>Et les chassa.</b> A cause de son (Yitro) bannissement.
 
 passuk 18
 
@@ -78,7 +78,7 @@ passuk 20
 <b>Et qu'il mange du pain</b> <b>Peut-être qu'il épousera l'un d'entre vous,</b> comme vous le dites : "Sauf pour le pain qu'il a mangé."
 
 passuk 21
-<b>Et Moshé accepta.</b>  וַיוֹאֶל  signifie comme le traduit Onkelos [וּצְבִי  ]. De même : "[הוֹאֶל] Veuillez accepter de passer la nuit ici" [ou :] "Si nous avions consenti" [ou :] "J'ai accepté de parler." Mais le Midrach traduit [וַיוֹאֶל] par la racine [אָלָה"] [c'est-à-dire que] (Moshé) lui a juré (Yisro) qu'il ne bougerait pas de Madian sans avoir reçu sa permission.
+<b>Et Moshé accepta.</b>  וַיוֹאֶל  signifie comme le traduit Onkelos [וּצְבִי  ]. De même : "[הוֹאֶל] Veuillez accepter de passer la nuit ici" [ou :] "Si nous avions consenti" [ou :] "J'ai accepté de parler." Mais le Midrach traduit [וַיוֹאֶל] par la racine [אָלָה"] [c'est-à-dire que] (Moshé) lui a juré (Yitro) qu'il ne bougerait pas de Madian sans avoir reçu sa permission.
 
 passuk 22
 
@@ -163,7 +163,7 @@ passuk 16
 <b>Et remplissez les abreuvoirs.</b> ["-"' signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
 
 passuk 17
-<b>Et les chassèrent.</b> A cause de son (Yisro's) bannissement.
+<b>Et les chassèrent.</b> A cause de son (Yitro) bannissement.
 
 passuk 18
 
@@ -174,7 +174,7 @@ passuk 20
 <b>Et qu'il mange du pain</b> <b>Peut-être qu'il épousera l'un d'entre vous,</b> comme vous le dites : "Sauf pour le pain qu'il a mangé."
 
 passuk 21
-<b>Et Moshé accepta.</b> --- signifie comme le traduit Onkelos [-'' ]. De même : "["-] Veuillez accepter de passer la nuit ici" [ou :] "Si nous avions consenti" [ou :] "J'ai accepté de parler." Mais le Midrach traduit [---] par la racine ["] [c'est-à-dire que] (Moshé) lui a juré (Yisro) qu'il ne bougerait pas de Madian sans avoir reçu sa permission.
+<b>Et Moshé accepta.</b> --- signifie comme le traduit Onkelos [-'' ]. De même : "["-] Veuillez accepter de passer la nuit ici" [ou :] "Si nous avions consenti" [ou :] "J'ai accepté de parler." Mais le Midrach traduit [---] par la racine ["] [c'est-à-dire que] (Moshé) lui a juré (Yitro) qu'il ne bougerait pas de Madian sans avoir reçu sa permission.
 
 passuk 22
 

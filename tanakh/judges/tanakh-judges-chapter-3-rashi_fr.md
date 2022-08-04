@@ -45,7 +45,7 @@
 <b>Obèse.</b> Gros.
 
 ### passuk 18
-<b>Il escorta le peuple.</b> Il fit demi-tour pour accompagner la délégation de Yisroélites venue avec lui pour porter le cadeau. Il les escorta jusqu'à Gilgal.
+<b>Il escorta le peuple.</b> Il fit demi-tour pour accompagner la délégation de Israélite venue avec lui pour porter le cadeau. Il les escorta jusqu'à Gilgal.
 
 ### passuk 19
 <b>Il est ensuite revenu</b> seul.

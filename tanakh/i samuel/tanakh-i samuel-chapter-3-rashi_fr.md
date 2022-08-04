@@ -6,7 +6,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Et Shmuel était couché.</b> A sa place, dans la cour des Lévites qui veillent dans le Temple. Selon le Targum Yonoson : "Et Shmuel était couché dans la cour des Lévites".
+<b>Et Shmuel était couché.</b> A sa place, dans la cour des Lévites qui veillent dans le Temple. Selon le Targum Yonathan : "Et Shmuel était couché dans la cour des Lévites".
 <b>Dans le Temple d'Hachem.</b> Où se trouvait l'Arche de Dieu.
 
 ### passuk 4

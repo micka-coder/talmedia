@@ -6,7 +6,7 @@
 <b>Et il n'y a pas de forteresse comme notre Dieu.</b> Il n'y a pas d'artiste<sup>1</sup><i class="footnote"> Rachi ne tient pas compte du rendu habituel de <span>צוֹר</span> [=Rock], qui représente les pouvoirs impressionnants de "<span>"</span>qui est capable de changer les lois de la nature. Vu Devarim 32:4.</i> [<span>צַיָר</span>] comme notre Dieu qui façonne une forme dans une forme.<sup>2</sup><i class="footnote">Masehet Berahot 10a.</i>
 
 ### passuk 3
-<b>Ne pas abonder en parlant si fièrement.</b> Tous ceux qui se montrent hautains lorsqu'ils connaissent la bonne fortune. A propos de Penina qui se comportait de manière hautaine envers elle, parlait-elle, selon l'explication simple. Cependant, selon le <i>drash,</i> on suit le rendu du Targum Yonoson [selon lequel elle fait référence à Nevuchadnetzar].
+<b>Ne pas abonder en parlant si fièrement.</b> Tous ceux qui se montrent hautains lorsqu'ils connaissent la bonne fortune. A propos de Penina qui se comportait de manière hautaine envers elle, parlait-elle, selon l'explication simple. Cependant, selon le <i>drash,</i> on suit le rendu du Targum Yonathan [selon lequel elle fait référence à Nevuchadnetzar].
 <b>La dureté.</b> Une parole forte. D'autres expliquent <span>עָתָק</span> comme une expression de quelque chose qui est éloigné [de la vérité], comme dans "de là, il s'est déplacé [<span>וַיַעְתֵּק</span>] vers la montagne."<sup>3</sup><i class="footnote">Bereishis 12:8.</i> [Le sens ici étant "ne laisse pas] le mensonge sortir de ta bouche."
 <b>Parce qu'un Dieu de connaissance est Hachem.</b> Il sait ce qui est dans vos cœurs.
 <b>Et par lui toutes les actions sont comptées.</b> Les actes de tous les gens sont comptés devant lui.
@@ -55,7 +55,7 @@
 <b>Ils avaient déshonoré.</b> Signifie méprisé.
 
 ### passuk 18
-<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט</span> de lin," signifiant une robe, car le Targum Yonoson rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles, <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִין</span>.
+<b>Un garçon ceint d'une robe de lin. </b> [Le Targum rend] "<span>כַּרְדּוּט</span> de lin," signifiant une robe, car le Targum Yonathan rend <span>מְעִילִים</span> dans le passage <span>כִּי כֵן תִּלְבַּשְׁנָה הַבְּתוּלוֹת מְעִילִים</span> "car ainsi <span>מְעִילִים</span> étaient portées par les jeunes filles, <sup>9</sup><i class="footnote">II Shmuel 13 : 18. </i> comme <span>כַּרְדוּטִין</span>.
 
 ### passuk 19
 <b>Sa mère lui faisait une petite robe.</b> D'année en année.

@@ -77,13 +77,13 @@
 <b>Et le vent souffle avant [de devenir] du grain sur pied.</b> Comme des tiges de céréales soufflées, avant qu'elles ne durcissent pour devenir du grain sur pied.
 
 ### passuk 27
-<b>Ton assise, ta sortie et ton entrée.</b> [Targum] Yonoson a rendu : "Et ton assise en conseil, ta sortie pour faire la guerre et ton entrée au pays de Yisrael, me sont révélées ; cela émane de Moi.
+<b>Ton assise, ta sortie et ton entrée.</b> [Targum] Yonathan a rendu : "Et ton assise en conseil, ta sortie pour faire la guerre et ton entrée au pays de Yisrael, me sont révélées ; cela émane de Moi.
 <b>Et ta rage contre Moi.</b> Et qu'en fin de compte, tu deviendras arrogant et excité contre Moi par la colère et le tumulte, <i>estorimir</i>, en ancien français.
 
 ### passuk 28
 <b>Et votre tumulte.</b> [Signifie] la même chose que  ושאונך [=votre tumulte].<sup>20</sup><i class="footnote">Alternativement, "votre tranquillité", c'est-à-dire que leur rage était due à leur tranquillité.Radak</i>
 <b>Mon anneau.</b> Sorte d'anneau par lequel ils tirent un animal dont le comportement est mauvais,<sup>21</sup><i class="footnote">Alternativement,  חח - est un hameçon qui perce le poisson lorsqu'il est tiré hors de l'eau. Radak</i> comme nous l'avons appris, "Et tous les animaux que l'on tire habituellement avec un anneau peuvent sortir [le Chabbat] avec un anneau."<sup>22</sup><i class="footnote">Maseches Chabbat 51b.</i>
-<b>Et mon mors.</b> [Targum] Yonoson a rendu  זמם, qui est en fer, et qui est inséré dans les narines d'un chameau femelle,<sup>23</sup><i class="footnote">Alternativement,  מתג ' est le mors placé dans la bouche de l'animal par lequel on le dirige.Radak</i> et elle est tirée avec, car son comportement est mauvais. C'est ce que nous avons appris : "Et la femelle chameau [peut sortir le Chabbat] avec un anneau au nez."<sup>24</sup><i class="footnote">Masech Chabbat 51b.</i>
+<b>Et mon mors.</b> [Targum] Yonathan a rendu  זמם, qui est en fer, et qui est inséré dans les narines d'un chameau femelle,<sup>23</sup><i class="footnote">Alternativement,  מתג ' est le mors placé dans la bouche de l'animal par lequel on le dirige.Radak</i> et elle est tirée avec, car son comportement est mauvais. C'est ce que nous avons appris : "Et la femelle chameau [peut sortir le Chabbat] avec un anneau au nez."<sup>24</sup><i class="footnote">Masech Chabbat 51b.</i>
 
 ### passuk 29
 <b>Et ceci sera pour toi un signe.</b> Le prophète dit à Chizkiyohu : "Et cette prophétie que je t'ai dite, selon laquelle Sancheiriv tombera ici, sera pour toi un signe<sup>25</sup><i class="footnote">Alternativement, le signe de l'accomplissement de la prophétie est que Sancheiriv retournera dans son pays, mentionné au v. 7 ci-dessus. L'accomplissement de cette prophétie sert de signe que le reste de la prophétie s'accomplira également." Radak</i> aussi pour les jours qui viennent, car vous avez peur de mourir de faim, parce que Sancheiriv a détruit le pays et abattu les arbres.

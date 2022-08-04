@@ -17,7 +17,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Avec toute sorte de peste dans le désert.</b> Près de la mer des roseaux. Le Targum Yonoson rend cependant : " et pour son peuple, il a fait des merveilles dans le désert ". Dans le Sifrei, nous apprenons que ce passage est une combinaison de déclarations, celui qui a fait une déclaration n'a pas fait l'autre. Les dignes d'entre eux ont dit : "Qui nous sauvera de la main de ce Dieu puissant ?" tandis que les méchants ont rétorqué : "C'est le Dieu qui a frappé les Égyptiens de toutes les plaies. Il a fait tomber sur les Égyptiens toutes les plaies qu'il avait. Il n'a plus de fléaux [à infliger]".
+<b>Avec toute sorte de peste dans le désert.</b> Près de la mer des roseaux. Le Targum Yonathan rend cependant : " et pour son peuple, il a fait des merveilles dans le désert ". Dans le Sifrei, nous apprenons que ce passage est une combinaison de déclarations, celui qui a fait une déclaration n'a pas fait l'autre. Les dignes d'entre eux ont dit : "Qui nous sauvera de la main de ce Dieu puissant ?" tandis que les méchants ont rétorqué : "C'est le Dieu qui a frappé les Égyptiens de toutes les plaies. Il a fait tomber sur les Égyptiens toutes les plaies qu'il avait. Il n'a plus de fléaux [à infliger]".
 
 ### passuk 9
 

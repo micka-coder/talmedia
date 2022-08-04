@@ -54,7 +54,7 @@ passuk 16
 passuk 17
 
 passuk 18
-<b>Il retourna chez Yeser, son beau-père</b> afin d'obtenir la permission, car il lui avait juré. [Son beau-père] avait sept noms : Reuel, Yeser, Yisro, Keini, Chovev, Chever et Putiel. 
+<b>Il retourna chez Yeser, son beau-père</b> afin d'obtenir la permission, car il lui avait juré. [Son beau-père] avait sept noms : Reuel, Yeser, Yitro, Keini, Chovev, Chever et Putiel. 
 
 passuk 19
 <b>Car ils sont morts - tous les hommes.</b> Qui étaient-ils (ces hommes) ? Dasan et Aviram. [En fait,] ils étaient encore vivants, mais ils étaient devenus indigents et un pauvre est considéré comme mort. 

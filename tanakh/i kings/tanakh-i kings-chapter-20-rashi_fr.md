@@ -20,7 +20,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonoson a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi, la terre qui colle à la plante des pieds". <sup>5</sup><i class="footnote">Alternativement,  שעלים  signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre de Shomron, il n'y aurait pas assez de terre pour eux, car son armée était si grande. Radak</i>.
+<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonathan a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi, la terre qui colle à la plante des pieds". <sup>5</sup><i class="footnote">Alternativement,  שעלים  signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre de Shomron, il n'y aurait pas assez de terre pour eux, car son armée était si grande. Radak</i>.
 <b>Pour la plante des pieds.</b> Expression de, "fouler avec la plante des pieds", et de même, "dans un chemin étroit [משעול] des vignes",<<sup>6</sup><i class="footnote">Bamidbar 22:24. </i> et de même, "qui a mesuré l'eau de son pas [בשעלו-],"<sup>7</sup><i class="footnote">Yeshayahu 40:12.</i> car Il a foulé la Mer Rouge, comme il est dit : "Tu les as foulés dans la mer avec Tes chevaux."<sup>8</sup><i class="footnote">Chavakuk 3:15.</i>.
 <b>Sera suffisant.</b> S'il y a suffisamment.
 
@@ -56,7 +56,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>A la fin de l'année.</b> [Le Targum Yonoson a rendu], " au moment de la fin de l'année."<sup>13</sup><i class="footnote">Alternativement, au printemps, les rois partent en guerre car il y a des provisions dans les champs pour les troupes et leurs animaux. Voir II Chmuel 11:1 et Rachi à ce sujet.</i>
+<b>A la fin de l'année.</b> [Le Targum Yonathan a rendu], " au moment de la fin de l'année."<sup>13</sup><i class="footnote">Alternativement, au printemps, les rois partent en guerre car il y a des provisions dans les champs pour les troupes et leurs animaux. Voir II Chmuel 11:1 et Rachi à ce sujet.</i>
 
 ### passuk 23
 
@@ -104,7 +104,7 @@
 
 ### passuk 38
 <b>Et se déguisa avec un fichu.</b> Il changea son manteau à capuche pour qu'on ne le reconnaisse pas. Tout changement de vêtement est une expression du déguisement.
-<b>Avec un foulard.</b> [Targum] Yonoson a rendu cela par  במעפרא, "un manteau à capuche."
+<b>Avec un foulard.</b> [Targum] Yonathan a rendu cela par  במעפרא, "un manteau à capuche."
 
 ### passuk 39
 <b>Et voici qu'un homme se détourna.</b> De la route vers moi.
@@ -121,7 +121,7 @@
 <b>L'homme que j'ai condamné.</b>  איש חרמי  signifie "l'homme de ma guerre", une expression de querelle. Une expression de querelle [חרם] peut être appliquée à la guerre, et de la même manière, " sur Edom, elle descendra et sur la nation avec laquelle je fais la guerre [חרמי].<sup>26</sup><i class="footnote">Yeshayahu 34:5. </i> Le Midrash Aggadah [déclare] : "J'ai tendu pour toi de nombreux pièges et filets [חרמים] jusqu'à ce qu'il tombe entre tes mains.<<sup>27</sup><i class="footnote">Alternativement,  איש חרמי  signifie "l'homme que j'ai condamné"."Radak </i>
 
 ### passuk 43
-<b>Détritus et colère.</b> [Le Targum Yonoson a rendu,] "affligé et triste." Son esprit s'est détourné [סר] de lui.
+<b>Détritus et colère.</b> [Le Targum Yonathan a rendu,] "affligé et triste." Son esprit s'est détourné [סר] de lui.
 
 >Crédit : sefaris
 >License : CC-BY

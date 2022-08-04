@@ -34,7 +34,7 @@
 
 ### passuk 10
 <b>Enveloppé.</b> Il était enveloppé, et de même, 'et il enveloppa [<span> '</span>] son visage dans son manteau.'<sup>8</sup><i class="footnote">I Melachim 19:13.</i>
-<b>Derrière le <i>eiphod.</i></b> Après avoir consulté l'Urim et le Tumim, il a prononcé cette [déclaration]. Et c'est ainsi que le Targum Yonoson a rendu, 'après qu'il ait consulté l'eiphod pour lui.'<sup>9</sup><i class="footnote">C'est-à-dire que <span> '"</span> ne fait pas partie de la réponse d'Achimelech à David, mais se rapporte plutôt à la séquence des événements. Ce n'est qu'après avoir demandé à l'Urim et au Tumim qu'Achimelech a dit à David de prendre l'épée.</i>
+<b>Derrière le <i>eiphod.</i></b> Après avoir consulté l'Urim et le Tumim, il a prononcé cette [déclaration]. Et c'est ainsi que le Targum Yonathan a rendu, 'après qu'il ait consulté l'eiphod pour lui.'<sup>9</sup><i class="footnote">C'est-à-dire que <span> '"</span> ne fait pas partie de la réponse d'Achimelech à David, mais se rapporte plutôt à la séquence des événements. Ce n'est qu'après avoir demandé à l'Urim et au Tumim qu'Achimelech a dit à David de prendre l'épée.</i>
 
 ### passuk 11
 

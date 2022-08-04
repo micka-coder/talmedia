@@ -26,7 +26,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Nofas-dor.</b> [Le Targum Yonoson a rendu,] le district [פלךš] de Dor.
+<b>Nofas-dor.</b> [Le Targum Yonathan a rendu,] le district [פלךš] de Dor.
 
 ### passuk 12
 

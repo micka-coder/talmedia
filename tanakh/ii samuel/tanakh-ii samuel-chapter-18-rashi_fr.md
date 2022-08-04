@@ -7,7 +7,7 @@
 <b>Ils ne nous prêteront pas attention.</b> Il ne sera pas important à leurs yeux de dominer et de se vanter [[victorieusement]] maintenant que vous n'êtes pas dans la guerre.
 <b>Parce que maintenant.</b> Tant que vous êtes dans votre gloire [non capturé], vous êtes aussi important que nous tous [ensemble].
 <b>Dix mille.</b> Comme nous dix mille hommes.
-<b>Si tu nous aides depuis la ville.</b> [Yonoson traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
+<b>Si tu nous aides depuis la ville.</b> [Yonathan traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
 
 ### passuk 4
 
@@ -61,7 +61,7 @@
 
 ### passuk 23
 <b>Et alors.</b> En d'autres termes, et alors si je n'ai pas de récompense ?
-<b>Et il passa.</b> [Traduction de Yonoson :] Il arriva devant le Kouchite.
+<b>Et il passa.</b> [Traduction de Yonathan :] Il arriva devant le Kouchite.
 
 ### passuk 24
 

@@ -9,8 +9,8 @@
 <b>Cependant, aux péchés de Yorovom, etc.</b> d il s'accroche. Et tous les rois de Yisrael firent de même, par crainte, afin que le royaume ne revienne pas à la Maison de David s'ils accomplissaient le pèlerinage lors des [trois] fêtes. Ils ont donc adoré les veaux.
 
 ### passuk 4
-<b>Propriétaire de nombreux troupeaux.</b> [Le Targum Yonoson rend :] "propriétaire de bétail".<<sup>4</sup><i class="footnote">Les moutons sont généralement tachetés [=  נְקוּדִים], c'est pourquoi un propriétaire de moutons est appelé  נַקָּד".Radak</i>
-<b>Béliers laineux.</b> [Le Targum Yonoson rend,] "béliers nourris au pâturage," avec leur laine.
+<b>Propriétaire de nombreux troupeaux.</b> [Le Targum Yonathan rend :] "propriétaire de bétail".<<sup>4</sup><i class="footnote">Les moutons sont généralement tachetés [=  נְקוּדִים], c'est pourquoi un propriétaire de moutons est appelé  נַקָּד".Radak</i>
+<b>Béliers laineux.</b> [Le Targum Yonathan rend,] "béliers nourris au pâturage," avec leur laine.
 
 ### passuk 5
 
@@ -32,7 +32,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Ne [dites pas cela], car Hachem a appelé, etc.</b> [Le Targum Yonoson rend :] "S'il vous plaît [אל]<sup>10</sup><i class="footnote">Alternativement, G signifie "ne faites pas", c'est-à-dire "ne nous dites pas ces choses maintenant, etc." - Radak</i> ne mentionnez pas les péchés de cette méchante femme. Implorez la pitié pour nous, car Hachem a convoqué, etc.
+<b>Ne [dites pas cela], car Hachem a appelé, etc.</b> [Le Targum Yonathan rend :] "S'il vous plaît [אל]<sup>10</sup><i class="footnote">Alternativement, G signifie "ne faites pas", c'est-à-dire "ne nous dites pas ces choses maintenant, etc." - Radak</i> ne mentionnez pas les péchés de cette méchante femme. Implorez la pitié pour nous, car Hachem a convoqué, etc.
 
 ### passuk 14
 

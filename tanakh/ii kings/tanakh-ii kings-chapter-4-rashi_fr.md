@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Une femme d'un des disciples des prophètes.</b> Elle était la femme d'Ovadyoh. Chaque expression de "בְּנֵי הַנְּבִיאִים [lit., "les fils des prophètes"], dans l'Écriture, est traduite [par le Targum Yonoson] par, "les disciples des prophètes."<sup>1</sup><i class="footnote">Voir Targum ci-dessus 2:3, 2:7 et 2:15.</i>
+<b>Une femme d'un des disciples des prophètes.</b> Elle était la femme d'Ovadyoh. Chaque expression de "בְּנֵי הַנְּבִיאִים [lit., "les fils des prophètes"], dans l'Écriture, est traduite [par le Targum Yonathan] par, "les disciples des prophètes."<sup>1</sup><i class="footnote">Voir Targum ci-dessus 2:3, 2:7 et 2:15.</i>
 <b>Maintenant le créancier.</b> Il s'agit de Yehorom, fils d'Achov, qui lui prêtera avec intérêt, ce qui lui permettra de soutenir les prophètes du temps de son père [selon] le Midrash Rabbi Tanchuma. C'est pourquoi il est dit : "Et il frappa Yéhorom entre ses bras", <<sup>2</sup><i class="footnote">Dessous 9:24.</i> qu'il tendait pour prendre des intérêts.
 
 ### passuk 2
@@ -98,7 +98,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Et il s'étendit sur lui.</b> [Targum] Yonoson a rendu "וְאַלְהֵי עֲלוֹהִי, une expression de fatigue.<sup>26</sup><i class="footnote">C'est-à-dire, "il s'étendit épuisé sur lui.</i> Il y a un mot similaire dans la Beraisa de Ha'azinu et dans Sifrei. Mais Menachem a rendu "וַיִּגְהַר, une interprétation du mot selon son contexte, "il s'est prosterné sur lui."<sup>27</sup><i class="footnote">Voir I Melahim 18:42.</i>.
+<b>Et il s'étendit sur lui.</b> [Targum] Yonathan a rendu "וְאַלְהֵי עֲלוֹהִי, une expression de fatigue.<sup>26</sup><i class="footnote">C'est-à-dire, "il s'étendit épuisé sur lui.</i> Il y a un mot similaire dans la Beraisa de Ha'azinu et dans Sifrei. Mais Menachem a rendu "וַיִּגְהַר, une interprétation du mot selon son contexte, "il s'est prosterné sur lui."<sup>27</sup><i class="footnote">Voir I Melahim 18:42.</i>.
 
 ### passuk 35
 <b>[Le garçon] éternua.</b> Il éternua.</sup>28</sup><i class="footnote">Selon le Zohar, le garçon qu'Elisée ranima était Chavakuk le prophète. Il y est fait allusion au v. 16 ci-dessus, où le prophète dit à la femme : " Tu serreras [=חֹבֶקֶת] un fils dans tes bras ".
@@ -123,7 +123,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>De Ba'al-Shalishah.</b> Le nom d'une province. Mais [le Targum] Yonoson a rendu : " du pays vers le sud ". "בַּעַל " est une expression qui signifie " une plaine ". Il y a beaucoup [de telles expressions] dans l'Écriture.
+<b>De Ba'al-Shalishah.</b> Le nom d'une province. Mais [le Targum] Yonathan a rendu : " du pays vers le sud ". "בַּעַל " est une expression qui signifie " une plaine ". Il y a beaucoup [de telles expressions] dans l'Écriture.
 <b>Pain de la première récolte.</b> C'était pendant Pessah, lorsque le grain mûrit.<sup>32</sup><i class="footnote">Bien que le mot  בִּכּוּרִים  fasse habituellement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beit Hamikdash [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
 <b>Dans leur enveloppe.</b> Dans son enveloppe.</sup>33</sup><i class="footnote">C'est-à-dire que les grains étaient encore dans leur enveloppe. Alternativement, après que les grains aient été grillés et brisés, ils sont placés dans un récipient appelé  צִקְלוֹן.Ralbag </i>.
 <b>Au peuple.</b> Aux disciples [des prophètes] qu'il a soutenus.

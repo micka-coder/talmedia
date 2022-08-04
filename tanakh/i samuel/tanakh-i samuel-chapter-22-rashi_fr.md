@@ -12,7 +12,7 @@
 
 ### passuk 6
 <b>Que David avait été découvert.</b> Qu'il a réalisé qu'il fallait se méfier de lui.
-<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyomin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos sages ont dit<sup>4</sup><i class="footnote">Masehet Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amalek. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était en vie.</i>
+<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyamin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos sages ont dit<sup>4</sup><i class="footnote">Masehet Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amalek. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était en vie.</i>
 
 ### passuk 7
 
@@ -55,7 +55,7 @@
 <b>Je suis responsable de.</b> J'ai provoqué l'affaire, en la faisant venir.
 
 ### passuk 23
-<b>Pour l'homme qui cherche ma vie.</b> Une personne nous poursuit tous les deux. Partout où je m'échappe, tu t'échappes, car tu seras toujours dans ma sauvegarde ; comme le rend le Targum Yonoson, 'car celui qui cherche à me tuer, cherche à te tuer'. Mais cela peut aussi signifier : "Celui qui m'aimera, t'aimera, et celui qui gardera mon âme, gardera ton âme". Il existe un exemple similaire dans l'Écriture : " Les hommes de sang haïssent une personne sincère, mais les hommes droits recherchent son âme.'<sup>11</sup><i class="footnote"> Mishlei 29:10.</i> C'est [un exemple de] recherche d'une âme pour [faire] le bien.
+<b>Pour l'homme qui cherche ma vie.</b> Une personne nous poursuit tous les deux. Partout où je m'échappe, tu t'échappes, car tu seras toujours dans ma sauvegarde ; comme le rend le Targum Yonathan, 'car celui qui cherche à me tuer, cherche à te tuer'. Mais cela peut aussi signifier : "Celui qui m'aimera, t'aimera, et celui qui gardera mon âme, gardera ton âme". Il existe un exemple similaire dans l'Écriture : " Les hommes de sang haïssent une personne sincère, mais les hommes droits recherchent son âme.'<sup>11</sup><i class="footnote"> Mishlei 29:10.</i> C'est [un exemple de] recherche d'une âme pour [faire] le bien.
 
 >Crédit : sefaris
 >Licence : CC-BY

@@ -14,7 +14,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>C'est Ish Boshes.</b> Il a extrapolé à partir d'un verset que deux rois étaient destinés à venir de Binyomin. Car le Saint, béni soit-Il, a dit à Yaakov : " Des rois sortiront de toi ", et [à ce moment-là] tous ses enfants étaient nés, sauf Binyomin.<sup>1</sup><i class="footnote">" Viendront de toi " implique qu'ils devaient venir de quelqu'un qui n'était pas encore né, et cela ne pouvait être que Binyomin. Avner a compris cela pour signifier que deux rois descendront de Binyomin, Shaul et Ish Boshes (Rachi et Sifsei Chachomin, Breshis 35,11).</i>
+<b>C'est Ish Boshes.</b> Il a extrapolé à partir d'un verset que deux rois étaient destinés à venir de Binyamin. Car le Saint, béni soit-Il, a dit à Yaakov : " Des rois sortiront de toi ", et [à ce moment-là] tous ses enfants étaient nés, sauf Binyamin.<sup>1</sup><i class="footnote">" Viendront de toi " implique qu'ils devaient venir de quelqu'un qui n'était pas encore né, et cela ne pouvait être que Binyamin. Avner a compris cela pour signifier que deux rois descendront de Binyamin, Shaul et Ish Boshes (Rachi et Sifsei Chachomin, Breshis 35,11).</i>
 
 ### passuk 9
 

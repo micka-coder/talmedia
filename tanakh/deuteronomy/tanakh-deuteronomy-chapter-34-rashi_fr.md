@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Des plaines de Moav au mont Nevo.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il y avait un certain nombre d'élévations, mais Moshé les a franchies d'un seul bond. 
 <b>Toute la terre.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Il lui montra tout Eretz Yisrael dans sa tranquillité, et les oppresseurs qui sont destinés à l'affliger. 
-<b>Jusqu'à Don.</b> Il lui a montré les fils idolâtres de Don, comme il est dit : " Les fils de Don ont établi pour eux-mêmes l'idole " et Il lui a montré Shimshon, qui était destiné à descendre de lui comme un sauveur. 
+<b>Jusqu'à Don.</b> Il lui a montré les fils idolâtres de Don, comme il est dit : " Les fils de Dan ont établi pour eux-mêmes l'idole " et Il lui a montré Shimshon, qui était destiné à descendre de lui comme un sauveur. 
 
 ### passuk 2
 <b>Et tout Naftoli.</b> Il lui montra son territoire dans sa tranquillité et sa désolation, et Il lui montra Devorah et Barak de Kedesh Naftoli, faisant la guerre à Sisera et ses légions. 

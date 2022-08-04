@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>La neuvième année de son règne.</b> De Tzidkiyohu.</sup></sup><i class="footnote">Ce qui correspond à la dix-septième année de Nevuchadnetzar.Radak</i>.
-<b>Tours de siège.</b> [Targum Yonoson] a rendu  כרקום  [=ouvrages de siège].
+<b>Tours de siège.</b> [Targum Yonathan] a rendu  כרקום  [=ouvrages de siège].
 
 ### passuk 2
 
