@@ -1,6 +1,6 @@
 
 ### michna 1
-La trouvaille de la femme et son ouvrage appartiennent à son mari. Et [concernant] son héritage :  Il en a l'usufruit pendant sa vie. [Toute compensation pour] une gêne ou une tare [qui lui aurait été infligée] lui appartient. Rabbi Judah ben Batera dit : [si la gêne ou la tare lui a été infligée] à un endroit caché [sur son corps], elle reçoit deux tiers et lui un tiers ; si elle a été infligée à un endroit ouvert [sur son corps], il reçoit deux tiers et elle un tiers. Sa part doit lui être donnée immédiatement, mais avec la sienne, la terre doit être achetée et il jouit de l'usufruit.
+La trouvaille de la femme et son ouvrage appartiennent à son mari. Et [concernant] son héritage :  Il en a l'usufruit pendant sa vie. [Toute compensation pour] une gêne ou une tare [qui lui aurait été infligée] lui appartient. Rabbi Judah ben Beitera dit : [si la gêne ou la tare lui a été infligée] à un endroit caché [sur son corps], elle reçoit deux tiers et lui un tiers ; si elle a été infligée à un endroit ouvert [sur son corps], il reçoit deux tiers et elle un tiers. Sa part doit lui être donnée immédiatement, mais avec la sienne, la terre doit être achetée et il jouit de l'usufruit.
 
 ### michna 2
 Si un homme a convenu de donner une somme d'argent fixe à son gendre et que ce dernier est décédé, les Sages disent qu'il peut dire : "J'étais disposé à donner à ton frère mais je ne suis pas disposé à te donner".

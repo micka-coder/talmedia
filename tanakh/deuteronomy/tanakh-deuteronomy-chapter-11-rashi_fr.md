@@ -12,7 +12,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Au milieu de tout Yisrael.</b> Partout où l'un d'eux s'est enfui, la terre s'est fendue et l'a englouti. Ce sont les remarques de R' Yehudah'. R' Néhémie lui dit : "Mais n'est-il pas déjà dit : "La terre a ouvert sa bouche"  et non pas "ses bouches'' Il dit : "Alors comment vais-je soutenir "au milieu de tout Yisrael' ? Il répondit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Le sol s'inclinait, en forme d'entonnoir, de sorte que partout où l'un d'eux se trouvait, il roulait dans l'abîme. 
+<b>Au milieu de tout Yisrael.</b> Partout où l'un d'eux s'est enfui, la terre s'est fendue et l'a englouti. Ce sont les remarques de R' Yehouda'. R' Néhémie lui dit : "Mais n'est-il pas déjà dit : "La terre a ouvert sa bouche"  et non pas "ses bouches'' Il dit : "Alors comment vais-je soutenir "au milieu de tout Yisrael' ? Il répondit : <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>"Le sol s'inclinait, en forme d'entonnoir, de sorte que partout où l'un d'eux se trouvait, il roulait dans l'abîme. 
 <b>Et toute la subsistance à leurs pieds.</b> Cela fait référence à la richesse d'un homme, qui l'établit sur ses pieds. 
 
 ### passuk 7

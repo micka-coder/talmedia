@@ -1,6 +1,6 @@
 
 ### michna 1
-A partir de quand peut-on sortir du fumier vers les tas de fumier ? A partir du moment où les ouvriers cessent leur travail - ce sont les mots de Rabbi Meir. Rabbi Yehudah dit : à partir du moment où la "substance douce" a séché. Rabbi Yossi dit : à partir du moment où ils sont attachés [la "substance sucrée" est tellement sèche qu'elle forme des nœuds].
+A partir de quand peut-on sortir du fumier vers les tas de fumier ? A partir du moment où les ouvriers cessent leur travail - ce sont les mots de Rabbi Meir. Rabbi Yehouda dit : à partir du moment où la "substance douce" a séché. Rabbi Yossi dit : à partir du moment où ils sont attachés [la "substance sucrée" est tellement sèche qu'elle forme des nœuds].
 
 ### michna 2
 Quelle quantité de fumier peut-on déposer ? Trois tas d'excréments pour chaque Beit Se'ah [une surface de 50 x 50 coudées] [consistant en un minimum de] dix paniers d'un Letekh [unité de volume spécifique] chacun. On peut ajouter au [nombre de] paniers, mais pas au [nombre de] tas. Rabbi Shimon dit, même au [nombre de] tas.

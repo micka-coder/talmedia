@@ -33,7 +33,7 @@ Rabbi Shimon dit qu'il y a trois catégories dans les Bikkurim : les Bikkurim eu
 Dans quel cas disons-nous que l'addition aux Bikkurim est comme les Bikkurim ? Lorsqu'il provient de la Terre [d'Israël]. S'il ne vient pas de la Terre [d'Israël], il n'est pas comme les Bikkurim.
 
 ### michna 12
-Pourquoi disons-nous que les Bikkurim sont comme la propriété d'un Kohen ? Parce qu'il peut acheter avec elles des esclaves, des terres, ou un animal impur, et un créancier les prend pour payer une dette, et une femme les prend pour payer son contrat de mariage, [car les Bikkourim peuvent être utilisées] comme un rouleau de la Torah. Et Rabbi Yehudah dit qu'on ne les donne qu'à un Chaver [celui qui observe scrupuleusement les dîmes et les lois de pureté], [et seulement] comme un cadeau. Et les Sages disent qu'ils sont donnés à ceux [prêtres] de la garde, et qu'ils les divisent entre eux, comme des objets sanctifiés du Temple.
+Pourquoi disons-nous que les Bikkurim sont comme la propriété d'un Kohen ? Parce qu'il peut acheter avec elles des esclaves, des terres, ou un animal impur, et un créancier les prend pour payer une dette, et une femme les prend pour payer son contrat de mariage, [car les Bikkourim peuvent être utilisées] comme un rouleau de la Torah. Et Rabbi Yehouda dit qu'on ne les donne qu'à un Chaver [celui qui observe scrupuleusement les dîmes et les lois de pureté], [et seulement] comme un cadeau. Et les Sages disent qu'ils sont donnés à ceux [prêtres] de la garde, et qu'ils les divisent entre eux, comme des objets sanctifiés du Temple.
 
 >Crédit : Sefaria Community Translation
 >Licence : CC0

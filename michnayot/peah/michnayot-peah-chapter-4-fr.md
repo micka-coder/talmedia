@@ -15,7 +15,7 @@ Le Péah ne peut être récolté avec une faux, et ne peut être déraciné avec
 Il y a trois moments de "mendicité" [c'est-à-dire d'accès au champ] par jour : au lever du jour, à midi et en fin d'après-midi. Rabban Gamliel dit : Ils ont seulement dit [i.e., spécifié ce nombre] pour que [les temps de mendicité] ne soient pas réduits. Rabbi Akiva dit : Ils ont seulement dit que [les heures de mendicité] ne devaient pas être augmentées. Les gens de Beit Nameir rassemblaient ce qui était sur [marqué par] la corde et donnaient du Peah de chaque rangée.
 
 ### michna 6
-Un non-juif qui récolte son champ et qui se convertit ensuite est exempté de [l'obligation de donner] leket, de shikhechah et de peah. Rabbi Yehudah l'oblige à donner Shikhechah, puisque Shikhechah ne s'applique qu'au moment de la mise en botte.
+Un non-juif qui récolte son champ et qui se convertit ensuite est exempté de [l'obligation de donner] leket, de shikhechah et de peah. Rabbi Yehouda l'oblige à donner Shikhechah, puisque Shikhechah ne s'applique qu'au moment de la mise en botte.
 
 ### michna 7
 Celui qui a consacré une récolte sur pied [au Temple] et l'a rachetée, il est obligé [de donner du Péah]. Celui qui a consacré des gerbes coupées et les a rachetées, il est tenu de le faire. Celui qui] a consacré une récolte sur pied et l'a rachetée [après qu'elle soit devenue] des gerbes coupées, il est exempté, car au moment où elle serait devenue obligatoire, elle était exempte.

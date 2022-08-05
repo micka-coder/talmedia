@@ -7,7 +7,7 @@
 <b>Et il sera ajouté à l'héritage de la tribu.</b> Puisque son fils est son héritier, et que la parenté tribale du fils suit celle de son père. 
 
 ### passuk 4
-<b>Et si le yoveil se produit.</b> D'ici <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>R' Yehudah dit que le <i>yoveil</i> est destiné <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à cesser.
+<b>Et si le yoveil se produit.</b> D'ici <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>R' Yehouda dit que le <i>yoveil</i> est destiné <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>à cesser.
 <b>Et si le <i>yoveil</i> se produit.</b> Comme pour dire, il ne s'agit pas d'une vente, qui revient sur le <i>yoveil</i>, car un héritage ne revient pas sur le <i>yoveil.</i> Ainsi, même si le <i>yoveil</i> se produit, l'héritage ne reviendra pas à sa tribu, et sera donc ajouté à l'héritage de la tribu dans laquelle ils se marient. 
 
 ### passuk 5

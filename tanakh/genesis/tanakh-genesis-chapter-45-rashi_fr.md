@@ -3,7 +3,7 @@
 <b>Yossef ne pouvait contenir ses émotions en présence de tous ceux qui se tenaient debout.</b> Il ne pouvait supporter que les Égyptiens qui se tenaient près de lui entendent l'humiliation de ses frères lorsqu'il se ferait connaître à eux.
 
 ### passuk 2
-<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל   la maison d'Israël, ou  בֵּית יְהוּדָה "  la maison de Yehudah, <i>meisnede</i> en ancien français. 
+<b>Et la maison de Pharaon entendit.</b> [בֵּית פַּרְעֹה " est identique à]  בֵּיתוֹ שֶׁל פַּרְעֹה " c'est-à-dire ses serviteurs et sa maison. Ici, la référence n'est pas à une maison littérale, mais est plutôt similaire à  בֵּית יִשְׂרָאֵל   la maison d'Israël, ou  בֵּית יְהוּדָה "  la maison de Yehouda, <i>meisnede</i> en ancien français. 
 
 ### passuk 3
 <b>Ils ont été choqués par sa présence.</b> Par honte.

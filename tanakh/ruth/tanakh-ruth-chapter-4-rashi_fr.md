@@ -49,7 +49,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Voici les générations de Peretz.</b> Comme [l'Écriture] a retracé la lignée de David' jusqu'au nom de Ruth la Moavite, elle est revenue et a retracé sa lignée jusqu'au nom de Yehudah.</sup>10</sup><i class="footnote">Le symbole de la royauté. </i> 
+<b>Voici les générations de Peretz.</b> Comme [l'Écriture] a retracé la lignée de David' jusqu'au nom de Ruth la Moavite, elle est revenue et a retracé sa lignée jusqu'au nom de Yehouda.</sup>10</sup><i class="footnote">Le symbole de la royauté. </i> 
 
 >Crédit : sefaris
 >License : CC-BY

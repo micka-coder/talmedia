@@ -8,7 +8,7 @@
 <b>Retournez au pays de vos pères.</b> Et là, je serai avec vous. Mais, tant que tu t'associes encore à quelqu'un d'impur, il n'est pas possible de faire reposer Ma Présence Divine sur toi. 
 
 ### passuk 4
-<b>Il appela Rachel et Léa.</b> D'abord Rachel et ensuite Léa, car elle [Rachel] était l'épouse principale car c'est pour elle que Yaakov a accepté d'être apparenté à Lavan. Même les descendants de Léa le reconnaissent, car Boaz et sa cour, qui étaient de la tribu de Yehudah, disent : "Comme Rachel et comme Léa, qui ont toutes deux construit, etc. 
+<b>Il appela Rachel et Léa.</b> D'abord Rachel et ensuite Léa, car elle [Rachel] était l'épouse principale car c'est pour elle que Yaakov a accepté d'être apparenté à Lavan. Même les descendants de Léa le reconnaissent, car Boaz et sa cour, qui étaient de la tribu de Yehouda, disent : "Comme Rachel et comme Léa, qui ont toutes deux construit, etc. 
 
 ### passuk 5
 

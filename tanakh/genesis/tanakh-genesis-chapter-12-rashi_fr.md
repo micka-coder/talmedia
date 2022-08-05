@@ -34,7 +34,7 @@ Et [je] rendrai ton nom grand. C'est la base pour dire : On pourrait penser [que
 <b>C'est là qu'il construisit un autel.</b> Il vit prophétiquement que ses descendants étaient destinés à être affaiblis à cet endroit par la transgression d'Acan, aussi pria-t-il pour eux à cet endroit. 
 
 ### passuk 9
-<b>Voyageant régulièrement.</b> Par intervalles. Il restait ici un mois ou deux, puis voyageait et plantait sa tente ailleurs. Mais, tous ses voyages se faisaient vers le sud [visant à] aller au sud d'Eretz Yisrael, c'est-à-dire en direction de Yerushalayim, qui est sur le territoire de Yehudah, qui a pris [sa part] dans le sud d'Eretz Yisrael jusqu'au mont Moriah qui est sa possession [Yehudah']. 
+<b>Voyageant régulièrement.</b> Par intervalles. Il restait ici un mois ou deux, puis voyageait et plantait sa tente ailleurs. Mais, tous ses voyages se faisaient vers le sud [visant à] aller au sud d'Eretz Yisrael, c'est-à-dire en direction de Yerushalayim, qui est sur le territoire de Yehouda, qui a pris [sa part] dans le sud d'Eretz Yisrael jusqu'au mont Moriah qui est sa possession [Yehouda']. 
 
 ### passuk 10
 <b>Famine dans le pays.</b> Dans ce pays seulement. [C'était] afin de le mettre à l'épreuve [Avram] pour savoir s'il remettra en question les paroles de Dieu qui lui avait dit d'aller au pays de Canaan et qui le force maintenant à le quitter.

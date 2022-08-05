@@ -6,7 +6,7 @@ Voici les choses qui n'ont pas de mesure : Le Péah [coin du champ qui, lors de 
 On ne doit pas faire le Péah moins d'un soixantième [de la récolte entière]. Et bien qu'ils [les Sages] disent qu'il n'y a pas de montant défini pour le Peah, tout est basé sur la taille du champ et sur le nombre de pauvres [qui le collecteront] et sur l'abondance de la récolte.
 
 ### michna 3
-On peut donner le Peah depuis le début du champ ou depuis son milieu. Rabbi Shimon dit : seulement si l'on donne la mesure complète à la fin. Rabbi Yehudah dit : si l'on a laissé ne serait-ce qu'une seule tige [à la fin], il y ajoute [ce qu'il a laissé au début ou au milieu, et cela devient du Péah], sinon, il l'a simplement rendu sans propriétaire.
+On peut donner le Peah depuis le début du champ ou depuis son milieu. Rabbi Shimon dit : seulement si l'on donne la mesure complète à la fin. Rabbi Yehouda dit : si l'on a laissé ne serait-ce qu'une seule tige [à la fin], il y ajoute [ce qu'il a laissé au début ou au milieu, et cela devient du Péah], sinon, il l'a simplement rendu sans propriétaire.
 
 ### michna 4
 Ils ont établi une règle concernant le Peah : tout ce qui est nourriture et qui est gardé, qui pousse du sol et qui est rassemblé en une seule récolte et stocké pour la conservation est obligatoire dans le Peah. Les céréales et les légumineuses sont [incluses] dans cette règle.

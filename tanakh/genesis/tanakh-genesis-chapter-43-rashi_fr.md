@@ -111,7 +111,7 @@
 <b>Parce que c'était détestable.</b> C'est une chose détestable pour les Égyptiens de manger ensemble avec les Hébreux. Onkelos donne une raison à cela.
 
 ### passuk 33
-<b>Le premier né selon son droit d'aînesse.</b> Il frappa le gobelet et annonça : "Reouven, Shimon, Levi, Yehudah, Yissachar et Zevulen qui sont enfants de la même mère, asseyez-vous dans cet ordre qui est celui de votre naissance.</b> Il fit ainsi avec tous. Lorsqu'il arriva à Binyamin, il dit : "Celui-ci n'a pas de mère et je n'ai pas de mère, qu'il s'assoie à côté de moi. 
+<b>Le premier né selon son droit d'aînesse.</b> Il frappa le gobelet et annonça : "Reouven, Shimon, Levi, Yehouda, Yissachar et Zevulen qui sont enfants de la même mère, asseyez-vous dans cet ordre qui est celui de votre naissance.</b> Il fit ainsi avec tous. Lorsqu'il arriva à Binyamin, il dit : "Celui-ci n'a pas de mère et je n'ai pas de mère, qu'il s'assoie à côté de moi. 
 
 ### passuk 34
 <b>Portions.</b> [מַשְׂאֹת  signifie] portions.

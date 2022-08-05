@@ -1,6 +1,6 @@
 
 ### michna 1
-Shacharit [peut être dit] jusqu'à midi. Rabbi Yehudah dit jusqu'à quatre heures du jour.  _Minchah_ [peut être dit] jusqu'au soir. Rabbi Yehudah dit jusqu'au milieu de l'après-midi.  Ma'ariv n'a pas d'heure fixe et Musaf peut être dit toute la journée. Rabbi Yehudah dit jusqu'à sept heures du jour.
+Shacharit [peut être dit] jusqu'à midi. Rabbi Yehouda dit jusqu'à quatre heures du jour.  _Minchah_ [peut être dit] jusqu'au soir. Rabbi Yehouda dit jusqu'au milieu de l'après-midi.  Ma'ariv n'a pas d'heure fixe et Musaf peut être dit toute la journée. Rabbi Yehouda dit jusqu'à sept heures du jour.
 
 ### michna 2
 Rabbi Nechunya ben HaKanah offrait une brève prière lorsqu'il entrait dans la salle d'étude et lorsqu'il en sortait. Ils lui ont dit : Quelle est la nature de cette prière ? Il leur répondit : À mon entrée, je prie pour qu'aucun malheur ne survienne à cause de moi ; et à mon départ, j'offre des remerciements pour ma portion.

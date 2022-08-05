@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Il y avait un homme à Ma'on.</b> Le nom de la ville.<sup>1</sup><i class="footnote">À ne pas confondre avec <span>מָע</span> signifiant une habitation, comme dans Tehillim 26:8, mais il s'agit plutôt de la ville mentionnée dans Yehoshua 15:55, et elle était située dans le territoire de Yehudah', la tribu dont Novol était membre.</i>
+<b>Il y avait un homme à Ma'on.</b> Le nom de la ville.<sup>1</sup><i class="footnote">À ne pas confondre avec <span>מָע</span> signifiant une habitation, comme dans Tehillim 26:8, mais il s'agit plutôt de la ville mentionnée dans Yehoshua 15:55, et elle était située dans le territoire de Yehouda', la tribu dont Novol était membre.</i>
 <b>Dont les affaires.</b> Son bétail et ses biens.
 <b>Riche.</b> [Littéralement "très grand"], c'est-à-dire riche.
 <b>C'était le temps où il tondait ses moutons au Carmel.</b> Un jour, le temps de la tonte de ses moutons étant arrivé, il se trouvait au Carmel. Sa coutume était de faire une fête et un jour de fête pour les tondeurs de moutons.

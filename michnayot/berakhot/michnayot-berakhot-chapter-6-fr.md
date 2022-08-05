@@ -1,12 +1,12 @@
 
 ### michna 1
-Comment récite-t-on les bénédictions pour les fruits ?  Sur les fruits qui poussent sur un arbre, on dit : "...Qui a créé le fruit de l'arbre", sauf pour le vin ; sur le vin, on dit : "...Qui a créé le fruit de la vigne".  Sur les fruits qui poussent sur la terre, on dit : "...Qui a créé les fruits de la terre", sauf le pain ; sur le pain, on dit : "...Qui fait sortir le pain de la terre".  Sur les légumes, on dit : "...Qui a créé les fruits de la terre". Rabbi Yehudah dit : [On devrait plutôt dire,] "...Qui a créé les différents types d'herbes."
+Comment récite-t-on les bénédictions pour les fruits ?  Sur les fruits qui poussent sur un arbre, on dit : "...Qui a créé le fruit de l'arbre", sauf pour le vin ; sur le vin, on dit : "...Qui a créé le fruit de la vigne".  Sur les fruits qui poussent sur la terre, on dit : "...Qui a créé les fruits de la terre", sauf le pain ; sur le pain, on dit : "...Qui fait sortir le pain de la terre".  Sur les légumes, on dit : "...Qui a créé les fruits de la terre". Rabbi Yehouda dit : [On devrait plutôt dire,] "...Qui a créé les différents types d'herbes."
 
 ### michna 2
 Si l'on bénit sur les fruits de l'arbre avec "...Qui a créé les fruits de la terre", on a rempli son obligation. Mais s'il a béni sur les fruits du sol "...Qui a créé les fruits des arbres", il n'a pas rempli son obligation. Dans tous [les cas], s'il a dit : "...Car tout existe par la parole de Dieu", il a rempli son obligation.
 
 ### michna 3
-Sur une chose qui ne pousse pas de la terre, dites : "Pour tout". Sur le vinaigre et sur les fruits non mûrs et sur les sauterelles, dites : "Pour tout". Sur le lait et sur le fromage et sur les œufs, dites : "Pour tout". Rabbi Yehudah dit : Tout ce qui est une espèce maudite ne doit pas être béni.
+Sur une chose qui ne pousse pas de la terre, dites : "Pour tout". Sur le vinaigre et sur les fruits non mûrs et sur les sauterelles, dites : "Pour tout". Sur le lait et sur le fromage et sur les œufs, dites : "Pour tout". Rabbi Yehouda dit : Tout ce qui est une espèce maudite ne doit pas être béni.
 
 ### michna 4
 Si quelqu'un a devant lui de nombreuses espèces différentes, Rabbi Yehouda dit : S'il y a parmi elles une des sept espèces, il faut bénir sur celle-ci. Mais les Sages disent : Bénissez sur celle qu'il désire.

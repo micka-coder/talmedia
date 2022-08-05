@@ -39,7 +39,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Il dit : " Pour apprendre aux Bnei Yehudah le tir à l'arc.</b> David dit : " Maintenant que les puissants parmi les Yisrael sont tombés, il faut apprendre aux Bnei Yehudah à faire la guerre et à tirer à l'arc.
+<b>Il dit : " Pour apprendre aux Bnei Yehouda le tir à l'arc.</b> David dit : " Maintenant que les puissants parmi les Yisrael sont tombés, il faut apprendre aux Bnei Yehouda à faire la guerre et à tirer à l'arc.
 <b>Voici ce qui est écrit dans le Seifer HaYoshor.</b> Ceci est écrit dans le Seifer Bereishis, qui est le Seifer des justes,<sup>14</sup><i class="footnote">Rashi cite l'opinion de Rav Yochonon dans Avodah Zarah, 25a.</i> Avraham, Yitzchak et Yaakov. Et où [dans Bereishis] y est-il fait allusion ? "Ta main sera sur le cou de tes ennemis."<sup>15</sup><i class="footnote">Bereishis 49:8.</i> Quel est le type de guerre où il place sa main à côté de son front,<sup>16</sup><i class="footnote">Lorsqu'il tire en arrière la corde de son arc. Rashi dans Avodah Zarah, ibid écrit que l'archer place sa main à côté de ses yeux. C'est ainsi qu'il vise sa cible.</i> qui est en face de son cou?<sup>17</sup><i class="footnote">Cette interprétation lit différemment le verset de Bereishis : "Votre main sera sur votre cou." Voir Marsho, Avodah Zarah ibid.</i> On doit dire : c'est du tir à l'arc.
 
 ### passuk 19

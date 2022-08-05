@@ -12,7 +12,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Il [Yehouda] était à Keziv.</b> [Keziv] est le nom du lieu. Je pense que c'est parce qu'elle a cessé d'enfanter qu'elle a été nommée Keziv ; du même terme que : " Agiras-tu envers moi comme un trompeur [אַכְזָב'] ? [Car si ce n'est pas [la raison pour laquelle elle a été appelée Keziv], pourquoi sommes-nous informés [du lieu où se trouve Yehudah] ?] Dans Bereishis Rabbah, j'ai vu [ce qui suit] : "Elle l'a nommé Sheilah, etc., en cessant." 
+<b>Il [Yehouda] était à Keziv.</b> [Keziv] est le nom du lieu. Je pense que c'est parce qu'elle a cessé d'enfanter qu'elle a été nommée Keziv ; du même terme que : " Agiras-tu envers moi comme un trompeur [אַכְזָב'] ? [Car si ce n'est pas [la raison pour laquelle elle a été appelée Keziv], pourquoi sommes-nous informés [du lieu où se trouve Yehouda] ?] Dans Bereishis Rabbah, j'ai vu [ce qui suit] : "Elle l'a nommé Sheilah, etc., en cessant." 
 
 ### passuk 6
 
@@ -44,7 +44,7 @@
 
 ### passuk 15
 <b>Et la prirent pour une prostituée.</b> Parce qu'elle était assise au carrefour.
-<b>Parce qu'elle s'était couvert le visage.</b> Et il ne pouvait [donc] ni la voir ni la reconnaître. [Cependant, dans le Midrash de nos Sages, on trouve : Parce qu'elle se couvrait [toujours] le visage lorsqu'elle était chez son beau-père [Yehudah'], c'était une femme pudique, par conséquent, il ne l'a pas soupçonnée. 
+<b>Parce qu'elle s'était couvert le visage.</b> Et il ne pouvait [donc] ni la voir ni la reconnaître. [Cependant, dans le Midrash de nos Sages, on trouve : Parce qu'elle se couvrait [toujours] le visage lorsqu'elle était chez son beau-père [Yehouda'], c'était une femme pudique, par conséquent, il ne l'a pas soupçonnée. 
 
 ### passuk 16
 <b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט  signifie] <i>destolir</i>tourner.

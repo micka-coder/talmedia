@@ -34,7 +34,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Encombrés de meules.</b> Lorsque les ennemis les emmenaient dans des fers au cou, ils plaçaient sur leurs épaules des meules et des fardeaux afin de les fatiguer.<sup>10</sup><i class="footnote">Alternativement, les "youths étaient obligés de moudre du blé,' une tâche qui épuise leurs forces. (Ibn Ezra) </i> Et de la même manière, "[et les garçons] titubaient avec les poutres," [signifiant que] leurs forces s'épuisaient. L'expression tituber  כִּשְׁלוֹן  s'applique à l'affaiblissement de la force, comme il est dit dans Ezra, "Et Yehudah dit, "la force du porteur a failli,'<sup>11</sup><i class="footnote">Nechemyah 4:4. </i> et de même, "Üil a fait défaillir ma force,"<sup>12</sup><i class="footnote">Eicha 1:14. </i> 
+<b>Encombrés de meules.</b> Lorsque les ennemis les emmenaient dans des fers au cou, ils plaçaient sur leurs épaules des meules et des fardeaux afin de les fatiguer.<sup>10</sup><i class="footnote">Alternativement, les "youths étaient obligés de moudre du blé,' une tâche qui épuise leurs forces. (Ibn Ezra) </i> Et de la même manière, "[et les garçons] titubaient avec les poutres," [signifiant que] leurs forces s'épuisaient. L'expression tituber  כִּשְׁלוֹן  s'applique à l'affaiblissement de la force, comme il est dit dans Ezra, "Et Yehouda dit, "la force du porteur a failli,'<sup>11</sup><i class="footnote">Nechemyah 4:4. </i> et de même, "Üil a fait défaillir ma force,"<sup>12</sup><i class="footnote">Eicha 1:14. </i> 
 
 ### passuk 14
 

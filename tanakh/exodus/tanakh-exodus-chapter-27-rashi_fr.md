@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Tu feras l'autel, etc. Et sa hauteur sera de trois amahs.</b> Les mots signifient ce qu'ils disent. C'est l'opinion de Rabbi Yehudah. Rabbi Yosi, cependant, dit : il est dit ici : " [il sera] <i>carré</i> " et il est dit concernant l'intérieur [de l'autel] : "carré." [Ce  גְּזֵירָה שָׁוָה " enseigne :] de même que dans le dernier cas sa hauteur était deux fois sa longueur, ici aussi, sa hauteur était deux fois sa longueur. Alors, comment dois-je comprendre : "et sa hauteur sera de trois <i>amahs</i>" ? [La réponse est que les "trois <i>amahs</i> sont] à partir du bord supérieur du <i>soveiv</i> vers le haut. (Voir l'oeillustration de la page 416). 
+<b>Tu feras l'autel, etc. Et sa hauteur sera de trois amahs.</b> Les mots signifient ce qu'ils disent. C'est l'opinion de Rabbi Yehouda. Rabbi Yosi, cependant, dit : il est dit ici : " [il sera] <i>carré</i> " et il est dit concernant l'intérieur [de l'autel] : "carré." [Ce  גְּזֵירָה שָׁוָה " enseigne :] de même que dans le dernier cas sa hauteur était deux fois sa longueur, ici aussi, sa hauteur était deux fois sa longueur. Alors, comment dois-je comprendre : "et sa hauteur sera de trois <i>amahs</i>" ? [La réponse est que les "trois <i>amahs</i> sont] à partir du bord supérieur du <i>soveiv</i> vers le haut. (Voir l'oeillustration de la page 416). 
 
 ### passuk 2
 <b>Ses saillies seront d'une seule pièce avec lui.</b> Elles ne doivent pas être faites séparément et ensuite jointes avec lui.
@@ -79,7 +79,7 @@
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY
 ### passuk 1
-<b>Tu feras l'autel, etc. Et sa hauteur sera de trois amahs.</b> Les mots signifient ce qu'ils disent. C'est l'opinion de Rabbi Yehudah. Rabbi Yosi, cependant, dit : il est dit ici : " [il sera] <i>carré</i> " et il est dit concernant l'intérieur [de l'autel] : " carré " [Ce '-" -" enseigne :] de même que dans le dernier cas sa hauteur était deux fois sa longueur, ici aussi, sa hauteur était deux fois sa longueur. Alors, comment dois-je comprendre : "et sa hauteur sera de trois <i>amahs</i>" ? [La réponse est que les "trois <i>amahs</i> sont] à partir du bord supérieur du <i>soveiv</i> vers le haut. (Voir l'oeillustration de la page 416). 
+<b>Tu feras l'autel, etc. Et sa hauteur sera de trois amahs.</b> Les mots signifient ce qu'ils disent. C'est l'opinion de Rabbi Yehouda. Rabbi Yosi, cependant, dit : il est dit ici : " [il sera] <i>carré</i> " et il est dit concernant l'intérieur [de l'autel] : " carré " [Ce '-" -" enseigne :] de même que dans le dernier cas sa hauteur était deux fois sa longueur, ici aussi, sa hauteur était deux fois sa longueur. Alors, comment dois-je comprendre : "et sa hauteur sera de trois <i>amahs</i>" ? [La réponse est que les "trois <i>amahs</i> sont] à partir du bord supérieur du <i>soveiv</i> vers le haut. (Voir l'oeillustration de la page 416). 
 
 ### passuk 2
 <b>Ses saillies seront d'une seule pièce avec lui.</b> Elles ne doivent pas être faites séparément et ensuite jointes avec lui.

@@ -38,7 +38,7 @@ Cinq [types de personnes] ne peuvent pas mettre de côté la Térouma [produit c
 Une personne sourde qui peut parler mais ne peut pas entendre ne peut pas mettre de côté la Térouma. Mais si elle a mis de côté la Térouma, sa Térouma est une Térouma valide. Une personne sourde, à laquelle les Sages font référence dans tous les cas, ne peut ni entendre ni parler.
 
 ### michna 3
-Concernant un mineur qui n'a pas produit deux poils [pubiens], Rabbi Yehudah dit que sa Térouma est une Térouma [valide]. Rabbi Yosi dit que s'il n'a pas atteint l'âge de [responsabilité pour ses] vœux, sa Térouma n'est pas une Térouma [valide]. Lorsqu'il atteint l'âge [de la responsabilité de ses] vœux, sa Térouma est une Térouma [valide].
+Concernant un mineur qui n'a pas produit deux poils [pubiens], Rabbi Yehouda dit que sa Térouma est une Térouma [valide]. Rabbi Yosi dit que s'il n'a pas atteint l'âge de [responsabilité pour ses] vœux, sa Térouma n'est pas une Térouma [valide]. Lorsqu'il atteint l'âge [de la responsabilité de ses] vœux, sa Térouma est une Térouma [valide].
 
 ### michna 4
 On ne peut pas mettre de côté la Térouma des olives pour l'huile, ni celle des raisins pour le vin. Si l'on a mis de côté la Térouma [des olives pour l'huile ou des raisins pour le vin], l'école de Chammaï juge que sa propre Térouma [qui était requise pour les raisins ou le vin] en fait partie, et l'école de Hillel juge que sa Térouma n'est pas une Térouma [valide].

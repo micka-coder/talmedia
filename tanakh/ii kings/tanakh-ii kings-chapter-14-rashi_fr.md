@@ -15,7 +15,7 @@
 <b>Et l'appela Yokseil.</b> Car cela lui faisait grincer les dents, comme il est écrit : " Après qu'Amatzyohu soit venu de tuer les èdomites, il amena les dieux des enfants de Seir, etc. pour divinités, il se prosternait devant eux, etc, "<sup>1</sup><i class="footnote">II Divrei Hayomim 25:14.</i> et le prophète le réprimanda et lui dit : "Je sais que Dieu a fait un plan pour te détruire."<sup>2</sup><i class="footnote">Ibid. v. 16.</i> Maintenant, quel était le conseil ? Qu'il le persuade d'inciter le roi de Yisrael.
 
 ### passuk 8
-<b>Amatzyoh envoya alors des messagers, etc., "battons-nous les uns contre les autres".</b> [En allant] à la guerre.</sup>3</sup><i class="footnote">Auparavant, les hommes de Yehoash avaient envahi Yehudah par surprise, parce qu'Amatzyohu avait brusquement écarté les hommes de Yehoash d'aller à la guerre avec lui. Voir II Divrei Hayomim 25:10, 13. Amatzyohu a maintenant défié Amatzyohu de l'affronter dans la bataille. Metzudas David</i>
+<b>Amatzyoh envoya alors des messagers, etc., "battons-nous les uns contre les autres".</b> [En allant] à la guerre.</sup>3</sup><i class="footnote">Auparavant, les hommes de Yehoash avaient envahi Yehouda par surprise, parce qu'Amatzyohu avait brusquement écarté les hommes de Yehoash d'aller à la guerre avec lui. Voir II Divrei Hayomim 25:10, 13. Amatzyohu a maintenant défié Amatzyohu de l'affronter dans la bataille. Metzudas David</i>
 
 ### passuk 9
 <b>Le chardon qui était à Levanon.</b> Sichem fils de Chamor.
