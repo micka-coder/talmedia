@@ -1,81 +1,161 @@
 
 ### Partie 1
-<b>Nous sommes preoccupes par</b> la possibilite qu'il y ait <b>deux</b> villes nommees <b>Sheviri,</b> et que cet acte de divorce puisse appartenir a quelqu'un d'autre qui vit dans l'autre Sheviri, et donc qu'il ne doit pas etre rendu. <b>Rav Hisda dit a Rabba : Sors</b> et <b>examine</b> cette <i>halakha</i>, <b>car le soir Rav Huna t'interrogera</b> a ce sujet. <b>Il est sorti, l'a examine</b>, <b>et a decouvert</b> une source pertinente, <b>comme nous l'avons appris</b> dans la mishna : En ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouve <b>doit le rendre</b> a son proprietaire presume. Puisque cet acte de divorce a ete trouve au tribunal, il appartient a cette categorie et doit etre restitue.
+<b>Nous sommes préoccupés par</b> la possibilité qu'il y ait <b>deux</b> villes nommées <b>Sheviri,</b> et que cet acte de divorce puisse appartenir à quelqu'un d'autre qui vit dans l'autre Sheviri, et donc qu'il ne doit pas être rendu. <b>Rav Ḥisda dit à Rabba : Sors</b> et <b>examine</b> cette <i>halakha</i>, <b>car le soir Rav Huna t'interrogera</b> à ce sujet. <b>Il est sorti, l'a examiné</b>, <b>et a découvert</b> une source pertinente, <b>comme nous l'avons appris</b> dans la mishna : En ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouvé <b>doit le rendre</b> à son propriétaire présumé. Puisque cet acte de divorce a été trouvé au tribunal, il appartient à cette catégorie et doit être restitué.
 
 ### Partie 2
-<b>Rav Amram dit a Rabba : Comment le Maitre peut-il resoudre</b> la <i>halakha</i> dans le cas d'un acte de divorce, qui est <b>une affaire rituelle, a partir</b> de la mishna, qui traite des <b>affaires monetaires ?</b> Rabba lui <b>dit : Fou, nous avons appris</b> dans la mishna que cette <i>halakha</i> s'applique dans le cas des <b>documents de <i>halitza</i> et</b> des documents de <b>refus</b> egalement, qui sont des questions rituelles.
+<b>Rav Amram dit à Rabba : Comment le Maître peut-il résoudre</b> la <i>halakha</i> dans le cas d'un acte de divorce, qui est <b>une affaire rituelle, à partir</b> de la mishna, qui traite des <b>affaires monétaires ?</b> Rabba lui <b>dit : Fou, nous avons appris</b> dans la mishna que cette <i>halakha</i> s'applique dans le cas des <b>documents de <i>ḥalitza</i> et</b> des documents de <b>refus</b> également, qui sont des questions rituelles.
 
 #### Partie 3
-A ce moment-la, la poutre porteuse <b>cedre</b> <b>de la salle d'etude s'est delogee. </b> Un <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>deloquee,</b> car vous m'avez parle de maniere offensante, <b>et</b> l'autre <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>deloquee,</b> car c'est vous qui m'avez parle de maniere offensante.
+A ce moment-là, la poutre porteuse <b>cèdre</b> <b>de la salle d'étude s'est délogée. </b> Un <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>déloquée,</b> car vous m'avez parlé de manière offensante, <b>et</b> l'autre <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>déloquée,</b> car c'est vous qui m'avez parlé de manière offensante.
 
 ### Partie 4
-§ La mishna enseigne : Si l'on <b>trouve</b> des documents <b>dans une <i>hafisa</i> ou dans un <i>deluskema</i>,</b> il doit les rendre. La Gemara demande : <b>Qu'est-ce qu'une <i>Hafisa</i> ? Rabba bar Hana repond :</b> C'est <b>une petite fiole. Qu'est-ce qu'un <i>deluskema</i> ? Rabba bar Shmuel dit :</b> C'est <b>un recipient [<i>telika</i>]</b> utilise <b>par les personnes agees.</b>
+§ La mishna enseigne : Si l'on <b>trouve</b> des documents <b>dans une <i>ḥafisa</i> ou dans un <i>deluskema</i>,</b> il doit les rendre. La Gemara demande : <b>Qu'est-ce qu'une <i>ḥafisa</i> ? Rabba bar Ḥana répond :</b> C'est <b>une petite fiole. Qu'est-ce qu'un <i>deluskema</i> ? Rabba bar Shmuel dit :</b> C'est <b>un récipient [<i>telika</i>]</b> utilisé <b>par les personnes âgées.</b>
 
 ### Partie 5
-La mishna enseigne : Si l'on a trouve <b>un rouleau de documents ou une liasse de documents,</b> on doit les rendre. <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Combien</b> de documents <b>constituent un rouleau de documents ?</b> Un rouleau est <b>trois</b> documents <b>roules ensemble. Et combien constituent une liasse de documents ?</b> Une liasse est <b>trois</b> documents <b>lies ensemble.</b>
+La mishna enseigne : Si l'on a trouvé <b>un rouleau de documents ou une liasse de documents,</b> on doit les rendre. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Combien</b> de documents <b>constituent un rouleau de documents ?</b> Un rouleau est <b>trois</b> documents <b>roulés ensemble. Et combien constituent une liasse de documents ? </b> Une liasse est <b>trois</b> documents <b>liés ensemble.</b>
 
 ### Partie 6
-La Gemara en deduit : <b>Concluez-en</b> que si l'on a perdu un objet qui a un nœud, le type de <b>nœud</b> peut servir de <b>marque distinctive</b> grace a laquelle le proprietaire peut decrire l'objet, et il doit donc lui etre rendu.
+La Gemara en déduit : <b>Concluez-en</b> que si l'on a perdu un objet qui a un nœud, le type de <b>nœud</b> peut servir de <b>marque distinctive</b> grâce à laquelle le propriétaire peut décrire l'objet, et il doit donc lui être rendu.
 
 ### Partie 7
-La Guemara rejette cette deduction : <b>N'est-ce pas Rabbi Hiyya qui enseigne</b> que la reference est a <b>trois</b> documents qui sont <b>roules ensemble ?</b> Le fait qu'ils soient roules ensemble est ce qui sert de marque distinctive, plutot que les nœuds.
+La Guemara rejette cette déduction : <b>Rabbi Ḥiyya n'enseigne-t-il pas</b> que la référence est à <b>trois</b> documents qui sont <b>roulés ensemble ?</b> Le fait qu'ils soient roulés ensemble est ce qui sert de marque distinctive, plutôt que les nœuds.
 
 ### Partie 8
-La Guemara demande : <b>Si oui,</b> ce cas <b>est</b> identique au cas d'un <b>rouleau</b> de documents, qui est egalement mentionne dans la mishna. Quelle est la difference entre un rouleau et une liasse ? La Gemara repond : <b>Un rouleau</b> fait reference a un cas ou <b>chaque document</b> est situe <b>au sommet d'un autre,</b> c'est-a-dire qu'ils sont enroules ensemble de telle sorte que le sommet de chaque page soit proche du bas de la page precedente. <b>Une liasse,</b> en revanche, fait reference a un cas <b>ou ils sont situes l'un sur l'autre et roules</b> ensemble.
+La Guemara demande : <b>Si oui,</b> ce cas <b>est</b> identique au cas d'un <b>rouleau</b> de documents, qui est également mentionné dans la mishna. Quelle est la différence entre un rouleau et une liasse ? La Gemara répond : <b>Un rouleau</b> fait référence à un cas où <b>chaque document</b> est situé <b>au sommet d'un autre,</b> c'est-à-dire qu'ils sont enroulés ensemble de telle sorte que le sommet de chaque page soit proche du bas de la page précédente. <b>Une liasse,</b> en revanche, fait référence à un cas <b>où ils sont situés l'un sur l'autre et roulés</b> ensemble.
 
 ### Partie 9
-La Gemara demande : <b>Qu'est-ce</b> que la personne qui a trouve les documents <b>proclame</b> pour que le proprietaire puisse le reclamer ? La Guemara repond : Il proclame le <b>nombre</b> de documents qu'il a trouves, et le proprietaire peut les decrire en disant qu'ils ont ete roules ensemble.
+La Gemara demande : <b>Qu'est-ce</b> que la personne qui a trouvé les documents <b>proclame</b> pour que le propriétaire puisse le réclamer ? La Guemara répond : Il proclame le <b>nombre</b> de documents qu'il a trouvés, et le propriétaire peut les décrire en disant qu'ils ont été roulés ensemble.
 
 ### Partie 10
-La Guemara demande : Si c'est le cas, <b>pourquoi</b> le <i>tanna</i> enseigne <b>specifiquement</b> un cas de <b>trois</b> documents ? <b>Meme</b> si <b>deux</b> documents sont trouves, ils peuvent <b>egalement</b> etre rendus de cette maniere .
+La Guemara demande : Si c'est le cas, <b>pourquoi</b> le <i>tanna</i> enseigne <b>spécifiquement</b> un cas de <b>trois</b> documents ? <b>Même</b> si <b>deux</b> documents sont trouvés, ils peuvent <b>également</b> être rendus de cette manière.
 
 ### Partie 11
-<b>Au contraire,</b> le trouveur proclame sa trouvaille d'une maniere <b>similaire a ce qu'a dit Ravina :</b> Si on trouve des pieces de monnaie, on se contente de <b>proclamer</b> qu'on a trouve des <b>pieces de monnaie,</b> sans en preciser le nombre. <b>Ici aussi,</b> celui qui trouve <b>proclame</b> qu'il a trouve des <b>documents,</b> et le proprietaire les decrit a la fois par leur nombre exact et par le fait qu'ils etaient roules ensemble. Par consequent, s'il n'y a que deux documents, la description est deficiente, car le nombre deux est deja implicite dans la proclamation du trouveur qu'il a trouve des documents, qui est au pluriel.
+<b>Au contraire,</b> le trouveur proclame sa trouvaille d'une manière <b>similaire à ce qu'a dit Ravina :</b> Si on trouve des pièces de monnaie, on se contente de <b>proclamer</b> qu'on a trouvé des <b>pièces de monnaie,</b> sans en préciser le nombre. <b>Ici aussi,</b> celui qui trouve <b>proclame</b> qu'il a trouvé des <b>documents,</b> et le propriétaire les décrit à la fois par leur nombre exact et par le fait qu'ils étaient roulés ensemble. Par conséquent, s'il n'y a que deux documents, la description est déficiente, car le nombre deux est déjà implicite dans la proclamation du trouveur qu'il a trouvé des documents, qui est au pluriel.
 
 ### Partie 12
-§ La mishna enseigne que <b>Rabban Shimon ben Gamliel dit :</b> Si l'on trouve trois billets a ordre qui font reference aux prets de <b>une</b> personne <b>qui a emprunte a trois</b> personnes, <b>il doit les rendre</b> <b>au debiteur.</b> La Gemara explique : La raison en est <b>que s'il vous vient a l'esprit que ces</b> billets a ordre <b>appartiennent</b> aux <b>creanciers, que font-ils ensemble</b> dans un meme lieu ?
+§ La mishna enseigne que <b>Rabban Shimon ben Gamliel dit :</b> Si l'on trouve trois billets à ordre qui font référence aux prêts de <b>une</b> personne <b>qui a emprunté à trois</b> personnes, <b>il doit les rendre</b> <b>au débiteur.</b> La Gemara explique : La raison en est <b>que s'il vous vient à l'esprit que ces</b> billets à ordre <b>appartiennent</b> aux <b>créanciers, que font-ils ensemble</b> dans un même lieu ?
 
 ### Partie 13
-La Gemara suggere : <b>Peut-etre</b> les trois creanciers sont tous <b>alles</b> au tribunal afin de <b>ratifier</b> leurs billets a ordre, et les billets ont ete perdus ensemble la-bas. La Guemara repond que la mishna fait reference a un cas <b>ou les billets a ordre <b>sont ratifies.</b>
+La Gemara suggère : <b>Peut-être</b> les trois créanciers sont tous <b>allés</b> au tribunal afin de <b>ratifier</b> leurs billets à ordre, et les billets ont été perdus ensemble là-bas. La Guemara répond que la mishna fait référence à un cas <b>où les billets à ordre <b>sont ratifiés.</b>
 
 ### Partie 14
-La Guemara demande : <b>Peut-etre</b> qu'ils <b>sont tombes de</b> la <b>main du scribe</b> du tribunal apres qu'il les ait ratifies. La Guemara repond : <b>Une personne ne laisse pas son billet a ordre ratifie</b> <b>en possession du scribe.</b> Par consequent, le scenario le plus probable est que les billets a ordre ont ete perdus par le debiteur.
+La Guemara demande : <b>Peut-être</b> qu'ils <b>sont tombés de</b> la <b>main du scribe</b> du tribunal après qu'il les ait ratifiés. La Guemara répond : <b>Une personne ne laisse pas son billet à ordre ratifié</b> <b>en possession du scribe.</b> Par conséquent, le scénario le plus probable est que les billets à ordre ont été perdus par le débiteur.
 
 ### Partie 15
-§ La mishna enseigne : Si les billets a ordre font reference aux prets de <b>trois</b> personnes <b>qui ont emprunte a une</b> personne, celui qui les a trouves <b>doit les rendre</b> <b>au creancier.</b> La Gemara explique : La raison en est <b>que s'il entre dans votre esprit que ces</b> billets a ordre <b>appartiennent</b> aux <b>debiteurs, que font-ils ensemble ?</b>
+§ La mishna enseigne : Si les billets à ordre font référence aux prêts de <b>trois</b> personnes <b>qui ont emprunté à une</b> personne, celui qui les a trouvés <b>doit les rendre</b> <b>au créancier.</b> La Gemara explique : La raison en est <b>que s'il entre dans votre esprit que ces</b> billets à ordre <b>appartiennent</b> aux <b>débiteurs, que font-ils ensemble ?</b>
 
 ### Partie 16
-La Gemara demande : <b>Peut-etre</b> les trois <b>sont alles</b> chez un seul scribe <b>pour ecrire</b> les billets a ordre, et les billets ont ensuite ete perdus ensemble. La Guemara repond que la mishna fait reference a un cas <b>ou</b> les billets a ordre <b>sont ecrits de l'ecriture de trois</b> <b>scribes differents.</b>
+La Gemara demande : <b>Peut-être</b> les trois <b>sont allés</b> chez un seul scribe <b>pour écrire</b> les billets à ordre, et les billets ont ensuite été perdus ensemble. La Guemara répond que la mishna fait référence à un cas <b>où</b> les billets à ordre <b>sont écrits de l'écriture de trois</b> <b>scribes différents.</b>
 
 ### Partie 17
-La Gemara suggere : <b>Et peut-etre</b> les trois debiteurs sont <b>alles</b> au tribunal afin de <b>ratifier</b> les billets a ordre, et ils les ont perdus la-bas. La Gemara repond : C'est le <b>creancier</b> qui <b>ratifie son <b>billet a ordre</b> ; le <b>debiteur ne ratifie pas son <b>billet a ordre.</b>
+La Gemara suggère : <b>Et peut-être</b> les trois débiteurs sont <b>allés</b> au tribunal afin de <b>ratifier</b> les billets à ordre, et ils les ont perdus là-bas. La Gemara répond : C'est le <b>créancier</b> qui <b>ratifie son <b>billet à ordre</b> ; le <b>débiteur ne ratifie pas son <b>billet à ordre.</b>
 
 ### Partie 18
-§ La mishna enseigne : <b>Si des annulations de contrats [<i>simponot</i>] figurent parmi</b> les documents d'un individu, <b>il doit faire ce qui est</b> indique <b>dans les <i>simponot</i>. </b> La Guemara cite ce que <b>Rav Yirmeya bar Abba dit</b> que <b>Rav dit : </b> En ce qui concerne <b>un <i>simpon</i> qui ressort de la possession d'un creancier, meme s'il est ecrit de sa</b> propre <b>ecriture</b> et qu'il n'est manifestement pas faux, <b>on considere</b> <b>comme s'il ne faisait que plaisanter et</b> le <i>simpon</i> <b>est invalide. </b>
+§ La mishna enseigne : <b>S'il y a des annulations de contrats [<i>simponot</i>] parmi</b> ses documents, <b>il doit faire ce qui est</b> indiqué <b>dans les <i>simponot</i>. </b> La Gemara cite ce que <b>Rav Yirmeya bar Abba dit</b> que <b>Rav dit : </b> En ce qui concerne <b>un <i>simpon</i> qui ressort de la possession d'un créancier, même s'il est écrit de sa</b> propre <b>écriture</b> et qu'il n'est manifestement pas faux, <b>on considère</b> <b>comme s'il ne faisait que plaisanter et</b> le <i>simpon</i> <b>est invalide. </b>
 
 ### Partie 19
-La Guemara explique : <b>Il n'est pas necessaire</b> d'enoncer cette <i>halakha</i> dans le cas ou <b>elle est ecrite de la main d'un scribe, car on peut dire</b> que <b>il s'est trouve</b> avoir l'occasion de faire ecrire le <i>simpon</i> par <b>le scribe</b>, <b>et</b> il l'a donc fait <b>ecrire</b> avant le remboursement de la dette. <b>Mais meme</b> dans le cas ou <b>il est ecrit de la main de</b> le creancier <b>il n'est pas valable.</b> Le creancier peut avoir ecrit le <i>simpon</i> lui-meme avant le remboursement de la dette, <b>en pensant : Peut-etre</b> le debiteur <b>se presentera-t-il par hasard au crepuscule</b> la veille du Shabbat <b>et</b> souhaitera-t-il <b>me rembourser.</b> Je dois preparer un document d'annulation, <b>car, si je ne lui en donne pas</b> un, <b>il ne me donnera pas</b> l'<b>argent. Je vais</b> donc <b>rediger</b> le document maintenant, de sorte <b>que lorsqu'il m'apportera</b> l'<b>argent, je le lui donnerai</b> <b>a lui.</b>
+La Guemara explique : <b>Il n'est pas nécessaire</b> d'énoncer cette <i>halakha</i> dans le cas où <b>elle est écrite de la main d'un scribe, car on peut dire</b> que <b>il s'est trouvé</b> avoir l'occasion de faire écrire le <i>simpon</i> par <b>le scribe</b>, <b>et</b> il l'a donc fait <b>écrire</b> avant le remboursement de la dette. <b>Mais même</b> dans le cas où <b>il est écrit de la main de</b> le créancier <b>il n'est pas valable.</b> Le créancier peut avoir écrit le <i>simpon</i> lui-même avant le remboursement de la dette, <b>en pensant : Peut-être</b> le débiteur <b>se présentera-t-il par hasard au crépuscule</b> la veille du Shabbat <b>et</b> souhaitera-t-il <b>me rembourser.</b> Je dois préparer un document d'annulation, <b>car, si je ne lui en donne pas</b> un, <b>il ne me donnera pas</b> l'<b>argent. Je vais</b> donc <b>rédiger</b> le document maintenant, de sorte <b>que lorsqu'il m'apportera</b> l'<b>argent, je le lui donnerai</b> <b>à lui.</b>
 
 ### Partie 20
-La Guemara conteste la declaration de Rav en se basant sur ce que <b>nous avons appris</b> dans la mishna : <b>S'il y a des <i>simponot</i> parmi</b> les documents d'un individu, <b>il doit faire ce qui est</b> indique <b>dans les <i>simponot</i>.</b> Cela fait apparemment reference aux <i>simponot</i> qui sont en possession du creancier.
+La Guemara conteste la déclaration de Rav en se basant sur ce que <b>nous avons appris</b> dans la mishna : <b>S'il y a des <i>simponot</i> parmi</b> ses documents, <b>il doit faire ce qui est</b> indiqué <b>dans les <i>simponot</i>.</b> Il s'agit apparemment des <i>simponot</i> qui sont en possession du créancier.
 
 ### Partie 21
-La Guemara repond que la mishna doit etre comprise <b>conformement</b> a ce <b>que Rav Safra a dit</b> en reponse a une autre difficulte : Il fait reference a un cas <b>ou</b> le <i>simpon</i> <b>a ete trouve parmi des documents dechires.</b> Cela indique que le <i>simpon</i> est valide, car si la dette n'avait pas ete remboursee, le creancier n'aurait pas mis le billet <i>simpon</i> parmi des documents dechires. <b>Ici aussi,</b> la mishna fait reference a un cas <b>ou</b> le <i>simpon</i> <b>a ete trouve parmi des documents dechires.</b>
+La Guemara répond que la mishna doit être comprise <b>conformément</b> à ce <b>que Rav Safra a dit</b> en réponse à une autre difficulté : Il fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b> Cela indique que le <i>simpon</i> est valide, car si la dette n'avait pas été remboursée, le créancier n'aurait pas mis le billet <i>simpon</i> parmi des documents déchirés. <b>Ici aussi,</b> la mishna fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
 
 ### Partie 22
-<b>Venez</b> et <b>entendez</b> une autre contestation de la declaration du Rav a partir d'une mishna (<i>Bava Batra</i> 172a) : Si <b>quelqu'un a trouve parmi ses documents</b> un <i>simpon</i> qui dit : La dette mentionnee dans <b>le</b> billet a ordre de Yosef ben Shimon est remboursee,</b> et qu'il y a deux personnes de ce nom qui lui doivent de l'argent, les dettes mentionnees dans <b>les billets a ordre de ces deux personnes sont</b> considerees comme <b>remboursees,</b> car chacun peut pretendre que l'annulation fait reference a sa dette, et la charge de la preuve repose sur le creancier. Apparemment, un <i>simpon</i> qui se trouve en possession du creancier est valable.
+<b>Venez</b> et <b>entendez</b> une autre contestation de la déclaration du Rav à partir d'une mishna (<i>Bava Batra</i> 172a) : Si <b>quelqu'un a trouvé parmi ses documents</b> un <i>simpon</i> qui dit : La dette mentionnée dans <b>le</b> billet à ordre de Yosef ben Shimon est remboursée,</b> et qu'il y a deux personnes de ce nom qui lui doivent de l'argent, les dettes mentionnées dans <b>les billets à ordre de ces deux personnes sont</b> considérées comme <b>remboursées,</b> car chacun peut prétendre que l'annulation fait référence à sa dette, et la charge de la preuve repose sur le créancier. Apparemment, un <i>simpon</i> qui se trouve en possession du créancier est valable.
 
 ### Partie 23
-La Guemara repond que cette mishna, elle aussi, doit etre comprise <b>conformement</b> a ce <b>que Rav Safra a dit</b> en reponse a une autre difficulte : Il fait reference a un cas <b>ou</b> le <i>simpon</i> <b>a ete retrouve parmi des documents dechires. Ici aussi,</b> la mishna fait reference a un cas <b>ou</b> le <i>simpon</i> <b>a ete trouve parmi des documents dechires.</b>
+La Guemara répond que cette mishna, elle aussi, doit être comprise <b>conformément</b> à ce <b>que Rav Safra a dit</b> en réponse à une autre difficulté : Il fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été retrouvé parmi des documents déchirés. Ici aussi,</b> la mishna fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
 
 ### Partie 24
-<b>Venez</b> et <b>entendez</b> une autre contestation de la declaration du Rav, tiree d'une mishna (<i>Shevuot</i> 45a) : Si des orphelins qui ont herite des biens de leur pere demandent le remboursement d'une dette envers leur pere aux orphelins du debiteur, ils sont tenus de preter serment en declarant : Nous pretons <b>un serment que</b> notre <b>pere ne nous a pas instruit</b> sur son lit de mort que la dette mentionnee dans ce billet a ordre etait remboursee et qu'elle devait etre restituee au debiteur, <b>Non plus</b> notre <b>pere ne nous a pas dit</b> a une date anterieure qu'elle etait remboursee, <b>nous n'avons pas trouve parmi les documents de</b> notre <b>pere</b> un <i>simpon</i> indiquant <b>que ce</b> billet a ordre</b> etait <b>rembourse. </b> Cela aussi semble indiquer qu'un <i>simpon</i> est valable meme s'il est trouve en possession du creancier.
+<b>Venez</b> et <b>entendez</b> une autre contestation de la déclaration du Rav à partir d'une mishna (<i>Shevuot</i> 45a) : Si des orphelins qui ont hérité des biens de leur père demandent le remboursement d'une dette envers leur père aux orphelins du débiteur, ils sont tenus de prêter serment en déclarant : Nous prêtons <b>un serment que</b> notre <b>père ne nous a pas instruit</b> sur son lit de mort que la dette mentionnée dans ce billet à ordre était remboursée et qu'elle devait être restituée au débiteur, <b>Non plus</b> notre <b>père ne nous a pas dit</b> à une date antérieure qu'elle était remboursée, <b>nous n'avons pas trouvé parmi les documents de</b> notre <b>père</b> un <i>simpon</i> indiquant <b>que ce</b> billet à ordre</b> était <b>remboursé. </b> Cela aussi semble indiquer qu'un <i>simpon</i> est valable même s'il est trouvé en possession du créancier.
 
 ### Partie 25
-La Guemara repond en citant la declaration de <b>Rav Safra,</b> qui <b>dit</b> dans ce contexte que cette reference est a un cas <b>ou</b> le <i>simpon</i> <b>a ete trouve parmi des documents dechires.</b>
+La Guemara répond en citant la déclaration de <b>Rav Safra,</b> qui <b>dit</b> dans ce contexte que cette référence est à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
 
 ### Partie 26
-<b>Venez</b> et <b>entendez</b> un autre defi d'un <i>baraita</i> : <b>Un <i>simpon</b> sur lequel des temoins</b> sont signes <b>est ratifie par</b> le biais de <b>ses signataires.</b> Le tribunal verifie la validite des signatures des temoins et ratifie ainsi le document. Cela semble egalement inclure un <i>simpon</i> qui est en possession du creancier. La Gemara repond : <b>Disons</b> que le <i>baraita</i> lit : <b>Est ratifiee</b> en obtenant la confirmation <b>de ses signataires,</b>
+<b>Venez</b> et <b>entendez</b> un autre défi d'un <i>baraita</i> : <b>Un <i>simpon</b> sur lequel des témoins</b> sont signés <b>est ratifié par</b> le biais de <b>ses signataires.</b> Le tribunal vérifie la validité des signatures des témoins et ratifie ainsi le document. Cela semble également inclure un <i>simpon</i> qui est en possession du créancier. La Gemara répond : <b>Disons</b> que le <i>baraita</i> dit : <b>Est ratifiée</b> en obtenant la confirmation <b>de ses signataires,</b>
 
->Credit : Edition William Davidson
+>Crédit : Edition William Davidson
+>Licence : CC-BY-NC
+### Partie 1
+<b>Nous sommes préoccupés par</b> la possibilité qu'il y ait <b>deux</b> villes nommées <b>Sheviri,</b> et que cet acte de divorce puisse appartenir à quelqu'un d'autre qui vit dans l'autre Sheviri, et donc qu'il ne doit pas être rendu. <b>Rav Ḥisda dit à Rabba : Sors</b> et <b>examine</b> cette <i>halakha</i>, <b>car le soir Rav Huna t'interrogera</b> à ce sujet. <b>Il est sorti, l'a examiné</b>, <b>et a découvert</b> une source pertinente, <b>comme nous l'avons appris</b> dans la mishna : En ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouvé <b>doit le rendre</b> à son propriétaire présumé. Puisque cet acte de divorce a été trouvé au tribunal, il appartient à cette catégorie et doit être restitué.
+
+### Partie 2
+<b>Rav Amram dit à Rabba : Comment le Maître peut-il résoudre</b> la <i>halakha</i> dans le cas d'un acte de divorce, qui est <b>une affaire rituelle, à partir</b> de la mishna, qui traite des <b>affaires monétaires ?</b> Rabba lui <b>dit : Fou, nous avons appris</b> dans la mishna que cette <i>halakha</i> s'applique dans le cas des <b>documents de <i>ḥalitza</i> et</b> des documents de <b>refus</b> également, qui sont des questions rituelles.
+
+#### Partie 3
+A ce moment-là, la poutre porteuse <b>cèdre</b> <b>de la salle d'étude s'est délogée. </b> Un <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>déloquée,</b> car vous m'avez parlé de manière offensante, <b>et</b> l'autre <b>Sage a dit :</b> C'est <b>par ma faute</b> qu'elle s'est <b>déloquée,</b> car c'est vous qui m'avez parlé de manière offensante.
+
+### Partie 4
+§ La mishna enseigne : Si l'on <b>trouve</b> des documents <b>dans une <i>ḥafisa</i> ou dans un <i>deluskema</i>,</b> il doit les rendre. La Gemara demande : <b>Qu'est-ce qu'une <i>ḥafisa</i> ? Rabba bar Ḥana répond :</b> C'est <b>une petite fiole. Qu'est-ce qu'un <i>deluskema</i> ? Rabba bar Shmuel dit :</b> C'est <b>un récipient [<i>telika</i>]</b> utilisé <b>par les personnes âgées.</b>
+
+### Partie 5
+La mishna enseigne : Si on a trouvé <b>un rouleau de documents ou une liasse de documents,</b> on doit les restituer. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Combien</b> de documents <b>constituent un rouleau de documents ?</b> Un rouleau est <b>trois</b> documents <b>roulés ensemble. Et combien constituent une liasse de documents ?</b> Une liasse est <b>trois</b> documents <b>liés ensemble.</b>
+
+### Partie 6
+La Gemara en déduit : <b>Concluez-en</b> que si l'on a perdu un objet qui a un nœud, le type de <b>nœud</b> peut servir de <b>marque distinctive</b> grâce à laquelle le propriétaire peut décrire l'objet, et il doit donc lui être rendu.
+
+### Partie 7
+La Guemara rejette cette déduction : <b>Rabbi Ḥiyya n'enseigne-t-il pas</b> que la référence est à <b>trois</b> documents qui sont <b>roulés ensemble ?</b> Le fait qu'ils soient roulés ensemble est ce qui sert de marque distinctive, plutôt que les nœuds.
+
+### Partie 8
+La Guemara demande : <b>Si oui,</b> ce cas <b>est</b> identique au cas d'un <b>rouleau</b> de documents, qui est également mentionné dans la mishna. Quelle est la différence entre un rouleau et une liasse ? La Gemara répond : <b>Un rouleau</b> fait référence à un cas où <b>chaque document</b> est situé <b>au sommet d'un autre,</b> c'est-à-dire qu'ils sont enroulés ensemble de telle sorte que le sommet de chaque page soit proche du bas de la page précédente. <b>Une liasse,</b> en revanche, fait référence à un cas <b>où ils sont situés l'un sur l'autre et roulés</b> ensemble.
+
+### Partie 9
+La Gemara demande : <b>Qu'est-ce</b> que la personne qui a trouvé les documents <b>proclame</b> pour que le propriétaire puisse le réclamer ? La Guemara répond : Il proclame le <b>nombre</b> de documents qu'il a trouvés, et le propriétaire peut les décrire en disant qu'ils ont été roulés ensemble.
+
+### Partie 10
+La Guemara demande : Si c'est le cas, <b>pourquoi</b> le <i>tanna</i> enseigne <b>spécifiquement</b> un cas de <b>trois</b> documents ? <b>Même</b> si <b>deux</b> documents sont trouvés, ils peuvent <b>également</b> être rendus de cette manière .
+
+### Partie 11
+<b>Au contraire,</b> le trouveur proclame sa trouvaille d'une manière <b>similaire à ce qu'a dit Ravina :</b> Si on trouve des pièces de monnaie, on se contente de <b>proclamer</b> qu'on a trouvé des <b>pièces de monnaie,</b> sans en préciser le nombre. <b>Ici aussi,</b> celui qui trouve <b>proclame</b> qu'il a trouvé des <b>documents,</b> et le propriétaire les décrit à la fois par leur nombre exact et par le fait qu'ils étaient roulés ensemble. Par conséquent, s'il n'y a que deux documents, la description est déficiente, car le nombre deux est déjà implicite dans la proclamation du trouveur qu'il a trouvé des documents, qui est au pluriel.
+
+### Partie 12
+§ La mishna enseigne que <b>Rabban Shimon ben Gamliel dit :</b> Si l'on trouve trois billets à ordre qui font référence aux prêts de <b>une</b> personne <b>qui a emprunté à trois</b> personnes, <b>il doit les rendre</b> <b>au débiteur.</b> La Gemara explique : La raison en est <b>que s'il vous vient à l'esprit que ces</b> billets à ordre <b>appartiennent</b> aux <b>créanciers, que font-ils ensemble</b> dans un même lieu ?
+
+### Partie 13
+La Gemara suggère : <b>Peut-être</b> les trois créanciers sont tous <b>allés</b> au tribunal afin de <b>ratifier</b> leurs billets à ordre, et les billets ont été perdus ensemble là-bas. La Guemara répond que la mishna fait référence à un cas <b>où les billets à ordre <b>sont ratifiés.</b>
+
+### Partie 14
+La Guemara demande : <b>Peut-être</b> qu'ils <b>sont tombés de</b> la <b>main du scribe</b> du tribunal après qu'il les ait ratifiés. La Guemara répond : <b>Une personne ne laisse pas son billet à ordre ratifié</b> <b>en possession du scribe.</b> Par conséquent, le scénario le plus probable est que les billets à ordre ont été perdus par le débiteur.
+
+### Partie 15
+§ La mishna enseigne : Si les billets à ordre font référence aux prêts de <b>trois</b> personnes <b>qui ont emprunté à une</b> personne, celui qui les a trouvés <b>doit les rendre</b> <b>au créancier.</b> La Gemara explique : La raison en est <b>que s'il entre dans votre esprit que ces</b> billets à ordre <b>appartiennent</b> aux <b>débiteurs, que font-ils ensemble ?</b>
+
+### Partie 16
+La Gemara demande : <b>Peut-être</b> les trois <b>sont allés</b> chez un seul scribe <b>pour écrire</b> les billets à ordre, et les billets ont ensuite été perdus ensemble. La Guemara répond que la mishna fait référence à un cas <b>où</b> les billets à ordre <b>sont écrits de l'écriture de trois</b> <b>scribes différents.</b>
+
+### Partie 17
+La Gemara suggère : <b>Et peut-être</b> les trois débiteurs sont <b>allés</b> au tribunal afin de <b>ratifier</b> les billets à ordre, et ils les ont perdus là-bas. La Gemara répond : C'est le <b>créancier</b> qui <b>ratifie son <b>billet à ordre</b> ; le <b>débiteur ne ratifie pas son <b>billet à ordre.</b>
+
+### Partie 18
+§ La mishna enseigne : <b>S'il y a des annulations de contrats [<i>simponot</i>] parmi</b> ses documents, <b>il doit faire ce qui est</b> indiqué <b>dans les <i>simponot</i>. </b> La Gemara cite ce que <b>Rav Yirmeya bar Abba dit</b> que <b>Rav dit : </b> En ce qui concerne <b>un <i>simpon</i> qui émerge de la possession d'un créancier, même s'il est écrit de sa</b> propre <b>écriture</b> et qu'il n'est manifestement pas faux, <b>on considère</b> <b>comme s'il ne faisait que plaisanter et</b> le <i>simpon</i> <b>est invalide. </b>
+
+### Partie 19
+La Guemara explique : <b>Il n'est pas nécessaire</b> d'énoncer cette <i>halakha</i> dans le cas où <b>elle est écrite de la main d'un scribe, car on peut dire</b> que <b>il s'est trouvé</b> avoir l'occasion de faire écrire le <i>simpon</i> par <b>le scribe</b>, <b>et</b> il l'a donc fait <b>écrire</b> avant le remboursement de la dette. <b>Mais même</b> dans le cas où <b>il est écrit de la main de</b> le créancier <b>il n'est pas valable.</b> Le créancier peut avoir écrit le <i>simpon</i> lui-même avant le remboursement de la dette, <b>en pensant : Peut-être</b> le débiteur <b>se présentera-t-il par hasard au crépuscule</b> la veille du Shabbat <b>et</b> souhaitera-t-il <b>me rembourser.</b> Je dois préparer un document d'annulation, <b>car, si je ne lui en donne pas</b> un, <b>il ne me donnera pas</b> l'<b>argent. Je vais</b> donc <b>rédiger</b> le document maintenant, de sorte <b>que lorsqu'il m'apportera</b> l'<b>argent, je le lui donnerai</b> <b>à lui.</b>
+
+### Partie 20
+La Guemara conteste la déclaration de Rav en se basant sur ce que <b>nous avons appris</b> dans la mishna : <b>S'il y a des <i>simponot</i> parmi</b> ses documents, <b>il doit faire ce qui est</b> indiqué <b>dans les <i>simponot</i>.</b> Il s'agit apparemment des <i>simponot</i> qui sont en possession du créancier.
+
+### Partie 21
+La Guemara répond que la mishna doit être comprise <b>conformément</b> à ce <b>que Rav Safra a dit</b> en réponse à une autre difficulté : Il fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b> Cela indique que le <i>simpon</i> est valide, car si la dette n'avait pas été remboursée, le créancier n'aurait pas mis le billet <i>simpon</i> parmi des documents déchirés. <b>Ici aussi,</b> la mishna fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
+
+### Partie 22
+<b>Venez</b> et <b>entendez</b> une autre contestation de la déclaration du Rav à partir d'une mishna (<i>Bava Batra</i> 172a) : Si <b>quelqu'un a trouvé parmi ses documents</b> un <i>simpon</i> qui dit : La dette mentionnée dans <b>le</b> billet à ordre de Yosef ben Shimon est remboursée,</b> et qu'il y a deux personnes de ce nom qui lui doivent de l'argent, les dettes mentionnées dans <b>les billets à ordre de ces deux personnes sont</b> considérées comme <b>remboursées,</b> car chacun peut prétendre que l'annulation fait référence à sa dette, et la charge de la preuve repose sur le créancier. Apparemment, un <i>simpon</i> qui se trouve en possession du créancier est valable.
+
+### Partie 23
+La Guemara répond que cette mishna, elle aussi, doit être comprise <b>conformément</b> à ce <b>que Rav Safra a dit</b> en réponse à une autre difficulté : Il fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été retrouvé parmi des documents déchirés. Ici aussi,</b> la mishna fait référence à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
+
+### Partie 24
+<b>Venez</b> et <b>entendez</b> une autre contestation de la déclaration du Rav à partir d'une mishna (<i>Shevuot</i> 45a) : Si des orphelins qui ont hérité des biens de leur père demandent le remboursement d'une dette envers leur père aux orphelins du débiteur, ils sont tenus de prêter serment en déclarant : Nous prêtons <b>un serment que</b> notre <b>père ne nous a pas instruit</b> sur son lit de mort que la dette mentionnée dans ce billet à ordre était remboursée et qu'elle devait être restituée au débiteur, <b>Non plus</b> notre <b>père ne nous a pas dit</b> à une date antérieure qu'elle était remboursée, <b>nous n'avons pas trouvé parmi les documents de</b> notre <b>père</b> un <i>simpon</i> indiquant <b>que ce</b> billet à ordre</b> était <b>remboursé. </b> Cela aussi semble indiquer qu'un <i>simpon</i> est valable même s'il est trouvé en possession du créancier.
+
+### Partie 25
+La Guemara répond en citant la déclaration de <b>Rav Safra,</b> qui <b>dit</b> dans ce contexte que cette référence est à un cas <b>où</b> le <i>simpon</i> <b>a été trouvé parmi des documents déchirés.</b>
+
+### Partie 26
+<b>Venez</b> et <b>entendez</b> un autre défi d'un <i>baraita</i> : <b>Un <i>simpon</b> sur lequel des témoins</b> sont signés <b>est ratifié par</b> le biais de <b>ses signataires.</b> Le tribunal vérifie la validité des signatures des témoins et ratifie ainsi le document. Cela semble également inclure un <i>simpon</i> qui est en possession du créancier. La Gemara répond : <b>Disons</b> que le <i>baraita</i> dit : <b>Est ratifiée</b> en obtenant la confirmation <b>de ses signataires,</b>
+
+>Crédit : Edition William Davidson
 >Licence : CC-BY-NC

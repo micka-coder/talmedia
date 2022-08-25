@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Mais</b> quant a le permettre <b>pour manger,</b> a cet egard, meme Rabbi Akiva concede <b>que</b> l'aspersion du sang <b>n'entraine pas l'acceptation.</b>
+<b>Mais</b> quant à le permettre <b>pour manger,</b> à cet égard, même Rabbi Akiva concède <b>que</b> l'aspersion du sang <b>n'entraîne pas l'acceptation.</b>
 
->Credit : William Davidson Edition
+>Crédit : William Davidson Edition
 >Licence : CC-BY-NC

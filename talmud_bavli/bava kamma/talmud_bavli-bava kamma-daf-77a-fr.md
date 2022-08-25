@@ -1,6 +1,6 @@
 
 ### Partie 1
-La viande de la <b>genisse rouge est</b> susceptible de <b>contracter l'impurete rituelle des aliments,</b> malgre le fait qu'il est interdit de tirer un benefice de cette viande, <b>puisqu'elle a eu un temps ou elle etait propre</b> a la consommation.
+La viande de la <b>génisse rouge est</b> susceptible de <b>contracter l'impureté rituelle des aliments,</b> malgré le fait qu'il est interdit de tirer un bénéfice de cette viande, <b>puisqu'elle a eu un temps où elle était propre</b> à la consommation.
 
->Credit : William Davidson Edition
+>Crédit : William Davidson Edition
 >License : CC-BY-NC
