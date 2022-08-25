@@ -6,7 +6,7 @@
 
 ### passuk 2
 <b>And he gives you an omen.</b> In the heavens, as it is said with Gideon, “Produce an omen for me,” and it is said, “Please, let the fleece be dry, etc.” 
-<b>Or a miracle.</b> On earth. In spite of this, pay no heed to him. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And should you ask, ‘Why has the Holy One, may He be blessed, empowered him to produce an omen’? “For Hachem your God is testing you.” 
+<b>Or a miracle.</b> On earth. In spite of this, pay no heed to him. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And should you ask, ‘Why has the Holy One, may He be blessed, empowered him to produce an omen’? “For Adonoy your God is testing you.” 
 
 ### passuk 3
 
@@ -23,7 +23,7 @@
 <b>And redeemed you from the house of bondage.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Even if He had done nothing for you but redeemed you, this is sufficient. 
 
 ### passuk 7
-<b>If . . . should incite you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The word הֲסָתָה always denotes inciting, as it is said, “If Hachem has incited you against me.” <i>Ametra,</i> “seduce” in Old French. He seduces him into performing the act. 
+<b>If . . . should incite you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The word הֲסָתָה always denotes inciting, as it is said, “If Adonoy has incited you against me.” <i>Ametra,</i> “seduce” in Old French. He seduces him into performing the act. 
 <b>Your brother.</b> Paternally, or — 
 <b>Your mother’s son.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Maternally.
 <b>Your bosom.</b> Who reclines in your bosom, and is wrapped up with you. <i>Afichiede</i> in Old French. Similarly, “And from the area wrapped in the earth” — from the foundation embedded in the earth. 
@@ -66,10 +66,10 @@
 <b>You must surely strike down.</b> If you are unable to execute them by the method specified by Scripture for them, execute them by another method. 
 
 ### passuk 17
-<b>For Hachem your God.</b> For His Name and for His sake.
+<b>For Adonoy your God.</b> For His Name and for His sake.
 
 ### passuk 18
-<b>So that Hachem withdraws His raising fury.</b> For, so long as idolatry exists in the world, fury rages in the world. 
+<b>So that Adonoy withdraws His raising fury.</b> For, so long as idolatry exists in the world, fury rages in the world. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Indeed, it was by the order of Hachem.</b> All the calamity that befell Yehudah through these bands.<sup>1</sup><i class="footnote">I.e., all the calamity had been preordained from the time of Menashe's reign.—Radak</i>
+<b>Indeed, it was by the order of Adonoy.</b> All the calamity that befell Yehudah through these bands.<sup>1</sup><i class="footnote">I.e., all the calamity had been preordained from the time of Menashe's reign.—Radak</i>
 
 ### passuk 4
 
@@ -47,7 +47,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Indeed the wrath of Hachem was, etc.</b> Therefore, Tzidkiyohu rebelled against the king of Bavel. The Holy One, Blessed Is He, gave him the desire to rebel against him in order that he would be exiled.<sup>15</sup><i class="footnote">God incited Tzidkiyohu to rebel in order to exile the Bnei Yisroel from Eretz Yisroel.</i>
+<b>Indeed the wrath of Adonoy was, etc.</b> Therefore, Tzidkiyohu rebelled against the king of Bavel. The Holy One, Blessed Is He, gave him the desire to rebel against him in order that he would be exiled.<sup>15</sup><i class="footnote">God incited Tzidkiyohu to rebel in order to exile the Bnei Yisroel from Eretz Yisroel.</i>
 
 >Credit : sefaris
 >License : CC-BY

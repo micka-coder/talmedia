@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Et voici les chefs des maisons de leurs pères</b> des immigrants.
-<b>et le lignage</b> et leur lignage auquel ils ont attribué leur descendance.
+<b>et le lignage</b> et leur lignage auquel ils attribuaient leur descendance.
 <b>Artaxerxès</b> C'est Darius.
 
 ### passuk 2
@@ -35,22 +35,22 @@
 ### passuk 14
 
 ### passuk 15
-<b>A la rivière qui coule</b> Heb.  אֶל הַנָהָר הַבָּא, lit. à la rivière qui vient.
+<b>A la rivière qui coule</b> Heb. אֶל הַנָהָר הַבָּא, lit. à la rivière qui vient.
 <b>Ahava</b> à cette rivière.
 <b>et nous avons campé là</b> et nous campions là.
-<b>et j'ai sondé le peuple</b> J'ai dirigé mon attention pour sonder le peuple qui s'était rassemblé avec moi.
+<b>et j'ai sondé les gens</b> J'ai dirigé mon attention pour sonder les gens qui s'étaient rassemblés avec moi.
 
 ### passuk 16
 <b>Et j'ai envoyé à Eliezer...les chefs</b> les grands hommes.
-<b>les sages</b> Heb.  מְבִינִים, lit. compréhension. Ils étaient des hommes sages.
+<b>les sages</b> Heb. מְבִינִים, lit. compréhension. Ils étaient des hommes sages.
 
 ### passuk 17
 <b>Et je leur commandai, etc.</b> Je les envoyai et leur commandai de parler à Iddo, qui était le plus grand et le plus estimé à Casiphia.
-<b>A Iddo</b> Héb.  עַל אִדוֹ, litt. sur Iddo.
-<b>et j'ai mis... dans leur bouche</b> J'ai mis dans leur bouche des paroles à prononcer en tant qu'émissaire auprès d'Iddo et de son frère, placés et installés à Casiphia, pour nous amener des serviteurs pour servir dans le Temple.
+<b>À Iddo</b> Heb. עַל אִדוֹ, lit. à propos d'Iddo.
+<b>et j'ai mis...dans leur bouche</b> J'ai mis dans leur bouche des paroles à prononcer en tant qu'émissaire auprès d'Iddo et de son frère, placés et installés à Casiphia, pour nous amener des serviteurs pour servir dans le Temple.
 <b>En Casiphia</b> le nom d'un lieu à Babylone.
 <b>Ahiv</b> le nom d'un homme.
-<b>Ceux qui étaient installés</b> Heb.  הַנְתִינִים, comme  הַנְתוּנִים, ceux qui étaient installés. Par conséquent, il est écrit avec un " vav ".
+<b>Qui étaient installés</b> Heb. הַנְתִינִים, comme הַנְתוּנִים, ceux qui étaient installés. Par conséquent, il est écrit avec un "vav".
 
 ### passuk 18
 <b>Selon la main de notre Dieu</b> tout comme le succès du Saint, béni soit-il, a été sur nous.
@@ -63,11 +63,11 @@
 <b>Et des Néthinites</b> Et des esclaves, les Néthinites que le roi David avait désignés, et les chefs d'Israël montés avec eux.
 
 ### passuk 21
-<b>Jeûner</b> Heb.  לְהִתְעַנוֹת  jeûner.
+<b>Jeûner</b> Heb. לְהִתְעַנוֹת jeûner.
 <b>un chemin droit</b> que l'Omniprésent nous conduise en paix.
 
 ### passuk 22
-<b>Parce que j'avais honte</b> Car j'avais honte du roi, et je ne voulais pas lui demander des chars et des cavaliers pour qu'il nous guide.
+<b>Parce que j'avais honte</b> Car j'avais honte du roi, et je ne voulais pas lui demander des chars et des cavaliers pour nous guider.
 <b>car nous avions dit</b> Car nous avions déjà dit au roi Darius que le Saint, béni soit-il, fait du bien à ceux qui le cherchent et déverse sa colère et son courroux sur ceux qui l'abandonnent.
 
 ### passuk 23
@@ -84,11 +84,11 @@
 
 ### passuk 27
 <b>Et... des bols d'aspersion</b> bols pour asperger [le sang des sacrifices].
-<b>De mille darics</b> un type de pièce de monnaie. Il y avait mille darics dans ces vingt bols d'aspersion en or.
+<b>D'un millier de darics</b> un type de pièce de monnaie. Il y avait mille darics dans ces vingt bols d'aspersion en or.
 <b>Or</b> de cuivre doré (ou) un type de pièce de monnaie en cuivre.
-<b>fine</b> Heb.  טוֹבָה", forme féminine, modifiant cuivre (נְחֹשֶּׁת).
+<b>fine</b> Heb. טוֹבָה, forme féminine, modifiant cuivre (נְחֹשֶּׁת).
 <b>Deux</b> deux récipients.
-<b>précieux comme l'or</b> Heb.  חֲמוּדוֹת כַּזָהָב'. Il appelle les vaisseaux  חֲמוּדוֹת  au féminin.
+<b>précieux comme l'or</b> Heb. חֲמוּדוֹת כַּזָהָב. Il appelle les récipientx חֲמוּדוֹת au féminin.
 
 ### passuk 28
 <b>Auxquels</b> à ces chefs des prêtres.
@@ -114,8 +114,8 @@
 <b>offraient des holocaustes</b> tous étaient des holocaustes, et c'était une décision temporaire.
 
 ### passuk 36
-<b>Et ils donnèrent les décrets du roi</b> Ces rapatriés de l'exil relatèrent le mandat du roi Darius aux officiers du roi, ceux qui voient sa face.
-<b>Et les gouverneurs</b> Heb.  וּפַחֲווֹת, comme  וְפַחוֹת.
+<b>Et ils rapportèrent les décrets du roi</b> Ces rapatriés de l'exil rapportèrent le mandat du roi Darius aux officiers du roi, ceux qui voient sa face.
+<b>et les gouverneurs</b> Héb. וּפַחֲווֹת, comme וְפַחוֹת.
 <b>Le pays au-delà du fleuve</b> ceux du côté du pays d'Israël, qui sont considérés comme étant au-delà du fleuve des habitants de Babylone.
 <b>et ils exaltaient</b> Ils exaltaient et assistaient.
 

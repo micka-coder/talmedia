@@ -24,7 +24,7 @@ La Guemara s'interroge : <b>Une réfutation concluante et la <i>halakha</i> ? </
 <strong>MISHNA :</strong> Si une caravane campe dans un champ, et que les voyageurs cherchent à construire des cloisons pour rendre l'espace apte à être transporté à l'intérieur pendant Chabbat, <b>on entoure</b> l'espace avec <b>trois cordes, l'une au-dessus de l'autre, et</b> une troisième <b>une au-dessus</b> des <b>autres</b> deux. Il est permis de porter dans la zone circonscrite <b>à condition qu'il n'y ait pas</b> un espace de <b>trois centimètres entre</b> une <b>corde et la suivante.</b>
 
 ### Partie 9
-<b>La mesure des cordes et leur</b> <b>épaisseur</b> combinée doivent être <b>plus grandes qu'un handbreadth, de sorte que toute</b> la cloison, constituée de trois cordes et des espaces vides entre elles, <b>aura dix coudées</b> de hauteur.
+<b>La mesure des cordes et leur</b> <b>épaisseur</b> combinée doivent être <b>plus grandes qu'un coudée, de sorte que toute</b> la cloison, constituée de trois cordes et des espaces vides entre elles, <b>aura dix coudées</b> de hauteur.
 
 ### Partie 10
 Alternativement, <b>on</b> peut <b>encadrer</b> la zone <b>avec des planches</b> qui se tiennent debout, <b>à condition qu'il n'y ait pas</b> un espace de <b>trois coudées entre une planche et la suivante.</b>

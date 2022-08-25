@@ -96,7 +96,7 @@ Ceux-là sont impurs pour vous entre tous les reptiles: quiconque les touchera a
 Tout objet sur lequel il en tomberait quelque chose après leur mort, deviendrait impur: soit ustensile de bois, soit vêtement, peau ou sac, tout objet destiné à un usage quelconque. Il doit être passé dans l’eau, restera souillé jusqu’au soir, et alors deviendra pur.
 
 ### passuk 33
-Que s’il en tombe quelque chose dans l’intérieur d’un vase d’argile, tout son contenu sera souillé, et le vaisseau, vous le briserez.
+Que s’il en tombe quelque chose dans l’intérieur d’un vase d’argile, tout son contenu sera souillé, et le récipient, vous le briserez.
 
 ### passuk 34
 Tout aliment dont on se nourrit, une fois que l’eau l’aura touché, sera susceptible de souillure; toute liqueur potable sera susceptible de souillure dans un vase quelconque.

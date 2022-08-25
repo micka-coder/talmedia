@@ -10,7 +10,7 @@
 <b>The Holy of Holies.</b> The Holiest of all; the Ark, the Table, the Menorah, the Altars, the Paroches, and the service vessels. 
 
 ### passuk 5
-<b>Aharon and his sons shall enter . . . etc.</b> They shall place each vessel into the sheath specified for it in this chapter, so that the Levite sons of Kehat need do nothing but carry [them]. 
+<b>Aharon and his sons shall enter . . . etc.</b> They shall place each vessel into the sheath specified for it in this chapter, so that the Levite sons of Kehos need do nothing but carry [them]. 
 <b>When the camp is about to travel.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>When the cloud rises, they know that they are to depart. 
 
 ### passuk 6
@@ -51,7 +51,7 @@
 
 ### passuk 16
 <b>Encharged to Elazar.</b> He was assigned <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to carry them; oil, incense, and anointing oil. The continual [daily] meal-offering. His responsibility was to issue orders, to urge [the others], and to offer it [on the altar] when they camped. 
-<b>The charge of the entire Mishkon.</b> In addition, he was assigned to [oversee] the load of the sons of Kehat — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to issue orders for everyone’s work and load. This is [what is meant by] “the <i>Mishkon and all of its contents,” everything listed above in this chapter. But the load of the sons of Gershon and Merori, which did not consist of the holy of holies, was by order of Isamar, as is written in the portion of נָשׂא . 
+<b>The charge of the entire Mishkon.</b> In addition, he was assigned to [oversee] the load of the sons of Kehos — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to issue orders for everyone’s work and load. This is [what is meant by] “the <i>Mishkon and all of its contents,” everything listed above in this chapter. But the load of the sons of Gershon and Merori, which did not consist of the holy of holies, was by order of Isamar, as is written in the portion of נָשׂא . 
 </i>
 
 ### passuk 17
@@ -67,7 +67,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Take the count of the sons of Gershon, as well.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as I commanded you conce ning the sons of Kehat, to determine how many <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>have reached the working category. 
+<b>Take the count of the sons of Gershon, as well.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as I commanded you conce ning the sons of Kehos, to determine how many <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>have reached the working category. 
 
 ### passuk 23
 
@@ -86,7 +86,7 @@ and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the copper altar
 <b>And all that will be given [lit. made] to them.</b> As Targum [Onkelos] translates, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”all that will be given to them” — to the sons of Gershon. 
 
 ### passuk 27
-<b>By instruction of Aharon and [one of] his sons.</b> Which of his sons is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>appointed over them? Under the supervision of Isamar, son of Aharon, the <i>Kohen.</i> 
+<b>By instruction of Aharon and [one of] his sons.</b> Which of his sons is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>appointed over them? Under the supervision of Isamar, son of Aharon, the <i>kohein.</i> 
 
 ### passuk 28
 
@@ -135,7 +135,7 @@ and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the copper altar
 ### passuk 48
 
 ### passuk 49
-<b>And they were counted, as Hachem commanded Moshe.</b> Those counted were, as commanded, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from the ages of thirty to fifty. 
+<b>And they were counted, as Adonoy commanded Moshe.</b> Those counted were, as commanded, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from the ages of thirty to fifty. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

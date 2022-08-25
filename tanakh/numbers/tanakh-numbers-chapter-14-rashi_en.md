@@ -25,7 +25,7 @@
 
 ### passuk 10
 <b>They should be stoned.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Yehoshua and Caleiv.
-<b>When the glory of Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Cloud descended there. 
+<b>When the glory of Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Cloud descended there. 
 
 ### passuk 11
 <b>Until where.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To what degree.
@@ -47,7 +47,7 @@
 <b>If You kill this nation like a single man.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Suddenly. As a result, the nations who have heard etc. 
 
 ### passuk 16
-<b>Because of [Hachem’s] inability.</b> Because the inhabitants of the land are strong and valorous, and Pharaoh is not the same as thirty-one kings. This is what they will say about the inhabitants of this land. <b>Because of inability.</b> Since He was not able to bring them, He slaughtered them. 
+<b>Because of [Adonoy’s] inability.</b> Because the inhabitants of the land are strong and valorous, and Pharaoh is not the same as thirty-one kings. This is what they will say about the inhabitants of this land. <b>Because of inability.</b> Since He was not able to bring them, He slaughtered them. 
 <b>[In]ability.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This is an abstract noun.
 
 ### passuk 17
@@ -55,7 +55,7 @@
 <b>As You spoke, saying:</b> What is the statement? 
 
 ### passuk 18
-<b>Hachem, slow to anger.</b> At the righteous and at the wicked. When Moshe ascended on high, he found the Holy One, Blessed is He, sitting and writing, “Hashem is slow to anger.” He (Moshe) said to Him, ‘to the righteous’? The Holy One, Blessed is He, said to him, ‘even to the wicked’! He (Moshe) said to Him, ‘let the wicked perish’! He said to him ‘by your life, you will need this thing.’ When the Israelites sinned with the [golden] calf and the spies, Moshe prayed before Him with “slow to anger.” The Holy One, Blessed is He, said: “But you said to Me ‘to the righteous”’? He (Moshe) said to Him: “But You said to me, ‘Even to the wicked’.” 
+<b>Adonoy, slow to anger.</b> At the righteous and at the wicked. When Moshe ascended on high, he found the Holy One, Blessed is He, sitting and writing, “Hashem is slow to anger.” He (Moshe) said to Him, ‘to the righteous’? The Holy One, Blessed is He, said to him, ‘even to the wicked’! He (Moshe) said to Him, ‘let the wicked perish’! He said to him ‘by your life, you will need this thing.’ When the Israelites sinned with the [golden] calf and the spies, Moshe prayed before Him with “slow to anger.” The Holy One, Blessed is He, said: “But you said to Me ‘to the righteous”’? He (Moshe) said to Him: “But You said to me, ‘Even to the wicked’.” 
 <b>Acquit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Those who repent.
 <b>[He] does not acquit.</b> Those who do not repent.
 
@@ -121,7 +121,7 @@
 <b>Slander.</b> <i>Parlerie</i> in Old French.
 
 ### passuk 37
-<b>In a plague, before Hachem.</b> By the particular death suited to them, measure for measure. They sinned with the tongue, so their tongues were distended until their navel, and maggots came from their tongues and entered their navel. This is why it says, בַּמַּגֵּפָה, and not בְּמַּגֵּפָה . And this is [the meaning of] “before Hashem” — as particularly suited to them, according to the attributes of the Holy One, Blessed is He, Who metes out measure for measure. 
+<b>In a plague, before Adonoy.</b> By the particular death suited to them, measure for measure. They sinned with the tongue, so their tongues were distended until their navel, and maggots came from their tongues and entered their navel. This is why it says, בַּמַּגֵּפָה, and not בְּמַּגֵּפָה . And this is [the meaning of] “before Hashem” — as particularly suited to them, according to the attributes of the Holy One, Blessed is He, Who metes out measure for measure. 
 
 ### passuk 38
 <b>Yehoshua . . . and Caleiv . . . lived, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>What does the Torah teach by saying, “lived, from among those men”? It teaches that they took the spies’ portion in the land, replacing them in life. 
@@ -131,7 +131,7 @@
 ### passuk 40
 <b>To the peak of the mountain.</b> This was the route going up to Eretz Yisroel.
 <b>We are ready to go up to the place.</b> To Eretz Yisroel.
-<b>Of which Hachem spoke.</b> To give to us — let us go up there.
+<b>Of which Adonoy spoke.</b> To give to us — let us go up there.
 <b>For we have sinned.</b> Since we said, “Is it not better for us to return to Egypt.” 
 
 ### passuk 41

@@ -9,7 +9,7 @@
 <b>You must not kindle a fire.</b> Some of our Sages say: Kindling a fire, a לַאו — a negative precept, “went out” (i.e., was singled out to indicate this new law). Others say it “went out” (i.e., was singled out) to separate [the <i>melachos</i> of Shabbos]. 
 
 ### passuk 4
-<b>This is the word that Hachem has commanded —</b> me, to tell you. 
+<b>This is the word that Adonoy has commanded —</b> me, to tell you. 
 
 ### passuk 5
 <b>Who is generous of heart.</b> Since it is his heart that inspires him [to give] he is called “generous of heart.” I have already explained the contributions to the <i>mishkon</i> and its work in the place where they were commanded.

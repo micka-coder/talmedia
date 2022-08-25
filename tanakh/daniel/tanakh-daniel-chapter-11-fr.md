@@ -87,7 +87,7 @@ Puis, il se dirigera vers son pays avec de grandes richesses; il formera des pro
 Au temps marqué, il envahira de nouveau le sud, mais cette dernière expédition ne sera pas comme la première.
 
 ### passuk 30
-Des vaisseaux de Kittîm viendront contre lui, et il sera découragé; il rebroussera chemin et exercera sa fureur contre l’alliance sainte, puis il s’en retournera et sera d’intelligence avec les déserteurs de l’alliance sainte.
+Des récipientx de Kittîm viendront contre lui, et il sera découragé; il rebroussera chemin et exercera sa fureur contre l’alliance sainte, puis il s’en retournera et sera d’intelligence avec les déserteurs de l’alliance sainte.
 
 ### passuk 31
 Des troupes à lui demeureront et profaneront le sanctuaire, ce boulevard protecteur; elles supprimeront l’holocauste perpétuel et établiront l’abomination horrible.
@@ -117,7 +117,7 @@ Mais il honorera le Dieu des forteresses [maritimes] au centre de son culte, et 
 Il agira dans l’intérêt des villes fortes en même temps que d’un Dieu étranger; quiconque adorera celui-ci, il le comblera d’honneurs, le mettra à la tête d’un grand nombre et distribuera des territoires comme récompense.
 
 ### passuk 40
-Mais au temps final, le roi du sud entrera en collision avec lui, et le roi du nord fondra sur lui avec des chars, des cavaliers et quantité de vaisseaux; il envahira les territoires et submergera tout sur son passage.
+Mais au temps final, le roi du sud entrera en collision avec lui, et le roi du nord fondra sur lui avec des chars, des cavaliers et quantité de récipientx; il envahira les territoires et submergera tout sur son passage.
 
 ### passuk 41
 Il envahira aussi le pays, joyau [des pays], et de grandes multitudes succomberont. Et voici ceux qui échapperont à ses coups: Edom, Moab et la région extrême des fils d’Ammon.

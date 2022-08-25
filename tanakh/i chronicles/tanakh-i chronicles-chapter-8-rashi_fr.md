@@ -12,7 +12,7 @@
 
 ### passuk 6
 <b>Et ils les exilèrent à Manahath</b> Qui les exila ? Il l'explique dans le verset [suivant] : Naaman, Ahiah et Gera - il les exila.
-<b>Manahath</b> C'est le nom d'une province, comme il est écrit (ci-dessus 2:52) : "qui régnait sur la moitié des Menuhoth," et il est écrit (ibid. verset 54) : " et la moitié des Manahtites ".
+<b>Manahath</b> C'est le nom d'une province, comme il est écrit (ci-dessus 2:52) : "qui régnait sur la moitié des Menuhoth", et il est écrit (ibid. verset 54) : "et la moitié des Manahtites."
 
 ### passuk 7
 
@@ -32,7 +32,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Et Ahio, Shashak</b> Tous ceux-là étaient les fils d'Elpaal. Une autre explication, qui est plus correcte, est que de "Ahio, Shashak" jusqu'à "et Joha", tous ceux-ci sont les fils de Beriah, et de "Zebadiah" jusqu'à "Jobab", tous ceux-ci sont les fils d'Elpaal, et de "et Jakim", jusqu'à "et Shimrath", tous ceux-ci sont les fils de Shimei.
+<b>Et Ahio, Shashak</b> Tous ceux-là étaient les fils d'Elpaal. Une autre explication, qui est plus correcte, est que de "Ahio, Shashak" jusqu'à "et Joha", tous ceux-ci sont les fils de Beriah, et de "Zebadiah" jusqu'à "Jobab", tous ceux-ci sont les fils d'Elpaal, et de "Et Jakim", jusqu'à "et Shimrath", tous ceux-ci sont les fils de Shimei.
 
 ### passuk 15
 
@@ -63,7 +63,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Et à Gabeon habitait le chef de Gabeon</b> Cette section jusqu'à (verset 38) : "...tous ceux-là étaient les fils d'Azel," est écrite deux fois dans ce Livre. Aussi la section (9:2) : "Et les premiers colons, qui étaient dans leur héritage dans leurs villes," et la section (9:10) : "Et des prêtres : Jedaiah et Jehoirib" sont également dans le Livre de Néhémie, comme il est écrit (11:3) : C'est ce qui est expliqué à la fin de la Megillath Yerushalmi. Esdras a trouvé des rouleaux : le rouleau de  מְעוֹנִים, le rouleau de  זַאַטוּטֵי  et les rouleaux de  הָאַחִים, et ils ont rejeté les paroles de l'un et accepté les paroles des deux. De même, ils trouvèrent de nombreux documents généalogiques. Quand ils en ont trouvé trois ou cinq, ils ont rejeté la minorité et accepté la majorité. Lorsqu'ils trouvaient un nombre pair, par exemple "Et à Gabaon habitait le chef de Gabaon", il devait l'écrire deux fois car l'ordre de leur généalogie n'est pas uniforme, et de même, [dans] "les premiers colons", il trouvait un nombre pair, qui différait l'un de l'autre. [C'est pourquoi il l'a écrite deux fois : ici et dans son livre [d'Esdras]. Maintenant, pourquoi n'a-t-il pas écrit les deux ici, y compris ceux qui sont dans Esdras : "Et voici les chefs de province, etc." ? Parce qu'il a retracé la généalogie jusqu'à " Voici les sacrificateurs et les lévites ", et qu'il a retracé la généalogie jusqu'à Jédia, qui était après Esdras. Or, quel intérêt y aurait-il à expliquer et à retracer la généalogie ici dans les Chroniques, les générations et la généalogie après Esdras, sauf pour ceux qui étaient vivants à l'époque du Premier Temple ?
+<b>Et à Gibéon habitait le chef de Gibéon</b> Cette section jusqu'à (verset 38) : "...tous ceux-là étaient les fils d'Azel," est écrite deux fois dans ce Livre. De même la section (9:2) : "Et les premiers colons, qui étaient dans leur héritage dans leurs villes," et la section (9:10) : "Et des prêtres : Jedaiah et Jehoirib" se trouvent également dans le Livre de Néhémie, comme il est écrit (11:3) : "Et voici les chefs de la province." C'est ce qui est expliqué à la fin du Megillath Yerushalmi. Esdras trouva des rouleaux : le rouleau de מְעוֹנִים, le rouleau de זַאַטוּטֵי et les rouleaux de הָאַחִים, et ils rejetèrent les paroles de l'un et acceptèrent les paroles des deux. De même, ils trouvèrent de nombreux documents généalogiques. Quand ils en ont trouvé trois ou cinq, ils ont rejeté la minorité et accepté la majorité. Lorsqu'ils trouvaient un nombre pair, par exemple "Et à Gabaon habitait le chef de Gabaon", il devait l'écrire deux fois car l'ordre de leur généalogie n'est pas uniforme, et de même, [dans] "les premiers colons", il trouvait un nombre pair, qui différait l'un de l'autre. [Il l'a donc écrite deux fois : ici et dans son livre [d'Esdras]. Or, pourquoi n'a-t-il pas écrit les deux ici, y compris ceux qui se trouvent dans Esdras : " Et voici les chefs de province, etc. " ? Parce qu'il a tracé la généalogie là jusqu'à "Et voici les prêtres et les lévites", et il a tracé la généalogie ici jusqu'à Jedaiah, qui était après Esdras. Or, à quoi cela servirait-il d'expliquer et de retracer la généalogie ici dans les Chroniques, les générations et la généalogie après Esdras, sauf pour ceux qui étaient vivants pendant la période du Premier Temple ?
 
 >Crédit : sefaris
 >Licence : CC-BY

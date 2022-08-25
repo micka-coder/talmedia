@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>Adresse d'Elihu</b><br><b>de la famille de Ram</b> Abraham, comme il est dit (Josh. 14:15) : "Le plus grand homme parmi les Anakim." Il s'agit d'Abraham.
+<b>Adresse d'Elihu</b><br><b>de la famille de Ram</b> Abraham, comme il est dit (Josh. 14:15) : "le plus grand homme parmi les Anakim". Il s'agit d'Abraham.
 <b>que Dieu</b> Plus que l'Omniprésent.
 
 ### passuk 3
-<b>et condamnèrent Job</b> C'est l'un des versets où les scribes ont rectifié le langage de l'Écriture. " Et ils condamnèrent ", comme dirigé contre l'Omniprésent, en se taisant, aurait dû être écrit, mais l'Écriture a euphémisé. De même (Nombres 11,15), " et ne me laisse pas voir mon malheur ", il aurait fallu écrire : Il aurait fallu écrire : "et ne me laissez pas voir leur malheur", mais l'Écriture a eu recours à l'euphémisme, et tant d'autres exemples, dans les Sifrei (ad loc.) et dans la Grande Masorah.
+<b>et condamnèrent Job</b> C'est l'un des versets où les scribes ont rectifié le langage de l'Écriture. "Et ils condamnèrent", comme dirigé contre l'Omniprésent, en se taisant, aurait dû être écrit, mais l'Écriture a euphémisé. De même (Nombres 11, 15), "et ne me laisse pas voir mon malheur". Il aurait fallu écrire : "et ne me laisse pas voir leur malheur", mais l'Écriture a euphémisé, et tant d'autres exemples, dans les Sifrei (ad loc.) et dans la Grande Masorah.
 
 ### passuk 4
 <b>Parce qu'ils étaient plus âgés que lui en jours</b> [c'est-à-dire que] les autres [étaient plus âgés que lui]. Par conséquent, il s'est abstenu jusqu'à ce qu'ils soient immobiles.
@@ -53,10 +53,10 @@
 ### passuk 20
 
 ### passuk 21
-<b>Je n'euphémiserai pas non plus</b> Je ne changerai pas mes mots pour les remplacer [par des expressions plus douces] par déférence pour son honneur [celui de Job], comme je l'ai dit plus haut : "Et ils condamnèrent Job".C'est un euphémisme, qui change l'expression à cause de son honneur. Je ne ferai même pas cela, mais je le réprimanderai explicitement.
+<b>Je n'euphémiserai pas non plus</b> Je ne changerai pas mes mots pour les remplacer [par des expressions plus douces] par déférence pour son honneur [celui de Job], comme je l'ai dit plus haut : "Et ils condamnèrent Job." C'est un euphémisme, qui change l'expression à cause de son honneur. Je ne ferai même pas cela, mais je le réprouverai explicitement.
 
 ### passuk 22
-<b>Ou bien... m'emporterait</b> Il m'emporterait loin du monde. D'autres interprètent  יִשָׂאֵנִי  comme (Nahum 1:5), "et la terre s'éleva (ותשא) de devant moi [une colonne de fumée]."
+<b>Ou bien... m'emporterait</b> Il m'enlèverait du monde. D'autres interprètent יִשָׂאֵנִי comme (Nahum 1:5), "et la terre a levé (ותשא) de devant moi [une colonne de fumée]."
 
 >Crédit : sefaris
 >License : CC-BY

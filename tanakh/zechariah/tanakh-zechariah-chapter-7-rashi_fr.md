@@ -5,13 +5,13 @@
 <b>Et Sharezer, Regem Melech et ses hommes envoyèrent à Béthel</b> C'étaient des hommes justes, et ils envoyèrent [un mot] à leurs proches à Béthel pour qu'ils viennent prier devant le Seigneur à Jérusalem pour eux, et pour demander aux prêtres de leur faire savoir s'ils devaient [encore] pleurer au mois d'Av, puisque le Temple avait été reconstruit.
 
 ### passuk 3
-<b>S'abstenir</b> S'abstenir de tout plaisir, comme je l'ai fait ces soixante-dix ans. Le mot  נְזִירָה " signifie toujours séparation.
+<b>S'abstenir</b> S'abstenir de tout plaisir, comme je l'ai fait ces soixante-dix ans. Le mot נְזִירָה signifie toujours séparation.
 
 ### passuk 4
 
 ### passuk 5
 <b>et au septième [mois]</b> C'est le jeûne de Guedaliah.
-<b>As-tu jeûné pour Moi, même pour Moi</b> Le "he' est voyellé avec un "hataf pattah' car il est utilisé comme interrogatif : As-tu jeûné en Mon honneur pour que tu sois obligé de jeûner maintenant aussi ?
+<b>Avez-vous jeûné pour Moi, même pour Moi</b> Le 'il' est voyellé avec un 'hataf pattah' car il est utilisé comme interrogatif : As-tu jeûné en Mon honneur pour que tu sois tenu de jeûner maintenant, toi aussi ?
 
 ### passuk 6
 <b>Et quand vous mangez et quand vous buvez</b> Et, si vous ne jeûnez pas, cela non plus ne signifie rien pour Moi. La nourriture et la boisson ne sont-elles pas pour votre propre plaisir ?

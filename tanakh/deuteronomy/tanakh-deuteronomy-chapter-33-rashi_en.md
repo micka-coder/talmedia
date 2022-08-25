@@ -3,7 +3,7 @@
 <b>This is the blessing . . . before his death.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Close to his death, for ‘If not now, when’? 
 
 ### passuk 2
-<b>He said: Hachem came from Sinai.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He began with the praise of God, and afterward, he introduced the needs of the Israelites. And his opening praise <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>also mentions the merit of the Israelites. All this by way of seeking favor, as if to say, ‘They are worthy of receiving blessings.’ 
+<b>He said: Adonoy came from Sinai.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He began with the praise of God, and afterward, he introduced the needs of the Israelites. And his opening praise <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>also mentions the merit of the Israelites. All this by way of seeking favor, as if to say, ‘They are worthy of receiving blessings.’ 
 <b>Came from Sinai.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He went out to meet them when they came to station themselves at the foot of the mountain, like a bridegroom going forward to receive his bride, as it is said, “Toward God” — this teaches that He went forward towards them. 
 <b>Radiated forth to them from Seir.</b> As He had made an overture to the children of Eisav, to accept the Torah — but they refused. 
 <b>[He] appeared.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To them. <b>From Mount Paran.</b> where He went to make an overture to the children of Yishmael to accept it — but they refused.
@@ -13,7 +13,7 @@
 
 ### passuk 3
 <b>He also cherished the nations.</b> Also, with surpassing love <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He cherished the tribes. Each of them was entitled a “people,” for only Binyamin was destined to be born when the Holy One, Blessed is He, said to Yaakov, “A nation and community of nations shall emanate from you.” 
-<b>All of their sacred ones are in Your keeping.</b> The souls of the saints secreted with Him, about which it is said, “The soul of my master shall be bound in the bond of life with Hachem your God.” 
+<b>All of their sacred ones are in Your keeping.</b> The souls of the saints secreted with Him, about which it is said, “The soul of my master shall be bound in the bond of life with Adonoy your God.” 
 <b>For they were gathered in at Your feet.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>They were worthy of this, for they were gathered in under the foot of the mountain at Your feet at Sinai. תֻּכּוּ denotes the reflexive, they were gathered into your footrest. 
 <b>And accepted the burden of Your word.</b> They accepted upon themselves the yoke of Your Torah.
 <b>Your word.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The “ מֶ"ם “ here relates to the root, as in, “He heard the voice speaking to him,” “And I heard that which was spoken to me,” like מִתְדַּבֵּר, “that which was self-spoken to me.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Here too, “Your self-spoken” — that which You had spoken so that I would hear and relate it to them. <i>tes pourparlers,</i> speaking to oneself, in Old French. But Onkelos renders, “They journeyed by Your words,” with the מֶ"ם as a prefix, having the connotation of “by.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation: “Even when the nations were cherished,” even during the time when the Gentile nations were cherished, when You displayed to the Gentiles, a beaming countenance, and delivered the Jews into their hands — 
@@ -31,16 +31,16 @@
 <b>Of the counting.</b> As in “When you take count.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>These are worthy of my blessing. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation: “When they gathered.” When they gather together as a single unit, and there is harmony among them — then He is their king, but not when there is dissention among them. 
 
 ### passuk 6
-<b>May Reouven live.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In this world.
+<b>May Reuvein live.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In this world.
 <b>Let him not die.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In the World to Come, as the incident of Bilhah will not be reckoned against him. 
 <b>May his constituency be counted.</b> May they be counted in the census with the rest of his brothers. This is comparable to that which is said, “He laid with Bilhah. There were twelve sons of Yaakov” — he was not excluded from the count. 
 
 ### passuk 7
-<b>Now this for Yehudah.</b> He placed Yehudah next to Reouven, because both confessed to the iniquity of which they were guilty, as it is said, “That wise men acknowledged, etc., to them alone, etc., <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>no stranger passed between them.” In addition, the Rabbis explain that throughout the forty years that the Israelites were in the wilderness, Yehudah’s bones rolled about in his coffin, because of the banishment which he accepted upon himself, as it is said, “I will have sinned against my father for all time.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshe said, ‘Who was responsible for Reouven’s confession? Yehudah, etc.’ 
-<b>Hachem, hear the voice of Yehudah.</b> The prayers of Dovid and Shlomo, Asa because of the Cushites, Yehoshafat because of the Ammonites, and Chizkiyahu because of Sancheiriv. 
+<b>Now this for Yehudah.</b> He placed Yehudah next to Reuvein, because both confessed to the iniquity of which they were guilty, as it is said, “That wise men acknowledged, etc., to them alone, etc., <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>no stranger passed between them.” In addition, the Rabbis explain that throughout the forty years that the Israelites were in the wilderness, Yehudah’s bones rolled about in his coffin, because of the banishment which he accepted upon himself, as it is said, “I will have sinned against my father for all time.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshe said, ‘Who was responsible for Reuvein’s confession? Yehudah, etc.’ 
+<b>Adonoy, hear the voice of Yehudah.</b> The prayers of Dovid and Shlomo, Asa because of the Cushites, Yehoshafat because of the Ammonites, and Chizkiyahu because of Sancheiriv. 
 <b>And bring him to his people.</b> In peace, after warfare. 
 <b>May his hands fight his battles.</b> May they fight his battles and exact his vengeance.
-<b>May You provide assistance against his enemies.</b> He prayed for Yehoshafat at the battle of Gilad heights — “Yehoshafat cried out, and Hachem assisted him.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation [of] “Hachem, hear the voice of Yehudah” — here he alluded to a blessing for Shimon, amidst Yehudah’s blessings. Also, when Eretz Yisroel was apportioned, Shimon took [a portion] amidst Yehudah’s allotment, as it is said, “From the portion of the sons of Yehudah, the inheritance of the sons of Shimon.” (Why didn’t he devote a specific blessing to him? Because he was resentful towards him for his behavior at Shittim. This is recorded in Agadas Tehilim.) 
+<b>May You provide assistance against his enemies.</b> He prayed for Yehoshafat at the battle of Gilad heights — “Yehoshafat cried out, and Adonoy assisted him.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation [of] “Adonoy, hear the voice of Yehudah” — here he alluded to a blessing for Shimon, amidst Yehudah’s blessings. Also, when Eretz Yisroel was apportioned, Shimon took [a portion] amidst Yehudah’s allotment, as it is said, “From the portion of the sons of Yehudah, the inheritance of the sons of Shimon.” (Why didn’t he devote a specific blessing to him? Because he was resentful towards him for his behavior at Shittim. This is recorded in Agadas Tehilim.) 
 
 ### passuk 8
 <b>Regarding [lit. to] Levi he said.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Regarding Levi he said.
@@ -49,7 +49,7 @@
 <b>You brought him strife, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>As Targum [Onkelos] renders. Another interpretation. “You contended with him at the waters of Merivah.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You set upon him with a spurious charge. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If Moshe exclaimed, “Now listen, rebels”!, what did Aharon and Miriam do? 
 
 ### passuk 9
-<b>Who said of his father and mother, ‘I did not see them.’</b> When they sinned with the golden calf, and I proclaimed, “Whoever is for Hachem, join me”! all the sons of Levi gathered around me. I commanded them to execute a maternal grandfather, if he was an Israelite, or a maternal half-brother, or a son of a daughter, and they did so. But this cannot be interpreted literally as a father, or paternal brother, likewise not literally as a son, since they were Levites, and of the tribe of Levi. no one sinned, as it is said, “<i>All</i> the sons of Levi.” 
+<b>Who said of his father and mother, ‘I did not see them.’</b> When they sinned with the golden calf, and I proclaimed, “Whoever is for Adonoy, join me”! all the sons of Levi gathered around me. I commanded them to execute a maternal grandfather, if he was an Israelite, or a maternal half-brother, or a son of a daughter, and they did so. But this cannot be interpreted literally as a father, or paternal brother, likewise not literally as a son, since they were Levites, and of the tribe of Levi. no one sinned, as it is said, “<i>All</i> the sons of Levi.” 
 <b>For they observed your command.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”You must not have other Gods.”
 <b>And kept Your covenant.</b> The covenant of circumcision. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>For, of those born in the wilderness, the Israelites did not circumcise their children, but they [the Levites] were circumcised, and they circumcised their children. [An alternate Rashi text: Those born in the wilderness, as the Israelites did not circumcise their children, but they were circumcised.] 
 
@@ -58,17 +58,17 @@
 <b>And totally consumed offerings.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The <i>olah.</i>
 
 ### passuk 11
-<b>Shatter his adversaries at the loins.</b> Shatter his adversaries with a blow at the loins, as it is written, “Cause their loins to stumble always.” It was concerning those who challenged the priesthood that he said this. Another interpretation: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He foresaw that Chashmonai and his sons were destined to wage war with the Yevanim, so he prayed for them, as they were so few — the twelve sons of Chashmonai and Elazar against many myriads. This is why it is said, “Hachem, bless his wealth and accept his handiwork.” 
+<b>Shatter his adversaries at the loins.</b> Shatter his adversaries with a blow at the loins, as it is written, “Cause their loins to stumble always.” It was concerning those who challenged the priesthood that he said this. Another interpretation: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He foresaw that Chashmonai and his sons were destined to wage war with the Yevanim, so he prayed for them, as they were so few — the twelve sons of Chashmonai and Elazar against many myriads. This is why it is said, “Adonoy, bless his wealth and accept his handiwork.” 
 <b>And his enemies, so that they may not arise.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Shatter his adversaries and enemies, so that they may not gain ascendancy. 
 
 ### passuk 12
-<b>Regarding Binyomin he said.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because Levi’s blessing was concerned with the sacrificial services, and that of Binyomin with the construction of the Beis Hamikdosh in his territory, he placed them next to one another. And he placed Yossef after him [Binyomin] since, he, too, had the Tabernacle at Shiloh constructed in his territory, as it is said, “He was repulsed by the tent of Yossef, etc.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And because the Eternal Sanctuary is more cherished than Shiloh, he therefore gave preference to Binyomin over Yossef. 
+<b>Regarding Binyomin he said.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because Levi’s blessing was concerned with the sacrificial services, and that of Binyomin with the construction of the Beis Hamikdosh in his territory, he placed them next to one another. And he placed Yoseif after him [Binyomin] since, he, too, had the Tabernacle at Shiloh constructed in his territory, as it is said, “He was repulsed by the tent of Yoseif, etc.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And because the Eternal Sanctuary is more cherished than Shiloh, he therefore gave preference to Binyomin over Yoseif. 
 <b>He hovers protectively over him.</b> He covers and shields him.
 <b>Throughout the day.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Eternally — once Jerusalem was chosen, the Divine Presence did not rest anywhere else. 
 <b>And He resides between his shoulders.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>At the pinnacle of his territory, the Beis Hamikdosh was constructed, except that it was twenty-three <i>amohs</i> below Eitam spring. It was there that David had intended to construct it, as stated in Shechitas Kodashim, [but] they remarked, ‘Let us descend a little, for it is written, “He resides between his shoulders” — nothing is pleasing, about the ox, more than his shoulders.’ 
 
 ### passuk 13
-<b>Blessed by Hachem is his land.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>For none of the tribal territories was as replete with bounty of every kind as Yossef’s territory.
+<b>Blessed by Adonoy is his land.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>For none of the tribal territories was as replete with bounty of every kind as Yoseif’s territory.
 <b>With the delight.</b> This denotes delight and sweetness.
 <b>And the deep waters.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>As the waters of the deep rise, and irrigate it from below. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You find that, with all the tribes, Moshe’s blessing resembled Yaakov’s blessing. 
 
@@ -83,7 +83,7 @@
 ### passuk 16
 <b>And the favor of the One who resides in the thornbush.</b> [ שׁוֹכְנִי is] Like שׁוֹכֵן, [the One who resides] in the thornbush. May his territory be blessed by the favor and gratification of the Holy One, Blessed is He, who first revealed Himself to me at the thornbush. 
 <b>Favor.</b> Gratification and conciliation. “ רָצוֹן “ is similarly interpreted throughout Scripture.
-<b>Let this be visited.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This blessing, upon Yossef’s head. 
+<b>Let this be visited.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This blessing, upon Yoseif’s head. 
 <b>The one set apart from his brothers.</b> As he was set apart from his brothers when he was sold.
 
 ### passuk 17
@@ -95,7 +95,7 @@
 <b>And they are Menasheh’s thousands.</b> This refers to the thousands slain by Gideon at Midian, as it is said, “Zevach and Tsalmuna were at Karkor, etc.” 
 
 ### passuk 18
-<b>Regarding Zevulun, he said.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With the following five tribes whom he blessed last — Zevulun, Gad, Don, Naftoli, and Asher — the names were repeated, to strengthen and empower them, since they were the weakest of all the tribes. They were the ones whom Yossef brought before Pharoah, as it is said, “From among his brothers, he took five men,” because they appeared weak, and he would not commission them as his military officers. 
+<b>Regarding Zevulun, he said.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With the following five tribes whom he blessed last — Zevulun, Gad, Don, Naftoli, and Asher — the names were repeated, to strengthen and empower them, since they were the weakest of all the tribes. They were the ones whom Yoseif brought before Pharoah, as it is said, “From among his brothers, he took five men,” because they appeared weak, and he would not commission them as his military officers. 
 <b>Rejoice, Zevulun, at your departure, and Yisachar in your tents.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Zevulun and Yisachar entered into a partnership. “Zevulun shall reside at the sea coast”; he departs to engage in maritime trade, gain profit, and provide sustenence for Yissachar, while they remained occupied with Torah study. Zevulun therefore precedes Yissachar, as Yissachar’s Torah was made possible by Zevulun. 
 <b>Rejoice Zevulun at your departure.</b> Gain success when you depart to engage in trade.
 <b>And Yissachar.</b> Gain success when you remain in your tents studying Torah, convening to decide on the leap year, and fix the months, as it is said, “Of the sons of Yissachar, profoundly knowledgeable in [fixing] the times, etc.” Their leaders, two hundred chief justices of the Sanhedrin, were occupied with this. Based on their arrangement of the time [divisions] and of the leap year — 
@@ -119,7 +119,7 @@
 <b>Is concealed.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>That plot is concealed, hidden from all creatures, as it is said, “and no man knows his burial place.” 
 <b>He marched.</b> Gad.
 <b>At the head of the people.</b> They marched at the front ranks of the armed forces when the land was conquered, since they were great warriors, as it is said, “You shall cross as the armed force before your brothers.” 
-<b>He acted righteously before Hachem.</b> As they were faithful to their word, and kept their promise to cross the Yardein until they conquered and distributed [the land]. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation: “He came” — Moshe. “At the head of the people,” “He acted righteously before Hachem” — this refers to Moshe. 
+<b>He acted righteously before Adonoy.</b> As they were faithful to their word, and kept their promise to cross the Yardein until they conquered and distributed [the land]. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation: “He came” — Moshe. “At the head of the people,” “He acted righteously before Adonoy” — this refers to Moshe. 
 
 ### passuk 22
 <b>Don is a lion cub.</b> He, too, was near the border, and is therefore compared to lions. 
@@ -157,7 +157,7 @@
 
 ### passuk 29
 <b>You are fortunate, Yisroel.</b> After blessing them specifically, he said to them, ‘Why must I be specific with you? The general theme is, everything is yours.’ 
-<b>You are fortunate Yisroel, who can compare to you?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Your salvation is in Hachem, who is the shield of your aid and the sword of your glory. 
+<b>You are fortunate Yisroel, who can compare to you?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Your salvation is in Adonoy, who is the shield of your aid and the sword of your glory. 
 <b>Your enemies will prevaricate to you.</b> For example, the Givonites, who said, “Your servants have come from a distant land, etc.” 
 <b>While you tread on their high places.</b> As it is said, “Place your feet on the necks of these kings.” 
 

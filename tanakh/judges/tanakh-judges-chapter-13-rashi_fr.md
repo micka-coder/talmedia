@@ -6,10 +6,10 @@
 ### passuk 3
 
 ### passuk 4
-<b>Vin fraîchement pressé ou vin enivrant</b> Vin fraîchement pressé ou vin âgé.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
+<b>Vin fraîchement pressé ou vin enivrant</b> Vin fraîchement pressé ou vin vieilli.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
 
 ### passuk 5
-<b>Le rasoir [lit. rabatteur].</b> Le rasoir, lorsqu'il rabat et jette le poil.
+<b>Le rasoir [lit. flinger].</b> Le rasoir, lorsqu'il jette et rejette le poil.
 
 ### passuk 6
 
@@ -27,7 +27,7 @@
 <b>Du côté de sa femme.</b> Suivant ses conseils.
 
 ### passuk 12
-<b>Quels règlements devons-nous suivre avec le garçon ? Comment devons-nous le traiter ?</b> Ce qu'il convient de faire de manière appropriée avec le garçon, ce que nous devons faire avec lui ?<sup>3</sup><i class="footnote">Targum Yonathan. La question n'était pas de savoir ce que le garçon doit faire, mais ce que nous devons faire avec lui.</i>
+<b>Quels règlements devons-nous suivre avec le garçon ? Comment devons-nous le traiter ?</b> Que doit-on faire de manière appropriée avec le garçon, que doit-on faire avec lui ?<sup>3</sup><i class="footnote">Targum Yonasan. La question n'était pas de savoir ce que le garçon doit faire, mais ce que nous devons faire avec lui.</i>
 
 ### passuk 13
 

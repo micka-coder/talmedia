@@ -5,7 +5,7 @@
 <b> Charoshes Hogoyim.</b> The name of a city, so entitled because it was a stronghold, and the seat of authority.<sup>1</sup><i class="footnote">This is based on Targum Yonasan, who translates <span>חֲרֹשֶׁת הַגּוֹיׅם</span> as “the stronghold, metropolis of nations”.</i>
 
 ### passuk 3
-<b> Oppressed the Bnei Yisroel intensely.</b> R' Tanchuma expounded, through ridicule. Similarly, it is said, "Your remarks offend me intensely."<sup>2</sup><i class="footnote">Malachi, 3:13. Vs. 14, 15 there define the offensive remarks as ridicule of the worship of Hachem.</i>
+<b> Oppressed the Bnei Yisroel intensely.</b> R' Tanchuma expounded, through ridicule. Similarly, it is said, "Your remarks offend me intensely."<sup>2</sup><i class="footnote">Malachi, 3:13. Vs. 14, 15 there define the offensive remarks as ridicule of the worship of Adonoy.</i>
 
 ### passuk 4
 <b> The wife of Lapidos.</b> She fashioned wicks for the sanctuary.<sup>3</sup><i class="footnote">Megilah, 14:a. <span>לַפּׅיד</span> is translated as “torch”.</i>

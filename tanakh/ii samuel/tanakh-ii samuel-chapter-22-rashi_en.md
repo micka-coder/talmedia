@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>On the day Hachem saved him.</b> In his old age after all his troubles had passed and he had survived all of them.
+<b>On the day Adonoy saved him.</b> In his old age after all his troubles had passed and he had survived all of them.
 <b>And from the hands of Shaul.</b> Shaul was part of the general grouping [of "his enemies"]?<sup>1</sup><i class="footnote">I.e. Why is he being singled out?</i> but he was his greatest enemy and pursuer. Similarly [we find], "Nineteen men and Asohel<sup>2</sup><i class="footnote">Earlier in 2:30. where Asohel is singled out because he was equal to all of them as Rashi points out there.</i> Similarly, "Go spy out the land and Yericho."<sup>3</sup><i class="footnote">Yehoshua 2:1.</i> And similarly, "King Shlomo loved [many] foreign women and [he loved] the daughter of Pharoah."<sup>4</sup><i class="footnote">Melochim I, 11:1.</i>
 
 ### passuk 2
@@ -14,7 +14,7 @@
 <b>My Refuge.</b> I would run to him for protection.
 
 ### passuk 4
-<b>I call to Hachem in praise.</b> As it is translated, when I called Him, I praised Him (with my mouth) because I trusted that I would be saved from my enemies. And it is possible to interpret the words <span>אֶקְרָא</span> and <span>אִוׇּשֵׁעַ</span> as being used in the present tense.
+<b>I call to Adonoy in praise.</b> As it is translated, when I called Him, I praised Him (with my mouth) because I trusted that I would be saved from my enemies. And it is possible to interpret the words <span>אֶקְרָא</span> and <span>אִוׇּשֵׁעַ</span> as being used in the present tense.
 
 ### passuk 5
 <b>Surrounded me.</b> Surrounded me.
@@ -91,7 +91,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>The word of Hachem is clear.</b> It is clear, He makes promises and keeps them.
+<b>The word of Adonoy is clear.</b> It is clear, He makes promises and keeps them.
 
 ### passuk 32
 
@@ -119,7 +119,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>They cried out there was no one to deliver them.</b> The words of verse are not written in order [the proper order should be] "They will cry out to Hachem but He will not answer them and no one will deliver them"<sup>27</sup><i class="footnote">The two words <span>ואין מושיע</span> need to be removed from their position at the beginning of the verse and placed instead at the end of the verse as its last two words.</i> as [we find], "Man will turn to his Maker",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> as if to say "turn".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> means “turn to.”</i> Menachem connected [the word <span>יִשְׁעֶה</span>] with [the verse,] "Hachem listened to Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4.</i> and he [Menachem] interpreted it as "listening." This word can be used to denote both the listener and the listened to as [we find], "Yitzchak implored Hachem… and Hachem listened to him."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> So too here "They will implore [God] and they will not be saved"<sup>32</sup><i class="footnote">In our verse.</i> is a case where the word <span>יִשְׁעוּ</span> is refering to the one praying and "Hachem listened…"<sup>33</sup><i class="footnote">By Hevel’s offering.</i> is a case where the word is refering to the [Holy] One being prayed to.
+<b>They cried out there was no one to deliver them.</b> The words of verse are not written in order [the proper order should be] "They will cry out to Adonoy but He will not answer them and no one will deliver them"<sup>27</sup><i class="footnote">The two words <span>ואין מושיע</span> need to be removed from their position at the beginning of the verse and placed instead at the end of the verse as its last two words.</i> as [we find], "Man will turn to his Maker",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> as if to say "turn".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> means “turn to.”</i> Menachem connected [the word <span>יִשְׁעֶה</span>] with [the verse,] "Adonoy listened to Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4.</i> and he [Menachem] interpreted it as "listening." This word can be used to denote both the listener and the listened to as [we find], "Yitzchok implored Adonoy… and Adonoy listened to him."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> So too here "They will implore [God] and they will not be saved"<sup>32</sup><i class="footnote">In our verse.</i> is a case where the word <span>יִשְׁעוּ</span> is refering to the one praying and "Adonoy listened…"<sup>33</sup><i class="footnote">By Hevel’s offering.</i> is a case where the word is refering to the [Holy] One being prayed to.
 
 ### passuk 43
 <b>I will trample them.</b> I will trample them. There are many cases like this in the book of Yechezkiel, [such as] "You will trample with your feet"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [and] "You trampled with [your] foot."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>
@@ -138,7 +138,7 @@
 <b>From [the agony of] their imprisonment.</b> From the tortures of imprisonment that I will inflict upon them.
 
 ### passuk 47
-<b>Hachem lives.</b> Who does all of this for me.
+<b>Adonoy lives.</b> Who does all of this for me.
 
 >Credit : sefaris
 >License : CC-BY

@@ -5,12 +5,12 @@
 <b>Et la Judée</b> Et le peuple de Judée est retourné, chacun dans sa ville.
 
 ### passuk 2
-<b>[Ceux] qui sont venus</b> ces gens de la province, au début, quand ils sont allés en exil d'Israël à Babylone avec Zerubbabel, etc.
-<b>Mispar...le nombre</b> Heb.  מִסְפָּר. [Ce mot apparaît deux fois dans ce verset.] Dans la première, le "pay" est voyellé avec un "kamatz", et c'est le nom d'un homme ; dans la seconde, le "pay" est voyellé avec un "pattah", et c'est l'état construit, [c'est-à-dire le nombre de].
-<b>Les hommes importants du peuple d'Israël</b> Il s'agissait des personnes grandes et importantes, et les autres les suivaient. Par conséquent, ils ont été comptés après eux séparément.
+<b>[Ceux] qui sont venus</b> ces gens de la province, au début, quand ils sont partis en exil d'Israël à Babylone avec Zerubbabel etc.
+<b>Mispar...le nombre</b> Heb. מִסְפָּר. [Ce mot apparaît deux fois dans ce verset] Dans le premier, le "pay" est voyellisé avec un "kamatz", et c'est le nom d'un homme ; dans le second, le "pay" est voyellisé avec un "pattah", et c'est l'état de construction, [c'est-à-dire le nombre de].
+<b>Les hommes importants du peuple d'Israël</b> C'étaient les grands et les importants, et les autres les suivaient. Par conséquent, ils ont été comptés après eux séparément.
 
 ### passuk 3
-<b>Les enfants de Parosh, etc.</b> Il y en a dans le chapitre pour lesquels le nom du père est utilisé pour le nom de famille [patronyme] et il y en a qui sont appelés par le nom de leur lieu, c'est-à-dire "les enfants de tel ou tel lieu".
+<b>Les enfants de Parosh, etc.</b> Il y en a dans le chapitre pour lesquels le nom du père est utilisé pour le nom de famille [patronyme] et il y en a qui sont appelés par le nom de leur lieu, c'est-à-dire "les enfants de tel ou tel lieu."
 
 ### passuk 4
 
@@ -77,7 +77,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Les prêtres : les enfants de Jedaiah</b> Jusqu'ici, il comptait les enfants de Juda et de Benjamin, et dorénavant il compte les prêtres et les lévites, comme il le dit plus haut (1:5) : "Ainsi, les chefs des familles de Juda et de Benjamin, les prêtres et les lévites se levèrent.....
+<b>Les prêtres : les enfants de Jedaïa</b> Jusqu'ici, il comptait les enfants de Juda et de Benjamin, et désormais il compte les prêtres et les lévites, comme il le dit plus haut (1:5) : "Ainsi les chefs des familles de Juda et de Benjamin, les prêtres et les lévites se levèrent...."
 
 ### passuk 37
 
@@ -131,7 +131,7 @@
 <b>et leurs enfants</b> [c'est-à-dire les enfants] de leurs pères, parce qu'ils avaient perdu leurs registres généalogiques et ne savaient pas s'ils étaient Israélites.
 
 ### passuk 60
-<b>Les enfants de Delaiah</b> Eux aussi sont inclus dans "ce sont ceux qui sont montés de Tel-Mela".
+<b>Les enfants de Delaiah</b> Eux aussi sont inclus dans "ce sont ceux qui sont montés de Tel- Melah".
 
 ### passuk 61
 <b>Qui ont pris</b> Chacun des fils de Barzillai le Galaadite a pris une femme.
@@ -139,18 +139,18 @@
 
 ### passuk 62
 <b>Ceux-ci</b> en faisant référence aux prêtres, qui devaient retracer leur lignée avec cet enregistrement, et qui ne trouvaient pas l'enregistrement de leur lignée.
-<b>Et ils furent disqualifiés</b> Héb.  וַיְגאַלוּ, car ils furent souillés et purgés de la prêtrise afin qu'ils n'accomplissent plus le service avec les prêtres restants, parce que leur registre généalogique ne fut pas trouvé.
+<b>Et ils furent disqualifiés</b> Heb. וַיְגאַלוּ, car ils furent souillés et purgés de la prêtrise afin de ne plus accomplir le service avec les prêtres restants, parce que leur registre généalogique ne fut pas trouvé.
 
 ### passuk 63
-<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Néh. 8:9), et nos sages ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (הָתֵּר) de boire (שָּׁתָּא) le vin des gentils parce qu'il était le majordome du roi.
+<b>Hattirshatha</b> C'est Néhémie, le fils de Hachaliah (Neh. 8:9), et nos rabbins ont dit (Yerushalmi Kid. 4:1) qu'il a été nommé Hattirshatha parce que les Sages lui ont permis (הָתֵּר) de boire (שָּׁתָּא) le vin des gentils parce qu'il était le majordome du roi.
 <b>Des sacrifices très saints</b> des sacrifices de péché et des sacrifices de culpabilité, comme les autres prêtres.
-<b>Jusqu'à ce qu'un prêtre se lève, etc.</b> comme une personne qui dit à son ami : "Tant que le Messie ne viendra pas, cette affaire ne se réalisera pas".Je ne peux pas l'interpréter comme signifiant : jusqu'à ce qu'un prêtre se lève pour l'Urim et le Tumim dans le Second Temple, car nous trouvons dans Yoma, chapitre 1 (21b) que l'Urim et le Tumim manquaient dans le Second Temple.
+<b>Jusqu'à ce que surgisse un prêtre, etc.</b> comme une personne qui dit à son ami : "Jusqu'à ce que le Messie vienne, cette affaire ne se réalisera pas." Je ne peux pas l'interpréter comme signifiant : jusqu'à ce qu'un prêtre se présente pour l'Urim et le Tumim dans le Second Temple, car nous trouvons dans Yoma, chapitre 1 (21b) que l'Urim et le Tumim manquaient dans le Second Temple.
 
 ### passuk 64
-<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. Ainsi est-il expliqué dans le Seder Olam (ch. 29) : L'ensemble de la congrégation était de quarante-deux mille etc.' Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montés des autres tribus.'
+<b>Toute l'assemblée réunie</b> Quand ils étaient tous réunis avec les prêtres, les Lévites et les Néthinim, ils s'élevaient à ce nombre ; et les Enfants d'Israël comptés ci-dessus étaient de la tribu de Juda et de Benjamin, et ceux qui manquent à ce nombre, que vous ne trouverez pas ci-dessus, étaient des autres tribus. C'est ainsi qu'il est expliqué dans le Seder Olam (ch. 29) : "'Toute l'assemblée était composée de quarante-deux mille personnes, etc. Mais si on les additionne, ils ne sont que trente mille. Où sont les treize mille ? Ils sont montés des autres tribus."
 
 ### passuk 65
-<b>A part leurs esclaves et leurs servantes</b> qui n'étaient pas inclus dans la congrégation.
+<b>En dehors de leurs esclaves et de leurs servantes</b> qui n'étaient pas inclus dans la congrégation.
 <b>Et ils avaient deux cents chanteurs et chanteuses</b> parce qu'ils montaient joyeusement de Babylone vers le pays d'Israël, ils exigeaient des chanteurs et des chanteuses afin qu'ils se promènent parmi eux dans leur grande joie.
 
 ### passuk 66
@@ -162,8 +162,8 @@
 
 ### passuk 69
 <b>Selon leur capacité</b> selon leur capacité et leur argent.
-<b>drachmes</b> Heb.  דַּרְכְּמוֹנִים, nom d'une pièce de monnaie en or.
-<b>et des tuniques de prêtres'</b> dans lesquelles ils servent.
+<b>drachmes</b> Heb. דַּרְכְּמוֹנִים, le nom d'une pièce de monnaie en or.
+<b>et des tuniques de prêtres</b> dans lesquelles on sert.
 
 >Crédit : sefaris
->License : CC-BY
+>Licence : CC-BY

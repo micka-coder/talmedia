@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b> Only so that they should know.</b> For this alone, He permitted these nations to remain, so that future generations of the Bnei Yisroel might grasp the consequence of iniquity—for it was now necessary for them to undergo martial training.
-<b>Whereas earlier</b> when they stood worshiping Hachem.
+<b>Whereas earlier</b> when they stood worshiping Adonoy.
 <b>This was unknown.</b> These wars and the art of battle. It was unnecessary.
 
 ### passuk 3
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b> The Divine spirit visited him.</b> R' Tanchuma expounded: He studied the statement of the Holy One, blessed is He, to Moshe in Mitzrayim, "I have surely seen (lit. 'seeing, I have seen') the tribulation of my people."<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> What are the two sights?<sup>2</sup><i class="footnote">‘Seeing’ I have ‘seen’.</i> He said to him, "I see that they are destined to err with the golden calf—nevertheless, 'I have seen the tribulation of my people.'" Asniel expounded upon this, saying, whether innocent or guilty, He is obliged to save them.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Accordingly, “He judged Yisroel” in our passage does not refer to Asniel’s adjudication of litigation in the courtroom, but to his exposition of “I have seen” in his prayer before Hachem. In his “judgement”, Yisroel was to be saved. (Radal there, 5)</i>
+<b> The Divine spirit visited him.</b> R' Tanchuma expounded: He studied the statement of the Holy One, blessed is He, to Moshe in Mitzrayim, "I have surely seen (lit. 'seeing, I have seen') the tribulation of my people."<sup>1</sup><i class="footnote"> Shemos, 3:7.</i> What are the two sights?<sup>2</sup><i class="footnote">‘Seeing’ I have ‘seen’.</i> He said to him, "I see that they are destined to err with the golden calf—nevertheless, 'I have seen the tribulation of my people.'" Asniel expounded upon this, saying, whether innocent or guilty, He is obliged to save them.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Accordingly, “He judged Yisroel” in our passage does not refer to Asniel’s adjudication of litigation in the courtroom, but to his exposition of “I have seen” in his prayer before Adonoy. In his “judgement”, Yisroel was to be saved. (Radal there, 5)</i>
 
 ### passuk 11
 

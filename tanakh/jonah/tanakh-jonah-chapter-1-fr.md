@@ -6,13 +6,13 @@ La parole de l’Éternel fut adressée à Jonas, fils d’Amittaï, en ces term
 "Lève-toi! Va à Ninive, la grande ville, et prophétise contre elle; car leur iniquité est arrivée jusqu’à moi."
 
 ### passuk 3
-Mais Jonas se leva pour fuir à Tarsis, hors de la présence de l’Éternel; il se rendit à Jaffa, où il trouva un vaisseau en partance pour Tarsis. Il paya le passage et s’y embarqua pour aller avec eux à Tarsis, loin de la présence de l’Éternel.
+Mais Jonas se leva pour fuir à Tarsis, hors de la présence de l’Éternel; il se rendit à Jaffa, où il trouva un récipient en partance pour Tarsis. Il paya le passage et s’y embarqua pour aller avec eux à Tarsis, loin de la présence de l’Éternel.
 
 ### passuk 4
-Or, l’Éternel suscita un vent violent sur la mer et une grande tempête s’y éleva; le vaisseau pensa se briser.
+Or, l’Éternel suscita un vent violent sur la mer et une grande tempête s’y éleva; le récipient pensa se briser.
 
 ### passuk 5
-Les matelots prirent peur, et chacun d’invoquer son Dieu. Ils jetèrent à la mer les objets qui se trouvaient sur le vaisseau afin de l’alléger. Pour Jonas, il était descendu au fond du navire, s’y était couché et profondément endormi.
+Les matelots prirent peur, et chacun d’invoquer son Dieu. Ils jetèrent à la mer les objets qui se trouvaient sur le récipient afin de l’alléger. Pour Jonas, il était descendu au fond du navire, s’y était couché et profondément endormi.
 
 ### passuk 6
 Le commandant de l’équipage s’approcha de lui et lui dit: "Que fais-tu là, dormeur? Debout! Invoque ton Dieu, peut-être ce Dieu-là s’ingéniera-t-il en notre faveur, de sorte que nous ne périrons pas."

@@ -8,8 +8,8 @@
 
 ### passuk 3
 <b>blanc</b> Pour faire monter la Perse, et la Perse a construit le Temple.
-<b>Taches</b> Ils sont tachetés. [Leur fonction est] d'amener la Grèce à monter, [comme la Grèce] a opprimé Israël par diverses sortes de décrets...
-<b>Couleur de cendre</b> pour faire monter Edom et Ismaël, mais je ne connais pas l'expression - . Jonathan a rendu : couleur de cendre.
+<b>Taches</b> Ils sont tachetés. [Leur fonction est] de faire monter la Grèce, [car la Grèce] a opprimé Israël par des décrets de diverses sortes...
+<b>Couleur de cendre</b> pour faire monter Edom et Ismaël, mais je ne connais pas l'expression אֲמֻצִּים. Jonathan a rendu : couleur cendrée.
 
 ### passuk 4
 
@@ -20,26 +20,26 @@
 ### passuk 6
 <b>Le seul [char] dans lequel se trouvaient les chevaux noirs allait au pays du nord</b> pour faire monter les Médias. Concernant les rouges, il n'écrit pas qu'ils partaient car le royaume de Babylone avait déjà été détruit.
 <b>Et les blancs sont sortis après eux</b> pour que la Perse les monte tous les deux, au nord, et ils ont régné sur Babylone.
-<b>Et les tachetés sortirent dans le sud</b> pour faire monter la Grèce afin que celle-ci prenne le royaume de la Perse. Dans l'interprétation de Daniel par Rav Saadiah, le roi du sud (11:5) est identifié avec le roi de Grèce.
+<b>Et les tachetés sortirent vers le sud</b> pour faire monter la Grèce afin que celle-ci prenne le royaume de la Perse. Dans l'interprétation de Daniel par Rav Saadiah, le roi du sud (11:5) est identifié avec le roi de Grèce.
 
 ### passuk 7
-<b>Et ceux qui étaient de couleur cendrée sortirent et le supplièrent</b> d'avoir un très long règne, pour aller par toute la terre.
+<b>Et ceux de couleur cendrée sortirent et le supplièrent</b> d'avoir un très long règne, pour aller par toute la terre.
 <b>Et Il dit : "Allez, marchez de long en large sur la terre"</b> Il leur donna la permission de régner sur un grand règne, et c'est le royaume d'Edom.
 
 ### passuk 8
 <b>Regardez, ceux qui vont vers le pays du nord</b> pour faire monter Media et Perse.
-<b>Assurent mon esprit</b> Ils ont fait en sorte que ma colère s'apaise à Babylone lorsqu'ils ont détruit Belshazzar et les descendants de Nebuchadnezzar. C'est ce que dit Isaïe (48:14) : "Le Seigneur aime celui qui fera Sa volonté à Babylone, etc.
+<b>Assurent mon esprit</b> Ils ont fait en sorte que ma colère s'apaise à Babylone lorsqu'ils ont détruit Belshazzar et les descendants de Nebuchadnezzar. C'est ce que dit Isaïe (48:14) : "Le Seigneur aime celui qui fera Sa volonté à Babylone, etc."
 
 ### passuk 9
 
 ### passuk 10
-<b>Prenez aux exilés - aux Heldai, etc., qui sont venus de Babylone</b> Tous ces gens.
+<b>Prenez aux exilés - aux Heldai, etc., venus de Babylone</b> Tous ces gens.
 
 ### passuk 11
 
 ### passuk 12
-<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : "Voici, je fais venir mon serviteur, le Pousseur", car sa grandeur s'est accrue petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
-<b>Qui surgira de son lieu</b> De descendance royale.
+<b>Dont le nom est le Tir</b> Il s'agit de Zerubbabel, mentionné plus haut (3:8) : "Voici que je fais venir mon serviteur, le Pousseur", car sa grandeur s'est développée petit à petit. Certains interprètent cela comme faisant référence au Roi Messie, mais tout le contexte traite de [l'époque du] Second Temple.
+<b>Qui jaillira de son lieu</b> De descendance royale.
 
 ### passuk 13
 <b>Et il portera la gloire</b> La gloire de la royauté.

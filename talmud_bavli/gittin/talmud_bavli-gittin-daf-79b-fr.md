@@ -18,7 +18,7 @@ La Guemara commente : <b>Ce n'est pas le cas en ce qui concerne les paniers. </b
 <b>Quelle est la raison</b> de cette situation ? C'est <b>parce que</b> l'acte de divorce n'a <b>pas</b> encore <b>reposé</b> dans le panier, et dans ce cas, les parois du panier extérieur ne desservent pas le panier intérieur.
 
 ### Partie 7
-La Guemara demande : <b>Et quand il repose</b> dans le panier, <b>qu'en est-il ? </b> Ils <b>sont</b> comme les <b>vaisseaux d'un acheteur dans le domaine du vendeur,</b> puisque son panier est dans son panier, qui est son domaine. Elle ne peut pas acquérir l'acte de divorce, malgré le fait qu'il soit dans son panier, puisqu'il est dans son domaine.
+La Guemara demande : <b>Et quand il repose</b> dans le panier, <b>qu'en est-il ? </b> Ils <b>sont</b> comme les <b>récipientx d'un acheteur dans le domaine du vendeur,</b> puisque son panier est dans son panier, qui est son domaine. Elle ne peut pas acquérir l'acte de divorce, malgré le fait qu'il soit dans son panier, puisqu'il est dans son domaine.
 
 ### Partie 8
 La Gemara répond : <b>A quoi avons-nous affaire ici ? D'un panier qui n'a pas de fond,</b> et par conséquent le panier intérieur repose sur le sol et non à l'intérieur du panier extérieur. Par conséquent, une fois que l'acte de divorce atterrit à l'intérieur du panier intérieur, elle est effectivement divorcée.

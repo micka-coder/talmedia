@@ -21,25 +21,25 @@
 <b>To find favor in your eyes.</b> That I am at peace with you and seek your love.
 
 ### passuk 7
-<b>We came to your brother, to Essav.</b> [The one] that you said, “He is my brother” but he, nevertheless, acts towards you as the wicked Essav; he is still harboring his hatred. 
+<b>We came to your brother, to Eisov.</b> [The one] that you said, “He is my brother” but he, nevertheless, acts towards you as the wicked Eisov; he is still harboring his hatred. 
 
 ### passuk 8
 <b>Frightened and distressed.</b> וַיִּירָא [he feared] lest he be killed. וַיֵּצֶר לוֹ [he was distressed] that he might kill others. 
 
 ### passuk 9
 <b>To one camp and attacks it.</b>. מַחֲנֶה is grammatically used as male and female. “If a camp should encamp [תַּחֲנֶה] against me,” is the feminine form. “This [הַזֶּה] camp,” is the male form. There are also other words that can be either masculine or feminine. [An example שֶׁמֶשׁ :] “The sun rose [יָצָא] upon the earth.” [Also in the verse:] “From one end of the sky is its rising [מוֹצָאוֹ],” which are masculine [יָצָא and מוֹצָאוֹ being masculine], [whereas:] “The sun shone [זָרְחָה] upon the waters,” which is feminine. The same [holds true concerning the word] רוּחַ : “Behold a great wind is coming [בָּאָה].” [בָּאָה] being the feminine form, [whereas:] “And it [the wind] touched [וַיִּגַּע] the four corners of the house,” [וַיִּגַּע] is in the masculine form. “And a great [גְּדוֹלָה] and a strong [וְחָזָק] wind takes apart mountains.” Here it is both masculine [וְחָזָק] <i>and</i> feminine [גְּדוֹלָה]. Similarly אֵש [is both masculine and feminine]. “A fire came forth [יָצְאָה] from God,” [יָצְאָה] is in the feminine form, [whereas:] “A flaming [לוֹהֵט] fire,” [לוֹהֵט] is in the masculine form. 
-<b>The remaining camp will survive.</b> Against his [Essav’s] will because I will do battle with him. He [Yaakov] prepared himself for three things, for the giving of a gift, for prayer and for war: For the giving of a gift, [as it says:] “The present passed on ahead of him.” For prayer, [as it says:] “The God of my father Avraham.” For war, [as it says:] “The remaining camp will survive.” 
+<b>The remaining camp will survive.</b> Against his [Eisov’s] will because I will do battle with him. He [Yaakov] prepared himself for three things, for the giving of a gift, for prayer and for war: For the giving of a gift, [as it says:] “The present passed on ahead of him.” For prayer, [as it says:] “The God of my father Avraham.” For war, [as it says:] “The remaining camp will survive.” 
 
 ### passuk 10
-<b>And God of my father Yitzchak.</b> Whereas elsewhere he says “the Fear of Yitzchak.” And, furthermore, why does he go on to repeat the Tetragrammaton [ה' הָאוֹמֵר אֵלַי]? It should have been written, “Who said to me ‘return.’” But, this is what Yaakov was saying to God: “You made two promises to me—one, when I left my father’s house from Beer Sheva when You said to me, ‘I am Hachem, God of Avraham, your father, and God of Yitzchak,’ and, there You said to me, ‘I will guard you wherever you go,’ and, in Lavan’s house You said to me, ‘Return to the Land of your fathers, and to your birthplace, and I will be with you.’ And there You revealed Yourself to me only with the Proper Name [Tetragrammaton] as it is said, ‘And Hachem said to Yaakov, “Return to the land of your fathers,’” etc. [It is based] upon these two promises [that] I came before You.” 
+<b>And God of my father Yitzchok.</b> Whereas elsewhere he says “the Fear of Yitzchok.” And, furthermore, why does he go on to repeat the Tetragrammaton [ה' הָאוֹמֵר אֵלַי]? It should have been written, “Who said to me ‘return.’” But, this is what Yaakov was saying to God: “You made two promises to me—one, when I left my father’s house from Beer Sheva when You said to me, ‘I am Adonoy, God of Avraham, your father, and God of Yitzchok,’ and, there You said to me, ‘I will guard you wherever you go,’ and, in Lavan’s house You said to me, ‘Return to the Land of your fathers, and to your birthplace, and I will be with you.’ And there You revealed Yourself to me only with the Proper Name [Tetragrammaton] as it is said, ‘And Adonoy said to Yaakov, “Return to the land of your fathers,’” etc. [It is based] upon these two promises [that] I came before You.” 
 
 ### passuk 11
-<b>I am unworthy because of all the kindness.</b> [Meaning:] “My merits have diminished because of the kindnesses and truth that You have done with me. I am afraid for the following reason: Lest from the time you made me the promises I have become tainted by sin which will cause me to be delivered into Essav’s hand.”
+<b>I am unworthy because of all the kindness.</b> [Meaning:] “My merits have diminished because of the kindnesses and truth that You have done with me. I am afraid for the following reason: Lest from the time you made me the promises I have become tainted by sin which will cause me to be delivered into Eisov’s hand.”
 <b>And of all the faithfulness.</b> [Meaning:] “Making Your words come true—[i.e.,] that You have kept all the promises that You have promised me.” 
 <b>For with my staff.</b> “I had with me neither silver nor gold nor cattle—only my staff itself.” The Midrashic explanation is: He placed his staff into the Jordan [River] and the Jordan split [so that he could cross].
 
 ### passuk 12
-<b>From the hand of my brother, from the hand of Essav.</b> [Meaning:] “From the hand of my brother who does not act towards me as a brother but as the wicked Essav.” 
+<b>From the hand of my brother, from the hand of Eisov.</b> [Meaning:] “From the hand of my brother who does not act towards me as a brother but as the wicked Eisov.” 
 
 ### passuk 13
 <b>I will do very good.</b> [I.e.,] doing good on account of your own merits, and I will do good on account of your fathers’ merits. 
@@ -58,7 +58,7 @@
 ### passuk 17
 <b>Each herd by itself.</b> [I.e.,] each species separately. 
 <b>Pass on ahead of me.</b> A distance of one day or less and I will follow behind you.
-<b>And keep a space.</b> One herd was ahead of the other as far as the eye can see. [Yaakov did this] so that the eye of the wicked man [Essav] be satisfied, and to amaze him with the immensity of the gift. 
+<b>And keep a space.</b> One herd was ahead of the other as far as the eye can see. [Yaakov did this] so that the eye of the wicked man [Eisov] be satisfied, and to amaze him with the immensity of the gift. 
 
 ### passuk 18
 <b>To whom do you belong?</b> [Meaning] <i>of</i> whom are you? [i.e.,] “Who has sent you?” [as] Onkelos translates it דְּמָאן אַתְּ —whose are you?. 
@@ -77,7 +77,7 @@
 <b>Ahead of him.</b> עַל פָּנָיו has the same meaning as לְפָנָיו —before him. Similarly: “Robbery and violence are heard in her before me, constantly.” Similarly: “Those who anger Me before Me.” The Midrashic explanation of עַל פָּנָיו [is] he [Yaakov] was also angry that he had to resort to all this. 
 
 ### passuk 23
-<b>And his eleven children.</b> But, where wasDinah? She had been placed in a box and locked in so that Essav could not set eyes on her. Yaakov was thus punished for withholding her from his brother because she might have turned him to good, and she [consequently] fell into the hands of Shechem. 
+<b>And his eleven children.</b> But, where was Deenah? She had been placed in a box and locked in so that Eisov could not set eyes on her. Yaakov was thus punished for withholding her from his brother because she might have turned him to good, and she [consequently] fell into the hands of Shechem. 
 <b>Yabbok.</b> [יַבֹּק] is the name of the river.
 
 ### passuk 24
@@ -85,7 +85,7 @@
 
 ### passuk 25
 <b>Yaakov remained.</b> He had forgotten some small jars and he returned for them.
-<b>A man wrestled.</b> Menachem explained it: a man became covered with dirt, [וַיִּתְעַפֵּר] meaning אָבָק —dust, because they were kicking up dirt with their feet as a result of their movement [while struggling]. To me, however, it seems that it stems from וַיִּתְקַשֵּׁר —he attached himself and it [וַיֵּאָבֵק] is of Aramaic origin [as in] “After they became [דַאֲבִיקוּ] attached in it,” [or] “He [וַאֲבֵיק] attached it with loops, [מֵיבַק] meaning a loop. For it is the way of two who struggle for one person to throw the other down, then he grasps him and entwines him in his arms. Our Sages have explained that this was Essav’s guardian angel. 
+<b>A man wrestled.</b> Menachem explained it: a man became covered with dirt, [וַיִּתְעַפֵּר] meaning אָבָק —dust, because they were kicking up dirt with their feet as a result of their movement [while struggling]. To me, however, it seems that it stems from וַיִּתְקַשֵּׁר —he attached himself and it [וַיֵּאָבֵק] is of Aramaic origin [as in] “After they became [דַאֲבִיקוּ] attached in it,” [or] “He [וַאֲבֵיק] attached it with loops, [מֵיבַק] meaning a loop. For it is the way of two who struggle for one person to throw the other down, then he grasps him and entwines him in his arms. Our Sages have explained that this was Eisov’s guardian angel. 
 
 ### passuk 26
 <b>And he struck the socket of his hip.</b> The upper thigh-bone that joins the hip-bone is called the כַּף [lit. ladle] because the flesh which is on it appears like a pot-ladle.
@@ -93,13 +93,13 @@
 
 ### passuk 27
 <b>For the dawn is breaking.</b> And I must sing [God’s] praises by day.
-<b>You bless me.</b> [Meaning:] concede to me the blessings with which my father blessed me, those which Essav has been protesting. 
+<b>You bless me.</b> [Meaning:] concede to me the blessings with which my father blessed me, those which Eisov has been protesting. 
 
 ### passuk 28
 
 ### passuk 29
 <b>No longer . . . Yaakov.</b> [I.e.,] it will no longer be said that the blessings came to you through deceit and trickery, but, rather, with nobility and openness, and, in the end, God will reveal Himself to you in Beis Eil, and change your name, and, there, He will bless you and I, too, will be there and will concede them to you. That is what is written: “He struggled with an angel and prevailed, he cried and pleaded with him” [which means] the angel cried and pleaded with him. What was the matter about which he pleaded? “At Beis Eil He will find us and there He will speak with us,” [which means] “Wait for me until He will speak with us there.” Yaakov refused [to wait] and given no choice he had to concede them to him. That is meant by what is said: “He then blessed him there,” for he pleaded with Yaakov to wait for him but he [Yaakov] did not agree. 
-<b>And with men.</b> [Referring to] Essav and Lavan.
+<b>And with men.</b> [Referring to] Eisov and Lavan.
 <b>And you have won.</b> Over them.
 
 ### passuk 30

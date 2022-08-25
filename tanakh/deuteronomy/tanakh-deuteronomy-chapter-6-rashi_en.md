@@ -6,13 +6,13 @@
 ### passuk 3
 
 ### passuk 4
-<b>Hachem is our God, Hachem is one.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Hachem who is presently our God and not the God of the nations, will in the future be [recognized] as the One God, as is said, “For then I will turn over to the peoples a pure language that they may all call upon the Name of Hachem.” And it is said, “On that day Hachem will be One and His name One.” 
+<b>Adonoy is our God, Adonoy is one.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Adonoy who is presently our God and not the God of the nations, will in the future be [recognized] as the One God, as is said, “For then I will turn over to the peoples a pure language that they may all call upon the Name of Adonoy.” And it is said, “On that day Adonoy will be One and His name One.” 
 
 ### passuk 5
 <b>You are to love.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You are to obey His words (commands) because of your love [for Him]. There is no comparison between one who obeys out of love and one who obeys out of fear. He who obeys (serves) his master out of fear, should the master over burden him, he will leave him and go away. 
 <b>With all your heart.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With your two inclinations. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation, “with all your heart” — your heart should not be fragmented with God. 
 <b>With all your soul.</b> Even if He were to take your soul.
-<b>And with all your possesions.</b> With all your wealth. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>There are men whose wealth is dearer to them than their bodies. It is therefore said, “With all your possessions.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation, “With what ever measure” — with what ever measure He apportions you, whether it is a measure of goodness or a measure of punishment (you must love Him). Similarly did Dovid say: “the cup of deliverance I will raise [and upon the Name, Hachem, I will call]. “Trouble and sorrow I encounter, [and upon the Name, Hachem, I call].” 
+<b>And with all your possesions.</b> With all your wealth. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>There are men whose wealth is dearer to them than their bodies. It is therefore said, “With all your possessions.” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation, “With what ever measure” — with what ever measure He apportions you, whether it is a measure of goodness or a measure of punishment (you must love Him). Similarly did Dovid say: “the cup of deliverance I will raise [and upon the Name, Adonoy, I will call]. “Trouble and sorrow I encounter, [and upon the Name, Adonoy, I call].” 
 
 ### passuk 6
 <b>And these words.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>What is the form of love [you are commanded]? “These words [that I command you today, etc.]” For in this manner you be aware of the Holy One blessed is He, and You will cling to His ways. 
@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>And you shall teach them.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The word שִׁנַנְתָּם is an expression of sharpness, implying that they (words of Torah) should be sharp in your mouth, so that if a person asks you anything about them, you will not need to stammer (hesitate) about it, but tell him (the answer) immediately. 
-<b>To your children.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[In this instance בָנֶיךָ ] refers to the disciples (students). We find everywhere that disciples are referred to as children, as it is said, “You are children of Hachem, your God,” and it says, “the children (disciples) of the prophets who were in Beis Eil.” Similarly in reference to King Chizkiyahu who taught the Torah to all of Yisroel, and he called them children, as it is said, “My children, now, do not be carelessely forgetful.” And even as disciples are called children as it is said, “You are children of Hachem, your God, so too is the <i>Rav</i> (teacher) called father, as it is said, “My father, my father, the chariot of Yisroel, etc.” 
+<b>To your children.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[In this instance בָנֶיךָ ] refers to the disciples (students). We find everywhere that disciples are referred to as children, as it is said, “You are children of Adonoy, your God,” and it says, “the children (disciples) of the prophets who were in Beis Eil.” Similarly in reference to King Chizkiyahu who taught the Torah to all of Yisroel, and he called them children, as it is said, “My children, now, do not be carelessely forgetful.” And even as disciples are called children as it is said, “You are children of Adonoy, your God, so too is the <i>Rav</i> (teacher) called father, as it is said, “My father, my father, the chariot of Yisroel, etc.” 
 <b>And you are to discuss them.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Your main discussions should be only about them. Make them (words of Torah) primary and do not make them of secondary importance.
 <b>When you go to sleep.</b> I might conclude that this means even if you go to sleep in midday, it is therefore stated, “When you arise.” I might then conclude that this means even if you arise in midnight, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>it is therefore stated, “When you sit at home and when you walk on the road”; thus the Torah speaks of the usual way of life, [indicating that בְּשָׁכְבְךָ means] the usual time of sleeping [and בְקוּמֶךָ means] the usual time of rising. 
 
@@ -49,7 +49,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>At Massoh.</b> When they went out of Egypt, it was there that they tested Him regarding water, as it is said, “Is Hachem among us (or not).” 
+<b>At Massoh.</b> When they went out of Egypt, it was there that they tested Him regarding water, as it is said, “Is Adonoy among us (or not).” 
 
 ### passuk 17
 
@@ -57,7 +57,7 @@
 <b>The upright and the good.</b> This refers to compromises beyond what is outlined by the law.
 
 ### passuk 19
-<b>As (Hachem) declared.</b> And where did He so declare? “And I will bring panic to all the people, etc.” 
+<b>As (Adonoy) declared.</b> And where did He so declare? “And I will bring panic to all the people, etc.” 
 
 ### passuk 20
 <b>When your son asks you tomorrow.</b> The word מָחָר (tomorrow) is used sometimes in reference to a distant future.

@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>de</b> celui d'autres éléments <b>consacrés</b> pour <b>l'entretien du temple,</b> par exemple, une maison consacrée, <b>mais on ne dérive pas</b> la <i>halakha</i> en ce qui concerne les éléments <b>consacrés</b> pour l'entretien du <b>Temple de</b> éléments qui sont <b>consacrés</b> pour l'<b>altar,</b> tels que les deux agneaux apportés à <i>Shavuot</i>.
+<b>de</b> celui d'autres éléments <b>consacrés</b> pour <b>l'entretien du temple,</b> par exemple, une maison consacrée, <b>mais on ne dérive pas</b> la <i>halakha</i> en ce qui concerne les éléments <b>consacrés</b> pour l'entretien du <b>Temple de</b> éléments qui sont <b>consacrés</b> pour l'<b>autel,</b> tels que les deux agneaux apportés à <i>Shavuot</i>.
 
 ### Partie 2
 La Guemara objecte : <b>Et que Rabbi Shimon dérive aussi</b> la <i>halakha</i> au moyen d'une analogie verbale <b>de celui qui <b>consacre une maison.</b> Pourquoi n'est-il pas d'accord avec Rabbi Yehouda ? La Guemara explique : <b>On dérive</b> la <i>halakha</i> d'un <b>élément qui</b> est <b>un don aux prêtres,</b> tel qu'un champ ancestral qui est donné aux prêtres pendant l'année jubilaire, <b>de</b> celui d'un autre <b>élément qui est un don aux prêtres,</b> c'est-à-dire, les deux agneaux apportés à <i>Shavuot</i>, <b>mais on ne dérive pas</b> la <i>halakha</i> d'un <b>élément qui est un don aux prêtres de</b> celui d'un <b>élément qui n'est pas un don aux prêtres,</b> c'est-à-dire une maison consacrée.

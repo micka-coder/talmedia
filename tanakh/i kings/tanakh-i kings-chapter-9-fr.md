@@ -78,7 +78,7 @@ Trois fois l’année, Salomon offrait des holocaustes et autres sacrifices sur 
 Le roi Salomon fit aussi construire une flotte à Ecion-Ghéber, qui est près d’Elot, au bord de la mer de Souf, dans le pays d’Edom.
 
 ### passuk 27
-Hiram envoya sur ces vaisseaux ses serviteurs, matelots experts dans la marine, pour aider les serviteurs de Salomon.
+Hiram envoya sur ces récipientx ses serviteurs, matelots experts dans la marine, pour aider les serviteurs de Salomon.
 
 ### passuk 28
 Ils arrivèrent à Ofir et en rapportèrent quatre cent vingt kikkar d’or, qu’ils remirent au roi Salomon.

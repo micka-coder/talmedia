@@ -33,7 +33,7 @@ Quiconque touche à un objet placé sous lui, sera souillé jusqu’au soir; et 
 Quiconque serait touché par celui qui avait le flux et qui n’a pas encore nettoyé ses mains dans l’eau, lavera ses vêtements, se baignera dans l’eau, et restera souillé jusqu’au soir.
 
 ### passuk 12
-Un vaisseau d’argile, touché par celui qui a le flux, sera brisé; un vaisseau de bois, quel qu’il soit, sera nettoyé dans d’eau.
+Un récipient d’argile, touché par celui qui a le flux, sera brisé; un récipient de bois, quel qu’il soit, sera nettoyé dans d’eau.
 
 ### passuk 13
 Quand cet homme sera délivré de sa gonorrhée, il comptera sept jours depuis son rétablissement; puis il lavera ses vêtements, baignera son corps dans une eau vive, et sera pur.

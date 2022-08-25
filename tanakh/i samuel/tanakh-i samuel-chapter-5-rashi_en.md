@@ -25,7 +25,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Deadly upheaval.</b> All upheavals [mentioned in Scripture] are caused by thunder. The following is the origin: "Hachem thundered with a great noise on that day against the Philistines, making them panic.<sup>3</sup><i class="footnote">Below 7:10.</i> It is so explained in the Aggadah of Thirty-Two Rules of R. Eliezer, the son of R. Yose Haglili.
+<b>Deadly upheaval.</b> All upheavals [mentioned in Scripture] are caused by thunder. The following is the origin: "Adonoy thundered with a great noise on that day against the Philistines, making them panic.<sup>3</sup><i class="footnote">Below 7:10.</i> It is so explained in the Aggadah of Thirty-Two Rules of R. Eliezer, the son of R. Yose Haglili.
 
 >Credit : sefaris
 >License : CC-BY

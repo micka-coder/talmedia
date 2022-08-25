@@ -27,7 +27,7 @@
 
 ### passuk 7
 <b>A harlot,</b> [A woman] who has had sexual relations with an Israelite who is forbidden for her to marry, under the penalty of <i>koreis</i> [for doing so], or a נָתִין, or a מַמְזֵר . 
-<b>A profaned woman,</b> [that is, a woman] who was born of a marriage [between a <i>Kohen</i>] and one [forbidden] to the <i>kehunoh</i>, as for example the daughter of a widow [illegally married] to a <i>Kohen Godol</i>, or the daughter of a divorced woman [illegally married] to an ordinary <i>Kohen</i>. So too one who became invalid [for intermarriage] with the <i>kehunoh</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>because she had sexual relations in one of the marriages forbidden to a <i>Kohen</i>. 
+<b>A profaned woman,</b> [that is, a woman] who was born of a marriage [between a <i>kohein</i>] and one [forbidden] to the <i>kehunoh</i>, as for example the daughter of a widow [illegally married] to a <i>Kohein Godol</i>, or the daughter of a divorced woman [illegally married] to an ordinary <i>kohein</i>. So too one who became invalid [for intermarriage] with the <i>kehunoh</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>because she had sexual relations in one of the marriages forbidden to a <i>kohein</i>. 
 
 ### passuk 8
 <b>You shall make him holy —</b> [even] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>against his will, for if he does not wish to divorce [his illegal wife], beat him and punish him until he does divorce [her]. 
@@ -46,8 +46,8 @@
 <b>For his father and his mother he shall not become [ritually] impure.</b> This comes only <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to permit him [to become impure] for a <i>mes mitzvoh</i>.
 
 ### passuk 12
-<b>He shall not depart from the Sanctuary.</b> He does not follow the coffin. Furthermore, our Rabbis learned from here that a <i>Kohen Godol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>may offer [a sacrifice] while he is an <i>onein</i>, and this is its meaning: Even if his father and his mother died, he is not required to leave the Sanctuary, but performs the Temple-service. 
-<b>And he shall not profane. . .the Sanctuary,</b> He does not profane the Temple-service with this, since Scripture permitted him [to remain there]; thus, [we learn,] that an ordinary <i>Kohen</i> who performs [the Temple-service] while he is an <i>onein</i> <i>does</i> profane [it]. 
+<b>He shall not depart from the Sanctuary.</b> He does not follow the coffin. Furthermore, our Rabbis learned from here that a <i>Kohein Godol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>may offer [a sacrifice] while he is an <i>onein</i>, and this is its meaning: Even if his father and his mother died, he is not required to leave the Sanctuary, but performs the Temple-service. 
+<b>And he shall not profane. . .the Sanctuary,</b> He does not profane the Temple-service with this, since Scripture permitted him [to remain there]; thus, [we learn,] that an ordinary <i>kohein</i> who performs [the Temple-service] while he is an <i>onein</i> <i>does</i> profane [it]. 
 
 ### passuk 13
 
@@ -83,7 +83,7 @@
 
 ### passuk 22
 <b>Of the most holy [sacrifices] —</b> these are the most holy sacrifices.
-<b>And from the holy, he may eat.</b> These are the sacrifices of lesser sanctity. If sacrifices of greater sanctity are mentioned, why are sacrifices of lesser sanctity [also] mentioned? If it had not been said, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I would have thought: A blemished person may eat of the most holy sacrifices, since we find that they were permitted to a non-<i>Kohen</i>, [as when] Moshe ate the flesh of the installation-sacrifices. But [I might think] that of the breast and thigh of sacrifices of lesser sanctity he may not eat, since we do not find that a non-<i>Kohen</i> had a part in them — therefore sacrifices of lesser sanctity are mentioned. So is it explained in [the Maseches of] Zevochim. 
+<b>And from the holy, he may eat.</b> These are the sacrifices of lesser sanctity. If sacrifices of greater sanctity are mentioned, why are sacrifices of lesser sanctity [also] mentioned? If it had not been said, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I would have thought: A blemished person may eat of the most holy sacrifices, since we find that they were permitted to a non-<i>kohein</i>, [as when] Moshe ate the flesh of the installation-sacrifices. But [I might think] that of the breast and thigh of sacrifices of lesser sanctity he may not eat, since we do not find that a non-<i>kohein</i> had a part in them — therefore sacrifices of lesser sanctity are mentioned. So is it explained in [the Maseches of] Zevochim. 
 
 ### passuk 23
 <b>However, [he may not enter] beyond the curtain,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to sprinkle seven sprinklings on the curtain. 

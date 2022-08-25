@@ -20,7 +20,7 @@
 ### passuk 6
 
 ### passuk 7
-<b> Of the klan of Yehudah.</b> He was a Levi maternally.<sup>14</sup><i class="footnote">Paternally, he was descended from Yehudah. This explains why he was both “of the klan of Yehudah”, and a Levi.</i> However, the Rabbis<sup>15</sup><i class="footnote">Bava Basra, 109:b.</i> interpret that, because he behaved like Menasheh,<sup>16</sup><i class="footnote">The king who instituted idol worship throughout Eretz Yisroel. (Melachim 2, 21).</i> who was descended from Yehudah, he is described as "of the klan of Yehudah." He was actually a Levi, the son of Gershom, son of our master Moshe, as stated explicitly below, "Yehonasan, son of Gershom, etc."<sup>17</sup><i class="footnote"></i>
+<b> Of the klan of Yehudah.</b> He was a Leivi maternally.<sup>14</sup><i class="footnote">Paternally, he was descended from Yehudah. This explains why he was both “of the klan of Yehudah”, and a Levi.</i> However, the Rabbis<sup>15</sup><i class="footnote">Bava Basra, 109:b.</i> interpret that, because he behaved like Menasheh,<sup>16</sup><i class="footnote">The king who instituted idol worship throughout Eretz Yisroel. (Melachim 2, 21).</i> who was descended from Yehudah, he is described as "of the klan of Yehudah." He was actually a Leivi, the son of Gershom, son of our master Moshe, as stated explicitly below, "Yehonasan, son of Gershom, etc."<sup>17</sup><i class="footnote"></i>
 
 ### passuk 8
 <b> To make his way.</b> The way by which he would journey.

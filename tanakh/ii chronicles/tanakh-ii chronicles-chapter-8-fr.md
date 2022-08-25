@@ -51,7 +51,7 @@ L’œuvre entière de Salomon fut accomplie à ce jour: la fondation de la mais
 Alors Salomon se rendit à Ecion-Ghéber et à Elot, au bord de la mer dans le pays d’Edom.
 
 ### passuk 18
-Houram lui expédia, par ses serviteurs, des vaisseaux et des matelots experts dans la marine, qui se rendirent avec les serviteurs de Salomon à Ophir, d’où ils emportèrent quatre cent cinquante kikkar d’or, qu’ils remirent au roi Salomon.
+Houram lui expédia, par ses serviteurs, des récipientx et des matelots experts dans la marine, qui se rendirent avec les serviteurs de Salomon à Ophir, d’où ils emportèrent quatre cent cinquante kikkar d’or, qu’ils remirent au roi Salomon.
 
 >Credit : fr.wikisource.org (Bible du Rabbinat 1899)
 >License : Public Domain

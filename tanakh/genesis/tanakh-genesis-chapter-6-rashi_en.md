@@ -23,12 +23,12 @@
 ### passuk 5
 
 ### passuk 6
-<b>Hachem was comforted that He had made.</b> It was a comfort to Him that He created him [man] on earth, for had he been one of the heavenly beings he would have caused <i>them</i> to rebel. 
+<b>Adonoy was comforted that He had made.</b> It was a comfort to Him that He created him [man] on earth, for had he been one of the heavenly beings he would have caused <i>them</i> to rebel. 
 <b>And He grieved. </b>The man. <b>In His heart. </b>Of Hashem. [Meaning:] it entered the thought of Hashem to make him grieve. This is according to the translation of Onkelos. An alternate explanation of וַיִּנָּחֶם : Hashem’s thought turned from [applying] Divine Mercy to [applying] Divine Justice. He considered what to do with man that He made upon the earth. Similarly wherever the term נִיחוּם appears in Tanach it means he considered as to what to do. [For example:] “No man that He should reconsider.” “And concerning His servants, may He reconsider.” “Hashem reconsidered doing the terrible things.” “I regret that I have made him King.” All these refer to second thoughts. 
 <b>And He grieved in His heart. </b>[Means:] He mourned the destruction of His handiwork as [in the verse:] “The King mourned his son.” I wrote this in response to heretics. A gentile asked R. Yehoshua b. Korcho and said to him: “Do you not agree that Hashem knows the future?” He [the Rabbi] answered: “Yes.” He said to him: “But, it is written, ‘And it grieved His [Hashem’s] Heart!’” He [the Rabbi] responded to him, “Was a son ever born to you?” “Yes,” he said. “How did you react?” he asked him. He said, “I rejoiced and made everyone joyful.” So he asked him, “But, did you not realize that he would eventually die?” He [the gentile] responded, “At the time of joy let there by joy, at the time of mourning, mourning.” He [the Rabbi] said to him, “So it is with acts of Hashem. Though it is revealed to Him that they will eventually sin and be destroyed, [nevertheless,] He did not refrain from creating them for the sake of the righteous that were destined to descend from them.” 
 
 ### passuk 7
-<b>Hachem said, I will obliterate mankind.</b> “He is of dirt. I will bring water upon him and I will obliterate him. Therefore the term מִחוּי is used.
+<b>Adonoy said, I will obliterate mankind.</b> “He is of dirt. I will bring water upon him and I will obliterate him. Therefore the term מִחוּי is used.
 <b>From man to beast.</b> They, too, perverted their way. An alternate explanation: Everything was created for the sake of man, and if he ceases to exist, what need is there for these [animals]? 
 <b>For I regret that I made them.</b> [Meaning:] “I thought about what to do about the fact that I made them.” 
 

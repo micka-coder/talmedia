@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>All his days, as Yehoyoda the <i>Kohen</i> instructed him.</b> But after Yehoyoda died, the officers of Yehudah came to prostrate themselves before the king, and they deified him. They said to him, “One who enters the Holy of Holies for only a moment is in danger of dying, yet were hidden there for six years, so you are fit to be a deity.” Then the king listened to them.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Accordingly, the meaning of the verse is “all his days as Yehoyada the <i>Kohen</i> instructed him,” i.e., as long as Yehoyada was alive.—Radak Or, “all his days” refers to Yehoyada’s days. After Yehoyada died, Yoash began to worship <i>asheirohs</i> and other idols. When Zecharyoh prophesied against him, Yoash had him killed, and the following year Arom attacked Yerusholayim.</i>
+<b>All his days, as Yehoyoda the <i>kohein</i> instructed him.</b> But after Yehoyoda died, the officers of Yehudah came to prostrate themselves before the king, and they deified him. They said to him, “One who enters the Holy of Holies for only a moment is in danger of dying, yet were hidden there for six years, so you are fit to be a deity.” Then the king listened to them.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Accordingly, the meaning of the verse is “all his days as Yehoyada the <i>kohein</i> instructed him,” i.e., as long as Yehoyada was alive.—Radak Or, “all his days” refers to Yehoyada’s days. After Yehoyada died, Yoash began to worship <i>asheirohs</i> and other idols. When Zecharyoh prophesied against him, Yoash had him killed, and the following year Arom attacked Yerusholayim.</i>
 
 ### passuk 4
 
@@ -31,7 +31,7 @@
 <b>The guards of the threshold.</b> The thresholds of the [Temple] Court, [i.e.,] those in charge of the keys of the [Temple] Court,<sup>7</sup><i class="footnote">Alternatively, these were the custodians of the Temple’s vessels.—Ralbag</i> for [Targum] Yonoson rendered it as, “אֲמַרְכְּלַיָּא [=custodian of the keys],” and there were seven אֲמַרְכָּלִים, for the seven gates of the [Temple] Court. [This is stated in] Tosefta of [Maseches] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>
 
 ### passuk 11
-<b>Whenever.</b> A daily occurrence (constantly).<sup>9</sup><i class="footnote">I.e., when they saw that the boxes were full they would “bag and count the money.”—Radak</i> <b>They saw that there was much money in the box, and they would go up—the king’s scribe [and the <i>Kohen Gadol</i>] etc.</b>
+<b>Whenever.</b> A daily occurrence (constantly).<sup>9</sup><i class="footnote">I.e., when they saw that the boxes were full they would “bag and count the money.”—Radak</i> <b>They saw that there was much money in the box, and they would go up—the king’s scribe [and the <i>Kohein Gadol</i>] etc.</b>
 
 ### passuk 12
 <b>They gave the counted money.</b> They would give the counted money, i.e., after it was taken out of the chest and weighed<sup>10</sup><i class="footnote">Alternatively, the money was “minted and counted,” i.e., the coins without a stamp were minted so that they could be spent.—Metzudas Dovid</i> and counted, they would give it into the hands of the treasurers who were in charge of the workers.
@@ -54,8 +54,8 @@
 
 ### passuk 17
 <b>Money for guilt-offerings and money for sin-offerings.</b> If one sets aside money for his sin-offering or for his guilt-offering, and purchased the animal, and there was money left over.
-<b>Was not brought to the Beis [Hamikdosh] of Hachem.</b> For repairing the damage of the Beis [Hamikdosh].
-<b>It was for the<i> kohanim</i>.</b> And they would [use the funds to] buy burnt-offerings, “fruit” for the altar; the flesh was for a burnt-offering and the hides were theirs [the <i>kohanim’s</i>]. Thus we learned in [Maseches] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda the <i>Kohen</i> expounded on this as follows: Everything that comes from the remainder of a sin-offering and of a guilt-offering should be used to purchase burnt-offerings.<sup>15</sup><i class="footnote">See Maseches Zevachim 103a.</i>
+<b>Was not brought to the Beis [Hamikdosh] of Adonoy.</b> For repairing the damage of the Beis [Hamikdosh].
+<b>It was for the<i> kohanim</i>.</b> And they would [use the funds to] buy burnt-offerings, “fruit” for the altar; the flesh was for a burnt-offering and the hides were theirs [the <i>kohanim’s</i>]. Thus we learned in [Maseches] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda the <i>kohein</i> expounded on this as follows: Everything that comes from the remainder of a sin-offering and of a guilt-offering should be used to purchase burnt-offerings.<sup>15</sup><i class="footnote">See Maseches Zevachim 103a.</i>
 
 ### passuk 18
 <b>Then Chazoeil [the king of Arom] went up.</b> After the death of Yehoyoda, Yoash made himself for a god.

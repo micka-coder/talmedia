@@ -50,7 +50,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>First from among all the House of Yossef.</b> All of Yisroel wronged you, I more then everyone. I have come to ask you forgiveness, if you accept me then all of Yisroel will be confident that you will accept them but if you do not [accept me] they will be afraid to return to you.
+<b>First from among all the House of Yoseif.</b> All of Yisroel wronged you, I more then everyone. I have come to ask you forgiveness, if you accept me then all of Yisroel will be confident that you will accept them but if you do not [accept me] they will be afraid to return to you.
 
 ### passuk 22
 

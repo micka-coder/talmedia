@@ -4,7 +4,7 @@
 <b>Between your eyes.</b> Near the forehead. Elsewhere it is said, “They may not tear bald spots in their heads.” This equates the entire head with the area between the eyes. 
 
 ### passuk 2
-<b>For you are a sacred people.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Your own sanctity extends from your forefathers; in addition, “Hachem has chosen you.” 
+<b>For you are a sacred people.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Your own sanctity extends from your forefathers; in addition, “Adonoy has chosen you.” 
 
 ### passuk 3
 <b>Any abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Anything I made abominable to you. For example, puncturing the ear of a first-born animal in order to slaughter it outside the Sanctuary — this is something I made abominable to you, from “There shall not be any blemish on it.” Here the Torah proceeds to teach that it is forbidden to slaughter it and then eat it on the basis of that blemish. If one cooked meat with milk — this is something I made abominable to you, so eating it is prohibited here. 
@@ -62,7 +62,7 @@
 
 ### passuk 21
 <b>To the alien in your cities.</b> The resident alien, who has resolved to refrain from idolatry, but eats meat without ritual slaughter. 
-<b>For you are a people sanctified to Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sanctify yourselves by abstaining from that which is permitted. Things which are permitted, but some abstain from them as if they were prohibited; do not permit them in their presence. 
+<b>For you are a people sanctified to Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sanctify yourselves by abstaining from that which is permitted. Things which are permitted, but some abstain from them as if they were prohibited; do not permit them in their presence. 
 <b>Do not cook a kid.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Three times; this excludes wild animals, fowl, and impure animals. 
 
 ### passuk 22

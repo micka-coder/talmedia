@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Hachem's anger was again kindled against Yisroel.</b> I do not know what it was [they did].
+<b>Adonoy's anger was again kindled against Yisroel.</b> I do not know what it was [they did].
 <b>He enticed.</b> Stirred him up.
 
 ### passuk 2
@@ -32,13 +32,13 @@
 ### passuk 11
 
 ### passuk 12
-<b>I will afflict you with [one of] three [things].</b> One of three and so [we find], "With two [of my daughters] you will marry [into my family] today",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> i.e., with one of two. "I will take three from you" is retribution for the three [curses] you put on Shaul, "Either Hachem will smite him or his day will come and he will die or he will go down to battle and perish."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>
+<b>I will afflict you with [one of] three [things].</b> One of three and so [we find], "With two [of my daughters] you will marry [into my family] today",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> i.e., with one of two. "I will take three from you" is retribution for the three [curses] you put on Shaul, "Either Adonoy will smite him or his day will come and he will die or he will go down to battle and perish."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>
 
 ### passuk 13
 
 ### passuk 14
 <b>I am in great anguish.</b> The least of them is very difficult.
-<b>Let us fall into the hand of Hachem.</b> I.e. Pestilence<sup>20</sup><i class="footnote">Controlled exclusively by God.</i> and not the sword nor famine because it [famine] is also controlled by the rich who have store houses of produce. Rabbi Alexandri said, Dovid reasoned, "If I choose the sword then [the people of] Yisroel will say [about me], 'he is relying on his strength to save himself from death but others will die', and if I choose famine they will say, He is relying on his wealth [to save himself]. I will choose pestilence against which everyone is equal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
+<b>Let us fall into the hand of Adonoy.</b> I.e. Pestilence<sup>20</sup><i class="footnote">Controlled exclusively by God.</i> and not the sword nor famine because it [famine] is also controlled by the rich who have store houses of produce. Rabbi Alexandri said, Dovid reasoned, "If I choose the sword then [the people of] Yisroel will say [about me], 'he is relying on his strength to save himself from death but others will die', and if I choose famine they will say, He is relying on his wealth [to save himself]. I will choose pestilence against which everyone is equal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
 
 ### passuk 15
 <b>From the morning until the appointed time.</b> [Yonoson translates:] "From the time of the slaughtering of the daily morning offering until its blood was sprinkled."

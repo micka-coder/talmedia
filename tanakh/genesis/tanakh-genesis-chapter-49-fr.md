@@ -36,7 +36,7 @@ Alors on attachera son ânon à la vigne, et à la treille le fils de son âness
 les yeux seront pétillants de vin et les dents toutes blanches de lait.
 
 ### passuk 13
-Zabulon occupera le littoral des mers; il offrira des ports aux vaisseaux et sa plage atteindra Sidon.
+Zabulon occupera le littoral des mers; il offrira des ports aux récipientx et sa plage atteindra Sidon.
 
 ### passuk 14
 Issachar est un âne musculeux qui se couche entre les collines.

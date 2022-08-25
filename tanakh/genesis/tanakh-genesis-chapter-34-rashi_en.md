@@ -32,7 +32,7 @@
 
 ### passuk 13
 <b>With guile.</b> [I.e.,] with cleverness. 
-<b>Because he had defiled.</b> Scripture tells us that there was no deceit for he had defiled their sisterDinah.
+<b>Because he had defiled.</b> Scripture tells us that there was no deceit for he had defiled their sister Deenah.
 
 ### passuk 14
 <b>That is a disgrace.</b> Among us it is considered a defect; when one wants to insult another he says to him, “you are uncircumcised” or, “you are the son of one who is uncircumcised.” Wherever the word חֶרְפָּה is found [it means] insulting. 
@@ -66,8 +66,8 @@
 ### passuk 24
 
 ### passuk 25
-<b>Two of Yaakov’s sons.</b> They were his sons, yet, Shimon and Levi acted as other people who are not his sons, in that they did not seek his advice. 
-<b>Brothers ofDinah.</b> Because they risked their lives for her, they are called her brothers. 
+<b>Two of Yaakov’s sons.</b> They were his sons, yet, Shimon and Leivi acted as other people who are not his sons, in that they did not seek his advice. 
+<b>Brothers of Deenah.</b> Because they risked their lives for her, they are called her brothers. 
 <b>With confidence.</b> Because they [the Shechemites] were in pain. The Aggadaic explanation is: They were confident of the power of the “old one” [Yaakov].
 
 ### passuk 26

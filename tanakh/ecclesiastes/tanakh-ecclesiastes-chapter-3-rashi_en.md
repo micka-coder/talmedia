@@ -11,7 +11,7 @@
 
 ### passuk 3
 <b>A time to kill.</b> An entire nation, when the day of its visitation comes, as it is stated, “and he will slay your remnant [with the sword].”<sup>3</sup><i class="footnote">Yeshayahu 14:30. </i> 
-<b>And a time to heal.</b> Their ruin, as the matter is stated concerning Egypt, “and they will repent to Hachem, and He will accept their prayer and heal them.”<sup>4</sup><i class="footnote">Yeshayahu 19:22. </i> 
+<b>And a time to heal.</b> Their ruin, as the matter is stated concerning Egypt, “and they will repent to Adonoy, and He will accept their prayer and heal them.”<sup>4</sup><i class="footnote">Yeshayahu 19:22. </i> 
 <b>A time to wreck.</b> The wall of the city, when it is decreed upon it, as it is stated, “and the wall of Yerusholayim is breached.”<sup>5</sup><i class="footnote">Nechemyah 1:3. </i> 
 <b>And a time to build.</b> As it is stated, “and I will build it up as in the days of old.”<sup>6</sup><i class="footnote">Amos 9:11. </i> 
 
@@ -23,20 +23,20 @@
 
 ### passuk 5
 <b>A time to cast away stones.</b> The youths of Yisroel scattered during the destruction of the Beis [Hamikdosh], as it is stated, “sacred gems are scattered.”<sup>9</sup><i class="footnote">Eichah 4:1. </i> 
-<b>And a time to gather them</b> from the exile, as it is stated, “And Hachem their God will save His people like sheep on that day, for the stones of the crown will be exalted over His land.”<sup>10</sup><i class="footnote">Zecharyah 9:16. </i> 
+<b>And a time to gather them</b> from the exile, as it is stated, “And Adonoy their God will save His people like sheep on that day, for the stones of the crown will be exalted over His land.”<sup>10</sup><i class="footnote">Zecharyah 9:16. </i> 
 <b>A time to embrace.</b> [As it is stated,] “For, just as a belt is fastened, etc.”<sup>11</sup><i class="footnote">Yirmiyahu 13:11. </i> 
-<b>And a time to refrain from embracing.</b> [As it is stated,] “And Hachem will drive the people far away.”<sup>12</sup><i class="footnote">Yeshayahu 6:12. </i> 
+<b>And a time to refrain from embracing.</b> [As it is stated,] “And Adonoy will drive the people far away.”<sup>12</sup><i class="footnote">Yeshayahu 6:12. </i> 
 
 ### passuk 6
 <b>A time to seek.</b> As the matter is stated, “I will seek the lost,”<sup>13</sup><i class="footnote">Yechezkeil 34:16. </i> concerning the scattered among Yisroel. 
 <b>And a time to abandon.</b> And a time when He causes them to perish in the exile, as it is stated, “And you will become lost among the nations.”<sup>14</sup><i class="footnote">Vayikra 26:38. </i> 
-<b>A time to preserve.</b> [As it is stated,] “May Hachem bless you and safeguard you,”<sup>15</sup><i class="footnote">Bamidbar 6:24. </i> when you do His will. 
+<b>A time to preserve.</b> [As it is stated,] “May Adonoy bless you and safeguard you,”<sup>15</sup><i class="footnote">Bamidbar 6:24. </i> when you do His will. 
 <b>And a time to discard.</b> [As it is stated,] “And He cast them to another land.”<sup>16</sup><i class="footnote">Devarim 29:27. </i> 
 
 ### passuk 7
 <b>A time to rip apart.</b> The kingship of the House of Dovid,<sup>17</sup><i class="footnote">When Bnei Yisroel act in an evil manner. </i> [as it is stated,] “And I tore the kingship, etc.”<sup>18</sup><i class="footnote">I Melochim 14:8. </i> 
 <b>And a time to sew.</b> [As it is stated,] “And they will become united in your hand;”<sup>19</sup><i class="footnote">Yechezkeil 37:17. </i> [and] “neither shall they be divided any longer into two kingdoms.”<sup>20</sup><i class="footnote">Ibid. Verse 22. </i> 
-<b>A time to be silent.</b> These are the times when a person is silent and receives a reward,<sup>21</sup><i class="footnote">E.g., when a person is insulted and yet remains silent. (Metsudas Dovid) </i> as it is stated, “and Aharon was silent,”<sup>22</sup><i class="footnote">Vayikra 10:3. </i> and he [therefore] merited that the Divine speech addressed him personally, as it is stated, “And Hachem spoke to Aharon, [saying] ‘Do not drink intoxicating wine.’”<sup>23</sup><i class="footnote">Ibid. Verse 8. </i> 
+<b>A time to be silent.</b> These are the times when a person is silent and receives a reward,<sup>21</sup><i class="footnote">E.g., when a person is insulted and yet remains silent. (Metsudas Dovid) </i> as it is stated, “and Aharon was silent,”<sup>22</sup><i class="footnote">Vayikra 10:3. </i> and he [therefore] merited that the Divine speech addressed him personally, as it is stated, “And Adonoy spoke to Aharon, [saying] ‘Do not drink intoxicating wine.’”<sup>23</sup><i class="footnote">Ibid. Verse 8. </i> 
 <b>And a time to speak.</b> [As it is stated,] “Then Moshe sang,”<sup>24</sup><i class="footnote">Shemos 15:1. </i> [and,] “And Devorah sang,”<sup>25</sup><i class="footnote">Shoftim 5:1. </i> [and,] “Take words with you.”<sup>26</sup><i class="footnote">Hoshei’a 14:3. </i> 
 
 ### passuk 8

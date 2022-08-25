@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>I am Hachem, your God,</b> I am He who said at Sinai: “I am Hachem your God,” and you accepted My kingship upon on yourselves; therefore, accept My decrees [which follow]. Rabbi [Judah the Prince] says: It was revealed and known before Him that they will eventually tear [themselves] loose [from the laws] of forbidden relations in the days of Ezra; therefore, He came to them with a decree: <b>I am Hachem your God —</b> know Who decrees [this] on you, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Judge who will exact punishment and [Who] is faithful in giving reward. 
+<b>I am Adonoy, your God,</b> I am He who said at Sinai: “I am Adonoy your God,” and you accepted My kingship upon on yourselves; therefore, accept My decrees [which follow]. Rabbi [Judah the Prince] says: It was revealed and known before Him that they will eventually tear [themselves] loose [from the laws] of forbidden relations in the days of Ezra; therefore, He came to them with a decree: <b>I am Adonoy your God —</b> know Who decrees [this] on you, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>a Judge who will exact punishment and [Who] is faithful in giving reward. 
 
 ### passuk 3
 <b>After the practices of the Land of Egypt.</b> This tells [us] that the practices of the Egyptians and Canaanites were the most corrupt of all the nations, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and that place in which the Israelites settled was the most corrupt of all. 
@@ -11,17 +11,17 @@
 
 ### passuk 4
 <b>You shall fulfill My laws,</b> these are matters mentioned <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>in the Torah as law, which if they were not mentioned, would have been proper to mention. 
-<b>And keep My statutes,</b> matters which are a royal decree, against which the evil inclination raises objections: Why should we keep them? And the nations of the world raise objections against them; such as [the law against] eating of pork, the wearing of <i>shaatnez,</i> and the purification [power] of מֵי חַטָּאת . Therefore, it is said: <b>I am Hachem,</b> My decree is upon you, you may not evade [them]. 
+<b>And keep My statutes,</b> matters which are a royal decree, against which the evil inclination raises objections: Why should we keep them? And the nations of the world raise objections against them; such as [the law against] eating of pork, the wearing of <i>shaatnez,</i> and the purification [power] of מֵי חַטָּאת . Therefore, it is said: <b>I am Adonoy,</b> My decree is upon you, you may not evade [them]. 
 <b>To follow them.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You may not evade them, that you not think: “I have learned the wisdom of Israel, I will go and learn the wisdom of the nations.” 
 
 ### passuk 5
 <b>You shall keep My statutes, etc.</b> [This comes] to include <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>other subdivisions [of these laws] which the Torah has not detailed. Another interpretation: it provides for <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>keeping and fulfilling the statutes and keeping and fulfilling the laws, for [until now the Torah] only provided “fulfilling” for laws, and “keeping” for statutes. 
 <b>He shall live through them,</b> in the World to Come, for if you say [that this refers] to this world, will he not in the end die [even if he keeps the <i>mitzvos</i>]? 
-<b>I am Hachem,</b> faithful to give a reward [to those deserving of it]. 
+<b>I am Adonoy,</b> faithful to give a reward [to those deserving of it]. 
 
 ### passuk 6
 <b>You shall not approach,</b> [the word תִּקְרְבוּ] provides a warning for a female as [well as] a male, and therefore it is expressed <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>in plural form. 
-<b>I am Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>faithful to give a reward [to those deserving of it]. 
+<b>I am Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>faithful to give a reward [to those deserving of it]. 
 
 ### passuk 7
 <b>The nakedness of your father,</b> this [refers] to your father’s wife — or perhaps it [follows] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>its plain meaning? “The nakedness of your father” is said here, and it is said later, “the nakedness of his father he uncovered”, just as later [the phrase refers] to the wife of his father, here too [the phrase] refers to the wife of his father. 
@@ -93,7 +93,7 @@
 
 ### passuk 30
 <b>You shall keep My watch —</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to warn the Court on this.
-<b>And you will not defile yourselves through them; I am Hachem your God.</b> Thus, if you become defiled, I am not your God, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and you are cut off from Me, and what benefit do I have from you [then] if you are liable to destruction? Therefore it is said: “I am Hachem your God.” 
+<b>And you will not defile yourselves through them; I am Adonoy your God.</b> Thus, if you become defiled, I am not your God, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and you are cut off from Me, and what benefit do I have from you [then] if you are liable to destruction? Therefore it is said: “I am Adonoy your God.” 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

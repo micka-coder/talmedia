@@ -4,14 +4,14 @@
 ### passuk 2
 
 ### passuk 3
-<b>Sera éliminé</b> Retiré.<sup>1</sup><i class="footnote"><span><b>פקד"</b></span> est parfois traduit par " se souvenir " (Bereishis, 50:25). Ici, cependant, la traduction est " supprimé " ou " éliminé "."</i>
+<b>Sera éliminé</b> Éliminé.<sup>1</sup><i class="footnote"><span><b>פקד</b></span> est parfois traduit par "rappelé" (Bereishis, 50:25). Ici, cependant, la traduction est "enlevé", ou "éliminé". </i>
 
 ### passuk 4
 
 ### passuk 5
 
 ### passuk 6
-<b>Ils ont regretté</b> Ils se sont retournés,</sup>2</sup><i class="footnote"><span><b>וַיִנָּחֲמוּ</b></span> est traduit par "ils ont regretté", plutôt que "ils ont été consolés".</i> et ont envisagé de leur échapper.
+<b>Etaient regrettés</b> Ils se sont retournés,<sup>2</sup><i class="footnote"><span><b>COPY00</b></span> est traduit par "ils regrettaient", plutôt que par "ils étaient réconfortés. "</i> et envisagèrent de s'échapper pour eux.
 
 ### passuk 7
 
@@ -36,7 +36,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Les survivants doivent hériter des biens ancestraux</b> Les biens ancestraux de la tribu restent non réclamés ; concevons un plan par lequel ils pourront engendrer des enfants, afin que les biens tombent en possession des survivants restants, et qu'une tribu ne soit pas effacée de Yisrael.
+<b>Les survivants doivent hériter des biens ancestraux</b> Les biens ancestraux de la tribu restent non réclamés ; concevons un plan par lequel ils pourront engendrer des enfants, afin que les biens tombent en possession des survivants restants, et qu'une tribu ne soit pas effacée de Israël.
 
 ### passuk 18
 

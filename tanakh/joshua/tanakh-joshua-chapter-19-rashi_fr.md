@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyamin, car le lot de Binyamin était le premier des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : " Et ils le diviseront en sept parts ", car Yehouda et Yossef avaient auparavant reçu [leur héritage] comme il est dit ici : " Yéhouda restera sur sa limite au sud, [et la maison de Yossef restera sur sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
+<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyomin, car le lot de Binyomin était la première des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : "Et ils le diviseront en sept parts", car Yehouda et Yoseif avaient auparavant reçu [leur héritage] comme il est dit ici : "Yehouda restera à sa limite au sud," [et la maison de Yoseif restera à sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
 
 ### passuk 2
 
@@ -17,19 +17,19 @@
 ### passuk 8
 
 ### passuk 9
-<b>C'était trop grand pour eux.</b> C'était plus que ce qui leur était dû.</sup></sup><i class="footnote">Diverses raisons sont présentées pour expliquer pourquoi Shimon a reçu une partie de leur héritage au milieu du territoire de Yehouda. Certains disent que Shimon a aidé Yehouda à conquérir leur territoire et qu'il méritait donc d'en recevoir une partie en propre. D'autres soutiennent que c'est parce que Yaakov avait dit : " Shimon et Levi sont des frères, les instruments de violence sont leurs marchandises. Je les disperserai dans Yaakov et je les éparpillerai dans tout Israël " (Bereishis 49:5,7) Shimon reçut une portion au sein de Yehouda et Lévi fut dispersé dans de nombreuses villes du pays.</i>
+<b>C'était trop grand pour eux.</b> C'était plus que ce qui leur était dû.</sup></sup><i class="footnote">Diverses raisons sont présentées pour expliquer pourquoi Shimon a reçu une partie de leur héritage au milieu du territoire de Yehouda. Certains affirment que Shimon a aidé Yehouda à conquérir son territoire et qu'il méritait donc d'en recevoir une partie en propre. D'autres soutiennent que c'est parce que Yaakov avait dit : "Shimon et Lévi sont des frères, les instruments de violence sont leurs marchandises. Je les disperserai dans tout Yaakov et les disperserai dans tout Israël". (Bereishis 49:5,7) Shimon reçut une portion au sein de Yehouda et Lévi fut dispersé dans de nombreuses villes du pays.</i>
 
 ### passuk 10
 
 ### passuk 11
 
 ### passuk 12
-<b>Kislos-tovor.</b> Je dis que [כִּסְלוֹת] est une expression de flancs,  כְּסָלִים, flancs en ancien français. Ceci est similaire à ce qui est indiqué dans Vayikro 3:4. Ce n'est pas à son point le plus haut et pas à son bas, mais sur sa pente, près du milieu, plus proche de l'arrière, que de l'avant, comme les flancs d'un animal. (Ainsi, dans ce verset, on lit les flancs du Mont Tabor). Cependant, lorsque l'Écriture dit, Oznos-Tavor, elle se réfère à un endroit près de son sommet, l'endroit où les oreilles sont situées.
+<b>Kislos-tovor.</b> Je dis que [כִּסְלוֹת] est une expression de flancs, כְּסָלִים, flancs en vieux français. Ceci est similaire à ce qui est indiqué dans Vayikro 3:4. Ce n'est pas à son point le plus haut ni à son point le plus bas, mais sur sa pente, près du milieu, plus près de l'arrière, que de l'avant, comme les flancs d'un animal. (Ainsi, dans ce verset, on lit les flancs du Mont Tabor). Cependant, lorsque l'Écriture dit, Oznos-Tavor, elle se réfère à un endroit près de son sommet, l'endroit où les oreilles sont situées.
 
 ### passuk 13
 <b>Est de Gitoh-cheifer.</b> A l'est de Gat-hacheifer qui est le nom de la ville de [le prophète] Yonah ben Amtai.
 <b>Ittoh-kotzin.</b> C'était le nom de la ville.
-<b>Il tournait autour de Neioh.</b> [De Rimmon] il tournait autour de Neioh. En d'autres termes, à partir de là, la frontière a fait le tour jusqu'à Neioh. Le Targum Yonason l'explique également de cette façon : "Elle s'étendait jusqu'à Rimmon, et de là , elle faisait le tour jusqu'à Néioh."<sup>3</sup><i class="footnote">Rashi prend la peine de réfuter ceux qui disent que le mot  הַמְתאָר  est lié à  רִמוֹן  et qui traduisent donc Rimon-misoar comme s'il s'agissait du nom de la ville.</i>
+<b>Il tournait autour de Neioh.</b> [De Rimmon] il tournait autour de Neioh. En d'autres termes, à partir de là, la frontière a fait le tour jusqu'à Neioh. Le Targum Yonason l'explique également de cette façon : " Elle s'étendait jusqu'à Rimmon, et de là, elle faisait le tour jusqu'à Néioh. "<sup>3</sup><i class="footnote">Rashi se donne beaucoup de mal pour réfuter ceux qui disent que le mot הַמְתאָר est lié à רִמוֹן et traduisent donc, Rimon-misoar comme si c'était le nom de la ville.</i>
 
 ### passuk 14
 
@@ -62,9 +62,9 @@
 ### passuk 28
 
 ### passuk 29
-<b>Ville fortifiée du Rocher.</b> Villes de forteresse, villes de puissance. 
-<b>Rock</b>צוּר  signifie un rocher.
-<b>Du lot d'Achziv.</b> [חֶבֶל  signifie une corde d'Achziv] mais ici cela fait référence au lot d'Achziv.
+<b>Cité fortifiée du Rocher.</b> Villes de forteresse, villes de puissance. 
+<b>Rock</b>-צוּר signifie un rocher.
+<b>Du lot d'Achziv.</b> [חֶבֶל signifie une corde d'Achziv] mais ici il s'agit du lot d'Achziv.
 
 ### passuk 30
 
@@ -77,7 +77,7 @@
 ### passuk 34
 
 ### passuk 35
-<b>Les villes fortifiées</b> qui appartenaient à Naftoli étaient Tzidim, Tzeir, etc.
+<b>Les villes fortifiées-</b> qui appartenaient à Naftoli étaient Tzidim, Tzeir, etc.
 
 ### passuk 36
 
@@ -90,7 +90,7 @@
 ### passuk 40
 
 ### passuk 41
-<b>Tzoroh, Eshtaeil.</b> Ce sont des villes de la portion de Yehouda, et le lot des Bnei Dan est tombé près d'elles.
+<b>Tzoroh, Eshtaeil.</b> Ce sont des villes de la portion de Yehouda, et le lot des Bnei Don est tombé près d'elles.
 
 ### passuk 42
 
@@ -103,8 +103,8 @@
 ### passuk 46
 
 ### passuk 47
-<b>La frontière des Bnei Dan s'étendait à partir d'eux.</b> A cet endroit, ils n'ont pris qu'une petite partie, mais le lot est également tombé pour eux à un autre endroit qui était à une certaine distance de leur frontière, et ainsi les autres tribus sont intervenues entre eux. <sup>4</sup><i class="footnote">D'autres expliquent les mots,  וַיֵצֵא גְבוּל בְנֵי־דָן מֵהֶם  pour signifier, "la frontière des Bnei Dan était trop petite pour eux," et ils sont partis capturer la ville de Leshem pour faire de la place à leur population.</i>
-<b>Ils ont combattu contre Leshem.</b> Cela a eu lieu plus tard, à l'époque d'Osniel, le fils de Kenaz, à l'époque de l'image taillée de Micho, comme il est dit dans le livre de Shoftim.</sup>5</sup><i class="footnote">Shoftim 17:3,4. 18:2. (Voir Rachi à 17:1.)</i>
+<b>La frontière des Bnei Don s'étendait à partir d'eux.</b> A cet endroit, ils n'ont pris qu'une petite partie, mais le lot est également tombé pour eux à un autre endroit qui était à une certaine distance de leur frontière, et ainsi les autres tribus sont intervenues entre eux. <sup>4</sup><i class="footnote">D'autres expliquent les mots, וַיֵצֵא גְבוּל בְנֵי-דָן מֵהֶם pour signifier, "la frontière des Bnei Don était trop petite pour eux", et ils sont partis capturer la ville de Leshem pour faire de la place à leur population. </i>
+<b>Ils combattirent contre Leshem.</b> Cela eut lieu plus tard, à l'époque d'Osniel, fils de Kenaz, à l'époque de l'image taillée de Micho, comme il est dit dans le livre de Shoftim.</sup>5</sup><i class="footnote">Shoftim 17:3,4. 18:2. (Voir Rachi à 17:1.)</i>
 <b>Leshem</b> C'est la ville de Layish, qui est mentionnée dans le livre de Shoftim.<sup>6</sup><i class="footnote">Shoftim 18:7,14.</i>
 
 ### passuk 48

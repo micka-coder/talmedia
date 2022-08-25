@@ -5,7 +5,7 @@
 <b>Moshe’s father-in-law.</b> Here Yisro prides himself with Moshe, [as if to say:] “I am the king’s father-in-law,” whereas, in the past, Moshe would attribute the greatness [he attained] to his father-in-law, as it is said: “He returned to Yeser, his father-in-law.” 
 <b>For Moshe and [for his people] Yisrael.</b> Moshe is equal to all of Yisrael.
 <b>About all that [Elokim] had done —</b> for them, with the coming down of the <i>manna,</i> with “the well,” and with [the war of] Amaleik. 
-<b>That Hachem brought out, etc.</b> This being the greatest [miracle] of them all. 
+<b>That Adonoy brought out, etc.</b> This being the greatest [miracle] of them all. 
 
 ### passuk 2
 <b>After he had sent her back.</b> When God said to him (Moshe) in Midian: “‘Go and return to Egypt,’ Moshe took his wife and children, etc.” “Aharon went out towards him and met up with him at the Mountain of God.” He (Aharon) said to him (Moshe), “Who are these?” He replied to him, “This is my wife whom I married in Midian and these are my children.” He (Aharon) said to him, “And where are you taking them?” “To Egypt,” he answered him. “We grieve for the earlier [enslaved] ones,” he said, “and now you come to add to their numbers!” [Whereupon] he (Moshe) said to her (Tziporah), “Go to your father’s house.” She then took her two sons and left. 

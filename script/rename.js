@@ -3,14 +3,19 @@ import fs from "fs";
 import shell from "shelljs"
 
 // options is optional
-glob("./Babli-V2/*/*/*", null, function (err, files) {
+glob("./Rashis/*/*/*", null, function (err, files) {
     //console.log("files ===>", files);
     //console.log("error ===>", err);
     files.forEach((file) => {
         let path = file.split('/');
         console.log("FILE ===>", file);
-        //shell.mv(file, `${file.toLowerCase()}__TEMP`);
-        shell.mv(file, file.replace('__TEMP',''));
+        shell.mv(file, file.split('/').map(p => {
+            if(p.includes('.md')) {
+                return 'tanakh-' + p;
+            }
+            return p;
+        }).join('/'));
+        //shell.mv(file, file.replace('__TEMP',''));
         /*
         if(file.includes('.md')) {
             console.log(file);

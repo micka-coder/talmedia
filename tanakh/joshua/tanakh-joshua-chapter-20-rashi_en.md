@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Until he stands, etc. for judgement.</b> If he is acquited from exile, he is discharged. If he is sentanced to exile, he is returned to the city of his refuge, and he must reside there until the death of the <i>Kohen-godol.</i>
+<b>Until he stands, etc. for judgement.</b> If he is acquited from exile, he is discharged. If he is sentanced to exile, he is returned to the city of his refuge, and he must reside there until the death of the <i>Kohein-godol.</i>
 
 ### passuk 7
 

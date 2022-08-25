@@ -22,7 +22,7 @@
 
 ### passuk 11
 <b> All his stipulations.</b> The conditions between them.
-<b>Before Hachem, at Mitzpah.</b> Where everyone was assembled, as the Divine Presence rests upon multitudes.
+<b>Before Adonoy, at Mitzpah.</b> Where everyone was assembled, as the Divine Presence rests upon multitudes.
 
 ### passuk 12
 
@@ -38,7 +38,7 @@
 ### passuk 17
 <b> Please allow me to traverse your country.</b> From south to north, in order to enter the land of Canaan.
 <b>To the king of Moav as well.</b> Whose country bordered the extremity of the land of Edom, east of Edom, and south of Eretz Yisroel.
-<b>And he refused.</b> Moshe alludes to this in the Torah, "As perpetrated against me by the Bnei Essav residing at Sair, and the Moavites residing at Ar."<sup>2</sup><i class="footnote">Devarim, 2:29.</i> Just as Edom refused them permission to pass, so did Moav refuse them permission to pass.
+<b>And he refused.</b> Moshe alludes to this in the Torah, "As perpetrated against me by the Bnei Eisov residing at Sair, and the Moavites residing at Ar."<sup>2</sup><i class="footnote">Devarim, 2:29.</i> Just as Edom refused them permission to pass, so did Moav refuse them permission to pass.
 
 ### passuk 18
 <b> They then continued through the wilderness</b> from west to east, along the southern borders of Edom and Moav.
@@ -97,7 +97,7 @@
 <b> Wept over her maidenhood.</b> Since it is not written "over her maidens," the inference is, over her actual maidenhood.
 
 ### passuk 39
-<b> She became the subject of a law.</b> Legislation was enacted prohibiting any repetition of this, for, had he approached Pinchos, or had Pinchos approached him, he would have released him from his vow.<sup>24</sup><i class="footnote">By informing him that a human being cannot be designated as an offering.</i> But they refused to humble themselves,<sup>25</sup><i class="footnote">Pinchas, because it was Yiftoch who required his services; Yiftoch, because he was the supreme commander. (Yalkut, 68)</i> and were, thus, both responsible for her ruin. They were punished. The Divine Presence departed from Pinchos, as it is said in Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Hachem was with him previously." We learn that he was not with him later. And Yiftoch was afflicted with ulcerations and the loss of his limbs, as it is said,<sup>27</sup><i class="footnote">Below, 12:7.</i> "He was buried in the cities of Gilod."<sup>28</sup><i class="footnote">Individual limbs, like the entire body, require burial. The plural usage, “cities”, teaches that his burial took place in a number of cities—wherever his limbs fell. (Yalkut, ibid.)</i> Another interpretation: "She became the subject of a law in Yisroel" relates to the following passage.<sup>29</sup><i class="footnote">She was the subject of a law requiring the daughters of Yisroel to visit her yearly.</i>
+<b> She became the subject of a law.</b> Legislation was enacted prohibiting any repetition of this, for, had he approached Pinchos, or had Pinchos approached him, he would have released him from his vow.<sup>24</sup><i class="footnote">By informing him that a human being cannot be designated as an offering.</i> But they refused to humble themselves,<sup>25</sup><i class="footnote">Pinchas, because it was Yiftoch who required his services; Yiftoch, because he was the supreme commander. (Yalkut, 68)</i> and were, thus, both responsible for her ruin. They were punished. The Divine Presence departed from Pinchos, as it is said in Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Adonoy was with him previously." We learn that he was not with him later. And Yiftoch was afflicted with ulcerations and the loss of his limbs, as it is said,<sup>27</sup><i class="footnote">Below, 12:7.</i> "He was buried in the cities of Gilod."<sup>28</sup><i class="footnote">Individual limbs, like the entire body, require burial. The plural usage, “cities”, teaches that his burial took place in a number of cities—wherever his limbs fell. (Yalkut, ibid.)</i> Another interpretation: "She became the subject of a law in Yisroel" relates to the following passage.<sup>29</sup><i class="footnote">She was the subject of a law requiring the daughters of Yisroel to visit her yearly.</i>
 
 ### passuk 40
 <b> Journeyed annually.</b> This was established as a law.<sup>30</sup><i class="footnote">This follows Rashi’s second interpretation of v. 39. See fn.29.</i>

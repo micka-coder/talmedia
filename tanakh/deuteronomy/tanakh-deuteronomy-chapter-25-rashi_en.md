@@ -60,7 +60,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Remember what . . . perpetrated against you.</b> If you were deceitful with your measures and weights, you should dread harrassment by the enemy, as it is said, “Deceitful scales are abhorred by Hachem,” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and it is written afterward, “The malicious arrive, then comes mortification.” 
+<b>Remember what . . . perpetrated against you.</b> If you were deceitful with your measures and weights, you should dread harrassment by the enemy, as it is said, “Deceitful scales are abhorred by Adonoy,” <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and it is written afterward, “The malicious arrive, then comes mortification.” 
 
 ### passuk 18
 <b>When they chanced upon you en route.</b> This connotes a chance occurrence. Another interpretation: The connotation is semen and ritual defilement — they defiled them with homosexual relations. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation: The meaning is “cold,” as opposed to heat. They cooled you, moderated you to tepidness from seething heat. For all the nations were afraid of waging war against you, until they commenced, preparing the way for others. This is compared with a boiling bath into which no creature could enter. One villain came and leaped into it. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Although he was scalded, he cooled it for the others. 

@@ -29,7 +29,7 @@
 <b>Till the time set by Shmuel.</b> This verse has a missing word. [The verse means to say], "till the appointed time set by Shmuel," or "to the appointed time of Shmuel." An example of this is, "And two men, officers of troops were the son of Shaul." Scripture should have written, "were to the son of Shaul."<sup>6</sup><i class="footnote"> II Shmuel 4:2.</i> Here too, "which was set by Shmuel," who had said to him, "Wait seven days until I come to you."<sup>7</sup><i class="footnote">Above 10:8.</i>
 
 ### passuk 9
-<b>Bring me the burnt-offering.</b> A non-Kohen is permitted to sacrifice on a high place.
+<b>Bring me the burnt-offering.</b> A non-kohein is permitted to sacrifice on a high place.
 
 ### passuk 10
 
@@ -42,7 +42,7 @@
 
 ### passuk 13
 <b>For now.</b> Before you had done this,
-<b>Hachem would have established your kingship … forever.</b> Because when a high position is assigned to a person, it is assigned to him and to his descendants.<sup>9</sup><i class="footnote"> See Maseches Megillah 13b.</i>
+<b>Adonoy would have established your kingship … forever.</b> Because when a high position is assigned to a person, it is assigned to him and to his descendants.<sup>9</sup><i class="footnote"> See Maseches Megillah 13b.</i>
 
 ### passuk 14
 <b>But now, your kingship shall not endure.</b> Because Moshe said so in the Torah, "[and] he does not stray from the commandment right or left, so that days of his reign are lengthy…."<sup>10</sup><i class="footnote"> Devarim 17:20.</i> Hence, if he does stray, the days [of his reign] will not be lengthy. And if you will argue that this was not said in reference to a Prophet's commandment, but only in reference to a commandment of the Torah, [I will answer that] it was already stated, "[and] to guard every word of this Torah" and afterwards, "that his pride not increase… and he turn not stray from the commandment"<sup>11</sup><i class="footnote">Devarim 18:19. And now that you failed to obey the commandment of ‘<span>ה</span> to obey His word as delivered by His prophets, you will be held accountable for your actions.</i> [to include] even a prophet's commandment.

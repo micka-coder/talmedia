@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>And his elevated ramp by which he would go up to the Beis Hamikdosh of Hachem.</b> By means of a passageway that he had prepared from his house to the Beis Hamikdosh, by which he would go up to the House of God.<sup>1</sup><i class="footnote">Alternatively, ועולתו אשר יעלה עליו refers to the sacrifices that Shlomo offered in the Beis Hamikdosh, described above in 9:25.—Targum</i>
+<b>And his elevated ramp by which he would go up to the Beis Hamikdosh of Adonoy.</b> By means of a passageway that he had prepared from his house to the Beis Hamikdosh, by which he would go up to the House of God.<sup>1</sup><i class="footnote">Alternatively, ועולתו אשר יעלה עליו refers to the sacrifices that Shlomo offered in the Beis Hamikdosh, described above in 9:25.—Targum</i>
 
 ### passuk 6
 
@@ -24,12 +24,12 @@
 <b>Coral.</b> <i>Corail</i>, in O.F.
 
 ### passuk 12
-<b>A pathway to the Beis Hamikdosh of Hachem.</b> But in Divrei Hayomim it is written, “paths [מסילות] to the House of Hachem.”<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> I therefore say, that this support [מסעד] is an expression of a pavement.
+<b>A pathway to the Beis Hamikdosh of Adonoy.</b> But in Divrei Hayomim it is written, “paths [מסילות] to the House of Adonoy.”<sup>2</sup><i class="footnote">II Divrei Hayomim 9:11.</i> I therefore say, that this support [מסעד] is an expression of a pavement.
 <b>For the singers.</b> For the <i>Leviyim</i>.
 
 ### passuk 13
 <b>Gave to the queen of Sheva.</b> This giving refers only to the teaching of wisdom.
-<b>All that she desired.</b> (He had relations with her and Nevuchadnetzar was born, and he later destroyed the Beis [Hamikdosh] that had stood 410 years in the territory of all the twelve tribes. Rabbi Yitzchak [Luria] of blessed memory) [He gave her more,] in addition to giving her gifts and delicacies that are found here but are not found in her place.<sup>3</sup><i class="footnote">Alternatively, Shlomo gave her gifts of intellectual wisdom by answering all the problems and questions that she had asked, in addition to solving the riddles that she had posed to him.—Ralbag</i>
+<b>All that she desired.</b> (He had relations with her and Nevuchadnetzar was born, and he later destroyed the Beis [Hamikdosh] that had stood 410 years in the territory of all the twelve tribes. Rabbi Yitzchok [Luria] of blessed memory) [He gave her more,] in addition to giving her gifts and delicacies that are found here but are not found in her place.<sup>3</sup><i class="footnote">Alternatively, Shlomo gave her gifts of intellectual wisdom by answering all the problems and questions that she had asked, in addition to solving the riddles that she had posed to him.—Ralbag</i>
 
 ### passuk 14
 <b>Six hundred sixty-six.</b> Chirom gave him 120 [talents], the Queen of Sheva 120, the ships of Tarshish brought from Ophir 420, totaling 660 [talents]. I do not know from where the other six came. It is written in Divrei Hayomim that [the ships brought] from Ophir 450 [talents],<sup>4</sup><i class="footnote">See II Divrei Hayomim 8:18.</i> however it does not include the 120 talents of Chirom. We can resolve the contradictions that the extra 30 were from the 120 of Chirom, because Chirom’s servants were in Ophir with his servants.

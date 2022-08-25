@@ -25,17 +25,17 @@
 ### passuk 9
 
 ### passuk 10
-<b>Confiné dans la maison.</b> '<span> '</span>' est une expression de '<span>כָּלוּ</span>' [emprisonnement].
+<b>Confiné dans la maison.</b> '<span>כָּלוּ</span>' est une expression de '<span>כֶּלֶא</span>' [emprisonnement].
 
 ### passuk 11
 
 ### passuk 12
-<b>Set on a straight course.</b> Ce mot est un hermaphrodite grammatical.<sup>2</sup><i class="footnote">Le "<span>וַיִשַּׁרְנָה</span>" de <span>נה"</span> est la forme masculine et le "<span> '"</span>" est l'indicatif de la forme féminine. </i> Cela nous apprend que même les jeunes récitaient un chant,</sup>3</sup><i class="footnote"> Et, donc, la combinaison des formes masculine et féminine.</i> "Chante à haute voix, chante à haute voix, Arche de bois d'acacia ! Exalte-toi comme l'indique le Maseches Avodah Zorah.<sup>4</sup><i class="footnote"> 24b. Les vaches ont littéralement chanté une louange intelligible à "<span>"</span>. Elles ont reçu le pouvoir miraculeux de chanter tout comme l'âne de Bilam' a reçu le pouvoir de la parole dans Bamidbar 22:28-30.</i>Selon son sens simple, '<span>וַיִשַּׁרְנָה"</span>' est une expression qui signifie 'droit', c'est-à-dire qu'elles ont suivi un chemin droit.
-<b>La descente comme ils marchaient.</b> C'est une expression du cri [<span>גְּעִיָה"</span>] du bétail.
-<b>Beis Shemesh.</b> Yisrael y était.</sup>5</sup><i class="footnote">Bien que <span>בֵּית שֶׁמֶשׁ</span> ait été l'une des villes appartenant aux kohanim [Yehosua 21:16], néanmoins l'homme Bnei Yisrael y vivait ainsi que dans les régions adjacentes.Da'as Sofrim</i>
+<b>Set on a straight course.</b> Ce mot est un hermaphrodite grammatical. <sup>2</sup><i class="footnote">Le "<span>י</span>" de <span>וַיִשַּׁרְנָה</span> est la forme masculine et le "<span>נה</span>" est indicatif de la forme féminine. </i> Cela nous apprend que même les jeunes récitaient un chant,<sup>3</sup><i class="footnote"> Et, donc, la combinaison des formes masculine et féminine.</i> "Chante à haute voix, chante à haute voix, Arche de bois d'acacia ! Exalte-toi..." comme l'indique le Maseches Avodah Zorah.<sup>4</sup><i class="footnote"> 24b. Les vaches ont littéralement chanté une louange intelligible à '<span>ה</span>. Elles ont reçu le pouvoir miraculeux de chanter tout comme l'âne de Bilam a reçu le pouvoir de la parole dans Bamidbar 22:28-30. </i> Selon son sens simple, '<span>וַיִשַּׁרְנָה</span>' est une expression qui signifie 'droit', c'est-à-dire qu'ils ont suivi un chemin droit.
+<b>La descente en marchant.</b> C'est une expression du cri [<span>גְּעִיָה</span> du bétail.
+<b>Beis Shemesh.</b> Israël était là. <sup>5</sup><i class="footnote">Même si <span>בֵּית שֶׁמֶשׁ</span> était l'une des villes appartenant aux kohanim [Yehosua 21:16], néanmoins l'homme Bnei Israël y vivait et dans les régions adjacentes. -Da'as Sofrim</i>
 
 ### passuk 13
-<b>Et ils se réjouirent de voir.</b> Ils allaient voir comment il venait seul, et dans leur joie, ils se comportèrent avec légèreté, car ils ne le contemplèrent pas avec crainte et respect.</sup>6</sup><i class="footnote">Ils violèrent le commandement "et ils n'entreront pas pour voir quand on couvre le saint et [ils ne mourront pas]," dans Bamidbar 4:20.</i>
+<b>Et ils se réjouirent de voir.</b> Ils allaient voir comment il venait seul, et dans leur joie, ils se sont comportés avec légèreté, car ils ne l'ont pas regardé avec crainte et respect.<sup>6</sup><i class="footnote">Ils ont violé le commandement "et ils n'entreront pas pour voir quand le saint est couvert et [ils ne mourront pas]", dans Bamidbar 4:20.</i>.
 
 ### passuk 14
 
@@ -47,10 +47,10 @@
 
 ### passuk 18
 <b>Village ouvert.</b> Un village sans mur.
-<b>Le grand rocher. </b> Il s'agit du grand rocher précédemment mentionné, car le '<span></span>' vient à la place du '<span> </span>' [dans le mot '<span> '</span>'], similaire à '<span>' "</span>' au lieu de '<span> '"</span>' [chambre], dans le livre de Nechemyah. <sup>7</sup><i class="footnote"> 13:7.</i> Et parce qu'ils y ont connu le deuil,<sup>8</sup><i class="footnote"> Voir ci-dessous le verset 19.</i> ils l'ont appelé '<span>' </span>'.
+<b>Le grand rocher. </b> Il s'agit du grand rocher précédemment cité, car le '<span>ל</span>' vient à la place du '<span>נ</span>' [dans le mot '<span>אָבֵל</span>'], similaire à '<span>נִשְׁכָּה</span>' au lieu de '<span>לִשְׁכָּה</span>' [chambre], dans le livre de Nechemyah. <sup>7</sup><i class="footnote"> 13:7.</i> Et parce qu'ils y ont connu le deuil,<sup>8</sup><i class="footnote"> Voir ci-dessous le verset 19.</i> ils l'ont appelé '<span>אָבֵל</span>'.
 
 ### passuk 19
-<b>Soixante-dix hommes, cinquante mille hommes.</sup></b> Le Targum Yonathan rend : 'Il tua parmi les anciens du peuple soixante-dix hommes, et parmi la communauté cinquante mille hommes.'<sup>9</sup><i class="footnote">Un autre avis est que ce chiffre comprend également le nombre de Philistins qui furent tués suite à leur irrévérence envers l'Arche. </i> Nos sages ont cependant dit : 'Soixante-dix hommes, dont chacun était égal à cinquante mille, ou cinquante mille hommes dont chacun était égal aux soixante-dix du Sanhédrin.'<sup>10</sup><i class="footnote">Masehet Sotah 35b.</i>
+<b>Soixante-dix hommes, cinquante mille hommes.</sup></b> Le Targum Yonoson rend : 'Il tua parmi les anciens du peuple soixante-dix hommes, et parmi la communauté cinquante mille hommes.'<sup>9</sup><i class="footnote">Un autre avis est que ce chiffre comprend également le nombre de Philistins qui furent tués suite à leur irrévérence envers l'Arche. </i> Nos rabbins ont cependant dit : 'Soixante-dix hommes, dont chacun était égal à cinquante mille, ou cinquante mille hommes dont chacun était égal aux soixante-dix du Sanhédrin.'<sup>10</sup><i class="footnote">Masechs Sotah 35b.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

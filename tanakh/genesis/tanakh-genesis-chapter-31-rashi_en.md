@@ -8,7 +8,7 @@
 <b>Return to the land of your fathers.</b> And there I will be with you. But, while you still associate with someone unclean it is not possible to rest My Divine Presence upon you. 
 
 ### passuk 4
-<b>He called Rachel and Leah.</b> First Rachel and then Leah, for she [Rachel] was the principal wife because it was for her that Yaakov accepted to be related to Lavan. Even Leah’s descendants admit to this for Boaz and his court who were of Yehudah’s tribe say, “Like Rachel and like Leah, who both built, etc.,” placing Rachel ahead of Leah. 
+<b>He called Rochel and Leah.</b> First Rochel and then Leah, for she [Rochel] was the principal wife because it was for her that Yaakov accepted to be related to Lavan. Even Leah’s descendants admit to this for Boaz and his court who were of Yehudah’s tribe say, “Like Rochel and like Leah, who both built, etc.,” placing Rochel ahead of Leah. 
 
 ### passuk 5
 
@@ -47,14 +47,14 @@
 <b>Rescued.</b> [הִצִיל] means He separated. Similarly, all terms of הַצָלָה in Scripture has the meaning of separation for he separates him from the evil or from the enemy. 
 
 ### passuk 17
-<b>His sons and his wives.</b> He put the males ahead of the females whereas Essav put the females ahead of the males as it is said: “And Essav took his wives and sons, etc.” 
+<b>His sons and his wives.</b> He put the males ahead of the females whereas Eisov put the females ahead of the males as it is said: “And Eisov took his wives and sons, etc.” 
 
 ### passuk 18
 <b>Which he had purchased with his own livestock.</b> Meaning: that which he had obtained for his sheep: menservants, maidservants, camels and donkeys. 
 
 ### passuk 19
 <b>To shear his flock.</b> [The flock] that he had given to his sons—a distance of three-days’ travel between himself and Yaakov.
-<b>And Rachel stole the idols.</b> She intended to remove her father from idol-worship. 
+<b>And Rochel stole the idols.</b> She intended to remove her father from idol-worship. 
 
 ### passuk 20
 
@@ -90,12 +90,12 @@
 <b>Because I was afraid, etc.</b> He answered his first [question] first for he [Lavan] had [first] said to him: “You led my daughters away,” etc. 
 
 ### passuk 32
-<b>He shall not live.</b> It was due to this curse that Rachel died on the journey.
+<b>He shall not live.</b> It was due to this curse that Rochel died on the journey.
 <b>Here with me.</b> Of yours.
 
 ### passuk 33
-<b>Into Yaakov’s tent.</b> [אֹהֶל יַעֲקֹב] is the same as the tent of Rachel [It was so called] because Yaakov was constantly with her. This is similar to what is said: “The sons of Rachel, the wife of Yaakov”; whereas by the others it does not say: “The wife of Yaakov.” 
-<b>And came into Rachel’s tent.</b> When he left Leah’s tent he returned to Rachel’s tent before searching the tent of the two handmaidens. Why [did he bother doing] all this [in Rachel’s tent]? Because he knew her to be one who touches everything.
+<b>Into Yaakov’s tent.</b> [אֹהֶל יַעֲקֹב] is the same as the tent of Rochel [It was so called] because Yaakov was constantly with her. This is similar to what is said: “The sons of Rochel, the wife of Yaakov”; whereas by the others it does not say: “The wife of Yaakov.” 
+<b>And came into Rochel’s tent.</b> When he left Leah’s tent he returned to Rochel’s tent before searching the tent of the two handmaidens. Why [did he bother doing] all this [in Rochel’s tent]? Because he knew her to be one who touches everything.
 
 ### passuk 34
 <b>In the camel’s saddle-pillow.</b> Meaning the same as כָּרִים וּכְסָתוֹת —pillows and mats, as Onkelos translates it בַּעֲבִיטָא דְגַמְלָא —which is a saddlebag made like a pillow. In Eruvin [we find:] “They enclosed it with עֲבִיטִין ” which are camels’ saddlebags, <i>bastel</i> in Old French. 
@@ -128,7 +128,7 @@
 <b>You changed my wages.</b> You kept changing the condition between us, from speckled to spotted, and from streaked to ringed ones. 
 
 ### passuk 42
-<b>And the fear of Yitzchak.</b> He did not wish to say אֱלֹהֵי יִצְחָק because God does not associate His Name with the righteous while they are alive. Although He said to him [Yaakov] when he left Beer Sheva: “I am Hachem, the God of Avraham, your father, And God of Yitzchak,” because his [Yitzchak’s] eyesight had dimmed and he was therefore considered as dead. [Nevertheless] Yaakov was afraid to say אֱלֹהֵי and [instead] said וּפַחַד . 
+<b>And the fear of Yitzchok.</b> He did not wish to say אֱלֹהֵי יִצְחָק because God does not associate His Name with the righteous while they are alive. Although He said to him [Yaakov] when he left Beer Sheva: “I am Adonoy, the God of Avraham, your father, And God of Yitzchok,” because his [Yitzchok’s] eyesight had dimmed and he was therefore considered as dead. [Nevertheless] Yaakov was afraid to say אֱלֹהֵי and [instead] said וּפַחַד . 
 <b>And He reprimanded you.</b> A term meaning reproof and not a term meaning to determine.
 
 ### passuk 43

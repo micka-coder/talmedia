@@ -78,7 +78,7 @@
 <b>However, from the sins of Yerovom, etc.</b> Out of fear, that the kingdom return to the House of Dovid, as Yerovom had feared.
 
 ### passuk 30
-<b>Hachem said to Yeihu.</b> Through Yonah.
+<b>Adonoy said to Yeihu.</b> Through Yonah.
 <b>Four generations of your sons.</b> Four generations<sup>12</sup><i class="footnote">The four generations of Yeihu’s descendants are: Yehoachaz, Yehoash, Yorovom and Zecharyoh.</i> [as reward] for your having destroyed the house of Achov, which reigned for four generations: Omri, Achov, Achazyoh, and Yehorom.
 
 ### passuk 31

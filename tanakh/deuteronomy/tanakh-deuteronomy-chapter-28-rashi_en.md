@@ -60,7 +60,7 @@
 <b>Until your annihilation.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Targum: עַד דְּתֵיבָד, meaning until the annihilation of you, until you are annihilated of yourself. 
 
 ### passuk 23
-<b>The heavens above your head will be like copper.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>These curses Moshe articulated himself, while those at Mount Sinai, by the word of God he (Moshe) pronounced them, as indicated by the text: there, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>it is said, “If you do not heed ‘Me’.” “If you relate to ‘Me’ in a fickle way.” Here, however, it says, “to the voice of ‘Hachem, your God’,” “‘Hachem’ shall attach to you” “‘Hachem’ shall strike you.” Moshe moderated his curses by expressing them in the singular form. He also moderated this curse, for in the first ones, it states, “your heavens like iron and your land like copper.” The heavens will not secrete moisture, just as iron does not secrete moisture, so that the world will subsequently suffer from drought. But the land will secrete moisture, just as copper secretes moisture, so that its produce will rot. Here, however, it says, ‘Your heavens copper and your land iron,’ the heavens will secrete moisture. Although they will not pour rain, still, there won’t be a ruinous drought in the world. And the land will not secrete moisture, just as iron does not secrete moisture, so that the produce will not rot. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Still, this is a curse. Whether it is like copper or like iron, it will not produce fruit. Similarly, the heavens will not pour rain. 
+<b>The heavens above your head will be like copper.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>These curses Moshe articulated himself, while those at Mount Sinai, by the word of God he (Moshe) pronounced them, as indicated by the text: there, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>it is said, “If you do not heed ‘Me’.” “If you relate to ‘Me’ in a fickle way.” Here, however, it says, “to the voice of ‘Adonoy, your God’,” “‘Adonoy’ shall attach to you” “‘Adonoy’ shall strike you.” Moshe moderated his curses by expressing them in the singular form. He also moderated this curse, for in the first ones, it states, “your heavens like iron and your land like copper.” The heavens will not secrete moisture, just as iron does not secrete moisture, so that the world will subsequently suffer from drought. But the land will secrete moisture, just as copper secretes moisture, so that its produce will rot. Here, however, it says, ‘Your heavens copper and your land iron,’ the heavens will secrete moisture. Although they will not pour rain, still, there won’t be a ruinous drought in the world. And the land will not secrete moisture, just as iron does not secrete moisture, so that the produce will not rot. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Still, this is a curse. Whether it is like copper or like iron, it will not produce fruit. Similarly, the heavens will not pour rain. 
 
 ### passuk 24
 <b>The rain of your land into dust and soil.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>When the wind follows a rainfall. The rain falls, but insufficiently, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>not enough to settle the dust. The wind follows and lifts the dust, so that it blankets the shoots of the seeds which were moistened by the water. It becomes attached to them and turns to mud, and they wither and rot. 
@@ -133,7 +133,7 @@
 
 ### passuk 49
 <b>As the eagle soars.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Suddenly, travelling successfully, with fleet steeds. 
-<b>Whose language you will not hear.</b> You will not recognize their language. Similarly, “You listen to a dream so as to interpret it.” Similarly, “That Yossef was listening.” <i>Entendre</i> in Old French. 
+<b>Whose language you will not hear.</b> You will not recognize their language. Similarly, “You listen to a dream so as to interpret it.” Similarly, “That Yoseif was listening.” <i>Entendre</i> in Old French. 
 
 ### passuk 50
 
@@ -159,7 +159,7 @@
 ### passuk 58
 
 ### passuk 59
-<b>Hachem will strike you with prodigious blows. </b> Prodigious, classified separately from other blows. 
+<b>Adonoy will strike you with prodigious blows. </b> Prodigious, classified separately from other blows. 
 <b>And dependable.</b> To torment you, thus fulfilling their mission. 
 
 ### passuk 60
@@ -172,8 +172,8 @@
 <b>You will remain numerically few, instead, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Few instead of many. 
 
 ### passuk 63
-<b>So will Hachem bring joy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To your enemies, concerning you, to annihilate, etc. [However, the Holy One, may He be blessed, will not rejoice Himself. From here [we derive that] the Holy One, may He be blessed, does not rejoice at the downfall of the wicked. For, it is not said, “will rejoice,” but, rather, “will bring joy.” He brings joy to others, but does not rejoice. However, with the benefit of the righteous, He rejoices Himself, as it is said, “just as Hachem rejoiced over you.”] 
-<b>You will be uprooted.</b> The word denotes uprooting. Similarly, “The house of the haughty, Hachem shall uproot.” 
+<b>So will Adonoy bring joy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>To your enemies, concerning you, to annihilate, etc. [However, the Holy One, may He be blessed, will not rejoice Himself. From here [we derive that] the Holy One, may He be blessed, does not rejoice at the downfall of the wicked. For, it is not said, “will rejoice,” but, rather, “will bring joy.” He brings joy to others, but does not rejoice. However, with the benefit of the righteous, He rejoices Himself, as it is said, “just as Adonoy rejoiced over you.”] 
+<b>You will be uprooted.</b> The word denotes uprooting. Similarly, “The house of the haughty, Adonoy shall uproot.” 
 
 ### passuk 64
 <b>You shall serve there [those who serve] other gods.</b> As Targum [Onkelos] renders. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Not literally idolatry, but, rather, paying income or poll taxes to the priests of idolatry. 

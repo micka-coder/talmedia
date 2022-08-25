@@ -60,7 +60,7 @@ Le pontife expiateur devra le consommer; c’est en lieu saint qu’il sera cons
 Tout ce qui sera en contact avec sa chair deviendra saint; s’il rejaillit de son sang sur un vêtement, la place où il aura jailli sera lavée en lieu saint.
 
 ### passuk 21
-Un vaisseau d’argile où il aura bouilli, sera brisé; que s’il a bouilli dans un vaisseau de cuivre, celui-ci sera nettoyé et lavé avec de l’eau.
+Un récipient d’argile où il aura bouilli, sera brisé; que s’il a bouilli dans un récipient de cuivre, celui-ci sera nettoyé et lavé avec de l’eau.
 
 ### passuk 22
 Tout mâle parmi les pontifes pourra en manger; il est éminemment saint.

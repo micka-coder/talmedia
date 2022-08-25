@@ -84,7 +84,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>These you shall make to Hachem on your festivals.</b> Those things designated <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as obligations.
+<b>These you shall make to Adonoy on your festivals.</b> Those things designated <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as obligations.
 <b>Aside from your vows.</b> If you should decide to vow offerings during the holiday, this will be credited to you as a commendable act. Or, the vows and gifts which you pledged throughout the year, bring during the holiday, as it may be difficult for you to make the return pilgrimage to Jerusalem to offer up your pledges, and you may thus ultimately violate the prohibition of “. . .do not delay [fulfilling your pledge].” 
 
 >Credit : primo.nli.org.il (metsudah)

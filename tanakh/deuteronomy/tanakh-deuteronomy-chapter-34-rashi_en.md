@@ -19,7 +19,7 @@
 
 ### passuk 5
 <b>Moshe died there.</b> Is it possible that Moshe died, yet he wrote “Moshe died there”? Rather, until this point Moshe wrote, beyond this point, Yehoshua wrote. R’ Meir said, ‘Is it possible that the book of the Torah was incomplete when he said, “Take this book of the Torah”? Rather, the Holy One, Blessed is He, dictated, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>while Moshe wrote with teardrops. 
-<b>By the mouth of Hachem.</b> With a kiss.
+<b>By the mouth of Adonoy.</b> With a kiss.
 
 ### passuk 6
 <b>He buried him.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Holy One, Blessed is He, in His glory. R’ Yishmael said, he buried himself. This is one of three “him” wordings which R’ Yishmael interpreted this way. Similarly, “When the days of nazirite status are fulfilled he shall bring ‘him”’ — he brings himself. Similarly, “They burden ‘them’ with the sin of their guilt.” Can others burden them? Rather, they burden themselves. 
@@ -35,7 +35,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Whom Hachem knew face-to-face.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He [Moshe] had an easy familiarity with Him, and could speak with Him any time he desired, as it is said, “Now I will go up to Hachem,” “Wait, while I hear His command to you.” 
+<b>Whom Adonoy knew face-to-face.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He [Moshe] had an easy familiarity with Him, and could speak with Him any time he desired, as it is said, “Now I will go up to Adonoy,” “Wait, while I hear His command to you.” 
 
 ### passuk 11
 

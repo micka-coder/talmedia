@@ -7,7 +7,7 @@
 <b>In the heat of the day.</b> God brought the sun out of its sheath so that he would not be burdened by travelers. But, when He saw that he [Avraham] was grieved that no travelers were coming, He brought the angels to him in the guise of men. 
 
 ### passuk 2
-<b>And behold three men.</b> One to foretell to Sarah, and one to overturn Sedom, and one to heal Avraham, because one angel cannot accomplish two missions. You may be convinced of this because in the entire <i>parasha</i> they are mentioned in the plural form, [e.g.] “And <i>they</i> ate.” “<i>They</i> said to him.” Whereas at the tidings [of Sarah’s child] it states: “<i>He</i> said, ‘<i>I</i> will return to you.’” And at the overturning of Sedom it states: “For <i>I</i> can do nothing,” “<i>I</i> will not overturn.” Rephael, who healed Avraham, went from there to rescue Lot. This is what is said: “When they were brought out [of the city], <i>he</i> [the angel] said, ‘Escape for your life,’” which teaches you that [only] one was involved in rescuing [Lot]. 
+<b>And behold three men.</b> One to foretell to Sarah, and one to overturn Sedom, and one to heal Avraham, because one angel cannot accomplish two missions. You may be convinced of this because in the entire <i>parshah</i> they are mentioned in the plural form, [e.g.] “And <i>they</i> ate.” “<i>They</i> said to him.” Whereas at the tidings [of Sarah’s child] it states: “<i>He</i> said, ‘<i>I</i> will return to you.’” And at the overturning of Sedom it states: “For <i>I</i> can do nothing,” “<i>I</i> will not overturn.” Rephael, who healed Avraham, went from there to rescue Lot. This is what is said: “When they were brought out [of the city], <i>he</i> [the angel] said, ‘Escape for your life,’” which teaches you that [only] one was involved in rescuing [Lot]. 
 <b>Standing over him.</b> [Meaning:] “next to him,” as in [וְעָלָיו] “Next to him was the Tribe of Menasheh.” It [וְעָלָיו] is just a respectful term used when referring to angels. 
 <b>He saw [them].</b> Why is וַיַּרְא written twice [in this verse]? The first is as it seems [i.e., and saw], whereas, the second means “understanding:” he saw them remain standing in one place and he understood that they did not wish to trouble him. He then quickly ran towards them. In Bava Metzia [there is another explanation]: First it says: “Standing over him” and then it says: “He ran to greet them.” [The answer is:] when they saw him as he was untying and tying [his bandages] they distanced themselves from him. Immediately, “He ran to greet them.” 
 
@@ -84,17 +84,17 @@
 <b>So that [He] will bring.</b> Thus he commands his children: “Keep the way of God so that God will bring upon Avraham,” etc. It does not say “upon the <i>house</i> of Avraham” but, rather, “upon <i>Avraham</i>.” We learn from this that he who produces a righteous son is considered as not having died. 
 
 ### passuk 20
-<b>Hachem said.</b> To Avraham. That He [God] did as He said, [i.e.,] that He will not conceal from him. 
+<b>Adonoy said.</b> To Avraham. That He [God] did as He said, [i.e.,] that He will not conceal from him. 
 <b>Is so great.</b> Wherever רָבָּה appears in Scripture the accent is on the latter syllable—the letter ב because they are translated as “great” or “becoming great.” Whereas, [regarding] this one, the former syllable is accented on the letter ר because it is translated that it had already become great as I have previously explained: “The sun set,” and, similarly: “Behold your sister has returned.” 
 
 ### passuk 21
-<b>I will descend now.</b> This is [only] to serve as a lesson to judges not to rule on matters of capital punishment unless they see it. All as I have explained in the <i>parasha</i> dealing with the “dispersion.” Another explanation: “I will fathom the depths of their deeds.”
+<b>I will descend now.</b> This is [only] to serve as a lesson to judges not to rule on matters of capital punishment unless they see it. All as I have explained in the <i>Parshah</i> dealing with the “dispersion.” Another explanation: “I will fathom the depths of their deeds.”
 <b>If their wailing.</b> Of the country.
 <b>Which has come to Me is indicative of their conduct.</b> And [if] they maintain their rebelliousness I will make an end of them. But, “if [they do] not” maintain their rebelliousness “I will know” what to do punishing them [only] with suffering so that I [need] not destroy them. Similarly we find in another place, “Now, remove your ornaments from yourself <i>so that I may know</i> what to do to you.” Therefore, there is a separation of a פְּסִיק between עָשׂוּ and כָּלָה in order to pause between one word and the next. Our Sages explained הַכְּצַעֲקָתָהּ [as referring to] the cry of a certain maiden whom they killed with a horrible death because she gave food to a poor person as is explained in Chapter <i>Chelek.</i> 
 
 ### passuk 22
 <b>They [the men] turned from where they were.</b> [I.e.,] from the place to which Avraham accompanied them. 
-<b>Avraham was still standing before Hachem.</b> But is it not so that he [Avraham] did not go to stand before Him? Rather, it was God who came to him and said to him, “The wailing concerning Sedom and Amorah is so great,” and it should have been written: “God was still standing near Avraham,” but, it is an emendation of the Scribes. 
+<b>Avraham was still standing before Adonoy.</b> But is it not so that he [Avraham] did not go to stand before Him? Rather, it was God who came to him and said to him, “The wailing concerning Sedom and Amorah is so great,” and it should have been written: “God was still standing near Avraham,” but, it is an emendation of the Scribes. 
 
 ### passuk 23
 <b>Avraham came forward.</b> We find the term הַגָּשָׁה [approach] to wage war: “Yoav approached,” etc., and הַגָּשָׁה used to denote “entreaty”: “Yehudah approached him,” and הַגָּשָׁה to denote prayer: “Eliyahu the Prophet approached.” Avraham’s “approaching” was for all these: 1) to speak sternly, 2) to entreat and 3) to pray. 
@@ -131,7 +131,7 @@
 <b>Suppose ten are found there?</b> For anything less he made no request [because] he thought: The flood generation had eight. Noach, his children and their wives, and they did not save their generation, and for nine, including counting [God] he had already asked but could not find. 
 
 ### passuk 33
-<b>Hachem departed.</b> Once the defender is silenced the Judge leaves.
+<b>Adonoy departed.</b> Once the defender is silenced the Judge leaves.
 <b>And Avraham returned to his place.</b> Once the Judge leaves, the defender leaves and the prosecutor accuses and as a result: “The two angels came to Sedom,” to destroy. 
 
 >Credit : primo.nli.org.il (metsudah)

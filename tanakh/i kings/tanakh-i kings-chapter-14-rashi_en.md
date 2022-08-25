@@ -48,7 +48,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>The city that Hachem had chosen.</b> Yet, even so,
+<b>The city that Adonoy had chosen.</b> Yet, even so,
 
 ### passuk 22
 <b>And Yehudah did what was evil.</b> And they did not pay attention to this.

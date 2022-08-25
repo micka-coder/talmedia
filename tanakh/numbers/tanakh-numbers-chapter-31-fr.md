@@ -57,7 +57,7 @@ Quant à celles qui, encore enfants, n’ont pas cohabité avec un homme, conser
 De plus, restez sept jours hors du camp: vous tous qui avez tué une personne ou touché à quelque cadavre, vous devez vous purifier le troisième et le septième jour, vous et vos prisonniers.
 
 ### passuk 20
-De même tout vêtement, tout ustensile de peau, tout objet fait de poil de chèvre et tout vaisseau de bois, ayez soin de le purifier."
+De même tout vêtement, tout ustensile de peau, tout objet fait de poil de chèvre et tout récipient de bois, ayez soin de le purifier."
 
 ### passuk 21
 Eléazar le pontife dit aux hommes de la milice, qui avaient pris part au combat: "Ceci est un statut de la loi que l’Éternel a donnée à Moïse.

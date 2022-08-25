@@ -21,7 +21,7 @@ C’est qu’ils ont vu: aussitôt ils furent frappés de stupeur, l’épouvant
 Là un frisson s’empara d’eux, une angoisse comme d’une femme qui enfante:
 
 ### passuk 8
-par le vent d’Est, tu as brisé les vaisseaux de Tarsis.
+par le vent d’Est, tu as brisé les récipientx de Tarsis.
 
 ### passuk 9
 Ce que nous avions entendu, nous l’avons vu dans la ville de l’Éternel-Cebaot, la ville de notre Dieu: Dieu l’a affermie pour l’éternité. Sélah!

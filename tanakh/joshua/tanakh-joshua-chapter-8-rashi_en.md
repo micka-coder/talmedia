@@ -32,7 +32,7 @@
 
 ### passuk 13
 <b>The people positioned.</b> This positioning expresses readiness to wage war near the [city] wall. This is similar to what is said regarding Ben-Hadad, in I Melachim 20:12, (who said to his servants:) “Position yourselves against the city and they positioned themselves.”
-<b>And their ambush party</b> their ambushers this word עַקֵבוֹ is similar to וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereishis 27:36. Essav said regarding Yaakov, וַיַעְקְבֵנִי זֶה פַּעֲמַיִם “He has deceived me twice.” An ambush implies cunning and trickery.</i>
+<b>And their ambush party</b> their ambushers this word עַקֵבוֹ is similar to וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereishis 27:36. Eisov said regarding Yaakov, וַיַעְקְבֵנִי זֶה פַּעֲמַיִם “He has deceived me twice.” An ambush implies cunning and trickery.</i>
 <b>That night, Yehoshua walked through the valley </b> Our Sages have said that he lodged in the depth of the law.<sup>6</sup><i class="footnote">Our Sages interpreted the word עֵמֶק as an expression of depth, and they say he spent the night studying Torah. After all the preparations were made and orders given, Yehoshua had time to return to the study of Torah, which is the real protection in time of crisis. He remembered the rebuke of the angel on the night before the fall of Yericho.</i>
 
 ### passuk 14

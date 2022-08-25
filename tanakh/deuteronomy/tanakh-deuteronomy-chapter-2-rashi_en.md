@@ -13,13 +13,13 @@
 
 ### passuk 5
 <b>As much as [lit. until] a footstep.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Even as much as a footstep, in other words, I do not permit you even as much as a footstep <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to pass through their land, unless they grant you permission. A Midrashic explanation: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Until the day comes when there will be footsteps upon the Mount of Olives, as it is said, ‘And his feet shall stand etc.’ 
-<b>Essav’s inheritance.</b> from Avrohom. I gave (promised) the land of ten nations to him; seven of which will be yours. The lands of the Kainites, Kenizzites and Kadmonites, which are actually Amon, Moav and Seir — One of them belongs to Essav, And [the other] two to the children of Lot, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as a reward for his going along with him [Avrohom] to Egypt and for remaining silent when they said regarding his wife [Soroh] that she was his sister. He [God] therefore treated him [Lot] like his son. 
+<b>Eisov’s inheritance.</b> from Avrohom. I gave (promised) the land of ten nations to him; seven of which will be yours. The lands of the Kainites, Kenizzites and Kadmonites, which are actually Amon, Moav and Seir — One of them belongs to Eisov, And [the other] two to the children of Lot, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as a reward for his going along with him [Avrohom] to Egypt and for remaining silent when they said regarding his wife [Soroh] that she was his sister. He [God] therefore treated him [Lot] like his son. 
 
 ### passuk 6
 <b>You are to purchase.</b> תִּכְרוּ is an expression indicating purchase. Similarly, ‘I have acquired for myself’; for in the cities on the sea-shore they refer to selling as כִּירָה . 
 
 ### passuk 7
-<b>For Hachem your God has blessed you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Therefore do not show ingratitude by showing yourselves to be poor, but show yourselves to be rich. 
+<b>For Adonoy your God has blessed you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Therefore do not show ingratitude by showing yourselves to be poor, but show yourselves to be rich. 
 
 ### passuk 8
 <b>We turned and passed over.</b> Northward. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>We turned our faces to travel along the eastern side.
@@ -33,7 +33,7 @@
 
 ### passuk 11
 <b>They, too, were considered Rephaim.</b> Those Eimin were considered Rephaim like the Anokim who were called Rephaim. They were called [Rephaim] because everyone who saw them — their hands became weak (רָפָה) [from fright]. 
-<b>Eimim.</b> They were so called because the fear of them (אֵימָה) was inflicted upon the people. So too: “And in Seir lived the Chorim,” and I gave them into [the hands] of Essav’s descendants. 
+<b>Eimim.</b> They were so called because the fear of them (אֵימָה) was inflicted upon the people. So too: “And in Seir lived the Chorim,” and I gave them into [the hands] of Eisov’s descendants. 
 
 ### passuk 12
 <b>Drove them out.</b> This denotes constancy as if to say: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>I gave them the power to enable them to drive them out continuously.
@@ -46,7 +46,7 @@
 <b>Attacked them.</b> In order to rout them quickly within forty years time so as not to cause their children <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to be further delayed in the wilderness.
 
 ### passuk 16
-<b>When they had finished. Hachem addressed me.</b> However, from the time the spies were sent until now, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the word וַיְדַבֵּר was not mentioned, only וַיֹּאמֶר, this was to teach that during the entire thirty-eight years that the Israelites were condemned, the דִּבּוּר [Divine] word was not uniquely with him as an expression of affection — face to face and with philosophic composure. This teaches that the <i>Shechinah,</i> the Divine Presence, rests on the prophets only for the sake of Yisroel. 
+<b>When they had finished. Adonoy addressed me.</b> However, from the time the spies were sent until now, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the word וַיְדַבֵּר was not mentioned, only וַיֹּאמֶר, this was to teach that during the entire thirty-eight years that the Israelites were condemned, the דִּבּוּר [Divine] word was not uniquely with him as an expression of affection — face to face and with philosophic composure. This teaches that the <i>Shechinah,</i> the Divine Presence, rests on the prophets only for the sake of Yisroel. 
 <b>The men of war.</b> Those over twenty years old who were eligible to go to the Army.
 
 ### passuk 17
@@ -72,14 +72,14 @@
 <b>Under the whole heaven.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that the sun stood still for Moshe on the day of the war against Og, and [the victory] became known under the whole heaven. 
 
 ### passuk 26
-<b>From the wilderness of Kedeimos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Even though the Almighty did not command me to declare peace to Sichon, I learned to do so from [what happened] in the wilderness of Sinai, from [the giving of] the Torah which preceded קָּדְמָה [the creation of] the world. When the Holy One Blessed is He, came to give [the Torah to] Bnei Yisroel, He solicited Essav and Yishmael about it [first]. It was certainly known to Him that they would not accept it but nevertheless He greeted them in peace. Similarly, I too approached Sichon with words of peace. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another explanation of “From the wilderness of Kedeimos”: From You I learned — [from You] Who existed before the creation of the world. You could have sent one bolt of lightning to burn up the Egyptians, but You sent me from the wilderness to go to Pharaoh to say to him gently, “Send My people.” 
+<b>From the wilderness of Kedeimos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Even though the Almighty did not command me to declare peace to Sichon, I learned to do so from [what happened] in the wilderness of Sinai, from [the giving of] the Torah which preceded קָּדְמָה [the creation of] the world. When the Holy One Blessed is He, came to give [the Torah to] Bnei Yisroel, He solicited Eisov and Yishmael about it [first]. It was certainly known to Him that they would not accept it but nevertheless He greeted them in peace. Similarly, I too approached Sichon with words of peace. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another explanation of “From the wilderness of Kedeimos”: From You I learned — [from You] Who existed before the creation of the world. You could have sent one bolt of lightning to burn up the Egyptians, but You sent me from the wilderness to go to Pharaoh to say to him gently, “Send My people.” 
 
 ### passuk 27
 
 ### passuk 28
 
 ### passuk 29
-<b>As the descendants of Essav did for me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This does not refer to [our] passing through their land but only regarding their selling food and water.
+<b>As the descendants of Eisov did for me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This does not refer to [our] passing through their land but only regarding their selling food and water.
 <b>Until I will have crossed the Yardein.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the statement, “Let me pass through [your land]. 
 
 ### passuk 30
@@ -102,7 +102,7 @@
 
 ### passuk 37
 <b> כָּל יַד נַחַל יַבֹּק .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>All along Wadi Yabok.
-<b>Everything Hachem our God [commanded us] — </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>not to capture, we left [uncaptured]. 
+<b>Everything Adonoy our God [commanded us] — </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>not to capture, we left [uncaptured]. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

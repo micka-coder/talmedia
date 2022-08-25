@@ -29,7 +29,7 @@
 <b> would take the tent.</b> [יִקַּח] is an ongoing action (present tense): he would take his tent and pitch it outside the encampment. He thought: one who is ostracized by the master ought to be ostracized by the disciple as well.
 <b>A distance —</b> of two thousand <i>amohs,</i> similar to what is said: “Only let there be a distance between you (the B’nei Yisrael) and it (the Ark) of about two thousand <i>amohs</i> by measure.” 
 <b>And he called it.</b> He would refer to it as Tent of Meeting — a gathering place for those who seek knowledge of Torah.
-<b>Everyone who sought Hachem.</b> From here [we derive] that one who seeks to be in the presence of an “elder” (a Torah scholar) is as if he is in the presence of the Shechinah.
+<b>Everyone who sought Adonoy.</b> From here [we derive] that one who seeks to be in the presence of an “elder” (a Torah scholar) is as if he is in the presence of the Shechinah.
 <b>Would go out to the Tent of Meeting.</b> [יֵצֵא here is] the same [tense] as יוֹצֵא (i.e., present tense). An alternate explanation of וְהָיָה כָּל מְבַקֵּשׁ ה' . Even the ministering angels, when they would inquire as to the place of the Shechinah their fellow-angels would say to them: “But He is there in Moshe’s tent”! 
 
 ### passuk 8
@@ -45,7 +45,7 @@
 <b>Prostrated themselves —</b> to the <i>Shechinah.</i>
 
 ### passuk 11
-<b>Hachem spoke to Moshe face to face.</b> The correct reading of Onkelos is וּמִתְמַלֵּל עִם משֶׁה .
+<b>Adonoy spoke to Moshe face to face.</b> The correct reading of Onkelos is וּמִתְמַלֵּל עִם משֶׁה .
 <b>He returned to the camp —</b> after [God’s] conversing with him Moshe would return to the encampment and teach the elders what he had learned. Moshe acted in this way from Yom Kippur until the <i>mishkon</i> was erected but not longer. For on the 17th of Tammuz the tablets were broken and on the 18th he burned the Calf and judged the sinners and on the nineteenth he went up [the mountain], as it says: “The next day Moshe said to the people, etc.” and spent forty days there and asked for mercy [for the B’nei Yisrael], “and he would return to the encampment,” because it is in the present (ongoing) tense. The same applies to this whole section: וְרָאָה כָל הָעָם (v. 10) is וַחֲזַן — “would see,” וְנִצָבוּ (v. 8) is וִקַיְימִין — “they would rise,” וְהִבִּיטוּ (ibid.) is וּמִסְתַּכְּלִין — “they would gaze,” וְהִשְׁתַּחֲווּ (v. 10) is וְסָגְדִין — “they would bow.” But its midrashic explanation is: 
 <b>God spoke to Moshe</b> that he must return to the encampment; he said to him: “I am angry and you are angry; if so, who will again bring them near to me.” 
 
@@ -76,7 +76,7 @@
 
 ### passuk 19
 <b>He (God) said, “I will cause all My goodness to pass, etc.”</b> I.e., “The time has come for you to see of My Glory, that which I will allow you to see, because I want and need to teach you the order of prayer. For, when you needed to ask for mercy for the Israelites, You reminded Me of the merit of the Patriarchs. You thought that were the merit of the Patriarchs to be exhausted there would no longer be any hope. I will, therefore, cause to pass all the attributes of My goodness before you on the rock while you are concealed in the cave. 
-<b>And will proclaim the Name, Hachem, in your presence —</b> so as to teach you the order of asking for mercy even if the merit of the Patriarchs is exhausted. And in this order that you see Me, “wrapped [in a Talit]” while proclaiming “the thirteen attributes,” teach Yisrael to do likewise. And by mentioning before Me [My attributes] “Merciful One! Gracious One” they will be answered, for My mercies are never exhausted. 
+<b>And will proclaim the Name, Adonoy, in your presence —</b> so as to teach you the order of asking for mercy even if the merit of the Patriarchs is exhausted. And in this order that you see Me, “wrapped [in a tallis]” while proclaiming “the thirteen attributes,” teach Yisrael to do likewise. And by mentioning before Me [My attributes] “Merciful One! Gracious One” they will be answered, for My mercies are never exhausted. 
 <b>I will be gracious to whom I will be gracious.</b> [I.e.,] those times that I will wish to be gracious. 
 <b>And I will be compassionate —</b> those times that I will wish to be compassionate. Up to this point He only promised him that “at times I will respond, at times I will not respond.” But at that time [when He actually proclaimed His attributes,] He said to him: “Behold, I establish a covenant,” thus promising him [that once the Attributes are invoked] they will never return unanswered (lit. empty). 
 

@@ -48,7 +48,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Hachem, You.</b> We know that You will remain forever. And because that is so... 
+<b>Adonoy, You.</b> We know that You will remain forever. And because that is so... 
 
 ### passuk 20
 <b>Why [then O Eternal] do You forget us.</b> Have You not sworn to us Yourself that just as You exist, so does Your oath exist? 
@@ -57,7 +57,7 @@
 
 ### passuk 22
 <b>For although You may have considered us contemptible.</b> Although we have sinned, [nonetheless] You should not have been angered as much as You have been. 
-<b>Hachem return us.</b> Because he concludes with words of reproof, he had to repeat the preceding verse again,<sup>14</sup><i class="footnote">In order to end on a note of consolation. </i> and so did Yeshayahu, Trei Osor, and Koheles. 
+<b>Adonoy return us.</b> Because he concludes with words of reproof, he had to repeat the preceding verse again,<sup>14</sup><i class="footnote">In order to end on a note of consolation. </i> and so did Yeshayahu, Trei Osor, and Koheles. 
 
 >Credit : sefaris
 >License : CC-BY

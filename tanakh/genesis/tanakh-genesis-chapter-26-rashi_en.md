@@ -2,13 +2,13 @@
 ### passuk 1
 
 ### passuk 2
-<b>Do not go down to Egypt.</b> Because he [Yitzchak] intended to go down to Egypt as his father had gone down during the days of the famine. He [God] said to him, “Do not go down to Egypt for you are a burnt-offering without blemish and being outside the [Holy] land does not befit you.” 
+<b>Do not go down to Egypt.</b> Because he [Yitzchok] intended to go down to Egypt as his father had gone down during the days of the famine. He [God] said to him, “Do not go down to Egypt for you are a burnt-offering without blemish and being outside the [Holy] land does not befit you.” 
 
 ### passuk 3
 <b>These.</b> [הָאֵל is] the same as הָאֵלֶּה [these]. 
 
 ### passuk 4
-<b>Through your descendants shall be blessed.</b> [Meaning:] a man will say to his son, “May your children be like the children of Yitzchak.” This [phrase] has similar meaning in all Scripture. And the following [verse] is the archetype of all: “Through you shall [the People of] Israel bless, saying: ‘May Elohim make you [as Ephraim and Menasheh].’” We also find this concerning a curse: “And the woman shall be a curse” whereby one who curses his enemy says, “May you be like that particular woman.” Similarly: “May you leave your name as an oath to my chosen,” whereby one who takes an oath says, “May I be as that particular person if I did such and such.” 
+<b>Through your descendants shall be blessed.</b> [Meaning:] a man will say to his son, “May your children be like the children of Yitzchok.” This [phrase] has similar meaning in all Scripture. And the following [verse] is the archetype of all: “Through you shall [the People of] Israel bless, saying: ‘May Elohim make you [as Ephraim and Menasheh].’” We also find this concerning a curse: “And the woman shall be a curse” whereby one who curses his enemy says, “May you be like that particular woman.” Similarly: “May you leave your name as an oath to my chosen,” whereby one who takes an oath says, “May I be as that particular person if I did such and such.” 
 
 ### passuk 5
 <b>Avraham listened to my voice.</b> When I put him to the test.
@@ -41,7 +41,7 @@
 <b>A hundred fold.</b> For they had estimated the amount it ought to produce and for every one estimated, it produced one hundred. Our Sages said, the purpose of this estimate was for tithing. 
 
 ### passuk 13
-<b>He became very great.</b> So that people would say: “[Rather] the dung of Yitzchak’s mules than the silver and gold of Avimelech.”
+<b>He became very great.</b> So that people would say: “[Rather] the dung of Yitzchok’s mules than the silver and gold of Avimelech.”
 
 ### passuk 14
 <b>And many slaves.</b> [Meaning:] a great deal of work [or production], <i>ovreine</i> in Old French. עֲבוֹדָה denotes one particular labor [whereas] עֲבֻדָּה denotes a great deal of production. 
@@ -55,7 +55,7 @@
 <b>In the valley of Gerar.</b> Far away from the city.
 
 ### passuk 18
-<b>Returned, excavated.</b> [Meaning:] those wells that they had dug in the days of his father Avraham and which the Philistines had stopped up, before Yitzchak departed from Gerar he again dug them. 
+<b>Returned, excavated.</b> [Meaning:] those wells that they had dug in the days of his father Avraham and which the Philistines had stopped up, before Yitzchok departed from Gerar he again dug them. 
 
 ### passuk 19
 
@@ -99,10 +99,10 @@
 <b>Shiva.</b> so called because of the covenant.
 
 ### passuk 34
-<b>Forty years old.</b> Essav is compared to a pig as it is said: “The boar of the forest ravages it.” When the pig lies down it stretches out its hooves as if to say, “See, I am a clean animal.” So, too, these, the descendants of Essav, rob and extort and make pretensions of being honorable. For [the first] forty years Essav would kidnap wives from their husbands and take them forcibly; when he turned forty he said, “Father was forty when he married and I will do likewise.” 
+<b>Forty years old.</b> Eisov is compared to a pig as it is said: “The boar of the forest ravages it.” When the pig lies down it stretches out its hooves as if to say, “See, I am a clean animal.” So, too, these, the descendants of Eisov, rob and extort and make pretensions of being honorable. For [the first] forty years Eisov would kidnap wives from their husbands and take them forcibly; when he turned forty he said, “Father was forty when he married and I will do likewise.” 
 
 ### passuk 35
-<b>Rebellious of spirit.</b> An expression meaning: a spirit of rebellion, as in: “[מַמְרִים] You were rebellious.” All their deeds were to anger and cause grief to Yitzchak and to Rivkah because they worshiped idols. 
+<b>Rebellious of spirit.</b> An expression meaning: a spirit of rebellion, as in: “[מַמְרִים] You were rebellious.” All their deeds were to anger and cause grief to Yitzchok and to Rivkah because they worshiped idols. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

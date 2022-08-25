@@ -54,7 +54,7 @@ Ainsi parle l’Éternel: Voici qui t’apprendra que je suis l’Éternel! Je v
 Les poissons du fleuve périront et le fleuve deviendra infect et les Égyptiens renonceront à boire de ses eaux.’ "
 
 ### passuk 19
-L’Éternel dit à Moïse: "Parle ainsi à Aaron: ‘Prends ta verge, dirige ta main sur les eaux des Égyptiens, sur leurs fleuves, sur leurs canaux, sur leurs lacs, sur tous leurs réservoirs, et elles deviendront du sang et il n’y aura que du sang dans tout le pays d’Égypte, même dans les vaisseaux de bois et de pierre.’ "
+L’Éternel dit à Moïse: "Parle ainsi à Aaron: ‘Prends ta verge, dirige ta main sur les eaux des Égyptiens, sur leurs fleuves, sur leurs canaux, sur leurs lacs, sur tous leurs réservoirs, et elles deviendront du sang et il n’y aura que du sang dans tout le pays d’Égypte, même dans les récipientx de bois et de pierre.’ "
 
 ### passuk 20
 Moïse et Aaron agirent ainsi qu’avait ordonné l’Éternel: Aaron leva la verge, frappa les eaux du fleuve à la vue de Pharaon et de ses serviteurs et toutes les eaux du fleuve se changèrent en sang.

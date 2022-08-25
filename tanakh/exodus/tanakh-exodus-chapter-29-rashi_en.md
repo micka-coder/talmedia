@@ -82,14 +82,14 @@
 <b>And one wafer —</b> of the wafers; one each out of the ten of each kind. Nowhere do we find that a <i>terumah</i> of bread brought together with an animal <i>korbon,</i> is burnt [on the altar], except for this one, because the <i>terumah</i> of the breads of a thanksgiving-offering, and of a ram brought by a <i>Nazir,</i> was given to the <i>kohanim</i> along with the breast and shoulder, whereas from this one, Moshe received as his portion only the breast alone. 
 
 ### passuk 24
-<b>Upon the hands of Aharon, etc. and you shall wave.</b> Both participated in the waving — the “owner” and the <i>Kohen.</i> How is this done? The <i>Kohen</i> places his hand beneath the hand of the “owner” and waves. In this case Aharon and his sons were the “owners,” and Moshe [was] the <i>Kohen.</i> 
+<b>Upon the hands of Aharon, etc. and you shall wave.</b> Both participated in the waving — the “owner” and the <i>kohein.</i> How is this done? The <i>kohein</i> places his hand beneath the hand of the “owner” and waves. In this case Aharon and his sons were the “owners,” and Moshe [was] the <i>kohein.</i> 
 <b>A wave-offering.</b> He brings it back and forth [in all four directions] to the One to Whom the four sides of the world belong. Waving served to prevent and nullify misfortune and harmful winds. Then he brings it up and down to the One to Whom heaven and earth belong. which serves to prevent harmful dews.
 
 ### passuk 25
 <b>After the burnt-offering.</b> [Meaning:] after the earlier ram which you had already brought up as a burnt-offering.
 <b>As a pleasing fragrance.</b> [I.e.], as something pleasing to He Who commanded and His will was done. 
 <b>A fire-offering.</b> [I.e.] it is put on the ( אֵשׁ ) fire.
-<b>To Hachem.</b> [I.e.] for the sake of the Name of God.
+<b>To Adonoy.</b> [I.e.] for the sake of the Name of God.
 
 ### passuk 26
 
@@ -99,7 +99,7 @@
 <b>Uplifted.</b> [הוּרם is] a term for up and down movement.
 
 ### passuk 28
-<b>By statute forever from the B’nei Yisrael —</b> that the שְׁלָמִים -offerings to go to the “owners” and that the breast and shoulder be given to the <i>Kohen.</i>
+<b>By statute forever from the B’nei Yisrael —</b> that the שְׁלָמִים -offerings to go to the “owners” and that the breast and shoulder be given to the <i>kohein.</i>
 <b>For it is a terumah-offering —</b> this breast and shoulder.
 
 ### passuk 29
@@ -109,9 +109,9 @@
 
 ### passuk 30
 <b>Seven days.</b> [They must be] consecutive.
-<b>Shall they be worn ... the Kohen.</b> The one of his sons who will rise up in his place to the high priesthood when he will be appointed to be the <i>Kohen godol.</i>
-<b>Who will come into the Tent of Meeting.</b> [I.e.] that <i>Kohen</i> who has been prepared to enter the innermost part [of the <i>mikdosh</i> or <i>mishkon</i>] on Yom Kippur and that is the <i>Kohen godol</i> without whom the Yom Kippur service is unfit.
-<b>By one of his sons who serves in his place.</b> This teaches that if the <i>Kohen godol</i> has a son who can fill his position they should appoint him <i>Kohen godol</i> in his place.
+<b>Shall they be worn ... the kohein.</b> The one of his sons who will rise up in his place to the high priesthood when he will be appointed to be the <i>kohein godol.</i>
+<b>Who will come into the Tent of Meeting.</b> [I.e.] that <i>kohein</i> who has been prepared to enter the innermost part [of the <i>mikdosh</i> or <i>mishkon</i>] on Yom Kippur and that is the <i>kohein godol</i> without whom the Yom Kippur service is unfit.
+<b>By one of his sons who serves in his place.</b> This teaches that if the <i>kohein godol</i> has a son who can fill his position they should appoint him <i>kohein godol</i> in his place.
 <b> הַכֹּהֵן תַּחְתָּיו מִבָּנָיו .</b> From here there is evidence that every use of the word כֹּהֵן is a participle — the one actually doing service. [Furthermore,] it is for this reason that the mark of the intonation [of the word הַכֹּהֵן] is a תְּבִיר , which connects it to the next word. 
 
 ### passuk 31
@@ -125,7 +125,7 @@
 <b>Through which atonement was achieved —</b> for them, from being “strange” and objectionable. 
 <b>To install them —</b> by means of the ram and these breads.
 <b>To sanctify them.</b> I.e., that by means of these מִלּוּאִים -offerings they were installed <i>and</i> sanctified to the priesthood. 
-<b>For they are sacred.</b> Holy of Holies. it is from here that we derive the admonition against a “stranger” (a non-<i>Kohen</i>) eating from [<i>korbonos</i> that are] Holy of Holies, since Scripture gives the reason for this thing: “for they are sacred.” 
+<b>For they are sacred.</b> Holy of Holies. it is from here that we derive the admonition against a “stranger” (a non-<i>kohein</i>) eating from [<i>korbonos</i> that are] Holy of Holies, since Scripture gives the reason for this thing: “for they are sacred.” 
 
 ### passuk 34
 

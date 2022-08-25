@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>Et voici à l'entrée de la porte [vingt-cinq hommes]</b> Ce sont les mêmes que ceux qu'il a mentionnés plus haut (ad loc.) : "leurs dos au Temple du Seigneur" sauf qu'il n'a pas expliqué là qui ils étaient, et ici il délimite les noms de deux d'entre eux.
+<b>Et voici qu'à l'entrée de la porte [vingt-cinq hommes]</b> Ce sont ceux-là mêmes qu'il a mentionnés plus haut (ad loc.) : "leur dos au Temple du Seigneur" sauf qu'il n'a pas expliqué là qui ils étaient, et ici il délimite les noms de deux d'entre eux.
 
 ### passuk 2
 
 ### passuk 3
-<b>Ceux qui disent : "Il n'est pas proche'</b> que les paroles des prophètes viennent sur nous .
+<b>Ceux qui disent : 'Il n'est pas près'</b> que les paroles des prophètes viennent sur nous .
 <b>Construisez des maisons</b> Nous n'avons pas à nous préoccuper d'eux ; construisez plutôt des maisons dans lesquelles vous pourrez habiter, car nous ne serons pas exilés de cette ville avant notre mort.
 <b>C'est la marmite, et nous sommes la viande</b> De même que la viande n'est pas retirée de la marmite avant d'avoir été complètement cuite, nous ne la quitterons pas non plus jusqu'à notre mort.
 
@@ -18,15 +18,15 @@
 ### passuk 6
 
 ### passuk 7
-<b>Sortir</b> Heb.  הוֹצִיא, comme  לְהוֹצִיא  pour sortir. C'est en vain que vous avez bâti les maisons, car vous partirez en exil, les pères et les fils, et personne n'héritera des maisons.
+<b>Sortir</b> Heb. הוֹצִיא, comme לְהוֹצִיא sortir. C'est en vain que vous avez bâti les maisons, car vous partirez en exil, les pères et les fils, et personne n'héritera des maisons.
 
 ### passuk 8
-<b>Vous avez craint l'épée</b> lorsque vous vous êtes tournés vers le roi d'Egypte pour lui demander de l'aide, comme il est dit à propos de Sédécias (17:15) : " Et il s'est rebellé contre lui (le roi de Babylone) en envoyant ses émissaires en Egypte ".
+<b>Vous avez craint l'épée</b> lorsque vous vous êtes tournés vers le roi d'Égypte pour obtenir de l'aide, comme il est dit à propos de Sédécias (17:15) : "Et il s'est rebellé contre lui (le roi de Babylone) en envoyant ses émissaires en Égypte".
 
 ### passuk 9
 
 ### passuk 10
-<b>A la frontière d'Israël</b> A l'extrémité de la frontière ; c'est Ribla, le pays de Hamath, qui est Antioche. C'est là que Sédécias fut jugé par Nabuchodonosor, comme l'indique le Livre des Rois (II) (25, 6s). C'est là qu'il a massacré ses fils, c'est là qu'il s'est crevé les yeux. Et c'est la fin de la frontière, comme il est dit à propos des espions et en de nombreux endroits (Num. 13, 21) : " jusqu'à ... l'arrivée à Hamath ".
+<b>Par la frontière d'Israël</b> A l'extrémité de la frontière ; c'est Ribla, le pays de Hamath, qui est Antioche. C'est là que Sédécias fut jugé par Nabuchodonosor, comme l'indique le Livre des Rois (II) (25, 6s). C'est là qu'il a massacré ses fils, c'est là qu'il s'est crevé les yeux. Et c'est la fin de la frontière, comme il est dit à propos des espions et en de nombreux endroits (Num. 13, 21) : "jusqu'à... l'arrivée à Hamath."
 
 ### passuk 11
 <b>Il ne deviendra pas pour toi une marmite</b> [Une marmite,] qui retient ses morceaux jusqu'à ce qu'ils soient complètement cuits.
@@ -42,7 +42,7 @@
 ### passuk 15
 <b>Vos frères, vos frères</b> L'exil de Samarie et l'exil de Jeconiah.
 <b>et toute la maison d'Israël</b> qui sont partis en exil.
-<b>A qui...dit</b> A qui les habitants de Jérusalem qui n'ont pas été exilés avec Jéconia, sur lequel Nabuchodonosor a intronisé Sédécias, ont dit. Maintenant, ils se moquent de leurs frères qui ont été exilés, et ils disent d'eux : "Ils se sont éloignés du Seigneur".
+<b>A qui...dit</b> A qui les habitants de Jérusalem qui n'ont pas été exilés avec Jéconia, sur lequel Nabuchodonosor a intronisé Sédécias, ont dit. Maintenant, ils se moquent de leurs frères qui ont été exilés, et ils disent d'eux : "Ils se sont éloignés du Seigneur."
 
 ### passuk 16
 <b>Un sanctuaire mineur</b> Les synagogues, qui occupent une position seconde par rapport au Temple.
@@ -64,7 +64,7 @@
 <b>Alors les chérubins se sont levés</b> Après avoir terminé ses paroles à mon égard, il est parti.
 
 ### passuk 23
-<b>Sur la montagne qui était à l'est de la ville</b> C'est le mont des Oliviers, qui est à l'est de la ville, et c'est la troisième étape [du départ de la Shechinah].
+<b>sur la montagne qui était à l'est de la ville</b> C'est le mont des Oliviers, qui est à l'est de la ville, et c'est la troisième étape [du départ de la Shechinah].
 
 ### passuk 24
 <b>Dans la vision, avec l'esprit de Dieu</b> Il me semblait qu'Il me ramenait maintenant de Jérusalem à Babylone.

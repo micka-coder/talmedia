@@ -54,7 +54,7 @@ La Gemara relate : <b>Rav Sheshet avait un crédit [<i>asharta</i>] de manteaux 
 <b>Enfin, il leur a échappé</b> et n'a pas accompli l'acte d'acquisition. <b>Lorsque</b> Rav Yosef <b>se présenta devant</b> Rav Sheshet et lui raconta ce qui s'était passé, Rav Sheshet lui <b>dit : Tu as bien fait, car tu ne t'es pas rendu</b> le sujet du verset : <b>"L'emprunteur est l'esclave du prêteur"</b> (Proverbes 22, 7), en t'obligeant sans raison. Dans <b>une autre version</b> de cet incident, Rav Sheshet dit à Rav Yosef : <b>Vous avez bien fait,</b> car le verset dit : <b>"L'emprunteur est l'esclave du prêteur"</b>, c'est-à-dire que les marchands qui m'ont emprunté doivent porter la responsabilité de s'assurer que l'argent me parviendra.
 
 ### Partie 19
-La Gemara relate en outre : <b>Rabbi Aḥai, fils de Rabbi Yoshiya, avait un vaisseau d'argent [<i>ispeka</i>] dans</b> la ville de <b>Neharde'a.</b>
+La Gemara relate en outre : <b>Rabbi Aḥai, fils de Rabbi Yoshiya, avait un récipient d'argent [<i>ispeka</i>] dans</b> la ville de <b>Neharde'a.</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

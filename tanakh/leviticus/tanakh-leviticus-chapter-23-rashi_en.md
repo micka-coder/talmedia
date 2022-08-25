@@ -8,11 +8,11 @@
 <b>Six days.</b> What is the connection between Shabbos and the festivals? To teach you that whoever profanes the festivals is considered as though he profaned the <i>Shabbasos</i>, and whoever keeps the festivals is considered as though he kept the <i>Shabbasos</i>. 
 
 ### passuk 4
-<b>These are the appointed times of Hachem.</b> Above [the verse] speaks of proclaiming a leap year, and here it speaks of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctification of the month. 
+<b>These are the appointed times of Adonoy.</b> Above [the verse] speaks of proclaiming a leap year, and here it speaks of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctification of the month. 
 
 ### passuk 5
 <b>In the afternoon,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>from six hours onward. 
-<b>A Pesach (offering) for Hachem,</b> [referring] to bringing <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the sacrifice whose name is Pesach. 
+<b>A Pesach (offering) for Adonoy,</b> [referring] to bringing <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the sacrifice whose name is Pesach. 
 
 ### passuk 6
 
@@ -20,7 +20,7 @@
 
 ### passuk 8
 <b>You shall bring a fire-offering, etc.</b> These are the additional sacrifices which are mentioned in Parshas Pinchos. And why are they mentioned here? To say that the[se] additional sacrifices do not impede one another, [since it states]: 
-<b>You shall bring a fire-offering to Hachem,</b> [bring it] under any circumstance if there are no oxen [available], bring rams, and if there are no oxen or rams, bring lambs. 
+<b>You shall bring a fire-offering to Adonoy,</b> [bring it] under any circumstance if there are no oxen [available], bring rams, and if there are no oxen or rams, bring lambs. 
 <b>[On each of] seven days.</b> Wherever שִׁבְעַת, (“seven”) is said, it is a noun — a week of days, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>seteyne</i> in Old French, and so too every expression of “eight of,” “six of.” “five of,” “three of.” 
 <b>You shall not do any work of labor.</b> Even that work which is considered as necessary labor, which cause[s] monetary loss by its neglect, such as an opportunity which is lost. So have I understood from Toras Kohanim, which teaches: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>“Perhaps even [during] the intermediate days of the festival the work of labor should be forbidden? Etc. 
 
@@ -55,7 +55,7 @@
 ### passuk 16
 <b>The seventh week,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>as its Targum: “the seventh week.” 
 <b>Until the day after the seventh week, you shall count [fifty days].</b> But not including [the day] until which you count — and those are the forty-nine days [referred to]. 
-<b>Fifty days, and you shall bring a new meal-offering for Hachem.</b> Bring it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on the fiftieth day. I say this is its Midrash, but its plain meaning is: “Until the day after the seventh week — which is the fiftieth day — you should count” [and then bring the offering]. [This] is an inverted verse. 
+<b>Fifty days, and you shall bring a new meal-offering for Adonoy.</b> Bring it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>on the fiftieth day. I say this is its Midrash, but its plain meaning is: “Until the day after the seventh week — which is the fiftieth day — you should count” [and then bring the offering]. [This] is an inverted verse. 
 <b>A new meal-offering.</b> “That is the first meal-offering which is brought from <i>chodosh</i>, and if you say: “But the <i>omer</i> meal-offering has [already] been brought”! [The <i>omer</i> meal-offering] is not like other meal-offerings, for it comes from <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>barley. 
 
 ### passuk 17
@@ -71,7 +71,7 @@
 <b>You shall prepare one he-goat.</b> Perhaps the seven lambs and the he-goat mentioned here are identical with the seven lambs and he-goat mentioned in חוּמַּשׁ הַפְּקוּדִים ? When you reach the [listing] of oxen and rams, [you see] that it is not so. You must conclude from this [that] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>these are [a group] unto themselves and these are [a group] unto themselves. These are brought for the sake of the bread, and these are for the additional sacrifices. 
 
 ### passuk 20
-<b>The Kohen shall wave them, a wave-offering.</b> [This] teaches that they require waving <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[while] alive. Perhaps all of them? The verse says: “with the two lambs.” 
+<b>The kohein shall wave them, a wave-offering.</b> [This] teaches that they require waving <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[while] alive. Perhaps all of them? The verse says: “with the two lambs.” 
 <b>They shall be holy.</b> Because peace-offerings brought by an individual [are classified] as holy things of a lesser degree, it was necessary to state of communal peace-offerings, that they are <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>holy things of a greater degree. 
 
 ### passuk 21
@@ -79,12 +79,12 @@
 ### passuk 22
 <b>When you reap.</b> [The verse] repeats [the prohibition] so that a transgressor violates two prohibitions. Said R. Avdimi son of R. Yosef: Why did Scripture place it [= this agricultural prohibition] in the midst of the festival [laws], Pesach and Shevu’os on one side, Rosh Hashanah, Yom Kippur, and Sukkos on the other? [In order] to teach you that whoever gives gleanings, the forgotten sheaf and the corner of the field to the poor person [in a] proper [manner], is considered as though he built the Temple and brought his sacrifices within it. 
 <b>You shall leave,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>leave [it] before them and they will gather [it], and you must not help any one of them [in preference to anyone else]. 
-<b>I am Hachem, your God,</b> faithful to give a reward. 
+<b>I am Adonoy, your God,</b> faithful to give a reward. 
 
 ### passuk 23
 
 ### passuk 24
-<b>A remembrance of the sounding [of the shofor].</b> A mention of Biblical verses [which relate] to [Divine] Remembrances and Biblical verses [which relate to the] <i>shofor</i> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to remember for your sake the binding of Yitzchak for whom a ram was brought in his stead.
+<b>A remembrance of the sounding [of the shofor].</b> A mention of Biblical verses [which relate] to [Divine] Remembrances and Biblical verses [which relate to the] <i>shofor</i> — <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to remember for your sake the binding of Yitzchok for whom a ram was brought in his stead.
 
 ### passuk 25
 <b>You shall bring a fire-offering,</b> the additional offerings mentioned in חוּמַשׁ הַפְּקוּדִים . 

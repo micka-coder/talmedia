@@ -31,7 +31,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Because you have angered the enemies of Hachem.</b> This is a euphimism a way [to be] respectable to on High.<sup>6</sup><i class="footnote">Using “enemies of God” to stand in for God in order for the word “angered” not to have to be applied to Him in a direct way.</i> Yonasan translated, Because you have opened up you have opened the mouth of [those] who hate the people of God.
+<b>Because you have angered the enemies of Adonoy.</b> This is a euphimism a way [to be] respectable to on High.<sup>6</sup><i class="footnote">Using “enemies of God” to stand in for God in order for the word “angered” not to have to be applied to Him in a direct way.</i> Yonasan translated, Because you have opened up you have opened the mouth of [those] who hate the people of God.
 
 ### passuk 15
 <b>[He became sick.]</b> [This word] denotes sickness.

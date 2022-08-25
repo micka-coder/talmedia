@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Et</b> ensuite <b>apporté</b> le sang <b>vers l'</b> <b>altar</b> d'or dans le Sanctuaire et y a aspergé le sang, comme requis (voir Lévitique 16 : 18), <b>mais</b> par la suite <b>apporté</b> le reste du sang <b>dans</b> vers le Rideau séparant le Sanctuaire du Saint des Saints, <b>qu'est-ce que</b> le <i>halakha</i> ?
+<b>Et</b> ensuite <b>apporté</b> le sang <b>vers l'</b> <b>autel</b> d'or dans le Sanctuaire et y a aspergé le sang, comme requis (voir Lévitique 16 : 18), <b>mais</b> par la suite <b>apporté</b> le reste du sang <b>dans</b> vers le Rideau séparant le Sanctuaire du Saint des Saints, <b>qu'est-ce que</b> le <i>halakha</i> ?
 
 ### Partie 2
 Rava explique les deux côtés du dilemme : disons-nous que <b>ici</b> la zone du Rideau et de l'autel d'or <b>est certainement un seul endroit,</b> puisqu'ils sont tous deux dans le Sanctuaire, et donc le sang ne doit pas être disqualifié en étant ramené vers le Rideau ? <b>Ou peut-être,</b> puisque <b>on appelle</b> la prise du sang vers l'autel d'or : <b>Sortir,</b> dans le verset : "Et il sortira vers l'autel" (Lévitique 16:18), son retour au Rideau devrait être considéré comme une entrée, et donc le sang devrait être disqualifié ? Aucune réponse n'a été trouvée, et par conséquent la Guemara déclare que ces dilemmes <b>doivent rester</b> non résolus.

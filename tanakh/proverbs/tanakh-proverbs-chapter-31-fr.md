@@ -39,7 +39,7 @@ Tous les jours de sa vie, elle travaille à son bonheur: jamais elle ne lui caus
 Elle se procure de la laine et du lin et accomplit sa besogne d’une main diligente.
 
 ### passuk 14
-Pareille aux vaisseaux marchands, elle amène de loin ses provisions.
+Pareille aux récipientx marchands, elle amène de loin ses provisions.
 
 ### passuk 15
 Il fait encore nuit qu’elle est déjà debout, distribuant des vivres à sa maison, des rations à ses servantes.

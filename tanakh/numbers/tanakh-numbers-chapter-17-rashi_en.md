@@ -18,7 +18,7 @@
 
 ### passuk 5
 <b>So as not to be like Korach.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In order not to be like Korach.
-<b>As Hachem spoke to him, through Moshe.</b> Like עָלָיו, “about him.” About Aharon, He spoke to Moshe, [saying] that he and his sons shall be <i>kohanim.</i> Therefore, a stranger should not approach who is not a descendant of Aharon, etc. Similarly, every לִי, לוֹ and לָהֶם next to דִּבּוּר, “speech,” is interpreted as עַל, “about.” According to Midrash, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>about Korach, what is [the meaning of] בְּיַד משֶׁה, [literally “in the hand of Moshe,”] [why did] Scripture not write “to Moshe”? This alludes that those who dispute the <i>kehunah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>are stricken with <i>tzora'as,</i> as Moshe was stricken in his hand, as it is said, “when he withdrew it, his hand was stricken with <i>tzora’as</i> — white as snow.” This is why Uziyah was stricken with <i>tzora’as.</i> 
+<b>As Adonoy spoke to him, through Moshe.</b> Like עָלָיו, “about him.” About Aharon, He spoke to Moshe, [saying] that he and his sons shall be <i>kohanim.</i> Therefore, a stranger should not approach who is not a descendant of Aharon, etc. Similarly, every לִי, לוֹ and לָהֶם next to דִּבּוּר, “speech,” is interpreted as עַל, “about.” According to Midrash, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>about Korach, what is [the meaning of] בְּיַד משֶׁה, [literally “in the hand of Moshe,”] [why did] Scripture not write “to Moshe”? This alludes that those who dispute the <i>kehunah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>are stricken with <i>tzora'as,</i> as Moshe was stricken in his hand, as it is said, “when he withdrew it, his hand was stricken with <i>tzora’as</i> — white as snow.” This is why Uziyah was stricken with <i>tzora’as.</i> 
 
 ### passuk 6
 
@@ -67,7 +67,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>To be preserved as symbol.</b> Of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>remembrance that I chose Aharon to serve as <i>Kohen,</i> so that they will never again dispute the <i>kehunah</i>. 
+<b>To be preserved as symbol.</b> Of <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>remembrance that I chose Aharon to serve as <i>kohein,</i> so that they will never again dispute the <i>kehunah</i>. 
 <b>So that their complaint will end.</b> Like וּתְכַלֶּה תְלוּנּוֹתָם, ‘their’ complaint will end. This term is a singular, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>feminine verbal noun, like תְּלוּנָּתָם . <i>murmur-diz,</i> “complaint” in Old French. There is a distinction between תְּלוּנּוֹתָם and תְּלוּנָּתָם . תְּלוּנָּתָם, a single complaint. תְּלוּנּוֹתָם, a singular noun, even when there are many complaints. 
 
 ### passuk 26

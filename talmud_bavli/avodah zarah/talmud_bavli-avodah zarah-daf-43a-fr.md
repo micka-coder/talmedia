@@ -3,10 +3,10 @@
 Les Sages interprètent ce verset comme faisant référence aux constellations célestes, ce qui indique qu'il <b>est</b> interdit de former uniquement <b>ces</b> figures, mais il n'est <b>pas</b> interdit de former <b>une figure de dragon.</b>
 
 ### Partie 2
-<b>Au contraire,</b> conclut la Guemara, il est <b>évident</b> que cette <i>halakha</i> fait référence à un cas <b>où</b> on <b>trouve</b> un récipient avec la figure d'un dragon, <b>et</b> ceci est <b>comme nous l'avons appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des vaisseaux, et sur lesquels il y a une figure du soleil,</b> une figure de la lune, ou une figure d'un dragon, il doit les prendre et les jeter dans la mer morte.
+<b>Au contraire,</b> conclut la Guemara, il est <b>évident</b> que cette <i>halakha</i> fait référence à un cas <b>où</b> on <b>trouve</b> un récipient avec la figure d'un dragon, <b>et</b> ceci est <b>comme nous l'avons appris</b> dans la mishna : Dans le cas de <b>quelqu'un qui trouve des récipientx, et sur lesquels il y a une figure du soleil,</b> une figure de la lune, ou une figure d'un dragon, il doit les prendre et les jeter dans la mer morte.
 
 ### Partie 3
-La Guemara s'interroge sur le manque de cohérence entre les clauses de la déclaration de Rav Sheshet : Se peut-il que <b>la première clause et la dernière clause fassent</b> référence à un cas <b>où l'on trouve</b> des vaisseaux avec les figures spécifiées, <b>et que la clause du milieu fasse</b> référence à un cas <b>où l'on forme</b> ces figures ?
+La Guemara s'interroge sur le manque de cohérence entre les clauses de la déclaration de Rav Sheshet : Se peut-il que <b>la première clause et la dernière clause fassent</b> référence à un cas <b>où l'on trouve</b> des récipientx avec les figures spécifiées, <b>et que la clause du milieu fasse</b> référence à un cas <b>où l'on forme</b> ces figures ?
 
 ### Partie 4
 <b>Abaye a dit : En effet, la première clause et la dernière clause font</b> référence aux cas <b>où l'on trouve</b> des récipients avec des figures, <b>et la clause médiane fait</b> référence à un cas <b>où l'on forme</b> des figures.

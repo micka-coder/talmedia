@@ -33,7 +33,7 @@ Rava a dit aux rabbins : <b>Si</b> on souhaite soutenir mon opinion <b>en raison
 La Gemara demande : <b>D'où déduisons-nous</b> <b>qu'il l'a rendu interdit ? Si nous disons</b> qu'il est dérivé <b>de</b> la <i>halakha</i> selon laquelle les <b>prêtres</b> qui se sont livrés au culte des idoles sont disqualifiés pour servir dans le Temple, même s'ils l'ont fait sous la contrainte, <b>peut-être</b> le cas des <b>prêtres est différent, car ils possèdent une conscience</b> et sont responsables de leurs actes.
 
 ### Partie 12
-<b>Mais plutôt,</b> peut-être est-ce dérivé <b>des <b>pierres de</b> l'<b>altar</b> qui ont été rendues interdites par les Grecs, même si les pierres ne leur appartenaient pas. La Guemara rejette cette suggestion : <b>Mais peut-être</b> la raison pour laquelle les pierres de l'autel ont été interdites est différente, <b>comme</b> expliqué par la déclaration <b>du Rav Pappa</b> (52b), selon laquelle lorsque les Grecs sont entrés dans le Temple, il a été souillé et est devenu le leur. On ne peut donc pas déduire de ce cas que l'on peut rendre interdit le bien d'autrui.
+<b>Mais plutôt,</b> peut-être est-ce dérivé <b>des <b>pierres de</b> l'<b>autel</b> qui ont été rendues interdites par les Grecs, même si les pierres ne leur appartenaient pas. La Guemara rejette cette suggestion : <b>Mais peut-être</b> la raison pour laquelle les pierres de l'autel ont été interdites est différente, <b>comme</b> expliqué par la déclaration <b>du Rav Pappa</b> (52b), selon laquelle lorsque les Grecs sont entrés dans le Temple, il a été souillé et est devenu le leur. On ne peut donc pas déduire de ce cas que l'on peut rendre interdit le bien d'autrui.
 
 >Crédit : Edition William Davidson
 >Licence : CC-BY-NC

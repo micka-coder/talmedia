@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>[Hachem] has prevented you.</b> Who sent me toward you to refrain you from committing bloodshed.
+<b>[Adonoy] has prevented you.</b> Who sent me toward you to refrain you from committing bloodshed.
 <b>And from avenging yourself by your own hand.</b> From personally avenging yourself and being punished.
 <b>May all your enemies be like Novol.</b> She prophesied with the Divine Spirit<sup>20</sup><i class="footnote">Avigayil is mentioned among the seven prophetesses, in Maseches Megillah 14a.</i> that Novol will not live long.
 
@@ -86,13 +86,13 @@
 <b>Let it be given to the youths.</b> And it will be given to the youths who are going, etc. <span>נִתְּנָה</span> [=it was given] is past tense, <span>וְנִתְּנָה</span> [=it will be given] is future tense.
 
 ### passuk 28
-<b>For Hachem will surely make for my master an everlasting house.</b> To be king over Yisroel. Therefore, let no evil be found in you. It is therefore not fitting for you to do anything contrary to the law, to spread evil talk concerning your kingship.
+<b>For Adonoy will surely make for my master an everlasting house.</b> To be king over Yisroel. Therefore, let no evil be found in you. It is therefore not fitting for you to do anything contrary to the law, to spread evil talk concerning your kingship.
 
 ### passuk 29
 <b>Slingshot.</b> A wide piece of leather, with an indentation in the middle of the sling, into which one places the stone.
 
 ### passuk 30
-<b>And may it be when Hachem does good…</b> And you will reign.
+<b>And may it be when Adonoy does good…</b> And you will reign.
 
 ### passuk 31
 <b>That this not be…an obstacle.</b> As a stumbling block, as in, 'and the stumbling [<span>לְפִיק</span>] of the knees';<sup>21</sup><i class="footnote">Nachum 2:11.</i> for had you done this, you would not be able to open your mouth to reprove anyone in future generations, concerning bloodshed.
@@ -115,7 +115,7 @@
 <b>And his heart sank within him.</b> He was extremely upset over the gift presented to Dovid.<sup>24</sup><i class="footnote">I.e., because of the great expense of his wife’s gift.—Radak</i>
 
 ### passuk 38
-<b>After ten days.</b> There were seven days of mourning for Shmuel, so the Holy One, Blessed is He, suspended his sentence so that it should not coincide the mourning for this wicked man with his mourning period. Afterward, he became ill for three days and died, as it is stated, "And Hachem inflicted Novol," and a Talmudist had stated that if one was ill three days and died, it is a death of a plague. However, our Rabbis stated that these are the Ten Days of Repentance which the Holy One, Blessed is He, waited for him to repent. But, some say that they correspond to the ten meals<sup>25</sup><i class="footnote">See above verses 5,9, and Maharsha in Rosh Hashanah 18a.</i> which Novol gave Dovid's servants, for Dovid had sent him ten youths, and he fed them.
+<b>After ten days.</b> There were seven days of mourning for Shmuel, so the Holy One, Blessed is He, suspended his sentence so that it should not coincide the mourning for this wicked man with his mourning period. Afterward, he became ill for three days and died, as it is stated, "And Adonoy inflicted Novol," and a Talmudist had stated that if one was ill three days and died, it is a death of a plague. However, our Rabbis stated that these are the Ten Days of Repentance which the Holy One, Blessed is He, waited for him to repent. But, some say that they correspond to the ten meals<sup>25</sup><i class="footnote">See above verses 5,9, and Maharsha in Rosh Hashanah 18a.</i> which Novol gave Dovid's servants, for Dovid had sent him ten youths, and he fed them.
 
 ### passuk 39
 <b>The battle of my disgrace.</b> My insult which he insulted me today [saying], 'Nowadays there are many servants who break away.'<sup>26</sup><i class="footnote">Above verse 10.</i>

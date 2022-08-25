@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>By Rachel's Tomb, at the border of Binyomin.</b> Isn't Rachel's Tomb within Yehudah's border, in Beis Lechem? [The answer is that] they are now by Rachel's Tomb, but, 'when you will meet them, you will find them within Binyomin's border, in Tzeltzoch.' Thus was taught by the Tosefta of [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
+<b>By Rochel's Tomb, at the border of Binyomin.</b> Isn't Rochel's Tomb within Yehudah's border, in Beis Lechem? [The answer is that] they are now by Rochel's Tomb, but, 'when you will meet them, you will find them within Binyomin's border, in Tzeltzoch.' Thus was taught by the Tosefta of [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
 Tzeltzoch is a combination of the words <span>צֵל לַצַּח</span> of the Holy One, Blessed is He, Who is pure and ruddy;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> and this is Yerusholayim.
 <b>And is worrying about you.</b> Has fears concerning you; every expression of <span>דְּאָגָה</span> [worry] is an expression of fear; <i>dementer</i> in O.F.
 

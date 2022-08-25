@@ -23,7 +23,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>You shall provide.</b> הַקְרָיָיה means [nothing but] providing. Similarly, it says, “because the Hachem your God provided for me.” 
+<b>You shall provide.</b> הַקְרָיָיה means [nothing but] providing. Similarly, it says, “because the Adonoy your God provided for me.” 
 
 ### passuk 12
 <b>From the avenger.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Against the blood redeemer, who is the kinsman of the murder victim. 
@@ -66,8 +66,8 @@ with murderers, as it is written, “Gil’ad, city of evildoers, <i data-commen
 ### passuk 24
 
 ### passuk 25
-<b>Until the death of the Kohen gadol.</b> As he causes the Divine Presence to reside in Israel, and lengthens their lives, while the murderer causes the Divine Presence to leave Israel, and shortens their lives, he (the murderer) is unworthy of being in the presence of the <i>Kohen Gadol</i>. Another interpretation: Because the <i>Kohen Gadol</i> should have prayed <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that this pitfall not occur in Israel during his lifetime. 
-<b>Who was anointed with the sacred oil.</b> According to its plain meaning, this is one of the shortened passages, as it does not explain <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who anointed him, but, rather, as if to say, “whom, whoever anointed him with the sacred oil.” Our sages expound this, in <i>Maseches</i> Makos, as verification of a teaching, to teach that, if before his case was decided, the <i>Kohen Gadol</i> died and another was appointed in his place, and his case was then decided, he is released from exile at the death of the second, as it is said, “whom he anointed.” Was it he who anointed him as a <i>Kohen,</i> or a <i>Kohen</i> who anointed him? Therefore, this is meant to include one who was anointed in his days — that he is released from exile at his death. 
+<b>Until the death of the Kohein gadol.</b> As he causes the Divine Presence to reside in Israel, and lengthens their lives, while the murderer causes the Divine Presence to leave Israel, and shortens their lives, he (the murderer) is unworthy of being in the presence of the <i>Kohein Gadol</i>. Another interpretation: Because the <i>Kohein Gadol</i> should have prayed <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that this pitfall not occur in Israel during his lifetime. 
+<b>Who was anointed with the sacred oil.</b> According to its plain meaning, this is one of the shortened passages, as it does not explain <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who anointed him, but, rather, as if to say, “whom, whoever anointed him with the sacred oil.” Our sages expound this, in <i>Maseches</i> Makos, as verification of a teaching, to teach that, if before his case was decided, the <i>Kohein Gadol</i> died and another was appointed in his place, and his case was then decided, he is released from exile at the death of the second, as it is said, “whom he anointed.” Was it he who anointed him as a <i>kohein,</i> or a <i>kohein</i> who anointed him? Therefore, this is meant to include one who was anointed in his days — that he is released from exile at his death. 
 
 ### passuk 26
 
@@ -87,7 +87,7 @@ with murderers, as it is written, “Gil’ad, city of evildoers, <i data-commen
 <b>And do not accept atonement compensation.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He cannot absolve himself with money
 
 ### passuk 32
-<b>And, do not accept atonement compensation for one who has fled to his refuge city.</b> For, someone who fled to a refuge city because he killed inadvertently, is not absolved from exile with money, by paying atonement compensation so that he may return and dwell in the land before the <i>Kohen</i> dies. 
+<b>And, do not accept atonement compensation for one who has fled to his refuge city.</b> For, someone who fled to a refuge city because he killed inadvertently, is not absolved from exile with money, by paying atonement compensation so that he may return and dwell in the land before the <i>kohein</i> dies. 
 <b> לָנוּס .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Like לְנָס, as in שׁוּבֵי מִלְחָמָה, “who returned from battle.” Similarly, נוּגֵי מִמּוֹעֵד, “who were excluded from the festivals.” Similarly, כִּי מֻלִים הָיוּ, “for they were circumcised.” Just as one says שׁוּב concerning someone who has already returned, and מוּל concerning someone who was already circumcised, so does one say לָנוּס concerning someone who has already fled. He is called נוּס as if to say מֻבְרָח, “has fled.” But perhaps you might interpret לָנוּס as לִבְרוֹחַ,”to flee,” and explain “do not accept atonement compensation” “for someone who must flee,” and absolve him from exile? Then I do not know how it could say “so that he may return and dwell in the land,” when he did not yet flee — from where shall he return? 
 
 ### passuk 33
@@ -95,7 +95,7 @@ with murderers, as it is written, “Gil’ad, city of evildoers, <i data-commen
 
 ### passuk 34
 <b>Wherein I reside.</b> Do not cause Me to reside in its defilement.
-<b>For I, Hachem, dwell among Bnei Yisroel.</b> Even when they are defiled, the Divine Presence rests among them. 
+<b>For I, Adonoy, dwell among Bnei Yisroel.</b> Even when they are defiled, the Divine Presence rests among them. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -4,13 +4,13 @@
 ### passuk 2
 
 ### passuk 3
-<b>Not with our fathers</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>alone did Hachem make this covenant, etc., but with us, etc.. 
+<b>Not with our fathers</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>alone did Adonoy make this covenant, etc., but with us, etc.. 
 
 ### passuk 4
 <b>Face to face.</b> R’ Berachia said, “This is what Moshe said [implied], Do not say that I am misleading you about something that is not a matter of fact such as an agent does acting as a middleman between the buyer and seller; for in this case, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the seller himself is speaking to you. 
 
 ### passuk 5
-<b>Saying.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[The word לֵאמֹר ] is connected [with the previous verse]: Hachem spoke to you at the mountain from within the fire <i>saying</i> I am Hachem etc.”; while I was standing between Hachem and you.
+<b>Saying.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[The word לֵאמֹר ] is connected [with the previous verse]: Adonoy spoke to you at the mountain from within the fire <i>saying</i> I am Adonoy etc.”; while I was standing between Adonoy and you.
 
 ### passuk 6
 

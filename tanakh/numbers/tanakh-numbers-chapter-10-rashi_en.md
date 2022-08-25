@@ -30,7 +30,7 @@
 
 ### passuk 10
 <b>For your burnt — offerings.</b> Scripture speaks <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>of the communal offerings. 
-<b>I am Hachem your God.</b> From here we learn [that we combine Hachem’s] Majesty, remembrance, and the <i>shofar,</i> as it is said, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”You shall blow” — hence the <i>shofar,</i> “as a remembrance” — this is remembrance, “I am Hachem your God” — this is Majesty, etc. 
+<b>I am Adonoy your God.</b> From here we learn [that we combine Adonoy’s] Majesty, remembrance, and the <i>shofar,</i> as it is said, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”You shall blow” — hence the <i>shofar,</i> “as a remembrance” — this is remembrance, “I am Adonoy your God” — this is Majesty, etc. 
 
 ### passuk 11
 <b>In the second month.</b> Thus you say that they spent <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>twelve months minus ten days at Chorev, since on the first of the month of Sivan they encamped there and did not depart until the twentieth of Iyar the following year. 
@@ -48,7 +48,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>The Mishkon was dismantled.</b> When the banner of Yehudah was departing, Aharon and his sons entered, dismantled the <i>paroches,</i> and covered the Ark with it, as it says, “Aharon and his sons shall enter when the camp is about to travel.” The sons of Gershon and the sons of Merori dismantled the <i>Mishkon</i> and loaded it onto the wagons [and traveled]. The Ark and the sacred vessels carried by the sons of Kehat remain covered, placed on poles, until the banner of the camp of Reuven departed. Afterward, “The Kehat family traveled.” 
+<b>The Mishkon was dismantled.</b> When the banner of Yehudah was departing, Aharon and his sons entered, dismantled the <i>paroches,</i> and covered the Ark with it, as it says, “Aharon and his sons shall enter when the camp is about to travel.” The sons of Gershon and the sons of Merori dismantled the <i>Mishkon</i> and loaded it onto the wagons [and traveled]. The Ark and the sacred vessels carried by the sons of Kehos remain covered, placed on poles, until the banner of the camp of Reuven departed. Afterward, “The Kehos family traveled.” 
 
 ### passuk 18
 
@@ -58,7 +58,7 @@
 
 ### passuk 21
 <b>Carriers of the sacred.</b> Carriers of the sacred objects.
-<b>They erected the Mishkon.</b> The sons of Gershon and the sons of Merori, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who were preceded by <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the departure of two banners, would erect the <i>Mishkon</i> when the Cloud rested. The signal for making camp was observed by the banner of the camp of Yehudah. They camped while the sons of Kehat still traveled behind with the two final banners. The sons of Gershon and the sons of Merori would erect the Sanctuary, so that when the sons of Kehat arrived, they found it set in place, and brought in the Ark, Table, Menorah, and Altars. This is the sense of the passage: “They — the <i>Mishkon’s erectors — erected it before the arrival of the sons of Kehat.” 
+<b>They erected the Mishkon.</b> The sons of Gershon and the sons of Merori, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who were preceded by <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the departure of two banners, would erect the <i>Mishkon</i> when the Cloud rested. The signal for making camp was observed by the banner of the camp of Yehudah. They camped while the sons of Kehos still traveled behind with the two final banners. The sons of Gershon and the sons of Merori would erect the Sanctuary, so that when the sons of Kehos arrived, they found it set in place, and brought in the Ark, Table, Menorah, and Altars. This is the sense of the passage: “They — the <i>Mishkon’s erectors — erected it before the arrival of the sons of Kehos.” 
 </i>
 
 ### passuk 22
@@ -96,21 +96,21 @@
 
 ### passuk 33
 <b>A journey of three days.</b> Three days’ traveling distance, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>they traveled in one day, because the Holy One, Blessed is He, wanted to bring them into the land immediately. 
-<b>The Ark of the Covenant of Hachem traveled in front of them a journey of three days.</b> This was the Ark which <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>went with them to war, in which the broken Tablets were placed. It preceded them by three days’ travel to prepare a camping place for them. 
+<b>The Ark of the Covenant of Adonoy traveled in front of them a journey of three days.</b> This was the Ark which <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>went with them to war, in which the broken Tablets were placed. It preceded them by three days’ travel to prepare a camping place for them. 
 
 ### passuk 34
-<b>The Cloud of Hachem was above them.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Seven Clouds are recorded during their journeys; Four on four sides, one above, one below, and one preceding them, to lower the highlands, raise the lowlands, and to kill snakes and scorpions. 
+<b>The Cloud of Adonoy was above them.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Seven Clouds are recorded during their journeys; Four on four sides, one above, one below, and one preceding them, to lower the highlands, raise the lowlands, and to kill snakes and scorpions. 
 <b>From the camp.</b> From their camping place.
 
 ### passuk 35
 <b>Whenever the Ark departed.</b> Scripture placed symbols before and after this [chapter] to teach <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that this is not its place. Why, then, was it written here? In order to intervene <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>between one punishment and the next . . . etc., as stated in “all the sacred scriptures.” 
-<b>Rise, Hachem.</b> Because He (Hachem) preceded them by three days’ travel, Moshe would say, ‘Rise and wait for us, do not go further away.’ Midrash Tanchuma, Vayakhel. 
+<b>Rise, Adonoy.</b> Because He (Adonoy) preceded them by three days’ travel, Moshe would say, ‘Rise and wait for us, do not go further away.’ Midrash Tanchuma, Vayakhel. 
 <b>May Your enemies disperse.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Those gathered together.
 <b>Those who hate You flee.</b> These are the pursuers.
 <b>Those who hate You.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>These are the haters of Yisroel, since all those who hate Yisroel hate the One who spoke, and the world came into being, as it is said, “those who hate You have raised [their] heads” — who are they? — “Against Your people they counsel cunningly.” 
 
 ### passuk 36
-<b>Come to rest, Hachem.</b> Menachem interprets this as a term meaning rest. Similarly, “with rest and calm you will be saved.” 
+<b>Come to rest, Adonoy.</b> Menachem interprets this as a term meaning rest. Similarly, “with rest and calm you will be saved.” 
 <b>[Among] the myriads and thousands of Israel.</b> This informs us that the Divine Presence does not rest among the Israelites when there are fewer than <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>twenty-two thousand.
 
 >Credit : primo.nli.org.il (metsudah)

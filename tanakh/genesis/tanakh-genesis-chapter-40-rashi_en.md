@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>After these events.</b> Because that cursed woman made it a habit that this righteous man be a topic of conversation to all, to speak about him and to demean him, God brought about the offenses of these [people] so that their attention be diverted to these [people] and not to him [Yossef]. Also, to bring about a respite to the righteous man through their doings. 
+<b>After these events.</b> Because that cursed woman made it a habit that this righteous man be a topic of conversation to all, to speak about him and to demean him, God brought about the offenses of these [people] so that their attention be diverted to these [people] and not to him [Yoseif]. Also, to bring about a respite to the righteous man through their doings. 
 <b>An offense was committed.</b> Concerning one, a fly was found in his cup of aromatic beverage while a pebble was found in the bread of the other. 
 <b>And baker.</b> Of the bread of the king. The term אַפִיָה —baking—applies only to bread. In Old French it is <i>pestor</i> [baker].
 
@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>The chief of the slaughterers appointed Yossef.</b> To be with them.
+<b>The chief of the slaughterers appointed Yoseif.</b> To be with them.
 <b>They were under guard for a period of time.</b> [יָמִים refers to] twelve months.
 
 ### passuk 5
@@ -65,7 +65,7 @@
 
 ### passuk 23
 <b>The chief butler did not remember.</b> On that day. 
-<b>But forgot him.</b> Afterwards. Because Yossef depended on him to remember him it necessitated his remaining imprisoned for two years, as is stated: “Fortunate is the man who has made God his trust, and has not turned to the arrogant.” [I.e.,] and does not put his trust in the Egyptians who are called arrogant. 
+<b>But forgot him.</b> Afterwards. Because Yoseif depended on him to remember him it necessitated his remaining imprisoned for two years, as is stated: “Fortunate is the man who has made God his trust, and has not turned to the arrogant.” [I.e.,] and does not put his trust in the Egyptians who are called arrogant. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

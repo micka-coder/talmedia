@@ -24,7 +24,7 @@ Les brebis de Kèpar s’entassent dans tes murs, et les béliers de Nebaïot s�
 Qui sont ceux-ci, qui volent comme une nuée, comme des colombes vers leurs colombiers?
 
 ### passuk 9
-Ce sont les îles qui attendent mon signal, et d’abord les vaisseaux de Tarchich, pour ramener de loin tes fils! Ils ont avec eux leur argent et leur or, en l’honneur de l’Éternel, ton Dieu, et du Saint d’Israël qui te glorifie.
+Ce sont les îles qui attendent mon signal, et d’abord les récipientx de Tarchich, pour ramener de loin tes fils! Ils ont avec eux leur argent et leur or, en l’honneur de l’Éternel, ton Dieu, et du Saint d’Israël qui te glorifie.
 
 ### passuk 10
 Et les fils de l’étranger bâtiront tes murailles, et leurs rois te serviront; car si je t’ai frappé dans ma colère, dans ma bonté je prends pitié de toi.

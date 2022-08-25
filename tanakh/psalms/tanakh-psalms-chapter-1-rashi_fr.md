@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Les louanges d'un homme</b> Ce livre a été composé avec dix expressions de chant : 1) avec conduite, 2) avec mélodie, 3) avec accompagnement musical, 4) avec chant, 5) avec louange, 6) avec prière, 7) avec bénédiction, 8) avec action de grâces, 9) avec louanges, et 10) avec "Louez Dieu".Elles correspondent aux dix hommes qui les ont composées : 1) Adam, 2) Malchizédek, 3) Abraham, 4) Moïse, 5) David, 6) Salomon, 7) Asaph, et 8-10) les trois fils de Koré. En ce qui concerne Jeduthun, il y a une controverse. Certains disent que Jeduthun était un homme, comme il est écrit dans les Chroniques. D'autres soutiennent que Jeduthun mentionné dans ce Livre ne signifie rien d'autre que les ordonnances (דתות) et les lois des décrets qui ont été passés sur lui et sur Israël.
 <b>Les louanges d'un homme</b> Heb.  אשרי  les felicements( ?) en ancien français. Les éloges d'un homme, et voici les éloges d'un homme : qu'il n'a pas suivi, car puisqu'il n'a pas suivi, il ne s'est pas tenu debout, et puisqu'il ne s'est pas tenu debout, il ne s'est pas assis.
-<b>scorners</b> (vieux français, gabors.)
+<b>scoins</b> (vieux français, gabors.)
 
 ### passuk 2
 <b>Mais son désir est dans la loi du Seigneur</b> D'où l'on apprend que la compagnie des railleurs amène à négliger l'étude de la Torah.

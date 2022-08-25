@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>à Damas</b> Et dans I Rois (15:18) il est écrit, "Damesek", et dans un autre verset (II Rois 16 : 10) il est écrit, "Dumesek". C'est tout de même, un exemple étant  שׁוֹט, fouet, bâton, sceptre.
+<b>Damas</b> Et dans I Rois (15:18) il est écrit, "Damesek," et dans un autre verset (II Rois 16 : 10) il est écrit, "Dumesek." C'est tous les mêmes, un exemple étant שׁוֹט, שֵׁבֶט, שַׁרְבִיט, fouet, bâton, sceptre.
 
 ### passuk 3
 
@@ -20,7 +20,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Dans la maison de la prison</b> - Heb.  - . Une prison faite de voûtes, <i>gewelb(e)t</i> en moyen haut allemand, voûté (prison).
+<b>Dans la maison prison</b> - Heb. בֵּית הַמַּהְפֶּכֶת. Une prison faite de voûtes, <i>gewelb(e)t</i> en moyen haut allemand, voûté (prison).
 
 ### passuk 11
 
@@ -31,7 +31,7 @@
 
 ### passuk 14
 <b>et diverses sortes</b> Ce sont des sortes d'épices, et les épices étaient préparées avec l'art du parfumeur, un mélange. Le sens est : préparé avec l'art du parfumeur.
-<b>Et ils allumèrent un feu extrêmement grand</b> Ils réduisirent en cendres les bonnes épices pour lui, et ils dispersèrent ces cendres sur lui. D'autres expliquent cela comme (<i>Abodah Zarah</i> 11a) : "Nous pouvons bruler pour les rois." Or, qu'ont-ils brulé ? Leurs biers et les ustensiles qu'ils utilisaient.
+<b>Et ils allumèrent un feu extrêmement grand</b> Ils réduisirent en cendres les bonnes épices pour lui, et ils dispersèrent ces cendres sur lui. D'autres expliquent cela comme (<i>Abodah Zarah</i> 11a) : "Nous pouvons brûler pour les rois." Or, qu'ont-ils brûlé ? Leurs biers et les ustensiles qu'ils utilisaient.
 
 >Crédit : sefaris
->Licence : CC-BY
+>License : CC-BY

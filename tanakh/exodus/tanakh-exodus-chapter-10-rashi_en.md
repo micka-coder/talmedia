@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Hachem said to Moshe “Go in to Pharaoh —</b> and warn him.”
+<b>Adonoy said to Moshe “Go in to Pharaoh —</b> and warn him.”
 <b>I will be able to set.</b> שִׁתִי is the same as שׂוּמִי (another version: שִׂימִי ), [meaning:] “that I will set.” 
 
 ### passuk 2

@@ -17,31 +17,31 @@
 <b>And from Goodgode, etc.</b> At Moseiroh, you expressed deep grief over the death of Aharon, which brought this upon you, so that it seemed to you as if he had died there. Moshe juxtaposed this reprimand with the shattering of the tablets to teach that the death of the righteous is as disagreeable before God, as the day when the tablets were shattered. Also, to inform you that He was as disturbed when they exclaimed, “Let us choose a leader” in order to turn away from Him as on the day that they made the [golden] calf. 
 
 ### passuk 8
-<b>At that time, Hachem separated, etc.</b> This refers to the original subject. 
+<b>At that time, Adonoy separated, etc.</b> This refers to the original subject. 
 <b>At that time.</b> During the first year of your departure from Egypt, when you transgressed with the calf, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and the Levites did not transgress, the Omnipresent separated them from you. This passage is juxtaposed with the retreat to Bnei Ya’akon to teach that, here as well, the Levites did not transgress, but remained steadfast in their faith. 
 <b>To carry the ark.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The Levites.
-<b>To stand before Hachem to serve Him, and to bless in his Name.</b> The <i>kohanim.</i> This refers to the lifting of the hands. 
+<b>To stand before Adonoy to serve Him, and to bless in his Name.</b> The <i>kohanim.</i> This refers to the lifting of the hands. 
 
 ### passuk 9
 <b>This is why Levi had no share.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Because they were separated for service at the altar, and do not have the opportunity for plowing and planting. 
-<b>Hachem is his heritage.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He receives his allotted portion provided readily from the palace of the King.
+<b>Adonoy is his heritage.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He receives his allotted portion provided readily from the palace of the King.
 
 ### passuk 10
 <b>And I remained on the mountain.</b> To receive the last tablets. Because he did not specify above how long he remained on the mountain during this final ascent, he returns now and begins anew. 
 <b>Like the first time.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With the first tablets. Just as they were with favor, so were these with favor. However, the intermediate ones, when I remained there to pray for you, were with anger. 
 
 ### passuk 11
-<b>And Hachem said to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Although you turned away from Him and sinned with the calf, He said to me, “Go, lead the people.” 
+<b>And Adonoy said to me.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Although you turned away from Him and sinned with the calf, He said to me, “Go, lead the people.” 
 
 ### passuk 12
 <b>And now, Yisroel.</b> Although you have perpetrated all this, He is still compassionate and affectionate toward you, so that, despite all your transgressions before Him, He requires nothing of you ‘. . . other than to fear, etc.’ 
 <b>Other than to fear, etc.</b> The Rabbis extrapolate from here: <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>All things are in the hands of Heaven, aside from the fear of Heaven. 
 
 ### passuk 13
-<b>To keep Hachem’s commandments.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And this is also not for naught, but ‘for your benefit’ — so that you may be rewarded. 
+<b>To keep Adonoy’s commandments.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>And this is also not for naught, but ‘for your benefit’ — so that you may be rewarded. 
 
 ### passuk 14
-<b>Look! to Hachem your God.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>All things. Even so, <b>Only your forefathers did Hachem desire.</b> Above all things.
+<b>Look! to Adonoy your God.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>All things. Even so, <b>Only your forefathers did Adonoy desire.</b> Above all things.
 
 ### passuk 15
 <b>You.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Just as you see yourselves, desired above all nations, like this day. 
@@ -62,7 +62,7 @@
 <b>Because you were strangers.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>With your own blemish do not taunt your fellow.
 
 ### passuk 20
-<b>Fear Hachem your God.</b> And serve Him, and cling to Him. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>After having acquired all of these attributes, then ‘swear in His Name.’ 
+<b>Fear Adonoy your God.</b> And serve Him, and cling to Him. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>After having acquired all of these attributes, then ‘swear in His Name.’ 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

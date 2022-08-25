@@ -24,7 +24,7 @@ Sur la table de proposition ils étendront une étoffe d’azur, sur laquelle il
 Ils étendront sur ces objets une étoffe d’écarlate, qu’ils couvriront d’une housse de peau de tahach; puis ils ajusteront ses barres.
 
 ### passuk 9
-ils prendront une étoffe d’azur, y envelopperont le candélabre servant à l’éclairage, avec ses lampes, ses mouchettes, ses godets et tous les vaisseaux à huile employés pour son service.
+ils prendront une étoffe d’azur, y envelopperont le candélabre servant à l’éclairage, avec ses lampes, ses mouchettes, ses godets et tous les récipientx à huile employés pour son service.
 
 ### passuk 10
 Et ils le mettront, avec tous ses ustensiles, dans une enveloppe de peau de tahach, et le poseront sur une civière.

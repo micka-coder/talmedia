@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>The second lot came out.</b> It was second to that of Binyomin, for Binyomin’s lot was the first of the seven tribes whose representatives Yehoshua spoke to [saying]: “And they will divide it into seven parts,” for Yehudah and Yossef had previously received [their inheritance] as it is said there: “Yehudah will remain at his boundary in the south,” [and the house of Yossef will remain at their boundary in the north].”<sup>1</sup><i class="footnote">See above 18:5.</i> From here he goes on to list the seven lots.
+<b>The second lot came out.</b> It was second to that of Binyomin, for Binyomin’s lot was the first of the seven tribes whose representatives Yehoshua spoke to [saying]: “And they will divide it into seven parts,” for Yehudah and Yoseif had previously received [their inheritance] as it is said there: “Yehudah will remain at his boundary in the south,” [and the house of Yoseif will remain at their boundary in the north].”<sup>1</sup><i class="footnote">See above 18:5.</i> From here he goes on to list the seven lots.
 
 ### passuk 2
 

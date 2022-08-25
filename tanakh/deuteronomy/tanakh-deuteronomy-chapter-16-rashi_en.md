@@ -4,7 +4,7 @@
 <b>From Egypt at night.</b> But didn’t they leave by day, as it is said, “On the day after the pascal-offering, the Israelites went out, etc.”? But, because it was at night that Pharoah granted them permission to leave, as it is said, “He called for Moshe and Aharon at night, etc.” 
 
 ### passuk 2
-<b>You shall slaughter the pesach-offering to Hachem your God; flocks.</b> As it is said, “You shall take it from the sheep and goats.” 
+<b>You shall slaughter the pesach-offering to Adonoy your God; flocks.</b> As it is said, “You shall take it from the sheep and goats.” 
 <b>And cattle.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You shall slaughter, as the <i>chagigah</i>-offering. If those engaged as partners in the <i>pesach</i> were a large group, they must bring, with it, a <i>chagigah</i>-offering, so that it is eaten when they have filled themselves. In addition, the Rabbis derive many teachings from this passage. 
 
 ### passuk 3
@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>For six days you shall eat matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Elsewhere it is said seven days. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Seven from the old crop, six from the new. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Another interpretation. This teaches that eating <i>matzoh</i> on the seventh day is not obligatory. You learn from this, and apply it to all six days; For, the seventh was included in a general group, and then isolated, with the teaching that eating <i>matzah</i> then is not obligatory, but arbitrary. It was not isolated strictly for itself, but as an example for the entire group. Just as the seventh day is arbitrary, so are all the days arbitrary, except for the first evening, which Scripture designates as obligatory, as it is said, “In the evening you shall eat matzos.” 
-<b>[Is one of] withdrawal for the sake of Hachem your God.</b> Withdraw from working. Another interpretation. A gathering for celebrating with food and drink, as in “Please, let us gather you up.” 
+<b>[Is one of] withdrawal for the sake of Adonoy your God.</b> Withdraw from working. Another interpretation. A gathering for celebrating with food and drink, as in “Please, let us gather you up.” 
 
 ### passuk 9
 <b>From the time the sickle begins felling the standing grain.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>From the time the <i>omer</i> is cut, which begins the harvest. 
@@ -49,7 +49,7 @@
 <b>You shall experience pure joy.</b> According to its plain meaning, this is not a command, but an assurance. According to the Talmudic teaching, however, it is derived from here that <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the last evening of the festival is included in the <i>mitzvah</i> to rejoice. 
 
 ### passuk 16
-<b>He shall not appear empty handed in the presence of Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Rather, bring <i>olah</i>-pilgrimage-offerings and festive <i>shelamim</i>-offerings. 
+<b>He shall not appear empty handed in the presence of Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Rather, bring <i>olah</i>-pilgrimage-offerings and festive <i>shelamim</i>-offerings. 
 
 ### passuk 17
 <b>Everyone according to the gift appropriate to his means.</b> Someone who has numerous guests and great affluence should bring many <i>olah-</i> and <i>shelamim</i>-offerings.
@@ -57,7 +57,7 @@
 ### passuk 18
 <b>Judges and police officers.</b> Judges: Magistrates who render legal decisions. Police officers — who compel the people to abide by their instructions <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>by administering corporal punishment with cudgels and whips, until they accept the judge’s decision. 
 <b>In all of your cities.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In each and every city.
-<b>For your tribes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This continues from ‘You shall appoint for yourself’ — “Judges and police officers you shall appoint for yourself for your tribes, in all of your cities which Hachem, your God, is giving you.” 
+<b>For your tribes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This continues from ‘You shall appoint for yourself’ — “Judges and police officers you shall appoint for yourself for your tribes, in all of your cities which Adonoy, your God, is giving you.” 
 <b>For your tribes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that judges are to be seated for each and every tribe and in each and every city.
 <b>Who will judge the people, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Appoint competent, righteous judges, to judge righteously. 
 
@@ -74,7 +74,7 @@
 
 ### passuk 21
 <b>Do not plant an Asherah tree for yourself.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This makes him liable from the time that it was planted. Even if he never worshipped it, he transgresses a negative commandment for the very planting. 
-Do not plant an <i>Asherah</i> tree for yourself; any tree near the altar of Hachem, your God. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This prohibits planting a tree <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>or building a structure on the Temple mount. 
+Do not plant an <i>Asherah</i> tree for yourself; any tree near the altar of Adonoy, your God. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This prohibits planting a tree <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>or building a structure on the Temple mount. 
 
 ### passuk 22
 <b>Do not erect for yourself a monument.</b> A single-stone monument <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for sacrificial offerings, even for the sake of Heaven. 

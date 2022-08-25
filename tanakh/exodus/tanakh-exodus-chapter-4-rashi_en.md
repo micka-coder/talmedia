@@ -32,7 +32,7 @@
 ### passuk 11
 <b>Who gave a mouth, etc.</b> [I.e.] “Who taught you how to speak when you were put on trial before Pharaoh on account of the Egyptian [whom you killed]?” 
 <b>Or who makes a person dumb.</b> [I.e.] “Who made Pharaoh to be dumb so that he exerted no effort [to fulfil his] command to have you killed, [and who made] his servants deaf so that they would not hear his decree about you. And as for the killer excutioners — who made them blind so that they would not see when you ran away from the [execution] platform and escaped. 
-<b>Is it not I — [Hachem]?</b> [I.e.] “Is it not I <i>whose Name</i> is Hachem who did all this?”
+<b>Is it not I — [Adonoy]?</b> [I.e.] “Is it not I <i>whose Name</i> is Adonoy who did all this?”
 
 ### passuk 12
 
@@ -40,7 +40,7 @@
 <b>The one You usually send</b> [בְּיַד תִּשְׁלָח means:] “Through the one You usually send,” namely, Aharon. An alternate explanation: “Through someone else whom you will wish to send, for I am not destined to bring them into the land, nor to be their redeemer in the future — you have many messengers.” 
 
 ### passuk 14
-<b>[Hachem] displayed anger.</b> Rabbi Yehoshua ben Korcho says: Wherever anger [of God] is mentioned in the Torah, an impression (i.e., some punishment) is mentioned, but, in this case no impression is mentioned, and we do not find any punishment as a result of that anger! Rabbi Yosi responded to him: In this case, too, an impression is mentioned: "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" “For he was destined to be a Levite and not a <i>Kohen</i> (priest) and I had planned that the priesthood would descend from you. But now this will not be so, but, rather, he will be a <i>Kohen</i> and you a Levite.” As it is said: “And the descendants of Moshe, the man of God will be attributed to the Tribe of Levi.” 
+<b>[Adonoy] displayed anger.</b> Rabbi Yehoshua ben Korcho says: Wherever anger [of God] is mentioned in the Torah, an impression (i.e., some punishment) is mentioned, but, in this case no impression is mentioned, and we do not find any punishment as a result of that anger! Rabbi Yosi responded to him: In this case, too, an impression is mentioned: "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" “For he was destined to be a Levite and not a <i>kohein</i> (priest) and I had planned that the priesthood would descend from you. But now this will not be so, but, rather, he will be a <i>kohein</i> and you a Levite.” As it is said: “And the descendants of Moshe, the man of God will be attributed to the Tribe of Leivi.” 
 <b>Behold he is setting out to meet you —</b> when you set out to go to Egypt.
 <b>And when he sees you he will rejoice in his heart.</b> “It is not as you think that he will resent you for your having reached a high position.” As a result of this, Aharon merited the adornment of the <i>choshen</i> which is placed over the heart. 
 
@@ -60,7 +60,7 @@
 <b>For they have died — all the men.</b> Who were they (these men)? Dasan and Aviram. [Actually,] they were still alive, but had become paupers and a poor person is considered as if dead. 
 
 ### passuk 20
-<b>The donkey.</b> [Meaning:] <i>the</i> donkey designated for this. This is the same donkey that Avraham saddled at the binding of Yitzchak, and the same one upon which the King Moshiach is destined to reveal himself, as it is said: [“The king will come to you] humble and riding on a donkey.” 
+<b>The donkey.</b> [Meaning:] <i>the</i> donkey designated for this. This is the same donkey that Avraham saddled at the binding of Yitzchok, and the same one upon which the King Moshiach is destined to reveal himself, as it is said: [“The king will come to you] humble and riding on a donkey.” 
 <b>And he returned to the land of Egypt. Moshe took the rod</b> “Earlier” or “later” are not exact in Scripture.
 
 ### passuk 21
@@ -69,7 +69,7 @@
 
 ### passuk 22
 <b>You will say to Pharaoh.</b> “When you hear that his heart is hardened and he refuses to send [the people away], tell him thus: 
-<b>[Yisrael] is my son, my firstborn.</b> [בְּכוֹרִי , here means:] of greatness as in: “I will also make him great.” This is its plain meaning. But, the midrashic explanation is: Here, God put His seal on the sale of the birthright which Yaakov had bought from Essav. 
+<b>[Yisrael] is my son, my firstborn.</b> [בְּכוֹרִי , here means:] of greatness as in: “I will also make him great.” This is its plain meaning. But, the midrashic explanation is: Here, God put His seal on the sale of the birthright which Yaakov had bought from Eisov. 
 
 ### passuk 23
 <b>“And I have said to you —</b> as a messenger of God, ‘Send My son out, etc.’” 

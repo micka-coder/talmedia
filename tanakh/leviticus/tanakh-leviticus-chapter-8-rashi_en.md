@@ -84,7 +84,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Hachem commanded him to do,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>all seven days. And our Rabbis expounded: <b>To do</b>, this [refers] to the ritual of the Red Heifer, <b>to bring about atonement</b>, this [refers] to the ritual of Yom Kippur, and to teach that the <i>Kohen Godol</i> requires <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seclusion seven days before Yom Kippur, and similarly the <i>Kohen</i> who burns the Heifer. 
+<b>Adonoy commanded him to do,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>all seven days. And our Rabbis expounded: <b>To do</b>, this [refers] to the ritual of the Red Heifer, <b>to bring about atonement</b>, this [refers] to the ritual of Yom Kippur, and to teach that the <i>Kohein Godol</i> requires <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seclusion seven days before Yom Kippur, and similarly the <i>kohein</i> who burns the Heifer. 
 
 ### passuk 35
 <b>And you will not die,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>thus, if you do not do so, you are liable to [the] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>death [penalty]. 

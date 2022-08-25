@@ -150,7 +150,7 @@
 
 ### passuk 37
 <b>In the fourth year.</b> Of Shlomo Hamelech[’s reign].
-<b>The foundation was laid— of the Beis Hamikdosh house of Hachem.</b> Its foundation was begun.<sup>48</sup><i class="footnote">I.e., construction of Beis Hamikdosh began.</i>
+<b>The foundation was laid— of the Beis Hamikdosh house of Adonoy.</b> Its foundation was begun.<sup>48</sup><i class="footnote">I.e., construction of Beis Hamikdosh began.</i>
 
 ### passuk 38
 <b>In the month of Bul.</b> This is [the month of] Mar Cheshvan;<sup>49</sup><i class="footnote">The Flood [מבול] during Noach’s time began in the month of Marcheshvan.</i> [when] the grass in the field decays, and cattle is given fodder from what is stored, from the expression “and he gave fodder [ויבל] to the donkeys.”<sup>50</sup><i class="footnote">Shoftim 19:21. </i>

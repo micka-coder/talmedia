@@ -2,18 +2,18 @@
 ### passuk 1
 
 ### passuk 2
-<b>Je suis jaloux d'elle</b> Pour [pas "to'] elle. Et vous n'aurez pas besoin de jeûner et de vous lamenter. Et c'est ainsi que se termine le chapitre : " Le jeà "ne du cinquième mois, etc. ".
+<b>Je suis jaloux d'elle</b> Pour [pas "à"] elle. Et vous n'aurez pas besoin de jeûner et de vous lamenter. Et ainsi se termine le chapitre : "Le jeûne du cinquième mois, etc."
 
 ### passuk 3
 
 ### passuk 4
-<b>À cause de la vieillesse</b> ils auront besoin du bâton à la main.
+<b>à cause de la vieillesse</b> ils auront besoin du bâton dans leur main.
 
 ### passuk 5
 
 ### passuk 6
 <b>Comme ce sera merveilleux</b> à leurs yeux, la grande bonté d'amour que je ferai pour eux.
-<b>Ce sera aussi merveilleux à Mes yeux</b> comment Je suis revenu de la grande colère. Et nos Sages ont exposé [cette phrase], concernant l'abattage du mauvais penchant, dans le traité Sukkah (52a) : <b>Ce sera également merveilleux à Mes yeux</b> comment les justes seront capables de tenir tête [au mauvais penchant] pendant leur vie.
+<b>Ce sera aussi merveilleux à Mes yeux</b> comment Je suis revenu de la grande colère. Et nos Sages ont exposé [cette phrase], concernant l'abattage du mauvais penchant, dans le tractate Sukkah (52a) : <b>Ce sera également merveilleux à Mes yeux</b> comment les justes seront capables de tenir tête [au mauvais penchant] pendant leur vie.
 
 ### passuk 7
 
@@ -22,7 +22,7 @@
 ### passuk 9
 <b>Que vos mains soient fortes</b> pour construire et achever [le Temple] ; et ne craignez pas les gens du pays, qui affaiblissent vos mains et vous effraient de le construire, comme cela est relaté dans le Livre d'Esdras (4:4).
 <b>Vous qui entendez en ces jours</b> Dans la quatrième année de Darius.
-<b>ces paroles</b> de consolations de la bouche des prophètes qui ont prophétisé pour [le peuple] - le jour de la pose des fondations de la maison du Seigneur, la deuxième année de Darius - pour commencer les travaux. Ces prophètes ont prouvé par leurs paroles qu'ils étaient de vrais prophètes à vos yeux ; il est donc aussi digne de s'appuyer sur eux pour les paroles de consolation concernant le temps présent. Et de quelle manière ont-ils été prouvés ? <b>Parce qu'avant ces jours-là, il n'y avait pas de salaire pour l'homme, etc.</b> Ils vous ont prophétisé que lorsque vous commenceriez le travail, une bénédiction viendrait dans l'oeuvre de vos mains ; et leurs paroles se sont accomplies, car maintenant ce n'est pas comme les premiers jours.
+<b>ces paroles</b> de consolations de la bouche des prophètes qui ont prophétisé pour [le peuple] - le jour de la pose des fondations de la maison du Seigneur, la deuxième année de Darius - pour commencer les travaux. Ces prophètes ont prouvé par leurs paroles qu'ils étaient de vrais prophètes à vos yeux ; il est donc aussi digne de s'appuyer sur eux pour les paroles de consolation concernant le temps présent. Et de quelle manière ont-ils été prouvés ? <b>Parce qu'avant ces jours-là, il n'y avait pas de salaire pour l'homme, etc.</b> Ils vous ont prophétisé que lorsque vous commenceriez le travail, une bénédiction viendrait dans l'œuvre de vos mains ; et leurs paroles se sont accomplies, car maintenant ce n'est pas comme les premiers jours.
 
 ### passuk 10
 

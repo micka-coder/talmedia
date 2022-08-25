@@ -8,7 +8,7 @@
 <b>Or with a gash causing spilling.</b> The organ was gashed, and no longer ejects a stream of semen, but spills and dribbles, and is sterile. 
 
 ### passuk 3
-<b>A base-born may not enter into Hachem’s community.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He may not marry an Israelite woman.
+<b>A base-born may not enter into Adonoy’s community.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He may not marry an Israelite woman.
 
 ### passuk 4
 <b>An Ammonite may not enter.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He may not marry an Israelite woman.

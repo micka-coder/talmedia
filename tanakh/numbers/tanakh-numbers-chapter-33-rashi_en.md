@@ -77,7 +77,7 @@
 ### passuk 37
 
 ### passuk 38
-<b>By the word [lit. mouth] of Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that he died by the Divine kiss.
+<b>By the word [lit. mouth] of Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that he died by the Divine kiss.
 
 ### passuk 39
 

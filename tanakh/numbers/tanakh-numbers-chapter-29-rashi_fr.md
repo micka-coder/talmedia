@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>A part l'holocauste de [Rosh] Chodesh. </b> Les offrandes du <i>Musaf</i> de [Rosh] Chodesh, car il (la nouvelle lune) correspond à la nouvelle année. 
+<b>A part l'holocauste de [Rosh] Chodesh. </b> Les offrandes du <i>Musaf</i> de [Roch] Chodesh, car il (la nouvelle lune) correspond à la nouvelle année. 
 
 ### passuk 7
 
@@ -21,9 +21,9 @@
 ### passuk 10
 
 ### passuk 11
-<b>A part le sacrifice expiatoire pour le péché.</b> Le bouc offert dans la chambre intérieure, mentionné dans "Acharei Mos." Il était lui aussi un sacrifice pour le péché. 
-<b>Et l'holocauste constant (quotidien)</b> Et <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>en dehors de l'holocauste constant, vous offrirez ces holocaustes. 
-<b>Et leurs libations.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela se rapporte aux offrandes <i>musaf</i> énoncées ci-dessus, et à "tu offriras". <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Cela dénote un ordre : "A part l'holocauste constant et sa <i>minchah,</i> vous offrirez ceux-ci et leurs libations.' Il en est de même pour chaque "leurs libations" dit à toutes les fêtes, sauf celles concernant les sacrifices de la fête [<i>Succos</i>]. Chaque "et sa libation", "et leurs libations", "et ses libations" parmi eux se réfèrent au sacrifice constant, et ne sont pas des commandements, puisque les libations <i>musaf</i> sont écrites séparément pour chaque jour. 
+<b>A part de l'offrande expiatoire pour le péché.</b> Le bouc offert dans la chambre intérieure, mentionné dans "Acharei Mos". Il s'agissait, lui aussi, d'un sacrifice pour le péché. 
+<b>Et l'holocauste constant (quotidien)</b> Et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>en dehors de l'holocauste constant, vous offrirez ces holocaustes. 
+<b>Et leurs libations.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceci se rapporte aux offrandes <i>musaf</i> énoncées ci-dessus, et à "tu offriras". <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il dénote un ordre : 'En dehors de l'holocauste constant et de sa <i>minchah,</i> tu offriras ceux-ci et leurs libations.' Il en est de même pour chaque "leurs libations" dit à toutes les fêtes, sauf celles concernant les sacrifices de la fête [<i>Succos</i>]. Chaque "et sa libation", "et leurs libations", "et ses libations" parmi eux font référence au sacrifice constant, et ne sont pas des commandements, puisque les libations <i>musaf</i> sont écrites séparément pour chaque jour. 
 
 ### passuk 12
 
@@ -38,8 +38,8 @@
 ### passuk 17
 
 ### passuk 18
-<b>Leurs offrandes de repas et leurs libations pour les taureaux.</b> Il y avait soixante-dix taureaux de fête, représentant les soixante-dix nations, qui diminuaient progressivement, symbolisant leur destruction. Pendant le temps du Sanctuaire, [cependant,] Ces sacrifices les mettaient à l'abri de la souffrance. 
-<b>Et les agneaux.</b> Représentant Israël, que l'on appelle " l'agneau dispersé ", leur nombre est constant, et ils sont au total quatre-vingt-dix-huit, pour annuler les quatre-vingt-dix-huit malédictions du Mishneh Torah. Le deuxième jour,  וְנִסְכֵּיהֶם, "et leurs libations" est dit, en relation avec les deux offrandes constantes du jour. Ce changement de langage était destiné à l'exposition, comme l'ont remarqué les sages, de mémoire bénie : Le deuxième jour,  וְנִסְכֵּיהֶם, "et leurs libations," est dit, le sixième,  וּנְסָכֶיהָ, "et ses libations," le septième,  כְּמִשְׁפָּטָם, "selon "leur' exigence. "  מ . qui s'écrit  יו, "eau", et qui est une allusion au fait que la libation d'eau, pendant la Fête, est scripturale. 
+<b>Leurs offrandes de repas et leurs libations pour les taureaux.</b> Il y avait soixante-dix taureaux de fête, représentant les soixante-dix nations, qui diminuaient progressivement, symbolisant leur destruction. Pendant le temps du Sanctuaire, [cependant,] ces sacrifices les mettaient à l'abri de la souffrance. 
+<b>Et les agneaux.</b> Représentant Israël, qui est appelé "l'agneau dispersé". Leur nombre est constant, et ils sont quatre-vingt-dix-huit au total, pour annuler les quatre-vingt-dix-huit malédictions du Mishneh Torah. Le deuxième jour, וְנִסְכֵּיהֶם, "et leurs libations" est dit, en relation avec les deux offrandes constantes du jour. Ce changement de langage était destiné à l'exposition, comme l'ont remarqué les rabbins, de mémoire bénie : Le deuxième jour, on dit וְנִסְכֵּיהֶם, "et leurs libations", le sixième jour, וּנְסָכֶיהָ, "et ses libations", le septième jour, כְּמִשְׁפָּטָם, "selon "leur" exigence." מ "ם, יו "ד, מ "ם . qui s'écrit מַּיִם, "eau", et qui est une allusion au fait que la libation d'eau, pendant la fête, est scripturale. 
 
 ### passuk 19
 
@@ -74,18 +74,18 @@
 ### passuk 34
 
 ### passuk 35
-<b>Ce sera un [jour de] retenue pour vous.</b> <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Retenue de faire du travail. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Une autre interpétation [de] retenue, retenez-vous de partir. Cela enseigne qu'il leur était demandé de rester toute la nuit. <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>Selon le Midrash Aggadique, parce que, pendant toute la durée de la fête, ils apportaient des offrandes qui représentaient les soixante-dix nations. Lorsqu'ils allaient partir, l'Omniprésent leur dit : "Je vous demande de me faire un petit repas, afin que je puisse profiter de votre compagnie.' 
+<b>Ce sera un [jour de] retenue pour vous.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Retenue de faire du travail. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une autre interpétation [de] retenue, retenez-vous de partir. Cela enseigne qu'il leur était demandé de rester toute la nuit. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Selon le Midrash Aggadique, car, pendant toute la durée de la fête, ils apportaient des offrandes qui représentaient les soixante-dix nations. Lorsqu'ils allaient partir, l'Omniprésent leur dit : " Je vous demande de me faire un petit repas, afin que je puisse profiter de votre compagnie. 
 
 ### passuk 36
-<b>Un jeune taureau, un bélier.</b> Ces <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>représentent Yisrael [qui est le singulier du Saint, Béni soit-Il] "Reste avec Moi un peu plus longtemps'. Cela dénote de l'affection, comme lorsque des enfants prennent congé de leur père et que celui-ci leur dit : "Votre départ m'afflige, restez encore un jour'. Ceci est comparé à un roi qui fait un festin, etc, comme indiqué dans le tracté Succah. Le Midrash R' Tanchumah interprète : La Torah enseigne <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i>une conduite appropriée. Quelqu'un qui reçoit un invité doit, le premier jour, lui donner de la volaille engraissée, le jour suivant du poisson, le jour suivant du boeuf, le jour suivant il doit lui donner des céréales, et le jour suivant, des légumes. Diminution progressive, comme les taureaux de la fête. 
+<b>Un jeune taureau, un bélier.</b> Ces <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>représentent Israël [qui est le singulier du Saint, Béni soit-Il] - 'Reste avec Moi un peu plus longtemps'. Cela dénote l'affection, comme lorsque les enfants prennent congé de leur père et qu'il leur dit : 'Ton départ m'afflige, reste encore un jour'. Ceci est comparé à un roi qui fait un repas, etc., comme indiqué dans le traité Succah. Le Midrash R' Tanchumah interprète : La Torah enseigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>une conduite correcte. Quelqu'un qui reçoit un invité doit, le premier jour, lui donner de la volaille engraissée, le lendemain du poisson, le surlendemain du bœuf, le jour suivant il doit lui donner des céréales, et le suivant des légumes. Diminution progressive, comme les taureaux de la fête. 
 
 ### passuk 37
 
 ### passuk 38
 
 ### passuk 39
-<b>Ces choses que vous ferez à Hachem lors de vos fêtes.</b> Ces choses désignées <i data-commentator="Siftei Chakhamim" data-label="âš¬"></i> comme des obligations.
-<b>A l'exception de vos voeux.</b> Si vous décidez de faire des voeux d'offrandes pendant la fête, cela vous sera crédité comme un acte louable. Ou bien, les voeux et les cadeaux que vous avez promis tout au long de l'année, apportez pendant la fête, car il peut être difficile pour vous de faire le pèlerinage de retour à Jérusalem pour offrir vos voeux, et vous pouvez donc finalement violer l'interdiction de ". ... ne tardez pas à [accomplir votre engagement]. 
+<b>Ces choses que vous ferez à Adonoy lors de vos fêtes.</b> Ces choses désignées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme des obligations.
+<b>A l'exception de vos vœux.</b> Si vous décidez de faire des vœux d'offrandes pendant la fête, cela vous sera crédité comme un acte louable. Ou encore, les vœux et les offrandes que vous avez promis tout au long de l'année, apportez pendant la fête, car il peut vous être difficile de faire le pèlerinage aller-retour à Jérusalem pour offrir vos vœux, et vous risquez donc finalement d'enfreindre l'interdiction de " ... ne tardez pas [à accomplir votre vœu] ". 
 
 >Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>License : CC_BY

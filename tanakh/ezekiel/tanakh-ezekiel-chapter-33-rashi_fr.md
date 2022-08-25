@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>comme guetteur</b> [Heb.  לְצֹפֶה",] badete en ancien français, sentinelle, gardien.
+<b>Comme un guetteur</b> [Heb. לְצֹפֶה,] badete en ancien français., sentinelle, gardien.
 
 ### passuk 3
 <b>Et il voit l'armée</b> [lit. l'épée.] Ce sont les armées.
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Vous avez parlé ainsi</b> C'est pourquoi vous ne voulez pas vous repentir, parce que vous croyez que le repentir ne vous servira à rien.
+<b>Tu as parlé ainsi</b> C'est pourquoi tu ne veux pas te repentir, parce que tu crois que le repentir ne te servira à rien.
 
 ### passuk 11
 
@@ -52,13 +52,13 @@
 ### passuk 21
 
 ### passuk 22
-<b>Et Il a ouvert ma bouche</b> comme Il le dit au début du Livre (3:26) : "et tu deviendras muet, et tu ne seras pas un reproche pour eux." Ensuite, Il lui a dit (24:25 et suivants) : " le jour où je leur enlèverai leur force, etc, le fugitif viendra à toi, etc, ce jour-là, ta bouche s'ouvrira avec le fugitif, tu parleras et tu ne seras plus muet ".
-<b>Avant qu'il ne vienne à moi le matin</b> [Héb.  עַד בּוֹא אֵלִי בַּבֹּקֶר,] c'est-à-dire quand il n'était pas encore (בְּעוֹד") venu à moi le matin, comme : avant qu'il ne vienne à moi le matin.
+<b>Et Il a ouvert ma bouche</b> comme Il le dit au début du Livre (3:26) : "et tu deviendras muet, et tu ne seras pas un reproche pour eux". Ensuite, Il lui a dit (24:25 et suivants) : "le jour où je leur enlèverai leur force, etc, le fugitif viendra à toi, etc, ce jour-là, ta bouche sera ouverte avec le fugitif, et tu parleras et tu ne seras plus muet."
+<b>Avant [sa] venue à moi le matin</b> [Héb. עַד בּוֹא אֵלִי בַּבֹּקֶר,] c'est-à-dire quand il n'était pas encore (בְּעוֹד) venu à moi le matin, comme : avant qu'il ne vienne à moi le matin.
 
 ### passuk 23
 
 ### passuk 24
-<b>Abraham était un</b> C'est l'une des quatre choses que Rabbi Akiva a interprétées [d'une seule manière] et que son disciple, Rabbi Shimon ben Yochai, n'a pas interprétées comme lui. Rabbi Shimon l'a interprété de la manière suivante : Abraham, qui n'a reçu qu'un seul commandement [à savoir la circoncision], a hérité de la terre. Nous, donc, qui avons reçu de nombreux commandements, devrions certainement avoir la terre qui nous a été donnée en héritage (Tosefta Sotah 6:7). Voici ce que le prophète leur répond.
+<b>Abraham était un</b> C'est l'une des quatre choses que Rabbi Akiva a interprétées [d'une manière] et que son disciple, Rabbi Shimon ben Yochai, n'a pas interprétées comme lui. Rabbi Shimon l'a interprété de la manière suivante : Abraham, qui n'a reçu qu'un seul commandement [à savoir la circoncision], a hérité de la terre. Nous, donc, qui avons reçu de nombreux commandements, devrions certainement avoir la terre qui nous a été donnée en héritage (Tosefta Sotah 6:7). Voici ce que le prophète leur répond.
 
 ### passuk 25
 <b>Vous mangez sur le sang, etc., et vous devriez hériter de la terre</b> Il s'agit d'une question rhétorique. Si on vous a ordonné [de nombreux commandements], vous ne les gardez pas. Vous mangez sur le sang : vous mangez des mets délicats par le meurtre, car vous tuez ceux qui ont de l'argent et vous prenez leur argent.
@@ -80,11 +80,11 @@
 
 ### passuk 31
 <b>Et ils s'assiéront devant toi comme Mon peuple</b> comme s'ils étaient Mon peuple.
-<b>Jokes</b> [Heb.  עֲגָבִים,] rire, en relation avec  עוּגָב', une flûte.
+<b>Jokes</b> [Heb. עֲגָבִים,] rire, en rapport avec עוּגָב, une flûte.
 <b>leur gain</b> leurs biens volés.
 
 ### passuk 32
-<b>Et vous êtes pour eux comme un chant sur la flûte</b> Et vous êtes pour eux comme un chant sur la flûte.
+<b>Et tu es pour eux comme un chant sur la flûte</b> Et tu es pour eux comme un chant sur la flûte.
 
 ### passuk 33
 <b>Et quand il vient</b> le mal pour eux.

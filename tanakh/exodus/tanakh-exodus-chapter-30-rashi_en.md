@@ -70,10 +70,10 @@
 <b>And the altar —</b> the altar of the burnt-offering, about which it is written that it is “in front of the entrance way of the <i>mishkon</i> of the Tent of Meeting.” The wash basin was slightly pulled to the side and stood in the space between the altar and the <i>mishkon</i> and did not obstruct at all between them, for it is stated: “And the altar of the burnt-offering he placed at the entrance of the <i>mishkon</i> of the Tent of Meeting,” [indicating that] the altar was in front of the Tent of Meeting but the wash basin was not in front of the Tent of Meeting. Then where was it? It was slightly pulled back southward. So it is taught in Tractate Zevachim. 
 
 ### passuk 19
-<b>Their hands and their feet.</b> He (the <i>Kohen</i>) simultaneously washed his hands and feet. Thus did we learn in Tractate Zevachim: How was the washing of the hands and feet done? He placed his right hand on his right foot, and his left hand on his left foot and washed [them]. 
+<b>Their hands and their feet.</b> He (the <i>kohein</i>) simultaneously washed his hands and feet. Thus did we learn in Tractate Zevachim: How was the washing of the hands and feet done? He placed his right hand on his right foot, and his left hand on his left foot and washed [them]. 
 
 ### passuk 20
-<b>Before entering the Tent of Meeting —</b> to burn the incense, morning and afternoon, or to sprinkle from the blood of the bull brought by the anointed <i>Kohen</i> [<i>godol</i>] and of the goats brought for the sin of idolatry. 
+<b>Before entering the Tent of Meeting —</b> to burn the incense, morning and afternoon, or to sprinkle from the blood of the bull brought by the anointed <i>kohein</i> [<i>godol</i>] and of the goats brought for the sin of idolatry. 
 <b>And they will not die.</b> But, if they do not wash, they <i>will</i> die, for in the Torah there were said things intended to be understood by inference. Hence from the inference of the negative you may derive the positive. 
 <b>The altar.</b> [I.e.,] the outer [altar] for in this case there is no entering into the Tent of Meeting, but only into the courtyard. 
 
@@ -142,7 +142,7 @@
 
 ### passuk 37
 <b>Its formula.</b> [Meaning:] according to the quantity of its spices.
-<b>It shall be sacred to you for Hachem.</b> [Meaning:] that you shall do it only for My Name.
+<b>It shall be sacred to you for Adonoy.</b> [Meaning:] that you shall do it only for My Name.
 
 ### passuk 38
 <b>To enjoy its fragrance.</b> But, you may make it on your own in its proper proportions for the purpose of selling it to the community. 

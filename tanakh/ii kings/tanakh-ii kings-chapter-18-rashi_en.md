@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>He succeeded.</b> He succeeded.<sup>6</sup><i class="footnote">ישכיל stems from שכל [=intelligence]. Hachem successful person is conceived by others as one who acts with intelligence.—Metzudas Dovid</i> <sup>7</sup><i class="footnote">As in, “Dovid was successful [=משכיל] in all his ways,” in I Shmuel 18:14.</i>
+<b>He succeeded.</b> He succeeded.<sup>6</sup><i class="footnote">ישכיל stems from שכל [=intelligence]. Adonoy successful person is conceived by others as one who acts with intelligence.—Metzudas Dovid</i> <sup>7</sup><i class="footnote">As in, “Dovid was successful [=משכיל] in all his ways,” in I Shmuel 18:14.</i>
 
 ### passuk 8
 
@@ -63,7 +63,7 @@
 <b>How can you turn away one captain of my master's servants.</b> For the smallest of them is captain over two thousand men, and you cannot obtain two thousand men. We deduce from here concerning the heads of the armies, who totaled one hundred and eighty-five thousand and fell with Sancheiriv, that the smallest of them was captain over two thousand men who were with him.
 
 ### passuk 25
-<b>Is it with other than Hachem.</b> Did I come without permission? Yeshayohu already prophesied in the days of Achaz your father, ”Hachem shall bring upon you and upon your people, etc., the king of Ashur.”<sup>17</sup><i class="footnote">Yeshayohu 7:17. Radak cites another verse from Yeshayohu's prophecy, “and therefore the LRD is bringing upon them the mighty and abundant waters of the river, the king of Ashur, etc.,” in Yeshayohu 8:7. Sancheiriv therefore believed that he was acting with Divine approval.</i>
+<b>Is it with other than Adonoy.</b> Did I come without permission? Yeshayohu already prophesied in the days of Achaz your father, ”Adonoy shall bring upon you and upon your people, etc., the king of Ashur.”<sup>17</sup><i class="footnote">Yeshayohu 7:17. Radak cites another verse from Yeshayohu's prophecy, “and therefore the LRD is bringing upon them the mighty and abundant waters of the river, the king of Ashur, etc.,” in Yeshayohu 8:7. Sancheiriv therefore believed that he was acting with Divine approval.</i>
 <b>And to destroy it.</b> This he added of his own accord.
 
 ### passuk 26

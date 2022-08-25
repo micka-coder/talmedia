@@ -7,20 +7,20 @@
 <b>Réponse de Job</b><br><b>pour contester avec lui</b> Pour débattre avec lui.
 
 ### passuk 4
-<b>Il est sage de coeur</b> pour contester.
+<b>Il est sage de cœur</b> pour contester.
 <b>et puissant en force</b> pour requérir.
-<b>Qui a endurci</b> son cœur et s'en est allé tout entier ? Pharaon a endurci [son cur] et a été détruit, et il en est ainsi de tous ceux qui ont endurci [leur cur].
+<b>Qui a endurci</b> son cœur et s'en est allé tout entier ? Pharaon a endurci [son cœur] et a été détruit, et il en est ainsi de tous ceux qui ont endurci [leur cœur].
 
 ### passuk 5
 <b>Celui qui déplace les montagnes</b> Il les a déplacées lorsqu'il a renversé Sodome.
-<b>Et ils ne savaient pas</b> jusqu'à ce qu'Il les ait retournés.
+<b>Et ils ne savaient pas</b> jusqu'à ce qu'Il les ait renversés.
 
 ### passuk 6
 <b>Celui qui fait trembler la terre</b> quand Il la regarde, et elle tremble.
 
 ### passuk 7
-<b>Celui qui a parlé au soleil</b> Héb.  לחרס¡, au soleil, "Se tenir tranquille." et il a gardé l'ordre du Roi et n'a pas brillé.
-<b>Et Il installa les étoiles</b> Il ferma les étoiles avec une cloison et elles ne brillèrent pas.
+<b>Celui qui a parlé au soleil</b> Héb. לחרס, au soleil : "Arrête-toi !" et il a gardé l'ordre du Roi et n'a pas brillé.
+<b>Et il installa les étoiles</b> Il ferma les étoiles avec une cloison et elles ne brillèrent pas.
 
 ### passuk 8
 <b>Celui qui clone a étendu les cieux</b> et les anges ont été créés le deuxième jour, de peur que vous ne disiez que Michel l'a étendu au nord et Gabriel au sud.
@@ -28,35 +28,35 @@
 
 ### passuk 9
 <b>Orion, et les Pléiades</b> ce sont des constellations.
-<b>et les chambres du sud</b> dans lesquelles faire entrer la tempête, comme il l'affirme (ci-dessous 37:9) : " C'est de la chambre que viendra la tempête ".
+<b>et les chambres du sud</b> dans lesquelles faire entrer la tempête, comme il le précise (ci-dessous 37,9) : "De la chambre viendra la tempête".
 
 ### passuk 10
 
 ### passuk 11
-<b>Voici, Il passe par moi</b> Je sais que tout ce qu'Il veut, Il le fait.
+<b>Voici, il passe par moi</b> Je sais que tout ce qu'il veut, il le fait.
 <b>Il passe par moi</b> Devant moi, mais je ne le vois pas.
 
 ### passuk 12
-<b>Voici, Il frappe soudainement</b> Heb.  יחתף£, Il frappe soudainement, comme (Prov. 23:28), "Elle aussi se tapira soudainement (כחתף£)," une expression de soudaineté.
+<b>Attendez, Il frappe soudainement</b> Heb. יחתף, Il frappe soudainement, comme (Prov. 23:28), "Elle aussi, elle se tapira soudainement (כחתף)", une expression de soudaineté.
 
 ### passuk 13
 <b>Ne retiendra pas sa colère</b> à cause de la crainte (autres éditions : la justice) d'un homme.
-<b>[Tous les assistants de Rahab] s'abaissent sous Lui</b> L'armée céleste qui est venue en aide aux Égyptiens. L'Egypte est appelée Rahab, comme il est dit (Isa. 30:7) : "C'est pourquoi j'ai appelé cela, "Ils sont hautains (רהב') oisifs,'" à cause de leur hauteur, car ils disaient : "Qui est le Seigneur ? etc." (Exod. 5:2).
+<b>[Tous les assistants de Rahab] s'abaissent sous Lui</b> L'armée céleste qui est venue en aide aux Égyptiens. L'Égypte est appelée Rahab, comme il est dit (Esaïe 30:7) : " C'est pourquoi j'ai appelé cela : "Ce sont des hautains (רהב) fainéants" ", à force de se montrer hautains, car ils disaient : " Qui est le Seigneur ? ", etc. (Exod. 5:2).
 
 ### passuk 14
-<b>Surement</b> Heb.  אַף£.
+<b>Surement</b> Heb. אַף.
 
 ### passuk 15
 <b>Je ne répondrai pas</b> Je craindrai d'élever ma voix devant Lui.
-<b>Mon Juge</b> Heb.  למשפטי, comme  לשופטי.
+<b>Mon Juge</b> Heb. למשפטי, comme לשופטי.
 
 ### passuk 16
 <b>Je ne croirai pas</b> Je serai incapable de croire à cause de ma crainte pour Lui, car comment ne le vois-je pas ?
 
 ### passuk 17
 <b>Celui qui m'écraserait par une tempête</b> Ma forme a été changée (autres éditions : mon statut) devant Lui.
-<b>Il m'écraserait</b> Heb.  ישופני, m'écraserait. " Je l'ai écrasé et broyé " (Deut. 9:21) est traduit en araméen par :  ושפיתיתֵה".
-<b>Mes blessures</b> Heb.  פצעי, une blessure qui suinte du sang et du pus.
+<b>Il m'écraserait</b> Heb. ישופני, m'écraserait. " Je l'ai écrasé et broyé " (Deut. 9:21) est traduit en araméen par : ושפיתיתֵה.
+<b>Mes blessures</b> Heb. פצעי, une blessure qui suinte du sang et du pus.
 
 ### passuk 18
 <b>Celui qui ne voulait pas me laisser</b> Il ne me laisse pas ramener mon souffle à moi.
@@ -88,12 +88,12 @@
 
 ### passuk 26
 <b>Ebeh</b> Le nom d'une rivière impétueuse.
-<b>swoops</b> Heb.  יטוש, mouches.
+<b>swoops</b> Heb. יטוש, vole.
 
 ### passuk 27
 <b>Mon discours</b> Les mots de ma douleur.
-<b>Ma colère</b> Heb.  פני, lit. mon visage.
-<b>et [je me] retiendrai</b> Héb.  ואבליגה", je me renforcerai, comme (Amos 5:9), "Qui renforce (המבליג') le spolié sur le fort."
+<b>Ma colère</b> Heb. פני, lit. mon visage.
+<b>et [je] me retiendrai</b> Héb. ואבליגה, je me renforcerai, comme (Amos 5:9), "Qui renforce (המבליג) le volé sur le fort."
 
 ### passuk 28
 <b>Je rassemblerai toute ma tristesse</b> pour qu'elle ne me laisse pas crier.
@@ -103,13 +103,13 @@
 <b>Pourquoi devrais-je peiner en vain</b> pour arriver au jugement ?
 
 ### passuk 30
-<b>avec pureté</b> Heb.  בבור, avec propreté.
+<b>avec pureté</b> Heb. בבור, avec propreté.
 
 ### passuk 31
-<b>Tu me plongeras dans le fossé</b> pour être souillé et contaminé ; c'est-à-dire que tu trouveras en moi une grande iniquité.
+<b>Vous me plongerez dans le fossé</b> pour être souillé et contaminé ; c'est-à-dire que vous trouverez en moi une grande iniquité.
 
 ### passuk 32
-<b>en débat</b> Heb.  במשפט, en paroles de débat. [Le mot]  משפט  est utilisé dans trois expressions : 1) son début, c'est-à-dire l'éclaircissement des questions, 2) son milieu, c'est-à-dire le verdict, et 3) sa fin, c'est-à-dire l'application des tortures et le recouvrement de la dette. L'Écriture l'écrit parfois comme se référant au début, parfois au milieu, et parfois à la fin.
+<b>en débat</b> Heb. במשפט, en paroles de débat. [Le mot] משפט est utilisé dans trois expressions : 1) son début, c'est-à-dire l'éclaircissement des questions, 2) son milieu, c'est-à-dire le verdict, et 3) sa fin, c'est-à-dire l'application des tortures et le recouvrement de la dette. L'Écriture l'écrit parfois comme se référant au début, parfois au milieu, et parfois à la fin.
 
 ### passuk 33
 <b>arbiter</b> discerneur en vieux français. Il montre à chacun sa culpabilité et son innocence.

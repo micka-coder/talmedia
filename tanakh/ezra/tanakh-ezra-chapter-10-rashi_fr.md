@@ -1,10 +1,10 @@
 
 ### passuk 1
-<b>Suintage</b> Heb.  בּכֶה", comme  בֶּכִי.
+<b>Suintage</b> Heb. בּכֶה, comme בֶּכִי.
 
 ### passuk 2
 <b>et nous avons pris</b> Et nous les avons pris en charge.
-<b>Il y a de l'espoir</b> Il y a de l'espoir pour Israël concernant cela, car ils peuvent chasser leurs femmes étrangères et leur progéniture et chasser tous les enfants nés de ces femmes étrangères.
+<b>Il y a de l'espoir</b> Il y a de l'espoir pour Israël à ce sujet, car ils peuvent chasser leurs femmes étrangères et leur progéniture et chasser tous les enfants nés de ces femmes étrangères.
 
 ### passuk 3
 <b>par le conseil du Seigneur</b> par le conseil et la volonté du Saint, béni soit-il.
@@ -19,10 +19,10 @@
 ### passuk 6
 
 ### passuk 7
-<b>une proclamation</b> Heb.  קוֹל, lit. une voix, une annonce.
+<b>une proclamation</b> Heb. קוֹל, lit. une voix, une annonce.
 
 ### passuk 8
-<b>Par trois jours</b> au bout de trois jours.
+<b>par trois jours</b> au bout de trois jours.
 
 ### passuk 9
 <b>Le neuvième mois</b> C'est le mois de Kislev.
@@ -32,38 +32,38 @@
 ### passuk 10
 
 ### passuk 11
-<b>confess</b> Heb.  תּוֹדָה", [qui, dans ce cas, signifie]  וִדּוּי, confession.
+<b>confess</b> Heb. תּוֹדָה, [qui, dans ce cas, signifie] וִדּוּי, confession.
 
 ### passuk 12
 
 ### passuk 13
 <b>et c'est la saison des pluies</b> car les pluies tombent sur nous.
-<b>Et le travail</b> Et cette séparation du péché ne peut être exécutée si rapidement.
+<b>et le travail</b> Et cette séparation d'avec le péché ne peut être exécutée si rapidement.
 
 ### passuk 14
-<b>avec toute la congrégation</b> Heb.  לְכָל הַקָהָל
-<b>Heb.  הַהשִּׁיב ' équivalent à  אֲשֶּׁר הוֹשִּׁיב'.
-<b>Jusqu'à ce que nous nous détournions</b> jusqu'à ce que la colère ardente du Saint, béni soit-il, revienne de dessus nous.
+<b>Avec toute la congrégation</b> Heb. לְכָל הַקָהָל
+<b>qui a accueilli</b> Heb. הַהשִּׁיב équivalent à אֲשֶּׁר הוֹשִּׁיב.
+<b>Jusqu'à ce que nous nous détournions</b> jusqu'à ce que la colère ardente du Saint, béni soit-Il, revienne de sur nous.
 
 ### passuk 15
 <b>S'est dressé contre cela</b> pour argumenter concernant cette affaire.
 <b>Les ont soutenus</b> ont renforcé leurs mains.
 
 ### passuk 16
-<b>Enquêter</b> Heb.  לְדַרְיוֹשּׁ, comme  לִדְרוֹשּׁ.
+<b>enquêter</b> Heb. לְדַרְיוֹשּׁ, comme לִדְרוֹשּׁ.
 
 ### passuk 17
-<b>Et ils ont tout achevé</b> Et ils ont achevé la rectification de l'affaire des hommes qui avaient amené des femmes païennes, car ils les ont chassées.
-<b>du premier mois</b> jusqu'au premier jour de Nissan.
+<b>Et ils achevèrent tout</b> Et ils achevèrent la rectification de l'affaire des hommes qui avaient amené des femmes païennes, car ils les chassèrent.
+<b>Du premier mois</b> jusqu'au premier jour de Nissan.
 
 ### passuk 18
 
 ### passuk 19
-<b>Et ils les conseillèrent</b> Heb.  וַיִתְּנוּ יָדָם, lit. et ils donnèrent leur main, leur conseil, comme (II Sam. 14:19) : " Voici que le conseil de Joab (יַד יוֹאָב') est avec toi dans tout cela (sic).
+<b>Et ils les conseillèrent</b> Heb. וַיִתְּנוּ יָדָם, lit. et ils donnèrent leur main, leur conseil, comme (II Sam. 14:19) : "Voici que le conseil de Joab (יַד יוֹאָב) est avec toi dans tout cela (sic)".
 <b>pour leur culpabilité</b> Il s'agissait d'une décision temporaire.
 
 ### passuk 20
-<b>Et des fils d'Immer</b> Tous ceux-là sont prêtres jusqu'à (verset 23) : "Et des lévites, etc."
+<b>Et des fils d'Immer</b> Tous ceux-là sont prêtres jusqu'à (verset 23) : "Et des Lévites, etc."
 
 ### passuk 21
 

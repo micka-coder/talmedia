@@ -42,10 +42,10 @@
 <b>Are you with us?</b> Have you come to support us?
 
 ### passuk 14
-<b>I have now come.</b>—“to help you, for it is impossible for man to battle against it [Yericho] and capture it, to knock down the wall. However in the days of your master, Moshe, I came, but he did not want my presence, as it is said, ‘If your Presence [Hachem] does not go, etc.’”<sup>15</sup><i class="footnote">Shemos 33:15.</i>
+<b>I have now come.</b>—“to help you, for it is impossible for man to battle against it [Yericho] and capture it, to knock down the wall. However in the days of your master, Moshe, I came, but he did not want my presence, as it is said, ‘If your Presence [Adonoy] does not go, etc.’”<sup>15</sup><i class="footnote">Shemos 33:15.</i>
 
 ### passuk 15
-<b>The officer of Hachem’s host.</b> This refers to Bnei Yisroel, who are Hachem’s host. The officer mentioned here is the Angel, Michoeil, as it is said, ‘Michoeil, your officer.’<sup>16</sup><i class="footnote">Daniel 10:21.</i>
+<b>The officer of Adonoy’s host.</b> This refers to Bnei Yisroel, who are Adonoy’s host. The officer mentioned here is the Angel, Michoeil, as it is said, ‘Michoeil, your officer.’<sup>16</sup><i class="footnote">Daniel 10:21.</i>
 
 >Credit : sefaris
 >License : CC-BY

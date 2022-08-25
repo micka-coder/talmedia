@@ -14,7 +14,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Is there no other prophet of Hachem?</b> I have a tradition that no two prophets prophesy with the same expression, and these are all saying the same expression.<sup>3</sup><i class="footnote">See Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot did not accuse them directly of not being God’s prophets out of respect for Achov.—Radak</i>
+<b>Is there no other prophet of Adonoy?</b> I have a tradition that no two prophets prophesy with the same expression, and these are all saying the same expression.<sup>3</sup><i class="footnote">See Maseches Sanhedrin 89a.</i><sup>4</sup><i class="footnote">Yehoshofot did not accuse them directly of not being God’s prophets out of respect for Achov.—Radak</i>
 
 ### passuk 8
 <b>But only evil.</b> For he said to me, “Because you released the man whom I condemned, etc.”<sup>5</sup><i class="footnote">Above 20:42.</i>
@@ -33,7 +33,7 @@
 
 ### passuk 15
 <b>Go up and be successful.</b> He did not say [it] to him in God’s Name.<sup>6</sup><i class="footnote">He was merely wishing him good luck, or giving him a blessing that he succeed.—Metzudas Dovid</i>
-<b>And may Hachem give.</b> If only He deliver it into the king’s hand.
+<b>And may Adonoy give.</b> If only He deliver it into the king’s hand.
 
 ### passuk 16
 
@@ -43,7 +43,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>To His right and to His left.</b> Is there “left” in Heaven? Is it not stated, “The right hand of Hachem’s is exalted, the right hand of Hachem performs deeds of valor,”<sup>10</sup><i class="footnote">Tehillim 118:16.</i> [and,] “Your right hand, Hachem, is adorned with power; Your right hand, Hachem, crushes the enemy”<sup>11</sup><i class="footnote">Shemos 15:6.</i>? But rather, these are on the right and these are on the left. Those on the right present the case for the defense and those on the left present the case for the prosecution.
+<b>To His right and to His left.</b> Is there “left” in Heaven? Is it not stated, “The right hand of Adonoy’s is exalted, the right hand of Adonoy performs deeds of valor,”<sup>10</sup><i class="footnote">Tehillim 118:16.</i> [and,] “Your right hand, Adonoy, is adorned with power; Your right hand, Adonoy, crushes the enemy”<sup>11</sup><i class="footnote">Shemos 15:6.</i>? But rather, these are on the right and these are on the left. Those on the right present the case for the defense and those on the left present the case for the prosecution.
 
 ### passuk 20
 
@@ -55,7 +55,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>When did the spirit of Hachem pass?</b> [I.e.,] which way did it pass? This is an abbreviated verse.<sup>13</sup><i class="footnote">I.e., the word דרך [=way] is missing.</i> In Divrei Hayomim it is written, “In what way did [Hachem’s spirit] pass.”<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
+<b>When did the spirit of Adonoy pass?</b> [I.e.,] which way did it pass? This is an abbreviated verse.<sup>13</sup><i class="footnote">I.e., the word דרך [=way] is missing.</i> In Divrei Hayomim it is written, “In what way did [Adonoy’s spirit] pass.”<sup>14</sup><i class="footnote">II Divrei Hayomim 18:23.</i>
 
 ### passuk 25
 
@@ -119,7 +119,7 @@
 <b>There was no king in Edom.</b> [Beginning with] the time of Dovid, the governor<sup>22</sup><i class="footnote">I.e., the governor that was appointed by the king of Yehudah.—Radak</i> was the king. This was written here because in the days of Yehorom his son who sinned, in his days Edom rebelled and crowned a king for themselves, but in the time of Yehoshofot they were still subordinate to him.
 
 ### passuk 49
-<b>For they [the ships] were broken.</b> Since he joined Achazyahu in this [undertaking], therefore, they were broken. And so did the prophet say to him in Divrei Hayomim, “Because you have allied yourself with a Achazyahu, Hachem has wrecked your undertakings.”<sup>23</sup><i class="footnote">II Divrei Hayomim 20:37.</i>
+<b>For they [the ships] were broken.</b> Since he joined Achazyahu in this [undertaking], therefore, they were broken. And so did the prophet say to him in Divrei Hayomim, “Because you have allied yourself with a Achazyahu, Adonoy has wrecked your undertakings.”<sup>23</sup><i class="footnote">II Divrei Hayomim 20:37.</i>
 
 ### passuk 50
 

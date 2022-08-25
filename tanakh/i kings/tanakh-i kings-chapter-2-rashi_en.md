@@ -68,7 +68,7 @@
 <b>And because you suffered.</b> With him in that very same affliction, as it is stated, “for they said, ‘the people are hungry and weary and thirsty; in the wilderness.’”<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
 
 ### passuk 27
-<b>That He had spoken concerning the house of Eili.</b> [As it is stated,] “And I will appoint for Myself a faithful <i>Kohen</i>,”<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [and] “and you will see a rival in My dwelling place, etc.”<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Once [the Tabernacle at] Shilo was destroyed, there was no house worthy of service to the Holy One Blessed Is He, but now that the Beis Hamikdosh will be built, the Holy One Blessed Is He, fulfilled His word to banish Eili’s descendants.<sup>16</sup><i class="footnote">Evyosor was Eili’s great great grandson. See I Shmuel 14:3, 22:20.</i>
+<b>That He had spoken concerning the house of Eili.</b> [As it is stated,] “And I will appoint for Myself a faithful <i>kohein</i>,”<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [and] “and you will see a rival in My dwelling place, etc.”<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Once [the Tabernacle at] Shilo was destroyed, there was no house worthy of service to the Holy One Blessed Is He, but now that the Beis Hamikdosh will be built, the Holy One Blessed Is He, fulfilled His word to banish Eili’s descendants.<sup>16</sup><i class="footnote">Evyosor was Eili’s great great grandson. See I Shmuel 14:3, 22:20.</i>
 
 ### passuk 28
 <b>And the report reached Yoav.</b> The report of Dovid’s charge, that he had commanded to kill him, and he knew that Shlomo hated him.<sup>17</sup><i class="footnote">That is why Yoav feared for his life. Alternatively, he heard of Adoniyahu’s death and of Evyosor’s banishment.—Radak</i> 
@@ -108,7 +108,7 @@
 <b>And forewarned you.</b> An expression referring to a [legal] warning.<sup>24</sup><i class="footnote">A warning given to an offender before he or she commits the offense. </i>
 
 ### passuk 43
-<b>The oath of Hachem.</b> Which I made you swear in the name of God.
+<b>The oath of Adonoy.</b> Which I made you swear in the name of God.
 
 ### passuk 44
 

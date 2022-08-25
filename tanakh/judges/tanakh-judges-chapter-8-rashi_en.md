@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b> Can any action of mine compare with yours?</b> How significant were my actions at the beginning in comparison with yours at the end?
-<b>Do not Ephraim's underripened gleanings surpass.</b> The gleanings<sup>1</sup><i class="footnote"> <span>עוֹלְלוֹת</span> are underripened grapes which may not be harvested, but must be left to be gleaned afterward by the poor. (Vayikra, 19:10) Gidon compared his original battle with the Midyonites to the harvest, and the ensuing execution of Orev and Z’ev to the gleaning of the <span>עוֹלְלוֹת</span>.</i> which you acquired at the end surpass the early harvest which my family and I gathered, for Hachem delivered the kings into your hands.
+<b>Do not Ephraim's underripened gleanings surpass.</b> The gleanings<sup>1</sup><i class="footnote"> <span>עוֹלְלוֹת</span> are underripened grapes which may not be harvested, but must be left to be gleaned afterward by the poor. (Vayikra, 19:10) Gidon compared his original battle with the Midyonites to the harvest, and the ensuing execution of Orev and Z’ev to the gleaning of the <span>עוֹלְלוֹת</span>.</i> which you acquired at the end surpass the early harvest which my family and I gathered, for Adonoy delivered the kings into your hands.
 
 ### passuk 3
 <b> What could I have</b> done that would have been as significant as your accomplishments?

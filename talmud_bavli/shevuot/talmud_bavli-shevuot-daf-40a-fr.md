@@ -42,7 +42,7 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve que la r�
 La Gemara rejette cette preuve : <b>Non,</b> il est possible que <b>la même chose soit vraie,</b> c'est-à-dire, <b>que même</b> si la demande portait à la fois sur le <b>blé et l'orge</b> le défendeur est <b>exempté. Et</b> le fait <b>que</b> la mishna précise <b>que</b> le premier <i>tanna</i> et Rabban Gamliel <b>sont en désaccord en ce qui concerne</b> un cas où la créance portait spécifiquement sur du <b>blé</b> et où le défendeur a admis lui devoir de l'orge, c'est pour <b>vous transmettre la portée considérable de</b> l'opinion de <b>Rabban Gamliel, </selon laquelle le défendeur est tenu de prêter serment même si son aveu n'est pas du tout du même type que la demande.
 
 ### Partie 15
-La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve de la mishna : Si quelqu'un <b>réclame</b> qu'un autre lui doit <b>des navires et des terres,</b> et que le défendeur <b>admet lui devoir</b> des <b>vaisseaux mais nie</b> la créance de <b>terre,</b> ou inversement, s'il admet <b>de</b> lui devoir <b>des terres mais nie</b> la créance de <b>vaisseaux,</b> il est <b>exempté</b> de prêter serment.
+La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve de la mishna : Si quelqu'un <b>réclame</b> qu'un autre lui doit <b>des navires et des terres,</b> et que le défendeur <b>admet lui devoir</b> des <b>récipientx mais nie</b> la créance de <b>terre,</b> ou inversement, s'il admet <b>de</b> lui devoir <b>des terres mais nie</b> la créance de <b>récipientx,</b> il est <b>exempté</b> de prêter serment.
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

@@ -19,8 +19,8 @@
 ### passuk 9
 
 ### passuk 10
-<b>As Hachem lives.</b> Some say that he swore to his temptation;<sup>1</sup><i class="footnote"> The use of swearing to ward off temptation is done by many Tzadikim. For example, Avrohom swore [Bereishis 14:22-23] that he will not take the spoils of victory after defeating the four kings. It was Dovid’s inclination to kill Shaul for trying to kill him. He therefore swore that he will not kill Shaul.—See Midrash Tanchuma Beha’aloscha 10.</i> others say that he swore to Avishai, that if you kill this righteous man [Shaul], I shall mingle your blood with his blood.
-<b>Hachem will strike him.</b> Will bring his death prematurely.<sup>2</sup><i class="footnote">Like Novol.—Radak.</i>
+<b>As Adonoy lives.</b> Some say that he swore to his temptation;<sup>1</sup><i class="footnote"> The use of swearing to ward off temptation is done by many Tzadikim. For example, Avrohom swore [Bereishis 14:22-23] that he will not take the spoils of victory after defeating the four kings. It was Dovid’s inclination to kill Shaul for trying to kill him. He therefore swore that he will not kill Shaul.—See Midrash Tanchuma Beha’aloscha 10.</i> others say that he swore to Avishai, that if you kill this righteous man [Shaul], I shall mingle your blood with his blood.
+<b>Adonoy will strike him.</b> Will bring his death prematurely.<sup>2</sup><i class="footnote">Like Novol.—Radak.</i>
 <b>Or his day will come.</b> The day in which he is destined to die.<sup>3</sup><i class="footnote">Is in the very near future.—Radak.</i>
 
 ### passuk 11

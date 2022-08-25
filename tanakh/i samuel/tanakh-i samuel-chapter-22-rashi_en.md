@@ -12,7 +12,7 @@
 
 ### passuk 6
 <b>That Dovid…had been discovered.</b> That he realized to beware of him.
-<b>Beneath the tamarisk tree in Romoh.</b> On one [hill], which was within Binyomin's border.<sup>3</sup><i class="footnote">Not to be confused with the Romoh where Shmuel lived.</i> Our Rabbis said<sup>4</sup><i class="footnote">Maseches Taanis 5b.</i> that this was Shmuel's Romoh, and these are two different places. It is expounded thus: 'Shaul was sitting in Givoh in the merit of the great tamarisk tree [i.e., Shmuel] who was in Romoh, and who was praying for him.'<sup>5</sup><i class="footnote">Were it not for Shmuel’s prayers, Shaul would have had to relinquish the throne immediately after the incident with Amalek. Shmuel prayed for Shaul’s reign to remain intact as long as he was alive.</i>
+<b>Beneath the tamarisk tree in Romoh.</b> On one [hill], which was within Binyomin's border.<sup>3</sup><i class="footnote">Not to be confused with the Romoh where Shmuel lived.</i> Our Rabbis said<sup>4</sup><i class="footnote">Maseches Taanis 5b.</i> that this was Shmuel's Romoh, and these are two different places. It is expounded thus: 'Shaul was sitting in Givoh in the merit of the great tamarisk tree [i.e., Shmuel] who was in Romoh, and who was praying for him.'<sup>5</sup><i class="footnote">Were it not for Shmuel’s prayers, Shaul would have had to relinquish the throne immediately after the incident with Amoleik. Shmuel prayed for Shaul’s reign to remain intact as long as he was alive.</i>
 
 ### passuk 7
 

@@ -31,7 +31,7 @@ all the monarchs <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>dis
 
 ### passuk 8
 <b>Spend this night here.</b> The Sacred spirit visits him only at night. It is the same with all of the gentile prophets, and it was the same with Lavan — in a dream at night, as it is said, “God appeared to Lavan the Aramean in a dream that night,” like a man who visits his concubine secretly. 
-<b>According to what Hachem tells me.</b> If He advises me to go with people like you, I will go with you. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Perhaps it is beneath His dignity to allow me to go, unless it is with higher ranking officials than you. 
+<b>According to what Adonoy tells me.</b> If He advises me to go with people like you, I will go with you. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Perhaps it is beneath His dignity to allow me to go, unless it is with higher ranking officials than you. 
 <b>Remained (lit. sat)</b> The word denotes remaining. 
 
 ### passuk 9
@@ -65,7 +65,7 @@ all the monarchs <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>dis
 
 ### passuk 19
 <b>You also.</b> His mouth ensnared him. You, too, will, in the end, leave <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>in frustration, like the first ones. 
-<b>What more will [Hachem tell me].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He will not alter his word from a blessing to a curse. Would that he does not add a blessing. Here, he prophesied that He (God) would bless them further through him (Bil’am). 
+<b>What more will [Adonoy tell me].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He will not alter his word from a blessing to a curse. Would that he does not add a blessing. Here, he prophesied that He (God) would bless them further through him (Bil’am). 
 
 ### passuk 20
 <b>If [the men have come] to call you.</b> If the invitation is for you, any you expect remuneration, then rise and go with them. 
@@ -93,7 +93,7 @@ all the monarchs <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>dis
 <b>And pressed.</b> Others — Bil’am’s foot.
 
 ### passuk 26
-<b>Hachem’s angel passed further ahead.</b> Passing further before him, proceeding <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to place himself before him in a different place, as in, “he passed before them.” There is a Midrash Aggadah in Tanchuma: Why did he see fit to stop in three places? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He showed him the signs of the patriarchs. 
+<b>Adonoy’s angel passed further ahead.</b> Passing further before him, proceeding <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to place himself before him in a different place, as in, “he passed before them.” There is a Midrash Aggadah in Tanchuma: Why did he see fit to stop in three places? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He showed him the signs of the patriarchs. 
 
 ### passuk 27
 

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Des divisions des sentinelles des portes : des Korahites</b> Ils ne font pas de rotation, mais ils les ont réparties selon les portes, et ils ont ensuite tiré au sort [pour déterminer] qui servirait à telle porte et qui à telle autre. C'est ainsi qu'il est expliqué plus loin (versets 13-19).
-<b>Des Korahites : Meshelemiah, fils de Kore, des fils d'Asaph</b> Et [on retrouve] une similitude ci-dessus (9:19) : "Et Shallum, fils de Kore, etc."
+<b>Des Korahites : Meshelemiah, fils de Koré, des fils d'Asaph</b> Et [on retrouve] une similitude ci-dessus (9:19) : "Et Shallum, fils de Kore, etc."
 
 ### passuk 2
 
@@ -10,15 +10,15 @@
 ### passuk 4
 
 ### passuk 5
-<b>car Dieu l'avait béni</b> comme il est dit plus haut (13:14) : " ... et l'Eternel bénit la maison d'Obed- Edom, etc.
+<b>car Dieu l'avait béni</b> comme il est dit plus haut (13:14) : "... et l'Eternel bénit la maison d'Obed- Edom, etc.".
 
 ### passuk 6
-<b>qui gouvernaient par la maison de leur père</b> Le sens est que ceux qui gouvernaient le faisaient par leur père, et une similarité est [trouvée] à la fin de Daniel (11:3) : "et ils dominent une grande domination (וּמָשַל מִמְשַל רַב')."
+<b>qui gouvernaient par la maison de leur père</b> Le sens est que ceux qui gouvernaient le faisaient par leur père, et une similitude est [trouvée] à la fin de Daniel (11:3) : "et ils gouvernent une grande domination (וּמָשַל מִמְשַל רַב)."
 
 ### passuk 7
 
 ### passuk 8
-<b>Hommes valeureux</b> - Héb.  - , non pas avec force et non pas à la guerre, mais comme un homme dont quelqu'un dit : "Untel est en haute estime", et de même, (Ruth 2:1) : "... un homme fort et vaillant, etc., et son nom était Boaz."
+<b>Hommes valeureux</b> - Héb. אִיש חַיִל, non pas avec force et non pas à la guerre, mais comme un homme dont quelqu'un dit : " Untel est de haute estime ", et de même, (Ruth 2:1) : "... un homme puissant et valeureux, etc... et son nom était Boaz".
 
 ### passuk 9
 
@@ -30,7 +30,7 @@
 <b>Les quarts correspondant à leurs frères</b> les chefs de vingt-quatre quarts.
 
 ### passuk 13
-<b>Et ils tirèrent au sort, les petits comme les grands, vers les maisons de leurs pères pour chaque porte</b> qui recevra telle porte, et qui recevra telle autre, à l'est, à l'ouest, au nord, au sud, et ainsi pour toutes les portes du parvis.
+<b>Et ils tirent au sort, les petits comme les grands, vers les maisons de leurs pères pour chaque porte</b> qui recevra telle porte, et qui recevra telle autre, à l'est, à l'ouest, au nord, au sud, et ainsi pour toutes les portes du parvis.
 
 ### passuk 14
 
@@ -42,7 +42,7 @@
 <b>et jusqu'à l'Asuppim</b> un lieu nommé Asuppim.
 
 ### passuk 18
-<b>Vers l'extérieur</b> Heb.  לַפַּרְבָּר. Ceci est expliqué dans le Tractate <i>Tamid</i> (ad loc.) : "Rava a dit :  לַפַּרְבָּר  signifie  כְּלַפֵּי בָּר, vers l'extérieur.
+<b>Vers l'extérieur</b> Heb. לַפַּרְבָּר. Ceci est expliqué dans le Tractate <i>Tamid</i> (ad loc.) : "Dit Rava : לַפַּרְבָּר signifie כְּלַפֵּי בָּר, vers l'extérieur."
 
 ### passuk 19
 
@@ -53,8 +53,8 @@
 <b>Les fils de Ladan</b> A Ladan, le Gershonite, appartenait le chef des pères, Jehiel. Il s'agit de Ladan mentionné plus haut (23:7-9).
 
 ### passuk 22
-<b>et Joël son frère</b> Le frère de Jehiel, comme il est écrit ci-dessus (23:8) : "Jehiel, et Zetham, et Joel."
-<b>sur les trésors de la Maison de l'Éternel</b> Il y avait de nombreux trésors dans l'avant-cour, chaque trésor pour sa finalité individuelle, et sur chacun d'eux se trouvait une personne désignée.
+<b>et Joël son frère</b> Le frère de Jehiel, comme il est écrit plus haut (23:8) : "Jehiel, et Zetham, et Joel."
+<b>Sur les trésors de la Maison de l'Éternel</b> Il y avait de nombreux trésors dans l'avant-cour, chaque trésor pour son usage individuel, et sur chacun d'eux il y avait une personne désignée.
 
 ### passuk 23
 
@@ -74,7 +74,7 @@
 
 ### passuk 30
 <b>Des Hébronites : Hashabiah... à tout le travail du Seigneur</b> Ce sont les officiers sur ceux qui faisaient le travail du Seigneur en transjordanie.
-<b>et au service du roi</b> Ils étaient aussi nommés sur les habitants de l'héritage du roi et sur les trésors du roi, et ainsi [on trouve] plus loin (v. 32) : " pour toutes les affaires de Dieu et les affaires du roi ".
+<b>et au service du roi</b> Ils étaient aussi nommés sur les habitants de l'héritage du roi et les trésors du roi, et ainsi [nous trouvons] plus loin (v. 32) : "pour toutes les affaires de Dieu et les affaires du roi."
 
 ### passuk 31
 <b>à ses générations aux pères dans la quarantième année, etc.</b> Et aussi tous ces calculs étaient dans la quarantième année.

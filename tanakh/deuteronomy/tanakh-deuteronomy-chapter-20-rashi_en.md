@@ -7,7 +7,7 @@
 
 ### passuk 2
 <b>As you near the battle.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Near your departure from the border settlement at your country’s boundary.
-<b>The Kohen shall approach.</b> The one annointed for this purpose. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was entitled “The one annointed for warfare.”
+<b>The kohein shall approach.</b> The one annointed for this purpose. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He was entitled “The one annointed for warfare.”
 <b>And speak to the people.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In the sacred Hebrew tongue.
 
 ### passuk 3
@@ -20,7 +20,7 @@
 <b>Do not be crushed.</b> From the sounds of screaming.
 
 ### passuk 4
-<b>For Hachem your God.</b> They advance by mortal triumph, whereas you advance by the triumph of the Omnipresent. The Plishtim advanced by the triumph of Golias — what was his end? He fell, and they fell with him. 
+<b>For Adonoy your God.</b> They advance by mortal triumph, whereas you advance by the triumph of the Omnipresent. The Plishtim advanced by the triumph of Golias — what was his end? He fell, and they fell with him. 
 <b>Marches with you.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the camp of the sacred ark.
 
 ### passuk 5
@@ -31,10 +31,10 @@
 <b>And did not redeem it.</b> Did not redeem it during the fourth year, when the fruit must be eaten in Jerusalem, or redeemed with money, and the money spent for food eaten in Jerusalem. 
 
 ### passuk 7
-<b>Lest he die in battle.</b> He should return lest he die, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for if he does not follow the instructions of the <i>Kohen,</i> he deserves to die. 
+<b>Lest he die in battle.</b> He should return lest he die, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for if he does not follow the instructions of the <i>kohein,</i> he deserves to die. 
 
 ### passuk 8
-<b>The officers will further.</b> Why is “further” mentioned here? Because this is to be added to the words of the <i>Kohen.</i> The <i>Kohen</i> delivers the address and announces from “Hear Yisroel” until “to save you.” “Is there a man,” then the second, and then the third, the <i>Kohen</i> addresses and an officer announces. With our passage, an officer addresses and another officer announces. 
+<b>The officers will further.</b> Why is “further” mentioned here? Because this is to be added to the words of the <i>kohein.</i> The <i>kohein</i> delivers the address and announces from “Hear Yisroel” until “to save you.” “Is there a man,” then the second, and then the third, the <i>kohein</i> addresses and an officer announces. With our passage, an officer addresses and another officer announces. 
 <b>Who is afraid, or faint hearted.</b> R’ Akiva said, as the plain meaning indicates — he cannot maintain himself in the battle mode, where he must face the menacing sword. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>R’ Yosi Hagalili said, one who is afraid because of his transgressions. The reason the Torah provides the pretext of returning because of one’s house or vineyard or wife is to protect those who return because of their transgressions — so that no one realizes that they are transgressors. Those who notice their return will say, ‘Perhaps he built a house, or planted a vineyard, or took a wife.’ 
 
 ### passuk 9
@@ -52,7 +52,7 @@
 <b>You shall lay siege to it.</b> Even if this causes famine and thirst, and death from pestilence. 
 
 ### passuk 13
-<b>Hachem your God will deliver it into your hand.</b> If you fulfill everything mentioned here, God will ultimately deliver it into your hand. 
+<b>Adonoy your God will deliver it into your hand.</b> If you fulfill everything mentioned here, God will ultimately deliver it into your hand. 
 
 ### passuk 14
 <b>And children.</b> Even the male children. How, then, is “Strike down all its males” fulfilled? With the adults. 

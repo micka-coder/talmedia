@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Elisha spoke to the woman.</b> Seven years [before].<sup>1</sup><i class="footnote">I.e., seven years before the incident described in this chapter. See above, 4:8-37.</i>
-<b>For Hachem has proclaimed a famine.</b> This is the hunger during the days of Yoel the son of Pesuel.<sup>2</sup><i class="footnote">See Yoel Chapter 1 and Maseches Taanis 5a.</i>
+<b>For Adonoy has proclaimed a famine.</b> This is the hunger during the days of Yoel the son of Pesuel.<sup>2</sup><i class="footnote">See Yoel Chapter 1 and Maseches Taanis 5a.</i>
 
 ### passuk 2
 
@@ -48,7 +48,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>A kingdom.</b> Kingdom.<sup>17</sup><i class="footnote">Hachem king shines like a light [=נֵר].—Metzudas Tzion See Targum in Bamidbar 21:30 who renders ‘וַנִּירָם’ as ‘וּמַלְכוּ’[=its kingdom].</i>
+<b>A kingdom.</b> Kingdom.<sup>17</sup><i class="footnote">Adonoy king shines like a light [=נֵר].—Metzudas Tzion See Targum in Bamidbar 21:30 who renders ‘וַנִּירָם’ as ‘וּמַלְכוּ’[=its kingdom].</i>
 
 ### passuk 20
 <b>And appointed a king over themselves.</b> From the time of Dovid they did not have a king, as it is stated, “There was no king in Edom,.”<sup>18</sup><i class="footnote">I Melochim 22:48.</i> [and] “And he appointed governors in Edom.”<sup>19</sup><i class="footnote">II Shmuel 8:14.</i> Eight kings reigned in Edom before a king reigned in Yisroel, they are listed in the Book of Bereishis.<sup>20</sup><i class="footnote">See Bereishis 36:31-43, and Rashi there. The eight kings are listed in Bereishis Rabboh 83:2. However, Bereishis Rabboh lists Shaul as one of the eight and omits Yehorom because during Yehorom’s reign, Edom was ruled by a king.</i> Corresponding to them, eight kings reigned in Yisroel: Ish-Boshes, Dovid, Shlomo, Rechovom, Aviyom, Asa, Yehoshophot, and Yehorom, while Edom had no king.<sup>21</sup><i class="footnote">See above 3:9.</i> What is written above that the king of Edom<sup>22</sup><i class="footnote">I Melochim 22:48.</i> went with Yehorom son of Achov, and with Yehoshophot, to war against the king of Mo’av [can be explained that] he was not a real king, but a governor, who is also referred to as a king, as it is stated, “There was no king in Edom, the governor was king.”<sup>23</sup><i class="footnote">I.e., Yorom attacked and struck the Edomites who were near the border.</i> The governor served instead of a king.

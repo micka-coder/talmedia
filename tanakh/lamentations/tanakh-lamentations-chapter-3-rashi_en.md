@@ -65,7 +65,7 @@
 <b>Still I take this to heart.</b> After my heart told me that my hope from God was gone, I will reply this to my heart, and I will continue to hope. What is it that I will reply to my heart? 
 
 ### passuk 22
-<b>By the grace Hachem we have not perished.</b> And the entire section until, “Why should [a living man] bemoan, etc.”<sup>20</sup><i class="footnote">Below, verse 39. </i> 
+<b>By the grace Adonoy we have not perished.</b> And the entire section until, “Why should [a living man] bemoan, etc.”<sup>20</sup><i class="footnote">Below, verse 39. </i> 
 <b>We have not perished.</b> תָמְנוּ is] the same as תַמּוּ [ended].<sup>21</sup><i class="footnote">I.e., in ‘the third person’ meaning ‘they have not perished.’ But according to Rashi’s second explanation, תמנו is in the ‘second person’ meaning ‘we have not perished.’ (Sifsei Chachomim) </i> And some explain כִּי לֹא תָמְנוּ as in, “Will we ever stop תַּמְנוּ dying?”<sup>22</sup><i class="footnote">Bamidbar 17:28. </i> It is the kindnesses of God that we were not annihilated, that we have not perished because of our sins. 
 
 ### passuk 23
@@ -73,7 +73,7 @@
 <b>Your faithfulness is immense.</b> Your promise is great, and it is a great thing to believe in You that You will fulfill and keep what You promised us. 
 
 ### passuk 24
-<b>‘Hachem is my portion,’ my soul declares.</b> God is my portion; therefore it is proper that I should hope in Him. 
+<b>‘Adonoy is my portion,’ my soul declares.</b> God is my portion; therefore it is proper that I should hope in Him. 
 
 ### passuk 25
 
@@ -176,7 +176,7 @@
 <b>You fought, O God, the battles of my soul.</b> In the days past. 
 
 ### passuk 59
-<b>You have seen, Hachem, how aggrieved I am.</b> In this distress, that my enemies wronged me. 
+<b>You have seen, Adonoy, how aggrieved I am.</b> In this distress, that my enemies wronged me. 
 <b>Administer justice for me.</b> As You have already done.
 
 ### passuk 60

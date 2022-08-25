@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Rachel became jealous of her sister.</b> She was envious of her good deeds. She thought: “Were she not more righteous than I she would not merit bearing children.”
+<b>Rochel became jealous of her sister.</b> She was envious of her good deeds. She thought: “Were she not more righteous than I she would not merit bearing children.”
 <b>Give me.</b> [She implied:] “Did your father act this way to your mother? Did he not pray for her?”
 <b>I am [considered] dead.</b> From here [we learn] that one who has no children is considered as if dead.
 
@@ -48,7 +48,7 @@
 <b>Therefore, he shall be with you tonight.</b> “[Actually,] he was to be with me this night, but, I give it to you in return for your son’s jasmines.” And because she made light of being with such a righteous person she [eventually] did not merit being buried with him. 
 
 ### passuk 16
-<b>I have hired you.</b> [Meaning:] I have given Rachel her payment.
+<b>I have hired you.</b> [Meaning:] I have given Rochel her payment.
 <b>At night.</b> God helped him [הוּא —refers to God] that Yissachar should be born from this.
 
 ### passuk 17
@@ -63,26 +63,26 @@
 <b>Will make his main home with me.</b> Having a similar meaning as בֵּית זְבוּל —a dwelling, <i>herberjerie</i> in Old French —a dwelling. [She thought:] From now on his main dwelling place will not be other than with me, for I have as many sons as all of his wives together. 
 
 ### passuk 21
-<b>Deenah.</b> The Sages explained that Leah assumed to judge [דָנָה] herself, [thinking:] “If this [child that I carry] is a male my sister Rachel would not even be equal to one of the handmaids.” Whereupon she prayed over it and it was transformed into a female. 
+<b>Deenah.</b> The Sages explained that Leah assumed to judge [דָנָה] herself, [thinking:] “If this [child that I carry] is a male my sister Rochel would not even be equal to one of the handmaids.” Whereupon she prayed over it and it was transformed into a female. 
 
 ### passuk 22
-<b>Elohim remembered Rachel.</b> He remembered that she gave her signs to her sister and that she was concerned lest she fall to Essav’s lot, should Yaakov divorce her because she had no children. This also entered the mind of the wicked Essav when he heard that she had no children. This is what the poet alluded to “When the Red One [Essav] saw that she did not give birth he desired to take her to him and she was petrified.” 
+<b>Elohim remembered Rochel.</b> He remembered that she gave her signs to her sister and that she was concerned lest she fall to Eisov’s lot, should Yaakov divorce her because she had no children. This also entered the mind of the wicked Eisov when he heard that she had no children. This is what the poet alluded to “When the Red One [Eisov] saw that she did not give birth he desired to take her to him and she was petrified.” 
 
 ### passuk 23
 <b>Has removed.</b> [Meaning:] He has brought it into a place where it will not be seen. Similar to: “He brought in our shame,” [or] “It will not have been brought into the house,” [or] “Withdrew their light,” [or] “Your moon will not withdraw,” [meaning] it will not be hidden. 
-<b>My shame.</b> For I had been put to shame having been barren, and that it was said about me that I would fall to the lot of the wicked Essav. The Aggadah [explains it thus.] As long as a woman has no child she has no one to blame for her faults. Once she has a child, she blames it on him. [E.g.,] “Who broke this vessel? Your child!” “Who ate these figs? Your child!” 
+<b>My shame.</b> For I had been put to shame having been barren, and that it was said about me that I would fall to the lot of the wicked Eisov. The Aggadah [explains it thus.] As long as a woman has no child she has no one to blame for her faults. Once she has a child, she blames it on him. [E.g.,] “Who broke this vessel? Your child!” “Who ate these figs? Your child!” 
 
 ### passuk 24
-<b>May Hachem add to me another son.</b> She knew prophetically that Yaakov was destined to establish only twelve tribes, so she thought, “May it be His will that the one that he is yet destined to establish should come from me.” She, therefore, prayed for only one more son. 
+<b>May Adonoy add to me another son.</b> She knew prophetically that Yaakov was destined to establish only twelve tribes, so she thought, “May it be His will that the one that he is yet destined to establish should come from me.” She, therefore, prayed for only one more son. 
 
 ### passuk 25
-<b>When Rachel had given birth to Yossef.</b> Now that the adversary of Essav was born. As it is said, “The House of Yaakov will be a fire, and the House of Yossef, a flame, and the House of Essav, straw.” Fire [Yaakov] without a flame [Yossef] has no effect at a distance. Once Yossef was born, Yaakov put his trust in God and desired to return. 
+<b>When Rochel had given birth to Yoseif.</b> Now that the adversary of Eisov was born. As it is said, “The House of Yaakov will be a fire, and the House of Yoseif, a flame, and the House of Eisov, straw.” Fire [Yaakov] without a flame [Yoseif] has no effect at a distance. Once Yoseif was born, Yaakov put his trust in God and desired to return. 
 
 ### passuk 26
 <b>Give me [permission to take] my wives, etc.</b> [I.e.,] I do not wish to leave without permission. 
 
 ### passuk 27
-<b>I have divined.</b> He was a diviner: “I ascertained through my divining that through you a blessing came to me. When you came here I had no sons,” as it is said: “Behold, Rachel, his daughter was coming with the sheep.” Is it possible that he had sons and would send his daughter among the shepherds? [But,] now he had sons, as it is said: “He heard the words of Lavan’s sons. 
+<b>I have divined.</b> He was a diviner: “I ascertained through my divining that through you a blessing came to me. When you came here I had no sons,” as it is said: “Behold, Rochel, his daughter was coming with the sheep.” Is it possible that he had sons and would send his daughter among the shepherds? [But,] now he had sons, as it is said: “He heard the words of Lavan’s sons. 
 
 ### passuk 28
 <b>Set.</b> As Onkelos translates it, “Specify your wages.” 

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Yossef could not contain his emotions in the presence of all who stood.</b> He could not bear that the Egyptians standing by him would hear his brothers’ humiliation when he would make himself known to them.
+<b>Yoseif could not contain his emotions in the presence of all who stood.</b> He could not bear that the Egyptians standing by him would hear his brothers’ humiliation when he would make himself known to them.
 
 ### passuk 2
 <b>And the house of Pharaoh heard.</b> [בֵּית פַּרְעֹה is the same as] בֵּיתוֹ שֶׁל פַּרְעֹה i.e., his servants and his household. Here, the reference is not to a literal house but, rather, is similar to בֵּית יִשְׂרָאֵל —the household of Israel, or בֵּית יְהוּדָה —the household of Yehudah, <i>meisnede</i> in O.F. 
@@ -38,7 +38,7 @@
 
 ### passuk 14
 <b>He fell upon his brother Binyomin and wept.</b> [He wept] for the two Temples which were destined to be in Binyomin’s territory and, in the end, will be destroyed. 
-<b>And Binyomin wept upon his neck.</b> For the Tabernacle of Shiloh which was destined to be in Yossef’s territory and in the end will be destroyed. 
+<b>And Binyomin wept upon his neck.</b> For the Tabernacle of Shiloh which was destined to be in Yoseif’s territory and in the end will be destroyed. 
 
 ### passuk 15
 <b>After that.</b> After they saw him weeping and his intentions toward them were peaceful—<b>[After that] his brothers spoke with him.</b> Because at first they felt shame before him.
@@ -79,11 +79,11 @@
 <b>His heart stood still.</b> [וַיָפָג לִבּוֹ means:] his heart changed and he ceased believing. His heart was not swayed by their words. In Mishnaic Hebrew we find it as מְפִיגִין טַעְמָן . This is similar to “Without ceasing” or [for example] וְרֵיחוֹ לֹא נָמָר is translated וְרֵיחֵיהּ לָא פָג —“His scent has not ceased.”
 
 ### passuk 27
-<b>All the words of Yossef.</b> He [Yossef] gave them as a sign—the subject that he was studying at the time that he left him [Yaakov]— the topic of עֶגְלָה עֲרוּפָה —the heifer whose neck is broken. This is [alluded to by] what is said: “And he saw the wagons [עֲגָלוֹת] that Yossef had sent.” and it does not state, “Which Pharaoh had sent.” 
+<b>All the words of Yoseif.</b> He [Yoseif] gave them as a sign—the subject that he was studying at the time that he left him [Yaakov]— the topic of עֶגְלָה עֲרוּפָה —the heifer whose neck is broken. This is [alluded to by] what is said: “And he saw the wagons [עֲגָלוֹת] that Yoseif had sent.” and it does not state, “Which Pharaoh had sent.” 
 <b>The spirit of Yaakov was revived.</b> The Divine Presence, which had left him, rested on him. 
 
 ### passuk 28
-<b>It is too much.</b> Much joy and pleasure is still in store for me since my son Yossef, is alive. 
+<b>It is too much.</b> Much joy and pleasure is still in store for me since my son Yoseif, is alive. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

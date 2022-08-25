@@ -2,20 +2,20 @@
 ### passuk 1
 
 ### passuk 2
-<b>Est-ce qu'une de mes actions peut se comparer à la tienne ?</b> Quelle importance avaient mes actions au début par rapport aux tiennes à la fin ?
-<b>Ne surpasse pas les glanes d'Ephraïm qui n'ont pas mûri.</b> Les glanes<sup>1</sup><i class="footnote"><span>לְל</span> sont des raisins qui n'ont pas mûri et qui ne peuvent pas être récoltés, mais qui doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale contre les Midyanites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>לְל</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Hachem a livré les rois entre vos mains.
+<b>L'une de mes actions peut-elle se comparer à la tienne ?</b> Quelle importance avaient mes actions au début par rapport aux tiennes à la fin ?
+<b>Les glanes sous-maturées d'Ephraïm ne surpassent-elles pas.</b> Les glanes<sup>1</sup><i class="footnote"> <span>עוֹלְלוֹת</span> sont des raisins sous-maturés qui ne peuvent être récoltés, mais doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale avec les Midyonites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>עוֹלְלוֹת</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Adonoy a livré les rois entre vos mains.
 
 ### passuk 3
-<b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que vos réalisations ?
+<b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que tes réalisations ?
 
 ### passuk 4
-<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Jourdain après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Jourdain, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
+<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Yardein après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Yardein, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
 
 ### passuk 5
-<b>Aux gens de Souccos.</b> Ils étaient Israélite.
+<b>Aux gens de Souccos.</b> Ils étaient Yisroélites.
 
 ### passuk 6
-<b>Les paumes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyan.
+<b>Les palmes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyon.
 
 ### passuk 7
 <b>Epines.</b> "Ronzes" en vieux français.
@@ -29,7 +29,7 @@
 
 ### passuk 11
 <b>Par le chemin des habitants des tentes.</b> Par le chemin des terres de Kédar et d'Arabie, dont les habitants étaient des habitants des tentes sauvages. Comme ils étaient occupés exclusivement comme bergers, ils ne pouvaient pas habiter dans des maisons.
-<b>À l'est de Novach et de Yagbeha.</b> Ce sont des villes yisroélites. Il choisit de ne pas les traverser, mais de faire le tour de la ville, afin de ne pas être repéré et de pouvoir les accabler par surprise.
+<b>À l'est de Novach et de Yagbeha.</b> Ce sont des villes yisroélites. Il choisit de ne pas les traverser, mais de les contourner, afin de ne pas se faire repérer et de pouvoir les accabler par surprise.
 
 ### passuk 12
 
@@ -41,12 +41,12 @@
 ### passuk 15
 
 ### passuk 16
-<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonathan.</i>
+<b>Tiré avec eux.</b> "Cassé" avec eux.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
 
 ### passuk 17
 
 ### passuk 18
-<b>Singulier, d'apparence princière.</b> Yonathan explique que l'un d'entre eux était d'apparence princière.</sup>3</sup><i class="footnote">La lecture de Yonathan est : "Un était exactement comme toi, d'apparence princière."</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
+<b>Singulier, d'apparence princière.</b> Yonasan explique que l'un d'entre eux était d'apparence princière.<sup>3</sup><i class="footnote">La lecture de Yonasan est : "L'un d'entre eux était exactement comme toi, d'apparence princière."</i> Cependant, cela peut être interprété comme : "Ils étaient exactement comme toi, tous d'apparence singulière, car ils étaient d'apparence princière."
 
 ### passuk 19
 
@@ -65,11 +65,11 @@
 ### passuk 25
 
 ### passuk 26
-<b>Les chaînes et les couronnes en forme de croissant.</b> Les colliers et les couronnes.</sup></sup><i class="footnote">C'est le rendu du Targum Yonathan.</i>
+<b>Les chaînes et les couronnes en forme de croissant.</b> Les colliers et les couronnes.</sup></sup><i class="footnote">C'est le rendu du Targum Yonasan.</i>
 
 ### passuk 27
-<b>Gidon le façonna en un tablier</b> comme un mémorial au grand salut, démontrant combien leurs forces étaient énormes, comme les anneaux de nez de leurs hommes éminents contenaient tant d'or.
-<b>Tout Yisrael fut perverti à son égard</b> après la disparition de Gidon.</sup>5</sup><i class="footnote">Mais pas de son vivant. Les intentions de Gidon étaient pures. (Voir Yalkut, 64.)</i>
+<b>Gidon le façonna en un tablier</b> en souvenir du grand salut, démontrant combien leurs forces étaient énormes, comme les anneaux de nez de leurs hommes éminents contenaient tant d'or.
+<b>Tout Israël fut perverti à son égard</b> après la disparition de Gidon.</sup>5</sup><i class="footnote">Mais pas de son vivant. Les intentions de Gidon étaient pures. (Voir Yalkut, 64.)</i>
 
 ### passuk 28
 

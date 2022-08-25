@@ -28,7 +28,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Garments of crochet-work.</b> It is my opinion [that] according to the plain meaning of the verse it is impossible to say that it speaks here of the priestly garments for [immediately thereafter] it states: “and the sacred garments of Aharon the <i>Kohen</i> and the garments of his sons to serve.” But, [you must say] that these בִּגְדֵי הַשְּׂרָד are the “garments” [made of] the greenish-blue wool, and the dark red wool, and the crimson wool which are mentioned in the section of the travels: “They shall spread over it a ‘garment’ of greenish-blue wool” “and spread over it a ‘garment’ of dark red wool,” “they shall place over them a garment of crimson.” It seems that my opinion is correct, for it is said: “And from the greenish-blue wool, the dark red wool, and the crimson wool they made בִּגְדֵי שְׂרָד to serve in the Sanctuary,” and <i>linen</i> is not mentioned among them. Now, if [it were speaking] of the priestly garments — we do not find in a single one of them [mention of] dark red wool or crimson wool without linen [as well]. 
+<b>Garments of crochet-work.</b> It is my opinion [that] according to the plain meaning of the verse it is impossible to say that it speaks here of the priestly garments for [immediately thereafter] it states: “and the sacred garments of Aharon the <i>kohein</i> and the garments of his sons to serve.” But, [you must say] that these בִּגְדֵי הַשְּׂרָד are the “garments” [made of] the greenish-blue wool, and the dark red wool, and the crimson wool which are mentioned in the section of the travels: “They shall spread over it a ‘garment’ of greenish-blue wool” “and spread over it a ‘garment’ of dark red wool,” “they shall place over them a garment of crimson.” It seems that my opinion is correct, for it is said: “And from the greenish-blue wool, the dark red wool, and the crimson wool they made בִּגְדֵי שְׂרָד to serve in the Sanctuary,” and <i>linen</i> is not mentioned among them. Now, if [it were speaking] of the priestly garments — we do not find in a single one of them [mention of] dark red wool or crimson wool without linen [as well]. 
 <b>Garments of crochet-work.</b> Some explain it as garments of work and service as Onkelos translates it: “garments of service.” Nothing like שְׂרָד appears in Scripture. It is my opinion that it is from Aramaic similar to the Targum of the word קְלָעִים and the Targum of מִכְבָּר , both of which were woven by needle (crocheted) forming intermittent holes <i>lacediz</i> (net-work) in Old French. 
 
 ### passuk 11
@@ -49,7 +49,7 @@
 
 ### passuk 15
 <b>A Shabbos of complete rest.</b> [Means:] a restful rest and not a haphazard rest. <b>( שַׁבַּת שַׁבָּתוֹן .</b> The reason the verse doubles the word שַׁבָּת is to tell you that all “work” is prohibited, even that which is for preparation of food. So, too, regarding Yom Kippur, where it states: “It is for you שַׁבַּת שַׁבָּתוֹן ,” all “work” is prohibited. Whereas regarding Yom Tov, it states only: “On the first day it shall be שַׁבָּתוֹן and on the eighth day it shall be שַׁבָּתוֹן they (i.e., these days) are prohibited from all “work” of toil but are permitted in work that is for the preparation of food.) 
-<b>It is sacred to Hachem.</b> The observance of its sacredness shall be for My Name and to obey My commandments.
+<b>It is sacred to Adonoy.</b> The observance of its sacredness shall be for My Name and to obey My commandments.
 
 ### passuk 16
 

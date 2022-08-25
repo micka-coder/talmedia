@@ -20,7 +20,7 @@
 <b>Certains d'entre eux restèrent en arrière.</b> Lorsqu'ils atteignirent le Nachal Besor, il y avait parmi eux des gens qui étaient faibles, et certains d'entre eux restèrent là.
 
 ### passuk 10
-<b>Qui étaient trop épuisés.</b> Qui se sont abstenus ; et je dis que c'est de l'araméen, la traduction de <span>וְנֶהֶרְס¡ï¬</span><sup>1</sup><i class="footnote">Yechezkeil 30:4.</i> [=et ils seront détruits].
+<b>Qui étaient trop épuisés.</b> Qui se sont abstenus ; et je dis que c'est de l'araméen, la traduction de <span>וְנֶהֶרְסוּ</span><sup>1</sup><i class="footnote">Yechezkeil 30:4.</i> [=et ils seront détruits].
 
 ### passuk 11
 
@@ -29,14 +29,14 @@
 ### passuk 13
 
 ### passuk 14
-<b>Au sud des Kéréthites.</b> Au sud des Philistins. Nous trouvons ailleurs que les Philistins sont appelés la nation <span>ï¬"ְרֵתִים</span> [dans] "les habitants du bord de mer la nation de <span>ï¬"ְרֵתִים</span>."<sup>2</sup><i class="footnote">Tzephanyoh 2:5.</i>
+<b>Au sud des Kéréthites.</b> Au sud des Philistins. Nous trouvons ailleurs que les Philistins sont appelés la nation <span>כְּרֵתִים</span> [dans] "les habitants de la côte maritime la nation de <span>כְּרֵתִים</span>. "<sup>2</sup><i class="footnote">Tzephanyoh 2:5.</i>
 
 ### passuk 15
 
 ### passuk 16
 
 ### passuk 17
-<b>Du lendemain.</b> Les Amalékites ont l'habitude d'être vaincus le deuxième jour [de la bataille], comme il est dit : "demain je me tiendrai<sup>3</sup><i class="footnote">Shemos 17:9.</i> Par conséquent, il est dit : "le(s) lendemain(s)".
+<b>Du lendemain.</b> Les Amalékites ont l'habitude d'être vaincus le deuxième jour [de la bataille], comme il est dit : "demain je me tiendrai..."<sup>3</sup><i class="footnote">Shemos 17:9.</i> Par conséquent, il est dit : "le(s) lendemain(s)".
 
 ### passuk 18
 

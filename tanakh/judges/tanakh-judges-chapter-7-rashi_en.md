@@ -49,7 +49,7 @@
 
 ### passuk 18
 <b> I, and everyone with me.</b> One of the divisions and one hundred men accompanied him.
-<b>For Hachem, and for Gidon.</b> The sword that executes is from Hachem, so that victory is Gidon's.<sup>12</sup><i class="footnote">This is Targum Yonasan’s interpretation, following v. 20, “Hachem’s sword, and for Gidon!”</i>
+<b>For Adonoy, and for Gidon.</b> The sword that executes is from Adonoy, so that victory is Gidon's.<sup>12</sup><i class="footnote">This is Targum Yonasan’s interpretation, following v. 20, “Adonoy’s sword, and for Gidon!”</i>
 
 ### passuk 19
 <b> Had posted.</b> The soldiers had already posted the sentries who were assigned to the middle watch. Members of the military usually assign sentry duty so that some serve during the first third of the night, some during the second third, and some during the final third.<sup>13</sup><i class="footnote">See Yalkut, 63.</i>

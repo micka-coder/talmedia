@@ -27,7 +27,7 @@
 
 ### passuk 11
 <b>He hardened his heart.</b> [The word הַכְבֵּד] is in the infinitive form the same as הָלוֹךְ וְנָסוֹעַ “going and travelling,” and similarly “ וְהַכּוֹת (striking) the Moabites,” [or:] “ וְשָׁאוֹל (and asking) Hashem for him” [or:] “ הַכֵּה וּפָצֹעַ striking and wounding.” 
-<b>Just as Hachem had spoken.</b> And where had He said this? When He said, “Pharaoh will not listen to you.” 
+<b>Just as Adonoy had spoken.</b> And where had He said this? When He said, “Pharaoh will not listen to you.” 
 
 ### passuk 12
 <b>Say to Aharon.</b> It was not fitting that the dust be struck by Moshe because it protected him when he killed the Egyptian and hid him in the sand and was [instead] struck by Aharon.
@@ -41,7 +41,7 @@
 
 ### passuk 15
 <b>“This is the finger of Elohim.”</b> [I.e.,] this plague was not brought about by witchcraft — it is from Hashem. 
-<b>As Hachem had spoken.</b> “Pharaoh will not listen to you.”
+<b>As Adonoy had spoken.</b> “Pharaoh will not listen to you.”
 
 ### passuk 16
 
@@ -51,7 +51,7 @@
 
 ### passuk 18
 <b>I will set apart.</b> [וְהִפְלֵיתִי means] I will set apart. Similarly: וְהִפְלָה ה' — “Hashem will set apart.” Similarly: “It is not נִפְלֵאת from You,” [meaning] it is not set apart nor separated from You. 
-<b>So that you will know that I am Hachem in the midst of the earth.</b> Though My Divine Presence is in the heavens, My decree is fulfilled in the lower worlds. 
+<b>So that you will know that I am Adonoy in the midst of the earth.</b> Though My Divine Presence is in the heavens, My decree is fulfilled in the lower worlds. 
 
 ### passuk 19
 <b>I will set a [sign of] deliverance —</b> which will set apart My nation from your nation.
@@ -74,7 +74,7 @@
 <b>Deceive us.</b> [הָתֵל is] the same as לְהָתֵל .
 
 ### passuk 26
-<b>And prayed to Hachem.</b> [וַיֶּעְתַּר means] he exerted himself in prayer. Similarly, had he wished to say וַיַּעְתִּיר he could have said so and it would mean he used many [words] of prayer. Now that he says it in terms of וַיִּפְעַל it means he increased [the intensity] of the prayer. 
+<b>And prayed to Adonoy.</b> [וַיֶּעְתַּר means] he exerted himself in prayer. Similarly, had he wished to say וַיַּעְתִּיר he could have said so and it would mean he used many [words] of prayer. Now that he says it in terms of וַיִּפְעַל it means he increased [the intensity] of the prayer. 
 
 ### passuk 27
 <b>He caused the wild animals to depart.</b> They did not die as did the frogs, for had they died they would have benefitted from the skins. 

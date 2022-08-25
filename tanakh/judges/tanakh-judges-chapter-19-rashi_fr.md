@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>זְנוּת</b></span>, "promiscuité", dénote toujours un départ "Celle qui s'en va à l'extérieur,"<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonathan de <span><b>זוֹנָה"</b></span>, "femme promiscuité. "</i> qui quitte son mari et en aime un autre.
+<b>Sa concubine s'est éloignée de lui</b> Elle s'est éloignée de sa maison pour aller à l'extérieur. Le mot <span><b>זְנוּת</b></span>, " promiscuité ", dénote toujours un départ - " Celui qui s'éloigne vers l'extérieur, "<sup>1</sup><i class="footnote">C'est l'interprétation du Targum Yonasan de <span><b>זוֹנָה</b></span>, "femme aux mœurs légères. "</i> qui quitte son mari et en aime un autre.
 
 ### passuk 3
 
@@ -11,7 +11,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Donnez votre accord, et restez cette nuit.</b> Ce soir.
+<b>Donnez votre accord, et restez la nuit.</b> Ce soir.
 
 ### passuk 7
 
@@ -26,10 +26,10 @@
 ### passuk 11
 
 ### passuk 12
-<b>À Giv'ah.</b> Giv'ah de Binyamin.
+<b>À Giv'oh.</b> Giv'oh de Binyomin.
 
 ### passuk 13
-<b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue le <span><b> </b></span> sert à remplacer un deuxième <span><b> </b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו-</b></span> dénote l'usage du pluriel. Lorsque la lettre <span><b> </b></span> apparaît dans la racine, comme dans <span><b>לין</b></span>, le <span><b> </b></span> supplémentaire est abandonné, et est remplacé par un point dans l'original <span><b> </b></span>.</i>
+<b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue la <span><b>נ</b></span> sert à remplacer une deuxième <span><b>נ</b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו</b></span> désigne l'usage pluriel. Lorsque la lettre <span><b>נ</b></span> apparaît dans la racine, comme dans <span><b>לין</b></span>, le <span><b>נ</b></span> supplémentaire est abandonné, et est remplacé par un point dans le <span><b>נ</b></span> original.</i>
 
 ### passuk 14
 
@@ -40,7 +40,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Au Sanctuaire d'Hachem.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
+<b>Au Sanctuaire d'Adonoy.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
 
 ### passuk 19
 

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Fermé et barré.</b> [Lit. fermé et clos] Le Targum traduit : "Closé par des portes en fer et renforcé par des barres de cuivre.'
+<b>Fermées et barrées.</b> [Lit. fermées et barrées] Le Targum traduit : 'Fermé par des portes en fer et renforcé par des barres de cuivre'.
 
 ### passuk 2
 
@@ -20,7 +20,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Et les guerriers.</b> C'étaient les hommes des tribus de Reouven et de Gad qui les précédaient, car les hommes de Gad étaient de puissants guerriers et ils frappaient à bras raccourcis, comme il est dit : "Et il arrache l'épaule et la tête.'<sup>1</sup><i class="footnote">Devorim 33:20.</i>
+<b>Et les guerriers.</b> C'étaient les hommes des tribus de Reuvein et de Gad qui les précédaient, car les hommes de Gad étaient de puissants guerriers et ils frappaient à bras fort, comme il est dit : 'Et il arrache l'épaule et la tête.'<sup>1</sup><i class="footnote">Devorim 33:20.</i>
 
 ### passuk 10
 
@@ -53,14 +53,14 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et les jeunes gens qui étaient les espions entrèrent.</b><sup>4</sup><i class="footnote">Au verset 22, ils sont appelés des hommes. Au verset 17, ils sont appelés  מַלְאָכִים  (anges lumineux) et ici, ils sont appelés jeunes gens. Rachi cherche à expliquer pourquoi ils ont été décrits en ces termes.</i> Cette mission nécessitait de la rapidité, ils se sont donc exécutés comme des lads rapides. Cependant, la première nuit<sup>5</sup><i class="footnote">Cela fait référence à la nuit où ils sont arrivés à la maison de Rochov au début de leur mission.</i> ils étaient comme des anges, se gardant de pécher avec Rochov, la prostituée, c'est pourquoi ils ont été désignés comme des anges. C'est pourquoi ils ont été désignés comme des hommes, comme des anges et comme des garçons.
+<b>Et les jeunes gens qui étaient les espions entrèrent.</b><sup>4</sup><i class="footnote">Au verset 22, ils sont appelés des hommes. Au verset 17, ils sont appelés מַלְאָכִים (anges lumineux) et ici, ils sont appelés des jeunes gens. Rachi cherche à expliquer pourquoi ils ont été décrits en ces termes.</i> Cette mission nécessitait de la rapidité, ils se sont donc exécutés comme des lads rapides. Cependant, la première nuit<sup>5</sup><i class="footnote">Ceci fait référence à la nuit où ils sont arrivés à la maison de Rochov au début de leur mission.</i> ils étaient comme des anges, se gardant de pécher avec Rochov, la prostituée, c'est pourquoi ils ont été désignés comme des anges. C'est pourquoi ils ont été désignés comme des hommes, comme des anges et comme des garçons.
 
 ### passuk 24
 
 ### passuk 25
 
 ### passuk 26
-<b>[La mort de] son premier né etc.</b> [la mort de] son plus jeune fils etc. Lorsqu'il commencera à poser les fondations sur lesquelles il la construit [la ville], son fils premier né mourra et il l'enterrera, et il continuera à le faire<sup>6</sup><i class="footnote">Il continuera à brûler ses fils.</i> jusqu'à ce que le fils cadet meure à l'achèvement de l'oeuvre qui est la mise en place de ses portails.
+<b>[La mort de] son premier né etc.</b> [la mort de] son plus jeune fils etc. Lorsqu'il commencera à poser les fondations sur lesquelles il la construit [la ville], son fils premier né mourra et il l'enterrera, et il continuera à le faire<sup>6</sup><i class="footnote">Il continuera à brûler ses fils.</i> jusqu'à ce que le fils cadet meure à l'achèvement de l'œuvre qui est la mise en place de ses portails.
 
 >Crédit : sefaris
 >Licence : CC-BY

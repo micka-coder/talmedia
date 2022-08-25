@@ -1,6 +1,6 @@
 
 ### Partie 1
-<strong>GEMARA:</strong> La Gemara remet en question la déclaration de la mishna concernant la largeur minimale de la traverse : <b>Une largeur de main ? Un handbreadth et demi est requis,</b> comme une petite brique est large d'un handbreadth et demi.
+<strong>GEMARA:</strong> La Gemara remet en question la déclaration de la mishna concernant la largeur minimale de la traverse : <b>Une largeur de main ? Un coudée et demi est requis,</b> comme une petite brique est large d'un coudée et demi.
 
 ### Partie 2
 La Guemara répond : <b>Puisque</b> la poutre transversale <b>est assez large pour recevoir</b> et retenir <b>un brin de main, on peut fixer le demi-brin de main restant avec du plâtre,</b> une petite <b>masse de ce côté et une</b> petite <b>masse de</b> ce <b>côté, et</b> la brique <b>se tiendra</b> en place.

@@ -12,7 +12,7 @@ Le pontife se transportera hors du camp, et constatera que la plaie de lèpre a 
 Sur l’ordre du pontife, on apportera, pour l’homme à purifier, deux oiseaux vivants, purs; du bois de cèdre, de l’écarlate et de l’hysope.
 
 ### passuk 5
-Le pontife ordonnera qu’on égorge l’un des oiseaux, au-dessus d’un vaisseau d’argile, sur de l’eau vive.
+Le pontife ordonnera qu’on égorge l’un des oiseaux, au-dessus d’un récipient d’argile, sur de l’eau vive.
 
 ### passuk 6
 Pour l’oiseau vivant, il le prendra ainsi que le bois de cèdre, l’écarlate et l’hysope; il plongera ces objets, avec l’oiseau vivant, dans le sang de l’oiseau égorgé, qui s’est mêlé à l’eau vive;

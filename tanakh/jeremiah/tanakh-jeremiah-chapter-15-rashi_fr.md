@@ -1,56 +1,56 @@
 
 ### passuk 1
-<b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27) : "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc." Et ensuite (v. 30) : "Je monterai vers le Seigneur, peut-être que j'expierai. " Samuel à Mitspa (I Samuel 7:4,5) "Et les enfants d'Israël firent disparaître les Baalim," et ensuite, Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic).'" Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
-<b>Désir</b> Heb.  נַפְֹשִי  lit., Mon âme.
+<b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27), "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc.". Et ensuite (v. 30), "Je monterai vers le Seigneur, peut-être que j'expierai." Samuel à Mitspa (I Samuel 7,4,5) "Et les enfants d'Israël firent disparaître les Baalim," et après, "'Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic)". Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
+<b>Désir</b> Heb. נַפְֹשִי lit. mon âme.
 
 ### passuk 2
-<b>Ceux qui sont pour la mort, à la mort</b> Chaque calamité mentionnée plus loin dans ce verset est plus sévère que celle qui la précède. L'épée est plus dure que la mort. La mort par l'épée est défigurante, alors que la mort dans le lit n'est pas défigurante. Et c'est ainsi qu'il dit (Psaumes 116:15) : " Précieuse aux yeux du Seigneur est la mort de ses Saints. " La famine est plus rude que l'épée, car celle-ci est agonisante alors que l'autre ne l'est pas. C'est pourquoi l'Écriture déclare (Lam. 4:9) : "Mieux vaut ceux qui meurent de l'épée que ceux qui meurent de la famine." La captivité - toutes les sortes de mort y sont contenues.
+<b>Ceux qui sont pour la mort, à la mort</b> Chaque calamité mentionnée plus loin dans ce verset est plus sévère que celle qui la précède. L'épée est plus dure que la mort. La mort par l'épée est défigurante, alors que la mort dans le lit n'est pas défigurante. Et ainsi il dit (Psaumes 116:15) : "Précieuse aux yeux du Seigneur est la mort de ses Saints." La famine est plus rude que l'épée, car celle-ci est angoissante alors que l'autre ne l'est pas. C'est pourquoi l'Écriture déclare (Lam. 4:9) : "Mieux vaut ceux qui meurent par l'épée que ceux qui meurent par la famine". La captivité - toutes les sortes de mort y sont contenues.
 
 ### passuk 3
 <b>Et je nommerai</b> une expression de nomination et de désignation.
-<b>Traîner</b> traîner. Cf. (infra. 49 : 20) "Si les petits des brebis ne les traînent pas (יִסְחָבוּם)."
+<b>Traîner</b> traîner. Cf. (infra. 49, 20) "Si les petits des brebis ne les traînent pas (יִסְחָבוּם)."
 
 ### passuk 4
-<b>une horreur</b> de la même racine que (Esther 5:9), "Et il ne s'est pas levé ni n'a tremblé (זָע)." De même,  גַּאֲוָה " orgueil, de la racine (Isa. 16:6) "Ils sont devenus très orgueilleux (גֵּא)."
+<b>une horreur</b> de la même racine que (Esther 5:9), "Et il ne se leva ni ne trembla (זָע)." De même, גַּאֲוָה orgueil, de la racine (Isa. 16:6) "Sont devenus très orgueilleux (גֵּא)."
 <b>A tous les royaumes de la terre</b> Tous ceux qui entendront le mal qui vous est arrivé frémiront.
 
 ### passuk 5
-<b>sera lamenté</b> Heb.  יָנוּד".
-<b>et qui se tournera</b> vers toi, pour se détourner de sa route vers toi, pour demander ton bien-être ?
+<b>se lamentera</b> Heb. יָנוּד.
+<b>Et qui se détournera</b> vers toi, pour se détourner de sa route vers toi, pour demander ton bien-être ?
 
 ### passuk 6
-<b>Je suis las de me repentir</b> Bien des fois j'ai projeté de détruire mais je me suis repenti du mal. Maintenant, je suis fatigué de me repentir.  הִנָחֵם  (Dporpnser in O.F.)
+<b>Je suis las de me repentir</b> Bien des fois j'ai projeté de détruire mais je me suis repenti du mal. Maintenant, je suis fatigué de me repentir. הִנָחֵם (Dporpnser en ancien français.)
 
 ### passuk 7
-<b>Avec un tamis</b> Un tamis appelé (van en français), comme celui qui vanne l'orge, afin qu'ils ne soient pas tous exilés dans un même lieu.
+<b>Avec un tamis</b> Un tamis appelé (van en français), comme celui qui vanne l'orge, afin qu'ils ne soient pas tous exilés au même endroit.
 
 ### passuk 8
 <b>Sont à Moi plus nombreuses</b> Ses veuves sont plus nombreuses à Moi.
 <b>Sur une mère</b> Sur Jérusalem, qui est une ville et une mère en Israël.
 <b>A midi</b> Tout sera exposé devant lui, tous leurs trésors cachés.
-<b>J'ai jeté sur elle soudainement une ville</b> J'ai fait reposer sur elle les troupes d'une ville et de nombreuses terreurs. Certains interprètent  עִיר  comme "un ennemi.' Cf. (I Sam. 28:16), "Et est devenue [le soutien de] ton adversaire (עָרֶךָ)" (voir aussi Dan. 4:16).
+<b>J'ai jeté sur elle soudainement une ville</b> J'ai fait reposer sur elle les troupes d'une ville et de nombreuses terreurs. Certains interprètent עִיר par "un ennemi". Cf. (I Sam. 28:16), " Et est devenu [le soutien de] ton adversaire (עָרֶךָ) ". (voir aussi Dan. 4:16).
 
 ### passuk 9
 <b>Celle qui en portait sept</b> Samarie et la nation des Dix Tribus, d'où se sont élevées sept dynasties de rois méchants, a déjà été retranchée et exilée.
 <b>et leur reste</b> Ce sont Juda et une partie de Benjamin, restés en Israël. Je les livrerai à l'épée. Ce sont les sept dynasties : Jéroboam fils de Nébat et sa dynastie, Baasha et sa dynastie, Omri et sa dynastie, Jéhu et sa dynastie, Menahem et sa dynastie, Pékah et sa dynastie, Osée et sa dynastie.
-<b>Son âme s'afflige</b> une expression de "son âme s'afflige.' Nous traduisons (Deut. 28:65) "Et l'affliction de l'âme (וְדַאֲבוֹן נֶפֶֹש)" par  וּמַפְּחַן נְפָֹש.
-<b>alors qu'il fait encore jour</b> Avant son heure, ils se sont empressés de tomber. De cette manière, il est expliqué dans le Tractate Gittin. [Voir Gittin 88a]. Et dans le Midrash de Rabbi Tanhuma (Tanhuma Buber, Vayetze p. 153), il est expliqué comme faisant référence à Jérusalem, et il compte sept hommes méchants : Jéhoram, Joachim, Achaz, Manassé, Amon, Jojakim et Sédécias. Mais il faut encore compter Roboam, Abija, Amazia et Achazia.
+<b>Son âme s'afflige</b> une expression de "son âme s'afflige". Nous traduisons (Deut. 28:65) "Et le chagrin de l'âme (וְדַאֲבוֹן נֶפֶֹש)" par וּמַפְּחַן נְפָֹש.
+<b>alors qu'il fait encore jour</b> Avant son heure, ils se sont empressés de tomber. C'est ainsi qu'il est expliqué dans le Tractate Gittin. [Voir Gittin 88a]. Et dans le Midrash de Rabbi Tanhuma (Tanhuma Buber, Vayetze p. 153), il est expliqué comme faisant référence à Jérusalem, et il compte sept hommes méchants : Jéhoram, Joachim, Achaz, Manassé, Amon, Jojakim et Sédécias. Mais il faut encore compter Roboam, Abija, Amazia et Achazia.
 <b>et confondu</b> une expression de honte.
 
 ### passuk 10
 <b>Malheur à moi, ma mère</b> Jérémie se plaignait de lui-même, que ses concitoyens le détestaient à cause de ses fustigations.
-<b>Et un homme de dispute</b> un homme de querelle, Cf. (Gen. 6:3) "Laissez mon esprit ne pas contester (יָדוֹן)."
-<b>Je n'ai pas prêté</b> Cf. (Exode 22:24) "Tu ne seras pas pour lui comme un créancier (כְּנֹֹֹשֶה") ."
+<b>Et un homme de dispute</b> un homme de querelle, Cf. (Gen. 6:3) "Que mon esprit ne conteste pas (יָדוֹן)."
+<b>Je n'ai pas prêté</b> Cf. (Exode 22:24) "Tu ne seras pas pour lui comme un créancier (כְּנֹֹֹֹשֶה) ."
 <b>Ils me maudissent</b> Je ne me dispute pas avec eux au sujet d'affaires d'argent que je leur réclame, et ils n'ont fait aucune réclamation à mon égard, et pourtant tout le peuple me maudit.
 
 ### passuk 11
-<b>1 te laisse</b> Je te laisse, expression d'un reste. C'est ainsi que Menahem (Machbereth p. 181) l'a interprété, mais Dunash (Teshuvoth Dunash p. 36) l'a interprété comme une expression de libération. Et  שֵרִיתִיךָ  est comme (Dan. 5:12) "Et délier (וּמְֹשָרֵא) les nuds," et l'interprétation de  שֵרִיתִיךָ  est ainsi, comme il est dit (ci-dessous 40:4) : C'est-à-dire que le jour où le Seigneur a accompli sa parole, il lui a été dit : "Et maintenant, voici que je te libère aujourd'hui des chaînes qui sont sur ta main, s'il te plaît de venir avec moi à Babylone." Et aussi, Israël l'a supplié de prier pour eux, comme il lui a été dit (ci-dessous 42:4) : " Prie en notre faveur le Seigneur notre morue, car nous restons peu nombreux parmi la multitude ".
-<b>Verily I will</b> lit., sinon, expression d'un serment.
-<b>Je ferai en sorte qu'[ils] te supplient au temps du mal</b> avec l'ennemi. Lorsque le malheur s'abattra sur eux, ils te supplieront d'implorer Dieu pour qu'il ait pitié d'eux, par exemple, Sédécias lui dit (ci-dessous 21:2) : "Implore Dieu maintenant en notre faveur, etc." Autre explication. Nébuzaradan te suppliera (ci-dessous 40:4), " S'il te plaà®t, viens avec moi à Babylone ".
+<b>1 te laisse</b> Je te laisse, expression d'un reste. C'est ainsi que Menahem (Machbereth p. 181) l'a interprété, mais Dunash (Teshuvoth Dunash p. 36) l'a interprété comme l'expression d'une libération. Et שֵרִיתִיךָ est comme (Dan. 5:12) " Et délier (וּמְֹשָרֵא) les nœuds ", et l'interprétation de שֵרִיתִיךָ est ainsi, comme il est dit (ci-dessous 40:4) : " Voici que je t'ai libéré des chaînes qui étaient sur ta main. " C'est-à-dire qu'en ce jour où le Seigneur a accompli sa parole, il lui a été dit : "Et maintenant, voici que je te libère aujourd'hui des chaînes qui sont sur ta main, s'il te plaît de venir avec moi à Babylone." Et aussi, Israël l'a supplié de prier pour eux, comme il lui a été dit (ci-dessous 42, 4) : "Priez en notre faveur le Seigneur notre morue, car nous restons peu nombreux parmi la multitude."
+<b>Véritablement je le ferai</b> lit., sinon, expression d'un serment.
+<b>Je ferai en sorte qu'[ils] te supplient au temps du mal</b> avec l'ennemi. Quand le malheur s'abattra sur eux, ils te supplieront d'implorer Dieu pour qu'il ait pitié d'eux, par exemple, Sédécias lui dit : (ci-dessous 21, 2) "Implore Dieu maintenant en notre faveur, etc.". Autre explication. Nebuzaradan vous suppliera (ci-dessous 40:4), "S'il vous plaît de venir avec moi à Babylone."
 
 ### passuk 12
-<b>Le fer brisera-t-il le fer du nord</b> Je dis que le fer qui vient du nord est plus dur que les autres fers, et voici son interprétation : Ils ont été comparés à du fer (ci-dessus 6:28), "Aller porter comme le cuivre et le fer." Et concernant Jérémie il est dit (ci-dessus 1:18) : " J'ai fait de toi... une colonne de fer et des murs de cuivre ", et les siens sont plus forts que les leurs, car Nabuchodonosor s'abattra sur eux selon ses paroles.
-<b>Leur fer brisera-t-il le vôtre ? Autre explication : Pharaon qui vient à votre secours, qui est dur comme le fer, brisera-t-il Nabuchodonosor, qui est le fer qui vient du nord et du cuivre ? Le Targum Jonathan penche dans ce sens.
+<b>Le fer brisera-t-il le fer du nord</b> Je dis que le fer qui vient du nord est plus dur que les autres fers, et voici son interprétation : Ils ont été comparés au fer (ci-dessus 6:28), "allant conte portant comme le cuivre et le fer." Et concernant Jérémie, il est dit (ci-dessus 1:18) : "J'ai fait de toi... une colonne de fer et des murs de cuivre", et le sien est plus fort que le leur, car Nabuchodonosor viendra sur eux selon ses paroles.
+<b>Brisera...</b> Leur fer brisera-t-il le vôtre ? Autre explication : Pharaon qui vient à votre secours, qui est dur comme le fer, brisera-t-il Nabuchodonosor, qui est le fer qui vient du nord et du cuivre ? Le Targum Jonathan penche dans ce sens.
 
 ### passuk 13
 <b>Ta richesse</b> Une expression de l'argent.
@@ -62,8 +62,8 @@
 
 ### passuk 15
 <b>Ne me prends pas pour ta longue souffrance</b> Jonathan rend. N'accorde pas de sursis à mon humiliation. Ne prends pas ma cause pour la laisser à Ta longue souffrance, mais hâte-toi et venge-moi.
-<b>J'ai porté</b> comme  סָבַלְתִּי  porté.
-<b>Pour l'amour de toi</b> pour toi.
+<b>J'ai porté</b> comme סָבַלְתִּי porté.
+<b>Pour ton bien</b> pour toi.
 
 ### passuk 16
 <b>Tes paroles ont été trouvées et je les ai mangées</b> avidement au début, et elles étaient une joie pour moi, car je pensais que maintenant ils m'écouteraient.
@@ -73,14 +73,102 @@
 <b>Je me suis assis</b> seul et déconcerté par le deuil, car Tu m'as rempli d'une prophétie de fureur concernant la destruction de Ta Maison.
 
 ### passuk 18
-<b>Malade</b> malade. Comp. (II Sam. 12:15) "Et il devint mortellement malade (וַיֵּאָנַֹש)." mentionné concernant le fils de Bath-Sheba.
-<b>Vous êtes pour moi</b> Heb.  הָיוֹ תִהְיֶה". <b>Comme une source défaillante</b> Comme un homme dont la confiance a été coupée de lui, car tu me permets de souffrir entre leurs mains.  אַכְזָב ' est une source qui s'arrête (faylayne en O. F :), défaillante.
+<b>Malade</b> malade. Comp. (II Sam. 12:15) "Et il devint mortellement malade (וַיֵּאָנַֹש)." mentionné à propos du fils de Bath-Schéba.
+<b>Vous êtes pour moi</b> Heb. הָיוֹ תִהְיֶה. <b>Comme une source défaillante</b> Comme un homme à qui on a retiré la confiance, car tu me permets de souffrir de leurs mains. אַכְזָב est une source qui s'arrête (faylayne en O. F :), défaillante.
 <b>L'eau qui n'est pas fidèle</b> pour compter sur elle.
 
 ### passuk 19
 <b>C'est pourquoi</b> Parce que je souffre de ces troubles.
 <b>ainsi m'a dit le Seigneur</b>.
-<b>Si tu reviens</b> Toi, Israël, par moi, et que je te ramène à Lui, Il m'a dit : "Tu te tiendras devant Moi".
+<b>Si tu reviens</b> Toi, Israël, par moi, et que je te ramène à Lui, Il m'a dit : "Tu te tiendras devant Moi."
+<b>Et si tu retires le précieux de l'ignoble</b> Si tu retires un homme pieux d'un méchant, c'est-à-dire si tu l'amènes à la repentance.
+<b>Tu seras comme ma bouche</b> Car je fais un décret et tu l'annules.
+<b>Les laisser revenir vers toi, mais tu ne reviendras pas vers eux</b> Les laisser revenir à ta parole, mais tu ne reviendras pas t'égarer après eux.
+
+>Crédit : sefaris
+>License : CC-BY
+### passuk 1
+<b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27), "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc.". Et ensuite (v. 30), "Je monterai vers le Seigneur, peut-être que j'expierai." Samuel à Mitspa (I Samuel 7,4,5) "Et les enfants d'Israël firent disparaître les Baalim," et après, "'Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic)". Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
+<b>Désir</b> Heb. נַפְֹשִי lit. mon âme.
+
+### passuk 2
+<b>Ceux qui sont pour la mort, à la mort</b> Chaque calamité mentionnée plus loin dans ce verset est plus sévère que celle qui la précède. L'épée est plus dure que la mort. La mort par l'épée est défigurante, alors que la mort dans le lit n'est pas défigurante. Et ainsi il dit (Psaumes 116:15) : "Précieuse aux yeux du Seigneur est la mort de ses Saints." La famine est plus rude que l'épée, car celle-ci est angoissante alors que l'autre ne l'est pas. C'est pourquoi l'Écriture déclare (Lam. 4:9) : "Mieux vaut ceux qui meurent par l'épée que ceux qui meurent par la famine". La captivité - toutes les sortes de mort y sont contenues.
+
+### passuk 3
+<b>Et je nommerai</b> une expression de nomination et de désignation.
+<b>Traîner</b> traîner. Cf. (infra. 49, 20) "Si les petits des brebis ne les traînent pas (יִסְחָבוּם)."
+
+### passuk 4
+<b>une horreur</b> de la même racine que (Esther 5:9), "Et il ne se leva ni ne trembla (זָע)." De même, גַּאֲוָה orgueil, de la racine (Isa. 16:6) "Sont devenus très orgueilleux (גֵּא)."
+<b>A tous les royaumes de la terre</b> Tous ceux qui entendront le mal qui vous est arrivé frémiront.
+
+### passuk 5
+<b>se lamentera</b> Heb. יָנוּד.
+<b>Et qui se détournera</b> vers toi, pour se détourner de sa route vers toi, pour demander ton bien-être ?
+
+### passuk 6
+<b>Je suis las de me repentir</b> Bien des fois j'ai projeté de détruire mais je me suis repenti du mal. Maintenant, je suis fatigué de me repentir. הִנָחֵם (Dporpnser en ancien français.)
+
+### passuk 7
+<b>Avec un tamis</b> Un tamis appelé (van en français), comme celui qui vanne l'orge, afin qu'ils ne soient pas tous exilés au même endroit.
+
+### passuk 8
+<b>Sont à Moi plus nombreuses</b> Ses veuves sont plus nombreuses à Moi.
+<b>Sur une mère</b> Sur Jérusalem, qui est une ville et une mère en Israël.
+<b>A midi</b> Tout sera exposé devant lui, tous leurs trésors cachés.
+<b>J'ai jeté sur elle soudainement une ville</b> J'ai fait reposer sur elle les troupes d'une ville et de nombreuses terreurs. Certains interprètent עִיר par "un ennemi". Cf. (I Sam. 28:16), " Et est devenu [le soutien de] ton adversaire (עָרֶךָ) ". (voir aussi Dan. 4:16).
+
+### passuk 9
+<b>Celle qui en portait sept</b> Samarie et la nation des Dix Tribus, d'où se sont élevées sept dynasties de rois méchants, a déjà été retranchée et exilée.
+<b>et leur reste</b> Ce sont Juda et une partie de Benjamin, restés en Israël. Je les livrerai à l'épée. Ce sont les sept dynasties : Jéroboam fils de Nébat et sa dynastie, Baasha et sa dynastie, Omri et sa dynastie, Jéhu et sa dynastie, Menahem et sa dynastie, Pékah et sa dynastie, Osée et sa dynastie.
+<b>Son âme s'afflige</b> une expression de "son âme s'afflige". Nous traduisons (Deut. 28:65) "Et le chagrin de l'âme (וְדַאֲבוֹן נֶפֶֹש)" par וּמַפְּחַן נְפָֹש.
+<b>alors qu'il fait encore jour</b> Avant son heure, ils se sont empressés de tomber. C'est ainsi qu'il est expliqué dans le Tractate Gittin. [Voir Gittin 88a]. Et dans le Midrash de Rabbi Tanhuma (Tanhuma Buber, Vayetze p. 153), il est expliqué comme faisant référence à Jérusalem, et il compte sept hommes méchants : Jéhoram, Joachim, Achaz, Manassé, Amon, Jojakim et Sédécias. Mais il faut encore compter Roboam, Abija, Amazia et Achazia.
+<b>et confondu</b> une expression de honte.
+
+### passuk 10
+<b>Malheur à moi, ma mère</b> Jérémie se plaignait de lui-même, que ses concitoyens le détestaient à cause de ses fustigations.
+<b>Et un homme de dispute</b> un homme de querelle, Cf. (Gen. 6:3) "Que mon esprit ne conteste pas (יָדוֹן)."
+<b>Je n'ai pas prêté</b> Cf. (Exode 22:24) "Tu ne seras pas pour lui comme un créancier (כְּנֹֹֹֹשֶה) ."
+<b>Ils me maudissent</b> Je ne me dispute pas avec eux au sujet d'affaires d'argent que je leur réclame, et ils n'ont fait aucune réclamation à mon égard, et pourtant tout le peuple me maudit.
+
+### passuk 11
+<b>1 te laisse</b> Je te laisse, expression d'un reste. C'est ainsi que Menahem (Machbereth p. 181) l'a interprété, mais Dunash (Teshuvoth Dunash p. 36) l'a interprété comme l'expression d'une libération. Et שֵרִיתִיךָ est comme (Dan. 5:12) " Et délier (וּמְֹשָרֵא) les nœuds ", et l'interprétation de שֵרִיתִיךָ est ainsi, comme il est dit (ci-dessous 40:4) : " Voici que je t'ai libéré des chaînes qui étaient sur ta main. " C'est-à-dire qu'en ce jour où le Seigneur a accompli sa parole, il lui a été dit : "Et maintenant, voici que je te libère aujourd'hui des chaînes qui sont sur ta main, s'il te plaît de venir avec moi à Babylone." Et aussi, Israël l'a supplié de prier pour eux, comme il lui a été dit (ci-dessous 42, 4) : "Priez en notre faveur le Seigneur notre morue, car nous restons peu nombreux parmi le grand nombre."
+<b>Véritablement je le ferai</b> lit., sinon, expression d'un serment.
+<b>Je ferai en sorte qu'[ils] te supplient au temps du mal</b> avec l'ennemi. Quand le malheur s'abattra sur eux, ils te supplieront d'implorer Dieu pour qu'il ait pitié d'eux, par exemple, Sédécias lui dit (ci-dessous 21, 2) : "Implore Dieu maintenant en notre faveur, etc.". Autre explication. Nebuzaradan vous suppliera (ci-dessous 40:4), "S'il vous plaît de venir avec moi à Babylone."
+
+### passuk 12
+<b>Le fer brisera-t-il le fer du nord</b> Je dis que le fer qui vient du nord est plus dur que les autres fers, et voici son interprétation : Ils ont été comparés au fer (ci-dessus 6:28), "allant conte portant comme le cuivre et le fer." Et concernant Jérémie, il est dit (ci-dessus 1:18) : "J'ai fait de toi... une colonne de fer et des murs de cuivre", et le sien est plus fort que le leur, car Nabuchodonosor viendra sur eux selon ses paroles.
+<b>Brisera...</b> Leur fer brisera-t-il le vôtre ? Autre explication : Pharaon qui vient à votre secours, qui est dur comme le fer, brisera-t-il Nabuchodonosor, qui est le fer qui vient du nord et du cuivre ? Le Targum Jonathan penche dans ce sens.
+
+### passuk 13
+<b>Ta richesse</b> Une expression de l'argent.
+<b>et tes trésors</b> Il s'adresse à Israël.
+<b>Et à cause de tous tes péchés</b> Et à cause de tous tes péchés, cela t'arrivera.
+<b>Et dans toutes tes frontières</b> Car tu as érigé des idoles dans toutes ces frontières.
+
+### passuk 14
+
+### passuk 15
+<b>Ne me prends pas pour ta longue souffrance</b> Jonathan rend. N'accorde pas de sursis à mon humiliation. Ne prends pas ma cause pour la laisser à Ta longue souffrance, mais hâte-toi et venge-moi.
+<b>J'ai porté</b> comme סָבַלְתִּי porté.
+<b>Pour ton bien</b> pour toi.
+
+### passuk 16
+<b>Tes paroles ont été trouvées et je les ai mangées</b> avidement au début, et elles étaient une joie pour moi, car je pensais que maintenant ils m'écouteraient.
+
+### passuk 17
+<b>À cause de ta main</b> À cause de la prophétie qui m'est venue de toi.
+<b>Je me suis assis</b> seul et déconcerté par le deuil, car Tu m'as rempli d'une prophétie de fureur concernant la destruction de Ta Maison.
+
+### passuk 18
+<b>Malade</b> malade. Comp. (II Sam. 12:15) "Et il devint mortellement malade (וַיֵּאָנַֹש)." mentionné à propos du fils de Bath-Schéba.
+<b>Vous êtes pour moi</b> Heb. הָיוֹ תִהְיֶה. <b>Comme une source défaillante</b> Comme un homme à qui on a retiré la confiance, car tu me permets de souffrir de leurs mains. אַכְזָב est une source qui s'arrête (faylayne en O. F :), défaillante.
+<b>L'eau qui n'est pas fidèle</b> pour compter sur elle.
+
+### passuk 19
+<b>C'est pourquoi</b> Parce que je souffre de ces troubles.
+<b>ainsi m'a dit le Seigneur</b>.
+<b>Si tu reviens</b> Toi, Israël, par moi, et que je te ramène à Lui, Il m'a dit : "Tu te tiendras devant Moi."
 <b>Et si tu retires le précieux de l'ignoble</b> Si tu retires un homme pieux d'un méchant, c'est-à-dire si tu l'amènes à la repentance.
 <b>Tu seras comme ma bouche</b> Car je fais un décret et tu l'annules.
 <b>Les laisser revenir vers toi, mais tu ne reviendras pas vers eux</b> Les laisser revenir à ta parole, mais tu ne reviendras pas t'égarer après eux.

@@ -5,18 +5,18 @@
 <b>et ils ont cherché</b> Ils ont cherché dans la bibliothèque où les archives étaient stockées à Babylone.
 
 ### passuk 2
-<b>Et l'on trouva dans une poche</b> Et l'on y trouva le texte d'un rouleau dans une  אַחְמְתָא. Les interprètes ont donc interprété qu'il s'agit d'un réceptacle fait pour des lettres, des feuilles écrites et des livres, et ils l'ont établi à partir de la racine de (Gen. 21:14) : "une peau d'eau (וְחֵמַת מַיִם)," et le "aleph" du mot n'est pas un radical, comme le reste de la langue araméenne.
+<b>Et l'on trouva dans une pochette</b> Et l'on y trouva le texte d'un rouleau dans une אַחְמְתָא. Les interprètes ont donc interprété, qu'il s'agit d'un réceptacle fait pour les lettres, les feuilles écrites et les livres, et ils l'ont établi à partir de la racine de (Gen. 21:14) : " une peau d'eau (וְחֵמַת מַיִם) ", et le " aleph " du mot n'est pas un radical, comme le reste de la langue araméenne.
 <b>Dans la citadelle</b> dans cette citadelle qui était dans la province de Media.
 <b>Et ainsi fut écrit</b> et ainsi fut écrit dans son mémorandum.
 
 ### passuk 3
-<b>La Maison de Dieu à Jérusalem</b> concernant la Maison de Dieu à Jérusalem ; que doit-il en être ? "La Maison doit être construite."
+<b>La Maison de Dieu à Jérusalem</b> concernant la Maison de Dieu à Jérusalem ; que doit-il en être ? "La Maison devrait être construite."
 <b>un lieu où l'on offre des sacrifices</b> qui est un lieu où l'on offre des sacrifices.
-<b>et ses murs devraient être fondés</b> Aram.  וְאֻשּׁוֹהִי. Et ses murs devraient être fondés, comme (4:12) : "et ses murs (וְאֻשַּׁיָא) ils ont joint."
+<b>et ses murs devraient être fondés</b> Aram. וְאֻשּׁוֹהִי. Et ses murs devraient être fondés, comme (4:12) : "et ses murs (וְאֻשַּׁיָא), ils les ont joints".
 <b>Sa hauteur soixante coudées</b> la hauteur de la Maison était de soixante coudées, et soixante coudées était sa largeur.
 
 ### passuk 4
-<b>Les rangées</b> Aram.  נִדְבָּכִין, une expression pour les murs. Les murs étaient en marbre. <b>marbre</b> Aram.  גְּלָל  (marmre en ancien français).
+<b>Les rangées</b> Aram. נִדְבָּכִין, une expression pour les murs. Les murs étaient de marbre. <b>marbre</b> Aram. גְּלָל (marmre en ancien français).
 <b>et une rangée</b> et un mur de bois neuf de l'intérieur, à la manière de la construction du Temple que Salomon a construit.
 <b>Et les dépenses</b> Et les dépenses pour les besoins de la Maison et pour les autres affaires relatives à la Maison leur seront données du palais royal.
 
@@ -24,8 +24,8 @@
 <b>Et aussi les vases de</b> et aussi les vases sacrés de la Maison de Dieu, d'or et d'argent, que Nabuchodonosor a pris du Temple de Jérusalem et a apporté à Babylone.
 <b>Qu'ils soient livrés</b> [comme traduit,] qu'ils soient livrés.
 <b>et apporté</b> qu'il a apporté.
-<b>et apporté</b> Que toute cette oeuvre soit apportée au Temple qui est à Jérusalem, à sa place.
-<b>Et elle sera déposée</b> Et elle sera déposée dans la Maison du Saint, béni soit-il.
+<b>et apporté</b> Que toute cette œuvre soit apportée au Temple qui est à Jérusalem, à sa place.
+<b>et il sera déposé</b> Et il sera déposé dans la Maison du Saint, béni soit-il.
 
 ### passuk 6
 <b>Maintenant, Tattenai</b> C'est la réponse avec laquelle Darius a répondu à Tattenai et Shethar-Bozenai.
@@ -42,28 +42,28 @@
 <b>Et de moi sera émis un ordre</b> Et de moi cet ordre sera émis.
 <b>Concernant ce que vous ferez</b> concernant cette construction, le travail que vous ferez avec ces anciens des Juifs pour construire la Maison du Saint, béni soit-il.
 <b>Et sur les biens du roi</b> Et sur les biens du roi, ils feront ce bâtiment.
-<b>A partir des taxes de l'autre côté du fleuve</b> A partir des taxes de l'autre côté du fleuve, qui appartiennent au roi. <b>Impôts</b> Aram.  מִדַּת, impôt, comme (4:13) : "le dû du roi (מִנְדָּה"), l'impôt de capitation, ou l'impôt de repas.<b>rapidement</b> Aram.  אָסְפַּרְנָא. L'édifice sera rapidement construit ; esploytosemant en ancien français.
-<b>Les dépenses seront données</b> Les dépenses seront données à ces hommes afin qu'ils ne désuvrent pas de leur travail.
+<b>A partir des impôts de l'autre côté du fleuve</b> A partir des impôts de l'autre côté du fleuve, qui appartiennent au roi. <b>Impôts</b> Aram. מִדַּת, impôt, comme (4:13) : "le dû du roi (מִנְדָּה), l'impôt de capitation ou l'impôt de repas." <b>rapidement</b> Aram. אָסְפַּרְנָא. L'édifice sera rapidement construit ; esploytosemant en ancien français.
+<b>Les dépenses seront données</b> Les dépenses seront données à ces hommes afin qu'ils ne désœuvrent pas de leur travail.
 
 ### passuk 9
-<b>Et ce qu'ils demandent</b> et ce qui les préoccupe.
+<b>Et ce qu'ils exigent</b> et ce qui les préoccupe.
 <b>et des jeunes taureaux</b> des jeunes taureaux, des béliers et des agneaux pour les holocaustes au Dieu du ciel.
 <b>Blé</b> pour la farine fine. <b>sel</b> pour les sacrifices. <b>Vin</b> pour les libations. <b>et l'huile</b> pour les offrandes. Lorsque les prêtres qui sont à Jérusalem diront [ce dont ils ont besoin], il leur sera donné les besoins de chaque jour à son jour.
-<b>Sans délai</b> Aram.  דִּי לָא שָּׁלוּ  (son destorber en ancien français).
+<b>sans délai</b> Aram. דִּי לָא שָּׁלוּ (son destorber en ancien français).
 
 ### passuk 10
-<b>Afin qu'ils offrent des sacrifices agréables au Dieu des cieux, et qu'ils prient pour la vie du roi et de ses enfants</b>.
+<b>Afin qu'ils puissent</b> offrir des sacrifices agréables au Dieu des cieux, et qu'ils prient pour la vie du roi et de ses enfants.
 
 ### passuk 11
 <b>Et un ordre est émis par moi</b> Et un ordre est émis par moi, ainsi que l'émission d'une parole concernant toute personne qui désobéit à cette parole.
-<b>Il sera déchiré</b> Aram.  יִתְנְסַח-. Les poutres de sa maison seront détruites.  יִתְנְסַח - est comme (Deut. 28:63) : "et tu seras déraciné (וְנִסַחְתֶּם) du pays."
+<b>Il sera déchiré</b> Aram. יִתְנְסַח. Les poutres de sa maison seront détruites. יִתְנְסַח est comme (Deut. 28:63) : "et vous serez déracinés (וְנִסַחְתֶּם) du pays."
 <b>Et une potence sur laquelle on le placera</b> Et une potence sur laquelle on le pendra sera [élevée] en hauteur, afin qu'il soit pendu à la potence.
-<b>et sa maison sera transformée en un tas de fumier</b> et sa maison sera transformée en un tas de fumier à cause de cela.  נְוָלוּ  connote la saleté et les excréments.
+<b>Et sa maison sera transformée en un tas de fumier</b> et sa maison sera transformée en un tas de fumier à cause de cela. נְוָלוּ connote la saleté et les excréments.
 
 ### passuk 12
-<b>Le livre de la loi</b> [comme traduit,] le livre de la loi.
+<b>Le livre de la loi</b> [traduit,] le livre de la loi.
 <b>J'abattrai</b> j'abattrai et je détruirai tel roi et tel peuple qui tendra la main pour dévaster et détruire sa maison qui est à Jérusalem.
-<b>J'ai émis un édit</b> J'ai émis un ordre à ce sujet, pour que le bâtiment soit construit rapidement. Jusqu'à ce que soit donnée la réponse de Darius.
+<b>J'ai émis un édit</b> J'ai émis un ordre à ce sujet, pour que l'édifice soit construit rapidement. En attendant, voici la réponse de Darius.
 
 ### passuk 13
 <b>Comme il a été dit</b> [traduit,] comme il a été dit.
@@ -88,13 +88,13 @@
 <b>L'[offrande]</b> Or Israël fit l'offrande de la Pâque en ce quatorze de Nissan, qui suivait cet Adar, lorsque la construction fut achevée.
 
 ### passuk 20
-<b>et pour eux-mêmes</b> Heb.  וְלָהֶם, lit. et pour eux, et pour eux-mêmes.
+<b>et pour eux-mêmes</b> Heb. וְלָהֶם, lit. et pour eux, et pour eux-mêmes.
 
 ### passuk 21
 <b>et ceux qui se sont séparés</b> Ce sont les prosélytes, qui se sont séparés de la souillure des nations pour s'attacher à Israël.
 
 ### passuk 22
-<b>et a tourné vers eux le cœur du roi d'Assyrie</b> Et le Saint, béni soit-Il, a tourné le cœur du roi d'Assyrie vers les Israélites qui habitaient sous sa domination au pays d'Assyrie, pour les fortifier et les aider dans l'oeuvre de construction.
+<b>et a tourné vers eux le cœur du roi d'Assyrie</b> Et le Saint, béni soit-Il, a tourné le cœur du roi d'Assyrie vers les Israélites qui habitaient sous sa domination au pays d'Assyrie, pour les fortifier et les aider dans l'œuvre de construction.
 
 >Crédit : sefaris
 >License : CC-BY

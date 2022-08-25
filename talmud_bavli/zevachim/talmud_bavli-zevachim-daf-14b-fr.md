@@ -21,7 +21,7 @@ La Guemara demande : <b>Et ce n'est pas le cas ? Mais Rabbi Zeira ne dit-il pas<
 La Gemara répond : La <b>génisse rouge est différente, car elle n'est</b> pas une offrande ; elle a le caractère sacré des objets <b>consacrés à l'entretien du Temple.</b> Les <i>halakhot</i> qui régissent son service diffèrent donc de celles des offrandes proprement dites.
 
 ### Partie 8
-La Guemara demande : <b>Mais</b> cela ne prouve-t-il pas <b>d'autant plus</b> que si l'abattage d'un animal <b>consacré à l'entretien du Temple est</b> assimilé à un <b>sacrifice,</b> l'abattage des <b>offrandes,</b> qui sont sacrifiées sur l'<b>altar, ne peut-il pas être</b> considéré comme un <b>sacrifice ?</b>
+La Guemara demande : <b>Mais</b> cela ne prouve-t-il pas <b>d'autant plus</b> que si l'abattage d'un animal <b>consacré à l'entretien du Temple est</b> assimilé à un <b>sacrifice,</b> l'abattage des <b>offrandes,</b> qui sont sacrifiées sur l'<b>autel, ne peut-il pas être</b> considéré comme un <b>sacrifice ?</b>
 
 ### Partie 9
 <b>Rav Sheisha, fils de Rav Idi, a dit :</b> L'abattage d'une génisse rouge est considéré <b>comme il l'est dans</b> le cas de <b>l'ombre de</b> <b>marques lépreuses, qui</b> sont jugées rituellement pures ou impures par un prêtre. Bien qu'il ne s'agisse <b>pas</b> d'un <b>rite sacrificiel,</b> il faut néanmoins <b>un membre de la <b>prêtrise</b> pour l'accomplir. Par conséquent, l'exigence que la génisse rouge soit abattue par un prêtre ne prouve pas qu'elle soit classée comme un rite sacrificiel.

@@ -19,12 +19,12 @@
 ### passuk 6
 
 ### passuk 7
-<b>Not because of the multitude of your population.</b> This is to be taken literally, but there is also a Midrashic interpretation: Because you do not magnify yourselves (boasting) when I shower you with goodness, therefore did [Hachem] delight in you. 
-<b>For you are the least.</b> You diminish yourselves, as did Avrohom, who said, “I am but dust and ashes,” and like Moshe and Aharon who said, “What are we”? And you are not as Nevuchadnetzar, who said, “I will be compared to the Most High,” or like like Sancherev, who said, “Who are they among all the gods of these lands, [that have delivered their land out of my hand that Hachem should deliver Jerusalem and of my hand”?] or like Chirom, who said, “I am a god, in the seat of God, I sit.” 
+<b>Not because of the multitude of your population.</b> This is to be taken literally, but there is also a Midrashic interpretation: Because you do not magnify yourselves (boasting) when I shower you with goodness, therefore did [Adonoy] delight in you. 
+<b>For you are the least.</b> You diminish yourselves, as did Avrohom, who said, “I am but dust and ashes,” and like Moshe and Aharon who said, “What are we”? And you are not as Nevuchadnetzar, who said, “I will be compared to the Most High,” or like like Sancherev, who said, “Who are they among all the gods of these lands, [that have delivered their land out of my hand that Adonoy should deliver Jerusalem and of my hand”?] or like Chirom, who said, “I am a god, in the seat of God, I sit.” 
 <b>For you are the least.</b> Here the word כִּי is used to express “for.”
 
 ### passuk 8
-Rather, out of Hachem’s love. Here the word כִּי is used to express “rather.” “Not because of the multitude of your population, did Hachem desire you, rather, out of Hachem’s love for you.” 
+Rather, out of Adonoy’s love. Here the word כִּי is used to express “rather.” “Not because of the multitude of your population, did Adonoy desire you, rather, out of Adonoy’s love for you.” 
 <b>And out of His keeping the oath.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>On account of His keeping the oath.
 
 ### passuk 9
@@ -40,7 +40,7 @@ Rather, out of Hachem’s love. Here the word כִּי is used to express “rat
 
 ### passuk 12
 <b>In the future, as a consequence of your heeding.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If, even the lesser commandments which a person [sometimes] treads on with his heels, you will heed, [then] — 
-<b>Hachem, your God will preserve. . .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He will keep his promise to you. 
+<b>Adonoy, your God will preserve. . .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He will keep his promise to you. 
 
 ### passuk 13
 <b>The offspring of your cattle.</b> The young of your cattle <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>which the female casts out from her womb.

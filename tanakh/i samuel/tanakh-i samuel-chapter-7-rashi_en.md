@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>From the time the Ark came to rest in Kiryas Yearim.</b> And they saw the retribution which befell them because of the sin of Eili's family, and the mighty deed which the Holy One, Blessed is He, had visited upon the Philistines.
-<b>The house … was drawn after Hachem.</b> Through Shmuel who would travel from city to city, judging and reproving them. 
+<b>The house … was drawn after Adonoy.</b> Through Shmuel who would travel from city to city, judging and reproving them. 
 <span>וַיִנָּהוּ</span>' is an expression of drawing; in Aramaic, '<span>תִּתְּנֵהוּ לְפוּלְחָנִי</span>' [they were drawn after My worship]. And similarly '<span>וְלֹא נֹהַּ בָּהֶם</span>' it is no use to attract them to good.<sup>1</sup><i class="footnote"> Yechezkeil 7:11.</i> Menachem classifies '<span>וַיִנָּהוּ</span>' as an expression of lamentation, as in '<span>נְהִי נִהְיָה</span>' [a lament has come to be].<sup>2</sup><i class="footnote">Michoh 2:4.</i> And similarly '<span>וְלֹא נֹהַּ בָּהֶם</span>' [is rendered as, 'and they will have no remorse']. And the meaning of '<span>וַיִנָּהוּ אַחֲרֵי ה</span>' is, "they lamented their evil deeds, and returned after '<span>ה</span>." Another explanation is that '<span>וַיִנָּהוּ</span>' means 'and they gathered,' as in, "And all the nations will be gathered into it [Yerusholayim]"<sup>3</sup><i class="footnote">Yirmiyohu 3:17.</i> which the Targum renders, "And all nations will gather into it to worship." In this manner, the verse '<span>וְלֹא נֹהַּ בָּהֶם</span>' may be rendered <span>לֹא מֵהֶם</span> "neither from them," <span>וְלֹא מֵהֲמוֹנָם</span> "nor from their multitude <span>וְלֹא [מִ]נֹהַּ [שֶׁ]בָּהֶם</span> meaning nor from their gathering.
 
 ### passuk 3

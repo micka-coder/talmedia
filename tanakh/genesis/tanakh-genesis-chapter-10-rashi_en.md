@@ -19,7 +19,7 @@
 
 ### passuk 9
 <b>A mighty hunter.</b> He ensnared the minds of people with his words and misled them to rebel against God. 
-<b>Before Hachem.</b> [Meaning:] he intentionally provoked Him to His Face.
+<b>Before Adonoy.</b> [Meaning:] he intentionally provoked Him to His Face.
 <b>It is therefore said.</b> About any person who sins brazenly, knowing [who] his Master [is] and, yet, purposely rebelling against Him. [About such a person] it is said, “This one is like Nimrod, a mighty hunter.” 
 
 ### passuk 10

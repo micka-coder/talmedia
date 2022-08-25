@@ -48,7 +48,7 @@ Et ces princes d’Issachar, amis de Débora, et Issachar, l’appui de Barak, d
 Pourquoi es-tu resté entre les collines, écoutant le murmure des troupeaux? C’est que, pour les groupes de Ruben, grave est la perplexité d’esprit.
 
 ### passuk 17
-Galaad, sur la rive du Jourdain demeure immobile; Dan, qui le retient près des vaisseaux? Aser s’est fixé sur le littoral, il se cantonne près de ses ports...
+Galaad, sur la rive du Jourdain demeure immobile; Dan, qui le retient près des récipientx? Aser s’est fixé sur le littoral, il se cantonne près de ses ports...
 
 ### passuk 18
 Zabulon, voilà le peuple qui se dévoue à la mort! Lui et Nepthali, seuls au champ de bataille!

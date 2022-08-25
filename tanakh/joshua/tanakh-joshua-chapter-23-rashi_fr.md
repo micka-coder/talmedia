@@ -26,8 +26,8 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et un aiguillon dans tes flancs.</b><sup>1</sup><i class="footnote">Rashi prend le mot  לְשׁטֵט  comme une expression de rôdeur plutôt que comme une expression de tige ou d'aiguillon comme le font d'autres commentaires.</i> Ils rôderont autour de toi pour piller et saccager.
-<b>Et des épines.</b> C'est l'expression de camps. De même : "Et ils viendront sur toi avec des camps,"<sup>2</sup><i class="footnote">Yechezkeil 23:24.</i> comme un bouclier (צִנָה") qui entoure une personne de trois côtés, comme il est dit : "Comme un bouclier, tu l'englobes de faveur,"<sup>3</sup><i class="footnote">Tehillim 5:13. </i>  תַּעְטְרֶנוּ  signifiant  תְּסוֹבְבֶנוּ, entourer, similaire à "Et Shaul et ses hommes entourèrent David et ses hommes. "<sup>4</sup><i class="footnote">I Shmuel 23:26.</i>  עוֹטְרִים  signifiant  סוֹבְבִים, entourer.
+<b>Et un aiguillon dans tes flancs.</b><sup>1</sup><i class="footnote">Rashi prend le mot לְשׁטֵט comme une expression de rôdeur plutôt que comme une expression de tige ou d'aiguillon comme le font d'autres commentaires.</i> Ils rôderont autour de toi pour piller et saccager.
+<b>Et des épines.</b> C'est l'expression de camps. De même : "Et ils viendront sur toi avec des camps"<sup>2</sup><i class="footnote">Yechezkeil 23:24.</i> comme un bouclier (צִנָה) qui entoure une personne de trois côtés, comme il est dit : "Comme un bouclier, tu l'englobes de faveur"<sup>3</sup><i class="footnote">Tehillim 5:13. </i> תַּעְטְרֶנוּ signifiant תְּסוֹבְבֶנוּ, entourant, semblable à "Et Shaul et ses hommes entourèrent David et ses hommes. "<sup>4</sup><i class="footnote">I Shmuel 23:26.</i> עוֹטְרִים signifiant סוֹבְבִים, entourer.
 
 >Crédit : sefaris
->License : CC-BY
+>Licence : CC-BY

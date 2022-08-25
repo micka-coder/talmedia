@@ -36,7 +36,7 @@
 ### passuk 11
 <b>Behold you will conceive.</b> [Meaning: “When you return you will conceive,” as in: “Behold you will conceive,” referring to Monoach’s wife. 
 <b>And give birth to a son.</b> As if it were written וְיוֹלֶדֶת , This is similar to, “You who dwell in Levanon and are nestled in the cedars.” 
-<b>And you shall name him.</b> This is a command [to a female] just as one would say to a male [וְקָרָאתָ] “And you will name him Yitzchak.”
+<b>And you shall name him.</b> This is a command [to a female] just as one would say to a male [וְקָרָאתָ] “And you will name him Yitzchok.”
 
 ### passuk 12
 <b>A wild, uncivilized man.</b> One who loves the wilderness to hunt wild animals, as is written [concerning Yishmael]: “He settled in the wilderness of Paran [where] he became an expert archer.” 

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>These are the descendants of Aharon and Moshe.</b> [Scripture] mentions only the sons of Aharon, yet they are called the descendants of Moshe — because he taught them Torah. This teaches us that one who teaches another’s son Torah is considered as having procreated him. 
-<b>On the day that Hachem spoke to Moshe</b> They became his descendants, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>since he taught them what he had learned from the mouth of the Almighty. 
+<b>On the day that Adonoy spoke to Moshe</b> They became his descendants, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>since he taught them what he had learned from the mouth of the Almighty. 
 
 ### passuk 2
 
@@ -42,7 +42,7 @@
 <b>From the age of one month and above.</b> When he (the infant) can no longer be categorized as stillborn, he is listed among those entitled “guardian of the sacred watch.” R’ Yehudah B’rabi Shalom said, “This [Levite] tribe is regularly counted from the womb, as it is said, “. . . [Yocheved, Levi’s daughter] . . . whom she (Levi’s wife) bore to Levi in Egypt . . .” While entering the portals of Egypt, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>she bore her (Yocheved). yet she is counted among the seventy souls [who came down to Egypt]. for, when one tallies their total, one finds only sixty-nine and she completed the total. 
 
 ### passuk 16
-<b>According to the word of Hachem.</b> Moshe said before the Holy One, Blessed is He, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”How can I enter into their tents to determine the number of their nursing infants”? The Holy One, Blessed is He, replied, “Do yours, and I will do Mine”! Moshe proceeded, and stood at the door of the tent, whereupon the Divine Presence preceded him [and entered the tent]. A voice then echoed from the tent, announcing, “There are so many and so many nursing infants in this tent”! This is why it is said, “. . . according to the word of God . . .” 
+<b>According to the word of Adonoy.</b> Moshe said before the Holy One, Blessed is He, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>”How can I enter into their tents to determine the number of their nursing infants”? The Holy One, Blessed is He, replied, “Do yours, and I will do Mine”! Moshe proceeded, and stood at the door of the tent, whereupon the Divine Presence preceded him [and entered the tent]. A voice then echoed from the tent, announcing, “There are so many and so many nursing infants in this tent”! This is why it is said, “. . . according to the word of God . . .” 
 
 ### passuk 17
 
@@ -75,7 +75,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>The families of the children of Kehat shall camp . . . on the south.</b> Near them [was] the banner of Reuven, who camped to the south. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Woe to the wicked, woe to his neighbor! This is why [Reuven’s constituents] were punished — Doson, Avirom, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and two hundred and fifty men — together with Korach and his assembly, because they (the Reuvenites) were drawn, with them, into the dispute. 
+<b>The families of the children of Kehos shall camp . . . on the south.</b> Near them [was] the banner of Reuven, who camped to the south. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Woe to the wicked, woe to his neighbor! This is why [Reuven’s constituents] were punished — Doson, Avirom, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and two hundred and fifty men — together with Korach and his assembly, because they (the Reuvenites) were drawn, with them, into the dispute. 
 
 ### passuk 30
 
@@ -101,7 +101,7 @@
 
 ### passuk 39
 <b>Whom Moshe and Aharon counted.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>There are dots over [the word] וְאַהֲרֹן, to teach that he was not included in the counting of the Levites. 
-<b>Twenty two thousand.</b> When counting them individually, however, one discovers three hundred extra: the sons of Gershon, seven thousand five hundred; the sons of Kehat, eight thousand six hundred; the sons of Merori, six thousand two hundred [hence, twenty two thousand three hundred]. Why aren’t they included among the rest to redeem the firstborn, thus exempting the two hundred seventy three overlapping firstborn from redemption? Our sages answered, in Maseches Bechoros, that the three hundred Levites were, themselves, firstborn. It was sufficient <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for them to release themselves from redemption. 
+<b>Twenty two thousand.</b> When counting them individually, however, one discovers three hundred extra: the sons of Gershon, seven thousand five hundred; the sons of Kehos, eight thousand six hundred; the sons of Merori, six thousand two hundred [hence, twenty two thousand three hundred]. Why aren’t they included among the rest to redeem the firstborn, thus exempting the two hundred seventy three overlapping firstborn from redemption? Our sages answered, in Maseches Bechoros, that the three hundred Levites were, themselves, firstborn. It was sufficient <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>for them to release themselves from redemption. 
 
 ### passuk 40
 <b>Count every male firstborn . . . from the age of one month and above.</b> When he (the infant) can no longer be categorized as stillborn. 
@@ -118,7 +118,7 @@
 <b>And the animals of the Levites . . .etc.</b> The animals of the Levites did not redeem the firstlings of the Israelites’ clean (i.e., kosher) animals, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>but [they did redeem] the firstlings of their donkeys. And a single sheep belonging to a Levite released numerous of the Israelites’ donkey firstlings. The proof is that Scripture counts the extra men, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>but did not count the extra animals. 
 
 ### passuk 46
-<b>And the redemption of the [two hundred and seventy-]three.</b> The firstborn who require redemption among them (the Israelites), these are the two hundred seventy-three extras among them, over and above the Levites. From them, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>take five <i>shekolim</i> per head. This was the sale price for Yossef, twenty silver [pieces], who was Rachel’s firstborn. 
+<b>And the redemption of the [two hundred and seventy-]three.</b> The firstborn who require redemption among them (the Israelites), these are the two hundred seventy-three extras among them, over and above the Levites. From them, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>take five <i>shekolim</i> per head. This was the sale price for Yoseif, twenty silver [pieces], who was Rochel’s firstborn. 
 
 ### passuk 47
 

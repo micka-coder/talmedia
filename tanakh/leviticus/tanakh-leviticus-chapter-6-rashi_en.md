@@ -27,9 +27,9 @@
 <b>It shall not go out.</b> One who extinguishes the fire on the altar transgresses <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>two prohibitions.
 
 ### passuk 7
-<b>This is the law of the meal-offering,</b> there is one law for all of them, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to require oil and frankincense, which are mentioned in the section [dealing with them]. Perhaps, i would not apply the requirement of oil and frankincense, only [to] the meal-offering of a Israelite of which a fistful is taken; how do we know this of a <i>Kohen</i>’s meal-offering, which is completely burnt? The verse says: “the law of.” 
+<b>This is the law of the meal-offering,</b> there is one law for all of them, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to require oil and frankincense, which are mentioned in the section [dealing with them]. Perhaps, i would not apply the requirement of oil and frankincense, only [to] the meal-offering of a Israelite of which a fistful is taken; how do we know this of a <i>kohein</i>’s meal-offering, which is completely burnt? The verse says: “the law of.” 
 <b>Bring it,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>that is bringing near, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to the southwest corner [of the altar]. 
-<b>Before Hachem,</b> that is the west [side of the altar], which is on the side of the Tent of Meeting. 
+<b>Before Adonoy,</b> that is the west [side of the altar], which is on the side of the Tent of Meeting. 
 <b>To the front of the altar,</b> that is the south, which is the “face” of the altar, for the ramp is placed in that direction. 
 
 ### passuk 8
@@ -44,17 +44,17 @@
 
 ### passuk 10
 <b>It should not be baked [as] leavened, their portion,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>even the left-over portions [eaten by the <i>kohanim</i>] are prohibited when leavened. 
-<b>As the sin-offering and as the guilt-offering,</b> the meal-offering of a sinner is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>like a sin-offering, therefore [if the <i>Kohen</i>] took the fistful not for its sake, it is invalid. [In contrast,] a voluntary meal-offering is like a guilt-offering, therefore if he took a fistful not for its sake, it is valid. 
+<b>As the sin-offering and as the guilt-offering,</b> the meal-offering of a sinner is <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>like a sin-offering, therefore [if the <i>kohein</i>] took the fistful not for its sake, it is invalid. [In contrast,] a voluntary meal-offering is like a guilt-offering, therefore if he took a fistful not for its sake, it is valid. 
 
 ### passuk 11
-<b>Every male,</b> even one who has a physical defect. Why [= regarding to what aspect of the priesthood] is this said? If for eating [whatever the <i>Kohen</i> is given as his portion], it was already stated: “the food of his God of the holiest offering [shall he eat]! Rather, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to include [<i>kohanim</i>] who have a physical defect in [the privilege] of participating in the apportionment. 
+<b>Every male,</b> even one who has a physical defect. Why [= regarding to what aspect of the priesthood] is this said? If for eating [whatever the <i>kohein</i> is given as his portion], it was already stated: “the food of his God of the holiest offering [shall he eat]! Rather, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>to include [<i>kohanim</i>] who have a physical defect in [the privilege] of participating in the apportionment. 
 <b>Whatever shall touch [them will become sacred].</b> Holy offerings of a minor degree of sanctity or common food which touch it [= the meal-offering] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and absorb from it, 
 <b>Will become sacred,</b> to become like it, [that is,] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>if it [= the meal-offering] is invalid, they [= the holy offerings] become invalid, and if it [= the meal-offering] is valid, they shall be eaten <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>under the stringent rule [of eating] the meal-offering. 
 
 ### passuk 12
 
 ### passuk 13
-<b>This is the offering of Aharon and his sons,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>even ordinary <i>kohanim</i> offer [the] tenth of an ephah on the day when they are inaugurated into the Temple service, but [as for] a <i>Kohen Godol</i> — [he offers it] every day, as it is stated, “a continual meal-offering [half of it in the morning, half of it in the evening],” etc. “The <i>Kohen</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who is anointed in his stead from among his sons [shall also do it], an everlasting statute.” 
+<b>This is the offering of Aharon and his sons,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>even ordinary <i>kohanim</i> offer [the] tenth of an ephah on the day when they are inaugurated into the Temple service, but [as for] a <i>Kohein Godol</i> — [he offers it] every day, as it is stated, “a continual meal-offering [half of it in the morning, half of it in the evening],” etc. “The <i>kohein</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>who is anointed in his stead from among his sons [shall also do it], an everlasting statute.” 
 
 ### passuk 14
 <b>Saturated,</b> scalded in boiling water as much as needed. 
@@ -62,8 +62,8 @@
 <b>A meal-offering of broken pieces,</b> this teaches that it requires <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>breaking. 
 
 ### passuk 15
-<b>[The Kohen] who is anointed in his stead from among his sons,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the one anointed of his sons [to serve] in his stead. 
-<b>It shall be entirely burnt,</b> a fistful is not taken for the remnants to be eaten, but <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>all of it is completely [burnt], and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>so too: <b>Every meal-offering of a <i>Kohen</i> — </b>of a voluntary offering —
+<b>[The kohein] who is anointed in his stead from among his sons,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>the one anointed of his sons [to serve] in his stead. 
+<b>It shall be entirely burnt,</b> a fistful is not taken for the remnants to be eaten, but <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>all of it is completely [burnt], and <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>so too: <b>Every meal-offering of a <i>kohein</i> — </b>of a voluntary offering —
 
 ### passuk 16
 <b>shall be completely [burnt]. Completely,</b> all of it <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>equally, to the Most High. 
@@ -73,8 +73,8 @@
 ### passuk 18
 
 ### passuk 19
-<b>[The Kohen] who offers it as a sin-offering,</b> the one who performs its service, through which it is made into a sin-offering. 
-<b>[The Kohen] who offers it as a sin-offering shall eat it.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>One fit [to perform] the Temple service — excluding one who was [ritually] unclean at the time of sprinkling the blood, who does not share in the meat. It is impossible to say that [this verse] forbids other <i>kohanim</i> from eating it, aside from the one who sprinkles its blood, for it is said below, “Every male among the <i>kohanim</i> shall eat it.” 
+<b>[The kohein] who offers it as a sin-offering,</b> the one who performs its service, through which it is made into a sin-offering. 
+<b>[The kohein] who offers it as a sin-offering shall eat it.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>One fit [to perform] the Temple service — excluding one who was [ritually] unclean at the time of sprinkling the blood, who does not share in the meat. It is impossible to say that [this verse] forbids other <i>kohanim</i> from eating it, aside from the one who sprinkles its blood, for it is said below, “Every male among the <i>kohanim</i> shall eat it.” 
 
 ### passuk 20
 <b>Whatever shall touch its flesh,</b> every foodstuff <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>which touches and absorbs from it, 

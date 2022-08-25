@@ -41,7 +41,7 @@
 <b>Then both you.</b> You will live to a ripe old age, both you and the king.
 
 ### passuk 15
-<b>Then Hachem's hand will be against you and against your forefathers.</b> Meaning it will be against you after it was against your fathers. Our Rabbis however said, "against you and against your fathers" refers to the digging up of the dead, which is a disgrace upon the dead.<sup>9</sup><i class="footnote"> Maseches Yevamos 63b. When people sin, the past generations are also punished by having their grave sites disturbed.—Radak</i>
+<b>Then Adonoy's hand will be against you and against your forefathers.</b> Meaning it will be against you after it was against your fathers. Our Rabbis however said, "against you and against your fathers" refers to the digging up of the dead, which is a disgrace upon the dead.<sup>9</sup><i class="footnote"> Maseches Yevamos 63b. When people sin, the past generations are also punished by having their grave sites disturbed.—Radak</i>
 
 ### passuk 16
 <b>Stand up and see…</b> And just as through my prayer, I am able to change the seasons, similarly, if a war befell you, my prayer would have the power to protect you against the enemy, and you had no need to ask for a king during my lifetime,<sup>10</sup><i class="footnote"> Shmuel demonstrated to the nation how unnecessary their request for a king was. Just as ‘<span>ה</span> responded immediately to Shmuel’s prayers for rain, so too would ‘<span>ה</span> answer his prayers to save the Bnei Yisroel from their enemies.</i> even though I am old.
@@ -60,7 +60,7 @@
 
 ### passuk 22
 <b>For the sake of His great Name.</b> For His fame has spread because of you, that He is your savior, and lest the fame of His greatness be lessened.<sup>12</sup><i class="footnote"> This verse indicates that ‘<span>ה</span> will not abandon the Bnei Yisroel because of the lack of their own merits, in order to uphold His own Name.—Radak</i>
-<b>Hachem has sworn.</b><span>הוֹאִיל</span> meaning he swore, as in, "And Shaul made the people swear <span>]</span><span>וַיֹאֶל</span><span>[</span>."<sup>13</sup><i class="footnote"> Below 14:24.</i>
+<b>Adonoy has sworn.</b><span>הוֹאִיל</span> meaning he swore, as in, "And Shaul made the people swear <span>]</span><span>וַיֹאֶל</span><span>[</span>."<sup>13</sup><i class="footnote"> Below 14:24.</i>
 
 ### passuk 23
 <b>And as for me, far be it from me.</b> Since you will do your part by returning to '<span>ה</span>, I also, far be it from me to stop praying on your behalf.<sup>14</sup><i class="footnote"> From this verse, the Gemara in Maseches Berachos 12b, derives, that if a person knows that his prayers will be answered if he prays for mercy for his fellow but refrains from doing so, he is considered to have sinned.</i>

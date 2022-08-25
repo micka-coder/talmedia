@@ -1,14 +1,14 @@
 
 ### passuk 1
-<b>Yaakov saw that food was being sold in Egypt.</b> But, how did he see it? Certainly he did not see it, but only heard it, as is written: “Behold, I have heard, etc.” Then, why does it say: “He saw”? He saw a holy indistinct vision that his hope [שֶׁבֶר] is in Egypt. This was not an actual prophecy to explicitly tell him that this was Yossef. 
-<b>Why would you have everyone gazing at you?</b> “Why do you show yourselves before the Yishmaelites and Children of Essav as though you are satiated?” For at that time they still had grain. To me it seems that the plain meaning of לָמָה תִּתְרָאוּ is: “Why would you have everyone gazing at you and wondering why you do not seek food for yourselves before what you have is totally consumed?” I have heard from others that it [תִּתְרָאוּ] is a term for leanness; [i.e.,] “Why should you become lean through hunger?” This is similar to: “He who satisfies others shall himself be satisfied.” 
+<b>Yaakov saw that food was being sold in Egypt.</b> But, how did he see it? Certainly he did not see it, but only heard it, as is written: “Behold, I have heard, etc.” Then, why does it say: “He saw”? He saw a holy indistinct vision that his hope [שֶׁבֶר] is in Egypt. This was not an actual prophecy to explicitly tell him that this was Yoseif. 
+<b>Why would you have everyone gazing at you?</b> “Why do you show yourselves before the Yishmaelites and Children of Eisov as though you are satiated?” For at that time they still had grain. To me it seems that the plain meaning of לָמָה תִּתְרָאוּ is: “Why would you have everyone gazing at you and wondering why you do not seek food for yourselves before what you have is totally consumed?” I have heard from others that it [תִּתְרָאוּ] is a term for leanness; [i.e.,] “Why should you become lean through hunger?” This is similar to: “He who satisfies others shall himself be satisfied.” 
 
 ### passuk 2
 <b>Go down there.</b> He did not say לְכוּ —go! [but, rather, רְדוּ]. This alludes to the 210 years that they were subjugated to Egypt corresponding to the numerical value of רְדוּ . 
 
 ### passuk 3
-<b>Yossef’s brothers went down.</b> It does not refer to them as Yaakov’s sons. This teaches us that they regretted selling him and they made up their minds to conduct themselves in a brotherly manner with him, and to ransom him for any amount of money which might be demanded of them. 
-<b>Ten.</b> Why need this be written? It is not written: “But Binyamin, Yossef’s brother, Yaakov did not send”? But, [the answer is that] concerning their brotherliness, they were ten separate [individuals] because neither was their love for him nor their hatred for him equal. But, when it came to the buying of grain they all were of one heart [and mind]. 
+<b>Yoseif’s brothers went down.</b> It does not refer to them as Yaakov’s sons. This teaches us that they regretted selling him and they made up their minds to conduct themselves in a brotherly manner with him, and to ransom him for any amount of money which might be demanded of them. 
+<b>Ten.</b> Why need this be written? It is not written: “But Binyamin, Yoseif’s brother, Yaakov did not send”? But, [the answer is that] concerning their brotherliness, they were ten separate [individuals] because neither was their love for him nor their hatred for him equal. But, when it came to the buying of grain they all were of one heart [and mind]. 
 
 ### passuk 4
 <b>Misfortune might befall him.</b> Could misfortune not befall him at home? R. Eliezer ben Yaakov said: We learn from this that the Satan accuses [attempts to harm] during a time of danger. 
@@ -23,8 +23,8 @@
 <b>But he acted like a stranger to them.</b> He acted as a נָכְרִי [stranger] to them in his conversation by speaking harshly.
 
 ### passuk 8
-<b>Yossef recognized, etc.</b> For he left them as bearded men. 
-<b>But they did not recognize him.</b> For he departed from them beardless and now they found him fully bearded. The Midrashic explanation is: “Yossef recognized his brothers” [means that] when they were in his power he recognized the fact that they were his brothers and took pity on them. “But, they did not recognize him” when he fell into their hands to act toward him with brotherliness. 
+<b>Yoseif recognized, etc.</b> For he left them as bearded men. 
+<b>But they did not recognize him.</b> For he departed from them beardless and now they found him fully bearded. The Midrashic explanation is: “Yoseif recognized his brothers” [means that] when they were in his power he recognized the fact that they were his brothers and took pity on them. “But, they did not recognize him” when he fell into their hands to act toward him with brotherliness. 
 
 ### passuk 9
 <b>That he had dreamt about them.</b> [לָהֶם here has the meaning of] עֲלֵיהֶם —about them. He now knew that they [the dreams] were fulfilled for they had bowed down to him.
@@ -34,7 +34,7 @@
 <b>No my master.</b> Do not say this, rather “Your servants have come to buy food.” 
 
 ### passuk 11
-<b>We are all the sons of one man.</b> There was a spark of the Holy Spirit in them, and they included him [Yossef] with them, for he, too, was son of their father. 
+<b>We are all the sons of one man.</b> There was a spark of the Holy Spirit in them, and they included him [Yoseif] with them, for he, too, was son of their father. 
 <b>Honest.</b> [Meaning:] truthful, as in: “You have spoken truthfully,” [or] “The daughters of Tzelofchad speak rightly,” [or] “His anger is untruthful arrogance.” 
 
 ### passuk 12
@@ -74,14 +74,14 @@
 <b>And now his blood.</b> The words אֶת and גַם indicate additional inclusions—[not only] his blood, but the blood of the old father as well. 
 
 ### passuk 23
-<b>They did not know that Yossef listened [understood].</b> [I.e.,] that he understood their language and in his presence they spoke thus. 
-<b>Because there was an interpreter between them.</b> For when they spoke with him the interpreter was between them, who knew Hebrew and Egyptian, and he would interpret their words to Yossef and Yossef’s words to them. They, therefore, thought that Yossef did not understand Hebrew. 
+<b>They did not know that Yoseif listened [understood].</b> [I.e.,] that he understood their language and in his presence they spoke thus. 
+<b>Because there was an interpreter between them.</b> For when they spoke with him the interpreter was between them, who knew Hebrew and Egyptian, and he would interpret their words to Yoseif and Yoseif’s words to them. They, therefore, thought that Yoseif did not understand Hebrew. 
 <b>The Interpreter.</b> This refers to his son Menasheh.
 
 ### passuk 24
 <b>He turned away from them.</b> He moved some distance away from them so that they should not see him crying.
 <b>And cried.</b> Because he heard that they had regrets.
-<b>Shimon.</b> He was the one that threw him into the pit; he was the one who said to Levi, “Here comes the dreamer.” Another explanation [as to why Shimon was selected:] Yossef intended to separate him from Levi, lest the two of them conspire to kill him. 
+<b>Shimon.</b> He was the one that threw him into the pit; he was the one who said to Leivi, “Here comes the dreamer.” Another explanation [as to why Shimon was selected:] Yoseif intended to separate him from Leivi, lest the two of them conspire to kill him. 
 <b>And had him bound before their eyes.</b> He bound him only while he was seen by them. Once they departed he freed him and gave him food and drink.
 
 ### passuk 25
@@ -89,7 +89,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>The one opened.</b> This was Levi [who is referred to as הָאֶחָד] because he was left alone [יָחִיד] without his companion, Shimon. 
+<b>The one opened.</b> This was Leivi [who is referred to as הָאֶחָד] because he was left alone [יָחִיד] without his companion, Shimon. 
 <b>Where they stayed overnight</b> [בַּמָלוֹן actually means:] at the place they stayed overnight.
 <b>His bag.</b> It is the sack.
 
@@ -114,13 +114,13 @@
 <b>Bundle of money.</b> [צְרוֹר כַּסְפּוֹ means:] his bundle of money.
 
 ### passuk 36
-<b>You have deprived me of children.</b> This teaches that he suspected them of killing him [Shimon] or selling him, as they did to Yossef. 
+<b>You have deprived me of children.</b> This teaches that he suspected them of killing him [Shimon] or selling him, as they did to Yoseif. 
 <b>You have deprived me of children.</b> One whose children have been lost is called שַׁכּוּל . 
 
 ### passuk 37
 
 ### passuk 38
-<b>My son will not go down with you.</b> He did not accept Reouven’s offer. He said, “This firstborn is a fool. He offers to kill his sons. Are they his sons only and not my sons?” 
+<b>My son will not go down with you.</b> He did not accept Reuvein’s offer. He said, “This firstborn is a fool. He offers to kill his sons. Are they his sons only and not my sons?” 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

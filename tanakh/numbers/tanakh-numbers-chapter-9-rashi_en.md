@@ -10,7 +10,7 @@
 <b>And according to all its laws.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>These are commandments having a bearing on the animal but originate from another place (i.e., outside the animal) For example, the seven days of eating <i>matzoh</i> and of eliminating <i>chometz</i>. ([An alternate text:] The commandments pertaining to its body — a lamb; unblemished; male; a yearling. Having a bearing on the animal; roasted over fire, its head with its knees and its inner organs. Outside its body — <i>matzoh</i> and eliminating <i>chometz.</i>) 
 
 ### passuk 4
-<b>Moshe spoke, etc.</b> What does the Torah teach? Does it not say, “Moshe spoke <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>of God’s holidays”? Evidently, when he heard the <i>parasha</i> of the holidays at Sinai, he told it to them, and then he reviewed it and exhorted them at the time it was to be performed. 
+<b>Moshe spoke, etc.</b> What does the Torah teach? Does it not say, “Moshe spoke <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>of God’s holidays”? Evidently, when he heard the <i>parshah</i> of the holidays at Sinai, he told it to them, and then he reviewed it and exhorted them at the time it was to be performed. 
 
 ### passuk 5
 
@@ -38,7 +38,7 @@
 
 ### passuk 15
 <b>The Mishkon [which served] as the Tent of Testimony.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>The <i>Mishkon</i> which was made to be a tent for the tablets of testimony.
-<b>There was over the <i>Mishkon.</i></b> Similar to, “would constantly be” over the <i>Mishkon.</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Similarly, all the usages in the <i>parasha.</i> 
+<b>There was over the <i>Mishkon.</i></b> Similar to, “would constantly be” over the <i>Mishkon.</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Similarly, all the usages in the <i>parshah.</i> 
 
 ### passuk 16
 
@@ -46,8 +46,8 @@
 <b>The Cloud was lifted.</b> As Targum [Onkelos] renders, אִסְתַּלָּקוּת, (“was lifted”). Similarly, “the Cloud <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>was lifted.” But it would be improper to write “According to when the Cloud rose,” “the Cloud rose,” because the connotation is not rising, but flowering and ascending, as in, “behold, a tiny cloud, like a man’s palm, rises from the sea.” 
 
 ### passuk 18
-<b>On the word of Hachem did they travel.</b> We learned in [the Beraysa describing] the work of the <i>Mishkon</i>; When the Israelites were departing the Cloud column would fold, and extend over the tribe of Yehudah like a type of beam. They sounded the <i>tekiah, teruah,</i> and <i>tekiah. But it did not proceed until Moshe intoned, “Rise, Hachem . . .” Then the banner of the camp of Yehudah departed. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This is in Sifri. </i>
-<b>On the word of Hachem did they camp.</b> When the Israelites were camping, the Cloud column would mushroom upward and extend over the tribe of Yehudah like a type of protective covering. It did not separate until Moshe said, “Come to rest, Hachem, among the myriads and thousands of Israel.” Thus you say, “on the order of Hachem, through Moshe.” 
+<b>On the word of Adonoy did they travel.</b> We learned in [the Beraysa describing] the work of the <i>Mishkon</i>; When the Israelites were departing the Cloud column would fold, and extend over the tribe of Yehudah like a type of beam. They sounded the <i>tekiah, teruah,</i> and <i>tekiah. But it did not proceed until Moshe intoned, “Rise, Adonoy . . .” Then the banner of the camp of Yehudah departed. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This is in Sifri. </i>
+<b>On the word of Adonoy did they camp.</b> When the Israelites were camping, the Cloud column would mushroom upward and extend over the tribe of Yehudah like a type of protective covering. It did not separate until Moshe said, “Come to rest, Adonoy, among the myriads and thousands of Israel.” Thus you say, “on the order of Adonoy, through Moshe.” 
 
 ### passuk 19
 

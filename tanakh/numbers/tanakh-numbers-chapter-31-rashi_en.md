@@ -9,7 +9,7 @@
 <b>Moshe spoke, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Although he heard that his demise depended on the matter, he joyfully implemented it, without delay. 
 <b>Arm.</b> As Targum [Onkelos] renders, meaning the same as חֲלוּצֵי צָבָא, “armed.” 
 <b>Men.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Righteous men. Similarly, “choose men for us,” and, “men who are wise and renowned.” 
-<b>Revenge of Hachem.</b> For, when anyone stands against Yisroel, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>it is as if he stands against the Holy One, Blessed is He. 
+<b>Revenge of Adonoy.</b> For, when anyone stands against Yisroel, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>it is as if he stands against the Holy One, Blessed is He. 
 
 ### passuk 4
 <b>For all of the tribes of Yisroel.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This includes the tribe of Levi.
@@ -18,7 +18,7 @@
 <b>They were handed over.</b> This informs you of the praiseworthiness of the shepherds of Yisroel, of how cherished they are by Yisroel. Before they heard about his death, what did he say? “a while more and they will stone me”! Yet, when they heard that the death of Moshe depended on the vengeance against Midian, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>they refused to go until they were handed over, against their wishes. 
 
 ### passuk 6
-<b>Them, and Pinchas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that Pinchas was equivalent to all of them. But <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>why did Pinchas go, while Elozor did not? The Holy One, Blessed is He, said, “The one who began the <i>mitzvah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>by executing Kozbi, the daughter of Tzur, should complete it.” Another interpretation: He sought to avenge Yossef, his maternal forefather, as it is said, “the Midianites sold him. . .” How is it derived that the mother of Pinchas was [descended] from Yossef? Since it is said, “of the daughters of Putiel (פּוּטִיאֵל).” Of the children of Yisro, who fattened (פִּיטֵם) calves for idol worship, and of the children of Yossef, who scorned (פִּטְפֵּט) his evil inclination. Another interpretation: He was annointed for warfare. 
+<b>Them, and Pinchas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This teaches that Pinchas was equivalent to all of them. But <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>why did Pinchas go, while Elozor did not? The Holy One, Blessed is He, said, “The one who began the <i>mitzvah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>by executing Kozbi, the daughter of Tzur, should complete it.” Another interpretation: He sought to avenge Yoseif, his maternal forefather, as it is said, “the Midianites sold him. . .” How is it derived that the mother of Pinchas was [descended] from Yoseif? Since it is said, “of the daughters of Putiel (פּוּטִיאֵל).” Of the children of Yisro, who fattened (פִּיטֵם) calves for idol worship, and of the children of Yoseif, who scorned (פִּטְפֵּט) his evil inclination. Another interpretation: He was annointed for warfare. 
 <b>With the sacred vessels.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This refers to the Ark and the Golden Headplate. Because Bil’am accompanied them, and caused the Midianite kings to fly through sorcery, he himself flying with them, he [Pinchas] displayed the Golden Headplate to them, in which the Divine Name was engraved, and they fell. This is why it is said, “. . .on those they had slain,” concerning the Midianite kings — they fell from the air on the slain ones. Similarly, concerning Bil’am, it is written, “. . .upon those they had slain” in the book of Yehoshua. 
 <b>In his hand.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>In his possession. Similarly, “he took his entire country מִיָדוֹ, from his possession.” 
 
@@ -42,7 +42,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Moshe and Elozor the Kohen went out.</b> Because they saw the Israelite youths going out to seize some of the plunder.
+<b>Moshe and Elozor the kohein went out.</b> Because they saw the Israelite youths going out to seize some of the plunder.
 
 ### passuk 14
 <b>Moshe was angry with the commanders of the army.</b> Who were appointed over the army. This teaches that the entire corruption of the generation is attributed to the great men, since they have the power to rebuke. 
@@ -69,8 +69,8 @@
 <b>Everything made of goat products.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>This includes utensils made from the horns, hoofs, and bones. 
 
 ### passuk 21
-<b>Elozor the <i>Kohen</i> said, etc.</b> Because Moshe fell into a state of anger, he fell into a state of error, so concealed from him, were the laws concerning purging the utensils of gentiles. You find a similarity on the eighth day of inauguration, as it is said, “he was angry with Elozor and with Isamar”— he fell into a state of anger, [and] he fell into a state or error. Similarly with “listen, now, rebels”! “he struck the rock.” Because of anger, he erred. 
-<b>Which Hachem commanded, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He credited the teaching to his master. 
+<b>Elozor the <i>kohein</i> said, etc.</b> Because Moshe fell into a state of anger, he fell into a state of error, so concealed from him, were the laws concerning purging the utensils of gentiles. You find a similarity on the eighth day of inauguration, as it is said, “he was angry with Elozor and with Isamar”— he fell into a state of anger, [and] he fell into a state or error. Similarly with “listen, now, rebels”! “he struck the rock.” Because of anger, he erred. 
+<b>Which Adonoy commanded, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>He credited the teaching to his master. 
 
 ### passuk 22
 <b>Only the gold, etc.</b> Although Moshe did not warn you except for the laws of ritual uncleanliness, you must be warned further, concerning the laws of purging. “Only” denotes exclusion, as if to say, ‘you are excluded from using the utensils, even after their purification from contamination by the dead, until they are purified from the absorption of forbidden “<i>neveilah</i>” meat.’ Our Rabbis remark that “only the gold, etc.” teaches that one must remove its rust before purging it. This is the connotation of the word “only” — there should be no rust there, only the metal, exactly as it is. 

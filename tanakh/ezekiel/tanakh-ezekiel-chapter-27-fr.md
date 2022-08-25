@@ -24,7 +24,7 @@ Le lin d’Égypte, orné de broderies, formait ta voilure et te servait de pavi
 Les habitants de Sidon et d’Arvad devenaient tes rameurs; les plus habiles de chez toi; ô Tyr, étaient tes pilotes.
 
 ### passuk 9
-Les anciens de Gebal et ses gens experts, tu les employais à réparer tes avaries; tous les vaisseaux de la mer et leurs matelots se rencontraient chez toi pour faire marcher ton commerce.
+Les anciens de Gebal et ses gens experts, tu les employais à réparer tes avaries; tous les récipientx de la mer et leurs matelots se rencontraient chez toi pour faire marcher ton commerce.
 
 ### passuk 10
 Le Perse, le Lydien, le Poutien entraient dans ton armée, étaient tes gens de guerre, ils suspendaient chez toi bouclier et casque et assuraient ta gloire.
@@ -72,7 +72,7 @@ Haran, Canné et Eden, les marchands de Cheba, Assur, Kilmad étaient tes client
 Ils étaient tes marchands pour les objets de parure, les manteaux d’azur et de broderie, et pour les trésors de joyaux précieux avec des cordons serrés et des coffres pour tes marchandises.
 
 ### passuk 25
-Les vaisseaux de Tarsis étaient à ton service pour ton commerce: tu as été comblée et toute surchargée au cœur des mers.
+Les récipientx de Tarsis étaient à ton service pour ton commerce: tu as été comblée et toute surchargée au cœur des mers.
 
 ### passuk 26
 Dans la haute mer ils t’ont amenée, les rameurs qui te dirigeaient: le vent d’est t’a fracassée au sein des mers.
@@ -84,7 +84,7 @@ Tes biens et tes marchandises, tes denrées, tes matelots et tes pilotes, tes ca
 Au bruit des clameurs de tes pilotes, les espaces tressailleront.
 
 ### passuk 29
-Tous ceux qui manient la rame descendront de leurs vaisseaux, les matelots, tous les pilotes de la mer se tiendront debout sur la terre ferme.
+Tous ceux qui manient la rame descendront de leurs récipientx, les matelots, tous les pilotes de la mer se tiendront debout sur la terre ferme.
 
 ### passuk 30
 Ils feront retentir leurs cris à ton sujet et s’exclameront douloureusement, ils se mettront de la poussière sur la tête, se rouleront dans la cendre.

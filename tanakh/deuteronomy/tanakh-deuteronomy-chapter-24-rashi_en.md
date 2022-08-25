@@ -14,7 +14,7 @@
 ### passuk 5
 <b>A new wife.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>One that is new to him, even if she is a widow. This excludes someone who remarries his divorced wife. 
 <b>It shall not impose itself over him.</b> The military command.
-<b>In any matter.</b> Which is needed by the army — not to supply water and food, or to repair the roads. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>However, those who return from the combat formations by declaration of the <i>Kohen</i> — for example, one who built a home but did not inaugurate it, or betrothed a woman but did not marry her — supply water and food, and repair the roads. 
+<b>In any matter.</b> Which is needed by the army — not to supply water and food, or to repair the roads. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>However, those who return from the combat formations by declaration of the <i>kohein</i> — for example, one who built a home but did not inaugurate it, or betrothed a woman but did not marry her — supply water and food, and repair the roads. 
 <b>He shall be . . . for his home.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Even for the sake of his home. If he built a home and inaugurated it, or planted a vineyard and redeemed it, he need not budge from his home for the war effort. 
 <b>For his home.</b> This refers to his [inaugurated] home.
 <b>He shall be.</b> This adds his [redeemed] vineyard.
@@ -34,7 +34,7 @@
 <b>In accordance with everything that . . . shall instruct you.</b> Whether to place in confinement, condemn, or purify. 
 
 ### passuk 9
-<b>Remember what the Hachem, your God, did to Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If you intend to take precautions to avoid suffering <i>tzora’as,</i> do not engage in slander. Remember what was done to Miriam, who spoke about her brother, and was afflicted with leprous ulcers. 
+<b>Remember what the Adonoy, your God, did to Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>If you intend to take precautions to avoid suffering <i>tzora’as,</i> do not engage in slander. Remember what was done to Miriam, who spoke about her brother, and was afflicted with leprous ulcers. 
 
 ### passuk 10
 <b>If you become your fellow’s creditor.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>You obligate your fellow.

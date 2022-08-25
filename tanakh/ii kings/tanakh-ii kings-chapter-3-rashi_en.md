@@ -32,7 +32,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Do not [say that], for Hachem has called, etc.</b> [Targum Yonoson renders,] “Please [אל]<sup>10</sup><i class="footnote">Alternatively, Gא means “do not,” i.e., “do not tell us these things now, etc.”—Radak</i> do not mention the sins of that wicked woman. Beg mercy for us, for Hachem has summoned, etc.”
+<b>Do not [say that], for Adonoy has called, etc.</b> [Targum Yonoson renders,] “Please [אל]<sup>10</sup><i class="footnote">Alternatively, Gא means “do not,” i.e., “do not tell us these things now, etc.”—Radak</i> do not mention the sins of that wicked woman. Beg mercy for us, for Adonoy has summoned, etc.”
 
 ### passuk 14
 

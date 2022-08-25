@@ -13,7 +13,7 @@
 
 ### passuk 6
 <b>Et le roi lui accorda</b> [i.e., le roi] Darius.
-<b>selon l'ordre du Seigneur son Dieu sur lui</b> comme le Saint, béni soit-il, le lui avait ordonné. Ce verset est transposé [son sens étant] : et le roi lui accorda toute sa demande, selon l'ordre du Seigneur sur lui. Et nos sages ont dit (Meg. 15a) qu'Esdras et Malachie étaient une seule et même personne.
+<b>selon l'ordre du Seigneur son Dieu sur lui</b> comme le Saint, béni soit-il, le lui avait ordonné. Ce verset est transposé [son sens étant] : et le roi lui accorda toute sa demande, selon l'ordre du Seigneur sur lui. Et nos rabbins ont dit (Meg. 15a) qu'Esdras et Malachie étaient une seule et même personne.
 
 ### passuk 7
 <b>Dans la septième année</b> C'est-à-dire un an après l'achèvement du Temple.
@@ -27,10 +27,10 @@
 <b>Selon la...main de son Dieu</b> comme la main du Saint, béni soit-Il, l'a fait réussir, car Sa main était bonne sur lui pour le faire réussir dans sa voie.
 
 ### passuk 10
-<b>Pour Esdras...</b> Par conséquent, il est allé et a prospéré dans sa voie, parce qu'Esdras a préparé son cur, etc. Il donne une raison à ses paroles .
+<b>Pour Esdras...</b> Par conséquent, il est allé et a prospéré dans sa voie, parce qu'Esdras a préparé son cœur, etc. Il donne une raison à ses paroles .
 
 ### passuk 11
-<b>Et voici l'interprétation de l'écrit</b> Heb.  פַתְשֶּׁגֶן הַכְּתָב'.
+<b>Et voici l'interprétation de l'écrit</b> Heb. פַתְשֶּׁגֶן הַכְּתָב.
 <b>et ses statuts à Israël</b> et ses statuts qu'il a ordonné à Israël de garder.
 
 ### passuk 12
@@ -38,7 +38,7 @@
 <b>Qui a maîtrisé... et Ke'eneth</b> Il l'a maîtrisé dans sa main.
 
 ### passuk 13
-<b>Un ordre émane de moi</b> L'autorisation émane de moi pour que quiconque d'Israël, des prêtres ou des lévites, dont le cœur le pousse à aller à Jérusalem, puisse aller avec vous.
+<b>Un ordre émane de moi</b> L'autorisation émane de moi pour que quiconque d'Israël, des prêtres ou des lévites, dont le cœur l'incite à aller à Jérusalem, puisse aller avec vous.
 
 ### passuk 14
 <b>À cause de cela</b> À cause de cela, vous êtes envoyés par le roi et ses sept conseillers qui ont vu le visage du roi.
@@ -64,30 +64,30 @@
 <b>Et le reste des nécessités</b> et le reste des nécessités dont vous aurez besoin pour l'achat de la Maison du Saint, béni soit-Il, pour lesquelles vous devrez donner l'argent ; vous donnerez du trésor royal.
 
 ### passuk 21
-<b>Et de ma part</b> Et de ma part, moi, le roi Darius, est émis un ordre et une autorisation à tous les trésoriers qui sont de l'autre côté du fleuve du côté d'Israël, qui reçoivent mes impôts des nations, que tout ce que le prêtre Esdras, l'érudit de la Loi du Saint, béni soit-il, vous demande, soit exécuté rapidement. Ils ne devront pas retarder sa demande jusqu'à cent talents d'argent, avec lesquels on achètera des sacrifices, et cent kors de blé pour les offrandes, et jusqu'à cent mesures de vin pour les libations, et cent mesures d'huile pour mélanger les offrandes, et du sel pour les sacrifices, selon ce qui est indiqué (Lév. 2:13) : "Toutes les offrandes seront salées avec du sel."
+<b>Et de ma part</b> Et de ma part, moi, roi Darius, est émis un ordre et une autorisation à tous les trésoriers qui sont de l'autre côté du fleuve du côté d'Israël, qui reçoivent mes impôts des nations, que tout ce que le prêtre Esdras, l'érudit de la Loi du Saint, béni soit-il, vous demande, soit exécuté rapidement. Ils ne devront pas tarder à demander jusqu'à cent talents d'argent pour acheter des sacrifices, et cent kors de blé pour les offrandes, et jusqu'à cent mesures de vin pour les libations, et cent mesures d'huile pour mélanger les offrandes, et du sel pour les sacrifices, selon ce qui est dit (Lév. 2:13) : "Et vous salerez chaque offrande avec du sel".
 
 ### passuk 22
 <b>Ce qui n'est pas écrit</b> Et le sel, au sujet duquel aucune mesure n'est écrite, ils donneront selon la quantité nécessaire.
 
 ### passuk 23
 <b>Tout ce qui est avec l'autorisation</b> Tout ce qui est avec l'autorisation du Saint, béni soit-il, et son commandement, sera fait avec empressement, avec le sceau du roi pour la Maison du Saint, béni soit-il.
-<b>avec un sceau</b> Aram.  אַדְרַזְדָּא, sceau en arabe.
+<b>avec un sceau</b> Aram. אַדְרַזְדָּא, sceau en arabe.
 <b>Pourquoi y aurait-il</b> Car pourquoi y aurait-il de la colère contre le royaume du roi et de ses fils ? C'est pourquoi les trésoriers pourvoient à tous les besoins de la Maison.
 
 ### passuk 24
 <b>Et nous vous faisons connaître</b> Et nous vous faisons connaître que [sur] tous les prêtres, les lévites, les musiciens, les portiers et les Néthinites, qui sont coupeurs de bois et puiseurs d'eau pour l'autel, et ceux qui servent dans cette Maison du Saint, aucun homme n'aura le pouvoir sur eux de lever sur eux un tribut ou un impôt de capitation, mais ils seront libres du service du roi.
 
 ### passuk 25
-<b>Et toi, Esdras, selon la sagesse de ton Dieu, qui est dans ta main</b> et toi, Esdras, selon la sagesse de ton Dieu, qui est dans ta main [et qui est] plus grande que celle des juges et des magistrats qui jugent tout le peuple au-delà du fleuve du côté d'Israël, le peuple connaisseur de la Torah.
+<b>Et toi, Esdras, selon la sagesse de ton Dieu, qui est dans ta main</b> et toi, Esdras, selon la sagesse de ton Dieu, qui est dans ta main [et qui est] plus grande que celle des juges et des magistrats qui jugent tout le peuple au-delà du fleuve du côté d'Israël, le peuple connaissant la Torah.
 <b>Et celui qui ne sait pas</b> et le juge qui ne sait pas juger, informe-le du jugement afin qu'il l'exécute.
 
 ### passuk 26
 <b>Et celui qui n'accomplit pas</b> et celui qui n'accomplit pas la loi du Saint, béni soit-il, et la loi du roi promptement, à savoir qu'il retarde la loi et le jugement.
 <b>Jugement</b> Le jugement lui sera infligé, à celui qui fait obstacle à la justice.
 <b>Qu'il soit exécuté</b> [comme traduit,] qu'il soit exécuté.
-<b>déraciné</b> s'il faut le déraciner du monde, lui, sa progéniture et sa famille (לִשְּׁרשִׁי  est desraziner en ancien français, déraciner).
-<b>confiné</b> pour être puni par de l'argent.
-<b>ou torturé</b> ou pour le torturer avec des tortures. Jusqu'à ce que voici l'écrit de la lettre que le roi Darius a donné à Esdras le scribe afin qu'il la transmette à Jérusalem pour la montrer aux prêtres et aux lévites et aux trésoriers du roi, afin qu'ils persistent à accomplir les commandements et à adorer le Seigneur dans le Temple et à garder correctement la Torah.
+<b>Enraciné</b> s'il faut le déraciner du monde, lui, sa progéniture et sa famille (לִשְּׁרשִׁי est desraziner en vieux français, déraciner).
+<b>confiné</b> d'être puni par de l'argent.
+<b>ou torturé</b> ou de le torturer avec des tortures. Jusqu'à ce que voici l'écriture de la lettre que le roi Darius donna à Esdras le scribe afin qu'il la transmette à Jérusalem pour la montrer aux prêtres et aux lévites et aux trésoriers du roi, afin qu'ils persistent à accomplir les commandements et à adorer le Seigneur dans le Temple et à garder correctement la Torah.
 
 ### passuk 27
 <b>Béni soit le Seigneur</b> Esdras a écrit ceci dans son Livre lorsqu'il rendait grâce au Saint, béni soit-Il.

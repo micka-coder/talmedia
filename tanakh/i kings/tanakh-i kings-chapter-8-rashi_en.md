@@ -56,7 +56,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>And Shlomo stood before the Altar of Hachem.</b> [As] it is written, “and Shlomo made a copper basin and had set it in the midst of the court, etc. and upon it he stood, and knelt on his knees.”<sup>15</sup><i class="footnote">Even though a king of Yisroel is allowed to sit in the Beis Hamikdosh [See II Shmuel 7:18], Shlomo chose to stand.</i><sup>16</sup><i class="footnote">II Divrei Hayomim 6:13.</i>
+<b>And Shlomo stood before the Altar of Adonoy.</b> [As] it is written, “and Shlomo made a copper basin and had set it in the midst of the court, etc. and upon it he stood, and knelt on his knees.”<sup>15</sup><i class="footnote">Even though a king of Yisroel is allowed to sit in the Beis Hamikdosh [See II Shmuel 7:18], Shlomo chose to stand.</i><sup>16</sup><i class="footnote">II Divrei Hayomim 6:13.</i>
 
 ### passuk 23
 <b>Preserver of the covenant.</b> He waits and stores away [reward] to keep the covenant and [is based on] mercy, to fulfill His promise.<sup>17</sup><i class="footnote">Which He made with our Patriarchs.—Radak </i>
@@ -82,7 +82,7 @@
 <b>Should a person sin against his fellow man.</b> One who has intimate relations with a married woman.
 <b>And is liable that a curse.</b> Just as the water examines her, so does the water examine him.<sup>19</sup><i class="footnote">Rashi explains אלה as “a curse,” i.e., the waters examines “him” i.e., the husband, as well. In this instance, אלה does not mean “oath”, because the husband of a Sotah is not subject to an oath.</i>
 <b>And is liable.</b> An expression of a creditor.
-<b>And the curse comes before your altar.</b> “And the <i>Kohen</i> shall stand the woman before Hachem.”<sup>20</sup><i class="footnote">Bamidbar 5:18</i>
+<b>And the curse comes before your altar.</b> “And the <i>Kohein</i> shall stand the woman before Adonoy.”<sup>20</sup><i class="footnote">Bamidbar 5:18</i>
 
 ### passuk 32
 <b>To set his [evil] way upon his head.</b> “And her abdomen will swell, etc.”<sup>21</sup><i class="footnote">Ibid. v. 27.</i><sup>22</sup><i class="footnote">Alternatively, if one swears falsely in the Beis Hamikdosh, his punishment should be swift and obvious, so that people recognize the unique level of sanctity of the Beis Hamikdosh, and they would perceive that the Beis Hamikdosh as God’s chosen place.—Radak</i>

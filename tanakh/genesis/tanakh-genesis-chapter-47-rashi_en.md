@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>From among his brothers.</b> From the least strong among them, who do not [even] appear strong, for if he [Pharaoh] would find them strong he might induct them into his military. These [weaker ones] were: Reuvain, Shimon, Levi, Yissachar and Binyomin, those whose names Moshe did not repeat when he blessed them. But, the names of the strong ones he repeated: “And this is for Yehudah—hear, God, the voice of Yehudah.” “And about Gad he said, ‘Blessed be He that extends Gad.’” “And about Naphtali he said, ‘Naphtali.’” “And about Dan he said, ‘Dan.’” And so, too, concerning Zevulun. And so, too, concerning Asher. The above is quoted from Bereishis Rabbah which is the Aggadah of the Land of Israel. But, in our Babylonian Talmud we find that those whose names Moshe repeated were the weak ones and those were the ones he [Yossef] brought before Pharaoh. And the fact that Yehudah’s name is repeated± - it is not repeated due to his being weak—but there is a reason for this as is mentioned in Bava Kamma. In the Berayso of the Sifrei we have the version—in [the portion of] <i>V’zos Haberachah</i>—that is the same as our Talmud [in Bava Kamma.] 
+<b>From among his brothers.</b> From the least strong among them, who do not [even] appear strong, for if he [Pharaoh] would find them strong he might induct them into his military. These [weaker ones] were: Reuvain, Shimon, Leivi, Yissachar and Binyomin, those whose names Moshe did not repeat when he blessed them. But, the names of the strong ones he repeated: “And this is for Yehudah—hear, God, the voice of Yehudah.” “And about Gad he said, ‘Blessed be He that extends Gad.’” “And about Naphtali he said, ‘Naphtali.’” “And about Dan he said, ‘Dan.’” And so, too, concerning Zevulun. And so, too, concerning Asher. The above is quoted from Bereishis Rabbah which is the Aggadah of the Land of Israel. But, in our Babylonian Talmud we find that those whose names Moshe repeated were the weak ones and those were the ones he [Yoseif] brought before Pharaoh. And the fact that Yehudah’s name is repeated± - it is not repeated due to his being weak—but there is a reason for this as is mentioned in Bava Kamma. In the Berayso of the Sifrei we have the version—in [the portion of] <i>V’zos Haberachah</i>—that is the same as our Talmud [in Bava Kamma.] 
 
 ### passuk 3
 
@@ -53,14 +53,14 @@
 <b>Except our bodies.</b> The same as: if not for our bodies.
 
 ### passuk 19
-<b>Give us seed-grain.</b> To sow in the ground. Although Yossef had said, “And for another five years there will be no plowing nor harvest,” [nevertheless,] as soon as Yaakov came to Egypt blessing followed in his wake, and they began to sow and the famine ended. We learned this in the Tosefta of Sotah. 
+<b>Give us seed-grain.</b> To sow in the ground. Although Yoseif had said, “And for another five years there will be no plowing nor harvest,” [nevertheless,] as soon as Yaakov came to Egypt blessing followed in his wake, and they began to sow and the famine ended. We learned this in the Tosefta of Sotah. 
 <b>Not become desolate.</b> לֹא תֵשָׁם means let it not become desolate. [Onkelos translates it] לָא תְבוּר from the term שְׂדֵה בּוּר —a barren field—one which is not plowed.
 
 ### passuk 20
 <b>The land became Pharaoh’s [property].</b> [Meaning:] it had been bought for him.
 
 ### passuk 21
-<b>He transferred the people.</b> Yossef [transferred them] from city to city as a reminder that they no longer had a share in the land, and settled those of one city in another. Scripture had no need to write this, but only to let you know Yossef’s praiseworthiness. For his intent was to remove shame from his brothers, so that the people not call them exiles. 
+<b>He transferred the people.</b> Yoseif [transferred them] from city to city as a reminder that they no longer had a share in the land, and settled those of one city in another. Scripture had no need to write this, but only to let you know Yoseif’s praiseworthiness. For his intent was to remove shame from his brothers, so that the people not call them exiles. 
 <b>From one end of the border of Egypt, etc.</b> He did this to all the cities that were in the kingdom of Egypt, from one end of the border to the other. 
 
 ### passuk 22
@@ -89,8 +89,8 @@
 <b>Yaakov lived.</b> Why is this portion [of the Torah] completely closed? This is because once our father Yaakov died the eyes and hearts of Israel were “closed” because of the hardships of the bondage for they [the Egyptians] began to subjugate them. An alternate explanation: Because he [Yaakov] wished to reveal the End and it was “closed” [concealed] from him. [This appears] in Bereishis Rabbah. 
 
 ### passuk 29
-<b>The days of Yisrael’s death drew near.</b> Everyone of whom it is said that his “days drew near” did not attain the age of his fathers. (Yitzchak lived 180 years and Yaakov 147 years. Concerning Dovid, it states “drew near”; his father lived 400 years whereas he lived 70 years.) 
-<b>And he called for his son Yossef.</b> The one who had it in his power to do.
+<b>The days of Yisrael’s death drew near.</b> Everyone of whom it is said that his “days drew near” did not attain the age of his fathers. (Yitzchok lived 180 years and Yaakov 147 years. Concerning Dovid, it states “drew near”; his father lived 400 years whereas he lived 70 years.) 
+<b>And he called for his son Yoseif.</b> The one who had it in his power to do.
 <b>Place your hand.</b> And take an oath. 
 <b>Kindly and truthfully.</b> Kindness that is done with the dead is considered true kindness for one does not anticipate remuneration.
 <b>Please, do not bury me in Egypt.</b> [Because] its soil will ultimately become lice (which will crawl beneath my body). Also, because the dead [who are buried] outside of Eretz Yisrael will be resurrected only by suffering the pain of rolling through underground tunnels. Also, so that the Egyptians not make a deity of me. From Bereishis Rabbah. 
@@ -100,7 +100,7 @@
 
 ### passuk 31
 <b>Yisrael prostrated himself.</b> When it is the time of the fox, bow to him. 
-<b>At the head of the bed.</b> He turned toward the Divine Presence [the <i>Shechinah</i>]. It is from here that they [the Sages] derived that the <i>Shechinah</i> is above the headrest of a sick person. Another interpretation of עַל רֹאשׁ הַמִּטָּה : for his [conjugal] bed was perfect and none of the offspring was wicked. Witness the fact that Yossef was a king who was also a captive among the heathens, yet, he was steadfast in his righteousness. 
+<b>At the head of the bed.</b> He turned toward the Divine Presence [the <i>Shechinah</i>]. It is from here that they [the Sages] derived that the <i>Shechinah</i> is above the headrest of a sick person. Another interpretation of עַל רֹאשׁ הַמִּטָּה : for his [conjugal] bed was perfect and none of the offspring was wicked. Witness the fact that Yoseif was a king who was also a captive among the heathens, yet, he was steadfast in his righteousness. 
 
 >Credit : primo.nli.org.il (metsudah)
 >License : CC_BY

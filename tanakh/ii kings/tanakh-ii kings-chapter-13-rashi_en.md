@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>And Hachem provided Yisroel with a savior.</b> Yoash son of Yehoachaz, concerning whom it is stated, “You will strike [and defeat] Arom [only] three times.”<sup>1</sup><i class="footnote">Below, v. 19.</i>
+<b>And Adonoy provided Yisroel with a savior.</b> Yoash son of Yehoachaz, concerning whom it is stated, “You will strike [and defeat] Arom [only] three times.”<sup>1</sup><i class="footnote">Below, v. 19.</i>
 
 ### passuk 6
 

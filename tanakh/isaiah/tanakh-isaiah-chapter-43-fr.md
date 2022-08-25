@@ -39,7 +39,7 @@ C’est moi qui ai fait les révélations, opéré le salut, annoncé les évén
 Oui, dès l’origine des jours, je suis le même, personne ne saurait sauver de ma main; mon action, qui peut l’entraver?
 
 ### passuk 14
-Ainsi parle l’Éternel, votre libérateur, le Saint d’Israël: "En votre faveur, j’ai envoyé [un mandataire] à Babylone. Je les ai jetés bas, tous ont recours à la fuite, les Chaldéens gagnent les vaisseaux qu’ils prônaient.
+Ainsi parle l’Éternel, votre libérateur, le Saint d’Israël: "En votre faveur, j’ai envoyé [un mandataire] à Babylone. Je les ai jetés bas, tous ont recours à la fuite, les Chaldéens gagnent les récipientx qu’ils prônaient.
 
 ### passuk 15
 Je suis l’Éternel, votre Saint, le Créateur d’Israël, votre roi.

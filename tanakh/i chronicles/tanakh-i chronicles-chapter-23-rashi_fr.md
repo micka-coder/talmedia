@@ -52,18 +52,18 @@
 ### passuk 26
 
 ### passuk 27
-<b>Les fils des lévites étaient dénombrés à partir de vingt ans et plus</b> Alors David établit ces veilles, afin que lorsque Salomon, son fils, viendrait, elles soient préparées pour lui.
+<b>Les fils des lévites étaient dénombrés à partir de vingt ans et plus</b> Alors David établit ces montres, afin que lorsque Salomon, son fils, viendrait, elles soient préparées pour lui.
 
 ### passuk 28
-<b>Car leur poste était à côté des fils d'Aaron, etc.</b> Cela ressemble à (Num. 18:2) : "... et ils se joindront à toi et te serviront...".
-<b>et sur la pureté de toutes les choses sacrées</b> de sorte que si la Maison et ses vases deviennent impurs, ils seront désignés pour la purifier, car c'est ce que nous trouvons avec Ezéchias, comme il est écrit (ci-dessous II Chron. 29:16) : "Et les lévites acceptèrent de sortir dans la vallée du Cédron en dehors," et il est écrit (ibid. verset 17) : "Et ils commencèrent le premier du premier mois à sanctifier, etc."
+<b>Car leur poste était à côté des fils d'Aaron, etc.</b> Cela ressemble à (Num. 18:2) : "... et ils s'associeront à vous et seront à votre service".
+<b>et sur la pureté de toutes les choses sacrées</b> de sorte que si la Maison et ses vases deviennent impurs, ils seront désignés pour la purifier, car c'est ainsi que nous trouvons avec Ezéchias, comme il est écrit (ci-dessous II Chron. 29:16) : "Et les Lévites acceptèrent de sortir vers la vallée du Cédron à l'extérieur", et il est écrit (ibid. vers 17) : " Et ils commencèrent le premier du premier mois à sanctifier, etc. ".
 
 ### passuk 29
 
 ### passuk 30
 
 ### passuk 31
-<b>Et pour toute offrande d'holocaustes à l'Eternel les sabbats, les nouvelles lunes</b> Le sens est : Ils seront nommés sur les chambres et aussi sur la chambre de la maison des agneaux, où sont gardés les animaux sacrifiés, et ils [les] apporteront aux prêtres constamment chaque jour, selon le nombre requis pour chaque jour, que ce soit les jours de semaine, que ce soit les sabbats, et les Nouvelles Lunes et les fêtes, lorsque des sacrifices supplémentaires sont offerts avec les offrandes quotidiennes - tous ceux-ci ils apporteront en nombre selon l'ordonnance, et ils aideront aussi les prêtres à écorcher le sacrifice. Et c'est ainsi que nous trouvons avec Ezéchias (II Chron. 29:34) : "Seulement les prêtres étaient peu nombreux, et ils ne pouvaient pas écraser tous les holocaustes ; alors leurs frères les lévites les renforàaient, etc.
+<b>Et pour toute offrande d'holocaustes à l'Eternel les sabbats, les nouvelles lunes</b> Le sens est : Ils seront nommés sur les chambres et aussi sur la chambre de la maison des agneaux, où sont gardés les animaux sacrifiés, et ils [les] apporteront aux prêtres constamment chaque jour, selon le nombre requis pour chaque jour, que ce soit les jours de semaine, que ce soit les sabbats, et les Nouvelles Lunes et les fêtes, lorsque des sacrifices supplémentaires sont offerts avec les offrandes quotidiennes - tout cela ils l'apporteront en nombre selon l'ordonnance, et ils aideront aussi les prêtres à écorcher le sacrifice. C'est ce que nous trouvons chez Ézéchias (II Chron. 29:34) : " Seulement les prêtres étaient peu nombreux, et ils ne pouvaient pas écorcher tous les holocaustes ; alors leurs frères les Lévites les renforçaient, etc. ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>License : CC-BY

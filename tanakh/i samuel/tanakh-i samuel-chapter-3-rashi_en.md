@@ -7,17 +7,17 @@
 
 ### passuk 3
 <b>And Shmuel was lying.</b> In his place, in the court of the Levites who watch in the Temple. According to Targum Yonoson: "And Shmuel was lying in the court of the Levites."
-<b>In the Temple of Hachem.</b> Where the Ark of God was.
+<b>In the Temple of Adonoy.</b> Where the Ark of God was.
 
 ### passuk 4
-<b>Hachem called.</b> And a voice emanated from the Temple of God, from the Holy of Holies, which called, "Shmuel!" The end of the above verse<sup>5</sup><i class="footnote">As is indicated by the <span>אֶתְנַחְתָּא</span> under the word <span>שֹׁכֵכ</span> to separate it from ‘<span>בְּהֵיכַל ה</span>.</i> is connected to the verse that follows. This is what is inferred by the verse, "the Lord thunders wonderously with His voice."<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili was a Kohen, and was watching from within, while Shmuel was a Levite and lying without. Yet, the voice [of '<span>ה</span>] jumped over Eili to Shmuel.
+<b>Adonoy called.</b> And a voice emanated from the Temple of God, from the Holy of Holies, which called, "Shmuel!" The end of the above verse<sup>5</sup><i class="footnote">As is indicated by the <span>אֶתְנַחְתָּא</span> under the word <span>שֹׁכֵכ</span> to separate it from ‘<span>בְּהֵיכַל ה</span>.</i> is connected to the verse that follows. This is what is inferred by the verse, "the Lord thunders wonderously with His voice."<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili was a kohein, and was watching from within, while Shmuel was a Levite and lying without. Yet, the voice [of '<span>ה</span>] jumped over Eili to Shmuel.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>[Shmuel] had not yet known Hachem.</b> He had not yet recognized the nature of the prophetic voice.<sup>7</sup><i class="footnote">He was thus unfamiliar with the ways ‘<span>ה</span> calls man, and he therefore thought that the voice was Eili’s.</i> Every time the word '<span>טֶרֶם</span>' appears in Scripture, it means 'not yet,' as rendered by the Targum '<span>עַד לָא</span>' [not yet]. It does not mean 'before.' This verse proves it. And another [proof of this] is the verse <span>כִּי טֶרֶם תִּירְאוּן</span> which is rendered as "that you do not yet fear,"<sup>8</sup><i class="footnote">Shemos 9:30.</i> is a more explicit verse proving this. Also, <span>וְכֹל שִֹיחַ הַשָֹּדֶה טֶרֶם יִהְיֶה בָאָרֶץ</span> ["all plants of the field were not yet on the earth"].<sup>9</sup><i class="footnote">Bereishis 2:5.</i>
+<b>[Shmuel] had not yet known Adonoy.</b> He had not yet recognized the nature of the prophetic voice.<sup>7</sup><i class="footnote">He was thus unfamiliar with the ways ‘<span>ה</span> calls man, and he therefore thought that the voice was Eili’s.</i> Every time the word '<span>טֶרֶם</span>' appears in Scripture, it means 'not yet,' as rendered by the Targum '<span>עַד לָא</span>' [not yet]. It does not mean 'before.' This verse proves it. And another [proof of this] is the verse <span>כִּי טֶרֶם תִּירְאוּן</span> which is rendered as "that you do not yet fear,"<sup>8</sup><i class="footnote">Shemos 9:30.</i> is a more explicit verse proving this. Also, <span>וְכֹל שִֹיחַ הַשָֹּדֶה טֶרֶם יִהְיֶה בָאָרֶץ</span> ["all plants of the field were not yet on the earth"].<sup>9</sup><i class="footnote">Bereishis 2:5.</i>
 
 ### passuk 8
 
@@ -49,14 +49,14 @@
 <b>Such shall [God] do to you.</b> Like that very curse, that you shall not have worthy children. And that curse actually befell him even though he did tell him. <b>And did not withhold.</b> From here [the Sages concluded]: A curse of a wise man, even though pronounced on condition, will be realized.<sup>13</sup><i class="footnote">Maseches Makos 11a.</i>
 
 ### passuk 18
-<b>He is Hachem.</b> He is the Master and everything is His.
+<b>He is Adonoy.</b> He is the Master and everything is His.
 
 ### passuk 19
 
 ### passuk 20
 
 ### passuk 21
-<b>For Hachem revealed Himself to Shmuel.</b> Because Scripture stated above, "The word of Hachem was rare in those days,"<sup>14</sup><i class="footnote">Above 3:1.</i> it states here that from now on, for Shmuel's sake, He revealed Himself repeatedly.<sup>15</sup><i class="footnote">Not only to Shmuel, but others also began to prophesy.</i>
+<b>For Adonoy revealed Himself to Shmuel.</b> Because Scripture stated above, "The word of Adonoy was rare in those days,"<sup>14</sup><i class="footnote">Above 3:1.</i> it states here that from now on, for Shmuel's sake, He revealed Himself repeatedly.<sup>15</sup><i class="footnote">Not only to Shmuel, but others also began to prophesy.</i>
 
 >Credit : sefaris
 >License : CC-BY

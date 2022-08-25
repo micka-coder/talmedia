@@ -1,6 +1,6 @@
 
 ### passuk 1
-Oracle contre Tyr: Lamentez-vous, vaisseaux de Tarchich, car elle est dévastée: plus de maisons, plus de port d’accès! La nouvelle leur en a été annoncée de Kittim.
+Oracle contre Tyr: Lamentez-vous, récipientx de Tarchich, car elle est dévastée: plus de maisons, plus de port d’accès! La nouvelle leur en a été annoncée de Kittim.
 
 ### passuk 2
 Habitants de la côte, soyez muets de stupeur, vous que gorgeaient de richesses les marchands de Sidon, ces hardis navigateurs.
@@ -39,7 +39,7 @@ Il a dit: "Tu ne continueras plus à triompher; opprimée maintenant, mets-toi e
 Voyez ce pays des Chaldéens, ce peuple qui n’était pas jadis, ces nomades du désert qu’Achour a solidement établis: ils ont érigé des tours [contre Tyr], ils en ont démoli les palais et fait d’elle une ruine!
 
 ### passuk 14
-Lamentez-vous, vaisseaux de Tarchich, car votre citadelle est détruite!
+Lamentez-vous, récipientx de Tarchich, car votre citadelle est détruite!
 
 ### passuk 15
 En ce jour, Tyr tombera en oubli pour soixante-dix ans, juste la durée d’un seul règne. Au bout des soixante-dix ans, il adviendra de Tyr ce que dit la chanson de la courtisane:

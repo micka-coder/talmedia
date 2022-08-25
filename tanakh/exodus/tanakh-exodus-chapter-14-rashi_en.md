@@ -31,7 +31,7 @@
 <b>And commanders over all of them.</b> [וְשָלִשִׁים means] army officers, as Onkelos translates it. 
 
 ### passuk 8
-<b>Hachem hardened the heart of Pharaoh.</b> Because he was not sure whether to pursue them, He hardened his heart so that he <i>would</i> pursue. 
+<b>Adonoy hardened the heart of Pharaoh.</b> Because he was not sure whether to pursue them, He hardened his heart so that he <i>would</i> pursue. 
 <b>Highhandedly</b> I.e., with lofty and open might (daring) 
 
 ### passuk 9
@@ -39,7 +39,7 @@
 ### passuk 10
 <b>Pharaoh drew near</b> It should have said וּפַרְעֹה קָרַב (in the קַל conjugation). Why does it say הִקְרִיב — [in the הִפְעִיל form]? He made himself draw near and he exerted himself to be ahead of them (his soldiers) as he had arranged with them.
 <b>Coming after them.</b> With one heart (mind), as one man. An alternate explanation: And behold the Egyptian (sing.) is coming after them: [meaning:] They saw the guardian angel of Egypt coming from the heavens to help the Egyptians. 
-<b>They cried out.</b> They grasped the trait of their forefathers. Regarding Avraham it is written: “To the place where he stood.” Regarding Yitzchak: “To meditate (pray) in the field” Regarding Yaakov: “He reached the place (prayed in the place).”
+<b>They cried out.</b> They grasped the trait of their forefathers. Regarding Avraham it is written: “To the place where he stood.” Regarding Yitzchok: “To meditate (pray) in the field” Regarding Yaakov: “He reached the place (prayed in the place).”
 
 ### passuk 11
 <b>Were there not enough graves in Egypt.</b> [Meaning:] Is it due to a lack of graves, that there are not ( אֵין ) graves in Egypt to be buried there, that you took us from there?” <i>se por feilance de non foses</i> in Old French. 
@@ -52,7 +52,7 @@
 <b>For the Egyptians you have seen [this day].</b> [I.e.,] the fact that you have [now] seen them is only this day. This is the day that you saw them, but you will never again [see them]. 
 
 ### passuk 14
-<b>Hachem will fight for you</b> [לָכֶם means:] for you. Similarly: “For Hachem is fighting <i>for</i> them.” Similarly: “Will you argue <i>for</i> God?” Similarly: “And the one who spoke <i>for</i> me” Similarly: “Will you argue <i>for</i> the Ba’al”
+<b>Adonoy will fight for you</b> [לָכֶם means:] for you. Similarly: “For Adonoy is fighting <i>for</i> them.” Similarly: “Will you argue <i>for</i> God?” Similarly: “And the one who spoke <i>for</i> me” Similarly: “Will you argue <i>for</i> the Ba’al”
 
 ### passuk 15
 <b>Why do you cry to Me?</b> [From this] we learn that Moshe was standing and praying [when] God said to him, “Now is not the time to pray <i>at length,</i> when Yisrael is in trouble.” An alternate explanation: “Why do you cry out? אֵלָי — This thing depends on Me, not on you.” [This is] similar to what is written elsewhere: “Concerning My sons and concerning My handiwork do you need to command Me?!” 
@@ -65,7 +65,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>And went behind them.</b> To separate the Egyptian camp from the Israelite camp and to receive the arrows and the projectiles of the Egyptians. Everywhere else it says: “The angel of Hachem” but here [it states] “The angel of Elokim.” “Elokim” wherever it occurs denotes only “judgment.” This teaches that Israel was placed in judgment at that moment, whether [they were worthy] to be saved or whether to be destroyed with the Egyptians. 
+<b>And went behind them.</b> To separate the Egyptian camp from the Israelite camp and to receive the arrows and the projectiles of the Egyptians. Everywhere else it says: “The angel of Adonoy” but here [it states] “The angel of Elokim.” “Elokim” wherever it occurs denotes only “judgment.” This teaches that Israel was placed in judgment at that moment, whether [they were worthy] to be saved or whether to be destroyed with the Egyptians. 
 <b>The pillar of cloud moved.</b> After it became dark and the pillar of cloud completed its tour over the camp [and gave way] to the pillar of fire, the cloud was not removed as it was usually removed in the evening — completely, but, rather, it continued to move behind them to make it dark for the Egyptians. 
 
 ### passuk 20
@@ -101,7 +101,7 @@ All of Pharaoh’s סוס <b> horse(s).</b> Was there only one horse?! This teac
 <b>Toward morning.</b> At the time that the morning <i>turns</i> to come.
 <b>To its strength.</b> — to its <i>original</i> strength.
 <b>Were fleeing toward it.</b> Because they were confused and in panic, they ran <i>toward</i> the waters. 
-<b>Hachem overturned.</b> As a person who stirs a pot and overturns that which is on top to the bottom and that which is at the bottom to the top, so, too, did they (the Egyptians) go up and down and were broken apart in the sea; and God kept them alive so that they receive the pain [longer]. 
+<b>Adonoy overturned.</b> As a person who stirs a pot and overturns that which is on top to the bottom and that which is at the bottom to the top, so, too, did they (the Egyptians) go up and down and were broken apart in the sea; and God kept them alive so that they receive the pain [longer]. 
 <b>Stirred.</b> [Onkelos translates it:] וְשַׁנֵּיק which is a term meaning <i>to stir</i> in Aramaic. There are many such usages in Midrash Aggadah.
 
 ### passuk 28

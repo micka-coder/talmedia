@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>It came to pass, on the day Moshe finished.</b> The text reads כַּלּוֹת . On the day that the <i>Mishkon</i> was erected, the Israelites were like a כַּלָּה — a bride entering the wedding canopy. 
-<b>Moshe finished.</b> Bezalel, Aholiav, and all the wise — hearted men constructed the <i>Mishkon,</i> yet Scripture credits it to Moshe, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>because he utterly dedicated himself to it, observing the structural design of each object as shown to him on the mountain (Sinai) in order to instruct the artisans, without making a single error in design. We find a similarity with regard to [king] David, because he utterly dedicated himself to the construction of the Beis Ha Mikdash — as it is said: “Remember, Hachem, unto David all his afflictions; how he swore to Hachem . . . etc. it was, therefore, called by his name, as it is said: “Observe your House, David.” 
+<b>Moshe finished.</b> Bezalel, Aholiav, and all the wise — hearted men constructed the <i>Mishkon,</i> yet Scripture credits it to Moshe, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>because he utterly dedicated himself to it, observing the structural design of each object as shown to him on the mountain (Sinai) in order to instruct the artisans, without making a single error in design. We find a similarity with regard to [king] David, because he utterly dedicated himself to the construction of the Beis Ha Mikdash — as it is said: “Remember, Adonoy, unto David all his afflictions; how he swore to Adonoy . . . etc. it was, therefore, called by his name, as it is said: “Observe your House, David.” 
 <b>[On the day] Moshe finished erecting.</b> It does not say, “On the day [Moshe] erected . . .” This teaches that throughout the seven days of installation Moshe erected and dismantled it, and on that day, he erected it without dismantling it. This is why it says, “On the day Moshe finished erecting” — that day his erecting ended. It was the first of the month of Nisan. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>On the second, the [red] cow was burned, on the third, they sprinkled with the first sprinkling, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>and on the seventh, [after having been sprinkled again] they were shaven. 
 
 ### passuk 2
@@ -68,11 +68,11 @@
 
 ### passuk 21
 <b>One [young] bull.</b> Corresponding to Avraham, concerning whom it is said: “He took a young bull.” 
-<b>One ram.</b> Corresponding to Yitzchak, “He took the ram.” 
+<b>One ram.</b> Corresponding to Yitzchok, “He took the ram.” 
 <b>One [yearling] sheep.</b> Corresponding to Yaakov: “Yaakov separated the sheep.”
 
 ### passuk 22
-<b>Goat.</b> To atone for the sale of Yossef, concerning whom it is said: “They slaughtered a goat.” 
+<b>Goat.</b> To atone for the sale of Yoseif, concerning whom it is said: “They slaughtered a goat.” 
 
 ### passuk 23
 <b>For the peace-offering sacrifice, two oxen.</b> Corresponding to Moshe and Aharon, who made peace between the Israelites and their Father in heaven. 

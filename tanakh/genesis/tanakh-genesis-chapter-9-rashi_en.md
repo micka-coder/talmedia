@@ -84,7 +84,7 @@
 <b>Cursed is Canaan.</b> [Noach said to Cham:] “You caused me to be unable to beget a fourth son to serve me. [Therefore,] may <i>your</i> fourth son be cursed that he serve the descendants of these older ones upon whom the burden of serving me has now fallen.” Why did Cham castrate him? He said to his brothers: “Adam <i>horishon</i> had two sons and one killed the other for the purpose of inheriting the world. Our father [already] has three sons and he still desires a fourth son.” 
 
 ### passuk 26
-<b>Blessed is Hachem, God of Sheim.</b> Who will eventually keep His promise to his seed to give to them the Land of Canaan. 
+<b>Blessed is Adonoy, God of Sheim.</b> Who will eventually keep His promise to his seed to give to them the Land of Canaan. 
 <b>May [Canaan be his slave.]</b> [A nation] paying tribute [to them].
 
 ### passuk 27

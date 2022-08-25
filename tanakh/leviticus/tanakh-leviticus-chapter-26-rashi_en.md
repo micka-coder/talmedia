@@ -5,7 +5,7 @@
 <b>Upon which to prostrate oneself,</b> even to Heaven, because [prostration involves] the spreading out of hands and feet, and the Torah forbade doing so outside the Temple. 
 
 ### passuk 2
-<b>I am Hachem,</b> faithful to give reward.
+<b>I am Adonoy,</b> faithful to give reward.
 
 ### passuk 3
 <b>If you follow My statutes.</b> Perhaps [this refers to] the fulfillment of the <i>mitzvos</i>? When [the verse] says: “and keep My commandments and you will fulfill them,” behold, the fulfillment of the <i>mitzvos</i> is mentioned. How do I interpret [the clause]: “If you follow My statutes”? That you should labor in [studying] Torah. 
@@ -49,12 +49,12 @@
 <b>I will walk among you,</b> I will stroll with you in the Garden of Eden as one of you, and you will not be frightened of Me. Perhaps [this means that] you will not fear Me? The verse says: <b>I will be a God for you.</b>
 
 ### passuk 13
-<b>I am Hachem your God.</b> I am worthy that you should believe in Me, that I can do all these [things], for behold, I have taken you out of the land of Egypt, and I performed great miracles for you. 
+<b>I am Adonoy your God.</b> I am worthy that you should believe in Me, that I can do all these [things], for behold, I have taken you out of the land of Egypt, and I performed great miracles for you. 
 <b>Bars [of your yoke].</b> [This is] like a peg at the two ends of the yoke which impede the strap from slipping off the head of the ox, [which would cause] the knot to become untied. Similar to “Make straps and bars for yourself.” <i>Cheville</i> in Old French. 
 <b>Standing upright,</b> [with] upright stature. 
 
 ### passuk 14
-<b>And if you will not listen to Me</b> to labor [in the study of] Torah, to know the expositions of the Sages. Perhaps [this refers to] the performance of the <i>mitzvos</i>? When [the verse] says: <b>and you will not fulfill etc.,</b> behold, the performance of the <i>mitzvos</i> is mentioned, how then do I interpret “and if you will not listen to Me”? To labor [in the study of] Torah. And why does the verse say “to Me”? the word לִי [in this chapter of punishments] refers to [the sins of] one who acknowledges his Master and intentionally rebels against Him, and so regarding Nimrod, “He was a mighty hunter before Hachem,” he acknowledged Him and intentionally rebelled against Him, and so regarding the people of Sedom, [“The people of Sedom were] wicked and sinful towards Hachem, exceedingly,” they acknowledged their Master and intentionally rebelled against Him. 
+<b>And if you will not listen to Me</b> to labor [in the study of] Torah, to know the expositions of the Sages. Perhaps [this refers to] the performance of the <i>mitzvos</i>? When [the verse] says: <b>and you will not fulfill etc.,</b> behold, the performance of the <i>mitzvos</i> is mentioned, how then do I interpret “and if you will not listen to Me”? To labor [in the study of] Torah. And why does the verse say “to Me”? the word לִי [in this chapter of punishments] refers to [the sins of] one who acknowledges his Master and intentionally rebels against Him, and so regarding Nimrod, “He was a mighty hunter before Adonoy,” he acknowledged Him and intentionally rebelled against Him, and so regarding the people of Sedom, [“The people of Sedom were] wicked and sinful towards Adonoy, exceedingly,” they acknowledged their Master and intentionally rebelled against Him. 
 <b>And you will not fulfill,</b> since you will not learn, you will not fulfill — resulting in two sins. 
 
 ### passuk 15
@@ -188,7 +188,7 @@
 
 ### passuk 42
 <b>I will remember My covenant with Yaakov.</b> In five places [the name Yaakov] is written “full,” and [the name of the prophet] Eliyohu [is spelled] “defectively” in five places. Yaakov took a letter from the name of Eliyohu [as a] pledge, that he [= Eliyohu] should come and announce the redemption of his children. 
-<b>I will remember My covenant with Yaakov.</b> Why are they [= the Patriarchs] listed in reverse order? So as to say: The youngest, Yaakov, [alone] is worthy of that; and if he is not worthy, behold, Yitzchak is with him, and if he is not worthy, behold, Avrohom is with him, and he is worthy. And why is “remembrance” not said [in connection] with Yitzchak? Because Yitzchak’s ashes are visible before Me, [as though] they are heaped up and lying on the altar. 
+<b>I will remember My covenant with Yaakov.</b> Why are they [= the Patriarchs] listed in reverse order? So as to say: The youngest, Yaakov, [alone] is worthy of that; and if he is not worthy, behold, Yitzchok is with him, and if he is not worthy, behold, Avrohom is with him, and he is worthy. And why is “remembrance” not said [in connection] with Yitzchok? Because Yitzchok’s ashes are visible before Me, [as though] they are heaped up and lying on the altar. 
 
 ### passuk 43
 <b>Since what certainly caused [this] is that.</b> [As] retribution and in retribution, in that “they despised My laws.” 

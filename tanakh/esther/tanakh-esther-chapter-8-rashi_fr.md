@@ -14,10 +14,10 @@
 ### passuk 6
 
 ### passuk 7
-<b>Voici, [j'ai donné] les biens d'Haman, etc.</b> Et désormais, tout le monde voit que je te favorise,</sup>1</sup><i class="footnote">La réponse d'Achashveirosh n'aborde pas la demande d'Esther d'annuler les mauvais plans d'Haman contre les Juifs. C'est pourquoi Rashi explique que le sens de la réponse d'Achashveirosh est que, " à partir de maintenant, tout le monde voit .... " (Sifsei Chachomim) </i> et quoi que tu dises, tout le monde croira que cela vient de moi ; par conséquent, tu n'as pas à les annuler, mais à " écrire " d'autres lettres " comme tu le souhaites ". 
+<b>Voici, [j'ai donné] les biens d'Haman, etc.</b> Et désormais, tout le monde voit que je te favorise,</sup>1</sup><i class="footnote">La réponse d'Akashveirosh ne traite pas de la demande d'Esther d'annuler les plans diaboliques d'Haman contre les Juifs. C'est pourquoi Rachi explique que le sens de la réponse d'Achashveirosh était que "désormais, tout le monde voit....". (Sifsei Chachomim) </i> et quoi que tu dises, tout le monde croira que cela vient de moi ; par conséquent, tu n'as pas à les annuler, mais à "écrire" d'autres lettres "comme il te plaît". 
 
 ### passuk 8
-<b>Il n'est pas rescindable.</b> Il n'est pas convenable de le rescinder et de rendre le writ du roi invalide.
+<b>Il n'est pas rescindable.</b> Il n'est pas convenable de le rescinder et de rendre invalide le bref du roi.
 
 ### passuk 9
 <b>Dans sa propre écriture.</b> Avec ses caractères [c'est-à-dire son alphabet]. 
@@ -44,7 +44,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Convertir au judaïsme.</b> Se convertir au judaïsme.
+<b>Convertir au judaïsme.</b> Convertir au judaïsme.
 
 >Crédit : sefaris
 >Licence : CC-BY
