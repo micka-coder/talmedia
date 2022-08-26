@@ -12,17 +12,17 @@
 ### passuk 5
 
 ### passuk 6
-<b>Il a dit : " Certes, devant Adonoy se trouve Son oint. "</b> Il s'est dit : " Certes, il est vrai que celui-ci est apte à la royauté ".
+<b>Il a dit : " Certes, devant Hachem se trouve Son oint. "</b> Il s'est dit : " Certes, il est vrai que celui-ci est apte à la royauté ".
 
 ### passuk 7
 <b>Ne regardez pas son apparence.</b> Sur la beauté de sa stature.
-<b>Parce que je l'ai rejeté.</b> Parce que c'est une personne au tempérament rapide, comme il est dit : 'Et Eliov s'est mis en colère contre David.'<sup>4</sup><i class="footnote"> Ci-dessous 17:28. Voir également le Maseches Pesachim 66b, selon lequel Eliov possédait effectivement les qualités d'un roi mais '<span>ה</span> l'a rejeté parce qu'il avait mauvais caractère.</i>
+<b>Parce que je l'ai rejeté.</b> Parce que c'est une personne au tempérament rapide, comme il est dit : 'Et Eliov s'est mis en colère contre David.'<sup>4</sup><i class="footnote"> Ci-dessous 17:28. Voir également le Masehet Pesachim 66b, selon lequel Eliov possédait effectivement les qualités d'un roi mais '<span>ה</span> l'a rejeté parce qu'il avait mauvais caractère.</i>
 <b>Parce que les choses ne sont pas telles que l'homme les perçoit.</b> Même si tu t'es dit voyant, lorsque tu as dit à Shaoul : 'Je suis le voyant'<sup>5</sup><i class="footnote">Supérieur 9:19. <span>ה׳</span> a puni Shmuel pour avoir déduit ne serait-ce qu'un infinitésimal d'orgueil en disant "je suis le voyant". Moshé a été puni de la même manière pour avoir dit "la question qui sera trop difficile pour toi, présente-la moi et je l'entendrai." [Devarim 1:17]-Sifre, Devarim 1:17</i> ici je t'informe que tu ne vois pas.
 
 ### passuk 8
 
 ### passuk 9
-<b>Yishay a apporté Shammoh.</b> C'est <span>שַׁמְעָא</span>.<sup>6</sup><i class="footnote">I.e. <span>שַׁמְעָא = שַׁמׇּה</span> Voir II Shmuel 21:21 et I Divrei Hayomim 2:13.</i>
+<b>Yishay a apporté Shammoh.</b> C'est <span>שַׁמְעָא</span>.<sup>6</sup><i class="footnote">I.e. <span>שַׁמְעָא = שַׁמׇּה</span> Voir II Shmuel 21:21 et I Divrei Hayamim 2:13.</i>
 
 ### passuk 10
 
@@ -33,7 +33,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et un esprit d'Adonoy passa.</b> Un esprit de force.</sup></sup><i class="footnote">Le Targum rend 'un esprit de prophétie.'</i>
+<b>Et un esprit d'Hachem passa.</b> Un esprit de force.</sup></sup><i class="footnote">Le Targum rend 'un esprit de prophétie.'</i>
 
 ### passuk 14
 
@@ -45,7 +45,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Un des jeunes gens.</b> Celui qui est spécial, [c'est-à-dire] Do'eg, l'Edomite.<sup>8</sup><i class="footnote">Voir Maseches Sanhedrin 93b.</i>
+<b>Un des jeunes gens.</b> Celui qui est spécial, [c'est-à-dire] Do'eg, l'Edomite.<sup>8</sup><i class="footnote">Voir Masehet Sanhedrin 93b.</i>
 <b>Sait jouer.</b> Toute son intention était d'induire le mauvais œil de Shaoul sur David, afin qu'il l'envie.<sup>9</sup><i class="footnote">Voir Ibid, qui précise que l'intention de Do'eg était de susciter l'envie de Shaoul et qu'il a donc fait des éloges excessifs à David, sans rapport avec le poste pour lequel Shaoul avait besoin de lui. Do'eg n'a pas décrit les talents musicaux de David ni l'instrument dont il jouait.</i>
 
 >Crédit : sefaris

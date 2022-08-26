@@ -14,13 +14,13 @@
 
 ### passuk 6
 <b>Les Baals.</b> Sept dieux païens sont énumérés ici.</sup>3</sup><i class="footnote">Beitzah, 25:b. " Les divinités d'Aram, de Tzidon, etc. " n'explique pas où les Baals et les Ashteros étaient adorés, mais énumère des divinités en plus d'eux. Par conséquent, le total est de sept.</i>
-<b>Ils ont abandonné Adonoy,</b> et ne l'ont pas adoré. Pas même en même temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, "et ne l'adorèrent pas" est redondant. (Beitzah, ibid).</i>
+<b>Ils ont abandonné Hachem,</b> et ne l'ont pas adoré. Pas même en même temps que celles-ci.<sup>4</sup><i class="footnote">Au contraire, "et ne l'adorèrent pas" est redondant. (Beitzah, ibid).</i>
 
 ### passuk 7
 
 ### passuk 8
 <b>Cette année là</b> où Yair est mort.
-<b>A travers le Yardein.</b> Le territoire de Reuven, Gad et la moitié de Menasheh ; ils étaient voisins.</sup>5</sup><i class="footnote">Des Ammonites. Voir ci-dessous, ch.11.</i>
+<b>A travers le Jourdain.</b> Le territoire de Reuven, Gad et la moitié de Menasheh ; ils étaient voisins.</sup>5</sup><i class="footnote">Des Ammonites. Voir ci-dessous, ch.11.</i>
 
 ### passuk 9
 

@@ -19,7 +19,7 @@
 <b>Et s'en alla dans un pays.</b> Pour résider partout où il pourrait trouver [de la place]. 
 
 ### passuk 7
-<b>La terre dans laquelle ils vivaient temporairement ne pouvait</b> fournir un pâturage suffisant pour leurs animaux. Une explication midrashique est : <b>Loin de son frère, Yaakov.</b> [C'est-à-dire] à cause de la dette [implicite] dans le décret : "Tes descendants seront des étrangers", qui a été imposé aux descendants de Yitzchok. Il a donc pensé : " Je vais partir d'ici, je ne veux pas avoir de part au don -± cette terre qui lui a été donnée - ni au paiement de la facture [de dette] ". [Autre raison de son départ : la honte d'avoir vendu son droit d'aînesse. 
+<b>La terre dans laquelle ils vivaient temporairement ne pouvait</b> fournir un pâturage suffisant pour leurs animaux. Une explication midrashique est : <b>Loin de son frère, Yaakov.</b> [C'est-à-dire] à cause de la dette [implicite] dans le décret : "Tes descendants seront des étrangers", qui a été imposé aux descendants de Yitshak. Il a donc pensé : " Je vais partir d'ici, je ne veux pas avoir de part au don -± cette terre qui lui a été donnée - ni au paiement de la facture [de dette] ". [Autre raison de son départ : la honte d'avoir vendu son droit d'aînesse. 
 
 ### passuk 8
 

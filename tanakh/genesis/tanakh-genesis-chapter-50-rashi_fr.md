@@ -14,7 +14,7 @@
 <b>Ce que j'ai acquis.</b> Selon son sens simple, cela revient à dire : "Si un homme doit [יִכְרֶה] creuser." Il existe une explication midrachique qui correspond au sens comme s'il avait été dit אֲשֶׁר קָנִיתִי -que j'ai acquis. Car R. Akiva a dit : " Lorsque j'ai voyagé dans les villes du bord de mer, [j'ai noté qu'] ils désignaient la " vente " par le terme כִּירָה " . Une autre explication midrashique [de כָּרִיתִי] est qu'il est lié à כְּרִי דָגוּר -un tas empilé. En effet, Yaakov avait pris tout l'argent et l'or qu'il avait rapporté de la maison de Lavan, il en avait fait un tas empilé et avait dit à Eisov : " Prends cela pour ta part de la Caverne. "
 
 ### passuk 6
-<b>Comme il t'a fait jurer.</b> "Mais, sans le serment, je ne t'aurais pas permis [de faire cela]." Mais, il avait peur de dire : "Brise ton serment", afin qu'il [Yoseif] ne réponde pas : "Si c'est le cas, alors je romprai le serment que je t'ai fait de ne pas révéler la langue hébraïque - que je la connais en plus des soixante-dix langues mais dont tu n'as aucune connaissance - comme cela est raconté dans le Masechès Sotah. 
+<b>Comme il t'a fait jurer.</b> "Mais, sans le serment, je ne t'aurais pas permis [de faire cela]." Mais, il avait peur de dire : "Brise ton serment", afin qu'il [Yoseif] ne réponde pas : "Si c'est le cas, alors je romprai le serment que je t'ai fait de ne pas révéler la langue hébraïque - que je la connais en plus des soixante-dix langues mais dont tu n'as aucune connaissance - comme cela est raconté dans le Traité Sotah. 
 
 ### passuk 7
 

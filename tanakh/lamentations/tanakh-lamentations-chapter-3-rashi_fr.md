@@ -18,7 +18,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Il m'a clôturé.</b> Il a fait un mur en face de moi [pour que je] sois emprisonné.</sup></sup><i class="footnote">Symbolique du siège de Nevuchadnetzar autour de Yerusholayim. (Lechem Dimah) </i> 
+<b>Il m'a clôturé.</b> Il a fait un mur en face de moi [pour que je] sois emprisonné.</sup></sup><i class="footnote">Symbolique du siège de Nevuchadnetzar autour de Jérusalem. (Lechem Dimah) </i> 
 <b>Et je ne peux pas sortir.</b> Il a stationné autour de moi des camps et des troupes de soldats à l'affût.
 <b>Il m'a enchaîné lourdement.</b> Il a fabriqué de lourdes entraves pour mes pieds afin que je ne puisse pas marcher, <i>ferjes</i> en ancien français. 
 
@@ -33,7 +33,7 @@
 
 ### passuk 11
 <b>Il a semé des épines sur mes routes.</b> Expression d'épines, [signifiant que] Il les a "parsemées" d'épines, [c'est-à-dire qu'] Il a dispersé des épines sur mes chemins.<sup>8</sup><i class="footnote">Alternativement, 'il m'a forcé à sortir de mon chemin'. (Ibn Ezra) </i> 
-<b>Il m'a fait les hausser.</b> Expression de l'écartement des jambes.</sup>9</sup><i class="footnote">Alternativement, 'il m'a blessé.' (Yalkout Me'am Lo'ez) </i>Celui qui passe sur des routes non dégagées doit élargir sa foulée, et on en trouve un exemple dans le langage de la Guemara:<sup>10</sup><i class="footnote">Maseches Mo'ed Katan 10b. </i> "Celui qui élaguait דְּפָשַׁח<sup>11</sup><i class="footnote">C'est-à-dire qu'il séparait les branches du tronc de l'arbre. Ici aussi, il devait séparer ses jambes, c'est-à-dire faire de grandes enjambées, afin d'éviter les épines. </i> un palmier dattier." 
+<b>Il m'a fait les hausser.</b> Expression de l'écartement des jambes.</sup>9</sup><i class="footnote">Alternativement, 'il m'a blessé.' (Yalkout Me'am Lo'ez) </i>Celui qui passe sur des routes non dégagées doit élargir sa foulée, et on en trouve un exemple dans le langage de la Guemara:<sup>10</sup><i class="footnote">Masehet Mo'ed Katan 10b. </i> "Celui qui élaguait דְּפָשַׁח<sup>11</sup><i class="footnote">C'est-à-dire qu'il séparait les branches du tronc de l'arbre. Ici aussi, il devait séparer ses jambes, c'est-à-dire faire de grandes enjambées, afin d'éviter les épines. </i> un palmier dattier." 
 
 ### passuk 12
 <b>[Il] m'a positionné comme une cible.</b> Il m'a placé à l'opposé de Ses flèches pour qu'elles me tirent dessus comme une cible,</sup>12</sup><i class="footnote">En devant franchir les épines, j'étais obligé de ralentir, devenant ainsi une cible facile pour mon ennemi. (Lechem Dimah) </i> <i>aseneil</i> en ancien français. 
@@ -48,7 +48,7 @@
 ### passuk 16
 <b>Il a broyé.</b> [Signification] et Il a brisé ; et un exemple est, "Mon âme est écrasée גָּרְסָה,"<sup>13</sup><i class="footnote">Tehilim 119:20. </i> et de même, "sol גֶּרֶשׂ encore frais."<sup>14</sup><i class="footnote">Vayikra 2:14. </i> 
 <b>Cailloux.</b> Des cailloux fins qui sont dans la poussière, car les exilés pétrissaient leur pâte dans les fosses qu'ils creusaient dans le sol, et le gravier y entrait, comme le Saint, Béni soit-Il, a dit à Yechezkeil : "Fais-toi des instruments pour l'exil"<sup>15</sup><i class="footnote">Yechezkeil 12:3. </i> dans lesquels on peut boire et dans lesquels on peut pétrir un petit gâteau, afin qu'ils apprennent et fassent de même, comme il est dit : "Et Yechezkeil sera pour vous un signe."<sup>16</sup><i class="footnote">Ibid., 24:24. </i> Mais ils se sont moqués de lui et ne l'ont pas fait ; à la fin, leurs dents se sont cassées. 
-<b>Il m'a fait ramper.</b> Il m'a retourné en cendres comme un récipient renversé sur sa bouche, <i>adenter</i> en ancien français. [jeter à plat sur sa face]. On trouve un [mot] similaire dans la Mishna : "Pishon, le chamelier, mesurait avec une mesure réversible"<sup>17</sup><i class="footnote">Maseches Yevamos 107b ; il inversait la mesure à son avantage, lésant ainsi ses clients. </i> 
+<b>Il m'a fait ramper.</b> Il m'a retourné en cendres comme un récipient renversé sur sa bouche, <i>adenter</i> en ancien français. [jeter à plat sur sa face]. On trouve un [mot] similaire dans la Mishna : "Pishon, le chamelier, mesurait avec une mesure réversible"<sup>17</sup><i class="footnote">Masehet Yebamot 107b ; il inversait la mesure à son avantage, lésant ainsi ses clients. </i> 
 
 ### passuk 17
 
@@ -65,7 +65,7 @@
 <b>Je prends quand même cela à cœur.</b> Après que mon cœur m'ait dit que mon espoir de Dieu était parti, je répondrai ceci à mon cœur, et je continuerai à espérer. Qu'est-ce que je vais répondre à mon cœur ? 
 
 ### passuk 22
-<b>Par la grâce Adonoy nous n'avons pas péri.</b> Et toute la section jusqu'à, "Pourquoi [un homme vivant] se lamenterait-il, etc."<sup>20</sup><i class="footnote">Verset 39. </i> 
+<b>Par la grâce Hachem nous n'avons pas péri.</b> Et toute la section jusqu'à, "Pourquoi [un homme vivant] se lamenterait-il, etc."<sup>20</sup><i class="footnote">Verset 39. </i> 
 <b>Nous n'avons pas péri.</b> תָמְנוּ est] le même que תַמּוּ [terminé].<sup>21</sup><i class="footnote">C'est-à-dire à la 'troisième personne' signifiant 'ils n'ont pas péri'. Mais selon la deuxième explication de Rachi, תמנו est à la 'deuxième personne' signifiant 'nous n'avons pas péri'. (Sifsei Chachomim) </i> Et certains expliquent כִּי לֹא תָמְנוּ comme dans, "arrêterons-nous un jour de mourir תַּמְנוּ ?"<sup>22</sup><i class="footnote">Bamidbar 17:28. </i> C'est par la bonté de Dieu que nous n'avons pas été anéantis, que nous n'avons pas péri à cause de nos péchés. 
 
 ### passuk 23
@@ -73,7 +73,7 @@
 <b>Ta fidélité est immense.</b> Ta promesse est grande, et c'est une grande chose de croire en Toi que Tu vas accomplir et garder ce que Tu nous as promis. 
 
 ### passuk 24
-<b>"Adonoy est ma part", déclare mon âme.</b> Dieu est ma part ; il convient donc que j'espère en Lui. 
+<b>"Hachem est ma part", déclare mon âme.</b> Dieu est ma part ; il convient donc que j'espère en Lui. 
 
 ### passuk 25
 
@@ -120,7 +120,7 @@
 ### passuk 40
 
 ### passuk 41
-<b>Élevons nos cœurs en même temps que nos mains.</b> Lorsque nous élevons nos mains vers le ciel, élevons aussi nos cœurs avec elles pour revenir, pour ramener nos cœurs devant l'Omniprésent, Béni soit-Il. Une autre explication : "Avec nos mains". אֶל כַּפָּיִם signifie] vers les nuages, vers le ciel, comme le dit [l'Écriture] : " Il y a un nuage aussi petit que la paume d'un homme, qui s'élève. "<sup>31</sup><i class="footnote">I Melochim 18:44. </i> Et de même, "Sur les nuages Il couvre la pluie."<sup>32</sup><i class="footnote">Iyov 36:32. </i> Mais le Midrach de nos rabbins [précise] : " Élevons nos cœurs " sincèrement vers le Saint, Béni soit-Il, comme une personne qui se lave les mains pour les nettoyer, rejette de ses mains toute souillure, car " celui qui avoue et abandonne obtiendra miséricorde ", mais celui qui avoue mais n'abandonne pas [ses péchés] est comme celui qui [est rituellement impur qui] s'immerge en tenant dans sa main un animal rampant [impur]. <sup>33</sup><i class="footnote">A moins qu'il ne le jette, il ne deviendra pas rituellement pur. Voir Rachi dans Maseches Ta'anis 16a. </i> 
+<b>Élevons nos cœurs en même temps que nos mains.</b> Lorsque nous élevons nos mains vers le ciel, élevons aussi nos cœurs avec elles pour revenir, pour ramener nos cœurs devant l'Omniprésent, Béni soit-Il. Une autre explication : "Avec nos mains". אֶל כַּפָּיִם signifie] vers les nuages, vers le ciel, comme le dit [l'Écriture] : " Il y a un nuage aussi petit que la paume d'un homme, qui s'élève. "<sup>31</sup><i class="footnote">I Melochim 18:44. </i> Et de même, "Sur les nuages Il couvre la pluie."<sup>32</sup><i class="footnote">Iyov 36:32. </i> Mais le Midrach de nos rabbins [précise] : " Élevons nos cœurs " sincèrement vers le Saint, Béni soit-Il, comme une personne qui se lave les mains pour les nettoyer, rejette de ses mains toute souillure, car " celui qui avoue et abandonne obtiendra miséricorde ", mais celui qui avoue mais n'abandonne pas [ses péchés] est comme celui qui [est rituellement impur qui] s'immerge en tenant dans sa main un animal rampant [impur]. <sup>33</sup><i class="footnote">A moins qu'il ne le jette, il ne deviendra pas rituellement pur. Voir Rachi dans Masehet Ta'anis 16a. </i> 
 
 ### passuk 42
 <b>Nous avons transgressé et nous nous sommes rebellés.</b> Telle est notre voie, à cause du mauvais penchant. 
@@ -132,7 +132,7 @@
 ### passuk 44
 
 ### passuk 45
-<b>Crachat, abominable.</b> Il s'agit de mucus ; dans le langage de la Mishna, "son flegme et son mucus"<sup>34</sup><i class="footnote">Maseches Bava Kama 3b. </i> qui est aspiré par les poumons et émis par la gorge. 
+<b>Crachat, abominable.</b> Il s'agit de mucus ; dans le langage de la Mishna, "son flegme et son mucus"<sup>34</sup><i class="footnote">Masehet Bava Kama 3b. </i> qui est aspiré par les poumons et émis par la gorge. 
 <b>Vous nous avez fait.</b> Ceci est au présent.
 
 ### passuk 46
@@ -157,7 +157,7 @@
 
 ### passuk 53
 <b>Ils ont lié ma vie au cachot.</b> En prison.
-<b>Ils ont lié.</b> Ils ont lié, comme dans, "la convergence צוֹמֶת des tendons ;"<sup>38</sup><i class="footnote">Maseches Chulin 76a. </i> "de l'intérieur de ton foulard לְצַמָּתֵךְ,"<sup>39</sup><i class="footnote">Shir Hashirim 4:1. </i> <i>estreinirent</i> en ancien français. 
+<b>Ils ont lié.</b> Ils ont lié, comme dans, "la convergence צוֹמֶת des tendons ;"<sup>38</sup><i class="footnote">Masehet Chulin 76a. </i> "de l'intérieur de ton foulard לְצַמָּתֵךְ,"<sup>39</sup><i class="footnote">Shir Hashirim 4:1. </i> <i>estreinirent</i> en ancien français. 
 <b>Et jetèrent des pierres sur moi.</b> A l'embouchure du puits [=du donjon]. C'est ce qu'ils firent à Doniyeil;<sup>40</sup><i class="footnote">Voir Donieil 6:18. </i> et Yirmiyahu l'a prévu avec le Saint-Esprit. 
 <b>Ils ont lié ma vie au cachot.</b> Et bien qu'ils aient confiné ma vie dans le cachot d'où je ne peux pas remonter, ils n'ont pas pris cela à cœur [c'est-à-dire qu'ils n'étaient pas satisfaits]. 
 
@@ -176,7 +176,7 @@
 <b>Tu as combattu, ô Dieu, les combats de mon âme.</b> Dans les jours passés. 
 
 ### passuk 59
-<b>Tu as vu, Adonoy, combien je suis affligé.</b> Dans cette détresse, que mes ennemis m'ont fait du tort. 
+<b>Tu as vu, Hachem, combien je suis affligé.</b> Dans cette détresse, que mes ennemis m'ont fait du tort. 
 <b>Administrez la justice pour moi.</b> Comme vous l'avez déjà fait.
 
 ### passuk 60

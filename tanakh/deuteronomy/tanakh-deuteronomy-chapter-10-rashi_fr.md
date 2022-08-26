@@ -17,31 +17,31 @@
 <b>Et de Goodgode, etc.</b> A Moseiroh, vous avez exprimé un profond chagrin à cause de la mort d'Aharon, ce qui vous a attiré, si bien qu'il vous a semblé qu'il était mort là. Moshé a juxtaposé cette réprimande avec le bris des tablettes pour enseigner que la mort du juste est aussi désagréable devant Dieu, que le jour où les tablettes ont été brisées. Aussi, pour vous informer qu'Il a été aussi troublé lorsqu'ils se sont exclamés : "Choisissons un chef" afin de se détourner de Lui, que le jour où ils ont fabriqué le veau [d'or]. 
 
 ### passuk 8
-<b>A ce moment-là, Adonoy se sépara, etc.</b> Cela fait référence au sujet initial. 
+<b>A ce moment-là, Hachem se sépara, etc.</b> Cela fait référence au sujet initial. 
 <b>A ce moment-là.</b> Durant la première année de votre sortie d'Égypte, lorsque vous avez transgressé avec le veau, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et que les Lévites n'ont pas transgressé, l'Omnipotent les a séparés de vous. Ce passage est juxtaposé à la retraite des Bnei Ya'akon pour enseigner que, là aussi, les Lévites n'ont pas transgressé, mais sont restés fermes dans leur foi. 
 <b>Porter l'arche.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les Lévites.
-<b>Pour se tenir devant Adonoy pour le servir et bénir en son nom.</b> <b>Les <i>kohanim.</i> Cela fait référence à l'élévation des mains. 
+<b>Pour se tenir devant Hachem pour le servir et bénir en son nom.</b> <b>Les <i>kohanim.</i> Cela fait référence à l'élévation des mains. 
 
 ### passuk 9
 <b>C'est pourquoi Lévi n'a pas eu de part.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce qu'ils ont été séparés pour le service à l'autel, et n'ont pas la possibilité de labourer et de planter. 
-<b>Adonoy est son héritage.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il reçoit sa part allouée fournie facilement du palais du roi.
+<b>Hachem est son héritage.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il reçoit sa part allouée fournie facilement du palais du roi.
 
 ### passuk 10
 <b>Et je suis resté sur la montagne.</b> Pour recevoir les dernières tablettes. Comme il n'a pas précisé plus haut combien de temps il est resté sur la montagne lors de cette ultime ascension, il revient maintenant et recommence. 
 <b>Comme la première fois.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec les premières tablettes. Tout comme elles l'étaient avec faveur, celles-ci l'étaient aussi avec faveur. Cependant, les intermédiaires, lorsque j'y suis resté pour prier pour vous, l'ont été avec colère. 
 
 ### passuk 11
-<b>Et Adonoy me dit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Bien que tu te sois détourné de Lui et que tu aies péché avec le veau, Il m'a dit : "Va, conduis le peuple." 
+<b>Et Hachem me dit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Bien que tu te sois détourné de Lui et que tu aies péché avec le veau, Il m'a dit : "Va, conduis le peuple." 
 
 ### passuk 12
 <b>Et maintenant, Israël.</b> Bien que tu aies perpétré tout cela, Il est encore compatissant et affectueux envers toi, de sorte que, malgré toutes tes transgressions devant Lui, Il n'exige rien de toi '.... . si ce n'est de craindre, etc. 
 <b>Autre que de craindre, etc.</b> Les rabbins extrapolent à partir de là : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tout est entre les mains du Ciel, à part la crainte du Ciel. 
 
 ### passuk 13
-<b>S'en tenir aux commandements d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Et ceci n'est pas non plus pour rien, mais 'pour votre bénéfice' - afin que vous soyez récompensés. 
+<b>S'en tenir aux commandements d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Et ceci n'est pas non plus pour rien, mais 'pour votre bénéfice' - afin que vous soyez récompensés. 
 
 ### passuk 14
-<b>Regardes ! à Adonoy ton Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Toutes choses. Même ainsi, <b>Seuls vos ancêtres ont désiré Adonoy.</b> Par-dessus toutes choses.
+<b>Regardes ! à Hachem ton Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Toutes choses. Même ainsi, <b>Seuls vos ancêtres ont désiré Hachem.</b> Par-dessus toutes choses.
 
 ### passuk 15
 <b>Vous.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme vous vous voyez, désirés au-dessus de toutes les nations, comme aujourd'hui. 
@@ -62,7 +62,7 @@
 <b>Parce que vous étiez étrangers.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec ta propre tare, ne nargue pas ton prochain.
 
 ### passuk 20
-<b>Craignez Adonoy votre Dieu.</b> Servez-le et attachez-vous à lui. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir acquis tous ces attributs, il faut ensuite " jurer en Son Nom ". 
+<b>Craignez Hachem votre Dieu.</b> Servez-le et attachez-vous à lui. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir acquis tous ces attributs, il faut ensuite " jurer en Son Nom ". 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -18,7 +18,7 @@
 <b>a porté et abandonné</b> sa progéniture, pour chasser des pâturages pour elle-même.
 
 ### passuk 6
-<b>par les ruisseaux</b> ruisseaux d'eau (riveyres en O. F.).
+<b>par les ruisseaux</b> ruisseaux d'eau (riveyres en ancien français).
 
 ### passuk 7
 <b>ont témoigné contre nous</b> Heb. עָנוּ.
@@ -88,7 +88,7 @@
 <b>a porté et abandonné</b> sa progéniture, pour chasser des pâturages pour elle-même.
 
 ### passuk 6
-<b>par les ruisseaux</b> ruisseaux d'eau (riveyres en O. F.).
+<b>par les ruisseaux</b> ruisseaux d'eau (riveyres en ancien français).
 
 ### passuk 7
 <b>ont témoigné contre nous</b> Heb. עָנוּ.

@@ -2,8 +2,8 @@
 ### passuk 1
 
 ### passuk 2
-<b>Après la Tombe de Rochel, à la frontière de Binyomin.</b> La Tombe de Rochel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rochel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyomin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Maseches] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
-Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Yerusholayim.
+<b>Après la Tombe de Rochel, à la frontière de Binyamin.</b> La Tombe de Rochel n'est-elle pas à l'intérieur de la frontière de Yehouda, à Beis Lechem ? [La réponse est qu'ils sont actuellement près de la Tombe de Rochel, mais, 'quand tu les rencontreras, tu les trouveras à l'intérieur de la frontière de Binyamin, à Tzeltzoch'. C'est ce qu'enseigne la Tosefta de [Masehet] Sotah.<sup>1</sup><i class="footnote">11:7.</i> 
+Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint, Béni soit-Il, qui est pur et roux;<sup>2</sup><i class="footnote">Shir Hashirim 5:10.</i> et c'est Jérusalem.
 <b>Et s'inquiète à ton sujet.</b> A des craintes à ton sujet ; toute expression de <span>דְּאָגָה</span> [inquiétude] est une expression de crainte ; <i>démenteur</i> en ancien français.
 
 ### passuk 3
@@ -14,8 +14,8 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint
 ### passuk 5
 <b>La colline de Dieu.</b> La colline de Kiryas Ye'arim, où l'Arche de Dieu reposait maintenant.
 <b>Officiers philistins.</b> Officiers qu'ils avaient nommés sur Israël, car ils [les Philistins] régnaient sur eux et postaient des officiers dans les villes de Israël.</sup>3</sup><i class="footnote">Les Philistins avaient conquis des parties d'Eretz Israël et avaient nommé des officiers pour gouverner les régions qu'ils dominaient.-Mahri Kra</i>.
-<b>Une bande de prophètes.</b> Le Targum Yonoson rend : 'une bande de scribes'. '<span>חֶבֶל</span>' est une bande, similaire à, 'les <span>חֶבְלֵי</span> des méchants m'entouraient'<sup>4</sup><i class="footnote">II Shmuel 22:6. </i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
-<b>Du haut lieu.</b> Le Targum Yonoson rend : "de la salle de banquet".
+<b>Une bande de prophètes.</b> Le Targum Yonathan rend : 'une bande de scribes'. '<span>חֶבֶל</span>' est une bande, similaire à, 'les <span>חֶבְלֵי</span> des méchants m'entouraient'<sup>4</sup><i class="footnote">II Shmuel 22:6. </i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
+<b>Du haut lieu.</b> Le Targum Yonathan rend : "de la salle de banquet".
 
 ### passuk 6
 
@@ -45,7 +45,7 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint
 ### passuk 15
 
 ### passuk 16
-<b>Mais pour la question de la royauté, il ne lui a rien dit.</b> Il possédait une nature discrétionnaire.</sup>7</sup><i class="footnote"> Voir Maseches Megillah 13b.</i>
+<b>Mais pour la question de la royauté, il ne lui a rien dit.</b> Il possédait une nature discrétionnaire.</sup>7</sup><i class="footnote"> Voir Masehet Megillah 13b.</i>
 
 ### passuk 17
 
@@ -59,7 +59,7 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint
 <b>Et Shaul... fut distingué.</b> Même s'il n'était pas là, le sort tomba sur lui, car leurs noms étaient écrits sur des morceaux de parchemin et placés dans une boîte. Le prophète insérait sa main et prenait un morceau de parchemin.
 
 ### passuk 22
-<b>Il est caché par les bagages.</b> Dans la pièce où les nouveaux arrivants avaient placé leurs bagages ; [il se cachait] car il fuyait la position élevée. Mais le Midrash Aggadah de R. Tanchuma<sup>8</sup><i class="footnote">Vayikra 3.</i> explique que '<span>אֶל הַכֵּלִים</span>' fait référence à l'Urim et au Tumim. Il se dit [à lui-même] : 'peut-être ne suis-je pas digne de cette haute fonction. [Je ne l'assumerai pas]. jusqu'à ce qu'on interroge l'Urim et le Tumim.<sup>9</sup><i class="footnote"> Shaoul était convaincu que l'Urim et le Tumim confirmeraient qu'il n'était pas digne de la royauté. Mais, au contraire, cela a confirmé que personne n'était égal à lui. Dans le Masech Eirouvin 13b, il est dit que celui qui fuit l'honneur est légitimement poursuivi par lui.</i> Sur ce, ils ont demandé, et il l'a accepté.
+<b>Il est caché par les bagages.</b> Dans la pièce où les nouveaux arrivants avaient placé leurs bagages ; [il se cachait] car il fuyait la position élevée. Mais le Midrash Aggadah de R. Tanchuma<sup>8</sup><i class="footnote">Vayikra 3.</i> explique que '<span>אֶל הַכֵּלִים</span>' fait référence à l'Urim et au Tumim. Il se dit [à lui-même] : 'peut-être ne suis-je pas digne de cette haute fonction. [Je ne l'assumerai pas]. jusqu'à ce qu'on interroge l'Urim et le Tumim.<sup>9</sup><i class="footnote"> Shaoul était convaincu que l'Urim et le Tumim confirmeraient qu'il n'était pas digne de la royauté. Mais, au contraire, cela a confirmé que personne n'était égal à lui. Dans le Traité Eirouvin 13b, il est dit que celui qui fuit l'honneur est légitimement poursuivi par lui.</i> Sur ce, ils ont demandé, et il l'a accepté.
 
 ### passuk 23
 

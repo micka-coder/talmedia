@@ -17,7 +17,7 @@
 <b>Afin que nous ne soyons pas dispersés.</b> [Signification :] qu'Il ne fasse pas venir sur nous quelque fléau pour nous disperser d'ici.
 
 ### passuk 5
-<b>Adonoy est descendu pour voir.</b> Il n'avait [en réalité] pas besoin de le faire. Ceci est destiné à enseigner aux juges de ne pas condamner l'accusé avant d'avoir vu [l'affaire] et compris [elle]. [On trouve cela dans le Midrash R. Tanchuma. 
+<b>Hachem est descendu pour voir.</b> Il n'avait [en réalité] pas besoin de le faire. Ceci est destiné à enseigner aux juges de ne pas condamner l'accusé avant d'avoir vu [l'affaire] et compris [elle]. [On trouve cela dans le Midrash R. Tanchuma. 
 <b>Les fils de l'homme.</b> Mais, de qui d'autre pouvaient-ils être les enfants ? Peut-être les enfants d'ânes ou de chameaux ? Mais [cela fait référence] aux enfants d'Adam <i>horishon</i> qui était ingrat quand il a dit : "La femme que Tu as donnée pour être avec moi." Ces gens-là aussi ont été ingrats en se rebellant contre Celui qui leur a accordé sa bonté en les sauvant du déluge. 
 
 ### passuk 6
@@ -32,7 +32,7 @@
 <b>[Ils] ne comprendront pas.</b> L'un demande une brique et l'autre apporte du mortier. Le [premier] l'attaque et lui ouvre la cervelle.
 
 ### passuk 8
-<b>Adonoy les a dispersés de là.</b> [Il les a dispersés] dans ce monde. Leur déclaration "Que nous ne serons pas dispersés" s'est accomplie en [malgré] eux. C'est ce à quoi Shlomo [faisait référence lorsqu'il] disait : "La peur du méchant viendra sur lui". 
+<b>Hachem les a dispersés de là.</b> [Il les a dispersés] dans ce monde. Leur déclaration "Que nous ne serons pas dispersés" s'est accomplie en [malgré] eux. C'est ce à quoi Shlomo [faisait référence lorsqu'il] disait : "La peur du méchant viendra sur lui". 
 
 ### passuk 9
 <b>De là [Il] les a dispersés.</b> Cela enseigne qu'ils n'ont aucune part dans le Monde à venir. De qui les [transgressions] étaient-elles les plus graves ? Celles de la génération du Déluge, ou celles de la génération de la Dispersion ? Les premières n'ont pas levé les mains contre Dieu. Alors que les seconds ont levé leurs mains contre Dieu pour lui faire la guerre. [Pourtant,] les premiers ont été inondés [et noyés], alors que les seconds n'ont pas péri du monde ! Mais, [la réponse est que] la génération du déluge était des voleurs et qu'il y avait des querelles entre eux. Ils ont donc été détruits. Mais ceux-ci se sont conduits avec amour et amitié, comme il est écrit : "Une seule langue avec des mots conformes". Vous pouvez apprendre [de ceci] que la querelle est détestée et que la paix est grande. 

@@ -38,7 +38,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Commander les <i>Kohanim.</b> C'est ici que l'Écriture explique ce qui a été mentionné avant<sup>4</sup><i class="footnote">Verset 11.</i> comment l'Arche d'Adonoy et les <i>Kohanim</i> se sont croisés en présence du peuple.
+<b>Commander les <i>Kohanim.</b> C'est ici que l'Écriture explique ce qui a été mentionné avant<sup>4</sup><i class="footnote">Verset 11.</i> comment l'Arche d'Hachem et les <i>Kohanim</i> se sont croisés en présence du peuple.
 <b>Les faire remonter du Jourdain.</b> Il n'est pas écrit : "les faire traverser" mais plutôt "les faire remonter". Nous apprenons par là que c'est de la rive sur laquelle ils se tenaient qu'ils sont montés. Et il est impossible de prétendre qu'ils se tenaient à côté de la rive occidentale du Jourdain, car il est dit précédemment 'que les pieds des <i>Kohanim</i> étaient immergés dans le bord de l'eau. '<sup>5</sup><i class="footnote">Chapitre 3:15.</i> Et là, il est dit : 'Et les <i>Kohanim</i> restèrent debout- et tous les Bnei Israël traversèrent.'<sup>6</sup><i class="footnote">Ibid 16. De toute évidence, puisque les Bnei Israël ont traversé le Jourdain d'est en ouest, et que les <i>Kohanim</i> sont restés debout au point d'entrée, ils se trouvaient sur la rive orientale du Jourdain.</i>
 
 ### passuk 17

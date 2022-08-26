@@ -4,7 +4,7 @@
 ### passuk 2
 <b>Une tache d'une blancheur intense ou une tache blanc cassé, etc.</b> Ce sont les noms des éruptions cutanées, [chacune] plus blanche que l'autre. 
 <b>Une tache blanche comme neige.</b> Taches brillantes, <i>taie</i> en ancien français, et donc [aussi le mot בָּהִיר dans le verset] "brillantes dans les cieux". 
-<b>A Aharon, etc.</b> C'est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>un décret scripturaire, que [la déclaration] de l'impureté des éruptions cutanées et leur purification ne se fait que par l'autorité d'un <i>kohein</i>. 
+<b>A Aharon, etc.</b> C'est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>un décret scripturaire, que [la déclaration] de l'impureté des éruptions cutanées et leur purification ne se fait que par l'autorité d'un <i>Cohen</i>. 
 
 ### passuk 3
 <b>et [si] le poil dans l'éruption cutanée est devenu blanc.</b> D'abord noir, il est devenu blanc <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>dans l'éruption cutanée ; <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la [quantité] minimale de poil est de deux [poils individuels]. 
@@ -27,7 +27,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Le kohein le déclarera impur. </b> Et à partir [du moment] où il l'a déclaré impur, il est définitivement [impur], et nécessite des oiseaux et un rasage <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et un sacrifice comme mentionné dans le <i>parashoh</i> de " זאת תִּהְיֶה... " 
+<b>Le Cohen le déclarera impur. </b> Et à partir [du moment] où il l'a déclaré impur, il est définitivement [impur], et nécessite des oiseaux et un rasage <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et un sacrifice comme mentionné dans le <i>parashoh</i> de " זאת תִּהְיֶה... " 
 <b>C'est tzora'as - </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>cette décoloration blanche.
 <b>Tzora'as.</b> [Ce nom] est du genre féminin, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> נֶגַּע [= "éruption cutanée, marque"] est masculin. 
 
@@ -41,7 +41,7 @@
 
 ### passuk 12
 <b>Depuis sa tête</b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>d'un homme jusqu'à ses pieds.
-<b>Dans la mesure où le kohein peut voir,</b> à l'exclusion d'un <i>kohein</i> qui est devenu myope. 
+<b>Dans la mesure où le Cohen peut voir,</b> à l'exclusion d'un <i>Cohen</i> qui est devenu myope. 
 
 ### passuk 13
 
@@ -113,7 +113,7 @@
 
 ### passuk 37
 <b>Et les cheveux noirs.</b> D'où [savons-nous] que même le vert ou le rouge [est un signe de pureté], puisqu'il [= la couleur des cheveux] n'est pas de l'or ? Le verset dit : "<i>et</i> les cheveux". L'expression <i>tzohov</i> [fait référence à tout ce qui] ressemble à l'apparence de l'or. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>Tzohov</i> [est] comme <i>zohov</i>, <i>orpale</i> en ancien français. 
-<b>Il est pur, et le kohein le déclarera pur.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ainsi, une [personne] impure que le <i>kohein</i> déclare pure n'est pas pure. 
+<b>Il est pur, et le Cohen le déclarera pur.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ainsi, une [personne] impure que le <i>Cohen</i> déclare pure n'est pas pure. 
 
 ### passuk 38
 <b>Taches blanches,</b> taches. 
@@ -187,7 +187,7 @@
 <b>Vous le brûlerez au feu - </b>tout le vêtement.
 
 ### passuk 58
-<b>L'éruption disparaît d'eux,</b> si lorsqu'ils le lavent d'abord, par ordre du <i>kohein,</i> l'éruption disparaît entièrement de lui. 
+<b>L'éruption disparaît d'eux,</b> si lorsqu'ils le lavent d'abord, par ordre du <i>Cohen,</i> l'éruption disparaît entièrement de lui. 
 <b>Il sera lavé une seconde fois.</b> Expression de l'immersion [dans un <i>mikveh</i>] ; l'expression targum[ic] de "lavage" dans cette section est une expression de blanchiment. "et il sera blanchi" - sauf dans ce [cas], où il [fait] référence non pas au blanchiment mais à l'immersion. C'est pourquoi le Targum dit "et il sera trempé". De même, toutes les lessives - qui [se réfèrent réellement à] l'immersion - sont traduites [en araméen] par "et il sera trempé". 
 
 >Crédit : primo.nli.org.il (metsudah)

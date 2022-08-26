@@ -137,7 +137,7 @@
 <b>à cause des jardins</b> Ils y adoreraient les idoles, à l'instar de ce qui est énoncé (infra 66:17) : "Ceux qui se préparent et se purifient pour les jardins".
 
 ### passuk 30
-<b>Dont les feuilles se flétrissent</b> Sa feuille ([Les autres éditions lisent :] dont la feuille) se flétrit, devient flétrie [flatisant en O. F.]. Quand la chaleur ou le froid vient sur elle, elle se fane et son humidité est perdue et détruite. [Le mot] נבל n'est pas une expression de dépérissement comme בלה, car on ne trouve pas de 'nun' dans cette expression, mais נבל [est l'expression de quelque chose qui se fatigue et dont la force est réduite, de la racine de] נָבֹל תִּבֹּל (Exod. 18 : 18), qu'Onkelos rend : Tu seras certainement épuisé.
+<b>Dont les feuilles se flétrissent</b> Sa feuille ([Les autres éditions lisent :] dont la feuille) se flétrit, devient flétrie [flatisant en ancien français]. Quand la chaleur ou le froid vient sur elle, elle se fane et son humidité est perdue et détruite. [Le mot] נבל n'est pas une expression de dépérissement comme בלה, car on ne trouve pas de 'nun' dans cette expression, mais נבל [est l'expression de quelque chose qui se fatigue et dont la force est réduite, de la racine de] נָבֹל תִּבֹּל (Exod. 18 : 18), qu'Onkelos rend : Tu seras certainement épuisé.
 <b>qui n'a pas d'eau</b> pour arroser ses graines ; à la chose avec laquelle ils pèchent, il compare leur châtiment.
 
 ### passuk 31
@@ -285,7 +285,7 @@
 <b>à cause des jardins</b> Ils y adoreraient les idoles, à l'instar de ce qui est énoncé (infra 66:17) : "Ceux qui se préparent et se purifient pour les jardins".
 
 ### passuk 30
-<b>Dont les feuilles se flétrissent</b> Sa feuille ([Les autres éditions lisent :] dont la feuille) se flétrit, devient flétrie [flatisant en O. F.]. Quand la chaleur ou le froid vient sur elle, elle se fane et son humidité est perdue et détruite. [Le mot] נבל n'est pas une expression de dépérissement comme בלה, car on ne trouve pas de 'nun' dans cette expression, mais נבל [est l'expression de quelque chose qui se fatigue et dont la force est réduite, de la racine de] נָבֹל תִּבֹּל (Exod. 18 : 18), qu'Onkelos rend : Tu seras certainement épuisé.
+<b>Dont les feuilles se flétrissent</b> Sa feuille ([Les autres éditions lisent :] dont la feuille) se flétrit, devient flétrie [flatisant en ancien français]. Quand la chaleur ou le froid vient sur elle, elle se fane et son humidité est perdue et détruite. [Le mot] נבל n'est pas une expression de dépérissement comme בלה, car on ne trouve pas de 'nun' dans cette expression, mais נבל [est l'expression de quelque chose qui se fatigue et dont la force est réduite, de la racine de] נָבֹל תִּבֹּל (Exod. 18 : 18), qu'Onkelos rend : Tu seras certainement épuisé.
 <b>qui n'a pas d'eau</b> pour arroser ses graines ; à la chose avec laquelle ils pèchent, il compare leur châtiment.
 
 ### passuk 31

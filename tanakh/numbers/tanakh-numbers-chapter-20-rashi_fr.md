@@ -42,7 +42,7 @@
 <b>Il a été sanctifié par eux.</b> Puisque Moshé et Aharon sont morts à cause d'eux. Lorsque le Saint, béni soit-il, administre un jugement contre ses saints, il est craint et sanctifié par l'humanité. De même, il est dit : "Tu es impressionnant, Dieu, depuis Tes sanctuaires." De même, il est dit : "Je suis sanctifié par ceux qui me sont proches." 
 
 ### passuk 14
-<b>Ton frère Israël.</b> Pourquoi Moshé a-t-il jugé bon de mentionner la fraternité ici ? Mais il lui répondit : " Nous sommes des frères, enfants d'Avrohom, à qui il a été dit : '[Sachez] . que tes descendants seront des étrangers [dans un pays qui n'est pas le leur]', et nous étions tous deux responsables de l'accomplissement de cette obligation." 
+<b>Ton frère Israël.</b> Pourquoi Moshé a-t-il jugé bon de mentionner la fraternité ici ? Mais il lui répondit : " Nous sommes des frères, enfants d'Avraham, à qui il a été dit : '[Sachez] . que tes descendants seront des étrangers [dans un pays qui n'est pas le leur]', et nous étions tous deux responsables de l'accomplissement de cette obligation." 
 <b>Vous connaissez toutes les difficultés.</b> C'est pourquoi votre père s'est séparé de notre père, comme il est dit : "il est allé dans un pays à cause de son frère Yaakov" - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>en raison de la facture de la dette qui leur incombait, il a fait porter la charge sur Yaakov. 
 
 ### passuk 15

@@ -23,11 +23,11 @@
 ### passuk 11
 
 ### passuk 12
-<b>Et il débarrassa [le pays] des prostituées.</b> [Targum] Yonoson a rendu : "et il abolit les prostituées".
+<b>Et il débarrassa [le pays] des prostituées.</b> [Targum] Yonatanh a rendu : "et il abolit les prostituées".
 
 ### passuk 13
 <b>Il l'a retirée de sa position d'autorité.</b> De sa position de reine.
-<b>Car elle avait fait une image effrayante.</b> Nos rabbins ont déclaré [que מפלצת est une combinaison de] מפליא ליצונתא [= lascivité extrême]. Elle lui fit un symbole phallique,<sup>1</sup><i class="footnote">Alternativement, une image qui jette la crainte et la peur sur ses adorateurs.-Radak</i> et elle copulait avec elle tous les jours.<sup>2</sup><i class="footnote">Maseches Avodah Zarah 44a.</i>
+<b>Car elle avait fait une image effrayante.</b> Nos rabbins ont déclaré [que מפלצת est une combinaison de] מפליא ליצונתא [= lascivité extrême]. Elle lui fit un symbole phallique,<sup>1</sup><i class="footnote">Alternativement, une image qui jette la crainte et la peur sur ses adorateurs.-Radak</i> et elle copulait avec elle tous les jours.<sup>2</sup><i class="footnote">Masehet Avodah Zarah 44a.</i>
 
 ### passuk 14
 <b>[Cependant] les autels [privés], il ne les a pas enlevés.</b> Les autels privés sur lesquels ils avaient pris l'habitude de sacrifier au Ciel depuis que Silo avait été détruit jusqu'à la construction du Beis [Hamikdosh], lorsque les autels privés étaient autorisés, n'étaient pas enlevés maintenant, même s'ils étaient interdits une fois le Beis [Hamikdosh] construit, et qu'ils étaient punis par une mort prématurée à cause de cela.
@@ -47,7 +47,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Il n'y aura pas d'exception.</b> Même un marié de sa chambre,</sup>3</sup><i class="footnote">Même les érudits de la Torah n'étaient pas exemptés et Asa fut puni pour cela. Voir Maseches Sotah 10a.</i> au sujet duquel il est dit : " il sera libre pour sa maison pendant un an. "<sup>4</sup><i class="footnote">Devarim 24:5.</i>
+<b>Il n'y aura pas d'exception.</b> Même un marié de sa chambre,</sup>3</sup><i class="footnote">Même les érudits de la Torah n'étaient pas exemptés et Asa fut puni pour cela. Voir Masehet Sotah 10a.</i> au sujet duquel il est dit : " il sera libre pour sa maison pendant un an. "<sup>4</sup><i class="footnote">Devarim 24:5.</i>
 
 ### passuk 23
 

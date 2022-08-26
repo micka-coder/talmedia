@@ -8,7 +8,7 @@
 
 ### passuk 3
 <b>Pe'or.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce qu'ils dénudaient, leurs fesses devant lui et se soulageaient - c'est ainsi qu'on l'adorait. 
-<b>La rage d'Adonoy s'enflamma contre Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il envoya une plaie sur eux.
+<b>La rage d'Hachem s'enflamma contre Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il envoya une plaie sur eux.
 
 ### passuk 4
 <b>Prenez tous les chefs du peuple.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour porter un jugement sur ceux qui adoraient Pe'or.
@@ -22,7 +22,7 @@
 ### passuk 6
 <b>Voici, un homme est venu d'entre les Bnei Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La tribu de Shimon s'est rassemblée autour de Zimri, qui était leur chef, et lui a dit : "On nous condamne à mort, et toi tu restes assis, etc.", comme indiqué dans "Eilu Hein Hanisrafin." 
 <b>La femme midianite.</b> Kozbi, fille de Tzur. 
-<b>Sous les yeux de Moshé.</b> Ils lui ont dit : "Moshé, est-elle interdite ou permise ?". Si tu dis 'interdite', <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui t'a permis la fille de Yisro ? etc." comme il est dit là. 
+<b>Sous les yeux de Moshé.</b> Ils lui ont dit : "Moshé, est-elle interdite ou permise ?". Si tu dis 'interdite', <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui t'a permis la fille de Yitro ? etc." comme il est dit là. 
 <b>Ceux qui pleuraient.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La <i>halachah</i> lui a été cachée [que quiconque a des relations avec une femme gentille sera exécuté par les zélés], aussi ont-ils tous éclaté en sanglots. Lors du veau d'or, Moshé s'est opposé à six cent mille personnes, comme il est dit, "il l'a réduit en poudre, etc.", et pourtant ici il a été affaibli ? Mais c'était pour que Pinchas puisse venir et prendre ce qui lui revenait. 
 
 ### passuk 7
@@ -37,7 +37,7 @@
 ### passuk 10
 
 ### passuk 11
-Pinchas le fils d'Elozor, le fils d'Aharon le kohein. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les tri es l'ont dénigré, [disant] 'Avez-vous vu ce fils de "Puti", dont le père de la mère engraissait des veaux pour le culte des idoles, et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui a assassiné le chef d'une tribu d'Israël ?'. C'est pourquoi l'Écriture fait remonter sa lignée à Aharon. 
+Pinchas le fils d'Elozor, le fils d'Aharon le Cohen. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les tri es l'ont dénigré, [disant] 'Avez-vous vu ce fils de "Puti", dont le père de la mère engraissait des veaux pour le culte des idoles, et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui a assassiné le chef d'une tribu d'Israël ?'. C'est pourquoi l'Écriture fait remonter sa lignée à Aharon. 
 <b>Par sa vengeance à mon égard.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Par sa vengeance à mon égard - par sa rage là où j'aurais dû être enragé. קִנְאָה désigne toujours quelqu'un <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>enflammé pour venger quelque chose. <i>Enportation,</i> "colère enflammée", en vieux français. 
 
 ### passuk 12
@@ -45,7 +45,7 @@ Pinchas le fils d'Elozor, le fils d'Aharon le kohein. <i data-commentator="Sifte
 
 ### passuk 13
 <b>Il sera.</b> A lui - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> cette alliance de Moi.
-<b>Une alliance de kehunah éternelle.</b> Bien que la <i>kehunah</i> ait déjà été donnée aux descendants d'Aharon, elle a été donnée <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> uniquement à Aharon et à ses fils qui ont été oints avec lui, et à leurs générations qui seraient nées après leur omission. Pinchas, cependant, qui est né avant, et n'a pas été oint, n'a pas été inclus dans la <i>kehunah</i> jusqu'ici. De même, nous avons appris dans Zevachim : " Pinchas n'a pas été rendu <i>kohein</i> jusqu'à ce qu'il ait tué Zimri. </i>
+<b>Une alliance de kehunah éternelle.</b> Bien que la <i>kehunah</i> ait déjà été donnée aux descendants d'Aharon, elle a été donnée <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> uniquement à Aharon et à ses fils qui ont été oints avec lui, et à leurs générations qui seraient nées après leur omission. Pinchas, cependant, qui est né avant, et n'a pas été oint, n'a pas été inclus dans la <i>kehunah</i> jusqu'ici. De même, nous avons appris dans Zevachim : " Pinchas n'a pas été rendu <i>Cohen</i> jusqu'à ce qu'il ait tué Zimri. </i>
 <b>Pour son Dieu.</b> Pour l'amour de son Dieu, comme הַמְקַנֵּא אַתָּה לִי, "es-tu zélé 'pour' moi ?" et קִנֵּאתִי לְצִיּוֹן, "pour l'amour de Tzion." 
 
 ### passuk 14

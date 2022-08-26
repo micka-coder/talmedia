@@ -84,7 +84,7 @@
 <b>Afin qu'il fasse venir.</b> Ainsi, il ordonne à ses enfants : "Gardez la voie de Dieu afin que Dieu fasse venir sur Avraham", etc. Il n'est pas dit "sur la <i>maison</i> d'Avraham" mais, plutôt, "sur <i>Avraham</i>." Nous apprenons ainsi que celui qui produit un fils juste est considéré comme n'étant pas mort. 
 
 ### passuk 20
-<b>Adonoy a dit.</b> A Avraham. Qu'Il [Dieu] a fait ce qu'Il a dit, [c'est-à-dire] qu'Il ne lui cachera pas. 
+<b>Hachem a dit.</b> A Avraham. Qu'Il [Dieu] a fait ce qu'Il a dit, [c'est-à-dire] qu'Il ne lui cachera pas. 
 <b>Il est si grand.</b> Partout où רָבָּה apparaît dans les Écritures, l'accent est mis sur la dernière syllabe - la lettre ב - car on les traduit par "grand" ou "devenant grand". Alors que, [concernant] celui-ci, la première syllabe est accentuée sur la lettre ר parce qu'il est traduit qu'il était déjà devenu grand comme je l'ai expliqué précédemment : "Le soleil s'est couché," et, de même : "Voici que ta soeur est revenue." 
 
 ### passuk 21
@@ -94,7 +94,7 @@
 
 ### passuk 22
 <b>Ils [les hommes] se retournèrent de l'endroit où ils étaient.</b> [C'est-à-dire] de l'endroit où Avraham les avait accompagnés. 
-<b>Avraham se tenait encore devant Adonoy.</b> Mais n'est-ce pas qu'il [Avraham] n'est pas allé se tenir devant Lui ? C'est plutôt Dieu qui est venu le trouver et lui a dit : "Les lamentations concernant Sedom et Amorah sont si grandes", et il aurait fallu écrire : "Dieu se tenait encore près d'Avraham," mais, c'est une émendation des Scribes. 
+<b>Avraham se tenait encore devant Hachem.</b> Mais n'est-ce pas qu'il [Avraham] n'est pas allé se tenir devant Lui ? C'est plutôt Dieu qui est venu le trouver et lui a dit : "Les lamentations concernant Sedom et Amorah sont si grandes", et il aurait fallu écrire : "Dieu se tenait encore près d'Avraham," mais, c'est une émendation des Scribes. 
 
 ### passuk 23
 <b>Avraham s'est avancé.</b> On retrouve le terme הַגָּשָׁה [approche] pour faire la guerre : "Yoav s'est approché", etc. et הַגָּשָׁה utilisé pour désigner une "supplication" : "Yehudah s'est approché de lui", et הַגָּשָׁה pour désigner la prière : "Le prophète Eliyahu s'est approché." L'"approche" d'Avraham était pour tout cela : 1) de parler sévèrement, 2) d'implorer et 3) de prier. 
@@ -131,7 +131,7 @@
 <b>Supposons que dix s'y trouvent ?</b> Pour tout ce qui est inférieur, il n'a pas fait de demande [car] il a pensé : La génération du déluge en avait huit. Noach, ses enfants et leurs femmes, et ils n'ont pas sauvé leur génération, et pour neuf, en comptant [Dieu], il avait déjà demandé mais n'a pas pu trouver. 
 
 ### passuk 33
-<b>Adonoy s'en alla.</b> Une fois que le défenseur est réduit au silence, le Juge s'en va.
+<b>Hachem s'en alla.</b> Une fois que le défenseur est réduit au silence, le Juge s'en va.
 <b>Et Avraham retourna à sa place.</b> Une fois le Juge parti, le défenseur s'en va et le procureur accuse et en conséquence : "Les deux anges vinrent à Sedom", pour détruire. 
 
 >Crédit : primo.nli.org.il (metsudah)

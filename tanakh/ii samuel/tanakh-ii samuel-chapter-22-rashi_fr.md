@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le jour où Adonoy l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
+<b>Le jour où Hachem l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
 <b>Et des mains de Saül.</b> Saül faisait partie du groupe général [de "ses ennemis"] ? <sup>1</sup><i class="footnote">I.e. Pourquoi est-il mis à part ? </i> mais il était son plus grand ennemi et poursuivant. De même, [nous trouvons] : "Dix-neuf hommes et Asohel<sup>2</sup><i class="footnote">Plus tôt dans 2:30. où Asohel est distingué parce qu'il était égal à tous, comme le souligne Rachi.</i> De même, "Va espionner le pays et Yericho. "<sup>3</sup><i class="footnote">Yehoshua 2:1.</i> Et de même, "Le roi Shlomo aimait [beaucoup] de femmes étrangères et [il aimait] la fille de Pharaon."<sup>4</sup><i class="footnote">Melochim I, 11:1.</i>
 
 ### passuk 2
@@ -14,15 +14,15 @@
 <b>Mon refuge.</b> Je courais vers lui pour être protégé.
 
 ### passuk 4
-<b>J'appelle Adonoy en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִוׇּשֵׁעַ</span> comme étant utilisés au présent.
+<b>J'appelle Hachem en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִוׇּשֵׁעַ</span> comme étant utilisés au présent.
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
-<b>Destruction de la mort.</b> Comme le traduit [Yonoson], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
+<b>Destruction de la mort.</b> Comme le traduit [Yonatanh], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
 <b>Le déluge.</b> Les soldats se déversent comme un torrent.
 
 ### passuk 6
-<b>L'agonie.</b> Comme [Yonoson] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
+<b>L'agonie.</b> Comme [Yonatanh] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
 <b>Etaient devant moi.</b> Sont venus devant moi.
 
 ### passuk 7
@@ -33,7 +33,7 @@
 <b>Lorsque Dieu s'est mis en colère.</b> Le mot <span>כי</span> est utilisé ici pour signifier "quand", et voici son interprétation, lorsque Dieu s'est mis en colère à cause de ses antagonistes, le monde a tremblé et a frémi et les piliers du ciel ont tremblé et se sont ébranlés.
 
 ### passuk 9
-<b>La fumée s'est élevée de ses narines.</b> Telle est la manière d'une personne en colère, la fumée sort de ses narines et ainsi [on trouve] : "La fumée s'est élevée de mes narines."<sup>11</sup><i class="footnote">Yeshayohu 65:5.</i> C'est toujours le sens des mots "Colère du nez", le nez s'évase et laisse échapper l'air.
+<b>La fumée s'est élevée de ses narines.</b> Telle est la manière d'une personne en colère, la fumée sort de ses narines et ainsi [on trouve] : "La fumée s'est élevée de mes narines."<sup>11</sup><i class="footnote">Yeshayahu 65:5.</i> C'est toujours le sens des mots "Colère du nez", le nez s'évase et laisse échapper l'air.
 <b>Le feu de sa bouche a consumé [les méchants].</b> Par le décret prononcé par sa bouche, le feu [est sorti] et a consumé les méchants.
 
 ### passuk 10
@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>À ceux qui sont gentils, sincères, purs.</b> [Ces trois substantifs] représentent les trois patriarches. Dieu a payé la récompense de leur justice à leurs enfants.<sup>15</sup><i class="footnote">La gentillesse se réfère à Avrohom, la sincérité à Yitchok et la pureté à Yakov.</i>
+<b>À ceux qui sont gentils, sincères, purs.</b> [Ces trois substantifs] représentent les trois patriarches. Dieu a payé la récompense de leur justice à leurs enfants.<sup>15</sup><i class="footnote">La gentillesse se réfère à Avraham, la sincérité à Yitchok et la pureté à Yakov.</i>
 
 ### passuk 27
 <b>Et à ceux qui sont tordus.</b> [Cela fait référence à] Paroh.
@@ -91,7 +91,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>La parole d'Adonoy est claire.</b> Elle est claire, Il fait des promesses et les tient.
+<b>La parole d'Hachem est claire.</b> Elle est claire, Il fait des promesses et les tient.
 
 ### passuk 32
 
@@ -119,7 +119,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Adonoy mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Adonoy a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitzchok implora Adonoy... et Adonoy l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Adonoy a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
+<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
 
 ### passuk 43
 <b>Je les piétinerai.</b> Je les piétinerai. Il y a de nombreux cas de ce genre dans le livre de Yechezkiel, [comme] "Tu les piétineras avec tes pieds"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [et] "Tu as piétiné avec [ton] pied."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>.
@@ -138,12 +138,12 @@
 <b>De [l'agonie de] leur emprisonnement.</b> Des tortures de l'emprisonnement que je leur infligerai.
 
 ### passuk 47
-<b>Adonoy vit.</b> Qui fait tout cela pour moi.
+<b>Hachem vit.</b> Qui fait tout cela pour moi.
 
 >Crédit : sefaris
 >License : CC-BY
 ### passuk 1
-<b>Le jour où Adonoy l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
+<b>Le jour où Hachem l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
 <b>Et des mains de Saül.</b> Saül faisait partie du groupe général [de "ses ennemis"] ? <sup>1</sup><i class="footnote">I.e. Pourquoi est-il mis à part ? </i> mais il était son plus grand ennemi et poursuivant. De même, [nous trouvons] : "Dix-neuf hommes et Asohel<sup>2</sup><i class="footnote">Plus tôt dans 2:30. où Asohel est distingué parce qu'il était égal à tous, comme le souligne Rachi.</i> De même, "Va espionner le pays et Yericho. "<sup>3</sup><i class="footnote">Yehoshua 2:1.</i> Et de même, "Le roi Shlomo aimait [beaucoup] de femmes étrangères et [il aimait] la fille de Pharaon."<sup>4</sup><i class="footnote">Melochim I, 11:1.</i>
 
 ### passuk 2
@@ -157,15 +157,15 @@
 <b>Mon refuge.</b> Je courais vers lui pour être protégé.
 
 ### passuk 4
-<b>J'appelle Adonoy en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִוׇּשֵׁעַ</span> comme étant utilisés au présent.
+<b>J'appelle Hachem en le louant.</b> Selon la traduction, lorsque je l'ai appelé, je l'ai loué (avec ma bouche) car j'avais confiance que je serais sauvé de mes ennemis. Et il est possible d'interpréter les mots <span>אֶקְרָא</span> et <span>אִוׇּשֵׁעַ</span> comme étant utilisés au présent.
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
-<b>Destruction de la mort.</b> Comme le traduit [Yonoson], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
+<b>Destruction de la mort.</b> Comme le traduit [Yonatanh], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
 <b>Le déluge.</b> Les soldats se déversent comme un torrent.
 
 ### passuk 6
-<b>L'agonie.</b> Comme [Yonoson] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
+<b>L'agonie.</b> Comme [Yonatanh] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
 <b>Etaient devant moi.</b> Sont venus devant moi.
 
 ### passuk 7
@@ -176,7 +176,7 @@
 <b>Lorsque Dieu s'est mis en colère.</b> Le mot <span>כי</span> est utilisé ici pour signifier "quand", et voici son interprétation, lorsque Dieu s'est mis en colère à cause de ses antagonistes, le monde a tremblé et a frémi et les piliers du ciel ont tremblé et se sont ébranlés.
 
 ### passuk 9
-<b>La fumée s'est élevée de ses narines.</b> Telle est la manière d'une personne en colère, la fumée sort de ses narines et ainsi [on trouve] : "La fumée s'est élevée de mes narines."<sup>11</sup><i class="footnote">Yeshayohu 65:5.</i> C'est toujours le sens des mots "Colère du nez", le nez s'évase et laisse échapper l'air.
+<b>La fumée s'est élevée de ses narines.</b> Telle est la manière d'une personne en colère, la fumée sort de ses narines et ainsi [on trouve] : "La fumée s'est élevée de mes narines."<sup>11</sup><i class="footnote">Yeshayahu 65:5.</i> C'est toujours le sens des mots "Colère du nez", le nez s'évase et laisse échapper l'air.
 <b>Le feu de sa bouche a consumé [les méchants].</b> Par le décret prononcé par sa bouche, le feu [est sorti] et a consumé les méchants.
 
 ### passuk 10
@@ -221,7 +221,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>À ceux qui sont gentils, sincères, purs.</b> [Ces trois substantifs] représentent les trois patriarches. Dieu a payé la récompense de leur justice à leurs enfants.<sup>15</sup><i class="footnote">La gentillesse se réfère à Avrohom, la sincérité à Yitchok et la pureté à Yakov.</i>
+<b>À ceux qui sont gentils, sincères, purs.</b> [Ces trois substantifs] représentent les trois patriarches. Dieu a payé la récompense de leur justice à leurs enfants.<sup>15</sup><i class="footnote">La gentillesse se réfère à Avraham, la sincérité à Yitchok et la pureté à Yakov.</i>
 
 ### passuk 27
 <b>Et à ceux qui sont tordus.</b> [Cela fait référence à] Paroh.
@@ -234,7 +234,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>La parole d'Adonoy est claire.</b> Elle est claire, Il fait des promesses et les tient.
+<b>La parole d'Hachem est claire.</b> Elle est claire, Il fait des promesses et les tient.
 
 ### passuk 32
 
@@ -262,7 +262,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Adonoy mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayohu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Adonoy a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitzchok implora Adonoy... et Adonoy l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Adonoy a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
+<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
 
 ### passuk 43
 <b>Je les piétinerai.</b> Je les piétinerai. Il y a de nombreux cas de ce genre dans le livre de Yechezkiel, [comme] "Tu les piétineras avec tes pieds"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [et] "Tu as piétiné avec [ton] pied."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>.
@@ -281,7 +281,7 @@
 <b>De [l'agonie de] leur emprisonnement.</b> Des tortures de l'emprisonnement que je leur infligerai.
 
 ### passuk 47
-<b>Adonoy vit.</b> Qui fait tout cela pour moi.
+<b>Hachem vit.</b> Qui fait tout cela pour moi.
 
 >Crédit : sefaris
 >License : CC-BY

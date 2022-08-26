@@ -24,7 +24,7 @@
 <b>Sur lui.</b> Signification identique à <span>עָלָיו</span> [sur lui], c'est-à-dire sur Shaoul.
 
 ### passuk 12
-<b>Et les brûlèrent là.</b> [Le Targum rend :] "Et ils brûlèrent pour eux<sup>1</sup><i class="footnote">C'est-à-dire qu'ils brûlèrent de l'encens pour couvrir l'odeur et empêcher la décomposition des corps.-Radak</i> comme on brûle pour les rois là-bas." Comme nous l'avons appris :<sup>2</sup><i class="footnote">Les effets personnels d'un roi sont brûlés à sa mort afin d'empêcher d'autres personnes de les utiliser, comme indiqué dans le Maseches Avoda Zarah 11a.</i> Nous effectuons le [rituel] de brûlage lors de [l'enterrement des] rois, et il n'est pas [considéré] comme une coutume amorite.
+<b>Et les brûlèrent là.</b> [Le Targum rend :] "Et ils brûlèrent pour eux<sup>1</sup><i class="footnote">C'est-à-dire qu'ils brûlèrent de l'encens pour couvrir l'odeur et empêcher la décomposition des corps.-Radak</i> comme on brûle pour les rois là-bas." Comme nous l'avons appris :<sup>2</sup><i class="footnote">Les effets personnels d'un roi sont brûlés à sa mort afin d'empêcher d'autres personnes de les utiliser, comme indiqué dans le Masehet Avoda Zarah 11a.</i> Nous effectuons le [rituel] de brûlage lors de [l'enterrement des] rois, et il n'est pas [considéré] comme une coutume amorite.
 
 >Crédit : sefaris
 >Licence : CC-BY

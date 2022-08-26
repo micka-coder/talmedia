@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Il arriva que le jour où Moshé termina.</b> Le texte se lit comme suit : כַּלּוֹת . Le jour où le <i>Mishkon</i> a été érigé, les Israélites étaient comme un כַּלָּה - une mariée entrant dans le dais de mariage. 
-<b>Moshe a terminé. </b> Bezalel, Aholiav, et tous les hommes au grand cœur ont construit le <i>Mishkon,</i> pourtant l'Écriture le crédite à Moshé, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce qu'il s'y est totalement consacré, observant la conception structurelle de chaque objet telle qu'elle lui a été montrée sur la montagne (Sinaï) afin d'instruire les artisans, sans commettre une seule erreur de conception. Nous trouvons une similitude en ce qui concerne le [roi] David, car il s'est entièrement consacré à la construction du Beis Ha Mikdash - comme il est dit : "Souviens-toi, Adonoy, de toutes les afflictions de David, comment il a juré à Adonoy... etc. . etc... C'est pourquoi il a été appelé par son nom, comme il est dit : "Observe ta maison, David." 
+<b>Moshe a terminé. </b> Bezalel, Aholiav, et tous les hommes au grand cœur ont construit le <i>Mishkon,</i> pourtant l'Écriture le crédite à Moshé, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce qu'il s'y est totalement consacré, observant la conception structurelle de chaque objet telle qu'elle lui a été montrée sur la montagne (Sinaï) afin d'instruire les artisans, sans commettre une seule erreur de conception. Nous trouvons une similitude en ce qui concerne le [roi] David, car il s'est entièrement consacré à la construction du Beis Ha Mikdash - comme il est dit : "Souviens-toi, Hachem, de toutes les afflictions de David, comment il a juré à Hachem... etc. . etc... C'est pourquoi il a été appelé par son nom, comme il est dit : "Observe ta maison, David." 
 <b>[Le jour] où Moshé a fini d'ériger.</b> Il n'est pas dit : "Le jour où [Moshé] a érigé...". Cela enseigne que tout au long des sept jours d'installation, Moshé l'a érigé et démonté, et que ce jour-là, il l'a érigé sans le démonter. C'est pourquoi il est dit : "Le jour où Moshé a fini d'ériger" - ce jour-là, son érection s'est terminée. C'était le premier du mois de Nisan. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le deuxième, on brûla la vache [rousse], le troisième, on fit la première aspersion, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et le septième, [après avoir été aspergés à nouveau] on les rasa. 
 
 ### passuk 2
@@ -68,7 +68,7 @@
 
 ### passuk 21
 <b>Un [jeune] taureau.</b> Correspondant à Avraham, au sujet duquel il est dit : "Il prit un jeune taureau". 
-<b>Un bélier.</b> Correspondant à Yitzchok, "Il a pris le bélier". 
+<b>Un bélier.</b> Correspondant à Yitshak, "Il a pris le bélier". 
 <b>Une brebis [d'un an].</b> Correspondant de Yaakov : "Yaakov sépara la brebis."
 
 ### passuk 22

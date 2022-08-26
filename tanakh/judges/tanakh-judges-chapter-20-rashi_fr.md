@@ -20,13 +20,13 @@
 ### passuk 9
 
 ### passuk 10
-<b>Lorsqu'ils agissent dans leur engagement</b> dans cet engagement avec Givas Binyomin, comme il convient à leur entièrement détestable, etc.
+<b>Lorsqu'ils agissent dans leur engagement</b> dans cet engagement avec Givas Binyamin, comme il convient à leur entièrement détestable, etc.
 
 ### passuk 11
 <b>Camarades.</b> En conseil unifié.
 
 ### passuk 12
-<b>A toutes les tribus de Binyomin.</b> Leurs dix clans étaient considérés comme dix familles, de sorte que douze tribus émaneraient de Rochel.</sup>2</sup><i class="footnote">Les dix clans et les tribus de Menashe et d'Efraim.</i>
+<b>A toutes les tribus de Binyamin.</b> Leurs dix clans étaient considérés comme dix familles, de sorte que douze tribus émaneraient de Rochel.</sup>2</sup><i class="footnote">Les dix clans et les tribus de Menashe et d'Efraim.</i>
 
 ### passuk 13
 
@@ -76,21 +76,21 @@
 
 ### passuk 33
 <b>Baal Tamar.</b> La plaine de Yericho.</sup></sup><i class="footnote">"Tamar", lit. "datte", fait allusion à Yericho, "la ville des dattes". Devarim, 34:3.</i>
-<b>Versé.</b> Se sont étendus, comme dans "Il tirera le Yardein dans sa bouche"<sup>8</sup><i class="footnote">Eyov, 40:23.</i> "Tu m'as tiré du ventre"<sup>9</sup><i class="footnote">Tehilim, 22:10.</i>.
-<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité"<sup>10</sup><i class="footnote">"Maareh" vient de <i>"Ervah,"</i> nudité. </i> ou surplomb exposé de Givas Binyomin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans : "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accuse ses frères d'espionnage, affirmant. qu'ils recherchaient la "nudité" de l'Égypte, c'est-à-dire les zones exposées et sans défense.</i>
+<b>Versé.</b> Se sont étendus, comme dans "Il tirera le Jourdain dans sa bouche"<sup>8</sup><i class="footnote">Eyov, 40:23.</i> "Tu m'as tiré du ventre"<sup>9</sup><i class="footnote">Tehilim, 22:10.</i>.
+<b>Maareh Gev'ah.</b> D'un col étroit, la "nudité"<sup>10</sup><i class="footnote">"Maareh" vient de <i>"Ervah,"</i> nudité. </i> ou surplomb exposé de Givas Binyamin ; sa partie découverte à partir de laquelle il était sans défense contre la conquête, comme dans : "Vous êtes venus contempler la nudité du pays."<sup>11</sup><i class="footnote">Beraishis, 42:9. Yoseif accuse ses frères d'espionnage, affirmant. qu'ils recherchaient la "nudité" de l'Égypte, c'est-à-dire les zones exposées et sans défense.</i>
 
 ### passuk 34
 
 ### passuk 35
 
 ### passuk 36
-<b>Les troupes yisroélites ont cédé.</b> Ceux qui étaient sur le terrain ont cédé du terrain à Binyomin pour s'échapper vers Givoh, car les Yisroélites dépendaient des embusqueurs pour avancer vers eux.
+<b>Les troupes yisroélites ont cédé.</b> Ceux qui étaient sur le terrain ont cédé du terrain à Binyamin pour s'échapper vers Givoh, car les Yitroélites dépendaient des embusqueurs pour avancer vers eux.
 
 ### passuk 37
 <b>Les embusqueurs ont donné le signal.</b> Le coup de shofar. Une autre interprétation : Avec le shofar, ils ont attiré le peuple avec eux vers la ville.
 
 ### passuk 38
-<b>Un calendrier était préétabli</b> Au départ, un signal a été arrangé entre les Yisroélites et les embusqueurs, selon lequel les embusqueurs soulèveraient une fumée continue depuis la ville. Les Yisroélites comprendraient ainsi que les embusqueurs avaient conquis Givoh.
+<b>Un calendrier était préétabli</b> Au départ, un signal a été arrangé entre les Yitroélites et les embusqueurs, selon lequel les embusqueurs soulèveraient une fumée continue depuis la ville. Les Yitroélites comprendraient ainsi que les embusqueurs avaient conquis Givoh.
 <b>Nuages de fumée.</b> Fumée haute suspendue.
 
 ### passuk 39
@@ -104,14 +104,14 @@
 <b>Tandis que ceux de la ville.</b> Les embusqueurs qui avaient pénétré dans la ville démolirent la tribu de l'intérieur de la ville.
 
 ### passuk 43
-<b>Les [lit. couronné] Binyomin.</b> Ils ont encerclé Binyomin comme une couronne encercle la tête. De même, "Les puissants de Bashan m'ont encerclé"<sup>13</sup><i class="footnote">Tehilim, 22:13.</i> et, "Car le méchant encercle le saint"<sup>14</sup><i class="footnote">Chabakuk, 1:4. </i> Aussi, le mot "couronne" connote l'encerclement, comme dans, "Shaul et ses troupes ont encerclé [lit. enveloppé] David et ses troupes afin de les saisir"<sup>15</sup><i class="footnote">Shmuel 1, 23:26.</i>.
+<b>Les [lit. couronné] Binyamin.</b> Ils ont encerclé Binyamin comme une couronne encercle la tête. De même, "Les puissants de Bashan m'ont encerclé"<sup>13</sup><i class="footnote">Tehilim, 22:13.</i> et, "Car le méchant encercle le saint"<sup>14</sup><i class="footnote">Chabakuk, 1:4. </i> Aussi, le mot "couronne" connote l'encerclement, comme dans, "Shaul et ses troupes ont encerclé [lit. enveloppé] David et ses troupes afin de les saisir"<sup>15</sup><i class="footnote">Shmuel 1, 23:26.</i>.
 <b>Ils ont appelé à leur poursuite.</b> Ils ont appelé à la poursuite derrière eux - ils se sont criés les uns aux autres de poursuivre.
 <b>Et les interceptèrent au repos.</b> Dans les villes, où ils se reposaient généralement, ils les interceptèrent.
 <b>Ils les interceptaient.</b> Ils les attrapaient. On trouve un terme similaire dans le Talmud : "Il le poursuivit une parsa dans le sable, mais ne l'attrapa pas."<sup>16</sup><i class="footnote">Kesubos, 60:b.</i>.
 <b>Jusqu'à la zone qui fait face à Givoh.</b> A l'est de Givoh.
 
 ### passuk 44
-<b>Il est tombé, de Binyomin,</b> dix-huit mille soldats En campagne, dans l'épaisseur de la bataille.
+<b>Il est tombé, de Binyamin,</b> dix-huit mille soldats En campagne, dans l'épaisseur de la bataille.
 
 ### passuk 45
 <b>Ils les ont glanés.</b> Tuer sans cesse, comme on glane après la moisson.
@@ -124,9 +124,9 @@
 ### passuk 47
 
 ### passuk 48
-<b>S'est tourné vers les fils de Binyomin</b> dans toutes les villes.
+<b>S'est tourné vers les fils de Binyamin</b> dans toutes les villes.
 <b>Annihilation complète des villes.</b> Ils ont annihilé tous les habitants des villes,
-<b>Y compris le bétail</b> le peuple est inclus dans "anéantissant complètement", puisque <span><b>מְּתֹם</b></span> dénote un anéantissement absolu. Il y a un problème avec l'emplacement de mille, car vingt-six mille ont été comptés dans les villes, et sept cents à Givoh;<sup>19</sup><i class="footnote">V.15.</i> ici, ceux qui sont tombés totalisent vingt-cinq mille, cent troupes,<sup>20</sup><i class="footnote">V. 46.</i> et six cents se sont échappés vers la falaise de Rimon.<sup>21</sup><i class="footnote">V. 47. Ce qui fait un total de 25 700, alors que le total du v. 15 était de 26 700.</i> De toute évidence, mille ont fui vers les villes, et sont tombés le lendemain lorsque les Bnei Israël se sont tournés vers les villes de Binyomin pour anéantir les femmes et les enfants.
+<b>Y compris le bétail</b> le peuple est inclus dans "anéantissant complètement", puisque <span><b>מְּתֹם</b></span> dénote un anéantissement absolu. Il y a un problème avec l'emplacement de mille, car vingt-six mille ont été comptés dans les villes, et sept cents à Givoh;<sup>19</sup><i class="footnote">V.15.</i> ici, ceux qui sont tombés totalisent vingt-cinq mille, cent troupes,<sup>20</sup><i class="footnote">V. 46.</i> et six cents se sont échappés vers la falaise de Rimon.<sup>21</sup><i class="footnote">V. 47. Ce qui fait un total de 25 700, alors que le total du v. 15 était de 26 700.</i> De toute évidence, mille ont fui vers les villes, et sont tombés le lendemain lorsque les Bnei Israël se sont tournés vers les villes de Binyamin pour anéantir les femmes et les enfants.
 
 >Crédit : sefaris
 >Licence : CC-BY

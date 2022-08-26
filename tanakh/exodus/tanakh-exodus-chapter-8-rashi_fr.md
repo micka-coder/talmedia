@@ -27,7 +27,7 @@
 
 ### passuk 11
 <b>Il a endurci son cœur. </b> [Le mot הַכְבֵּד] est à la forme infinitive la même que הָלוֹךְ וְנָסוֹעַ " aller et voyager ", et de même " וְהַכּוֹת (frapper) les Moabites ", [ou : ] " וְשָׁאוֹל (et demander) Hachem pour lui " [ou :] " הַכֵּה וּפָצֹעַ frapper et blesser. " 
-<b>Comme Adonoy l'avait dit.</b> Et où avait-Il dit cela ? Quand Il a dit : "Le pharaon ne t'écoutera pas". 
+<b>Comme Hachem l'avait dit.</b> Et où avait-Il dit cela ? Quand Il a dit : "Le pharaon ne t'écoutera pas". 
 
 ### passuk 12
 <b>Dis à Aharon.</b> Il ne convenait pas que la poussière soit frappée par Moshé parce qu'elle l'avait protégé lorsqu'il avait tué l'Égyptien et l'avait caché dans le sable et qu'elle fut [au contraire] frappée par Aharon.
@@ -41,7 +41,7 @@
 
 ### passuk 15
 <b>"C'est le doigt d'Elohim"</b> [C'est-à-dire que] cette plaie n'a pas été provoquée par la sorcellerie - elle vient d'Hachem. 
-<b>Comme Adonoy l'avait dit.</b> "Pharaon ne t'écoutera pas."
+<b>Comme Hachem l'avait dit.</b> "Pharaon ne t'écoutera pas."
 
 ### passuk 16
 
@@ -51,7 +51,7 @@
 
 ### passuk 18
 <b>Je vais mettre à part.</b> [וְהִפְלֵיתִי signifie] Je vais mettre à part. De même : וְהִפְלָה ה' - "Hachem mettra à part." De même : " Il n'est pas נִפְלֵאת de Toi ", [c'est-à-dire] il n'est pas mis à part ni séparé de Toi. 
-<b>Afin que tu saches que Je suis Adonoy au milieu de la terre.</b> Bien que Ma Présence Divine soit dans les cieux, Mon décret s'accomplit dans les mondes inférieurs. 
+<b>Afin que tu saches que Je suis Hachem au milieu de la terre.</b> Bien que Ma Présence Divine soit dans les cieux, Mon décret s'accomplit dans les mondes inférieurs. 
 
 ### passuk 19
 <b>J'établirai un [signe de] délivrance -</b> qui distinguera Ma nation de votre nation.
@@ -74,7 +74,7 @@
 <b>Nous tromper.</b> [הָתֵל est] la même chose que לְהָתֵל .
 
 ### passuk 26
-<b>Et pria Adonoy.</b> [וַיֶּעְתַּר signifie] qu'il s'est exercé à la prière. De même, s'il avait voulu dire וַיַּעְתִּיר, il aurait pu le dire et cela aurait signifié qu'il a utilisé de nombreux [mots] de prière. Maintenant qu'il le dit en termes de וַיִּפְעַל cela signifie qu'il a augmenté [l'intensité] de la prière. 
+<b>Et pria Hachem.</b> [וַיֶּעְתַּר signifie] qu'il s'est exercé à la prière. De même, s'il avait voulu dire וַיַּעְתִּיר, il aurait pu le dire et cela aurait signifié qu'il a utilisé de nombreux [mots] de prière. Maintenant qu'il le dit en termes de וַיִּפְעַל cela signifie qu'il a augmenté [l'intensité] de la prière. 
 
 ### passuk 27
 <b>Il fit partir les animaux sauvages.</b> Ils ne moururent pas comme les grenouilles, car s'ils étaient morts, ils auraient bénéficié des peaux. 

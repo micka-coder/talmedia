@@ -20,7 +20,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Du klan de Yehouda.</b> Il était un Leivi maternellement.</sup>14</sup><i class="footnote">Paternellement, il descendait de Yehouda. Cela explique pourquoi il était à la fois "du klan de Yehouda", et un Lévi.</i> Cependant, les rabbins<sup>15</sup><i class="footnote">Bava Basra, 109:b.</i> interprètent cela, car il s'est comporté comme Menasheh,<sup>16</sup><i class="footnote">Le roi qui a institué le culte des idoles dans tout Eretz Israël. (Melachim 2, 21).</i> qui descendait de Yehouda, il est décrit comme "du klan de Yehouda". Il était en réalité un Leivi, fils de Gershom, fils de notre maître Moshé, comme il est dit explicitement plus loin, "Yehonasan, fils de Gershom, etc."<sup>17</sup><i class="footnote"></i>.
+<b>Du klan de Yehouda.</b> Il était un Leivi maternellement.</sup>14</sup><i class="footnote">Paternellement, il descendait de Yehouda. Cela explique pourquoi il était à la fois "du klan de Yehouda", et un Lévi.</i> Cependant, les rabbins<sup>15</sup><i class="footnote">Bava Batra, 109:b.</i> interprètent cela, car il s'est comporté comme Menasheh,<sup>16</sup><i class="footnote">Le roi qui a institué le culte des idoles dans tout Eretz Israël. (Melachim 2, 21).</i> qui descendait de Yehouda, il est décrit comme "du klan de Yehouda". Il était en réalité un Leivi, fils de Gershom, fils de notre maître Moshé, comme il est dit explicitement plus loin, "Yehonasan, fils de Gershom, etc."<sup>17</sup><i class="footnote"></i>.
 
 ### passuk 8
 <b>Pour faire son chemin.</b> Le chemin par lequel il allait voyager.

@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Elisha a parlé à la femme.</b> Sept ans [avant].<sup>1</sup><i class="footnote">C'est-à-dire sept ans avant l'incident décrit dans ce chapitre. Voir ci-dessus, 4:8-37.</i>
-<b>Parce qu'Adonoy a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Maseches Taanis 5a.</i>
+<b>Parce qu'Hachem a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Masehet Taanis 5a.</i>
 
 ### passuk 2
 
@@ -15,7 +15,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Elisha vint à Damesek.</b> Pour amener Geichazi à se repentir.</sup>4</sup><i class="footnote">Maseches Sotah 47a. Voir également Rachi dans Maseches Sanhedrin 107b.</i><sup>5</sup><i class="footnote">Alternativement, pour exécuter l'ordre de Dieu énoncé dans I Melochim 19:15-Radak Or, Geichazi est allé à Damesek pour demander de l'aide à Na'amon.</i>
+<b>Elisha vint à Damesek.</b> Pour amener Geichazi à se repentir.</sup>4</sup><i class="footnote">Masehet Sotah 47a. Voir également Rachi dans Masehet Sanhedrin 107b.</i><sup>5</sup><i class="footnote">Alternativement, pour exécuter l'ordre de Dieu énoncé dans I Melochim 19:15-Radak Or, Geichazi est allé à Damesek pour demander de l'aide à Na'amon.</i>
 
 ### passuk 8
 
@@ -37,7 +37,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Une couverture.</b> [Targum] Yonoson rend גּוּנְכָא [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller."-Radak Ou, un vêtement épais. -Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה,"<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend, בְּגוּנְכָא [=une couverture], c'est-à-dire, un vêtement.
+<b>Une couverture.</b> [Targum] Yonatanh rend גּוּנְכָא [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller."-Radak Ou, un vêtement épais. -Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה,"<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend, בְּגוּנְכָא [=une couverture], c'est-à-dire, un vêtement.
 <b>Il l'étendit sur son visage [celui de Ben-Hadad].</b> Pour se rafraîchir.</sup>13</sup><i class="footnote">Il dit à Ben-Hadad qu'il faisait cela pour le soulager de sa maladie, mais en réalité, Chazoeil avait l'intention de le tuer.-Radak</i>.
 
 ### passuk 16
@@ -62,13 +62,13 @@
 ### passuk 23
 
 ### passuk 24
-<b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayomim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayomim 21:20. </i>
+<b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayamim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayamim 21:20. </i>
 
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
 <b>Elisha a parlé à la femme.</b> Sept ans [avant].<sup>1</sup><i class="footnote">C'est-à-dire sept ans avant l'incident décrit dans ce chapitre. Voir ci-dessus, 4:8-37.</i>
-<b>Parce qu'Adonoy a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Maseches Taanis 5a.</i>
+<b>Parce qu'Hachem a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Masehet Taanis 5a.</i>
 
 ### passuk 2
 
@@ -82,7 +82,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Elisha vint à Damesek.</b> Pour amener Geichazi à se repentir.</sup>4</sup><i class="footnote">Maseches Sotah 47a. Voir également Rachi dans Maseches Sanhedrin 107b.</i><sup>5</sup><i class="footnote">Alternativement, pour exécuter l'ordre de Dieu énoncé dans I Melochim 19:15-Radak Or, Geichazi est allé à Damesek pour demander de l'aide à Na'amon.</i>
+<b>Elisha vint à Damesek.</b> Pour amener Geichazi à se repentir.</sup>4</sup><i class="footnote">Masehet Sotah 47a. Voir également Rachi dans Masehet Sanhedrin 107b.</i><sup>5</sup><i class="footnote">Alternativement, pour exécuter l'ordre de Dieu énoncé dans I Melochim 19:15-Radak Or, Geichazi est allé à Damesek pour demander de l'aide à Na'amon.</i>
 
 ### passuk 8
 
@@ -104,7 +104,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Une couverture.</b> [Targum] Yonoson rend גּוּנְכָא [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller."-Radak Ou, un vêtement épais. -Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה,"<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend, בְּגוּנְכָא [=une couverture], c'est-à-dire, un vêtement.
+<b>Une couverture.</b> [Targum] Yonatanh rend גּוּנְכָא [=couverture],<sup>11</sup><i class="footnote">Alternativement, "un oreiller."-Radak Ou, un vêtement épais. -Metzudas Tzion</i> et de même, "et elle le couvrit d'une couverture [=[בַּשְּׂמִיכָה,"<sup>12</sup><i class="footnote">Shoftim 4:18.</i> il rend, בְּגוּנְכָא [=une couverture], c'est-à-dire, un vêtement.
 <b>Il l'étendit sur son visage [celui de Ben-Hadad].</b> Pour se rafraîchir.</sup>13</sup><i class="footnote">Il dit à Ben-Hadad qu'il faisait cela pour le soulager de sa maladie, mais en réalité, Chazoeil avait l'intention de le tuer.-Radak</i>.
 
 ### passuk 16
@@ -129,7 +129,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayomim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayomim 21:20. </i>
+<b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayamim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayamim 21:20. </i>
 
 >Crédit : sefaris
 >Licence : CC-BY

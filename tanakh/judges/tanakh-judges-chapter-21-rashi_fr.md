@@ -24,7 +24,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Quatre cents vierges</b> Ils les plaçaient au-dessus des ouvertures des tonneaux de vin. Celles qui avaient des connaissances charnelles émettaient un arôme, les vierges non.<sup>3</sup><i class="footnote">Yevamos, 60:b.</i>
+<b>Quatre cents vierges</b> Ils les plaçaient au-dessus des ouvertures des tonneaux de vin. Celles qui avaient des connaissances charnelles émettaient un arôme, les vierges non.<sup>3</sup><i class="footnote">Yebamot, 60:b.</i>
 
 ### passuk 13
 

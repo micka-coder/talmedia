@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyomin, car le lot de Binyomin était la première des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : "Et ils le diviseront en sept parts", car Yehouda et Yoseif avaient auparavant reçu [leur héritage] comme il est dit ici : "Yehouda restera à sa limite au sud," [et la maison de Yoseif restera à sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
+<b>Le deuxième lot est sorti.</b> Il était second par rapport à celui de Binyamin, car le lot de Binyamin était la première des sept tribus dont les représentants auxquels Yehoshua a parlé [en disant] : "Et ils le diviseront en sept parts", car Yehouda et Yoseif avaient auparavant reçu [leur héritage] comme il est dit ici : "Yehouda restera à sa limite au sud," [et la maison de Yoseif restera à sa limite au nord]."<sup>1</sup><i class="footnote">Voir ci-dessus 18:5.</i> De là, il poursuit en énumérant les sept lots.
 
 ### passuk 2
 

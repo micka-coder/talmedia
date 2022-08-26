@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Il y avait quatre hommes.</b> Geichazi et ses fils.</sup>1</sup><i class="footnote">Voir Maseches Sanhedrin 107b.</i> <sup>2</sup><i class="footnote">Ces quatre personnes étaient les seules à souffrir de <i>tzora'as</i>. Elisha avait guéri tous les autres Bnei Israël souffrant de <i>tzora'as</i>.-Malbim</i>.
+<b>Il y avait quatre hommes.</b> Geichazi et ses fils.</sup>1</sup><i class="footnote">Voir Masehet Sanhedrin 107b.</i> <sup>2</sup><i class="footnote">Ces quatre personnes étaient les seules à souffrir de <i>tzora'as</i>. Elisha avait guéri tous les autres Bnei Israël souffrant de <i>tzora'as</i>.-Malbim</i>.
 <b>A l'entrée de la porte.</b> Comme il est dit : "Il vivra seul ; hors du camp sera sa demeure."<sup>3</sup><i class="footnote">Vayikra 13:46. Ceci est proscrit par la Torah pour les personnes qui souffrent de <i>tzora'as</i>.</i>
 
 ### passuk 4
@@ -50,7 +50,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Il y avait quatre hommes.</b> Geichazi et ses fils.</sup>1</sup><i class="footnote">Voir Maseches Sanhedrin 107b.</i> <sup>2</sup><i class="footnote">Ces quatre personnes étaient les seules à souffrir de <i>tzora'as</i>. Elisha avait guéri tous les autres Bnei Israël souffrant de <i>tzora'as</i>.-Malbim</i>.
+<b>Il y avait quatre hommes.</b> Geichazi et ses fils.</sup>1</sup><i class="footnote">Voir Masehet Sanhedrin 107b.</i> <sup>2</sup><i class="footnote">Ces quatre personnes étaient les seules à souffrir de <i>tzora'as</i>. Elisha avait guéri tous les autres Bnei Israël souffrant de <i>tzora'as</i>.-Malbim</i>.
 <b>A l'entrée de la porte.</b> Comme il est dit : "Il vivra seul ; hors du camp sera sa demeure."<sup>3</sup><i class="footnote">Vayikra 13:46. Ceci est proscrit par la Torah pour les personnes qui souffrent de <i>tzora'as</i>.</i>
 
 ### passuk 4

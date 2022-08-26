@@ -22,7 +22,7 @@
 <b>Si un agneau.</b> Parce qu'il y a un [détail des lois] concernant les graisses brûlées de l'agneau qui n'est pas [énoncé] en ce qui concerne [les lois des] graisses brûlées de la chèvre car on offre la queue grasse de l'agneau - c'est la raison pour laquelle les [lois concernant les agneaux et les chèvres] ont été divisées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>en deux sections.
 
 ### passuk 8
-<b>[Ils] aspergeront</b> deux applications qui [s'élèvent] à quatre [en direction]. Et il aspergera au moyen du récipient ; le <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seul sang aspergé avec le doigt du [<i>kohein</i>] était [le sang du] sacrifice pour le péché.
+<b>[Ils] aspergeront</b> deux applications qui [s'élèvent] à quatre [en direction]. Et il aspergera au moyen du récipient ; le <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seul sang aspergé avec le doigt du [<i>Cohen</i>] était [le sang du] sacrifice pour le péché.
 
 ### passuk 9
 <b>Sa graisse,</b> la partie la plus délicate, et qu'est-ce que c'est ? Toute la queue grasse. 
@@ -31,7 +31,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>La nourriture de l'holocauste d'Adonoy, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i></b> nourriture [consumée] par le feu <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour l'amour du Très Haut [Dieu]. 
+<b>La nourriture de l'holocauste d'Hachem, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i></b> nourriture [consumée] par le feu <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour l'amour du Très Haut [Dieu]. 
 <b>[Littéralement] pain,</b> signifiant "nourriture", et de même, "Détruisons l'arbre avec son pain [= fruit]", "Il a préparé beaucoup de pain [= nourriture]", "Le pain [= un festin] est fait pour rire." 
 
 ### passuk 12

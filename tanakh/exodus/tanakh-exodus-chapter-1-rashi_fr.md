@@ -69,7 +69,7 @@
 <b>Elokim a été bon pour les sages-femmes.</b> Quel était ce bien [qui leur a été fait] ?
 
 ### passuk 21
-<b>[C'est qu'] Il leur a donné des maisons.</b> Maisons de la Prêtrise et des Lévites et de la Royauté qui sont désignées comme des "maisons" (dynasties), [comme il est écrit :] "Et il construisit la Maison de Dieu et la maison du roi" ; la Prêtrise et les Lévites [descendent] de Yocheved et la Royauté de Miriam ; comme il est cité dans Maseches Sotah. 
+<b>[C'est qu'] Il leur a donné des maisons.</b> Maisons de la Prêtrise et des Lévites et de la Royauté qui sont désignées comme des "maisons" (dynasties), [comme il est écrit :] "Et il construisit la Maison de Dieu et la maison du roi" ; la Prêtrise et les Lévites [descendent] de Yocheved et la Royauté de Miriam ; comme il est cité dans Masehet Sotah. 
 
 ### passuk 22
 <b>Tout son peuple.</b> C'est aussi sur eux (les Égyptiens) qu'il a émis le décret. Le jour où Moshé est né, ses astrologues lui ont dit : "Aujourd'hui, leur sauveur est né, mais nous ne savons pas s'il est des Égyptiens ou des Juifs, mais nous prévoyons qu'il est destiné à être frappé par l'eau." C'est pourquoi, ce jour-là, il (Pharaon) a émis un décret concernant également les Égyptiens, comme il est dit : "<i>Chaque</i> fils qui naîtra" et il n'est <i>pas</i> dit : "qui naîtra chez les Hébreux". Ils (les astrologues), cependant, ne savaient pas qu'il (Moshé) était destiné à être frappé par les eaux de Meriva. 

@@ -7,7 +7,7 @@
 <b>Le pays rocheux des chèvres sauvages.</b> Les rochers des chèvres sauvages.
 
 ### passuk 4
-<b>Pour se soulager.</b> Pour déféquer.</sup></sup><i class="footnote">Masechs Yevamos 103a affirme que le terme '<span>לְהָסֵךְ אֶת דַגְלָיו</span>' est une expression euphémistique. En raison de son extrême pudeur, Shaoul s'est couvert comme une soucca [Maseches Berachos 62b], avec ses vêtements. Le mot <span>לְהָסֵךְ</span> provient de <span>סִכוּדְ</span>, qui signifie couvert.-Radak.</i>
+<b>Pour se soulager.</b> Pour déféquer.</sup></sup><i class="footnote">Masechs Yebamot 103a affirme que le terme '<span>לְהָסֵךְ אֶת דַגְלָיו</span>' est une expression euphémistique. En raison de son extrême pudeur, Shaoul s'est couvert comme une soucca [Masehet Berahot 62b], avec ses vêtements. Le mot <span>לְהָסֵךְ</span> provient de <span>סִכוּדְ</span>, qui signifie couvert.-Radak.</i>
 
 ### passuk 5
 
@@ -15,7 +15,7 @@
 <b>Après... etc.</b>
 
 ### passuk 7
-<b>Il dit à ses hommes : " [Adonoy] interdit. "</b> Ces deux versets ne sont pas écrits dans l'ordre;<sup>2</sup><i class="footnote">Selon le Radak, ces versets sont écrits dans l'ordre chronologique, et cette conversation a eu lieu après que David soit revenu vers ses hommes avec le morceau coupé de la robe de Shaoul.</i> mais comme il a commencé à parler concernant la coupe de la robe, il a terminé tout ce qui la concerne, et il a dit qu'il regrettait même d'avoir coupé la robe. Ensuite, il revient au premier sujet, et dit que concernant les commentaires de ses hommes : " Voici, concernant ce jour, etc. ". Il leur a répondu : " Qu'Adonoy interdise cela, etc. ".
+<b>Il dit à ses hommes : " [Hachem] interdit. "</b> Ces deux versets ne sont pas écrits dans l'ordre;<sup>2</sup><i class="footnote">Selon le Radak, ces versets sont écrits dans l'ordre chronologique, et cette conversation a eu lieu après que David soit revenu vers ses hommes avec le morceau coupé de la robe de Shaoul.</i> mais comme il a commencé à parler concernant la coupe de la robe, il a terminé tout ce qui la concerne, et il a dit qu'il regrettait même d'avoir coupé la robe. Ensuite, il revient au premier sujet, et dit que concernant les commentaires de ses hommes : " Voici, concernant ce jour, etc. ". Il leur a répondu : " Qu'Hachem interdise cela, etc. ".
 
 ### passuk 8
 <b>David pacifia.</b> Il les sépara et les retint par ces paroles.</sup>3</sup><i class="footnote">Le sens littéral de <span>וַיְשַׁסַּע</span> est 'il divisa ou scinda' comme dans Shoftim 14:6. En faisant preuve de tact en parlant à ses hommes, David a divisé leur opinion unanime de vouloir attaquer Shaul.-Metzudos</i>
@@ -35,7 +35,7 @@
 
 ### passuk 14
 <b>Comme dit l'ancien proverbe.</b> Le proverbe de l'Ancien du monde<sup>7</sup><i class="footnote">Il peut également signifier 'ancien proverbe' ou faire référence à un 'proverbe kadmonite', une nation mentionnée dans Bereishis 15:19. </i> [se référant à] la Torah, qui est le proverbe du Saint, Béni soit-Il. <sup>8</sup><i class="footnote">Et par conséquent <span>הַקַּדְמֹנִי</span> signifie 'L'Ancien' en référence à <span>ה׳</span> Lui-même.</i>
-<b>Du méchant vient la méchanceté.</sup>9</sup><i class="footnote">Donc, qu'elle ne vienne pas de moi même si tu la mérites.</i></b> Le Saint, Béni soit-Il, destine les méchants à tomber dans la main des méchants comme lui. Et où la Torah a-t-elle dit cela, "Et Dieu le destina à sa main"<sup>10</sup><i class="footnote">Shemos 21:13.</i> comme il est dit dans Maseches Makos.<sup>11</sup><i class="footnote"></i>.
+<b>Du méchant vient la méchanceté.</sup>9</sup><i class="footnote">Donc, qu'elle ne vienne pas de moi même si tu la mérites.</i></b> Le Saint, Béni soit-Il, destine les méchants à tomber dans la main des méchants comme lui. Et où la Torah a-t-elle dit cela, "Et Dieu le destina à sa main"<sup>10</sup><i class="footnote">Shemos 21:13.</i> comme il est dit dans Masehet Makos.<sup>11</sup><i class="footnote"></i>.
 
 ### passuk 15
 

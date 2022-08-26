@@ -17,13 +17,13 @@
 <b>Il tomba sur sa face.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>À cause de la dispute, car c'était, déjà, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>leur quatrième acte méprisable. Ils ont péché avec le veau d'or - "Moshé a imploré...". "Avec les plaignants - "Moshé a prié..." Avec les espions : "Moshé dit à Dieu : Si l'Égypte entendait... . ." Lors de la dispute de Korach, ses mains ont été affaiblies. Ceci est comparé à un prince qui a agi de manière méprisable contre son père. Son ami intime l'a apaisé la première, la deuxième et la troisième fois, mais au quatrième acte méprisable, les mains de l'ami ont été affaiblies. Il dit alors : "Combien de temps puis-je imposer au roi ? Peut-être ne me recevra-t-il plus." 
 
 ### passuk 5
-<b>Au] matin, [Adonoy] fera connaître.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est un moment où nous sommes intoxiqués, et il serait inconvenant [pour nous] de paraître en Sa Présence. Son intention était de retarder, afin qu'ils puissent se repentir. 
-<b>Au matin, Adonoy fera connaître qui est [qualifié pour être] à Lui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour les services des Lévites. 
+<b>Au] matin, [Hachem] fera connaître.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est un moment où nous sommes intoxiqués, et il serait inconvenant [pour nous] de paraître en Sa Présence. Son intention était de retarder, afin qu'ils puissent se repentir. 
+<b>Au matin, Hachem fera connaître qui est [qualifié pour être] à Lui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour les services des Lévites. 
 <b>Et qui est saint.</b> Pour la <i>kehunah</i>.
 <b>Il amènera.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ils seront près de Lui. Le Targum [Onkelos] le démontre : "Il les amènera en Sa présence." "Il les fera entrer à Son service." Selon l'interprétation midrashique de "matin" : Moshe leur a dit, "Dieu a marqué Son univers avec des frontières. Est-il possible de transformer le matin en soir ? C'est dire à quel point il vous est possible d'annuler cela, comme il est dit : "il devint soir et il devint matin, et Il sépara" De même, "Aharon fut séparé pour être consacré etc.". 
 
 ### passuk 6
-<b>Faites ceci : Prenez, pour vous, des poêles à feu.</b> Pourquoi a-t-il jugé bon de leur dire cela ? Il leur a dit : " la manière des Gentils est d'avoir une variété de rituels, avec de nombreux prêtres, [pas tous] réunis dans un seul Temple. Nous n'avons qu'un seul Dieu, une seule arche, une seule Torah, un seul autel et un seul <i>Kohein Gadol</i>. Pourtant vous - deux cent cinquante hommes - cherchez la <i>kehunah Gedolah</i> ! Moi aussi, je vais acquiescer. Ici, vous avez le service le plus précieux, l'encens, plus précieux que tous les sacrifices. Mais un poison mortel y est placé, qui a consumé Nadav et Avihu." Il les a donc avertis : "L'homme qui sera choisi par Adonoy, c'est le saint." Il était déjà saint. Ne savons-nous pas que l'élu est saint ? Au contraire, Moshé leur dit : "Je vous dis cela pour que vous ne soyez pas jugés coupables. L'élu survivra, mais vous serez tous perdus." 
+<b>Faites ceci : Prenez, pour vous, des poêles à feu.</b> Pourquoi a-t-il jugé bon de leur dire cela ? Il leur a dit : " la manière des Gentils est d'avoir une variété de rituels, avec de nombreux prêtres, [pas tous] réunis dans un seul Temple. Nous n'avons qu'un seul Dieu, une seule arche, une seule Torah, un seul autel et un seul <i>Kohein Gadol</i>. Pourtant vous - deux cent cinquante hommes - cherchez la <i>kehunah Gedolah</i> ! Moi aussi, je vais acquiescer. Ici, vous avez le service le plus précieux, l'encens, plus précieux que tous les sacrifices. Mais un poison mortel y est placé, qui a consumé Nadav et Avihu." Il les a donc avertis : "L'homme qui sera choisi par Hachem, c'est le saint." Il était déjà saint. Ne savons-nous pas que l'élu est saint ? Au contraire, Moshé leur dit : "Je vous dis cela pour que vous ne soyez pas jugés coupables. L'élu survivra, mais vous serez tous perdus." 
 <b>Poêles à feu.</b> Ustensiles pour attiser les charbons, avec une poignée. 
 
 ### passuk 7
@@ -62,13 +62,13 @@
 <b>Et ils.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Votre congrégation.
 
 ### passuk 17
-<b>Et vous offrirez devant Adonoy chaque homme son firepan.</b> Les deux cent cinquante hommes parmi vous.
+<b>Et vous offrirez devant Hachem chaque homme son firepan.</b> Les deux cent cinquante hommes parmi vous.
 
 ### passuk 18
 
 ### passuk 19
 <b>Korach se rassembla contre eux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec des moqueries. Toute cette nuit-là, il alla vers les tribus et les séduisit. - "Pensez-vous que je m'indigne pour mon seul intérêt ? Je ne m'indigne que pour l'amour de vous tous ! Ils sont venus et ont pris toutes les grandes fonctions, la monarchie pour lui, et la <i>kehunah</i> pour son frère. ...", jusqu'à ce qu'ils soient tous convaincus. 
-<b>La gloire d'Adonoy apparut.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il vint dans la colonne de nuée. 
+<b>La gloire d'Hachem apparut.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il vint dans la colonne de nuée. 
 
 ### passuk 20
 
@@ -96,10 +96,10 @@
 <b>Accomplir tous ces actes.</b> Ce que j'ai fait par la parole de Dieu ; <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>conférer la <i>kehunah Gedolah</i> à Aharon, [nommer] ses fils comme assistants, et Elitzafan comme chef des Kehosites. 
 
 ### passuk 29
-<b>Adonoy ne m'a pas envoyé.</b> Au contraire, j'ai tout fait de manière indépendante, et il (Korach) est justifié de s'opposer à moi. 
+<b>Hachem ne m'a pas envoyé.</b> Au contraire, j'ai tout fait de manière indépendante, et il (Korach) est justifié de s'opposer à moi. 
 
 ### passuk 30
-<b>Mais si Adonoy va créer une nouvelle création. </b>
+<b>Mais si Hachem va créer une nouvelle création. </b>
  Pour les tuer <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>avec une mort que personne n'a jamais connue jusqu'à présent. Quelle est cette création ? "La terre ouvrira sa bouche et les avalera." Alors, vous saurez qu'ils ont mis Dieu en colère, et j'ai parlé selon la parole du Tout-Puissant. Les rabbins interprètent, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>'si la bouche de la terre a été créée pendant les six jours de la création, très bien, mais si ce n'est pas le cas, que Dieu la crée [maintenant] !''. 
 
 ### passuk 31

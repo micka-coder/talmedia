@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Et il a été dit à la Maison de David</b> Comme il était méchant, l'Écriture n'a pas mentionné son nom.
-<b>Aram s'est allié à Ephraïm</b> lit. s'est reposé sur Ephraïm. Le roi d'Aram s'est allié au roi d'Israël pour vous attaquer. נָחָה est le genre féminin, puisque le royaume (מַלְכוּת) s'est joint. Posad dans O. F., poser, comp. (Exode 10, 14) "Et il reposa (וַיַָּנַח) dans toute la frontière de l'Égypte."
+<b>Aram s'est allié à Ephraïm</b> lit. s'est reposé sur Ephraïm. Le roi d'Aram s'est allié au roi d'Israël pour vous attaquer. נָחָה est le genre féminin, puisque le royaume (מַלְכוּת) s'est joint. Posad en ancien français, poser, comp. (Exode 10, 14) "Et il reposa (וַיַָּנַח) dans toute la frontière de l'Égypte."
 <b>et son cœur... tremblait</b> Puisque chacun individuellement lui avait déjà fait la guerre et l'avait vaincu, comme il est dit (II Chron. 28:5) : "Et le Seigneur son Dieu livra entre les mains du roi de Aram...", et il est dit plus loin (v. 6) : "Et Pékah, fils de Remalia, tua 120.000 hommes." Ces deux versets se trouvent dans les Chroniques.
 <b>comme les arbres de la forêt tremblent</b> Le son des arbres qui ne produisent pas de fruits est entendu plus que celui de tous les arbres fruitiers [var. le son des arbres fruitiers], comme on le [trouve] dans Gen. Rabbah (16:3).
 
@@ -118,7 +118,7 @@
 
 ### passuk 2
 <b>Et il a été dit à la Maison de David</b> Comme il était méchant, l'Écriture n'a pas mentionné son nom.
-<b>Aram s'est allié à Ephraïm</b> lit. s'est reposé sur Ephraïm. Le roi d'Aram s'est allié au roi d'Israël pour vous attaquer. נָחָה est le genre féminin, puisque le royaume (מַלְכוּת) s'est joint. Posad dans O. F., poser, comp. (Exode 10, 14) "Et il se reposa (וַיַָּנַח) dans toute la limite de l'Égypte."
+<b>Aram s'est allié à Ephraïm</b> lit. s'est reposé sur Ephraïm. Le roi d'Aram s'est allié au roi d'Israël pour vous attaquer. נָחָה est le genre féminin, puisque le royaume (מַלְכוּת) s'est joint. Posad en ancien français, poser, comp. (Exode 10, 14) "Et il se reposa (וַיַָּנַח) dans toute la limite de l'Égypte."
 <b>et son cœur... tremblait</b> Puisque chacun individuellement lui avait déjà fait la guerre et l'avait vaincu, comme il est dit (II Chron. 28:5) : "Et le Seigneur son Dieu livra entre les mains du roi de Aram...", et il est dit plus loin (v. 6) : "Et Pékah, fils de Remalia, tua 120.000 hommes." Ces deux versets se trouvent dans les Chroniques.
 <b>comme les arbres de la forêt tremblent</b> Le bruit des arbres qui ne produisent pas de fruits est entendu plus que celui de tous les arbres fruitiers [var. le bruit des arbres fruitiers], comme on le [trouve] dans Gen. Rabbah (16:3).
 

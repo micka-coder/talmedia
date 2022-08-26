@@ -19,12 +19,12 @@
 ### passuk 6
 
 ### passuk 7
-<b>Non pas à cause de la multitude de votre population.</b> Ceci est à prendre littéralement, mais il y a aussi une interprétation midrashique : Parce que vous ne vous glorifiez pas (vantardise) lorsque je vous comble de bienfaits, c'est pourquoi [Adonoy] a pris plaisir à vous. 
-<b>Parce que vous êtes les plus petits.</b> Vous vous diminuez vous-mêmes, comme Avrohom, qui a dit : " Je ne suis que poussière et cendre ", et comme Moshé et Aharon qui ont dit : " Que sommes-nous ? ". Et vous n'êtes pas comme Nevuchadnetzar, qui a dit : "Je serai comparé au Très-Haut", ou comme comme Sancherev, qui a dit : "Qui sont-ils parmi tous les dieux de ces pays, [qui ont délivré leur pays de ma main pour qu'Adonoy délivre Jérusalem et de ma main" ?] ou comme Chirom, qui a dit : "Je suis un dieu, sur le siège de Dieu, je suis assis." 
+<b>Non pas à cause de la multitude de votre population.</b> Ceci est à prendre littéralement, mais il y a aussi une interprétation midrashique : Parce que vous ne vous glorifiez pas (vantardise) lorsque je vous comble de bienfaits, c'est pourquoi [Hachem] a pris plaisir à vous. 
+<b>Parce que vous êtes les plus petits.</b> Vous vous diminuez vous-mêmes, comme Avraham, qui a dit : " Je ne suis que poussière et cendre ", et comme Moshé et Aharon qui ont dit : " Que sommes-nous ? ". Et vous n'êtes pas comme Nevuchadnetzar, qui a dit : "Je serai comparé au Très-Haut", ou comme comme Sancherev, qui a dit : "Qui sont-ils parmi tous les dieux de ces pays, [qui ont délivré leur pays de ma main pour qu'Hachem délivre Jérusalem et de ma main" ?] ou comme Chirom, qui a dit : "Je suis un dieu, sur le siège de Dieu, je suis assis." 
 <b>Parce que tu es le plus petit.</b> Ici le mot כִּי est utilisé pour exprimer "pour".
 
 ### passuk 8
-Plutôt, par l'amour d'Adonoy. Ici le mot כִּי est utilisé pour exprimer "plutôt". "Ce n'est pas à cause de la multitude de ta population, qu'Adonoy t'a désiré, mais plutôt, par amour d'Adonoy pour toi." 
+Plutôt, par l'amour d'Hachem. Ici le mot כִּי est utilisé pour exprimer "plutôt". "Ce n'est pas à cause de la multitude de ta population, qu'Hachem t'a désiré, mais plutôt, par amour d'Hachem pour toi." 
 <b>Et en raison de son respect du serment.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En raison de son respect du serment.
 
 ### passuk 9
@@ -40,7 +40,7 @@ Plutôt, par l'amour d'Adonoy. Ici le mot כִּי est utilisé pour exprimer "p
 
 ### passuk 12
 <b>Dans le futur, en conséquence de votre attention.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si, même les commandements les moins importants qu'une personne foule [parfois] de ses talons, vous tenez compte, [alors] -. 
-<b>Adonoy, ton Dieu préservera. </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il tiendra sa promesse envers toi. 
+<b>Hachem, ton Dieu préservera. </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il tiendra sa promesse envers toi. 
 
 ### passuk 13
 <b>La progéniture de ton bétail.</b> Les jeunes de ton bétail <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que la femelle jette hors de son ventre.

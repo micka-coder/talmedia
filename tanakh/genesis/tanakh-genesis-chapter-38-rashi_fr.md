@@ -17,7 +17,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Méchant aux yeux d'Adonoy.</b> La même méchanceté que celle d'Onan. [Il gaspillerait sa semence. Car il est dit d'Onan : Dieu l'a fait mourir <i>aussi</i>. [indiquant aussi] que la mort d'Onan était pour le même péché que la mort d'Er. Pourquoi Er a-t-il gaspillé sa semence ? Pour que [sa femme] ne conçoive pas, diminuant ainsi sa beauté. 
+<b>Méchant aux yeux d'Hachem.</b> La même méchanceté que celle d'Onan. [Il gaspillerait sa semence. Car il est dit d'Onan : Dieu l'a fait mourir <i>aussi</i>. [indiquant aussi] que la mort d'Onan était pour le même péché que la mort d'Er. Pourquoi Er a-t-il gaspillé sa semence ? Pour que [sa femme] ne conçoive pas, diminuant ainsi sa beauté. 
 
 ### passuk 8
 <b>Et établir une semence.</b> Le fils sera appelé par le nom de celui qui est mort.

@@ -28,18 +28,18 @@
 ### passuk 6
 <b>Veuillez écouter mes paroles.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> נָא est interprété strictement comme une demande.
 <b>S'il y aura votre prophète.</b> Si <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> vous aurez des prophètes.
-<b>[Moi,] Adonoy Me ferai connaître à lui dans une vision.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La Présence Divine de Mon Nom ne lui sera pas révélée dans le reflet illuminé, mais dans un rêve et une vision. 
+<b>[Moi,] Hachem Me ferai connaître à lui dans une vision.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La Présence Divine de Mon Nom ne lui sera pas révélée dans le reflet illuminé, mais dans un rêve et une vision. 
 
 ### passuk 7
 
 ### passuk 8
 <b>Bouche à bouche.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je lui ai dit de se séparer de sa femme. Où le lui ai-je dit ? Au Sinaï : "Va leur dire : "Retournez dans vos tentes", mais toi, tu restes ici avec Moi." 
 <b>Dans une vision, et non dans des énigmes.</b> "Dans une vision" - il s'agit de la vision de la parole, car Je lui explique Ma parole sous la forme la plus claire, Je ne la dissimule pas dans des énigmes comme il a été dit à Yechezkel : "Présentez une énigme, etc." Peut-être [cela fait-il référence à] la vision de la Présence Divine ? La Torah enseigne : "tu ne peux pas voir Ma Présence". 
-<b>Il regarde la ressemblance d'Adonoy.</b> C'est la vision du dos, selon ce qui est dit : "Mais tu peux voir ce qui est derrière Moi." 
+<b>Il regarde la ressemblance d'Hachem.</b> C'est la vision du dos, selon ce qui est dit : "Mais tu peux voir ce qui est derrière Moi." 
 <b>A propos de Mon serviteur, à propos de Moshé.</b> Il n'est pas dit : " à propos de Mon serviteur Moshé ", mais " à propos de Mon serviteur, à propos de Moshé " - à propos de Mon serviteur, même s'il n'était pas Moshé, à propos de Moshé, même s'il n'était pas Mon serviteur, Il aurait été approprié que vous soyez en admiration devant lui. Certainement puisqu'il est Mon serviteur, et que le serviteur du roi est [comme] le roi. Vous auriez dû dire : " Le roi ne l'aime pas gratuitement. Et si tu dis que <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Je ne suis pas au courant de ses actions, alors cette (déclaration) est pire que la première ! 
 
 ### passuk 9
-<b>La colère d'Adonoy s'est enflammée contre eux et Il est parti.</b> Après les avoir informés de leur comportement répréhensible, Il a décrété l'excommunication contre eux. Il est certain qu'un mortel ne doit donc pas se mettre en colère contre son prochain avant de l'informer de son comportement répréhensible. 
+<b>La colère d'Hachem s'est enflammée contre eux et Il est parti.</b> Après les avoir informés de leur comportement répréhensible, Il a décrété l'excommunication contre eux. Il est certain qu'un mortel ne doit donc pas se mettre en colère contre son prochain avant de l'informer de son comportement répréhensible. 
 
 ### passuk 10
 <b>La nuée se retira.</b> Par la suite, "voici que Miriam était lépreuse, comme la neige". Ceci est comparé à un roi qui dit à un pédagogue : " Punissez mon fils, mais ne le punissez pas avant mon départ, car j'ai pitié de lui. 
@@ -51,7 +51,7 @@
 <b>S'il vous plaît, faites qu'elle ne soit pas,</b> notre soeur. 
 <b>Comme un mort.</b> Puisque le lépreux est considéré comme mort. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même que les morts provoquent une souillure rituelle en entrant [dans une pièce], de même le lépreux provoque une souillure rituelle en entrant. 
 <b>Cela, puisqu'il est sorti du ventre de sa mère.</b> "<i>Notre</i> mère" aurait dû être dit, mais l'Écriture euphémise. De même, "la moitié de sa chair" - "la moitié de <i>notre</i> chair" aurait dû être dit, mais l'Écriture euphémise. Que, puisqu'elle est sortie du sein de notre mère, [ce] qu'elle [souffre] est à nous, comme si la moitié de notre chair était rongée. Ceci est semblable à ce qui est dit : " car il est notre frère, notre chair ". L'interprétation simple semble également la même. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il est inadmissible pour un frère de permettre à sa sœur de rester comme morte. 
-<b>C'est que, puisqu'il est venu.</b> Puisqu'il est [aussi] venu du ventre de la mère de cette personne qui a le pouvoir de l'aider mais ne le fait pas, alors la moitié de sa propre chair est rongée, comme son frère, est sa chair. Une autre interprétation [de] "S'il vous plaît, faites qu'elle ne soit pas comme un mort". Si tu ne la guéris pas par la prière, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui la confinera, et qui la purifiera ? Il m'est impossible de l'examiner, car je suis parent, et un parent ne peut pas examiner les symptômes de la lèpre. Et il n'y a pas d'autre <i>kohein</i> dans le monde. C'est [ce que l'on entend par] "que, depuis qu'il est sorti du ventre de sa mère". 
+<b>C'est que, puisqu'il est venu.</b> Puisqu'il est [aussi] venu du ventre de la mère de cette personne qui a le pouvoir de l'aider mais ne le fait pas, alors la moitié de sa propre chair est rongée, comme son frère, est sa chair. Une autre interprétation [de] "S'il vous plaît, faites qu'elle ne soit pas comme un mort". Si tu ne la guéris pas par la prière, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui la confinera, et qui la purifiera ? Il m'est impossible de l'examiner, car je suis parent, et un parent ne peut pas examiner les symptômes de la lèpre. Et il n'y a pas d'autre <i>Cohen</i> dans le monde. C'est [ce que l'on entend par] "que, depuis qu'il est sorti du ventre de sa mère". 
 
 ### passuk 13
 <b>S'il te plaît, Dieu, guéris-la.</b> L'Écriture vient enseigner le comportement adéquat - que celui qui demande quelque chose à son prochain doit dire deux ou trois mots de supplication, puis, ensuite, faire ses demandes. 

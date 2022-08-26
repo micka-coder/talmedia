@@ -87,7 +87,7 @@
 
 ### passuk 26
 <b>Ils sont à l'affût</b> Heb. ישור. Comp. למען שוררי à cause de ceux qui m'attendent (Psaumes 27, 11), expression de "je le vois (אשורנו) mais pas près" (Num. 24, 17).
-<b>comme un piège mord</b> Comme un piège qu'on fabrique pour attraper les cerfs dans la forêt, mord lorsque son pied y entre et qu'il le mord et s'accroche à son pied et qu'il est pris, et on appelle cela (piege en O. F.).
+<b>comme un piège mord</b> Comme un piège qu'on fabrique pour attraper les cerfs dans la forêt, mord lorsque son pied y entre et qu'il le mord et s'accroche à son pied et qu'il est pris, et on appelle cela (piege en ancien français).
 <b>they stationed an ambush</b> (Canbel en ancien français.) Ainsi font ceux qui se mettent à l'affût dans une ville ou sur la route.
 <b>they station</b> Heb. יציבו, comme "la garnison (מצב) des Philistins" (I Sam. 14:4).
 
@@ -195,7 +195,7 @@
 
 ### passuk 26
 <b>Ils sont à l'affût</b> Heb. ישור. Comp. למען שוררי à cause de ceux qui m'attendent (Psaumes 27, 11), expression de "je le vois (אשורנו) mais pas près" (Num. 24, 17).
-<b>comme un piège mord</b> Comme un piège qu'on fabrique pour attraper les cerfs dans la forêt, mord lorsque son pied y entre et qu'il le mord et s'accroche à son pied et qu'il est pris, et on appelle cela (piege en O. F.).
+<b>comme un piège mord</b> Comme un piège qu'on fabrique pour attraper les cerfs dans la forêt, mord lorsque son pied y entre et qu'il le mord et s'accroche à son pied et qu'il est pris, et on appelle cela (piege en ancien français).
 <b>they stationed an ambush</b> (Canbel en ancien français.) Ainsi font ceux qui se mettent à l'affût dans une ville ou sur la route.
 <b>they station</b> Heb. יציבו, comme "la garnison (מצב) des Philistins" (I Sam. 14:4).
 

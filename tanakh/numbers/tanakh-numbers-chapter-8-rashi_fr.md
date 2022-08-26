@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Lorsque tu allumes.</b> Pourquoi le <i>parshah</i> de la Ménorah est-il adjacent au <i>parshah</i> des dirigeants ? Parce que lorsqu'Aharon a vu la dédicace (les offrandes) des dirigeants, il a été humilié, car il ne s'est pas joint à eux pour la dédicace, ni lui ni sa tribu. Le Saint, Béni soit-Il, lui dit : "Par ta vie, la tienne est plus grande que la leur ! Car tu vas allumer et purifier les lampes." 
-<b>Lorsque tu allumes (littéralement : fais monter).</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que la flamme monte, l'allumage est décrit en termes de "montée". Il est tenu d'allumer [la lampe] jusqu'à ce que la flamme monte d'elle-même. En outre, les rabbins déduisent d'ici <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qu'il y avait une plate-forme devant la Menorah, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur laquelle le <i>kohein</i> se tenait lorsqu'il allumait [les lampes]. 
+<b>Lorsque tu allumes (littéralement : fais monter).</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que la flamme monte, l'allumage est décrit en termes de "montée". Il est tenu d'allumer [la lampe] jusqu'à ce que la flamme monte d'elle-même. En outre, les rabbins déduisent d'ici <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qu'il y avait une plate-forme devant la Menorah, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur laquelle le <i>Cohen</i> se tenait lorsqu'il allumait [les lampes]. 
 <b>Vers la face de la Ménorah.</b> Vers la lampe du milieu qui n'était pas sur l'une des branches, mais sur la Ménorah elle-même. 
 <b>Les sept lampes jetteront [leur] lumière.</b> Les six [lampes] qui étaient sur les six branches [et une sur sa tige]. Les trois orientales tournées vers le milieu [par] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>leurs mèches. De même, les trois occidentaux - les têtes de leurs mèches [étaient] vers le milieu. Pourquoi ? Pour qu'on ne dise pas qu'Il (Dieu) a besoin de la lumière. 
 
@@ -17,7 +17,7 @@
 <b>De sa base jusqu'à ses fleurs.</b> Comme pour dire, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"La Ménorah proprement dite, dans son intégralité, et toutes ses parties dépendantes." 
 <b>Depuis sa base.</b> qui était un grand membre.
 <b>Jusqu'à ses fleurs.</b> Son travail le plus <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>délicat - c'était une seule pièce. עַד ("jusqu'à"), est habituellement utilisé dans ce sens, comme "Depuis la récolte, jusqu'au grain sur pied, et jusqu'à l'oliveraie." 
-<b>Selon la vision que [Adonoy] a montrée .... </b> <i>Data-commentator="Siftei Chakhamim" data-label="⚬"></i>Selon la forme qu'Il lui a montrée sur la montagne (Sinaï), comme il est dit : "Observe et fais-les selon la forme. ...etc." 
+<b>Selon la vision que [Hachem] a montrée .... </b> <i>Data-commentator="Siftei Chakhamim" data-label="⚬"></i>Selon la forme qu'Il lui a montrée sur la montagne (Sinaï), comme il est dit : "Observe et fais-les selon la forme. ...etc." 
 <b>C'est ainsi qu'il fit la Ménorah.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est lui qui la fit. Mais le Midrash Aggadah [affirme] que par le Saint, Béni soit-Il, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il a été fait spontanément. 
 
 ### passuk 5
@@ -39,7 +39,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Aharon agitera les Lévites comme une offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehos. C'est pourquoi il est dit d'eux : "Ils seront [chargés] d'accomplir le culte d'Adonoy", puisque l'œuvre du plus saint est sur eux - l'Arche et la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : "Une ondulation en offrande à Adonoy", car même eux étaient chargés d'un travail saint - les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merori. 
+<b>Aharon agitera les Lévites comme une offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehos. C'est pourquoi il est dit d'eux : "Ils seront [chargés] d'accomplir le culte d'Hachem", puisque l'œuvre du plus saint est sur eux - l'Arche et la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : "Une ondulation en offrande à Hachem", car même eux étaient chargés d'un travail saint - les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merori. 
 
 ### passuk 12
 
@@ -68,7 +68,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Juste comme Adonoy l'a ordonné, etc. ils ont donc fait.</b> Cela indique la louange de ceux qui ont fait, et de ceux avec qui cela a été fait - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>personne ne s'est opposé. 
+<b>Juste comme Hachem l'a ordonné, etc. ils ont donc fait.</b> Cela indique la louange de ceux qui ont fait, et de ceux avec qui cela a été fait - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>personne ne s'est opposé. 
 
 ### passuk 23
 

@@ -67,7 +67,7 @@
 <b>Et remplissez les auges.</b> [הַרְהָטִים signifie] les bassins d'eau vive qui ont été aménagés dans le pays.
 
 ### passuk 17
-<b>Et les chassa.</b> A cause de son bannissement (de Yisro).
+<b>Et les chassa.</b> A cause de son bannissement (de Yitro).
 
 ### passuk 18
 
@@ -78,7 +78,7 @@
 <b>Et qu'il mange du pain.</b> "Peut-être qu'il pourrait épouser l'un d'entre vous" comme vous le dites : "Sauf pour le pain qu'il a mangé."
 
 ### passuk 21
-<b>Et Moshé accepta.</b> וַיוֹאֶל signifie comme le traduit Onkelos [וּצְבִי ]. De même : "[הוֹאֶל] S'il vous plaît, acceptez de passer la nuit" [ou :] "Si seulement nous avions consenti" [ou :] "J'ai accepté de parler". Mais le Midrash traduit [וַיוֹאֶל] de la racine [אָלָה] [c'est-à-dire] (Moshé) lui a juré (Yisro) qu'il ne bougerait pas de Madian sans sa permission.
+<b>Et Moshé accepta.</b> וַיוֹאֶל signifie comme le traduit Onkelos [וּצְבִי ]. De même : "[הוֹאֶל] S'il vous plaît, acceptez de passer la nuit" [ou :] "Si seulement nous avions consenti" [ou :] "J'ai accepté de parler". Mais le Midrash traduit [וַיוֹאֶל] de la racine [אָלָה] [c'est-à-dire] (Moshé) lui a juré (Yitro) qu'il ne bougerait pas de Madian sans sa permission.
 
 ### passuk 22
 

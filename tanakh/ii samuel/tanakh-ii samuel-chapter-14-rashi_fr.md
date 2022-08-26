@@ -23,17 +23,17 @@
 ### passuk 10
 
 ### passuk 11
-<b>Veuillez vous souvenir d'Adonoy.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
+<b>Veuillez vous souvenir d'Hachem.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
 
 ### passuk 12
 
 ### passuk 13
 <b>Pourquoi as-tu pensé cela.</b> Tu soupçonnais qu'un juif pouvait venir tuer un autre [juif] sans témoins et sans avertissement.
-<b>Ce dont le roi s'est dit lui-même coupable.</b> Cette chose que tu as décidée pour les autres, que tu m'as dit "les cheveux de ton fils ne tomberont pas à terre." Maintenant que je t'ai révélé que cette chose n'est jamais arrivée, mais qu'il s'agissait seulement [d'une parabole] pour tes deux fils, ne reviens pas en arrière en disant : "J'ai dit cela par erreur et je me suis ravisé" afin que le roi ne ramène pas son fils, Avsholom qui lui a été exilé et qui s'est enfui.
+<b>Ce dont le roi s'est dit lui-même coupable.</b> Cette chose que tu as décidée pour les autres, que tu m'as dit "les cheveux de ton fils ne tomberont pas à terre." Maintenant que je t'ai révélé que cette chose n'est jamais arrivée, mais qu'il s'agissait seulement [d'une parabole] pour tes deux fils, ne reviens pas en arrière en disant : "J'ai dit cela par erreur et je me suis ravisé" afin que le roi ne ramène pas son fils, Avshalom qui lui a été exilé et qui s'est enfui.
 <b>Le roi dira.</b> <i>Aucénon parle</i> en ancien français.
 
 ### passuk 14
-<b>Nous allons [tous] mourir.</b> Et ce châtiment est suffisant.</sup>4</sup><i class="footnote">Pour Avsholom.</i> 
+<b>Nous allons [tous] mourir.</b> Et ce châtiment est suffisant.</sup>4</sup><i class="footnote">Pour Avshalom.</i> 
 <b>Dieu n'approuvera personne.</b> un homme de [éviter] la mort. C'est pourquoi le roi doit imaginer des moyens pour éviter que son exilé reste un paria.
 
 ### passuk 15
@@ -45,7 +45,7 @@
 <b>Lorsque le roi entendra</b> [et acceptera] de sauver sa servante de la main de l'homme [vengeur] qui vient tuer mon fils et nous retirer tous deux de l'héritage [donné par] Dieu.<sup>5</sup><i class="footnote">Tout cela, c'est ce que la femme transmettait dans sa parabole. Tout cela était conçu pour être tolérable à entendre pour le roi.</i>
 
 ### passuk 17
-<b>Votre servante dit.</b> Maintenant que le roi a ordonné [des mesures correctives] me concernant, sa parole devrait soulager mon fils car il ne reviendra pas sur sa décision bienveillante<sup>6</sup><i class="footnote">Vous avez pris la décision bienveillante de soulager mon faux fils dans la parabole. S'il vous plaît, ne changez pas cette décision lorsque vous délibérez au sujet d'Avsholom qui, dans la vie réelle, a besoin de secours.</i> car mon maître, le roi, est comme un ange de Dieu et la colère et la haine ne changeront pas sa décision bienveillante.
+<b>Votre servante dit.</b> Maintenant que le roi a ordonné [des mesures correctives] me concernant, sa parole devrait soulager mon fils car il ne reviendra pas sur sa décision bienveillante<sup>6</sup><i class="footnote">Vous avez pris la décision bienveillante de soulager mon faux fils dans la parabole. S'il vous plaît, ne changez pas cette décision lorsque vous délibérez au sujet d'Avshalom qui, dans la vie réelle, a besoin de secours.</i> car mon maître, le roi, est comme un ange de Dieu et la colère et la haine ne changeront pas sa décision bienveillante.
 
 ### passuk 18
 
@@ -109,17 +109,17 @@
 ### passuk 10
 
 ### passuk 11
-<b>Veuillez vous souvenir d'Adonoy.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
+<b>Veuillez vous souvenir d'Hachem.</b> Dieu était rigoureux concernant la distance [nécessaire] pour sauver des vies<sup>2</sup><i class="footnote">Lorsqu'une personne tue accidentellement, elle doit se rendre dans une ville de refuge. Ces villes ne doivent jamais être trop éloignées de tout fugitif potentiel qui pourrait avoir besoin de s'y rendre.</i> comme il est dit : " Il le dépassera parce que le chemin était long ".<sup>3</sup><i class="footnote">Devorim 19:5.</i> C'est [sa référence avec] : " Pour éviter de donner plus de [temps] au vengeur pour détruire ", et vous me repoussez.
 
 ### passuk 12
 
 ### passuk 13
 <b>Pourquoi as-tu pensé cela.</b> Tu soupçonnais qu'un juif pouvait venir tuer un autre [juif] sans témoins et sans avertissement.
-<b>Ce dont le roi s'est dit lui-même coupable.</b> Cette chose que tu as décidée pour les autres, que tu m'as dit "les cheveux de ton fils ne tomberont pas à terre." Maintenant que je t'ai révélé que cette chose n'est jamais arrivée, mais qu'il s'agissait seulement [d'une parabole] pour tes deux fils, ne reviens pas sur tes pas en disant : "J'ai dit cela par erreur et je me suis ravisé" afin que le roi ne ramène pas son fils, Avsholom qui lui a été exilé et qui s'est enfui.
+<b>Ce dont le roi s'est dit lui-même coupable.</b> Cette chose que tu as décidée pour les autres, que tu m'as dit "les cheveux de ton fils ne tomberont pas à terre." Maintenant que je t'ai révélé que cette chose n'est jamais arrivée, mais qu'il s'agissait seulement [d'une parabole] pour tes deux fils, ne reviens pas sur tes pas en disant : "J'ai dit cela par erreur et je me suis ravisé" afin que le roi ne ramène pas son fils, Avshalom qui lui a été exilé et qui s'est enfui.
 <b>Le roi dira.</b> <i>Aucénon parle</i> en ancien français.
 
 ### passuk 14
-<b>Nous allons [tous] mourir.</b> Et ce châtiment est suffisant.</sup>4</sup><i class="footnote">Pour Avsholom.</i> 
+<b>Nous allons [tous] mourir.</b> Et ce châtiment est suffisant.</sup>4</sup><i class="footnote">Pour Avshalom.</i> 
 <b>Dieu n'approuvera personne.</b> un homme de [éviter] la mort. C'est pourquoi le roi doit imaginer des moyens pour éviter que son exilé reste un paria.
 
 ### passuk 15
@@ -131,7 +131,7 @@
 <b>Lorsque le roi entendra</b> [et acceptera] de sauver sa servante de la main de l'homme [vengeur] qui vient tuer mon fils et nous retirer tous deux de l'héritage [donné par] Dieu.<sup>5</sup><i class="footnote">Tout cela, c'est ce que la femme transmettait dans sa parabole. Tout cela était conçu pour être tolérable à entendre pour le roi.</i>
 
 ### passuk 17
-<b>Votre servante dit.</b> Maintenant que le roi a ordonné [des mesures correctives] me concernant, sa parole devrait soulager mon fils car il ne reviendra pas sur sa décision bienveillante<sup>6</sup><i class="footnote">Vous avez pris la décision bienveillante de soulager mon faux fils dans la parabole. S'il vous plaît, ne changez pas cette décision lorsque vous délibérez au sujet d'Avsholom qui, dans la vie réelle, a besoin de secours.</i> car mon maître, le roi, est comme un ange de Dieu et la colère et la haine ne changeront pas sa bonne décision.
+<b>Votre servante dit.</b> Maintenant que le roi a ordonné [des mesures correctives] me concernant, sa parole devrait soulager mon fils car il ne reviendra pas sur sa décision bienveillante<sup>6</sup><i class="footnote">Vous avez pris la décision bienveillante de soulager mon faux fils dans la parabole. S'il vous plaît, ne changez pas cette décision lorsque vous délibérez au sujet d'Avshalom qui, dans la vie réelle, a besoin de secours.</i> car mon maître, le roi, est comme un ange de Dieu et la colère et la haine ne changeront pas sa bonne décision.
 
 ### passuk 18
 

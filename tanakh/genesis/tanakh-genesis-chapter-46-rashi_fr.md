@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>À Beer Sheva.</b> [בְּאֵרָה שָּׁבַע] est identique à לִבְאֵר שָׁבַע . Le suffixe ה' remplace le préfixe ל' .
-<b>Au Dieu de son père Yitzchok.</b> Une personne doit honorer son père plus qu'elle ne doit honorer son grand-père. Par conséquent, il a associé [les sacrifices] à Yitzchok et non à Avraham. 
+<b>Au Dieu de son père Yitshak.</b> Une personne doit honorer son père plus qu'elle ne doit honorer son grand-père. Par conséquent, il a associé [les sacrifices] à Yitshak et non à Avraham. 
 
 ### passuk 2
 <b>Yaakov, Yaakov.</b> [La répétition de Yaakov] est un terme d'affection. 

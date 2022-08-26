@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, qu'à partir d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup d'étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnants et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent et l'endroit devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Maseches Sotah 47a.</i>
+<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, qu'à partir d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup d'étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnants et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent et l'endroit devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Masehet Sotah 47a.</i>
 
 ### passuk 2
 
@@ -19,7 +19,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Caché, secret.</b> [Le Targum Yonoson a rendu,] "couvert et caché". "פלוני" est une expression de, "Si elle est cachée [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8.</i> elle sera couverte.<sup>5</sup><i class="footnote">Voir Megillas Rus 4:1 et Rashi là.</i>
+<b>Caché, secret.</b> [Le Targum Yonathan a rendu,] "couvert et caché". "פלוני" est une expression de, "Si elle est cachée [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8.</i> elle sera couverte.<sup>5</sup><i class="footnote">Voir Megillas Rus 4:1 et Rashi là.</i>
 <b>Secret.</b> Sans nom, car il ne voulait pas qu'il soit révélé.
 <b>Je dresserai mon camp.</b> C'est là que je camperai et que je tendrai une embuscade au roi de Israël ou à ses bandes qui passent pour piller dans mon pays par ce lieu.
 
@@ -92,13 +92,13 @@
 
 ### passuk 33
 <b>Il dit.</b> Le roi .
-<b>"Voici que cette tragédie vient d'Adonoy."</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc..., dans le siège et dans la détresse, etc."<sup>13</sup><i class="footnote">Devarim 28:53.</i>.
-<b>Que puis-je encore espérer d'Adonoy ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
+<b>"Voici que cette tragédie vient d'Hachem."</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc..., dans le siège et dans la détresse, etc."<sup>13</sup><i class="footnote">Devarim 28:53.</i>.
+<b>Que puis-je encore espérer d'Hachem ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
 
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
-<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, que d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup d'étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnants et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent et l'endroit devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Maseches Sotah 47a.</i>
+<b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, que d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup d'étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnants et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent et l'endroit devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Masehet Sotah 47a.</i>
 
 ### passuk 2
 
@@ -117,7 +117,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Caché, secret.</b> [Le Targum Yonoson a rendu,] "couvert et caché". "פלוני" est une expression de, "Si elle est cachée [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8.</i> elle sera couverte.<sup>5</sup><i class="footnote">Voir Megillas Rus 4:1 et Rashi là.</i>
+<b>Caché, secret.</b> [Le Targum Yonathan a rendu,] "couvert et caché". "פלוני" est une expression de, "Si elle est cachée [=יפלא],"<sup>4</sup><i class="footnote">Devarim 17:8.</i> elle sera couverte.<sup>5</sup><i class="footnote">Voir Megillas Rus 4:1 et Rashi là.</i>
 <b>Secret.</b> Sans nom, car il ne voulait pas qu'il soit révélé.
 <b>Je dresserai mon camp.</b> C'est là que je camperai et que je tendrai une embuscade au roi de Israël ou à ses bandes qui passent pour piller dans mon pays par ce lieu.
 
@@ -190,8 +190,8 @@
 
 ### passuk 33
 <b>Il dit.</b> Le roi .
-<b>"Voici que cette tragédie vient d'Adonoy."</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc..., dans le siège et dans la détresse, etc."<sup>13</sup><i class="footnote">Devarim 28:53.</i>.
-<b>Que puis-je encore espérer d'Adonoy ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
+<b>"Voici que cette tragédie vient d'Hachem."</b> C'est l'une des malédictions qu'Il a prononcées par l'intermédiaire de Moshé : "Et tu mangeras la chair de tes entrailles, etc..., dans le siège et dans la détresse, etc."<sup>13</sup><i class="footnote">Devarim 28:53.</i>.
+<b>Que puis-je encore espérer d'Hachem ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
 
 >Crédit : sefaris
 >Licence : CC-BY

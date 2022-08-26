@@ -70,10 +70,10 @@
 <b>Et l'autel -</b> l'autel des holocaustes, au sujet duquel il est écrit qu'il se trouve "devant l'entrée du <i>mishkon</i> de la Tente de la Rencontre." Le lavabo était légèrement tiré sur le côté et se tenait dans l'espace entre l'autel et le <i>mishkon</i> et ne gênait en rien entre eux, car il est précisé : "Et il plaça l'autel des holocaustes à l'entrée du <i>mishkon</i> de la Tente de la Rencontre", [indiquant que] l'autel était devant la Tente de la Rencontre mais que le bassin de lavage n'était pas devant la Tente de la Rencontre. Alors où était-il ? Il était légèrement tiré vers le sud. C'est ce qui est enseigné dans le Tractate Zevachim. 
 
 ### passuk 19
-<b>Leurs mains et leurs pieds.</b> Il (le <i>kohein</i>) se lavait simultanément les mains et les pieds. Ainsi avons-nous appris dans le Tractate Zevachim : Comment se faisait le lavage des mains et des pieds ? Il plaçait sa main droite sur son pied droit, et sa main gauche sur son pied gauche et les lavait. 
+<b>Leurs mains et leurs pieds.</b> Il (le <i>Cohen</i>) se lavait simultanément les mains et les pieds. Ainsi avons-nous appris dans le Tractate Zevachim : Comment se faisait le lavage des mains et des pieds ? Il plaçait sa main droite sur son pied droit, et sa main gauche sur son pied gauche et les lavait. 
 
 ### passuk 20
-<b>Avant d'entrer dans la Tente de la Rencontre -</b> pour brûler l'encens, matin et après-midi, ou pour faire l'aspersion du sang du taureau apporté par l'oint <i>kohein</i> [<i>godol</i>] et des boucs apportés pour le péché d'idolâtrie. 
+<b>Avant d'entrer dans la Tente de la Rencontre -</b> pour brûler l'encens, matin et après-midi, ou pour faire l'aspersion du sang du taureau apporté par l'oint <i>Cohen</i> [<i>godol</i>] et des boucs apportés pour le péché d'idolâtrie. 
 <b>Et ils ne mourront pas.</b> Mais, s'ils ne se lavent pas, ils <i>vont</i> mourir, car dans la Torah ont été dites des choses destinées à être comprises par déduction. De là, de l'inférence du négatif, on peut déduire le positif. 
 <b>L'autel.</b> [C'est-à-dire] l'[autel] extérieur car dans ce cas, il n'y a pas d'entrée dans la Tente de la Rencontre, mais seulement dans la cour. 
 
@@ -142,7 +142,7 @@
 
 ### passuk 37
 <b>Sa formule.</b> [Signification :] selon la quantité de ses épices.
-<b>Elle te sera sacrée pour Adonoy.</b> [Signification :] que tu ne la fasses que pour Mon Nom.
+<b>Elle te sera sacrée pour Hachem.</b> [Signification :] que tu ne la fasses que pour Mon Nom.
 
 ### passuk 38
 <b>Pour profiter de son parfum.</b> Mais, vous pouvez le faire vous-même dans ses proportions adéquates dans le but de le vendre à la communauté. 

@@ -31,7 +31,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 
 ### passuk 8
 <b>Passez cette nuit ici.</b> L'esprit sacré ne le visite que la nuit. Il en est de même pour tous les prophètes gentils, et il en était de même pour Lavan - en rêve, la nuit, comme il est dit : " Dieu apparut à Lavan l'Araméen en rêve cette nuit-là ", comme un homme qui visite sa concubine en secret. 
-<b>Selon ce que me dit Adonoy.</b> S'il me conseille d'aller avec des gens comme vous, j'irai avec vous. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Peut-être est-il indigne de Lui de me permettre d'y aller, à moins que ce ne soit avec des fonctionnaires de rang supérieur au vôtre. 
+<b>Selon ce que me dit Hachem.</b> S'il me conseille d'aller avec des gens comme vous, j'irai avec vous. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Peut-être est-il indigne de Lui de me permettre d'y aller, à moins que ce ne soit avec des fonctionnaires de rang supérieur au vôtre. 
 <b>Réservé (lit. assis)</b> Le mot dénote le fait de rester. 
 
 ### passuk 9
@@ -65,14 +65,14 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 
 ### passuk 19
 <b>Vous aussi.</b> Sa bouche l'a piégé. Vous aussi, à la fin, vous laisserez <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> dans la frustration, comme les premiers. 
-<b>Que me dira encore [Adonoy].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne modifiera pas sa parole d'une bénédiction à une malédiction. J'aimerais qu'il n'ajoute pas une bénédiction. Ici, il prophétise qu'Il (Dieu) les bénira davantage à travers lui (Bil'am). 
+<b>Que me dira encore [Hachem].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne modifiera pas sa parole d'une bénédiction à une malédiction. J'aimerais qu'il n'ajoute pas une bénédiction. Ici, il prophétise qu'Il (Dieu) les bénira davantage à travers lui (Bil'am). 
 
 ### passuk 20
 <b>Si [les hommes sont venus] pour t'appeler.</b> Si l'invitation est pour toi, tout ce que tu attends comme rémunération, alors lève-toi et va avec eux. 
 <b>Cependant.</b> Malgré toi, tout ce que je te dirai, tu le feras. Néanmoins, "Bil'am est allé". Il s'est dit : "Je pourrai peut-être le convaincre d'accepter." 
 
 ### passuk 21
-<b>[Il] a sellé son âne.</b> D'ici [on déduit] que la haine engendre l'inconvenance - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il l'a sellé lui-même. Le Saint, Béni soit-Il, dit : " Mauvais, leur patriarche Avrohom t'a déjà précédé " ! comme il est dit : "Avrohom s'est levé tôt et a sellé son âne". 
+<b>[Il] a sellé son âne.</b> D'ici [on déduit] que la haine engendre l'inconvenance - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il l'a sellé lui-même. Le Saint, Béni soit-Il, dit : " Mauvais, leur patriarche Avraham t'a déjà précédé " ! comme il est dit : "Avraham s'est levé tôt et a sellé son âne". 
 <b>Avec les dignitaires Moavites.</b> Son cœur (intention) était exactement le même que le leur.
 
 ### passuk 22
@@ -93,7 +93,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 <b>Et pressée.</b> D'autres - le pied de Bil'am.
 
 ### passuk 26
-<b>L'ange d'Adonoy passa plus loin devant.</b> Passant plus loin devant lui, procédant <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à se placer devant lui à un endroit différent, comme dans, "il passa devant eux". Il y a un Midrash Aggadah dans le Tanchuma : Pourquoi a-t-il jugé bon de s'arrêter à trois endroits ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il lui a montré les signes des patriarches. 
+<b>L'ange d'Hachem passa plus loin devant.</b> Passant plus loin devant lui, procédant <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à se placer devant lui à un endroit différent, comme dans, "il passa devant eux". Il y a un Midrash Aggadah dans le Tanchuma : Pourquoi a-t-il jugé bon de s'arrêter à trois endroits ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il lui a montré les signes des patriarches. 
 
 ### passuk 27
 
@@ -105,7 +105,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 <b>Si j'avais une épée à la main.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cette affaire était extrêmement dépréciative pour lui aux yeux des dignitaires. Cet homme est en route pour tuer verbalement une nation entière, et pourtant, pour cet âne, il exige des armes de guerre ! 
 
 ### passuk 30
-<b>C'était mon habitude.</b> Ceci suit le Targum [Onkelos]. De même, "l'homme profite-t-il de Dieu en apprenant" ? Les rabbins extrapolent ce passage du Talmud : Ils (les dignitaires) lui dirent : " Pourquoi ne montes-tu pas à cheval ? ". Il (Bil'am) leur répondit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Je l'ai envoyé paître", etc. comme le précise le Masech Avodah Zarah . 
+<b>C'était mon habitude.</b> Ceci suit le Targum [Onkelos]. De même, "l'homme profite-t-il de Dieu en apprenant" ? Les rabbins extrapolent ce passage du Talmud : Ils (les dignitaires) lui dirent : " Pourquoi ne montes-tu pas à cheval ? ". Il (Bil'am) leur répondit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Je l'ai envoyé paître", etc. comme le précise le Traité Avodah Zarah . 
 
 ### passuk 31
 
@@ -119,7 +119,7 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 
 ### passuk 34
 <b>Parce que je ne savais pas.</b> Cela aussi était désobligeant, mais il était obligé de concéder. Il s'était vanté de pouvoir deviner les pensées du Ciel, mais sa propre bouche témoignait : "Je ne savais pas." 
-<b>Si c'est mauvais à tes yeux, je reviendrai.</b> Cette réponse était <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> une attaque contre l'Omniprésent. Il (Bil'am) lui dit : "C'est Lui-même qui m'a ordonné de partir, et pourtant toi, un ange, tu annules Ses paroles. C'est une habitude chez Lui - Il dit quelque chose, et un ange le retire. Il a dit à Avrohom, 'prends ton fils, etc.' puis a annulé Ses paroles par l'intermédiaire d'un ange. Moi aussi, si c'est mauvais à tes yeux, je dois revenir." 
+<b>Si c'est mauvais à tes yeux, je reviendrai.</b> Cette réponse était <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> une attaque contre l'Omniprésent. Il (Bil'am) lui dit : "C'est Lui-même qui m'a ordonné de partir, et pourtant toi, un ange, tu annules Ses paroles. C'est une habitude chez Lui - Il dit quelque chose, et un ange le retire. Il a dit à Avraham, 'prends ton fils, etc.' puis a annulé Ses paroles par l'intermédiaire d'un ange. Moi aussi, si c'est mauvais à tes yeux, je dois revenir." 
 
 ### passuk 35
 <b>Allez avec les hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Un homme est conduit sur le chemin qu'il souhaite suivre.

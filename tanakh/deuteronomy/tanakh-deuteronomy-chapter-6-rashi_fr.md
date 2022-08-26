@@ -6,13 +6,13 @@
 ### passuk 3
 
 ### passuk 4
-<b>Adonoy est notre Dieu, Adonoy est un.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Adonoy qui est actuellement notre Dieu et non le Dieu des nations, sera à l'avenir [reconnu] comme le Dieu Unique, comme il est dit : "Car alors je livrerai aux peuples une langue pure afin qu'ils invoquent tous le Nom d'Adonoy." Et il est dit : "En ce jour-là, Adonoy sera Unique et Son nom sera Unique." 
+<b>Hachem est notre Dieu, Hachem est un.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Hachem qui est actuellement notre Dieu et non le Dieu des nations, sera à l'avenir [reconnu] comme le Dieu Unique, comme il est dit : "Car alors je livrerai aux peuples une langue pure afin qu'ils invoquent tous le Nom d'Hachem." Et il est dit : "En ce jour-là, Hachem sera Unique et Son nom sera Unique." 
 
 ### passuk 5
 <b>Vous devez aimer.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Vous devez obéir à Ses paroles (commandements) en raison de votre amour [pour Lui]. Il n'y a aucune comparaison entre celui qui obéit par amour et celui qui obéit par peur. Celui qui obéit (sert) son maître par crainte, si le maître l'accable, il le quittera et s'en ira. 
 <b>Avec tout ton cœur.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec tes deux penchants. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Autre interprétation, "avec tout ton cœur" - ton cœur ne doit pas être fragmenté avec Dieu. 
 <b>Avec toute ton âme.</b> Même s'il devait prendre ton âme.
-<b>Et avec tous tes biens.</b> Avec toutes tes richesses. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il y a des hommes dont la richesse leur est plus chère que leur corps. Il est donc dit : "Avec tous vos biens". <i>Data-commentator="Siftei Chakhamim" data-label="⚬"></i>Autre interprétation, "Avec toute mesure" - avec toute mesure qu'Il vous attribue, que ce soit une mesure de bonté ou une mesure de punition (vous devez L'aimer). De même, David a dit : "Je lèverai la coupe de la délivrance [et j'invoquerai le nom d'Adonoy]. "Je rencontre la détresse et le chagrin [et j'invoque le nom d'Adonoy]". 
+<b>Et avec tous tes biens.</b> Avec toutes tes richesses. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il y a des hommes dont la richesse leur est plus chère que leur corps. Il est donc dit : "Avec tous vos biens". <i>Data-commentator="Siftei Chakhamim" data-label="⚬"></i>Autre interprétation, "Avec toute mesure" - avec toute mesure qu'Il vous attribue, que ce soit une mesure de bonté ou une mesure de punition (vous devez L'aimer). De même, David a dit : "Je lèverai la coupe de la délivrance [et j'invoquerai le nom d'Hachem]. "Je rencontre la détresse et le chagrin [et j'invoque le nom d'Hachem]". 
 
 ### passuk 6
 <b>Et ces paroles.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quelle est la forme d'amour [qui vous est commandée] ? "Ces mots [que je vous commande aujourd'hui, etc. Car c'est ainsi que vous prenez conscience du Saint béni soit-Il, et que vous vous attacherez à Ses voies. 
@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>Et vous les enseignerez . </b> <i>Data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le mot שִׁנַנְתָּם est une expression de netteté, impliquant qu'ils (les mots de la Torah) doivent être tranchants dans ta bouche, de sorte que si une personne vous demande quelque chose à leur sujet, vous n'aurez pas besoin de bégayer (hésiter) à ce sujet, mais lui dire (la réponse) immédiatement. 
-<b>À vos enfants.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[Dans ce cas, בָנֶיךָ ] fait référence aux disciples (étudiants). Nous trouvons partout que les disciples sont désignés comme des enfants, comme il est dit : " Vous êtes les enfants d'Adonoy, votre Dieu ", et il est dit : " les enfants (disciples) des prophètes qui étaient à Beis Eil. " De même en référence au roi Chizkiyahou qui a enseigné la Torah à tout Israël, et il les a appelés enfants, comme il est dit, "Mes enfants, maintenant, ne soyez pas négligemment oublieux." Et de même que les disciples sont appelés enfants comme il est dit : "Vous êtes les enfants d'Adonoy, votre Dieu, de même le <i>Rav</i> (enseignant) est appelé père, comme il est dit : "Mon père, mon père, le char de Israël, etc.". 
+<b>À vos enfants.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[Dans ce cas, בָנֶיךָ ] fait référence aux disciples (étudiants). Nous trouvons partout que les disciples sont désignés comme des enfants, comme il est dit : " Vous êtes les enfants d'Hachem, votre Dieu ", et il est dit : " les enfants (disciples) des prophètes qui étaient à Beis Eil. " De même en référence au roi Chizkiyahou qui a enseigné la Torah à tout Israël, et il les a appelés enfants, comme il est dit, "Mes enfants, maintenant, ne soyez pas négligemment oublieux." Et de même que les disciples sont appelés enfants comme il est dit : "Vous êtes les enfants d'Hachem, votre Dieu, de même le <i>Rav</i> (enseignant) est appelé père, comme il est dit : "Mon père, mon père, le char de Israël, etc.". 
 <b>Et vous devez en discuter.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Vos principales discussions ne doivent porter que sur eux. Faites-en sorte qu'elles (les paroles de la Torah) soient primordiales et ne leur accordez pas une importance secondaire.
 <b>Lorsque vous vous endormez.</b> Je pourrais conclure que cela signifie que même si vous vous endormez à midi, il est donc précisé : "Lorsque vous vous levez." Je pourrais alors conclure que cela signifie que même si l'on se lève à minuit, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il est donc précisé : "Quand tu es assis à la maison et quand tu marches sur la route" ; ainsi la Torah parle du mode de vie habituel, [indiquant que בְּשָׁכְבְךָ signifie] le moment habituel du sommeil [et בְקוּמֶךָ signifie] le moment habituel du lever. 
 
@@ -49,7 +49,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>À Massoh.</b> Lorsqu'ils sont sortis d'Égypte, c'est là qu'ils L'ont mis à l'épreuve en ce qui concerne l'eau, comme il est dit : "Adonoy est-il parmi nous (ou non)." 
+<b>À Massoh.</b> Lorsqu'ils sont sortis d'Égypte, c'est là qu'ils L'ont mis à l'épreuve en ce qui concerne l'eau, comme il est dit : "Hachem est-il parmi nous (ou non)." 
 
 ### passuk 17
 
@@ -57,7 +57,7 @@
 <b>Les justes et les bons.</b> Il s'agit des compromis au-delà de ce qui est décrit par la loi.
 
 ### passuk 19
-<b>Comme (Adonoy) l'a déclaré.</b> Et où l'a-t-il déclaré ? "Et je ferai régner la panique dans tout le peuple, etc.". 
+<b>Comme (Hachem) l'a déclaré.</b> Et où l'a-t-il déclaré ? "Et je ferai régner la panique dans tout le peuple, etc.". 
 
 ### passuk 20
 <b>Quand ton fils te demande demain.</b> Le mot מָחָר (demain) est parfois utilisé en référence à un futur lointain.

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Après cela, Moshé et Aharon sont partis, etc.</b> Mais les anciens se sont éclipsés un par un derrière Moshé et Aharon, jusqu'à ce qu'ils se soient tous éclipsés avant d'atteindre le palais, car ils avaient peur de partir. Ils reçurent leur châtiment au Sinaï : "Moshé, seul, s'est approché d'Adonoy mais eux (les anciens) ne se sont pas approchés." [Il (Dieu) les a fait rebrousser chemin. 
+<b>Après cela, Moshé et Aharon sont partis, etc.</b> Mais les anciens se sont éclipsés un par un derrière Moshé et Aharon, jusqu'à ce qu'ils se soient tous éclipsés avant d'atteindre le palais, car ils avaient peur de partir. Ils reçurent leur châtiment au Sinaï : "Moshé, seul, s'est approché d'Hachem mais eux (les anciens) ne se sont pas approchés." [Il (Dieu) les a fait rebrousser chemin. 
 
 ### passuk 2
 

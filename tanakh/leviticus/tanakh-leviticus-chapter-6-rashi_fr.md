@@ -18,7 +18,7 @@
 <b>Il sortira les cendres</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui sont rassemblées en tas [au centre de l'autel]. Lorsqu'il y a une grande quantité [de cendres] et qu'il n'y a pas de place sur le tas de bois, il l'enlève de là. [Mais] ce n'est pas une obligation tous les jours, mais le <i>terumoh</i> est obligatoire tous les jours. 
 
 ### passuk 5
-<b>Le feu sur l'autel sera allumé avec lui - </b> [La Torah] mentionne ici plusieurs allumages, "sur son bûcher", "le feu de l'autel sera allumé avec lui" "le feu sur l'autel sera allumé avec lui", "un feu continuel sera allumé sur l'autel." Tous sont exposés dans le Masechès Yomo, [où] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>nos rabbins différaient sur le nombre de tas de bois qui s'y trouvaient. 
+<b>Le feu sur l'autel sera allumé avec lui - </b> [La Torah] mentionne ici plusieurs allumages, "sur son bûcher", "le feu de l'autel sera allumé avec lui" "le feu sur l'autel sera allumé avec lui", "un feu continuel sera allumé sur l'autel." Tous sont exposés dans le Traité Yomo, [où] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>nos rabbins différaient sur le nombre de tas de bois qui s'y trouvaient. 
 <b>Et disposez-y l'holocauste,</b> l'holocauste quotidien doit précéder [tous les autres sacrifices]. 
 <b>Les graisses du sacrifice de paix,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>si un sacrifice de paix y est apporté. Nos rabbins <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> ont appris à partir de là : "sur elle" - sur l'holocauste du matin complètent tous les sacrifices. De ceci [nous apprenons] que rien ne doit être [offert] plus tard que l'[holocauste] quotidien de l'après-midi. 
 
@@ -27,9 +27,9 @@
 <b>Il ne doit pas s'éteindre.</b> Celui qui éteint le feu de l'autel transgresse <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>deux interdictions.
 
 ### passuk 7
-<b>C'est la loi de l'offrande de repas,</b> il y a une seule loi pour toutes, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour exiger l'huile et l'encens, qui sont mentionnés dans la section [les traitant]. Peut-être, je n'appliquerais pas l'exigence de l'huile et de l'encens, uniquement [à] l'offrande d'un israélite dont on prélève une poignée ; comment le savoir de l'offrande d'un <i>kohein</i>, qui est entièrement brûlée ? Le verset dit : "la loi de". 
+<b>C'est la loi de l'offrande de repas,</b> il y a une seule loi pour toutes, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour exiger l'huile et l'encens, qui sont mentionnés dans la section [les traitant]. Peut-être, je n'appliquerais pas l'exigence de l'huile et de l'encens, uniquement [à] l'offrande d'un israélite dont on prélève une poignée ; comment le savoir de l'offrande d'un <i>Cohen</i>, qui est entièrement brûlée ? Le verset dit : "la loi de". 
 <b>Apportez-la,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> c'est-à-dire approchez-la, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> à l'angle sud-ouest [de l'autel]. 
-<b>Avant Adonoy,</b> c'est le [côté] ouest de l'autel, qui est du côté de la Tente de la Rencontre. 
+<b>Avant Hachem,</b> c'est le [côté] ouest de l'autel, qui est du côté de la Tente de la Rencontre. 
 <b>Au devant de l'autel,</b> c'est le sud, qui est la "face" de l'autel, car la rampe est placée dans cette direction. 
 
 ### passuk 8
@@ -44,17 +44,17 @@
 
 ### passuk 10
 <b>Il ne faut pas cuire [comme] du levain, leur portion,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>même les portions restantes [mangées par les <i>kohanim</i> sont interdites lorsqu'elles sont levées. 
-<b>Comme l'offrande pour le péché et comme l'offrande de culpabilité,</b> l'offrande de repas d'un pécheur est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>comme une offrande pour le péché, donc [si le <i>kohein</i>] a pris la poignée non pas pour elle, elle est invalide. [A l'inverse,] une offrande volontaire de repas est comme une offrande de culpabilité, donc s'il a pris une poignée non pour l'amour de celle-ci, elle est valide. 
+<b>Comme l'offrande pour le péché et comme l'offrande de culpabilité,</b> l'offrande de repas d'un pécheur est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>comme une offrande pour le péché, donc [si le <i>Cohen</i>] a pris la poignée non pas pour elle, elle est invalide. [A l'inverse,] une offrande volontaire de repas est comme une offrande de culpabilité, donc s'il a pris une poignée non pour l'amour de celle-ci, elle est valide. 
 
 ### passuk 11
-<b>Chaque homme,</b> même celui qui a un défaut physique. Pourquoi [= concernant quel aspect du sacerdoce] cela est-il dit ? Si pour manger [ce que le <i>kohein</i> reçoit comme portion], il a déjà été dit : "la nourriture de son Dieu, de l'offrande la plus sainte [qu'il mangera] !". Plutôt, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour inclure les [<i>kohanim</i> qui ont un défaut physique dans [le privilège] de participer à la répartition. 
+<b>Chaque homme,</b> même celui qui a un défaut physique. Pourquoi [= concernant quel aspect du sacerdoce] cela est-il dit ? Si pour manger [ce que le <i>Cohen</i> reçoit comme portion], il a déjà été dit : "la nourriture de son Dieu, de l'offrande la plus sainte [qu'il mangera] !". Plutôt, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour inclure les [<i>kohanim</i> qui ont un défaut physique dans [le privilège] de participer à la répartition. 
 <b>Tout ce qui les touchera [deviendra sacré]</b> Les offrandes saintes d'un degré mineur de sainteté ou les aliments communs qui les touchent [= l'offrande de repas] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et les absorbent, 
 <b>devront être sacrées,</b> pour devenir comme elle, [c'est-à-dire que] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>si elle [= l'offrande de repas] est invalide, elles [= les offrandes saintes] deviennent invalides, et si elle [= l'offrande de repas] est valide, elles seront consommées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> selon la règle stricte [de la consommation] de l'offrande de repas. 
 
 ### passuk 12
 
 ### passuk 13
-<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>Kohein Godol</i> - [il l'offre] chaque jour, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. "Le <i>kohein</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle." 
+<b>C'est l'offrande d'Aharon et de ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>même les <i>kohanim</i> ordinaires offrent [le] dixième d'un épha le jour où ils sont inaugurés dans le service du Temple, mais [quant à] un <i>Cohen Gadol</i> - [il l'offre] chaque jour, comme il est dit, "une offrande de repas continuelle [une moitié le matin, une moitié le soir]", etc. "Le <i>Cohen</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui sera oint à sa place parmi ses fils [le fera aussi], une loi éternelle." 
 
 ### passuk 14
 <b>Saturé,</b> ébouillanté dans l'eau bouillante autant que nécessaire. 
@@ -62,8 +62,8 @@
 <b>Une offrande de repas en morceaux brisés,</b> cela enseigne qu'il faut <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> briser. 
 
 ### passuk 15
-<b>[Le kohein] qui est oint à sa place parmi ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>celui qui est oint parmi ses fils [pour servir] à sa place. 
-<b>Il sera entièrement brûlé,</b> on ne prend pas une poignée pour les restes à manger, mais <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tout est entièrement [brûlé], et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de même : <b>Toute offrande de repas d'un <i>kohein</i> - </b>d'une offrande volontaire -...
+<b>[Le Cohen] qui est oint à sa place parmi ses fils,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>celui qui est oint parmi ses fils [pour servir] à sa place. 
+<b>Il sera entièrement brûlé,</b> on ne prend pas une poignée pour les restes à manger, mais <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tout est entièrement [brûlé], et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de même : <b>Toute offrande de repas d'un <i>Cohen</i> - </b>d'une offrande volontaire -...
 
 ### passuk 16
 <b>doit être entièrement [brûlée]. Complètement,</b> tout cela <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>également, au Très-Haut. 
@@ -73,8 +73,8 @@
 ### passuk 18
 
 ### passuk 19
-<b>[Le kohein] qui l'offre en sacrifice pour le péché,</b> celui qui accomplit son service, grâce auquel il est transformé en sacrifice pour le péché. 
-<b>[Le kohein] qui l'offre en sacrifice pour le péché le mangera.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Un homme apte [à accomplir] le service du Temple - à l'exclusion de celui qui était [rituellement] impur au moment de l'aspersion du sang, qui ne participe pas à la viande. Il est impossible de dire que [ce verset] interdit aux autres <i>kohanim</i> d'en manger, à part celui qui en asperge le sang, car il est dit plus bas : " Tout mâle parmi les <i>kohanim</i> en mangera. " 
+<b>[Le Cohen] qui l'offre en sacrifice pour le péché,</b> celui qui accomplit son service, grâce auquel il est transformé en sacrifice pour le péché. 
+<b>[Le Cohen] qui l'offre en sacrifice pour le péché le mangera.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Un homme apte [à accomplir] le service du Temple - à l'exclusion de celui qui était [rituellement] impur au moment de l'aspersion du sang, qui ne participe pas à la viande. Il est impossible de dire que [ce verset] interdit aux autres <i>kohanim</i> d'en manger, à part celui qui en asperge le sang, car il est dit plus bas : " Tout mâle parmi les <i>kohanim</i> en mangera. " 
 
 ### passuk 20
 <b>Tout ce qui touchera sa chair,</b> tout aliment <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui le touche et l'absorbe, 

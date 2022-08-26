@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Elohim a parlé.</b> אֱלֹקִים se réfère uniquement à [Dieu en tant que] Juge. Puisqu'il y a des chapitres dans la Torah qui, si une personne les accomplit, elle reçoit une récompense, mais si elle ne les accomplit pas, elle ne reçoit pas de punition, je pourrais penser que les dix commandements sont aussi de ce type. C'est pourquoi la Torah écrit : "Elohim a parlé" - qu'Il est un Juge qui exige une punition. 
-<b>Toutes ces paroles.</b> Cela enseigne que Dieu a dit les dix commandements en une seule énonciation, ce qui est impossible à prononcer pour l'homme. Si tel était le cas, alors pourquoi la Torah répète-t-elle : "Je suis Adonoy" et "Tu ne dois pas avoir" ? Parce qu'Il a explicitement répété chaque commandement séparément. 
+<b>Toutes ces paroles.</b> Cela enseigne que Dieu a dit les dix commandements en une seule énonciation, ce qui est impossible à prononcer pour l'homme. Si tel était le cas, alors pourquoi la Torah répète-t-elle : "Je suis Hachem" et "Tu ne dois pas avoir" ? Parce qu'Il a explicitement répété chaque commandement séparément. 
 <b>Dire.</b> Cela nous enseigne qu'ils ont répondu "oui" à un commandement positif et "non" à un commandement négatif.
 
 ### passuk 2
@@ -80,7 +80,7 @@
 ### passuk 21
 <b>Un autel en terre.</b> [C'est-à-dire] <i>attaché</i> à la terre [ce qui signifie :] qu'il ne doit pas être construit sur des piliers ou sur une base. Une autre explication : qu'ils doivent remplir de terre le creux de l'autel de cuivre pendant leur campement. 
 <b>Faites-le pour moi.</b> Dès son commencement, il doit être fait pour mon nom.
-<b>Et abattre près de lui.</b> [עָלָיו signifie ici :] près de lui, comme dans : "Et près de lui, il y avait la tribu de Menasheh." Ou peut-être cela signifie-t-il littéralement sur elle. La Torah dit donc : " la chair et le sang [du korbon seront mis] sur l'autel d'Adonoy ton Dieu ", mais l'égorgement ne se fait pas sur l'autel. 
+<b>Et abattre près de lui.</b> [עָלָיו signifie ici :] près de lui, comme dans : "Et près de lui, il y avait la tribu de Menasheh." Ou peut-être cela signifie-t-il littéralement sur elle. La Torah dit donc : " la chair et le sang [du korbon seront mis] sur l'autel d'Hachem ton Dieu ", mais l'égorgement ne se fait pas sur l'autel. 
 <b>Vos holocaustes, vos sacrifices d'actions de grâces -</b> qui proviennent de vos moutons et de vos bovins. D'où אֶת צֹאנְךָ וְאֶת בְקָרֶךָ est une explication de אֶת עֹלֹתֶיךָ וְאֶת שְׁלָמֶיךָ . 
 <b>Partout où Je permets que Mon Nom soit mentionné.</b> [Signification :] partout où Je vous permettrai de mentionner Mon Nom explicite, là Je viendrai à vous et vous bénirai, [signification :] Je reposerai Ma Shechinah sur vous. " De là, on apprend que la permission n'a pas été donnée de prononcer le Nom explicite sauf dans un lieu où la Shechinah vient, qui est le Beis Hamikdosh (lit. Sa maison choisie). Là, les <i>kohanim</i> étaient autorisés à prononcer le Nom explicite pendant le <i>nesias kappaim</i> (lever les mains sur le peuple) pour bénir le peuple. 
 

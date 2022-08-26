@@ -59,7 +59,7 @@
 
 ### passuk 18
 <b>Ben Oni.</b> [Signification :] fils de mon angoisse.
-<b>Binyomin.</b> Il me semble que puisque lui seul est né dans le Pays de Canaan qui est au sud pour celui qui vient de Aram Naharayim, comme il est dit : "Au sud en Terre de Canaan" [ou] "Voyageant régulièrement vers le sud". <b>Binyomin.</b> [Il est donc appelé בִּנְיָמִין ,] contraction de בֶּן יְמִין , de : "Nord et יְמִין Tu les as créés." C'est pour cette raison qu'il est écrit complet . 
+<b>Binyamin.</b> Il me semble que puisque lui seul est né dans le Pays de Canaan qui est au sud pour celui qui vient de Aram Naharayim, comme il est dit : "Au sud en Terre de Canaan" [ou] "Voyageant régulièrement vers le sud". <b>Binyamin.</b> [Il est donc appelé בִּנְיָמִין ,] contraction de בֶּן יְמִין , de : "Nord et יְמִין Tu les as créés." C'est pour cette raison qu'il est écrit complet . 
 
 ### passuk 19
 
@@ -68,7 +68,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Yaakov a été installé dans ce pays.</b> Avant sa venue à Chevron auprès de Yitzchok, tous ces [événements] lui sont arrivés. 
+<b>Yaakov a été installé dans ce pays.</b> Avant sa venue à Chevron auprès de Yitshak, tous ces [événements] lui sont arrivés. 
 <b>Dispose-toi près de moi.</b> Parce qu'il [Reuven] a dérangé son sommeil [celui de Yaakov], l'Écriture le considère comme s'il avait été avec elle. Mais, pourquoi a-t-il dérangé et profané le divan-lit [de Yaakov] ? Parce que lorsque Rachel est morte, Yaakov a pris son lit, qui se trouvait toujours dans la tente de Rachel et non dans les autres tentes, et l'a placé dans la tente de Bilha. Reuven, alors, vint protester contre l'humiliation de sa mère. Il dit : "Si la sœur de ma mère était la co-épouse de ma mère, [cela signifie-t-il que] la servante de la sœur de ma mère sera [aussi] la co-épouse de ma mère ? C'est pour cette raison qu'il a perturbé [le couchage]. 
 <b>Les fils de Yaakov étaient au nombre de douze.</b> [L'Écriture reprend] maintenant le récit précédent. Avec la naissance de Binyamin, le " lit " [le nombre destiné de descendants] était complet et ils étaient maintenant aptes à être énumérés et elle poursuit en les énumérant. Nos Sages expliquent : Cela vient nous apprendre qu'ils étaient tous égaux et tous justes, car Reuven n'est pas considéré comme ayant péché. 
 
@@ -89,7 +89,7 @@
 ### passuk 28
 
 ### passuk 29
-<b>Yitzchok a expiré.</b> L'Écriture n'est pas [nécessairement] dans l'ordre chronologique : la vente de Yoseif a précédé la mort de Yitzchok, de douze ans. [Quand Yaakov est né, Yitzchok avait soixante ans, comme il est dit : " Et Yitzchok avait soixante ans " : "Et Yitzchok avait soixante ans, etc." et Yitzchok est mort quand Yaakov avait 120 ans. Si l'on déduit 60 de 180 ans, il reste 120 ans. Yoseif a été vendu à l'âge de 17 ans, et cette année-là était la 108e année de Yaakov. Comment cela se fait-il ? Il avait 63 ans lorsqu'il a été béni. Il s'est ensuite caché pendant quatorze ans dans la maison d'Eiver, ce qui fait un total de soixante-dix-sept ans. Il a ensuite travaillé quatorze ans pour trouver une épouse. A la fin de ces quatorze années, Yoseif est né, comme il est écrit : "Ce qui fait un total de quatre-vingt-onze ans plus dix-sept ans [de la vie de Yoseif] avant qu'il ne soit vendu, soit un total de 108 ans. (Ceci peut également être dérivé des Écritures, ainsi : Entre le moment où Yoseif a été vendu et celui où Yaakov est arrivé en Égypte, vingt-deux ans se sont écoulés, comme il est dit : "Yossef avait trente ans, etc." plus les sept années d'abondance et les deux années de famine, ce qui fait 22 ans. Et il est écrit : " Les années de ma résidence temporaire sont de 130 ans ", ce qui fait que Yaakov a 108 ans à sa vente [celle de Yoseif]). 
+<b>Yitshak a expiré.</b> L'Écriture n'est pas [nécessairement] dans l'ordre chronologique : la vente de Yoseif a précédé la mort de Yitshak, de douze ans. [Quand Yaakov est né, Yitshak avait soixante ans, comme il est dit : " Et Yitshak avait soixante ans " : "Et Yitshak avait soixante ans, etc." et Yitshak est mort quand Yaakov avait 120 ans. Si l'on déduit 60 de 180 ans, il reste 120 ans. Yoseif a été vendu à l'âge de 17 ans, et cette année-là était la 108e année de Yaakov. Comment cela se fait-il ? Il avait 63 ans lorsqu'il a été béni. Il s'est ensuite caché pendant quatorze ans dans la maison d'Eiver, ce qui fait un total de soixante-dix-sept ans. Il a ensuite travaillé quatorze ans pour trouver une épouse. A la fin de ces quatorze années, Yoseif est né, comme il est écrit : "Ce qui fait un total de quatre-vingt-onze ans plus dix-sept ans [de la vie de Yoseif] avant qu'il ne soit vendu, soit un total de 108 ans. (Ceci peut également être dérivé des Écritures, ainsi : Entre le moment où Yoseif a été vendu et celui où Yaakov est arrivé en Égypte, vingt-deux ans se sont écoulés, comme il est dit : "Yossef avait trente ans, etc." plus les sept années d'abondance et les deux années de famine, ce qui fait 22 ans. Et il est écrit : " Les années de ma résidence temporaire sont de 130 ans ", ce qui fait que Yaakov a 108 ans à sa vente [celle de Yoseif]). 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

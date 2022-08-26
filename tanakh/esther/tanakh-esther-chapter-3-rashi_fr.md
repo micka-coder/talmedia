@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Après ces événements.</b> Que ce remède a été créé comme un salut pour Israël.
-<b>Le roi [Achashveirosh] a conféré une éminence à Haman.</b> En effet, le Saint Béni soit-Il, crée un remède au coup de Israël avant de porter le coup sur eux.</sup>1</sup><i class="footnote">Maseches Megillah 13b. </i> 
+<b>Le roi [Achashveirosh] a conféré une éminence à Haman.</b> En effet, le Saint Béni soit-Il, crée un remède au coup de Israël avant de porter le coup sur eux.</sup>1</sup><i class="footnote">Masehet Megillah 13b. </i> 
 
 ### passuk 2
 <b>S'agenouillèrent et se prosternèrent.</b> Parce qu'il se fit passer pour un dieu;<sup>2</sup><i class="footnote">Esther Rabba 7:5. Ou encore, ses robes étaient décorées d'idoles. (Ibn Ezra) </i> donc, "mais Mordekhaï ne voulait ni s'agenouiller ni se prosterner." 
@@ -18,7 +18,7 @@
 ### passuk 7
 <b>Un <i>pur</i> a été lancé.</b> Celui qui a lancé, a lancé, et le verset ne précise pas qui [a lancé le <i>pur</i>]. Il s'agit d'un verset abrégé. 
 <b>Signification de "lot.</b>" L'Écriture explique ; et qu'est-ce que le <i>pur</i> ? "C'est le lot." Il a tiré au sort [pour déterminer] le mois où il réussirait.
-<b>Pour un jour précis.</b> Le jour du mois où il réussirait.</sup>4</sup><i class="footnote">Haman s'est senti gratifié lorsque le sort qu'il a jeté a abouti au mois d'Adar, car Moshé est mort au cours de ce mois et c'était donc évidemment un moment inopportun pour les Juifs. (Maseches Megillah 13b) </i>. 
+<b>Pour un jour précis.</b> Le jour du mois où il réussirait.</sup>4</sup><i class="footnote">Haman s'est senti gratifié lorsque le sort qu'il a jeté a abouti au mois d'Adar, car Moshé est mort au cours de ce mois et c'était donc évidemment un moment inopportun pour les Juifs. (Masehet Megillah 13b) </i>. 
 
 ### passuk 8
 <b>Et [ils ne respectent pas] les arrêtés de sa majesté.</b> Pour payer les impôts pour l'œuvre du roi.
@@ -28,7 +28,7 @@
 <b>Que l'on inscrive qu'ils doivent être exterminés.</b> Que l'on écrive des lettres à envoyer aux ministres des provinces pour qu'ils les détruisent.<sup>5</sup><i class="footnote">Haman avait conseillé à Achashveirosh d'inciter les Juifs à se comporter de manière pécheresse afin qu'ils encourent la colère de Dieu. Suivant le conseil d'Haman, Achashveirosh invite les Juifs au festin royal. Faisant preuve de clairvoyance, Mordekhaï leur interdit d'y assister. Cependant, beaucoup ignorèrent son avertissement et se joignirent à la débauche d'alcool. L'ange incriminé a alors fait valoir que les Juifs étaient dignes d'être détruits, et Dieu a accepté. (Esther Rabba 7:13) </i> 
 
 ### passuk 10
-<b>Le roi retira son anneau.</b> Cela représente l'octroi de toute grande affaire demandée au roi;<sup>6</sup><i class="footnote">Sinon, pourquoi le roi aurait-il présenté l'anneau à Haman qui ne l'a pas demandé mais a plutôt demandé d'anéantir les Juifs. Le fait que le roi ait retiré son anneau a été plus efficace que les quarante-huit prophètes envoyés par Dieu pour admonester les Juifs. Ils n'ont pas réussi à les convaincre de se repentir, mais le transfert de l'anneau à Haman a entraîné la repentance et trois jours de jeûne. (Maseches Megillah 14a) </i>que celui qui a l'anneau à sa main est le chef de toutes les affaires du roi. 
+<b>Le roi retira son anneau.</b> Cela représente l'octroi de toute grande affaire demandée au roi;<sup>6</sup><i class="footnote">Sinon, pourquoi le roi aurait-il présenté l'anneau à Haman qui ne l'a pas demandé mais a plutôt demandé d'anéantir les Juifs. Le fait que le roi ait retiré son anneau a été plus efficace que les quarante-huit prophètes envoyés par Dieu pour admonester les Juifs. Ils n'ont pas réussi à les convaincre de se repentir, mais le transfert de l'anneau à Haman a entraîné la repentance et trois jours de jeûne. (Masehet Megillah 14a) </i>que celui qui a l'anneau à sa main est le chef de toutes les affaires du roi. 
 
 ### passuk 11
 

@@ -19,7 +19,7 @@
 <b>Dans des pots.</b> [Dans] des pots.<sup>3</sup><i class="footnote">Alternativement, "dans des paniers" qui étaient tissés de manière lâche afin que les têtes soient visibles de l'extérieur.-Ralbag</i>
 
 ### passuk 8
-<b>Piles.</b> Monticules. [Et le Targum Yonoson rendit] דְּגוּרִין [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend דְּגוֹרִין pour חֳמָרִים [=piles].</i> <i>moncels</i>, en ancien français.
+<b>Piles.</b> Monticules. [Et le Targum Yonathan rendit] דְּגוּרִין [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend דְּגוֹרִין pour חֳמָרִים [=piles].</i> <i>moncels</i>, en ancien français.
 
 ### passuk 9
 <b>"Vous êtes justes."</b> A vos yeux, vous êtes tous justes, et vous me considérez comme méchant parce que j'ai tué le roi. Mais regardez, maintenant je me suis révolté contre mon maître et je l'ai tué. Mais qui a tué tous ces gens ? Ce n'est pas moi qui les ai tués. Mais à partir de ceux-ci, vous saurez alors que c'est un décret du roi sur eux, et que celui qui les tue est juste et accomplit le commandement de l'Omniprésent.
@@ -29,7 +29,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Le lieu de rassemblement des bergers.</b> [Targum Yonoson] rend בֵּית כְּנִישַׁת רָעֲיָא [=la maison où se rassemblent les bergers].
+<b>Le lieu de rassemblement des bergers.</b> [Targum Yonathan] rend בֵּית כְּנִישַׁת רָעֲיָא [=la maison où se rassemblent les bergers].
 <b>Rassemblement.</b> Expression de liaison, le lieu où les bergers se rassemblent.</sup></sup><i class="footnote">C'est-à-dire que les bergers se réunissent en un même lieu. On peut aussi dire que בֵּית עֶקֶד est le lieu de tonte des moutons, car les bergers attachent [=עוֹקֵד] les moutons avant de les tondre.
 
 ### passuk 13
@@ -57,7 +57,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>De l'armoire. </b> [Targum] Yonoson a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
+<b>De l'armoire. </b> [Targum] Yonatanh a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
 
 ### passuk 23
 
@@ -65,7 +65,7 @@
 <b>Vous perdrez votre vie pour sa vie.</b> La vie du gardien sera [perdue] pour la vie de celui qui s'échappe.</sup>10</sup><i class="footnote">À cause de sa négligence.-Metzudas David</i>
 
 ### passuk 25
-<b>Ils les ont jetés dehors. </b> [Targum Yonoson] (rend), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין [=et les coursiers et les puissants guerriers jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
+<b>Ils les ont jetés dehors. </b> [Targum Yonathan] (rend), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין [=et les coursiers et les puissants guerriers jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
 
 ### passuk 26
 
@@ -78,7 +78,7 @@
 <b>Cependant, à partir des péchés de Yerovom, etc.</b> Par crainte, que le royaume revienne à la Maison de David, comme Yerovom l'avait craint.
 
 ### passuk 30
-<b>Adonoy dit à Yeihu.</b> Par Yonah.
+<b>Hachem dit à Yeihu.</b> Par Yonah.
 <b>Quatre générations de tes fils.</b> Quatre générations<sup>12</sup><i class="footnote">Les quatre générations de descendants de Yeihu sont : Yehoachaz, Yehoash, Yorovom et Zecharyoh.</i> [en récompense] du fait que tu as détruit la maison d'Achov, qui a régné pendant quatre générations : Omri, Achov, Achazyoh et Yehorom.
 
 ### passuk 31
@@ -108,7 +108,7 @@
 <b>Dans des pots.</b> [Dans] des pots.<sup>3</sup><i class="footnote">Alternativement, "dans des paniers" qui étaient tissés de manière lâche afin que les têtes soient visibles de l'extérieur.-Ralbag</i>
 
 ### passuk 8
-<b>Piles.</b> Monticules. [Et le Targum Yonoson rendit] דְּגוּרִין [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend דְּגוֹרִין pour חֳמָרִים [=piles].</i> <i>moncels</i>, en ancien français.
+<b>Piles.</b> Monticules. [Et le Targum Yonathan rendit] דְּגוּרִין [=mounds],<sup>4</sup><i class="footnote">Voir le Targum dans Shemos 8:10 qui rend דְּגוֹרִין pour חֳמָרִים [=piles].</i> <i>moncels</i>, en ancien français.
 
 ### passuk 9
 <b>"Vous êtes justes."</b> A vos yeux, vous êtes tous justes, et vous me considérez comme méchant parce que j'ai tué le roi. Mais regardez, maintenant je me suis révolté contre mon maître et je l'ai tué. Mais qui a tué tous ces gens ? Ce n'est pas moi qui les ai tués. Mais à partir de ceux-ci, vous saurez alors que c'est un décret du roi sur eux, et que celui qui les tue est juste et accomplit le commandement de l'Omniprésent.
@@ -118,7 +118,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Le lieu de rassemblement des bergers.</b> [Targum Yonoson] rend בֵּית כְּנִישַׁת רָעֲיָא [=la maison où se rassemblent les bergers].
+<b>Le lieu de rassemblement des bergers.</b> [Targum Yonathan] rend בֵּית כְּנִישַׁת רָעֲיָא [=la maison où se rassemblent les bergers].
 <b>Rassemblement.</b> Expression de liaison, le lieu où les bergers se rassemblent.</sup></sup><i class="footnote">C'est-à-dire que les bergers se réunissent en un même lieu. On peut aussi dire que בֵּית עֶקֶד est le lieu de tonte des moutons, car les bergers attachent [=עוֹקֵד] les moutons avant de les tondre.
 
 ### passuk 13
@@ -146,7 +146,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>De l'armoire. </b> [Targum] Yonoson a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
+<b>De l'armoire. </b> [Targum] Yonatanh a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
 
 ### passuk 23
 
@@ -154,7 +154,7 @@
 <b>Vous perdrez votre vie pour sa vie.</b> La vie du gardien sera [perdue] pour la vie de celui qui s'échappe.</sup>10</sup><i class="footnote">À cause de sa négligence.-Metzudas David</i>
 
 ### passuk 25
-<b>Ils les ont jetés dehors. </b> [Targum Yonoson] (rend), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין [=et les coursiers et les puissants guerriers jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
+<b>Ils les ont jetés dehors. </b> [Targum Yonathan] (rend), "וְרָמוּ רָהֲטַיָּא וְגַבְרַיָּא קְטִילִין [=et les coursiers et les puissants guerriers jetèrent les cadavres]," ils jetèrent les cadavres des adorateurs de Baal.
 
 ### passuk 26
 
@@ -167,7 +167,7 @@
 <b>Cependant, à partir des péchés de Yerovom, etc.</b> Par crainte, que le royaume revienne à la Maison de David, comme Yerovom l'avait craint.
 
 ### passuk 30
-<b>Adonoy dit à Yeihu.</b> Par Yonah.
+<b>Hachem dit à Yeihu.</b> Par Yonah.
 <b>Quatre générations de tes fils.</b> Quatre générations<sup>12</sup><i class="footnote">Les quatre générations de descendants de Yeihu sont : Yehoachaz, Yehoash, Yorovom et Zecharyoh.</i> [en récompense] du fait que tu as détruit la maison d'Achov, qui a régné pendant quatre générations : Omri, Achov, Achazyoh et Yehorom.
 
 ### passuk 31

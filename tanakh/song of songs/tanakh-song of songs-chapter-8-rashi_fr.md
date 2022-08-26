@@ -39,7 +39,7 @@
 
 ### passuk 8
 <b>Nous avons une [petite] sur.</b> Dans la demeure terrestre, qui s'unit, se joint et désire être avec nous, et elle est petite et s'humilie plus que toutes les nations, comme il est dit : "Non pas parce que vous êtes plus nombreux, etc.</sup>10</sup><i class="footnote">Devorim 7:7. </i> car ils s'humilient. 
-<b>Une [petite] sur.</b>  אָחוֹת  est] une expression de jonction, [comme dans,] "Ce sont les déchirures qui ne peuvent être cousues complètement  מִתְאַחִין.<<sup>11</sup><i class="footnote">Maseches Mo'ed Katan 26a. </i> 
+<b>Une [petite] sur.</b>  אָחוֹת  est] une expression de jonction, [comme dans,] "Ce sont les déchirures qui ne peuvent être cousues complètement  מִתְאַחִין.<<sup>11</sup><i class="footnote">Masehet Mo'ed Katan 26a. </i> 
 <b>Mais elle n'a pas de seins.</b> Comme il est dit à propos de l'exil d'Égypte, "[Ses] seins étaient développés,"<sup>12</sup><i class="footnote">Yechezkeil 16:7 ; connotant la préparation à la rédemption. </i> lorsque le temps de la rédemption est arrivé, mais celle-ci, "elle n'a pas de seins" ; son temps n'est pas encore arrivé pour le temps de l'amour. Que ferons-nous pour notre soeur 
 <b>le jour où l'on parlera d'elle.</b> Lorsque les nations murmureront à son sujet pour la détruire, comme il est dit : "Venez, détruisons-les pour qu'ils ne soient plus une nation.</sup></sup><i class="footnote">Tehillim 83:5. </i> 
 
@@ -53,7 +53,7 @@
 <b>Je suis un mur.</b> Fort de l'amour de mon bien-aimé.
 <b>Et mon sein est comme des tours.</b> Ce sont les synagogues et les salles d'étude, qui nourrissent Yisrael de paroles de Torah. 
 <b>C'est pourquoi.</b> Quand je dis cela.
-<b>Je suis à ses yeux comme quelqu'un qui a trouvé la paix.</b> Comme une jeune mariée qui est trouvée parfaite  שְׁלֵמָה, et qui trouve la paix dans la maison de son mari.</sup>15</sup><i class="footnote">Voir Maseches Pesachim 87a. </i> 
+<b>Je suis à ses yeux comme quelqu'un qui a trouvé la paix.</b> Comme une jeune mariée qui est trouvée parfaite  שְׁלֵמָה, et qui trouve la paix dans la maison de son mari.</sup>15</sup><i class="footnote">Voir Masehet Pesachim 87a. </i> 
 
 ### passuk 11
 <b>Shlomo avait une vigne.</b> Il s'agit de la congrégation de Yisrael, comme il est dit : "Car la vigne d'Hachem, Maître des Légions, est la maison de Yisrael.</sup>16</sup><i class="footnote">Yeshayahu 5:7. </i> 

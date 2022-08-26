@@ -5,10 +5,10 @@
 <b>Les tenir.</b> [מַחֲזִיק בָּם signifie] <i>les tenir,</i> comme dans "( וְהֶחֱזִיקָה ) et elle se saisit de ses parties intimes." 
 
 ### passuk 3
-<b>Voici, la main d'Adonoy est dirigée. </b> [הוֹיָה] est au présent, car c'est ainsi que [le verbe הָיָה] s'exprime au féminin : au passé : הָיְתָה - <i>elle était,</i> au futur : תִּהְיֶה - <i>elle sera,</i> et au présent : הוֹיָה - <i>elle est;</i> même forme que רוֹעָה , רוֹצָה , עוֹשָׂה . 
+<b>Voici, la main d'Hachem est dirigée. </b> [הוֹיָה] est au présent, car c'est ainsi que [le verbe הָיָה] s'exprime au féminin : au passé : הָיְתָה - <i>elle était,</i> au futur : תִּהְיֶה - <i>elle sera,</i> et au présent : הוֹיָה - <i>elle est;</i> même forme que רוֹעָה , רוֹצָה , עוֹשָׂה . 
 
 ### passuk 4
-<b>[Adonoy] distinguera.</b> [וְהִפְלָה signifie] Il mettra à part.
+<b>[Hachem] distinguera.</b> [וְהִפְלָה signifie] Il mettra à part.
 
 ### passuk 5
 

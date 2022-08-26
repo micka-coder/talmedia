@@ -13,13 +13,13 @@
 
 ### passuk 5
 <b>Jusqu'à [lit. jusqu'à] un pas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Jusqu'à un pas, en d'autres termes, je ne vous permets pas même jusqu'à un pas <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de passer sur leur terre, à moins qu'ils ne vous en donnent la permission. Une explication midrashique : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Jusqu'au jour où il y aura des pas sur le Mont des Oliviers, comme il est dit : " Et ses pieds se tiendront etc. ". 
-<b>L'héritage d'Eisov.</b> d'Avrohom. Je lui ai donné (promis) le pays de dix nations ; sept d'entre elles seront à toi. Les terres des Kaïnites, des Kenizzites et des Kadmonites, qui sont en fait Amon, Moav et Séir - L'une d'elles appartient à Eisov, Et [les deux autres] aux enfants de Lot, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en récompense du fait qu'il l'ait accompagné [Avrohom] en Égypte et qu'il se soit tu lorsqu'on a dit à propos de sa femme [Soroh] qu'elle était sa sœur. Il [Dieu] l'a donc traité [Loth] comme son fils. 
+<b>L'héritage d'Eisov.</b> d'Avraham. Je lui ai donné (promis) le pays de dix nations ; sept d'entre elles seront à toi. Les terres des Kaïnites, des Kenizzites et des Kadmonites, qui sont en fait Amon, Moav et Séir - L'une d'elles appartient à Eisov, Et [les deux autres] aux enfants de Lot, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en récompense du fait qu'il l'ait accompagné [Avraham] en Égypte et qu'il se soit tu lorsqu'on a dit à propos de sa femme [Soroh] qu'elle était sa sœur. Il [Dieu] l'a donc traité [Loth] comme son fils. 
 
 ### passuk 6
 <b>Vous devez acheter.</b> תִּכְרוּ est une expression indiquant un achat. De même, 'j'ai acquis pour moi-même' ; car dans les villes du bord de mer, on désigne la vente par כִּירָה . 
 
 ### passuk 7
-<b>Parce qu'Adonoy votre Dieu vous a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ne faites donc pas preuve d'ingratitude en vous montrant pauvres, mais montrez-vous riches. 
+<b>Parce qu'Hachem votre Dieu vous a béni.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ne faites donc pas preuve d'ingratitude en vous montrant pauvres, mais montrez-vous riches. 
 
 ### passuk 8
 <b>Nous avons tourné et passé.</b> Vers le nord. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Nous avons tourné nos visages pour voyager le long du côté est.
@@ -29,7 +29,7 @@
 <b>Or.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le nom du pays.
 
 ### passuk 10
-<b>Les Eimim y [vivaient] à l'origine.</b> On pourrait penser qu'il s'agit du pays des Rephaïm <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> que j'ai donné à Avrohom parce que les Eimim qui sont [en réalité] des Rephaïm y vivaient à l'origine, mais ce n'est pas ce [pays] car ces Rephaïm, je les ai chassés en faveur des descendants de Lot et je les ai installés à leur place. 
+<b>Les Eimim y [vivaient] à l'origine.</b> On pourrait penser qu'il s'agit du pays des Rephaïm <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> que j'ai donné à Avraham parce que les Eimim qui sont [en réalité] des Rephaïm y vivaient à l'origine, mais ce n'est pas ce [pays] car ces Rephaïm, je les ai chassés en faveur des descendants de Lot et je les ai installés à leur place. 
 
 ### passuk 11
 <b>Eux aussi étaient considérés comme des Rephaïm.</b> Ces Eimin étaient considérés comme des Rephaïm comme les Anokim qui étaient appelés Rephaïm. Ils étaient appelés [Rephaïm] parce que tous ceux qui les voyaient - leurs mains devenaient faibles (רָפָה) [de frayeur]. 
@@ -46,7 +46,7 @@
 <b>Attaquez-les.</b> Afin de les mettre rapidement en déroute dans un délai de quarante ans pour ne pas faire en sorte que leurs enfants <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> soient encore retardés dans le désert.
 
 ### passuk 16
-<b>Quand ils eurent terminé. Adonoy s'est adressé à moi. </b> Cependant, depuis l'envoi des espions jusqu'à maintenant, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le mot וַיְדַבֵּר n'a pas été mentionné, seulement וַיֹּאמֶר, ceci pour enseigner que pendant toute la durée des trente-huit ans de la condamnation des Israélites, la דִּבּוּר parole [divine] n'était pas uniquement avec lui comme une expression d'affection - face à face et avec un calme philosophique. Ceci enseigne que la <i>Shechinah,</i> la Présence Divine, se repose sur les prophètes uniquement pour le bien de Israël. 
+<b>Quand ils eurent terminé. Hachem s'est adressé à moi. </b> Cependant, depuis l'envoi des espions jusqu'à maintenant, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le mot וַיְדַבֵּר n'a pas été mentionné, seulement וַיֹּאמֶר, ceci pour enseigner que pendant toute la durée des trente-huit ans de la condamnation des Israélites, la דִּבּוּר parole [divine] n'était pas uniquement avec lui comme une expression d'affection - face à face et avec un calme philosophique. Ceci enseigne que la <i>Shechinah,</i> la Présence Divine, se repose sur les prophètes uniquement pour le bien de Israël. 
 <b>Les hommes de guerre.</b> Ceux qui avaient plus de vingt ans et qui étaient éligibles pour aller à l'armée.
 
 ### passuk 17
@@ -57,14 +57,14 @@
 ### passuk 19
 
 ### passuk 20
-<b>[Lui aussi est] considéré comme un pays de géants.</b> Il est aussi considéré comme un pays de géants parce que les géants y vivaient à l'origine, mais il n'est toujours pas le pays que j'ai donné à Avrohom. 
+<b>[Lui aussi est] considéré comme un pays de géants.</b> Il est aussi considéré comme un pays de géants parce que les géants y vivaient à l'origine, mais il n'est toujours pas le pays que j'ai donné à Avraham. 
 
 ### passuk 21
 
 ### passuk 22
 
 ### passuk 23
-<b>Et les Avim qui avaient vécu à Chatzeirim.</b> Les Avim étaient des Philistins, car ils sont inclus avec eux dans le Livre de Yehoshua, comme il est dit : "Les cinq chefs des Philistins : les Azosi, les Ashdodi, les Ashkeloni le Giti, les Akroni et les Avim." Cependant, à cause du serment <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qu'Avrohom a prêté à Avimelech, les Bnei Israël ne pouvaient pas prendre la terre de leur possession c'est pourquoi j'ai fait venir les Caftorim contre eux, ils les ont détruits et se sont installés là à leur place ; et maintenant il vous est permis de la prendre [la terre] de leur possession. 
+<b>Et les Avim qui avaient vécu à Chatzeirim.</b> Les Avim étaient des Philistins, car ils sont inclus avec eux dans le Livre de Yehoshua, comme il est dit : "Les cinq chefs des Philistins : les Azosi, les Ashdodi, les Ashkeloni le Giti, les Akroni et les Avim." Cependant, à cause du serment <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qu'Avraham a prêté à Avimelech, les Bnei Israël ne pouvaient pas prendre la terre de leur possession c'est pourquoi j'ai fait venir les Caftorim contre eux, ils les ont détruits et se sont installés là à leur place ; et maintenant il vous est permis de la prendre [la terre] de leur possession. 
 
 ### passuk 24
 
@@ -80,7 +80,7 @@
 
 ### passuk 29
 <b>Comme les descendants d'Eisov l'ont fait pour moi.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela ne fait pas référence à [notre] passage sur leur terre mais uniquement concernant leur vente de nourriture et d'eau.
-<b>Jusqu'à ce que j'aie traversé le Yardein.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence à la déclaration : "Laissez-moi passer par [votre terre]". 
+<b>Jusqu'à ce que j'aie traversé le Jourdain.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence à la déclaration : "Laissez-moi passer par [votre terre]". 
 
 ### passuk 30
 
@@ -102,7 +102,7 @@
 
 ### passuk 37
 <b> כָּל יַד נַחַל יַבֹּק .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tout le long de Wadi Yabok.
-<b>Tout ce qu'Adonoy notre Dieu [nous a ordonné] - </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de ne pas capturer, nous l'avons laissé [non capturé]. 
+<b>Tout ce qu'Hachem notre Dieu [nous a ordonné] - </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de ne pas capturer, nous l'avons laissé [non capturé]. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

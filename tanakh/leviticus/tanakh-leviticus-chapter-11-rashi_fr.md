@@ -66,7 +66,7 @@
 ### passuk 19
 <b>La cigogne.</b> C'est la דַיָּה blanche, <i>cigogne</i>, et pourquoi on l'appelle " חֲסִידָה " : parce qu'elle fait des bontés à ses congénères en ce qui concerne la nourriture. 
 <b>Le héron.</b> C'est le " דַיָּה en colère ", et il me semble que c'est ce qu'on appelle un <i>héron</i>. 
-<b>La huppe.</b> Le coq sauvage, qui a une double crête, en vieux français <i>herupe</i>. Pourquoi l'appelle-t-on un דּוּכִיפַת ? Parce que sa parure [= son peigne] est attachée ensemble, et voici son peigne. Onkelos a traduit [il s'agit de] נַגָּר טוּרָא, ["fendeur de montagnes"], appelé ainsi à cause de ses actions, comme nos rabbins l'ont expliqué dans Masech Gittin, au chapitre de Mi She'achozo. 
+<b>La huppe.</b> Le coq sauvage, qui a une double crête, en vieux français <i>herupe</i>. Pourquoi l'appelle-t-on un דּוּכִיפַת ? Parce que sa parure [= son peigne] est attachée ensemble, et voici son peigne. Onkelos a traduit [il s'agit de] נַגָּר טוּרָא, ["fendeur de montagnes"], appelé ainsi à cause de ses actions, comme nos rabbins l'ont expliqué dans Traité Gittin, au chapitre de Mi She'achozo. 
 
 ### passuk 20
 <b>Insectes ailés.</b> Ce sont des créatures fines et basses qui rampent sur le sol, comme les mouches, les frelons, les moucherons et les sauterelles. 
@@ -163,12 +163,12 @@
 <b>Vous vous rendrez impurs à cause d'eux.</b> Si vous vous rendez impurs à cause d'eux sur la terre, je vous rendrai à mon tour impurs dans le monde à venir et dans la demeure d'en haut. 
 
 ### passuk 44
-<b>Parce que je suis Adonoy, votre Dieu.</b> Tout <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>comme je suis saint, car je suis Adonoy votre Dieu, ainsi "vous serez saints" - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctifiez-vous en bas. 
+<b>Parce que je suis Hachem, votre Dieu.</b> Tout <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>comme je suis saint, car je suis Hachem votre Dieu, ainsi "vous serez saints" - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sanctifiez-vous en bas. 
 <b>Et vous deviendrez saints devant Moi,</b> car Je vous sanctifierai en haut et dans le monde à venir. 
 <b>Et vous ne vous rendrez pas impurs.</b> [Toutes ces phrases sont destinées] à faire transgresser [à celui qui mange ces créatures] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de nombreux commandements négatifs, et chaque commandement négatif [implique] un fouet, et c'est ce qui est dit dans le Talmud : [S'il] a mangé un <i>putiso,</i> il reçoit quatre [séries de fouets], [s'il a mangé] une fourmi, il en reçoit cinq, un frelon, il en reçoit six. 
 
 ### passuk 45
-<b>Parce que je suis Adonoy qui vous élève.</b> C'est pour que vous acceptiez Mes commandements que je vous ai élevé. Autre interprétation : "Car je suis Adonoy qui vous a fait monter" - dans tous [les versets qui parlent de l'Exode] il est écrit : "Je t'ai fait sortir", alors qu'ici il est écrit "Je t'ai fait monter". L'école de R. Yishmo'el a enseigné : Si j'avais fait monter Israël d'Égypte, seulement pour qu'il s'abstienne de se rendre impur avec des choses rampantes comme les autres nations, cela aurait été suffisant. Et c'est là leur avantage sur les autres - ceci [explique] l'expression "faire monter". 
+<b>Parce que je suis Hachem qui vous élève.</b> C'est pour que vous acceptiez Mes commandements que je vous ai élevé. Autre interprétation : "Car je suis Hachem qui vous a fait monter" - dans tous [les versets qui parlent de l'Exode] il est écrit : "Je t'ai fait sortir", alors qu'ici il est écrit "Je t'ai fait monter". L'école de R. Yishmo'el a enseigné : Si j'avais fait monter Israël d'Égypte, seulement pour qu'il s'abstienne de se rendre impur avec des choses rampantes comme les autres nations, cela aurait été suffisant. Et c'est là leur avantage sur les autres - ceci [explique] l'expression "faire monter". 
 
 ### passuk 46
 

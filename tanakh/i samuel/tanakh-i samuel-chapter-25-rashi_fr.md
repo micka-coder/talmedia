@@ -20,7 +20,7 @@
 <b>Paix à vous...</b> Il en sera ainsi pendant longtemps.</sup>5</sup><i class="footnote">Et pour souligner sa longévité, ils mentionnent <span>שַׁלוֹם</span> [=la paix] trois fois dans leur déclaration.</i>
 
 ### passuk 7
-<b>Nous ne leur avons pas fait honte.</b> S'ils avaient besoin de nous pour quoi que ce soit, nous ne les avons pas renvoyés les mains vides.</sup></sup><i class="footnote">Nous ne leur avons pas fait de mal physique.-Targum Yonoson.</i>
+<b>Nous ne leur avons pas fait honte.</b> S'ils avaient besoin de nous pour quoi que ce soit, nous ne les avons pas renvoyés les mains vides.</sup></sup><i class="footnote">Nous ne leur avons pas fait de mal physique.-Targum Yonathan.</i>
 <b>Pas une seule de leurs choses ne manquait.</b> De vos troupeaux, car nous les surveillions.</sup>7</sup><i class="footnote">Et nous les avons protégés de l'attaque des animaux sauvages.</b> -Mahri Kra.</i>
 
 ### passuk 8
@@ -38,7 +38,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Et David aussi, ceignit son épée.</b> D'ici [nous apprenons] que nous commençons, dans les cas impliquant la peine capitale, par les moins importants d'abord.<sup>11</sup><i class="footnote"> Voir Maseches Sanhedrin 36a, qui apprend d'ici que le sondage des opinions des juges dans les cas impliquant la peine capitale, commence par les juges les moins importants ; sinon, ils peuvent se sentir intimidés et influencés par les opinions des autres.</i>
+<b>Et David aussi, ceignit son épée.</b> D'ici [nous apprenons] que nous commençons, dans les cas impliquant la peine capitale, par les moins importants d'abord.<sup>11</sup><i class="footnote"> Voir Masehet Sanhedrin 36a, qui apprend d'ici que le sondage des opinions des juges dans les cas impliquant la peine capitale, commence par les juges les moins importants ; sinon, ils peuvent se sentir intimidés et influencés par les opinions des autres.</i>
 <b>Avec l'équipement.</b> Pour garder leurs tentes et leur équipement.
 
 ### passuk 14
@@ -55,7 +55,7 @@
 <b>Il est une personne trop méchante pour qu'on lui parle.</b> Notre maître est une personne si vile<sup>13</sup><i class="footnote">Ou, la phrase se réfère à David, que David est une personne si vile qu'il est capable d'attaquer sans prévenir.-Radak.</i> de sorte que je ne peux pas lui dire ce que je te dis, car il se mettrait en colère contre nous.
 
 ### passuk 18
-<b>Préparé.</b> Le Targum Yonoson rend <span>תַּכְבְּרָא</span>, rempli de viande finement coupée et d'œufs ; farcides en ancien français., comme nous l'avons appris dans [Maseches] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon l'appelle <span>תַּכְבְּרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>תַּכְבְּרָא</span> est une combinaison de deux mots <span>תּוֹךְ</span> [=intérieur] et <span>בְּרָא</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est énoncé dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
+<b>Préparé.</b> Le Targum Yonathan rend <span>תַּכְבְּרָא</span>, rempli de viande finement coupée et d'œufs ; farcides en ancien français., comme nous l'avons appris dans [Masehet] Pesachim:<sup>14</sup><i class="footnote"></i> Et il place les pieds et ses intestins à l'intérieur [de l'agneau pascal] ; Rabbi Tarfon l'appelle <span>תַּכְבְּרָא</span>. Ce qui est à l'intérieur, est placé à l'extérieur,<sup>15</sup><i class="footnote">I.e., <span>תַּכְבְּרָא</span> est une combinaison de deux mots <span>תּוֹךְ</span> [=intérieur] et <span>בְּרָא</span> [=extérieur].</i> selon Rabbi Akiva, qui dit que les intestins sont suspendus à l'extérieur. Ainsi est énoncé dans la Tosefta, et Rabbi Klonimos de sainte mémoire, de Rome, nous l'a ainsi expliqué.
 <b>Raisins secs.</b> Raisins secs.
 <b>Gâteaux de figues pressées.</b> Gâteaux ronds de figues sèches, foulées et pressées dans un récipient.
 
@@ -68,7 +68,7 @@
 <b>David dit.</b> A lui-même lorsque ses jeunes lui racontèrent les insultes de Novol : " C'est pour rien que j'ai gardé, etc. ".
 
 ### passuk 22
-<b>Même un chien.</b> Le Targum Yonoson rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cœur. Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Maseches Bava Basro 19b.</i>
+<b>Même un chien.</b> Le Targum Yonathan rend : 'celui qui possède l'intelligence', celui qui fixe les murs de son cœur. Une autre explication est : 'même un chien dont la manière est d'uriner contre un mur.'<sup>17</sup><i class="footnote">Voir Masehet Bava Basro 19b.</i>
 
 ### passuk 23
 
@@ -78,21 +78,21 @@
 ### passuk 25
 
 ### passuk 26
-<b>[Adonoy] vous a empêché.</b> Qui m'a envoyé vers vous pour vous empêcher de commettre une effusion de sang.
+<b>[Hachem] vous a empêché.</b> Qui m'a envoyé vers vous pour vous empêcher de commettre une effusion de sang.
 <b>Et de te venger par ta propre main.</b> De te venger personnellement et d'être puni.
-<b>Que tous tes ennemis soient comme Novol.</b> Elle a prophétisé avec l'Esprit divin<sup>20</sup><i class="footnote">Avigayil est mentionnée parmi les sept prophétesses, dans le Maseches Megillah 14a.</i> que Novol ne vivra pas longtemps.
+<b>Que tous tes ennemis soient comme Novol.</b> Elle a prophétisé avec l'Esprit divin<sup>20</sup><i class="footnote">Avigayil est mentionnée parmi les sept prophétesses, dans le Masehet Megillah 14a.</i> que Novol ne vivra pas longtemps.
 
 ### passuk 27
 <b>La donner aux jeunes.</b> Et elle sera donnée aux jeunes qui vont, etc. <span>נִתְּנָה</span> [=on le donnait] est au passé, <span>וְנִתְּנָה</span> [=on le donnera] est au futur.
 
 ### passuk 28
-<b>Parce qu'Adonoy fera à mon maître une maison éternelle.</b> Pour être roi sur Israël. Par conséquent, qu'aucun mal ne soit trouvé en vous. Il ne convient donc pas que tu fasses quelque chose de contraire à la loi, que tu colportes de mauvaises paroles concernant ta royauté.
+<b>Parce qu'Hachem fera à mon maître une maison éternelle.</b> Pour être roi sur Israël. Par conséquent, qu'aucun mal ne soit trouvé en vous. Il ne convient donc pas que tu fasses quelque chose de contraire à la loi, que tu colportes de mauvaises paroles concernant ta royauté.
 
 ### passuk 29
 <b>La fronde.</b> Une large pièce de cuir, avec une indentation au milieu de la fronde, dans laquelle on place la pierre.
 
 ### passuk 30
-<b>Et que ce soit quand Adonoy fait le bien...</b> Et vous régnerez.
+<b>Et que ce soit quand Hachem fait le bien...</b> Et vous régnerez.
 
 ### passuk 31
 <b>Que cela ne soit pas...un obstacle.</b> Comme une pierre d'achoppement, comme dans, 'et l'achoppement [<span>לְפִיק</span>] des genoux';<sup>21</sup><i class="footnote">Nachum 2:11. </i> car si vous aviez fait cela, vous ne pourriez pas ouvrir la bouche pour réprouver quelqu'un dans les générations futures, concernant l'effusion de sang.
@@ -115,7 +115,7 @@
 <b>Et son coeur s'enfonça en lui.</b> Il était extrêmement contrarié par le cadeau offert à David.</sup>24</sup><i class="footnote">C'est-à-dire à cause de la grande dépense du cadeau de sa femme.-Radak</i>
 
 ### passuk 38
-<b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Adonoy infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
+<b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Hachem infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
 
 ### passuk 39
 <b>La bataille de ma disgrâce.</b> Mon insulte qu'il m'a faite aujourd'hui [en disant] : 'De nos jours, il y a beaucoup de serviteurs qui se détachent.'<sup>26</sup><i class="footnote">Au-dessus du verset 10.</i>

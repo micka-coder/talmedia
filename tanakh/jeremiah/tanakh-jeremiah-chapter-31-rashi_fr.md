@@ -56,7 +56,7 @@
 
 ### passuk 19
 <b>J'ai complètement changé d'avis</b> Je regrette mes abominations.
-<b>J'avais été amené à me connaître</b> Que je pensais de moi-même que j'étais perfide, (aparsoujjge en O. F.).
+<b>J'avais été amené à me connaître</b> Que je pensais de moi-même que j'étais perfide, (aparsoujjge en ancien français).
 <b>L'opprobre de ma jeunesse</b> Que mes ennemis puissent me reprocher les péchés de ma jeunesse.
 
 ### passuk 20
@@ -179,7 +179,7 @@
 
 ### passuk 19
 <b>J'ai complètement changé d'avis</b> Je regrette mes abominations.
-<b>J'avais été amené à me connaître</b> Que je pensais de moi-même que j'étais perfide, (aparsoujjge en O. F.).
+<b>J'avais été amené à me connaître</b> Que je pensais de moi-même que j'étais perfide, (aparsoujjge en ancien français).
 <b>L'opprobre de ma jeunesse</b> Que mes ennemis puissent me reprocher les péchés de ma jeunesse.
 
 ### passuk 20

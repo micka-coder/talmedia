@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Mais Adonoy ne vous a pas accordé un esprit averti.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour reconnaître la bienveillance de Dieu, et y adhérer. 
+<b>Mais Hachem ne vous a pas accordé un esprit averti.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour reconnaître la bienveillance de Dieu, et y adhérer. 
 <b>Jusqu'à ce jour.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>J'ai entendu : parce que ce jour-là, lorsque Moshé présenta le rouleau de la Torah aux fils de Lévi - comme il est écrit : "Il le présenta aux <i>kohanim,</i> les fils de Lévi" - tout Israël apparut devant Moshé et lui dit : "Notre maître Moshé, nous aussi, nous nous sommes tenus au Sinaï. Nous avons accepté la Torah, et elle nous a été donnée. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comment se fait-il que tu donnes le pouvoir à tes compagnons de tribu à ce sujet, afin qu'ils puissent nous dire, un jour dans le futur, 'Elle ne vous a jamais été donnée, elle nous a été donnée'' ? Moshé s'est réjoui de cette affaire, et c'est à ce sujet qu'il leur a dit : "Aujourd'hui, vous êtes devenus une nation, etc.". Aujourd'hui, je comprends que vous êtes attachés à l'Omniprésent et que vous en avez besoin. 
 
 ### passuk 4
@@ -61,7 +61,7 @@
 <b>Le pécheur [lit. assoiffé].</b> Commis en toute connaissance de cause et avec appétit.
 
 ### passuk 19
-<b>Les narines d'Adonoy fumeront.</b> Sous l'effet de la rage, la température du corps augmente et les narines fumeront. De même, "Des fumées s'échappent de ses narines". Bien que cela ne s'applique pas à l'Omniprésent, l'Écriture s'adresse à l'oreille de l'auditeur de la manière dont il est habitué, et donc capable de saisir, conformément aux conditions du monde. 
+<b>Les narines d'Hachem fumeront.</b> Sous l'effet de la rage, la température du corps augmente et les narines fumeront. De même, "Des fumées s'échappent de ses narines". Bien que cela ne s'applique pas à l'Omniprésent, l'Écriture s'adresse à l'oreille de l'auditeur de la manière dont il est habitué, et donc capable de saisir, conformément aux conditions du monde. 
 <b>Et Sa fureur vengeresse.</b> Cela dénote la fureur, <i>l'imprégnation,</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>l'adhésion au mode de vengeance, sans quartier. 
 
 ### passuk 20
@@ -82,10 +82,10 @@
 ### passuk 26
 
 ### passuk 27
-<b>Et Adonoy les a chassés.</b> Comme le rend le Targum [Onkelos], '[Dieu] les a éloignés.' De même, " Voici, je les forcerai à quitter leur pays ". 
+<b>Et Hachem les a chassés.</b> Comme le rend le Targum [Onkelos], '[Dieu] les a éloignés.' De même, " Voici, je les forcerai à quitter leur pays ". 
 
 ### passuk 28
-<b>Les [questions] cachées sont celles d'Adonoy, notre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si vous deviez demander : " Qu'est-ce que nous sommes capables de faire ? ". Vous punissez la communauté pour les pensées d'un individu, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme il est dit : "Peut-être y a-t-il, parmi vous, etc." et après : "Ils verront les fléaux de ce pays." L'homme n'est-il pas ignorant des secrets de son prochain ? Je ne vous punirai pas pour l'impénétrable, qui est celui d'Adonoy notre Dieu - Il punira cet individu. Cependant, ce qui est exposé est pour nous et notre postérité, d'éradiquer le mal de notre milieu. Si nous ne parvenons pas à appliquer la justice à leur encontre, c'est la communauté qui sera punie. Il y a des points sur les nôtres et ceux de nos enfants pour enseigner <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que, même en ce qui concerne ce qui est exposé, la communauté n'a pas été punie jusqu'à ce qu'elle ait traversé le Yarden, lorsqu'elle s'est obligée par le serment au Mont Gerizim et au Mont Eival, et est devenue responsable les uns des autres. 
+<b>Les [questions] cachées sont celles d'Hachem, notre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si vous deviez demander : " Qu'est-ce que nous sommes capables de faire ? ". Vous punissez la communauté pour les pensées d'un individu, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme il est dit : "Peut-être y a-t-il, parmi vous, etc." et après : "Ils verront les fléaux de ce pays." L'homme n'est-il pas ignorant des secrets de son prochain ? Je ne vous punirai pas pour l'impénétrable, qui est celui d'Hachem notre Dieu - Il punira cet individu. Cependant, ce qui est exposé est pour nous et notre postérité, d'éradiquer le mal de notre milieu. Si nous ne parvenons pas à appliquer la justice à leur encontre, c'est la communauté qui sera punie. Il y a des points sur les nôtres et ceux de nos enfants pour enseigner <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que, même en ce qui concerne ce qui est exposé, la communauté n'a pas été punie jusqu'à ce qu'elle ait traversé le Yarden, lorsqu'elle s'est obligée par le serment au Mont Gerizim et au Mont Eival, et est devenue responsable les uns des autres. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

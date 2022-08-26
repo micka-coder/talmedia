@@ -9,7 +9,7 @@
 <b>Moshé a parlé, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Bien qu'il ait entendu que sa disparition dépendait de cette affaire, il l'a joyeusement mise en œuvre, sans délai. 
 <b>Arm.</b> Comme le rend le Targum [Onkelos], qui a le même sens que חֲלוּצֵי צָבָא, "armé". 
 <b>Hommes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Des hommes justes. De même, "choisir des hommes pour nous", et, "des hommes sages et renommés". 
-<b>Revanche d'Adonoy.</b> Car, lorsque quelqu'un se dresse contre Israël, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>c'est comme s'il se dressait contre le Saint, Béni soit-Il. 
+<b>Revanche d'Hachem.</b> Car, lorsque quelqu'un se dresse contre Israël, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>c'est comme s'il se dressait contre le Saint, Béni soit-Il. 
 
 ### passuk 4
 <b>Pour toutes les tribus de Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela inclut la tribu de Lévi.
@@ -18,7 +18,7 @@
 <b>Ils ont été remis.</b> Cela vous informe de la louange des bergers de Israël, de combien ils sont chéris par Israël. Avant qu'ils n'apprennent sa mort, qu'a-t-il dit ? "Encore un peu et ils me lapideront" ! Pourtant, lorsqu'ils ont entendu que la mort de Moshé dépendait de la vengeance contre Midian, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ils ont refusé de partir jusqu'à ce qu'ils soient livrés, contre leur volonté. 
 
 ### passuk 6
-<b>Eux, et Pinchas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que Pinchas était équivalent à tous ces gens. Mais <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pourquoi Pinchas y est-il allé, alors qu'Elozor n'y est pas allé ? Le Saint, béni soit-Il, a dit : " Celui qui a commencé la <i>mitzvah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en exécutant Kozbi, la fille de Tzur, doit la terminer. " Autre interprétation : Il a cherché à se venger de Yoseif, son aïeul maternel, comme il est dit : " les Madianites l'ont vendu. .... ." Comment peut-on déduire que la mère de Pinchas était [descendante] de Yoseif ? Puisqu'il est dit : "des filles de Putiel (פּוּטִיאֵל)." Des enfants de Yisro, qui engraissèrent (פִּיטֵם) des veaux pour le culte des idoles, et des enfants de Yoseif, qui méprisèrent (פִּטְפֵּט) son mauvais penchant. Autre interprétation : Il a été oint pour la guerre. 
+<b>Eux, et Pinchas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que Pinchas était équivalent à tous ces gens. Mais <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pourquoi Pinchas y est-il allé, alors qu'Elozor n'y est pas allé ? Le Saint, béni soit-Il, a dit : " Celui qui a commencé la <i>mitzvah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en exécutant Kozbi, la fille de Tzur, doit la terminer. " Autre interprétation : Il a cherché à se venger de Yoseif, son aïeul maternel, comme il est dit : " les Madianites l'ont vendu. .... ." Comment peut-on déduire que la mère de Pinchas était [descendante] de Yoseif ? Puisqu'il est dit : "des filles de Putiel (פּוּטִיאֵל)." Des enfants de Yitro, qui engraissèrent (פִּיטֵם) des veaux pour le culte des idoles, et des enfants de Yoseif, qui méprisèrent (פִּטְפֵּט) son mauvais penchant. Autre interprétation : Il a été oint pour la guerre. 
 <b>Avec les vases sacrés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il s'agit de l'arche et de la coiffe d'or. Parce que Bil'am les accompagnait, et faisait voler les rois madianites par sorcellerie, lui-même volant avec eux, il [Pinchas] leur montra la Plaque d'Or, dans laquelle était gravé le Nom Divin, et ils tombèrent. C'est pourquoi il est dit, "...sur ceux qu'ils avaient tués", à propos des rois Midianites - ils tombèrent des airs sur ceux qui avaient été tués. De même, concernant Bil'am, il est écrit : " ...sur ceux qu'ils avaient tués " dans le livre de Yehoshua. 
 <b>Dans sa main.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En sa possession. De même, "il prit tout son pays מִיָדוֹ, de sa possession." 
 
@@ -42,7 +42,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Moshé et Elozor le kohein sortirent.</b> Parce qu'ils virent les jeunes Israélites sortir pour s'emparer d'une partie du butin.
+<b>Moshé et Elozor le Cohen sortirent.</b> Parce qu'ils virent les jeunes Israélites sortir pour s'emparer d'une partie du butin.
 
 ### passuk 14
 <b>Moshé était en colère contre les commandants de l'armée.</b> Qui étaient nommés sur l'armée. Cela enseigne que toute la corruption de la génération est attribuée aux grands hommes, puisqu'ils ont le pouvoir de réprimander. 
@@ -69,8 +69,8 @@
 <b>Tout ce qui est fabriqué à partir de produits de chèvre.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela inclut les ustensiles fabriqués à partir des cornes, des sabots et des os. 
 
 ### passuk 21
-<b>Elozor le <i>kohein</i> dit, etc.</b> Parce que Moshé est tombé dans un état de colère, il est tombé dans un état d'erreur, ainsi cachées de lui, étaient les lois concernant la purification des ustensiles des Gentils. On retrouve une similitude au huitième jour de l'inauguration, lorsqu'il est dit : "il s'est mis en colère contre Elozor et contre Isamar" - il est tombé dans un état de colère, [et] il est tombé dans un état d'erreur. De même avec "écoutez, maintenant, rebelles" ! "il frappa le rocher". A cause de la colère, il a commis une erreur. 
-<b>Ce que Adonoy a ordonné, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il a crédité l'enseignement à son maître. 
+<b>Elozor le <i>Cohen</i> dit, etc.</b> Parce que Moshé est tombé dans un état de colère, il est tombé dans un état d'erreur, ainsi cachées de lui, étaient les lois concernant la purification des ustensiles des Gentils. On retrouve une similitude au huitième jour de l'inauguration, lorsqu'il est dit : "il s'est mis en colère contre Elozor et contre Isamar" - il est tombé dans un état de colère, [et] il est tombé dans un état d'erreur. De même avec "écoutez, maintenant, rebelles" ! "il frappa le rocher". A cause de la colère, il a commis une erreur. 
+<b>Ce que Hachem a ordonné, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il a crédité l'enseignement à son maître. 
 
 ### passuk 22
 <b>Seulement l'or, etc.</b> Bien que Moshé ne vous ait pas mis en garde, sauf pour les lois de la malpropreté rituelle, vous devez être mis en garde davantage, concernant les lois de la purification. " Seulement " dénote une exclusion, comme pour dire : " vous êtes exclus de l'utilisation des ustensiles, même après leur purification de la contamination par les morts, jusqu'à ce qu'ils soient purifiés de l'absorption de la viande interdite " <i>neveilah</i> ". Nos rabbins remarquent que " seulement l'or, etc. " enseigne que l'on doit enlever sa rouille avant de le purger. C'est la connotation du mot "seulement" - il ne devrait pas y avoir de rouille, seulement le métal, exactement comme il est. 

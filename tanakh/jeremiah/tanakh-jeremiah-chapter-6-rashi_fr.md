@@ -36,7 +36,7 @@
 ### passuk 9
 <b>glaner minutieusement</b> (grappiller en français). Après que la vigne a été vendangée, qu'il reste des glanures, et que les pauvres viennent les glaner, ainsi ils gâcheront, retourneront et gâcheront.
 <b>Retournez votre main</b> Vous, l'ennemi, retournez votre main pour gâcher une seconde fois, comme un vigneron qui retourne sa main pour la recherche, qui cherche et cherche les glanes. Ainsi, lorsqu'il exila Jehoïakim et le fit mourir, et qu'il couronna Jeconiah, il revint trois mois plus tard et l'exila. Il revint onze ans plus tard et exila Sédécias.
-<b>Les branches</b> Heb. סלסלות (reverchedures en ancien français). Comp. (Prov. 4, 8) "Cherche-le (סלסלה) et il t'élèvera." C'est ainsi que l'explique Dunash (Teshuvoth Dunash p. 21). Menahem (Machbereth p. 126), cependant, l'explique comme une expression d'un panier (סל) (paniers en O. F.).
+<b>Les branches</b> Heb. סלסלות (reverchedures en ancien français). Comp. (Prov. 4, 8) "Cherche-le (סלסלה) et il t'élèvera." C'est ainsi que l'explique Dunash (Teshuvoth Dunash p. 21). Menahem (Machbereth p. 126), cependant, l'explique comme une expression d'un panier (סל) (paniers en ancien français).
 
 ### passuk 10
 <b>et avertir</b> Heb. ואעידה, une expression d'avertissement.
@@ -155,7 +155,7 @@
 ### passuk 9
 <b>glaner minutieusement</b> (grappiller en français). Après que la vigne a été vendangée, qu'il reste des glanures, et que les pauvres viennent les glaner, ainsi ils gâcheront, retourneront et gâcheront.
 <b>Retournez votre main</b> Vous, l'ennemi, retournez votre main pour gâcher une seconde fois, comme un vigneron qui retourne sa main pour la recherche, qui cherche et cherche les glanes. Ainsi, lorsqu'il exila Jehoïakim et le fit mourir, et qu'il couronna Jeconiah, il revint trois mois plus tard et l'exila. Il revint onze ans plus tard et exila Sédécias.
-<b>Les branches</b> Heb. סלסלות (reverchedures en ancien français). Comp. (Prov. 4, 8) "Cherche-le (סלסלה) et il t'élèvera." C'est ainsi que l'explique Dunash (Teshuvoth Dunash p. 21). Menahem (Machbereth p. 126), cependant, l'explique comme une expression d'un panier (סל) (paniers en O. F.).
+<b>Les branches</b> Heb. סלסלות (reverchedures en ancien français). Comp. (Prov. 4, 8) "Cherche-le (סלסלה) et il t'élèvera." C'est ainsi que l'explique Dunash (Teshuvoth Dunash p. 21). Menahem (Machbereth p. 126), cependant, l'explique comme une expression d'un panier (סל) (paniers en ancien français).
 
 ### passuk 10
 <b>et avertir</b> Heb. ואעידה, une expression d'avertissement.

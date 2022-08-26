@@ -85,7 +85,7 @@
 
 ### passuk 20
 <b>Voir Sion</b> Mais qui verrez-vous dans votre cœur pour être considéré comme un royaume et une puissance dominante ? Sion, qui est la ville de notre lieu de rencontre.
-<b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en O. F. Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau se rassemble des montagnes et des collines. Je crois que le 'beth' du mot בְּצַעֲנַנִּים n'est pas radical, mais est un préfixe.
+<b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en ancien français Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau se rassemble des montagnes et des collines. Je crois que le 'beth' du mot בְּצַעֲנַנִּים n'est pas radical, mais est un préfixe.
 <b>Dont les chevilles ne seront jamais déplacées</b> (יִסַּע) Les chevilles avec lesquelles on attache les cordes de la tente, il ne les déplacera pas de la terre, du lieu dans lequel elles sont enfoncées. Comp. (I Rois 5:31) "Et ils ont extrait (וַיַּסִּעוּ) de grandes pierres." Aussi (Jud. 16:3), "Et il les arracha (וַיִּסּעֵם) ensemble avec le verrou", expression de déracinement.
 
 ### passuk 21
@@ -197,7 +197,7 @@
 
 ### passuk 20
 <b>Voir Sion</b> Mais qui verrez-vous dans votre cœur pour être considéré comme un royaume et une puissance dominante ? Sion, qui est la ville de notre lieu de rencontre.
-<b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en O. F. Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau se rassemble des montagnes et des collines. Je crois que le 'beth' du mot בְּצַעֲנַנִּים n'est pas radical, mais est un préfixe.
+<b>Qui ne tombera pas</b> (יִצְעָן) ne sera pas abaissée. Comp. (Jud. 4:11) "Elon-bezaanannim (אֵלוֹן בְּצַעֲנַנִּים)," qui est rendu par : la plaine des fosses (מִישׁוֹר אַגְנַיָּא), qui sont des fosses dans les champs, appelées kombes en ancien français Comp. (Baba Kamma 61b) "Les fosses de la terre (אַגְנֵי דְאַרְעָא) elles sont considérées," où l'eau se rassemble des montagnes et des collines. Je crois que le 'beth' du mot בְּצַעֲנַנִּים n'est pas radical, mais est un préfixe.
 <b>Dont les chevilles ne seront jamais déplacées</b> (יִסַּע) Les chevilles avec lesquelles on attache les cordes de la tente, il ne les déplacera pas de la terre, du lieu dans lequel elles sont enfoncées. Comp. (I Rois 5:31) "Et ils ont extrait (וַיַּסִּעוּ) de grandes pierres." Aussi (Jud. 16:3), "Et il les arracha (וַיִּסּעֵם) ensemble avec le verrou", expression de déracinement.
 
 ### passuk 21

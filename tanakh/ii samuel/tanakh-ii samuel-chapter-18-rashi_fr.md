@@ -7,7 +7,7 @@
 <b>Ils ne nous prêteront pas attention.</b> Il ne sera pas important à leurs yeux de dominer et de se vanter [[victorieusement]] maintenant que vous n'êtes pas dans la guerre.
 <b>Parce que maintenant.</b> Tant que vous êtes dans votre gloire [non capturé], vous êtes aussi important que nous tous [ensemble].
 <b>Dix mille.</b> Comme nous dix mille hommes.
-<b>Si tu nous aides depuis la ville.</b> [Yonoson traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
+<b>Si tu nous aides depuis la ville.</b> [Yonatanh traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
 
 ### passuk 4
 
@@ -15,7 +15,7 @@
 <b>Soyez doux avec le jeune homme.</b> S'il se présente devant vous en combat, ayez pitié de lui.
 
 ### passuk 6
-<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Yardein,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Yardein plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reuvein et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Yardein.</i> sauf que le Yardein était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
+<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Jourdain,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Jourdain plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reuvein et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Jourdain.</i> sauf que le Jourdain était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
 
 ### passuk 7
 
@@ -23,7 +23,7 @@
 <b>Les bêtes sauvages de la forêt ont tué plus de gens.</b> Les bêtes sauvages de la forêt, ainsi Yonason a traduit.
 
 ### passuk 9
-<b>Avsholom happenned.</b> Désignant quelque chose qui vient d'arriver, une rencontre fortuite.
+<b>Avshalom happenned.</b> Désignant quelque chose qui vient d'arriver, une rencontre fortuite.
 <b>Il était suspendu entre le ciel et la terre.</b> Nos rabbins ont dit<sup>3</sup><i class="footnote">Sotah 10b. Voir Méharsho là.</i> Il dégaina son épée pour se couper les cheveux et vit la Géhenne s'ouvrir sous lui.
 
 ### passuk 10
@@ -61,7 +61,7 @@
 
 ### passuk 23
 <b>Et alors.</b> En d'autres termes, et alors si je n'ai pas de récompense ?
-<b>Et il passa.</b> [Traduction de Yonoson :] Il arriva devant le Kouchite.
+<b>Et il passa.</b> [Traduction de Yonatanh :] Il arriva devant le Kouchite.
 
 ### passuk 24
 
@@ -91,7 +91,7 @@
 <b>Ils ne nous prêteront pas attention.</b> Il ne sera pas important à leurs yeux de dominer et de se vanter [[victorieusement]] maintenant que vous n'êtes pas dans la guerre.
 <b>Parce que maintenant.</b> Tant que vous êtes dans votre gloire [non capturé], vous êtes aussi important que nous tous [ensemble].
 <b>Dix mille.</b> Comme nous dix mille hommes.
-<b>Si tu nous aides depuis la ville.</b> [Yonoson traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
+<b>Si tu nous aides depuis la ville.</b> [Yonatanh traduit :] "Il sera préférable que tu pries pour nous depuis la ville pour obtenir de l'aide".
 
 ### passuk 4
 
@@ -99,7 +99,7 @@
 <b>Soyez doux avec le jeune homme.</b> S'il se présente devant vous en combat, ayez pitié de lui.
 
 ### passuk 6
-<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Yardein,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Yardein plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reuvein et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Yardein.</i> sauf que le Yardein était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
+<b>Dans la forêt d'Ephraïm.</b> Comment Ephraïm a-t-il obtenu la possession d'une forêt sur le côté oriental du Jourdain,<sup>1</sup><i class="footnote">David avait traversé vers le côté oriental du Jourdain plus tôt (17:22) et c'est là que cette bataille a eu lieu.</i> personne n'y avait de part sauf le peuple de Dieu, Reuvein et Menashe ? Yehoshua [partagea Israël] à condition que toutes les tribus puissent [faire paître leur bétail] dans n'importe quelle forêt. Cette forêt se trouvait près de la portion d'Ephraïm<sup>2</sup><i class="footnote">De l'autre côté du Jourdain.</i> sauf que le Jourdain était entre les deux, et les gens d'Ephraïm y faisaient paître leur bétail. [On l'appela donc la forêt d'Ephraïm.
 
 ### passuk 7
 
@@ -107,7 +107,7 @@
 <b>Les bêtes sauvages de la forêt ont tué plus de gens.</b> Les bêtes sauvages de la forêt, ainsi Yonason a traduit.
 
 ### passuk 9
-<b>Avsholom happenned.</b> Désignant quelque chose qui vient d'arriver, une rencontre fortuite.
+<b>Avshalom happenned.</b> Désignant quelque chose qui vient d'arriver, une rencontre fortuite.
 <b>Il était suspendu entre le ciel et la terre.</b> Nos rabbins ont dit<sup>3</sup><i class="footnote">Sotah 10b. Voir Méharsho là.</i> Il dégaina son épée pour se couper les cheveux et vit la Géhenne s'ouvrir sous lui.
 
 ### passuk 10
@@ -145,7 +145,7 @@
 
 ### passuk 23
 <b>Et alors.</b> En d'autres termes, et alors si je n'ai pas de récompense ?
-<b>Et il passa.</b> [Traduction de Yonoson :] Il arriva devant le Kouchite.
+<b>Et il passa.</b> [Traduction de Yonatanh :] Il arriva devant le Kouchite.
 
 ### passuk 24
 

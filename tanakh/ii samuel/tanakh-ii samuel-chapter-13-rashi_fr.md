@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Avsholom avait une jolie soeur.</b> C'était la fille de sa mère.
+<b>Avshalom avait une jolie soeur.</b> C'était la fille de sa mère.
 
 ### passuk 2
 <b>Jusqu'à la maladie.</b> Jusqu'à ce qu'il tombe malade.
@@ -75,7 +75,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Ceci a été l'ordre d'Avsholom.</b> C'est sur l'ordre d'Avsholom que cet ordre a été donné à ses serviteurs de tuer Amnon.
+<b>Ceci a été l'ordre d'Avshalom.</b> C'est sur l'ordre d'Avshalom que cet ordre a été donné à ses serviteurs de tuer Amnon.
 
 ### passuk 33
 
@@ -90,13 +90,13 @@
 ### passuk 38
 
 ### passuk 39
-<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonoson traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonatanh traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
-<b>Avsholom avait une jolie soeur.</b> C'était la fille de sa mère.
+<b>Avshalom avait une jolie soeur.</b> C'était la fille de sa mère.
 
 ### passuk 2
 <b>Jusqu'à la maladie.</b> Jusqu'à ce qu'il tombe malade.
@@ -171,7 +171,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Ceci a été l'ordre d'Avsholom.</b> C'est sur l'ordre d'Avsholom que cet ordre a été donné à ses serviteurs de tuer Amnon.
+<b>Ceci a été l'ordre d'Avshalom.</b> C'est sur l'ordre d'Avshalom que cet ordre a été donné à ses serviteurs de tuer Amnon.
 
 ### passuk 33
 
@@ -186,7 +186,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonoson traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonatanh traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris

@@ -65,7 +65,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Pain d'huile,</b> c'est-à-dire la pâte échaudée dans laquelle il <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> utilisait beaucoup d'huile, [jusqu'à un total d'huile] égal à celui ajouté aux] pains et galettes [ensemble] ; ainsi est-il expliqué dans [Maseches] Menochos. 
+<b>Pain d'huile,</b> c'est-à-dire la pâte échaudée dans laquelle il <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> utilisait beaucoup d'huile, [jusqu'à un total d'huile] égal à celui ajouté aux] pains et galettes [ensemble] ; ainsi est-il expliqué dans [Masehet] Menochos. 
 
 ### passuk 27
 
@@ -84,7 +84,7 @@
 ### passuk 33
 
 ### passuk 34
-<b>Adonoy lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tous les sept jours. Et nos rabbins ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la génisse rouge, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et d'enseigner que le <i>Kohein Godol</i> exige <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>l'exclusion sept jours avant Yom Kippour, et de même le <i>kohein</i> qui brûle la Génisse. 
+<b>Hachem lui ordonna de faire,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tous les sept jours. Et nos rabbins ont expliqué : <b>Faire</b>, ceci [fait] référence au rituel de la génisse rouge, <b>faire l'expiation</b>, ceci [fait] référence au rituel de Yom Kippour, et d'enseigner que le <i>Cohen Gadol</i> exige <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>l'exclusion sept jours avant Yom Kippour, et de même le <i>Cohen</i> qui brûle la Génisse. 
 
 ### passuk 35
 <b>Et tu ne mourras pas,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>donc, si tu ne le fais pas, tu es passible de [la] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pénalité [de mort]. 

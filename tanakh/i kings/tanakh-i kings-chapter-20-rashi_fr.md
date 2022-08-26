@@ -11,7 +11,7 @@
 <b>Quand je vous ai envoyé, etc..., vous devez me [les] donner.</b> Je sais que vous me les donnerez, mais je vous décrète autre chose.
 
 ### passuk 6
-<b>Tout ce que vous chérissez, ils le mettront dans leurs mains et le prendront.</b> Les premières [choses] n'étaient-elles pas des choses chéries ? Quel est donc le sens de "[tout] ce que vous chérissez" ? [Cela signifie] un trésor dans un trésor, en référence au rouleau de la Torah, à propos duquel il est dit : " plus désirable que l'or, plus encore que des quantités d'or fin. "<sup>1</sup><i class="footnote">Tehillim 19:11.</i> Achov se dit : " Il exige une grande chose, mais ce n'est pas à moi seul, cela appartient aux anciens de Israël. "<sup>2</sup><i class="footnote">Il ne pouvait donc pas donner la Torah sans consulter les anciens.</i> C'est pourquoi il "appela tous les anciens du pays"<sup>3</sup><i class="footnote">Vers. 7.</i> car même s'ils adoraient les idoles, ils honoraient la Torah.<sup>4</sup><i class="footnote">Voir Maseches Sanhedrin 102b. Malgré tous ses péchés, Achov croyait en la Torah et refusait de l'abandonner. Il était prêt à partir en guerre si nécessaire, pour la défendre. Dieu le récompensa donc par un règne de 22 ans correspondant aux 22 lettres du <i>Alef Beis</i> avec lequel la Torah est écrite.</i>
+<b>Tout ce que vous chérissez, ils le mettront dans leurs mains et le prendront.</b> Les premières [choses] n'étaient-elles pas des choses chéries ? Quel est donc le sens de "[tout] ce que vous chérissez" ? [Cela signifie] un trésor dans un trésor, en référence au rouleau de la Torah, à propos duquel il est dit : " plus désirable que l'or, plus encore que des quantités d'or fin. "<sup>1</sup><i class="footnote">Tehillim 19:11.</i> Achov se dit : " Il exige une grande chose, mais ce n'est pas à moi seul, cela appartient aux anciens de Israël. "<sup>2</sup><i class="footnote">Il ne pouvait donc pas donner la Torah sans consulter les anciens.</i> C'est pourquoi il "appela tous les anciens du pays"<sup>3</sup><i class="footnote">Vers. 7.</i> car même s'ils adoraient les idoles, ils honoraient la Torah.<sup>4</sup><i class="footnote">Voir Masehet Sanhedrin 102b. Malgré tous ses péchés, Achov croyait en la Torah et refusait de l'abandonner. Il était prêt à partir en guerre si nécessaire, pour la défendre. Dieu le récompensa donc par un règne de 22 ans correspondant aux 22 lettres du <i>Alef Beis</i> avec lequel la Torah est écrite.</i>
 
 ### passuk 7
 
@@ -20,7 +20,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonoson a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi", la terre qui colle à la plante des pieds. <sup>5</sup><i class="footnote">Alternativement, שעלים signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre du Shomron, il n'y aurait pas assez de terre pour eux, tant son armée était nombreuse.-Radak</i>
+<b>Si la poussière du Shomron suffira pour la plante des pieds, etc.</b> [Le Targum Yonathan a rendu,] "pour prendre avec les pas de tous les gens qui sont avec moi", la terre qui colle à la plante des pieds. <sup>5</sup><i class="footnote">Alternativement, שעלים signifie poignées, et Ben-Hadad a dit que si chacun de ses soldats devait prendre une poignée de terre du Shomron, il n'y aurait pas assez de terre pour eux, tant son armée était nombreuse.-Radak</i>
 <b>Pour la plante des pieds.</b> Expression de, "fouler avec la plante des pieds", et de même, "dans un chemin étroit [משעול] des vignes,"<sup>6</sup><i class="footnote">Bamidbar 22:24. </i> et de même, "qui a mesuré l'eau de son pas [בשעלו],"<sup>7</sup><i class="footnote">Yeshayahu 40:12.</i> car Il a foulé la Mer Rouge, comme il est dit : "Tu les as foulés dans la mer avec Tes chevaux."<sup>8</sup><i class="footnote">Chavakuk 3:15.</i>.
 <b>Sera suffisant.</b> S'il y a suffisamment .
 
@@ -56,7 +56,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>A la fin de l'année.</b> [Le Targum Yonoson a rendu], "au moment de la fin de l'année."<sup>13</sup><i class="footnote">Alternativement, au printemps, les rois partent en guerre car il y a des provisions dans les champs pour les troupes et leurs animaux. Voir II Chmuel 11:1 et Rachi à ce sujet.</i>
+<b>A la fin de l'année.</b> [Le Targum Yonathan a rendu], "au moment de la fin de l'année."<sup>13</sup><i class="footnote">Alternativement, au printemps, les rois partent en guerre car il y a des provisions dans les champs pour les troupes et leurs animaux. Voir II Chmuel 11:1 et Rachi à ce sujet.</i>
 
 ### passuk 23
 
@@ -95,7 +95,7 @@
 
 ### passuk 35
 <b>Touche-moi maintenant.</b> Ce signe fut mauvais pour Achov, car le prophète lui avait dit par la parole du Tout-Puissant de tuer Ben-Hadad, et il ne l'a pas tué.<sup>24</sup><i class="footnote">Achov choisit d'être miséricordieux envers Ben-Hadad alors qu'il lui avait été ordonné de détruire Arom. Cependant, traiter avec miséricorde les méchants est un mal en soi car les méchants finiront par faire souffrir les autres.-Radak</i> Aussi, celui à qui le prophète a dit par la parole de Dieu : " Frappe-moi ", et qu'il n'a pas frappé, de la même manière qu'Il l'a puni, Il punira Achov.
-<b>Par la parole de Adonoy.</b> Le Saint Béni soit-Il, a dit que tu devais me frapper.
+<b>Par la parole de Hachem.</b> Le Saint Béni soit-Il, a dit que tu devais me frapper.
 
 ### passuk 36
 
@@ -104,7 +104,7 @@
 
 ### passuk 38
 <b>Et se déguisa avec un fichu.</b> Il changea son manteau à capuche pour qu'on ne le reconnaisse pas. Tout changement de vêtement est une expression du déguisement.
-<b>Avec un foulard.</b> [Targum] Yonoson a rendu cela par במעפרא, "un manteau à capuche".
+<b>Avec un foulard.</b> [Targum] Yonatanh a rendu cela par במעפרא, "un manteau à capuche".
 
 ### passuk 39
 <b>Et voici qu'un homme se détourna.</b> De la route vers moi.
@@ -121,7 +121,7 @@
 <b>L'homme que j'ai condamné.</b> איש חרמי signifie "l'homme de ma guerre", une expression de dissension. Une expression de conflit [חרם] peut s'appliquer à la guerre, et de la même manière, "elle descendra sur Edom et sur la nation avec laquelle je fais la guerre [חרמי].<sup>26</sup><i class="footnote">Yeshayahu 34:5. </i> Le Midrash Aggadah [déclare] : "J'ai tendu pour toi de nombreux pièges et filets [חרמים] jusqu'à ce qu'il tombe entre tes mains."<sup>27</sup><i class="footnote">Alternativement, איש חרמי signifie "l'homme que j'ai condamné."-Radak </i>.
 
 ### passuk 43
-<b>Détresse et colère.</b> [Le Targum Yonoson a rendu,] "lésé et triste". Son esprit s'est détourné [סר] de lui.
+<b>Détresse et colère.</b> [Le Targum Yonathan a rendu,] "lésé et triste". Son esprit s'est détourné [סר] de lui.
 
 >Crédit : sefaris
 >License : CC-BY

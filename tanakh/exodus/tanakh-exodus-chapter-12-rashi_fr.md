@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Adonoy dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
+<b>Hachem dit à Moshé et à Aharon.</b> Comme Aharon a accompli, et s'est troublé, en ce qui concerne les merveilles, tout autant que Moshé, Il (Dieu) lui fait cet honneur à la première <i>mitzvah</i>, en l'incluant avec Moshé dans ce message. 
 <b>En terre d'Égypte -</b> [mais] à l'extérieur de la ville. ou n'en était-il pas ainsi, mais [c'était] plutôt à l'intérieur de la ville ? La Torah déclare donc [concernant la prière de Moshé] : "Quand je quitte la ville, etc." Or, si [concernant] la prière, qui est [relativement] moins significative, il ne priait pas à l'intérieur de la ville car elle était remplie d'idoles, alors, [concernant] un message [de Dieu], qui est tellement plus significatif, combien plus [qu'il quitterait la ville]. 
 
 ### passuk 2
@@ -53,14 +53,14 @@
 ### passuk 11
 <b>Avec ta ceinture -</b> prêt à voyager.
 <b>En hâte.</b> [בְּחִפָּזוֹן est] un terme désignant la précipitation et l'empressement, comme dans : "Et David ( נֶחְפָּז ) se précipita pour partir", [ou :] "que les Aramites ont jeté ( בְחָפְזָם ) dans leur précipitation". 
-<b>C'est une offrande de Pessah à Adonoy.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. "[C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu" d'une manière sautillante (c'est-à-dire avec précipitation) en souvenir de son nom (c'est-à-dire du <i>korbon</i>) qui s'appelle "Pessah" ("sauter ou passer"). De même, le mot [pour Pessah] <i>Paske</i> [en vieux français] désigne le <i>saut</i>. 
+<b>C'est une offrande de Pessah à Hachem.</b> Le <i>korbon</i> (sacrifice) est appelé "Pessah" en raison du <i>saut</i> et du <i>passage</i>, car Dieu sautait par-dessus les maisons israélites qui se trouvaient parmi les maisons égyptiennes et Il sautait d'un Égyptien à l'autre et l'Israélite au milieu s'échappait. "[C'est pourquoi] vous accomplissez tout son service (le <i>korbon Pessah</i>) pour l'amour de Dieu" d'une manière sautillante (c'est-à-dire avec précipitation) en souvenir de son nom (c'est-à-dire du <i>korbon</i>) qui s'appelle "Pessah" ("sauter ou passer"). De même, le mot [pour Pessah] <i>Paske</i> [en vieux français] désigne le <i>saut</i>. 
 
 ### passuk 12
 <b>Je passerai.</b> [Ceci est signifié allégoriquement :] <i>comme si</i> Il était un roi qui passe d'un lieu à l'autre [mais ici c'est] en un seul passage et en un seul instant que tous ont été frappés.
 <b>Tous les premiers-nés du pays d'Égypte.</b> [Cela inclut] aussi les autres premiers-nés qui étaient en Égypte. D'où vient qu'aussi les premiers-nés égyptiens qui étaient dans d'autres endroits [furent frappés] ? L'Écriture nous dit : "A celui qui a frappé les Égyptiens par leurs premiers-nés".
 <b>De l'homme à la bête.</b> [De] celui qui a commencé à pécher le premier, c'est de lui que part le châtiment. 
 <b>Et contre tous les dieux d'Égypte.</b> [S'il était] de bois, il pourrirait, [s'il était] de métal, il fondrait et serait versé sur le sol. 
-<b>J'exécuterai les jugements, je suis Adonoy.</b> "Je suis moi-même, pas par l'intermédiaire d'un agent." 
+<b>J'exécuterai les jugements, je suis Hachem.</b> "Je suis moi-même, pas par l'intermédiaire d'un agent." 
 
 ### passuk 13
 <b>Le sang sera pour vous comme un signe.</b> "Comme un signe pour vous" mais pas comme un signe pour les autres. De là [on déduit] qu'on ne mettait du sang qu'à l'intérieur [des montants de la porte].
@@ -134,10 +134,10 @@
 ### passuk 28
 <b>Les B'nei Yisrael sont allés et ont fait.</b> Mais avaient-ils déjà fait - n'avaient-ils pas été commandés dès le premier du mois ? Mais [la réponse est] qu'une fois qu'ils se sont engagés, la Torah le considère comme s'ils l'avaient fait. 
 <b>Ils sont allés et ont fait.</b> Le "aller" est également mentionné dans la Torah, afin de donner une récompense pour le "aller" et une récompense pour le faire. 
-<b>Comme Adonoy l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie כֵּן עָשֹוּ - <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, ont agi ainsi. 
+<b>Comme Hachem l'a ordonné à Moshé et Aharon.</b> Afin de relater la louange de [les B'nei] Yisraël qu'ils n'ont absolument rien omis de tous les commandements de Moshé et Aharon. Et que signifie כֵּן עָשֹוּ - <i>ils ont fait cela</i> ? [Cela fait référence au fait que] Moshé et Aharon, eux aussi, ont agi ainsi. 
 
 ### passuk 29
-<b>Et Adonoy.</b> Partout où il est dit וה' (avec le préfixe ו'), il s'agit de Lui et de Sa cour divine, car la lettre ו' représente un ajout comme on dit : "untel ainsi qu'untel". 
+<b>Et Hachem.</b> Partout où il est dit וה' (avec le préfixe ו'), il s'agit de Lui et de Sa cour divine, car la lettre ו' représente un ajout comme on dit : "untel ainsi qu'untel". 
 <b>Fait tomber tout fils premier-né.</b> Même s'il était d'une autre nation, qui se trouvait [à l'époque] en Égypte. 
 <b>Du fils premier-né (de) Pharaon.</b> Pharaon, lui aussi, était un fils premier-né, mais il a été épargné du sort des [autres] fils premiers-nés. C'est à lui qu'il est fait référence lorsqu'il est dit : "C'est pour cette raison que je t'ai épargné afin de te montrer ma puissance dans la mer des roseaux". 
 <b>Au fils premier-né du captif.</b> 1. Parce qu'ils se sont réjouis du malheur des Israélites. Aussi, afin qu'ils ne disent pas : "C'est notre dieu qui a provoqué le châtiment [des Égyptiens]". 2. Le premier-né de l'esclave est inclus [ici], parce que [ce verset] énumère [tout le monde] du plus important [jusqu'au] moins important, et le fils premier-né de l'esclave est plus important que le fils premier-né du captif. 
@@ -183,18 +183,18 @@
 
 ### passuk 39
 <b>Gâteaux Matzoh.</b> [עֻגֹת מַצּוֹת signifie :] gâteau fait de pain sans levain. La pâte qui n'a pas levé est appelée <i>matzoh</i>.
-<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes -</b> pour le voyage. Cela raconte la louange des Israélites, qu'ils n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : "Je (Dieu) me souviens pour vous de l'amour de votre jeunesse, de l'amour de vos fiançailles [avec Moi], lorsque vous Me suiviez dans le désert - dans une terre qui n'était pas ensemencée." Et quelle récompense est prévue ensuite ? "Yisraël est sanctifié par Adonoy, etc." 
+<b>Ils n'avaient pas non plus préparé de provisions pour eux-mêmes -</b> pour le voyage. Cela raconte la louange des Israélites, qu'ils n'ont pas dit : "Comment pouvons-nous aller dans le désert sans provisions ?", mais plutôt ils ont eu la foi et ils sont allés. C'est ce qui est explicitement dit dans les Prophètes : "Je (Dieu) me souviens pour vous de l'amour de votre jeunesse, de l'amour de vos fiançailles [avec Moi], lorsque vous Me suiviez dans le désert - dans une terre qui n'était pas ensemencée." Et quelle récompense est prévue ensuite ? "Yisraël est sanctifié par Hachem, etc." 
 
 ### passuk 40
 <b>Vivre en Égypte.</b> Après les autres établissements où ils se sont installés comme des étrangers dans une terre qui n'était pas la leur.
-<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitzchok jusqu'à maintenant, il y eut quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : "Car ton descendant sera un étranger", et trente ans se sont écoulés entre le moment où le décret "entre les pièces" a été décrété et la naissance de Yitzchok. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehos était parmi ceux qui sont venus avec Yaakov. Maintenant, allez calculer toutes ses années et toutes les années de son fils Amram. 
+<b>Quatre cent trente ans.</b> En tout, depuis la naissance de Yitshak jusqu'à maintenant, il y eut quatre cents ans. [Notre décompte se fait à partir de cette période] car [seulement] à partir du moment où Avraham a eu un enfant, il pouvait y avoir un accomplissement [de la prophétie] : "Car ton descendant sera un étranger", et trente ans se sont écoulés entre le moment où le décret "entre les pièces" a été décrété et la naissance de Yitshak. On ne peut pas dire [que les 430 ans se sont écoulés] dans le seul pays d'Égypte, car Kehos était parmi ceux qui sont venus avec Yaakov. Maintenant, allez calculer toutes ses années et toutes les années de son fils Amram. 
 
 ### passuk 41
-<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'œil : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitzchok), Le 15 Nissan, Yitzchok naquit et le 15 Nissan, le décret "entre les morceaux" fut décrété. 
+<b>C'était au bout de [quatre cent et] trente ans, etc. Et ce jour-là</b> Cela nous indique qu'au moment où la servitude a pris fin, Dieu ne les a pas retenus, même pour un clin d'œil : [Ceci nous dit donc que] le 15 Nissan, les anges servants vinrent auprès d'Avraham pour lui annoncer (la naissance de Yitshak), Le 15 Nissan, Yitshak naquit et le 15 Nissan, le décret "entre les morceaux" fut décrété. 
 
 ### passuk 42
 <b>Une nuit de veille -</b> à laquelle Dieu veillait et attendait avec impatience afin d'accomplir sa promesse de les faire sortir d'Égypte.
-<b>Cette nuit reste une nuit [de veille] pour Adonoy.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants." 
+<b>Cette nuit reste une nuit [de veille] pour Hachem.</b> C'est la nuit au sujet de laquelle Il a dit à Avraham : "C'est en cette nuit que je rachèterai tes enfants." 
 <b>Une nuit de veille pour tous les B'nei Yisrael pour leurs générations.</b> Elle est continuellement protégée des forces destructrices. Comme il est dit : "Il ne permettra pas le destructeur, etc." 
 
 ### passuk 43

@@ -5,7 +5,7 @@
 <b>Charoshes Hogoyim.</b> Le nom d'une ville, ainsi intitulée parce qu'elle était une place forte, et le siège de l'autorité. <sup>1</sup><i class="footnote">Ceci est basé sur le Targum Yonasan, qui traduit <span>חֲרֹשֶׁת הַגּוֹיׅם</span> par "la place forte, métropole des nations".</i>
 
 ### passuk 3
-<b>On a opprimé les Bnei Israël intensément.</b> R' Tanchuma a expliqué, par le ridicule. De la même manière, il est dit : "Vos remarques m'offensent intensément."<sup>2</sup><i class="footnote">Malachie, 3:13. Les versets 14 et 15 définissent les remarques offensantes comme étant la moquerie de l'adoration d'Adonoy.</i>
+<b>On a opprimé les Bnei Israël intensément.</b> R' Tanchuma a expliqué, par le ridicule. De la même manière, il est dit : "Vos remarques m'offensent intensément."<sup>2</sup><i class="footnote">Malachie, 3:13. Les versets 14 et 15 définissent les remarques offensantes comme étant la moquerie de l'adoration d'Hachem.</i>
 
 ### passuk 4
 <b>La femme de Lapidos.</b> Elle façonnait des mèches pour le sanctuaire.</sup>3</sup><i class="footnote">Megilah, 14:a. <span>לַפּׅיד</span> est traduit par "torche".</i>

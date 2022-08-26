@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Le peuple était comme des râleurs.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Le peuple" désigne uniquement les méchants. De même, il est dit : "que dois-je faire pour ce peuple", et il est dit : "ce peuple mauvais". Mais lorsqu'ils sont <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> justes, ils sont appelés "Mon peuple", comme il est dit : "envoie Mon peuple", "Mon peuple, que t'ai-je fait ?". 
 <b>Comme des râleurs.</b> מִתְאֹנְנִים est un terme qui fait strictement référence à un prétexte. Ils cherchent un prétexte afin de se détourner de [suivre] l'Omniprésent. De même, il est dit à propos de Shimshon : "car il cherche un prétexte". 
-<b>Méchant aux oreilles d'Adonoy.</b> Une plainte méchante aux oreilles de Dieu, car ils ont voulu qu'elle parvienne à Ses oreilles et le mette en colère. Ils dirent : " Malheur à nous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme nous avons peiné pendant ce voyage. Trois jours [se sont écoulés] que nous ne nous sommes pas reposés de la fatigue du voyage." 
+<b>Méchant aux oreilles d'Hachem.</b> Une plainte méchante aux oreilles de Dieu, car ils ont voulu qu'elle parvienne à Ses oreilles et le mette en colère. Ils dirent : " Malheur à nous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme nous avons peiné pendant ce voyage. Trois jours [se sont écoulés] que nous ne nous sommes pas reposés de la fatigue du voyage." 
 <b>Et sa colère s'est enflammée.</b> J'ai voulu vous avantager, afin que vous entriez immédiatement dans le pays. 
 <b>Les parias du camp.</b> Ceux d'entre eux qui étaient des parias, de statut inférieur, ils constituaient le grand mélange. R' Shimon ben Menasya dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>les distingués parmi eux, et les grands. 
 
@@ -80,7 +80,7 @@
 <b>Pour un mois de jours.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'était le cas des personnes [comparativement] vertueuses, qui tombaient malades dans leur lit et expiraient ensuite. Mais pour les méchants, il est dit que "la viande était encore entre leurs dents". C'est ainsi qu'il est enseigné par Sifri. La Mechilta, cependant, enseigne l'inverse. Les méchants ont mangé et souffert pendant trente jours, mais avec les honnêtes gens - la viande était encore entre leurs dents. 
 <b>Jusqu'à ce qu'elle sorte de tes narines.</b> Comme le traduit le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"elle te dégoûte." Vous aurez l'impression de vous en être gavé jusqu'à ce qu'il soit expulsé par le nez. 
 <b>Il te répugnera.</b> Tu le rejetteras <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> plus facilement que tu ne l'as accueilli. Dans le commentaire de R' Moshe Hadarshan, j'ai vu que, dans une certaine langue, l'épée est appelée "<i>zara</i>". 
-<b>Adonoy Qui est parmi vous.</b> Si Je n'avais pas planté Ma Présence parmi vous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>vous n'auriez pas eu l'arrogance d'entrer dans toutes ces affaires. 
+<b>Hachem Qui est parmi vous.</b> Si Je n'avais pas planté Ma Présence parmi vous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>vous n'auriez pas eu l'arrogance d'entrer dans toutes ces affaires. 
 
 ### passuk 21
 <b>Six cent mille à pied.</b> Il ne s'est pas soucié de compter en détail les trois mille restants. R' Moshe Hadarshan explique que seuls <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ceux qui sortirent d'Égypte, pleurèrent. 

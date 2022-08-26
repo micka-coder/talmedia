@@ -3,7 +3,7 @@
 <b>Et [un entourage de] cinquante hommes etc.</b> Tous avaient les cuisses enlevées et les talons des pieds coupés.</sup>1</sup><i class="footnote">Sanhedrin 21a. Rachi y explique que le fait de ne pas avoir de cuisses leur permettait de courir plus vite et que le fait de ne pas avoir de talons leur permettait de marcher sur des objets pointus sans aucune sensation de douleur.</i>
 
 ### passuk 2
-<b>Avsholom se levait tôt.</b> Tous les matins.
+<b>Avshalom se levait tôt.</b> Tous les matins.
 <b>D'une des tribus de Israël.</b> De telle ou telle tribu.
 
 ### passuk 3
@@ -16,9 +16,9 @@
 ### passuk 6
 
 ### passuk 7
-<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avsholom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
+<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
-<b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
+<b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avshalom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
 
 ### passuk 8
 
@@ -27,7 +27,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avsholom] demanda à son père qu'il [David] écrive [un document] pour lui afin que toute deux personnes qu'il demande d'aller avec lui, y aille. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi de suite à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à David que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
+<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avshalom] demanda à son père qu'il [David] écrive [un document] pour lui afin que toute deux personnes qu'il demande d'aller avec lui, y aille. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi de suite à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à David que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
 
 ### passuk 12
 
@@ -46,12 +46,12 @@
 <b>Par lui.</b> Près de lui, Il se tenait en place et ils passaient à côté.
 
 ### passuk 19
-<b>Avec le roi.</b> Avec Avsholom.
+<b>Avec le roi.</b> Avec Avshalom.
 <b>Parce que tu es un étranger.</b> Nous fuyons sans provisions et sans nourriture, et parce que tu es un étranger, tu ne trouveras pas de gens qui auront pitié de toi.
-<b>Et même si tu es exilé [d'Avsholom].</b> Et même si tu es exilé du roi [Avsholom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
+<b>Et même si tu es exilé [d'Avshalom].</b> Et même si tu es exilé du roi [Avshalom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
 
 ### passuk 20
-<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avsholom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
+<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avshalom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
 <b>Je considérerai cela comme de la bonté et de la vérité.</b> Je te créditerai la faveur de la bonté et de la vérité que tu as faite pour moi.
 
 ### passuk 21
@@ -110,7 +110,7 @@
 <b>Et [un entourage de] cinquante hommes etc.</b> Tous avaient les cuisses enlevées et les talons des pieds coupés.</sup>1</sup><i class="footnote">Sanhedrin 21a. Rachi y explique que le fait de ne pas avoir de cuisses leur permettait de courir plus vite et que le fait de ne pas avoir de talons leur permettait de marcher sur des objets pointus sans aucune sensation de douleur.</i>
 
 ### passuk 2
-<b>Avsholom se levait tôt.</b> Tous les matins.
+<b>Avshalom se levait tôt.</b> Tous les matins.
 <b>D'une des tribus de Israël.</b> De telle ou telle tribu.
 
 ### passuk 3
@@ -123,9 +123,9 @@
 ### passuk 6
 
 ### passuk 7
-<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avsholom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
+<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
-<b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avsholom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
+<b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avshalom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
 
 ### passuk 8
 
@@ -134,7 +134,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avsholom] demanda à son père qu'il [David] écrive [un document] pour lui afin que toute deux personnes qu'il demande d'aller avec lui, y aille. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à David que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
+<b>Invité et départ en innovence.</b> Il est expliqué dans le Yerushalmi tractat de Sotah<sup>5</sup><i class="footnote">Chapitre 1, halach 8.</i> qu'il [Avshalom] demanda à son père qu'il [David] écrive [un document] pour lui afin que toute deux personnes qu'il demande d'aller avec lui, y aille. Il le montra [le document] à deux personnes ici, puis à deux autres personnes et ainsi à de nombreuses personnes.<sup>6</sup><i class="footnote">Mais il laissa entendre à David que seuls deux hommes iraient. Il continuait à utiliser le même document pour de plus en plus de paires d'hommes.</i>
 
 ### passuk 12
 
@@ -153,12 +153,12 @@
 <b>Par lui.</b> Près de lui, Il se tenait en place et ils passaient à côté.
 
 ### passuk 19
-<b>Avec le roi.</b> Avec Avsholom.
+<b>Avec le roi.</b> Avec Avshalom.
 <b>Parce que tu es un étranger.</b> Nous fuyons sans provisions et sans nourriture, et parce que tu es un étranger, tu ne trouveras pas de gens qui auront pitié de toi.
-<b>Et même si tu es exilé [d'Avsholom].</b> Et même si tu es exilé du roi [Avsholom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
+<b>Et même si tu es exilé [d'Avshalom].</b> Et même si tu es exilé du roi [Avshalom] parce que tu ne veux pas être avec lui, alors retourne chez toi car il n'est pas bon d'aller avec moi parce que tu es [juste] venu hier.<sup>7</sup><i class="footnote">Ce verset se fond dans le verset 20 où David explique davantage pourquoi il est désavantageux pour Itaï de rester avec lui.</i>
 
 ### passuk 20
-<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avsholom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
+<b>Et si aujourd'hui je te faisais bouger avec nous.</b> Je n'ai aucun endroit où je puisse t'installer pour t'échapper car je vais là où les circonstances me font aller chaque jour. Lorsque j'apprends que les poursuivants sont ici, je m'enfuis ici. Et c'est ainsi que Yonasan traduit [le verset] : " Et si tu es éloigné [d'Avshalom] tu peux rentrer chez toi " [par :] " Et si tu es éloigné va [retourner] dans ta ville ".
 <b>Je considérerai cela comme de la bonté et de la vérité.</b> Je te créditerai la faveur de la bonté et de la vérité que tu as faite pour moi.
 
 ### passuk 21

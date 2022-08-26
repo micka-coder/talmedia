@@ -4,7 +4,7 @@
 <b>Sortir d'Égypte la nuit.</b> Mais n'ont-ils pas quitté le jour, comme il est dit : "Le lendemain de l'offrande pascale, les Israélites sortirent, etc." ? Mais, parce que c'est la nuit que Pharaon leur a accordé la permission de partir, comme il est dit : "Il appela Moshé et Aharon la nuit, etc." 
 
 ### passuk 2
-<b>Tu égorgeras l'offrande de Pessah à Adonoy ton Dieu ; des troupeaux.</b> Comme il est dit : "Tu la prendras sur les moutons et les chèvres." 
+<b>Tu égorgeras l'offrande de Pessah à Hachem ton Dieu ; des troupeaux.</b> Comme il est dit : "Tu la prendras sur les moutons et les chèvres." 
 <b>Et les bovins.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Vous égorgerez, comme l'offrande de <i>chagigah</i>. Si les personnes engagées comme partenaires dans le <i>pesach</i> étaient un groupe important, elles doivent apporter, avec lui, une offrande de <i>chagigah</i>, afin qu'elle soit consommée lorsqu'elles se sont rassasiées. En outre, les rabbins tirent de nombreux enseignements de ce passage. 
 
 ### passuk 3
@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>Pendant six jours, vous mangerez des matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ailleurs, il est dit sept jours. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sept de l'ancienne récolte, six de la nouvelle. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une autre interprétation. Celle-ci enseigne que manger du <i>matzoh</i> le septième jour n'est pas obligatoire. Vous apprenez de cela, et l'appliquez aux six jours ; Car, le septième a été inclus dans un groupe général, puis isolé, avec l'enseignement que manger <i>matzah</i> alors n'est pas obligatoire, mais arbitraire. Il n'a pas été isolé strictement pour lui-même, mais comme un exemple pour l'ensemble du groupe. De même que le septième jour est arbitraire, de même tous les jours sont arbitraires, à l'exception du premier soir, que l'Écriture désigne comme obligatoire, puisqu'il est dit : "Le soir, tu mangeras des matzos." 
-<b>C'est un retrait pour l'amour d'Adonoy ton Dieu.</b> Se retirer du travail. Une autre interprétation. Un rassemblement pour fêter avec de la nourriture et des boissons, comme dans "S'il te plaît, laisse-nous te rassembler". 
+<b>C'est un retrait pour l'amour d'Hachem ton Dieu.</b> Se retirer du travail. Une autre interprétation. Un rassemblement pour fêter avec de la nourriture et des boissons, comme dans "S'il te plaît, laisse-nous te rassembler". 
 
 ### passuk 9
 <b>Du moment où la faucille commence à abattre le grain sur pied.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Du moment où l'on coupe le <i>omer</i>, ce qui commence la récolte. 
@@ -49,7 +49,7 @@
 <b>Vous connaîtrez une joie pure.</b> Selon son sens ordinaire, il ne s'agit pas d'un commandement, mais d'une assurance. Selon l'enseignement talmudique, cependant, il découle d'ici que <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le dernier soir de la fête est inclus dans la <i>mitzvah</i> de se réjouir. 
 
 ### passuk 16
-<b>Il ne se présentera pas les mains vides en présence d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Apportent plutôt des offrandes de pèlerinage <i>olah</i> et des offrandes de fête <i>shelamim</i>. 
+<b>Il ne se présentera pas les mains vides en présence d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Apportent plutôt des offrandes de pèlerinage <i>olah</i> et des offrandes de fête <i>shelamim</i>. 
 
 ### passuk 17
 <b>Chacun selon le don approprié à ses moyens.</b> Quelqu'un qui a de nombreux invités et une grande aisance devra apporter de nombreuses offrandes de <i>olah-</i> et de <i>shelamim</i>.
@@ -57,7 +57,7 @@
 ### passuk 18
 <b>Juges et policiers.</b> Juges : Magistrats qui rendent des décisions juridiques. Officiers de police - qui obligent le peuple à se conformer à leurs instructions <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>en administrant des châtiments corporels avec des gourdins et des fouets, jusqu'à ce qu'ils acceptent la décision du juge. 
 <b>Dans toutes vos villes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Dans chacune de vos villes.
-<b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela continue à partir de "Vous vous nommerez" - "Vous vous nommerez des juges et des officiers de police pour vos tribus, dans toutes vos villes qu'Adonoy, votre Dieu, vous donne." 
+<b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela continue à partir de "Vous vous nommerez" - "Vous vous nommerez des juges et des officiers de police pour vos tribus, dans toutes vos villes qu'Hachem, votre Dieu, vous donne." 
 <b>Pour vos tribus.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que des juges doivent être assis pour chaque tribu et dans chaque ville.
 <b>Qui jugera le peuple, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Nommer des juges compétents, justes, pour juger avec droiture. 
 
@@ -74,7 +74,7 @@
 
 ### passuk 21
 <b>Ne plantez pas un arbre d'Asherah pour vous-même.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela le rend responsable à partir du moment où il a été planté. Même s'il ne l'a jamais vénéré, il transgresse un commandement négatif pour la plantation même. 
-Ne plante pas un <i>Asherah</i> arbre pour toi-même ; tout arbre près de l'autel d'Adonoy, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela interdit de planter un arbre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ou de construire une structure sur le mont du Temple. 
+Ne plante pas un <i>Asherah</i> arbre pour toi-même ; tout arbre près de l'autel d'Hachem, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela interdit de planter un arbre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ou de construire une structure sur le mont du Temple. 
 
 ### passuk 22
 <b>Ne t'érige pas de monument.</b> Un monument d'une seule pierre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour des offrandes sacrificielles, même pour l'amour du Ciel. 

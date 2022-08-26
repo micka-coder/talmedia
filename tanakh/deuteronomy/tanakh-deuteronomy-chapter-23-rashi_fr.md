@@ -8,7 +8,7 @@
 <b>Ou avec une entaille provoquant un écoulement.</b> L'organe a été gazé, et n'éjecte plus un jet de sperme, mais renverse et dégouline, et est stérile. 
 
 ### passuk 3
-<b>Un natif de la base ne peut entrer dans la communauté d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne peut épouser une femme israélite.
+<b>Un natif de la base ne peut entrer dans la communauté d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne peut épouser une femme israélite.
 
 ### passuk 4
 <b>Un Ammonite ne peut pas entrer.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne peut pas épouser une femme israélite.

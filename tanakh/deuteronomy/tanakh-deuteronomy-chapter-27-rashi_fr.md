@@ -3,7 +3,7 @@
 <b>Gardez tous les commandements.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela dénote la constance. <i>Gardant</i> en vieux français.
 
 ### passuk 2
-<b>Dresser.</b> Dans le Yardein. Par la suite, en retirer d'autres de là, et construire avec eux un autel sur le mont Eival. Par conséquent, nous pouvons affirmer que <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il y avait trois sortes de pierres ; douze dans le Yardein, un nombre similaire à Gilgal, le même au Mont Eival, comme indiqué dans le Tractate Sotah. 
+<b>Dresser.</b> Dans le Jourdain. Par la suite, en retirer d'autres de là, et construire avec eux un autel sur le mont Eival. Par conséquent, nous pouvons affirmer que <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il y avait trois sortes de pierres ; douze dans le Jourdain, un nombre similaire à Gilgal, le même au Mont Eival, comme indiqué dans le Tractate Sotah. 
 
 ### passuk 3
 

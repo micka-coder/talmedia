@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Comment se peut-il que l'éclat d'or ait pâli.</b> Cette élégie a été prononcée sur Yoshiyahou,<sup>1</sup><i class="footnote">qui a été tué dans une bataille avec le pharaon Nécho. </i> comme il est dit dans le Divrei Hayomim, "Voici qu'il est écrit dans le livre des Lamentations"<sup>2</sup><i class="footnote">II Divrei Hayomim 35:25. </i> et il y joint, au milieu de l'élégie, le reste des enfants de Tzion. 
+<b>Comment se peut-il que l'éclat d'or ait pâli.</b> Cette élégie a été prononcée sur Yoshiyahou,<sup>1</sup><i class="footnote">qui a été tué dans une bataille avec le pharaon Nécho. </i> comme il est dit dans le Divrei Hayamim, "Voici qu'il est écrit dans le livre des Lamentations"<sup>2</sup><i class="footnote">II Divrei Hayamim 35:25. </i> et il y joint, au milieu de l'élégie, le reste des enfants de Tzion. 
 <b>Palé.</b> Diminué, comme dans "כֵּהָה"<sup>3</sup><i class="footnote">Vayikra 13:6. </i> qui est rendu [par le Targum par] עַמְיָא [=dimé]. 
 <b>Doré.</b> L'aspect d'un visage qui brille comme de l'or.
 <b>Modifié.</b> Change d'apparence.
@@ -45,7 +45,7 @@
 <b>Leur nourriture.</b> Pour la nourriture, comme dans, "et il ne mangea pas de בָרָה nourriture avec eux,"<sup>15</sup><i class="footnote">II Shmuel 12:17. </i> [et comme dans] "pour servir un repas à David לְהַבְרוֹת."<sup>16</sup><i class="footnote">Ibid. 3:35. </i> 
 
 ### passuk 11
-<b>Adonoy a dépensé sa colère.</b> Qui brûlait en lui depuis de nombreuses années.</sup>17</sup><i class="footnote">La fureur de Dieu est comparée à un " feu dévorant " comme dans Eichah 2:3 ci-dessus ; voir aussi Devorim 4:24. </i> Il l'a maintenant dépensée lorsqu'il s'est vengé d'eux. 
+<b>Hachem a dépensé sa colère.</b> Qui brûlait en lui depuis de nombreuses années.</sup>17</sup><i class="footnote">La fureur de Dieu est comparée à un " feu dévorant " comme dans Eichah 2:3 ci-dessus ; voir aussi Devorim 4:24. </i> Il l'a maintenant dépensée lorsqu'il s'est vengé d'eux. 
 
 ### passuk 12
 
@@ -53,7 +53,7 @@
 <b>Pour les péchés de ses faux prophètes.</b> [A cause des] faux [prophètes], ce mal l'a atteinte.<sup>18</sup><i class="footnote">Alternativement, 'à cause des péchés commis contre les prophètes', à savoir le meurtre de Zacharie, ce mal l'a atteinte. (Eichah Rabba 4:16) Ou 'à cause des péchés commis par ses prophètes et <i>kohanim</i> qui ont brûlé de l'encens pour le culte des idoles, ce mal l'a atteinte.' (Targum) </i> 
 
 ### passuk 14
-<b>Les aveugles se glissaient dans les rues.</b> Quand les aveugles marchaient dans la rue, ils titubaient, et leurs pieds glissaient sur le sang des tués,</sup>19</sup><i class="footnote">Alternativement, 'ils erraient aveuglément dans les rues'. </i> que les méchants égorgeaient au milieu d'elle [Yerusholayim]. 
+<b>Les aveugles se glissaient dans les rues.</b> Quand les aveugles marchaient dans la rue, ils titubaient, et leurs pieds glissaient sur le sang des tués,</sup>19</sup><i class="footnote">Alternativement, 'ils erraient aveuglément dans les rues'. </i> que les méchants égorgeaient au milieu d'elle [Jérusalem]. 
 <b>Filtrés de sang.</b> Ils étaient tellement souillés de sang que ceux qui les approchaient ne pouvaient pas toucher leurs vêtements et les interpellaient donc.<sup>20</sup><i class="footnote">"Eloignez-vous, vous êtes contaminés, etc.". </i> 
 
 ### passuk 15
@@ -62,7 +62,7 @@
 <b>Et se glissant.</b> Ils se glissèrent dans le sang...
 
 ### passuk 16
-<b>Dans la colère éclatante d'Adonoy, il les a dispersés.</b> Le visage furieux du Saint, Béni soit-Il, les a divisés et séparés parmi les nations, parce qu'ils n'ont pas respecté la présence des <i>kohanim</i> quand ils étaient dans leur tranquillité. 
+<b>Dans la colère éclatante d'Hachem, il les a dispersés.</b> Le visage furieux du Saint, Béni soit-Il, les a divisés et séparés parmi les nations, parce qu'ils n'ont pas respecté la présence des <i>kohanim</i> quand ils étaient dans leur tranquillité. 
 
 ### passuk 17
 <b>Nous avons persisté à regarder avec nostalgie des renforts illusoires.</b> Lorsque le malheur nous a frappés, nos yeux étaient encore tournés vers l'armée de Pharaon, au sujet de laquelle il est dit : "Et les Égyptiens, ils aident en vain et en vain,"<sup>23</sup><i class="footnote">Yeshayahu 30:7. </i> car ils nous promettaient de l'aide mais ils ne venaient pas, comme il est dit à leur sujet : "Voici que l'armée de Pharaon, qui est sortie pour [vous] aider, retourne dans son pays, en Égypte."<sup>24</sup><i class="footnote">Yirmiyahu 37:7. </i> Nous trouvons dans le Midrash Kinos qu'ils venaient en bateaux. Le Saint, béni soit-Il, fit signe à la mer et provoqua des flacons gonflés<sup>25</sup><i class="footnote">Le texte du Midrash est שלדותיהן, c'est-à-dire leurs squelettes. </i> comme des intestins humains pour se déplacer dans l'eau. Ils se dirent l'un à l'autre : "Ces fioles sont nos ancêtres, les hommes d'Égypte qui se sont noyés dans la mer à cause de ces Juifs, et nous allons les assister ?" Ils se sont arrêtés et ont fait demi-tour. 
@@ -74,11 +74,11 @@
 ### passuk 19
 
 ### passuk 20
-<b>L'oint d'Adonoy.</b> Il s'agit de Yoshiyahou, comme il est dit dans le Divrei Hayomim : "Et Yirmiyahou se lamenta sur Yoshiyahou."<sup>28</sup><i class="footnote">II Divrei Hayomim 35:25. Voir Maseches Ta'anis 22b. Alternativement, " le désigné d'Adonoy " fait référence à Tzidkiyahu roi de Yehouda qui fut aveuglé et emmené à Bavel enchaîné par les gens de Kasdim. </i> 
+<b>L'oint d'Hachem.</b> Il s'agit de Yoshiyahou, comme il est dit dans le Divrei Hayamim : "Et Yirmiyahou se lamenta sur Yoshiyahou."<sup>28</sup><i class="footnote">II Divrei Hayamim 35:25. Voir Masehet Ta'anis 22b. Alternativement, " le désigné d'Hachem " fait référence à Tzidkiyahu roi de Yehouda qui fut aveuglé et emmené à Bavel enchaîné par les gens de Kasdim. </i> 
 <b>Dans leurs pièges.</b> Dans les fosses qu'ils ont creusées.
 
 ### passuk 21
-<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé la destruction du second Beis Hamikdosh que les Romains détruiraient.<sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Yerusholayim et s'est réjoui de la destruction du premier Beis Hamikdosh, comme il est dit "Souviens-toi, Adonoy, pour la progéniture d'Edom... qui dit 'Détruis ! Détruisez ! " etc..., dans Tehilim 137:7. </i> 
+<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé la destruction du second Beis Hamikdosh que les Romains détruiraient.<sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Jérusalem et s'est réjoui de la destruction du premier Beis Hamikdosh, comme il est dit "Souviens-toi, Hachem, pour la progéniture d'Edom... qui dit 'Détruis ! Détruisez ! " etc..., dans Tehilim 137:7. </i> 
 <b>Réjouissez-vous dans l'allégresse.</b> Pour le moment, mais finalement, la coupe du châtiment passera aussi sur vous, et vous vous enivrerez. 
 <b>Jusqu'à ce que tu vomisses.</b> Et tu vomiras, comme dans "et elle vida וַתְּעַר sa cruche."<sup>30</sup><i class="footnote">Bereishis 24:20. </i> 
 

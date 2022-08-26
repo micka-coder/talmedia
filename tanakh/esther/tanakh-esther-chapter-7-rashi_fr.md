@@ -11,7 +11,7 @@
 <b>Parce que l'oppresseur n'a aucun égard pour les pertes subies par sa majesté.</b> Il ne se préoccupe pas de la perte du roi, car s'il avait cherché votre avantage, il aurait dû dire : "Vendez-les comme esclaves et servantes et prenez l'argent", ou "gardez-les maintenant pour être vos esclaves, eux et leurs descendants." 
 
 ### passuk 5
-<b>Le roi Achashveirosh a parlé. Il dit à la reine Esther.</b> Partout où il est dit : " et il dit... et il dit ", deux fois, il faut l'exposer. Et l'interprétation midrashique de ceci est : A l'origine, il lui parlait par un intermédiaire, mais maintenant qu'il savait qu'elle était d'une famille royale, il lui parlait personnellement.<sup>2</sup><i class="footnote">Maseches Megillah 16a. </i> 
+<b>Le roi Achashveirosh a parlé. Il dit à la reine Esther.</b> Partout où il est dit : " et il dit... et il dit ", deux fois, il faut l'exposer. Et l'interprétation midrashique de ceci est : A l'origine, il lui parlait par un intermédiaire, mais maintenant qu'il savait qu'elle était d'une famille royale, il lui parlait personnellement.<sup>2</sup><i class="footnote">Masehet Megillah 16a. </i> 
 
 ### passuk 6
 

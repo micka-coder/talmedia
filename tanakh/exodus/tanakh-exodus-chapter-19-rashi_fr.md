@@ -40,7 +40,7 @@
 <b>Les paroles du peuple, etc.</b> "J'ai entendu une réponse de leur part à ce sujet, à savoir que leur désir est d'entendre [les commandements] de Ta part [et non de la mienne]. Entendre le messager n'est pas la même chose qu'entendre [directement] le Roi. C'est notre souhait de voir notre Roi !" 
 
 ### passuk 10
-<b>Adonoy dit à Moshé.</b> S'il en est ainsi - qu'ils rendent nécessaire de leur parler [directement] - va vers le peuple -...
+<b>Hachem dit à Moshé.</b> S'il en est ainsi - qu'ils rendent nécessaire de leur parler [directement] - va vers le peuple -...
 <b>et sanctifie-les.</b> [וְקִדַּשְׁתָּם signifie :] et prépare-les, qu'ils se préparent aujourd'hui et demain. 
 
 ### passuk 11
@@ -57,7 +57,7 @@
 <b>On sera jeté en bas.</b> On apprend ici que ceux qui sont lapidés sont d'abord poussés en bas du lieu de lapidation d'une hauteur qui est le double de celle d'un homme.
 <b>Cast down.</b> [יִיָּרֶה signifie :] seront jetés à terre comme dans : יָרָה בַיָּם - "précipités dans la mer".
 <b>Lorsque le cor est sonné.</b> Lorsque le cor va tirer un long son, c'est un signe du départ de la Shechinah et de la cessation du son. Une fois qu'elle s'est éloignée, ils peuvent monter [sur la montagne]. 
-<b>La corne.</b> Il s'agit de la corne d'un bélier car en Arabie, un bélier est appelé יוֹבְלָא . Cette corne était la corne du bélier de Yitzchok.
+<b>La corne.</b> Il s'agit de la corne d'un bélier car en Arabie, un bélier est appelé יוֹבְלָא . Cette corne était la corne du bélier de Yitshak.
 
 ### passuk 14
 <b>De la montagne au peuple.</b> Cela enseigne que Moshé n'a pas tourné son attention vers ses affaires privées, mais [qu'il est allé directement] "de la montagne au peuple." 
@@ -83,7 +83,7 @@
 <b>Il lui a répondu par [sa] voix.</b> Il a répondu [à son besoin] concernant sa voix, comme dans : "Il a répondu בָאֵשׁ " qui signifie : " concernant le feu " en le faisant descendre. 
 
 ### passuk 20
-<b>Adonoy est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé du haut des cieux." Ces deux déclarations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trône céleste est descendu sur eux.
+<b>Hachem est descendu sur le mont Sinaï.</b> On pourrait supposer qu'Il y est littéralement descendu. La Torah déclare donc : "Car je vous ai parlé du haut des cieux." Ces deux déclarations prises ensemble nous enseignent : qu'Il a abaissé les cieux supérieurs et inférieurs et les a étendus sur la montagne comme un étendage sur un lit et le trône céleste est descendu sur eux.
 
 ### passuk 21
 <b>Avertissez le peuple.</b> "Avertissez-les de ne pas monter sur la montagne."
@@ -93,9 +93,9 @@
 
 ### passuk 22
 <b>Même les <i>kohanim.</i></b> [Signification :] Même les fils premiers-nés qui étaient alors chargés du service du sacrifice.
-<b>Qui s'approchent de la présence d'Adonoy -</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
+<b>Qui s'approchent de la présence d'Hachem -</b> pour apporter des sacrifices. Eux aussi ne peuvent pas compter sur leur importance pour gravir [la montagne].
 <b>Ils doivent être sanctifiés.</b> Ils doivent être prêts à rester à leur poste.
-<b>De peur qu'Adonoy n'envoie la destruction.</b> [יִפְרֹץ vient] du mot פִּרְצָה - "une brèche". [C'est-à-dire], Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
+<b>De peur qu'Hachem n'envoie la destruction.</b> [יִפְרֹץ vient] du mot פִּרְצָה - "une brèche". [C'est-à-dire], Il tuera certains d'entre eux et causera ainsi une brèche dans leurs rangs. 
 
 ### passuk 23
 <b>Le peuple ne peut pas.</b> "Je n'ai pas besoin de les avertir car ils sont déjà en état d'alerte depuis ces trois derniers jours et ils ne peuvent donc pas monter car ils n'ont pas reçu la permission [de le faire]".

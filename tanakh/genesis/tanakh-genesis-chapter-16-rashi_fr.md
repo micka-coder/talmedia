@@ -36,7 +36,7 @@
 ### passuk 11
 <b>Voici que tu concevras.</b> [Signification : "A ton retour, tu concevras", comme dans : "Voici que tu concevras", en référence à la femme de Monoach. 
 <b>Et tu donneras naissance à un fils.</b> Comme s'il était écrit וְיוֹלֶדֶת , Cela ressemble à : "Vous qui habitez à Levanon et qui êtes nichés dans les cèdres." 
-<b>Et tu le nommeras.</b> Il s'agit d'un ordre [à une femme] tout comme on dirait à un homme [וְקָרָאתָ] "Et tu le nommeras Yitzchok."
+<b>Et tu le nommeras.</b> Il s'agit d'un ordre [à une femme] tout comme on dirait à un homme [וְקָרָאתָ] "Et tu le nommeras Yitshak."
 
 ### passuk 12
 <b>Un homme sauvage, non civilisé.</b> Celui qui aime le désert pour chasser les animaux sauvages, comme il est écrit [concernant Yishmael] : "Il s'installa dans le désert de Paran [où] il devint un archer expert". 

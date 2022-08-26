@@ -4,7 +4,7 @@
 ### passuk 2
 <b>Si... met à part.</b> Met [lui-même] à part. Pourquoi le chapitre du nazirite est-il placé à côté du chapitre de la <i>sotah</i> ? Pour vous dire <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que celui qui observe une <i>sotah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> dans sa décadence doit faire le vœu <i>nazirite</i> contre le vin, qui conduit à la promiscuité. 
 <b>Un vœu nazirite.</b> נְזִירָה indique toujours l'abstinence. Ici aussi, il s'abstient de boire du vin. 
-<b>Se mettre à part pour Adonoy.</b> Se séparer du vin pour l'amour du ciel.
+<b>Se mettre à part pour Hachem.</b> Se séparer du vin pour l'amour du ciel.
 
 ### passuk 3
 <b>Du vin nouveau ou vieux [enivrant].</b> Comme le traduit le Targum [Onkelos] ; "du vin nouveau ou vieux" : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le vin enivre lorsqu'il est vieilli.
@@ -16,7 +16,7 @@
 
 ### passuk 5
 <b>Il sera sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ses cheveux, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour faire pousser la pousse des cheveux sur sa tête. 
-<b>Longue.</b> Ceci est vocalisé avec <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> un <i>petit patach</i> (<i>segol</i>), même s'il est attaché à "les cheveux de sa tête" - la pousse des cheveux. Le sens de פֶּרַע est "la croissance des cheveux". De même, "Il (le <i>kohein gadol</i>) ne permettra pas la croissance des cheveux sur sa tête." Il n'est pas considéré comme une פֶּרַע (pousse) [s'il n'est pas coupé] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>moins de trente jours. 
+<b>Longue.</b> Ceci est vocalisé avec <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> un <i>petit patach</i> (<i>segol</i>), même s'il est attaché à "les cheveux de sa tête" - la pousse des cheveux. Le sens de פֶּרַע est "la croissance des cheveux". De même, "Il (le <i>Cohen gadol</i>) ne permettra pas la croissance des cheveux sur sa tête." Il n'est pas considéré comme une פֶּרַע (pousse) [s'il n'est pas coupé] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>moins de trente jours. 
 
 ### passuk 6
 
@@ -39,7 +39,7 @@
 <b>Il sanctifiera sa tête.</b> En recommençant, à nouveau, son comptage nazirite. 
 
 ### passuk 12
-<b>Il mettra à part, pour Adonoy, ses jours naziréens.</b> Il recommencera le décompte de ses jours naziréens tels qu'ils ont été [comptés] à l'origine. 
+<b>Il mettra à part, pour Hachem, ses jours naziréens.</b> Il recommencera le décompte de ses jours naziréens tels qu'ils ont été [comptés] à l'origine. 
 <b>Les premiers jours s'écouleront.</b> Être escompté.
 
 ### passuk 13
@@ -54,18 +54,18 @@
 ### passuk 16
 
 ### passuk 17
-<b>Un sacrifice de paix pour Adonoy, avec le panier de matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il égorgera le sacrifice de paix avec l'intention de sanctifier le pain. 
+<b>Un sacrifice de paix pour Hachem, avec le panier de matzos.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il égorgera le sacrifice de paix avec l'intention de sanctifier le pain. 
 <b>Son offrande et sa libation.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le bélier.
 
 ### passuk 18
 <b>Le nazir se rasera à l'entrée de la Tente de la Rencontre.</b> Peut-être se rase-t-il dans la cour ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais cela serait grossièrement irrespectueux. Au contraire, le <i>Nazir</i> se rasera <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>après l'abattage des <i>shelamim</i>, au sujet desquels il est écrit ". et l'égorger, lui [le sacrifice de paix] à l'entrée de la Tente de la Rencontre." 
-<b>Ce qui est sous le sacrifice de paix.</b> Sous <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la marmite dans laquelle il le cuit. Parce que les offrandes de paix du <i>Nazir</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>étaient cuites dans la cour, puisque le <i>kohein</i> devait retirer la patte avant après la cuisson et l'agiter devant Dieu. 
+<b>Ce qui est sous le sacrifice de paix.</b> Sous <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la marmite dans laquelle il le cuit. Parce que les offrandes de paix du <i>Nazir</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>étaient cuites dans la cour, puisque le <i>Cohen</i> devait retirer la patte avant après la cuisson et l'agiter devant Dieu. 
 
 ### passuk 19
 <b>L'avant-bras cuit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir été cuit.
 
 ### passuk 20
-<b>Il est consacré au kohein.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le pain, la galette et la patte avant sont <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>terumah</i>-cadeaux au <i>kohein. </i>
+<b>Il est consacré au Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le pain, la galette et la patte avant sont <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>terumah</i>-cadeaux au <i>Cohen. </i>
 <b>A côté de la poitrine de l'offrande d'onde.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>A côté de la poitrine et de l'épaule qui lui sont dues de toutes les offrandes de paix, on ajoute aux offrandes de paix nazirites, cette patte antérieure. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les sacrifices de paix nazirites ont été inclus dans un groupe, mais ensuite distingués de manière innovante, pour la consécration de l'avant-bras, l'Écriture doit les réintégrer dans le groupe et traiter, également, de la poitrine et de l'épaule. 
 
 ### passuk 21
@@ -83,11 +83,11 @@
 <Et qu'il vous protège des voleurs qui s'en prennent à votre argent. Une personne qui offre un cadeau à son serviteur n'est pas en mesure de le protéger de tout le monde, donc si des bandits descendent sur lui et le lui prennent, quel bénéfice tire-t-il de ce cadeau ? Mais le Saint, Béni soit-Il, est à la fois donateur et protecteur. Il existe de nombreuses interprétations homilétiques dans Sifri. 
 
 ### passuk 25
-<b>Que Adonoy fasse briller son visage sur vous.</b> Qu'il vous montre un visage joyeux et rayonnant. 
+<b>Que Hachem fasse briller son visage sur vous.</b> Qu'il vous montre un visage joyeux et rayonnant. 
 <b>Et vous favoriser.</b> Qu'il vous accorde sa faveur.
 
 ### passuk 26
-<b>Que Adonoy lève son visage vers toi.</b> Qu'il maîtrise sa colère.
+<b>Que Hachem lève son visage vers toi.</b> Qu'il maîtrise sa colère.
 
 ### passuk 27
 <b>Ils accorderont mon nom.</b> Ils les béniront avec le nom explicite [de Dieu]. 

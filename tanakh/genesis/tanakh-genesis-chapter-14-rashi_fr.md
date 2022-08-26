@@ -78,7 +78,7 @@
 
 ### passuk 20
 <b>Qui a délivré.</b> [Signification] "qui a délivré", comme dans "[Comment] puis-je te délivrer, Israël ?". 
-<b>Il [Avram] lui a donné.</b> Avram [lui a donné] un dixième de tout ce qu'il possédait car il [Malki Zedek] était un kohein.
+<b>Il [Avram] lui a donné.</b> Avram [lui a donné] un dixième de tout ce qu'il possédait car il [Malki Zedek] était un Cohen.
 
 ### passuk 21
 <b>Donne-moi le peuple.</b> [Signification :] de toutes mes affaires capturées que tu as sauvées, ne me rend que le peuple. 

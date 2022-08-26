@@ -65,7 +65,7 @@
 
 ### passuk 14
 <b>Si un homme complote.</b> Pourquoi ce [verset] est-il dit ? Parce que [à partir de ce qui] est dit : "Si l'on frappe un homme, etc". Je pourrais conclure [que tous les suivants sont passibles de mort :] un médecin qui a tué [au cours d'un traitement], et un officier de justice qui a tué [par inadvertance, en administrant] quarante coups de fouet, et un père qui frappe son fils [le tuant par inadvertance.] et un enseignant qui discipline son élève [le tuant ainsi] et qui [en tentant de tuer un animal] tue un homme. La Torah dit donc : " S'il complote ", mais pas par inadvertance ; " pour le tuer intentionnellement ", mais pas un officier de justice, ou un médecin ou celui qui discipline son fils ou son élève, car, bien qu'ils [aient frappé leurs coups] intentionnellement, ils n'ont pas planifié [de tuer]. 
-<b>De mon autel.</b> Même s'il est un <i>kohein</i> et qu'il souhaite accomplir le service, tu dois le conduire pour être exécuté.
+<b>De mon autel.</b> Même s'il est un <i>Cohen</i> et qu'il souhaite accomplir le service, tu dois le conduire pour être exécuté.
 
 ### passuk 15
 <b>Quiconque frappe son père ou sa mère.</b> Comme nous avons appris que celui qui blesse son prochain est tenu de payer les dommages et intérêts mais qu'il ne doit pas être mis à mort, il était nécessaire de préciser que celui qui blesse son père doit être mis à mort. Mais il n'est responsable qu'avec un coup qui cause une blessure. 

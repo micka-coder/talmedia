@@ -49,7 +49,7 @@
 
 ### passuk 18
 <b>Je, et tous ceux qui m'accompagnent.</b> Une des divisions et cent hommes l'accompagnent.
-<b>Pour Adonoy, et pour Gidon.</b> L'épée qui exécute est d'Adonoy, de sorte que la victoire est celle de Gidon.</sup></sup><i class="footnote">C'est l'interprétation du Targum Yonasan, à la suite du v. 20, "L'épée d'Adonoy, et pour Gidon !"</i>.
+<b>Pour Hachem, et pour Gidon.</b> L'épée qui exécute est d'Hachem, de sorte que la victoire est celle de Gidon.</sup></sup><i class="footnote">C'est l'interprétation du Targum Yonasan, à la suite du v. 20, "L'épée d'Hachem, et pour Gidon !"</i>.
 
 ### passuk 19
 <b>On avait posté.</b> Les soldats avaient déjà posté les sentinelles qui étaient affectées à la garde intermédiaire. Les membres de l'armée répartissent habituellement les tâches de sentinelle de sorte que certains servent pendant le premier tiers de la nuit, d'autres pendant le deuxième tiers et d'autres encore pendant le dernier tiers.<sup>13</sup><i class="footnote">Voir Yalkut, 63.</i>
@@ -66,10 +66,10 @@
 
 ### passuk 24
 <b>Capturer les eaux</b> qui s'interposent entre Aram et le territoire cananéen.
-<b>Et les Yardein</b> qui interviennent également.
+<b>Et les Jourdain</b> qui interviennent également.
 
 ### passuk 25
-<b>Ils amenèrent à Gidon, à travers le Yardein.</b> Le matin, quand Gidon traversa le Yardein en poursuivant Zevach et Tzalmona.<sup>15</sup><i class="footnote"></i>
+<b>Ils amenèrent à Gidon, à travers le Jourdain.</b> Le matin, quand Gidon traversa le Jourdain en poursuivant Zevach et Tzalmona.<sup>15</sup><i class="footnote"></i>
 
 >Crédit : sefaris
 >Licence : CC-BY

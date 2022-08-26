@@ -5,7 +5,7 @@
 <b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
 
 ### passuk 2
-<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Adonoy n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
+<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Hachem n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
 
 ### passuk 3
 <b>Le Rocher de Israël m'a parlé.</b> Le Rocher de Israël m'a parlé et m'a ordonné que je sois un chef sur les hommes, sur Israël qui sont appelés "hommes" comme il est écrit : "Vous êtes des hommes." [Il m'a également dit] que je serai une personne juste, un dirigeant et une personne qui craint Dieu. Nos rabbins ont interprété [ce verset] avec une explication différente :<sup>6</sup><i class="footnote">Moed Koton 16b.</i> David a dit [comme suit :] "Le Dieu de Israël m'a parlé, le Rocher de Israël m'a parlé, je suis dirigeant sur les hommes. Et qui règne sur moi ? L'homme juste, car je [peux] émettre un décret et il [peut] l'annuler. " Mais selon le déroulement de ces versets, c'est la première explication qui est l'interprétation simple de ces versets.
@@ -39,7 +39,7 @@
 <b>Quand ils ont humilié les Pelishtim.</b> Ils se sont mis d'accord entre eux pour les combattre et les vaincre.
 
 ### passuk 10
-<b>Mais seulement pour dépouiller [les cadavres].</b> Yonoson traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
+<b>Mais seulement pour dépouiller [les cadavres].</b> Yonatanh traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
 
 ### passuk 11
 <b>De la montagne.</b> De la montagne.
@@ -48,7 +48,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Des trente chefs.</b> Yonoson traduit : Des hommes qui étaient des chefs au sein de l'armée.
+<b>Des trente chefs.</b> Yonatanh traduit : Des hommes qui étaient des chefs au sein de l'armée.
 
 ### passuk 14
 <b>Et un contingent de Pesishtim était alors à Beis Lechem.</b> L'armée [Pelishtim] était campée dans la vallée de Rephoim et ils avaient envoyé un contingent à Beis Lechem.
@@ -57,7 +57,7 @@
 <b>Qui me donnera de l'eau à boire.</b> Nos rabbins ont dit,</sup>15</sup><i class="footnote">Baba Kama 60b. Voir Rashi à cet endroit.</i> il [David] avait besoin de poser une question [halakhique] au tribunal du Sanhédrin qui siégeait à la porte de Beis Lechem.<sup>16</sup><i class="footnote">L'eau de notre verset fait référence à la Torah qui est comparée à l'eau. Voir Devorim Raboh 7:3.</i>
 
 ### passuk 16
-<b>Il l'offrit en libation à Adonoy.</b> Il dit : " C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Adonoy",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
+<b>Il l'offrit en libation à Hachem.</b> Il dit : " C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Hachem",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
 
 ### passuk 17
 <b>[Est-ce que je veux] le sang de [ces] hommes.</b> Langage dénotant l'étonnement.
@@ -65,10 +65,10 @@
 ### passuk 18
 
 ### passuk 19
-<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonoson traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
+<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
 
 ### passuk 20
-<b>Les deux géants moabites.</b> [Le Yonoson traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
+<b>Les deux géants moabites.</b> [Le Yonatanh traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
 <b>Géants moabites.</b> Parce que Shlomo qui l'a construit était issu de Rus le Moabite.<sup>22</sup><i class="footnote">Rashi explique le lien que <span>אֲרִיאֵל</span>, référence au Beis Hamikdash, a avec Moav.</i>
 
 ### passuk 21
@@ -76,7 +76,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Des trente.</b> Des trente de cette section. Yonoson traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>שְׁלשִׁים</span>.</i>
+<b>Des trente.</b> Des trente de cette section. Yonatanh traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>שְׁלשִׁים</span>.</i>
 
 ### passuk 24
 
@@ -119,7 +119,7 @@
 <b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
 
 ### passuk 2
-<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Adonoy n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
+<b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Hachem n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
 
 ### passuk 3
 <b>Le Rocher de Israël m'a parlé.</b> Le Rocher de Israël m'a parlé et m'a ordonné que je sois un chef sur les hommes, sur Israël qui sont appelés "hommes" comme il est écrit : "Vous êtes des hommes." [Il m'a également dit] que je serai une personne juste, un dirigeant et une personne qui craint Dieu. Nos rabbins ont interprété [ce verset] avec une explication différente :<sup>6</sup><i class="footnote">Moed Koton 16b.</i> David a dit [comme suit :] "Le Dieu de Israël m'a parlé, le Rocher de Israël m'a parlé, je suis dirigeant sur les hommes. Et qui règne sur moi ? L'homme juste, car je [peux] émettre un décret et il [peut] l'annuler. " Mais selon le déroulement de ces versets, c'est la première explication qui est l'interprétation simple de ces versets.
@@ -153,7 +153,7 @@
 <b>Quand ils ont humilié les Pelishtim.</b> Ils se sont mis d'accord entre eux pour les combattre et les vaincre.
 
 ### passuk 10
-<b>Mais seulement pour dépouiller [les cadavres].</b> Yonoson traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
+<b>Mais seulement pour dépouiller [les cadavres].</b> Yonatanh traduit : "Pour dépouiller les morts." Il n'y avait personne pour l'aider à tuer [les Pelishtim] mais ils dépouillaient tous les cadavres après [qu'il les ait tués].
 
 ### passuk 11
 <b>De la montagne.</b> De la montagne.
@@ -162,7 +162,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Des trente chefs.</b> Yonoson traduit : Des hommes qui étaient des chefs au sein de l'armée.
+<b>Des trente chefs.</b> Yonatanh traduit : Des hommes qui étaient des chefs au sein de l'armée.
 
 ### passuk 14
 <b>Et un contingent de Pesishtim était alors à Beis Lechem.</b> L'armée [Pelishtim] était campée dans la vallée de Rephoim et ils avaient envoyé un contingent à Beis Lechem.
@@ -171,7 +171,7 @@
 <b>Qui me donnera de l'eau à boire.</b> Nos rabbins ont dit,</sup>15</sup><i class="footnote">Baba Kama 60b. Voir Rashi à cet endroit.</i> il [David] avait besoin de poser une question [halakhique] au tribunal du Sanhédrin qui siégeait à la porte de Beis Lechem.<sup>16</sup><i class="footnote">L'eau de notre verset fait référence à la Torah qui est comparée à l'eau. Voir Devorim Raboh 7:3.</i>
 
 ### passuk 16
-<b>Il l'offrit en libation à Adonoy.</b> Il dit : " C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Adonoy",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
+<b>Il l'offrit en libation à Hachem.</b> Il dit : " C'est ce que j'ai appris à la cour de Shmuel le Romosi : Si quelqu'un risque sa vie pour des paroles de Torah,<sup>17</sup><i class="footnote">Rashi poursuit l'interprétation du verset selon laquelle l'eau fait référence aux paroles de Torah.</i> on ne doit pas réciter la halakha en son nom." Si c'est le cas, que signifie "Et au contraire, il l'offrit en libation à Hachem",<sup>18</sup><i class="footnote">On dirait que David a accepté la décision halakhique.</i> il l'a [seulement] récitée au nom de la Guemorah.<sup>19</sup><i class="footnote">La décision ne doit pas être dite en leur nom.</i>
 
 ### passuk 17
 <b>[Est-ce que je veux] le sang de [ces] hommes.</b> Langage dénotant l'étonnement.
@@ -179,10 +179,10 @@
 ### passuk 18
 
 ### passuk 19
-<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonoson traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
+<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
 
 ### passuk 20
-<b>Les deux géants moabites.</b> [Le Yonoson traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
+<b>Les deux géants moabites.</b> [Le Yonatanh traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
 <b>Géants moabites.</b> Parce que Shlomo qui l'a construit était issu de Rus le Moabite.<sup>22</sup><i class="footnote">Rashi explique le lien que <span>אֲרִיאֵל</span>, référence au Beis Hamikdash, a avec Moav.</i>
 
 ### passuk 21
@@ -190,7 +190,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Des trente.</b> Des trente de cette section. Yonoson traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>שְׁלשִׁים</span>.</i>
+<b>Des trente.</b> Des trente de cette section. Yonatanh traduit : "hommes puissants".<sup>23</sup><i class="footnote">C'est ainsi qu'il traduit le mot <span>שְׁלשִׁים</span>.</i>
 
 ### passuk 24
 

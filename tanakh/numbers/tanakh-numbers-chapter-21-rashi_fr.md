@@ -52,7 +52,7 @@
 <b>Extension de la frontière émorite.</b> Une bande s'étend de la frontière émorite, et elle appartient aux Emorites, mais pénètre la limite de Moav jusqu'à Arnon, la frontière moavite. Les Israélites y ont campé sans pénétrer dans la frontière de Moav, Arnon étant la frontière de Moav, et ils ne leur ont pas accordé la permission de passer sur leur territoire. Bien que Moshé ne l'ait pas dit clairement, Yiftach l'a fait, comme il a été dit par Yiftach, "il (Moshé) a également envoyé [une demande] au roi de Moav, mais il n'a pas voulu." Moshé a fait allusion à cela : "Comme ils m'ont fait, les enfants d'Eisav, qui habitent à Séir, et les Moavites, qui habitent à Ar," Comme ceux-ci [les enfants d'Eisav] ne leur ont pas permis de passer par leur pays, mais ils les ont encerclés, ainsi en a-t-il été pour Moav. 
 
 ### passuk 14
-<b>Concernant ceci sera raconté.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Concernant ce campement, et les miracles qui y sont accomplis. <b>Ils seront racontés dans le livre des guerres d'Adonoy.</b> Lorsqu'ils raconteront les miracles accomplis pour nos ancêtres, ils raconteront que "Il a donné, etc.". 
+<b>Concernant ceci sera raconté.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Concernant ce campement, et les miracles qui y sont accomplis. <b>Ils seront racontés dans le livre des guerres d'Hachem.</b> Lorsqu'ils raconteront les miracles accomplis pour nos ancêtres, ils raconteront que "Il a donné, etc.". 
 <b>Il a donné.</b> Comme אֶת יָהֵב . De même que nous transposons יָעֹד en וָעֹד, nous transposons également וָהֵב en יָהֵב, le וָי "ו étant fondamental. Comme pour dire : "qu'il leur donna, et fit de nombreux miracles à la mer des Roseaux". 
 <b>Et les vallées d'Arnon.</b> De même que nous racontons les miracles de la mer des Roseaux, nous devons raconter les miracles des vallées d'Arnon, puisque là aussi, de grands miracles ont été accomplis. Quels sont ces miracles ? 
 
@@ -131,10 +131,10 @@
 ### passuk 33
 
 ### passuk 34
-<b>N'ayez pas peur de lui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshé avait peur de livrer bataille, car peut-être, le mérite d'Avrohom, se dresserait pour lui [Og] comme il est dit : "celui qui s'était échappé est venu". Il s'agit d'Og, qui s'est échappé, des Rephaïm que Kedorlaomer et ses cohortes ont battus à Ashteros Karnayim, comme il est dit, "car seul Og, roi de Bashan, restait des Rephaïm restants". 
+<b>N'ayez pas peur de lui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshé avait peur de livrer bataille, car peut-être, le mérite d'Avraham, se dresserait pour lui [Og] comme il est dit : "celui qui s'était échappé est venu". Il s'agit d'Og, qui s'est échappé, des Rephaïm que Kedorlaomer et ses cohortes ont battus à Ashteros Karnayim, comme il est dit, "car seul Og, roi de Bashan, restait des Rephaïm restants". 
 
 ### passuk 35
-<b>Ils l'ont tué.</b> Moshé l'a tué, comme le précise le Berachos, dans [le chapitre de] Haroeh. Il déracina une montagne de trois <i>parsaos</i> de long, etc. 
+<b>Ils l'ont tué.</b> Moshé l'a tué, comme le précise le Berahot, dans [le chapitre de] Haroeh. Il déracina une montagne de trois <i>parsaos</i> de long, etc. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

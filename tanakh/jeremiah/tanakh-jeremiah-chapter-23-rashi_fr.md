@@ -97,7 +97,7 @@
 <b>Ceux qui dressent leurs langues</b> qui apprennent à leurs langues à dire leurs faussetés avec l'expression "dit le Seigneur", comme les vrais prophètes, afin qu'ils les croient.
 
 ### passuk 32
-<b>avec leur ahurissement</b> une expression d'étonnement (estordisoun en O. F.).
+<b>avec leur ahurissement</b> une expression d'étonnement (estordisoun en ancien français).
 
 ### passuk 33
 <b>"Quel est le fardeau du Seigneur ?"</b> C'est une expression de dérision, car sa prophétie est un fardeau pour eux.
@@ -220,7 +220,7 @@
 <b>Ceux qui dressent leurs langues</b> qui apprennent à leurs langues à dire leurs faussetés avec l'expression "dit le Seigneur", comme les vrais prophètes, afin qu'ils les croient.
 
 ### passuk 32
-<b>avec leur ahurissement</b> une expression d'étonnement (estordisoun en O. F.).
+<b>avec leur ahurissement</b> une expression d'étonnement (estordisoun en ancien français).
 
 ### passuk 33
 <b>"Quel est le fardeau du Seigneur ?"</b> C'est une expression de dérision, car sa prophétie est un fardeau pour eux.

@@ -19,7 +19,7 @@
 <b>Une colonie d'abeilles.</b> Une ruche-un essaim d'abeilles.
 
 ### passuk 9
-<b>Il l'a délogé.</b> Cela connote la séparation d'un objet attaché. De même, en ce qui concerne un pain attaché à un four, la séparation est décrite comme "déloger"-<sup>2</sup><i class="footnote">Shabbos, 117:b.</i> "Si on déloge un pain du four,"<sup>3</sup><i class="footnote">Shabbos, 95:a. </i> "Si l'on déloge sa ruche,"<sup>4</sup><i class="footnote">Le rayon de miel de la ruche.</i> car le miel est produit dans des rayons de cire fixés aux parois de la ruche dans chaque zone, s'étendant de paroi en paroi le long de sa circonférence. De même, le Targum Yonasan traduit "Il l'a enlevé".
+<b>Il l'a délogé.</b> Cela connote la séparation d'un objet attaché. De même, en ce qui concerne un pain attaché à un four, la séparation est décrite comme "déloger"-<sup>2</sup><i class="footnote">Chabbat, 117:b.</i> "Si on déloge un pain du four,"<sup>3</sup><i class="footnote">Chabbat, 95:a. </i> "Si l'on déloge sa ruche,"<sup>4</sup><i class="footnote">Le rayon de miel de la ruche.</i> car le miel est produit dans des rayons de cire fixés aux parois de la ruche dans chaque zone, s'étendant de paroi en paroi le long de sa circonférence. De même, le Targum Yonasan traduit "Il l'a enlevé".
 
 ### passuk 10
 <b>Son père est descendu pour discuter de la femme.</b> En ce qui concerne la femme.

@@ -42,7 +42,7 @@
 ### passuk 12
 <b>Espoir différé</b> Il s'en remet à son ami et ne fait rien.
 <b>Rendant le cœur malade</b> Heb.  מחלה", rend le cœur malade. Ce  מחלה " n'est pas un nom comme (Ex. 23:25) : "Et j'enlèverai la maladie (מחלה") du milieu de vous," mais comme (Lev. 11:6) : "Faire monter (מעלת) la bouse".
-<b>mais un désir accompli est un arbre de vie</b> lit. mais un arbre de vie est un désir accompli. Ceci est inversé ; c'est-à-dire qu'un désir satisfait est comme un arbre de vie. L'espoir que le Saint, bénéni soit-Il, avait placé en Israël et attendait qu'il se repente  les a finalement menés au mal du cÅ"ur lorsqu'ils ne se sont pas repentis. Et lorsque Son désir est accompli - qu'ils se conforment à Sa volonté - c'est un arbre de vie pour eux.
+<b>mais un désir accompli est un arbre de vie</b> lit. mais un arbre de vie est un désir accompli. Ceci est inversé ; c'est-à-dire qu'un désir satisfait est comme un arbre de vie. L'espoir que le Saint, bénéni soit-Il, avait placé en Israël et attendait qu'il se repente  les a finalement menés au mal du coeur lorsqu'ils ne se sont pas repentis. Et lorsque Son désir est accompli - qu'ils se conforment à Sa volonté - c'est un arbre de vie pour eux.
 
 ### passuk 13
 <b>Celui qui méprise une chose sera engagé envers elle</b> Héb.  יחבל. Celui qui méprise une des paroles de la Torah sera finalement pris pour elle en gage.

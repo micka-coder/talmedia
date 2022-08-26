@@ -30,7 +30,7 @@
 
 ### passuk 10
 <b>Pour vos holocaustes.</b> L'Ecriture parle <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>des offrandes communes. 
-<b>Je suis Adonoy votre Dieu. </b> D'ici, nous apprenons [que nous combinons la] Majesté d'Adonoy, le souvenir et le <i>shofar,</i> comme il est dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Tu souffleras" - d'où le <i>shofar,</i> "comme souvenir" - c'est le souvenir, "Je suis Adonoy ton Dieu" - c'est la Majesté, etc. 
+<b>Je suis Hachem votre Dieu. </b> D'ici, nous apprenons [que nous combinons la] Majesté d'Hachem, le souvenir et le <i>shofar,</i> comme il est dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Tu souffleras" - d'où le <i>shofar,</i> "comme souvenir" - c'est le souvenir, "Je suis Hachem ton Dieu" - c'est la Majesté, etc. 
 
 ### passuk 11
 <b>Dans le deuxième mois.</b> Ainsi, vous dites qu'ils ont passé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>douze mois moins dix jours à Chorev, puisque le premier du mois de Sivan, ils y ont campé et n'en sont partis que le vingtième de Iyar de l'année suivante. 
@@ -79,38 +79,38 @@
 <b>Ils ont voyagé.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce jour-là, ils ont voyagé. 
 
 ### passuk 29
-<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'était Yisro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé." Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Réuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yisro " [lit. " supplémentaire "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " celui qui chérit "] parce qu'il chérissait la Torah, etc... . 
+<b>Chovav.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'était Yitro, comme il est dit : "Des enfants de Chovav, le beau-père de Moshé." Alors pourquoi la Torah dit-elle : "Ils sont venus chez leur père, Réuel" ? Cela enseigne que les enfants appellent leur grand-père "père". Il avait plusieurs noms. " Yitro " [lit. " supplémentaire "] parce qu'il a ajouté un chapitre à la Torah ; " Chovav " [lit. " celui qui chérit "] parce qu'il chérissait la Torah, etc... . 
 <b>Nous faisons route vers le lieu.</b> Immédiatement. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En trois jours, nous entrons en terre [sainte]. Car lors de ce premier voyage, ils ont voyagé avec l'intention d'entrer en Eretz Israël, mais ils ont péché avec les râleurs. Mais pourquoi Moshé s'est-il inclus parmi eux ? Parce que le décret n'avait pas encore été émis contre lui, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> et il pensait qu'il allait entrer. 
 
 ### passuk 30
 <b>À ma terre et à mon lieu de naissance.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Que ce soit pour le bien de mes propriétés, ou pour le bien de ma famille. 
 
 ### passuk 31
-<b>Veuillez ne pas abandonner.</b> נָא est un terme n'indiquant rien d'autre qu'une requête, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>afin qu'on ne dise pas que Yisro ne s'est pas converti par dévotion. Il pensait que les prosélytes recevaient une part de la terre [mais] maintenant qu'il a vu qu'ils ne recevaient pas de part, il les a quittés et a poursuivi son chemin. 
+<b>Veuillez ne pas abandonner.</b> נָא est un terme n'indiquant rien d'autre qu'une requête, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>afin qu'on ne dise pas que Yitro ne s'est pas converti par dévotion. Il pensait que les prosélytes recevaient une part de la terre [mais] maintenant qu'il a vu qu'ils ne recevaient pas de part, il les a quittés et a poursuivi son chemin. 
 <b>Parce que, parce que tu connais notre campement dans le désert.</b> Car il convient que tu fasses cela, parce que tu connais notre campement dans le désert, et que tu as vu les miracles et la puissance accomplis pour nous. 
 <b>Parce que, parce que tu sais. </b> Comme עַל אֲשֶׁר יָדַעְתָּ, "parce que" tu sais, comme dans כִּי עַל כֵּן, car, "parce que" je ne l'ai pas donnée à mon fils Shélah, כִּי עַל כֵּן, car, "parce que" tu es passé, כִּי עַל כֵּן, car, "parce que" ils sont venus, כִּי עַל כֵּן, car, "parce que" j'ai vu ton visage. 
 <b>Vous serez nos yeux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Passé, comme le rend le Targum [Onkelos]. Une autre interprétation : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le futur. [Si] quelque chose [est] caché à nos yeux, tu éclaireras nos yeux. Autre interprétation : Tu nous seras aussi précieux que les pupilles de nos yeux, comme il est dit : "Tu aimeras le prosélyte." 
 
 ### passuk 32
-<b>Il sera que le très bon (lit. que bon).</b> Quel bien lui ont-ils accordé ? Ils ont dit : "Lorsque les Israélites ont divisé le pays, il y avait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> une région fertile de Yericho, de cinq cents <i>amos</i> par cinq cents <i>amos,</i> qu'ils ont laissée indivise." Ils ont dit : "Celui dans la portion duquel le Temple serait construit la prendrait". En attendant, ils la donnèrent aux enfants de Yisro, à Yonadav, fils de Rechav, comme il est dit : "Les fils de Keini, beau-père de Moshé, montèrent de la ville des dattes, etc ...". 
+<b>Il sera que le très bon (lit. que bon).</b> Quel bien lui ont-ils accordé ? Ils ont dit : "Lorsque les Israélites ont divisé le pays, il y avait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> une région fertile de Yericho, de cinq cents <i>amos</i> par cinq cents <i>amos,</i> qu'ils ont laissée indivise." Ils ont dit : "Celui dans la portion duquel le Temple serait construit la prendrait". En attendant, ils la donnèrent aux enfants de Yitro, à Yonadav, fils de Rechav, comme il est dit : "Les fils de Keini, beau-père de Moshé, montèrent de la ville des dattes, etc ...". 
 
 ### passuk 33
 <b>Un voyage de trois jours.</b> Trois jours de voyage, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ils ont voyagé en un jour, car le Saint, Béni soit-Il, voulait les faire entrer dans le pays immédiatement. 
-<b>L'Arche d'Alliance d'Adonoy fit devant eux un voyage de trois jours.</b> C'était l'Arche qui <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>partit avec eux à la guerre, dans laquelle furent placées les Tablettes brisées. Il les précédait de trois jours de voyage pour leur préparer un lieu de campement. 
+<b>L'Arche d'Alliance d'Hachem fit devant eux un voyage de trois jours.</b> C'était l'Arche qui <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>partit avec eux à la guerre, dans laquelle furent placées les Tablettes brisées. Il les précédait de trois jours de voyage pour leur préparer un lieu de campement. 
 
 ### passuk 34
-<b>Le Nuage d'Adonoy était au-dessus d'eux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sept Nuages sont enregistrés au cours de leurs voyages ; Quatre sur quatre côtés, un au-dessus, un au-dessous, et un qui les précédait, pour abaisser les hautes terres, élever les basses terres, et tuer les serpents et les scorpions. 
+<b>Le Nuage d'Hachem était au-dessus d'eux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sept Nuages sont enregistrés au cours de leurs voyages ; Quatre sur quatre côtés, un au-dessus, un au-dessous, et un qui les précédait, pour abaisser les hautes terres, élever les basses terres, et tuer les serpents et les scorpions. 
 <b>Du camp.</b> De leur lieu de campement.
 
 ### passuk 35
 <b>Lorsque l'Arche est partie.</b> L'Écriture a placé des symboles avant et après ce [chapitre] pour enseigner <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que ce n'est pas sa place. Pourquoi, alors, a-t-il été écrit ici ? Afin d'intervenir <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>entre une punition et la suivante... etc, comme le stipulent "toutes les écritures sacrées". 
-<b>Lève-toi, Adonoy.</b> Parce qu'il (Adonoy) les précédait de trois jours de voyage, Moshé disait : " Lève-toi et attends-nous, ne t'éloigne pas davantage. Midrash Tanchuma, Vayakhel. 
+<b>Lève-toi, Hachem.</b> Parce qu'il (Hachem) les précédait de trois jours de voyage, Moshé disait : " Lève-toi et attends-nous, ne t'éloigne pas davantage. Midrash Tanchuma, Vayakhel. 
 <b>Que Tes ennemis se dispersent.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceux qui sont rassemblés.
 <b>Ceux qui te détestent s'enfuient.</b> Ce sont les poursuivants.
 <b>Ceux qui Te haïssent.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce sont ceux qui haïssent Israël, puisque tous ceux qui haïssent Israël haïssent Celui qui a parlé, et le monde est né, comme il est dit : "ceux qui Te haïssent ont levé [leur] tête" - qui sont-ils ? - "Contre ton peuple, ils complotent avec ruse." 
 
 ### passuk 36
-<b>Viens te reposer, Adonoy.</b> Menachem interprète cela comme un terme signifiant le repos. De même, "avec le repos et le calme, tu seras sauvé". 
+<b>Viens te reposer, Hachem.</b> Menachem interprète cela comme un terme signifiant le repos. De même, "avec le repos et le calme, tu seras sauvé". 
 <b>[Parmi] les myriades et les milliers d'Israël.</b> Cela nous informe que la Présence divine ne se repose pas parmi les Israélites lorsqu'ils sont moins de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>vingt-deux mille.
 
 >Crédit : primo.nli.org.il (metsudah)

@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Commander Bnei Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cette <i>parshah</i> a été dite le jour où le <i>Mishkon</i> a été érigé. Huit <i>parshiyos</i> ont été dits ce jour-là, comme il est dit dans le Tractate Gittin, <i>perek</i> Hanizakin. 
-<b>Ils doivent expulser du camp.</b> Il y avait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>trois camps lorsqu'ils se reposaient : A l'intérieur des rideaux, c'était le camp de la <i>Shechinah</i> ; le campement des Lévites qui l'entourait, comme le dit expressément le <i>parshah</i> de Bemidbar Sinaï, était le camp des Lévites ; de là jusqu'à l'extrémité du campement des bannières, dans les quatre directions, c'était le camp des Israélites. Le <i>metzoro</i> était envoyé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> hors de tous ces camps. Le <i>zav</i> était autorisé dans le camp des Israélites, mais expulsé des [autres] deux. Une personne souillée par un mort était autorisée même parmi le [campement des] Lévites, étant expulsée seulement <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>du campement de la <i>Shechinah.</i> Tout cela, les rabbins le tirent de passages scripturaires dans Masech Pesachim. 
+<b>Ils doivent expulser du camp.</b> Il y avait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>trois camps lorsqu'ils se reposaient : A l'intérieur des rideaux, c'était le camp de la <i>Shechinah</i> ; le campement des Lévites qui l'entourait, comme le dit expressément le <i>parshah</i> de Bemidbar Sinaï, était le camp des Lévites ; de là jusqu'à l'extrémité du campement des bannières, dans les quatre directions, c'était le camp des Israélites. Le <i>metzoro</i> était envoyé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> hors de tous ces camps. Le <i>zav</i> était autorisé dans le camp des Israélites, mais expulsé des [autres] deux. Une personne souillée par un mort était autorisée même parmi le [campement des] Lévites, étant expulsée seulement <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>du campement de la <i>Shechinah.</i> Tout cela, les rabbins le tirent de passages scripturaires dans Traité Pesachim. 
 <b>Sali par une âme [défunte].</b> [Onkelos rend] דִּמְסָאָב לִטְמֵי נַפְשָׁא דֶאֱנָשָׁא, (" qui ont été souillés par les ossements d'une âme humaine. ") A mon avis, le mot <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> signifie "ossements humains" en araméen. Il existe de nombreux [exemples] dans Bereishis Rabbah, " טַמְיָא " אַדְרִיאָנוּס שְׁחִיק - que [ses] "os" soient écrasés. 
 
 ### passuk 3
@@ -13,7 +13,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Agir en traître contre Adonoy.</b> L'Écriture réitère maintenant la <i>paracha</i> du voleur qui jure faussement, précédemment énoncée dans la Portion de Vayikra : " [Si une personne pèche] . ... et agit par traîtrise envers Dieu, en mentant à son compagnon... ". Cette phrase est répétée ici à cause de deux innovations. Premièrement, l'Écriture écrit "Et ils confessent...". [leur péché] ", enseignant qu'il (le voleur) n'est pas tenu de payer le cinquième et d'apporter le <i>asham</i> (offrande de culpabilité) lorsqu'il est condamné par le témoignage des témoins, à moins qu'il ne confesse son acte. Et deuxièmement, [pour enseigner] que les biens volés à un prosélyte doivent être donnés aux <i>kohanim.</i> 
+<b>Agir en traître contre Hachem.</b> L'Écriture réitère maintenant la <i>paracha</i> du voleur qui jure faussement, précédemment énoncée dans la Portion de Vayikra : " [Si une personne pèche] . ... et agit par traîtrise envers Dieu, en mentant à son compagnon... ". Cette phrase est répétée ici à cause de deux innovations. Premièrement, l'Écriture écrit "Et ils confessent...". [leur péché] ", enseignant qu'il (le voleur) n'est pas tenu de payer le cinquième et d'apporter le <i>asham</i> (offrande de culpabilité) lorsqu'il est condamné par le témoignage des témoins, à moins qu'il ne confesse son acte. Et deuxièmement, [pour enseigner] que les biens volés à un prosélyte doivent être donnés aux <i>kohanim.</i> 
 
 ### passuk 7
 <b>Montant principal de sa culpabilité.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est le principal [paiement] au sujet duquel il a prêté serment.
@@ -23,21 +23,21 @@
 <b>Mais si l'homme n'a pas de rédempteur.</b> Comme est mort le réclamant qui l'a mis (le voleur) sous serment - sans héritiers.
 <b>A qui la dette peut être rendue.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quand il (le voleur) se rétracte et avoue son crime. Les rabbins remarquent : 'Y a-t-il quelqu'un en Israël qui n'ait pas de rédempteur, qu'il s'agisse d'un fils, d'un frère ou d'un parent paternel [se ramifiant] jusqu'au [patriarche] Yaakov ? Mais <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[cela fait référence à] un prosélyte qui est mort sans héritiers. 
 <b>La dette étant restituée.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est le principal et le cinquième de celle-ci.
-<b>A Adonoy, [puis] au kohein.</b> Dieu en prend possession, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>puis le donne au <i>kohein [servant] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> dans cette montre. </i>
+<b>A Hachem, [puis] au Cohen.</b> Dieu en prend possession, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>puis le donne au <i>Cohen [servant] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> dans cette montre. </i>
 <b>A part le bélier du pardon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mentionné dans Vayikra, qu'il doit apporter. 
 
 ### passuk 9
-<b>Chaque cadeau de terumah, etc.</b> R' Yishmael a dit : " Est-ce que le cadeau de <i>terumah</i> est apporté au <i>kohein</i> ? Ne le cherche-t-il pas, lui-même, dans le grenier ? Alors pourquoi la Torah dit-elle : "... qu'on apporte au <i>kohein</i> ?". Il s'agit des <i>bikurim</i>-cadeaux, au sujet desquels il est précisé : " [... les prémices de ta terre] doivent être apportées à la Maison d'Adonoy, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais on ne sait pas ce que l'on doit en faire. C'est pourquoi la Torah déclare : " ... au <i>kohein,</i> il lui appartiendra. L'Écriture enseigne, concernant les <i>bikurim</i>-cadeaux, qu'ils doivent être donnés au <i>kohein.</i> 
+<b>Chaque cadeau de terumah, etc.</b> R' Yishmael a dit : " Est-ce que le cadeau de <i>terumah</i> est apporté au <i>Cohen</i> ? Ne le cherche-t-il pas, lui-même, dans le grenier ? Alors pourquoi la Torah dit-elle : "... qu'on apporte au <i>Cohen</i> ?". Il s'agit des <i>bikurim</i>-cadeaux, au sujet desquels il est précisé : " [... les prémices de ta terre] doivent être apportées à la Maison d'Hachem, ton Dieu. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais on ne sait pas ce que l'on doit en faire. C'est pourquoi la Torah déclare : " ... au <i>Cohen,</i> il lui appartiendra. L'Écriture enseigne, concernant les <i>bikurim</i>-cadeaux, qu'ils doivent être donnés au <i>Cohen.</i> 
 
 ### passuk 10
 <b>Les objets sacrés d'un homme seront à lui.</b> Puisque les dons des prêtres et des lévites sont obligatoires, on pourrait supposer qu'ils peuvent les confisquer par la force. La Torah enseigne donc que "Les objets sacrés d'un homme seront à lui", <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>informant [nous] que les bénéfices exécutoires appartiennent au propriétaire [israélite d'origine]. De nombreuses autres interprétations homilétiques sont proposées par Sifri. Le Midrash Aggadah [déclare] : "Les objets sacrés d'un homme seront à lui" [déclare] : Si quelqu'un retient ses dîmes, et refuse de les donner, "[ils seront] à lui" - les dîmes. En fin de compte, sa terre ne donnera qu'un dixième de son produit normal. 
-<b>Tout ce qu'un homme donne au kohein [lit. Un homme qui donne au <i>kohein].</i></b><i>Les cadeaux appropriés. </i>
+<b>Tout ce qu'un homme donne au Cohen [lit. Un homme qui donne au <i>Cohen].</i></b><i>Les cadeaux appropriés. </i>
 <b>Sera à lui.</b> De grandes richesses.
 
 ### passuk 11
 
 ### passuk 12
-<b>Si la femme d'un homme s'égare.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Qu'est-il écrit [immédiatement] au-dessus de ce sujet ? "Les objets sacrés d'un homme seront à lui." (v. 10) [Cela implique que] si tu retiens les dons du <i>kohein</i>, alors par ta vie ! Tu trouveras nécessaire de lui rendre visite, de lui apporter la <i>sotah</i>. 
+<b>Si la femme d'un homme s'égare.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Qu'est-il écrit [immédiatement] au-dessus de ce sujet ? "Les objets sacrés d'un homme seront à lui." (v. 10) [Cela implique que] si tu retiens les dons du <i>Cohen</i>, alors par ta vie ! Tu trouveras nécessaire de lui rendre visite, de lui apporter la <i>sotah</i>. 
 <b>Tout homme [lit. Un homme, un homme].</b> Cela enseigne qu'elle est doublement perfide ; contre "l'homme de guerre" en haut, et son mari [lit. "homme"] en bas. 
 <b>Si la femme [d'un homme] s'égare.</b> Nos rabbins enseignent : Les adultères ne commettent pas d'adultère à moins d'être imprégnés de l' <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>esprit de folie, comme il est écrit כִּי תִשְׂטֶה [lit. agit sottement]. et il est écrit : " l'adultère manque de raison " : L'explication simple du verset est la suivante : "[Si la femme d'un homme] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> se détourne des voies de la pudeur" et éveille sa suspicion, comme dans "se détourne de lui, et passe à côté", "que ton cœur ne se tourne pas vers ses voies". 
 <b>Et agit avec perfidie envers lui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quelle est cette perfidie ? 
@@ -71,9 +71,9 @@
 <b>Dans un ustensile d'argile.</b> Elle a servi à l'adultère un excellent vin dans de superbes gobelets - par conséquent, qu'elle boive l'eau amère dans une misérable coupe d'argile. 
 
 ### passuk 18
-<b>Le kohein stationnera... etc...</b> N'est-il pas déjà dit : '... et la stationnera devant Adonoy' ? (V. 16) <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, ils l'ont déplacée d'un endroit à l'autre pour l'épuiser, afin qu'elle perde son sang-froid et se confesse. 
+<b>Le Cohen stationnera... etc...</b> N'est-il pas déjà dit : '... et la stationnera devant Hachem' ? (V. 16) <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, ils l'ont déplacée d'un endroit à l'autre pour l'épuiser, afin qu'elle perde son sang-froid et se confesse. 
 <b>Exposer.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il démêle les tresses de ses cheveux, pour l'humilier. Nous en déduisons que, pour les filles de Israël, une tête dénudée est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>débarrassante. 
-<b>Avant Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>A la porte <i>Nikanor</i>. C'était la porte orientale de la cour [du Temple], la voie par laquelle tout le monde entrait. 
+<b>Avant Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>A la porte <i>Nikanor</i>. C'était la porte orientale de la cour [du Temple], la voie par laquelle tout le monde entrait. 
 <b>Et placer, sur ses paumes.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour l'épuiser, [dans l'espoir] qu'elle perde son sang-froid et se confesse, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>afin que le Nom Sacré ne soit pas effacé dans l'eau. 
 <b>L'amer.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>À cause de leurs séquelles, lorsqu'ils sont amers pour elle. 
 <b>Létales.</b> Qui l'éliminent du monde, comme l'expression : " ... épine mortelle ". Mais il est inapproprié de traduire " eaux maudites ", car elles sont sacrées [v. 17]. Et l'Écriture n'écrit pas אֲרוּרִים, mais מְאָרְרִים - affectant les autres. Même Onkelos n'a pas traduit לִיטַיָּא, " maudit ", mais מְלַטְטַיָּא, " causant la malédiction " - ils révèlent la malédiction dans le corps de cette [<i>sotah</i>]. 
@@ -86,7 +86,7 @@
 
 ### passuk 21
 <b>Avec le serment de malédiction.</b> Le serment qui contient la malédiction.
-<b>Adonoy te rendra maudit:</b> Tout le monde maudira à travers toi : 'Qu'une [malédiction] t'atteigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme il est arrivé à untel.'
+<b>Hachem te rendra maudit:</b> Tout le monde maudira à travers toi : 'Qu'une [malédiction] t'atteigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme il est arrivé à untel.'
 <b>Et un serment.</b> Tout le monde jurera à travers toi : 'Si [mon serment n'est] pas [vrai], que [le désastre] m'arrive comme il est arrivé à untel'. De même, il est dit : "vous laisserez vos noms [pour qu'ils soient utilisés] comme un serment par Mes élus". - les vertueux jurent par le châtiment des méchants. De même, en ce qui concerne les bénédictions, "et par toi sera béni... etc., "par toi [le peuple de] Israël bénira, en disant. . ." 
 <b>Ta cuisse.</b> Dans la malédiction, la cuisse précède l'abdomen, car sa transgression a commencé là. 
 <b>Gonflement.</b> Comme le traduit le Targum [Onkelos], "gonflé". 
@@ -103,7 +103,7 @@
 <b>Pour devenir amères.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Elles seront nuisibles et amères pour elle. 
 
 ### passuk 25
-<b>Et agitera.</b> Il la fait avancer, reculer, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>monter et descendre. Elle aussi fait signe avec lui, avec sa main <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur la main du <i>kohein.</i> 
+<b>Et agitera.</b> Il la fait avancer, reculer, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>monter et descendre. Elle aussi fait signe avec lui, avec sa main <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur la main du <i>Cohen.</i> 
 <b>Et l'apporter.</b> Il s'agit de la placer à l'angle sud-ouest de l'autel <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>avant de prendre la poignée, comme les autres <i>minchah</i>- offrandes. 
 
 ### passuk 26
@@ -126,7 +126,7 @@
 <b>Si (lit., ou) [il est] un homme.</b> Comme dans : "Si cela se savait". Comme si on avait dit : "Si c'est un homme vengeur, et, par conséquent, il aura la femme debout." 
 
 ### passuk 31
-<b>L'homme est purifié du péché.</b> Si l'eau l'a affectée, qu'il ne soit pas tourmenté en disant : "J'étais responsable de sa mort." Il est purifié du châtiment. Autre interprétation : Après qu'il (le <i>kohein</i>) l'ait fait boire, il lui est permis d'être avec lui (son mari), et il est purifié du péché. En effet, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la <i>sotah</i> [non testée] est interdite [d'avoir des relations intimes avec] son mari. 
+<b>L'homme est purifié du péché.</b> Si l'eau l'a affectée, qu'il ne soit pas tourmenté en disant : "J'étais responsable de sa mort." Il est purifié du châtiment. Autre interprétation : Après qu'il (le <i>Cohen</i>) l'ait fait boire, il lui est permis d'être avec lui (son mari), et il est purifié du péché. En effet, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la <i>sotah</i> [non testée] est interdite [d'avoir des relations intimes avec] son mari. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

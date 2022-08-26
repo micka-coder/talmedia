@@ -13,7 +13,7 @@
 
 ### passuk 5
 <b>Au pays des Cananéens, etc.</b> Et bien que seules cinq nations soient énumérées [néanmoins,] les sept nations sont sous-entendues car Canaan les inclut toutes. Il y avait cependant un membre de la famille de Canaan qui n'avait pas d'autre nom que "Cananéen". 
-<b>Juré à vos pères, etc.</b> Concernant Avraham, il est indiqué : "En ce jour, Adonoy fit une alliance avec Avram, etc.". Concernant Yitzchok, il est dit : "Reste provisoirement dans ce pays, etc.". Pour Yaakov, il est dit : "La terre sur laquelle tu es couché, etc.". 
+<b>Juré à vos pères, etc.</b> Concernant Avraham, il est indiqué : "En ce jour, Hachem fit une alliance avec Avram, etc.". Concernant Yitshak, il est dit : "Reste provisoirement dans ce pays, etc.". Pour Yaakov, il est dit : "La terre sur laquelle tu es couché, etc.". 
 <b>Une terre où coulent le lait et le miel.</b> Le lait coule des chèvres et le miel coule des dattes et des figues.
 <b>Ce service.</b> [C'est-à-dire le service] du <i>korbon Pessah.</i> Mais n'était-ce pas déjà dit plus haut : "Quand tu arriveras dans le pays, etc..." pourquoi (alors) est-il revenu en arrière et l'a-t-il reformulé ? En raison d'une nouveauté qui est introduite. Dans le chapitre précédent, il est dit : "Quand tes enfants te demanderont : "Quel est ce service qui est le tien ?" L'Écriture [là] parle du fils mauvais, car il s'est exclu de la communauté. Mais ici [il est dit] "Tu dois le dire à ton fils", en faisant référence au fils qui ne sait pas [même] quoi demander, l'Écriture vous enseigne que vous devez entamer la conversation avec lui avec des explications aggadiques qui attirent le cœur (c'est-à-dire qui suscitent son intérêt). 
 
@@ -23,7 +23,7 @@
 
 ### passuk 8
 <b>À cause de cela.</b> "Parce que j'accomplirai Ses <i>mitzvos,</i> tels que ceux-ci : <i>Pesach, Matzo,</i> et <i>Maror</i>. 
-<b>Adonoy a fait [cela] pour moi.</b> Il s'agit d'une allusion à une réponse au mauvais fils, disant : " Adonoy a fait cela pour <i>moi</i> " - " pour <i>moi</i>, mais pas pour toi, car si tu avais été là [en Égypte], tu n'aurais pas été digne d'être racheté ". 
+<b>Hachem a fait [cela] pour moi.</b> Il s'agit d'une allusion à une réponse au mauvais fils, disant : " Hachem a fait cela pour <i>moi</i> " - " pour <i>moi</i>, mais pas pour toi, car si tu avais été là [en Égypte], tu n'aurais pas été digne d'être racheté ". 
 
 ### passuk 9
 <b>Ce sera pour vous un signe.</b> L'Exode d'Egypte sera pour vous un signe -
@@ -34,7 +34,7 @@
 <b>D'année en année</b> (lit. <i>jours en jours</i>) . [מִיָּמִים יָמִימָה signifie] d'année en année.
 
 ### passuk 11
-<b>Quand Adonoy vous amène.</b> Certains de nos Sages ont appris d'ici que les premiers-nés du désert n'étaient pas sanctifiés. Celui dont l'opinion est qu'ils <i>étaient</i> sanctifiés explique cette "venue en [Eretz Yisrael]" ainsi : Si vous l'accomplirez (la sanctification des premiers-nés) dans le désert, vous mériterez d'entrer dans le pays et vous [continuerez] à l'accomplir là-bas. 
+<b>Quand Hachem vous amène.</b> Certains de nos Sages ont appris d'ici que les premiers-nés du désert n'étaient pas sanctifiés. Celui dont l'opinion est qu'ils <i>étaient</i> sanctifiés explique cette "venue en [Eretz Yisrael]" ainsi : Si vous l'accomplirez (la sanctification des premiers-nés) dans le désert, vous mériterez d'entrer dans le pays et vous [continuerez] à l'accomplir là-bas. 
 <b>Il te l'a juré.</b> Et où te l'a-t-il juré ? [quand Il a dit :] "Je vous ferai entrer dans le pays au sujet duquel J'ai levé Ma Main [comme un serment], etc.". 
 <b>Et Il te l'aura donné.</b> Tu dois le considérer comme s'Il te l'avait donné le jour même et ne le considère pas comme un héritage de tes ancêtres.
 
@@ -44,8 +44,8 @@
 
 ### passuk 13
 <b>Premier-né de l'âne.</b> Mais pas le premier-né d'un autre animal impur. C'est un décret scripturaire parce que les premiers-nés égyptiens sont comparés à des ânes. Aussi parce que [les ânes] ont été utiles à Israël lorsqu'il a quitté l'Égypte [car il n'y a pas un seul Israélite qui n'ait pas pris beaucoup d'ânes] chargés de l'argent et de l'or d'Égypte.
-<b>Redem avec un mouton.</b> Il donne un mouton au <i>kohein.</i> et il est permis d'utiliser l'âne premier-né. Le mouton n'est pas sacré dans la possession du <i>kohein</i>.
-<b>Tu dois lui briser le cou.</b> Il lui brise le cou avec une hache par derrière et le tue. Il a causé au <i>kohein</i> une perte monétaire. Par conséquent, il subit une perte de <i>son</i> argent. 
+<b>Redem avec un mouton.</b> Il donne un mouton au <i>Cohen.</i> et il est permis d'utiliser l'âne premier-né. Le mouton n'est pas sacré dans la possession du <i>Cohen</i>.
+<b>Tu dois lui briser le cou.</b> Il lui brise le cou avec une hache par derrière et le tue. Il a causé au <i>Cohen</i> une perte monétaire. Par conséquent, il subit une perte de <i>son</i> argent. 
 <b>Rachetez tout mâle premier-né parmi vos fils.</b> Sa valeur de rachat de cinq <i>selaim</i> est établie à un autre endroit .
 
 ### passuk 14

@@ -82,14 +82,14 @@
 <b>Et une galette -</b> des galettes ; une chacune sur les dix de chaque sorte. Nous ne trouvons nulle part qu'une <i>terumah</i> de pain apportée avec un <i>korbon,</i> animal soit brûlée [sur l'autel], sauf pour celle-ci, car la <i>terumah</i> des pains d'une offrande d'action de grâce, et d'un bélier apporté par un <i>Nazir,</i> était donnée aux <i>kohanim</i> avec la poitrine et l'épaule, alors que de celle-ci, Moshé n'a reçu comme portion que la poitrine seule. 
 
 ### passuk 24
-<b>Sur les mains d'Aharon, etc. et tu agiteras.</b> Tous deux participaient à l'agitation - le "propriétaire" et le <i>kohein.</i> Comment cela se fait-il ? Le <i>kohein</i> place sa main sous la main du "propriétaire" et l'agite. Dans ce cas, Aharon et ses fils étaient les "propriétaires", et Moshé [était] le <i>kohein.</i> 
+<b>Sur les mains d'Aharon, etc. et tu agiteras.</b> Tous deux participaient à l'agitation - le "propriétaire" et le <i>Cohen.</i> Comment cela se fait-il ? Le <i>Cohen</i> place sa main sous la main du "propriétaire" et l'agite. Dans ce cas, Aharon et ses fils étaient les "propriétaires", et Moshé [était] le <i>Cohen.</i> 
 <b>Une offrande ondulée.</b> Il l'apporte d'avant en arrière [dans les quatre directions] à Celui à qui appartiennent les quatre côtés du monde. L'ondulation servait à prévenir et à annuler le malheur et les vents néfastes. Puis il l'apporte de haut en bas à Celui à qui appartiennent le ciel et la terre, ce qui sert à prévenir les rosées nuisibles.
 
 ### passuk 25
 <b>Après l'holocauste.</b> [Signification :] après le bélier précédent que vous aviez déjà élevé en holocauste.
 <b>Comme un parfum agréable.</b> [C'est-à-dire] comme quelque chose d'agréable à Celui qui a commandé et Sa volonté a été faite. 
 <b>Une offrande au feu.</b> [C'est-à-dire] qu'elle est mise sur le ( אֵשׁ ) feu.
-<b>À Adonoy.</b> [i.e.] pour l'amour du nom de Dieu.
+<b>À Hachem.</b> [i.e.] pour l'amour du nom de Dieu.
 
 ### passuk 26
 
@@ -99,7 +99,7 @@
 <b>Uplifié.</b> [הוּרם est] un terme désignant un mouvement de haut en bas.
 
 ### passuk 28
-<b>Par statut à jamais des B'nei Yisrael -</b> que les שְׁלָמִים -offrandes à aller aux "propriétaires" et que la poitrine et l'épaule soient données au <i>kohein.</i>
+<b>Par statut à jamais des B'nei Yisrael -</b> que les שְׁלָמִים -offrandes à aller aux "propriétaires" et que la poitrine et l'épaule soient données au <i>Cohen.</i>
 <b>Car c'est une offrande de terumah -</b> cette poitrine et cette épaule.
 
 ### passuk 29
@@ -109,9 +109,9 @@
 
 ### passuk 30
 <b>Sept jours.</b> [Ils doivent être] consécutifs.
-<b>Ils seront portés... le kohein.</b> Celui de ses fils qui s'élèvera à sa place à la haute prêtrise lorsqu'il sera désigné pour être le <i>kohein godol.</i>
-<b>Qui entrera dans la tente de la Rencontre.</b> [C'est-à-dire] ce <i>kohein</i> qui a été préparé pour entrer dans la partie la plus intérieure [du <i>mikdosh</i> ou <i>mishkon</i>] à Yom Kippour et qui est le <i>kohein godol</i> sans lequel le service de Yom Kippour est impropre.
-<b>Par un de ses fils qui sert à sa place.</b> Cela enseigne que si le <i>kohein godol</i> a un fils qui peut remplir son poste, ils doivent le nommer <i>kohein godol</i> à sa place.
+<b>Ils seront portés... le Cohen.</b> Celui de ses fils qui s'élèvera à sa place à la haute prêtrise lorsqu'il sera désigné pour être le <i>Cohen godol.</i>
+<b>Qui entrera dans la tente de la Rencontre.</b> [C'est-à-dire] ce <i>Cohen</i> qui a été préparé pour entrer dans la partie la plus intérieure [du <i>mikdosh</i> ou <i>mishkon</i>] à Yom Kippour et qui est le <i>Cohen godol</i> sans lequel le service de Yom Kippour est impropre.
+<b>Par un de ses fils qui sert à sa place.</b> Cela enseigne que si le <i>Cohen godol</i> a un fils qui peut remplir son poste, ils doivent le nommer <i>Cohen godol</i> à sa place.
 <b>COPY00 תַּחְתָּיו מִבָּנָיו .</b> D'où la preuve que chaque utilisation du mot כֹּהֵן est un participe - celui qui rend effectivement service. [En outre,] c'est pour cette raison que la marque de l'intonation [du mot הַכֹּהֵן] est un תְּבִיר , qui le relie au mot suivant . 
 
 ### passuk 31
@@ -125,7 +125,7 @@
 <b>Par lequel l'expiation a été réalisée -</b> pour eux, d'être "étranges" et répréhensibles. 
 <b>Pour les installer -</b> au moyen du bélier et de ces pains.
 <b>Pour les sanctifier.</b> C'est-à-dire qu'au moyen de ces מִלּוּאִים -offrandes, ils étaient installés <i>et</i> sanctifiés au sacerdoce. 
-<b>Parce qu'ils sont sacrés.</b> Saint des Saints. c'est d'ici que nous tirons l'avertissement contre un "étranger" (un non-<i>kohein</i>) qui mange de [<i>korbonos</i> qui sont] Saint des Saints, puisque l'Écriture donne la raison de cette chose : "car ils sont sacrés." 
+<b>Parce qu'ils sont sacrés.</b> Saint des Saints. c'est d'ici que nous tirons l'avertissement contre un "étranger" (un non-<i>Cohen</i>) qui mange de [<i>korbonos</i> qui sont] Saint des Saints, puisque l'Écriture donne la raison de cette chose : "car ils sont sacrés." 
 
 ### passuk 34
 

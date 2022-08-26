@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et Adonoy a fourni à Israël un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois."<sup>1</sup><i class="footnote">Ci-après, v. 19.</i>
+<b>Et Hachem a fourni à Israël un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois."<sup>1</sup><i class="footnote">Ci-après, v. 19.</i>
 
 ### passuk 6
 
@@ -36,7 +36,7 @@
 
 ### passuk 17
 <b>"Ouvrez la fenêtre vers l'est."</b> En face du pays d'Arom qui est situé à l'est, comme il est dit : "Arom de l'est."<sup>8</sup><i class="footnote">Yeshayahu 9:11.</i>
-<b>"Tirez !" Et il a tiré.</b> [Le Targum Yonoson rend] "Tirez !" Et il a tiré.
+<b>"Tirez !" Et il a tiré.</b> [Le Targum Yonathan rend] "Tirez !" Et il a tiré.
 <b>Et il dit : "Une flèche de salut, etc."</b> Elisha dit : "Cette flèche est un symbole de salut pour Israël."
 <b>À Apheik.</b> Le nom de la ville [est Apheik].</sup>9</sup><i class="footnote">Israël avait été vaincu auparavant par Arom. Voir I Melochim 20:26-30.</i>
 
@@ -48,7 +48,7 @@
 
 ### passuk 20
 <b>Ils envahiraient le pays.</b> Il était courant qu'ils viennent piller le pays.<sup>10</sup><i class="footnote">Après la mort d'Elisée.-Radak Tant qu'il était vivant, aucun Araméen n'osait envahir comme l'indique II Melochim 6:23.</i>.
-<b>Au début de chaque année.</b> [Le Targum Yonoson rend :] "au début de l'année"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
+<b>Au début de chaque année.</b> [Le Targum Yonathan rend :] "au début de l'année"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
 
 >Crédit : sefaris
 >License : CC-BY
@@ -61,7 +61,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et Adonoy a fourni à Israël un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois."<sup>1</sup><i class="footnote">Ci-après, v. 19.</i>
+<b>Et Hachem a fourni à Israël un sauveur.</b> Yoash fils de Yehoachaz, à propos duquel il est dit : "Tu frapperas [et vaincras] Arom [seulement] trois fois."<sup>1</sup><i class="footnote">Ci-après, v. 19.</i>
 
 ### passuk 6
 
@@ -89,7 +89,7 @@
 
 ### passuk 17
 <b>"Ouvrez la fenêtre vers l'est."</b> En face du pays d'Arom qui est situé à l'est, comme il est dit : "Arom de l'est."<sup>8</sup><i class="footnote">Yeshayahu 9:11.</i>
-<b>"Tirez !" Et il a tiré.</b> [Le Targum Yonoson rend] "Tirez !" Et il a tiré.
+<b>"Tirez !" Et il a tiré.</b> [Le Targum Yonathan rend] "Tirez !" Et il a tiré.
 <b>Et il dit : "Une flèche de salut, etc."</b> Elisha dit : "Cette flèche est un symbole de salut pour Israël."
 <b>À Apheik.</b> Le nom de la ville [est Apheik].</sup>9</sup><i class="footnote">Israël avait été vaincu auparavant par Arom. Voir I Melochim 20:26-30.</i>
 
@@ -101,7 +101,7 @@
 
 ### passuk 20
 <b>Ils envahiraient le pays.</b> Il était courant qu'ils viennent piller le pays.<sup>10</sup><i class="footnote">Après la mort d'Elisée.-Radak Tant qu'il était vivant, aucun Araméen n'osait envahir comme l'indique II Melochim 6:23.</i>.
-<b>Au début de chaque année.</b> [Le Targum Yonoson rend,] "au début de l'année,"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année-là même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
+<b>Au début de chaque année.</b> [Le Targum Yonathan rend,] "au début de l'année,"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année-là même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
 
 >Crédit : sefaris
 >License : CC-BY

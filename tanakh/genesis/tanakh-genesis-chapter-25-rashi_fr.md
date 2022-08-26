@@ -11,7 +11,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Avraham a donné.</b> R. Nechemia a dit : [Il lui a donné] les bénédictions [et] un certificat légal. Car Dieu avait dit à Avraham "Et tu seras une bénédiction", [c'est-à-dire que] les bénédictions te sont confiées afin que tu puisses bénir qui tu veux. Avraham les confia donc à Yitzchok. 
+<b>Avraham a donné.</b> R. Nechemia a dit : [Il lui a donné] les bénédictions [et] un certificat légal. Car Dieu avait dit à Avraham "Et tu seras une bénédiction", [c'est-à-dire que] les bénédictions te sont confiées afin que tu puisses bénir qui tu veux. Avraham les confia donc à Yitshak. 
 
 ### passuk 6
 <b>Les concubines.</b> Il est écrit sans [la lettre י' pour indiquer] qu'il n'y avait qu'une seule concubine, [car] Agar était identique à Ketourah. Les épouses sont [celles qui sont mariées] avec une <i>késouba.</i> Les concubines sont celles qui n'ont pas de <i>késouba.</i> Comme il est expliqué dans le Sanhedrin concernant les épouses et les concubines de David. 
@@ -23,12 +23,12 @@
 ### passuk 8
 
 ### passuk 9
-<b>Yitzchok et Yishmael.</b> On peut en déduire que Yishmael s'est repenti et a permis à Yitzchok de le précéder. C'est la référence à la "bonne vieillesse" qui est dite à propos d'Avraham. 
+<b>Yitshak et Yishmael.</b> On peut en déduire que Yishmael s'est repenti et a permis à Yitshak de le précéder. C'est la référence à la "bonne vieillesse" qui est dite à propos d'Avraham. 
 
 ### passuk 10
 
 ### passuk 11
-<b>Après la mort d'Avraham, [Dieu] bénit.</b> Il le réconforta [avec les mots utilisés] pour réconforter les endeuillés. Une autre explication : Bien que Dieu ait donné à Avraham la capacité de bénir les autres, il avait peur de donner les bénédictions à Yitzchok car il prévoyait qu'Eisav naîtrait de lui. Il dit donc : "Que le Maître des bénédictions vienne et bénisse qui Il veut", et Dieu vint et le bénit. 
+<b>Après la mort d'Avraham, [Dieu] bénit.</b> Il le réconforta [avec les mots utilisés] pour réconforter les endeuillés. Une autre explication : Bien que Dieu ait donné à Avraham la capacité de bénir les autres, il avait peur de donner les bénédictions à Yitshak car il prévoyait qu'Eisav naîtrait de lui. Il dit donc : "Que le Maître des bénédictions vienne et bénisse qui Il veut", et Dieu vint et le bénit. 
 
 ### passuk 12
 
@@ -50,16 +50,16 @@
 <b>Il a vécu.</b> [Signifiant :] il a habité, comme dans : "Les Madianites, les Amelekites et tous les peuples de l'Orient <i>habitaient</i> dans la vallée". Ici, le terme נְפִילָה [chute] est utilisé, alors qu'auparavant il est dit : "En présence de tous ses frères [יִשְׁכּוֹן] il demeurera." [Il en est ainsi car] tant qu'Avraham ne mourrait pas, il "habiterait" [יִשְׁכּוֹן]. Une fois Avraham mort, il "tomba" [נָפָל]. 
 
 ### passuk 19
-<b>Voici les descendants de Yitzchok.</b> [תּוֹלְדֹת יִצְחָק se réfère à :] Yaakov et Eisov dont il est question dans ce <i>parshah.</i>
-<b>Avraham était le père de Yitzchok.</b> Après que Dieu l'ait [re]nommé Avraham, [seulement] ensuite il a eu Yitzchok. Une autre explication : puisque le verset était écrit "Yitzchok fils d'Avraham", il devint nécessaire de dire "Avraham était le père de Yitzchok", car les moqueurs des générations disaient que Sarah avait conçu par Avimélech, car elle avait vécu avec Avraham de nombreuses années et n'avait pas conçu par lui. Qu'a fait Dieu ? Il façonna les traits du visage de Yitzchok en les rendant semblables à ceux d'Avraham, afin que tout le monde témoigne qu'"Avraham était le père de Yitzchok". C'est [le sens de] ce qui est écrit ici : "Yitzchok, fils d'Avraham" car ici est la preuve que "Avraham était le père de Yitzchok." 
+<b>Voici les descendants de Yitshak.</b> [תּוֹלְדֹת יִצְחָק se réfère à :] Yaakov et Eisov dont il est question dans ce <i>parshah.</i>
+<b>Avraham était le père de Yitshak.</b> Après que Dieu l'ait [re]nommé Avraham, [seulement] ensuite il a eu Yitshak. Une autre explication : puisque le verset était écrit "Yitshak fils d'Avraham", il devint nécessaire de dire "Avraham était le père de Yitshak", car les moqueurs des générations disaient que Sarah avait conçu par Avimélech, car elle avait vécu avec Avraham de nombreuses années et n'avait pas conçu par lui. Qu'a fait Dieu ? Il façonna les traits du visage de Yitshak en les rendant semblables à ceux d'Avraham, afin que tout le monde témoigne qu'"Avraham était le père de Yitshak". C'est [le sens de] ce qui est écrit ici : "Yitshak, fils d'Avraham" car ici est la preuve que "Avraham était le père de Yitshak." 
 
 ### passuk 20
-<b>Quarante ans.</b> Car lorsqu'Avraham revint du mont Moriah, il reçut la nouvelle de la naissance de Rivka. Et Yitzchok était alors âgé de trente-sept ans, car c'est à cette époque que Sarah est morte. Et depuis la naissance de Yitzchok jusqu'à la <i>Akeidah</i> où Sarah mourut, il y eut trente-sept ans ; car elle avait quatre-vingt-dix ans à la naissance de Yitzchok et cent vingt-sept ans à sa mort. Car il est dit : " La vie de Sara etc. ", ce qui fait que Yitzchok avait trente-sept ans, et c'est à cette époque que naquit Rivka. Il l'attendit jusqu'à ce qu'elle soit apte au mariage - trois ans - après quoi il l'épousa. 
+<b>Quarante ans.</b> Car lorsqu'Avraham revint du mont Moriah, il reçut la nouvelle de la naissance de Rivka. Et Yitshak était alors âgé de trente-sept ans, car c'est à cette époque que Sarah est morte. Et depuis la naissance de Yitshak jusqu'à la <i>Akeidah</i> où Sarah mourut, il y eut trente-sept ans ; car elle avait quatre-vingt-dix ans à la naissance de Yitshak et cent vingt-sept ans à sa mort. Car il est dit : " La vie de Sara etc. ", ce qui fait que Yitshak avait trente-sept ans, et c'est à cette époque que naquit Rivka. Il l'attendit jusqu'à ce qu'elle soit apte au mariage - trois ans - après quoi il l'épousa. 
 <b>La fille de Besueil, l'Aramite, de Padan Aram, sœur de Lavan.</b> Mais, n'est-il pas déjà écrit qu'elle était la fille de Besueil et la sœur de Lavan de Padan Aram ? [Ceci est écrit] seulement pour relater sa louange, à savoir qu'elle était la fille d'une personne méchante et la sœur d'une personne méchante et que sa demeure était une des personnes méchantes [et pourtant] elle n'a pas appris de leurs actes. 
 <b>Du Padan Aram.</b> Parce qu'il y avait deux <i>Arams</i>-Aram Nahariyum et Aram Zovah. On les appelle [collectivement] Padan [paire], dérivé de צֶמֶד בָּקָר [une paire de bœufs] que le Targum traduit פַּדַּן תּוֹרִין . D'autres expliquent פַּדַּן אֲרָם par " Le champ d'Aram " car en arabe un champ se nomme <i>Padan. </i> 
 
 ### passuk 21
-<b>[Il] a prié.</b> [Signification :] il [Yitzchok] a augmenté ses implorations et ses prières.
+<b>[Il] a prié.</b> [Signification :] il [Yitshak] a augmenté ses implorations et ses prières.
 <b>[Il] a exaucé sa prière.</b> [Signification :] Il [Dieu] s'est permis d'être imploré et d'être apaisé et influencé par lui. Je suis d'avis que partout où une forme du mot עתר est utilisée, elle signifie implorer et augmenter. De même, "[וַעֲתַר] Et un épais nuage de fumée", [signifiant] une quantité croissante de fumée ascendante. Et de même : [וְהַעְתַּרְתֶּם] "Tu as augmenté tes paroles contre moi." Et de même : "Exorbitants sont les baisers de l'ennemi", c'est-à-dire qu'ils <i>semblent</i> exorbitants et sont pesants, <i>encore plus</i> en ancien français. 
 <b>Auprès de sa femme.</b> Il était debout dans un coin et priait, tandis qu'elle était debout dans l'autre coin et priait. 
 <b>[Il] a exaucé sa prière.</b> "La sienne" mais pas la sienne. Car elle n'est pas comparable - la prière d'une personne juste, [qui est] l'enfant d'une personne juste, à la prière d'une personne juste qui est l'enfant d'une personne mauvaise. Par conséquent, "son" et non pas "sa". 
@@ -69,10 +69,10 @@
 <b>Elle a dit, si c'est ainsi.</b> [Que] la douleur de la grossesse est si grande. ... . 
 <b>Pourquoi ai-je désiré cela ?</b> Pourquoi ai-je désiré et prié pour concevoir ?
 <b>Elle est allée se renseigner.</b> A la maison d'étude de Sheim.
-<b>Pour s'enquérir d'Adonoy.</b> Pour lui dire ce qui se passerait à la fin.
+<b>Pour s'enquérir d'Hachem.</b> Pour lui dire ce qui se passerait à la fin.
 
 ### passuk 23
-<b>Adonoy lui a dit.</b> Par un intermédiaire. Sheim a été informé par une inspiration divine, après quoi, il lui a dit. 
+<b>Hachem lui a dit.</b> Par un intermédiaire. Sheim a été informé par une inspiration divine, après quoi, il lui a dit. 
 <b>Deux nations sont dans ton ventre.</b> [גוֹיִם] est écrit comme גיים . Cela fait référence à Antonin et Rabin dont les tables ne manquaient jamais de radis ou de laitue ni en été ni en hiver.
 <b>Et deux royaumes.</b> Le mot לְאוֹם signifie toujours royaume.
 <b>Séparera du dedans de toi.</b> [C'est-à-dire que] dès le ventre de la mère, ils sont séparés, l'un vers ses mauvaises voies, l'autre vers sa salubrité. 
@@ -101,7 +101,7 @@
 <b>Vivre dans des tentes.</b> [Se référant à :] la tente de Sheim et la tente de Eiver.
 
 ### passuk 28
-<b>Il a mangé. [Lit. dans sa bouche.]</b> Comme Onkelos le traduit : Dans [ou dans] la bouche de Yitzchok. Mais, son interprétation midrashique est : Avec la bouche d'Eisov. C'est-à-dire qu'il le piégerait et le tromperait avec ses mots. 
+<b>Il a mangé. [Lit. dans sa bouche.]</b> Comme Onkelos le traduit : Dans [ou dans] la bouche de Yitshak. Mais, son interprétation midrashique est : Avec la bouche d'Eisov. C'est-à-dire qu'il le piégerait et le tromperait avec ses mots. 
 
 ### passuk 29
 <b>Simmering.</b> A le sens de cuisson comme le traduit Onkelos.
@@ -109,7 +109,7 @@
 
 ### passuk 30
 <b>Une hirondelle.</b> [Signification :] J'ouvrirai ma bouche et j'y verserai beaucoup de choses, comme nous l'avons appris dans une Mishna : "On ne peut pas gaver un chameau [le Chabbat] mais on peut lui verser de la nourriture." 
-<b>De cette [potée] rouge.</b> Des lentilles rouges. Ce jour-là, Avraham mourut pour ne pas voir Eisov, son petit-fils, tomber dans de mauvaises habitudes, [car] ce ne serait pas "la bonne vieillesse" que Dieu lui avait promise. C'est pour cette raison que D-ieu a raccourci sa vie de cinq ans, car Yitzchok a vécu 180 ans alors que lui [Avraham] en a vécu 175. [Yaakov cuisina donc des lentilles comme premier repas pour la personne en deuil. Pourquoi les lentilles sont-elles [un aliment pour une personne en deuil] ? Parce qu'elles sont [rondes] comme une roue, car le deuil est une roue qui tourne dans le monde. (Autre raison : De même que les lentilles n'ont pas de bouche [c'est-à-dire d'ouverture], de même un endeuillé n'a pas de bouche, car il lui est interdit de parler. C'est pour cette raison qu'il est de coutume de donner des œufs à un endeuillé pour son premier repas, car ils sont ronds et n'ont pas de "bouche". De même, une personne en deuil n'a pas de "bouche", comme l'explique le Mo'ed Koton : "Une personne en deuil - les trois premiers jours - ne peut pas répondre aux salutations de quiconque, et ne peut certainement pas initier une salutation. Du troisième jusqu'au septième [jour], il peut répondre mais ne peut pas saluer, etc.) 
+<b>De cette [potée] rouge.</b> Des lentilles rouges. Ce jour-là, Avraham mourut pour ne pas voir Eisov, son petit-fils, tomber dans de mauvaises habitudes, [car] ce ne serait pas "la bonne vieillesse" que Dieu lui avait promise. C'est pour cette raison que D-ieu a raccourci sa vie de cinq ans, car Yitshak a vécu 180 ans alors que lui [Avraham] en a vécu 175. [Yaakov cuisina donc des lentilles comme premier repas pour la personne en deuil. Pourquoi les lentilles sont-elles [un aliment pour une personne en deuil] ? Parce qu'elles sont [rondes] comme une roue, car le deuil est une roue qui tourne dans le monde. (Autre raison : De même que les lentilles n'ont pas de bouche [c'est-à-dire d'ouverture], de même un endeuillé n'a pas de bouche, car il lui est interdit de parler. C'est pour cette raison qu'il est de coutume de donner des œufs à un endeuillé pour son premier repas, car ils sont ronds et n'ont pas de "bouche". De même, une personne en deuil n'a pas de "bouche", comme l'explique le Mo'ed Koton : "Une personne en deuil - les trois premiers jours - ne peut pas répondre aux salutations de quiconque, et ne peut certainement pas initier une salutation. Du troisième jusqu'au septième [jour], il peut répondre mais ne peut pas saluer, etc.) 
 
 ### passuk 31
 <b>A compter de ce jour, vendre.</b> Comme le traduit Onkelos : "Comme ce jour", c'est-à-dire comme ce jour est absolument clair, alors vends-le moi, comme une vente absolument sûre. 

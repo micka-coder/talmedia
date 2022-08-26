@@ -35,7 +35,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Adonoy m'a ordonné à ce moment-là de vous enseigner.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence à la loi orale.
+<b>Hachem m'a ordonné à ce moment-là de vous enseigner.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence à la loi orale.
 
 ### passuk 15
 
@@ -48,7 +48,7 @@
 
 ### passuk 19
 <b>Or de peur que tu ne lèves les yeux [vers le ciel] - </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour spéculer sur la question, et pour mettre ton cœur à gaffer après eux. 
-<b>Quand Adonoy les a mis à disposition</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour leur fournir de la lumière. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Autre explication : [Il les a mis à disposition] en tant que divinités. Il ne les a pas empêchés <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de gaffer après eux, mais leur a ouvert la voie [à l'erreur] par leurs spéculations dénuées de sens, afin de les bannir du monde. De même, il est dit : "Car il aplanit [le chemin] devant ses yeux, Lui [Dieu] faisant découvrir son iniquité pour laquelle Il le haïra. 
+<b>Quand Hachem les a mis à disposition</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour leur fournir de la lumière. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Autre explication : [Il les a mis à disposition] en tant que divinités. Il ne les a pas empêchés <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de gaffer après eux, mais leur a ouvert la voie [à l'erreur] par leurs spéculations dénuées de sens, afin de les bannir du monde. De même, il est dit : "Car il aplanit [le chemin] devant ses yeux, Lui [Dieu] faisant découvrir son iniquité pour laquelle Il le haïra. 
 
 ### passuk 20
 <b>Creuset [de fer].</b> C'est un récipient dans lequel l'or est raffiné.
@@ -62,13 +62,13 @@
 
 ### passuk 23
 <b>Une image de quoi que ce soit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La ressemblance de tout objet.
-<b>Ce qu'Adonoy vous a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce qu'il vous a ordonné de ne pas faire.
+<b>Ce qu'Hachem vous a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce qu'il vous a ordonné de ne pas faire.
 
 ### passuk 24
 <b>Un Tout-Puissant jaloux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il est jaloux pour se venger ; En vieux français - <i>emportement.</i>Sa colère est éclatante pour punir ceux qui adorent les idoles.
 
 ### passuk 25
-<b>Et ont vieilli. </b> Il leur a laissé entendre qu'ils en seraient exilés au bout de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> huit cent cinquante-deux ans, ce qui est la valeur numérique [<i>gematria</i>] de וְנוֹשַׁנְתֶּם . Mais il les a envoyés en exil plus tôt - au bout de huit cent cinquante ans. Il les a exilés deux ans plus tôt que la valeur numérique de וְנוֹשַׁנְתֶּם afin qu'ils ne subissent pas l'accomplissement de "que vous serez complètement retirés [du pays]." Et c'est [le sens de] ce qui est dit : "Et Adonoy a précipité le mal, et Il l'a fait venir sur nous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car Adonoy notre Dieu est juste." Il a agi avec justice [charitablement צְדָקָה) avec nous, car il s'est hâté d'amener [le mal] deux ans avant son heure. 
+<b>Et ont vieilli. </b> Il leur a laissé entendre qu'ils en seraient exilés au bout de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> huit cent cinquante-deux ans, ce qui est la valeur numérique [<i>gematria</i>] de וְנוֹשַׁנְתֶּם . Mais il les a envoyés en exil plus tôt - au bout de huit cent cinquante ans. Il les a exilés deux ans plus tôt que la valeur numérique de וְנוֹשַׁנְתֶּם afin qu'ils ne subissent pas l'accomplissement de "que vous serez complètement retirés [du pays]." Et c'est [le sens de] ce qui est dit : "Et Hachem a précipité le mal, et Il l'a fait venir sur nous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car Hachem notre Dieu est juste." Il a agi avec justice [charitablement צְדָקָה) avec nous, car il s'est hâté d'amener [le mal] deux ans avant son heure. 
 
 ### passuk 26
 <b>J'apporte en témoignage contre vous.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je les ai désignés pour être les témoins que je vous ai avertis.
@@ -97,7 +97,7 @@
 <b>Au moyen d'épreuves.</b> Au moyen d'épreuves, il leur a fait connaître ses hauts faits, par exemple : "Glorifie-toi à mes dépens", si je serai capable de le faire. Ceci est un exemple de test. 
 <b>Avec des signes.</b> Avec des signes pour confirmer qu'il [Moshé] est le messager du Tout-Puissant, par exemple : "Qu'est-ce que c'est dans ta main ?". 
 <b>Avec des prodiges.</b> Ceux-ci font référence aux prodiges qu'il a fait tomber sur eux - les fléaux étonnants.
-<b>A travers la guerre.</b> [Cela fait référence à l'épisode] de la mer [des roseaux], comme il est dit : "Car Adonoy combat pour eux." 
+<b>A travers la guerre.</b> [Cela fait référence à l'épisode] de la mer [des roseaux], comme il est dit : "Car Hachem combat pour eux." 
 
 ### passuk 35
 <b>On vous a montré.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le mot הָרְאֵתָ selon le Targum Onkelos signifie "On vous a montré". Lorsque le Saint, béni soit-Il, a donné la Torah, il a ouvert pour eux les sept cieux. Et de la même manière qu'il a fendu [ouvert] les sphères supérieures, Il a également fendu les sphères inférieures, et ainsi ils ont vu qu'Il est l'Unique. Il est donc dit : "On vous a montré pour que vous sachiez." 
@@ -118,7 +118,7 @@
 
 ### passuk 41
 <b>Alors Moshé mit de côté.</b> [ יַבְדִיל est le futur.] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il réfléchit dans son cœur à se préoccuper de l'affaire pour les mettre [les villes] de côté. Et bien qu'ils n'offriraient pas d'asile jusqu'à ce que ces villes de Canaan soient mises de côté, Moshé a dit : une <i>mitzvah</i> que je peux accomplir, je l'accomplirai. 
-<b>Au travers du Yardein où le soleil se lève.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De ce côté qui est à l'est du Yardein.
+<b>Au travers du Jourdain où le soleil se lève.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De ce côté qui est à l'est du Jourdain.
 <b>Où le soleil se lève</b> Parce que מִזְרָחָה est dans l'état de construction, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la lettre <i>reish</i> est vocalisée avec un <i>chataf</i> [<i>sheva</i>], [signifiant] le lever du soleil - i. e., l'endroit où le soleil se lève. 
 
 ### passuk 42
@@ -134,7 +134,7 @@
 ### passuk 46
 
 ### passuk 47
-<b>Ceux qui étaient de l'autre côté du Yardein.</b> C'est-à-dire à l'est, car le second côté était à l'ouest. 
+<b>Ceux qui étaient de l'autre côté du Jourdain.</b> C'est-à-dire à l'est, car le second côté était à l'ouest. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

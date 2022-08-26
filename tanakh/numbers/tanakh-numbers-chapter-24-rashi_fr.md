@@ -20,13 +20,13 @@
 ### passuk 5
 <b>Comme tes tentes sont belles.</b> Parce qu'il a vu que leurs entrées n'étaient pas en face les unes des autres.
 <b>Vos lieux d'habitation.</b> Vos camps, comme le rend le Targum [Onkelos]. Une autre interprétation de combien sont belles vos tentes : Comme est belle la tente de Silo et le Temple éternel quand ils sont habités, car on y offre des sacrifices pour vous apporter le pardon. 
-<b>Vos demeures.</b> Même lorsqu'elles sont désolées, puisqu'elles sont tenues en sécurité pour vous, et que leur désolation apporte l'expiation pour vos âmes, comme il est dit : "Adonoy a dépensé sa fureur" - et comment l'a-t-il dépensée ? "Il a allumé un feu dans Tziyon." 
+<b>Vos demeures.</b> Même lorsqu'elles sont désolées, puisqu'elles sont tenues en sécurité pour vous, et que leur désolation apporte l'expiation pour vos âmes, comme il est dit : "Hachem a dépensé sa fureur" - et comment l'a-t-il dépensée ? "Il a allumé un feu dans Tziyon." 
 
 ### passuk 6
 <b>Ils s'étendent comme des ruisseaux.</b> Qui s'étendent et coulent, s'étirant sur la distance. Les rabbins remarquent : " des bénédictions de ce méchant, nous apprenons comment il avait l'intention de les maudire, lorsqu'il décida de tourner son visage vers le désert. Lorsque l'Omniprésent a renversé [les paroles de] sa bouche, ses bénédictions ont correspondu aux malédictions qu'il avait l'intention de faire, etc.', comme indiqué dans "Chelek". 
 <b>Comme les arbres d'aloès.</b> Comme le rend le Targum [Onkelos], ce qui signifie la même chose que "myrrhe et aloès". 
-<b>Ce qu'Adonoy a planté.</b> Dans le jardin d'Eden. Autre interprétation de כַּאֲהָלִים נָטַע ה', comme les cieux tendus comme une tente [comme il est dit : "Il les a tendus comme une tente à habiter"]. 
-<b>Ce qu'Adonoy a planté,</b> L'expression נְטִיעָה se retrouve par rapport aux tentes, comme il est dit : "il a tendu ses tentes palatiales". 
+<b>Ce qu'Hachem a planté.</b> Dans le jardin d'Eden. Autre interprétation de כַּאֲהָלִים נָטַע ה', comme les cieux tendus comme une tente [comme il est dit : "Il les a tendus comme une tente à habiter"]. 
+<b>Ce qu'Hachem a planté,</b> L'expression נְטִיעָה se retrouve par rapport aux tentes, comme il est dit : "il a tendu ses tentes palatiales". 
 
 ### passuk 7
 <b>De ses seaux.</b> De ses puits. L'explication est celle qu'interprète le Targum [Onkelos].
@@ -51,7 +51,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Transgresser la parole d'Adonoy.</b> Ici "<i>mon</i>" Dieu n'est pas énoncé, comme à l'origine, car il savait qu'il avait horreur du Saint, Béni soit-Il, et qu'il avait été répudié. 
+<b>Transgresser la parole d'Hachem.</b> Ici "<i>mon</i>" Dieu n'est pas énoncé, comme à l'origine, car il savait qu'il avait horreur du Saint, Béni soit-Il, et qu'il avait été répudié. 
 
 ### passuk 14
 <b>Je retourne vers mon peuple.</b> Je suis maintenant comme le reste de mon peuple - le Saint, Béni soit-Il, l'avait abandonné. 
@@ -83,7 +83,7 @@
 <b>Amalek était le premier parmi les nations.</b> Il les a toutes précédées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en faisant la guerre à Israël. C'est, là aussi, l'interprétation du Targum [Onkelos]. <b>Et sa fin.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seront de périr par leur main, comme il est dit : "tu effaceras la mémoire d'Amalek." 
 
 ### passuk 21
-<b>Il vit le Keinite.</b> Parce que le Keinite campait près d'Amalek, comme dans l'incident dont il est dit : " Shaoul dit au Keinite, etc. ", il le mentionne après Amalek. Il contempla la grandeur des descendants de Yisro, dont il est dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Tirasites, Shimasites, Sochasites." 
+<b>Il vit le Keinite.</b> Parce que le Keinite campait près d'Amalek, comme dans l'incident dont il est dit : " Shaoul dit au Keinite, etc. ", il le mentionne après Amalek. Il contempla la grandeur des descendants de Yitro, dont il est dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Tirasites, Shimasites, Sochasites." 
 <b>How powerful is your dwelling place.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je me demande comment vous avez mérité cela. N'étiez-vous pas avec moi en conseillant "venez, traitons-les avec sagacité" ? Pourtant, maintenant, tu t'es installé dans la puissance et la force d'Israël. 
 
 ### passuk 22

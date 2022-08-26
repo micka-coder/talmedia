@@ -84,7 +84,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Ces choses que vous ferez à Adonoy lors de vos fêtes.</b> Ces choses désignées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme des obligations.
+<b>Ces choses que vous ferez à Hachem lors de vos fêtes.</b> Ces choses désignées <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme des obligations.
 <b>A l'exception de vos vœux.</b> Si vous décidez de faire des vœux d'offrandes pendant la fête, cela vous sera crédité comme un acte louable. Ou encore, les vœux et les offrandes que vous avez promis tout au long de l'année, apportez pendant la fête, car il peut vous être difficile de faire le pèlerinage aller-retour à Jérusalem pour offrir vos vœux, et vous risquez donc finalement d'enfreindre l'interdiction de " ... ne tardez pas [à accomplir votre vœu] ". 
 
 >Crédit : primo.nli.org.il (metsudah)

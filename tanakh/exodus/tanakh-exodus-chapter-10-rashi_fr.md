@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Adonoy dit à Moshé : "Va voir Pharaon -</b> et préviens-le."
+<b>Hachem dit à Moshé : "Va voir Pharaon -</b> et préviens-le."
 <b>Je pourrai fixer.</b> שִׁתִי est identique à שׂוּמִי (autre version : שִׂימִי ), [signifiant :] "que je fixerai." 
 
 ### passuk 2

@@ -3,7 +3,7 @@
 <b>Sur le mont Sinaï.</b> Qu'est-ce que l'affaire de l'année sabbatique [a à voir] avec le mont Sinaï ? Toutes les <i>mitzvos</i> n'ont-elles pas été dites au Sinaï ? Plutôt, [cela vient enseigner que] de même que <i>shemittoh</i> ses règles générales, ses détails, et ses spécifications ont été dits au Sinaï, ainsi [aussi] tous (les <i>mitzvos</i>) [y compris] leurs règles générales et leurs spécifications. ont été dits au Sinaï, Ainsi est-il enseigné dans <i>Toras Kohanim</i>. Et il me semble que telle est son explication : Puisque nous ne trouvons pas que la terre <i>shemittoh</i> a été répétée dans les plaines de Moab dans le <i>Sefer Devorim</i>, nous avons appris que ses règles générales et ses détails - tous - ont été dits au Sinaï. Et le verset vient [nous] enseigner ici que chaque énoncé qui a été prophétiquement dit à Moshé, que tous étaient du Sinaï - leurs règles générales et leurs spécifications - et qu'ils ont été répétés aux Plaines de Moab. 
 
 ### passuk 2
-<b>Un Shabbat pour Adonoy,</b> pour l'amour de Dieu, comme il a été dit concernant le Shabbat de la création. 
+<b>Un Shabbat pour Hachem,</b> pour l'amour de Dieu, comme il a été dit concernant le Shabbat de la création. 
 
 ### passuk 3
 
@@ -67,7 +67,7 @@
 <b>Vous ne vous tromperez pas l'un l'autre.</b> Ici, [le verset] interdit d'ennuyer autrui par des paroles, de ne pas ennuyer son coreligionnaire, de ne pas offrir un conseil qui ne lui convient pas [mais] qui est conforme au plan et [au] bénéfice du conseiller. Et si tu dis : "Qui sait si j'avais de mauvaises intentions" ? C'est pour cette raison qu'il est dit : <b>Tu craindras ton Dieu -</b> Celui qui connaît les pensées [des hommes], <i>Il</i> sait ! [Concernant] tout ce qui est une question de conscience, connue seulement de la personne concernée, il est dit : "Tu craindras ton Dieu." 
 
 ### passuk 18
-<b>Vous vivrez alors dans le pays en sécurité.</b> En effet, par le péché de [négligence] de l'année sabbatique, Israël est exilé, comme il est dit : "Le pays sera alors apaisé pour ses Shabbosos. ... et sera apaisée pour son Chabbat." Les soixante-dix ans de l'exil babylonien correspondent [en punition] à soixante-dix années sabbatiques qu'ils ont abolies. 
+<b>Vous vivrez alors dans le pays en sécurité.</b> En effet, par le péché de [négligence] de l'année sabbatique, Israël est exilé, comme il est dit : "Le pays sera alors apaisé pour ses Chabbatos. ... et sera apaisée pour son Chabbat." Les soixante-dix ans de l'exil babylonien correspondent [en punition] à soixante-dix années sabbatiques qu'ils ont abolies. 
 
 ### passuk 19
 <b>La terre donnera, etc. et vous y vivrez en sécurité.</b> Vous ne devez pas vous inquiéter d'une année de sécheresse. 
@@ -213,7 +213,7 @@
 
 ### passuk 55
 <b>Parce que, les Bnei Israël sont Mes serviteurs -</b> Mon décret a la priorité. 
-<b>Je suis Adonoy, votre Dieu.</b> Celui qui les asservit en bas, c'est comme s'il les asservissait en haut. 
+<b>Je suis Hachem, votre Dieu.</b> Celui qui les asservit en bas, c'est comme s'il les asservissait en haut. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

@@ -17,7 +17,7 @@
 <b>De vos âmes.</b> Aussi s'il s'étrangle, bien qu'aucun sang n'ait coulé de lui. 
 <b>De la main de toute bête.</b> Depuis que la génération du Déluge a péché et qu'elle a été abandonnée comme proie aux bêtes sauvages, ce qui leur a donné [aux bêtes] la domination sur eux, comme il est dit : "Il est dominé comme du bétail", il était donc nécessaire, pour eux, de mettre en garde les bêtes sauvages [contre l'attaque de l'homme]. 
 <b>De la main de l'homme.</b> De celui qui tue avec préméditation sans témoins, je demanderai [rétribution].
-<b>De la main du propre frère de l'homme.</b> [Signifiant :] qu'il l'aime comme un frère et l'a tué accidentellement, j'exigerai [la rétribution] s'il ne s'exile pas et ne prie pas pour le pardon de son péché, car même un [meurtre] accidentel nécessite une expiation. S'il n'y a pas de témoins pour le rendre passible d'exil, et qu'il ne s'humilie pas, Dieu exigera [un châtiment] de sa part, comme nos Sages ont expliqué [le verset :] "Et Dieu l'a fait venir à sa main", dans le Maseches Makkos Dieu les fait se rencontrer dans la même auberge, etc. 
+<b>De la main du propre frère de l'homme.</b> [Signifiant :] qu'il l'aime comme un frère et l'a tué accidentellement, j'exigerai [la rétribution] s'il ne s'exile pas et ne prie pas pour le pardon de son péché, car même un [meurtre] accidentel nécessite une expiation. S'il n'y a pas de témoins pour le rendre passible d'exil, et qu'il ne s'humilie pas, Dieu exigera [un châtiment] de sa part, comme nos Sages ont expliqué [le verset :] "Et Dieu l'a fait venir à sa main", dans le Masehet Makkot Dieu les fait se rencontrer dans la même auberge, etc. 
 
 ### passuk 6
 <b>C'est par l'homme que son sang sera versé.</b> [Signification :] s'il y a des témoins, alors vous devez le tuer. Pourquoi ? "Parce qu'à l'image de Dieu, etc." 
@@ -84,7 +84,7 @@
 <b>Maudite est Canaan.</b> [Noach dit à Cham :] " Tu as fait en sorte que je ne puisse pas engendrer un quatrième fils pour me servir. [Par conséquent,] que <i>ton quatrième fils</i> soit maudit pour qu'il serve les descendants de ces aînés sur lesquels le fardeau de me servir est maintenant tombé." Pourquoi Cham l'a-t-il castré ? Il a dit à ses frères : "Adam <i>horishon</i> avait deux fils et l'un a tué l'autre dans le but d'hériter du monde. Notre père a [déjà] trois fils et il désire encore un quatrième fils." 
 
 ### passuk 26
-<b>Béni soit Adonoy, Dieu de Sheim.</b> Qui finira par tenir sa promesse à sa descendance de lui donner la terre de Canaan. 
+<b>Béni soit Hachem, Dieu de Sheim.</b> Qui finira par tenir sa promesse à sa descendance de lui donner la terre de Canaan. 
 <b>Que [Canaan soit son esclave.]</b> [Une nation] leur payant tribut [à eux].
 
 ### passuk 27

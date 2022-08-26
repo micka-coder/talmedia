@@ -128,7 +128,7 @@
 <b>Vous avez changé mon salaire.</b> Vous n'avez cessé de changer l'état entre nous, de moucheté à tacheté, et de strié à annelé. 
 
 ### passuk 42
-<b>Et la crainte de Yitzchok.</b> Il ne voulait pas dire אֱלֹהֵי יִצְחָק car Dieu n'associe pas Son Nom aux justes de leur vivant. Bien qu'Il lui ait dit [à Yaakov] quand il a quitté Beer Sheva : "Je suis Adonoy, le Dieu d'Avraham, ton père, et le Dieu de Yitzchok", car sa vue [celle de Yitzchok] avait baissé et il était donc considéré comme mort. [Néanmoins] Yaakov eut peur de dire אֱלֹהֵי et [à la place] dit וּפַחַד . 
+<b>Et la crainte de Yitshak.</b> Il ne voulait pas dire אֱלֹהֵי יִצְחָק car Dieu n'associe pas Son Nom aux justes de leur vivant. Bien qu'Il lui ait dit [à Yaakov] quand il a quitté Beer Sheva : "Je suis Hachem, le Dieu d'Avraham, ton père, et le Dieu de Yitshak", car sa vue [celle de Yitshak] avait baissé et il était donc considéré comme mort. [Néanmoins] Yaakov eut peur de dire אֱלֹהֵי et [à la place] dit וּפַחַד . 
 <b>Et Il t'a réprimandé.</b> Un terme signifiant réprimande et non un terme signifiant déterminer.
 
 ### passuk 43

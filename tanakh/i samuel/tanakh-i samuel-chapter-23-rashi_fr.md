@@ -23,7 +23,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Les habitants de Keilah me livreront-ils...</b> Cela nous enseigne que celui qui consulte au sujet de deux affaires, reçoit une réponse concernant une seule, et cette réponse concerne la première. Et ici, David a posé des questions dans un ordre inversé,<sup>3</sup><i class="footnote">Peut-être que David a posé les questions dans un ordre inversé parce qu'il était principalement intéressé à savoir si les habitants de Ke'ilah le remettraient à Shaoul. Il avait supposé que Shaoul le poursuivrait.</i> parce qu'il aurait dû d'abord demander,<sup>4</sup><i class="footnote">Voir Maseches Yoma 73a. David aurait dû demander d'abord quelles étaient les intentions de Shaul et ensuite si les habitants de Ke'ilah le livreraient à Shaul. On lui a répondu à la question qu'il aurait dû poser d'abord qu'"il [Shaoul] descendra."</i> "Shaoul descendra-t-il ? Est-ce que [les habitants de Keilah] me livreront ?" Mais on lui a répondu selon l'ordre [approprié].
+<b>Les habitants de Keilah me livreront-ils...</b> Cela nous enseigne que celui qui consulte au sujet de deux affaires, reçoit une réponse concernant une seule, et cette réponse concerne la première. Et ici, David a posé des questions dans un ordre inversé,<sup>3</sup><i class="footnote">Peut-être que David a posé les questions dans un ordre inversé parce qu'il était principalement intéressé à savoir si les habitants de Ke'ilah le remettraient à Shaoul. Il avait supposé que Shaoul le poursuivrait.</i> parce qu'il aurait dû d'abord demander,<sup>4</sup><i class="footnote">Voir Masehet Yoma 73a. David aurait dû demander d'abord quelles étaient les intentions de Shaul et ensuite si les habitants de Ke'ilah le livreraient à Shaul. On lui a répondu à la question qu'il aurait dû poser d'abord qu'"il [Shaoul] descendra."</i> "Shaoul descendra-t-il ? Est-ce que [les habitants de Keilah] me livreront ?" Mais on lui a répondu selon l'ordre [approprié].
 
 ### passuk 12
 
@@ -67,7 +67,7 @@
 <b>Un messager est venu.</b> Un véritable ange [sous l'apparence d'un messager], afin de sauver David.
 
 ### passuk 28
-<b>Le "rocher des divisions"</b> Le coeur de Shaoul était divisé par deux pensées,</sup>6</sup><i class="footnote">ou bien cela peut faire référence à la division parmi les troupes de Shaoul pour savoir s'il fallait poursuivre David ou combattre les Philistins.-Radak</i> soit revenir pour sauver son pays des Philistins, soit poursuivre et attraper David ; ainsi rend le Targum Yonoson.
+<b>Le "rocher des divisions"</b> Le coeur de Shaoul était divisé par deux pensées,</sup>6</sup><i class="footnote">ou bien cela peut faire référence à la division parmi les troupes de Shaoul pour savoir s'il fallait poursuivre David ou combattre les Philistins.-Radak</i> soit revenir pour sauver son pays des Philistins, soit poursuivre et attraper David ; ainsi rend le Targum Yonathan.
 
 >Crédit : sefaris
 >Licence : CC-BY

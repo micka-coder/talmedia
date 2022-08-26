@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>En majesté.</b> Vêtements royaux. Mais nos rabbins ont dit que l'inspiration divine l'enveloppait,<sup>1</sup><i class="footnote">Masech Megillah 14b. Le texte aurait dû dire בגדי מלכות [vêtements royaux]. On en déduit qu'elle était revêtue de la majesté même, c'est-à-dire de la majesté divine. </i> comme il est dit, "Et un esprit enveloppa Amasai."<sup>2</sup><i class="footnote">I Divrei Hayomim 12:19. </i> 
+<b>En majesté.</b> Vêtements royaux. Mais nos rabbins ont dit que l'inspiration divine l'enveloppait,<sup>1</sup><i class="footnote">Traité Megillah 14b. Le texte aurait dû dire בגדי מלכות [vêtements royaux]. On en déduit qu'elle était revêtue de la majesté même, c'est-à-dire de la majesté divine. </i> comme il est dit, "Et un esprit enveloppa Amasai."<sup>2</sup><i class="footnote">I Divrei Hayamim 12:19. </i> 
 
 ### passuk 2
 
 ### passuk 3
-<b>Jusqu'à la moitié de l'empire.</b> Une chose qui se trouve au milieu et à la moitié de l'empire ; c'est-à-dire le Beis Hamikdosh, qu'ils ont commencé à construire à l'époque de Koresh, et il est revenu sur sa décision et a ordonné d'interrompre les travaux.<sup>3</sup><i class="footnote">Voir Maseches Megillah 15b. </i> Et Achashveirosh, qui lui a succédé, a lui aussi interrompu les travaux. Le sens simple du verset est le suivant : " Même si tu me demandes la moitié de l'empire, je te la donnerai. " 
+<b>Jusqu'à la moitié de l'empire.</b> Une chose qui se trouve au milieu et à la moitié de l'empire ; c'est-à-dire le Beis Hamikdosh, qu'ils ont commencé à construire à l'époque de Koresh, et il est revenu sur sa décision et a ordonné d'interrompre les travaux.<sup>3</sup><i class="footnote">Voir Masehet Megillah 15b. </i> Et Achashveirosh, qui lui a succédé, a lui aussi interrompu les travaux. Le sens simple du verset est le suivant : " Même si tu me demandes la moitié de l'empire, je te la donnerai. " 
 
 ### passuk 4
 <b>La présence de sa majesté et de Haman.</b> Nos rabbins ont énuméré de nombreuses raisons à ce sujet.</sup>4</sup><i class="footnote">Ibid. </i> Qu'a vu Esther [c'est-à-dire qu'est-ce qui l'a motivée] pour inviter Haman ? Afin de rendre le roi et les princes jaloux de lui, [ou], afin que le roi pense qu'il la désirait et le tue ; et bien d'autres raisons.<sup>5</sup><i class="footnote">Une autre raison invoquée est qu'elle pensait que les Juifs compteraient sur son influence auprès du roi plutôt que sur G. Elle a donc donné l'impression de les abandonner en faveur d'Haman, afin qu'ils se concentrent pleinement sur la prière et la pénitence. (Megillah 15b) </i> 

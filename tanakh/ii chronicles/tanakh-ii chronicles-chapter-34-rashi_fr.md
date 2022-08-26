@@ -35,7 +35,7 @@
 
 ### passuk 12
 <b>Dire</b> - Heb. לְנַצּחַ, <i>lemestriyer</i>, diriger, superviser, et ainsi (Esdras 3:8) : "pour diriger (לְנַצּחַ) l'œuvre de la Maison du Seigneur", et de même (ci-dessus 2:17) : "et six cents surveillants (מְנַצּחִים) ."
-<b>et les lévites, tous ceux qui étaient experts</b> - Heb. מֵבִין. Le terme expertise (הֲבָנָה) est universellement mentionné à propos du chant, et ainsi plus haut (I Chron. 25:8), lorsqu'ils tirent au sort, il est écrit : "comme le petit, ainsi le grand, expert (מֵבִין) auprès de l'élève." Et de même, (ibid. verset 7) : "entraînés au chant pour le Seigneur : chaque expert (מֵבִין)," et il est écrit (ibid. 15:22) : " Et Chanania, le chef des lévites, etc..., parce qu'il était expert (מֵבִין) ", et il fut désigné sur eux pour les châtier en élevant [la voix], comment ils devaient élever [leur voix], parce qu'il était expert (מֵבִין).
+<b>et les lévites, tous ceux qui étaient experts</b> - Heb. מֵבִין. Le terme expertise (הֲבָנָה) est universellement mentionné à propos du chant, et ainsi plus haut (I Chron. 25:8), lorsqu'ils tirent au sort, il est écrit : "comme le petit, ainsi le grand, expert (מֵבִין) auprès de l'élève." Et de même, (ibid. verset 7) : "entraînés au chant pour le Seigneur : chaque expert (מֵבִין)," et il est écrit (ibid. 15:22) : " Et Hannania, le chef des lévites, etc..., parce qu'il était expert (מֵבִין) ", et il fut désigné sur eux pour les châtier en élevant [la voix], comment ils devaient élever [leur voix], parce qu'il était expert (מֵבִין).
 
 ### passuk 13
 <b>et des lévites, des scribes</b> pour écrire la [quantité] d'argent apportée à la Maison de l'Éternel et comment ils l'avaient collectée.

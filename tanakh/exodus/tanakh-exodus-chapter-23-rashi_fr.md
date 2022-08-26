@@ -111,7 +111,7 @@
 <b>Leur dos.</b> [C'est-à-dire] qu'ils te fuiront et te tourneront ainsi le dos de leur cou.
 
 ### passuk 28
-<b>Les frelons.</b> C'est une sorte d'insecte volant qui les frappait aux yeux et leur injectait un poison, et ils mouraient. Les frelons n'ont pas franchi le Jourdain et les Chittites et les Cananéens [mentionnés ici comme étant chassés] étaient de Sichon et d'Og. C'est pour cette raison que sur les sept nations, seules ces [trois] sont énumérées ici. [Le fait que] les Chivites [soient mentionnés ici], bien qu'ils aient résidé de l'autre côté du Jourdain et un peu plus loin, est expliqué par nos Sages dans le Maseches Sotah : Il (le frelon) se tenait au bord du Jourdain et lançait le poison sur eux. 
+<b>Les frelons.</b> C'est une sorte d'insecte volant qui les frappait aux yeux et leur injectait un poison, et ils mouraient. Les frelons n'ont pas franchi le Jourdain et les Chittites et les Cananéens [mentionnés ici comme étant chassés] étaient de Sichon et d'Og. C'est pour cette raison que sur les sept nations, seules ces [trois] sont énumérées ici. [Le fait que] les Chivites [soient mentionnés ici], bien qu'ils aient résidé de l'autre côté du Jourdain et un peu plus loin, est expliqué par nos Sages dans le Masehet Sotah : Il (le frelon) se tenait au bord du Jourdain et lançait le poison sur eux. 
 
 ### passuk 29
 <b>Désolée.</b> [C'est-à-dire] vide de monde, puisque vous êtes peu nombreux et que vous n'êtes pas assez nombreux pour la remplir. 

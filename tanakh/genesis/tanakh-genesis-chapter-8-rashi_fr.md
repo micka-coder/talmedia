@@ -71,7 +71,7 @@
 
 ### passuk 21
 <b>Dès [le temps de] sa jeunesse.</b> Il est écrit מִנְּעֻרָיו [sans ו' après le ע'] [ce qui implique que] dès qu'il commence à remuer pour sortir du ventre de sa mère, le mauvais penchant lui est donné.
-<b>Jamais plus, jamais plus.</b> L'expression est répétée [de sorte qu'elle sert] de serment. C'est la référence dans le verset : "Que j'ai juré que l'eau de Noach ne passera pas", et nous ne trouvons aucun [autre] serment que celui qui a été répété et qui est [considéré] comme un serment. Ainsi, les Sages ont expliqué dans Maseches Shavuos. 
+<b>Jamais plus, jamais plus.</b> L'expression est répétée [de sorte qu'elle sert] de serment. C'est la référence dans le verset : "Que j'ai juré que l'eau de Noach ne passera pas", et nous ne trouvons aucun [autre] serment que celui qui a été répété et qui est [considéré] comme un serment. Ainsi, les Sages ont expliqué dans Masehet Shavuos. 
 
 ### passuk 22
 <b>Aussi longtemps que la terre existe... ne sera jamais suspendue.</b> Chacune de ces six saisons a deux mois comme nous l'avons appris : "La moitié de Tishri, Cheshvan et la moitié de Kislev [est la saison des] semailles. La moitié de Kislev, Teves, et la moitié de Shevat est la saison froide dans Bava Metzia (Autres versions : "Tant que la [terre] existe" signifie "continuellement" comme dans "La souillure continue avec lui"). 
@@ -79,7 +79,7 @@
 <b>Hiver.</b> Est le moment de semer l'orge et les légumineuses qui mûrissent rapidement. Il correspond à la moitié de Shevat, Adar, et à la moitié de Nissan. 
 <b>Récolte.</b> C'est la moitié de Nissan, Iyar, et la moitié de Sivan. 
 <b>Été.</b> C'est la moitié de Sivan, Tamouz, et la moitié d'Av qui est le temps de la récolte des figues et le temps où elles sont séchées dans les champs qui est appelé קַיִץ , comme dans : "Le pain et les fruits secs pour que les jeunes hommes les mangent". 
-<b>Chaleur.</b> C'est la fin de l'été - la moitié d'Av, Elul, et la moitié de Tishri lorsque le monde est le plus chaud comme nous l'avons appris dans Maseches Yoma : "La fin de l'été est plus sévère que l'été." 
+<b>Chaleur.</b> C'est la fin de l'été - la moitié d'Av, Elul, et la moitié de Tishri lorsque le monde est le plus chaud comme nous l'avons appris dans Masehet Yoma : "La fin de l'été est plus sévère que l'été." 
 <b>Le jour et la nuit ne seront jamais suspendus.</b> On peut en déduire qu'ils ont cessé pendant tous les jours du Déluge. Car les constellations ne fonctionnaient pas et la nuit et le jour étaient indiscernables.
 <b>Ne seront jamais suspendues.</b> [Signifiant :] aucune d'entre elles ne cessera de suivre son cours naturel. 
 

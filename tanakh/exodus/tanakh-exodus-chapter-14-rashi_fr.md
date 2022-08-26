@@ -31,7 +31,7 @@
 <b>Et des commandants sur eux tous.</b> [וְשָלִשִׁים signifie] des officiers de l'armée, comme le traduit Onkelos. 
 
 ### passuk 8
-<b>Adonoy a endurci le cœur de Pharaon.</b> Parce qu'il n'était pas sûr de les poursuivre, Il a endurci son cœur pour qu'il <i>puisse</i> poursuivre. 
+<b>Hachem a endurci le cœur de Pharaon.</b> Parce qu'il n'était pas sûr de les poursuivre, Il a endurci son cœur pour qu'il <i>puisse</i> poursuivre. 
 <b>Highhandedly</b> C'est-à-dire avec une puissance élevée et ouverte (audace). 
 
 ### passuk 9
@@ -39,7 +39,7 @@
 ### passuk 10
 <b>Pharaon s'est approché</b> Il aurait fallu dire וּפַרְעֹה קָרַב (dans la conjugaison קַל). Pourquoi dit-on הִקְרִיב - [à la forme הִפְעִיל] ? Il se fit approcher et il s'efforça de les devancer (ses soldats) comme il s'était arrangé avec eux.
 <b>Après eux.</b> Avec un seul cœur (esprit), comme un seul homme. Une autre explication : Et voici que l'égyptien (chant.) vient après eux : [sens :] Ils ont vu l'ange gardien de l'Égypte venir du ciel pour aider les Égyptiens. 
-<b>Ils crièrent.</b> Ils saisirent le trait de leurs ancêtres. En ce qui concerne Avraham, il est écrit : "A l'endroit où il se tenait." Concernant Yitzchok : "Pour méditer (prier) dans le champ" Concernant Yaakov : "Il atteignit le lieu (pria dans le lieu)."
+<b>Ils crièrent.</b> Ils saisirent le trait de leurs ancêtres. En ce qui concerne Avraham, il est écrit : "A l'endroit où il se tenait." Concernant Yitshak : "Pour méditer (prier) dans le champ" Concernant Yaakov : "Il atteignit le lieu (pria dans le lieu)."
 
 ### passuk 11
 <b>Il n'y avait pas assez de tombes en Égypte.</b> [Signification :] Est-ce à cause d'un manque de tombes, qu'il n'y a pas ( אֵין ) de tombes en Égypte pour y être enterré, que tu nous as pris de là ?" <i>se por feilance de non foses</i> en ancien français. 
@@ -52,7 +52,7 @@
 <b>Pour les Égyptiens, vous les avez vus [ce jour].</b> [C'est-à-dire que] le fait que vous les ayez [maintenant] vus n'est que ce jour. C'est le jour où vous les avez vus, mais vous ne les [verrez] plus jamais. 
 
 ### passuk 14
-<b>Adonoy se battra pour toi</b> [לָכֶם signifie :] pour toi. De même : "Car Adonoy se bat <i>pour</i> eux." De même : "Allez-vous vous battre <i>pour</i> Dieu ?" De même : "Et celui qui a parlé <i>pour</i> moi" De même : "Discuterez-vous <i>pour</i> le Ba'al ?"
+<b>Hachem se battra pour toi</b> [לָכֶם signifie :] pour toi. De même : "Car Hachem se bat <i>pour</i> eux." De même : "Allez-vous vous battre <i>pour</i> Dieu ?" De même : "Et celui qui a parlé <i>pour</i> moi" De même : "Discuterez-vous <i>pour</i> le Ba'al ?"
 
 ### passuk 15
 <b>Pourquoi cries-tu vers Moi ?</b> [De ceci] nous apprenons que Moshé était debout et priait [quand] Dieu lui dit : "Ce n'est pas le moment de prier <i>longtemps,</i> quand Yisraël est en difficulté." Une autre explication : "Pourquoi cries-tu ? אֵלָי - Cette chose dépend de Moi, pas de toi." [Ceci est] semblable à ce qui est écrit ailleurs : "En ce qui concerne Mes fils et en ce qui concerne Mon ouvrage, as-tu besoin de Me commander ? !". 
@@ -65,7 +65,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et passa derrière eux.</b> Pour séparer le camp égyptien du camp israélite et recevoir les flèches et les projectiles des égyptiens. Partout ailleurs il est dit : "L'ange d'Adonoy" mais ici [il est dit] "L'ange d'Elokim". "Elokim", partout où il apparaît, ne désigne que le "jugement". Cela enseigne qu'Israël a été placé en jugement à ce moment-là, pour savoir s'il [était digne] d'être sauvé ou d'être détruit avec les Égyptiens. 
+<b>Et passa derrière eux.</b> Pour séparer le camp égyptien du camp israélite et recevoir les flèches et les projectiles des égyptiens. Partout ailleurs il est dit : "L'ange d'Hachem" mais ici [il est dit] "L'ange d'Elokim". "Elokim", partout où il apparaît, ne désigne que le "jugement". Cela enseigne qu'Israël a été placé en jugement à ce moment-là, pour savoir s'il [était digne] d'être sauvé ou d'être détruit avec les Égyptiens. 
 <b>La colonne de nuée s'est déplacée.</b> Après que la nuit soit tombée et que la colonne de nuée ait terminé son tour au-dessus du camp [et cédé la place] à la colonne de feu, la nuée n'a pas été retirée comme elle l'était habituellement le soir - complètement, mais, au contraire, elle a continué à se déplacer derrière eux pour rendre l'obscurité aux Égyptiens. 
 
 ### passuk 20
@@ -101,7 +101,7 @@ Tous les סוס <b>cheval(s) de Pharaon.</b> N'y avait-il qu'un seul cheval ? ! 
 <b>Vers le matin.</b> Au moment où le matin <i>tourne</i> pour venir.
 <b>Vers sa force.</b> - vers sa force <i>originale</i>.
 <b>Fuyaient vers elle.</b> Parce qu'ils étaient confus et en panique, ils couraient <i>vers</i> les eaux. 
-<b>Adonoyés renversés.</b> Comme une personne qui remue une marmite et renverse ce qui est en haut vers le bas et ce qui est en bas vers le haut, de même, ils (les Égyptiens) ont monté et descendu et se sont brisés dans la mer ; et Dieu les a gardés en vie pour qu'ils reçoivent la douleur [plus longtemps]. 
+<b>Hachemés renversés.</b> Comme une personne qui remue une marmite et renverse ce qui est en haut vers le bas et ce qui est en bas vers le haut, de même, ils (les Égyptiens) ont monté et descendu et se sont brisés dans la mer ; et Dieu les a gardés en vie pour qu'ils reçoivent la douleur [plus longtemps]. 
 <b>Stirred.</b> [Onkelos le traduit :] וְשַׁנֵּיק qui est un terme signifiant <i>to stir</i> en araméen. Il y a de nombreux usages de ce type dans le Midrash Aggadah.
 
 ### passuk 28

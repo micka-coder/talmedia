@@ -12,7 +12,7 @@
 
 ### passuk 6
 <b>Que David...avait été découvert.</b> Qu'il a réalisé pour se méfier de lui.
-<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyomin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masechs Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amoleik. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était vivant.</i>
+<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyamin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masechs Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amoleik. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était vivant.</i>
 
 ### passuk 7
 
@@ -43,7 +43,7 @@
 <b>Ne voulaient pas.</b> Ils ont expliqué les "mais" et les "seulement" de l'Ecriture. L'Ecriture dit : "Tout homme qui se rebelle contre ton ordre [sera mis à mort]."<sup>8</sup><i class="footnote">Yehoshua 1:18.</i> On peut penser que cela signifie même [si "ton ordre" était] de commettre un péché ; l'Écriture, donc, dit : "Seulement" [pour exclure cette condition].
 
 ### passuk 18
-<b>À Doeg.</b> Le nom [de Doeg] a changé [en Doyeig].<sup>9</sup><i class="footnote"><span>דַיָג</span> signifie pêcheur. </i> Il lui dit : "Tu es pris comme un poisson;</sup>10</sup><i class="footnote">Selon le Talmud Yerushalmi Maseches Sanhedrin 10:2. Cependant, la Guemara dans Maseches Sanhedrin 106b explique que <span>דֹאֵג</span> signifie inquiétude, c'est-à-dire que <span>ה׳</span> s'inquiétait qu'il puisse s'égarer. Une fois qu'il l'a fait, <span>ה׳</span> a dit : '<span>וי</span>'[= malheur], il est lamentable que cette personne brillante se soit égarée, d'où l'orthographe <span>דוֹיֵג</span>.</i> vous avez informé sur eux donc vous les tuez."
+<b>À Doeg.</b> Le nom [de Doeg] a changé [en Doyeig].<sup>9</sup><i class="footnote"><span>דַיָג</span> signifie pêcheur. </i> Il lui dit : "Tu es pris comme un poisson;</sup>10</sup><i class="footnote">Selon le Talmud Yerushalmi Masehet Sanhedrin 10:2. Cependant, la Guemara dans Masehet Sanhedrin 106b explique que <span>דֹאֵג</span> signifie inquiétude, c'est-à-dire que <span>ה׳</span> s'inquiétait qu'il puisse s'égarer. Une fois qu'il l'a fait, <span>ה׳</span> a dit : '<span>וי</span>'[= malheur], il est lamentable que cette personne brillante se soit égarée, d'où l'orthographe <span>דוֹיֵג</span>.</i> vous avez informé sur eux donc vous les tuez."
 
 ### passuk 19
 
@@ -55,7 +55,7 @@
 <b>Je suis responsable de.</b> J'ai provoqué l'affaire, en la faisant venir.
 
 ### passuk 23
-<b>Pour l'homme qui cherche ma vie.</b> Une personne nous poursuit tous les deux. Partout où je m'échappe, tu t'échappes, car tu seras toujours dans ma sauvegarde ; comme le rend le Targum Yonoson, 'car celui qui cherche à me tuer, cherche à te tuer'. Mais cela peut aussi signifier : "Celui qui m'aimera, t'aimera, et celui qui gardera mon âme, gardera ton âme". Il existe un exemple similaire dans les Écritures : " Les hommes de sang haïssent une personne sincère, mais les hommes droits recherchent son âme.'<sup>11</sup><i class="footnote"> Mishlei 29:10.</i> Il s'agit [d'un exemple de] recherche d'une âme pour [faire] le bien.
+<b>Pour l'homme qui cherche ma vie.</b> Une personne nous poursuit tous les deux. Partout où je m'échappe, tu t'échappes, car tu seras toujours dans ma sauvegarde ; comme le rend le Targum Yonathan, 'car celui qui cherche à me tuer, cherche à te tuer'. Mais cela peut aussi signifier : "Celui qui m'aimera, t'aimera, et celui qui gardera mon âme, gardera ton âme". Il existe un exemple similaire dans les Écritures : " Les hommes de sang haïssent une personne sincère, mais les hommes droits recherchent son âme.'<sup>11</sup><i class="footnote"> Mishlei 29:10.</i> Il s'agit [d'un exemple de] recherche d'une âme pour [faire] le bien.
 
 >Crédit : sefaris
 >Licence : CC-BY

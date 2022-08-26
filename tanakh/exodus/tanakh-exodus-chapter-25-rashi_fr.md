@@ -29,7 +29,7 @@
 ### passuk 7
 <b>Pierres d'onyx.</b> Il en fallait deux pour les besoins du <i>eiphod</i> dont il est question dans le <i>parsha</i> וְאַתָּה תְּצַוֶּה .
 <b>Remplissage.</b> Parce qu'ils ont fait pour eux (c'est-à-dire, les pierres) un sertissage comme une encoche, dans l'or dans lequel la pierre est mise pour <i>remplir</i> l'encoche, elles sont appelées אַבְנֵי מִלּוּאִים - "pierres de remplissage". Le lieu de la mise en place est appelé מִשְׁבֶּצֶת . 
-<b>[Dans] l'éiphod et le plastron -</b> les pierres d'onyx pour l'<i>éiphod</i> et les pierres de remplissage pour le plastron. Les <i>choshen</i> et <i>eiphod</i> sont décrits dans le <i>parsha</i> וְאַתָּה תְּצַוֶּה . Ce sont des sortes d'ornements [pour le <i>kohein godol</i>].
+<b>[Dans] l'éiphod et le plastron -</b> les pierres d'onyx pour l'<i>éiphod</i> et les pierres de remplissage pour le plastron. Les <i>choshen</i> et <i>eiphod</i> sont décrits dans le <i>parsha</i> וְאַתָּה תְּצַוֶּה . Ce sont des sortes d'ornements [pour le <i>Cohen godol</i>].
 
 ### passuk 8
 <b>Ils me feront un sanctuaire.</b> Ils feront pour l'amour de mon nom une maison de sainteté.

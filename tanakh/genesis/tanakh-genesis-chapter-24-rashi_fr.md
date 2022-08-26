@@ -15,7 +15,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Adonoy, Dieu du ciel qui m'a enlevé de la maison de mon père.</b> Ici, il n'a pas dit "et le Dieu de la terre", alors que, plus haut, il a dit : "Et je te ferai jurer, etc.". Lui, [Avraham] [en effet,] lui dit [au serviteur] : "<i>Maintenant</i> Il est le Dieu du ciel et de la terre car je l'ai rendu courant sur la langue de tous." Mais au moment où il m'a enlevé de la maison de mon père, il était le Dieu des cieux mais pas le Dieu de la terre car l'humanité ne le reconnaissait pas et son Nom n'était pas courant sur terre. 
+<b>Hachem, Dieu du ciel qui m'a enlevé de la maison de mon père.</b> Ici, il n'a pas dit "et le Dieu de la terre", alors que, plus haut, il a dit : "Et je te ferai jurer, etc.". Lui, [Avraham] [en effet,] lui dit [au serviteur] : "<i>Maintenant</i> Il est le Dieu du ciel et de la terre car je l'ai rendu courant sur la langue de tous." Mais au moment où il m'a enlevé de la maison de mon père, il était le Dieu des cieux mais pas le Dieu de la terre car l'humanité ne le reconnaissait pas et son Nom n'était pas courant sur terre. 
 <b>De la maison de mon père.</b> [C'est-à-dire] de Charan. 
 <b>Et de la terre de ma naissance.</b> [C'est-à-dire] d'Ur Kasdim. 
 <b>Qui m'a parlé.</b> [Ici לִי signifie] à mon sujet. Comme dans "Ce qu'il a dit à mon sujet". Ainsi, également, chaque fois que לִי, לוֹ, לָהֶם qui suivent le verbe דִבּוּר -parler sont à expliquer comme עַל - concernant, et leur Targum est עֲלַי, עֲלוֹהִי, עֲלֵיהוֹן car le verbe דִבּוּר ne prend pas לִי, לוֹ, לָהֶם mais, plutôt אֵלַי, אֵלָיו, אֲלֵיהֶם et leur Targum est עִמִּי, עִמֵּיהּ, עִמְּהוֹן . Cependant, après le verbe אמר [dire], on utilise les termes לִי, לוֹ, לָהֶם. 
@@ -29,7 +29,7 @@
 
 ### passuk 10
 <b>Des chameaux de son maître.</b> Ils se distinguaient des autres chameaux, car ils ne sortaient que muselés, par souci du voleur qu'ils ne broutent pas dans les champs des autres. 
-<b>Et tous les biens de son maître étaient dans sa main.</b> Il [Avraham] rédigea un acte de donation à Yitzchok de tous ses biens afin qu'ils s'empressent de lui envoyer leur fille.
+<b>Et tous les biens de son maître étaient dans sa main.</b> Il [Avraham] rédigea un acte de donation à Yitshak de tous ses biens afin qu'ils s'empressent de lui envoyer leur fille.
 <b>Aram Naharayim.</b> Il est situé entre deux rivières. 
 
 ### passuk 11
@@ -120,7 +120,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Peut-être que la femme ne viendra pas.</b> Il est écrit אֵלַי . Eliezer avait une fille et il cherchait une excuse pour qu'Avraham lui dise qu'il se tourne vers lui pour permettre à sa fille d'épouser [Yitzchok]. Avraham lui répondit : "Mon fils est béni, alors que tu es maudit et celui qui est maudit ne peut s'attacher à celui qui est béni." 
+<b>Peut-être que la femme ne viendra pas.</b> Il est écrit אֵלַי . Eliezer avait une fille et il cherchait une excuse pour qu'Avraham lui dise qu'il se tourne vers lui pour permettre à sa fille d'épouser [Yitshak]. Avraham lui répondit : "Mon fils est béni, alors que tu es maudit et celui qui est maudit ne peut s'attacher à celui qui est béni." 
 
 ### passuk 40
 
@@ -192,14 +192,14 @@
 <b>Méditer.</b> Terme désignant la prière, comme dans "Il déverse sa prière". 
 
 ### passuk 64
-<b>Et [elle] vit Yitzchok.</b> Elle vit qu'il était majestueux et fut étonnée de sa vue.
+<b>Et [elle] vit Yitshak.</b> Elle vit qu'il était majestueux et fut étonnée de sa vue.
 <b>Elle se laissa tomber.</b> Elle glissa vers le sol comme le Targum le traduit par "elle se pencha" ; [c'est-à-dire , ] elle s'est penchée vers le sol mais n'a pas [réellement] atteint le sol ; comme dans, "S'il vous plaît, renversez votre cruche", [ce qui est traduit par Onkelos,] "inclinez", [ou comme dans] וַיֵּט שָׁמַים qui est traduit וְאַרְכִין signifiant, elle s'est penchée vers la terre. De même, כִּי יִפֹּל לֹא יוּטָל qui signifie, bien qu'il tombe vers la terre, il n'atteindra pas le sol. 
 
 ### passuk 65
 <b>Et se couvrit.</b> [וַתִּתְכָּס] est à la forme réfléchie comme dans וַתִּקָּבֵר [elle fut enterrée] et וַתִּשָּׁבֵר [elle fut brisée].
 
 ### passuk 66
-<b>Le serviteur raconta.</b> Il lui révéla [Yitzchok] les miracles qui lui étaient arrivés, [les faits que] la terre avait rétréci pour lui et que Rivkah lui était apparue suite à sa prière. 
+<b>Le serviteur raconta.</b> Il lui révéla [Yitshak] les miracles qui lui étaient arrivés, [les faits que] la terre avait rétréci pour lui et que Rivkah lui était apparue suite à sa prière. 
 
 ### passuk 67
 <b>Dans la tente de sa mère, Sarah.</b> [Signification :] il l'a amenée dans la tente et, voici, elle est sa mère Sarah. C'est-à-dire qu'elle est devenue l'image de sa mère Sarah. En effet, tant que Sarah était en vie, une bougie brûlait du vendredi au vendredi, une bénédiction était constamment dans la pâte, et un nuage planait sur la tente. Lorsqu'elle mourut, [ces choses] cessèrent et lorsque Rivkah arriva, elles revinrent. 

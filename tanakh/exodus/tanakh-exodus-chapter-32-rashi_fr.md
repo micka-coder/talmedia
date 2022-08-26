@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Moshé était en retard.</b> Comme le traduit Onkelos - un terme pour le retard. De même : "[Pourquoi] le cavalier ( בּשֵׁשׁ ) est-il en retard ?" [ou :] "Ils ont attendu jusqu'à ce que ( בּוֹשׁ ) il soit tard." Car lorsque Moshé est monté sur la montagne, il leur avait dit : "Au bout de quarante jours, je reviendrai dans les six premières heures". Ils pensaient que le jour de son ascension est inclus [dans les quarante jours] mais, en réalité, il leur avait dit "<i>des [jours]</i> complets" [c'est-à-dire] quarante jours, chaque jour avec sa nuit précédente. Mais le jour de son ascension, sa nuit n'en faisait pas partie car il est monté le sept de Sivan. Par conséquent, le 40e jour réel était le dix-sept de Tammuz. Le 16 (de Tammuz), le Satan est venu et a causé le désordre dans le monde en créant l'apparence de l'obscurité, d'une profonde obscurité et de la confusion [afin d'amener les gens] à dire : "Moshé est certainement mort et donc le monde a été jeté dans le désordre". Il leur dit : "Moshé <i>est</i> mort, car six heures sont déjà passées et il n'est toujours pas venu, etc..." comme cela est relaté dans le Tractate Shabbos. Il est impossible de dire que leur erreur était due uniquement à un jour nuageux, que ce soit avant ou après midi, car Moshé ne descendit que le lendemain, comme il est dit : "Ils se levèrent tôt le lendemain matin et offrirent des holocaustes". 
+<b>Moshé était en retard.</b> Comme le traduit Onkelos - un terme pour le retard. De même : "[Pourquoi] le cavalier ( בּשֵׁשׁ ) est-il en retard ?" [ou :] "Ils ont attendu jusqu'à ce que ( בּוֹשׁ ) il soit tard." Car lorsque Moshé est monté sur la montagne, il leur avait dit : "Au bout de quarante jours, je reviendrai dans les six premières heures". Ils pensaient que le jour de son ascension est inclus [dans les quarante jours] mais, en réalité, il leur avait dit "<i>des [jours]</i> complets" [c'est-à-dire] quarante jours, chaque jour avec sa nuit précédente. Mais le jour de son ascension, sa nuit n'en faisait pas partie car il est monté le sept de Sivan. Par conséquent, le 40e jour réel était le dix-sept de Tammuz. Le 16 (de Tammuz), le Satan est venu et a causé le désordre dans le monde en créant l'apparence de l'obscurité, d'une profonde obscurité et de la confusion [afin d'amener les gens] à dire : "Moshé est certainement mort et donc le monde a été jeté dans le désordre". Il leur dit : "Moshé <i>est</i> mort, car six heures sont déjà passées et il n'est toujours pas venu, etc..." comme cela est relaté dans le Tractate Chabbat. Il est impossible de dire que leur erreur était due uniquement à un jour nuageux, que ce soit avant ou après midi, car Moshé ne descendit que le lendemain, comme il est dit : "Ils se levèrent tôt le lendemain matin et offrirent des holocaustes". 
 <b>Cela va nous conduire.</b> Ils aspiraient à avoir de nombreux dieux.
 <b>Pour ce Moshé, l'homme.</b> Le Satan leur montra une image de Moshé porté dans les airs, très haut dans le ciel. 
 <b>Qui nous a fait monter du pays d'Egypte -</b> et nous a enseigné le chemin à suivre ; maintenant nous avons besoin de dieux qui nous précèdent.
@@ -22,15 +22,15 @@
 ### passuk 5
 <b>Aharon vit -</b> qu'il était vivant comme il est dit [du Veau d'or] : "sous la forme d'un bœuf mangeant de l'herbe", et il vit ainsi que l'acte de Satan avait réussi et n'avait donc aucune excuse pour les repousser complètement. 
 <b>Il construisit un autel -</b> de manière à les faire patienter.
-<b>Et il dit : demain sera une fête à Adonoy.</b> Mais [il ne dit pas] "aujourd'hui", au cas où Moshé reviendrait avant qu'ils ne l'adorent. C'est le sens ordinaire de cette expression. Mais son explication midrashique se trouve dans Vayikra Rabbah : [וַיַּרְא אַהֲרֹן] Aharon vit beaucoup de choses : il vit que lorsque son neveu, Chur, les réprimanda, ils le tuèrent [et par conséquent] וַיִּבֶן מִזְבֵּחַ לְפָנָיו [doit être compris comme : ] וַיָּבֶן מִזָּבוּחַ לְפָנָיו - " Il comprit à partir de celui qui fut égorgé avant lui. " Lui aussi a vu [la situation] et il a dit : Mieux vaut que la faute soit mise sur moi et non sur eux. Il a vu encore une autre chose et il a dit : " Si <i>ils</i> construisent l'autel, eux-mêmes, l'un apportera un éclat de bois et l'autre une pierre, avec pour résultat que leur travail sera achevé d'un seul coup. Mais grâce à <i>moi</i> qui le construira et qui procrastinera dans mon travail, entre-temps Moshé viendra." 
-<b>Une fête à Adonoy.</b> Dans son coeur, c'était à Dieu. Il était confiant que Moshé arriverait et qu'ils adoreraient Dieu.
+<b>Et il dit : demain sera une fête à Hachem.</b> Mais [il ne dit pas] "aujourd'hui", au cas où Moshé reviendrait avant qu'ils ne l'adorent. C'est le sens ordinaire de cette expression. Mais son explication midrashique se trouve dans Vayikra Rabbah : [וַיַּרְא אַהֲרֹן] Aharon vit beaucoup de choses : il vit que lorsque son neveu, Chur, les réprimanda, ils le tuèrent [et par conséquent] וַיִּבֶן מִזְבֵּחַ לְפָנָיו [doit être compris comme : ] וַיָּבֶן מִזָּבוּחַ לְפָנָיו - " Il comprit à partir de celui qui fut égorgé avant lui. " Lui aussi a vu [la situation] et il a dit : Mieux vaut que la faute soit mise sur moi et non sur eux. Il a vu encore une autre chose et il a dit : " Si <i>ils</i> construisent l'autel, eux-mêmes, l'un apportera un éclat de bois et l'autre une pierre, avec pour résultat que leur travail sera achevé d'un seul coup. Mais grâce à <i>moi</i> qui le construira et qui procrastinera dans mon travail, entre-temps Moshé viendra." 
+<b>Une fête à Hachem.</b> Dans son coeur, c'était à Dieu. Il était confiant que Moshé arriverait et qu'ils adoreraient Dieu.
 
 ### passuk 6
 <b>Ils se sont levés tôt.</b> Le Satan les a pressés dans le but de pécher.
 <b>Pour se divertir.</b> Il y a l'implication [dans לְצַחֵק] de l'immoralité sexuelle, comme il est dit : "pour se moquer de moi" (accusation de la femme de Potiphar contre Yossef) et d'effusion de sang, comme il est dit : "Que les jeunes gens se lèvent et 'jouent' devant nous." Ici aussi, [לְצַחֵק fait allusion à] la mise à mort de Tchour. 
 
 ### passuk 7
-<b>[Adonoy] a parlé.</b> [וַיְדַבֵּר] est un terme de dureté comme dans : "( וַיְדַבֵּר ) Il leur parla durement."
+<b>[Hachem] a parlé.</b> [וַיְדַבֵּר] est un terme de dureté comme dans : "( וַיְדַבֵּר ) Il leur parla durement."
 <b>"Descendez."</b> C'est-à-dire : "Descendez de votre position exaltée. Je ne t'ai pas donné ta position élevée sauf pour leur bien." A cet instant, Moshé fut ostracisé par la cour céleste. 
 <b>Ton peuple s'est corrompu.</b> Il n'est pas dit : "le peuple s'est corrompu", mais, plutôt : "<i>votre</i> peuple" - les racailles que vous avez acceptées, de votre propre chef, et que vous avez acceptées comme prosélytes sans Me consulter, et vous avez pensé qu'il était bon que les prosélytes soient joints à la Shechinah - ils se sont corrompus et ont corrompu les autres. 
 
@@ -43,7 +43,7 @@
 <b>Laisse-moi tranquille.</b> Nous n'avons pas encore entendu Moshé prier pour eux et déjà Il a dit : "Laisse-moi tranquille" ? ! Mais Il lui donne ainsi une ouverture et lui fait savoir que l'affaire dépend de lui, que s'il prie pour eux, Il ne les détruira pas. 
 
 ### passuk 11
-<b>"Adonoy ! Pourquoi," etc.</b> Peut-on avoir une pensée de jalousie, à moins que ce ne soit un sage d'un sage ou un puissant d'un puissant. 
+<b>"Hachem ! Pourquoi," etc.</b> Peut-on avoir une pensée de jalousie, à moins que ce ne soit un sage d'un sage ou un puissant d'un puissant. 
 
 ### passuk 12
 <b>Et reconsidérer.</b> C'est-à-dire formuler un autre plan pour leur faire du bien. 
@@ -51,8 +51,8 @@
 
 ### passuk 13
 <b>Souvenir d'Avraham.</b> S'ils ont transgressé les dix commandements, leur père Avraham a été éprouvé par dix épreuves, et n'a pas encore reçu sa récompense, donne-la lui [maintenant] et que les "dix" compensent les "dix". 
-<b>Avraham, Yitzchok et Yisraël.</b> Si [leur punition doit être] par le feu, alors souviens-toi d'Avraham qui s'est offert pour être brûlé à cause de Toi à Ur Kasdim. Si [elle doit être] par l'épée, alors souviens-toi de Yitzchok qui a tendu le cou lors de la "ligature". Si [cela doit se faire] par l'exil, alors souviens-toi de Yaakov qui s'est exilé à Charan. Et s'ils ne peuvent pas être sauvés par le mérite [de leurs ancêtres], alors qu'est-ce que c'est que Tu me dis : "Je ferai de toi une grande nation" ? Si une chaise à trois pieds ne peut se tenir devant Toi au moment de Ta colère [alors c'est] certainement [vrai] pour une chaise à un seul pied. 
-<b>Auxquels Tu as juré par Ta personne.</b> Tu ne leur as pas juré par quelque chose de fini - ni par les cieux, ni par la terre, ni par les montagnes, ni par les collines, mais uniquement par Ta personne. Qui est éternel, et Ton serment demeure à jamais, comme il est dit : "'Par moi-même j'ai juré, dit Dieu." A Yitzchok il a été dit : "J'établirai le même serment que j'ai prêté à Avraham, ton père." Et à Yaakov il a été dit : "Je suis Dieu tout-puissant, soyez féconds et multipliez." Ainsi, Il lui a juré par "Dieu Tout-Puissant". 
+<b>Avraham, Yitshak et Yisraël.</b> Si [leur punition doit être] par le feu, alors souviens-toi d'Avraham qui s'est offert pour être brûlé à cause de Toi à Ur Kasdim. Si [elle doit être] par l'épée, alors souviens-toi de Yitshak qui a tendu le cou lors de la "ligature". Si [cela doit se faire] par l'exil, alors souviens-toi de Yaakov qui s'est exilé à Charan. Et s'ils ne peuvent pas être sauvés par le mérite [de leurs ancêtres], alors qu'est-ce que c'est que Tu me dis : "Je ferai de toi une grande nation" ? Si une chaise à trois pieds ne peut se tenir devant Toi au moment de Ta colère [alors c'est] certainement [vrai] pour une chaise à un seul pied. 
+<b>Auxquels Tu as juré par Ta personne.</b> Tu ne leur as pas juré par quelque chose de fini - ni par les cieux, ni par la terre, ni par les montagnes, ni par les collines, mais uniquement par Ta personne. Qui est éternel, et Ton serment demeure à jamais, comme il est dit : "'Par moi-même j'ai juré, dit Dieu." A Yitshak il a été dit : "J'établirai le même serment que j'ai prêté à Avraham, ton père." Et à Yaakov il a été dit : "Je suis Dieu tout-puissant, soyez féconds et multipliez." Ainsi, Il lui a juré par "Dieu Tout-Puissant". 
 
 ### passuk 14
 
@@ -95,11 +95,11 @@
 <b>Déshonorés parmi leurs adversaires.</b> [Signifiant :] que cette affaire leur sera déshonorante devant tous ceux qui s'élèvent contre eux.
 
 ### passuk 26
-<b>"Celui qui est pour Adonoy, vers moi"!</b> C'est-à-dire : "Viens vers moi." 
+<b>"Celui qui est pour Hachem, vers moi"!</b> C'est-à-dire : "Viens vers moi." 
 <b>Tous les fils de Leivi.</b> D'ici on déduit que la Tribu entière était juste.
 
 ### passuk 27
-<b>Voici ce qu'a dit Adonoy, etc.</b> Où [Dieu lui a-t-il dit] cela ? "Celui qui sacrifie à un dieu doit être condamné à mourir". C'est ainsi que cela est présenté dans la Mechilta. 
+<b>Voici ce qu'a dit Hachem, etc.</b> Où [Dieu lui a-t-il dit] cela ? "Celui qui sacrifie à un dieu doit être condamné à mourir". C'est ainsi que cela est présenté dans la Mechilta. 
 <b>Son frère -</b> ayant une mère commune, et il (le frère) est un israélite. 
 
 ### passuk 28
@@ -126,7 +126,7 @@
 <b>Le jour où je ferai le compte, etc.</b> Pour l'instant, je t'écouterai [et m'abstiendrai] de les détruire tous à la fois ; mais toujours et systématiquement, chaque fois que je ferai le compte de leurs péchés, je comptabiliserai aussi un peu de ce péché avec leurs autres péchés. Et, en effet, aucune punition n'est infligée à Yisraël qui ne soit accompagnée d'une partie de la punition pour le péché du Veau. 
 
 ### passuk 35
-<b>Adonoy frappa le peuple d'une plaie.</b> [C'est-à-dire] la mort de la main du Roi céleste, [pour ceux qui ont péché] devant témoins sans avoir reçu d'avertissement. 
+<b>Hachem frappa le peuple d'une plaie.</b> [C'est-à-dire] la mort de la main du Roi céleste, [pour ceux qui ont péché] devant témoins sans avoir reçu d'avertissement. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

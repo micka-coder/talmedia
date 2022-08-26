@@ -5,7 +5,7 @@
 
 ### passuk 2
 <b>Devant Moshé et devant Elozor.</b> Cela enseigne qu'ils ne se sont tenus devant eux que la quarantième année, après la mort d'Aharon. 
-<b>Devant Moshé.</b> Et ensuite devant Elozor ? Est-il possible que Moshé n'ait pas su et qu'Elozor ait su ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, réarrangez le passage et expliquez-le. C'est l'interprétation de R' Yoshiyah. Aba Chanan a dit au nom de R' Elozor : " Ils étaient assis dans la salle d'étude, et ils se tenaient devant tous. " 
+<b>Devant Moshé.</b> Et ensuite devant Elozor ? Est-il possible que Moshé n'ait pas su et qu'Elozor ait su ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, réarrangez le passage et expliquez-le. C'est l'interprétation de R' Yoshiyah. Aba Hannan a dit au nom de R' Elozor : " Ils étaient assis dans la salle d'étude, et ils se tenaient devant tous. " 
 
 ### passuk 3
 <b>Mais il n'était pas, etc.</b> Puisqu'ils allaient dire qu'il est mort à cause de son péché, il fallait dire : 'il n'était pas le péché des plaignants, ni avec l'assemblée de Korach, qui incitait [le peuple] contre le Saint, Béni soit-Il'. Au contraire, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il est mort par son seul péché, sans provoquer les autres à pécher avec lui.'' R' Akiva dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Il était le ramasseur de bois", R' Shimon dit : "Il était <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parmi ceux qui se sont élevés par défi." 
@@ -44,11 +44,11 @@
 <b>Ce sont les eaux de la dispute à Kadeish.</b> Celles-là seulement - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ils n'avaient pas d'autres péchés. Une autre interprétation : Ceux de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la rébellion à Marah étaient les mêmes que ceux de la rébellion à la mer des Roseaux, et les mêmes que ceux de la rébellion au désert de Tzin. 
 
 ### passuk 15
-<b>Moshé parle à Adonoy, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour faire connaître la vertu des justes - lorsqu'ils passent du monde, ils ignorent leurs propres besoins, et se préoccupent des besoins de la communauté. 
+<b>Moshé parle à Hachem, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour faire connaître la vertu des justes - lorsqu'ils passent du monde, ils ignorent leurs propres besoins, et se préoccupent des besoins de la communauté. 
 <b>Dire.</b> Il lui dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>'réponds-moi. Est-ce que Tu vas désigner un chef sur eux ou non.' 
 
 ### passuk 16
-<b>Laissez Adonoy . . . nommer.</b> Lorsque Moshé entendit l'Omniprésent lui dire : 'donne l'héritage de Tzelofchad à ses filles', <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il dit : 'Le moment est venu pour moi de faire une demande personnelle - que mes fils puissent hériter de ma position de leader.' Le Saint, béni soit-Il, lui dit : 'Ce n'est pas mon intention. Yehoshua est digne d'être récompensé pour son service, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car il n'a jamais bougé de la tente. C'est [le sens de] la déclaration de Shlomo : "celui qui veille sur le figuier mangera ses fruits". 
+<b>Laissez Hachem . . . nommer.</b> Lorsque Moshé entendit l'Omniprésent lui dire : 'donne l'héritage de Tzelofchad à ses filles', <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il dit : 'Le moment est venu pour moi de faire une demande personnelle - que mes fils puissent hériter de ma position de leader.' Le Saint, béni soit-Il, lui dit : 'Ce n'est pas mon intention. Yehoshua est digne d'être récompensé pour son service, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car il n'a jamais bougé de la tente. C'est [le sens de] la déclaration de Shlomo : "celui qui veille sur le figuier mangera ses fruits". 
 <b>Dieu des esprits.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pourquoi cela a-t-il été dit ? Il a dit devant Lui : " Maître de l'univers, la pensée de chaque individu est connue devant toi, chacune dissemblable à celle de l'autre. Nomme sur eux un chef qui exercera la tolérance avec chacun d'eux selon son intelligence." 
 
 ### passuk 17
@@ -71,7 +71,7 @@
 <b>Pour que toute la communauté de Bnei Israël entende.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ils le traiteront avec révérence et crainte, comme ils te traitent. 
 
 ### passuk 21
-<b>Il se présentera devant Elozor le <i>kohein.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Voici [la réponse à] ta demande - cette gloire ne sera pas retirée de la maison de ton père, car Yehoshua, lui aussi, dépendra de l'affirmation d'Elozor. 
+<b>Il se présentera devant Elozor le <i>Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Voici [la réponse à] ta demande - cette gloire ne sera pas retirée de la maison de ton père, car Yehoshua, lui aussi, dépendra de l'affirmation d'Elozor. 
 <b>Et demande, à lui.</b> Quand il doit partir à la guerre. 
 <b>Par sa parole.</b> [la parole] d'Elozor.
 <b>Et toute la communauté.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le Sanhedrin.
@@ -81,7 +81,7 @@
 
 ### passuk 23
 <b>Il imposa ses mains.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Généreusement, au-delà de ce qui lui avait été ordonné. En effet, le Saint, Béni soit-Il, lui a dit : " pose ta main ", mais il a utilisé ses deux mains. Il l'a façonné comme un vase rempli à ras bord, le remplissant généreusement de sa sagesse. 
-<b>Comme Adonoy l'avait ordonné.</b> aussi concernant le rayonnement - Il lui a accordé une partie de son rayonnement.
+<b>Comme Hachem l'avait ordonné.</b> aussi concernant le rayonnement - Il lui a accordé une partie de son rayonnement.
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

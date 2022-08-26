@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>Et s'il est [trop] pauvre,</b> qu'il ne peut se permettre de donner cette évaluation. 
-<b>Il l'installera - </b> celui dont la valeur est évaluée [sera installé] devant le <i>kohein</i>, et il (= le <i>kohein</i>) évaluera sa valeur selon les moyens de celui qui gage l'évaluation. 
+<b>Il l'installera - </b> celui dont la valeur est évaluée [sera installé] devant le <i>Cohen</i>, et il (= le <i>Cohen</i>) évaluera sa valeur selon les moyens de celui qui gage l'évaluation. 
 <b>Selon les moyens,</b> il doit l'évaluer selon ses moyens, et lui laisser de quoi vivre : un lit, un matelas et un coussin, et les outils de son métier. S'il est conducteur d'âne, il lui laisse son âne. 
 
 ### passuk 9
@@ -35,7 +35,7 @@
 <b>S'il s'agit d'un animal impur.</b> Le verset parle d'un [animal] taché, qui est "impur" en ce qui concerne son offrande. Le verset vous enseigne que les [animaux] sanctifiés non tachés ne deviennent pas non sanctifiés par la rédemption, sauf s'ils sont devenus tachés. 
 
 ### passuk 12
-<b>Comme le kohein détermine sa valeur pour vous, il en sera de même,</b> pour les autres personnes qui viendront l'acheter sur les biens du Temple. 
+<b>Comme le Cohen détermine sa valeur pour vous, il en sera de même,</b> pour les autres personnes qui viendront l'acheter sur les biens du Temple. 
 
 ### passuk 13
 <b>S'il veut bien la racheter,</b> Le verset est plus strict en ce qui concerne les propriétaires, [exigeant] l'ajout d'un cinquième, et ainsi [aussi] en ce qui concerne celui qui consacre une maison, et ainsi [aussi] en ce qui concerne celui qui consacre un champ, et ainsi [aussi] en ce qui concerne le rachat de la seconde dîme - les propriétaires ajoutent un cinquième, [mais] pas les autres personnes [qui viennent les racheter]. 
@@ -53,7 +53,7 @@
 
 ### passuk 18
 <b>Si après le jubilé il consacre son champ.</b> Et ainsi [aussi] s'il l'a consacré dès le jubilé et qu'il reste en possession du trésorier [du Temple], et que celui-ci vient le racheter après le jubilé -. 
-<b>alors le kohein calculera l'argent [dû] selon les années restantes,</b> selon la proportion. Comment cela se passe-t-il ? Notez que [le verset] a fixé le prix pour quarante-neuf ans [à] cinquante <i>shekolim</i>, rapportant un <i>shekel</i> par an, et un <i>shekel</i> supplémentaire pour toutes ces années. Un shekel représente quarante-huit pundionim donnant un סֶלַע [= shekel] et un פּוּנְדְּיוֹן par an, sauf qu'il manque un פּוּנְדְּיוֹן pour tous. Nos rabbins ont déclaré que le פּוּנְדְּיוֹן [manquant] est une commission pour le changement d'argent. [Par conséquent,] celui qui vient racheter [le champ] donne un סֶלַע [= <i>shekel</i>] et un פּוּנְדְּיוֹן pour chacune des années restantes jusqu'à l'année du jubilé. 
+<b>alors le Cohen calculera l'argent [dû] selon les années restantes,</b> selon la proportion. Comment cela se passe-t-il ? Notez que [le verset] a fixé le prix pour quarante-neuf ans [à] cinquante <i>shekolim</i>, rapportant un <i>shekel</i> par an, et un <i>shekel</i> supplémentaire pour toutes ces années. Un shekel représente quarante-huit pundionim donnant un סֶלַע [= shekel] et un פּוּנְדְּיוֹן par an, sauf qu'il manque un פּוּנְדְּיוֹן pour tous. Nos rabbins ont déclaré que le פּוּנְדְּיוֹן [manquant] est une commission pour le changement d'argent. [Par conséquent,] celui qui vient racheter [le champ] donne un סֶלַע [= <i>shekel</i>] et un פּוּנְדְּיוֹן pour chacune des années restantes jusqu'à l'année du jubilé. 
 <b>Et son évaluation sera réduite en conséquence.</b> [C'est-à-dire, selon] le nombre d'années qui s'écoulent depuis l'année du jubilé jusqu'à l'année de la rédemption. 
 
 ### passuk 19
@@ -66,7 +66,7 @@
 
 ### passuk 21
 <b>Lorsque le champ est libéré par le jubilé,</b> de la possession de celui qui l'a acheté au trésorier du Temple, à la manière des autres champs qui quittent la possession de leur acheteur au jubilé. 
-<b>Il devient sacré pour Adonoy.</b> Non pas qu'il retourne au trésor du Temple, pour l'entretien du Temple, au contrôle du trésorier du Temple, mais <b>comme un champ qui a été consacré,</b> qui est donné aux <i>kohanim</i>, comme il est dit : "Toute consécration en Israël sera à toi", cela aussi doit être partagé entre les <i>kohanim</i> de cette veille sacerdotale dans laquelle tombe le Yom Kippour du Jubilé. 
+<b>Il devient sacré pour Hachem.</b> Non pas qu'il retourne au trésor du Temple, pour l'entretien du Temple, au contrôle du trésorier du Temple, mais <b>comme un champ qui a été consacré,</b> qui est donné aux <i>kohanim</i>, comme il est dit : "Toute consécration en Israël sera à toi", cela aussi doit être partagé entre les <i>kohanim</i> de cette veille sacerdotale dans laquelle tombe le Yom Kippour du Jubilé. 
 
 ### passuk 22
 <b>S'il s'agit d'un champ qu'il a acheté, etc.</b> Il y a une distinction entre un champ acheté et un champ hérité, car, un champ acheté n'est pas divisé par les <i>kohanim</i> au jubilé, puisque [celui qui le consacre] ne peut le consacrer que jusqu'au jubilé, puisqu'au jubilé il est destiné à quitter sa possession et à retourner à ses propriétaires [originaux]. Par conséquent, s'il vient pour le racheter, il doit le racheter à ce prix, fixé pour un champ ancestral. Et qu'il ne le rachète pas, et que le trésorier le vende à quelqu'un d'autre, ou qu'il le rachète - <b>L'année du jubilé, le champ reviendra à celui à qui il a été acheté - </b> [c'est-à-dire à celui à qui] celui qui l'avait consacré (l'avait acheté). Et de peur que l'on dise "à celui de qui il a été acheté" [se réfère à] ce dernier acheteur [qui l'a acheté] à lui, et c'est le trésorier [du Temple], il fallait donc dire <b>"à celui dont c'était la terre ancestrale" - </b> [c'est-à-dire,] d'un héritage ancestral - et c'est le propriétaire initial qui l'a vendu à celui qui l'a consacré. 
@@ -83,15 +83,15 @@
 <b>Un homme ne le consacrera pas,</b> en vue d'un autre sacrifice, car il ne lui appartient pas. 
 
 ### passuk 27
-<b>S'il est d'un animal impur, etc.</b> Ce verset ne fait pas référence à un premier-né, car on ne peut pas dire d'un premier-né d'un animal impur "il le rachètera sur la base de l'évaluation." [De plus,] il ne [peut] s'agir d'un âne, car le rachat d'un âne premier-né est un agneau, qui est un don au <i>kohein</i>, et ne [va] pas au trésor du Temple. Le verset se réfère plutôt aux [consécrations au] [trésor du] Temple, car le verset ci-dessus parle du rachat d'un animal [rituellement] pur devenu souillé, et ici il parle de celui qui consacre un animal [rituellement] souillé à l'entretien du Temple. 
-<b>Il le rachètera sur la base de l'évaluation,</b> selon ce que le <i>kohein</i> en évaluera la [valeur]. 
+<b>S'il est d'un animal impur, etc.</b> Ce verset ne fait pas référence à un premier-né, car on ne peut pas dire d'un premier-né d'un animal impur "il le rachètera sur la base de l'évaluation." [De plus,] il ne [peut] s'agir d'un âne, car le rachat d'un âne premier-né est un agneau, qui est un don au <i>Cohen</i>, et ne [va] pas au trésor du Temple. Le verset se réfère plutôt aux [consécrations au] [trésor du] Temple, car le verset ci-dessus parle du rachat d'un animal [rituellement] pur devenu souillé, et ici il parle de celui qui consacre un animal [rituellement] souillé à l'entretien du Temple. 
+<b>Il le rachètera sur la base de l'évaluation,</b> selon ce que le <i>Cohen</i> en évaluera la [valeur]. 
 <b>Si elle n'est pas rachetée</b> par les propriétaires, 
 <b>il sera vendu</b> - à d'autres.
 
 ### passuk 28
-<b>Cependant, toute dédicace, etc.</b> Nos rabbins étaient en désaccord sur la question. Certains disent que les consécrations non spécifiées appartiennent au trésor du Temple. Comment dois-je [alors] interpréter [le verset] : "Toute consécration en Israël sera à toi" ? Cela fait référence aux consécrations [faites explicitement pour les] <i>kohanim</i>, où [celui qui l'a consacré] a dit clairement : "Voici, c'est une dédicace pour les <i>kohein</i>." Et certains disent : les dédicaces non spécifiées [vont au] <i>kohein</i>. 
-<b>[Aucune d'entre elles] ne peut être vendue ou rachetée,</b> mais doit être donnée au <i>Kohein</i>. Selon l'avis de celui qui dit : "Les dédicaces non spécifiées appartiennent au <i>Kohein</i>", ce verset est expliqué comme [se référant] aux dédicaces non spécifiées, et [selon] celui qui dit : "Les dédicaces non spécifiées appartiennent à l'entretien du Temple", ce verset s'explique comme [se référant] aux dédicaces [explicitement dédiées] aux <i>kohanim</i>, car tous admettent que les dédicaces [dédiées] aux <i>kohanim</i> ne peuvent pas être rachetées, jusqu'à ce qu'elles arrivent dans la main du <i>kohein</i>, [alors que] les dédicaces [dédiées] au Très-Haut peuvent être rachetées. 
-<b>Tout ce qui est consacré est très saint.</b> Celui qui dit que les dédicaces non spécifiées appartiennent à l'entretien du Temple, apporte la preuve d'ici, et celui qui dit [que] les dédicaces non spécifiées appartiennent aux <i>kohanim</i> explique [que la phrase], "Tout ce qui est consacré est très saint", enseigne que les dédicaces aux <i>kohanim</i> s'appliquent aux sacrifices les plus saints [comme] aux sacrifices de moindre degré. Il [les] donne au <i>kohein</i>, comme nous l'avons appris dans le Maseches Arochin : S'il s'agit d'un vœu, il donne leur valeur, [et] s'il s'agit d'une offrande volontaire, il donne la valeur de son bénéfice. 
+<b>Cependant, toute dédicace, etc.</b> Nos rabbins étaient en désaccord sur la question. Certains disent que les consécrations non spécifiées appartiennent au trésor du Temple. Comment dois-je [alors] interpréter [le verset] : "Toute consécration en Israël sera à toi" ? Cela fait référence aux consécrations [faites explicitement pour les] <i>kohanim</i>, où [celui qui l'a consacré] a dit clairement : "Voici, c'est une dédicace pour les <i>Cohen</i>." Et certains disent : les dédicaces non spécifiées [vont au] <i>Cohen</i>. 
+<b>[Aucune d'entre elles] ne peut être vendue ou rachetée,</b> mais doit être donnée au <i>Kohein</i>. Selon l'avis de celui qui dit : "Les dédicaces non spécifiées appartiennent au <i>Kohein</i>", ce verset est expliqué comme [se référant] aux dédicaces non spécifiées, et [selon] celui qui dit : "Les dédicaces non spécifiées appartiennent à l'entretien du Temple", ce verset s'explique comme [se référant] aux dédicaces [explicitement dédiées] aux <i>kohanim</i>, car tous admettent que les dédicaces [dédiées] aux <i>kohanim</i> ne peuvent pas être rachetées, jusqu'à ce qu'elles arrivent dans la main du <i>Cohen</i>, [alors que] les dédicaces [dédiées] au Très-Haut peuvent être rachetées. 
+<b>Tout ce qui est consacré est très saint.</b> Celui qui dit que les dédicaces non spécifiées appartiennent à l'entretien du Temple, apporte la preuve d'ici, et celui qui dit [que] les dédicaces non spécifiées appartiennent aux <i>kohanim</i> explique [que la phrase], "Tout ce qui est consacré est très saint", enseigne que les dédicaces aux <i>kohanim</i> s'appliquent aux sacrifices les plus saints [comme] aux sacrifices de moindre degré. Il [les] donne au <i>Cohen</i>, comme nous l'avons appris dans le Masehet Arochin : S'il s'agit d'un vœu, il donne leur valeur, [et] s'il s'agit d'une offrande volontaire, il donne la valeur de son bénéfice. 
 <b>Qu'il s'agisse de personnes.</b> Comme par exemple, [si] il a consacré ses esclaves [cananéens] ou ses servantes cananéennes. 
 
 ### passuk 29
@@ -102,14 +102,14 @@
 <b>Toutes les dîmes de la terre - </b>le verset parle de la seconde dîme.
 <b>Les semences [récoltes] de la terre - </b>des céréales.
 <b>Du fruit de l'arbre - </b>du vin et de l'huile.
-<b>Importe à Adonoy,</b> Dieu en a pris possession, et c'est de sa table qu'il vous a ordonné de monter manger à Jérusalem, comme il est dit : "Et tu mangeras devant Adonoy ton Dieu, la dîme de ton grain, de ton vin", etc. 
+<b>Importe à Hachem,</b> Dieu en a pris possession, et c'est de sa table qu'il vous a ordonné de monter manger à Jérusalem, comme il est dit : "Et tu mangeras devant Hachem ton Dieu, la dîme de ton grain, de ton vin", etc. 
 
 ### passuk 31
 <b>De sa dîme - </b> mais pas de la dîme de son concitoyen juif. Celui qui rachète la [deuxième] dîme de son concitoyen juif, n'en ajoute pas une cinquième. Et quel est son rachat ? Il la rachète afin de permettre [sa] consommation en tout lieu, et il apporte les pièces [de son rachat/vente] et mange [les aliments achetés avec elles] à Jérusalem, comme il est dit : "Tu dépenseras alors en argent", etc. 
 
 ### passuk 32
 <b>Sous la verge,</b> lorsqu'il vient pour leur donner la dîme, il les fait passer l'un après l'autre par la porte, et le dixième [celui] qu'il frappe avec une verge enduite de teinture rouge, [afin] qu'on le reconnaisse [comme étant de] la dîme. Il fait de même pour le jeune agneau et les veaux de chaque année. 
-<b>Sont sacrés pour Adonoy,</b> pour être apportés à l'autel, son sang et ses entrailles, et la chair est mangée par les propriétaires, car il n'est pas compté avec les autres dons du sacerdoce, et nous n'avons pas trouvé que sa chair devait être donnée aux <i>kohanim</i>. 
+<b>Sont sacrés pour Hachem,</b> pour être apportés à l'autel, son sang et ses entrailles, et la chair est mangée par les propriétaires, car il n'est pas compté avec les autres dons du sacerdoce, et nous n'avons pas trouvé que sa chair devait être donnée aux <i>kohanim</i>. 
 
 ### passuk 33
 <b>Il ne fera pas de distinction, etc.</b> Puisqu'il est dit : "Et tous vos vœux de choix", peut-être doit-il sélectionner et faire ressortir les plus beaux ? Le verset dit : "Il ne fera pas de distinction entre les [animaux] meilleurs ou pires" - la sainteté descend sur lui qu'il soit entier ou taché ; non pas qu'il puisse être apporté [lorsqu'il] est taché, mais il peut être mangé en vertu de la loi de la dîme, et il est [donc] interdit de le tondre ou de le travailler.

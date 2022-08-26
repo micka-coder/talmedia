@@ -22,7 +22,7 @@
 
 ### passuk 11
 <b>Toutes ses stipulations.</b> Les conditions entre eux.
-<b>Devant Adonoy, à Mitzpah.</b> Où tout le monde était rassemblé, comme la Présence divine repose sur les multitudes.
+<b>Devant Hachem, à Mitzpah.</b> Où tout le monde était rassemblé, comme la Présence divine repose sur les multitudes.
 
 ### passuk 12
 
@@ -44,7 +44,7 @@
 <b>Ils ont ensuite continué à travers le désert</b> d'ouest en est, le long des frontières sud d'Edom et de Moav.
 <b>Circonscription du pays d'Edom.</b> Toute sa frontière sud.
 <b>Et le pays de Moav.</b> Toute sa frontière sud. Lorsqu'ils ont atteint l'angle sud-est, ils ont fait un angle vers le nord en suivant la périphérie de la frontière orientale.
-<b>Arrivèrent à l'est du pays de Moav et campèrent en face de Arnon.</b> A l'extrémité de la frontière orientale du pays de Moav. C'était le point de départ des terres de Sichon et d'Og. Ils conquirent le territoire trans-yardéen à l'est du pays de Canaan, traversèrent le Yardein et envahirent le pays de Canaan par la route orientale.
+<b>Arrivèrent à l'est du pays de Moav et campèrent en face de Arnon.</b> A l'extrémité de la frontière orientale du pays de Moav. C'était le point de départ des terres de Sichon et d'Og. Ils conquirent le territoire trans-yardéen à l'est du pays de Canaan, traversèrent le Jourdain et envahirent le pays de Canaan par la route orientale.
 
 ### passuk 19
 
@@ -54,7 +54,7 @@
 
 ### passuk 22
 <b>Ils prirent possession, etc., depuis Arnon jusqu'au Yabok.</b> Ce que tu revendiques comme tien, ils l'annexèrent depuis Sichon.
-<b>Du désert jusqu'au Yardein.</b> Il y avait une zone sauvage attenante au Yardein.
+<b>Du désert jusqu'au Jourdain.</b> Il y avait une zone sauvage attenante au Jourdain.
 
 ### passuk 23
 
@@ -97,7 +97,7 @@
 <b>Pleurer sur ses jeunes filles.</b> Puisqu'il n'est pas écrit "sur ses jeunes filles", la déduction est, sur ses jeunes filles réelles.
 
 ### passuk 39
-<b>Elle est devenue l'objet d'une loi.</b> Une législation a été promulguée interdisant toute répétition de ceci, car, s'il s'était approché de Pinchos, ou si Pinchos l'avait approché, il l'aurait libéré de son vœu. <sup>24</sup><i class="footnote">En l'informant qu'un être humain ne peut être désigné comme une offrande.</i> Mais ils refusèrent de s'humilier,<sup>25</sup><i class="footnote">Pinchas, car c'était Yiftoch qui requérait ses services ; Yiftoch, car il était le commandant suprême. (Yalkout, 68)</i> et étaient donc tous deux responsables de sa ruine. Ils ont été punis. La Présence divine s'est éloignée de Pinchos, comme il est dit dans le Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Adonoy était avec lui auparavant." Nous apprenons qu'il n'était pas avec lui par la suite. Et Yiftoch fut affligé d'ulcérations et de la perte de ses membres, comme il est dit,<sup>27</sup><i class="footnote">Divrei Hayamim, 12:7.</i> "Il fut enterré dans les villes de Gilod."<sup>28</sup><i class="footnote">Les membres individuels, comme le corps entier, doivent être enterrés. L'usage pluriel, "villes", enseigne que son enterrement a eu lieu dans un certain nombre de villes - là où ses membres sont tombés. (Yalkut, ibid.)</i> Une autre interprétation : "Elle devint le sujet d'une loi en Israël" se rapporte au passage suivant.<sup>29</sup><i class="footnote">Elle fut le sujet d'une loi exigeant que les filles de Israël lui rendent visite annuellement.</i>
+<b>Elle est devenue l'objet d'une loi.</b> Une législation a été promulguée interdisant toute répétition de ceci, car, s'il s'était approché de Pinchos, ou si Pinchos l'avait approché, il l'aurait libéré de son vœu. <sup>24</sup><i class="footnote">En l'informant qu'un être humain ne peut être désigné comme une offrande.</i> Mais ils refusèrent de s'humilier,<sup>25</sup><i class="footnote">Pinchas, car c'était Yiftoch qui requérait ses services ; Yiftoch, car il était le commandant suprême. (Yalkout, 68)</i> et étaient donc tous deux responsables de sa ruine. Ils ont été punis. La Présence divine s'est éloignée de Pinchos, comme il est dit dans le Divrei Hayamim,<sup>26</sup><i class="footnote">Divrei Hayamim 1, 9:20.</i> "Hachem était avec lui auparavant." Nous apprenons qu'il n'était pas avec lui par la suite. Et Yiftoch fut affligé d'ulcérations et de la perte de ses membres, comme il est dit,<sup>27</sup><i class="footnote">Divrei Hayamim, 12:7.</i> "Il fut enterré dans les villes de Gilod."<sup>28</sup><i class="footnote">Les membres individuels, comme le corps entier, doivent être enterrés. L'usage pluriel, "villes", enseigne que son enterrement a eu lieu dans un certain nombre de villes - là où ses membres sont tombés. (Yalkut, ibid.)</i> Une autre interprétation : "Elle devint le sujet d'une loi en Israël" se rapporte au passage suivant.<sup>29</sup><i class="footnote">Elle fut le sujet d'une loi exigeant que les filles de Israël lui rendent visite annuellement.</i>
 
 ### passuk 40
 <b>Voyageait annuellement.</b> Cela a été établi comme une loi.<sup>30</sup><i class="footnote">Cela suit la deuxième interprétation de Rachi du v. 39. Voir fn.29 </i>.

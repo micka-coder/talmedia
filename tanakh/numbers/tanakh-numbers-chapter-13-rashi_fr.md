@@ -6,7 +6,7 @@
 <b>Envoie, pour toi-même.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Selon ton avis, je ne te commande pas. Si vous le souhaitez, envoyez. Parce que les Israélites sont venus et ont dit : " envoyons des hommes devant nous ", comme il est dit : " vous vous êtes tous approchés de moi, etc. ". <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Moshé a conféré avec la <i>Shechinah.</i> Il (Hachem) a dit : 'Je leur ai dit qu'il est bon, comme il est dit : "Je vous ferai monter de la souffrance de l'Égypte, etc.". Par leur vie ! Je leur donnerai <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> une occasion d'erreur avec le rapport des espions, afin qu'ils n'en héritent pas. 
 
 ### passuk 3
-<b>Par la parole d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec Sa permission - Il ne l'a pas arrêté. 
+<b>Par la parole d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Avec Sa permission - Il ne l'a pas arrêté. 
 <b>Tous [étaient] des hommes de distinction.</b> אֲנָשִׁים dans l'Écriture fait toujours <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> référence à la distinction. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En ce temps-là, ils étaient justes.
 
 ### passuk 4
@@ -60,7 +60,7 @@
 
 ### passuk 23
 <b>Une branche.</b> Une branche de vigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> à laquelle pendait une grappe de raisin.
-<b>Ils l'ont porté entre deux sur une perche.</b> D'après le sens ordinaire de l'affirmation "ils l'ont porté sur une perche", <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> ne sais-je pas que c'était avec deux [porteurs] ? Qu'enseigne la Torah en disant "entre deux" ? Avec deux poteaux. Comment était-ce ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Huit ont pris la grappe, un a pris la figue, un la grenade. Yehoshuah et Caleiv n'ont rien pris, puisque le seul but des autres était de livrer un rapport calomnieux - " De même que son fruit est étrange, ses habitants le sont aussi. Si vous voulez savoir combien pesait l'un d'entre eux, allez vous renseigner sur les pierres qu'ils ont dressées à Gilgal. Chaque homme portait sur son épaule une pierre de Yardein et la dressait à Gilgal. Les rabbins ont déterminé que chacun pesait quarante <i>se'in,</i> et la tradition enseigne que la charge qu'un homme peut porter sur son épaule n'est qu'un tiers de celle qu'il peut porter lorsque d'autres l'assistent. 
+<b>Ils l'ont porté entre deux sur une perche.</b> D'après le sens ordinaire de l'affirmation "ils l'ont porté sur une perche", <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> ne sais-je pas que c'était avec deux [porteurs] ? Qu'enseigne la Torah en disant "entre deux" ? Avec deux poteaux. Comment était-ce ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Huit ont pris la grappe, un a pris la figue, un la grenade. Yehoshuah et Caleiv n'ont rien pris, puisque le seul but des autres était de livrer un rapport calomnieux - " De même que son fruit est étrange, ses habitants le sont aussi. Si vous voulez savoir combien pesait l'un d'entre eux, allez vous renseigner sur les pierres qu'ils ont dressées à Gilgal. Chaque homme portait sur son épaule une pierre de Jourdain et la dressait à Gilgal. Les rabbins ont déterminé que chacun pesait quarante <i>se'in,</i> et la tradition enseigne que la charge qu'un homme peut porter sur son épaule n'est qu'un tiers de celle qu'il peut porter lorsque d'autres l'assistent. 
 
 ### passuk 24
 
@@ -79,7 +79,7 @@
 
 ### passuk 29
 <b>Amalek habite, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme ils avaient déjà été brûlés par Amalek, les espions les mentionnèrent, pour les effrayer. 
-<b>Et à côté du Yardein.</b> יַד, comme son sens ordinaire, à côté du Yardein, et vous ne pourrez pas traverser. 
+<b>Et à côté du Jourdain.</b> יַד, comme son sens ordinaire, à côté du Jourdain, et vous ne pourrez pas traverser. 
 
 ### passuk 30
 <b>Caleiv a réduit au silence.</b> Il a réduit au silence <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> eux tous.

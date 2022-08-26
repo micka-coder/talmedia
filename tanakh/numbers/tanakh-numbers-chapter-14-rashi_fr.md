@@ -25,7 +25,7 @@
 
 ### passuk 10
 <b>Ils doivent être lapidés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Yehoshua et Caleiv.
-<b>Lorsque la gloire d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La nuée y descendit. 
+<b>Lorsque la gloire d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La nuée y descendit. 
 
 ### passuk 11
 <b>Jusqu'où.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>À quel point.
@@ -47,7 +47,7 @@
 <b>Si Tu tues cette nation comme un seul homme.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Soudainement. En conséquence, les nations qui ont entendu etc. 
 
 ### passuk 16
-<b>À cause de l'incapacité [d'Adonoy].</b> Car les habitants du pays sont forts et valeureux, et Pharaon n'est pas pareil à trente et un rois. Voici ce que l'on dira des habitants de ce pays . <b>Par incapacité.</b> Comme il n'a pas été capable de les amener, il les a massacrés. 
+<b>À cause de l'incapacité [d'Hachem].</b> Car les habitants du pays sont forts et valeureux, et Pharaon n'est pas pareil à trente et un rois. Voici ce que l'on dira des habitants de ce pays . <b>Par incapacité.</b> Comme il n'a pas été capable de les amener, il les a massacrés. 
 <b>Par incapacité.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est un nom abstrait.
 
 ### passuk 17
@@ -55,7 +55,7 @@
 <b>Comme Tu as parlé, en disant : </b> Quelle est la déclaration ? 
 
 ### passuk 18
-<b>Adonoy, lent à la colère.</b> Aux justes et aux méchants. Lorsque Moshé monta en haut, il trouva le Saint, Béni soit-Il, assis et écrivant : " Hachem est lent à la colère. " Il (Moshé) lui a dit, "aux justes" ? Le Saint, béni soit-Il, lui dit : "même pour les méchants" ! Il (Moshé) lui a dit : "Que le méchant périsse" ! Il lui a dit : "Par ta vie, tu auras besoin de cette chose". Lorsque les Israélites ont péché avec le veau [d'or] et les espions, Moshé a prié devant Lui avec " lenteur de colère. " Le Saint, béni soit-Il, a dit : "Mais tu m'as dit : "au juste" ? Il (Moshé) Lui répondit : "Mais Tu m'as dit : 'même aux méchants'". 
+<b>Hachem, lent à la colère.</b> Aux justes et aux méchants. Lorsque Moshé monta en haut, il trouva le Saint, Béni soit-Il, assis et écrivant : " Hachem est lent à la colère. " Il (Moshé) lui a dit, "aux justes" ? Le Saint, béni soit-Il, lui dit : "même pour les méchants" ! Il (Moshé) lui a dit : "Que le méchant périsse" ! Il lui a dit : "Par ta vie, tu auras besoin de cette chose". Lorsque les Israélites ont péché avec le veau [d'or] et les espions, Moshé a prié devant Lui avec " lenteur de colère. " Le Saint, béni soit-Il, a dit : "Mais tu m'as dit : "au juste" ? Il (Moshé) Lui répondit : "Mais Tu m'as dit : 'même aux méchants'". 
 <b>Acquit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceux qui se repentent.
 <b>Il n'acquitte pas.</b> Ceux qui ne se repentent pas.
 
@@ -70,7 +70,7 @@
 
 ### passuk 22
 <b>M'ont mis à l'épreuve.</b> Comme son sens ordinaire.
-<b>Ces dix fois.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Deux fois lors de la [fente de la] mer, deux fois avec la manne, deux fois avec les cailles, etc. comme le précise le Maseches Arachin. 
+<b>Ces dix fois.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Deux fois lors de la [fente de la] mer, deux fois avec la manne, deux fois avec les cailles, etc. comme le précise le Masehet Arachin. 
 
 ### passuk 23
 <b>S'ils verront.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ils ne verront pas. <b>(S'ils verront la terre.</b> Ce passage devrait être réarrangé [comme suit] : Je vis, pour tous les hommes, s'ils verront la terre et pourtant Ma gloire remplira toute la terre, afin que Mon Nom ne soit pas profané par ce fléau [par ceux] qui disent : 'A cause de l'incapacité d'Hachem à les amener', car, Je ne les tuerai pas d'un coup, comme un seul homme, mais sur quarante ans, petit à petit). 
@@ -121,7 +121,7 @@
 <b>Slander.</b> <i>Parlerie</i> en ancien français.
 
 ### passuk 37
-<b>Dans un fléau, devant Adonoy.</b> Par la mort particulière qui leur convient, mesure pour mesure. Ils ont péché par la langue, de sorte que leurs langues ont été distendues jusqu'au nombril, et des asticots sont sortis de leurs langues et sont entrés dans leur nombril. C'est pourquoi il est dit, בַּמַּגֵּפָה, et non בְּמַּגֵּפָה . Et ceci est [le sens de] "devant Hachem" - comme leur convenant particulièrement, selon les attributs du Saint, Béni soit-Il, qui distribue mesure pour mesure. 
+<b>Dans un fléau, devant Hachem.</b> Par la mort particulière qui leur convient, mesure pour mesure. Ils ont péché par la langue, de sorte que leurs langues ont été distendues jusqu'au nombril, et des asticots sont sortis de leurs langues et sont entrés dans leur nombril. C'est pourquoi il est dit, בַּמַּגֵּפָה, et non בְּמַּגֵּפָה . Et ceci est [le sens de] "devant Hachem" - comme leur convenant particulièrement, selon les attributs du Saint, Béni soit-Il, qui distribue mesure pour mesure. 
 
 ### passuk 38
 <b>Yehoshua... et Caleiv... vécurent, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Qu'enseigne la Torah en disant "vécurent, parmi ces hommes" ? Elle enseigne qu'ils ont pris la part des espions dans le pays, les remplaçant dans la vie. 
@@ -131,7 +131,7 @@
 ### passuk 40
 <b>Au sommet de la montagne.</b> C'était la route qui montait vers Eretz Israël.
 <b>Nous sommes prêts à monter à cet endroit.</b> A Eretz Israël.
-<b>Dont Adonoy a parlé.</b> Pour nous donner - montons là-haut.
+<b>Dont Hachem a parlé.</b> Pour nous donner - montons là-haut.
 <b>Parce que nous avons péché.</b> Depuis que nous avons dit : "N'est-il pas mieux pour nous de retourner en Egypte ?" 
 
 ### passuk 41

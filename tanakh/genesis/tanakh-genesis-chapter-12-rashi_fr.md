@@ -5,10 +5,10 @@
 ### passuk 2
 <b>Je ferai de toi une grande nation.</b> Puisque le voyage provoque trois choses : Il empêche la naissance d'enfants, et diminue la richesse et la renommée de quelqu'un, donc, ces trois bénédictions étaient nécessaires. Il [Dieu], lui a promis des enfants, la richesse et la renommée. 
 <b>Je te bénirai.</b> Avec la richesse.
-<b>Et tu seras une bénédiction.</b> [C'est-à-dire que] les bénédictions te sont confiées. Jusqu'à présent, elles étaient dans Ma main ; J'ai béni Adam et Noach. Désormais, tu béniras qui tu voudras. Une autre explication : Je ferai de toi une grande nation. C'est la base de la prière d'ouverture du <i>Shemoneh Esrei</i>, quand nous disons : "Dieu d'Avraham." Je te bénirai. C'est la base pour dire : "Dieu de Yitzchok." 
-Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On pourrait penser [que la première berachah du <i>Shemoneh Esrei</i>] devrait se conclure en [mentionnant] les [trois]. Le texte dit donc . . . Et vous serez une bénédiction. Ce n'est qu'avec votre mention qu'il est conclu et non avec eux [Yitzchok et Yaakov]. 
+<b>Et tu seras une bénédiction.</b> [C'est-à-dire que] les bénédictions te sont confiées. Jusqu'à présent, elles étaient dans Ma main ; J'ai béni Adam et Noach. Désormais, tu béniras qui tu voudras. Une autre explication : Je ferai de toi une grande nation. C'est la base de la prière d'ouverture du <i>Shemoneh Esrei</i>, quand nous disons : "Dieu d'Avraham." Je te bénirai. C'est la base pour dire : "Dieu de Yitshak." 
+Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On pourrait penser [que la première berachah du <i>Shemoneh Esrei</i>] devrait se conclure en [mentionnant] les [trois]. Le texte dit donc . . . Et vous serez une bénédiction. Ce n'est qu'avec votre mention qu'il est conclu et non avec eux [Yitshak et Yaakov]. 
 <b>De ton pays.</b> Mais, n'était-il pas déjà parti de là avec son père et venu à Charan ? Mais, Il lui disait [en fait] : "Continue à t'éloigner de là et quitte la maison de ton père [aussi]". 
-<b>Vers le pays que je te montrerai.</b> Il ne révéla pas immédiatement de quel pays il s'agissait afin qu'il soit précieux à ses yeux, ainsi que pour le récompenser de chaque parole. De même : "Ton fils, ton unique, celui que tu aimes, Yitzchok" De même : "Sur l'une des montagnes que je te dirai," et de même : "Et annonce-lui la proclamation que je te dirai." 
+<b>Vers le pays que je te montrerai.</b> Il ne révéla pas immédiatement de quel pays il s'agissait afin qu'il soit précieux à ses yeux, ainsi que pour le récompenser de chaque parole. De même : "Ton fils, ton unique, celui que tu aimes, Yitshak" De même : "Sur l'une des montagnes que je te dirai," et de même : "Et annonce-lui la proclamation que je te dirai." 
 
 ### passuk 3
 <b>Et par toi, seront bénis.</b> Il existe de nombreuses interprétations aggadaïques, mais voici le sens simple : Un homme dit à son fils, "Que tu sois comme Avraham." C'est la signification chaque fois que [l'expression] וְנִבְרְכוּ בְךָ [apparaît] dans les Écritures. L'[expression] suivante le prouve : "Par toi, [le peuple d'] Israël bénira, en disant : Qu'Elohim vous rende comme Ephraïm et Menashé." 
@@ -22,7 +22,7 @@ Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On po
 <b>Avram passa [voyagea] à travers le pays.</b> [Signifiant] il y entra.
 <b>Jusqu'au lieu de Sichem.</b> Afin de prier pour les fils de Yaakov lorsqu'ils viendront livrer bataille contre Sichem. 
 <b>La plaine de Moreh.</b> C'est [un autre nom pour] Sichem. [Elle est appelée ainsi parce que là] Il lui a montré le mont Gerizim et le mont Eival où Israël a accepté le serment de respecter la Torah.
-<b>Les Cananéens étaient alors dans le pays.</b> Il [le Cananéen] conquit progressivement Eretz Yisraël aux descendants de Sheim. Car elle échut à la part de Sheim lorsque Noach répartit la terre à ses fils, comme il est dit : "Malki Zedek, roi de Shaleim." Pour cette raison, "Adonoy a dit à Avram : "Je donnerai cette terre à tes descendants", ce qui signifie : "Dans le futur, je la rendrai à tes enfants qui sont des descendants de Sheim". 
+<b>Les Cananéens étaient alors dans le pays.</b> Il [le Cananéen] conquit progressivement Eretz Yisraël aux descendants de Sheim. Car elle échut à la part de Sheim lorsque Noach répartit la terre à ses fils, comme il est dit : "Malki Zedek, roi de Shaleim." Pour cette raison, "Hachem a dit à Avram : "Je donnerai cette terre à tes descendants", ce qui signifie : "Dans le futur, je la rendrai à tes enfants qui sont des descendants de Sheim". 
 
 ### passuk 7
 <b>C'est là qu'il construisit un autel.</b> [En remerciement] de la nouvelle [qu'il avait] des enfants et de la nouvelle [qu'ils hériteraient] d'Eretz Yisrael. 
@@ -57,7 +57,7 @@ Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On po
 <b>Il traita bien Avram,</b> ["il" fait référence à] Pharaon, <b>pour l'amour d'elle.</b> 
 
 ### passuk 17
-<b>Adonoy affligé, etc.</b> Il était frappé d'une sorte de maladie de peau pour laquelle les relations conjugales sont néfastes. 
+<b>Hachem affligé, etc.</b> Il était frappé d'une sorte de maladie de peau pour laquelle les relations conjugales sont néfastes. 
 <b>Et aussi sa famille.</b> [Il faut interpréter] comme son Targum : "Et sur <i>les gens</i> de sa maison". Son interprétation midrashique [est que] : [וְאֶת בֵּיתוֹ] comprend ses murs, ses piliers et ses ustensiles. 
 <b>À cause de Saraï.</b> [Signification :] selon ses paroles, elle dit à l'ange : "Frappe [lui] !" et il le frappe. 
 

@@ -2,11 +2,11 @@
 ### passuk 1
 
 ### passuk 2
-<b>Tout commandement d'Adonoy. </b> Nos rabbins ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
+<b>Tout commandement d'Hachem. </b> Nos rabbins ont expliqué : Une offrande de péché ne vient que pour une chose dont la violation intentionnelle [implique] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> un commandement négatif et [la peine] de <i>kareis.</i>
 <b>L'un d'entre eux,</b> une partie de l'un d'entre eux, comme celui qui écrit le Chabbath, Shem de Shimon, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Noach de Nochor, Don de Doniel. 
 
 ### passuk 3
-<b>Si le kohein oint devait pécher pour apporter la culpabilité sur le peuple,</b> Son interprétation midrashique : Il n'est pas obligé [d'apporter un sacrifice pour le péché] à moins qu'il n'y ait une chose cachée en même temps <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'un acte [illégal] non intentionnel, comme il est dit : "pour faire peser la culpabilité sur le peuple" "et quelque chose est caché à la congrégation et elle le fait." Et son sens ordinaire selon le <i>aggodoh</i> : Lorsque le <i>kohein godol</i> pèche, cela [entraîne] la culpabilité du peuple, car ils dépendent de lui pour expier pour eux et prier pour eux - et [maintenant] il s'est affaibli. 
+<b>Si le Cohen oint devait pécher pour apporter la culpabilité sur le peuple,</b> Son interprétation midrashique : Il n'est pas obligé [d'apporter un sacrifice pour le péché] à moins qu'il n'y ait une chose cachée en même temps <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'un acte [illégal] non intentionnel, comme il est dit : "pour faire peser la culpabilité sur le peuple" "et quelque chose est caché à la congrégation et elle le fait." Et son sens ordinaire selon le <i>aggodoh</i> : Lorsque le <i>Cohen godol</i> pèche, cela [entraîne] la culpabilité du peuple, car ils dépendent de lui pour expier pour eux et prier pour eux - et [maintenant] il s'est affaibli. 
 <b>Taureau</b> [littéralement, "un taureau, fils de bétail."] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Peut-être un ancien ? Le verset dit : "fils". Si c'est un fils, peut-être un jeune ? Le verset dit : "un taureau". Comment cela ? Il s'agit d'un taureau de trois ans. 
 
 ### passuk 4
@@ -28,14 +28,14 @@
 ### passuk 9
 
 ### passuk 10
-<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un bœuf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Plutôt, pour comparer cela à un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est requis pour en dériver [la règle] selon laquelle nous ne pouvons pas dériver une <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> loi d'une loi [qui itslf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevochim, 49b]. 
+<b>De la même manière qu'elles ont été séparées,</b> de ces graisses [à brûler] expliquées concernant un bœuf [offert] en sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais qu'est-ce qui a été expliqué à propos d'un sacrifice de paix qui n'a pas été expliqué ici ? Plutôt, pour comparer cela à un sacrifice de paix. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même que les offrandes de paix [doivent être offertes] pour elles-mêmes, ceci [doit être offert] pour lui-même ; et de même que les offrandes de paix [apportent] la paix au monde, ceci [apporte] la paix au monde. Et [il est enseigné] <i>Shechitas Kodoshim,</i> [que le verset] est requis pour en dériver [la règle] selon laquelle nous ne pouvons pas dériver une <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> loi d'une loi [qui itslf a été dérivée des écritures] concernant les Choses Saintes [= sacrifices] - dans le chapitre Ezehu Mekoman [= Zevahim, 49b]. 
 <b>Sur le foie, sur les reins, avec sa tête et ses pieds</b> - tous [= tous les "on" mentionnés dans ces versets] sont des expressions d'"addition", comme [le mot] "outre". 
 
 ### passuk 11
 
 ### passuk 12
 <b>Vers un lieu pur [non souillé].</b> Puisqu'il y a en dehors de la ville un lieu préparé pour l'impureté - [dans lequel] on jette des pierres frappées de peste, et [réservé] pour un cimetière - il était nécessaire de préciser qu'"au-delà du campement", qui est en dehors de la ville [= Jérusalem], que le lieu doit être pur. 
-<b>Au delà du campement, </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>au delà des trois campements, et dans le Temple, [cela signifie] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à l'extérieur de la ville [de Jérusalem], comme nos rabbins l'ont expliqué dans Maseches Yomo et dans Sanhedrin. 
+<b>Au delà du campement, </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>au delà des trois campements, et dans le Temple, [cela signifie] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à l'extérieur de la ville [de Jérusalem], comme nos rabbins l'ont expliqué dans Masehet Yomo et dans Sanhedrin. 
 <b>Où l'on jette les cendres,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>un endroit où l'on répand les cendres retirées de l'autel, comme il est dit : "Il emportera les cendres au-delà du campement [dans un endroit pur]." 
 <b>Il sera brûlé à l'endroit où l'on jette les cendres.</b> Bien que le verset n'avait pas besoin de dire [cela], sauf pour enseigner que [le taureau est brûlé] même si <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il n'y a pas de cendres à cet endroit.
 
@@ -51,7 +51,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Devant le rideau. </b> [Mais] au-dessus, il est écrit : "Devant le <i>Saint</i> rideau." [Pourquoi ce changement de terminologie ?] On peut le comparer à un roi contre lequel une province s'est rebellée ; si la plus petite partie de celle-ci s'est rebellée, sa cour continue d'exister. Mais si toute la province s'est rebellée, sa cour ne continue pas d'exister. Il en va de même ici. Lorsque les oints <i>kohein</i> [= les <i>kohein godol</i>] ont péché, il y a encore la désignation de sainteté sur le Temple ; lorsqu'ils pèchent tous, à Dieu ne plaise, la sainteté est supprimée. 
+<b>Devant le rideau. </b> [Mais] au-dessus, il est écrit : "Devant le <i>Saint</i> rideau." [Pourquoi ce changement de terminologie ?] On peut le comparer à un roi contre lequel une province s'est rebellée ; si la plus petite partie de celle-ci s'est rebellée, sa cour continue d'exister. Mais si toute la province s'est rebellée, sa cour ne continue pas d'exister. Il en va de même ici. Lorsque les oints <i>Cohen</i> [= les <i>Cohen godol</i>] ont péché, il y a encore la désignation de sainteté sur le Temple ; lorsqu'ils pèchent tous, à Dieu ne plaise, la sainteté est supprimée. 
 
 ### passuk 18
 <b>La base de l'autel des holocaustes qui est à l'entrée de la Tente de la Rencontre.</b> Ceci [fait référence] à la base occidentale qui est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>opposée "à l'entrée [de la Tente de la Rencontre ou du Sanctuaire]."
@@ -60,7 +60,7 @@
 <b>Il enlèvera toute sa graisse. </b>Même si le lobe et les deux rognons ne sont pas spécifiés ici, on l'apprend de "il fera au taureau ce qu'il a fait [au sacrifice pour le péché]". Pourquoi cela n'a-t-il pas été expliqué ici ? Cela a été enseigné dans l'école de R. Yishmo'el : Ceci peut être comparé à un roi qui s'est mis en colère contre son ami, [mais] a minimisé son péché en raison de son amour pour lui. 
 
 ### passuk 20
-<b>Il fera à</b> - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>cette - <b>bœuf comme il a fait au bœuf expiatoire</b>, comme il l'a expliqué à propos du taureau de l'oint <i>kohein</i> [= le <i>kohein godol</i>] - pour inclure <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le lobe et les deux reins - car il a expliqué là-bas ce qu'il n'a pas expliqué ici, et pour répéter les <i>mitzvos</i> des services [du Temple], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour enseigner que s'il a omis une de toutes les applications [du sang], elle est invalide. Parce que nous avons trouvé [ailleurs] que [si le sang] qui devait être placé sur l'autel extérieur que s'il le plaçait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>avec une seule application - il a [néanmoins effectué] l'expiation, il était nécessaire de dire ici, que [l'omission de] n'importe laquelle de ces applications empêche [l'expiation]. 
+<b>Il fera à</b> - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>cette - <b>bœuf comme il a fait au bœuf expiatoire</b>, comme il l'a expliqué à propos du taureau de l'oint <i>Cohen</i> [= le <i>Cohen godol</i>] - pour inclure <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le lobe et les deux reins - car il a expliqué là-bas ce qu'il n'a pas expliqué ici, et pour répéter les <i>mitzvos</i> des services [du Temple], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour enseigner que s'il a omis une de toutes les applications [du sang], elle est invalide. Parce que nous avons trouvé [ailleurs] que [si le sang] qui devait être placé sur l'autel extérieur que s'il le plaçait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>avec une seule application - il a [néanmoins effectué] l'expiation, il était nécessaire de dire ici, que [l'omission de] n'importe laquelle de ces applications empêche [l'expiation]. 
 
 ### passuk 21
 
@@ -101,7 +101,7 @@
 
 ### passuk 35
 <b>Comme on enlevait la graisse de l'agneau,</b> dont les graisses [brûlées sur l'autel] étaient augmentées par [l'ajout] de la queue de la graisse, de même l'offrande de péché, quand elle vient [comme] un agneau, exige [que] la queue de la graisse [soit brûlée] avec les graisses. 
-<b>Sur les feux d'Adonoy,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur les feux que l'on fait pour Dieu [par l'effort humain], <i>failles</i> en vieux français. 
+<b>Sur les feux d'Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur les feux que l'on fait pour Dieu [par l'effort humain], <i>failles</i> en vieux français. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

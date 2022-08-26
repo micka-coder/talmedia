@@ -3,7 +3,7 @@
 <b>Nous avons tourné et monté.</b> Tout le [voyage] vers le nord était en montée.
 
 ### passuk 2
-<b>Ne le craignez pas.</b> Concernant Sichon, il n'était pas nécessaire de dire : " Ne le craignez pas ", [mais concernant Og] Moshé était troublé qu'il ne bénéficie pas du mérite d'avoir rendu service à Avrohom, comme il est dit : " celui qui a échappé est venu ", et c'était Og. 
+<b>Ne le craignez pas.</b> Concernant Sichon, il n'était pas nécessaire de dire : " Ne le craignez pas ", [mais concernant Og] Moshé était troublé qu'il ne bénéficie pas du mérite d'avoir rendu service à Avraham, comme il est dit : " celui qui a échappé est venu ", et c'était Og. 
 
 ### passuk 3
 
@@ -36,7 +36,7 @@
 <b>Nous avons hérité à cette époque, d'Aroer qui est sur le Wadi Arnon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il ne faut pas faire le lien avec la première partie du verset mais avec sa conclusion - avec "J'ai donné aux Reuvenites et aux Gaddites." Cependant en ce qui concerne l'héritage (la possession) qui était de [Wadi Arnon] au mont Chermon . 
 
 ### passuk 13
-<b>C'est ce qu'on appelle le pays des Rephaïm.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est le pays que j'ai donné à Avrohom.
+<b>C'est ce qu'on appelle le pays des Rephaïm.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est le pays que j'ai donné à Avraham.
 
 ### passuk 14
 
@@ -46,7 +46,7 @@
 <b>Dans l'oued et la frontière.</b> Tout l'oued et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>jusqu'à sa rive opposée. En d'autres termes, עַד ne signifie pas seulement jusqu'à mais inclut tout ce qui s'y trouve et même plus. 
 
 ### passuk 17
-<b>De Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est sur le côté ouest du Yardein. L'héritage de Bnei Gad était sur le côté oriental du Yardein et leur héritage comprenait la largeur du Yardein attenant à leurs terres, plus [quelques] terres sur son côté opposé jusqu'à Kinneres. c'est donc ce qui est dit ici, "Et le Yardein et la frontière", Le Yardein et (quelques terres) sur son côté opposé. 
+<b>De Kinneres.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est sur le côté ouest du Jourdain. L'héritage de Bnei Gad était sur le côté oriental du Jourdain et leur héritage comprenait la largeur du Jourdain attenant à leurs terres, plus [quelques] terres sur son côté opposé jusqu'à Kinneres. c'est donc ce qui est dit ici, "Et le Jourdain et la frontière", Le Jourdain et (quelques terres) sur son côté opposé. 
 
 ### passuk 18
 <b>Je vous ai ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il parlait aux Bnei Reuvein et aux Bnei Gad.
@@ -66,7 +66,7 @@
 <b>Dire.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est l'une des trois occasions où Moshé a dit au Tout-Puissant : "Je ne Te laisserai pas tranquille jusqu'à ce que Tu me fasses savoir si Tu feras ce que j'ai demandé ou non." 
 
 ### passuk 24
-<b>Adonoy, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Merciant dans le jugement. 
+<b>Hachem, Elohim.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Merciant dans le jugement. 
 <b>Vous avez commencé à montrer à Votre serviteur</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>une occasion de se tenir debout et de prier, même si le décret est sorti. Il [Moché] Lui dit : " J'ai appris cela de toi, car Tu m'as dit : " Maintenant, laisse-moi tranquille ". Est-ce que je Te tenais alors ? [Mais Tu as dit cela] pour donner une occasion [et montrer] que c'était à moi de prier pour eux. De même, j'ai pensé à le faire maintenant." 
 <b>Votre grandeur.</b> Cela fait référence à Votre attribut de bonté. De même, il est dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> "Et maintenant, veuillez magnifier la puissance de mon maître." 
 <b>Et Ta main.</b> Cela fait référence à Ta main droite <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui est tendue à tous ceux qui entrent dans le monde.
@@ -79,12 +79,12 @@
 <b>Et le Liban.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une référence au <i>Bais HaMikdosh.</i>
 
 ### passuk 26
-<b>Adonoy s'est mis en colère [contre moi].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il était rempli de colère.
+<b>Hachem s'est mis en colère [contre moi].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il était rempli de colère.
 <b>Par ta faute.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tu as fait en sorte que cela [m'arrive]. De même, il est dit : " Ils l'ont provoqué aux eaux de Merivah, et Moshé a subi un préjudice à cause d'eux. " 
 <b>Assez pour vous.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Afin que l'on ne dise pas : "Que le Maître est dur, et que le disciple est têtu et suppliant." <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une autre explication de רַב לָךְ . Bien plus que cela est préservé pour vous, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>grande est la bonté qui est cachée pour vous. (Siphre) 
 
 ### passuk 27
-<b>Et vois de tes propres yeux.</b> Tu m'as demandé - "Et fais-moi voir le bon pays";<i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Je te le montrerai tout entier, comme il est dit : "Et Adonoy lui montra tout le pays". 
+<b>Et vois de tes propres yeux.</b> Tu m'as demandé - "Et fais-moi voir le bon pays";<i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Je te le montrerai tout entier, comme il est dit : "Et Hachem lui montra tout le pays". 
 
 ### passuk 28
 <b>Et commande à Yehoshua.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En ce qui concerne les troubles, les fardeaux et les querelles [de leadership]. 

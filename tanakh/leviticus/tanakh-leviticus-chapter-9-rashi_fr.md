@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Parce qu'aujourd'hui Adonoy vous apparaîtra -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour reposer Son <i>Shechinoh</i> sur l'œuvre de vos mains ; c'est pourquoi ces sacrifices sont obligatoires pour ce jour.
+<b>Parce qu'aujourd'hui Hachem vous apparaîtra -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour reposer Son <i>Shechinoh</i> sur l'œuvre de vos mains ; c'est pourquoi ces sacrifices sont obligatoires pour ce jour.
 
 ### passuk 5
 
@@ -54,7 +54,7 @@
 <b>La couverture,</b> [c'est-à-dire] la graisse <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> recouvrant les entrailles. 
 
 ### passuk 20
-<b>On mettait les graisses sur le dessus des seins,</b> après l'"agitation", le <i>kohein</i> [qui faisait] l'agitation les donnait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> à un autre <i>kohein</i> pour les brûler ; [ainsi, ce qui] était en haut était [maintenant] en bas. 
+<b>On mettait les graisses sur le dessus des seins,</b> après l'"agitation", le <i>Cohen</i> [qui faisait] l'agitation les donnait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> à un autre <i>Cohen</i> pour les brûler ; [ainsi, ce qui] était en haut était [maintenant] en bas. 
 
 ### passuk 21
 
@@ -64,7 +64,7 @@
 
 ### passuk 23
 <b>Moshé et Aharon sont allés [dans], etc.</b> Pourquoi sont-ils entrés ? J'ai trouvé dans la section des Millu'im, dans l'ajout de בָּרַיְיתָא à notre Toras Kohanim : Pourquoi Moshé est-il entré avec Aharon ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour lui apprendre le rituel de l'encens, ou peut-être est-il entré dans un autre but ? Je peux argumenter [comme suit] : La descente et l'entrée nécessitent une bénédiction, de même que la descente est similaire au service [du Temple], l'entrée est similaire au service [du Temple]. Par conséquent, vous avez appris : Pourquoi Moshé est-il entré avec Aharon ? Pour lui enseigner le rituel de l'encens. Une autre interprétation : Lorsqu'Aharon vit qu'ils avaient offert tous les sacrifices, que tous les rituels avaient été accomplis et que [toujours] le <i>Shechinoh</i> n'était pas descendu pour Israël, il fut peiné et pensa : " Je sais que Dieu est en colère contre moi et [c'est] à cause de moi que le Shechinoh n'est pas descendu pour Israël " ! Il dit à Moshé : "Mon frère Moshé, c'est cela que tu m'as fait, que je suis entré et que j'ai eu honte" ? Moshé entra immédiatement avec lui, et ils implorèrent la pitié, et le <i>Shechinoh</i> descendit pour Israël. 
-<b>Ils sortirent et bénirent le peuple.</b> Ils dirent : "'Que l'agrément d'Adonoy notre Dieu soit sur nous.'' <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Que ce soit [Sa] volonté que le <i>Shechinoh</i> se repose sur l'œuvre de vos mains." Parce que tous les sept jours de l'installation [pendant lesquels] Moshé a monté le Tabernacle et y a servi [comme <i>kohein</i>], et l'a démonté chaque jour - le <i>Shechinoh</i> ne s'est pas reposé dessus, et Israël a eu honte, disant à Moshé : " Notre maître Moshé ! Tout le mal que nous nous sommes donné [pour] que le <i>Shechinoh</i> repose parmi nous, et que nous sachions que nous avons accompli l'expiation du péché du Veau [d'or]. Il leur dit donc : "C'est ce qu'Adonoy vous a ordonné de faire et la gloire d'Adonoy vous apparaîtra. Mon frère Aharon est digne et [encore] plus important que moi, car grâce à ses sacrifices et à son service, le <i>Shechinoh</i> reposera parmi vous, et vous saurez que l'Omniprésent l'a choisi. 
+<b>Ils sortirent et bénirent le peuple.</b> Ils dirent : "'Que l'agrément d'Hachem notre Dieu soit sur nous.'' <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Que ce soit [Sa] volonté que le <i>Shechinoh</i> se repose sur l'œuvre de vos mains." Parce que tous les sept jours de l'installation [pendant lesquels] Moshé a monté le Tabernacle et y a servi [comme <i>Cohen</i>], et l'a démonté chaque jour - le <i>Shechinoh</i> ne s'est pas reposé dessus, et Israël a eu honte, disant à Moshé : " Notre maître Moshé ! Tout le mal que nous nous sommes donné [pour] que le <i>Shechinoh</i> repose parmi nous, et que nous sachions que nous avons accompli l'expiation du péché du Veau [d'or]. Il leur dit donc : "C'est ce qu'Hachem vous a ordonné de faire et la gloire d'Hachem vous apparaîtra. Mon frère Aharon est digne et [encore] plus important que moi, car grâce à ses sacrifices et à son service, le <i>Shechinoh</i> reposera parmi vous, et vous saurez que l'Omniprésent l'a choisi. 
 
 ### passuk 24
 <b>Ils élevèrent [leurs voix],</b> selon son Targum. 

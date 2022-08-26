@@ -10,7 +10,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Et des cymbales.</b> Le Targum Yonoson rend : 'et avec des cymbales', un type d'instrument de musique.</sup></sup><i class="footnote">Peut-être une harpe à trois [=<span>שָׁלשׁ</span>] cordes.-Radak.</i>
+<b>Et des cymbales.</b> Le Targum Yonathan rend : 'et avec des cymbales', un type d'instrument de musique.</sup></sup><i class="footnote">Peut-être une harpe à trois [=<span>שָׁלשׁ</span>] cordes.-Radak.</i>
 
 ### passuk 7
 
@@ -41,7 +41,7 @@
 ### passuk 17
 <b>Shaul dit.</b> A lui-même.
 <b>Que ma main ne soit pas sur lui.</b> De peur d'être puni.
-<b>Mais que la main des Philistins soit sur lui.</b> C'est pourquoi, il lui dit : "et fais les guerres d'Adonoy."
+<b>Mais que la main des Philistins soit sur lui.</b> C'est pourquoi, il lui dit : "et fais les guerres d'Hachem."
 
 ### passuk 18
 
@@ -51,7 +51,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Par la seconde [de mes deux filles], tu deviendras mon gendre.</b> J'ai deux filles ; par l'une d'entre elles, tu deviendras mon gendre.</sup>5</sup><i class="footnote">Voir Maseches Sanhedrin 19b.</i>Et de la même manière, le Targum Yonoson a rendu, 'avec l'une des deux'. De même, [nous trouvons] : " Je tiens trois choses [c'est-à-dire une des trois choses] sur toi "<sup>6</sup><i class="footnote">II Shmuel 24:12.</i> comme l'Écriture le précise à cet endroit, " choisis-en une. "<sup>7</sup><i class="footnote">Ibid.</i>
+<b>Par la seconde [de mes deux filles], tu deviendras mon gendre.</b> J'ai deux filles ; par l'une d'entre elles, tu deviendras mon gendre.</sup>5</sup><i class="footnote">Voir Masehet Sanhedrin 19b.</i>Et de la même manière, le Targum Yonathan a rendu, 'avec l'une des deux'. De même, [nous trouvons] : " Je tiens trois choses [c'est-à-dire une des trois choses] sur toi "<sup>6</sup><i class="footnote">II Shmuel 24:12.</i> comme l'Écriture le précise à cet endroit, " choisis-en une. "<sup>7</sup><i class="footnote">Ibid.</i>
 
 ### passuk 22
 

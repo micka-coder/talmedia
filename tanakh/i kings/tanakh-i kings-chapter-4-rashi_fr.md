@@ -26,7 +26,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Nofas-dor.</b> [Le Targum Yonoson a rendu,] le district [פלך] de Dor.
+<b>Nofas-dor.</b> [Le Targum Yonathan a rendu,] le district [פלך] de Dor.
 
 ### passuk 12
 
@@ -44,7 +44,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Et un officier sur les terres.</b> Rav et Shmuel ont des opinions divergentes, l'un dit, un a été nommé sur tous, et c'était Azaryoh[u] le fils de Noson, qui a été mentionné précédemment,<sup>6</sup><i class="footnote">Avant le v. 5.</i> et l'un dit qu'il a été [nommé] pour le treizième mois.<sup>7</sup><i class="footnote">I.e., le but de la nomination d'un treizième officier était de prendre soin du roi pour le treizième mois d'une année bissextile. Voir Maseches Sanhedrin 12a. </i>
+<b>Et un officier sur les terres.</b> Rav et Shmuel ont des opinions divergentes, l'un dit, un a été nommé sur tous, et c'était Azaryoh[u] le fils de Noson, qui a été mentionné précédemment,<sup>6</sup><i class="footnote">Avant le v. 5.</i> et l'un dit qu'il a été [nommé] pour le treizième mois.<sup>7</sup><i class="footnote">I.e., le but de la nomination d'un treizième officier était de prendre soin du roi pour le treizième mois d'une année bissextile. Voir Masehet Sanhedrin 12a. </i>
 
 >Crédit : sefaris
 >Licence : CC-BY

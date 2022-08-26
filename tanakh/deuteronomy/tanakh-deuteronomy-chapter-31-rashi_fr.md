@@ -3,7 +3,7 @@
 
 ### passuk 2
 <b>Moshe est parti, etc. Je ne peux plus aller et revenir.</b> Peut-être ses forces ont-elles diminué ? La Torah enseigne donc : "Son apparence ne s'est pas émoussée, et sa fraîcheur ne s'est pas fanée." Alors que signifie "je ne peux pas" ? Il ne m'est pas permis, car l'autorité m'a été retirée et conférée à Yehoshua. 
-<b>Parce que Adonoy m'a dit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela explique "Je ne peux plus aller et revenir" - car Adonoy m'a dit.
+<b>Parce que Hachem m'a dit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela explique "Je ne peux plus aller et revenir" - car Hachem m'a dit.
 <b>Je suis... aujourd'hui.</b> Aujourd'hui mes jours et mes années sont achevés - aujourd'hui est le jour où je suis né, et aujourd'hui est le jour où je mourrai. Autre interprétation : Aller et revenir en ce qui concerne les paroles de la Torah. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Cela enseigne qu'il a été scellé des enseignements masorétiques et des sources de sagesse. 
 
 ### passuk 3
@@ -70,7 +70,7 @@
 
 ### passuk 26
 <b>Prendre.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme "se souvenir", "garder", "aller". 
-<b>Du côté de l'arche de l'alliance d'Adonoy...</b> Il y a une divergence d'opinion ici parmi les sages de Israël, dans le tractat Bava Basra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle a été placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
+<b>Du côté de l'arche de l'alliance d'Hachem...</b> Il y a une divergence d'opinion ici parmi les sages de Israël, dans le tractat Bava Batra. Certains d'entre eux disent qu'il y avait une étagère qui s'étendait à l'extérieur de l'arche, et qu'elle a été placée là. D'autres disent qu'elle était placée à côté des tablettes, à l'intérieur de l'arche. 
 
 ### passuk 27
 
@@ -79,7 +79,7 @@
 <b>Et invoquer comme témoins contre eux le ciel et la terre.</b> Mais, pourrait-on soutenir, il les a déjà invoqués comme témoins plus haut - "J'invoque comme témoins contre vous, aujourd'hui, etc." Là, il s'adressait aux Israélites, mais ne s'adressait pas au ciel et à la terre. Là, il s'adressait aux Israélites, mais pas au ciel et à la terre. Maintenant, il voulait dire : "Écoute, ô ciel, etc. 
 
 ### passuk 29
-<b>Après ma mort, que vous deviendrez dépravés.</b> Pourtant, durant tous les jours de Yehoshua, ils n'étaient pas dépravés, comme il est dit : " Le peuple adorait Adonoy tous les jours de Yehoshua. " [On déduit] de là que le disciple d'un homme lui est aussi précieux que sa propre personne, car, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tant que Yehoshua était vivant, il apparaissait, à Moshé, comme s'il était lui-même vivant. 
+<b>Après ma mort, que vous deviendrez dépravés.</b> Pourtant, durant tous les jours de Yehoshua, ils n'étaient pas dépravés, comme il est dit : " Le peuple adorait Hachem tous les jours de Yehoshua. " [On déduit] de là que le disciple d'un homme lui est aussi précieux que sa propre personne, car, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tant que Yehoshua était vivant, il apparaissait, à Moshé, comme s'il était lui-même vivant. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

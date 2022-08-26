@@ -86,7 +86,7 @@ et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> l'autel de cuivr
 <b>Et tout ce qui leur sera donné [lit. fait].</b> Comme le traduit le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"tout ce qui leur sera donné" - aux fils de Gershon. 
 
 ### passuk 27
-<b>Sur instruction d'Aharon et [d'un] de ses fils.</b> Lequel de ses fils est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nommé sur eux ? Sous la supervision d'Isamar, fils d'Aharon, le <i>kohein.</i> 
+<b>Sur instruction d'Aharon et [d'un] de ses fils.</b> Lequel de ses fils est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nommé sur eux ? Sous la supervision d'Isamar, fils d'Aharon, le <i>Cohen.</i> 
 
 ### passuk 28
 
@@ -135,7 +135,7 @@ et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> l'autel de cuivr
 ### passuk 48
 
 ### passuk 49
-<b>Et ils furent comptés, comme Adonoy l'avait ordonné à Moshé.</b> Ceux qui furent comptés étaient, comme ordonné, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de trente à cinquante ans. 
+<b>Et ils furent comptés, comme Hachem l'avait ordonné à Moshé.</b> Ceux qui furent comptés étaient, comme ordonné, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de trente à cinquante ans. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

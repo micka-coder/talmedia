@@ -2,13 +2,13 @@
 ### passuk 1
 
 ### passuk 2
-<b>Ne descends pas en Égypte.</b> Parce qu'il [Yitzchok] avait l'intention de descendre en Égypte comme son père l'avait fait pendant les jours de famine. Il [Dieu] lui dit : "Ne descends pas en Égypte car tu es un holocauste sans défaut et être hors de la terre [sainte] ne te sied pas." 
+<b>Ne descends pas en Égypte.</b> Parce qu'il [Yitshak] avait l'intention de descendre en Égypte comme son père l'avait fait pendant les jours de famine. Il [Dieu] lui dit : "Ne descends pas en Égypte car tu es un holocauste sans défaut et être hors de la terre [sainte] ne te sied pas." 
 
 ### passuk 3
 <b>Ceux-ci.</b> [הָאֵל est] identique à הָאֵלֶּה [ceux-là]. 
 
 ### passuk 4
-<b>Ta descendance sera bénie.</b> [Signification :] un homme dira à son fils : "Que tes enfants soient comme les enfants de Yitzchok." Cette [phrase] a une signification similaire dans toutes les Écritures. Et le [verset] suivant est l'archétype de tous : "C'est par toi que [le peuple d'] Israël bénira, en disant : "Qu'Elohim te fasse [comme Ephraïm et Menashé]". Nous trouvons également ceci concernant une malédiction : "Et la femme sera une malédiction" par laquelle celui qui maudit son ennemi dit : "Puisses-tu être comme cette femme en particulier". De même : "Que tu laisses ton nom comme un serment à mon élu", par lequel celui qui fait un serment dit : "Que je sois comme cette personne en particulier si j'ai fait telle et telle chose." 
+<b>Ta descendance sera bénie.</b> [Signification :] un homme dira à son fils : "Que tes enfants soient comme les enfants de Yitshak." Cette [phrase] a une signification similaire dans toutes les Écritures. Et le [verset] suivant est l'archétype de tous : "C'est par toi que [le peuple d'] Israël bénira, en disant : "Qu'Elohim te fasse [comme Ephraïm et Menashé]". Nous trouvons également ceci concernant une malédiction : "Et la femme sera une malédiction" par laquelle celui qui maudit son ennemi dit : "Puisses-tu être comme cette femme en particulier". De même : "Que tu laisses ton nom comme un serment à mon élu", par lequel celui qui fait un serment dit : "Que je sois comme cette personne en particulier si j'ai fait telle et telle chose." 
 
 ### passuk 5
 <b>Avraham a écouté ma voix.</b> Lorsque je l'ai mis à l'épreuve.
@@ -41,7 +41,7 @@
 <b>Plus de cent fois.</b> Car ils avaient estimé la quantité qu'elle devait produire et pour chaque estimé, elle en a produit cent. Nos Sages ont dit, le but de cette estimation était pour la dîme. 
 
 ### passuk 13
-<b>Il est devenu très grand.</b> De sorte que les gens disaient : "[Plutôt] le fumier des mules de Yitzchok que l'argent et l'or d'Avimelech".
+<b>Il est devenu très grand.</b> De sorte que les gens disaient : "[Plutôt] le fumier des mules de Yitshak que l'argent et l'or d'Avimelech".
 
 ### passuk 14
 <b>Et beaucoup d'esclaves.</b> [Signification :] une grande quantité de travail [ou de production], <i>ovreine</i> en ancien français. עֲבוֹדָה désigne un travail particulier [alors que] עֲבֻדָּה désigne une grande quantité de production. 
@@ -55,7 +55,7 @@
 <b>Dans la vallée de Gerar.</b> Loin de la ville.
 
 ### passuk 18
-<b>Retourner, creuser.</b> [Signification :] ces puits qu'on avait creusés du temps de son père Avraham et que les Philistins avaient bouchés, avant que Yitzchok ne parte de Gerar, il les creusa de nouveau. 
+<b>Retourner, creuser.</b> [Signification :] ces puits qu'on avait creusés du temps de son père Avraham et que les Philistins avaient bouchés, avant que Yitshak ne parte de Gerar, il les creusa de nouveau. 
 
 ### passuk 19
 
@@ -102,7 +102,7 @@
 <b>Quarante ans.</b> Eisov est comparé à un cochon comme il est dit : "Le sanglier de la forêt le ravage." Lorsque le cochon se couche, il tend ses sabots comme pour dire : "Voyez, je suis un animal propre". Ainsi, eux aussi, les descendants d'Eisov, volent et extorquent et prétendent être honorables. Pendant [les premières] quarante années, Eisov enlevait les femmes à leurs maris et les prenait de force ; lorsqu'il atteignit quarante ans, il dit : "Père avait quarante ans lorsqu'il s'est marié et je ferai de même". 
 
 ### passuk 35
-<b>Rebelleux d'esprit.</b> Expression signifiant : un esprit de rébellion, comme dans : "[מַמְרִים] Tu étais rebelle." Tous leurs actes étaient de nature à mettre en colère et à causer du chagrin à Yitzchok et à Rivkah, car ils adoraient des idoles. 
+<b>Rebelleux d'esprit.</b> Expression signifiant : un esprit de rébellion, comme dans : "[מַמְרִים] Tu étais rebelle." Tous leurs actes étaient de nature à mettre en colère et à causer du chagrin à Yitshak et à Rivkah, car ils adoraient des idoles. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

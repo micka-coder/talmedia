@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Tous ses jours, selon les instructions de Yehoyoda le <i>kohein</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité." Le roi les écouta.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, "tous ses jours selon les instructions de Yehoyada le <i>kohein</i>", c'est-à-dire tant que Yehoyada était en vie.-Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Yerusholayim.</i>
+<b>Tous ses jours, selon les instructions de Yehoyoda le <i>Cohen</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité." Le roi les écouta.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, "tous ses jours selon les instructions de Yehoyada le <i>Cohen</i>", c'est-à-dire tant que Yehoyada était en vie.-Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Jérusalem.</i>
 
 ### passuk 4
 
@@ -20,7 +20,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayomim 24:7.-Radak</i>.
+<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
 <b>Mais pour la restauration du Beis [Hamikdosh]</b> Si ce sera moins [que nécessaire], que ce soit moins, et si ce sera plus [que nécessaire], que ce soit laissé.
 
 ### passuk 9
@@ -28,7 +28,7 @@
 ### passuk 10
 <b>Près de l'autel.</b> Dans la cour [du Temple].
 <b>À droite, comme une personne entre.</b> À droite [du côté] où les gens entrent.
-<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonoson l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Maseches] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
+<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonatanh l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
 <b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient l'argent en sac et le comptaient."-Radak</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohein Gadol</i>] etc.</b>
@@ -45,7 +45,7 @@
 <b>Et pour les tailleurs de pierre.</b> De la montagne.
 
 ### passuk 14
-<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayomim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara, dans Maseches Kesubos 106b, explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple.-Radak</i><sup>13</sup><i class="footnote">Rashi soutient que סִפּוֹת sont des instruments de musique, conformément à son opinion dans I Melochim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.-Ralbag</i>.
+<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayamim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara, dans Masehet Kesubos 106b, explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple.-Radak</i><sup>13</sup><i class="footnote">Rashi soutient que סִפּוֹת sont des instruments de musique, conformément à son opinion dans I Melochim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.-Ralbag</i>.
 
 ### passuk 15
 
@@ -54,8 +54,8 @@
 
 ### passuk 17
 <b>Argent pour les offrandes de culpabilité et argent pour les offrandes de péché.</b> Si quelqu'un met de côté de l'argent pour son offrande de péché ou pour son offrande de culpabilité, et a acheté l'animal, et il restait de l'argent.
-<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Adonoy.</b> Pour réparer les dégâts du Beis [Hamikdosh].
-<b>C'était pour les<i> kohanim</i>.</b> Et ils [utilisaient les fonds pour] acheter des holocaustes, des "fruits" pour l'autel ; la chair était pour un holocauste et les peaux étaient les leurs [celles des <i>kohanim</i>]. C'est ainsi que nous avons appris dans [Maseches] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda le <i>kohein</i> a exposé ceci comme suit : Tout ce qui provient du reste d'un sacrifice pour le péché et d'un sacrifice de culpabilité doit être utilisé pour acheter des holocaustes.<sup>15</sup><i class="footnote">Voir Maseches Zevachim 103a.</i>
+<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Hachem.</b> Pour réparer les dégâts du Beis [Hamikdosh].
+<b>C'était pour les<i> kohanim</i>.</b> Et ils [utilisaient les fonds pour] acheter des holocaustes, des "fruits" pour l'autel ; la chair était pour un holocauste et les peaux étaient les leurs [celles des <i>kohanim</i>]. C'est ainsi que nous avons appris dans [Masehet] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda le <i>Cohen</i> a exposé ceci comme suit : Tout ce qui provient du reste d'un sacrifice pour le péché et d'un sacrifice de culpabilité doit être utilisé pour acheter des holocaustes.<sup>15</sup><i class="footnote">Voir Masehet Zevachim 103a.</i>
 
 ### passuk 18
 <b>Alors Chazoeil [le roi d'Arom] monta.</b> Après la mort de Yehoyoda, Yoash se fit un dieu.
@@ -67,10 +67,10 @@
 ### passuk 21
 <b>Au Beis Millo.</b> A cet endroit.
 <b>Millo.</b> Le nom d'un lieu.
-<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Écriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Yerusholayim, car il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.-Malbim</i>.
+<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Écriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Jérusalem, car il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.-Malbim</i>.
 
 ### passuk 22
-<b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayomim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayomim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avrohom, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
+<b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayamim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayamim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avraham, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -79,7 +79,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Tous ses jours, selon les instructions de Yehoyoda le <i>kohein</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité." Le roi les écouta.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, "tous ses jours selon les instructions de Yehoyada le <i>kohein</i>", c'est-à-dire tant que Yehoyada était en vie.-Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Yerusholayim.</i>
+<b>Tous ses jours, selon les instructions de Yehoyoda le <i>Cohen</i>.</b> Mais après la mort de Yehoyoda, les officiers de Yehudah vinrent se prosterner devant le roi, et ils le déifièrent. Ils lui dirent : "Celui qui entre dans le Saint des Saints pour un instant seulement est en danger de mort, pourtant tu y as été caché pendant six ans, tu es donc apte à être une divinité." Le roi les écouta.<sup>1</sup><i class="footnote">Shemos Rabboh 8:2.</i><sup>2</sup><i class="footnote">Selon le sens du verset, "tous ses jours selon les instructions de Yehoyada le <i>Cohen</i>", c'est-à-dire tant que Yehoyada était en vie.-Radak Ou, "tous ses jours" fait référence aux jours de Yehoyada. Après la mort de Yehoyada, Yoash a commencé à adorer des <i>asheirohs</i> et d'autres idoles. Lorsque Zecharyoh prophétisa contre lui, Yoash le fit tuer, et l'année suivante, Arom attaqua Jérusalem.</i>
 
 ### passuk 4
 
@@ -95,7 +95,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayomim 24:7.-Radak</i>.
+<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
 <b>Mais pour la restauration du Beis [Hamikdosh]</b> Si ce sera moins [que nécessaire], que ce soit moins, et si ce sera plus [que nécessaire], que ce soit laissé.
 
 ### passuk 9
@@ -103,7 +103,7 @@
 ### passuk 10
 <b>Près de l'autel.</b> Dans la cour [du Temple].
 <b>À droite, comme une personne entre.</b> À droite [du côté] où les gens entrent.
-<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonoson l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Maseches] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
+<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonatanh l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
 <b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient l'argent en sac et le comptaient."-Radak</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohein Gadol</i>] etc.</b>
@@ -120,7 +120,7 @@
 <b>Et pour les tailleurs de pierre.</b> De la montagne.
 
 ### passuk 14
-<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayomim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara, dans Maseches Kesubos 106b, explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple.-Radak</i><sup>13</sup><i class="footnote">Rashi soutient que סִפּוֹת sont des instruments de musique, conformément à son opinion dans I Melochim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.-Ralbag</i>.
+<b>Des cruches en argent, des instruments de musique.</b> Ce sont des instruments de musique.</sup></sup><i class="footnote">Bien que l'Écriture, dans II Divrei Hayamim 24:14, indique qu'ils ont utilisé cet argent pour fabriquer des vases ministériels, la Guemara, dans Masehet Kesubos 106b, explique que le but premier de cet argent était les réparations. Cependant, s'il restait de l'argent, il pouvait être utilisé pour fabriquer des ustensiles, des instruments, etc. pour le Temple.-Radak</i><sup>13</sup><i class="footnote">Rashi soutient que סִפּוֹת sont des instruments de musique, conformément à son opinion dans I Melochim 7:50. Alternativement, ce sont des récipients utilisés pour recevoir le sang des sacrifices ou le vin des libations.-Ralbag</i>.
 
 ### passuk 15
 
@@ -129,8 +129,8 @@
 
 ### passuk 17
 <b>Argent pour les offrandes de culpabilité et argent pour les offrandes de péché.</b> Si quelqu'un met de côté de l'argent pour son offrande de péché ou pour son offrande de culpabilité, et a acheté l'animal, et il restait de l'argent.
-<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Adonoy.</b> Pour réparer les dégâts du Beis [Hamikdosh].
-<b>C'était pour les<i> kohanim</i>.</b> Et ils [utilisaient les fonds pour] acheter des holocaustes, des "fruits" pour l'autel ; la chair était pour un holocauste et les peaux étaient les leurs [celles des <i>kohanim</i>]. C'est ainsi que nous avons appris dans [Maseches] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda le <i>kohein</i> a exposé ceci comme suit : Tout ce qui provient du reste d'un sacrifice pour le péché et d'un sacrifice de culpabilité doit être utilisé pour acheter des holocaustes.<sup>15</sup><i class="footnote">Voir Maseches Zevachim 103a.</i>
+<b>On ne l'a pas apporté au Beis [Hamikdosh] d'Hachem.</b> Pour réparer les dégâts du Beis [Hamikdosh].
+<b>C'était pour les<i> kohanim</i>.</b> Et ils [utilisaient les fonds pour] acheter des holocaustes, des "fruits" pour l'autel ; la chair était pour un holocauste et les peaux étaient les leurs [celles des <i>kohanim</i>]. C'est ainsi que nous avons appris dans [Masehet] Temurah.<sup>14</sup><i class="footnote">23b.</i> Yehoyoda le <i>Cohen</i> a exposé ceci comme suit : Tout ce qui provient du reste d'un sacrifice pour le péché et d'un sacrifice de culpabilité doit être utilisé pour acheter des holocaustes.<sup>15</sup><i class="footnote">Voir Masehet Zevachim 103a.</i>
 
 ### passuk 18
 <b>Alors Chazoeil [le roi d'Arom] monta.</b> Après la mort de Yehoyoda, Yoash se fit un dieu.
@@ -142,10 +142,10 @@
 ### passuk 21
 <b>Au Beis Millo.</b> A cet endroit.
 <b>Millo.</b> Le nom d'un lieu.
-<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Écriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Yerusholayim, car il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.-Malbim</i>.
+<b>Selo.</b> Le nom d'un lieu.<sup>16</sup><i class="footnote">L'Écriture décrit l'emplacement de Beis Millo, "qui descend vers Selo" qui était près de Jérusalem, car il y avait un autre Beis Millo près de Sichem mentionné dans Shoftim 9:6, 20.-Malbim</i>.
 
 ### passuk 22
-<b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayomim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayomim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avrohom, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
+<b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayamim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayamim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avraham, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
 
 >Crédit : sefaris
 >Licence : CC-BY

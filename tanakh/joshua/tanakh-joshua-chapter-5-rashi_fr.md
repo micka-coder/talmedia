@@ -4,13 +4,13 @@
 
 ### passuk 2
 <b>Couteaux tranchants.</b> Comme traduit par le Targum, couteaux tranchants. De même, 'Tu as aussi retourné le tranchant de son épée.'<sup>1</sup><i class="footnote">Tehillim 89:44.</i> Lorsque le tranchant est tourné de côté, il ne coupe pas bien. 'De même, 'toute arme qui est aiguisée contre toi ?'<sup>2</sup><i class="footnote">Yeshayahu 54.</i>.
-<b>La deuxième fois.</b> Car il y avait déjà eu une circoncision - la nuit de leur départ d'Égypte, une grande assemblée a été circoncise collectivement, et c'était la deuxième fois ; car pendant les quarante années entières qu'ils ont passées dans le désert, le vent du nord n'a pas soufflé pour eux, et ils n'ont pas eu un jour approprié pour se circoncire, comme nous l'avons appris dans <i>Masches Yevamos.</i><sup>3</sup><i class="footnote">Yevomos 71b. Certaines conditions atmosphériques étaient bénéfiques pour la guérison de la blessure causée par la circoncision. Le vent du nord créait ces conditions. Ces vents ont été retenus pendant les quarante ans dans les régions sauvages afin que les "nuages de gloire" qui guidaient et protégeaient le peuple ne se dispersent pas.</i> Nos Sages ont dit : "La deuxième fois fait référence à l'exposition de la couronne lors de la circoncision. [Cet aspect particulier de la circoncision] n'a pas été ordonné à notre patriarche, Avrohom.
+<b>La deuxième fois.</b> Car il y avait déjà eu une circoncision - la nuit de leur départ d'Égypte, une grande assemblée a été circoncise collectivement, et c'était la deuxième fois ; car pendant les quarante années entières qu'ils ont passées dans le désert, le vent du nord n'a pas soufflé pour eux, et ils n'ont pas eu un jour approprié pour se circoncire, comme nous l'avons appris dans <i>Masches Yebamot.</i><sup>3</sup><i class="footnote">Yevomos 71b. Certaines conditions atmosphériques étaient bénéfiques pour la guérison de la blessure causée par la circoncision. Le vent du nord créait ces conditions. Ces vents ont été retenus pendant les quarante ans dans les régions sauvages afin que les "nuages de gloire" qui guidaient et protégeaient le peuple ne se dispersent pas.</i> Nos Sages ont dit : "La deuxième fois fait référence à l'exposition de la couronne lors de la circoncision. [Cet aspect particulier de la circoncision] n'a pas été ordonné à notre patriarche, Avraham.
 
 ### passuk 3
 <b>Gival Ha-orlos.</b> [Lit. Colline des prépuces] Elle a été appelée ainsi, à cause de l'événement, [c'est-à-dire la masse de prépuces qui ont été circoncis] qui ont été transformés en une colline.
 
 ### passuk 4
-<b>Et voici la raison.</b> [Lit. et voici la chose] Après ce discours, il les circoncit. Il leur dit . " Pensez-vous que vous hériterez de cette terre alors que vous êtes encore incirconcis ? N'a-t-il pas été dit à Avrohom : "Tu préserveras mon alliance, etc." "et je te donnerai, à toi et à ta descendance après toi, le pays de ton séjour" ?"<sup>4</sup><i class="footnote">Bereishis 17:8,9. Ainsi, l'héritage de la terre dépendait de leur préservation de l'alliance, qui était le rite de la circoncision.</i>
+<b>Et voici la raison.</b> [Lit. et voici la chose] Après ce discours, il les circoncit. Il leur dit . " Pensez-vous que vous hériterez de cette terre alors que vous êtes encore incirconcis ? N'a-t-il pas été dit à Avraham : "Tu préserveras mon alliance, etc." "et je te donnerai, à toi et à ta descendance après toi, le pays de ton séjour" ?"<sup>4</sup><i class="footnote">Bereishis 17:8,9. Ainsi, l'héritage de la terre dépendait de leur préservation de l'alliance, qui était le rite de la circoncision.</i>
 <b>Tout le peuple qui est sorti.</b> Il n'y en avait pas un seul ici car ils étaient tous morts, et ils avaient tous été circoncis, comme il est dit : " car ils étaient circoncis.'<sup>5</sup><i class="footnote">Verset suivant.</i>
 
 ### passuk 5
@@ -42,10 +42,10 @@
 <b>Etes-vous avec nous ?</b> Êtes-vous venus pour nous soutenir ?
 
 ### passuk 14
-<b>Je suis maintenant venu.</b> - "pour vous aider, car il est impossible à l'homme de livrer bataille contre elle [Yericho] et de la capturer, d'abattre la muraille. Cependant, à l'époque de ton maître, Moshé, je suis venu, mais il n'a pas voulu de ma présence, comme il est dit : "Si ta Présence [Adonoy] ne va pas, etc."<sup>15</sup><i class="footnote">Shemos 33:15.</i>.
+<b>Je suis maintenant venu.</b> - "pour vous aider, car il est impossible à l'homme de livrer bataille contre elle [Yericho] et de la capturer, d'abattre la muraille. Cependant, à l'époque de ton maître, Moshé, je suis venu, mais il n'a pas voulu de ma présence, comme il est dit : "Si ta Présence [Hachem] ne va pas, etc."<sup>15</sup><i class="footnote">Shemos 33:15.</i>.
 
 ### passuk 15
-<b>L'officier de l'hôte d'Adonoy.</b> Cela fait référence aux Bnei Israël, qui sont l'hôte d'Adonoy. L'officier mentionné ici est l'Ange, Michoeil, comme il est dit : 'Michoeil, ton officier.'<sup>16</sup><i class="footnote">Daniel 10:21.</i>
+<b>L'officier de l'hôte d'Hachem.</b> Cela fait référence aux Bnei Israël, qui sont l'hôte d'Hachem. L'officier mentionné ici est l'Ange, Michoeil, comme il est dit : 'Michoeil, ton officier.'<sup>16</sup><i class="footnote">Daniel 10:21.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

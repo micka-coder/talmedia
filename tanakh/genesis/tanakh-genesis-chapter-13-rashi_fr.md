@@ -30,8 +30,8 @@
 
 ### passuk 10
 <b>Qu'il était abondamment arrosé.</b> Une terre de cours d'eau.
-<b>Avant qu'Adonoy ne détruise Sedom et Amorah.</b> Cette plaine était... ... 
-<b>comme le jardin d'Adonoy</b> pour [la croissance des] arbres . . .
+<b>Avant qu'Hachem ne détruise Sedom et Amorah.</b> Cette plaine était... ... 
+<b>comme le jardin d'Hachem</b> pour [la croissance des] arbres . . .
 <b>comme le pays d'Egypte</b> pour [la culture] des céréales et des légumes.
 <b>Vers Zoar.</b> [Signification :] jusqu'à Zoar. L'interprétation midrashique l'explique de manière désobligeante. C'est parce qu'ils étaient imprégnés d'immoralité que Lot a choisi leur localité.
 

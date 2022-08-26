@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Adonoy dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
+<b>Hachem dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
 <b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les enfants de Kehos, père d'Amram. 
 <b>Porteront le péché du Sanctuaire.</b> Je jette, sur vous, la punition des personnes non autorisées qui pèchent par leur implication avec les objets sacrés placés sous votre responsabilité - la Tente, l'Arche, la Table et les vases sacrés. Vous devez vous poster et avertir toute personne non autorisée qui tente un contact. 
 <b>Et vous et vos fils.</b> Les <i>kohanim.</i>
@@ -77,7 +77,7 @@
 <b>Ils.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les lévites porteront les péchés des Israélites, puisqu'il leur incombe de prévenir les personnes non autorisées de ne pas s'approcher d'eux. 
 
 ### passuk 24
-Qu'ils devront réserver à Adonoy comme un <i>terumah</i>-cadeau. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>L'écriture l'appelle "un <i>terumah</i>-cadeau" jusqu'à ce qu'il en sépare le <i>terumah</i> de la dîme.
+Qu'ils devront réserver à Hachem comme un <i>terumah</i>-cadeau. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>L'écriture l'appelle "un <i>terumah</i>-cadeau" jusqu'à ce qu'il en sépare le <i>terumah</i> de la dîme.
 
 ### passuk 25
 
@@ -93,7 +93,7 @@ Qu'ils devront réserver à Adonoy comme un <i>terumah</i>-cadeau. <i data-comme
 <b>Toi aussi, tu dois mettre de côté.</b> Tout comme les Israélites ont mis de côté de leurs greniers et de leurs citernes, toi aussi tu dois mettre de côté de ta dîme, puisque c'est ton héritage. 
 
 ### passuk 29
-<b>De tous vos dons, vous devez mettre de côté toutes les terumah-cadeaux d'Adonoy. </b> L'Ecriture parle de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>major <i>terumah,</i> [enseignant] que si le Lévite préempte le <i>kohein</i> à l'emplacement de stockage, et a reçu sa dîme avant que le <i>kohein</i> ne prenne la <i>terumah</i> majeure du bac de stockage, le lévite doit d'abord mettre de côté un cinquantième de la dîme comme <i>terumah</i> majeure, puis revenir et mettre de côté la <i>terumah</i> de la dîme. 
+<b>De tous vos dons, vous devez mettre de côté toutes les terumah-cadeaux d'Hachem. </b> L'Ecriture parle de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>major <i>terumah,</i> [enseignant] que si le Lévite préempte le <i>Cohen</i> à l'emplacement de stockage, et a reçu sa dîme avant que le <i>Cohen</i> ne prenne la <i>terumah</i> majeure du bac de stockage, le lévite doit d'abord mettre de côté un cinquantième de la dîme comme <i>terumah</i> majeure, puis revenir et mettre de côté la <i>terumah</i> de la dîme. 
 
 ### passuk 30
 <b>Lorsque vous mettez de côté la partie la plus fine de celle-ci.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir mis de côté la <i>terumah</i> de la dîme de celle-ci.

@@ -48,7 +48,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>A travers le Yardein et au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sur la rive ouest.
+<b>A travers le Jourdain et au-delà.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sur la rive ouest.
 <b>Parce que, notre héritage est venu à nous.</b> Nous l'avons déjà reçu, sur la rive orientale. 
 
 ### passuk 20

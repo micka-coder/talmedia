@@ -32,7 +32,7 @@
 ### passuk 11
 <b>Qui a donné une bouche, etc.</b> [C'est-à-dire :] "Qui t'a appris à parler lorsque tu as été mis en procès devant Pharaon à cause de l'Égyptien [que tu as tué] ?". 
 <b>Ou qui rend une personne muette.</b> [C'est-à-dire] "Qui a rendu Pharaon muet pour qu'il ne fasse aucun effort [pour exécuter son] ordre de te faire tuer, [et qui a rendu] ses serviteurs sourds pour qu'ils n'entendent pas son décret à ton sujet". Et quant aux tueurs-exécuteurs - qui les a rendus aveugles pour qu'ils ne voient pas quand tu t'es enfui de la plate-forme [d'exécution] et que tu t'es échappé. 
-<b>Ce n'est pas moi - [Adonoy] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Adonoy qui ai fait tout cela ?".
+<b>Ce n'est pas moi - [Hachem] ?</b> [C'est-à-dire] "Ce n'est pas moi <i>dont le nom</i> est Hachem qui ai fait tout cela ?".
 
 ### passuk 12
 
@@ -40,7 +40,7 @@
 <b>Celui que Tu envoies habituellement</b> [בְּיַד תִּשְׁלָח signifie :] "Par celui que Tu envoies habituellement", à savoir Aharon. Une autre explication : "Par quelqu'un d'autre que Tu voudras envoyer, car je ne suis pas destiné à les faire entrer dans le pays, ni à être leur rédempteur à l'avenir - tu as de nombreux messagers." 
 
 ### passuk 14
-<b>[Adonoy] a manifesté de la colère.</b> Rabbi Yehoshua ben Korcho dit : Partout où la colère [de Dieu] est mentionnée dans la Torah, une impression (c'est-à-dire une certaine punition) est mentionnée, mais, dans ce cas, aucune impression n'est mentionnée, et nous ne trouvons aucune punition à la suite de cette colère ! Rabbi Yosi lui a répondu : Dans ce cas aussi, une impression est mentionnée : "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" " Car il était destiné à être un lévite et non un <i>kohein</i> (prêtre) et j'avais prévu que le sacerdoce descendrait de toi. Mais maintenant, il n'en sera pas ainsi, mais, au contraire, il sera un <i>kohein</i> et toi un lévite." Comme il est dit : "Et les descendants de Moshé, l'homme de Dieu seront attribués à la tribu de Leivi." 
+<b>[Hachem] a manifesté de la colère.</b> Rabbi Yehoshua ben Korcho dit : Partout où la colère [de Dieu] est mentionnée dans la Torah, une impression (c'est-à-dire une certaine punition) est mentionnée, mais, dans ce cas, aucune impression n'est mentionnée, et nous ne trouvons aucune punition à la suite de cette colère ! Rabbi Yosi lui a répondu : Dans ce cas aussi, une impression est mentionnée : "הֲלֹא אַהֲרֹן אָחִיךָ הַלֵּוִי" " Car il était destiné à être un lévite et non un <i>Cohen</i> (prêtre) et j'avais prévu que le sacerdoce descendrait de toi. Mais maintenant, il n'en sera pas ainsi, mais, au contraire, il sera un <i>Cohen</i> et toi un lévite." Comme il est dit : "Et les descendants de Moshé, l'homme de Dieu seront attribués à la tribu de Leivi." 
 <b>Voici qu'il part à ta rencontre -</b> lorsque tu te mettras en route pour l'Égypte.
 <b>Et quand il te verra, il se réjouira dans son cœur.</b> "Ce n'est pas comme tu le penses qu'il t'en voudra d'avoir atteint une position élevée." Grâce à cela, Aharon a mérité la parure du <i>choshen</i> qui est placé sur le cœur. 
 
@@ -54,13 +54,13 @@
 ### passuk 17
 
 ### passuk 18
-<b>Il retourna chez Yeser, son beau-père -</b> afin d'obtenir la permission, car il lui avait juré. [Son beau-père] avait sept noms : Reuel, Yeser, Yisro, Keini, Chovev, Chever, et Putiel. 
+<b>Il retourna chez Yeser, son beau-père -</b> afin d'obtenir la permission, car il lui avait juré. [Son beau-père] avait sept noms : Reuel, Yeser, Yitro, Keini, Chovev, Chever, et Putiel. 
 
 ### passuk 19
 <b>Car ils sont morts - tous les hommes.</b> Qui étaient-ils (ces hommes) ? Dasan et Aviram. [En fait,] ils étaient encore vivants, mais ils étaient devenus indigents et un pauvre est considéré comme mort. 
 
 ### passuk 20
-<b>L'âne.</b> [Signification :] <i>l'âne</i> désigné pour cela. C'est le même âne qu'Avraham a sellé lors de la ligature de Yitzchok, et celui-là même sur lequel le roi Moshiach est destiné à se révéler, comme il est dit : ["Le roi viendra à vous] humble et monté sur un âne". 
+<b>L'âne.</b> [Signification :] <i>l'âne</i> désigné pour cela. C'est le même âne qu'Avraham a sellé lors de la ligature de Yitshak, et celui-là même sur lequel le roi Moshiach est destiné à se révéler, comme il est dit : ["Le roi viendra à vous] humble et monté sur un âne". 
 <b>Et il retourna au pays d'Égypte. Moshé prit le bâton</b> "Plus tôt" ou "plus tard" ne sont pas exacts dans les Écritures.
 
 ### passuk 21
@@ -77,7 +77,7 @@
 
 ### passuk 24
 <b>Quand il était en chemin, dans une auberge.</b> Moshé. 
-<b>Et voulut le tuer.</b> C'est-à-dire que l'ange [voulait tuer] Moshé parce qu'il n'avait pas circoncis son fils, Eliezer, et que par négligence, il méritait la peine de mort. La Beraisa a enseigné : [cependant,] Rabbi Yosi a dit : A Dieu ne plaise ! [En fait,] il n'a pas été négligent, mais, il a pensé : "Si je le circoncis et que je pars en voyage, la vie de l'enfant sera en danger pendant trois jours. [Je pourrais le circoncire et attendre trois jours, mais Dieu m'a ordonné : "Va, retourne en Egypte". Alors, pourquoi a-t-il été puni ? Parce que son premier souci était son logement. Maseches Nedarim : L'ange s'est transformé en une sorte de serpent et l'a avalé (Moshé) depuis sa tête jusqu'à sa cuisse [et l'a recraché], puis l'a de nouveau avalé depuis ses pieds jusqu'à cet endroit (le membrum). Zipporah comprit que c'était pour [retarder] la circoncision. 
+<b>Et voulut le tuer.</b> C'est-à-dire que l'ange [voulait tuer] Moshé parce qu'il n'avait pas circoncis son fils, Eliezer, et que par négligence, il méritait la peine de mort. La Beraisa a enseigné : [cependant,] Rabbi Yosi a dit : A Dieu ne plaise ! [En fait,] il n'a pas été négligent, mais, il a pensé : "Si je le circoncis et que je pars en voyage, la vie de l'enfant sera en danger pendant trois jours. [Je pourrais le circoncire et attendre trois jours, mais Dieu m'a ordonné : "Va, retourne en Egypte". Alors, pourquoi a-t-il été puni ? Parce que son premier souci était son logement. Masehet Nedarim : L'ange s'est transformé en une sorte de serpent et l'a avalé (Moshé) depuis sa tête jusqu'à sa cuisse [et l'a recraché], puis l'a de nouveau avalé depuis ses pieds jusqu'à cet endroit (le membrum). Zipporah comprit que c'était pour [retarder] la circoncision. 
 
 ### passuk 25
 <b>Et le jeta à ses pieds.</b> C'est-à-dire qu'elle le jeta aux pieds de <i>Moshe</i>. 

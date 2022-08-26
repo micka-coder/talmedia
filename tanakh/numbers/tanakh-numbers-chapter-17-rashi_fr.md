@@ -18,7 +18,7 @@
 
 ### passuk 5
 <b>Pour ne pas être comme Korach.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour ne pas être comme Korach.
-<b>Comme Adonoy lui a parlé, à travers Moshé.</b> Comme עָלָיו, "à propos de lui". Au sujet d'Aharon, Il a parlé à Moshé, [disant] que lui et ses fils seront <i>kohanim.</i> Par conséquent, un étranger ne doit pas s'approcher qui n'est pas un descendant d'Aharon, etc. De même, chaque לִי, לוֹ et לָהֶם à côté de דִּבּוּר, "parole", est interprété comme עַל, "à propos". Selon le Midrash, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à propos de Kora'h, quel est [le sens de] בְּיַד משֶׁה, [littéralement " dans la main de Moshé ",] [pourquoi] l'Écriture n'a-t-elle pas écrit " à Moshé " ? Cela fait allusion au fait que ceux qui contestent la <i>kehunah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> sont frappés de <i>tzora'as,</i> comme Moshé a été frappé dans sa main, comme il est dit : " lorsqu'il l'a retirée, sa main a été frappée de <i>tzora'as</i> - blanche comme neige. " C'est pourquoi Uziyah a été frappé de <i>tzora'as.</i> 
+<b>Comme Hachem lui a parlé, à travers Moshé.</b> Comme עָלָיו, "à propos de lui". Au sujet d'Aharon, Il a parlé à Moshé, [disant] que lui et ses fils seront <i>kohanim.</i> Par conséquent, un étranger ne doit pas s'approcher qui n'est pas un descendant d'Aharon, etc. De même, chaque לִי, לוֹ et לָהֶם à côté de דִּבּוּר, "parole", est interprété comme עַל, "à propos". Selon le Midrash, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à propos de Kora'h, quel est [le sens de] בְּיַד משֶׁה, [littéralement " dans la main de Moshé ",] [pourquoi] l'Écriture n'a-t-elle pas écrit " à Moshé " ? Cela fait allusion au fait que ceux qui contestent la <i>kehunah</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> sont frappés de <i>tzora'as,</i> comme Moshé a été frappé dans sa main, comme il est dit : " lorsqu'il l'a retirée, sa main a été frappée de <i>tzora'as</i> - blanche comme neige. " C'est pourquoi Uziyah a été frappé de <i>tzora'as.</i> 
 
 ### passuk 6
 
@@ -31,7 +31,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Et expie pour eux.</b> C'est le secret que l'ange de la mort lui a transmis lorsqu'il [Moshé] est monté au ciel, que l'encens retient la peste, comme indiqué dans <i>Masechès</i> Chabbat. 
+<b>Et expie pour eux.</b> C'est le secret que l'ange de la mort lui a transmis lorsqu'il [Moshé] est monté au ciel, que l'encens retient la peste, comme indiqué dans <i>Traité</i> Chabbat. 
 
 ### passuk 12
 
@@ -67,7 +67,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>A conserver comme symbole.</b> De <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>souvenir que j'ai choisi Aharon pour servir de <i>kohein,</i> afin qu'ils ne contestent plus jamais la <i>kehunah</i>. 
+<b>A conserver comme symbole.</b> De <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>souvenir que j'ai choisi Aharon pour servir de <i>Cohen,</i> afin qu'ils ne contestent plus jamais la <i>kehunah</i>. 
 <b>Afin que leur plainte prenne fin.</b> Comme וּתְכַלֶּה תְלוּנּוֹתָם, "leur" plainte prendra fin. Ce terme est un nom verbal singulier, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>féminin, comme תְּלוּנָּתָם . <i>murmur-diz,</i> "plainte" en ancien français. Il existe une distinction entre תְּלוּנּוֹתָם et תְּלוּנָּתָם . תְּלוּנָּתָם, une plainte unique. תְּלוּנּוֹתָם, un nom singulier, même s'il y a plusieurs plaintes. 
 
 ### passuk 26

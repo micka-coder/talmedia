@@ -12,10 +12,10 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et il cria le Nom, Adonoy.</b> C'est traduit par Onkelos : "Il cria le Nom de Dieu." 
+<b>Et il cria le Nom, Hachem.</b> C'est traduit par Onkelos : "Il cria le Nom de Dieu." 
 
 ### passuk 6
-<b>Adonoy, Adonoy.</b> Ce Nom signifie l'Attribut de la Miséricorde, le premier [ה' représente la miséricorde] avant que [l'homme] ne pèche et le second, après qu'il ait péché et se soit repenti. 
+<b>Hachem, Hachem.</b> Ce Nom signifie l'Attribut de la Miséricorde, le premier [ה' représente la miséricorde] avant que [l'homme] ne pèche et le second, après qu'il ait péché et se soit repenti. 
 <b>Dieu Tout-Puissant.</b> Ce [Nom], lui aussi, représente l'Attribut de la Miséricorde. De même, il est dit : "Mon Dieu, mon Dieu, pourquoi m'as-tu abandonné ?" et il ne convient pas de dire à l'Attribut de la rétribution : "Pourquoi m'as-tu abandonné ?". C'est ce que j'ai trouvé dans la Mechilta (15, 2). 
 <b>Lentement à la colère.</b> Il repousse sa colère et ne se précipite pas pour infliger une punition au cas où il (le pécheur) se repentirait.
 <b>Et abondant en bonté.</b> A ceux qui ont besoin de bonté, car ils n'ont pas de mérites suffisants. 
@@ -67,8 +67,8 @@
 
 ### passuk 20
 <b>L'âne qui ouvre le ventre.</b> Mais pas d'un autre animal impur.
-<b>Tu rachèteras avec une brebis.</b> Il doit donner une brebis au <i>kohein</i> et elle reste non sacrée entre les mains du <i>kohein.</i> Le premier-né de l'âne est alors autorisé à être utilisé pour le travail par le propriétaire.
-<b>Tu dois lui briser le cou.</b> Il lui brise le cou avec un grand couteau. Il a causé au <i>kohein</i> une perte monétaire, par conséquent, il subira une perte monétaire. 
+<b>Tu rachèteras avec une brebis.</b> Il doit donner une brebis au <i>Cohen</i> et elle reste non sacrée entre les mains du <i>Cohen.</i> Le premier-né de l'âne est alors autorisé à être utilisé pour le travail par le propriétaire.
+<b>Tu dois lui briser le cou.</b> Il lui brise le cou avec un grand couteau. Il a causé au <i>Cohen</i> une perte monétaire, par conséquent, il subira une perte monétaire. 
 <b>Tous les premiers-nés parmi tes fils, tu dois les racheter.</b> Son rachat est fixé à cinq <i>sela'im,</i> comme il est dit : "Ceux qui doivent être rachetés, vous les racheterez à partir d'un mois d'âge". 
 <b>Et vous ne devez pas vous présenter devant Moi les mains vides. </b> Selon le sens clair du verset, ceci est indépendant [de la première partie du verset] et ne renvoie pas aux premiers-nés, car il n'y a pas d'obligation dans la <i>mitzvah</i> de בְּכוֹר de se présenter devant Dieu, mais, au contraire, c'est un avertissement concernant autre chose : " Et lorsque vous monterez pour la fête afin de comparaître [devant Dieu], vous ne vous présenterez pas devant Moi les mains vides ; [mais] c'est une <i>mitzvah</i> sur vous d'apporter l'holocauste désigné lors de la comparution devant Dieu. " Selon l'explication midrashique de la Beraisa, il s'agit d'un verset redondant et il est " libre " d'être utilisé dans une <i>gezeirah shavah,</i> pour enseigner à propos de l'indemnité de départ à un esclave hébreu qu'elle doit être de cinq <i>sela'im</i> de chaque sorte, comme l'est [le montant pour] le rachat d'un premier-né. (Ceci se trouve) dans le meseches Kiddushin. 
 
@@ -117,7 +117,7 @@
 <b>Et Moshé leur parla -</b> le message de Dieu. Ainsi, tout ce sujet est au présent (continu).
 
 ### passuk 32
-<b>Après cela, ils s'approchèrent.</b> [C'est-à-dire] qu'après avoir enseigné aux anciens, il enseignait à nouveau cette section ou cette loi à tout Yisraël. Les Sages ont enseigné : Quel était l'ordre de l'enseignement de la Torah ? Moshé apprenait du Tout-Puissant. Puis Aharon entrait et Moshé lui enseignait son chapitre. Aharon s'éloignait et s'asseyait à la gauche de Moshé. Ensuite, ses fils (d'Aharon) entraient et Moshé leur enseignait leur chapitre. Ils s'éloignèrent alors et Elazar s'assit à la droite de Moshé et Isamar à la gauche d'Aharon. Ensuite, les anciens entraient et Moshé leur enseignait leur chapitre. Les anciens s'éloignaient et s'asseyaient sur les côtés. Ensuite, le peuple entier entrait et Moshé lui enseignait son chapitre. Par conséquent, la leçon est entrée en possession du peuple une fois, en possession des anciens, deux fois, en possession des fils d'Aharon, trois fois, et en possession d'Aharon, quatre fois, etc., comme tout cela est cité dans le Maseches Eiruvin. 
+<b>Après cela, ils s'approchèrent.</b> [C'est-à-dire] qu'après avoir enseigné aux anciens, il enseignait à nouveau cette section ou cette loi à tout Yisraël. Les Sages ont enseigné : Quel était l'ordre de l'enseignement de la Torah ? Moshé apprenait du Tout-Puissant. Puis Aharon entrait et Moshé lui enseignait son chapitre. Aharon s'éloignait et s'asseyait à la gauche de Moshé. Ensuite, ses fils (d'Aharon) entraient et Moshé leur enseignait leur chapitre. Ils s'éloignèrent alors et Elazar s'assit à la droite de Moshé et Isamar à la gauche d'Aharon. Ensuite, les anciens entraient et Moshé leur enseignait leur chapitre. Les anciens s'éloignaient et s'asseyaient sur les côtés. Ensuite, le peuple entier entrait et Moshé lui enseignait son chapitre. Par conséquent, la leçon est entrée en possession du peuple une fois, en possession des anciens, deux fois, en possession des fils d'Aharon, trois fois, et en possession d'Aharon, quatre fois, etc., comme tout cela est cité dans le Masehet Eiruvin. 
 
 ### passuk 33
 <b>Il mit un couvercle sur son visage.</b> [מַסְוֶה est] comme le traduit Onkelos : "un couvre-visage" ; il ( מַסְוֶה ) est un mot araméen [signifiant "regarder"]. On le retrouve dans la Guemara : " Son cœur ( סְוִי ) a vu. " Aussi dans <i>Kesuvos</i> (60a) : הֲוָה קָא מַסְוֶה לְאַפָּהּ où il a le sens de "regarder", c'est-à-dire qu'il la regardait. Ici aussi, מַסְוֶה désigne un tissu placé devant le visage et la région des yeux. Et par respect pour les "rayons de splendeur" afin qu'ils ne soient pas tous rassasiés par la vue, il plaçait la couverture devant eux (ses yeux). Il l'enlevait quand il parlait aux Israélites et quand Dieu lui parlait jusqu'à ce qu'il sorte. Et lorsqu'il sortait [pour enseigner les paroles de Dieu], il sortait sans le couvercle. 

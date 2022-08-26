@@ -12,7 +12,7 @@
 <b>Est digne de mort.</b> Quelqu'un qui vole une personne pauvre équivaut à lui ôter la vie<sup>2</sup><i class="footnote">Voir Baba Kama 119a. Voler une pruta à quelqu'un équivaut à le tuer.</i> comme il est dit : " Il a pris la vie de son propriétaire. "<sup>3</sup><i class="footnote">Mishlei 1:19.</i>
 
 ### passuk 6
-<b>Payer quatre fois.</b> C'est ce qui s'est [finalement] passé, il a été puni avec [des problèmes concernant] quatre enfants l'enfant<sup>4</sup><i class="footnote">Relaté plus loin au verset 15.</i> et Amnon Tomor et Avsholom.<sup>5</sup><i class="footnote">Les événements avec Amnon, Tomor et Avsholom commencent au chapitre 13.</i>.
+<b>Payer quatre fois.</b> C'est ce qui s'est [finalement] passé, il a été puni avec [des problèmes concernant] quatre enfants l'enfant<sup>4</sup><i class="footnote">Relaté plus loin au verset 15.</i> et Amnon Tomor et Avshalom.<sup>5</sup><i class="footnote">Les événements avec Amnon, Tomor et Avshalom commencent au chapitre 13.</i>.
 
 ### passuk 7
 
@@ -31,7 +31,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Parce que tu as irrité les ennemis d'Adonoy.</b> C'est un euphimisme une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour se substituer à Dieu afin que le mot "irrité" n'ait pas à s'appliquer à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert tu as ouvert la bouche de [ceux] qui détestent le peuple de Dieu.
+<b>Parce que tu as irrité les ennemis d'Hachem.</b> C'est un euphimisme une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour se substituer à Dieu afin que le mot "irrité" n'ait pas à s'appliquer à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert tu as ouvert la bouche de [ceux] qui détestent le peuple de Dieu.
 
 ### passuk 15
 <b>[Il est tombé malade.]</b> [Ce mot] désigne la maladie.
@@ -93,7 +93,7 @@
 <b>Est digne de mort.</b> Quelqu'un qui vole une personne pauvre équivaut à lui ôter la vie<sup>2</sup><i class="footnote">Voir Baba Kama 119a. Voler une pruta à quelqu'un équivaut à le tuer.</i> comme il est dit : " Il a pris la vie de son propriétaire. "<sup>3</sup><i class="footnote">Mishlei 1:19.</i>
 
 ### passuk 6
-<b>Payer quatre fois.</b> C'est ce qui s'est [finalement] passé, il a été puni avec [des problèmes concernant] quatre enfants l'enfant<sup>4</sup><i class="footnote">Relaté plus loin au verset 15.</i> et Amnon Tomor et Avsholom.<sup>5</sup><i class="footnote">Les événements avec Amnon, Tomor et Avsholom commencent au chapitre 13.</i>.
+<b>Payer quatre fois.</b> C'est ce qui s'est [finalement] passé, il a été puni avec [des problèmes concernant] quatre enfants l'enfant<sup>4</sup><i class="footnote">Relaté plus loin au verset 15.</i> et Amnon Tomor et Avshalom.<sup>5</sup><i class="footnote">Les événements avec Amnon, Tomor et Avshalom commencent au chapitre 13.</i>.
 
 ### passuk 7
 
@@ -112,7 +112,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Parce que tu as irrité les ennemis d'Adonoy.</b> C'est un euphimisme une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour se substituer à Dieu afin que le mot "irrité" n'ait pas à s'appliquer à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert tu as ouvert la bouche de [ceux] qui détestent le peuple de Dieu.
+<b>Parce que tu as irrité les ennemis d'Hachem.</b> C'est un euphimisme une manière [d'être] respectable pour le Haut.</sup>6</sup><i class="footnote">Utilisant "les ennemis de Dieu" pour se substituer à Dieu afin que le mot "irrité" n'ait pas à s'appliquer à Lui de manière directe.</i> Yonasan a traduit : Parce que tu as ouvert tu as ouvert la bouche de [ceux] qui détestent le peuple de Dieu.
 
 ### passuk 15
 <b>[Il est tombé malade.]</b> [Ce mot] désigne la maladie.

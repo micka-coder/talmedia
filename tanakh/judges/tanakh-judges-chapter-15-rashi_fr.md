@@ -37,7 +37,7 @@
 <b>Non ! Nous ne ferons que vous attacher.</b> Nous ne vous exécuterons pas, mais nous ne ferons que vous attacher.
 
 ### passuk 14
-<b>L'esprit d'Adonoy.</b> Un esprit de puissance, émanant d'Adonoy.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
+<b>L'esprit d'Hachem.</b> Un esprit de puissance, émanant d'Hachem.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan.</i>
 <b>Ses liens</b> qui l'attachaient.
 
 ### passuk 15
@@ -52,7 +52,7 @@
 
 ### passuk 19
 <b>L'alvéole [lit. "le mortier"].</b> L'alvéole où la dent est posée a la forme d'un mortier.
-<b>Ein Hakorei.</b> "La source qui s'est matérialisée par le cri de celui qui a appelé Adonoy."
+<b>Ein Hakorei.</b> "La source qui s'est matérialisée par le cri de celui qui a appelé Hachem."
 
 >Crédit : sefaris
 >License : CC-BY

@@ -4,7 +4,7 @@
 
 ### passuk 2
 <b>Pour qu'ils sachent.</b> Pour cette seule raison, Il a permis à ces nations de rester, afin que les générations futures des Bnei Israël puissent saisir la conséquence de l'iniquité - car il était désormais nécessaire qu'ils subissent un entraînement martial.
-<b>Alors qu'auparavant</b> quand ils se tenaient debout en adorant Adonoy.
+<b>Alors qu'auparavant</b> quand ils se tenaient debout en adorant Hachem.
 <b>C'était inconnu.</b> Ces guerres et l'art de la bataille. C'était inutile.
 
 ### passuk 3
@@ -23,7 +23,7 @@
 ### passuk 9
 
 ### passuk 10
-<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitsrayim : " J'ai certainement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7. </i> Quelles sont les deux vues?<sup>2</sup><i class="footnote"> 'Voyant', j'ai 'vu'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'or - néanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, "Il a jugé Israël" dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de "J'ai vu" dans sa prière devant Adonoy. Dans son "jugement", Israël devait être sauvé. (Radal là, 5)</i>
+<L'esprit divin l'a visité. R' Tanchuma a expliqué : Il a étudié la déclaration du Saint, béni soit-Il, à Moshé à Mitsrayim : " J'ai certainement vu (lit. 'voyant, j'ai vu') la tribulation de mon peuple. "<sup>1</sup><i class="footnote"> Shemos, 3:7. </i> Quelles sont les deux vues?<sup>2</sup><i class="footnote"> 'Voyant', j'ai 'vu'.</i> Il lui dit : "Je vois qu'ils sont destinés à errer avec le veau d'or - néanmoins, 'j'ai vu la tribulation de mon peuple'." Asniel expliqua cela en disant que, qu'ils soient innocents ou coupables, Il est obligé de les sauver.<sup>3</sup><i class="footnote">Shemos Rabah, 3:2. Par conséquent, "Il a jugé Israël" dans notre passage ne fait pas référence à la décision d'Asniel concernant un litige dans la salle d'audience, mais à son exposition de "J'ai vu" dans sa prière devant Hachem. Dans son "jugement", Israël devait être sauvé. (Radal là, 5)</i>
 
 ### passuk 11
 
@@ -38,14 +38,14 @@
 <b>Dont le bras droit était immobile.</b> Yonasan rend "Un homme dont le bras droit était rétréci". "Gamid" en araméen indique toujours quelque chose de rétréci par la maladie, "retrait", "rétréci" en vieux français. Il ne pouvait pas se servir de son bras droit. En hébreu, "fermé", comme dans "Que le puits ne ferme pas sa bouche sur moi."<sup>4</sup><i class="footnote">Tehilim, 69:16.</i> Son bras droit était "fermé"-il ne pouvait pas l'utiliser.
 
 ### passuk 16
-<b>Un <i>gomed</i> long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Basra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
+<b>Un <i>gomed</i> long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Batra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
 <b>Au-dessus de sa cuisse droite.</b> Comme il était capable d'utiliser sa main gauche, il la saisissait avec la main gauche.
 
 ### passuk 17
 <b>Obèse.</b> Gros.
 
 ### passuk 18
-<b>Il escorta le peuple.</b> Il fit demi-tour pour accompagner la délégation de Yisroélites venue avec lui pour porter le cadeau. Il les escorta jusqu'à Gilgal.
+<b>Il escorta le peuple.</b> Il fit demi-tour pour accompagner la délégation de Yitroélites venue avec lui pour porter le cadeau. Il les escorta jusqu'à Gilgal.
 
 ### passuk 19
 <b>Il est ensuite revenu</b> seul.
@@ -82,12 +82,12 @@
 <b>Dans le sous-bois.</b> Forêt à branches fines, fortement boisée, appelée "brousaille", brush, en vieux français, excellente pour se dissimuler. Fréquemment, dans l'ordre de Zeraim, les branches fines sont appelées "sa'ar"-"[Il] renversa les branches"<sup>16</sup><i class="footnote">Kilayim, 4:9.</i> "Si les branches s'engrènent."<sup>17</sup><i class="footnote">Peah, 2:3.</i>.
 
 ### passuk 27
-<b>Il arriva que, lorsqu'il arriva.</b> Il traversa le Yardein, et arriva à sa place dans le pays de Canaan.</sup>18</sup><i class="footnote">Le texte omet la traversée du Yardein par Ehud et son arrivée à Canaan. Rachi mentionne ces événements à des fins de clarification.</i>
-<b>Au mont Ephrayim.</b> Qui était dans le pays de Canaan, sur le côté ouest du Yardein. Le pays de Moav était sur le côté oriental du Yardein, mais comme ils avaient soumis Israël et traversé le Yardein, ils ont occupé Yericho comme indiqué ci-dessus, et installé leurs princes et gouverneurs sur Israël.
+<b>Il arriva que, lorsqu'il arriva.</b> Il traversa le Jourdain, et arriva à sa place dans le pays de Canaan.</sup>18</sup><i class="footnote">Le texte omet la traversée du Jourdain par Ehud et son arrivée à Canaan. Rachi mentionne ces événements à des fins de clarification.</i>
+<b>Au mont Ephrayim.</b> Qui était dans le pays de Canaan, sur le côté ouest du Jourdain. Le pays de Moav était sur le côté oriental du Jourdain, mais comme ils avaient soumis Israël et traversé le Jourdain, ils ont occupé Yericho comme indiqué ci-dessus, et installé leurs princes et gouverneurs sur Israël.
 
 ### passuk 28
-<b>Chargez derrière moi</b> pour exterminer tous les Moabites de notre côté de Yardein.
-<b>Prise de contrôle des cols de Yardein</b> afin que les Moabites ne puissent pas traverser pour s'échapper et retourner dans leur pays.
+<b>Chargez derrière moi</b> pour exterminer tous les Moabites de notre côté de Jourdain.
+<b>Prise de contrôle des cols de Jourdain</b> afin que les Moabites ne puissent pas traverser pour s'échapper et retourner dans leur pays.
 
 ### passuk 29
 <b>Tous horribles [lit. corpulent].</b> Chaque homme inspire l'admiration.

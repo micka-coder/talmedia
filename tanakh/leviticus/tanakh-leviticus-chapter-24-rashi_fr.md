@@ -3,11 +3,11 @@
 
 ### passuk 2
 <b>Commandez les Bnei Israël.</b> Voici la section concernant le <i>mitzvoh</i> des lampes [du Tabernacle]. Et la section dans le <i>poroshoh</i> de Ve-Atoh Tetzavveh, n'a été mentionnée [là] que pour le bien de l'ordre du travail du Tabernacle, pour expliquer le but de la <i>menorah</i>, et ainsi cela implique : A la fin, tu donneras des ordres aux Bnei Israël à ce sujet. 
-<b>Huile d'olive pure, pressée.</b> Trois huiles sortent de l'olive : [l'huile de] la première [pression] est appelée "pure" - et [ces trois huiles] sont expliquées dans les [Maseches] Menochos, et <i>Toras Kohanim</i>. 
+<b>Huile d'olive pure, pressée.</b> Trois huiles sortent de l'olive : [l'huile de] la première [pression] est appelée "pure" - et [ces trois huiles] sont expliquées dans les [Masehet] Menochos, et <i>Toras Kohanim</i>. 
 <b>Continuellement,</b> de nuit en nuit, comme [l'expression] "un holocauste continuel", qui [ne vient] que de jour en jour. 
 
 ### passuk 3
-<b>Le rideau du Témoignage,</b> qui est devant l'Arche, qui est appelée "Témoignage". Et nos rabbins ont expliqué [cela comme faisant référence] à <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la lampe la plus occidentale, qui témoigne pour tous les habitants du monde que la Présence divine habite au milieu d'Israël. [C'est parce que le <i>Kohein Godol</i>] y place autant d'huile que pour les autres lampes, [mais] c'est à partir d'elle qu'il commencerait [à allumer les lampes] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et avec elle qu'il terminerait. 
+<b>Le rideau du Témoignage,</b> qui est devant l'Arche, qui est appelée "Témoignage". Et nos rabbins ont expliqué [cela comme faisant référence] à <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la lampe la plus occidentale, qui témoigne pour tous les habitants du monde que la Présence divine habite au milieu d'Israël. [C'est parce que le <i>Cohen Gadol</i>] y place autant d'huile que pour les autres lampes, [mais] c'est à partir d'elle qu'il commencerait [à allumer les lampes] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et avec elle qu'il terminerait. 
 <b>Aharon la disposera [de manière à ce qu'elle brûle] du soir jusqu'au matin.</b> Il devra la disposer de manière appropriée en fonction de la durée de chaque nuit ; les Sages ont estimé [cela] à la moitié d'un <i>log</i> pour chaque lampe, et cela convenait même aux [longues] nuits de la saison de Téves, et cette mesure leur a été fixée [pour toute l'année]. 
 
 ### passuk 4
@@ -77,7 +77,7 @@
 <b>Quiconque frappe une personne sera mis à mort,</b> même s'il ne l'a pas tuée, mais [simplement] causé une blessure, car ici [le mot] "âme" n'apparaît pas. Et de celui qui frappe <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> son père ou sa mère. C'est [ce] verset qui parle, et [ce verset est placé ici] pour comparer [ce cas] à celui qui frappe un animal : De même que celui qui frappe un animal [quand il est] vivant [est responsable], de même [celui qui frappe son père [quand il est] vivant [est responsable] - à l'exclusion de celui qui frappe [son père ou sa mère] après [leur] mort. Puisque nous constatons que celui qui maudit [son père et sa mère, même] après sa mort, est passible de la peine de mort, il était nécessaire d'énoncer [la loi] concernant celui qui frappe [le corps d'un parent après sa mort] qu'il est exempt [de la peine de mort]. [De même que [pour blesser] un animal, [on doit payer une compensation], [car] s'il n'y a pas de blessure, il n'y a pas de paiement, de même, celui qui frappe son père n'est pas passible [de la peine de mort] tant qu'il ne l'a pas blessé. 
 
 ### passuk 22
-<b>Parce que je suis Adonoy, votre Dieu,</b> le Dieu de vous tous ; de même que j'attache mon nom à vous, je l'attache aux convertis. 
+<b>Parce que je suis Hachem, votre Dieu,</b> le Dieu de vous tous ; de même que j'attache mon nom à vous, je l'attache aux convertis. 
 
 ### passuk 23
 <b>Et les Bnei Israël firent - </b> [ils exécutèrent] le <i>mitzvoh</i> complet de la lapidation mentionné ailleurs [sur le blasphémateur] : jeter [le condamné en bas d'une hauteur], l'amoncellement de pierres [sur lui] et la pendaison [de son corps ensuite]. 

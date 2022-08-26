@@ -20,7 +20,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Amaleik vint, etc...</b> [La Torah] place cette section à côté du verset [précédent] afin de transmettre : "Je (Dieu) suis toujours parmi vous et prêt à satisfaire tous vos besoins, et pourtant vous dites : "Adonoy est-il parmi nous ou non ?" [Je jure] par vos vies que le chien (Amaleik) viendra vous mordre, et vous crierez vers Moi et alors vous saurez où Je suis." Une parabole : [on peut comparer cela] à un homme qui a placé son fils sur ses épaules et est parti en voyage. Chaque fois que le fils voyait un objet désirable, il disait : "Père, prends cet objet et donne-le moi." Et il (le père) le lui donnait. Cela se produisit une deuxième et une troisième fois. Ils rencontrèrent une certaine personne et le fils lui dit : "As-tu vu mon père ?" Son père lui dit : "Tu ne sais pas où je suis ?". Sur quoi il l'a jeté de lui-même et le chien est venu le mordre. 
+<b>Amaleik vint, etc...</b> [La Torah] place cette section à côté du verset [précédent] afin de transmettre : "Je (Dieu) suis toujours parmi vous et prêt à satisfaire tous vos besoins, et pourtant vous dites : "Hachem est-il parmi nous ou non ?" [Je jure] par vos vies que le chien (Amaleik) viendra vous mordre, et vous crierez vers Moi et alors vous saurez où Je suis." Une parabole : [on peut comparer cela] à un homme qui a placé son fils sur ses épaules et est parti en voyage. Chaque fois que le fils voyait un objet désirable, il disait : "Père, prends cet objet et donne-le moi." Et il (le père) le lui donnait. Cela se produisit une deuxième et une troisième fois. Ils rencontrèrent une certaine personne et le fils lui dit : "As-tu vu mon père ?" Son père lui dit : "Tu ne sais pas où je suis ?". Sur quoi il l'a jeté de lui-même et le chien est venu le mordre. 
 
 ### passuk 9
 <b>Choisissez pour nous -</b> "pour moi et pour vous". Il (Moshé) l'a assimilé (Yehoshua) à lui-même. De cela, ils [les Sages] ont dit : "L'honneur de ton disciple doit t'être aussi cher que le tien." Et [la déclaration des Sages qui suit :] " l'honneur de ton collègue [doit être] égal à la révérence de ton professeur " - d'où cela vient-il ? Car il est dit : "Aharon a dit à Moshé, 'Je te supplie, mon maître'". "Aharon n'était-il pas plus âgé que son frère ? Pourtant, il se référait à son collègue comme à son maître. [L'affirmation suivante :] "et la révérence envers ton maître doit être égale à la révérence envers Dieu" - d'où cela vient-il ? Car il est dit [Yehoshua dit à Moshe :] "Moshe, mon maître, כְּלָאֵם ," ce qui signifie : détruis-les de ce monde. Ceux qui se rebellent contre toi méritent d'être détruits comme s'ils s'étaient rebellés contre Dieu. 
@@ -33,7 +33,7 @@
 <b>Chur.</b> Il était le fils de Miriam et Koleiv était son mari.
 
 ### passuk 11
-<b>Lorsque Moshé a levé la main.</b> "Mais est-ce les mains de Moshé qui ont provoqué la victoire dans la bataille, etc." comme cela est cité dans (Maseches) Roch Hachana (29a). 
+<b>Lorsque Moshé a levé la main.</b> "Mais est-ce les mains de Moshé qui ont provoqué la victoire dans la bataille, etc." comme cela est cité dans (Masehet) Roch Hachana (29a). 
 
 ### passuk 12
 <b>Les mains de Moshé se sont alourdies.</b> Parce qu'il s'est montré laxiste dans l'accomplissement d'une mitsva, en nommant un autre à sa place, ses mains se sont alourdies. 
@@ -52,11 +52,11 @@
 
 ### passuk 15
 <b>Et appela son nom.</b> [Le nom] de l'autel.
-<b>Adonoy est mon miracle.</b> [Signification :] Dieu a accompli ici un grand miracle pour nous. Cela ne signifie pas que l'autel a été appelé ה' mais plutôt que celui qui mentionnera le nom de l'autel mentionnera le miracle que Dieu a accompli : "Dieu est notre miracle."
+<b>Hachem est mon miracle.</b> [Signification :] Dieu a accompli ici un grand miracle pour nous. Cela ne signifie pas que l'autel a été appelé ה' mais plutôt que celui qui mentionnera le nom de l'autel mentionnera le miracle que Dieu a accompli : "Dieu est notre miracle."
 
 ### passuk 16
 <b>Il a dit.</b> Moshé [a dit].
-<b>"La main est sur le trône de Dieu.</b> La main de Dieu est levée pour jurer par son trône d'avoir une guerre et une animosité éternelles contre Amaleik. Pourquoi est-il écrit כֵּס et non כִּסֵּא et aussi le Nom est coupé en deux ( י-ה ) ? Dieu a juré que son Nom ne sera pas entier, et que son Trône ne sera pas entier tant que le nom d'Amaleik ne sera pas totalement oblitéré. Et lorsque son nom sera oblitéré, le Nom sera entier et le Trône sera entier, comme il est dit : "L'ennemi est fini, lui dont les épées étaient éternelles", ce qui fait référence à Amaleik dont il est écrit : "Il a gardé sa colère pour toujours" [Le verset du Tehillim continue :] "Et les villes que tu as déracinées, leur mémoire a disparu." Et que dit-on ensuite ? "Mais Adonoy ( י-ה-ו-ה ) est intronisé pour toujours", ce qui signifie que le nom est devenu entier. "Il établit ( כִּסְאוֹ ) son Trône pour le jugement," par lequel le Trône est devenu entier. 
+<b>"La main est sur le trône de Dieu.</b> La main de Dieu est levée pour jurer par son trône d'avoir une guerre et une animosité éternelles contre Amaleik. Pourquoi est-il écrit כֵּס et non כִּסֵּא et aussi le Nom est coupé en deux ( י-ה ) ? Dieu a juré que son Nom ne sera pas entier, et que son Trône ne sera pas entier tant que le nom d'Amaleik ne sera pas totalement oblitéré. Et lorsque son nom sera oblitéré, le Nom sera entier et le Trône sera entier, comme il est dit : "L'ennemi est fini, lui dont les épées étaient éternelles", ce qui fait référence à Amaleik dont il est écrit : "Il a gardé sa colère pour toujours" [Le verset du Tehillim continue :] "Et les villes que tu as déracinées, leur mémoire a disparu." Et que dit-on ensuite ? "Mais Hachem ( י-ה-ו-ה ) est intronisé pour toujours", ce qui signifie que le nom est devenu entier. "Il établit ( כִּסְאוֹ ) son Trône pour le jugement," par lequel le Trône est devenu entier. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

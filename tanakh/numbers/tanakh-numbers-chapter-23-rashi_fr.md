@@ -4,12 +4,12 @@
 ### passuk 2
 
 ### passuk 3
-<b>Peut-être, Adonoy m'apparaîtra.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il n'a pas l'habitude de me parler le jour. 
+<b>Peut-être, Hachem m'apparaîtra.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il n'a pas l'habitude de me parler le jour. 
 <b>Il est parti seul.</b> Comme le traduit le Targum [Onkelos], "seul". Le mot dénote la placidité et le calme, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car rien d'autre que le silence ne l'accompagnait. 
 
 ### passuk 4
 <b>D'apparaître par hasard.</b> Le mot désigne un événement fortuit ; il désigne la disgrâce ; <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il désigne la malpropreté de l'émission séminale. Comme pour dire : " à contrecœur et dans l'humiliation ". Il ne lui est apparu que de jour, afin d'exposer la préciosité des Bnei Israël.'' 
-<b>Les sept autels.</b> "J'ai aménagé sept autels" n'est pas écrit ici, mais אֶת-שִׁבְעַת הַמִּזְבְּחֹת . Il (Bil'am) dit devant Lui : " Leurs patriarches ont construit sept autels avant toi, alors j'ai arrangé [des autels] pour qu'ils correspondent tous à ces autels. Avrohom en a construit quatre : "Il y construisit un autel à Dieu, qui lui était apparu." "De là, il se déplaça vers la montagne, etc.", "Avraham planta sa tente, etc." et un sur le mont Moriah. Yitzchak en a construit une : "Il y construisit un autel, etc." Ya'akov en a construit deux : Un à Sichem, et un à Beis El. 
+<b>Les sept autels.</b> "J'ai aménagé sept autels" n'est pas écrit ici, mais אֶת-שִׁבְעַת הַמִּזְבְּחֹת . Il (Bil'am) dit devant Lui : " Leurs patriarches ont construit sept autels avant toi, alors j'ai arrangé [des autels] pour qu'ils correspondent tous à ces autels. Avraham en a construit quatre : "Il y construisit un autel à Dieu, qui lui était apparu." "De là, il se déplaça vers la montagne, etc.", "Avraham planta sa tente, etc." et un sur le mont Moriah. Yitzchak en a construit une : "Il y construisit un autel, etc." Ya'akov en a construit deux : Un à Sichem, et un à Beis El. 
 <b>Et j'ai offert un bœuf et un bélier sur l'autel.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais Avraham n'a offert qu'un seul bélier. 
 
 ### passuk 5
@@ -21,7 +21,7 @@
 
 ### passuk 8
 <b>Comment puis-je maudire, alors que Dieu n'a pas maudit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Alors qu'ils auraient mérité d'être maudits, ils ne le furent pas. Lorsque leur père a mentionné leur péché : " Car ils ont tué un homme dans leur rage ", il n'a maudit que leur rage, comme il est dit : " Maudite est leur rage. " Quand leur père est entré en tromperie avec son père, il a mérité d'être maudit. Qu'est-ce qui est dit là ? "Qu'il soit aussi béni." De ceux qui devaient déclarer des bénédictions, il est dit : "Ceux-là [les tribus] se tiendront debout pour bénir le peuple." De ceux qui devaient déclarer des malédictions, n'est pas dit, "celles-ci se tiendront pour maudire le peuple", mais "celles-ci se tiendront à la malédiction" - Il ne voulait pas invoquer le mot "malédiction" contre eux. 
-<b>Si Adonoy n'a pas été en colère.</b> Je n'ai aucun pouvoir, sauf celui de savoir repérer le moment où le Saint, Béni soit-Il, est en colère. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais Il n'était pas en colère pendant tous ces jours où je suis venu vers vous. C'est pourquoi il est dit : " Mon peuple, rappelez-vous, maintenant, ce que [Balak] a conseillé, etc, et ce que Bil'am lui a répondu, etc, afin que vous connaissiez la justice de Dieu. " 
+<b>Si Hachem n'a pas été en colère.</b> Je n'ai aucun pouvoir, sauf celui de savoir repérer le moment où le Saint, Béni soit-Il, est en colère. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais Il n'était pas en colère pendant tous ces jours où je suis venu vers vous. C'est pourquoi il est dit : " Mon peuple, rappelez-vous, maintenant, ce que [Balak] a conseillé, etc, et ce que Bil'am lui a répondu, etc, afin que vous connaissiez la justice de Dieu. " 
 
 ### passuk 9
 <b>Parce que je l'observe depuis les sommets des montagnes (lit. tête des montagnes).</b> Je contemple leurs origines, les débuts de leurs racines, et je perçois qu'ils sont bien fondés <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et puissants, comme les montagnes et les collines, à cause des patriarches et des matriarches. 
@@ -52,7 +52,7 @@
 
 ### passuk 17
 <b>Accompagné des dignitaires moavites.</b> Au-dessus, il est écrit "et <i>tous</i> les dignitaires moavites." Quand ils virent que c'était sans espoir, certains partirent, laissant seulement quelques autres. 
-<b>Que dit Adonoy ?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Cela dénote une dérision, comme pour dire : "tu n'es pas ton propre maître". 
+<b>Que dit Hachem ?</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> Cela dénote une dérision, comme pour dire : "tu n'es pas ton propre maître". 
 
 ### passuk 18
 <b>Arrive, Balak.</b> Voyant qu'il se moquait de lui, il avait l'intention de l'irriter. "Tiens-toi sur tes pieds ! Il ne t'est pas permis de rester assis alors que je suis l'émissaire de l'Omniprésent auprès de toi." 
@@ -70,7 +70,7 @@
 ### passuk 21
 <b>On ne voit pas de malfaiteurs dans Yaakov.</b> Comme le rend le Targum [Onkelos]. Une autre interprétation : En suivant son sens ordinaire, on peut l'expliquer magnifiquement. Le Saint, béni soit-Il, ne regarde pas les mauvais en Yaakov. Lorsqu'ils transgressent Ses commandements, Il ne les poursuit pas avec exactitude en réfléchissant à <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la méchanceté et la faute de leur violation de Ses doctrines. 
 <b>Transgression.</b> Le mot [עמל, (lit. pénibilité)] désigne le péché, comme dans "le péché conçoit", "car vous observez un comportement pécheur et exaspérant". Parce que le péché est fastidieux devant l'omniprésent. 
-<b>Adonoy, son Dieu, est avec lui.</b> Même quand ils l'irritent et sont rebelles, il ne les abandonne pas. 
+<b>Hachem, son Dieu, est avec lui.</b> Même quand ils l'irritent et sont rebelles, il ne les abandonne pas. 
 <b>Il a l'amitié du roi.</b> Le mot désigne l'affection et l'amitié, comme "le camarade de David" - celui qui aime David, "et il l'a donné à son camarade". De même, Onkelos rend "la Présence du Roi est parmi eux". 
 
 ### passuk 22

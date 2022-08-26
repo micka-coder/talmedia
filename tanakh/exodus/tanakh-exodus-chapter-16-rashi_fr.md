@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le quinzième jour.</b> La date de ce campement est spécifiquement mentionnée parce que ce jour-là, ils ont terminé [leur réserve de] gâteau qu'ils avaient emporté d'Égypte. et [maintenant] ils avaient besoin de la manne. Nous apprenons ainsi que des restes de la pâte, ils ont mangé soixante et un repas [jusqu'au 15 de Iyar] et que la manne est descendue pour eux le seizième jour de Iyar, qui était le premier jour de la semaine comme cela est cité dans Maseches Shabbos. 
+<b>Le quinzième jour.</b> La date de ce campement est spécifiquement mentionnée parce que ce jour-là, ils ont terminé [leur réserve de] gâteau qu'ils avaient emporté d'Égypte. et [maintenant] ils avaient besoin de la manne. Nous apprenons ainsi que des restes de la pâte, ils ont mangé soixante et un repas [jusqu'au 15 de Iyar] et que la manne est descendue pour eux le seizième jour de Iyar, qui était le premier jour de la semaine comme cela est cité dans Masehet Chabbat. 
 
 ### passuk 2
 <b>Ils se plaignirent.</b> Parce que leur [réserve de] pain était terminée.
@@ -18,11 +18,11 @@
 
 ### passuk 6
 <b>Le soir.</b> [עֶרֶב est] identique à לָעֶרֶב - "le soir".
-<b>Vous saurez qu'Adonoy vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "car <i>vous</i> nous avez fait sortir", vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Adonoy qui vous a fait sortir car Il mettra les cailles à votre disposition." 
+<b>Vous saurez qu'Hachem vous a fait sortir du pays d'Égypte.</b> "Puisque vous nous avez dit : "car <i>vous</i> nous avez fait sortir", vous saurez [maintenant] que ce n'est pas nous qui vous avons fait sortir mais bien Hachem qui vous a fait sortir car Il mettra les cailles à votre disposition." 
 
 ### passuk 7
-<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : "et voici que la gloire d'Adonoy était visible dans la nuée." Mais <i>ceci</i> est ce qu'il leur a dit : "Le soir, vous saurez qu'Il a dans Sa main le pouvoir de vous donner vos désirs et [bien que] Il vous donnera [de la] viande, Il ne vous la donnera pas avec un visage brillant car vous avez demandé quelque chose de manière inappropriée, et le ventre plein. Mais le pain que tu as demandé par nécessité, lorsqu'il descendra au matin, tu verras la gloire de Son visage lumineux car Il te le fera descendre d'une manière affectueuse : (a) le matin, lorsqu'on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous comme s'il était emballé dans une boîte. 
-<b>Vos plaintes contre Adonoy.</b> [עַל ה' est] la même chose que אֲשֶׁר עַל ה' <i>qui</i> sont contre Dieu.
+<b>Et au matin, vous verrez.</b> Il ne s'agit pas d'une référence à la gloire qui est mentionnée [dans le verset] : "et voici que la gloire d'Hachem était visible dans la nuée." Mais <i>ceci</i> est ce qu'il leur a dit : "Le soir, vous saurez qu'Il a dans Sa main le pouvoir de vous donner vos désirs et [bien que] Il vous donnera [de la] viande, Il ne vous la donnera pas avec un visage brillant car vous avez demandé quelque chose de manière inappropriée, et le ventre plein. Mais le pain que tu as demandé par nécessité, lorsqu'il descendra au matin, tu verras la gloire de Son visage lumineux car Il te le fera descendre d'une manière affectueuse : (a) le matin, lorsqu'on a le temps de le préparer, (b) avec de la rosée au-dessus et de la rosée en dessous comme s'il était emballé dans une boîte. 
+<b>Vos plaintes contre Hachem.</b> [עַל ה' est] la même chose que אֲשֶׁר עַל ה' <i>qui</i> sont contre Dieu.
 <b>Mais qu'est-ce que nous sommes.</b> [i.e.] Quelle est notre importance ? 
 <b>que vous provoquiez des plaintes contre nous ?</b> Que vous mettiez tout le monde à se plaindre contre nous - vos fils, vos femmes, vos filles, et le mélange des nationalités. C'est sans choix que je suis obligé d'expliquer le mot תַלִּינוּ comme signifiant "faire faire à un autre" à cause de son <i>dagesh</i> et de la façon dont il est lu. Car s'il avait été la forme "faible" (sans <i>dagesh</i>), je l'aurais expliqué sous la forme תִּפְעֲלוּ , comme dans "( וַיָּלֶן ) La nation <i>se plaignait</i> contre Moshé." Ou s'il avait eu un <i>dagesh,</i> sans la lettre י' [après le ל'] et aurait été lu : תִּלוֹנוּ , je l'aurais expliqué sous la forme תִּתְלוֹנְנוּ - "vous vous êtes fait des plaignants. " Mais maintenant [sous la forme de תַלִּינוּ], il a le sens de : "Vous avez amené les autres à se plaindre", comme dans le cas des espions [où il est dit] : "Ils ont poussé toute l'assemblée à se plaindre de lui." 
 
@@ -31,7 +31,7 @@
 <b>Tu provoques des plaintes contre Lui.</b> [C'est-à-dire : "Tu provoques] d'autres personnes à le faire, qui t'entendent te plaindre." 
 
 ### passuk 9
-<b>Approchez-vous [devant Adonoy].</b> A l'endroit où la nuée va descendre.
+<b>Approchez-vous [devant Hachem].</b> A l'endroit où la nuée va descendre.
 
 ### passuk 10
 
@@ -75,7 +75,7 @@
 
 ### passuk 22
 <b>[Lit.] Ils ont ramassé du pain double.</b> Dans leurs tentes, ils ont mesuré ce qu'ils ont ramassé et ils ont constaté que c'était deux fois plus - deux <i>omers</i> pour chacun. Il existe un Midrash Aggadah : [לֶחֶם מִשְׁנֶה signifiant :] לֶחֶם מְשׁוּנֶּה - " pain différent " ; ce jour-là, il changea pour le mieux en ce qui concerne son odeur et son goût.
-<b>Ils en parlèrent à Moshé.</b> Ils lui demandèrent : "Qu'est-ce qui est [différent] aujourd'hui des autres jours ?". De là, nous pouvons apprendre que Moshé ne leur avait pas encore parlé de la section relative au Chabbat qu'il lui avait été ordonné de leur dire : "Le sixième jour [où] on prépare, etc.". Jusqu'à ce qu'ils demandent : "Qu'est-ce que c'est ?" Il leur a répondu : "C'est ce qu'Adonoy a dit", c'est-à-dire "ce qu'on m'a ordonné de vous dire". C'est pour cette [omission] que l'Écriture (Dieu) l'a puni, lorsqu'Il lui a dit (c'est-à-dire en s'adressant à Moshé) : "Jusqu'à quand refuseras-tu [d'observer Mes commandements] ?" et il (Moshé) n'a pas été exclu du groupe général. 
+<b>Ils en parlèrent à Moshé.</b> Ils lui demandèrent : "Qu'est-ce qui est [différent] aujourd'hui des autres jours ?". De là, nous pouvons apprendre que Moshé ne leur avait pas encore parlé de la section relative au Chabbat qu'il lui avait été ordonné de leur dire : "Le sixième jour [où] on prépare, etc.". Jusqu'à ce qu'ils demandent : "Qu'est-ce que c'est ?" Il leur a répondu : "C'est ce qu'Hachem a dit", c'est-à-dire "ce qu'on m'a ordonné de vous dire". C'est pour cette [omission] que l'Écriture (Dieu) l'a puni, lorsqu'Il lui a dit (c'est-à-dire en s'adressant à Moshé) : "Jusqu'à quand refuseras-tu [d'observer Mes commandements] ?" et il (Moshé) n'a pas été exclu du groupe général. 
 
 ### passuk 23
 <b>Cuisez ce que vous voulez cuire.</b> Ce que vous souhaitez cuire [des deux <i>omers</i>] au four, cuisez aujourd'hui tout ce dont [vous avez besoin] pour deux jours, et ce que vous devez cuire dans l'eau, cuisez-le aujourd'hui. Le terme אֲפִיָיה - "cuire", s'applique au pain alors que le terme בִּישּׁוּל - "cuire", à un plat bouilli. 
@@ -111,7 +111,7 @@
 
 ### passuk 33
 <b>Une jarre.</b> Un flacon en faïence, comme le traduit Onkelos ( צְלוֹחִית ). 
-<b>Placez-le devant Adonoy.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la "tente de réunion" mais il a été écrit ici dans la section traitant de la manne.
+<b>Placez-le devant Hachem.</b> Devant l'Arche Ce verset n'a pas été dit avant la construction de la "tente de réunion" mais il a été écrit ici dans la section traitant de la manne.
 
 ### passuk 34
 

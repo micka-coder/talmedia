@@ -9,12 +9,12 @@
 <b>De la première.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quand un homme entre dans son champ <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et remarque la première figue à mûrir, il l'entoure d'une bande de papyrus comme symbole de marquage, et déclare : "C'est <i>bikurim.</i>". 
 
 ### passuk 3
-<b>Qui sera [de service] durant ces jours. </b> Vous n'avez personne, sauf le <i>kohein</i> qui sert pendant vos jours, comme il peut l'être. 
+<b>Qui sera [de service] durant ces jours. </b> Vous n'avez personne, sauf le <i>Cohen</i> qui sert pendant vos jours, comme il peut l'être. 
 <b>Et tu lui diras.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Que tu n'es pas ingrat.
 <b>Je vérifie aujourd'hui.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une fois par an, pas deux. 
 
 ### passuk 4
-<b>Le kohein prendra alors le panier de votre main.</b> Pour l'agiter - le <i>kohein</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> place sa main sous celle du propriétaire et l'agite.
+<b>Le Cohen prendra alors le panier de votre main.</b> Pour l'agiter - le <i>Cohen</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> place sa main sous celle du propriétaire et l'agite.
 
 ### passuk 5
 <b>Tu proclameras alors.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela dénote une forte proclamation.
@@ -33,7 +33,7 @@
 <b>Et Il nous a donné cette terre.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme indiqué par la connotation ordinaire.
 
 ### passuk 10
-<b>Vous le placerez ensuite.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela enseigne qu'il le prend après l'agitation du kohein, le tient dans sa main pendant la récitation, puis l'agite à nouveau. 
+<b>Vous le placerez ensuite.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela enseigne qu'il le prend après l'agitation du Cohen, le tient dans sa main pendant la récitation, puis l'agite à nouveau. 
 
 ### passuk 11
 <b>Tu te réjouiras avec tout le bien.</b> On en déduit qu'on ne récite pas la lecture du premier fruit <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sauf pendant la période de réjouissance - de la fête de <i>Atzeres</i>-Shavuos jusqu'à la fête de Souccos, lorsqu'un homme rassemble son grain, ses fruits, son vin et son huile. Cependant, à partir de Souccos, il apporte sans réciter. 
@@ -42,11 +42,11 @@
 
 ### passuk 12
 <b>Lorsque tu auras fini de donner toutes les dîmes de tes produits la troisième année. </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quand tu auras fini de mettre en réserve les dîmes de la troisième année, désigne le moment de la cession et de la récitation la veille de Pessah de la quatrième année, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> car il est dit : "Au bout de trois ans, tu retireras, etc.". <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ici, il est dit "au bout de", et en dessous, il est dit "au bout de sept ans", concernant <i>Hakhel.</i> De même que, là, [il fait référence à] une fête, ici, [il fait référence à] une fête. Peut-être, de même que là-bas [il fait référence à] la fête de Souccos, ici, [il fait référence à] la fête de Souccos ? La Torah enseigne donc : "Lorsque vous avez terminé de payer la dîme de la troisième année" - la fête pendant laquelle les dîmes sont terminées, qui est Pessah, car il y a beaucoup d'arbres qui sont récoltés après Souccos. Ainsi, les dîmes de la troisième [année] sont complétées à Pessah de la quatrième [année], et si quelqu'un a retardé ses dîmes, l'Écriture exige qu'il s'en dessaisisse de ses biens. 
-<b>L'année de la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>L'année où l'obligation de la dîme porte sur une seule des deux dîmes qui étaient applicables au cours des deux années précédentes ; au cours de la première et de la deuxième année du cycle <i>Shemittah</i>, l'obligation porte sur la première dîme - comme il est dit : "...lorsque tu prélèves, des Israélites, la dîme...". - et la seconde dîme, comme il est dit : "Tu mangeras, devant Adonoy ton Dieu, la dîme de ton blé, de ton vin et de ton huile." Il y a donc deux dîmes. Ici, l'enseignement est que, pendant la troisième année, il n'y a une obligation que pour une seule de ces deux dîmes - laquelle ? La première dîme, et à la place de la deuxième dîme, il doit donner la dîme pour les indigents. Car il est dit ici : " Tu as donné au Lévi " son dû - donc la première dîme. "Au prosélyte, à l'orphelin et à la veuve" - c'est la dîme pour les indigents. 
+<b>L'année de la dîme.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>L'année où l'obligation de la dîme porte sur une seule des deux dîmes qui étaient applicables au cours des deux années précédentes ; au cours de la première et de la deuxième année du cycle <i>Shemittah</i>, l'obligation porte sur la première dîme - comme il est dit : "...lorsque tu prélèves, des Israélites, la dîme...". - et la seconde dîme, comme il est dit : "Tu mangeras, devant Hachem ton Dieu, la dîme de ton blé, de ton vin et de ton huile." Il y a donc deux dîmes. Ici, l'enseignement est que, pendant la troisième année, il n'y a une obligation que pour une seule de ces deux dîmes - laquelle ? La première dîme, et à la place de la deuxième dîme, il doit donner la dîme pour les indigents. Car il est dit ici : " Tu as donné au Lévi " son dû - donc la première dîme. "Au prosélyte, à l'orphelin et à la veuve" - c'est la dîme pour les indigents. 
 <b>Afin qu'ils puissent manger dans tes portails à leur satisfaction.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Fournissez-leur de quoi les satisfaire. On déduit de là qu'on ne doit pas réduire le don au pauvre à l'aire de battage à <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>moins d'une moitié de <i>kav</i> de blé.
 
 ### passuk 13
-<b>Vous déclarerez devant Adonoy, votre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La reconnaissance que vous avez donné vos dîmes. 
+<b>Vous déclarerez devant Hachem, votre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La reconnaissance que vous avez donné vos dîmes. 
 <b>J'ai dessaisi mon domaine du matériel sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceci fait référence à la deuxième dîme et au fruit de la quatrième année, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et vous enseigne que si quelqu'un a tardé avec ses dîmes de deux ans, et ne les a pas montées à Jérusalem, il doit les monter maintenant. 
 <b>Et l'ont aussi présentée au Lévi.</b> Cela fait référence à la première dîme. <b>Aussi.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela comprend le don de la <i>terumah</i>, et les prémices. 
 <b>Le prosélyte, l'orphelin et la veuve.</b> Cela fait référence à la dîme des indigents. 
@@ -58,7 +58,7 @@
 <b>Je n'en ai pas dévoré lors d'un deuil.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>On en déduit que c'est interdit lors d'un deuil.
 <b>Je ne l'ai pas non plus dévoré lorsqu'il était souillé rituellement.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Que je sois souillé et qu'il soit propre, ou que je sois propre et qu'il soit souillé. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Où est l'avertissement concernant ceci ? "Vous ne pouvez pas manger dans vos villes" - ceci fait référence au fait de manger pendant la souillure, comme il est dit à propos des offrandes sacrées disqualifiées : "Vous pouvez en manger dans vos villes, les souillés et les purs, etc.". Mais ceci, vous ne pouvez pas le manger selon la manière de manger dans vos villes mentionnée ailleurs. 
 <b>Je n'en ai pas non plus fait usage pour les morts.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour faire un cercueil ou des linceuls.
-<b>J'ai écouté la voix d'Adonoy mon Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je l'ai apporté au Temple.
+<b>J'ai écouté la voix d'Hachem mon Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je l'ai apporté au Temple.
 <b>J'ai accompli tout ce que Tu m'avais ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je me suis réjoui, et j'ai apporté de la joie avec lui. 
 
 ### passuk 15
@@ -66,7 +66,7 @@
 <b>Ce que Tu nous as donné, comme Tu l'as juré à nos ancêtres.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De nous donner, et Tu as accompli - une terre où coulent le lait et le miel. 
 
 ### passuk 16
-<b>Ce jour même, Adonoy, ton Dieu, te l'ordonne.</b> Chaque jour, qu'elles t'apparaissent nouvelles, comme si, ce jour même, tu avais reçu l'ordre de les accomplir. 
+<b>Ce jour même, Hachem, ton Dieu, te l'ordonne.</b> Chaque jour, qu'elles t'apparaissent nouvelles, comme si, ce jour même, tu avais reçu l'ordre de les accomplir. 
 <b>Tu les observeras et les exécuteras.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Un écho céleste le bénit ; 'Tu as apporté les prémices en ce jour - puisses-tu réitérer l'année prochaine.'
 
 ### passuk 17

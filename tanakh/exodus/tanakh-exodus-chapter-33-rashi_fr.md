@@ -29,7 +29,7 @@
 <b>prenait la tente.</b> [יִקַּח] est une action continue (au présent) : il prenait sa tente et la plantait en dehors du campement. Il pensait : celui qui est ostracisé par le maître devrait être ostracisé par le disciple aussi.
 <b>Une distance -</b> de deux mille <i>amohs,</i> semblable à ce qui est dit : "Qu'il y ait seulement entre vous (les B'nei Yisrael) et elle (l'Arche) une distance d'environ deux mille <i>amohs</i> par mesure." 
 <b>Et il l'appela.</b> Il la désignera comme Tente de la Rencontre - un lieu de rassemblement pour ceux qui cherchent la connaissance de la Torah.
-<b>Tous ceux qui cherchaient Adonoy.</b> De là [on déduit] que celui qui cherche à être en présence d'un "ancien" (un érudit de la Torah) est comme s'il était en présence de la Shechinah.
+<b>Tous ceux qui cherchaient Hachem.</b> De là [on déduit] que celui qui cherche à être en présence d'un "ancien" (un érudit de la Torah) est comme s'il était en présence de la Shechinah.
 <b>Il sortira à la Tente de la Rencontre.</b> [יֵצֵא est ici] le même [temps] que יוֹצֵא (c'est-à-dire au présent). Une autre explication de וְהָיָה כָּל מְבַקֵּשׁ ה' . Même les anges tutélaires, lorsqu'ils s'informaient sur le lieu de la Shechinah, leurs congénères leur répondaient : "Mais Il est là, dans la tente de Moshé" ! 
 
 ### passuk 8
@@ -45,7 +45,7 @@
 <b>Se sont prosternés -</b> devant la <i>Shechinah.</i>
 
 ### passuk 11
-<b>Adonoy parla à Moshé face à face.</b> La lecture correcte d'Onkelos est וּמִתְמַלֵּל עִם משֶׁה .
+<b>Hachem parla à Moshé face à face.</b> La lecture correcte d'Onkelos est וּמִתְמַלֵּל עִם משֶׁה .
 <b>Il retourna au camp -</b> après que [Dieu] ait conversé avec lui, Moshé retournait au campement et enseignait aux anciens ce qu'il avait appris. Moshé a agi de la sorte depuis Yom Kippour jusqu'à l'érection du <i>mishkon</i>, mais pas plus longtemps. Car le 17 Tamouz, les tablettes ont été brisées et le 18, il a brûlé le Veau et jugé les pécheurs et le 19, il est monté [sur la montagne], comme il est dit : " Le lendemain, Moshé a dit au peuple, etc. " et y a passé quarante jours et a demandé la miséricorde [pour les B'nei Yisrael], " et il retournerait au campement ", car c'est au présent (continu). Il en va de même pour toute cette section : וְרָאָה כָל הָעָם (v. 10) est וַחֲזַן - " verraient ", וְנִצָבוּ (v. 8) est וִקַיְימִין - " ils se lèveraient ", וְהִבִּיטוּ (ibid. ) est וּמִסְתַּכְּלִין - "ils regarderaient", וְהִשְׁתַּחֲווּ (v. 10) est וְסָגְדִין - "ils s'inclineraient". Mais son explication midrashique est : 
 <b>Dieu a parlé à Moshé</b> qu'il devait retourner au campement ; il lui a dit : "Je suis en colère et tu es en colère ; dans ce cas, qui les fera à nouveau s'approcher de moi ?". 
 
@@ -56,7 +56,7 @@
 ### passuk 13
 <b>Maintenant -</b> si c'est pour que j'ai trouvé grâce à Tes yeux, fais-moi connaître Tes voies - c'est-à-dire quelle récompense donnes-tu à ceux qui trouvent grâce à Tes yeux -. 
 <b>afin que je Te connaisse pour trouver grâce à Tes yeux.</b> Et par cela (c'est-à-dire, connaître Tes voies) le degré auquel Tu donnes une récompense - qu'est-ce que cette "trouvaille de faveur" que j'ai trouvée à Tes yeux. D'où l'interprétation de לְמַעַן אֶמְצָא חֵן : afin que je puisse apprécier l'étendue de la récompense pour avoir " trouvé grâce. " 
-<b>Et considère que cette nation est Ton peuple -</b> afin que Tu ne dises pas : "Et je ferai de toi une grande nation", alors que Tu abandonnes ceux-ci [le peuple] ; considère qu'ils sont Ton peuple d'autrefois, et si Tu deviens méprisant à leur égard, je ne pourrais pas être certain que ceux qui descendent de moi perdurent. Et ma récompense pour ce peuple, fais-la-moi connaître. Nos Sages, cependant, en donnent des interprétations midrashiques dans le Tractate Berachos, mais mon but est d'expliquer les versets dans leur contexte et leur ordre. 
+<b>Et considère que cette nation est Ton peuple -</b> afin que Tu ne dises pas : "Et je ferai de toi une grande nation", alors que Tu abandonnes ceux-ci [le peuple] ; considère qu'ils sont Ton peuple d'autrefois, et si Tu deviens méprisant à leur égard, je ne pourrais pas être certain que ceux qui descendent de moi perdurent. Et ma récompense pour ce peuple, fais-la-moi connaître. Nos Sages, cependant, en donnent des interprétations midrashiques dans le Tractate Berahot, mais mon but est d'expliquer les versets dans leur contexte et leur ordre. 
 
 ### passuk 14
 <b>Il [Dieu] dit : "Ma Présence ira [avec toi].</b> C'est ainsi que le traduit Onkelos : [שְׁכִנְתִּי תְהַךְ - " Ma Chéchina ira ", ce qui signifie :] " Je n'enverrai plus d'ange, c'est moi, moi-même, qui irai ", comme dans : "( וּפָנֶיךָ ) Tu iras toi-même au combat." 
@@ -76,7 +76,7 @@
 
 ### passuk 19
 <b>Il (Dieu) dit : "Je ferai passer toute Ma bonté, etc."</b> C'est-à-dire : "Le temps est venu pour toi de voir de Ma Gloire, ce que Je te permettrai de voir, car Je veux et dois t'enseigner l'ordre de la prière. En effet, lorsque vous avez eu besoin de demander miséricorde pour les Israélites, vous m'avez rappelé le mérite des Patriarches. Tu as pensé que si le mérite des Patriarches était épuisé, il n'y aurait plus d'espoir. Je ferai donc passer devant toi tous les attributs de Ma bonté sur le rocher pendant que tu seras caché dans la grotte. 
-<b>Et proclamerai le Nom, Adonoy, en ta présence -</b> afin de t'enseigner l'ordre de demande de miséricorde même si le mérite des Patriarches est épuisé. Et dans cet ordre où tu Me vois, "enveloppé [dans un tallis]" tout en proclamant "les treize attributs", enseigne à Yisraël à faire de même. Et en mentionnant devant Moi [Mes attributs] "Miséricordieux ! Gracieux ! ", ils seront exaucés, car Mes miséricordes ne sont jamais épuisées. 
+<b>Et proclamerai le Nom, Hachem, en ta présence -</b> afin de t'enseigner l'ordre de demande de miséricorde même si le mérite des Patriarches est épuisé. Et dans cet ordre où tu Me vois, "enveloppé [dans un tallis]" tout en proclamant "les treize attributs", enseigne à Yisraël à faire de même. Et en mentionnant devant Moi [Mes attributs] "Miséricordieux ! Gracieux ! ", ils seront exaucés, car Mes miséricordes ne sont jamais épuisées. 
 <b>Je serai bienveillant envers qui je voudrai être bienveillant.</b> [C'est-à-dire] les fois où je voudrai être bienveillant. 
 <b>Et je serai compatissant -</b> les fois où je voudrai être compatissant. Jusqu'à ce point, Il lui a seulement promis que "parfois Je répondrai, parfois Je ne répondrai pas." Mais à ce moment-là [lorsqu'Il a effectivement proclamé Ses attributs,] Il lui a dit : "Voici, j'établis une alliance", lui promettant ainsi [qu'une fois les attributs invoqués], ils ne reviendront jamais sans réponse (lit. vide). 
 

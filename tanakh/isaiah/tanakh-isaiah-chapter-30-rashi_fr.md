@@ -6,7 +6,7 @@
 ### passuk 2
 <b>Ceux qui vont descendre en Egypte</b> Ceci fait allusion à Hoshea, fils d'Elah, qui envoya des émissaires à So, roi d'Egypte (II Rois 17:4).
 <b>Pour descendre en Égypte</b> La terre d'Israël est plus élevée que toutes les autres terres. Alternativement, il s'agit d'une dégradation pour eux.
-<b>et de s'abriter</b> (lit.) se couvrir, abrier en O. F. (C'est l'équivalent de sabriter en français moderne, s'abriter).
+<b>et de s'abriter</b> (lit.) se couvrir, abrier en ancien français (C'est l'équivalent de sabriter en français moderne, s'abriter).
 
 ### passuk 3
 
@@ -159,7 +159,7 @@
 ### passuk 2
 <b>Ceux qui vont descendre en Egypte</b> Ceci fait allusion à Hoshea, fils d'Elah, qui envoya des émissaires à So, roi d'Egypte (II Rois 17:4).
 <b>Pour descendre en Égypte</b> La terre d'Israël est plus élevée que toutes les autres terres. Alternativement, il s'agit d'une dégradation pour eux.
-<b>et de s'abriter</b> (lit.) se couvrir, abrier en O. F. (C'est l'équivalent de sabriter en français moderne, s'abriter).
+<b>et de s'abriter</b> (lit.) se couvrir, abrier en ancien français (C'est l'équivalent de sabriter en français moderne, s'abriter).
 
 ### passuk 3
 

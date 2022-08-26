@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Maseches Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
+<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
 
 ### passuk 5
 
@@ -34,15 +34,15 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonoson a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonatanh a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
 
 ### passuk 17
-<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerusholayim alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyohu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyohu..."<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
+<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Jérusalem alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyahu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayahu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyahu..."<sup>11</sup><i class="footnote">Yeshayahu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français., [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
-<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonoson a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
+<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonatanh a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
-<b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayohu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
+<b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayahu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
 
 ### passuk 19
 
@@ -53,17 +53,17 @@
 <b>Il entrera dans sa paume.</b> Lorsqu'une personne s'appuie sur un support constitué d'un roseau éclaté, qui s'est brisé dans sa main, les bords éclatés viennent perforer sa paume.<sup>14</sup><i class="footnote">De même, sa dépendance à l'égard de Paroh pour son soutien s'avérera mauvaise pour lui.</i>
 
 ### passuk 22
-<b>N'est-il pas celui dont Chizkiyohu a supprimé les hauts lieux et les autels, etc.</b> On peut déduire d'ici que Ravshokei était un juif apostat, car il admettait que le Saint, Béni soit-Il, est Dieu, mais son désir est d'adorer les idoles.</sup>15</sup><i class="footnote">Voir Maseches Sanhedrin 60a.</i>
+<b>N'est-il pas celui dont Chizkiyahu a supprimé les hauts lieux et les autels, etc.</b> On peut déduire d'ici que Ravshokei était un juif apostat, car il admettait que le Saint, Béni soit-Il, est Dieu, mais son désir est d'adorer les idoles.</sup>15</sup><i class="footnote">Voir Masehet Sanhedrin 60a.</i>
 
 ### passuk 23
-<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyohu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable d'organiser une rébellion.-Ralbag</i>
+<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyahu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable d'organiser une rébellion.-Ralbag</i>
 <b>Pariage.</b> <i>Gajer</i>, en ancien français.
 
 ### passuk 24
 <b>Comment pouvez-vous refuser un seul capitaine des serviteurs de mon maître.</b> Car le plus petit d'entre eux est capitaine sur deux mille hommes, et vous ne pouvez pas obtenir deux mille hommes. Nous déduisons d'ici concernant les chefs des armées, qui étaient au total cent quatre-vingt-cinq mille et qui sont tombés avec Sancheiriv, que le plus petit d'entre eux était capitaine sur deux mille hommes qui étaient avec lui.
 
 ### passuk 25
-<b>C'est avec un autre qu'Adonoy.</b> Suis-je venu sans permission ? Yeshayohu avait déjà prophétisé à l'époque de Achaz, ton père : "Adonoy fera venir sur toi et sur ton peuple, etc. le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayohu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayohu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc.", dans Yeshayohu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
+<b>C'est avec un autre qu'Hachem.</b> Suis-je venu sans permission ? Yeshayahu avait déjà prophétisé à l'époque de Achaz, ton père : "Hachem fera venir sur toi et sur ton peuple, etc. le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayahu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayahu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc.", dans Yeshayahu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
 <b>Et pour le détruire.</b> Ceci, il l'a ajouté de son propre chef.
 
 ### passuk 26
@@ -71,7 +71,7 @@
 
 ### passuk 27
 <b>Manger ses propres excréments.</b> Dans la faim [causée] par le siège.<sup>20</sup><i class="footnote">S'ils continuent à garder le mur pour empêcher l'armée d'Ashur d'entrer, ils assiégeront la ville de manière prolongée et si sévère que le peuple mourra de faim pendant le siège, ce qui les amènera à "manger leurs propres excréments, etc."</b> -Ralbag</i>.
-<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos rabbins ont expliqué qu'il fallait euphémiser et lire "צואתם" [au lieu de חריהם].<sup>21</sup><i class="footnote">Voir Maseches Megillah 25b.</i>
+<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos rabbins ont expliqué qu'il fallait euphémiser et lire "צואתם" [au lieu de חריהם].<sup>21</sup><i class="footnote">Voir Masehet Megillah 25b.</i>
 <b>Leur propre urine.</b> Excréments lâches, les glandes du rectum, qui est retenu par trois glandes. Alternativement, une expression d'excréments qui se produit par la mastication des dents [=שניהם].
 
 ### passuk 28
@@ -84,7 +84,7 @@
 <b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereishis 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 33:10 et ci-dessus, dans II Melochim 5:15.</i>
 
 ### passuk 32
-<b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayohu 36:17. La Guemara dans Maseches Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>
+<b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayahu 36:17. La Guemara dans Masehet Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>
 <b>Un pays de grain et de vin.</b> C'est l'Afrique.
 
 ### passuk 33
@@ -98,7 +98,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Maseches Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
+<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -110,7 +110,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Maseches Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
+<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
 
 ### passuk 5
 
@@ -137,15 +137,15 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonoson a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonatanh a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
 
 ### passuk 17
-<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Yerusholayim alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyohu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayohu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyohu..."<sup>11</sup><i class="footnote">Yeshayohu 37:9.</i>.
+<b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Jérusalem alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyahu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayahu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyahu..."<sup>11</sup><i class="footnote">Yeshayahu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français., [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
-<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonoson a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
+<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonatanh a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
-<b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayohu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
+<b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayahu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
 
 ### passuk 19
 
@@ -156,17 +156,17 @@
 <b>Il entrera dans sa paume.</b> Lorsqu'une personne s'appuie sur un support constitué d'un roseau éclaté, qui s'est brisé dans sa main, les bords éclatés viennent perforer sa paume.<sup>14</sup><i class="footnote">De même, sa dépendance à l'égard de Paroh pour son soutien s'avérera mauvaise pour lui.</i>
 
 ### passuk 22
-<b>N'est-il pas celui dont Chizkiyohu a supprimé les hauts lieux et les autels, etc.</b> On peut déduire d'ici que Ravshokei était un juif apostat, car il admettait que le Saint, Béni soit-Il, est Dieu, mais son désir est d'adorer les idoles.</sup>15</sup><i class="footnote">Voir Maseches Sanhedrin 60a.</i>
+<b>N'est-il pas celui dont Chizkiyahu a supprimé les hauts lieux et les autels, etc.</b> On peut déduire d'ici que Ravshokei était un juif apostat, car il admettait que le Saint, Béni soit-Il, est Dieu, mais son désir est d'adorer les idoles.</sup>15</sup><i class="footnote">Voir Masehet Sanhedrin 60a.</i>
 
 ### passuk 23
-<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyohu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable de monter une rébellion.-Ralbag</i>
+<b>Prestation de sécurité.</b> Glorifie-toi sur lui ; engage un pari à condition que si tu es capable de fournir des cavaliers pour deux mille chevaux.<sup>16</sup><i class="footnote">Ravshokei a laissé entendre que Chizkiyahu n'avait même pas assez de cavaliers pour les deux mille chevaux, il est donc sûrement incapable de monter une rébellion.-Ralbag</i>
 <b>Pariage.</b> <i>Gajer</i>, en ancien français.
 
 ### passuk 24
 <b>Comment pouvez-vous refuser un seul capitaine des serviteurs de mon maître.</b> Car le plus petit d'entre eux est capitaine sur deux mille hommes, et vous ne pouvez pas obtenir deux mille hommes. Nous déduisons d'ici concernant les chefs des armées, qui étaient au total cent quatre-vingt-cinq mille et qui sont tombés avec Sancheiriv, que le plus petit d'entre eux était capitaine sur deux mille hommes qui étaient avec lui.
 
 ### passuk 25
-<b>C'est avec un autre qu'Adonoy.</b> Suis-je venu sans permission ? Yeshayohu avait déjà prophétisé à l'époque de Achaz, ton père : "Adonoy fera venir sur toi et sur ton peuple, etc. le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayohu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayohu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc.", dans Yeshayohu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
+<b>C'est avec un autre qu'Hachem.</b> Suis-je venu sans permission ? Yeshayahu avait déjà prophétisé à l'époque de Achaz, ton père : "Hachem fera venir sur toi et sur ton peuple, etc. le roi d'Assur."<sup>17</sup><i class="footnote">Yeshayahu 7:17. Le Radak cite un autre verset de la prophétie de Yeshayahu, "et c'est pourquoi la LRD fait venir sur eux les eaux puissantes et abondantes du fleuve, le roi d'Assur, etc.", dans Yeshayahu 8:7. Sancheiriv croyait donc qu'il agissait avec l'approbation divine.</i>
 <b>Et pour le détruire.</b> Ceci, il l'a ajouté de son propre chef.
 
 ### passuk 26
@@ -174,7 +174,7 @@
 
 ### passuk 27
 <b>Manger ses propres excréments.</b> Dans la faim [causée] par le siège.<sup>20</sup><i class="footnote">S'ils continuent à garder le mur pour empêcher l'armée d'Ashur d'entrer, ils assiégeront la ville de manière prolongée et si sévère que le peuple mourra de faim pendant le siège, ce qui les amènera à "manger leurs propres excréments, etc."</b> -Ralbag</i>.
-<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos rabbins ont expliqué qu'il fallait euphémiser et lire "צואתם" [au lieu de חריהם].<sup>21</sup><i class="footnote">Voir Maseches Megillah 25b.</i>
+<b>Leurs excréments.</b> Les excréments qui sont excrétés par l'orifice de l'anus. Nos rabbins ont expliqué qu'il fallait euphémiser et lire "צואתם" [au lieu de חריהם].<sup>21</sup><i class="footnote">Voir Masehet Megillah 25b.</i>
 <b>Leur propre urine.</b> Excréments lâches, les glandes du rectum, qui est retenu par trois glandes. Alternativement, une expression d'excréments qui se produit par la mastication des dents [=שניהם].
 
 ### passuk 28
@@ -187,7 +187,7 @@
 <b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereishis 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 33:10 et ci-dessus, dans II Melochim 5:15.</i>
 
 ### passuk 32
-<b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayohu 36:17. La Guemara dans Maseches Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>
+<b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayahu 36:17. La Guemara dans Masehet Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>
 <b>Un pays de grain et de vin.</b> C'est l'Afrique.
 
 ### passuk 33
@@ -201,7 +201,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Maseches Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
+<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

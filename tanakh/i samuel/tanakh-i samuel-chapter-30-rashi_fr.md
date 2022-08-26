@@ -55,7 +55,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>A partir de ce jour.</b> [Littéralement "à partir de ce jour et au-dessus"]. Il n'est pas précisé : "[de ce jour] sur" mais "[de ce jour] et au-dessus [=avant]". Avrohom avait déjà institué cette loi [lorsqu'il a dit :] " Seulement ce que les jeunes gens ont mangé "<sup>5</sup><i class="footnote">Bereishis 14:24, où il est précisé qu'Avrohom distribuait des parts du butin de guerre à ceux qui restaient en arrière et gardaient le matériel. </i> ceux qui sont restés avec le matériel, "et la part des hommes"<sup>6</sup><i class="footnote">Ibid.</i> qui sont partis à la guerre. Dans le Breishis Raboh.
+<b>A partir de ce jour.</b> [Littéralement "à partir de ce jour et au-dessus"]. Il n'est pas précisé : "[de ce jour] sur" mais "[de ce jour] et au-dessus [=avant]". Avraham avait déjà institué cette loi [lorsqu'il a dit :] " Seulement ce que les jeunes gens ont mangé "<sup>5</sup><i class="footnote">Bereishis 14:24, où il est précisé qu'Avraham distribuait des parts du butin de guerre à ceux qui restaient en arrière et gardaient le matériel. </i> ceux qui sont restés avec le matériel, "et la part des hommes"<sup>6</sup><i class="footnote">Ibid.</i> qui sont partis à la guerre. Dans le Breishis Raboh.
 
 ### passuk 26
 <b>A ses alliés.</b> <b>A ses amis.

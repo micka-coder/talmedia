@@ -73,7 +73,7 @@
 <b>Ma honte.</b> Car j'avais été mise à mal en ayant été stérile, et qu'on avait dit de moi que je tomberais dans le lot du méchant Eisov. La Aggadah [explique ainsi] Tant qu'une femme n'a pas d'enfant, elle n'a personne à blâmer pour ses fautes. Une fois qu'elle a un enfant, elle lui en fait porter la responsabilité. [Par exemple,] "Qui a brisé ce récipient ? Ton enfant !" "Qui a mangé ces figues ? Ton enfant !" 
 
 ### passuk 24
-<b>Que Adonoy m'ajoute un autre fils.</b> Elle savait prophétiquement que Yaakov était destiné à n'établir que douze tribus, elle pensa donc : " Que Sa volonté soit que celle qu'il est encore destiné à établir vienne de moi. " Elle a donc prié pour un seul fils de plus. 
+<b>Que Hachem m'ajoute un autre fils.</b> Elle savait prophétiquement que Yaakov était destiné à n'établir que douze tribus, elle pensa donc : " Que Sa volonté soit que celle qu'il est encore destiné à établir vienne de moi. " Elle a donc prié pour un seul fils de plus. 
 
 ### passuk 25
 <b>Quand Rochel eut donné naissance à Yoseif.</b> Maintenant que l'adversaire d'Eisov est né. Comme il est dit : "La maison de Yaakov sera un feu, la maison de Yoseif, une flamme, et la maison d'Eisov, de la paille." Un feu [Yaakov] sans flamme [Yoseif] n'a aucun effet à distance. Une fois que Yoseif est né, Yaakov a mis sa confiance en Dieu et a souhaité revenir. 

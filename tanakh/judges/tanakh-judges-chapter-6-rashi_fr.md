@@ -31,14 +31,14 @@
 <b>Dans le pressoir.</b> Avec les poutres d'un pressoir à olives.
 
 ### passuk 12
-<b>Adonoy est avec toi, homme au pouvoir suprême.</b> Puisqu'il t'a insufflé un tel pouvoir.
+<b>Hachem est avec toi, homme au pouvoir suprême.</b> Puisqu'il t'a insufflé un tel pouvoir.
 
 ### passuk 13
-<b>Si [lit. et] Adonoy est avec nous.</sup></sup><i class="footnote">Non pas "Et Adonoy est avec nous", comme l'indiquerait la lecture littérale, mais "Si Adonoy est avec nous", comme le démontre la phrase suivante citée par Rachi, "pourquoi [tout cela] s'est-il produit, etc.".</i></b> Si Adonoy est avec nous, pourquoi [tout cela] s'est-il produit, etc.
-<b>Ce que nos ancêtres nous ont raconté.</b> C'était Pessah, et il lui dit : "Hier soir, père a récité le Hallel pour moi, et je l'ai entendu lire : "Quand Israël est sorti d'Égypte"<sup>7</sup><i class="footnote"> "...la mer a observé et s'est enfuie, le Yardein s'est retourné, etc.". (Tehilim, 114)</i>-mais maintenant Il nous a abandonnés. Si nos ancêtres étaient saints, qu'Il agisse en notre faveur selon leur mérite ; et s'ils étaient méchants, alors, de même qu'Il a accompli Ses merveilles pour eux gratuitement, qu'Il agisse en notre faveur. Où sont toutes Ses merveilles ?"<sup>8</sup><i class="footnote">Yalkout, 62.</i>
+<b>Si [lit. et] Hachem est avec nous.</sup></sup><i class="footnote">Non pas "Et Hachem est avec nous", comme l'indiquerait la lecture littérale, mais "Si Hachem est avec nous", comme le démontre la phrase suivante citée par Rachi, "pourquoi [tout cela] s'est-il produit, etc.".</i></b> Si Hachem est avec nous, pourquoi [tout cela] s'est-il produit, etc.
+<b>Ce que nos ancêtres nous ont raconté.</b> C'était Pessah, et il lui dit : "Hier soir, père a récité le Hallel pour moi, et je l'ai entendu lire : "Quand Israël est sorti d'Égypte"<sup>7</sup><i class="footnote"> "...la mer a observé et s'est enfuie, le Jourdain s'est retourné, etc.". (Tehilim, 114)</i>-mais maintenant Il nous a abandonnés. Si nos ancêtres étaient saints, qu'Il agisse en notre faveur selon leur mérite ; et s'ils étaient méchants, alors, de même qu'Il a accompli Ses merveilles pour eux gratuitement, qu'Il agisse en notre faveur. Où sont toutes Ses merveilles ?"<sup>8</sup><i class="footnote">Yalkout, 62.</i>
 
 ### passuk 14
-<b>S'est tourné vers lui.</b> Le Saint, béni soit-Il, Lui-même.</sup></sup><i class="footnote">Gidon a été visité par Adonoy lui-même au mérite de sa défense de Israël. (Yalkout, ibid)</i>
+<b>S'est tourné vers lui.</b> Le Saint, béni soit-Il, Lui-même.</sup></sup><i class="footnote">Gidon a été visité par Hachem lui-même au mérite de sa défense de Israël. (Yalkout, ibid)</i>
 <b>Par ce pouvoir qui est le tien.</b> Par le pouvoir du mérite de ta défense de mes enfants.</sup>10</sup><i class="footnote">Ibid.</i> C'est l'explication de R' Tanchuma.
 
 ### passuk 15
@@ -61,13 +61,13 @@
 
 ### passuk 22
 <b>Aahha.</b> Cela dénote une appréhension, comme pour dire : "Que vais-je devenir ?".
-<b>Cela, parce que j'ai vu.</b> Parce que j'ai vu un ange d'Adonoy - c'est pourquoi j'ai de l'appréhension et je m'exclame "Aahha !".
+<b>Cela, parce que j'ai vu.</b> Parce que j'ai vu un ange d'Hachem - c'est pourquoi j'ai de l'appréhension et je m'exclame "Aahha !".
 
 ### passuk 23
 
 ### passuk 24
-<b>L'intituler.</b> Gidon a nommé l'autel.</sup>15</sup><i class="footnote">La lecture est la suivante : "[Il] l'a intitulé : 'Adonoy est la paix'", et non "Adonoy l'a intitulé : 'Paix'".</i>
-<b>Adonoy est la paix.</b> Adonoy est notre paix.
+<b>L'intituler.</b> Gidon a nommé l'autel.</sup>15</sup><i class="footnote">La lecture est la suivante : "[Il] l'a intitulé : 'Hachem est la paix'", et non "Hachem l'a intitulé : 'Paix'".</i>
+<b>Hachem est la paix.</b> Hachem est notre paix.
 
 ### passuk 25
 <b>Taureau [lit. bœuf taureau].</b> Le jeune taureau, car même un bœuf d'un jour est appelé "bœuf".<sup>16</sup><i class="footnote">La déduction de "bœuf taureau" est un taureau qui se qualifie comme un bœuf. Puisque même un taureau d'un jour se qualifie, la référence est à un jeune taureau.</i>

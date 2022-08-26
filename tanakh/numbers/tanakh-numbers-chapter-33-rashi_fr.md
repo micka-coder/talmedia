@@ -77,7 +77,7 @@
 ### passuk 37
 
 ### passuk 38
-<b>Par la parole [lit. bouche] d'Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceci enseigne qu'il est mort par le baiser divin.
+<b>Par la parole [lit. bouche] d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ceci enseigne qu'il est mort par le baiser divin.
 
 ### passuk 39
 
@@ -102,13 +102,13 @@
 ### passuk 48
 
 ### passuk 49
-<b>Du Beis Yeshimos jusqu'à Aveil Hasheetim.</b> Ici, on vous apprend <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que la mesure du camp israélite [était] de douze <i>mils,</i> car Rava, le fils de Bar Chana, a dit : " J'ai vu cet endroit, etc. ". 
+<b>Du Beis Yeshimos jusqu'à Aveil Hasheetim.</b> Ici, on vous apprend <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que la mesure du camp israélite [était] de douze <i>mils,</i> car Rava, le fils de Bar Hanna, a dit : " J'ai vu cet endroit, etc. ". 
 <b>Aveil Hasheetim.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La plaine de Sheetim était intitulée "Aveil". 
 
 ### passuk 50
 
 ### passuk 51
-<b>Lorsque vous traversez le Yardein, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : "Lorsque vous traversez le Yardein sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont." Nous trouvons que Yehoshua leur a parlé de manière similaire alors qu'ils étaient encore dans le Yardein. 
+<b>Lorsque vous traversez le Jourdain, etc. Vous devez chasser, etc.</b> N'ont-ils pas été admonestés plusieurs fois à ce sujet ? Mais voici ce que Moshé leur a dit : "Lorsque vous traversez le Jourdain sur la terre ferme, vous devez traverser à cette condition, et si vous ne le faites pas, les eaux viendront et vous inonderont." Nous trouvons que Yehoshua leur a parlé de manière similaire alors qu'ils étaient encore dans le Jourdain. 
 
 ### passuk 52
 <b>Vous devez chasser.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Vous devez chasser. 

@@ -4,7 +4,7 @@
 <b>Entre tes yeux.</b> Près du front. Ailleurs, il est dit : "Ils ne doivent pas déchirer les zones chauves de leur tête". Cela assimile la tête entière à la zone située entre les yeux. 
 
 ### passuk 2
-<b>Parce que vous êtes un peuple sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Votre propre sainteté s'étend depuis vos ancêtres ; en outre, "Adonoy vous a choisis." 
+<b>Parce que vous êtes un peuple sacré.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Votre propre sainteté s'étend depuis vos ancêtres ; en outre, "Hachem vous a choisis." 
 
 ### passuk 3
 <b>Toute abomination.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tout ce que j'ai rendu abominable pour vous. Par exemple, percer l'oreille d'un animal premier-né afin de l'abattre en dehors du Sanctuaire - c'est quelque chose que J'ai rendu abominable pour vous, à partir de "Il n'y aura pas de défaut sur lui". La Torah enseigne qu'il est interdit de l'abattre et de le manger en raison de cette tare. Si l'on fait cuire de la viande avec du lait - c'est quelque chose que j'ai rendu abominable pour vous, donc il est interdit de le manger ici. 
@@ -62,7 +62,7 @@
 
 ### passuk 21
 <b>À l'étranger dans vos villes.</b> L'étranger résident, qui a résolu de s'abstenir de l'idolâtrie, mais mange de la viande sans abattage rituel. 
-<b>Car vous êtes un peuple sanctifié à Adonoy.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sanctifiez-vous en vous abstenant de ce qui est permis. Les choses qui sont permises, mais certains s'en abstiennent comme si elles étaient interdites ; ne les permettez pas en leur présence. 
+<b>Car vous êtes un peuple sanctifié à Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Sanctifiez-vous en vous abstenant de ce qui est permis. Les choses qui sont permises, mais certains s'en abstiennent comme si elles étaient interdites ; ne les permettez pas en leur présence. 
 <b>Ne faites pas cuire un chevreau.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Trois fois ; cela exclut les animaux sauvages, la volaille et les animaux impurs. 
 
 ### passuk 22

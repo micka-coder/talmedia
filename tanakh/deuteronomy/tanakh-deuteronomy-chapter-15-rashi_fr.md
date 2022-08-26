@@ -78,8 +78,8 @@
 <b>Vous ne pouvez pas travailler avec votre bœuf premier-né, ni tondre, etc.</b> L'inverse, également, est interdit par dérivation rabbinique, mais l'Écriture dépeint ce qui est couramment pratiqué. 
 
 ### passuk 20
-<b>Devant Adonoy ton Dieu, tu dois le manger.</b> Ceci s'adresse au <i>kohein</i>, car nous constatons déjà que c'est l'un des dons sacerdotaux, qu'il soit sain ou souillé, puisqu'il est dit : "Leur chair sera à toi, etc.". 
-<b>Chaque année.</b> Cela enseigne qu'il ne doit pas être retenu plus d'un an. Peut-être devient-elle disqualifiée une fois l'année écoulée ? On l'a déjà comparé à la dîme, puisqu'il est dit : "Tu dois manger, devant Adonoy ton Dieu, etc. la dîme de ton grain, de ton vin, de ton huile, et des premiers-nés de ton bétail et de tes troupeaux." <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même que la seconde dîme n'est pas disqualifiée d'une année sur l'autre, de même le premier-né n'est pas disqualifié. Il s'agit plutôt d'une <i>mitzvah</i> à l'intérieur de l'année. 
+<b>Devant Hachem ton Dieu, tu dois le manger.</b> Ceci s'adresse au <i>Cohen</i>, car nous constatons déjà que c'est l'un des dons sacerdotaux, qu'il soit sain ou souillé, puisqu'il est dit : "Leur chair sera à toi, etc.". 
+<b>Chaque année.</b> Cela enseigne qu'il ne doit pas être retenu plus d'un an. Peut-être devient-elle disqualifiée une fois l'année écoulée ? On l'a déjà comparé à la dîme, puisqu'il est dit : "Tu dois manger, devant Hachem ton Dieu, etc. la dîme de ton grain, de ton vin, de ton huile, et des premiers-nés de ton bétail et de tes troupeaux." <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même que la seconde dîme n'est pas disqualifiée d'une année sur l'autre, de même le premier-né n'est pas disqualifié. Il s'agit plutôt d'une <i>mitzvah</i> à l'intérieur de l'année. 
 <b>Chaque année [lit. année par année].</b> S'il a été abattu à la fin de l'année, il peut être mangé ce jour-là, et un autre jour dans l'année suivante. Ceci enseigne qu'il peut être mangé pendant deux jours et une nuit. 
 
 ### passuk 21

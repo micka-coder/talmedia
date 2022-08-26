@@ -26,7 +26,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>À Giv'oh.</b> Giv'oh de Binyomin.
+<b>À Giv'oh.</b> Giv'oh de Binyamin.
 
 ### passuk 13
 <b>Nous passerons la nuit.</b> Comme dans <span><b>וְלַנְנוּ</b></span>. Le point qui ponctue la <span><b>נ</b></span> sert à remplacer une deuxième <span><b>נ</b></span>.<sup>2</sup><i class="footnote">Le suffixe <span><b>נו</b></span> désigne l'usage pluriel. Lorsque la lettre <span><b>נ</b></span> apparaît dans la racine, comme dans <span><b>לין</b></span>, le <span><b>נ</b></span> supplémentaire est abandonné, et est remplacé par un point dans le <span><b>נ</b></span> original.</i>
@@ -40,7 +40,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Au Sanctuaire d'Adonoy.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
+<b>Au Sanctuaire d'Hachem.</b> Je vais à Silo.</sup></sup><i class="footnote">Le Mishkon était à Silo. (Yehosnua, 18:1).</i>
 
 ### passuk 19
 

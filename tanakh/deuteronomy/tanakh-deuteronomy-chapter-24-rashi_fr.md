@@ -14,7 +14,7 @@
 ### passuk 5
 <b>Une nouvelle épouse.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une qui est nouvelle pour lui, même si elle est veuve. Cela exclut celui qui se remarie avec sa femme divorcée. 
 <b>Il ne doit pas s'imposer à lui.</b> Le commandement militaire.
-<b>En toute matière.</b> Ce qui est nécessaire à l'armée - pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cependant, celui qui revient des formations de combat par déclaration du <i>kohein</i> - par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou qui a fiancé une femme mais ne l'a pas épousée - fournit l'eau et la nourriture, et répare les routes. 
+<b>En toute matière.</b> Ce qui est nécessaire à l'armée - pas pour fournir de l'eau et de la nourriture, ou pour réparer les routes. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cependant, celui qui revient des formations de combat par déclaration du <i>Cohen</i> - par exemple, celui qui a construit une maison mais ne l'a pas inaugurée, ou qui a fiancé une femme mais ne l'a pas épousée - fournit l'eau et la nourriture, et répare les routes. 
 <b>Il sera... pour sa maison.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Même pour le bien de sa maison. S'il a construit une maison et l'a inaugurée, ou planté une vigne et l'a rachetée, il n'a pas besoin de bouger de sa maison pour l'effort de guerre. 
 <b>Pour sa maison.</b> Il s'agit de sa maison [inaugurée].
 <b>Il sera.</b> Cela ajoute sa vigne [rachetée].
@@ -34,7 +34,7 @@
  
 
 ### passuk 9
-<b>Rappelle-toi ce que l'Adonoy, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzora'as,</i> ne te livre pas à la médisance. Rappelez-vous ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
+<b>Rappelle-toi ce que l'Hachem, ton Dieu, a fait à Miriam.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si tu as l'intention de prendre des précautions pour éviter de souffrir de <i>tzora'as,</i> ne te livre pas à la médisance. Rappelez-vous ce qui fut fait à Miriam, qui parla de son frère et fut affligée d'ulcères lépreux. 
 
 ### passuk 10
 <b>Si tu deviens le créancier de ton prochain.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tu obliges ton prochain.

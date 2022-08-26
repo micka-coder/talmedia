@@ -40,7 +40,7 @@
 <b>Acheté avec de l'argent.</b> [Se référant à :] celui qui a été acheté après sa naissance.
 
 ### passuk 13
-<b>Tes esclaves nés dans ta maison doivent être circoncis.</b> Ici [la circoncision de יְלִיד בַּיִת] est répétée et il n'est pas dit : " Le huitième jour " [comme au v. 12], afin de vous apprendre qu'il y a un יְלִיד בַּיִת qui est circoncis après huit jours comme cela est expliqué dans Meseches Shabbos. 
+<b>Tes esclaves nés dans ta maison doivent être circoncis.</b> Ici [la circoncision de יְלִיד בַּיִת] est répétée et il n'est pas dit : " Le huitième jour " [comme au v. 12], afin de vous apprendre qu'il y a un יְלִיד בַּיִת qui est circoncis après huit jours comme cela est expliqué dans Meseches Chabbat. 
 
 ### passuk 14
 <b>Un mâle non circoncis.</b> On enseigne ici que la circoncision [est effectuée] à l'endroit où il y a une distinction entre le mâle et la femelle.
@@ -52,7 +52,7 @@
 
 ### passuk 16
 <b>Je la bénirai.</b> Quelle est cette bénédiction ? C'est qu'elle est revenue à sa jeunesse, comme il est dit : "Maintenant que je suis usée, aurai-je le plaisir [d'un fils]." 
-<b>Je la bénirai.</b> La capacité d'allaiter, alors qu'elle en avait besoin le jour de la fête de Yitzchok, quand les gens disaient avec malice d'eux qu'ils avaient recueilli un enfant trouvé dans la rue. Elles ont dit : "C'est notre enfant". Alors chaque femme apporta son enfant - mais négligea d'apporter sa nourrice - et elle les soigna tous. C'est ce qui est dit : "Sarah a allaité les enfants." Ber. Rab. fait partiellement allusion à cela. 
+<b>Je la bénirai.</b> La capacité d'allaiter, alors qu'elle en avait besoin le jour de la fête de Yitshak, quand les gens disaient avec malice d'eux qu'ils avaient recueilli un enfant trouvé dans la rue. Elles ont dit : "C'est notre enfant". Alors chaque femme apporta son enfant - mais négligea d'apporter sa nourrice - et elle les soigna tous. C'est ce qui est dit : "Sarah a allaité les enfants." Ber. Rab. fait partiellement allusion à cela. 
 
 ### passuk 17
 <b>Avraham tomba sur son visage et se mit à rire.</b> Celui-ci [le mot וַיִּצְחָק] Onkelos traduit, bonheur et réjouissance, alors que [le mot וַתִּצְחַק] concernant Sarah il interprète comme un rire. Vous pouvez apprendre [de ceci] qu'Avraham a cru [la prophétie] et s'est réjoui, mais Sarah n'a pas cru et s'est moquée. C'est pourquoi Dieu s'est mis en colère contre Sarah mais n'a pas été en colère contre Avraham. 
@@ -65,9 +65,9 @@
 
 ### passuk 19
 <b>En effet.</b> Une expression d'affirmation. De même : "En vérité, nous sommes des pécheurs." [Ou] "En vérité, elle n'a pas de fils." 
-<b>Et tu l'appelleras Yitzchok.</b> Basé sur le rire. Certains disent, basé sur les [י'] 10 épreuves et [צ'] pour les 90 ans de Sarah[ l'âge] et [ח'] pour le 8e jour où il a été circoncis et [ק'] pour les 100 ans d'Avraham. 
-<b>J'établirai mon alliance avec lui.</b> Pourquoi cela est-il dit ? Il a déjà été écrit : "Et quant à toi, tu dois préserver Mon alliance, toi et tes descendants." Mais, puisqu'Il a dit : "J'établirai, etc", je pourrais penser que les descendants de Yishmaël et les descendants de Keturoh sont inclus dans l'établissement [de l'alliance]. Il est donc dit : "J'établirai Mon alliance <i>avec lui</i> et pas avec d'autres". [Si tel est le cas, pourquoi le verset] "J'établirai mon alliance avec Yitzchok" est-il [à nouveau] énoncé ? Pour enseigner qu'il était saint dès le ventre de sa mère. Une autre explication [pour répéter le v. 19] : R. Abba a dit : De là, le fils de la maîtresse a tiré une conclusion logique du fils de la servante : Il est écrit : "Je l'ai béni et je le rendrai fécond et je le multiplierai." Cela fait référence à Yishmael. A combien plus forte raison. ... j'établirai mon alliance avec Yitzchok. 
-<b>Mon alliance.</b> Que l'alliance de la circoncision sera transmise [uniquement] aux descendants de Yitzchok.
+<b>Et tu l'appelleras Yitshak.</b> Basé sur le rire. Certains disent, basé sur les [י'] 10 épreuves et [צ'] pour les 90 ans de Sarah[ l'âge] et [ח'] pour le 8e jour où il a été circoncis et [ק'] pour les 100 ans d'Avraham. 
+<b>J'établirai mon alliance avec lui.</b> Pourquoi cela est-il dit ? Il a déjà été écrit : "Et quant à toi, tu dois préserver Mon alliance, toi et tes descendants." Mais, puisqu'Il a dit : "J'établirai, etc", je pourrais penser que les descendants de Yishmaël et les descendants de Keturoh sont inclus dans l'établissement [de l'alliance]. Il est donc dit : "J'établirai Mon alliance <i>avec lui</i> et pas avec d'autres". [Si tel est le cas, pourquoi le verset] "J'établirai mon alliance avec Yitshak" est-il [à nouveau] énoncé ? Pour enseigner qu'il était saint dès le ventre de sa mère. Une autre explication [pour répéter le v. 19] : R. Abba a dit : De là, le fils de la maîtresse a tiré une conclusion logique du fils de la servante : Il est écrit : "Je l'ai béni et je le rendrai fécond et je le multiplierai." Cela fait référence à Yishmael. A combien plus forte raison. ... j'établirai mon alliance avec Yitshak. 
+<b>Mon alliance.</b> Que l'alliance de la circoncision sera transmise [uniquement] aux descendants de Yitshak.
 
 ### passuk 20
 <b>Douze princes.</b> [Une référence au fait] qu'ils se dissiperont comme des nuages, comme dans : "Nuages [נְשִׂיאִים] et vent." 

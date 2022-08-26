@@ -8,7 +8,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Moshé dit : "C'est ce qu'Adonoy a dit."</b> Alors qu'il se tenait encore devant Pharaon, cette prophétie lui a été racontée car une fois qu'il a quitté sa présence (celle de Pharaon), il n'a plus jamais vu son visage. 
+<b>Moshé dit : "C'est ce qu'Hachem a dit."</b> Alors qu'il se tenait encore devant Pharaon, cette prophétie lui a été racontée car une fois qu'il a quitté sa présence (celle de Pharaon), il n'a plus jamais vu son visage. 
 <b>Au moment de minuit.</b> [כַּחֲצֹת לַיְלָה lit. signifie :] <i>lorsque la nuit est divisée. </i> כַּחֲצוֹת étant la même forme que בַּעֲלוֹת (<i>Quand [elle] est montée</i>) ou ( בַּחֲרוֹת ) <i>quand ils se sont mis en colère contre nous. </i> C'est son ( כַּחֲצֹת לַיְלָה ) sens ordinaire afin qu'il s'inscrive dans son contexte, car חֲצוֹת n'est pas le nom de חֵצִי . Nos Sages [cependant] l'ont expliqué ( כַּחֲצוֹת לַיְלָה ) comme : <i>à peu près l'heure de minuit. </i> Et ils [poursuivent] en disant que Moshé a utilisé le mot כַּחֲצוֹת qui implique vers [minuit], soit [légèrement] avant ou après, et il n'a pas dit בַּחֲצוֹת (<i>à</i> minuit) de peur que les astrologues de Pharaon ne se trompent et ne disent : " Moshé est un menteur ! " Mais Dieu qui connaît Ses temps et Ses moments [exacts], a [réellement] dit : " <i>At</i> minuit ". 
 
 ### passuk 5
@@ -20,7 +20,7 @@
 
 ### passuk 7
 <b>Un chien n'aiguisera pas sa langue.</b> Je dis que [יֶחֱרַץ] est un terme qui signifie <i>aiguë</i>. De même " לֹא חָרַץ sa langue envers tout homme des B'nei Israël. " [לֹא חָרַץ signifiant :] <i>Il n'a pas aiguisé</i>. [ou :] אָז תֶּחֶרֳץ - "Alors tu émettras un son aigu". [ou :] לְמוֹרַג חָרוּץ - "Une batteuse aiguë." [ou :] " מַחְשְׁבוֹת חָרוּץ " - "Les pensées d'un vif" [חָרוּץ signifiant :] une personne vive et intelligente. [ou :] "Tu apportes la richesse à la main de חָרוּצִים " [חָרוּצִים signifiant :] les intelligents - les marchands pointus.
-<b>Ce qu'Adonoy distingue.</b> [יַפְלֶה signifie] <i>Il fera une distinction.</i>
+<b>Ce qu'Hachem distingue.</b> [יַפְלֶה signifie] <i>Il fera une distinction.</i>
 
 ### passuk 8
 <b>Alors tous tes serviteurs descendront</b> [Moshé] a montré du respect envers la royauté [en utilisant cette phrase]. Car en fin de compte, Pharaon lui-même est descendu vers lui la nuit et a dit : "Lève-toi, sors du milieu de mon peuple !", bien que Moshé [par respect] n'ait pas dit initialement : "Vous descendrez et vous vous prosternerez devant moi." 

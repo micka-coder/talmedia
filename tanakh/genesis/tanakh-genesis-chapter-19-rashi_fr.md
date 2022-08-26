@@ -95,10 +95,10 @@ Le mot הִמָּלֵט signifie se dérober. De même, chaque forme de הַמְ
 ### passuk 23
 
 ### passuk 24
-<b>Adonoy fit pleuvoir.</b> Là où וה' [avec un ו] apparaît dans les Écritures, [il représente] Lui et Sa Cour céleste. 
+<b>Hachem fit pleuvoir.</b> Là où וה' [avec un ו] apparaît dans les Écritures, [il représente] Lui et Sa Cour céleste. 
 <b>Pour faire pleuvoir sur Sedom.</b> A l'avènement du matin, comme il est dit : "A l'aube de l'aube". C'est le moment où la lune est dans le ciel en même temps que le soleil. Puisque certains d'entre eux adoraient le soleil et d'autres, la lune. Dieu a dit : Si je les punis de jour, les adorateurs de la lune diront : si c'était la nuit, quand la lune règne, nous n'aurions pas été détruits. Et si je les punis de nuit, les adorateurs du soleil diront que si c'était le jour, quand le soleil domine, nous n'aurions pas été détruits. Il est donc dit : "A l'aube" - il les a punis à un moment où le soleil et la lune règnent. 
 <b>Il a fait pleuvoir... du soufre et du feu.</b> Cela a commencé par de la pluie et s'est transformé en soufre et en feu.
-<b>D'Adonoy.</b> Il est habituel que l'Écriture s'exprime ainsi, comme dans "Les femmes de Lemech" et il n'a pas dit, <i>mes</i> femmes. De même, David a dit : "Prends avec toi les serviteurs de ton maître" et il n'a pas dit, <i>mes</i> serviteurs. De même, Achashverosh a dit : "Au nom du roi" et il n'a pas dit : au nom de <i>moi</i>. Ici aussi, on dit : "de Dieu" et on ne dit pas : de Lui. 
+<b>D'Hachem.</b> Il est habituel que l'Écriture s'exprime ainsi, comme dans "Les femmes de Lemech" et il n'a pas dit, <i>mes</i> femmes. De même, David a dit : "Prends avec toi les serviteurs de ton maître" et il n'a pas dit, <i>mes</i> serviteurs. De même, Achashverosh a dit : "Au nom du roi" et il n'a pas dit : au nom de <i>moi</i>. Ici aussi, on dit : "de Dieu" et on ne dit pas : de Lui. 
 <b>Du ciel.</b> C'est ce que l'Écriture veut dire en disant : "Car c'est par eux [les cieux] qu'Il punit les nations", etc. Quand Il vient punir les hommes, Il fait venir le feu sur eux depuis les cieux, comme Il l'a fait pour Sedom. Et quand Il vient faire tomber la manne, c'est aussi du ciel. [Comme le dit le verset :] "Voici, je ferai pleuvoir du pain du ciel pour vous." 
 
 ### passuk 25

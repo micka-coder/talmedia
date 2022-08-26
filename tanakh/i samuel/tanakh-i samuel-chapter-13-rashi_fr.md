@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>Un an de règne pour Shaoul.</b> Nos rabbins, de sainte mémoire, ont dit,<sup>1</sup><i class="footnote"> Masech Yoma 22b.</i> [Shaoul était] comme un enfant d'un an, qui n'a pas connu le goût du péché. On peut aussi interpréter : " Shaoul était un an dans son règne ", c'est-à-dire dans la première année où il a été fait roi, bien qu'il ait effectivement régné sur Israël deux ans, dans la première année, immédiatement, " Shaoul s'est choisi trois mille [hommes]. "
+<b>Un an de règne pour Shaoul.</b> Nos rabbins, de sainte mémoire, ont dit,<sup>1</sup><i class="footnote"> Traité Yoma 22b.</i> [Shaoul était] comme un enfant d'un an, qui n'a pas connu le goût du péché. On peut aussi interpréter : " Shaoul était un an dans son règne ", c'est-à-dire dans la première année où il a été fait roi, bien qu'il ait effectivement régné sur Israël deux ans, dans la première année, immédiatement, " Shaoul s'est choisi trois mille [hommes]. "
 
 ### passuk 2
 
 ### passuk 3
-<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Israël et ils l'ont posté à Givas Binyomin.<sup>2</sup><i class="footnote">Yonoson l'a assassiné comme un acte ouvert de rébellion contre les Philistins.-Radak</i>.
+<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Israël et ils l'ont posté à Givas Binyamin.<sup>2</sup><i class="footnote">Yonatanh l'a assassiné comme un acte ouvert de rébellion contre les Philistins.-Radak</i>.
 <b>Que les Hébreux entendent.</b> Que nous nous sommes révoltés contre les Philistins et qu'ils doivent se méfier d'eux.
 
 ### passuk 4
@@ -21,7 +21,7 @@
 <b>Et dans les fosses.</b> Les citernes.
 
 ### passuk 7
-<b>Passé le Yardein vers le pays de Gad.</b> Pour échapper aux Philistins, car les Philistins étaient dans le pays de Canaan, à l'ouest du Yardein.
+<b>Passé le Jourdain vers le pays de Gad.</b> Pour échapper aux Philistins, car les Philistins étaient dans le pays de Canaan, à l'ouest du Jourdain.
 <b>S'empressèrent de le suivre.</b> Ils s'empressèrent de le suivre.</sup>4</sup><i class="footnote"> C'est-à-dire de s'allier à Shaoul.</i>
 
 ### passuk 8
@@ -29,7 +29,7 @@
 <b>Jusqu'au moment fixé par Shmuel.</b> Ce verset comporte un mot manquant. [Le verset veut dire], "jusqu'au moment fixé par Shmuel", ou "jusqu'au moment fixé par Shmuel". Un exemple de cela est : "Et deux hommes, officiers de troupes étaient fils de Shaul." L'Écriture aurait dû écrire : "étaient au fils de Shaoul."<sup>6</sup><i class="footnote"> II Shmuel 4:2.</i> Ici aussi, "qui a été fixé par Shmuel", qui lui avait dit : "Attends sept jours que je vienne à toi."<sup>7</sup><i class="footnote">Supérieur 10:8.</i>
 
 ### passuk 9
-<b>Amène-moi l'holocauste.</b> Un non-kohein a le droit de sacrifier sur un haut lieu.
+<b>Amène-moi l'holocauste.</b> Un non-Cohen a le droit de sacrifier sur un haut lieu.
 
 ### passuk 10
 
@@ -42,7 +42,7 @@
 
 ### passuk 13
 <b>Pour l'instant.</b> Avant que vous n'ayez fait cela,
-<b>Adonoy aurait établi ta royauté... pour toujours.</b> Car lorsqu'une position élevée est attribuée à une personne, elle lui est attribuée ainsi qu'à ses descendants.</sup>9</sup><i class="footnote"> Voir Maseches Megillah 13b.</i>
+<b>Hachem aurait établi ta royauté... pour toujours.</b> Car lorsqu'une position élevée est attribuée à une personne, elle lui est attribuée ainsi qu'à ses descendants.</sup>9</sup><i class="footnote"> Voir Masehet Megillah 13b.</i>
 
 ### passuk 14
 <b>Mais maintenant, ta royauté ne durera pas.</b> Parce que Moshé l'a dit dans la Torah, "[et] il ne s'écarte pas du commandement à droite ou à gauche, de sorte que les jours de son règne sont longs...."<sup>10</sup><i class="footnote"> Devarim 17:20.</i> Par conséquent, s'il s'écarte, les jours [de son règne] ne seront pas longs. Et si tu soutiens que cela n'a pas été dit en référence à un commandement du Prophète, mais seulement en référence à un commandement de la Torah, [je répondrai qu'] il a déjà été dit, "[et] de garder chaque mot de cette Torah" et ensuite, "que son orgueil ne s'accroisse pas... et qu'il ne s'écarte pas du commandement"<sup>11</sup><i class="footnote">Devarim 18:19. Et maintenant que vous n'avez pas obéi au commandement de '<span>ה</span> d'obéir à Sa parole telle que délivrée par Ses prophètes, vous serez tenus responsables de vos actes.</i> [pour inclure] même le commandement d'un prophète.
@@ -55,7 +55,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi les <span>'.<sup>12</sup><i class="footnote"> Maseches Bava Kama 16a. </i></span><span>צָּבוֹעַ</span> Le Targum Yonoson rend : '<span>'<sup>13</sup><i class="footnote"> Il s'agit peut-être de la hyène ou du renard. </i></span><span>אֲפָעַיָא</span> et c'est ainsi que nos rabbins de sainte mémoire, expliquent, <span>צָבוֹעַ</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֶפְעֶה</span> une espèce d'animaux féroces et destructeurs.
+<b>La vallée des Tzvo'im.</b> Où se trouvent les Tzvo'im. C'est l'animal auquel fait référence R. Meir lorsqu'il dit : 'aussi les <span>'.<sup>12</sup><i class="footnote"> Masehet Bava Kama 16a. </i></span><span>צָּבוֹעַ</span> Le Targum Yonathan rend : '<span>'<sup>13</sup><i class="footnote"> Il s'agit peut-être de la hyène ou du renard. </i></span><span>אֲפָעַיָא</span> et c'est ainsi que nos rabbins de sainte mémoire, expliquent, <span>צָבוֹעַ</span> est <span>,<sup>14</sup><i class="footnote"> Une espèce particulière de serpent. </i></span><span>אֶפְעֶה</span> une espèce d'animaux féroces et destructeurs.
 
 ### passuk 19
 <b>On ne trouvait pas de forgeron.</b> C'est-à-dire qu'il n'y en avait pas au début du règne de Shaoul, car les Philistins qui régnaient sur Israël, ont éliminé tous les forgerons de Israël, de peur qu'ils ne fabriquent des armes pour faire la guerre.

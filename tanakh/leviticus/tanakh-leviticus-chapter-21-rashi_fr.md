@@ -27,7 +27,7 @@
 
 ### passuk 7
 <b>Une prostituée,</b> [Une femme] qui a eu des relations sexuelles avec un Israélite qu'il lui est interdit d'épouser, sous peine de <i>koreis</i> [pour l'avoir fait], ou une נָתִין, ou une מַמְזֵר . 
-<b>Une femme profanée,</b> [c'est-à-dire une femme] qui est née d'un mariage [entre un <i>kohein</i>] et un [interdit] au <i>kehunoh</i>, comme par exemple la fille d'une veuve [illégalement mariée] à un <i>Kohein Godol</i>, ou la fille d'une femme divorcée [illégalement mariée] à un <i>kohein</i> ordinaire. Il en est de même pour celle qui est devenue invalide [pour cause d'intermariage] avec le <i>kehunoh</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce qu'elle a eu des relations sexuelles dans l'un des mariages interdits à un <i>kohein</i>. 
+<b>Une femme profanée,</b> [c'est-à-dire une femme] qui est née d'un mariage [entre un <i>Cohen</i>] et un [interdit] au <i>kehunoh</i>, comme par exemple la fille d'une veuve [illégalement mariée] à un <i>Cohen Gadol</i>, ou la fille d'une femme divorcée [illégalement mariée] à un <i>Cohen</i> ordinaire. Il en est de même pour celle qui est devenue invalide [pour cause d'intermariage] avec le <i>kehunoh</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce qu'elle a eu des relations sexuelles dans l'un des mariages interdits à un <i>Cohen</i>. 
 
 ### passuk 8
 <b>Vous le rendrez saint -</b> [même] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>contre sa volonté, car s'il ne veut pas divorcer [de sa femme illégale], battez-le et punissez-le jusqu'à ce qu'il divorce [d'elle]. 
@@ -46,8 +46,8 @@
 <b>Pour son père et sa mère, il ne deviendra pas impur [rituellement].</b> Cela ne vient que <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour lui permettre [de devenir impur] pour un <i>mitsvoh</i>.
 
 ### passuk 12
-<b>Il ne s'éloignera pas du Sanctuaire.</b> Il ne suit pas le cercueil. De plus, nos rabbins ont appris d'ici qu'un <i>Kohein Godol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>peut offrir [un sacrifice] alors qu'il est un <i>onein</i>, et voici sa signification : Même si son père et sa mère sont morts, il n'est pas tenu de quitter le Sanctuaire, mais accomplit le service du Temple. 
-<b>Et il ne profanera pas. .le Sanctuaire,</b> Il ne profane pas le service du Temple avec cela, puisque l'Écriture lui a permis [d'y rester] ; ainsi, [nous apprenons,] qu'un <i>kohein</i> ordinaire qui accomplit [le service du Temple] alors qu'il est un <i>onein</i> <i>le profane</i>. 
+<b>Il ne s'éloignera pas du Sanctuaire.</b> Il ne suit pas le cercueil. De plus, nos rabbins ont appris d'ici qu'un <i>Cohen Gadol</i> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>peut offrir [un sacrifice] alors qu'il est un <i>onein</i>, et voici sa signification : Même si son père et sa mère sont morts, il n'est pas tenu de quitter le Sanctuaire, mais accomplit le service du Temple. 
+<b>Et il ne profanera pas. .le Sanctuaire,</b> Il ne profane pas le service du Temple avec cela, puisque l'Écriture lui a permis [d'y rester] ; ainsi, [nous apprenons,] qu'un <i>Cohen</i> ordinaire qui accomplit [le service du Temple] alors qu'il est un <i>onein</i> <i>le profane</i>. 
 
 ### passuk 13
 
@@ -83,7 +83,7 @@
 
 ### passuk 22
 <b>Des [sacrifices] les plus saints -</b> ce sont les sacrifices les plus saints.
-<b>Et de ce qui est saint, il peut manger.</b> Ce sont les sacrifices de moindre sainteté. Si les sacrifices de plus grande sainteté sont mentionnés, pourquoi les sacrifices de moindre sainteté sont-ils [aussi] mentionnés ? Si cela n'avait pas été dit, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>J'aurais pensé : Une personne souillée peut manger des sacrifices les plus saints, puisque nous trouvons qu'ils étaient permis à un non-<i>kohein</i>, [comme lorsque] Moshé a mangé la chair des sacrifices d'installation. Mais [je pourrais penser] qu'il ne peut pas manger de la poitrine et de la cuisse des sacrifices de moindre sainteté, puisque nous ne trouvons pas qu'un non-<i>kohein</i> y ait eu part - c'est pourquoi les sacrifices de moindre sainteté sont mentionnés. C'est ce qui est expliqué dans [le Masech de] Zevochim. 
+<b>Et de ce qui est saint, il peut manger.</b> Ce sont les sacrifices de moindre sainteté. Si les sacrifices de plus grande sainteté sont mentionnés, pourquoi les sacrifices de moindre sainteté sont-ils [aussi] mentionnés ? Si cela n'avait pas été dit, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>J'aurais pensé : Une personne souillée peut manger des sacrifices les plus saints, puisque nous trouvons qu'ils étaient permis à un non-<i>Cohen</i>, [comme lorsque] Moshé a mangé la chair des sacrifices d'installation. Mais [je pourrais penser] qu'il ne peut pas manger de la poitrine et de la cuisse des sacrifices de moindre sainteté, puisque nous ne trouvons pas qu'un non-<i>Cohen</i> y ait eu part - c'est pourquoi les sacrifices de moindre sainteté sont mentionnés. C'est ce qui est expliqué dans [le Traité de] Zevahim. 
 
 ### passuk 23
 <b>Cependant, [il ne doit pas entrer] au-delà du rideau,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour faire sept aspersions sur le rideau. 

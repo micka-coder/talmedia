@@ -20,7 +20,7 @@
 
 ### passuk 5
 <b>passant sur</b> (פָּסוֹחַ) passant sur. On peut aussi l'interpréter comme une expression de ménagement.
-<b>et sauver</b> Il sortira Israël du détroit. Il s'agit d'une expression de sauvetage (esmoucer en O. F.).
+<b>et sauver</b> Il sortira Israël du détroit. Il s'agit d'une expression de sauvetage (esmoucer en ancien français).
 
 ### passuk 6
 <b>Retourner</b> A Celui sur lequel vous avez profondément réfléchi comment vous détourner de Lui, retournez maintenant à Lui.
@@ -57,7 +57,7 @@
 
 ### passuk 5
 <b>passant sur</b> (פָּסוֹחַ) passant sur. On peut aussi l'interpréter comme une expression de ménagement.
-<b>et sauver</b> Il sortira Israël du détroit. Il s'agit d'une expression de sauvetage (esmoucer en O. F.).
+<b>et sauver</b> Il sortira Israël du détroit. Il s'agit d'une expression de sauvetage (esmoucer en ancien français).
 
 ### passuk 6
 <b>Retourner</b> A Celui sur lequel vous avez profondément réfléchi comment vous détourner de Lui, retournez maintenant à Lui.

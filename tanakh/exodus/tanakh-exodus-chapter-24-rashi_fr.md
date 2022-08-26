@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Moshé est venu et a dit au peuple -</b> ce même jour.
-<b>Toutes les paroles d'Adonoy.</b> [C'est-à-dire] l'ordre de se séparer [de leurs femmes] et l'établissement des frontières [au mont Sinaï].
+<b>Toutes les paroles d'Hachem.</b> [C'est-à-dire] l'ordre de se séparer [de leurs femmes] et l'établissement des frontières [au mont Sinaï].
 <b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvos</i> données aux descendants de Noach [ainsi que les <i>mitzvos</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
 
 ### passuk 4
@@ -42,7 +42,7 @@
 <b>Ils ont envisagé Dieu.</b> Ils l'ont regardé avec insolence [comme quelqu'un qui converse avec un roi] tout en étant occupés à manger et à boire. C'est ainsi que l'explique le Midrash Tanchuma. Mais Onkelos ne le traduit pas ainsi. אֲצִילֵי signifie "les grands", comme dans : "Je t'ai appelé ( מֵאֲצִילֶיהָ ) de ses <i>grands</i>", [ou] "( וַיָּאצֶּל ) Il a fait des <i>grands</i> de l'esprit," "six <i>ammos</i> (coudées) dans sa <i>grande</i> taille." 
 
 ### passuk 12
-<b>Adonoy dit alors à Moshé -</b> après le don de la Torah.
+<b>Hachem dit alors à Moshé -</b> après le don de la Torah.
 <b>Monte vers Moi sur la montagne et reste-y -</b> pendant quarante jours.
 <b>Les tables de pierre, la Torah et les commandements que j'ai écrits [afin] de les enseigner.</b> Les 613 commandements sont implicitement contenus dans les dix commandements. Rabbeinou Saadiah montre spécifiquement, dans le אַזְהָרוֹת qu'il a composé, pour chacun des Commandements, les <i>mitzvos</i> qui lui sont associés. 
 

@@ -20,7 +20,7 @@
 <b>Que [si] vous ne sortez pas [vers le peuple].</b> Si vous ne sortez pas.</sup>5</sup><i class="footnote">Rashi ajoute le mot "si" au verset.</i>
 
 ### passuk 9
-<b>Comme le peuple de] Israël a fui.</b> Ces gens qui étaient avec Avsholom.
+<b>Comme le peuple de] Israël a fui.</b> Ces gens qui étaient avec Avshalom.
 
 ### passuk 10
 <b>Les gens se reprochaient les uns aux autres.</b> Se reprocher les uns aux autres.
@@ -33,7 +33,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>À Amosoh.</b> Qui est le commandant [d'Avsholom], tu dois dire : "Tu es le fils de ma propre sœur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
+<b>À Amosoh.</b> Qui est le commandant [d'Avshalom], tu dois dire : "Tu es le fils de ma propre sœur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
 
 ### passuk 15
 
@@ -42,7 +42,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Ils ont traversé le Yardein.</b> Ils l'ont traversé avec leurs radeaux.
+<b>Ils ont traversé le Jourdain.</b> Ils l'ont traversé avec leurs radeaux.
 
 ### passuk 19
 <b>Le bac a traversé.</b> Le bac qui était utilisé pour passer de l'autre côté de la largeur du fleuve.
@@ -90,10 +90,10 @@
 <b>Que je devrais monter.</b> Il n'en reste que quelques-unes, [donc] quel plaisir aurai-je à ce que vous me fournissiez.
 
 ### passuk 36
-<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos rabbins de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Shabbos 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
+<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos rabbins de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Chabbat 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
 
 ### passuk 37
-<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Yardein.
+<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Jourdain.
 <b>Ce type de récompense.</b> Ce n'est pas bon pour moi.
 
 ### passuk 38
@@ -115,7 +115,7 @@
 <b>Nous avons dix parts du roi.</b> Parce que nous sommes en tout dix tribus.
 <b>Et aussi plus de droit sur David.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
 <b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Israël parviennent au roi."
-<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonoson, "accablé".
+<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonatanh, "accablé".
 
 >Crédit : sefaris
 >License : CC-BY
@@ -140,7 +140,7 @@
 <b>Que [si] vous ne sortez pas [vers le peuple].</b> Si vous ne sortez pas.</sup>5</sup><i class="footnote">Rashi ajoute le mot "si" au verset.</i>
 
 ### passuk 9
-<b>Comme le peuple de] Israël a fui.</b> Ces gens qui étaient avec Avsholom.
+<b>Comme le peuple de] Israël a fui.</b> Ces gens qui étaient avec Avshalom.
 
 ### passuk 10
 <b>Les gens se reprochaient les uns aux autres.</b> Se reprocher les uns aux autres.
@@ -153,7 +153,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>À Amosoh.</b> Qui est le commandant [d'Avsholom], tu dois dire : "Tu es le fils de ma propre sœur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
+<b>À Amosoh.</b> Qui est le commandant [d'Avshalom], tu dois dire : "Tu es le fils de ma propre sœur.'<sup>6</sup><i class="footnote">Le fils d'Avigail. Voir 17:25.</i>
 
 ### passuk 15
 
@@ -162,7 +162,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Ils ont traversé le Yardein.</b> Ils l'ont traversé avec leurs radeaux.
+<b>Ils ont traversé le Jourdain.</b> Ils l'ont traversé avec leurs radeaux.
 
 ### passuk 19
 <b>Le bac a traversé.</b> Le bac qui était utilisé pour passer de l'autre côté de la largeur du fleuve.
@@ -210,10 +210,10 @@
 <b>Que je devrais monter.</b> Il n'en reste que quelques-unes, [donc] quel plaisir aurai-je à ce que vous me fournissiez.
 
 ### passuk 36
-<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos rabbins de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Shabbos 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
+<b>Entre quelque chose de bon ou de mauvais ?</b> Entre la bonne et la mauvaise nourriture. Nos rabbins de mémoire bénie ont dit : Il s'est livré à des relations sexuelles excessives, ce qui a provoqué la vieillesse chez lui.<sup>7</sup><i class="footnote">Chabbat 152a. Sinon, même un homme de quatre-vingts ans ne se serait pas détérioré à ce point.</i>
 
 ### passuk 37
-<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Yardein.
+<b>Votre serviteur va juste traverser.</b> Votre serviteur vous accompagnera un peu plus loin après avoir traversé le Jourdain.
 <b>Ce type de récompense.</b> Ce n'est pas bon pour moi.
 
 ### passuk 38
@@ -235,7 +235,7 @@
 <b>Nous avons dix parts du roi.</b> Parce que nous sommes en tout dix tribus.
 <b>Et aussi plus de droit sur David.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
 <b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Israël parviennent au roi."
-<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonoson, "accablé".
+<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonatanh, "accablé".
 
 >Crédit : sefaris
 >Licence : CC-BY

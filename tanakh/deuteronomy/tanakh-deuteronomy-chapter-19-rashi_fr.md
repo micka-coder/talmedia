@@ -22,7 +22,7 @@
 <b>Lorsque [Dieu] s'étend...</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> conformément à Son serment. Pour vous donner la terre des Keini, Kenizi, et Kadmoni. 
 
 ### passuk 9
-<b>Vous ajouterez trois autres.</b> Ce qui fait neuf - trois à travers le Yardein, trois dans le pays de Canaan, et trois dans le temps destiné à venir. 
+<b>Vous ajouterez trois autres.</b> Ce qui fait neuf - trois à travers le Jourdain, trois dans le pays de Canaan, et trois dans le temps destiné à venir. 
 
 ### passuk 10
 
@@ -48,7 +48,7 @@
 ### passuk 17
 <b>Les deux hommes se tiendront debout.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Notre passage fait référence aux témoins. Cela enseigne que les femmes ne peuvent pas témoigner, et que les témoins doivent témoigner debout. 
 <b>Qui sont impliqués dans la dispute.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce passage fait référence aux parties en litige.
-<b>Devant Adonoy.</b> Il doit leur sembler, comme s'ils se tenaient devant l'Omniprésent, comme il est dit : "Il [Dieu] juge au milieu des juges." 
+<b>Devant Hachem.</b> Il doit leur sembler, comme s'ils se tenaient devant l'Omniprésent, comme il est dit : "Il [Dieu] juge au milieu des juges." 
 <b>Qui sont en ces jours-là.</b> Yiftach, dans sa génération, est comme Shmuel dans sa génération - vous devez le traiter avec révérence. 
 
 ### passuk 18
@@ -57,7 +57,7 @@
 
 ### passuk 19
 <b>Comme il a conspiré.</b> Mais pas comme il a fait. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>On déduit d'ici que si l'exécution a eu lieu, les témoins ne sont pas exécutés. 
-<b>Pour faire à son frère.</b> Qu'enseigne la Torah avec "à son frère" ? Elle enseigne que les témoins qui ont conspiré contre la fille d'un <i>kohein</i> qui était mariée ne sont pas exécutés par le feu, mais par la méthode d'exécution de l'adultère, qui est l'asphyxie, comme il est dit : "Elle... sera brûlée par le feu" - elle, mais pas l'adultère. C'est pourquoi il est dit ici "à son frère" - "comme il a conspiré à faire à son frère", mais pas comme il a conspiré à faire à sa sœur. Cependant, avec toutes les autres exécutions, la Torah assimile les femmes aux hommes, et les conspirateurs contre une femme sont exécutés comme le sont les conspirateurs contre un homme. Par exemple, s'ils ont témoigné qu'elle a commis un meurtre ou qu'elle a profané le Chabbath, ils sont exécutés de la même manière qu'elle l'aurait été. Car "sa sœur" n'est pas exclue ici <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sauf lorsque la punition pour la conspiration peut être accomplie avec le [type d'] exécution de l'adultère. 
+<b>Pour faire à son frère.</b> Qu'enseigne la Torah avec "à son frère" ? Elle enseigne que les témoins qui ont conspiré contre la fille d'un <i>Cohen</i> qui était mariée ne sont pas exécutés par le feu, mais par la méthode d'exécution de l'adultère, qui est l'asphyxie, comme il est dit : "Elle... sera brûlée par le feu" - elle, mais pas l'adultère. C'est pourquoi il est dit ici "à son frère" - "comme il a conspiré à faire à son frère", mais pas comme il a conspiré à faire à sa sœur. Cependant, avec toutes les autres exécutions, la Torah assimile les femmes aux hommes, et les conspirateurs contre une femme sont exécutés comme le sont les conspirateurs contre un homme. Par exemple, s'ils ont témoigné qu'elle a commis un meurtre ou qu'elle a profané le Chabbath, ils sont exécutés de la même manière qu'elle l'aurait été. Car "sa sœur" n'est pas exclue ici <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sauf lorsque la punition pour la conspiration peut être accomplie avec le [type d'] exécution de l'adultère. 
 
 ### passuk 20
 <b>Entendront et seront effrayés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>D'ici, nous déduisons qu'il doit y avoir une proclamation : " Untel et untel ont été exécutés pour un témoignage de conspiration au tribunal. 

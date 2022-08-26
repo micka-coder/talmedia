@@ -50,7 +50,7 @@
 
 ### passuk 14
 <b>Parce que tu as fait cela.</b> D'ici [on apprend] qu'il ne faut pas chercher à atténuer le péché d'un séducteur. Car s'il lui avait demandé : "Pourquoi as-tu fait cela ?", il aurait pu répondre : "[Quand on est confronté à l'obéissance] des paroles du maître ou des paroles de l'élève, à qui faut-il obéir ?". 
-<b>Parmi tous les animaux et les bêtes des champs.</b> S'il a été maudit plus que l'animal alors, certainement plus que la bête ? Nos Sages ont établi cette déduction dans le Maseches Bechoros [8a] : pour enseigner que la période de gestation d'un serpent [dure] sept ans. 
+<b>Parmi tous les animaux et les bêtes des champs.</b> S'il a été maudit plus que l'animal alors, certainement plus que la bête ? Nos Sages ont établi cette déduction dans le Masehet Bechoros [8a] : pour enseigner que la période de gestation d'un serpent [dure] sept ans. 
 <b>Sur ton ventre tu ramperas.</b> Il avait des jambes qui ont été coupées.
 
 ### passuk 15
@@ -91,7 +91,7 @@
 ### passuk 24
 <b>A l'est du jardin.</b> [Signification :] "A l'est de Gan Eden" - en dehors du jardin.
 <b>Les Chérubins. </b> [Ce sont] les anges destructeurs.
-<b>L'épée tournante.</b> Qui avait du tranchant, pour l'effrayer et l'empêcher de pénétrer à nouveau dans le Jardin. Le targum [Onkelos] de [le mot] לַהַט est שְׁנַן [tranchant] comme dans "Il a tiré sa lame [tranchante]" dans Maseches Sanhedrin. En ancien français, c'est <i>lame.</i> Il existe d'autres exposés aggadiques Mais, je ne viens que pour présenter l'explication simple. 
+<b>L'épée tournante.</b> Qui avait du tranchant, pour l'effrayer et l'empêcher de pénétrer à nouveau dans le Jardin. Le targum [Onkelos] de [le mot] לַהַט est שְׁנַן [tranchant] comme dans "Il a tiré sa lame [tranchante]" dans Masehet Sanhedrin. En ancien français, c'est <i>lame.</i> Il existe d'autres exposés aggadiques Mais, je ne viens que pour présenter l'explication simple. 
 
 >Crédit : primo.nli.org.il (metsudah)
 >Licence : CC_BY

@@ -67,7 +67,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>"Nous verrons alors ce qu'il adviendra de ses rêves."</b> R. Yitzchok a dit : Ce verset dit : "Expliquez-moi." C'est l'Esprit Divin qui dit cela : <i>Ils</i> disent : "tuons-le", mais, le verset conclut : "voyons ce que deviendront ses rêves", [c'est-à-dire] voyons qui des mots s'accomplira, les tiens ou les Miens ? Il est impossible que ce soit eux [les frères] qui aient dit : "voyons ce que deviendront ses rêves", car une fois qu'ils l'auront tué, ses rêves n'auront [automatiquement] aucune signification. 
+<b>"Nous verrons alors ce qu'il adviendra de ses rêves."</b> R. Yitshak a dit : Ce verset dit : "Expliquez-moi." C'est l'Esprit Divin qui dit cela : <i>Ils</i> disent : "tuons-le", mais, le verset conclut : "voyons ce que deviendront ses rêves", [c'est-à-dire] voyons qui des mots s'accomplira, les tiens ou les Miens ? Il est impossible que ce soit eux [les frères] qui aient dit : "voyons ce que deviendront ses rêves", car une fois qu'ils l'auront tué, ses rêves n'auront [automatiquement] aucune signification. 
 
 ### passuk 21
 <b>"Ne le tuons pas."</b> [נֶפֶשׁ doit être expliqué comme] : מַכַּת נֶפֶשׁ -un coup porté à l'âme, qui fait référence au fait de tuer. 
@@ -87,7 +87,7 @@
 <b>Leurs chameaux portaient, etc.</b> Pourquoi l'Écriture annonce-t-elle ce qu'ils portaient ? C'est pour nous faire connaître la récompense des justes. Car il est inhabituel pour les Arabes de transporter quoi que ce soit, sinon de la naphta et de l'itran dont l'odeur est fétide. Mais pour celui-ci [Yoseif], il a été prévu [qu'ils portent] des épices de bonne odeur afin qu'il ne soit pas lésé par l'odeur fétide. 
 <b>Epices.</b> Toute collection de plusieurs types d'épices est appelée נְכֹאת . De même, "Il leur montra toute la maison de נְכוֹתֹה ." [נְכֹתֹה signifiant :] l'endroit où l'on mélange les épices. Onkelos, cependant, traduit qu'il s'agissait de cire. 
 <b>Balsam.</b> C'est une sève qui s'écoule des balsamiers. Elle est [identique à] la נָטָף qui est énumérée avec les épices de l'encens [du Temple].
-<b>Et le lotus.</b> En hébreu mishnique, il est appelé לוֹטִיתָא . Nos Sages l'ont expliqué comme une racine d'herbe désignée sous le nom de <i>aristolochia</i> dans le Maseches Niddah. 
+<b>Et le lotus.</b> En hébreu mishnique, il est appelé לוֹטִיתָא . Nos Sages l'ont expliqué comme une racine d'herbe désignée sous le nom de <i>aristolochia</i> dans le Masehet Niddah. 
 
 ### passuk 26
 <b>Quel gain ? </b> [מַה בֶּצַע] quel profit ? comme le traduit Onkelos.
@@ -114,7 +114,7 @@
 
 ### passuk 33
 <b>Et dit : "Le manteau de mon fils...</b> est ceci." 
-<Une bête malfaisante l'a dévoré. Une étincelle de l'esprit divin a jailli en lui. C'est son destin que la femme de Potiphar le provoque. Pourquoi Dieu ne lui a pas tout révélé ? Parce qu'ils [les frères] ont interdit et maudit quiconque le révélerait et ils ont inclus Dieu avec eux. Yitzchok, cependant, savait qu'il [Yoseif] était vivant, mais il pensait : " Comment pourrais-je le révéler alors que Dieu ne souhaite pas le lui révéler ". 
+<Une bête malfaisante l'a dévoré. Une étincelle de l'esprit divin a jailli en lui. C'est son destin que la femme de Potiphar le provoque. Pourquoi Dieu ne lui a pas tout révélé ? Parce qu'ils [les frères] ont interdit et maudit quiconque le révélerait et ils ont inclus Dieu avec eux. Yitshak, cependant, savait qu'il [Yoseif] était vivant, mais il pensait : " Comment pourrais-je le révéler alors que Dieu ne souhaite pas le lui révéler ". 
 
 ### passuk 34
 <b>Pendant de nombreux jours.</b> Vingt-deux ans, depuis le moment où il l'a quitté jusqu'à ce que Yaakov descende en Égypte. Comme il est dit : "Yaakov avait dix-sept ans, etc." et il avait trente ans lorsqu'il s'est présenté devant Pharoah. [Ajoutez] les sept années d'abondance et les deux années de famine, au cours desquelles Yaakov est descendu en Égypte, soit un total de vingt-deux ans, correspondant aux vingt-deux années pendant lesquelles Yaakov n'a pas respecté le [précepte] d'honorer son père et sa mère - les vingt années passées dans la maison de Lavan et les deux années passées en route à son retour de la maison de Lavan, un an et demi à Souccoth et six mois à Beis Eil. C'est [la référence] lorsqu'il dit à Lavan : " Ces vingt années où j'ai été dans ta maison. " לִי -pour moi [signifie] qu'ils sont sur moi - ma responsabilité et je serai finalement puni pour eux. 
@@ -124,7 +124,7 @@
 <b>Mais il a refusé d'être consolé.</b> Une personne ne peut accepter d'être consolée pour celui qui est vivant, mais que l'on croit mort, car c'est seulement pour les morts qu'il a été décrété de l'oublier, mais pas pour les vivants. 
 <b>"Je descendrai pour mon fils"</b> [אֶל בְּנִי] est identique à עַל בְּנִי - pour mon fils. Plusieurs fois, אֶל [to] est utilisé pour עַל [for]. [Par exemple,] [אֶל]-"À cause de Saül" [וְאֶל]-"Et à cause de sa maison ensanglantée" [ou] [אֶל]-"À cause de la prise de l'arche de Dieu" [וְאֶל] "Et à cause de la mort de son beau-père et de son mari". 
 <b>Au tombeau, deuil.</b> Au sens propre, il [שְׁאֹל] signifie le tombeau. [L'intention de Yaakov était :] en étant encore en deuil, je serai enterré et ne serai pas consolé toute ma vie. L'explication midrachique [de שְׁאֹל] est Gehinom [enfer]. [C'est-à-dire que] c'était un signe qui m'a été donné par Dieu que si aucun de mes enfants ne meurt de mon vivant alors je suis assuré de ne pas voir Gehinom. 
-<b>Son père pleura pour lui.</b> ["Son père" fait référence à] Yitzchok qui pleura à cause de l'angoisse de Yaakov, mais il ne se lamenta pas, car il savait qu'il [Yoseif] était vivant. 
+<b>Son père pleura pour lui.</b> ["Son père" fait référence à] Yitshak qui pleura à cause de l'angoisse de Yaakov, mais il ne se lamenta pas, car il savait qu'il [Yoseif] était vivant. 
 
 ### passuk 36
 <b>Les abatteurs.</b> [הַטַבָּחִים signifie] les abatteurs des animaux rois.

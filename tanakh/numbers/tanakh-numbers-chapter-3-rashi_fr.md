@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Voici les descendants d'Aharon et de Moshé.</b> [L'Écriture] ne mentionne que les fils d'Aharon, pourtant ils sont appelés les descendants de Moshé - car il leur a enseigné la Torah. Cela nous enseigne que celui qui enseigne la Torah au fils d'un autre est considéré comme l'ayant procréé. 
-<b>Le jour où Adonoy a parlé à Moshé</b> Ils sont devenus ses descendants, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>puisqu'il leur a enseigné ce qu'il avait appris de la bouche du Tout-Puissant. 
+<b>Le jour où Hachem a parlé à Moshé</b> Ils sont devenus ses descendants, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>puisqu'il leur a enseigné ce qu'il avait appris de la bouche du Tout-Puissant. 
 
 ### passuk 2
 
@@ -42,7 +42,7 @@
 <b>À partir de l'âge d'un mois et plus.</b> Lorsqu'il (le nourrisson) ne peut plus être catégorisé comme mort-né, il est listé parmi ceux qui ont le titre de "gardien de la garde sacrée". R' Yehudah B'rabi Shalom a dit : "Cette tribu [Lévi] est régulièrement comptée depuis le ventre de la mère, comme il est dit : "...". [Yocheved, la fille de Levi]... . qu'elle (la femme de Lévi) a engendré à Lévi en Égypte . . ." En entrant dans les portails d'Égypte, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>elle l'a enfantée (Yocheved). pourtant, elle est comptée parmi les soixante-dix âmes [qui sont descendues en Égypte]. en effet, quand on fait le décompte de leur total, on n'en trouve que soixante-neuf et elle a complété le total. 
 
 ### passuk 16
-<b>Selon la parole d'Adonoy.</b> Moshé dit devant le Saint, Béni soit-Il, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Comment puis-je entrer dans leurs tentes pour déterminer le nombre de leurs nourrissons" ? Le Saint, béni soit-Il, répondit : "Fais le tien, et je ferai le mien" ! Moshé s'avança et se tint à la porte de la tente. La Présence Divine le précéda [et entra dans la tente]. Une voix résonna alors depuis la tente, annonçant : "Il y a dans cette tente un grand nombre de nourrissons et de nourrissons allaités" ! C'est pourquoi il est dit : "... selon la parole de Dieu...". 
+<b>Selon la parole d'Hachem.</b> Moshé dit devant le Saint, Béni soit-Il, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Comment puis-je entrer dans leurs tentes pour déterminer le nombre de leurs nourrissons" ? Le Saint, béni soit-Il, répondit : "Fais le tien, et je ferai le mien" ! Moshé s'avança et se tint à la porte de la tente. La Présence Divine le précéda [et entra dans la tente]. Une voix résonna alors depuis la tente, annonçant : "Il y a dans cette tente un grand nombre de nourrissons et de nourrissons allaités" ! C'est pourquoi il est dit : "... selon la parole de Dieu...". 
 
 ### passuk 17
 
@@ -101,7 +101,7 @@
 
 ### passuk 39
 <b>Ceux que Moshé et Aharon ont comptés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il y a des points sur [le mot] וְאַהֲרֹן, pour enseigner qu'il n'était pas inclus dans le comptage des Lévites. 
-<b>Vingt-deux mille.</b> En les comptant individuellement, on découvre cependant trois cents supplémentaires : les fils de Gershon, sept mille cinq cents ; les fils de Kehos, huit mille six cents ; les fils de Merori, six mille deux cents [d'où vingt-deux mille trois cents]. Pourquoi ne sont-ils pas inclus dans le reste pour racheter les premiers-nés, exemptant ainsi de rachat les deux cent soixante-treize premiers-nés qui se chevauchent ? Nos sages ont répondu, dans le Maseches Bechoros, que les trois cents Lévites étaient, eux-mêmes, des premiers-nés. Il suffisait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour qu'ils se libèrent de la rédemption. 
+<b>Vingt-deux mille.</b> En les comptant individuellement, on découvre cependant trois cents supplémentaires : les fils de Gershon, sept mille cinq cents ; les fils de Kehos, huit mille six cents ; les fils de Merori, six mille deux cents [d'où vingt-deux mille trois cents]. Pourquoi ne sont-ils pas inclus dans le reste pour racheter les premiers-nés, exemptant ainsi de rachat les deux cent soixante-treize premiers-nés qui se chevauchent ? Nos sages ont répondu, dans le Masehet Bechoros, que les trois cents Lévites étaient, eux-mêmes, des premiers-nés. Il suffisait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour qu'ils se libèrent de la rédemption. 
 
 ### passuk 40
 <b>Compter chaque premier-né mâle... à partir de l'âge d'un mois et plus.</b> Lorsqu'il (le nourrisson) ne peut plus être classé comme mort-né. 

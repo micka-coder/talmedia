@@ -3,16 +3,16 @@
 
 ### passuk 2
 <b>L'une de mes actions peut-elle se comparer à la tienne ?</b> Quelle importance avaient mes actions au début par rapport aux tiennes à la fin ?
-<b>Les glanes sous-maturées d'Ephraïm ne surpassent-elles pas.</b> Les glanes<sup>1</sup><i class="footnote"> <span>עוֹלְלוֹת</span> sont des raisins sous-maturés qui ne peuvent être récoltés, mais doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale avec les Midyonites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>עוֹלְלוֹת</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Adonoy a livré les rois entre vos mains.
+<b>Les glanes sous-maturées d'Ephraïm ne surpassent-elles pas.</b> Les glanes<sup>1</sup><i class="footnote"> <span>עוֹלְלוֹת</span> sont des raisins sous-maturés qui ne peuvent être récoltés, mais doivent être laissés pour être glanés ensuite par les pauvres. (Vayikra, 19:10) Gidon a comparé sa bataille initiale avec les Midyonites à la récolte, et l'exécution d'Orev et de Z'ev qui s'en est suivie au glanage des <span>עוֹלְלוֹת</span>.</i> que vous avez acquis à la fin surpassent la récolte précoce que ma famille et moi avons recueillie, car Hachem a livré les rois entre vos mains.
 
 ### passuk 3
 <b>Qu'est-ce que j'aurais pu</b> faire qui aurait été aussi significatif que tes réalisations ?
 
 ### passuk 4
-<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Yardein après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Yardein, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
+<b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Jourdain après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Jourdain, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
 
 ### passuk 5
-<b>Aux gens de Souccos.</b> Ils étaient Yisroélites.
+<b>Aux gens de Souccos.</b> Ils étaient Yitroélites.
 
 ### passuk 6
 <b>Les palmes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyon.

@@ -14,7 +14,7 @@
 <b>C'est la portion sainte de la terre</b> Réorganisez le verset : " Le reste de la portion sainte, qui provient de cette terre, sera pour les prêtres, les ministres du Sanctuaire, qui s'approchent, etc... ". La portion sainte du pays est cette offrande."
 <b>Pour les prêtres, les ministres du Sanctuaire</b> Le reste sur les 500 du Mont du Temple ; 12 250 à l'est et de façon correspondante à l'ouestle Sanctuaire [étant] au centre 4 750 au nord, et de façon correspondante au sud.
 <b>Et ce sera pour eux un lieu pour des maisons</b> ce reste, qui entoure le Sanctuaire.
-<b>et la partie sanctifiée sera pour le Sanctuaire</b> Et le milieu de cinq cents par cinq cents sera sanctifié pour le Sanctuaire, e sentije al sentuere in O. F., et consacré pour le Sanctuaire.
+<b>et la partie sanctifiée sera pour le Sanctuaire</b> Et le milieu de cinq cents par cinq cents sera sanctifié pour le Sanctuaire, e sentije al sentuere en ancien français, et consacré pour le Sanctuaire.
 
 ### passuk 5
 <b>Et vingt-cinq mille</b> cannes en longueur, et dix mille en largeur, vous séparerez comme une autre bande à côté de celle-ci, au sud de celle-ci, pour les Lévites. Il est expliqué à la fin du Livre que c'est au sud. Vingt chambres seront destinées aux Lévites dans le périmètre du Sanctuaire, afin de garder la Maison et de lui donner de la beauté, et le reste de la bande sera utilisé pour leurs propres besoins.
@@ -51,7 +51,7 @@
 ### passuk 12
 <b>Et le shekel est de vingt gerah</b> Vingt "ma'ah".
 <b>vingt shekels, vingt-cinq shekels, et quinze shekels</b> totalisant soixante shekels.
-<b>Le maneh te sera</b> Le zent en O. F., le poids de 100 (zuz). Menahem, cependant, le relie au mot מִנְיָן, un nombre (p. 118). Nous avons ici 240 " zuz ", [quatre zuz pour un shekel]. Nous en déduisons que le " maneh " du Sanctuaire était double, et qu'ils y ont ajouté un sixième à l'époque d'Ézéchiel, pour un total de 240 [zuz] (Men. 77a). Lorsque l'Écriture l'a divisé en trois parties et n'a pas simplement écrit : "Soixante sicles seront pour vous le maneh", elle a ordonné d'en faire un poids égal au tiers, un poids égal au quart, et un poids du "maneh" ordinaire tel qu'il était à l'origine. Jonathan a également paraphrasé : un tiers de "maneh" sera de vingt "selaim" d'argent ; un "maneh" d'argent de vingt-cinq "selaim" ; un quart de "maneh" de quinze "selaim" ; en tout, soixante "selaim" ; et le grand "maneh" du Sanctuaire sera pour toi.
+<b>Le maneh te sera</b> Le zent en ancien français, le poids de 100 (zuz). Menahem, cependant, le relie au mot מִנְיָן, un nombre (p. 118). Nous avons ici 240 " zuz ", [quatre zuz pour un shekel]. Nous en déduisons que le " maneh " du Sanctuaire était double, et qu'ils y ont ajouté un sixième à l'époque d'Ézéchiel, pour un total de 240 [zuz] (Men. 77a). Lorsque l'Écriture l'a divisé en trois parties et n'a pas simplement écrit : "Soixante sicles seront pour vous le maneh", elle a ordonné d'en faire un poids égal au tiers, un poids égal au quart, et un poids du "maneh" ordinaire tel qu'il était à l'origine. Jonathan a également paraphrasé : un tiers de "maneh" sera de vingt "selaim" d'argent ; un "maneh" d'argent de vingt-cinq "selaim" ; un quart de "maneh" de quinze "selaim" ; en tout, soixante "selaim" ; et le grand "maneh" du Sanctuaire sera pour toi.
 
 ### passuk 13
 <b>Un sixième d'épha d'un homer de blé</b> Cela revient à un sur soixante. Celui qui veut donner peu ne doit pas donner moins que cela, et c'est ce qu'on a dit (Ter. 4:3) : "Un avare donne un sur soixante".

@@ -4,13 +4,13 @@
 ### passuk 2
 
 ### passuk 3
-<b>Non pas avec nos pères</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seul Adonoy a fait cette alliance, etc. mais avec nous, etc. 
+<b>Non pas avec nos pères</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>seul Hachem a fait cette alliance, etc. mais avec nous, etc. 
 
 ### passuk 4
 <b>Face à face.</b> R' Berachia a dit : " C'est ce que Moshé a dit [sous-entendu] : Ne dis pas que je t'induis en erreur sur quelque chose qui n'est pas une question de fait comme ce que fait un agent qui sert d'intermédiaire entre l'acheteur et le vendeur ; car dans ce cas, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> c'est le vendeur lui-même qui te parle ". 
 
 ### passuk 5
-<b>Parler.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[Le mot לֵאמֹר ] est lié [au verset précédent] : " Adonoy vous a parlé sur la montagne, de l'intérieur du feu, <i>en disant</i> Je suis Adonoy etc... ; alors que je me tenais entre Adonoy et vous.
+<b>Parler.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>[Le mot לֵאמֹר ] est lié [au verset précédent] : " Hachem vous a parlé sur la montagne, de l'intérieur du feu, <i>en disant</i> Je suis Hachem etc... ; alors que je me tenais entre Hachem et vous.
 
 ### passuk 6
 

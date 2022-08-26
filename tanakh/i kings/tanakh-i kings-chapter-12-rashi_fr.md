@@ -44,7 +44,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Et la tribu de Binyomin.</b> Qui étaient situés sur la frontière, car les limites de Yehouda et de Binyomin étaient adjacentes.
+<b>Et la tribu de Binyamin.</b> Qui étaient situés sur la frontière, car les limites de Yehouda et de Binyamin étaient adjacentes.
 
 ### passuk 22
 
@@ -57,7 +57,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Si ce peuple monte, etc.</b> S'asseoir dans la cour du Temple n'est pas permis seulement pour les rois de la maison de David, par conséquent, il sera assis et je serai debout. De plus, [pendant Souccos] suivant l'année sabbatique, au moment de l'assemblée, c'est lui qui lira la section [du Devarim] relative au roi,<sup>4</sup><i class="footnote">Voir Mishnayos Sotah 7:8. </i> car il est le roi de sa province, alors que je serai [debout] comme le reste du peuple, et je serai, par conséquent, dégradé.<sup>5</sup><i class="footnote">Masech Sanhedrin 101b.</i>
+<b>Si ce peuple monte, etc.</b> S'asseoir dans la cour du Temple n'est pas permis seulement pour les rois de la maison de David, par conséquent, il sera assis et je serai debout. De plus, [pendant Souccos] suivant l'année sabbatique, au moment de l'assemblée, c'est lui qui lira la section [du Devarim] relative au roi,<sup>4</sup><i class="footnote">Voir Mishnayos Sotah 7:8. </i> car il est le roi de sa province, alors que je serai [debout] comme le reste du peuple, et je serai, par conséquent, dégradé.<sup>5</sup><i class="footnote">Traité Sanhedrin 101b.</i>
 
 ### passuk 28
 

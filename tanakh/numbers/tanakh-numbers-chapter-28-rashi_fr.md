@@ -4,7 +4,7 @@
 ### passuk 2
 <b>Commandez aux Bnei Israël.</b> Qu'est-ce qui est dit ci-dessus ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> "Que Dieu commande. . ." Le Saint, Béni soit-Il, lui dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>'Avant de Me commander concernant Mes enfants, commande à Mes enfants concernant Moi.'' Ceci est comparable à une princesse qui passait de ce monde. Elle instruisait son mari au sujet de ses enfants, etc, comme il est dit dans Sifri. 
 <b>Mon offrande.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence au sang.
-<b>Mon pain.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence aux parties "<i>emurin</i>", comme il est dit : "Le <i>kohein</i> les brûlera sur l'autel, pain du feu." 
+<b>Mon pain.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence aux parties "<i>emurin</i>", comme il est dit : "Le <i>Cohen</i> les brûlera sur l'autel, pain du feu." 
 <b>De mes feux.</b> pour être placés sur les feux de mon autel.
 <b>Vous veillerez.</b> Les <i>kohanim,</i> les Lévites et les Bnei Israël s'y tiendront. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ils ont appris de là, et ont institué les unités "<i>ma'amados</i>". 
 <b>A son heure prescrite.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Chaque jour est l'heure prescrite pour les offrandes constantes.
@@ -60,7 +60,7 @@
 
 ### passuk 19
 <b>Bétail.</b> Correspondant à Avraham, comme il est dit : "Avraham a couru vers le bétail". 
-<b>Bélier.</b> Correspondant au bélier de Yitzchok.
+<b>Bélier.</b> Correspondant au bélier de Yitshak.
 <b>Mouton.</b> Correspondant à Yaakov, comme il est dit : "Yaakov a séparé les agneaux." J'ai vu cela dans le commentaire de R' Moshe Hadarshan. 
 
 ### passuk 20

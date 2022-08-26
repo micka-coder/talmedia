@@ -6,23 +6,23 @@
 
 ### passuk 3
 <b>Et que sa majesté nomme des fonctionnaires.</b> Puisque chaque commissaire est familier avec les belles femmes de sa province.</sup>2</sup><i class="footnote">Plutôt que de nommer des commissaires de Suse, il devrait nommer des commissaires locaux dans ses provinces car ils seraient plus facilement capables de trouver les plus belles femmes dans leurs propres provinces. </i> 
-<b>Leurs cosmétiques.</b> Il s'agit de substances qui nettoient [la peau], comme dans, "qui seront purgées [וּמֹרַק] et rincées."<sup>3</sup><i class="footnote">Vayikra 6:21. </i> Il s'agit d'huiles parfumées, de divers ingrédients et d'épices qui nettoient et adoucissent la peau.<sup>4</sup><i class="footnote">Maseches Megillah 13a. </i> 
+<b>Leurs cosmétiques.</b> Il s'agit de substances qui nettoient [la peau], comme dans, "qui seront purgées [וּמֹרַק] et rincées."<sup>3</sup><i class="footnote">Vayikra 6:21. </i> Il s'agit d'huiles parfumées, de divers ingrédients et d'épices qui nettoient et adoucissent la peau.<sup>4</sup><i class="footnote">Masehet Megillah 13a. </i> 
 
 ### passuk 4
 
 ### passuk 5
-<b>Il y avait un homme yéhudite.</b> Parce qu'il a été exilé avec l'exil de Yéhudah.</sup>5</sup><i class="footnote">Rashi propose cette explication pour réconcilier la contradiction à la fin de ce verset où Mordechaï est décrit comme un homme binyaminite. Le targum rend איש יהודי, "un juif pieux". Alternativement, יהוד est similaire à יחוד [=unification], c'est-à-dire que Mordechai a unifié publiquement le Nom de Dieu en refusant de s'incliner devant Haman, qui portait une image idolâtre. (Esther Rabba 6:2 et voir Maseches Megillah 12b-13a) </i>Tous ceux qui furent exilés avec les rois de Yehouda furent appelés יְהוּדִים [Yehoudites] parmi les nations, même s'ils étaient d'une autre tribu.<sup>6</sup><i class="footnote">Maseches Megillah 12b. </i> 
+<b>Il y avait un homme yéhudite.</b> Parce qu'il a été exilé avec l'exil de Yéhudah.</sup>5</sup><i class="footnote">Rashi propose cette explication pour réconcilier la contradiction à la fin de ce verset où Mordechaï est décrit comme un homme binyaminite. Le targum rend איש יהודי, "un juif pieux". Alternativement, יהוד est similaire à יחוד [=unification], c'est-à-dire que Mordechai a unifié publiquement le Nom de Dieu en refusant de s'incliner devant Haman, qui portait une image idolâtre. (Esther Rabba 6:2 et voir Masehet Megillah 12b-13a) </i>Tous ceux qui furent exilés avec les rois de Yehouda furent appelés יְהוּדִים [Yehoudites] parmi les nations, même s'ils étaient d'une autre tribu.<sup>6</sup><i class="footnote">Masehet Megillah 12b. </i> 
 <b>Un homme binyaminite.</b> Il était de Binyamin, c'est le sens courant. Mais nos rabbins ont exposé ce qu'ils ont exposé.<sup>7</sup><i class="footnote">Ibid. </i> 
 
 ### passuk 6
 
 ### passuk 7
-<b>Comme une fille.</b> Nos rabbins ont expliqué, "pour une maison" [c'est-à-dire, לְבַת=לְבַיִת, ce qui signifie, comme une femme.<sup>8</sup><i class="footnote">Masech Megillah 13a. Apparemment, בת ne signifie pas ici [lit.] fille, car Esther n'était pas son enfant. </i> 
+<b>Comme une fille.</b> Nos rabbins ont expliqué, "pour une maison" [c'est-à-dire, לְבַת=לְבַיִת, ce qui signifie, comme une femme.<sup>8</sup><i class="footnote">Traité Megillah 13a. Apparemment, בת ne signifie pas ici [lit.] fille, car Esther n'était pas son enfant. </i> 
 
 ### passuk 8
 
 ### passuk 9
-<b>Il s'empressa de lui livrer ses cosmétiques.</b> Il fut plus expéditif et plus rapide à lui apporter [des cosmétiques] qu'à toutes les autres.<sup>9</sup><i class="footnote">Pour éviter de manger de la nourriture non cachère, Esther demanda à Hagaï de lui fournir de la nourriture naturelle non cuite. Voir Maseches Megillah 13a. </i> 
+<b>Il s'empressa de lui livrer ses cosmétiques.</b> Il fut plus expéditif et plus rapide à lui apporter [des cosmétiques] qu'à toutes les autres.<sup>9</sup><i class="footnote">Pour éviter de manger de la nourriture non cachère, Esther demanda à Hagaï de lui fournir de la nourriture naturelle non cuite. Voir Masehet Megillah 13a. </i> 
 <b>Attribuées à elle.</b> Pour la servir, et c'est ce qu'ils feraient pour tous ; et nos rabbins ont exposé ce qu'ils ont exposé.<sup>10</sup><i class="footnote">Ibid. En ayant sept servantes, Esther était en mesure de savoir quand c'était Shabbat. Elle appelait chacune d'entre elles un jour différent de la semaine et lorsque celle qui était affectée au Shabbat arrivait, elle savait que c'était Shabbat. Une autre raison pour laquelle elle avait sept servantes, une pour chaque jour de la semaine, était que les servantes des jours de la semaine ne pouvaient pas observer son repos le Chabbath et détecter qu'elle était juive. Selon le Targum, le nom de chaque servante correspondait à la partie de la création d'un jour spécifique. </i> 
 <b>Il l'a favorisée.</b> C'est-à-dire qu'il l'a changée וַיְשַׁנֶּהָ=שִׁנָּה אוֹתָהּ. 
 
@@ -44,14 +44,14 @@
 ### passuk 15
 
 ### passuk 16
-<b>Au dixième mois.</b> La saison froide, quand un corps jouit [de la chaleur d'] un autre corps.</sup>15</sup><i class="footnote">Masech Megillah 13a. </i> Le Saint Béni soit-Il, a désigné cette saison froide afin de l'attacher à lui. 
+<b>Au dixième mois.</b> La saison froide, quand un corps jouit [de la chaleur d'] un autre corps.</sup>15</sup><i class="footnote">Traité Megillah 13a. </i> Le Saint Béni soit-Il, a désigné cette saison froide afin de l'attacher à lui. 
 
 ### passuk 17
 <b>Plus que toutes les femmes.</b><sup>16</sup><i class="footnote">Ibid. </i> Celles qui sont mariées ; car il recueillait aussi les femmes mariées. 
 
 ### passuk 18
 <b>Il a renoncé aux impôts coloniaux.</b> En son honneur, il les a libérés de l'impôt qui était [prélevé] sur eux.<sup>17</sup><i class="footnote">Ibid. </i> <sup>18</sup><i class="footnote">Comme il ne connaissait pas l'ascendance d'Esther, Achashveirosh essaya de lui arracher le secret. Il renonça aux impôts de toutes les provinces et elle ne lui dit toujours rien. Cependant, une fois qu'il fut informé de son ascendance, il rétablit l'impôt ; ci-dessous 10:1. (Gra) </i> 
-<b>Et [il] prodigua des cadeaux.</b> Il leur envoya des cadeaux, et tout était dans le but de la séduire, peut-être qu'elle révélerait sa nationalité.<sup>19</sup><i class="footnote">Maseches Megillah 13a. </i> Mais néanmoins , 
+<b>Et [il] prodigua des cadeaux.</b> Il leur envoya des cadeaux, et tout était dans le but de la séduire, peut-être qu'elle révélerait sa nationalité.<sup>19</sup><i class="footnote">Masehet Megillah 13a. </i> Mais néanmoins , 
 
 ### passuk 19
 
