@@ -4,7 +4,7 @@
 <b>De la ville de David.</b> David l'avait placé là lorsqu'il l'avait apporté de la maison de Oved Edom.</sup>2</sup><i class="footnote">Voir II Chmuel 6:10-12, 17.</i>
 
 ### passuk 2
-<b>Dans le mois <i>Eisonim</i>.</b> [Targum] Yonatanh a rendu : " Dans le mois que les gens de l'antiquité appelaient le premier mois, lors de la fête, et actuellement c'est le septième mois, " c'est-à-dire, depuis que la Torah a été donnée, et il est écrit au mois de Nissan qu'il est le premier des mois, [donc,] Tishrei<sup>3</sup><i class="footnote">Bien que la construction du Beis Hamikdosh ait été achevée au huitième mois de l'année précédente [voir ci-dessus 6:38], Shlomo a reporté sa dédicace au Tishrei suivant. </i> est appelé le septième [mois].<sup>4</sup><i class="footnote">איתן signifie "puissant" et ירח האיתנים fait référence au mois de Tishrei qui a l'effet spirituel le plus fort pour que les gens s'améliorent en raison des fêtes célébrées pendant Tishrei-Ralbag. Alternativement, איתנים fait allusion aux Patriarches. Voir Masehet Rosh Hashana 11a.</i>
+<b>Dans le mois <i>Eisonim</i>.</b> [Targum] Yonatanh a rendu : " Dans le mois que les gens de l'antiquité appelaient le premier mois, lors de la fête, et actuellement c'est le septième mois, " c'est-à-dire, depuis que la Torah a été donnée, et il est écrit au mois de Nissan qu'il est le premier des mois, [donc,] Tishrei<sup>3</sup><i class="footnote">Bien que la construction du Beit Hamikdash ait été achevée au huitième mois de l'année précédente [voir ci-dessus 6:38], Shlomo a reporté sa dédicace au Tishrei suivant. </i> est appelé le septième [mois].<sup>4</sup><i class="footnote">איתן signifie "puissant" et ירח האיתנים fait référence au mois de Tishrei qui a l'effet spirituel le plus fort pour que les gens s'améliorent en raison des fêtes célébrées pendant Tishrei-Ralbag. Alternativement, איתנים fait allusion aux Patriarches. Voir Masehet Rosh Hashana 11a.</i>
 
 ### passuk 3
 
@@ -56,7 +56,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Et Shlomo se tint devant l'autel d'Hachem.</b> [Comme] il est écrit : " et Shlomo fit un bassin de cuivre et l'avait placé au milieu de la cour, etc... et sur ce bassin il se tint debout, et s'agenouilla. "<sup>15</sup><i class="footnote">Même si un roi de Israël est autorisé à s'asseoir dans le Beis Hamikdosh [Voir II Shmuel 7:18], Shlomo choisit de se tenir debout.</i><sup>16</sup><i class="footnote">II Divrei Hayamim 6:13.</i>
+<b>Et Shlomo se tint devant l'autel d'Hachem.</b> [Comme] il est écrit : " et Shlomo fit un bassin de cuivre et l'avait placé au milieu de la cour, etc... et sur ce bassin il se tint debout, et s'agenouilla. "<sup>15</sup><i class="footnote">Même si un roi de Israël est autorisé à s'asseoir dans le Beit Hamikdash [Voir II Shmuel 7:18], Shlomo choisit de se tenir debout.</i><sup>16</sup><i class="footnote">II Divrei Hayamim 6:13.</i>
 
 ### passuk 23
 <b>Préservateur de l'alliance.</b> Il attend et emmagasine [la récompense] pour garder l'alliance et [est basé sur] la miséricorde, pour accomplir Sa promesse.</sup>17</sup><i class="footnote">Qu'Il a fait avec nos Patriarches.-Radak </i>.
@@ -85,7 +85,7 @@
 <b>Et la malédiction vient devant ton autel.</b> "Et le <i>Kohein</i> fera tenir la femme devant Hachem."<sup>20</sup><i class="footnote">Bamidbar 5:18</i>.
 
 ### passuk 32
-<b>Pour mettre sa [mauvaise] voie sur sa tête.</b> "Et son abdomen se gonflera, etc."<sup>21</sup><i class="footnote">Ibid. v. 27. </i><sup>22</sup><i class="footnote">Alternativement, si quelqu'un jure faussement dans le Beis Hamikdosh, sa punition devrait être rapide et évidente, afin que les gens reconnaissent le niveau unique de sainteté du Beis Hamikdosh, et qu'ils perçoivent que le Beis Hamikdosh est le lieu choisi par Dieu.-Radak</i>
+<b>Pour mettre sa [mauvaise] voie sur sa tête.</b> "Et son abdomen se gonflera, etc."<sup>21</sup><i class="footnote">Ibid. v. 27. </i><sup>22</sup><i class="footnote">Alternativement, si quelqu'un jure faussement dans le Beit Hamikdash, sa punition devrait être rapide et évidente, afin que les gens reconnaissent le niveau unique de sainteté du Beit Hamikdash, et qu'ils perçoivent que le Beit Hamikdash est le lieu choisi par Dieu.-Radak</i>
 <b>Et pour justifier le juste.</b> "Alors elle sera dégagée, et portera une semence."<sup>23</sup><i class="footnote">Bamidbar 5:28.</i> Ainsi est-il exposé dans la Tosefta de Masehet Sotah.<sup>24</sup><i class="footnote"> 1:3.</i>
 
 ### passuk 33
@@ -112,7 +112,7 @@
 ### passuk 42
 
 ### passuk 43
-<b>Selon tout ce que l'étranger t'appelle.</b> Et concernant le Juif, il est dit : "et donnez à chacun selon toutes ses voies,"<sup>27</sup><i class="footnote">Alternativement, lorsque le blé n'atteint pas sa couleur normale mais devient jaune pâle. -Metzudas Tzion</i> car le Juif reconnaît le Saint Béni soit-Il, et il sait qu'Il a la capacité en Son pouvoir [d'exaucer] ; et si ses prières ne sont pas exaucées, il s'en rendra responsable et rendra compte de ses péchés. Mais le non-Juif se plaint et dit : " une maison [c'est-à-dire le Beis Hamikdosh], dont la renommée atteint les extrémités du monde, je me suis épuisé sur de nombreux chemins, je suis venu y prier et je n'y ai trouvé aucune substance, tout comme il n'y a aucune substance dans le culte des idoles. " Par conséquent, "selon tout ce que l'étranger T'appelle,"<sup>28</sup><i class="footnote">Supérieur au v. 39.</i> mais un juif, si Tu vois qu'il utilise sa richesse pour détruire son ami, ne lui donne pas.
+<b>Selon tout ce que l'étranger t'appelle.</b> Et concernant le Juif, il est dit : "et donnez à chacun selon toutes ses voies,"<sup>27</sup><i class="footnote">Alternativement, lorsque le blé n'atteint pas sa couleur normale mais devient jaune pâle. -Metzudas Tzion</i> car le Juif reconnaît le Saint Béni soit-Il, et il sait qu'Il a la capacité en Son pouvoir [d'exaucer] ; et si ses prières ne sont pas exaucées, il s'en rendra responsable et rendra compte de ses péchés. Mais le non-Juif se plaint et dit : " une maison [c'est-à-dire le Beit Hamikdash], dont la renommée atteint les extrémités du monde, je me suis épuisé sur de nombreux chemins, je suis venu y prier et je n'y ai trouvé aucune substance, tout comme il n'y a aucune substance dans le culte des idoles. " Par conséquent, "selon tout ce que l'étranger T'appelle,"<sup>28</sup><i class="footnote">Supérieur au v. 39.</i> mais un juif, si Tu vois qu'il utilise sa richesse pour détruire son ami, ne lui donne pas.
 
 ### passuk 44
 <b>Par le chemin de la ville.</b> En regardant vers Jérusalem.
@@ -131,7 +131,7 @@
 ### passuk 50
 
 ### passuk 51
-<b>Le creuset de fer.</b> La faïence<sup>29</sup><i class="footnote">Alternativement, donner à un non-juif tout ce qu'il demande, pour l'inciter à se tourner vers Dieu avec ses prières, et pour faire connaître la Présence de Dieu dans le Beis Hamikdosh. -Ralbag</i> ustensiles utilisés pour purifier l'or de ses impuretés est appelé כור.<sup>30</sup><i class="footnote">L'expression "de fer" fait référence à l'usage du pot, et non au matériau dont il est fait. Le pot lui-même est en faïence.</i>
+<b>Le creuset de fer.</b> La faïence<sup>29</sup><i class="footnote">Alternativement, donner à un non-juif tout ce qu'il demande, pour l'inciter à se tourner vers Dieu avec ses prières, et pour faire connaître la Présence de Dieu dans le Beit Hamikdash. -Ralbag</i> ustensiles utilisés pour purifier l'or de ses impuretés est appelé כור.<sup>30</sup><i class="footnote">L'expression "de fer" fait référence à l'usage du pot, et non au matériau dont il est fait. Le pot lui-même est en faïence.</i>
 
 ### passuk 52
 

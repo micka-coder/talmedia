@@ -19,7 +19,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Selon leur travail.</b> La charge des fils de Gershon était plus légère que celle des fils de Merori, qui portaient les planches, les piliers et les socles. 
+<b>Selon leur travail.</b> La charge des fils de Gershon était plus légère que celle des fils de Merari, qui portaient les planches, les piliers et les socles. 
 
 ### passuk 8
 

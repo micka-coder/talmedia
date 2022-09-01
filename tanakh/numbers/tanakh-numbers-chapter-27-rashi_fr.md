@@ -4,8 +4,8 @@
 <b>Machlah, No'ah, etc.</b> En dessous, il est dit : "Machlah et Sirtzah étaient.... ." Cela enseigne qu'ils étaient tous égaux - l'ordre a, par conséquent, été modifié. 
 
 ### passuk 2
-<b>Devant Moshé et devant Elozor.</b> Cela enseigne qu'ils ne se sont tenus devant eux que la quarantième année, après la mort d'Aharon. 
-<b>Devant Moshé.</b> Et ensuite devant Elozor ? Est-il possible que Moshé n'ait pas su et qu'Elozor ait su ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, réarrangez le passage et expliquez-le. C'est l'interprétation de R' Yoshiyah. Aba Hannan a dit au nom de R' Elozor : " Ils étaient assis dans la salle d'étude, et ils se tenaient devant tous. " 
+<b>Devant Moshé et devant Elazar.</b> Cela enseigne qu'ils ne se sont tenus devant eux que la quarantième année, après la mort d'Aharon. 
+<b>Devant Moshé.</b> Et ensuite devant Elazar ? Est-il possible que Moshé n'ait pas su et qu'Elazar ait su ? <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais, réarrangez le passage et expliquez-le. C'est l'interprétation de R' Yoshiyah. Aba Hannan a dit au nom de R' Elazar : " Ils étaient assis dans la salle d'étude, et ils se tenaient devant tous. " 
 
 ### passuk 3
 <b>Mais il n'était pas, etc.</b> Puisqu'ils allaient dire qu'il est mort à cause de son péché, il fallait dire : 'il n'était pas le péché des plaignants, ni avec l'assemblée de Korach, qui incitait [le peuple] contre le Saint, Béni soit-Il'. Au contraire, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> il est mort par son seul péché, sans provoquer les autres à pécher avec lui.'' R' Akiva dit : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Il était le ramasseur de bois", R' Shimon dit : "Il était <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parmi ceux qui se sont élevés par défi." 
@@ -71,9 +71,9 @@
 <b>Pour que toute la communauté de Bnei Israël entende.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ils le traiteront avec révérence et crainte, comme ils te traitent. 
 
 ### passuk 21
-<b>Il se présentera devant Elozor le <i>Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Voici [la réponse à] ta demande - cette gloire ne sera pas retirée de la maison de ton père, car Yehoshua, lui aussi, dépendra de l'affirmation d'Elozor. 
+<b>Il se présentera devant Elazar le <i>Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Voici [la réponse à] ta demande - cette gloire ne sera pas retirée de la maison de ton père, car Yehoshua, lui aussi, dépendra de l'affirmation d'Elazar. 
 <b>Et demande, à lui.</b> Quand il doit partir à la guerre. 
-<b>Par sa parole.</b> [la parole] d'Elozor.
+<b>Par sa parole.</b> [la parole] d'Elazar.
 <b>Et toute la communauté.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le Sanhedrin.
 
 ### passuk 22

@@ -38,7 +38,7 @@
 ### passuk 9
 <b>Celui qui aime l'argent ne sera jamais satisfait de l'argent.</b> Celui qui aime [exécuter les] commandements de Dieu n'en a jamais assez.</sup>12</sup><i class="footnote">Voir la Guemara dans Masehet Makkot 10a qui interprète que ce verset fait référence à Moshé. </i> 
 <b>Et celui qui aime l'abondance.</b> De nombreux commandements.
-<b>n'aura pas de produit.</b> Et parmi eux, aucun n'a un commandement spécifique et distinguable, par exemple, la construction du Beis Hamikdosh ou d'une synagogue, ou [l'écriture] d'un beau rouleau de Torah. 
+<b>n'aura pas de produit.</b> Et parmi eux, aucun n'a un commandement spécifique et distinguable, par exemple, la construction du Beit Hamikdash ou d'une synagogue, ou [l'écriture] d'un beau rouleau de Torah. 
 <b>Cela aussi, c'est de la vanité.</b> Ainsi sont exposés ces deux versets dans le Midrash, et il y a d'autres interprétations appropriées, mais j'ai énoncé celle-ci en premier parce qu'elle est liée à la question de "et il y a des supérieurs au-dessus d'eux", que l'Écriture leur juxtapose. 
 Une autre explication : <b>Le profit de la terre est désiré par tous.</b> La récompense pour le travail du sol est la plus importante de toutes, car même le roi doit être asservi au champ ; si la terre produit des fruits, il mangera, sinon, il meurt de faim. 
 <b>Celui qui aime l'argent ne sera jamais satisfait de l'argent.</b> Il ne mangera pas d'argent.

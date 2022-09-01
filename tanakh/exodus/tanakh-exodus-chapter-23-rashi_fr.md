@@ -64,7 +64,7 @@
 
 ### passuk 16
 <b>La fête de la moisson.</b> Cela fait référence à la fête de Shavuos...
-<b>Les prémices de votre travail -</b> qui est le moment d'apporter les prémices car l'offrande des "deux pains" qui sont apportés à Chavouos, permettent à la nouvelle récolte [d'être utilisée] pour les offrandes de repas et pour apporter des <i>bikkurim</i> au Beis Hamikdosh, comme il est dit : "Le jour des Bikkurim, etc....". 
+<b>Les prémices de votre travail -</b> qui est le moment d'apporter les prémices car l'offrande des "deux pains" qui sont apportés à Chavouos, permettent à la nouvelle récolte [d'être utilisée] pour les offrandes de repas et pour apporter des <i>bikkurim</i> au Beit Hamikdash, comme il est dit : "Le jour des Bikkurim, etc....". 
 <b>La fête de la collecte.</b> Cela fait référence à la fête de Souccos -.
 <b>lorsque tu récoltes [les fruits] de ton travail.</b> Parce que pendant tout l'été, les grains sèchent dans les champs et pendant la [saison] de Souccos, ils sont récoltés à l'intérieur pour éviter les pluies.
 
@@ -84,7 +84,7 @@
 
 ### passuk 20
 <b>Voici, je vais envoyer un ange.</b> Ici, on leur prédit qu'ils sont destinés à pécher, et la Shechinah leur dira alors : "Car je ne monterai pas au milieu de vous". 
-<b>Ce que j'ai préparé.</b> Ce que j'ai préparé pour vous le donner (c'est-à-dire Eretz Yisrael). C'est là son sens ordinaire. Mais son explication midrashique est : " à l'endroit que J'ai établi [pour le Temple] [car] Mon Lieu (c'est-à-dire le Temple du Ciel) a déjà été établi dans son alignement ". C'est l'un des versets [de l'Écriture] qui indique que le <i>Beis Hamikdosh</i> du Ciel est directement aligné avec le <i>Beis Hamikdosh</i> ci-dessous. 
+<b>Ce que j'ai préparé.</b> Ce que j'ai préparé pour vous le donner (c'est-à-dire Eretz Yisrael). C'est là son sens ordinaire. Mais son explication midrashique est : " à l'endroit que J'ai établi [pour le Temple] [car] Mon Lieu (c'est-à-dire le Temple du Ciel) a déjà été établi dans son alignement ". C'est l'un des versets [de l'Écriture] qui indique que le <i>Beit Hamikdash</i> du Ciel est directement aligné avec le <i>Beit Hamikdash</i> ci-dessous. 
 
 ### passuk 21
 <b>Ne vous révoltez pas contre lui.</b> תַּמֵּר vient de la même racine que הַמְרָאָה - "voler", comme dans : "Celui ( יַמְרֶה ) qui se rebellera contre ton ordre." 

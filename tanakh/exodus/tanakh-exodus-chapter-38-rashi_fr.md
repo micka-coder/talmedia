@@ -46,7 +46,7 @@
 
 ### passuk 21
 <b>Voici les comptes.</b> Dans ce <i>parsha</i> sont énumérés tous les poids des contributions au <i>mishkon</i> - de l'argent, de l'or et du cuivre. De même, tous ses récipients sont énumérés, chacun avec sa fonction. 
-<b>Le mishkon, le mishkon.</b> " מִשְׁכָּן " est mentionné deux fois. C'est une allusion au <i>Beis Hamikdosh</i> ( שֶׁנִתְמַשְׁכֵּן ) qui a été pris en " garantie " en étant détruit deux fois à cause des iniquités de Yisraël. 
+<b>Le mishkon, le mishkon.</b> " מִשְׁכָּן " est mentionné deux fois. C'est une allusion au <i>Beit Hamikdash</i> ( שֶׁנִתְמַשְׁכֵּן ) qui a été pris en " garantie " en étant détruit deux fois à cause des iniquités de Yisraël. 
 <b>Le <i>mishkon</i> de témoignage.</b> Ainsi appelé parce qu'il témoigne pour Yisraël que Dieu a été indulgent envers eux pour l'acte du Veau [d'or], car [à travers le <i>mishkon</i>] Il a reposé Sa <i>Shechinah</i> parmi eux. 
 <b>Le travail des Lévites.</b> Ces choses qui ont été comptées du <i>mishkon</i> et de ses récipients, c'est le travail confié aux Lévites dans le désert - le porter, le démonter et le monter, chacun selon la charge qui lui était assignée, comme cela est relaté dans <i>parshas</i> Naso. 
 <b>Sous la direction d'Isamar.</b> Il était en charge sur eux, pour confier à chaque famille paternelle le travail dont elle est responsable. 

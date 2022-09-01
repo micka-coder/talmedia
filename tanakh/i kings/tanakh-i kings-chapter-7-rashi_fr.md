@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Shlomo a construit sa [propre] maison en treize ans.</b> Dans les travaux du Très-Haut, il s'est dépêché,</sup>1</sup><i class="footnote">Shlomo a construit le Beis Hamikdosh en sept ans, comme indiqué dans 6:38 ci-dessus.</i> mais dans ses propres [travaux], il a été lent ; le texte raconte ceci pour le louer.
+<b>Shlomo a construit sa [propre] maison en treize ans.</b> Dans les travaux du Très-Haut, il s'est dépêché,</sup>1</sup><i class="footnote">Shlomo a construit le Beit Hamikdash en sept ans, comme indiqué dans 6:38 ci-dessus.</i> mais dans ses propres [travaux], il a été lent ; le texte raconte ceci pour le louer.
 
 ### passuk 2
 <b>La maison de la forêt du Liban.</b> [Targum] Yonatanh traduit : "une maison pour le refroidissement des rois."<sup>2</sup><i class="footnote">Alternativement, on l'appelle "la maison de la forêt" parce que la maison était construite avec de nombreux piliers en bois qui lui donnaient l'apparence d'une forêt ; ou la maison était en fait située dans la forêt de Levanon.-Metzudas David.</i>
@@ -169,8 +169,8 @@
 <b>Il fabriqua dix bassins [de lavage] en cuivre.</b> Il est écrit dans le Divrei Hayamim, "on y rinçait les parties de l'holocauste."<sup>59</sup><i class="footnote">II Divrei Hayamim 4:6.</i>
 
 ### passuk 39
-<b>Sur le côté [droit] du Beis Hamikdosh.</b> Contre le côté droit du Beis Hamikdosh.
-<b>Dans le prolongement du côté droit du Beis Hamikdosh.</b> Dans le prolongement du côté sud vers le côté nord. La suite [explique], "קדמה מול נגב" : L'angle nord-est contre l'espace qui se trouve entre le mur nord du Beis Hamikdosh et le mur du parvis ; et le mur nord est appelé " ממול נגב ", étendu et éloigné du sud, et מול et ממול ne se traduisent pas de la même façon.<sup>60</sup><i class="footnote">C'est-à-dire, ממול נגב signifie "opposé au sud", qui est le nord.</i>
+<b>Sur le côté [droit] du Beit Hamikdash.</b> Contre le côté droit du Beit Hamikdash.
+<b>Dans le prolongement du côté droit du Beit Hamikdash.</b> Dans le prolongement du côté sud vers le côté nord. La suite [explique], "קדמה מול נגב" : L'angle nord-est contre l'espace qui se trouve entre le mur nord du Beit Hamikdash et le mur du parvis ; et le mur nord est appelé " ממול נגב ", étendu et éloigné du sud, et מול et ממול ne se traduisent pas de la même façon.<sup>60</sup><i class="footnote">C'est-à-dire, ממול נגב signifie "opposé au sud", qui est le nord.</i>
 
 ### passuk 40
 <b>Et Chirom fit, etc.</b> Et Rebbi dit, que les כיורות sont une seule et même chose que les סירות, comme il est dit, "comme une casserole de feu brûlant du bois,"<sup>61</sup><i class="footnote">Zecharyah 12:6. </i> et de même, "et il le poussa dans la poêle."<sup>62</sup><i class="footnote">I Shmuel 2:14.</i>.
@@ -209,8 +209,8 @@
 <b>Les cuillères.</b> Comme récipients pour l'encens.
 <b>Et les poêles à feu.</b> Pour enlever les cendres et les charbons, et les transporter de l'autel extérieur à l'autel intérieur pour brûler l'encens.
 <b>Les clés.</b> Des clés, ai-je entendu, avec lesquelles on ouvre [מפתחין] avec elles les verrous.
-<b>Pour les portes du Beis Hamikdosh [intérieur].</b> Qui est le Saint des Saints.
-<b>Pour les portes du Beis Hamikdosh.</b> Qui est pour le Sanctuaire, toutes leurs entrées étaient en or.
+<b>Pour les portes du Beit Hamikdash [intérieur].</b> Qui est le Saint des Saints.
+<b>Pour les portes du Beit Hamikdash.</b> Qui est pour le Sanctuaire, toutes leurs entrées étaient en or.
 
 ### passuk 51
 <b>Le sacré de son père David.</b> Ce qui restait de l'argent et de l'or dédiés par son père. Mais le Midrach explique que Shlomo ne souhaitait utiliser aucun de ces matériaux dédiés pour la construction du Beis [Hamikdosh]. Et j'ai entendu des érudits [de la Torah] de Israël dire que c'était parce que David savait qu'il finirait par être détruit ; afin que les [nations] adoratrices d'idoles ne puissent pas dire que leurs idoles sont plus puissantes, car elles se sont vengées sur le Beis [Hamikdosh] qui a été construit avec le pillage et la destruction que David leur a volés. Et d'autres disent que Shlomo a dit qu'il y avait eu une famine à l'époque de son père pendant trois années consécutives, et qu'il aurait dû gaspiller ces matériaux dédiés pour soutenir les pauvres de Israël.

@@ -1,10 +1,10 @@
 
 ### passuk 1
 <b>Shlomo est devenu le gendre.</b> Tant que Shim'i, son maître, était en vie, il ne s'est pas marié [avec la fille de Pharaon]. De là, [nos Sages ont dérivé et] déclaré, qu'une personne doit toujours vivre à proximité de son professeur.<sup>1</sup><i class="footnote">Selon la juxtaposition de la mort de Shimi et du mariage de Shlomo avec la fille de Pharaon. Voir Masehet Berahot 8a.</i><sup>2</sup><i class="footnote">Afin de rester sous la direction et l'influence de son maître.</i>
-<b>Jusqu'à ce qu'il ait fini de construire, etc.</b> Et ensuite, il lui construisit une maison.</sup>3</sup><i class="footnote">Alternativement, après avoir terminé la construction du Beis Hamikdosh, Shlomo déplaça la fille de Pharaon hors de la ville de David qui était devenue sanctifiée par la présence de l'Arche.-Radak</i>
+<b>Jusqu'à ce qu'il ait fini de construire, etc.</b> Et ensuite, il lui construisit une maison.</sup>3</sup><i class="footnote">Alternativement, après avoir terminé la construction du Beit Hamikdash, Shlomo déplaça la fille de Pharaon hors de la ville de David qui était devenue sanctifiée par la présence de l'Arche.-Radak</i>
 
 ### passuk 2
-<b>Sacrifiés sur des autels improvisés.</b> Par égard pour le Ciel, chaque [personne] qui le souhaitait construisait un autel au sommet de son toit ou dans sa cour.<sup>4</sup><i class="footnote">Cela était permis durant la période entre la destruction du Michkan à Shilo et la construction du Beis Hamikdosh. Voir Mishnayos Zevachim 14:7.</i>
+<b>Sacrifiés sur des autels improvisés.</b> Par égard pour le Ciel, chaque [personne] qui le souhaitait construisait un autel au sommet de son toit ou dans sa cour.<sup>4</sup><i class="footnote">Cela était permis durant la période entre la destruction du Michkan à Shilo et la construction du Beit Hamikdash. Voir Mishnayos Zevachim 14:7.</i>
 
 ### passuk 3
 <b>Et Shlomo aima Hachem, il se conforma aux décrets de son père David.</b> [Pendant les premières] quatre années, avant de commencer à construire le Beis [Hamikdosh]. Mais une fois qu'il a commencé à construire et que Shlomo a épousé la fille de Pharaon, en conséquence, il est dit : "car comme une provocation de colère et de fureur, cette ville a été pour moi depuis le jour où ils l'ont construite jusqu'à ce jour."<sup>5</sup><i class="footnote">Yirmiyahu 32:31.</i> Ainsi avons-nous appris dans le Seder Olam. Nous apprenons que les passages ne sont pas écrits dans l'ordre chronologique.

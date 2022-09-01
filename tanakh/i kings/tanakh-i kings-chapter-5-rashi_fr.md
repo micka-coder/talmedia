@@ -90,7 +90,7 @@
 ### passuk 31
 <b>Et ils apportèrent.</b> Des montagnes ; expression de déracinement.
 <b>Des pierres lourdes.</b> Lourdes.
-<b>Pierre taillée.</b> Taillée et ciselée. Et si vous demandez, il a déjà été dit : "Ni marteau, ni hache [ni aucun outil en fer] n'a été entendu dans le Beis Hamikdosh, pendant sa construction."<sup>27</sup><i class="footnote">Dessous 6:7.</i> L'explication est, qu'aucun fer n'a été entendu dans le Beis [Hamikdosh], pendant sa construction, mais ils ciselaient à l'extérieur, et apportaient et construisaient [à l'intérieur]. C'est ce qui est expliqué dans le Masehet Sotah.<sup>28</sup><i class="footnote">Voir 48b.</i>
+<b>Pierre taillée.</b> Taillée et ciselée. Et si vous demandez, il a déjà été dit : "Ni marteau, ni hache [ni aucun outil en fer] n'a été entendu dans le Beit Hamikdash, pendant sa construction."<sup>27</sup><i class="footnote">Dessous 6:7.</i> L'explication est, qu'aucun fer n'a été entendu dans le Beis [Hamikdosh], pendant sa construction, mais ils ciselaient à l'extérieur, et apportaient et construisaient [à l'intérieur]. C'est ce qui est expliqué dans le Masehet Sotah.<sup>28</sup><i class="footnote">Voir 48b.</i>
 
 ### passuk 32
 <b>[Et ils] sculptèrent.</b> Dans les montagnes.

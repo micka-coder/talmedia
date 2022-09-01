@@ -27,7 +27,7 @@ Un get qui a été écrit en hébreu et dont les signatures sont en grec, ou qui
 Si une rumeur circule dans la ville : Si une rumeur circule dans la ville : "Une certaine femme est fiancée", elle est considérée comme fiancée ; [Si une rumeur circule dans la ville : "Une certaine femme est divorcée", elle est considérée comme divorcée. [Ce n'est le cas] que si la nouvelle n'est pas assortie de réserves. Qu'entend-on par qualification ? Si le rapport est :] "Untel a divorcé de sa femme avec une stipulation" [ou] "Il lui a jeté l'argent des fiançailles, mais on ne sait pas s'il est tombé plus près d'elle ou plus près de lui", il s'agit d'une qualification.
 
 ### michna 10
-Bet Shammai dit : un homme ne doit pas divorcer de sa femme à moins qu'il ne l'ait trouvée coupable d'une conduite inconvenante, comme il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Bet Hillel dit [qu'il peut divorcer] même si elle a simplement brûlé son plat, car il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Rabbi Akiva dit [qu'il peut divorcer] même s'il trouve une autre femme plus belle qu'elle, car il est dit : "Il arrive qu'elle ne trouve pas grâce à ses yeux.
+Bet Shammai disent : un homme ne doit pas divorcer de sa femme à moins qu'il ne l'ait trouvée coupable d'une conduite inconvenante, comme il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Bet Hillel disent [qu'il peut divorcer] même si elle a simplement brûlé son plat, car il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Rabbi Akiva dit [qu'il peut divorcer] même s'il trouve une autre femme plus belle qu'elle, car il est dit : "Il arrive qu'elle ne trouve pas grâce à ses yeux.
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

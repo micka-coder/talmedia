@@ -4,10 +4,10 @@
 ### passuk 2
 
 ### passuk 3
-<b>À sa place.</b> La place où se tient le roi dans le Beis Hamikdosh.</sup>1</sup><i class="footnote">Voir ci-dessus 11:14. C'était un endroit spécial dans le Beis Hamikdosh où le roi se tenait debout lorsqu'il s'adressait au peuple.</i>
+<b>À sa place.</b> La place où se tient le roi dans le Beit Hamikdash.</sup>1</sup><i class="footnote">Voir ci-dessus 11:14. C'était un endroit spécial dans le Beit Hamikdash où le roi se tenait debout lorsqu'il s'adressait au peuple.</i>
 
 ### passuk 4
-<b>Les <i>kohanim</i> de second rang.</b> Les assistants du sacerdoce,</sup>2</sup><i class="footnote">Le <i>Cohen</i>qui était oint pour la guerre était également inclus dans ce groupe. -Metzudas David</i> qui sont de second rang<sup>3</sup><i class="footnote">Ils remplaçaient le <i>Cohen gadol</i> dans le cas où il était incapable d'accomplir le service dans le Beis Hamikdosh.-Radak</i> aux <i>Kohanim Gedolim</i>.
+<b>Les <i>kohanim</i> de second rang.</b> Les assistants du sacerdoce,</sup>2</sup><i class="footnote">Le <i>Cohen</i>qui était oint pour la guerre était également inclus dans ce groupe. -Metzudas David</i> qui sont de second rang<sup>3</sup><i class="footnote">Ils remplaçaient le <i>Cohen gadol</i> dans le cas où il était incapable d'accomplir le service dans le Beit Hamikdash.-Radak</i> aux <i>Kohanim Gedolim</i>.
 <b>Et les gardiens des portes.</b> Les surveillants chargés de toutes les nécessités du Beis [Hamikdosh], et les clés de la cour du Temple étaient à leur charge.<sup>4</sup><i class="footnote">Voir Rachi ci-dessus, 12:10.</i>.
 <b>Dans les plaines du Cédron.</b> Dans les plaines du Cédron.
 <b>Et il porta leurs cendres à Beis Eil.</b> Dans un lieu impur, où il souilla l'autel que Yorovom avait fait,</sup>5</sup><i class="footnote">Voir v. 15 ci-dessous.</i> et il y brûla les prêtres des hauts lieux.
@@ -32,7 +32,7 @@
 <b>Les Tophes. </b> C'était le Molech, il est nommé [תפת] parce que les prêtres frappaient sur des tambours [=תופים] pour que le père n'entende pas les gémissements de l'enfant lorsqu'il était brûlé par l'image païenne,</sup>10</sup><i class="footnote">Selon Ralbag, le service de Molech consistait à faire passer un enfant par des prêtres entre deux feux. </i> Molech, ils l'appelaient Tophes.
 
 ### passuk 11
-<b>Les chevaux.</b> Ceux [des gens] qui se prosternaient devant le soleil, avaient des chevaux prêts le matin pour sortir vers le soleil.</sup>11</sup><i class="footnote">Les rois idolâtres de Yéhouda montaient ces chevaux depuis l'entrée du Beis Hamikdosh jusqu'à la chambre de Nesan Melech qui se trouvait à l'est de la ville.-Ralbag et Metzudas David</i>.
+<b>Les chevaux.</b> Ceux [des gens] qui se prosternaient devant le soleil, avaient des chevaux prêts le matin pour sortir vers le soleil.</sup>11</sup><i class="footnote">Les rois idolâtres de Yéhouda montaient ces chevaux depuis l'entrée du Beit Hamikdash jusqu'à la chambre de Nesan Melech qui se trouvait à l'est de la ville.-Ralbag et Metzudas David</i>.
 <b>Nesan Melech.</b> C'était son nom.
 <b>Dans les faubourgs.</b> Je ne sais pas ce qu'ils sont.<sup>12</sup><i class="footnote">"רורים sont les espaces libres situés à l'extérieur de la ville. Dans Yechezkeil 27:28, le verset dit : "les zones environnantes [=מגרשות] trembleront", et le Targum rend "פרורים" pour מגרשות.-Radak</i>.
 
@@ -101,10 +101,10 @@
 ### passuk 2
 
 ### passuk 3
-<b>À sa place.</b> La place où se tient le roi dans le Beis Hamikdosh.</sup>1</sup><i class="footnote">Voir ci-dessus 11:14. C'était un endroit spécial dans le Beis Hamikdosh où le roi se tenait debout lorsqu'il s'adressait au peuple.</i>
+<b>À sa place.</b> La place où se tient le roi dans le Beit Hamikdash.</sup>1</sup><i class="footnote">Voir ci-dessus 11:14. C'était un endroit spécial dans le Beit Hamikdash où le roi se tenait debout lorsqu'il s'adressait au peuple.</i>
 
 ### passuk 4
-<b>Les <i>kohanim</i> de second rang.</b> Les assistants du sacerdoce,</sup>2</sup><i class="footnote">Le <i>Cohen</i>qui était oint pour la guerre était également inclus dans ce groupe. -Metzudas David</i> qui sont de second rang<sup>3</sup><i class="footnote">Ils remplaçaient le <i>Cohen gadol</i> dans le cas où il était incapable d'accomplir le service dans le Beis Hamikdosh.-Radak</i> aux <i>Kohanim Gedolim</i>.
+<b>Les <i>kohanim</i> de second rang.</b> Les assistants du sacerdoce,</sup>2</sup><i class="footnote">Le <i>Cohen</i>qui était oint pour la guerre était également inclus dans ce groupe. -Metzudas David</i> qui sont de second rang<sup>3</sup><i class="footnote">Ils remplaçaient le <i>Cohen gadol</i> dans le cas où il était incapable d'accomplir le service dans le Beit Hamikdash.-Radak</i> aux <i>Kohanim Gedolim</i>.
 <b>Et les gardiens des portes.</b> Les surveillants chargés de toutes les nécessités du Beis [Hamikdosh], et les clés de la cour du Temple étaient à leur charge.<sup>4</sup><i class="footnote">Voir Rachi ci-dessus, 12:10.</i>.
 <b>Dans les plaines du Cédron.</b> Dans les plaines du Cédron.
 <b>Et il porta leurs cendres à Beis Eil.</b> Dans un lieu impur, où il souilla l'autel que Yorovom avait fait,</sup>5</sup><i class="footnote">Voir v. 15 ci-dessous.</i> et il y brûla les prêtres des hauts lieux.
@@ -129,7 +129,7 @@
 <b>Les Tophes. </b> C'était le Molech, il est nommé [תפת] parce que les prêtres frappaient sur des tambours [=תופים] pour que le père n'entende pas les gémissements de l'enfant lorsqu'il était brûlé par l'image païenne,</sup>10</sup><i class="footnote">Selon Ralbag, le service de Molech consistait à faire passer un enfant par des prêtres entre deux feux. </i> Molech, ils l'appelaient Tophes.
 
 ### passuk 11
-<b>Les chevaux.</b> Ceux [des gens] qui se prosternaient devant le soleil, avaient des chevaux prêts le matin pour sortir vers le soleil.</sup>11</sup><i class="footnote">Les rois idolâtres de Yéhouda montaient ces chevaux depuis l'entrée du Beis Hamikdosh jusqu'à la chambre de Nesan Melech qui se trouvait à l'est de la ville.-Ralbag et Metzudas David</i>.
+<b>Les chevaux.</b> Ceux [des gens] qui se prosternaient devant le soleil, avaient des chevaux prêts le matin pour sortir vers le soleil.</sup>11</sup><i class="footnote">Les rois idolâtres de Yéhouda montaient ces chevaux depuis l'entrée du Beit Hamikdash jusqu'à la chambre de Nesan Melech qui se trouvait à l'est de la ville.-Ralbag et Metzudas David</i>.
 <b>Nesan Melech.</b> C'était son nom.
 <b>Dans les faubourgs.</b> Je ne sais pas ce qu'ils sont.<sup>12</sup><i class="footnote">"רורים sont les espaces libres situés à l'extérieur de la ville. Dans Yechezkeil 27:28, le verset dit : "les zones environnantes [=מגרשות] trembleront", et le Targum rend "פרורים" pour מגרשות.-Radak</i>.
 

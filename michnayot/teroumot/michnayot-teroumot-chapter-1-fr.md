@@ -9,7 +9,7 @@ Un "heresh", qui parle mais ne peut pas entendre, ne peut pas donner de terumah,
 Un mineur qui n'a pas encore produit deux poils [pubiens] : Rabbi Judah dit : sa terumah est terumah. Rabbi Yose dit : s'il n'est pas arrivé à l'âge où ses vœux sont valides, sa terumah n'est pas terumah, mais s'il est arrivé à l'âge où ses vœux sont valides, sa terumah est terumah.
 
 ### michna 4
-On ne doit pas prendre de terumah d'olives pour l'huile, ni de raisins pour le vin. Si on le faisait : Bet Shammai dit : il y a de la terumah dans [les olives ou les raisins] eux-mêmes. Mais Bet Hillel dit : la terumah n'est pas de la terumah.
+On ne doit pas prendre de terumah d'olives pour l'huile, ni de raisins pour le vin. Si on le faisait : Bet Shammai disent : il y a de la terumah dans [les olives ou les raisins] eux-mêmes. Mais Bet Hillel disent : la terumah n'est pas de la terumah.
 
 ### michna 5
 On ne prend pas la terumah des "glanages", de la "gerbe oubliée", du peah ou des produits sans propriétaire. [Elle n'est pas non plus prélevée sur la première dîme dont la terumah a déjà été prélevée, ni sur la seconde dîme et les produits dédiés qui ont été rachetés. [On ne prélève pas non plus sur ce qui est soumis [à la térouma] pour ce qui est exempté [de la térouma], ni sur ce qui est exempté pour ce qui est soumis. Ni d'un produit déjà arraché [du sol] pour celui qui y est attaché, ni d'un produit attaché [au sol] pour celui qui est déjà arraché. Ni des produits nouveaux pour les anciens, ni des anciens pour les nouveaux. Ni d'un produit de la terre d'Israël pour un produit cultivé hors de la terre, ni d'un produit cultivé hors de la terre pour un produit cultivé dans la terre. [Dans tous ces cas] s'ils ont pris de la térouma, leur térouma n'est pas de la térouma.

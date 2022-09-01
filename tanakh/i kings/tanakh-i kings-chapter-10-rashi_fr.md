@@ -8,7 +8,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Et sa rampe élevée par laquelle il monterait au Beis Hamikdosh d'Hachem.</b> Par un passage qu'il avait préparé de sa maison au Beis Hamikdosh, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement, ועולתו אשר יעלה עליו fait référence aux sacrifices que Shlomo a offerts dans le Beis Hamikdosh, décrits ci-dessus dans 9:25.-Targum</i>
+<b>Et sa rampe élevée par laquelle il monterait au Beit Hamikdash d'Hachem.</b> Par un passage qu'il avait préparé de sa maison au Beit Hamikdash, par lequel il monterait à la Maison de Dieu. <sup>1</sup><i class="footnote">Alternativement, ועולתו אשר יעלה עליו fait référence aux sacrifices que Shlomo a offerts dans le Beit Hamikdash, décrits ci-dessus dans 9:25.-Targum</i>
 
 ### passuk 6
 
@@ -24,7 +24,7 @@
 <b>Coral.</b> <i>Corail</i>, en ancien français.
 
 ### passuk 12
-<b>Un chemin vers le Beis Hamikdosh d'Hachem.</b> Mais dans le Divrei Hayamim, il est écrit : " des chemins [מסילות] vers la Maison d'Hachem. "<sup>2</sup><i class="footnote">II Divrei Hayamim 9:11.</i> Je dis donc que ce support [מסעד] est l'expression d'un pavé.
+<b>Un chemin vers le Beit Hamikdash d'Hachem.</b> Mais dans le Divrei Hayamim, il est écrit : " des chemins [מסילות] vers la Maison d'Hachem. "<sup>2</sup><i class="footnote">II Divrei Hayamim 9:11.</i> Je dis donc que ce support [מסעד] est l'expression d'un pavé.
 <b>Pour les chanteurs.</b> Pour les <i>Leviyim</i>.
 
 ### passuk 13

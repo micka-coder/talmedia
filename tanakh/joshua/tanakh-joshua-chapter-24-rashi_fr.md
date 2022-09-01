@@ -78,7 +78,7 @@
 <b>On l'enterra à Sichem.</b> C'est à Sichem qu'il fut volé [kidnappé]<sup>28</sup><i class="footnote">Voir Bereishis 37:14.</i> et à Sichem qu'on le ramena.
 
 ### passuk 33
-<b>Dans la colline de son fils, Pinchos.</b><sup>29</sup><i class="footnote">Ces mots semblent impliquer que la colline appartenait à Pinchos même du vivant de son père. Mais s'il ne l'a pas héritée d'Elozor, d'où pouvait-il l'obtenir ? Il y en a d'autres qui disent que Pinchos a bien hérité de la terre d'Elozor, et comme l'héritage prend effet immédiatement, elle appartenait déjà à Pinchos avant qu'Elozor ne soit enterré.</i> D'où Pinchos a-t-il eu une part dans la terre ? Il en a hérité de sa femme.
+<b>Dans la colline de son fils, Pinchos.</b><sup>29</sup><i class="footnote">Ces mots semblent impliquer que la colline appartenait à Pinchos même du vivant de son père. Mais s'il ne l'a pas héritée d'Elazar, d'où pouvait-il l'obtenir ? Il y en a d'autres qui disent que Pinchos a bien hérité de la terre d'Elazar, et comme l'héritage prend effet immédiatement, elle appartenait déjà à Pinchos avant qu'Elazar ne soit enterré.</i> D'où Pinchos a-t-il eu une part dans la terre ? Il en a hérité de sa femme.
 
 >Crédit : sefaris
 >Licence : CC-BY

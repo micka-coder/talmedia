@@ -113,7 +113,7 @@
 ### passuk 29
 
 ### passuk 30
-<b>L'Urim et le Tumim.</b> C'est l'inscription du Nom explicite, qu'il a placé dans les plis du plastron, grâce auquel ses mots s'éclaireraient ( מֵאִיר ) et rendraient ses paroles claires ( וּמְתַמֵּם ). A l'époque du second <i>Beis Hamikdosh</i>, il y avait un plastron, car un <i>Cohen godol</i> ne peut manquer d'aucun des vêtements, mais ce Nom ne s'y trouvait pas. C'est à cause de cette inscription [que la cuirasse] a été appelée "jugement", comme il est dit : "Et il demandera pour lui le jugement de l'Urim". 
+<b>L'Urim et le Tumim.</b> C'est l'inscription du Nom explicite, qu'il a placé dans les plis du plastron, grâce auquel ses mots s'éclaireraient ( מֵאִיר ) et rendraient ses paroles claires ( וּמְתַמֵּם ). A l'époque du second <i>Beit Hamikdash</i>, il y avait un plastron, car un <i>Cohen godol</i> ne peut manquer d'aucun des vêtements, mais ce Nom ne s'y trouvait pas. C'est à cause de cette inscription [que la cuirasse] a été appelée "jugement", comme il est dit : "Et il demandera pour lui le jugement de l'Urim". 
 <b>Le jugement des B'nei Yisrael.</b> Tout ce pour quoi ils exigeaient d'être jugés ou admonestés, de faire ou de ne pas faire une chose particulière. Selon l'explication midrashique selon laquelle le plastron expie les erreurs de justice, il est appelé מִשְׁפָּט - "jugement" en raison du fait qu'il pardonne [les péchés traitant du] jugement. 
 
 ### passuk 31

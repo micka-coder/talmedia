@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Ce sont les mots de David.</b> La dernière prophétie de David. Quels étaient les premiers mots ? Les paroles du chant qui ont été dites plus haut.<sup>1</sup><i class="footnote"></i> Mais tous les chants et louanges qu'il [David] a dits ne sont pas appelés "paroles". <sup>2</sup><i class="footnote">L'emploi du mot <span>דִּבְרֵי</span> désigne ici la prophétie, et non les chants et les louanges.</i>
 <b>Raised on high.</b> Élevé d'en haut.<sup>3</sup><i class="footnote">Le mot <span>עָל</span>, est utilisé pour désigner <span>לְמַעְלָה</span>, "En haut". </i>
-<b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
+<b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beit Hamikdash autres que ses [David] chants et hymnes.
 
 ### passuk 2
 <b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Hachem n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
@@ -65,7 +65,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
+<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elazar, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
 
 ### passuk 20
 <b>Les deux géants moabites.</b> [Le Yonatanh traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
@@ -109,14 +109,14 @@
 ### passuk 38
 
 ### passuk 39
-<b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elozor et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
+<b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elazar et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
 <b>Ce sont les mots de David.</b> La dernière prophétie de David. Quels étaient les premiers mots ? Les paroles du chant qui ont été dites plus haut.<sup>1</sup><i class="footnote"></i> Mais tous les chants et louanges qu'il [David] a dits ne sont pas appelés "paroles". <sup>2</sup><i class="footnote">L'emploi du mot <span>דִּבְרֵי</span> désigne ici la prophétie, et non les chants et les louanges.</i>
 <b>Raised on high.</b> Élevé d'en haut.<sup>3</sup><i class="footnote">Le mot <span>עָל</span>, est utilisé pour désigner <span>לְמַעְלָה</span>, "En haut". </i>
-<b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beis Hamikdosh autres que ses [David] chants et hymnes.
+<b>Chants doux pour Israël.</b> Israël ne chante pas de chants dans le Beit Hamikdash autres que ses [David] chants et hymnes.
 
 ### passuk 2
 <b>Il parle à travers moi.</b> Il m'a conféré Son esprit saint et a parlé à travers moi. Chaque fois que [le verset fait référence] à la prophétie, le mot <span>דִּבֵּר</span> est approprié car [on trouve] "Hachem n'a [pas] seulement parlé à Moshé, il nous a aussi parlé."<sup>4</sup><i class="footnote">Bamidbar 12:2. </i> "Je parlerai à travers lui."<sup>5</sup><i class="footnote">Ibid 12:6.</i> La raison en est que l'esprit entre dans le prophète et parle à travers lui.
@@ -179,7 +179,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elozor, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
+<b>Il n'a pas atteint le statut des trois premiers.</b> [Yonatanh traduit :] Il n'a pas atteint [le statut] des [premiers] trois hommes.<sup>20</sup><i class="footnote">c'est-à-dire Adino l'Etzonite, Elazar, le fils de Dodo et Shamoh, le fils d'Ogaih de la montagne qui ont été énumérés plus tôt dans les versets 8, 9 et 11 respectivement.</i>
 
 ### passuk 20
 <b>Les deux géants moabites.</b> [Le Yonatanh traduit :] "Les deux géants moabites." Et nos rabbins ont dit : Il n'y avait personne comme lui, ni pendant le premier [Beis] Mikdosh ni pendant le second [Beis] Mikdosh.<sup>21</sup><i class="footnote">Berochos 18b. Rachi y explique que <span>אֲרִיאֵל</span> est un nom utilisé pour le Beis Hamikdash.</i>
@@ -223,7 +223,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elozor et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
+<b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elazar et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

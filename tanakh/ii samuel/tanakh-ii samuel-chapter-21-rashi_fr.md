@@ -63,7 +63,7 @@
 
 ### passuk 19
 <b>Elchonon.</b> David.<sup>24</sup><i class="footnote">Nous savons que c'est David qui a tué Golias dans Shmuel I, 17:51, par conséquent cet Elchonon doit être David.</i>
-<b>Le fils de Yari [dont la famille] était tisserande.</b> Sa famille a tissé le rideau de séparation du Beis Hamikdosh qui est [aussi] appelé une forêt.<sup>25</sup><i class="footnote">Le Beis Hamikdosh est appelé une forêt parce qu'il a été fait avec des planches de bois d'acacia, voir Shmos 26:15.</i>.
+<b>Le fils de Yari [dont la famille] était tisserande.</b> Sa famille a tissé le rideau de séparation du Beit Hamikdash qui est [aussi] appelé une forêt.<sup>25</sup><i class="footnote">Le Beit Hamikdash est appelé une forêt parce qu'il a été fait avec des planches de bois d'acacia, voir Shmos 26:15.</i>.
 <b>Comme celle de la baguette du tisserand.</b> [Yonatanh traduit :] " Comme la baguette du tisserand ", que l'on appelle " ensouple " en ancien français. Qu'un tisserand vienne se dresser contre un tisserand[ instrument].
 
 ### passuk 20
@@ -136,7 +136,7 @@
 
 ### passuk 19
 <b>Elchonon.</b> David.<sup>24</sup><i class="footnote">Nous savons que c'est David qui a tué Golias dans Shmuel I, 17:51, par conséquent cet Elchonon doit être David.</i>
-<b>Le fils de Yari [dont la famille] était tisserande.</b> Sa famille a tissé le rideau de séparation du Beis Hamikdosh qui est [aussi] appelé une forêt.<sup>25</sup><i class="footnote">Le Beis Hamikdosh est appelé une forêt parce qu'il a été fait avec des planches de bois d'acacia, voir Shmos 26:15.</i>.
+<b>Le fils de Yari [dont la famille] était tisserande.</b> Sa famille a tissé le rideau de séparation du Beit Hamikdash qui est [aussi] appelé une forêt.<sup>25</sup><i class="footnote">Le Beit Hamikdash est appelé une forêt parce qu'il a été fait avec des planches de bois d'acacia, voir Shmos 26:15.</i>.
 <b>Comme celle de la baguette du tisserand.</b> [Yonatanh traduit :] " Comme la baguette du tisserand ", que l'on appelle " ensouple " en ancien français. Qu'un tisserand vienne se dresser contre un tisserand[ instrument].
 
 ### passuk 20

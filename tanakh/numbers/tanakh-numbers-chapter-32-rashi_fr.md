@@ -71,7 +71,7 @@
 ### passuk 27
 
 ### passuk 28
-<b>Moché leur a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme עֲלֵיהֶם, concernant eux et leur stipulation, il a désigné Elozor et Yehoshua, comme dans "Dieu combattra pour vous". 
+<b>Moché leur a ordonné.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme עֲלֵיהֶם, concernant eux et leur stipulation, il a désigné Elazar et Yehoshua, comme dans "Dieu combattra pour vous". 
 
 ### passuk 29
 

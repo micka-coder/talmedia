@@ -7,7 +7,7 @@
 <b>Porterez le péché de votre <i>kehunah</i>.</b> Comme ce n'est pas une charge donnée aux Lévites, vous devez avertir les Lévites errants de ne pas entrer en contact avec vous pendant votre service. 
 
 ### passuk 2
-<b>Aussi, tes frères.</b> Les fils de Gershon et les fils de Merori. 
+<b>Aussi, tes frères.</b> Les fils de Gershon et les fils de Merari. 
 <b>Ils se joindront à toi.</b> Ils s'uniront à toi <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>en avertissant également les personnes non autorisées de ne pas les approcher.
 <b>Et te servir.</b> En gardant les portes, et par la nomination, à partir d'elles, de gardiens et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>d'administrateurs. 
 

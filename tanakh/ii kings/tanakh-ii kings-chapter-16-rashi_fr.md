@@ -40,7 +40,7 @@
 
 ### passuk 18
 <b>Le dais pour Chabbat.</b> Le toit d'une tente faite pour l'ombre,<sup>13</sup><i class="footnote">Alternativement, un bâtiment dans lequel le mishmar, c'est-à-dire la famille de <i>kohanim</i> qui avait servi pendant la semaine, restait jusqu'après Chabbat. Cela aussi, il l'a enlevé.-Radak</i> pour s'asseoir sous lui dans la cour [du Temple] le Chabbath.
-<b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beis Hamikdosh. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beis Hamikdosh.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
+<b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beit Hamikdash. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beit Hamikdash.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -85,7 +85,7 @@
 
 ### passuk 18
 <b>Le dais pour Chabbat.</b> Le toit d'une tente faite pour l'ombre,<sup>13</sup><i class="footnote">Alternativement, un bâtiment dans lequel le mishmar, c'est-à-dire la famille de <i>kohanim</i> qui avait servi pendant la semaine, restait jusqu'après Chabbat. Cela aussi, il l'a enlevé.-Radak</i> pour s'asseoir sous lui dans la cour [du Temple] le Chabbath.
-<b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beis Hamikdosh. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beis Hamikdosh.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
+<b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beit Hamikdash. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beit Hamikdash.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
 
 >Crédit : sefaris
 >Licence : CC-BY

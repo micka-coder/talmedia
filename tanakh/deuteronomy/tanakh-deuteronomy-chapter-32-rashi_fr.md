@@ -12,7 +12,7 @@
 <b>L'herbe.</b> Un seul brin s'intitule "herbe", et chaque espèce individuellement s'intitule "herbe". 
 
 ### passuk 3
-<b>Lorsque je prononce le nom d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Maintenant " כִּי " est utilisé pour désigner " quand ", comme dans " Quand tu arrives dans le pays ". Lorsque je fais une déclaration et que je mentionne le nom d'Hachem, vous devez attribuer la magnificence à notre Dieu et bénir son nom. De là, on déduit <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'on répond "Que le Nom de Son glorieux royaume soit béni" après une bénédiction dans le Beis Hamikdosh. 
+<b>Lorsque je prononce le nom d'Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Maintenant " כִּי " est utilisé pour désigner " quand ", comme dans " Quand tu arrives dans le pays ". Lorsque je fais une déclaration et que je mentionne le nom d'Hachem, vous devez attribuer la magnificence à notre Dieu et bénir son nom. De là, on déduit <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'on répond "Que le Nom de Son glorieux royaume soit béni" après une bénédiction dans le Beit Hamikdash. 
 
 ### passuk 4
 <b>Les œuvres du Tout-Puissant [lit. du Rocher] sont sans défaut.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Bien qu'Il soit tout-puissant, lorsqu'Il visite le châtiment de ceux qui ont défié Sa volonté, Il ne les submerge pas, mais agit avec justice, car Ses œuvres sont sans défaut. 

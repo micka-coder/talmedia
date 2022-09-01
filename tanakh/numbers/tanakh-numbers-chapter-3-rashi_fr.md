@@ -101,7 +101,7 @@
 
 ### passuk 39
 <b>Ceux que Moshé et Aharon ont comptés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il y a des points sur [le mot] וְאַהֲרֹן, pour enseigner qu'il n'était pas inclus dans le comptage des Lévites. 
-<b>Vingt-deux mille.</b> En les comptant individuellement, on découvre cependant trois cents supplémentaires : les fils de Gershon, sept mille cinq cents ; les fils de Kehos, huit mille six cents ; les fils de Merori, six mille deux cents [d'où vingt-deux mille trois cents]. Pourquoi ne sont-ils pas inclus dans le reste pour racheter les premiers-nés, exemptant ainsi de rachat les deux cent soixante-treize premiers-nés qui se chevauchent ? Nos sages ont répondu, dans le Masehet Bechoros, que les trois cents Lévites étaient, eux-mêmes, des premiers-nés. Il suffisait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour qu'ils se libèrent de la rédemption. 
+<b>Vingt-deux mille.</b> En les comptant individuellement, on découvre cependant trois cents supplémentaires : les fils de Gershon, sept mille cinq cents ; les fils de Kehos, huit mille six cents ; les fils de Merari, six mille deux cents [d'où vingt-deux mille trois cents]. Pourquoi ne sont-ils pas inclus dans le reste pour racheter les premiers-nés, exemptant ainsi de rachat les deux cent soixante-treize premiers-nés qui se chevauchent ? Nos sages ont répondu, dans le Masehet Bechoros, que les trois cents Lévites étaient, eux-mêmes, des premiers-nés. Il suffisait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour qu'ils se libèrent de la rédemption. 
 
 ### passuk 40
 <b>Compter chaque premier-né mâle... à partir de l'âge d'un mois et plus.</b> Lorsqu'il (le nourrisson) ne peut plus être classé comme mort-né. 

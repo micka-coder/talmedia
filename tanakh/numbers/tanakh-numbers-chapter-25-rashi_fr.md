@@ -37,7 +37,7 @@
 ### passuk 10
 
 ### passuk 11
-Pinchas le fils d'Elozor, le fils d'Aharon le Cohen. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les tri es l'ont dénigré, [disant] 'Avez-vous vu ce fils de "Puti", dont le père de la mère engraissait des veaux pour le culte des idoles, et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui a assassiné le chef d'une tribu d'Israël ?'. C'est pourquoi l'Écriture fait remonter sa lignée à Aharon. 
+Pinchas le fils d'Elazar, le fils d'Aharon le Cohen. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les tri es l'ont dénigré, [disant] 'Avez-vous vu ce fils de "Puti", dont le père de la mère engraissait des veaux pour le culte des idoles, et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui a assassiné le chef d'une tribu d'Israël ?'. C'est pourquoi l'Écriture fait remonter sa lignée à Aharon. 
 <b>Par sa vengeance à mon égard.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Par sa vengeance à mon égard - par sa rage là où j'aurais dû être enragé. קִנְאָה désigne toujours quelqu'un <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>enflammé pour venger quelque chose. <i>Enportation,</i> "colère enflammée", en vieux français. 
 
 ### passuk 12

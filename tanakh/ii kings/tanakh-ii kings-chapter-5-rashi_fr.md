@@ -37,7 +37,7 @@
 
 ### passuk 11
 <b>"Voici, je pensais."</b> Je pensais que le prophète sortirait et parlerait avec moi, et verrait le mal.
-<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement, אֶל הַמָּקוֹם se réfère "au lieu où il adore Dieu, c'est-à-dire, vers le Beis Hamikdosh.-Ralbag</i>
+<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement, אֶל הַמָּקוֹם se réfère "au lieu où il adore Dieu, c'est-à-dire, vers le Beit Hamikdash.-Ralbag</i>
 
 ### passuk 12
 
@@ -129,7 +129,7 @@
 
 ### passuk 11
 <b>"Voici, je pensais."</b> Je pensais que le prophète sortirait et parlerait avec moi, et verrait le mal.
-<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement, אֶל הַמָּקוֹם se réfère "au lieu où il adore Dieu, c'est-à-dire, vers le Beis Hamikdosh.-Ralbag</i>
+<b>Et agiter sa main vers l'endroit.</b> De la <i>tzora'as</i>.<sup>7</sup><i class="footnote">Alternativement, אֶל הַמָּקוֹם se réfère "au lieu où il adore Dieu, c'est-à-dire, vers le Beit Hamikdash.-Ralbag</i>
 
 ### passuk 12
 

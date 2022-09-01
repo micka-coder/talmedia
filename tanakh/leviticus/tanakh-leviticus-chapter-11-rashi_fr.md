@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>À Moché et à Aharon.</b> Il dit à Moché <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de le dire à Aharon.
-<b>Pour leur dire.</b> Il [= Moshé] a dit qu'il [= Aharon] devait dire à Elozor et à Isomor. Ou bien est-ce qu'il [= Aharon] devait le dire à Israël ? Lorsque [le verset] dit : " Parle aux Bnei Israël ", il s'agit du commandement divin à Israël ; Comment dois-je alors interpréter [l'expression] " leur dire " ? Aux fils [d'Aharon], Elozor et Isomor. 
+<b>Pour leur dire.</b> Il [= Moshé] a dit qu'il [= Aharon] devait dire à Elazar et à Ithamar. Ou bien est-ce qu'il [= Aharon] devait le dire à Israël ? Lorsque [le verset] dit : " Parle aux Bnei Israël ", il s'agit du commandement divin à Israël ; Comment dois-je alors interpréter [l'expression] " leur dire " ? Aux fils [d'Aharon], Elazar et Ithamar. 
 
 ### passuk 2
 <b>Parlez aux Bnei Israël.</b> Il les a tous assimilés à des messagers pour ce commandement divin, car tous étaient semblables dans leur silence, et ont accepté le décret de Dieu avec amour. 

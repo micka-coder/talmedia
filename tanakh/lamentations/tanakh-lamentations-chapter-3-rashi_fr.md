@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Je suis l'homme qui a vu le tourment.</b> Yirmiyahou s'est lamenté en disant : "Je suis l'homme qui a vu le tourment", [c'est-à-dire] qui a vu le tourment plus que tous les prophètes qui ont prophétisé la destruction du Beis Hamikdosh, car le Beis Hamikdosh n'a pas été détruit de leur temps, mais il a été [détruit] de mon temps... 
+<b>Je suis l'homme qui a vu le tourment.</b> Yirmiyahou s'est lamenté en disant : "Je suis l'homme qui a vu le tourment", [c'est-à-dire] qui a vu le tourment plus que tous les prophètes qui ont prophétisé la destruction du Beit Hamikdash, car le Beit Hamikdash n'a pas été détruit de leur temps, mais il a été [détruit] de mon temps... 
 <b>Par la verge de sa fureur.</b> De Celui qui châtie et frappe, c'est-à-dire le Saint, Béni soit-Il.<sup>1</sup><i class="footnote">Alternativement, la verge de l'ennemi, c'est-à-dire que cette phrase revient à 'mon ennemi a anéanti', et comment, 'par la verge de sa fureur'. (Ibn Ezra) </i> 
 
 ### passuk 2

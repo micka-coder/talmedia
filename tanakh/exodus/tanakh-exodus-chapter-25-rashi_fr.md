@@ -36,7 +36,7 @@
 
 ### passuk 9
 <b>Selon tout ce que je vous montre -</b> ici, la forme du <i>mishkon.</i> Ce verset est lié au verset qui le précède : [c'est-à-dire] "Ils me feront un sanctuaire, selon tout ce que je te montre." 
-<b>Et c'est ainsi que vous le ferez -</b> dans les générations futures, au cas où l'un des récipients serait perdu ou lorsque vous ferez pour Moi les récipients pour la Maison éternelle (le <i>Beis Hamikdosh</i>), tels que les tables, les lampes, les lavabos et les supports [pour les lavabos] que Shlomo a fabriqués, alors faites-les selon les formes de ceux-ci. Si ce verset n'était pas lié [au verset] qui le précède alors il n'aurait <i>pas</i> dit וְכֵן תַּעֲשׂוּ mais, plutôt, כֵּן תַּעֲשׂוּ (sans le ו') et il aurait fait référence à la fabrication de la Tente de la Rencontre (i. e., le <i>Mishkon</i>) et de ses récipients [et non aux générations futures]. 
+<b>Et c'est ainsi que vous le ferez -</b> dans les générations futures, au cas où l'un des récipients serait perdu ou lorsque vous ferez pour Moi les récipients pour la Maison éternelle (le <i>Beit Hamikdash</i>), tels que les tables, les lampes, les lavabos et les supports [pour les lavabos] que Shlomo a fabriqués, alors faites-les selon les formes de ceux-ci. Si ce verset n'était pas lié [au verset] qui le précède alors il n'aurait <i>pas</i> dit וְכֵן תַּעֲשׂוּ mais, plutôt, כֵּן תַּעֲשׂוּ (sans le ו') et il aurait fait référence à la fabrication de la Tente de la Rencontre (i. e., le <i>Mishkon</i>) et de ses récipients [et non aux générations futures]. 
 
 ### passuk 10
 <b>Ils feront une arche -</b> semblable à des boîtes qui sont faites sans pieds - faite comme un coffre appelé <i>escrin</i> [en vieux français] qui repose sur son fond.

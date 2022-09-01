@@ -52,7 +52,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Après que le roi ait couché avec ses ancêtres.</b> Après la mort de son père Amatzyoh. On en déduit qu'Uzziyoh a régné du vivant de son père. Néanmoins, Eilas n'a été livré entre ses mains qu'après la mort de son père, car s'il n'a pas régné du vivant de son père, pourquoi était-il nécessaire de préciser : "après que le roi ait couché avec ses ancêtres" ? Et quand on compte les jours du Beis [Hamikdosh] selon les années des rois, si on ne soustrait pas ces quinze années, qui sont comptées pour Amatzyoh et Uzziyohu, on trouve qu'il a existé quatre cent vingt-cinq ans.<sup>8</sup><i class="footnote">Le Beis Hamikdosh s'est tenu 410 ans selon la Guemara dans Masehet Yoma 9a ; on arrive à ce chiffre en soustrayant ces 15 années de 425.</i>.
+<b>Après que le roi ait couché avec ses ancêtres.</b> Après la mort de son père Amatzyoh. On en déduit qu'Uzziyoh a régné du vivant de son père. Néanmoins, Eilas n'a été livré entre ses mains qu'après la mort de son père, car s'il n'a pas régné du vivant de son père, pourquoi était-il nécessaire de préciser : "après que le roi ait couché avec ses ancêtres" ? Et quand on compte les jours du Beis [Hamikdosh] selon les années des rois, si on ne soustrait pas ces quinze années, qui sont comptées pour Amatzyoh et Uzziyohu, on trouve qu'il a existé quatre cent vingt-cinq ans.<sup>8</sup><i class="footnote">Le Beit Hamikdash s'est tenu 410 ans selon la Guemara dans Masehet Yoma 9a ; on arrive à ce chiffre en soustrayant ces 15 années de 425.</i>.
 
 ### passuk 23
 
@@ -120,7 +120,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Après que le roi se soit couché avec ses ancêtres.</b> Après la mort de son père Amatzyoh. On en déduit qu'Uzziyoh a régné du vivant de son père. Néanmoins, Eilas n'a été livré entre ses mains qu'après la mort de son père, car s'il n'a pas régné du vivant de son père, pourquoi était-il nécessaire de préciser : "après que le roi ait couché avec ses ancêtres" ? Et quand on compte les jours du Beis [Hamikdosh] selon les années des rois, si on ne soustrait pas ces quinze années, qui sont comptées pour Amatzyoh et Uzziyohu, on trouve qu'il a existé quatre cent vingt-cinq ans.<sup>8</sup><i class="footnote">Le Beis Hamikdosh s'est tenu 410 ans selon la Guemara dans Masehet Yoma 9a ; on arrive à ce chiffre en soustrayant ces 15 années de 425.</i>.
+<b>Après que le roi se soit couché avec ses ancêtres.</b> Après la mort de son père Amatzyoh. On en déduit qu'Uzziyoh a régné du vivant de son père. Néanmoins, Eilas n'a été livré entre ses mains qu'après la mort de son père, car s'il n'a pas régné du vivant de son père, pourquoi était-il nécessaire de préciser : "après que le roi ait couché avec ses ancêtres" ? Et quand on compte les jours du Beis [Hamikdosh] selon les années des rois, si on ne soustrait pas ces quinze années, qui sont comptées pour Amatzyoh et Uzziyohu, on trouve qu'il a existé quatre cent vingt-cinq ans.<sup>8</sup><i class="footnote">Le Beit Hamikdash s'est tenu 410 ans selon la Guemara dans Masehet Yoma 9a ; on arrive à ce chiffre en soustrayant ces 15 années de 425.</i>.
 
 ### passuk 23
 

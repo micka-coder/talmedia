@@ -6,8 +6,8 @@
 <b>Est devenue comme une veuve.</b> Mais pas vraiment une veuve ; plutôt comme une femme dont le mari est parti à l'étranger et qui a l'intention de revenir vers elle.</sup>13</sup><i class="footnote">Voir Masehet Sanhedrin 104a. </i> 
 
 ### passuk 2
-<b>Elle pleure amèrement.</b> Elle pleure deux fois sur les deux destructions [du Beis Hamikdosh].<sup>14</sup><i class="footnote">Rashi explique la raison du double verbe בכו תבכה. Ou bien, Jérusalem pleure, et Dieu, pour ainsi dire, pleure aussi. (Yalkut Me'am Lo'ez) </i> 
-<b>Dans la nuit.</b> Car le Beis Hamikdosh était brûlé la nuit, comme le dit le maître : " à l'heure du soir, ils y mettent le feu. "<sup>15</sup><i class="footnote">Masehet Ta'anis 29a. </i> Une autre explication de "dans la nuit", [est que] la nuit des pleurs des espions le 9 Av a fait que cela leur arrive.<sup>16</sup><i class="footnote">Ibid. </i> Une autre explication de "dans la nuit", est que celui qui pleure la nuit, celui qui entend sa voix pleure avec lui.<sup>17</sup><i class="footnote">Masehet Sanhedrin 104b. </i> 
+<b>Elle pleure amèrement.</b> Elle pleure deux fois sur les deux destructions [du Beit Hamikdash].<sup>14</sup><i class="footnote">Rashi explique la raison du double verbe בכו תבכה. Ou bien, Jérusalem pleure, et Dieu, pour ainsi dire, pleure aussi. (Yalkut Me'am Lo'ez) </i> 
+<b>Dans la nuit.</b> Car le Beit Hamikdash était brûlé la nuit, comme le dit le maître : " à l'heure du soir, ils y mettent le feu. "<sup>15</sup><i class="footnote">Masehet Ta'anis 29a. </i> Une autre explication de "dans la nuit", [est que] la nuit des pleurs des espions le 9 Av a fait que cela leur arrive.<sup>16</sup><i class="footnote">Ibid. </i> Une autre explication de "dans la nuit", est que celui qui pleure la nuit, celui qui entend sa voix pleure avec lui.<sup>17</sup><i class="footnote">Masehet Sanhedrin 104b. </i> 
 <b>Sa larme sur la joue.</b> Parce qu'elle pleure constamment.</sup>18</sup><i class="footnote">Alternativement, sa douleur et sa souffrance étaient si intenses qu'elle n'a pas pris la peine d'essuyer ses larmes. (Yalkout Me'am Lo'ez) </i> 
 <b>Tous ses amis.</b> Ses amants.</sup>19</sup><i class="footnote">C'est-à-dire les prophètes qui n'ont prédit que son malheur. (Palgei Mayim) Alternativement, ses anciens alliés qui l'ont abandonnée dans son moment de crise. </i> 
 
@@ -20,7 +20,7 @@
 <b>Les barrières.</b> Les limites des champs et des vignes.</sup></sup><i class="footnote">D'où il n'y a aucun moyen de s'échapper. (Palgei Mayim) </i> Le Midrash Aggadah [explique qu'il s'agit des frontières du temps], c'est-à-dire entre le dix-sept de Tammuz et le neuf d'Av. 
 
 ### passuk 4
-<b>Visiteurs des fêtes.</b> Les personnes qui montaient [à Jérusalem] pour les fêtes.</sup>23</sup><i class="footnote">Alternativement, מועד fait référence au Beis Hamikdosh, c'est-à-dire 'par manque de visiteurs du Beis Hamikdosh'. </i> 
+<b>Visiteurs des fêtes.</b> Les personnes qui montaient [à Jérusalem] pour les fêtes.</sup>23</sup><i class="footnote">Alternativement, מועד fait référence au Beit Hamikdash, c'est-à-dire 'par manque de visiteurs du Beit Hamikdash'. </i> 
 <b>S'affliger.</b> Une expression de chagrin,</sup>24</sup><i class="footnote">Parce que les jeunes filles ne pouvaient plus sortir et se réjouir aux deux jours les plus joyeux de l'année, le quinze de Menachem Av et à Yom Kippour. Voir Masehet Ta'anis, Mishnah 4:8. </i> et il n'y a pas de radical [=שֹׁרֶשׁ mais le 'gimel' seul. 
 
 ### passuk 5
@@ -64,7 +64,7 @@
 
 ### passuk 14
 <b>Le joug de mes iniquités est enregistré dans Sa main.</b> Ce mot נִשְׂקַד n'a aucun équivalent dans l'Écriture, et dans la langue araméenne de la Pesikta, on appelle un aiguillon מַסְקָדָא, un aiguillon à bœuf. Et je dis que נִשְׂקַד est <i>pointé</i> en ancien français., [c'est-à-dire que] mes transgressions ont été pointées, tachées, marquées dans la main du Saint, Béni soit-Il, pour un souvenir ; leur nombre et leur rétribution n'ont pas été oubliés. 
-<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup>49</sup><i class="footnote">צואר [le cou] est symbolique du Beis Hamikdosh ; voir Rachi dans Bereishis 45:14. </i> [comme dans] le langage de la Mishna : "Nous ne pouvons (pas) entrelacer les cordes des châlits."<sup>50</sup><i class="footnote">Masehet Mo'ed Katan, Mishna 1:8. </i> 
+<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup>49</sup><i class="footnote">צואר [le cou] est symbolique du Beit Hamikdash ; voir Rachi dans Bereishis 45:14. </i> [comme dans] le langage de la Mishna : "Nous ne pouvons (pas) entrelacer les cordes des châlits."<sup>50</sup><i class="footnote">Masehet Mo'ed Katan, Mishna 1:8. </i> 
 
 ### passuk 15
 <b>Trampé.</b> Il a piétiné et foulé, une expression de, "pave, pave סֹלּוּ la route."<sup>51</sup><i class="footnote">Yeshayahuu 62:10. </i> 

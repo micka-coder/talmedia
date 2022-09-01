@@ -51,7 +51,7 @@
 
 ### passuk 16
 <b>Envoyé à Elazar.</b> Il a été chargé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de les porter : huile, encens et huile d'onction. L'offrande perpétuelle [quotidienne]. Sa responsabilité était de donner des ordres, d'exhorter [les autres], et de l'offrir [sur l'autel] lorsqu'ils campaient. 
-<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehos - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merori, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de נָשׂא . 
+<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehos - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merari, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de נָשׂא . 
 </i>
 
 ### passuk 17

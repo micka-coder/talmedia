@@ -25,7 +25,7 @@
 
 ### passuk 9
 <b>Trois génisses.</b> Trois génisses sont un symbole pour les trois taureaux : 1) le taureau offert à Yom Kippour ; 2) le taureau [offert] lorsque la loi est "cachée" au peuple ; et 3) la génisse dont le cou a été brisé.
-<b>Trois boucs.</b> Symbolique du bouc qui est offert à l'intérieur [du Beis Hamikdosh] ; et les boucs des sacrifices additionnels des fêtes ; et le bouc offert comme sacrifice pour le péché d'un individu.
+<b>Trois boucs.</b> Symbolique du bouc qui est offert à l'intérieur [du Beit Hamikdash] ; et les boucs des sacrifices additionnels des fêtes ; et le bouc offert comme sacrifice pour le péché d'un individu.
 <b>Et trois béliers.</b> [Symbolisant] 1) un sacrifice pour le péché [pour certaines offenses où la personne est] certaine [de les avoir commises] ; 2) un sacrifice pour le péché [où la personne est] en doute [si elle a commis ces offenses] ; et 3) une brebis apportée comme offrande individuelle pour le péché.
 <b>Une colombe et un jeune pigeon.</b> [Signification :] une tourterelle et un jeune pigeon.
 

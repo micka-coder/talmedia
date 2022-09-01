@@ -20,7 +20,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
+<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beit Hamikdash n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
 <b>Mais pour la restauration du Beis [Hamikdosh]</b> Si ce sera moins [que nécessaire], que ce soit moins, et si ce sera plus [que nécessaire], que ce soit laissé.
 
 ### passuk 9
@@ -95,7 +95,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beis Hamikdosh n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
+<b>Et maintenant, ne prenez pas l'argent.</b> Plus rien, et ne réparez pas le Beis [Hamikdosh] avec votre argent.<sup>6</sup><i class="footnote">Bien que le Beit Hamikdash n'ait que 155 ans à l'époque, il avait besoin de réparations importantes car Atalyoh et ses fils avaient fait des brèches dans son mur. Voir II Divrei Hayamim 24:7.-Radak</i>.
 <b>Mais pour la restauration du Beis [Hamikdosh]</b> Si ce sera moins [que nécessaire], que ce soit moins, et si ce sera plus [que nécessaire], que ce soit laissé.
 
 ### passuk 9

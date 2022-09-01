@@ -1,6 +1,6 @@
 
 ### michna 1
-A quel stade les olives deviennent-elles susceptibles d'être impures ? Lorsqu'elles exsudent l'humidité [produite] par [leur séjour dans] la cuve mais pas celle [produite alors qu'elles sont encore] dans le panier, ce sont les paroles de Bet Shammai. Rabbi Shimon dit : le temps minimum prescrit pour une exsudation correcte est de trois jours. Bet Hillel dit : dès que trois olives sont collées ensemble. Rabban Gamaliel dit : dès que leur préparation est terminée, et les sages sont d'accord avec son opinion.
+A quel stade les olives deviennent-elles susceptibles d'être impures ? Lorsqu'elles exsudent l'humidité [produite] par [leur séjour dans] la cuve mais pas celle [produite alors qu'elles sont encore] dans le panier, ce sont les paroles de Bet Shammai. Rabbi Shimon dit : le temps minimum prescrit pour une exsudation correcte est de trois jours. Bet Hillel disent : dès que trois olives sont collées ensemble. Rabban Gamaliel dit : dès que leur préparation est terminée, et les sages sont d'accord avec son opinion.
 
 ### michna 2
 S'il a fini de ramasser mais avait l'intention d'en acheter d'autres, ou s'il avait fini d'acheter mais avait l'intention d'en emprunter d'autres, ou si un temps de deuil, une fête de mariage ou un autre empêchement lui est arrivé, alors même si des zavim et des zavot les ont piétinés, ils restent purs. Si un liquide impur est tombé sur eux, seul l'endroit où il les a touchés devient impur. Tout liquide qui en sort est propre.
@@ -12,13 +12,13 @@ Lorsque leur préparation est terminée, ils sont susceptibles d'être impurs. S
 Celui qui a terminé [la cueillette de ses olives] et mis de côté un panier plein, qu'il le mette [dans le récipient] devant un prêtre, paroles de Rabbi Meir. Rabbi Juda dit : il doit lui remettre la clé immédiatement. Rabbi Shimon dit : dans les vingt-quatre heures.
 
 ### michna 5
-Celui qui a mis ses olives dans un panier pour les ramollir afin qu'elles soient faciles à presser, elles deviennent susceptibles d'être impures ; [S'il les a mises dans un panier] pour les ramollir afin qu'elles soient salées : Bet Shammai dit : ils deviennent susceptibles. Bet Hillel dit : elles ne deviennent pas susceptibles. Celui qui fend ses olives avec des mains non lavées, il les rend impures.
+Celui qui a mis ses olives dans un panier pour les ramollir afin qu'elles soient faciles à presser, elles deviennent susceptibles d'être impures ; [S'il les a mises dans un panier] pour les ramollir afin qu'elles soient salées : Bet Shammai disent : ils deviennent susceptibles. Bet Hillel disent : elles ne deviennent pas susceptibles. Celui qui fend ses olives avec des mains non lavées, il les rend impures.
 
 ### michna 6
 Si on met ses olives sur un toit pour les faire sécher, même si elles sont empilées jusqu'à la hauteur d'une coudée, elles ne deviennent pas susceptibles d'être impures. S'il les met dans la maison pour les putréfier, même s'il a l'intention de les monter sur le toit, ou s'il les met sur le toit pour qu'elles s'ouvrent afin d'être salées, elles deviennent susceptibles d'être impures. S'il les met dans la maison pendant qu'il sécurise son toit ou jusqu'à ce qu'il puisse les emmener ailleurs, elles ne deviennent pas susceptibles d'être impures.
 
 ### michna 7
-Si l'on veut prendre d'eux [une quantité suffisante pour] un pressage ou deux pressages : Bet Shammai dit : il peut gratter [ce qu'il demande] dans une condition d'impureté, mais il doit couvrir [ce qu'il prend] dans une condition de propreté. Bet Hillel dit : il peut aussi le recouvrir dans un état d'impureté. Rabbi Yose dit : il peut creuser [ce dont il a besoin] avec des haches métalliques et le porter au pressoir dans un état d'impureté.
+Si l'on veut prendre d'eux [une quantité suffisante pour] un pressage ou deux pressages : Bet Shammai disent : il peut gratter [ce qu'il demande] dans une condition d'impureté, mais il doit couvrir [ce qu'il prend] dans une condition de propreté. Bet Hillel disent : il peut aussi le recouvrir dans un état d'impureté. Rabbi Yose dit : il peut creuser [ce dont il a besoin] avec des haches métalliques et le porter au pressoir dans un état d'impureté.
 
 ### michna 8
 Si un sheretz [mort] a été trouvé dans les meules, seul l'endroit qu'il a touché devient impur. Mais si l'humidité coulait, tout devient impur. S'il a été trouvé sur les feuilles, on demandera aux hommes du pressoir s'ils peuvent dire : "Nous ne l'avons pas touché". Si elle a touché la masse [des olives], ne serait-ce que par la grosseur d'un grain d'orge, [la masse devient] impure.

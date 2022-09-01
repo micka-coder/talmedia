@@ -7,9 +7,9 @@
 <b>Rouge, parfaite.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Elle doit être parfaitement rouge. S'il avait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>deux poils noirs, il était disqualifié. 
 
 ### passuk 3
-<b>Elozor.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La <i>mitzvah</i> a été [effectuée] par l'assistant [<i>Cohen gadol</i>].
+<b>Elazar.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>La <i>mitzvah</i> a été [effectuée] par l'assistant [<i>Cohen gadol</i>].
 <b>En dehors du camp.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>En dehors des trois camps.
-<b>Il l'abattra en sa présence.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le roturier abat pendant qu'Elozor observe.
+<b>Il l'abattra en sa présence.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le roturier abat pendant qu'Elazar observe.
 
 ### passuk 4
 <b>Directement face à la Tente de la Rencontre.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il se tient à l'est de Jérusalem, et concentre son regard sur l'entrée du Sanctuaire lorsqu'il asperge le sang. 
@@ -73,7 +73,7 @@
 <b>Rouge.</b> Pour correspondre à "S'ils [vos péchés] sont aussi rouges que la pourpre. . ." Le péché est décrit comme étant rouge.
 <b>Parfait.</b> Pour correspondre aux Israélites, qui étaient parfaits, mais qui ont ensuite été souillés par lui. Cette [offrande] viendra expier pour eux, et ils retrouveront leur perfection. 
 <b>Sur lequel aucun joug n'a été posé.</b> Tout comme ils ont écarté le joug du Ciel.
-<b>À Elozor le Cohen.</b> Tout comme ils se sont rassemblés contre Aharon, le <i>Cohen, [et l'ont forcé] à construire le veau. Et comme Aharon a construit le veau, ce service n'a pas été accompli par lui, car, l'accusateur ne peut pas servir de défenseur. </i>
+<b>À Elazar le Cohen.</b> Tout comme ils se sont rassemblés contre Aharon, le <i>Cohen, [et l'ont forcé] à construire le veau. Et comme Aharon a construit le veau, ce service n'a pas été accompli par lui, car, l'accusateur ne peut pas servir de défenseur. </i>
 <b>[Il] brûlera la vache.</b> Tout comme le veau a été brûlé.
 <b>Bois de cèdre, hysope et laine cramoisie.</b> Ces trois espèces correspondent aux trois mille hommes qui ont péri à cause du veau. Le cèdre est le plus haut de tous les arbres, l'hysope le plus bas de tous, signifiant que quelqu'un de hautain qui a péché par arrogance doit s'humilier comme l'hysope et le ver pour obtenir l'expiation. 
 <b>Un souvenir.</b> Tout comme la transgression du veau, qui est conservée à travers les générations pour être punie, car il n'y a pas de compte qui ne comprenne un compte pour le veau, comme il est dit : "au jour de mon compte, je tiendrai compte .... [le péché du veau], et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de même que le veau a souillé tous ceux qui y ont participé, de même la <i>parah</i> souille tous ceux qui y ont participé. De même qu'ils ont été purifiés avec ses cendres, comme il est dit : " il les a répandues sur l'eau, etc. ", de même " ils prendront, pour celui qui s'est souillé, de la poussière de l'holocauste pour le péché, [et placeront, sur elle, de l'eau de source "]. 

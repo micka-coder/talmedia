@@ -68,10 +68,10 @@
 <b>Et parce que tu as souffert.</b> Avec lui dans cette même affliction, comme il est dit : " car ils ont dit : le peuple a faim, il est fatigué et il a soif ; dans le désert. "<sup>13</sup><i class="footnote">II Shmuel 17:29.</i>
 
 ### passuk 27
-<b>Il avait parlé de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>Cohen</i> fidèle,"<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc."<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beis Hamikdosh sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyosor était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
+<b>Il avait parlé de la maison d'Eili.</b> [Comme il est dit,] "Et Je Me désignerai un <i>Cohen</i> fidèle,"<sup>14</sup><i class="footnote">I Shmuel 2:35.</i> [et] "et tu verras un rival dans Ma demeure, etc."<sup>15</sup><i class="footnote">Ibid. 2:32.</i> Une fois que [le Tabernacle de] Shilo a été détruit, il n'y avait plus de maison digne de servir le Saint Béni soit-Il, mais maintenant que le Beit Hamikdash sera construit, le Saint Béni soit-Il, a accompli Sa parole de bannir les descendants d'Eili.<sup>16</sup><i class="footnote">Evyatar était l'arrière arrière petit-fils d'Eili. Voir I Chmuel 14:3, 22:20.</i>
 
 ### passuk 28
-<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de David, qu'il avait ordonné de tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyosor.-Radak</i>. 
+<b>Et la nouvelle parvint à Yoav.</b> La nouvelle de la charge de David, qu'il avait ordonné de tuer, et il savait que Shlomo le détestait.<sup>17</sup><i class="footnote">C'est pourquoi Yoav craignait pour sa vie. Sinon, il a entendu parler de la mort d'Adoniyahou et du bannissement d'Evyatar.-Radak</i>. 
 <b>Parce que Yoav s'était rangé du côté d'Adoniyah, mais il ne s'était pas rangé du côté d'Avshalom.</b> A la fin de l'affaire, il a cependant cherché à se tourner vers lui, mais il craignait que des traces de David [la puissance de David] soient encore présentes.
 
 ### passuk 29

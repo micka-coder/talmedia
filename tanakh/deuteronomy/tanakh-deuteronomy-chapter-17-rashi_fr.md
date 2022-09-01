@@ -25,7 +25,7 @@
 <b>Entre la décision et la décision.</b> Entre une décision "non coupable", et une décision "coupable". 
 <b>Ou entre lèpre et lèpre.</b> Entre la lèpre rituellement impure, et la lèpre propre. 
 <b>Matières en litige.</b> Lorsque les sages de la ville ne sont pas d'accord sur la question, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>l'un trouvant qu'il est impur, l'autre qu'il est pur ; l'un statuant 'coupable', l'autre 'non coupable'. 
-<b>Vous vous lèverez et monterez.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que le Beis Hamikdosh était plus élevé que tous les autres lieux.
+<b>Vous vous lèverez et monterez.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que le Beit Hamikdash était plus élevé que tous les autres lieux.
 
 ### passuk 9
 <b>Les <i>kohanim</i> - les Lévites -</b> Les <i>kohanim,</i> qui descendent de la tribu de Lévi. 

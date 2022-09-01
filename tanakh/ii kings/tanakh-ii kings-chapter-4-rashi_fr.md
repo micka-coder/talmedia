@@ -124,7 +124,7 @@
 
 ### passuk 42
 <b>De Ba'al-Shalishah.</b> Le nom d'une province. Mais [le targum] Yonatanh a rendu : "du pays vers le sud". "בַּעַל" est une expression qui signifie "une plaine". Il y a beaucoup [d'expressions de ce genre] dans les Écritures.
-<b>Pain de la première récolte.</b> C'était pendant Pessah, quand le grain mûrit. <sup>32</sup><i class="footnote">Bien que le mot בִּכּוּרִים fasse généralement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beis Hamikdosh [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
+<b>Pain de la première récolte.</b> C'était pendant Pessah, quand le grain mûrit. <sup>32</sup><i class="footnote">Bien que le mot בִּכּוּרִים fasse généralement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beit Hamikdash [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
 <b>Dans leurs coquilles.</b> Dans son enveloppe.</sup>33</sup><i class="footnote">C'est-à-dire que les grains étaient encore dans leurs enveloppes. Alternativement, après que les grains aient été grillés et brisés, ils sont placés dans un récipient appelé צִקְלוֹן.-Ralbag </i>.
 <b>Au peuple.</b> Aux disciples [des prophètes] qu'il a soutenus.
 
@@ -258,7 +258,7 @@
 
 ### passuk 42
 <b>De Ba'al-Shalishah.</b> Le nom d'une province. Mais [le targum] Yonatanh a rendu : "du pays vers le sud". "בַּעַל" est une expression qui signifie "une plaine". Il y a beaucoup [d'expressions de ce genre] dans les Écritures.
-<b>Pain de la première récolte.</b> C'était pendant Pessah, quand le grain mûrit. <sup>32</sup><i class="footnote">Bien que le mot בִּכּוּרִים fasse généralement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beis Hamikdosh [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
+<b>Pain de la première récolte.</b> C'était pendant Pessah, quand le grain mûrit. <sup>32</sup><i class="footnote">Bien que le mot בִּכּוּרִים fasse généralement référence à l'offrande de la nouvelle récolte qui était apportée dans le Beit Hamikdash [voir Shemos 34:26], ici il signifie simplement "pain de la première récolte", sans référence à l'offrande de la nouvelle récolte.</i>
 <b>Dans leurs coquilles.</b> Dans son enveloppe.</sup>33</sup><i class="footnote">C'est-à-dire que les grains étaient encore dans leurs enveloppes. Alternativement, après que les grains aient été grillés et brisés, ils sont placés dans un récipient appelé צִקְלוֹן.-Ralbag </i>.
 <b>Au peuple.</b> Aux disciples [des prophètes] qu'il a soutenus.
 

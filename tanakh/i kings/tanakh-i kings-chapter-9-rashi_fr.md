@@ -5,7 +5,7 @@
 
 ### passuk 3
 <b>Et Mes yeux et Mon cœur seront.</b> [Targum] Yonatanh a rendu : "et Ma Présence Divine y demeurera si Ma volonté est faite."
-<b>Et mes yeux et mon cœur y seront.</b> Si mon cœur et ma volonté y sont.</sup>1</sup><i class="footnote">I.e., si Mon désir et Ma volonté sont suivis, Ma Présence Divine y sera.</i><sup>2</sup><i class="footnote">Même après la destruction du Beis Hamikdosh, la Présence Divine est restée sur le Mur occidental [כותל המערבי] du Beis Hamikdosh. Voir Shir Hashirim 2:9 et Midrash Rabboh là.</i>
+<b>Et mes yeux et mon cœur y seront.</b> Si mon cœur et ma volonté y sont.</sup>1</sup><i class="footnote">I.e., si Mon désir et Ma volonté sont suivis, Ma Présence Divine y sera.</i><sup>2</sup><i class="footnote">Même après la destruction du Beit Hamikdash, la Présence Divine est restée sur le Mur occidental [כותל המערבי] du Beit Hamikdash. Voir Shir Hashirim 2:9 et Midrash Rabboh là.</i>
 
 ### passuk 4
 
@@ -18,14 +18,14 @@
 <b>Et une moquerie.</b> Comme le Targum [Yonatanh a rendu], ולשועי, [c'est-à-dire, ils raconteront les maux qui les ont frappés et se moqueront d'eux, comme dans "ויספר [=et il raconta," que le Targum a rendu] ואשתעי. L'expression "שנינה" est aussi une expression de parole comme il est écrit [dans les Écritures], "et tu les répéteras [ושננתם] à tes enfants".
 
 ### passuk 8
-<b>Et ce Beis Hamikdosh sera très haut.</b> Tant que vous n'aurez pas péché ; mais dès que vous aurez péché, tous les passants seront stupéfaits et siffleront.<sup>4</sup><i class="footnote">Rashi comprend que יהיה est le futur, ce qui signifie "sera" très haut. Alternativement, יהיה peut aussi être interprété au présent, " est " le plus haut-Ralbag. Ou encore, יהיה עליון est interprété comme "sera détruit"."-Radak</i> Et de même, il est écrit dans le Divrei Hayamim, "Et ce Beis [Hamikdosh] qui a été exalté, tous ceux qui passent devant, etc, "<sup>5</sup><i class="footnote">II Divrei Hayamim 7:41.</i> et c'est son interprétation, "et cette maison qui a été exaltée et révérée même par les Gentils," comme il est dit plus haut, "Et même à l'étranger qui n'est pas de Ton peuple, etc, "<sup>6</sup><i class="footnote">I Melochim 8:21.</i> Mais, maintenant dans sa destruction, tous ceux qui passeront devant, même les Gentils, seront stupéfaits et siffleront, et diront que les péchés des Juifs en sont la cause.
+<b>Et ce Beit Hamikdash sera très haut.</b> Tant que vous n'aurez pas péché ; mais dès que vous aurez péché, tous les passants seront stupéfaits et siffleront.<sup>4</sup><i class="footnote">Rashi comprend que יהיה est le futur, ce qui signifie "sera" très haut. Alternativement, יהיה peut aussi être interprété au présent, " est " le plus haut-Ralbag. Ou encore, יהיה עליון est interprété comme "sera détruit"."-Radak</i> Et de même, il est écrit dans le Divrei Hayamim, "Et ce Beis [Hamikdosh] qui a été exalté, tous ceux qui passent devant, etc, "<sup>5</sup><i class="footnote">II Divrei Hayamim 7:41.</i> et c'est son interprétation, "et cette maison qui a été exaltée et révérée même par les Gentils," comme il est dit plus haut, "Et même à l'étranger qui n'est pas de Ton peuple, etc, "<sup>6</sup><i class="footnote">I Melochim 8:21.</i> Mais, maintenant dans sa destruction, tous ceux qui passeront devant, même les Gentils, seront stupéfaits et siffleront, et diront que les péchés des Juifs en sont la cause.
 <b>Seront stupéfaits.</b> [ישם signifie] "s'étonneront", comme dans "et tes ennemis en seront stupéfaits [ושמו],"<sup>7</sup><i class="footnote">Vayikra 26:32. </i> [et comme dans,] "Concernant son jour, les plus tardifs s'interrogeront [נשמו]."<sup>8</sup><i class="footnote">Iyov 18:20.</i>.
 <b>Et siffler.</b> <i>Siffler</i>, en ancien français. L'habitude de quiconque voit soudain la désolation, est de siffler.<sup>9</sup><i class="footnote">Lorsque les gens sont étonnés de ce qu'ils voient, ils sifflent souvent.</i>
 
 ### passuk 9
 
 ### passuk 10
-<b>Vingt ans.</b> C'est-à-dire sept ans [pour construire] le Beis Hamikdosh, et treize ans [pour construire] son propre palais, comme mentionné ci-dessus.<sup>10</sup><i class="footnote">Supérieur à 6:38 et 7:1.</i>
+<b>Vingt ans.</b> C'est-à-dire sept ans [pour construire] le Beit Hamikdash, et treize ans [pour construire] son propre palais, comme mentionné ci-dessus.<sup>10</sup><i class="footnote">Supérieur à 6:38 et 7:1.</i>
 
 ### passuk 11
 <b>Pourvu que Shlomo.</b> Expression de supporter, [c'est-à-dire] qu'il a supporté son fardeau dans cette affaire.
@@ -69,7 +69,7 @@
 <b>Le Millo.</b> Pour y construire des maisons pour ses serviteurs et servantes. A ce sujet, Yerovom l'admonesta [en disant] : "Ton père l'avait laissé ouvert pour les pèlerins de la fête, et tu l'as fermé pour en faire une force de travail pour la fille de Pharaon."<sup>20</sup><i class="footnote">Paraphraser ci-dessous 11:27. Voir Masehet Sanhedrin 101b et Rashi.</i> Et ce "mais" mentionné ici [signifie,] mais en cela Shlomo a péché, car il avait construit pour elle le Millo. C'est ce que j'ai entendu, mais je dis : " Mais alors la fille de Pharaon, etc, les villes mentionnées ci-dessus étaient nécessaires pour construire des villes magasins, des chars, des cavaliers et de la grandeur ; mais, le Millo, il ne l'a pas construit pour une quelconque grandeur, car son père l'avait laissé pour que les pèlerins de la fête y dressent leurs tentes, mais comme la fille de Pharaon était montée dans sa maison, et que le Millo était adjacent à cette maison, alors il a construit le Millo. <sup>21</sup><i class="footnote">Alternativement, la maison de la fille de Pharaon a été construite sur l'emplacement du Millo.-Radak</i>
 
 ### passuk 25
-<b>Sur l'autel.</b> C'est à dire l'autel du Beis Hamikdosh.
+<b>Sur l'autel.</b> C'est à dire l'autel du Beit Hamikdash.
 <b>Et il y brûla des [offrandes] d'encens.</b> Et [il brûla l'encens sur] l'autel des encens qui était devant Dieu pour la combustion des encens.</sup>22</sup><i class="footnote">Voir Shemos 30:1-10. </i>
 
 ### passuk 26

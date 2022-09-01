@@ -15,7 +15,7 @@ Si [son champ a été] semé [de céréales, de légumineuses ou de graines de j
 Son champ a été semé de cumin ou d'arum, il ne doit pas semer par-dessus, car ils ne produisent des récoltes qu'après trois ans. Il n'est pas obligé de sarcler un champ de céréales sur lequel a poussé du pastel, ou bien une aire de battage sur laquelle ont poussé de nombreuses espèces, ou bien un champ de trèfle sur lequel ont poussé plusieurs espèces d'herbes. Mais s'il a désherbé ou coupé les mauvaises herbes, on lui dit : "Il faut tout désherber, sauf une espèce. Â
 
 ### michna 6
-Celui qui veut aménager son champ en longues rangées droites, chacune semée d'une espèce différente : Bet Shammai dit : trois sillons de terre nouvellement défoncée. Mais Bet Hillel dit : la largeur d'un joug de Sharon. Et les mots de ceux-ci sont proches des mots de ceux-là.
+Celui qui veut aménager son champ en longues rangées droites, chacune semée d'une espèce différente : Bet Shammai disent : trois sillons de terre nouvellement défoncée. Mais Bet Hillel disent : la largeur d'un joug de Sharon. Et les mots de ceux-ci sont proches des mots de ceux-là.
 
 ### michna 7
 Si la pointe d'un angle d'un [champ] de blé chevauche un [champ] d'orge, cela est permis car cela ressemble à la fin de son champ. Si son [champ] est de blé, et que celui de son voisin est d'une autre espèce, il pourra semer [à côté de la frontière] de la même espèce [que celle de son voisin]. Si son champ était de blé et que celui de son voisin était de blé, il pourra semer à côté de lui un rang de lin, mais pas un rang d'une autre espèce. Rabbi Shimon dit : c'est tout de même qu'il sème du lin ou toute autre espèce. Rabbi Yose dit : même au milieu de son champ, il est permis de vérifier son champ avec un rang de lin.

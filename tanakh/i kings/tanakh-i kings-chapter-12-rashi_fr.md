@@ -32,7 +32,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Vois ta maison.</b> Le Beis Hamikdosh que tu as construit sera pour toi seul.</sup></sup><i class="footnote">Alternativement, "vois qui reste avec toi" et règne sur eux, car tu ne régneras pas sur Israël dans son ensemble.</b> -Radak</i>
+<b>Vois ta maison.</b> Le Beit Hamikdash que tu as construit sera pour toi seul.</sup></sup><i class="footnote">Alternativement, "vois qui reste avec toi" et règne sur eux, car tu ne régneras pas sur Israël dans son ensemble.</b> -Radak</i>
 
 ### passuk 17
 

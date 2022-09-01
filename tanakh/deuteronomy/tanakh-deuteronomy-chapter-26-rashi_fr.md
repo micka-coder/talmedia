@@ -29,7 +29,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>À cet endroit.</b> Cela fait référence au Beis Hamikdosh.
+<b>À cet endroit.</b> Cela fait référence au Beit Hamikdash.
 <b>Et Il nous a donné cette terre.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme indiqué par la connotation ordinaire.
 
 ### passuk 10

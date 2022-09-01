@@ -78,7 +78,7 @@
 <b>Dans leurs pièges.</b> Dans les fosses qu'ils ont creusées.
 
 ### passuk 21
-<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé la destruction du second Beis Hamikdosh que les Romains détruiraient.<sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Jérusalem et s'est réjoui de la destruction du premier Beis Hamikdosh, comme il est dit "Souviens-toi, Hachem, pour la progéniture d'Edom... qui dit 'Détruis ! Détruisez ! " etc..., dans Tehilim 137:7. </i> 
+<b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé la destruction du second Beit Hamikdash que les Romains détruiraient.<sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Jérusalem et s'est réjoui de la destruction du premier Beit Hamikdash, comme il est dit "Souviens-toi, Hachem, pour la progéniture d'Edom... qui dit 'Détruis ! Détruisez ! " etc..., dans Tehilim 137:7. </i> 
 <b>Réjouissez-vous dans l'allégresse.</b> Pour le moment, mais finalement, la coupe du châtiment passera aussi sur vous, et vous vous enivrerez. 
 <b>Jusqu'à ce que tu vomisses.</b> Et tu vomiras, comme dans "et elle vida וַתְּעַר sa cruche."<sup>30</sup><i class="footnote">Bereishis 24:20. </i> 
 

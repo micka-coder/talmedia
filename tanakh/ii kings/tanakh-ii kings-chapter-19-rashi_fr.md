@@ -53,9 +53,9 @@
 ### passuk 22
 
 ### passuk 23
-<b>Les plus hautes montagnes.</b> [Cela fait référence au] Mont du Temple.</sup></sup><i class="footnote">Les sacrifices qui sont offerts dans le Beis Hamikdosh expient les péchés et les "blanchissent". Le verset de Yeshayahu 1:18 dit : "Si vos péchés sont comme l'écarlate, ils deviendront blancs [=ילבינו] comme la neige." Voir Masehet Gittin 56b et Rachi à cet endroit.</i>
-<b>Jusqu'à la fin du Levanon.</b> [Cela fait référence au] Beis Hamikdosh qui blanchit [=מלבן] les péchés.</sup>8</sup><i class="footnote">Alternativement "ses plus grands cèdres [arbres]" fait référence aux grands leaders et nobles parmi les Bnei Israël.-Radak Voir Rachi dans Bamidbar 13:20.</i>
-<b>Et j'abattrai ses [arbres] de cèdre les plus hauts.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée" fait référence au Beis Hamikdosh qui est le lieu d'hébergement de la Shechinah.-Radak</i>
+<b>Les plus hautes montagnes.</b> [Cela fait référence au] Mont du Temple.</sup></sup><i class="footnote">Les sacrifices qui sont offerts dans le Beit Hamikdash expient les péchés et les "blanchissent". Le verset de Yeshayahu 1:18 dit : "Si vos péchés sont comme l'écarlate, ils deviendront blancs [=ילבינו] comme la neige." Voir Masehet Gittin 56b et Rachi à cet endroit.</i>
+<b>Jusqu'à la fin du Levanon.</b> [Cela fait référence au] Beit Hamikdash qui blanchit [=מלבן] les péchés.</sup>8</sup><i class="footnote">Alternativement "ses plus grands cèdres [arbres]" fait référence aux grands leaders et nobles parmi les Bnei Israël.-Radak Voir Rachi dans Bamidbar 13:20.</i>
+<b>Et j'abattrai ses [arbres] de cèdre les plus hauts.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée" fait référence au Beit Hamikdash qui est le lieu d'hébergement de la Shechinah.-Radak</i>
 <b>Remotest.</b> Sa fin.<sup>10</sup><i class="footnote">C'est-à-dire que son armée est si vaste qu'elle boit toute l'eau disponible, il a donc dû creuser et chercher d'autres sources d'eau.-Radak</i>.
 <b>Sa forêt féconde.</b> La plénitude de ses terres et la beauté de sa splendeur.
 
@@ -170,9 +170,9 @@
 ### passuk 22
 
 ### passuk 23
-<b>Les plus hautes montagnes.</b> [Cela fait référence au] Mont du Temple.</sup></sup><i class="footnote">Les sacrifices qui sont offerts dans le Beis Hamikdosh expient les péchés et les "blanchissent". Le verset de Yeshayahu 1:18 dit : "Si vos péchés sont comme l'écarlate, ils deviendront blancs [=ילבינו] comme la neige." Voir Masehet Gittin 56b et Rachi à cet endroit.</i>
-<b>Jusqu'à la fin du Levanon.</b> [Cela fait référence au] Beis Hamikdosh qui blanchit [=מלבן] les péchés.</sup>8</sup><i class="footnote">Alternativement "ses plus grands cèdres [arbres]" fait référence aux grands leaders et nobles parmi les Bnei Israël.-Radak Voir Rachi dans Bamidbar 13:20.</i>
-<b>Et j'abattrai ses [arbres] de cèdre les plus hauts.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée" fait référence au Beis Hamikdosh qui est le lieu d'hébergement de la Shechinah.-Radak</i>
+<b>Les plus hautes montagnes.</b> [Cela fait référence au] Mont du Temple.</sup></sup><i class="footnote">Les sacrifices qui sont offerts dans le Beit Hamikdash expient les péchés et les "blanchissent". Le verset de Yeshayahu 1:18 dit : "Si vos péchés sont comme l'écarlate, ils deviendront blancs [=ילבינו] comme la neige." Voir Masehet Gittin 56b et Rachi à cet endroit.</i>
+<b>Jusqu'à la fin du Levanon.</b> [Cela fait référence au] Beit Hamikdash qui blanchit [=מלבן] les péchés.</sup>8</sup><i class="footnote">Alternativement "ses plus grands cèdres [arbres]" fait référence aux grands leaders et nobles parmi les Bnei Israël.-Radak Voir Rachi dans Bamidbar 13:20.</i>
+<b>Et j'abattrai ses [arbres] de cèdre les plus hauts.</b> Je ne reviendrai pas avant de l'avoir détruit.</sup>9</sup><i class="footnote">"Sa loge la plus éloignée" fait référence au Beit Hamikdash qui est le lieu d'hébergement de la Shechinah.-Radak</i>
 <b>Remotest.</b> Sa fin.<sup>10</sup><i class="footnote">C'est-à-dire que son armée est si vaste qu'elle boit toute l'eau disponible, il a donc dû creuser et chercher d'autres sources d'eau.-Radak</i>.
 <b>Sa forêt féconde.</b> La plénitude de ses terres et la beauté de sa splendeur.
 
