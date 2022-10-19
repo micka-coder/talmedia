@@ -79,7 +79,7 @@
 ### passuk 23
 <b>Un gâteau de pain - </b>des pains (ci-dessus v. 2).
 <b>Et une miche de pain huilé -</b> du genre échaudé.
-<b>Et une galette -</b> des galettes ; une chacune sur les dix de chaque sorte. Nous ne trouvons nulle part qu'une <i>terumah</i> de pain apportée avec un <i>korbon,</i> animal soit brûlée [sur l'autel], sauf pour celle-ci, car la <i>terumah</i> des pains d'une offrande d'action de grâce, et d'un bélier apporté par un <i>Nazir,</i> était donnée aux <i>kohanim</i> avec la poitrine et l'épaule, alors que de celle-ci, Moshé n'a reçu comme portion que la poitrine seule. 
+<b>Et une galette -</b> des galettes ; une chacune sur les dix de chaque sorte. Nous ne trouvons nulle part qu'une <i>teroumah</i> de pain apportée avec un <i>korbon,</i> animal soit brûlée [sur l'autel], sauf pour celle-ci, car la <i>teroumah</i> des pains d'une offrande d'action de grâce, et d'un bélier apporté par un <i>Nazir,</i> était donnée aux <i>kohanim</i> avec la poitrine et l'épaule, alors que de celle-ci, Moshé n'a reçu comme portion que la poitrine seule. 
 
 ### passuk 24
 <b>Sur les mains d'Aharon, etc. et tu agiteras.</b> Tous deux participaient à l'agitation - le "propriétaire" et le <i>Cohen.</i> Comment cela se fait-il ? Le <i>Cohen</i> place sa main sous la main du "propriétaire" et l'agite. Dans ce cas, Aharon et ses fils étaient les "propriétaires", et Moshé [était] le <i>Cohen.</i> 
@@ -94,13 +94,13 @@
 ### passuk 26
 
 ### passuk 27
-<b>Sanctifier la poitrine de l'offrande d'agitation et l'épaule de l'offrande de terumah.</b> [Par l'accomplissement de ce qui est énoncé ici] vous les sanctifiez (c'est-à-dire ces portions) pour les générations afin que l'on continue à pratiquer les <i>terumos</i> et l'agitation de la poitrine et de l'épaule des שְׁלָמִים -offrandes. Cependant, pas dans la mesure où il s'agit de les brûler mais, au contraire : "Ils seront à la disposition d'Aharon et de ses fils" pour être mangés. 
+<b>Sanctifier la poitrine de l'offrande d'agitation et l'épaule de l'offrande de teroumah.</b> [Par l'accomplissement de ce qui est énoncé ici] vous les sanctifiez (c'est-à-dire ces portions) pour les générations afin que l'on continue à pratiquer les <i>terumos</i> et l'agitation de la poitrine et de l'épaule des שְׁלָמִים -offrandes. Cependant, pas dans la mesure où il s'agit de les brûler mais, au contraire : "Ils seront à la disposition d'Aharon et de ses fils" pour être mangés. 
 <b>Une offrande ondulée.</b> [תְּנוּפָה est] un terme désignant un mouvement de va-et-vient <i>wenteler</i> (mouvement horizontal) en ancien français.
 <b>Uplifié.</b> [הוּרם est] un terme désignant un mouvement de haut en bas.
 
 ### passuk 28
 <b>Par statut à jamais des B'nei Yisrael -</b> que les שְׁלָמִים -offrandes à aller aux "propriétaires" et que la poitrine et l'épaule soient données au <i>Cohen.</i>
-<b>Car c'est une offrande de terumah -</b> cette poitrine et cette épaule.
+<b>Car c'est une offrande de teroumah -</b> cette poitrine et cette épaule.
 
 ### passuk 29
 <b>Son fils après lui.</b> [C'est-à-dire] celui qui le suit dans sa position exaltée.

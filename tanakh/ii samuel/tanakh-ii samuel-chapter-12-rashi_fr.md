@@ -75,7 +75,7 @@
 ### passuk 31
 <b>Ustensiles en forme de scie, ustensiles de battage en fer et haches en fer.</b> Ce sont des types de tortures.
 <b>Ustensiles en forme de scie.</b> Un couteau dentelé avec de nombreux bords [tranchants] pliés les uns vers les autres.
-<b>Ustensiles de battage.</b> Il s'agit d'une scie dentelée pleine de coupures comme "de nombreux bords tranchants"<sup>12</sup><i class="footnote">Shmuel I, 13:21.</i> que l'on appelle laime (O.F.).
+<b>Ustensiles de battage.</b> Il s'agit d'une scie dentelée pleine de coupures comme "de nombreux bords tranchants"<sup>12</sup><i class="footnote">Shmuel I, 13:21.</i> que l'on appelle laime (ancien français).
 <b>Les rues.</b> Dans la boue des rues et c'est pourquoi Yonason a [aussi] traduit : "Il les traîna dans les rues".
 
 >Crédit : sefaris
@@ -156,7 +156,7 @@
 ### passuk 31
 <b>Ustensiles en forme de scie, ustensiles de battage en fer et haches en fer.</b> Ce sont des types de tortures.
 <b>Ustensiles en forme de scie.</b> Un couteau dentelé avec de nombreux bords [tranchants] pliés les uns vers les autres.
-<b>Ustensiles de battage.</b> Il s'agit d'une scie dentelée pleine de coupures comme "de nombreux bords tranchants"<sup>12</sup><i class="footnote">Shmuel I, 13:21.</i> que l'on appelle laime (O.F.).
+<b>Ustensiles de battage.</b> Il s'agit d'une scie dentelée pleine de coupures comme "de nombreux bords tranchants"<sup>12</sup><i class="footnote">Shmuel I, 13:21.</i> que l'on appelle laime (ancien français).
 <b>Les rues.</b> Dans la boue des rues et c'est pourquoi Yonason a [aussi] traduit : "Il les traîna dans les rues".
 
 >Crédit : sefaris

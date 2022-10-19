@@ -59,7 +59,7 @@
 <b>[Venu] à son secours.</b> Il l'a aidé dans sa prière comme cela est rapporté dans [le chapitre] Cheilek.<sup>23</sup><i class="footnote">Sanhedrin 95a.</i>.
 
 ### passuk 18
-<b>Il y eut encore une guerre.</b> Cette [guerre] est antérieure à toutes [celles mentionnées ici] et n'est relatée ici que pour combiner la mort des quatre fils d'Orpoh.
+<b>Il y eut encore une guerre.</b> Cette [guerre] est antérieure à toutes [celles mentionnées ici] et n'est relatée ici que pour combiner la mort des quatre fils d'Orpah.
 
 ### passuk 19
 <b>Elchonon.</b> David.<sup>24</sup><i class="footnote">Nous savons que c'est David qui a tué Golias dans Shmuel I, 17:51, par conséquent cet Elchonon doit être David.</i>
@@ -132,7 +132,7 @@
 <b>[Venu] à son secours.</b> Il l'a aidé dans sa prière comme cela est rapporté dans [le chapitre] Cheilek.<sup>23</sup><i class="footnote">Sanhedrin 95a.</i>.
 
 ### passuk 18
-<b>Il y eut encore une guerre.</b> Cette [guerre] est antérieure à toutes [celles mentionnées ici] et n'est relatée ici que pour combiner la mort des quatre fils d'Orpoh.
+<b>Il y eut encore une guerre.</b> Cette [guerre] est antérieure à toutes [celles mentionnées ici] et n'est relatée ici que pour combiner la mort des quatre fils d'Orpah.
 
 ### passuk 19
 <b>Elchonon.</b> David.<sup>24</sup><i class="footnote">Nous savons que c'est David qui a tué Golias dans Shmuel I, 17:51, par conséquent cet Elchonon doit être David.</i>

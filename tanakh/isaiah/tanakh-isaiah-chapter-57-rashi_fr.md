@@ -31,14 +31,14 @@
 <b>En face de ceux-ci, pourrais-je renoncer</b> à te faire du mal ?
 
 ### passuk 7
-<b>Tu as placé ton divan</b> Le divan de ton adultère à l'idolâtrie sur les hautes montagnes.
+<b>Tu as placé ton lit</b> Le lit de ton adultère à l'idolâtrie sur les hautes montagnes.
 
 ### passuk 8
 <b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cœur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
 <b>Pendant que tu étais avec moi, tu nous as découverts et tu es monté</b> Tu étais couché à côté de moi, et tu as enlevé la couverture dont nous étions couverts ensemble, et tu es monté à côté de moi.
-<b>Tu as élargi ton divan</b> pour accueillir de nombreux adultères.
+<b>Tu as élargi ton lit</b> pour accueillir de nombreux adultères.
 <b>Tu as fait pour toi</b> une alliance avec eux.
-<b>Tu as aimé leur divan</b> quand tu t'es choisi יָד, un lieu, pour leur démontrer ton amour.
+<b>Tu as aimé leur lit</b> quand tu t'es choisi יָד, un lieu, pour leur démontrer ton amour.
 <b>Un lieu</b> Heb. יָד, aise ou ajjse en ancien français., un côté. Comp. (II Sam. 14 : 30) "Voyez le champ de Joab est près du mien (עַל יָדִי)."
 
 ### passuk 9
@@ -132,14 +132,14 @@
 <b>En face de ceux-ci, pourrais-je renoncer</b> à te faire du mal ?
 
 ### passuk 7
-<b>Tu as placé ton divan</b> Le divan de ton adultère à l'idolâtrie sur les hautes montagnes.
+<b>Tu as placé ton lit</b> Le lit de ton adultère à l'idolâtrie sur les hautes montagnes.
 
 ### passuk 8
 <b>Et derrière la porte et le montant de la porte tu as dirigé tes pensées</b> Puisqu'il la compare à une femme adultère, pour laquelle ses amants regardent et attendent devant la porte de sa maison, tandis qu'elle, couchée à côté de son mari, dirige son cœur et ses pensées vers la porte et le montant de la porte, comment elle ouvrira la porte et sortira vers eux.
 <b>Pendant que tu étais avec moi, tu nous as découverts et tu es monté</b> Tu étais couché à côté de moi, et tu as enlevé la couverture dont nous étions couverts ensemble, et tu es monté à côté de moi.
-<b>Tu as élargi ton divan</b> pour accueillir de nombreux adultères.
+<b>Tu as élargi ton lit</b> pour accueillir de nombreux adultères.
 <b>Tu as fait pour toi</b> une alliance avec eux.
-<b>Tu as aimé leur divan</b> quand tu t'es choisi יָד, un lieu, pour leur démontrer ton amour.
+<b>Tu as aimé leur lit</b> quand tu t'es choisi יָד, un lieu, pour leur démontrer ton amour.
 <b>Un lieu</b> Heb. יָד, aise ou ajjse en ancien français., un côté. Comp. (II Sam. 14 : 30) "Voyez le champ de Joab est près du mien (עַל יָדִי)."
 
 ### passuk 9

@@ -71,7 +71,7 @@
 
 ### passuk 21
 <b>Dès [le temps de] sa jeunesse.</b> Il est écrit מִנְּעֻרָיו [sans ו' après le ע'] [ce qui implique que] dès qu'il commence à remuer pour sortir du ventre de sa mère, le mauvais penchant lui est donné.
-<b>Jamais plus, jamais plus.</b> L'expression est répétée [de sorte qu'elle sert] de serment. C'est la référence dans le verset : "Que j'ai juré que l'eau de Noach ne passera pas", et nous ne trouvons aucun [autre] serment que celui qui a été répété et qui est [considéré] comme un serment. Ainsi, les Sages ont expliqué dans Masehet Shavuos. 
+<b>Jamais plus, jamais plus.</b> L'expression est répétée [de sorte qu'elle sert] de serment. C'est la référence dans le verset : "Que j'ai juré que l'eau de Noach ne passera pas", et nous ne trouvons aucun [autre] serment que celui qui a été répété et qui est [considéré] comme un serment. Ainsi, les Sages ont expliqué dans Masehet Shavuot. 
 
 ### passuk 22
 <b>Aussi longtemps que la terre existe... ne sera jamais suspendue.</b> Chacune de ces six saisons a deux mois comme nous l'avons appris : "La moitié de Tishri, Cheshvan et la moitié de Kislev [est la saison des] semailles. La moitié de Kislev, Teves, et la moitié de Shevat est la saison froide dans Bava Metzia (Autres versions : "Tant que la [terre] existe" signifie "continuellement" comme dans "La souillure continue avec lui"). 

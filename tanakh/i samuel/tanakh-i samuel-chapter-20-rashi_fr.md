@@ -82,7 +82,7 @@
 
 ### passuk 25
 <b>Sur le siège contre le mur.</b> A la tête du canapé, près du mur.
-<b>Yonatanh se leva.</b> Il se leva de sa place, car il n'est pas convenable pour un fils de s'allonger à côté de son père;</sup>24</sup><i class="footnote">D'autres suggèrent que Yonatanh voulait garder ses distances avec Shaoul et que sa démonstration de respect n'était qu'une apparence.</i> leur habitude était de manger en s'allongeant sur des divans, et David s'allongeait entre Yonatanh et Shaoul. Maintenant que David n'est pas venu, Yonatanh ne s'est pas allongé jusqu'à ce qu'Avneir se soit assis à côté de Shaoul, et après, Yonatanh s'est assis à côté d'Avneir. Et si l'on dit qu'il ne s'est pas assis du tout, l'Écriture déclare : 'Et Yonatanh se leva de la table'<sup>25</sup><i class="footnote">Verset 34 ci-dessous.</i> ce qui implique qu'il s'était assis.
+<b>Yonatanh se leva.</b> Il se leva de sa place, car il n'est pas convenable pour un fils de s'allonger à côté de son père;</sup>24</sup><i class="footnote">D'autres suggèrent que Yonatanh voulait garder ses distances avec Shaoul et que sa démonstration de respect n'était qu'une apparence.</i> leur habitude était de manger en s'allongeant sur des lits, et David s'allongeait entre Yonatanh et Shaoul. Maintenant que David n'est pas venu, Yonatanh ne s'est pas allongé jusqu'à ce qu'Avneir se soit assis à côté de Shaoul, et après, Yonatanh s'est assis à côté d'Avneir. Et si l'on dit qu'il ne s'est pas assis du tout, l'Écriture déclare : 'Et Yonatanh se leva de la table'<sup>25</sup><i class="footnote">Verset 34 ci-dessous.</i> ce qui implique qu'il s'était assis.
 
 ### passuk 26
 <b>Il s'est passé quelque chose.</b> Il a expérimenté [une décharge de] sperme.

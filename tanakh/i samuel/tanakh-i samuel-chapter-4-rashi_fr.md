@@ -26,7 +26,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Un Binyaminite.</b> Il s'agissait de Shaoul,</sup>5</sup><i class="footnote">Si l'Ecriture ne révèle pas qu'il s'agissait de Shaoul, c'est peut-être pour protéger l'honneur de sa royauté, étant donné qu'il était en partie responsable de la mort d'Eili.-Da'at Sofrim</i> qui a saisi les Tablettes des mains de Golyas et s'est enfui.
+<b>Un Binyaminite.</b> Il s'agissait de Shaoul,</sup>5</sup><i class="footnote">Si l'Ecriture ne révèle pas qu'il s'agissait de Shaoul, c'est peut-être pour protéger l'honneur de sa royauté, étant donné qu'il était en partie responsable de la mort d'Eili.-Da'at Sofrim</i> qui a saisi les Tablettes des mains de Golyat et s'est enfui.
 
 ### passuk 13
 <b>Au bord de la route en regardant dehors.</b> Au bord de la route, il attendait anxieusement.</sup>6</sup><i class="footnote">Il voulait être situé à un endroit où un messager devrait passer devant lui en premier, et ainsi lui donner la nouvelle.</i>
@@ -45,7 +45,7 @@
 ### passuk 19
 <b>Donner naissance.</b> De toute évidence, [ce mot] signifie "donner naissance". Il n'existe pas de forme similaire [dans les Écritures]. Cependant, Menachem<sup>8</sup><i class="footnote">Menachem faisait autorité en matière de grammaire et est souvent cité par Rachi.</i> a placé ce verbe dans la section traitant du mot <span>יְלָלָה</span> 'gémir', parce que les douleurs de sa naissance l'ont atteinte avec des gémissements. La racine de '<span>יְלָלָה</span> est le '<span>ל</span> seul.
 <b>C'est arrivé soudainement.</b> Différent de ce qui se passe normalement, donc elle est morte.
-<b>Ses douleurs de travail.</b> [<span>צִרֶיהָ</span>=hinges], c'est-à-dire 'les charnières des portes de son ventre';<sup>9</sup><i class="footnote"> Voir Bechoros 45a.</i><i>chardonel</i> en ancien français
+<b>Ses douleurs de travail.</b> [<span>צִרֶיהָ</span>=charnières], c'est-à-dire 'les charnières des portes de son ventre';<sup>9</sup><i class="footnote"> Voir Bechoros 45a.</i><i>chardonel</i> en ancien français
 
 ### passuk 20
 

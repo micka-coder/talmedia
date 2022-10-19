@@ -13,7 +13,7 @@
 
 ### passuk 5
 <b>Ne permettez pas à votre bouche.</b> [En prononçant] un vœu.
-<b>Pour faire retomber la faute sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi, בשרך signifie enfants, comme dans "et ne te cache pas de ta famille [ומבשרך]", dans Yeshayahu 58:7. On peut aussi le comprendre littéralement, c'est-à-dire : ne laisse pas les vœux vains faits par ta bouche attirer le châtiment sur ta chair [= toi-même=בשרך]. Voir Masehet Shavuos 39a. </i> 
+<b>Pour faire retomber la faute sur ta chair.</b> Afin qu'Il visite l'iniquité sur tes enfants.</sup>3</sup><i class="footnote">Selon Rachi, בשרך signifie enfants, comme dans "et ne te cache pas de ta famille [ומבשרך]", dans Yeshayahu 58:7. On peut aussi le comprendre littéralement, c'est-à-dire : ne laisse pas les vœux vains faits par ta bouche attirer le châtiment sur ta chair [= toi-même=בשרך]. Voir Masehet Shavuot 39a. </i> 
 <b>Ne dis pas devant l'ange.</b> Le représentant qui vient exiger de vous la charité que vous avez promise publiquement.</sup>4</sup><i class="footnote">Alternativement, "un ange de Dieu" qui garde et enregistre toutes les paroles de l'homme (Ibn Ezra) ; ou מלאך désigne "un érudit de la Torah" qui est appelé à annuler des vœux. (Sforno) </i> 
 <b>C'était une erreur.</b> Je me suis engagé par erreur, je pensais que j'aurais la capacité de donner. 
 <b>Et détruira l'œuvre de tes mains.</b> [C'est-à-dire que] les commandements qui étaient dans tes mains, que tu avais déjà exécutés, les feront perdre [=détruire].<sup>5</sup><i class="footnote">Alternativement, מעשה ידיך désigne les "enfants" de celui qui ne remplit pas ses vœux, qui en meurent. </i> Elle est exposée de cette manière dans le Midrash. 

@@ -88,7 +88,7 @@
 ### passuk 24
 <b>Que la terre produise.</b> C'est ce que j'ai déjà expliqué que tout était en fait créé dès le premier jour et ne demandait qu'à être produit.
 <b>Les créatures vivantes.</b> Ce qui a en lui une âme vivante.
-<b>Les créatures rampantes. </b>Il s'agit des choses rampantes qui sont basses et rampent sur le sol et semblent se traîner car leur mouvement n'est pas discernable. Les mots רֶמֶשׂ et שֶׁרֶץ [sont traduits] dans notre langue [O.F.] <i>conmovres.</i>
+<b>Les créatures rampantes. </b>Il s'agit des choses rampantes qui sont basses et rampent sur le sol et semblent se traîner car leur mouvement n'est pas discernable. Les mots רֶמֶשׂ et שֶׁרֶץ [sont traduits] dans notre langue [ancien français] <i>conmovres.</i>
 
 ### passuk 25
 <b>Faits. </b> Il les a fait selon leur désir et leur taille complète.

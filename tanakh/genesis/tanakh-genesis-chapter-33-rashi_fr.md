@@ -42,7 +42,7 @@
 
 ### passuk 13
 <b>Avec moi sont allaités.</b> [Signification :] les moutons et les bovins qui sont allaités, sont ma responsabilité de les conduire lentement. 
-<b>Allaitement.</b> [Ainsi appelé parce que] ils élèvent leurs petits, [עָלוֹת est] de la même racine que. עוֹלֵל וְיוֹנֵק - "Les jeunes et les nourrissons", [ou] עוּל יָמִים - "Un nourrisson de quelques jours seulement", [ou] שְׁתֵּי פָרוֹת עָלוֹת - "Deux vaches qui allaitent". Dans O.F. <i>enfanteis</i>. 
+<b>Allaitement.</b> [Ainsi appelé parce que] ils élèvent leurs petits, [עָלוֹת est] de la même racine que. עוֹלֵל וְיוֹנֵק - "Les jeunes et les nourrissons", [ou] עוּל יָמִים - "Un nourrisson de quelques jours seulement", [ou] שְׁתֵּי פָרוֹת עָלוֹת - "Deux vaches qui allaitent". En ancien français <i>enfanteis</i>. 
 <b>S'ils sont conduits durement pendant [même] un jour.</b> Les épuiser en les pressant et provoquer ainsi la mort de tous les moutons.
 <b>S'ils sont conduits.</b> Comme dans "Le bruit de mon bien-aimé frappe", [c'est-à-dire :] frapper à la porte. 
 

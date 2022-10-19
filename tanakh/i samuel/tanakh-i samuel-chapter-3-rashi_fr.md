@@ -27,7 +27,7 @@
 <b>Et Shmuel dit : "Parle."</b> Il ne mentionna pas le nom de la divinité comme Eili le lui avait ordonné, parce qu'il se disait [à lui-même] : "Peut-être est-ce une autre voix.'<sup>10</sup><i class="footnote">Voir Masehet Chabbat 113b.</i>
 
 ### passuk 11
-<b>Faire quelque chose.</b> Cela fait référence à la capture de l'Arche par les Philistins.<sup>11</sup><i class="footnote">Egalement, cela peut faire référence à la destruction du Michkon à Shiloh qui a eu lieu après la capture de l'Arche.</i>
+<b>Faire quelque chose.</b> Cela fait référence à la capture de l'Arche par les Philistins.<sup>11</sup><i class="footnote">Egalement, cela peut faire référence à la destruction du Michkan à Shiloh qui a eu lieu après la capture de l'Arche.</i>
 <b>Sonneront.</b> Une expression similaire à [<span>צִלְצָלִים</span>, cymbales, <i>tintiner,</i> en ancien français
 
 ### passuk 12

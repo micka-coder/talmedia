@@ -22,7 +22,7 @@
 <b>A la jeune fille</b> - C'est-à-dire une jeune fille fiancée.
 
 ### passuk 8
-<b>Et ils se couchent sur des vêtements gagés</b> -<i>Jonathan</i> rend : Sur des divans de gage, ils dînent. Ils règlent [la charge comme] un prêt sur les pauvres. et ils prennent un gage d'eux, et font de leurs vêtements des divans et s'allongent dessus au moment de leur repas.
+<b>Et ils se couchent sur des vêtements gagés</b> -<i>Jonathan</i> rend : Sur des lits de gage, ils dînent. Ils règlent [la charge comme] un prêt sur les pauvres. et ils prennent un gage d'eux, et font de leurs vêtements des lits et s'allongent dessus au moment de leur repas.
 <b>ils s'allongent</b> - Une expression de manger, car tous leurs repas étaient pris en s'appuyant, car il s'appuyait sur son côté gauche.
 <b>Et le vin des amendés</b> - à qui ils demandaient de l'argent pour les amendes et buvaient du vin avec.
 <b>Dans la maison de leur dieu</b> - Dans la maison de l'idole qu'ils avaient à côté de l'autel.

@@ -57,7 +57,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Si ce peuple monte, etc.</b> S'asseoir dans la cour du Temple n'est pas permis seulement pour les rois de la maison de David, par conséquent, il sera assis et je serai debout. De plus, [pendant Souccos] suivant l'année sabbatique, au moment de l'assemblée, c'est lui qui lira la section [du Devarim] relative au roi,<sup>4</sup><i class="footnote">Voir Mishnayos Sotah 7:8. </i> car il est le roi de sa province, alors que je serai [debout] comme le reste du peuple, et je serai, par conséquent, dégradé.<sup>5</sup><i class="footnote">Traité Sanhedrin 101b.</i>
+<b>Si ce peuple monte, etc.</b> S'asseoir dans la cour du Temple n'est pas permis seulement pour les rois de la maison de David, par conséquent, il sera assis et je serai debout. De plus, [pendant Souccot] suivant l'année sabbatique, au moment de l'assemblée, c'est lui qui lira la section [du Devarim] relative au roi,<sup>4</sup><i class="footnote">Voir Mishnayos Sotah 7:8. </i> car il est le roi de sa province, alors que je serai [debout] comme le reste du peuple, et je serai, par conséquent, dégradé.<sup>5</sup><i class="footnote">Traité Sanhedrin 101b.</i>
 
 ### passuk 28
 

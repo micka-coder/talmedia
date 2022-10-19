@@ -5,7 +5,7 @@
 <b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיך) est une expression de faire entrer. Vos noces (Noces en ancien français.). Quelle a été la bonté de ta jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, depuis un pays habité jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en Moi.
 
 ### passuk 3
-<b>Israël est saint</b> comme la terumah.
+<b>Israël est saint</b> comme la teroumah.
 <b>Le premier de ses grains</b> Comme le premier de la récolte avant l'Omer, qu'il est interdit de manger, et celui qui le mange est responsable, ainsi tous ceux qui le mangent seront coupables. C'est ainsi que Jonathan l'a rendu.
 
 ### passuk 4
@@ -164,7 +164,7 @@
 <b>Je me souviens de toi</b> Si tu revenais à moi, je désirerais avoir pitié de toi car je me souviens de la bonté de ta jeunesse et de l'amour des noces de ton dais de mariage, lorsque je t'ai fait entrer dans le dais de mariage, et ceci (כלולתיך) est une expression de faire entrer. Vos noces (Noces en ancien français.). Quelle a été la bonté de ta jeunesse ? Le fait que tu aies suivi mes messagers, Moïse et Aaron, depuis un pays habité jusqu'au désert, sans provisions pour le chemin, puisque tu as cru en Moi.
 
 ### passuk 3
-<b>Israël est saint</b> comme la terumah.
+<b>Israël est saint</b> comme la teroumah.
 <b>Le premier de ses grains</b> Comme le premier de la récolte avant l'Omer, qu'il est interdit de manger, et celui qui le mange est responsable, ainsi tous ceux qui le mangent seront coupables. C'est ainsi que Jonathan l'a rendu.
 
 ### passuk 4

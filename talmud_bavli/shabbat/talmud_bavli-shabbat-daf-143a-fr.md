@@ -39,7 +39,7 @@ La Guemara relate que <b>Shmuel</b> les <b>transportait avec le pain.</b> Les le
 <b>Rabba les déplaçait avec une cruche d'eau. Rav Huna, fils</b> de <b>Rav Yehoshua, leur rendrait un pot de chambre avec des excréments.</b> Les Sages ont permis de déplacer des récipients répugnants. Ici aussi, il ramassait tous les noyaux de dattes et les déplaçait ensuite car ils étaient répugnants. <b>Rav Ashi dit à Ameimar : Et peut-on créer un pot de chambre avec des excréments <i>ab initio</i>?</b> Bien que les Sages aient permis de déplacer un récipient d'excréments, ils n'ont pas permis d'en créer un <i>ab initio</i> pour qu'il soit permis de le déplacer.
 
 ### Partie 14
-<b>Rav Sheshet se débarrassait</b> des noyaux <b>avec sa langue. Rav Pappa les éliminait derrière le divan</b> sur lequel il s'asseyait en mangeant car il ne voulait pas les déplacer d'une autre manière. <b>On dit de Rabbi Zekharya ben Avkolas qu'il tournait son visage</b> vers l'<b>arrière du divan et les jetait.</b>
+<b>Rav Sheshet se débarrassait</b> des noyaux <b>avec sa langue. Rav Pappa les éliminait derrière le lit</b> sur lequel il s'asseyait en mangeant car il ne voulait pas les déplacer d'une autre manière. <b>On dit de Rabbi Zekharya ben Avkolas qu'il tournait son visage</b> vers l'<b>arrière du lit et les jetait.</b>
 
 >Crédit : William Davidson Edition
 >Licence : CC-BY-NC

@@ -18,7 +18,7 @@ Bet Shammai disent : un homme ne peut pas chauffer l'eau pour ses pieds à moins
 Dans trois cas, Rabban Gamaliel a été strict comme les paroles de Beth Shammai : On ne peut pas couvrir les aliments chauds le Yom Tov pour Shabbat ; et on ne peut pas joindre une lampe pendant une fête ; et on ne peut pas cuire [le Yom] des pains épais, mais seulement des gaufrettes. Rabban Gamaliel a dit : "De tous temps, la maison de mon père n'a jamais cuit de gros pains mais seulement des gaufres." Ils lui dirent : "Que pouvons-nous faire à l'égard de la maison de ton père, car ils étaient stricts à leur égard, mais ils étaient indulgents à l'égard d'Israël pour les laisser cuire de grands pains et même des pains grillés au charbon de bois. Â
 
 ### michna 7
-Il a également déclaré trois décisions de caractère indulgent : On peut balayer [lors d'une fête] entre les divans, et mettre des épices [sur les charbons] lors d'une fête ; et faire rètir un chevreau entier la nuit de Pessah. Mais les sages les interdisent.
+Il a également déclaré trois décisions de caractère indulgent : On peut balayer [lors d'une fête] entre les lits, et mettre des épices [sur les charbons] lors d'une fête ; et faire rètir un chevreau entier la nuit de Pessah. Mais les sages les interdisent.
 
 ### michna 8
 Rabbi Eleazar ben Azariah permet trois choses et les Sages les interdisent : Sa vache sortait avec la courroie qu'elle avait entre ses cornes ; On peut étriller le bétail lors d'une fête ; Et on peut moudre du poivre dans son propre moulin. Rabbi Judah dit : on ne peut pas étriller le bétail lors d'une fête, car cela pourrait causer une blessure, mais on peut le peigner. Mais les Sages disent : on ne peut pas les étriller, et on ne peut même pas les peigner.

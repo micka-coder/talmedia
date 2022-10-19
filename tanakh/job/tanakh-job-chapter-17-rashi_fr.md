@@ -48,7 +48,7 @@
 
 ### passuk 13
 <b>Puisque j'espère la tombe</b> Heb. אם, comme (ci-dessus 14:5), "Si (אם) ses jours sont limités" [Voir Rashi ad loc.], c'est-à-dire, puisque j'espère la tombe comme ma maison.
-<b>Dans les ténèbres, j'ai étalé mon divan</b> J'ai étalé mon divan dans la tombe.
+<b>Dans les ténèbres, j'ai étalé mon lit</b> J'ai étalé mon lit dans la tombe.
 
 ### passuk 14
 <b>A la fosse j'ai appelé : 'Tu es mon père'</b> pour y loger de nombreux jours comme si c'était mon père, puisque c'est là mon espoir.

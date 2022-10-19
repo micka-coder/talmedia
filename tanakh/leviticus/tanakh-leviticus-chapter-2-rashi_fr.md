@@ -49,7 +49,7 @@
 <b>Et tout le miel.</b> Tout <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>succulent [jus] d'un fruit est appelé "miel".
 
 ### passuk 12
-<b>Vous les apporterez comme première offrande [de fruits].</b> Que devez-vous apporter du levain et du miel ? Une première offrande [de fruits] - deux [miches] de pain de Shavuos qui proviennent du levain, comme il est dit : "sans levain, elles seront cuites" [ainsi que] des prémices du miel, comme les prémices de figues et de dattes. 
+<b>Vous les apporterez comme première offrande [de fruits].</b> Que devez-vous apporter du levain et du miel ? Une première offrande [de fruits] - deux [miches] de pain de Shavuot qui proviennent du levain, comme il est dit : "sans levain, elles seront cuites" [ainsi que] des prémices du miel, comme les prémices de figues et de dattes. 
 
 ### passuk 13
 <b>Sel, alliance.</b> En effet, une alliance a été conclue pour le sel dès les six jours de la création, lorsqu'il a été promis que les eaux inférieures seraient apportées sur l'autel sous forme de sel <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et l'offrande d'eau à Soukkos. 

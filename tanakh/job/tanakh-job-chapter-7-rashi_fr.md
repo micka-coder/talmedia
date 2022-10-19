@@ -43,7 +43,7 @@
 <b>ou un monstre marin</b> Un énorme poisson que Tu as emprisonné dans les profondeurs de la mer, pour que Tu places cet Adversaire comme gardien sur moi, pour me surveiller de peur que mon âme ne s'en aille ?
 
 ### passuk 13
-<b>que mon divan supporte ma parole</b> Le divan sur lequel je dors la nuit supportera quelque peu mon trouble, et je pourrai retenir ma parole.
+<b>que mon lit supporte ma parole</b> Le lit sur lequel je dors la nuit supportera quelque peu mon trouble, et je pourrai retenir ma parole.
 
 ### passuk 14
 

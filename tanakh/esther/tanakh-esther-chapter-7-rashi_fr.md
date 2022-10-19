@@ -19,8 +19,8 @@
 <b>Que ça finirait.</b> Le mal, la haine et la vengeance étaient décidés. 
 
 ### passuk 8
-<b>Haman était tombé.</b> L'ange le poussa.</sup></sup><i class="footnote">Ibid. La traduction littérale est "et Haman tombait", ce qui signifie qu'il essayait de se lever mais que l'ange continuait à le pousser sur le divan et dans une position compromettante, ce qui a rendu le roi encore plus furieux. </i> 
-<b>Sur le divan sur lequel Esther s'est allongée.</b> Leur coutume était de s'asseoir au repas [allongés] sur le côté sur des divans, comme il est dit au début du Livre, "des divans d'or et d'argent"<sup>4</sup><i class="note de bas de page">Supra 1:6. </i> pour ceux qui participaient à la fête. 
+<b>Haman était tombé.</b> L'ange le poussa.</sup></sup><i class="footnote">Ibid. La traduction littérale est "et Haman tombait", ce qui signifie qu'il essayait de se lever mais que l'ange continuait à le pousser sur le lit et dans une position compromettante, ce qui a rendu le roi encore plus furieux. </i> 
+<b>Sur le lit sur lequel Esther s'est allongée.</b> Leur coutume était de s'asseoir au repas [allongés] sur le côté sur des lits, comme il est dit au début du Livre, "des lits d'or et d'argent"<sup>4</sup><i class="note de bas de page">Supra 1:6. </i> pour ceux qui participaient à la fête. 
 <b>Jusqu'à dominer la reine.</b> C'est l'expression d'un émerveillement. לִכְבּוֹשׁ [dénote] soumettre par la force, comme dans "et le pays est conquis [וְנִכְבְּשָׁה]."<sup>5</sup><i class="footnote">Bamidbar 32:22. </i> 
 
 ### passuk 9

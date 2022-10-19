@@ -80,7 +80,7 @@
 <b>L'écran pour l'entrée.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le rideau oriental. 
 
 ### passuk 26
-<b>Qui sont au-dessus du Michkon.</b> Comme s'il avait été dit : " Les rideaux et l'écran de l'enceinte de la cour qui protègent et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> gardent au-dessus du <i>Mishkon... ". 
+<b>Qui sont au-dessus du Michkan.</b> Comme s'il avait été dit : " Les rideaux et l'écran de l'enceinte de la cour qui protègent et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> gardent au-dessus du <i>Mishkon... ". 
 et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> l'autel de cuivre de tous les côtés." 
 </i>
 <b>Et tout ce qui leur sera donné [lit. fait].</b> Comme le traduit le Targum [Onkelos], <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"tout ce qui leur sera donné" - aux fils de Gershon. 

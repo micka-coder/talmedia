@@ -65,7 +65,7 @@
 <b>L'avant-bras cuit.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir été cuit.
 
 ### passuk 20
-<b>Il est consacré au Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le pain, la galette et la patte avant sont <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>terumah</i>-cadeaux au <i>Cohen. </i>
+<b>Il est consacré au Cohen.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le pain, la galette et la patte avant sont <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i>teroumah</i>-cadeaux au <i>Cohen. </i>
 <b>A côté de la poitrine de l'offrande d'onde.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>A côté de la poitrine et de l'épaule qui lui sont dues de toutes les offrandes de paix, on ajoute aux offrandes de paix nazirites, cette patte antérieure. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que les sacrifices de paix nazirites ont été inclus dans un groupe, mais ensuite distingués de manière innovante, pour la consécration de l'avant-bras, l'Écriture doit les réintégrer dans le groupe et traiter, également, de la poitrine et de l'épaule. 
 
 ### passuk 21

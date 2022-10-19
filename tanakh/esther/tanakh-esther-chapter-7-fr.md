@@ -21,7 +21,7 @@ Cet homme, répliqua Esther, cruel et acharné; c’est ce méchant Aman que voi
 Le roi s’était dans sa colère, levé du festin pour gagner le parc du palais, tandis qu’Aman se redressa pour demander grâce de la vie à la reine Esther, car il voyait que sa perte était résolue par le roi.
 
 ### passuk 8
-Comme le roi revenait du parc du palais dans la salle du festin, [il vit] Aman qui s’était laissé tomber sur le divan occupé par Esther: « Comment, s’écria le roi, tu vas jusqu’à faire violence à la reine en ma présence, dans mon palais! » L’ordre en fut donné par le roi, et on voila le visage d’Aman.
+Comme le roi revenait du parc du palais dans la salle du festin, [il vit] Aman qui s’était laissé tomber sur le lit occupé par Esther: « Comment, s’écria le roi, tu vas jusqu’à faire violence à la reine en ma présence, dans mon palais! » L’ordre en fut donné par le roi, et on voila le visage d’Aman.
 
 ### passuk 9
 Alors Harbona, un des eunuques, dit devant le roi: « Ne voilà-t-il pas que la potence, préparée par Aman pour Mardochée, qui a parlé pour le salut du roi, se dresse dans la maison d’Aman, haute de cinquante coudées! Qu’on l’y pende! » s’écria le roi.

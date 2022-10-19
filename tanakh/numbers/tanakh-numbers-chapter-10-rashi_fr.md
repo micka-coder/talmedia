@@ -48,7 +48,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>Le Michkon fut démonté.</b> Lorsque la bannière de Yéhouda était en train de partir, Aharon et ses fils entrèrent, démontèrent les <i>paroches,</i> et en couvrirent l'Arche, comme il est dit : "Aharon et ses fils entreront lorsque le camp sera sur le point de partir." Les fils de Gershon et les fils de Merari ont démonté le <i>Mishkon</i> et l'ont chargé sur les chariots [et ont voyagé]. L'Arche et les vases sacrés transportés par les fils de Kehos restent couverts, placés sur des perches, jusqu'au départ de la bannière du camp de Reuven. Après quoi, "la famille de Kehos a voyagé". 
+<b>Le Michkan fut démonté.</b> Lorsque la bannière de Yéhouda était en train de partir, Aharon et ses fils entrèrent, démontèrent les <i>paroches,</i> et en couvrirent l'Arche, comme il est dit : "Aharon et ses fils entreront lorsque le camp sera sur le point de partir." Les fils de Gershon et les fils de Merari ont démonté le <i>Mishkon</i> et l'ont chargé sur les chariots [et ont voyagé]. L'Arche et les vases sacrés transportés par les fils de Kehos restent couverts, placés sur des perches, jusqu'au départ de la bannière du camp de Reuven. Après quoi, "la famille de Kehos a voyagé". 
 
 ### passuk 18
 
@@ -58,7 +58,7 @@
 
 ### passuk 21
 <b>Porteurs du sacré.</b> Porteurs des objets sacrés.
-<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merari, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehos voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merari érigeront le Sanctuaire, de sorte que lorsque les fils de Kehos arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. Tel est le sens du passage : "Ils - les <i>érecteurs du Michkon - l'ont érigé avant l'arrivée des fils de Kéhos". 
+<b>Ils érigeaient le Mishkon.</b> Les fils de Gershon et les fils de Merari, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui étaient précédés par <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le départ de deux bannières, érigeaient le <i>Mishkon</i> lorsque le Nuage se reposait. Le signal pour lever le camp fut observé par la bannière du camp de Yehouda. Ils campèrent tandis que les fils de Kehos voyageaient encore derrière avec les deux dernières bannières. Les fils de Gershon et les fils de Merari érigeront le Sanctuaire, de sorte que lorsque les fils de Kehos arriveront, ils le trouveront en place, et y apporteront l'Arche, la Table, la Ménorah et les Autels. Tel est le sens du passage : "Ils - les <i>érecteurs du Michkan - l'ont érigé avant l'arrivée des fils de Kéhos". 
 </i>
 
 ### passuk 22

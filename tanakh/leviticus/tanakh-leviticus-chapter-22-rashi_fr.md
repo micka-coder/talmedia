@@ -51,7 +51,7 @@
 <b>Aucun non-Cohen ne pourra en manger,</b> [cette répétition] ne vient que pour exclure un <i>onein</i> [de l'interdiction] - car il lui est permis [de manger] <i>terumoh</i>. Je vous ai dit : Un non-<i>Cohen</i> [est interdit de manger du <i>terumoh</i>], mais pas un <i>onein</i>. 
 
 ### passuk 14
-<b>Si un homme mange des choses saintes - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i></i></b><i>terumah</i>.
+<b>Si un homme mange des choses saintes - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><i></i></b><i>teroumah</i>.
 <b>Et donnez au Cohen la chose sainte.</b> Quelque chose qui est <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> apte à devenir saint - qu'il ne le paie pas en monnaie, mais en produit commun [c'est-à-dire non saint], qui devient <i>terumoh</i>. 
 
 ### passuk 15

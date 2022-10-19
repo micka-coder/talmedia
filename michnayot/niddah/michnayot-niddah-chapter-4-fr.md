@@ -1,6 +1,6 @@
 
 ### michna 1
-Les filles des Samaritains sont considérées comme des menstrues dès leur berceau. Et les Samaritains rendent impurs le dessous d'un lit comme le dessus d'une couverture, puisqu'ils ont des rapports sexuels avec des femmes en état de menstruation, car [leurs femmes] sont assises [impures pendant sept jours] à cause du sang. Cependant, à cause de leur [impureté], aucune obligation n'est encourue pour l'entrée dans le Temple et on ne brûle pas de terumah à cause d'eux, puisque leur impureté n'est que de nature douteuse.
+Les filles des Samaritains sont considérées comme des menstrues dès leur berceau. Et les Samaritains rendent impurs le dessous d'un lit comme le dessus d'une couverture, puisqu'ils ont des rapports sexuels avec des femmes en état de menstruation, car [leurs femmes] sont assises [impures pendant sept jours] à cause du sang. Cependant, à cause de leur [impureté], aucune obligation n'est encourue pour l'entrée dans le Temple et on ne brûle pas de teroumah à cause d'eux, puisque leur impureté n'est que de nature douteuse.
 
 ### michna 2
 Les filles des sadducéens, tant qu'elles ont l'habitude de marcher dans les sentiers de leurs pères, doivent être considérées comme des Samaritaines. Si elles ont quitté ces chemins pour marcher dans les chemins d'Israël, elles doivent être considérées comme des femmes israélites. Rabbi Yose dit : elles sont toujours considérées comme des femmes israélites, à moins qu'elles ne quittent les sentiers d'Israël pour marcher dans les sentiers de leurs pères.

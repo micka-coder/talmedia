@@ -3,10 +3,10 @@
 Il y a quatre nouvelles années : Le premier de Nisan est la nouvelle année pour les rois et pour les festivals. Le premier d'Elul est la nouvelle année pour la dîme des bêtes. Rabbi Elazar et Rabbi Shimon disent : le premier de Tishri. Le premier de Tishri est la nouvelle année pour les années, pour la shmitta et les années jubilaires, pour les plantations et pour la dîme des légumes. Le premier de Shevat est la nouvelle année pour les arbres, ce sont les paroles de Bet Shammai. Bet Hillel disent : le 15 de ce mois.
 
 ### michna 2
-A quatre moments précis, le monde est jugé : A Pesah, en ce qui concerne les produits. A Shavuot, par rapport aux fruits de l'arbre. A Roch Hachana, tous les peuples du monde passent devant Lui comme une division de soldats [un numerus], comme il est dit : "Celui qui façonne le cœur de tous, qui discerne toutes leurs actions" (Psaumes 33:15). Et à Souccot, ils sont jugés par rapport à la pluie.
+A quatre moments précis, le monde est jugé : A Pessah, en ce qui concerne les produits. A Shavuot, par rapport aux fruits de l'arbre. A Roch Hachana, tous les peuples du monde passent devant Lui comme une division de soldats [un numerus], comme il est dit : "Celui qui façonne le cœur de tous, qui discerne toutes leurs actions" (Psaumes 33:15). Et à Souccot, ils sont jugés par rapport à la pluie.
 
 ### michna 3
-Il y a six mois [au début desquels] des messagers sortent : à Nisan, à cause de Pesah ; à Av, à cause du jeûne. En Elul, à cause de Rosh Hashanah. Le mois de Tishri, à cause de l'établissement des fêtes. A Kislev, à cause de Hanoukka. Et à Adar, à cause de Pourim. Lorsque le Temple était debout, ils avaient également l'habitude de sortir pour rapporter Iyar à cause de Pesah Katan (Pesah Sheni).
+Il y a six mois [au début desquels] des messagers sortent : à Nisan, à cause de Pessah ; à Av, à cause du jeûne. En Elul, à cause de Rosh Hashanah. Le mois de Tishri, à cause de l'établissement des fêtes. A Kislev, à cause de Hanoukka. Et à Adar, à cause de Pourim. Lorsque le Temple était debout, ils avaient également l'habitude de sortir pour rapporter Iyar à cause de Pessah Katan (Pessah Sheni).
 
 ### michna 4
 Ils profanent le Shabbat à cause de deux mois : à cause de Nissan et de Tishri, car ces mois-là, des messagers partent en Syrie et c'est au cours de ces mois que sont fixées les dates des fêtes. Lorsque le Temple était debout, ils avaient l'habitude de profaner le Shabbat pendant tous les mois, afin que le sacrifice soit offert le bon jour.

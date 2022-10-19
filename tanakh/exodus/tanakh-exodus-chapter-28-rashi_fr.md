@@ -14,7 +14,7 @@
 <b>Checkered.</b> Fait sous la forme de מִשְׁבְּצוֹת pour la beauté. Les מִשְׁבְּצוֹת sont une sorte d'échancrures qui sont faites dans les ornements en or comme des sertissages pour les pierres précieuses et les perles comme il est dit des pierres du <i>eiphod : </i> "elles étaient entourées de ( מִשְׁבְּצוֹת ) sertissages d'or. " En ancien français, on les appelle <i>chastons.</i>
 <b>Un turban.</b> - une sorte de chapeau bombé appelé <i>coife</i> en vieux français, car ailleurs ils sont appelés מִגְבָּעוֹת qu'Onkelos traduit pour nous par "chapeaux". 
 <b>Et une ceinture à ceinture.</b> Il s'agit d'une ceinture portée sur la chemise intérieure, alors que le <i>eiphod</i> est porté sur la chemise extérieure, comme nous le constatons à [la relation] de l'ordre de leur enfilage : "Il lui a mis la chemise intérieure et a noué autour de lui la ceinture de ceinture et l'a habillé avec la chemise extérieure, puis il a mis le <i>eiphod</i> sur lui." 
-<b>Vêtements sacrés.</b> C'est à partir de la <i>terumah</i> "qui a été sanctifiée pour Mon Nom qu'ils doivent être faits."
+<b>Vêtements sacrés.</b> C'est à partir de la <i>teroumah</i> "qui a été sanctifiée pour Mon Nom qu'ils doivent être faits."
 
 ### passuk 5
 <b>Ils prendront.</b> Les "sages de cœur" (v.3) qui confectionneront les vêtements recevront des donateurs l'or et la laine bleu-verdâtre dont ils feront les vêtements.

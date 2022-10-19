@@ -18,7 +18,7 @@ Toute impureté dérivée ne souille pas les récipients, mais [elle souille] un
 Un récipient en terre ne souille pas un autre récipient de ce type, mais [il souille] un liquide. Et lorsque le liquide devient impur, il souille le récipient. Ainsi [le recipient] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".
 
 ### michna 7
-Ce qui rend la terumah invalide rend le liquide impur au premier degré, de sorte qu'il peut transmettre l'impureté à un endroit et la rendre impropre à un autre endroit, sauf pour un tevul yom. Ainsi [l'aliment] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".
+Ce qui rend la teroumah invalide rend le liquide impur au premier degré, de sorte qu'il peut transmettre l'impureté à un endroit et la rendre impropre à un autre endroit, sauf pour un tevul yom. Ainsi [l'aliment] pourrait dire [au liquide] : "Ce qui t'a souillé ne m'a pas souillé, tandis que toi tu m'as souillé !".
 
 ### michna 8
 Toutes les mers sont équivalentes à un bain rituel (mikveh), car il est dit : "Et le rassemblement (ulemikveh) des eaux Il appela les mers" (Genèse 1:10), paroles de Rabbi Meir. Rabbi Juda dit : seule la Grande Mer est équivalente à un bain rituel, et si il est dit "mers" [au pluriel] c'est seulement parce qu'il y a en elle plusieurs sortes de mers. Rabbi Yose dit : toutes les mers purifient lorsqu'elles coulent, elles sont cependant impropres aux zavim et metzoraim et à la préparation des eaux du hatat.

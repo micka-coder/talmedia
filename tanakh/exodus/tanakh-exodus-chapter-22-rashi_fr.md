@@ -114,8 +114,8 @@
 
 ### passuk 28
 <b>Votre plénitude.</b> [Signification :] l'obligation qui vous a été faite lorsque vos grains atteignent leur pleine maturité. Cela fait référence à בִּכּוּרִים - "les premiers fruits".
-<b>Et votre offrande de <i>terumah</i>.</b> [וְדִמְעֲךָ fait référence à] l'offrande de <i>terumah</i>, mais, je ne sais pas pourquoi on l'appelle דֶמַע . 
-<b>Vous ne devez pas tarder.</b> [Signification :] Ne modifiez pas leur ordre de séparation [de leurs fruits], en séparant plus tard ce qui devrait être séparé plus tôt, c'est-à-dire qu'il ne peut pas [séparer] la <i>terumah</i> avant [séparer] les <i>bikkurim,</i> ou l'offrande de la dîme avant la <i>terumah.</i> 
+<b>Et votre offrande de <i>teroumah</i>.</b> [וְדִמְעֲךָ fait référence à] l'offrande de <i>teroumah</i>, mais, je ne sais pas pourquoi on l'appelle דֶמַע . 
+<b>Vous ne devez pas tarder.</b> [Signification :] Ne modifiez pas leur ordre de séparation [de leurs fruits], en séparant plus tard ce qui devrait être séparé plus tôt, c'est-à-dire qu'il ne peut pas [séparer] la <i>teroumah</i> avant [séparer] les <i>bikkurim,</i> ou l'offrande de la dîme avant la <i>teroumah.</i> 
 <b>Le premier-né de vos fils, vous me le donnerez -</b> en le rachetant pour cinq <i>sela'im</i> du <i>Cohen.</i> Mais [la Torah] n'a-t-elle pas donné ce commandement ailleurs ? Mais [la raison pour laquelle il est répété ici est] afin de le juxtaposer à : "Vous devez faire de même avec vos bœufs", [enseignant ainsi que] de même que le premier-né de l'homme est racheté après trente jours [de la naissance], comme il est dit : "Et ceux qui ont besoin d'être rachetés, vous les racheterez dès l'âge d'un mois." De même, en ce qui concerne le premier-né du petit bétail : il (le propriétaire) s'en occupe pendant 30 jours et, ensuite, le donne au <i>Cohen.</i> 
 
 ### passuk 29

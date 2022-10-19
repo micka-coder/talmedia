@@ -12,7 +12,7 @@
 <b>Il a traversé avec les trois cents hommes.</b> Ils ont traversé le Jourdain après Zevach et Tzalmuna, qui avaient traversé précédemment et semé la destruction de l'autre côté du Jourdain, sur le territoire de Reuven, Gad et Menashe. Il a traversé pour se venger d'eux également.
 
 ### passuk 5
-<b>Aux gens de Souccos.</b> Ils étaient Yitroélites.
+<b>Aux gens de Souccot.</b> Ils étaient Yitroélites.
 
 ### passuk 6
 <b>Les palmes de Zevach et de Tsalmouna</b> sont-elles dans vos mains que vous vous enorgueillissez de nous avoir sauvés de la main de Midyon.

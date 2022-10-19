@@ -15,7 +15,7 @@ il donna, dans la troisième année de son règne, un festin à l’ensemble de 
 Lorsque ces jours furent révolus, le roi donna à toute la population présente à Suse, la capitale, aux grands comme aux petits, un festin de sept jours dans les dépendances du parc du palais royal.
 
 ### passuk 6
-Ce n’étaient que tentures blanches, vertes et bleu de ciel, fixées par des cordons de byssus et de pourpre sur des cylindres d’argent et des colonnes de marbre; des divans d’or et d’argent sur des mosaïques de porphyre, de marbre blanc, de nacre et de marbre noir.
+Ce n’étaient que tentures blanches, vertes et bleu de ciel, fixées par des cordons de byssus et de pourpre sur des cylindres d’argent et des colonnes de marbre; des lits d’or et d’argent sur des mosaïques de porphyre, de marbre blanc, de nacre et de marbre noir.
 
 ### passuk 7
 Les boissons étaient offertes dans des vases d’or, qui présentaient une grande variété; et le vin royal était abondant, digne de la munificence du roi.

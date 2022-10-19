@@ -35,7 +35,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>et des gouttes de rayons de miel</b> Heb.  ונפת צופים, douceur des rayons de miel ; brèche, ou bresches, rayons de miel. Menachem interprète  ונפת  comme l'expression d'une goutte, et ainsi (dans Prov. 5:3) : "goutte de douceur (נפת)" ; (ibid. 7:17), "J'ai arrosé (נפתי) mon divan."
+<b>et des gouttes de rayons de miel</b> Heb.  ונפת צופים, douceur des rayons de miel ; brèche, ou bresches, rayons de miel. Menachem interprète  ונפת  comme l'expression d'une goutte, et ainsi (dans Prov. 5:3) : "goutte de douceur (נפת)" ; (ibid. 7:17), "J'ai arrosé (נפתי) mon lit."
 
 ### passuk 12
 <b>Parce qu'en les observant il y a une grande récompense</b> J'ai été attentif à son observance à cause de Ton grand bien que Tu as caché, et selon cet usage,  עקב ' est comme (Gen. 26:5) : "Parce que (עקב') Abraham a écouté ma voix." Une autre explication de  עקב רב' : La fin des érudits de la Torah est qu'ils atteignent la grandeur.  עקב ' est une expression de la fin, et il existe une expression similaire dans le langage de la Mishna (Sotah 9:15) : "À la fin (בעקבות) de l'exil, avant la venue du Messie."

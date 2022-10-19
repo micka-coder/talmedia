@@ -5,7 +5,7 @@
 
 ### passuk 3
 <b>Et quant aux jeunes, je les ai envoyés devant.</b> Expression de troubler ; les jeunes gens qui sont sortis avec moi, je les ai troublés pour qu'ils aillent devant moi dans un lieu secret, caché.
-<b>Je les ai troublés.</b> Similaire à : 'Avec eux, il brisa [<span>וַידַׁע</span>] les hommes de Souccos.'<sup>1</sup><i class="footnote"> Shoftim 8:16.</i>
+<b>Je les ai troublés.</b> Similaire à : 'Avec eux, il brisa [<span>וַידַׁע</span>] les hommes de Souccot.'<sup>1</sup><i class="footnote"> Shoftim 8:16.</i>
 <b>Certain secret.</b> [<span>אַלְמֹנִי</span> est dérivé de] '<span>אַלְמוֹן</span>' [=widower], privé de nom ; car je ne veux pas en parler, car c'est une affaire secrète.
 <b>Caché.</b> Similaire à <span>כִּי יִפָּלֵא</span> [=sera caché],<sup>2</sup><i class="footnote">Devarim 17:8.</i> sera caché.
 

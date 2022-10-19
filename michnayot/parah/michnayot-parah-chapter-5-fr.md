@@ -1,6 +1,6 @@
 
 ### michna 1
-Celui qui apporte le récipient en terre pour la hatat doit s'immerger, et passer la nuit près du fourneau. Rabbi Judah dit : il peut aussi l'apporter de la maison et c'est valable, car tous sont considérés comme dignes de confiance en ce qui concerne la hatat. Dans le cas de la terumah, on peut ouvrir le fourneau et en sortir [le récipient]. Rabbi Shimon dit : de la deuxième rangée. Rabbi Yose dit : de la troisième rangée.
+Celui qui apporte le récipient en terre pour la hatat doit s'immerger, et passer la nuit près du fourneau. Rabbi Judah dit : il peut aussi l'apporter de la maison et c'est valable, car tous sont considérés comme dignes de confiance en ce qui concerne la hatat. Dans le cas de la teroumah, on peut ouvrir le fourneau et en sortir [le récipient]. Rabbi Shimon dit : de la deuxième rangée. Rabbi Yose dit : de la troisième rangée.
 
 ### michna 2
 Si l'on a immergé un récipient pour la hatat dans de l'eau impropre au mélange, on doit le sécher ; si c'est dans de l'eau propre au mélange, on n'a pas besoin de le sécher. Mais si [il avait l'intention] d'y recueillir de l'eau déjà mélangée aux cendres, il doit le sécher dans les deux cas.

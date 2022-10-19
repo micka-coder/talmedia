@@ -93,7 +93,7 @@
 <b>et tout ce qui est saint</b> [Heb. חֶרֶם,] une expression de sainteté, et ainsi est toute expression de חֶרֶם [lorsqu'elle est utilisée] dans le contexte des choses sanctifiées.
 
 ### passuk 30
-<b>Pour apporter des bénédictions durables dans votre maison</b> [Heb. לְהָנִיחַ,] aposer sur O.F., (faire) se reposer, s'installer, comme dans (Exod. 10:14) : "et il se reposa (וֳיָנָח) sur tout le territoire de l'Égypte."
+<b>Pour apporter des bénédictions durables dans votre maison</b> [Heb. לְהָנִיחַ,] aposer en ancien français, (faire) se reposer, s'installer, comme dans (Exod. 10:14) : "et il se reposa (וֳיָנָח) sur tout le territoire de l'Égypte."
 
 ### passuk 31
 <b>Tout ce qui est mort de lui-même ou blessé mortellement, etc.</b> Puisqu'il était permis de pincer le cou de l'oiseau en offrande pour le péché, ce qui [équivaut] à un animal mort de lui-même ou blessé mortellement [puisque ce n'est pas la méthode normale d'abattage], il devait les mettre en garde concernant [la consommation] d'autres créatures mortes d'elles-mêmes ou blessées mortellement. Ainsi, nos Sages expliquent.

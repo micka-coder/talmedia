@@ -68,7 +68,7 @@
 <b>Le gardien de l'équipement.</b> Des soldats.
 
 ### passuk 23
-<b>Du camp des Philistins. </b> [Le texte] est écrit <span>מִמַּעֲרוֹת</span> ; nos rabbins ont expliqué [à partir du mot <span>מַעֲרוֹת</span>]<sup>14</sup><i class="footnote">La racine étant <span>ערה</span> et le nom <span>ערוה</span>. Voir Rachi Vayikra 20:18.</i> que cent hommes ont eu des relations avec sa mère [Golyas] Orpoh, après qu'elle ait quitté Rus et sa belle-mère Naomi.<sup>15</sup><i class="footnote">Voir Masehet Sotah 42b. Golyos est né de ces relations et personne ne savait qui l'avait engendré, il fut donc connu sous le nom de <span>אִישׁ הַבֵּנַיִם</span> 'un homme d'entre eux'. Voir ci-dessus le verset 4. Le Da'at Sofrim suggère que <span>מְעָרוֹת</span> [=caves] ont pu être creusées dans la montagne par les Philistins comme mesure défensive en cas d'attaque des Bnei Israël.</i>
+<b>Du camp des Philistins. </b> [Le texte] est écrit <span>מִמַּעֲרוֹת</span> ; nos rabbins ont expliqué [à partir du mot <span>מַעֲרוֹת</span>]<sup>14</sup><i class="footnote">La racine étant <span>ערה</span> et le nom <span>ערוה</span>. Voir Rachi Vayikra 20:18.</i> que cent hommes ont eu des relations avec sa mère [Golyat] Orpah, après qu'elle ait quitté Rus et sa belle-mère Naomi.<sup>15</sup><i class="footnote">Voir Masehet Sotah 42b. Golyos est né de ces relations et personne ne savait qui l'avait engendré, il fut donc connu sous le nom de <span>אִישׁ הַבֵּנַיִם</span> 'un homme d'entre eux'. Voir ci-dessus le verset 4. Le Da'at Sofrim suggère que <span>מְעָרוֹת</span> [=caves] ont pu être creusées dans la montagne par les Philistins comme mesure défensive en cas d'attaque des Bnei Israël.</i>
 
 ### passuk 24
 

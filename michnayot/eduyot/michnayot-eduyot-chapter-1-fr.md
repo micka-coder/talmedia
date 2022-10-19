@@ -21,7 +21,7 @@ Rabbi Juda a dit :  "Si c'est le cas, pourquoi enregistre-t-on l'opinion d'une s
 Beth Shammai dit : "Un quart de kav de n'importe quel os, même de deux membres ou de trois." Et Beth Hillel dit : "Un quart de kav d'os d'un cadavre, soit des [os qui forment] la plus grande partie de la construction [du corps], soit de la plus grande partie du nombre [d'os du corps]. Shammai dit :  "Même d'un seul os".
 
 ### michna 8
-Les vesces de terumah : Beth Shammai dit : "Ils doivent être trempés et frottés dans la pureté, mais peuvent être donnés en nourriture dans l'impureté." Et Beth Hillel dit : "Ils doivent être trempés dans la pureté, mais peuvent être frottés et donnés comme nourriture dans l'impureté." Shammai dit : "Ils doivent être mangés secs. "Rabbi Akiva dit : "Toutes les actions en rapport avec eux [peuvent être effectuées] dans l'impureté."
+Les vesces de teroumah : Beth Shammai dit : "Ils doivent être trempés et frottés dans la pureté, mais peuvent être donnés en nourriture dans l'impureté." Et Beth Hillel dit : "Ils doivent être trempés dans la pureté, mais peuvent être frottés et donnés comme nourriture dans l'impureté." Shammai dit : "Ils doivent être mangés secs. "Rabbi Akiva dit : "Toutes les actions en rapport avec eux [peuvent être effectuées] dans l'impureté."
 
 ### michna 9
 Celui qui change pour une sela des pièces de cuivre de la deuxième dîme : Beth Shammai dit : "Une pièce de cuivre pour toute la sela." Et Beth Hillel dit :  "Argent pour un sela et pièce de cuivre pour un sela." Rabbi Meir dit : "L'argent et les fruits ne peuvent pas être substitués à l'argent." Mais les sages le permettent.

@@ -58,7 +58,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Et la nuée le (ou la) couvrit.</b> Il y a une dispute parmi nos Sages à ce sujet : Il y en a qui disent [que ces six jours] allaient de Rosh Chodesh - le premier jour [de Sivan] [jusqu'à la fête de Shavuos - le jour où la Torah a été donnée - d'après un ancien manuscrit de Rachi].
+<b>Et la nuée le (ou la) couvrit.</b> Il y a une dispute parmi nos Sages à ce sujet : Il y en a qui disent [que ces six jours] allaient de Rosh Chodesh - le premier jour [de Sivan] [jusqu'à la fête de Shavuot - le jour où la Torah a été donnée - d'après un ancien manuscrit de Rachi].
 <b>[et] la nuée la couvrit [se réfère -]</b> à la montagne - [sur quoi]
 <b>Il a appelé Moshé le septième jour -</b> pour proclamer les dix commandements. En réalité, Moshé et tous les B'nei Israël se tenaient là, [pourtant le verset dit seulement : "Il appela Moshé"]. Mais [de cette façon] l'Écriture rend honneur à Moshé. Mais il y a d'autres personnes qui disent que.... <b>La nuée le couvrit</b> - fait référence à Moshé [et cela se produisit] six jours après le [don des] dix commandements. Et ils (ces six jours) étaient au début des quarante jours où Moshé est monté pour recevoir les Tablettes. Cela vous enseigne que quiconque a l'intention d'entrer dans le camp de la Shechinah doit s'isoler pendant six jours.
 

@@ -55,7 +55,7 @@
 
 ### passuk 13
 <b>Un sixième d'épha d'un homer de blé</b> Cela revient à un sur soixante. Celui qui veut donner peu ne doit pas donner moins que cela, et c'est ce qu'on a dit (Ter. 4:3) : "Un avare donne un sur soixante".
-<b>Et tu sépareras un sixième</b> Et tu sépareras un sixième d'un "épha" pour la "terumah" d'un "homer" d'orge.
+<b>Et tu sépareras un sixième</b> Et tu sépareras un sixième d'un "épha" pour la "teroumah" d'un "homer" d'orge.
 
 ### passuk 14
 <b>Et la règle de l'huile</b> concernant les dîmes.

@@ -9,7 +9,7 @@ Passez donc à Calné et regardez; de là, rendez-vous à Hamath-la-Grande, puis
 Vous vous imaginez reculer le jour du malheur et vous avancez le règne de la violence!
 
 ### passuk 4
-Couchés sur des lits d’ivoire, étendus sur leurs divans, nourris d’agneaux choisis dans le troupeau, de veaux mis à l’engrais,
+Couchés sur des lits d’ivoire, étendus sur leurs lits, nourris d’agneaux choisis dans le troupeau, de veaux mis à l’engrais,
 
 ### passuk 5
 fredonnant au son du luth, comme David inventant à leur usage des instruments de musique,

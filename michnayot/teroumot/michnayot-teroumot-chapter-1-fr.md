@@ -1,33 +1,33 @@
 
 ### michna 1
-Cinq personnes ne peuvent pas donner de terumah, et si elles le font, leur terumah n'est pas considérée comme terumah : Un heresh (sourd-muet) ; un imbécile, un mineur, et celui qui donne de la terumah à partir de ce qui ne lui appartient pas. Si un non-Juif a donné de la térouma de ce qui appartient à un Israélite, même si c'est avec sa permission, sa térouma n'est pas de la térouma.
+Cinq personnes ne peuvent pas donner de teroumah, et si elles le font, leur teroumah n'est pas considérée comme teroumah : Un heresh (sourd-muet) ; un imbécile, un mineur, et celui qui donne de la teroumah à partir de ce qui ne lui appartient pas. Si un non-Juif a donné de la térouma de ce qui appartient à un Israélite, même si c'est avec sa permission, sa térouma n'est pas de la térouma.
 
 ### michna 2
-Un "heresh", qui parle mais ne peut pas entendre, ne peut pas donner de terumah, mais s'il le fait, sa terumah est une terumah. Le "heresh" dont les sages parlent généralement est celui qui n'entend ni ne parle.
+Un "heresh", qui parle mais ne peut pas entendre, ne peut pas donner de teroumah, mais s'il le fait, sa teroumah est une teroumah. Le "heresh" dont les sages parlent généralement est celui qui n'entend ni ne parle.
 
 ### michna 3
-Un mineur qui n'a pas encore produit deux poils [pubiens] : Rabbi Judah dit : sa terumah est terumah. Rabbi Yose dit : s'il n'est pas arrivé à l'âge où ses vœux sont valides, sa terumah n'est pas terumah, mais s'il est arrivé à l'âge où ses vœux sont valides, sa terumah est terumah.
+Un mineur qui n'a pas encore produit deux poils [pubiens] : Rabbi Judah dit : sa teroumah est teroumah. Rabbi Yose dit : s'il n'est pas arrivé à l'âge où ses vœux sont valides, sa teroumah n'est pas teroumah, mais s'il est arrivé à l'âge où ses vœux sont valides, sa teroumah est teroumah.
 
 ### michna 4
-On ne doit pas prendre de terumah d'olives pour l'huile, ni de raisins pour le vin. Si on le faisait : Bet Shammai disent : il y a de la terumah dans [les olives ou les raisins] eux-mêmes. Mais Bet Hillel disent : la terumah n'est pas de la terumah.
+On ne doit pas prendre de teroumah d'olives pour l'huile, ni de raisins pour le vin. Si on le faisait : Bet Shammai disent : il y a de la teroumah dans [les olives ou les raisins] eux-mêmes. Mais Bet Hillel disent : la teroumah n'est pas de la teroumah.
 
 ### michna 5
-On ne prend pas la terumah des "glanages", de la "gerbe oubliée", du peah ou des produits sans propriétaire. [Elle n'est pas non plus prélevée sur la première dîme dont la terumah a déjà été prélevée, ni sur la seconde dîme et les produits dédiés qui ont été rachetés. [On ne prélève pas non plus sur ce qui est soumis [à la térouma] pour ce qui est exempté [de la térouma], ni sur ce qui est exempté pour ce qui est soumis. Ni d'un produit déjà arraché [du sol] pour celui qui y est attaché, ni d'un produit attaché [au sol] pour celui qui est déjà arraché. Ni des produits nouveaux pour les anciens, ni des anciens pour les nouveaux. Ni d'un produit de la terre d'Israël pour un produit cultivé hors de la terre, ni d'un produit cultivé hors de la terre pour un produit cultivé dans la terre. [Dans tous ces cas] s'ils ont pris de la térouma, leur térouma n'est pas de la térouma.
+On ne prend pas la teroumah des "glanages", de la "gerbe oubliée", du peah ou des produits sans propriétaire. [Elle n'est pas non plus prélevée sur la première dîme dont la teroumah a déjà été prélevée, ni sur la seconde dîme et les produits dédiés qui ont été rachetés. [On ne prélève pas non plus sur ce qui est soumis [à la térouma] pour ce qui est exempté [de la térouma], ni sur ce qui est exempté pour ce qui est soumis. Ni d'un produit déjà arraché [du sol] pour celui qui y est attaché, ni d'un produit attaché [au sol] pour celui qui est déjà arraché. Ni des produits nouveaux pour les anciens, ni des anciens pour les nouveaux. Ni d'un produit de la terre d'Israël pour un produit cultivé hors de la terre, ni d'un produit cultivé hors de la terre pour un produit cultivé dans la terre. [Dans tous ces cas] s'ils ont pris de la térouma, leur térouma n'est pas de la térouma.
 
 ### michna 6
-Cinq personnes ne peuvent pas donner de la térouma, mais si elles le font, leur térouma est de la térouma : une personne muette, une personne ivre, une personne nue, une personne aveugle ou une personne qui a eu une émission séminale. Ils ne peuvent pas donner de terumah, mais s'ils le font, leur terumah est valide.
+Cinq personnes ne peuvent pas donner de la térouma, mais si elles le font, leur térouma est de la térouma : une personne muette, une personne ivre, une personne nue, une personne aveugle ou une personne qui a eu une émission séminale. Ils ne peuvent pas donner de teroumah, mais s'ils le font, leur teroumah est valide.
 
 ### michna 7
-Ils ne peuvent pas donner la terumah selon la mesure, le poids ou le nombre, mais on peut la donner à partir de ce qui a déjà été mesuré, pesé ou compté. On ne peut pas donner la terumah dans un panier ou un panier à linge d'une capacité mesurée, mais on peut la donner lorsqu'il est rempli à moitié ou au tiers. Il ne peut pas donner une moitié de seah dans un récipient de mesure de seah, car cette moitié constitue une mesure connue.
+Ils ne peuvent pas donner la teroumah selon la mesure, le poids ou le nombre, mais on peut la donner à partir de ce qui a déjà été mesuré, pesé ou compté. On ne peut pas donner la teroumah dans un panier ou un panier à linge d'une capacité mesurée, mais on peut la donner lorsqu'il est rempli à moitié ou au tiers. Il ne peut pas donner une moitié de seah dans un récipient de mesure de seah, car cette moitié constitue une mesure connue.
 
 ### michna 8
-Il ne pourra pas donner de la terumah d'huile pour des olives écrasées, ni de la terumah de vin pour des raisins foulés. S'il l'a fait, sa terumah est une terumah, mais il doit donner à nouveau une terumah. La première terumah rend par elle-même [le produit dans lequel elle tombe] "terumah douteuse" et est soumise au cinquième ajouté, mais pas la seconde.
+Il ne pourra pas donner de la teroumah d'huile pour des olives écrasées, ni de la teroumah de vin pour des raisins foulés. S'il l'a fait, sa teroumah est une teroumah, mais il doit donner à nouveau une teroumah. La première teroumah rend par elle-même [le produit dans lequel elle tombe] "teroumah douteuse" et est soumise au cinquième ajouté, mais pas la seconde.
 
 ### michna 9
-Ils peuvent donner la terumah de l'huile pour des olives marinées, ou du vin pour des raisins transformés en raisins secs. S'il a donné de la térouma d'huile pour des olives destinées à être mangées, ou d'autres olives pour des olives destinées à être mangées, ou du vin pour des raisins destinés à être mangés, ou d'autres raisins pour des raisins destinés à être mangés, et qu'il a décidé ensuite de les presser, il n'a pas besoin de donner de la térouma à nouveau.
+Ils peuvent donner la teroumah de l'huile pour des olives marinées, ou du vin pour des raisins transformés en raisins secs. S'il a donné de la térouma d'huile pour des olives destinées à être mangées, ou d'autres olives pour des olives destinées à être mangées, ou du vin pour des raisins destinés à être mangés, ou d'autres raisins pour des raisins destinés à être mangés, et qu'il a décidé ensuite de les presser, il n'a pas besoin de donner de la térouma à nouveau.
 
 ### michna 10
-Ils ne peuvent pas prendre la terumah d'un produit dont le traitement est terminé pour un produit dont le traitement n'est pas terminé, ou d'un produit dont le traitement n'est pas terminé pour un produit dont le traitement est terminé ou d'un produit dont le traitement n'est pas terminé pour un autre produit dont le traitement n'est pas terminé. S'ils ont pris de la terumah, leur terumah est de la terumah.
+Ils ne peuvent pas prendre la teroumah d'un produit dont le traitement est terminé pour un produit dont le traitement n'est pas terminé, ou d'un produit dont le traitement n'est pas terminé pour un produit dont le traitement est terminé ou d'un produit dont le traitement n'est pas terminé pour un autre produit dont le traitement n'est pas terminé. S'ils ont pris de la teroumah, leur teroumah est de la teroumah.
 
 >Crédit : Dr. Joshua Kulp
 >License : CC-BY

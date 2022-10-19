@@ -63,10 +63,10 @@
 <b>Ne te présente pas devant Ma Présence les mains vides.</b> "Quand tu viendras te présenter devant Moi lors des fêtes, apporte-Moi des holocaustes." 
 
 ### passuk 16
-<b>La fête de la moisson.</b> Cela fait référence à la fête de Shavuos...
+<b>La fête de la moisson.</b> Cela fait référence à la fête de Shavuot...
 <b>Les prémices de votre travail -</b> qui est le moment d'apporter les prémices car l'offrande des "deux pains" qui sont apportés à Chavouos, permettent à la nouvelle récolte [d'être utilisée] pour les offrandes de repas et pour apporter des <i>bikkurim</i> au Beit Hamikdash, comme il est dit : "Le jour des Bikkurim, etc....". 
-<b>La fête de la collecte.</b> Cela fait référence à la fête de Souccos -.
-<b>lorsque tu récoltes [les fruits] de ton travail.</b> Parce que pendant tout l'été, les grains sèchent dans les champs et pendant la [saison] de Souccos, ils sont récoltés à l'intérieur pour éviter les pluies.
+<b>La fête de la collecte.</b> Cela fait référence à la fête de Souccot -.
+<b>lorsque tu récoltes [les fruits] de ton travail.</b> Parce que pendant tout l'été, les grains sèchent dans les champs et pendant la [saison] de Souccot, ils sont récoltés à l'intérieur pour éviter les pluies.
 
 ### passuk 17
 <b>Trois fois, etc.</b> Puisque le sujet ici traite de <i>shemittah,</i> il était nécessaire de préciser que les Trois Fêtes ne seront pas annulées de [se dérouler à] leurs temps alloués. 

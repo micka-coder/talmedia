@@ -33,7 +33,7 @@ Charmantes sont tes joues ornées de rangs de perles, ton cou paré de colliers.
 Nous te ferons des chaînons d’or avec des paillettes d’argent.
 
 ### passuk 12
-Tandis que le roi demeure sur son divan, mon nard exhale son arôme.
+Tandis que le roi demeure sur son lit, mon nard exhale son arôme.
 
 ### passuk 13
 Mon bien-aimé est pour moi un bouquet de myrrhe, qui repose sur mon sein.

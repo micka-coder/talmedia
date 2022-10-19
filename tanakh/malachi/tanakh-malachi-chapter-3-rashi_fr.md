@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>Un homme volera</b> Nos Sages ont expliqué cela comme une expression de vol, et c'est un aramaisme.
-<b>Avec les dîmes et avec le prélèvement de la terumah</b> Les dîmes et la terumah - prélèvement que vous volez aux prêtres et aux lévites équivaut à Me voler.
+<b>Avec les dîmes et avec le prélèvement de la teroumah</b> Les dîmes et la teroumah - prélèvement que vous volez aux prêtres et aux lévites équivaut à Me voler.
 
 ### passuk 9
 <b>Vous êtes maudits</b> à cause de cette iniquité, pour laquelle J'envoie une malédiction dans l'œuvre de vos mains ; mais néanmoins, vous Me volez.

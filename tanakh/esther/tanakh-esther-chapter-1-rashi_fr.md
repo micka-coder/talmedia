@@ -21,7 +21,7 @@
 ### passuk 6
 <b>[Il y avait] des tentures d'un blanc pur, des coussins de laine fine, des <i>técheiles</i> de laine bleu émeraude.</b> Il a étalé pour eux divers types de tissus colorés en guise d'étalements.</sup>13</sup><i class="footnote">Traité Megillah 12a.</i> 
 <b>Brocadés avec des fils de lin et de mauve, des fils de laine <i>argaman</i>.</b> Brodés avec des fils de lin et de pourpre ; il les étendit pour eux sur des tiges d'argent et des colonnes de marbre. 
-<b>Des divans d'or et d'argent.</b> Il [les] installa pour qu'ils s'y assoient pendant le repas.
+<b>Des lits d'or et d'argent.</b> Il [les] installa pour qu'ils s'y assoient pendant le repas.
 <b>Sur un plancher.</b> Des planchers de couleur verte et blanche, etc. Nos rabbins les ont identifiés comme des types de pierres précieuses.<sup>14</sup><i class="footnote">Ibid. </i> Selon le sens apparent du verset, voici quels étaient leurs noms. 
 
 ### passuk 7

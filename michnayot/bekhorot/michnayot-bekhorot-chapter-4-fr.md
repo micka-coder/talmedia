@@ -15,7 +15,7 @@ Si quelqu'un qui n'est pas un expert voit un premier-né et qu'il a été abattu
 Si quelqu'un reçoit un paiement pour voir les premiers nés, ils ne doivent pas être abattus selon ses instructions, à moins qu'il ne soit un expert comme Ila à Yavneh, à qui les Sages ont permis d'accepter quatre isars pour le petit bétail et six pour le gros bétail, qu'il soit sans tache ou non.
 
 ### michna 6
-Si quelqu'un prend un paiement pour agir en tant que juge, ses jugements sont nuls ; pour témoigner, son témoignage est nul ; pour asperger ou sanctifier, les eaux sont considérées comme des eaux de caverne et les cendres sont considérées comme des cendres brûlées. S'il était prêtre et qu'il était rendu impur à cause de sa terumah, il doit lui donner à manger et à boire et le frotter avec de l'huile. Et si c'était un vieux sage, il le monte sur un âne. Il le paie également comme il le ferait pour un ouvrier.
+Si quelqu'un prend un paiement pour agir en tant que juge, ses jugements sont nuls ; pour témoigner, son témoignage est nul ; pour asperger ou sanctifier, les eaux sont considérées comme des eaux de caverne et les cendres sont considérées comme des cendres brûlées. S'il était prêtre et qu'il était rendu impur à cause de sa teroumah, il doit lui donner à manger et à boire et le frotter avec de l'huile. Et si c'était un vieux sage, il le monte sur un âne. Il le paie également comme il le ferait pour un ouvrier.
 
 ### michna 7
 Si l'on soupçonne quelqu'un en rapport avec les premiers nés, on ne doit pas lui acheter de la chair de cerf ou des peaux non traitées. Rabbi Eliezer dit : on peut acheter de lui des peaux de femelles, on peut les acheter de lui. On ne doit pas lui acheter de la laine lavée ou sale, mais on peut acheter de la laine filée ou des vêtements.
@@ -24,7 +24,7 @@ Si l'on soupçonne quelqu'un en rapport avec les premiers nés, on ne doit pas l
 Si l'on soupçonne quelqu'un d'avoir [ignoré] l'année sabbatique, on ne pourra pas lui acheter du lin, même peigné ; mais on pourra lui acheter du lin filé ou tissé.
 
 ### michna 9
-Si l'on soupçonne quelqu'un de vendre de la terumah comme hullin, on ne doit pas lui acheter d'eau ni de sel, ce sont les paroles de Rabbi Juda. Rabbi Shimon dit : [On ne peut pas lui acheter] tout ce qui est lié à la térouma et aux dîmes.
+Si l'on soupçonne quelqu'un de vendre de la teroumah comme hullin, on ne doit pas lui acheter d'eau ni de sel, ce sont les paroles de Rabbi Juda. Rabbi Shimon dit : [On ne peut pas lui acheter] tout ce qui est lié à la térouma et aux dîmes.
 
 ### michna 10
 Celui qui est suspecté d'ignorer l'année sabbatique n'est pas suspecté d'ignorer [également] les dîmes. Celui qui est suspecté d'ignorer les dîmes n'est pas suspecté d'ignorer [aussi] l'année sabbatique. Celui qui est suspecté d'ignorer les deux est suspecté d'ignorer les règles de pureté. Et il est possible qu'une personne soit soupçonnée d'ignorer les règles de pureté et qu'elle ne soit pas soupçonnée d'ignorer les deux lois [citées ci-dessus]. Telle est la règle générale : celui qui est soupçonné de [transgresser] quelque chose ne doit pas rendre de jugement sur cette chose ou témoigner à son sujet.

@@ -58,7 +58,7 @@
 
 ### passuk 14
 <b>Un dinandier.</b> Un artisan.<sup>18</sup><i class="footnote">C'est-à-dire un expert dans son métier, dans les travaux du cuivre. Le Chirom mentionné ici n'est pas le roi Chirom mentionné précédemment [ci-dessus 5:15].</i>
-<b>Il était rempli de la sagesse, de l'intelligence et de la connaissance [habileté].</b> Les trois outils<sup>19</sup><i class="footnote">Ces trois qualités, la sagesse, l'intelligence et l'habileté sont les mêmes que celles que possédait Betzalel, le constructeur du Michkon. Voir Shemos 31:3.</i> avec lesquelles l'univers a été créé, comme il est dit : "Par la sagesse, il a fondé la terre, par l'intelligence, il a établi les cieux, par sa connaissance, les profondeurs ont été brisées."<sup>20</sup><i class="footnote">Mishlei 3:19- 20.</i> Le Beis [Hamikdosh] a été construit avec ces trois qualités.
+<b>Il était rempli de la sagesse, de l'intelligence et de la connaissance [habileté].</b> Les trois outils<sup>19</sup><i class="footnote">Ces trois qualités, la sagesse, l'intelligence et l'habileté sont les mêmes que celles que possédait Betzalel, le constructeur du Michkan. Voir Shemos 31:3.</i> avec lesquelles l'univers a été créé, comme il est dit : "Par la sagesse, il a fondé la terre, par l'intelligence, il a établi les cieux, par sa connaissance, les profondeurs ont été brisées."<sup>20</sup><i class="footnote">Mishlei 3:19- 20.</i> Le Beis [Hamikdosh] a été construit avec ces trois qualités.
 
 ### passuk 15
 <b>Les deux colonnes.</b> Qu'il plaça à la salle d'entrée,</sup>21</sup><i class="footnote">Il les plaça à l'entrée de la salle du Temple. Voir le v. 21 ci-dessous.</i> Yachin et Bo'az.
@@ -139,7 +139,7 @@
 
 ### passuk 32
 <b>Les quatre roues étaient sous les cadres.</b> Car les cadres [s'étendaient] de l'axe d'une roue à l'axe de l'autre roue, comme je l'ai expliqué.<sup>51</sup><i class="footnote">Avant le v. 28.</i>
-<b>Et les essieux des roues.</b> C'est le bois qui est inséré dans les roues et qui est appelé, <i>essieu</i> en [O.F.].
+<b>Et les essieux des roues.</b> C'est le bois qui est inséré dans les roues et qui est appelé, <i>essieu</i> en [ancien français].
 <b>Et les essieux de la base.</b> Les essieux étaient joints et fondus à la base en une seule coulée.
 
 ### passuk 33

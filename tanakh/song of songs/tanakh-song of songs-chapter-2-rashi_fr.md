@@ -16,7 +16,7 @@
 
 ### passuk 5
 <b>Soutiens-moi.</b> Maintenant, comme c'est la manière de [traiter] les malades, avec des flagelles de vin de raisin ou avec des gâteaux de farine pure. 
-<b>Rafraîchissez mon lit.</b> Etendez mon lit autour de moi avec des pommes pour un bon parfum, à la manière de [traiter] les malades, car je suis malade de Son amour, car j'ai soif de Lui ici dans mon exil. "רְפִידָה est l'expression d'un divan, comme dans, "où il est allongé  יִרְפַּד " sur des rochers déchiquetés comme sur de la boue."<sup>8</sup><i class="footnote">Iyov 41:22. </i> 
+<b>Rafraîchissez mon lit.</b> Etendez mon lit autour de moi avec des pommes pour un bon parfum, à la manière de [traiter] les malades, car je suis malade de Son amour, car j'ai soif de Lui ici dans mon exil. "רְפִידָה est l'expression d'un lit, comme dans, "où il est allongé  יִרְפַּד " sur des rochers déchiquetés comme sur de la boue."<sup>8</sup><i class="footnote">Iyov 41:22. </i> 
 
 ### passuk 6
 <b>Sa main gauche était sous ma tête.</b> Dans le désert.

@@ -68,7 +68,7 @@
 <b>Vous n'êtes pas autorisés.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce passage place un commandement négatif sur la question.
 <b>Vous n'êtes pas autorisés [lit. pas capables].</b> R' Yehoshua ben Korchah a dit : " Vous êtes capables, mais vous n'êtes pas autorisés ". De même, "Les Yevusites, qui habitaient à Jérusalem, les fils de Yehouda n'ont pas été autorisés [lit. pas capables] de les chasser." Ils étaient capables, mais n'étaient pas autorisés, parce qu'Avraham avait fait une alliance avec eux, lorsqu'il leur avait acheté la grotte à deux étages de Machpelah. Ils n'étaient pas des Yevusites, mais des Chitites, mais, en reconnaissance de la ville intitulée Yevus (ils étaient appelés Yevusites). Ceci est clairement énoncé dans les Pirkei dR' Eliezer. C'est pourquoi il est dit : "...à moins que tu ne rejettes les aveugles et les boiteux" - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>les statues sur lesquelles le serment était inscrit. 
 <b>Le premier né de ton bétail.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cette interdiction s'applique aux <i>kohanim.</i>
-<b>La terumah-séparation de votre main.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence aux premiers fruits.
+<b>La teroumah-séparation de votre main.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela fait référence aux premiers fruits.
 
 ### passuk 18
 <b>Avant Hachem.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Dans les murs.

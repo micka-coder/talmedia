@@ -1,6 +1,6 @@
 
 ### Partie 1
-<b>Du vin noir?</b> Assis <b>sur un divan large ou sur un divan étroit ? Avec un bon ami ou un mauvais ami ? Et Rav Ḥisda a dit : Et tout cela</b> fait allusion <b>à la promiscuité.</b> Ce sont tous des euphémismes pour différents types de femmes. Le pain bien pétrit fait référence à une femme qui n'est pas vierge ; le vin blanc fait référence à une femme au teint clair ; un large divan fait référence à une femme grosse ; une bonne amie fait référence à une belle femme.
+<b>Du vin noir?</b> Assis <b>sur un lit large ou sur un lit étroit ? Avec un bon ami ou un mauvais ami ? Et Rav Ḥisda a dit : Et tout cela</b> fait allusion <b>à la promiscuité.</b> Ce sont tous des euphémismes pour différents types de femmes. Le pain bien pétrit fait référence à une femme qui n'est pas vierge ; le vin blanc fait référence à une femme au teint clair ; un large lit fait référence à une femme grosse ; une bonne amie fait référence à une belle femme.
 
 ### Partie 2
 Au sujet de Jérusalem, <b>Raḥava dit</b> que <b>Rabbi Yehuda a dit : Les bûches de Jérusalem</b> utilisées comme combustible <b>provenaient</b> de l'arbre <b>cannelle</b>, <b>et lorsqu'on les enflammait, leur parfum flottait dans tout Eretz Yisrael. Et depuis que Jérusalem a été détruite, ces</b> bûches odorantes <b>ont été enterrées, et seul un</b> éclat de la taille d'un grain d'<b>orge subsiste, et il se trouve dans le trésor de [<i>gazzai</i>] Tzimtzemai la reine.</b>

@@ -47,7 +47,7 @@
 <b>Parce qu'elle s'était couvert le visage.</b> Et il ne pouvait [donc] ni la voir ni la reconnaître. [Cependant, dans le Midrash de nos Sages, on trouve : Parce qu'elle se couvrait [toujours] le visage lorsqu'elle était chez son beau-père [Yehouda], c'était une femme modeste, il ne l'a donc pas soupçonnée. 
 
 ### passuk 16
-<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En O.F. [וַיֵט signifie] <i>destolir</i>-verser.
+<b>Il se détourna vers elle sur la route.</b> [Signification :] de la route qu'il [parcourait], il se tourna vers la route où elle se trouvait. En ancien français [וַיֵט signifie] <i>destolir</i>-verser.
 <b>S'il vous plaît.</b> [Signification :] préparez-vous et votre esprit à cela. Partout où le terme הָבָה apparaît, il a le sens de préparation, sauf là où il peut être traduit par donner. D'ailleurs, ceux qui ont le sens de préparation peuvent presque être traduits par donner. 
 
 ### passuk 17
