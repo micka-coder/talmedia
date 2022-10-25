@@ -15,7 +15,7 @@
 <b>En outre, lorsque Yehoshua les a renvoyés.</b> Il a renvoyé la demi-tribu de Menashé de la même manière qu'il a renvoyé les Bnei Reuvein et les Bnei Gad.
 
 ### passuk 8
-<b>[Partagez le butin] avec vos frères-</b> En référence aux Bnei Gad et aux Bnei Reuvein. Certains interprètent "frères" en référence à ceux qui sont restés en arrière pour garder les villes, les femmes et les enfants. [Même s'ils n'ont pas traversé le Jourdain avec la division armée, ils ont néanmoins reçu une part du butin.<sup>1</sup><i class="footnote">Cette pratique a été instituée par Avraham. Voir Bereishis 14:24. Rachi y commente que David a appris de l'action d'Avraham et a établi cela comme une tradition.</i>
+<b>[Partagez le butin] avec vos frères-</b> En référence aux Bnei Gad et aux Bnei Reuvein. Certains interprètent "frères" en référence à ceux qui sont restés en arrière pour garder les villes, les femmes et les enfants. [Même s'ils n'ont pas traversé le Jourdain avec la division armée, ils ont néanmoins reçu une part du butin.<sup>1</sup><i class="footnote">Cette pratique a été instituée par Avraham. Voir Bereshit 14:24. Rachi y commente que David a appris de l'action d'Avraham et a établi cela comme une tradition.</i>
 
 ### passuk 9
 

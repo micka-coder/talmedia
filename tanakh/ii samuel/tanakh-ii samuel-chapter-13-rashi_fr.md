@@ -10,7 +10,7 @@
 <b>Homme intelligent.</b> Pour la méchanceté.
 
 ### passuk 4
-<b>Faible.</b> Faible comme [on trouve] "faible et mauvais [en] apparence".<sup>3</sup><i class="footnote">Bereishis 41:19.</i>
+<b>Faible.</b> Faible comme [on trouve] "faible et mauvais [en] apparence".<sup>3</sup><i class="footnote">Bereshit 41:19.</i>
 
 ### passuk 5
 <b>Le repas.</b> Le repas.
@@ -90,7 +90,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonatanh traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonathan traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris
@@ -106,7 +106,7 @@
 <b>Homme intelligent.</b> Pour la méchanceté.
 
 ### passuk 4
-<b>Faible.</b> Faible comme [on trouve] "faible et mauvais [en] apparence".<sup>3</sup><i class="footnote">Bereishis 41:19.</i>
+<b>Faible.</b> Faible comme [on trouve] "faible et mauvais [en] apparence".<sup>3</sup><i class="footnote">Bereshit 41:19.</i>
 
 ### passuk 5
 <b>Le repas.</b> Le repas.
@@ -186,7 +186,7 @@
 ### passuk 38
 
 ### passuk 39
-<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonatanh traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
+<b>David désirait.</b> C'est un verset abrégé, [cela signifie dire :] "L'âme de David désirait". Le Yonathan traduit également [de cette façon :] " L'âme de David désirait ", comme [on trouve :] " [Mon âme] se languit, et même se languit. "<sup>7</sup><i class="footnote">Tehilim 84:3.</i> Langage [dénotant] le désir.
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris

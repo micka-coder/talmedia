@@ -33,7 +33,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Ephrathite.</b> Beis Lechem est situé dans le pays d'Ephros.</sup>5</sup><i class="footnote">Voir Bereishis 35:19.</i>
+<b>Ephrathite.</b> Beis Lechem est situé dans le pays d'Ephros.</sup>5</sup><i class="footnote">Voir Bereshit 35:19.</i>
 <b>Et il eut huit fils.</b> Et ce qui est indiqué, 'Otzem, le sixième, David le septième'<sup>6</sup><i class="footnote">I Divrei Hayamim 2:15.</i> et on n'en dit pas plus. Cela peut être concilié qu'un est mort sans enfant et donc, il n'a pas été mentionné là.
 <b>Parmi les anciens.</b> Compté dans les rassemblements de personnes importantes.</sup>7</sup><i class="footnote"> Voir Masehet Berahot 58a, qui précise que partout où Yishay allait, il était accompagné d'une grande foule.</i>
 
@@ -52,7 +52,7 @@
 
 ### passuk 18
 <b>Fromages.</b> [Le Targum Yonathan rend] "fromages".
-<b>Au capitaine de mille.</b> Je dis 'au capitaine de ce mille auquel appartiennent ses frères', car toutes les tribus avaient des capitaines de mille selon leurs milliers. Mais j'ai entendu dire que 'au capitaine des mille' se réfère à Yonatanh, au sujet duquel [l'Écriture] a déclaré : 'Et mille étaient avec Yonatanh à Givas Binyamin'.<sup>10</sup><i class="footnote">Supérieur à 13:2.</i>
+<b>Au capitaine de mille.</b> Je dis 'au capitaine de ce mille auquel appartiennent ses frères', car toutes les tribus avaient des capitaines de mille selon leurs milliers. Mais j'ai entendu dire que 'au capitaine des mille' se réfère à Yonathan, au sujet duquel [l'Écriture] a déclaré : 'Et mille étaient avec Yonathan à Givas Binyamin'.<sup>10</sup><i class="footnote">Supérieur à 13:2.</i>
 <b>Et prends les nouvelles de leur bien-être.</b> L'assurance de leur salut et de leur bien-être, tu la prendras dans tes oreilles et dans ton cœur, et tu me la raconteras. Et c'est ainsi que le Targum Yonathan a rendu : "et leur bien-être, tu l'apporteras.
 <b>Les nouvelles de leur bien-être.</b> C'est une expression de salut, comme dans 'Assure ton serviteur du bien';<sup>11</sup><i class="footnote">Tehillim 119:122.</i><i>garantis</i> en ancien français. Nos rabbins ont dit [cela signifie] qu'il devrait prendre un divorce d'elles, et le remettre à leurs femmes, pour rompre le lien [<span>עֵרוּב</span>] entre lui [mari] et elle [femme].<sup>12</sup><i class="footnote">Il était habituel pour les soldats de divorcer de leurs femmes en partant à la guerre. Ceci était fait pour épargner aux épouses toute difficulté à se remarier au cas où ils ne reviendraient pas. Voir Masehet Kesubos 9b et Masehet Chabbat 56a.</i>
 
@@ -141,7 +141,7 @@
 ### passuk 52
 
 ### passuk 53
-<b>De la poursuite.</b> Signification identique à <span>מִרְדׂף</span> [=poursuivre] comme dans "tu m'as poursuivi [<span>דָלַקְתָּ</span>]."<sup>28</sup><i class="footnote">Bereishis 31:36</i>.
+<b>De la poursuite.</b> Signification identique à <span>מִרְדׂף</span> [=poursuivre] comme dans "tu m'as poursuivi [<span>דָלַקְתָּ</span>]."<sup>28</sup><i class="footnote">Bereshit 31:36</i>.
 
 ### passuk 54
 

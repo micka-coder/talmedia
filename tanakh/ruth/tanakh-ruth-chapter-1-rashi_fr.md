@@ -4,10 +4,10 @@
 <b>Et un homme partit.</b> Il était très riche,</sup>3</sup><i class="footnote">איש  désigne une personne importante, comme le Targum le rend,  גברא רבא, "un grand homme.</i> et le chef de la génération. Il quitta Eretz Yisrael pour des régions hors du pays à cause de son avarice, car il était avare envers les pauvres qui venaient le presser;<sup>4</sup><i class="footnote">Il fut le seul homme à quitter Eretz Yisrael à cause de la famine. En raison de sa stature et de sa grandeur, il fut sévèrement puni pour avoir quitté Eretz Yisrael et être resté à Mo'av. (Malbim) </i> donc il a été puni.<sup>5</sup><i class="footnote">Il avait peur que les pauvres s'unissent et confisquent tous ses biens. (Malbim) </i> 
 
 ### passuk 2
-<b>Ephrathites.</b> Personnes importantes, et de la même manière, " le fils de Tochu, le fils de Tzuph, un Ephrathite," <sup>6</sup><i class="footnote">I Shmuel 1:1. </i> [signifiant] un aristocrate. Voyez l'importance qu'ils avaient, car Eglon, le roi de Mo'av, a marié sa fille à Machlon, comme l'a dit le Maître : "Ruth était la fille d'Eglon".<<sup>7</sup><i class="footnote">Masehet Sanhedrin 105b. </i> Une autre explication de "Ephratites", [ils étaient de Beis Lechem,] parce que Beis Lechem s'appelle Ephros.<sup>8</sup><i class="footnote">Voir Bereishis 48:7, "et je l'ai enterrée [Rachel] sur le chemin d'Ephros qui est Beis Lechem.</i> 
+<b>Ephrathites.</b> Personnes importantes, et de la même manière, " le fils de Tochu, le fils de Tzuph, un Ephrathite," <sup>6</sup><i class="footnote">I Shmuel 1:1. </i> [signifiant] un aristocrate. Voyez l'importance qu'ils avaient, car Eglon, le roi de Mo'av, a marié sa fille à Machlon, comme l'a dit le Maître : "Ruth était la fille d'Eglon".<<sup>7</sup><i class="footnote">Masehet Sanhedrin 105b. </i> Une autre explication de "Ephratites", [ils étaient de Beis Lechem,] parce que Beis Lechem s'appelle Ephros.<sup>8</sup><i class="footnote">Voir Bereshit 48:7, "et je l'ai enterrée [Rachel] sur le chemin d'Ephros qui est Beis Lechem.</i> 
 
 ### passuk 3
-<b>Naomi's husband.</b> Pourquoi le préciser à nouveau ? De là, ils ont dérivé : " Un homme ne meurt pas sauf pour sa femme [c'est-à-dire qu'elle ressent la perte plus que quiconque].<sup>9</sup><i class="footnote">Masehet Sanhedrin 22b. </i> ([Autre interprétation :] Et il est dit : "Le mari de Naomi", c'est-à-dire que parce qu'il était le mari de Naomi et qu'il régnait sur elle<sup>10</sup><i class="footnote">Voir Rachi dans Bereishis 9:20. </i> et qu'elle lui était subordonnée, l'attribut divin de la justice l'a donc frappé lui et non elle.)<sup>11</sup><i class="footnote">Parce qu'une fois qu'il a décidé de partir, sa femme et ses deux fils ont été obligés de le suivre. </i> 
+<b>Naomi's husband.</b> Pourquoi le préciser à nouveau ? De là, ils ont dérivé : " Un homme ne meurt pas sauf pour sa femme [c'est-à-dire qu'elle ressent la perte plus que quiconque].<sup>9</sup><i class="footnote">Masehet Sanhedrin 22b. </i> ([Autre interprétation :] Et il est dit : "Le mari de Naomi", c'est-à-dire que parce qu'il était le mari de Naomi et qu'il régnait sur elle<sup>10</sup><i class="footnote">Voir Rachi dans Bereshit 9:20. </i> et qu'elle lui était subordonnée, l'attribut divin de la justice l'a donc frappé lui et non elle.)<sup>11</sup><i class="footnote">Parce qu'une fois qu'il a décidé de partir, sa femme et ses deux fils ont été obligés de le suivre. </i> 
 
 ### passuk 4
 
@@ -17,7 +17,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Elle a quitté l'endroit.</b> Pourquoi cela est-il indiqué ? Il est déjà précisé : " et elle revint des champs de Mo'av,"<sup>13</sup><i class="footnote">Verset 6. </i> et d'où pouvait-elle revenir si ce n'est de l'endroit où elle avait été ? La phrase nous indique plutôt que le départ d'une personne juste d'un lieu est perceptible et fait impression ; sa splendeur s'en va, sa gloire s'en va, la louange de la ville s'en va. De même, "Et Yaakov quitta Be'er Sheva."<sup>14</sup><i class="footnote">Bereishis 28:10. </i> 
+<b>Elle a quitté l'endroit.</b> Pourquoi cela est-il indiqué ? Il est déjà précisé : " et elle revint des champs de Mo'av,"<sup>13</sup><i class="footnote">Verset 6. </i> et d'où pouvait-elle revenir si ce n'est de l'endroit où elle avait été ? La phrase nous indique plutôt que le départ d'une personne juste d'un lieu est perceptible et fait impression ; sa splendeur s'en va, sa gloire s'en va, la louange de la ville s'en va. De même, "Et Yaakov quitta Be'er Sheva."<sup>14</sup><i class="footnote">Bereshit 28:10. </i> 
 
 ### passuk 8
 
@@ -41,7 +41,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Voyez, votre belle-sur est repartie.</b> Dans ce [mot], l'accent est au début [sur la première syllabe] sous le <i>shin</i>, car il est au passé. [Mais,] "et au matin, elle reviendrait", <sup>22</sup><i class="footnote">Megillas Esther 2:14. </i> l'accent est à la fin [sur la dernière syllabe], sur le <i>bais</i>, parce que c'est au présent, et ainsi dans tous les cas similaires.<sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 29:6. </i> 
+<b>Voyez, votre belle-sur est repartie.</b> Dans ce [mot], l'accent est au début [sur la première syllabe] sous le <i>shin</i>, car il est au passé. [Mais,] "et au matin, elle reviendrait", <sup>22</sup><i class="footnote">Megillas Esther 2:14. </i> l'accent est à la fin [sur la dernière syllabe], sur le <i>bais</i>, parce que c'est au présent, et ainsi dans tous les cas similaires.<sup>23</sup><i class="footnote">Voir Rachi dans Bereshit 29:6. </i> 
 
 ### passuk 16
 <b>Ne me presse pas.</b> Ne me presse pas.

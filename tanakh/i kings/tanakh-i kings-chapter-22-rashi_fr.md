@@ -92,7 +92,7 @@
 
 ### passuk 38
 <b>Et les chiens léchèrent son sang.</b> Je dis que Novos a été tué là, car le prophète a dit : "A l'endroit où les chiens ont léché le sang de Navos, etc."<sup>18</sup><i class="footnote">Au-dessus de 21:19.</i><sup>19</sup><i class="footnote">Mais comment est-ce possible, Navos a été tué à Yizreel alors qu'Achov a été tué à Shomron ? Le Radak suggère que Yizreel était près de Shomron et que l'eau de la piscine de Shomron s'est écoulée vers Yizreel où les chiens ont léché le sang d'Achov qui était mélangé à l'eau.</i>
-<b>Et ils lavèrent les armes [là].</b> Et ils lavèrent le sang des armes là, [Targum] Yonatanh l'a rendu de cette manière. Mais nos rabbins ont dit : "Achov était une personne froide, alors Ezevel a fait pour lui l'image de deux prostituées dans son char.<sup>20</sup><i class="footnote">Masechs Sanhedrin 39b et Rashi là.</i> <sup>21</sup><i class="footnote">Alternativement, "les prostituées s'y baignèrent", dans la piscine de Shomron, qui était maintenant mélangée au sang d'Achov.-Metzudas David</i>
+<b>Et ils lavèrent les armes [là].</b> Et ils lavèrent le sang des armes là, [Targum] Yonathan l'a rendu de cette manière. Mais nos rabbins ont dit : "Achov était une personne froide, alors Ezevel a fait pour lui l'image de deux prostituées dans son char.<sup>20</sup><i class="footnote">Masechs Sanhedrin 39b et Rashi là.</i> <sup>21</sup><i class="footnote">Alternativement, "les prostituées s'y baignèrent", dans la piscine de Shomron, qui était maintenant mélangée au sang d'Achov.-Metzudas David</i>
 
 ### passuk 39
 <b>Le palais d'ivoire.</b> [Fait de] dent d'éléphant [c'est-à-dire d'ivoire].

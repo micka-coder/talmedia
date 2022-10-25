@@ -39,7 +39,7 @@
 <b>Au troisième jour.</b> Du jour suivant. Cela signifie le troisième jour à l'heure actuelle, car demain c'est la nouvelle lune, et demain mon père ne s'étonnera peut-être pas ; mais il s'étonnera le troisième jour.
 
 ### passuk 13
-<b>Qu'Hachem fasse de même à Yonatanh.</b> Le Saint, Béni soit-Il, lorsque j'interroge mon père et que je trouve qu'il est favorable à ton égard, si je ne [envoie pas la parole] par un messager et te révèle, pour le bien, je suis capable de révéler. Mais s'il plaît à mon père de te faire du mal, je ne le révèlerai pas [par messager], de peur que mon père ne sache où tu es,<sup>7</sup><i class="footnote">C'est-à-dire que le messager pourrait plus tard révéler à Shaoul le lieu où se trouve David.</i> mais je te le révélerai personnellement.
+<b>Qu'Hachem fasse de même à Yonathan.</b> Le Saint, Béni soit-Il, lorsque j'interroge mon père et que je trouve qu'il est favorable à ton égard, si je ne [envoie pas la parole] par un messager et te révèle, pour le bien, je suis capable de révéler. Mais s'il plaît à mon père de te faire du mal, je ne le révèlerai pas [par messager], de peur que mon père ne sache où tu es,<sup>7</sup><i class="footnote">C'est-à-dire que le messager pourrait plus tard révéler à Shaoul le lieu où se trouve David.</i> mais je te le révélerai personnellement.
 
 ### passuk 14
 <b>Je ne te [demanderai] pas si je suis encore en vie.</b> Une expression de demande, comme dans et si seulement [<span>וָלאׁ</span>] il sera donné à ton esclave. '<sup>8</sup><i class="footnote">II Melachim 5:17.</i> Il n'est pas éloigné de son sens habituel, 'et ne ferez-vous pas avec moi du bien pendant que je suis encore en vie, et ne ferez-vous pas avec moi la bonté d'Hachem avant de mourir ?'. Et quelle est cette bonté ? Que vous ne cessiez pas votre bonté envers ma famille. A ce sujet, vous ferez un pacte avec moi de mon vivant.
@@ -55,7 +55,7 @@
 
 ### passuk 18
 <b>Demain, c'est la nouvelle lune.</b> Et il est de coutume que tous ceux qui mangent à la table du roi viennent le jour de la fête à la table.
-<b>Et vous manquerez.</b> Vous manquerez à mon père, et il demandera où vous êtes. Car ta place sera vide.<sup>13</sup><i class="footnote">Yonatanh a supposé que par respect pour David, personne n'occuperait sa place.</i> Car la place sur laquelle tu es assis, sera vide, et c'est ainsi que le Targum Yonathan a rendu : 'et on te cherchera, car ta place sera vacante'.
+<b>Et vous manquerez.</b> Vous manquerez à mon père, et il demandera où vous êtes. Car ta place sera vide.<sup>13</sup><i class="footnote">Yonathan a supposé que par respect pour David, personne n'occuperait sa place.</i> Car la place sur laquelle tu es assis, sera vide, et c'est ainsi que le Targum Yonathan a rendu : 'et on te cherchera, car ta place sera vacante'.
 <b>Et tu seras regretté.</b> Une expression de souvenir.
 <b>Et tu seras vide.</b> Une expression de manque.
 
@@ -69,7 +69,7 @@
 
 ### passuk 21
 <b>Attendez, j'enverrai alors...</b> Et il est d'usage que celui qui cherche une flèche tirée se rende à l'endroit où il voit la flèche voler, mais il ne peut pas calculer exactement ; parfois il la cherche, et la flèche est au-delà de lui, et parfois il va au-delà de la flèche et la cherche, et tu devineras avec ce [signe].
-<b>Si je dis au garçon... prends [les flèches] et viens.</sup>22</sup><i class="footnote">Pour signaler l'acceptabilité de David par Shaoul.</i></b> Tu dois sortir de ta cachette, et la prendre, et venir me voir, car tu n'as rien à craindre, car tout va bien pour toi. Le Saint, Béni soit-Il, désire que tu sois ici, et ne crains pas, même si j'ai entendu du mal de [mon] père.<sup>23</sup><i class="footnote">Il est évident que Rachi considère que Yonatanh a utilisé le tir des flèches comme une forme de divination pour déterminer si <span>ה׳</span> voulait que David reste ou s'enfuie. Selon Rachi, Yonatanh n'a pas prévu de tirer les flèches en fonction de l'attitude de Shaoul à l'égard de David, c'est-à-dire qu'il tirerait les flèches à proximité comme un signal pour que David revienne si la réponse de Shaoul était favorable à David ; et il tirerait les flèches au loin pour indiquer à David de s'enfuir si la réponse de Shaoul était défavorable à David.</i>
+<b>Si je dis au garçon... prends [les flèches] et viens.</sup>22</sup><i class="footnote">Pour signaler l'acceptabilité de David par Shaoul.</i></b> Tu dois sortir de ta cachette, et la prendre, et venir me voir, car tu n'as rien à craindre, car tout va bien pour toi. Le Saint, Béni soit-Il, désire que tu sois ici, et ne crains pas, même si j'ai entendu du mal de [mon] père.<sup>23</sup><i class="footnote">Il est évident que Rachi considère que Yonathan a utilisé le tir des flèches comme une forme de divination pour déterminer si <span>ה׳</span> voulait que David reste ou s'enfuie. Selon Rachi, Yonathan n'a pas prévu de tirer les flèches en fonction de l'attitude de Shaoul à l'égard de David, c'est-à-dire qu'il tirerait les flèches à proximité comme un signal pour que David revienne si la réponse de Shaoul était favorable à David ; et il tirerait les flèches au loin pour indiquer à David de s'enfuir si la réponse de Shaoul était défavorable à David.</i>
 
 ### passuk 22
 <b>Mais, si je dis ainsi... alors va car Hachem t'a renvoyé.</b> Le Saint, Béni soit-Il, te dit de t'enfuir et de t'échapper.
@@ -82,7 +82,7 @@
 
 ### passuk 25
 <b>Sur le siège contre le mur.</b> A la tête du canapé, près du mur.
-<b>Yonatanh se leva.</b> Il se leva de sa place, car il n'est pas convenable pour un fils de s'allonger à côté de son père;</sup>24</sup><i class="footnote">D'autres suggèrent que Yonatanh voulait garder ses distances avec Shaoul et que sa démonstration de respect n'était qu'une apparence.</i> leur habitude était de manger en s'allongeant sur des lits, et David s'allongeait entre Yonatanh et Shaoul. Maintenant que David n'est pas venu, Yonatanh ne s'est pas allongé jusqu'à ce qu'Avneir se soit assis à côté de Shaoul, et après, Yonatanh s'est assis à côté d'Avneir. Et si l'on dit qu'il ne s'est pas assis du tout, l'Écriture déclare : 'Et Yonatanh se leva de la table'<sup>25</sup><i class="footnote">Verset 34 ci-dessous.</i> ce qui implique qu'il s'était assis.
+<b>Yonathan se leva.</b> Il se leva de sa place, car il n'est pas convenable pour un fils de s'allonger à côté de son père;</sup>24</sup><i class="footnote">D'autres suggèrent que Yonathan voulait garder ses distances avec Shaoul et que sa démonstration de respect n'était qu'une apparence.</i> leur habitude était de manger en s'allongeant sur des lits, et David s'allongeait entre Yonathan et Shaoul. Maintenant que David n'est pas venu, Yonathan ne s'est pas allongé jusqu'à ce qu'Avneir se soit assis à côté de Shaoul, et après, Yonathan s'est assis à côté d'Avneir. Et si l'on dit qu'il ne s'est pas assis du tout, l'Écriture déclare : 'Et Yonathan se leva de la table'<sup>25</sup><i class="footnote">Verset 34 ci-dessous.</i> ce qui implique qu'il s'était assis.
 
 ### passuk 26
 <b>Il s'est passé quelque chose.</b> Il a expérimenté [une décharge de] sperme.
@@ -102,7 +102,7 @@
 ### passuk 30
 <b>Une femme égarée, méritant un châtiment.</b><span>נָע</span> est une expression d'égarement et de vagabondage, une femme godiche. De même que vous avez <span>זַעֲוָה</span> de <span>זָע</span>, de même vous avez <span>נַעֲוָה</span> de <span>נָע</span>, et le '<span>ת</span> est pour l'état de construction, car il est relié à <span>הַמַּרְדּוּת</span>.
 <b>Méritant une punition.</b> Qui mérite d'être châtié et discipliné. Une autre explication est que lorsque les hommes de Binyamin ont saisi les jeunes filles de Shiloh, qui sortaient pour danser dans les vignes,<sup>30</sup><i class="footnote">Voir Shoftim 21:20-21.</i> Shaul était pudique, et ne voulait pas saisir, jusqu'à ce qu'elle vienne elle-même, se comportant de manière insolente, et le poursuive.
-<b>Traînée.</b> A cause des vignes. Et c'est le pressoir, comme dans 'purge le pressoir'<sup>31</sup><i class="footnote">Masehet Avodah Zorah 74b.</i> [et] 'Ses pressoirs dégoulineront de vin'<sup>32</sup><i class="footnote">Bereishis 49:12 Targum Unkelus.</i> dans la traduction du Targum de 'Ses yeux sont rouges [de vin]'.
+<b>Traînée.</b> A cause des vignes. Et c'est le pressoir, comme dans 'purge le pressoir'<sup>31</sup><i class="footnote">Masehet Avodah Zorah 74b.</i> [et] 'Ses pressoirs dégoulineront de vin'<sup>32</sup><i class="footnote">Bereshit 49:12 Targum Unkelus.</i> dans la traduction du Targum de 'Ses yeux sont rouges [de vin]'.
 
 ### passuk 31
 
@@ -112,7 +112,7 @@
 
 ### passuk 34
 <b>Il était attristé à cause de David.</b> A propos de David.
-<b>Parce que son père l'avait humilié.</b> Concernant David.</sup></sup><i class="footnote">Yonatanh n'a pas mangé de nourriture le deuxième jour de la Nouvelle Lune pour deux raisons et les deux étaient 'concernant David'. Premièrement, il était "attristé" par le fait que son père voulait tuer David et deuxièmement, parce que son père l'avait "humilié" à la fois par des insultes et par ses actes (lancer la lance).
+<b>Parce que son père l'avait humilié.</b> Concernant David.</sup></sup><i class="footnote">Yonathan n'a pas mangé de nourriture le deuxième jour de la Nouvelle Lune pour deux raisons et les deux étaient 'concernant David'. Premièrement, il était "attristé" par le fait que son père voulait tuer David et deuxièmement, parce que son père l'avait "humilié" à la fois par des insultes et par ses actes (lancer la lance).
 
 ### passuk 35
 <b>Pour la rencontre avec David.</b> A l'heure que David lui avait fixée.
@@ -130,7 +130,7 @@
 
 ### passuk 41
 <b>Du côté sud.</b> [Le Targum rend,] "du côté de la pierre de repère qui était vers le sud".
-<b>Jusqu'à ce que David ait dépassé.</b> C'est-à-dire qu'il a crié plus.<sup>34</sup><i class="footnote">C'est-à-dire "plus que Yonatanh". Cependant, selon Ralbag, "plus que ce qui est approprié". David a pleuré plus que Yonatanh parce que contrairement à Yonatanh qui pouvait rentrer chez lui maintenant, David devait fuir Shaul qui cherchait à le tuer.</i>
+<b>Jusqu'à ce que David ait dépassé.</b> C'est-à-dire qu'il a crié plus.<sup>34</sup><i class="footnote">C'est-à-dire "plus que Yonathan". Cependant, selon Ralbag, "plus que ce qui est approprié". David a pleuré plus que Yonathan parce que contrairement à Yonathan qui pouvait rentrer chez lui maintenant, David devait fuir Shaul qui cherchait à le tuer.</i>
 
 ### passuk 42
 <b>Venez à la paix.</b> Et le serment que nous avons prêté, que <span>ה׳</span> en soit le témoin à jamais.

@@ -49,7 +49,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Avec ruse.</b> Avec ruse, une expression de "וַיַּעְקְבֵנִי [=il m'a séduit]."<sup>8</sup><i class="footnote">Bereishis 27:36.</i>
+<b>Avec ruse.</b> Avec ruse, une expression de "וַיַּעְקְבֵנִי [=il m'a séduit]."<sup>8</sup><i class="footnote">Bereshit 27:36.</i>
 
 ### passuk 20
 <b>"Sanctifier une assemblée."</b> [C'est-à-dire] annoncer une assemblée,<sup>9</sup><i class="footnote">Alternativement, "Annoncer une cessation de travail [= עֲצָרָה]." Voir Rachi dans Bamidbar 29:35.</i> qu'ils s'assemblent dans le temple du Baal.
@@ -57,7 +57,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>De l'armoire. </b> [Targum] Yonatanh a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
+<b>De l'armoire. </b> [Targum] Yonathan a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
 
 ### passuk 23
 
@@ -84,7 +84,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereishis 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
+<b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereshit 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -138,7 +138,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Avec ruse.</b> Avec ruse, une expression de "וַיַּעְקְבֵנִי [=il m'a séduit]."<sup>8</sup><i class="footnote">Bereishis 27:36.</i>
+<b>Avec ruse.</b> Avec ruse, une expression de "וַיַּעְקְבֵנִי [=il m'a séduit]."<sup>8</sup><i class="footnote">Bereshit 27:36.</i>
 
 ### passuk 20
 <b>"Sanctifier une assemblée."</b> [C'est-à-dire] annoncer une assemblée,<sup>9</sup><i class="footnote">Alternativement, "Annoncer une cessation de travail [= עֲצָרָה]." Voir Rachi dans Bamidbar 29:35.</i> qu'ils s'assemblent dans le temple du Baal.
@@ -146,7 +146,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>De l'armoire. </b> [Targum] Yonatanh a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
+<b>De l'armoire. </b> [Targum] Yonathan a rendu : "לְדִמְמָנָא עַל קוֹמַטְרַיָּא [=à celui qui est nommé sur l'armoire], "Les coffres et les boîtes dans lesquels ils emballent et stockent les vêtements de cérémonie des adorateurs de Baal.
 
 ### passuk 23
 
@@ -173,7 +173,7 @@
 ### passuk 31
 
 ### passuk 32
-<b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereishis 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
+<b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereshit 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
 
 >Crédit : sefaris
 >Licence : CC-BY

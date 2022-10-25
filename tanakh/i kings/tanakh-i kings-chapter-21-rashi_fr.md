@@ -28,7 +28,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Navos maudit.</b> Un euphémisme pour maudire. Et le Targum [Yonatanh a rendu], Navos a blasphémé contre Dieu et maudit le roi.<sup>2</sup><i class="footnote">Ce qui le rend passible de mort pour l'une ou l'autre des offenses. La raison de la mention des deux offenses est d'éveiller la colère du peuple contre Navos et ainsi il serait exécuté rapidement. Voir Masehet Sanhedrin 48b.-Metzudas David</i>.
+<b>Navos maudit.</b> Un euphémisme pour maudire. Et le Targum [Yonathan a rendu], Navos a blasphémé contre Dieu et maudit le roi.<sup>2</sup><i class="footnote">Ce qui le rend passible de mort pour l'une ou l'autre des offenses. La raison de la mention des deux offenses est d'éveiller la colère du peuple contre Navos et ainsi il serait exécuté rapidement. Voir Masehet Sanhedrin 48b.-Metzudas David</i>.
 
 ### passuk 14
 

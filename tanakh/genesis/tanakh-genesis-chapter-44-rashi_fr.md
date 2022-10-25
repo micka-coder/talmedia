@@ -16,7 +16,7 @@
 <b>Ce serait dégradant pour tes serviteurs.</b> C'est une chose profane pour nous [חָלִילָה est] l'expression de quelque chose de honteux. Onkelos, cependant, le traduit par : " Que tes serviteurs soient épargnés ", [c'est-à-dire] que Dieu nous épargne de faire une telle chose. Cela apparaît souvent dans le Talmud comme חַס וְשָׁלוֹם -Dieu nous en préserve. 
 
 ### passuk 8
-<b>Regardez l'argent que nous avons trouvé.</b> C'est l'une des dix déductions <i>a fortiori</i> que l'on trouve dans les Écritures, qui sont toutes énumérées dans Bereishis Rabbah. 
+<b>Regardez l'argent que nous avons trouvé.</b> C'est l'une des dix déductions <i>a fortiori</i> que l'on trouve dans les Écritures, qui sont toutes énumérées dans Bereshit Rabbah. 
 
 ### passuk 9
 

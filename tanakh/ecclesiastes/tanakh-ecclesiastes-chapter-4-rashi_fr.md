@@ -55,7 +55,7 @@
 <b>Mieux vaut un enfant pauvre mais sage.</b> C'est le bon penchant, et pourquoi est-il appelé "enfant" ? Parce qu'il ne vient à une personne qu'à l'âge de treize ans.<sup>19</sup><i class="footnote">Alternativement, ce verset fait référence à Avraham qui eut une prophétie divine à l'âge de trois ans et refusa de se prosterner devant les idoles de Nimrod. (Targum) </i>. 
 <b>Pauvre.</b> Parce que les membres ne lui obéissent pas, comme [ils obéissent] au mauvais penchant.</sup></sup><i class="footnote">Selon Rachi que ce verset fait référence au bon penchant et au mauvais penchant, l'expression "meilleur" est quelque peu difficile, car "meilleur" implique que les deux sont "bons" et que l'un est "meilleur" que l'autre, mais quel "bon" peut être attribué au mauvais penchant. Le Amtachas Binyamin suggère donc que le premier mem de ממלך ne signifie pas "que" mais plutôt "à la suite de", c'est-à-dire qu'il est préférable de suivre le bon penchant "à la suite de la défaite, après une lutte, du mauvais penchant, par opposition à celui qui n'a pas été exposé au mauvais penchant, où la probabilité est plus grande qu'il soit séduit. </i> 
 <b>Sage.</b> Ce qui donne à une personne l'intelligence de [suivre] la bonne voie.
-<b>Qu'un roi vieux et insensé.</b> C'est le mauvais penchant, qui règne sur tous les membres. "Vieux", car lorsqu'un enfant naît, il lui vient,<sup>21</sup><i class="footnote">Le mauvais penchant est qualifié de "roi" car tous lui obéissent, et de "vieux" car il s'inscrit dans l'homme bien avant le bon penchant. </i> comme il est dit, "le péché repose à l'ouverture."<sup>22</sup><i class="footnote">Bereishis 4:7. </i> <b>Et insensé.</b> Parce qu'il l'égare dans la voie du mal. Il est exposé dans le Midrash de cette manière .
+<b>Qu'un roi vieux et insensé.</b> C'est le mauvais penchant, qui règne sur tous les membres. "Vieux", car lorsqu'un enfant naît, il lui vient,<sup>21</sup><i class="footnote">Le mauvais penchant est qualifié de "roi" car tous lui obéissent, et de "vieux" car il s'inscrit dans l'homme bien avant le bon penchant. </i> comme il est dit, "le péché repose à l'ouverture."<sup>22</sup><i class="footnote">Bereshit 4:7. </i> <b>Et insensé.</b> Parce qu'il l'égare dans la voie du mal. Il est exposé dans le Midrash de cette manière .
 <b>Qui ne sait plus comment être vigilant.</b> Parce qu'il a vieilli et n'accepte plus les réprimandes.
 
 ### passuk 14
@@ -65,7 +65,7 @@
 <b>Il est né.</b> נוֹלַד signifie] "devient", et il est au présent. 
 
 ### passuk 15
-<b>J'ai observé que tous les vivants, etc.</b> J'ai trouvé dans le Midrash de ce Livre, que cela fait référence à la génération du déluge, à propos duquel il est dit : "Et de tout être vivant."<sup>26</sup><i class="footnote">Bereishis 6:19. </i> 
+<b>J'ai observé que tous les vivants, etc.</b> J'ai trouvé dans le Midrash de ce Livre, que cela fait référence à la génération du déluge, à propos duquel il est dit : "Et de tout être vivant."<sup>26</sup><i class="footnote">Bereshit 6:19. </i> 
 <b>Soutenaient le jeune successeur.</b> Qui existera à la place de cette génération, c'est-à-dire No'ach et ses fils. 
 
 ### passuk 16

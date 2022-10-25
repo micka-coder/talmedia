@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Le Beis Lechemite.</b> De Beis Lechem. La règle de tout nom composé de deux mots, par exemple Beis Lechem, Beis Shemesh, Beis Eil, Kiryas Arba, si l'on veut ajouter un '<span>ה</span>', on l'ajoute entre les deux mots, par exemple, Kiryas Ha'arba,<sup>1</sup><i class="footnote"> Bereishis 35:27.</i> Beis Ha'Eili,<sup>2</sup><i class="footnote"> I Melachim 16:34.</i> Beis Ha'lachmi.
+<b>Le Beis Lechemite.</b> De Beis Lechem. La règle de tout nom composé de deux mots, par exemple Beis Lechem, Beis Shemesh, Beis Eil, Kiryas Arba, si l'on veut ajouter un '<span>ה</span>', on l'ajoute entre les deux mots, par exemple, Kiryas Ha'arba,<sup>1</sup><i class="footnote"> Bereshit 35:27.</i> Beis Ha'Eili,<sup>2</sup><i class="footnote"> I Melachim 16:34.</i> Beis Ha'lachmi.
 
 ### passuk 2
 

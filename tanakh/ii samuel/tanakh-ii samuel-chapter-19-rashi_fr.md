@@ -109,13 +109,13 @@
 
 ### passuk 43
 <b>Parce que le roi est proche de nous.</b> Il est de notre tribu.
-<b>On a des cadeaux.</b> Comme on le trouve, "Un cadeau".</sup></sup><i class="footnote">Bereishis 43:34.</i> Un cadeau du palais du roi.
+<b>On a des cadeaux.</b> Comme on le trouve, "Un cadeau".</sup></sup><i class="footnote">Bereshit 43:34.</i> Un cadeau du palais du roi.
 
 ### passuk 44
 <b>Nous avons dix parts du roi.</b> Parce que nous sommes en tout dix tribus.
 <b>Et aussi plus de droit sur David.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
 <b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Israël parviennent au roi."
-<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonatanh, "accablé".
+<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonathan, "accablé".
 
 >Crédit : sefaris
 >License : CC-BY
@@ -229,13 +229,13 @@
 
 ### passuk 43
 <b>Parce que le roi est proche de nous.</b> Il est de notre tribu.
-<b>On a des cadeaux.</b> Comme on le trouve, "Un cadeau".</sup></sup><i class="footnote">Bereishis 43:34.</i> Un cadeau du palais du roi.
+<b>On a des cadeaux.</b> Comme on le trouve, "Un cadeau".</sup></sup><i class="footnote">Bereshit 43:34.</i> Un cadeau du palais du roi.
 
 ### passuk 44
 <b>Nous avons dix parts du roi.</b> Parce que nous sommes en tout dix tribus.
 <b>Et aussi plus de droit sur David.</b> Bien qu'il soit un parent plus proche du vôtre néanmoins nous avons plus de droit de propriété sur lui que vous car nous avons dix parts [de lui].
 <b>Pourquoi vous êtes-vous moqué de moi ?</b> Que vous soyez le premier, n'ai-je pas été le premier à demander le retour de mon roi ? Avant cela, notre demande lui est parvenue pour qu'il revienne comme il est écrit plus haut,<sup>9</sup><i class="footnote"></i> "alors que les messages de tout Israël parviennent au roi."
-<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonatanh, "accablé".
+<b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonathan, "accablé".
 
 >Crédit : sefaris
 >Licence : CC-BY

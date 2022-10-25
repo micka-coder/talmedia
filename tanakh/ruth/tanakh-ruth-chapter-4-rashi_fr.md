@@ -2,7 +2,7 @@
 ### passuk 1
 <b>Untel.</b> Mais son nom n'a pas été écrit parce qu'il n'a pas voulu racheter.<sup>1</sup><i class="footnote">La personne' s'appelait Tov (Voir ci-dessus 3:13). Son nom est omis car il ne s'est pas acquitté de son devoir de parent. Il n'a donc pas mérité d'être enregistré comme Tov [=bon]. </i> 
 <b>Untel.</b>  פְּלֹנִי אַלְמֹנִי  est rendu [en araméen] dans les Prophètes par "caché et secret". 
-<b>Donc.</b>  פְּלֹנִי  signifie] couvert et dissimulé, [comme dans] l'expression de : "Si l'on dissimule  יִפָּלֵא"<sup>2</sup><i class="footnote">Devarim 17:8. </i> et "Y a-t-il quelque chose de caché  הֲיִפָּלֵא  d'Hachem ?"<<sup>3</sup><i class="footnote">Bereishis 18:14. </i> 
+<b>Donc.</b>  פְּלֹנִי  signifie] couvert et dissimulé, [comme dans] l'expression de : "Si l'on dissimule  יִפָּלֵא"<sup>2</sup><i class="footnote">Devarim 17:8. </i> et "Y a-t-il quelque chose de caché  הֲיִפָּלֵא  d'Hachem ?"<<sup>3</sup><i class="footnote">Bereshit 18:14. </i> 
 <b>Et ainsi.</b>  אַלְמֹנִי  signifie veuve, sans nom. (Autre version : [Il est appelé]  אַלְמֹנִי  parce qu'il était veuf des paroles de la Torah, car il aurait dû expliquer : " [Seul] un Ammonite [est interdit dans le mariage avec une femme juive], mais pas une Ammonitesse [c'est-à-dire qu'une femme Ammonite n'est pas interdite dans le mariage avec un homme juif] ; un Mo'avite, mais pas une Mo'avite. " Pourtant, il a dit : " Car je gâcherais mon propre héritage "). 
 
 ### passuk 2

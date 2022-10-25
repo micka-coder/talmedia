@@ -65,7 +65,7 @@
 
 ### passuk 17
 <b>Une couverture.</b> [Le כַּפֹּרֶת est] la couverture de l'arche qui était [construite] ouverte au sommet. Il l'a placé [le couvercle] sur le dessus comme une planche plate.
-<b>Deux amohs et demi de long.</b> C'est-à-dire de la même longueur que l'arche. Et sa largeur était la même que celle de l'arche. Elle reposait sur l'épaisseur des quatre parois [de l'arche]. Bien qu'il ne donne aucune taille pour son épaisseur (de la couverture), nos Sages ont expliqué que son épaisseur était un <i>téfach.</i> 
+<b>Deux amahs et demi de long.</b> C'est-à-dire de la même longueur que l'arche. Et sa largeur était la même que celle de l'arche. Elle reposait sur l'épaisseur des quatre parois [de l'arche]. Bien qu'il ne donne aucune taille pour son épaisseur (de la couverture), nos Sages ont expliqué que son épaisseur était un <i>téfach.</i> 
 
 ### passuk 18
 <b>Cherubim.</b> Ils avaient la ressemblance avec le visage d'un enfant.

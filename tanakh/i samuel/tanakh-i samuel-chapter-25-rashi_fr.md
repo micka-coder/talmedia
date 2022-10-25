@@ -15,7 +15,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Ainsi.</b> Ainsi sera-t-il [tondre] l'année prochaine.<sup>3</sup><i class="footnote">Voir Rachi dans Bereishis 18:10.</i> Ainsi sera-t-il l'année prochaine, vivant et durable.) Une autre version est : <b>Ainsi pour les vivants.</b> Dis ceci à propos de son repas et de son vin que tu verras : "Ainsi convient-il à un homme vivant, c'est-à-dire actif et estimé", comme dans "...était un homme vivant aux nombreux actes héroïques"<sup>4</sup><i class="footnote">II Shmuel 23:20.</i> [c'est-à-dire] vivant et actif dans tous ses actes.
+<b>Ainsi.</b> Ainsi sera-t-il [tondre] l'année prochaine.<sup>3</sup><i class="footnote">Voir Rachi dans Bereshit 18:10.</i> Ainsi sera-t-il l'année prochaine, vivant et durable.) Une autre version est : <b>Ainsi pour les vivants.</b> Dis ceci à propos de son repas et de son vin que tu verras : "Ainsi convient-il à un homme vivant, c'est-à-dire actif et estimé", comme dans "...était un homme vivant aux nombreux actes héroïques"<sup>4</sup><i class="footnote">II Shmuel 23:20.</i> [c'est-à-dire] vivant et actif dans tous ses actes.
 <b>Qu'il en soit toujours ainsi.</b> Bon et durable.
 <b>Paix à vous...</b> Il en sera ainsi pendant longtemps.</sup>5</sup><i class="footnote">Et pour souligner sa longévité, ils mentionnent <span>שַׁלוֹם</span> [=la paix] trois fois dans leur déclaration.</i>
 
@@ -43,7 +43,7 @@
 
 ### passuk 14
 <b>Un parmi les jeunes.</b> Un parmi les siens.
-<b>Mais il les chassa.</b> Il les chassa par la parole, expression de <span>עַיׅט</span> [=oiseau].<sup>12</sup><i class="footnote">Bereishis 15:11. D'autres traduisent <span>וַיָעַט</span> par 'il les a chassés' à partir de la racine <span>בעט</span>, comme dans Devarim 32:15.</i>
+<b>Mais il les chassa.</b> Il les chassa par la parole, expression de <span>עַיׅט</span> [=oiseau].<sup>12</sup><i class="footnote">Bereshit 15:11. D'autres traduisent <span>וַיָעַט</span> par 'il les a chassés' à partir de la racine <span>בעט</span>, comme dans Devarim 32:15.</i>
 
 ### passuk 15
 <b>Nous n'avons pas eu honte.</b> Nous n'avons pas été déshonorés.
@@ -101,7 +101,7 @@
 ### passuk 32
 
 ### passuk 33
-<b>Qui m'a empêché.</b> Tu m'as arrêté, comme dans 'Tu n'arrêteras pas [<span>תִכְלָא</span>] ta miséricorde,'<sup>22</sup><i class="footnote">Tehillim 40:12. </i> [et] 'ne t'arrêtera pas [<span>יׅכְלֶה</span>].'<sup>23</sup><i class="footnote">Bereishis 23:6.</i>
+<b>Qui m'a empêché.</b> Tu m'as arrêté, comme dans 'Tu n'arrêteras pas [<span>תִכְלָא</span>] ta miséricorde,'<sup>22</sup><i class="footnote">Tehillim 40:12. </i> [et] 'ne t'arrêtera pas [<span>יׅכְלֶה</span>].'<sup>23</sup><i class="footnote">Bereshit 23:6.</i>
 <b>Et de me venger de ma propre main.</b> Ceci est lié à [la phrase], 'd'en venir à l'effusion de sang'. Le '<span>מ</span>' [=de] de [<span>מִבּוֹא</span>] est lié à 'et à la vengeance', ce qui signifie, 'de venir dans l'effusion de sang et de me venger de ma propre main'.
 
 ### passuk 34

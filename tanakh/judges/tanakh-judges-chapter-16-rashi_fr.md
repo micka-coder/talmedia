@@ -64,7 +64,7 @@
 <b>Entre les piliers</b> qui soutenaient le bâtiment.
 
 ### passuk 26
-<b>Et me donner une prise.</b> "Palpare" en vieux français, comme dans, "Peut-être que mon père me touchera."<sup>6</sup><i class="footnote">Bereishis, 27:12.</i>
+<b>Et me donner une prise.</b> "Palpare" en vieux français, comme dans, "Peut-être que mon père me touchera."<sup>6</sup><i class="footnote">Bereshit, 27:12.</i>
 
 ### passuk 27
 

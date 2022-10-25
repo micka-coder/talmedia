@@ -29,7 +29,7 @@
 
 ### passuk 11
 <b>Du reste des géants - </b> qui ont été tués par Amrafel et ses alliés à Ashteros Karnayim, et il (Og) s'est échappé de la bataille, comme il est dit : "Et celui qui s'est échappé est venu", et cela faisait référence à Og. 
-<b>Dans le <i>amoh.</i></b> - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le <i>amoh</i> d'Og.
+<b>Dans le <i>amah.</i></b> - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le <i>amah</i> d'Og.
 
 ### passuk 12
 <b>Et cette terre.</b> "Cette terre" fait référence à la terre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> mentionnée ci-dessus, "De Wadi Arnon au Mont Chermon". 

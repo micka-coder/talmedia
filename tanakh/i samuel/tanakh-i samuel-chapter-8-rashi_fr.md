@@ -19,7 +19,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Mais avertissez-les.<sup>6</sup><i class="footnote">Voir Bereishis 43:3.</i></b> Avertissez-les que la crainte de leur roi soit sur eux.<sup>7</sup><i class="footnote">Afin d'impressionner les Bnei Israël avec une crainte pour la monarchie, c'est-à-dire la position du roi, Shmuel a été chargé de leur enseigner l'honneur dû à un roi de Israël.</i>
+<b>Mais avertissez-les.<sup>6</sup><i class="footnote">Voir Bereshit 43:3.</i></b> Avertissez-les que la crainte de leur roi soit sur eux.<sup>7</sup><i class="footnote">Afin d'impressionner les Bnei Israël avec une crainte pour la monarchie, c'est-à-dire la position du roi, Shmuel a été chargé de leur enseigner l'honneur dû à un roi de Israël.</i>
 
 ### passuk 10
 

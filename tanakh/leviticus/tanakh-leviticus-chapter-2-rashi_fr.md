@@ -9,7 +9,7 @@
 
 ### passuk 2
 <b>Les kohanim, et il prend [sa] poignée - </b>à partir de la prise de la poignée, c'est un mitzvoh [qui doit être accompli] par le כְּהוּנָה . 
-<b>Il prend [sa] poignée de là - </b>de l'endroit où se tiennent les pieds d'un non-<i>Cohen</i> - pour vous apprendre que la prise de la poignée est valable dans toute la cour, même dans les onze <i>amoh</i> de l'endroit où les Israélites peuvent marcher. 
+<b>Il prend [sa] poignée de là - </b>de l'endroit où se tiennent les pieds d'un non-<i>Cohen</i> - pour vous apprendre que la prise de la poignée est valable dans toute la cour, même dans les onze <i>amah</i> de l'endroit où les Israélites peuvent marcher. 
 <b>Sa pleine poignée.</b> Peut-être doit-elle être pleine à craquer - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> débordant de tous côtés ? Le verset dit à un autre endroit : "il se séparera de <i>cela</i>" - seul ce qui se trouve dans la poignée devrait être valable. Si [il est écrit] "dans sa poignée", peut-être qu'elle [peut être offerte] moins que pleine ? Le verset dit : "pleine". Comment cela se fait-il ? Il couvre la paume de sa main [avec] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>trois doigts, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et c'est le sens de "poignée" en langue hébraïque. 
 <b>Avec</b> <b>tout son encens,</b> la poignée doit être pleine, à part l'encens. 
 <b>Son encens et il brûlera</b> l'encens <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>doit également être brûlé.

@@ -78,7 +78,7 @@
 ### passuk 25
 
 ### passuk 26
-<b>Il est bon d'espérer dans le calme.</b> Le <i>vav</i> de וְיָחִיל est superflu tout comme le <i>vav</i> de "וְאַיָּה וַעֲנָה"<sup>23</sup><i class="footnote">Bereishis 36:24. </i> [est superflu dans וְאַיָּה. Il est bon pour l'homme d'espérer, de se taire et d'attendre le salut de Dieu. 
+<b>Il est bon d'espérer dans le calme.</b> Le <i>vav</i> de וְיָחִיל est superflu tout comme le <i>vav</i> de "וְאַיָּה וַעֲנָה"<sup>23</sup><i class="footnote">Bereshit 36:24. </i> [est superflu dans וְאַיָּה. Il est bon pour l'homme d'espérer, de se taire et d'attendre le salut de Dieu. 
 
 ### passuk 27
 
@@ -107,7 +107,7 @@
 ### passuk 35
 
 ### passuk 36
-<b>Ne cautionne pas.</b> Il n'approuve pas que le tribunal céleste déforme le différend d'une personne, comme dans : " Qu'as-tu vu רָאִיתָ que tu as fait, etc. "<sup>29</sup><i class="footnote">Bereishis 20:10. </i> 
+<b>Ne cautionne pas.</b> Il n'approuve pas que le tribunal céleste déforme le différend d'une personne, comme dans : " Qu'as-tu vu רָאִיתָ que tu as fait, etc. "<sup>29</sup><i class="footnote">Bereshit 20:10. </i> 
 
 ### passuk 37
 <b>Quiconque a émis une déclaration qui a pris effet, etc.</b>. 
@@ -190,7 +190,7 @@
 ### passuk 64
 
 ### passuk 65
-<b>Briser leurs cœurs.</b> Une brisure du cœur, comme [l'Écriture] le dit : "Je te briserai, ô Israël,"<sup>42</sup><i class="footnote">Hosheia 11:8. </i> [et comme dans,] "qui a brisé tes adversaires dans ta main."<sup>43</sup><i class="footnote">Bereishis 14:20. </i> Une autre explication de מְגִנַּת לֵב est " arrêt du cœur ", trouble et soupirs, qui sont comme un bouclier contre leur cœur. Mais celui qui l'explique comme une expression de chagrin a tort, car il n'y a pas de <i>nun</i> dans ce mot, car le <i>nun</i> de יָגוֹן n'est pas un radical, mais il est comme le <i>nun</i> de הָמוֹן issu de la [même] racine que הָמוּ גוֹיִם, et comme le <i>nun</i> de קָלוֹן de la racine de נִקְלֶה, et comme le <i>nun</i> de צִיּוֹן de la racine de צִיָּה, et de même le <i>nun</i> de שִׁבְרוֹן de la racine de שֶׁבֶר. (et comme le <i>nun</i> de שִׁמָּמוֹן et שִׁגָּעוֹן. Il me semble que c'est la lecture correcte, et cela est facile à comprendre). 
+<b>Briser leurs cœurs.</b> Une brisure du cœur, comme [l'Écriture] le dit : "Je te briserai, ô Israël,"<sup>42</sup><i class="footnote">Hosheia 11:8. </i> [et comme dans,] "qui a brisé tes adversaires dans ta main."<sup>43</sup><i class="footnote">Bereshit 14:20. </i> Une autre explication de מְגִנַּת לֵב est " arrêt du cœur ", trouble et soupirs, qui sont comme un bouclier contre leur cœur. Mais celui qui l'explique comme une expression de chagrin a tort, car il n'y a pas de <i>nun</i> dans ce mot, car le <i>nun</i> de יָגוֹן n'est pas un radical, mais il est comme le <i>nun</i> de הָמוֹן issu de la [même] racine que הָמוּ גוֹיִם, et comme le <i>nun</i> de קָלוֹן de la racine de נִקְלֶה, et comme le <i>nun</i> de צִיּוֹן de la racine de צִיָּה, et de même le <i>nun</i> de שִׁבְרוֹן de la racine de שֶׁבֶר. (et comme le <i>nun</i> de שִׁמָּמוֹן et שִׁגָּעוֹן. Il me semble que c'est la lecture correcte, et cela est facile à comprendre). 
 <b>[Fais d'eux] des fous.</b> תַּאֲלָתְךָ est] une expression de [folie,<sup>44</sup><i class="footnote">Alternativement, une expression de souffrance, c'est-à-dire 'tourne Ta souffrance, pour ainsi dire, vers eux [nos ennemis]'. Chaque fois que les Bnei Israël souffrent, Dieu souffre, pour ainsi dire, avec eux. Ou תאלתך est l'expression d'une malédiction [אלה], c'est-à-dire : 'fais tomber sur eux les malédictions [écrites dans la Torah]'. </i> comme dans], "les princes de Tzo'an sont devenus insensés נוֹאֲלוּ."<sup>45</sup><i class="footnote">Yeshayahuu 19:13. </i> 
 
 >Crédit : sefaris

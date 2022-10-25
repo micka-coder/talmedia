@@ -18,11 +18,11 @@
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
-<b>Destruction de la mort.</b> Comme le traduit [Yonatanh], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
+<b>Destruction de la mort.</b> Comme le traduit [Yonathan], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
 <b>Le déluge.</b> Les soldats se déversent comme un torrent.
 
 ### passuk 6
-<b>L'agonie.</b> Comme [Yonatanh] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
+<b>L'agonie.</b> Comme [Yonathan] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
 <b>Etaient devant moi.</b> Sont venus devant moi.
 
 ### passuk 7
@@ -119,7 +119,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
+<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereshit 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereshit 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
 
 ### passuk 43
 <b>Je les piétinerai.</b> Je les piétinerai. Il y a de nombreux cas de ce genre dans le livre de Yechezkiel, [comme] "Tu les piétineras avec tes pieds"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [et] "Tu as piétiné avec [ton] pied."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>.
@@ -161,11 +161,11 @@
 
 ### passuk 5
 <b>M'a entouré.</b> M'a entouré.
-<b>Destruction de la mort.</b> Comme le traduit [Yonatanh], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
+<b>Destruction de la mort.</b> Comme le traduit [Yonathan], "Comme une femme assise sur la chaise d'accouchement", c'est le nom du siège de pierre où les femmes accouchent.<sup>8</sup><i class="footnote">Son nom en hébreu est <span>מַשְׁבֵּר</span>.</i>
 <b>Le déluge.</b> Les soldats se déversent comme un torrent.
 
 ### passuk 6
-<b>L'agonie.</b> Comme [Yonatanh] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
+<b>L'agonie.</b> Comme [Yonathan] le traduit, "Groupes", comme [nous trouvons], "Groupe de prophètes."<sup>9</sup><i class="footnote">Shmuel I, 10:5.</i>
 <b>Etaient devant moi.</b> Sont venus devant moi.
 
 ### passuk 7
@@ -262,7 +262,7 @@
 ### passuk 41
 
 ### passuk 42
-<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereishis 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereishis 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
+<b>Ils ont crié qu'il n'y avait personne pour les délivrer. </b> Les mots du verset ne sont pas écrits dans l'ordre [le bon ordre devrait être] "Ils crieront à Hachem mais Il ne leur répondra pas et personne ne les délivrera"<sup>27</sup><i]. class="footnote">Les deux mots <span>ואין מושיע</span> doivent être retirés de leur position au début du verset et placés à la place à la fin du verset comme ses deux derniers mots. </i> comme [on trouve], "L'homme se tournera vers son Créateur",<sup>28</sup><i class="footnote">Yeshayahu 17:7.</i> comme pour dire "se tourner".<sup>29</sup><i class="footnote">i.e., <span>ישעה</span> signifie "se tourner vers."</i> Menachem a relié [le mot <span>יִשְׁעֶה</span>] avec [le verset,] "Hachem a écouté Hevel",<sup>30</sup><i class="footnote">Bereshit 4:4. </i> et il [Menachem] l'a interprété comme "écouter". Ce mot peut être utilisé pour désigner à la fois celui qui écoute et celui qui est écouté comme [nous trouvons], "Yitshak implora Hachem... et Hachem l'écouta."<sup>31</sup><i class="footnote">Bereshit 25:21.</i> De même ici "Ils imploreront [Dieu] et ils ne seront pas sauvés"<sup>32</sup><i class="footnote">Dans notre verset. </i> est un cas où le mot <span>יִשְׁעוּ</span> fait référence à celui qui prie et "Hachem a écouté..."<sup>33</sup><i class="footnote">Par l'offrande de Hevel.</i> est un cas où le mot fait référence au [Saint] prié.
 
 ### passuk 43
 <b>Je les piétinerai.</b> Je les piétinerai. Il y a de nombreux cas de ce genre dans le livre de Yechezkiel, [comme] "Tu les piétineras avec tes pieds"<sup>34</sup><i class="footnote">Yechezkiel 6:11.</i> [et] "Tu as piétiné avec [ton] pied."<sup>35</sup><i class="footnote">Ibid, 25:6.</i>.

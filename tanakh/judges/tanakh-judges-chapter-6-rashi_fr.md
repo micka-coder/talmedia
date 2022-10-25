@@ -93,7 +93,7 @@
 <S'il est un dieu, qu'il mène sa propre bataille et sa propre vengeance. Pour les repousser jusqu'à ce que Gidon puisse s'échapper, il a dit ceci.
 
 ### passuk 32
-<b>Combattez-vous contre lui.</b> Contre Gidon. Par rapport à <span>רַיב</span>, "combattre", le terme propre est <span>עִם</span>, ou <span>אֶת</span>, ou <span>בּוֹ</span>, "avec" [lui], comme dans "il a combattu avec Lavan". <sup>22</sup><i class="footnote">Bereishis, 31:36.</i> Cependant, <span>לוֹ</span>, lit. " à ", n'est pas le terme approprié. Chaque <span>לוֹ</span> mentionnée ici est interprétée comme "pour son bien".
+<b>Combattez-vous contre lui.</b> Contre Gidon. Par rapport à <span>רַיב</span>, "combattre", le terme propre est <span>עִם</span>, ou <span>אֶת</span>, ou <span>בּוֹ</span>, "avec" [lui], comme dans "il a combattu avec Lavan". <sup>22</sup><i class="footnote">Bereshit, 31:36.</i> Cependant, <span>לוֹ</span>, lit. " à ", n'est pas le terme approprié. Chaque <span>לוֹ</span> mentionnée ici est interprétée comme "pour son bien".
 
 ### passuk 33
 

@@ -41,7 +41,7 @@
 <b>Tombons dans la main d'Hachem.</b> C'est-à-dire la Pestilence<sup>20</sup><i class="footnote">Contrôlée exclusivement par Dieu.</i> et non l'épée ni la famine car elle [la famine] est aussi contrôlée par les riches qui ont des entrepôts de produits. Selon Rabbi Alexandri, David a raisonné ainsi : " Si je choisis l'épée, alors [les gens de] Israël diront [à mon sujet] : " il compte sur sa force pour se sauver de la mort, mais d'autres mourront ", et si je choisis la famine, ils diront : " il compte sur sa richesse [pour se sauver] ". Je choisirai la peste contre laquelle tout le monde est égal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
 
 ### passuk 15
-<b>Du matin jusqu'au moment fixé.</b> [Yonatanh traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."
+<b>Du matin jusqu'au moment fixé.</b> [Yonathan traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."
 
 ### passuk 16
 <b>Le Yevusite.</b> Il était l'officier en chef de la forteresse de Sion dont le nom est Yevusi.</sup>22</sup><i class="footnote">ayant appartenu autrefois à ces derniers, voir les versets précédents 5:6-5:9.</i>.
@@ -110,7 +110,7 @@
 <b>Tombons dans la main d'Hachem.</b> C'est-à-dire la Pestilence<sup>20</sup><i class="footnote">Contrôlée exclusivement par Dieu.</i> et non l'épée ni la famine car elle [la famine] est aussi contrôlée par les riches qui ont des entrepôts de produits. Selon Rabbi Alexandri, David a raisonné ainsi : " Si je choisis l'épée, alors [les gens de] Israël diront [à mon sujet] : " il compte sur sa force pour se sauver de la mort, mais d'autres mourront ", et si je choisis la famine, ils diront : " il compte sur sa richesse [pour se sauver] ". Je choisirai la peste contre laquelle tout le monde est égal."<sup>21</sup><i class="footnote">Midrash Tehilim 17:4.</i>
 
 ### passuk 15
-<b>Du matin jusqu'au moment fixé.</b> [Yonatanh traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."
+<b>Du matin jusqu'au moment fixé.</b> [Yonathan traduit :] "Du moment de l'abattage de l'offrande quotidienne du matin jusqu'à ce que son sang soit aspergé."
 
 ### passuk 16
 <b>Le Yevusite.</b> Il était l'officier en chef de la forteresse de Sion dont le nom est Yevusi.</sup>22</sup><i class="footnote">ayant appartenu autrefois à ces derniers, voir les versets précédents 5:6-5:9.</i>.

@@ -32,7 +32,7 @@
 
 ### passuk 13
 <b>Le peuple s'est positionné.</b> Ce positionnement exprime la volonté de faire la guerre près de la muraille [de la ville]. Ceci est similaire à ce qui est dit concernant Ben-Hadad, dans I Melachim 20:12, (qui dit à ses serviteurs :) "Positionnez-vous contre la ville et ils se positionnèrent."
-<b>Et leur embuscade</b> leurs embusqueurs ce mot עַקֵבוֹ est similaire à וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereishis 27:36. Eisov dit à propos de Yaakov, וַיַעְקְבֵנִי זֶה פַּעֲמַיִם "Il m'a trompé deux fois." Une embuscade implique la ruse et la tromperie.</i>
+<b>Et leur embuscade</b> leurs embusqueurs ce mot עַקֵבוֹ est similaire à וַיעֲקְבֵנִי.<sup>5</sup><i class="footnote">Bereshit 27:36. Eisov dit à propos de Yaakov, וַיַעְקְבֵנִי זֶה פַּעֲמַיִם "Il m'a trompé deux fois." Une embuscade implique la ruse et la tromperie.</i>
 <b>Cette nuit-là, Yehoshua marcha dans la vallée</b> Nos Sages ont dit qu'il se logea dans la profondeur de la loi.</sup><i class="footnote">Nos Sages ont interprété le mot עֵמֶק comme l'expression de la profondeur, et ils disent qu'il passa la nuit à étudier la Torah. Après que tous les préparatifs aient été faits et que les ordres aient été donnés, Yehoshua eut le temps de revenir à l'étude de la Torah, qui est la véritable protection en temps de crise. Il s'est souvenu de la réprimande de l'ange la nuit avant la chute de Yericho.</i>
 
 ### passuk 14

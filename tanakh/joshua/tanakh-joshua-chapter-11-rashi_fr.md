@@ -29,7 +29,7 @@
 
 ### passuk 13
 <b>Réservés avec leurs murs intacts.</b> Leurs murs n'ont pas été détruits comme Yericho, dont les murs sont tombés, et de même Ai, comme il est dit : "[Et Yehoshua brûla Ai] et en fit un monticule pour toujours, une ruine."<sup>3</sup><i class="footnote">Voir Chapitre 8:28 ci-dessus.</i>
-<b>La seule exception était Chatzor.</b> Il l'a brûlé en raison d'un commandement traditionnel. Moshé l'a ordonné et le lui a transmis. Cela se trouve dans Bereishis Rabba sur la Sidrah de "Et Yaakov envoya."<sup>4</sup><i class="footnote">Ce commandement de détruire Chatzor n'est pas écrit dans la Torah. Moshé a reçu ce commandement oralement sur le mont Sinaï et l'a transmis à Yehoshua, qui l'a exécuté.</i>
+<b>La seule exception était Chatzor.</b> Il l'a brûlé en raison d'un commandement traditionnel. Moshé l'a ordonné et le lui a transmis. Cela se trouve dans Bereshit Rabba sur la Sidrah de "Et Yaakov envoya."<sup>4</sup><i class="footnote">Ce commandement de détruire Chatzor n'est pas écrit dans la Torah. Moshé a reçu ce commandement oralement sur le mont Sinaï et l'a transmis à Yehoshua, qui l'a exécuté.</i>
 
 ### passuk 14
 
@@ -38,7 +38,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>La montagne nue, divisée.</b> Une montagne lisse.<sup>5</sup><i class="footnote">Elle était appelée ainsi car elle ne comportait aucun arbre. Elle était divisée entre Yaakov et Eisov. La partie appartenant à Yaakov était nue et lisse comme Yaakov lui-même. Voir Bereishis 27:11.</i> C'était une montagne nue (lisse) jusqu'à Baal-gad, qui était sur la frontière orientale. De son vivant, Yehoshua, n'a pas pu conquérir toute la frontière orientale au nord.
+<b>La montagne nue, divisée.</b> Une montagne lisse.<sup>5</sup><i class="footnote">Elle était appelée ainsi car elle ne comportait aucun arbre. Elle était divisée entre Yaakov et Eisov. La partie appartenant à Yaakov était nue et lisse comme Yaakov lui-même. Voir Bereshit 27:11.</i> C'était une montagne nue (lisse) jusqu'à Baal-gad, qui était sur la frontière orientale. De son vivant, Yehoshua, n'a pas pu conquérir toute la frontière orientale au nord.
 <b>Baal-gad</b> la plaine de gad.
 
 ### passuk 18

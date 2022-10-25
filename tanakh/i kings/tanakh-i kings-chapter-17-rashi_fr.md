@@ -30,12 +30,12 @@
 
 ### passuk 12
 <b>Gâteau.</b> [מעוג signifie] la même chose que עוגה [=gâteau].
-<b>Une poignée.</b> [Targum] Yonatanh a rendu : "la paume d'une poignée".
+<b>Une poignée.</b> [Targum] Yonathan a rendu : "la paume d'une poignée".
 <b>Dans une bouteille.</b> <i>Bouteille</i>, en ancien français., comme il est dit à propos de Saül, "la fiole d'eau qui était à la tête de [Saül]."<sup>7</sup><i class="footnote">I Shmuel 26:12.</i>
 <b>Nous mourrons.</b> A partir de ce moment-là,<sup>8</sup><i class="footnote">C'est-à-dire parce qu'après l'avoir mangé, il ne nous reste plus rien à manger, donc finalement nous mourrons de faim.</i> nous mourrons de faim.
 
 ### passuk 13
-<b>Un petit gâteau d'abord.</b> Il existe un Midrash Aggdah dans Bereishis Rabboh<sup>9</sup><i class="footnote">Le Midrash cité par Rachi ne se trouve pas dans nos textes du Midrash Rabboh sur ce verset. </i> (pourquoi il le voulait en premier) sur [le verset] : "Et Léa dit : 'Un succès inattendu est arrivé'"<sup>10</sup><i class="footnote">Bereishis 30:11.</i>.
+<b>Un petit gâteau d'abord.</b> Il existe un Midrash Aggdah dans Bereshit Rabboh<sup>9</sup><i class="footnote">Le Midrash cité par Rachi ne se trouve pas dans nos textes du Midrash Rabboh sur ce verset. </i> (pourquoi il le voulait en premier) sur [le verset] : "Et Léa dit : 'Un succès inattendu est arrivé'"<sup>10</sup><i class="footnote">Bereshit 30:11.</i>.
 
 ### passuk 14
 
@@ -47,7 +47,7 @@
 <b>La maladie a frappé le fils de la femme.</b> Pour qu'il ait besoin de la Clé de la Résurrection des Morts, comme il est dit à la fin de la Aggadah du [chapitre intitulé] "Cheilek."<sup>11</sup><i class="footnote">Masechs Sanhedrin 113a.</i>
 
 ### passuk 18
-<b>Pour que l'on se souvienne de mes péchés.</b> Avant ta venue, on pesait mes actes et ceux de ma ville, et j'étais digne d'un miracle. Mais depuis que tu es venu, on ne me considère pas comme [étant digne de] quoi que ce soit et ma justice n'est pas remarquée.<sup>12</sup><i class="footnote">Avant ton arrivée, je n'étais pas pire que mes voisins, mais comparé à toi, je suis un pécheur. <sup>13</sup><i class="footnote">Alternativement, elle a dit que ses péchés étaient rappelés parce qu'elle n'avait pas servi Eliyahu correctement, et c'est pourquoi son fils est mort.</sup> (Autres textes : rappelés) Et de même, concernant Lot, il est dit : "Je ne peux pas m'échapper vers la montagne"<sup>14</sup><i class="footnote">Bereishis 19:19.</i> [c'est-à-dire, se référant] à Avraham, car on ne se souviendra pas de mon mérite à côté du sien.<sup>15</sup><i class="footnote">Bereishis Rabboh 50:11.</i>
+<b>Pour que l'on se souvienne de mes péchés.</b> Avant ta venue, on pesait mes actes et ceux de ma ville, et j'étais digne d'un miracle. Mais depuis que tu es venu, on ne me considère pas comme [étant digne de] quoi que ce soit et ma justice n'est pas remarquée.<sup>12</sup><i class="footnote">Avant ton arrivée, je n'étais pas pire que mes voisins, mais comparé à toi, je suis un pécheur. <sup>13</sup><i class="footnote">Alternativement, elle a dit que ses péchés étaient rappelés parce qu'elle n'avait pas servi Eliyahu correctement, et c'est pourquoi son fils est mort.</sup> (Autres textes : rappelés) Et de même, concernant Lot, il est dit : "Je ne peux pas m'échapper vers la montagne"<sup>14</sup><i class="footnote">Bereshit 19:19.</i> [c'est-à-dire, se référant] à Avraham, car on ne se souviendra pas de mon mérite à côté du sien.<sup>15</sup><i class="footnote">Bereshit Rabboh 50:11.</i>
 
 ### passuk 19
 

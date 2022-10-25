@@ -15,7 +15,7 @@ Un tabouret de mariée qui a perdu les couvertures des sièges : Bet Shammai jug
 Une chaise dont les planches du siège ne dépassaient pas, puis ont été enlevées, elle est encore susceptible d'être impure, car il est habituel de la tourner sur le côté et de s'asseoir dessus.
 
 ### michna 6
-Une chaise dont la planche centrale a été enlevée mais dont les planches extérieures sont restées, elle est toujours susceptible d'être impure. Si les panneaux extérieurs ont été enlevés et que le panneau central est resté, elle est également susceptible d'être impure. Rabbi Shimon dit : seulement si elle était large d'un centimètre.
+Une chaise dont la planche centrale a été enlevée mais dont les planches extérieures sont restées, elle est toujours susceptible d'être impure. Si les panneaux extérieurs ont été enlevés et que le panneau central est resté, elle est également susceptible d'être impure. Rabbi Shimon dit : seulement si elle était large d'un tefah.
 
 ### michna 7
 Une chaise dont deux panneaux ont été enlevés, celui-ci à côté de celui-là : Rabbi Akiva dit : elle est susceptible d'impureté ; Et les sages disent qu'elle est propre. Rabbi Juda dit : de même, si les planches du siège d'une chaise de mariée ont été perdues, bien que le réceptacle en dessous soit resté, il est propre, car là où la fonction primaire a cessé, la fonction secondaire cesse également.

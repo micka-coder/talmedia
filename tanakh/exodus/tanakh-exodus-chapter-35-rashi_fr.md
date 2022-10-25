@@ -47,7 +47,7 @@
 
 ### passuk 17
 <b>Ses piliers et ses socles.</b> Vous avez ici חָצֵר désigné à la fois au masculin et au féminin. Il existe de nombreux cas de ce genre.
-<b>Et l'écran pour l'entrée de l'enceinte.</b> Un rideau étendu du côté est sur les 20 <i>amohs</i> médians de la largeur de cette cour. Car la largeur totale était de 50 <i>amohs</i> dont 15 <i>amohs</i> de l'extrémité nord étaient fermés ainsi que sur l'extrémité sud comme il est dit : "et 15 <i>amohs</i> de rideau pour une extrémité".
+<b>Et l'écran pour l'entrée de l'enceinte.</b> Un rideau étendu du côté est sur les 20 <i>amahs</i> médians de la largeur de cette cour. Car la largeur totale était de 50 <i>amahs</i> dont 15 <i>amahs</i> de l'extrémité nord étaient fermés ainsi que sur l'extrémité sud comme il est dit : "et 15 <i>amahs</i> de rideau pour une extrémité".
 
 ### passuk 18
 <b>Les piquets.</b> Pour les insérer et y attacher les extrémités des rideaux dans le sol, afin qu'ils ne se balancent pas au vent. 

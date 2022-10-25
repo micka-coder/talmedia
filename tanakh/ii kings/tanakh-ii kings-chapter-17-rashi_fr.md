@@ -13,7 +13,7 @@
 
 ### passuk 6
 <b>La neuvième année.</b> De la révolte de Hoshei'a.
-<b>Et exila Israël.</b> [ויגל est identique à] ויגלה [=et il exila] Israël. C'est la règle pour chaque mot dont la racine du verbe [se termine] par un `ה', par ex, פנה [=faire face], בנה [=construire], גלה [=s'exiler], זנה [=commettre un adultère], רבה [=multiplier] ; lorsqu'on vient ajouter un préfixe au mot avec `ו ' ou un `י', si le mot s'applique à celui qui le fait, le `י' sera voyellé avec un "chirik", par ex. g., "Et il y construisit [=ויבן] un autel ;"<sup>12</sup><i class="footnote">Bereishis 12:7.</i> "Et Moshé se tourna [=ויפן] et descendit ;"<sup>13</sup><i class="footnote">Shemos 32:15. </i> "Et Israël fut exilé [=ויגל] de sa terre ;"<sup>14</sup><i class="footnote">Shemos 25:21. </i> "Et elle aussi alla se prostituer[=ותזן] ;"<sup>15</sup><i class="footnote">Yirmiyahu 3:8.</i> "Et le peuple augmenta [=וירב] et devint très fort. "<sup>16</sup><i class="footnote">Shemos 1:20.</i> Si toutefois, on parle dans la conjugaison causative, le `י' sera voyellé avec un "segol", par ex, "Et tourna [=ויפן] queue contre queue ;"<sup>17</sup><i class="footnote">Shoftim 15:4.</i> "Et exila [=ויגל] les Israélites à Ashur ;"<sup>18</sup><i class="footnote">Vers 18:11. </i> "Et il a fait en sorte que les habitants de Jérusalem s'égarent [=ויזן] ;"<sup>19</sup><i class="footnote">II Divrei Hayamim 21:11. </i> "Et Il augmenta [=וירב] parmi le peuple de Yehouda le chagrin et la lamentation."<sup>20</sup><i class="footnote">Eichah 2:5.</i>
+<b>Et exila Israël.</b> [ויגל est identique à] ויגלה [=et il exila] Israël. C'est la règle pour chaque mot dont la racine du verbe [se termine] par un `ה', par ex, פנה [=faire face], בנה [=construire], גלה [=s'exiler], זנה [=commettre un adultère], רבה [=multiplier] ; lorsqu'on vient ajouter un préfixe au mot avec `ו ' ou un `י', si le mot s'applique à celui qui le fait, le `י' sera voyellé avec un "Hirik", par ex. g., "Et il y construisit [=ויבן] un autel ;"<sup>12</sup><i class="footnote">Bereshit 12:7.</i> "Et Moshé se tourna [=ויפן] et descendit ;"<sup>13</sup><i class="footnote">Shemos 32:15. </i> "Et Israël fut exilé [=ויגל] de sa terre ;"<sup>14</sup><i class="footnote">Shemos 25:21. </i> "Et elle aussi alla se prostituer[=ותזן] ;"<sup>15</sup><i class="footnote">Yirmiyahu 3:8.</i> "Et le peuple augmenta [=וירב] et devint très fort. "<sup>16</sup><i class="footnote">Shemos 1:20.</i> Si toutefois, on parle dans la conjugaison causative, le `י' sera voyellé avec un "segol", par ex, "Et tourna [=ויפן] queue contre queue ;"<sup>17</sup><i class="footnote">Shoftim 15:4.</i> "Et exila [=ויגל] les Israélites à Ashur ;"<sup>18</sup><i class="footnote">Vers 18:11. </i> "Et il a fait en sorte que les habitants de Jérusalem s'égarent [=ויזן] ;"<sup>19</sup><i class="footnote">II Divrei Hayamim 21:11. </i> "Et Il augmenta [=וירב] parmi le peuple de Yehouda le chagrin et la lamentation."<sup>20</sup><i class="footnote">Eichah 2:5.</i>
 
 ### passuk 7
 
@@ -57,7 +57,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et Israël partit en exil.</b> Ceci est prononcé avec un "chirik", qui est une expression de "partit en exil". Ce n'est pas une expression de "fut exilé". <sup>27</sup><i class="footnote">Voir Rachi ci-dessus, v. 6.</i>.
+<b>Et Israël partit en exil.</b> Ceci est prononcé avec un "Hirik", qui est une expression de "partit en exil". Ce n'est pas une expression de "fut exilé". <sup>27</sup><i class="footnote">Voir Rachi ci-dessus, v. 6.</i>.
 
 ### passuk 24
 
@@ -112,7 +112,7 @@
 
 ### passuk 6
 <b>La neuvième année.</b> De la révolte de Hoshei'a.
-<b>Et exila Israël.</b> [ויגל est identique à] ויגלה [=et il exila] Israël. C'est la règle pour chaque mot dont la racine du verbe [se termine] par un `ה', par ex, פנה [=faire face], בנה [=construire], גלה [=s'exiler], זנה [=commettre un adultère], רבה [=multiplier] ; lorsqu'on vient ajouter un préfixe au mot avec `ו ' ou un `י', si le mot s'applique à celui qui le fait, le `י' sera voyellé avec un "chirik", par ex. g., "Et il y construisit [=ויבן] un autel ;"<sup>12</sup><i class="footnote">Bereishis 12:7.</i> "Et Moshé se tourna [=ויפן] et descendit ;"<sup>13</sup><i class="footnote">Shemos 32:15. </i> "Et Israël fut exilé [=ויגל] de sa terre ;"<sup>14</sup><i class="footnote">Shemos 25:21. </i> "Et elle aussi alla se prostituer[=ותזן] ;"<sup>15</sup><i class="footnote">Yirmiyahu 3:8.</i> "Et le peuple augmenta [=וירב] et devint très fort. "<sup>16</sup><i class="footnote">Shemos 1:20.</i> Si toutefois, on parle dans la conjugaison causative, le `י' sera voyellé avec un "segol", par ex, "Et tourna [=ויפן] queue contre queue ;"<sup>17</sup><i class="footnote">Shoftim 15:4.</i> "Et exila [=ויגל] les Israélites à Ashur ;"<sup>18</sup><i class="footnote">Vers 18:11. </i> "Et il a fait en sorte que les habitants de Jérusalem s'égarent [=ויזן] ;"<sup>19</sup><i class="footnote">II Divrei Hayamim 21:11. </i> "Et Il augmenta [=וירב] parmi le peuple de Yehouda le chagrin et la lamentation."<sup>20</sup><i class="footnote">Eichah 2:5.</i>
+<b>Et exila Israël.</b> [ויגל est identique à] ויגלה [=et il exila] Israël. C'est la règle pour chaque mot dont la racine du verbe [se termine] par un `ה', par ex, פנה [=faire face], בנה [=construire], גלה [=s'exiler], זנה [=commettre un adultère], רבה [=multiplier] ; lorsqu'on vient ajouter un préfixe au mot avec `ו ' ou un `י', si le mot s'applique à celui qui le fait, le `י' sera voyellé avec un "Hirik", par ex. g., "Et il y construisit [=ויבן] un autel ;"<sup>12</sup><i class="footnote">Bereshit 12:7.</i> "Et Moshé se tourna [=ויפן] et descendit ;"<sup>13</sup><i class="footnote">Shemos 32:15. </i> "Et Israël fut exilé [=ויגל] de sa terre ;"<sup>14</sup><i class="footnote">Shemos 25:21. </i> "Et elle aussi alla se prostituer[=ותזן] ;"<sup>15</sup><i class="footnote">Yirmiyahu 3:8.</i> "Et le peuple augmenta [=וירב] et devint très fort. "<sup>16</sup><i class="footnote">Shemos 1:20.</i> Si toutefois, on parle dans la conjugaison causative, le `י' sera voyellé avec un "segol", par ex, "Et tourna [=ויפן] queue contre queue ;"<sup>17</sup><i class="footnote">Shoftim 15:4.</i> "Et exila [=ויגל] les Israélites à Ashur ;"<sup>18</sup><i class="footnote">Vers 18:11. </i> "Et il a fait en sorte que les habitants de Jérusalem s'égarent [=ויזן] ;"<sup>19</sup><i class="footnote">II Divrei Hayamim 21:11. </i> "Et Il augmenta [=וירב] parmi le peuple de Yehouda le chagrin et la lamentation."<sup>20</sup><i class="footnote">Eichah 2:5.</i>
 
 ### passuk 7
 
@@ -156,7 +156,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et Israël partit en exil.</b> Ceci est prononcé avec un "chirik", qui est une expression de "partit en exil". Ce n'est pas une expression de "fut exilé". <sup>27</sup><i class="footnote">Voir Rachi ci-dessus, v. 6.</i>.
+<b>Et Israël partit en exil.</b> Ceci est prononcé avec un "Hirik", qui est une expression de "partit en exil". Ce n'est pas une expression de "fut exilé". <sup>27</sup><i class="footnote">Voir Rachi ci-dessus, v. 6.</i>.
 
 ### passuk 24
 

@@ -34,12 +34,12 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonatanh a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonathan a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
 
 ### passuk 17
 <b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Jérusalem alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyahu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayahu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyahu..."<sup>11</sup><i class="footnote">Yeshayahu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français., [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
-<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonatanh a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
+<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonathan a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
 <b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayahu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
@@ -81,7 +81,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereishis 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 33:10 et ci-dessus, dans II Melochim 5:15.</i>
+<b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereshit 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereshit 33:10 et ci-dessus, dans II Melochim 5:15.</i>
 
 ### passuk 32
 <b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayahu 36:17. La Guemara dans Masehet Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>
@@ -137,12 +137,12 @@
 
 ### passuk 16
 <b>Enlevées.</b> Les portes, qui étaient en or [plaquées].
-<b>Et les seuils.</b> [Targum] Yonatanh a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
+<b>Et les seuils.</b> [Targum] Yonathan a rendu סקופיא, [c'est-à-dire] les seuils.<sup>8</sup><i class="footnote">Alternativement, אמנות sont des piliers, ou c'est un terme utilisé pour inclure à la fois le seuil et le linteau.-Ralbag</i>
 
 ### passuk 17
 <b>Tarton [et] Rav Soris.</b> Nous avons appris dans le Seder Olam que ces trois-là ne se sont pas réunis,</sup>9</sup><i class="footnote">Le roi d'Ashur a traité faussement avec Chizkiyoh car il a envoyé ses officiers attaquer Jérusalem alors que Chizkiyoh a payé le tribut qui lui était imposé.-Metzudas David Or, Sancheiriv a pris le tribut et est parti. Cependant, dans les années qui suivirent, Chizkiyahu ne répondit pas à ses exigences et il attaqua donc à nouveau.-Radak</i> plutôt mais Ravshokei [vint] seul, comme il est écrit dans le Livre de Yeshayahu,<sup>10</sup><i class="footnote">36:2. </i> et Tarton et Rav Soris sont venus pour une deuxième mission, lorsqu'il reçut des nouvelles concernant Tirhokoh roi de Cush, "et il entendit et envoya des émissaires à Chizkiyahu..."<sup>11</sup><i class="footnote">Yeshayahu 37:9.</i>.
 <b>Près du canal.</b> <i>Fosé</i>, en ancien français., [c'est-à-dire] un fossé aménagé pour les bancs de poissons.
-<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonatanh a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
+<b>Le champ du laveur.</b> Un champ dans lequel les laveurs étalent les vêtements, Et c'est ainsi que [le Targum] Yonathan a rendu, "un champ où les laveurs étalent."<sup>12</sup><i class="footnote">C'est-à-dire où les laveurs étalent les vêtements.</i>
 
 ### passuk 18
 <b>L'enregistreur.</b> [Qui détermine] quel jugement est venu en premier devant le roi, pour qu'il soit jugé en premier.<sup>13</sup><i class="footnote">Rashi dans Yeshayahu 36:3 définit מזכיר, comme "l'écrivain des registres dans les annales". </i>
@@ -184,7 +184,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereishis 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 33:10 et ci-dessus, dans II Melochim 5:15.</i>
+<b>"Faites la paix avec moi."</b> Une salutation, comme dans, "Et Yaakov salua [=ויברך] Paroh."<sup>22</sup><i class="footnote">Bereshit 47:7.</i> <sup>23</sup><i class="footnote">Voir Rachi dans Bereshit 33:10 et ci-dessus, dans II Melochim 5:15.</i>
 
 ### passuk 32
 <b>Vers une terre comme la tienne.</b> C'est ma coutume de déplacer les nations de province en province. Il aurait dû dire : " vers une terre meilleure que la vôtre ", car il venait pour les persuader, mais il savait qu'ils reconnaîtraient que son affirmation était fausse.<sup>24</sup><i class="footnote">Cette coutume était pratiquée afin de prévenir toute tentative future de reconquête de l'indépendance. Il se rendait compte que tant qu'une nation conquise restait sur sa propre terre, le peuple finirait par se soulever et se rebeller contre ses conquérants.</i> <sup>25</sup><i class="footnote">Voir Rachi, dans Yeshayahu 36:17. La Guemara dans Masehet Sanhedrin 94a, affirme que Sancheiriv n'a pas dit " vers une terre meilleure que la tienne ", car il ne voulait pas dénigrer Eretz Israël. En conséquence, il a été récompensé par le titre "le grand et noble Osenapar [=Sancheiriv]", dans Ezra 4:10.</i>

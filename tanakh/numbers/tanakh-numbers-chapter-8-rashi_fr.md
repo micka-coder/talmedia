@@ -59,7 +59,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>J'ai donné les Lévites, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les Bnei Israël sont mentionnés cinq fois, dans ce passage, pour faire connaître leur préciosité. Ils sont rappelés à plusieurs reprises dans un même passage pour correspondre au nombre des cinq livres de la Torah. J'ai vu cela dans Bereishis Rabbah. 
+<b>J'ai donné les Lévites, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les Bnei Israël sont mentionnés cinq fois, dans ce passage, pour faire connaître leur préciosité. Ils sont rappelés à plusieurs reprises dans un même passage pour correspondre au nombre des cinq livres de la Torah. J'ai vu cela dans Bereshit Rabbah. 
 <b>Pour qu'il n'y ait pas de peste parmi les Bnei Israël.</b> Pour qu'ils n'aient pas besoin <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de s'approcher du Saint, car s'ils s'approchent, il y aura une peste. 
 
 ### passuk 20

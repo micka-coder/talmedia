@@ -35,7 +35,7 @@
 
 ### passuk 13
 <b>En entrant dans la ville, vous...</b> Elles ont prolongé leur conversation afin de contempler la beauté de Shaul.</sup>7</sup><i class="footnote">Traité Berahot 48b. Les filles ont donné une réponse extraordinairement longue à une question relativement simple. Le fait que l'ensemble de la conversation ait été enregistré dans les Écritures rend probable qu'elles aient été frappées par la belle apparence de Shaul et qu'elles aient voulu le contempler quelques instants de plus.</i>
-<b>Le haut lieu.</b> Le targum Yonatanh rend : " vers la salle de banquet ". Lorsque Silo fut détruit, il devint permis [d'offrir des sacrifices sur] les hauts lieux, et ils sacrifiaient des sacrifices de paix sur le haut lieu et mangeaient ensemble.
+<b>Le haut lieu.</b> Le targum Yonathan rend : " vers la salle de banquet ". Lorsque Silo fut détruit, il devint permis [d'offrir des sacrifices sur] les hauts lieux, et ils sacrifiaient des sacrifices de paix sur le haut lieu et mangeaient ensemble.
 <b>Parce qu'il bénit l'offrande.</b> Le Targum Yonathan rend, <span>אֲרֵי הוּא פָּרִיס עַל מְזוֹנָא</span> ce qui signifie, 'car il rompra le pain.' [Avant] de prendre part au sacrifice de paix, ils récitaient : "Béni sois-tu Hachem, notre Dieu, roi de l'univers, qui nous a sanctifiés par ses commandements, et qui nous a ordonné de manger le sacrifice."
 <b>Comme [sûrement comme il est] jour.</b> Tout comme le jour existe.</sup></sup><i class="footnote">Il a dit cela pour souligner la véracité de sa déclaration.-Radak</i>.
 

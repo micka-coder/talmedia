@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Yaakov [alors] leva ses pieds.</b> Une fois qu'on lui a prédit la bonne nouvelle qu'il était assuré de la protection [de Dieu], son cœur a levé ses pieds et il lui est devenu facile d'aller [rapidement]. C'est ainsi qu'il est expliqué dans Bereishis Rabbah. 
+<b>Yaakov [alors] leva ses pieds.</b> Une fois qu'on lui a prédit la bonne nouvelle qu'il était assuré de la protection [de Dieu], son cœur a levé ses pieds et il lui est devenu facile d'aller [rapidement]. C'est ainsi qu'il est expliqué dans Bereshit Rabbah. 
 
 ### passuk 2
 <b>Les troupeaux sont abreuvés.</b> Les bergers donnent à boire aux troupeaux. Le verset parle de manière elliptique. 

@@ -30,7 +30,7 @@
 <b>Et s'enquérir de Dieu pour lui.</b> [En lui permettant de consulter l'Urim et le Tumim], vous en avez fait un roi, car on ne peut s'enquérir de l'Urim et du Tumim pour un roturier.
 
 ### passuk 14
-<b>Qui se plie à tes ordres.</b> Comme dans "Et ils se tournèrent [<span>וַיָסֻרוּ</span>] vers lui,"<sup>6</sup><i class="footnote">Bereishis 19:3.</i> ce qui signifie qu'il est proche pour te servir et pour obéir à tes ordres. Comment pouvais-je donc savoir qu'il ne partait pas en mission ?
+<b>Qui se plie à tes ordres.</b> Comme dans "Et ils se tournèrent [<span>וַיָסֻרוּ</span>] vers lui,"<sup>6</sup><i class="footnote">Bereshit 19:3.</i> ce qui signifie qu'il est proche pour te servir et pour obéir à tes ordres. Comment pouvais-je donc savoir qu'il ne partait pas en mission ?
 
 ### passuk 15
 <b>J'ai commencé aujourd'hui à m'enquérir.</b> C'est sous la forme d'une question, c'est-à-dire qu'il y a déjà longtemps que la préoccupation de la communauté est la sienne, car ils l'ont désigné comme celui qui conduit [les Bnei] Israël vers et [de la bataille], et depuis lors, je m'enquiers de Dieu en son nom.

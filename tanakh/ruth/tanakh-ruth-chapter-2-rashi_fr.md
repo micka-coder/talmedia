@@ -16,7 +16,7 @@
 <b>À qui appartient cette jeune fille.</b> Était-ce l'habitude de Bo'az de s'enquérir des femmes ? Au contraire, [parce qu'] il a vu son comportement modeste et sage [il était curieux à son sujet. Il a observé que] deux oreilles, elle glanerait, mais trois, elle ne glanerait pas;<sup>8</sup><i class="footnote">Comme le prescrit la Mishna (Pe'ah 6:5). La Torah dans Vayikra 19:9 attribue les épis tombés et les gerbes oubliées aux pauvres. Ainsi, son comportement exemplaire et sa connaissance de la loi ont attiré l'attention de Bo'az et il s'est donc enquis d'elle. </i> et elle glanait les épis debout en se tenant debout et les épis couchés en s'asseyant, afin d'éviter de se pencher.<sup>9</sup><i class="footnote">Traité Chabbat 113b. </i> 
 
 ### passuk 6
-<b>Qui revint avec Naomi.</b> L'accent est au début, sous le <i>shin</i>, car il s'agit du passé et non du présent [du verbe].<sup>10</sup><i class="footnote">Voir Rachi dans Bereishis 29:6. </i> 
+<b>Qui revint avec Naomi.</b> L'accent est au début, sous le <i>shin</i>, car il s'agit du passé et non du présent [du verbe].<sup>10</sup><i class="footnote">Voir Rachi dans Bereshit 29:6. </i> 
 
 ### passuk 7
 <b>Et elle a dit.</b> A elle-même.

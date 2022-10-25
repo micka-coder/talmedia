@@ -50,8 +50,8 @@
 ### passuk 17
 
 ### passuk 18
-<b>Et dit : "Frappe, s'il te plaît, etc."</b> Sur la malédiction, il n'a pas mentionné le Nom [de Dieu],<sup>8</sup><i class="footnote">Parce qu'il n'est pas convenable que le Nom de G soit associé au mal et aux malédictions. Voir Bereishis Rabbah 3:6.</i> mais pour l'ouverture [des yeux], il a mentionné le Nom [de Dieu] sur les deux, concernant l'ouverture des [yeux] du préposé, et concernant l'ouverture des yeux de la troupe.
-<b>Avec la cécité.</b> Une maladie de confusion ; on voit, mais on ne sait pas ce qu'on voit.</sup>9</sup><i class="footnote">Voir Bereishis 19:11.</i>
+<b>Et dit : "Frappe, s'il te plaît, etc."</b> Sur la malédiction, il n'a pas mentionné le Nom [de Dieu],<sup>8</sup><i class="footnote">Parce qu'il n'est pas convenable que le Nom de G soit associé au mal et aux malédictions. Voir Bereshit Rabbah 3:6.</i> mais pour l'ouverture [des yeux], il a mentionné le Nom [de Dieu] sur les deux, concernant l'ouverture des [yeux] du préposé, et concernant l'ouverture des yeux de la troupe.
+<b>Avec la cécité.</b> Une maladie de confusion ; on voit, mais on ne sait pas ce qu'on voit.</sup>9</sup><i class="footnote">Voir Bereshit 19:11.</i>
 
 ### passuk 19
 <b>Ce n'est pas non plus la ville.</b> C'est là que se trouve le prophète. Il leur dit la vérité car il l'avait déjà quittée.
@@ -148,8 +148,8 @@
 ### passuk 17
 
 ### passuk 18
-<b>Et dit : "Frappe, s'il te plaît, etc."</b> Sur la malédiction, il n'a pas mentionné le Nom [de Dieu],<sup>8</sup><i class="footnote">Parce qu'il n'est pas convenable que le Nom de G soit associé au mal et aux malédictions. Voir Bereishis Rabbah 3:6.</i> mais pour l'ouverture [des yeux], il a mentionné le Nom [de Dieu] sur les deux, concernant l'ouverture des [yeux] du préposé, et concernant l'ouverture des yeux de la troupe.
-<b>Avec la cécité.</b> Une maladie de confusion ; on voit, mais on ne sait pas ce qu'on voit.</sup>9</sup><i class="footnote">Voir Bereishis 19:11.</i>
+<b>Et dit : "Frappe, s'il te plaît, etc."</b> Sur la malédiction, il n'a pas mentionné le Nom [de Dieu],<sup>8</sup><i class="footnote">Parce qu'il n'est pas convenable que le Nom de G soit associé au mal et aux malédictions. Voir Bereshit Rabbah 3:6.</i> mais pour l'ouverture [des yeux], il a mentionné le Nom [de Dieu] sur les deux, concernant l'ouverture des [yeux] du préposé, et concernant l'ouverture des yeux de la troupe.
+<b>Avec la cécité.</b> Une maladie de confusion ; on voit, mais on ne sait pas ce qu'on voit.</sup>9</sup><i class="footnote">Voir Bereshit 19:11.</i>
 
 ### passuk 19
 <b>Ce n'est pas non plus la ville.</b> C'est là que se trouve le prophète. Il leur dit la vérité car il l'avait déjà quittée.

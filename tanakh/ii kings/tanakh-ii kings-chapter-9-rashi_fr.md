@@ -9,7 +9,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Le garçon, disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de הַנַּעַר dans ce verset. </i> ainsi rendu [Targum] Yonatanh, "et le garçon, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le garçon, le garçon qui était un prophète [à part entière], s'en alla."-Malbim</i>.
+<b>Le garçon, disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de הַנַּעַר dans ce verset. </i> ainsi rendu [Targum] Yonathan, "et le garçon, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le garçon, le garçon qui était un prophète [à part entière], s'en alla."-Malbim</i>.
 
 ### passuk 5
 
@@ -30,7 +30,7 @@
 <b>Ils ont dit : "C'est un mensonge."</b> [Ce] que vous dites ; vous cachez ce qu'il vous a dit.<sup>6</sup><i class="footnote">Yeihu voulait cacher la prophétie et attendre un moment plus opportun pour la révéler.</i>
 
 ### passuk 13
-<b>Sur la marche supérieure. </b> (Targum) [Yonatanh a rendu,] עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte se lit לִדְּרַג שָׁrַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure. גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה," relatif aux lois de שְׁחִיטָה [=abattage rituel] est de cette dérivation, que l'on égorge en ligne droite, et ensuite [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
+<b>Sur la marche supérieure. </b> (Targum) [Yonathan a rendu,] עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte se lit לִדְּרַג שָׁrַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure. גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה," relatif aux lois de שְׁחִיטָה [=abattage rituel] est de cette dérivation, que l'on égorge en ligne droite, et ensuite [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
 
 ### passuk 14
 
@@ -67,7 +67,7 @@
 ### passuk 27
 <b>"Frappez-le dans le char, etc."</b> Et dans le Divrei Hayamim, on lit : "Il chercha Achazyohu, et ils le capturèrent lorsqu'il se cachait dans le Shomron, et ils l'amenèrent à Yeihu. "<sup>11</sup><i class="footnote">II Divrei Hayamim 22:9.</i> Les versets peuvent être rapprochés comme suit : "Et [il] s'enfuit en passant par le Beis-Hagan", de Yizre'el à Shomron, et Yeihu le poursuivit. Il y a cependant une divergence à ce sujet, car Yeihu n'a pas régné sur Shomron avant le lendemain, comme il est expliqué dans ce récit : " Yeihu écrivit des lettres et les envoya à Shomron, etc. "<sup>12</sup><i class="footnote">Au-dessous de 10:1. </i> Nos rabbins ont expliqué dans la Aggadah [intitulée] "Cheilek"<sup>13</sup><i class="footnote">Traité Sanhedrin 102b.</i> "Lorsqu'il se cachait en Shomron"<sup>14</sup><i class="footnote">II Divrei Hayamim 22:9.</i> qu'il découpait les Noms divins et écrivait à leur place [des noms de] divinités païennes. Selon leur opinion, on peut dire que sa dissimulation n'était pas à cause de Yeihu, plutôt ce qui suit est son explication : "Et il chercha Achazyohu, et ils le capturèrent alors qu'il s'échappait par le jardin". Il agissait méchamment depuis le début, car il venait au Shomron et se cachait des officiers de Yehouda, pour commettre cette abomination, car les habitants du Shomron étaient idolâtres. "Et ils l'amenèrent à Yeihu,"<sup>15</sup><i class="footnote">Ibid.</i> [c'est-à-dire, ] les hommes de Yeihu, qui l'avaient poursuivi, [après quoi on lit :] "Et il dit : "Frappe-le dans le char.""<sup>16</sup><i class="footnote">Alternativement, Achazyohu a été blessé en montant à Gur, et il s'est enfui à Megido où son état s'est aggravé. Le verset utilise donc l'expression וַיָמָת [littéralement="et il mourut"] pour exprimer son état bien qu'il soit encore vivant. Voir I Shmuel 25:37 où "וַיָמָת" est utilisé pour exprimer la condition d'une personne vivante. Il est ensuite allé se cacher dans le Shomron où il a été découvert par les hommes de Yeihu. Ils ont amené Achazyohu à Yeihu à Yizre'el et il a été exécuté là-bas.-Radak</i>.
 <b>En montant vers Gur.</b> Car c'est là qu'ils l'ont amené [Achazyoh] à lui [Yeihu].
-<b>Et il s'enfuit à Meggido.</b> Il fut frappé à la suite d'un complot [=בְנִכְלִיּוּת].<sup>17</sup><i class="footnote">Voir Rachi dans Bereishis 37:18. Dans certaines éditions, le texte de Rachi est מוּכָּה בְלוּנְכִּיוֹת [=frappé par des lances].</i>
+<b>Et il s'enfuit à Meggido.</b> Il fut frappé à la suite d'un complot [=בְנִכְלִיּוּת].<sup>17</sup><i class="footnote">Voir Rachi dans Bereshit 37:18. Dans certaines éditions, le texte de Rachi est מוּכָּה בְלוּנְכִּיוֹת [=frappé par des lances].</i>
 
 ### passuk 28
 
@@ -109,7 +109,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Le garçon, disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de הַנַּעַר dans ce verset. </i> ainsi rendu [Targum] Yonatanh, "et le garçon, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le garçon, le garçon qui était un prophète [à part entière], s'en alla."-Malbim</i>.
+<b>Le garçon, disciple du prophète.</b> Le disciple d'Elisée le prophète,</sup>3</sup><i class="footnote">Rashi explique la raison de la répétition de הַנַּעַר dans ce verset. </i> ainsi rendu [Targum] Yonathan, "et le garçon, le disciple du prophète, s'en alla."<sup>4</sup><i class="footnote">Alternativement, "et le garçon, le garçon qui était un prophète [à part entière], s'en alla."-Malbim</i>.
 
 ### passuk 5
 
@@ -130,7 +130,7 @@
 <b>Ils ont dit : "C'est un mensonge."</b> [Ce] que vous dites ; vous cachez ce qu'il vous a dit.<sup>6</sup><i class="footnote">Yeihu voulait cacher la prophétie et attendre un moment plus opportun pour la révéler.</i>
 
 ### passuk 13
-<b>Sur la marche supérieure. </b> (Targum) [Yonatanh a rendu,] עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte se lit לִדְּרַג שָׁrַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure. גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה," relatif aux lois de שְׁחִיטָה [=abattage rituel] est de cette dérivation, que l'on égorge en ligne droite, et ensuite [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
+<b>Sur la marche supérieure. </b> (Targum) [Yonathan a rendu,] עַל דְּרַג שָׁעַיָּא<sup>7</sup><i class="footnote">Notre texte se lit לִדְּרַג שָׁrַיָּא</i> [=sur la marche des heures], un type de pas fait correspondant aux heures du jour,<sup>8</sup><i class="footnote">I. e., les marches étaient une sorte de cadran solaire, chaque marche représentant une heure du jour.</i> pour connaître chaque heure, lorsque l'ombre descend d'une heure. גֶּרֶם, <i>ourle,</i> en ancien français., expression d'une encoche. "הַגְרָמָה," relatif aux lois de שְׁחִיטָה [=abattage rituel] est de cette dérivation, que l'on égorge en ligne droite, et ensuite [coupe] vers le bas, donnant l'apparence d'un monticule au-dessus.
 
 ### passuk 14
 
@@ -167,7 +167,7 @@
 ### passuk 27
 <b>"Frappez-le dans le char, etc."</b> Et dans le Divrei Hayamim, on lit : "Il chercha Achazyohu, et ils le capturèrent lorsqu'il se cachait dans le Shomron, et ils l'amenèrent à Yeihu. "<sup>11</sup><i class="footnote">II Divrei Hayamim 22:9.</i> Les versets peuvent être rapprochés comme suit : "Et [il] s'enfuit en passant par le Beis-Hagan", de Yizre'el à Shomron, et Yeihu le poursuivit. Il y a cependant une divergence à ce sujet, car Yeihu n'a pas régné sur Shomron avant le lendemain, comme il est expliqué dans ce récit : "Yeihu écrivit des lettres et les envoya à Shomron, etc."<sup>12</sup><i class="footnote">Vous trouverez ci-dessous 10:1. </i> Nos rabbins ont expliqué dans la Aggadah [intitulée] "Cheilek"<sup>13</sup><i class="footnote">Traité Sanhedrin 102b.</i> "Lorsqu'il se cachait en Shomron"<sup>14</sup><i class="footnote">II Divrei Hayamim 22:9.</i> qu'il découpait les Noms divins et écrivait à leur place [des noms de] divinités païennes. Selon leur opinion, on peut dire que sa dissimulation n'était pas à cause de Yeihu, plutôt ce qui suit est son explication : "Et il chercha Achazyohu, et ils le capturèrent alors qu'il s'échappait par le jardin". Il agissait méchamment depuis le début, car il venait au Shomron et se cachait des officiers de Yehouda, pour commettre cette abomination, car les habitants du Shomron étaient idolâtres. "Et ils l'amenèrent à Yeihu,"<sup>15</sup><i class="footnote">Ibid.</i> [c'est-à-dire, ] les hommes de Yeihu, qui l'avaient poursuivi, [après quoi on lit :] "Et il dit : "Frappe-le dans le char.""<sup>16</sup><i class="footnote">Alternativement, Achazyohu a été blessé en montant à Gur, et il s'est enfui à Megido où son état s'est aggravé. Le verset utilise donc l'expression וַיָמָת [littéralement="et il mourut"] pour exprimer son état bien qu'il soit encore vivant. Voir I Shmuel 25:37 où "וַיָמָת" est utilisé pour exprimer la condition d'une personne vivante. Il est ensuite allé se cacher dans le Shomron où il a été découvert par les hommes de Yeihu. Ils ont amené Achazyohu à Yeihu à Yizre'el et il a été exécuté là-bas.-Radak</i>.
 <b>En montant vers Gur.</b> Car c'est là qu'ils l'ont amené [Achazyoh] à lui [Yeihu].
-<b>Et il s'enfuit à Meggido.</b> Il fut frappé à la suite d'un complot [=בְנִכְלִיּוּת].<sup>17</sup><i class="footnote">Voir Rachi dans Bereishis 37:18. Dans certaines éditions, le texte de Rachi est מוּכָּה בְלוּנְכִּיוֹת [=frappé par des lances].</i>
+<b>Et il s'enfuit à Meggido.</b> Il fut frappé à la suite d'un complot [=בְנִכְלִיּוּת].<sup>17</sup><i class="footnote">Voir Rachi dans Bereshit 37:18. Dans certaines éditions, le texte de Rachi est מוּכָּה בְלוּנְכִּיוֹת [=frappé par des lances].</i>
 
 ### passuk 28
 

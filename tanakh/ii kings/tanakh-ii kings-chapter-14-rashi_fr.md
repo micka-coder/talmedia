@@ -20,7 +20,7 @@
 ### passuk 9
 <b>"Le chardon qui était à Levanon.</b> Sichem fils de Chamor.
 <b>Envoya [un message] au cèdre.</b> Yaakov. 
-<b>Et il passa près de la bête sauvage [qui était à Levanon].</b> "Les fils de Yaakov sont venus sur les morts."<sup>4</sup><i class="footnote">Bereishis 34:27.</i> Ici aussi, tu viens te comparer à moi. Cette comparaison avait pour but de l'humilier, car il le comparait [Amatzyohu] à un chardon, et lui-même à un [arbre] de cèdre.<sup>5</sup><i class="footnote">Yehoash, dont le grand-père Yeihu, a complètement détruit Achov et sa famille, se moquait d'Amatzyohu, qui était le descendant d'Achov.</i>
+<b>Et il passa près de la bête sauvage [qui était à Levanon].</b> "Les fils de Yaakov sont venus sur les morts."<sup>4</sup><i class="footnote">Bereshit 34:27.</i> Ici aussi, tu viens te comparer à moi. Cette comparaison avait pour but de l'humilier, car il le comparait [Amatzyohu] à un chardon, et lui-même à un [arbre] de cèdre.<sup>5</sup><i class="footnote">Yehoash, dont le grand-père Yeihu, a complètement détruit Achov et sa famille, se moquait d'Amatzyohu, qui était le descendant d'Achov.</i>
 <b>Et la bête sauvage qui était à Levanon passa et piétina, etc.</b> Parce que tu es arrogant, les troupes de mes armées te piétineront aussi.
 
 ### passuk 10
@@ -32,7 +32,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonatanh a rendu : " les enfants des princes ".
+<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonathan a rendu : " les enfants des princes ".
 
 ### passuk 15
 
@@ -63,7 +63,7 @@
 <b>Yonah fils d'Amitai.</b> C'est lui qui a oint Yeihu, qui lui a dit : " [Tes] descendants de la quatrième génération occuperont [le trône de Israël]. "<sup>9</sup><i class="footnote">Yonah 3:1. </i> Nos rabbins, cependant, en ont déduit : "Et la parole d'Hachem vint à Yonah une seconde fois"<sup>10</sup><i class="footnote">Alternativement, Dieu n'a parlé à Yonah que deux fois au sujet de Ninive, mais Il lui a parlé de nombreuses fois concernant d'autres sujets.-Radak</i> mais pas une troisième fois, parce qu'il demandait l'honneur du fils, mais il ne demandait pas l'honneur du Père. Ce verset était donc difficile pour eux, et ils l'ont réconcilié [comme suit] : Tout comme la parole d'Hachem, Qui avait parlé par Yonah au sujet de Ninive, et que le mauvais décret fut renversé pour le bien, ainsi fut-elle changée pour Israël aux jours de Yerovom fils de Yoash, de la détresse dans laquelle ils se trouvaient, à savoir que "le roi d'Arom les avait détruits et piétinés comme de la terre"<sup>11</sup><i class="footnote">Supérieur, 13:7. </i> et maintenant cela a été changé pour le bien.<sup>12</sup><i class="footnote">Voir Masehet Yebamot 98a.</i>
 
 ### passuk 26
-<b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereishis 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
+<b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereshit 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -88,7 +88,7 @@
 ### passuk 9
 <b>"Le chardon qui était à Levanon.</b> Sichem fils de Chamor.
 <b>Envoya [un message] au cèdre.</b> Yaakov. 
-<b>Et il passa près de la bête sauvage [qui était à Levanon].</b> "Les fils de Yaakov sont venus sur les morts."<sup>4</sup><i class="footnote">Bereishis 34:27.</i> Ici aussi, tu viens te comparer à moi. Cette comparaison avait pour but de l'humilier, car il le comparait [Amatzyohu] à un chardon, et lui-même à un [arbre] de cèdre.<sup>5</sup><i class="footnote">Yehoash, dont le grand-père Yeihu, a complètement détruit Achov et sa famille, se moquait d'Amatzyohu, qui était le descendant d'Achov.</i>
+<b>Et il passa près de la bête sauvage [qui était à Levanon].</b> "Les fils de Yaakov sont venus sur les morts."<sup>4</sup><i class="footnote">Bereshit 34:27.</i> Ici aussi, tu viens te comparer à moi. Cette comparaison avait pour but de l'humilier, car il le comparait [Amatzyohu] à un chardon, et lui-même à un [arbre] de cèdre.<sup>5</sup><i class="footnote">Yehoash, dont le grand-père Yeihu, a complètement détruit Achov et sa famille, se moquait d'Amatzyohu, qui était le descendant d'Achov.</i>
 <b>Et la bête sauvage qui était à Levanon passa et piétina, etc.</b> Parce que tu es arrogant, les troupes de mes armées te piétineront aussi.
 
 ### passuk 10
@@ -100,7 +100,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonatanh a rendu : " les enfants des princes ".
+<b>Et les enfants [retenus] en otage.</b> Les enfants des princes, qui étaient placés dans le palais du roi comme garantie que leurs pères ne se rebelleraient pas contre lui. C'est ainsi que le [Targum] Yonathan a rendu : " les enfants des princes ".
 
 ### passuk 15
 
@@ -131,7 +131,7 @@
 <b>Yonah fils d'Amitai.</b> C'est lui qui a oint Yeihu, qui lui a dit : " [Tes] descendants de la quatrième génération occuperont [le trône de Israël]. "<sup>9</sup><i class="footnote">Yonah 3:1. </i> Nos rabbins, cependant, en ont déduit : "Et la parole d'Hachem vint à Yonah une seconde fois"<sup>10</sup><i class="footnote">Alternativement, Dieu n'a parlé à Yonah que deux fois au sujet de Ninive, mais Il lui a parlé de nombreuses fois concernant d'autres sujets.-Radak</i> mais pas une troisième fois, parce qu'il demandait l'honneur du fils, mais il ne demandait pas l'honneur du Père. Ce verset était donc difficile pour eux, et ils l'ont réconcilié [comme suit] : Tout comme la parole d'Hachem, Qui avait parlé par Yonah au sujet de Ninive, et que le mauvais décret fut renversé pour le bien, ainsi fut-elle changée pour Israël aux jours de Yerovom fils de Yoash, de la détresse dans laquelle ils se trouvaient, à savoir que "le roi d'Arom les avait détruits et piétinés comme de la terre"<sup>11</sup><i class="footnote">Supérieur, 13:7. </i> et maintenant cela a été changé pour le bien.<sup>12</sup><i class="footnote">Voir Masehet Yebamot 98a.</i>
 
 ### passuk 26
-<b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereishis 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
+<b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereshit 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

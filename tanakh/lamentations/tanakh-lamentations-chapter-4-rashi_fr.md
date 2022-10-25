@@ -23,7 +23,7 @@
 <b>Les tas de fumier.</b> Des tas de fumier ; ils gisent sur les tas de fumier dans la rue.
 
 ### passuk 6
-<b>Les transgressions [de mon peuple] ont surpassé, etc.</b> [La sévérité de] leur châtiment<sup>9</sup><i class="footnote">Pour ce qui est de S'dom, l'Ecriture dit : "son péché est extrêmement grave", dans Bereishis 18:20. Cependant, concernant Yéhouda, l'Écriture déclare : " L'iniquité de la maison de Israël et de Yéhouda est extrêmement extrêmement grande ", dans Yechezkeil 9:9. </i> prouve à leur sujet que leur transgression est plus grande que celle de Sodome.</sup>10</sup><i class="footnote">Les péchés de S'dom ont été commis avant que la Torah ne soit donnée et sont considérés comme accidentels [חטא]. En revanche, ces péchés ont été commis après que la Torah ait été donnée et sont considérés comme prémédités [עון]. (Palgei Mayim) </i> 
+<b>Les transgressions [de mon peuple] ont surpassé, etc.</b> [La sévérité de] leur châtiment<sup>9</sup><i class="footnote">Pour ce qui est de S'dom, l'Ecriture dit : "son péché est extrêmement grave", dans Bereshit 18:20. Cependant, concernant Yéhouda, l'Écriture déclare : " L'iniquité de la maison de Israël et de Yéhouda est extrêmement extrêmement grande ", dans Yechezkeil 9:9. </i> prouve à leur sujet que leur transgression est plus grande que celle de Sodome.</sup>10</sup><i class="footnote">Les péchés de S'dom ont été commis avant que la Torah ne soit donnée et sont considérés comme accidentels [חטא]. En revanche, ces péchés ont été commis après que la Torah ait été donnée et sont considérés comme prémédités [עון]. (Palgei Mayim) </i> 
 <b>Qui a été instantanément renversée.</b> La détresse de Sodome ne s'est pas prolongée, elle a été renversée comme en un instant.
 <b>Intouché par des mains [humaines].</b> C'est-à-dire les mains de l'ennemi;<sup>11</sup><i class="footnote">Alternativement, "qui n'avait pas de prophètes" pour les ramener à la téchouva ; c'est-à-dire, S'dom, à la différence de 'mon peuple', n'avait pas de prophètes pour le châtier, c'est pourquoi les 'transgressions de Bnei Israël ont dépassé, etc.' (Targum) </i>mais il a été renversé par des anges.<sup>12</sup><i class="footnote">En référence à S'dom. </i> Il existe également des Midrashim aggadiques, mais ils ne correspondent pas à la séquence des versets. 
 
@@ -80,7 +80,7 @@
 ### passuk 21
 <b>Réjouis-toi dans l'allégresse ville d'Edom.</b> Yirmiyahou a prophétisé la destruction du second Beit Hamikdash que les Romains détruiraient.<sup>29</sup><i class="footnote">Alternativement, il s'agit d'Edom qui s'est réjoui de la chute de Jérusalem et s'est réjoui de la destruction du premier Beit Hamikdash, comme il est dit "Souviens-toi, Hachem, pour la progéniture d'Edom... qui dit 'Détruis ! Détruisez ! " etc..., dans Tehilim 137:7. </i> 
 <b>Réjouissez-vous dans l'allégresse.</b> Pour le moment, mais finalement, la coupe du châtiment passera aussi sur vous, et vous vous enivrerez. 
-<b>Jusqu'à ce que tu vomisses.</b> Et tu vomiras, comme dans "et elle vida וַתְּעַר sa cruche."<sup>30</sup><i class="footnote">Bereishis 24:20. </i> 
+<b>Jusqu'à ce que tu vomisses.</b> Et tu vomiras, comme dans "et elle vida וַתְּעַר sa cruche."<sup>30</sup><i class="footnote">Bereshit 24:20. </i> 
 
 ### passuk 22
 <b>Tu as été pleinement châtié pour tes péchés ville de <i>Tzion</i>.</b> Tu as souffert pour tous tes péchés.

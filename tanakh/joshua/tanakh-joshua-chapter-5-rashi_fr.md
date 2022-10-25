@@ -10,7 +10,7 @@
 <b>Gival Ha-orlos.</b> [Lit. Colline des prépuces] Elle a été appelée ainsi, à cause de l'événement, [c'est-à-dire la masse de prépuces qui ont été circoncis] qui ont été transformés en une colline.
 
 ### passuk 4
-<b>Et voici la raison.</b> [Lit. et voici la chose] Après ce discours, il les circoncit. Il leur dit . " Pensez-vous que vous hériterez de cette terre alors que vous êtes encore incirconcis ? N'a-t-il pas été dit à Avraham : "Tu préserveras mon alliance, etc." "et je te donnerai, à toi et à ta descendance après toi, le pays de ton séjour" ?"<sup>4</sup><i class="footnote">Bereishis 17:8,9. Ainsi, l'héritage de la terre dépendait de leur préservation de l'alliance, qui était le rite de la circoncision.</i>
+<b>Et voici la raison.</b> [Lit. et voici la chose] Après ce discours, il les circoncit. Il leur dit . " Pensez-vous que vous hériterez de cette terre alors que vous êtes encore incirconcis ? N'a-t-il pas été dit à Avraham : "Tu préserveras mon alliance, etc." "et je te donnerai, à toi et à ta descendance après toi, le pays de ton séjour" ?"<sup>4</sup><i class="footnote">Bereshit 17:8,9. Ainsi, l'héritage de la terre dépendait de leur préservation de l'alliance, qui était le rite de la circoncision.</i>
 <b>Tout le peuple qui est sorti.</b> Il n'y en avait pas un seul ici car ils étaient tous morts, et ils avaient tous été circoncis, comme il est dit : " car ils étaient circoncis.'<sup>5</sup><i class="footnote">Verset suivant.</i>
 
 ### passuk 5
@@ -27,7 +27,7 @@
 
 ### passuk 9
 <b>J'ai enlevé.</b> (Lit. J'ai roulé) J'ai enlevé la dérision des Égyptiens qui avaient dit [au moment de leur départ] : "Vois que '<i>Raah</i>' est devant toi.<sup>7</sup><i class="footnote">Shemos, 10:10.</i> Il y a une étoile nommée <i>Raah,</i> qui est un symbole de sang. Nous la voyons vous dominer dans le désert."<sup>8</sup><i class="footnote">Les Égyptiens ont laissé entendre que les Bnei Israël connaîtraient un désastre s'ils quittaient l'Égypte parce qu'ils seraient sous l'emprise de l'étoile du sang.</i> C'est à cela que Moshé faisait référence dans le désert [lorsqu'il a dit :] "Pourquoi les Égyptiens parleraient-ils en disant : "Avec <i>Raah,</i> il les a fait sortir." Mais ils ne savaient pas que [le sang qu'ils voyaient] était le sang de la circoncision. Or, lorsqu'ils ont été circoncis aux jours de Yehoshua, et que le sang de la circoncision est apparu, cette moquerie a disparu, car la multitude mixte qui était montée avec eux [d'Égypte] les raillait encore. C'est ainsi que R' Moshe, Ha Darshan a expliqué [ce passage].
-<b>J'ai enlevé.</b> [Lit. J'ai roulé] Ceci est similaire à : <sup>9</sup><i class="footnote">Tehillim 119:22.</i> 'Et il roula la pierre.'<sup>10</sup><i class="footnote">Bereishis 29:10.</i>
+<b>J'ai enlevé.</b> [Lit. J'ai roulé] Ceci est similaire à : <sup>9</sup><i class="footnote">Tehillim 119:22.</i> 'Et il roula la pierre.'<sup>10</sup><i class="footnote">Bereshit 29:10.</i>
 
 ### passuk 10
 

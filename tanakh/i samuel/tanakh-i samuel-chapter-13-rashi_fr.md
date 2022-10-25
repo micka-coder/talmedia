@@ -5,7 +5,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Israël et ils l'ont posté à Givas Binyamin.<sup>2</sup><i class="footnote">Yonatanh l'a assassiné comme un acte ouvert de rébellion contre les Philistins.-Radak</i>.
+<b>Le gouverneur philistin.</b> Ils avaient un fonctionnaire du gouvernement [qui régnait] sur Israël et ils l'ont posté à Givas Binyamin.<sup>2</sup><i class="footnote">Yonathan l'a assassiné comme un acte ouvert de rébellion contre les Philistins.-Radak</i>.
 <b>Que les Hébreux entendent.</b> Que nous nous sommes révoltés contre les Philistins et qu'ils doivent se méfier d'eux.
 
 ### passuk 4
@@ -25,7 +25,7 @@
 <b>S'empressèrent de le suivre.</b> Ils s'empressèrent de le suivre.</sup>4</sup><i class="footnote"> C'est-à-dire de s'allier à Shaoul.</i>
 
 ### passuk 8
-<b>Il attendait.</b> Il attendait.<sup>5</sup><i class="footnote"> Voir Bereishis 8:10.</i>
+<b>Il attendait.</b> Il attendait.<sup>5</sup><i class="footnote"> Voir Bereshit 8:10.</i>
 <b>Jusqu'au moment fixé par Shmuel.</b> Ce verset comporte un mot manquant. [Le verset veut dire], "jusqu'au moment fixé par Shmuel", ou "jusqu'au moment fixé par Shmuel". Un exemple de cela est : "Et deux hommes, officiers de troupes étaient fils de Shaul." L'Écriture aurait dû écrire : "étaient au fils de Shaoul."<sup>6</sup><i class="footnote"> II Shmuel 4:2.</i> Ici aussi, "qui a été fixé par Shmuel", qui lui avait dit : "Attends sept jours que je vienne à toi."<sup>7</sup><i class="footnote">Supérieur 10:8.</i>
 
 ### passuk 9

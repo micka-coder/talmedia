@@ -33,7 +33,7 @@
 <b>et n'avorte pas</b> avant son heure.
 
 ### passuk 11
-<b>Ils envoient leurs nourrissons comme des moutons etc.</b> Au moment de sa naissance, il allait immédiatement danser, et s'il rencontrait un démon, il se battait avec lui, et sa mère lui disait : "Apporte-moi une paire de ciseaux et je couperai ton cordon ombilical", dans Haggadath Bereishith, "Va allumer une bougie pour moi", dans Gen. Rabba (36:1).
+<b>Ils envoient leurs nourrissons comme des moutons etc.</b> Au moment de sa naissance, il allait immédiatement danser, et s'il rencontrait un démon, il se battait avec lui, et sa mère lui disait : "Apporte-moi une paire de ciseaux et je couperai ton cordon ombilical", dans Haggadath Bereshith, "Va allumer une bougie pour moi", dans Gen. Rabba (36:1).
 
 ### passuk 12
 <b>Ils élèvent</b> Ils élevaient leur voix en chantant avec le tambourin et la harpe. La flûte (עוגב) n'est que l'expression d'un rire sensuel (עגבות) (aboyement en français, aboiement.) Alors j'ai entendu .

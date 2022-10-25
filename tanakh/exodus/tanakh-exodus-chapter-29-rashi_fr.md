@@ -39,7 +39,7 @@
 ### passuk 12
 <b>Sur les élévations en forme de cornes.</b> [C'est-à-dire] au sommet, en fait sur les "cornes". 
 <b>Tout le sang.</b> [C'est-à-dire] le <i>sang restant</i>.
-<b>A la base de l'autel.</b> Une sorte de saillie qui était un réceptacle lui était faite tout autour après qu'il (l'autel) ait atteint la hauteur d'un <i>amoh.</i>
+<b>A la base de l'autel.</b> Une sorte de saillie qui était un réceptacle lui était faite tout autour après qu'il (l'autel) ait atteint la hauteur d'un <i>amah.</i>
 
 ### passuk 13
 <b>La graisse qui recouvre les organes internes.</b> C'est la membrane qui recouvre l'estomac, que l'on appelle <i>teile</i> (membrane) [ancien français]. 

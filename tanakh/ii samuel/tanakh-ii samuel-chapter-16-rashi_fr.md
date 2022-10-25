@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Plus de cent portions de figues sèches.</b> Le Yonatanh traduit : "Cent portions de figues sèches."
+<b>Plus de cent portions de figues sèches.</b> Le Yonathan traduit : "Cent portions de figues sèches."
 
 ### passuk 2
 
@@ -25,7 +25,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Dieu verra [les larmes] de mes yeux.</b> [Yonatanh traduit :] "Les larmes de mes yeux".
+<b>Dieu verra [les larmes] de mes yeux.</b> [Yonathan traduit :] "Les larmes de mes yeux".
 
 ### passuk 13
 
@@ -50,7 +50,7 @@
 >Crédit : sefaris
 >License : CC-BY
 ### passuk 1
-<b>Plus de cent portions de figues sèches.</b> Le Yonatanh traduit : "Cent portions de figues sèches."
+<b>Plus de cent portions de figues sèches.</b> Le Yonathan traduit : "Cent portions de figues sèches."
 
 ### passuk 2
 
@@ -75,7 +75,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Dieu verra [les larmes] de mes yeux.</b> [Yonatanh traduit :] "Les larmes de mes yeux".
+<b>Dieu verra [les larmes] de mes yeux.</b> [Yonathan traduit :] "Les larmes de mes yeux".
 
 ### passuk 13
 

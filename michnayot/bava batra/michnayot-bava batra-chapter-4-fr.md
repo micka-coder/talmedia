@@ -1,6 +1,6 @@
 
 ### michna 1
-Si un homme a vendu une maison, il n'a pas vendu ses chambres latérales, même si elles s'ouvrent sur la maison, ni la pièce qui est derrière [la maison], ni le toit, s'il a une balustrade de plus de dix centimètres de haut. Rabbi Juda dit : "Si le toit a la forme d'une porte d'entrée, même si la balustrade n'a pas dix centimètres de hauteur, il n'est pas vendu".
+Si un homme a vendu une maison, il n'a pas vendu ses chambres latérales, même si elles s'ouvrent sur la maison, ni la pièce qui est derrière [la maison], ni le toit, s'il a une balustrade de plus de dix tefahs [paumes] de haut. Rabbi Juda dit : "Si le toit a la forme d'une porte d'entrée, même si la balustrade n'a pas dix tefahs [paumes] de hauteur, il n'est pas vendu".
 
 ### michna 2
 Il n'a pas non plus vendu la citerne ou la cave, même s'il avait écrit dans l'acte de vente : "la profondeur et la hauteur". Et il [le vendeur] doit s'acheter un chemin [du nouveau propriétaire pour atteindre la cave ou la citerne], selon Rabbi Akiva. Mais les Sages disent :  Et Rabbi Akiva est d'accord pour dire que s'il lui avait dit : "A l'exception de ceux-ci [la citerne ou la cave]", il n'avait pas besoin d'acheter un chemin. S'il les a vendus [le cellier ou la citerne] à un autre, Rabbi Akiva dit :  "Il n'a pas besoin de s'acheter un chemin", mais les Sages disent :  "Il doit s'acheter un chemin".

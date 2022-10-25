@@ -1,6 +1,6 @@
 
 ### michna 1
-Celui qui habite dans une cour avec un am haaretz et qui a oublié des récipients dans la cour, même s'il s'agissait de jarres avec des couvercles bien ajustés, ou d'un four avec un couvercle bien ajusté, ils sont impurs. Rabbi Judah dit qu'un four est propre s'il a un couvercle bien ajusté. Rabbi Yose dit : même un four est impur à moins qu'il n'ait fait pour lui une cloison de dix centimètres de haut.
+Celui qui habite dans une cour avec un am haaretz et qui a oublié des récipients dans la cour, même s'il s'agissait de jarres avec des couvercles bien ajustés, ou d'un four avec un couvercle bien ajusté, ils sont impurs. Rabbi Judah dit qu'un four est propre s'il a un couvercle bien ajusté. Rabbi Yose dit : même un four est impur à moins qu'il n'ait fait pour lui une cloison de dix tefahs [paumes] de haut.
 
 ### michna 2
 Celui qui a déposé des récipients avec un am haaretz, ils sont impurs de l'impureté du cadavre et de l'impureté du midras. S'il savait qu'il mange de la teroumah, ils sont exempts de l'impureté du cadavre mais sont souillés par l'impureté de midras. Rabbi Yose dit : s'il a déposé avec lui un coffre rempli de vêtements, ils sont considérés comme impurs de midras lorsqu'ils sont bien emballés, mais s'ils ne sont pas bien emballés, ils sont seulement impurs de madaf, même si la clé est en possession du propriétaire.

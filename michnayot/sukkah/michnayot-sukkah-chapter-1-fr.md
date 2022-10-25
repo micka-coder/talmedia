@@ -24,7 +24,7 @@ Un toit [en bois] qui n'a pas de plâtre : Rabbi Judah dit : Bet Shammai disent 
 Celui qui couvre sa soukka avec des broches en fer ou avec des poteaux de lit, si l'espace entre eux est égal, elle est valide. Celui qui creuse une meule de foin pour se faire une soucca, ce n'est pas une soucca valide.
 
 ### michna 9
-S'il suspend des murs du haut vers le bas, s'ils sont plus hauts que trois poignets du sol, elle n'est pas valide. S'il les élève de bas en haut, s'ils ont une hauteur de dix centimètres, elle est valide. Rabbi Yose dit : de même que de bas en haut, dix centimètres [suffisent], de même de haut en bas, dix centimètres [suffisent]. S'il éloigne le skhakh de trois centimètres des murs, il est invalide.
+S'il suspend des murs du haut vers le bas, s'ils sont plus hauts que trois poignets du sol, elle n'est pas valide. S'il les élève de bas en haut, s'ils ont une hauteur de dix tefahs, elle est valide. Rabbi Yose dit : de même que de bas en haut, dix tefahs [paumes] [suffisent], de même de haut en bas, dix tefahs [paumes] [suffisent]. S'il éloigne le skhakh de trois tefahs [paumes] des murs, il est invalide.
 
 ### michna 10
 Si [le toit d'une] maison est ouvert, et qu'il a placé le skhakh par-dessus, s'il y a une distance de quatre coudées entre le mur et la couverture, il est invalide. De même dans le cas d'une cour entourée de colonnes. Une grande souka qui a été entourée de matériaux qui ne sont pas valables pour le skhakh, s'il y a un espace de quatre coudées en dessous, elle n'est pas valable.

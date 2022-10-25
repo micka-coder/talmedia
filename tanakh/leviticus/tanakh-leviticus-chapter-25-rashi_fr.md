@@ -126,7 +126,7 @@
 
 ### passuk 32
 <b>Les villes des lévites,</b> [les] quarante-huit villes qui leur ont été données. 
-<b>Droit de rachat éternel.</b> Il peut racheter immédiatement, même avant deux ans, s'ils ont vendu un de leurs champs [qui] leur ont été donnés dans un rayon de deux mille <i>amohs</i> autour de leurs villes. Ou s'ils ont vendu une maison dans une ville fortifiée, ils peuvent les racheter pour toujours, et elle n'est pas irrémédiablement [en possession de l'acheteur] à la fin de l'année. 
+<b>Droit de rachat éternel.</b> Il peut racheter immédiatement, même avant deux ans, s'ils ont vendu un de leurs champs [qui] leur ont été donnés dans un rayon de deux mille <i>amahs</i> autour de leurs villes. Ou s'ils ont vendu une maison dans une ville fortifiée, ils peuvent les racheter pour toujours, et elle n'est pas irrémédiablement [en possession de l'acheteur] à la fin de l'année. 
 
 ### passuk 33
 <b>Si quelqu'un rachète aux Lévites,</b> [c'est-à-dire] si l'on achète d'eux une maison ou une ville, cette vente de maison ou de ville sort en jubilé, et revient au Lévite qui l'a vendue. et elle n'est pas irrémédiablement [en possession de l'acheteur] comme le sont les autres maisons d'une ville israélienne fortifiée. Ce "rachat" est une expression de "vente". Autre interprétation : Puisqu'il est dit : "Les Lévites auront un droit de rachat éternel", peut-être le verset parle-t-il seulement d'un Israélite qui achète une maison dans les villes lévitiques, mais un Lévite qui achète d'un [autre] Lévite, [la vente] devrait être irrémédiable ? Le verset dit : "Si quelqu'un rachète des Lévites" - même un (= un Lévite) qui rachète (= achète) d'un Lévite [le vendeur a le droit] de rachat éternel. 

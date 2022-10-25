@@ -35,7 +35,7 @@
 
 ### passuk 9
 <b>Celui qui enlève des pierres sera blessé par elles.</b> Celui qui extrait des pierres dans les montagnes sera fatigué par elles.
-<b>Sera blessé.</b> 'יֵעָצֵב' est une expression de lassitude, comme dans, "avec peine בְּעִצָּבוֹן tu le mangeras,"<sup>13</sup><i class="footnote">Bereishis 3:17. Alternativement, celui qui disperse des pierres pour faire trébucher les autres, sera lui-même fait trébucher et blessé par elles. (Alshich) </i> c'est-à-dire que chaque homme, sa fatigue est en fonction de son travail, ainsi l'auteur du mal récoltera selon ce qu'il a semé. 
+<b>Sera blessé.</b> 'יֵעָצֵב' est une expression de lassitude, comme dans, "avec peine בְּעִצָּבוֹן tu le mangeras,"<sup>13</sup><i class="footnote">Bereshit 3:17. Alternativement, celui qui disperse des pierres pour faire trébucher les autres, sera lui-même fait trébucher et blessé par elles. (Alshich) </i> c'est-à-dire que chaque homme, sa fatigue est en fonction de son travail, ainsi l'auteur du mal récoltera selon ce qu'il a semé. 
 <b>Sera mis en danger par eux.</b> Sera réchauffé par eux, comme dans, "et elle sera pour lui un réchauffeur סֹכֶנֶת."<sup>14</sup><i class="footnote">I Melochim 1:2. </i> Ainsi, celui qui s'engage dans [l'étude de] la Torah et dans [l'exécution des] commandements en tirera finalement profit. 
 
 ### passuk 10

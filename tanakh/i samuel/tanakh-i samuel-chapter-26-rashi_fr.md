@@ -19,7 +19,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Comme Hachem vit.</b> Certains disent qu'il a juré sur sa tentation;<sup>1</sup><i class="footnote"> L'utilisation du serment pour éloigner la tentation est faite par de nombreux Tzadikim. Par exemple, Avraham a juré [Bereishis 14:22-23] qu'il ne prendrait pas le butin de la victoire après avoir vaincu les quatre rois. David avait envie de tuer Shaoul pour avoir essayé de le tuer. Il a donc juré qu'il ne tuerait pas Shaoul.-Voir Midrash Tanchuma Beha'aloscha 10.</i> d'autres disent qu'il a juré à Avishai, que si tu tues cet homme juste [Shaoul], je mêlerai ton sang à son sang.
+<b>Comme Hachem vit.</b> Certains disent qu'il a juré sur sa tentation;<sup>1</sup><i class="footnote"> L'utilisation du serment pour éloigner la tentation est faite par de nombreux Tzadikim. Par exemple, Avraham a juré [Bereshit 14:22-23] qu'il ne prendrait pas le butin de la victoire après avoir vaincu les quatre rois. David avait envie de tuer Shaoul pour avoir essayé de le tuer. Il a donc juré qu'il ne tuerait pas Shaoul.-Voir Midrash Tanchuma Beha'aloscha 10.</i> d'autres disent qu'il a juré à Avishai, que si tu tues cet homme juste [Shaoul], je mêlerai ton sang à son sang.
 <b>Hachem le frappera.</b> Amènera sa mort prématurément.</sup></sup><i class="footnote">Comme Novol.-Radak.</i>.
 <b>Ou son jour viendra.</b> Le jour où il est destiné à mourir.</sup>3</sup><i class="footnote">Est dans un futur très proche.</sup>Radak.</i>
 

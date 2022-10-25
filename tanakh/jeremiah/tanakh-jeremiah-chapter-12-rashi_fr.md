@@ -50,7 +50,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines qui ont donné des épines. Un livre dans lequel זרעו est voyellé avec un 'chirik' sous le 'zayin', est erroné.
+<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines qui ont donné des épines. Un livre dans lequel זרעו est voyellé avec un 'Hirik' sous le 'zayin', est erroné.
 <b>Ils sont devenus malades</b> Heb. נחלו, expression de la maladie. Ils sont devenus malades par leur douleur et leur cri devant Moi, mais ils n'ont pas servi.
 <b>De ton accroissement</b> De tes actes.
 
@@ -117,7 +117,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines qui ont donné des épines. Un livre dans lequel זרעו est voyellé avec un 'chirik' sous le 'zayin', est erroné.
+<b>Ils ont semé du blé, mais ils ont récolté des épines</b> Ils ont prié, mais leur prière n'a pas été acceptée. Pourquoi ? Parce qu'ils n'ont pas labouré pour eux-mêmes un sillon de repentance et de bonnes actions. Par conséquent, ils ont semé des graines qui ont donné des épines. Un livre dans lequel זרעו est voyellé avec un 'Hirik' sous le 'zayin', est erroné.
 <b>Ils sont devenus malades</b> Heb. נחלו, expression de la maladie. Ils sont devenus malades par leur douleur et leur cri devant Moi, mais ils n'ont pas servi.
 <b>De ton accroissement</b> De tes actes.
 

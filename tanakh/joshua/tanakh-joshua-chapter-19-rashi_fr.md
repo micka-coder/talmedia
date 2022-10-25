@@ -17,7 +17,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>C'était trop grand pour eux.</b> C'était plus que ce qui leur était dû.</sup></sup><i class="footnote">Diverses raisons sont présentées pour expliquer pourquoi Shimon a reçu une partie de leur héritage au milieu du territoire de Yehouda. Certains affirment que Shimon a aidé Yehouda à conquérir son territoire et qu'il méritait donc d'en recevoir une partie en propre. D'autres soutiennent que c'est parce que Yaakov avait dit : "Shimon et Lévi sont des frères, les instruments de violence sont leurs marchandises. Je les disperserai dans tout Yaakov et les disperserai dans tout Israël". (Bereishis 49:5,7) Shimon reçut une portion au sein de Yehouda et Lévi fut dispersé dans de nombreuses villes du pays.</i>
+<b>C'était trop grand pour eux.</b> C'était plus que ce qui leur était dû.</sup></sup><i class="footnote">Diverses raisons sont présentées pour expliquer pourquoi Shimon a reçu une partie de leur héritage au milieu du territoire de Yehouda. Certains affirment que Shimon a aidé Yehouda à conquérir son territoire et qu'il méritait donc d'en recevoir une partie en propre. D'autres soutiennent que c'est parce que Yaakov avait dit : "Shimon et Lévi sont des frères, les instruments de violence sont leurs marchandises. Je les disperserai dans tout Yaakov et les disperserai dans tout Israël". (Bereshit 49:5,7) Shimon reçut une portion au sein de Yehouda et Lévi fut dispersé dans de nombreuses villes du pays.</i>
 
 ### passuk 10
 

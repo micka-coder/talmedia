@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Sera éliminé</b> Éliminé.<sup>1</sup><i class="footnote"><span><b>פקד</b></span> est parfois traduit par "rappelé" (Bereishis, 50:25). Ici, cependant, la traduction est "enlevé", ou "éliminé". </i>
+<b>Sera éliminé</b> Éliminé.<sup>1</sup><i class="footnote"><span><b>פקד</b></span> est parfois traduit par "rappelé" (Bereshit, 50:25). Ici, cependant, la traduction est "enlevé", ou "éliminé". </i>
 
 ### passuk 4
 

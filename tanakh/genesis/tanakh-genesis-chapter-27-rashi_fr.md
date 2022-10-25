@@ -77,7 +77,7 @@
 
 ### passuk 28
 <b>Et qu'il vous donne.</b> Signification : Qu'il donne à plusieurs reprises. Mais, selon le sens ordinaire, cela renvoie à la déclaration précédente : "Voyez le parfum de mon fils" que Dieu lui a donné "est comme le parfum d'un champ", etc. Et qu'il vous donne aussi "de la rosée du ciel", etc. 
-<b>De la rosée du ciel.</b> [Interprétez cela] de sa manière habituelle. Il existe [également] diverses interprétations aggadaïques. 
+<b>De la rosée du ciel.</b> [Interprétez cela] de sa manière habituelle. Il existe [également] diverses interprétations aggadiques. 
 (Autre explication : <b>Dieu.</b> Pourquoi l'utilisation de הָאֱלֹהִים ? [Dieu agira envers vous] avec justice. Si tu le mérites "Il te donnera" mais, sinon, Il ne te "donnera" pas. Alors qu'à Eisov, Il dit : " La graisse de la terre sera ta demeure ", [c'est-à-dire] que tu sois juste ou mauvais, Il te donnera. C'est ce qu'a appris Shlomo lorsqu'il a construit le Temple, il a composé sa prière [ainsi] : Un Juif qui est croyant et qui accepte la justice du châtiment, ne se plaindra pas de Toi, donc : "Donne à l'homme selon toutes ses voies, car Tu sais ce qu'il y a dans son cœur". Mais un Gentil, lui, manque de foi, c'est pourquoi il [Shlomo] dit : "Que Tu acceptes [la prière] dans les cieux et que Tu fasses tout ce que le Gentil demande", c'est-à-dire, qu'il soit méritant ou non, donne-le lui, afin qu'il ne se plaigne pas de Toi). 
 
 ### passuk 29

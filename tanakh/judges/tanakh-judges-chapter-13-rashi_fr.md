@@ -43,7 +43,7 @@
 <b>Nous vous honorerons</b> en accomplissant la mission.
 
 ### passuk 18
-<b>Lorsqu'il est mystique.</b> Il est caché. Elle change constamment,<sup>4</sup><i class="footnote">Selon la mission de l'ange à ce moment précis. Cf. Rachi à Bereishis, 32:30.</i> de sorte que son identité reste inconnue à un jour donné.
+<b>Lorsqu'il est mystique.</b> Il est caché. Elle change constamment,<sup>4</sup><i class="footnote">Selon la mission de l'ange à ce moment précis. Cf. Rachi à Bereshit, 32:30.</i> de sorte que son identité reste inconnue à un jour donné.
 
 ### passuk 19
 

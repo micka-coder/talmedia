@@ -3,7 +3,7 @@
 <b>Voici un homme de Dieu.</b> C'était Yeddo.</sup></sup><i class="footnote">Voir II Divrei Hayamim 9:29.</i>
 
 ### passuk 2
-<b>Altar, autel.</b> [Celui] de Beis Eil et [celui] de Dan.<sup>2</sup><i class="footnote">Alternativement, il est courant d'utiliser la répétition lors des invocations, c'est-à-dire : "Avraham, Avraham [Bereishis 22:1]", etc.-Radak</i>.
+<b>Altar, autel.</b> [Celui] de Beis Eil et [celui] de Dan.<sup>2</sup><i class="footnote">Alternativement, il est courant d'utiliser la répétition lors des invocations, c'est-à-dire : "Avraham, Avraham [Bereshit 22:1]", etc.-Radak</i>.
 <b>Et les ossements des êtres humains.</b> Il s'agit des [ossements] de Yerovom, mais il [le prophète] l'a traité avec respect.<sup>3</sup><i class="footnote">En effet, il prophétisait que les ossements de Yerovom seront brûlés sur le même autel où il se tenait actuellement et offrait des sacrifices. Cependant, la Torah exige qu'un roi soit traité avec respect. Voir Shemos 11:8 et Rashi là.</i>
 
 ### passuk 3
@@ -28,7 +28,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Un vieux prophète.</b> Un faux prophète.</sup></sup><i class="footnote">Selon certaines opinions, le prophète était Micha. D'autres opinent que c'était soit Amatzyah, soit Yiddo, soit Yonatanh, fils de Gershom.-Radak</i>
+<b>Un vieux prophète.</b> Un faux prophète.</sup></sup><i class="footnote">Selon certaines opinions, le prophète était Micha. D'autres opinent que c'était soit Amatzyah, soit Yiddo, soit Yonathan, fils de Gershom.-Radak</i>
 <b>Qui vivait à Beis Eil.</b> Mais il n'était pas de là, mais venait de Shomron, et c'est ainsi qu'il est dit dans la section traitant de Yoshiyahu, "ses os avec les os du prophète qui était venu de Shomron."<sup>7</sup><i class="footnote">II Melochim 23:18.</i>
 
 ### passuk 12

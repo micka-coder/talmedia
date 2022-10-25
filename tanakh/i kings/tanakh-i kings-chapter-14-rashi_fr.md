@@ -21,7 +21,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Enfant mâle.</b> [Targum] Yonatanh a rendu : "celui qui connaît la connaissance", [c'est-à-dire, ] celui qui la place dans les murs de son cœur.<sup>2</sup><i class="footnote">Voir I Shmuel 25:22.</i><sup>3</sup><i class="footnote">Alternativement, משתין בקיר fait référence à un chien qui urine sur les murs, c'est-à-dire, le prophète prophétise que la destruction sera si sévère, qu'il ne restera même pas un chien lorsque la maison de Yerovom sera détruite.-Radak</i>.
+<b>Enfant mâle.</b> [Targum] Yonathan a rendu : "celui qui connaît la connaissance", [c'est-à-dire, ] celui qui la place dans les murs de son cœur.<sup>2</sup><i class="footnote">Voir I Shmuel 25:22.</i><sup>3</sup><i class="footnote">Alternativement, משתין בקיר fait référence à un chien qui urine sur les murs, c'est-à-dire, le prophète prophétise que la destruction sera si sévère, qu'il ne restera même pas un chien lorsque la maison de Yerovom sera détruite.-Radak</i>.
 <b>Ceux qui sont retenus et ceux qui sont abandonnés.</b> עצור est celui qui a quelqu'un qui le retient, comme dans : "Celui-ci régnera sur Mon peuple."<sup>4</sup><i class="footnote">I Shmuel 9:17.</i> Et עזוב est celui qui n'a personne qui le retient.
 <b>Comme celui qui élimine.</b> Comme celui qui digère les aliments qui [finalement] deviennent des excréments,<sup>5</sup><i class="footnote">Alternativement, גלל signifie "dent", qui consomme complètement les aliments. -Radak</i> ainsi j'expurgerai après lui jusqu'à ce qu'il soit totalement consumé.<sup>6</sup><i class="footnote">Alternativement, "j'expurgerai complètement la maison de Yerovom, comme celui qui balaie le fumier jusqu'à ce qu'il soit complètement nettoyé.-Metzudas David</i>.
 
@@ -33,7 +33,7 @@
 <b>Quelque chose de bien.</b> Il abandonna sa montre, car son père l'avait posté comme sentinelle pour que personne ne monte [à Jérusalem] lors de la fête du pèlerinage. Il abandonna sa montre et monta.<sup>7</sup><i class="footnote">Voir Masehet Mo'ed Katan 28b.</i>.
 
 ### passuk 14
-<b>Qui retranchera la maison de Yerovom aujourd'hui et aussi ceux qui naîtront.</b> Ceux qui sont déjà nés pour lui aujourd'hui, et ceux qui sont destinés à naître pour lui à partir de maintenant, ainsi a rendu [Targum] Yonatanh.
+<b>Qui retranchera la maison de Yerovom aujourd'hui et aussi ceux qui naîtront.</b> Ceux qui sont déjà nés pour lui aujourd'hui, et ceux qui sont destinés à naître pour lui à partir de maintenant, ainsi a rendu [Targum] Yonathan.
 
 ### passuk 15
 

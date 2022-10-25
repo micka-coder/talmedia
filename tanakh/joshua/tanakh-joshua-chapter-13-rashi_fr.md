@@ -36,7 +36,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Du reste des géants-</b> qui ont été tués par Kedorlaomeir et les rois qui étaient alignés avec lui, comme il est dit : "Et ils frappèrent les Rephaïm à Ashteros Karnayim."<sup>8</sup><i class="footnote">Bereishis 14:5.</i>
+<b>Du reste des géants-</b> qui ont été tués par Kedorlaomeir et les rois qui étaient alignés avec lui, comme il est dit : "Et ils frappèrent les Rephaïm à Ashteros Karnayim."<sup>8</sup><i class="footnote">Bereshit 14:5.</i>
 
 ### passuk 13
 

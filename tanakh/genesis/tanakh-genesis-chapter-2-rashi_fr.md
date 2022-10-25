@@ -7,7 +7,7 @@ Autre explication : [À ce moment-là,] qu'est-ce qui manquait [encore] au monde
 
 ### passuk 3
 <b>Béni... sanctifié.</b> Il l'a béni par la manne. Alors que pendant tous les jours de la semaine, il descendait pour eux un <i>omer</i> de manne par personne, mais, le sixième jour [vendredi] ; une double portion. Il l'a sanctifiée par la manne car elle n'est pas descendue du tout le Chabbath. Ce verset est écrit en référence à l'avenir. 
-<b>Ce qu'Elohim avait créé pour faire.</b> Le travail qui devait être fait le Chabbat, Il l'a doublé et l'a fait le vendredi, comme cela est expliqué dans Bereishis Rabbah. 
+<b>Ce qu'Elohim avait créé pour faire.</b> Le travail qui devait être fait le Chabbat, Il l'a doublé et l'a fait le vendredi, comme cela est expliqué dans Bereshit Rabbah. 
 
 ### passuk 4
 <b>Ceci.</b> ["Ce" fait référence à] ceux mentionnés précédemment.

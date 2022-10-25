@@ -27,7 +27,7 @@
 ### passuk 7
 <b>Et Moshé -</b> à partir de l'époque du péché et à partir de -.
 <b>prenait la tente.</b> [יִקַּח] est une action continue (au présent) : il prenait sa tente et la plantait en dehors du campement. Il pensait : celui qui est ostracisé par le maître devrait être ostracisé par le disciple aussi.
-<b>Une distance -</b> de deux mille <i>amohs,</i> semblable à ce qui est dit : "Qu'il y ait seulement entre vous (les B'nei Yisrael) et elle (l'Arche) une distance d'environ deux mille <i>amohs</i> par mesure." 
+<b>Une distance -</b> de deux mille <i>amahs,</i> semblable à ce qui est dit : "Qu'il y ait seulement entre vous (les B'nei Yisrael) et elle (l'Arche) une distance d'environ deux mille <i>amahs</i> par mesure." 
 <b>Et il l'appela.</b> Il la désignera comme Tente de la Rencontre - un lieu de rassemblement pour ceux qui cherchent la connaissance de la Torah.
 <b>Tous ceux qui cherchaient Hachem.</b> De là [on déduit] que celui qui cherche à être en présence d'un "ancien" (un érudit de la Torah) est comme s'il était en présence de la Shechinah.
 <b>Il sortira à la Tente de la Rencontre.</b> [יֵצֵא est ici] le même [temps] que יוֹצֵא (c'est-à-dire au présent). Une autre explication de וְהָיָה כָּל מְבַקֵּשׁ ה' . Même les anges tutélaires, lorsqu'ils s'informaient sur le lieu de la Shechinah, leurs congénères leur répondaient : "Mais Il est là, dans la tente de Moshé" ! 

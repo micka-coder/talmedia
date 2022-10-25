@@ -68,7 +68,7 @@
 ### passuk 25
 <b>Deux des fils de Yaakov.</b> Ils étaient ses fils, pourtant, Shimon et Leivi ont agi comme d'autres personnes qui ne sont pas ses fils, en ce sens qu'ils n'ont pas demandé son avis. 
 <b>Frères de Deenah.</b> Parce qu'ils ont risqué leur vie pour elle, ils sont appelés ses frères. 
-<b>Avec confiance.</b> Parce qu'ils [les Sichemites] étaient dans la douleur. L'explication aggadaïque est : ils avaient confiance en la puissance du "vieux" [Yaakov].
+<b>Avec confiance.</b> Parce qu'ils [les Sichemites] étaient dans la douleur. L'explication aggadique est : ils avaient confiance en la puissance du "vieux" [Yaakov].
 
 ### passuk 26
 
@@ -82,7 +82,7 @@
 <b>Ils ont fait des captifs.</b> Du terme שִׁבְיָה - faire des captifs. L'accent est, par conséquent, sur cette dernière syllabe. 
 
 ### passuk 30
-<b>Vous avez créé des problèmes.</b> D'après [l'expression] מַיִם עֲכוּרִים -les eaux troubles, c'est-à-dire que mon esprit n'est plus clair. Une explication aggadaïque : Le [liquide dans le] tonneau était clair et tu l'as troublé. [Les Cananéens avaient une tradition selon laquelle ils tomberaient [un jour] entre les mains des enfants de Yaakov. Mais, ils pensaient [que cela n'arriverait pas] jusqu'à ce que : "Quand votre nombre augmentera, alors vous hériterez du pays", et ils avaient, par conséquent, gardé le silence. 
+<b>Vous avez créé des problèmes.</b> D'après [l'expression] מַיִם עֲכוּרִים -les eaux troubles, c'est-à-dire que mon esprit n'est plus clair. Une explication aggadique : Le [liquide dans le] tonneau était clair et tu l'as troublé. [Les Cananéens avaient une tradition selon laquelle ils tomberaient [un jour] entre les mains des enfants de Yaakov. Mais, ils pensaient [que cela n'arriverait pas] jusqu'à ce que : "Quand votre nombre augmentera, alors vous hériterez du pays", et ils avaient, par conséquent, gardé le silence. 
 <b>Peu nombreux.</b> [Signifiant] peu de personnes.
 
 ### passuk 31

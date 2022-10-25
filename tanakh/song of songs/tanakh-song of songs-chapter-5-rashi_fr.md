@@ -80,7 +80,7 @@
 <b>Pourvus de pierres précieuses.</b> Chaque terme désignant le sertissage d'une pierre précieuse dans l'or est appelé  מִלֵּאת  [= sertissage].
 <b>Eclatant.</b> Une expression comme dans : "Ils sont devenus gras ; ils sont devenus épais  עָשְׁתוּ."<sup>46</sup><i class="footnote">Yirmiyahu 5:28. </i> Une masse épaisse est appelée  עֶשֶׁת,<sup>47</sup><i class="footnote">Alternativement,  עשת  signifie étinceler ou rayonner, comme dans, "shining [עשות] iron," dans Yechezkeil 27:19. (Metzudas Tzion) </i> <i>masiz</i> en ancien français 
 <b>Ivoire.</b> provenant des défenses d'un éléphant.
-<b>Couvert de saphirs.</b> Orné et décoré de saphirs, une expression [comme dans], "וַתִּתְעַלָּף£,"<sup>48</sup><i class="footnote">Bereishis 38:14. </i> que le Targum rend par "et elle s'est parée". 
+<b>Couvert de saphirs.</b> Orné et décoré de saphirs, une expression [comme dans], "וַתִּתְעַלָּף£,"<sup>48</sup><i class="footnote">Bereshit 38:14. </i> que le Targum rend par "et elle s'est parée". 
 
 ### passuk 15
 <b>Ses jambes.</b> Sont comme des piliers de marbre, posés sur des socles d'or fin. 

@@ -9,7 +9,7 @@
 
 ### passuk 4
 <b>Shaul convoqua.</b> Expression d'annonce [ayant le même sens] que dans <span>.<sup>3</sup><i class="footnote">Au-dessus de 14:20.</i></span><span>וַיִזָּעֵק שָׁאוּל</span>.
-<b>Et il les compta avec des agneaux.</b> Il dit à chacun de prendre un agneau<sup>4</sup><i class="footnote">Selon le Targum, cela se passait juste avant Pessah, et les agneaux étaient des sacrifices pascals.</i> des troupeaux du roi, et ensuite il compta les agneaux, car il est interdit de compter les Juifs. <sup>5</sup><i class="footnote"> Voir le Masehet Yoma 22b qui précise que pour éviter de compter directement les Bnei Israël, ce qui est interdit par la Torah, chaque homme prenait un agneau du troupeau du roi et les agneaux étaient ensuite comptés. Voir également le Kli Yokor dans Bamidbar 1:2 qui discute des exceptions à cette règle.</i> car il est dit à leur sujet : "[qui] sont trop nombreux pour être comptés."<sup>6</sup><i class="footnote">Bereishis 32:12.</i>
+<b>Et il les compta avec des agneaux.</b> Il dit à chacun de prendre un agneau<sup>4</sup><i class="footnote">Selon le Targum, cela se passait juste avant Pessah, et les agneaux étaient des sacrifices pascals.</i> des troupeaux du roi, et ensuite il compta les agneaux, car il est interdit de compter les Juifs. <sup>5</sup><i class="footnote"> Voir le Masehet Yoma 22b qui précise que pour éviter de compter directement les Bnei Israël, ce qui est interdit par la Torah, chaque homme prenait un agneau du troupeau du roi et les agneaux étaient ensuite comptés. Voir également le Kli Yokor dans Bamidbar 1:2 qui discute des exceptions à cette règle.</i> car il est dit à leur sujet : "[qui] sont trop nombreux pour être comptés."<sup>6</sup><i class="footnote">Bereshit 32:12.</i>
 
 ### passuk 5
 <b>Et il combattit dans la vallée.</b> [Signifie la même chose que] <span>וַיִלָּחֵם בַּנַּחַל</span> [=et il combattit dans la vallée]. Nos rabbins ont dit, concernant la vallée, qu'il a argumenté et conclu, que si pour le bien d'une vie, la Torah a dit de décapiter un veau dans la vallée,<sup>7</sup><i class="footnote">Voir Devarim 21:4.</i> combien plus pour le bien de toutes ces vies.<sup>8</sup><i class="footnote">Shaul a rationalisé qu'il épargnera les animaux pour les utiliser comme sacrifices pour expier les Amoleikites qui ont été tués. Pour les arguments supplémentaires présentés par Shaul et leurs conséquences, voir Masehet Yoma 22b.</i> Si l'homme a péché, qu'est-ce que les animaux ont péché ?
@@ -23,7 +23,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Le bétail engraissé.</b> Ce mot n'a aucune ressemblance [dans les Écritures]. Voici le bétail engraissé;<sup>14</sup><i class="footnote">Selon Mahri Kra <span>מִשֽׁנִים</span> sont des chevaux de race. </i> et je dis que l'expression de <span>מִשְׁנִים</span> est comme <span>וְכֶסֶף מִשְׁנֶה</span> [qui signifie argent double],<sup>15</sup><i class="footnote">Bereishis 43:12. </i> car ils sont doublés de chair et de graisse. De même, 'Et le bœuf qui a été engraissé [<span>הַשֵּׁנִי</span>] sept ans.'<sup>16</sup><i class="footnote">Shoftim 6:25.</i>.
+<b>Le bétail engraissé.</b> Ce mot n'a aucune ressemblance [dans les Écritures]. Voici le bétail engraissé;<sup>14</sup><i class="footnote">Selon Mahri Kra <span>מִשֽׁנִים</span> sont des chevaux de race. </i> et je dis que l'expression de <span>מִשְׁנִים</span> est comme <span>וְכֶסֶף מִשְׁנֶה</span> [qui signifie argent double],<sup>15</sup><i class="footnote">Bereshit 43:12. </i> car ils sont doublés de chair et de graisse. De même, 'Et le bœuf qui a été engraissé [<span>הַשֵּׁנִי</span>] sept ans.'<sup>16</sup><i class="footnote">Shoftim 6:25.</i>.
 <b>Indésirable et inférieur.</b> Même signification que <span>נִבְזֶה</span> ; et le '<span>מ</span>' est superflu.
 
 ### passuk 10
@@ -50,7 +50,7 @@
 <b>Jusqu'à ce qu'ils les détruisent.</b> Les gens qui sont avec toi les détruiront.
 
 ### passuk 19
-<b>Vous vous êtes précipités.</b> Signifiant '<span>וַתַּעַף</span>' [vous avez volé], une expression liée à '<span>עַיִט</span>' [oiseaux de proie].<sup>19</sup><i class="footnote">Bereishis 15:11.</i>
+<b>Vous vous êtes précipités.</b> Signifiant '<span>וַתַּעַף</span>' [vous avez volé], une expression liée à '<span>עַיִט</span>' [oiseaux de proie].<sup>19</sup><i class="footnote">Bereshit 15:11.</i>
 
 ### passuk 20
 
@@ -63,7 +63,7 @@
 
 ### passuk 23
 <b>Parce que la défiance est comme le péché de sorcellerie, et l'obstination est comme le péché d'idolâtrie.</b> Et comme la peine pour l'idolâtrie, ainsi est la peine pour l'obstination.</sup>24</sup><i class="footnote"> Le péché originel de Shaoul a été comparé à la sorcellerie, mais le fait qu'il insiste sur son innocence a été comparé au péché plus grave de l'idolâtrie ; Shaoul aggravait son péché originel en insistant sur son innocence. </i> Le Targum Yonathan rend : 'Car, comme le péché d'un peuple [qui divinise, ainsi est le péché de tout homme qui désobéit à la parole d'Hachem]<sup>25</sup><i class="footnote">De même que celui qui divinise démontre qu'il retire sa confiance en '<span>ה</span> et cherche d'autres moyens pour déterminer son avenir, de même celui qui désobéit et se rebelle contre la parole de '<span>ה</span> indique qu'il retire sa croyance dans le pouvoir de '<span>ה</span> de récompenser et de punir. -Radak</i> et comme les péchés d'une nation qui s'est égarée après les idoles, ainsi est le péché de toute personne qui ajoute [aux paroles d'un prophète].
-<b>Etouffement.</b> Expression qui ajoute, et de même, "Il le pressa [<span>וַיִפְצַר</span>],"<sup>26</sup><i class="footnote"> Bereishis 33:11.</i> c'est-à-dire qu'il prononça de nombreuses paroles pour le convaincre.
+<b>Etouffement.</b> Expression qui ajoute, et de même, "Il le pressa [<span>וַיִפְצַר</span>],"<sup>26</sup><i class="footnote"> Bereshit 33:11.</i> c'est-à-dire qu'il prononça de nombreuses paroles pour le convaincre.
 
 ### passuk 24
 <b>Je craignais le peuple.</b> [Se référant à] Do'eg, l'Edomite,<sup>27</sup><i class="footnote"> Il était le chef du Sanhedrin et était considéré comme un géant dans son érudition en Torah. Voir Masehet Sanhedrin 106b.</i> qui était aussi important que tous les autres.

@@ -30,7 +30,7 @@
 <b>Fig les feuilles.</b> C'est l'arbre dont ils ont mangé. Avec ce qu'ils ont péché, ils se sont redressés. Mais, les autres arbres les ont empêchés de prendre leurs feuilles. Pourquoi le nom de l'arbre n'est-il pas révélé ? C'est parce qu'Hachem ne veut pas affliger un être, afin que [l'arbre] n'ait pas honte qu'on dise : "C'est par lui que le monde a été frappé". 
 
 ### passuk 8
-<b>Ils ont entendu. </b>Il existe de nombreux exposés aggadaïques que nos Sages ont déjà organisés dans leur ordre dans Bereishis Rabbah et dans d'autres Midrashim. Mais, je suis venu seulement pour donner le sens clair du verset et la Aggadah qui sert à clarifier les mots du verset d'une manière qui correspond à ces mots. <b>Ils ont entendu.</b> Qu'ont-ils entendu ? Ils ont entendu le son d'Hachem alors qu'Il se promenait dans le jardin. 
+<b>Ils ont entendu. </b>Il existe de nombreux exposés aggadiques que nos Sages ont déjà organisés dans leur ordre dans Bereshit Rabbah et dans d'autres Midrashim. Mais, je suis venu seulement pour donner le sens clair du verset et la Aggadah qui sert à clarifier les mots du verset d'une manière qui correspond à ces mots. <b>Ils ont entendu.</b> Qu'ont-ils entendu ? Ils ont entendu le son d'Hachem alors qu'Il se promenait dans le jardin. 
 <b>A la brise du jour.</b> [Signifiant] cette direction d'où vient le soleil [c'est-à-dire ses rayons], qui est de l'ouest. Car avant le crépuscule, le soleil est à l'ouest et ils ont péché pendant la dixième heure. 
 
 ### passuk 9

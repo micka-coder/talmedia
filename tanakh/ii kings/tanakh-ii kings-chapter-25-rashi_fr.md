@@ -39,7 +39,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>La hauteur de la couronne était de trois <i>amohs</i>.</b> Et au début du livre [de Melochim] il est dit : "cinq <i>amohs</i> [de hauteur]."<sup>9</sup><i class="footnote">Melochim 7:16.</i> J'ai réconcilié les versets à cet endroit.<sup>10</sup><i class="footnote">Rashi a réconcilié la différence comme suit : La couronne était en réalité haute de cinq <i>amohs</i> mais ses deux <i>amohs</i> inférieurs ne sont pas comptés car la colonne était insérée dans la couronne à deux <i>amohs</i> de profondeur et elle servait de base à la couronne.</i>
+<b>La hauteur de la couronne était de trois <i>amahs</i>.</b> Et au début du livre [de Melochim] il est dit : "cinq <i>amahs</i> [de hauteur]."<sup>9</sup><i class="footnote">Melochim 7:16.</i> J'ai réconcilié les versets à cet endroit.<sup>10</sup><i class="footnote">Rashi a réconcilié la différence comme suit : La couronne était en réalité haute de cinq <i>amahs</i> mais ses deux <i>amahs</i> inférieurs ne sont pas comptés car la colonne était insérée dans la couronne à deux <i>amahs</i> de profondeur et elle servait de base à la couronne.</i>
 <b>Et un filet.</b> (<i>Coife</i>, en ancien français.) une sorte de chapeau.
 <b>Aussi.</b> Grenades.
 
@@ -112,7 +112,7 @@
 ### passuk 16
 
 ### passuk 17
-<b>La hauteur de la couronne était de trois <i>amohs</i>.</b> Et au début du livre [de Melochim] il est dit : "cinq <i>amohs</i> [de hauteur]."<sup>9</sup><i class="footnote">Melochim 7:16.</i> J'ai réconcilié les versets à cet endroit.<sup>10</sup><i class="footnote">Rashi a réconcilié la différence comme suit : La couronne était en réalité haute de cinq <i>amohs</i> mais ses deux <i>amohs</i> inférieurs ne sont pas comptés car la colonne était insérée dans la couronne à deux <i>amohs</i> de profondeur et elle servait de base à la couronne.</i>
+<b>La hauteur de la couronne était de trois <i>amahs</i>.</b> Et au début du livre [de Melochim] il est dit : "cinq <i>amahs</i> [de hauteur]."<sup>9</sup><i class="footnote">Melochim 7:16.</i> J'ai réconcilié les versets à cet endroit.<sup>10</sup><i class="footnote">Rashi a réconcilié la différence comme suit : La couronne était en réalité haute de cinq <i>amahs</i> mais ses deux <i>amahs</i> inférieurs ne sont pas comptés car la colonne était insérée dans la couronne à deux <i>amahs</i> de profondeur et elle servait de base à la couronne.</i>
 <b>Et un filet.</b> (<i>Coife</i>, en ancien français.) une sorte de chapeau.
 <b>Aussi.</b> Grenades.
 

@@ -7,7 +7,7 @@
 
 ### passuk 3
 <b>Ne pas abonder en parlant si fièrement.</b> Tous ceux qui se montrent hautains lorsqu'ils connaissent la bonne fortune. A propos de Penina qui se comportait de manière hautaine envers elle, parlait-elle, selon l'explication simple. Cependant, selon le <i>drash,</i> on suit le rendu du Targum Yonathan [selon lequel elle fait référence à Nevuchadnetzar].
-<b>La dureté.</b> Une parole forte. D'autres expliquent <span>עָתָק</span> comme l'expression de quelque chose qui est éloigné [de la vérité], comme dans " de là, il se déplaça [<span>וַיַעְתֵּק</span>] vers la montagne. "<sup>3</sup><i class="footnote">Bereishis 12:8.</i> [Le sens ici étant "ne laisse pas] le mensonge sortir de ta bouche".
+<b>La dureté.</b> Une parole forte. D'autres expliquent <span>עָתָק</span> comme l'expression de quelque chose qui est éloigné [de la vérité], comme dans " de là, il se déplaça [<span>וַיַעְתֵּק</span>] vers la montagne. "<sup>3</sup><i class="footnote">Bereshit 12:8.</i> [Le sens ici étant "ne laisse pas] le mensonge sortir de ta bouche".
 <b>Parce qu'un Dieu de connaissance est Hachem.</b> Il sait ce qui est dans vos cœurs.
 <b>Et par lui toutes les actions sont comptées.</b> Les actes de tous les gens sont comptés devant lui.
 <b>Compté.</b> Expression du nombre, comme dans : "et le nombre [<span>וְתֹכֶן</span>] de briques que tu donneras."<sup>4</sup><i class="footnote">Shemos 5:18.</i>

@@ -29,7 +29,7 @@
 <b>Ma douceur.</b> le miel des dattes.
 
 ### passuk 12
-<b>A la vigne.</b> Il s'agit de Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yoseif, dont il est dit : "Un fils florissant"-"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereishis, 49:22). Le Targum Onkelos y interprète : " comme une vigne positionnée sur une source d'eau " </i>.
+<b>A la vigne.</b> Il s'agit de Gidon,<sup>6</sup><i class="footnote">Yalkout, ibid.</i> un descendant de Yoseif, dont il est dit : "Un fils florissant"-"comme une vigne positionnée, etc."<sup>7</sup><i class="footnote">"Un fils florissant sur une source". (Bereshit, 49:22). Le Targum Onkelos y interprète : " comme une vigne positionnée sur une source d'eau " </i>.
 
 ### passuk 13
 <b>Ce qui fait la joie de Dieu.</b> Comme les Lévi'im ne chantent les hymnes de gloire que lors de la cérémonie de la libation du vin.</sup>8</sup><i class="footnote">Bérachos, 35:b.</i>
@@ -71,7 +71,7 @@
 ### passuk 28
 <b>Qui est Avimelech, et qui est Sichem.</b> Qui est Avimelech pour contrôler Sichem, et qui est Sichem pour être soumis à Avimelech ? Avimelech n'est-il pas le fils de Yerubaal, d'Ofros, des Aviezrites ?<sup>10</sup><i class="footnote"></i>.
 <b>Et son homme de main Zevul?</b> Le surintendant de la ville, nommé Zevul, est l'homme de main d'Avimelech. Son maître ne peut justifier de son autorité sur la ville ; ainsi, son nommé, lui aussi, est une non-entité.
-<b>Servir les gens de Chamor.</b> Si vous voulez vous faire des chefs, venez servir les hommes de Chamor, qui ont régné sur le pays dans les premiers temps.<sup>11</sup><i class="footnote">Bereishis, 34:2.</i>
+<b>Servir les gens de Chamor.</b> Si vous voulez vous faire des chefs, venez servir les hommes de Chamor, qui ont régné sur le pays dans les premiers temps.<sup>11</sup><i class="footnote">Bereshit, 34:2.</i>
 <b>Mais pourquoi devons-nous le servir ?</b> Avimelech.
 
 ### passuk 29
@@ -81,7 +81,7 @@
 ### passuk 30
 
 ### passuk 31
-<b>Clandestinement.</b> Comme dans "astucieusement,"<sup>12</sup><i class="footnote">Bereishis, 27:35.</i> "en tromperie,"<sup>13</sup><i class="footnote">Yirmiyahu, 8:5.</i> signifiant secrètement, furtivement.
+<b>Clandestinement.</b> Comme dans "astucieusement,"<sup>12</sup><i class="footnote">Bereshit, 27:35.</i> "en tromperie,"<sup>13</sup><i class="footnote">Yirmiyahu, 8:5.</i> signifiant secrètement, furtivement.
 
 ### passuk 32
 

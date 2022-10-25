@@ -39,7 +39,7 @@
 <b>Rire avec dérision quand elle a été bridée.</b> Ils se sont réjouis de la cessation de ses célébrations lors de ses fêtes, de ses nouvelles lunes et de ses sabbats. Mais le Midrash Aggadah l'interprète comme une expression différente, à savoir qu'ils se sont reposés en exil sur le sabbat et les fêtes, et ont observé la septième année [c'est-à-dire la sabbatique]. Les Gentils les ridiculisèrent et dirent : "Fous ! Dans votre pays, vous n'avez pas observé [le sabbat et les fêtes], et maintenant, en exil, vous le faites ? Dans votre pays, vous n'avez pas observé [l'année sabbatique,] et maintenant, en exil, vous l'observez ?". 
 
 ### passuk 8
-<b>Un vagabond.</b> Celui qui est en exil ; une expression de déplacement et d'errance,<sup>37</sup><i class="footnote">Voir Bereishis 4:12. Voir également Rachi au verset 17 ci-dessous. </i> <i>Mouvement</i> en ancien français. 
+<b>Un vagabond.</b> Celui qui est en exil ; une expression de déplacement et d'errance,<sup>37</sup><i class="footnote">Voir Bereshit 4:12. Voir également Rachi au verset 17 ci-dessous. </i> <i>Mouvement</i> en ancien français. 
 <b>Sa dégradation.</b> [Littéralement ; sa nudité] Sa honte.
 <b>Souffrance.</b> [Ici, נֶאֶנְחָה est] une expression au passé passif, <i>sospira</i> en ancien français. [Cependant, dans] "Ils ont entendu comme je gémis,"<sup>38</sup><i class="footnote">Après, verset 21. </i> c'est un substantif, <i>sospirose</i> en ancien français. 
 
@@ -64,7 +64,7 @@
 
 ### passuk 14
 <b>Le joug de mes iniquités est enregistré dans Sa main.</b> Ce mot נִשְׂקַד n'a aucun équivalent dans l'Écriture, et dans la langue araméenne de la Pesikta, on appelle un aiguillon מַסְקָדָא, un aiguillon à bœuf. Et je dis que נִשְׂקַד est <i>pointé</i> en ancien français., [c'est-à-dire que] mes transgressions ont été pointées, tachées, marquées dans la main du Saint, Béni soit-Il, pour un souvenir ; leur nombre et leur rétribution n'ont pas été oubliés. 
-<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup>49</sup><i class="footnote">צואר [le cou] est symbolique du Beit Hamikdash ; voir Rachi dans Bereishis 45:14. </i> [comme dans] le langage de la Mishna : "Nous ne pouvons (pas) entrelacer les cordes des châlits."<sup>50</sup><i class="footnote">Masehet Mo'ed Katan, Mishna 1:8. </i> 
+<b>Elles se sont entrelacées.</b> Elles sont devenues de nombreuses tresses et sont montées jusqu'à mon cou,</sup>49</sup><i class="footnote">צואר [le cou] est symbolique du Beit Hamikdash ; voir Rachi dans Bereshit 45:14. </i> [comme dans] le langage de la Mishna : "Nous ne pouvons (pas) entrelacer les cordes des châlits."<sup>50</sup><i class="footnote">Masehet Mo'ed Katan, Mishna 1:8. </i> 
 
 ### passuk 15
 <b>Trampé.</b> Il a piétiné et foulé, une expression de, "pave, pave סֹלּוּ la route."<sup>51</sup><i class="footnote">Yeshayahuu 62:10. </i> 

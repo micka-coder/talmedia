@@ -11,7 +11,7 @@
 <b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvos</i> données aux descendants de Noach [ainsi que les <i>mitzvos</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
 
 ### passuk 4
-<b>Moshé a écrit -</b> [tout] depuis Bereishis jusqu'au don de la Torah et il a également écrit les <i>mitzvos</i> qui leur ont été commandés à Marah.
+<b>Moshé a écrit -</b> [tout] depuis Bereshit jusqu'au don de la Torah et il a également écrit les <i>mitzvos</i> qui leur ont été commandés à Marah.
 <b>Il se leva tôt le matin -</b> le cinq de Sivan.
 
 ### passuk 5
@@ -22,7 +22,7 @@
 <b>Dans les bassins.</b> Il y avait deux bassins - l'un pour la moitié du sang de l'holocauste, l'autre pour la moitié du sang des sacrifices de paix afin de les asperger tous les deux sur le peuple. C'est de là que nos Sages ont conclu que nos ancêtres sont entrés dans l'Alliance par la circoncision, l'immersion et l'aspersion du sang des sacrifices. [L'immersion est indiquée par le fait qu'il n'y a pas d'aspersion valide qui ne soit précédée d'une immersion. 
 
 ### passuk 7
-<b>Le Livre de l'Alliance -</b> de Bereishis jusqu'au don de la Torah et les <i>mitzvos</i> qu'ils ont été commandés à Marah.
+<b>Le Livre de l'Alliance -</b> de Bereshit jusqu'au don de la Torah et les <i>mitzvos</i> qu'ils ont été commandés à Marah.
 
 ### passuk 8
 <b>Il a jeté.</b> [וַיִּזְרֹק a] le sens d'aspersion. Cependant, Onkelos le traduit [littéralement] : "Il le jeta sur l'autel pour expier pour le peuple". 

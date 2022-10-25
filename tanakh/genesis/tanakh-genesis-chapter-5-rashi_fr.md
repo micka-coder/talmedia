@@ -70,7 +70,7 @@
 
 ### passuk 32
 <b>Cinq cents ans.</b> R. Yudan a dit : Comment se fait-il que toutes les générations [précédentes] aient eu des enfants à l'âge de cent ans, et que celle-ci, [Noach, ait eu des enfants] à l'âge de cinq cents ans ? Hachem a répondu : S'ils sont méchants, ils seront détruits par les eaux [du déluge], ce qui causera de la peine à cet homme juste. S'ils sont justes, je devrai alors lui imposer la charge de construire de nombreuses arches. [C'est pourquoi il a restreint sa source et n'a pas eu d'enfants jusqu'à l'âge de cinq cents ans afin que Yefes, son fils aîné, ne soit pas en âge d'être puni avant le déluge, comme il est écrit : "Car le jeune mourra à l'âge de cent ans." [Signification : l'âge auquel il sera] passible de punition, dans un temps futur, et il en était ainsi avant que la Torah ne soit donnée. 
-<b>Sheim, Cham et Yafes.</b> Le Yafes n'était-il pas le plus âgé ? Mais, il faut d'abord parler de Sheim qui était juste et qui est né circoncis, et dont Abraham descend ([comme cela est expliqué] dans Bereishis Rabbah). 
+<b>Sheim, Cham et Yafes.</b> Le Yafes n'était-il pas le plus âgé ? Mais, il faut d'abord parler de Sheim qui était juste et qui est né circoncis, et dont Abraham descend ([comme cela est expliqué] dans Bereshit Rabbah). 
 
 >Crédit : primo.nli.org.il (metsudah)
 >License : CC_BY

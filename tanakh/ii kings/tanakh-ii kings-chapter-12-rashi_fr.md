@@ -28,7 +28,7 @@
 ### passuk 10
 <b>Près de l'autel.</b> Dans la cour [du Temple].
 <b>À droite, comme une personne entre.</b> À droite [du côté] où les gens entrent.
-<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonatanh l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
+<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonathan l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
 <b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient l'argent en sac et le comptaient."-Radak</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohein Gadol</i>] etc.</b>
@@ -103,7 +103,7 @@
 ### passuk 10
 <b>Près de l'autel.</b> Dans la cour [du Temple].
 <b>À droite, comme une personne entre.</b> À droite [du côté] où les gens entrent.
-<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonatanh l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
+<b>Les gardiens du seuil.</b> Les seuils de la cour [du Temple], [c'est-à-dire, ] ceux qui étaient chargés des clés du parvis [du Temple],<sup>7</sup><i class="footnote">Alternativement, il s'agissait des gardiens des vases du Temple. -Ralbag</i> car le [Targum] Yonathan l'a rendu par "אֲמַרְכְּלַיָּא [=dépositaire des clés]", et il y avait sept אֲמַרְכָּלִים, pour les sept portes du tribunal [du Temple]. [C'est ce qui est dit dans la] Tosefta des [Masehet] Shekalim.<sup>8</sup><i class="footnote">2:15.</i>.
 
 ### passuk 11
 <b>Chaque fois que.</b> Un fait quotidien (constamment).<sup>9</sup><i class="footnote">C'est-à-dire que lorsqu'ils voyaient que les caisses étaient pleines, ils "mettaient l'argent en sac et le comptaient."-Radak</i> <b>Ils voyaient qu'il y avait beaucoup d'argent dans la caisse, et ils montaient - le scribe du roi [et le <i>Kohein Gadol</i>] etc.</b>

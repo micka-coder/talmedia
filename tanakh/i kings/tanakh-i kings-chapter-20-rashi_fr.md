@@ -71,7 +71,7 @@
 ### passuk 27
 <b>Et s'approvisionnèrent.</b> Ils s'armèrent de provisions pour la guerre, c'est-à-dire d'armes et de tout ce qui est nécessaire à la guerre.
 <b>Et ravitaillés.</b> Ils furent ravitaillés.<sup>14</sup><i class="footnote">Alternativement, וכלכלו signifie et ils ont tous [=כל] été comptabilisés et aucun ne manquait.-Radak</i>.
-<b>Comme deux troupeaux de chèvres.</b> [חשפי signifie] "troupeaux de chèvres", <sup>15</sup><i class="footnote">C'est-à-dire qu'ils sont peu nombreux par rapport à l'armée d'Arom qui "remplissait le pays". Les deux troupeaux étaient composés d'un groupe de jeunes des officiers des provinces et d'un autre groupe de 7000 hommes.-Metzudas David</i> mais il n'y a pas de mot similaire [dans les Écritures]. Cependant, Menachem classe [חשפי] comme une expression de révélation, comme dans, "en découvrant [מחשוף] le blanc,"<sup>16</sup><i class="footnote">Bereishis 30:37.</i> [et comme dans,] "dénuder [חשפי] une jambe. "<sup>17</sup><i class="footnote">Yeshayahu 47:2.</i> Une expression de "révélation" peut être appliquée aux troupeaux de chèvres, comme dans, "qui ont dénudé [שגלשו] du mont Gilad,"<sup>18</sup><i class="footnote">Shir Hashirim 4:1.</i> [c'est-à-dire, ] quand ils descendent de la montagne, la montagne est dénudée.
+<b>Comme deux troupeaux de chèvres.</b> [חשפי signifie] "troupeaux de chèvres", <sup>15</sup><i class="footnote">C'est-à-dire qu'ils sont peu nombreux par rapport à l'armée d'Arom qui "remplissait le pays". Les deux troupeaux étaient composés d'un groupe de jeunes des officiers des provinces et d'un autre groupe de 7000 hommes.-Metzudas David</i> mais il n'y a pas de mot similaire [dans les Écritures]. Cependant, Menachem classe [חשפי] comme une expression de révélation, comme dans, "en découvrant [מחשוף] le blanc,"<sup>16</sup><i class="footnote">Bereshit 30:37.</i> [et comme dans,] "dénuder [חשפי] une jambe. "<sup>17</sup><i class="footnote">Yeshayahu 47:2.</i> Une expression de "révélation" peut être appliquée aux troupeaux de chèvres, comme dans, "qui ont dénudé [שגלשו] du mont Gilad,"<sup>18</sup><i class="footnote">Shir Hashirim 4:1.</i> [c'est-à-dire, ] quand ils descendent de la montagne, la montagne est dénudée.
 
 ### passuk 28
 <b>Et il parla au roi de Israël, et il dit, etc.</b> Rabbi Yochonon dit que chaque endroit où il est dit : "Et il dit....et il dit," doit être expliqué. La première parole se réfère à ce qu'il lui a dit : "Je remettrai toute cette grande multitude entre tes mains", la seconde parole [se réfère à] : "si Ben-Hadad tombe entre tes mains, ne lui témoigne aucune clémence." C'est pourquoi, lorsqu'il eut pitié de lui, il lui dit : "Parce que tu as libéré de ta main l'homme que j'ai condamné, etc."<sup>19</sup><i class="footnote">Voir ci-dessous v. 42.</i> <sup>20</sup><i class="footnote">Talmud Yerushalmi Sanhedrin 11:5.</i>.
@@ -104,7 +104,7 @@
 
 ### passuk 38
 <b>Et se déguisa avec un fichu.</b> Il changea son manteau à capuche pour qu'on ne le reconnaisse pas. Tout changement de vêtement est une expression du déguisement.
-<b>Avec un foulard.</b> [Targum] Yonatanh a rendu cela par במעפרא, "un manteau à capuche".
+<b>Avec un foulard.</b> [Targum] Yonathan a rendu cela par במעפרא, "un manteau à capuche".
 
 ### passuk 39
 <b>Et voici qu'un homme se détourna.</b> De la route vers moi.

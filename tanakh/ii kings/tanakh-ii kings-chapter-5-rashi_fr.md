@@ -42,14 +42,14 @@
 ### passuk 12
 
 ### passuk 13
-<b>"Mon père [maître]."</b> אָבִי [lit., mon père, signifie] la même chose que אֲדוֹנִי [=mon maître].<sup>8</sup><i class="footnote">On trouve des cas où אָב est un titre utilisé pour des personnes éminentes. Voir Bereishis 45:8.</i>
+<b>"Mon père [maître]."</b> אָבִי [lit., mon père, signifie] la même chose que אֲדוֹנִי [=mon maître].<sup>8</sup><i class="footnote">On trouve des cas où אָב est un titre utilisé pour des personnes éminentes. Voir Bereshit 45:8.</i>
 <b>Ne le ferais-tu pas ?</b> Ne le ferais-tu pas, même s'il te disait de faire quelque chose nécessitant un effort ?
 <b>Certainement puisque.</b> Par conclusion a fortiori, car il t'a dit [de faire] une chose facile, "immerge-toi et deviens pur".
 
 ### passuk 14
 
 ### passuk 15
-<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereishis 33:11.</i> <i>salud</i>, en ancien français.<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Masehet Gittin 57b.</i>
+<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereshit 33:11.</i> <i>salud</i>, en ancien français.<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Masehet Gittin 57b.</i>
 
 ### passuk 16
 <b>Je n'accepterai pas.</b> Parce que des sommes d'argent relatives aux idoles y sont incluses.
@@ -69,18 +69,18 @@
 <b>Quelque chose.</b> Le 'א' manque,<sup>14</sup><i class="footnote">Le mot "מְאוּמָה" s'écrit "מוּמָה," sans le 'א. מוּם signifie un défaut. Suite à cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> car cette prise a été [responsable du fait qu'il a été frappé d'] un défaut [=[מום.
 
 ### passuk 21
-<b>Et il sauta.</b> [Le Targum Yonathan rend :] "et il se pencha."<sup>15</sup><i class="footnote">Cette expression est similaire à celle de Bereishis 24:64 relative à Rivkah.</i>
+<b>Et il sauta.</b> [Le Targum Yonathan rend :] "et il se pencha."<sup>15</sup><i class="footnote">Cette expression est similaire à celle de Bereshit 24:64 relative à Rivkah.</i>
 
 ### passuk 22
 
 ### passuk 23
 <b>"S'il te plaît."</b> Jure qu'il t'a envoyé.<sup>16</sup><i class="footnote">Na'amon lui a demandé de jurer car il ne croyait pas qu'Elisée ait changé d'avis. Alternativement, הוֹאֵל signifie "être d'accord"."-Metzudas Tzion</i>
-<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, "et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi. Mais [le targum] Yonatanh a rendu cela par "פַּלְדָּסִין [=des feuilles]", et celui [חֲרִיטִים] du livre de Yeshayahou, [il l'a rendu] par "מְחַכַּיָּא [=une plaque couvrant les parties génitales]". Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches", <i>brides</i>, en ancien français.
+<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, "et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi. Mais [le targum] Yonathan a rendu cela par "פַּלְדָּסִין [=des feuilles]", et celui [חֲרִיטִים] du livre de Yeshayahou, [il l'a rendu] par "מְחַכַּיָּא [=une plaque couvrant les parties génitales]". Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches", <i>brides</i>, en ancien français.
 <b>Ses deux serviteurs.</b> Na'amon.
 <b>Et ils les portèrent devant lui.</b> Devant Geichazi.
 
 ### passuk 24
-<b>Et il arriva à un endroit caché.</b> [Targum] Yonatanh a rendu : "à un endroit caché."<sup>18</sup><i class="footnote">Alternativement, עֹפֶל signifie "une forteresse", un endroit sûr.-Radak </i>
+<b>Et il arriva à un endroit caché.</b> [Targum] Yonathan a rendu : "à un endroit caché."<sup>18</sup><i class="footnote">Alternativement, עֹפֶל signifie "une forteresse", un endroit sûr.-Radak </i>
 <b>Et prit de leurs mains.</b> Des mains des deux serviteurs de Na'amon.
 <b>Et il congédia les hommes</b> afin qu'Elisée ne les voit pas.
 
@@ -134,14 +134,14 @@
 ### passuk 12
 
 ### passuk 13
-<b>"Mon père [maître]."</b> אָבִי [lit., mon père, signifie] la même chose que אֲדוֹנִי [=mon maître].<sup>8</sup><i class="footnote">On trouve des cas où אָב est un titre utilisé pour des personnes éminentes. Voir Bereishis 45:8.</i>
+<b>"Mon père [maître]."</b> אָבִי [lit., mon père, signifie] la même chose que אֲדוֹנִי [=mon maître].<sup>8</sup><i class="footnote">On trouve des cas où אָב est un titre utilisé pour des personnes éminentes. Voir Bereshit 45:8.</i>
 <b>Ne le ferais-tu pas ?</b> Ne le ferais-tu pas, même s'il te disait de faire quelque chose nécessitant un effort ?
 <b>Certainement puisque.</b> Par conclusion a fortiori, car il t'a dit [de faire] une chose facile, "immerge-toi et deviens pur".
 
 ### passuk 14
 
 ### passuk 15
-<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereishis 33:11.</i> <i>salud</i>, en ancien français.<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Masehet Gittin 57b.</i>
+<b>Une bénédiction [un cadeau].</b> Un cadeau de paix, lors de la salutation, [par ex, ] lorsqu'un étudiant ou un serviteur salue [son] maître,<sup>9</sup><i class="footnote">Voir Bereshit 33:11.</i> <i>salud</i>, en ancien français.<sup>10</sup><i class="footnote">Na'amon a vécu comme un gentil juste, en respectant les sept commandements que Dieu a donnés à Noach et à ses descendants. Cependant, il ne s'est pas converti au judaïsme. Voir Masehet Gittin 57b.</i>
 
 ### passuk 16
 <b>Je n'accepterai pas.</b> Parce que des sommes d'argent relatives aux idoles y sont incluses.
@@ -161,18 +161,18 @@
 <b>Quelque chose.</b> Le 'א' manque,<sup>14</sup><i class="footnote">Le mot "מְאוּמָה" s'écrit "מוּמָה," sans le 'א. מוּם signifie un défaut. Suite à cette prise, il a été frappé du défaut de Na'amon, celui de <i>tzora'as</i>.</i> car cette prise a été [responsable du fait qu'il a été frappé d'] un défaut [=[מום.
 
 ### passuk 21
-<b>Et il sauta.</b> [Le Targum Yonathan rend :] "et il se pencha."<sup>15</sup><i class="footnote">Cette expression est similaire à celle de Bereishis 24:64 relative à Rivkah.</i>
+<b>Et il sauta.</b> [Le Targum Yonathan rend :] "et il se pencha."<sup>15</sup><i class="footnote">Cette expression est similaire à celle de Bereshit 24:64 relative à Rivkah.</i>
 
 ### passuk 22
 
 ### passuk 23
 <b>"S'il te plaît."</b> Jure qu'il t'a envoyé.<sup>16</sup><i class="footnote">Na'amon lui a demandé de jurer car il ne croyait pas qu'Elisée ait changé d'avis. Alternativement, הוֹאֵל signifie "être d'accord"."-Metzudas Tzion</i>
-<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, "et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi. Mais [le targum] Yonatanh a rendu cela par "פַּלְדָּסִין [=des feuilles]", et celui [חֲרִיטִים] du livre de Yeshayahou, [il l'a rendu] par "מְחַכַּיָּא [=une plaque couvrant les parties génitales]". Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches", <i>brides</i>, en ancien français.
+<b>Dans deux sacs.</b> Types de vêtements et de mouchoirs, comme dans, "et les mouchoirs et les poches [=חֲרִיטִים]."<sup>17</sup><i class="footnote">Yeshayahu 3:22.</i> Menachem l'a classé ainsi. Mais [le targum] Yonathan a rendu cela par "פַּלְדָּסִין [=des feuilles]", et celui [חֲרִיטִים] du livre de Yeshayahou, [il l'a rendu] par "מְחַכַּיָּא [=une plaque couvrant les parties génitales]". Les exégètes disent que "בִּשְׁנֵי חֲרִיטֵי," signifie "dans deux longues poches", <i>brides</i>, en ancien français.
 <b>Ses deux serviteurs.</b> Na'amon.
 <b>Et ils les portèrent devant lui.</b> Devant Geichazi.
 
 ### passuk 24
-<b>Et il arriva à un endroit caché.</b> [Targum] Yonatanh a rendu : "à un endroit caché."<sup>18</sup><i class="footnote">Alternativement, עֹפֶל signifie "une forteresse", un endroit sûr.-Radak </i>
+<b>Et il arriva à un endroit caché.</b> [Targum] Yonathan a rendu : "à un endroit caché."<sup>18</sup><i class="footnote">Alternativement, עֹפֶל signifie "une forteresse", un endroit sûr.-Radak </i>
 <b>Et prit de leurs mains.</b> Des mains des deux serviteurs de Na'amon.
 <b>Et il congédia les hommes</b> afin qu'Elisée ne les voit pas.
 

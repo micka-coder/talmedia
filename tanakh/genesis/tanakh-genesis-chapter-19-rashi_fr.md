@@ -18,7 +18,7 @@
 <Ils firent des matzos. C'était Pessah.
 
 ### passuk 4
-<b>Ils ne s'étaient pas encore couchés quand les hommes de la ville, les hommes de Sedom.</b> Il est ainsi exposé dans Bereishis Rabbah. Avant qu'ils ne se couchent et [déjà] les gens de la ville étaient discutés par les anges ; ils interrogeaient Lot sur leur caractère et leurs actes et il leur répondait que la majorité sont mauvais. Pendant qu'ils discutaient avec eux, "et les hommes de Sedom", etc. Cependant, l'explication simple du verset est la suivante : Les habitants de la ville, qui étaient des gens mauvais, ont entouré la maison. Parce qu'ils étaient des gens mauvais, ils sont appelés Sédomites comme le dit l'Écriture : "Les gens de Sedom étaient méchants et pécheurs". 
+<b>Ils ne s'étaient pas encore couchés quand les hommes de la ville, les hommes de Sedom.</b> Il est ainsi exposé dans Bereshit Rabbah. Avant qu'ils ne se couchent et [déjà] les gens de la ville étaient discutés par les anges ; ils interrogeaient Lot sur leur caractère et leurs actes et il leur répondait que la majorité sont mauvais. Pendant qu'ils discutaient avec eux, "et les hommes de Sedom", etc. Cependant, l'explication simple du verset est la suivante : Les habitants de la ville, qui étaient des gens mauvais, ont entouré la maison. Parce qu'ils étaient des gens mauvais, ils sont appelés Sédomites comme le dit l'Écriture : "Les gens de Sedom étaient méchants et pécheurs". 
 <b>Tout le peuple d'un bout à l'autre.</b> [Signification :] d'un bout à l'autre de la ville. Il n'y en avait pas un seul qui protestait, car il n'y avait pas un seul juste parmi eux.
 
 ### passuk 5
@@ -46,7 +46,7 @@
 ### passuk 12
 <b>Qui d'autre as-tu ici ?</b> Le sens clair de ce verset est : "Qui d'autre as-tu dans cette ville en plus de ta femme et de tes filles dans cette maison ?".
 <b>Un gendre, tes fils, tes filles.</b> [Signification :] "Si tu as un gendre ou des fils et des filles, éloigne-les de cet endroit. 
-<b>Vos fils.</b> [Signification :] les fils de votre fille mariée. L'explication aggadaïque du mot עֹד [est] : "Puisqu'ils font une chose aussi odieuse, pouvez-vous encore avoir une base pour les défendre ?". Car, toute la nuit, il [Loth] les a justifiés. Il faut lire מִי לְךָ פֶּה . 
+<b>Vos fils.</b> [Signification :] les fils de votre fille mariée. L'explication aggadique du mot עֹד [est] : "Puisqu'ils font une chose aussi odieuse, pouvez-vous encore avoir une base pour les défendre ?". Car, toute la nuit, il [Loth] les a justifiés. Il faut lire מִי לְךָ פֶּה . 
 
 ### passuk 13
 
@@ -122,7 +122,7 @@ Le mot הִמָּלֵט signifie se dérober. De même, chaque forme de הַמְ
 
 ### passuk 31
 <b>Notre père est vieux.</b> Si ce n'est pas maintenant, quand ? Il peut mourir ou cesser d'avoir des enfants. 
-<b>Et il n'y a plus d'homme [sur la terre].</b> Ils pensaient que le monde entier avait été détruit comme lors de la génération du Déluge. (De Bereishis Rabbah.) 
+<b>Et il n'y a plus d'homme [sur la terre].</b> Ils pensaient que le monde entier avait été détruit comme lors de la génération du Déluge. (De Bereshit Rabbah.) 
 
 ### passuk 32
 

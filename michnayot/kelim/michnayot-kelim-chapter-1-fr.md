@@ -1,6 +1,6 @@
 
 ### michna 1
-Les pères de l'impureté sont : le sheretz, le sperme, [un Israélien] qui a contracté l'impureté du cadavre, une metzora pendant les jours de son décompte, et les eaux de purification dont la quantité est inférieure au minimum nécessaire pour l'aspersion. Voici qu'elles transmettent l'impureté aux personnes et aux récipients par contact et à la terre par présence dans leur espace aérien, mais elles ne transmettent pas l'impureté en étant portées.
+Les pères de l'impureté sont : le sheretz, le sperme, [un Israélite] qui a contracté l'impureté du cadavre, une metzora pendant les jours de son décompte, et les eaux de purification dont la quantité est inférieure au minimum nécessaire pour l'aspersion. Voici qu'elles transmettent l'impureté aux personnes et aux récipients par contact et à la terre par présence dans leur espace aérien, mais elles ne transmettent pas l'impureté en étant portées.
 
 ### michna 2
 Au-dessus d'elles, il y a la nevelah et les eaux de purification dont la quantité est suffisante pour être aspergées, car elles transmettent l'impureté à une personne [même] en étant portées, de sorte qu'elle transmet à son tour l'impureté aux vêtements par contact. Les vêtements, cependant, sont exempts d'impureté là où il n'y a eu que contact.

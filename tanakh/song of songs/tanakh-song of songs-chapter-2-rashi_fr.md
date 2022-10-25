@@ -32,7 +32,7 @@
 <b>Ne pas déranger.</b> Comme dans, "celui qui conteste  הָעוֹרֵר  la propriété d'un champ,"<sup>14</sup><i class="footnote">Mishnayos Kesubos 13:6. </i> <i>chaloner</i> en ancien français Il existe de nombreux Midrashim Aggadiques, mais ils ne correspondent pas à la séquence des sujets, car je vois que Shlomo a prophétisé et parlé de l'exode d'Égypte et du don de la Torah, et du Tabernacle, de l'entrée dans le pays [c'est-à-dire Eretz Yisrael], et du Beit Hamikdash, de l'exil à Bavel, et de la venue du second Beit Hamikdash et de sa destruction. 
 
 ### passuk 8
-<b>La voix de ma bien-aimée.</b> Le poète revient sur les sujets précédents, comme une personne qui a été brève dans ses propos et qui dit plus tard : "Je ne vous ai pas raconté le début de ces événements".Il a commencé par dire : "Le roi m'a fait entrer dans ses appartements,<<sup>15</sup><i class="footnote">Supérieur 1:4. </i> mais ne dit pas comment Il s'est souvenu d'eux en Egypte avec une expression d'affection. Et maintenant il revient et dit : " Cette attraction dont je vous ai parlé, que mon Bien-aimé m'a attiré et que j'ai couru après Lui, s'est passée comme suit : J'ai désespéré toute rédemption jusqu'à l'achèvement des quatre cents ans qui étaient annoncés [dans l'alliance] entre les parties, "<sup>16</sup><i class="footnote">Voir Bereishis 15:13. </i> et
+<b>La voix de ma bien-aimée.</b> Le poète revient sur les sujets précédents, comme une personne qui a été brève dans ses propos et qui dit plus tard : "Je ne vous ai pas raconté le début de ces événements".Il a commencé par dire : "Le roi m'a fait entrer dans ses appartements,<<sup>15</sup><i class="footnote">Supérieur 1:4. </i> mais ne dit pas comment Il s'est souvenu d'eux en Egypte avec une expression d'affection. Et maintenant il revient et dit : " Cette attraction dont je vous ai parlé, que mon Bien-aimé m'a attiré et que j'ai couru après Lui, s'est passée comme suit : J'ai désespéré toute rédemption jusqu'à l'achèvement des quatre cents ans qui étaient annoncés [dans l'alliance] entre les parties, "<sup>16</sup><i class="footnote">Voir Bereshit 15:13. </i> et
 <b>La voix de mon bien-aimé ! Voici qu'il vient.</b> Avant la fin du temps fixé, comme celui qui saute par-dessus les montagnes et qui saute par-dessus les collines.</sup>17</sup><i class="footnote">Dieu, pour ainsi dire, a sauté et franchi les barrières du temps et a racheté les Bnei Yisrael cent quatre-vingt-dix ans avant l'achèvement de la prophétie des quatre cents ans de servitude. </i> 
 
 ### passuk 9
@@ -45,7 +45,7 @@
 <b>Relève-toi.</b> "Je te ferai remonter de l'affliction de l'Égypte.</sup>20</sup><i class="footnote">Shemos 3:17. </i> 
 
 ### passuk 11
-<b>Parce que voici, l'hiver est passé.</b> Il n'y a aucune difficulté à voyager maintenant. "סְתָיו-" est l'hiver. Le targum de  חֹרֶף £ [=hiver] est  סִתְוָא.<sup>21</sup><i class="footnote">Bereishis 8:22. </i> 
+<b>Parce que voici, l'hiver est passé.</b> Il n'y a aucune difficulté à voyager maintenant. "סְתָיו-" est l'hiver. Le targum de  חֹרֶף £ [=hiver] est  סִתְוָא.<sup>21</sup><i class="footnote">Bereshit 8:22. </i> 
 
 ### passuk 12
 <b>Les fleurs sont apparues sur la terre.</b> Les jours de l'été sont proches, quand les arbres fleurissent et que les voyageurs aiment les voir. 
@@ -58,7 +58,7 @@
 <b>Mon bien-aimé a parlé.</b> Par l'intermédiaire de Moshé.
 <b>Et m'a dit. Par Aharon.
 <b>Lève-toi.</b> Dépêche-toi, "et que chacun emprunte à son voisin".</sup></sup><i class="footnote">Shemos 11:2. </i> 
-<b>Parce que voici, l'hiver est passé.</b> Ce sont les quatre cents ans de [l'exil]. Je les ai sautées en les comptant depuis la naissance de Yitzchak.<sup>23</sup><i class="footnote">Voir Rachi dans Bereishis 15:13. </i> 
+<b>Parce que voici, l'hiver est passé.</b> Ce sont les quatre cents ans de [l'exil]. Je les ai sautées en les comptant depuis la naissance de Yitzchak.<sup>23</sup><i class="footnote">Voir Rachi dans Bereshit 15:13. </i> 
 <b>La pluie.</b> Qui est la dureté de l'hiver, est passée et disparue, c'est-à-dire que quatre-vingt-six années de dur esclavage ont été décrétées sur vous, et elles sont passées. À partir du moment où Miryam est née, les Égyptiens ont intensifié l'esclavage sur Yisrael ; c'est pourquoi on l'a appelée Miryam [=  מִרְיָם, parce qu'ils l'ont rendu amer [=מַר  pour eux.<sup>24</sup><i class="footnote">Voir Shemos 1:14. </i> 
 <b>Les fleurs sont apparues sur la terre.</b> Voici que Moshé et Aharon sont à votre disposition pour combler tous vos besoins.
 <b>Le temps du chant est venu.</b> Car vous êtes destinés à réciter un chant au bord de la mer [des Roseaux].</sup>25</sup><i class="footnote">Voir Shemos 15:1-19. </i> 
@@ -90,7 +90,7 @@ Autre explication : "<b>Le figuier a produit ses figues vertes.</b> Ce sont les 
 <b>Jusqu'à ce que le soleil s'étende.</b> Cela fait référence au verset précédent, "Mon bien-aimé est à moi, et je suis à lui", <<sup>39</sup><i class="footnote">Verset 16. </i> jusqu'au moment où l'iniquité a fait que le soleil m'a obscurci dans la chaleur du jour, et la chaleur s'est intensifiée.<sup>40</sup><i class="footnote">Voir ci-dessus 1:5-7. </i> 
 <b>Et les ombres s'enfuient.</b> Nous avons péché avec le veau [d'or] ; nous avons péché avec les espions, "et les ombres s'enfuient", [c'est-à-dire que] les mérites qui nous protégeaient [ont disparu parce que] nous avons brisé Son joug. 
 <b>Tu as détourné mon bien-aimé.</b> Je l'ai fait quitter sur des montagnes qui étaient loin de moi.
-<b>Distant.</b> Expression de la séparation et de la distance.</sup></sup><i class="footnote">Alternativement,  הרי בתר  signifie montagne fendue et fait référence au mont des Oliviers qui sera fendu selon la prophétie de Zacharie [14:4]. Ainsi, la signification de  בתר  est similaire à " il les a fendus [ויבתר] au centre ", dans Bereishis 15:10. </i> 
+<b>Distant.</b> Expression de la séparation et de la distance.</sup></sup><i class="footnote">Alternativement,  הרי בתר  signifie montagne fendue et fait référence au mont des Oliviers qui sera fendu selon la prophétie de Zacharie [14:4]. Ainsi, la signification de  בתר  est similaire à " il les a fendus [ויבתר] au centre ", dans Bereshit 15:10. </i> 
 
 >Crédit : sefaris
 >License : CC-BY

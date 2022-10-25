@@ -12,7 +12,7 @@
 ### passuk 4
 
 ### passuk 5
-<b>Il [Yehudah] était à Keziv.</b> [Keziv] est le nom du lieu. Je pense que c'est parce qu'elle a cessé d'enfanter qu'elle a été nommée Keziv ; du même terme que : " Agiras-tu envers moi comme un trompeur [אַכְזָב] " ? [ou] "dont les eaux ne cesseront pas". Car si ce n'est pas [la raison pour laquelle elle a été appelée Keziv], pourquoi sommes-nous informés [du lieu où se trouve Yehouda] ? Dans Bereishis Rabbah, j'ai vu [ce qui suit] : "Elle l'a nommé Sheilah, etc., en cessant." 
+<b>Il [Yehudah] était à Keziv.</b> [Keziv] est le nom du lieu. Je pense que c'est parce qu'elle a cessé d'enfanter qu'elle a été nommée Keziv ; du même terme que : " Agiras-tu envers moi comme un trompeur [אַכְזָב] " ? [ou] "dont les eaux ne cesseront pas". Car si ce n'est pas [la raison pour laquelle elle a été appelée Keziv], pourquoi sommes-nous informés [du lieu où se trouve Yehouda] ? Dans Bereshit Rabbah, j'ai vu [ce qui suit] : "Elle l'a nommé Sheilah, etc., en cessant." 
 
 ### passuk 6
 
@@ -98,7 +98,7 @@
 <b>Avec quelle force.</b> [Signification :] avec quelle force tu as poussé ?
 
 ### passuk 30
-<b>Celui sur la main duquel était le fil écarlate.</b> Le mot יַד apparaît ici quatre fois, correspondant aux quatre interdits violés par Acan, qui descendait de lui [Zorach]. D'autres disent que cela correspond aux quatre choses qu'il a prises [à la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereishis Rabbah. 
+<b>Celui sur la main duquel était le fil écarlate.</b> Le mot יַד apparaît ici quatre fois, correspondant aux quatre interdits violés par Acan, qui descendait de lui [Zorach]. D'autres disent que cela correspond aux quatre choses qu'il a prises [à la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereshit Rabbah. 
 <b>Il le nomma Zorach.</b> A cause de la couleur vive du fil écarlate.
 
 >Crédit : primo.nli.org.il (metsudah)

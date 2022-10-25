@@ -34,7 +34,7 @@
 ### passuk 13
 
 ### passuk 14
-<b>Comme dit l'ancien proverbe.</b> Le proverbe de l'Ancien du monde<sup>7</sup><i class="footnote">Il peut également signifier 'ancien proverbe' ou faire référence à un 'proverbe kadmonite', une nation mentionnée dans Bereishis 15:19. </i> [se référant à] la Torah, qui est le proverbe du Saint, Béni soit-Il. <sup>8</sup><i class="footnote">Et par conséquent <span>הַקַּדְמֹנִי</span> signifie 'L'Ancien' en référence à <span>ה׳</span> Lui-même.</i>
+<b>Comme dit l'ancien proverbe.</b> Le proverbe de l'Ancien du monde<sup>7</sup><i class="footnote">Il peut également signifier 'ancien proverbe' ou faire référence à un 'proverbe kadmonite', une nation mentionnée dans Bereshit 15:19. </i> [se référant à] la Torah, qui est le proverbe du Saint, Béni soit-Il. <sup>8</sup><i class="footnote">Et par conséquent <span>הַקַּדְמֹנִי</span> signifie 'L'Ancien' en référence à <span>ה׳</span> Lui-même.</i>
 <b>Du méchant vient la méchanceté.</sup>9</sup><i class="footnote">Donc, qu'elle ne vienne pas de moi même si tu la mérites.</i></b> Le Saint, Béni soit-Il, destine les méchants à tomber dans la main des méchants comme lui. Et où la Torah a-t-elle dit cela, "Et Dieu le destina à sa main"<sup>10</sup><i class="footnote">Shemos 21:13.</i> comme il est dit dans Masehet Makos.<sup>11</sup><i class="footnote"></i>.
 
 ### passuk 15

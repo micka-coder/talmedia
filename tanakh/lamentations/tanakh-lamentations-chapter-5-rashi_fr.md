@@ -16,7 +16,7 @@
 ### passuk 6
 <b>Vers l'Égypte, nous avons tendu la main [pour l'aider].</b> Il est d'usage qu'une personne qui tombe et souhaite se relever tende la main à quelqu'un à proximité pour l'aider. Ici aussi, nous avons tendu la main à l'Égypte pour qu'elle nous aide.<sup>3</sup><i class="footnote">Alternativement, l'Égypte nous a donné sa main [secousse], c'est-à-dire l'expression d'un serment, pour qu'elle nous aide. (Ibn Ezra) </i> 
 <b>[Vers] Ashur.</b> Qu'ils nous rassasient de leur pain.
-<b>Nous avons tendu [une main].</b> נָתַנּוּ est] le même que נָתַנְנוּ. Le <i>dagesh</i> dans le <i>nun</i> prend la place du second <i>nun</i>, comme dans, "car tout vient de Toi, et de Ta main nous l'avons donné נָתַנּוּ à Toi,"<sup>4</sup><i class="footnote">I Divrei Hayamim 29:14. </i> et comme dans, "et nous te donnerons וְנָתַנּוּ nos filles."<sup>5</sup><i class="footnote">Bereishis 34:16. </i> 
+<b>Nous avons tendu [une main].</b> נָתַנּוּ est] le même que נָתַנְנוּ. Le <i>dagesh</i> dans le <i>nun</i> prend la place du second <i>nun</i>, comme dans, "car tout vient de Toi, et de Ta main nous l'avons donné נָתַנּוּ à Toi,"<sup>4</sup><i class="footnote">I Divrei Hayamim 29:14. </i> et comme dans, "et nous te donnerons וְנָתַנּוּ nos filles."<sup>5</sup><i class="footnote">Bereshit 34:16. </i> 
 
 ### passuk 7
 

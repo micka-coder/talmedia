@@ -37,7 +37,7 @@
 ### passuk 15
 <b>Ceci s'ajoutait [à l'or qui provenait des] marchands ambulants.</b> Les marchands faisaient venir celui qui visitait le pays pour affaires.</sup>5</sup><i class="footnote">Alternativement, les détaillants qui vendent de petites quantités, espionnent [=תרים] le pays pour déterminer où faire des affaires.-Metzudas Tzion</i>.
 <b>Vendeurs d'épices.</b> Les vendeurs d'épices qui transportaient les épices d'une ville à l'autre.
-<b>Et tous les rois subordonnés.</b> [Targum] Yonatanh a rendu : "et tous ceux qui dépendent de son soutien"<sup>6</sup><i class="footnote">Alternativement, les rois arabes.-Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, dans ancien français.
+<b>Et tous les rois subordonnés.</b> [Targum] Yonathan a rendu : "et tous ceux qui dépendent de son soutien"<sup>6</sup><i class="footnote">Alternativement, les rois arabes.-Metzudas Tzion</i> une expression de garantie, [c'est-à-dire] les rois qui étaient alliés et dépendaient de son soutien, <i>garantie</i>, dans ancien français.
 
 ### passuk 16
 <b>Boucliers complets.</b> [Un bouclier corporel qui] entoure la personne sur trois côtés. C'est le sens du verset du livre de Tehillim : "comme un bouclier corporel, avec bonne, volonté Tu l'entoureras."<sup>7</sup><i class="footnote">Tehillim 5:13.</i>.

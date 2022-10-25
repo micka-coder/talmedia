@@ -38,7 +38,7 @@
 <b>Dont le bras droit était immobile.</b> Yonasan rend "Un homme dont le bras droit était rétréci". "Gamid" en araméen indique toujours quelque chose de rétréci par la maladie, "retrait", "rétréci" en vieux français. Il ne pouvait pas se servir de son bras droit. En hébreu, "fermé", comme dans "Que le puits ne ferme pas sa bouche sur moi."<sup>4</sup><i class="footnote">Tehilim, 69:16.</i> Son bras droit était "fermé"-il ne pouvait pas l'utiliser.
 
 ### passuk 16
-<b>Un <i>gomed</i> long.</b> Un amoh abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Batra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
+<b>Un <i>gomed</i> long.</b> Un amah abrégé.</sup>5</sup><i class="footnote">La longueur de l'avant-bras. (Rashbam à Bava Batra, 100:a).</i> En allemand, 'daumen lang'. En vieux français, "espan courte".
 <b>Au-dessus de sa cuisse droite.</b> Comme il était capable d'utiliser sa main gauche, il la saisissait avec la main gauche.
 
 ### passuk 17

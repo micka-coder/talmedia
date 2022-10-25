@@ -11,7 +11,7 @@ Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On po
 <b>Vers le pays que je te montrerai.</b> Il ne révéla pas immédiatement de quel pays il s'agissait afin qu'il soit précieux à ses yeux, ainsi que pour le récompenser de chaque parole. De même : "Ton fils, ton unique, celui que tu aimes, Yitshak" De même : "Sur l'une des montagnes que je te dirai," et de même : "Et annonce-lui la proclamation que je te dirai." 
 
 ### passuk 3
-<b>Et par toi, seront bénis.</b> Il existe de nombreuses interprétations aggadaïques, mais voici le sens simple : Un homme dit à son fils, "Que tu sois comme Avraham." C'est la signification chaque fois que [l'expression] וְנִבְרְכוּ בְךָ [apparaît] dans les Écritures. L'[expression] suivante le prouve : "Par toi, [le peuple d'] Israël bénira, en disant : Qu'Elohim vous rende comme Ephraïm et Menashé." 
+<b>Et par toi, seront bénis.</b> Il existe de nombreuses interprétations aggadiques, mais voici le sens simple : Un homme dit à son fils, "Que tu sois comme Avraham." C'est la signification chaque fois que [l'expression] וְנִבְרְכוּ בְךָ [apparaît] dans les Écritures. L'[expression] suivante le prouve : "Par toi, [le peuple d'] Israël bénira, en disant : Qu'Elohim vous rende comme Ephraïm et Menashé." 
 
 ### passuk 4
 
@@ -40,7 +40,7 @@ Et [je] rendrai ton nom grand. C'est la base pour dire : "Dieu de Yaakov." On po
 <b>Famine dans le pays.</b> Dans ce pays seulement. [C'était] afin de le mettre à l'épreuve [Avram] pour savoir s'il remettra en question les paroles de Dieu qui lui avait dit d'aller au pays de Canaan et qui le force maintenant à le quitter.
 
 ### passuk 11
-<b>Voici, je réalise maintenant.</b> L'explication aggadaïque est la suivante : jusqu'à présent, il n'avait pas été conscient [de sa beauté] en raison de la pudeur de tous les deux. Mais, maintenant, il a pris conscience d'elle en raison d'un événement. Une autre explication : Il est habituel qu'en raison de la difficulté du voyage une personne devienne peu attrayante, mais elle était restée avec sa beauté. Mais l'explication simple de ce verset est la suivante : "Voici que je réalise maintenant [que] le temps est venu de m'inquiéter de ta beauté. Je sais depuis longtemps que tu es belle. Mais, maintenant nous allons venir parmi des gens noirs et repoussants, des frères des Kushim, qui ne sont pas habitués à [voir] une belle femme. Un exemple similaire à celui-ci : "Voyez <i>maintenant</i> mes seigneurs, veuillez vous tourner." 
+<b>Voici, je réalise maintenant.</b> L'explication aggadique est la suivante : jusqu'à présent, il n'avait pas été conscient [de sa beauté] en raison de la pudeur de tous les deux. Mais, maintenant, il a pris conscience d'elle en raison d'un événement. Une autre explication : Il est habituel qu'en raison de la difficulté du voyage une personne devienne peu attrayante, mais elle était restée avec sa beauté. Mais l'explication simple de ce verset est la suivante : "Voici que je réalise maintenant [que] le temps est venu de m'inquiéter de ta beauté. Je sais depuis longtemps que tu es belle. Mais, maintenant nous allons venir parmi des gens noirs et repoussants, des frères des Kushim, qui ne sont pas habitués à [voir] une belle femme. Un exemple similaire à celui-ci : "Voyez <i>maintenant</i> mes seigneurs, veuillez vous tourner." 
 
 ### passuk 12
 

@@ -4,7 +4,7 @@
 ### passuk 2
 
 ### passuk 3
-<b>Et Mes yeux et Mon cœur seront.</b> [Targum] Yonatanh a rendu : "et Ma Présence Divine y demeurera si Ma volonté est faite."
+<b>Et Mes yeux et Mon cœur seront.</b> [Targum] Yonathan a rendu : "et Ma Présence Divine y demeurera si Ma volonté est faite."
 <b>Et mes yeux et mon cœur y seront.</b> Si mon cœur et ma volonté y sont.</sup>1</sup><i class="footnote">I.e., si Mon désir et Ma volonté sont suivis, Ma Présence Divine y sera.</i><sup>2</sup><i class="footnote">Même après la destruction du Beit Hamikdash, la Présence Divine est restée sur le Mur occidental [כותל המערבי] du Beit Hamikdash. Voir Shir Hashirim 2:9 et Midrash Rabboh là.</i>
 
 ### passuk 4
@@ -15,7 +15,7 @@
 
 ### passuk 7
 <b>Et la Maison que J'ai sanctifiée pour Mon Nom.</b> Il y a une condition entre Moi et vous, [que] "Si vous ne prenez pas garde, etc.", qu'est-ce qui est énoncé là ? "Je réduirai vos Sanctuaires en désolation."<sup>3</sup><i class="footnote">Vayikra 26:31.</i>
-<b>Et une moquerie.</b> Comme le Targum [Yonatanh a rendu], ולשועי, [c'est-à-dire, ils raconteront les maux qui les ont frappés et se moqueront d'eux, comme dans "ויספר [=et il raconta," que le Targum a rendu] ואשתעי. L'expression "שנינה" est aussi une expression de parole comme il est écrit [dans les Écritures], "et tu les répéteras [ושננתם] à tes enfants".
+<b>Et une moquerie.</b> Comme le Targum [Yonathan a rendu], ולשועי, [c'est-à-dire, ils raconteront les maux qui les ont frappés et se moqueront d'eux, comme dans "ויספר [=et il raconta," que le Targum a rendu] ואשתעי. L'expression "שנינה" est aussi une expression de parole comme il est écrit [dans les Écritures], "et tu les répéteras [ושננתם] à tes enfants".
 
 ### passuk 8
 <b>Et ce Beit Hamikdash sera très haut.</b> Tant que vous n'aurez pas péché ; mais dès que vous aurez péché, tous les passants seront stupéfaits et siffleront.<sup>4</sup><i class="footnote">Rashi comprend que יהיה est le futur, ce qui signifie "sera" très haut. Alternativement, יהיה peut aussi être interprété au présent, " est " le plus haut-Ralbag. Ou encore, יהיה עליון est interprété comme "sera détruit"."-Radak</i> Et de même, il est écrit dans le Divrei Hayamim, "Et ce Beis [Hamikdosh] qui a été exalté, tous ceux qui passent devant, etc, "<sup>5</sup><i class="footnote">II Divrei Hayamim 7:41.</i> et c'est son interprétation, "et cette maison qui a été exaltée et révérée même par les Gentils," comme il est dit plus haut, "Et même à l'étranger qui n'est pas de Ton peuple, etc, "<sup>6</sup><i class="footnote">I Melochim 8:21.</i> Mais, maintenant dans sa destruction, tous ceux qui passeront devant, même les Gentils, seront stupéfaits et siffleront, et diront que les péchés des Juifs en sont la cause.
