@@ -29,5 +29,8 @@ Si l'on a puisé de l'eau à travers un kilon (sorte de conduit d'eau), cela pro
 ### michna 10
 Si des liquides [impurs] sont tombés sur des bois, que la pluie soit [ensuite] tombée sur eux et que [l'eau de pluie] a dépassé [les liquides] en quantité, ils sont purs. S'il a sorti [les bois] pour que la pluie tombe dessus, ils sont impurs même si [l'eau de pluie] a dépassé en quantité. Si [les bois] ont absorbé des liquides impurs, même s'il a sorti les bois pour que la pluie tombe dessus, ils sont pur. Mais on ne peut allumer le bois dans un four qu'avec des mains propres. Rabbi Shimon dit : si les bois étaient humides et qu'il les a ensuite allumé, et que les liquides qui en sont sortis dépassaient en quantité les liquides qu'ils avaient absorbés, ils deviennent propres.
 
+### michna 11
+Si le produit de la deuxième année a dépassé en quantité le produit de la troisième année, ou si le produit de la troisième année a dépassé le produit de la quatrième année, ou si le produit de la quatrième année a dépassé le produit de la cinquième année, ou si le produit de la cinquième année a dépassé le produit de la sixième année, ou si le produit de la sixième année a dépassé le produit de la septième année, ou si le produit de la septième année a dépassé le produit de l'année qui suit la conclusion de la septième année, on suit la majorité. Si c'est moitié-moitié, on suit les règles les plus strictes.
+
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

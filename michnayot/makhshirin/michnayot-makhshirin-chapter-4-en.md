@@ -29,5 +29,8 @@ If one drew water through a kilon (a pump-beam), it causes susceptibility to unc
 ### michna 10
 If [unclean] liquids fell upon wood and rain came down upon it and [the rain water] exceeded [the liquids] in quantity, they are clean. If he took [the wood out] so that rain would come down upon it, they are unclean   even though [the rain water] exceeded in quantity. If [the wood] had absorbed unclean liquids, even if he took the wood outside in order that rain should come down upon it, it is clean. But one may not light the wood in an oven except with clean hands. Rabbi Shimon says: if the wood was moist and then he lit it, and the liquids that came out of it exceeded in quantity the liquids which it had absorbed, they become clean.
 
+### michna 11
+If the produce of the second year exceeded in quantity the produce of the third year, or the produce of the third year exceeded the produce of the fourth year, or the produce of the fourth year exceeded the produce of the fifth year, or the produce of the fifth year exceeded the produce of the sixth year, or the produce of the sixth year exceeded the produce of the seventh year, or the produce of the seventh year exceeded the produce of the year after the conclusion of the seventh year, we follow the majority. If half and half, the rule is stringent.
+
 >Credit : Dr. Joshua Kulp
 >License : CC-BY

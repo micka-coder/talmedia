@@ -6,7 +6,7 @@ Toute la terre avait une même langue et des paroles semblables.
 Or, en émigrant de l’Orient, les hommes avaient trouvé une vallée dans le pays de Sennaar, et s’y étaient arrêtés.
 
 ### passuk 3
-Ils se dirent l’un à l’autre: "Ã‡à, préparons des briques et cuisons-les au feu." Et la brique leur tint lieu de pierre, et le bitume de mortier.
+Ils se dirent l’un à l’autre: "Allons, préparons des briques et cuisons-les au feu." Et la brique leur tint lieu de pierre, et le bitume de mortier.
 
 ### passuk 4
 Ils dirent: "Allons, bâtissons-nous une ville, et une tour dont le sommet atteigne le ciel; faisons-nous un établissement durable, pour ne pas nous disperser sur toute la face de la terre."
